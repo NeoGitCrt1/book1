@@ -19,3 +19,7 @@ gitbook init
 └── chapter-2/
     ├── README.md
     └── something.md
+
+
+gitbook build
+gitbook serve    
