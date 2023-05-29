@@ -79,7 +79,134 @@
     你们这些地球上的同类（人民），以真理的名义对你们说，你们能够理解表象法则（自然）和原始（创造）法则的奥秘，因为如果你努力这样做，它们就会向你揭示你因傲慢而向自己隐瞒的东西。
 70. Ihr Euresgleichen (Menschen) der Erde, gedenkt der Zeit, da ihr noch ohne Glauben der wahrlichen Wahrheit zugetan und nicht der Wahrheit fremd wart; setzt euch daher in jenen Zustand zurück, als ihr noch nicht durch einen irren Glauben euch durch die Wahrheit der Ausführung (Schöpfung) zugetan und keine Gottheit angebetet habt.
     你们这些地球上的同类（人）记得你们仍然致力于真理而没有信仰，对真理并不陌生的时代;因此，当你们还没有通过执行（创造）的真理以疯狂的信仰拥抱自己，也没有崇拜神灵时，让自己回到那种状态。
-71. 
+71. Beugt euch, Euresgleichen (Menschen), Mann und Weib der Erde, nicht vor Gottheiten, denn sie sind Falsch - heiten und Erdichtun gen und Lügen von Euresgleichen (Menschen), die im Wahn zu Gläubigen wurden, in - dem sie falsche höhere Mächte erfanden und diese anbeteten; ihnen sollt ihr nicht gleichtun und weder sie noch ihre erfundenen Götter anbeten.​
+    不要向神灵，你们的同类（男人），地球上的男人和女人低头，因为他们是你们同类（男人）的谎言、捏造和谎言，他们成为妄想的信徒，他们发明了虚假的更高力量并崇拜他们;你们不可模仿他们，也不可崇拜他们或他们发明的神。
+72. Beugt euch, Euresgleichen (Menschen) der Erde, nicht vor den Euresgleichen (Mitmenschen), auch nicht vor denen der Obrigkeit, denn auch wenn sie hohe Titel tragen und Reichtum haben, sind sie im Wert nicht mehr als ihr​.
+    不要向你们自己的同类（人民）低头，向你们自己的同类（人类同胞）低头，也不要向当局的人低头，因为即使他们拥有很高的头衔和财富，他们也不会比你更有价值。
+73. Euresgleichen (Mensch), Mann, Weib und Kind, weilet im grossen Garten der Erde und esset reichlich von all dem, was durch das Aussehen (Natur) und das Getier gegeben und auch von euch erschaffen ist, und geniesst die gärenden Säfte der Früchte im Masse des Guten, damit ihr nicht trunken einhergeht, und esst von allem Getier das Fleisch in gutem Masse, von Vogel und Hasen bis zum Schwein, Rind und Kamel, nur treibet keine Schande damit und verfallet nicht dem Frass und der Völlerei, auf dass ihr keine Frevler (Gesetzesbrüchige) seid.
+    你的同类（男人），男人，女人和孩子，住在地球的大花园里，吃所有由外表（自然）和野兽所赐的一切，也是你创造的，并享受水果的发酵汁液，以善良为尺度，这样你就不会喝醉了，吃所有活体动物的肉， 从鸟类和野兔到猪、牛和骆驼，只不要让他们丢脸，不要陷入暴食和暴食，这样你就不会邪恶（违法者）。
+74. Euresgleichen (Menschen), ihr sollt nicht straucheln vor dem Bösen und ihm nicht dienlich sein, sonst werdet ihr vertrieben von dem Ort, wo ihr lebt, und ihr werdet geächtet bis ans Ende eurer Tage.​
+    你们的善良（男人），你们不可在邪恶面前绊倒，不要服侍它，否则你们将被赶出你们居住的地方，你们将被排斥，直到你们生命的尽头。
+75. Euresgleichen (Menschen), geht hinweg von jenen, welche sich als eure Feinde wähnen, doch gedenkt ihnen Gutes zu tun und sie nicht zu hassen, sondern ihnen in Liebe zugetan zu sein, und zwar auch dann, wenn ihr deren Taten der Schändlichkeit offen zu nennen habt; erachtet niemals von euch aus einen anderen als euren Feind, denn ihr sollt allen Euresgleichen (Menschen) in Liebe zugetan und ihnen hilfreich sein in allen guten Dingen.
+    远离那些认为自己是你的敌人的人，但要记住要善待他们，不要恨他们，而是要用爱心献身于他们，即使你必须公开称他们的行为是可耻的;永远不要把别人当作你的敌人，因为你将献身于你所有的爱心（人民），并在一切美好的事情上帮助他们。
+76. Es ist von euch zu bedenken, dass des Euresgleichen (Menschen) Wohnstatt die Erden sind und auch nur für eine Weile, weshalb ihr sie zu Euresgleichen (Mitmenschen) Nutzen und zum Besten machen und sie nicht harmen und nicht zerstören sollt.
+    你要记住，你的同类（人）的居所是地球，而且只是暂时的，这就是为什么你应该让他们成为你的同类（人类同胞）的利益和善良，而不是伤害他们，而不是摧毁他们。
+77. Es sind die natürlichen und urkräftigen (schöpferischen) Gesetze gegeben, die sich bei deren Beachtung und Nutzung hilfreich auswirken; und wahrlich, werden sie befolgt, dann führt alles zum Gedeihen und zum Erfolg sowie zur Freude, zur Liebe, zum Frieden und zur Eintracht (Harmonie) und Weisheit.
+    有自然和原始（创造性）规律有助于观察和使用它们;确实，如果它们被服从，那么一切都会带来繁荣和成功，以及喜悦、爱、和平、和谐和智慧。
+78. Es ist für alle geboten hinauszugehen in das freie Aussehen (Natur), um ihre Gesetze zu erkennen und dann deren Weisungen zu folgen, damit die Furcht vor dem Tode weiche und niemand in Unverstand (Dummheit) zu trauern brauche, wenn das Dasein zu Ende geht.
+    每个人都必须走出自由的外表（自然），以承认他们的法律，然后遵循他们的指示，这样对死亡的恐惧就会让位，当存在结束时，没有人将不得不在无知（愚蠢）中哀悼。
+79. Wird jedoch im Unwissen verharrt und werden die Zeichen (Wundervolles) des Aussehens (Natur) und deren sowie die gestaltungsgegebenen (schöpfungsgegebenen) und natürlichen Gesetze missachtet und als Lüge bezichtigt, dann bestraft ihr euch selbst, denn euer Leben wird voll sein von falschem Frieden, falscher Freiheit und Liebe, voll Unwissen, Unweisheit, Freud losigkeit und Missklang (Disharmonie), wodurch ihr in eurer Anschwellung (Entwicklung/Evolution) eurer Innenwelt (Bewusstsein) gestört werdet und stockt (stagniert).
+    然而，如果你坚持无知，外表（自然）的迹象（美妙）及其形成（创造）和自然法则被忽视并被指责为谎言，那么你就惩罚自己，因为你的生活将充满虚假的和平、虚假的自由和爱，充满无知、不智慧、无快乐和不和谐（不和谐），从而扰乱你内心世界（意识）的膨胀（发展/进化）。 变得和动摇（停滞不前）。
+80. Euresgleichen (Menschen) der Erde, gedenkt der unendlichen Güte des Lebens und der Wohltaten, die euch seit alters her erwiesen und geschaffen wurden für alle jene von euch, welche den natürlichen und den ge - staltungsmässig (schöpfungsmässig) gegebenen Gesetzen und Richtlinien Folge leisteten.​
+    你们地球上的同龄人（人民）记住生命的无限美好，以及自古以来赋予你们的利益，并为你们所有遵守自然和创造的法则和准则的人创造。
+81. Zwischen euch Euresgleichen (Menschen) sowie den Gesetzen der Erzeugung (Schöpfung) und dem Aussehen (Natur) besteht ein Bund, der erfüllt werden muss, denn nur durch diese Er füllung wird gewähr leistet, dass keine Furcht gehegt werden muss gegen das Leben und den Tod, denn die urkräftigen (schöpferischen) und natürlichen Gesetze sind derart geformt, dass sie sich in jedem Fall erfüllen; doch ihr allein bestimmt im Guten oder Schlechten darüber, ob sich Furcht oder Unfurcht in euch regen soll.​
+    你们（人类）之间以及生产法则（创造）和表象法则（自然）之间有一个盟约，必须履行，因为只有通过这种实现才能确保没有必要害怕生与死，因为原始（创造）和自然法则的形成方式使它们在任何情况下都能实现;可是只有你自己决定，无论好坏，恐惧还是恐惧应该在你内在激荡。
+82. Was durch die urkräftigen (schöpferischen) Gesetze erschaffen wurde, ist eine Bestätigung dessen, was durch die Innenwelt der Himmel (Universalbewusstsein), durch die Erzeugung (Schöpfung), durch eine Idee erdacht und in Liebe geschaffen wurde; doch ihr seid es, die ihr euch die Wahrheit versagt und statt im Wissen um die Wahrheit im Glauben an Gottheiten ver fallen seid, wodurch ihr nicht mit euch selbst verhandeln könnt, um euch vom armseligen Glauben zu befreien und der Wahrheit zuzuwenden, die euch allein Schutz bietet.​
+    原始（创造）法则所创造的是对天堂内部世界（宇宙意识）、世代（创造）、观念和爱所创造的事物的确认;但正是你们否认了自己的真理，你们不认识真理，反而陷入了对神灵的信仰，因此你们无法与自己谈判，以便将自己从可怜的信心中解脱出来，转向只有真理才能为你们提供保护。
+83. Niemals soll Falschheit mit Wahrheit vermengt, noch die Wahrheit wissentlich verhehlt werden.
+    谎言永远不应该与真理混为一谈，也不应该故意隐瞒真相。
+84. Die urkräftigen (schöpferischen) Gesetzmässigkeiten sind darauf ausgelegt, die Pflicht des anzustrebenden Wissens und der Weisheit zur Wahrheit zu pflegen und sich vor keinen Eures gleichen (Menschen) und keinen Gottheiten zu beugen, jedoch dabei darauf bedacht zu sein, den Darbenden mit angemessenen Gaben hilfreich zu sein.
+    原始（创造性）律法旨在培养知识和智慧的责任，为真理而奋斗，而不是向任何同类（人）或神灵低头，而是要小心翼翼地以适当的礼物帮助有需要的人。
+85. Es sollen nicht andere ermahnt werden, das Rechte zu tun, doch dabei das eigene Unrecht vergessen werden, das getan wird; das ist ein Gebot, das wohl verstanden werden muss.​
+    不要劝告别人做正确的事，而要忘记自己正在做的错误;这是一条必须好好理解的诫命。
+86. Hilfe muss in Einsicht und Geduld gesucht werden, was freilich jedoch schwer ist, es sei denn für den Reichen in der Innenwelt (Bewusstsein), der nicht in Demut, sondern in Wahrheit, in Liebe, Wissen und Weisheit einhergeht.
+    必须在洞察力和耐心中寻求帮助，这当然是困难的，除了内心世界（意识）中的富人，它不是与谦卑齐头并进，而是在真理中，在爱、知识和智慧中。
+87. Die gewiss wissend sind, werden unaufhaltsam der Wahrheit begegnen und immer zu ihr finden.
+    那些知识渊博的人会无情地遇到真理，总能找到它。
+88. Euresgleichen (Menschen) der Erde, gedenkt stets der Wohltaten eurer Euresgleichen (Mit menschen), die sie euch erwiesen oder erweisen, und erhebt euch nie über sie.
+    对于你的同类，在地球上，永远记住你的同类的祝福，他们已经或正在对你做过，永远不要超越他们。
+89. Fürchtet die Unwahrheit, die niemals als Bevollmächtigte (Stellvertreterin) und Fürbitte für die wahrliche Wahr - heit dienen und kein Lösegeld bieten kann, denn durch sie wird nicht geholfen, sondern genommen und zerstört.
+    害怕谎言，它永远不能作为真实真理的代表和代祷，也不能提供赎金，因为它无济于事，而是索取和破坏。
+90. Gedenkt all der Übel und der Pein, durch die viele in der Welt heimgesucht werden, durch Schlachten (Kriege), durch Verbrecher und Mörder, durch die Söhne und Väter erschlagen und Töchter und Mütter vergewaltigt und getötet werden.
+    记住折磨世界上许多人的所有邪恶和折磨，通过战斗（战争），通过罪犯和杀人犯，儿子和父亲被杀，女儿和母亲被强奸和杀害。
+91. Und gedenkt der langen Zeiten vor der Zeit von heute, als verlogene Versprechen gegeben wurden von den Mächtigen der Welt, dass niemals wieder Schlachten (Kriege) geführt werden sollen, doch trotzdem werden weiterhin dem Moloch Schlacht (Krieg) unzählbare Leben Euresgleichen (Menschen leben) geopfert und ungeheure Zerstörungen angerichtet.​
+    请记住，在今天之前很久，当世界上的强者做出虚伪的承诺时，不应该再打仗（战争），但尽管如此，你们同类（人类）的无数生命继续被牺牲给战斗（战争）的巨人，并造成了巨大的破坏。
+92. Und es ist die Wahrheit, statt dass ihr nicht für jeden Tag Frieden dankbar seid, ihr weiterhin Tod, Verderben und Zerstörung verbreitet im Namen eines wesenlosen (imaginären) Gottes, der Liebe predigt, jedoch widersinnig Strafe, Tod und Vernichtung fordert.
+    这是事实，你不是每天都不感谢和平，而是继续以一个虚无的（想象的）上帝的名义传播死亡、毁灭和毁灭，他宣扬爱，但荒谬地要求惩罚、死亡和毁灭。
+93. Und es kamen zu euch Propheten mit offenbaren Zeichen (Wundersamkeiten und Wahrheitslehre), durch die viele urkräftige (schöpferische) Gesetze und Gebote dargelegt wurden, doch in ihrer Abwesenheit schuft ihr Götzen und betetet sie an, und also wart ihr Frevler (Verantwortungslose) an der Wahrheit.​
+    先知带着明显的征兆（神迹和真理的教义）来到你面前，通过这些征兆，许多原始（创造的）律法和诫命被阐述出来，但在它们缺席的情况下，你辛苦地崇拜偶像并崇拜他们，所以你们这些邪恶的（不负责任的）是真理。
+94. Für das urquellgegebene (schöpfungsgegebene) Leben und das Aussehen (Natur) mit allen seinen Lebens - formen vergab die Innenwelt der Himmel (Universalbewusstsein), dass dafür Dankbarkeit in Liebe, Frieden, Freiheit, Gleichstimmung (Harmonie) und Wahrheit gepflegt werden soll.
+    对于原始（创造赋予的）生命和外表（自然）及其所有形式的生命，天堂的内在世界（宇宙意识）原谅了感恩应该在爱、和平、自由、和谐和真理中培养。
+95. Dankbarkeit soll vorherrschen für die Unterscheidung von Recht und Unrecht sowie von Wahrheit und Unwahrheit, damit jeder recht geleitet sein möge.
+    对与错、真理与虚假的区分应该以感恩为中心，以便每个人都能得到正确的引导。
+96. Es ist zu bedenken, dass ihr euch durch all euer Begehren nach Unrecht, durch euren Glauben an Gottheiten und deren Anbetung in Verantwortungslosigkeit selbst schwer belastet, weil ihr durch eure Bindung an einen imaginären Gott die wahrliche Wahrheit leugnet, diesen zum Schöpfer der Welten und des Universums erhebt, ihm huldigt und in seinem Namen durch Schlacht (Krieg) und Strafe die Euresgleichen (Mitmenschen) tötet.​
+    必须记住，由于你们对不公正的渴望，由于你们对神灵的信仰和对他们的不负责任的崇拜，你们给自己带来了沉重的负担，因为你们对想象中的上帝的依恋，你否认了真正的真理，将他提升为世界和宇宙的创造者，向他致敬，并通过战斗（战争）和惩罚以他的名义杀死自己的同类（人类同胞）。
+97. Die grosse Masse von euch will auf keine Weise wissen und nicht die Wahrheit erkennen, wenn ihr nicht die Dinge der Wahrheit mit euren Händen greifen, mit euren Augen sehen und mit euren Ohren hören könnt, doch die wahrliche Wahrheit der wahrlichen Wahrheit ist nicht die des Greifens, des Sehens und des Hörens, sondern sie ist die der inneren Erkenntnis durch Vernunft und Verstand sowie des wahren Wissens und der Weisheit, die völlig frei sind von Glauben.​
+    你们广大群众如果不能用手抓住真理的东西，用眼睛看，不能用耳朵听，你们中的广大群众就不想知道真理，但真正真理的真正真理不是抓住、看到和听到的真理，而是通过理性和智力的内在知识，以及真正的知识和智慧， 他们完全没有信仰。
+98. Die Wahrheit des Lebens ist die, dass nach diesem der Tod sein Regiment führt, wonach ein neues Eigen (Persönlichkeit) in einem neuen Leben aufgerichtet wird, wofür Dankbarkeit erwiesen werden soll.
+    生命的真相是，在此之后，死亡至高无上，之后在新的生命中建立了一个新的自己（人格），对此要表示感谢。
+99.  Die urkräftigen (schöpferischen) und natürlichen Gesetze lassen die Gewölke am Himmel erscheinen und dahinziehen, denn sie bringen Wasser (Regen) hernieder, wodurch alles an Essbarem gedeihen kann und alles Leben genähret wird, doch Euresgleichen (Mensch) schädigt alles und fügt sich selbst den grössten Schaden damit zu. ​
+     原始（创造性）和自然法则使云出现在天空中并移开，因为它们带来了水（雨），因此所有可食用的东西都可以蓬勃发展，所有的生命都得到滋养，但你的同类（人）破坏了一切，对自己造成了最大的伤害。
+100. Euresgleichen (Mensch) soll immer essen von allen Gaben des Aussehens (Natur), die ihm als Nahrung dienen, und er soll davon haben, was er will, und zudem reichlich, doch soll er sich dafür nicht reichlich Nachkommen - schaft schaffen, denn er soll im Überfluss natürliche Nahrungsmittel haben und nicht Hunger leiden. ​
+     你的同类（人）要永远吃一切外表（自然）的恩赐，作为食物，他应该拥有他想要的，而且是丰富的，但他不能为自己创造丰盛的后代，因为他将拥有丰富的天然食物，不会挨饿。
+101. Nicht muss sich Euresgleichen (Mensch) zufriedengeben mit einerlei Speise, denn er soll dafür arbeiten, dass er aus der Erde hervorbringe, was sie wachsen lässt von ihrem Korn und ihren Kräutern, Früchten und Gemüsen; also muss er nicht das Geringere in Tausch nehmen gegen das Bessere, wenn er sich fleissig um seine Arbeit dafür bemüht; und wer nicht selbst die Arbeit verrichten und die Ernten durchführen kann, der gehe in die Stadt, wo er gegen ein Entgelt das findet, wonach er verlangt.​
+     你们的同类（人）一定不满足于一种食物，因为他要努力从地上带出使谷物和草药、水果和蔬菜生长的东西;因此，如果他努力为工作而努力，他就不必将小的换成更好的;谁不能自己做活，不能收割，就让他去城里，在那里他会找到他要的东西。
+102. Dem Euresgleichen (Mitmenschen) dessen Fehler und Vergehen zu vergeben bedeutet, Billigkeit (Gerechtigkeit) üben und Gutes zu tun.
+     原谅你的同龄人（人类同胞），他们的错误和冒犯是为了实践公平（正义）和行善。
+103. Nur Billigkeitslose (Gerechtigkeitslose/Verantwortungslose/Ungerechte) vertauschen das Wort der Wahrheit mit Lügen, doch die Lügner fügen sich damit selbst unendlich Schaden zu, weil sie keine wahren Freunde haben, sondern nur Falschfreunde, die ihnen nach dem Munde reden.​
+     只有不公正的人（不公正/不负责任/不公正的人）才会把真理的话换成谎言，但说谎者会给自己造成无限的伤害，因为他们没有真正的朋友，只有根据嘴说话的虚假朋友。
+104. Es ist des Rechtens, allzeit wahrheitlich zu sein und niemals Unbill über Euresgleichen (Mit menschen) und über die Erde zu bringen, indem Lieblosigkeit, Unfreiheit, Friedlosigkeit, Freudlosigkeit und Ungleich artigkeit (Dis - harmonie) geschaffen werden.​
+     任何时候都要诚实，永远不要通过制造无爱、缺乏自由、不和平、无快乐和不平等（不和谐）来伤害你的同龄人（与人）和地球。
+105. Viele werden mit Elend und Schande geschlagen, indem sie sich selbst drangsalieren und Gewalt antun, weil sie ihren eigenen Zorn auf sich laden, weil sie seit alters her in ihrer Widerspenstigkeit und in ihrem Frevel die urkräftigen (schöpferischen) Gesetze und Gebote ver werfen und die wahren Künder, die Propheten, töten wollen.
+     许多人因骚扰自己和施暴而感到痛苦和羞耻，因为他们招致自己的愤怒，因为自古以来，他们就拒绝了原始（创造性的）律法和诫命，他们的叛逆和罪孽，并想杀死真正的传令者，先知。
+106. Wahrlich, die wahrhaft Wissenden um die urkräftige (schöpferische) Wahrheit, die nach den urkräftigen (schöpferischen) Gesetzen leben, handeln und gute Werke tun, sie werden ihren Lohn empfangen in Form von Freude, Liebe, Frieden, Freiheit, Einträchtigkeit (Harmonie) und Weisheit, also wird auch keine Furcht über sie kommen vor dem Leben und dem Tod, und ihre Trauer wird sich vernünftig in Grenzen halten.​
+     确实，那些真正了解原始（创造）真理的人，那些按照原始（创造）法则生活、行动和行善的人，他们将以喜乐、爱、和平、自由、和谐和智慧的形式得到他们的奖赏，所以不会害怕生死降临到他们身上，他们的悲伤也会受到合理的限制。
+107. Es ist geboten, an dem festzuhalten, was durch die urkräftigen (schöpferischen) und natürlichen Gesetz - mässigkeiten gegeben ist, und all das so Gegebene soll allzeit im Sinne bleiben, dass keine Unbill aus falschen Gedanken, Gefühlen und Handlungen entstehe.​
+     必须坚持原始（创造性）和自然法则所赋予的东西，以这种方式给予的一切都应该永远留在头脑中，这样就不会因错误的思想、感觉和行为而受到伤害。
+108.  Ihr Euresgleichen (Menschen), kehrt nicht ab von der durch die Gesetze der Urquelle (Schöpfung) gegebenen Huld und vom Gedeihen in allen Dingen, denn sonst geht ihr im Leben einher als Verlierer.​
+     你们这些同类（人类）不会背离原始源头（创造）的法则所赐予的恩典，不要背离万物的繁荣，否则你们将作为失败者在生活中继续前进。
+109.  Der Euresgleichen (Mensch) sei nicht wie Affen oder durch Untaten Verachtete, denn er allein trägt für die eigenen Taten, Handlungen, Gedanken und Gefühle die Verantwortung, wie diese den Affen und den durch Gesetzesbrüchigkeit zu Verachteten gewordenen abgeht; das ist zur Kenntnis zu nehmen und täglich zu beachten.
+     你们同类（人）不像猿猴或被恶行所鄙视，因为只有他自己对自己的行为、行为、思想和感情负有责任，因为猿和那些因违法而受到鄙视的人所缺乏的;必须每天注意和观察这一点。
+110.  Es ist immer zu bedenken, dass auch die durch Untaten Verachteten Euresgleichen (Menschen) sind, denen ihr Recht zugesprochen werden soll und die als solche nicht zu verurteilen und nicht zu miss handeln sind, denn allein ihre Untaten sollen gerichtet (gerichtlich beurteilt resp. verurteilt) werden, um vom Fehlbaren angemessene Sühne zu fordern.​
+     必须始终牢记，即使是那些被不当行为鄙视的人也是你们的同类（人类），他们的权利应该被赋予，因此他们不应该受到谴责，也不会被错误地行为，因为只有他们的错误行为才能受到审判（司法审判或谴责），以便要求犯错的人适当赎罪。
+111.  Die Billigkeitslosen (Gerechtigkeitslosen/Verantwortungslosen/Ungerechten), Fehlbaren und durch Untaten Verachteten sowie deren falsches Handeln und ihre falschen Gedanken und Gefühle sollen jenen als Beispiel dienen, welche zu deren Zeit leben oder nach ihnen kommen; und es soll eine Lehre sein, um nicht in Furcht vor dem Unrecht, sondern um in Freude mit dem Billigkeitsvollen (Gerechten/Verantwortungsvollen) zu leben.
+     不公正（不公正/不负责任/不公正）、容易犯错和被不法行为鄙视的人，以及他们的错误行为和错误的思想和感情，应该成为那些生活在他们时代或后来者的榜样;这应该是一个教训，不要生活在对不公正的恐惧中，而是生活在对正义（公正/负责任的）的喜悦中。
+112.  Die Urquelle (Schöpfung) und ihre Gesetze und Gebote befehlen nicht, wie das von Euresgleichen (Menschen) erschaffenen Gottheiten gegeben ist und die Spott mit der Wahrheit treiben und jene irreführen wollen, die sich bemühen, aus ihrem Unwissen zu entfliehen und Zuflucht zur Wahrheit suchen.
+     原始源头（创造）及其律法和诫命不像你们同类（人）创造的神灵所赋予的那样命令，他们想要嘲弄真理并误导那些努力摆脱无知并在真理中寻求庇护的人。
+113.  Nicht die Verstorbenen sind zu beweinen, sondern die lebenden Toten, die in Unwissen, Unweis heit, Lieblosig - keit, Unfreiheit, Unfrieden und in Ungleichmass (Disharmonie) ihr Dasein führen und mit ihrem Leben hadern.
+     要哀悼的不是死者，而是活死人，他们在无知、不智慧、无爱、缺乏自由、不和谐、不平衡（不和谐）中过着自己的生活，并与生活争吵。
+114.  Bittet stets eure Nächsten, dass sie deutlich machen, was sie wollen, damit Verstehen und nicht Missverstehen und daraus nicht Hader, Streit und nicht Hass und nicht Unfrieden entstehen; so ist geboten das Verhalten in Richtigkeit.
+     总是要求你的邻居说清楚他们想要什么，这样才能理解而不是误解，并且可能不会有冲突、冲突、仇恨或不和;因此，必须正确行事。
+115.  Bitte den Nächsten um die Wahrheit und um Deutlichkeit in allen Dingen, wie auch jeder selbst der Wahrheit und Deutlichkeit zugetan sein soll, denn nur dadurch kann in diesen Dingen ein Wohlgeleitetsein Wirklichkeit werden.
+     向你的邻舍祈求真理和所有事情的清晰性，正如每个人都应该致力于真理和清晰一样，因为只有这样，一个被引导良好的存在才能在这些事情上成为现实。
+116.  Niemals soll ein Euresgleichen (Mensch) unter ein Joch gebeugt, dem Nächsten oder der Obrigkeit ein Sklave sein, sondern ohne Tadel und Zwang in Freiheit seine Pflicht verrichten, auch wenn die Mitmenschen oder die Obrigkeit es ungern gutheissen.
+     你们这种人永远不应该屈服于枷锁下，成为邻居或当局的奴隶，而是要自由地履行职责，不受责备或胁迫，即使他的同胞或当局不愿意批准。
+117.  Verhehlt wird das Licht der Wahrheit durch jene, die ihre Nächsten erschlagen und darüber noch streiten, um ihren eigenen Gewinn daraus zu ziehen.
+     真理之光被那些为了获得自己的利益而杀死邻居并为此争论的人所掩盖。
+118.  Schlagt nicht die Fehlbaren, die Verbrecher, die Diebe, Lügner, Betrüger und Ehebrecher, und tötet (mordet) nicht die Totschläger (Mörder) zur Busse für das Verbrechen an den Getöteten (Ermordeten), sondern übt Billigkeit (Gerechtigkeit) und fordert Sühne in Anwendung der urkräftigen (schöpferischen) Gesetze und Ge - bote, die nicht auf Rache, Hass und Vergeltung ausgerichtet sind, sondern auf Nachsicht, Vergebung, Ver - söhnung und Barmherzigkeit (Menschlichkeit), so jede Ahndung nur in wahrer Menschlichkeit gegeben sein soll, ohne Harmung von Leib und Leben, jedoch so, dass die Fehlbaren die Zeichen (Warnungen) des Bussetuns begreifen und die Tat bereuen mögen.​
+     不要打击犯错的人，罪犯，小偷，骗子，欺骗者和通奸者，不要杀死凶手作为对被谋杀者的罪行的赎罪，而是在应用原始法律和诫命的情况下实践正义并要求赎罪，这些法律和诫命的目的不是报复，仇恨和报复，而是忍耐， 宽恕、和解和怜悯（人性），这样每一种惩罚都只能在真正的人性中给予，不会伤害生命和肢体，但要让易犯错的人可以理解忏悔和悔改行为的迹象（警告）。
+119.  Eure Liebe und Menschlichkeit sind verhärtet wie Steine und noch härter, doch das Harte muss erweicht werden, dass Güte, Liebe und Menschlichkeit wieder hervorbrechen können, damit daraus Tugenden, Ehr - furcht vor dem Leben und Billigkeit (Gerechtigkeit) fliessen und alle Angst, Demut und Furcht aus den Gedanken und Gefühlen entfliehen; also gilt es, nicht achtlos zu sein in allem eigenen Tun.​
+     你们的爱和人性像石头一样坚硬，甚至更坚硬，但坚硬必须软化，这样善良、爱和人性才能再次爆发，这样美德、对生命的恐惧和正义就可以从它们身上流出，所有的恐惧、谦卑和恐惧都可以从思想和感受中逃脱;因此，重要的是不要在我们所做的每一件事上都粗心大意。
+120.  Wird erwartet, dass das Wort der Wahrheit der Lehre des Geistes und die Wahrheit der gestaltungsgegebenen (schöpfungsgegebenen) Gesetze und Gebote angenommen wird, dann ist das nur eine Erwartung, denn die Wahrheit wird nicht gerne aufgenommen, sondern verdreht, weil sie nicht begriffen wird oder unbequem ist, wofür die Folgen jedoch nicht ausbleiben.
+     如果期望圣灵教义的真理话语和形成（创造所赐）律法和诫命的真理将被接受，那么这只是一种期望，因为真理不是被欣然吸收的，而是因为它不被理解或不舒服而扭曲的，为此后果并非不存在。
+121.  ​Wird den Wissenden um die wahrliche Wahrheit begegnet, dann sprechen die Unwissenden und Billigkeits - losen (Ungerechten/Verantwortungslosen/Gerechtigkeitslosen), dass die Wissenden nur Dinge enthüllen und mitteilen und darüber streiten wollen, was sie selbst nicht begreifen könnten und das sowieso der Wahrheit und Wirklichkeit fern sei.​
+     如果认识者对真正的真理感到满足，那么无知和不公正（不公正/不负责任/不公正）的人说，知道者只想揭示和交流事物，争论他们自己无法理解的事情，无论如何，这与真理和现实相去甚远。
+122.  Die Unwissenden und Billigkeitslosen (Ungerechten/Verantwortungslosen/Gerechtigkeitslosen) wissen nicht, dass sie das, was sie verbergen, durch dumme Reden den Wissenden kundtun.
+     无知和不公平（不公正/不负责任/不公正）不知道他们正在向那些通过愚蠢言论知道的人公开他们所隐瞒的东西。
+123.  Etwelche Euresgleichen (Menschen) in grosser Zahl sind ungelehrt und kennen nicht die Worte der Lehre des Geistes, der Lehre des Lebens und der Lehre der Wahrheit, sondern nur ihre eigenen Bedürfnisse, Begierden (Laster/Lüsternheiten/Süchte/Triebe) und Wünsche, und sie vermuten bloss und finden nicht den Kern der Dinge, der Wirklichkeit und der Wahrhaftigkeit.​
+     你们的一些人（人）大量没有学问，不知道圣灵教义、生命教义和真理教义的话语，只知道他们自己的需要、欲望（恶习/欲望/成瘾/驱动）和欲望，他们只是怀疑，没有找到事物的核心，现实和真实。
+124.  Wehe denen, welche der Künder, der Propheten Lehre stehlen und daraus eigene Bücher schreiben und lügen, dass es ihre eigenen Lehren seien und dafür nur einen armseligen Preis nehmen möchten; also wehe ihnen um dessentwillen, was sie stehlen und durch Lügen schreiben, und es wird ihnen wehe werden durch den Preis, den sie ertrügen, denn [unrecht Gut(待确认)] gedeihet nicht auf lange Zeit, weil Lügen unaufhaltsam ans Licht der Wahrheit drängen.​
+     那些偷先知的教义，从他们那里写自己的书，并谎称他们是他们自己的教义，只想为此付出微不足道的代价的人有祸了;所以为了他们偷窃和用谎言写的东西而有祸了，他们所承受的代价对他们来说是有祸的，因为[不公正 善(待确认)]不会长期繁荣，因为谎言不可避免地被推入真理之光。
+125.  Die Diebe und Lügner der Bücher und Schriften der Künder, der Propheten, glauben irrig, dass sie das Feuer der Sühne und des Wehes nicht berühren werde, es sei denn für nur eine geringe Zahl von Tagen; doch sie empfangen für ihr schändliches Tun keine Erlaubnis und kein Versprechen, weshalb sie für ihr Handeln früher oder später Rechenschaft ablegen und ihre Tat sühnen müssen; und wahrlich wissen sie nicht, welchen Frevel sie tun.​
+     播音员的书籍和著作的盗贼和骗子，先知，错误地认为赎罪和灾难之火不会触及他们，除了少数几天;但他们的可耻行为没有得到任何许可或承诺，这就是为什么他们迟早必须交代他们的行为并为他们的行为赎罪;他们确实不知道自己在做什么罪孽。
+126.  Wahrlich, wer da übel tut und sich in seinen Untaten verstrickt, wird nicht des Lebens froh und macht sich schuldig all dessen, was im Unrecht getan wird; doch es gilt nicht, darin zu verweilen, sondern sich daraus zu befreien.​
+     的确，作恶并纠缠于他的恶行的人不会在生活中欢喜，并且会为一切不义所做的事感到内疚;但这不是一个沉溺其中的问题，而是将自己从中解脱出来的问题。
+127.  Die Wissenden und jene, welche gute Werke tun und gemäss den urkräftigen (schöpferischen) Gesetzen und Geboten leben, sie sind die in Billigkeit Lebenden (in Gerechtigkeit/Verantwortung Lebenden), und darin sollen sie weilen.
+     那些知道和那些行善并按照原始（创造）律法和诫命生活的人，他们是那些生活在公平中（生活在公义/责任中）的人，他们应该住在其中。
+128.  Zwischen euch und der Urhebung (Schöpfung) besteht ein ungeschriebener Bund, und er soll in Ehre und Würde eingehalten werden, so alles Leben, das Aussehen (Natur), die Welt und das Universum ehrfürchtig geachtet und geschützt werde.
+     你和起源（创造）之间有一个不成文的盟约，它要保持荣誉和尊严，以便所有生命、外表（自然）、世界和宇宙都得到虔诚的尊重和保护。
+129.  Es soll kein Gott und kein Götze angebetet werden, denn allein die unermessliche Urhebung (Schöpfung) ist das unmessbare Geheimnis, woraus alles Sein entstand.​
+     没有神或偶像是值得崇拜的，因为只有不可估量的提升（创造）才是不可估量的奥秘，万物都是从中产生的。
+130.  Ihr sollt Güte erzeigen euren Eltern, Geschwistern, Kindern, Verwandten, den Armen und Waisen und allen Mitmenschen; und ihr sollt gütig reden zu den Euresgleichen (Menschen) und die Lehre der Wahrheit verbreiten, Almosen (Gaben) geben und euch von all diesen Pflichten und vom Tragen eurer Verantwortung für alles und jedes nicht mit Widerwillen abwenden; die es aber trotzdem tun, laden Schande und Schuld auf ihr Haupt.​
+     你应该善待你的父母、兄弟姐妹、孩子、亲戚、穷人和孤儿，以及你所有的同胞;你们要善待你们的同类（人），传播真理的教义，施舍（礼物），不要不情愿地放弃所有这些职责，不承担任何事的责任;但那些无论如何这样做的人都会把羞耻和内疚压在他们的头上。
+131.  Euresgleichen (Menschen) der Erde, ihr seid Leute, die ihr eure eigenen Brüder und Schwestern erschlagt und Teile der Eurigen aus ihren Häusern treibt, wobei der eine den andern in seinem Tun schändlich durch Missetat und Schande unterstützt gegen die Benachteiligten.
+     在你们地球上的同类（子民）中，你们是杀害自己的兄弟姐妹并将自己的部分赶出家园的人，其中一方以对弱势群体的罪孽和羞耻可耻地支持另一方的行为。
+132.  Ihr sollt nicht das Blut der Eurigen vergiessen, nicht das eures Ehepartners, nicht das eurer Kinder, Geschwister, Verwandten, Freunde, Bekannten und der Mitmenschen, wie auch nicht das Blut jener, welche Diebe und Betrü ger, Mörder, Ehebrecher oder sonstige Gesetzesbrüchige oder Billigkeitslose (Gerechtigkeitslose/Verant - wortungs lose/Ungerechte) sind, und also sollt ihr sie nicht am Leibe schädigen und sie nicht aus ihren Häusern vertreiben.
+     你不可流你自己的血，不是你的配偶的血，不是你的孩子、兄弟姐妹、亲戚、朋友、熟人和同胞的血，也不可流那些盗贼和欺骗者、杀人犯、通奸者或其他违法者或不公正的人的血，因此你不得伤害他们的身体或将他们赶出家园。
+133.  Ihr lobt und befürwortet das verbrecherische Handeln der Gesetzesbrecher, die als Richter den Tod als Sühne fordern, und jene, welche Folter und Töten (Mord) an verurteilten Übeltätern ausüben, denn ihr bedenkt nicht, dass ihr wider die urkräftigen (schöpferischen) Gesetze ungesetzlich seid.​
+     你赞扬和支持违法者的犯罪行为，他们作为法官要求死刑作为赎罪，以及那些折磨和杀害（谋杀）被定罪的恶人的人，因为你不认为你违反原始（创造性）法律是非法的。
+134.  
+
 
 
 
