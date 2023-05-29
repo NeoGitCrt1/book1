@@ -1,4 +1,4 @@
-{% include "../HEADER.md" %}
+{% include "/HEADER.md" %}
 
 # 第二章
 1. 以真理、正义和智慧的名义，这是一个揭示许多原始（创造性）律法和诫命的教义;毫无疑问;教义是领导生活的指导方针（方向/指导原则）。
@@ -205,7 +205,11 @@
      你不可流你自己的血，不是你的配偶的血，不是你的孩子、兄弟姐妹、亲戚、朋友、熟人和同胞的血，也不可流那些盗贼和欺骗者、杀人犯、通奸者或其他违法者或不公正的人的血，因此你不得伤害他们的身体或将他们赶出家园。
 133.  Ihr lobt und befürwortet das verbrecherische Handeln der Gesetzesbrecher, die als Richter den Tod als Sühne fordern, und jene, welche Folter und Töten (Mord) an verurteilten Übeltätern ausüben, denn ihr bedenkt nicht, dass ihr wider die urkräftigen (schöpferischen) Gesetze ungesetzlich seid.​
      你赞扬和支持违法者的犯罪行为，他们作为法官要求死刑作为赎罪，以及那些折磨和杀害（谋杀）被定罪的恶人的人，因为你不认为你违反原始（创造性）法律是非法的。
-134.  
+134.  Etwelche wissen um die Wahrheit der Gesetze der Erschaffung (Schöpfungsgesetze) und der Notwendigkeit von deren Befolgung, doch sehr viele zweifeln daran und wenden sich einem erfundenen Gott oder Götzen zu, um ihm zu huldigen (verherrlichen), ihn anzubeten und um ihn um Gaben, Gnade und Barmherzigkeit zu bitten, die er jedoch in seiner Nichtexistenz nicht geben kann.​
+     有些人知道创造法则的真理和他们顺服的必要性，但很多人怀疑他们，转向一个虚构的神或偶像来崇拜（荣耀）他，崇拜他并要求他赐予礼物、恩典和怜悯，这是他不存在时无法给予的。
+135.  
+
+
 
 
 
