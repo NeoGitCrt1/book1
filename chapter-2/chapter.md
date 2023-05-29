@@ -61,3 +61,30 @@
 58. 真正的播音员，先知，以及真正的圣人，并不屑于给出一个寓言（比较）作为指导，无论它有多小，就像蚊子或斑点一样小，因为它向学习者和知识渊博的人见证了可以通过比喻（比较）教导和理解的真理。
 59. 播音员、先知或智者通过比喻（比较）所说的是用示范性的话来解释的，这样它就会被理解，并向学习者表明，没有无知，你们谁都不必犯错误，没有人应该被诱惑犯错，没有人应该被谴责为无知。
 60. 如果你违背了与真理的盟约，真理是建立的，然后被切断和摧毁，那么你将在地球上造成不和，并成为失败者。
+61. 你怎么能否认造物主（创造）及其真理和法则，因为只有通过造物主（创造）的存在和他们的法则，见证爱和真理，所有的生命才得以存在，它死亡并重生，以便通过学习完成，并有一天与它合而为一。
+62. 只有造物主（创造）创造了地球上和宇宙无限广阔的一切，她以她的逻辑和基于真理的法则创造并完成了所有的生命和存在;因此，正是她构成了生命的气息，作为你、所有生命形式以及存在的一切的一部分。
+63. Wahrlich, die Wissenden, die Weisen, die Schwarzen, die Gelben, die Roten, die Weissen, Blauen, Grünen und alle, wer unter diesen auch immer ist, die wahrhaft im Wissen um die Wahrheit der Gestaltung (Schöpfung) stehen, sie werden zu ihren Lebzeiten ihren guten Lohn empfangen; und es wird keine Furcht über sie kommen, noch werden sie trauern.
+确实，知者、智者、黑者、黄种人、红人、白人、蓝人、绿人，以及他们中间所有真正了解设计（创造）真理的人，他们将在有生之年得到他们的好回报;他们不会害怕，也不会哀悼。
+64. Haltet fest an dem, was euch die Propheten gaben und künftig geben werden; bewahret ihre Lehre der Wahrheit in eurem Sinn, und all das, was in der Lehre enthalten ist, auf dass euer Dasein gut sei und ihr vom Unwissen errettet seid.​
+紧紧抓住先知已经赐给你的，并将在未来赐给你的;把他们的真理教义记在心里，以及教义中所包含的一切，让你的存在可能是好的，你可以从无知中解脱出来。    
+65. Kehrt ihr euch aber ab von der Wahrheit, dann fallt ihr aus der Gnade und Huld des Lebens, so ihr gewiss Verlierer seid.
+    但是如果你背离真理，那么你就会脱离生命的恩典和怜悯，如果你肯定是失败者的话。
+66. Und die Erzeugende (Schöpfung) schuf alle Voraussetzungen der Wahrheit, damit diese sich durch ihre Gesetzmässigkeiten und durch das Leben und durch euch selbst bewahrheite, und zwar in der Weise, dass ihr Liebe, Frieden, Freiheit und Gleichstimmung (Harmonie) schafft und in der Innenwelt (Bewusstsein) wissend und weisheitlich anschwellt (evolutioniert) und dass ihr fern bleibt von aller Lieblosigkeit, Unfreiheit, allem Unebenmass (Disharmonie) und dadurch keinen Unfrieden stiftet und kein Blut Euresgleichen (Menschenblut) vergiesst, sondern das Leben in seiner Ganzheit wertschätzt.
+    造物主（创造）创造了真理的所有先决条件，以便通过它的法则、生命和你自己，以这样一种方式创造爱、和平、自由与和谐，并在内心世界（意识）知识和智慧（进化）中膨胀，并且你远离所有的无爱， 不自由，所有的不均匀（不和谐），因此不会引起不和谐，也不会流出你同类的血（人的血），而是欣赏整个生命。
+67. Und die Wahrheit lehrt die Billigkeit (Gerechtigkeit), damit sich ein jeder von euch vor den anderen hinstellen möge, wenn er im Recht ist.
+    真理教导公平，这样你们每个人都可以站在另一个人面前，如果他是对的。
+68. Euer Wissen muss kontrolliert sein, und ihr sollt das Wissen, das ihr durch die Gesetze des Aussehens (Natur) und die urkräftigen (schöpferischen) Gesetzmässigkeiten lernt, durch eigene Bemühungen des Ergründens zur Liebe, Freiheit sowie zu Frieden, Wohlklang (Harmonie) und Weisheit erweitern, damit ihr bedingterweise (relativ) allwissend und weise werdet.
+    你的知识必须被控制，你要通过你自己理解爱、自由、和平、欣快（和谐）和智慧的努力，扩展你通过表象法则（自然）和原始（创造性）法则学到的知识，这样你就可以有条件地成为（相对）无所不知和智慧。
+69. Ihr Euresgleichen (Menschen) der Erde, im Namen der Wahrheit sei euch gesagt, dass ihr die Geheimnisse der Gesetze des Aussehens (Natur) und der urkräftigen (schöpferischen) Gesetzmässigkeiten zu ergründen vermögt, denn wenn ihr euch darum bemüht, offenbaren sie euch, was ihr euch infolge eurer Überheblichkeit verhehlt.
+    你们这些地球上的同类（人民），以真理的名义对你们说，你们能够理解表象法则（自然）和原始（创造）法则的奥秘，因为如果你努力这样做，它们就会向你揭示你因傲慢而向自己隐瞒的东西。
+70. Ihr Euresgleichen (Menschen) der Erde, gedenkt der Zeit, da ihr noch ohne Glauben der wahrlichen Wahrheit zugetan und nicht der Wahrheit fremd wart; setzt euch daher in jenen Zustand zurück, als ihr noch nicht durch einen irren Glauben euch durch die Wahrheit der Ausführung (Schöpfung) zugetan und keine Gottheit angebetet habt.
+    你们这些地球上的同类（人）记得你们仍然致力于真理而没有信仰，对真理并不陌生的时代;因此，当你们还没有通过执行（创造）的真理以疯狂的信仰拥抱自己，也没有崇拜神灵时，让自己回到那种状态。
+71. 
+
+
+
+
+
+
+
+
