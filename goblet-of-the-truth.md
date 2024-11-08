@@ -5746,7 +5746,7 @@ Mann daraus eine gute Lehre ziehe und sich wandle zum Besseren und Guten, damit 
 _Goblet of the Truth_ _35_
 
 you wish to eat, from the small rodent, from the rabbit, the goat, the sheep and the pig, cattle, the horse and
-the camel and everything that tastes good to you, but always in a tolerable and healthy quantity with out gorg ing or gluttony; the animals and other creatures, rodents, rabbits, goats and sheep, pigs and cattle, horses and
+the camel and everything that tastes good to you, but always in a tolerable and healthy quantity with out gorging or gluttony; the animals and other creatures, rodents, rabbits, goats and sheep, pigs and cattle, horses and
 camels and everything that is edible may appear unclean externally because they live in dirt, but on the inside
 they are clean and good, therefore they may serve as nourishment once the outside is cleaned of dirt; also the
 blood of the animals and other creatures may serve as nourishment in some cases, and the fermented juice
