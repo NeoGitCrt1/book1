@@ -1,0 +1,138 @@
+# Lehrschrift für die Lehre der Wahrheit, Lehre des Geistes, Lehre des Lebens
+
+## Wegleitung zur Geisteslehre ‹Lehre der Wahrheit, Lehre des Geistes, Lehre des Lebens› Leitfaden zum Sinn und Zweck des Lebens sowie zum Verstehen der schöpferisch-natürlichen Gesetze und Gebote.
+
+Diese Lehrschrift ist ein Leitfaden zum Verstehen der Geisteslehre sowie
+des Propheten- und Kündertums. Sie ist ein Leitfaden zum Verstehen
+des Zwecks und des Sinnes des Lebens, zum Verstehen der Schöpfung
+und der natürlichen Gesetze und Gebote. Also ist diese Lehrschrift ein
+Leitfaden zum Erlernen und Verstehen des Wissens und der Wahrheit,
+Weisheit und der Liebe, des Friedens, der Freiheit und der Harmonie,
+der Ehrwürdigkeit und der Würde allen Daseins und der Schöpfung.
+
+Die Geisteslehre, die die Lehre der schöpferisch-natürlichen Gesetze
+und Gebote verkörpert und als Lehre der Wahrheit, Lehre des Geistes,
+Lehre des Lebens seit Nokodemions Zeiten festgehalten und durch ‹Billy›
+Eduard Albert Meier (BEAM) in letzter Folge der siebenfachen Propheten- und Künderreihe erweitert wurde und durch ihn ihren prophetischkünderischen Abschluss fand, bleibt stetig und unveränderbar die
+gleiche. Nicht bedeutet das aber, dass damit die Lehre endgültig vollendet wäre, denn durch die bewusstseinsmässige Evolution des Menschen kommen immer wieder neue Erkenntnisse hinzu und erweitern
+den Komplex der Lehre. Also ist die Geisteslehre nicht der Weisheit
+letzter Schluss, sondern einzig die massgebende Grundlage zum Lernen
+und Verstehen der schöpferisch-natürlichen Gesetzmässigkeiten und
+deren Geboten. Diese sind für den Menschen zum Verstehen und zur
+Befolgung von äusserster Bedeutung und Wichtigkeit, um das Leben
+gemäss den schöpferisch-natürlichen Gesetzen und Geboten und damit zu seinem eigenen sowie zum Wohl der ganzen Menschheit, allen
+
+
+-----
+
+Lebensformen und dem Planeten zu führen, auf dass rundum wahre
+Liebe, Frieden, Freiheit und Harmonie herrsche.
+Die Lehre der Wahrheit, Lehre des Geistes, Lehre des Lebens gemäss
+den natürlich vorgegebenen Gesetzen und Geboten der Schöpfung
+bleibt stetig und unveränderbar die gleiche, und zwar über alle menschlichen Generationen und über alle Äonen hinweg. Es ändern sich aber
+die Zeiten, die Menschen und ihre Art des Verstehens, wie aber auch
+die Belehrungswege und Belehrungsverbreitungsmöglichkeiten. Dabei
+jedoch verändern die wahrheitsträchtigen Propheten und Künder die
+Wahrheit der Geisteslehre resp. der Lehre der Wahrheit, der Lehre des
+Geistes, der Lehre des Lebens niemals in ihrer Richtigkeit des Wissens
+und der Weisheit in ihrem Sinn und Wert, sondern sie erweitern sie nur
+in die erforderlichen neuen Verständigungsformen und kleiden sie in
+neue Sprachregeln. Wahrheitlich bedürfen nur Falschlehren und Irr lehren immer wieder Änderungen und Revisionen, wie dies bei den auf
+Falschheiten erdichteten irdischen Religionen und deren Sekten sowie
+bei den falschen Philosophien und Ideologien der Fall ist, weil diese in
+bezug auf die effective Wahrheit unzulänglich und unlogisch sind. Solche
+Änderungen und Revisionen bei falschen religiösen, sektiererischen,
+philosophischen und ideologischen Lehren sind darum erforderlich,
+weil das Fehlerhafte und Unlogische darin nur Menschenmachwerk ist,
+erfunden, erlogen und erdichtet als Irrlehren von Menschen im Unverstand und in Unvernunft, fern jeder schöpfungsgegebenen Wahrheit.
+Die dem Menschen durch die Schöpfungsgesetze gegebene Möglichkeit der Bewusstseinsevolution drängt jedoch nach stetig Neuem und
+Erweiterndem und damit auch unaufhaltsam immer mehr nach der
+effectiven Wahrheit und der Verstandes- und Vernunfterweiterung. Und
+genau das hat zur Folge, dass er unlogische Irrlehren immer häufiger
+erkennt und sich davon befreit, indem er sich von den falschen Lehren
+abwendet und intensiver nach der tatsächlichen Wahrheit zu suchen
+beginnt. Das bemerken natürlich auch jene Falschlehrenden, die Irrlehren verbreiten und von denen die Gläubigen abhängig werden, folglich
+sie durch stetige Änderungen und Revisionen ihre Irrlehren in ein neues
+Licht zu rücken versuchen, indem sie diese den neuen Verhältnissen
+des Verständnisses der Menschen angleichen. Das funktioniert jedoch
+nur so lange, bis von den Gläubigen wieder nach neuen Erklärungen
+gesucht wird, folglich die falschen Lehren abermals geändert werden
+müssen, jedoch stets verbunden mit Drohungen in bezug auf Strafe und
+
+
+-----
+
+Gericht durch göttliche Einwirkungen, wenn den Irrlehren nicht Folge
+geleistet wird. Und all das steht im Gegensatz zur Geisteslehre resp.
+zur Lehre der wahrlichen Wahrheit, die verankert ist in den schöpferisch-natürlichen Gesetzen und Geboten und für den Menschen in allen
+Dingen des Dasein erkennbar ist. Und alles, was aus diesen Gesetzen
+und Geboten der Schöpfung als Lehre und Wirklichkeit hervorgeht, ist
+in allen Teilen wahrheitlich, logisch und ohne Fehl, weshalb die darauf
+basierende Geisteslehre niemals einer Änderung wie auch nicht einer
+Revision bedarf und vom Menschen als wahrheitliche Logik erkannt
+werden kann. Aus diesem Grunde kann die Lehre der Wahrheit, die
+Lehre des Geistes, die Lehre des Lebens auch nie verändert, sondern
+in jeder neuen Zeit nur gemäss neuen Erkenntnissen in bezug auf die
+schöpferisch-natürlichen Gesetze und Gebote erweitert und in noch
+bessere Verstehensformen gekleidet werden, und zwar ohne auch nur
+ein Stäubchen eines Gewichts hinsichtlich einer Änderung oder Revision
+der Gesamtlehre vorzunehmen.
+Die Geisteslehre, die Lehre der Wahrheit, des Wissens, der Liebe, des
+Friedens, der Freiheit, der Harmonie und der Weisheit resp. die Lehre
+der Gesetze und Gebote der Schöpfung, die Lehre des Geistes, die
+Lehre des Lebens ist die einzige wahrheitliche, wichtigste und notwendigste, aber auch nützlichste und heilsamste Lehre für den Menschen
+und seine Lebensführung. Die Lehre ist jedoch nicht vollkommen, denn
+sie findet in der Entwicklung niemals ein Ende, sondern bringt immer
+wieder Neues und Wertvolles, das dem Menschen für seine Bewusstseinsevolution dienlich ist. Also kann die Lehre keine Vollkommenheit
+in Anspruch nehmen, weil sie sich selbst durch immer wieder neue Erkenntnisse des Menschen in bezug auf die schöpferisch-natürlichen
+Gesetze und Gebote erweitert, wodurch des Menschen Wissen und
+Weisheit immer grösser und umfangreicher wird.
+
+Das ist das Leben des Menschen: Er wird von Eltern gezeugt und von
+einer Mutter geboren, lebt eine Reihe von Jahren und Jahrzehnten mit
+seinem grobmateriellen Körper, um dann durch den Tod wieder aus
+seinem Leben zu scheiden. Und stetig fragt der Mensch, warum das alles
+so ist, wozu er lebt und welchen Sinn sein Leben hat. Auf diese Frage
+jedoch vermag allein die Geisteslehre eine erschöpfende Antwort zu
+geben – die Lehre der Wahrheit, die Lehre des Geistes, die Lehre des
+Lebens, die die Lehre der Schöpfung und die Lehre ihrer Gesetze und
+
+
+-----
+
+Gebote sowie die Lehre der Natur ist. Aus einer Idee der Schöpfung ist
+der Mensch in allen seinen Formen entstanden, und von der Schöpfung
+hat er sein Leben; und sie, die Schöpfung, ist es mit ihren Gesetzen und
+Geboten, die dem Menschen das Leben und diesem das Ziel gibt.
+Tiefe Ehrung und Ehrwürdigung gebührt der Schöpfung, die durch ein
+winziges Teilstück ihrer schöpferischen Energie sich in jeglicher Lebensform manifestiert, auch im Menschen. Spürst auch du, Mensch der Erde,
+ihre Anwesenheit, die in dir allgegenwärtig ist? Jede Lebensform ist
+eine Kreation der Schöpfung, und auch du, irdischer Menschling, bist
+eine Verkörperung ihrer Energie, Kraft, Macht und Liebe. Und die Kraft
+und Macht sowie die Liebe der Schöpfung Universalbewusstsein kann
+von dir allüberall gesehen werden, und du kannst mit ihr reden und zu
+ihr hingehen, nämlich zu allem, was du mit all deinen Sinnen erfassen
+kannst: Die Mitmenschen, die Tiere und alles Getier, die Wasser, die
+Bäume, Sträucher, die Blumen und all die Pflanzen aller Art. Wahrlich,
+allein darin offenbart dir die Schöpfung ihre Existenz und Liebe, und
+diese Liebe ist für dich unbegrenzt und ohne Ende wie auch der Schöpfung Segnungen resp. das Gedeihen für dich. Gerade jetzt und in jedem
+Augenblick ist die unend liche Liebe der Schöpfung in dir, bei dir und
+um dich. Und durch all ihre Schöpfungen, ihre Kreationen und Kreaturen
+hat die Schöpfung Universal bewusstsein myriaden Augen und myriaden
+Ohren, um dich zu sehen und zu hören. Und wisse, Erdling, die Schöpfung Universalbewusstsein ist allgegenwärtig und allgrosszeitlich; sie
+ist das Grösste, das Höchste, das Allumfassende und das Allbewusstsein. Stetig bist du in ihrem Schutz und von ihr umgeben, und stets ist
+sie dir hilfreich und begleitet dich überall, ob du nun ihre Gesetze und
+Gebote befolgst oder nicht. Als ihr Geschöpf hat sie Acht auf dich, und
+zwar auch dann, wenn du wider sie bist und ihre Gesetze und Gebote
+mit Füssen trittst, wofür du dir dann allerdings eigens böse Folgen auf
+dich legst und du dich selbst einem selbsterzeugten Leid zuführst, gemäss dem Gesetz von Ursache und Wirkung.
+Die Schöpfung Universalbewusstsein ist die Energie, Kraft und Macht,
+die, in ihre Liebe eingeordnet, auch unzählbare andere Welten und Lebensformen in ihrem Universum erschaffen hat. Und, Mensch der Erde,
+die Erfahrung der Schöpfung in bezug auf ihre Gesetze und Gebote ist
+in jedem Augenblick ihrer Gegenwärtigkeit auch für dich zugänglich
+und nutzbar. Und je mehr du dir diese schöpferische Erfahrung selbst
+zu eigen machst, desto segensreicher wird dein Leben sein. Was also
+
+
+-----
+

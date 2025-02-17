@@ -1,0 +1,992 @@
+# Gespräch zwischen Quetzal von der plejarischen Föderation und ‹Billy› Eduard Albert Meier, BEAM
+
+### Achthunderteinundsiebzigster Kontakt Montag, 4. Dezember 2023 11.21 h
+
+**Billy** Ach du bist es – – Hallo. – Das war aber nicht gerade schlau, denn ich war bei Eva in der Druckerei, wo sie am
+Zusammentragen ist. Wenn ich also nicht im Büro war, konntest du mich auch in der Stube nicht finden, wenn du dort
+hinübergegangen bist und von dort dann wieder hier ins Büro telephoniert und angerufen und gerade in dem Moment den
+Anruf beendet hast, als ich zum Telephon rannte und den Hörer abnehmen wollte. Da war aber nur noch die Nummer des
+Anrufapparates, woraufhin ich natürlich hinüber in die Stube gerannt bin, wo niemand war. Dann bin ich wieder in die
+Druckerei zurückgesaust und jetzt sofort auch ins Büro gekommen, als ich dich von der Druckereitüre her in Evas Büro
+gesehen habe, wie du gerade wieder in mein Büro gehen wolltest. Daher habe ich dich angerufen. So bist du also wieder
+hier, mein Freund, und sei auch willkommen, Quetzal.
+
+**Quetzal** Da bin ich wieder, ja, und ich habe dich gesucht, als du nicht in deinem Arbeitsraum warst. Darum suchte ich dich
+in der Wohnung drüben, wo ich dich jedoch ebenfalls nicht fand. Daher benutzte ich den Sprechapparat. Sei jedoch auch
+gegrüsst, Eduard, mein Freund. Aber ich will nur vorbeikommen, um dir zu sagen, dass Arlion zu dir kommen wird; wann
+weiss ich jedoch nicht. Aber es wird die nächsten Tage sein, ausserdem komme ich jetzt nur kurz; dann aber werde ich am
+Nachmittag wieder hierherkommen. Es ist übrigens kalt geworden hier, denn es ist jetzt Winterzeit.
+
+**Billy** Ja, das ist so; es ist die Jahreszeit dafür. Das ist so, und ich will dich gleich darauf vorbreiten, dass wir heute
+einiges Aussergewöhnliches haben, denn da sind diverse Briefe usw., wobei ich dir einiges zeigen soll, wie diesen Brief hier,
+wenn du ihn bitte lesen willst …
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Quetzal** … Das zeigt auf, wie wertvoll deine Arbeit ist und wie sich Wertvolles daraus ergibt und dir dafür Dank entgegengebracht wird. Aber, so denke ich, dass der Name hier und der Ort nicht genannt und weggelassen werden sollten. Es ist
+sicher nicht gut, diese stehen zu lassen, denn …
+
+**Billy** … du hast wohl recht. Aber der Dank gebührt nicht mir, sondern jenen Menschen – denn dieser hier ist ja nicht
+der einzige –, die das Richtige tun, nämlich lernen und zu sich selbst finden. Dabei bin ich ja nur ein Mittel zum Zweck, wie
+man so sagt, Es ist wohl gut, wenn Bernadette den Ort und den Namen abdeckt, weshalb ich ihr das sagen werde.
+
+**Quetzal** Dann gehe ich jetzt und komme am Nachmittag wieder. Bis später also. …
+
+**Billy** … gut, bis später.
+
+### Nachmittag, 16.17 h
+
+**Quetzal** Da bin ich, sei gegrüsst Eduard, mein Freund.
+
+**Billy** Sei abermals willkommen. Setz dich, lieber Freund. – Können wir erst das alles durchackern, was ich hier anliegen
+habe, ehe wir uns anderem zuwenden?
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+… Das zeigt auf, wie wertvoll deine Arbeit ist und wie sich Wertvolles daraus ergibt und dir dafür Dank entgegen-
+gebracht wird. Aber, so denke ich, dass der Name hier und der Ort nicht genannt und weggelassen werden sollten. Es ist
+sicher nicht gut, diese stehen zu lassen, denn …
+
+… du hast wohl recht. Aber der Dank gebührt nicht mir, sondern jenen Menschen – denn dieser hier ist ja nicht
+der einzige –, die das Richtige tun, nämlich lernen und zu sich selbst finden. Dabei bin ich ja nur ein Mittel zum Zweck, wie
+man so sagt, Es ist wohl gut, wenn Bernadette den Ort und den Namen abdeckt, weshalb ich ihr das sagen werde.
+
+Dann gehe ich jetzt und komme am Nachmittag wieder. Bis später also. …
+
+
+-----
+
+**Quetzal** Natürlich, lass dich nicht davon abhalten.
+
+**Billy** Gut, dann möchte ich mit dem hier beginnen, nämlich mit einer Leserfrage, von der ich wichtig finde, dass sie
+zur Sprache gebracht wird, indem ich sie dir zu lesen gebe. Bernadette hat sie beantwortet, und wenn ich sie dir vorlege,
+dann findet sie durch den Kontaktbericht den Weg in die Welt hinaus:
+
+**Leserfrage**
+Die Komponisten Mozart und Mendelssohn schrieben tiefgreifende, tiefsinnige musikalische Werke mit hohen Werten, die zur schöpferischen Umpolung der Bewusstseinskräfte wie zur Förderung deren Tiefe und Gesundheit dienen
+können, insofern sie meditativ genutzt werden. In meinen Augen verlieren sie jedoch, trotz der in allen Fällen vorhandenen Wertigkeit, gewaltig an Nutzungskraft und Potenzial durch religiös-sektiererische, oft lateinische oder deutsche, Texte, Formulierungen und Verse, die voll sind von Worten und Sentenzen wie Agnus Dei (Lamm Gottes), Domini (der Herr), Jesus Kristus, Jesus ist meine Zuversicht, der Gott ist im Himmel, Knien vor dem Herrn, Niederfallen
+vor Ihm und viele solche gottgläubigen Texte mehr. Wäre es im Sinne der Komponisten und des Ganzen, eine Initiative
+auf der Erde zu starten, die sich zum Ziel setzen würde, ganz neue, schöpferisch- und Geisteslehrebedingte Verse und
+Formulierungen zu kreieren und mit diesen die Werke neu aufleben zu lassen durch die Zusammenarbeit und die
+Neuaufführung mit bestimmten Musikorchestern? Dabei denke ich an kunstgerecht geschaffene, tiefsinnige Schöpfungsenergielehre bedingte und erhebend schöpferisch-natürlich klingende neue Verse und Texte für die sogenannte
+‹geistige› Musik der beiden Komponisten zum Zweck der Bewusstseinsevolution, wenn nicht der historische, religiöse
+Wert der Texte überwiegen soll wie vielleicht bei den Mendelssohn Oratorien Paulus oder Elias.
+
+**Antwort**
+Diese Idee ist sehr gut und überaus wertvoll. Allerdings ist sich die FIGU bewusst, dass solche neuen Texte von der
+Allgemeinheit der Musikliebhaber und Musikkenner mit Sicherheit nicht akzeptiert werden, einfach weil die religiös
+bedingten Texte zu weit verbreitet und zu tief im Erinnerungsgut der Menschen verankert und diese darüber hinaus
+ja auch noch gläubig sind.
+Trotzdem sollte ein solches Unterfangen an die Hand genommen werden, von jemandem, der sich dafür interessiert
+und auch dafür geeignet ist, für diese Musik völlig neue Texte zu verfassen. Sicher ist auch, dass die bisherigen Texte
+nicht einfach umgeschrieben und durch Begriffe aus der Schöpfungsenergielehre ersetzt werden können, weil ein
+solches Vorgehen als Plagiat gebrandmarkt würde, was den Wert der Bemühungen völlig zunichte machen und ausserdem nicht nur den Verfasser, sondern auch die FIGU in ein schiefes Licht bringen würde.
+Auch wenn solche Neuvertonungen wohl nicht den Durchbruch in der Allgemeinheit finden, so wären sie doch immerhin sinnvoll und nutzvoll für jene Menschen, welche der FIGU nahestehen oder sich für die Lehre interessieren.
+Bernadette
+
+**Quetzal** Die Frage ist gut beantwortet, und es ist wohl richtig, wenn du sie in unserem Gesprächsbericht erwähnst und
+die Antwort den Weg in die Welt hinausfindet, wie du sagst.
+
+**Billy** Dann kommt nach diesem folgendes:
+
+Weitergeleitete Nachricht, 18. November 2023, 18.02 hrs
+
+**Betreff:** Transfer for FIGU Mother Center in gratitude for JHWH Quetzal
+**Kopie (CC):** Nestor …
+
+Lieber Christian,
+Ich hoffe, dass Sie, Ihre Familie, Billy, die Kerngruppe und unsere Plejaren-Lehrer gesund, sicher und fröhlich sind.
+Seit mehreren Monaten habe ich …, … meine immense Dankbarkeit, meinen Respekt und meine aufrichtige Liebe für
+alles auszudrücken, was JHWH Quetzal zum Wohle von uns ‹Elfen› (und ‹Erdenwürmern›) in Übereinstimmung mit
+und in Erfüllung unserer Bestimmungen umgesetzt hat. … ist dieser E-Mail beigefügt.
+JHWH Quetzal, Billy, Sie selbst (und andere im Mutterzentrum) sind angesehene Vorbilder für diejenigen von uns, die
+anderswo auf diesem verrückten Planeten leben und arbeiten. Das bringt mir immensen Frieden und macht die Erfüllung meiner eigenen Bestimmung und Verantwortung freudiger und sicherer. Vor allem bleibt Quetzal (aus Gründen, die ich zu erkennen versuche) in meinen Gedanken, Gefühlen und Emotionen stets sehr gegenwärtig und bedeutend.
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Bleiben Sie in Sicherheit und geben Sie Billy bitte eine Kopie dieses kurzen Briefes, damit er ihn mit Quetzal teilen
+kann. Ich selbst bin dankbar für die Gelegenheit, FIGU zu dienen. Ich rufe immer hier und da Gedanken und Gefühle
+ab, und allein diese Fähigkeit ist ein gewaltiges Geschenk des Studiums und der Umsetzung von Nokodemions Lehren
+(aus ‹Die Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens›).
+Auf Wiedersehen, Herr Lehrer!
+Mit Respekt und untrennbarer Verbundenheit bleibe ich Ihr Schüler und entfernter, aber beständiger Freund.
+Mit freundlichen Grüssen,
+Nestor
+
+**Quetzal** Da bin ich wirklich erfreut, was du bitte dankend entrichten sollst, jedoch JHWH bin ich nicht, folglich mir auch
+die Ehre nicht gebührt, die mir diesbezüglich entgegengebracht wird. Und das bezüglich …, das entferne bitte aus dem
+Schreiben.
+
+**Billy** Dein Wunsch ist klar, und ich werde einfach Pünktchen machen. Und hier ist noch etwas, das ich momentan nicht
+einordnen kann:
+
+**Dr. Michel Nehls Buchautor. ‹Das indoktrinierte Gehirn›.**
+
+Was ich eigentlich damit soll und weshalb es mir gegeben wurde, das weiss ich nicht – oder nicht mehr? Aber ich denke,
+dass ich diesbezüglich einiges aus meiner Sicht zu sagen habe, und zwar nicht bezüglich des indoktrinierten Gehirns, sondern der indoktrinierten Gedanken. Da mir das ganze des Buches von diesem Dr. Nehls unbekannt ist, kann ich darauf nicht
+direkt eingehen, dass ich mir aber einiges vorstellen kann, worauf das Ganze abzielt. Daher möchte ich dir folgendes aus
+meiner Jugendsicht sagen, auch wenn es wohl nicht im direkten Zusammenhang steht:
+
+Sfath lehrt, dass effective Tatsache ist, dass die Gedanken und damit die ganze Gedankenwelt des Menschen und das Hegen
+und Pflegen derselben nicht nur die Art und Weise seines Lebensverhaltens bestimmt, ob er gut oder böse, eben ob er ein
+negativer oder positiver Mensch ist. Das Hegen und Pflegen der Gedanken bestimmt noch sehr viel mehr, nämlich ob das
+Denken lebenslang behalten werden kann oder nicht. Denn die Denkweisen resp. die Art und Weise der Gedanken bestimmten nicht nur über das Positivsein oder Negativsein des Menschen sowie grundsätzlich auch über alle seine Entscheidungen, Handlungen, Taten und Verhaltensweisen, sondern auch darüber, ob er Zeit seines Lebens dem Denken resp. seinen bewussten und kontrollierenden Gedanken in jeder Form bewusst treu und fähig bleibt. Geschieht das bewusste
+Gedankenpflegen jedoch nicht, was unweigerlich und bestimmend durch einen Glauben geschieht – wobei auch Atheismus
+jeder Form einem Glauben entspricht, dies entgegen der Wahrheitswissenheit –, wenn der Mensch also gläubig ist, und
+zwar hauptsächlich und überwiegend in religiöser Weise, wie jedoch auch weltlich, was jedoch weniger ins Gewicht fällt,
+dann schwindet die Gedankenfähigkeit resp. die Fähigkeit des Denkens dahin. Dies darum, weil jeder Glaube, und zwar,
+wie bereits erklärt, überwiegend der religiöse Glaube – eben hauptsächlich, wie dies gang und gäbe ist beim Gros der Erdenmenschheit –, der den Menschen beherrscht und das offene, gute, richtige Denken und damit die ureigenen klaren
+Gedanken durch Religionen und Sekten zunichte macht. Dies aber führt noch sehr viel weiter, denn jeder Glaube, und zwar
+egal ob religiös oder weltlich – wobei weltlicher Glaube nicht in dem starken Masse wie religiöser ins Gewicht fällt –, führt
+zu 2 sehr gravierenden negativen Resultaten. 1. zur Verblödung des Menschen, wobei infolge des Glaubenszustandes diese
+absolut nicht realisiert wird, eben, dass dieser üble Zustand vorhanden ist und wirkt, folgedem die reale Wirklichkeit weder
+erkannt noch verstanden werden kann, weil der Glaube dies nicht zulässt. Jeglicher Glaubenszustand unterdrückt und verhindert alle Logik, den Verstand und die Vernunft, wodurch nur schon ein sehr schwacher Anflug selbständiger und kontrollierter Gedanken verhindert wird, dass ein solcher überhaupt in die Scheingedankenwelt des Gläubigen einzudringen
+vermag. Doch nicht nur der Glaube lässt das nicht zu, sondern auch die Verblödung durch den Glauben, die zeitlebens nur
+das glaubensmässige Denken resp. Scheindenken zulässt.
+Das Erklärte ist noch die gelinde Seite des Glaubens, denn die stetig steigende lebenslange Verblödung – die auf dem glaubensmässigen Scheindenken beruht, das ja keinem realen Wirklichkeitsdenken entspricht – führt letztendlich dazu, dass
+sich zusammen mit der ständig zunehmenden Verblödung zwangsläufig ein Zustand ergibt, der die Schöpfungslebensenergie in der Weise blockiert, dass sie nicht mehr genutzt werden kann. Das bedeutet, dass diese Energie und Kraft für Logik,
+Verstand und Vernunft nicht mehr angewandt werden kann, folglich also auch nicht mehr für einen realen Denkvorgang.
+Die lebenslange Verblödung infolge eines starken Glaubens artet letztendlich in ‹Altersblödheit› aus, wobei die Gehirnrinde
+eine unheilbare Störung durch das Absterben von Nervenzellen erleidet. Die Persönlichkeit und deren Verhalten verändert
+sich, wobei sowohl Aggression wie auch Depressionen und Unruhe auftreten, wie auch die Sprachfähigkeit schwindet, wie
+aber auch das Urteilsvermögen. Dadurch wird das Gehirn des Menschen schnell unfähig, die Schöpfungslebensenergie in
+Form der Bewusstseinsenergie noch aufnehmen und verwerten zu können, folglich der Mensch zunehmend orientierungslos wie auch vergesslich und verwirrt und letztendlich wirklich unfähig wird, noch einen Gedanken zu fassen. Dieserweise
+stirbt dann der Mensch, völlig verblödet und absolut unfähig, von Leben und Dasein noch etwas Wahrheitliches zu realisie
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+ren, wobei dies sehr häufig vorkommt und sich zukünftig immer mehr ergeben und gar Tode von gewissen Krankheiten
+übertreffen wird.
+Je tiefer zukünftig ein Mensch im Glauben verankert sein wird – der bei vielen zur Massenhysterie und zum Fanatismus
+führen wird, und wodurch sich Sektenprediger durch die dummen Gläubigen immens bereichern werden –, desto schlimmer tritt die Lebensverblödung und dann auch die ‹Altersblödheit› in Erscheinung. Diese ‹Altersverblödung› kann jedoch
+u.U. schon in jungen Jahren den Menschen befallen und in Erscheinung treten, einerseits durch eine fanatische Gläubigkeit,
+wie aber auch infolge einer ‹natürlichen› krankhaften Veränderung der Gehirnrinde.
+Je selbständiger, offener, realer, richtiger, freier, klarer, intensiver und kontrollierter der Mensch jedoch denkt, desto mehr
+bedarf er der Gedankenenergie und deren Kraft, denn wahrlich ist das selbständige Gedankenhegen und Gedankenpflegen
+sehr anstrengend. Doch je intensiver der Mensch seine freien und selbständigen Gedanken gebraucht und kontrolliert und
+sich von jedem Glauben zurückhält, desto weniger besteht die Gefahr einer Verblödung und späteren Altersverblödung.
+
+**Quetzal** Das sind gute Worte.
+
+**Billy** Die habe ich schon als Junge in den 1940er Jahren geschrieben. Aber sieh noch hier, da ist noch das, was ich dir
+zeigen soll, wobei ich dann aber die Namen durch Pünktchen ersetzen werde, weil solche ja nur dann von mir genannt
+werden, wenn ich dazu die Erlaubnis habe oder nur der Vorname oder unverfänglich die Initialen genannt werden können.
+Es soll ja nicht so sein, dass die betreffenden Personen durch welche belästigt werden können bezüglich der Briefe und
+sonstiger Zuschriften sowie ihren Ansichten usw.:
+
+Am 22.11.2023 um 12:35 schrieb T… <…
+
+Liebe Bernadette,
+
+Könntest Du mir sagen, wie viele Bücher Billy gesamthaft bis dato geschrieben hat?
+Lieber Gruss & Salome,
+T…
+
+Bernadette Brand <… > schrieb am Mittwoch, 22. November 2023 um 19:42:
+
+Salome T…
+Vielen Dank für Dein Mail. Ja, klar, kann ich Dir das sagen (ich führe Buch darüber). Er hat bisher 46 Bücher geschrieben – am 47. Buch arbeitet er gerade –, und zwar ohne die Kontaktberichte (das sind nochmals 21 Blocks) und ohne
+die Geisteslehr-Briefe (Schöpfungsenergielehre-Briefe) und hinzu kommen dann noch eine ganze Reihe von Kleinschriften.
+Lieber Gruss und Salome
+Bernadette
+
+##### Von: T… <… >
+**Betreff: Aw: Frage**
+**Datum: 23. November 2023 um 11:03:27 MEZ**
+**An: Bernadette Brand <…>**
+
+Liebe Bernadette
+Vielen Dank für Deine Auskunft. Der Grund, warum ich frage, hat damit zu tun, dass ich am letzten Samstag, dem 18.
+November, um 20:30 Uhr für M… ein Interview gegeben habe, worin ich meine persönliche Lebenserfahrung offenbare, wie ich Billy und seine Schöpfungsenergielehre gefunden habe und wie ich mich dadurch neutral-positiv habe
+weiterentwickeln können.
+
+M … hat das Interview mit mir gestern Abend auf seinem YouTube-Kanal veröffentlicht. Hier findest du den Link zum
+Interview: …
+
+Da ich ebenso einen eigenen YouTube-Kanal habe, worin ich hauptsächlich in englischer Sprache meine eigene Lebenserfahrung mit den Menschen teile, habe ich M… nach seiner Erlaubnis gefragt und erhalten, das Interview von
+seinem YouTube-Kanal herunterzuladen und es auf meinem YouTube-Kanal zu veröffentlichen, mit dem Optimismus,
+dass noch mehr Menschen Billy und die Schöpfungsenergielehre entdecken.
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Mein YouTube-Kanal: …
+Ich habe eine deutsche Kurzbeschreibung über Billy geschrieben und ein persönliches Zitat dazu, welches ich auf
+Englisch übersetzen werde und dann in die Beschreibung des Video-Interviews auf YouTube auf meinem Kanal einfügen werde, weshalb ich dazu eben wissen wollte, wie viele Bücher Billy geschrieben hat.
+
+Dies ist die Kurzbeschreibung über Billy und mein Zitat über ihn:
+
+Über T…
+Seit September 2012 vertieft sich T… in das immense Wissen der Schöpfungsenergielehre respektive die ‹Lehre der
+Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens› des ‹Billy› Eduard Albert Meier (BEAM), einem Schweizer
+Schriftsteller und Dichter, der über 50+ Bücher sowie hunderte Artikel und Kleinschriften usw. geschrieben und veröffentlicht hat; ein hochweiser Mann aus den wunderschönen Schweizer Bergen im Zürcher Oberland (schweizerisch
+Züri-Oberland), ein ehrfurchtgebietender und ehrwürdiger Lehrer und Künder der Neuzeit, ein wahrhafter Weisheitskönig, der Urheber der lebenspraktischen Schöpfungsenergielehre und Meditationslehre, der seither für T… eine
+unerschöpfliche Inspirationsquelle für ein lebenslanges Lernen und bewusstseinsmässiges Streben nach Evolution
+ist.
+
+Zitat über den Lehrer des T… …:
+«Mein lieber Freund und Lehrer, ‹Billy› Eduard Albert Meier, der in Bescheidenheit und Rechtschaffenheit lebt; ein
+wahrlich wissender und hochweiser Mensch, der im Stillen und im Verborgenen arbeitet und wirkt, der aber mit seiner unscheinbaren, ehrwürdigen, ehrfürchtigen, edlen und zutiefst menschlichen Art und Persönlichkeit, durch seinen redlichen Charakter, sein ehrliches und selbstloses Denken, Fühlen und Handeln, viel für die Wahrheit, die Liebe,
+den Frieden, die Freiheit und die Harmonie tut; der profundeste Mensch auf Erden: Der Weisheitskönig.»
+— T…
+
+Ich habe die Anzahl Bücher von Billy mit 50+ in meine Kurzbeschreibung eingefügt und weiter noch angegeben, dass
+er Hunderte von Artikeln und Kleinschriften geschrieben hat. Wenn aus deiner Sicht mein Geschriebenes der Richtigkeit entspricht, dann werde ich es ins Englische übersetzen und es so in meinem Video-Interview mit M. … unten in
+der Beschreibung einfügen.
+Lieber Gruss und Salome,
+T…
+
+**Quetzal** Das ist Korrespondenz und sagt aus, was sich rundum in dieser Beziehung an täglichen Pflichten in dieser Form
+im Center ergibt. Was ich aber nicht gut finde dabei, ist das, dass Namen übernommen und zudem ihre Mail-Anschriften
+genannt werden. Die solltest du tatsächlich unbedingt weglassen. Ausserdem denke ich, dass einiges oder gar vieles nicht
+derartig ist, dass es mit Namen zu erwähnen ist.
+
+**Billy** Natürlich, da hast du recht, das werde ich auch tun und alles notwendigerweise durch Pünktchen ersetzen. Du
+hast ja recht, es würde wohl nur Ärger geben, wenn die Namen und Mailadressen bekannt würden. Alles habe ich dir ja nur
+nahegebracht, damit du einmal siehst, was in unserem Alltag noch alles läuft, und zu sagen ist noch … … …
+
+**Quetzal** Da habt ihr ja vieles zu tun, besonders Bernadette, damit hast du bestimmt recht. Alles würde in Bösartigkeit und
+zur Verleumdung benutzt.
+
+**Billy** Das wäre bestimmt so, doch nun fällt dieser Brief hier an, den ich dir unbedingt noch zeigen will. Da kenne ich
+die betreffende Person leider nicht persönlich, doch der Name und die angegebene Anschrift sowie auch die Telephonnummer sind richtig. Auch hat die betreffende Person gesagt, dass sie darauf vertraue, dass ich ihren Namen und die Anschrift
+nicht nenne, wie ich auch den Brief vernichten werde; daran halte ich mich natürlich. Folglich ich ihn hier dann auch als
+Abschrift und nicht als Original wiedergebe, doch lasse ich dabei einiges aus, was auf die Person des Schreibenden hinweisen könnte. Auch das, was an mich selbst geschrieben wurde, lasse ich weg – denn es ist wirklich persönlich und nicht
+für die Leser bestimmt –, folglich ich nur das abschreiben werde, was eben für die Leserschaft bestimmt ist. Du kannst hier
+aber den ganzen Brief lesen, denn ich finde, dass auch du wissen sollst, dass es sogar hier rundum Menschen gibt, die nicht
+alles einfach in den Wind schlagen und lächerlich machen oder gar der Lüge und des Schwindels bezichtigen. Aber lies hier
+…
+
+**Quetzal** … der ist ja handgeschrieben!
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Billy** Ja, es gibt eben noch Menschen, die das tun, und da finde ich, dass dies irgendwie würdigend mir gegenüber ist.
+Mit einem Computer oder mit einer Maschine geschrieben, hätte ich wahrscheinlich nicht gedacht, dass der Brief ernst
+gemeint ist und die Unterschrift und die Adresse zudem falsch sei. Und weil ich ob der Schrift dachte, dass er echt und ernst
+gemeint sei, habe ich durch ein fremdes Handy nachgefragt. Aber lies hier.
+
+**Quetzal** … Das ist wirklich an dich persönlich gerichtet, jedoch dies hier … Das aber, was hier geschrieben ist, das solltest
+du nennen. …
+
+**Billy ist sicher weder parteiisch noch bevorzugt er einen Staat, einen Menschen, noch eine Partei oder ist er**
+**bestimmt nicht ein Antisemit, auch wenn ihm offenbar diese niederträchtigen und unberechtigten Vorwürfe**
+**gemacht werden und er sich nicht dagegen wehrt und er alle Angriffe gegen ihn missachtet. Er sagt scho-**
+**nungslos die Wahrheit, wie er auch gegen alle die Lügen und Verleumdungen vieler Medien und Politiker**
+**sowie der Behörden, wie auch die Organisationen aller Art nicht zurückhaltet, die bezahlten Radau machen**
+**und Schaden anrichten. Dies sind auch die Umweltschützer und derartige Demonstranten, die er anprangert**
+**und die Wahrheit ihrer Lügen und alles ihres Unrechts und ihre verlogenen Ränkespiele und Zerstörungen**
+**aufdeckt und sagt, was die tatsächliche Wahrheit ist. Dafür wird die Polizei auf ihn gehetzt, wobei auch ver-**
+**schiedene Behörden mitspielen, was ich sehr gut weiss, weil ich eng in diese involviert bin und daher weiss,**
+**wovon ich schreibe. Deshalb bin ich auch darüber orientiert, was gegenwärtig hintergründig beabsichtigt ist**
+**und ansteht, um Billy zu piesacken und derart zum Schweigen zu bringen, dass er mit allem aufhören soll,**
+**ungeschminkt öffentlich durch Organe des Vereins Figu die Wahrheit zu verbreiten.**
+**Er ist ein mitfühlender, wahrlicher Mensch, der sich immer wieder für verbreitete Lügen und sonstige Un-**
+**wahrheiten der Medien und Obrigkeiten mit gegen diese gerichtenten unbequemen Anprangerungen ins**
+**Kreuzfeuer seiner ihn negierenden Feinde stellt und letztlich dafür gehasst wird. Zeitlebens hat er immer die**
+**Wahrheit vertreten und wurde dafür gehasst und verfolgt, und es wurden sogar viele Mordversuche auf ihn**
+**verübt, weil er immer die Wahrheit vertrat und auch heute unbeirrt vertritt. Es bleibt zu fragen, wieviel Rück-**
+**halt er eigentlich von Behörden und von der Menschheit für seine vielen Bemühungen erhält, was er für die**
+**Menschen tut und wie auch wieviel rückgratvolle Unterstützung ihm dafür zuteilwird? Ich denke, dass dies**
+**nicht gerade viel sein wird, wie ich bei Sitzungen erfahren habe. Auch ist zu fragen, warum nicht um des Rech-**
+**tes wegen eine Propagandagetrommel für Billy, seine Arbeit und für seine persönliche Ruhe und Sicherheit**
+**gerührt wird, wie das anderweitig aber für Nieten getan wird, die dann amtlich etwas zu sagen haben. Ich**
+**sehe die Ungerechtigkeit, wie diese leider durch die Unvernunft und Parteiigkeit sowie die Falschschein-**
+**schätzung gewisser untauglicher Obrigkeitiger, Behördenmitgliedern, Feinden und Sonstigen und auch**
+**Wahrheitsunterdrückern gewährt wird, wohingegen Billy von diesen allen gepiesackt wird, ohne dass sie zur**
+**Rechenschaft gezogen werden. Ich spreche dabei auch jene Leute an, die Billy verleumden und behaupten,**
+**dass seine Fotos gefälscht seien, doch ich habe in den Achtzigerjahren diese von ihm fotografierten Objekte**
+**selbst zweimal gesehen, als ich im umliegenden Gelände von Hinterschmidrüti sehen wollte, was dort eigent-**
+**lich vor sich ging. Einmal sah ich sogar wie Billy einfach durch die Luft schwebte und in einem der Objekte**
+**verschwand, wonach dieses völlig lautlos hochhob und plötzlich einfach verschwand.**
+**Ich möchte, dass vom Figu-Verein mein Brief oder eben das Wichtige öffentlich gemacht wird, doch darf ich**
+**dabei mit meinem Namen nicht offen genannt werden, denn ich würde von gewissen Leuten geächtet, in mei-**
+**nem Amt drangsaliert und ebenso verfolgt und verleumdet werden, wie es Billy angetan wird, und zwar schon**
+**seit seiner Jugend, wie ich von meinen Eltern weiss. Dies kann ich aber nicht in Kauf nehmen, weil ich auch**
+**nicht derart bin, dass ich die Kraft hätte, alles das durchzustehen wie es Billy …**
+
+**Billy** Das letzte will ich dann aber nicht abschreiben, natürlich auch das nicht, was noch für mich persönlich geschrieben ist. Und wie ich schon sagte, habe ich natürlich mit einem fremden Handy bei der angegebenen Telephonnummer
+angerufen und so erfahren, dass alles echt und also nicht ein Fake ist.
+
+**Quetzal** Das war aber nicht gut, wenn du dich telephonisch …
+
+**Billy** … keine Bedenken, mein Freund. Du denkst wohl daran, dass man mich resp. meine Telephonate abhört, was ja
+bestritten wird, doch da habe ich ja vorgebaut, dass ich auswärts jemand Fremden fragte, ob ich dessen Handy benutzen
+durfte. Prinzipiell mache ich keine Telephonate vom Center aus, weil ich weiss, dass man diese irgendwie abhört. Auch
+mein Geheimtelephon benutze ich für solche Zwecke nicht, auch wenn ich weiss, dass ihr eine Blockade …
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Quetzal  … worüber nicht nochmals gesprochen werden soll. Was mir aber nun Ptaah aufgetragen hat dir zu sagen: Auch**
+wenn er letzte Woche zurückgekommen ist und dich kurz besucht hat, so wird er trotzdem erst wieder nach dem Jahreswechsel herkommen.
+
+**Billy** Zwar schade, aber wohl nicht zu ändern.
+
+**Quetzal** Was ich nun zu sagen habe ist folgend das, was ich wörtlich wiederzugeben habe. Es wurde schon einmal klar
+und deutlich erklärt, aber offenbar wurde das Ganze nicht eingehend im Gedächtnis festgehalten, weil die Anordnung dem
+Gewohnten des persönlichen Verhaltens widerspricht, das jedoch nicht konform gehen kann mit der persönlichen Freiheit
+der Mitglieder der Gemeinschaft FIGU. Deshalb soll der folgende Gremiumsbeschluss nunmehr umfänglich in den Satzungen und Statuten inhaltlich vornweg als sehr wichtiger separater Einführungsartikel angeordnet werden.
+
+1. Was vom Gesamt-Gremium, das aus 1,5 Millionen Personen besteht, für die Gemeinschaft FIGU angeordnet wird, ist
+sehr wohl durchdacht und soll allzeitlich uneingeschränkt Geltung haben und niemals geändert werden.
+2. Geleitet und geführt zu werden hat die Gemeinschaft FIGU gemäss den vorgegebenen Satzungen und Statuten durch
+den Gesamtvorstand, und zwar vertreten bei jeder anfallenden Zusammenkunft durch die Präsidentenperson und Aktuarperson, die bei jeder Zusammenkunft gemeinsam in neutraler Weise den Vorsitz zu führen haben.
+3. Die Präsidentenperson hat bei Abstimmungen und anfallenden Anordnungen usw. in keinerlei Weise ein Wahlrecht,
+wie auch keinerlei Befugnis eines Anordnungsrechtes, sondern deren Pflicht besteht einzig darin, die jeweils anfallenden
+Traktanden vorzubringen, wie auch anfallende Abstimmungen durchzuführen, dabei sich jeder Beeinflussung und jedem Kommentar des Für oder Wider in jeder Form zu enthalten.
+4. Die Präsidentenperson und Aktuarperson haben in ihrer Amtsausübung ihrer Pflichten und auch privat gegenüber allen
+FIGU-Mitgliedern jeder Gruppe und Besuchern in absolut neutraler Weise aufzutreten, und zwar ohne Herrscherart und
+Machtgebaren, wie dies auch für jedes FIGU-Mitglied jeder Gruppierung gelten soll.
+5. Es soll in der Gemeinschaft FIGU niemals ein ‹Müssen› zur Erledigung einer Sache usw. vorgebend sein, sondern allzeitlich nur ein ‹Soll› bezüglich dem, dass dieses oder jenes zu erledigen anfällt, wobei eine absolute Freiwilligkeit das Mass
+der Entscheidung sein soll.
+6. Die Freiheit und der Wille jedes einzelnen Mitgliedes der Gemeinschaft FIGU soll ausnahmslos und in jedem Fall unangetastet bleiben und gewährleistet sein, wie auch jede freie Ansicht und Äusserung sowie Arbeitsleistung jedes Mitgliedes auf Freiheit und Freiwilligkeit gegründet sein soll.
+7. Ausschliesslich und also ohne Ausnahme sollen diese Vorgebungen in den Statuten und Satzungen allzeitig Gültigkeit
+haben, niemals abgeändert und nicht ‹einer neuen Zeit angepasst› werden, sondern beständig bleiben, denn das Befolgen dieser Regel soll gewährleisten, dass allzeitig Frieden und Freiheit in der Gemeinschaft FIGU und unter allen FIGUMitgliedern gegeben ist und keinerlei Diktaturunwerte, Herrscherart und Machtgebaren aufkommt.
+
+Das ist wortwörtlich das, was ich hier aufgeführt im Auftrag des Gremiums erhalten und dir nun genannt habe.
+
+**Billy** Das ist aber auch in unserem Sinn, und so wurde es auch immer gehalten. Aber es ist wohl gut, dass das Ganze
+den Satzungen und Statuten als wichtige Einführung vorgesetzt sein soll.
+
+**Quetzal** Das kann sicher Schaden vermeiden, denn wenn ich an all das denke, was ich in den letzten Wochen alles gelernt
+habe hinsichtlich verschiedenster Dinge, die sich auf diesem Planeten Erde zugetragen haben, durch die Erdenmenschen
+heraufbeschworen und durchgeführt wurde, dann kann ich nur sagen, dass alles erschütternd ist. Ob es sich um vergangenheitliche wirtschaftliche, religiöse Kriege oder einfach um Eroberungskriege, Hasskriege, Politikkriege usw. handelt, alles ist wirklich erschreckend. Auch anderes, was nichts mit altherkömmlichen Formen von Krieg zu tun hat, sondern mit
+dem unvernünftigen und unkontrollierten Fortschritt der Technik, besonders in Form der neuerlich aufkommenden ‹Künstlichen Intelligenz›, so wird diese zukünftig für die Erdenmenschheit sehr grosses Unheil bringen, wie ich durch eine Zukunftsschau ergründet habe. Es ist alles …
+
+**Billy** … das weiss ich, denn ich habe es schon mit Sfath zukünftig gesehen und erlebt. Aber darüber zu reden hat keinen
+Sinn, denn es wird nicht darauf gehört. Aber hier habe ich noch einiges, das ich dir zeigen will, was ich aber im Text etwas
+zu korrigieren hatte, z.B. nämlich das hier:
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+## Ich bin die Schöpfung von FIGU
+
+### [https://www.youtube.com/watch?v=O2X7DvHzYeE]
+
+Ich bin die Schöpfung, das universelle Bewusstsein. Ich bin die Quelle des Lebens. Ich bin die Kraft, der Geist in dir
+und in jeder anderen Lebensform. Ich gebe Leben und meine Gesetze bestimmen Werden und Vergehen. Ich habe das
+Universum als Manifestation einer Idee erschaffen. Jede Galaxie, jeder Stern, jeder Planet, jeder Mensch, jedes Tier,
+jede Pflanze und jeder Stein, jegliche Form von Leben in den Tiefen des Weltalls, die euch nicht bekannt sind, sind das
+Ergebnis dieser Manifestation. Bereits vor langer Zeit habt ihr euch von mir abgewendet, habt mich zum Menschen
+gemacht, durch Religionen ersetzt und Götter über mich gestellt. Ihr betet zu mir und erhofft euch Hilfe, aber ich bin
+neutral und kann euch nicht helfen. Ihr könnt euch nur selbst helfen, indem ihr Verantwortung übernehmt und nach
+den Gesetzen und Geboten lebt, die ihr in der Natur ablesen könnt. Nur auf diese Weise können der Einzelne und die
+Menschheit als Ganzes ein harmonisches und erfülltes Leben für sich schaffen. Ich habe euch einen freien Willen gegeben, damit ihr volle Freiheit darüber habt, ob ihr ein friedliches Leben führen wollt, indem ihr euch nach den natürlichen Gesetzen und Geboten richtet, oder ein Leben voller Krieg, Elend und Hass, wenn ihr die echten Werte des
+Lebens missachtet. Es gibt keinen Himmel und keine Hölle und ihr habt auch nur ein einziges Leben. Ihr werdet als
+**absolut neue Persönlichkeit auf die Erde zurückkehren, denn der Mensch wird belebt durch meine Schöpfungs-**
+energieform, die niemals stirbt oder vergeht. Es gibt also keine Reinkarnation. Es ist ein essentielles Gesetz, das ich
+für euch geschaffen habe, dass nach eurem leiblichen Vergehen eine neue Persönlichkeit **mit der gleichen Le-**
+**bensenergie belebt wird, damit ihr lernt und evolutioniert, damit ihr über viele Leben Wissen, Weisheit und Liebe**
+sammeln könnt, bis ihr eine Evolutionsstufe erreicht habt, bei der ihr keinen materiellen Körper mehr benötigt und
+am Ende des Ziels zu mir zurückkehrt, zur Quelle des Lebens, um auch meine eigene Evolution auf eine höhere Ebene
+zu bringen.
+
+**Semjase-Silver-Star-Center – Freie Interessengemeinschaft Universell**
+
+Das hier ist die 2. Version, die ich etwas mehr korrigiert und zurechtgeschrieben habe:
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+### Damit sage ich dir, Mensch, dass ich die Schöpfung bin!
+**FIGU Freie Interressengemeinschaft**
+
+**[https://www.youtube.com/watch?v=O2X7DvHzYeE]**
+
+Also bin ich die Schöpfung, das universelle Bewusstsein, und ich bin die Quelle des Lebens und damit die Energie und
+Kraft in dir und in jeder anderen Lebensform. Damit gebe ich das Leben, und meine Gesetze bestimmen Werden und
+Vergehen, und geschaffen habe ich das Universum als Manifestation nach einer Idee des ‹Absolutes Absolutum›. Jede
+Galaxie, jeder Stern, jeder Planet, jeder Mensch, jedes Tier und Getier, jegliche andere sich selbstbewegende Lebensform, das Erdreich und die Wasser, jede Pflanze, jedes Gefels und jeder Stein, jegliche Form von Leben in den Tiefen
+des Weltalls, wie das ganze Universum und alles, was euch nicht bekannt ist, sind das Ergebnis dieser Manifestation.
+Bereits vor langer Zeit habt ihr euch von mir abgewendet, habt mich durch eine Falschlehre zum Menschen und zu
+einem imaginären Gott gemacht, durch Religionen ersetzt und Götter über mich gestellt. Ihr betet zu Göttern und
+erhofft euch Hilfe, aber sie sind nicht existent und können euch daher nicht helfen, wie auch ich euch nicht helfen
+kann, denn bin absolut neutral, folglich könnt ihr euch nur selbst helfen, indem ihr Verantwortung übernehmt und
+nach den Gesetzen und Geboten lebt, die ihr in der Natur ablesen und erfahren könnt. Nur auf diese Weise können
+der Einzelne und die Menschheit als Ganzes ein harmonisches und erfülltes Leben für sich schaffen. Es ist alles so
+gerichtet, dass euch ein freier Wille gegeben ist, damit ihr volle Freiheit darüber habt, ob ihr ein friedliches Leben
+führen wollt, indem ihr euch nach den natürlichen Gesetzen und Geboten und nach Liebe und Frieden ausrichtet, oder
+ob ihr ein Leben voller Rache, Krieg, Elend und Hass führt, wenn ihr die echten Werte des Lebens missachtet. Es gibt
+keinen Himmel und keine Hölle, und ihr habt auch nur ein einziges Leben. Ihr werdet als absolut neue Persönlich**keit auf die Erde zurückkehren, denn der Mensch wird belebt durch meine Schöpfungsenergieform, die niemals stirbt**
+oder vergeht. Es gibt also keine Reinkarnation. Es ist ein essentielles Gesetz, das ich für euch geschaffen habe, dass
+**nach eurem leiblichen Vergehen eine neue Persönlichkeit** **mit der gleichen Lebensenergie** **belebt wird, damit**
+ihr lernt und evolutioniert, damit ihr über viele Leben Wissen, Weisheit und Liebe sammeln könnt, bis ihr eine Evolutionsstufe erreicht habt, bei der ihr keinen materiellen Körper mehr benötigt und am Ende des Ziels zu mir zurückkehrt, zur Quelle des Lebens, um auch meine eigene Evolution auf eine höhere Ebene zu bringen.
+
+**Semjase-Silver-Star-Center – Freie Interessengemeinschaft Universell**
+
+Das wäre also einmal das; dann habe ich hier etwas von Stefan Hahnekamp von der FIGU-Gruppe in Wien. Dazu finde ich,
+dass das Ganze sehr gut ist und das auf den Punkt bringt, was notwendig ist zu tun.
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+_Von Stefan Hahnekamp_
+
+**Billy** Das wäre also das, was ich hatte, um es dir zu zeigen. Aber was ich noch sagen will: Leider kommen hie und da
+Briefe, da ich angefragt werde, ob ich helfen könne, weil die Psychiater dies nicht könnten, zu denen gelaufen wird. Letzthin
+waren es gleich 3 Personen zusammen aus Holland, die mich anschrieben. Damit aber kann ich mich nicht mehr beschäftigen, denn meine Arbeit lässt das nicht mehr zu. Dass bei mir Hilfe gesucht wird, das kann ich wohl verstehen, und früher in
+Hinwil habe ich mich ja auch damit beschäftigt, doch heute lässt es meine Arbeit eben nicht mehr zu. Eigentlich wären ja
+die Psychiater zuständig, bei denen die Leute Hilfe suchen, wie es eben die Leute tun, die mir schreiben, doch dass diese
+nicht helfen können, das ist leider so, aber kein Wunder, wenn man bedenkt, dass praktisch jeder 2. Psychiater Selbstmord
+begeht.
+
+**Quetzal** Dass das tatsächlich so sein soll, erklärte mir auch Ptaah, der sich ja mit solchen Informationen beschäftigt.
+
+**Billy** Das soll eine Statistik so aufgeführt haben, so wurde mir jedenfalls kürzlich erklärt. Aber etwas anderes: Da habe
+ich im Fernsehen eine Sendung verfolgt, die davon handelte, dass wieder Wölfe, Füchse, Dachse und anderes Wild und
+auch Vögel abgeknallt werden, und zwar nur, weil Menschen in jenem Gebiet wohnen und also Häuser dort bauen wollen,
+oder weil sie angeblich von den Wildtieren gefährdet werden. Es ist einfach schändlich, dass dies geschehen kann, und dies
+ausnahmslos nur deshalb, weil eine Menschheitsüberbevölkerung herangezüchtet wurde, die verantwortungslos weitergrassiert. Überall dort, wo früher kilometerweit nur Grasland war, das von den Bauern für das Vieh genutzt werden konnte,
+Auen, Fluren, Moore und Sumpfgebiete, teils gar Wälder und Alleen, wie auch weite Felder mit Kartoffeln, Rüben, Weisskohl, Weizen, Hafer, Kraut aller Gattungen, Hanf, Roggen, Hafer, Gerste, Hopfen, Hirse und gar Rebberge sind verschwunden. Alles ist überbaut worden mit Wohnhäusern, Wohnblocks, Strassen, Fussballstadien, Zeltplätzen, Sportplätzen, Eislaufstadien, Fabriken, Lagerhäusern, Militärübungsgeländen und Autohäusern usw. Rundum ist die freie Natur verschandelt, verbaut, zerstört und leblos geworden, wie aber vor allem feindlich und tödlich für alles Wildleben, von dem gar rücksichtslos und verbrecherisch viele Gattungen und Arten völlig ausgerottet wurden und sie also niemals wieder gesehen
+oder gehört werden können. Und das ist nicht nur zutreffend für viele Tiere, Getier und sonstige sich selbst bewegende
+Lebewesen auf dem Land und im Erdreich, in den Wäldern, in Mooren, Sumpfgebieten, Höhlen und Gebirgen, sondern auch
+in allen Gewässern der Meere, Seen, Flüsse, Pfützen und Bäche. Es betrifft aber auch viele Gattungen und Arten der Lüfte,
+so vor allem Vögel diverser Gattungen und Arten, wie aber auch Fledermäuse, Flughunde, Flugdrachen, Flughörnchen,
+Baumfrösche, Gleitbeutler und Insekten aller Art. Damit aber ist nicht genug, denn durch die Schuld des Erdlings sind auch
+Lebewesen ausgerottet worden, die in der Kälte der Eiswüsten lebten, und sehr gefährdet sind jene, die heute noch in den
+Eiswüsten und Eismeeren und in den Gebieten der Arktis und Antarktis leben, wie Eisbären, Kaiserpinguine, Schwertwale,
+Adelie-Pinguine, Eselspinguine, Zügelpinguine, Buckelwale, Weddellrobben und Seeleoparden, Rentiere, Karibus und Moschusochsen usw.
+Wenn ich dessen bedenke, was Sfath mich alles hat sehen lassen, so in der Vergangenheit und in der Zukunft, was er mir
+alles erklärt und mich gelehrt hat, dann müsste ich Tausende Jahre nur noch schreiben, um alles schriftlich festzuhalten.
+Und wenn ich davon zu sprechen begonnen habe, dass die Wildlebewesen abgeknallt und vertrieben werden, weil sie angeblich die Menschen gefährden oder weil neuer Bauraum für Wohnbauten und Strassen usw. gebraucht wird, wodurch
+auch die Naturgebiete verschwinden, dann ist das nur eine kleine Sache der Wahrheit, die sehr viel weiter umfassend ist,
+als sich die Erdlinge vorstellen. Die Überbevölkerung bewerkstelligte schon früh, dass sich durch sie alles auf und am Planeten, an der ganzen Natur und deren Fauna und Flora nachteilig zu verändern begann. Wenn früher Zeitepochen natür
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+liche Veränderungen hervorbrachten, wodurch sich Klimawandlungen ergaben und viele Gattungen und Arten von Tieren,
+Getier und anderen Lebensformen überall auf und in der Erde, wie auch Wasserwesen in den Meeren, Seen und Flüssen,
+Mooren und Sumpfgebieten, wie aber auch in den Lüften fliegende Lebewesen ausstarben, dann waren das wirklich Evolutionsvorgänge, die sich infolge der Entwicklung des Planeten und dessen Natur ergaben. Dies gegenteilig zu dem, was der
+Erdling, eben der Mensch der Erde, seit seiner verrückten Heranzüchtung ab dem Jahr 1700 begonnen hat, da die Erdlingspopulation noch gerademal 536 Millionen und etwas über 700 tausend Menschen betragen hat. Das hat sich aber
+innerhalb von nur 100 Jahren auf 892 Millionen und rund 330 tausend vermehrt, und abermals im Lauf von 100 Jahren auf
+1 Milliarde, 660 Millionen und 990 tausend. Im Jahr 1950 waren es dann schon 2 Milliarden und 600 Millionen, was sich
+dann bis vor 12 Monaten stetig auf die Zahl von 9 Milliarden und 339 Millionen steigerte, folglich Ende dieses Jahres 2023
+bei der Menschheitszählung nochmals gegen etwa 130 Millionen dazukommen werden, und zwar dies entgegen der Falschzählung der Weltzuwachszählungsuhr, die viel weniger anzeigen wird, weil diese nicht stimmt.
+Nun, was nun geschehen ist und sich weiter ergibt bezüglich des Klimawandels, so ist dieser diesmal nicht planetenevolutionsbedingt und also abnormal, und zwar heraufbeschworen durch die Menschenmassenüberbevölkerung. Begonnen hat
+der Ursprung des Wandelns bereits mit dem Überschreiten jener Zahl Menschen, die der Planet Erde problemlos zu ertragen, zu ernähren und in jeder Form zu bewältigen vermochte. Doch mit dem wilden grenzenlosen Heranzüchten der Überbevölkerung von 536,7 Millionen Menschen auf 9 Milliarden und 339 Millionen in nur 3 Jahrhunderten und 23 Jahren,
+reichte es aus, um den Planeten Erde, dessen Natur und die Fauna und Flora derart zu zerstören und zu benachteiligen und
+zu sehr bösen Veränderungen zu zwingen, dass ein Klimaumsturz unvermeidlich war. Dieser gewaltsame und allein durch
+die Schuld der Überbevölkerung hervorgerufene Klimaumsturz, der verniedlicht und nur Klimawandel genannt wird, ist
+allein durch die Erdlinge und deren zerstörerische, unkontrollierte, absolut und völlig verantwortungslose Machenschaften
+provoziert worden. Dabei spielte jedoch auch die unkontrollierte und zukünftig erstrecht nicht kontrollierbare schnelle
+Entwicklung der Technik eine massgebende Rolle – die ausserdem in der Zukunft nicht mehr kontrolliert werden kann und
+noch grosses Unheil bringen wird, wie ich zusammen mit Sfath gesehen habe.
+Ab dem Jahr 2020 – so ergab sich aus Zukunftserschauungen an Ort und Stelle – verschwinden jährlich weltweit rund 60
+000 Lebensformen aller Gattungen und Arten, und zwar begonnen bei den Insekten aller zigtausendfältigen Gattungen und
+Arten, z.B.: Falter, Käfer, Spinnen, Skorpione, Werren; Tiere = ausschliesslich Säuger, wie Schnabeltier, Seeotter, Seekühe,
+Delphine, Robben, Wale, Fledermäuse, Flughunde usw.; die Amphibien = Molche, Kröten, Frösche, Vögel, Fische, Echsen,
+Reptilien, Schleichen; dem Getier = Kriechgetier, Schildkröten. Doch auch alle Gattungen und Arten der Pflanzen gehören
+dazu, von den einfachen Moosen, über die Gräser aller Art, die Blumen, Sträucher Stauden und Bäume usw. Und wenn die
+Wissenschaft von einem ‹Artensterben› spricht, dann ist das grundfalsch, denn es sind nicht nur Arten, sondern auch Gattungen, die aus der Natur und vom Planeten ‹verschwinden›. Viele sterben aus, weil die klimatischen Bedingungen sich
+auflösen, die für diese Wesen lebenswichtig sind, und zwar egal ob es welche sind, die auf oder in der Erde leben, in den
+Meeren, Seen und Flüssen, Bächen oder sonstigen Gewässern, in Mooren oder in Sümpfen usw. oder in der Luft und Atmosphäre. Durch den Klimasturz verändert sich auch das Erdreich innen und aussen, der Zustand aller Gewässer und gar
+der Zustand der Atmosphäre resp. der Luft. So können also Lebewesen auf natürliche Weise aussterben, wenn sich ihre
+lebensnotwendige Lebensumgebung wandelt und für sie einfach lebensfeindlich wird. Viele Lebewesen der Natur werden
+jedoch durch den Menschen rücksichtslos ausgerottet, und zwar durch Gifte, Abknallen, Verdrängung, Überbauung von
+Wiesen, Fluren, Äckern, Berggebieten und Auen usw. Gewässer, Seen, Bäche und Flüsse sowie Meere und sonstige Gewässer werden mit Unrat, Kunststoff, Giften und Plastik verseucht, wodurch sich nicht nur die Wasser in ihrem Gehalt verändern, sondern auch die Wasserlebensformen töten und elend krepieren lassen. Und wenn vom elenden Krepieren durch
+die Schuld des Menschen meine Rede ist, dann ist damit die unaufhaltsame, ständige und grenzenlos sowie verantwortungslos grassierend ansteigende Überbevölkerung angesprochen. Deren sehr unheilvolle Machenschaften ziehen sich
+durch die ganze Welt, sogar in die Dschungelgebiete resp. in die Urwälder, wo viel einzigartiges Leben zu finden ist, das
+noch nicht einmal den grossmäuligen Wissenschaftlern bekannt ist, die sich als ‹Wissende› geben und wahrheitlich nur
+wenig wissen. Allein was sich in den Dschungeln von Südamerika verbirgt, ist mehr als sich diese ‹Weisen› erträumen können, wie z.B., dass dort noch Menschen leben, die unter sich differierende Hautfarben aufweisen, weil sie sich irgendwie
+mit anderen vermischt haben – da kenne ich z.B. einen Stamm, in dem nebst Braunhäutigen auch rabenschwarze Eingeborne leben –; davon haben aber die Wissenschaftler wohl keine Ahnung. Oder das, was ich mit Sfath in den 1940er Jahren
+sehen und erleben konnte – ich war damals ja erst 8 Jahre alt, und es war Kriegsende –, als uns Dschungeleingeborene, also
+Sfath und mir, Lebewesen des Dschungels zeigten, die meines Wissens den Wissenschaftlern noch heute nicht bekannt
+sind. Ein kleiner farbiger Vogel z.B., der mit den Flügeln ‹pfeift›, gerade so, wie wenn eine Grille ihr ‹Konzert› veranstaltet,
+wenn sie zirpt.
+Eine Gattung ist ja nicht einfach eine Art, sondern diese ist sozusagen der Grundstock der Arten, die eine Verwandtschaft
+miteinander aufweisen und also zu einer bestimmten Gattung gehören. So ist z.B. die Gattung Mensch, die ja vielerlei Arten
+hat, eben Rassen, wie sie der Mensch nennt, so z.B. die Weissen, die Schwarzen, die Roten, die Gelben und die Braunen
+usw. – es gibt ja noch andere, die aber dem Erdling weitestgehend unbekannt sind –, unter denen es wieder Eigenarten
+gibt, die keinerlei Mutationen usw. entsprechen, wie eben normale Kleinwüchsige, Grosswüchsige, Riesenwüchsige, Zwergwüchsige, Normalwüchsige und auch Hochschädlige, usw.
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Aber zurückkommend darauf, dass Gattung und Arten eben zweierlei Begriffe sind, aber trotzdem nur von einem Artensterben gesprochen wird, das finde ich nicht richtig, denn es sterben ja die Gattungen wie auch die Arten aus. Grundsätzlich
+ist oder war ja eine Gattung vorhanden, der entsprechend dann vom Menschen die Arten eingeteilt wurden, denn die
+Ähnlichkeiten usw. führen ja immer auf etwas Bestimmtes zurück, folglich es keine Arten geben kann, wenn nicht erst eine
+Gattung vorgegeben war. Das, was ich gesagt habe, ist eigentlich das, was mir momentan durch meine Erinnerungen ging
+und was meine Gedanken sind.
+
+**Quetzal** Sehr interessant, das will ich schon sagen. Es ist sehr viel mehr, was du sagst, als das, was ich bisher aus Sfaths
+Aufzeichnungen herauslesen konnte.
+
+**Billy** Gut – dann konnte ich dir einiges Neues sagen.
+
+**Quetzal** Ja, das stimmt, doch ich will dir nun noch berichten, dass die Abklärungen der Belegschaft um Arlion erschreckend festgestellt hat, dass es schlecht um die Erde bestellt ist, denn es hat sich ergeben, dass alle Auswirkungen der erdenmenschlichen Quertreibereien wider die Natur und deren Ordnung und Gesetzmässigkeiten sehr viel schlimmere Folgen zeitigen, als die dafür zuständigen irdischen Wissenschaftler und sonstigen Fachkräfte eruieren. Wahrheitlich steht es
+sehr schlecht um den Planeten Erde selbst, wie auch um dessen Natur und die gesamte Fauna und Flora sowie die Lebensformenwelt allgemein.
+
+**Billy** – – – Dass sich Arlion und seine Leute auch damit beschäftigen, das wusste ich nicht, denn ich dachte, dass sie
+sich nur mit den religiösen Glaubensenergien herumschlagen.
+
+**Quetzal** Nein, du hast dich diesbezüglich zu einer falschen Annahme verleiten lassen. Arlion und seine vielen Mitarbeitenden befassen sich auch intensiv abklärend damit, was sich alles ergibt hinsichtlich der Unterwanderungen der erdenweltlich-planetaren Ordnung. Dies wird beobachtet und abgeklärt, wie ebenso alles bezüglich der Verantwortungslosigkeit
+der Erdenmenschen in Hinsicht der Missachtung und des Brechens der natürlichen Gesetzmässigkeiten der Natur, aller
+Ökosysteme, der gesamten Fauna und Flora, der Atmosphäre und des Klimas. Das Ganze betrifft eine langjährige Studie,
+die 50 Jahre dauert und seit nunmehr 34 Jahren unter strengen Auflagen des Geheimbleibens vor irdischen Armeen und
+den Völkern sowie vor den Fremden betrieben wird.
+Der Zweck des Ganzen ist jedoch für die Sonaer, die das ganze Unternehmen leiten, nur der, die Erkenntnis zu gewinnen,
+was sich letztendlich aus allem ergibt, um ein derartiges Vorkommnis notwendigerweise zu verhindern, sollte es im Bereich
+des Einflusses der Sonaer auftreten. Immer wieder und laufend ermächtigen sich die Erdenmenschen aus politischen, privaten, idealistischen oder ethischen Gründen, die natürlichen Gesetze der Existenz des Planeten und der Natur zu brechen,
+die durch die Schöpfung auferlegt sind. Dies entspricht einer bösartig falschen Denkweise und einem Handeln in Verantwortungslosigkeit der Erdenmenschen, wie auch in dieser Form einem Phänomen der Selbstermächtigung und Selbstherrlichkeit. Das Ganze findet sowohl in privater Weise statt, wie auch gesamthaft im Gesamtgesellschaftlichen, was nicht nur
+zuzunehmen scheint, sondern sich seit sehr langer Zeit als Gefahr für das Bestehen des Planeten und die Existenz allen
+Lebens gestaltet. Um diese drohende und immer prekärer werdende Gefahr zu bannen, ist ein disziplinübergreifendes Handeln notwendig geworden, das über Raum und Zeit zu greifen hat. Schon vor längerer Zeit haben verschiedene der irdischen
+Staaten, Herrschende, Staatsführende, Firmen und Privatpersonen usw. durch sehr verwerfliche Übertretungen von Planetengesetzen und Naturgesetzen die Aufmerksamkeit der Sonaer auf sich gelenkt, denn mit der Verletzung der Pflicht und
+der Weigerung, sich an die Planetengesetze und Naturgesetze zu halten, führte die Sonaer zur Massnahme der Abklärung
+hier auf der Erde, um bei selbigem Auftreten im Bereich resp. den Gebieten der Sonaer dies im Keime aufzulösen und
+nichtig zu machen. Daher erfolgt eine genaue Untersuchung, wobei bisher sehr unerfreuliche Ergebnisse vorliegen.
+Es ist nun derart, wie ich die letzten Tage von Arlion gelernt habe, dass die Sonaer der Frage nachgegangen sind, wie sich
+alles zu alten Zeiten auf der Erde ereignen konnte, was sich hinter all den Regelbrüchen der Erdenmenschheit gegen die
+Planetengesetze und Naturgesetze verbirgt. Dabei sind Arlion und seine Getreuen darauf gestossen, dass ein Aspekt dabei
+ist, in den sich das Gros der Erdenmenschheit verbürgt hat, nämlich, dass sich diese in ein religiöses System integriert hat,
+das auf falschen und unwirklichen Phantasievorstellungen, wie auch auf daraus entstehenden Phantasieglaubensformen
+beruht und aus unwirklichen Phantasielügenformen entstanden ist. Folgend daraus hat sich ein Verhalten der Entfremdung
+von der realen Wirklichkeit und damit ein striktes Entfernen und Enthalten von der Wahrheit gebildet, wodurch ein Misstrauen gegen alles Wahrheitliche geprägt wurde und fälschlich jede Form von Glauben als Wahrheit erklärt und religionsmässig verkündet wurde. Das erschuf dann sehr schnell ein unübersehbares Ausmass falscher Begründungen, die glaubensmässige Folgen von Strafen und böse Massnahmen bis zur Todesstrafe aufbrachten, und zwar, wenn den Phantastereien
+und Lügen nicht Glauben geschenkt wurde. Angesichts grosser aktueller Herausforderungen von sehr brutalen Religionskriegen, Judenverfolgungen und Christenverfolgungen sowie sonstigen Verfolgungen und Ermordungen von Religionsgläubigen verschiedenster Gläubigkeiten machten schliesslich diese jeden Wahn von Religionsglauben krisenfest. Und es entstanden sogar Religions-Wissenschaften verschiedenster Disziplinen, die seither vehement mit ihren Phantasielügen,
+Phantasieerklärungen und ihrem heuchlerischen Tun die Gläubigen und die menschliche Gesellschaft weltweit belasten
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+und verschiedenartig glaubensbedingt zur feindlichen Gesinnung zwingen. Daraus ergibt sich, dass sich Völker gegenseitig
+zu Feinden machen lassen und Krieg gegeneinander führen, wobei die Gläubigen einer Religion besser sein wollen als diejenigen anderer Religionen, auch im Glauben dessen, dass ihre Religion und ihr Glaube allein richtig seien.
+
+**Billy** Eben, und daher gilt dann die Ansicht: Willst du nicht mein Bruder sein, dann schlag ich dir den Schädel ein. Aber
+ob es religiöse Fritzen und Fritzinnen sind, oder Staatsmächtige, die Kriege führen wollen, Feindschaft säen und schaffen,
+oder die sonstwie Stunk machen, so wäre es allein das Richtige, dass diese sich selbst gegenüberstehen und sich verprügeln
+oder sich die Schädel einschlagen, anstatt dass ihre Völker an der Front zu stehen haben und sich mit den angeblichen
+Feinden schiessen – die sich weder einmal gesehen haben noch einander kennen oder Streit miteinander haben – und
+einander einfach abknallen.
+Streithähne sollen sich selbst persönlich bekriegen und einander die Schädel einschlagen, wenn sie sich unbedingt unvernünftigerweise streiten wollen, folglich sie nicht ihre Völker gegeneinander aufhetzen und diese sich bekriegen lassen.
+
+**Quetzal** Solches Pack – entschuldige, wenn ich deinen Ausdruck benutze, den du letzthin gebraucht hast, der aber in
+diesem Fall wirklich wertig ist – ist jedoch feige und voller Angst, um alles und Streitigkeiten usw. persönlich zu regeln.
+
+**Billy** Das ist leider so, denn solche Kreaturen haben nur eine grosse Schnauze, die sie weit aufreissen können. Es sind
+aber auch solche, die sich gegen Andersgestrickte unflätig benehmen, wie kürzlich Transmenschen geklagt haben, die ob
+ihrer Artung teils böse geschnitten und gar misshandelt werden. Das ist von den sogenannten ‹Normalen› nicht nur gemein,
+sondern verkommen, denn Transmenschen sind ganz normale Menschen und sind auch als solche zu behandeln und zu
+schätzen, wenn sie auch anders gestrickt sind. Aber sieh einmal hier, das habe ich noch erhalten:
+
+_Quelle: https://www.anderweltonline.com/_
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Quetzal** – – Das ist typisch für Amerika, denn jener Teil von Personen der Staatsführung sowie ein gleichziehender Teil
+der Bevölkerung, der mit allen den niederträchtigen sowie den gefährlichen Machenschaften der Wahrheitsverbiegung und
+also der Wahrheitsverfälschung der Staatsführung einhergehen und mit dem diesbezüglichen Unrecht einverstanden sind,
+wollen nicht, dass die Wahrheit ihrer falschen und verbrecherischen Staatsführung und die ebenso verbrecherischen Handlungen des US-Militärs an die Öffentlichkeit gelangt. Da aber dieser Mann Julian Assange genau dem entgegenwirkte, wird
+er widerrechtlich verfolgt und eingesperrt, und zudem noch durch den amerikafreundlichen fremden Staat Grossbritannien,
+der durch sein Handeln gegen alles Recht, alle Ordnung der Staatsrechte, wie auch gegen die international festgelegten
+Menschenrechte verstösst und diese völlig missachtet, wie wir dies ergründet haben, als uns der Fall Julian Assange vor
+Jahren bekannt wurde.
+
+**Billy** Meines Erachtens ist das Handeln und Gleichziehen von England mit Amerika nicht nur eine Grottengemeinheit
+und ein Rechtsverbrechen sondergleichen, wodurch sich England auf die exakt gleiche Verbrecherstufe stellt, wie diese
+Amerika eigen ist, dies bezüglich all den vielen Regierungsverbrechen, Geheimdienstverbrechen und Militärverbrechen.
+Das aber ist gefährlich zu sagen.
+
+**Quetzal** Trotzdem, es ist die Wahrheit.
+
+**Billy** Ja, es ist die Wahrheit, doch das ist ja nicht verwunderlich, wenn man die miese Rechtsprechung von Amerika
+unter die Lupe nimmt, die anscheinend auch auf England abfärbt. Denn mit dieser ist überhaupt nichts in Ordnung, sondern
+sie ist abhängig von Unrecht vielerlei Arten. So spielen die Rechte und Unrechte der Staatspräsidenten und des Militärs
+sowie des Geheimdienstes eine grosse Rolle, wie aber auch Geldmanipulationen, Wege und Schliche von Sympathie und
+Antipathie, wie auch Parteilichkeit, Beziehungen, Ansehen und Freundschaft, Aversionen und bestehende oder geführte
+resp. früher bestandene Staatsstellungen usw. Dabei kommen insbesondere US-Präsidenten für ihre Lügen, Betrügereien
+und Kriegsmachenschaften sehr gut weg, denn diese ‹Hochwohlgeborenen› werden überhaupt nicht zur Rechenschaft gezogen, wie sich besonders ab den Jahren des Weltkrieges 1939 bis 1945 und seither immer wieder bewiesen hat. Man
+denke dabei nur an das Menschheitsverbrechen und Weltverbrechen, das der US-Präsident Harry S Truman begangen hat,
+als er den Einsatz der Atombombe befahl, die auf Hiroshima und Nagasaki abgeworfen wurden, wofür der Kerl niemals zur
+Rechenschaft gezogen, sondern noch gelobt wurde. Dies, obwohl durch diese Greueltat Hunderttausende von Menschen
+vom Jüngsten bis zu Ältesten ermordet wurden. Auch im Vietnamkrieg, in den Südvietnam, Nordvietnam, Kambodscha und
+Laos verwickelt waren und den Amerika im August 1964 offiziell begann. Zu diesem Krieg will ich sagen, dass mir Asket
+sagte und erzählte, dass Amerika eine zweckbedingte Lüge erfunden und auch verbreitet habe, dass im Golf von Tonkin ein
+nordvietnamesisches Torpedoboot absolut unbegründet einen Angriff auf ein US-Marineschiff ausgeführt habe. Eine Lüge
+und Falschmeldung sondergleichen, die dem Zweck diente, den USA einen Grund zu geben, legal in den Vietnamkrieg einzugreifen, der seit schon seit 1955 zwischen dem kapitalistischen Südvietnam und dem kommunistischen Nordvietnam als
+Bürgerkrieg tobte. Die bewusste hinterhältige Lüge, die unter dem Patronat des US-Präsidenten Lyndon B. Johnson gefertigt
+wurde, nahm das US-Militär zum Anlass, um in den Vietnamkrieg einzugreifen. So griff Amerika 1964 Nordvietnam massiv
+an, wobei dann der Krieg bis 1973 dauerte, den ich zeitweise verfolgte – natürlich waren Asket und ich immer zusammen
+und sie so an meiner Seite –, und so sahen wir, was dort geschah, nämlich nur Kriegsgreuel. Von ihrem Fluggerät aus sahen
+wir abscheuliche Dinge und barbarische Greueltaten der Amerikaner resp. des US-Militärs, die ich niemals vergessen konnte
+und die ich heute noch sehe, wenn ich daran denke. Es wurden da vom US-Militär nicht nur Frauen, sondern auch Mädchen
+vergewaltigt, die bestimmt noch nicht einmal 10 Jahre alt waren. Hatten sie dann ihre ‹Schuldigkeit› über sich ergehen
+lassen – manchmal waren ganze Gruppen von Soldaten, die eine Frau oder ein Mädchen nacheinander vergewaltigten –,
+wonach sie kurzerhand einfach erschossen oder abgestochen wurden.
+Da weiss ich noch durch Askets Erklärungen, dass damals die Nordvietnamesen ratgebende Hilfe und Waffen von China
+und der Sowjetunion erhielten. Dies wollten die Amis verhindern und abklemmen, weshalb unter dem Patronat des USPräsidenten Johnson die Lüge des angeblichen Angriffs Nordkoreas auf ein US-Marineschiff erfunden wurde. Amerika unterstützte damals wie auch heute Südvietnam – die Amis blieben ja in Südvietnam hocken, wie immer überall, wo sie einmal
+Fuss fassen konnten und können. Sie griffen auch finanziell und mit Militärberatung in Südvietnam ein – was natürlich
+immer noch so ist. Beweggründe für alle Unterstützung aller Länder durch Amerika resp. die USA, ist einzig und allein im
+amerikanischen Hegemoniewahn und in der Angst vor Russland und China zu suchen. Aber dass Amerika eine böse Niederlage bezüglich des Vietnamkrieges erlitt, hat Ursachen, die nebst anderem auch auf gewisse Folgen des Grössenwahns
+Amerikas zurückführt, das im Wahn lebt, dass es unbesiegbar sei, was sich aber anderweitig erweisen wird.
+Was sich aber weiter ergab, war auch die Lügengeschichte des US-Präsidenten George Walker Bush Junior, der als 43. USPräsident zu …
+
+**Quetzal** … der sein Amt durch einen Wahlbetrug errang, was in seinem zutiefst engsten Kreis zwar bekannt war, jedoch
+bis heute verschwiegen wurde, wie wir zu ergründen vermochten. Das Ganze war derart hinterhältig arrangiert worden,
+dass nicht einmal ein Verdacht der Wahlfälschung aufkam. In etwas anderer Weise und einer etwas unbeholfeneren Form
+erfolgte dies auch im Fall des Donald Trump, de…
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Billy** … das ist aber gefährlich zu sagen, denn auch, wenn Amerika weit weg ist, so hat dieses sehr lange Beine, die
+auch hierher in die Schweiz gereichen.
+
+**Quetzal** Wenn es dir nicht liegt, dass du meine Aussage beim Abrufen unseres Gespräches niederschreibst, dann ka…
+
+**Billy** … nein, nein, das ist nicht meine Absicht, denn ich denke nur, dass US-Schergen das in den falschen Hals bekommen könnten und eben – ach was – ist ja egal, ich mache wirklich keine Pünktchen, dann kann aus solchen nichts anderes
+interpretiert werden. Vorhin wollte ich sagen, dass dieser Bush nichts anderes als ein Lügner und Betrüger war, durch dessen Lügen, dass Saddam Hussein Atombomben baue und Massenvernichtungswaffen im Irak gefunden worden seien, die
+USA den Irak angriffen. Er provozierte durch den Angriff auf den Irak die Amerikaner gleich in 2 Kriege, und zwar dann einen
+weiteren in Afghanistan gegen die Taliban. Saddam Hussein wurde von den Amerikanern gefangengenommen und dann
+gehängt, obwohl alles nur Lug und Betrug war, was Bush behauptete. Hussein hatte keine Idee, um Atombomben zu bauen,
+wie er auch keine Massenvernichtungswaffen hatte. Und dass Bush den Krieg im Irak durch seine Lügen losbrechen und
+durchführen liess, war absolut völkerrechtswidrig. George W. Bush stürzte mit seinen selbstherrlichen und verlogenen sowie betrügerischen Behauptungen insbesondere den Mittleren Osten in ein Chaos, das sich bis heute erhalten hat und auch
+derartig langzeitige Auswirkungen hervorbrachte, dass nicht nur seit langer Zeit die grosse Terrororganisation Islamischer
+Staat herumfunktioniert, sondern dass auch Israel und die Hamas jetzt Krieg miteinander führen.
+Und dass dabei, wie ich zusammen mit dir gesehen habe, auf beiden Seiten böse Kriegsgreuel begangen werden, wird von
+parteiischen Idioten nur der Hamas zugeschrieben.
+
+**Quetzal** Und der israelische Kriegsfanatiker Netanjahu ist keinen Deut besser als Hitler und Selensky in der Ukraine. Und
+die Kriegsverbrechen, die allseitig und nicht nur einseitig begangen werden, wozu im Nahen Osten auch viele Vergewaltigungen an Frauen und Mädchen begangen und diese dann umgebracht werden, wie du es auch im Vietnamkrieg gesehen
+hast, das ergibt sich bei beiden Kriegsparteien, was jedoch den Kriegsberichterstattern anscheinend verborgen bleibt. Ausserdem wird nur einseitig von den Greueltaten berichtet, während die andere Partei in Schutz genommen wird, wie es auch
+in der Ukraine geschieht. Und dass gar eigene Soldaten von ihren Kameraden erschossen werden, wenn sie nicht mehr
+kämpfen wollen oder die Fronten wechseln, das hast du schon mit Bermunda beobachtet, wie in der Ukraine auch Menschen an Ort und Stelle erschossen wurden, die in den Trümmern nach irgendwelchen Dingen suchten. Und wie ich nun im
+Nahen Osten gesehen habe, wurden vom Israelmilitär viele Zivilpersonen palästinesischer Herkunft rücksichtlos erschossen
+resp. ermordet, wie ich es gleicherweise aber auf palästinesischer Seite nicht gesehen habe und daher nicht weiss, ob es
+dort ebenfalls geschieht. Das sind Kriegsgreuel, die so unverständlich sind, wie das Gehabe des effectiv ausgearteten und
+völlig gewissenlosen Kriegsfanatikers Netanjahu. Und dass sich Amerika auch in diesen Krieg einmischt und grossen Nutzen
+daraus gewinnt, das ist derart klar, dass es nicht erst zu besprechen ist, denn der amerikanische Hegemoniewahn findet
+darin einen weiteren Fortschritt.
+Was nun weiter zu erwähnen ist: Bush Junior wurde ja nicht nur durch den Wahlbetrug in Amerika in den rechtschaffenen
+Kreisen verhasst, denn es war auch deswegen, weil seine Herkunftsfamilie sehr einflussreich und nicht sehr beliebt war. Im
+Jahr 2000 wurde er bei der gegen die Demokraten und den damals amtierenden Al Gore, den Vizepräsidenten, nach einem
+zweifelhaften Wahlergebnis zum Sieger erklärt, wonach er aber im Jahr 2004 abermals als US-Präsident gewählt wurde;
+diesmal wurde jedoch anderweitig gehandelt. Als nächster US-Präsident wurde dann der Rechtsanwalt Barack Hussein
+_Obama aus Honolulu, Hawaii, gewählt, ein farbiger US-amerikanischer Politiker, der Demokrat und dessen Vater aus Ke-_
+nia/Afrika eingewandert war. Die Wahl Obamas zum Präsidenten war von Skandalen geprägt, und es standen 10 Gegenkandidaten auf der Lauer. Obama ist ein Befürworter der Todesstrafe und damit ein Wolf im Schafspelz, denn diese Befürwortung widerspricht all dem, was er anderweitig gegen Menschendiskrimierung vorgab.
+
+**Billy** Krieg ist ja nichts anderes als sinnlos morden, und da ist diesbezüglich Amerika mächtig gross. Schon als der
+Amerikanische Unabhängigkeitskrieg von 1775 bis 1783 stattfand und Washington das Oberkommando über die amerikanischen Revolutionstruppen hatte, wurde ja bedenkenlos gemordet. George Washington, der ja einer der Mitbegründer
+Amerikas war und als 1. Präsident auftrat – wenn ich mich nicht irre, dann war das 1789 bis 1797 oder so –, war ein gewissenloser Mörder, der damals im Krieg einfach einen Offizier der Feindestruppen abknallte, als dieser in Begleitung einiger
+Soldaten und mit einer weissen Flagge ‹bewaffnet› – also sozusagen mit einer Friedensflagge – heranritt, einfach persönlich
+abknallte, ehe dieser auch nur ein Wort sagen konnte.
+
+**Quetzal** Das ist mir bekannt, denn Sfath hat dieses Vorkommnis in seinen Annalen beschrieben, wie viele andere Geschehen, bei denen ihr zus…
+
+**Billy** … ja, ich weiss, denn er war ein fleissiger Schreiber. Von Krieg und all den Greueln und sonstigen Vorkommnissen
+will ich eigentlich nichts mehr hören, folglich wir bezüglich diesartigen Vorkommnissen nicht mehr sprechen sollten. Grundsätzlich bringt es ja doch nichts und keinen Erfolg bei jenen Idioten, die im Wahn leben und meinen, dass das Nonplusultra
+doch Militär und Krieg die Lösung sei, damit Frieden geschaffen und erhalten werden könne. Darum haben wir ja auch in
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+der Schweiz die sogenannte ‹bewaffnete Neutralität›, weil bezüglich Wahnverblödeten und in dummen Köpfen die Idee
+vorherrscht, dass sich die Schweiz nutzvoll verteidigen könne, wenn diese von einem feindlichen Staat angegriffen würde.
+Wahrlich ist das nur ein absoluter Lächerlichkeitsglauben, denn das Land würde einfach überrannt, und es würde nur viele
+Tote, Leid und Elend sowie auch eine Zerstörung sondergleichen bringen. Daran denken die Militärfanatiker sowie jene
+feigen Angstvollen nicht, die in ihrer Verblödung meinen, in einem Krieg könnte sich eine Schweizerarmee gegen feindliche
+Angreifer derart verteidigen, dass für das Volk eine Sicherheit oder sonst ein Nutzen daraus entstehe. Diese völlig irre Ansicht und sogar der noch irrere Glaube daran, kostet das Schweizervolk sinnlos riesige Geldbeträge in Milliardenhöhe – wie
+in jedem anderen Land, das Verrückte hat, die von einer Armee von Militär begeistert sind. Diese wird durch Steuereintreibungen für verrückte Wahnideen von Militärfanatikern und sonstigen Nichtdenkenden und Phantasten, irren und wirren
+Regierungsköpfen betrieben, die ihre Macht für einen absurden Waffenkauf einer völlig nutzlosen Armee missbrauchen,
+obwohl sie in keinerlei Weise Wissen bezüglich eines Krieges haben und nur wirr und irr herumphantasieren. Dies auch
+darum, weil ihr Intelligentum offensichtlich noch derart unterentwickelt und eben nicht weit genug entwickelt ist, dass es
+dazu ausreichen würde, dass ihnen der Sinn der Logik sowie der notwendige Verstand und die Vernunft an und für sich
+eigen würden.
+Dass die Schweiz im Weltkrieg 1939 – 1945 von den NAZIs verschont geblieben ist, lag nicht am Schweizermilitär, sondern
+daran, dass die Schweiz der absoluten Neutralität verpflichtet war, die heutzutage von Idioten und sonstigen Unfähigen der
+Regierung in Bern zur Sau gemacht werden will, und zwar von jenen, die landesverräterisch mit der EU-Diktatur und der
+NATO liebäugeln – junge und des wahrlichen Denkens unfähige und unerfahrene Idioten, die lange nach dem Krieg geboren
+wurden, diesen nicht erlebt und nicht gehört haben, wie die NAZIs im Radio verlauten liessen: «Die kleine Schweiz, das
+Stachelschwein, die nehmen wir im Rückzug ein.» Dass dabei Adolf Hitler dies massgebend erlassen hatte, weil er hoffte,
+dass er beim Versagen in die neutrale Schweiz flüchten könnte, was offiziell niemand wusste – wofür ja vorgesorgt war,
+weil ja gewisse NAZI-Treue für diesen Fall alles vorbereitet hatten, was aber dann nicht zustande kam, weil Hitler, und Eva
+Braun von 2 seiner ‹Vertrauten› erschossen wurden, was dann als Selbstmord deklariert wurde, was aber als Wirklichkeit
+und Wahrheit nie an die Öffentlichkeit gelangte. Deshalb wird noch immer angenommen und behauptet, dass Hitler Selbstmord begangen und Eva Braun gleich in den Tod mitgenommen habe.
+Wenn nun aber von den Regierenden in Bern wahrlich nicht begriffen wird – und zwar egal welchen Alters, Berufes, Ansehens und Geschlechtes sie sind, und egal, dass sie lange nach dem Weltkrieg 1939 bis 1945 geboren wurden und nicht
+miterlebten, was tatsächlich war –, dass die Schweiz ihre absolute Neutralität vollauf braucht und diese zu wahren hat,
+dann kann bei ihnen nur eine absolute Idiotie vorherrschen, die in ihrem Kopf umherspukt, weil sie schon von frühester
+Jugend an einem Intelligentumdefekt schwersten Grades verfallen sind, der sie nur irr und wirr scheindenken und handeln
+lässt, zudem noch religiös bedingt und folglich gegenüber der Wirklichkeit abartig. Dies auch dann, weil sie in der Regierung
+ein Amt haben, welches sie aber infolge ihrer Idiotie nicht in rechtschaffener und verantwortungsvoller Weise auszuüben
+vermögen, weil ihnen die Rechtschaffenheit ebenso nicht eigen ist, wie auch ihren Befürwortern nicht. Doch das mit der
+Rechtschaffenheit ist dieserart nicht nur hier in der Schweiz so, dass solche Regierende in ihren Ämtern hocken, sondern
+praktisch in jedem der rund 200 Länder der Welt. Dies, wobei die Missregierenden – wie die rechtschaffen Regierenden –
+in der Regel monatlich als Entlohnung ca. das Zehnfache von dem einsacken, was der steuerzahlende Normalbürger im
+Monat mit ehrlicher und harter Arbeit verdient, wovon er noch Steuern zu bezahlen hat, und zwar eben auch für die Unrechtschaffenen unter den Rechtschaffenen der Regierenden.
+Was ich nun noch sagen will: Jenen dummen und also Nichtdenkenden – denn Dummheit ist ja nichts anderes als Nichtdenken, das nur den kranken dem Scheindenken frönenden Idioten eigen ist, die nichts mit den rechtschaffenen Regierenden zu tun haben –, die in den Regierungen hocken und meinen, dass sie die Grössten und wohl auch die Gescheitesten
+und Wertvollsten seien, bedeutet alle Rechtschaffenheit nicht das Geringste an Wertvollem. Davon sind natürlich alle ausgenommen, die Rechtschaffene sind, wobei diese jedoch selbst um ihr Rechtschaffensein wissen und sich auch nicht betroffen zu fühlen haben und eben nicht zu den Unrechtschaffenen dazuzuzählen sind. Dass die unrechtschaffenen Menschen nicht ganz normal und denkenskrank und also nur Scheindenkende sind, in der Regel noch religiös und feindlich sowie
+parteiisch bedingt, folglich sie an einem Intelligentumsdefekt schwersten Grades leiden, das ist unzweifelhaft.
+Dazu habe ich gegenteilig in den Dschungeln von Südamerika und im Fernen Osten zusammen mit Sfath Eingeborne erlebt,
+sogenannte Wilde und Primitive, wie diese von den sogenannten ‹Zivilisierten› genannt werden, die in jeder Weise Normaldenkende und friedlich waren und weder Krieg noch Töten oder Unfrieden, sondern nur wahrlichen Frieden kannten.
+Niemals habe ich bei diesen ‹Primitiven› erlebt, dass auch nur unter den Familienangehörigen Streitereien stattgefunden
+hätten. Nur bei Kannibalen war es wesentlich anders, denn bei denen war in der Regel eine gewisse Aggressivität vorhanden, zumindest bei jenen, die Gefangene machten, diese töteten und verzehrten; jedoch war diese Aggressivität nicht hassbedingt. Dies, während andere Stämme viel friedlicher waren, die nur ihre Verstorbenen aufgegessen haben, wie es ja auch
+noch heute der Fall ist, wie ich von mindestens 2 Stämmen weiss.
+
+**Quetzal** Darüber hat auch Sfath geschrieben; besonders bemerkenswert beschrieb er ein Vorkommnis, das ihr zusammen
+in der Vergangenheit erlebtet. Es ist in seinen Annalen die Rede von einem Kannibalenstamm in einem Gebiet im Osten,
+wo sehr grosse Menschen lebten. Ihr wart zusammen dort, ehe …
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Billy** … ah ja, ich denke, dass ich weiss, wovon du sprichst. Der Beschrieb bezieht wohl auf ein Land, wo heute nur
+noch Inseln sind, weil das Reich im Meer versunken ist oder so. Das Gebiet dort war weites Land, hatte aber auch einen
+grossen Urwald, in dem ein Kannibalenstamm lebte, den ich mit Sfath kennenlernte, der aber friedlich war und nur jene
+des eigenen Stammes verfutterte, wenn welche starben. Sie führten keine Kriege oder Raubzüge, auch weiss ich nicht, ob
+dort noch andere Kannibalenstämme oder sonstige Eingeborene im Dschungel lebten. Es war aber weit ausserhalb des
+Dschungels eine grosse Stadt, in der wirklich grosse Riesen lebten, eigentlich Giganten, wie Andron einer ist, also 5 bis 6
+Meter gross. Wie Sfath diese nannte, und woher sie kamen, das weiss ich nicht mehr, aber meines Wissens wird heute
+gesagt, dass dort ein Land namens MU gewesen sei. Wenn es aber tatsächlich das Land war, wo Sfath und ich damals waren,
+dann ist davon wirklich nichts mehr vorhanden, wie ich in den 1940er Jahren gesehen habe, als Sfath und ich sehen wollten,
+wie es heute aussieht und sich alles verändert hat seit damals, als wir vor etwa 2 oder 3 Jahrzehntausenden in der Vergangenheit dort waren. Wenn es wirklich jenes Gebiet ist, dann sind dort heute wirklich nur noch einige Inseln, weil alles im
+Meer versunken ist und die Riesen, oder eben die Giganten, die dort lebten, sich wohl abgesetzt hatten, als das Gebiet dort
+vermutlich im Meer verschwand. Anderweitig lernte ich zusammen mit Sfath im Fernen Osten in den 1940er Jahren auch
+2 Kannibalenstämme kennen, die kriegerisch veranlagt waren, Nachbarstämme überfielen, Gefangene machten und diese
+dann töteten und auffrassen. Auch fanden Sfath und ich Anschluss bei einem Kannibalenstamm, der seine eigenen Toten
+nicht aufass, sondern diese in seinen rauchvollen Hütten aufstellte und austrocken liess. Die auf diese Weise Mumifizierten
+wurden verehrt und setzten mit der Zeit richtige Russschichten an, doch verblieben diese derart lange in den Hütten, wie
+diese bestanden. So kam es vor, dass diese gar 2 oder 3 Generationen überstanden, wobei allerdings zu sagen ist, dass
+diese Kannibalen, wie andere auch, nicht alt wurden, folglich schnell eine andere nächste Generation nachwuchs. Da vermag ich mich zu erinnern, dass nach Sfaths Feststellungen kein Mensch älter als 38 Jahre alt wurde, wonach der dann ‹uralt›
+starb.
+
+**Quetzal** Das mag wirklich so gewesen sein, denn ich erinnere mich, dass Sfath etwas Derartiges geschrieben hat.
+
+**Billy** Ja, das hat er sicher aufgeschrieben, denn er betrieb ja diesbezüglich Studien, daher war es wohl so, dass er
+darüber auch viel geschrieben hat. Nun aber etwas anderes: Da bringen sie im Fernsehen immer wieder mal Aufnahmen
+von Lichterkugeln, die des Tags oder des Nachts irgendwo hoch in der Luft schwebend gesehen werden und ‹herumkurven›.
+Diese werden dann im falschen Glauben als UFOs bezeichnet, eben dass es sich um ausserirdische Flugobjekte handle.
+Diesbezüglich werde ich oftmals danach gefragt, doch wenn die Lichter beschrieben werden, dann können das meines
+Verstehens nur kleine oder grosse Orbs sein, resp. Plasmabälle resp. eine Art Erdgasbälle. Diese können sehr klein, jedoch
+auch recht gross sein und gar mehrere oder gar viele Meter Durchmesser haben. Aus Japan schickt mir sogar immer wieder
+ein Mann Photos von solchen kleinen Gasobjekten, die eigentlich Orbs genannt werden, die er photographiert und behauptet, dass es ‹Geister› von Verstobenen seien. Er lebt richtiggehend in diesem Wahn und lässt sich nicht belehren, sondern
+er meint sogar, dass ihr Plejaren und die Sonaer wie auch ich uns irren würden, weil es sich wirklich um ‹Geister› von
+Verstorbenen handle.
+
+**Quetzal** Glauben ist leider ein Wahn, der die Wirklichkeit und deren Wahrheit derartig verdrängt, dass selbst gewaltsamer
+Tod dafür erduldet wird.
+
+**Billy** Das ist leider so, ja. Das ist auch bekannt von vielen weiblichen und männlichen Glaubensmärtyrern, die sich für
+ihren Glaubenswahn massakrieren, vierteilen, foltern, verbrennen, ersäufen, erwürgen, rädern, erstechen und von Raubtieren töten und fressen liessen usw. Ausserdem will ich dir noch diesen Artikel hier vorlegen, den du lesen solltest.
+
+**Quetzal** Was du alles sagtest, das sind Geschehen, die hier auf der Erde stattgefunden haben, worüber ich während den
+letzten Wochen viel gelesen habe. Doch nun ist es Zeit für mich, dass ich meinen Verpflichtungen nachgehe. Aber erst will
+ich noch das lesen, was du mir hier gibst …
+
+### Bevölkerungswachstum – ein Schlüsselproblem unserer Zeit
+**Erklärung der Initiative Bevölkerungspolitik anlässlich der UN-Klimakonferenz in Dubai**
+**(COP 28) ECO-News-die grüne Presseagentur**
+Presse-Stelle: ECO-News Deutschland, D-81371 München
+Rubrik: Politik& Gesellschaft
+Datum: 27.11.2023
+
+_Neben verbindlichen, sanktionsbewährten Vereinbarungen für eine rasche und deutliche Reduktion der Treibhausgase_
+_und finanziellen Hilfen zur Bekämpfung der Folgen des Klimawandels halten wir es für dringend geboten, das nach wie_
+_vor hohe Bevölkerungswachstum zum Gegenstand der Verhandlungen zu machen. Vor allem die reichen Industrieländer_
+_sind in der Pflicht, durch ein absolutes Absenken ihres Ressourcenverbrauchs zur Erhaltung unserer natürlichen Lebens-_
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+_grundlagen beizutragen. Die Garantie menschenwürdiger Lebensbedingungen weltweit setzt aber ebenso entschlossene_
+_Massnahmen zur Eindämmung des Bevölkerungswachstums voraus. Unsere diesbezügliche Position haben wir in unserer_
+_beiliegenden Erklärung näher erläutert. Wir appellieren an die politischen Verantwortlichen, sich für die Einbeziehung_
+_dieses wichtigen Aspekts einzusetzen. Ohne eine Reduktion des Bevölkerungswachstums sind weder ökologische Nach-_
+_haltigkeit noch soziale Gerechtigkeit zu erreichen._
+
+**Einleitung**
+Wir sind drei Autoren, Vortragende und Aktivisten, die seit Jahrzehnten in vielfacher Hinsicht in den Bereichen Ökologie, Wirtschafts-und Gesellschaftspolitik publizieren und aktiv sind (siehe auch die Kurz-Vitae am Ende dieses
+Texts). Einer von uns, Saral Sarkar, indischer Staatsangehöriger, der die ersten 45 Jahre seines Lebens in Indien verbracht hat und seit 1982 in Deutschland lebt, kennt die Lebensrealitäten und unterschiedlichen Zugänge aus beiden
+Welten (der eines Entwicklungs-und Schwellenlands, der eines reichen Industrielands) sehr gut.
+Während die vielfältigen Symptome der ökologischen und humanitären Krisen immer deutlicher zu Tage treten, ist
+es doch erstaunlich, dass eine ganz wesentliche und im Grunde offensichtliche Mitursache kaum Erwähnung findet –
+eine nach wie vor sehr stark wachsende Bevölkerung (global und insbesondere in vielen Krisengebieten). Wie sicher
+bekannt ist, wurde vor kurzem die Marke von 8 Milliarden Menschen weltweit überschritten.
+Wir sind uns dessen bewusst, dass wir bei der Analyse der Ursachen der verschiedenen Krisen nicht auf das Bevölkerungswachstum reduzieren dürfen und dass diese heikle Thematik eine behutsame Herangehensweise erfordert.
+Dennoch halten wir diese Thematik für deutlich unterbewertet und unterbelichtet. Es gibt dazu praktisch keinen öffentlichen Diskurs, das Thema wird tendenziell verdrängt und totgeschwiegen.
+Wir bitten Sie, unsere im Folgenden kompakt dargestellte Position zu lesen und zu überdenken.
+Wir freuen uns über Ihr Feedback, über Ihre Unterstützung, über ihr Aktivwerden im Sinne unserer Positionen.
+
+**Das Problem**
+Nach wie vor wächst die Weltbevölkerung sehr stark – pro Jahr um die stattliche Zahl von etwa 85 bis 90 Millionen
+Menschen. Bildlich gesprochen, wachsen der Welt also pro Jahr ein Deutschland oder zehn Österreichs zu, zumindest
+auf die Bevölkerungsanzahl dieser Länder bezogen.
+In welchen Häusern werden diese zusätzlich hinzugekommenen Menschen wohnen, wovon werden sie sich ernähren,
+wie werden sie mobil sein, welche Jobs werden sie einmal haben (wenn sie überhaupt einmal welche haben werden),
+haben sie überhaupt die Chance auf (und die materiellen Möglichkeiten für) ein gelingendes und menschenwürdiges
+Leben?
+Dieses Wachstum findet auf einem ‹ächzenden Planeten› statt, auf dem die Grenzen des Wachstums bereits erreicht
+sind, worauf viele Indikatoren hinweisen. Die Ökosphäre, auf die wir als Spezies Homo sapiens und alle anderen Arten
+für ihr Überleben angewiesen sind, ist bereits schwer in Mitleidenschaft gezogen worden.
+Das Wachstum der Weltbevölkerung geht Hand in Hand mit den verschiedenen Belastungen unserer natürlichen Umwelt, wie etwa den Treibhausgas-Emissionen, dem Bodenverbrauch, oder dem Verbrauch an mineralischen und biogenen Ressourcen. Es wäre natürlich falsch, für diese Belastungen alleine das Bevölkerungswachstum verantwortlich
+zu machen. Genauso falsch wäre es aber auch, seine Bedeutung auszublenden und herunterzuspielen. Noch stärker
+gewachsen als die Weltbevölkerung ist nämlich seit dem Beginn der Industrialisierung das Verbrauchsniveau pro
+Kopf – aber beide Triebkräfte zusammen üben einen massiv zunehmenden Druck auf die Ökosphäre und unsere planetare Ressourcenbasis aus.
+Es zeichnet sich auch sehr deutlich ab, dass technologische Innovationen alleine bei Weitem nicht ausreichen werden,
+um uns ‹zu retten› (auch wenn das viele bzw. die meisten nicht wahrhaben wollen). Beispielsweise wird sich die von
+vielen befürwortete und angestrebte Energiewende nicht in der erwarteten/geplanten Art umsetzen lassen.
+Bei genauerem Hinsehen weist dieses Vorhaben zu viele Schwachstellen, Dilemmata und Begrenzungen auf.
+Letztlich kann nur in einer Postwachstumsgesellschaft, wie auch immer diese konkret aussehen mag, ein längerfristiges Überleben und auch (einigermassen) gutes Leben, möglich sein. Eine Postwachstumsgesellschaft bedeutet, dass
+einerseits das Wachstum der Bevölkerung zu Ende gehen muss, diese sogar auf ein deutlich niedrigeres, verträglicheres Niveau schrumpfen sollte, aber auch, dass der materielle Verbrauch pro Kopf nicht auf dem derzeitigen hohen
+Niveau bleiben kann, also ebenfalls deutlich schrumpfen muss.
+Diese Reduktion des Pro-Kopf-Konsums gilt zwar in erster Linie für die reichen Länder (im sogenannten ‹globalen
+Norden›), aber sie gilt auch für gar nicht so wenige Menschen in den Schwellen-und Entwicklungsländern, die bereits
+einen relativ hohen Lebensstandard erreicht haben. Und sie gilt auch deswegen, weil sich die Hoffnungen der meisten
+Menschen in diesen Ländern auf einen hohen materiellen Lebensstandard nicht verwirklichen lassen – und wenn,
+dann nur um den hohen Preis einer weiteren Beeinträchtigung und Zerstörung der lokalen und globalen natürlichen
+Umwelt.
+Ohne Stopp des Bevölkerungswachstums und in weiterer Folge auch Rückgang der Weltbevölkerung wird also eine
+nachhaltige, ökologisch einigermassen verträgliche Entwicklung nicht möglich sein. Entweder wird diese Schrumpfung auf bewussten, willentlichen Weg herbeigeführt, oder sie passiert ungeordnet chaotisch in Form des Kollapses
+von Gesellschaften.
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Es ist kein Zufall, dass viele Konflikte und Kriege gerade in Regionen stattfinden, in denen die Bevölkerung seit Langem schier ungebremst wächst. Auch der jüngst wieder hochgekochte Nahostkonflikt hat eine starke demografische
+Komponente, auch wenn diese nicht im Fokus der Berichterstattung und Analysen steht.
+Wie so vieles auf der Welt ist auch die Bevölkerungsdynamik sehr ungleich ausgeprägt. Während es einige Regionen
+gibt, die bereits einen demografischen Übergang geschafft haben, in denen die Bevölkerung also nicht mehr wächst
+oder eventuell sogar zurückgeht, gibt es andere Regionen, in denen die Bevölkerung noch massiv wächst und auch
+ein demografischer Übergang nicht klar erkennbar ist.
+Ein besonderer Hotspot ist in dieser Hinsicht Subsahara-Afrika. Prognosen der UN gehen mindestens von einer Verdreifachung der Bevölkerung in dieser Region bis 2100 aus.
+Angesichts der Instabilität und der Vielzahl an Problemen, die es in dieser Grossregion jetzt schon gibt, ist dieser
+Ausblick auf eine Bevölkerungsvervielfachung in den nächsten Jahrzehnten nur als demografische Katastrophe zu
+begreifen. Eine Katastrophe, der die Weltgemeinschaft weitgehend rat- und tatenlos zusieht.
+Aber auch in anderen Weltregionen gibt es nicht-nachhaltige, problematische Entwicklungen. So wächst im mittlerweile bevölkerungsreichsten Land der Welt, in Indien, die Bevölkerung pro Jahr um etwa 14 Millionen. Mehr als 15
+Prozent des globalen Bevölkerungswachstums findet also allein in diesem Land statt.
+
+**Und die ‹Lösung›? Gibt es überhaupt eine?**
+Wenn man nun die grundsätzliche Richtigkeit dieses Problemaufrisses anerkennt – zumindest weitgehend bzw. in
+entscheidenden Bereichen –, stellen sich viele Fragen.
+Was kann man tun? Kann man auf die Entwicklung der Bevölkerung überhaupt Einfluss nehmen, insbesondere wenn
+die betroffenen Menschen in weit entfernten geographischen Regionen und auch in anderen Kulturkreisen leben? Ist
+es überhaupt legitim, wenn "wir im globalen Norden" (oder Westen) darüber nachdenken, was andere (Länder, Regionen, Gruppen von Menschen) tun sollen oder dürfen? Ist das nicht vielleicht anmassend und angesichts einer von
+Ausbeutung geprägten kolonialen Vergangenheit unangebracht? Und haben nicht Beispiele von Bevölkerungspolitik
+aus der Vergangenheit gezeigt, dass diese inhärent reaktionär und menschenverachtend ist?
+Trotz aller Bedenken und Einwände denken wir, dass es an der Zeit ist, diese defensive Haltung zu überwinden und
+die Tabuthemen Bevölkerung, Bevölkerungswachstum und Bevölkerungspolitik aus der Tabuzone zu holen.
+Eine Eindämmung des Bevölkerungswachstums ist nicht nur eine planetarische Notwendigkeit, sondern liegt ebenso
+im eigenen Interesse der betroffenen Länder, die mit einer stark wachsenden Bevölkerung in jeder Hinsicht überfordert sind.
+Bevölkerungspolitik ist nicht von vornherein reaktionär. Wie auf anderen Politikfeldern auch kommt es auf die konkrete Ausgestaltung an. Ein möglichst hohes Mass an Partizipation, Aufklärung und Selbstermächtigung der Menschen, die auf deren Mündigkeit setzt, beugt einem Missbrauch vor. Dafür gibt es da und dort bereits ermutigende
+Beispiele, etwa die Aufklärungsarbeit von Hermione Quenum in Benin.
+
+#### Was also kann getan werden? Wo könnte es konkrete Ansatzpunkte für Initiativen geben?
+
+**1. Zum Thema machen, sichtbar machen**
+Uns ist bewusst, dass es für Politiker aus (reichen) Ländern mit ehemaliger kolonialer Vergangenheit besonders
+schwierig ist, dieses Thema öffentlich zu thematisieren. Aber sie haben die Möglichkeit, Amtskollegen in Ländern im
+globalen Süden in direkten Gesprächen auf die Dringlichkeit der Thematik hinzuweisen.
+Wichtig ist eine Klarheit in der Kommunikation. Etwa indem klar gemacht wird, dass hohe Kinderzahlen nicht mehr
+Reichtum, sondern im Gegenteil noch mehr Armut und noch mehr Unterentwicklung bedeuten. Und dass es nicht nur
+‹böse Mächte von aussen› sind, die für Unterentwicklung und Perspektivlosigkeit in diesen Regionen sorgen, sondern
+dass es auch einen relevanten hausgemachten Anteil darangibt und dass dazu zuvorderst ein hohes Bevölkerungswachstum zählt.
+Politiker aus Ländern des ‹Nordens› können anbieten, Programme mit bevölkerungspolitischen Inhalten in den Problemländern finanziell zu unterstützen (siehe auch Punkt 2).
+Darüber hinaus gibt es vielfache Möglichkeiten, das Problem des Bevölkerungswachstums auf verschiedenen Ebenen
+sichtbar zu machen: an der Basis durch NGOs auf lokaler, regionaler und globaler Ebene; im Rahmen von UN-Organisationen, durch internationale Konferenzen, in denen entsprechende Initiativen, Massnahmen und ermutigende Beispiele vorgestellt werden, etc. Es muss vor allem klar herausgestellt werden, dass das Engagement für den Erhalt
+unserer Lebensgrundlagen und eine gesunde Umwelt eng mit einer vernünftigen Bevölkerungspolitik zusammenhängt.
+
+**2. Neuorientierung der Entwicklungszusammenarbeit**
+Ein sehr wirksamer Ansatzpunkt stellt aus unserer Sicht eine Neuorientierung der Entwicklungszusammenarbeit dar.
+Gelder für Entwicklungshilfe bzw. Entwicklungszusammenarbeit können in Abhängigkeit von der Existenz von Bevölkerungspolitik beziehungsweise in Abhängigkeit von der Effektivität einer eventuell existierenden Bevölkerungs
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+politik vergeben werden. Bevölkerungspolitische Massnahmen (siehe Punkt 3) selbst brauchen Finanzierung, die vermutlich zu einem grossen Teil von aussen kommen muss. Solche zweckgebundenen Mittel würden zu den effektivsten
+Arten der Entwicklungshilfe gehören.
+Auch der Aufbau von Kontroll-, Unterstützungs- und Beratungsmechanismen braucht finanzielle Unterstützung von
+aussen.
+
+**3. Bevölkerungspolitische Massnahmen**
+Es gibt eine ganze Reihe nicht-repressiver Massnahmen, die auch in verschiedenen Ländern bereits erprobt wurden.
+Dazu zählen:
+
+- Aufklärungs-und Bildungsprogramme, insbesondere für junge Frauen und Mädchen
+
+- ‹positive Campaigning›, z.B. Werbung für Kleinfamilien (für 2-Kind-Familien), wie das auch in Indien in den
+1970er-Jahren gemacht wurde
+
+- Kostenloser Zugang zu Verhütungsmitteln
+
+- finanzielle Anreize bei freiwilligen Sterilisationen (von Männern und Frauen)
+
+- staatliche Garantie einer Altersversorgung für die ärmeren Schichten, die an den Verzicht auf Kinder über zwei
+hinaus gekoppelt ist
+
+- Aufbau von Beratungs-und Förderstrukturen als Teil der Entwicklungszusammenarbeit (siehe auch Punkt 2).
+
+**Wer wir sind:**
+**Initiative Bevölkerungspolitik**
+
+- **Dr. Bruno Kern, geb. 1958. Autor, Übersetzer, Vortragender. Veröffentlichte u.a. ‹Das Märchen vom grünen**
+Wachstum› (2019). Lebt und arbeitet in Mainz.
+
+- **Saral Sarkar, geb. 1936 in Westbengalen (Indien), lebte bis 1982 in Indien, danach in Köln. Autor und Aktivist.**
+Veröffentlichte u.a. ‹Eco-Socialism or Eco-Capitalism. A Critical Analysis of Humanity's Fundamental Choices›
+(1999).
+
+- **Dr. Ernst Schriefl, geb. 1969. Mitarbeiter eines Technischen Büros für Bauphysik und Energieeffizienz. Daneben**
+auch publizistisch tätig (u.a. Buch ‹Öko-Bilanz›, 2021). Lebt und arbeitet in Wien.
+_Quelle: http://www.eco-world.de/scripts/basics/econews/basics.prg?session=42f9425265665d2c_784476&a_no=44104_
+**_(Erlaubnis zur Wiederverwendung in einem FIGU-Organ erteilt am 5. Dezember 2023 durch Herrn Dr. Bruno Kern)_**
+
+**Billy** Was sagst du dazu?
+
+**Quetzal Darüber will ich mit dir sprechen, wenn ich wieder zurück bin, denn jetzt habe ich wirklich zu gehen und meiner**
+Pflicht zu obliegen. Auf Wiedersehen, Eduard, mein Freund – also bis später.
+
+**Billy** Dann halt dich gut, und auf bald wieder. Tschüss, Quetzal.
+
+COPYRIGHT und URHEBERRECHT 2023 bei ‹Billy› Eduard Albert Meier, ‹Freie Interessengemeinschaft Universell›, Semjase Silver Star
+Center, 8495 Schmidrüti, Schweiz. Kein Teil dieses Werkes, keine Photos und sonstige Bildvorlagen, keine Dias, Filme, Videos und keine
+anderen Schriften oder sonstige Materialien usw. dürfen ohne schriftliche Einwilligung des Copyrightinhabers in irgendeiner Form (Photokopie, Mikrofilm oder ein anderes Verfahren), auch nicht für Zwecke der Unterrichtsgestaltung usw., reproduziert oder unter Verwendung elektronischer Systeme verarbeitet, vervielfältigt oder verbreitet werden.
+
+Veröffentlicht auf www.FIGU.org durch:
+‹Freie Interessengemeinschaft Universell›, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+

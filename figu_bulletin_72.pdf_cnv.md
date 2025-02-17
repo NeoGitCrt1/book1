@@ -1,0 +1,1215 @@
+# FIGU-BULLETIN
+
+##### Erscheinungsweise: Internet: http://www.figu.org 16. Jahrgang Sporadisch E-Mail:  info@figu.org Nr. 72, Dez. 2010
+
+## Umzug ins Center
+Dieses Jahr, am 30. Januar 2010, fand in Hinterschmidrüti ein Ereignis statt, bescheiden und unbemerkt
+von der Öffentlichkeit, für das Center, seine internen und externen Zugehörigen und vor allem für die
+Hauptakteure aber von grosser Bedeutung.
+Als Engelbert Wächter gestorben und seine Familie ausgezogen war, stellte sich die Frage, wer bezieht
+die verwaiste Wohnung in der Hinterschmidrüti? Demokratisch wie immer wurde jedem die Möglichkeit
+gegeben, sich für diese Wohnung zu bewerben. Bald wurde klar, dass es zwar schon das eine oder
+andere Kerngruppe-Mitglied gelüstete, dass aber die damit verbundenen Umtriebe, der Umbau der
+Wohnung, für den die zukünftigen Bewohner selbst aufkommen mussten, und die damit verbundenen Arbeiten, Mühen und Kosten die Bewerberauswahl auf ein einziges Paar zusammenschrumpfen liess. Dieses
+Paar heisst Barbara und Andreas. Was dieser Entscheid für die beiden bedeutete, davon hier ein paar
+wenige Eindrücke von mir, als mitfühlende aber doch aussenstehende und unvollkommene Beobachterin:
+Barbara und Andreas bewohnten ein Haus in Turbenthal, das sie auch mit ihrer Hände Arbeit in ein
+Schmuckstück verwandelt hatten und an dem vor allem Barbara mit Herzblut hing. Mit Sicherheit sind
+dem Entscheid, das Projekt in Angriff zu nehmen und durchzuziehen, viele innere Kämpfe vorausgegangen. Für Andreas mögen diese nicht so schwerwiegend gewesen sein wie für seine Partnerin, aber auch
+für ihn war die ganze Situation wohl ziemlich kräftezehrend.
+Andreas ist selbständigerwerbender Zimmermann, der viele Monate auf Einkünfte verzichten musste, da
+er die Wohnung in Hinterschmidrüti mit der ihm eigenen Liebe zum Detail so formvollendet renovierte,
+dass man sich kaum darin sattsehen kann. Derweil ging Barbara weiterhin ihrer Arbeit als Kindergärtnerin nach und absolvierte und absolviert noch immer nebenher ein 2½-jähriges Studium zur schulischen
+Heilpädagogin. In diese für sie sehr arbeits intensive und emotional belastende Zeit fiel der Umzug nach
+Hinterschmidrüti.
+Was auch nicht unterschätzt werden darf, ist der Umstand, dass es für Familien und Freunde und unter
+Umständen auch für Arbeitgeber und Kunden zum Teil sehr befremdlich ist, wenn man ein eigenes Haus
+aufgibt und in eine Wohnung in einem Bauernhaus zieht, dessen Bewohner von vielen Menschen leider
+irrtümlich als einer Sekte zugehörig bezeichnet werden. Bei aller Liebe und Zugehörigkeit zur FIGU muss
+man mit diesem Gedanken erst mal vertraut werden und nach und nach vor- und verarbeiten, was da an
+potentiellen Angriffen, Ablehnung, Misstrauen und Verhunzungen auf einem zukommt. Dann muss man
+auch sehen, dass das Privatleben keinen so grossen Stellenwert mehr hat wie bisher. Zwar lebt man in
+der eigenen Wohnung, aber die Centerbewohner sind allgegenwärtig, was beileibe nicht immer eitel
+Freude ist. Freilich gibt es auch den positiven Aspekt, nämlich das Miteinander und Füreinander unter
+sich nahestehenden Gleichgesinnten und das Privileg, mit dem Propheten der Neuzeit unter einem Dach
+zu leben. Durch ihre Gegenwart, ihren Einsatz und ihr Dasein unterstützen die Center bewohner Billy in
+seiner schweren Mission und ermutigen auch die der Gruppe Angehörenden und Nahe stehenden, ihr
+Ziel nicht aus den Augen zu verlieren, ein Umstand, der von hoher Gesinnung zeugt.
+
+
+-----
+
+Für mich persönlich ist der Entscheid der beiden, in der Hinterschmidrüti ihre neuen Wurzeln zu schlagen,
+ein Glücksfall. Sie beide, Andreas als engagierter und gradliniger Präsident und vorbildhafter Figuaner,
+Barbara als warmherzige, humorvolle und kluge Frau und ebenfalls eine dynamische Figuanerin, die den
+echten Sinn dieses Wortes lebt, bereichern das Center in jeder Hinsicht und geben dessen ‹Seele› noch
+mehr Wärme und Farbe.
+Ihnen beiden möchte ich von Herzen danken, dass sie JA gesagt haben zu diesem mutigen Schritt; er ist
+für uns alle eine Bereicherung.
+Brigitt Keller, Schweiz
+
+## Auszüge aus dem 498. offiziellen Kontaktgespräch vom 31. Juli 2010
+**Billy** … Aber wieder etwas anderes: Du weisst sicher, was sich in Duisburg in Deutschland zugetragen hat bei der ‹Love Parade›, eben dass es dort 21 Tote gegeben hat. Meines Erachtens sind solche
+Veranstaltungen kriminell, wenn man bedenkt, dass dabei immer die Gefahr besteht, dass Menschen ihr
+Leben verlieren, wie dadurch, dass sie totgetrampelt werden, durch Alkoholorgien und Hysterie umkommen oder durch Schlägereien sowie durch Terrorakte usw. getötet werden. Dazu denke ich, dass solche
+Massenansammlungen von Menschen, und zwar auch in kleinerem Rahmen, verboten sein müssten. Da
+das aber nicht der Fall ist und es bei solchen oder ähnlichen Veranstaltungen immer wieder Tote oder
+Schwerverletzte gibt, ist es dann billig, dafür nur bei den Veranstaltern die Schuld zu suchen. Meines Erachtens sind alle schuld, sowohl die Veranstalter wie auch die Behörden und Sicherheitsorgane, die diesen
+Unsinn erlauben, wie aber auch die Teilnehmenden an einem derartigen Schwachsinn selbst. Dazu nun
+meine Frage, wie ihr es bei euch handhabt bei kleinen und grossen Veranstaltungen, wenn solche bei
+euch überhaupt gegeben sind?
+
+**Ptaah** Auch bei uns werden kleine und grosse Veranstaltungen durchgeführt, wobei es jedoch nicht
+erlaubt ist, grosse Veranstaltungen zwischen Gebäuden durchzuführen. Grossveranstaltungen, bei denen
+mehr als 200 Personen teilnehmen, sind nur auf freiem und offenem Gelände oder in entsprechenden
+Stadien weit abseits der Wohngebiete erlaubt. Bis zu 200 Personen dürfen Veranstaltungen in halbgeschlossenen Räumlichkeiten ausserhalb der Wohngebiete abgehalten werden, wobei vorgeschrieben ist,
+dass genügend und umfassend grosse Entweichmöglichkeiten resp. Ausgänge und jegliche Sicherheit in
+jeder Beziehung gegeben sein müssen, damit auch bei eventuellen Unfällen usw. keine Menschen zu
+Schaden kommen. Und was Unfälle bei solchen Veranstaltungen betrifft, so ist mir aus den Annalen in
+bezug auf Veranstaltungen bekannt, dass seit über 900 Jahren infolge der strengen Sicherheitsmass nahmen
+keine mehr vorgekommen sind. Massenansammlungen von Menschen, die in dichter Form Zusammenballungen bilden, sind bei uns nie gegeben, so aber auch kein Fanatismus und keine Gewalttaten, wie
+das z.B. auf der Erde bei Fussballveranstaltungen und bei Trinkgelagen usw. der Fall ist. Alles spielt sich
+bei uns in vernünftigem und menschenwürdigem Rahmen ab, was bei den Erdenmenschen leider bei allen
+möglichen Veranstaltungen nicht gesagt werden kann. Auch hinsichtlich Drogen und Alkohol treten bei
+uns keinerlei Probleme in Erscheinung, wie das gegensätzlich in menschenunwürdiger Weise bei den Erden menschen bei jeder möglichen Gelegenheit immer wieder der Fall ist. Sowohl der Fanatismus und die
+Gewalttaten wie auch der Drogen- und Alkoholmissbrauch weisen auf eine mangelhafte Entwicklung in
+bezug auf das Bewusstsein, den Verstand und die Vernunft sowie das Erkennen und Tragen der Verantwortung hin, was einmal klar gesagt und festgehalten sein muss. Überdachte Veranstaltungsgebäude, die
+Hunderte oder Tausende von Besuchsteilnehmern fassen, müssen nach allen Seiten offen und frei zugänglich sein, wie sie auch so sein müssen, dass sie jederzeit ungehemmt frei verlassen werden können.
+Das sichert auch ab, dass unter den Besuchsteilnehmern kein Gedränge und keine Panik entstehen kann.
+Bei Notwendigkeit werden gegenüber den Besucherteilnehmern oder Zuschauern usw. abgegrenzte und
+
+
+-----
+
+erhöhte Bühnen erstellt, auf denen Reden gehalten oder Aufführungen und Darbietungen geboten werden, die zur Freude und Erheiterung usw. des teilnehmenden Publikums oder der Zuschauer dienen. Bei
+grösseren Veranstaltungen sind auch grosse Sichtschirme angebracht, damit auch in weiterer Entfernung
+das Spiel, die Rednerperson, die Darbietung oder Vorführung gesehen und mitverfolgt werden kann. Bei
+Bedarf sind auf dem Boden einfache Sitzgelegenheiten aufgestellt, die jedoch nicht überdacht sind und
+auch keine ansteigenden Sitzreihen haben dürfen. Es sind aber auch offene und überdachte Veranstaltungsstadien gegeben, die ansteigende Tribünen resp. ansteigende Sitzgelegenheiten aufweisen. Die
+Überdachungen müssen dabei in höchstem Masse die Sicherheit bieten, dass sie nicht einbrechen können.
+Gleichermassen sind auch für die ansteigenden Tribünensitzgelegenheiten die höchstmöglichen Sicherheiten verordnet, folglich nur Materialien Verwendung finden, die jegliche Sicherheit gewährleisten und
+höchstem Gewichtsdruck standhalten. Ausserdem sind die Sitzreihen so angeordnet, dass nur acht Perso nen nebeneinander auf einer Sitzreihe Platz finden, wobei beidseitig der Sitzreihen eine Treppe ist, die so
+breit ist wie die Sitzreihe selbst und die diese seitwärts von der nächsten Sitzreihe trennt. Beim Ganzen
+sind die Treppen so konstruiert, dass von ihnen aus jederzeit auf der Rückseite zum Zentrum des Veranstaltungsplatzes direkt ins Freie gelangt werden kann. So sind alle unsere grossen und überdeckten Veranstaltungs stadien ausgerichtet. Die Anzahl der hintereinander ansteigenden Sitzreihen ist dabei ebenso beschränkt wie auch die sich nebeneinander befindenden Sitzreihen. Die gesamte Anzahl wird dabei
+durch die Grösse der jeweiligen Veranstaltungsstadien bestimmt, wobei jedoch verordnet ist, dass die Besucherzahl gemäss der Grösse der Stadien beschränkt ist und niemals überschritten werden darf. Und
+was nun das Geschehen betrifft, das du angesprochen hast, so ist zu solchen Veranstaltungen, wie sie
+auf der Erde vorherrschen, zu sagen, dass das Ganze einer völligen Verantwortungslosigkeit entspricht.
+Solche Veranstaltungen dürften in der geschehenen Weise nicht erlaubt, sondern derart organisiert sein,
+dass weder Unfälle geschehen noch Alkohol genossen oder Tote in Erscheinung treten dürfen. Wer solche
+Veranstal tungen auch nur befürwortet, selbst daran teilnimmt, sie organisiert oder sie erlaubt, macht sich
+schuldig am Tod, Unfall, Drogen- oder Alkoholexzess der Veranstaltungsteilnehmer. Damit muss ich also
+deine Ansicht bestätigen.
+
+**Billy** Solche Sicherheiten sollten auch rundum auf der Erde gelten. Aber etwas anderes: Vielen
+Menschen bereitet einfach das Jahr 2012 Kopfzerbrechen, denn sie haben Angst, weil all jene Idioten
+einen Weltuntergang prophezeien, die das Ende des Maya-Kalenders mit einer Weltuntergangskatastrophe verbinden. Dazu wird auch der bisher ausbleibende Zyklus der Sonnenaktivität herange zogen, die
+sich eigentlich schon lange gross bemerkbar machen müsste. Diese Aktivität kommt aber nur langsam in
+Gang, und das macht vielen Menschen Angst. Kannst du dazu vielleicht in einfacher Sprache eine kurze
+Erklärung geben, die auch von Laien verstanden wird?
+
+**Ptaah** Was du in bezug auf den Zyklus der Sonnenaktivität sagst, trifft tatsächlich zu, denn im
+Sonnen innern findet ein Änderungsprozess statt, der sich nicht nur auf sie selbst und ihre Tätigkeit,
+sondern auch auf die Erde und auf das ganze SOL-System auswirkt. Tatsache ist beim Vorgang auf der
+Sonne, dass der aktive Zyklus sich in einer Wandlung befindet, was dazu führt, dass sie sehr viel
+weniger Energie abstrahlt, als dies üblicherweise der Fall ist. Die Aktivität findet in viel geringerem
+Masse statt, als dies üblich ist, was zu verschiedenen Auswirkungen auf der Erde führen kann und die
+sich über Jahrzehnte hin ziehen können. Eine solche Wirkung kann z.B. die sein, dass sich eine weltweite langjährige Kälteperiode ausbreitet, oder es kann zu einem Sonnensturm kommen, der mit unge heurer Intensität als elektromagnetischer Sturm die Erde trifft. Dies hätte dann eine ungeahnte Tragweite
+für die Infrastruktur auf der Erde, denn der Magnetismus könnte unter Umständen alle Kommunika tionsund Navigationssysteme und die gesamte Funktion aller Satelliten und die elektrischen Kraftwerke sowie auch weltweit alle Leitungsnetze aller Art zusammenbrechen lassen, denn alles würde in höchstem
+Masse überlastet. In der Zeit der heutigen höheren Technisierung wären die Auswirkungen also katastro phal, was auch der Fall wäre, wenn eine mehrjährige Kälteperiode hereinbrechen würde, weltweit umwälzende Veränderungen stattfinden und Hungersnöte infolge Ernteausfällen usw. in Erscheinung treten
+
+
+-----
+
+würden. Und wird der letzte Winter mit seiner grossen Kälte und auch die gegenwärtig kalte Sommerzeit
+zur Erklärung hinzugezogen, dann könnte dies ein Zeichen einer ungewöhnlichen kalten Zeit sein, die
+sich durch die verlangsamte und wandelnde Sonnenaktivität ankündigt. Das steht aber noch nicht fest, denn
+die Aktivität kann sich auch plötzlich erhöhen und zumindest für die Jahre 2012, 2013 und 2014 gewaltige Magnetstürme bringen, die, wie ich schon sagte, auf der Erde für die Menschheit und die Natur
+katastrophale Folgen hervorrufen könnten. Diese hätten dann um das Vielfache schlimmere Auswirkungen
+als der letzte gewaltige Sonnensturm im Jahre 1859, von dem die Erde getroffen wurde und wodurch
+schon damals das Weltkommunikationsnetz zusammenbrach. In der heutigen Zeit, da die noch sehr anfälligen Technikformen in bezug auf die Kommunikation, Navigation, Unterhaltung, Medizin und Information usw., die, wie du einmal richtig gesagt hast, noch in den Kinderschuhen stecken, wäre ein solcher
+Zusammenbruch besonders schlimm, denn alle Formen dieser erdenmenschlichen Technik sind noch extrem
+anfällig und empfindlich. Und würde dieses Zusammenbruchszenario durch gewaltige Sonnenstürme auf
+die Erde hereinbrechen, dann würden von der Sonne wahre gigantische Ströme von Elektronen auf die
+Erde niederprasseln, wodurch elektrische Ströme hervorgerufen resp. induziert würden. Das bedeutet, dass
+Ströme und Spannungen in elektrischen Leitern durch bewegte Magnetfelder erzeugt würden. Dadurch
+könnten Kurzschlüsse in laufender Folge und damit auch langjährige Stromausfälle usw. in Erscheinung
+treten. Träfe dieses Szenario zu, dann kämen die gesamte Lebensmittel- und Medikamentenindustrie und
+die Wasserversorgung sowie die weltweite Kommunikation zum Erliegen. Doch das, was ich hier sage
+und erkläre, entspricht keiner Prophezeiung und keiner Voraussage, sondern das Ganze legt nur Möglich keiten offen, die unter Umständen Wirklichkeit werden können, wenn sich das eine oder andere ergibt.
+Was wirklich sein wird, das werden die kommenden Jahre erweisen, wobei wir diese aber nicht voraus schauend erforscht haben, folglich ich diesbezüglich auch keine Voraussagen zu nennen habe.
+
+**Billy** Was du erklärt hast, genügt vollauf, um alles verstehen zu können. Was vielleicht noch erwähnenswert ist, ist jene Tatsache, die in den Kontaktberichten genannt ist (Gespräch mit Quetzal, Pleja disch-plejarische Kontaktgespräche, Block 5, 219. Kontaktbericht vom 16. Juni 1987, Seite 361; und Gespräch mit Ptaah, Block 7, 251. Kontaktbericht vom 3. Februar 1995, Seiten 328–340), dass die SOL
+resp. unsere Systemsonne ein sterbender Stern ist. Die Sterbesymptome unserer Sonne sind unter anderem,
+dass sie stetig kleiner wird und also schrumpft, wie aber auch, dass sie immer mehr innere physikalische
+Wandlungen durchmacht und schwächere Aktivitäten aufweist. Wenn ich mich richtig erinnere, haben
+wir auch privaterweise über diese Dinge gesprochen, wobei du sagtest, dass die irdischen astronomischen
+und astrophysikalischen Wissenschaftler damit einem gewaltigen Irrtum verfallen seien mit ihrer Schätzung,
+dass die Sonne noch eine Lebensdauer von fünf bis fünfeinhalb Milliarden Jahren habe. In Wirklichkeit,
+so erinnere ich mich, sagtest du, sei die noch verbleibende Lebensdauer unserer Sonne nur noch 1,5
+Milliar den oder höchsten 2,5 Milliarden Jahre.
+
+**Ptaah** Das ist richtig. Diese Angaben habe ich gegeben gemäss unseren sehr genauen Abklärungen
+und den erlangten Erkenntnissen.
+
+## Auszug aus dem 499. offiziellen Kontaktgespräch vom 9. August 2010
+**Billy** … Schon früher haben wir darüber gesprochen, dass 300 Jahre Mittelaltergeschichte und
+die Geschichte um König ‹Karl der Grosse› eine Fälschung sein sollen. Kaiser Otto III. sowie Papst Silvester
+II. sollen eine gewaltige Fälschung in bezug auf die 300 Jahre Mittelaltergeschichte ausgedacht und verbreitet haben. So sollen 300 Jahre einfach übersprungen worden sein, damit Otto III. im Jahr 1000 n.
+Chr. habe Kaiser sein können. Sieh hier, das habe ich in einer Zeitschrift gefunden:
+
+
+-----
+
+**Sind 300 Jahre Mittelalter eine Fälschung?**
+Können 300 Jahre Menschheitsgeschichte einfach so verschwinden – wie in einem schwarzen Loch? Auf das
+Jahr 614 n. Chr. folge nicht das Jahr 615, sondern gleich 911 – die 297 Jahre dazwischen seien reine Erfindung,
+sagt ein Kreis von Mittelalter-Experten. Um das zu bewerkstelligen, müssten Heerscharen von Schreibern Urkunden und Handschriften gefälscht haben. Alles im Auftrag des Kaisers Otto III. und seines Komplizen, Papst
+Silvester II. Die Ereignisse und Personen dieser fast 300 Jahre sollen die beiden erfunden haben – darunter
+sogar ‹Karl den Grossen›. Heute würden wir demnach nicht das Jahr 2010, sondern 1713 schreiben.
+Es wäre die grösste Fälschung der Menschheit. Doch zu welchem Zweck sollten Kaiser und Papst diese Verschwörung ins Leben gerufen haben? Was ist an dieser Theorie wirklich dran? Das Misstrauen einiger Historiker ist nachvollziehbar. Die Dokumentenlage zwischen 600 und 900 ist nicht nur dürftig, sondern sie weist
+auch zahlreiche Ungereimtheiten auf. Warum kennt niemand den genauen Geburtsort und Geburtstag
+(zwischen 742 und 748) von Karl dem Grossen? Schliesslich gilt dieser Kaiser als ‹Vater Europas›, er spielt die
+wichtigste Rolle in der Nationalgeschichte Frankreichs und Deutschlands. Noch rätselhafter ist sein Tod (um
+814): Warum wurde das Grab des grossen Herrschers des Abendlandes nie gefunden? Warum hatte man
+seinen Leichnam nur verscharrt? Nach seinem Tod wurde Karl der Grosse so idealisiert, dass er mehr und
+mehr der Sagengestalt Artus glich: Ihm wurden göttliche Kräfte zugeschrieben, er besiegte Mithilfe des
+Papstes alle seine Feinde. Kein anderer mittelalterlicher König oder Kaiser wurde so sehr zum Gegenstand
+von Sagen.
+Doch es gibt noch mehr Rätsel: Warum existieren keine archäologischen Funde aus der Zeit? Warum wurden
+zwischen 614 und 911 keine Bauten vollendet? Es gibt unzählige historische Quellen, die nicht eindeutig zugeordnet werden können, falsche Berichte und unleserliche Urkunden. Doch warum sollten Otto III. und
+Silvester der II. diese gewaltige Fälschung eingefädelt haben?
+Aus einem ganz banalen Grund, sagen Historiker. Kaiser Otto III. wollte unbedingt der Kaiser des neuen Jahrtausends sein – doch leider lebte er um das Jahr 700. Also erfand er einfach 300 Jahre dazu, und schon war er
+im Jahr 1000 Kaiser. Papst Silvester II. unterstützte ihn dabei – und wurde so zum Papst des Jahrtausends. Fünf
+Jahrhunderte später kaschierte Papst Gregor XIV. die erfundene Zeit mit einer Kalenderreform – dadurch
+war alles wieder im Lot. Diese Einführung einer neuen Zeitrechnung war aber auch der erste Anhaltspunkt
+der Mittelalter-Experten für eine Fälschung. Trotzdem bleibt die Skepsis, ob solch eine umfassende Fälschung
+überhaupt möglich ist.
+
+Was sagst du dazu?
+
+**Ptaah** Darüber haben wir schon einmal gesprochen – Augenblick – – – es war bei unserem 288.
+offiziellen Gespräch, am 23. Juli 2000. Schon damals sagte ich dir, dass diese Behauptung einer Unsinnigkeit entspreche. Weiter kann ich dazu nur erklären, dass Karl der Grosse durch meinen Ur-Gross vater Hilak in langen Ausführungen in unseren Annalen verzeichnet wurde, wozu auch eine umfangreiche Dokumentation der rund 300 Jahre gehört, die angeblich erfunden sein sollen, wie sich dies
+die irdischen Möchtegern-Mittelalter-Historiker zusammenphantasieren. Dass die irdischen Chroniken
+und Aufzeichnungen jener Zeit sehr mangelhaft sind, beruht in vielerlei politischen und religiösen Wirren,
+während denen sehr viele handschriftliche Aufzeichnungen der Geschichte vernichtet wurden, wie durch
+diese Wirren auch die Fertigstellung von vielerlei Bauten während rund drei Jahrhunderten unterbunden
+wurde. Was aber aus den irdischen Annalen heute noch bekannt ist, entspricht wohl dem, was gewesen
+ist, wobei jedoch zu sagen ist, dass von gewissen Schreibern auch fehlerhafte Überlieferungen angefertigt wurden, die noch heute existieren. Und was mit Karl dem Grossen letztendlich geschehen ist,
+darüber sollte ich aus bestimmten Gründen nicht offen sprechen.
+
+
+## Glück, Gewalt und andere Verhaltensmuster des Menschen …
+Glück und Gewalt sowie alle anderen Verhaltensmuster des Menschen wirken hochgradig ansteckend
+und bestimmen also die Verhaltsweise von Familienmitgliedern, Freunden, Bekannten, Gruppierungen
+und von kleinen und grossen Massen von Menschen. Das Verhalten eines einzelnen vermag viele
+andere anzustecken, denn die menschlichen Gehirne resp. die aus dem Bewusstsein hervorgehenden
+
+
+-----
+
+Gedanken und die daraus resultierenden Gefühle vermögen sich gegenseitig zu infizieren. Die entsprechenden vielfältigen Verhaltensformen, die aus Gedanken und den daraus resultierenden Gefühlen
+aufgebaut sind, reichen von Freude, Harmonie, Liebe, Frieden, Freiheit, Frohsein, Glück und Gewalt
+bis hin zu Hass, Rache, Vergeltung, Mord und Selbstmord. Die Infizierung von Gehirn zu Gehirn, von
+Bewusstsein zu Bewusstsein resp. von Gedanke zu Gedanke und von Gefühl zu Gefühl wirkt wie ein
+Viren-Befall, weshalb auch von Gedanken-Viren und Gefühls-Viren gesprochen werden kann, was jedoch nur als Vergleich zu verstehen ist.
+Alle Verhaltensweisen des Menschen wirken auf die Mitmenschen ansteckend und können sich wie
+eine Epidemie oder im schlimmsten Fall gar wie eine Pandemie ausbreiten. Die Ansteckung erfolgt durch
+das Verbreiten von Ansichten und Meinungen sowie durch Gedanken und Gefühle, Taten und Handlungen, die von den Menschen wahrgenommen und zu eigen gemacht werden. Folglich ergibt sich die
+Infizierung also dadurch, indem anderer Menschen Ansichten, Meinungen, Gedanken, Gefühle, Taten,
+Handlungen und sonstige Verhaltensweisen unkontrolliert übernommen resp. angenommen und ebenfalls ausgeführt und gepflegt werden. Und je nachdem, wie der Mensch seine Selbstverantwortung und
+seine Selbstkontrolle wahrnimmt, dauert die Inkubationszeit des Gedanken-Gefühls-Viren-Befalls bis
+zum Ausbruch kürzere oder längere Zeit. Wird jedoch die Selbstverantwortung und Selbstkontrolle in
+bestem Mass gepflegt, dann kann eine Reaktion auf den ‹Viren-Befall› sehr lange auf sich warten lassen
+oder im allerbesten Fall gar ausbleiben. Bei den Menschen der Erde ist jedoch die Regel die, dass sie
+sich nur zu gerne durch die Verhaltenweisen ihrer Mitmenschen anstecken lassen. Dabei spielt es keine
+Rolle, ob dies in direkter oder indirekter Weise geschieht, direkt von Mensch zu Mensch oder über viele
+Ecken und Distanzen hinweg, über Medien, durch Zeitungsberichte, Radio- oder Fernsehsendungen,
+Telephonate oder Gerüchte und Verleumdungen usw. Tatsache ist, dass die vielfältigen Verhaltens weisen des Menschen, sei es Liebe, Hass, Gedanken und Gefühle der Zufriedenheit, Unzufriedenheit,
+der Freiheit, des Friedens, der Harmonie und der Rache, der Vergeltung, des Glücks, der Heftigkeit, der
+Sanftmut, des Mutes, der Angst und Feigheit sowie des Krieges, der Unehrlichkeit, Aggressivität und
+der Gewalt usw. wie eine ansteckende Krankheit auf die Menschen übergreifen. In bezug auf all diese
+Faktoren besteht unter den Menschen der Erde ein sehr hohes Ansteckungspotential, weil sie sich auf
+die Verhaltensregungen der anderen ausrichten, diese assimilieren und sich also zu eigen machen.
+Wahrheit ist, dass unzufriedene Menschen gegenüber andern grantig, abweisend, bösartig, aggressiv
+und oft gar gewalttätig, vergeltungs- und rachsüchtig sowie voller Hass und gefühlskalt, gewissenlos,
+disharmonisch und feindlich gesinnt sind. Zufriedene Menschen jedoch begegnen andern mit Liebe,
+Friedlichkeit, Harmonie, Freude, Freiheitlichkeit, Grosszügigkeit und Hilfsbereitschaft sowie mit Mitgefühl usw., wobei dieses Verhalten bei den andern in der Regel eine erhöhte Dopaminausschüttung im
+Gehirn hervorruft, durch die bei ihnen das Glücksgefühl angeregt und verstärkt wird und die gleichen
+Verhaltensmuster auftreten, die ihnen entgegengebracht werden. Die Verhaltensmuster können dabei
+sehr vielfältig sein, wie bereits erklärt wurde, wobei sogar Muster übertragen werden, die kaum für
+möglich gehalten werden. Wenn so also Gedanken und Gefühle und eigentliche Verhaltensformen von
+einem Menschen auf Mitmenschen übertragen werden resp. so ansteckend wirken wie krankheitsinfizierende Bakterien und Viren, dann ist es auch gegeben, dass diesbezüglich noch vieles mehr der
+Fall ist. Naheliegend ist, dass in genannter Weise auch Verhaltensmuster übertragen werden wie Schönheitsoperationen, Sportbedürfnisse und Fettleibigkeit sowie religiöser und sektiererischer Glaube,
+Fanatis mus, Extremismus, Zerstörungswut, Leichtsinn, Mutwilligkeit und das Verletzen oder Töten von
+Mensch und Tier usw. Sind so Menschen, in deren Umkreis andere leben, die diesen Dingen verfallen
+sind, dann steigt die Wahrscheinlichkeit, dass auch sie selbst davon angesteckt werden und den
+gleichen Dingen nachhängen und sie ausleben. Tatsächlich genügen schon Zeitungs-, Radio- und Fernsehsendungen, die solche Dinge beschreiben, damit Menschen davon infiziert werden und dann dementsprechend ihr Verhalten anpassen. Die Infizierung resp. Ansteckung erfolgt dabei einfach dadurch,
+weil die Menschen die Verhaltensmuster resp. die Verhaltensgewohnheiten von andern nachahmen
+und eigens annehmen. Die eigene Wahrnehmung verändert sich drastisch, und dadurch wird das Verhaltensmuster anderer akzeptiert und zum eigenen gemacht. In dieser Weise hämmert sich der Mensch
+
+
+-----
+
+selbst eine Ansicht oder eine Meinung sowie Gedanken und Gefühle ein, die grundlegend nicht seinen
+ureigenen entsprechen, sondern angenommen und nachgeahmt werden. So entstehen unbewusst und
+unterbewusst Verhaltensmuster, die nicht nur auf den einzelnen Menschen ihre Wirkung tun, sondern
+die gar eine soziale resp. eine allgemeine Ansteckung hervorrufen, folglich ganze Gruppen oder kleine
+und grosse Massen von Menschen davon befallen werden.
+Die Menschen werden also durch die Gedanken und Gefühle sowie durch die Verhaltensmuster anderer wie durch einen ansteckenden Krankheitsvirus infiziert, wobei die Muster von Liebe und Glück,
+von Freude, Freiheit und Harmonie usw. bis hin zur Unzufriedenheit, Rache und Vergeltung sowie zur
+bösen Gewalt und zum Mord reichen. All diese und auch alle anderen bisher genannten Verhaltensmuster wirken wie Bakterien und Viren ansteckend, wobei jedoch die Inkubationszeit von der Ansteckung bis zum Ausbruch je nach Charakter und Persönlichkeit sowie der Selbstverantwortung und
+Selbstbeherrschung des Menschen verschieden lang dauert, in der Regel im schnellen Fall eben nur
+Sekunden, im langsameren Fall jedoch um einiges länger als bei einer ansteckenden Krankheit. Wird
+nun nebst allen anderen Verhaltensmustern speziell von der Gewalt ausgegangen, dann ergibt sich,
+dass ein Mensch, der diese persönlich erfährt und erlebt, einem sehr starken Risiko verfällt, früher oder
+später selbst eine Gewalttat zu begehen. Die Möglichkeit der Gewalttatbegehung ist dabei mehr als
+doppelt so hoch, als dies bei einem Menschen der Fall ist, der keine Gewalt erlebte. Das Erleben von
+Gewalt muss dabei nicht einmal am eigenen Leib stattgefunden haben, sondern es genügt schon, wenn
+Gewalt mitangesehen wird. Tatsache ist dabei, dass jedes Gewaltverbrechen, wie jedes andere Verhaltensmuster, eine wahre Kaskade von Folgegewalttaten auslöst. Erlebt der Mensch eine gewaltsame
+Konfrontation, sei es am eigenen Leib oder nur durch Beobachten, dann hat das sehr viel mehr Einfluss
+auf künftige gewalttätige Tendenzen eines Menschen, als dies bei allen anderen vielfältigen Faktoren
+resp. Verhaltensmustern der Fall ist, denn Gewalt ist die schlimmste Verhaltensform, wovon der Mensch
+befallen werden kann. Wenn so schon Kinder durch eine falsche Erziehung oder durch Umweltumstände mit Gewalt konfrontiert werden, dann geht ihnen das in der Regel ihr Leben lang nach, folglich
+sie immer wieder gewalttätig werden. Tatsache ist, dass selbst Armut, Alkohol, Drogen und Medikamente im Vergleich zum eigenen Gewalterleben nur eine untergeordnete Rolle spielen. Gewalt ist
+tatsächlich ansteckend, und zwar in einer Weise, durch die das Gehirn wie durch einen gefährlichen
+Virus infiziert wird, denn jedes Gewalterlebnis wird im Gehirn abgespeichert, und zwar ganz gleich,
+ob die Gewalt am eigenen Leib erfahren und erlebt oder nur passiv beobachtet wird. Im Gehirn resp.
+in der Amygdala, im emotionalen Erinnerungszentrum, wird die traumatische Erfahrung und das Er leben der Gewalt verankert, woraus dann resultiert, dass diese Erinnerung bei einer kritischen Situation
+herangezogen und genutzt wird, um selbst Gewalt auszuüben. Dies eben darum, weil die gespeicherte
+Erinnerung darauf ausgerichtet ist, dass eine kritische oder gefährliche Situation mit Gewalt gelöst
+werden kann. Und kommt es dann tatsächlich zu einer Krisensituation, dann übt der ‹Gewaltinfizierte›
+automatisch in irgendeiner Art und Weise Gewalt aus, rastet aus und schlägt zu. Das aber geschieht
+dann schneller und radikaler, als dies ein Mensch zu tun vermag, der noch in keiner Weise eine aktive
+oder passive Gewalterfahrung gemacht hat.
+Nicht nur die Gewalt ist ansteckend, wie bereits erklärt wurde, sondern auch Angst, Bauchschmerzen,
+Schweissausbrüche, Atemnot, Einsamkeit, Glück, Liebe, Weinen, Lachen, Freude und Eifersucht, wie
+auch Selbstmord, Fettleibigkeit, Mord, Sportarten, Gier, Folter- und Quälfreude, Rauchen, Nichtrauchen,
+Habsucht, Schmerzen und Geiz usw. und alle Arten von Gedanken und Gefühlen sowie all die früher
+aufgeführten Verhaltensmuster. In bezug auf Selbstmord ist zu sagen, dass Suizid so ansteckend ist wie
+eine Grippewelle, wobei dieser in der Zeit des Internets diesbezüglich weltweit wirkende Formen angenommen hat. Die durch Internetverbindungen dem Selbstmord Verfallenden tun dies infolge Kontakten mit Gleichgesinnten, die einander nicht persönlich kennen. Das beweist, dass eine soziale Ansteckung ganz offensichtlich keinen persönlichen Kontakt benötigt, um wirksam zu werden. Gedanken,
+Gefühle, Verhaltensmuster und gar Krankheiten können auch über Online-Netzwerke verbreitet werden, folglich die diesbezügliche Zukunft sehr düster aussieht. Natürlich erhöhen die rasant wachsenden Online-Netzwerke nicht das Infizierungspotential selbst, doch sorgen sie dafür, dass eine sehr viel
+
+
+-----
+
+schnellere Infizierung und eine schnellere weltweite Ausbreitung einer Gedanken-Gefühls-Epidemie und
+Verhaltensmuster-Epidemie erfolgt. Durch das Internet können so innert kürzester Zeit Tausende und gar
+Hundert tausende von Menschen von einem Gedanken-Gefühls- und Verhaltensvirus angesteckt werden
+und eine gefährliche Verhaltensmuster-Pandemie auslösen, die in ihrer Dynamik keinerlei Beispiel in
+irgend welchen Grippewellen findet. Sogar Todesfälle können durch das Versagen von inneren Organen in Erscheinung treten, als Nocebo-Effekt, der zustande kommt, wenn dementsprechende Muster
+durch Gedanken und Gefühle auf den Menschen wirken und die entsprechenden tödlichen Faktoren
+auslösen. Diese können sich allesamt wie eine Epidemie unter den Menschen ausbreiten und ansteckend wirken, folglich in dieser Weise sozusagen ‹Masseninfektionen› entstehen, wobei das soziale
+Netzwerk der Gesellschaft eine sehr wichtige Rolle spielt. Und dass das tatsächlich so ist, wird z.B.
+immer wieder beim Fussballfanatismus, wie auch bei den Hooligan- und Demonstrationschaoten sowie bei den extre mistischen Neonazigruppierungen, bei den terroristischen Selbstmordattentätern und
+bei religiös-sektie rerischen Massenselbstmorden usw. bewiesen. Erst durch in irgendeiner Art und Weise vorgegebene Verhaltensmuster eines einzelnen oder mehrerer Menschen wird es möglich, dass sich
+aus Gedanken und Gefühlen ‹Viren› entwickeln, die wie giftige Krankheitserreger schnell umsichgreifen und andere infizieren. Also kann in der Weise, dass Menschen die Verhaltensformen von anderen
+annehmen und nachahmen, ein Gehirn andere Gehirne infizieren, wobei die Inkubationszeit von der
+Ansteckung bis zum Ausbruch sekundenschnell geschehen, jedoch auch längere Zeit dauern kann, wie
+bereits erklärt wurde. Die auftretenden Symptome können dabei während Minuten, Stunden oder Tagen, ja Wochen, Monate und Jahre oder gar das ganze Leben hindurch anhalten.
+In bezug darauf, dass ein Mensch mit Gewalt infiziert wird, dazu reicht, wie bereits erklärt, eine passive
+Gewalterfahrung in der Kindheit aus, bei der eine Gewalttat also nur beobachtet wird.
+Grundlegend handelt es sich beim virusähnlichen Übertragen von Verhaltensmustern von einem Menschen auf andere oft um sehr ernst zu nehmende epidemische Formen. Dies besonders dann, wenn es
+sich um eine Massenhysterie handelt, aus der sich sehr unerfreuliche und gefährliche Folgen ergeben
+können. Eine ‹Masseninfektion› in dieser Weise kommt einer gefährlichen Krankheit gleich, bei der
+sich Menschen von den Gedanken, Gefühlen, Emotionen und Verhaltensmustern anstecken lassen, und
+zwar ganz gleich, ob diese negativ oder positiv sind. Massgebend ist dabei das Gehirn mit dem Bewusstsein, denn daraus ergibt sich das Ganze. Grundlegend ist das menschliche Gehirn ein soziales
+Organ, in dem Strukturen angelegt sind, die sich relativ schnell auf andere Menschen und deren Verhaltensmuster einstellen. Ganz besonders in gefühlsmässig stark geprägten sowie in stressigen und
+emotionalen Situationen nutzt das menschliche Gehirn jede Gelegenheit und Möglichkeit, um die
+eigene Arbeit mit anderen Gehirnen der Mitmenschen zu teilen. So ist Tatsache, dass wenn sich zwei
+Menschen begegnen, dass deren Gehirne gegenseitig ihre biochemischen Enterhaken auswerfen und
+Brücken zueinander aufbauen. Dadurch sparen sie einerseits Energie, und andererseits wird durch
+diese Brücken der sozialen Ansteckung von Stimmungen und Verhaltensweisen der Weg geebnet, und
+zwar ganz gleich, ob die betreffenden Menschen gesundheitlich stabil oder instabil sind. Dadurch
+führen soziale Netzwerke mit Familienangehörigen, Partnern, Freunden und Bekannten sowie mit
+Fremden zu Gehirnverknüpfungen, die dann den Schlüssel für Freude, Glück und Geselligkeit sowie
+für Freudlosigkeit, Unglück und Einsamkeit usw. bilden. Einsamkeit hat aber nichts mit einem Alleinsein
+zu tun, wie das von vielen Menschen verwechselt und missverstanden wird. Alleinsein ist ein Zustand
+des Fürsichseins, bei dem der Mensch für sich allein ist, weil er eben allein sein will oder allein sein
+muss. Einsamkeit dagegen beruht darauf, dass der Mensch Gedanken und Gefühle hegt, aus denen
+heraus er sich von allen Ausseneinflüssen absondert, sich allein und verlassen fühlt und keine ver bindende Kontakte zu den Mitmenschen pflegt. Je nach Gedanken und Gefühlen fühlt sich der eine
+Mensch öfter und schneller einsam als der andere, wobei auch das Annehmen und Nachahmen eine
+sehr wichtige Rolle spielen. Insbesondere stark sensible Menschen fühlen sich schnell einsam, und zwar
+oft, weil sie sich von andern unverstanden und falsch und nichtig behandelt wähnen. Das führt dazu,
+dass sie sich gegen die Umwelt abkapseln und in trüben, bösen Gedanken und Gefühlen dahingehen,
+was natürlich ihren Einsamkeitszustand erst recht fördert. Doch nicht genug damit, denn auch wenn es
+
+
+-----
+
+paradox klingt, wirkt die ausgestrahlte Einsamkeit wie ein giftiger Virus auf die Mitmenschen, folglich
+das Ganze auf sie übertragen wird. Und das Schlimme dabei ist die Tatsache, dass ausgerechnet dort,
+wo die zwischenmenschlichen Kontakte sehr eng sind, wie z.B. in der Familie, im Freundes- und Bekanntenkreis oder in einer kleineren oder grösseren Gruppierung von Menschen, die Symptome der
+Einsamkeit sehr stark zum Ausdruck kommen und ansteckend wirken. Dadurch kann sich innerhalb
+einer Gruppe oder in der Gesellschaft die Einsamkeit wie ein böses Geschwür ausbreiten. Denn sobald
+sich ein Mensch in einer Familie, in einem Freundes- oder Bekanntenkreis oder in einer kleineren oder
+grösseren Gruppierung einsam fühlt, dann steigt das Risiko, dass sich auch andere langsam aber sicher
+einsam zu fühlen beginnen, wobei die Gefahr, dass andere angesteckt werden, bei über 50 Prozent
+liegt. Beim Ganzen entsteht eine Art Kreislauf der Isolation, und wenn sich ein Mensch einsam fühlt,
+dann verhält er sich gegenüber anderen zwangsläufig negativ. Das führt normalerweise dazu, dass
+wenn keine Ansteckung erfolgt, dass sich die Mitmenschen von den einsamen Menschen abwenden,
+wobei diejenigen, welche sich abwenden, natürlicherweise enttäuscht sind, was jedoch zum negativen Effekt führt, dass sie dann unbewusst damit beginnen, den einsamen Menschen zu meiden und
+ihn ungerecht zu behandeln. Auf diese Art gehen viele Freundschaften in die Brüche, wobei nicht nur
+direkte Kontakte, sondern nach und nach das ganze soziale Netzwerk davon infiziert wird und in böse
+Ausartungen verfällt.
+Billy
+Semjase-Silver-Star-Center, 29. Mai 2010, 00.26 h
+
+## Die Natur der Studien- und Landesgruppen
+##### Einführung
+Die FIGU-Studien- und FIGU-Landesgruppen sind für alle jene Menschen bestimmt, die die Wirklichkeit
+und deren Wahrheit in allen Richtungen suchen und die um die Entwicklung ihres eigenen Bewusstseins, ihres Denkens, ihrer Gefühle und ihres Handelns bemüht sind. Im Vordergrund der Studien- und
+Landesgruppen-Interessen steht allezeit die Bemühung, den Menschen auf dem Wege seiner persönlichindividuellen Entfaltung zu fördern, wie auch immer dieser Weg geartet sein mag. Jeder Mensch ist
+gänzlich frei, unabhängig und achtungswürdig, weshalb ihm die FIGU-Studien- und FIGU-Landesgruppen nur den Raum resp. die Motivation für seine eigene Erkenntnis, seine eigene Selbsterkenntnis,
+sein eigenes Wissen und seine eigene Weisheit geben können. Dazu dienen die effektiven und wertvollen Informationen auf allen Gebieten des Lebens, mit denen sich die Mitglieder der Studien- und
+Landesgruppen beschäftigen, die sie offen studieren und nach ihrem besten Wissen und Vermögen im
+Alltag zu verwirklichen suchen.
+
+##### Motivation
+Der ganze Wert der FIGU-Informationen ist weltweit einzigartig, denn deren Quelle ist die ‹Geisteslehre›, die der Schweizer ‹Billy› Eduard A. Meier lehrt, der mit einer hochentwickelten ausserirdischen
+Zivilisation aus dem Sternhaufen der Plejaren in Verbindung steht (die Plejaren liegen rund 85 Lichtjahre weiter entfernt als die uns bekannten Plejaden, in einer Entfernung, die von der Erde aus rund
+500 Lichtjahre beträgt. Die Plejarengestirne, deren Bewohner sich gemäss ihrem System auch Plejaren
+nennen, befinden sich jedoch um einen Sekundenbruchteil verschoben in einer anderen Dimension resp.
+in einem anderen Raum-Zeit-Gefüge unseres Universums). Die Plejaren sowie die hohen Geistebenen
+ARAHAT ATHER SATA und PETALE und vor allem ‹Billy› Eduard Albert Meier (BEAM), der in seinem
+ganzen Leben als Prophet der Neuzeit sich ein völlig beispielloses Wissen, grosse Weisheit und Liebe
+erarbeitet hat, die auf der ganzen Erde absolut keine Parallelen finden, sind in die Mission der
+Geisteslehre involviert. Der ganze Wert der Lehre und sehr viele notwendige Informationen sind heute
+auf mehr als 20 000 Buchseiten schriftlich festgehalten (in deutscher Sprache), doch wird das Ganze
+
+
+-----
+
+erst in vielen Jahrhunderten (in ca. 800 Jahren) voll gewürdigt werden. Erst dann nämlich werden
+gemäss den plejarischen Aussagen die Geisteslehre-Erkenntnisse bei den Menschen auf der Erde ihre
+ersten grossen Früchte bringen. Das Ganze wird jedoch jetzt schon präsentiert, verbreitet und entfaltet
+durch die Freie Interessengemeinschaft für Grenz- und Geisteswissenschaften und Ufo logiestudien
+(FIGU), Hinterschmidrüti 1225, CH-8495 Schmidrüti, Schweiz, wobei aber in keiner Art und Weise
+missioniert wird. Die FIGU-Studien- und -Landesgruppen auf der ganzen Welt befassen sich schon jetzt
+in Würdigung der ‹Geisteslehre› (in ihrem Ursprung ‹Lehre der Propheten› genannt, wie auch ‹Lehre
+der Wahrheit, Lehre des Geistes, Lehre des Lebens›) mit all deren Erkenntnissen und Werten. Und das
+tun sie, indem sie alles zu Erlernende zusammentragen, studieren, übersetzen und vortragen, wodurch
+sie in der jeweiligen Landessprache jedem Menschen oder Interessenten die Chance bieten, sich frei
+und individuell in diesen Prozess einordnen zu können. Dies, damit daraus jeder willige und sich damit
+befassende Mensch für sein Leben grosse Werte und fortschrittliche Erkenntnisse gewinnen kann.
+Tatsächlich bietet das Ganze der Lehre auch umfassende Erkenntnisse in bezug auf die wirkliche Geschichte unserer Erde sowie den Ursprung des Universums, den effektiven Sinn des Lebens, erdfremde
+Zivilisationen, die reelle Meditation, die zwischenmenschlichen Beziehungen und die Liebe. Es sind
+aber auch viele andere Aspekte wie die der menschlichen Gesellschaft, der Kultur, des Bewusstseins,
+des Unterbewusstseins, der Psyche, des Charakters und des Geistes usw. usf. darin enthalten. Der Umfang der zu studierenden und zu diskutierenden Themen ist ausserordentlich weitläufig und umfasst
+alle Gebiete des menschlichen Lebens – und all das betrachten die Mitglieder der FIGU-Studien- und
+-Landesgruppen als permanente, unaufhörliche, lebenslange Evolutionsbemühungen in allen Richtungen. Allein die freie, individuelle und bewusste Entfaltung des einzelnen garantiert die Erfüllung des
+Lebens sinns sowie die Erschaffung aller menschlichen und zwischenmenschlichen Werte, wie auch die
+Logik und letztlich auch die Erlangung eines weltweiten Friedens.
+
+##### Gleichwertigkeit in der Herangehensweise
+Wir Mitglieder der FIGU-Studien- und -Landesgruppen sind und halten uns nicht für ‹Wissende›, sondern
+in jeder Beziehung nur für Suchende und Studierende, denn auch wir müssen lernen zu leben, und so
+lernen wir, mit unseren eigenen Gedanken und Gefühlen umzugehen und unsere arbeitsmässigen,
+priva ten sowie alle anderen Pflichten zu erfüllen. Wir erheben uns also nicht in einem Jota über unsere
+Nächsten, sondern wir versuchen ihnen gegenüber eine optimale Beziehung einzugehen, die in abso luter Gleichheit, Gleichwertigkeit, Ehrwürdigung und in gebührender Zurückhaltung fundiert. Den Wert
+eines Menschen an und für sich betrachten wir nie im Zusammenhang mit seiner gesellschaftlichen Stellung, seiner finanziellen Lage, seinen Fähigkeiten, seinem Wissen oder Ähnlichem, denn der Wert jedes
+Menschen bleibt ein für allemal gegeben und unveränderlich durch die eigentliche Natur seines Mensch seins. Jeden Menschen nehmen wir so, wie er nun einmal ist, und wir wissen seine persönliche Art zu
+schätzen, die wir aus Prinzip im Guten fördern. Dies tun wir, weil wir wünschen, dass jeder Mensch
+sich selbst ist bzw. sich selbst werden und sich in der richtigen Form entfalten kann, wenn er den Weg
+dazu findet. Diesen Weg bestimmt er sich selbst, wie auch seine eigenen Gedanken und Gefühle,
+seine Meinung, Vorhaben, Absichten, Intentionen und Erfahrungen.
+
+
+##### Absenz von Glauben, Kritikfähigkeit, Offenheit
+Wir Mitglieder der FIGU-Studien- und -Landesgruppen sind keine Gläubigen der FIGU-Lehre oder von
+irgend etwas anderem, denn wir wissen, dass der Weg zur wirklichen Erkenntnis, zum Wissen, zur
+Weisheit und zur Liebe einzig und allein über das eigene kritische Denken führt. Und das geschieht
+bis zur letzten Konsequenz, wobei alles analysiert, verglichen, erwägt und durchdacht wird, wobei
+der Mensch in jeder Hinsicht zu eigenen und einzigartigen Schlüssen kommt. Kritisches Denken heisst
+jedoch keinesfalls, dass übertriebene ungesunde Kritik, eine Besserwisserei, fanatische Befangenheit
+oder eine Voreingenommenheit an den Tag gelegt werden, denn solche Unwerte hemmen – zusammen
+mit einem religiösen oder sonstigen Glauben – die Erkennung der Wirklichkeit und deren Wahrheit
+
+
+-----
+
+sowie die Erlangung all dessen, was wertvoll ist. Das freie, offene, unvoreingenommene und kritische
+Denken ist also vonnöten, damit der Mensch auf individuelle Art und Weise die Wahrheit in der einen
+oder andern Richtung zu erkennen und zu ergründen vermag, um die gewonnene Wahrheit dann als
+effektiven Wert in sein alltägliches Leben und Wirken zu integrieren. Und genau mit diesem Gedankenwert arbeiten die Mitglieder der FIGU-Studien- und -Landesgruppen in bezug auf die Materialien,
+Informationen, das Wissen und die Erkenntnisse der FIGU sowie auf die Lehre von ‹Billy› Eduard Albert
+Meier, wie aber auch die Ausserirdischen und die Geistebenen. Das Ganze hat dabei rein gar nichts
+mit irgend einem Glauben, einer Religion, Ideologie, mit einem Sektierismus oder mit einem blinden
+Vertreten dieser oder jener Denkrichtung, Starrheit, Abhängigkeit, Hörigkeit, Unterwürfigkeit, Fanatismus,
+Unfreiheit usw. zu tun. Alle aufgezählten negativen Eigenschaften, Herangehensweisen und Tendenzen
+ersticken die FIGU-Studien- und -Landesgruppe bereits im Keim (wie die FIGU selbst dies weltweit tut),
+weil deren Natur äusserst primitiv, zweck- und lebensfeindlich, kultisch und stagnativ ist und deren Unwerte die Menschen bewusstseinsmässig versklaven, so sie schwache Geschöpfe werden, wenn sie
+sich damit befassen.
+
+##### Theorie und Praxis in dynamischer Wechselwirkung
+An dieser Stelle ist ein weiterer, sehr wichtiger Aspekt zu erwähnen: Für die Mitglieder der FIGUStudien- und -Landesgruppen existiert keine einzige Theorie, sondern nur die Praxis. Theorie und Praxis
+verstehen wir daher also als zwei Seiten einer Münze. Unser ganzes Studium stellt letzten Endes grundlegend das Erlernen des eigentlichen Lebens resp. der eigentlichen Lebenspraxis dar, und somit also
+die Praxis des lebensmässigen Prozesses, der lebensmässigen Fakten, der gleichartigen Zusammenhänge und des kausalen Naturgesetzes. Als Wahrheit anerkennen wir also vor allem das, was in der
+effektiven Realität seine Resonanz findet, was man im eigenen Leben durch die kausalen Einwirkungen
+zu erfassen, zu erfahren, zu erleben und zu verwirklichen vermag. Nur so entsteht das wirkliche Wissen
+und die daraus resultierende Essenz der Weisheit, wie aber auch die Sicherheit, dass alles in der Tat
+so ist, wie es geschrieben, gedacht, gefühlt oder gesagt und wie es durch die ‹Geisteslehre› von BEAM
+gelehrt wird. Das Ziel der Mitglieder der FIGU-Studien- und -Landesgruppen besteht also im Hauptsächlichen darin, besser, richtig und gemäss den schöpferisch-natürlichen Gesetzen und Geboten leben zu
+lernen. So wollen wir, dass nicht nur wir selbst, sondern auch die Mitmenschen allgemein – die gewillt
+sind, sich der Lehre zuzuwenden – ihren eigenen Alltag, ihre alltäglichen Gedanken, Gefühle und ihr
+Handeln besser realisieren und gestalten. Und dies nicht einfach darum, um besser zu reden und durch
+die eigene vermeintliche ‹Fortschrittlichkeit›, ‹Vergeistigung›, ‹Gelehrtheit› oder ‹Intellektualität› oder
+ähnliches zu beeindrucken. Wir von den FIGU-Studien- und -Landesgruppen, wie auch alle sonstigen
+Mitglieder aller FIGU-Gruppierungen, sind keine Besserwisser oder Alleswisser, die danach trachten,
+zu glänzen und mit ihrem angeblich enormen Wissen zu prahlen. Wir versuchen nur in aller Bescheidenheit – jedoch ohne jede devote Demütigkeit kultisch-religiöser Prägung –, unsere Pflichten gegen über dem eigenen Leben, dem eigenen Bewusstsein, den eigenen Gedanken, Gefühlen, dem Handeln
+und Tun zu erfüllen. Dabei sind wir bemüht, unsere Pflichten in gezielter, bewusster und fortwährender
+Entfaltung, Erschaffung und Praktizierung aller notwendigen menschlichen und zwischenmenschlichen
+Werte zu erweitern. Nichtsdestoweniger jedoch schämen wir uns mit Sicherheit nicht für unsere erarbeiteten Erkenntnisse und Erfahrungen, und wir scheuen auch nicht davor zurück, diese in der Öffentlichkeit offen zu formulieren und zu präsentieren. Jedem einzelnen Menschen soll der Zugang zu den
+wahrheitlichen Informationen der Lehre gewährleistet sein, damit er diese entweder ergründen, weiter
+verarbeiten und verwerten, oder aber verwerfen kann, sei es durch irgendwelche Gründe, allfällige
+Vorurteile oder Hemmnisse.
+
+
+##### Widerspruch zu kultischer Haltung; Klarheit; der reale Wert
+Wir sind keine Geheimniskrämer, die Freude daran hätten, irgendwelche geheimnisvolle Spielchen zu
+betreiben und ihren Mitmenschen die wahrheitlichen Fakten zu verheimlichen. Wie bereits erklärt
+
+
+-----
+
+wurde: Ausnahmslos jeder Mensch hat das Recht auf relevante Informationen auf allen Gebieten des
+Lebens, und folglich nehmen wir Abstand von allen Formen der Geheimnistuerei, von allen Formen
+elitären Gehabes und von der abwegigen Ansicht, dass die Wahrheit nur für diese oder jene ‹Aus erkorenen› oder ‹Auserwählten› oder ähnlichen bestimmt sei. Daraus geht hervor, dass wir ebenfalls
+gegen alle Formen von ‹Mysterien› sind, die banale Wahrheiten und banale Zusammenhänge durch
+das Gewand der angenommenen Rätselhaftigkeit vertuschen, um sich dadurch interessant zu machen.
+Aus diesen und weiteren Gründen bemühen wir uns um die bestmögliche Klarheit, um die bestmög liche Anschaulichkeit und Präzision aller unserer Informationen, Übersetzungen, Texte und Vorträge,
+damit sich jeder interessierende Mensch mit den klar ausgelegten Fakten konfrontieren und sich damit
+in der Form auseinandersetzen kann, die ihm eigen ist.
+
+##### Ablehnung aller überlebten Systeme des Glaubens und der menschlichen Stagnation
+Wie schon aus Vorgenanntem sowie aus verschiedenen weiteren Texten auf unserer Website resultiert,
+distanzieren sich unsere Gruppen ganz und gar von allem Religiösen, von allem Sektiererischen, Kulti schen, Kirchlichen, Götzenbezogenen, Bewusstseinsversklavenden, Flehenden und Rituellen sowie von
+allem, was in irgendeiner Weise mit ‹Gott-Schöpfer›, mit irgendwelchen Göttern, Engeln, Karma, Channeling oder mit Glauben im allgemeinen zusammenhängt. Gleichermassen distanzieren wir uns auch von
+der unheimlichen Menge weiterer irrer und paradoxer ‹Geistesrichtungen›, ‹geistiger Lehren›, ‹esoterischer Lehren›, ‹ufologischer Lehren›, ‹New-Age-Bewegungen› usw.; alles wahnglauben- und sektenbezogene Gruppierungen und Organisationen usw., die heutzutage leider wie giftige Pilze aus dem
+Erdboden schiessen und nicht selten in viele Gebiete des Lebens Konfusion, Phantasien, Träume, fromme
+Wünsche und Illusionen hineintragen. Dies, anstatt dass den Menschen endlich das dargebracht wird,
+worum es geht: Die Wirklichkeit und deren effective Wahrheit, die Naturgesetze, Freiheit der eigenen
+Gedanken und Gefühle, die Entwicklung und die Erkenntnis in allen Richtungen sowie effektives Wissen.
+Unsere Gruppen bestreiten natürlich nicht, dass praktisch in jeder Irrlehre kleine Splitter der Wahrheit
+und der wahrheitlichen Zusammenhänge vorhanden sind, die glänzen und dadurch unwissende und
+suchende Menschen in irreale Netze hineinlocken. Das jedoch ändert nichts daran, dass die eigentlichen
+Konzepte und Ausgangspunkte solch falscher Lehren keine Begründung in der Realität finden und den
+wohldurchdachten Lügen und eben der bereits angedeuteten krankhaften Phantasie oder einem Glauben
+entsprechen. Die Informationen der Freien Interessengemeinschaft für Grenz- und Geisteswissenschaften
+und Ufologiestudien (FIGU), die von den FIGU-Studien- und -Landesgruppen gelernt, verwertet und
+ohne zu missionieren gelehrt und verbreitet werden, sind in ihrem Wert und in ihrem Ursprung einzig artig und können daher mit keiner weiteren auf der Erde existierenden Richtung oder Lehre verglichen
+werden.
+
+##### Freundschaft und enge Zusammenarbeit mit der FIGU-Schweiz
+Die FIGU-Studien- und -Landesgruppen werden durch die offizielle Zusammenarbeit mit dem SemjaseSilver-Star-Center in der Schweiz charakterisiert resp. mit der Kern- und der Passivgruppe der FIGU
+sowie mit verschiedenen weiteren offiziellen FIGU-Gruppen weltweit. Diese offizielle Zusammenarbeit
+halten wir für entscheidend in bezug auf die Erschaffung einer zweckdienlichen Beziehung zur Freien
+Interessengemeinschaft und zu den FIGU-Materialien und damit zur ‹Geisteslehre› sowie in bezug auf
+das Verstehen und die richtige Verbreitung aller betreffenden Informationen. Das bedeutet natürlich
+auch, dass wir keinerlei Unterschied zwischen ‹Billy› Eduard Albert Meier und dem von ihm gegründe ten Verein FIGU machen. Solcherlei Unterschiede sind in Wahrheit nicht gegeben und also nicht existent,
+denn der Verein FIGU wurde von BEAM gegründet und wird von ihm in Form einer regulären Kerngruppe-Mitgliedschaft bis zum heutigen Tag geleitet und unterrichtet, genau so, wie es notwendig ist
+und wie es seit allem Anbeginn vorgesehen war. Unsere Tätigkeit ist also auf den langjährigen und
+persönlichen zwischenmenschlichen Beziehungen zur FIGU-Gemeinschaft, zu den FIGU-Gruppen und
+den FIGU-Mitgliedern aufgebaut, denn einzig und allein darin erblicken wir die wirkliche Effek tivität,
+
+
+-----
+
+die reale Herangehensweise und die Garantie dessen, dass alle FIGU-Informationen logisch, zweckdienlich und unverfälscht verbreitet und präsentiert werden.
+
+##### Förderung und Beherrschung der deutschen Sprache
+Die FIGU-Studien- und -Landesgruppen fördern mit allen ihnen zur Verfügung stehenden Mitteln das
+Studium und die Beherrschung der deutschen Sprache, denn ohne diese Sprachkenntnis entsteht eine
+Abhängigkeit von den jeweiligen Übersetzern, von deren Verständnis und deren Auslegung aller Originaltexte. Das jedoch verunmöglicht die individuelle Herangehensweise an die FIGU-Bücher und die
+FIGU-Schriften sowie die freie Wahl derselben, wie auch das wirkliche Verständnis und das effective
+Studium. Hinzu kommt noch die Tatsache, dass manche Erklärungen und Begriffe des Deutschen nicht
+gleichwertig in andere Sprachen übersetzt werden können, weshalb in diesen Sprachen trotz aller
+Bemühungen der Übersetzer eine gewisse Abschwächung der Originalaussagen sowie allfällige Fehler
+und Ungenauigkeiten entstehen. Die deutsche Sprache entstammt der uralten Sprache Arjn, und sie stellt
+in ihrem ganzen Wert, in ihrer Präzision und in ihren Möglichkeiten die vollkommenste Sprache auf
+dieser Erde dar. Im weiteren ist es so, dass in anderen Sprachen bisher nur ein Minimum übersetzter
+Texte vorhanden ist, denn die Mittel und Möglichkeiten der verschiedenen Studien- und Landesgruppen
+sind bisher ebenfalls minimal. Je besser man die deutsche Sprache meistert, desto besser, schneller
+und effektiver wird man in alle Geheimnisse und ins Wissen der Freien Interessengemeinschaft einzudringen vermögen. Der Evolutionscode, den BEAM in alle deutschsprachigen Geisteslehre-Originaltexte
+eingewoben hat, fördert und beschleunigt die Evolution des Bewusstseins, wodurch sich dem Menschen
+alle Möglichkeiten des realen Verständnisses, der realen Nutzung und des realen Praktizierens aller
+Werte und Erkenntnisse der FIGU erschliessen werden. (Dieser Code ist auch dann wirksam, wenn der
+Buchtext mangels Sprachkenntnissen nicht völlig verstanden wird, weil er direkt bestimmte Bereiche
+des Unterbewusstseins anspricht.)
+
+##### Alltägliche Realität, Unvollkommenheit, Fehler, Evolution, lebenslanges Streben
+Zum Schluss ist nochmals zu verdeutlichen und zweimal zu unterstreichen, dass alle Menschen in der
+FIGU sowie in den FIGU-Studien- und -Landesgruppen wie auch in allen anderen FIGU-Gruppierungen
+weltweit nur Menschen sind wie alle anderen auch. Menschen, die Fehler begehen, unvollkommen und
+in keinster Weise unfehlbar sind. Doch wir sind Menschen, die um ihre Entwicklung und um die Erlangung des fortschrittlichen Wissens und der Weisheit in erwünschten Richtungen bemüht sind und
+auch versuchen, unsere eigenen Fehler und Mängel zu erkennen und zu beheben sowie unsere inneren
+und äusseren Verhältnisse zu verbessern, wenn es möglich ist. Wir sind keine Weltverbesserer, die naiv
+die Veränderung der Welt von heute auf morgen anstreben, um sich dann aufzuregen und der Verbitterung und Skepsis zu verfallen, wenn wir feststellen, dass die ersehnte Veränderung absolut nicht eingetroffen ist. Das einzige, was wir daher zu verbessern versuchen, sind wir selbst, denn einzig und allein
+durch die eigene lebenslange Verbesserung und relative Vervollkommnung kann man damit beginnen,
+die Verbesserung und die relative Vervollkommnung irgendwelcher äusserer Umstände, Organisationen,
+Institutionen usw. ins Auge zu fassen. Das darf und kann jedoch nie und nimmer durch Zwang, Missionieren, Überredungskunst und Überzeugen stattfinden, sondern lediglich durch das eigene Leben,
+durch das eigene Beispiel, durch die eigenen neuen Verhaltensweisen und durch das eigene Tun und
+Handeln. Einzig und allein durch diese spezifische Art sind die Mitglieder der FIGU-Studien- und -Landesgruppen bemüht, die willig sich einfügenden Menschen und damit die Welt zu verbessern. Wir fordern
+daher alle jene verantwortungsbewussten Menschen dazu auf mitzumachen, denen die Entwicklung
+und die weitere Steuerung aller inneren und äusseren Gesellschaftsstrukturen und Aspekte nicht gleichgültig sind und die den Gefühlen der Vergeblichkeit, der Teilnahmslosigkeit, der Ergebenheit und der
+Apathie noch nicht verfallen sind. Wir fordern sie auf, sich mit uns an diesem lebenslangen Prozess
+zu beteiligen und sich dafür einzusetzen, dass langsam aber sicher die Situation auf der ganzen Welt
+zurück in den Zustand gebracht wird, in dem keine destruktive ÜBERBEVÖLKERUNG mehr existiert.
+
+
+-----
+
+Eine Welt, in der kein Mensch mehr hungern muss, in der nicht mehr unter dem Deckmantel von Gerechtigkeit und Liebe durch die Todesstrafe legal gemordet wird; eine Welt, in der nicht mehr gefoltert,
+nicht gequält, nicht mehr Kriege geführt, nicht mehr erobert, nicht unterjocht, nicht vergewaltigt und
+nicht versklavt wird; eine Welt, in der keine politischen oder religiös-sektiererischen Führer oder Machtbesessenen mehr das Volk belügen und es in mancherlei Art und Weise ausbeuten; eine Welt, in der
+alle Menschen gleichwertig und gleichberechtigt sind und die Chance sowie genügend Raum für eine
+freie und individuelle Entwicklung ihres Bewusstseins, ihrer Gedanken und Gefühle, ihres Tuns und
+Handelns sowie die Möglichkeit für ein gesundes Leben in einer ebenso gesunden und natürlichen Umwelt haben …
+Ondřej Štěpánovský, Tschechien
+
+## Die Führungsrolle der Kerngruppe der 49
+Ursprünglich geht die Idee der Studiengruppen selbstverständlich auf Billy zurück, denn schon in den
+Anfangsjahren der FIGU unterhielten verschiedene Kerngruppemitglieder, angeregt durch Billy, diverse
+Studiengrüppchen, die sie selbst leiteten. So existierten solche regelmässige Treffen in Schaffhausen,
+Kloten, Winterthur, in Schongau, Konstanz und München und nicht zuletzt im Center selbst.
+In den vergangenen Jahren entstand dann weltweit eine Reihe von FIGU-Studiengruppen, die anfänglich nur locker mit der Kerngruppe der 49 im Semjase-Silver-Star-Center zusammenarbeiteten. Teilweise
+bestanden im Ausland Studiengruppen mit wenigen Personen, über die wir anfänglich nicht einmal informiert waren und die sich sporadisch oder regelmässig zusammenfanden, um gemeinsam die Geistes lehre im engeren oder weiteren Sinn zu lesen und studieren oder in ihre Landessprachen zu übersetzen.
+Eine der ersten Studiengruppen, die sich formierten, war die Süddeutsche Studiengruppe, die durch
+Günter Neugebauer und Andrea Grässl gegründet wurde, noch ehe sie den Weg in die Kerngruppe
+fanden. Bald folgten dann die ersten offiziellen FIGU-Gruppen in Japan und in den USA, die aufgrund
+ihrer Landesgesetze zu ‹offiziellen› FIGU-Gruppen wurden, weil sie sich als Vereine in ihrem jeweiligen
+Land mit eigenen Statuten registrieren lassen mussten. Nach und nach entstanden weitere Studiengrüppchen und Studiengruppen, die sich über das Geisteslehrestudium hinaus darum zu bemühen begannen, Öffentlichkeitsarbeit in jedweder Form zu betreiben. Diese Bemühungen führten dann zu
+ersten Konflikten, weil nicht verstanden wurde, dass die Geisteslehre nicht durch Missionieren verbreitet
+werden darf, sondern dass die persönliche Meinungsfreiheit und das freie Entscheidungsrecht jedes
+Menschen stets gewahrt bleiben müssen. Aus diesen ersten Bestrebungen erarbeitete die Kerngruppe
+dann auch erste einfache Regeln, die die Studiengruppen zu berücksichtigen hatten, weil wir erkannten,
+dass nur durch eine angemessene Ordnung und eine effiziente Struktur, beziehungsweise ein angemessenes System, der Mission zum gewünschten Erfolg verholfen werden konnte.
+All diesen Studiengruppen standen die verantwortlichen Kerngruppe-Mitglieder jederzeit mit ihrem
+Wissen und mit Rat und Tat zur Verfügung, um den Studiengruppen zu helfen, ihre innere und äussere Struktur in einem angemessenen Rahmen zu finden. Dabei wurde die Kerngruppe der 49 mit den
+verschiedensten Problemen und landesindividuellen Gegebenheiten konfrontiert, für die Lösungen gesucht und gefunden werden mussten, zu denen wir angemessen und innerhalb der Struktur, wie sie
+durch die Statuten und Satzungen der FIGU gegeben ist, jederzeit Hand boten. Da die rechtlichen
+Regelungen in bezug auf Vereine nicht in jedem Land gleich sind, sei hier erklärt, dass in der Schweiz
+und in ande ren Ländern Statuten die rechtliche Grundlage eines Vereines nach aussen darstellen. Statuten werden z.B. an die Behörden, an juristische Personen, andere Vereine oder Privatpersonen abgegeben, die sich über den Sinn und Zweck eines Vereins informieren wollen oder müssen. Die Satzungen hingegen sind das Regelwerk, das den Verein nach innen, in seiner eigentlichen inneren
+Struktur formt und die nicht nach aussen bekanntgegeben werden müssen, sondern allein der internen
+Ordnung dienen. Selbstverständlich müssen sich die Satzungen nach den Statuten ausrichten resp. sich
+
+
+-----
+
+innerhalb der Regeln der Statuten bewegen. Anders gesagt, sind die Satzungen eine interne Aus legung
+oder Präzisierung der Statuten.
+
+Die Satzungen und Statuten der FIGU stellen weltweit eine absolute Einmaligkeit dar, denn sie sind
+nicht durch die Gründungsmitglieder der FIGU erstellt worden. Ihre grundlegende Ausarbeitung und
+bisherige notwendige Erweiterung führen nicht nur auf Billy zurück, sondern auch auf Quetzal und
+Ptaah zusammen mit ihrer Beratercrew in bezug auf irdische Angelegenheiten. Besonders Quetzal ist
+massgeblich an den Satzungen und Statuten beteiligt und zeichnet von plejarischer Seite aus dafür verantwortlich, ebenso wie für das Kerngruppe-Handbuch, das die Ordnung und die Abläufe innerhalb
+der Kerngruppe sicherstellt. Das gewährleistet, dass die Statuten und Satzungen der FIGU-Kerngruppe
+äusserst weitblickend und fortschrittlich aufgebaut sind und dass sie in ihren Grundzügen die schöpferisch-natürlichen Gesetze und Gebote beinhalten und umsetzen, soweit das nach irdischer resp.
+schweizerischer Gesetzgebung überhaupt möglich ist. Damit sind die Statuten und Satzungen absolut
+unabhängig von landes- oder volkstypischen Mentalitäten und Wertvorstellungen, denn sie sind so ausgearbeitet, dass sie allein die wirkliche und innere Mentalität und Wertigkeit des Menschen an sich
+berücksichtigen. Daraus geht hervor, dass die Statuten und Satzungen der FIGU auf absolute Lang lebigkeit ausgerichtet sind und bereits den gesamten Rahmen und die Struktur der FIGU vorgeben, wie
+sie sich nicht nur heute, sondern auch in vielen hundert Jahren präsentieren wird. In den Grundzügen
+ist bereits die gesamte weltweite Vereinsstruktur festgelegt, an der sich im Laufe der kommenden Jahrhunderte nur noch Unwesentliches ändern wird und die auf Wachstum und Erfolg ausgerichtet ist.
+Natürlich ist Raum gegeben für notwendige Anpassungen und Erweiterungen, die sich als unumgäng lich erweisen werden. Das bedeutet aber nicht, dass sich an der Grundlage jemals etwas ändern wird
+oder kann, denn nach Billys Ableben und dem endgültigen Einstellen der Kontakte von Seiten der Plejaren,
+wird das dann bestehende Regelwerk in allen Teilen so bleiben und erhalten werden, wie es ist, ausser
+es erweise sich im Laufe der Zeit, dass gewisse Erweiterungen auf der gegebenen Basis notwendig
+sein werden.
+
+Die Kerngruppe der 49 im Semjase-Silver-Star-Cener hat durch die Belehrungen von Billy und durch
+die praktische Umsetzung der Statuten und Satzungen sowie die konsequente Anwendung der Regeln
+im Handbuch der Kerngruppe schon vor Jahren erkannt und gelernt, dass daraus Frieden, Zusammen arbeit und effektiver Erfolg entsteht, der nicht nur bleibend ist, sondern sich vehement vergrössert und
+intensiviert. Im Rahmen der Umsetzung der Statuten und Satzungen ist sehr viel Platz eingeräumt für
+die persönliche Entfaltung der einzelnen Kerngruppe-Mitglieder und ihrer Interessen, Talente und Fähigkeiten, jedoch geschieht diese Verwirklichung stets im Rahmen des Gemeinwohles des Vereins und
+dessen Mitglieder. Das Mittel dazu ist die Verständigung zwischen den Mitgliedern, die wir in der Kerngruppe lernen durften und auch in den Studiengruppen und Landesgruppen gelernt werden soll. Die
+eigene Meinung soll und darf in allen FIGU-Gruppen straf- und folgenlos vertreten werden können und
+sie soll von den andern Mitgliedern nicht nur akzeptiert werden, sondern wird meist auch wirklich verstanden. Die FIGU-Mitglieder sitzen alle im gleichen Boot und arbeiten alle miteinander und füreinander,
+was grundlegend den Erfolg der FIGU ausmacht. Für persönliche Machtspielchen, Eigenmächtigkeiten,
+Überheblichkeiten, Selbstsucht, Zwang, Gewalt und herrisches sowie suggestives Vorgehen in bezug
+auf die Manipulation anderer FIGU-Mitglieder hinsichtlich eigener Wünsche, Ideen und Begehren ist
+innerhalb des Vereins FIGU keinerlei Platz. Mitglieder, die zu solchen Fehlverhalten neigen, sind aber
+nicht durch andere Mitglieder zu schulmeistern, sondern in neutraler und vernünftiger Form anzuleiten,
+indem sie innerhalb ihrer Gruppen einen Platz zugewiesen erhalten, an dem ihnen die Möglichkeiten
+genommen sind, in den genannten Formen auszuarten, wodurch sie lernen können, ihre Fehler zu überwinden und zu neuen Formen der Verständigung und Zusammenarbeit zu finden. Das grundlegend
+wichtigste Moment der FIGU-Mitgliedschaft ist die Gleichwertigkeit und Gleichstellung aller Mitglieder
+als Mensch. Wird das erkannt und dieser Wert in die Praxis umgesetzt, dann entfallen dadurch sehr
+viele Probleme und Animositäten sowie Verständigungsschwierigkeiten, und das Bedürfnis, über andere
+
+
+-----
+
+herrschen zu wollen, nimmt rapide ab und löst sich schliesslich auf. Im Vordergrund des Interesses der
+FIGU-Mitglieder hat in erster Linie die Sache der FIGU selbst, also die Mission der weltweiten Wahrheitsverbreitung zu stehen. Persönliche Wünsche, Unarten, Egoismen und Machtgier behindern nur
+die Mission, machen sie unglaubwürdig und führen letztlich zu persönlichen Problemen, weil sich die
+egoistischen Wünsche und Bestrebungen nicht umsetzen lassen.
+
+Bestimmt durch die Statuten und Satzungen und dadurch, was die heutigen Kerngruppe-Mitglieder
+während über 30 Jahren in harten Auseinandersetzungen, unermüdlicher Arbeit und durch die gedul dige, nie nachlassende Belehrung von Billy lernen durften, haben sie heute die Aufgabe übernommen,
+als Gesamt-Kerngruppe, als einstimmig entscheidendes und konsequent innerhalb der Statuten und
+Satzungen handelndes Kollektiv, die Führungsrolle zu übernehmen für alle bestehenden und noch entstehenden FIGU-Gruppen, wie Studien- und Landesgruppen, aus denen zu späteren Zeiten dann Kerngruppen für jedes Land hervorgehen werden. Die FIGU-Schweiz, also die Kerngruppe der 49 des
+Semjase-Silver-Star-Centers, als eigentliche Trägerin, Verantwortliche und Muttergruppe für die FIGU
+weltweit, ist auf der Basis ihrer Statuten und Satzungen immer und in jedem Fall gegenüber ALLEN
+Studien- und Landesgruppen auf der ganzen Welt weisungsberechtigt. Ihr obliegt die grosse und
+schwierige, verantwortungsvolle Aufgabe, die FIGU als weltweiten Verein aufzubauen, zu erhalten und
+in eine erfolgreiche Zukunft zu führen, indem sie die Basis schafft für ein grundlegendes Umdenken
+aller Menschen dieses Planeten, und indem sie dieses Fundament auch aufrechterhält. Die Kerngruppe
+der 49 des Mutterzentrums, Semjase-Silver-Star-Center, handelt ausschliesslich im Interesse des Erfolges
+der FIGU und somit im Interesse der Mission, der sie treu verbunden ist. Studien- oder Landesgruppen,
+die Weisungen der Kerngruppe der 49 des Mutterzentrums nicht nachkommen wollen, können aufgrund
+der Statuten-Artikel aufgelöst und die fehlbaren Mitglieder aus der Passiv-Gruppe der FIGU-Schweiz
+ausgeschlossen werden, was natürlich auch mit einzelnen renitenten Mitgliedern von Studien- und Landes gruppen gemacht werden kann, wenn sie sich weigern, zweckdienliche und sachrichtige Weisungen
+der Kerngruppe zu befolgen. Diese Vorgehensweise entspricht nicht einer Drohung oder Gewalt, mit
+der unwillige Mitglieder oder Gruppen in Schach gehalten werden sollen, sondern sie gewährleistet
+einzig und allein das reibungslose Funktionieren der FIGU, das in Anbetracht der Grösse der Aufgabe
+in jedem Fall sichergestellt sein muss.
+
+Das Konzept der FIGU ist sehr gut und zukunftsweisend aufgebaut und sieht vor, dass sich in jedem Land
+dieser Erde Studiengruppen bilden können, die in ihrer Anzahl unbeschränkt sind. Aus diesen Studien gruppen kann sich eine einzelne Studiengruppe dahingehend profilieren, dass sie zur verantwortlichen
+Landesgruppe wird, die nach ihrer Gründung im Rahmen der Landesgruppe-Statuten die Führung der
+landeseigenen Studiengruppen übernimmt. Die Profilierung erfolgt einerseits durch den Einsatz, den die
+Studiengruppe im Rahmen der Mission an den Tag legt, und andererseits durch einen gemeinsamen Mehrheitsbeschluss aller Mitglieder der betreffenden Studiengruppe, zur Landesgruppe werden zu wollen.
+Die Studiengruppen sind sehr frei organisiert und haben nur wenige Auflagen, die sie berücksichtigen
+müssen. So treffen sich Studiengruppen einmal monatlich, jeweils am 2. Samstag jeden Monats, und
+sie bestehen aus einer äusseren Gruppe, in der gemeinsam mit Besuchern und Interessenten die Geistes lehre im weitesten Umfang studiert und eine Meditation durchgeführt wird. Im inneren Kreis der Studien gruppen, zu dem nur erklärte Studiengruppen-Mitglieder zugelassen sind, die zudem Passiv-Mitglieder
+der FIGU-Schweiz sein müssen, wird vorwiegend die Öffentlichkeitsarbeit organisiert und durchgeführt,
+wie z.B. Info-Stände in verschiedenen Städten, Vorträge, die durch die Studiengruppen organisiert
+werden, Internetauftritte der Studiengruppen oder in Zusammenarbeit auch der Landesgruppe, öffentliche Aktionen wie z.B. Leserbriefe, Interviews in Radio und TV usw. usf. Strukturiert sind die Studiengruppen durch einen Vorsitzenden/Organisator, einen Aktuar/Schriftführer und einen Kassier, die
+auch je einen Stellvertreter haben müssen, sobald die Gruppe gross genug ist. Grundsätzlich kann
+eine offizielle Studiengruppe aber bereits ab zwei (2) Personen gegründet werden, und ihre Teilnehmer zahl ist nach oben offen.
+
+
+-----
+
+Die Landesgruppen unterstehen einer deutlich strafferen Organisation, die von ihnen verlangt, dass das
+gemeinsame Studium mit Besuchern und Interessenten am Nachmittag durchgeführt wird, zu dem auch
+eine fakultative Meditation mit den Gästen hinzugenommen werden kann. Die eigentlichen organisato rischen Arbeiten und regelmässigen Sitzungen müssen auf den Abend verlegt werden, weil die Landes gruppen verpflichtet sind, dann zwei Friedensmeditationen durchzuführen. In der Zeit zwischen den
+Meditationen, die jeweils zur normalen Landeszeit (Winterzeit des Landes) stattfinden müssen, können
+und sollen alle anfallenden Geschäfte und organisatorischen Vorhaben besprochen und beschlossen
+werden. Dazu gehört auch die Führung der Studiengruppen des betreffenden Landes sowie die Ausrichtung eines jährlichen Treffens für die Passivmitglieder der FIGU, die aus dem eigenen Land stammen.
+Die Landesgruppen werden kollektiv durch einen Vorstand von 9 (neun) Personen geführt, zu dem auch
+ein Präsident/Vorsitzender, ein Kassier und ein Aktuar/Schriftführer zählen. Die Stellvertreter der Amts inhaber können entweder aus den Vorstandsmitgliedern oder aus den regulären Landesgruppe-Mitgliedern gewählt werden. Alle Landesgruppe-Mitglieder haben logischerweise auch Passiv-Mitglieder
+der FIGU-Schweiz zu sein, und ebenso wie in den Studiengruppen ist die Anzahl der Mitglieder einer
+Landesgruppe nach oben offen.
+Alle offiziellen FIGU-Gruppen erstellen innerhalb von drei Tagen nach ihren Zusammenkünften Protokolle, von denen eine Kopie an ihre vorgesetzte Gruppe weitergeleitet wird.
+
+Sobald die Kerngruppe der FIGU Schweiz ihre volle Mitgliederzahl erreicht hat und ihre ihr angeglie derte Sekundär-Kerngruppe mindestens 50 Mitglieder umfasst, kann sie damit beginnen, aus den dann
+bestehenden Landesgruppen Kerngruppen zu bilden. Die Bildung einer Kerngruppe aus einer bestehen den Landesgruppe ist alleinige Sache der Kerngruppe der 49 des Mutterzentrums, Semjase-Silver-StarCenter, deren Aufgabe es sein wird, die führungsgeeigneten Mitglieder aus dem Stock der bestehenden
+Landesgruppe-Mitglieder herauszufiltrieren und als Kerngruppe-Mitglieder des betreffenden Landes
+vorzuschlagen, wählen zu lassen und einzusetzen. Diese Aufgabe wird mit grösster Sorgfalt und der
+entsprechenden Erfahrung angegangen werden müssen, denn die Kerngruppen der einzelnen Länder
+werden zwar weiterhin dem Weisungsrecht der Kerngruppe des Mutterzentrums unterstellt sein, sonst
+aber im Rahmen der Statuten und Satzungen – die von der Mutter-Kerngruppe soweit wie möglich übernommen werden sollen – weitestgehend autark operieren können. Angepasst an die Bedingungen ihres
+Landes werden sie die ihr dann direkt unterstehenden Studiengruppen führen und zusammen mit der
+ihr zugehörenden Sekundär-Kerngruppe ihres Landes die Mission im eigenen Land vorantreiben. Auch
+diese neu gebildeten Kerngruppen sind an die Mutter-Kerngruppe in der Schweiz protokollpflichtig und
+sie haben ausserdem jeweils ein Mitglied in die Sekundär-Kerngruppe der Mutter-Kerngruppe, SemjaseSilver-Star-Center, in der Schweiz zu delegieren.
+
+Alle diese Gruppen in den einzelnen Ländern arbeiten im Rahmen der Mission nicht nur an der Verbrei tung der Wahrheit in ihrem Land, sondern sie erstellen auch auf eigene Verantwortung verantwortbare
+Übersetzungen in ihre Landessprachen und arbeiten gleichzeitig an der Förderung der deutschen
+Sprache in ihrem Land, weil der tiefe Grund der Geisteslehre nur dann völlig erfasst und umgesetzt
+werden kann, wenn die deutsche Sprache in ihrer Grundlage erlernt und verstanden und wirklich weitgehend beherrscht wird.
+
+Die langfristige Aufgabe der Kerngruppe der 49 des Mutterzentrums, Semjase-Silver-Star-Center, liegt darin, nicht nur an der Verbreitung der Mission in der Schweiz zu arbeiten, sondern eben auch die Studien-,
+Landes-, Kern- und Sekundär-Kerngruppen aller Länder dieser Erde im Sinne der Mission zu führen und
+anzuleiten, nebst dem, dass sie für alle Zeiten dafür verantwortlich sein wird, dass die Geisteslehre,
+wie sie von Billy in zahlreichen Werken sowie im eigentlichen Geisteslehre-Lehrgang gegeben wurde,
+unangetastet, unverfälscht und wortgetreu an die kommenden Generationen weitergegeben wird, die
+ihrerseits wieder die gleiche Aufgabe weiterführen werden. Schliesslich wird im Laufe der kommenden
+Jahrhunderte durch die langfristige Arbeit der FIGU die Basis für eine grundlegende Änderung im
+
+
+-----
+
+Denken der Menschen der Zukunft gelegt, die durch die FIGU-Mitglieder in der Geisteslehre unterrichtet
+werden, wodurch eine friedliche und stabile, menschenwürdige Zukunft gewährleistet wird. Darin liegt
+die eigentliche Führungsaufgabe der Kerngruppe der 49 des Mutterzentrums, Semjase-Silver-StarCenter, Schweiz und all ihrer Kerngruppe-Mitglieder bis in die weite Zukunft hinein.
+Bernadette Brand, Schweiz
+
+## ‹Die Besserwisser›
+#### oder ‹Selbsterkenntnis ist der erste Schritt zur Besserung›
+Bevor ich im November 1973 bei der IBM als Analyst Trainee eintrat, arbeitete ich während dreier
+Monate für eine amerikanische Autofirma in Zürich im Bereich Marketing. Dort lernte ich einen attrak tiven jungen Mann kennen, der vor dem Beginn seines Medizinstudiums noch etwas Geld verdienen
+wollte. Er war sehr sympathisch, wissensdurstig, voller Fragen und im positiven Sinne erfrischend unbedarft. Jedenfalls lernten wir uns etwas näher kennen und verbrachten dadurch eine sehr erquickliche
+Zeit zusammen. Obwohl er später heiratete und eine eigene Praxis eröffnete, hatten wir doch sporadisch
+immer wieder Kontakt – meist jedoch nur schriftlich oder telephonisch, gelegentlich persönlich. Er ist
+sehr belesen, jedoch wissenschaftlich orientiert, d.h., alles was den Wissenschaftlern noch nicht bekannt
+ist oder sie negieren, existiert für ihn ebenfalls noch nicht. Neben all seinen ehrenwerten Eigenschaften – wozu auch die Fähigkeit zur Freude gehört – leidet er meines Erachtens gelegentlich an Selbstüberschätzung und dem Bedürfnis, einen ‹Podestplatz› einzunehmen. Als ich 1982 mit der FIGU in
+Kontakt kam, erzählte ich ihm natürlich auch darüber und dass ich endlich gefunden hätte, wonach
+ich schon so lange gesucht hatte. Obwohl er als grosser Skeptiker nicht wirklich Zugang zu meinem
+Denken hatte, war er mir doch derart wohlgesinnt, dass er meine Erzählung mit dem ‹verständnisvollgütigen› Lächeln eines psychologisch geschulten Arztes quittierte. So schlummerte unsere lockere Beziehung dahin, sporadisch aufgeweckt durch Geburtstags- oder Neujahrswünsche, oder einen nächtlichen Traum, den wir uns manchmal erzählten – bis ich ihm in einem Anflug von ‹Lust auf Provokation›
+Mitte 2008 meinen Artikel ‹One Page Info›, erschienen 2007 im FIGU-Sonder-Bulletin Nr. 39, in einem
+E-Mail als Anhang schickte. Dort heisst es unter anderem:
+«… Da ich meine Kollegen, die ich wirklich sehr gerne mag, nicht einfach im Regen stehenlassen will,
+habe ich mir überlegt, wie so eine ‹One Page Info› aussehen könnte. Wie kann ich auf einer Seite
+sagen, was sie bewegen resp. motivieren sollte, sich in Billys Schriften und Bücher zu vertiefen? Denn
+nicht einmal in ihren kühnsten Phantasien können sie sich das horrende Wissen Billys ausmalen, das
+sie erwartet. Und darauf wollen sie freiwillig verzichten? …»
+Als er einige Wochen nichts von sich hören liess, erkundigte ich mich in einem E-Mail sachte nach seinem
+Wohlbefinden. Seine Antwort druckte ich zwar aus, warf das Papier jedoch später weg, wie ich auch das
+E-Mail löschte; ich wollte nicht, dass sein Ausbruch wegen des horrenden Wissens von Billy irgendwo
+schriftlich festgehalten wurde.
+Natürlich sagt es auch einiges über mich selbst aus, weil ich es einfach nicht lassen kann – resp. konnte! –,
+ihn diesbezüglich ein bisschen zu provozieren.
+Ein kleiner Auszug aus einem E-Mail-Dialog soll das Gesagte untermauern. Mein Dialogpartner heisst
+jetzt einfach XY.
+
+02.02.2010 um 19:59
+Lieber XY
+Hast Du Dich bereits erholt von meinem letzten E-Mail oder bist Du immer noch am Grollen? … Eigent lich weiss ich nichts zum Erzählen, ausser dass ich einen Artikel für die 3-Monats-Zeitschrift ‹Wassermannzeit› schreiben sollte und mir nichts einfällt. Morgen treffen wir uns mit Heiri und Benno zum jährlichen ‹Chüngelessen›. … Vor zwei Jahren fand ich ja bei ihm Bruce Liptons Buch ‹Intelligente Zellen›,
+
+
+-----
+
+was mich dann zum Schreiben eines Artikels mit dem Titel ‹Wie kommt die mentale Fluidalkraft in die
+Zellen und Organe?› animierte. In der letzten NZZ am Sonntag, Rubrik ‹Kultur› sagt Regisseur Peter
+Jackson – dieser Name sagt Dir sicher etwas, nicht? – zu seinem Interviewer auf die Frage: «Hatten
+Sie einmal ein übersinnliches Erlebnis, oder woher rührt Ihr Interesse an Fantasy-Welten?» (Es gibt
+übrigens nichts Übersinnliches, aber das nur nebenbei gesagt.) Worauf Peter Jackson antwortet: «Ich
+habe vor 20 Jahren einen Geist gesehen, im Zimmer meiner Frau.» Vielleicht bist Du ja selbst Abonnent
+der Zeitung, dann ist Dir das Interview bekannt. Er sagt nämlich dann noch, dass seine Frau diese
+Geist-Frau auch schon gesehen hätte und dass sie in der Lokalzeitung gelesen hätten, dass sich vor
+hundert Jahren im Theater gegenüber eine Schauspielerin umgebracht hätte, die auf der Bühne ausgebuht wurde. Laut Legende soll sie später mehreren Bauarbeitern erschienen sein, als sie das Haus
+renovierten. Ich könnte ihm jetzt sagen, dass das kein Geist war, sondern die Manifestation der abgelagerten mentalen Fluidalkraft dieser Person, die im selben Hause gelebt hat wie die Jacksons. … Ist
+vielleicht jeweils nicht schlecht, wenn man sich erkundigt, wer vorher im Haus wohnte, das man zu bewohnen gedenkt …
+
+Einen Tag später kam seine Antwort:
+On Feb 3, 2010, at 11:33 PM, XY wrote:
+Liebe Marianne,
+hab’ vielen Dank für Deine Lebenszeichen, sie zeigen mir mit welchen Attributen des Lebens Du Dich
+beschäftigst, Du bist interessiert an Fluidalkräften und wohl noch anderen geistig-seelischen Zuständen,
+die mir selber fremd sind. Warum aber in aller Welt sollte ich mich davon erholen oder grollen deswegen?? Es ist ja nicht meine Welt, es ist Deine, frei (wirklich?) gewählt und durchdacht, hinterfragt und
+5mal kritisch überprüft … Durch Deine Gedanken lässt Du mich ein Stück daran teilhaben an dieser
+Deiner Welt, zu der ich, ich gebe es zu, nur schwerlich Zugang finde.
+Meine Welt ist die der Realitäten, die den Kriterien der Plausibilität und Evidenz genügt. Der Prozess
+der Erkenntnis ist hochspannend, derjenige der Selbst-Erkenntnis noch mehr, immer halt behaftet mit dem
+Zweifel und der Ungewissheit des Subjektiven und des jetzt Wissbaren (und dieses ist ja, wie jeder mann weiss, anders als der Begriff glauben macht, grundsätzlich ungewiss. Das soll kein Argument
+gegen die Arbeit des Wissenaneignens sein, aber gewisse Erkenntnisse gelten halt lediglich bis auf
+weiteres, die Geschichte lehrt uns genügend peinliche Irrtümer. Ganz zu schweigen von einer im Umfeld des Wissens angesiedelten trügerischen und unangemessenen Gläubigkeit.
+… Und wenn ich dann noch Zeit habe (oder mir welche nehme) dann lese ich sehr gerne. Über Wiss bares, Lebenskunst und … nicht zuletzt auch über … Selbst(er)kenntnis … :)
+
+
+04.02.2010 um 17:50
+Lieber XY
+Eigentlich muss ich immer lachen, wenn Du mir so ganz sachte mit viel Mitgefühl mitteilen willst, für wie
+gläubig und weit weg von der Realität Du mich hältst. Es juckt mich einfach, Dich etwas zu provozieren,
+vielleicht in der Hoffnung, Du würdest es irgendeinmal merken, worum es geht … Frei (wirklich?)? Aber
+sicher! Wer denkst Du, könnte oder würde mich zu etwas zwingen? Mit geistig-seelischen Zuständen
+(in dieser Verbindung) beschäftige ich mich auch nicht. Der Geist ist etwas ganz anderes, als Du – und
+die meisten Menschen – annimmst, und Seele ist ein altes Wort für Psyche. … Durchdenken, hinterfragen und 5mal kritisch überprüfen? Wie willst Du das machen, wenn Du immer nur das zu Hilfe nimmst,
+was Du bereits kennst? Wie kannst Du z.B. mentale Fluidalkräfte überprüfen, wenn Du gar nicht weisst,
+was das ist? Du findest es ja auch nie für nötig, etwas zu fragen – … –, denn was Du nicht kennst, gibt
+es nicht. … Natürlich ist der Prozess der Erkenntnis spannend. Soll ich Dich jetzt fragen, ob Du weisst,
+wie er geht und woher die Selbst-Erkenntnis kommt und was eigentlich das ‹Selbst› ist? Du würdest
+ziemlich ins Schleudern geraten. Kannst es aber gerne versuchen … Wissen hat nichts mit Glauben
+zu tun. Auch Wissen unterliegt selbstverständlich der Evolution, es ist auch immer nur relativ, aber es ist
+nicht so, dass etwas, das man wirklich weiss, total umgestossen wird, sonst ist es kein Wissen, sondern
+
+
+-----
+
+Vermutung, Annahme, Glauben. Das studierte Wissen eines andern Menschen ist auch für uns noch
+kein Wissen, sondern höchstens Wahrnehmung, mit dem wir dann den ganzen Prozess durchlaufen
+müssen, wollen wir es zum eigenen Wissen machen …
+…
+
+Der Dialog ging noch kurz weiter, wie ihr euch sicher vorstellen könnt; um jedoch eine kleine Kostprobe
+unserer beiden Mentalitäten zu geben, reicht das. Es ist nicht so, dass mir nicht noch ein paar kleine
+Boshaftigkeiten (eigentlich sind es Wahrheiten) zum Schreiben eingefallen wären, so z.B. hätte ich sagen
+können, er solle einfach noch einmal lesen, was und auch wie er geschrieben hätte, dann lerne er sehr
+viel über sich selbst kennen, aber ich liess es bleiben – zudem trifft das Gleiche ja auch auf mich zu.
+Meine an den Tag gelegte schulmeisterliche Belehrung wäre in dieser Art auch nicht nötig gewesen,
+und dass er mich zum ‹Sticheln› reizt und ich dem auch nachgebe, ist ebenfalls kein ehrenvoller
+Charakterzug. Als ich ihm einige Zeit später schrieb, ich würde über ihn einen Artikel schreiben und
+die beiden Titel nannte, machte mich seine Antwort auf eine gewisse Art betroffen, und ich fragte mich,
+ob er womöglich alles vorher Geschriebene vergessen hätte. Jedenfalls will ich sie euch nicht vorenthalten:
+
+Mit dem Begriff ‹Besserwisser› habe ich meine Mühe. Jeder kann und darf doch das äussern, was er
+aufgrund seiner mentalen, emotionalen und spirituellen Intelligenz und seiner Erfahrung etc. etc. ‹weiss›
+(oder glaubt zu wissen). Und das ist halt mal nicht bei allen Menschen gleich. Es ist aber aus meiner
+Sicht nicht korrekt, jemandem einen ‹Denkfehler› vorzuhalten, weil seine Argumentation nicht meiner
+Ansicht entspricht. Wäre nicht etwas Toleranz am Platz? Toleranz nicht einfach im Gewährenlassen
+oder als Kompromiss, weil der andere argumentativ nicht zu ‹bezwingen› ist, auch nicht nur Duldung,
+sondern Wertschätzung, weil man von seiner Meinung lernen kann und nicht zuletzt, weil man eine
+eigene Bedingtheit und Unverfügbarkeit der ‹Wahrheit› erkannt hat. … Soviel zur Unvoreingenommen heit und Neutralität, also: Willkommen im Club der Besserwisser. Besser wäre doch: im Club derjenigen,
+die sich Gedanken machen und dran arbeiten, etwas mehr von unserer komplexen Welt zu verstehen.
+Da sollte man doch meinen, ein paar Fehler hätten Platz.
+
+
+Um ehrlich zu sein, wüsste ich natürlich zu gerne, wie er zu seiner Selbstkenntnis und Selbsterkenntnis
+kommt, die er in seinem E-Mail erwähnt. Leider gab er mir auf meine doch etwas angriffige Frage resp.
+Feststellung keine Antwort, und da ich ihn nicht nochmals herausfordern wollte – geschweige denn ihm
+etwas berichten, das er gar nicht hören will –, erzähle ich jetzt euch, was ich ihm gerne gesagt hätte.
+Damit wenden wir uns gleichzeitig dem 2. Teil des Titels zu, nämlich ‹Selbsterkenntnis ist der erste Schritt
+zur Besserung›. Selbsterkenntnis setzt sich aus unzähligen Faktoren zusammen und kommt sowohl von
+innen wie von aussen. So sollte z.B. jedem von uns klar sein, dass wir nicht nur mit unserer Offenheit
+oder Verschlossenheit resp. Unvoreingenommenheit oder Voreingenommenheit Neuem oder anderem
+gegenüber, unserer Handschrift, Physiognomie, Körperhaltung, Haut, unserem Körper, Gang, Blick,
+unseren Haaren, Händen, Gesten, Handlungen und Aktivitäten und unserem Verhalten und Benehmen
+generell, ja sogar mit der Art und Weise, wie wir essen, welche Kleider und welchen Schmuck wir tragen
+usw. usf. viel von uns preisgeben, sondern ebenfalls ganz stark mit der Wahl unserer Worte – oder
+auch unserer Nicht-Worte, d.h. unserem Schweigen. Wie und was wir sprechen und schreiben, die
+gewählte Sprachform, die Lautstärke der Stimme, die Geschwindigkeit und der Ton – ja, sogar beim
+Lesen, nicht nur beim direkten Kontakt ‹hört› man die Geschwindigkeit und den Ton! – sind Ausdruck
+unserer Mentalität (= Bewusstsein, Gedanken, Gefühle, Psyche), die wir einem kundigen Gegenüber
+nicht verheimlichen können. Sind wir nicht völlig abgestumpft oder immun unseren Eigenheiten und
+Eigenschaften gegenüber, merken wir oft selbst, wie wir sind und bei den andern ankommen. Der Vergleich mit andern Menschen oder was wir durch Studium entsprechender Literatur lernen – oder einfach das offene oder versteckte Feedback unserer Umgebung – bringt uns hoffentlich immer wieder
+genügend Stoff zum Nachdenken und auf den Boden der Realität. Im grossen und ganzen ist es meines
+
+
+-----
+
+Erachtens jedoch fast unmöglich, ohne Kenntnis der Geisteslehre wirklich ehrlich und wirkungsvoll
+selbst-fündig zu werden, denn das Verborgene, nicht Offensichtliche über uns steckt in unserem Unter bewusstsein, von wo es nicht so einfach zu holen ist. Wer aber ausser den Studierenden der Geisteslehre hat schon eine Ahnung über das Unterbewusstsein und dessen Funktionen? Wem sonst ist bekannt,
+dass das Unterbewusstsein nicht nur Impulsgeber für das Bewusstsein, ‹Relaisstation› und ‹Frequenz umwandler› des ‹Impulsverkehrs› von und zu den Speicherbänken und der akut-aktuellen Schwingung
+des Unterbewusstseins aller Menschen ist, sondern dass das Unterbewusstsein auch einen eigenen
+Gedächtnisteil mit einem wichtigen Inhalt besitzt? Nur die Lehre des Geistes, Lehre des Lebens, Lehre
+der Wahrheit lehrt, dass dort, im Gedächtnis des Unterbewusstseins, die Essenz, d.h. der jeweilige
+Höchststand jeder Bewusstseinsform aller unserer Vorgängerpersönlichkeiten gespeichert ist, die es zu
+ergründen gilt, wollen wir eine tiefergehende Selbsterkenntnis erreichen. Ohne diese tiefergehende
+Selbsterkenntnis verfehlen wir einen grossen Teil der Sinnerfüllung unseres Lebens, die als Streben nach
+geistiger und bewusstseinsmässiger Evolution gegeben ist. Dieser tief im Gedächtnis des Unterbewusst seins verborgene Teil ist für uns also deshalb so wichtig, weil ein bewusstseinsmässiges und geistiges
+Weiterentwickeln nur möglich ist, wenn wir Kenntnis vom bereits Bestehenden haben – wofür wohlgemerkt unsere Vorgängerpersönlichkeiten zuständig waren und nicht unsere Erzeuger. Zwar erahnen
+wir bei genügender Feinstoffsinnlichkeit immer wieder einzelne Teilchen des riesigen Puzzles, aber das
+reicht bei weitem nicht, um zusammen mit unseren eigenen Gedanken und Gefühlen – und richtiger
+Nutzung von Vernunft und Verstand! – wirkungsvoll weiterzukommen; dazu brauchen wir mehr als nur
+ein paar Teilchen.
+Aus der Selbsterkenntnis entsteht das Selbstbewusstsein, d.h. die Tatsache des Bewusstseins der eigenen
+inneren Werte. Wie das Sprichwort ‹Selbsterkenntnis ist der erste Schritt zur Besserung› schon sagt, ist
+die Selbsterkenntnis kein Selbstzweck, sondern zusammen mit dem Selbstbewusstsein und der Selbstverwirklichung usw. ist sie einer der wichtigsten Evolutionsfaktoren, weshalb ihr Ergründen auch so
+wichtig ist. Dazu gibt es – neben der Meditation – ein grosses Hilfsmittel, und das sind unsere Träume.
+Sie sind für mich die zuverlässigste Quelle an Information über mich selbst und auch die einzige, die
+ich wirklich zu nutzen weiss. In der Geisteslehre, Lehrbrief Nr. 157, Träume und Traumdeutung, Teil
+28, Innere Einstellung – Selbstverwirklichung – Tiefere Selbsterkenntnis, schreibt Billy auf Seite 1943
+folgendes:
+«Die tiefere Selbsterkenntnis resp. vertiefte Selbsterkenntnis ist also der unerlässlich erste Schritt zur
+**Selbstverwirklichung. Durch die tiefere Selbsterkenntnis müssen möglichst viele Fähigkeiten oder Ver-**
+anlagungen usw. der inneren Faktoren **Bewusstsein/Persönlichkeit, Moral, Charakter, Psyche und**
+**Unter bewusstsein erkannt werden. Dieses Erkennen der inneren Werte nennt sich dann Selbsterkenntnis,**
+weil ja die wirkliche innere Wesenform jedes einzelnen inneren Wertes erkannt wird, aus der heraus
+sich die innere Einstellung formt. Das Ganze ist also eine Erfassung des wirklichen Ichs, aus der die
+innere Einstellung resultiert. Und gerade diese Ich-Erfassung hat es in sich, denn sie ist zuständig für
+die tatsächliche Selbstverwirklichung. … Das alles aber findet den Grund im schöpferisch gegebenen
+Streben, aus dem heraus der Mensch nach der Ich-Erkenntnis resp. Ich-Erfassung und also nach der
+Selbsterkenntnis drängt, um einerseits zu erfahren wer und was er wahrheitlich in seinem innersten und
+inneren Wesen ist und was er evolutiv daraus machen muss. Selbsterkenntnis ist der wichtigste Faktor
+zur Selbstverwirklichung, denn ohne die Erkenntnis um die eigenen inneren Werte können diese nicht
+entwickelt und nicht entfaltet werden. …»
+
+Die Selbsterkenntnis beruht also auf der Fähigkeit der Wahrnehmung der eigenen Wesenszüge und der
+Wahrnehmung des Unterschieds zur gesamten Umwelt und zu den Mitmenschen. Aus der Selbsterkenntnis entsteht das Selbstbewusstsein, d.h. die Tatsache des Bewusstseins der eigenen inneren Werte. Leider
+ist im allgemeinen deutschen Sprachgebrauch der Begriff ‹Selbstbewusstsein› fast nur mit dem Stolz
+auf die eigene Person verknüpft, was bis zur völligen Selbstüberschätzung und überheblichen Arroganz
+führt – wobei wir diesbezüglich fälschlicherweise meist nicht mehr an uns selbst, sondern an andere
+Personen denken. …
+
+
+-----
+
+Im obenerwähnten Lehrbrief Nr. 157, schreibt Billy auf Seite 1949 unter anderem dazu:
+«Als Selbstbewusstsein, auch Ich-Bewusstsein genannt, wird das Wissen des Ichs um sich selbst als sub**jektives Ego bezeichnet. Das Ego/Ich ist verankert in der Persönlichkeit, und zwar als** **effective Er-**
+**kenntnis und Kenntnis, als Wissen, Erfahrung und Erlebnis sowie als Gefühle und Empfindungen usw.**
+Mit andern Worten bedeutet das: Was der Mensch auch immer erkennt, kennt und weiss, erfährt, erlebt
+und empfindet usw., nimmt er dank seines Selbstbewusstseins als etwas von ihm Persönliches wahr. …»
+
+Liege ich im Bett, ist es, als ob ich im Kino oder vor dem Fernseher wäre. Es flimmert nur so. Natürlich
+bin ich noch weit davon entfernt, ein Bild meiner Gesamtpersönlichkeit zu haben, doch zum Glück war
+ich schon immer relativ ehrlich zu mir selbst, so gibt es auch kein jähes Erwachen, wenn mir Träume
+etwas aufzeigen, das ich schon lange hätte ändern oder erledigen sollen.
+Als ich vor vielen Jahren, es war wohl Mitte der 90er Jahre des letzten Jahrhunderts, die Lehrbriefe
+157–160 durchstudierte, notierte ich für mich den folgenden Satz aus LB 157, Seite 1946, um mein
+Unterbewusstsein zur Mitarbeit zu motivieren, das die gestellten Fragen dann durch einen Traum mehr
+oder weniger symbolisiert beantwortet. Die Satzkreation, wie z.B. nachfolgendes Beispiel, ist vor dem
+Einschlafen in autogener Entspannung etwa 35mal zu wiederholen:
+
+«Ich erkenne meine inneren Werte und erkenne mich selbst. Ich behalte alle Traumbilder auch nach dem Erwachen in Erinnerung, aus denen ich klar und eindeutig erkenne, wer und was ich tatsächlich bin.»
+
+Das Unterbewusstsein beantwortet auch konkrete Fragen in einem sogenannten Frage-Antwort-Spiel.
+Diese Fragestellungen muss man sich ebenfalls intensiv einprägen, damit sie im Unterbewusstsein aufgenommen und stabilisiert werden können. Die Frage ist immer in der Es-ist-so-Form resp. Befehlsform
+zu stellen, keinesfalls in einer Bittform, denn sowohl das Unterbewusstsein selbst wie auch das Bewusst sein resp. die Persönlichkeit, der Charakter, die Moral und die Psyche usw. sind individuelleigene Fakto ren des Menschen, die jederzeit mit dem Willen und den Wünschen sowie den Ideen zusammenarbeiten, da gesamthaft alles eins ist. Etwas einfacher ausgedrückt heisst das: Es gehört alles uns, wir können
+darüber ohne Kniefall verfügen und ohne uns dafür bedanken zu müssen.
+
+Die Nutzung der Es-ist-so-Form zeigt, dass es genau so ist, wie es formuliert wird, und es ist auch klar,
+dass es nur auf diese Art und Weise evolutionsfördernd funktioniert. Meist brauche ich keine grossen
+Formulierungen mehr, die Träume kommen auch so – und zwar relativ unverschlüsselt und manchmal
+so ausführlich und klar, dass sie nicht einmal mehr einer speziellen Deutung bedürfen –, es sei denn,
+ich will z.B. etwas herausfinden, das erstaunlich ist und das sich sporadisch in relativ grossen Zeitabständen wiederholt, um endlich eine Änderung oder – gemäss Sprichwort – eine Besserung herbei führen zu können. Dann überlege ich mir einen griffigen Satz, der für das Unterbewusstsein logisch ist –
+denn auf unlogische Fragen gibt das Unterbewusstsein unlogische Antworten –, was ganz und gar
+nicht einfach ist, sondern viel Gedankenarbeit erfordert.
+Wer also aus seinem Unterbewusstsein mehr über sich selbst erfahren möchte, tut gut daran, seine Fragen
+klug zu überdenken, denn allein schon das intensive Überdenken und Formulieren ist fruchtbar und trägt
+bereits viel dazu bei, Selbsterkenntnis wie auch Selbstbewusstsein und Selbstverwirklichung zu fördern
+und eine Wandlung zum Besseren herbeizuführen – und damit der Sinnerfüllung unseres Lebens gerecht
+zu werden.
+
+
+Zum Abschluss zwei passende Sätze aus dem OM, Kanon 32:
+547. Willst du dich selbst erkennen, dann schweige über die andern still und sieh, wie sie es treiben,
+denn in ihnen erkennst du dich selbst.
+548. Willst du die andern verstehen, dann blicke in dein eigenes Sinnen, Denken und Trachten.
+Mariann Uehlinger, Schweiz
+
+
+-----
+
+## Konsumgut ‹Liebe›
+##### oder eine kurze Betrachtung über zwischenmenschliche Beziehungen, Partnerschaften und die zweifelhaften Vorstellungen von ‹Liebe›
+Im Wesen jeder Blüte liegt die Vergänglichkeit und in jeder Begegnung der Verlust. In jeder Erinnerung
+liegt das Vergessen, in jedem Augenblick das Sehnen nach wahrlicher Liebe, nach Geborgenheit und
+einer harmonischen Verbindung, wie leider auch die Vergänglichkeit des Ganzen. Jeder einzelne Mensch
+sehnt sich danach, respektiert, geliebt, zärtlich berührt und angehört zu werden. Viele wünschen sich
+lebenslängliche Gefährtenschaften, treue Freunde, stabile, beständige Partnerschaften und ein einfühl sames Verstandenwerden. Der Mensch an und für sich ist ein soziales Wesen und benötigt allein schon
+aus dieser Tatsache heraus seinesgleichen. Zeitlebens ist er auf der Suche nach echten Verbindungen und
+sicherer Verlässlichkeit, auf die er sich in guten und in schlechten Zeiten verlassen und worauf er bauen
+und vertrauen kann. Im Laufe seines Lebens festigen sich seine Persönlichkeit und der Charakter, und er
+bildet sich seine Meinungen und Ansichten, wie sich auch seine Erkenntnisse, Einsichten und Erfahrun gen und das Erleben mehren, aber auch Intoleranz und Vorurteile. Vielfach bildet sich der Mensch
+ganz schnell konkrete Vorstellungen, Idealbilder oder Visionen in bezug auf das Wesen und den Charakter einer Person, mit er sich zusammentun will oder die für ihn einfach eine neue Verbindung ist.
+Durch die eigene gute oder schlechte Lebenserfahrung, durch individuelle Neigungen, eingespielte
+Gewohn heiten und durch persönliche Eigenarten werden oftmals sehr hohe, selbstbezogene Ansprüche
+und Massstäbe in neue Begegnungen und Bekanntschaften gelegt. Fremde Persönlichkeiten und Charakteren möglicher neuer Bekanntschaften oder Freundschaften sollten im besten Fall so geartet sein,
+wie sie einem selbst eigen sind, und die andern sollten die gleichen Interessen verfolgen und gleiche
+oder ähnliche Ansichten vertreten. Gerne gibt sich der Mensch den Anstrich des höchsten Massstabes
+aller Perfektion, auch in bezug auf die Umgänglichkeit und Leutseligkeit. Neu gewonnene Menschen
+in bezug auf Bekanntschaften, Freundschaften oder Partnerschaften sollten in ihren Äusserlichkeiten
+‹tageslichttauglich› sein, um bei gemeinsamer Präsentation im bereits vorhandenen sozialen Umfeld
+bestehen zu können. Die vielbesungenen und hoch gelobten ‹inneren› Werte des fremden Menschen
+werden sehr schnell an der eigenen und vermeintlich makellosen Erhabenheit gemessen.
+In der Sprachkultur der gegenwärtigen Neuzeit trägt der erdenmenschliche Begriff ‹Liebe› den üblen
+Beigeschmack vergänglicher Konsumbeziehungen, der verantwortungsmeidenden Schnellebigkeit sowie einer naiven Lächerlichkeit und unbedachter zwischenmenschlicher Faselei. Vieles ist ‹so nice and
+so lovely›, wie das lediglich oberfläch lich und vielfach in blinder Verliebtheit verwendete «Ich liebe
+Dich». Gleichsam gilt dies für das «Oh, I love it» für ein Stück feinen Kuchen sowie «ich liebe es» z.B.
+auch für schönes Wetter angewendet wird. Damit existiert im Sprachgebrauch und im Verständnis zahlreicher Menschen keiner lei Unterschied zwischen der verbalen Liebesbekundung zu einem Menschen
+und dem Ausdruck für das Mögen einer kulinarischen ‹Liebhaberei›. Man ‹liebt› eben auch das, was
+man lediglich mag!
+Unzählige Menschen gestehen einander im Verliebtheitsrausch ‹ewige Liebe›. Und das, obwohl sie in
+Tat und Wahrheit mit ihren Versprechungen lediglich die Aussicht auf eine Befriedigung der fleischlichen
+Gier, Neigungen, Süchte, Leidenschaften und Lüste sowie ihrer Beischlafbedürfnisse, wirtschaft liche
+Vorteile oder die Anhebung ihres gesellschaftlichen Standes anstreben. In kindlicher Naivität und rosa roten Falschvorstellungen wird die gedanklich-gefühlsmässige ‹Liebe› als Verbindungsform zweier Menschen besungen, in Reime verpackt und hoch gepriesen. Literarische, bildhauerische, musikalische oder
+sonstige musische Werke aller Art vergangener und gegenwärtiger Kulturen bejubeln, verherrlichen oder
+missdeuten und verfälschen in künstlerischer Schaffenskraft die zwischenmenschliche, gedanklichgefühlsmässige Verbundenheit ‹Liebe›. Gewisse Regungen der Zuneigung, der Sympathie und die
+Euphorie des reinen Verliebtseins kommen in jeder Form zum Ausdruck, während die wahre empfindungsmässige Liebe als wahre Liebe zu kurz kommt. Das beweisen die zahlreichen Ehescheidungen,
+Beziehungsbrüche, Trennungen, Partnerschaftsauflösungen oder zwischenmenschlichen Zerwürfnisse
+aller Art, denn diese sprechen die ganz klare und deutliche Sprache dessen, dass wahre Liebe beim
+
+
+-----
+
+Menschen nur mangelhaft vorhanden ist. Kontaktinserate in Zeitungen, Zeitschriften, im Radio und TV
+oder im Internet usw. versprechen seitenweise, endlich die richtige Partnerschaft zu finden, die Liebe
+des Lebens, grosse Treue oder die Liebe auf den ersten Blick und endlose Harmonie.
+Wahrheit ist, dass eine falsch verstandene Liebe, die nur aus gedanklich-gefühlsmässigen Regungen
+und also nicht aus Empfindungen heraus besteht, nicht aus sich selbst heraus zu wachsen vermag. Tat sächlich wird eine solche ‹Liebe› durch rein psychologische Techniken, Therapien und Praktiken zur
+Verliebtheit hervorgerufen und zu etwas stilisiert, das keinen lebenslangen Bestand hat. Sie wird zurechtgebogen, angepasst, modelliert und ihrer eigentlichen schöpferisch-gesetzmässigen, schützenden
+Haut entledigt und nach Möglichkeit für teures Geld zu Markte getragen. Durch profitheischenden
+Handel werden dem Menschen – mit der ‹Liebe› als Prostituierte – sexuelle Freuden verkauft, wie gleichsam vergiftete und tödliche Gase als frische Luft gehandelt und ganz gewöhnliches Glas als wert vollster
+Edelstein angepriesen wird.
+Das ureigene Bedürfnis nach zwischenmenschlicher Nähe, Geborgenheit und Zweisamkeit macht den
+Menschen unvorsichtig, wobei er diesbezüglich auch sehr verletzlich ist. Vielfach ist zwischenmensch liche und partnerschaftliche Nähe gepaart mit hormonellen Einflüssen und also sexuellen Trieben, was
+als ‹Liebe› gedeutet wird, und vielfach spielen dabei auch Leichtsinn, Kritikmangel und Naivität eine
+grosse Rolle. Dies vor allem dann, wenn im Liebesverständnis des Menschen körperliche Attribute, der
+Hormonhaushalt, unkontrollierte Gedanken und Gefühle sowie Begierden und Emotionen als Oberflächlichkeiten oder tief eingefressene sexuelle Triebe eine massgebende Rolle spielen und diesen Platz
+eingeräumt und zugestanden wird.
+Das Gros der Erdenmenschen hat bezüglich des sogenannten Liebeslebens seit langem die evolutiv
+wertvollen psychologischen, gefühls- und bewusstseinsmässigen Zusammenhänge bzw. den Sinn und
+Zweck der menschlichen Beziehungsformen verdrängt oder vergessen. Vor allem die christlichen Einflüsse,
+Falschbelehrungen und Vereinnahmung der Liebe als göttliches Attribut haben in diesen Belangen sehr
+viel Unheil angerichtet. Die Ausbildung, Entwicklung und Pflege zwischenmenschlicher Werte und Beziehungen bilden eine wichtige Grundlage einer gesamtheitlichen Evolution zur Erfüllung der menschlich-schöpferischen Aufgabe und Bestimmung. Der Mensch dieses Planeten beachtet die Liebe leider
+nur mit seinen Gedanken, Gefühlen, Wünschen und Begierden und betrachtet sie mit seinen Augen
+und daher aus einer sehr oberflächlichen Sichtweise. Er interpretiert sie mit seinem Verstandesdenken
+und intellektuellen sprachlichen Begriffen. Er spricht im Namen der Liebe von inneren Werten und benutzt dabei Pseudoweisheiten und kultreligiös-theologische Terminologien. Damit wähnt er, seine Werte
+und persönlichen Vorstellungen von Liebe zu beschreiben. Für zahlreiche gläubige Menschen ist die
+Liebe nur eine Abhängigkeit in bezug auf ihre Götter und Götzen, zudem der Inbegriff höchstmög licher
+menschlicher Liebe, wie aber auch eine Voraussetzung persönlicher Vervoll kommnung und Errettung.
+In Tat und Wahrheit handelt es sich bei der kultreligiös geprägten und demütigen Liebe christlicher Auffassung jedoch nur um eine krankhafte und gefühlsmässig erzeugte Einbildung und Wahnvorstellung
+sowie um eine selbstauferlegte und beschönigte Form der Abhängigkeit und Selbstentwertung. Die vermeintlich höchste und reinste Liebe zum ‹lieben Gottvater im Himmel› basiert auf angstvollen Gedanken
+und Gefühlen des Genügenwollens wie auch auf einer erhofften Sündenvergebung. Darauf basieren
+auch zahlreiche Rechtfertigungen und die blindgläubige Verteidigung einer göttlichen Herrschaft, die
+von Menschen einem imaginären Gott angedichtet wurde und wird und die in Wahrheit einer Gewalt herrschaft entspricht. Das Ganze dient auch als heuchle rische Anbiederung zum Zweck der persön lichen Selbsterhöhung. Diese angebliche Liebe ist keine wahre und schöpfungsorientierte Liebeform,
+sondern eine reine Gunsterheischung und ein hündisches Ansuchen und Betteln um Vergebung und Errettung durch den angeblichen Gott. Die auf reinem Selbstzweck basierende Form ‹christlicher Liebe›
+steht also in keinerlei Zusammenhang mit der wahren schöpferischen Liebe, die in höchster Vollendung
+aus dem geistigen Bereich als Empfindung resp. als Empfindungsliebe ins menschliche Bewusstsein, in
+die Gedanken und Gefühle und in die Psyche dringt. Auch nur aus dem Geistbereich heraus kann, in
+Form einer Empfindung, wahre Nächstenliebe entstehen. Allein diese Liebe als Empfindung aus dem
+Geistbereich heraus kann als wahre Liebe bezeichnet werden, und allein diese Liebeform ist von Be
+
+-----
+
+ständigkeit. Im Gegensatz dazu steht die sogenannte ‹normale› Liebe des Menschen, die nur auf Gedanken und Gefühlen, jedoch nicht auf Empfindungen aus dem Geistbereich beruht. Diese ‹normale›
+Liebe wird nur durch Gedanken und Gefühle aufgebaut, wobei in der Regel nur materielle Dinge dafür
+von Bedeutung sind, wie Geld, Hab und Gut, Ansehen und gesellschaftliche Stellung, gute körperliche
+Proportion, Image, Beruf und antlitzmässige Schönheit usw.
+Die psychische Stabilität vieler Menschen ist oft nur eine äusserliche Show, und das allgemeine Verhalten sehr wankelmütig. Sehr leicht geraten bei vielen die Psyche und der gesamte Mentalblock aus
+dem Gleichgewicht, wenn äussere Einflüsse wie schwierige Lebenssituationen, unvorhergesehene Mühseligkeiten und Probleme irgendwelcher Art in Erscheinung treten. Unaufmerksame, schwache und unbe dachte Menschen sind im Umgang mit ihrer psychischen, gefühls- und bewusstseinsmässigen Verfassung ihr Leben lang wie schwankende Seiltänzer ohne geübte Kondition.
+Sogar Ungläubige und kultreligionskritische Menschen lassen sich in euphorischer Verliebtheit, in Not
+und Trauer oder vom Bann oberflächlicher Liebesbekundungen blenden und sehr schnell ihrer religionskritischen Prinzipien berauben. Gottgläubige hingegen verfallen einem religiösen Fanatismus und wähnen, dass ihre ‹gottgegebene› Liebe von ewiger Dauer sei – jedoch nur so lange, wie alles wie am Schnürchen klappt, um dann, wenn der Lauf beendet ist, in Hass und Rache auszuarten. Diese Tatsache des
+wahnmässigen Glaubens ewiger Liebe ist vor allem dann zu beobachten, wenn sie sich standesgemäss
+und für teures Geld festlich gekleidet, von sogenannten ‹Geistlichen› gemäss religiösem Brauch und
+‹heiliger› Tradition vermählen, ihre Angehörigen beerdigen oder ihren Nachwuchs taufen lassen. Geht
+es dann aber um die persönliche Freiheit der Partner sowie um ande re persönliche Dinge, die dem
+Partner nicht in den Kram passen, dann gibt es schnell einen Bruch in der Liebe, Trennung und Scheidung. Die genannte Art Liebe findet schon ein Ende, wenn die Namens gebung für Nachkommen zur
+Debatte steht, denn da prallen Welten aufeinander, weil alle Betroffenen andere Namensvorstellungen
+haben. Doch diese Liebe, die in Wahrheit nur eine Scheinliebe ist, endet auch dann, wenn Angehörige sterben und eine Erbschaft ansteht, denn dann bricht in der Regel bei vielen Erben die Gier nach
+Geld, Hab und Gut aus, was sehr oft zu Hass und Rachegedanken sowie zu gerichtlichen Auseinandersetzungen führt.
+Der verliebte Mensch, der keine Standhaftigkeit aufweist, gleicht einer wunderbaren, jedoch abgeschnittenen Blume, die, ins Wasser gestellt, für einige Tage um ihr Überleben kämpft und dann verwelkt
+und verdorrt. So ist es auch mit der vermeintlich ‹normalen› Liebe des Menschen. Wird diese an einen
+Mitmenschen ‹verschenkt›, eben lediglich in Form einer euphorischen Verliebtheit, die nur durch Gedan ken und Gefühle zustande kommen kann, dann dauert diese ‹Liebe› nur für eine kurze Zeit, wonach
+dann unweigerlich die Verwelkung und das Abdorren erfolgt. Mit den Gedanken und Gefühlen werden
+vom Menschen Wünsche und Vorstellungen sowie auch Idealbilder erschaffen. Daraus erwachsen neue
+und weitere Bedürfnisse, Neigungen sowie Ansprüche und Einbildungen. Diese Dinge verlangen natürlich auch nach einer körperlichen, psychischen, gedanklichen und gefühlsmässigen Befriedigung. So
+wird der Kreislauf geschlossen, wodurch gemäss den eigenen Idealvorstellungen und Massstäben immer
+wieder gewisse gedanklich-gefühlsmässige Regungen einer ‹normalen› resp. vermeintlichen Liebe und
+Zuneigung für einen anderen Menschen kreiert und erschaffen werden. Diese gedanklich-gefühlsmässi gen Regungen äussern sich vielfach als Strohfeuer einer Verliebtheit, die von Wunschvorstellungen geprägt ist und die keinerlei Gemeinsamkeit mit einer wahren empfindungsmässigen Liebe aufweist. Diese
+Tatsache schmälert jedoch in keiner Weise den Wert einer gedanklich-gefühlsmässigen Liebe, wenn
+diese tiefgründig von dauerhaftem Zustand und durch eine Bindung und ehrliche Zuneigung zu einem
+Menschen geformt ist. Tatsächlich bilden diese höheren Gedanken- und Gefühlsregungen erstlich die
+Wurzel zum Beginn der Entwicklung zur höchsten Liebeform, der Empfindungsliebe, die aus dem geisti gen Bereich hervorgeht.
+Der Begriff Liebe wird vielfach zu einem psychologischen Konsumprodukt degradiert und als materiel ler Anreiz in der Werbung benutzt, assoziiert mit der Notwendigkeit der Bedürfnisbefriedigung und
+der Kauflust materieller Güter aller Art. Das ureigene menschliche Bedürfnis nach körperlicher Wärme
+und Zärtlichkeit, nach Verbundenheit, Sicherheit und Nähe zu einem geliebten Menschen wird zum
+
+
+-----
+
+käuflichen Produkt ‹Liebe›. Zahlreichen sexlustorientierten und zahlungswilligen Männern wie Weibern
+wird die körperliche Liebe zur unkontrollierten geschlechtsbefriedigenden oder beischlafenden Betätigung. Reine Sexbefriedigung wird als ‹Liebe› ausgelegt und als Köder benutzt. Zahlreiche Huren und
+Hurenbuben verkaufen ihre ‹Liebe› und angebliche Zuneigung als sexbefriedigende Praktiken und als
+‹Sex mit der oder dem Geliebten› oder als ‹Kuschelsex› usw. In der Zeit der Arbeitslosig keit und der
+Geldknappheit haben viele von ihnen selbst in Städten und angesichts von liebeshungrigen Heerscharen mit einem Kundenschwund zu kämpfen. Dies, obschon sich Millionen Männer und Weiber
+ihre Liebesdienste erkaufen. Mit Hilfe von Television, Zeitungsinseraten und Werbeplakaten in Weltformat ist der Gang zur prostitutionsmässigen Allerweltsliebschaft ‹salonfähig› geworden. Die Zahl
+sexuell käuflicher Damen und Herren ist im Dritten Jahrtausend auf das Mass unüberschaubarer Heerscharen angestiegen. Das sexuelle Angebot und die Nachfrage passen zusamen, feilschen um die
+begehrliche Befriedigung sexueller Bedürfnisse, Gelüste und Begierden, hin bis zu ausgearteten masochistischen und sadistischen Formen, die bis zum Mord reichen. Letztlich zahlen die zahllos Ausschwei fenden und Zügellosen einen unverhältnismässig hohen Preis für die vermeintliche ‹Liebe›, ihre krankhaften Neigungen sowie die Schwachheit und Kraftlosigkeit in bezug auf das Nichtbeherrschen ihrer
+sinnlichen Natur. Auf die höchst unverbindliche, käufliche Lusterfüllung mit falschen Höhenflügen, offe nen Täuschungen und reinen Triebbefriedigungen folgen logischerweise unweigerlich psychische, gedanklich-gefühlsmässige und moralische Unzufriedenheit und beziehungslose Leere. Nicht nur das männliche, sondern auch das weibliche Geschlecht pflegt bezüglich der ‹Sexwirtschaft› eine tiefgreifende
+Naivität des Selbstbetruges. Falsche heuchlerische Komplimente, Koseworte und katzenfreundliche,
+falsche Männlichkeits- und Weiblichkeitsbezeugungen bezahlter Buhlender resp. von Huren und Huren buben werden von den Hormongetriebenen mit unver hältnismässigen Mitteln honoriert und als Liebe
+und Zuneigung interpretiert.
+In der gegenwärtigen Epoche dienen vielen Menschen zwischenmenschliche Beziehungen lediglich
+dem Zweck des sexbefriedigenden Vergnügens, dem Zeitvertreib oder der Unterhaltung. Längst hat
+das Gros der Menschen die urschöpferischen Werte des gemeinsamen evolutiven Lernens sowie der
+Erlangung wahren Wissens, der Erkenntnisse und der Weisheit verdrängt. Vermag sich die irdische
+Menschheit jedoch nicht wieder auf die ihr bestimmte schöpferische Liebes- und Beziehungsfähigkeit
+zurückzubesinnen, dann drohen ihre wertvollen Fähigkeiten der Zwischenmenschlichkeit noch völlig
+zu verkümmern.
+Die heutige Zeit ist das Zeitalter der kalten Herzen, und diese Tatsache hat vor allem in einschlägigen
+Journalen sowie im Internet in Tausenden von Kontakt- und Erotiksites einen fruchtbaren Nährboden
+gefunden. Versteckt hinter der Anonymität phantasievoller falscher Identitäten, werden die zwischen menschlichen und vor allem die sexuellen Bedürfnisse im Namen der vermeintlich wahren Liebe zu
+Markte getragen und verhandelt. Offene, unverbindliche Beziehungsformen werden angepriesen, die
+allesamt auf sexuelle Praktiken hinauslaufen. Damit werden Illusionen erschaffen und Scheinwelten aufgebaut, die die gefühlsmässige ‹Liebe› gemäss menschlichem Falschverstehen auf Basis des rein sexuel len Lustprinzips und dessen Erfüllung als optimale Lebensweise proklamieren. Sogenannte moderne,
+offene Partnerschaften im Sinne vergnügungsorientierter Wechsel der Sexualpartner treten immer mehr
+in Erscheinung und bewegen sich immer stärker auf dem schmalen Grat zwischen Prostitution und
+zwischen menschlicher Unverbindlichkeit. Die eigenen Lebenspartner, das Eheweib und den Ehemann
+für sexuelle Zwecke an andere Menschen zu verschachern ist eine rudimentäre Auffassung von Liebe
+und Verbundenheit. Solche Handlungen orientieren sich an rein materiellen und sexuellen Belangen
+und lassen die wahrlich schöpferische Liebe empfindungsmässiger Natur in weite Ferne rücken. Hierbei sind auch die negativen psychischen, gedanklich-gefühlsmässigen und moralischen Folgen für die
+Praktizierenden nicht zu unterschätzen, denn die Erwartungen enden letztlich immer in einer Enttäuschung. Am Ende fällt alles in eine leere Beziehungslosigkeit und öde Unverbindlichkeit, durch die die
+Gedanken und Gefühle erkalten. Derart sexorientiertes Handeln ist leider eine übel grassierende Erscheinung der gegenwärtigen Zeit und wird fälschlicherweise als modern, emanzipiert, fortschrittlich
+und also als ‹en vogue› resp. als zeitgemässe Mode betrachtet und beurteilt.
+
+
+-----
+
+Die Suche nach einem geeigneten Partner oder einer passenden Partnerin treibt in der heutigen Zeit
+der grassierenden Überbevölkerung oft äusserst seltsame Blüten. Der Markt gilt dabei meist nur der
+materiell-orientierten ‹Liebe›, und diese überschwemmt alle Medien und die ganze Welt. Die Gesetze
+oberflächlicher Unverbindlichkeit und des Überangebotes haben einen grossen Einfluss auf die Gedanken- und Gefühlswelt und damit auch auf das Benehmen, Handeln und Verhalten der Menschen.
+Bekanntschaften und Verbindungen werden vorschnell eingegangen, und zahlreiche Ehen und Partner schaften werden ungeprüft geschlossen, wobei alles keine Beständigkeit haben kann, weil sie nur
+Scheinverbindungen sind, denen Unverbindlichkeit und Flatterhaftigkeit zugrunde liegen. Zahlreiche
+Menschen in der Neuzeit sind nicht mehr gewillt oder einfach absolut unfähig, die grosse und weitreichende Verantwortung für eine gute, richtige und rechtschaffene zwischenmenschliche Beziehung zu
+übernehmen und zu tragen. Vielfach werden sie nur von egoistischen Motiven getrieben und scheuen
+die Anforderungen des gemeinsamen Lernens, um zusammen das Leben in wirklicher Liebe zu meistern.
+In der Regel meiden sie persönliche Konsequenzen und fürchten den Verlust ihrer persönlichen Freiheit,
+wenn sie eine ehrliche Verbindung eingehen sollten. Selbstverwirklichung und Selbstfindung werden
+nicht mehr verwirklicht, und das schöpferische Prinzip der individuellen Lebensentwicklung und Lebens gestaltung wird mit blankem Egoismus verwechselt. Im Chaos der Überbevölkerung verkümmert natürlich auch die Sensitivität der Menschen in bezug auf die Erkennung einer Schwingungskonformität hinsichtlich einer geeigneten Partnerschaft zwischen zwei Menschen. Allein schon diese Tatsache bildet
+die Basis zahlreicher zwischenmenschlicher Tragödien.
+Der beste Fall in bezug auf eine gute und richtige zwischenmenschliche Beziehung und auf eine harmonische Partnerschaft ist einzig und allein möglich, indem eine zwischenmenschliche Verbindung auf
+dem natürlichen Weg des gleichgerichteten schwingungsmässigen Zusammenfindens zustande kommen
+kann. Dabei üben die unbewussten Bewusstseinsformen des Menschen einen gewissen Einfluss auf das
+aktive Zusammentreffen aus, woraus dann eben Beziehungen und Verbindungen entstehen können.
+Das kann jedoch nicht durch eine Fremdbeeinflussung oder fremde Bestimmung der Fall sein. Grund sätzlich können nämlich nur durch impulsmässige Gleichheiten zusammenführende Handlungen und
+Schritte eine Begegnung bewirken, die letztlich zu einer Beziehung und Verbindung führen. Der Lauf
+des natürlichen Zusammenfindens benötigt unter Umständen einen längeren Prozess des Suchens und
+Findens, denn der wirkliche Erfolg wird dabei weder manipulativ organisiert noch richtet er sich nach
+materialistischen Wunsch- oder oberflächlichen Partnervorstellungen, die dann in einer euphorischen
+Verliebtheit enden, die nur auf wirren Gedanken und Gefühlen aufgebaut und immer falsch ist. Die
+wahre empfindungsmässige Liebe hat nichts mit einer Gedanken- und Gefühlsregung zu tun, die irrig
+‹Liebe› genannt wird, und sie ist kein Konsumgut sexueller Triebbefriedigung, sondern vielmehr das
+höchste Gut zwischenmenschlicher Verbundenheit, gegenseitiger Verantwortung und Erfüllung der
+Selbstpflichten, der Harmonie, des Friedens, der Zuneigung und Zusammengehörigkeit. Das Gros der
+Menschen ist heute leider noch Aeonen davon entfernt, die wahrliche Liebe empfindungsmässiger Form
+zu erfahren und zu erleben. Bereits die grundlegende Unterscheidung zwischen den Gefühlen und der
+Empfindung ist ihnen in ihrer Unwissenheit ein Rätsel. Im FIGU-Bulletin Nr. 52 vom Juni 2005 werden
+diese Belange auf den Seiten 22–23 von Billy als Antwort auf eine Leserfrage sehr ausführlich beschrieben und dargelegt, denn zwischen der Liebe empfindungsmässiger Form und der gedanklich-gefühlsmässigen Liebe euphorischer Verliebtheit liegen Welten, zu deren Erkennung der Erdenmensch
+wohl erst in einigen Jahrhunderten seine Augen zu öffnen vermag.
+Hans-Georg Lanzendorfer, Schweiz
+
+
+-----
+
+### VORTRÄGE 2011
+Auch im Jahr 2011 halten Referenten der FIGU wieder Geisteslehre-Vorträge usw. im Saal des Centers:
+
+**23. April 2011:**
+Patric Chenaux **Die Grösse des Menschen**
+_Die wahre Grösse des Menschen beruht auf innerer Grösse und den unumstösslichen_
+_Gesetzen und Geboten der Schöpfung. Sie ist der wahre Reichtum des Menschen und_
+_klares Zeugnis dafür, dass der Mensch zu einer wertvollen Perle reifen kann, wenn er_
+_sich ehrlich bemüht, sein Leben in richtiger und aufbauender Weise zu meistern._
+Bernadette Brand **Gefahr in Verzug …**
+_Über die Umsetzung der Geisteslehre ins tägliche Leben._
+
+**25. Juni 2011:**
+Pius Keller **Sei stets achtsam**
+_Über die Fähigkeiten, Möglichkeiten und Konsequenzen des Denkens._
+Hans-Georg **Freiheit**
+Lanzendorfer _Über die inneren und äusseren Grenzen._
+
+**27. August 2011:**
+Christian Frehner **Tierliebe**
+_Über den vernünftigen Umgang des Menschen mit den Tieren und dem Getier – und_
+_sich selbst!_
+Wolfgang Stauber **Über die Treue**
+_Über das unabdingbare, elementare Wesen der Treue und seine Auswirkungen auf_
+_das Leben._
+
+**22. Oktober 2011:**
+Bernadette Brand **Jungfräulichkeit**
+_Über die Umsetzung der Geisteslehre ins tägliche Leben._
+Natan Brand **Erziehung ist alles!**
+_Widerstandsloser Umgang mit Widerständen, oder die Kunst, sich durchzusetzen._
+
+Pünktlicher Vortragsbeginn um 14.00 Uhr.
+
+Eintritt: CHF 7.– (Eintritts-Ermässigung für FIGU-Mitglieder bei Vor weisen eines gültigen Ausweises.)
+
+An den Vortrags-Samstagen trifft sich im Semjase-Silver-Star-Center um 19.00 Uhr eine Studiengruppe,
+zu der alle interessierten Passiv-Mitglieder herzlich eingeladen sind.
+Die Kerngruppe der 49
+
+### VORSCHAU PASSIVGRUPPE-ZUSAMMENKUNFT 2011
+
+Die nächste Passivgruppe-Zusammenkunft findet am 28. Mai 2011 in der Turnhalle der Volksschule,
+Hauptstrasse 26, 8363 Bichelsee/TG statt. Reserviert Euch dieses Datum heute schon!
+Die persönlichen Einladungen mit näheren Hinweisen folgen zu gegebener Zeit.
+
+**Hinweis: Kinder unter 14 ohne Passivmitgliedschaft haben zwecks Vermeidung einer Infiltrierung**
+durch die FIGU keinen Zutritt zur Passiv-GV.
+
+**Achtung: Neuer Versammlungsort!**
+Die Kerngruppe der 49
+
+
+-----
+
+**IMPRESSUM**
+**FIGU-Bulletin**
+**Druck und Verlag: Wassermannzeit-Verlag, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+**Redaktion: ‹Billy› Eduard Albert Meier, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+**Abonnemente:**
+Erscheint unregelmässig; Preis pro Einzelnummer: CHF 2.– (Zusammen mit einem Abonnement der ‹Stimme der Wassermannzeit› oder der ‹Geisteslehre-Briefe› als Gratis-Beilage.)
+**Postcheck-Konto: FIGU-CH-8495 Schmidrüti, PC 80-13703-3**
+**E-Mail: info@figu.org**
+**Internet: www.figu.org**
+**FIGU-Shop: http://shop.figu.org**
+
+
+-----
+

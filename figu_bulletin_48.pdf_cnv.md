@@ -1,0 +1,1214 @@
+# FIGU-BULLETIN
+
+### Erscheinungsweise: Internet: http://www.figu.org 10. Jahrgang Sporadisch E-Mail:  info@figu.org Nr. 48, Juli 2004
+
+## Wenn Soldaten ‹menschlich› werden!
+### oder Israelische Kampfpiloten verweigern den Einsatz
+Bereits während meiner Kindheit war der Krieg in Israel gegen die Palästineser/innen in der Tagesschau
+des Schweizer Fernsehens ein alltägliches Dauerthema. Im Laufe der Jahrzehnte sind die Bilder jedoch
+nicht mehr schwarz-weiss geblieben. Die Bombenanschläge, Strassenkämpfe, Schiessereien, Selbstmordattentate sowie rauchende Panzer werden heutzutage gestochen scharf, digital und in Farbe ins Wohnzimmer übertragen. Schreiende und klagende Frauen, weinende Kinder, bewaffnete und brüllende Männer
+mit Drohgebärden sind aktueller denn je und so gegenwärtig wie in den Kindheitserinnerungen. Auch vor
+30 Jahren waren die Schreckensbilder beängstigend, jedoch beschränkt auf einen hölzernen Kasten im
+elterlichen Wohnzimmer. Aus kindlicher Distanz betrachtet, waren sie oft schwer verständlich, jedoch eine
+spürbare Bedrohung. Der damalige kindliche Alltag war noch überwiegend geprägt von lebenspraktischen
+Schulproblemen, den störenden Hausaufgaben, aber auch von der Sorglosigkeit, von kindlicher Freiheit
+und unbekümmerter Verspieltheit in einem nahegelegenen Wald. Die bedrohliche und kriegerische Welt
+der Erwachsenen war damals weit entfernt und das Vertrauen des Kindes in die Vernunft und den Verstand der verantwortlichen Menschen ungebrochen. Doch das Erwachsenwerden wurde begleitet vom
+allgegenwärtigen Konflikt im Nahen Osten, vom Krieg der Israelis gegen Palästina und von den Namen
+politischer Persönlichkeiten, die bereits den Kindern geläufig waren. Die klagenden und weinenden
+Kinder der Schwarz-weiss-Bildschirme von einst sind aber auch im Nahen Osten erwachsen geworden.
+Im Gegensatz zu einer damals beschützten Kindheit und Jugendzeit in der Schweiz war und ist deren
+Erwachsenwerden geprägt von Unruhen, Waffengewalt und Kriegen, von Bombenlärm und Panzerdröhnen. Viele der weinenden Kinder jener Tage haben sich gemäss ihren Vorbildern bereits früh dem
+Kampf verschrieben. Von ihren Vätern, Onkeln und Führerfiguren haben sie oftmals nichts anderes gelernt.
+Es gibt und gab aber auch viele, die angesichts der endlosen Gewalt und des ewigen Blutvergiessens
+nachdenklich geworden sind und sich endlich nach Frieden und Gewaltlosigkeit sehnen.
+Doch die uneinsichtige Machtgier, die sinnlose Kriegshetzerei und unstillbare Herrschsucht einzelner
+Machthabender ist oft stärker als das Streben und Sehnen der Massen nach Ruhe und Ordnung, nach
+Frieden und Geborgenheit.
+Der Konflikt im Nahen Osten begleitet und begleitete Generationen auf ihrem Werdegang. Die Aussicht
+auf ein Ende ist nicht abzusehen. So werden auch zukünftig Hunderte und gar Tausende von Kindern,
+Frauen und Männern in einem Konflikt ermordet, der schon vor Jahrtausenden begann. Leider werden sich
+im Namen ihrer Götter und Propheten weiterhin fanatische und wahngläubige Familienväter in die Luft
+sprengen und damit unschuldige Kinder zerfetzen, deren Leiber mit Gewehrkugeln, Bomben und Granaten
+verletzen. Es werden weiterhin Kampfflieger und Panzer die Häuser in Schutt und Asche legen oder Mauern
+und Zäune aus Eisen und Beton zwischen die Menschen geschlagen. Doch es gibt auch jene ungehörten
+Menschen, die längst des Krieges überdrüssig geworden sind und auch persönliche Freundschaften mit
+
+
+-----
+
+den angeblichen Feinden ihres Landes geschlossen haben. Mit den ‹Feinden› ihrer Regierenden, Politiker/
+innen und ‹Herrschenden›.
+Doch nichts bleibt ‹ewig› bestehen, auch wenn es endlos erscheint. Jeder Anfang hat irgendwo sein Ende,
+selbst wenn die Veränderung zum Besseren während Jahrhunderten und im Verborgenen erwachsen
+muss.
+Die Rat- und Hilflosigkeit des fernen Beobachters wird plötzlich durch eine unscheinbare Meldung freudig
+berührt. Sie zeigt deutlich auf: Es gibt selbst in einem Krieg auch wirklich gute Menschen – irgendwo,
+irgendwann!
+
+Tages-Anzeiger 25.9.2003:
+**_Israelische Kampfpiloten verweigern Einsatz_**
+_Israelische Kampfpiloten haben erstmals ihren Einsatz über palästinensischem Territorium verweigert. Die_
+_27 Soldaten hätten kürzlich eine entsprechende Petition an Luftwaffenchef Dan Halutz (Chalutz) über-_
+_geben, meldete das israelische Radio._
+
+**_Israelische Luftwaffe droht kritischen Kampfpiloten_**
+_Jerusalem. AFP/BaZ. Die israelische Luftwaffe hat mit harscher Kritik auf die Ankündigung von 27 Kampf-_
+_piloten reagiert, Angriffe auf zivile Ziele in den Palästinensergebieten zu verweigern. Luftwaffenchef Dan_
+_Halutz (Chalutz) sagte der Zeitung ‹Haaretz› (Donnerstagsausgabe), die Unterzeichner einer ent-_
+_sprechenden an ihn gerichteten Erklärung müssten diese zurückziehen, anderenfalls würden sie aus der_
+_Armee entlassen. Diese Methode habe sich bereits in anderen Fällen bewährt._
+_Nach Angaben des israelischen Radios handelt es sich bei den Unterzeichnern um reguläre Soldaten und_
+_Reservisten. Nur neun von ihnen sollen im aktiven Dienst sein. Es ist das erste Mal, dass Angehörige der_
+_israelischen Luftwaffe Militäreinsätze auf palästinensischem Gebiet ablehnen. Israel hatte in den ver-_
+_gangenen Monaten mit gezielten Luftangriffen mehrere radikalislamische Palästinenserführer getötet._
+_Dabei kamen wiederholt auch Zivilisten ums Leben._
+
+Tages-Anzeiger 26.9.2003:
+**_Kampfpiloten in Israel entlassen_**
+_Israel schliesst mehrere Piloten von der Armee aus. Sie wollten keine Angriffe auf zivile Ziele in den_
+_Palästinensergebieten fliegen._
+_… 7 der 27 Unterzeichner dürfen nicht mehr fliegen und müssen die Armee verlassen. Die übrigen 20_
+_seien von ihren Tätigkeiten suspendiert worden, sagte ein Militärsprecher am Donnerstag._
+_… Anlass war der Abwurf einer 1000 Kilogramm schweren Bombe auf das Haus des Hamas-Führers_
+_Saleh Shahade im Juni in Gaza City gewesen, bei dem das Mitglied der palästinensischen Terrororgani-_
+_sation ums Leben gekommen war – aber auch dessen Ehefrau sowie 14 Zivilisten, darunter 9 Kinder und_
+_Jugendliche._
+
+Bereits im Jahre 2001 waren einige der rund 500 israelischen Soldaten, die den Einsatz im Gazastreifen
+und im Westjordanland verweigerten, zu Gefängnisstrafen verurteilt worden.
+Auf unserem Planeten werden Menschen bestraft, die sich für den Frieden wehren und dem Töten von
+Menschen ein Ende setzen wollen. Es werden Menschen mit Orden und hohen Ämtern belohnt, weil sie für
+falsch verstandene Ehre oder für das Vaterland Menschen getötet oder sich diesbezüglich bewährt oder
+‹verdient› gemacht haben. ‹Helden› werden vom Krieg geboren und Kriege werden heroisiert, weil sich doch
+viele Erdenmenschen gerne als vermeintliche Helden und Märtyrer wähnen. ‹Idole› des Tötens werden
+vielerorts noch immer hoch geachtet und die Weisheitskünder des wahrlichen Lebens verpönt.
+Selbst im dritten Jahrtausend wird oft jenen ein Denkmal gesetzt, welche sich durch sinnloses und menschenverachtendes Töten und Ermorden von denen hervorgetan haben, die auf der ‹falschen› Seite standen.
+
+
+-----
+
+Das wahrliche Menschsein wird in den Schmutz getreten, Ehrfurcht und Nächstenliebe vergessen und verdrängt, denn ein Kind, das im Krieg ermordet wurde, könnte das eigene sein; jede ermordete Frau die
+eigene Mutter oder Schwester und jeder getötete Soldat der eigene Bruder oder Vater. Sie denken oder
+fühlen nicht konform mit jenen, welche sie daher einfach ‹Feinde› oder ‹Gegner› nennen oder nannten.
+Im Namen des ‹Friedens› wird gemordet und erschossen, zerbombt und terrorisiert. Die Opfer werden zu
+Tätern und die Täter zu Opfern.
+Beiläufig lesen wir in der Zeitung die obgenannten Texte; kleine Meldungen in der Tagespresse. Dabei
+vergessen wir leicht, dass hinter den Zeilen wirkliche Menschen existieren. Namenlose Menschen, die viel
+Leid und Elend verursacht, aber auch gesehen haben. Menschen, die genau in diesem Augenblick mit
+ihrem Entschluss und ihrem Gewissen alleine kämpfen, weil sie Einsicht in die Ungerechtigkeiten ihres Tuns
+und Handelns gewonnen haben. Sie werden dafür jedoch von ihren Regierenden verurteilt und des
+Verrats bezichtigt, als Dorn im Fleische ihres Volkes abgestempelt. Ihr Leben erfährt eine umwälzende
+Wende, ihre Lebensgrundlage und Existenz wird bedroht, und zwar allein darum, weil sie sich für den
+Frieden wehrten und das sinnlose Töten unschuldiger Frauen, Kinder und Männer verweigert haben.
+Doch es ist ein Lichtblick von unbeschreiblich hoher Güte, Respekt und Menschenwürde, wenn Soldaten
+plötzlich ‹menschlich› werden.
+Hans Georg Lanzendorfer, Schweiz
+
+## Leserfrage
+Ist die kunst- und musikfördernde Geist-Energie bereits in der Evolutions-Energie enthalten oder bildet sie
+eine eigene Linie (Sparte oder Reihe oder wie man sagen soll)?
+Guido Moosbrugger, Deutschland
+
+## Antwort
+Die kunstfördernde und musikfördernde universale Geist-Energie ist ein fester und dauernder Bestandteil
+der universell-schöpferischen Evolutions-Energie.
+Billy
+
+## Leserfrage
+Die galaktische Strahlungs-Energie von der Zentralsonne der Milchstrasse kann ja die Menschen (evtl.
+auch Tiere) beeinflussen je nachdem, wie sie darauf reagieren.
+Welchen Zweck hat diese Strahlung eigentlich? Möglicherweise gibt es noch eine derartige Strahlung, die
+von der Zentralsonne des Universums (Zentralkern) stammt?
+Guido Moosbrugger, Deutschland
+
+## Antwort
+Durch die galaktische Strahlungsenergie werden nicht nur das ganze SOL-System sowie alle Planeten und
+deren Monde beeinflusst, sondern auch sämtliche existierende Lebensformen, wie das auch durch die
+Kräfte des Mondes und der Sonne geschieht.
+Eine ähnliche Strahlung geht auch von der Universum-Zentralsonne resp. vom Universum-Zentralkern aus,
+wobei diese jedoch auf den gesamten universalen Raum und auf sämtliche Galaxien, Nebel, Lichtwolken
+und Dunkelwolken, auf die Elektronen, Neutronen und Neutrinos usw. und überhaupt auf alles Universale
+ausgerichtet ist.
+Der Zweck der Strahlung dient der Entwicklung resp. der Evolution. Die Energie beinhaltet als Kraft zweckgerichtete Impulse, so also beim gesamtuniversellen Vorgang Kraft-Impulse, durch die alle Vorgänge der
+Entwicklung/Evolution im Lauf von Werden und Vergehen und dem daraus hervorgehenden Wieder
+
+-----
+
+werden und Wiedervergehen usw. usf. hervorgerufen werden. Diese Kraft-Impulse der strahlungsmässigen
+Energien rufen einen Erfüllungsdrang in allem Bestehenden im Universum hervor, wodurch die Galaxien,
+die Atome, die Sonnen und Planeten, die Gase und Neutrinos und alles Existierende gemäss ihren Bauplänen sich zu entwickeln und zu leben beginnen und sich ihrem Gang des Werdens und Vergehens einordnen.
+Die Strahlungseinflüsse der Galaxie wirken auch auf Mensch und Tier, wobei die bekanntesten Einwirkungen die sind, aus denen sich die Astrologie ableitet. Das sind jedoch nicht die einzigen Wirkungen,
+denn wie die Strahlungen von Sonne und Mond beeinflussen die Kräfte dieser Energien auch die Lebensvorgänge von Mensch und Tier sowie allen anderen Lebewesen und auch der Pflanzen jeglicher Gattung
+und Art.
+Billy
+
+## Leserfrage
+In diesem Fall könnte man diese Strahlungs-Energie auch in meine Tabelle ‹Siebenheit des Materieaufbaus› einreihen, oder?
+Guido Moosbrugger, Deutschland
+
+## Antwort
+Die galaktische und universelle Entwicklungsstrahlung resp. Entwicklungsenergie kann in die Tabelle der
+‹Siebenheit des Materieaufbaus› eingereiht werden, denn diese Energie gehört zur Gesamtheit des
+Ganzen.
+Billy
+
+## Leserfrage
+Alle Zellen, Atome und subatomaren Objekte haben ein Wissen über dieses und jenes … Kannst du mir
+diesbezüglich erklären, was zu diesem Wissen alles gehört?
+Guido Moosbrugger, Deutschland
+
+## Antwort
+Jedes Atom, jede Zelle, jedes subatomare Objekt sowie alles, das auch in den Bereichen der ultrasubatomaren Ebenen existent ist, besitzt ein Existenzwissen in Verbundenheit mit allen Dingen im gesamten
+universellen Bereich. So besitzt das winzigste ultrasubatomare Objekt das Wissen in Verbundenheit um
+die Existenz aller universumweit existierenden Dinge, und zwar sowohl in den Bereichen des Kleinsten wie
+des Grössten und im Ganzen. Darin eingeschlossen, in diesem Wissen, ist auch die Gesamtkenntnis des
+eigenen Gesamtbauplanes.
+Billy
+
+## Leserfrage
+Haben Sie ein Bild von Erra? Falls ja, dürfte ich es sehen?
+Barbara Lotz, Deutschland
+
+## Antwort
+Leider bin ich nicht im Besitz von Bildern bezüglich des Planeten Erra.
+Billy
+
+
+-----
+
+## Leserfrage
+Was ist eine Grosszeit bzw. wie lange ist sie? Oder gibt es Grosszeiten mit verschiedener Länge, je nach
+Evolutionsgrad?
+Barbara Lotz, Deutschland
+
+## Antwort
+Eine Grosszeit unseres Universums resp. unserer Schöpfung beträgt 311040 000 000 000 Jahre. Mit
+jeder neuen Schöpfungsperiode steigert sich die Grosszeit um das Siebenfache der vorangegangenen
+Grosszeit. Die Gesamtzeit aller Grosszeiten gesamthaft aller 10[49] Schöpfungsformen in unendlicher Zahl
+sowie aller sieben Absolutumformen in endloser Dauer wird Allgrosszeit genannt.
+Billy
+
+## Leserfrage
+Was war ganz am Anfang? Die Genesis beginnt mit der Erschaffung des Universums bzw. ‹unserer›
+Schöpfung durch die Urschöpfung. Aber nur während der ersten Urschöpfungsphase ist die «Urschöpfung
+in der Lage, ideenmässig eine Schöpfung ihrer eigenen vorausgegangenen Art zu kreieren» (Seite 196,
+‹Existentes Leben im Universum›). Das heisst, die Urschöpfung muss dann ja ebenfalls durch eine Urschöpfung als Schöpfung kreiert worden sein und so fort. Aber wie fing alles an?
+Barbara Lotz, Deutschland
+
+## Antwort
+Diese Frage ist zu lang, um im Bulletin beantwortet zu werden, denn es handelt sich um einen Geisteslehre-Lehrgang, der nicht in kurzen Worten abgehandelt werden kann. Zu sagen ist aber, dass aus dem
+Absoluten Absolutum, der niedersten aller Absolutumformen, die ersten niederen Schöpfungen (wie
+unsere Schöpfung) erschaffen wurden, die sich dann selbständig zu Urschöpfungen entwickelten und
+dann in nächster Folge zu Zentralschöpfungen, bis hinauf in die 10[49]. Stufe und damit zum Absoluten
+Absolutum. Jede einfache resp. niedrige Schöpfung entwickelt sich selbständig zur Urschöpfung, die dann
+wiederum eine einfache, niedere Schöpfung kreiert usw. usf.
+Billy
+
+## Telephonische Leserfrage
+Was halten die Plejaren von der Lage im Irak, in Afghanistan und in Israel? Kennen sie ein Patentrezept,
+um diese schrecklichen Auswüchse zu beenden? Was kann das amerikanische Volk gegen den kriegslüsternen Präsidenten Bush und seine Anhänger tun, die ja die Schuld an allen Grausamkeiten im Irak und
+in Afghanistan und an vielen anderen Orten tragen, wo sie sich ungerufen einmischen?
+Judy Adams, USA
+
+## Antwort
+Dazu möchte ich nur die Erklärung Ptaahs anführen, wie er diese beim offiziellen 349. Kontaktgespräch
+am Donnerstag den 2. November 2003 gegeben hat. Das sollte eigentlich alles sagen:
+
+Billy … Was hältst du von der Lage im Irak, in Afghanistan, in Israel und Palästina sowie von den
+Anschlägen in Istanbul?
+
+Ptaah Du hast bereits mit Florena darüber gesprochen und deine Meinung gesagt, die auch absolut
+zutreffend ist. Alles wird aber noch viel schlimmer kommen. Die Schuld daran tragen Kriegstreiber, wie
+der amerikanische Präsident George W. Bush, der englische Tony Blair und der Israelit Sharon sowie alle,
+die mit diesen am selben Seil ziehen oder sie und deren Handlungen auch nur befürworten. Der ganze
+
+
+-----
+
+Terrorismus der Staatsmächtigen und deren Schergen, die Geheimdienste und das Militär werden, wie die
+ausgesprochenen Terrororganisationen, wie z. B. Al Qaida usw., weltweit derartiges Unheil anrichten,
+wie es seit Menschengedenken auf der Erde noch nicht geschehen ist. Und werden Bush, Blair und Sharon sowie deren fanatische Anhänger nicht von ihren Positionen befreit oder folgen diesen Kriegstreibern
+gleichartige Kreaturen nach, dann wird eine weltweite Kriegskatastrophe über die Erde und deren
+Menschheit hereinbrechen. Noch kann die Vernunft des Erdenmenschen siegen, wenn alle Völker einheitlich zusammenstehen und die verbrecherischen Staatsmächtigen von deren Positionen werfen, um sie
+durch friedliebende, würdige und ehrfurchtsgerechte Kräfte zu ersetzen. Geschieht das nicht, dann wird
+alles ein übles Ende nehmen. Die USA sind weltherrschaftssüchtig und breiten sich wie böses Ungeziefer
+über die Welt aus. Die Militärs und US-Amerikaner überhaupt müssen sich aus aller Welt in die Vereinigten Staaten zurückziehen, wie auch die Engländer, während Israel den Arabern deren Land zurückgeben
+muss. Ein solches Handeln allein kann den internationalen Terrorismus beruhigen und zum Erliegen
+bringen, und zwar ganz gleich, ob dieser von den USA, von England, von Israel oder von eigentlichen
+Terrornetzen ausgeht. Tatsächlich sind es stets nur wenige Staatsmächtige, so auch in den USA und in
+Israel, die den Staatsterror durch die Kräfte der Geheimdienste und der Militärs und all deren Anhänger
+ausüben, während das Gros des jeweiligen Volkes sich für den Frieden, die Freiheit und das Leben einsetzt. Die grossen Menschheitsverbrecher sind also nicht die Massen der Völker, sondern einige wenige
+völlig verantwortungslose Staatsmächtige und deren Anhänger und Ausübende, die Kriegshetzer und
+bedenkenlose sowie gewissenlose Mörder sind und ihre Völker in Tod, Not und Elend stürzen und alles
+zerstören. Unverständlich ist es aber, dass sich die Völker das gefallen lassen, sich den Verbrechern unterund einordnen und sich nicht gegen die mörderischen Diktatoren erheben. Und solche Diktatoren sind
+auch jene mörderischen Staatsmächtigen, die vom Volk gewählt sind und ihre Macht zu Kriegs- und
+Staatsterrorismus, Krieg, Mord und Zerstörung missbrauchen.
+Billy
+
+## Leserfrage
+Immer wieder gelangen besorgte Eltern mit dem Ersuchen an die FIGU, zur zunehmenden Drogenproblematik Stellung zu nehmen. Insbesondere die weitverbreitete Verharmlosung der sogenannten
+‹weichen Drogen› und die in vielen Ländern angestrebte Legalisierung von Haschisch, Marihuana,
+Cannabis etc. gibt Anlass zu massiven Bedenken. Dass der Konsum harter Drogen schwere gesundheitliche sowie psychische und bewusstseinsmässige Schäden auslösen kann, ist allgemein bekannt. Wie
+wirkt es sich aus, wenn sogenannte ‹weiche Drogen› konsumiert werden?
+Elisabeth Gruber, Österreich
+M. Summermatter, Schweiz
+
+## Antwort
+Das Thema Haschisch ist sehr weitläufig und füllt viele Fachbücher, weshalb in nur sehr verkürzter Form
+darauf eingegangen werden kann.
+
+Haschisch ist in seiner Wirkung nicht so harmlos, wie die Befürworter annehmen und behaupten, denn es
+handelt sich dabei um ein Rauschgift, das mit der Zeit bleibend psyche- und bewusstseinsschädigend ist
+und auch bleibende nervliche Beeinträchtigungen hervorruft. Leider sind sehr viele Menschen unwissend
+in bezug dieser Tatsache, wobei insbesondere äusserst unbedarfte Politiker/innen eine Liberalisierung
+dieser Rauschdroge durchsetzen wollen – nicht selten, weil sie selbst Rauschdrogen verfallen sind.
+Haschisch führt bei längerem Gebrauch zu Nerven- und Bewusstseinsbeeinträchtigungen, zu Gleichgültigkeit, Unlust, Verantwortungslosigkeit, Psychestörungen, Verhaltensstörungen, Persönlichkeitsveränderung,
+Gedanken- und Gefühlsverwirrung sowie zu Angst, Depression und Lebensunfähigkeit. Natürlich werden
+all diese Erscheinungsformen von den psychisch vom Haschisch Abhängigen vehement bestritten, was
+
+
+-----
+
+sich auch auf die verantwortungslosen Politiker überträgt, die den Haschischgenuss befürworten und
+liberalisieren wollen. Eine Verneinung der Haschischschädlichkeit geschieht auch durch die Wissenschaft,
+die leider noch lange nicht so weit sein wird, dass sie die wirkliche Gefährlichkeit und die tatsächlich langfristigen Auswirkungen des Haschischgenusses erkennt.
+
+Alle Cannabisprodukte in Form einer Rauschdroge stellen kein Euphorica dar (Mittel zur Hebung des allgemeinen Wohlbefindens), denn tatsächlich beruht ein solches im Rausch nur in Form einer Einbildung,
+die mit der Zeit unmerklich zum Wahn führt und nicht als solcher erkannt wird. Und ob die Erfahrung des
+Haschischrausches positiv oder negativ ist, hängt einzig und allein von der Gedanken- und Gefühlswelt,
+vom Psychezustand, der Persönlichkeit, der Mentalität und dem Charakter sowie von der momentanen
+Stimmungslage der Person ab, die das Haschisch ‹geniesst›. Auch die Umgebung und das Verhalten der
+anwesenden Personen spielen eine grosse Rolle. Bestehen persönliche Probleme oder eine gedrückte
+Stimmung, dann verstärkt sich das und verschlechtert noch alles, was dann zum sogenannten ‹Horrortrip›
+führt – einem Zustand von sich unaufhaltsam jagenden, schrecklichen Angstvisionen, vor denen sich
+die/der davon Befallene kaum mehr retten kann und die ihn unter Umständen gar in eine Bewusstseinsverwirrung und Psycheverwirrung treiben.
+Cannabisprodukte sind kein Fluchtmittel vor der Wirklichkeit, denn tatsächlich können sie diese sehr verstärken. Eine Flucht vor der Realität wird mit Alkohol oder harten Drogen erreicht – oder indem Menschen
+religiös oder sektiererisch werden.
+Haschisch ist kein Aphrodisiakum (Geschlechtstrieb anregendes Mittel). Da es aber allgemein die sinnliche Wahrnehmung intensiviert, besteht die Möglichkeit, dass es im einen oder andern Fall ein sexuelles
+Erlebnis sehr positiv beeinflusst. Dies kommt dann darum zustande, weil die Hauptwirkung des Haschisch
+darin besteht, dass die momentane Erfahrung und Stimmung sehr intensiviert wird.
+
+Auch Haschisch erzeugt, wie andere Rauschgifte, einen ‹flash back›, einen sogenannten Echorausch, der
+noch einige Tage nach dem Genuss des Rauschgiftes auftreten kann. Damit verbunden sind auch motorische
+und nervliche sowie bewusstseinsmässige Schadenerscheinungen, wobei abnorm vermehrt sogenannte
+Déjà-vu-Erlebnisse in Erscheinung treten. Auch dass plötzlich eine Umgebung als unreal, fremd und
+sonderbar wahrgenommen wird, gehört zu diesen Erscheinungsformen. Alles kann sich dann im Laufe
+der Zeit zu realen Symptomen und Panikreaktionen steigern.
+
+Infolge des höheren Harz- und Wirkstoffgehalts bewirkt das Haschisch bei inhalativer Aufnahme einen
+etwa 5- bis 7mal stärkeren Rausch gegenüber dem Marihuana. Charakteristisch für den Haschischrausch
+sind ein durch geringe zentrale Sympathicus-Stimulation bedingter, vorübergehender Pulsanstieg sowie
+eine bis 24 Stunden andauernde Körpertemperatursenkung. Auch ein trockenes Gefühl in Hals und
+Rachen und Störungen der Psychomotorik (besonders die sogenannte ‹Haschisch- oder Pseudokatalepsie›) sowie Tremor, Mydiasis und gelegentlich auch ein gesteigertes Durst- und Hungergefühl treten in
+Erscheinung.
+In psychischer Hinsicht kommt es durch Haschisch zu einem Rausch, der 2–3 oder gar 4 Stunden anhält.
+Dabei tritt ein Verlust des Zeitgefühls im Sinne einer erheblichen Verlangsamung des subjektiven Zeitablaufs auf, das im Gegensatz zur Alkoholwirkung. Insoweit kommt es zu einer Toleranzbildung, wobei
+es sich um einen Effekt einer direkten Einwirkung auf die Gehirnfunktionen handelt. Weiter kommt es zu
+einer allgemeinen Verminderung der Spontaneität, des Antriebs und des anteilnehmenden Interesses an
+der ganzen Umwelt, und zwar bis hin zur Lethargie. Ein aktives Eingreifen in Geschehnisabläufe tritt in
+der Weise zurück, dass nur noch ein Auf-sich-einwirken-Lassen gegeben ist. Der durch Haschisch berauschte Mensch zieht sich in sich selbst zurück und verfällt rein assoziativen und scheintiefsinnigen sowie
+ideenflüchtigen Betrachtungen und seinen veränderten Wahrnehmungen.
+
+
+-----
+
+Nebst den Zeiterleben-Veränderungen kommt es zu scheinbar intensiveren Sinneseindrücken, wobei
+diese gegenüber dem Zeiterleben weniger ausgeprägt sind. Solche Sinneseindrücke ergeben sich besonders in bezug auf die räumliche Wahrnehmung und im auditiven sowie optischen Bereich. Diese
+Eindrücke manifestieren sich z.B. im kräftigeren und kontrastreicheren Wahrnehmen von Farben, wobei
+ungegenständliche Muster auftreten, wenn die Augen geschlossen sind. Eine höhere Dosierung kann zu
+Halluzinationen führen, die meist pseudohalluzinatorisch sind. In deren Verlauf bleibt das kritische
+Realitätsurteil erhalten, wobei der unter der Rauschdroge stehende Mensch Abstand zu den Rauschwirkungen bewahrt und die Sinnestäuschungen als unecht erlebt.
+Bei höherer Dosierung treten psychische Wirkungen auf, wobei die Grenzen zwischen der eigenen
+Persönlichkeit und der umgebenden Wirklichkeit, die als Ergebnis aus dem frühkindlichen Lernen hervorgeht, verwischt, was als sogenannte Körperschemastörung bezeichnet wird. Das kann zu Störungen der
+Ich-Identität resp. zur Depersonalisierung führen, was in der ersten Zeit allerdings nicht gravierend ist,
+seine Spätfolgen aber doch zeitigt. Die Störungen der Psychomotorik sind ersichtlich im Ausdrucksverhalten, wie in der Gestik, in der Mimik und in den Bewegungen.
+Im Rauschzustand ist der Denkablauf des Menschen gestört, was jedoch von der/dem Berauschten nicht
+wahrgenommen wird, weil sie/er gegensätzlich das eigene Denken als besonders originell und präzise
+betrachtet, was natürlich einer tiefgreifenden Täuschung entspricht, die jedoch von der/dem Rauschbefallenen nicht als wahr akzeptiert wird. Tatsächlich verliert das Denken seinen inneren Zusammenhang,
+was sich auch auf die Gefühle bezieht. Auch die zeitliche und vom Sinn her gegebene Kontinuität geht
+verloren. Teilaspekte eines komplexen Geschehens in ein sinnvolles Ganzes zu integrieren gelingt nicht
+mehr, denn die Gedanken schweifen ziellos umher und reissen sogar ab und können nicht wieder aufgenommen werden, wodurch kein Zusammenhang zu vorgegangenen Gedanken mehr hergestellt werden
+kann. Dieser Vorgang führt darauf zurück, dass die Konzentrationsfähigkeit nachlässt und einer Unkontrolliertheit Platz macht. Der gesamte Denkablauf in seinem fragmentarischen Charakter erinnert sehr
+stark an eine Bewusstseinsspaltung resp. an schizophrene Erlebnisinhalte.
+Bei höherer Dosierung wird im Haschischrausch alles Gedachte sofort visuell wahrnehmbar, während
+alles Sinnliche, losgelöst von angelernten Wahrnehmungsmustern und deren Interpretation, gleichzeitig
+Hemmungen abbaut und die Intensität steigert. Das führt beim berauschten Menschen zur Irransicht, dass
+es zu einer Erweiterung seines Bewusstseins und zu sogenannnten ‹Evidenzerlebnissen› komme, was
+wahrheitlich jedoch eine arge Selbsttäuschung darstellt, die an die Stelle rational zustandegekommener
+Einsichten tritt.
+Wird das mit dem Rausch einhergehende Gefühl seligen Verbundenseins mit der Umwelt betrachtet, dann
+erinnert das Ganze an eine religiöse und sektiererische ‹Erleuchtung› im Sinne einer ‹unio mystica› resp.
+‹mystischen Vereinigung› sowie ekstatischen Visionen.
+
+Haschisch ist ein Produkt, das aus der Familie der Hanfgewächse (Cannabis sativa L. varindica) gewonnen wird. Das Gewächs und der daraus gewonnene Stoff ist giftig (+) sowie hautreizend und allergisierend.
+Die eigentliche Heimat der Hanfpflanze sind Indien und Persien (Iran). Früher wurde Hanf auch in Europa
+feldmässig angebaut, vor allem zur Fasergewinnung für Stoffe, Schnüre und Seile. Hanfprodukte entstanden aber auch als Nahrungsmittel, Bier, Hühneraugensalben und als homöopathisches Mittel bei
+schmerzhaften Harnblasenkrämpfen usw. In den Gärten wurde Hanf vor allem als raschwachsende Zierpflanze angebaut. Die weibliche Pflanze erreicht eine Höhe von bis zu 4 Metern.
+Heute liest und hört man immer wieder, dass Haschischkonsumenten die Hanfpflanzen im Zimmer heranziehen und dass profitgierige und arbeitsscheue Haschischzüchter die Pflanzen massenweise in Gewächshäusern ziehen. Unerlaubter Hanfanbau und der Handel mit Hanfprodukten, die zur Rauscherzeugung
+wirksam sind, ist selbstverständlich verboten.
+
+
+-----
+
+Über die Inhaltsstoffe und die Giftwirkung ist folgendes zu sagen: Die Wirkstoffe, die sogenannten
+Cannabinoide, sind rauscherzeugend. Die Menge dieses Stoffes und damit die berauschende Wirkung
+sind abhängig von der Sonneneinstrahlung. In der Regel hat hier in Europa angebauter Hanf infolge des
+geringen Wirkstoffgehaltes nur eine abgeschwächte Wirkung.
+Auf dem illegalen Markt wird das Rauschgift allgemein in zwei Formen angeboten. Blüten der weiblichen
+Pflanzen und getrocknete Blätter werden Marihuana genannt. Ihr Genuss erfolgt durch Rauchen wie Tabak.
+Sehr viel intensiver wirkt das getrocknete Harz, das aus den Drüsenhaaren der Blütenspitzen gewonnen
+und Haschisch genannt wird. Haschisch wird entweder pur in der Pfeife oder mit Tabak vermischt als
+Zigarette (sogenannter Joint) geraucht.
+Als Rauschwirkung entsteht ein Wohlbehagen sowie ein eigenartiges Gefühl des Schwebens, verbunden
+mit intensiven Musik- und Farberlebnissen sowie mit Sachabläufen und Bildern, was sich jedoch je nach
+Bewusstseinsstand, der Mentalität, dem Vorstellungsvermögen, der Gedankenwelt und dem Charakter
+usw. der Person gestaltet, die das Rauschgift benutzt.
+Das Rauschgift zeitigt recht unerfreuliche Nebenwirkungen, die verschiedenartig sein können. So können
+z.B. Angstzustände und Blutdruckabfall ebenso in Erscheinung treten wie auch eine Kollapsneigung und
+Depressionen. Bei Haschisch tritt keine körperliche resp. physische Abhängigkeit in Erscheinung, jedoch
+führt der längere Genuss zu einer äusserst intensiven psychischen Abhängigkeit.
+Bei Haschisch besteht immer die Gefahr, dass durch die verantwortungslosen Vertreiber dem Rauschgift
+heimlich Heroin beigemischt wird, was von den Haschischbenutzern natürlich nicht wahrgenommen wird.
+So verfallen sie schnell der Heroinsucht und steigen auf diesen Rauschstoff um, ganz gemäss dem Slogan:
+«Heroin hält, was Haschisch verspricht.»
+Haschisch ist auch in bezug seines Giftes nicht harmlos, folglich bei zu vielem Genuss auch Haschischvergiftungen in Erscheinung treten können. Bei leichten Vergiftungen kann eine 10-Gramm-Kohle-Aufschwemmung beruhigend wirken, wobei aber bei einer grösseren Giftaufnahme dringend eine klinische
+Behandlung angesagt sein muss. Die Hanfpflanzen wirken auch unmittelbar hautreizend.
+Billy
+
+## Eine Retrospektive
+### oder … die FIGU wird 29 Jahre alt
+Am 8. Februar 2004 jährte sich zum 29. Mal der Jahrestag der Gründung des Vereins FIGU (Freie Interessengemeinschaft für Grenz- und Geisteswissenschaften und Ufologiestudien).
+Mit dem Datum vom 8. Februar 1975 wurde der Verein in Hinwil/Schweiz von ‹Billy› Eduard Albert Meier
+(BEAM) gegründet und gemäss schweizerischem ZGB statuiert. Genau 11 Tage zuvor, am Dienstag, den
+28. Januar 1975, fand auf unserem Planeten eine einzigartige, umwälzende und folgenreiche Begegnung
+statt; ein Ereignis, das in seiner Tragweite, Wirkungskraft und evolutiven Bedeutung für diesen Planeten
+sowie gesamtuniversell wohl als einmalig bezeichnet werden darf.
+Natürlich wird diese Feststellung und Aussage von unverständigen und notorischen Kritiker/innen als
+überheblich oder grössenwahnsinnig abgetan. Das ist in gewisser Weise – wenn auch unvernünftig und
+vom jetzigen Bewusstseins- und Gesamt-Entwicklungsstand der Erdenmenschheit aus betrachtet – durchaus verständlich. Tatsache jedoch ist, dass sich die Menschen erst in einigen hundert Jahren der wirklichen
+Tragweite dieses Datums und weltbewegenden Ereignisses bewusst werden.
+Mit absoluter Sicherheit wird jedoch eines Tages das Datum, der 28. Januar 1975, im Sinne evolutiver und
+bewusstseinsmässiger Entwicklung dieser Erdenmenschheit als einer der wichtigsten Tage in die Geschichte
+eingehen: So nämlich die in der Nähe Hinwil/Schweiz stattgefundene erste ‹offizielle› Kontaktaufnahme und
+Begegnung der ausserirdischen, plejarischen Frau namens Semjase mit ‹Billy› Eduard Albert Meier.
+
+
+-----
+
+Regelmässig wurde seither weltweit über BEAM berichtet. Befürworter/innen und Antagonisten gaben
+sich in unzähligen Berichten die Klinken in die Hand und viele hofften auf ein klammheimliches Verschwinden des Falles in der Versenkung.
+Entgegen vieler Meinungen und Annahmen, dass BEAM wohl längst in Verstrickungen unlogischer
+Gegensätze und undurchdringlicher Lügengeflechte untergegangen sei, ist jedoch genau das Gegenteil
+der Fall. Seit den Anfängen der Kontakte in den Siebzigerjahren des zwanzigsten Jahrhunderts hat sich
+nämlich bezüglich Beweiskraft, Erhärtung und Bestätigung seiner wahrlichen Kontakte Erstaunliches
+getan: Aus den wenigen Schriften und Texten der ersten Begegnungen ‹Billy› Meiers mit Semjase ist eine
+wahre Flut von Büchern, Kleinschriften, Broschüren, Monatsschriften, Info- und Kampfschriften sowie
+Kontaktblocks aus dem vereinseigenen Verlag ‹Wassermannzeit› hervorgegangen. Auch ein einstündiger
+Kino-Dokumentarfilm wurde von der amerikanischen Young-Filmgesellschaft gedreht, nebst zwei je einstündigen Dokumentarfilmen durch das Nippon-Fernsehen (Japanische Television), die in Japan und
+Formosa (Taiwan) ausgestrahlt wurden. Ausserdem wurden BEAMs Photos und 8-mm-Filme nebst verschiedenen von den Plejaren erhaltenen Metallen von namhaften amerikanischen Spezialisten untersucht
+und als fremdartig befunden. Weltweit widmen sich Tausende von Einzelpersonen der sogenannten
+Geisteslehre, sind Gönner oder Passivmitglieder geworden, haben sich in Studiengruppen organisiert
+oder arbeiten im Hintergrund für die grosse Mission und Aufgabe ‹Billy› Meiers und der FIGU.
+Kontinuierlich hat sich jene Prophetie erfüllt, die besagt, dass die Lehre in der Neuzeit in kleinen Gruppen
+und nicht im grossen Stil verbreitet wird, weil Euphorie und Oberflächlichkeit, Sensationsgier und Missionierung die Bildung von Sekten und neuen Kulten fördern würden.
+Nach Jahren relativer Stille der FIGU in der Medienlandschaft, wurde UFO-Meier‚ wie Billy oft genannt
+wird, sowie der von ihm gegründete Verein FIGU am 21. Oktober 2003 in der Sendung Rundschau von
+SF-DRS für viele Menschen wieder in Erinnerung gerufen. Erstaunt stellten die Zuschauer dabei fest: «Es
+gibt ihn noch?», denn ‹Billy› E. A. Meier wurde schon oft totgesagt, oder es wurde ihm abgesagt, dass er
+weiterhin seine Kontakte mit den Ausserirdischen pflege. Tatsache ist aber, dass er seit den Siebzigerjahren alles andere als untätig geblieben ist.
+Mittlerweile ist der Verein FIGU weltweit um viele Mitglieder gewachsen und auch auf dem Internet
+vertreten und zu finden unter ‹http://www.figu.org›, wo sich die monatlichen Zugriffe und die Zahlen der
+Besucher/innen im zweistelligen Tausenderbereich bewegen. Täglich finden viele Briefe, Fax-Sendungen
+sowie E-Mails aus der ganzen Welt den Weg ins Semjase-Silver-Star-Center nach Hinterschmidrüti. Eine
+grosse Anzahl dieser Korrespondenz wird von den Kerngruppe der 49-Mitglieder erledigt, die einen Teil
+des harten Kerns des Vereins bilden.
+Nebst seiner grossen schriftstellerischen Schaffenskraft ist BEAM jedoch ebenfalls mit der täglichen Beantwortung von Fax-Briefen, E-Mails, Telephonanrufen oder Briefpost aus aller Welt beschäftigt. Er ist
+nicht mehr nur ‹Kontaktperson› und Mittler zu ausserirdischen Menschen fremder Planeten und Welten,
+sondern für viele Menschen auch zu einem wichtigen und weisen Ratgeber und Lehrer geworden. Menschen,
+die mit Vernunft, Wissen und Verstand seine Rolle und Aufgabe erkannt haben, respektieren ihn als
+Menschenfreund, achten und ehren ihn, ohne einen ‹Heiligen› oder ‹Guru› aus ihm zu machen.
+Im Laufe der Jahre sind für viele einsichtige Menschen die UFOs, die Ausserirdischen und ihre Kontakte
+zu BEAM vermehrt in den Hintergrund getreten. Sie haben verstanden, dass die Geisteslehre und die
+bewusstseinsmässige und geistesevolutive Daseinsbewältigung des Lebens als schöpferischer Auftrag im
+Vordergrund steht; wobei das nichts mit einer Religion und mit einem Gott, wie auch nicht mit Esoterik
+oder Sektierismus zu tun hat, sondern einzig und allein mit den schöpferisch-natürlichen Gesetzmässigkeiten.
+In den Briefen an BEAM geht es oft um sehr persönliche Anliegen. Es wird um Ratschläge, Lebenshilfen
+oder um Antworten auf unbeantwortete Fragen gebeten. Dafür arbeitet BEAM, nach der täglichen Erledigung diverser ihm obliegender Arbeiten, in der Regel von abends bis weit in den frühen Morgen hinein,
+um Bücher oder Lehrschriften zu schreiben, die persönlichen Briefe und Anliegen der Menschen zu be
+
+-----
+
+antworten oder gelegentlich auch telephonisch ein offenes Ohr für deren Probleme und Schwierigkeiten
+zu haben. Und entgegen der von notorischen Kritiker/innen und Berufsstänkerern geschürten Falschmeinung, dass BEAM mit seinen Kontakten zu den Ausserirdischen Millionen scheffle, erledigt er die
+anfallenden Arbeiten und Hilfestellungen für seine Mission und Aufgabe sowie für die ihm am Herzen
+liegenden Mitmenschen in finanzieller Hinsicht völlig umsonst. Dabei macht er keine Unterschiede in
+bezug auf deren Glaubensrichtung, Rasse und Staatszugehörigkeit usw.
+Natürlich flattern auch sehr viele unsinnige Briefe, Fax-Sendungen oder E-Mails in unsere Briefkästen.
+Schimpftiraden, Schmähbriefe, Betrugsvorwürfe sowie kultreligiöse, blindgläubige oder fanatische
+Bewusstseinsverwirrte mit ihren Weltuntergangstheorien erreichen uns genauso wie die kuriosesten und
+unsinnigsten Fragen zu allen möglichen und unmöglichen Themen, die Billy immer ehrlich bemüht ist zu
+beantworten. Wie er immer sagt, gibt es für ihn keine dummen Fragen, wenn diese in Ehrlichkeit gestellt
+werden, folglich ihm keine ehrliche Frage nicht des Wertes wäre, beantwortet zu werden.
+
+Seit der Einführung unserer sporadisch erscheinenden Schrift ‹Bulletin› im April 1995, wird auch eine
+Plattform zur Fragenbeantwortung der Leserschaft angeboten. Diese Fragen werden in der Regel von
+BEAM persönlich beantwortet. Wie nicht anders zu erwarten war, traten auch in diesem Bereich unverbesserliche Kritiker/innen mit der Behauptung auf den Plan, dass BEAM die Anfragen in vielen Briefen
+selber erfinden und diese sogar selber schreiben würde. Das ist natürlich völliger Unfug und ein Affront
+gegen alle ehrlich interessierten Fragestellerinnen und Fragesteller. Es zeigt jedoch auf, dass sich bei
+einigen Menschen die unsachliche Kritik an BEAM und seinen Kontakten zu den Ausserirdischen in einen
+gewissen Fanatismus gesteigert hat.
+Dies zeigte auch das kürzliche Beispiel eines ‹Sachbuchautors› zum Thema UFOs. So liess er den Autor
+des hier veröffentlichen Artikels wissen, dass ihn weder das persönliche Umfeld von BEAM interessiere
+noch die einhundert Zeugen aus dem Zeugenbuch, ebensowenig aber auch die Erlebnisberichte Aussenstehender. Dies obwohl für eine seriöse Beweisführung der Fall ‹Billy› E. A. Meier erst in seiner Gesamtheit betrachtet zur Erkenntnis der wahrlichen Wahrheit und Aufrichtigkeit seiner Person führt.
+Seit bald 30 Jahren ist es noch keinem einzigen Menschen gelungen, ‹Billy› Eduard Albert Meier das
+kleinste Jota eines Betruges nachzuweisen, weil schlicht und einfach keine betrügerischen Machenschaften
+vorliegen. Diese Tatsache wird auch sichtbar in der Geduld und Gelassenheit, mit denen sich BEAM den
+wesentlichen Dingen seiner Mission und den Anliegen der suchenden Menschen widmet.
+Und während sich der Autor dieses Artikels wieder einmal in einem Anflug unlogischer Empörung die
+Haare rauft, weil allein der Begriff ‹Semjase› im Internet auf über 1400 Hinweisen erscheint, sitzt BEAM,
+unbeirrt ob der vielen Anfeindungen diebischer Scharlatane, Esoteriker/innen, Falschberichtern,
+Mauschelern und Pseudokontaktler/innen, die seine Lehre missbrauchen, an seinem Computer und der
+Schreibmaschine und erfüllt seine Aufgabe und Pflicht.
+Und so schliesse ich mich mit meinen Worten seinem Vermächtnis an: «Mensch der Erde, ich wünsche
+Dir … ein bisschen weniger Dummheit.»
+Hans Georg Lanzendorfer, Schweiz
+
+## Leser-Mail … weder rund, noch ‘ne flache Scheibe
+Salut!
+Vor einiger Zeit wurde in einem Bulletin oder ähnlichem aus einem Kontakt zwischen Billy und den
+Plejaden darauf hingewiesen, dass die Erde eigentlich gar nicht so oval-rund sei, wie bislang angenommen, sondern etwas unförmig, ähnlich einer Kartoffel.
+
+
+-----
+
+Als ich neulich aus der Stadtbücherei ein paar Ausgaben des Magazins ‹Bild der Wissenschaft›
+(www.wissenschaft.de) ausgeliehen habe, fiel mir das Bild des Monats in der Ausgabe 03/2003 auf der
+als .jpg beigefügte Seite auf, die ich Euch nun zur Verfügung stellen möchte.
+Es ist einmal mehr ein schöner Beweis für die Authenzitität Billys und seiner Voraussagen.
+Solltet Ihr in einer der FIGU-Publikationen diese interessante Tatsache publizieren wollen, holt Euch bitte
+die Erlaubnis vom Verlag ab – siehe Internet-Link.
+Catalin Morarescu, Deutschland
+
+## Antwort
+Danke für das Mail. Leider haben wir vom Verlag trotz mehrmaliger Anfrage keine Rückantwort erhalten,
+folglich wir auch das Bild nicht ablichten können.
+Billy
+
+## Zeitungsartikel und TV-Sendung uns zugesandt aus Brasilien
+Ein stinknormaler Routineflug entpuppte sich für zwei türkische Kampfpiloten als unheimliche Begegnung
+der dritten Art.
+Die türkische Zeitung ‹Hürriet› berichtet, plötzlich hätten die Flieger ein grelles Licht in Form einer Scheibe
+gesichtet. Und obschon dieses Objekt rasend schnell war, nahmen die Piloten mutig die Verfolgung auf.
+Erfolglos. Die Luftwaffe der Türkei ermittelt nun und hofft auf Unterstützung der NASA.
+
+## TV-Sendung
+Und als ob das nicht schon unglaublich genug wäre, hat eine kanadische UFO-Sekte beschlossen, Adolf
+Hitler zu klonen. Sektenführer ‹Raël› (55) berichtete in der 3Sat-Sendung ‹Kultur-Zeit› von seiner
+abstrusen Idee: «Ja, wir werden Hitler klonen. Wir sind nicht die Besten, aber wir sind exzellent.» Über
+eine nach der Aktion mögliche Gerichtsverhandlung gegen Hitler «wären vor allem die Juden glücklich»,
+behauptete er. Hört, hört! Ich persönlich (habe jüdische Vorfahren) glaube nicht, dass auch nur ein Jude
+Interesse hätte, dass ein Atze-Hitler-Klon auf diesem Planeten umherläuft, hinter Gittern oder nicht.
+Politiker und Wissenschaftler sind verständlicherweise entsetzt: «Ich halte diesen Mann (Raël) für total
+grössenwahnsinnig. Er muss gestoppt werden», sagte der Vorsitzende des Landesverbandes der Jüdischen
+Gemeinden Niedersachsens, Michael Fürst in der ‹Bild›. Gerade die, die einen wissenschaftlichen Wahn
+entwickeln, ziehen eine Menge Gefolgsleute an.
+Die UFO-Sekte ‹Raëlianer› hat ihren Sitz im kanadischen Montreal mit Hakenkreuz (!?!?). Die Sekte
+glaubt, dass die ersten Menschen von Ausserirdischen geschaffen wurden.
+
+## … und noch ein Wort zu den ‹Raëliten› vom ‹Beobachter›:
+Lurche, ich habe mir das nicht aus den Fingern gesogen! Es gibt obendrein noch die alte Theorie, dass
+Hitler auch UFOs bauen liess … Sollten die bekloppten Kanadier ihren Plan schon in die Tat umgesetzt
+haben??? Oder glaubt ihr, dass wir wieder mal ins Sommerloch geplumst sind?
+Lurche, wen meint ihr, sollte man noch klonen, um ihm den A… aufzu… üh … den Prozess zu machen?
+Saalome dear friend Billy
+Der Beobachter
+
+## Nachtrag
+Unter dem Pseudonym ‹Der Beobachter› verbirgt sich ein südamerikanischer Freund, dessen Namen ich
+leider nicht offen nennen darf, weil er und seine Familie von katholischen Institutionen sowie von sektie
+
+-----
+
+rerischen UFO-Lügnern, -Betrügern und -Schwindlern in seinem Heimatland mit Drohungen zum Schweigen
+gezwungen werden sollen. Auch folgende Geschichte, wie vieles andere, geht auf seine Quelle zurück:
+
+## Eine seltsame Geschichte – die Geschichte vom Bild des Quetzal im Vatikan
+Wie ich von einem mir bekannten ehemaligen Agenten des Sicherheitsdienstes erfahren habe, der für
+persönliche Sicherheit des US-Präsidenten zuständig war, wurde ihnen während eines Besuches im
+Vatikan ein Bild von Quetzal gezeigt. Ein Photo, das vom Bild gemacht wurde, hat er mir zugeschickt. Ich
+bin mehr als verblüfft: Im Vatikan hängt ein Bild von Quetzal, den wir aus den Semjase-Kontaktberichten
+kennen – im Vatikan deklariert als Jesus Christus … Diese Lügenbande! Die Verantwortlichen sind Lügner
+der übelsten Sorte.
+Ob es allen Besuchern möglich ist, das Bild zu sehen, oder ob es jetzt in der Kanzlei des Papstes hängt
+oder an einem anderen Ort aufbewahrt wird, darüber habe ich leider keine Information. Doch denke ich,
+dass du dich für diese Geschichte interessierst. Bis ich herausgefunden habe, ob das Bild für die Öffentlichkeit freigegeben wird …
+Das Bild von Quetzal – als Zeichnung uns bekannt – erhielt ich vom genannten Mann, der kaum etwas
+über den Fall Billy Meier weiss und in höchstem Masse skeptisch ist.
+Über das Ganze bin ich sehr erstaunt und auch, dass sie seinen Namen wissen! Die erhaltenen Unterlagen mit dem Titel ‹Quetzal› füge ich hinzu. Diese Lügner im Vatikan, jene, welche mit dem Quetzal-Bild
+manipulieren, kennen nicht einmal ihre eigenen Lehren der Bibel.
+
+### Der Vatikan und seine Lügen
+Du hast recht, Billy, du sollst von dieser Sache wissen. Erst dachte ich, der ehemalige Agent des US-Geheimdienstes würde sich über mich lustig machen. Eine Weile lachte ich in der Annahme, es sei ein unglaublicher Witz. Dann kam mir aber der Gedanke, die Plejaren könnten einen cleveren Plan haben, um die
+Aufmerksamkeit des Vatikans auf deine Botschaften lenken zu wollen. Es kam jedoch Zorn in mir auf, je
+länger ich über die Quetzal-Lügen des Vatikans nachdachte. Diese Lügen! Sie beachten nicht ihre eigenen
+Lehren, und schlimmer noch, sie werden absichtlich gefälscht, um die Menschen in die Irre zu führen!
+Der Gefühle sind viele, die mich bewegen. Ich weiss nicht, ob ich lachen oder weinen soll, oder beides
+zugleich.
+Von Quetzals Bild existiert eine Geschichte, die der Führer durch den Vatikan dem Agenten des Geheimdienstes erzählte. Diese Geschichte werde ich dir mit dem nächsten E-Mail senden. Wir sollten alles aufbewahren und öffentlich keine Namen nennen, denn der Mann, von dem ich alles erfuhr, ist ein Freimaurer. Über die Namen zu schweigen ist dir sicher verständlich, nicht wahr? Du musst jedoch über die
+Geschichte Bescheid wissen. Es ist traurig, dass die für alles Verantwortlichen im Vatikan (wer sie wirklich
+sind, wissen wir leider nicht) so handeln. Sie sind geübte Intriganten.
+
+### Die Geschichte vom Bild des Quetzal im Vatikan
+Diese Geschichte ist wie die andere, und beide Geschichten sind erlogen.
+Das Bild ist eine Zeichnung und angeblich von einer Nonne in einem Kloster angefertigt. Nun gab es einen
+Kardinal von hohem Rang im Vatikan, der geträumt habe, dass er nach Frankreich gehen solle, um die
+Nonne im Kloster zu suchen. Im Traum soll ihm der Name der Nonne sowie der Ort des Klosters genannt
+worden sein. Die weitere Geschichte geht so: Der Kardinal erzählte dem Papst den Traum, woraufhin
+dieser ihn aufforderte, dem Traum nachzugehen und sich um die Sache zu kümmern. Der Kardinal flog
+nach Frankreich und fuhr dann mit einem Taxi geradewegs zum Kloster, in diesem sich nach der Nonne
+erkundigend, von der er geträumt hatte. Er wurde zu ihr geführt, wobei diese ihn bereits erwartete und
+ihm die Zeichnung mit der Erklärung überreichte, dass nachts ein fremdartiger Besucher bei ihr gewesen
+sei. Dieser Fremde habe ihr aufgetragen, dass sie ein Bildnis von ihm zeichne, wonach er sich als Jesus
+Christus zu erkennen gegeben und erklärt habe, dass der Papst bald sterben und durch einen polnischen
+
+
+-----
+
+Papst ersetzt werde. Drei Wochen später starb der Papst, und als Nachfolger wurde der Pole Wojtila alias
+Papst Johannes Paul gewählt.
+So wurde die Geschichte von demjenigen Mann erzählt, der die Führung durch den Vatikan machte, bei
+der mein Bekannter, der Agent des US-Geheimdienstes, dabei war und der den Sicherheitsdienst für den
+US-Präsidenten George W. Bush ausübte. (Diese Geschichte wurde mir von meinem Bekannten, dem
+Sicherheitsbeamten, in einem persönlichen Brief geschrieben.)
+
+Mit dem Ex-Agenten des Geheimdienstes pflege ich einen sehr persönlichen Kontakt. Heute hat er mir folgendes mitgeteilt: Vielleicht glaubt der Vatikan nicht an die Wahrheit der UFOs und an die ausserirdischen
+Menschen – oder er weiss wirklich nichts darüber. Tatsache ist aber, dass ich 1981, 1989 und 1999 mehr
+über die Quetzal-Bild-Geschichte wissen wollte und deshalb viele Personen danach befragte. Jedesmal
+hat man mir die Zeichnung des Quetzal-Bildes gezeigt und mir die gleiche Geschichte erzählt. Meine
+Meinung ist aber, dass der Vatikan schon 1981 und gar schon früher genau über alles orientiert war und
+nur vorgibt, nichts zu wissen in bezug der UFOs und der Ausserirdischen.
+Leider konnte ich nicht herausfinden, wo in Frankreich das Kloster ist, wie es genannt wird und wie die
+Nonne heisst, die angeblich von einem fremden Besucher in ihrer Zelle aufgesucht und angehalten wurde,
+ihn zeichnerisch zu portraitieren. Auch muss gesagt sein, dass die Beteiligten im Vatikan den Menschen
+auf der Zeichnung Jesus Christus und nicht beim richtigen Namen Quetzal nennen, den das Zeichnungsbild wirklich darstellt.
+Der Beobachter
+
+## Leserbrief und -Fragen
+Lieber Daniel, vornweg spreche ich Dir meinen herzlichen Dank aus für Deine lieben Worte und für die
+Erlaubnis, dass ich diese im Bulletin veröffentlichen darf, wobei ich nachfolgend dann auch Deine Fragen
+beantworten will.
+Billy
+
+Lieber Billy,
+Ich habe heute Geisteslehre repetiert. Zuletzt habe ich den Abschnitt ‹Gewaltsame Gewaltlosigkeit› aus
+dem Lehrbrief Nr. 39 gelesen. Vor lauter Glück über die Schönheit dieser Worte hat sich beinahe mein
+Augenwasser in Bewegung gesetzt. Ich kann es nicht fassen, wie es Dir gelingt, solche Zusammenhänge
+und Gesetzmässigkeiten in Worte zu fassen. Dichtung im wahrsten und schönsten Sinn des Wortes.
+Dafür möchte ich Dir danken, und auch für alles andere, was Du vollbracht hast. Der eben beschriebene
+Moment ist nur einer unter vielen, und diese Momente und alles, was sich daraus entwickelt, sind wichtige
+Begleiter in meinem Leben geworden. Kaum vorstellbar, welchen Irrungen ich noch unterlegen wäre, wenn
+ich nicht Deinen Schriften begegnet wäre!
+Oft wollte ich Dir schon Worte des Dankes zukommen lassen, doch fand ich keine passenden. Nun nutze
+ich den Augenblick, um wenigstens etwas Bescheidenes zu schreiben, denn je mehr Zeit verstreicht, um
+so mehr erkenne ich, wie hochschwanger alles zu Wahrheit und Weisheit und Liebe ist und wieviel ich,
+und die ganze Menschheit mit mir, daraus schöpfen kann. Damit steigt natürlich auch meine Dankbarkeit,
+und ich vermag sie immer weniger verbal zu formulieren. …
+Meine besten Wünsche und viele liebe Grüsse an Dich und die anderen FIGU-Mitglieder.
+So habe ich noch ein paar Fragen, die zu beantworten ich Dich bitten möchte, z.B. im Rahmen des FIGUBulletins:
+
+
+-----
+
+### Frage
+Sinngemäss aus ‹Die Psyche›, Seite 6: «… das Gemüt gibt in notwendigem Masse harmonische Schwingungen an die Psyche ab.»
+Wovon hängt dieses Mass ab, gibt es mögliche hemmende Faktoren, wenn ja welche?
+Daniel Zizek, Schweiz und Deutschland
+
+### Antwort
+Das Gemüt ist das Geistbereich-Gegenstück zur materiellen Psyche. Vom geistigen Gemüt aus gehen
+harmonische Schwingungen in die materielle Psyche, und zwar in einem Mass, das durch den Zustand
+der Psyche bestimmt wird. Je gesünder, ausgeglichener und harmonischer der Psychezustand ist, desto
+grösser ist das Mass der harmonischen Schwingungen, die von der Psyche aus dem Gemüt aufgenommen
+werden können. Diese Schwingungen aus dem Geistbereich resp. aus dem Gemüt bilden eine zusätzliche
+Energie und Kraft, durch die die Psyche harmonisch gesteuert und gekräftigt wird. Beeinträchtigt der
+Mensch jedoch seine Psyche durch seine Gedanken und die daraus entstehenden Gefühle und auch durch
+Emotionen, die auf die Gefühle schlagen, dann bilden sich Hemmfaktoren, die eine Schwingungsaufnahme aus dem geistigen Gemüt abschwächen oder gar völlig verhindern.
+Billy
+
+### Frage
+Ist die Psyche ein Teil der Mentalität?
+Daniel Zizek, Schweiz und Deutschland
+
+### Antwort
+Die Mentalität ist eine Bewusstseins- und Psycheart, folglich sie also aus den Gedanken und Gefühlen
+entsteht. Es handelt sich also um die individuelle Art der Gedanken- und Gefühlswelt des Menschen und
+damit auch um einen individuellen Zustand der Psyche
+Billy
+
+### Frage
+In welcher Beziehung zueinander stehen der geistige Teil der Mentalität und das Gemüt?
+Daniel Zizek, Schweiz und Deutschland
+
+### Antwort
+Die Mentalität in der materiellen Psyche entsteht durch die Gedanken- und Gefühlswelt des Menschen. Im
+Gegensatz dazu ist das geistige Gemüt (es gibt kein Gemüt materieller Form) bestehend aus neutralpositiver und also harmonischer Geistenergie, die je gemäss der Evolution der Geistform in ihrem Mass
+bestimmt wird. Dadurch wird auch die neutral-positive Mentalität resp. dessen harmonisch-ausgeglichene
+Art bestimmt.
+Billy
+
+## E-Mail aus Venezuela
+Danke für die Möglichkeit, dass wir auch Zugang finden zu all den FIGU-Informationen, und dies aus
+einer Dritte-Welt-Ortschaft wie der unsrigen. Auch wir sind denkende Wesen, und unser Wunsch ist es,
+mit Euch in Kontakt zu bleiben. Ich persönlich habe über eine Erfahrung zu berichten und möchte weitere
+Informationen bekommen, die Ihr mir an meine E-Mail-Adresse senden könnt.
+Grüsse, Karina und Betsy, eine Freundin
+
+
+-----
+
+### Sichtung und Frage
+Mein Name ist KARINA JIMENEZ aus Venezuela und ich bin unendlich dankbar, zusammen mit meinem
+Mann Antonio Sanchez, für alle Informationen, die Ihr uns auf Eurer Homepage übermittelt.
+Ich hatte einen Kontakt der dritten Art, eine Sichtung von drei Objekten am Himmel mit zwei voneinander
+entfernten Lichtquellen, die blinkende Lichtsignale gaben.
+Es war am 20. Dezember 2000, als ich, zusammen mit der ganzen Bevölkerung eines Dorfes im Staate
+Monagas, Santa Barbara de Maturin, eine Beobachtung machte. Sofort rief ich im Observatorium Cajigal
+an und man sagte mir, dass der Meteorologe nicht da sei. Danach rief ich einige örtliche Presseorgane/
+Zeitungen an, die mir sagten, dass sie die Information über die Beobachtung schon erhalten hätten, jedoch nichts machen könnten. Dann rief ich meine Familienangehörigen in Puerto Espiritu, Bundesstaat
+Anzoategui, an, die erklärten, dass es bei ihnen regne und sie nichts beobachten könnten.
+Während diesen Tagen war ich in jenem Dorf, wo ich in der Erdölindustrie als Sicherheitsüberwacherin
+arbeitete. Dann, einige Tage später, ereignete sich eine sehr seltsame Begebenheit. Zusammen mit einem
+Arbeitskollegen und meinem Chef ging ich etwas trinken, wobei in einem Moment etwas geschah, das ich
+näher beschreiben muss, damit Ihr das Komplizierte der Situation erfassen könnt:
+Ich denke, dass wir entführt wurden, denn als wir erwachten – und dieses Wort sage ich, weil ich mich
+nicht erinnern kann –, befanden wir uns auf einem total anderen Weg und dem entgegengesetzt, den wir
+anfangs gegangen waren – und dies nach einem Zeitraum von vielleicht ein oder zwei Stunden, wobei
+wir die Zeit aber nicht bestimmen konnten. Wir mussten Fahrgeld bezahlen, um über einen Weg zurückzukehren, über den wir vorher aber überhaupt nicht gekommen waren. Es ist sehr seltsam, ich glaube,
+wir wurden von einem Ort zu einem anderen bewegt, ohne dies zu bemerken, und ich weiss nicht, was
+in diesem Zeitraum geschehen ist. Aber wir waren über 50 km vom ursprünglichen Ort entfernt. Und
+später, in unserem etwas abgelegenen Dorf Puerto Espiritu, wo ich wohne, beobachtete ich eine Lichtquelle, die sich in relativ niedriger Höhe bewegte und ganz deutlich sichtbar relativ langsam dahinflog.
+Es war abends, etwa 22.00 Uhr.
+Kaum konnte ich es erwarten, diese Dinge erzählen zu können. Ich fühle, dass ich in meinem Innern weiss,
+es wohl schon immer gewusst habe, dass wir ganz besondere Lebewesen sind und geistig/bewusstseinsmässig weiterkommen müssen, um aus dieser Welt hinauszukommen, in der wir so viel Energie für sinnlose/widersinnige Dinge verschwenden.
+Bitte senden Sie mir Informationen, wenn möglich auf Spanisch, wofür ich sehr dankbar wäre. Habe zwei
+Kinder und möchte diese in der Wahrheit erziehen.
+Danke.
+
+### Antwort
+Bei dem Vorfall kann es sich um eine unbewusste TELEPORTATION handeln; aus dem eigenen Bewusstsein
+entwickelte Kräfte, jedoch unbewusst!
+Solche Dinge gibt es schon seit alters her. Auch Billys Exfrau hat etwas Derartiges erfahren – durch Angst
+ausgelöst.
+Bei Euch muss irgendein Grund vorgelegen haben, der zur Entwicklung teleportiver Kräfte führte, ausgelöst durch sehr tiefgreifende bewusstseinsmässige Zustände, die eben zur Teleportation führten, wie zum
+Beispiel Angst, Schreck, Hass, Liebe usw. usf.
+Wir empfehlen, das Leben weiterzuführen wie bisher und sich darüber weiter keine grossen Gedanken
+zu machen; sonst führt dies nur zur Wirrnis, in bewusstseinsmässige, psychische Wirrnis!
+Brunhilde Koye, Schweiz
+
+### SPANISCH (Original)
+Gracias por permitir que a una poblacion tercermundista como la nuestra de seres pensantes podamos
+accesar a toda esta informacion por favor deseo mantenerme en contacto con ustedes ya que tengo
+
+
+-----
+
+algunas experiencias que contar y deseo saber mas informacion que pueden enviarme a mi correo
+electronico, saludos.
+Karina y una amiga Betsy
+
+### Contacto del tercer tipo y pregunta
+Mi nombre es KARINA JIMENEZ, VENEZOLANA. Estoy infinitamente agradecida junto a mi esposo
+Antonio Sánchez, por toda la información que ustedes nos trasmiten a través de su página. Yo tuve un
+contacto del tercer tipo, un avistamiento de tres objetos en el cielo con dos focos de luces distantes entre
+sí que titilaban intermitentemente. Fue en el mes de Diciembre (2O) del año dos mil y lo observé junto a
+toda la población de un pequeño pueblo del estado Monagas, llamado Santa Bárbara de Maturín.
+Inmediatamente llamé por teléfono al observatorio Cagigal y me dijeron que el metereólogo no se
+encontraba. Después llamé a unos medios de comunicación escrita, al periódico local El Sol, y me dijeron
+que ya tenían información pero que no podían hacer nada. También llamé a mis familiares en Pto. Piritu
+Edo. Anzoategui y me dijeron que estaba lloviendo y no observaban nada. Me encontraba en esos
+momentos en esta población ya que trabajaba en la industria petrolera como supervisor de seguridad
+industrial. Luego a los días me sucedió un evento sumamente extraño. Junto a un compañero de trabajo
+que era mi jefe, salimos a tomar unos tragos y por un momento nos sucedió algo que debo dibujar para
+que determinen lo complicado de la situación – yo pienso que fuimos raptados porque al despertarnos,
+digo yo porque no tengo memoria, nos encontramos en un camino completamente diferente y opuesto al
+que inicialmente nos dirigíamos, y con un lapso de horas que no pudimos determinar si una u dos.
+Tuvimos que pagar un peaje para retornar que no habíamos pasado antes. Es rarísimo. Creo que fuimos
+movidos de un lugar a otro sin darnos cuenta y no sé qué paso en ese lapso de tiempo pero nos
+trasladaron a más de cincuenta kilómetros de distancia y luego en mi tierra, en Puerto Piritu vivo en un
+lugar un poco aislado, observé un foco de luz que iba relativamente despacio a una altura no muy
+elevada, navegando descaradamente como a las diez de la noche. Estaba desesperada por contar estas
+cosas. Yo siento que desde que nací sé la verdad en mi interior. Siempre lo he sabido que somos seres
+especiales y que debemos avanzar espiritualmente para salir de este mundo donde perdemos tanta
+energía en cosas absurdas. Por favor envíenme información, si es posible en español. Bien, sabré
+agradecer. Tengo dos hijos y quiero educarlos con la verdad. Gracias.
+
+### Respuesta
+Puede tratarse de una telepartaciõn inconsciente, por fuerzas desarrolladas desde la porpia consciencia,
+pero en forma inconsciente!
+Tales cosas ya existen desde tiempos antiguos, tambien la ex-esposa de Billy ha experimentado esto, provocado por cause de miedo. Debe haber alguna razõn en esto, llevando al desarrollo de fuerzas teleportadoras. Impresiones muy profundas para la consciencia pueden provocar estados de la consciencia que
+pueden llevar la teleportaciõn, como por ejemplo: Miedo, terror, odio, amor, etc. etc.
+Nosotros recomendamos que lleven la vida tal como la han llevado hasta ahora a de ya no pensar
+demasiado en esto, porque en caso contrario, se producira una gran confusiõn de la consciencia, de la
+psique.
+Brunhilde Koye, Schweiz
+### ENGLISH
+Thank you for making it possible that we in our Third-World’s town with a reasonable mind have access
+to all this information. My wish is to stay in contact with you. I have a few experiences to tell you and look
+forward to receive further information from you.
+Greetings.
+
+
+-----
+
+### Contact of sighting and question
+My husband Antonio Sanchez and I, Karina Jimenez, live in Venezuela and are forever grateful for all
+your information that we receive through your homepage.
+I had a contact of sighting on the 20th of December in the year of 2000. I observed three objects at the
+sky with two sources of light, and distant from each other emitting flashing light signals. With all the
+population of a village I observed this in the state of Monagas, Santa Barbara de Maturin. At once I
+phoned the observatory Cajigal and was told that the meteorologist would be absent. Subsequently I
+phoned several local newspapers. By that time, all of them had received information about it but were
+powerless to do anything. Then I called all my relatives in Puerto Espiritu in the federal state of Anzoategui,
+where rain hindered them to see anything.
+At that time I was holding a position as a security controlles with the oil industry and lived in that village
+where I held this job. A few days later a very strange incident happened. Together with my boss, a
+collegue at work, we went for a drink and something happened to us in an instant of a moment that I have
+to describe for you to be able to grasp the complexity of this situation.
+I believe we had been kidnapped, because after a stretch of time of maybe one or two hours which we
+could not determine, we woke up and found ourselves on a totally different road, completely opposite the
+one we were originally walking on. We had to buy a ticket to return home on a road never travelled
+before.
+It is quite peculiar, but I believe we were moved from one place to another without being aware of what
+has happened in that time, as if unconscious. Yet we had been transported across a distance of more than
+fifty kilometers.
+And at last, in a somewhat remote part of the village Puerto Espiritu where I live, I observed a source of
+light that moved comparatively slow at a low altitude and was to be seen flowing along at around ten
+o’clock in the evening.
+I could hardly wait telling you all about it. I have forever known that we are distinct living beings, and that
+we have to advance spiritually to be able to leave this world where we spend so much energy on nonsensical things.
+I would appreciate very much to receive information and if possible in Spanish. I look after the education
+of my two children and would like to raise them in the knowledge of truth.
+Thank you.
+### Answer
+It could have been an unconscious TELEPORTATION, produced by forces out of one’s own consciousness.—
+BUT UNCONSCIOUS!
+Since ancient times such things exist already; Billy’s ex-wife had the same experience — produced through
+FEAR/DREAD!
+One reason has to exist for that, which leads to such devolopment of powers/forces of teleportation; a
+reason — that unleashs such very deep penetrating physical and mental states, that can lead to teleportation. For example: Fear, dread, fright, scare, hatred, love … etc.
+Billy suggests to continue the life as always, not to think about in a great measure. If not, it could carry
+toward confusion or chaos, or to a psychic mental shock!
+Brunhilde Koye, Schweiz
+
+## Angriffiges Telephonat
+_(Nachfolgendes sofort nach dem Telephonat aus der Gesprächserinnerung notiert)_
+Dahinden. – Ich lese deine Bulletins, du A…, die du im Internet veröffentlichst. Ich erhalte von Bekannten
+auch manchmal dein blaues Heft ‹Wassermannzeit›. Ich finde darin jeweils Leserbriefe und Oden an dich,
+die dich in den Himmel hinaufjubeln, die aber von dir doch nur frei erfunden und selbstgebastelt sind, um
+dich als grossen Helden, als ‹Siebèsièch› und grossen Mann hinzustellen, der rundum beliebt sein soll. Ich
+
+
+-----
+
+glaube keinen Buchstaben davon. Ich warne dich: Lass also diesen Schmarren. Es bringt doch nichts, du
+Lümmel, denn nur Dumme glauben dir den Unsinn.
+
+## Antwort
+Herr Dahinden, wenn das überhaupt Ihr wirklicher Name ist, Ihre Einstellung und das unflätige Telephonat
+zeugen nicht gerade von einer guten Gesinnung bezüglich meiner Person. Ganz zu schweigen von Ihrer
+tugendlosen und respektlosen Redensart, die mir sagt, dass Sie nicht gerade eine gute Kinderstube genossen haben. Ausserdem geht auch aus Ihrem ‹Ich, Ich, Ich› hervor, dass Sie ichsüchtig sind, sich in den
+Vordergrund drängen und annehmen, dass Sie der Grösste seien und alles nach Ihrer Pfeife tanzen
+müsse. Und da Sie es für notwendig finden, einfach primitiv ins Telephon zu geifern, keinen Wert auf eine
+Unterhaltung und Antwort zu legen und nach Ihrer würdelosen Tirade einfach das Telephon abzuhängen,
+ohne dass man selbst zu Wort kommen kann, so möchte ich Ihnen auf diesem Wege folgendes sagen:
+Einerseits fühle ich mich durch Ihre Unanständigkeit in keiner Weise dazu veranlasst, mich über Ihre
+unsinnigen Worte zu ärgern oder betroffen zu fühlen. Andererseits bin ich der Ansicht, dass sowohl
+Hass wie auch Dummheit keine Grenzen kennen und diese also auch vernunftmässig nicht geschlossen
+werden können, folglich jeder der Dummheit Verfallene selbst dazu sehen muss, dass er zur Vernunft
+gelangt und seine Grenzen nicht überschreitet. Diese Vernunft geht Ihnen aber ganz offensichtlich ab –
+wie auch der Anstand. Ausserdem, das möchte ich gesagt haben, habe ich es nicht nötig, auf mich selbst
+Lobeshymnen zu verfassen, denn in bezug meiner selbst fühle ich mich sehr bescheiden und nicht gross
+genug, um Menschen das Wasser zu reichen, die ihrer freien und offenen Meinung in der Form Ausdruck
+verleihen, wie das jene Würdevollen tun, die es des Wertes finden, mir ihre Dankbarkeit in der Form zu
+erweisen, die Sie bösartig beanstanden, wodurch Sie auch diese offenen und ehrlichen Menschen
+beschimpfen.
+Nun, wessen Sie mich beschuldigen, hat leider keine Hände und keine Füsse, denn die Leserbriefe und
+Oden an mich, die in unseren FIGU-Publikationen veröffentlicht werden, können jederzeit belegt werden.
+Und sie stammen von wirklich ehrlichen und liebevollen Menschen, die sich auf ihre schöne und ehrfürchtige sowie ehrvolle Weise bei mir bedanken für etwas, in dem sie durch innere Erkenntnis einen Wert
+und ein Ziel sehen. Und tatsächlich ist es mir eine ungeheuer grosse Ehre, geschätzte Leserbriefe und
+Oden zu erhalten, die mir von Menschen aller Altersgruppen zugesandt oder direkt übergeben werden.
+Alles sind sie zudem Menschen, die in sich ehrliche Liebe fühlen und eine Würde haben, die sie in selten
+bewundernswerter Menschlichkeit und im Menschsein auszeichnen.
+Ihrerseits kann ich Sie ob Ihrer Feindlichkeit, Würdelosigkeit und Gehässigkeit nur bedauern, wie auch in
+der Hinsicht, dass Sie mich per Du als Lümmel beschimpfen. Dazu möchte ich Ihnen raten, sich einmal
+selbst genau im Spiegel zu betrachten, um vielleicht zu erkennen, wo das Lümmelhafte wirklich ist – aber
+eben, dazu braucht es etwas Verstand und Selbsterkenntnis, was offensichtlich – pardon – nicht gerade
+Ihren Stärken entspricht.
+Billy
+
+## Arbeit in Hülle und Fülle
+Immer wieder machen sich bei uns Menschen bemerkbar, die meinen, Billys ganze Beschäftigung beruhe
+darin, auf sie zu warten, um ihnen Rede und Antwort zu stehen. Sind sie nicht in der Nähe oder erheben
+sie keine Ansprüche auf seine Zeit, dann meinen sie, er liege auf der faulen Haut und lasse sich von
+unzähligen hübschen Verehrerinnen jeden noch so geringfügigen Wunsch von den Augen ablesen und
+er werde von hinten und vorne bedient und verwöhnt. Ausserdem argwöhnen sie, dass er über ein heimliches Heer sklavischer Bediensteter verfüge, die nichts anderes täten, als nach seinen Kommandos –
+hopp, hopp – jede erdenkliche Drecksarbeit zu verrichten.
+
+
+-----
+
+Selbst wenn ihm die hübschen Verehrerinnen von Herzen zu gönnen wären und ihm die eine oder andere
+Arbeit durchaus abgenommen werden könnte, so zeugen solche Annahmen und Vorurteile von einer
+geradezu hanebüchenen Unbedarftheit und grenzenlosen Albernheit. Nur kurzsichtige, von sich selbst
+eingenommene und selbstgerechte Menschen, die ihr eigenes Tun selbstmitleidig grenzenlos überbewerten,
+können auf solche Ideen kommen, die von nichts anderem zeugen, als von ihrer eigenen Menschenverachtung und Selbstüberschätzung. Diesen, und allen anderen, die sich fragen, womit Billy sich den
+lieben langen Tag über denn so beschäftige, sei nachfolgender Wochenplan einmal klar dargelegt:
+
+**Montag:**
+Erledigung der Korrespondenz aus Südamerika, Kanada und Japan in Zusammenarbeit mit einem
+Spanisch sprechenden Kerngruppe-Mitglied, ausserdem Erledigung von privaten Korrespondenzen im
+Zusammenhang mit Übersetzungen in Spanisch, Japanisch und andere Sprachen. Dabei geht es unter
+anderem um die Klärung von Geisteslehre-Begriffen und um die Beantwortung von Fragen der Übersetzer.
+Abends und nachts dann arbeitet er an seinen eigenen Büchern. Zur Zeit sind es drei verschiedene Werke,
+mit völlig unterschiedlichem Inhalt, an denen er quasi gleichzeitig arbeitet. Ausserdem arbeitet er noch an
+der Geisteslehre und an der Beantwortung von Geisteslehre-Fragen, die ihm Ptaah mit schöner Regelmässigkeit in grosser Zahl zukommen lässt. Weiterhin beantwortet er auch noch private Fragen von
+Menschen, die sich mit der Geisteslehre befassen und die seine Antworten in irgendeiner Form weiterverwenden wollen.
+
+**Dienstag:**
+Einkaufstour für den Center-Bedarf und für die ‹Aktive Allianz›, die zur Zeit unter anderem eine Küche für
+Randständige in Winterthur unterstützt, die dort täglich für einen Minimalbeitrag von Fr. 2.– eine warme
+Mahlzeit mit Suppe, Hauptgang, Nachtisch und Kaffee einnehmen können. Eingekauft werden auf dieser
+Tour Lebensmittel für den täglichen Bedarf, wie Früchte, Gemüse, Brot (insoweit es nicht von KerngruppeMitgliedern selbst gebacken wird), Fleisch, Käse usw. usf. Ausserdem kauft er bei dieser Gelegenheit nicht
+nur Aktionsangebote für den Eigenbedarf ein, sondern auch für die ‹Aktive Allianz›. Abends und nachts
+geht Billy dann wieder seinen schriftstellerischen Aufgaben nach.
+
+**Mittwoch:**
+Pflege der guten nachbarschaftlichen Beziehungen mit dem Restaurant Freihof in Schmidrüti, wo er zusammen mit Silvano jeweils einen Kaffee zu sich nimmt und mit dem Wirtepaar eventuell anstehende
+Fragen und Probleme bespricht. Danach Büroarbeit oder, wenn nötig, weitere Einkaufstouren zusammen
+mit Silvano, wenn ein ausserordentlicher Bedarf vorliegt oder wenn dringend Maschinen und Geräte usw.
+ersetzt oder von Fachstellen gewartet werden müssen. Sollten keine Tätigkeiten anfallen, die seine Anwesenheit ausserhalb des Centers erfordern, dann liegen Büro-Arbeiten an, zu denen nicht nur seine
+schriftstellerische Tätigkeit gehört, sondern auch die Erledigung von missionsbezogener und privater Briefund E-Mail-Korrespondenz sowie die Beantwortung von Anfragen und Anliegen, die ihn per Fax und
+telephonisch erreichen.
+Abends ist dann Zeit reserviert für gemeinsame Korrekturarbeiten zusammen mit Kerngruppe- und PassivMitgliedern. Aktuell wird an einem umfassenden Namensbuch irdischer Namen gearbeitet, die aus den
+verschiedensten bestehenden Namensbüchern zusammengetragen werden. Ausser dem Hauptnamen
+und dessen Bedeutung wird das Buch Rubriken umfassen mit Angaben zu Nebennamen, Kurznamen und
+Kosenamen und deren sprachlicher Herkunft, im Zusammenhang mit dem jeweiligen Hauptnamen. Eine
+langwierige und mühsame Arbeit, die Billy weit über die gemeinsame Zeit hinaus fordert, weil er für viele
+irdische Namen, deren Bedeutung vergessen oder verfälscht wurde oder verlorengegangen ist, die wirkliche Bedeutung aus den Speicherbänken abrufen muss.
+
+
+-----
+
+Nachts, nachdem er nach Abschluss der Korrekturarbeiten noch eine oder eineinhalb Stunden Schach gespielt hat, geht er dann wieder seiner schriftstellerischen Tätigkeit nach.
+Einmal monatlich beantwortet er am Mittwochabend – manchmal während mehreren Stunden – Fragen
+aus der englischen Korrespondenz und aus dem englischen Forum. Auch diese Fragen und Antworten
+werden mit einem Aufnahmegerät aufgezeichnet und in die ‹Küchengespräche› integriert.
+
+**Donnerstag:**
+Büroarbeiten; oft zusammen mit Eva, die nach seinen Anweisungen sein Sekretariat führt. Ausserdem geht
+sie ihm bei verschiedensten Büroarbeiten zur Hand usw. Auch am Donnerstag sind, wie an jedem anderen
+Tag, Korrespondenzen zu erledigen, Faxe und Mails zu beantworten und Telephonate zu führen. Die verbleibende Zeit kann Billy dann seinen schriftstellerischen Arbeiten widmen. Ausserdem sieht er im Winter
+regelmässig nach dem Feuer, wenn er zu Hause ist und schaut auch sonst nach dem Rechten in Haus und
+Hof. Oft genug ist er der einzige, dem anfallende Arbeiten ins Auge stechen, weil die übrigen Bewohner
+und die Zuständigen meist betriebsblind durch die Gegend wandeln, ohne sich um die anfallenden Notwendigkeiten zu kümmern, wenn deren Erledigung ihnen nicht ausdrücklich und oft mehrfach nahegelegt
+wird.
+Abends gegenlesen der bisher herausgegebenen Kontaktberichte, zusammen mit Ptaah, Florena oder
+Enjana und einem Kerngruppe-Mitglied (am Computer Bernadette) anhand von Billys Originalberichten
+und den plejadisch-plejarischen Aufzeichnungen für die korrekt überarbeitete Herausgabe der SemjaseBlocks in Buchform. Danach kann Billy dann wieder bis in die frühen Morgenstunden seiner eigentlichen
+schriftstellerischen Arbeit nachgehen.
+
+**Freitag:**
+Zweite grosse Einkaufstour zusammen mit Eva und Selina. Auch am Freitag wieder Einkauf von Frischprodukten für den Center-Bedarf und für die ‹Aktive Allianz›. Nach der Rückkehr, wie am Dienstag dann
+grosse Verteilarbeit der mitgebrachten Waren, wobei nicht nur die Küche für die Randständigen in
+Winterthur berücksichtigt wird, sondern auch einige bedürftige Familien in der näheren und weiteren Umgebung. Die Waren werden noch am Abend von Billys Sohn Atlantis abgeholt und an ihre Bestimmungsorte gebracht. Anzumerken ist an dieser Stelle, dass Billy nur einwandfreie, verwertbare und
+bedenkenlos geniessbare Produkte einkauft, die er oft im Gegenzug für den Abtransport von nicht mehr
+verkäuflichen oder verdorbenen Frischprodukten, die wir dann entsorgen, günstiger oder gar gratis
+erhält.
+Abends ist dann wieder Korrekturzeit zusammen mit der Korrekturgruppe, die aus Kerngruppe- und
+Passivmitgliedern besteht. Bei den Korrekturarbeiten steht stets ein kleines Aufnahmegerät auf dem
+Küchentisch, weil sich aus den Arbeiten oft Fragen geisteslehremässiger oder allgemeiner Natur ergeben,
+die Billy dann an Ort und Stelle beantwortet. Die Fragen und Antworten werden von einem KerngruppeMitglied abgeschrieben und als ‹Küchengespräche› gespeichert. Deren Inhalt wird dann von Kerngruppemitgliedern und teils auch von Billy nach Themen zusammengetragen und zu neuen Schriften verarbeitet.
+Danach, wie am Mittwoch, Schachspiel und dann Büroarbeiten resp. schriftstellerische Tätigkeiten.
+
+**Samstag:**
+Dieser Tag ist wiederum zur Gänze Büroarbeiten und der schriftstellerischen Arbeit Billys gewidmet, wenn
+nicht irgendwelche Ausserordentlichkeiten anfallen, die es nötig machen, dass er z.B. eine weitere
+Einkaufstour machen oder irgendwelche Waren abholen muss. Ausserdem ist dieser Tag, wie auch der
+Sonntag, speziellen Besuchern gewidmet, die ihn mit ihren Anliegen aufsuchen, sei es ein psychisch
+schwer angeschlagener Mensch, dem er zu helfen versucht, oder jemand mit schweren Problemen, die er
+nicht selbst lösen kann und der Billys Rat benötigt, oder sei es ein Photograph, der für sein neues Buch
+einen Beitrag von Billy möchte. Ihre Reihe ist ebenso wie ihre Anliegen endlos und die Beschäftigung mit
+
+
+-----
+
+ihnen ist nicht nur erfreulich und erhebend, sondern sehr viel öfter anspruchsvoll, kräftezehrend und
+äusserst mühselig, dies besonders dann, wenn schwer belastete Menschen sich Billys Hilfe anvertrauen,
+deren Kraft kaum mehr ausreicht, seine Ratschläge konsequent in die Tat umzusetzen und die deswegen
+Rückschlag um Rückschlag erleiden, weshalb sie ihn stets von neuem aufsuchen und ihn um Hilfestellung
+auf ihrem schwierigen Weg bitten. Auch auswärtige FIGU-Mitglieder, die für die Mission tätig sind, kommen
+am Samstag oder Sonntag zu Billy, um mit ihm Korrekturarbeiten zu machen. An Zusammenkunftssamstagen widmet er sich über das Wochenende den Anliegen auswärtiger Kerngruppe-Mitglieder, und
+er hilft Guido Moosbrugger bei naturwissenschaftlichen Fragestellungen und Problemen im Zusammenhang mit dessen schriftstellerischer Tätigkeit.
+
+**Sonntag:**
+Auch dieser Tag, der der Entspannung dienen sollte, ist für Billy ein normaler Arbeitstag, auch wenn er
+sich gerne einmal am Nachmittag mit den anwesenden Kerngruppe-Mitgliedern unterhält. Oft wird er
+dabei, wie auch an jedem anderen Wochentag, von Kerngruppe- und Passiv-Mitgliedern oder von
+Freunden um Rat angegangen oder als Ratgeber bei Problemen konsultiert. Je nach Kraft und Eigeninitiative der Menschen, die seine Hilfe suchen, kann es sich dabei um tiefe und gravierende Probleme
+und Schwierigkeiten jeder Art handeln oder um Dinge, die stärkere Menschen als reine Lappalien abtun,
+die aber dem Betreffenden grundlegend zu schaffen machen. Billys Einfühlungsvermögen, seine Freundschaft und seine liebevollen und weisen Ratschläge sind dabei ebenso grenzenlos wie seine Umsicht und
+sein Mitgefühl, aus dem heraus er allen das für sie Beste und Klügste rät. Mit welchem Problem er auch
+immer konfrontiert wird, er weiss einen klugen und weisen Rat, und seine väterliche Fürsorge schliesst
+jeden Menschen ein, der ihn um Hilfe bittet. Oft genug stellt sich heraus, dass Billy sich längst mit einem
+bestimmten Problem eines in Schwierigkeiten Geratenen beschäftigt hat, noch ehe dieser sein eigenes
+Problem erkannt hat oder von ihm überrascht wurde. Seine Weitsicht und seine Weisheit sind ebenso
+beispiellos wie sein Wissen in psychologischer und geisteslehremässiger Hinsicht. Sie werden nur noch
+übertroffen durch seine Bescheidenheit, die ihn jedes Lob und jeden Dank sowie jede Bewunderung – und
+mögen diese noch so gerechtfertigt sein – zurückweisen lässt. Billy sieht sich als nicht mehr, denn als
+Mensch unter Menschen, die für ihn wohl verschieden sind in ihren Charakteren und in ihrer Individualität, die er aber als Menschen alle als gleichwertig empfindet.
+
+**Täglich:**
+Nach dem Aufstehen um die Mittagszeit sichtet Billy als erstes die eingegangene Post und liest ein erstes
+Mal grob die Korrespondenz, die er dann an die verantwortlichen Korrespondenten der verschiedenen
+Sprachen weiterleitet und verteilt. Dabei fallen eine Menge Briefe an, die vertraulich an ihn gerichtet sind
+und die er selbst beantwortet. Ausserdem durchforstet er drei abonnierte Zeitungen, nämlich den ‹Blick›,
+den ‹Tages-Anzeiger› und den ‹Landboten› nach Artikeln, die Voraussagen der Plejadier bestätigen. Dies
+allein ist eine äusserst bewundernswerte Gedächtnisleistung, die er trotz der gesundheitlichen Probleme
+erbringt, die sein Zusammenbruch im November 1982 verursachten. Bei den Voraussagen handelt es sich
+nämlich in der Regel nicht nur um kurzfristige Prognosen, die in Wochen- oder Monatsfrist eintreffen,
+sondern meist um solche, die vor Jahren oder gar Jahrzehnten anlässlich von Kontaktgesprächen gemacht
+wurden. Die Themen der Voraussagen, die Billy alle in seiner Erinnerung präsent haben muss, sind
+äusserst vielfältig und umfassen nicht nur das Weltgeschehen und Vorgänge in der Politik, sondern auch
+Entdeckungen in der Astronomie, der Medizin sowie in der Biologie und anderen Wissenschaftszweigen.
+Hinzu kommen Voraussagen über Katastrophen wie Erdbeben, Brände, Hochwasser und Unwetter sowie
+über Verheerungen, die durch menschliches Versagen, durch Unvorsicht oder Liederlichkeit und Verantwortungslosigkeit verursacht werden. Auch auf die Entwicklung von Krankheiten und über die Neuentdeckung von Krankheitserregern und krankmachenden Stoffen sowie auf den medizinischen Fortschritt
+und auf die Gentechnik hat er zu achten, und er darf die Entwicklung der Überbevölkerung und deren
+
+
+-----
+
+Auswirkungen ebensowenig vergessen wie auch nicht die gesamte kriminelle Entwicklung auf der Erde,
+zu der ebenfalls ab und zu Voraussagen gemacht wurden. Damit ist aber noch lange kein Ende der Themen
+erreicht, denn auch historische Fakten, die durch die Plejadier berichtigt oder erklärt wurden, muss er im
+Auge behalten, ebenso wie auch Entwicklungen und Vorfälle in Sekten und Religionen, die die Weltbevölkerung bewegen und interessieren, und nicht zuletzt sind es oft auch Persönlichkeiten des öffentlichen Lebens, deren Tun und Lassen und deren Schicksal ihn zu interessieren hat, weil sie in irgendeiner
+Form genannt wurden. All das hat er zu berücksichtigen, wenn er die Zeitungen durchforstet oder wenn
+er Zeitungsausschnitte kontrolliert, die ihm von interessierten Menschen zugeschickt oder überbracht
+werden.
+Wenn er die tägliche Post erledigt hat, ist es Zeit für die Aufgaben, wie sie oben beschrieben wurden.
+Nachdem er dann am frühen Abend etwas Kleines zu sich genommen hat, benötigt er eine kurze Ruhepause, in der er sich hinlegt, um seinem Gehirn die nötige Entspannung und Ruhe zu verschaffen. Danach
+beginnt dann seine eigentliche Arbeit, die normalerweise bis gegen drei Uhr morgens andauert, sich aber
+oft genug bis in die frühen Morgenstunden hinzieht, unterbrochen von einer kurzen Pause in der späten
+Nacht, wenn er seine für ihn lebensnotwendig gewordenen Medikamente einnehmen muss.
+
+Über Billys eigentliche Arbeit wurde zwar schon etwas gesagt, jedoch nicht ausführlich genug. Der normale
+Bürger, der meist über kein besonders grosses Allgemeinwissen und oft nur über wenige Spezialkenntnisse
+verfügt und der auch keine sonderlichen Interessen hat, kann sich gemeinhin kaum eine Vorstellung davon
+machen, welche Wissensgebiete Billy in seiner täglichen Arbeit bearbeitet, über die er sehr oft tiefgründigere Kenntnisse besitzt als die in diesen Gebieten tätigen Fachkräfte. Sei es, dass er eine kurze MailAnfrage über den Konsum von Haschisch mit einer fundierten Abhandlung über Herkunft, Gewinnung,
+rechtliche und politische Aspekte sowie über die körperlichen, psychischen und bewusstseinsmässigen
+Folgen des Haschisch-Genusses und dessen Stellenwert als Einstiegsdroge für den Heroinkonsum beantwortet, oder einen langen Aufsatz über Fakten aus dem Weltenraum verfasst oder esoterische Fragen im
+Bulletin auseinandernimmt, seine Artikel sind stets interessant, fundiert und in ihrer Argumentation von
+bestechender und unwiderlegbarer Logik. Zwischendurch verfasst er dann schnell ein oder zwei Gedichte,
+quasi ‹mit der linken Hand›, weil ihn jemand um einen Buchbeitrag bittet oder weil er zur Teilnahme an
+einem Gedichtwettbewerb aufgefordert wird oder einfach nur deswegen, weil etwas Platz in der ‹Stimme
+der Wassermannzeit› offen ist, der mit ‹etwas Kleinem› gefüllt werden muss. Oder er beantwortet über
+hundert Fragen zur Kindererziehung, zur Inkarnation und zu Personen aus der Religionsgeschichte, weil
+jemand ein Buch über diese Themen schreibt und Billys Antworten auf diese Weise verwerten will, was,
+bei Nennung des Antwortgebers als Quelle, ein durchaus verständliches und vernünftiges Ansinnen ist,
+denn es ist verantwortungsbewusster, sich um die wahrheitsgemässen Antworten zu bemühen, als selbsterdachte oder angenommene falsche Folgerungen und eigene Missverständnisse unter den Lesern zu
+verbreiten. Ausser diesen Fragen beantwortet er auch Fragen aus der Geisteslehre, die ihm durch Ptaah
+im Namen der plejarischen Geistführerschaft überbracht werden. Eine Aufgabe, deren Tiefgründigkeit
+und Anspruch an Billys Wissen und Weisheit wir nicht im entferntesten erahnen können, ausser dass wir
+von der Gewissheit ausgehen können, dass diese Antworten von derselben tiefgreifenden Qualität und
+Weisheit sind wie jene, welche wir auf unsere Fragen erhalten.
+Hinzu kommt dann noch seine Korrespondenz, in der er nicht nur auf private Anliegen jeglicher Art
+eingeht, sondern auch Fragen klärt, die z.B. durch Institutionen oder Vereine an ihn herangetragen
+werden, sei es, dass er einem Verein beim Verfassen seiner Statuten behilflich ist oder dass er für einen
+Menschen, der sich mit Ufologie befasst und um ein wahrheitliches Urteil bemüht ist, die kindischen und
+unbedarft kurzsichtigen Ergüsse eines angeblichen Kontaktlers zu Ausserirdischen bewertet. Aber auch
+die Korrespondenz mit Lieferanten, Geschäften und Anwälten, wenn die Zusammenarbeit mit solchen
+nötig ist, fallen in seinen Aufgabenbereich.
+
+
+-----
+
+Ausserdem ist er unseren Korrespondenten bei ihrer Arbeit behilflich, indem er Fragen beantwortet, die
+diese nicht selbständig oder nicht ausreichend beantworten können, und er überwacht die Korrespondenz
+mit unseren ausländischen, fremdsprachigen Studien- und FIGU-Gruppen und diktiert teilweise die
+Antworten auf deren Anliegen, oder er beantwortet die Briefe selbst, die dann von den entsprechenden
+Übersetzern in die jeweiligen Sprachen übertragen werden.
+Von den unzähligen Artikeln und den vielen Kleinschriften zu allen möglichen Themen, die Billy so quasi
+nebenbei verfasst, wurde bisher noch nicht gesprochen, ebensowenig wie von der enormen Anzahl von
+Fragen, die er den Kerngruppe-Mitgliedern während den Korrekturarbeiten, beim gemeinsamen Geisteslehre-Studium oder auch im Zusammenhang mit der Korrespondenz oder zu privaten Interessen bei jeder
+Tages- und Nachtzeit beantwortet. Diese Antworten werden meist mit einem Aufnahmegerät aufgezeichnet, dann abgeschrieben und gespeichert. Diese meist sehr ausführlichen Darlegungen zu jedem nur
+denkbaren Thema umfassen bereits mehrere prall gefüllte Ordner, deren Auswertung durch KerngruppeMitglieder Jahre in Anspruch nehmen wird.
+Die bisher aufgeführte Liste ist bereits derart lang und anspruchsvoll, dass sie ein einfacher Mensch wohl
+kaum bewältigen könnte. Und immer noch fehlen auf ihr wesentliche Arbeiten Billys, die seinen Hauptaufgabenbereich ausmachen, nämlich seine schriftstellerische Tätigkeit: In dieser arbeitet er normalerweise an verschiedensten Werken zu sehr unterschiedlichen Themen. So verfasste er kürzlich ein äusserst
+tiefgreifendes und erklärendes Werk über ‹Wiedergeburt, Leben, Sterben, Tod und Trauer›, in dem er sich
+nicht nur mit den Auswirkungen des Todes auf das Leben, mit den genauen Vorgängen des Sterbens und
+den Tatsachen des Todes auseinandersetzt, sondern auch tiefgründig und kenntnisreich auf die Details des
+Verlustes, der Trauer und deren Wahrnehmungs- und Verarbeitungsprozesse eingeht und diese fundiert
+und leicht verständlich erklärt, womit er mit Sicherheit ein unverzichtbares Standardwerk zu diesen
+Themen geschaffen hat. Gleichzeitig mit der Arbeit an diesem Werk arbeitet er an einer Weiterführung
+der Meditationslehre und an einem weiteren Buch mit verschiedenen Aufsätzen, die das menschliche
+Leben, die richtige Art der Lebensführung und der schöpferisch-natürlichen Denkweise sowie der notwendigen Bewusstseinsrevolution durch den einzelnen behandeln. Alle diese Themen werden von ihm nicht
+nur verständlich, berührend und nachhaltig behandelt, getragen von grossem Verständnis und Mitgefühl
+für die Nöte und Leiden der unwissenden und irregeleiteten Menschen, sondern auch absolut wahrheitlich und logisch fundiert. Führt man sich vor Augen, mit welchen Themen sich Billy auseinandersetzt und
+in welcher Qualität er sich damit befasst, gewinnt man den Eindruck, dass man im Meer seines Wissens und
+seiner Weisheit ertrinken könnte. Das Bild, das er in grossen Zügen für eine uneinsichtige, lernunwillige
+und orientierungslose, irregeleitete Menschheit vom wahren menschlichen Leben entwirft, ist die Erfüllung
+ihrer uralten Sehnsucht nach wahrer Liebe, nach Frieden, Freiheit, Gerechtigkeit und Fortschritt – und das
+Ziel aller Bemühungen menschlicher Evolution. Quasi im Nebenhinein, als ‹Freizeitbeschäftigung› arbeitet
+er zusätzlich zur Abwechslung an einem Buch mit Geisteslehre-Symbolen, von denen einige Milliarden in
+den Speicherbänken abgelagert sind. Diese Symbole muss er zuerst in den Speicherbänken abrufen,
+wobei er winzige grobe Skizzen anfertigt, die er dann für die endgültige Ausarbeitung mit dem Computer
+durch das Kerngruppe-Mitglied Bernadette detailliert aufzeichnet und mit genauen Angaben versieht.
+Noch nicht erwähnt ist seine Arbeit an der Traumdeutung, in der er im Rahmen der Geisteslehre eine Vielzahl von Traumsymbolen und deren Bedeutung aus den verschiedensten Traumbüchern und Traumdeutungen zusammengetragen und teilweise aus den Speicherbänken abgerufen hat. Ausserdem hat er
+jüngst zusammen mit Florena innerhalb von fünf oder sechs Arbeitstagen die Namensbücher überarbeitet,
+die auf der Erde noch gebräuchliche oder verschwundene Namen plejadisch-plejarischen Ursprungs beinhalten. Und last-but-not-least schreibt er die Übermittlungen der laufenden Kontaktgespräche nieder, die
+häufig genug 20 oder 30 Seiten und mehr umfassen. Über diese Arbeit, die Billys Konzentration ebenso
+fordert wie auch seine übrigen Arbeiten, wurde jedoch schon früher in der ‹Stimme der Wassermannzeit›
+ausführlich berichtet, weshalb an dieser Stelle nicht näher darauf eingegangen werden soll.
+
+
+-----
+
+Soweit ein grober Abriss über Billys Aufgaben und Tätigkeiten, die er absolut unentgeltlich auf sich nimmt
+und erledigt. Die Aufzählung seiner Betätigungen könnte endlos fortgesetzt werden, denn er kümmert sich
+um alles, und seinem aufmerksamen Auge entgeht nichts. Stets findet man ihn beschäftigt, wobei er
+niemals den Eindruck oder Anschein erweckt, dass ihn seine Arbeit belasten oder erschöpfen würde.
+Manchmal, wenn er sich sehr lange in telepathischer Form konzentrieren muss und wenn seine Gesundheit durch irgendwelche Einflüsse nicht zum besten steht, erwähnt er nebenbei, dass er Kopfschmerzen
+habe, was aber niemals in eine Klage ausartet oder in ein Jammern, ebensowenig wie das der Fall ist,
+wenn er unter Schmerzen aller möglichen Art leidet. Er nimmt solche Beschwerden und Leiden auch
+niemals zum Anlass, seine Arbeit zu vernachlässigen. Erst wenn er tatsächlich nicht mehr in der Lage ist,
+seinen Aufgaben nachzugehen, weil ihn seine Schmerzen oder eine Krankheit aufs Lager wirft, gönnt er
+sich einige Stunden, oder bestenfalls einen oder zwei Tage Ruhe. Sobald er auch nur einigermassen fähig
+ist, seine Arbeit wieder aufzunehmen, findet man ihn wieder tätig.
+
+Ein weiteres Merkmal Billys ist es, dass er für ehrlich Hilfesuchende stets Zeit und ein offenes Ohr hat.
+Niemals würde er einen Menschen, der in Not ist und der ernsthaft seine Unterstützung sucht, im Stich
+lassen, selbst dann nicht, wenn er zum Vornherein weiss, dass der Dank für seine Hilfe ausbleiben wird.
+Seine Bemühungen um seine Mitmenschen sind ehrlich und von grossem Verständnis und grenzenloser
+Geduld und Nachsicht. Oft erinnert er mich an einen weisen und liebevollen Vater und Patriarchen, der
+die Fährnisse und Unwägbarkeiten des Lebens genau kennt und das Lebensschiffchen der Seinen und
+jener, die sich vertrauensvoll in seine umsichtige Obhut begeben, mit leichter Hand in ruhige und harmonische Gewässer führen hilft, solange sie seinem Rat vertrauen. Dabei ist er aber niemals despotisch,
+und er erwartet nicht, dass sich ein Ratsuchender seinem Urteil bedenkenlos fügt, sondern er ist darauf
+erpicht, denen, welche er als fähig erkennt, zu ihrer eigenen Selbständigkeit und Unabhängigkeit zu
+verhelfen. Er ist ein wahrer Künstler darin, jeden Menschen als das zu sehen, was er wirklich ist und ihn
+als eigenständige Persönlichkeit zu akzeptieren und als das zu behandeln, was er wirklich ist. Niemals
+käme er auf die Idee, an einen Menschen das Ansinnen zu stellen, so zu sein wie er sein müsste oder wie
+er ihn haben möchte. Er ist jedem Menschen, der ihm ehrlich und offen entgegentritt ein lieber und fürsorglicher Freund und Begleiter, auf den jederzeit und unter allen Umständen Verlass ist – nur sehen das
+leider sehr viele Menschen nicht. Besonders jenen geht diese Einsicht ab, welche selbstgerecht und von
+kurzem Sinnen sind und die nur zu leicht vergessen, dass sie nicht nur Stärken haben, sondern auch
+Schwächen und dass jeder Mensch an seinen Fehlern und Schwächen arbeiten muss, um wahrheitlich
+Mensch zu sein. Oft genug ist ihr vermeintlicher Gerechtigkeitssinn geprägt von Unverständnis, Gleichmacherei, Selbstüberschätzung und barer Ungerechtigkeit – und nicht zuletzt von Neid und Eifersucht,
+weshalb sie Billy dann ungerechtfertigt angreifen und ihren geifernden Unverstand an ihm auslassen.
+Trotzdem ist er auch diesen Menschen gegenüber grosszügig, tolerant und verständnisvoll, und nur selten
+kommt es vor, dass ihn jemand derart reizt, dass er ihm frei heraus und in leicht verständlichen Worten
+sagt, «wo Bartel den Most herholt» resp. ‹wessen Geistes Kind› der Angreifer ist.
+
+Leider sind es noch viel zu wenige Menschen, die erkannt haben, dass sie durch eine glückliche Fügung
+das grösste Juwel unter den heutigen Erdenbewohnern gefunden haben. Und noch weniger Menschen
+trauen sich, dieser Erkenntnis auf die eine oder andere Weise Ausdruck zu geben, dabei wäre es so einfach, mit einer kleinen Geste, mit einem einfühlsamen Wort oder einem Schweigen zur richtigen Zeit
+Dankbarkeit und Liebe zu zeigen, was durchaus angebracht ist, denn das, was der einzelne Mensch
+durch Billys unermüdliche Arbeit gewinnen kann, ist mehr, als ein Dankeswort es jemals auszudrücken
+vermag.
+Bernadette Brand, Schweiz
+
+
+-----
+
+## Leser-E-Mail
+sehr geehrter herr rickauer,
+ich habe mit spannung ihren artikel im net gelesen – alle achtung. ihre recherche ist glänzend, allein frage
+ich mich, warum sie gegen ende ihres artikels, so blindwütig, fast wehrlos um sich schlagen, was haben
+wir christen ihnen denn getan? oder sollte es ihrer aufmerksamkeit entgangen sein, dass die verquickung
+von einseitiger religiöser auslegung und menschlicher macht seit jeher zum fanatismus und grössenwahn
+führte? das christentum und insbesondere jesus, der messias, kann nichts dafür, wenn die menschen wider
+besseren wissens ihn nach mehrhundertjähriger predigt nicht verstehen wollen, weil habgier und persönliches machtstreben für’s eigene kleine peinliche ego im vordergrund stehen.
+über kurze info würde ich mich durchaus freuen.
+mit freundlichen grüssen
+stefan schulz, deutschland
+
+## Antwort
+Sehr geehrter Herr Schulz,
+das Christentum ist ein Machwerk von Menschen – für Menschen, zum Zwecke der ‹geistigen› und
+bewusstseinsmässigen Versklavung, Ausbeutung und Verdummung. Es stellt die Eigenverantwortung und
+das evolutive Streben des Menschen unter den Scheffel eines imaginären Allmachtgottes, dem in Demut
+und Glaube zu huldigen ist. Glaube wird über wahres Wissen gestellt, vage Annahmen bilden ihre
+Grundlage.
+Jesus, wie Sie ihn nennen, kann sicher nichts dafür – predigte er doch genau das Gegenteil dessen, was
+das Christentum heute für sich in Anspruch nimmt (siehe ‹Talmud Jmmanuel›, Wassermannzeit-Verlag).
+Sie, Herr Schulz, haben mir sicher nichts getan. Ich darf dennoch sanft daran erinnern, dass unter dem
+Dach des Christentums mehr Menschen abgeschlachtet und ermordet worden sind, als während der Zeit
+des Dritten Reiches. Eine Religion oder Philosophie, die sich mit den Federn der Liebe und Weisheit
+schmückt (bis heute), offenbar deshalb, um die Falschheit und Verlogenheit ihres Tuns zu verschleiern.
+Bis heute sind es die Religionen, die den Globus mit Leid, Schrecken und Terror überziehen. – Was auch
+immer einige Gelehrte für sich an wertvollen Gedanken aus einer Religion zu ziehen vermögen: Es bleibt
+eine Religion, die mit der universellen Wahrheit, mit wahrer Liebe, wahrer Wahrheit und wahrer Harmonie
+auch nicht ein winziges Jota gemeinsam hat. Wahre Liebe und Weisheit, Wissen und wahrer Frieden
+resultieren nur aus der universellen Wahrheit, die der Mensch durch evolutives Suchen, Forschen und
+Streben sich zu eigen machen muss. Dies in absoluter Eigenverantwortung, Selbstbestimmung und wahrer
+Freiheit. Dies alles sind Werte, die jede Religion und jede Sekte mit Füssen tritt.
+Vielen Dank für Ihr E-Mail,
+mit freundlichen Grüssen,
+Stephan A. Rickauer, Schweiz
+
+
+-----
+
+_Kronenzeitung, Wien, Dienstag, 10. Februar 2004_
+
+
+-----
+
+_Deutsche Zeitung,_
+_München,_
+_Freitag, 18. Juli 2003_
+
+_Raum und Zeit, München, 126/2003_
+
+
+-----
+
+_Wiler Zeitung, Wil, Dienstag, 2. März 2004_
+
+## VORTRÄGE 2004
+Auch im Jahr 2004 halten Referenten der FIGU wieder Ufologie- und Geisteslehre-Vorträge. Nachfolgend
+die Daten für die stattfindenden Vorträge:
+
+**28. August 2004** Patric Chenaux: Innere Werte
+Stephan A. Rickauer: Neurowissenschaft und Meditation – ein Widerspruch?
+
+**23. Oktober 2004** Guido Moosbrugger: Siebenheit des Materieaufbaues II
+Rita Oberholzer: Ganzheitliche Gesundheit
+
+Pünktlicher Vortragsbeginn um 14.00 Uhr.
+
+Eintritt: CHF 7.– (Eintritts-Ermässigung für FIGU-Mitglieder bei Vorweisen eines gültigen Ausweises.)
+
+Wir freuen uns auf Ihr Erscheinen und begrüssen gerne auch Ihre Freunde, Kollegen und andere Interessierte.
+
+Wir erinnern Sie daran, dass im Restaurant Freihof in Schmidrüti Konsumationspflicht besteht.
+
+An den Vortrags-Samstagen trifft sich im Semjase-Silver-Star-Center um 19.00 Uhr eine Studiengruppe,
+zu der alle interessierten Passiv-Mitglieder herzlich eingeladen sind.
+
+
+-----
+
+**IMPRESSUM**
+**FIGU-Bulletin**
+**Druck und Verlag: Wassermannzeit-Verlag, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+**Redaktion: ‹Billy› Eduard Albert Meier, Semjase-Silver-Star-Center, CH-8495 Hinterschmidrüti ZH**
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+**Abonnemente:**
+Erscheint unregelmässig; Preis pro Einzelnummer: CHF 2.– (Zusammen mit einem Abonnement der ‹Stimme der Wassermannzeit› oder der ‹Geisteslehre-Briefe› als Gratis-Beilage.)
+**Postcheck-Konto: FIGU-CH-8495 Schmidrüti, PC 80-13703-3**
+**E-Mail: info@figu.org**
+**Internet: www.figu.org**
+**FIGU-Shop: htttp://shop.figu.org**
+
+
+-----
+

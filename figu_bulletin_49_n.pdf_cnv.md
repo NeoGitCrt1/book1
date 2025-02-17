@@ -1,0 +1,1686 @@
+**Freie**
+
+
+### Erscheinungsweise: Internet: http://www.figu.org 10. Jahrgang Sporadisch                 E-Mail:  info@figu.org          Nr. 49, September 2004
+
+## Gouverneur Arnold Schwarzenegger
+**oder ein offener Brief an den Österreicher und kalifornischen Gouverneur zum Thema: Todesstrafe und**
+**Diskriminierung gleichgeschlechtlicher Lebensgemeinschaften in Kalifornien**
+_(Bei den Sätzen oder Satzteilen zwischen Anführungs- und Schlusszeichen handelt es sich um Zitate von ‹Billy›_
+_Eduard Albert Meier.)_
+_Mitte Februar 2004 haben Sie, Gouverneur Arnold Schwarzenegger, das Justizministerium aufgefordert,_
+_gegen Eheschliessungen gleichgeschlechtlicher Paare in San Francisco einzuschreiten, dies, obwohl ein_
+_Gericht in Massachusetts sowie die Stadtbehörden in San Francisco und Gemeinden im Staat New Mexico_
+_Lebensgemeinschaften und das Heiraten unter gleichgeschlechtlichen Paaren für zulässig erklärten. Entge gen_
+_Ihrer Ansicht und Überzeugung weise ich Sie aber darauf hin, dass Sie mit Ihrer Aktion zur Unter sagung_
+_homosexueller Ehen einen Akt unbeschreiblicher Diskriminierung bestimmter Menschengruppen in die_
+_Wege leiten; so nämlich die Erniedrigung, Geringschätzung und Herabwürdigung von Millionen lesbischer_
+_Frauen und homosexueller Männer. «Das gleiche gilt in noch viel schlimmerer Weise, dass Sie die Todes­_
+_strafe befürworten und diese gnadenlos auch vollstrecken lassen, obwohl kein Mensch das Recht hat, über_
+_Leben und Tod zu entscheiden und also Menschen selbstherrlich, machtbesessen und selbstgerecht in den_
+_Tod zu schicken.»_
+
+_Tatsächlich ist es sehr einfach, im Leben Fehler oder Irrtümer zu begehen; die Behebung und Korrektur der­_
+_selben kann jedoch eine ganze Lebenszeit in Anspruch nehmen – und es kann zu einer sehr schmerz haften_
+_Erfahrung werden. «Und es ist äusserst einfach, primitiv und grossschnäuzig, über Menschen ein Urteil zu_
+_fällen und sie dem Tod zu überantworten, wenn es sich dabei nicht um eigene Angehörige oder nicht um_
+_die eigene Person, sondern um Fremde und einem Unbekannte handelt.»_
+_Das schöpferische Gesetz der Kausalität wird eines Tages unweigerlich seinen Tribut fordern. Können Sie_
+_die Unterdrückung, Unbilligkeit und die Unterjochung bestimmter Menschengruppen oder Minderheiten_
+_mit Ihrem Gewissen vereinbaren? Selbstkritik, Selbstprüfung und Reflektierung eigener Handlungen sind_
+_hohe Tugenden und bilden einen wichtigen Teil der Persönlichkeitspflege. Die Fähigkeit hierzu zeugt von_
+_menschlicher Reife und sozialer Kompetenz._
+_Das Alter und die Lebenserfahrung führen in der Regel zu einer gewissen Weisheit, Besonnenheit und_
+_Klarheit. Lassen Sie die Geschichte an Ihrem Beispiel nicht das Gegenteil beweisen. Die Geschichte lehrt,_
+_dass immer wieder Menschen in Erscheinung treten, die in ihrem Leben eine einmalige Chance erhalten_
+_oder eine wichtige Aufgabe zu erfüllen haben. Menschen, die völlig unerwartet und plötzlich irgendwel­_
+_che Führungspositionen erlangen und zum Wohle der Menschheit wirksam werden könnten, vorausge­_
+_setzt, dass diese Menschen den Wert und die Tragweite ihrer Aufgabe zu erkennen vermögen. Sie, Arnold_
+_Schwarzenegger, sind für viele Menschen in den USA, Europa und der Welt zu einem hoffnungsvollen Teil_
+_der Geschichte geworden, zu einem Träger und Kämpfer für Gerechtigkeit. Man sieht in Ihnen die_
+_Verkörpe rung des einfachen Mannes, der, aus bescheidenen Verhältnissen stammend, durch harte Arbeit_
+
+
+**L**
+
+**WESEN FREMDER WELTEN**
+**BESUCHEN DIE ERDE**
+
+
+-----
+
+_zu Ruhm und Ehre kam. Nutzen Sie diese aussergewöhnliche Berufung mit Vernunft, Weisheit und Ver­_
+_stand sowie zum wahren eigenen Menschsein, zu Ihrer persönlichen Entwicklung und zum Wohle der ge­_
+_samten Menschheit. Seien Sie sich dessen bewusst, dass auch unzählige homosexuelle Männer und lesbi­_
+_sche Frauen einen sehr grossen Teil zu Ihrem Ruhm und Erfolg beigetragen haben. Verleihen Sie der_
+_amerikani schen Politik den Hauch von Menschlichkeit, Wahrheit, Gerechtigkeit und Bedachtsamkeit, die_
+_ihr seit langem verlorengegangen ist._
+_Ihre Aufgabe erfordert ein sehr hohes Mass an Kompetenz, Verantwortung, Würde, Ehrfurcht und Respekt_
+_gegenüber dem Leben und den Menschen. Das ist eine Bürde, an der sehr viele Führungskapazitäten zer­_
+_brochen sind «und weiterhin zerbrechen, weil sie dem Wahn des Omnipotentseins verfallen sowie dem_
+_Grössenwahn, der Verantwortungslosigkeit und der Selbstherrlichkeit, sobald sie an die Macht gelangen.»_
+_Schmal ist der Pfad vom Helden zum Diktator wie uns die Vergangenheit und die Geschichte seit jeher_
+_lehrt._
+_Die Menschen sind keine inkompetente und willenlose Objekte. Sie schaffen und pflegen Bedürfnisse,_
+_eige ne Ansichten, Meinungen und Lebenseinstellungen. Menschen streben nach Harmonie, Liebe, Freiheit,_
+_Frieden, Freude und Glück und wehren sich gegen jegliche Unterdrückung. Eine Tatsache, die Sie in Ihren_
+_Entscheidungen berücksichtigen sollten, denn Druck erzeugt immer auch Gegendruck «wie auch Gewalt_
+_wiederum Gewalt erzeugt.»_
+_Im Umgang und mit der Umsetzung von Macht offenbart sich der wahre Charakter eines Menschen. Durch_
+_weise Menschenführung, richtige Entscheidungen, Sozialkompetenz, Weitsichtigkeit und logische Beschlüs ­_
+_se lässt sich das Wissen und auch die Weisheit und damit die «wahre Grösse eines Machthabers klar er­_
+_kennen. Wer aber seine Macht für unsinnige Verbote gegen gleichgeschlechtliche Liebe und zur Befürwor­_
+_tung und Ausübung der Todesstrafe missbraucht, kann nicht rechtens als weise, wissend, weitsichtig,_
+_gerecht, human und verantwortungsvoll bezeichnet werden, denn wahrlich geht einem solchen Menschen_
+_das Menschsein ab.»_
+_Ein altes Sprichwort besagt: Allen Menschen recht getan, ist eine Kunst die nur ein Weiser kann. Verfügen_
+_Sie über das nötige Wissen und die notwendige Weisheit, um auch den homosexuellen Männern und den_
+_lesbischen Frauen sowie anderen Minderheiten gerecht zu werden? Verfügen Sie auch über das nötige_
+_Wissen und die wertvolle Weisheit, Gouverneur Arnold Schwarzenegger, um als geschätzter und weiser_
+_Menschenführer in die Geschichte einzugehen, oder lassen Sie sich von Profitgier, Selbstgefälligkeit und_
+_Gleichgültigkeit treiben und verändern? «Wenn nicht, dann besteht für Sie die dringende Notwendigkeit,_
+_alle grossen und guten Werte auf schnellstem Wege zu erarbeiten, um wahrlicher Mensch zu werden.»_
+_Es setzt grosse Menschenkenntnis und den Sinn für wahrliche Gerechtigkeit voraus, Menschen und Völker_
+_politisch, human und sozial zu führen. Sind Sie fähig, das tiefgründige Wesen der Menschen zu erkennen_
+_und zu verstehen, um verständnisvoll auf deren Anliegen, Probleme und Schwierigkeiten einzugehen? Die_
+_Diskriminierung homosexueller und lesbischer Menschen lässt leider das Gegenteil erahnen. «Allein ein_
+_Filmheld zu sein genügt leider nicht, denn wirkliches Heldentum entsteht nur im wahren Leben, indem grosse,_
+_gute und menschlich wertvolle sowie verantwortungsvolle Taten vollbracht werden.»_
+_Als gewählter Gouverneur haben Sie auch um die Stimmen homosexueller und lesbischer Menschen ge­_
+_worben. Folgedessen basiert mit grosser Wahrscheinlichkeit Ihr Wahlerfolg auch auf den Stimmen solcher_
+_Menschen des Staates Kalifornien. Daher arbeiten Sie auch im Auftrage vieler lesbischer und homosexu ­_
+_eller Bürger/innen und sehr vieler anderer Mitmenschen, deren Vertrauen Sie vor den Wahlen gewonnen_
+_haben, es aber missbrauchen, wenn Sie sich gegen diese stellen._
+_Das Vertrauen der Menschen zu missbrauchen oder es zu missachten, ist eine der schlimmsten Charakter ­_
+_eigenschaften. Lassen Sie diese unehrenhafte Eigenschaft nicht zu einem typischen Charakterzug eines_
+_verantwortungslosen Politikers werden. Andere Menschen in ihrer Entwicklung zu hemmen oder ihnen ihre_
+_grundlegenden Bedürfnisse zu verbieten oder diese zu kriminalisieren, zeugt von gleichgültiger Missachtung_
+_elementarer Menschlichkeit. Homosexuelle Männer oder lesbische Frauen sind keine unmittelbare Gefahr_
+_für Leib und Leben. Sie denken anders und fühlen anders. Ist das in Kalifornien und in Ihrem Sinn bereits_
+
+
+-----
+
+_ein Verbrechen? «Denken Sie einmal daran, wenn einem Ihrer Kinder oder sonst jemandem Ihrer Familie_
+_die andere Sexualität eigen würde, die Sie so vehement, verständnislos und verantwortungslos verdammen,_
+_sich darüber erheben und sich anmassen, in dieser Sache Richter und Gott zu spielen.»_
+_In Ihren Filmen geben Sie sich oft als Kämpfer für Gerechtigkeit und Ordnung, als Beschützer und Kämpfer_
+_gegen das Böse. Doch, Herr Gouverneur, die gleichgeschlechtliche Liebe, ob männlich, homosexuell, oder_
+_weiblich, lesbisch, gehört nicht zum Bösen, sondern entspricht vielmehr einer naturgegebenen Eigenart_
+_bestimmter Menschen. Dies trifft auch dann zu, wenn die lesbische oder homosexuelle Lebensform und_
+_deren Lebensweise nicht Ihrer persönlichen Ansicht und Weltsicht entspricht. Doch Toleranz und Verständ ­_
+_nis für andere Lebensweisen, Lebensformen, politische oder soziale Sichtweisen zeugt auch hier von per­_
+_sönlicher Reife, von Grösse und Edelmut._
+_Vertreiben Sie Ihre unklaren, unwirklichen Einbildungen und unrealistischen Vorstellungen bezüglich der_
+_Homosexualität und des Lesbierismus aus ihrem Bewusstsein. Kein einziger Mensch auf diesem Planeten_
+_ist vor Irrtum gefeit. Verharren Sie nicht in horrender Unlogik, Engstirnigkeit, Fremdbeeinflussung, falschem_
+_Stolz oder der Verfechtung fremder Interessen. Überdenken Sie daher noch einmal in Weisheit und Ge­_
+_rechtigkeit Ihre falsche Einstellung und Ihren Entschluss zum Verbot der gleichgeschlechtlichen Ehe «sowie_
+_der Befürwortung der Todesstrafe.» Entscheiden Sie jedoch so, dass Sie allen Mitmenschen und eines Tages_
+_auch Ihren Kindern und Enkelkindern mit gutem Gewissen ehrlich in die Augen sehen können. Machen_
+_Sie es nicht so, dass Ihre Entscheide «deren Glück und Freude sowie deren Frieden, Freiheit und Harmonie_
+_verhindern und die Liebe zerstören, ehe sie sich auch nur entwickeln kann.» Nutzen Sie daher Ihre Intelli ­_
+_genz, Ihre Vernunft und Ihren Verstand, um zu lernen und Ihre wertvollen Erfahrungen in neue Projekte,_
+_in mutige Entscheidungen und Gesetzgebungen fliessen zu lassen. Informieren Sie sich ohne Beeinflussung_
+_durch fremde politische, wirtschaftliche oder kultreligiöse Interessen im Hintergrund über die wichtigen_
+_Themen Todesstrafe und Homosexualität. Dafür empfehle ich Ihnen, einige interessante Schriften der FIGU_
+_(Freie Interessengemeinschaft für Grenz- und Geisteswissenschaften und Ufologiestudien) sowie von ‹Billy›_
+_Eduard Albert Meier unter der Internet-Adresse: www.figu.org oder www.lanzendorfer.ch zu studieren,_
+_um sich ein Bild über das wirkliche Wesen der Homosexualität und des Lesbierismus sowie der Todesstrafe_
+_zu verschaffen. Homosexuelle «Männer und lesbische Frauen sowie kriminelle Menschen, und zwar auch_
+_Gewaltverbrecher wie Mörder» stehen nicht mit dem Teufel in Verbindung, auch wenn dies von vielen kult ­_
+_religiös und sektiererisch verblendeten Menschen in diskriminierender Art und Weise so gesehen und so_
+_ausgelegt wird. «Alle sind sie Menschen, wie alle andern auch, und als solche müssen sie auch behandelt_
+_und geschätzt werden.» Wir haben das Mittelalter hinter uns gelassen und leben im dritten Jahrtausend._
+_Der allgemeine Fortschritt in Wissenschaft, Kultur, Ethik, Rechtsprechung und die Einhaltung der grund ­_
+_legen den Menschenrechte sind nicht das Produkt kultreligiöser, sektiererischer oder politischer Verbote und_
+_Einschränkungen; sie sind das Ergebnis einer Jahrtausende andauernden Entwicklung und der Arbeit_
+_vieler einzelner Menschen, Vorkämpfer und Vorkämpferinnen._
+_Im Laufe unserer Erdgeschichte hat es immer wieder Menschen mit umwälzenden Ideen und Mut zur Inno ­_
+_va tion gegeben. Nutzen Sie, Gouverneur Schwarzenegger, die Chance ihrer Möglichkeiten zum Wohle_
+_Ihrer Mitmenschen und der ganzen Menschheit, und nicht zu deren Untergang._
+_Die Geschichte Amerikas ist geprägt von Rassenhass, Sektierismus, Krieg und Unterdrückung, Ausrottung_
+_sowie von Versklavung ganzer Völker durch die ersten Europäer und deren Nachfolger «bis in die heutige_
+_Zeit, in der fremde Staaten überfallen und bekriegt werden.» Fassen Sie den Mut, diese Tradition der_
+_Suppres sion, des Egoismus und der Verblendung aufzubrechen und abzuschaffen, um den Menschen_
+_dadurch wahre Freiheit und Verantwortung zu geben. Gestehen Sie den homosexuellen Männern und_
+_lesbischen Frauen sowie allen Mitmenschen jene Rechte zu, die ihnen zustehen. Und ermöglichen Sie all_
+_diesen Menschen ein gleichwertiges Leben zu führen. Homosexualität oder Lesbierismus rechtfertigt keine_
+_Diskriminierung des Menschen in seiner Persönlichkeit und in seinen Rechten._
+_Es ist kein Geheimnis, dass die amerikanische Denkweise und Wertschätzung auf einigen wenigen Säulen_
+_basiert. Leider gehören die hohen evolutiven und wertvollen Vortrefflichkeiten wie Ehrfurcht, Respekt und_
+
+
+-----
+
+_Menschlichkeit nicht unbedingt dazu. Zeigen Sie der amerikanischen Öffentlichkeit, dass Gleichwertigkeit_
+_und die Anerkennung anderer Interessen, Meinungen und Ansichten sowie Toleranz keine Schwäche, son­_
+_dern menschliche Stärken sind «wie sie im Gegensatz zu den USA in Europa noch mit einer gewissen_
+_Würde gepflegt und praktiziert werden.»_
+_Es gibt Menschen, die ziehen als unscheinbare Schausteller in das angebliche Land der unbegrenzten_
+_Möglichkeiten‚ um dort ihr Glück und den Erfolg zu finden. Es ist jedoch ein Unterschied, ob für die Un­_
+_terhaltung der Menschen oder für deren grundlegende menschliche Bedürfnisse gesorgt wird. Sie, Schau­_
+_spieler und Gouverneur Arnold Schwarzenegger, sind auf die Bühne der Politik gesprungen, und zwar_
+_nicht, um die Menschen zu unterhalten, sondern um diese in verantwortungsvoller Art und Weise zu_
+_führen. Menschen benötigen Belehrung und Rat. Verbote und Einschränkungen sowie Zwänge und Ver­_
+_bannung drängen sie jedoch zum Widerstand. Das ist eine Tatsache, die Ihnen aus Ihrer Studienzeit der_
+_Psychologie und Volkswirtschaftslehre noch immer präsent sein sollte. Als ehemaliger Trainer bei den_
+_Olympischen Spielen behinderter Menschen sollte Ihnen die Problematik der Diskriminierung von Rand­_
+_gruppen in der Gesellschaft nicht unbekannt sein. Homosexuelle Männer und lesbische Frauen sind_
+_dagegen nicht behindert, und sie sind ungefährlich, wenn auch anders. Doch werden sie oftmals genauso_
+_diskriminiert und geächtet wie behinderte Menschen._
+_Werden und Vergehen sind schöpferische Gesetze und wesentlicher Bestandteil menschlichen Lebens. Ein_
+_ruhmvolles Denkmal, Arnold Schwarzenegger, werden Sie mit absoluter Sicherheit nicht durch Verbote,_
+_Missachtung und Diskriminierung erlangen, vielmehr aber durch weise Entschlüsse und umwälzende, gute_
+_und menschliche Reformen, wie eben die Abschaffung der Todesstrafe, der Einrichtung sozialer  Institutionen,_
+_wie Altersvorsorge und Krankenversicherungen, und der gesetzlichen Legalisierung homosexueller und_
+_lesbischer Partnerschaften._
+
+_Hans-Georg Lanzendorfer, Schweiz_
+
+## Leserbrief zum Sonder-Bulletin-Nr. 14, Mai/3 2004
+ Des Menschen grösster Feind
+_… ist er praktisch selbst. Dass dies heutzutage eine unanfechtbare Tatsache ist, wird allgemein nicht mehr_
+_bestritten. Doch offensichtlich führt diese Erkenntnis des Menschen im täglichen Verhalten und Umgang_
+_mit seinen Mitmenschen nur sehr selten zu Veränderungen in seinen individuellen Verhaltensmustern. Viel­_
+_mehr verpufft diese Erkenntnis zu nichts, anstatt sich tagtäglich ins Bewusstsein zu rufen, dass man im Um­_
+_gang und im Kontakt mit seinen Mitmenschen jede Sekunde seines Lebens mit dieser Tatsache konfrontiert_
+_wird._
+
+_Aber wie läuft es im allgemeinen und im besonderen wahrheitlich ab? In seinen Gewohnheitsstrukturen, die_
+_sich aus Veranlagung, Erziehung, Umgang, Umfeld und eigenen Einsichten zum individuellen Charakter_
+_gebildet haben, geht er grundsätzlich dazu über, subjektiv negativ empfundene Situationen und Ereignisse_
+_auf seine Mitmenschen zu projizieren. Irgend jemand muss letztendlich die Schuld an dieser Situation tragen._
+_Und das sind immer die anderen, nur er selbst nicht. Das ist schlicht und ergreifend Selbstbetrug und ein_
+_Schaden derer, die das Individuum fast immer in solchen Situationen, die der Mensch als negativ, böse_
+_oder schlecht empfindet, zum Sündenbock machen._
+_Wie kommt der Mensch zu solch einer Fehlbeurteilung und zu so einem Fehlverhalten und macht sich_
+_dadurch selbst zum grössten Feind? Es ist schlichtweg der Unverstand, der in Unwissenheit, Ärger, Hass,_
+_Stolz, Eifersucht, Misstrauen, Zweifel usw. gipfelt. Der Unverstand ist die Wurzel dieser bewusstseins ­_
+_mässigen Fehlentwicklung. Der Unverstand hat seine eigendynamischen Wegbereiter und Helfershelfer,_
+_die da sind: Nichtwollen, Nicht-Einsehen-Wollen, Nicht-Begreifen-Wollen, Nicht-Anderssein-Wollen, Nicht-_
+
+
+-----
+
+_Hinzulernen-Wollen, Nicht-Aufgeben-Wollen, Nicht-Erkennen-Wollen von althergebrachtem Gedanken­_
+_gut usw. usf._
+
+_Jeder einzelne dieser Helfershelfer ist allein schon Garant für eine bewusstseinsmässige Fehlentwicklung_
+_und Stagnation. Jede Form von Stagnation garantiert die Verhinderung persönlicher Weiterentwicklung_
+_auf allen Gebieten seines Seins. Das Festhalten am alten ist zu einem beherrschenden Instrument seiner_
+_Existenz geworden. Dieses Verhaltensmuster arbeitet latent, was heisst, das Individuum ist sich dessen nicht_
+_einmal bewusst. Aus der Kommode dieses Wahnsinns zieht es all die Register, die ihm bekannt sind und_
+_als geeignet erscheinen, die Situation, in der es sich jetzt befindet, zu beherrschen und zu seinem Wohl­_
+_ergehen ausgehen zu lassen. Hin und wieder muss es damit erfolgreich gewesen sein, sonst wäre es kein_
+_Wiederholungstäter. Aber es erkennt das Resultat nicht als faul, sondern als Erfolg an. Auch sieht es un­_
+_mittelbar um sich herum und mittelbar weltweit ähnliche Verhaltensmuster, die von Projektionen des Hasses,_
+_des Neides, der Eifersucht, des Stolzes usw. begleitet sind, bei anderen ebenfalls als Erfolge an. Die_
+_Medien von heute mit ihren Negativ-Schlagzeilen sind hierbei seine Lehranstalt, die ihm tagtäglich ‹seine_
+_Wahrheit› bezeugen. Der Mensch sieht wie die Mächtigen, Idole usw. usf. agieren und adaptiert deren_
+_Muster. Nach dem Motto ‹Masse ist Klasse› und ‹Ausnahmen hiervon sind ketzerisch› und, nach den all­_
+_gemeinen gesellschaftlichen Vorstellungen von Moral und Ethik, verwerflich und dumm, kommt das Indi­_
+_viduum von heute nicht einmal ansatzweise auf den Gedanken, sich selbst zu überprüfen (Innenschau) und_
+_darüber nachzudenken, ob die sog. ketzerische Ausnahme nicht Verhaltensmuster aufweist, die sich natur ­_
+_gemäss vom Massenbewusstsein abheben, die auch für ihn erstrebenswert sein könnten. Täte er das, wären_
+_die hieraus entstehenden Einsichten und damit verbundenen Erkenntnisse die grössten Helfershelfer zur_
+_Beseitigung des Unverstandes._
+
+_Gerade in dieser von tiefstem Unverstand und krassestem Egoismus durchtränkten Zeit hat das Individuum_
+_die einzigartige Chance, am Weltenzustand zu erkennen, dass irgend etwas nicht in Ordnung sein muss,_
+_wenn die Welt sich so gebärdet, wie sie es tut, und zwar angefangen vom Individuum bis hin zum Kollek tiv._
+_Der Weltenwahn liegt uns allen nackt vor den Füssen. Das einzige, was wir zu tun haben, ist die Ursachen_
+_zu beseitigen und einen Weg einzuschlagen, der das Gegenteil dessen garantiert, was wir derzeit weltweit_
+_als kollektive Verrücktheit bezeichnen dürfen. Verrücktheit im Sinne von Entrücktsein-von-der-Wahrheit_
+_und von uns selbst._
+
+_Dies ist die Welt der Verrückten, ein kollektives Irrenhaus ohne ausreichendes qualifiziertes Ärztepersonal._
+_‹Ich-und-Mein› ist zum Credo des Individuums geworden, das nach Gleichgesinnten Ausschau hält, sich_
+_sammelt und bösartige Versklavungs- und Ausbeutungsstrategien konzipiert und rücksichtslos, menschen­_
+_verachtend und menschenentwürdigend durchführt._
+
+_Das Denksystem dieser Welt steht diametral auf dem Kopf. Nichts ist so offensichtlich wie diese Tatsache._
+_Der Mensch in seiner oftmals auch andressierten und somit manipulierten Unwissenheit muss endlich auf­_
+_wachen und ‹anderen Geistes› (Bewusstseins) werden, ansonsten läuft er weiterhin Gefahr, seine Weiter­_
+_entwicklung zu gefährden und seinem Nächsten Unrecht zu tun. Er muss von seinem aus Illusionen des_
+_Stolzes, des Hasses, des Neides, der Eifersucht, des Misstrauens usw. usf. selbst zusammengezimmerten_
+_Thron des Unverstandes herabsteigen und all jenen folgen, die das Gegenteil als leuchtendes Beispiel vor­_
+_leben, um in den Genuss von aufrichtiger Liebe, wahrem und ehrlichem Erfolg, Frieden und Harmonie,_
+_Wissen und Weisheit zu gelangen._
+_Der Unverstand ist des Menschen grösster Feind. Er ist es, der ihn in Unwissenheit und im Irrglauben lässt,_
+_dass alles in Ordnung sei, weil es so ist, wie es ist. Aber in Wirklichkeit ist nichts in Ordnung. Die Welt ist_
+_ein Abgrund von Landesverrat, Raubbau, Gier, Despotismus, Gewalt, Krieg, Protektion, Vetternwirtschaft,_
+_Desinformation, Manipulation, gezielter Irreführung, Versklavung, Politikerwahn, Politikergläubigkeit,_
+
+
+-----
+
+_Egoismus und religiösem Fanatismus. All diese Instrumente sind Auswüchse des Unverstandes. Wie kann_
+_man nur davon überzeugt sein, dass etwas, das in Wirklichkeit nichts ist, in diesem Fall der Unverstand,_
+_etwas gebären könnte, das Frieden, Liebe, Harmonie, Wissen und Weisheit als letztendliche Frucht_
+_hervor bringt?_
+
+_Dieser Verrücktheit ist ganz einfach beizukommen. Man gehe zu qualifizierten Ärzten: www.figu.org_
+
+_Im FIGU-Sonder-Bulletin 14/2004 muss jedem Leser spätestens jetzt klar werden, dass hier Menschen am_
+_Werk sind, die es verdienen, als Mensch bezeichnet zu werden. Die ausgezeichnete und wahrheitsgemäs­_
+_se Qualität der einzelnen Aufsätze und Artikel sprechen für sich._
+
+_Horst D. Sennholz, Deutschland_
+
+## Leserfrage
+_Was, wenn überhaupt, sagen eigentlich die Plejadier resp. Plejaren zur Europäischen Union? Und was_
+_bringt die Zukunft für die Wirtschaft und für die Bevölkerung der Schweiz?_
+
+_Paul Trachsel, Schweiz_
+
+## Antwort
+_Im Zusammenhang mit der EU wurden diverse Gespräche geführt, wobei jedoch nur wenig schriftlich_
+_festgehalten wurde. Was für Ihre Frage jedoch sicher als Antwort von Bedeutung ist, dürfte das sach ­_
+_bezogene Gespräch vom 213. Kontakt sein, das am 2. Dezember 1986 zwischen Quetzal und mir statt­_
+_gefunden hat._
+
+_Billy_
+
+### Auszug vom 213. Kontakt, 2. Dezember 1986, 03.17 h
+
+**Billy Was ergibt sich eigentlich mit dem Tier 666, das in einer Form der Prophezeiung als böse Diktatur**
+
+
+_fungiert, die von Belgien ausgehen soll?_
+
+
+**Quetzal**
+_74._ _Bei diesem altherkömmlich prophezeiten Tier, das die Zahl des Bösen und Negativen tragen wird,_
+_handelt es sich in kommender Zeit um die sogenannte ‹Europäische Union›, kurz genannt EU, die_
+_einer europaweiten Diktatur gleichkommen und mit einem Vertrag am 1. November 1993 beschlossen_
+_und gegründet werden wird, mit einem sogenannten ‹Maastrichter Vertrag›._
+
+_75._ _Damit wird dann ein politischer und wirtschaftlicher Zusammenschluss der Mitgliedstaaten ge schaffen,_
+_deren Ziele die Förderung des sozialen und wirtschaftlichen Fortschritts sein soll, wobei keine der vor­_
+_gehenden ‹Europäischen Wirtschaftsgemeinschaft›, EWG, resp. der ‹Europäischen Gemeinschaft›,_
+_EG, Binnengrenzen mehr bestehen und eine Wirtschafts- und Währungsunion entstehen soll._
+
+_76._ _Dazu sollen später auch eine gemeinsame Aussen- und Sicherheitspolitik der Mitgliedstaaten sowie_
+_später auch eine gemeinsame Verteidigungspolitik angestrebt werden._
+
+_77._ _Auch wird für die Bürger der Mitgliedstaaten vorgesehen werden, eine ‹Europäische Unionsbürger­_
+_schaft› zu schaffen._
+
+_78._ _Auch die Bereiche Militär und Justiz sowie Strassenverkehr und Land- sowie Industriewirtschaft sollen_
+_letztlich durch die Mächtigen der EU bestimmt werden, die in Brüssel/Belgien ihre Machtresidenz_
+_haben werden._
+
+_79._ _Das Ganze wird aber in keiner Weise demokratische, sondern diktatorische Formen annehmen, wie_
+_das die Mächtigen untereinander aushandeln und bestimmen werden, wodurch viele noch be ­_
+
+
+-----
+
+_stehende Freiheiten der Bürger und Länder eingeschränkt oder gar zum Verschwinden gebracht_
+_werden._
+
+_80._ _Sowohl die der EU angehörenden Staaten wie auch deren Bürger werden also viele Freiheiten ver­_
+_lieren und müssen sich die diktatorische Unterjochung der EU-Mächtigen gefallen lassen, wobei das_
+_besonders Üble daran ist, dass auch die Mächtigen der EU-Mitgliedstaaten voll bewusst des Unrech­_
+_tes mit den Wölfen heulen werden._
+
+_81._ _Und diese werden es auch sein, die dann mit einer falschen und irreführenden Pro-Propaganda sehr_
+_viele Bürger ihrer Länder zu einem EU-Beitritt verführen._
+
+_82._ _Und da die Bürger irregeführt werden, werden sie ihrer eigenen logischen und vernünftigen Ent­_
+_scheidung nicht mehr mächtig sein, folglich von einem diktatorischen Zwang die Rede sein muss,_
+_wenn in den kommenden Jahren und Jahrzehnten die Bürger zum EU-Beitritt verführt werden._
+
+_83._ _Davor wird auch die Schweiz nicht verschont werden, denn spätestens nach dem Jahrtausendwechsel_
+_werden starke Bemühungen der Verantwortungslosen stattfinden, um einen EU-Beitritt zu erzwingen._
+
+**Billy Unerfreulich, was du da sagst. Die alten Eidgenossen, die ihr Blut für die Freiheit der Schweiz und**
+
+_des Schweizervolkes gaben, würden sich wohl im Grabe umdrehen, wenn sie all diese Dinge wüss ten._
+_Wie geht es nun aber mit der Wirtschaft usw. voran?_
+
+
+**Quetzal**
+_84._ _Da sieht es leider sehr düster aus._
+
+
+_85._ _Die kommende Zeit wird bringen, dass sehr viele Unternehmen grossen und kleinen Stils aufgelöst_
+_oder durch Misswirtschaft sowie Überschuldung in den Ruin getrieben werden._
+
+_86._ _Das wird leider auch für alteingesessene Firmen und Unternehmen gelten, weil Verantwortungslose_
+_deren Führung an sich reissen werden, um schnell zu horrendem Vermögen zu kommen, das sie sich_
+_als Entgelt und Abfindungssummen auszahlen lassen werden, wobei diese Entgeltzahlungen je_
+_länger je mehr in Millionenhöhe sein werden._
+
+_87._ _Bedenkenlos und verantwortungslos werden die Manager und Verwaltungsräte der Firmen, Unter­_
+_nehmen und Konzerne diese bis ins Grenzenlose verschulden und ruinieren, wobei auch Grössen­_
+_wahn diesen Verantwortungslosen ebenso eigen sein wird wie auch Verschwendungssucht, Unbe ­_
+_rechenbarkeit, Unverstand und Unfähigkeit._
+
+_88._ _Dies alles wird wohl mit der Zeit bekannt werden, doch kümmern sich die Verantwortlichen der Ge­_
+_setzesvertretung nicht darum, weil sie teilweise selbst in die misswirtschaftlichen Belange involviert_
+_sein werden._
+
+_89._ _Aus diesem Grunde werden die kriminellen Führer der Firmen, Unternehmen und Konzerne nicht_
+_durch die Gerichtsbarkeit belangt werden, zumindest in den meisten Fällen._
+
+_90._ _Auch die Wirtschaftskriminalität wird sich stark steigern, wobei auch die Deliktbeträge rapide in die_
+_Höhe schnellen und in die Millionen und Hunderte von Millionen gehen und gar die Milliardengren­_
+_ze übersteigen werden, wie dies auch bei der Misswirtschaft der Firmen, Unternehmen und Konzer­_
+_ne der Fall sein wird._
+
+
+**Billy Du sprichst von Millionen- und Milliardenbeträgen in Schweizerfranken, nehme ich an.**
+
+**Quetzal**
+_91._ _Das ist von Richtigkeit._
+
+
+**Billy Kannst du mir einen oder zwei Namen von Unternehmen nennen, die in kommender Zeit unter deine**
+
+
+_Voraussagen fallen?_
+
+
+-----
+
+**Quetzal**
+_92._ _Es werden deren sehr viele sein, die sehr grossen Schaden finanzieller Form erleiden, in Konkurs_
+_gehen, viele Arbeitskräfte entlassen, sich rettungslos verschulden oder einfach das Unternehmen auf­_
+_lösen werden._
+
+_93._ _Das wohl Eindrücklichste aber, das im Jahre 2001 geschehen wird, wird die finanzielle Zerstörung_
+_der Swissair sowie mehrerer ihrer ihr angegliederten Fremd-Fluggesellschaften sowie mehrerer Zu­_
+_lieferfirmen sein._
+
+**Billy Du meinst, dass die Swissair tatsächlich zusammenbricht?**
+
+**Quetzal**
+_94._ _Das wird im Jahre 2001 unzweifelhaft der Fall sein, ja._
+
+_95._ _So ergab die Zukunftsschau._
+
+**Billy Und was ist mit dem Sulzer-Konzern?**
+
+**Quetzal**
+_96._ _Auch der wird leiden, viele Arbeitskräfte entlassen und grosse Teile des Konzerns veräussern._
+
+_97._ _Diese beiden kommenden Geschehen werden aber nur ein Tropfen auf den heissen Stein sein, wie_
+_du zu sagen pflegst, denn das Ganze sieht für sehr viele Unternehmen, Firmen und Konzerne sehr_
+_übel aus, was sich auch auf den Bundesfinanzhaushalt beziehen wird, weil auch im Bundesrat – wie_
+_schon lange – keine massgebende Kraft sein wird, die den Finanzhaushalt rentabel und schulden­_
+_abbauend wird führen können, folglich sich der Schweizerstaat weiterhin mehr und immer schwerer_
+_verschulden wird._
+
+**Billy Schöne Aussichten, doch als einzelner kann man ja an diesen misslichen Dingen nichts ändern, nicht**
+
+
+_einmal, wenn man zur Abstimmung für irgendwelche Dinge gehen würde._
+
+
+**Quetzal**
+_98._ _Das ist von Richtigkeit, denn bei Wahlgängen bestimmen die Mitglieder der Parteien gemäss den_
+_ihnen gemachten Vorschlägen, Einredungen und Ordern, weil sie durch die Parteioberen manipuliert_
+_und ihrer eigenen freien Meinung beraubt werden._
+
+_99._ _So bestimmen die Parteien, die auch eine Diktatur auf ihre Mitglieder ausüben, wo ja oder nein ge­_
+_stimmt werden soll._
+
+_100. Einzelne Stimmen Vernünftiger bringen so bei Wahlgängen keinen Nutzen._
+
+**Billy Der Meinung bin ich eben auch, weshalb ich meiner Lebtage noch niemals an eine Urne gegangen**
+
+_bin, um für oder gegen etwas meine Stimme abzugeben. Was wird sich aber noch alles ergeben in_
+_Zukunft, ich meine speziell für die Schweiz?_
+
+**Quetzal**
+_101. Da wird sich sehr vieles ergeben, doch eine Vorausschau möchte ich dir noch nennen:_
+_102. Es wird in den Jahren nach 1995 sein, wenn die Schweiz mit alten Geschehen des Zweiten Weltkrie­_
+
+
+_ges konfrontiert werden wird, was sich dann auch bis ins dritte Jahrtausend hineinträgt._
+
+
+_103. Ein Wachmann namens Christoph Meili wird in einer Bank alte Datenpapiere finden, die für den_
+
+
+_Schredder bestimmt sein und Kontenangaben jüdischer Menschen aus dem letzten Weltkrieg aufwei­_
+_sen werden._
+
+
+_104. Diese Papiere wird der Wachmann stehlen und einer jüdischen Organisation in Zürich übergeben,_
+
+_wonach dann böse Folgen für die Banken und die Schweiz daraus entstehen und Milliardenbeträge_
+
+
+-----
+
+_gefordert werden, die den Hinterbliebenen oder noch Lebenden ausbezahlt werden sollen, die noch_
+_ein Anrecht auf die Konten haben werden._
+
+_105. Dieser Meili wird im Laufe der Verhandlungen nach Amerika fliehen, und zwar obwohl ihm die_
+
+
+_schweizerische Gerichtsbarkeit nichts anhaben wird._
+
+
+_106. Der wahre Grund für seine Flucht wird Geld sein, das er dann von jüdischen Organisationen für_
+
+
+_seinen Verrat an der Schweiz zu erhalten hofft._
+
+
+_107. Das Ganze wird aber der Auftakt dafür sein, dass der schweizerische Staat und die Banken sowie_
+
+_verschiedene Wirtschafts-Unternehmen mehrmals aus finanziellen Gründen von Anwälten attackiert_
+_werden, und zwar insbesondere von einem Anwalt Fagan amerikanischen Ursprungs, der auf Geld_
+_und Ruhm aus sein wird._
+
+**Billy Das musste ja einmal kommen. Die Mächtigen der Schweiz wiesen ja zur Zweiten Weltkriegszeit**
+
+_nicht gerade die saubersten Westen auf. Man denke nur daran, dass diese Verrückten z. B. im Jahre_
+_1945 im Gotthardgebiet Atombomben testen wollten, insbesondere eben die Militärmächtigen, oder_
+_dass das schweizerische Rote Kreuz im Zweiten Weltkrieg an den Kriegsfronten Spionage betrieben,_
+_oder dass durch das schweizerische Militär Menschen zum Tode verurteilt und hingerichtet wurden,_
+_wobei gar Unschuldige einfach abgeknallt wurden. Eine solche Hinrichtung habe ich ja leider selbst_
+_mitansehen können, weil mich mein Taufpate Alfred Flückiger heimlicherweise zur Hinrichtungsstätte_
+_hinführte, wo wir uns im Gebüsch versteckten und alles beobachten konnten._
+
+
+**Quetzal**
+_108. Das ist mir bekannt._
+
+## Leserfrage 
+_Wer oder was ist eigentlich ‹Ramtha›?_
+
+
+_Barbara Lotz, Deutschland_
+
+## Antwort
+_‹Ramtha›, so wird von ‹Channelern› behauptet, soll eine Personifikation einer umfassenden Bewusstheit_
+_sein, die (natürlich nur angeblich, und zwar durch Einbildungswahn) von J. Z. Knight bzw. von Julie Ravel_
+_gechannelt wird. Dazu ist folgendes über das ‹Channeling› zu sagen: Dieses unwirkliche Phänomen_
+_wurde durch Bücher und TV-Sendungen der amerikanischen Schauspielerin Shirley McLaine popularisiert._
+_In den USA ist ‹Channeling› auch ein massenmediales Phänomen mit TV-Shows und ‹Kanälen› als TV-_
+_Stars, wobei natürlich das ganze Channeling-Theater nur auf Wahneinbildungen und Wahnglauben be­_
+_ruht und keinerlei Aspekte in bezug auf Wirklichkeit aufzuweisen hat._
+_Shirley McLaine, mir und verschiedenen FIGU-Mitgliedern durch ihren dreiwöchigen Besuch und durch_
+_ihre Mitarbeit mit den Gruppemitgliedern, inkl. mir, im Center wohlbekannt, sammelte bei mir Unterlagen_
+_und Berichte über die Plejadier/Plejaren, wonach sie dann das ganze Material mauschelnderweise um­_
+_arbeitete, woraus dann ihr Buch ‹Out on a Limb› entstand, und seither nichts mehr von sich hören liess._
+_‹Channeling› ist eine Weiterführung und teilweise ideologische Neuinterpretation des altherkömmlichen_
+_Spiritismus: Medien sind ‹Kanäle› resp. ‹channels›, die angeblich mit höheren Bewusstheiten in Kontakt_
+_treten können, was wahrheitlich jedoch nur einer Einbildung und wahnmässigen Bewusstseinsstörung ent­_
+_spricht. Nun, diese angeblichen höheren Bewusstheiten sollen den ‹Channelern› Aufschluss geben über_
+_das gegenwärtige und über frühere Leben sowie über das Wesen der Dinge, die göttliche Bestimmung des_
+_Menschen usw. usf. Ganz anders als zumeist beim eigentlichen und altherkömmlichen Spiritismus sollen_
+_die ‹geistigen› Wesenheiten nicht bloss ausserirdische Geistwesen resp. Engel und auch nicht Verstorbene_
+_sein, sondern vielmehr häufig Personifikationen umfassender Bewusstheiten, an denen grundsätzlich alle_
+
+
+-----
+
+_Menschen und so also auch die Medien partizipieren resp. etwas von diesen abbekommen resp. von_
+_deren Wissen profitieren usw. Die ‹Channeler› bilden sich wahnmässig ein, dass die Grenzen zwischen_
+_Unter- und Überbewusstsein, Allbewusstsein und Einzelbewusstsein, zwischen dem göttlichen Ganzen und_
+_dem Individuum fliessend seien. ‹Channeling› als modernisierter Spiritismus (Introvigne) geht als einbil­_
+_dungs- und wahnmässiger Teil aus der New-Age-Weltsicht hervor. Hauptsächlich ging dieser neue_
+_Wahnglaube aus den ‹Neuen Evangelien› hervor, aus dem sogenannten OAHSPE, Wassermann-Evange­_
+_lium, Buch Uranita, wobei aber auch die Dinge um die Naturgeister in Findhorn sowie die Einbildungen_
+_und Wahnvorstellungen der angeblichen Seth-Botschaften an Jane Roberts eine grosse Rolle spielten, wie_
+_auch das Werk ‹A Course in Miracles› von Helen Shucman. Es finden sich dabei auch Formen der Ge­_
+_meinschaftsbildung, wobei es fallweise zu gegenseitiger Konkurrenz der ‹Channeler› kommt, wie z.B. bei_
+_‹Ramtha› von J. Z. Knight bzw. von Julie Ravel, die beide daherbehaupten, dass sie beide ‹Ramtha›_
+_‹channel ten›. Ein Phänomen, das auch anderweitig sehr häufig in Erscheinung tritt, wie z.B. bei mir und_
+_den Plejadiern resp. Plejaren, denn seit ich mit meiner Geschichte und meinen Kontakten an die Öffent­_
+_lichkeit getreten bin, treten in sehr vielen Ländern der Erde Lügner und Betrüger weiblichen und männli­_
+_chen Geschlechts in Erscheinung, die wider besseres Wissen oder infolge von Einbildungen und Wahn be­_
+_haupten, dass sie mit den Plejadiern/Plejaren in telepathischem, channelerischem oder persönlichem_
+_Kontakt stünden, wobei ein verleumderischer Herr Doktor sogar so weit geht und behauptet, dass er mit_
+_Semjase sehr eng befreundet sei und mit ihr eine intime Beziehung habe. Gesamthaft nichts anderes als_
+_Lügen, Betrug, Schwindel, Verleumdung oder Einbildung und Wahn, weil ausser mir auf der Erde niemand_
+_mit irgendwelchen Menschen oder Geistformen der Plejaren in Kontakt steht, weder in einer wirklichen_
+_oder noch in einer phantasiereich erfundenen Art und Weise._
+
+_Billy_
+
+## Leserfrage
+_Was ist eigentlich dran an allen möglichen Prophezeiungen über z.B. Polsprünge, Polverschiebungen, Un­_
+_tergänge bzw. Aufstieg von Landmassen (z.B. Atlantis-Wiederaufstieg)? Ich frage deswegen, weil ich in_
+_Ihrem Buch ‹Voraussagen und Prophezeiungen› nichts darüber gefunden habe. Ausserdem habe ich eine_
+_Frage zu den Erdrissen, die Sie in ‹Leben und Tod› erwähnen: Wie bereits erwähnt, lebt eine Schwester_
+_von mir in San Francisco. Stimmen die Prophetien über den Untergang von San Francisco und hängt dies_
+_mit dem Riss dort zusammen? Was ist mit dem Nebenriss von Basel bis Stuttgart? Das würde mich wirklich_
+_interessieren, da ich mehr oder weniger auf dieser Linie lebe._
+
+_Barbara Lotz, Deutschland_
+
+## Antwort
+_Was über Polsprünge, Polverschiebungen und Untergänge usw. erzählt und in reisserischen Büchern ge­_
+_schrieben wird, entspricht nur einer ungeheuren Profitmacherei mit horrendem Unsinn, den Gutgläubige_
+_für bare Münze nehmen. Gleichermassen gilt das für einen Planeten, der ins innere SOL-System wieder­_
+_kehren soll, von dem dereinst die Götter gekommen sein sollen. Gleicher Unsinn herrscht vor hinsichtlich_
+_des sogenannten Photonenringes usw., wie aber auch in bezug der Sonnenfinsternisse, die Katastrophen_
+_und Untergänge bringen sollen. Vielfach steckt hinter solchem Unsinn nichts anderes als seit alters her_
+_überlieferter Wahnglaube, der zudem oft noch mit religiösen Wahnvorstellungen verbunden ist. So ist also_
+_vom ganzen diesbezüglichen und wirklich blödsinnigen Rummel rein gar nichts zu halten, denn alles ent­_
+_spricht nur einem horrenden Unfug, der auf Profitmacherei ausgerichtet ist, was sich auch auf die religiöse,_
+_sektiererische, esoterische und parapsychologische Richtung ausdehnen lässt. Anders verhält es sich bei_
+_der nachweisbaren Verschiebung des magnetischen Nordpols, der zur heutigen Zeit bei Grönland liegt_
+_und in etwa 1000 Jahren dort sein wird, wo gegenwärtig in Saudi-Arabien Mekka ist. Anders ist es auch_
+_bei den sogenannten Erdrissen, die geologisch auch nachweisbar sind. Dabei handelt es sich um Erd kruste ­_
+
+
+-----
+
+_zonen, in denen tiefe Risse und Gräben gegeben sind, die teils unterirdische und oberirdische vulkanische_
+_Tätigkeit aufweisen und die teils auch mit tektonischen Platten in Verbindung stehen. Tektonische Platten,_
+_wie z.B. die europäische und afrikanische, sind gewaltige Erdkrusteplatten, die sich aneinander reiben_
+_oder sich übereinanderschieben. Geschieht das, dann entstehen dadurch Reibungs- und Stoss- sowie_
+_Spring schwingungen, wodurch Erderschütterungen entstehen, die als Erdbeben bezeichnet werden und_
+_ungeheure Katastrophen hervorrufen können. Ein solcher Graben stellt auch die San-Andreas-Verwerfung_
+_in Kalifornien dar, und diese bildet ein Gebiet, das stark erdbebengefährdet ist, wobei teils auch unter ­_
+_irdischer und oberirdischer Vulkanismus eine gewisse Rolle spielt. Allein in Kalifornien sind 17 Vulkanher­_
+_de zu zählen, während auf der ganzen Welt gegenwärtig rund deren 1350 aktive Vulkane bekannt sind._
+_Im Nordwesten Amerikas konzentrieren sich die meisten Vulkane in der Cascade Range. Dabei handelt_
+_es sich um ein Gebirge, das sich parallel zur Pazifikküste von der kanadischen Provinz British Columbia_
+_bis in den Norden Kaliforniens erstreckt. Wie bei vielen anderen vulkanischen Zonen auf der Erde ver­_
+_dankt auch die Cascade Range ihre Existenz dem Zusammenspiel jener tektonischen Platten, aus denen_
+_die dünne Erdkruste besteht und zusammengesetzt ist. Im genannten Gebiet ist es die relativ kleine und so­_
+_genannte Juan-de-fuca-Platte, die sich schwerfällig vom Pazifik her unaufhaltsam unter die grosse Norda­_
+_merikanische Platte schiebt. Das geschieht mit einer Geschwindigkeit von zwei bis drei Zentimetern pro_
+_Jahr. Dabei ergibt sich, dass je tiefer das Krustenmaterial hinuntersinkt, es desto grösserem Druck und_
+_desto grösseren Temperaturen ausgesetzt wird. Letztendlich schmilzt das Material wieder und steigt mehr_
+_oder weniger als glutflüssige Magma wieder zur Erdoberfläche hoch, wo alles als Lava austritt. In Amerika_
+_ist jedoch nicht nur die Cascade Range vulkanisch unruhig, denn auch die ganze Westküste der USA ist_
+_davon betroffen, an der die Pazifische Platte entlang der Nordamerikanischen Platte nach Nordwesten_
+_entlanggleitet, und zwar mit einer Geschwindigkeit von etwa 5 Zentimetern pro Jahr. Rund zwei Drittel_
+_dieser Bewegung der Platten manifestieren sich an der berüchtigten und gefürchteten San-Andreas-Ver­_
+_werfung resp. dem San-Andreas-Graben resp. San-Andreas-Erdriss. Die Bewegung findet dabei in einer_
+_Horizontalverschiebung statt. Der restlich verbleibende Teil von ca. einem Drittel der Horizontalverschie­_
+_bung wird an anderen Störungen in Kalifornien und als Dehnung wirksam, und zwar in der Basin-and-_
+_Range-Provinz sowie auf dem Colorado-Plateau, und somit also in den amerikanischen Bundesstaaten_
+_Colorado, Arizona, Idaho, Utha und Nevada, wobei aber auch noch Neu-Mexiko betroffen ist._
+_Der Untergang von San Francisco resp. dessen Zerstörung erfolgt dereinst durch die Auswirkungen des_
+_San-Andreas-Grabens resp. durch die San-Andreas-Verwerfung resp. den San-Andreas-Erdriss. Der Erd ­_
+_riss, der mitten in Europa besteht, gehört zur europäischen Platte, wobei darunter ein grosser sogenannten_
+_‹Hot Spot› liegt, der sich auf das Eifelgebiet bezieht. Grundsätzlich sind die vulkanischen Gebiete Deutsch­_
+_lands ebenfalls auf Bewegungen in der Erdkruste zurückzuführen, wobei frühzeitige und hauptsächliche_
+_vulkanische Tätigkeit jedoch während der alpinen Gebirgsbildung stattfand. Nichtsdestoweniger jedoch_
+_ist die eigentliche vulkanische Tätigkeit noch nicht abgeschlossen, wie auch nicht in der Schweiz, da sich_
+_das Erdinnere und damit die Erdkruste dauernd in Bewegung befindet. So wird in fernerer Zeit der ‹Hot_
+_Spot› unter dem Eifelgebiet ebenso wieder hochbrechen und einen urgewaltigen Ausbruch schaffen, wie_
+_das beim ‹Hot Spot› der Yellowstone-Caldera in USA sein wird, wo der ‹Hot Spot› schon vor rund 650 000_
+_Jahren eine ungeheure Katastrophe anrichtete. Dieser ‹Hot Spot›, wie auch der im Eifelgebiet, hebt bei­_
+_nahe unmerklich langsam die oberen Erdschichten an, bis der Druck von unten so stark ist, dass eine ge­_
+_waltige Eruption erfolgt und Hunderte oder gar Tausende Kubikkilometer Erdmaterial und Asche hinaus­_
+_geschleudert werden. Die Zeit dazu ist einigermassen berechenbar und liegt zwischen 450 000 und_
+_700 000 Jahren. Zumindest bei der Yellowstone-Caldera ist die Zeit reif._
+
+_Billy_
+
+
+-----
+
+## Leserfrage
+_Wie kann man es anstellen, dass es auf dieser Welt Gerechtigkeit für jeden einzelnen Menschen gibt?_
+
+_Eva Bieri, Schweiz_
+
+## Antwort
+_Die Erdenmenschen sind leider noch in einem Evolutionsstadium, in dem in der Regel, natürlich mit Aus­_
+_nahmen, gerade jeder nur bis vor seine eigene Nase denkt und für sein eigenes Wohl besorgt ist. Und da_
+_dem so ist, wird es vorderhand unmöglich sein, dass jedem einzelnen Menschen Gerechtigkeit widerfährt._
+_Gerechtigkeit beruht nämlich auf vielerlei Faktoren, die berücksichtigt werden müssen, wenn sie zur_
+_Geltung kommen soll. Grundlegende Werte dazu sind Liebe, Ehrlichkeit, Tugenden und Harmonie, wobei_
+_ein Freisein von Neid, Hass, Rache, Missgunst und Vergeltungssucht von sehr wichtiger Bedeutung sind._
+_Gerechtigkeit fordert aber auch eine Geradlinigkeit sowie ein Passendsein und ein Angemessensein des_
+_Menschen gegenüber dem Mitmenschen. Notwendig ist dabei ein zeitlos gültiges Mass des richtigen_
+_sozialen Verhaltens sowie das Gegebensein der Menschlichkeit und des wahren Menschseins._
+_Gerechtigkeit ist ein Wert und ein Recht, worauf sowohl der einzelne Mensch ein Anrecht hat, wie auch_
+_gesamthaft jede Menschengruppierung und jedes Volk. So muss also Gerechtigkeit unter den Menschen_
+_selbst herrschen, wie auch die Gesetzgebung der Gerechtigkeit in jeder Beziehung Genüge tun muss resp._
+_müsste, denn leider ist für manche Gesetzgebung und für manche Richter Gerechtigkeit ein Gummipara­_
+_graph, der nach Belieben gedehnt oder verkürzt werden kann. Vielfach gilt dabei das Prinzip: «Die grossen_
+_Halunken lässt man laufen, und die kleinen hängt man auf.» So entsteht durch die Rechtsprechung in_
+_bezug der Gerechtigkeit oft mehr Ungerechtigkeit, wodurch die Unschuldigen zu leiden haben, während_
+_die Halunken frohlockend ihr Unrecht unter dem Schutz der Gesetze und Richter weiter betreiben können._
+_Und was durch die Gesetzgebung und die Rechtsprecher gang und gäbe ist, gehört leider auch zum_
+_Lebens stil sehr vieler Menschen, denen die Gerechtigkeit ein Pfifferling, ihr eigener Vorteil aber alles wert_
+_ist. Gerechtigkeit für jeden einzelnen Menschen kann unter solchen Umständen also nicht geschaffen_
+_werden – und das wird noch lange so bleiben._
+_Soll Gerechtigkeit für jeden einzelnen Menschen geschaffen werden, dann müssen in erster Linie die_
+_Menschen lernen, wahrer Mensch zu sein, wahre Liebe, Ehrlichkeit, Frieden, Freiheit und Harmonie zur_
+_Geltung zu bringen. Und sie müssen allen Hass, alle Rachsucht und Vergeltungssucht, den Rassismus und_
+_die Selbstsucht, Herrschsucht, Eifersucht und Selbstherrlichkeit in sich auflösen. Auch müssen sie alles Un­_
+_recht, und zwar auch in bezug der Rechtsprechung hinsichtlich falsch gehandhabter Gesetze, die Kriege_
+_und die Todesstrafe sowie alle Unmenschlichkeit, Ungerechtigkeit, Wahnglaube, Gier, Habsucht, Krimina­_
+_lität, Lüge, Betrug, Verleumdung und Würdelosigkeit abschaffen, denn ohne all das, nebst vielen anderen_
+_zu bewältigenden Unwerten, Übeln und Ausartungen, wird es niemals soweit kommen, dass es auf dieser_
+_Welt Gerechtigkeit für jeden einzelnen Menschen gibt._
+
+_Billy_
+
+## Leserfrage
+_Was ist unter dem Wort ‹Koro› zu verstehen?_ _Anita Steger-Mayer, Deutschland_
+
+## Antwort
+_‹Koro› ist ein Begriff, der seit alters her auf einem Wahnglauben beruht. Dieser sorgt dabei für ein rätsel­_
+_haftes gedanklich-gefühlsmässiges und psychisches Phänomen, das nur bei Männern in China und_
+_Malaysia in Erscheinung tritt und diese in panische Angst versetzt. Der Ursprung dafür ist, wie erklärt, in_
+_einem altherkömmlichen Wahnglauben verankert, der dahingeht, dass wenn bei den Männern sexuell_
+_‹tote Hose› ist, deren Penis sich in den Körper zurückziehen und sie töten soll._
+
+_Billy_
+
+
+-----
+
+## Leserfrage
+_Anbei sende ich Ihnen das Buch ‹Hände weg von diesem Buch› von ‹Jan van Helsing›. Als ich diesen Kram_
+_gelesen habe, stieg in mir die Galle hoch, denn ein derartiger Unsinn, wie in diesem Geschreibsel darge­_
+_bracht wird, ist gelinde gesagt, zum Schreien blöd. Das ist meine Ansicht, und ich kann nicht verstehen,_
+_dass Verlage einen derartigen Mist drucken und verkaufen. Lesen Sie bitte das Buch und lassen Sie mich_
+_wissen, was Sie davon halten – ob ich mit meinem Ärger und meiner Meinung über das Geschreibsel_
+_falsch oder richtig liege, denn es besteht ja immer die Möglichkeit, dass man sich täuscht._
+
+_Urs Martin Werner, Deutschland_
+
+## Antwort
+_Jan van Helsing, der eigentlich Jan Holey heisst, wie ich von ihm durch einen persönlichen Brief weiss; von_
+_ihm sind mir diverse Bücher bekannt, nun auch dasjenige, das Sie mir zugesandt haben. Die Mühe, es zu_
+_lesen, hätte ich mir ersparen können, denn das ‹Geschreibsel›, wie Sie sagen, weist einen Wert von Null_
+_auf, wie das auch mit allen andern mir bekannten Büchern dieses Autors der Fall ist, der offensichtlich der_
+_irrigen Ansicht ist, dass er ein ‹Wissender› sei. Viele Behauptungen in seinen Büchern sind offensichtlich_
+_‹abgekupfert›, womit ich meine, dass sie das wiedergeben, was in anderen Büchern und Schriften usw._
+_geschrieben steht. Damit will ich nicht sagen, dass die Dinge wörtlich abgeschrieben, sondern im Freistil_
+_verändert und in anderer Darlegung wiedergegeben wurden und also nicht auf wirklichem Wissen und_
+_auch nicht auf direkt sachbezogenen persönlichen Recherchen beruhen. Daran ändern auch die welt ­_
+_weiten Reisen des Autors nichts, bei denen er angeblich ‹Forschungen› betrieb._
+_Nun, es ist zwar schon rund ein Jahrzehnt her, als mich J. v. Helsing am 8. Mai 1994 anschrieb, um mit_
+_mir Kontakt aufzunehmen, den ich jedoch ablehnte. Das einerseits infolge eines mir zugesandten Buches,_
+_das – nicht in meinem Zusammenhang – voller Unwirklichkeiten und voller falscher Verdächtigungen, Ver­_
+_mutungen und Phantastereien usw. war, und andererseits darum, weil auch sein Schreiben von einer_
+_äusserst unreifen, selbstbezogenen, ichsüchtig und imagesüchtigen Form war und irgendwie grössen­_
+_wahnsinnig erschien._
+_Man stelle sich vor: Der Mann war damals 27 Jahre alt und schrieb (wörtliche Abschrift): «Ich selbst habe_
+_vor kurzem das stattliche Alter von 27 Jahren erreicht (lassen Sie sich dadurch aber bitte nicht irritieren)_
+_und forsche seit ich zurückdenken kann am UFO-Thema, sowie Zeitreisen, Geheimpolitik, freie Energie-_
+_Maschinen, unterirdisch lebende Zivilisationen und an allem, was heutzutage als ‹unerklärliche Phänome­_
+_ne› bezeichnet werden. Mich selbst würde ich als einen Metaphysiker bezeichnen, einen ‹Eso›-teriker, der_
+_jedoch auch von der ‹Exo›-terik fasziniert ist_ _»._
+_Weiter geht die Selbstlob-Tirade unter vielem anderen Sich-selbst-in-den-Himmel-Jubeln dann mit folgen­_
+_dem (wörtliche Abschrift): «Und ich begann dann zuerst während meiner täglichen Arbeit (habe Ausbil­_
+_dungen als Raumausstatter (Dekorateur), Heilpraktiker, Lebensberater (Psychotherapeut), Fussreflexzonen ­_
+_masseur, Geistheiler und noch ein paar andere kleinere) und inzwischen hauptberuflich mich mit solchen_
+_Recherchen zu befassen. Ich habe seither 5 Kontinente bereist und bin dabei in zum Teil hochinteressante_
+_Menschen gelaufen. Dazu gehören Forscher und Autoren wie Erich von Däniken, Michael Hesemann,_
+_Gerd Burde, Milton William Cooper, Virgil Armstrong, Wendelle Stevens, Brad Steiger, Fred Bell, Vladimir_
+_Terzisky, Harley Byrd (Neffe von Admiral Byrd), Major Aho, Howard Menger, Al Bielek und viele mehr._
+_Aber vor allem auch Leute, die zum Teil weitaus wichtigere Informationen haben, aber aus Gründen per­_
+_sönlicher Sicherheit es bisher vermieden haben, damit in die Öffentlichkeit zu gehen. Solche Leute habe_
+_ich vor allem in Neuseeland getroffen. Mehrere Freunde von mir, in diesem Fall aus dem Westen der USA,_
+_hatten oder haben mehreren ‹physischen› Kontakt zu Ausserirdischen, sowie auch zu innerirdischen Be­_
+_wohnern. Zu den kleinen ‹Grays›, sowie auch zu grossen ‹Blonden›. Mein Freund Al Bielek, der mit seinem_
+_Bruder Duncan Cameron als Techniker am Philadelphia-Experiment beteiligt war und mit dem Schiff in die_
+_Zeit versetzt wurde, war später über 20 Jahre in Zeitreisen-Experimenten der US-Regierung tätig (sind_
+_unter den Namen Rainbow Project, Phoenix Project und Montau Project bekannt). Während seiner Tätig­_
+
+
+-----
+
+_keit als aktiver Zeitreisender hatte er in unterirdischen Basen wie z.B. Los Alamos und Montauk mit_
+_mindestens 13 verschiedenen ausserirdischen Rassen, die alle mit diesem Project und somit auch der US-_
+_Regierung verbunden waren, physischen Kontakt.» usw. usf._
+_Phantastereien ohnegleichen, die als Wahrheit zu akzeptieren wohl jedem normalen und vernunftbe ­_
+_gabten Menschen schwerfallen. Das nicht nur in Hinsicht der letztgenannten Aussagen, sondern auch in_
+_bezug der angeblich genossenen ‹Ausbildungen›, die soviel Zeit in Anspruch genommen hätten, dass JvH_
+_weder Zeit gehabt hätte, 5 Kontinente zu bereisen noch Zeit gefunden hätte, einer täglichen Arbeit nach­_
+_zugehen – und das alles noch nebst dem Schreiben von zweifelhaften Büchern, durch die Leichtgläubige_
+_in die Irre geführt werden._
+_Tja, so sieht das aus, auch mit der Unterschrift unter dem dreiseitigen, maschinengeschriebenen Brief des_
+_JvH vom 8. Mai 1994. Die Unterschrift allein zeugt schon von Überheblichkeit, variiert die Schrift doch_
+_zwischen 26 und 45 Millimetern._
+_Wenn gesamthaft alles betrachtet wird, dann kann sich jeder vernunftbegabte Mensch unvoreingenommen_
+_selbst zusammenreimen, was vom Ganzen zu halten ist – und das auch in bezug des Buches ‹Hände weg_
+_von diesem Buch›. Tatsächlich ist es in seinem gesamten Inhalt derart unsinnig und spekulativ, dass das_
+_Ganze der Wirklichkeit keinerlei Jota abgewinnen kann. Schlichtweg handelt es sich um ein Geschreibsel,_
+_wie Sie es nennen, das voller Unwirklichkeit, dummen Vermutungen, üblen Verdächtigungen, und ebenso_
+_voller Schauergeschichten vom Hörensagen ist. Auch zeugt es vom absoluten Unverständnis der mensch­_
+_lichen Psyche und deren Funktion, verbunden mit Phantastereien in bezug einer richtigen Lebensführung_
+_usw. Auch vom Bewusstsein des Menschen sind keinerlei Momente des Verstehens gegeben, denn alles_
+_entspricht nur hohlen und leeren Worten, die auf Aussagen eines absoluten Laien hinweisen, der weder_
+_diese Dinge jemals erlernt hat noch verstehen kann. Daher verstehe ich auch Ihren Ärger über den unsinnigen_
+_Buchinhalt. Und tatsächlich ist es auch unverständlich, dass solcher Buchschrott von Verlagen überhaupt ge­_
+_druckt und vertrieben wird, während wirklich gute Bücher von guten Autorinnen und Autoren keine Chan­_
+_ce zum Druck und Verkauf bekommen. Das aber ist eindeutig daran aufgehängt, dass mit Geschreib ­_
+_selschrott infolge Sensationsgier der Menschen viel Geld verdient und gewaltiger Profit gemacht werden_
+_kann, während gute Bücher und Schriften nicht gefragt sind, von Verlagen nicht gedruckt und nicht ver­_
+_kauft werden können, weil sie eben nicht auf Sensation, Schwindel, Lug und Betrug usw. aufgebaut sind._
+
+_Billy_
+
+## Fisch-Koralle-Mischwesen
+**oder mit kleinen Fischen fängt es an!**
+_Um die Menschheit mit neuen Erfindungen, Errungenschaften oder Entwicklungen zu konfrontieren, muss_
+_sie behutsam zu den Neuerungen hingeführt werden. Spielerisch, gemächlich und tröpfchenweise‚ jedoch_
+_kontinuierlich gesteigert, lässt sich der Mensch an vieles gewöhnen._
+_Im Falle der Gentechnik ist dieses wohldurchdachte Prinzip sehr deutlich zu erkennen. Seit langem berich­_
+_tet die FIGU immer wieder über die Möglichkeiten der Nutzbarmachung der Gentechnik. Es steht ausser_
+_Zweifel, dass mit ihrer Hilfe eines Tages das Ernährungsproblem der Überbevölkerung gelöst werden_
+_kann. Spätestens dann, wenn das eigentliche Problem Überbevölkerung als solches erkannt und behoben_
+_wird._
+_Alles hat bekanntlich zwei Seiten, eine positive und eine negative, so auch die Gentechnik. Chimären,_
+_Kentauren und Faune usw. zeugen von deren frühester Ausartung. Medizinische Errungenschaften, wie_
+_Gentherapien und genetische Eingriffe sind ein Segen. In der heutigen Zeit werden jedoch Versuche mit_
+_Gen-Mais und Gen-Weizen von bestimmten Kreisen noch immer vehement bekämpft._
+_Im Jahre 2000 war das Thema Genmanipulationen an Lebewesen hoch aktuell. In den Bulletins Nr. 24_
+_vom September 1999, Nr. 30 vom Dezember 2000, Nr. 31 vom Januar 2001 sowie im Bulletin Nr. 40_
+
+
+-----
+
+_vom August 2002 hat der Autor Hans-Georg Lanzendorfer bereits mehrmals zu diesem Thema geschrieben._
+_Auch auf der_ _FIGU-Webseite ‹http://www.figu.org› sind mehrere Artikel und Texte von ‹Billy› Eduard_
+_Albert Meier (BEAM) zum Thema zu finden. Bereits damals wurde von der FIGU vorausgesagt, dass trotz_
+_gegnerischer Stimmen die Gentechnik weiterentwickelt und neue Geschöpfe erschaffen würden. Eine Ent­_
+_wicklung, die gemäss plejarischen Angaben eines Tages in Form von Mensch-Schwein-Mischwesen und_
+_Maschinen-Menschen als militärische Kampfmaschinen eine Ausartung und einen Höhepunkt erreichen_
+_wird. Eine Tatsache, die natürlich von den verantwortlichen Stellen unter allen Umständen sowohl jetzt als_
+_auch in Zukunft bestritten wird._
+_Die offizielle Gen-Technik-Entwicklung wird mit kleinen und scheinbar harmlosen Lebensformen und_
+_Kreationen eingeleitet. Eine dieser genmanipulierten und offiziellen Innovationen wurde am Montag, den_
+_24. November 2003 in der Zürcher Zeitung ‹Tages-Anzeiger› vorgestellt. Ein leuchtender kleiner Fisch_
+_namens ‹GloFish› ist in den USA das erste genmanipulierte Haustier, das im Handel erhältlich ist. Für fünf_
+_Dollar kann der ‹Glühfisch› in den Tierhandlungen käuflich erworben werden. Beim ‹GloFish› handelt es_
+_sich gemäss der Züchterfirma Yorktown Technologies um einen tropischen Zebrafisch, dem die Gene einer_
+_Seekoralle eingebaut wurden. Während normale Zebrafische schwarz-silbern sind, soll der manipulierte_
+_‹GloFish› bereits bei geringstem Lichteinfall in grellem Rot aufleuchten. Aus gentechnischer Sicht, und als_
+_Beispiel für die Machbarkeit und Möglichkeiten der Gentechnik, ist dieses Geschöpf natürlich eine inter­_
+_essante Leistung, jedoch unzweifelhaft Teil einer kaum abschätzbaren zukünftigen Entwicklung. Ein kleiner_
+_und unscheinbarer Anfang und Fortschritt, der aufgrund des heutigen Bewusstseinsstandes der Wissen­_
+_schaft und der gesamten Menschheit eines Tages zu gewaltigen, gefährlichen und unverantwortbaren Aus­_
+_artungen führen wird. Dennoch kann und darf die Gentechnik als Ganzes betrachtet nicht als Teufelswerk_
+_oder als Übertretung schöpferischer Gesetzmässigkeiten verurteilt werden, und zwar auch dann nicht,_
+_wenn Ausgeartete und Spinner in ihren sektiererischen Wahnvorstellungen durch Klonieren ewiges Leben_
+_zu erheischen versuchen._
+_Nebst den Ausartungen werden sich auch immer wieder vernünftige Wissenschaftler/innen finden, die_
+_sich ihrer diffizilen Arbeit bewusst sind und auch die nötige Verantwortung dafür walten lassen. Und_
+_tatsächlich wird auch die irdische Menschheit dieses Planeten nicht für alle Zeiten in bewusstseinsmässiger_
+_Dunkelheit leben, sondern den logischen und schöpferischen Weg aller Evolution beschreiten. Das wird_
+_jedoch nicht umsonst und nicht ohne Bemühung, sondern durch reelle Erfolge gekrönt sein, was aber ein_
+_hartes Lernen, Suchen und Forschen sowie Erkennen, Erfahren und Erleben erfordert. Das ist auch die_
+_Grundlage dafür, dass der Mensch eines Tages auf die grossen Geheimnisse verborgener Genmanipula­_
+_tionen am irdischen Menschenkörper stossen wird. Durch diese Entdeckungen werden viele Krankheiten,_
+_wie z. B. Krebs‚ ausgeschaltet sowie die Lebenszeit der Menschen um das Vielfache verlängert. Und daher_
+_kann dieser Jahrtausende dauernde Entwicklungsweg mit Suchen, Forschen, Irrungen und Neu beginn auf_
+_dem Gebiet der Gentechnik durchaus einmal von einem kleinen leuchtenden und genetisch manipulierten_
+_Zebrafischchen gekrönt sein. Sehen wir der Zukunft jedoch zuversichtlich entgegen und appellieren wir an_
+_die Vernunft der Verantwortlichen, dass nicht in einigen Jahrzehnten in amerikanischen Tierhandlungen_
+_geflügelte Pferde (Pegasus) für fünf Dollar käuflich zu erwerben sind._
+
+_Hans-Georg Lanzendorfer, Schweiz_
+
+## The American Way of Life
+_US-Amerika gilt immer noch als der grosse Bruder Europas, der uns scheinbar zur Seite steht, wenn Hilfe_
+_gebraucht wird. Als eine der angeblich ältesten Demokratien der Welt und Garant für Frieden und Freiheit_
+_konnten wir uns immer auf US-Amerika verlassen. Dem grossen Bruder, der in zwei Weltkriege eingriff,_
+_Europa vom Nationalsozialismus befreite, müssen wir Europäer scheinbar immer dankbar dafür sein, und_
+_diesem Land US-Amerika müssen wir deshalb alles an politisch-militärischem Grössenwahn durchgehen_
+
+
+-----
+
+_lassen, egal was auch immer geschieht und welchen Schaden von den US-amerikanischen Regierungen_
+_aller Zeiten rund um den Globus angerichtet wurde und wird. Auch über alle Formen eklatan ter Men­_
+_schenrechtsverletzungen (Todesstrafe, psychische Folter an Gefangenen, Jugendcamps, in denen junge_
+_Straftäter physisch und psychisch gebrochen werden, usw. usf.), die innerhalb und ausserhalb der Verei­_
+_nigten Staaten von Amerika geschehen, scheint man blind und unfähig geworden zu sein, um sich ge­_
+_meinsam dagegen zu wehren. Anstatt angemessen dagegen etwas zu unternehmen, schauen vor allem_
+_die politischen Institutionen Europas lieber darüber hinweg oder reagieren verschüchtert darauf und un­_
+_ternehmen erst etwas, wenn das eigene Volk zu sehr dagegen aufbegehrt. Oftmals wird von politischer_
+_Seite auch der Eindruck erweckt, man habe US-Amerika auf dieses oder jenes Problem aufmerksam ge­_
+_macht. Dabei nehmen die USA Europa aber gar nicht ernst, doch die Bevölkerung im eigenen Land ist erst_
+_wieder einmal beruhigt._
+_Kein Zweifel, US-Amerika hat den Zweiten Weltkrieg beendet und Europa befreit, aber das war vor nahe ­_
+_zu 60 Jahren. Ist es nicht einmal an der Zeit zu sehen, was sich geschichtlich in diesem Zeitraum noch alles_
+_ereignet hat und was durch US-amerikanische Interessen und Aussenpolitik an Schaden angerichtet_
+_wurde? Müssen wir nicht einmal auch unsere Aufmerksamkeit auf das richten, was US-Amerika alleine in_
+_den letzten Jahrzehnten auf unserem Heimatplaneten, der uns allen und nicht nur einer Weltpolizei_
+_spielen den, grössenwahnsinnigen Nation gehört, angerichtet hat, seitdem der Zweite Weltkrieg und der_
+_Kalte Krieg beendet sind? Es geht dabei nicht um Antiamerikanismus, sondern um die Betrachtung von_
+_Tatsachen und Fakten, die, geschichtlich und aus der Gegenwart gesehen, uns alle in ihren Auswirkungen_
+_erschüttern und das auch in Zukunft tun werden – mit ungeahnten negativen Konsequenzen für die gesam­_
+_te Menschheit._
+_Dieser Planet gehört nicht nur einem Land, das ökonomisch allen anderen Staaten der Erde voraus ist und_
+_über den grössten technologischen Vorsprung vor anderen verfügt. Dieser Planet gehört allen, unabhängig_
+_von ihrem wirtschaftlichen und technologischen Stand. Wie kommt es aber, dass Europa der US-amerika­_
+_nischen Aussenpolitik eine unglaubliche Narrenfreiheit zukommen lässt, wie Eltern, die ihrem Kind alles_
+_durchgehen lassen? Gewiss, wir sind innerhalb Europa dem Wirtschafts- und Militärriesen US-Amerika_
+_bei weitem nicht ebenbürtig und haben deswegen immer noch einen Minderwertigkeitskomplex, und_
+_gerade darum ist es für Europa Zeit, aus seinen Kinderschuhen zu wachsen und endlich in jeder Hinsicht_
+_selbständig und unabhängig von US-Amerika zu werden – das Potential dazu haben wir. Aber unsere_
+_unfähigen Volksführer mit ihrem landesspezifischen Egoismus und mit ihrer Angst US-Amerika gegenüber_
+_sind noch immer nicht dazu in der Lage, einen solchen Gegenpol systematisch aufzubauen._
+_Eine der obersten Direktiven US-amerikanischer Politik ist es, wo immer es als nötig erachtet wird, auf_
+_Kosten anderer Menschen und Nationen die eigenen Interessen zu wahren und zu schützen. Dazu ist man_
+_bereit, alle notwendigen Mittel einzusetzen, und bereitwillig setzt man diese Doktrin täglich auch um. Dass_
+_alle US-amerikanischen Regierungen immer nur eigene Interessen verfolgt haben, ohne Rücksicht auf_
+_andere, zieht sich wie ein roter Faden durch die Geschichte der US-amerikanischen Politik. Gegründet_
+_wurde dieses Land aus einer Mixtur von nicht selten europäischen Kriminellen, Sektierern und sonstigen_
+_negativen Elementen, wodurch ein Cocktail von menschlichen Lebensformen entstand, die überwiegend_
+_oberflächlich und leicht zu manipulieren waren, es noch heute sind und einen völlig ausgearteten Patriotis ­_
+_mus in ihrem Bewusstsein tragen. Gewiss, es gibt auch anständige und verantwortungsbewusste US-_
+_Ameri kaner, die noch wissen, was Recht und Anstand ist und die auch in der Lage sind, Vernunft und Ver­_
+_stand zu gebrauchen, aber leider sind sie in der grossen Minderheit, die im Meer des ausgearteten_
+_US-amerikanischen Patriotismus untergeht. US-Amerika hat es nicht geschafft – wie es in einigen anderen_
+_Kolonien geschehen ist, wo deren Bürger und Nachfahren das notwendige Verantwortungsbewusstsein_
+_entwickelt haben, um andere Menschen und Kulturen als gleichwertig zu betrachten –, diesen Sprung in_
+_die moralisch-menschliche ‹Oberliga› zu vollziehen. Immer noch sehen sich viele US-Amerikaner, und vor_
+_allem die Regierung, als Massstab für Recht, Ordnung und Demokratie, um damit alle anderen Gesetz­_
+_mässigkeiten, denen andere Nationen politisch und religiös eingeordnet sind, ausser Kraft setzen zu_
+_können, wann immer dies den US-amerikanischen Interessen dient. Die US-amerikanische Regierung_
+
+
+-----
+
+_nennt das Politik, wobei es sich aber um einen politischen Grössenwahn und um Diktatur handelt. Kein_
+_anderes westliches Land zwingt anderen Ländern so selbstverständlich die eigenen politischen und mili ­_
+_tärischen Interessen auf, wie das die USA tagtäglich weltweit tun._
+_Der Cocktail aus nicht berechenbaren Gründervätern und ihrer kriminellen Energie findet sich bis heute in_
+_allen US-Administrationen wieder. Man kann nicht aus einer Sumpflandschaft fruchtbares Ackerland_
+_machen, wenn man nicht bereit ist, dafür immer hart und ehrlich zu arbeiten. Genauso wie bei der_
+_Regierung US-Amerikas ist es mit der US-amerikanischen Kultur und dem Bewusstsein vieler US-ameri ­_
+_kanischer Landsleute. Ein grosser Teil hat sich nach den Unwerten und nach den falschen Idealen, dem_
+_Konsumterror und der Machtbesessenheit ausgerichtet, anstatt die Werte und das Verständnis dafür zu_
+_entwickeln, dass wir alle auf diesem Planeten aufeinander angewiesen und voneinander abhängig sind._
+_Diese Erkenntnis fehlt generell einem grossen Teil der US-Amerikaner, und genauso wie alle US-Regierun­_
+_gen ersehen sie es deshalb nicht als notwendig, andere Kulturen und deren Sitten und Bräuche, deren Re­_
+_ligion, Werte und Geschichte zu studieren, zu erkennen und zu respektieren, sondern sie sehen nur immer_
+_sich selbst als den Massstab aller Dinge. Diese Arroganz und das mangelnde Einfühlungsver mögen wer­_
+_den vielen von uns das Genick brechen, denn die Folgen und Auswirkungen dieses US-amerikanischen_
+_Grössenwahns werden in naher Zukunft katastrophale Folgen für uns alle haben._
+_Betrachtet man alleine die Aussenpolitik der USA seit dem Ende des Zweiten Weltkrieges bis heute, dann_
+_wird sichtbar, dass alles eine Mixtur aus Kriegen, Anarchie, staatlichem Mord und unzähligen Geheim­_
+_dienstoperationen ist, was gesamthaft nur zu Unfrieden, Zwietracht und Instabilität in all jenen Ländern_
+_geführt hat, die davon betroffen waren und in deren Belange sich die USA einmischten. Eines hat es jeden ­_
+_falls nicht gebracht – Frieden und Freiheit. Die globale politische Situation hat sich aufgrund all der US-_
+_amerikanischen Massnahmen, Intrigen und Einmischungen usw. nur verschlechtert._
+_Was ist von einer Administration zu halten, die wissentlich den Überfall auf Pearl Harbor zugelassen hat_
+_und den Tod von Tausenden eigener Soldaten in Kauf nahm, nur um gegen Japan in den Krieg ziehen zu_
+_können? Der Abwurf beider Atombomben war militärisch völlig unsinnig und ein einzigartiges menschen ­_
+_verachtendes Experiment, um die Wirkungen dieser Waffen am Menschen auszuprobieren, ganz zu_
+_schweigen davon, dass man eigene Soldaten bei Tests in den USA in den Atompilz hineinlaufen liess, um_
+_zu sehen, was passiert. Noch heute gibt es erhebliche und berechtigte Zweifel, ob die erste Mondlandung_
+_überhaupt stattgefunden hat; Zweifel, die bis heute nicht ausgeräumt werden konnten und in das übliche_
+_Schema von Täuschungsmanövern US-amerikanischer Interessen passen. Der selbst aufgebaute damalige_
+_Druck gegen die Russen war so gross, dass man keine weitere Niederlage gegen den Ostblock ein stecken_
+_konnte. Russland hatte den ersten Satelliten, den ersten Kosmonauten und durfte keinesfalls als erster Staat_
+_auf dem Mond landen. Es gibt keinen Zweifel, dass nachfolgende Mondlandungen stattgefunden haben,_
+_aber eben bei der ersten gibt es bis heute zahlreiche Argumente, die gegen solch eine Landung sprechen._
+_Dazu braucht es keine von den zahllosen nichtsbringenden Verschwörungstheorien, sondern nur eine ein­_
+_fache Betrachtung der Fakten. Auch die Gebrüder Wright waren nicht die ersten, die einen flugfähigen_
+_Apparat gebaut hatten. Auch dies ist typisch amerikanische Geschichtsverfälschung, die sich bis heute,_
+_ebenfalls wie ein roter Faden, durch dieses Land zieht. Man will immer der Grösste, Schnellste und Beste_
+_sein, selbst dann, wenn alles verfälscht wird und die Wahrheit auf der Strecke bleibt. Überhaupt ist die_
+_Wahrheit für US-Präsidenten und deren verantwortliche Mitarbeiter immer sehr relativ gewesen und ent­_
+_sprach niemals irgendwelchen moralisch hochstehenden Werten, sondern immer nur den gerade notwen­_
+_digen Interessen._
+_Wie schon erwähnt, sind die allgemeinen Verschwörungstheorien oftmals Ausartungen menschlichen_
+_Denkens. Dennoch dürfen wir alle nicht überrascht sein, wenn die wahren Hintergründe für den 11. Septem ­_
+_ber eines Tages ans Licht kommen und (falls) bekannt wird, dass die US-Regierung davon gewusst hat und_
+_wie sie darin involviert war. Es wird wieder eines dieser üblichen politisch-geheimdienstmässigen Aus ­_
+_artungen US-amerikanischen Denkens gewesen sein, damit irgend etwas gegen irgend jemand unternom­_
+_men werden durfte. Ein Einmarsch in Afghanistan wäre ohne den 11. September undenkbar gewesen._
+
+
+-----
+
+_Saddam Husain hätte nie auf die Art und Weise entmachtet werden können, wäre der 11. September nicht_
+_gewesen, der dem grössenwahnsinnigen Präsidenten Georg W. Bush jeglichen Handlungsspielraum ge­_
+_geben hat, seinen religiösen, diktatorischen Wahn auszuleben und den Irak – dabei gegen das Völker­_
+_recht verstossend – mit Hilfe von falschen Beweisen, Lügen und Manipulationen zu überfallen. Dass_
+_Saddam Husain ein irrer mordender Diktator ist bzw. war, dürfte unzweifelhaft sein, doch wenn es normal_
+_wird, dass ein militärisch starkes Land ein schwächeres aus herbeigezauberten, sektiererischen Moralvor­_
+_stellungen und Lügen überfällt, in Grund und Boden bombardiert mit dem Argument, man bringe Frieden_
+_und Demokratie, dann wird es sehr bedenklich. Solch ein selbstherrliches, diktatorisches Vor gehen, wie es_
+_Bush an den Tag legt, macht aus ihm einen politisch legalisierten Massenmörder._
+_Die Politik der US-amerikanischen Administration übt sich bis heute darin zu verschleiern, zu lügen und_
+_zu morden sowie zu manipulieren und zu zerstören usw. Was in den letzen Jahrzehnten durch die US-_
+_amerikanische Aussenpolitik allein im Nahen und Mittleren Osten angerichtet wurde, was sich aber auch_
+_auf zahlreiche andere Länder ausdehnen lässt, ist ein Katalog von Unfähigkeit und politischem Terror –_
+_nebst der Tatsache, dass alles regelmässig aus dem Ruder ging und sich nichts in die gewünschte US-_
+_ameri kanische Richtung entwickelte. Auch darin zeigt sich wieder die Unfähigkeit US-Amerikas, sich aus_
+_seinem einseitigen, krankhaften Denken heraus in andere Menschen, Länder und Nationen hineinzu ­_
+_versetzen und etwas Erfolgreiches, Vielversprechendes zu bewirken._
+_Immer dann, wenn die US-amerikanische Politik einen Verbündeten als Instrument für ihre unfähige_
+_Intrigen politik auswählt und aufbaut, stellen sich diese irgendwann gegen sie. Der Schah von Persien_
+_wurde gestürzt – Herr eines ehemals kaiserlich-diktatorischem Regimes im Iran. Auch in Mogadischu_
+_wendete sich alles gegen die USA. Osama Bin Laden wurde, wie allen bekannt sein dürfte, ebenfalls von_
+_den USA rekrutiert und ausgebildet, und nachdem er sich entsprechend etabliert hatte, wendete er sich_
+_ebenfalls gegen US-Amerika. Saddam Husain war lange Zeit ein guter Freund des Westens, und alle_
+_haben sich an diesem Kontakt die Hände schmutzig gemacht, vor allem die dafür verantwortlichen US-_
+_Amerikaner, als er während Jahren einen erfolglosen Krieg gegen den Erzfeind Iran führte. Die Liste von_
+_gescheiterten Unternehmen seit dem Ende des Zweiten Weltkrieges, alleine in den letzten zehn Jahren, ist_
+_endlos. Dabei handelt es sich nur um die bekannten, öffentlichen Ereignisse; wer weiss, was im Verborge nen_
+_noch alles angerichtet wurde. Bis heute unterstützt die US-amerikanische Regierung zahlreiche Diktaturen_
+_(z.B. Saudi Arabien), weil diverse als zuverlässige Partner für das Erdöl gelten. Die Interessen und Bedürf ­_
+_nisse der Bevölkerung in solchen Ländern sind zweitrangig und unbedeutend im US-amerikanischen_
+_Denken. Die scheinbaren eigenen Werte, die in den USA als Massstab für ihr globales Handeln und Tun_
+_gelten, verschwinden gleich hinter jeder amerikanischen Grenze. So muss es nicht verwundern, wenn_
+_Moral und Anstand und die elementarsten menschlichen Grundrechte, wie z.B. jenes nach Frieden, keine_
+_Rolle im grossen Planspiel amerikanischer Aussenpolitik spielen._
+_Psychische Misshandlung von Gefangenen ist in US-amerikanischen Gefängnissen ebenfalls üblich, wie_
+_alle Formen menschenunwürdiger Behandlungen. Eine der menschenunwürdigsten Strafformen findet_
+_heute immer noch eine hohe Akzeptanz im Volke – die Todesstrafe. Eine der primitivsten und mensche­_
+_nunwürdigsten Strafformen, die es neben der Folter auf unserem Planeten gibt. Ausgerechnet ein Land,_
+_das solche Strafen praktiziert, will sich als Weltmacht und Weltpolizei aufspielen sowie Frieden, Humanität_
+_und Gerechtigkeit bringen!_
+_Wer moralische Werte aufstellt, wird auch selber daran gemessen und muss sich nicht wundern, wenn_
+_man ihn dafür kritisiert. Ein Mensch, ein Land usw. kann niemals etwas dadurch verändern oder positiv_
+_bewirken, indem es anderen Menschen und Ländern etwas aufzwingt. Man muss diese Veränderungen_
+_immer vorleben, damit sich andere bewusst danach ausrichten können. Wir alle zeigen gerne mit dem_
+_Finger auf die Fehler anderer und merken doch nicht, dass auch wir mit den gleichen Fehlern behaftet_
+_sind. Keine Erwartungen an den anderen zu stellen, sondern unser eigenes Leben und unsere Politik in_
+_den Griff zu bekommen und dadurch als sichtbares Beispiel zu fungieren, an dem sich die anderen_
+_ausrichten können, das sollte unser aller Bestreben sein._
+
+
+-----
+
+_Die vielgepriesene US-amerikanische Einigkeit ist ein Trugschluss. Die USA sind innerlich als Vielvölker­_
+_staat zerrissen und ein Pulverfass. Es ist eine Zeitfrage, bis all diese einzelnen Staaten zerfallen und es zu_
+_grossen inneren Rassenunruhen kommt. Zu viele verschiedene ethnische Gruppen und politische Minder­_
+_heiten, auch mit faschistoiden Hintergedanken, die nicht friedlich miteinander auskommen, sind in diesem_
+_Land zusammen. Zu viele Waffenirre, mit einem krankhaften Verständnis dafür, was wirkliche Freiheit_
+_bedeutet, leben in diesem von Schusswaffen verseuchten Riesenland. US-Amerika mag militärisch und_
+_technologisch an erster Stelle in der Welt stehen, das ist unbestritten, aber menschlich-moralisch ist es_
+_minder als viele Drittweltländer, denn diese bemühen sich ehrlich um einen menschenwürdigen Fortschritt,_
+_was von US-Amerika nicht mit gutem Gewissen gesagt werden darf._
+_Es gibt eine phantastische Natur, die durch mangelnde bzw. mangelhafte Umweltgesetze immer mehr in_
+_Mitleidenschaft gezogen wird. Es gibt viele sehr anständige US-Amerikaner, die sich dieser Problematik_
+_ihres Landes bewusst sind, aber in ihren Bemühungen kläglich untergehen und glücklicherweise dennoch_
+_nicht aufgeben, sich Gehör zu verschaffen in ihrem Kampf gegen das, was in und mit ihrem Land ge­_
+_schieht._
+_Seit einigen Jahren wird, dank US-amerikanischem Ideenreichtum, ein völlig neues Waffensystem in_
+_Alaska getestet. Es nennt sich HAARP (High Frequency Active Auroral Research Program, auf Deutsch Hoch ­_
+_frequenz-Aurora-Forschungs-Programm). (Anm. M. Uehlinger: Mit HAARP wird der Einsatz einer enorm_
+_starken Radio-Richtstrahl-Technologie getestet. Kurz gesagt ist die Anlage HAARP das Umgekehrte eines_
+_Radio-Teleskops, d.h. Antennen senden Signale aus, statt solche zu empfangen. Bereiche der Iono sphäre_
+_werden durch starke Erhitzung beseitigt, indem ein Hochfrequenz-Strahl auf diese Bereiche gerichtet wird._
+_Die Strahlen werden dann von der Ionosphäre zurückgeworfen, indem niederfrequente Elektrowellen (ELF)_
+_genutzt werden, die in alles und jedes zerstörend einzudringen vermögen.) Es handelt sich dabei um Hoch ­_
+_frequenztechnologie. Kurz gesagt, man schiesst mit Hilfe eines Antennenwaldes Hochfrequenzen in die Io­_
+_nosphäre, die dort, wo sie auftrifft, diese wegbrennt, aber von ihr gespiegelt auf die Erde an einem be­_
+_stimmten Punkt wieder auftrifft und dort alles Leben vernichtet. Die Ionosphäre wird aber an jenen Stellen,_
+_wo sie getroffen wird, immer dünner und lässt eines Tages ungehemmt die schädliche UV-Strahlung durch,_
+_und wir werden von diesen schliesslich ungeschützt getroffen und verstrahlt. HAARP ist eines der kriminell­_
+_sten, angeblich rein wissenschaftlichen Experimente unserer Zeit und sollte von der UNO verboten werden._
+_Siehe auch:_
+_http://www.haarp.com                    offizielle US-HAARP-Seite_
+_http://www.haarp.alaska.edu/haarp/cam.fcgi  HAARP-Kamera_
+_1996-83-1.pdf_ _http://www.raum-und-zeit.com/ (R&Z Archiv anklicken_
+_und Suchbegriff «Haarp» eingeben)_
+
+_Es gibt wachsenden Widerstand in den USA; von seiten der US-Regierung wird es – wie üblich – als un­_
+_gefährliches Experiment deklariert, aber in Wirklichkeit geht es wieder einmal um eine alles vernichtende_
+_Waffe._
+_Die USA und ihre Administration werden mit ihrer jahrzehntealten Politik weitermachen und Tod, Verderben,_
+_Mord und Zerstörung über diesen Planeten bringen. Eines wird ihnen mit Sicherheit nicht gelingen, was_
+_sie in den letzten Jahrzehnten auch nicht geschafft haben, nämlich den Frieden zu bringen, denn mit_
+_Krieg, Terror, Mord, Totschlag, Verbrechen und Zerstörung ist das nicht möglich._
+_Europa und der Rest der Welt müssen sich von diesem politisch-moralischen Klotz am Bein in der Form_
+_befreien, dass sie unabhängig von US-Amerika werden und politisch sowie militärisch nicht mehr darauf_
+_angewiesen sind. Es wird Zeit, dass sich die verschiedenen Länder und alle verantwortungsbewussten und_
+_rechtschaffenen Menschen dieses Planeten zusammenschliessen und mit ihrer Vernunft und ihrem Verstand_
+_sowie mit ihren elementaren moralischen Grundwerten gegen die zerstörerische, mörderische und men­_
+_schenunwürdige Intrigenpolitik US-Amerikas einen offenen, sichtbaren Gegenpol bilden und damit end­_
+_lich einmal ein vernünftiges, verantwortungsvolles und durchgreifendes sowie nützliches Zeichen setzen._
+_Wir haben im Laufe der Geschichte den USA gewiss auch vieles zu verdanken, aber das ist Vergangenheit_
+
+
+-----
+
+_und ist vorbei. Jetzt müssen wir die Gegenwart und die Zukunft in unsere Betrachtungsweise einbeziehen_
+_und uns ein neues Bild davon machen, was US-Amerika auf und mit unserem Heimatplaneten und unter_
+_der Menschheit anrichtet. Das müssen wir erkennen und die Konsequenzen daraus ziehen, sonst werden_
+_wir von den Machenschaften US-amerikanischer Weltmachtpolitik schon sehr bald völlig überrollt und_
+_müssen deren wirtschaftlich-militärische Auswirkungen tragen. Diese können in ihrer schlimmsten Folge in_
+_einem Dritten Weltkrieg enden, herbeigeführt durch die grössenwahnsinnige US-amerikanische Politik,_
+_die ohne jegliche Skrupel, unverantwortlich und kriminell sowie von Selbstherrlichkeit geprägt ist._
+
+_Günter Neugebauer, Schweiz_
+
+## Liebe Worte – Leserzuschriften
+_Immer wieder erhalte ich von lieben Menschen Zuschriften aller Art, die mir ihren tiefen Dank mit sehr_
+_lieben und erbaulichen Worten zum Ausdruck bringen. Mag es nun einfach sonstwie oder und zu meinem_
+_Geburtstag usw. sein, so möchte ich dazu sagen, dass ich mich immer sehr über solche Zuschriften freue._
+_Leider kann ich die vielen Zuschriften in der Regel nicht persönlich beantworten, weshalb das meine lieben_
+_Gruppemitglieder und geschätzten Mitarbeiterinnen und Mitarbeiter an die Hand nehmen. Meinerseits_
+_kann ich mich bei allen nur in der Weise für alle Zuschriften ganz herzlich bedanken, dass ich das öffent ­_
+_lich und allgemein in einem Bulletin tue, wobei es auch nicht versäumt sein soll, die Leserinnen und Leser_
+_in den Genuss einiger lieber Worte zu bringen, an denen ich mich immer wieder erfreuen kann. Folge ­_
+_dessen will ich anschliessend, mit dem Einverständnis der Schreiber/innen, unter vielen anderen einige_
+_Zuschriften an mich veröffentlichen, wofür ich ebenfalls meinen Dank aussprechen will._
+_Nicht versäumen will ich, einmal in dieser Weise zu sagen, dass mein tiefer Dank auch meiner lieben_
+_Lebensgefährtin Eva sowie allen meinen lieben Freundinnen und Freunden unserer Kerngruppe-Familie_
+_gehört, durch deren Liebe, Güte und unermesslich wertvolle Mitarbeit und Verständnis ich meiner Arbeit_
+_gerecht werden kann. Ihre Treue und ihr Einsatz sowie ihre Verbundenheit untereinander, miteinander und_
+_mit unser aller Mission stellen Werte dar, die auf dieser Welt leider nicht selbstverständlich, sondern sehr_
+_rare Ausnahmen sind. Und ich schätze mich ausserordentlich glücklich, wie es mir auch eine grosse Ehre_
+_ist, dass ich diese Menschen, die Kerngruppemitglieder, meine Freundinnen und Freunde nennen und mit_
+_ihnen zusammenarbeiten darf._
+_Mein Dank gilt auch allen Passivmitgliedern, die es durch ihre Beiträge und sonstigen Zuwendungen sowie_
+_durch ihren persönlichen Arbeitseinsatz im Center ermöglichen, dass wir ohne grössere Probleme finan­_
+_ziell und arbeitsmässig über die Runden kommen. Gedankt sei aber auch allen anderen Passivmitgliedern,_
+_die in aller Welt für unsere gemeinsame Mission arbeiten, seien es nun die Mitglieder der kleinen Studien ­_
+_gruppen in diversen Ländern in Europa, Asien und Amerika oder die einzelnen Passivmitglieder in allen_
+_fünf Kontinenten, die sehr mit uns verbunden sind, auch wenn sie ob der grossen Distanzen nicht oder nur_
+_selten in unser Center kommen können. Aber auch sie alle tragen dazu bei, dass unser aller Mission welt­_
+_weit gute Früchte trägt und sich immer weiter verbreitet. Gedankt sei auch den Einzelkämpfern für unsere_
+_Sache, wie z.B. Michael Horn/US und Reinhard König/Bangkok und allen jenen, die in mühsamer Arbeit_
+_unsere Schriften und Bücher in fremde Sprachen übersetzen in Brasilien, Mexiko, Frankreich, USA, Schwe­_
+_den, Russland, Kasachstan, Tschechei, Slowakei, Italien, Spanien, Japan, Kanada und Korea usw. Ebenso_
+_gilt aber mein Dank auch der FIGU-Japan und der FIGU-USA sowie allen ihren Studiengruppen. Also geht_
+_mein Dank auch an jene, welche keine FIGU-Mitgliedschaft besitzen und dennoch gute FIGU-Freunde sind_
+_und in irgendwelchen Formen Hilfe leisten. Und für alle möchte ich meinen Dank noch speziell mit folgen ­_
+_dem Wort zum Ausdruck bringen:_
+
+
+-----
+
+_So lange, wie das unermessliche Universum Bestand hat, und_
+
+_solange es noch Menschen gibt, will auch ich etwas dazutun_
+_und ausharren, um Liebe und die Geisteslehre zu verbreiten,_
+_um mitzuhelfen, Elend, Leid und Not der Welt zu verringern._
+
+_SSSC_
+
+_21. Februar 2004, 12.40 h_
+
+_Billy_
+
+
+## Lieber Billy!
+_Ich bin nicht sehr gut im Ausdrücken meiner Gefühle und sie dann auch noch in die geeigneten Worte zu_
+_kleiden, darum wähle ich diesen Weg._
+
+_Gross war die Freude, als ich im letzten Kontaktbericht las, dass Ptaah dir zwei wunderbare ‹Geschenke›_
+_mitgebracht hatte. Ich konnte mir so richtig schön vorstellen, wie du fast ‹ausgeflippt› bist, wenn man das_
+_so für dich als Bezeichnung nennen kann._
+_Dann habe ich deine wunderschönen Gedichte gelesen und … fühlte Beschämung; Beschämung dafür,_
+_dass ausgerechnet du dein Haupt neigst._
+
+**Ich weiss, Billy, du magst es nicht, wenn man dir dankt oder dich lobt oder etwas Ähnliches, was ich**
+**auch voll und ganz respektiere, jedoch beschämt es mich, dass du das dann bei uns machst. Ich weiss,**
+**dass für dich der grösste Dank ist, wenn du siehst, dass sich die Leute bemühen und lernen und sich**
+**evolutionieren.**
+
+_Es fällt mir nicht leicht, diese Zeilen zu schreiben, da ich nicht möchte, dass es falsch verstanden wird, aber_
+_auch egal, ich tue es jetzt halt trotzdem, weil es mir ein grosses Bedürfnis ist._
+_Du und auch die Plejadier/Plejaren danken uns, was mich auch ohne Zweifel freut, denn es scheint so,_
+_dass wirklich viel gegangen ist für die Verbreitung der Wahrheit, so dass eine reelle Chance besteht, dass_
+_sie eines Tages die Oberhand gewinnen wird und es hier auf der Erde wieder eine Freude ist zu wandeln._
+
+_Nicht uns gehört jedoch der Dank, denn wir sind diejenigen, die über alle Massen von dir und den Pleja­_
+_diern/Plejaren die Möglichkeit und einmalige Chance bekommen haben und immer und immer wieder_
+_bekommen, endlich wahrliche Menschen zu werden._
+
+_Bitte verstehe das jetzt nicht als Respektlosigkeit dir gegenüber, aber auch ich möchte dir für deine Liebe_
+_und Güte und deine unermüdliche Hilfe von Herzen danken. Es ist mir eine wahrliche Ehre, dich kennen­_
+_gelernt haben zu dürfen. Auch möchte ich dies an alle Plejadier/Plejaren richten, die sich unermüdlich_
+_darum bemühen, uns ‹Barbaren› zu helfen. Ich denke zwar nicht, dass ich es voll erfassen kann, was das_
+_für uns alle bedeutet. Viel zu oft nimmt man alles als selbstverständlich hin und denkt viel zu wenig darüber_
+_nach._
+_10. Februar 2004_
+
+_In ehrlicher Verbundenheit und Liebe_
+
+_Salome_
+
+_Andrea Grässel, Schweiz_
+
+
+-----
+
+## Sehr geschätzter Herr Billy Meier! 
+_Lassen Sie mich Ihnen durch meine Tochter Kathleen folgendes sagen: Schon in hohem Alter, ich bin 97,_
+_bin ich immer noch sehr vital und aktiv, habe auch einen Computer und surfe gerne im Internet, wo ich_
+_regel mässig auf Ihrer Website alles Neue lese. Auch hat mir eine meiner Töchter schon seit 8 Jahren und_
+_bis heute immer wieder alle ihre Bücher und sonstigen Schriften besorgt, die ich mit grossem Interesse ge­_
+_lesen habe und die mir viele Erklärungen gegeben haben auf Fragen, auf die ich erst in hohem Alter durch_
+_Sie erschöpfende Antworten erhalten habe. Trotz meines Alters hat sich dadurch in meinem Leben noch_
+_sehr viel zum Guten verändert und mich viel von meinem Leid verarbeiten lassen, das ich während des_
+_Zweiten Weltkrieges durch die Nazis und auch durch angebliche Freunde und durch Behörden erdulden_
+_musste. Durch Ihre vielen Bücher und auch kleineren Schriften habe ich in wenigen Jahren mehr gelernt,_
+_als ich das während meiner 89 Jahre zuvor lernte, ehe ich durch meine Kinder auf Sie aufmerksam wurde._
+_Dafür möchte ich Ihnen zutiefst danken und Ihnen wünschen, dass Sie noch lange leben und durch Ihre_
+_hochgeschätzte Arbeit noch vielen Menschen helfen können, wie Sie auch mir geholfen haben und noch_
+_weiterhin helfen. Ich wünsche Ihnen Segen, dass Sie gesund bleiben und noch lange viel Schaffenskraft_
+_aufbringen, um noch viel Gutes tun zu können, das unsere Welt und alle Menschen so sehr brauchen. Und_
+_ausserdem möchte ich sagen, dass ich mich schon mehr als 40 Jahre für UFOs interessiere und auch al­_
+_lerlei Bücher und Zeitungsberichte darüber gelesen habe, was mir aber nichts gebracht hat. Alles was ich_
+_gelesen habe, ist mir als unwahr und nichtssagend und unwirklich vorgekommen, wozu ich sogar sagen_
+_möchte, dass es mir erlogen und als Phantasterei erschien, das ganz gegensätzlich zu Ihren Kontakt ­_
+_berichten und allen Büchern und kleinen Schriften, in denen alles so verständlich und logisch geschrieben_
+_ist. Auch muss ich sagen, dass alle jene, die Bücher geschrieben haben oder sonst behaupten, dass sie mit_
+_Menschen von anderen Welten Verbindung haben würden, nur völlig belangloses und wirres Zeug daher ­_
+_reden, gerade so wie es die Hellseher und Channeler machen. Mit solchen habe ich auch böse Erfahrun­_
+_gen machen müssen. Diese Leute erzählen Dinge, die ebenso nicht wahr sind, wie auch die von jenen_
+_nicht, die erzählen, dass sie mit Ausserirdischen oder Geistwesen reden könnten. Es ist aber auch so, dass_
+_alle diese Leute kein so umfassendes und schriftliches und dazu sehr verständliches und logisches Material_
+_hervorgebracht haben, wie Sie. Schon allein das beweist mir, dass Sie unter allen jenen die grosse Aus­_
+_nahme sind, die daherfabulieren, dass sie mit ausserirdischen oder hohen geistigen Wesen in Verbindung_
+_stehen würden. Niemand unter all diesen hat etwas geschafft, was auch nur nahezu dem gleichkommen_
+_könnte, was Sie, geschätzter Billy Meier, erreicht haben. Was Sie den Menschen unserer Welt an Wissen,_
+_Liebe und Weisheit geben, übertrifft all das bei weitem, was Philosophen, Religionsgründer und Religions ­_
+_führer jemals hervorbrachten. Ich kenne viele Weisheitsbücher vieler Völker und von vielen, die man als_
+_Weise bezeichnet, doch was Sie an Wissen, Weisheit und Liebe uns Menschen bringen, sticht alles aus,_
+_was ich bis in mein hohes Alter jemals gelesen und erfahren habe. Das ist auch die Meinung meiner vier_
+_Töchter und meiner zwei Söhne, von denen ich Ihnen ebenfalls danken soll für alles, was Sie an Gutem_
+_für uns Menschen tun. Und etwas will ich noch sagen: Was mir an Ihnen ganz besonders gefällt ist das,_
+_dass Sie trotz Ihres sehr enormen Wissens und Ihrer unschätzbaren Weisheit so bescheiden sind und kein_
+_Aufhebens von sich machen. Meiner Meinung nach werden so grosse und wissende Menschen wie Sie_
+_einer sind, nur einmal alle paar tausend Jahre in unsere Welt gesetzt. Ausserdem, so habe ich aus Ihrem_
+_Schriftenmaterial gesehen, haben Sie seit nun rund 65 Jahren Ihre Kontakte zu den ausserirdischen_
+_Menschen, und seit auch rund 30 Jahren existiert auch Ihr Verein FIGU mit vielen Mitgliedern. Das ist_
+_etwas, das muss ich schon sagen, das noch keiner und keine von allen jenen zuwege gebracht hat, die_
+_behaupten, dass sie mit Ausserirdischen oder hohen Geistformen in Verbindung sein würden. Das Aller­_
+_wichtigste dabei sehe ich aber noch darin, dass Ihnen über alle diese Zeit hinweg niemand etwas von Lüge_
+_hatte anhaben können. Ich und meine Kinder sind der Meinung, dass alles wirklich stimmt, was Sie uns_
+_Menschen bringen und lehren und dass das beste Zeichen Ihrer Ehrlichkeit ist, dass wirklich alles stimmt._
+_Es ist aber auch unmöglich, dass jemand 65 Jahre lang so grosse Dinge bringt und Sachen erklärt wie Sie,_
+_ohne dass irgendwelche Lügen und Betrügereien oder Widersprüche auftreten würden. Darüber sollten_
+
+
+-----
+
+_wirklich alle Ihre dummen Feinde nachdenken und sich hinter die Ohren schreiben, dass Lügen immer nur_
+_ganz kurze Beine haben, und dass Ihnen niemals Lügen oder Widersprüche nachgewiesen werden konn­_
+_ten. Wir, ich und meine Kinder, wünschen Ihnen weiterhin viel Erfolg und danken Ihnen für alles, was Sie_
+_uns gegeben haben._
+_19. November 2003_
+
+_Es grüsst Sie mit geschätzter Hochachtung_
+
+_U. Fincke, Deutschland_
+
+## Lieber Billy!
+_Ich möchte Dir zu Deinem 67. Geburtstag meine allerliebsten Wünsche schicken und dazu auch eine kleine_
+_Geschichte, die ich für Dich geschrieben habe und von der ich hoffe, dass sie Dir gefällt. Mögen Frieden,_
+_Liebe und Glück Deine steten Begleiter sein._
+
+_Alles Liebe und Salome_
+
+_Barbara_
+
+## Eine kleine Geschichte über Billy zu seinem 67. Geburtstag
+_Ganz am Anfang dieser Geschichte stand Nokodemion – das heisst, der Anfang war das nicht, denn dieser_
+_lag weit, ganz weit zurück in einer unvorstellbar fernen Vergangenheit. Aber er stand zumindest am An­_
+_fang der neueren Geschichte, die sich um ‹Billy› Eduard Albert Meier rankt und um den es hier geht:_
+
+_Nokodemions Geistform kehrte vor 12 Milliarden Jahren nochmals für einen weiteren Evolutionsgang_
+_zurück aus der Ebene Arahat Athersata, um seine beiden von ihm kreierten und mittlerweile ausgearteten_
+_Völker wieder auf den rechten Weg zu bringen. Dies tat er aus Pflichtbewusstsein und unendlich grosser_
+_Liebe zu seinen Kreationen, in der Hoffnung, ihnen wieder das Licht zurückbringen zu können, das einst_
+_in ihrem Besitz gewesen war._
+
+_Die Zeiten gingen so ins Land – oder durchs Universum –, und im Laufe der Jahrmilliarden seiner unzähli ­_
+_gen Wiedergeburten – und nach der neuerlichen Kreation eines Volkes – verschlug es ihn dann auch hier­_
+_her auf die Erde, einen Planeten im hintersten Winkel der Galaxie, dessen Bewohner mittlerweile verseucht_
+_waren von Religionen, dorthin gebracht durch ferne Nachkömmlinge von Nokodemions Völkern._
+
+_In rund 13 000jähriger neuerlicher Mission übernahm diese überaus edle und hochevolutionierte Geist­_
+_form – ein Lehrer der wahrheitlichen Wahrheit, voller Wissen, Können und Weisheit –, die aus ihrem gros­_
+_sen Verantwortungsbewusstsein heraus diesen neuerlichen beschwerlichen Zyklus auf sich genommen_
+_hatte, nun auch die dringend notwendige Verkündung der Wahrheit des SEINs, der Liebe und der Schöp­_
+_fung auf der Erde, um – durch verschiedenste Persönlichkeiten in mannigfaltigen Inkarnationen – auch_
+_deren menschliche Bewohner in diesem Sinne zu unterrichten und auf den Pfad des Lichtes zurückzu ­_
+_führen._
+
+_Ihre verschiedenen Inkarnationen, dessen Anfang Henok machte, erwiesen sich als mehr oder weniger er­_
+_folgreich, nachdem die Menschen nach so viel religiösem Unrat, der ihnen eingebleut worden war, schwer_
+_auf Abwegen wandelten. So reihte sich für Nokodemions Geistform ein Leben an das andere, jedes im_
+_Bemühen begriffen, das Bewusstsein der irdischen Menschheit mit dem Sohar der Schöpfung zu erhellen._
+
+
+-----
+
+_Dann, es war 1937, am dritten Februar, hatte diese Geistform sich wiederum eine Inkarnation bestimmt –_
+_als Künder der Neuzeit. Mit einer Persönlichkeit voll der erlesensten und auf der Erde leider seltenen_
+_Charak tereigenschaften, von deren grosser Zahl hier nur einige wenige benannt werden sollen:_
+
+**Ehrlichkeit, Ehrenhaftigkeit, Edelmut, Erkenntnis, Erhabenheit**
+
+**Disziplin, Duldsamkeit, ein grosser Dichter und Denker, ein Diener der Schöpfung, Direktheit**
+
+**Unbedingter Respekt vor der Schöpfung, Uebersicht, Ueberwindungskraft, ueberwältigend in seinen be­**
+_wusstseinsmässigen Fähigkeiten,_ **Unrecht bekämpfend,** **universalistisch,** **Unerschrockenheit,** **Unersetz ­**
+_barkeit,_ **ungemeine Geduld,** **Unbestechlichkeit,** **undogmatisch in seinen Bestrebungen,** **unermüdlich in**
+_seinen Bemühungen, Unerschütterlichkeit, Unbescholtenheit, Unverdrossenheit_
+
+**Anstand, Aesthetik, asketisch in seinen Ansprüchen, Arbeitsamkeit**
+
+**Reinheit des Herzens, Ruhe**
+
+**Dankbarkeit, Diskretion, Deutlichkeit in seinen Worten, Durchdachtheit, Durchhaltevermögen, Durchset­**
+_zungskraft_
+
+**Achtung vor allem Leben, allesumfassende Güte, Aufgeschlossenheit**
+
+**Liebe, Lauterkeit, Logik, Langmut, ein weiser Lehrer der Menschen, ein Lichtbringer**
+
+**Bedachtsamkeit, Bewusstheit, Beständigkeit, Bestimmtheit, ein Bewahrer des Schatzes – der Lehre des**
+_Geistes, Begabung, Bemühung, Bescheidenheit_
+
+**Edle Gesinnung, Einsicht, Ehrfurcht, Entschlossenheit, Ernsthaftigkeit**
+
+**Rechtschaffenheit, Redlichkeit**
+
+**Tugendhaftigkeit, Treue**
+
+_und noch viele, ja unglaublich viele gute, schöpferische Eigenschaften mehr …_
+
+_Doch da den Menschen leider grösstenteils noch die Erkenntnisfähigkeit fehlt, diese wunderschönen Eigen ­_
+_schaften wahrzunehmen geschweige denn wertzuschätzen, nahm diese Geistform sie ganz einfach alle­_
+_samt komprimiert und fest in dem Namen ihrer neuerlichen Persönlichkeit verpackt mit in dieses Leben und_
+_somit in diese Welt, damit die Menschen dieser Erde jedes Mal, wenn sie den Namen lesen, an die Be­_
+_sonderheit dieses Menschen erinnert werden. Solange, bis sie es endlich begriffen haben und ihm nach­_
+_folgen und zuhören werden – wie lange auch immer dies dauern möge:_
+
+
+-----
+
+## EDUARD ALBERT,
+
+_einen Namen im Werte der_
+
+**7 x 7heitlichen schöpferisch-universellen Ordnung,**
+
+_der_
+**49.**
+
+**Denn siehe:**
+
+_Des Propheten Namens eigner Wert_
+
+_die Zahl der neunundvierzig ehrt:_
+_Die Schöpfung sich darin verbirgt_
+
+_und so auf die Umgebung wirkt._
+
+_Ein Mensch, von dem Impuls getroffen,_
+
+_kann dann wirklich darauf hoffen,_
+
+_dass sein Materiell-Bewusstsein den Schöpfungs-Geist_
+
+_in seinem Glanze voll Freude willkommen heisst._
+
+_Dann, nachdem der Mensch erwacht_
+
+_und schliesslich zum erfüllenden Wesen gemacht,_
+
+_ist letztendlich auch die Mission gelungen,_
+
+_der Erdenmensch völlig von Wahrheit durchdrungen._
+
+_Ein Schein erhellt dann das Erdenrund,_
+
+_wenn der Mensch mit der Schöpfung ist im Bund,_
+
+_und er nun Dank ‹Billy› Eduard Albert Meier_
+
+_in seinem Denken und Handeln ist endlich freier._
+
+_Barbara Lotz, Deutschland_
+
+
+## My dear friend Billy Meier,
+_How are you? The more I look around in this world, the better I understand that there is no solution. This_
+_planet condemns my friend. The more I think about it, the better I realize that your prophecies shall be ful­_
+_filled._
+_How am I able to render help for this planet – what can I do? Please let me know, what is there for me to_
+_do?_
+_Sometimes I feel desperate, because there is absolutely nothing I am able to imagine which could be of_
+_help in my battle against the evil ways of politics and unrealistic religions. Their evil doings will bring man­_
+_kind to the abyss of annihilation, and that will be not so far away._
+_There is not anything that I can do to stop this – I am crying, for I have compassion with the planet._
+_Jschwjsch Ptaah calls you the voice crying in the wildernis, my friend. Nobody pays attention to you and_
+_wants to listen to you._
+_There are only a very few human beings who are listening to you, dear friend, and they know that one_
+_can rely on you._
+_To tell you about my concern, I have found only these few words, dear Billy. And because I understand_
+_you very well, I have not to ask you first a lot of questions._
+_Be well – and Salome,_
+
+_J. Barreto, Brazil_
+
+
+-----
+
+## Übersetzung
+_Mein lieber Freund Billy Meier,_
+_wie geht es dir? Je mehr ich mich in dieser Welt umsehe, desto mehr sehe ich, dass es keinen Ausweg gibt._
+_Dieser Planet zerstört sich, mein Freund. Je mehr ich nachdenke, desto mehr sehe ich, dass sich Deine_
+_Pro phezeiungen erfüllen werden. Was kann ich für diesen Planeten an Hilfe leisten – was kann ich_
+_machen? Teile es mir bitte mit._
+_Manchmal fühle ich mich verzweifelt, weil es nichts gibt, was ich gegen all die böse Politik und gegen die_
+_irrationalen Religionen unternehmen kann, die sehr bald die Menschheit vernichten werden._
+_Es gibt nichts, was ich dagegen machen kann – ich weine im Mitgefühl um unseren Planeten._
+_Jschwisch Ptaah nennt Dich den Rufer in der Wüste. Niemand kümmert sich darum und will Dich hören._
+_Nur einige wenige Menschen wollen Deine Stimme hören, lieber Freund, und sie wissen, dass man sich_
+_auf Dich verlassen kann._
+_Ich habe nur diese wenigen Worte, mit denen ich Dir das sagen kann, lieber Billy. Dich muss ich nicht zu­_
+_erst mit Fragen angehen, weil ich Dich sehr gut verstehe._
+_Sei gesund – und Salome_
+
+_J. Barreto, Brasilien_
+
+## Telephonischer Anruf
+_Guten Tag. Mein Name ist Rudolf Heppner und ich lebe in den USA. Von Bekannten habe ich Bücher von_
+_Billy Meier bekommen, und ich surfe auch im Internet, wo ich viel Wertvolles von diesem Mann finde. Dazu_
+_möchte ich Ihnen sagen, dass ich im Besitz aller wichtigen alten Weisheitsbücher aus aller Welt von Reli­_
+_gionsgründern, Philosophen und sogenannten Weisen bin. Doch dazu muss ich schon sagen, dass es sich_
+_im Gegensatz zu den Weisheiten und der Lehre von ‹Billy› Eduard A. Meier gesamthaft nur um ganz_
+_banalen Schrott handelt. Grüssen Sie Herrn Meier von mir, und sagen Sie ihm auch meinen Dank für seine_
+_schwere Arbeit, die er verrichtet._
+
+_Rudolf Heppner, USA_
+
+## Beobachtungsbericht
+**Auszug aus dem 353sten Kontaktbericht vom 27. Februar 2004**
+
+**Billy Hier, das ist der Bericht, den Barbara geschrieben hat. Wenn du ihn lesen willst?**
+**Ptaah**
+
+
+_Ja, tue ich gern. – Danke. (Ptaah liest Barbaras Bericht)_
+
+
+## Bienen und Schiffchen
+_Am Donnerstag, 5. Februar 2004, besuchte mich meine Mutter wie abgemacht. Da ich noch Ferien hatte_
+_und der Wetterbericht für diesen Tag ausgezeichnet war, wollten wir ein wenig an die frische Luft._
+_Wir fuhren mit dem Auto bis nach Seegräben und gingen dann zu Fuss um den Pfäffikersee bis zur Bade ­_
+_anstalt Auslikon. Dort setzten wir uns auf eine Bank für eine kleine Pause, schauten auf den teilweise noch_
+_zugefrorenen See hinaus und genossen den schönen Tag. Es war wunderbares Wetter. Zwar lag noch_
+_recht viel Schnee und an schattigen Stellen war der Fussweg noch vereist, doch die Sonne schien prachtvoll_
+_vom stahlblauen Himmel._
+_Auf dem Rückweg nach Seegräben steigt der Wanderweg leicht an. Die Sonne wärmte uns derart den_
+_Rüc ken, dass wir unsere Jacken öffneten, weil wir ins Schwitzen kamen. Unterhalb des Dorfes Seegräben_
+
+
+-----
+
+_führt der Weg an einem recht grossen Bienenhaus_
+_vorbei. Dort herrschte ein Gesumme und geschäftiges_
+_Treiben, wie es sonst nur im Sommer beobachtet_
+_werden kann. «Das nehme ich auf, das glaubt einem_
+_ja sonst keiner – am fünften Februar!», sagte ich zu_
+_meiner Mutter. Ich knipste ein Photo, worauf der blaue_
+_Himmel, die Bienen und der Schnee zu sehen sein soll­_
+_ten – quasi als Beweis für das immer fleissige Bienen­_
+_volk. Meine Mutter machte ebenfalls ein Photo und wir_
+_gingen zurück zum Auto._
+
+_Als der Film dann endlich voll war, wusste ich bereits_
+_nicht mehr, welche Motive überhaupt drauf waren. Das_
+_macht es ja auch immer so spannend, wenn man dann_
+_die entwickelten Bilder ansehen kann. Als das Bild vom_
+_Bienenhaus zum Vorschein kam, sprang mir zuallererst_
+_das ufoförmige Objekt gleich neben dem Dach ins_
+_Auge. «Unsinn», dachte ich, «bei dem Flugverkehr!»_
+_Nach ein paar Tagen machte ich Nachbestellungen_
+_einiger Photos, und bei dieser Gelegenheit schaute ich_
+_mir die ‹Riesenbiene› mit der Lupe genauer an, denn es_
+_liess mir einfach keine Ruhe. Am Abend schaute dann_
+_auch Christina Gasser das Objekt durch ihr schärferes_
+
+_Fadenzähl-Lüpchen an. Billy, der gerade in die Küche kam, schaute ebenfalls hindurch und sagte_
+_grinsend: «Das ist eindeutig ein Schiff. Es sieht aus wie ein Plejarenschiff.»_
+_Auf der Vergrösserung kann man genau die silbrig-glänzende Kuppel erkennen._
+_Das Bild wurde am 5. Februar 04 um ca. 12.30 Uhr, unterhalb Seegräben am Pfäffikersee aufgenommen._
+_Leider weiss ich noch nicht, welchem Raumschiff-Piloten ich diese Aufnahme zu verdanken habe, möchte_
+_mich aber ganz herzlich bei ihm bedanken!_
+
+_Barbara Harnisch, Schweiz_
+
+**Ptaah**
+
+_Ja, dazu kann ich nur sagen, dass es sich bei dem Fluggerät mit Sicherheit um das meiner Tochter_
+_Semjase gehandelt hat, denn zur genannten Zeit waren im beschriebenen Raum keine anderen Flug­_
+_geräte unterwegs, die auf die Form unserer Fluggeräte zutrifft, wie mir meine Tochter erklärte. Auch_
+_wurden in ihrem Fluggerät durch die Kontrollgeräte auch keine anderen Flugobjekte in jenem Raum_
+_registriert. Wenn das Bild tatsächlich von jenem beschriebenen Ort stammt, der Tag und die Zeit rich­_
+_tig angegeben sind, dann kann es sich wirklich nur durch eine Fügung ergeben haben, dass Sem­_
+_jases Fluggerät von Barbara auf den Film gebannt werden konnte. Eine Absicht stand jedenfalls nicht_
+_dahinter, denn davon hätte mir meine Tochter berichtet._
+
+## Italien denkt ausserirdisch
+**Artikel Tages-Anzeiger 2.7.2002**
+_Rom. – Die Mehrheit der Italiener glaubt an Ausserirdische – das hat eine Umfrage der wissenschaftlichen_
+_Zeitschrift ‹Quark› ergeben. 80 Prozent der Befragten sind fest davon überzeugt, nicht allein im Universum_
+_zu leben; 50 Prozent sind sich sicher, dass es sich bei den Lebensformen im All um Zivilisationen handelt,_
+
+
+-----
+
+_die den Menschen ebenbürtig oder überlegen sind. 60 Prozent gaben schliesslich an, die Ausserirdischen_
+_würden sich äusserlich wahrscheinlich sehr von den ‹Erdlingen› unterscheiden. Ein friedliches Zusammen ­_
+_leben nach einem eventuellen Zusammentreffen in der Zukunft hielten allerdings fast 50 Prozent der be­_
+_fragten Italiener für unwahrscheinlich. (SDA)_
+
+## Brief von Michael Horn an George W. Bush vom 23. Mai 2004
+
+**Lieber Herr Päsident**
+_Als Führer der mächtigsten Nation der Erde, und mit Ihren riesigen Verantwortlichkeiten bezüglich der Si­_
+_cherheit der Bürger, möchte ich Ihre Aufmerksamkeit auf äusserst wichtige Informationen lenken, die aus_
+_einer zugegeben unwahrscheinlichen Quelle stammen._
+
+_Ich bitte Sie respektvoll, die Informationen von Herrn Billy Meier aus der Schweiz zu überprüfen, wobei_
+_die Legitimität seiner UFO-Kontakte (die seit 62 Jahren andauern) in den höheren Rängen aller Geheim­_
+_dienste, inklusive unserer, gut bekannt sind. Nach 25 Jahren eigener Nachforschungen war es mir möglich_
+_zu beweisen, dass der Fall echt ist und gleichermassen wissenschaftlichen und rechtlichen Beweis-Stan­_
+_dards standhält. Ausserdem ist es klar, dass die Objekte, die er seit 40 Jahren photographierte, nichts mit_
+_jenen Geräten zu tun haben, welche von den USA möglicherweise in der Area 51 entwickelt wurden._
+
+_Die prophetischen Informationen, die Herrn Meier während den vergangenen 30 Jahren gegeben (und_
+_von ihm veröffentlicht) wurden, haben sich als makellos zutreffend herausgestellt. Um ein Beispiel zu nen­_
+_nen, veröffentlichte er vorgängig, 1995 und 2001, Vorwarnungen über unseren jüngsten Angriff auf den_
+_Irak, zusammen mit anderen spezifischen Geschehnissen, die sich gleichermassen kürzlich erfüllten. In An­_
+_betracht dessen, dass sich Meier ein beispielloses Fundament an Glaubwürdigkeit geschaffen hat, besteht_
+_die unmittelbare Besorgnis darüber, dass er klar gewarnt wurde, dass wir einem katastrophalen Dritten_
+_Weltkrieg entgegensehen, der in lediglich zwei Jahren (2006) beginnen könnte, falls der Kurs unseres_
+_Landes, des mächtigsten der Erde, nicht geändert wird (in der spezifizierten Weise)._
+
+_Nebst der Voraussage über spezielle militärische Bewegungen und dem Einbezug verschiedener Länder_
+_in einem solchen Weltenbrand, wurde Herr Meier unverblümt darüber informiert, dass – ausser dem Ver­_
+_lust von zwei Dritteln der Erdbevölkerung und einer unbewohnbaren nördlichen Hemisphäre –, der grösste_
+_Schaden unser geliebtes Land, die USA, befallen würde._
+
+_Als jemand, der mit dem Fall gut vertraut ist und der wie Sie und alle Amerikaner nicht sehen möchte, wie_
+_unser Land die klar vorausgesagte, jedoch noch immer vermeidbare Verwüstung und Zerstörung erlebt,_
+_sämtliche nur zugängliche Information, die nicht bereits im Besitze unserer Regierung ist, zur Verfügung_
+_zu stellen und mitzuhelfen, die Warnungen der mit Herrn Meier in Kontakt stehenden ausserirdischen_
+_Rasse zu evaluieren._
+
+_Obwohl zugegebenermassen unschmeichelhaft für Sie, die Administration und unsere nationale Militär­_
+_politik (so wie auch jene anderer Länder), sollte es die Weisheit gebieten, dass die Information die Auf­_
+_merksamkeit und ehrliche Auswertung von unserer Regierung und Ihnen als deren Führer erhält._
+
+_Hochachtungsvoll_
+
+_Michael Horn_
+_Authorized American Media Representative_
+_The Billy Meier Contacts_
+_www.theyfly.com_
+_310 745 9009_
+
+
+-----
+
+_From: Michael <michael@theyfly.com>_
+_Subject: Please examine_
+_Date: Sun, 23 May 2004 19:41:32 -0700_
+_To: president@whitehouse.gov_
+
+### Dear Mr. President,
+_As the leader of the most powerful nation on earth, and with your immense responsibilities regarding the_
+_safety of its citizens, I wish to bring to your attention critically important information from an admittedly_
+_unlikely source._
+
+_I respectfully request that you examine the information from Mr. Billy Meier of Switzerland, the legitimacy_
+_of whose UFO contacts (ongoing for the past 62 years) is well known at the higher levels of all intelligence_
+_services, ours included. After 25 years of my own research, I have also been able to prove that the case_
+_is authentic and meets both scientific and legal standards of proof. It is also clear that the objects he has_
+_photographed, beginning 40 years ago, are not related to any such craft that the USA may have been_
+_developing at Area 51._
+
+_The prophetic information provided to (and published by) Mr. Meier for the past 30 years has proved to_
+_be impeccably accurate. As an example, he preemptively published, in both 1995 and 2001, advance_
+_warning of our recent attack on Iraq, along with numerous other specific events, which were likewise re­_
+_cently fulfilled. In light of Meier having established an unprecedented foundation of credibility, of imme­_
+_diate concern is the fact that he has been clearly warned that we now face a catastrophic third world war,_
+_which could begin in as little as two years (2006), should the direction of our country, the most powerful_
+_on earth, not be changed (in ways specified)._
+_Along with foretelling the specific military movements and involvements of numerous countries pertaining_
+_to such a conflagration, Mr. Meier was bluntly informed that, in addition to the loss of two-thirds of the_
+_world's population and an uninhabitable northern hemisphere, the greatest damage would befall our own_
+_beloved country, the USA._
+
+_As one who is quite familiar with the case, and who, like you and all Americans, doesn't want to see our_
+_country experience the clearly foretold but still avoidable devastation and destruction, I respectfully offer_
+_to make available any and all information that I have access to that may not already be in the possession_
+_of our government to assist in evaluating the warnings from the extraterrestrial race in contact with Mr._
+_Meier._
+
+_While admittedly unflattering to you, the administration and our national military policies (as well as those_
+_of other countries), wisdom would dictate that the information receive the attention and honest evaluation_
+_of our government and you as its leader._
+
+_Sincerely,_
+
+_Michael Horn_
+_Authorized American Media Representative_
+_The Billy Meier Contacts_
+_www.theyfly.com_
+_310.745.9009_
+
+
+-----
+
+## Noch einige Worte aus Amerika ...
+
+_… «Mein Mann erzählte mir eines Tages, dass wir als Menschheit Lügner seien, und ich fragte warum. Er_
+_sagte: «Die Mehrheit der Leute ist in einer Religion, nicht aus Liebe zu Gott, sondern weil sie Angst haben_
+_vor der Hölle oder dem Karma. Es ist nicht Liebe, sondern Angst.»_
+_Billys Arbeit ist eine grosse Mission. Ich hoffe, ihn persönlich zu treffen. Er hat auf der ganzen Welt das_
+_Leben der Menschen geändert, und ich und mein Mann fühlen uns immer sehr dankbar._
+
+_Dies ist der Grund, weshalb ich möchte, dass die spanischen Texte zu jeder spanischsprechenden Person_
+_gehen. Die Spanischsprechenden haben so viele religiöse Anhängsel, dass es so traurig ist, wenn man die_
+_Leute am nationalen TV sieht, wie sie zu einem Jungfrau-Maria-Bild auf einem ‹Tortilla› beten, und ich_
+_sagte meinem Mann, dass ich mich so schäme, eine Latino-Frau zu sein._
+
+_Andererseits klebte ich den_ _FIGU-Friedenskleber ans Heckfenster, als eine Botschaft der Liebe, um die_
+_Pflanzen zu retten … und weisst Du, was geschieht? … jemand hat die Botschaft und das Glas zerkratzt._
+_Mein Mann reinigte es und legte ein neues auf … und wieder zerkratzte es jemand. Soviel Unwissen, es_
+_ist kaum zu glauben.» …_
+
+_Gricelda Hernandez, USA_
+
+## Und noch dies:
+_Was Billy in bezug des US-Präsidenten George W. Bush schon seit Jahren wusste, sagte und in den FIGU-_
+_Bulletins auch veröffentlichte, hat nun gemäss folgendem Artikel der Zeitung BLICK vom 15.6.04 auch ein_
+_gescheiter Psychoanalytiker herausgefunden:_
+
+
+-----
+
+## Korrekturen vom Sonder-Bulletin Nr. 14
+_Die Kontaktnummern auf folgenden Seiten stimmen nicht:_
+_S. 1_ **357th statt 257th**
+
+_S. 5_ **357. statt 257.**
+
+_S. 3_ **358th statt 258th**
+
+_S. 7_ **358. statt 258.**
+
+_S. 8_ **358. statt 258.**
+
+_S. 25_ **358. statt 258.**
+
+
+## Corrections in FIGU-SONDER-Bulletin #14
+_S. = page; bold figures are correct._
+
+## Plejadisch-plejarische Kontaktgespräche, Block 4
+
+_Leider hat sich durch eine Unachtsamkeit bei den Korrekturarbeiten im Kontaktgespräche-Block 4 ein_
+_Fehler eingeschlichen. Es handelt sich dabei um den 150. Kontakt vom Samstag, 10. Oktober 1981, Seite 293,_
+_Sätze 537–539:_
+Richtigerweise lauten diese Sätze folgendermassen:
+
+**Quetzal**
+_537. Sein Volumenmass entspricht 1,56 mal derjenigen des Planeten Erde, wobei das spezifische Gewicht_
+
+
+_jedoch verschieden ist zur Durchschnittsgewichtsmasse der Erde._
+
+
+_538. Die gesamte Masse der Zerstörer-Materie ist um einiges mehr verdichtet als bei der Erde._
+_539. Weist die Erde einen Rauminhalt von ca. 1083,3 Milliarden Kubikkilometer auf, bei einer mittleren_
+
+_Dichte von 5,516 Gramm pro Kubikzentimeter, dann ist im Vergleich dazu der Zerstörer ein Gigant,_
+_der einen Raum inhalt von 1694,2 Milliarden Kubikkilometern aufweist, bei einer mittleren Dichte von_
+_7,18 Gramm pro Kubikzentimeter, wenn ich dir diese Daten nach irdischem Verstehen nennen darf._
+
+_Im gedruckten Block ist der Volumenfaktor des Zerstörers mit 1,72 anstatt mit 1,56 angegeben, was eben­_
+_so falsch ist wie die Kubikmeter, bei denen es sich korrekterweise um Kubikkilometer handelt._
+
+_Wir bitten die Leser des 4. Blockes der Plejadisch-plejarischen Kontaktgespräche um Nachsicht für den_
+_Fehler, und wir versichern Ihnen, dass wir weiterhin bemüht sein werden, derartige Missgeschicke künftig_
+_zu vermeiden._
+
+
+-----
+
+## VORTRÄGE 2004
+_Auch im Jahr 2004 halten Referenten der FIGU wieder Ufo logie- und Geisteslehre-Vorträge. Nachfolgend_
+_die Daten für die stattfindenden Vorträge:_
+
+**23. Oktober 2004** _Guido Moosbrugger: Siebenheit des Materieaufbaues II_
+
+_Rita Oberholzer:     Irdische und plejarische medizinische Informationen für_
+
+
+**eine ganzheitliche Gesundheit**
+
+
+_Pünktlicher Vortragsbeginn um 14.00 Uhr._
+_Eintritt: CHF 7.– (Eintritts-Ermässigung für FIGU-Mitglieder bei Vor weisen eines gültigen Ausweises.)_
+_Wir freuen uns auf Ihr Erscheinen und begrüssen gerne auch Ihre Freunde, Kollegen und andere Inte ­_
+_ressierte._
+_Wir erinnern Sie daran, dass im Restaurant Freihof in Schmidrüti Konsumationspflicht besteht._
+_An den Vortrags-Samstagen trifft sich im Semjase-Silver-Star-Center um 19.00 Uhr eine Studiengruppe,_
+_zu der alle interessierten Passiv-Mitglieder herzlich eingeladen sind._
+
+**IMPRESSUM**
+**FIGU-Bulletin**
+**Druck und Verlag: Wassermannzeit-Verlag, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+**Redaktion: ‹Billy› Eduard Albert Meier, Semjase-Silver-Star-Center, CH-8495 Hinterschmidrüti ZH**
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+**Abonnemente:**
+Erscheint unregelmässig; Preis pro Einzelnummer: CHF 2.– (Zusammen mit einem Abonnement der ‹Stimme der Wassermann­
+zeit› oder der ‹Geisteslehre-Briefe› als Gratis-Beilage.)
+**Postcheck-Konto: FIGU-CH-8495 Schmidrüti, PC 80-13703-3**
+**E-Mail: info@figu.org**
+**Internet: www.figu.org**
+**FIGU-Shop: shop.figu.org**
+
+
+-----
+

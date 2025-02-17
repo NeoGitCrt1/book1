@@ -1,0 +1,1284 @@
+# Gespräch zwischen Ptaah von der plejarischen Föderation und ‹Billy› Eduard Albert Meier, BEAM
+
+### Achthundertfünfunddreissigster Kontakt Samstag, den 18. Februar 2023 19.24 h
+
+**Ptaah** Sei gegrüsst, Eduard mein Freund. Heute kann ich nicht lange bleiben, denn ich komme nur hierher, um dir die
+erforderlichen Antworten des Gremiums zu überbringen, wie auch einiges mit dir zu bereden, denn Bermunda hat mir
+erzählt, dass ihr beide vor 5 Tagen …
+
+**Billy** … ja, ja, wir waren drüben in Amerika – 2 gute Stunden, und ich habe ein … Hier, das ist … Sei jedoch auch gegrüsst
+und willkommen in meinem Bau. Wenn du nicht lange bleiben kannst, dann ist es so, dass du wieder einmal das, was ich
+habe, abzulichten und später zu lesen hast, denn es ist ziemlich viel.
+
+**Ptaah** Danke, das wird wohl so sein, aber du solltest nicht offen darüber sprechen, was du …
+
+**Billy** Du meist, dass ich hinter dem Ca… … Aber …
+
+**Ptaah** … darüber solltest du wirklich schweigen, denn …
+
+**Billy** Wenn du meinst – du hast vielleicht recht, denn …
+
+**Ptaah** Genau das denke ich, und darüber sollten wir nicht offen sprechen, denn …
+
+**Billy** Wie du meinst – vielleicht ist es ja wirklich so, denn ganz offensichtlich ist ja schon dicke Luft, weil wir versucht
+haben, wieder mit einigen Leuten Kontakt aufzunehmen, die Anfang der 1980er Jahre hier waren und den Kontaktfilm
+gedreht haben. Sie haben auch darauf reagiert, doch plötzlich hüllten sich die Leute wieder in Schweigen und lassen nun
+seit Monaten nichts mehr von sich hören. Michael wollte einiges wissen wegen dem Interview von Marcel Vogel, doch es
+wurde alles abgeklemmt. Auch geht es in Japan plötzlich so, wo angeblich der Film nicht mehr gefunden wird und verschollen sein soll. Auch dort hocken ja die Amis drin, die wahrscheinlich alles blockieren, damit die Aussagen von Marcel Vogel
+nicht verbreitet werden, denn er untersuchte genauestens die Metallproben, die ich von deiner Tochter Semjase erhalten
+hatte. Sein Resultat erklärte er dann in einem Interview und sagte, dass diese Metallegierung nicht irdischen Ursprungs
+sein konnte, wie dass auf der Erde die Entwicklung erst in etwa 150 Jahren soweit sein werde, dass dieses Metall resp. diese
+Legierung hergestellt werden könne.
+
+**Ptaah Das soll nicht bekannt und deshalb verschwiegen werden, denn es würde deine Kontakte mit uns beweisen. Daher**
+wird alles auch geleugnet und du des Schwindels, des Betrugs und anderer Machenschaften beschimpft, wie auch Zeit
+deines Lebens gesucht wird, dich aus dem Leben zu schaffen, was bisher glücklicherweise vielfach misslungen ist.
+
+**Billy** Zu diesem Glück, das du ansprichst, hat ja auch Quetzal mit der Sichtschutzanlage allerhand beigetragen, wobei
+auch andere Mitglieder der FIGU vor Schaden oder noch mehr bewahrt worden sind.
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Ptaah** Richtig, doch du hast trotzdem Vorsicht walten zu lassen, denn es herrschen bei den Erdenmenschen noch andere
+
+Methoden vor, als der Schusswaffengebrauch und Wurfmesser usw., wobei ich Sprengstoff nennen will, der besonders …
+kein Hemmnis darstellen, wie …
+
+**Billy** Da war ja bisher nichts – aber was nicht ist, das kann ja …
+
+**Ptaah** Das ist der springende Punkt, wie du jeweils zu etwas sagst, wenn du bezüglich einer bestimmten Sache den Grund
+
+usw. nennst.
+
+**Billy** Das ist so, ja. – Was sagst du aber zu dem, wenn ich die Politik anspreche, was eigentlich nicht das ist, was wir tun
+
+sollten, weil Dumme ja eben der dummen Meinung sind, dass sich die FIGU oder ich in die Politik einmische. Doch meine
+Frage ist die, was du denkst, dass nun Amerika China offiziell warnt, Waffen an Russland zu liefern?
+
+**Ptaah** Wenn du oder ich etwas erörtern, dann hat das in keiner Weise etwas mit der FIGU zu tun, folglich es die Freie
+
+Interessengemeinschaft überhaupt nicht tangiert, denn es ist jeweils unser privates Gespräch, das geführt wird. Weiter
+politisieren wir nicht, weder du noch ich, folglich wir auch keinerlei Meinung äussern, weil wir eine solche schon überhaupt
+nicht aufbauen, weil das ‹eine Meinung haben› immer falsch ist, denn eine solche entspricht niemals der Wirklichkeit und
+folglich auch nicht der Wahrheit.
+
+**Billy** Genau. – Eine Meinung zu bilden und daher dann eine Meinung zu haben, beruht immer darauf, dass der Mensch
+
+gemäss seinen Ansichten und Vorstellungen usw. gedanklich und gefühlsmässig etwas bildet, das er als gegeben annimmt,
+was jedoch folglich nicht der Wirklichkeit und deren Wahrheit entspricht. Dies, weil eben Ansichten, Vorstellungen und
+Vermutungen usw. immer individuell und also fern der Wirklichkeit und deren Wahrheit sind. Für den Menschen bedeutet
+das, dass er nur das als gegeben, richtig und wahr annehmen und vertreten soll, was er in Wirklichkeit sehen, hören, realisieren, erleben, erfahren und so als Wahrheit erfassen kann. Auch soll der Mensch nur immer das sagen, was effective
+Fakten und Tatsachen sind, also soll er immer nur etwas nennen, was der Wahrheit und Realität entspricht, und zwar ohne
+dass noch ein Kommentar oder sonstwie etwas hinzugesetzt wird, so also nur reine Fakten genannt werden, die auch tatsächlich gegeben sind. Das aber erfordert, dass auch beim Lernen nur das effective Lernmaterial als solches studiert wird,
+jedoch nicht irgendwelche persönliche Annahmen und Vermutungen usw. hineingemischt werden. Es soll ausnahmslos
+nach der Wirklichkeit und deren Wahrheit gesucht und diese gefunden und wahrgenommen werden, jedoch nicht einfach
+alles gläubig hingenommen werden. Das bedeutet auch, dass z.B. all das, was du und ich reden, was ich in Form der ‹Lehre
+der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens› bringe und lehre, wie auch alles das, was ich überhaupt
+lehre, erkläre und spreche, von den Studierenden, Lernenden, Zuhörenden und Lesenden selbständig, gründlich, eigens
+überdacht und auch selbst erlebt und erfahren werden muss. Allein, dass nur das, was ich lehre, dann einfach gelernt und
+gelesen und einfach angenommen und damit nur geglaubt wird, das schliesst die Wirklichkeit und deren Wahrheit aus und
+fördert nur den Glauben. Grundlegend bedeutet es, dass der Mensch alles und jedes durch eigenes Bemühen und Bedenken, wie auch durch ein vernünftiges und klares Selbstleben und Selbsterfahren nachvollziehen soll, eben soweit es ihm
+möglich ist, dass er dadurch die Wirklichkeit und deren Wahrheit erkennt und eine gewisse Sicherheit gewinnt, dass das
+Gelernte, Gehörte, Gesehene, Erlebte und Erfahrene der Realität entspricht.
+
+**Ptaah** Dazu ist wohl weiter nichts zu sagen, denn es legt absolut klar, dass keine Meinung gebildet und also auch nicht
+
+vertreten werden soll. Effectiv ist immer nur die reine Wirklichkeit und die daraus resultierende Wahrheit zu nennen und
+zu vertreten.
+
+**Billy** Meinungen sind ja wahrheitlich nur Ansichten, Vorstellungen und Vermutungen, wie manchmal auch nur Träume
+
+oder Irrlehren, die gewissenlos verbreitet werden, was zum Glauben führt, wie das bei den Religionen der Fall ist. Durch
+deren Irrlehren nämlich ist der Mensch nur noch gläubig, wodurch er stets auf die Hilfe einer höheren Macht hofft, wie auf
+einen ‹Gott›, einen ‹Heiligen› oder eine ‹Heilige› usw., dabei aber sich und die eigenen Fähigkeiten und notwendigen Bemühungen des Selbstregelns und Selbsterarbeitens alles Gewünschten völlig ausser acht lässt. Dadurch jedoch verkümmert
+er bezüglich jeder Selbsthilfe, weil alle Selbstinitiative des Menschen verlorengeht und er hilflos wird, und zwar derart, dass
+andere sein Initiativepanier ergreifen und er abhängig davon wird, dies insbesondere jene Menschen, welche einem religiösen Glauben verfallen sind. Diese nämlich leben irrend nach dem völlig gedankenlosen und religiös-hörigen und absolut
+idiotisch-falschen Sprichwort ‹Gott denkt und lenkt›. Dabei wird eine fanatische und wirre Glaubenshingabe dafür an den
+Tag gelegt, die kundgibt, wie erschreckend dumm durch die religiöse Gläubigkeit diesbezüglich die persönliche und wirkliche Gedankenfreiheit sowie die Logik, der Verstand und die Vernunft des Menschen erniedrigt und demoliert wird. Dies
+geschieht derart, dass der Mensch in keiner Weise mehr sich selbst, sondern nur noch ein Sklave seines religiösen Glaubens
+und jener ist, welche ihn mit religiösen und also lügnerischen und betrügerischen Irrlehren beharken und ihm den Kopf mit
+unsinnigen Geschichten vollschnorren. Das eigentliche und vernünftige Denken verschwindet, folglich der Mensch schon
+seit längerer Zeit einem Scheindenken verfallen ist und ihm je länger, je mehr verfällt, besonders was religiös
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+glaubensmässig bedingt ist und ihm religiöser Unsinn vorgegaukelt wird. Das aber macht ihn je länger, je mehr unselbständiger und führt ihn auch dazu, dass er nicht nur den Lügen der jeweiligen Religion und deren Vertretern glaubt, sondern
+auch den Lügen und Betrügereien des Gros der Politiker. Insbesondere ist diesbezüglich Amerika seit dem Ende des letzten
+Weltkrieges gross und mächtig geworden, als es zum eigenen Nutzen und Aufschwung deutsche Kriegsverbrecher und
+Massenmörder nach den USA geholt hat, wie Wernher von Braun für den Raketenbau, um dadurch auf den Mond zu gelangen. Dies also im Fall des Raketenbaus, wie aber auch anderweitig für vieles andere, wie für die Atombombe usw.
+
+**Ptaah** Das sind Worte der Wahrheit, die dich aber nicht gerade bei jenen beliebt machen werden, die du ansprichst. Es
+
+sind jedoch deine Worte nichts anderes als eine Feststellung dessen, wie alles wirklich ist.
+
+**Billy** Natürlich, etwas anderes soll es ja auch nicht sein, denn es entspricht ja alles der Ehrlichkeit und deren Logik, die
+
+ja einem Teil der 12 Sinne des Menschen entspricht.
+
+**Ptaah** Wobei den Erdenmenschen aber nur deren 5 bekannt sind, wenn ich mich nicht irre.
+
+**Billy** Da hast du völlig recht, doch darüber etwas zu sagen, das ist sicher so sinnlos, wie eigentlich darauf hingewiesen
+
+wird, dass von alters her die Zahl 12 der ‹Wert aller Dinge› ist, wie auch, dass alte Herkömmlinge statt 10 Finger und 10
+Zehen deren je 12 hatten. Die haben sich damals ja auch mit den Erdlingen vermischt, so es heute noch vorkommt, dass
+sehr ferne Nachfahren wieder einmal damit ‹ausgestattet› werden, eben dass sie mit 12 Fingern und 12 Zehen geboren
+werden. Ausserdem gibt es tatsächlich noch einen ganzen von der Zivilisation unberührten im Urwald lebenden Eingeborenenstamm in Südamerika, dessen Menschen je 12 Finger und 12 Zehen haben, wie ich selbst gesehen habe, als ich mit
+Sfath dort war. Natürlich werden 12 Finger an den Händen und 12 Zehen an den Füssen von den irdischen Wissenschaftlern
+als körperabartig oder dergleichen bezeichnet. Ihnen ist ja nicht bekannt, dass es eine völlige Natürlichkeit ist, die einst
+hergebracht wurde und immer mal wieder als Vererbung durchbrechen kann, und zwar bei Erdlingen, deren sehr frühe
+Vorfahrenschaft der Eltern auf Jahrtausende zurückführt, was aber nicht ergründet werden kann, wie auch nicht, dass sich
+deren sehr frühe Vorfahren mit den Herkömmlingen vermischt hatten. In der Regel jedoch kann also die wahre frühere
+Herkunft der Vorfahren vor Jahrtausenden nicht ergründet werden, die auf die Eltern von 12finger-Kindern und 12zehenNachkommen zurückführt. Aber was will man, wenn die irdischen Wissenschaftler so dumm sind, dass sie Dinge behaupten,
+von denen selbst ein völliger Idiot den Schwachsinn des Ganzen erkennen muss. Dies, wie behauptet wird, dass der Mensch
+in Südafrika entstanden und nach Norden, nach Asien usw. ausgewandert sei usw. Und die Erdenmenschheit glaubt diesen
+Unsinn und fragt nicht, wie es denn gekommen sei, dass plötzlich daraus weisshäutige, gelbhäutige und rothäutige sowie
+schlitzäugige und sonst völlig andere Menschenschläge entstanden. Selbst das Klima, die Vegetationen und die Einflüsse
+der Lebensbedingungen von Jahrmillionen vermochten solche Wandlungen nicht zu vollbringen.
+
+**Ptaah** Darüber lässt sich mit vernünftig Denkenden nicht streiten, folglich nur Scheindenkende sich dumm und einfältig
+
+mit einer Meinung um einen diesbezüglichen Widerstreit bemühen.
+
+**Billy** Leider ist es dieserart bei den Erdlingen üblich, wobei insbesondere sogenannte Gelehrte für sich in Anspruch
+
+nehmen, alles zu wissen oder besser zu wissen, als die Wirklichkeit und deren Wahrheit die effective Realität offenbart.
+Jetzt aber solltest du mir noch sagen, was für die Statuten noch anfällt, denn du hast durch Bermunda berichten lassen,
+dass das Gremium noch einiges hat, das in den Statuten noch zusätzlich eingesetzt werden soll.
+
+**Ptaah** Das ist richtig, doch es sind nicht nur die Statuten, denn auch in den Satzungen ist noch einiges einzufügen. Es ist
+
+notwendig, dass ich dir das Erforderliche diktiere, wenn du es also niederschreiben kannst.
+
+**Billy** Natürlich, schiess einfach los.
+
+**Ptaah** Also, folgendes ist von dir zu schreiben …
+
+**Billy** … Das habe ich alles.
+
+**Ptaah** Dann ist noch dies. …
+
+**Billy** … OK, das kann man aber nicht so gebrauchen, das muss noch besser formuliert werden. Ausserdem fehlt noch
+
+das, dass …
+
+**Ptaah** Dafür muss ich erst nochmals das Gremium bemühen und dieses genau befragen.
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Billy** Gut, dann warte ich und schreibe es dann auf, wenn du mir die Antwort bringst. Es wäre mir aber recht, wenn das
+
+schnell geschehen könnte, damit es noch zur Zusammenkunft zurechtgeschrieben werden kann.
+
+**Ptaah** Es werden nur 2 oder 3 Tage sein, die ich benötigen werde. Jetzt aber muss ich wieder meinen Pflichten obliegen
+
+und gehen.
+
+**Billy** Hier habe ich aber noch das, was ich dir zeigen wollte, was du aber ablichten kannst. Bitte …
+
+**Ptaah** Das ist zwar etwas lang, aber die Zeit ist noch genügend, dass ich es ablichten kann … Das ist getan, dann also auf
+
+Wiedersehn, Eduard, mein Freund.
+
+### Wer hat die Nord Stream-Pipeline zerstört?
+
+Vize-Aussenministerin Victoria Nuland während einer Pressekonferenz im Januar 2022:
+
+Victoria Nuland: „With regard to Nord Stream 2, we continue to have very strong and clear conversations with our
+German allies. And I want to be clear with you today: If Russia invades Ukraine, one way or another Nord Stream 2
+will not move forward.“
+
+**Deutsche Übersetzung**
+
+Victoria Nuland: «Was Nord Stream 2 angeht, führen wir weiterhin sehr intensive und klare Gespräche mit unseren
+deutschen Verbündeten. Und ich möchte es Ihnen heute ganz klar sagen: Wenn Russland in die Ukraine einmarschiert,
+auf welche Art auch immer, wird Nord Stream 2 nicht in Betrieb gehen.»
+_https://www.youtube.com/watch?v=njJIJrAuniI_
+
+**Präsident Joe Biden und Kanzler Olaf Scholz während einer Pressekonferenz am 7. Februar 2022 (17 Tage**
+**bevor Russland in die Ukraine einmarschierte):**
+
+Präsident Biden: „If Russia invades, that means tanks and troops crossing the border of Ukraine again, then there will
+be no longer a Nord Stream 2. We will bring an end to it.“
+
+Journalist ‹Andrea‹ von Reuters: „But how will you do that exactly, since the project and the control of the project is
+within Germany’s control?
+
+Präsident Biden: „We will, eh, I promise you we will be able to do it.“
+
+**Deutsche Übersetzung**
+
+Präsident Biden: «Wenn Russland einmarschiert, also Panzer und Truppen wieder über die Grenze der Ukraine fahren, dann wird es kein Nord Stream 2 mehr geben. Wir werden dem ein Ende setzen.»
+
+Journalistin ‹Andrea› von Reuters: «Aber wie wollen Sie das genau machen, da das Projekt und die Kontrolle über das
+Projekt in deutscher Hand liegt?»
+
+Präsident Biden: «Wir werden, äh, ich verspreche Ihnen, dass wir in der Lage sein werden, es zu tun.»
+_https://www.youtube.com/watch?v=OS4O8rGRLf8&t=18s_
+
+Am 26. September 2022 wurden mit mehreren Sprengungen Anschläge auf die Nord-Stream-Pipelines verübt. Dabei wurden beide Stränge von Nord Stream 1 und einer der beiden Stränge von Nord Stream 2 unterbrochen.
+_https://de.wikipedia.org/wiki/Anschlag_auf_die_Nord-Stream-Pipelines_
+
+**Vize-Aussenministerin Victoria Nuland während einer Anhörung des Senate Foreign Affairs Committee On**
+**Countering Russian Aggression, 26. Januar 2023.**
+
+Victoria Nuland: „Senator Cruz, like you, I am and I think the administration is very gratified to know Nord Stream 2
+is now, as you like to say (pointing at Senator Cruz), a hunk of metal at the bottom oft he sea.“
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Deutsche Übersetzung**
+
+Victoria Nuland: «Senator Cruz, wie Sie, bin ich und ich denke auch die Regierung, sehr erfreut zu wissen, dass Nord
+Stream 2 jetzt, wie Sie sagen (auf Senator Cruz zeigend), ein Haufen Metall auf dem Meeresgrund ist.»
+_https://www.youtube.com/watch?v=VJdbMj8fStA_
+
+**Deutsche Übersetzung**
+
+**Englisches Original nachfolgend**
+
+### Wie Amerika die Nord Stream-Pipeline ausschaltete
+
+#### Die New York Times nannte es ein ‹Mysterium›, aber die Vereinigten Staaten führten eine
+ verdeckte Seeoperation durch, die geheim gehalten wurde – bis jetzt
+
+_Seymour Hersh, 8. Februar 2023_
+
+Das Tauch- und Bergungszentrum der US-Marine befindet sich an einem Ort, der so obskur ist wie sein Name – an
+einem ehemaligen Feldweg im ländlichen Panama City, einer heute boomenden Ferienstadt im südwestlichen Panhandle von Florida, 70 Meilen südlich der Grenze zu Alabama. Der Komplex des Zen-trums ist so unscheinbar wie sein
+Standort – ein trister Betonbau aus der Zeit nach dem Zweiten Weltkrieg, der an eine Berufsschule im Westen Chicagos erinnert. Auf der anderen Seite der heute vierspurigen Strasse befinden sich ein Münzwaschsalon und eine
+Tanzschule.
+Das Zentrum bildet seit Jahrzehnten hochqualifizierte Tiefseetaucher aus, die einst amerikanischen Militär-einheiten
+auf der ganzen Welt zugeteilt waren. Sie sind in der Lage, technische Tauchgänge durchzuführen, um sowohl das Gute
+zu tun – C4-Sprengstoff zu verwenden, um Häfen und Strände von Trümmern und nicht explodierten Sprengkörpern
+zu befreien – als auch das Schlechte, wie das Sprengen ausländischer Ölplattformen, das Verschmutzen von Einlassventilen für Unterwasserkraftwerke und die Zerstörung von Schleusen an wichtigen Schifffahrtskanälen. Das Zentrum in Panama City, das über das zweitgrösste Hal-lenbad Amerikas verfügt, war der perfekte Ort, um die besten und
+wortkargsten Absolventen der Tauch-schule zu rekrutieren, die im vergangenen Sommer erfolgreich das taten, wozu
+sie 260 Fuss unter der Oberfläche der Ostsee befugt gewesen waren.
+Im vergangenen Juni brachten die Marinetaucher im Rahmen einer weithin bekannten NATO-Sommer-übung namens
+BALTOPS 22 die fernausgelösten Sprengsätze an, die drei Monate später drei der vier Nord-Stream-Pipelines zerstörten, so eine Quelle mit direkter Kenntnis der Einsatzplanung.
+Zwei der Pipelines, die unter dem Namen Nord Stream 1 bekannt sind, versorgen Deutschland und weite Teile Westeuropas seit mehr als einem Jahrzehnt mit billigem russischen Erdgas. Ein zweites Paar von Pipe-lines, Nord Stream
+2 genannt, wurde bereits gebaut, war aber noch nicht in Betrieb. Nun, da sich russische Truppen an der ukrainischen
+Grenze sammeln und der blutigste Krieg in Europa seit 1945 droht, sah Präsi-dent Joseph Biden in den Pipelines ein
+Vehikel für Wladimir Putin, um Erdgas für seine politischen und territorialen Ambitionen zu instrumentalisieren.
+Adrienne Watson, eine Sprecherin des Weissen Hauses, erklärte in einer E-Mail: «Das ist falsch und frei erfunden.»
+Tammy Thorp, eine Sprecherin des US-Geheimdienstes Central Intelligence Agency, schrieb ebenfalls: «Diese Behauptung ist komplett und völlig falsch.»
+Bidens Entscheidung, die Pipelines zu sabotieren, kam nach mehr als neun Monaten streng geheimer De-batten innerhalb der nationalen Sicherheitsgemeinschaft in Washington darüber, wie dieses Ziel am besten zu erreichen sei.
+Die meiste Zeit über ging es nicht um die Frage, ob die Mission durchgeführt werden sollte, sondern darum, wie sie
+durchgeführt werden konnte, ohne dass klar war, wer dafür verantwortlich war.
+Es gab einen wichtigen bürokratischen Grund, sich auf die Absolventen der Tauchschule des Zentrums in Panama City
+zu verlassen. Die Taucher gehörten ausschliesslich der Marine an und nicht dem amerikani-schen Kommando für
+Sondereinsätze, dessen verdeckte Operationen dem Kongress gemeldet und der Füh-rung des Senats und des Repräsentantenhauses – der sogenannten Gang of Eight – im Voraus mitgeteilt werden müssen. Die Biden-Administration
+tat alles, um undichte Stellen zu vermeiden, da die Planung Ende 2021 und in den ersten Monaten des Jahres 2022
+stattfand.
+Präsident Biden und sein aussenpolitisches Team – der Nationale Sicherheitsberater Jake Sullivan, Aussen-minister
+Tony Blinken und Victoria Nuland, die Unterstaatssekretärin für Politik – hatten sich klar und deut-lich gegen die
+beiden Pipelines ausgesprochen, die von zwei verschiedenen Häfen im Nordosten Russlands nahe der estnischen
+Grenze Seite an Seite 750 Meilen unter der Ostsee hindurch verlaufen und in der Nähe der dänischen Insel Bornholm
+enden, bevor sie in Norddeutschland enden.
+Die direkte Route, die den Transit durch die Ukraine umging, war ein Segen für die deutsche Wirtschaft, die in den
+Genuss eines Überflusses an billigem russischem Erdgas kam – genug, um ihre Fabriken zu be-treiben und ihre Häuser
+zu heizen, während die deutschen Verteilerunternehmen überschüssiges Gas mit Gewinn in ganz Westeuropa verkaufen konnten. Massnahmen, die auf die Regierung zurückgeführt werden könnten, würden gegen das Versprechen
+der USA verstossen, den direkten Konflikt mit Russland zu mini-mieren. Geheimhaltung war unerlässlich.
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Von Anfang an wurde Nord Stream 1 von Washington und seinen antirussischen NATO-Partnern als Bedro-hung der
+westlichen Vorherrschaft angesehen. Die dahinterstehende Holdinggesellschaft, die Nord Stream AG, wurde 2005 in
+der Schweiz in Partnerschaft mit Gazprom gegründet. Gazprom ist ein börsennotiertes russisches Unternehmen, das
+enorme Gewinne für seine Aktionäre erwirtschaftet und von Oligarchen be-herrscht wird, die bekanntermassen im
+Bannkreis von Putin stehen. Gazprom kontrollierte 51 Prozent des Unternehmens, während sich vier europäische
+Energieunternehmen – eines in Frankreich, eines in den Nie-derlanden und zwei in Deutschland – die restlichen 49
+Prozent der Aktien teilten und das Recht hatten, den nachgelagerten Verkauf des preiswerten Erdgases an lokale Verteiler in Deutschland und Westeuropa zu kontrollieren. Die Gewinne von Gazprom wurden mit der russischen Regierung geteilt, und die staat-lichen Gas- und Öleinnahmen machten in manchen Jahren schätzungsweise bis zu 45 Prozent des russi-schen Jahreshaushalts aus.
+Die politischen Befürchtungen der Amerikaner waren real: Putin würde nun über eine zusätzliche und drin-gend benötigte wichtige Einnahmequelle verfügen, und Deutschland und das übrige Westeuropa würden von preiswertem,
+aus Russland geliefertem Erdgas abhängig werden – und gleichzeitig die Abhängigkeit Europas von Amerika verringern. Tatsächlich ist genau das passiert. Viele Deutsche sahen Nord Stream 1 als Teil der Befreiung von der berühmten
+Ostpolitik des ehemaligen Bundeskanzlers Willy Brandt, die es dem Nachkriegsdeutschland ermöglichen würde, sich
+selbst und andere europäische Nationen, die im Zweiten Weltkrieg zerstört worden waren, zu rehabilitieren, indem
+es unter anderem billiges russisches Gas als Treibstoff für einen florierenden westeuropäischen Markt und eine florierende Handelswirtschaft nutzen würde.
+Nord Stream 1 war nach Ansicht der NATO und Washingtons schon gefährlich genug, aber Nord Stream 2, dessen Bau
+im September 2021 abgeschlossen wurde, würde, wenn die deutschen Aufsichtsbehörden zustimmen, die Menge an
+billigem Gas verdoppeln, die Deutschland und Westeuropa zur Verfügung stehen würde. Die zweite Pipeline würde
+ausserdem genug Gas für mehr als 50 Prozent des jährlichen Verbrauchs in Deutschland liefern. Die Spannungen zwischen Russland und der NATO eskalierten ständig, unterstützt durch die aggressive Aussenpolitik der Biden-Administration.
+Der Widerstand gegen Nord Stream 2 flammte am Vorabend der Amtseinführung Bidens im Januar 2021 auf, als die
+Republikaner im Senat, angeführt von Ted Cruz aus Texas, während der Anhörung zur Bestäti-gung Bidens als Aussenminister wiederholt die politische Bedrohung durch billiges russisches Erdgas an-sprachen. Bis dahin hatte ein
+vereinigter Senat erfolgreich ein Gesetz verabschiedet, das, wie Cruz zu Blinken sagte, ‹[die Pipeline] in ihrem Lauf
+aufhielt›. Die deutsche Regierung, die damals von Angela Merkel geführt wurde, übte enormen politischen und wirtschaftlichen Druck aus, um die zweite Pipeline in Betrieb zu nehmen.
+Würde Biden den Deutschen die Stirn bieten? Blinken bejahte dies, fügte aber hinzu, dass er die Ansichten des neuen
+Präsidenten nicht im Einzelnen erörtert habe. «Ich kenne seine feste Überzeugung, dass Nord Stream 2 eine schlechte
+Idee ist», sagte er. «Ich weiss, dass er möchte, dass wir alle uns zur Verfügung ste-henden Mittel einsetzen, um unsere
+Freunde und Partner, einschliesslich Deutschland, davon zu überzeu-gen, das Projekt nicht voranzutreiben.»
+Ein paar Monate später, als der Bau der zweiten Pipeline kurz vor der Fertigstellung stand, lenkte Biden ein. Im Mai
+dieses Jahres verzichtete die Regierung in einer erstaunlichen Kehrtwende auf Sanktionen ge-gen die Nord Stream
+AG, wobei ein Beamter des Aussenministeriums einräumte, dass der Versuch, die Pipeline durch Sanktionen und Diplomatie zu stoppen, ‹schon immer aussichtslos› gewesen sei. Hinter den Kulissen drängten Beamte der Regierung
+Berichten zufolge den ukrainischen Präsidenten Wolodymyr Selensky, der zu diesem Zeitpunkt von einer russischen
+Invasion bedroht war, dazu, den Schritt nicht zu kritisieren.
+Das hatte unmittelbare Folgen. Die Republikaner im Senat, angeführt von Cruz, kündigten eine sofortige Blockade
+aller von Biden nominierten Kandidaten für die Aussenpolitik an und verzögerten die Verabschie-dung des jährlichen
+Verteidigungsgesetzes über Monate hinweg bis tief in den Herbst hinein. Politico be-zeichnete Bidens Kehrtwende in
+Bezug auf die zweite russische Pipeline später als ‹die einzige Entschei-dung, die Bidens Agenda gefährdet hat – wohl
+noch mehr als der chaotische militärische Rückzug aus Afghanistan›.
+Die Regierung geriet ins Trudeln, obwohl sie Mitte November einen Aufschub der Krise erhielt, als die deut-schen
+Energieregulierungsbehörden die Genehmigung für die zweite Nord Stream-Pipeline aussetzten. Die Erdgaspreise
+stiegen innerhalb weniger Tage um 8%. In Deutschland und Europa wuchs die Befürchtung, dass die Aussetzung der
+Pipeline und die wachsende Möglichkeit eines Krieges zwischen Russland und der Ukraine zu einem sehr unerwünschten kalten Winter führen würden. In Washington war nicht klar, wo Olaf Scholz, der neu ernannte deutsche
+Bundeskanzler, steht. Monate zuvor, nach dem Fall Afghanistans, hatte Scholz in einer Rede in Prag öffentlich die
+Forderung des französischen Präsidenten Emmanuel Macron nach einer eigenständigeren europäischen Aussenpolitik unterstützt – ein klarer Hinweis darauf, dass man sich weniger auf Washington und dessen wechselhaftes Handeln
+verlassen sollte.
+Währenddessen wurden die russischen Truppen an den Grenzen der Ukraine stetig und bedrohlich aufge-stockt, und
+Ende Dezember waren mehr als 100’000 Soldaten in der Lage, von Weissrussland und der Krim aus zuzuschlagen. In
+Washington wuchs die Besorgnis, und Blinken schätzte ein, dass diese Truppen-stärke ‹in kurzer Zeit verdoppelt werden könnte›.
+Die Aufmerksamkeit der Regierung richtete sich wieder einmal auf Nord Stream. Solange Europa von den Pipelines
+für billiges Erdgas abhängig blieb, befürchtete Washington, dass Länder wie Deutschland zögern würden, die Ukraine
+mit dem Geld und den Waffen zu versorgen, die sie brauchte, um Russland zu besiegen.
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+In diesem unruhigen Moment beauftragte Biden Jake Sullivan, eine behördenübergreifende Gruppe zusam-menzustellen, die einen Plan ausarbeiten sollte.
+Alle Optionen sollten auf den Tisch gelegt werden. Aber nur eine würde sich durchsetzen.
+
+**PLANUNG**
+
+Im Dezember 2021, zwei Monate bevor die ersten russischen Panzer in die Ukraine rollten, berief Jake Sullivan eine
+Sitzung einer neu gebildeten Arbeitsgruppe ein – Männer und Frauen aus den Stabschefs, der CIA, dem Aussen- und
+dem Finanzministerium – und bat um Empfehlungen, wie man auf Putins bevorste-hende Invasion reagieren sollte.
+Es war das erste einer Reihe von streng geheimen Treffen in einem sicheren Raum im obersten Stockwerk des Old
+Executive Office Building, das an das Weisse Haus angrenzt und in dem auch das President's Foreign Intelligence
+Advisory Board (PFIAB) untergebracht war. Es gab das übliche Hin- und Hergerede, das schliesslich zu einer entscheidenden Vorfrage führte: Würde die Empfehlung der Gruppe an den Präsi-denten reversibel sein – wie eine weitere
+Schicht von Sanktionen und Devisenbeschränkungen - oder irre-versibel – d.h. kinetische Aktionen, die nicht rückgängig gemacht werden könnten?
+Den Teilnehmern wurde laut der Quelle mit direkter Kenntnis des Vorgangs klar, dass Sullivan beabsichtigte, dass die
+Gruppe einen Plan für die Zerstörung der beiden Nord Stream-Pipelines ausarbeitet – und dass er den Wünschen des
+Präsidenten nachkam.
+In den nächsten Sitzungen erörterten die Teilnehmer Optionen für einen Angriff. Die Marine schlug vor, ein neu in
+Dienst gestelltes U-Boot einzusetzen, um die Pipeline direkt anzugreifen. Die Air Force diskutierte den Abwurf von
+Bomben mit verzögertem Zünder, die aus der Ferne gezündet werden könnten. Die CIA vertrat die Ansicht, dass der
+Angriff in jedem Fall verdeckt erfolgen müsse. Allen Beteiligten war klar, was auf dem Spiel stand. «Das ist kein Kinderkram», sagte die Quelle. Wenn der Angriff auf die Vereinigten Staaten zurückgeführt werden könnte, «wäre das
+eine Kriegshandlung».
+Zu dieser Zeit wurde die CIA von William Burns geleitet, einem sanftmütigen ehemaligen Botschafter in Russland, der
+als stellvertretender Aussenminister in der Obama-Regierung gedient hatte. Burns ermächtig-te rasch eine Arbeitsgruppe der Agentur, zu deren Ad-hoc-Mitgliedern zufällig jemand gehörte, der mit den Fähigkeiten der Tiefseetaucher
+der Marine in Panama City vertraut war. In den nächsten Wochen begannen die Mitglieder der CIA-Arbeitsgruppe mit
+der Ausarbeitung eines Plans für eine verdeckte Operation, bei der Tiefseetaucher eingesetzt werden sollten, um eine
+Explosion entlang der Pipeline auszulösen.
+So etwas war schon einmal gemacht worden. Im Jahr 1971 erfuhr der amerikanische Geheimdienst aus noch unbekannten Quellen, dass zwei wichtige Einheiten der russischen Marine über ein im Ochotskischen Meer an der russischen Fernostküste verlegtes Unterseekabel miteinander kommunizierten. Das Kabel ver-band ein regionales Marinekommando mit dem Hauptquartier auf dem Festland in Wladiwostok.
+Ein handverlesenes Team von Mitarbeitern des US-Geheimdienstes Central Intelligence Agency und der National
+Security Agency (NSA) wurde irgendwo im Grossraum Washington zusammengetrommelt und arbeitete unter Einsatz von Marinetauchern, umgebauten U-Booten und einem Tiefsee-Rettungsfahrzeug einen Plan aus, mit dem es nach
+vielen Versuchen und Irrtümern gelang, das russische Kabel zu lokalisie-ren. Die Taucher brachten ein ausgeklügeltes
+Abhörgerät am Kabel an, das den russischen Funkverkehr erfolgreich abfing und mit einem Abhörsystem aufzeichnete.
+Die NSA erfuhr, dass hochrangige russische Marineoffiziere, die von der Sicherheit ihrer Kommunikations-verbindung überzeugt waren, unverschlüsselt mit ihren Kollegen plauderten. Das Aufnahmegerät und das dazugehörige
+Band mussten monatlich ausgetauscht werden, und das Projekt lief ein Jahrzehnt lang munter weiter, bis es von einem
+vierundvierzigjährigen zivilen NSA-Techniker namens Ronald Pelton, der fliessend Russisch sprach, kompromittiert
+wurde. Pelton wurde 1985 von einem russischen Überläufer ver-raten und zu einer Gefängnisstrafe verurteilt. Die
+Russen zahlten ihm nur 5000 Dollar für seine Enthüllun-gen über die Operation sowie 35’000 Dollar für andere russische Betriebsdaten, die er zur Verfügung stellte und die nie veröffentlicht wurden.
+Dieser Unterwassererfolg mit dem Codenamen Ivy Bells war innovativ und riskant und lieferte unschätzbare Erkenntnisse über die Absichten und Planungen der russischen Marine.
+Dennoch war die behördenübergreifende Gruppe anfangs skeptisch, was die Begeisterung der CIA für einen verdeckten Tiefseeangriff betraf. Es gab zu viele unbeantwortete Fragen. Die Gewässer der Ostsee wurden von der russischen
+Marine stark patrouilliert, und es gab keine Ölplattformen, die als Deckung für eine Tauchoperation genutzt werden
+konnten. Müssten die Taucher nach Estland fahren, direkt über die Grenze zu den russischen Erdgasverladedocks, um
+für den Einsatz zu trainieren? «Das wäre ein Ziegenfick», wurde der Agentur gesagt.
+Während «all dieser Planungen», so die Quelle, «sagten einige Mitarbeiter der CIA und des Aussenministe-riums:
+‹Macht das nicht. Es ist dumm und wird ein politischer Albtraum sein, wenn es herauskommt›.»
+Dennoch berichtete die CIA-Arbeitsgruppe Anfang 2022 an Sullivans behördenübergreifende Gruppe: «Wir haben
+eine Möglichkeit, die Pipelines zu sprengen.»
+Was dann kam, war verblüffend. Am 7. Februar, weniger als drei Wochen vor der scheinbar unvermeidlichen russischen Invasion in der Ukraine, traf sich Biden in seinem Büro im Weissen Haus mit dem deutschen Bundeskanzler
+Olaf Scholz, der nach einigem Wackeln nun fest auf der Seite der Amerikaner stand. Bei der anschliessenden
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Pressekonferenz sagte Biden trotzig: «Wenn Russland einmarschiert ... wird es kein Nord Stream 2 mehr geben. Wir
+werden dem ein Ende setzen.»
+Zwanzig Tage zuvor hatte Staatssekretärin Nuland bei einem Briefing des Aussenministeriums im Wesent-lichen dieselbe Botschaft verkündet, ohne dass die Presse darüber berichtet hätte. «Ich möchte mich heute ganz klar ausdrücken», sagte sie als Antwort auf eine Frage. «Wenn Russland in die Ukraine einmarschiert, wird Nord Stream 2 so oder
+so nicht vorankommen.»
+Mehrere an der Planung der Pipeline-Mission beteiligte Personen waren bestürzt über die ihrer Meinung nach indirekten Hinweise auf den Angriff.
+«Es war, als würde man eine Atombombe in Tokio auf den Boden legen und den Japanern sagen, dass wir sie zünden
+werden», sagte die Quelle. «Der Plan sah vor, dass die Optionen nach der Invasion ausgeführt und nicht öffentlich
+bekannt gegeben werden sollten. Biden hat es einfach nicht kapiert oder ignoriert.»
+Bidens und Nulands Indiskretion, wenn es denn so war, könnte einige der Planer frustriert haben. Aber sie schuf auch
+eine Gelegenheit. Der Quelle zufolge waren einige hochrangige CIA-Beamte der Ansicht, dass die Sprengung der Pipeline «nicht länger als verdeckte Option betrachtet werden konnte, weil der Präsident gerade bekannt gegeben hatte,
+dass wir wüssten, wie man es macht».
+Der Plan, Nord Stream 1 und 2 zu sprengen, wurde plötzlich von einer verdeckten Operation, die eine Unterrichtung
+des Kongresses erforderte, zu einer als streng geheim eingestuften Geheimdienstoperation mit militärischer Unterstützung der USA herabgestuft. Nach dem Gesetz, so die Quelle, «gab es keine recht-liche Verpflichtung mehr, den
+Kongress über die Operation zu informieren. Alles, was sie jetzt tun mussten, war, es einfach zu tun – aber es musste
+immer noch geheim sein. Die Russen haben eine hervorragende Überwachung der Ostsee».
+Die Mitglieder der Arbeitsgruppe der Agentur hatten keinen direkten Kontakt zum Weissen Haus und woll-ten unbedingt herausfinden, ob der Präsident es ernst meinte, was er gesagt hatte, d. h. ob die Mission nun genehmigt war. Die
+Quelle erinnerte sich: «Bill Burns kam zurück und sagte: ‹Tun Sie es.›»
+
+**DIE OPERATION**
+
+Norwegen war der perfekte Ort für die Mission. In den letzten Jahren der Ost-West-Krise hat das US-Militär seine
+Präsenz in Norwegen, dessen westliche Grenze 1400 Meilen entlang des Nordatlantiks verläuft und oberhalb des Polarkreises in Russland mündet, erheblich ausgeweitet. Das Pentagon hat – trotz einiger lokaler Kontroversen – gut
+bezahlte Arbeitsplätze und Verträge geschaffen, indem es Hunderte von Millio-nen Dollar in die Modernisierung und
+Erweiterung von Einrichtungen der amerikanischen Marine und Luft-waffe in Norwegen investiert hat. Zu den neuen
+Arbeiten gehörte vor allem ein fortschrittliches Radar mit synthetischer Apertur weit im Norden, das tief in Russland
+eindringen kann und gerade zu dem Zeitpunkt in Betrieb genommen wurde, als die amerikanischen Geheimdienste
+den Zugang zu einer Reihe von Lang-strecken-Abhörstationen in China verloren.
+Ein neu eingerichteter amerikanischer U-Boot-Stützpunkt, der seit Jahren im Bau war, wurde in Betrieb ge-nommen,
+und mehr amerikanische U-Boote konnten nun eng mit ihren norwegischen Kollegen zusammen-arbeiten, um eine
+grosse russische Nuklearstation 250 Meilen östlich auf der Halbinsel Kola zu überwachen und auszuspionieren. Die
+Amerikaner haben ausserdem einen norwegischen Luftwaffenstützpunkt im Norden erheblich ausgebaut und der
+norwegischen Luftwaffe eine Flotte von Boeing-Poseidon-Patrouillen-flugzeugen zur Verfügung gestellt, um die Langstreckenspionage gegen Russland zu verstärken.
+Im Gegenzug verärgerte die norwegische Regierung im November letzten Jahres die Liberalen und einige gemässigte
+Abgeordnete im Parlament mit der Verabschiedung des ergänzenden Abkommens über die Zusammenarbeit im Verteidigungsbereich (SDCA). Das neue Abkommen sieht vor, dass die US-Justiz in bestimmten ‹vereinbarten Gebieten›
+im Norden für amerikanische Soldaten zuständig ist, die ausserhalb des Stützpunktes eines Verbrechens beschuldigt
+werden, sowie für norwegische Bürger, die beschuldigt oder verdächtigt werden, die Arbeit auf dem Stützpunkt zu
+stören.
+Norwegen gehörte zu den Erstunterzeichnern des NATO-Vertrags im Jahr 1949, in den Anfängen des Kalten Krieges.
+Heute ist der Oberbefehlshaber der NATO, Jens Stoltenberg, ein überzeugter Antikommunist, der acht Jahre lang norwegischer Ministerpräsident war, bevor er 2014 mit amerikanischer Unterstützung auf seinen hohen NATO-Posten
+wechselte. Er war ein Hardliner in Sachen Putin und Russland und hatte seit dem Vietnamkrieg mit den amerikanischen Geheimdiensten zusammengearbeitet. Seitdem geniesst er volles Vertrauen. «Er ist der Handschuh, der in die
+amerikanische Hand passt», sagte die Quelle.
+Zurück in Washington wussten die Planer, dass sie nach Norwegen gehen mussten. «Sie hassten die Russen, und die
+norwegische Marine war voller hervorragender Seeleute und Taucher, die seit Generationen Erfah-rung in der hochprofitablen Tiefsee-Öl- und Gasexploration hatten», sagte die Quelle. Ausserdem konnte man darauf vertrauen, dass
+sie die Mission geheim halten würden. (Die Norweger könnten auch andere Interessen gehabt haben. Die Zerstörung
+von Nord Stream – falls die Amerikaner es schaffen sollten – würde es Norwegen ermöglichen, weitaus mehr eigenes
+Erdgas nach Europa zu verkaufen).
+Irgendwann im März flogen einige Mitglieder des Teams nach Norwegen, um sich mit dem norwegischen Geheimdienst und der Marine zu treffen. Eine der wichtigsten Fragen war, wo genau in der Ostsee der beste Ort für die Anbringung des Sprengstoffs ist. Nord Stream 1 und 2, die jeweils über zwei Pipelines verfügen, waren auf ihrem Weg
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+zum Hafen von Greifswald im äussersten Nordosten Deutschlands grösstenteils nur durch eine Meile voneinander
+getrennt.
+Die norwegische Marine fand schnell die richtige Stelle in den flachen Gewässern der Ostsee, nur wenige Meilen vor
+der dänischen Insel Bornholm. Die Pipelines verliefen in einem Abstand von mehr als einer Meile entlang eines Meeresbodens, der nur 260 Fuss tief war. Das wäre in Reichweite der Taucher, die von einem norwegischen Minenjäger
+der Alta-Klasse aus mit einem Gemisch aus Sauerstoff, Stickstoff und Helium aus ihren Tanks tauchen und C4-Ladungen in Form von Betonschutzhüllen an den vier Pipelines anbringen sollten. Es war eine mühsame, zeitraubende und
+gefährliche Arbeit, aber die Gewässer vor Bornholm hatten einen weiteren Vorteil: Es gab keine grösseren Gezeitenströmungen, die das Tauchen erheblich erschwert hätten.
+Nach ein paar Nachforschungen waren die Amerikaner voll dabei.
+An diesem Punkt kam wieder einmal die obskure Tiefseetauchergruppe der Navy in Panama City ins Spiel. Die Tiefseeschulen in Panama City, deren Auszubildende an den Ivy Bells teilnahmen, werden von den Elite-absolventen der
+Marineakademie in Annapolis, die in der Regel den Ruhm anstreben, als Seal, Kampfpilot oder U-Boot-Fahrer eingesetzt zu werden, als unerwünschtes Hinterland angesehen. Wenn man ein ‹Black Shoe› werden muss, d. h. ein Mitglied
+des weniger begehrten Überwasserschiffkommandos, gibt es immer mindestens einen Dienst auf einem Zerstörer,
+Kreuzer oder Amphibienschiff. Am wenigsten glamourös ist die Minenkriegsführung. Ihre Taucher tauchen weder in
+Hollywood-Filmen noch auf den Titelseiten von Publikumszeitschriften auf.
+«Die besten Taucher mit Tieftauchqualifikationen sind eine enge Gemeinschaft, und nur die allerbesten werden für
+den Einsatz rekrutiert und darauf hingewiesen, dass sie sich darauf einstellen müssen, zur CIA in Washington gerufen
+zu werden», so die Quelle.
+Die Norweger und Amerikaner hatten einen Ort und die Agenten, aber es gab noch eine andere Sorge: Jede ungewöhnliche Unterwasseraktivität in den Gewässern vor Bornholm könnte die Aufmerksamkeit der schwedischen oder dänischen Marine auf sich ziehen, die darüber berichten könnten.
+Dänemark gehörte ebenfalls zu den ursprünglichen NATO-Unterzeichnern und war in Geheimdienstkreisen für seine
+besonderen Beziehungen zum Vereinigten Königreich bekannt. Schweden hatte einen Antrag auf Mitgliedschaft in
+der NATO gestellt und sein grosses Geschick bei der Verwaltung seiner Unterwasserschall- und Magnetsensorsysteme
+unter Beweis gestellt, mit denen es erfolgreich russische U-Boote aufspürte, die gelegentlich in den entlegenen Gewässern der schwedischen Schären auftauchten und an die Oberfläche gezwungen wurden.
+Die Norweger schlossen sich den Amerikanern an und bestanden darauf, dass einige hochrangige Beamte in Dänemark und Schweden in allgemeiner Form über mögliche Tauchaktivitäten in dem Gebiet unterrich-tet werden mussten. Auf diese Weise konnte ein höherer Beamter eingreifen und einen Bericht aus der Befehlskette heraushalten und
+so die Pipeline-Operation isolieren. «Was ihnen gesagt wurde und was sie wussten, war absichtlich unterschiedlich»,
+sagte die Quelle (die norwegische Botschaft, die um einen Kom-mentar zu dieser Geschichte gebeten wurde, hat nicht
+geantwortet).
+Die Norweger waren der Schlüssel zur Überwindung anderer Hürden. Es war bekannt, dass die russische Marine über
+eine Überwachungstechnologie verfügte, die in der Lage war, Unterwasserminen aufzuspüren und auszulösen. Die
+amerikanischen Sprengsätze mussten so getarnt werden, dass sie für das russische System als Teil des natürlichen
+Hintergrunds erscheinen würden – was eine Anpassung an den spezifischen Salzgehalt des Wassers erforderte. Die
+Norweger hatten eine Lösung.
+Die Norweger hatten auch eine Lösung für die entscheidende Frage, wann die Operation durchgeführt wer-den sollte.
+Seit 21 Jahren veranstaltet die amerikanische Sechste Flotte, deren Flaggschiff in Gaeta (Italien) südlich von Rom
+stationiert ist, jedes Jahr im Juni eine grosse NATO-Übung in der Ostsee, an der zahlreiche Schiffe der Alliierten aus
+der gesamten Region teilnehmen. Die aktuelle Übung, die im Juni stattfinden soll, wird als Baltic Operations 22 oder
+BALTOPS 22 bezeichnet. Die Norweger schlugen vor, dass dies die ideale Tarnung für das Verlegen der Minen sein
+würde.
+Die Amerikaner lieferten ein entscheidendes Element: Sie überzeugten die Planer der Sechsten Flotte, das Programm
+um eine Forschungs- und Entwicklungsübung zu erweitern. An der Übung, die von der Marine bekannt gegeben
+wurde, war die Sechste Flotte in Zusammenarbeit mit den ‹Forschungs- und Kriegsfüh-rungszentren› der Marine beteiligt. Bei der Übung, die vor der Küste der Insel Bornholm stattfinden sollte, sollten Taucherteams der NATO-Minen
+verlegen, während die konkurrierenden Teams die neueste Unter-wassertechnologie einsetzten, um die Minen zu
+finden und zu zerstören.
+Dies war sowohl eine nützliche Übung als auch eine raffinierte Tarnung. Die Jungs aus Panama City würden ihre Arbeit
+tun, und die C4-Sprengsätze würden bis zum Ende von BALTOPS22 an Ort und Stelle sein, mit einem 48-StundenTimer versehen. Alle Amerikaner und Norweger würden bei der ersten Explosion schon lange weg sein.
+Die Tage zählten herunter. «Die Uhr tickte, und wir waren kurz davor, die Mission zu erfüllen», sagte die Quelle. Und
+dann: «Washington überlegte es sich anders. Die Bomben würden immer noch während BAL-TOPS gelegt werden,
+aber das Weisse Haus befürchtete, dass ein Zeitfenster von zwei Tagen für ihre Detona-tion zu kurz vor dem Ende der
+Übung sein würde, und es wäre offensichtlich, dass Amerika beteiligt war.»
+Stattdessen hatte das Weisse Haus eine neue Anfrage: «Können sich die Jungs vor Ort etwas einfallen las-sen, um die
+Pipelines später auf Kommando zu sprengen?»
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Einige Mitglieder des Planungsteams waren verärgert und frustriert über die scheinbare Unentschlossenheit des Präsidenten. Die Taucher in Panama City hatten wiederholt geübt, C4 an den Pipelines anzubringen, wie sie es bei BALTOPS tun würden, aber nun musste das Team in Norwegen einen Weg finden, um Biden zu geben, was er wollte – die
+Möglichkeit, einen erfolgreichen Hinrichtungsbefehl zu einem Zeitpunkt seiner Wahl zu erteilen.
+Mit einer willkürlichen Änderung in letzter Minute beauftragt zu werden, war etwas, mit dem die CIA vertraut war.
+Allerdings wurden dadurch auch die Bedenken einiger Beteiligter hinsichtlich der Notwendigkeit und Rechtmässigkeit der gesamten Operation erneuert.
+Die geheimen Befehle des Präsidenten erinnerten auch an das Dilemma der CIA in der Zeit des Vietnam-kriegs, als
+Präsident Johnson angesichts der wachsenden Anti-Vietnamkriegsstimmung der Agentur befahl, gegen ihre Charta
+zu verstossen, die es ihr ausdrücklich untersagte, innerhalb Amerikas zu operieren, indem sie führende Kriegsgegner
+ausspionierte, um festzustellen, ob sie vom kommunistischen Russland kontrolliert wurden.
+Die Agentur willigte schliesslich ein, und im Lauf der 1970er Jahre wurde deutlich, wie weit sie zu gehen bereit war.
+Nach den Watergate-Skandalen enthüllten die Zeitungen, dass die Agentur amerikanische Bürger ausspionierte, an
+der Ermordung ausländischer Führer beteiligt war und die sozialistische Regierung von Salvador Allende untergrub.
+Diese Enthüllungen führten Mitte der 1970er Jahre zu einer Reihe dramatischer Anhörungen im Senat unter der Leitung von Frank Church aus Idaho, die deutlich machten, dass Richard Helms, der damalige Direktor der Agency, akzeptierte, dass er verpflichtet war, die Wünsche des Präsidenten zu erfüllen, auch wenn dies einen Verstoss gegen das
+Gesetz bedeutete.
+In einer unveröffentlichten Zeugenaussage hinter verschlossenen Türen erklärte Helms reumütig, dass «man fast eine
+unbefleckte Empfängnis hat, wenn man etwas auf geheime Anweisung eines Präsidenten tut. Ob es nun richtig ist,
+dass Sie es haben sollten, oder falsch, dass Sie es haben sollen, [die CIA] arbeitet nach anderen Regeln und Grundregeln als jeder andere Teil der Regierung.» Damit erklärte er den Senato-ren, dass er als Leiter der CIA für die Krone
+und nicht für die Verfassung arbeite.
+Die Amerikaner, die in Norwegen im Einsatz waren, arbeiteten mit der gleichen Dynamik und begannen pflichtbewusst mit der Arbeit an dem neuen Problem – der Fernzündung des C4-Sprengstoffs auf Bidens Befehl. Die Aufgabe
+war viel anspruchsvoller, als man in Washington dachte. Das Team in Norwegen konnte nicht wissen, wann der Präsident den Knopf drücken würde. Würde es in ein paar Wochen, in vielen Monaten oder in einem halben Jahr oder
+länger sein?
+Das an den Pipelines angebrachte C4 würde durch eine kurzfristig von einem Flugzeug abgeworfene Sonar-boje ausgelöst werden, aber das Verfahren erforderte die modernste Signalverarbeitungstechnologie. Ein-mal an Ort und
+Stelle, könnten die an jeder der vier Pipelines angebrachten Zeitverzögerungsgeräte verse-hentlich durch die komplexe Mischung von Meeresgeräuschen in der stark befahrenen Ostsee ausgelöst werden – durch nahe und entfernte
+Schiffe, Unterwasserbohrungen, seismische Ereignisse, Wellen und sogar Meerestiere. Um dies zu vermeiden, würde
+die Sonarboje, sobald sie an Ort und Stelle ist, eine Abfolge einzigartiger tieffrequenter Töne aussenden – ähnlich
+denen einer Flöte oder eines Klaviers –, die vom Zeit-messgerät erkannt werden und nach einer voreingestellten Verzögerung von mehreren Stunden den Sprengstoff auslösen würden. («Sie wollten ein Signal, das robust genug ist,
+damit kein anderes Signal ver-sehentlich einen Impuls senden kann, der den Sprengstoff zündet», erklärte mir Dr.
+Theodore Postol, emeritierter Professor für Wissenschaft, Technologie und nationale Sicherheitspolitik am MIT. Postol, der als wissenschaftlicher Berater des Chefs der Marineoperationen im Pentagon tätig war, sagte, das Problem,
+dem sich die Gruppe in Norwegen wegen Bidens Verzögerung gegenübersieht, sei eine Frage des Zufalls: «Je länger
+der Sprengstoff im Wasser ist, desto grösser ist das Risiko eines zufälligen Signals, das die Bomben auslöst.»)
+Am 26. September 2022 warf ein P8-Überwachungsflugzeug der norwegischen Marine bei einem scheinba-ren Routineflug eine Sonarboje ab. Das Signal breitete sich unter Wasser aus, zunächst zu Nord Stream 2 und dann zu Nord
+Stream 1. Wenige Stunden später wurde der Hochleistungs-C4-Sprengstoff ausgelöst und drei der vier Pipelines wurden ausser Betrieb gesetzt. Innerhalb weniger Minuten konnte man sehen, wie sich Methangas, das in den stillgelegten
+Pipelines verblieben war, an der Wasseroberfläche ausbreitete, und die Welt erfuhr, dass etwas Unumkehrbares geschehen war.
+
+**FALLOUT**
+
+Unmittelbar nach dem Bombenanschlag auf die Pipeline behandelten die amerikanischen Medien den Vor-fall wie ein
+ungelöstes Rätsel. Russland wurde wiederholt als wahrscheinlicher Schuldiger genannt, ange-spornt durch kalkulierte Indiskretionen aus dem Weissen Haus – ohne dass jemals ein klares Motiv für einen solchen Akt der Selbstsabotage jenseits einfacher Vergeltung gefunden wurde. Als sich einige Monate später herausstellte, dass die russischen
+Behörden in aller Stille Kostenvoranschläge für die Reparatur der Pipelines eingeholt hatten, bezeichnete die ‹New
+York Times› diese Nachricht als ‹Erschwerung der Theorien darüber, wer hinter dem Anschlag steckt›. Keine grosse
+amerikanische Zeitung ging auf die früheren Dro-hungen gegen die Pipelines ein, die von Biden und Staatssekretärin
+Nuland ausgesprochen wurden.
+Während nie klar war, warum Russland versuchen sollte, seine eigene lukrative Pipeline zu zerstören, kam eine aufschlussreichere Begründung für die Aktion des Präsidenten von Aussenminister Blinken. Auf einer Pressekonferenz
+im vergangenen September zu den Folgen der sich verschärfenden Energiekrise in Westeuropa befragt, beschrieb
+Blinken den Moment als einen potenziell guten:
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+_«Es ist eine enorme Chance, die Abhängigkeit von russischer Energie ein für alle Mal zu beenden und damit Wladimir_
+_Putin die Bewaffnung der Energie als Mittel zur Durchsetzung seiner imperialen Pläne zu entziehen. Das ist sehr bedeut-_
+_sam und bietet eine enorme strategische Chance für die kommenden Jahre, aber in der Zwischenzeit sind wir entschlossen,_
+_alles in unserer Macht Stehende zu tun, um sicherzustellen, dass die Folgen all dessen nicht von den Bürgern in unseren_
+_Ländern oder in der ganzen Welt getragen werden.»_
+Kürzlich äusserte sich Victoria Nuland erfreut über das Scheitern der jüngsten der beiden Pipelines. Bei einer Anhörung des Ausschusses für auswärtige Beziehungen des Senats Ende Januar sagte sie zu Senator Ted Cruz: «Wie Sie bin
+auch ich, und ich denke, die Regierung ist sehr erfreut zu wissen, dass Nord Stream 2 nun, wie Sie sagen, ein Haufen
+Metall auf dem Grund des Meeres ist.»
+Die Quelle sah Bidens Entscheidung, mehr als 1500 Meilen der Gazprom-Pipeline zu sabotieren, während der Winter
+näher rückte, wesentlich nüchterner. «Nun», sagte er über den Präsidenten, «ich muss zugeben, dass der Kerl ein Paar
+Eier hat. Er hat gesagt, er würde es tun, und er hat es getan.»
+Auf die Frage, warum die Russen seiner Meinung nach nicht reagierten, antwortete er zynisch: «Vielleicht wollen sie
+die Möglichkeit haben, dasselbe zu tun, was die USA getan haben.»
+«Es war eine schöne Tarngeschichte», fuhr er fort. «Dahinter steckte eine verdeckte Operation, bei der Experten vor
+Ort eingesetzt wurden und Geräte, die mit einem verdeckten Signal arbeiteten. Der einzige Makel war die Entscheidung, es zu tun.»
+_https://seymourhersh.substack.com/p/how-america-took-out-the-nord-stream_
+
+**Englisches Original**
+
+### How America Took Out The Nord Stream Pipeline
+
+The New York Times called it a “mystery,” but the United States executed a covert sea operation that was kept secret—
+until now. Seymour Hersh, Feb 8, 2023.
+
+The center has been training highly skilled deep-water divers for decades who, once assigned to American military
+units worldwide, are capable of technical diving to do the good—using C4 explosives to clear harbors and beaches of
+debris and unexploded ordinance—as well as the bad, like blowing up foreign oil rigs, fouling intake valves for undersea power plants, destroying locks on crucial shipping canals. The Panama City center, which boasts the second largest
+indoor pool in America, was the perfect place to recruit the best, and most taciturn, graduates of the diving school
+who successfully did last summer what they had been authorized to do 260 feet under the surface of the Baltic Sea.
+Last June, the Navy divers, operating under the cover of a widely publicized mid-summer NATO exercise known as
+BALTOPS 22, planted the remotely triggered explosives that, three months later, destroyed three of the four Nord
+Stream pipelines, according to a source with direct knowledge of the operational planning.
+Two of the pipelines, which were known collectively as Nord Stream 1, had been providing Germany and much of
+Western Europe with cheap Russian natural gas for more than a decade. A second pair of pipelines, called Nord Stream
+2, had been built but were not yet operational. Now, with Russian troops massing on the Ukrainian border and the
+bloodiest war in Europe since 1945 looming, President Joseph Biden saw the pipelines as a vehicle for Vladimir Putin
+to weaponize natural gas for his political and territorial ambitions.
+Asked for comment, Adrienne Watson, a White House spokesperson, said in an email, “This is false and complete
+fiction.” Tammy Thorp, a spokesperson for the Central Intelligence Agency, similarly wrote: “This claim is completely
+and utterly false.”
+Biden’s decision to sabotage the pipelines came after more than nine months of highly secret back and forth debate
+inside Washington’s national security community about how to best achieve that goal. For much of that time, the issue
+was not whether to do the mission, but how to get it done with no overt clue as to who was responsible.
+There was a vital bureaucratic reason for relying on the graduates of the center’s hardcore diving school in Panama
+City. The divers were Navy only, and not members of America’s Special Operations Command, whose covert operations must be reported to Congress and briefed in advance to the Senate and House leadership—the so-called Gang
+of Eight. The Biden Administration was doing everything possible to avoid leaks as the planning took place late in
+2021 and into the first months of 2022.
+President Biden and his foreign policy team—National Security Adviser Jake Sullivan, Secretary of State Tony Blinken,
+and Victoria Nuland, the Undersecretary of State for Policy—had been vocal and consistent in their hostility to the
+two pipelines, which ran side by side for 750 miles under the Baltic Sea from two different ports in northeastern
+Russia near the Estonian border, passing close to the Danish island of Bornholm before ending in northern Germany.
+The direct route, which bypassed any need to transit Ukraine, had been a boon for the German economy, which enjoyed an abundance of cheap Russian natural gas—enough to run its factories and heat its homes while enabling
+German distributors to sell excess gas, at a profit, throughout Western Europe. Action that could be traced to the
+administration would violate US promises to minimize direct conflict with Russia. Secrecy was essential.
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+From its earliest days, Nord Stream 1 was seen by Washington and its anti-Russian NATO partners as a threat to
+western dominance. The holding company behind it, Nord Stream AG, was incorporated in Switzerland in 2005 in
+partnership with Gazprom, a publicly traded Russian company producing enormous profits for shareholders which
+is dominated by oligarchs known to be in the thrall of Putin. Gazprom controlled 51 percent of the company, with four
+European energy firms—one in France, one in the Netherlands and two in Germany—sharing the remaining 49 percent of stock, and having the right to control downstream sales of the inexpensive natural gas to local distributors in
+Germany and Western Europe. Gazprom’s profits were shared with the Russian government, and state gas and oil
+revenues were estimated in some years to amount to as much as 45 percent of Russia’s annual budget.
+America’s political fears were real: Putin would now have an additional and much-needed major source of income,
+and Germany and the rest of Western Europe would become addicted to low-cost natural gas supplied by Russia—
+while diminishing European reliance on America. In fact, that’s exactly what happened. Many Germans saw Nord
+Stream 1 as part of the deliverance of former Chancellor Willy Brandt’s famed Ostpolitik theory, which would enable
+postwar Germany to rehabilitate itself and other European nations destroyed in World War II by, among other initiatives, utilizing cheap Russian gas to fuel a prosperous Western European market and trading economy.
+Nord Stream 1 was dangerous enough, in the view of NATO and Washington, but Nord Stream 2, whose construction
+was completed in September of 2021, would, if approved by German regulators, double the amount of cheap gas that
+would be available to Germany and Western Europe. The second pipeline also would provide enough gas for more
+than 50 percent of Germany’s annual consumption. Tensions were constantly escalating between Russia and NATO,
+backed by the aggressive foreign policy of the Biden Administration.
+Opposition to Nord Stream 2 flared on the eve of the Biden inauguration in January 2021, when Senate Republicans,
+led by Ted Cruz of Texas, repeatedly raised the political threat of cheap Russian natural gas during the confirmation
+hearing of Blinken as Secretary of State. By then a unified Senate had successfully passed a law that, as Cruz told
+Blinken, “halted [the pipeline] in its tracks.” There would be enormous political and economic pressure from the German government, then headed by Angela Merkel, to get the second pipeline online.
+Would Biden stand up to the Germans? Blinken said yes, but added that he had not discussed the specifics of the
+incoming President’s views. “I know his strong conviction that this is a bad idea, the Nord Stream 2,” he said. “I know
+that he would have us use every persuasive tool that we have to convince our friends and partners, including Germany,
+not to move forward with it.”
+A few months later, as the construction of the second pipeline neared completion, Biden blinked. That May, in a stunning turnaround, the administration waived sanctions against Nord Stream AG, with a State Department official conceding that trying to stop the pipeline through sanctions and diplomacy had “always been a long shot.” Behind the
+scenes, administration officials reportedly urged Ukrainian President Volodymyr Zelensky, by then facing a threat of
+Russian invasion, not to criticize the move.
+There were immediate consequences. Senate Republicans, led by Cruz, announced an immediate blockade of all of
+Biden’s foreign policy nominees and delayed passage of the annual defense bill for months, deep into the fall. Politico
+later depicted Biden’s turnabout on the second Russian pipeline as “the one decision, arguably more than the chaotic
+military withdrawal from Afghanistan, that has imperiled Biden’s agenda.”
+The administration was floundering, despite getting a reprieve on the crisis in mid-November, when Germany’s energy regulators suspended approval of the second Nord Stream pipeline. Natural gas prices surged 8% within days,
+amid growing fears in Germany and Europe that the pipeline suspension and the growing possibility of a war between
+Russia and Ukraine would lead to a very much unwanted cold winter. It was not clear to Washington just where Olaf
+Scholz, Germany’s newly appointed chancellor, stood. Months earlier, after the fall of Afghanistan, Scholtz had publicly
+endorsed French President Emmanuel Macron’s call for a more autonomous European foreign policy in a speech in
+Prague—clearly suggesting less reliance on Washington and its mercurial actions.
+Throughout all of this, Russian troops had been steadily and ominously building up on the borders of Ukraine, and by
+the end of December more than 100,000 soldiers were in position to strike from Belarus and Crimea. Alarm was
+growing in Washington, including an assessment from Blinken that those troop numbers could be “doubled in short
+order.”
+The administration’s attention once again was focused on Nord Stream. As long as Europe remained dependent on
+the pipelines for cheap natural gas, Washington was afraid that countries like Germany would be reluctant to supply
+Ukraine with the money and weapons it needed to defeat Russia.
+It was at this unsettled moment that Biden authorized Jake Sullivan to bring together an interagency group to come
+up with a plan.
+All options were to be on the table. But only one would emerge.
+
+**PLANNING**
+
+In December of 2021, two months before the first Russian tanks rolled into Ukraine, Jake Sullivan convened a meeting
+of a newly formed task force—men and women from the Joint Chiefs of Staff, the CIA, and the State and Treasury
+Departments—and asked for recommendations about how to respond to Putin’s impending invasion.
+It would be the first of a series of top-secret meetings, in a secure room on a top floor of the Old Executive Office
+Building, adjacent to the White House, that was also the home of the President’s Foreign Intelligence Advisory Board
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+(PFIAB). There was the usual back and forth chatter that eventually led to a crucial preliminary question: Would the
+recommendation forwarded by the group to the President be reversible—such as another layer of sanctions and currency restrictions—or irreversible—that is, kinetic actions, which could not be undone?
+What became clear to participants, according to the source with direct knowledge of the process, is that Sullivan intended for the group to come up with a plan for the destruction of the two Nord Stream pipelines—and that he was
+delivering on the desires of the President.
+
+_THE PLAYERS Left to right: Victoria Nuland, Anthony Blinken, and Jake Sullivan._
+
+_DIE SPIELER Von links nach rechts: Victoria Nuland, Anthony Blinken, und Jake Sullivan._
+
+Over the next several meetings, the participants debated options for an attack. The Navy proposed using a newly
+commissioned submarine to assault the pipeline directly. The Air Force discussed dropping bombs with delayed fuses
+that could be set off remotely. The CIA argued that whatever was done, it would have to be covert. Everyone involved
+understood the stakes. “This is not kiddie stuff,” the source said. If the attack were traceable to the United States, “It’s
+an act of war.”
+At the time, the CIA was directed by William Burns, a mild-mannered former ambassador to Russia who had served
+as deputy secretary of state in the Obama Administration. Burns quickly authorized an Agency working group whose
+ad hoc members included—by chance—someone who was familiar with the capabilities of the Navy’s deep-sea divers
+in Panama City. Over the next few weeks, members of the CIA’s working group began to craft a plan for a covert operation that would use deep-sea divers to trigger an explosion along the pipeline.
+Something like this had been done before. In 1971, the American intelligence community learned from still undisclosed sources that two important units of the Russian Navy were communicating via an undersea cable buried in the
+Sea of Okhotsk, on Russia’s Far East Coast. The cable linked a regional Navy command to the mainland headquarters
+at Vladivostok.
+A hand-picked team of Central Intelligence Agency and National Security Agency operatives was assembled somewhere in the Washington area, under deep cover, and worked out a plan, using Navy divers, modified submarines and
+a deep-submarine rescue vehicle, that succeeded, after much trial and error, in locating the Russian cable. The divers
+planted a sophisticated listening device on the cable that successfully intercepted the Russian traffic and recorded it
+on a taping system.
+The NSA learned that senior Russian navy officers, convinced of the security of their communication link, chatted
+away with their peers without encryption. The recording device and its tape had to be replaced monthly and the
+project rolled on merrily for a decade until it was compromised by a forty-four-year-old civilian NSA technician named
+Ronald Pelton who was fluent in Russian. Pelton was betrayed by a Russian defector in 1985 and sentenced to prison.
+He was paid just $5,000 by the Russians for his revelations about the operation, along with $35,000 for other Russian
+operational data he provided that was never made public.
+That underwater success, codenamed Ivy Bells, was innovative and risky, and produced invaluable intelligence about
+the Russian Navy's intentions and planning.
+Still, the interagency group was initially skeptical of the CIA’s enthusiasm for a covert deep-sea attack. There were too
+many unanswered questions. The waters of the Baltic Sea were heavily patrolled by the Russian navy, and there were
+no oil rigs that could be used as cover for a diving operation. Would the divers have to go to Estonia, right across the
+border from Russia’s natural gas loading docks, to train for the mission? “It would be a goat fuck,” the Agency was
+told.
+Throughout “all of this scheming,” the source said, “some working guys in the CIA and the State Department were
+saying, ‘Don’t do this. It’s stupid and will be a political nightmare if it comes out.’”
+Nevertheless, in early 2022, the CIA working group reported back to Sullivan’s interagency group: “We have a way to
+blow up the pipelines.”
+What came next was stunning. On February 7, less than three weeks before the seemingly inevitable Russian invasion
+of Ukraine, Biden met in his White House office with German Chancellor Olaf Scholz, who, after some wobbling, was
+now firmly on the American team. At the press briefing that followed, Biden defiantly said, “If Russia invades . . . there
+will be no longer a Nord Stream 2. We will bring an end to it.”
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Twenty days earlier, Undersecretary Nuland had delivered essentially the same message at a State Department briefing, with little press coverage. “I want to be very clear to you today,” she said in response to a question. “If Russia
+invades Ukraine, one way or another Nord Stream 2 will not move forward.”
+Several of those involved in planning the pipeline mission were dismayed by what they viewed as indirect references
+to the attack.
+“It was like putting an atomic bomb on the ground in Tokyo and telling the Japanese that we are going to detonate it,”
+the source said. “The plan was for the options to be executed post invasion and not advertised publicly. Biden simply
+didn’t get it or ignored it.”
+Biden’s and Nuland’s indiscretion, if that is what it was, might have frustrated some of the planners. But it also created
+an opportunity. According to the source, some of the senior officials of the CIA determined that blowing up the pipeline
+“no longer could be considered a covert option because the President just announced that we knew how to do it.”
+The plan to blow up Nord Stream 1 and 2 was suddenly downgraded from a covert operation requiring that Congress
+be informed to one that was deemed as a highly classified intelligence operation with U.S. military support. Under the
+law, the source explained, “There was no longer a legal requirement to report the operation to Congress. All they had
+to do now is just do it—but it still had to be secret. The Russians have superlative surveillance of the Baltic Sea.”
+The Agency working group members had no direct contact with the White House, and were eager to find out if the
+President meant what he’d said—that is, if the mission was now a go. The source recalled, “Bill Burns comes back and
+says, ‘Do it.’”
+
+**THE OPERATION**
+
+Norway was the perfect place to base the mission.
+
+In the past few years of East-West crisis, the U.S. military has vastly expanded its presence inside Norway, whose
+western border runs 1,400 miles along the north Atlantic Ocean and merges above the Arctic Circle with Russia. The
+Pentagon has created high paying jobs and contracts, amid some local controversy, by investing hundreds of millions
+of dollars to upgrade and expand American Navy and Air Force facilities in Norway. The new works included, most
+importantly, an advanced synthetic aperture radar far up north that was capable of penetrating deep into Russia and
+came online just as the American intelligence community lost access to a series of long-range listening sites inside
+China.
+A newly refurbished American submarine base, which had been under construction for years, had become operational
+and more American submarines were now able to work closely with their Norwegian colleagues to monitor and spy
+on a major Russian nuclear redoubt 250 miles to the east, on the Kola Peninsula. America also has vastly expanded a
+Norwegian air base in the north and delivered to the Norwegian air force a fleet of Boeing-built P8 Poseidon patrol
+planes to bolster its long-range spying on all things Russia.
+In return, the Norwegian government angered liberals and some moderates in its parliament last November by passing the Supplementary Defense Cooperation Agreement (SDCA). Under the new deal, the U.S. legal system would have
+jurisdiction in certain “agreed areas” in the North over American soldiers accused of crimes off base, as well as over
+those Norwegian citizens accused or suspected of interfering with the work at the base.
+Norway was one of the original signatories of the NATO Treaty in 1949, in the early days of the Cold War. Today, the
+supreme commander of NATO is Jens Stoltenberg, a committed anti-communist, who served as Norway’s prime minister for eight years before moving to his high NATO post, with American backing, in 2014. He was a hardliner on all
+things Putin and Russia who had cooperated with the American intelligence community since the Vietnam War. He
+has been trusted completely since. “He is the glove that fits the American hand,” the source said.
+Back in Washington, planners knew they had to go to Norway. “They hated the Russians, and the Norwegian navy was
+full of superb sailors and divers who had generations of experience in highly profitable deep-sea oil and gas exploration,” the source said. They also could be trusted to keep the mission secret. (The Norwegians may have had other
+interests as well. The destruction of Nord Stream—if the Americans could pull it off—would allow Norway to sell
+vastly more of its own natural gas to Europe.)
+Sometime in March, a few members of the team flew to Norway to meet with the Norwegian Secret Service and Navy.
+One of the key questions was where exactly in the Baltic Sea was the best place to plant the explosives. Nord Stream
+1 and 2, each with two sets of pipelines, were separated much of the way by little more than a mile as they made their
+run to the port of Greifswald in the far northeast of Germany.
+The Norwegian navy was quick to find the right spot, in the shallow waters of the Baltic sea a few miles off Denmark’s
+Bornholm Island. The pipelines ran more than a mile apart along a seafloor that was only 260 feet deep. That would
+be well within the range of the divers, who, operating from a Norwegian Alta class mine hunter, would dive with a
+mixture of oxygen, nitrogen and helium streaming from their tanks, and plant shaped C4 charges on the four pipelines
+with concrete protective covers. It would be tedious, time consuming and dangerous work, but the waters off Bornholm had another advantage: there were no major tidal currents, which would have made the task of diving much
+more difficult.
+After a bit of research, the Americans were all in.
+At this point, the Navy’s obscure deep-diving group in Panama City once again came into play. The deep-sea schools
+at Panama City, whose trainees participated in Ivy Bells, are seen as an unwanted backwater by the elite graduates of
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+the Naval Academy in Annapolis, who typically seek the glory of being assigned as a Seal, fighter pilot, or submariner.
+If one must become a “Black Shoe”—that is, a member of the less desirable surface ship command—there is always
+at least duty on a destroyer, cruiser or amphibious ship. The least glamorous of all is mine warfare. Its divers never
+appear in Hollywood movies, or on the cover of popular magazines.
+“The best divers with deep diving qualifications are a tight community, and only the very best are recruited for the
+operation and told to be prepared to be summoned to the CIA in Washington,” the source said.
+The Norwegians and Americans had a location and the operatives, but there was another concern: any unusual underwater activity in the waters off Bornholm might draw the attention of the Swedish or Danish navies, which could
+report it.
+Denmark had also been one of the original NATO signatories and was known in the intelligence community for its
+special ties to the United Kingdom. Sweden had applied for membership into NATO, and had demonstrated its great
+skill in managing its underwater sound and magnetic sensor systems that successfully tracked Russian submarines
+that would occasionally show up in remote waters of the Swedish archipelago and be forced to the surface.
+The Norwegians joined the Americans in insisting that some senior officials in Denmark and Sweden had to be briefed
+in general terms about possible diving activity in the area. In that way, someone higher up could intervene and keep
+a report out of the chain of command, thus insulating the pipeline operation. “What they were told and what they
+knew were purposely different,” the source told me. (The Norwegian embassy, asked to comment on this story, did
+not respond.)
+The Norwegians were key to solving other hurdles. The Russian navy was known to possess surveillance technology
+capable of spotting, and triggering, underwater mines. The American explosive devices needed to be camouflaged in
+a way that would make them appear to the Russian system as part of the natural background—something that required adapting to the specific salinity of the water. The Norwegians had a fix.
+The Norwegians also had a solution to the crucial question of when the operation should take place. Every June, for
+the past 21 years, the American Sixth Fleet, whose flagship is based in Gaeta, Italy, south of Rome, has sponsored a
+major NATO exercise in the Baltic Sea involving scores of allied ships throughout the region. The current exercise,
+held in June, would be known as Baltic Operations 22, or BALTOPS 22. The Norwegians proposed this would be the
+ideal cover to plant the mines.
+The Americans provided one vital element: they convinced the Sixth Fleet planners to add a research and development exercise to the program. The exercise, as made public by the Navy, involved the Sixth Fleet in collaboration with
+the Navy’s “research and warfare centers.” The at-sea event would be held off the coast of Bornholm Island and involve NATO teams of divers planting mines, with competing teams using the latest underwater technology to find and
+destroy them.
+It was both a useful exercise and ingenious cover. The Panama City boys would do their thing and the C4 explosives
+would be in place by the end of BALTOPS22, with a 48-hour timer attached. All of the Americans and Norwegians
+would be long gone by the first explosion.
+The days were counting down. “The clock was ticking, and we were nearing mission accomplished,” the source said.
+And then: Washington had second thoughts. The bombs would still be planted during BALTOPS, but the White House
+worried that a two-day window for their detonation would be too close to the end of the exercise, and it would be
+obvious that America had been involved.
+Instead, the White House had a new request: “Can the guys in the field come up with some way to blow the pipelines
+later on command?”
+Some members of the planning team were angered and frustrated by the President’s seeming indecision. The Panama
+City divers had repeatedly practiced planting the C4 on pipelines, as they would during BALTOPS, but now the team
+in Norway had to come up with a way to give Biden what he wanted—the ability to issue a successful execution order
+at a time of his choosing.
+Being tasked with an arbitrary, last-minute change was something the CIA was accustomed to managing. But it also
+renewed the concerns some shared over the necessity, and legality, of the entire operation.
+The President’s secret orders also evoked the CIA’s dilemma in the Vietnam War days, when President Johnson, confronted by growing anti-Vietnam War sentiment, ordered the Agency to violate its charter—which specifically barred
+it from operating inside America—by spying on antiwar leaders to determine whether they were being controlled by
+Communist Russia.
+The agency ultimately acquiesced, and throughout the 1970s it became clear just how far it had been willing to go.
+There were subsequent newspaper revelations in the aftermath of the Watergate scandals about the Agency’s spying
+on American citizens, its involvement in the assassination of foreign leaders and its undermining of the socialist government of Salvador Allende.
+Those revelations led to a dramatic series of hearings in the mid-1970s in the Senate, led by Frank Church of Idaho,
+that made it clear that Richard Helms, the Agency director at the time, accepted that he had an obligation to do what
+the President wanted, even if it meant violating the law.
+In unpublished, closed-door testimony, Helms ruefully explained that “you almost have an Immaculate Conception
+when you do something” under secret orders from a President. “Whether it’s right that you should have it, or wrong
+that you shall have it, [the CIA] works under different rules and ground rules than any other part of the government.”
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+He was essentially telling the Senators that he, as head of the CIA, understood that he had been working for the Crown,
+and not the Constitution.
+The Americans at work in Norway operated under the same dynamic, and dutifully began working on the new problem—how to remotely detonate the C4 explosives on Biden’s order. It was a much more demanding assignment than
+those in Washington understood. There was no way for the team in Norway to know when the President might push
+the button. Would it be in a few weeks, in many months or in half a year or longer?
+The C4 attached to the pipelines would be triggered by a sonar buoy dropped by a plane on short notice, but the
+procedure involved the most advanced signal processing technology. Once in place, the delayed timing devices attached to any of the four pipelines could be accidentally triggered by the complex mix of ocean background noises
+throughout the heavily trafficked Baltic Sea—from near and distant ships, underwater drilling, seismic events, waves
+and even sea creatures. To avoid this, the sonar buoy, once in place, would emit a sequence of unique low frequency
+tonal sounds—much like those emitted by a flute or a piano—that would be recognized by the timing device and, after
+a pre-set hours of delay, trigger the explosives. (“You want a signal that is robust enough so that no other signal could
+accidentally send a pulse that detonated the explosives,” I was told by Dr. Theodore Postol, professor emeritus of
+science, technology and national security policy at MIT. Postol, who has served as the science adviser to the Pentagon’s
+Chief of Naval Operations, said the issue facing the group in Norway because of Biden’s delay was one of chance: “The
+longer the explosives are in the water the greater risk there would be of a random signal that would launch the
+bombs.”)
+On September 26, 2022, a Norwegian Navy P8 surveillance plane made a seemingly routine flight and dropped a sonar
+buoy. The signal spread underwater, initially to Nord Stream 2 and then on to Nord Stream 1. A few hours later, the
+high-powered C4 explosives were triggered and three of the four pipelines were put out of commission. Within a few
+minutes, pools of methane gas that remained in the shuttered pipelines could be seen spreading on the water’s surface
+and the world learned that something irreversible had taken place.
+
+**FALLOUT**
+
+In the immediate aftermath of the pipeline bombing, the American media treated it like an unsolved mystery. Russia
+was repeatedly cited as a likely culprit, spurred on by calculated leaks from the White House—but without ever establishing a clear motive for such an act of self-sabotage, beyond simple retribution. A few months later, when it
+emerged that Russian authorities had been quietly getting estimates for the cost to repair the pipelines, the New York
+Times described the news as “complicating theories about who was behind” the attack. No major American newspaper dug into the earlier threats to the pipelines made by Biden and Undersecretary of State Nuland.
+While it was never clear why Russia would seek to destroy its own lucrative pipeline, a more telling rationale for the
+President’s action came from Secretary of State Blinken.
+Asked at a press conference last September about the consequences of the worsening energy crisis in Western Europe,
+Blinken described the moment as a potentially good one:
+_“It’s a tremendous opportunity to once and for all remove the dependence on Russian energy and thus to take away from_
+_Vladimir Putin the weaponization of energy as a means of advancing his imperial designs. That’s very significant and_
+_that offers tremendous strategic opportunity for the years to come, but meanwhile we’re determined to do everything we_
+_possibly can to make sure the consequences of all of this are not borne by citizens in our countries or, for that matter,_
+_around the world.”_
+More recently, Victoria Nuland expressed satisfaction at the demise of the newest of the pipelines. Testifying at a
+Senate Foreign Relations Committee hearing in late January she told Senator Ted Cruz, “Like you, I am, and I think the
+Administration is, very gratified to know that Nord Stream 2 is now, as you like to say, a hunk of metal at the bottom
+of the sea.”
+The source had a much more streetwise view of Biden’s decision to sabotage more than 1500 miles of Gazprom pipeline as winter approached. “Well,” he said, speaking of the President, “I gotta admit the guy has a pair of balls. He said
+he was going to do it, and he did.”
+Asked why he thought the Russians failed to respond, he said cynically, “Maybe they want the capability to do the
+same things the U.S. did.
+“It was a beautiful cover story,” he went on. “Behind it was a covert operation that placed experts in the field and
+equipment that operated on a covert signal.
+“The only flaw was the decision to do it.”
+_https://seymourhersh.substack.com/p/how-america-took-out-the-nord-stream_
+
+**Deutsche Übersetzung**
+
+**Englische Original nachfolgend**
+
+## Vortrag von Harvard-Ökonomen Jeffrey Sachs in der Ungarischen
+ Nationalbank am 20. Dezember 2022
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Die vollständige Rede (54 Minuten) ist auf dem YouTube Kanal der Ungarischen Nationalbank:
+_https://www.youtube.com/watch?v=BZiZPwtsre4_
+
+Titel: Jeffrey D. Sachs: The Role of Sustainability Amidst Current Global Crises
+Im Folgenden finden Sie die ersten 20 Minuten der Rede ungekürzt:
+
+Und was für ein Vergnügen es ist, zusammen zu sein. Und ich hoffe wirklich, dass wir auch einen Dialog führen können,
+damit ich höre, was ihnen durch den Kopf geht, und dass wir gemeinsam über die Komplexität der heutigen Welt
+nachdenken können, die, technisch ausgedrückt, ein Chaos ist. Wir haben es wirklich mit mehr Krisen, mehr Verwirrung und mehr Meinungsverschiedenheiten zu tun, als ich mich in meiner beruflichen Laufbahn, die nun schon 42
+Jahre andauert, erinnern kann.
+Vielen Dank für die Erinnerungen an die Zeit vor 30 Jahren. Der Beginn der Transformation. Ich möchte kurz zehn
+Jahre zurückgehen, denn ich habe in den 1970er Jahren Wirtschaftswissenschaften studiert, und das war eine Ära der
+Stagflation, wie wir sie jetzt haben, mit hoher Inflation und grossen Schocks für die Produktion. Und ich dachte, das
+wäre eine gute Sache, um eine Dissertation darüber zu schreiben.
+In meiner Dissertation von 1980 ging es also um Stagflation und Angebotsschocks, und mein erstes Buch hiess ‹The
+Economics of Worldwide Stagflation› (Die Ökonomie der weltweiten Stagflation), was dieses Jahr genau 40 Jahre her
+ist. Ich erlebe also gerade ein Déjà-vu von vor 40 Jahren, denn die Stagflation ist wieder da. Ich habe sie also schon
+einmal gesehen, und das stimmt mich nachdenklich. Ich wollte es nicht noch einmal so sehen, wie die Stagflation der
+1970er Jahre, so viele der Ursachen unserer Krise sind von Menschen gemachte Fehler und Irrtümer.
+Wir haben es wieder getan, und wir sollten wirklich besser aus der Vergangenheit und den Ereignissen von vor 30
+Jahren lernen. Diese frühen Tage der Transformation werfen auch heute noch einen grossen Schatten auf uns, und
+zwar in einer Weise, die ich nicht erwartet hatte, denn nachdem ich mich Anfang der 1980er Jahre mit der Stagflation
+befasst hatte, erlebten wir in den 1980er Jahren weltweit eine schreckliche Wirtschaftskrise, in den Entwicklungsländern und in Mittel- und Osteuropa.
+Natürlich war die grosse Schuldenkrise zum Teil auf das Ende dieser Stagflationsperiode zurückzuführen. Sie werden
+sich an die hohe Inflation in den frühen achtziger Jahren erinnern, oder vielleicht erinnern Sie sich auch nicht, das ist
+längst Geschichte. Aber zur Zeit der hohen Inflation in den späten siebziger und frühen achtziger Jahren, nach einigen
+gescheiterten Versuchen, die Inflation zu kontrollieren.
+Schliesslich bekamen die Vereinigten Staaten einen neuen Gouverneur unserer Zentralbank, der Fed, der zwei Meter
+gross war und grosse Zigarren rauchte. Paul Volcker. Und er erhöhte die Zinssätze in den USA auf 20%, was während
+einer tiefen Rezession beispiellos war, beendete die hohe Inflation in den USA, löste aber weltweit eine Schuldenkrise
+aus. Das hat meine Karriere begründet.
+Ich muss sagen, Gott sei Dank für Volcker und seine grossen Zigarren, denn so viele Länder riefen an und sagten, wir
+haben eine grosse Schuldenkrise. Und 1985 ging ich nach Bolivien, das eine massive Schuldenkrise und eine Hyperinflation als Folge der Schuldenkrise hatte, ganz klassisch. Und so half ich ihnen, die Hyperinflation zu beenden, zum
+Teil durch Ablehnung der Schulden, und das war eine Idee, die ich aus den 1920er und 1930er Jahren übernommen
+hatte.
+So wiederholte sich die Geschichte. Und in den zwanziger und dreissiger Jahren wurden die Schuldenkrisen zum Teil
+durch Zahlungsausfälle oder Neuverhandlungen oder Streichung der Schulden beendet. Manchmal zu spät, manchmal
+erst nach dem Zweiten Weltkrieg. Aber auf jeden Fall habe ich diese Ideen aufgegriffen und Bolivien geholfen, seine
+Schulden zu erlassen, und die Inflation wurde beendet. Und dann, Anfang 1989, rief mich ein Beamter der polnischen
+Botschaft in Washington an, der nach Harvard kam und sagte: Wir haben auch eine Schuldenkrise.
+Können Sie uns die Schulden erlassen? Und das war im Januar 1989. Und ich sagte, ich muss gestehen, ich bin wirklich
+auf der Seite von Solidarność. Es ist unter Lech Walesa, er steht unter Hausarrest, und es herrscht Kriegsrecht. Ich
+kann Ihnen nicht wirklich helfen. Und er sagte, er habe verstanden und rief mich vier Wochen später zurück und sagte,
+wir werden das Kriegsrecht aufheben. Kommen sie jetzt?
+Das war nicht mein Werk. Es war eine Sache des Timings. Und so kam ich am 4. April 1989 in Warschau an, dem Tag
+der Unterzeichnung des Abkommens am Runden Tisch zwischen der Regierung von Präsident Jaruzelski und der Solidarnosc-Bewegung. Ich wurde für ein paar Monate Berater der Regierung und Solidarność. Und dann nach den Wahlen am vierten Juni in Polen für die Solidarnosc-Bewegung allein.
+Und ich sage nur ein Wort zur Schocktherapie, nämlich da sie fragten: Was sollen wir tun? Wir sind pleite, wir sind
+bankrott. Es ist hoffnungslos. Ich sagte: «Es ist ganz einfach. Eure Schulden werden gestrichen, also macht euch keine
+Sorgen um die Schulden.» Und sie sahen mich an, als wäre ich verrückt, was ich wahrscheinlich auch war. Aber ich
+wurde gebeten, einen Plan für Markt und Wirtschaft zu schreiben, und das geschah in der Wohnung eines wunderbaren polnischen Führers namens Jacek Kuron, der aus dem Gefängnis kam und Arbeitsminister wurde, und er war ein
+enger Berater von Lech Walesa.
+Und so verbrachte ich eines Abends etwa 4 Stunden damit, ihm meine Vorstellung von einer marktwirtschaftlichen
+Reform zu schildern. Und er sprach kein Englisch. Ich sprach kein Polnisch. Wir hatten einen Übersetzer. Es gab viel
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Rauch und eine Menge Whiskey, den er trank. Und alle paar Minuten klopfte er auf den Tisch. «Tak rozumiem! Tak
+rozumiem!» Ich habe verstanden.
+Und am Ende, so gegen Mitternacht, sagte er zu mir, okay, du musst das jetzt schreiben. Wir brauchen das in einem
+Memo. Und ich sagte, natürlich, Herr Kuron, ich fahre morgen Abend zurück in die Vereinigten Staaten und werde es
+Ihnen per Fax schicken, zumindest innerhalb von zwei Wochen. Nein, morgen früh. Es ist Mitternacht.
+Und so gingen wir in einen Kindergartenraum mit dem Manager der Gazette…(?). Und sie hatten einen neuen IBMLaptop, der damals brandneu war und den die USA ihnen geschenkt hatte. Und ich tippte die ganze Nacht ein Memo
+und gab es um 7 Uhr morgens an Kuron zurück, wie man eine Marktwirtschaft macht. Das war also meine Nachtschicht, in der ich das geschrieben habe.
+Wenn jemand daran interessiert ist, kann ich es gerne per E-Mail schicken, denn viele Jahre später fand es jemand in
+den Archiven und schickte es mir zu. Ich habe also eine Kopie von dieser ‹Nachtschicht›, und das wurde die Grundlage
+des Balcerowicz Plans, und zwar in erheblichem Masse. Und die Idee war, die Währung konvertierbar zu machen
+**und die Grenzen für den Handel sofort zu öffnen.**
+**Das war die Grundidee. Der Schlüssel dazu war der von mir empfohlene Polnische Zloty-Stabilisierungsfonds,**
+**der Reserven für diese neue konvertierbare Währung bereitstellen sollte. Und der zweite war der Schulden-**
+**erlass. Und diese Theorie wurde die Sieben-Postkarten-Theorie genannt, denn in der Nacht, in der Mazowiecki an die**
+Macht kam, gab es ein Treffen der OKP(?), der polnischen Solidarnosc-Abgeordneten im Parlament, und sie lu**den an diesem Abend zwei Redner ein.**
+
+**Externe Redner. Der eine war Senator Dole, der wichtigste Senator der USA, und er vertrat Präsident Bush.**
+
+**Und sie luden mich ein, zu sprechen. Und es hat sehr gut geklappt, denn Senator Dole sprach zuerst und sagte,**
+**dass das amerikanische Volk alles für die Freiheit Polens tun würde. Und dann stand ich auf und sagte: «Ich**
+stimme Senator Dole zu.»
+**Und deshalb bin ich mir sicher, dass Amerika alle Schulden Polens erlassen wird. Und deshalb habe ich gesagt,**
+der Ausweg sind sieben Postkarten, eine an jedes der G7-Länder, und sagt ihnen, vielen Dank. Aber die Schulden aus
+der Sowjetzeit sind weg. Und am Ende wurden Polen etwa 60% seiner Schulden erlassen. Der letzte Schritt war
+Deutschland, denn Deutschland war, wie Sie sich vorstellen können, sehr resistent gegen einen Schuldenerlass.
+Ich schickte Balcerowicz eine Kopie des Londoner Abkommens von 1953 zwischen dem postnazistischen Deutschland und dem Westen, in dem die deutschen Schulden aus der Zeit vor dem Zweiten Weltkrieg gestrichen wurden,
+und Balcerowicz übergab sie Helmut Schmidt, der sie sich bei dem Treffen ansah und sagte: «Wissen Sie, Sie haben
+Recht.» Und am Ende hat Deutschland den Schuldenerlass auch unterstützt, nicht zu 100%, wie ich wollte, sondern
+zu 60%.
+Das waren also die Ursprünge davon. Aber ich hoffe, es lohnt sich, in Erinnerungen zu schwelgen, um einen geopolitischen Punkt anzusprechen: Nachdem das passiert war, wurde ich von Grigori Jawlinski, dem Berater von Gorbatschow, gebeten, Präsident Gorbatschow 1990 zu helfen. Und ich glaubte, dass Gorbatschows Idee, die er das
+**gemeinsame europäische Haus nannte, genau die richtige Idee für Europa und für die Sowjetunion war.**
+**Das war vor dem Ende der Sowjetunion. Aber Gorbatschow sagte, wir sollten eine demokratische Sowjet-**
+**union haben und sie sollte offen sein, völlig offen, und wir sollten ein friedliches europäisches Haus haben. In**
+**der Tat erstreckt sich das von Rotterdam bis Wladiwostok. Ich habe Gorbatschow geliebt. Ich hielt ihn für**
+**einen Mann von unglaublicher Integrität und Anstand, im Grunde genommen. Weil er glaubte, dass man keine**
+**Menschen erschiesst.**
+**Das war sein wichtigster Glaube. Erschiesst keine Menschen. Das war bemerkenswert für einen sowjetischen**
+**Führer. Und es war die grösste Staatskunst seiner Zeit. Und so ging er, wie Sie wissen, mit Ungarn in jeder Hinsicht**
+voran, öffnete die Grenzen und zeigte den anderen Weg. Gorbatschow sagte, wir werden den Warschauer Pakt
+**auflösen. Und es geschah zu der Zeit, dass Helmut Kohl und Hans-Dietrich Genscher und George Bush und**
+**James Baker sagten: «Wow, das ist gut. Das ist grossartig. Wenn ihr das tut, werden wir die NATO nicht einen**
+**Zentimeter nach Osten verschieben.» Und so wurde 1990 eine Vereinbarung getroffen. Es ist eine sehr expli-**
+**zite Abmachung. Es ist nicht nur ein Gespräch. Es war tatsächlich eine sehr intensiv diskutierte und ausge-**
+**handelte Vereinbarung. Die Abmachung wurde also getroffen. Der Warschauer Pakt endet, die NATO bewegt**
+**sich überhaupt nicht. Deutschland wird wiedervereinigt. Und das war die Vereinbarung.**
+Und ich glaubte an dieses Abkommen und glaubte an Gorbatschow. Und ich empfahl, dass die Sowjetunion auch finanzielle Hilfe erhält, weil sie sich in einem Zustand des Zusammenbruchs befand, ein gescheitertes Wirtschafts-system, katastrophale soziale Bedingungen. Und Gorbatschow hatte natürlich Mitte der 1980er Jahre kurzfristig eine
+Menge Kredite aufgenommen, um das System zu stützen. Und all diese Schulden wurden fällig, und die Ölpreise waren
+Ende der 1980er Jahre zusammengebrochen.
+**Die Sowjetunion befand sich also in einer sehr scharfen, kurzfristigen Finanzkrise. Zusammen mit Jawlinski**
+**und einigen meiner Kollegen in Harvard verfassten wir ein Dokument, das wir ‹Grand Bargain› nannten. Es**
+**sah vor, dass Gorbatschow die demokratischen Reformen fortsetzen und der Westen der Sowjetunion bei der**
+**finanziellen Umgestaltung helfen würde, damit die wirtschaftliche Umgestaltung stattfinden konnte.**
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Interessanterweise wurde dieser Vorschlag dem Weissen Haus im April 1991 vorgelegt. Es basierte auf den-**
+**selben Prinzipien wie die polnische Episode. Er wurde vom Weissen Haus vollständig abgelehnt. Wir machen**
+**keine Absprachen. Wir leisten keine Hilfe, keine Finanzierung für die Sowjetunion, gar nichts. Und ich war**
+**ein wenig überrascht. Gorbatschow war noch etwas überraschter. Er kam vom G-7-Gipfel in Houston zurück,**
+**nur um in jenem Sommer bei einem Putschversuch entführt zu werden.**
+**Er kam mit leeren Händen zurück, und das war das Ende der Sowjetunion. Und das Ende von Gorbatschow**
+**und Jelzins Aufstieg. Und nur um fortzufahren, denn ich werde gleich im November zum aktuellen Zeitpunkt kom-**
+men. Im September 91 erhielt ich einen Anruf von Jegor Gaidar, der sagte, es werde ein unabhängiges Russland geben,
+kommen sie Russland helfen bei den Wirtschaftsreformen.
+Also ging ich zurück nach Moskau in eine Datscha ausserhalb von Moskau. Eine ziemlich heruntergekommene Datscha, nebenbei bemerkt. Es war offensichtlich. Das war ein Imperium am Boden, und wir arbeiteten an einer Strategie.
+Damals, im November, kamen die Finanzdelegierten der G-7-Staaten in einer Mission unter der Leitung von David
+Mulford nach Moskau. Und Gaidar, ich habe ihn gecoacht. Ihr müsst um einen Schuldenstopp bitten, um finanzielle
+Hilfe, dies und das und das.
+Und ich erinnere mich, dass er aus der Sitzung herauskam und schrecklich aussah, und ich sagte, was ist passiert,
+Jegor? Er sagte, sie sagten nicht nur, dass sie keine Hilfe leisten, sondern sie sagten, wenn ihr nicht jeden fäl**ligen Penny bezahlt, werden wir jegliche Hilfe auf dem Meer, jegliche Lebensmittellieferungen, alles in die-**
+**sem Moment stoppen. Also wurde er mit einer harten Linie blockiert. Das war Russland, nicht die Sowjet-**
+**union.**
+**Das war, als Jelzin im November 1991 an die Macht kam. Nun, die Reformen liefen nicht gut in Russland. Sagen**
+wir, ich habe zwei Jahre durchgehalten. Meine Aufgabe war es, zu versuchen, westliches Geld zu bekommen. Ich
+glaube, sie sahen in mir die einzige Chance, etwas Hilfe zu bekommen. Und ich habe null geliefert, nichts. Und ich
+konnte es nicht verstehen, denn alles was ich in Polen dem Gouverneur und dem stellvertretenden Gouverneur sagte,
+waren sie mit allem einverstanden.
+Und ich habe immer gesagt, ich bin so gut. Und dann waren sie mit allem, was ich über Russland sagte, nicht einverstanden. Aber es war die gleiche Sache und der gleiche Ratschlag. Es ging also um Geopolitik, die ich als junger Mensch
+nicht verstand. Ich dachte, es ging um Wirtschaft, nicht um Geopolitik, aber sie spielten Geopolitik. Ich habe Wirtschaft
+gespielt. Und so habe ich versucht, gute wirtschaftliche Ratschläge zu geben.
+**Sie versuchten im Grunde, Russland einer neuen unipolaren amerikanischen Welt unterzuordnen. Das habe**
+**ich lange Zeit nicht verstanden. Ich bin zurückgetreten und war sehr unglücklich und habe mich dann mit vielen**
+anderen Dingen beschäftigt, mit der UNO, der nachhaltigen Entwicklung, dem Klima und anderen Dingen, die wirklich
+wichtig sind, aber bis heute liegt dieser geopolitische Schatten über der Welt. Die USA sind eine Welt, in der
+**‹wir gegen sie› kämpfen. Das ist die Mentalität. Wir regieren die Welt. Entweder du bist auf unserer Seite oder**
+**du stehst auf der anderen Seite. Und das ist eine sehr harte, falsche Sicht der Welt, denn alle Dinge, die wir in**
+**dieser Welt wirklich brauchen, müssen gemeinsam getan werden. Sie können nicht im Rahmen eines kalten**
+**Krieges erledigt werden.**
+Die Klimakrise, die allgemeinen Umweltkrisen, die globalen sozialen Krisen sind keine Fragen des Kalten Krieges. Es
+sind globale Probleme. Und deshalb brauchen wir eine völlig andere Denkweise als die, die wir derzeit haben.
+**Meiner Erfahrung nach ist das grösste Problem, das wir haben, die Denkweise der USA, dass wir einen ande-**
+**ren Kampf führen. Wir kämpfen nicht gegen den Klimawandel, wir kämpfen nicht gegen die Armut, wir kämp-**
+**fen gegen einen Feind. Heute ist der Feind vor allem China und Russland, aber es ist immer jemand auf der**
+**anderen Seite. Und damit habe ich jeden Tag zu kämpfen. Die grösste Herausforderung mit der ich in meiner**
+praktischen Arbeit, die ich zu fördern versuche, konfrontiert bin.
+
+**Englisches Original**
+
+### Harvard Economist Jeffrey Sachs Speech
+ at Hungarian National Bank on December 20th, 2022
+
+The full speech is on the YouTube channel of the Hungarian National Bank:
+https://www.youtube.com/watch?v=BZiZPwtsre4
+Titel: Jeffrey D. Sachs: The Role of Sustainability Amidst Current Global Crises
+
+The following are the unedited first 20 minutes of the speech:
+
+And what a pleasure it is to be together. And I really hope we can have a dialog also so I can hear what's on your mind
+and questions and brainstorming together on the complexities of the world today, which is in a technical term, a mess.
+We're really with more crises, more confusion, more disagreements than I can recall during at least my professional
+career, which is now 42 years of professional work in economics.
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Thank you for the reminiscences of 30 years ago. The start of the transformation. And I'll start back ten years before
+that just for a moment, because I studied economics in the 1970s and that was an era of stagflation as we have right
+now, high inflation and big shocks to output. And I thought that's a good thing to write a dissertation about.
+
+So my dissertation in 1980 was on stagflation and supply shocks, and my first book was called The Economics of
+Worldwide Stagflation exactly 40 years ago this year. So I'm living a deja vu from 40 years ago because stagflation is
+back. So I've seen it before and it gives me some thought. I didn't want to see it again this way, like the stagflation of
+the 1970s, so many of the causes of our crisis are human made blunders and mistakes.
+
+We've done it again, and we should really learn better from the past and the events of 30 years ago. Those early days
+of transformation also continue to have a big shadow on today in ways that I didn't expect because after I got involved
+with stagflation in the early 1980s, we had a terrible economic crisis worldwide in the 1980s, in the developing world
+and in Central and Eastern Europe.
+
+Of course, big debt crisis that came in part from the end of that stagflationary period. You will recall that because of
+the high inflation in the early eighties or maybe you won't recall, it's ancient history. But at the time of the high
+inflation of the late seventies and early 1980s, after some failed attempts to control the inflation.
+
+Finally, the United States got a new governor of our central bank, the Fed, who was two meters tall and smoked big
+cigars. Paul Volcker. And he put interest rates up to 20% in the US, which was unprecedented through a deep
+recession, ended the high inflation in the U.S., but created a debt crisis worldwide. That made my career.
+
+I have to say thank goodness for Volcker and his big cigars because so many countries started to call and say, we have
+a big debt crisis. And in 1985, I went to Bolivia, which had a massive debt crisis and a hyperinflation as a result of the
+debt crisis, very classical. And so I helped them to end the hyperinflation, in part by repudiating the debt and that was
+an idea that I took from the 1920s and the 1930.
+
+So it was history repeating itself. And in the twenties and thirties, the debt crises were ended in part through defaults
+or renegotiations or cancellations of the debts. Sometimes too late, sometimes only after World War Two. But in any
+event, I took those ideas and helped Bolivia cancel its debts and the inflation ended. And then in early 1989, I was
+called by an official in the Polish Embassy in Washington who came to Harvard and said, We also have a debt crisis.
+
+Can you cancel our debt? And it was January 1989. And I said, I have to confess, I'm really on the side of solidarity. It's
+under Lech Walesa, he’s under house arrest, and there's martial law. I can't really help you. And he said he understood
+and called me back four weeks later and said, we're going to eliminate martial law. Now, will you come?
+
+That was not my doing. It was just the matter of timing. And so I arrived in Warsaw, April 4th, 1989, the day of the
+signing of the round table agreement between the government of President Jaruzelski and the Solidarity Movement.
+And I became an advisor to the government and to Solidarity for a couple of months. And then after the June four
+elections in Poland to the Solidarity movement alone.
+
+And I'll say one one word about shock therapy, which is that they asked, What should we do? We're broke, we're
+bankrupt. It's hopeless. I said, It's easy. Your debts are going to be canceled, so don't worry about the debt. And they
+looked at me a little bit like I was crazy, which I probably was. But I was asked to write a plan for market and economy,
+and it was in the apartment flat of a wonderful Polish leader named Jacek Kuron, who went from jail to become the
+minister of Labor, and he was a close adviser to Lech Walesa.
+
+And so one night I spent about 4 hours describing my idea of what a market economy reform would look like. And he
+didn't speak English. I didn't speak Polish. We had a translator. There was a lot of smoke, a lot of whiskey that he was
+drinking. And every few minutes he'd pound on the table. Tak rozumiem! Tak rozumiem! I understand.
+
+And at the end of this, at about midnight, he said to me, okay, you have to write this now. We need this in a memo. And
+I said, of course, Mr. Kuron, I'm going back to the United States tomorrow night and I will send it to you by fax, at least
+within two weeks. No, tomorrow morning. It's midnight.
+
+And so we went to a kindergarten room with the manager of the Gazette…(?). And they had a new IBM laptop, which
+was brand new at the time that the U.S. had given them. And I typed a memo all night, and at 7 a.m. gave it back to
+Kuron, how to make a market economy. So that was my all nighter of writing this.
+
+If anyone's interested, I'd be happy to email it to you because many years later someone found it in the archives and
+sent it to me. So I actually have a copy of that all nighter, and that became the basis of the Balcerowicz Plan to an
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+important extent, actually. And the idea was to make the currency convertible and open the borders to trade
+**right away.**
+
+**That was the basic idea. And to back it up with two core financial steps, one was a lot of aid and the key was**
+**something I recommended called the Polish Zloty Stabilization Fund, which was to give reserves for this new**
+**convertible currency. And the second was debt cancellation. And that theory became called the seven postcards**
+theory, because the night that Mazowiecki came into power, there was a meeting of the OKP(?), which was the Polish,
+**the Solidarity members of Parliament, and they invited two speakers that night.**
+
+**Outside speakers. One was Senator Dole, who was the U.S. chief senator, and he was there representing**
+**President Bush. And they invited me to speak. And it worked out very well because Senator Dole spoke first**
+**and said the American people will do anything for the freedom of Poland. And then I stood up and I said, I agree**
+with Senator Dole.
+
+**And that's why I'm sure that America will cancel all of Poland's debts. And so I said the way out of this is seven**
+postcards, one to each of the G7 countries and tell them, thank you very much. But the Soviet era debts are gone. And
+**in the end, Poland got about 60% of its debts canceled. The last step was Germany, because Germany was very**
+resistant to canceling debt, as you can imagine.
+
+And it took Balcerowicz, I sent Balcerowicz a copy of the 1953 London agreement between post Nazi Germany and
+the West, canceling the pre-World War two German debt and Balcerowicz handed it to Helmut Schmidt, who looked
+at it in the meeting and said, You know, you have a point. And I ended up Germany supported the cancellation of the
+debt also, not 100% as I wanted, 60%.
+
+So that was the the origins of that. But it's worth all this reminiscing, I hope, to make a geopolitical point, which is that
+after that happened, I was asked by Grigory Yavlinsky, who was advisor to Gorbachev to help President Gorbachev in
+1990. And I believed that Gorbachev's idea, what he called the Common European home, was exactly the right
+**idea for Europe and for the Soviet Union.**
+
+**This is before the end of the Soviet Union. But Gorbachev said we should have a democratic Soviet Union and**
+**it should be open, completely open and we should have a peaceful European home. In fact, that stretches from**
+**Rotterdam to Vladivostok. I loved Gorbachev. I thought he was a man of incredible integrity and decency,**
+**basically. Because he believed don't shoot people.**
+
+**This was his most core belief. Don't shoot people. That was remarkable for a Soviet leader. And it was the**
+**greatest statesmanship of the age. And so he, as you know, and Hungary led the way in every way, opening the**
+borders and showing the different path. Gorbachev said we will dismantle the Warsaw Pact. And it happened at
+**the time that Helmut Kohl and Hans-Dietrich Genscher and George Bush and James Baker said, whoa, that's**
+**good.**
+
+**That's big. If you do that, we won't move NATO one inch eastward. And so a deal was made in 1990. It's a very**
+**explicit deal. It's not just a conversation. It was actually a very deeply discussed and negotiated deal. So the**
+**deal was made. Warsaw Pact ended, NATO not moving at all. Germany reunified. And that was the deal.**
+
+And I believed in that deal and believed in Gorbachev. And I recommended that the Soviet Union also get financial
+help because it was in a state of collapse, a failed economic system, a disastrous social conditions. And Gorbachev, of
+course, had borrowed a lot short term in the mid 1980s to try to prop up the system. And all of that debt was coming
+due and oil prices had collapsed at the end of the 1980s.
+
+**So the Soviet Union was in a very sharp short term financial crisis.** **So with Yavlinsky and some of my**
+**colleagues at Harvard, we wrote a document which we called the Grand Bargain, which was that Gorbachev**
+**would continue the democratic reforms and the West would help the Soviet Union with this financial**
+**transformation so that the economic transformation could take place.**
+
+**Interestingly, this was presented to the White House in April of 1991. It was based on the same principles as**
+**the Polish episode. It was completely rejected by the White House. We're making no bargains. We're giving**
+**no help, no financing for the Soviet Union, no nothing. And I was a little surprised. Gorbachev was a little more**
+**surprised. He came back from the G-7 summit in Houston, only to be abducted and kidnaped in that attempted**
+**coup that summer.**
+
+**He came back empty handed and that was the end of the Soviet Union. And the end of Gorbachev and Yeltsin's**
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**rise. And just to continue, because I'm going to come to the current moment in a moment in November. Now, in**
+September of 91, I got a call from Jegor Gaidar, who said, there's going to be an independent Russia, come help Russia
+on the economic reforms.
+
+So I went back to Moscow to a dacha outside of Moscow. Pretty run down dacha, by the way. It showed. This was an
+empire at the bottom, and we worked on a strategy. And at that time in November, the G-7 finance deputies had a
+mission led by David Mulford, to come to Moscow. And Gaidar, I coached him. You have to ask for a debt standstill
+financial help this, this, this and this.
+
+And I remember, he came out of the meeting looking terrible, and I said, what happened, Jegor? He said, not only did
+**they say no help, but they said, if you don't pay every penny that's due, we will stop any help on the ocean, any**
+**food shipments, anything this moment. So he was given a complete hard line block. This was Russia, not the**
+**Soviet Union.**
+
+**This was Yeltsin coming to power in November 1991. Well, the reforms did not go well in Russia. Let's say I**
+lasted two years. My role was to try to help get Western money. I think they saw me as the only chance to get some
+relief. And I delivered zero or nothing. And I couldn't understand it because in Poland I was saying to the governor
+and the deputy governor, everything I said, they agreed to.
+
+And I kept saying, I'm so good. And then everything I said about Russia they disagreed with. But it was the same thing
+and same advice. So it was geopolitics, which I didn't understand as a young person. I thought we were doing
+economics, not geopolitics, but they were playing geopolitics. I was playing economics. And so I was trying to give
+good economic advice.
+
+**They were trying to basically make Russia subservient to a new unipolar American world. I did not**
+**understand that for a very long time. I resigned and was very unhappy and went to work on many other things**
+with the UN and sustainable development and climate and other things that are really crucial, **but till today this**
+**geopolitical shadow also loomes over the world. The US is a us versus them world. This is the mentality. We**
+**run the world. You are with us or you are on the other side. And it is a very tough, wrong vision of the world,**
+**because all of the real things we need in this world, need to be done collaborately. They cannot be done under**
+**a cold war.**
+
+The climate crises, the broader environmental crises, the global social crises are not cold war issues. They are global
+issues. And so we need a completely different mind set from the mind set we are having right now. **The biggest**
+**problem we are having, in my experience, is the US mind set, which is that we are fighting a different battle.**
+**We are not fighting against climate change, we are not fighting against poverty, we are fighting against an**
+**enemy. Today the enemy is China, mainly, and Russia, but it is always someone on the other side. And this is**
+**what I grapple with every day. The biggest challenge that I face in the practical work that I am trying to promote.**
+
+COPYRIGHT und URHEBERRECHT 2022 bei ‹Billy› Eduard Albert Meier, ‹Freie Interessengemeinschaft Universell›, Semjase Silver Star
+Center, 8495 Schmidrüti, Schweiz. Kein Teil dieses Werkes, keine Photos und sonstige Bildvorlagen, keine Dias, Filme, Videos und keine
+anderen Schriften oder sonstige Materialien usw. dürfen ohne schriftliche Einwilligung des Copyrightinhabers in irgendeiner Form (Photokopie, Mikrofilm oder ein anderes Verfahren), auch nicht für Zwecke der Unterrichtsgestaltung usw., reproduziert oder unter Verwendung elektronischer Systeme verarbeitet, vervielfältigt oder verbreitet werden.
+
+Veröffentlicht auf www.FIGU.org durch:
+‹Freie Interessengemeinschaft Universell›, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+

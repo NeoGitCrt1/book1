@@ -1,0 +1,404 @@
+# Gespräch zwischen Quetzal von der plejarischen Föderation und ‹Billy› Eduard Albert Meier, BEAM
+
+## Siebenhundertvierundsechzigster Kontakt Dienstag, 26. Januar 2021, 23.11 h
+
+**Quetzal Eduard, da bin ich wieder, sei gegrüsst. Leider hat es länger gedauert als vorgesehen war, wie es sich eben manch-**
+mal ergibt. Noch bin ich eben rundumgegangen und habe beim grossen Platz, wo die Gefährte parkiert werden, gesehen,
+dass eine Arbeitsmaschine dort hingestellt wurde, die nicht dorthin, sondern an ihren üblichen Standort gehört. Das entspricht einer Ordnungswidrigkeit, die sich nicht gehört und …
+
+**Billy** Ja, du sprichst wohl vom Bagger, den Jacobus dort hingestellt und eben nicht zum Lagerplatz hinuntergebracht
+hat.
+
+**Quetzal Das ist die Bezeichnung, wie du diese Arbeitsmaschine einmal genannt hast. Jacobus soll diese Maschine um-**
+gehend an den Ort bringen, wo sie hingehört. Er tendiert leider immer wieder zur Unordentlichkeit, wozu er endlich lernen
+soll, dass sich diese nicht gehört und für das Center und die Einwohner Ärger bringt, weil er sich nicht an die erforderliche
+Ordnung hält und dadurch unter Umständen auch grossen Schaden heraufbeschwört. Meine diesbezüglichen Aufzeichnungen der letzten Wochen zeigen exakt das auf, denn mehrmalig haben sich vorbeigehende Personen darüber ausgelassen.
+Zwei Personen haben auch böswillig darüber gesprochen, an der Arbeitsmaschine weitgehenden Schaden zu verursachen.
+
+**Billy** Das würde gerade noch fehlen. Es war ja wirklich genug damit, was an Schaden angerichtet wurde, als wir 1977
+als sogenannte ‹fremde Fötzel› ins Center zogen. Aber weisst du, immer und immer wieder habe ich Jacobus gesagt, dass
+er die Ordnung einhalten und jede Maschine sowie jedes Werkzeug an den Ort versorgen soll, wo alles eben hingehört.
+Leider kann ich nicht mehr als nur reden, und wenn ich etwas sage, dann wird reklamiert.
+
+**Quetzal Das ist mir bekannt, und dieses Verhalten ist weder gemeinschaftsverhaltend förderlich, noch anstandsent-**
+sprechend, sondern querulierend und schändlich und zeugt von infamer sowie bösartiger Respektlosigkeit gegenüber dir,
+wie es auch einer überheblichen Selbstherrlichkeit entspricht, die sich schadenbringend auf ihn selbst, die Gemeinschaft
+und den Ruf der FIGU auswirkt, folglich er – von dir abgesehen – keine Freunde hat, sondern nur Leute, die ihm zudienen,
+um der FIGU hilfreich zu sein.
+
+**Billy** Das, Quetzal, hast du nun gesagt, doch trotzdem wird mir deswegen Jacobus auf die Pelle rücken, denn er wird die
+Sache weder begreifen noch akzeptieren, weil er nur seiner Überheblichkeit usw. lebt und alles andere missachtet. Schon
+das, was ich gerade jetzt gesagt habe, wird er beschimpfen und mit unerfreulichen Äusserungen quittieren. Daher, mein
+Freund, ist es besser, nicht weiter darüber zu reden und ihm nur zu sagen, dass er den Bagger dorthin fahren soll, wo er
+hingehört, wozu ich aber schon seine Ausreden höre.
+
+**Quetzal In seiner Selbstherrlichkeit wird ihm nicht bewusst, wie du dich als sein einziger und ehrlicher Freund um ihn**
+bemühst, folglich er sich in infamer Weise gegen dich stellt und sich nicht bemüht, die Wahrheit zu erkennen, sondern dich
+in seiner verdrehten Gedankenwelt beschimpft und dich als das sieht, was er im Grunde seines Charakters selbst ist.
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Billy** Darüber sollten wir nicht weiterreden, denn es bringt nichts als Ärger, weshalb ich auch nichts davon sagen werde,
+
+was wir jetzt geredet haben.
+
+**Quetzal Das wäre nicht des Rechtens, also will ich, dass du unser Gespräch auch abrufst und schreibst, um das Ganze ihm**
+zu übergeben.
+
+**Billy** Wenn du darauf bestehst, dann gibt es Ärger – sagte ich doch.
+
+**Quetzal Ja, ich bestehe darauf, denn was gesagt wurde, muss einmal offen gesagt sein.**
+
+**Billy** Dann kann ich mich ja jetzt schon bedanken – es wird sicher erfreulich sein, weil es bestimmt in den falschen Hals
+
+geraten und Schluckbeschwerden bereiten wird, die nur durch Beschimpfungen aufgelöst werden können. Aber lassen wir
+das jetzt, bitte. Es reicht ja wirklich.
+
+**Quetzal Es wäre aber noch viel zu sagen.**
+
+**Billy** Das haben wir ja auch, doch eben anderes, was nämlich wichtiger ist.
+
+**Quetzal Womit du recht hast, denn es fallen diverse Dinge an, die rundum zu tun sind, die ich dir jedoch nur erkläre, du**
+diese jedoch nicht abrufen und nicht aufschreiben sollst. Dabei handelt es sich um zu verrichtende Arbeiten im Wald und
+Gelände sowie um die Sicherheit in bezug auf …, worüber besonders nicht zu viel gesagt werden soll. Also will ich damit
+beginnen: …
+
+**Billy** Das kann ich alles im Gedächtnis behalten, um es dann auch notwendigerweise erklären und anordnen zu können.
+
+Ist zwar etwas viel, aber das schaffe ich sicher noch.
+
+**Quetzal Das ist wohl fraglos. Dann möchte ich noch darauf zu sprechen kommen, was die Seuchen-Pandemie betrifft, die**
+wir aufmerksam verf…
+
+**Billy** Entschuldigung, wenn ich dich unterbreche, denn Ptaah und ich haben beschlossen, darüber nicht mehr zu reden,
+
+wenn nicht eine Notwendigkeit dazu besteht.
+
+**Quetzal** Das habt ihr für euch zwei zusammen beschlossen, jedoch nicht mit mir, folglich wir darüber reden können.
+
+**Billy** Wo du recht hast, da hast du eben recht, mein Sohn. Dann gut, … Aber eine Frage habe ich noch in bezug auf den
+
+Bagger: Was ist denn mit all den anderen Fahrzeugen usw., die auf dem Parkplatz stehen und nicht der FIGU gehören,
+sondern privat von Andreas und Atlantis sind? Was wurde denn derbezüglich geredet von den Vorbeigehenden? Was ist
+auch allgemein rund um das Center, denn da ist ja ein öffentlicher Gemeindeweg und auch ein Flurweg, die beide auch von
+irgendwelchen fremden Leuten begangen werden. Da müsstest du doch folglich deiner Apparatur oder so auch wissen, was
+gesprochen wird, oder?
+
+**Quetzal** Das ist richtig, ja. Was nun die anderen Fahrhaben betrifft, die du angesprochen hast, dazu habe ich bisher in
+keinerlei Aufzeichnungen Beanstandungen oder auch nur irgendwelche Bemerkungen feststellen können. Beanstandet
+werden nur Arbeitsgeräte und Arbeitsmaschinen. Was ich immer wieder aus Gesprächen hören kann, sind wundrige Fragen
+bezüglich dem, was denn das Ganze rund um die FIGU wirklich sei, wobei jedoch in der Regel die betreffenden Fragepersonen nicht die Courage aufbringen, direkt nachzufragen. Beschimpfungen sind selten, wenn irgendwelche Arbeitsgeräte herumstehen oder Arbeitsmaschinen, mit denen momentan nicht gearbeitet wird, doch gegenteilig dazu werden
+von einheimischen und fremden die Wege begehenden Personen sehr oft anerkennende Unterhaltungen darüber geführt,
+wie sehr ordentlich und reinlich das gesamte Areal um alle Gebäude und auch sonst rundum alles sei. Aber Beanstandungen
+bleiben nicht aus, wenn Arbeitsgeräte oder Arbeitsmaschinen herumstehen und nicht an ihren Ort gebracht werden, wohin
+sie abseits gehören. Leider befinden sich unter den Wegebenutzenden auch immer wieder Personen, die aus Neid, wie aber
+auch mutwillig und daher infolge Absicht, provozierender Boshaftigkeit und Leichtfertigkeit sowie Zerstörungsfreude
+Schaden anrichten oder anzurichten suchen. Unter den die Wege benutzenden Personen sind auch einige wenige aus der
+näheren und weiteren Umgebung, die als Religionsgläubige sich berufen wähnen, infolge ihres Glaubenswahns die FIGU
+fälschlich als gottlose Sekte zu behadern und sie daher auch zu bespitzeln und zu schädigen. Dazu gehören auch Beobachtungen der Innenräume vom Weg her, der am Haupthaus und an der Remise vorbeiführt, weshalb darauf bedacht sein
+muss, dass Sichtschutzbehänge in den Räumen vor den Fernstern angebracht bleiben. Seit ihr meinen Rat befolgt habt und
+im direkten Centerbereich eine Doppel-Überwachungsanlage betreibt, hat sich weitgehend das Spionieren behoben –
+insbesondere direkt rund um die Gebäude und durch das Einsehen durch die Fenster.
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Billy** Das ist tatsächlich so. Zwar ist das Ganze eine recht teure Sache geworden, doch jetzt ist wirklich viel mehr Ruhe
+
+rundum, und zwar sowohl am Tag als auch in der Nacht. Deine Idee bezüglich der Überwachungsanlage hat wirklich Nutzen
+gebracht. Alles völlig einrichten konnten wir noch nicht, denn …
+Das kostet eben auch noch einiges, wie auch noch Zeit und Arbeit, doch schaffen wir auch das und werden wohl bis Ende
+der ersten Februarwoche mit allem fertig sein.
+
+**Quetzal Das ist gut. Dann möchte ich jetzt darauf zu sprechen kommen, was die Seuchen-Pandemie betrifft, denn wie ich**
+diesbezüglich informiert wurde und ich selbst nachgelesen habe, wurde alles, was du mit Ptaah in bezug auf diese Sache
+besprochen hast, auf einer Webseite öffentlich zugänglich gemacht, was auch so sein soll mit dem, was wir jetzt besprechen
+werden. Wenn ich alles überdenke, was ich bisher weiss, dann wird auch das von Bedeutung und wichtig zur Bekanntmachung sein, was nunmehr gesagt wird.
+Wenn nämlich in allen Staaten auf der Erde von den Staatsfungierenden nur halbwegs das Notwendige getan wird, um der
+Seuche Einhalt zu gebieten, dann besteht keinerlei Chance, die Pandemie zum Erliegen zu bringen. Doch von dir möchte
+ich wissen, wie du die für die gesamte Sicherheit der Bevölkerung der Schweiz verantwortlichen Staatsführungsfungierenden in bezug auf deren Intelligentum sowie deren Verantwortungsbewusstsein beurteilst.
+
+**Billy** … – – Du hast eine interessante Bezeichnung für die Regierenden benutzt: Staatsfungierende. Diesen Ausdruck
+
+werde ich mir merken. Aber eben, wie jedem das Seine, so auch jedem seine eigenen verbalen Ausdrücke. Doch du erfragst
+etwas von mir, Quetzal, was ich nicht beurteilen kann, denn ich kenne die Regierenden der Schweiz nicht persönlich, folglich
+ich weder ihre Persönlichkeit, noch ihren Charakter oder ihr Intelligentum beurteilen kann. Was ich aber beurteilen kann,
+das ist ihr saumässig dummes und also unbedachtes, kindisches, unfähiges Handeln, Verordnen und lasches Durchsetzen
+aller erforderlichen Notwendigkeiten, um der Corona-Seuche zu begegnen und sie soweit zum Verschwinden zu bringen,
+dass sie für die Menschen keine akute Bedrohung mehr ist. Wenn man allein dem Schwachsinn bedenkt, der im Bundeshaus
+beschlossen wurde, dass Sportartikelläden, wozu auch Skiverkaufsgeschäfte gehören, geschlossen bleiben müssen, jedoch
+die Skipisten offenbleiben und das Skifahren erlaubt ist, weil dabei weniger Ansteckungsgefahr bestehen soll, dann ist dies
+wohl mehr als nur hirnrissig unbedacht und verantwortungslos. Wenn man sieht, wie z.B. bei den Skiliften 4 Personen
+nebeneinander und teils ohne Masken auf die Berge hochgefahren werden, wie das im Fernsehen zu beobachten war, dann
+fragt sich, inwieweit die Personen, die diesen Schwachsinn gutheissen und noch behaupten, dass beim Skifahren weniger
+Ansteckungsgefahr bestehe als in einem Skiverkaufsshop, dann muss man sich schon fragen, inwieweit bei solchen Personen, die einen derartigen Stuss rauslassen und anordnen, das Intelligentum, die Sachbeurteilungsfähigkeit und das
+Verantwortungsbewusstsein entwickelt sind. Meines Erachtens ist davon nichts und eben alles unter null ...
+
+**Quetzal Du beliebst zu scherzen.**
+
+**Billy** Warum?
+
+**Quetzal Du scherzt doch wirklich, um mich zu erheitern!**
+
+**Billy** Nein, Quetzal, es ist mein Ernst, denn dieser Unsinn wurde tatsächlich vom Bundesrat erlassen.
+
+**Quetzal – Wenn das tatsächlich … – –, wenn eine solcherart Entscheidung wirklich gefällt wurde dann …, nun, dann ist das**
+nicht nur sehr bedauerlich und zudem völlig verantwortungslos, wenn der vorherrschenden Pandemie und deren gefährlicher Infektionsfähigkeit bedacht wird, sondern solche Personen sollten nicht verantwortungsvolle Ämter innehaben
+dürfen, in denen über das Wohl und Wehe der Bevölkerungen zu bestimmen ist.
+
+**Billy** Aber im grossen und ganzen ist das leider doch so, dass solche Leute in den Regierungen sind, weil das Gros der
+
+Völker dies in Ermangelung einer eigenen wertigen Allgemeinbildung, fehlender psychologischer Kenntnisse und mancherlei anderer Kenntnismängel toleriert, sich jedoch auch nicht getraut, dagegen in vernünftigem Rahmen aufzubegehren und
+die Fakten beim Namen zu nennen. Daher kommt es u.a. auch dazu, dass wahrhaft selten Dumme, also Nichtdenkende –
+weil ja Dummheit ein Nichtdenken bedeutet, was nichts mit Blödheit oder sonstigem Bewusstseinsschaden zu tun hat, was
+irrtümlich infolge Unkenntnis als ‹geisteskrank› bezeichnet wird – auf die Strasse gehen und durch Demonstrationen Terror
+veranstalten und Zerstörungen anrichten. Von Verstand und Vernunft ist dabei kein einziges My bei irgendeiner einzigen
+Demonstrationsperson zu finden, sondern nur blinder Glaubenswahn in bezug auf die Demonstrationsurheber und hirnloses Mitläufertum.
+
+**Quetzal Dafür, was du jetzt sagst, dafür wirst du wohl angegriffen und beschimpft werden, weil sich alle, die du damit**
+nennst, in ihrer Person angegriffen fühlen werden.
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Billy** Das wird wohl so sein, denn Dummheit kennt keine Grenzen, denn von Dummen wird niemals begriffen, dass ich
+
+weder ihre Person noch sie als Mensch angreife, sondern einzig und allein nur das beanstande, aufzeige und eben
+attackiere, was sie falsch denken, was sie Falsches tun und was sie überhaupt an falschen Verhaltensweisen an den Tag
+legen, was gegen die menschliche Ehre und Würde und damit gegen die Ethik ist. Und diesbezüglich entsprechen alle
+Ausartungen denselben moralischen Unwerten, denn alle koexistierenden Moralen, egal ob sie besserwisserisch, verschwörungstheoretisch, sektiererisch, finanziell, religiös, politisch, militärisch, regierungsbedingt, gerecht oder ungerecht usw.
+sind, können in gesundem, richtigem gerechtem Rahmen ausnahmslos nur gleich sein, denn grundsätzlich gibt es nur eine
+Ethik. Diese ist in ihrem Wert so oder so immer gleichbleibend, und die hohen Werte und Grundlagen sind in 1. Linie
+vorgegeben für einen guten, sauberen und ehrlichen Umgang mit sich selbst; 2. fällt diesbezüglich der Umgang mit dem
+einzelnen Mitmenschen ins Gewicht, und 3. ist der Umgang mit der menschlichen Gesellschaft zu nennen, wobei bei allen
+3 Umgangsformen ein freies, gepflegtes, respektvolles, ehrliches, gerechtes und rücksichtsvolles Miteinander gewährleistet
+sein soll. Doch die Ethik steht auch in einer 4., 5., 6. und 7. Form an, nämlich 4. das Leben selbst, das in keiner Art und Weise
+jemals geharmt werden soll, und 5. der Planet, der niemals irgendwie nachteilig geschändet werden soll, und 6. die
+Ökosysteme, die niemals in ihrer Funktion beeinträchtigt werden sollen, und 7. die Natur und ihre gesamte Fauna und Flora,
+die gepflegt und niemals in ihrer Art und Weise in ihrem Gedeihen und Leben beeinträchtigt werden, sondern gesamthaft
+allen in Ehre und Würde ein freies, respektvolles sowie ein rücksichtsvolles Hegen und Pflegen gewährleistet sein soll.
+In diesem Gesamtsinn ist die Ethik eine Voraussetzung und Bewertung des richtigen und schöpfungsbedingten menschlichen Handelns und seiner gerechten Verhaltensweisen gegenüber sich selbst, seinen Mitmenschen und allem Lebendigen.
+Deshalb soll sich der Mensch in seinen Gedanken damit befassen und ein methodisches Nachdenken in bezug auf seine
+Moral pflegen, um als Hauptfaktor immer im Zentrum seiner Ethik zu stehen und dadurch seine spezifisch-moralischen
+hohen Verhaltensweisen und sein Handeln zu pflegen, insbesondere hinsichtlich seiner Begründbarkeit und Reflexion in
+bezug auf sein Bedenken aller notwendigen Dinge, seine Besinnung seiner schöpferischen Pflicht, seine Betrachtung aller
+Dinge der Umwelt, sein Denken und Nachdenken in Folgerichtigkeit resp. Logik, und seiner fortwährenden Erwägung im
+Leben und Dasein sich stets bemühend zu sein, nach bestem Vermögen das Wahre, Richtige, Ehrenhafte und Würdige zu
+tun.
+
+**Quetzal** … Du ehrst mich, mein Freund. Es ist mir eine Ehre, deine Worte hören zu dürfen. Noch nie habe ich eine weiterumfassende gleichartige und klarlegende Erklärung bezüglich der Ethik gehört oder gelesen. Deine Darlegung lehrt mich
+etwas, worüber mir bisher noch niemals etwas bekannt wurde, und auch in allem unserem pflichtbelegten Lernen zu
+unserem Wissen, dem wir schon von Kindheit an eingeordnet werden, ist gleicherart nichts gegeben. Danke, mein Freund,
+du …
+
+**Billy** Bitte, Quetzal, dass das, ist ja … OK, auch danke. Dann will ich noch das sagen, wovon ich abgeschweift bin: Weil
+
+eben allgemein die Leute in den Regierungen Menschen sind, die eigentlich nicht an solche Posten gesetzt gehören,
+während andere, die in der gleichen Regierung und in gleichen Positionen mitarbeiten, ihre Fähigkeiten und ihre guten
+Ideen, Überlegungen, Erkenntnisse und wertigen Entschlüsse nicht zur Geltung bringen können, weil diese von den Herrschenden in ihren Reihen einfach abgewürgt werden, da läuft leider vieles schief. Dadurch kommen in der Regel nur jene
+bei Beratungen und Debatten usw. mit Verordnungen und Handlungen usw. zum Zug, die sich verbalgewaltmässig und
+vorherrschend durchsetzen und die andern, die ihren Verstand und ihre Vernunft zu nutzen verstehen, ausser Kraft und
+auf Null setzen und ihnen eben das Wort abschneiden können. Dadurch kommen dann eben die für die Bevölkerungen
+horrenden Unsinnigkeiten und das Schadenbringende zum Beschluss und zur Geltung, anstatt das Gute, Richtige und
+Wertige.
+Siehst du, mein Freund, das ist leider die Wirklichkeit auf unserer guten alten Erde hinsichtlich der Regierungen, und das
+ist nicht nur so bei uns in der Schweiz, sondern weltweit in allen Ländern, in denen die Regierenden sich noch in die Angelegenheiten anderer einmischen, obwohl es sie weder selbst betrifft, noch sie etwas angeht und sie zudem genügend zu tun
+hätten, um im eigenen Land alles demokratie-, ordnungs-, freiheits- und volksgerecht zu regulieren und zurechtzurücken.
+Doch ungeachtet dieser Tatsache reklamieren insbesondere die Weststaaten andere Staaten, speziell Russland, für deren
+Handlungsweisen usw. an, und mischen sich in Dinge ein, die sie überhaupt nicht betreffen, wodurch sie zudem Feindschaft
+und böses Blut schaffen, wie das z.B. auch wieder getan wird hinsichtlich des kriminellen Nawalny, der aus Deutschland
+nach Moskau zurückgekehrt ist und eine Monatsstrafe verbüssen muss, weil er gegen eine bedingte Gefängnisstrafe
+verstossen hat. Und diesbezüglich wird es auch kommen, wie ich weiss, dass der Westen, insbesondere jene Regierenden
+von Deutschland und Frankreich, der EU-Diktaturzentrale in Brüssel, und den USA, die dumm-dreist genug sind, auch
+bezüglich der Nawalny-Demonstrationen Putin zu beharken und sich in die russischen Regierungs-, Sicherheits- und
+Gerichtsbeschlüsse einzumischen und vor allem Putin anzugreifen, obwohl Deutschland, Frankreich, die EU-Diktatur und
+die USA nicht in die Sache involviert sind, jedoch infolge Dummheit mit ihrem irren Tun eine Involvierung provozieren
+werden. Und wenn ich den Mann Nawalny betrachte und ihn zu analysieren suche anhand seiner Physiognomie und seinen
+Äusserungen, dann ergibt sich ein erschreckendes Charakterbild, das verteufelt dem des Ex-US-Präsidenten TrampelTramp-Trump gleicht. Auch sein ganzes Benehmen ist praktisch dasselbe wie bei Trump, zudem lässt sein Gesichtsausdruck
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+und auch das darin für ungeübte Aussenstehende nicht Sichtbare eine tiefgründige Bösartigkeit und Falschheit erkennen,
+die er nutzt, um – wie Trampel-Tramp-Trump das getan hat und weiterhin sucht zu tun – die ihm anhängenden Massen der
+dummen Bevölkerungsteile gegen Putin aufzuhetzen. Diesen will er infolge seiner Machtgier stürzen und selbst das Ruder
+in Russland übernehmen. Und das Aufhetzen seiner dummen Anhänger erfolgt auch aus dem Knast heraus, in dem er einsitzt, doch wie ihm das möglich ist, das kann ich nicht nachvollziehen, denn üblicherweise können doch Gefängnisinsassen
+nicht in dieser Weise nach aussen einfach gewisse Bevölkerungsteile beeinflussen.
+Tatsache ist, dass es in der Regel immer westliche Staaten sind, die sich in die Belange der östlichen Staaten einmischen
+und Forderungen an diese stellen, wobei insbesondere Russland seit alters her für die Weststaaten das beliebteste und
+meist angeprangerte und angegriffene und auch mit Sanktionen drangsalierte Land ist. Und gerade diesbezüglich, eben
+hinsichtlich der Sanktionen, die besonders von den USA, der EU-Diktatur und Deutschland gegen Russland verhängt
+werden, finde ich das Handeln von Putin gut, dass er nämlich auf diese angriffigen Lächerlichkeiten ebenso überhaupt nicht
+reagiert, wie er das auch in bezug auf die Lügen von Nawalny macht, dass der Riesenpalast im Norden des Landes Putin
+gehöre, der jedoch in Wirklichkeit das Eigentum eines russischen Oligarchen ist. Aber natürlich ist es so wie immer, dass
+die dumm-dreisten Anhänger von Nawalny dessen sie indoktrinierende Lügen blindlings glauben und diese nicht hinterfragen. Doch um diese Angriffigkeiten zu unterlassen, derart weit reicht das Intelligentum der westlichen Regierenden und
+Politiker in ihrer überbordenden Selbstherrlichkeit und ihrem Bessersein-Wollen leider nicht. Folglich sind sie in dieser
+Beziehung bohnenstrohdumm, weil sie eben bezüglich einer Sache nicht zu denken und nicht zu überlegen vermögen, was
+ja seit alters her eben Dummsein und Dummheit bedeutet. Daher vermögen sie nur, um ihren Schein zu wahren, grosse
+und dumme Sprüche zu klopfen, sich zu meinen und im Wahn zu leben, gescheit zu sein und dass sie ihre MöchtegernWeisheit mit Schaufelbaggern gefuttert hätten. Das jedenfalls ist für mich bei jenen klar ersichtlich, hörbar sowie am
+Gesicht abzulesen, die im Fernsehen sich wichtig aufspielen und sich als Wissende und Verantwortliche zu geben suchen,
+was aber nicht nur grotesk aussieht, sondern effectiv lächerlich wirkt bei beiderlei Geschlecht. Das aber trifft nicht nur auf
+die Regierenden, sondern auch auf diverse Virologen und sonstige ‹Fachleute› zu, und zwar nicht nur in der Schweiz,
+sondern weltweit beim Gros aller Regierenden und Virologen usw.
+
+**Quetzal Dazu habe ich mir einige solcher Sendungen zu Gemüte geführt, und zwar sowohl Televisionsaufzeichnungen, die**
+in verschiedenen Sprachen in der Schweiz ausgestrahlt wurden, wie aber auch in Deutschland und in diversen Staaten der
+Europa-Union, sowie in Amerika, Südamerika, China, Israel und Japan usw., doch kann ich diesbezüglich nur deine Worte
+bestätigen. Alles entspricht nur einem dummen, lügnerischen und verleumderischen Gerede und Lächerlichkeiten, wie
+solche von unmündigen Kindern an den Tag gelegt werden, die sich grosssprecherisch verhalten, um akzeptiert zu werden
+und um als gebildet und gescheit zu scheinen. Und wenn ich diese von dir genannten unfähigen, hereinbrechendes Geschick
+und verhängnisvolle Missgeschicke hervorrufenden Staatshaushaltenden analysiere, denen die Volksführungsmacht gegeben ist, dann kann ich nur deren diesbezügliche Unfähigkeit feststellen, wie auch, dass deren Intellektum, Verstand und
+Vernunft derart mindere Werte aufweisen, wie diese unseren Halbwüchsigen eigen sind. Gleichermassen ist das meines
+Erachtens auch für alle Lügner- und Verleumdungspersonen zu beurteilen. Und dies gilt ebenso für alle jene, welche dich
+im Internetz durch Lügen und Verleumdungen beschimpfen, deren Namen zu nennen für mich zu schändlich wäre, um sie
+auch nur auszusprechen, weil sie derart mit Verleumdungsschmutz und üblem Gestank belastet sind, dass ich mich allein
+mit der Namensnennung dieser Personen selbst beschmutzen würde. Und das trifft auch auf alle jene zu, welche den
+Lügenden und Verleumdenden infolge ihrer pathologischen Dummheit Glauben schenken und ihnen die Hände reichen,
+um die hassgeschwängerten Unwahrheiten der Lügenden und die Verleumdungen in Schriften und Büchern festzuhalten,
+womit sie vor allem sich selbst als nichtswürdige Lügen- und Verleumdungselemente kund machen, was sie jedoch in ihrer
+krankhaften Dummheit nicht erkennen. Das wollte ich schon oftmals sagen, doch habe ich es immer unterlassen. Jetzt bin
+ich jedoch im Internetz auf die wohl schmutzigsten und charakterlich ausgeartetsten schriftlichen Lügen und Verleumdungen über dich einsichtig geworden, die als Quelle der Veröffentlichung einen offenbar durch Hass und Unwahrheit eines
+kleindenkenden Menschen aufgeführt werden, namentlich von einem, der sich Daniel Gloor nennt, die mich nun drängen
+zu reden.
+
+**Billy** Momoll, du triffst den Nagel auf den Kopf. Dies sowohl in bezug auf die Regierenden, wie auch hinsichtlich der
+
+Lügen und Verleumdungen, worüber sich auch schon andere Personen bei mir gemeldet und angeboten haben, für mich
+eine gerichtliche Klage einzureichen und für alle anfallenden Kosten aufzukommen. Das wollte auch Dr. …, doch will ich
+mich einerseits nicht mit diesem Lügen- und Verleumdungsschmutz befassen, anderseits bin ich auch nicht rachsüchtig,
+wie die mich Verleumdenden, Lügner, Neider und Besserwisser sowie der ebenso krankhaft hassgeschwängerte PharisäerSchreiberling und die anderen ihm gleichtuenden Tartüff-Mucker, wie sie schon Molière als Komödienfiguren beschrieben
+hat. Aber mit diesen Lügen und Verleumdungen will ich mich auch jetzt nicht herumschlagen, denn ich kann all diese in
+bösem Hass Dahinmodernden nur bedauern, weil sie sich ihre eigene Psyche demolieren und in ihrem Leben unzufrieden
+sind, folglich sie auch nie zum Frieden und zur Anerkennung ihrer selbst gelangen werden, was sie aber weder selbst
+wahrnehmen noch verstehen können. Auch bemerken diese Menschen nicht, dass ihnen weder ehrliche Freundschaften
+noch Bekanntschaften zugetan sind, sondern nur auf eigene Zwecke, Profite und Vorteile fixierte Leute, durch die sie nach
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Strich und Faden betrogen und nur ausgenutzt und sofort fallengelassen werden, wenn sie ihre Schuldigkeit getan haben
+und nicht mehr gebraucht werden. Arme und bedauernswerte Menschen sind sie daher allesamt. Mehr ist dazu nicht zu
+sagen.
+Weisst du, Quetzal, zu dem, was vorher unser Thema war, ist noch folgendes zu sagen: Es ist ja nur das Gros der Regierenden
+derart geprägt, wie ich sagte, denn es gibt ja auch noch die Andersdenkenden, die ein gesundes Intellektum aufweisen und
+als Verstand- und Vernunftbegabte zu nennen sind, eben die diesbezügliche Minorität in den Reihen der machtbesessenen
+Regierenden. Diese Minorität besteht aber allüberall nur aus einigen wenigen Uneigennützigen, die um des Volkes Wohl
+ihr Amt ausüben, die zudem halbwegs oder ganz begreifen, was eigentlich grundsätzlich gut und richtig sowie effectiv zum
+Wohl der jeweiligen Bevölkerung getan werden müsste. Und diese sind es in der Regel auch, die sich immer über alles und
+jedes richtig informieren und deshalb auch in der heutigen Zeit wissen und verstehen, was mit der Corona-Seuche
+überhaupt los ist. Folglich sind sie es in den Regierungen, die verstehend damit einhergehen und das Richtige tun wollen.
+Leider ist es jedoch so, dass sie als dem Verstand und der Vernunft trächtige Regierungsmitglieder mit ihren guten Ideen,
+Erkenntnissen und Sachbeurteilungs- Voraussichtsfähigkeiten beim überwiegenden unverständigen und daher unfähigen
+Gros der anderen Regierenden nicht durchkommen und nichts ausrichten können, ja gar schweigen müssen, um nicht
+gepiesackt oder gar ausgestossen zu werden. Folgedem ergibt sich eben, dass alles oder vieles, was notwendigerweise
+getan, durchgesetzt und durchgeführt werden müsste, keinerlei Chance hat, verwirklicht zu werden. Dazu ergibt sich aber
+noch, dass 25 bis 30 Prozent der Bevölkerung dumm-dreist auf unzulängliche Grundrechte pochen und durch Demonstrationen Terror veranstalten, weil diese Menschen ebenso unbelehrbar und unfähig sind, um die Ernsthaftigkeit der CoronaSeuche zu erfassen. Damit verbunden ist auch das Fehlen der notwendigen Erkenntnisse hinsichtlich dessen, welche Massnahmen gegen die Seuche erforderlich sind, ergriffen und durchgesetzt werden müssen. Daher – weil eben grundlegend
+das ganze Corona-Unheil von jenen überheblichen und unfähigen Regierenden noch immer nicht begriffen und daher auch
+das dringendst Notwendige weder endlich erkannt, folglich auch nicht das getan wird, was getan werden müsste – grassiert
+die ständig auf- und abwallende Corona-Seuche weiter und fordert stetig mehr Menschenleben. Und dieses Ganze trifft
+auch zu für den querulierenden ¼- oder 30%-Teil der Bevölkerung, der aus eigener Querulation oder durch Anstiftung durch
+Besserwisser, Wahrheitslügner oder Verschwörungstheoretiker alle Warnungen, Anordnungen und die Tatsache der
+Seuchenexistenz in den Wind schlägt und auf unzulängliche Grundrechte pocht, die nicht darauf ausgerichtet sind, in Krisen,
+wie eben in Seuchenzeiten, durch regierungsbedingte Noterlasse in allererster Linie das Leben aller Menschen zu schützen.
+Quetzal, das sind die Fakten, die ich sehe und die ich bereits aus der Zeit mit Sfath weiss. Und darüber habe ich auch viel
+mit Ptaah geredet und alles niedergeschrieben, was auch auf unserer FIGU-Webseite veröffentlicht wurde, jedoch weitumfänglich keinen Nutzen gebracht hat, folglich bis heute das Unheil weiter grassiert und auch noch bis … weitergrassieren
+wird. Zwar wurden Teile unserer diesbezüglichen FIGU-Informationen aufgegriffen, worüber dann jeweils auch im Fernsehen berichtet, jedoch natürlich nicht gesagt wurde, dass die Informationen von uns kamen und einfach abgekupfert
+wurden. Doch was das sehr Erfreuliche beim Ganzen ist, das betrifft unsere FIGU-Mitglieder, Freunde und Bekannte sowie
+alle jene Menschen rund um die Welt, die unsere Webseite lesen und danach handeln, was durch die Informationen
+bekanntgemacht wird. Viele dieser Menschen bedanken sich für diese von uns auf unserer Webseite veröffentlichten
+Informationen, die eigentlich durch die Regierungen bekanntgegeben werden müssten, was diese aber nicht tun, weil sie
+unfähig zur Erkenntnis der effectiven Fakten sind. Dies aber trifft auch auf das Gros der Virologen usw. zu, die nicht
+gründlich genug hinter der Ergründung der Corona-Seuche stehen und folglich auch noch nicht erkannt haben, dass das
+Corona-Virus nicht den ihnen bisher bekannten Viren gleichzusetzen ist, die sich aus natürlichen Vorgängen bilden, aktiv
+werden und sich unheilbringend verbreiten. Noch wollen sie immer nicht verstehen, dass dieses bösartige Virus in Laboren
+herangezüchtet wurde, was ja durch einen Racheakt eines Amerikaners erfolgte, der in den 1970er Jahren das Ganze in
+China anriss, um sich zu rächen, wenn die daraus hervorgehende Seuche dann in den USA verbreitet würde. Das aber
+interessiert niemanden, vor allem nicht die Verantwortlichen der Regierungen, der Virologen, der WHO und allen sonstigen,
+welche sich nicht getrauen oder zu dumm sind, um der realen Wirklichkeit und Wahrheit ins Auge zu sehen. Daher wird es
+einerseits auch nicht dazukommen, dass die WHO in China – wo sie trotz erster Gegenwehr, doch noch Nachforschungen
+anstellen kann –, den wirklichen Ursprung der Seuche finden wird, und wenn unter Umständen doch etwas gefunden wird,
+das der Wahrheit entspricht, dann wird es verschwiegen.
+Das, was jetzt gesagt wurde, ist einmal das, worüber manchmal auch im Fernsehen kleine Ansätze sind, bei denen versucht
+wird, etwas zu sagen, was dann aber plötzlich mitten im Gespräch einfach abgeklemmt wird und ein Satz nicht einmal mehr
+zu Ende gesprochen werden kann, wie das auch beim Schweizer-Fernsehen geschah, als eine Sendung über mich ausgestrahlt wurde, die gemäss Programmansage 20 Minuten hätte dauern sollen, dann jedoch bereits nach 8 Minuten einfach
+wort- und erklärungslos abgeklemmt wurde. Dies, während anderseits Lügensendungen – die mit bösartigen Verleumdungen diverser Personen gespickt waren und sind – weltweit in voller Länge ausgestrahlt wurden und immer wieder einmal
+werden – angefertigt mit Hilfe hassgeschwängerter Leute, die nachweisbar und unter Zeugenschaft persönliche Erfahrungen bezüglich meiner Kontakte aufzuweisen hatten.
+Nun, es gibt noch diverses anderes, wie auch, dass z.B. die neuen Corona-Mutationen die Eigenschaft haben, einen
+Menschen nicht nur mit einer Mutation allein anzustecken, sondern dass einer von deren 2 oder unter Umständen gar
+deren 3 befallen werden kann, wie auch, dass ein von der einen Mutation befallener und <geheilter> Mensch auch wieder
+von einer anderen Corona-Mutation angesteckt werden und erkranken kann. Das hat bereits Sfath festgestellt, doch ob das
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+den heutigen Virologen und Medizinern auch bereits bekannt ist, davon habe ich noch nichts gehört, denn bisher wurde im
+Fernsehen diesbezüglich ebenso noch nichts gemeldet, wie auch im Radio keine solche Meldung zu hören war und meines
+Wissens auch in Zeitungen nichts geschrieben wurde.
+Wird das ganze falsche Handeln der Regierungen, deren Unfähigkeit zur Sach- und Lagebeurteilung sowie das völlige Fehlen
+der unumgänglich notwendigen Voraussicht, wie anderseits auch das fehlende Intellektum und das verantwortungslose
+Handeln jenes Bevölkerungsteils betrachtet, der trotz den durch die Regierungen gegebenen halbwertigen Anordnungen
+queruliert und querschlägt – auch wenn die erlassenen Regierungsanordnungen wirklich nur halbwegs richtig und nützlich
+sind –, dann ist damit ganz klar bereits vorprogrammiert, dass das ganze Unheil noch lange weitergehen und weiterhin viele
+Todesopfer fordern wird.
+
+**Quetzal Was wohl so sein wird, infolge all der vorherrschenden Unvernunft und Unfähigkeit jenes Drittels des Bevölke-**
+rungsteils, den du angesprochen hast, wie auch jener Staatsfungierenden, die ihres Amtes unwürdig sind.
+
+**Billy** Eben. Es müsste ein gewaltiger Wandel in der Politik geschehen, um etwas zum Besseren zu ändern, doch in diese
+
+mich einzumischen ist nicht mein Ding, denn seit jeher halte ich mich davon fern in jeder Beziehung, wie das auch das
+Prinzip der FIGU ist. Daher kann ich auch aus meiner Sicht, die ich als vernünftig erachte, völlig neutral alles betrachten und
+meines Erachtens auch beurteilen und harsch zum Ausdruck bringen, und zwar auch dann, wenn es gewissen Leuten nicht
+gefällt. Und dazu denke ich, habe ich das Recht der Meinungsfreiheit, wie jeder Mensch auch das Recht hat, den Weg seines
+Lebens selbst zu wählen und zu gehen, was er jedoch nur kann, wenn er effectiv sich selbst ist, nicht selbstsüchtig und zum
+Schaden anderer Menschen handelt und deshalb nicht gerügt werden muss. Das bedeutet, dass der Mensch selbst denken
+und verantwortungsbewusst entscheiden und handeln muss – nicht jedoch sich einfach willenlos und entscheidungslos
+durch irgendeinen Glauben lenken und umherdirigieren lässt, sei es durch eine Person oder eine imaginäre Schöpfer-Gottheit –, und zwar effectiv einzig durch seine eigenen realen, wirklichen und bewusst klaren Gedanken und Beschlussfassungen, die er Kraft seines gesunden Intelligentums sowie seines Verstandes und seiner Vernunft persönlich erarbeitet.
+Das, Quetzal, was ich nun gesagt habe, und wenn ich es jetzt noch sagen darf, geht leider dem Gros der Erdenmenschheit
+ab, wobei ich das Intelligentum, den Verstand und die Vernunft meine, und das trifft auch auf bestimmte Organisationen
+zu, die auf der Strasse mit Demonstrationen Terror machen und Zerstörungen anrichten, anstatt friedlich auf einem vernünftigen Weg massgebende Änderungen zu suchen. Und eine solche fehlhandelnde Organisation, die auf die kleine unwissende Greta Thunberg zurückführt, ist die <Fridays for Future>-Bewegung, deren unbedarfte Mitläufer als Herumheulende
+und Demonstrierende als dumme Werkzeuge zu Demonstrationen missbraucht werden. Dies, obwohl die kleine Dummberg
+und alle ihr anhängenden Mitheulenden keinerlei Ahnung davon haben, wofür sie demonstrieren und herumbrüllen, wie
+auch nicht verstehen, dass ihr Geheul rein keinerlei Erfolg bringt. Dies eben darum, weil, solange kein Erfolg beschieden
+sein kann, wie eben die Überbevölkerung noch existiert und zudem unaufhaltsam weiter anwächst, wodurch der Planet,
+alle Ökosysteme, die Natur und deren gesamte Fauna und Flora weiterhin zerstört, vernichtet und vieles ausgerottet, wie
+auch weiterhin die Atmosphäre und das Klima bis zum Kollaps beeinträchtigt werden, …
+
+**Quetzal Zu all dem, was du sagst, kann in logischer Weise keine Gegenrede erfolgen, denn all deine Aufführungen und**
+Darlegungen treffen wahrheitsgemäss derart richtig zu, dass jede Widerrede auf Unwahrheit basieren würde.
+
+**Billy** Trotzdem werden jedoch gewisse Antagonisten vielfältiger Art, Lügende, Verleumdende, Neidende und sonstig
+
+Dumme und ausgeartet Hassgeschwängerte alles bestreiten und sich ihre Feindseligkeit nicht verklemmen können und
+durch ihre in ihnen hochsteigende Animosität angriffig und bösartig zum Ausdruck bringen.
+
+**Quetzal Das wird wohl so sein, doch nun, mein Freund, habe ich noch einiges mit dir zu bereden, was du dann nicht offen**
+nennen sollst, denn dabei handelt es sich darum …
+
+COPYRIGHT und URHEBERRECHT 2021 bei ‹Billy› Eduard Albert Meier, ‹Freie Interessengemeinschaft Universell›, Semjase Silver Star
+Center, 8495 Schmidrüti, Schweiz. Kein Teil dieses Werkes, keine Photos und sonstige Bildvorlagen, keine Dias, Filme, Videos und keine
+anderen Schriften oder sonstige Materialien usw. dürfen ohne schriftliche Einwilligung des Copyrightinhabers in irgendeiner Form
+(Photokopie, Mikrofilm oder ein anderes Verfahren), auch nicht für Zwecke der Unterrichtsgestaltung usw., reproduziert oder unter
+Verwendung elektronischer Systeme verarbeitet, vervielfältigt oder verbreitet werden.
+
+Veröffentlicht auf www.FIGU.org durch:
+‹Freie Interessengemeinschaft Universell›, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+

@@ -1,0 +1,1450 @@
+# Gespräch zwischen Enjana, Bermunda und Florena von der plejarischen Föderation und ‹Billy› Eduard Albert Meier, BEAM
+
+## Achthundertachtundachtzigster Kontakt Dienstag, den 21. Mai 2024 00.06 h
+
+**Billy** Oh, da seid ihr schon. Seid willkommen in meinem Bau, grüss euch, und ich freue mich, dass ihr da seid.
+
+**Enja** Es freut mich ebenfalls, offenbar warst du gesundheitlich …
+
+**Billy** … ja, ich war etwas indisponiert.
+
+**Bermunda** Das haben wir erkannt. Wir waren nämlich alle 3 hier, … Doch als wir dich dann suchten und fanden, dass du
+im Wohnraum …
+
+**Billy** … ja, da habe ich geschlafen und auch nicht gehört, dass jemand von euch mich vom Büro aus telephonisch
+suchte. Folgedem nahm dann Madeleine das Telephon und informierte mich. Leider war ich aber gesundheitlich derart
+ramponiert, dass ich nicht ins Büro ging. Eva war ja auch nicht da, sondern in Pfäffikon, folglich ich sie nicht informieren
+konnte, fol…
+
+**Florena** … das war ja weiter nicht schlimm. Wir kamen gemeinsam her, weil wir 3 uns folgendes gedacht haben und
+…
+
+**Billy** Dass ihr zusammen in der Weise für euch alles so regeln könnt, das löst ja euer Problem in einer Weise, wie
+das besser wohl nicht sein könnte.
+
+**Bermunda** Darum …
+
+**Florena** Ja, Enjana, Bermunda und ich …
+
+**Billy** Dann ist ja alles gut – und dass ihr alle 3 zusammen herkommt, da ist wohl Quetzal in euerer Station der
+Wachhabende?
+
+**Bermunda** Ja, denn wir haben diese immer zumindest mit einer Person besetzt zu halten, aber das weisst du doch.
+
+**Billy** Ja, natürlich – es war ja blöde, dass ich danach gefragt habe. Aber was meint ihr bezüglich dem, dass Putin …,
+soll ich d… …
+
+**Bermunda** Was sagte damals Sfath, sollst du …
+
+**Enjana** Ja, was sagte er?
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Billy** Er sagte, dass er es mir überlasse und ich gemäss dem entscheiden soll, wie ich dann die Lage selbst einzu
+schätzen vermöge, wenn es … und zwar danach, ob …, und wenn ich so denke, dann ist diese gegenwärtig nicht gerade
+rosig einzuschätzen, folglich ich wohl besser schweige, wie ich es bisher getan habe.
+
+**Florena** Du handelst nicht voreilig, das weiss ich, also entscheide nach dem, was dir dein Verstand und deine Ver
+nunft vorgeben zu tun.
+
+**Billy** Dann schweige ich.
+
+**Enjana** Damit wirst du bestimmt das Richtige tun.
+
+**Bermunda** Das denke ich auch. – Eines muss ich dir nun doch sagen, Eduard, nämlich dass ich nicht mehr die grauenvol
+len Geschehen beobachten will, wie wir diese zusammen im Krieg im Nahen Osten gesehen haben, die sehr viel schlimmer
+waren als das, was wir in der Ukraine … ja, ja – $ ich weiss schon, es war zu viel für mich. Die vielen unschuldigen Gefangenen
+aus der Bevölkerung, die nicht einmal zu den Hamaskämpfern gehörten, doch trotzdem vom Israelimilitär traktiert und mit
+verbundenen Augen nackend an Betten gefesselt waren oder sonstwie mit Augenbinden gebunden auf den Boden hockten
+usw., zudem misshandelt wurden und …
+
+**Billy** … alles was sich sonst ergeben hat; ich weiss, es war einfach zu viel für dich. Künftighin werde ich nur noch
+
+Quetzal arrangieren, denn ich habe ja jedes Mal gesehen, wie dir alles zu viel wurde. Leider sind grosse Teile der Regierenden und der Bevölkerungen parteiisch und wollen nicht sehen, dass auf allen Seiten Kriegsverbrechen begangen werden,
+insbesonders vom israelischen Militär und von Netanjahu, der in Palästina einen Genozid veranstalten will, wobei ihm Amerika und dessen seniler Präsident Biden noch helfen.
+
+**Bermunda** Bezüglich dem wiederaufkommenden Antisemitismus resp. weltweiten Judenhass, hat sich erschreckend
+
+exakt erfüllt, was du vorausgesagt hast, wobei du explizit die beiden Kriegsverbrecher Selensky und Netanjahu sowie Amerika genannt hast, die ursächlich dafür verantwortlich zeichnen.
+
+**Billy** Ja, ich weiss, doch es bringt nichts, wenn wir darüber weiterreden. Lassen wir das also; ausserdem habe ich
+
+hier etwas, nämlich bezüglich der Rune-Zeichen. Manuel Bretbacher hat mir in Vergrösserung 2fach die Todesrune gemailt,
+die seit 1958 verrückterweise weltweit als angebliches Friedenssymbol verbreitet wird, das aber nicht Frieden, sondern
+Tod, Mord und Zerstörung koaliert, und damit Streit, Böses, Hass, Rache, Vergeltung, Unfrieden, Feindschaft, Krieg, Machtgebaren, Rebellion, Terror und Gewalt aller Art usw. assoziiert. Das Rune-Todessymbol hat mir Manuel also in 2 folgenden
+Formen gemailt:
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Das ist also einmal die eine Version, die sowohl das Lebenszeichen, wie aber auch die Todesrune beinhaltet, bei der noch
+einiges daruntergeschrieben ist, was aber an deren linker Seite etwas abgeschnitten wurde.
+
+**Bermunda** Aber es ist doch noch zu entziffern, folglich alles gelesen werden kann.
+
+**Florena** Das ist tatsächlich so, und es ist wirklich gut zu lesen.
+
+**Enjana** Das ist es ohne Zweifel.
+
+**Billy** Gut, dann ist hier das andere, das wohl als Seite an einen Stassenlaternenpfahl geklebt wurde.
+
+**Florena** Aber es zeigt erklärend auch auf, was es bedeutet.
+
+**Billy** Das ist wohl gut und richtig, doch die Erdlinge sind erst eingehend darauf aufmerksam zu machen, wie auch,
+
+dass dieses Todessymbol seit 1958 und also seinem Bestehen allein so viel Unheil angerichtet hat, wie es sich zeitmässig –
+also in nur 66 Jahren – niemals zuvor während der Zeit von 5,4 Milliarden Jahren, seit die Erde besteht, zugetragen hat.
+Durch das verantwortungslose Wirken, Manipulieren, Zerstören, Beinträchtigen, Vernichten und Ausrotten und sonstigem
+Unheil aller Art, was durch die Erden-Menschheit in nur 66 Jahren über die Erde, den Planeten selbst, alle Ökoysteme und
+die gesamte Natur und deren Fauna und Flora gebracht wurde – und es sei nochmals gesagt, in nur 66 Jahren –, seit diese
+Todesrune resp. dieses Todessymbol verbreitet wurde und wird, das übertrifft alles, was sich naturmässig je ergeben hat.
+Allein des Menschen lausiges und verantwortungsloses, selbstsüchtiges, herrschsüchtiges Werkeln durch sein irr-wirres
+religiöses sowie weltlich gläubiges Scheindenken – das guten Gewissens als Scheindenken bezeichnet werden darf –, ist
+diese verantwortungslose und katastrophale sowie alles umfassende Zerstörung aller weltweiten Arten zustande gekommen. Viele Milliarden von Erdlingen weltweit haben in grenzenloser Selbstsucht, Gier Machtsucht, Rache, Überheblichkeit,
+Verantwortungslosigkeit, Übermut, Hass, Vergeltung und Geltungssucht usw. seit 1958 in nur 66 Jahren bis heute effectiv
+die ganze Erde nahezu in den Untergang geführt. Und dieser ist in seiner letzten Form nicht mehr sehr weit entfernt und
+schon sehr bald so nahe, dass er nicht mehr aufgehalten werden kann, wenn nicht endlich Verstand und Vernunft zum Zug
+kommen und sich alles rapid nicht nur zum Besseren, sondern effectiv zum Guten und Richtigen wandelt und dieses tatsächlich ernsthaft bewusst unternommen wird. Nur dadurch, dass dabei in grossem Masse die Menschheit ‹abzubauen›
+resp. zu vermindern ist, und zwar indem ein weltweiter und gewaltiger Geburtenstopp die Menschheit derart reduziert,
+dass letztendlich die planetengerechte Bevölkerung nur noch 500 Millionen beträgt, kann alles wieder in den Stand
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+zurückführen, der erdegerecht ist. Wenn aber Idiotinnen – wie z.B. die Nationalrätin, von der ich gleich noch sprechen
+werde, wenn ich das Thema der Todesrune beendet habe – und Idioten einen Geburtenstopp ablehnen und diesem in
+irgendwelcher Art entgegenwirken, dann ist Hopfen und Malz verloren. Dies auch dann, wenn die weltweiten und selbstsüchtigen sowie machtgierigen Obrigkeiten am Werkeln gelassen und nicht durch rechtschaffene Staatsführende ausgewechselt werden. Das ist einmal das, was ich zu sagen habe, wobei ich aber bezüglich der Todesrune noch zu sagen habe,
+dass wir von der FIGU das seit uralter Zeit existierende, von Nokodemion überlieferte, wahre und richtige Friedenszeichen
+in Verwahrung haben und dieses seit Jahren nutzen und verbreiten. Neuerdings wollen und werden wir FIGUaner dies im
+Grossen tun und es weltweit auf verschiedenen Wegen verbreiten und es bekannt werden lassen. Damit endlich auf der
+Erde vom Menschen nach wahrem Frieden gestrebt wird, anstatt wie mit dem Todessymbol nach Hass, Krieg, Unfrieden
+und Terror, wodurch letztlich keine militärische Mörderorganisationen mehr die Welt und Völker beherrschen, die nicht
+mehr Tod und Verderben, Not und Elend, Hass, Rache, Gewalt, Folter, Unfrieden, Zerstörung sowie böses Verderben über
+die Menschheit und die Erde bringen können.
+Nun, noch will ich aufzeigen, was eigentlich die Runen sind, wie sie aussehen und was sie bedeuten. So ergibt sich also
+folgendes, wie es im Internet aufgeführt wird, das ich hier als Auszug wiedergebe, und zwar mit minimalen Änderungen,
+die sich jedoch so ergeben, dass sie nicht ins Gewicht fallen:
+
+## Verwendung von Runen in der rechten Szene
+
+### Brandenburgische Landeszentrale für politische Bildung
+
+_https://www.politische-bildung-brandenburg.de/themen/die-extreme-rechte/symbole-und-kennzeichen/runen_
+
+Runen sind die ältesten germanischen Schriftzeichen. Sie werden bis heute in verschiedenen Zusammenhängen verwendet. In diesem Beitrag geht es um die Vereinnahmung der Schriftzeichen im Nationalsozialismus und deren Verwendung in der rechten Szene heute.
+
+Mit der völkischen Verklärung des Germanentums entdeckten die Nationalsozialisten resp. die NAZIs die von der lateinischen Schrift verdrängten Runen neu und sahen in diesen Zeichen einen wichtigen Bestandteil der ‹arischen Kultur›. Die Runenschrift sollte die angebliche Überlegenheit der ‹nordischen Rasse› demonstrieren. Eine Form, Frakturschrift, wird bis heute in der sogenannten rechten Szene als besonders ‹deutsche› Schrift verstanden, obwohl gerade
+sie 1941 im ‹Dritten Reich› als ‹Judenlettern› verboten wurde.
+Das ‹Runenalphabet› (nach der ersten Buchstabenreihe ‹Futhark› genannt) unterlag im Lauf der Zeit Veränderungen,
+was sowohl die Anzahl der Zeichen als auch ihre Form und Benennung betraf.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+‹Sig›-Rune
+
+Unter der Vielzahl überlieferter Runen aus germanischer Zeit wurden jedoch nur wenige tatsächlich im Nationalsozialismus verwendet und instrumentalisiert.
+Am bekanntesten ist die ‹Sig›-Rune als Kennzeichen des ‹Deutschen Jungvolks› (DJ) und – als doppelte ‹Sig›-Rune –
+auch Kennzeichen der ‹Schutzstaffel› (SS) der NSDAP. Beide sind in Deutschland verboten.
+Der Ursprung der § ‹Sig›-Rune ist umstritten, wahrscheinlich entspricht sie der ‹Sowulo›-Rune (auch ‹Sol›-Rune genannt) als Symbol für die Sonne.
+
+Doppelte ‹Sig›-Rune der SS
+
+Die SS verwendete die doppelte ‹Sig›-Rune in ihrem Abzeichen und machte sich damit die aggressive dynamische
+Form (Blitz) und die Assoziation mit dem Wort ‹Sieg› zu Eigen.
+In der heutigen Zeit verwenden Rechtsextremisten neben der ‹Sig›-Rune vor allem noch die ‹Odal›- (‹Othila›) sowie
+die ‹Lebens›- bzw. ‹Todes›-Rune (‹Algiz›). ‹Lebens›- und ‹Todes›-Rune dienen ihnen oft zur Kennzeichnung entsprechender Geburts- und Todesdaten.
+
+Hinzu kommen Symbole, die aus ursprünglichen Runen abgeleitet worden sind,
+
+zum Beispiel die sogenannten Wolfsangeln.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Der seit September 2000 verbotene Personenzusammenschluss ‹Blood & Honour› verwendete insbesondere eine an
+
+ein abgewandeltes, dreiarmiges Hakenkreuz erinnernde Triskele.
+
+Eine Strafbarkeit der Verwendung dieser Zeichen ist allerdings nur dann gegeben, wenn sie bei einem unbefangenen
+Dritten den Eindruck erwecken, es handele sich um Erkennungszeichen einer verbotenen Organisation.
+Rechtsextremisten gebrauchen darüber hinaus häufig eine den Runen ähnelnde Schriftform, um so den heidnischgermanischen Ursprung des deutschen Volkes zu betonen und eine Traditionslinie zu ihrem eigenen vermeintlichen
+Germanentum zu ziehen.
+Eine weitere, heute mitunter in rechtsextremistischen Kreisen gebräuchliche Schriftform, ist die Frakturschrift. Diese
+Schriftart war vom 16. bis zum Beginn des 20. Jahrhunderts im deutschsprachigen Raum üblich.
+
+**Bermunda** Diese Zeichen sind mir nicht bekannt.
+
+**Florena** Mir ebenso nicht. – Aber ich finde sie interessant.
+
+**Enjana** Das kann ich auch von mir sagen.
+
+**Billy** Die Runen, so habe ich von Sfath gelernt, sind wirklich beeindruckend und führen nicht einfach auf die alten
+
+Germanen zurück, wie von ‹schlauen› Besserwissern der Wissenschaft behauptet wird, denn diese Zeichen waren ein geheimes Verständigungsmittel und also für das Gros der Völker ein Geheimnis, so erklärte er. Dann wurden diese später zu
+eigentlichen Buchstaben eines Alphabets, das in alter Zeit von diversen alten Völkern in verschiedenen Formen verwendet
+wurde, wobei die ältesten bekannten Runenformen als Schrift in Skandinavien gängig wurden. Diese Runen, wie sie nicht
+sehr genau nach alten Vorgaben hier aufgezeichnet sind, wurden von verschiedenen Völkern je etwas anders gezeichnet,
+denn ursprünglich waren sie ja im Kontakt mit diversen Schriftkulturen erfunden worden. Das altlateinische Alphabet der
+Römer diente später jedoch teilweise als Vorbild, die Runen aber sind ursprünglich nicht unabhängig entstanden, noch sind
+sie rein von den Germanen als fertiges Schriftsystem übernommen worden, auch wurden sie später eigenständig noch nach
+Vorbildern mediterraner Schriften nachgemacht. Sie sind aber schon sehr früh von alters her in verschiedenen Formen als
+komplettes Alphabet mit 24 Buchstaben erstellt worden, wobei aber letztendlich die heutig bekannten Runen-Zeichen erhalten geblieben sind. Diese Runen jedoch wurden in ihrer ursprünglichen Form als Symbole von Verständigungsmitteln
+mit bestimmten Werten erfunden, jedoch später als Symbol diverser Werte umgewertet, wie z.B. als Beginn des Lebens,
+wobei hierzu das Runen-Zeichen ᛉ ‹Al-Giiz› resp. ‹Algiz› als Symbol als ‹Lebensrune› bezeichnet und ihm magische Kräfte
+und Schutzfunktionen sowie Vertrauenswürdigkeit usw. zugeschrieben wurden. Die Umdrehung der Rune-Form, also das
+Symbol ‹Algiz› ᛉ zur Form des ᛣ als sogenannte ‹Todesrune› und als Deutung ‹Lebensende›, gab es im Runen-Alphabet
+nicht, denn dieses wurde eigentlich erst 1958 mit dem angeblichen ‹Friedenssymbol› – das wahrheitlich ein ‹Todessymbol›
+und ‹Zerstörungssymbol› ist – des britischen Künstlers Gerald Holtom für Atomkriegsgegner und ihren ersten grossen Friedensmarsch in London geschaffen. Doch die umgedrehte resp. gestürzte Form ᛦ war schon bei den Nationalsozialisten als
+‹Todesrune› missbraucht worden. Aber wie gesagt, entstand dadurch weltweit der Gebrauch des bis heute bekannten ‹Todessymbols›, das Feindschaft, Tod, Zerstörung, Hass, Unfrieden, Vernichtung und Zerstörung assoziiert, durch die gedanklich-wissensmässige Desorientierung des Künstlers Gerald Holtom im Jahr 1958. Doch nun will ich noch folgendes sagen
+mit etwas, das ich mit folgendem Titel geschrieben habe:
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+## Krankhafte Dummheit
+
+Krankhafte irre Dummheit resp. ein damit verstörtes sowie ausgeartetes Sinnen gegenüber der Wirklichkeit und Wahrheit
+herrscht bei zahllosen Menschen aller Länder der Erde vor, die weder Verstand noch Vernunft ihr eigen nennen können
+und als Nichtdenker-Idioten mit Scheingedanken fatalistisch nutzlos im Dasein herumstolpern. Und dies geschieht auch in
+Staaten, in denen eine gute Schulbildung herrscht, die jedoch von den Scheindenkenden auch nur scheinbar aufgenommen
+und gelernt wird, folglich sie dumm-dämlich wie Bohnenstroh bleiben. Als bestes Beispiel, wie hierzulande, also in der
+Schweiz, solche irr-wirre und realitätsfremde Scheindenkende und also sture Nichtdenker-Idioten, die fatalistisch dahinvegetieren, diene hierzu folgendes, was eine namhafte Schweizer-Tageszeitung von einer ‹grünen› – wahrscheinlich völlig
+grün hinter den Ohren –, naiven Nationalrätin veröffentlichte, die – nebst deren Herausgeber und Redaktoren usw. – offenbar ebenfalls nur irre und verantwortungslose Scheindenkende sind und öffentlich in der Zeitung krankhaft dumm – von
+mir etwas frei umformuliert, doch sinngemäss absolut dem Inhalt des Zeitungsartikels gerecht erhalten – in etwa schreiben:
+«Schweizer Ehepaare haben immer weniger Kinder. In der Schweiz sinkt die Geburtenrate auf ein historisches Tief. Forscher
+und Forscherinnen sind besorgt und der Meinung, dass die Schweiz durch diese Tendenz vor grosse demographische Probleme gestellt werde. Die Frage ist dazu, was die Gründe dafür sein sollen, und was die Schweiz gegen den starken Geburtenrückgang tun soll?»
+Es soll bekannt sein – wird resümiert –, dass der Wiedereinstieg in den Beruf von Müttern in der Schweiz nach einer Geburt
+im Vergleich zu anderen Ländern in Europa deutlich schwieriger sein soll. Dazu sagt die Nationalrätin bezüglich Kita-Plätzen,
+Elternzeit und Tagesschule usw.: Die Angebote bezüglich einer echten Vereinbarung von Berufs- und Elternleben seien
+ungenügend oder schlichtweg nicht möglich. Es mangle an Kita-Angeboten, und zwar in manchen Regionen ganz besonders.
+Die Kosten, die Familien zu tragen haben, haben eine besonders abschreckende Wirkung. Die Schweiz sei mit Fr. 130.– pro
+Tag im weltweiten Vergleich Spitzenreiterin. Hohe Kosten zwingen viele Familien zur Frage und ‹Milchbüechli›-Rechnung,
+ob sich für eine Frau ein Wiedereinstieg ins Arbeitsleben überhaupt lohne.
+Diese äusserst schlechte Ausgangslage habe auch einen Effect auf die Geburtenrate usw., schreibt sie, dazu komme noch,
+dass ‹der Bund› – womit also die Regierung in Bern angesprochen wird – nichts dagegen tue, dass der Geburtenrückgang
+aufgehoben werde. Mit einer Schlagzeile, die im Wortlaut etwas verändert ungefähr lautet: «Was der Mensch tun kann,
+dass mehr Kinder geboren werden» und etwa «Was sollen wir tun, um den Geburtenrückgang zu bekämpfen? Dazu braucht
+es greifendere Angebote für die Familien. Und weil der Bund in dieser Beziehung nicht handelt, ist es so, dass das Volk
+selbst alles in die Hand nimmt.» … usw.
+Dass nun noch der Bund resp. die Regierung in Bern, eben die Staatsgewaltigen, die Finger ins idiotische Spiel des ‹mehr
+Kindergeborenwerdens› bringen soll, das ist viel mehr als nur unüberlegt und idiotisch gedacht und gesagt, denn diese
+Rede zeugt von völligem Unverstand und völliger Unvernunft. Doch dieserart völlig hirnlose, unrechtschaffene und verantwortungslose Elemente hocken in der Schweiz als Nationalrat resp. Nationalrätin und andere krankhaft Dumme usw. in der
+Regierung, wobei sie die Rechtschaffenen der Staatsführung im Rechttun, Richtigtun sowie Richtigführen des Landes und
+des Volkes durch fiese und womöglich religiös glaubensbedingte Beeinflussungen behindern und irreleiten. Dieserart also,
+dass der Bund durch Anordnungen das Kinderkriegen antörnen soll, hofft eine irre Nationalrätin darauf, dass es gelinge,
+mehr Geburten herbeizuführen. Eine völlige Idiotie, obwohl bereits eine 18fache Überbevölkerung auf der Erde herrscht,
+wodurch bereits mehr als 72% der gesamten Natur und deren Fauna und Flora zerstört, vernichtet und grossteils völlig und
+unwiderrufbar ausgerottet wurden. – Jährlich werden rund 60 000 aller Gattungen und Arten der Fauna und Flora, also der
+Tiere, des Getiers und anderer sich selbst fortbewegender Lebensformen sowie Pflanzen von der Kleinsten bis zur Grössten
+völlig verantwortungslos sowie grossteils allein durch des Menschen Schuld ausgerottet.
+Hinter dem ganzen Ansinnen, dass der Bund dafür verantwortlich zeichnen soll, dass die Zahl von vielen Kindergeburten in
+die Höhe getrieben werden soll, steckt auch das, dass dies alles sehr viel an Finanzen kostet, denn jedes geborene Kind
+kostet in der Schweiz bis zum Erwachsensein sehr viel Geld, nämlich durchschnittlich etwa 800.– Franken pro Monat. Dies
+nebst dem, dass danebst noch für den Staat berappt werden muss, und zwar dadurch, dass Steuern bezahlt werden müssen. So kommen viele Eltern schnell in die Klemme und bedürfen der finanziellen Hilfe des Staates – und das geht natürlich
+auf Kosten der Steuerzahlenden. Dies erfordert dadurch immer mehr Staatsausgaben, die wiederum vom Steuerzahler zu
+berappen sind, wobei dieses Berappen immer höher steigt, weil trotz der unverschämt hohen Steuern, diese noch nicht
+hoch genug sind, um alles Anfallende des Staates bezahlen zu können. So werden die Steuerzahlenden noch mehr geschröpft – z.B. auch mit Stempelgebühren, wie auch mit behördlichen Unterschriftengebühren, Bewilligungsgebühren usw.
+–, damit noch mehr ‹Gute Spenden› ins Ausland ‹verpülvert› werden können, wodurch sich Regierende fremder Staaten
+mit Reichtum vollstopfen, jedoch die Armen in der Schweiz am Hungertuch nagen können, wie das aber auch in allen Ländern rund um die Erde gleichermassen geschieht.
+Dies nebst dem, dass die Steuerzahlenden noch Milliardenbeträge von Geldern aufbringen müssen, um für eine völlig sinnlose Armee irgendwelche Waffen und sonstiges sinnloses Material zum Morden anzuschaffen – von dem allem von der
+Schweiz noch ins Ausland verkauft wird, das dann u.U. zum Morden und Zerstören in Aufständen und Kriegen benutzt wird.
+Dadurch wird die Schweiz in ihrer Neutralität verletzt, wie das verantwortungslose Elemente der Regierenden der Schweiz
+auch bedenkenlos anderweitig tun, die von ihren Mitregierenden geschützt werden und straflos bleiben, anstatt dass diese
+Fehlhaften aus ihrem Amt gefeuert werden. Einiges der vielen teuren Anschaffungen der Schweizer-Armee wird später bei
+Nichtgebrauch oder Überalterung ins Ausland verkauft, das dann u.U. für Kriegszwecke und also für Massenmorderei
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+verwendet wird. Dies, wie sich unschweizerisch Schweizer Regierungsbeamte in Bern absolut und völlig verantwortungslos
+in fremde Kriegsgeschehen einmischen und z.B. die Neutralität der Schweiz neuerlich zur Sau machen, und zwar indem sie
+den Flüchtlingsstatus jener Flüchtlinge aus der Ukraine aberkennen wollen, die von dort geflüchtet sind und in der Schweiz
+Schutz suchen, weil sie des Rechtens entscheiden, zum Schutz ihres eigenen Lebens nicht in den Krieg zu ziehen und so ihr
+Leben nicht durch Kriegsmorden verlieren wollen. Damit, dass solcherart Flüchtlings-Menschen der Flüchtlingsstatus entzogen wird und sie dadurch gezwungen werden, die Schweiz zu verlassen, um in ihrem Heimatland in den Krieg zu ziehen,
+werden sie von der Schweiz praktisch zum Tod verurteilt. Dies, obwohl die Todesstrafe in der Schweiz im letzten Jahrhundert abgeschafft wurde, was aber – was wohl viele Bürgerinnen und Bürger der Schweiz nicht wissen – noch bis 1942 gültig
+war. Da erst wurde dieses gesetzlich erlaubte Morden zum verbindend-rechtlichen Verbot der Todesstrafe und demgemäss
+auch 1942 während der Weltkriegszeit im Schweizer-Strafgesetzbuch festgehalten. Im Militärstrafgesetz dauerte die Todesstrafe – die im letzten Weltkrieg von 1939 bis 1945 mehrfach angewandt wurde – allerdings noch länger und war auch
+bis 1992 verankert. Erst im Jahr 2000 wurde sie dann durch die Verfassung endgültig verboten.
+Gewissenlose Elemente der Schweizerregierung haben nicht nur von der EU-Diktatur Sanktionen übernommen und
+schmählich gegen ein fremdes Land angewandt – in diesem Fall gegen Russland –, sondern wollen sich jetzt auch noch ohne
+Erlaubnis des sich neutral verhaltenden Volkes indirekt in die recht fiesen Kriegsgeschehen der Ukraine einmischen, die
+heimlich und hinterhältig von Amerika provoziert wurden, wie der ganze Krieg überhaupt. Und dass die Schweiz dabei jetzt
+noch mitspielt, dies eben dadurch, indem sie den Ukraineflüchtlingen den Flüchtlingsstatus aberkennen und sie dadurch
+zwingend als Kanonenfutter in die Ukraine zurückschicken und unweigerlich dem Tod ausliefern will, das ist schon dadurch
+fies und menschenverachtend, jedoch abermals unverantwortlich und neuerlich fies, die Neutralität der Schweiz zur Sau
+machend. Das ist jenen Unrechtschaffenen, Hirnverbrannten und Idioten in der Regierung völlig ‹schnurz›, die deren Gesinnung nach auch keine echte Schweizer, sondern Abschaum der Unrechtschaffenheit sind – und solcherart miese Elemente hocken in der Regierung und vermögen mit ihrer Unrechtschaffenheit die Rechtschaffenen der Regierung zu übertrumpfen.
+
+**Florena** Das ist ja völlig verantwortungslos, und dass eine Nationalrätin eine Gesinnung dieser Weise pflegt und diese
+
+zudem noch in Medien veröffentlichen kann, deren Herausgeber ganz offenbar gleicher verwerflicher Gesinnung sind, das
+ist mir unverständlich, denn für einen Menschen mit nur sehr wenig Verstand und Vernunft sollte doch trotzdem erkennbar
+sein, dass mit einer derartig hohen Überbevölkerung, wie diese auf der Erde vorherrscht, eine jede einzelne Geburt alle
+erdenklichen Schwierigkeiten erweitert und durchwegs alle die bestehenden und durchwegs einzig menschgemachten
+Probleme aller Beeinträchtigungen, Vernichtungen und Zerstörungen an der Natur und deren gesamten Leben der Tierwelt
+und Pflanzenwelt sowie des Planeten selbst erkennen. Es ist mir absolut unverständlich, dass eine Person wie diese Frau,
+die, wie du sagst, eine Nationalrätin ist, ein Regierungsamt belegen darf, wie dass auch eine namhafte Tageszeitung völlig
+verantwortungslos einen solchen Artikel veröffentlichen darf, wie du ihn hier vorliegen hast.
+
+**Billy** Diese Nationalrätin sei ein völlig verantwortungsloses ‹enfant terrible› und gehöre ‹auf den Mond geschos
+sen›, sagte mir eine Frau dazu, die deswegen telephonierte. Schon Eva machte mich auf diesen kriminellen Artikel aufmerksam, der am 16. Mai unter der Rubrik ‹Meinungen› veröffentlicht wurde. Effectiv, so finde ich, ist das Ganze wirklich mehr
+als nur kriminell, wenn man bedenkt, dass bereits eine 18fache Überbevölkerung auf der Erde herrscht und innerhalb von
+nur 66 Jahren soviel des Planeten, aller Ökosysteme, der Natur und deren Fauna und Flora, wie auch bezüglich der Atmosphäre zerstört wurde und dadurch auch den Klimawandel erzwungen hat, dass bereits das Weiterbestehen der Menschheit in Frage zu stellen ist. Dies darum, weil der Mensch durch seine schiere Überbevölkerungsmasse auf der ganzen Welt
+derartigen Schaden angerichtet hat, dass alle Not und jedes Elend, jede Zerstörung, Vernichtung und Ausrottung derart
+weit geführt hat, dass es alles Diesbezügliche grenzenlos übertrifft. Und dies ist so, wie es niemals zuvor in gleichem Rahmen und gleichermassen im Lauf von nur 66 Jahren naturmässig geschehen ist seit dem Bestehen der Erde seit rund 5,4
+Milliarden Jahren, wie ich schon erwähnte. Und all das Gesamte geht über jegliche Nachsicht und alles Verstehen hinaus.
+Ausserdem will ich einmal Klartext reden und sagen, was mich Sfath wirklich gelehrt hat, und zwar mit etwas genaueren
+Angaben, als ich diese bisher all die Jahre getan und gegeben und einfach die exakten Daten nicht genannt und offengelassen habe, die mir Sfath nannte und die denen unseren holden Wissenschaften gewaltig widersprechen. Dass z.B. das, was
+unsere irdischen Wissenschaftler ‹verzapfen›, einfach aus der Luft gegriffen ist und Vermutungen sind, dass die Erde 4,6
+Milliarden Jahre alt sein soll, das ist einfach Unsinn, denn Sfath belehrte mich damals, dass der Planet Erde vor rund 5,4
+Milliarden Jahren und das erste Leben als winzige bakterienartige Einzeller usw. vor 4,3 Millionen Jahren entstanden seien.
+Dies, während sich effectiv vor rund 45 Millionen Jahren die Wesen zu entwickeln begannen, aus denen vor 12 bis 14
+Millionen Jahren die ersten menschenfernähnlichen Lebensformen entstanden. Daraus entwickelten sich dann weiter und
+letztendlich die ersten Menschenformen, die in wenigen Jahrhunderttausenden weltweit hervorgingen, und nicht nur in
+Afrika, wie blödsinnig vermutend die Wissenschaftler behaupten, sondern tatsächlich auf den Riesenkontinenten der gesamten Erde. Wie die idiotische Behauptung zustande kam, dass der Mensch in Afrika entstanden sei, das ist mir unbekannt,
+doch spielt diese Spinnerei bezüglich der Wahrheit keine Rolle und ist also nicht wichtig. Und die effective Wahrheit kannte
+Sfath ganz bestimmt viel besser, die er als Allroundforscher und stets voll aktiver Allroundwissenschaftler durch zahllose
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Erforschungen während seines 924 Jahre Aufenthaltes auf der Erde erlangte. Ausserdem, das will ich einmal sagen: Zwar
+habe ich das Ur-ur-ur-ur-ur-ur-ur-Buch geschrieben, das exakt die Entstehung des SEIN-Absolutum aus den Nihilo heraus
+und daraus weiter die anderen Absolutumformen erklärt, woraus dann schliesslich die Schöpfungen – wie eben unsere –
+hervorgegangen sind, doch habe ich nichts darüber gesagt, wie eigentlich unser Sonnensystem entstanden ist. Das ist eine
+Frage, die schon mehrmals gestellt wurde, die ich aber nie beantwortet habe. Nun, das will ich jetzt doch tun, wobei ich
+aber vornweg sagen will, dass ich darauf nicht näher eingehen will, wenn ich weiter danach gefragt werde, denn dafür ist
+das Ganze zu weitführend und derart zeitaufwendig, dass ich schon deswegen nicht darauf eingehen kann.
+In kurzer Weise soll aber nunmehr erklärt sein, dass all die Angaben und Behauptungen der sogenannten Wissenschaftler
+der Astronomie usw. nichts als Theorien entsprechen, wenn es darum geht zu erklären, wie denn z.B. unser Sonnen- mit
+dem Planetensystem entstanden und tatsächlich geworden sei.
+Die Theorie, dass unser Sonnsystem mit all den Planeten durch die Zusammenballung von Staub usw. geworden resp. entstanden sei, der sich infolge einer Supernova gebildet habe und sich eben verdichtet und durch die entstehende Hitze zum
+glühenden Ball, eben der Sonne, geworden sein soll, ist absoluter Quatsch. Die Richtigkeit der Entstehung unseres Sonnensystems führt nämlich ursprünglich zurück auf das Geschehen, als aus dem Nihilo das SEIN-Absolutum erschaffen wurde.
+Dieses wurde mit der Fähigkeit versehen, die 6 weiteren Absolutumformen zu schaffen, wobei die letzte Form das Absolutes
+Absolutum war, was in sich die Fähigkeit entwickelte, Schöpfungen zu erschaffen, die sich dann selbständig zu entwickeln
+vermochten. In diese wurden vom Absolutes Absolutum verschiedene Wichtigkeiten und Fähigkeiten eingelagert und also
+integriert, die derart waren, dass sich in der 7raumteiligen Schöpfung ein Materiegürtel entwickeln konnte – der vom Erdling schlichtwegs einfach Kosmos genannt wird, der effectiv und wahrlich nur der 7. Teil der 7 verschieden dimensionierten
+Universen umfassenden Schöpfung ist –, in dem sich gasförmige Materie und aus dieser letztendlich feste und somit staubförmige Materie entwickeln konnte. Aus dieser ergab sich, dass sie sich zusammenfügen, verdichten und Gebilde formen
+und sich daraus Sonnen, Asteroiden und Planeten usw. formen konnten. Dies aber bedingte, dass für eine jede Sonnenbildung, die sehr vielfach einer Doppelsonnenbildung entsprach, was eigentlich die Regel ist, erst Riesengebilde entstanden,
+die ich als Gigantsterne bezeichnen will, die um das Vielfache grösser sind als normale oder auch übergrosse Sonnen. Diese
+sehr heissen Monstergebilde sind, wie mir Sfath erklärte, bis zu 20- und 30mal grösser als die grösste normale Sonne, und
+durch diese erst resp. durch deren Erschaffung und Ausstrahlung von Materien diverser Arten werden Sonnen gebildet –
+vielfach, wie gesagt, eben Doppelsonnen –, die sich auch durch weitere Materie, wie eben sich zusammenballende Asteroiden, Gase und Staub usw. zu Planeten bilden, folglich das entsteht, was wir Sonnsystem nennen. Dabei ergibt sich auch,
+dass die Asteroiden Spuren von Wasser in sich bergen, dessen Werdegang der Entstehung …, was ich aber zu verschweigen
+habe, wie mir Sfath aufgetragen hat. Wenn ich daher sage, dass Asteroiden bei uns Wasser auf die Erde gebracht haben,
+dann ist das so zu verstehen, dass dies nicht erst geschah als der Planet Erde bereits als solcher bestand, sondern das
+Wasser schon mit Asteroiden und letztlich also mit Meteoren hergebracht wurde, als sich die Erde ursprünglich zu bilden
+begann. Und dieses Wasser lagerte sich letztlich nicht nur als uns bekannte Meere und sonstige Gewässer, als gefrorene
+Eismassen der Arktis, Antarktis und Gletscher ab, sondern auch im Erdinnern als Grundwasser und auch als ‹gebundenes
+Wasser› in Gesteinsschichten.
+Das ist eigentlich das, was ich einmal auf all die Fragen erklären will, die immer und immer wieder aufkommen, die zu
+beantworten ich jedoch keine Zeit finde, weil ich Wichtigeres zu tun habe und denke, dass solche Fragen zu beantworten
+eigentlich nicht wichtig ist, ebenso nicht die Richtigstellung der falschen Theorien der bornierten und überheblichen Wissenschaftler, die glauben, dass sie das vollkommene Wissen und dieses mit grossen Schaufeln gefuttert hätten und zudem
+sowieso alles besser wissen wollen, als es die Wahrheit selbst ist. So jedenfalls habe ich viele kennengelernt, wobei nur
+wenige in dieser Beziehung waren, die diesem Grössenwahn nicht frönten und auch mich akzeptierten, obwohl ich keinen
+Doktortitel trage. Leider sind aber auch Besserwisser aus dem Volk, die alles negieren, was dargelegt wird, manchmal recht
+fanatisch, weil sie einfach recht behalten und das Effective nicht wahrhaben wollen.
+
+**Bermunda** Das ist leider so, was bei uns auf Erra glücklicherweise nicht in Erscheinung tritt, weil unseren Bevölkerungen
+
+ein solcherartiges Gebaren nicht eigen ist, wie vieles andere auch nicht, was dem Gros der Menschen dieser Erde an Bösem,
+Falschem, Gefährlichem und gar an menschlich Abartigem anlastet. Dies, wie es z.B. leider auf der Erde mit sehr wenigen
+Ausnahmen den Staatführenden eigen ist, die heimtückisch mit Lügen und Betrug ihre heimlichen sowie kriminellen Bestrebungen verfolgen und meistens auch ihre hinterhältigen Ziele erreichen. Dies, wie z.B. der darauf ausgerichtete Krieg
+im Nahen Osten, der verbissen von dem in blindem Hass gegen die Palästineser handelnden Netanjahu aufrechtgehalten
+wird. Dieser lässt mit Lügen und Betrugsbehauptungen seinen Hasskrieg führen, indem er vordergründig angeblich für eine
+Geiselbefreiung alles Mörderische und Zerstörerische ausführen lässt, wobei ihm die Geiseln jedoch völlig egal und gleichgültig sind. Seine Lügenbehauptungen entsprechen effectiv nur verbrecherischen Wünschen – was ich in ihm eindeutig
+ergründet habe –, die der wirkliche Grund seiner hetzenden Kriegshandlungen und darauf ausgerichtet sind, seinen Hasswahn bezüglich eines Zustandebringenkönnens eines Genozids zu erfüllen, also eine totale und vollständige Ausrottung der
+Palästineser zu erreichen. Dagegen kann leider nichts unternommen werden, denn der Glaube des Volkes an die Lügen
+Netanjahus ist stärker als die Wahrheit.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Billy** Leider ist das aber so und kann nicht geändert werden, denn wenn die Menschen nicht selbst zu lernen, zu
+
+entscheiden und handeln beginnen, sondern einfach glauben, dann ist eben Hopfen und Malz verloren, wie wir sagen.
+Richtig und selbständig zu denken, zu entscheiden und zu handeln, dazu kann kein Mensch gezwungen werden, auch dann
+nicht, wenn er zwangsläufig das macht, was ihm unter schwersten Drohungen zu tun befohlen wird, er hündisch folgsam
+spurt und das macht, was ihm zwingend vordiktiert wird und er aus Angst vor Strafe willfährig alles tut.
+Das trifft auch zu bezüglich Militär und Krieg, da die Menschen gezwungen werden zu morden, und zwar ob die Menschen
+wollen oder nicht, denn von oben herab wird von den Regierenden einfach durch Zwang befohlenen Militärdienst zu leisten
+und in den Krieg zu ziehen und zu töten, zu morden und zu zerstören. Aber richtigerweise müsste es effectiv so sein, dass
+die Urheber von Kriegen usw. diese selbst ausbaden müssten, und zwar indem sich die Kontrahenten, die alles an Hass,
+Unfrieden, Streit und Feindschaft anzetteln, selbst und völlig allein sich an die Front Gesicht zu Gesicht gegenüberstellen
+und alles miteinander ausfechten müssten. Und wenn sich diese Idioten von Regierenden die Schädel einschlagen wollen,
+dann ist das ihre Sache allein und nicht die des Volkes, das effectiv alles so regeln müsste, dass auf diese Art und Weise
+alles beendet und geregelt würde, ohne dass ein Krieg zustande kommen könnte. Dann nämlich würde auch kein Militär
+aufgestellt, das dann jahrelang Krieg führt, mordet, zerstört, vernichtet, vergewaltigt und Not, Elend und Leid über die
+Völker bringt. Auch könnte das für jedes Militär und dessen Waffen sinnlos verschleuderte Steuergeld in der Höhe von
+unzähligen Milliarden für gute Zwecke verwendet werden. Dies, wie auch die Millionen und Milliarden, die um des guten
+Ansehens willen ins Ausland verschleudert werden – auf Kosten der Steuerzahler –, angeblich zur Entwicklungshilfe usw.,
+wovon sich alle die Regierenden fremder Länder reich stossen. Alles Gelder, die im eigenen Land gebraucht würden, um
+das eigene Volk im Wohlstand leben zu lassen, anstatt viele der Armut preiszugeben und sie gar gnadenlos krepieren zu
+lassen.
+
+**Enjana** Du sprichst offen aus, was auch wir Plejaren darüber denken und nicht verstehen, dass von den Staatgewal
+tigen und den Beipflichtenden eines Teiles der Völker dieserart verantwortungslos gehandelt wird.
+
+**Florena** Leider ist das wirklich so, hier bei den Erdenmenschen, wie ich verschiedentlich festgestellt und erkannt habe,
+
+wenn ich diesbezügliche Beobachtungen gemacht habe.
+
+**Bermunda** Das ist tatsächlich so, und ich weiss, wovon ich diesbezüglich spreche, denn ich habe die gleichen Feststellun
+gen zu vermelden.
+
+**Billy** Dann fahren wir im gleichen Boot.
+
+**Bermunda** Ja, das kann so gesagt werden. Doch sagen will ich, dass mir bekannt ist, dass Sfath dich sehr vieles gelehrt
+
+hat, was in keiner Schule auf der Erde gelehrt wird und den Erdenmenschen noch sehr lange Geheimnisse bleiben wird,
+worüber du aber nicht sprechen sollst. Er war sehr vielfältig und ist uns auf Erra sowie auch im Bereich unserer gesamten
+Föderation als hochgeschätzter Wissenschaftler sowie als Erforscher der Erde und auch des gesamten SOL-Systems sehr
+wohl bekannt. Und ebenso wissen wir, dass er auch dich umfangreich in vielem Wissen unterrichtete und er dich durch die
+vielen Zeiten führte, die uns zu ergründen leider versagt bleiben werden. Doch fragen will ich dich noch, was ‹enfant terrible› bedeutet, denn das ist mir unbekannt?
+
+**Enjana** Auch ich fühle mich befremdet von diesem Wort.
+
+**Florena** Das ist mir ebenfalls fremd.
+
+**Billy** ‹Enfant terrible›, das ist nicht ein Wort, sondern deren 2, zudem ist es nicht Deutsch, sondern Französisch
+
+und war zu meiner Jungenzeit im normalen Sprachgebrauch bei uns Deutschschweizern. Es bedeutet etwa ‹schreckliches
+Kind›, das habe ich schon bei Sfath gelernt, als wir während des Weltkrieges zusammen in den Konzentrationslagern die
+Schrecken sahen, die dort von den NAZI-Schergen getrieben wurden. Er nannte das dabei oftmals ‹enfant terrible›. Es wird
+aber auch verstanden als ‹böses schwarzes Schaf› oder ‹verkommenes Rabenass›, wie auch ‹böser Teufel› und
+‹vermaledeiter Satansbraten› im Sinn von Gesinnungsverwarlosung.
+
+**Enjana** Deine Erklärung legt alles klar dar.
+
+**Billy** Nun habe ich hier etwas, was ich äusserst wichtig finde und erwähnt werden soll, um einmal einigermassen
+
+Klarheit zu schaffen. Dies wird von jedem Menschen in der Regel durch Phantasiemisslehren falsch und also so verstanden,
+wie er gemäss seiner glaubensmässigen Gesinnung denkt, doch wahrheitlich ist die Wahrheit etwas anders, als
+angenommen und missverstanden wird. Es geht dabei nämlich darum, wann eine Schöpfungslebensenergieform (die
+fälschlich seit alters her ‹Geistform› genannt wird) neuerlich eine neue Persönlichkeit belebt, wenn sie nach dem Sterben
+resp. dem Tod eines Menschen nach dem Aufenthalt in der ihr entsprechenden Schöpfungsenergieebene wieder eine neue
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Persönlichkeit belebt. Dass das jedoch keiner Inkarnation entspricht, wie dies irrtümlich behauptet wird, weil phantasievoll
+fälschlich angenommen und irrlehrerisch sowie sektiererisch behauptet wird, der gestorbene Mensch werde früher oder
+später wiedergeboren, folglich er also inkarniere resp. wieder eine Fleischwerdung, Wiederverkörperung und also wieder
+eine Menschwerdung in der Weise erfolge, dass wieder derselbe Mensch geboren werde. Das jedoch entspricht nicht der
+Wahrheit, denn wenn der Menschenkörper gestorben und also tot ist, dann kann dieser niemals wieder  reanimiert
+werden, denn wenn er wirklich tot ist, kann folglich der Körper nicht wieder zum Leben wiedererweckt werden. Ein nur
+‹totgeglaubter› Menschenkörper kann, wenn irgendwie tatsächlich untergründig noch Leben in diesem ist, reanimiert
+werden. Wenn der Körper jedoch effektiv tot resp. gestorben ist, dann entweicht automatisch und augenblicklich die ihn
+belebende Schöpfungslebensenergieform (irrtümlich ‹Geist› genannt). Diese Enegie – die gesamthaft absolut rein schöpfungsmässigen Ursprungs ist – entweicht jedoch nicht in ein von Menschen erdachtes und erphantasiertes ‹Jenseits›,
+sondern in jene Schöpfungsenergieebene, die für sie allzeitig gegenwärtig ist und in der sie nach dem Tod des Menschenkörpers lernend derart lange verweilt, bis sie restlos alle Informationen während der Verweilsdauer in dieser Ebene aufgearbeitet und zu wahrem Wissen geformt hat. Das also sind gesamthaft alle jene Informationen, die sie als Schöpfungslebensenergie in der Persönlichtkeit in deren Lebenszeit aufgenommen hat. Gesagt sei nun, dass das Einziehen und Beleben
+und damit das Bewusstseinbilden je nach kürzerer oder längerer Zeit erfolgt, und zwar je gemäss der vorherrschenden
+Reihenfolge, folglich sich also ganz normalerweise ergibt, dass ein Einziehen der Schöpfungslebensenergieform – es gibt ja
+auch ganz natürlich Änderungen und sog. ‹Ausnahmen› – in eine neue Persönlichkeit dann erfolgt, wenn sie wieder ‹gereift›
+und ‹an der Reihe› ist. Das bedeutet, dass es umso länger dauert, ehe eine Schöpfungslebensenergieform eine neue
+Persönlichkeit beleben kann, je mehr Menschen es gibt und je mehr von ihnen gestorben sind, die sich ‹anreihen›, um
+wieder eine neue Persönlichkeit zu beleben. Eine Belebung einer neuen Persönlichkeit erfolgt grundlegend beim Menschen
+am 21. Tag nach der Zeugung neuen Lebens, wenn im Mutterleib die neue Frucht sich entwickelt. Dazu schreibt nun Achim
+Wolf folgendes, nachdem das Ganze einmal besser erklärt wurde, weil entsprechende Fragen zwangsläufig dazu führten,
+dass einmal eingehender über dieses Thema ausführlicher gesprochen und alles näher erklärt wurde:
+
+**Brief von A.W.: Nun verstehe ich alles viel besser: – Einerseits verlängert sich die Verweildauer der Schöpfungsener-**
+gieform im ‹Jenseitsbereich› durch die Überbevölkerung, weil die ‹Warteschlange› zigfach länger ist als bei einer Normalbevölkerung, wie sie auf der Erde bei ca. 500 Millionen Menschen wäre. Also z.B. anstatt dem Faktor 1,5 wäre
+dann der Faktor 27 bei einer18fachen Überbevölkerung gegeben. – Anderseits lernen die Menschen durch die Auswirkungen der Überbevölkerung weniger als es möglich bzw. richtig wäre, so dass die Verarbeitungszeit durch den
+Gesamtbewusstseinblock und die Schöpfungsenergieform im Jenseitsbereich entsprechend kürzer ist, weil es weniger Material bzw. Wissen zu verarbeiten gibt. – Infolgedessen werden durch die lange Jenseitsverweildauer und den
+geringen evolutiven Fortschritt Persönlichkeiten geboren, die mit der inzwischen fortgeschrittenen Entwicklung
+nicht standhalten können, weil sie sozusagen ‹unfertige› Persönlichkeiten im Sinne dessen sind, dass sie quasi in ihrer
+Gesamtentwicklung ‹zurückgeblieben› sind und sich somit in der aktuellen Zeit ab ihrer Geburt nur schwierig oder
+gar nicht mehr zurechtfinden können, weil sie den Anschluss verloren haben. Wenn man es mit einem Schüler vergleicht, dann wäre es in etwa so, wie wenn ein Grundschüler nach Ende der 4. Klasse nach der Sommerpause nicht in
+die 5. Klasse kommt, sondern die Sommerferien anstelle von 6 Wochen plötzlich 5 Jahre dauern und er sich danach in
+der 10. Klasse wiederfindet, wo er einfach nicht Schritt halten kann, weil ihm das Wissen fehlt und er 5 Jahre Entwicklung bzw. Lernen verpasst hat. – Könnte man es so zusammenfassen?
+Salome und liebe Grüsse
+Achim
+
+**Billy** Ja, Achim, etwa so. Dann habe ich hier folgendes, was Achim bezüglich des Papstes geschrieben hat, der etwa
+
+sagte:
+
+«Das Oberhaupt der katholischen Kirche reiht sich in die lange Liste der Nichtdenkenden ein, die die horrende Überbevölkerung des Planeten als zugrundeliegende Ursache der Klimakatastrophe und aller Umweltzerstörungen nicht
+als Wahrheit erkennen können. Der gehirnamputierte Vermehrungswahn mit der im Jahre 2024 auf das 18fache der
+Idealbevölkerung von 529 Millionen Menschen angestiegenen Überbevölkerung auf dem Planeten Erde basiert zudem zu grossen Teilen auf der bekannten, verbrecherisch-sektiererischen Vermehrungsdoktrin der Kirche «Seid
+fruchtbar und mehret euch!». Durch den Religionswahn des überwiegenden Gros der Erdenmenschen ist ihnen leider
+ein vernünftig-logisches Denken nicht eigen, das beweist das beharrliche Verweigern resp. die Unfähigkeit, die Tatsachen der Wirklichkeit bezüglich der Überbevölkerung wahrzunehmen und logische Schlüsse daraus zu ziehen, die zu
+einem sofortigen Geburtenstopp mit nachfolgenden Geburtenregelungen führen würden.»
+Achim Wolf, Deutschland
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Weiteres schreibt Achim mit folgendem:
+
+## Die Erde versumpft
+
+Achim Wolf
+
+Beim 887. Kontakt am Mittwoch, 8. Mai 2024, ging Billy auf die Frage einer Anruferin bezüglich der immer schlimmer
+werdenden Überschwemmungen ein, die zur Versumpfung aller Länder der Erde führen werden. Der folgende Artikel
+aus dem FIGU-Bulletin Nr. 81 vom September 2013 soll den Leserinnen und Lesern vor Augen führen, dass sich diese
+Voraussagen aus den 1980er Jahren jetzt immer dramatischer erfüllen. Die Erdenmenschheit sollte endlich auf die
+Worte und Mahnungen von BEAM und seinen plejarischen Freunden hören und dieser Entwicklung durch einen sofortigen Geburtenstopp mit nachfolgenden Geburtenregelungen entgegenwirken.
+
+**‹Jahrhundertfluten› werden zum Alltag**
+
+Per Definition versteht man unter ‹Jahrhundert-Hochwasser› oder ‹Jahrhundertflut› die Pegelhöhe oder Abflussmenge eines Gewässers, die im statistischen Mittel einmal alle 100 Jahre erreicht oder überschritten wird. Angesichts
+der Hochwasserkatastrophen der Jahre 1997, 2002 und jüngst im Juni 2013 an den Flüssen Elbe und Oder wirkt dieser Begriff schon überholt, wenn nicht gar lächerlich. Überflutungs- und Überschwemmungskatastrophen werden
+wohl in immer kürzeren Zeitabständen wiederkehren. Nach wissenschaftlichen Untersuchungen über die künftige
+Niederschlagsentwicklung in Europa führt die mit einem Anstieg der Treibhausgaskonzentration verbundene Erwärmung der Atmosphäre zu einer Erhöhung des atmosphärischen Feuchtegehalts. So würde gemäss der ClausiusClapeyron-Gleichung 1°K (Kelvin) Temperaturerhöhung zu ca. 7% mehr Wasserdampf in der Atmosphäre führen.
+Dieses wiederum ist ein Auslöser für häufigere und intensivere Starkniederschlagsereignisse. Demnach wird in allen
+europäischen Regionen sowohl im Sommer als auch im Winter die Häufigkeit und Intensität von starken bis extremen
+Niederschlagsereignissen zunehmen. Ganz besonders gilt dies für den Norden Europas. Die Trends sind sowohl für
+den Bereich der mittleren als auch im Bereich der extremen Niederschläge signifikant. Ein Trend der Niederschlagscharakteristik zu weniger mittleren und mehr extremen Ereignissen hat zahlreiche Folgen. Der Boden kann die intensiveren Niederschläge nicht in ausreichendem Masse aufnehmen, was einerseits zu einem Defizit im Grundwassernachschub und damit der Wasserversorgung grosser Regionen führen kann, andererseits zu erhöhten Abflussspitzen
+in Kanalisationen und Flüssen. Unterstützt durch grossräumige Bodenversiegelung in Gebieten hoher Bevölkerungsdichte und Bach- sowie Flussbegradigungen zur Landgewinnung könnten die Kapazitäten der derzeitigen Wasserleitsysteme bald ausgeschöpft sein und wenige extreme oder mehrere aufeinanderfolgende nicht ganz so intensive Niederschlagsereignisse dann zu häufigeren Überflutungen führen, die – wie die Überflutungen im Juni 2013 – das
+Ausmass der Katastrophen an Oder (1997) und Elbe (2002) annehmen oder übersteigen. Auch ein Rückgang der
+Schneefallmenge wäre nicht ohne Folgen für die Wasserversorgung z.B. der Alpenländer, so werden zur Zeit ca. 50%
+des globalen Niederschlagablaufs in Staubecken gespeichert.
+Es erfüllt sich damit erneut mit trauriger Genauigkeit eine Voraussage von Billy aus den 1950er und auch aus späteren
+Jahren, wie auch jene der ausserirdischen Kontaktpersonen Semjase und Ptaah aus den Jahren 1980 und 2006. Leider
+ist nicht davon auszugehen, dass die Menschen jetzt schlauer werden, eher wird so weitergewurstelt werden wie
+bisher. Folglich werden sie die Verantwortung für die Ursachen des Klimawandels weiterhin weit weg von sich schieben oder lieber der Natur im Allgemeinen sowie dem nichtexistierenden Zufall oder einem imaginären Gott usw. zuschreiben.
+
+**Billy schrieb im Bulletin Nr. 78 vom September 2012:**
+
+«Die Überbevölkerung wird noch lange Zeit nicht offiziell durch die Behörden und Regierungen mit entsprechend
+greifenden Massnahmen gestoppt, denn es fehlt immer noch an Vernunft und Verantwortung, wie aber auch an der
+Erkenntnis, dass durch die bereits bestehende und weiter anwachsende Überbevölkerung die irdische Menschheit
+sowie der Planet, das Klima und die Fauna und Flora unaufhaltsam in eine gewaltige Katastrophe geführt werden. Bei
+dieser Aussage handelt es sich nicht um eine einfache Prophetie, sondern um eine Kombination von Prophezeiung
+und Voraussage.»
+(Achtung: Die ‹Voraussagen und Prophetien 1951 und 1958› von ‹Billy› Eduard Albert Meier sind gratis/umsonst
+erhältlich beim Verein FIGU. Auch bundweise zum Verteilen an Interessierte.)
+Auch bei den Kontaktgesprächen zwischen Billy und den Plejaren wurde oft davon gesprochen, was die Zukunft in
+bezug auf Naturkatastrophen und den Klimawandel bringt, und zwar ausgelöst durch die Ausartungen und Naturzerstörungen durch die Erdenmenschheit infolge der grassierenden Überbevölkerung.
+
+**Auszug aus dem 131. offiziellen Kontaktgespräch vom Sonntag, 15. Juni 1980**
+
+**Semjase** So im Ungefähren steht die Reihenfolge, ja. Doch wie diese auch immer ist, gilt die Tatsache heute, dass
+
+durch die Schuld der gesamten irdischen Menschheit viel des Festlandes langsam aber sicher zu einem wasserverseuchten Morast und Sumpf werden wird, in dem Seuchen und Tod regieren werden.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+_Hochwasser in Süd-Niedersachsen im Juli 2017 23,11 h_
+
+**Billy** Du meinst wegen des Regens?
+
+**Semjase** Nicht nur wegen dieses Regens, nein, sondern deswegen, weil durch die Schuld des Erdenmenschen das
+
+natürliche Klima zerstört wurde und die Erde schon seit Jahrzehnten mit Regen übersättigt wird, wie das aber auch
+in kommender Zeit in noch schlimmeren Massen geschehen wird.
+
+**Billy** Du meinst, dass die Erde im Wasser oder im Regen ersaufen wird?
+
+**Semjase** So wird es annähernd kommen, durch die Schuld des Erdenmenschen selbst.
+
+**Billy** Und tun kann man nichts dagegen, ich weiss, denn die Menschen dieser Welt lassen sich weder belehren,
+
+noch wollen sie sich ändern.
+
+**Semjase** Das ist richtig.
+
+**Billy** So tragen sie sozusagen auch jetzt Mitschuld daran, dass es dermassen regnet, dass man meinen könnte,
+
+es käme eine neue Sintflut.
+
+**Semjase** Auch das ist richtig.
+
+**Auszug aus dem 434. offiziellen Kontaktgespräch vom Samstag, 9. September 2006**
+
+**Billy** Das wird wohl noch seine Zeit dauern, und zwar auch dann, wenn wir deine Warnung weltweit verbreiten.
+
+Einerseits sind unsere Wissenschaftler gehörig borniert, und andererseits steckt hinter allem bereits ein derartiger
+wirtschaftlicher Kommerz, dass die Sache kaum noch zu stoppen ist.
+Aber zu stoppen sind auch viele andere Dinge nicht, wie z.B. die Klimaerwärmung, Umweltzerstörung und Überbevölkerung, woraus ungeheure Veränderungen in der Natur vor sich gehen.
+Die Abholzung der Regenwälder und die Verbauung des Landes sowie die Zubetonierung und Asphaltierung von grossen Flächen tragen ebenso zur rasant voranschreitenden Klimaveränderung bei wie auch die daraus entstehenden
+grossen Regenfälle, wovon schon Semjase Ende der 1970er Jahre sagte, dass Europa langsam versumpfe.
+
+**Ptaah** Das ist leider eine unumstössliche Tatsache, denn die Erdenmenschen hörten nicht auf die Warnungen
+
+und hören noch immer nicht darauf. Weitere Klimaveränderungen entstehen nicht nur durch die Umweltverschmutzung, sondern sie resultieren auch aus der verantwortungslos veränderten Erdoberfläche und der Ausbeutung der
+Erdressourcen heraus, und wie du gesagt hast, auch aus der Abholzung der Regenwälder sowie der Zubetonierung
+und Verbauung der Landflächen, insbesondere der Grünflächen. Und bezüglich der Versumpfung Europas ist zu sagen, dass das Problem der ungewöhnlich grossen und starken Regenfälle neue Faktoren der Klimaveränderung
+schafft, weil sich dadurch drastisch die Temperaturen verändern. Dadurch verändert sich die gesamte Natur, und
+zwar nicht nur die Vegetation, sondern auch die Welt und die physischen Eigenschaften usw. des Getiers und des
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Menschen. Extreme Schnee- und Hagelstürme und ebenso extreme Hitze- und Dürreperioden wechseln sich ab, wovon auch die Gletscher sowie die Arktis und Antarktis betroffen sind und schmelzen.
+Immer schwerere Regenfälle rufen immer mehr Murgänge hervor sowie Berg- und Felsstürze, wobei auch das Auftauen des Permafrostes, der die Felsmassen zusammenhält, eine wichtige Rolle spielt. So steigen durch die Erwärmung des Erdklimas auch die Wasser der Meere, was zur Folge haben wird, dass Städte, Dörfer und bewohnte Landflächen unaufhaltbar überschwemmt und für den Erdenmenschen unbewohnbar werden.
+Dadurch werden die bewohnbaren Flächen immer kleiner und geringer, was bedeutet, dass der Lebensraum des Erdenmenschen immer mehr schrumpft und kleiner wird, und zwar im Verhältnis zur stetig wachsenden Überbevölkerung.
+Dadurch ist eine menschheitliche Katastrophe bereits vorbestimmt, die in ihren schlimmsten Formen nur noch durch
+eine rigorose Geburtenkontrolle resp. durch einen weltweiten, kontrollierten und etappenweisen Geburtenstopp in
+bestimmter Weise über lange Zeit hinweg gestoppt werden kann.
+Was jedoch in der Natur und am Klima durch den Erdenmenschen in bezug auf die Überbevölkerung und deren katastrophale Folgen bereits zerstört wurde, kann leider nicht mehr rückgängig gemacht werden, folglich sich die Naturkatastrophen jeder Art in kommender Zeit immer mehr steigern und zum ‹Normalen› werden.
+
+**Zum Schluss noch ein offenes Wort aus dem 849. Kontakt vom 12. Juni 2023**
+
+**zu den EINZIG WIRKSAMEN Massnahmen gegen die Zerstörung des Planeten Erde**
+
+**Billy** Dann eben nicht, folglich also eine Zwischenfrage oder Zwischensache: Was denkst du bezüglich der Ma
+chenschaften der Regierungen, die hinsichtlich aller Vernunft unangebracht und völlig irr, und offensichtlich infolge
+der Demonstrationen der Umweltschützer, nun verrücktspielen und bezüglich der Verkehrsmittel, Heizungen und
+der Elektrizität usw. alles ummodeln wollen? Sie fassen dementsprechend irre und wirre Beschlüsse und ordnen Massnahmen an, die mehr Schaden als Erfolg bringen, und zwar besonders hier in Europa.
+
+**Quetzal** Blanke Dummheit, denn dadurch wird das Problem der rundum grassierenden Zerstörung des Planeten,
+
+aller Ökosysteme, der gesamten Natur und deren Fauna und Flora, wie auch der Atmosphäre nicht beendet. Allein
+eine radikale Verminderung der horrenden Masse Erdenmenschheit, und zwar weltweit ohne Wenn und Aber und
+unter eine Milliarde Menschen, kann ein Ende aller Zerstörungen und eine Zukunft bringen. Dies müsste durch alle
+Führungen aller Staaten die wichtige strikte Beschlussfassung und Durchführungsanordnung sein, denn allein diese
+Massnahme ist nur noch zukunftsbringend für das Weiterbestehen der Menschheit dieser Welt. Und nur dadurch
+kann auch das drohende Unheil abgewendet und beendet werden, das sich durch die Künstliche Intelligenz anbahnt,
+die schon sehr viel weiter in deren Entwicklung fortgeschritten ist, als die Völker der Erde darüber informiert werden
+und Gefahr laufen, zukünftig …
+Achim Wolf, Deutschland
+
+**Billy** Seither aber, als erstmals davon gesprochen wurde, wurde schon damals und bis heute nichts unternommen,
+
+um den drohenden Schäden entgegenzuwirken. Dr. …, der in Deutschland in … Regierungsbeamter war, und regelmässig
+die Kontaktberichte von Guido zugeschickt bekam, kam ja erst 3mal zu mir und danach regelmässig zu Guido, wo er jeweils
+4 und gar bis 5 Stunden blieb. Er versuchte in der deutschen Regierung oftmals seine Stimme zu erheben und den Hohlköpfen klarzumachen, dass vieles für die Zukunft getan werden müsse, um alles das zu verhindern, was sich zukünftig an Unheil
+durch gewaltige Unwetter und Überschwemmungen in Deutschland ergeben werde, was sich jetzt real auch wirklich an
+Überschwemmungsunheil und Versumpfung in Deutschland ergibt. Doch jedes Mal, wenn er hierherkam, klagte er, dass er
+nirgendwo Gehör finde und wie an eine dicke Mauer rede. Es hätte wirklich viel Nutzvolles getan und viel Schaden und Leid
+usw. vermieden werden können, wenn auf das gehört worden wäre, was Herr … den Regierenden verklickerte. Was aber
+damals in Deutschland nicht getan wurde, das wird auch rund um die Welt von anderen Regierungen nicht getan, weil diese
+ebenfalls bis zum Gehtnichtmehr stur sind, alles besser wissen und es sich auf Kosten der Völker gutgehen lassen, die ja
+diese Fritzen und Fritzinnen mit grossen Entlohnungen am Leben erhalten. All denen ist ja egal, was nun künftig über die
+Welt kommen wird, und zwar nicht nur bezüglich der Unwetter, die fortan nun weltweit Unheil noch und nöcher bringen
+werden, sondern auch, was sich politisch ergeben und völlig ausser Kontrolle geraten wird. Dies zusammen mit den Folgen,
+die sich aus der Unzufriedenheit der Bevölkerungen und dem äusserst negativen Wandel der Einstellungen und des Verhaltens und Handelns der Menschen und der Technik und bezüglich der Folgen der Künstlichen Intelligenz sowie der Zerstörung der Erde, deren Ökosysteme, der Natur und deren Fauna und Flora, der Atmosphäre und des Klimas ergeben wird.
+
+**Bermunda** Das bezüglich des Staatsmannes aus Deutschland hat uns Ptaah erzählt, denn er interessierte sich für diesen,
+
+doch er konnte ihm nicht beistehen. Und wir wissen auch, dass du immer angegriffen wurdest. Ptaah hat uns auch das alles
+und vieles andere erzählt, auch dass auf dich geschossen und auch Silvano deswegen miteinbezogen wurde.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Billy** Das war und ist leider so, doch dagegen kann nichts getan werden, denn im Untergrund der Gesinnung der
+
+Menschen lauert ständig die Rache und Vergeltung für alles und jedes, das ihnen nicht in den Kram passt. Wenn daher
+jemand anders denkt als es diesen Menschen passt, dann greifen sie in ihrer falschen Gesinnung und schnell aufkommendem Hass sofort zu Waffen und suchen durch Mord und Totschlag das ihnen nicht Passende nach eigenen Regeln zu richten.
+Dies ist ja auch wieder geschehen mit dem Absturz des persischen Regierungshelikopters, bei dessen Absturz der Präsident
+Ebrahim Raisi, wie auch der Aussenminister Hussein Amirabdollahian des Staates Iran – den ich ja noch als Persien und
+dann eben als Iran kenne, wo ich in Teheran noch Schah Mohammed Reza Pahlavi kennenlernte, als ich einmal zum Schweizer Konsulat ging – nebst allen anderen Insassen ums Leben gekommen sind. Neun Tote sind es gesamthaft, wie das Staatsfernsehen am Montag bekanntgab. Und wie ich weiss, erfolgte der Absturz nahe der Grenze zu Aserbeidschan, wobei der
+alte US-Helikopter plötzlich infolge der Manipulation an der Steuerung versagte und abstürzte, wie ich weiss. Die Manipulation …, worüber natürlich geschwiegen und alles bestritten wird. Es ist aber die Zeit gekommen, dass weltweit die Politiker
+und Polizei sowie sonstige Sicherheitsorgane immer mehr tätlich angegriffen und gar getötet oder durch heimtückische
+Attentate ermordet werden, wie es eben durch die Manipulation an der Steuerung des Helikopters geschah, wovon ich
+eben sprach. Wie seit jeher üblich, kommt der Feind immer von innen, und zwar ganz besonders für jene, welche offen,
+untergründig oder heimlich Macht ausüben, diktatorisch sind oder sonstwie ihr Machtgebaren zur Geltung bringen. Oft
+geschieht dies, ohne dass die betreffenden Personen es selbst bemerken, weil sie sich erhaben fühlen, selbst einmal darüber nachzudenken, wie sie sich verhalten, folglich sie auch nicht bemerken, was sie eigentlich tun und welches falsche
+Verhalten sie an den Tag legen. Sie hören sich gerne selbst reden und bemerken nicht, dass ihr Gerede krankhaft und nicht
+mehr als ein Geschwafel ist, wobei sie glauben, dass alles, was sie daherpalavern des Rechtens und der Wichtigkeit sei,
+folglich sie daher nicht sehen, dass sie bei den Zuhörenden oder mündlich Beharkten Langeweile, Unaufmerksamkeit, Widerwillen und Feindschaft hervorrufen. In ihrem untergründigen oder heimlich-bewussten Machtgebaren bemerken sie
+nicht, dass ihre ganzen Verhaltenweisen grundsätzlich falsch sind. Und dieses Gebaren und Verhalten findet sich bei den
+Politikern wie auch in privaten Gemeinschaften, in Vereinen und Religionsvereinigungen rund um die Welt. Jede Führung
+oder Missführung schafft in den eigenen Reihen im Untergrund immer Unfrieden und heimliche Feindschaft, die plötzlich
+nach aussen zuschlägt und Unheil fordert. Oft wird dadurch gar ein Krieg oder eine blutige Revolution hervorgerufen, wobei
+dann letztendlich einmal das ganze Geplänkel jeweils jahrelang dauert, vielleicht ein Ceasefire resp. ein Waffenstillstand
+kommt, wonach dann nach Jahren vielleicht einmal die eine über die andere Partei siegt. Dann heisst es kurzum einfach
+‹Frieden›, der jedoch trügerischer nicht sein kann, denn ein ‹Frieden› nach einem Krieg oder nach einer Revolution ist
+niemals ein wahrer Frieden. Das was nach einem Krieg, einer Revolution usw. genannt wird, ist wahrheitlich nur Unterwerfung und Feindschaft und also genau das Gegenteil von dem, was z.B. von Politikern behauptet wird.
+
+**Bermunda** Das bezüglich der Hintergründe des abgestürzten Helikopters sollst du aber nicht sagen. was du aber weiter
+
+mit offenen Worten sagst, ist nicht nur eine Rede, sondern eine greifende und effektiv wahre Erklärung dafür, warum sich
+von innen her die heimlichen Angriffigkeiten gegen praktisch jede Führungskraft entwickelt, die bewusst oder heimlich,
+untergründig oder einfach dumm und sich selbst nicht klar über das eigene Verhalten, Macht ausübt.
+
+**Billy** Das um die verbrecherischen Machenschaften sage ich ja nur dir. Ansonsten habe ich da meine Pünktchen.
+
+Aber gut, worüber vorhin geredet wurde, da habe ich dazu noch zu sagen, dass wenn böse Angriffe gegen mich gerichtet
+werden, dass ich dann einfach alles hinnehme, wie ich das schon seit meiner Jugend tue, was leider jedoch dazu geführt
+hat, dass nebst den Sektenangehörigen der Sekte … in Bülach und selbst durch die Behörden und die Polizei weitum nebst
+diversen Institutionen mich zur Sau gemacht und böswillig mit Unwahrheiten beschuldigt haben. Es wurde gar mehrfach
+versucht, mich aus der Welt zu schaffen, gar als ich unterwegs im Ausland war, wie auch in Hinwil sowie mehrmals rund
+ums Center, da auch Silvano mehrfach und auch einmal Engelbert des Lebens gefährdet wurden. Mit Silvano war es gar
+einmal, als wir mit dem Auto nach Saland fuhren und wir beschossen wurden, wobei die Kugel an der Frontscheibe abprallte. Den Schützen konnten wir leider nicht erwischen, obwohl wir ihm nachjagten, denn der Kerl mit dem Gewehr war
+schneller als wir, weil wir erst das Auto parkieren mussten und erst danach dem Mann nachlaufen konnten, der aber schon
+zu weit weg war. Silvano bestand darauf, zur Polizei zu gehen, was wir dann auch taten, doch man lachte nur und behauptete, dass wir an der Frontscheibe nur von einem Stein eines vorbeifahrenden Lastwagens getroffen worden seien. Dies,
+obwohl weder hinter uns noch vor uns überhaupt ein Auto fuhr und wir allein auf der Strasse waren, wir zudem den Schützen mit seinem Gewehr sahen und verfolgten. Folglich wurde nicht einmal die Bemühung gemacht, einen Rapport anzufertigen.
+Nun, ich kann keinen Menschen Vernunft einhämmern, die sich nicht selbst des Guten und Richtigen belehren. Deswegen
+habe und finde ich aber keinen Grund, sie zu schmähen oder zu hassen. Für mich sind die Menschen einfach Menschen,
+und wenn sie es für notwendig erachten, mich zu beschimpfen, zu harmen oder zu missachten, dann ist das ihr eigenes
+Tun, das ich nicht ändern kann. Jeder Mensch hat mit sich selbst zurechtzukommen und zu wissen, was Recht und Unrecht
+ist, folglich er auch selbst danach zu handeln hat. Und wenn es darum geht, ihn zu beraten, dann tue ich das gern, wenn
+ich dazu in der Lage bin, doch kann ich keinem Menschen befehlen, was er zu tun hat. Mir ist egal, was ein Mensch denkt
+und glaubt, welchen imaginären Gott er verehrt und anbetet, welche Heiligen er anhimmelt und ihnen sonstwie huldigt,
+denn für mich sind sie einfach Menschen und bleiben es, und eben auch dann, wenn sie Falsches tun. So kann ich bei ihnen
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+wohl Rechtes akzeptieren und Unrechtes ablehnen, und richtig gesehen ist kein Mensch mit fehlerlosem Denken, Handeln
+und Verhalten, also auch ich nicht, folgedem es mir nicht ansteht, Menschen zu verurteilen, und zwar auch dann nicht,
+wenn ich bei irgendwelchen das Böse und Falsche erkenne und derbezüglich lauthals die Wahrheit sage. Auch dann, wenn
+ich diese und jene als Idioten betitle, dann prangere ich nur deren Unbedachtheit, deren falsches Denken, Verhalten und
+Handeln an, jedoch liegt es mir immer fern, sie als Menschen anzugreifen, zu missachten oder sie infolge ihres Glaubens an
+einen Gott oder an Heilige usw. oder bezüglich einer weltlichen Gläubigkeit irgendwie zu harmen.
+Was Achim anspricht bezüglich der Künstlichen Intelligenz, so ist die daraus hervorgehende kommende Katastrophe wohl
+nicht zu vermeiden, denn das Böse hat sich daraus schon ergeben. Es ist es also nicht damit getan, dass bereits künstliche
+Hunde mit Schusswaffen am Kopf versehen wurden, sondern es ist auch bereits am Geschehen, dass Stimmen von Menschen derart gefälscht werden, dass nicht mehr unterschieden werden kann, ob sie künstlich erstellt oder tatsächlich von
+den entsprechenden Menschen gesprochen werden, denen sie effectiv angehören.
+Auch werden bereits in dieser Weise Gesangsstimmen von Sängerinnen und Sängern gefälscht, wie kommend auch Aufnahmen von ‹Beweisstimmen› als falsche Beweise gefertigt werden, wie aber auch …
+
+**Bermunda** Das aber sollst du nicht erklären, denn … Dass du aber derart denkst und dich verhältst, wie du gesagt hast,
+
+das wissen wir, auch dass du deine Arbeit nicht tun könntest, wenn du anders denken und handeln würdest.
+
+**Florena** Das wissen wir alle, doch jetzt haben Enjana und ich zu gehen, denn unsere Pflicht ruft uns. Da wir aber doch
+
+noch einiges zu besprechen haben, was mit dem im Zusammenhang steht, was wir anfangs beredet haben, werden wir das
+jetzt infolge der fortgeschrittenen Zeit nicht mehr tun können. Wir werden morgen alle nochmals herkommen und alles
+nochmals gründlich besprechen, denn ich habe inzwischen noch einiges bedacht, was mir jetzt etwas unklar ist und was wir
+wohl doch noch eingehender bereden sollten. Was denkt ihr zu meinem Begehr?
+
+**Bermunda** Natürlich, wenn du denkst, dass dies erforderlich ist, dann sei es so.
+
+**Enjana** Das ist fraglos, und so können wir gehen, Florena. Auf Wiedersehn, lieber Freund.
+
+**Florena** Dann also bis morgen, lieber Vaterfreund.
+
+**Billy** Ade zusammen. Dann bis morgen, doch warte – was ich jetzt noch sagen will ist, dass der Internationale
+
+Gerichtshof sich darum bemüht, einen Haftbefehl für den Massenmörder Netanjahu nebst einigen Anführern der Hamas
+zu erwirken. Dies passt nun verschiedenen Regierenden nicht, die verantwortungslos diese Massenmörder verteidigen, wie
+das z.B. der senile Präsident Biden der USA tut, nebst anderen, die verantwortungslos zuschauen, wie in Palästina durch
+die israelische Armee unter dem Diktat des Massenmörders gemordet, vergewaltigt und zerstört wird. Wie sich dazu die
+Schweiz verhalten wird, da wird es wohl einen Widerstreit geben, denn viele der Netanjahufreundlichen, wie das auch
+bezüglich Selensky ist, dem dadurch geholfen werden soll, dass Gelder in die Ukraine gepumpt werden und von der Schweiz
+Flüchtlingen aus der Ukraine der Flüchtlingsstatus entzogen werden soll, dass diese zurück nach der Ukraine gehen und
+sich dort doch als Kanonenfutter am Krieg beteiligen sollen. Da fragt sich wieder einmal mehr: «Wo bleibt da die Neutralität
+der Schweiz?» Anderweitig fragt sich aber auch, inwieweit sich all die waffenliefernden Idioten, die auf Selenskys diesbezügliche Bettelei reagieren – plus jener Teile der Völker, die das befürworten –, überhaupt bewusst sind, dass sie sich zumindest als Mittäter des indirekten Mordes schuldigmachen. Nämlich dieserart jeder Regierende, der Waffen liefern lässt,
+wie ebenso jede Bürgerin und jeder Bürger, die oder der das Waffenliefern befürwortet. Allesamt sind sie der Beihilfe zum
+Massenmord schuldig.
+Aber sieh einmal hier, zu all dem, was hier in diesem E-Mal steht, dazu habe ich als Antwort bereits alles vorgeschrieben,
+denn das, was ich hier erhalten habe, ist schon lange her und mir mehr als nur geläufig. Eva und ich haben erst vor wenigen
+Wochen bezüglich Vera Brühne gesprochen, als etwas darüber in einem Journal geschrieben war. In diesem E-Mail steht
+aber etwas wegen Rosemarie Nitribitt. Was aber von Frau … dazu geschrieben wird, dass ich etwas wisse, weil sie von … …
+erfahren habe, dass ich eventuell darüber mehr wisse, weil ich doch einmal gegenüber … angedeutet habe, dass bezüglich
+den 2 Mördern nicht nachgegangen werde, weil es ein ‹heisses Eisen› sei, diese zu entlarven, weil …
+Das Ganze ist aber ziemlich lang her, und es ist mir zu mühsam zum Vorlesen. Wenn du aber diesen ersten Teil gelesen
+hast, dann will ich dazu Stellung nehmen. Sieh und lies also selbst, was hier gesagt wird, was wohl einer Zeitung oder so
+entnommen wurde:
+
+Geehrter Herr Billy,
+entschuldigen Sie, aber ich …
+
+**Rosemarie Nitribitt**
+
+**Maria Rosalia Auguste ‹Rosemarie› Nitribitt**
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+(* 1. Februar 1933 in Düsseldorf;[[1]] † vermutlich 29. Oktober 1957[[2][3][4]] in Frankfurt am Main) war eine deutsche
+Prostituierte, die ermordet wurde. Bei den polizeilichen Ermittlungen stellte sich heraus, dass sie Kontakt zu bedeutenden Persönlichkeiten hatte. Da der Mordfall nicht aufgeklärt werden konnte, kam es zu Vermutungen, dass einflussreiche Kreise aus Wirtschaft und Politik die Aufklärung zu verhindern suchten.
+Die zu Lebzeiten als Frankfurter Edelprostituierte bekannte Nitribitt erlangte nach ihrem Tod landesweite Berühmtheit. Ihr Leben inspirierte unter anderem einen Roman, mehrere Spielfilme, das Musical ‹Das Mädchen Rosemarie›
+und Theaterstücke. Sachbücher und Filmdokumentationen befassen sich mit dem Fall Nitribitt.
+
+**Leben**
+
+Rosemarie Nitribitt war vor allem in Frankfurt am Main schon zu Lebzeiten bekannt.[[5]] Nach ihrem Tod erschienen
+zahlreiche Medienberichte über sie. Dennoch gibt es nur wenige gesicherte Erkenntnisse über ihr Leben.
+
+Rosemarie, wie sie sich später nannte, kam als nichteheliches Kind zur Welt. Ihren Vater, einen Arbeiter aus Düsseldorf, der später Unterhaltszahlungen ablehnte, lernte Rosemarie vermutlich nie kennen.[[6]] Sie wuchs wie ihre beiden
+Halbschwestern in ärmlichen Verhältnissen bei ihrer Mutter in Ratingen und Düsseldorf auf. Die Mutter musste mehrere Freiheitsstrafen verbüssen.[[7]] Rosemarie wurde mehrmals in ein Kinderheim eingewiesen, wo sie als schwer erziehbar galt und mehrfach ausriss.[[8]] Letztlich kam sie in eine Pflegefamilie nach Niedermendig;[[9]] dort wurde sie im
+Alter von elf Jahren von einem 18-jährigen Mann aus der Nachbarschaft vergewaltigt, der kurz darauf zur Wehrmacht
+eingezogen wurde.[[10]] Die Tat wurde den Behörden nie bekanntgegeben[[9]] und der Täter nie zur Rechenschaft gezogen, obwohl man im Dorf wusste, wer es war.[[7]]
+Schon als Heranwachsende verdiente sie ihr erstes Geld mit Prostitution. Später zog sie nach Koblenz, anschliessend
+nach Frankfurt am Main, wo sie – immer noch minderjährig – als Kellnerin und Mannequin arbeitete, bald aber wieder
+als Prostituierte. Sie wurde aufgegriffen und erneut in ein Erziehungsheim eingewiesen, aus dem sie bald wieder ausriss. Von April 1952 bis April 1953 war Rosemarie Nitribitt in der ‹Rheinischen Landes-Arbeitsanstalt Brauweiler› in
+der Abtei Brauweiler bei Pulheim untergebracht.[[11]] Da sie als schwerer Fall galt, wurde sie vorzeitig (d.h. vor dem 21.
+Lebensjahr) für volljährig erklärt, damit sie entlassen werden konnte.[[12]]
+Sie gab sich grosse Mühe, ihre einfache Herkunft zu verbergen. Um in Gesellschaft nicht durch mangelnde Bildung
+und fehlende Weltbürgerlichkeit aufzufallen, lernte sie Englisch, Französisch und belegte Kurse für ‹gutes Benehmen›.[[13]] Ein Freier schenkte ihr 1954 einen Opel Kapitän, damals ein aussergewöhnlicher Besitz für eine Frau Anfang
+20. Andere Freier luden sie in den Urlaub ans Mittelmeer ein. Hinterlassenen persönlichen Aufzeichnungen zufolge
+und nach Recherchen der Frankfurter Kriminalpolizei erwirtschaftete Nitribitt in ihrem letzten Lebensjahr ein unversteuertes Einkommen von etwa 90.000 DM (in heutiger Kaufkraft etwa 260.000 Euro). Mitte 1956 erwarb sie den
+berühmten schwarzen Mercedes-Benz 190 SL mit roten Ledersitzen,[[14]] mit dem sie in Frankfurt sehr viel Aufsehen
+erregte und der ihr Markenzeichen wurde.[[15]] Der Verbleib des Mercedes ist unklar.[[16]]
+
+**Ermordung und Beisetzung**
+
+Am 1. November 1957 wurde Nitribitt mit einer Platzwunde am Kopf und Würgemalen am Hals tot in ihrer Wohnung
+in Frankfurt am Main in der Stiftstrasse 36[[17][8]] am Eschenheimer Turm aufgefunden. Laut Obduktion war ihr Tod 20
+bis 30 Stunden vorher eingetreten.[[18]]
+Nitribitt wurde auf dem Nordfriedhof in Düsseldorf beigesetzt (Lage: Feld 95 Nr. 1148). Ihr Kopf wurde zuvor abgetrennt und von der Frankfurter Staatsanwaltschaft als mögliches Beweismittel zurückgehalten. Er wurde später der
+Frankfurter Polizei als Lehrmittel für die Kommissarsausbildung übergeben und im Kriminalmuseum Frankfurt ausgestellt. Nach 50 Jahren, im Dezember 2007, gab die Staatsanwaltschaft den Schädel Nitribitts frei. Er wurde am 10.
+Februar 2008 in ihrem Grab auf dem Nordfriedhof beigesetzt; Spender finanzierten eine Verlängerung der Nutzungsdauer.[[19] ]
+
+**Ermittlungen und Gerüchte**
+
+Die Beamten ermittelten gegen einige, zum Teil prominente Verdächtige, darunter waren Angehörige der Familie
+Krupp (Harald von Bohlen und Halbach), Harald Quandt, Ernst Wilhelm Sachs sowie sein jüngerer Bruder Gunter
+Sachs.[[20]] Hingegen lassen sich in Film und Fernsehen immer wieder kolportierte Gerüchte über hochrangige Kunden
+Nitribitts aus dem Bonner Politikbetrieb,[[21]] wonach neben dem damaligen Bundesverkehrsminister Hans-Christoph
+Seebohm auch der spätere Bundeskanzler Kurt Georg Kiesinger auf der Besucherliste der Prostituierten gestanden
+hätten, anhand der einschlägigen Zeugenaussagen und Vernehmungsprotokolle nicht belegen.[[22]]
+Der mit dem Fall befasste Kriminalkommissar Alfred Kalk sagte über das Notizbuch, in dem Nitribitt ihre Kontakte
+festhielt: «In dem Buch standen Namen, aber die waren nicht aus der grossen Welt der Mächtigen und Reichen, sondern ganz normale Bürger. Das Höchste war ein Bankdirektor aus Bad Homburg.»[[23]] Nitribitt hatte in ihrem Taschenkalender von 1957 insgesamt 60 Namen aufgeschrieben.[[24]] Der Besitzer eines Lebensmittelgeschäfts in München
+wurde beschattet und im Dezember 1958 mehrmals verhört, weil Nitribitt seinen Namen zusammen mit den Stichworten ‹Düsseldorf› und ‹München› in dem Taschenkalender notiert hatte. Im Januar 1959 wurde dem Verdächtigen
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+mitgeteilt, dass die Ermittlungen gegen ihn eingestellt wurden. Zwölf Stunden später erlitt er einen tödlichen Herzinfarkt.[[25]]
+Kaum erklärbare Ermittlungspannen der Frankfurter Kripo nährten den Verdacht einer planmässigen Vertuschung.
+Einige Akten verschwanden spurlos, die Beamten machten zahlreiche Fehler.[[8]] Über Jahre und Jahrzehnte wurde
+spekuliert, dass brisante Akten und Verhörprotokolle vorsätzlich beiseitegeschafft worden seien, um prominente
+Freier und Verdächtige aus Politik und Wirtschaft zu schützen.
+2013 stiessen jedoch Archivare der Frankfurter Polizei in ihren Archiven auf die verschollen geglaubten Dokumente.
+Das Spurenbuch und einige ausgewählte Dokumente waren bis 1972 von den Frankfurter Ermittlern aktiv weitergeführt und dann nach Schliessung des Falls schlicht im Archiv vergessen worden. Mit dem Auffinden der Akten können
+viele der Verschwörungstheorien, die sich um den Fall ranken, als widerlegt betrachtet werden. Lange Zeit verloren
+geglaubte Teile der 24-bändigen Ermittlungsakten lagern im Polizeiarchiv Frankfurt. Darunter befinden sich vier
+Bände mit Vernehmungen, das Notizbuch von Rosemarie Nitribitt, erkennungsdienstliche Bilder von Tatverdächtigen, 19 Liebesbriefe, Postkarten und Gedichte von Harald von Bohlen und Halbach.[[26]]
+Die vielfache Behauptung, in der Wohnung Nitribitts sei ein laufendes Tonbandgerät gefunden worden, das die Ankunft des letzten Besuchers aufgezeichnet habe, kann mittlerweile als widerlegt gelten. In der Wohnung wurde zwar
+ein Grundig-Tonbandgerät sichergestellt, mit dem aber zuletzt Schallplatten aufgenommen worden waren. Die Aufnahme von Sprachaufzeichnungen wäre schon aus technischen Gründen nicht ohne weiteres möglich gewesen. Am
+Ende des eingelegten Tonbands befand sich tatsächlich eine Sprachsequenz, die offensichtlich zu einem früheren Zeitpunkt aufgenommen worden war, und zwar gegen die Laufrichtung der übrigen auf dem Band befindlichen Musikaufnahmen. Die schlechte Qualität der Sprachaufzeichnung erklärt sich durch den Bandlauf beim ersten Abspielen
+des Bandes durch die Frankfurter Kripo. Spielt man die Sprachsequenz gegen den Bandlauf der Musikaufnahmen ab,
+hört man, wie Nitribitt ihren Hund zu sich ruft.[[27]]
+
+**Gerichtsverfahren**
+
+Der Hauptverdächtige war ein Freund Nitribitts, der damals 34-jährige Handelsvertreter Heinz Christian Pohlmann
+(† 1990 in München).[[28]] Er wurde angeklagt, aber im Juli 1960 mangels Beweisen freigesprochen. Man habe trotz
+erheblicher Zweifel an der Herkunft des vielen Geldes, das sich unmittelbar nach der Tat in seinem Besitz befand und
+wahrscheinlich aus der Wohnung Nitribitts entwendet worden war, nicht mit letzter Sicherheit die Täterschaft Pohlmanns in der Mordsache erkennen können, hiess es in der Urteilsbegründung des Frankfurter Schwurgerichts.
+Pohlmanns Verteidiger Alfred Seidl – der spätere bayerische Innenminister – hatte den Todeszeitpunkt infrage gestellt, den die Polizei für den Nachmittag des 29. Oktober 1957 angenommen hatte, und bekam Recht. Unter anderem
+hatten die am Tatort eintreffenden Beamten versäumt, die Temperatur der Leiche oder die Umgebungstemperatur in
+der laut Polizeibericht sehr warmen, fussbodenbeheizten Wohnung Nitribitts zu messen, was für die exakte Bestimmung der Todeszeit unbedingt notwendig gewesen wäre.[[2]] Auch gab es Zeugenaussagen, wonach Nitribitt nach dem
+von den Ermittlern vermuteten Todeszeitpunkt noch Besorgungen erledigt habe (in der nahegelegenen Metzgerei
+Matthiae) und auf der Grossen Eschenheimer Strasse gesehen worden sei. Für diesen Zeitraum besass der Angeklagte
+nach Ansicht des Schwurgerichts ein Alibi. Die Staatsanwaltschaft verzichtete auf eine Revision.
+Die Unterlagen des Gerichtsverfahrens befinden sich heute im Hessischen Hauptstaatsarchiv in Wiesbaden.
+
+**Bermunda** Was sagst du dazu? Was ist denn dazu zu sagen?
+
+**Billy** Darüber habe ich schon einmal gesprochen – es war wohl noch mit Semjase, was ich aber nicht mehr genau
+
+weiss –, nämlich dass ich zusammen mit meiner Freundin Marga in den 1960er Jahren in Deutschland für einige Wochen
+bei Pfarrer Opel an der Bergstrasse war, wo ich mich als junger Mann als Seelsorger etwas nützlich machte. Dabei lernte
+ich Menschen kennen, die mich zum Haus von Rosemarie Nitribitt brachten, in dem sie früher gelebt hatte. Asket ergründete dann – auf mein Fragen hin –, was es mit Rosemarie Nitribitt auf sich hatte, die eine Edelprostituierte und ermordet
+worden war, wobei Asket dann herausfand, wer diese Nitribitt umbrachte. Sie nannte den Namen …, den ich aber nicht
+nennen darf, und zwar weil die Nachkommen dieses Mannes und deren Nachkommen noch heute leben, wie auch wieder
+deren Nachkommen ja noch lange in die Zukunft leben werden, was mir bestimmt grosse gerichtliche Schwierigkeiten bereiten würde. So will ich auch nicht näher auf das Nächste eingehen, den …
+
+### Vera Brühne Mordfall
+
+**Otto Praun**
+
+**Otto Praun (* 28. April 1894 in Würzburg, nach anderen Angaben in München[[1]]; † zwischen 14. und 19. April 1960**
+in Pöcking) war ein deutscher Gynäkologe und handelte mit Immobilien. Bekanntheit erlangte er durch seine Ermordung, für die Vera Brühne und Johann Ferbach in einem Indizienprozess zu lebenslanger Haft verurteilt wurden;
+Prauns Verstrickung in Waffenhandel und Spionage wurde hingegen niemals Gegenstand des Prozesses.[[2]]
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Leben**
+
+Otto Praun entstammte einer Familie, deren Mitglieder seit dem Zweiten Weltkrieg zur Führung der westdeutschen
+Geheimdienste gehörten. Sein Vetter Albert Praun war in der NS-Zeit General der Nachrichtentruppe. Er übernahm
+1956 mit dem Decknamen ‹Schwarz› in Pullach die Leitung der Fernmeldeaufklärung. Sein Neffe Dietrich Praun
+brachte es zum Leiter des Referats Sicherheit/Gegenspionage und wurde später unter dem Decknamen ‹Pranner›
+BND-Resident in Tunesien.
+Praun wurde 1928 Mitarbeiter der Abwehr,[[3]] er war Vertrauensarzt der Allianz und Mitglied der NSDAP mit der
+Mitgliedsnummer 1.725.299. Zwischen 1937 und 1944 schützte Praun Menschen vor dem Zugriff der NS-Diktatur,
+indem er ihnen Atteste ausstellte. Ein Ehepaar wurde so vor der Zwangsarbeit bewahrt. Die Gestapo ermittelte gegen
+Praun wegen Verstosses gegen die Verordnung über ausserordentliche Rundfunkmassnahmen. 1944 wurde von einem Ortsgruppenleiter ein Parteiordnungsverfahren wegen wiederholten ‹Nicht-Tragens› des Parteiabzeichens angeregt. In einer Aktennotiz des BND fanden Journalisten 2001 den Hinweis, Praun habe «der Spionage von Hitlers
+Wehrmacht als Offizier oder V-Mann gedient und später auch dem BND» und «sei in Waffenschiebereien verwickelt»
+gewesen.[[4]]
+1954 wurde eine frühere Mitarbeiterin der Abwehr, Sonja Bletschacher, in Starnberg tot aufgefunden. Sie war eine
+Freundin von Praun und hatte einen Oberst Bletschacher geheiratet, der 1944 gestorben war. Nach dem Krieg war
+Sonja Bletschacher einmal von Praun in sein Haus in Pöcking eingeladen worden. Praun war zum Fall Bletschacher
+befragt worden.[[3]] Für Tötungsdelikte im Landkreis Starnberg war die Kriminalpolizei in Fürstenfeldbruck zuständig.
+Im Fall Bletschacher wurde Suizid ermittelt.
+Praun stellte Vera Brühne im Juli 1957 in München als Chauffeuse ein, wofür er ihr einen gebrauchten VW-Käfer zur
+Verfügung stellte und 200 Deutsche Mark monatlich zahlte. Im Oktober 1957 chauffierte Brühne Praun erstmals zu
+dessen Finca Casavana an der Costa Brava, die von der Verwalterin Katja Hintze betreut wurde. 1958 entliess Praun
+Hintze und übertrug Brühne die Verwaltung des Grundstückes bei Lloret de Mar in der spanischen Provinz Girona.
+Am 23. Mai 1959 erstellte Praun in Arbúcies ein Testament, in dem er Brühne ein lebenslanges Wohnrecht auf dem
+8,3 Hektar[[5]] grossen Landsitz einräumte.
+
+**Tod**
+
+Als am 19. April 1960, dem Dienstag nach Ostern, Praun nicht in seiner Praxis in der Lindwurmstrasse in München
+erschien, fuhr gegen 22:00 Uhr seine Sprechstundenhilfe mit ihrem Mitbewohner nach Pöcking. Ihr Begleiter betrat
+die Villa über die Terrassentür und fand Praun erschossen vor. Die Polizei fand später auch die durch einen Genickschuss ermordete Haushälterin Elfriede Kloo im Souterrain der Villa. Der zuständige Kriminalobermeister Rodatus
+stellte noch in derselben Nacht einen – für die Aufklärungsstatistik positiven – erweiterten Suizid Prauns fest.[[6]]
+Am 22. April 1960 wurde Praun auf dem Münchener Nordfriedhof beerdigt. Er hinterliess ein Vermögen, das auf 1,6
+Millionen Deutsche Mark geschätzt wurde, nach heutigem Wert etwa 4,4 Millionen Euro. Am 2. August 1960 fand im
+Amtsgericht Starnberg die Testamentseröffnung statt. In seinem Testament vom 23. Mai 1959 räumte Praun Brühne
+ein lebenslanges Nutzungsrecht für sein Anwesen in Lloret de Mar ein. Praun vererbte sein Grundeigentum in Spanien
+an Brühne mit der Auflage, dass bei Antritt des Erbes ein Nacherbenvermerk zugunsten seines Sohnes Günther Praun
+(* 1930) in das Grundbuch eingetragen wird. Brühne hätte das Gelände nutzen können, ein Verkauf wäre aber von
+der Zustimmung durch Günther Praun abhängig geblieben.
+Nach der Testamentseröffnung war der Konsens über Prauns Todesursache nicht mehr ungeteilt. Zwei Wochen nach
+der Testamentseröffnung erstattete der Anwalt von Günther Praun bei der Staatsanwaltschaft beim Landgericht München II Strafanzeige gegen Unbekannt wegen Mordes in zwei Fällen. Ausserdem beantragte er die Exhumierung und
+Sektion der Leiche Otto Prauns. Am 27. Oktober 1960 gab der zuständige Ermittlungsrichter beim Amtsgericht München dem Ersuchen statt. Die anschliessende Obduktion ergab, dass Praun mit zwei Kopfschüssen ermordet worden
+war.[[7]]
+Im Frühjahr 1962 wurden Brühne und dem Mitangeklagten Johann Ferbach der Prozess gemacht. Günther Praun
+brachte eine Reihe entscheidender Beweismittel in das Verfahren ein, die nicht polizeilich gesichert worden waren
+und von Praun hätten verfälscht worden sein können. Eine wichtige Rolle im Prozess spielten auch die widersprüchlichen Aussagen von Brühnes Tochter Sylvia Cossy, die ihre Mutter ursprünglich belastet hatte und ihre Aussage dann
+vor Gericht widerrief. Am 4. Juni 1962 wurden Brühne und Ferbach wegen gemeinschaftlichen Doppelmordes zu einer lebenslangen Zuchthausstrafe verurteilt.[[8]] Ein Revisionsantrag wurde am 4. Dezember 1962 vom Bundesgerichtshof abgelehnt, das Urteil damit rechtskräftig.[[9]] Brühne wurde 1979 begnadigt und aus der Haft entlassen. Sie
+starb 2001.[[10]]
+
+### Vera Brühne
+
+**Einzelnachweise**
+
+**Vera-Maria Brühne (geborene Kohlen; * 6. Februar 1910 in Kray; † 17. April 2001 in München) war eine vom Land-**
+gericht München II am 4. Juni 1962 gemeinsam mit Johann Ferbach wegen Mordes an dem Münchner Arzt Otto Praun
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+und dessen Haushälterin Elfriede Kloo zu lebenslangem Zuchthaus und Aberkennung der bürgerlichen Ehrenrechte
+auf Lebenszeit verurteilte Frau.[[1]]
+Das mutmassliche Fehlurteil war noch nach Brühnes Tod Gegenstand öffentlicher Debatten über das Wiederaufnahmerecht in Deutschland sowie die wahren Hintergründe der Tat und gab der westdeutschen Boulevardpresse Anlass
+zu Auseinandersetzungen über die Lebensweise alleinerziehender Frauen.[[2][3][4]]
+
+**Leben**
+
+Vera Brühne wuchs in gutbürgerlichen Verhältnissen in Essen-Kray auf. Ihr Vater, Ludwig Kohlen (1870–1951), war
+bei ihrer Geburt Bürgermeister der bis 1929 selbständigen Bürgermeisterei Kray-Leithe. In erster Ehe war Brühne
+mit dem Schauspieler Hans Cossy verheiratet, dem Vater ihrer Tochter Sylvia (1941–1990). Später heiratete sie den
+bekannten Filmkomponisten Lothar Brühne. Auch diese Ehe wurde geschieden.
+
+### Mordfall Praun
+
+**Polizeiliche Ermittlungen**
+
+Otto Praun und seine Haushälterin Elfriede Kloo wurden am 19. April 1960, dem Dienstag nach Ostern, in Prauns Villa
+in Pöcking am Starnberger See erschossen aufgefunden. Als Todeszeitpunkt wurde Gründonnerstag, der 14. April
+1960, festgestellt. Zunächst gingen die Ermittler von einem erweiterten Suizid Prauns aus.
+Erst nachdem Vera Brühne testamentarisch als Erbin von Prauns Finca in Spanien feststand, wurden die Leichen auf
+Betreiben von Prauns Sohn Günther exhumiert und obduziert. Im Oktober 1961 wurden Vera Brühne und ihr Bekannter Johann Ferbach verhaftet. Gegen beide wurde Anklage wegen Mordes erhoben.[[5]]
+Günther Praun, der Sohn des ermordeten Otto Praun, brachte verschiedene Beweismittel in das Verfahren ein (insbesondere die Armbanduhr des Opfers und einen angeblich am Tatort gefundenen Brief), die nicht polizeilich gesichert und möglicherweise verfälscht waren.
+Eine wichtige Rolle spielten auch die widersprüchlichen Aussagen der Tochter von Vera Brühne, Sylvia Cossy, die ihre
+Mutter ursprünglich belastet hatte und ihre Aussage dann vor Gericht widerrief.
+
+**Prozess und Verurteilung zu lebenslanger Haft**
+
+Bereits vor Beginn des Prozesses vor dem Landgericht München II[[6]] wurde Brühne im Stern, in der Münchner Abend_zeitung und in anderen Medien als Schuldige dargestellt.[[5]] Über den Indizienprozess wurde in der Boulevardpresse_
+wochenlang berichtet, die attraktive Brühne als ‹geldgieriges Luder› dargestellt und über – zur damaligen Zeit – skandalöse erotische Ausschweifungen spekuliert. Vera Brühne hatte sich massiv in Widersprüche verwickelt und auch
+versucht, Zeugen zu bestechen. Am 4. Juni 1962 verurteilte das Gericht sie und den Mitangeklagten Johann Ferbach
+wegen gemeinschaftlichen Doppelmordes zu einer lebenslangen Zuchthausstrafe.
+
+**Die abgewiesenen Revisionsanträge**
+
+Die Verteidiger Brühnes und Ferbachs stellten insgesamt fünf Anträge zur Wiederaufnahme des Verfahrens zugunsten der Angeklagten und scheiterten damit. Den Karlsruher Revisionsantrag verwarf der Bundesgerichtshof am 4.
+Dezember 1962, womit das Urteil Rechtskraft erlangte.[[7]] Ein 1972 von der Aktionsgemeinschaft deutscher Rechtsanwälte eingereichtes Gnadengesuch wurde 1975 vom damaligen Ministerpräsidenten Alfons Goppel abgelehnt. Nach
+achtzehnjähriger Haft wurde Vera Brühne überraschend am 17. Dezember 1979 vom damaligen bayerischen Ministerpräsidenten Franz Josef Strauß (CSU) begnadigt und aus der Justizvollzugsanstalt Aichach entlassen.[[8]] Nach Brühnes Tod erteilte ihr Adoptivsohn David Wilfried Tasch dem Hamburger Rechtsanwalt Gerhard Strate das Mandat, den
+Prozess neu aufzurollen.[[9][10]]
+
+**Kritik**
+
+Brühne stritt die ihr zur Last gelegte Tat zeitlebens ab. Die Wochenzeitung Die Zeit kam 2001 zu «[…] jenem Schluss,
+der heute juristischer Konsens ist: Vera Brühne – ob Mörderin oder nicht – hätte auf der Basis solch einseitiger und
+unsauberer Ermittlungen niemals verurteilt werden dürfen.»[[11]] Umso überraschender wurde von vielen empfunden,
+dass kein Wiederaufnahmeverfahren zugelassen wurde. Das _Anwaltsmagazin schrieb in seiner Nr. 17/2000: «[…]_
+steht nach den neuesten Erkenntnissen der Gerichtsmedizin fest, dass der Tod der Opfer nicht zu dem Zeitpunkt eingetreten sein konnte, den das Gericht unterstellt hat.» Dieser Tatzeitpunkt war ein wichtiger Bestandteil der Urteilsbegründung.
+Nach Recherchen des WDR bestehen aus heutiger Sicht weitere Ungereimtheiten in der Urteilsfindung. Erwiesen sind
+einige ungeklärte Todesfälle, darunter tatsächliche oder mögliche Morde im Kreis von Zeugen und Mitwissern. Wiederaufnahmeanträge für ein neues Verfahren wurden über Jahre hinweg abgelehnt.
+Es gibt Indizien, dass Praun Verbindungen zum illegalen Waffenhandel hatte. Insbesondere wurde er mit einer grossen Korruptionsaffäre, dem Skandal um die Beschaffung des Schützenpanzers HS-30, in Verbindung gebracht. Eine
+Hauptperson dieser Affäre war Werner Repenning, der persönliche Referent von Strauß. Häufig wurde ein Zusammenhang von Prauns Ermordung mit diesen Verbindungen vermutet.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Leben nach der Haftentlassung**
+
+Brühne lebte nach der Entlassung aus dem Gefängnis 1979 unter dem Namen ‹Maria Adam› in ihrer Eigentumswohnung in der Kaulbachstrasse 40 in München.[[12]] Dort starb sie 2001 im Klinikum rechts der Isar und wurde auf dem
+Waldfriedhof Solln im Grab ihres ersten Ehemannes beigesetzt.
+Günther Praun, der Sohn des ermordeten Otto Praun, lebte bis zu seinem Tod 2008 in der Villa in Pöcking am Starnberger See. Das Haus in Spanien, das nach dem Willen des Ermordeten Vera Brühne hätte zufliessen sollen, war auch
+an ihn übergegangen, weil man sie nach der rechtskräftigen Verurteilung für erbunwürdig erklärt hatte.
+
+**Johann Ferbach**
+
+Johann Ferbach (* 9. August 1913 in Köln; † 21. Juni 1970 in Straubing) ist ein vom Landgericht München II am 4. Juni
+1962 gemeinsam mit Vera Brühne wegen Mordes an dem Münchner Arzt Otto Praun und dessen Geliebter Elfriede
+Kloo zu lebenslangem Zuchthaus und Aberkennung der bürgerlichen Ehrenrechte auf Lebenszeit verurteilter Mann.[[1]]
+
+**Leben**
+
+Ferbach wuchs in Köln auf und lernte den Beruf des Büchsenmachers in der Werkzeugmaschinenfabrik von Hermann
+Kolb. Am 1. Januar 1939 wurde er zur Wehrmacht eingezogen. Im Jahr 1943 desertierte er von der Ostfront und arbeitete anschliessend unter dem Namen Hans Spieß in Köln als Bauarbeiter. Für die Familie des Schauspielers Hans
+Cossy leitete Ferbach den Bau einer Behelfsschutzanlage auf einem von Cossy gemieteten Grundstück. Im Herbst 1944
+wurde das gemietete Haus durch Bomben zerstört und die Behelfsschutzanlage verschüttet. Ferbach setzte durch,
+dass ein Zugang zur Behelfsschutzanlage freigelegt wurde, wodurch u.a. Cossys Ehefrau Vera (1961/62 unter ihrem
+zweiten Ehenamen Vera Brühne bekannt geworden) und die gemeinsame Tochter Sylvia (1941–1990) gerettet wurden.[[2]]
+Nach Kriegsende zog die Familie Cossy nach München, während Ferbach in Köln eine Anstellung als Montageschlosser
+fand. Ferbach war 1960 versicherungspflichtig beschäftigt und verwitwet. Am 13. April 1960, einem Mittwoch, war
+er krankgeschrieben, was von der zuständigen Krankenkasse kontrolliert wurde.[[3]] Otto Praun hatte für seine Chauffeurin Vera Brühne einen VW-Käfer gekauft, der durch Ferbach organisiert worden war.
+Am 3. Oktober 1961 kam Vera Brühne aufgrund eines Haftbefehls vom 26. September 1961 in Untersuchungshaft.
+Am 12. Oktober 1961 wurde Ferbach in Köln verhaftet und kam nach Klingelpütz und später in die Strafanstalt München-Neudeck in Untersuchungshaft. Am 28. November 1961 kam der Polizeispitzel und spätere Belastungszeuge
+Siegfried Schramm ebenfalls nach Neudeck.[[3][4][5]] In einem Zwischenbericht hatte das Gericht festgestellt, dass Ferbach als möglicher Täter nicht ausscheide, sondern vielmehr mit der Tat in einen zwanglosen Zusammenhang gebracht werde und sich durch verschiedene widersprüchliche Angaben verdächtig gemacht habe.
+Am 25. April 1962 begann ein Schwurgerichtshauptverfahren beim Landgericht München II gegen Brühne und Ferbach. Sie wurden beschuldigt, den Arzt Otto Praun und dessen Haushälterin Elfriede Kloo am 14. April 1960 in Prauns
+Villa in Pöcking ermordet zu haben.[[6]] Am 4. Juni 1962, nach 22 Verhandlungstagen und 113 Zeugenaussagen, wurde
+das von sechs Geschworenen und drei Berufsrichtern gefällte Urteil verkündet: Lebenslange Zuchthausstrafe wegen
+gemeinschaftlichen Doppelmordes. Johann Ferbach verstarb am 21. Juni 1970 in der Justizvollzugsanstalt Straubing
+an Herzversagen.
+Im Spiegel wurde 1978, acht Jahre nach Ferbachs Tod, die Auffassung vertreten, Johann Ferbach wäre – wie Walter
+Huppenkothen – nicht verurteilt worden, hätte sein Rechtsbeistand Alfred Seidl das Mandat nicht an seinen Sozietätskollegen Heinz Pelka und Referendar Martin Amelung abgegeben. Angeblich tat er dies ‹hauptsächlich aus finanziellen Gründen›.[[7]]
+
+**Wiederaufnahme des Verfahrens**
+
+Die Revision gegen das mutmassliche Fehlurteil wurde am 4. Dezember 1962 vom Bundesgerichtshof abgelehnt und
+das Urteil damit rechtskräftig.[[8]] Es wurden zwei Anträge zur Wiederaufnahme des Verfahrens zugunsten von Vera
+Brühne, und drei zugunsten von Johann Ferbach gestellt.
+«Für die Darstellung des Schwurgerichts in Bezug auf den Doppelmord gibt es keinen Beweis. Die Tatrekonstruktion
+des Gerichts ist eine reine Erfindung. Gegen eine Erfindung gibt es kein Beweismittel. Juristisch kann ich dagegen
+nichts unternehmen. Ich möchte betonen, dass es jedem Bürger dieses Staates widerfahren kann, in dieselbe Situation
+zu geraten wie Frau Brühne oder Johann Ferbach.»
+– Wilhelm Haddenhorst[[9]]
+Vor Oktober 1963 berichteten Revue und Neue Illustrierte über die Zeugen eines Wiederaufnahmeantrags durch Heinz
+Pelka. Ein Josef Matzerath erklärte in der Illustrierten, warum er sich nicht als Zeuge im Mordprozess gemeldet hatte.
+Mitte 1962 habe er wegen einer Gefängnisstrafe Antrag auf Bewährung gestellt. «Sie war noch nicht bewilligt. Ich
+fürchtete, dass man ablehnen würde, wenn ich dem Staatsanwalt in München die Tour verdarb.» Matzerath berichtete
+1962, dass er in der Nacht von Gründonnerstag auf Karfreitag 1960 Ferbach im Kölner Nachtlokal ‹Sevilla› getroffen
+und mit ihm über Frauen gesprochen hätte. Eine Aussage, die er nicht unter Eid wiederholen wollte.[[10]] Der Antrag
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+auf Wiederaufnahme wurde von Richter Konrad Sattler 1964 abgelehnt. Sattler gab in den 1950ern wochenlang Seminare beim Bundesnachrichtendienst in Pullach über Verfassungsrecht.[[11]]
+Ein neuer Zeuge, Hans Joachim Seidenschnur, sagte, Otto Praun soll nach Algerien gereist und für einen Waffenhändler gehalten worden sein.[[12]] Zeuge Roger Hentges gab im Herbst 1967 an, Otto Praun hätte am Gründonnerstag 14.
+April 1960 bei ihm in Frankfurt angerufen und Geld verlangt, worauf sich umgehend Werner Repenning und ein
+Oberstleutnant Schröder gekümmert hätten. Den entsprechenden Antrag auf Wiederaufnahmeverfahren stellte Dr.
+Maximilian Girth (früher Regierungs- und Kriminalrat).
+Die Tatwaffe im Doppelmord Elfriede Kloo/Otto Praun war eine Pistole FN Baby Browning. Der ermittelnde Kriminalobermeister Karl Rodatus erschoss am 20. April 1960, einen Tag nach dem Auffinden der beiden Leichen, mit der
+Tatwaffe Prauns den halbverhungert aufgefundenen Spaniel und vernichtete damit mögliche Spuren an der Waffe.
+Praun hatte zwei Pistolen dieses Modells. Renate Meyer (* 15. Juli 1918 Königsberg; † 1. Februar 1969 München) war
+Sprechstundenhilfe bei Otto Praun bis zu dessen Tod. Gegenüber dem Würzburger Journalisten Hans-Dieter Orttner[[3]]
+(alias Peter Anders) soll Frau Meyer nach Angaben Orttners eine Woche vor ihrem Tod eingeräumt haben, es hätte
+sich bei einer Pistole, welche in der Praxis von Dr. Praun nicht mehr aufgefunden wurde, um eine FN Modell Baby
+gehandelt.[[13]] Eine Darstellung, welche Frau Meyer, eine der für die Urteilsfindung aussagekräftigsten Zeuginnen, als
+Mittäterin erscheinen liess. Reinhard Gehlen, Präsident des BND, liess angeblich gegen Franz Josef Strauß wegen einer
+möglichen Verwicklung in die vorgeblichen Waffengeschäfte Prauns ermitteln.[[14]] Hierauf basierten die Wiederaufnahmeanträge.
+
+**Billy** Auch zu diesem Fall muss ich also schweigen, denn auch hier sind zur heutigen Zeit aus der Linie von … noch
+
+Menschen, die in Verruf geraten könnten oder würden, wenn die Wahrheit ans Licht käme. Folgedem darf auch dazu nichts
+gesagt werden, was Asket herausgefunden hat, als sie aus eigenem Interesse damals ergründete, was wirklich war, was sie
+mir dann auch erzählte.
+
+Otto Praun und seine Haushälterin wurden bereits am 14. April 1960 um 8.17 Uhr ermordet, also nicht erst am 19.
+April 1960, und zwar von …, der im Hitler-Weltkrieg als SS-Mann gedient und gemordet hat, der dann von … für einen
+Geldbetrag von DM 100 000.– beauftragt wurde, den Mord zu begehen, weil … Dieses Geld hat … jedoch nie erhalten,
+denn … hatte dieses nie zur Verfügung, oder behauptete dies wenigstens, und vertröstete …, der sich dann rund 3½
+Jahre nach dem Zweifachmord infolge der für ihn unerträglichen Krebskrankheit selbst umgebracht hat. Und was das
+betrifft, dass er Streit mit seinem Sohn Günther Praun gehabt hat, so hat sich Praun mit diesem überworfen, folglich
+also nicht ein gutes Verhältnis zwischen beiden bestand. Dazu kann ich mich also nicht äussern, denn darüber weiss
+ich effectiv nichts. Folglich ist mir auch nicht bekannt, weshalb es zwischen Vater und Sohn derartig gewaltig gekracht
+hat, dass zwischen beiden irgendwie eine Entfremdung zustande kam. Ebensowenig weiss ich, warum von der Gerichtsmedizin der Todeszeitpunkt gefälscht wurde, und das wurde er tatsächlich, wie Asket ergründen konnte, denn
+Praun wurde am 14. April um 08.17 h erschossen, wonach dann 3 Minuten später die Haushälterin ermordet wurde.
+Vera Brühne und Johann Ferbach waren, wie Asket ergründete z.Z. des Doppelmordes weitab des Tatortes und konnten also niemals die Tat begangen haben, die auch wahrheitlich … im Auftrag von … begangen hat, der sich dann Jahre
+danach infolge seines Nichtertragens seiner unheilbaren Krankheit selbst gerichtet hat. Mehr kann ich dazu nicht
+sagen, denn …
+Jetzt habe ich aber hier noch einiges an Fragen, die für die Passiv GV bestimmt und beantwortet sind, die ich dir gerne
+vorlege. Bernadette hat sie nach bestem Können und Verstehen beantwortet, folglich ich sie hier wiedergeben will,
+denn sicher finden sich Leserinnen und Leser, die sich dafür interessieren:
+
+## Fragen zur Geisteslehre, 
+ die bei der Passivmitglieder-Versammlung 2024 gestellt wurden
+
+**Frage: Was ist der Unterschied zwischen dem Todesleben und dem Leben als reine Schöpfungsenergieform, nachdem**
+der physische Körper nicht mehr gebraucht wird? Beide haben kein materielles Bewusstsein mehr, sie scheinen also
+beide viel gemeinsam zu haben.
+
+**Antwort: Die Schöpfungsenergieform kehrt nach dem Tod des materiellen Körpers augenblicklich in ihre eigene**
+Schöpfungsenergieform-Ebene zurück, wo alles vom Menschen während seines Lebens Erlernte in reines Wissen aufgearbeitet und gespeichert wird, was eine gewisse Zeit erfordert und was für das Verständnis des Menschen ‹Todesleben› genannt wird. Der Begriff ‹Todesleben› ist allerdings nur rein illustrativ als Hilfsmittel für den Menschen zu
+betrachten, damit er sich eine Vorstellung machen kann, was nach seinem Tod mit ihm bzw. mit seiner Schöpfungsenergieform geschieht, die nicht mehrere verschiedene Schöpfungsenergie-‹Leben› hat, sondern immer und in jedem
+Fall in jedem Stadium ihrer Existenz eine Einheit ist und immer dieselbe bleibt, jedoch immer weiter evolutioniert.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Frage: Existiert ‹Empfindung› im Todesleben oder eine andere Art der Wahrnehmung? Und welchen Sinn hat das**
+Todesleben nach dem Ablegen des physischen Körpers als Schöpfungsenergieform, die auf völlig schöpferisch-energetische Weise lebt/existiert? Bedeutet das, dass die Schöpfungsenergieform ihre eigenen Welten erschafft, um darin
+zu leben/existieren?
+
+**Antwort: Im ‹Todesleben› bzw. in der Schöpfungsenergieform-Ebene existieren keinerlei Empfindungen oder Wahr-**
+nehmungen, wie sie der Mensch in einem akuten materiellen Leben hat und macht. Die Schöpfungsenergieform ist
+vollkommen persönlichkeitslos und nur rein energetischer Natur, weshalb sie in keiner Weise mit menschlichen Erfahrungen und Vorstellungen in Verbindung gebracht werden kann, was auch der Grund dafür ist, dass sich der
+Mensch keine wirkliche Vorstellung von der Schöpfungsenergieform und ihrer Funktionsweise machen kann. Am
+ehesten lässt sie sich mit elektrischem Strom vergleichen, der immer vorhanden ist und der z.B. genutzt werden kann,
+um eine Lampe zum Leuchten zu bringen, indem man einen Schalter betätigt. Die elektrische Energie ist auch dann
+vorhanden, wenn der Schalter der Lampe auf ‹Aus› steht und die Energie nicht genutzt wird. Zur Illustration könnte
+man es so vergleichen, dass das brennende Licht dem Leben eines Menschen entspricht, das endet, wenn der Schalter
+ausgeschaltet wird. Die Schöpfungsenergie ist dann aber wie der elektrische Strom trotzdem noch vorhanden – jedoch
+zurückgezogen in ihre Schöpfungsenergieform-Lebensenergie-Ebene – und wird einfach das nächste Mal wieder genutzt, wenn Licht angeschaltet wird resp. ein neuer Mensch durch die Schöpfungsenergieform belebt wird.
+Der Sinn der Vorgänge im sogenannten ‹Todesleben› liegt darin, dass das Wissen, das sich der Mensch im materiellen
+Leben erarbeitet hat, aufgearbeitet und in streng logischer Form energetisch im Wissensspeicher der Schöpfungsenergieform ‹eingelagert› wird, wo es dann jeder weiteren menschlichen Lebensform, die durch die Schöpfungsenergieform in Zukunft belebt wird, zur Verfügung steht. Dabei handelt es sich um einen wichtigen evolutiven Prozess,
+der deshalb notwendig ist, weil die Schöpfungsenergieform in einer bestimmten Entwicklungsphase nur während
+eines akuten materiellen Lebens durch den Menschen lernen und sich Wissen aneignen kann. Dies ist so lange der
+Fall, bis sie stark und reif genug ist, um ihre weitere Evolution selbständig – ohne Belebung eines Menschen und ohne
+die Nutzung eines materiellen Bewusstseinskomplexes – auf rein energetischer Basis weiterzuführen.
+
+**Frage: Im Buch ‹Die Art zu leben›, Nr. 234) verwirrt mich der Begriff ‹westlich-nördliche Form› (der Faulheit) und**
+‹südlich-östliche Form› (der Faulheit). Bitte erklären.
+
+**Antwort: Es geht hier um den Abschnitt 234, den wir wegen seiner Länge nur in Form eines Ausschnittes zitieren:**
+«Viele Menschen werden von einer teilnahmslosen Tatenlosigkeit fortgetragen, die wahrheitlich nichts anderes ist als
+eine phlegmatische, stumpfe und energielose Faulheit, die in eine westlich-nördliche und südlich-östliche Form einzuordnen ist. Die südlich-östliche Faulheit drückt sich weitgehend darin aus, den lieben langen Tag in der Sonne oder
+im Sonnenschatten herumzusitzen, nichts zu tun und jeden Arbeitsamen einen guten Menschen sein zu lassen sowie
+jede Arbeit oder sonstige massgebende Tätigkeit oder sinnvolle Aktivität tunlichst zu vermeiden, wobei Tee getrunken wird und belanglose Dinge mit Freunden, Verwandten oder Bekannten zur Unterhaltung dienen, während die
+Arbeitsamen ihr mühsames Werk verrichten und ihre Freizeit sinnvoll nutzen, um zu lernen und dem Fortschritt
+Genüge zu tun. Im Gegensatz dazu ist die westlich-nördliche Faulheit ganz anders geartet, wobei sie jedoch nichtsdestoweniger mit der südlich-östlichen Faulheit gemeinsam hat, dass alle wichtigen Dinge des Lebens ausser acht gelassen und vernachlässigt werden, wodurch sie sträflich verkümmern. In der westlich-nördlichen Faulheit des Menschen
+tritt zutage, dass die wichtigen Dinge des Lebens und der Evolution mit zwanghaften Aktivitäten verdrängt werden,
+wie mit sinnlosen Vergnügungen usw., mit denen die Freizeit und das Leben vollgestopft werden, wodurch keinerlei
+Zeit mehr bleibt, sich um die wirklich wichtigen Dinge des Lebens zu kümmern. …»
+
+Die Antwort, was mit ‹westlich-nördlicher Form› bzw. mit ‹südlich-östlicher Form› der Faulheit, gemeint ist, wird im
+Abschnitt 234 eigentlich bereits hinlänglich und verständlich erklärt. Es handelt sich um die Art und Weise wie sich
+die Faulheit und Interesselosigkeit der Menschen bezüglich ihres Umganges mit der Schöpfungsenergielehre resp.
+mit ihrer eigenen Evolution äussert bzw. wie die Ablenkung von diesem existenziell wichtigen Thema von den Menschen in diesen verschiedenen Weltregionen mehrheitlich gehandhabt wird.
+Die ‹westlich-nördliche Form› der Faulheit resp. der Ablenkung konzentriert sich z.B. mehrheitlich auf oberflächliche
+Unterhaltung und sinnlose Vergnügungen, während sich die ‹südlich-östliche Form› überwiegend darauf ausrichtet,
+sich nicht zu betätigen und die sprichwörtliche Faulheit zu pflegen, indem der Kontakt zu Freunden und zur weitverzweigten Familie im Übermass gepflegt wird, mit denen über Belanglosigkeiten palavert wird.
+Beide Formen der Ablenkung sind unbewusst und unkontrolliert, jedoch mit dem eindeutigen Ziel, der Auseinandersetzung mit sich selbst und mit der Lehre der Schöpfungsenergie resp. mit der eigenen Evolution aus dem Weg zu
+gehen, weil die Anstrengung und die Mühe, die auf die Pflege und den Aufbau der eigenen Persönlichkeit verwendet
+werden sollte, zu aufwendig erscheint und zu wenig materiellen Nutzen bringt.
+
+**Frage: Welche Rolle (wenn nicht aufgelöst?) spielt das Gesamtbewusstsein, wenn die menschliche Geistform die rein-**
+geistige Ebene erreicht?
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Antwort: Das Gesamtbewusstsein des Menschen spielt in der schöpfungsenergetischen Ebene absolut keine Rolle.**
+Das Gesamtbewusstsein ist quasi das Instrument der Schöpfungslebens-Energieform, das dem Menschen während
+eines materiellen Lebens erlaubt, sich Wissen, Können und Weisheit zu erarbeiten, das dann nach dem Ableben des
+Menschen, wenn sein Gesamtbewusstsein aufgelöst wird, von der Schöpfungsenergieform in energetisches Wissen
+umgearbeitet und in ihrem ‹Wissensspeicher› – dem Gesamtbewusstseinblock – eingelagert wird. Der Gesamtbewusstseinblock ist also der Speicher der Schöpfungslebensenergie, durch den die Grundpersönlichkeit eines neuen
+Bewusstseinskomplexes entwickelt und gebildet wird, wenn die Schöpfungsenergieform einen neuen Menschen belebt, der diese Grundpersönlichkeit dann im Laufe seines materiellen Lebens ausbaut und weiterentwickelt, wenn er
+sich durch bewusstes und selbständiges Denken um seine Evolution bemüht und sich nicht der Versuchung eines
+religiösen oder weltlichen Glaubens hingibt, wodurch er seine gesamte Entwicklung lahmlegt.
+Sobald die Schöpfungsenergieform stark genug bzw. weit genug entwickelt ist, braucht sie für ihre weitere Evolution
+keine materielle Lebensform mehr, durch die sie sich weiteres Wissen erarbeiten bez. aneignen kann, weshalb dann
+der Bewusstseinskomplex bzw. der Gesamtbewusstseinblock nicht mehr notwendig ist. Die Schöpfungsenergieform
+entwickelt sich nach dieser ersten Phase, in der sie von einem materiell existierenden Menschen abhängig ist, der sich
+um seine Weiterentwicklung bemüht, in feinstofflicheren Ebenen weiter, wo sie ihre Evolution weiterführt.
+
+**Billy** Damit ist eigentlich alles besprochen, was heute so anfällt von meiner Seite aus.
+
+**Bermunda** Meinerseits will ich aber nochmals darauf zu sprechen kommen, dass ich wirklich nicht mehr in den Kriegs
+gebieten die Geschehen eingehend derweise beobachten will, wie es infolge deines Ansinnens mit dir zusammen verlaufen
+ist. All die Zeit der diesartigen üblen und wirklich bösartigen Beobachtungen im Nahen Osten und auch in der Ukraine haben
+mich derart betroffen und in mir nachhaltige Regungen hervorgerufen, die in mir schon seit einigen Monaten neurotische
+Störungen hervorrufen, wie dies auch bei Florena und Enjana der Fall ist, weshalb wir solche Beobachtungsausflüge künftighin unterlassen wollen.
+
+**Billy** Darüber hättet ihr mich unterrichten sollen, dann hätte ich euch nicht darum gebeten, mich hinzubringen.
+
+Da habe ich auch Quetzal zu fragen, wie auch bei ihm gleichartige Regungen auftreten.
+
+**Bermunda** Er hat uns nichts Derartiges gesagt, wie wir ihm gegenüber auch nichts von unserem diesbezüglichen Problem
+
+erwähnten.
+
+**Billy** Es ist wirklich verantwortungslos blöd von mir, dass ich euch ohne zu fragen zu diesen Unternehmungen
+
+verleitet habe. Eigentlich hätte ich euch ja fragen müssen, ob ihr gefeit seid gegen solches Barbarisches, wie es hier auf der
+Erde geschieht.
+
+**Bermunda** Unsere Aufgabe ist nicht derart, dass wir einzelne Geschehen zu beobachten hätten, sondern nur derart, dass
+
+wir Aufzeichnungen der Vorgänge zu fertigen haben, die aufzeigen, was sich bezüglich der Abläufe der eigentlichen Kriegshandlungen und damit auch hinsichtlich der Zerstörungen ergibt.
+
+**Billy** Davon hatte ich keine Ahnung, ebenso nicht, dass ihr bezüglich des Brutalitätsgebarens der Erdlinge und
+
+damit auch gegen die Kriegsverbrechen dieser Form nicht gefeit seid. Das hätte ich ja eigentlich wissen sollen, denn bei
+euch herrscht ja seit über 52 000 Jahren Frieden, und ihr kennt also keine Kriege. Und wenn ich das bedenke, dann benahm
+ich mich wirklich mehr als nur wie ein Trottel.
+
+**Bermunda** Das solltest du nicht so denken und sagen, denn das ist effectiv nicht richtig. Wir hätten dir erklären sollen,
+
+dass uns solcherart Geschehen völlig fremd und unverständlich sind, während sie dir schon von früher Jugend an sehr oft
+gegenwärtig waren und du deshalb gelernt hast, dich dagegen neutral zu verhalten. Dies derart zu verarbeiten und dich zu
+…
+
+**Billy** … eben, durch Sfaths Hilfe war es mir möglich, auch bezüglich solcher Geschehen – und noch schlimmerer –,
+
+eine, wie du sagst, Neutralität zu erarbeiten, doch trotzdem trifft es mich immer wieder tief. Auch bin ich wirklich immer
+völlig ‹out of mind›, weil ich die Vorkommnisse nicht verstehen und das böse Wirken der Menschen nicht nachvollziehen
+kann. Da bin ich wirklich zu blöd, und das war ich schon als Junge, wobei mir selbst Sfath diesbezüglich nicht helfen konnte,
+denn er sagte immer, dass es ihm gleichermassen ergehe und er in sich nicht fertig werde mit dem, was an Bösem von
+aussen auf ihn einbreche.
+
+**Bermunda** Das kann ich verstehen, denn solcherart menschliche Ausartungen, wie ich sie zusammen mit dir beobachtet
+
+habe, sind für mich sowie für Florena und Enjana …
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Billy** … nicht nur nicht verständlich, sondern derart abartig, dass sie über euer Vorstellungsvermögen hinausrei
+chen. Das hätte ich Trottel eigentlich wissen sollen.
+
+**Bermunda** Bitte …
+
+**Billy** Es ist doch wahr – ich bin wirklich ein Trottel. Wie konnte ich nur so blöd sein. Das liegt mir jetzt im Magen.
+
+– Quetzal werde ich aber fragen.
+
+**Bermunda** Bitte, du …
+
+**Billy** … lass es, wer nicht denkt, hat auch den Schaden zu tragen. Es gibt keine Entschuldigung dafür.
+
+**Bermunda** Das solltest du dann aber n…
+
+**Billy** … doch, denn was ich vermasselt habe, dazu habe ich auch zu stehen.
+
+**Bermunda** Es ist offenbar sinnlos …
+
+**Billy** Das ist so – reden wir also diesbezüglich nicht weiter, denn der Brei wird dadurch nicht besser.
+
+**Bermunda** Es ist offenbar so, wie ich sagte – sinnlos. Dann will ich nur noch erwähnen, dass Asina dich besuchen will,
+
+weshalb sie mich beauftragte, mich zu erkundigen, ob dir das genehm sei?
+
+**Billy** – Da bin ich platt – genehm, natürlich, ich freue mich, und jederzeit ist es mir natürlich genehm. Das ist eine
+
+Überraschung, niemals dachte ich, dass ich sie wiedersehe.
+
+**Bermunda** Sie sagte mir, dass du sie sehr beeindruckt hast und sie dich wiedersehen will. Sie wird sich sehr freuen, wenn
+
+ich ihr …
+
+**Billy** … das ist doch fraglos, denn ich freue mich wirklich.
+
+**Bermunda** Gut, das ist auch genug für heute, denn morgen werden wir uns wieder sehen und einiges zu besprechen
+
+haben, wie Florena schon sagte. Dann will auch ich jetzt gehen und …
+
+**Billy** … schon gut, dann also bis morgen. …
+
+**Bermunda** Das wird leider so sein, denn weder in der Ukraine noch im Nahen Osten wird es Frieden geben und das
+
+Morden weitergehen, denn Amerika steht bei beiden Kriegen im Hintergrund und interveniert im Nahen Osten nur zum
+Schein für Frieden, denn in seinem Wahn der Hegemoniesucht unterläuft es hinterhältig all die ehrlichen Bemühen des
+Teiles der Erdbevölkerung, der wirklich Frieden will.
+
+**Billy** Frieden – – wenn ein Krieg beendet wird, dann kommt so oder so kein Friede, denn es kommt Besatzung, was
+
+Feindschaft bedeutet und untergründig also der Stunk und das Morden weitergeht.
+
+**Bermunda** Das ist leider die effective Wahrheit, und das sehen die Dummen nicht, die Waffen oder Geld dafür liefern.
+
+Doch jetzt will ich wirklich gehen. …
+
+**Billy** Natürlich, auf Wiedersehen, Bermunda.
+
+## Sprenkel aus der Korrespondenz
+
+_Von Bernadette Brand, Schweiz_
+
+Immer wieder einmal kommt es vor, dass in der Mail-Korrespondenz Fragen gestellt werden, die eigentlich von allgemeiner Gültigkeit sind und deren Beantwortung einem grösseren Kreis von Interessierten an der Schöpfungsenergielehre zugänglich gemacht werden sollten, weil es sich oft um kleine Detailfragen handelt, die aber entscheidend
+sein können für das Verständnis und das Weiterführen eigener Gedanken und Überlegungen und somit auch für das
+Umsetzen der Lehre und das eigene Verhalten.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Aus diesem Grund sollen in loser Folge anonymisierte Fragen und Antworten aus meiner Mail-Korrespondenz veröffentlicht werden, mit dem Zweck einer Hilfestellung für jene Interessierten oder Suchenden, die sich mit dem gleichen
+Thema herumschlagen, sich jedoch nicht trauen, offene Fragen zu stellen.
+Allen jenen, welche meine Antworten anzweifeln oder der Meinung sind, ich sei eine besondere ‹Leuchte›, sei offen
+gesagt, dass jegliche meiner Antworten mit Billy abgesprochen ist bzw. dass ich ihm die Fragen und meine Antworten
+vorlege und diese nur mit seinem Einverständnis und unter der Berücksichtigung weiterer Hinweise oder Korrekturen von ihm weitergebe.
+
+**Frage:**
+In Bezug auf die bewusstseinsansprechenden Gebete von Nokodemion hätte ich eine SEL-bezogene Frage:
+Es gibt manche Stellen in den Gebeten, an denen Verneinungen bzw. Negationen verwendet werden. So beispielsweise
+an folgenden Stellen:
+– «Und führe mich nicht in Versuchung und Verwirrung, sondern erlöse mich vom Irrtum.»
+– «Lasse mich nicht durch materielle und weltliche Dinge irre Wege gehen, und nicht durch Irrlehren in Glaubensab
+hängigkeit verfallen.»
+
+In der FIGU-Literatur habe ich herausgelesen, dass man nicht entgegen einer Sache denken soll, bzw. dass man nur
+das in den Mittelpunkt der Aufmerksamkeit stellen soll, das man erreichen möchte und nicht das, das man nicht erreichen möchte. Dies aus dem Grund, da das Unterbewusstsein absolut logisch denkt und daher Negationen wie
+nicht/nein/kein usw. nicht kennt. Folglich bewirken diese Negationen genau das Gegenteil von dem, was man seinem
+Unterbewusstsein mitteilen möchte. In den oben genannten Sätzen tauchen diese Negationen aber auf. Dies verwirrt
+mich.
+Könntet Ihr darauf eingehen, weshalb die Negationen in den Gebeten verwendet werden und ob ich eventuell einem
+Denkfehler unterliege?
+
+**Antwort:**
+Vielen Dank für Deine Mail und die Frage, mit der wir uns natürlich auch schon herumgeschlagen haben. Aber eigentlich ist es ganz einfach: Negative Formulierungen sollen vermieden werden, weil der Mensch eine Selbstmotivierung
+aufbauen muss, damit er das Negative überwinden kann, und das läuft eben nur durch positives Denken. Wenn also
+eine negative Feststellung gemacht wird, die ja nicht zu vermeiden ist (z.B. ich habe jetzt Kopfschmerzen), dann sollte
+dieser negativen Feststellung eine sachbezogene positive ‹Wendung› oder ein positiver Gedanke folgen (z.B. die
+Schmerzen lassen sicher bald nach). Dadurch wird dem Unbewusstenkomplex die ‹Munition› in die Hand gegeben,
+dass er richtig schalten und den positiven Ausgang herbeiführen kann. Wird jedoch die negative Feststellung einfach
+so stehengelassen, dann ist der Unbewusstenkomplex gezwungen, diesen negativen Zustand aufrechtzuerhalten.
+
+Im Gebet hast Du nun die klassische Formulierung wie sie sein sollte und wie der Mensch sie erlernen sollte:
+Wenn es also heisst «Und führe mich nicht in Versuchung und Verwirrung, sondern erlöse mich vom Irrtum», dann
+hast Du genau das, dass die negative Situation genannt wird (inklusive «Lasse mich nicht durch materielle und weltliche Dinge irre Wege gehen, und nicht durch Irrlehren in Glaubensabhängigkeit verfallen.»), aber der positive Ausgang quasi ‹hinterhergeschoben› bzw. vorweggenommen wird, die dem Unbewusstenkomplex die Möglichkeit ‹an die
+Hand› gibt, richtig zu schalten, wozu eben auch die Nennung weiterer negativer Situationen gehört, die damit im Zusammenhang stehen.
+Positives Denken sollte also unbedingt immer situationsbezogen sein, wie es das Gebet lehrt, und nicht einfach nur
+pauschal, womit der Unbewusstenkomplex nichts anfangen kann, weil eine Pauschalformulierung keine genaue Anweisung bzw. keinen logischen Hinweis enthält. Deshalb wird z.B. in der Psyche auch angeraten, dass pauschal-positive Wendungen, wie «Es geht mir gut», oder «Es geht mir Immer besser» vermieden werden sollen, weil damit das
+Negative quasi ‹zementiert› wird, was ja eigentlich logisch ist, denn es gibt immer Teilaspekte im eigenen Denken und
+Empfinden, die negativ sind und die dann mit dem Pauschalwunsch oder der Pauschalfeststellung «Es geht mir gut»
+vom Unbewusstenkomplex als OK resp. als gewollter Zustand übernommen und demzufolge ‹verwirklicht› werden,
+was ja nicht Sinn der Sache sein kann.
+
+**Weiterführende Frage:**
+Vielen Dank für die Erklärung, die durchaus logisch ist.
+Nach längeren Überlegungen frage ich mich nun jedoch bezogen auf deine Schlussbemerkung bzw. den letzten Absatz
+deiner Erklärung, weshalb beispielsweise bei der Mentalblockmeditation pauschal positive Sätze verwendet werden
+wie, dass man in Liebe, Frieden, Freiheit und Harmonie lebt. Das trifft bei den meisten Menschen nicht zu. Da müsste
+deiner Erklärung nach doch eigentlich erst einmal die negativ geartete Tatsachenfeststellung getan werden, dass dies
+aktuell nicht zutrifft, um keinen Zwiespalt in der Psyche bzw. dem Unbewusstenkomplex auszulösen. Also situationsbezogene Sätze müssten den positiv gearteten Meditationssätzen vorangestellt sein, um eventuell vorhandene negative Psychezustände nicht zu zementieren bzw. als OK anzunehmen.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Antwort zur weiterführenden Frage:**
+Mir scheint, dass Du etwas zu kurz denkst, resp. die Sache nicht präzise genug durchdenkst. Zwischen positivem Denken – worüber ich geschrieben habe und worauf sich ja grundlegend auch Deine Frage bezogen hat, wenn ich Dich
+nicht gründlich missverstanden habe – und Meditation ist ein himmelweiter Unterschied. Was beim bewussten Denken unabdingbar ist – weil die Gedanken ja stets laufen und immer neue Wege suchen und gehen, die eben durch die
+Feststellung negativer Zustände und dann deren positiver ‹Auflösung› kanalisiert werden müssen –, ist bei der Meditation völlig anders, weil man sich in der Meditation ja ausschliesslich auf ein zu erreichendes Ziel konzentriert, das
+in der Meditation nicht durchdacht werden soll. So gesehen dient die Meditation also quasi der Fokussierung auf das
+zu erreichende Ziel bez. dessen Zementierung im eigenen Bewusstsein, während das positive oder freie Denken dann
+eben den Weg zu diesem Ziel sucht und ebnet, was eben nur durch eine Tatsachenfeststellung und die Anpeilung des
+Zieles im bewussten Denken geschehen kann. Durch die Meditation werden jene Bewusstseinsebenen angesprochen,
+die in keinem direkten Zusammenhang mit psychischen Befindlichkeiten stehen, sondern die völlig neutral sind und
+allein der Zielsetzung bzw. der Tatsachenfeststellung resp. dem Erfassen des wahren inneren Zustandes dienen, der
+immer und in jedem Fall positiv und ausgeglichen ist, auch wenn er durch das unbewusste und unkontrollierte Denken bis zur Unkenntlichkeit negativ überwuchert ist.
+
+**Frage:**
+Würdest du mir bitte kurz bei einer Begriffsklärung helfen? Es geht um den Begriff ‹Leichenfeld› im Zusammenhang
+mit der ‹Leichenfeld-Meditation›.
+
+An sich ist der Begriff klar, im Sinne von ‹Feld voller Leichen›, denke ich, also infolge eines Gewaltvorgangs wie Krieg
+oder einer Naturkatastrophe wie Erdbeben usw., oder einfach, weil auf einem Feld Leichen zusammengetragen wurden. Kannst du mir dies kurz bestätigen oder korrigieren? Gestern hatte ich nämlich ein Gespräch mit 2 Personen und
+dabei kam die Sprache darauf, wobei ich das Gefühl hatte, dass der Begriff stutzig machte. Infolgedessen dachte ich
+mir, ich geh sicher und frage mal nach.
+Nach meinem Verständnis sieht es so aus, dass es bei der Leichenfeld-Meditation um das Erfassen des ES IST SO beim
+Wahrnehmen des Vorhandenseins eines Leichenfeldes geht. Dadurch wird die Selbstkontrolle bewahrt, ohne die die
+wahrnehmende Person bei einem solchen Anblick wahrscheinlich einen psychischen Knacks bekäme. Im Buch Einführung in die Meditation, Satz 304, steht allerdings etwas, das mir früher ‹durch die Lappen› gegangen ist:
+304., 4) Leichenfeld-Achtsamkeit/Betrachtung
+(In heutiger Zeit ist die Leichenfeld-Achtsamkeit/Betrachtung nicht mehr möglich und wird ersetzt durch eine gute
+Menschen-Achtsamkeit/Betrachtung, bei der bestimmte oder wahllos ausgesuchte Menschen in ihren Bewegungen,
+in bezug auf ihre Physiognomie und Kleidung meditativ achtsam beobachtet und betrachtet werden.)
+
+Nämlich wenn dort steht, dass in der heutigen Zeit die Leichenfeld-Achtsamkeit nicht mehr möglich ist, was übersehe
+ich da? Denn ein Leichenfeld könnte doch durchaus noch zustande kommen, wenn man bedenkt, was auf dieser Welt
+alles passiert.
+
+**Antwort:**
+Deine Erklärung ist an und für sich völlig richtig. Allerdings ist eine Leichenfeld-Betrachtung heute deswegen nicht
+mehr möglich, weil einerseits (im Kriegsfall) der Aufenthalt auf einem Leichenfeld viel zu gefährlich wäre und andererseits aufgrund der modernen Waffen die Leichen oft dermassen entstellt sind, dass eine meditative Betrachtung
+der Leichenteile auch nicht mehr möglich und auch nicht ‹hilfreich› wäre. Ausserdem werden heute Leichen, z.B. bei
+Naturkatastrophen, durch die Behörden sehr schnell abtransportiert, um einer eventuellen Seuchengefahr vorzubeugen und um der verbliebenen Bevölkerung den Schock, der durch eine Ansammlung von Leichen entstehen könnte,
+zu ersparen.
+Bei der Leichenfeld-Betrachtung handelt es sich also nicht um eine kurzfristige Betrachtung, sondern offenbar um
+eine längerfristige aufmerksame Beobachtung, während der der Zerfall der toten Körper meditativ betrachtet und
+ausgewertet wird.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+### Die FIGU hat zwei neue YouTube Kanäle, auf denen ihr mehr über Billy,
+ die Plejaren und die Schöpfungsenergielehre erfahren könnt:
+
+Deutsch:
+
+**FIGU**
+
+Michael von Hinterschmidrüti
+
+@michaelvoigtlaender9492
+
+https://www.youtube.com/channel/UCvrDwu4PdnaX328s7n0PWVg
+
+Englisch:
+
+**FIGU**
+
+Michael from Hinterschmidrueti
+
+@michaelvoigtlaender4347
+
+https://www.youtube.com/channel/UCVRSWBSZ7LszV1y7rlJ_dHA
+
+Neutrale Informationen zur aktuellen Lage und zu anderen wichtigen Themen:
+
+**FIGU**
+
+Sonderausgabe Zeitzeichen:
+
+https://www.figu.org/ch/verein/periodika/zeitzeichen
+
+COPYRIGHT und URHEBERRECHT 2024 bei ‹Billy› Eduard Albert Meier, ‹Freie Interessengemeinschaft Universell›, Semjase Silver Star
+Center, 8495 Schmidrüti, Schweiz. Kein Teil dieses Werkes, keine Photos und sonstige Bildvorlagen, keine Dias, Filme, Videos und keine
+anderen Schriften oder sonstige Materialien usw. dürfen ohne schriftliche Einwilligung des Copyrightinhabers in irgendeiner Form (Photokopie, Mikrofilm oder ein anderes Verfahren), auch nicht für Zwecke der Unterrichtsgestaltung usw., reproduziert oder unter Verwendung elektronischer Systeme verarbeitet, vervielfältigt oder verbreitet werden.
+
+Veröffentlicht auf www.FIGU.org durch:
+‹Freie Interessengemeinschaft Universell›, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+

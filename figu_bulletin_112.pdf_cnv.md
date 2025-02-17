@@ -1,0 +1,838 @@
+27. Jahrgang
+Nr. 112, Juni 2021
+
+
+Erscheinungsweise:
+Periodisch
+
+
+# FIGU-BULLETIN
+
+Internetz: http://www.figu.org
+E-Brief: info@figu.org
+
+
+##### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+
+Laut ‹Allgemeine Erklärung der Menschenrechte› vom 10. Dezember 1948,
+
+‹Meinungs- und Informationsfreiheit› gilt absolut weltweit:
+
+**Art. 19 Menschenrechte**
+
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit,**
+
+**Meinungen unangefochten anzuhängen und Informationen und Ideen mit allen Verständigungs-**
+
+**mitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Aussagen und Meinungen in Artikeln und Leserbriefen usw. müssen
+
+nicht zwingend identisch sein mit den Gedanken, Interessen, der
+
+‹Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens›
+
+sowie dem Missionsgut der FIGU.
+
+==================================================================================
+
+**Für alle in jedem FIGU-Bulletin, Sonder-Bulletin und anderen FIGU-Periodika publizierten Leserzuschriften,**
+
+**Beiträge und Artikel von Medien usw. verfügt die FIGU über die notwendigen schriftlichen**
+
+**Genehmigungen der Leserschaft und der Autoren bzw. der betreffenden Medien!**
+
+==================================================================================
+
+##### **********************************************************************************
+
+ Dein Lied
+
+Deine zarten Klänge haben mich sanft berührt,
+
+Wie Schmetterlingsflügel, die meine Psyche streicheln.
+
+Die Wärme deiner Stimme trägt dein Lied in mein Herz,
+
+Und lässt meine Gedanken und Gefühle in Frieden schwingen.
+
+Dein traumhafter Gesang hat mich in ein Zauberland geführt,
+
+Von dem mein Fühlen und Empfinden sich wundersam lässt erweichen.
+
+Dein Lied erfüllt mich mit Freude, Glück und sanftem Schmerz,
+
+Und niemals hört' ich jemanden berührender und schöner singen.
+
+Von Achim Wolf, Deutschland 23. Januar 2020
+
+(falsches Friedensymbol = ☮ = keltische Todesrune (nach unten gedrehte „Lebensrune“)
+
+
+## ☮
+
+
+-----
+
+##### J
+
+####  Was sich so alles an sehr Interessantem in alten Archiven finden lässt … … Gutes wie angriffig Böses, Lügen und Verleumdungen gegen Billy BEAM
+
+
+-----
+
+##### J
+
+**Deutsche Übersetzung:**
+
+Lieber Dave
+Vielen Dank für Deinen Brief und das Informationsblatt. Deine Präsentation sieht für mich ziemlich gut
+aus. Weisst Du, diese ETs stellten ihre Schiffe zum Photographieren so dar, um zu versuchen, die
+Aufmerksamkeit der Leute auf ihre Botschaft zu lenken, und das ist, dass wir rassistischen Selbstmord
+begehen und den Rest Leben unserer Welt mitnehmen, in ihren Augen ein schweres Verbrechen.
+Du hast Dich nach der Religion der Pleadier erkundigt; Meier hat dieselbe Frage gestellt, so folgte eine
+Diskussion/Erörterung, die bei mehreren anderen Gelegenheiten ihre Fortsetzung fand. Die Pleadier
+haben keinen menschenähnlichen Gott, sie sagen wir hätten unseren Gott in unserer Vorstellung anstatt
+andersherum wie die Religionen uns lehren. Sie haben die Schöpfung, die allumfassend und
+unpersönlich ist. Sie sehen die Schöpfung in allem, das existiert, auf allen Ebenen, in allen Bereichen, und
+dass die Schöpfung die Summe all ihrer Einzelteile ist. Wir sind kollektiv/gemeinsam in ihr und sie in uns.
+Sie sagen, dass die ganze Schöpfung untrennbar verbunden ist, und in diesem Sinne sind wir alle Brüder
+(und Schwestern), ungeachtet unserer planetaren Herkunft. Sie sagen, wir seien verbunden in der
+Schöpfung selbst. Ihre ‹Verehrung› ist eher in der Form ‹arbeiten mit der Schöpfung auf einem kreativen
+Weg›, wie Kunst in ihrer vielfältigen Form, in dem mit Steinen und Metall und Holz gearbeitet wird,
+speziell im Gartenbau und der Vieh-Landwirtschaft, wo sie arbeiten können mit ihrem Wissen über
+Genetik und Lebenskontrolle. Sie arbeiten mit Farben und Formen und sie meditieren über tiefgründige
+Themen(kreise). Sie alle arbeiten oder beschäftigen sich mit sozialen Aufgaben, wobei sie pro Tag etwa 4
+Stunden dafür aufwenden. Weitere 4 Stunden sind der Schöpfung in liebevoller Zuwendung gewidmet.
+Der Rest ihrer Zeit wird mit Studieren, Erholung/Entspannung und einfach Unterhaltung verbracht. Sie
+verbringen auch viel Zeit mit interplanetarem Erforschen, immer auf der Suche nach neuem Wissen und
+die unbegrenzte Vielfalt in der Schöpfung, die sie als endlos ansehen.
+Sie haben kein Geldsystem, wie wir es kennen; Wissen ist Wohlstand für sie. Sie haben keine
+Rangordnung und keine hierarchischen Macht- und Autoritätsstrukturen. Sie fügen sich dem Weiseren für
+die zu übernehmende Aufgabe, was leicht ist zu entdecken, denn sie beherrschen alle die Telepathie.
+Ich freue mich, dass Du eine Kopie gefunden hast von ‹A Date with the Gods› (Eine Verabredung mit den
+Göttern). Ich wusste von Charles Silva and seinen Kontakten seit 1978. Ich habe eine Kopie von seinem
+Originalmanuskript, aber ich würde gerne eine Kopie vom fertiggestellten Buch kaufen. Kannst Du mir
+hier in der Gegend eine besorgen? Lass es mich wissen und ich schicke Dir das Geld.
+Ja, ich höre immer wieder über verschiedene Quellen, vor allem metaphysische, aber auch durch einige
+Mitteilungen der ET-Kontaktpersonen, dass zur jetzigen Zeit ungefähr 20% unserer Erdbevölkerung
+ausserirdische Schöpfungsenergieformen (Geistformen) ihr eigen nennen und die hier zu dieser Zeit
+inkarnierten, um bestimmte Erfahrungen zu machen, die sie in ihrer eigenen Gesellschaft nicht hätten
+machen können. Offenbar nähern wir uns einer aufziehenden Krisenphase, die eine grosse Wende
+bringen wird, so dass diese Schöpfungsenergieformen (Geistformen) das durchmachen/erleben müssen.
+Aus diesem Grund ist die Zahl ungewöhnlich hoch zum jetzigen Zeitpunkt. Das ergibt für mich jedenfalls
+einen Sinn. Und das dürfte ein Grund mehr sein für all diese ET Besuche in unserer modernen Zeit.
+Manchmal erstaunt es mich schon, wie das alles zusammenpasst.
+Ich denke, Du wirst CHASPE interessant finden, für die ganze Weltgeschichte, die Du darin finden wirst
+und nirgendwo sonst, und das wurde durch einen Mann in Trance niedergeschrieben, nachts, im Dunkeln
+seines Untergeschosses, indem er mit einer frühen manuellen Scholes Schreibmaschine mit
+Holzbuchstaben auf Zeitungspapier tippte. Die Skizzen wurden mit einem Kohlestift angefertigt, auch im
+Dunkeln zur Nachtzeit. John Newbrough war kein Gelehrter der Geschichte und auch nicht gebildet, als er
+diese Arbeit ausführte. Obwohl diese Arbeit vor fast 100 getan wurde, sind die geschichtlichen Fakten bis
+heute nicht erfolgreich besprochen worden. Das ist schon erstaunlich. Darin kannst Du sehen, dass sehr
+viele weltliche Avatare vor Jesus waren, und dass sich die Religiosität mit jedem zu seiner Zeit ein
+bisschen geändert hat.
+Die Pleadier haben ‹Meister-Geistformen (Schöpfungsenergieformen)›, die sie führen, und diese ‹MeisterSchöpfungsenergieformen› haben noch höhere Formen, die sie um Führung konsultieren, usw. Diese
+wissen auch nichts über das Ende der Gottheiten.
+Billys Gesundheit hat sich etwas verbessert, aber er empfängt keine Besuche mehr. Er hat genug von den
+Leuten. Soviel ich weiss, ist Semjase irgendwo auf einer anderen Mission. Nur die untere Schicht ist aktiv
+zu dieser Zeit. Sie dient auch mehreren anderen ET-Rasse-Typen, die mit den Pleadiern in Kontakt
+stehen.
+Dein Denkansatz für Deinen Vortrag schaut gut aus, Dave, und Du leistest sicher deinen Teil im Verbreiten
+der Nachricht zu denen, die sie hören wollen.
+
+
+-----
+
+##### J
+
+Du könntest versuchen, diese Woche Bettina und Grace zu kontaktieren, denn ich denke Sixto Jose Paz
+Wells von der RAMA Gruppe in Peru wird sie diese Woche besuchen. Er dürfte einige Exemplare der ‹free
+books› mitbringen, die sie dort veröffentlicht haben. Die Spende lohnt sich. Es wäre für ihn interessant,
+persönlich einer grossen Gruppe vorgestellt zu werden. Ich denke, er spricht auch Englisch.
+Das wäre dann erstmal alles, mein Freund. Mach weiter so mit der guten Arbeit.
+Meine besten Empfehlungen ... 7. Mai 1988
+
+Wendelle C. Stevens
+
+#### UFO-Geheimhaltung
+
+von Erwin Mürner, Schweiz
+
+Immer noch wird die Wahrheit, dass wir nicht allein sind im Universum, verschwiegen und vertuscht
+durch all die Regierungen und Militärs usw., und die Medien machen alles Ausserirdisch bezogene
+lächerlich.
+Dass diese Geheimhaltung endlich aufgehoben würde, wäre sicher an der Zeit. Man denke da z.B. an den
+‹Roswell Fall›. Soll denn unsere Menschheit noch länger am Narrenseil herumgeführt werden?
+Dass die Wirklichkeit die ist, dass wir nicht die einzigen Bewohner im Universum sind, dies jedoch von
+verschiedenen Seiten diskriminiert und geleugnet wird usw., musste ich in letzter Zeit selbst erfahren. Zur
+Geschichte:
+
+##### Attacke: Mirage gegen Strahlschiff der Plejaren (am 10. April 1976)
+
+Meinem Wissen gemäss hat sich das so abgewickelt: Billy machte im Auftrag der Plejaren Bild- und
+Tonaufnahmen von Semjases Schiff. Zur gleichen Zeit wurden in der Nähe Manöver der Schweizer
+Luftwaffe abgehalten. Der Flug-Radar fing Signale auf, die sich die Militärs nicht erklären konnten,
+weshalb ein Mirage-Jagdflieger losgeschickt wurde, um Nachforschungen anzustellen. Der stiess schon
+bald auf das nicht abgeschirmte Strahlschiff. Von Dübendorf aus gab man dem Piloten den Befehl, dieses
+zu photographieren oder vielleicht womöglich abzuschiessen? Das Photographieren misslang jedoch
+gründlich, weil vom Strahlschiff aus die Photoapparatur des Flugzeuges unterbunden wurde. Mehrfach
+versuchte der Pilot während rund zwanzig Minuten, das Schiff anzufliegen und zu photographieren,
+jedoch ohne Erfolg. Dann entfernte sich Semjase mit ihrem Schiff und verschwand, wonach auch der
+Mirageflieger abzog.
+Später übergab ich ein Photo, das Billy von der Mirage mit dem Strahlschiff gemacht hatte, an einen
+Kollegen, um dieses über einen Freund von ihm an einen Luftwaffenmajor weiterzuleiten, der beim
+Militärflugplatz Dübendorf dort arbeitet, von wo auch der Befehl ausgegangen war, Semjases Strahlschiff
+zu beobachten und zu photographieren.
+
+Die Antwort des Majors lautete, dass wir begreifen müssten, dass er beim Militär sei, er jedoch nicht alles
+sagen dürfe, jedoch der Fall aktenkundig sei. Zu späterer Zeit und nach weiterer Nachfrage, erhielt ich
+dann einen neuen Hinweis, nämlich wenn ich unbedingt wolle, dass diese Sache an die Öffentlichkeit
+käme, dann empfehle er mir, zu Bundesrat Villiger zu gehen. Er selbst könne dazu nichts weiteres mehr
+sagen, denn er stehe immer noch im Dienst als Major.
+Vom Schweizer Fernsehen wurde ich am 7.6.1994 in eine UFO-Sendung des DRS-Aktuell eingeladen.
+Auch da wollte ich die Mirage-Geschichte zur Sprache bringen. Gleich am Anfang zeigte ich dem
+Produzenten die Photos der Mirage-Attacke. Da kam dann aber die Überraschung: In der Sendung selbst
+war ich dabei, musste dann aber über einen aufgestellten Monitor feststellen, dass die Teilnehmer auf
+meiner Sitzseite im TV-Bild komplett abgeschnitten wurden. Die Aufnahme der Mirage wurde zwar
+gezeigt, zusammen mit weiteren Bildern aus Billys Archiv, wonach dann aber das Ganze ins Lächerliche
+gezogen wurde.
+Nach der Sendung erwischte ich dann noch kurz den Produzenten, der sagte: «Bringen sie uns den
+Piloten, dann gehen wir der Sache sofort nach», obwohl er ja sicher wusste, dass dieser Mann unter
+Schweigepflicht stand.
+
+Auffallend ist, dass ich seither immer mehr mit Militärpersonen konfrontiert werde, unter anderem auch
+in Wila und Zürich. Gegen Ende Februar 1996, so um den 22. herum, besuchte ich in Zürich den UFOWeltkongress. Da brachte ich ebenfalls diese Mirage-Geschichte aufs Tapet. Auch hier setzte sich
+wiederum einer vom Militär neben mich. Er sagte sogar, er kenne mich, hätte mich zwar noch nie
+gesehen, hätte aber gewusst, dass ich hier sei. Das machte mich natürlich im Moment stutzig.
+
+
+-----
+
+##### J
+
+Danach besuchte ich in einem anderen Saal noch einen weiteren Vortrag. Da stellte sich neben mir
+wieder einer vor: Er sei Militärpilot und möchte gerne wissen, was sich damals bei dieser Konfrontation
+Mirage-Strahlschiff eigentlich ereignet habe. Er wisse nichts darüber.
+
+Mitte Woche erhielt ich dann einen telephonischen Anruf desjenigen Militärmannes, der mich im ersten
+Vortrags-Saal angesprochen hatte. Er würde mich gerne bei mir zu Hause besuchen. Das tat er dann
+auch am 2. März 1996. Es stellte sich heraus, dass er bei der militärischen Spionage-Abwehr war und
+den Auftrag hatte, mich zu überwachen. Man wollte wissen, ob ich für die Armee gefährlich sei oder dies
+womöglich werden könnte. Er erklärte mir schon am Kongress in Zürich, heimlich im Gang draussen,
+ohne dass ich nochmals vom Mirage-Strahlschiff-Fall etwas erwähnte: «Die Sache stimmt beim Militär;
+jedoch vor dem Volk nicht.» Aber solche Machenschaften sind ja auch in Amerika und in anderen
+Ländern so. UFOs existieren einfach nicht. Fünf Personen wurden auf mich losgehetzt, aber die Wahrheit
+darf ja eben nicht ans Licht kommen – warum wohl nicht?
+Fichen werden über uns angelegt, und das nennt sich dann persönliche Freiheit und hochgepriesene
+Demokratie. Was soll denn der Datenschutz, auch das ist eine Farce. So werden wir aber drangsaliert und
+auf Schritt und Tritt verfolgt.
+Auch das hat der Militärmann gewusst (obwohl er am Sonntag nicht in Zürich war), dass ich am Abend
+ein Telephon nach Schmidrüti tätigte, wegen eines Films eines Referenten aus Mexico, der gerne gehabt
+hätte, dass Billy diesen begutachtet hätte.
+Also: Diese Leute sind sehr gut über uns orientiert. Der Militärmann wusste sogar, welche Art Auto ich
+habe und wo es bei mir zu Hause geparkt wird. Alle Daten und Fichen können Dank der neuen
+elektronischen Technik auf Disketten angefertigt werden. Das ist doch herrlich.
+Der Militärmann fragte mich sogar, ob ich gewusst hätte, dass an die Piloten der Schweizer Luftwaffe der
+Befehl erteilt wurde, UFOs zu photographieren und notfalls auf sie zu schiessen. Beim Billy Meier-Fall,
+UFO-Mirage, hätte die Meldung einfach geheissen: «Es ist ein neuer Wetterballon getestet worden.» Was
+militärisch ist, ist einfach streng geheim.
+
+Auch in Wila, beim Vortrag von Guido Moosbrugger, habe ich den Mirage-Fall erwähnt. Da war ebenfalls
+ein Sitz neben mir von einem Mann des Militärs besetzt, der den UFO-Mirage-Fall vor dem Volk als wahr
+bestätigte. Er erklärte mir in einem kurzen Gespräch, dass er beim Radar arbeite und sagen könne, dass
+die UFOs, weil sie zu schnell fliegen, nicht gefasst werden könnten. Sie auf dem Radar zu erfassen sei
+auch sehr schwer.
+
+
+-----
+
+##### J
+
+Man sieht hier wieder einmal mehr: Wenn all die gewissen Leute des Militärs und der Behörden zur
+Wahrheit stünden, dann müssten all die teilweise verlogenen UFO-Bücher nicht geschrieben oder
+Sendungen über TV und Radios nicht ausgestrahlt werden, die immer das gleiche Thema zugrunde
+haben: ‹Existieren die UFOs?› und ‹Sind wir allein im Universum oder nicht?›
+
+NB: Gemäss der Aussage des V-Manns, ich nenne jetzt meinen Bekannten einmal so, werde dieser mir
+
+bekannte Major nichts mehr erwähnen bezüglich des Billy-Meier-UFO-Mirage-Falles. Er wurde an seine
+Schweigepflicht erinnert und bleibt seither stumm, obwohl er nach Einsichtnahme der Photos sogar an
+die Öffentlichkeit treten wollte.
+
+Nun, ich habe ein Interesse daran, dass unser Volk, die Welt, wir Menschen, endlich einmal die Wahrheit
+erfahren, dass wir nicht allein sind in den Weiten des Weltenraumes.
+Einen Trost gibt es; die Wahrheit kommt immer ans Licht, früher oder später.
+Die Unwahrheit ist für mich ein Ekel. Leider hat sie sich wie ein Krake über das Erdenrund verbreitet,
+woraus Neid, Krieg und alles Übel und Unmögliche entstanden sind.
+Es wird überall gelogen, verschwiegen und bestritten, was das Zeug hält, so dass in vielen Firmen,
+Organisationen sowie in den Regierungen und bei den Militärs die Balken krachen.
+
+Ich habe dann durch meinen V-Mann noch weiter erfahren, dass wer Wissen habe vom Billy Meier-UFOMirage-Fall, der müsse das Geheimnis wahren bis an sein Lebensende.
+
+Schon viel früher, am 17.1.1988, wurden einmal Ausschnitte aus Billys Filmen veröffentlicht; anlässlich
+der Sendung ‹Sonntags-Magazin› im TV-Suisse. Durch einen Kollegen, der dem TV-Produzenten schrieb,
+erfuhr ich, dass der TV-Mann nichts Näheres über den Billy-Meier-UFO-Mirage-Fall sagen durfte und dass
+er diesbezüglich sogar Todesdrohungen erhielt.
+
+#### Bundesregierung nutzt Lockdown für Einsatz eines tödlichen
+ und verbotenen Pestizids, das ganze Nahrungsketten zerstört
+
+Sott.net, Mi, 06 Jan 2021 08:20 UTC
+
+Während die deutsche Öffentlichkeit mit immer neuen abstrusen Lockdown-Maßnahmen beschäftigt
+wird, die so ziemlich alle Grundrechte und Menschenrechte außer Kraft setzten, hat unsere Regierung
+jetzt klammheimlich den Einsatz von Insektiziden per "Notfallzulassung" genehmigt, die wegen ihrer
+drastischen Folgen für die Lebensmittelkette und Insekten in der EU verboten sind.
+
+Am 15. Dezember genehmigte die deutsche Bundesministerin für Ernährung und Landwirtschaft Julia
+Klöckner (CDU) eine "Notfall"-Zertifizierung für den "begrenzten" Einsatz der höchst umstrittenen
+insektenvernichtenden Chemikalien, die als Neonicotinoide bekannt sind. Während die Anordnung als
+begrenzte Notfallausnahme für ein aktuelles EU-weites Verbot dieser Chemikalien getarnt ist,
+argumentieren Umweltorganisationen, dass dies nur der Beginn einer heimlichen Wiederzulassung der
+Chemikalien ist, die seit 2013 verboten sind.
+
+2012 kamen mehrere Studien zu dem Schluss, dass diese Chemikalien für den dramatischen Anstieg des
+Bienensterbens verantwortlich sind. Bekanntlich sind Bienen wichtige Bestandteile der Ökologie, von
+denen Albert Einstein angeblich sagte: "Wenn die Bienen aussterben, sterben vier Jahre später auch die
+Menschen".
+
+**Zusammenbruch von Bienenvölkern**
+
+Im Jahr 2012 zeigten mehrere wissenschaftliche Studien, dass sich der Einsatz von Neonics, wie sie
+genannt werden, in landwirtschaftlichen Bewässerungskanälen und Böden ausbreitete, wo sie verblieben.
+Die Studien brachten die Chemikalien auch mit einem dramatischen Anstieg des Sterbens von
+Bienenvölkern in der gesamten EU in Verbindung. Im Jahr 2013 erklärte die offizielle EU-Behörde, die
+Europäische Behörde für Lebensmittelsicherheit (EFSA), nach einer formellen Überprüfung, dass
+Neonicotinoide ein inakzeptabel hohes Risiko für Bienen darstellen und dass die von der Industrie
+gesponserten Studien von Bayer, Syngenta und anderen agrochemischen Firmen, auf die sich die
+Behörden bei ihren Behauptungen zur Sicherheit verlassen haben, fehlerhaft waren. Das führte zum
+ersten EU-weiten Verbot der Chemikalien.
+Diese Chemikalien stellen auch eine potenzielle Gefahr für gesamte Lebensmittelketten dar, während sie
+anscheinend alle bestäubenden Insekten und viele Vogelarten, die sich von Insekten ernähren, töten.
+
+
+-----
+
+##### J
+
+Im Jahr 2018 veröffentlichte die EFSA als Reaktion auf den wachsenden Druck der agrochemischen
+Industrie, das Verbot aufzuheben, einen neuen Bericht, der besagt, dass die Neonics nicht nur für
+Honigbienen, sondern auch für Wildbienen eine ernsthafte Gefahr darstellen. Andere Studien haben
+gezeigt, dass ein einziger mit Neonics behandelter Samen ausreicht, um einen Singvogel zu töten.
+Neonicotinoide haben das Potenzial, ganze Nahrungsketten zu beeinflussen. Sie sind in der Umwelt
+persistent, dringen ins Grundwasser ein und haben kumulative und weitgehend irreversible Auswirkungen
+auf wirbellose Tiere.
+2018 wurde ein neues EU-weites Verbot für den gesamten Außeneinsatz der Insektizide verhängt. Das
+unterläuft nach Frankreich nun auch die deutsche Regierung mit der Masche der "notfallmäßigen
+begrenzten Anwendung".
+Auf dem Spiel steht weit mehr als die Zukunft der Bienen. Da die Chemikalien in großem Umfang auf
+zahlreichen Feldfrüchten eingesetzt werden, gibt es Hinweise darauf, dass sie mehr als nur Bienen töten.
+In der Tat scheinen sie alle bestäubenden Insekten und viele Vogelarten, die sich von Insekten ernähren,
+zu töten. Dies ist keine Kleinigkeit.
+Quelle:
+https://de.sott.net/article/34935-Bundesregierung-nutzt-Lockdown-fur-Einsatz-eines-todlichen-und-verbotenenPestizids-das-ganze-Nahrungsketten-zerstort.
+
+**Ein offener Brief**
+
+Bezüglich der bedrohlichen, gesundheitlichen und pandemischen Situation sowie der stetig steigenden
+Fallzahlen, wie auch der verschiedenen Mutationen des Covid-19-Virenstammes, der enormen
+Mortalitätsrate und Spitaleinweisungen in die Intensivstationen, bringen diese Tatsachen unser
+Gesundheitssystem an den Rand des Erträglichen und Vertretbaren.
+Das Pflegepersonal ist effectiv am Limit seiner Kräfte, nicht nur weil es erschöpft und ausgepowert ist,
+nein, viele sind auch selbst mit Covid-19 infiziert und können ihren Dienst nicht mehr erfüllen.
+Leider kommt unsere Regierung – trotz alarmierenden und mahnenden Szenarien der wissenschaftlichen
+Task-Force des Bundes – nur schwerlich und schleppend in die Gänge.
+Das Ganze erweckt in mir stark den Eindruck, dass für die Regierung der Schweiz die
+volkswirtschaftlichen, industriellen und die materiellen Interessen mehr Gewicht haben als die Gesundheit
+und das allgemeine Wohl der Bürger. Obliegt dem Bundesrat nicht das Wohl und die Sicherheit der
+gesamten Bürgerschaft? Nur eine gesunde, physisch und psychisch wohlbewahrte Arbeiterschaft ist in
+der Lage, die volkswirtschaftlichen – nicht profitgierwirtschaftlichen – Interessen eines Landes resp.
+explizit der Schweiz zu gewährleisten. Ist das normal, oder unterliege ich einem Denkfehler?
+Natürlich ist diese ausserordentliche Situation für jeden einzelnen Menschen nicht einfach, insbesondere
+für die Betagten, wie jedoch auch für die Bewohner von Altersheimen und Spitälern nicht, denn an diesen
+Orten haben sie ein besonders massives Problem mit der Maskenpflicht, dem Kontaktverbot und
+Abstandhalten.
+Paradoxerweise wäre die Akzeptanz verordneter Massnahmen des Bundesrates erheblich besser
+gewesen, wenn von Anfang an, als die Corona-Pandemie hätte verhindert werden können, alles gründlich
+bedacht, dann das Richtige beschlossen und erlassen und dafür gesorgt worden wäre, dass durch die
+Bevölkerung das Ganze bewusst-verantwortungsvoll umgesetzt worden wäre. Aber bereits zu Anfang
+ergab sich infolge unbedachter und ungenügender sowie falscher Verordnungen, dass sich die Seuche
+aus der Epidemie zur Pandemie entwickeln konnte. Vom Bundesrat und allen Regierenden der Welt
+wurde einerseits nicht alles gründlich bedacht und daher auch die folgerichtigen und notwendigen
+Sicherheitsvorkehrungen weder ersonnen noch konnten solche durchgeführt, wie aber auch die
+Pandemie nicht verhindert werden.
+Wären die Bevölkerungen der Welt – also auch der Schweiz – richtig informiert und nicht durch
+Verschleierungstaktiken in eine Scheinrealität verführt worden, dann wären sie auch nicht in eine nie
+zuvor dagewesene Verunsicherung verfallen. Dadurch wäre in den Bevölkerungen wohl mehr Verständnis
+aufgekommen, wiewohl keine oder nur geringere Massen von Querulanten, Verschwörungstheoretikern
+und Querschlägern gegen staatlich verordnete Sicherheitsvorkehrungen gegen die Corona-Seuche
+aufgekommen wären.
+Eine mögliche wirksame Massnahme wäre z.B. eine rigorose Abschottung der Schweiz gegenüber dem
+Ausland gewesen, und zwar derweise, indem ein sehr streng geregeltes Aus- und Einreiseverbot erlassen
+worden wäre, um dadurch das Einschleppen und Verbreiten der Seuche im eigenen Land zu unterbinden,
+was mit einem genügenden Intelligentum sowie mit Verstand und Vernunft hätte arrangiert werden
+können. Das hätte auch in allen Ländern der Erde beziehungsweise durch die gesamte Weltgemeinschaft
+getan werden sollen, wodurch die Pandemie hätte verhindert werden können. Dies, wenn rundum das
+notwendige Intelligentum nicht gemangelt hätte. Nur so, durch ein funktionierendes Intelligentum, wenn
+das Ganze richtig bedacht und die notwendigen Massnahmen ersonnen, verordnet und durchgeführt
+werden, kann dem Covid-19 mit all seinen Mutationen die Stirn geboten und es weitgehend unter
+
+
+-----
+
+##### J
+
+Aufsicht und Beherrschung gebracht werden. Zwar wird es nicht für immer ausgemerzt, jedoch unter
+Kontrolle gestellt werden und das Leben wieder die Oberhand gewinnen können. Erst dann kann wieder
+damit begonnen werden, die malträtierte Wirtschaft neu zu ordnen und mutig, tatkräftig und
+zuversichtlich ein neues Leben zu beginnen. Dies, um ohne die tödliche Seuchengefahr gestärkt in die
+Zukunft zu blicken und sie zu nutzen, um Frieden, Freiheit und Rechtschaffenheit in die Welt zu bringen,
+alle Zerstörungen am Planeten, den Ökosystemen, der Natur und deren Fauna und Flora, an der
+Atmosphäre, am Klima und das verstand-vernunftlose Wachstum der Überbevölkerung und deren üble
+Machenschaften zu beenden, die ausgeartet zerstörend, vernichtend und ausrottend alle Existenz und
+somit gesamthaft alles Leben auf Erden in einen rettungslosen Kollaps treiben, wodurch alles Dasein für
+alle Zeiten verlöschen wird.
+
+#### Schweiz: Pflegekräfte verweigern reihenweise Corona-Impfung
+
+5 Jan. 2021 10:48 Uhr
+
+**Große Skepsis beim Pflegepersonal in der Schweiz: Laut Medienberichten will sich zum Teil nur jede**
+**zehnte Pflegerin und jeder zehnte Pfleger gegen das Coronavirus impfen lassen. Als Begründung heißt**
+**es unter anderem, dass man kein "Versuchskaninchen" spielen wolle.**
+
+Zwar bewirbt die Schweizer Bundesregierung die nationale Impfkampagne, die am Montag angelaufen ist,
+doch die Resonanz gerade bei Pflegekräften scheint nicht sehr groß. Der Plan lautet auch in der Schweiz
+zuerst Risikopatienten, dann das Pflegepersonal zu impfen – doch die leisten zum Teil Widerstand.
+Die Schweizer Tageszeitung 20 Minuten berichtet von einem Altersheim in St. Gallen, in dem sich bisher
+nur rund zehn Prozent der Mitarbeitenden zur Impfung angemeldet haben sollen. Laut dem Bericht
+kursieren unter den Mitarbeiterinnen Gerüchte darüber, "wonach zum Beispiel die Impfung die
+Fruchtbarkeit beeinträchtigen könnte", zitiert 20 Minuten den Heimleiter Kurt Ryser. Beim Großteil der
+Mitarbeiterinnen handle es sich um junge Frauen, weshalb diese Thematik aktuell der Skepsis besonders
+Vorschub leiste.
+Der Heimleiter will demzufolge in den nächsten Wochen nochmals eine Informationsoffensive starten und
+die Sicherheit des Corona-Impfstoffs betonen. Bei den Bewohnerinnen und Bewohnern betrage der Anteil
+jener, die sich impfen lassen wollten, rund 80 Prozent, so der Bericht weiter.
+Auch die Leiterin eines weiteren Altersheims, Sonja Bühler, in Hilterfingen im Kanton Bern, stößt beim
+Thema Impfung auf Widerstand. "Die Skepsis ist groß", so Bühler gegenüber 20 Minuten. Viele wollten
+nicht als "Versuchskaninchen" herhalten. "Vom gesamten Personal lassen sich 26 Prozent impfen", so die
+Heimleiterin. Sie selbst gehe mit gutem Beispiel voran.
+In einem Altersheim in Gams im Kanton St. Gallen betrage die Quote ebenfalls nur zehn Prozent, wie die
+Zeitung Tagblatt berichtete. Auch die Heimleiter im Alterszentrum Lindenhof in Oftringen AG seien
+ernüchtert: Dort betrage die Quote laut dem Schweizer Nachrichtensender SRF 20 Prozent. Einer
+Umfrage zufolge, die im vergangenen Herbst getätigt wurde, will sich nur ein Drittel des Schweizer
+Gesundheitspersonals so rasch wie möglich impfen lassen.
+Zwar liegen <20 Minuten> zufolge keinerlei schweizweiten Zahlen darüber vor, wie viele Pflegerinnen und
+Pfleger sich tatsächlich impfen lassen wollen, doch einzelne Kantone hätten Schätzungen dazu
+vorgenommen. So heißt es zum Beispiel im Kanton Bern, dass man mit einer Impfquote beim
+Pflegepersonal von über 30 Prozent rechne.
+Quelle: https://de.rt.com/europa/111371-schweiz-pflegekraefte-verweigern-reihenweise-impfung/
+
+(falsches Friedensymbol = ☮ = keltische Todesrune (nach unten gedrehte „Lebensrune“)
+
+
+## ☮
+
+
+-----
+
+##### J
+
+**Das Friedenssymbol** **Ur-Symbol Überbevölkerung**
+
+**Autokleber** **Bestellen gegen Vorauszahlung:** **E-Mail, WEB, Tel.:**
+
+**Grössen der Kleber:** **FIGU** info@figu.org
+
+120x120 mm = CHF     3.– Hinterschmidrüti 1225 www.figu.org
+
+250x250 mm = CHF 6.– 8495 Schmidrüti Tel. 052 385 13 10
+
+300X300 mm = CHF 12.– Schweiz Fax 052 385 42 89
+
+##### ❀. ❀. ❀. ❀. ❀. ❀. ❀
+
+#### Ende der Demokratie mit der ewigen Kanzlerin
+
+15 Jan. 2021 12:44 Uhr
+
+Im Sommer 2020 erklärte Angela Merkel, das Virus sei eine "demokratische Zumutung". Doch nicht
+Corona setzt der Demokratie so schwer zu. Die wahre Zumutung ist die Kanzlerin selbst. Und dank
+Corona bleibt sie das womöglich weit über den kommenden September hinaus.
+Ende der Demokratie mit der ewigen Kanzlerin
+Quelle: www.globallookpress.com © Wolfgang Kumm/dpa
+
+**Ein Meinungsbeitrag von Jens Zimmer**
+
+An die Rechtsbrüche Angela Merkels sind wir nunmehr gewöhnt, sei es in der Energie-, der Euro- oder der
+Flüchtlingspolitik. Anwälte, Professoren und vereinzelt auch Journalisten werfen der Kanzlerin immer
+wieder vor, sich dem höchsten deutschen Recht, dem Grundgesetz, nicht unterzuordnen. Ein deutscher
+Staatsrechtswissenschaftler – Hans-Jürgen Papier, einst Präsident des Bundesverfassungsgerichtes –
+attestierte der Bundeskanzlerin ebenfalls schon den Bruch der deutschen Verfassung.
+Auch in der aktuellen Corona-Krise meldet sich Papier wieder zu Wort und mahnt, selbst unter den
+Bedingungen einer Pandemie habe sich die Politik an die rechtlichen Rahmenbedingungen zu halten.
+Andernfalls würden die Grundrechte nachhaltig beschädigt. Ohne Grundrechte gibt es jedoch keinen
+funktionierenden Rechtsstaat. Und ohne Rechtsstaat keine Demokratie.
+Wird der Rechtsstaat beschädigt, wird die Demokratie zwangsläufig in Mitleidenschaft gezogen. Die
+beiden bedingen einander. Ähnlich empfindlich ist die Balance zwischen Bürgern und Staat. Es ist nicht
+möglich, das Machtgleichgewicht zu Ungunsten der Bürger zu verschieben, ohne dass der demokratische
+Grundgedanke dadurch fundamental betroffen ist. Wer die bürgerlichen Freiheiten einschränkt, handelt
+dabei unausweichlich wider die Demokratie. Ausnahmslos und unabhängig davon, wie gut eine
+Begründung auch klingen mag.
+Aktuell sind die bürgerlichen Freiheiten der Menschen in Deutschland bekanntlich eingeschränkt. Sie
+dürfen sich nicht frei bewegen, es herrschen Kontaktverbote, Sperrstunden, es gelten Bewegungsradien
+und die Pflicht, an öffentlichen Orten eine Mund-Nasen-Bedeckung zu tragen. Die Unverletzlichkeit der
+Wohnung, die Versammlungsfreiheit, Religionsfreiheit und Berufsfreiheit wurden aufgehoben.
+
+Beschlossen wurde all das am Parlament vorbei in kleiner, elitärer Runde. Kanzlerin und
+Ministerpräsidenten kungeln im Alleingang aus, was gut und recht ist für das Land. Mit am Tisch sitzt
+offenbar die BILD-Zeitung, um die Entscheidungen dieses – in der Verfassung nicht vorgesehenen –
+Kreises zu verkünden. All das ist ein Verstoß gegen die Grundpfeiler der Demokratie.
+Hinterfragt werden diese Vorgänge jedoch wenig bis gar nicht. Seit Jahren schon stehen die Medien in
+allen Lebenslagen fest hinter der Kanzlerin. Berichtet wird ein Einheitsbrei, der direkt aus dem Munde
+Helge Brauns sickern könnte. Eine gefährliche Symbiose auf höchster Ebene. Man kennt sich, mag sich,
+ist sich einig. Über lukrative politische Werbung, gesetzgeberische Gefälligkeiten, Zuwendungen und
+verschwiegene Treffen in Hinterzimmern wurden unheilige Bande geknüpft. Mit erschreckendem
+Ergebnis. Heute kontrollieren willfährige Journalisten nicht mehr die Regierung, sondern die Bevölkerung
+des Landes.
+Besonders hervor tut sich der öffentlich-rechtliche Rundfunk – politisiert vom Scheitel bis zu Sohle! Im
+Grunde eine gute Idee, ist er in der Praxis zur Spielwiese der Parteien verkommen. Zu einer
+milliardenschweren Belehrungsmaschinerie mit Wahrheitsanspruch. Im Kinderprogramm KiKa werden
+schon die Kleinsten auf Linie gebracht.
+Die Meinungsfreiheit ist ein weiteres Grundrecht, das derzeit ausgehebelt wird. Es geht darin um deutlich
+mehr, als privat eine eigene Meinung haben zu dürfen. Man muss diese Meinung auch jederzeit
+ungehindert in Wort, Schrift und Bild frei äußern können. Eine Zensur findet nicht statt!
+Auch nicht durch die Hintertür eines Netzwerkdurchsetzungsgesetzes, nicht durch online-Mobs oder
+staatlich geförderte Stiftungen, nicht durch Faktenchecker, durch die "Antifa" oder die gezielte Verengung
+des Meinungskorridors.
+
+
+-----
+
+##### J
+
+Die Regierung ist verpflichtet, die Rahmenbedingungen für die Meinungsfreiheit zu gewährleisten! Im
+Eigeninteresse darf sie den Wählern Angebote machen und für sich werben, nicht aber ihre Konkurrenten
+und Kritiker diskreditieren oder zum Schweigen bringen. Sie muss zudem wahrheitsgemäß informieren.
+Wenn sie der Bevölkerung grundlegende Informationen vorenthält, kommt sie ihren Pflichten nicht nach.
+Wenn sie den Pluralismus abschafft und auf allen Kanälen ihre "Wahrheit" verkündet, kommt sie ihren
+Pflichten nicht nach. Wenn sie Bürger mittels PR an die "richtige Meinung" heranführen will, vergeht sie
+sich an der Meinungsfreiheit.
+Techniken staatlicher Bevormundung wie Nudging und Framing richten sich insgeheim gegen die
+genuinen Überzeugungen von Menschen und somit gegen deren Meinungsfreiheit. Professionelle
+Manipulation ist weder eine Debatte, noch kann sie Überzeugungsarbeit ersetzen. Sie ist ihrem Wesen
+nach antidemokratisch und richtet sich eklatant gegen sämtliche Prinzipien der laut Verfassung
+garantierten Meinungsfreiheit.
+Tatsächlich scheint das aber niemanden mehr zu interessieren, schon gar nicht im Bundeskanzleramt.
+Aufbegehren können die Bürger ohnehin nur noch sehr schwer. Proteste werden immer häufiger
+untersagt. Die Polizei stellt sich aber auch genehmigten Demonstrationen entgegen. Ihrer
+Remonstrationspflicht, also rechtswidrigen Weisungen zu widersprechen, kamen die ausführenden
+Beamten bislang nicht nach.
+Auch die Justiz lässt nichts von sich hören. Die Männer und Frauen, die "im Namen des Volkes" anklagen
+und Urteile fällen, schweigen im Angesicht gewaltiger Grundrechtseinschränkungen. Staatsanwälte sind
+bekanntlich "weisungsgebunden". In der Badewanne sind sie Kapitän, ansonsten aber laufen sie an einer
+sehr kurzen Leine. Die Befehle kommen aus dem Justizministerium. Denken Sie daran, wenn
+Deutschland den Polen oder Ungarn wieder einmal Vorwürfe macht. Die hiesige Exekutive gibt der
+Judikative vor, wer anzuklagen ist und wer nicht.
+Deutsche Richter sind schon deutlich unabhängiger. Sie sind laut Gesetz einzig dem Gesetz und nur dem
+Gesetz verpflichtet! Kein Minister schreibt ihnen vor, was sie zu tun oder zu lassen haben.
+Nur wenn es um ihre "Beförderung" geht, dann entscheiden plötzlich wieder die Politiker. Darum stecken
+in den wichtigsten Roben nicht unbedingt die fähigsten, sondern die folgsamsten Juristen der Republik.
+Und warum hören wir angesichts der vielen Rechtsbrüche derzeit keinen Ton von all den Richtern und
+Staatsanwälten?
+Genau.
+Mit einer "Demokratie" hat das alles offenkundig nichts mehr zu tun. Wir hatten uns bereits von ihr
+entfernt, da kam Corona und gab uns den Rest. Wie in einem Cartoon ist die Demokratie mit affenartiger
+Geschwindigkeit einfach verschwunden! Wo sie eben noch war, schwebt nur noch ein Umriss, ein
+Schemen, der lautlos verblasst und sich verflüchtigt.
+Anstelle der Demokratie haben wir jetzt eine "Regierung". Eine, die offenbar gegen die Verfassung
+verstößt. Wir haben dysfunktionale Medien, einen dysfunktionalen Rechtsstaat und Bürger ohne
+Bewegungs-, Berufs- und diverse andere Freiheiten. Und nichts deutet darauf hin, dass sich dieser
+Zustand so bald wieder ändert. Noch nie gab irgendein Politiker solch eine Machtfülle freiwillig wieder
+auf. Das widerspräche der Natur von Politik. Es liegt in ihrem Wesen, an jeder Form errungener Macht
+möglichst festzuhalten. Wer dieses Spiel anders spielt, wird umgehend von skrupelloseren Spielern
+ersetzt.
+Wie zum Teufel soll in diesem Land in neun Monaten gewählt werden? Am 26. September wäre eigentlich
+die nächste Bundestagswahl. Sie wird womöglich gar nicht stattfinden können. Mit der Begründung, dass
+eine demokratische Wahl unter "diesen Umständen" nicht möglich sei. In Thüringen wird bereits
+verschoben. Am 14. Januar stellte der Bundestag zudem fest, dass die Durchführung von
+Versammlungen für die Wahl der Wahlbewerber und der Vertreter für die Vertreterversammlungen zur
+Bundestagswahl 2021 zumindest teilweise unmöglich ist.
+Wissen Sie, was das bedeutet? Angela Merkel könnte ohne Wahl Kanzlerin bleiben. Der Wissenschaftliche
+Dienst des Bundestages hat diese Möglichkeit bereits am 31. Juli 2020 bestätigt. Beachten Sie das
+Datum. Der Auftrag dazu dürfte entsprechend früher erfolgt sein.
+Trotz Beteuerung: Wirklich glaubhafte Anstalten abzutreten, macht sie nicht. Und sehen Sie das Datum?
+Zufälle gibt es...
+Tatsächlich deutet nur wenig darauf hin, dass Merkel das Kanzleramt demnächst tatsächlich verlassen
+wird. Mit jedem Tag "Lockdown" wird eine Bundestagswahl im September unwahrscheinlicher. Glauben
+Sie denn ernsthaft, Annegret Kramp-Karrenbauer war je als Kronprinzessin ausersehen?
+Annegret mag für den Augenblick glücklich gewesen sein. Doch wir reden immer noch von "Merkel". Das
+politische Leben der Kanzlerin war ein einziger Hinterhalt mit Finte und doppeltem Boden. Einen blassen
+Bauern wie AKK schiebt sie völlig ungerührt über das Brett. Der wird natürlich nicht durchmarschieren,
+sondern irgendwann geschlagen und mit Trostpreis ausrangiert.
+
+
+-----
+
+##### J
+
+Dank Corona könnte uns Merkel jetzt noch sehr lange erhalten bleiben. Dieses mal ganz ohne lästige
+Legitimation, quasi als Regentschaft. Sie hat einmal gesagt, Deutschland habe "keinen Rechtsanspruch
+auf Demokratie und soziale Marktwirtschaft für alle Ewigkeit". Darum wolle sie für diese Werte einstehen
+und kämpfen.
+Heute bekommen ihre Worte eine ganz andere Bedeutung. Unter ihr wurden den Bürgern die
+Grundrechte entzogen. Unter ihr wird die Wirtschaft bei vollem Bewusstsein krachend an die Wand
+gefahren!
+Jetzt fehlt nur noch der letzte Schritt. Vielleicht ist die Verschiebung der Bundestagswahl ja genau das
+Richtige. Wenn man den Menschen erklärt: "Nein, wählen dürft ihr auch nicht mehr!" Dann werden sie
+wohl endlich begreifen, was derzeit mit der Demokratie geschieht.
+RT DE bemüht sich um ein breites Meinungsspektrum. Gastbeiträge und Meinungsartikel müssen nicht
+die Sichtweise der Redaktion widerspiegeln.
+Quelle: https://de.rt.com/meinung/111773-ende-demokratie-mit-ewigen-kanzlerin/
+
+Gesendet: Freitag, 22. Januar 2021 um 15:06 Uhr
+Von: "NaturwissenschaftlerInnen-Initiative" info@natwiss.de
+Betreff: NaturwissenschaftlerInnen-Initiative | Der Atomwaffenverbotsvertrag tritt in Kraft
+
+#### NaturwissenschaftlerInnen-Initiative
+
+**Der Atomwaffenverbotsvertrag tritt in Kraft – ein Meilenstein hin zu einer atomwaffenfreien Welt**
+**Der 22. Januar 2021 ist ein Grund zu feiern! Der Atomwaffenverbotsvertrag (AVV) tritt in Kraft,**
+**eingeleitet durch zivilgesellschaftlichen Druck, mit einer Resolution der UN-Generalversammlung,**
+**angenommen von 122 Staaten, unterzeichnet von 86 und ratifiziert von 51 Staaten.**
+Der AVV verbietet den Vertragsstaaten Entwicklung, Test, Produktion, Erwerb, Lagerung, Transfer, direkte
+oder indirekte Kontrolle, Stationierung und Einsatz und Androhung eines Einsatzes von Atomwaffen,
+sowie die Unterstützung der Verbotenen Aktivitäten. Der AVV wurde unter maßgeblicher Beteiligung der
+Zivilgesellschaft bei den Vereinten Nationen in New York verhandelt und am 7. Juli 2017 von 122 Staaten
+angenommen. Er stellt eine konsequente Weiterentwicklung von Artikel VI des Atomwaffensperrvertrags
+dar, „in redlicher Absicht Verhandlungen zu führen über wirksame Maßnahmen zur Beendigung des
+nuklearen Wettrüstens in naher Zukunft und zur nuklearen Abrüstung sowie über einen Vertrag zur
+allgemeinen und vollständigen Abrüstung unter strenger und wirksamer internationaler Kontrolle.“
+Durch das fortgesetzte nukleare Wettrüsten geraten Naturwissenschaftlerinnen und Naturwissenschaftler
+in aller Welt durch ihre tägliche Arbeit in Konflikt mit den Zielen der nuklearen Abrüstung. Ohne ihre
+Entwicklung und Erforschung von Technologien wäre nukleare Aufrüstung unmöglich. Der AVV ist auch
+ein Aufruf an uns alle, in Wissenschaft und Gesellschaft, unsere Verantwortung wahrzunehmen für die
+Folgen unserer Forschung. Der AVV ist Ausdruck der internationalen Solidarität mit jeder Bestrebung die
+Wissenschaft in den Dienst des Friedens zu stellen.
+Mit weiterer Aufrüstung wird der Einsatz von Atomwaffen wahrscheinlicher. Die USA und NATO behalten
+sich den nuklearen Ersteinsatz vor und verfolgen eine Politik der nuklearen Abschreckung. Atomwaffen
+spielen in militärischen Planungen (wieder) eine größere Rolle: ein regionaler Atomkrieg soll führbar und
+gewinnbar sein. Sicherheitspolitik sieht anders aus. Sie müsste sich an den Bedürfnissen der Menschen
+orientieren, Dialog, Kooperation und Annäherung anstreben. Der Atomwaffenverbotsvertrag macht die
+Welt sicherer vor der atomaren Zerstörung unseres Planeten und ist ein wichtiger Schritt hin zu einer
+atomwaffenfreien Welt.
+Der Atomwaffenverbotsvertrag dient auch dem Umweltschutz, denn der Einsatz von Atomwaffen bedeutet
+unermessliche Zerstörung menschlichen Lebens und der ökologischen Lebensgrundlagen auf der Erde.
+Verheerende Klimafolgen sind in Studien zu einem auch nur begrenzten Atomkrieg belegt. Der
+ökologische Stiefelabdruck des Militärs, insbesondere der von Atomwaffen, ist extrem hoch und belastet
+heutige und zukünftige Generationen durch Freisetzung von Radioaktivität und Schadstoffen.
+Beispielsweise verbraucht ein Kampflieger – das Trägersystem der in Deutschland stationierten
+Atomwaffen – 3500 kg Treibstoff pro Flugstunde. Das entspricht 11,2 Tonnen CO-2-Äquivalente –
+genauso viel wie ein Bundesbürger durchschnittlich pro Jahr an CO-2-Äquivalenten verbraucht. Eine
+nachhaltige Politik muss eine Welt ohne Atomwaffen anstreben.
+
+Aber: Staaten die Atomwaffen besitzen oder in der NATO daran teilhaben – darunter auch Deutschland –
+sowie Partnerstaaten befinden sich nicht unter den Vertragsstaaten des AVV, sperren sich, diskreditieren
+diesen und rüsten atomar auf. So werden die nuklearen „Fähigkeiten“ aller Atomwaffenstaaten über die
+so genannte Modernisierung weiterentwickelt, wird die Behauptung vertreten, der AVV würde den
+
+
+-----
+
+##### J
+
+Atomwaffenverbotsvertrag sowie das internationale nukleare Abrüstungsregime gefährden. Die
+Atommächte üben Druck auf Drittstaaten aus, dem AVV nicht beizutreten.
+**Wir fordern die Bundesregierung auf:**
+**Setzen Sie sich für die Sicherheit der Menschen dieses Planeten ein!**
+**Beachten Sie die ökologischen Grenzen unseres Planeten!**
+**Unterzeichnen und ratifizieren Sie den Atomwaffenverbotsvertrag!**
+
+NaturwissenschaftlerInnen-Initiative für Frieden und Zukunftsfähigkeit
+Marienstr. 19/20 · 10117 Berlin –– www.natwiss.de
+
+### Freihandels- statt Integrationsabkommen!
+
+EU-No-Newsletter,News | 15. Januar 2021
+
+Für viele Briten war Weihnachten 2020 eine besondere Bescherung. Johnson vermochte sich
+durchzusetzen und einen Freihandelsvertrag mit der EU zu erringen – frei vom EU-Gerichtshof, frei von
+Personenfreizügigkeit und dennoch frei von Zolltarifen. Dies soll auch der Schweiz eine Lehre sein, das
+Projekt Rahmenabkommen und somit die institutionelle Integration abzubrechen und auf freiheitlichem
+Kurs zu bleiben.
+**Es gilt Johnson zu gratulieren**
+An Heiligabend 2020 war es so weit: Weihnachten bescherte den Briten den Brexit. Der Deal war eine
+lange Zangengeburt mit einem schlussendlich handfesten Vertrag hervorbringend. Der Vater des
+Vertrages hört auf den Namen Boris Johnson. Nachdem Theresa May lange Zeit erfolglos war, nahm
+Boris Johnson das Heft in die Hand. Sein Trumpf dabei war gerade seine Hartnäckigkeit: lieber keinen
+Vertrag als einen schlechten. In 65 Streitpunkten des unterzeichneten Freihandelsabkommens hat
+Grossbritannien 28 (43%) gewonnen und ist die EU stark entgegengekommen. In 11 (17%) Sachfragen
+war es umgekehrt und bei den restlichen 26 (40%) kam es zu klassischen Kompromisslösungen. So
+sehen in Grossbritannien viele ihre Souveränität als wiedererhalten und spricht Johnson von einer
+‘Rückeroberung der Freiheit’. Sie erhoffen sich, wieder zunehmend eine globale und vor allem souveräne
+Handelsmacht zu werden und führend in der Wissenschaft und Forschung. Durch die Loslösung von
+Brüssel hat Grossbritannien nun viel mehr Freiheiten, mit anderen Staaten und Weltmächten wie Japan,
+China, Indien oder den USA zu kooperieren.
+**Der Brexit als Errungenschaft Grossbritanniens**
+
+Mehr Souveränität zu erlangen war für Johnson eine zentrale Bedingung. Damit Verträge mit der EU bei
+ihm überhaupt eine Chance haben, sollte Grossbritannien nicht unter dem Einfluss fremder Richter
+stehen. Für die EU hingegen ist es jeweils zentral, dass der EuGH bei der Auslegung von EU-Recht das
+
+
+-----
+
+##### J
+
+Sagen hat. Die Lösung im Brexit-Vertrag ist zum einen ein neutrales Schiedsgericht und zum anderen
+bezieht sich das aktuelle Abkommen schlichtweg kaum auf EU-Recht.
+Grossbritannien ist nicht mehr gleichsam im EU-Binnenmarkt integriert, doch haben die beiden Parteien
+im Freihandelsabkommen vereinbart, dass keine Zölle den wirtschaftlichen Austausch erschweren. Für
+die Briten ebenfalls sehr wichtig war der Wegfall der Personenfreizügigkeit. Man will wieder selbst
+darüber verfügen, wer über die Grenzen ein- und ausgeht. Diejenigen EU-Bürger, die aktuell in
+Grossbritannien sesshaft sind, sind davon nicht betroffen. Der freie Personenverkehr hingegen wird
+erschwert. Hierzu argumentieren skeptische Brexit-Beobachter, dass damit auch die automatische
+Anerkennung von Berufsabschlüssen dahin ist. Diesbezüglich darf allerdings erwähnt werden, dass
+Grossbritannien – wie auch die Schweiz – einen angesehenen Ausbildungsstandort darstellt und im
+Niedriglohnsegment kaum Arbeit im Ausland gesucht wird. Notabene ist die Prüfung der Qualifikation von
+Angestellten aus dem Ausland oftmals nicht verkehrt.
+Eine weitere, oft zu vernehmende Kritik an diesem Brexit-Abkommen ist die Position der
+Finanzdienstleister. Die EU entscheidet nämlich über die Äquivalenz der Sektoren und lässt die britische
+Börse in einer gewissen Abhängigkeit zurück. Jedoch gilt es auch hier Mut zu machen, weil die EU der
+Schweiz die Börsenäquivalenz als Massnahme wegen den zähen Entwicklungen zum Rahmenabkommen
+bereits entzogen hat, sich dies allerdings für die Schweiz sogar als Vorteil erwiesen hat.
+**Vorbild für Debatte um Rahmenabkommen?**
+Für uns ist natürlich interessant, was wir in Bezug auf das Rahmenabkommen aus dem Brexit lernen
+können. Johnson hat uns gezeigt, wie man erfolgreich mit der EU verhandeln kann. Wir müssen
+anerkennen, dass den Vertretern der Schweiz dies nicht gelungen ist. So wie Johnson nach den
+Fehlversuchen Mays die Verhandlungen neu lanciert hat, sollte auch die Schweiz grundsätzlich neu und
+selbstbewusster die Beziehungen mit der EU gestalten und vom Kurs der vergangenen Jahre abkommen.
+Mit dem vorliegenden Rahmenabkommen müsste die Schweiz direkt EU-Recht übernehmen und dieses
+dürfte ausschliesslich vom EuGH ausgelegt werden. Kritisch am Vertrag ist vor allem, dass der EuGH nicht
+einfach nur über das EU-Recht bestimmt, sondern auch in den ‘bilateralen’ Abkommen das letzte Wort
+und Entscheidungsbefugnis geniesst. Der Wirtschafsanwalt Joë Lemmer aus Luxemburg spricht von
+einem Trojanischen Pferd, in dessen Bauch der EuGH sitzt.
+Die Konsultation hat in der Schweiz gezeigt, wie Baudenbacher, Präsident des EFTA-Gerichtshofes und
+unabhängiger Konsulent und Schiedsrichter, schreibt, «dass die Betrauung des Gerichts der Gegenseite
+mit der Streitentscheidung in breiten Kreisen nicht goutiert wird.» Statt uns also institutionell in die EU zu
+integrieren, verdeutlicht der Brexit, dass viel mehr ein Freihandelsabkommen anzustreben ist, wobei kein
+Recht und keine Richter der EU akzeptiert werden müssten, der Marktzugang und Wirtschaftsaustausch
+allerdings weiterhin gewährleistet bleibt.
+Entsprechend gilt es auch, und noch viel überzeugter, in diesem Jahr das Rahmenabkommen und eine
+politisch-institutionelle Integration in die EU zu bekämpfen und stattdessen auf freiheitlichem Kurs zu
+bleiben!
+Quelle: https://eu-no.ch/freihandels-statt-integrationsabkommen/
+
+#### Verbreitung des richtigen Friedenssymbols 
+
+Das falsche Friedenssymbol – die heute weltweit verbreitete sogenannte <Todesrune>, die
+
+**Es soll FRIEDEN sein auf Erden** aus den keltischen Futhark-Runen resp. der umgedrehten Algiz-Rune fabriziert wurde – ist
+
+**And there shall be PEACE on Earth** der eigentliche Inbegriff negativer Einflüsse und schafft zerstörerische Schwingungen
+
+hinsichtlich Unfrieden, Fehden und Hass, Rache, Laster, Süchte und Hörigkeit, denn die
+
+**AMANI** **ΕΙΡΗΝΗ** <Todesrune> bedeutet für viele Menschen Reminiszenzen an die NAZI-Zeit, an Tod und
+
+**BARIŞ** **VREDE** Verderben, wie aber auch Ambitionen in bezug auf Kriege, Terror, Zerstörungen vieler
+
+**PAQE** **��** menschlicher Errungenschaften und aller notwendigen Lebensgrundlagen jeder Art, und
+
+**PACE** **שרום** damit weltweit Unfrieden, weil für die Menschen jedes Todeszeichen Angst und Unheil
+
+**МИР** शांित symbolisiert.
+**PAIX** **ﺳﻼﻡ** Es ist wirklich dringlichst notwendig, dass die <Todesrune> als falsches Friedenssymbol,
+
+**PAZ** **ﺼﱀ** das Unfrieden und Unruhe schafft, völlig aus der Erdenwelt verschwindet und dadurch das
+
+uralte sowie richtige Peacesymbol resp. Friedenssymbol auf der ganzen Erde verbreitet
+
+**FIGU.ORG** und weltbekannt gemacht wird, dessen zentrale Elemente Frieden, Freiheit, Harmonie,
+
+**FIGU, Semjase-Silver-Star-Center, 8495 SchmidrütiSchweiz/Switzerland  Tel. + 41 (0)52 385 13 10** Stärkung der Lebenskraft, Schutz, Wachstum und Weisheit reflektieren, aufbauend wirken
+
+und sehr besänftigend und friedlich-positiven Schwingungen zum Durchbruch verhelfen,
+
+die effectiv Frieden, Freiheit und Harmonie vermitteln können! Wir wenden uns deshalb an alle vernünftigen Menschen der Erde, an
+alle FIGU-Interessengruppen, FIGU-Studiengruppen und FIGU-Landesgruppen und damit an alle vernünftigen und ehrlich nach
+Frieden, Freiheit, Harmonie, Gerechtigkeit, Wissen und Evolution strebenden Menschen, ihr Bestes zu tun und zu geben, um das
+richtige Friedenssymbol weltweit zu verbreiten und Aufklärung zu schaffen über die gefährliche und destruktive Verwendung der
+<Todesrune>, die in Erinnerung an die NAZI-Verbrechen kollektiv im Sinnen und Trachten der Menschen Charakterverlotterung,
+Ausartung und Unheil fördert, wie das leider auch nach dem Ende des letzten Weltkrieges 1939–1945 extrem bis in die heutige Zeit
+hineingetragen wird.
+
+
+-----
+
+##### J
+
+#### Spreading of the Correct Peace Symbol
+
+The wrong peace symbol – the globally widespread “death rune” which has been fabricated from the Celtic Futhark runes or
+inverted Algiz rune – is the actual embodiment/quintessence of negative influences and evokes destructive swinging-waves
+regarding unpeace and hatred, revenge, vice, addictions and bondage, because for many human beings the “death rune” means
+reminiscence (memories) of the Nazi era, of death and ruin as well as ambitions concerning war, terror, destruction of human
+achievements, livelihoods as well as global evil unpeace.
+Therefore it is of the utmost necessity that the wrong peace symbol, the “death rune”, disappears from the world and that the urancient and correct peace symbol is spread and made known all-over the world, because its central elements reflect peace,
+freedom, harmony, strengthening of the life power, protection, growth and wisdom, have a constructive and strongly soothing effect,
+and help peaceful-positive swinging-waves to break through.
+Therefore we appeal to all FIGU members, all FIGU-Interessengruppen, Studien- and Landesgruppen as well to all reasonable
+human beings, who are honestly striving for peace, freedom, harmony, fairness, knowledge and evolution, to do, and give, their best
+to spread the correct peace symbol worldwide and to bring forth clarification about the dangerous and destructive use of the “death
+rune”, which in memory of the Nazi crimes collectively furthers deterioration and neglect of character-"ausartung" and terribleness
+in the reflecting and striving of the human being, as this is still being extremely carried on after the end of the last world war 1939–
+1945 until the current time.
+
+### Verbreitet auch das <Kampf der Überbevölkerung>-Symbol
+
+**Nutzt euer Auto und klebt das <Kampf der Überbevölkerungs>-Symbol und das Friedens-Symbol darauf,**
+
+**und verbreitet es auf diese Weise. Klebt es, wo es erlaubt ist, auch sonst überall an Wände, Plakate usw.!**
+
+**Autokleber** **Bestellen gegen Vorauszahlung:** **E-Mail, WEB, Tel.:**
+
+**Grössen der Kleber:** **FIGU** info@figu.org
+
+120x120 mm = CHF 3.– Hinterschmidrüti 1225 www.figu.org
+
+250x250 mm = CHF 6.– 8495 Schmidrüti Tel. 052 385 13 10
+
+300X300 mm = CHF 12.– Schweiz Fax 052 385 42 89
+
+**IMPRESSUM** **///    Für CHF/EURO 10.– in einem Couvert, senden**
+
+**FIGU-BULLETIN und FIGU Sonder-BULLETIN                        ///    wir Ihnen/Dir 3 Stück der farbigen Kleber**
+**Druck und Verlag: FIGU** Wassermannzeit-Verlag, **///** **der Grösse** **120x120 mm = am Auto aufkleben**
+
+Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+**FIGU-BULLETIN erscheint periodisch; FIGU-Sonder-BULLETIN erscheint sporadisch;**
+Beide Bulletins werden auch im Internetz veröffentlicht, auf der FIGU-Webseite: www.figu.org/ch
+**Redaktion: BEAM** ‹Billy› Eduard Albert Meier /././ Telephon +41(0)52 38513 10 (7.00 h – 19.00 h) / Fax +41(0)52 385 42 89
+
+**Postcheck-Konto: PC 80-13703 3 / IBAN: CH06 0900 0000 8001** **3703-3,**
+FIGU Freie Interessengemeinschaft, 8495 Schmidrüti, Schweiz
+
+**FIGU-Shop: shop.figu.org**
+
+**© FIGU 2021**
+
+Einige Rechte vorbehalten.
+
+Dieses Werk ist, wo nicht anders Geisteslehre Friedenssymbol
+
+angegeben, lizenziert unter : **Frieden**
+www.figu.org/licenses/by-nc-nd/2.5/ch/ Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst
+
+dann werden, wenn jeder verständige und vernünftige Mensch
+endlich gewaltlos den ersten Tritt dazu macht, um dann
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung des** nachfolgend in Friedsamkeit jeden weiteren Schritt bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun.
+**Urhebers ausdrücklich erlaubt. / Erschienen im Wassermannzeit-Verlag:** SSSC, 10. September 2018, 16.43 h, Billy
+FIGU, ‹Freie Interessengemeinschaft Universell›, Semjase Silver Star Center,
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz/Switzerland
+
+
+-----
+

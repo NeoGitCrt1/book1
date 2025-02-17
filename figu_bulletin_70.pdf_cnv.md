@@ -1,0 +1,1085 @@
+# FIGU-BULLETIN
+
+##### Erscheinungsweise: Internet: http://www.figu.org 16. Jahrgang Sporadisch E-Mail:  info@figu.org Nr. 70, März 2010
+
+## Kriminalität, Verbrechen, Strafvollzug, Gewalt, Krieg und Erziehung usw. im Zusammenhang mit der auf der Erde grassierenden Überbevölkerung
+_Die auf der Erde grassierende Überbevölkerung zeichnet, nebst einem rasant voranschreitenden Klima-_
+_wandel und dem daraus resultierenden Schmelzen der Polkappen, auch für eine steigende Kriminalität_
+_und für einen zunehmend desolaten Zustand im Strafvollzug und in der Aufrechterhaltung der öffent -_
+_lichen Ordnung und Sicherheit verantwortlich. Zudem rufen die weltweit hundertfachen Konfliktherde_
+_und Kriegsgebiete unermessliches Elend, Leid, Hungersnöte und die Zerstörung der Infrastruktur und von_
+_Land hervor. Das Ganze zieht aber auch Arbeitslosigkeit und Nahrungsmangel und auch anhaltende_
+_Flüchtlingsströme in die westlichen Länder und Industriestaaten nach sich. Dadurch wachsen auch hier-_
+_zulande die Überbevölkerung und die Überfremdung weiterhin an und damit auch die Kriminalität,_
+_die Arbeitslosigkeit, der Rassenhass, die Umweltzerstörung und die Staatsverschuldung usw. usf. Diese_
+_Missstände begünstigen auch die Zu- und Überhandnahme des organisierten Verbrechens und die_
+_damit zusammenhängende Steigerung des Drogenpflanzenanbaues, die chemische Drogenherstellung,_
+_den Drogenhandel sowie den Menschenhandel, die Sklavenhaltung, Prostitution, Pornographie und Kin-_
+_derpornographie. In diese Geschäfte und Aktivitäten sind auch diverse korrupte Politiker, Staatsbeamte_
+_und Regierungsmitglieder verschiedener Staaten verwickelt._
+
+_Die stetig anwachsende Weltbevölkerung und die daraus resultierende Überbevölkerung bewirkt auch_
+_einen zunehmenden Materialismus beim Menschen, was dazu führt, dass er nur noch nach seinem_
+_finanziellen Vermögen und nach seinem Kleideräusseren beurteilt, bewertet und abgestempelt wird. Da-_
+_durch schwinden auch zunehmend alle guten und wertvollen zwischenmenschlichen Beziehungen, wobei_
+_diese nur noch in Form der Unverbindlichkeit und daher nur noch falsch profitausgerichtet und ober-_
+_flächlich eingegangen werden. In erschreckender Form steigen auch die Jugendkriminalität und die_
+_Gewaltbereitschaft und die damit einhergehende Gewaltausübung durch Kinder und Jugendliche. Da-_
+_bei spricht die menschenunwürdige, kaltschnäuzige Brutalität, die sich hinter gewalttätigen Übergriffen_
+_verbirgt, eine eigene klare Sprache. Bei solchen Gewaltakten treten die Täter in der Regel zu zweit oder_
+_in Gruppen in Erscheinung, um ihnen unterlegene Opfer aus oftmals unbestimmten und unterschiedlich-_
+_sten Motiven heraus niederzuschlagen und auszurauben, oder einfach um diese aus Spass zu quälen,_
+_zu Krüppeln zu schlagen oder gar zu töten. Delinquente Jugendliche und sonstige Kriminelle zeigen_
+_sich jedoch in bezug auf ihr begangenes Unrecht nicht selten extrem uneinsichtig, wobei sie sich als_
+_unschuldig betrachten und im Recht sehen, weshalb sie vielfach auch keine Bereitschaft zur Besserung_
+_und Wiedergutmachung der begangenen ausgearteten Handlung zeigen. Wie dunkel und leer es ge-_
+_danklich-gefühlsmässig und psychisch in solchen Menschen aussehen muss, lässt sich oft nicht einmal_
+_erahnen. Auf der Hand liegt jedoch, dass eine falsche Erziehung und die harte und menschenfeindliche_
+_Umwelt die jungen und älteren Menschen und damit auch ihr Verhalten und ihre Lebensweise prägen._
+
+
+-----
+
+_Dabei fungieren die Vorbildwirkung und die katastrophale Erziehung durch Eltern derart, dass die_
+_Jugendlichen bereits in ihrer Kindheit fehlgeleitet werden und die in der Jugendzeit beginnende und sich_
+_durch das ganze Leben ziehende Selbsterziehung als massgebender Prägungsfaktor für das Erwachsen-_
+_sein, nicht mehr als nur eine Farce ist. Diese Faktoren bestimmen den Werdegang und das Schicksal_
+_des Menschen, und zwar in der Weise, ob er sich als lebensfähig erweist oder nicht, und ob er sich_
+_im positiven Fall in jede Situation des Lebens, egal ob positiv oder negativ, einzufügen und diese zu_
+_meistern vermag, oder ob er beim Ganzen versagt. Ist ein Mensch bewusstseinsmässig einseitig oder_
+_falsch ausgerichtet, dann verliert er in schwierigen Situationen die Kontrolle, indem er ausflippt und sich_
+_aufgibt oder gar an seinen Schwierigkeiten zerbricht und sich das Leben nimmt. Deshalb ist es gerade_
+_heutzutage in einer zunehmend unsicheren Welt von äusserst wichtiger Bedeutung, sich dem wirklichen_
+_und wahrheitlichen Leben zu stellen und den Blick nach innen auf das innere Selbst und Bewusstsein_
+_zu richten, um durch harte Bemühung sich selbst zu finden und Selbsterkenntnis zu gewinnen. Dabei_
+_sind jedoch jegliche Formen von Euphoriemeditationen und selbstsuggestiven Euphoriepraktiken völlig_
+_fehl am Platz und zu vermeiden, denn es darf lediglich neutral-positives Gedanken- und Gefühlsgut zu-_
+_gelassen und zur Anwendung gebracht werden. Dabei hat der Mensch in sich mittels Konzentration und_
+_Meditation einen starken Willen aufzubauen, durch den er in Erkennung und Erfassung der natürlich-_
+_schöpferischen Ordnung und Wirklichkeit seine persönlichen Ziele zu erkennen, zu erfassen und zu_
+_erreichen vermag. Diesbezüglich sind auch delinquente Jugendliche sowie alle übrigen Straftäter in ei-_
+_nen sinnvollen Strafvollzug einzuordnen, der es erlaubt, jedem Delinquenten die Möglichkeit zur indi-_
+_viduellen Selbstentfaltung und Selbstverwirklichung einzuräumen. Dabei sollte das Erlernen und Befol-_
+_gen einer guten Lebenseinstellung und Lebensweise im Vordergrund stehen._
+
+_Durch die stetige weltweite Bevölkerungszunahme wachsen auch der Schaden und die Nachteile für_
+_den irdischen Planeten, dies im Verhältnis zum Bevölkerungszuwachs. Der damit zusammenhängende_
+_Anstieg der Kriminalität und der Inhaftierten stellt das Rechtswesen der irdischen Staaten vor immense_
+_und bereits heute schon unlösbare Probleme, wobei es auch zunehmend an geeigneten Massnahme-_
+_vollzugs-Einrichtungen und an Orten fehlt, wo Fehlbare in richtiger Art und Weise erzogen werden_
+_können. Die durch die Menschen hervorgebrachte Überbevölkerung mit all ihren Übeln und Schrecken_
+_ist also Hauptursache Nr. 1 für sämtliche vorherrschenden Probleme und Ausartungen. Gemäss dem_
+_schöpferisch-natürlichen Prinzip von Ursache und Wirkung bringt die Überbevölkerung immer unlös-_
+_barere Probleme mit sich, folglich ist diese primär weltweit zu stoppen und die Erdbevölkerung auf die_
+_für den Planeten verträgliche, naturgesetzmässige Anzahl von rund 530 Millionen Erdenbürgern zu re-_
+_duzieren und auf diese einzupendeln. Bereits eine Reduktion von einer Milliarde Menschen würde schon_
+_eine sichtbare Entlastung für unseren Planeten sowie für alle Probleme der Menschheit bringen._
+_Die FIGU plädiert schon seit Jahren in Artikeln und Kleinschriften öffentlich für ursächliche Massnahmen_
+_und warnt vor den Folgen der Überbevölkerung und allen aus ihr hervorgehenden Übeln, wie z.B. Kriege,_
+_Konflikte aller Art, Selbstentfremdung, Fremden- und Rassenhass, Klima- und Umweltzerstörung, Porno-_
+_graphie, Drogenabusus (Drogenmissbrauch), Falschhumanismus, Lebensunfähigkeit usw. usf., wobei_
+_schon vor Jahren und Jahrzehnten durch Billy-BEAM entsprechende Informationen an Regierungen und_
+_öffentliche Institutionen verschickt wurden. In Anbetracht der Schwere des Problems war die Resonanz_
+_(Dankesschreiben) jedoch fast bei Null. Seit 1997 gelangt die FIGU mit ihren wertvollen und in vieler-_
+_lei Hinsicht für unseren Planeten überlebenswichtigen Informationen via Internet an die Öffentlichkeit_
+_und macht diese den Menschen allgemein auf der eigenen Website (www.figu.org.) zugänglich._
+_Pius Meinrad Keller, Schweiz_
+
+
+-----
+
+## Die Kraft der Gedanken, Gefühle und der Psyche
+##### oder … von wilden Mustangs und dem zarten Flügelschlag des Schmetterlings getrieben
+_Die Psyche ist dem Menschen ein mächtiges und gewaltiges Kraftwerk. Als gewichtiger und bedeuten-_
+_der Wert seiner Persönlichkeit und seines Bewusstseins vermag sie ihm in den Bereichen seiner Emotio-_
+_nen und des Gefühlslebens ein fürchterliches Höllenreich der Schwermut oder den himmlischen Frieden_
+_und Harmonie auf Erden zu bereiten. Die Psyche ist endlos formbar und wandlungsfähig. Sie ist dem_
+_Menschen ein äusserst starkes Bollwerk, dennoch sehr zerbrechlich und überaus verletzlich. Die Sprache_
+_und Ausdrucksweise ihrer Wesenheit ist die gefühlsmässige Manifestation der menschlichen Gedanken._
+_Mit diesen hat der Mensch die Möglichkeit, in Sekundenschnelle seine Emotionen und Gefühle bewusst_
+_zu kreieren, zu erschaffen, zu gestalten und in der entsprechenden Art und Weise mit seiner Psyche wahr-_
+_zunehmen, zu erfahren und zu erleben. Die Psyche ist ihm ein wertvolles und halbmaterielles, körper-_
+_liches Instrument, durch dessen wahrliche Beherrschung und Nutzung ihm seine gedankliche Welt und_
+_seine Phantasien erfahrbar und zu einem erfühlbaren Erleben werden. Mit jedem einzelnen Gedanken_
+_und jeder Idee wird ein ganz bestimmtes Gefühl erzeugt, wodurch die Psyche geformt wird und woraus_
+_unter Umständen auch Emotionen entstehen. Daher ist jegliche gefühlsmässige Verfassung und psychi-_
+_sche Befindlichkeit, Regung und Stimmung des gesunden und kognitiv unbeeinträchtigten Menschen in jeder_
+_einzelnen Sekunde seiner Existenz das ureigene und selbst verursachte Produkt der eigenen gedank -_
+_lichen und bewusstseinsmässigen Prozesse. Im Innern, durch seine gedanklich erzeugten Gefühle wie_
+_auch im Äussern seiner Körperlichkeit, wird der Mensch zu demjenigen, wohin er sich gedanklich steuert,_
+_kreiert, gestaltet und lenkt. Somit bewirkt und verursacht er selbst in jeder Situation seines unmittelbar_
+_bestimmten Lebens die gegenwärtigen Stimmungen, Launen, seine Verfassung und das allgemeine_
+_psychische Wohlbefinden. In der bewussten Gestaltung der psychischen Verfassung durch die persön-_
+_lichen Gedanken werden die schöpferischen Prinzipien der Selbstverantwortung, der Eigenverantwor-_
+_tung und der Selbstbestimmung in ihrer unmittelbaren Auswirkung klar verdeutlicht._
+_In jeder einzelnen Sekunde seines Alltags wird der Mensch mit zahlreichen Situationen, Sachlagen_
+_und Belangen konfrontiert, die von ihm einen bewussten oder unbewussten Denk- oder Verarbeitungs-_
+_prozess erfordern. Im Laufe des Tages wird der Mensch jedoch auch von zahlreichen Gefühlen und_
+_Stimmungen sowie Anwandlungen befallen, dabei sind ihm die gedanklichen Ursprünge und Ursachen_
+_nicht unmittelbar bewusst. Dieser Umstand eines Kontrollverlustes führt im Menschen zu verschiedensten_
+_unkontrollierten und spontanen Gefühlen und zu psychischen und bewusstseinsmässigen Befindlich-_
+_keiten. Dadurch ist der wankelmütige, sich nicht kontrollierende, schicksalsgläubige, unwissende und_
+_unstandhafte Mensch vielfach seinen eigenen Launen, Unzufriedenheiten und Stimmungen scheinbar hilf-_
+_los ausgeliefert. Dies, ohne auch nur zu ahnen oder geschweige denn zu wissen, dass er diese Gefühle_
+_und Emotionen vollumfänglich selbst zu steuern oder zu beeinflussen vermag. Die Tatsache der be-_
+_wussten gedanklichen Gefühlsbildung ist von jedem aufmerksamen und bewussten Menschen sehr ein-_
+_fach zu erkennen und nachvollziehbar, denn sie kann durch einfache Übungen und Beobachtungen_
+_bewiesen und erfahren werden. Denkt der Mensch an eine wunderbare und schöne Situation oder_
+_kreiert er ganz bewusst freudige Gedanken und Wunschträume, dann wird er umgehend von einem_
+_wunderbaren Gefühl der Freude und des Wohlbefindens durchflutet. Dadurch erfährt er eine Gelassen-_
+_heit und Ausgeglichenheit, die sich in einer gewissen Ruhe und Zufriedenheit äussern. Verliert er je-_
+_doch bewusst oder unbewusst die Kontrolle über seine Gedankenprozesse und lässt dabei ängstliche,_
+_schwermütige, pessimistische, lebensverneinende oder unheilverkündende Gedanken zu, dann breiten_
+_sich in logischer Folge unmittelbar Angst, Furcht oder gar höllische Panik in seinem Bewusstsein aus_
+_und ergreifen von ihm Besitz. Die menschliche Psyche reagiert umgehend und blitzschnell, daher wird_
+_der unkontrollierte, unachtsame und unaufmerksame Mensch in seinen Gefühlen einerseits wie von wilden_
+_Mustangs getrieben und gleichsam vom zarten Flügelschlag des Schmetterlings berührt – er ist himmel-_
+_hoch jauchzend und zu Tode betrübt._
+_Die menschliche Fähigkeit, die gedanklich-gefühls-, bewusstseinsmässige und psychische Verfassung_
+_und das persönliche Befinden massgebend zu beeinflussen, zu kontrollieren und zu steuern, ist ein_
+
+
+-----
+
+_höchst evolutives Gut. Dieses ist die wahrheitsgemässe Basis einer bewussten und gesamtheitlichen_
+_Evolution und somit ein wichtiger und tragender Teilbereich des Grundgerüstes zur Erfüllung seiner_
+_eigentlichen schöpferischen Bestimmung._
+_Das menschliche Gesicht, dessen Mienenspiel sowie ein leuchtend klarer oder glanzloser, leerer Aus-_
+_druck der Augen sind ein deutlicher Spiegel der psychischen Verfassung. Durch die bewusste gedank-_
+_liche Formung, Gestaltung und Nutzung der Psyche und ihrer Potenzen werden in Wechselseitigkeit_
+_auch das Bewusstsein sowie die mentalen und intellektuellen Fähigkeiten des Menschen weitergebildet._
+_Durch die stetige Entfaltung dieser Werte werden wiederum in Wechselwirkung die gedanklichen_
+_Prozesse verfeinert und entwickelt. Eine neutral-positive Grund- und Lebenshaltung mit ihren dement-_
+_sprechend gesunden und förderlichen Gedanken, begünstigen die innere Ruhe und eine wachsende_
+_Gelassenheit. Diese zeigen sich auch in der körperlich-gesundheitlichen Verfassung des Menschen,_
+_wobei die sogenannte Psycho- und Bewusstseinssomatik eine grosse Rolle spielen. Die Denkweise des_
+_Menschen, bzw. die Art und Weise seiner neutral-positiven, lebensbejahenden oder negativ lebens-_
+_verneinenden Gedanken oder negierenden Lebensgrundhaltung, stehen wiederum in unmittelbarer Ver-_
+_bindung und Wechselwirkung mit den halb- und grobstofflichen Bereichen und Funktionsweisen des_
+_fleischlichen Körpers. Aus diesem Grund vermag die menschliche Psyche durch innere und selbst ver-_
+_ursachte oder durch äussere Einflüsse, wie z.B. genetische Veranlagung, zahlreiche Gifte, Medikamente,_
+_Drogen oder Alkoholika usw. oder sie anderweitig beeinträchtigende Einwirkungen wie Umweltein-_
+_flüsse aller Art, zu erkranken oder Schaden zu nehmen. Nebst den genetisch bedingten Einflüssen psy-_
+_chischer Störungen und Krankheiten wie Depressionen, Phobien, Schizophrenie, Zwangsneurosen usw._
+_sind in unserer gegenwärtigen Neuzeit auch zahlreiche ‹erworbene› oder ‹anerzogene› psychische,_
+_gefühls- und bewusstseinsmässige Beeinträchtigungen und Verhaltensstörungen zu finden. Eine grobe_
+_und selbstverschuldete Vernachlässigung, Lässigkeit sowie eine permanente Nachlässigkeit in bezug_
+_auf die eigenen psychischen und bewusstseinsmässigen Potenzen und Möglichkeiten führen im Lauf_
+_der Zeit unweigerlich zu einer psychischen, mentalen, kognitiven, intellektuellen, gedanklichen, gefühls-_
+_und bewusstseinsmässigen Verkümmerung und Verwahrlosung._
+_Jegliches florische, faunaische, menschliche und gesamtuniverselle Wachstum benötigt eine angemes-_
+_sene Pflege. Hierin bilden die psychischen, mentalen, kognitiven, gefühls- und bewusstseinsmässigen_
+_Belange des Menschen keine Ausnahme. Werden diese menschlich-evolutiven Vorzüglichkeiten nicht in_
+_angemessenem Rahmen gepflegt und nicht genutzt, dann verfallen sie unweigerlich einer Stagnation und_
+_letztendlich der Verkümmerung. Daher sind die Unwerte wie Gleichgültigkeit, Oberflächlichkeit, Flatter-_
+_haftigkeit und ein grundsätzliches Desinteresse an den Belangen und Zusammenhängen des wahrlichen_
+_Lebens oder auch die bewusste Ablehnung einer verantwortungsvollen Lebensführung für die psychische,_
+_gedankliche, gefühls- und bewusstseinsmässige Entwicklung des Menschen sehr gefährlich. Der Verfall_
+_psychischer und bewusstseinsmässiger Fähigkeiten, Möglichkeiten und Auffassungskräfte zieht für den_
+_betroffenen Menschen unweigerlich auch einen gewissen sozialen Abstieg nach sich, wie auch den_
+_körperlich-gesundheitlichen Zerfall, wirtschaftliche Einschränkungen sowie zwischenmenschliche Ver-_
+_luste aller Art. Ein selbsterworbener und durch eigene Nachlässigkeit verschuldeter mentaler, psychi-_
+_scher, intellektueller, gedanklich-gefühls- und bewusstseinsmässiger Abstieg und Fähigkeitsverlust führt_
+_den Menschen letztlich in seinen eigenen Ruin. Im schlimmsten Fall vermag ein psychischer Zerfall in_
+_einer gesundheitlichen Pflegebedürftigkeit des betreffenden Menschen zu enden – oder in einer pro-_
+_fessionell-institutionell begleiteten Lebensführung. Zahlreiche schicksalhafte Beispiele in psychiatrischen_
+_Kliniken zeugen von dieser tragischen Tatsache. Vielfach handelt es sich hierbei um Menschen, die zeit-_
+_lebens nicht gelernt haben, mit ihren psychischen Möglichkeiten und Fähigkeit umzugehen, diese zu_
+_nutzen, weil sie ihrer grundsätzlichen Selbstbestimmung, Eigenverantwortung und ihren Selbstpflichten_
+_niemals belehrt wurden. Diese grundlegende Befähigung zur Beherrschung und Nutzung der eigenen_
+_Psyche, des Bewusstseins und des Gedanken- und Gefühlslebens ist keine lebenspraktische Neben -_
+_sächlichkeit, sondern eine wesentliche Voraussetzung für ein gutes, erfolgreiches, fruchtbares und lern-_
+_reiches Leben. Die bewusste Wahrnehmung, Erkennung und Pflege der Selbstverantwortung, Eigenver-_
+_antwortung und die Erfüllung der Selbstpflichten sowie die daraus resultierende gesunde Lebensführung_
+
+
+-----
+
+_sind dem Menschen dieser Erde nicht einfach in den Schoss gelegt. Vielmehr sind diese Fähigkeiten_
+_das Ergebnis einer lehrreichen Fremd- und Selbsterziehung und Fremd- sowie Eigenbelehrung und des_
+_eigenen und aufmerksamen lebenszeitigen Lernprozesses, wobei die wichtige Selbsterziehung bereits_
+_in der Kindheit beginnt._
+_Zahlreiche Religionen, Heilslehren, politische Ideologien, kultreligiöse, esoterische und sektiererische_
+_sowie philosophische Organisationen, Vereinigungen und Gemeinschaften buhlen um die Gunst einer_
+_blindgläubigen Anhängerschaft. Mit widersprüchlichen und unlogischen, wirren Lehren werden psychisch_
+_labile und orientierungslose Menschen in die Irre geführt, wobei vor allem leichtgläubige, kritiklose,_
+_bewusstseins- und psychisch verwirrte Menschen sehr oft den Hirngespinsten der kultreligiösen Götter-_
+_Gläubigkeit verfallen und sehr oft im sogenannten kultreligiösen Wahnsinn enden. Dies vor allem darum,_
+_weil die betroffenen Menschen bereits in ihrer Kindheit und Jugend vielfach mit den kultreligiösen oder_
+_esoterischen Unsinnslehren malträtiert und psychisch terrorisiert wurden, wodurch sie niemals auch nur_
+_den Bruchteil des wirklichen Wertes einer grundlegenden Selbstbestimmung und Selbstverantwortung_
+_erfahren haben. In Irrlehren, psychischen Glaubensterror, in Dogmen, Glaubenszwänge, Wahnge-_
+_danken und kultreligiöse Unterdrückung gezwängt und geblendet, war und ist es der Gedanken- und_
+_Gefühlswelt zahlreicher kultreligiös vergewaltigter Kinder, Jugendlicher und Erwachsener niemals mög-_
+_lich, irgendwelche Gedanken und Gefühle der Freiheit und der wahrlichen Evolutionsfreude zu entfal -_
+_ten. Dies darum, weil das halbmaterielle, sehr formbare und nach evolutiv wertvoller Nahrung hungernde_
+_Wesen der jeweiligen Menschen zeitlebens niemals mit lebensbejahenden und schöpfungsorientierten_
+_Werten genährt wurde. Von wahngläubigen Vorstellungen getrieben, vom kultreligiös-genetischen Daten-_
+_müll überschwemmt und von angsteinflössenden Predigten verseucht und verängstigt, fürchten sich zahl-_
+_reiche Menschen vor jeglicher Kritik an den erlernten kultreligiösen Dogmen und falschen Lehrmeinungen._
+_Jegliche Ablehnung, Zweifel oder jegliches Misstrauen gegenüber denselben sowie aufkommende Un-_
+_gläubigkeit wird von den falschbelehrten und an die Kultreligiosität gewohnten Gedanken, Gefühlen_
+_und der Psyche mit höllischen Panikattacken, schlimmen Angstzuständen oder Lebensängsten quittiert._
+_Vom einseitigen Materialismus, von falschen Lehren der Heilslehregläubigkeit und durch eine kultreli-_
+_giös geprägte und höchst aussichtslose Suche nach dem Sinn des Lebens orientierungslos geworden,_
+_werden die Menschen in tiefgreifende Ängste und psychische Störungen aller Art getrieben. Diese_
+_Störungen durch irreale Falschgedanken verhindern und verunmöglichen dem Menschen oftmals sei-_
+_ne lebensnotwendigen, gesunden und lebensbejahenden Gedankengänge sowie ein dementspre-_
+_chendes Gefühlsleben, wodurch ihm die Kraft seiner eigenen und falsch geformten Psyche den Aus-_
+_weg aus den düsteren Gefilden des psychischen Höllenfeuers versperrt._
+_Diese auf gedanklicher Basis und vielfach selbst erschaffene psychische Schädigung steht im Gegen-_
+_satz zu den schöpferischen Gesetzen und Geboten auf das Recht der körperlichen und psychischen_
+_sowie gefühls- und bewusstseinsmässigen Unversehrtheit. Jeder in seinem Bewusstsein und an seiner_
+_Psyche gesunde Mensch hat die Möglichkeit, die vorhandenen Ressourcen seiner kognitiven, mentalen_
+_und intellektuellen Fähigkeiten zu nutzen und anzuwenden. Daher sind selbst äussere Einflüsse niemals_
+_eine Ausrede dafür, keine eigene Initiative zur persönlichen Befreiung von falschen und kultreligiösen_
+_Lehren zu ergreifen. Räumt der Mensch jedoch aus reiner Bequemlichkeit oder Gleichgültigkeit Un-_
+_werten wie der Trägheit, Nachlässigkeit, der Willfährigkeit sowie der Oberflächlichkeit usw. kampflos_
+_das Feld, dann macht er sich gegenüber seiner eigenen Entwicklung und Charakterschulung der Ver-_
+_antwortungslosigkeit schuldig._
+_Das alltägliche Leben fordert vom Menschen eine sehr grosse, aufmerksame, psychische, gedanklich-_
+_gefühls- und bewusstseinsmässige Präsenz. Auf unserem Planeten bieten sich leider zahlreiche Mög-_
+_lichkeiten in bezug auf menschenunwürdige Zustände, wie Unvernunft, Unlogik, kultreligiöse und eso-_
+_terische Verwirrung, Machtgier, Despotismus sowie Kriegstreiberei, Ungerechtigkeiten und Profitgier,_
+_um daran zu verzweifeln. Auch die horrende Überbevölkerung und ihre fürchterlichen Folgen usw._
+_gehören dazu. Eintönige Wiederholungen sowie triste und naturfremde Lebensumstände in den Industrie-_
+_nationen fordern auch von der menschlichen Psyche ihren Tribut. Eine naturnahe und intakte Umwelt,_
+_eine harmonische Atmosphäre sowie ein liebevolles Milieu haben auf die Psyche des Menschen einen_
+
+
+-----
+
+_sehr grossen und ausgleichenden Einfluss. Diese strebt nach Frieden, Harmonie, Liebe und nach Aus-_
+_geglichenheit, wie alles nur in der Einbettung in der schöpferischen Natur, der Erfüllung ihrer Gesetze_
+_und Gebote, einer sinnvollen Beschäftigung, in der Meditation sowie in gesunden zwischenmensch -_
+_lichen Beziehungsformen zu finden ist. Zwischen steinernen und gläsernen Hochhäusern, öden Industrie-_
+_komplexen, ruhelosen Schnellstrassen und lärmenden Autobahnen, stinkendem Schmutz und ohren-_
+_betäubendem Chaos in übervölkerten Grossstädten vermag der Mensch seinen Gedanken und Gefühlen_
+_und dem eigentlichen Wesen seiner Psyche nur unter grössten Anstrengungen gerecht zu werden. Die neu-_
+_zeitliche psychische, gefühls- und bewusstseinsmässige Verwahrlosung der Menschen, die schleichende_
+_mentale Degeneration, Verwöhnungstendenzen und intellektuelle Verweichlichung, quälende Lange-_
+_weile und Beschäftigungslosigkeit, die allgemeine Wohlstand-Übersättigung, ruhelose Reizüberflutun-_
+_gen durch die Massenmedien sowie überfordernde Vergnügungsaktivitäten sind schädigende Erschei-_
+_nungen und bezeichnend für die Ruhelosigkeit unserer Zeit. Sie sind auch ein Ausdruck persönlicher_
+_Vernachlässigung und Gleichgültigkeit sowie ein sichtbares Zeichen des modernen Menschen, dem_
+_Vorteil einer gewissen Bequemlichkeit, dem Vergnügen und Denkfaulheit zu frönen. Für die Dienste und_
+_Annehmlichkeiten und den wirtschaftlichen, sozialgesellschaftlichen und materiellen Wohlstand bezahlt_
+_der sogenannte zivilisierte Mensch einen hohen Preis. Selbst die wertvollen Instrumente Gedanken, Ge-_
+_fühle und Psyche hat der Mensch in den Dienst der Befriedigung seiner sinnlichen und körperlichen_
+_Genüsse gezwungen. Sie dienen ihm mittlerweile vielmehr zur Messung, Auslotung und Steigerung_
+_des Spassfaktors, denn zur Beachtung und Wahrnehmung seiner eigentlichen schöpferischen Aufgabe_
+_und Bestimmung._
+_Der aufmerksame und bewusst lernende Mensch lässt sich nicht von den Wogen der gesellschaftlichen_
+_Strömungen, politischen Trends und Mode-Erscheinungen tragen, die ihm als Preis seine gedankliche,_
+_psychische, gefühls- und bewusstseinsmässige Freiheit rauben und ihn versklaven. Ein weiser und kluger_
+_Mensch weiss die Macht, die Kraft und die Stärke seiner Gedanken, Gefühle und der Psyche bewusst_
+_zu nutzen, um nicht zu einem Spielball fremder Strömungen, Trends und Ansichten zu werden. Er ist sich_
+_der schöpferischen Tatsachen und Wahrheit der Gesetze und Gebote stets bewusst, durch die er mit_
+_Hilfe seiner Gedanken, Gefühle und durch seine Psyche sein gesamtes Leben bewusst zu formen resp._
+_zu gestalten vermag. Dadurch wird und ist er Herr über seine psychische Verfassung und Befindlich-_
+_keit sowie über seine Stimmungen und Launen usw. Allein diese Erkenntnis bringt dem Menschen je-_
+_doch nicht automatisch die erwünschte Ruhe und Gelassenheit, sondern vielmehr die Einsicht in die_
+_grosse, anspruchsvolle und endlose Arbeit zur Entfaltung der eigenen Persönlichkeit und des Charak-_
+_ters sowie der Erfüllung seiner schöpferischen Bestimmung._
+_Hans-Georg Lanzendorfer, Schweiz_
+
+## Leserfrage
+_Anbei eine Bulletin-Frage, die an mich herangetragen wurde bezüglich ‹direkte› und ‹indirekte› Kontakte_
+_usw. zwischen Erdenmenschen und ausserirdischen Lebensformen:_
+_Im 38. Kontakt vom 13. November 1975, zwischen Semjase und Billy, erklärt Semjase, dass Albert_
+_Einstein und Albert Schweitzer unter anderen in direktem Kontakt mit ausserirdischen Intelligenzen stan-_
+_den (Plejadisch-plejarische Kontaktberichte, Block 1, Seite 496, Satz 101–104). Was genau ist in dieser_
+_Beziehung unter einem ‹direkten Kontakt› zu verstehen, und wie unterscheidet sich dieser von einem_
+_‹indirekten Kontakt›? Ausserdem wäre es vielleicht auch noch interessant zu wissen, welche Kontakt-_
+_formen und deren Begriffe zwischen Erdenmenschen und ausserirdischen Intelligenzen Dir, lieber Billy,_
+_bekannt sind. Kannst oder darfst Du darüber erschöpfend Auskunft geben?_
+_Patric Chenaux, Schweiz_
+
+
+-----
+
+### Antwort
+_Wenn, in bezug auf das Vorgenannte, die Plejaren von ‹direkten› und ‹indirekten› impulsmässigen Kon-_
+_takten zwischen Erdenmenschen und den Plejaren reden, dann ist der ‹direkte› Kontakt als impuls-_
+_mässige Inspiration resp. Eingebung zu verstehen, bei der die betreffende inspirierte Person sehr wohl_
+_weiss, dass ‹etwas von aussen› in sie kommt, wobei sie jedoch, wenn es sich um inspirative Kontakte_
+_durch Ausserirdische handelt, nicht definieren kann, woher das ‹Etwas› resp. die äussere Information_
+_stammt. Eine ‹direkte› inspirative Information kann jedoch auch durch einen Gegenstand, eine Lebens-_
+_form, durch ein Geschehen oder durch eine Situation usw. hervorgerufen werden._
+_Sogenannte ‹indirekte› Kontakte, die durch Impulsinformationen der Plejaren ausgelöst werden, werden_
+_von den davon betroffenen Erdenmenschen nicht als Inspiration wahrgenommen, sondern als Intuition,_
+_die wie eine eigene Idee resp. wie ein eigener Gedanke wirkt, folglich der Mensch der Ansicht ist,_
+_dass er alles aus sich selbst heraus erschaffe, wenn er eine Intuition hat. Das trifft natürlich im Normal-_
+_fall auch zu, wenn nicht ‹indirekte Kontakte› durch die Plejaren hergestellt werden._
+_Ausser den nunmehr beschriebenen und den telepathischen sowie den persönlichen und visionsmäs-_
+_sigen Kontaktformen, pflegen die Plejaren keine anderen._
+_Billy_
+
+## Die ZIRBELDRÜSE, das kleine Wunderwerk in unserem Hirn,
+#### oder – wie wir unseren siebten Sinn wecken, stärken und pflegen können.
+_Ein eigenes Erlebnis zum Thema:_
+_Auf einem Spaziergang während der Dämmerung, bei Regenwetter, entlang einer Strasse auf einem_
+_schmalen Trottoir, bekam ich das Gefühl, dass jemand von hinten eine Hand auf meine linke Schulter_
+_legen würde. Ich schaute zurück und erblickte einen Jogger, der in dieselbe Richtung wie ich unterwegs_
+_war. Schnell einen Schritt zur Seite machend, konnte ich ihn an mir vorbeiziehen lassen._
+_Dieser Vorgang imponierte mir – ganz praktisch, wenn Kommunikation ohne Worte funktioniert! Doch_
+_auf welchem Weg geschieht diese Art von ‹Verständigung›? Scheinbar ist es ganz klar: Der Jogger als_
+_Sender der nonverbalen Information: «Bitte Platz machen, ich möchte vorbeilaufen», und meine Person_
+_als Empfängerin der über die Gedankenkraft ausgesendeten Botschaft. Ja, scheinbar ist es ganz klar,_
+_aber was läuft im Detail innerhalb und ausserhalb unserer Gehirne ab?_
+_Bei meinen Nachforschungen zum Thema bin ich auf höchst interessante Informationen gestossen, mit_
+_inhaltlich weitreichenden Aussagen!_
+_Die Quellen meiner spezifischen Informationen stammen von:_
+_‹Billy› Eduard Albert Meier:_
+_–_ _FIGU-Sonder-Bulletin Nr. 38, August 2007, Thema: ‹Übersinnliches resp. Feinstoffsinnliches resp._
+_Fluidalkräfte›_
+_– ‹Meditation aus klarer Sicht›, Wassermannzeit-Verlag, 8495 Schmidrüti/ZH_
+_– ‹Die Psyche›, Wassermannzeit-Verlag, 8495 Schmidrüti/ZH_
+
+_Gerhard H. Eggetsberger:_
+_– ‹Geheime Lebensenergien›, Knaur_
+_– ‹Power für den ganzen Tag› auf www.ipn.at/p-buch zum freien Download_
+
+_Eggetsberger schreibt im Buch ‹Geheime Lebensenergie› im Kapitel ‹Das elektromagnetische Univer-_
+_sum›: «… Die Bedeutung der geophysischen Umwelt in unserem Leben wird oft übersehen. Obwohl_
+_die Einwirkungen allgegenwärtig sind, können wir ihr Wesen meist nicht erkennen, weil uns für viele_
+_dieser Einflüsse die Sinne zur bewussten Wahrnehmung fehlen (Anm.: Diese Sinne fehlen uns nicht,_
+_aber sie sind nicht entwickelt und stehen uns deshalb nicht zur Verfügung!) … Um uns und in uns existiert_
+
+
+-----
+
+_ein unsichtbares, aber lebenswichtiges elektromagnetisches Universum. Auch der Forscher Prof. Dr._
+_Pressmann hält diese elektrischen Ströme (und Felder) für Informationsübermittler, sowohl im einzelnen_
+_Organismus als auch zwischen mehreren Organismen. Er konnte durch seine Arbeit nachweisen, dass_
+_es eine Reaktion der körpereigenen Ströme auf äussere Felder gibt … So können wir heute auch den_
+_menschlichen Körper (laut Pressmann Nervensystem, Hypophyse und Hypothalamus, aber auch die_
+_Zirbeldrüse) als Empfänger von elektromagnetischen Botschaften ansehen. Diese Felder gilt es bewusst_
+_wahrzunehmen, um somit für diese Information wieder empfänglich zu werden. Dies würde uns eine_
+_ungeahnte Informationsvielfalt zugänglich machen und uns eine zusätzliche Kommunikationsform er-_
+_schliessen …»_
+
+_Diese Ausführungen umschreiben im wesentlichen meine Erfahrung mit dem Jogger. Es liegt also in der_
+_Natur des menschlichen Gehirns, Gedanken auszusenden und Gedanken zu empfangen sowie die_
+_Fähigkeit des ‹Gedankenlesens› zu haben. Wie entsteht aber diese Energie, die sich bei mir als Bot-_
+_schaft bemerkbar machte und mich veranlasste zu reagieren? Warum überhaupt kann ich diese Energie_
+_aufnehmen, und weshalb steigt schliesslich eine Information in mein Bewusstsein auf?_
+
+_Auf die Frage der Energiebildung schreibt Billy im Buch ‹Die Psyche› (Seite 62):_
+_«Denken erzeugt Energie von ungeheurer Kraft. Jeder Gedanke sendet energetische Wellen höchster_
+_Frequenz aus. Das heisst: Die Gedanken selbst strahlen sich als ungeheuer starke Energiewellen aus,_
+_die in bisher unmessbar hohen Frequenzen fundieren. Sie verlassen das Gefüge ihres Ursprungs, jagen_
+_hinaus in die unendlichen Weiten des Universums, ungehemmt und unhaltbar, um Wirkungen und Be-_
+_dingungen zu schaffen, ganz ihrer Art gemäss. …»_
+
+_Das Denken wiederum wird erzeugt vom Bewusstseinsblock des Menschen. Durch diesen Bewusst-_
+_seinsblock – er verkörpert in sich auch die Persönlichkeit – werden alle Gedanken, Gefühle, alle Emo-_
+_tionen sowie alle elektromagnetischen Kräfte und Schwingungen usw. erschaffen, die jede betreffende_
+_Lebensform, in diesem Fall den Menschen, auszeichnen und steuern. Wer will noch genauer wissen,_
+_wo die Antriebskraft des Denkens herkommt? Aus ‹Die Psyche› (Seite 51):_
+_«Die Kraft, die das Denken als Antrieb benutzt, stammt nicht aus dem Menschen selbst. Sie strömt in_
+_den Geist und von dort in das Bewusstsein, herkommend aus den unermesslichen Weiten des Alls, des_
+_Universums. Sie stammt aus dem ungeheuren Geistreichtum des Urlebens, der Schöpfung, die verant-_
+_wortlich ist für das Leben des ganzen Universums. …»_
+
+
+_Zum besseren Verständnis und zur Klärung, da die Begriffe leider meistens falsch verwendet werden:_
+_– Der Geist des Menschen – das winzige Teilstück der Schöpfungsenergie – belebt den menschlichen_
+_Körper._
+_– Das Bewusstsein resp. das materielle Bewusstsein beinhaltet auch die Persönlichkeit, das Unterbe-_
+_wusstsein, das Gedächtnis und den Charakterblock des Menschen sowie die Ratio, also Verstand und_
+_Vernunft resp. den Intellekt, und (entgegen dummen anderslautenden Behauptungen von in dieser_
+_Materie Unbewanderten) die entwicklungsfähige Intelligenz, also den Evolutionsfaktor erster Potenz._
+_– Schöpfung ist das, was verantwortlich ist für das Universum, für alles Leben und alle Existenz. Sie_
+_ist die urgewaltigste und grösste Kraft, die man sich überhaupt vorstellen kann. Die Schöpfung ist_
+_das SEIN und Nichtsein des Lebens. Sie ist die ungeheuerste Masse geistiger Energie, die es nur_
+_geben kann. Sie ist Geist in reinster Form und unmessbar in ihrer Weisheit._
+
+
+_Sind also die Gedanken und die daraus resultierenden Gefühle aus dem Gehirn des Sendenden einmal_
+_ausgestrahlt und als lichtschnelle, feinstoffliche Gedanken- und Gefühlsschwingungen unterwegs, dann_
+_braucht es nur noch ein geeignetes Empfängergehirn und in diesem eine ‹Antenne›, um die Botschaft –_
+_in ihrer Form der Feinstofflichkeit als Fluidalenergien und Fluidalkräfte bezeichnet – aufnehmen und_
+_decodieren zu können._
+
+
+-----
+
+_Billy schreibt auf Seite 30 im FIGU-Sonder-Bulletin Nr. 38:_
+_«… Natürlich spielt dabei die Wellenfrequenz der feinstoffsinnlichen Schwingungen eine massgebende_
+_Rolle, wodurch also nicht jeder Mensch die gleiche Wellenfrequenz empfangen kann und nicht jeder_
+_seine Feinstoffsinne in gleichem Mass auf nahe oder weit entfernte Impulse und Informationen einstellen_
+_kann, die auf ihn gerichtet sind. Also muss durch die mentale Verbindung eine gewisse Gleichheit der_
+_Wellenfrequenz gegeben sein, dass Botschaften von Sterbenden oder sonst von Mitmenschen empfan-_
+_gen werden können, seien es nun Geräusche, Gedanken und Gefühle oder visionäre Bilder usw. Wäre_
+_dem nicht so, dann würden alle Menschen weltweit gleichzeitig und einheitlich die gleichen Impulse_
+_und Informationen in unendlicher Zahl aller feinstoffsinnlichen Ausstrahlungen der ganzen Menschheit_
+_auffangen. Das aber würde nicht nur zum Chaos führen, sondern die ganze Menschheit würde irre_
+_und verrückt, weil der gesamte Schwall aller Impulse und Informationen nicht zu verkraften wäre. …»_
+
+_Um sich gegen die Flut der Informationen zu schützen, hat unser Gehirn im Laufe der Evolution gelernt,_
+_alles zu organisieren und zu selektieren; übergeordnet ist dabei das Bewusstsein, das nach einem struk-_
+_turierten System und nach einer bestimmten Rangordnung arbeitet. Um sich vor permanenten Reizen_
+_in Form von fluidalen, feinstofflichen Schwingungen fremder Empfindungen, Gedanken und Gefühle_
+_zu schützen, die nicht verkraftbar wären, hat das Gehirn also ein Schutzsystem entwickelt. (Bei diesem_
+_Vorgang ist unser Bewusstseinsblock beteiligt, der eng mit der Zirbeldrüse zusammenarbeitet.)_
+_Es ist erwiesen, dass die richtige Funktion der Zirbeldrüse, auch Epiphyse genannt, eminent wichtig_
+_ist, wenn wir Menschen ausserhalb des materiellen Wahrnehmungsvermögens, also im Bereich des fein-_
+_stofflich Wahrnehmbaren, unsere Fähigkeiten wieder in richtiger, evolutionärer Weise bilden, fördern_
+_und pflegen und dazu unsere psychische und physische Gesundheit erhalten und verbessern, das Im-_
+_munsystem stärken und die Lebensenergie erhöhen wollen. Unsere Vorfahren konnten von der Zirbel -_
+_drüsenwirkkraft noch intensiven Gebrauch machen. Daraus ergab sich, dass sie auch das Sensitive_
+_des Feinstoffsinnlichen über die Zirbeldrüse wahrnehmen und für sich nutzen konnten. Das heisst, dass_
+_ihnen der siebte Sinn – das EMPFINDEN – als Quelle der empfindungsmässigen Wahrnehmung zur_
+_Verfügung stand._
+_Leider gehen die meisten Menschen in der heutigen Zeit im allgemeinen davon aus, dass ihnen nur fünf_
+_Sinne zur Verfügung stehen würden (Hören, Sehen, Tasten, Schmecken, Riechen), doch in Wirklichkeit_
+_sind es deren sieben. Das GEFÜHL entspricht dem sechsten Sinn, der im Zusammenhang mit dem Instinkt_
+_steht und mit der Gedankenwelt verbunden ist, woraus die Gefühle grundsätzlich hervorgehen, denn_
+_ohne bewusste oder unbewusste Gedanken gibt es keine Gefühle. Zusätzlich, wie bereits erwähnt und_
+_für uns in diesem Zusammenhang wichtig, entspricht der siebte Sinn dem Empfinden._
+_Fälschlicherweise verwenden wir Menschen für Wahrnehmungen des siebten Sinnes den Begriff ‹Über-_
+_sinnlich›. Diese Bezeichnung ist aber grundsätzlich ein falsches Wort, wenn dieses dafür verwendet wird,_
+_um etwas feinstofflich Wahrnehmbares zu beschreiben, das für den Menschen ausserhalb des nor-_
+_malen materiellen Wahrnehmungsvermögens liegt. Die Wahrnehmungen des siebten Sinnes liegen –_
+_richtigerweise bezeichnet – im Bereich des Feinstofflichen und weit über dem, was grobstofflich wahr-_
+_genommen und gemessen werden kann. Es gibt für den Menschen gar nichts, das ausserhalb der Wahr-_
+_nehmung seiner Sinne liegt, dementsprechend gibt es logischerweise auch nichts ‹Übersinnliches›._
+
+
+_Zum besseren Verstehen die Erklärung für folgende Begriffe:_
+_– Grobstoffliches = messbar, fassbar, greifbar, tastbar_
+_– Feinstoffliches = noch nicht messbar, nicht fassbar, nicht greifbar, ist geistenergetischer Natur_
+_– Halbmaterielles = messbar, spürbar, aber nicht fassbar, z.B. Gas, Wasser_
+
+_Folgendes Zitat von Paracelsus beschreibt und erklärt den Sachverhalt treffend:_
+_«Die kosmischen Kräfte sind unsichtbar, aber sie wirken auf den Menschen ein. Wärme und Licht sind_
+_körperlos und nicht greifbar, und doch spüren wir ihr Vorhandensein. Das Gleiche gilt auch für andere_
+_unsichtbare Einflüsse.»_
+
+
+-----
+
+_Wir könnten mit einer verbesserten Empfindungsfähigkeit resp. Sensitivität in einem absolut neutralen_
+_Vorgang Schwingungen von aussen wahrnehmen und definieren, das heisst, wir könnten wissen, welchen_
+_Wert diese Schwingungen beinhalten respektive was sie bedeuten. Genau für diesen Vorgang brauchen_
+_wir unsere Zirbeldrüse als Arbeitsstation und Antenne, als Sender und Empfänger._
+
+_Im Laufe der vergangenen Zeit hat sich bei uns Menschen die Zirbeldrüse zurückgebildet und ist ver-_
+_kümmert, weil wir unsere gedanklich-gefühlsmässige Ausrichtung viel zu stark auf das rein Materielle_
+_gelegt haben, noch immer legen und dabei unsere Innenwelt mehr und mehr dem Rationalen unter-_
+_worfen haben und noch immer unterwerfen. Dadurch haben wir die Zirbeldrüse von einer Grösse von_
+_ungefähr drei Zentimetern auf klägliche wenige Millimeter schrumpfen lassen. Es fehlt uns das nötige_
+_Bewusstsein, Wissen und Können, um in höherem Masse Energie durch den Hirnbereich der Zirbel -_
+_drüse und durch diese selbst fliessen zu lassen, damit wir uns die Voraussetzung wieder erschaffen,_
+_die uns umgebenden feinstoffsinnlichen, elektromagnetischen Felder bewusst wahrnehmen zu können._
+_Zusätzlich haben wir unbewusst gegen die empfindungsmässige Wahrnehmung – also die Wahrneh-_
+_mung des siebten Sinnes – eine Schranke aufgebaut, wodurch die Funktion der Zirbeldrüse unterdrückt_
+_wird. So kann das ‹Dritte Auge›, wie die Zirbeldrüse auch genannt wird, ihre Arbeit als Zentrale resp._
+_als Relaisstation des Feinstoffsinnlichen nicht verrichten. Menschen aber, die die Energien und Kräfte_
+_der Zirbeldrüse und damit die Empfindung in bewusster Weise nützen können, nehmen über die Zirbel -_
+_drüse feinstoffsinnliche Informationen auf. Das heisst, die Zirbeldrüse arbeitet wie ein Sensor, sie ortet_
+_feinstoffliche, elektromagnetische Felder – die von uns Menschen milliardenfach vorhanden sind und_
+_durch jeden Raum und den Äther schwingen – und nimmt diese auf. (Menschen mit solchen Fähigkeiten_
+_sind in der heutigen Zeit selten anzutreffen!) Diese feinstoffsinnlichen, elektromagnetischen Felder (Ge-_
+_dankenschwingungen) sind, wie beschrieben, ein Produkt des menschlichen Gehirns resp. dessen Ge-_
+_danken. Diese Gedankenschwingungen zeitigen verschiedenste Wirkungen in bezug auf die Telepathie,_
+_Levitation und Teleportation und ebenso bei der Hellsichtigkeit und der Fernwahrnehmung._
+_Wenn wir uns wirklich bemühen, können wir die Zirbeldrüse in einem gewissen Rahmen wieder zur_
+_Funktion bringen, und dann wird sich dieses Organ langsam, sehr langsam, doch sukzessive wieder_
+_vergrössern und seine Funktionen dementsprechend kraftvoller ausführen können. Dies ist für uns von_
+_grosser Wichtigkeit, denn wie bereits erwähnt, erfüllt die Zirbeldrüse lebens- und evolutionswichtige_
+_Funktionen._
+
+
+_Die Zirbeldrüse liegt im Mittelhirn; sie ist auch das zentrale Regulationsorgan für die Synchronisation_
+_des 24-Stunden-Rhythmus. Die Epiphyse ist eine Hormondrüse, in der Form ähnlich dem Zapfen der_
+_Zirbelkiefer, und entstammt der Zwischenhirndecke, genauer gesagt dem Pinealorgan. Bei Neunaugen_
+_(= ‹Bewohner› von Gewässern der gemässigten Breiten) ist das Pinealorgan noch als Pinealauge (Licht-_
+_sinnesorgan) ausgebildet._
+_Durch Nervenfasern sind die Augen des Menschen direkt mit der Zirbeldrüse verbunden. Wenn Licht_
+_auf die Netzhaut des Auges fällt, löst dies einen Nervenreiz aus. Dadurch wird im Gehirn Serotonin,_
+_aber so gut wie kein Melatonin gebildet. Erst in der Dunkelheit verwandelt die Zirbeldrüse Serotonin_
+_(= ein Neurotransmitter, Näheres im Abschnitt ‹Exkurs›) in Melatonin._
+_Berechtigte Vermutungen weisen deutlich darauf hin, dass sich die Zirbeldrüse aus den Zellstrukturen_
+_der Augen entwickelt hat. In alten Texten wird darauf hingewiesen, dass die Zirbeldrüse unser ‹Inneres_
+_Auge› oder ‹Drittes Auge› ist und nicht, wie oft fälschlich behauptet, die Hirnanhangdrüse (Hypophyse)._
+_Die Pineozyten sind die Zellen der Zirbeldrüse – diese sind eng verbunden mit dem nervalen Gewebe –_
+_und der Bildungsort von Melatonin, einem neurosekretorischen Hormon. Melatonin wird über die Zwi-_
+_schenstufen Tryptophan (eine in den meisten Eiweissstoffen enthaltene Aminosäure) und – wie oben_
+_beschrieben – Serotonin gebildet. Melatonin spielt eine entscheidende Rolle in der Zusammenarbeit_
+_des chemischen und elektrischen Netzwerkes des Körpers. Die Zirbeldrüse wird durch Licht, elektro-_
+_magnetische Felder und chemische Stoffe sozusagen ein- und ausgeschaltet. Das Hormon fördert den_
+_Schlaf – in der Nacht ist der Melatoninspiegel fünf- bis zehnmal höher als tagsüber – und ist zu grossen_
+
+
+-----
+
+_Teilen auch für die Schlafqualität mitverantwortlich. Bei Tieren sorgt es nachweislich für den Winter-_
+_schlaf! Das Hormon regt das Immunsystem an und wirkt antioxydativ gegen freie Radikale, vor allem_
+_auch im Gehirn. Melatonin hat ebenso einen günstigen Einfluss auf das Herz-Kreislauf-System. Es_
+_reguliert insgesamt die biologische Uhr des Körpers und die Ausschüttung aller wichtigen Hormone._
+_Melatonin steuert den Alterungs- oder Erhaltungsprozess, indem es auch zur Regeneration der Zellen_
+_beiträgt. Es sorgt auf diese Art und Weise für unsere Lebensqualität, aber auch Lebensquantität. Den_
+_Höhepunkt erreicht der Melatoninspiegel in der Kindheit, danach fällt er langsam ab. Sind wir 60 Jahre_
+_alt, produziert die Zirbeldrüse – wenn wir sie in ihrer Funktion nicht unterstützen! – nur noch ungefähr_
+_halb so viel Melatonin wie in unserem 20. Altersjahr. In dem Masse, wie der Melatoninspiegel abnimmt,_
+_beginnen sich Zeichen des Alterns – eventuell gravierende Zeichen – zu manifestieren. Aber auch dieser_
+_Vorgang ist relativ, je nachdem, wie fit wir unsere Zirbeldrüse machen!_
+_Melatonin scheint etwas von einer geheimnisvollen Substanz an sich zu haben. Bei Testpersonen, denen_
+_Melatonin in Tablettenform gegeben wurde, konnte man nicht nur eine Verlangsamung der Gehirn-_
+_ströme, der Atmung und der Herzfunktion messen, ebenso veränderten sich der Blutdruck, die Haut-_
+_temperatur und die Muskelspannung. Insgesamt trat eine beruhigende Wirkung ein. Die Testpersonen_
+_beschrieben ein Gefühl der gemässigten Hochstimmung und des Wohlbefindens. Es wäre natürlich ein-_
+_fach und bequem, unseren Melatoninbedarf durch körperfremdes Melatonin zu decken! Aber Achtung;_
+_dies würde die Zirbeldrüse inaktivieren, also genau das Gegenteil von dem bewirken, was wir an-_
+_streben sollten!_
+
+_Eggetsberger schreibt im Buch ‹Geheime Lebensenergie› auf Seite 52, dass tief verwurzelte Instinkte_
+_das soziale Verhalten bei allen Lebewesen steuern, beim Menschen aber spielt das Bewusstsein als_
+_übergeordnete Instanz mit: Wir denken, fühlen und wollen, und wir sind uns dessen bewusst. Diese_
+_Tatsache befreit uns zu einem grossen Teil von der instinktmässigen Steuerung. Steht uns aber wenig_
+_innere Energie zur Verfügung, regiert vermehrt unser Instinkt. Aufgrund des tiefen Energiespiegels, der_
+_inneren Schwäche, ergeben sich oft Aggressionen, Ängste und Gier. Daraus wiederum entstehen unter_
+_den Menschen sehr leicht Streitereien, Missgunst, Kriege, Rassenhass usw. Können wir aber eine Er-_
+_höhung des inneren Energieniveaus herbeiführen, profitieren unser Bewusstsein und unser Gehirn samt_
+_Zirbeldrüse. Eggetsberger hat bei seinen Untersuchungen der menschlichen Sexualität entdeckt, dass_
+_eine energetische Verbindung zwischen dem Pc-Muskel (der Pubococcygeus-Muskel liegt im unteren_
+_Beckenbereich) und dem Gehirn besteht. Wird der Pc-Muskel auf eine bestimmte Art angespannt, beginnt_
+_messbar Energie durch das Rückenmark zu fliessen, also der Wirbelsäule entlang, hinauf zum Kopf_
+_und zur Zirbeldrüse._
+_Eggetsberger schreibt auch, dass eine Zunahme der inneren Energie und eine damit verbundene_
+_‹geistige Weiterentwicklung› (ich würde sagen: schöpferische Evolution) gleichbedeutend mit dem Ab-_
+_bau von vielfältigsten Konflikten auf unserem Planet Erde wäre! Und:_
+_«… durch die Zunahme der Lebensenergie ist es aber auch möglich, einzelne Organe positiv zu be-_
+_einflussen: Dies kann schon erfolgen, während die Energie über das Rückenmark ins Gehirn und dann_
+_vom Gehirn ins Nervensystem fliesst. Das heisst, der Gesundheitszustand des Trainierenden verbessert_
+_sich, das Immunsystem wird gestärkt …»_
+
+_Auf die Frage, was er unter dem Begriff ‹Lebensenergie› verstehe, antwortete Eggetsberger: «… Ob-_
+_wohl die gemessenen Werte gering erscheinen, können derartige Elektronenflüsse doch sehr viel be-_
+_wirken. So gelang kürzlich am California Institute of Technology in Pasadena der Nachweis, dass schon_
+_ein einziges Elektron in der Lage ist, an der DNA ‹entlang zu wandern› und die genetische Aktivität_
+_zu beeinflussen. Damit ist zumindest theoretisch belegt, dass durch die Erhöhung der Lebensenergie_
+_Störungen bis hinein in die Zelle und die dortigen Syntheseprozesse beeinflusst werden können.»_
+
+_Geht es also darum, wie bereits erwähnt, in höherem Masse Energie durch den Hirnbereich der Zirbel -_
+_drüse und durch diese selbst fliessen zu lassen, bietet sich die Meditation als Mittel erster Wahl an._
+
+
+-----
+
+_Entsprechende Informationen finden sich in Billys Buch ‹Meditation aus klarer Sicht› in Hülle und Fülle._
+_Vielfältigst beschreibt er die Auswirkungen verschiedener Meditationsformen auf den Menschen und_
+_dessen Gehirn. Letztendlich geht es bei der Meditation schlicht und einfach darum (Seite 17):_
+_«… Meditation ist nur von sich allein abhängig, von der meditativen Konzentration, die sowohl auf be-_
+_stimmte Dinge und Belange ausgerichtet sein kann, jedoch ganz einfach auch auf die Null-Gedanken-_
+_Formation, bei der keinerlei Gedanken gehegt und gepflegt werden, sondern bei der nur die Ruhe und_
+_die Stille in Gedankenlosigkeit durch das Bewusstsein fliesst, wodurch eine Verinnerlichung entsteht,_
+_aus der Liebe, Frieden und Freiheit sowie Harmonie und Ausgeglichenheit hervorgehen. …»_
+
+_Ja, Sie haben richtig gelesen: LIEBE, FRIEDEN, FREIHEIT, HARMONIE, AUSGEGLICHENHEIT, genau dies_
+_sind doch Qualitäten ersten Ranges, Qualitäten, die allernötigst und allerdringendst in der heutigen_
+_Zeit von uns allen für das ‹wahre Menschsein› gebraucht werden!! Daher stellt sich unweigerlich die_
+_Frage: Was hält eigentlich die meisten Menschen davon ab, täglich zu meditieren? Denn es sehnt sich_
+_doch fast jedes menschliche Wesen nach Frieden, nach friedlicher Koexistenz._
+_Bei den meditativen Vorgängen spielen die Frequenzen der Hirnwellen eine wichtige Rolle (Alpha-Beta-_
+_Delta-Gamma- und Thetawellen), sie ordnen und synchronisieren die Gehirnwellen, je tiefer und intensi -_
+_ver die Meditation, desto fliessender und vollständiger. Dies ist um so wichtiger, da im Normal-Wach-_
+_zustand die Frequenzen der Hirnwellen ziemlich chaotisch sind und in diesem Zustand oft nur eine der_
+_beiden Hirnhälften genutzt wird. Dabei wechselt die Gehirnaktivität ständig zwischen den Hirnhälften._
+_Dies hat zur Folge, dass wir Menschen unsere Hirntätigkeit schwerlich bündeln und auf einen Nenner_
+_bringen können; es zeigen sich Fahrigkeit, Unkonzentriertheit, schnelle Ermüdbarkeit, Spannung, Stress,_
+_Aggressionen usw._
+
+
+_Billy schreibt in ‹Meditation aus klarer Sicht› (Seite 123):_
+_«Die Synchronisation resp. Gleichschaltung beider Gehirnhälften lässt es nicht damit bewenden, dass_
+_nur Entspannung und Ausgeglichenheit zustande kommen, sondern es entsteht auch eine viel grössere_
+_Flexibilität bei der Kreativität auf allen Gebieten. Schlichtweg kann auch gesagt werden, dass die_
+_Gleichschaltung beider Gehirnteile gesund ist und also auch das gesundheitliche Wohlergehen fördert,_
+_und zwar indem Botenstoffe zwischen den Nervenzellen, wie Hormone und Neurotransmitter (siehe_
+_Abschnitt ‹Exkurs›), ausgeschüttet werden, wie auch eine Anregung zur Ausschüttung der Endorphine_
+_(siehe Abschnitt ‹Exkurs›) erfolgt, durch die die Gedanken und Gefühle gesteuert werden. …»_
+
+_Exkurs:_
+_Ein Neurotransmitter ist eine Substanz mit Hormoneigenschaft, ein Botenstoff, der auf chemischem Weg_
+_die Erregung, beziehungsweise die Information von einer Nervenzelle auf eine andere, oder auf das_
+_Erfolgsorgan überträgt. Das heisst konkret: Jede Information, ob ein Bild, das unser Auge sieht, ein_
+_Schmerz oder der Duft von Blumen, wird innerhalb von tausendstel Sekunden über Nervenzellen in_
+_das Gehirn weitergeleitet. Dort angekommen, wird die Nachricht entschlüsselt und bewertet. Dabei_
+_muss eine Information von einer Nervenzelle auf die andere übertragen werden, denn die Nerven-_
+_zellen sind nicht direkt miteinander verbunden. Für diese Vorgänge also braucht der Organismus Neuro -_
+_transmitter respektive Nervenbotenstoffe._
+
+_Endorphine (von: endogene Morphine) sind körpereigene Gewebehormone mit opiat- bzw. morphin -_
+_ähnlicher Wirkung. Sie werden auch als ‹körpereigene Rauschgifte› bezeichnet und fungieren als_
+_Botenstoff für euphorische Zustände, da sie ein Gefühl der Glückseligkeit hervorrufen können._
+
+
+_Wir sehen also, dass sich die Meditation auf die Hirntätigkeit äusserst wohltuend auswirkt, aber – und_
+_diese Tatsache allein ist schon Grund genug sich meditativ zu betätigen – die meditative Gehirntätig-_
+_keit ist der eigentliche URZUSTAND des Gehirns! Der Mensch missachtet ihn jedoch seit alters her, und_
+_durch die Gedanken- und Gefühlswelt des Normal-Wachzustandes wird dieser Urzustand regelrecht_
+
+
+-----
+
+_vergewaltigt. Ein ausgeglichenes Wesen ist der Mensch dann, wenn beide Hirnhälften im Gleichgewicht_
+_sind. Dieser ausgeglichene Zustand bewirkt ein Lösen innerer Spannungen. Dadurch wird auch der_
+_Zirbeldrüse vermehrt Energie zugeführt und es können Wahrnehmungen freier aufgenommen und inter -_
+_pretiert werden. Genau das ist ja der wünschenswerte Zustand der Zirbeldrüse. Das heisst konkret: Um_
+_unsere Gedanken in die richtigen Bahnen zu lenken, damit daraus dementsprechende Gefühle ent-_
+_stehen, die uns ruhig und ausgeglichen machen, können wir auf die Intelligenz unseres Bewusstseins_
+_vertrauen. Sie erinnern sich, im Abschnitt über das Denken wird beschrieben: Alle Gedanken, Gefühle,_
+_Emotionen sowie alle elektromagnetischen Kräfte und Schwingungen steuern uns – und sie werden er-_
+_zeugt vom Bewusstseinsblock!_
+_Nutzen wir die Möglichkeit der Zwiesprache mit unserem Bewusstsein, indem wir immer und immer_
+_wieder in meditativer Form folgende sieben Wirklichkeitssätze denken:_
+
+
+_Ich lebe in Liebe._
+_Ich lebe in Frieden._
+_Ich lebe in Freiheit._
+_Ich lebe in Harmonie._
+_Ich lebe unbeschwert._
+_Ich lebe in Gesundheit._
+_Ich lebe in Freude._
+
+
+_Diese Form der Meditation kann nach Belieben ausgeübt und ebenso die Meditationsdauer individuell_
+_festgelegt werden. Am besten und wirkungsvollsten: Dieser Form der Meditation im eigenen Leben eine_
+_zentrale Bedeutung zukommen lassen! Details dazu sind in Billys Buch ‹Meditation aus klarer Sicht›, im_
+_Kapitel ‹Mentalblockmeditation› (Seite 342) beschrieben._
+_Hat sich vielleicht bei einigen Lesern der Wunsch gemeldet, bewusst die Fähigkeiten der Zirbeldrüse_
+_zu trainieren? Wenn ja, möchte ich es nicht versäumen, ihnen Billys warnende Worte ans Herz zu legen_
+_(FIGU-Sonder-Bulletin, Nr. 38, Seite 33):_
+_«Und Tatsache ist, je gefestigter die Identität eines Menschen ist, desto stabiler wird sein Psychezustand,_
+_folglich er sich von anderen Psychezuständen abgrenzt und diesbezüglich praktisch unangreifbar wird._
+_Genau das ist aber eine Bedingung, wenn ganz bewusst die Fähigkeiten des Feinstoffsinnlichen er -_
+_arbeitet werden sollen, denn eine psychische Belastung hätte verheerende Folgen. Also bedingen die_
+_bewusst erarbeiteten Fähigkeiten des Feinstoffsinnlichen eine gesunde und starke Psyche. … Je stabiler_
+_der Psychezustand geformt ist, desto weniger besteht die Gefahr, dass eine schadhafte Fähigkeit der_
+_feinstoffsinnlichen Wahrnehmung erfolgen kann, … Also ist es beim bewussten und willentlichen Er-_
+_lernen der Wahrnehmung des Feinstoffsinnlichen und der Nutzung desselben unabdingbar notwendig,_
+_dass sowohl die gesamte Bewusstseinswelt als auch die Welt der Gedanken und Gefühle sowie der_
+_Psyche in einwandfreiem Zustand sind, ansonsten Gefahren in bezug auf Verwirrung usw. heraufbe-_
+_schworen werden, die nicht übersehen und nicht verhütet werden können.»_
+
+_Zusammenfassend einige Hinweise zur Steigerung der Zirbeldrüsenaktivität (aus dem Buch ‹Geheime_
+_Lebensenergien› von Gerhard H. Eggetsberger):_
+_Die Dunkelheit der Nacht und der Aufenthalt tagsüber im Freien helfen, den richtigen Zirbeldrüsen -_
+_rhythmus zu finden, ebenso körperliche Bewegung, ein warmes Bad vor dem Zubettgehen, schlafen_
+_in einem kühlen, abgedunkelten Raum._
+_Von der Natur hervorragend eingerichtet, finden sich auch spezielle Nahrungsmittel, die als melatonin-_
+_anreichernd gelten und der Zirbeldrüse Gutes tun. Dies sind: Hafer, Zuckermais, Reis, Ingwer, Bananen,_
+_Gerste._
+_Auch die essentielle Aminosäure Tryptophan beeinflusst den Melatoninspiegel positiv. Tryptophanreiche_
+_Nahrungsmittel sind: Spirulina-Tang, Hüttenkäse, Kürbiskerne, Hühner- und Putenfleisch, Mandeln, Erd-_
+_nüsse, Milch, Joghurt. Die Kräutermischung aus Ringelblumen und Johanniskraut, zu gleichen Teilen_
+
+
+-----
+
+_als Tee angewendet (ein Teelöffel der Kräutermischung auf eine Tasse Wasser), hebt ebenso den_
+_Melatoninspiegel an._
+_Das Einatmen von Neroliöl, einem ätherischem Öl, verlangsamt die Hirnströme und regt damit die_
+_Zirbeldrüsenfunktion an._
+_Klar, es gibt auch Komponenten, die schädigend wirken und die es zu vermeiden gilt: süchtig machende_
+_Stoffe, wie zum Beispiel Nikotin, Koffein, Alkohol. Manche Arzneimittel stören die Tätigkeit der Zirbel -_
+_drüse, ebenso Elektrosmog: Fernseher, Computer, Radiowecker, Wasserbetten, manche Energiespar-_
+_lampen, usw. Bei einem Abstand von weniger als einem bis drei Metern zur Smogquelle wird die_
+_Melatoninproduktion gestört._
+
+_Eingangs habe ich erzählt, wie beeindruckt ich, von der nonverbalen Kommunikation war. Beim Recher-_
+_chieren wurde mein Beeindrucktsein ständig grösser, und meine Neugier wuchs und trieb mich in den_
+_Nachforschungen weiter und weiter. Wer weiss, vielleicht geht es Ihnen wie mir, und es hat sich beim_
+_einen oder andern Leser während des Studiums des Artikels die Sinnfrage gestellt, die Sinnfrage über_
+_unser Dasein, über unser Leben überhaupt._
+
+_Im Buch ‹Meditation aus klarer Sicht», Seite 303, finden sich dazu folgende Worte:_
+_«Den Sinn des Lebens zu erfüllen bedeutet, die bewusstseinsmässige und geistige Evolution zu erfüllen,_
+_worin unter anderem auch die Bedeutung gegeben ist, alle Werte in jeder Beziehung des wahren_
+_Menschseins zu erarbeiten und zu leben. Bewusstseinsmässig evolutiv zu sein bedeutet, auf der Welt_
+_zu sein, um die Gedanken und Gefühle auf die Schöpfung und alles Schöpferische sowie auf Liebe,_
+_Wissen, Weisheit, inneren Frieden, innere Freiheit, Ausgeglichenheit und Harmonie auszurichten und_
+_in jeder Beziehung die volle Selbstverantwortung zu tragen.»_
+
+_In diesem Sinne, liebe Leserin, lieber Leser, wünsche ich Ihnen – auch mit Hilfe der Zirbeldrüse – eine_
+_erfüllende Ausrichtung auf die Schöpfung und das Schöpferische!_
+_Regula Lamprecht, Schweiz_
+
+## Frage, die an der Passivgruppe-Generalversammlung gestellt wurde:
+_Warum wird beim Thema Überbevölkerung das Thema Polygamie nicht hervorgehoben?_
+
+### Antwort:
+_Das hat verschiedene Gründe: Einerseits fehlt für die Polygamie heute in den meisten Staaten dieser_
+_Erde die Rechtsgrundlage, weshalb diese auch in fast allen Ländern der Erde verboten ist, andererseits_
+_ist beim grössten Teil der Weltbevölkerung das grundlegende Verständnis dafür nicht vorhanden. Das_
+_ist in der Regel auch so bei Völkern, die heute die Polygamie aufgrund überlieferter Traditionen ausüben_
+_dürfen und in deren Staaten auch die Rechtsgrundlage dafür besteht. So wie die Polygamie heute von_
+_fast allen Menschen gelebt wird, denen diese Bündnisform erlaubt ist, kann nicht von einer echten und_
+_grundlegenden, schöpfungskonformen und naturgesetzmässigen Partnerschaft zwischen den Männern_
+_und ihren Frauen gesprochen werden, weil die Frauen nicht oder nur in absoluten Ausnahmefällen als_
+_gleichberechtigte Partnerinnen akzeptiert und behandelt, sondern in der Regel als Arbeitstiere und_
+_Gebärmaschinen missbraucht werden. Würde die Polygamie in der heutigen Zeit weltweit rechtlich_
+_etabliert und von den Menschen unserer gegenwärtigen Welt gelebt, würde die Überbevölkerung in_
+_allen Länder und auch in den Industriestaaten noch sehr viel mehr überhandnehmen und schon bald zum_
+_Zusammenbruch aller Systeme führen. Der Erdenmensch wird erst dann reif für polygame Bündnisse,_
+_wenn sich sein Menschenbild und sein Verständnis in bezug auf Leben, Verpflichtung, Liebe und Ver-_
+
+
+-----
+
+_antwortung grundlegend verändert und wenn er sich in die Lage gebracht hat, die Realitäten und Tat-_
+_sachen des Lebens als Wahrheit zu erkennen und sich danach zu richten. Bis dahin ist aber noch ein_
+_sehr weiter Weg._
+_Ein weiterer Punkt ist der, dass sich für polygame Bündnisse natürlich die passenden Partner finden_
+_müssen, die das grundlegende Verständnis dafür aufbauen und für alle Beteiligten gerecht umsetzen_
+_können._
+_Die polygame Lebensweise wird in den Schriften durchaus angesprochen, wie z.B. im ‹Gesetz der Lie-_
+_be› und in verschiedenen Überbevölkerungs-Schriften. Unsere Prioritäten sind aber darauf ausgerichtet,_
+_dass die notwendigen und dringendsten Informationen abgegeben werden, wie z.B. der Überbevöl-_
+_kerung begegnet werden kann, und nicht darauf, für die Menschheit völlig neue Lebensentwürfe zu_
+_kreieren und ihnen Lebenswege vorzuschreiben oder aufzuzeigen, die sie sich durch eigenes Denken,_
+_eigene Vernunft und eigenen Verstand erarbeiten müssen. Abgesehen davon ist die Polygamie zur_
+_Bekämpfung der Überbevölkerung nicht die grundlegende Lösung, sondern eben die Eindämmung der_
+_Weltbevölkerung durch eine probate Geburtenreduktion und Geburtenkontrolle. Alle anderen Mas-_
+_snahmen können erst dann ergriffen werden und erfolgreich sein, wenn sich die Überbevölkerung auf_
+_unserem Planeten weitgehend normalisiert hat. Die Polygamie ist eher ein Mittel zur Vorbeugung als_
+_zur Lösung der heutigen und noch lange andauernden Misere._
+_FIGU_
+
+## Das süsse Leben
+#### Lebensmittel und Zusatzstoffe, Teil 1
+_Die meisten Menschen mögen süsse Speisen sehr, und manche verzichten lieber auf so gesunde Nah-_
+_rungsmittel wie Gemüse, Salate, Früchte, Obst oder Beeren, wenn sie eher säuerlich schmecken, als_
+_auf Süssigkeiten. Aber Zucker gilt als ungesund, nicht nur für die Zähne, sondern hauptsächlich auch_
+_deshalb, weil er aus sogenannten ‹leeren› Kalorien besteht, die zwar unseren Energiespiegel sehr_
+_schnell in die Höhe treiben, aber keine oder kaum Vitamine und Mineralstoffe beinhalten und deshalb_
+_keine gesundheitlichen Zusatzwirkungen haben. Werden die leeren Kalorien nicht durch die entspre-_
+_chende Bewegung verbrannt, lagern sie sich als Fettpolster ab – abgesehen davon, dass ein zu grosser_
+_Zuckerkonsum über längere Zeit sogar Diabetes Mellitus auslösen kann resp. sich für Diabetiker höchst_
+_negativ auswirkt. Das sind die Hauptgründe, weshalb versucht wird, den ‹ungesunden› Zucker zu meiden_
+_und ihn durch Süssstoffe wie Aspartam, das auch unter den Markennamen Nutra-Sweet, Canderel usw._
+_erhältlich ist, Cyclamat, Saccharin oder im privaten Gebrauch durch alternative Süssstoffe wie Stevia,_
+_Agaven- oder Birnendicksaft zu ersetzen._
+_Süssstoffe sind synthetisch hergestellte Verbindungen mit niedrigem Brennwert, weshalb sie im Rahmen_
+_von Diäten gerne als Alternative zu Zucker eingesetzt werden. Sie gehören zu den Lebensmittelzusatz -_
+_stoffen und werden in Form von Tabletten, flüssig oder als Streupulver angeboten. In den meisten industri-_
+_ell produzierten Nahrungsmitteln, wie z.B. eingelegten Gemüsen, Marmeladen, Getränken, Desserts_
+_usw. befinden sich Süssstoffe, weil sie sich hinsichtlich der Hitzebeständigkeit, Lagerfähigkeit und in ihrer_
+_geschmacklichen Eigenart besser für die industrielle Verarbeitung eignen als herkömmlicher Zucker,_
+_der zudem den Kalorienwert der Nahrungsmittel in die Höhe treibt. Ausserdem verfügen Süssstoffe oft_
+_über eine weitaus höhere Süsskraft als Zucker, wodurch nur kleine Mengen zugefügt werden müssen,_
+_um Lebensmitteln einen süssen Geschmack zu verleihen._
+_Zuckeraustauschstoffe, auch Zuckeralkohole genannt – die gebräuchlichsten sind Isomalt (E 953), Sorbit_
+_(E 420), Mannit (E 421) und Xylit (E 967) –, sind nicht für Diäten geeignet, weil sie einen ähnlichen_
+_Brennwert haben wie Zucker; jedoch rufen sie keine Karies hervor, schmecken auch besser als Süss-_
+_stoffe und benötigen im Stoffwechselprozess wenig Insulin, weshalb sie von Diabetikern gerne ver-_
+_wendet werden. Die Lebensmittelindustrie arbeitet häufig mit ihnen, weil sie gut lagerfähig, hitzestabil_
+
+
+-----
+
+_und leicht löslich sind und bei der Verarbeitung ein ähnliches Volumen einnehmen wie der gewöhnliche_
+_weisse Haushaltzucker._
+_Zur Zeit sind acht Süssstoffe in Europa zugelassen, nämlich Acesulfam-K (E 950), Aspartam (E 951),_
+_Cyclamat (E 952), Saccharin (E 954), Sucralose (E 955), Thaumatin (E 957), Neohesperidin DC (E_
+_959) und Aspartam-Acesulfamsalz (E 962), deren Verwendung in bestimmten Produktgruppen wie nicht -_
+_alkoholischen Getränken, Dessertspeisen, Süsswaren (auch süss-saure Konserven, Saucen, Marmeladen_
+_etc.) und Nahrungsergänzungsmitteln ebenfalls gesetzlich geregelt ist – und die Süssstoffe müssen auf_
+_den Lebensmittel-Verpackungen genau deklariert werden._
+_Lebensmittel, die Aspartam enthalten, müssen den Hinweis ‹enthält eine Phenylalaninquelle› tragen._
+_Dieser Hinweis ist für Menschen wichtig, die unter der Krankheit ‹Phenylketonurie› (PKU) leiden. PKU_
+_ist eine vererbbare, angeborene Stoffwechselstörung, die bei einem von ca. 15 000 Neugeborenen_
+_auftritt und bereits kurz nach der Geburt diagnostiziert wird. Aufgrund eines Enzymdefektes kann bei_
+_dieser Krankheit die natürliche Aminosäure Phenylalanin, ein lebensnotwendiger Eiweissbaustein, nicht_
+_wie erforderlich abgebaut werden. Phenylalanin und abnorme Abbauprodukte davon, die sich im Körper_
+_stauen, können das Gehirn schwer schädigen. Ausserdem kann Aspartam durch den gesundheits-_
+_schädlichen Stoff Diketopiperazin verunreinigt sein, der beim Erwärmen aspartamhaltiger Speisen ent-_
+_steht. Aspartam (chemische Bezeichnung: L-Aspartyl-L-Phenylalaninmethylester) gilt als eine der gefähr-_
+_lichsten Substanzen, die in der Lebensmittelindustrie Verwendung finden. Ihm wird nachgesagt, dass_
+_es Hirnschäden, Kopfschmerzen, Multiple Sklerose (MS) ähnliche Symptome, Epilepsie, Parkinson, Alz-_
+_heimer, Stimmungswechsel, Hautwucherungen, Blindheit, Hirntumore, Bewusstseins-Umnachtung und_
+_Depressionen verursachen könne oder das Kurzzeitgedächtnis beschädige. Gemäss der Veröffentlichung_
+_der amerikanischen Zulassungsbehörde für Lebensmittel und Medikamente (Federal Drug and Food_
+_Administration [F.D.A]), soll Aspartam folgende Nebenwirkungen auslösen können: allergische Reak-_
+_tionen, Angstzustände, Arthritis, Asthma, asthmatische Reaktionen, Atembeschwerden, Brennen der_
+_Augen und des Rachens, chronische Müdigkeit, chronischer Husten, Depressionen, Durchblutungs-_
+_störungen, Durchfall, Durst oder Hunger, Erbrechen, Gedächtnisverlust, Gehirnkrebs (nachgewiesen),_
+_Gelenkschmerzen, Gewichtszunahme, Gliederschmerzen und -beschwerden, Haarausfall, hoher Blut-_
+_druck, Hörbeschwerden, Impotenz und Sexualprobleme, Infektionskrankheiten, Juckreiz und Haut -_
+_beschwerden, Kehlkopfentzündung, Konzentrationsschwierigkeiten, Kopfschmerzen, Menstruations-_
+_beschwerden und Zyklusveränderungen, Migräne, Müdigkeit, Muskelkrämpfe, nervöse Beschwerden,_
+_Panikzustände, Persönlichkeitsveränderungen, Phobien, Probleme der Blutzuckerkontrolle (Hypoglykämie_
+_und Hyperglykämie), Schlafstörungen, Schluckbeschwerden, Schmerzen beim Urinieren, Schwellungen,_
+_Schwindelanfälle, Sehbeschwerden, Sprachstörungen, Tinnitus, Übelkeit und Zittern sowie Unterleibs-_
+_schmerzen. Selbst wenn auch nur ein Teil dieser Liste zutreffen sollte, so ist eines doch gewiss: Süss-_
+_stoffe können dadurch, dass sie den Körper übertölpeln, zu unerwünschter Gewichtszunahme führen,_
+_was durch eine englische Forschungsgruppe festgestellt werden konnte. Ursache ist die sogenannte_
+_cephalische Insulinreaktion: Durch den Geschmack der Süssstoffe erwartet der Stoffwechsel eine_
+_Zuckerzufuhr und schüttet deshalb Insulin aus, worauf der Blutzuckerspiegel sinkt und sich Hunger ein-_
+_stellt – der Körper wird also in die Irre geführt. Ausserdem gewöhnt sich unser Geschmackssinn an allzu_
+_Süsses, weshalb das Verlangen nach immer mehr und immer Süsserem rasch steigt. Zwar wurden die_
+_Untersuchungsergebnisse der englischen Forschergruppe später widerlegt, jedoch ist nicht auszuschlies-_
+_sen, dass hinter solchen konträren Ergebnissen auch mächtige Wirtschaftsinteressen stecken können,_
+_denn bekanntlich sind leider viele Forscher nicht neutral, sondern eben käuflich und somit korrupt, was_
+_der Erforschung der Tatsachen nicht gerade zuträglich ist._
+_Aspartam ist ein sogenannter Dipeptidester der beiden Aminosäuren L-Asparaginsäure (auch L-Aspartat_
+_genannt) und L-Phenylalanin. Beide Aminosäuren werden mittels Mikroorganismen hergestellt und zer-_
+_fallen im menschlichen Körper wieder in ihre Grundsubstanzen, nämlich Asparaginsäure (40%), Phenyl -_
+_alanin (50%) sowie Methanol (10%). Was Phenylalanin bei Menschen mit einem Mangel oder Defekt_
+_am körpereigenen Enzym Phenylalaninhydroxylase, das Phenylalanin in Tyrosin umwandelt, anrichten_
+_kann, wurde weiter oben schon beschrieben._
+
+
+-----
+
+_Dr. Russel L. Blaylock von der Medizinischen Universität von Mississippi stellte mit Bezug auf über 500_
+_wissenschaftliche Referenzen fest, dass drastisch hohe Mengen freier ungebundener Aminosäuren wie_
+_L-Aspartat schwere chronische neurologische Störungen und eine Vielzahl anderer akuter Symptome_
+_verursacht. Die Blut-Hirn-Barriere verhindert normalerweise einen erhöhten L-Aspartat-Spiegel ebenso_
+_wie andere hohe Konzentrationen von Giften in der Versorgung des Hirns mit Blut. In der Kindheit ist_
+_diese Barriere noch nicht voll entwickelt und sie kann auch im Erwachsenenleben durch den extremen_
+_Gebrauch von Giften oder von Aminosäuren überflutet werden. Durch diese Überflutung werden die_
+_Neuronen langsam geschädigt. Bis allerdings klinische Symptome auftreten, sind bereits 75% der Hirn-_
+_zellen betroffen._
+_Methanol (auch Holzalkohol genannt, chemisch Methylalkohol), das bei der Aufspaltung von Aspartam_
+_durch das Zusammentreffen mit dem Enzym Chymotrypsin freigesetzt wird, ist ebenfalls sehr gefährlich._
+_Methanol reichert sich im Körper an und kann die sehr empfindlichen Sehnerven und die Hirnzellen_
+_schädigen. In normalen alkoholischen Getränken ist Methanol ebenfalls enthalten, wird in seiner Wirkung_
+_jedoch durch Ethylalkohol teilweise abgeschwächt. Wird dem Körper freies, ungebundenes Methanol_
+_zugeführt, wird die Absorption im Körper sogar noch beschleunigt. Wird Aspartam auf über 28,5°_
+_Celsius erwärmt, zerfällt es in seine Bestandteile, wodurch natürlich auch Methanol freigesetzt wird. Der_
+_tägliche Gebrauch von Methanol ist mit einem Grenzwert von 7,8 mg pro Deziliter festgelegt. In einem_
+_mit Aspartam gesüssten Getränk befinden sich ungefähr 56 mg Methanol. Vieltrinker kommen unter_
+_Umständen auf eine Tagesdosis von bis zu 250 mg. Das ist die 32fache Menge des empfohlenen_
+_Grenzwertes! Methanol wird vom Körper zu Formaldehyd (Formalin, chemisch Methanal) und Ameisen -_
+_säure (chemisch Methansäure) abgebaut. Formalin ist ein sehr gefährliches Nervengift und wird im_
+_Körper nicht abgebaut, sondern es reichert sich an. Formaldehyd ist krebserregend und verursacht die_
+_Zerstörung der Netzhaut, Störungen bei der_ _DNA-Replikation und Geburtsfehler. Diketeropiperazin_
+_(DKP) ist ein Beiprodukt, das bei der Erhitzung und beim Abbau von Aspartam entsteht und mit der Ent-_
+_stehung von Hirntumoren in Verbindung gebracht wird. Ameisensäure kann vom Körper zwar abge-_
+_baut werden, führt aber zu Leber- und Nierenschäden._
+_Bereits in den 1970er Jahren wurden Untersuchungen mit Cyclamat und Saccharin unternommen, durch_
+_die in Tierversuchen die krebserregende Wirkung dieser Stoffe nachgewiesen werden konnte. Zwar_
+_entkräfteten auch hier Folgestudien die entsprechenden Ergebnisse, jedoch muss auch in diesem Fall_
+_das weiter oben Festgestellte in Betracht gezogen werden._
+
+_Recherchiert man im Internet zu Aspartam und Süssstoffen allgemein, sind äusserst widersprüchliche_
+_Angaben und Hinweise zu finden. Die eine Seite findet, dass die Verwendung von Aspartam völlig_
+_harmlos sei, wie z.B. das BAG (Bundesamt für Gesundheit [Schweiz]) in folgender Empfehlung festhält:_
+_«Das Zusatzstoffpanel (AFC) der Europäischen Lebensmittelbehörde (EFSA) hat die Langzeitstudie über_
+_die Kanzerogenität von Aspartam der ‹European Ramazzini Foundation, Bologna› bewertet. In seiner_
+_Stellungnahme, die am Freitag, 5.5.06 im Rahmen einer Pressekonferenz in Rom vorgestellt wurde,_
+_kommt das Expertengremium zum Schluss, dass auf der Basis aller zurzeit zur Verfügung stehenden_
+_wissenschaftlichen Studien keinerlei Notwendigkeit besteht, weder an der Sicherheit von Aspartam zu_
+_zweifeln noch dessen kürzlich festgelegten ‹Acceptable Daily Intake (ADI)› von 40 mg/kg Körpergewicht_
+_in Frage zu stellen. Das Panel weist auch darauf hin, dass die Aufnahmemenge von Aspartam in Europa_
+_mit 10 mg/kg Körpergewicht weit unter dem festgelegten ADI-Wert liegt. Das BAG stimmt mit der Be-_
+_wertung der EFSA-Experten überein und sieht keinen Handlungsbedarf. Wir werden die Entwicklung_
+_sowie mögliche weitere Studienresultate zur Sicherheit von Aspartam zusammen mit der EFSA weiter-_
+_hin verfolgen und bei Bedarf unsere Bewertung anpassen.»_
+
+_Andere Seiten warnen eindringlichst vor der Verwendung von Süssstoffen wie Aspartam, Cyclamat und_
+_Saccharin aufgrund ihrer Wirkungen im Stoffwechsel, und einige gehen derart weit, dass sie sogar_
+_vom Gebrauch von Zucker abraten, weil auch dieser für unseren Stoffwechsel unzuträglich, wenn nicht_
+_gar gefährlich sei. Mit dem Argument, dass frühe Menschheiten den Zucker ja auch noch nicht ge-_
+
+
+-----
+
+_kannt hätten, versuchen sie den Leser dazu zu animieren, wieder in die Felsenhöhle zurückzukehren_
+_und sich am besten auch gleich wieder in Felle zu kleiden!_
+_Recherchiert man neutral und wertet die gefundenen Tatsachen vorurteilslos aus, dann ist das Ergebnis_
+_sicher, dass man tunlichst auf Süssstoffe verzichten sollte, soweit das machbar ist. In Anbetracht dessen,_
+_dass Süssstoffe zur Zeit in weit über 9000 Lebensmitteln Verwendung finden, ist wohl nicht zu ver-_
+_meiden, dass wir solche aufnehmen, ausser wir würden uns dazu entschliessen, keinerlei Convenience-_
+_Produkte (Fertignahrung oder teilweise vorgefertigte Nahrung) mehr zu uns zu nehmen, was aber nur_
+_schwerlich konsequent durchführbar ist – ausser wir würden uns päpstlicher als der Papst gebärden,_
+_was weder vernünftig noch langfristig umsetzbar ist. Hinzu kommt, dass auch tiefgekühlte Lebensmittel_
+_wie Tiefkühlgemüse oder Tiefkühlfrüchte und -beeren, tiefgekühltes Fleisch und Fisch zum Convenience_
+_Food gezählt werden und diese können wir durchaus bedenkenlos verwenden, wenn sie nicht in ir-_
+_gendeiner Art und Weise teilzubereitet sind. Süssstoffe und Zuckerersatzstoffe sind heute in der Lebens -_
+_mittelindustrie wichtige Konservierungsstoffe und Geschmacksverbesserer, weshalb wir uns unserer Ge-_
+_sundheit zuliebe genau überlegen sollten, was wir unserem Körper zumuten wollen und was nicht. Die_
+_Leiden und die üblen Konsequenzen, die wir uns durch einen zu sorglosen und unbedachten Umgang_
+_mit unseren Nahrungsmitteln zuziehen können, sind äusserst vielfältig und sicher nicht wünschenswert._
+_Wer davon ausgeht, dass alles nicht so schlimm sei und dass man bei stetiger vernünftiger Ernährung_
+_wohl keine Nachteile zu gewärtigen habe, weil ja auch die ältere Generation ihre Ernährungsfehler_
+_weitgehend ‹unbeschadet› überstanden habe, sollte bedenken, dass die heute üblichen Produktions-_
+_prozesse und -möglichkeiten vor zwanzig oder dreissig Jahren noch gar nicht gegeben waren. Ausser-_
+_dem sollte auch die markante Häufung von bestimmten Krankheiten, die aufgrund von Stoffwechsel-_
+_störungen entstehen, bedacht werden. Sie müssen nicht mit den Süssstoffen und ihrem Gebrauch_
+_zusammenhängen, können es aber – und niemand gibt uns die Gewähr, dass ausgerechnet wir selbst_
+_verschont bleiben._
+_Wie bei allem, sollten wir jedoch auch bezüglich der Lebensmittelzusatzstoffe versuchen, den Tatsachen_
+_selbständig auf den Grund zu gehen und unsere Erkenntnisse vernünftig umzusetzen, ohne in Extreme_
+_zu verfallen, denn nicht alle Entwicklungen und Erfindungen sind a priori schädlich oder gar giftig für_
+_uns, und nicht alles, was der Mensch entwickelt ist negativ. Vernunft und Verstand und sorgfältiges Hinter -_
+_fragen aller Aussagen und Behauptungen sowie unser gesunder Menschenverstand sind unsere einzigen_
+_Waffen gegen alles und jedes, das propagiert wird oder uns aufgezwungen werden soll. Dabei ist es_
+_falsch zu behaupten, dass man sich aus Zeit- und/oder Interessengründen nicht mit allem so eingehend_
+_befassen könne, wie das notwendig sei, um zu einem massgebenden Urteil zu gelangen. Oft ist das_
+_sogar sehr einfach und ohne grosse Studien mit nur ein wenig gesundem Verstand und ein bisschen_
+_Vernunft zu erreichen, denn wenn sich die Widersprüche jagen und eine wissenschaftliche Expertise_
+_die andere entkräftet, reicht es oft schon aus zu ermitteln, welche wissenschaftliche Forschungsgruppe_
+_von wem bezahlt wird resp. welchen Interessen die Forschungsergebnisse dienen. Nicht selten ist näm-_
+_lich festzustellen, dass Verharmlosungen entweder durch die Wirtschaft selbst oder durch bestimmte_
+_Interessengruppen initiiert sind oder extreme Gefährlichkeit von Fortschritts-Widerspenstigen, Angst-_
+_machern und Verschwörungstheoretikern attestiert wird._
+
+_Im Falle von Süssstoffen und Zucker können wir auf zwei unabhängige Quellen zurückgreifen, die auf-_
+_grund ihrer wissenschaftlichen Erkenntnisse und ihrer Errungenschaften absolut unangreifbar sind. Ausser -_
+_halb eines offiziellen Gesprächs, im rein privaten Rahmen, sagte Ptaah im Herbst 2009 zu Billy, dass_
+_Süssstoffe nicht nur diverse Krebsarten auslösen, sondern auch Parkinson sowie Nervenstörungen bis_
+_hin zu Nervenzerstörungen und verschiedene Formen von Schizophrenie hervorrufen können. Quetzal_
+_äusserte sich auf eine Frage von Billy im 223. Kontaktbericht vom 1. Mai 1988 (Plejadisch-plejarische_
+_Kontaktberichte, Block 5) folgendermassen zur Verwendung von Süssstoffen:_
+
+**Billy … Und wie steht es mit dem Saccharin, das man während dem Zweiten Weltkrieg vielfach als**
+_Zuckerersatz verwendet hat? Und was ist mit den Süssstoffen, die heutzutage in Gebrauch sind, wie_
+
+
+-----
+
+_eben auch das Cyclamat, oder wie das Zeug heisst? Kann ich das gebrauchen, um mein gestiegenes_
+_Gewicht zu reduzieren – eben, dass ich statt Zucker solche Süssstoffe nehme?_
+
+**Quetzal**
+_43. Das solltest du vermeiden, denn Süssstoffe verschiedener natürlicher und chemischer Art, besonders_
+_in Form von Cyclamat, sind teilweise sehr gesundheitsschädlich und bewirken in der Regel genau_
+_das Gegenteil, nämlich dass sie die Gewichtszunahme durch vermehrten Appetit fördern._
+_44. Ausserdem sind sie äusserst ungesund, wie ich schon sagte._
+_45. Tatsächlich nimmt der Körper nämlich viele verschiedene Stoffe der Süssmacher und insbesondere_
+_Cyclamat auf und schädigt dadurch, wie gesagt, das gesundheitliche Wohlbefinden und das Immun -_
+_system, und zwar ganz besonders bei jenen Menschen, deren Darmfunktionen dermassen sind, dass_
+_sie eben den Süssstoff in Form von Cyclamat in Cyclohexylamin umwandeln._
+_46. Ein Gift, das in grösseren Mengen zu einem hohen Blutdruck führt und dadurch unter Umständen_
+_lebensgefährlich werden kann._
+_47. Und tatsächlich sterben manche Menschen auch daran, ohne dass von den Ärzten der eigentliche_
+_Grund für die Todesursache erkannt werden kann – in Ermangelung der Kenntnisse um die Cycla-_
+_mat-Schädlichkeit._
+_48. Weiter erzeugt das Cyclamat aber auch Schädigungen an den Spermien sowie den Hoden des_
+_Mannes, wodurch eine Impotenz entstehen kann._
+_49. Auch bei der Frau können Schädigungen durch Süssstoffe, auch speziell durch Cyclamat, in Er-_
+_scheinung treten, durch die eine Unfruchtbarkeit entsteht._
+_50. Ausserdem können Süssstoffe der Form Cyclamat sowohl bei Männern und Frauen, wie aber auch_
+_bei Tieren eine krebsfördernde Wirkung zeitigen._
+
+
+**Billy Und was sollen denn jene Menschen machen, die an Diabetes leiden, die können ja nichts Süsses**
+_mehr essen, wenn das so ist._
+
+**Quetzal**
+_51. Es gibt ganz natürliche und gesunde Süssstoffe von Pflanzen, Beeren, Früchten und Gemüsen, die_
+_für Diabetiker unschädlich sind, wobei jedoch darauf geachtet werden muss, dass sie wirklich_
+_unschädlich sind, denn manche pflanzliche Süssstoffe sind ebenfalls mehr oder weniger schädlich_
+_für die Gesundheit und das allgemeine Wohlbefinden sowie für das Immunsystem._
+
+**Billy Diese Pflanzen usw. müsste man kennen.**
+
+**Quetzal**
+_52. Die sind bekannt, folglich sie nicht speziell genannt werden müssen._
+
+_Im 447. Kontaktbericht vom 20. April 2007 (Plejadisch-plejarische Kontaktberichte, Block 11, in Vorbe -_
+_reitung) äusserte sich Ptaah zur Verwendung von Zucker folgendermassen:_
+
+_43. Brauner Zucker oder Süssstoffe sollten vermieden werden, denn diese sind gesundheitlich bezogen_
+_sehr viel bedenklicher als weisser Zucker._
+_44. Brauner Zucker und Süssstoffe haben auch die Eigenschaft, dass sie eine Stressanfälligkeit aus -_
+_lösen können, wobei Stress wiederum eine Schrumpfung des Gehirns hervorruft, deren weitere Folge_
+_Angstzustände sind, die schnell chronisch werden, wodurch sich ergibt, dass die Psyche geschädigt_
+_wird und auch Depressionen letztendliche Folgen sind._
+_45. Das soll nun aber nicht bedeuten, dass weisser Zucker speziell gesund sein soll, denn dieser ist_
+_dauernd in grösseren Mengen genossen ebenfalls gesundheitsschädlich und führt zur Fettleibig-_
+_keit._
+
+
+-----
+
+_Zum Thema Zucker wurden im Laufe der Jahre auch noch andere Hinweise gegeben, jedoch soll es_
+_an dieser Stelle mit dem oben genannten Zitat genug sein, da alle Informationen den Rahmen des vor-_
+_liegenden Artikels sprengen würden, sollten sie im einzelnen genannt werden._
+
+_Besonders interessant ist es zu sehen, wie weit die Forschungen bezüglich der Süssstoffe bereits ge-_
+_diehen sind und dass alle bisherigen Ergebnisse, sofern sie von unabhängigen Wissenschaftlern und_
+_neutralen Forschungsgruppen erarbeitet wurden, die Aussagen von Quetzal und Ptaah aus den Jahren_
+_1988 und 2007 stützen und untermauern. In den Bereichen, in denen das noch nicht der Fall ist, kann_
+_davon ausgegangen werden, dass die entsprechenden Untersuchungen entweder noch nicht im Gange_
+_sind oder noch nicht veröffentlicht wurden. Noch können wir uns auf die Empfehlungen der Plejaren blind-_
+_lings verlassen – in künftiger Zeit, wenn sie uns einmal nicht mehr beistehen werden, weil wir unseren_
+_Weg alleine finden müssen, können wir uns nur noch auf unsere bis dann hoffentlich wachsende Ver-_
+_nunft und unseren noch äusserst schulungsbedürftigen Verstand verlassen, mit dem wir alles zu hinter-_
+_fragen haben und der uns hilft, die Risiken abzuwägen, die wir eingehen wollen. In bezug auf unsere_
+_Gesundheit allerdings sollten wir schon früh lernen, unsere Gelüste und unser Verlangen zu kontrollieren_
+_und die Gefahren einschätzen lernen, die wir eingehen, denn es ist eine Binsenwahrheit, dass das, was_
+_wir erst einmal ruiniert haben, nicht wieder rückgängig gemacht werden kann._
+_Bernadette Brand, Schweiz_
+
+### VORSCHAU PASSIVGRUPPE-ZUSAMMENKUNFT 2010
+
+_Die nächste Passivgruppe-Zusammenkunft findet am 22. Mai 2010 in der Turnhalle der Volksschule,_
+_Sonnenhofstrasse 2, 8374 Oberwangen/TG statt. Reserviert Euch dieses Datum heute schon!_
+_Die persönlichen Einladungen mit näheren Hinweisen folgen zu gegebener Zeit._
+
+### VORTRÄGE 2010
+Auch im Jahr 2010 halten Referenten der FIGU wieder Geisteslehre-Vorträge usw. im Saal des Centers:
+
+**24. April 2010:**
+_Philia Stauber_ **Individualitätsblock:**
+_Das menschliche Gedächtnis aus bewusstseinsmässiger Sicht._
+_Patric Chenaux_ **Gewaltsame Gewaltlosigkeit**
+_Deren Aspekte im persönlichen, zwischenmenschlichen und gesellschaftlichen Leben_
+
+**26. Juni 2010:**
+_Philia Stauber_ **Individualitätsblock:**
+_Das Ego, seine Funktion, seine Abhängigkeit und sein Wirken._
+_Hans-Georg Lanzendorfer_
+**Leben, Sterben, Todesleben**
+_Über den alltäglichen Umgang mit dem eigenen Sterben und der Vergänglichkeit_
+
+
+-----
+
+**28. August 2010:**
+_Bernadette Brand_ **Du darfst …**
+_Über die Umsetzung der Geisteslehre ins tägliche Leben_
+_Pius Keller_ **Kennzeichen des Lebens und Unterschiede zwischen Pflanze, Mensch, Getier**
+**und Tier II**
+_Über Merkmale und einige markante Kennzeichen und Grundlagen, die in ihrer_
+_Gesamtheit materielles Leben ausmachen sowie vom Bau und Leben der Pflanzen und_
+_deren Unterscheidung zu Getier, Tier und Mensch._
+
+**23. Oktober 2010:**
+_Christian Frehner_ **Entgleisung des Denkens**
+_Wenn das Leben nichts mehr wert ist._
+_Natan Brand_ **Erziehung ist alles!**
+_Über Erziehungsmethoden und -massnahmen und die Anwendung der gewaltsamen_
+_Gewaltlosigkeit._
+
+Pünktlicher Vortragsbeginn um 14.00 Uhr.
+
+Eintritt: CHF 7.– (Eintritts-Ermässigung für FIGU-Mitglieder bei Vor weisen eines gültigen Ausweises.)
+
+An den Vortrags-Samstagen trifft sich im Semjase-Silver-Star-Center um 19.00 Uhr eine Studiengruppe,
+zu der alle interessierten Passiv-Mitglieder herzlich eingeladen sind.
+_Die Kerngruppe der 49_
+
+**IMPRESSUM**
+**FIGU-Bulletin**
+**Druck und Verlag: Wassermannzeit-Verlag, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+**Redaktion: ‹Billy› Eduard Albert Meier, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+_Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89_
+**Abonnemente:**
+_Erscheint unregelmässig; Preis pro Einzelnummer: CHF 2.– (Zusammen mit einem Abonnement der ‹Stimme der Wasser-_
+_mannzeit› oder der ‹Geisteslehre-Briefe› als Gratis-Beilage.)_
+**Postcheck-Konto: FIGU-CH-8495 Schmidrüti, PC 80-13703-3**
+**E-Mail: info@figu.org**
+**Internet: www.figu.org**
+**FIGU-Shop: http://shop.figu.org**
+
+
+-----
+

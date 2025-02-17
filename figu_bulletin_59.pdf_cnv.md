@@ -1,0 +1,1272 @@
+# FIGU-BULLETIN
+
+### Erscheinungsweise: Internet: http://www.figu.org 13. Jahrgang Sporadisch E-Mail:  info@figu.org Nr. 59, März 2007
+
+## Neue Internetauftritte der FIGU online
+Seit vielen Jahren verbreitet die FIGU ihre Schriften, Texte und Broschüren im Internet. In inzwischen acht
+verschiedenen Sprachen steht Interessierten eine schier unendliche Flut an verschiedenen Texten der FIGU
+zur Verfügung. Während Italienisch, Tschechisch und Japanisch von den entsprechenden Landesgruppen
+betreut wird, kümmert sich das Mutterzentrum nebst dem Deutschen auch um die Sprachen jener Länder,
+die noch keine FIGU-Organisationen aufgebaut haben, dazu zählen Russisch, Französisch, Spanisch und
+Englisch – letzterer Bereich wird jedoch bald von der FIGU Society USA übernommen.
+
+Drei dieser Online-Seiten erstrahlen seit kurzem in neuem Glanz, nämlich die Sprachen Russisch
+(http://ru.figu.org), Französisch (http://fr.figu.org) und Spanisch (http://es.figu.org). Alle drei Internetauftritte wurden komplett überarbeitet: Das Design ist klarer, deutlicher strukturiert und verwendet jetzt einen
+weissen Text-Hintergrund. Die Navigation wurde bewusst, wie bereits im Deutschen, den Haupt-Arbeitsbereichen der FIGU nachempfunden: ‹Verein›, ‹Geisteslehre›, ‹Ufologie› und ‹Überbevölkerung›. Die
+neuen Websites basieren auf einem sogenannten Content Management System (CMS), wodurch ab sofort
+keine Experten mehr für die Betreuung erforderlich sind, was uns die Arbeit natürlich enorm erleichtert.
+So kann beispielsweise die Überbevölkerungsgruppe der Kerngruppe die Pflege des entsprechenden
+Website-Bereiches selbst übernehmen.
+Stephan A. Rickauer
+Informatik-Gruppe der Kerngruppe der 49
+
+## Aus der Zeitung «Geheimnisse des XX. Jahrhunderts», Nr. 43 (166), St. Petersburg, Russland (erscheint seit Mai 1998) E-Mail: pr@p-c.ru
+Übersetzt: Ludmilla Kalmykowa, Kurgan, Russland
+
+## Man hat einen heissen Wunsch, diese Aufnahmen als Fälschung zu beurteilen.
+Genau das meinte der amerikanische Experte und Computermodellierer Elan Friswell, als er das berühmte
+Photoalbum des schweizerischen Kontaktmanns Billy Meier betrachtete, in dem es Hunderte ausgezeichneter Aufnahmen von UFOs gibt! Schon viele Jahre lassen diese Photos begeisterte Anhänger ausserirdischer Besucher von anderen Planeten nach neuen Beweisen suchen, die diese Tatsachen bestätigen
+könnten, und bringen die Skeptiker, die hilflos sind, Billy Meier ‹Betrügereien› nachzuweisen, in Wut. Ein
+starker Beweisgrund gegen solche Beschuldigungen besteht darin, dass Billy Meier invalid ist, denn er hat
+
+
+-----
+
+nur einen Arm. So bleibt den Menschen mit zwei Armen nur übrig, verzweifelt ihre Arme auszubreiten,
+weil der Umfang der vom Kontaktmann gemachten Arbeit seine physischen Möglichkeiten in grossem
+Masse übertrifft.
+
+**Elan Friswell ist für die Objektivität!**
+Elan, wie schon oben gesagt, ist Experte im Computermodellieren, und er beschloss, diese merkwürdige
+Sache selbständig zu untersuchen und wenigstens für sich selbst ein endgültiges Verdikt über die Entstehung der Kino- und Photomaterialien Billy Meiers zu erstellen. Vor allem erklärte der Experte den
+Journalisten, dass er nicht vorhabe, die Behauptungen des Kontaktmanns in bezug auf die Wahrhaftigkeit der Aufnahmen zu bestreiten, obwohl er Meiers Überzeugung der Realität seiner Kontakte mit
+Ausserirdischen nicht teile. Wie der Experte sagte, sei er andererseits ganz tolerant gegenüber der
+Existenz der UFOs, weil er selbst im Alter von 12 Jahren – zusammen mit Freunden – sehr merkwürdige
+Flugobjekte gesehen habe, die auf einer geringen Höhe geflogen seien. Eines davon war wie ein Stück
+Torte und metallfarbeähnlich, das andere hatte die Form eines Kubus mit einer ‹Flosse› oben, das dritte
+war einer Glocke ähnlich.
+
+**Unruhestifter**
+Billy Meier trat zum ersten Mal vor 25 Jahren auf, als er in einer Zeitschrift seine wunderbaren Aufnahmen
+der UFOs in guter Qualität veröffentlichte. Im Kommentar zu den Photos schrieb er, dass er UFOs schon
+im Jahre 1942 im Alter von 5 Jahren gesehen habe (das heisst, 5 Jahre bevor der berühmte Kenneth Arnold
+in den USA seine Beobachtungen machte, die zum Beginn des ‹Untertassenbooms› wurden). Der Kleine
+behielt es für sein ganzes Leben in Erinnerung; einen riesigen Diskus, der um die Kirche kreiste. Im Januar
+1975, als Meier einmal aus dem Haus ging – schon als erwachsener Mensch – hörte er ein merkwürdiges
+summendes Geräusch, das von oben kam. Er sah hinauf und entdeckte am Himmel ein silbernes Objekt
+in Form einer Untertasse, das langsam über ihn hinwegschwebte. Diesmal hatte er eine Photokamera in
+der Hand, und er benutzte sie sofort. Danach landete das Objekt – daraus entstieg ein Mensch und begab
+sich geradewegs zu Meier. Das war das erste von mehr als hundert Treffen Billys mit den Ausserirdischen
+aus dem Sternbild der Plejaden, das zum Sternbild Stier gehört, das von uns 430 Lichtjahre entfernt ist.
+Die Ausserirdischen sagten Billy, dass sie für ihre Reise zur Erde und zurück nur 14 Stunden bräuchten!
+Seit der Zeit machte Billy mehr als tausend Aufnahmen der ausserirdischen Schiffe und nicht weniger als
+acht Kinosjuets mit der Teilnahme der Ausserirdischen. Er nahm auch – in Anwesenheit von 15 Zeugen –
+die Geräusche der fliegenden UFOs auf Tonband auf und erzählte, er habe Metallmuster und noch einige
+Dinge für wissbegierige Menschen bekommen.
+
+**Warum vermeiden ‹sie› Treffen mit den Regierungsleitern?**
+Warum wählen die Ausserirdischen für ihre Kontakte nicht Mitglieder der Regierung aus, sondern einfache Bürger? Warum landen sie nicht auf der Wiese vor dem Weissen Haus in den USA oder auf dem
+Roten Platz in Moskau? Die Ufologen behaupten, die Ausserirdischen würden für ihre Kontakte Menschen
+mit einem besonders komplizierten Schicksal vorziehen. Jedenfalls, gerade zu solchen Menschen gehört
+Billy Meier.
+Der Junge verliess die Schule im Alter von 12 Jahren, er schwärmte in dieser Zeit für Motorrennen, einige Jahre später arbeitete er im Zollamt, diente dann in der Französischen Fremdenlegion, studierte zwei
+Jahre Weisheiten der indischen Lehre in bezug auf Reinkarnation, suchte im Auftrag der amerikanischen
+Geheimdienste nach Drogenverkäufern (Drogendealer), wanderte mit Schlangenfängern im Dschungel
+und lernte die Tiefen der türkischen Magie usw. Es ist kein Wunder, dass er in all diesen gefährlichen
+Abenteuern seinen rechten Arm verloren hat.
+
+
+-----
+
+**Die Kritiker**
+Die ausserirdischen Kontakte von Billy Meier gerieten selbstverständlich sofort in den Brennpunkt der Aufmerksamkeit verkorkster Skeptiker, wie Mikel Schermer und James Randy an der Spitze. Der letzte ist
+dadurch bekannt, dass er demjenigen eine Prämie in der Summe von einer Million Dollar versprach, der
+wenigstens auch nur eine paranormale Erscheinung ‹enthülle›. Da aber der Skeptiker sich von der Million
+nicht trennen will, anerkennt er hartnäckig schon viele Jahre nichts als ‹wahrhaftig genug› und als Tatsache, was man ihm vorlegt. Es ist daher kein Wunder, dass auch die ufologischen Kinomaterialien von
+Billy Meier als Fälschungen erklärt wurden, und er selbst als Schwindler bezeichnet wurde! Diese Beschuldigungen hängen schon 25 Jahre lang über dem Eiferer, aber Billys Anhänger blieben auch nicht
+mit den Händen im Schoss sitzen. Sie organisierten Expertenprüfungen aller seiner Materialien, mit Hilfe
+verschiedener Spezialisten, einschliesslich Computerspezialisten und Meistern der Filmtricks. Als Resultat
+wurde ein Verdikt erschaffen: «Die Aufnahmen der UFOs, die Billy Meier machte, lassen sich durch alle
+heute vorhandenen technischen Mittel nicht reproduzieren (hervorbringen)!»
+
+**Die Hartnäckigkeit von Woge Rees**
+Anfang Februar 2001 erschien in der Arena «des Kampfes für die Wahrheit» Woge Rees, der führende
+Experte des Zentrums für Wunderenthüllungen aus Los Angeles. Er wählte für ‹eigene Expertisen› einige
+Aufnahmen aus dem Photoalbum Billy Meiers und acht Fragmente seiner Kinomaterialien. Nach geraumer
+Zeit erklärten die Experten von Woge Rees, dass die ausgewählten Muster ‹leicht zu reproduzierende
+Fälschungen› seien. Nach 2 Jahren bombardierten die Teilnehmer reihenweiser ufologischer Konferenzen
+Woge Rees mit den Forderungen, seine ‹leicht zu reproduzierenden› Duplikate vorzuzeigen. Als Antwort
+bekamen alle etwas Undeutliches zu hören: Angeblich konnte Rees kein ehemaliges Photolabor finden,
+dessen Dienste Billy Meier benutzt hatte! Also konnte Woge Rees mit seinem ganzen Team im Laufe von
+3 Jahren unermüdlicher Arbeit kein einziges reproduziertes Photo aus Billys Album der Öffentlichkeit vorzeigen, während der einarmige Billy in dieser Zeit Hunderte von Photos machen konnte! Es ist interessant,
+dass es den Skeptikern auch nicht gelungen ist, die Aufnahme der Geräusche des vorbeifliegenden UFOs
+zu reproduzieren, die Meier in Anwesenheit von 15 Zeugen in einem weiten Feld gemacht hat. Das
+Geräusch erschallte gleichzeitig auf 32 Frequenzen, wobei sich deren 24 im hörbaren Wellenbereich befanden, und 8 im unhörbaren Bereich.
+
+**Die Prophezeiungen von Billy Meier**
+Als Bestätigung der Realität seiner Kontakte mit den Ausserirdischen veröffentlichte Billy Meier regelmässig
+Erklärungen, die er angeblich von ihnen bekommen hatte. Zum Beispiel zeigte im April 2003 der Dekan
+der astronomischen Fakultät der Universität von Cornwell, Josef Veverka(?), den Journalisten einen Artikel
+von Meier in bezug auf Besonderheiten der Ringe Jupiters und seiner Satelliten, der im Oktober 1978 veröffentlicht wurde, das heisst 5 Monate früher, als die Aufnahmen von Bord der interkontinentalen Raumsonde ‹Voyager› gemacht worden waren und die von diesen Besonderheiten zeugten! In demselben
+Artikel nannte der Autor den Jupiter-Satelliten Europa als aktivsten Körper (im Sonnensystem) in bezug
+auf vulkanische Tätigkeit. Offizielle (astronomische) Angaben darüber wurden erst im März 1979 bekannt. Meier sagte auch das Vorhandensein der Eisbedeckung auf dem Jupiter-Satelliten Europa und die
+glatte Oberfläche auf (dem Mond) Io voraus. Und er nannte auch die chemische Zusammensetzung der
+Jupiter-Ringe.
+Im Februar 1995 veröffentlichte Billy Meier eine ausführliche Liste seiner Voraussagen, die angeblich mit
+Hilfe seiner kosmischen ‹Freunde› gemacht worden waren. Unter anderem figurierten dort Angriffe gegen
+die USA, Aktivierung der islamistischen Fundamentalisten, zunehmende Verbreitung von AIDS, Ansteckung
+der Tiere mit BSE, Erscheinen neuer Krankheiten, Erhöhung der Drohung chemischer Kriege, mögliche
+Havarien in Atomkraftwerken.
+
+
+-----
+
+**Der Artikel beinhaltete sechs Photos. Siehe folgende Liste:**
+Die Photos:
+1. ‹Unruhestifter› im Jahre 2004. (Anm. Billy = Portrait Billy)
+2. Das ausdrucksvollste Photo vom ausserirdischen Schiff der Plejadier. (Anm. Billy = Hasenböhl-Photo)
+3. UFO über dem Hügel. (Anm. Billy = gefälschtes Photo)
+4. Die Aufnahme, die von Billy Meier 1975 gemacht wurde. (Anm. Billy = Bachtelhörnli-Photo)
+5. Das Photo von 1976. (Anm. Billy = Hasenböhl-Photo)
+6. Das Photo in den Bergen. 1975 (Anm. Billy = gefälschtes Photo)
+GERMAN GORDEJEW
+
+## Wenn Willkür, Kultreligionen und Hexenwahn gedeihen
+### oder wie Vernunft, Urteilskraft und Menschenwürde dem Glaubenswahn ‹geopfert› werden!
+
+Wegen christlichen Glaubens vor Gericht – weil er zum christlichen Glauben übergetreten ist, droht einem
+42 Jahre alten Mann in Afghanistan die Todesstrafe (Tages-Anzeiger, Zürich, 20. März 2006). Hexerei –
+wegen angeblicher Hexerei sind im nordostindischen Bundesstaat Assam ein 60jähriger Mann und vier
+seiner Kinder getötet worden (Tages-Anzeiger, Zürich, 20. März 2006). Haftentlassung gefährdet – eine
+vorzeitige Haftentlassung des russischen Ölmagnaten Michail Chodorkowski ist gefährdet. Er habe an
+einem falschen Ort Tee getrunken und dafür sieben Tage Strafarrest bekommen (Tages-Anzeiger, Zürich,
+21. März 2006).
+
+Hinter den vorgenannten Zeitungsschlagzeilen verstecken sich planetare, menschliche Tragödien, wie sie
+für diese Erdenwelt bezeichnend sind und sich im grossen wie im kleinen täglich millionenfach wiederholen. Sie basieren auf der Tatsache, dass Milliarden von Menschen dieses Planeten der festen Überzeugung sind, gemäss ihrer vermeintlich einzig wahren göttlichen Gesetze und kultreligiösen Richtlinien
+richtig zu leben und zu handeln. In ihrem Wahnglauben sind sie geblendet und verblendet von ideologischen, kultreligiösen oder juristischen Vorschriften und Glaubensbekenntnissen, denen sie als eigentliche
+Lebensgrundlage nacheifern und deren Befolgung sie als tieferen Sinn des Lebens betrachten und gewaltsam missionierend verkünden. Ohne diese wahrlichen Fakten der Abhängigkeit zu erkennen, vertreten
+die religionsabhängigen Menschen jedoch in Tat und Wahrheit in keiner Art und Weise ihre eigenen
+Überlegungen, Erkenntnisse oder Lebenserfahrungen. Erst recht nicht, wenn sie von sich selbst behaupten,
+irgendwelche göttliche Erfahrungen gemacht zu haben oder himmlisch-göttliche Eingebungen oder die
+Erleuchtung der Auserwählten zu erhalten. Ihre Handlungen, Ausführungen und ihr Denken beruhen auf
+fremden Ideen, Gedanken, Meinungen und auf vorgeschriebenen Regeln, religiösen Vorschriften, Richtlinien, Verhaltensnormen, psychologischen Beeinflussungen, juristischer Scheingerechtigkeit oder der
+Willkür irgendwelcher Vorbeter/innen, Priester, Zauberer und Heiler usw. Die kritiklose Befolgung ideologischer und/oder religiöser Grundsätze wird im kultreligiösen Wahnglauben bis zur Selbstaufgabe
+vertreten und verfochten, wodurch die Menschen ihre eigene Identität verleugnen und missachten. Die
+wahngläubigen und abhängigen Menschen werden zu demütigen und unselbständigen Nobodys und
+hörigen Sklaven degradiert, wobei ihre bewusstseinsmässige und psychische Entwicklung mit jedem Tag
+ihrer Schöpfungsentfremdung jämmerlich verkümmert. Eine gegenseitige und übergreifende Kontrolle
+und Drangsalierung der Gläubigen wird institutionalisiert und die Aufdeckung religiöser Fehltritte und
+Übertretungen innerhalb der Glaubensgemeinschaft mit fadenscheinigen Versprechungen belohnt.
+Ein wesentliches Motiv unzähliger kultreligiöser und wahngläubiger Menschen beruht im Prinzip der Einmischung in fremde Angelegenheiten, selbst wenn es sich dabei um die ureigenste Privat- und Intimsphäre
+
+
+-----
+
+eines sehr nahen Mitmenschen handelt. Das Christentum hat für diese Kampagne der Gewalt den Begriff
+Missionierung erschaffen. Die Anhänger verschiedenster Glaubensrichtungen werden untereinander und
+gemäss den eigenen falschen kultreligiösen Vorstellungen und Massstäben der jeweiligen Religionslehre
+beurteilt, bewertet und gemessen. Der Konkurrenzkampf um die himmlischen Eliteplätze wird mit Terrorismus, Folter und Meuchelmorden hart umkämpft und kostet Tausenden von Frauen, Kindern und Männern
+das Leben. Sie werden ermordet, weil sie eine ‹falsche› Meinung, einen anderen religiösen Glauben oder
+eine andere Lebenseinstellung vertreten, sich anders verhalten, zu eigenwillig gekleidet sind oder irgendeiner der zahllosen kultreligiösen Floskeln, den Geboten oder Dogmen widersprechen. Der blinde Glaube
+wird zum wahnsinnigen Fanatismus, lässt jegliche psychischen Gefühlsregungen im Menschen verschwinden und vernichtet den Respekt, die Ehrfurcht, Würde und Achtung vor jeglichem Leben. Im
+Namen ihres Glaubens, eines Wahnglaubens, imaginärer Göttinnen oder Götter geben sich fanatische
+Menschen die selbsternannte Befugnis, andere und Andersdenkende zu massakrieren, zu ermorden und
+zu quälen, wenn deren Glaube und Lebenseinstellung nicht den eigenen Ansichten entsprechen oder nicht
+derselben Kultreligion angehören. Entgegen den falschen Vorstellungen missionierenden Eifers von
+Religionsverblendeten, führt diese Überzeugungsarbeit und Missionierung jedoch nicht zum Wohl der
+Menschen, sondern zu einer psychischen und bewusstseinsmässigen Not, Vergewaltigung und Schändung.
+Derartige Verhaltensweisen zeugen von einer grossen bewusstseinsmässigen und psychischen Degeneration und Entartung. Sie sind das Ergebnis jahrtausendealter Unterdrückung, Rücksichtslosigkeit und
+Manipulation durch kultreligiöse Indoktrinierung. Diese einmischende, gewaltsame und bestrafende
+Missionierung bildet jedoch in zahlreichen Regionen dieser Erde noch immer den Spiegel einer gewissen
+bewusstseinsmässigen Entwicklung. Selbst in den sogenannten zivilisierten Nationen und Kulturen wird
+die Einmischung in fremde Angelegenheiten mit psychologischen Argumentationen, vermeintlicher
+Nächstenliebe, Verantwortung oder als Lebenshilfe deklariert. Das wahre Ziel dient jedoch lediglich der
+persönlichen Gierbefriedigung, Machtausübung und Manipulation der Menschen. Ebenso zeigt sich auch
+im modernen Hexenglauben noch immer eine sehr grosse bewusstseinsmässige Rückständigkeit vieler
+Menschen dieses Planeten. Das Bewusstsein und die Gewissheit, selbstverantwortlich, selbstbestimmend
+und Teil einer urgewaltigen Schöpfung zu sein, ist für zahlreiche Menschen dieser Erde eine unverständliche und kaum vorstellbare Wahrheit. Die Schöpfung, ihre Gesetze und Prinzipien werden auf Magie,
+Esoterik, göttliche Führung, Kultreligionen oder auf den Inhalt eines Aber- resp. Wahnglaubens reduziert
+oder mit göttlichen Prinzipien und göttlicher Allmacht gleichgestellt. Solange jedoch Menschen der Wahngläubigkeit, kultreligiösem Terrorismus, Glaubensfanatismus oder dem Aberglauben verfallen, gehören
+eingehend erwähnte Zeitungsmeldungen zum irdischen Alltag, was folgende weitere Berichte untermauern:
+Tages-Anzeiger, Zürich, 7. Juni 2006 – Inderin heiratet eine Schlange; Tages-Anzeiger, Zürich, 6. Juni
+2006 – Bush will Verbot von Homo-Ehen; Tages-Anzeiger, Zürich, 1. Juni 2006 – Bauer im Piemont hielt
+Sklaven usw. Paradoxerweise werden aber vielfach gerade jene Menschen, die vehement die kultreligiöse
+Einengung und Versklavung von Menschen verurteilen und bekämpfen, selbst von den Opfern der kultreligiösen Unterdrückung als Lügner/innen und Verleumder beschimpft. Daher gleicht auch die Informations- und Aufklärungsarbeit der FIGU noch während Jahrhunderten einem Kampf gegen Windmühlen.
+Doch steter Tropfen höhlt den Stein, auch wenn die Erweckungsphase der Menschen aus ihrer bewusstseinsmässigen Lethargie, kultreligiösen Verblendung und Wahngläubigkeit noch lange Zeit in Anspruch
+nehmen wird. Dennoch sind auf dieser Erde nebst der Lehre der FIGU gelegentlich auch weitere kleine
+Lichtblicke in der Dunkelheit bewusstseinsmässiger Entwicklung anzutreffen. So hat der französische
+Philosoph Michel Onfray in seinem neuesten Buch ‹Wir brauchen keinen Gott› (TagesAnzeiger, Zürich,
+vom Montag, 13. März 2006) vollkommen richtig erkannt, dass Kultreligionen grundsätzlich keinen Fortschritt, sondern einzig und allein Evolutionshemmung, bewusstseinsmässiges und psychisches Leid, Not
+und Terror auf der Erde verbreiten.
+Hans-Georg Lanzendorfer, Schweiz
+
+
+-----
+
+## Aus einem Studienbericht
+### Beginn und Ende einer kreierten neuen Persönlichkeit inklusive Bewusstsein und Ich/Ego bis zur Wiederauflösung
+
+«Die Geistform, der Geist, ist in sich positiv und negativ neutral. Der Gesamtbewusstseinblock ist in sich
+ebenfalls positiv und negativ neutral. Zusammen aber ist die Geistform positiv und der Gesamtbewusstseinblock negativ.
+Der vor Urzeiten von der Geistform zu Beginn kreierte Gesamtbewusstseinblock kreiert seinerseits gemäss
+den Recherchen aus den früheren Inkarnationen jeweils eine neue einmalige Persönlichkeit des Menschen
+in Ausgeglichenheit positiv und negativ und dazu das neue materielle Bewusstsein, das anfänglich noch
+total leer ist, sowie das neue Ich/Ego.
+Nach dem 21. Tag nach der Zeugung, sei sie durch zwei Menschen, Samenbank oder Klonung zustande
+gekommen, erfolgt die Inkarnation der Geistform und des Gesamtbewusstseinblocks inklusive der kreierten
+neuen Persönlichkeit, des noch leeren materiellen Bewusstseins und des Ich/Egos in einen bereitliegenden
+Embryo. Nach diesem Vorgang wird das leere Bewusstsein während der Zeit bis zur Geburt des Menschen
+angefüllt und ausgestattet mit positiven und negativen Fähigkeiten, Talenten, Erfahrungen, Empfindungen,
+Wissen, Eigenschaften, Neigungen etc. aus dem Wissens- und Erfahrungsschatz früherer Erdenleben aus
+den Speicherbänken, sowie zusätzlich der noch unbekannten positiven und negativen Gene der Eltern,
+die den Embryo zeugten, ebenso die Fähigkeit mit Denkvorgängen einen wahren Willensaufbau aus
+reinen Tatsachen, Wahrheiten, Logik, wahrheitlichem Wissen und neutraler Form der Konzentration aufzubauen und in Bewegung zu bringen, was schlussendlich zur wahren Freiheit des eigenen freien Willens
+der Persönlichkeit führt.
+Nach der Geburt beginnt für die Persönlichkeit die grosse Auseinandersetzung, einerseits mit dem allseits
+gespeicherten Positiven und Negativen im Bewusstsein während der Schwangerschaft, andererseits mit
+der Aussenwelt der Familie, Umgebung, dem Land und der Art des Einsatzes des freien Willens, um die
+gesetzte Zieletappe der Evolution in dem neuen Erdendurchgang zu erfüllen. Entscheidend wird sein, ob
+und wie man die allfälligen positiven Gewinne aus den Speicherbänken der früheren Erdenleben zusätzlich abrufen oder einfliessen lassen kann, um ein möglichst ausgeglichenes Erdenleben positiv-negativ zu
+gestalten.
+Noch einmal anders ausgedrückt: Da weder die den Embryo zeugende Ausführungsart noch die zukünftige Familie, noch der nicht vorausschaubare verkürzte Zeitpunkt des Startes einer Neugeburt mit der
+Möglichkeit der dadurch entstandenen Reifedefizite vom Gesamtbewusstseinblock bei der Kreierung der
+neuen Persönlichkeit ausgesucht oder vorausbestimmt werden kann – ausser der Hautfarbe, dem evolutionsmässig ebenbürtigen Volk und dem Geschlecht während der Schwangerschaft – ist der Evolutionsstand
+der Geistform und des Gesamtbewusstseinblocks der neuen Persönlichkeit nach der Geburt massgebend,
+um durch das Einfliessen von Inspirationen, Ahnungen etc. aus dem gespeicherten Wissen der vielen
+früheren Inkarnationen, den Ablauf eines gegenwärtigen Lebens zu steuern. Diese Impulse etc. beeinflussen
+dann, für die Persönlichkeit meist unbewusst, ihr Verhalten in der Anwendung des freien Willens und die
+Willigkeit des ständigen Lernens während ihres ganzen Erdenlebens in evolutiver Weise zu gestalten und
+zu bewältigen.
+Nach dem Ableben des Körpers und der Auflösung des Ich/Ego verlassen die Geistform und der Gesamtbewusstseinblock inklusive dem Bewusstseinszentrum und der passiven Existenz der Persönlichkeit den
+Körper und verreisen mit Nanogeschwindigkeit als rein energetisch-feinstoffliche Lebensform in ihre je
+eigenen Jenseitsbereiche.
+In der Ebene des Todeslebens wird blitzartig durch die Energie und Kraft des Gesamtbewusstseinblocks
+alles noch Unverarbeitete aus dem aktuellen Leben verarbeitet und in die Speicherbänke abgelagert.
+Demnach bestehen das Bewusstseinszentrum und die daraus hervorgehende Persönlichkeit, die im Gesamtbewusstseinblock enthalten sind, nur noch kurze Zeit nach dem Tod des Erdenkörpers weiter, so lange, bis
+
+
+-----
+
+auch die blitzartige Verarbeitung des im aktuellen Leben Unverarbeiteten erfolgt und in den Speicherbänken abgelagert ist. Dann lösen sich das Bewusstseinszentrum und die Persönlichkeit endgültig auf und
+sie werden zur neutralen Gesamtbewusstsein-Energie, womit ein weiterer Evolutionsweg der Geistform
+beendet ist und eine weitere Evolutionsetappe beginnen kann.
+Letztendlich birgt auch jeder neue Erdendurchgang viel Unbekanntes in sich, ja mit zunehmendem Wissen
+und der entsprechenden Weisheit werden die gestellten Anforderungen ständig steigen so wie die Stange
+beim Hochsprung immer wieder höher gehängt wird – nur, bei der Geistform bis in die fernste Unendlichkeit.»
+Arthur Wucher, Schweiz
+
+## Evolution
+### Das naturalistische/materialistische Weltbild und die Begriffe ‹Geist› und ‹Intelligenz›.
+Dass eine Evolution stattgefunden hat, dürfte mittlerweile eine feststehende Tatsache sein. Die genetischen
+Übereinstimmungen der Lebewesen und die entsprechenden Fossilienfunde sprechen eine eindeutige
+Sprache, weshalb an dieser Stelle auch nicht mehr über dieses Thema diskutiert werden sollte.
+Was in der teilweise sehr hitzig geführten Diskussion zwischen Neodarwinisten (synthetische Evolutionstheorie), Kreationisten und Anhängern der ‹Intelligent-Design-Theorie› aber meist viel zu kurz kommt, ist
+die grundsätzliche Frage, ob es sinnvoll war und ist, dass die moderne Evolutionsforschung die beiden
+Begriffe ‹Geist› und ‹Intelligenz› als mögliche Erklärungsmodelle für den Ablauf der Evolution aus ihrem
+Wortschatz von vorneherein gestrichen hat.
+
+Zum Hintergrund: Die moderne Evolutionsforschung hat sich seit DARWIN in mittlerweile ca. 20 unterschiedliche wissenschaftliche Disziplinen aufgespalten, die von der klassischen Genetik über die Evolutionsbiologie bis hin zur Molekularbiologie und Paläontologie reichen. Die Grundlage der wissenschaftlichen
+Arbeit innerhalb dieser unterschiedlichen Disziplinen stellt das sogenannte naturalistisch-materialistische
+Weltbild dar, dessen inhaltliche Ausrichtung von Prof. KUTSCHERA wie folgt beschrieben wird:
+
+**1. Grundlage der internationalen Naturwissenschaften ist der methodische Naturalismus, der in**
+**grober Annäherung mit dem Materialismus gleichgesetzt werden kann. Nach diesem Grundsatz**
+**wird die Natur ‹aus sich selbst heraus› erklärt. Nur wirklich vorhandene, durch Beobachtung und**
+**Experiment zugängliche Dinge können erforscht werden. Aus diesen Fakten werden dann Hypo-**
+**thesen und Theorien abgeleitet.**
+
+**2. Philosophisch-religiöse Begriffe wie Genialität, Intelligenz, Weisheit, Geist, Gott, und das daraus-**
+**abgeleitete ‹Intelligente Design› gehören nicht zum Vokabular der naturalistischen Naturforschung.**
+**Sie sollten daher der privaten Glaubenssphäre des betreffenden Wissenschaftlers vorbehalten**
+**bleiben.**
+Prof. U. KUTSCHERA
+
+
+Ergänzen und abrunden könnte man diese Thesen noch um eine weitere Aussage, die ebenfalls das
+naturalistische/materialistische Weltbild hervorhebt und unterstreicht:
+
+**«Es mag sein, dass Evolutionstheoretiker für diesen oder jenen Schritt andere Übergangsformen,**
+**komplexere Mechanismen, abweichende Hypothesen vorbringen. Aber einig sind sie sich darin, dass**
+**alles mit ‹natürlichen Dingen› zugegangen ist. Dass es im Zusammenhang mit Grossmutationen zu**
+**hohen Unwahrscheinlichkeiten des Auftretens neuer Formen kommt, gilt nicht als Einwand. In einem**
+
+
+-----
+
+**solchen Fall ist eben, wie Carl-Friedrich von Weizäcker einmal gesagt hat, das richtige Modell der**
+**Erklärung noch nicht gefunden; es ist nicht ‹prinzipiell unmöglich›.**
+**Es bleibt dabei: Alles geschah und geschieht gemäss den Gesetzen von Chemie und Physik, wenn auch**
+**im Makrobereich der Organismen die Darwinschen und neodarwinistischen Erklärungsprinzipien**
+**Mutation, Selektion, Isolation, Anpassung usw. für die natürliche Erklärbarkeit ausreichen, also nicht**
+**auf Physik und Chemie zurückgegriffen werden muss.»**
+Prof. R. LÖW
+
+Ich vermute, dass sich der Grossteil der Bevölkerung diesen grundsätzlichen Aussagen anschliessen dürfte,
+was auch damit verbunden ist, dass die meisten Menschen die Fragen nach dem Ablauf und den Mechanismen der Evolution als weitgehend geklärt ansehen.
+Ist dies aber tatsächlich der Fall und hält die moderne Evolutionsforschung auf der Grundlage einer
+naturalistisch-materialistisch ausgerichteten Weltanschauung tatsächlich alle fundamentalen und wichtigen
+Aussagen zum Thema Evolution bereit? Nein, das ist ganz sicherlich nicht der Fall, was ich Ihnen auch
+gleich anhand eines Beispiels aufzeigen werde. Betrachten wir dazu doch ein Lebewesen, das Ihnen sehr
+nahe steht und Ihnen deshalb auch mehr als bekannt sein dürfte. Es sind Sie selbst, also ein Mensch.
+Was meinen Sie? Kann Ihnen ein Evolutionsforscher dieser Welt eine Antwort auf die Frage geben, warum
+Sie sich aus der ersten Eizelle heraus zu einem Menschen entwickelt haben? Nein, kein Forscher dieser
+Welt kann Ihnen eine vernünftige Antwort auf diese Frage geben, da sich die Frage nach der Formgebung
+von Lebewesen noch als völlig offen darstellt. Auch der Hinweis auf ‹Gene› und deren Entschlüsselung
+hält hier keine Antwort bereit, denn im übertragenen Sinn wurden lediglich die Buchstaben des menschlichen Genoms entschlüsselt und beschrieben. Wer oder welche Kraft aber ist es, die den Buchstaben/
+Zellen sagt, dass sie sich zu Worten und Sätzen und in der Summe zu einem überlebensfähigen Lebewesen zusammenfügen sollen? Wer oder was setzt den in jeder Zelle vorhandenen Bauplan um und sorgt
+dafür, dass sich prinzipiell identische Zellen nach der Befruchtung milliardenfach duplizieren und Knochen,
+ein Herz, Muskeln, ein Gehirn und, in der Summe, ein überlebensfähiges Lebewesen ergeben? Wer oder
+was sorgt dafür, dass ständig Gene ein- und ausgeschaltet werden (Genexpression), um die Form von
+Lebewesen nicht nur zu bilden, sondern bei Verletzungen auch zu erhalten und zu reparieren? Die Gene
+selbst können es nicht sein, denn:
+
+
+**«Es gibt weder eine logische noch auf Fakten beruhende Begründung für die Annahme, dass Organi-**
+**sationen mit dem Hinweis auf ‹Gene› erklärt werden können. ‹Das ist eine blosse Behauptung, die sich**
+**auf blinden Glauben und unqualifizierte, vereinfachende vorgefasste Meinungen gründet›.»**
+PAUL WEISS, Rockefeller University, New York
+
+Die zentrale, wichtige und offene Frage ist deshalb, wer oder welche Kraft dafür verantwortlich und
+zuständig ist, den in jeder einzelnen Zelle vorhandenen Bauplan auszulesen und umzusetzen. FRANCIS
+CRICK, der als Mitentdecker der DNA-Struktur den Nobelpreis erhielt und der sicherlich als ein Kenner
+der wissenschaftlichen Forschung angesehen werden kann, beschrieb den Stand der Evolutionsforschung
+hinsichtlich der Frage nach der Formgebung wie folgt:
+
+
+**«Man könnte die gesamte genetische und molekularbiologische Arbeit der letzten 60 Jahre als ein**
+**langes Intermezzo bezeichnen … Nachdem dieses Programm jetzt abgeschlossen ist, sind wir in einer**
+**vollen Kreisbewegung zum Ausgangspunkt zurückgekehrt … zu den ungelöst zurückgelassenen Pro-**
+**blemen. Wie kommt es, dass ein verletzter Organismus sich zu genau derselben Struktur regeneriert,**
+**die er vorher hatte? Wie formt das Ei den Organismus?»**
+FRANCIS CRICK, Biochemiker und Mitentdecker der DNA-Struktur
+
+
+-----
+
+**Wie formt das Ei den Organismus? Genau diese Fragestellung ist es, die einen absolut fundamentalen**
+Charakter aufweist, da sie bei genauer Betrachtung das gesamte Fundament des naturalistisch-materialistisch ausgerichteten Weltbildes der Evolutionsforschung in Frage stellt.
+Warum ist das so? Die Antwort ergibt sich, wenn wir der Frage nachgehen, wann sich die materielle Form
+von Lebewesen bildet und wann sie sich wieder in alle Bestandteile auflöst und sprichwörtlich zu Staub
+zerfällt. Die Antwort ist klar ersichtlich, denn die materielle Form bildet sich und bleibt erhalten, solange
+wir LEBEN in den Zellen vorfinden. Ist dieses LEBEN nicht mehr vorhanden, löst sich die materielle Form
+auf. Wie aber können wir dieses LEBEN definieren und welche Eigenschaften können wir ihm zuordnen?
+Wenn wir beim Menschen bleiben, dann können wir ganz sicherlich von zwei Attributen ausgehen. Diese
+Attribute sind **Intelligenz und** **Geist, in welchen Abstufungen und Ausprägungen wir diese beiden**
+Faktoren im menschlichen Körper auch immer vorfinden.
+Ohne Intelligenz kann der jeweilige Bauplan der Zellen nicht ausgelesen und umgesetzt werden, und
+ohne die in Ihrem Körper vorhandene geistige Grundlage kann wiederum die Intelligenz der Zellen nicht
+wirksam werden, was Ihnen ein hoffentlich angenehmes und beschwerdefreies Leben ermöglicht. Kann
+diese Aussage durch die Beobachtung und durch Experimente bestätigt werden, also genau das, was
+KUTSCHERA als Vertreter des naturalistisch-materialistischen Weltbildes fordert?
+
+**«… Nur wirklich vorhandene, durch Beobachtung und Experiment zugängliche Dinge können erforscht**
+**werden. Aus diesen Fakten werden dann Hypothesen und Theorien abgeleitet.» (U. KUTSCHERA)**
+
+
+Natürlich, denn wir brauchen uns dazu nur durch ein Ultraschallgerät einen ‹lebenden› und heranwachsenden Embryo anzusehen und anschliessend in einer Leichenhalle einen Toten zu betrachten. Beim
+heranwachsenden Embryo sind Leben, Intelligenz und Geist vorhanden, beim Toten sind Leben, Intelligenz
+und Geist verschwunden, was ganz offensichtlich auch mit dem Zerfall der materiellen Form verbunden
+ist.
+Wenn wir jetzt die immer noch gültige Logik-Lehre von ARISTOTELES heranziehen, dann können folgende
+zwei Ausgangsprämissen einwandfrei definiert werden:
+
+1. Die materielle Form des Menschen entsteht und bleibt erhalten, solange Intelligenz und
+Geist im Menschen vorhanden sind.
+
+2. Die materielle Form von Menschen zerfällt, wenn beim Tod des Menschen Intelligenz und
+Geist nicht mehr vorhanden sind.
+
+Da diese zwei Ausgangsprämissen keinen Widerspruch ergeben, kann daraus folgende Schlussfolgerung
+abgeleitet werden:
+
+**Intelligenz und Geist, in welcher Abstufung und Ausprägung auch immer im Menschen vor-**
+**handen, sind die Voraussetzung für die Entstehung und den Erhalt der materiellen Form.**
+
+Der interessierte Leser wird sich jetzt natürlich fragen, ob wir die beiden Begriffe ‹Geist› und ‹Intelligenz›
+bereits dem ersten Lebewesen zuordnen können, welche Zusammensetzung und Form es auch immer
+hatte. Grundsätzlich spricht alles dafür, denn es dürfte relativ unwichtig sein, wie gross oder komplex die
+materielle Form von Lebewesen ist, da bei allen Lebewesen die Summe der Einzelteile ein grösseres und
+überlebensfähiges Ganzes ergeben muss. Und um dieses grössere Ganze zu bilden und erhalten zu
+können, ist eines ganz sicherlich erforderlich: Intelligenz.
+Diese Intelligenz war auch bereits beim ersten Lebewesen vorhanden, denn selbst das einfachste Lebewesen ohne Zellkern muss dazu in der Lage gewesen sein, sich zu vermehren, fortzupflanzen und zu
+
+
+-----
+
+**fressen. Bei Lebewesen mit einem DNS-Zellkern kommt im weiteren Verlauf noch die Fähigkeit zur eigen-**
+**ständigen Reparatur hinzu, wobei alle diese zum Überleben notwendigen Vorgänge mehr als komplex**
+und kompliziert sind, weshalb sie ganz sicherlich intelligentes Verhalten erfordern. Was aber ist die
+Grundlage von dieser bei allen Lebewesen vorhandenen Intelligenz?
+Eine mehr als interessante Frage, und meiner Meinung nach benötigen wir zur Antwort weder die Meinung
+eines Biologen noch die eines Philosophen oder Psychologen. Ich meine, dass wir im Sinne KANTS die
+Antwort selbst finden können.
+Die grundsätzliche Frage lautet: Ist Intelligenz eine Eigenschaft, die aus einer materiellen Grundlage
+heraus entstehen und existieren kann? Oder ist Intelligenz nicht vielmehr eine Eigenschaft des Geistes, die
+auch einer geistigen Grundlage bedarf und die sich auch nur aus dieser geistigen Grundlage heraus
+entwickeln kann?
+Die Antwort dürfte leicht fallen: Die Grundlage und der Nährboden von Intelligenz ist nicht Materie, sondern
+Geist! Ein Felsen hat keinen Geist (Anm. Billy = siehe Kommentar) und somit auch keine Intelligenz, ein
+Lebewesen aber schon!
+Die zum Leben gehörenden Faktoren ‹Geist› und ‹Intelligenz› gleichen sich deshalb auch wie die zwei
+Seiten einer Münze, deren Seiten sich gegenseitig bedingen und die in einer untrennbaren Wechselwirkung
+zueinander stehen.
+
+Die These: «Dass Intelligenz nur aus einer geistigen Grundlage heraus entstehen kann, da ohne eine
+**geistige Grundlage auch keine Intelligenz vorhanden wäre», dürfte deshalb einer kritischen Prüfung**
+jederzeit standhalten.
+
+Wenn wir uns jetzt nochmals der offenen Frage nach der Formgebung von Lebewesen zuwenden und uns
+die Thesen von KUTSCHERA ansehen, wird sehr schnell deutlich, dass die moderne Evolutionsforschung
+auf der Grundlage eines materialistisch-naturalistischen Weltbildes auch in Zukunft keine Antwort auf die
+zentrale Frage nach der Formgebung vom Lebewesen geben kann.
+Der Grund dafür ist, dass die beiden für die Formgebung verantwortlichen Faktoren ‹Geist› und ‹Intelligenz› im naturalistischen Weltbild überhaupt nicht vorkommen bzw. rigoros ausgeschlossen werden. Bei
+Begriffen wie Gott, Weisheit etc. mag diese Haltung aus wissenschaftlicher Sicht ja durchaus verständlich
+sein. Bei den Begriffen Geist und Intelligenz ist sie aber völlig fehl am Platz, da die moderne Evolutionsforschung durch das Festhalten am naturalistischen Weltbild wichtige und zentrale Fragen nicht beantworten kann!
+Wie kann nun das naturalistisch-materialistische Weltbild in Verbindung mit der modernen Evolutionsforschung beurteilt werden? Die Antwort fällt meines Erachtens eindeutig aus: Ohne die Integration von
+Geist und Intelligenz kann die Frage nach der Formgebung von Lebewesen nicht beantwortet werden.
+Ohne eine Antwort auf die Frage nach der Formgebung kann aber kein Evolutionsforscher dieser Welt
+behaupten, die Mechanismen der Evolution auch nur ansatzweise beschreiben zu können.
+Ich habe dieses Beispiel deshalb dargestellt, da ich damit aufzeigen wollte, dass es gerade bei Begriffen
+wie Leben, Geist, Zufall oder Gott immens wichtig ist, sich nicht vorschnell der Meinung von Professoren
+und vermeintlichen Autoritäten anzuschliessen, da deren Aussagen oftmals einen ideologisch geprägten
+Hintergrund aufweisen, der mit den reinen und jederzeit nachprüfbaren Fakten nicht unbedingt übereinstimmen muss.
+
+
+**Sapere aude! Habe Mut, dich deines eigenen Verstandes zu bedienen!** IMMANUEL KANT
+
+Paul Moser, Deutschland
+
+
+-----
+
+## Kommentar
+Der Inhalt des Artikels trifft den Nagel auf den Kopf. Ohne Geist resp. Geistform – ob bewusste (Mensch),
+instinktmässige (Tiere und Getier) oder impulsmässige (Pflanzen usw.) oder dynamische (Felsen, Gestein,
+Metall, Wasser usw., denn auch diese Materieformen werden von einer Geistenergie angetrieben in
+bezug auf ihr Wachstum resp. ihr Werden und Vergehen). Jede Geistenergie, die dazu bestimmt ist,
+irgendwelche Lebensform zu beleben – wobei nicht nur Menschen, Tiere und alles Getier bis zu den
+Mikroben, Bakterien und Viren usw., sondern auch Felsen, Gestein, Sand und Wasser usw. Lebensformen
+sind, die in den Wandel von Werden und Vergehen gehören –, ist schöpferisch-geist-energetisch und
+schöpfungsgesetzmässig ausgestattet mit einer ihr eigens zugegebenen Intelligenz, durch die die Form
+des Lebewesens resp. der Lebensform bestimmt und gesteuert wird. Je nach Lebensform ist es dabei
+gegeben, dass diese durch die Kraft ihrer durch die Kraft des Geistes und des Gesamtbewusstseinblocks
+geschaffene Bewusstseinsform – bewusst, instinktmässig, impulsmässig oder dynamisch – aus dem Bewusstsein heraus eine selbständige Intelligenz erzeugt, die jedoch immer von der Energie und Kraft des
+Geistes abhängig bleibt, weil auch das Bewusstsein nur durch diese Geistenergie und Geisteskraft lebendig
+sein kann. Für den Menschen bedeutet das, dass er seiner Bewusstseinsevolution nur durch seine aus dem
+Bewusstsein entspringende Intelligenz und damit also durch seine Vernunft und durch seinen Verstand
+Genüge tun kann. Das aber wäre nicht möglich, wenn die sich im Menschen eingelagerte schöpferische
+Geistform nicht via den Gesamtbewusstseinblock die notwendige Intelligenz in das Bewusstsein des
+Menschen einbringen würde.
+Billy
+
+## Religiöser Glaube, Sportfanatismus und Leidenschaften sind vererbbar und in ihren Wirkungen vergleichbar mit Drogen und Alkohol
+### oder vom Glauben zur Vernunft
+Betrachtet man die bei Sportveranstaltungen unter einem Teil der Zuschauer resp. Anhänger und sogenannten ‹Fans› (nomen est omen) auftretenden emotionalen Ausartungen, die nicht selten in Ausbrüchen
+von Aggressivität, Hass, Handgreiflichkeiten und brutaler Gewalt enden, dann muss man sich fragen, wie
+diese Menschen – meist in Gruppen – dermassen die Kontrolle über sich selbst verlieren können, dass ihr
+Verhalten jedes gesunde Mass an Selbstkontrolle, Anstand, Respekt, Toleranz, Rücksichtnahme und
+Menschenwürde verliert.
+Es ist offenbar so, dass beispielsweise ein fanatischer Fussballfan noch nicht genügend Vernunft und
+Verstand in sich hat, um in sich selbst ein gesundes Selbstwertgefühl aufzubauen, das es ihm ermöglichen
+würde, allein sich selbst als die umfassend verantwortliche Kraft für alle Dinge seines Lebens zu erkennen
+und zu akzeptieren, wodurch er in Würde eine bewusste und umfassende Selbstkontrolle über sein
+Denken, Fühlen, Tun und Handeln ausüben könnte. Er gleicht hierin einem religiös gläubigen Menschen,
+der sein Heil im Denken und Fühlen (in seiner Psyche) bei einem Gott, einem Heiligen, einem Menschen,
+einer Kultfigur oder einer Ikone usw. ausserhalb seiner selbst zu finden sucht und dabei alle seine Hoffnungen auf Wunscherfüllung und alles an unerfüllten Sehnsüchten und Begierden aus seinem Innern in
+dieses Bild hineinprojiziert. Er macht sein Wohl und Wehe somit nicht von sich selbst abhängig, sondern
+von Ereignissen, Dingen und Menschen, auf die er keinen direkten Einfluss hat und die ausserhalb des
+natürlichen Bereiches seiner Selbstverantwortung liegen. Er gleicht dabei dem Steuermann eines Schiffes,
+der unter dem Einfluss einer Halluzination resp. einer ihn überkommenden Wahnvorstellung das Steuerrad seines Schiffes loslässt und dieses willenlos und unkontrolliert den unberechenbaren Winden und
+Stürmen überlässt, die es ziellos hin- und herwerfen und es jeden Augenblick zum Untergang bringen
+können.
+
+
+-----
+
+Gewinnt ‹seine› Mannschaft nicht bzw. kommt ‹sein› Rennfahrer nicht als Erster ins Ziel, dann zerplatzen
+die Hoffnungen des Sportfanatikers wie eine Seifenblase; er fällt in ein tiefes Loch der Verzweiflung und
+Frustration und fühlt sich gerade so, als wäre fortan sein Leben sinnlos und leer. Als würde mit der
+Niederlage seines Idols gleichzeitig jeder Lebenswille in ihm erlöschen, stürzt er in einen finsteren psychischen Abgrund der Sinnlosigkeit und Depression. Gleiches geschieht mit dem Gläubigen, der alle
+seine Hoffnungen auf einen Gott projiziert hat und nun feststellen muss, dass seine Gebete an diese
+imaginäre Figur oder eine andere fiktive Gestalt nicht erhört werden.
+Demgegenüber steht der Mensch auf festem Grund des Wissens und der Weisheit, der darum weiss, dass
+er allein stets und vollumfänglich – bis in die kleinste Kleinigkeit im Denken, Tun und Handeln – für alles
+und jedes seines Lebens selbst verantwortlich ist. Er baut das Haus seines Bewusstseins und seiner Persönlichkeit auf dem Erkennen und Erleben, dem Wissen und der Weisheit dessen auf, dass er von seinem Teilstück Schöpfungsgeist belebt wird und dass er zugleich durch die Kraft und Macht seines Bewusstsein alles
+in sich selbst verwirklichen kann, was er sich nur erträumen, vorstellen und wünschen kann – ausgenommen, es handelt sich um irreale Wahngebilde und Phantastereien. Er braucht daher keinen religiösen
+Glauben, keinen imaginären Gott, Heiligen oder Schutzpatron, keine Ikonen und keine Sportidole, die er
+anhimmelt und anbetet, weil er darum weiss, dass er damit dem Wahn verfiele, eine Kraft ausserhalb
+seiner selbst könne ihm das Wissen, die Weisheit und das Heil seiner Psyche bringen, nur nicht er selbst.
+Der Mensch allein ist für sich selbst die bestimmende Instanz, und nur er allein kann alle nötigen Kräfte
+in sich mobilisieren, deren er bedarf, um das Leben zu meistern. So ist es durch das Universalbewusstsein, die Schöpfung gegeben.
+
+### Auszug aus dem 249. Kontakt vom Montag, 13. Juni 1994, 23.36 Uhr
+**Billy** Wahrheitlich ist es aber doch so, dass rein gar nichts, was sich der Mensch ersinnen, erträumen,
+erdenken und erphantasieren kann, einfach unmachbar ist, denn wahrheitlich kann der Mensch rein gar
+nichts erdenken, erphantasieren, erträumen und ersinnen, das nicht machbar resp. erstellbar oder erzeugbar ist. Alles nämlich, was sich der Mensch erdenken, ersinnen, erträumen oder erphantasieren
+kann, ist in technischer oder in bewusstseinsmässiger oder in irgendeiner anderen Hinsicht möglich und
+machbar. Also gibt es für den Menschen im gesamten Universum nichts, das für ihn nicht machbar und
+nicht erzeugbar ist, wenn er sich etwas erdenkt, erspinnt, erphantasiert oder erträumt. Das einzige, was
+für ihn nicht machbar, nicht erzeugbar oder nicht erstellbar ist, sind Wahngebilde, wie z.B. religiöser
+Wahn und Fanatismus usw. sowie Illusionen, die als Wahnvorstellungen und Scheinbilder usw. der Wahnbefallenen deren Bewusstsein beeinträchtigen.
+
+Gemäss einem Gespräch zwischen dem Plejaren Ptaah und ‹Billy› Eduard Albert Meier (BEAM) aus dem
+Jahre 2006 ist ein religiöser Glaube ebenso – wie fanatische Sportleidenschaften – vererbbar und kann
+sich zumindest veranlagungsmässig auf nachfolgende Generationen übertragen. Ausgemerzt werden
+kann diese Art von Krankheit nur durch die Entwicklung von Verstand und Vernunft im Menschen, wodurch er auch erkennt, dass er, durch die Anhimmelung von Idolen, Wahngebilde in seinem Bewusstsein
+aufbaut, die zu bösen, menschenunwürdigen Ausartungen führen können.
+
+### Auszug aus dem 421. Kontakt vom 28.5.06, 17.01 Uhr
+**Billy** … Aber noch eine Frage: Religiöser Glaube ist ja vererbbar und setzt sich in den Schläfenlappen
+und im hinteren Scheitellappen als eine Form schizophrener Krankheit fest. Davon haben wir schon bei
+unserer letzten Unterhaltung am 24. Mai gesprochen, doch was ich jetzt wissen möchte ist folgendes: Sind
+Fussball und dergleichen sowie Extremsportarten und bestimmte Leidenschaften ebenfalls in gleicher oder
+ähnlicher Weise vererbbar?
+
+
+-----
+
+**Ptaah** Das ist tatsächlich der Fall. Diese Vererbungen fallen ebenfalls in die Bereiche von Krankheiten,
+die sich in Form von Fanatismus und unkontrollierbaren Erregungszuständen der Ausartung zum Ausdruck bringen, die derart ausarten können, dass sich daraus Zerstörungswut, Hass, Mitgefühllosigkeit und
+gar Tötungshandlungen usw. ergeben. Diese Faktoren treten beim einzelnen Menschen auf, wobei sie sich
+zum bösen Übel wandeln, wenn mehrere Gleichgesinnte zusammentreffen, weil die von der Krankheit
+Betroffenen die Kontrolle über ihre Gedanken, Gefühle und Handlungen verlieren, weil sie in einen
+Rausch zerstörerischer Ausartung verfallen.
+
+**Billy** Solches ist euch wohl fremd, oder?
+
+**Ptaah** Das ist tatsächlich der Fall, was zwar zu früheren Zeiten nicht so war. Diese Krankheiten wurden
+im Laufe der Zeit ausgemerzt, und zwar hauptsächlich dadurch, indem durch Lehrgänge Verstand und
+Vernunft angeregt wurden, um Fanatismus und unkontrollierbare Erregungszustände der Ausartung
+bewusst zu erkennen und zu bekämpfen und sie unter Kontrolle zu bringen.
+
+**Billy** Bestimmt keine leichte Aufgabe, die zudem wohl langwierig war.
+
+**Ptaah** Davon musste von Anfang an ausgegangen werden. Der Prozess in bezug auf die Gesamtbevölkerung dauerte dann auch rund 1800 Jahre, ehe die Krankheiten behoben und nicht mehr vererbbar
+waren.
+
+**Billy** Könnte man sagen, dass Menschen, die diesen Krankheiten verfallen sind, egal ob erbmässig
+oder nicht, mental nicht fähig sind, sich in sich selbst zur Gelassenheit und zur Sachlichkeit zu erheben,
+um in sich selbst gross und stark zu sein? Und weiter: Wie ein Zelot resp. ein fanatischer Glaubenseiferer,
+sind meines Erachtens auch Sportfanatiker und Extremsportler aller Art sowie deren Anhänger eine Form
+von Zeloten, eine eigenartige Form jedoch, die einerseits glaubensfanatisch und bewunderungsfanatisch
+für den eigenen Sport oder für Sportler sind, andererseits aber auf die Sportler – egal ob Fussballer, Bergsteiger oder Rennfahrer usw. – in der Weise eifersüchtig sind, dass sie diese beneiden. Dazu kommt aber
+dann noch die andere Form der Eifersucht, die darin besteht, dass den Sportidolen usw. süchtig nachgeeifert wird. Ein weiterer Faktor ist dann noch der, dass sowohl die Sportler und Extremsportler usw. wie
+aber auch deren fanatische Anhänger sich nur durch ihr Tun und Handeln sowie Benehmen usw. selbst
+bestätigen können und glauben, dass sie eine grosse und ausserordentliche Leistung vollbringen würden.
+
+**Ptaah** Wie du sagst, so ist es.
+
+Die Entstehung schizophrener Krankheiten erklärte ebenfalls der Plejare Ptaah bei einem Kontaktgespräch
+im Jahre 1998.
+
+### Auszug aus dem 260. Kontakt vom Dienstag, 3. Februar 1998, 22.27 Uhr
+**Ptaah** Schizophrenie ist eine Krankheit einer Überproduktion des Stoffes Dopamin im Gehirn, wodurch
+dieses durch den Stoff überbelastet und geschädigt wird. Das erhöhte, schädliche Auftreten von Dopamin
+ist oft genbedingt, was auch besagt, dass die Krankheit also vererbbar ist. Es ist aber auch anderweitig
+möglich, dass eine Überproduktion von Dopamin entsteht, wie z.B. durch Drogen und Alkohol, wie aber
+auch durch bestimmte Medikamente, die hirnschädigend wirken. Bei Vererbung muss nicht jede Nachkommenschaft und nicht jede Generation dieser Krankheit verfallen, denn es können mehrere Generationen vom Auftreten der Krankheit verschont bleiben, ehe wieder ein Akutwerden derselben erfolgt. Das
+Erbgut aber wird in jedem Fall übertragen, nur ist es dann zeitweise von latenter Beschaffenheit.
+
+
+-----
+
+Verstand und Vernunft müssen also angeregt, gefördert und gebildet werden, damit diese und viele andere
+Ausartungen endlich ein Ende finden, die überall auf dem Erdenrund zu gewalttätigen Ausartungen
+zwischen einzelnen Menschen, Menschengruppen und Ländern führen, damit in nicht allzu ferner Zukunft
+endlich Frieden auf Erden sein kann. Nur auf diesem Weg kann die Veranlagung zum religiösen Glauben
+allmählich neutralisiert und durch schöpfungsgerechtes neutral-positiv-ausgeglichenes Denken und Fühlen
+ersetzt werden, wodurch es allmählich aus dem menschlichen Erbgut, den Genen, verschwindet. Was
+unter Vernunft und Verstand eigentlich zu verstehen ist, das erklärte Billy bei einem Kontaktgespräch im
+Jahre 2005 wie folgt:
+
+### Auszug aus dem 387. Kontakt vom Donnerstag, 5. Mai 2005, 23.03 Uhr
+**Billy** … Das Gros der irdischen Menschheit ist erst in einem Stadium dessen, in sich Vernunft und
+Verstand langsam zu entwickeln und der Erkenntnis Platz einzuräumen, dass der Mensch sein eigener
+Herr und Meister und damit auch sein ureigener Gott ist. Und diese Erkenntnis bringt den Menschen dazu,
+die Wahrheit dessen zu erfassen, dass er in jeder Beziehung selbst für alles und jedes und also auch für
+sein eigenes Schicksal, für seine Gedanken und Gefühle sowie für seine Handlungen vollumfänglich verantwortlich ist. Diese wachsende Erkenntnis ist es auch, die den Menschen die Unwirklichkeit des religiösen
+und sonstigen Glaubens erfassen und ihn bewusst werden lässt, dass kein allwissender, allmächtiger,
+liebender, lobender, strafender, wunscherfüllender oder fordernder Gott existiert, der angebetet und gelobhimmelt werden muss. Damit wandelt sich die Erkenntnis zum Wissen, das dann bewirkt, dass der
+Mensch seinen religiösen oder sonstigen Glauben ablegt und nach der effectiven Wahrheit zu suchen
+beginnt. Diese Suche wiederum – wenn sich der Mensch von Glauben und Religion gelöst hat – führt
+dazu, dass, indem alle Dinge immer genauer wahrgenommen und analysiert werden, der Verstand langsam zu wachsen beginnt, wodurch die in Erscheinung tretenden Dinge langsam erfasst und verstanden
+werden. Ist das Verständnis gewonnen, dann werden die gewonnenen Fakten der Erkenntnisse und des
+Wissens zur klaren Einsicht und zur Erfahrung sowie zum Erleben aufgearbeitet, woraus dann die Vernunft resultiert, die bewirkt, dass nur noch klar überlegt resp. gedacht und rein logische Schlüsse gefasst
+werden, die dann den Grund des Handelns bilden. Der Verstand selbst ist die Fähigkeit des Menschen,
+durch Wahrnehmung sowie durch das Denken und durch die Gefühle Bedeutungen, Beziehungen und
+Sinnzusammenhänge usw. zu erfassen und zu erschliessen, und zwar im praktischen Leben ebenso wie
+auch im Dienste des Erkenntnisstrebens und des gesamten Mentalblocks. Der Verstand ist ein Mittel, durch
+das bestimmte praktische und theoretische Aufgaben in grosser Mannigfaltigkeit gelöst werden, wobei
+der Verstand aber auch Ordnung erzeugt sowie eine Herrschaft über die unendliche Mannigfaltigkeit
+aller praktischen und theoretischen Aufgaben. Die Vernunft als umfassendes Erkenntnisvermögen des
+Verstehens sowie des Vermögens der Ideen, Gedanken und der Ganzheit im Dienste der Weisheit ist die
+wahre Tiefe der Klarheit und des eigentlichen Wesens der Einheit mit der Logik.
+
+Auf der Erde sollte baldmöglichst Billys Schöpfungslehre resp. die ‹Geisteslehre› und die ‹Lehre des
+Lebens› als elementares Unterrichtsfach in Kindergärten und Schulen installiert und den Kindern und
+Jugendlichen altersgerecht gelehrt und vermittelt werden. Das setzt natürlich voraus, dass zuerst die
+erwachsenen Menschen der heutigen Zeit sich von den Irrlehren der Religionen ab- und der Geistes- resp.
+Schöpfungslehre zuwenden, wie sie der Prophet der Neuzeit bringt, kündet und vorlebt. Wenn sich im Bewusstein der überwiegenden Mehrheit der Menschen Wissen und Wahrheit bilden und sie den wirklichen
+Sinn und Zweck ihres Lebens zu erfassen beginnen, wird sich ein Wandel vollziehen, der ab diesem Zeitpunkt an die nachfolgenden Generationen weitergegeben werden kann. Die Ursachen für das Gelingen
+der von Billy ins Leben gerufenen Mission sind laut Ptaah schon derart gegeben und geschaffen, dass das
+Erreichen des Zieles bereits heute unwiderruflich feststeht.
+Achim Wolf, Deutschland
+
+
+-----
+
+## Leserfrage (Betrifft Sonderbulletin Nr. 25, veröffentlicht am Dienstag, 18. Juli 2006, 10.50 Uhr)
+Hallo
+Bezüglich der neuesten plejarischen Abklärungen zum Thema ausserirdischer Einflüge, die im letzten
+FIGU Sonder-Bulletin Nr. 25 in bezug auf den Kontakt Nr. 424 vom 17. Juni 2006 am 18. Juli 2006 veröffentlicht worden sind, habe ich folgende Frage:
+Wenn die Rede von Einflügen ist, sind damit auch eventuelle Abstürze oder Havarien ausserirdischer
+Flugkörper neben Roswell gemeint und mit eingeschlossen – ich denke z.B. an das Tunguska-Ereignis, das
+nach älteren Kontaktberichten mit Sicherheit auf ausserirdische Eindringlinge zurückzuführen ist – oder
+eben nur das Durchfliegen des irdischen Luftraumes durch erdfremde Flugobjekte? Denn im genannten
+Kontaktberichtsauszug von Juni 2006 ist bezüglich sogenannter UFO-Crashes nur von Roswell die Rede,
+während ich mich erinnere, anderswo in den Kontaktberichten (ich weiss jetzt aber nicht mehr genau wo)
+gelesen zu haben, dass es neben Roswell andere Raumschiffabstürze gegeben habe oder gegeben haben
+möge.
+In der Geschichte der Ufologie wird z.B. auch von einem angeblichen UFO-Absturz bei Kecksburg, USA
+sowie Aztec, New Mexico, USA und bei den Spitzbergen-Inseln, Norwegen sowie auch von einem irgendwo in Russland geredet. In manchen Fällen wie bei Kecksburg, USA, gibt es anscheinend auch unabhängige Augenzeugen, die spezielle Regierungstransporte und Militärpersonal vor Ort gesehen haben
+wollen und die durch Geheimagenten und Militärs bedroht und zum Schweigen gemahnt worden sein
+sollen. Doch wie bei allem was aus Amerika kommt, muss man auch damit äusserst vorsichtig umgehen.
+Kann es allerdings sein, dass einige dieser vermeintlichen Absturzfälle durch sich später der plejarischen
+Föderation angeschlossene Zivilisationen tatsächlich stattgefunden haben? Oder ist es eher so, dass all
+diese angeblichen Absturzfälle ausser Roswell nur auf Lügengeschichten, Phantastereien oder gezielte
+Desinformation durch Regierungskreise zurückzuführen sind? Wenn dem so wäre, würde ich es äusserst
+plausibel finden, denn wir wissen ja, was alles um das Thema UFO/Ausserirdische an schmutzigen
+Kampagnen und Ablenkungsmanövern durch skrupellose Elemente geschieht. Deswegen würde ich mich
+freuen, wenn auch eine weitere Erklärung bzw. Präzisierung darüber möglich wäre.
+Salome
+Andrea Bertuccioli, Italien
+
+## Antwort
+Diese Frage kann beantwortet werden durch einen Kontaktbericht-Auszug des 428. offiziellen Kontaktgespräches vom 10. Juli 2006, wobei sich das Gespräch folgendermassen ergab:
+
+**Billy** Es ist unaufhaltsam, die Gedanken beginnen einfach zu laufen. Aber ehe wir uns der Korrekturarbeit von Hans-Georgs Buch zuwenden, möchte ich noch etwas fragen hinsichtlich jener Dinge, die du
+beim 424. offiziellen Kontaktgespräch am 17. Juni angesprochen hast, nämlich der Einflüge Ausserirdischer in den irdischen Luftraum. Da war doch die Tunguska-Katastrophe, bei der jene Raumfahrer eine
+Havarie erlitten und ihr grosses Schiff in die Luft sprengten, weil dieses nicht wieder repariert werden
+konnte. Ist das auch in eure Abklärungen einbezogen? Darüber hast du nämlich keine Angaben gemacht,
+obwohl es interessant wäre zu wissen, wie sich diesbezüglich die Sache verhält.
+
+**Ptaah** Das Grossraumschiff, das damals eine Havarie erlitt und zerstört wurde, woraus sich das sogenannte Tunguska-Ereignis ergab, gehörte einem Volk an, das in einer fernen Galaxie eures Raum-ZeitGefüges lebt. Das Christentum jedoch – das durch einige ihrer Raumfahrer auf ihre Heimatwelten gebracht
+wurde und sich schnell ausbreitete –, führte zu schweren Glaubenskämpfen. Als dann endlich wieder
+Ordnung geschaffen werden konnte, wurde den Raumfahrern verboten, nochmals in den irdischen Raum
+einzudringen. Rund 1000 Jahre nach diesem Erlass verirrte sich infolge fehlerhafter Koordinaten ein
+Grossraumschiff dieses Volkes in das SOL-System und strandete durch eine noch auftretende schwere
+
+
+-----
+
+Havarie auf der Erde, von der es sich nicht mehr entfernen konnte. So lag das Raumschiff während
+mehreren Monaten mit schweren technischen Schäden im Tunguska-Gebiet verborgen, wobei sich eine
+grössere Anzahl der Raumfahrer weitab des Versteckes unerkannt unter die Erdenmenschen mischte und
+sich mit diesen sexuell einliess, was zur Folge hatte, dass viele von ihnen an Syphilis erkrankten und bei
+der Rückkehr in ihr Grossraumschiff auch viele andere damit infizierten. Für die Raumfahrer hatte das
+sehr üble Folgen, denn sehr schnell entstanden durch ihre Andersartigkeit gefährliche Mutationen der
+Krankheit, die sich ebenso schnell zur Seuche und Epidemie ausweiteten, was vielen das Leben kostete.
+Hilfe konnten sie von der Heimatwelt nicht erwarten, denn der alten Bestimmung gemäss war es verboten,
+sich der Erde zu nähern. Ausserdem wurde auf der Erde stationierten anderen Ausserirdischen – nämlich
+uns und unseren Föderierten – durch die Regierung der Heimatwelt der Raumfahrer untersagt, irgendwelche Hilfe zu leisten, folglich wir uns an unsere Direktiven halten mussten. Also blieb den Erdfremden
+nur die Selbstzerstörung, wie es ihre Bestimmung verlangte, folglich sie eine Atombombe bauten, das
+Raumschiff auf eine noch mögliche Höhe in die Atmosphäre und dann zum Absturz brachten, um dann
+die Bombe zu zünden. Durch die gewaltige Explosion wurde das Grossraumschiff völlig zerrissen und
+zerfetzt, wobei die ungeheure Explosion praktisch das ganze Schiff und die gesamte Besatzung von noch
+4387 Menschen in Staub und Asche verwandelte. Von unserer Seite aus wurde alles beobachtet und aufgezeichnet, folglich wir natürlich unsere Informationen laufend auch an die Heimatwelt der gestrandeten
+Raumfahrer weitergaben, jedoch keine Erlaubnis erhielten, in das Geschehen einzugreifen. Also mussten
+wir den Dingen ihren Lauf lassen, bauten jedoch darauf, dass wir die Regierung und das Volk der Raumfahrer belehren konnten in bezug darauf, dass für sie durch die Religionen der Erdenmenschen keine
+Gefahr mehr bestand, wenn sie sich nicht mehr in diese einlassen würden. Unser Vorhaben gelang im
+Laufe der Zeit, was dann auch zur Folge hatte, dass alle drei Völker resp. Rassen – nämlich deren drei
+waren es –, unserer Föderation beitraten. Sie stammen aus einem Gebiet eines grossen Galaxienhaufens,
+der rund 400 Millionen Lichtjahre von der Erde entfernt ist. Die drei Völker resp. Rassen haben drei verschiedene Heimatwelten, doch sind sie miteinander eng verbunden und nennen sich als Volkseinheit
+Bardan, wie sie auch ihre Heimatwelten Bardan 1, 2 und 3 nennen und eine gemeinsame Regierung
+haben. Die Bardan gehören zu jenen fünf Erdfremden, die ich dir genannt hatte und die unserer Föderation beigetreten sind.
+
+**Billy** Und – kommen diese Menschen in der heutigen Zeit wieder zur Erde? Und der von dir genannte
+Galaxienhaufen, ist der auch unseren Astronomen bekannt?
+
+**Ptaah** Ja, und zwar schon seit jener Zeit vor rund 80 Jahren, als sie sich von uns belehren liessen und
+unserer Föderation beitraten. Kontakte zu Erdenmenschen haben sie aber seither noch nie aufgenommen.
+Und in bezug auf den Galaxienhaufen: Dieser ist den irdischen Astronomen bekannt und wird von ihnen
+Coma genannt.
+
+**Billy** Und sie sehen so aus wie wir oder anders?
+
+**Ptaah** Sie sind Menschen wie wir, wenn du das meinst. Sie haben etwas mongolische Züge und eine
+etwas herbe sowie eine leicht bräunlich-gelbliche Haut.
+
+**Billy** Wäre interessant, einmal einen dieser Menschen kennenzulernen.
+
+**Ptaah** Wenn das dein Wunsch ist, dann kann ich mich darum bemühen. Möglicherweise kann ich einen
+Besuch arrangieren.
+Billy
+
+
+-----
+
+## Leserfrage
+Salome Billy, ich hätte bitte eine Frage zu einer Thematik, die jetzt zurzeit in aller Munde ist, und es würde
+mich Deine Meinung dazu sehr interessieren. Wenn es sein sollte, dann kann die Beantwortung auch über
+ein kommendes Bulletin erfolgen oder falls es nicht so interessant erscheint eben nur privat, wie es Deine
+Zeit zulässt. Ich weiss nicht, ob die Medien in der Schweiz auch darüber berichtet haben, aber hier in
+Österreich ist es ja fast jeden Tag an allen Ecken zu lesen und zu hören. Der Fall des jungen Mädchens
+‹Natascha Kampusch›, das von einem Mann über 8 Jahre in einem kleinen Verlies gefangen gehalten
+wurde und dann doch noch flüchten konnte. Mich bewegt diese Sache insofern besonders, da ich ja selbst
+zwei Mädchen habe, wobei das eine gerade in jenem Alter ist, in dem diese besagte Natascha entführt
+wurde. Was mich bei diesen immer wieder auftretenden Gewalttaten von Entführung, in Gefangenschaft
+halten, Vergewaltigung, Unterdrückung und oftmals Tötung der Frauen im speziellen interessieren würde,
+ist der Umstand, dass diese Verbrechen zu einem hohen Grad von Männern verübt werden. Es wird
+wahrscheinlich auch Frauen geben, die solcherart ausgeartet sind, aber grösstenteils sind die Gewaltausübenden männlichen Geschlechtes. Man hört eigentlich fast nie, dass eine Frau ihren Mann schlägt,
+oder dass eine Frau aus Eifer-/Selbstsucht bei einer Scheidung ihre Kinder tötet, oder dass Frauen
+Männer entführt, vergewaltigt, gefoltert und getötet haben. Männer führen jeden Tag Krieg und töten
+Lebewesen aller Art. Männer zerstören grösstenteils die Natur und alles was dazu gehört …
+Woher kommt dieses hohe Mass an Gewaltbereitschaft bei den Männern, die man jeden Tag nicht nur in
+unseren Medien mitverfolgen kann? Ist hier irgendwann etwas in unseren Genen manipuliert worden oder
+sind wir in unserer Evolution noch so niedrig entwickelt, dass dieses Verhalten heute so oft zum Ausbruch
+kommt? Oder ist in der Entwicklung sonst irgend etwas schiefgelaufen, mit dem wir jetzt eben leben
+müssen, bis wir es wieder ausgemerzt und beseitigt haben?
+Vielen Dank für Deine Meinung hierzu. Liebe Grüsse
+Fritz Gollmann, Österreich
+
+## Antwort
+Tatsächlich ist es so, dass in bezug auf Gewalttaten wie Entführungen, Mord und Vergewaltigung usw. der
+überwiegende Teil auf Männer zurückzuführen ist, und das schon seit alters her. Dabei darf jedoch auch
+die erhebliche Anzahl der Gewalttaten nicht unterschätzt werden, die durch Frauen begangen werden,
+denn auch beim weiblichen Geschlecht gibt es viele rabiate Schlägertypen, die ihre Ehegatten nach Strich
+und Faden vermöbeln. Dass man eigentlich fast nie oder nur selten etwas davon hört, dass Frauen Männer
+schlagen, vergewaltigen, entführen oder aus Eifersucht, Hass oder Habgier usw. ermorden, darf nicht
+darüber hinwegtäuschen, dass dies doch sehr häufig vorkommt, nur dass Männer eben weniger an die
+Öffentlichkeit treten, um darüber zu berichten, was sicher daran liegt, dass Männer eher als Waschlappen
+und Schlappschwänze betitelt werden, wenn bekannt wird, dass sie von ihren Frauen verprügelt werden – als
+eben Frauen als Jammerlappen usw., weil sie mehr als schwach und hilflos gegenüber Männern eingestuft
+werden. Nichtsdestoweniger jedoch werden auch sehr viele Männer von ihren Frauen schikaniert, verprügelt
+und terrorisiert, wie das auch umgekehrt hinsichtlich des männlichen Geschlechts der Fall ist. Also gibt es
+deswegen nicht nur spezielle Häuser für Frauen, wo diese Unterschlupf finden und sich vor ihren rabiaten
+Männern in Sicherheit bringen können, sondern auch Häuser für Männer – was weniger bekannt ist –,
+wo sie vor ihren furiosen Herrinnen einen Zufluchtsort finden. Und was in bezug auf Frauen noch zu sagen
+ist, die schlagen, eifersüchteln, hassen, vergewaltigen, entführen und morden: Rasten diese in diesen Formen
+aus, dann stehen sie den Männern in keiner Weise nach und sind nicht selten noch schlimmer und extremer
+in ihren Handlungsweisen als die Herren der Schöpfung, wie seit alters her bewiesen ist, und wie auch eine
+grosse Anzahl grauenvoller Fälle beweisen, die sich während den letzten 200 Jahren besonders in den
+USA und in Europa zugetragen haben und auch in der heutigen Zeit in vermehrtem Masse zutragen.
+Nun, wie gesagt, sind sowohl das weibliche wie auch das männliche Geschlecht äusserst schlagkräftige
+Wesen in bezug auf das Verprügeln des Lebenspartners oder der Lebenspartnerin, was aber nicht heissen
+
+
+-----
+
+soll, dass das auf die grosse Masse der Weiblein und Männlein zutrifft, doch darf das nicht darüber
+hinwegtäuschen, dass Prügeleien in Lebensgemeinschaften trotzdem vielerorts gang und gäbe sind. Das
+findet aber seinen Grund nicht nur in der Aggressivität der Kontrahierenden, sondern auch darin, dass
+sich Menschen zu Partnerschaften zusammenschliessen, obwohl sie in keiner Weise zueinander passen,
+und zwar weder in zwischenmenschlicher Beziehung oder in bezug auf eine wahre Liebe und Zusammengehörigkeit, noch hinsichtlich der persönlichen Bedürfnisse, der Hoffnungen, Wünsche, Gewohnheiten
+und Eigenarten usw. In diesem Nichtzusammenpassen sind viele falsche Faktoren gegeben, die zu Streit
+und Hader sowie zu Hass, Rache und Eifersucht und letztendlich zur Zerstörung des zweifelhaften und
+von Anfang an unbeständigen Verhältnisses führen; und diese können von beiden Parteien nicht überblickt
+werden, und zwar darum nicht, weil sie sich in eine Partnerschaft stürzen ohne zu wissen, welche Anforderungen diese an beide Parteien grundsätzlich stellt. Leider wird vielfach nur in den Tag hinein geheiratet und eine Ehe oder sonstige Partnerschaft nur aus einem gedanklich-gefühlsmässigen Verliebtsein
+heraus geschlossen, was zwangsläufig über kurz oder lang zu Reibereien, Streitereien und zu Tätlichkeiten sowie zu Hass und Rache, zu Eifersucht, Alkoholsucht oder gar zu Mord und Totschlag führen muss.
+Das findet seinen Grund darin, dass der Mensch der Erde in seiner Bewusstseinsevolution noch nicht weit
+genug entwickelt ist, um die Wahrheit und Wirklichkeit des Lebens zu erkennen und zu verstehen und
+diese zu seinem und des Mitmenschen Wohlergehen zu nutzen.
+Natürlich, viele Menschen sind in ihrem Wesen aggressiv, doch um die Aggressionen wirksam werden
+zu lassen, bedarf es für jeden aggressiven Ausbruch einer Ursache, und bei Partnerstreitigkeiten sind
+diese Ursachen in all jenen vielfältigen Mängeln zu finden, die bei der Partnerschafteingehung nicht bedacht werden. Und da viele Menschen in ihrem Wesen aggressiv sind und ihre Aggression nicht unter
+Kontrolle zu bringen vermögen, so wirkt sich diese auch auf allerlei Handlungen aus, die ausserhalb einer
+Partnerschaft begangen und durchgeführt werden. Werden so z. B. genbedingte, körperliche sowie mentale
+und wesensbedingte Triebe zu Aggressionen aufgebaut, dann entstehen daraus Faktoren der Ausartung,
+woraus z. B. Eifersucht, Mord, Totschlag, Entführung von Menschen, sexueller Missbrauch von Kindern,
+Partnern und Partnerinnen, Unterdrückungen, Versklavung, Misshandlung und sonstig alle bösen Übel
+entstehen, deren sich ein Mensch durch seine unkontrollierten Aggressionen fähig macht. Also spielen
+nicht allein vererbte Faktoren resp. die Gene eine wichtige Rolle hinsichtlich der Gewaltbereitschaft des
+Menschen, sondern auch der mentalblockmässige Zustand resp. der Evolutionsgrad sowie die Intelligenz
+des Menschen. Das bedeutet, dass nebst der genmässigen Vererbung der Aggressivität auch der Zustand
+des Mentalblocks und der Intelligenz von enormer Bedeutung ist, so also der Zustand des Bewusstseins,
+der Gedanken und der daraus resultierenden Gefühle sowie der Psyche, die durch die Gefühle geformt
+wird. Der Zustand des Mentalblocks ist dafür verantwortlich, ob der Mensch sein Wesen positiv oder
+negativ formt und wie er dieser Formung gemäss handelt und wirkt. Also darf und kann nicht einfach
+davon ausgegangen werden, dass allein eine genmässige Vererbung den Menschen zu Gewalttaten
+führt, denn die Vererbung stellt nur den grundlegenden Faktor dar, der die Aggressivität ermöglicht,
+während der Mentalblock jedoch den hauptsächlichen Einfluss schafft und alles zur Funktion bringt. Verstand und Vernunft sind nämlich nicht nur zu einem gewissen Teil in den Genen enthalten, sondern auch
+evolutiv im Mentalblock, und allein aus diesem heraus erfolgt die Bestimmung, ob eine Gewalttat ausgeführt wird oder nicht. So ist auch der Mentalblock allein dafür verantwortlich – auch wenn genmässige
+Veranlagungen resp. Vererbungen bestehen –, wie der Mensch sein inneres Wesen sowie seine Triebe
+formt und diese nach innen und aussen zur Wirkung bringt. Also kann keine Gewalttat damit entschuldigt
+werden, dass eine erbmässige Veranlagung besteht, denn grundsätzlich und fortwirkend sowie überhaupt
+ist der Mentalblock – das Bewusstsein, die Gedanken und deren Gefühle sowie die Psyche – mit seiner
+Intelligenz resp. mit Vernunft und Verstand zuständig und verantwortlich für alles, was der Mensch auch
+immer tut, und zwar sowohl im Negativen und Bösen resp. Schlechten, wie auch im Positiven und Guten
+resp. Zuvorkommenden.
+
+
+-----
+
+Im Gegensatz zum aggressiven, angriffslustigen, heftigen, wenig einfühlsamen und unsanften sowie harten,
+kämpferischen und strengen Grundwesen des Mannes – das ihm seit Urbeginn natürlich genmässig gegeben ist, um sich in allen Lagen behaupten und in der harten Welt bestehen zu können – ist die Frau von
+einem weniger aggressiven und weniger angriffslustigen sowie weniger kämpferischen, sondern viel mehr
+von einem sanften, einfühlsamen, umsorgenden und ruhigen sowie stillen, milden und nachgiebigen Grundwesen. Aus der Natur heraus gesehen, sind die beiden Rollen darum so verteilt, weil der Mann in seiner
+Kraft und Stärke usw. als Beschützer der Frau und der Familie und als Zeugerkraft zur Nachkommenschaft
+sowie in Umsicht als Sorgetragender usw. eine Bestimmung hat, während die Frau als Empfangende,
+Behütende, Umsorgende und Belehrende für die Familie und Nachkommenschaft ihre Leistungen vollbringt.
+Also sind Mann und Frau in ihrem von Natur aus gegebenen Grundwesen vollkommen unterschiedlich
+und verschieden geartet, weshalb es wohl nicht verwunderlich ist, dass der Mann nicht nur andere
+Gedanken und Gefühle pflegt, sondern auch völlig anders handelt als die Frau. Wenn so also mehr
+schwere Gewalttaten und Kapitalverbrechen durch Männer in Erscheinung treten, dann ist das nicht verwunderlich, wenn sein naturmässig gegebenes aggressives Grundwesen in Betracht gezogen wird. Das
+aber kann niemals eine Entschuldigung sein, denn wenn auch der weibliche und der männliche Mentalblock in bezug auf die durch das Grundwesen gegebenen Faktoren etwas verschieden funktionieren, so
+sind doch Verstand und Vernunft gegeben, durch die das Richtige und das Falsche erkannt und erfasst
+und demgemäss in positiver oder negativer Hinsicht gesteuert werden können. Also gibt es keine Entschuldigung für Gewalttaten, Kapitalverbrechen, Lieblosigkeit, Hass, Rache, Vergeltung, Mord, Totschlag
+und Krieg usw., wie auch nicht für Vergewaltigung, Kindesmissbrauch, Kidnapping und Entführung von
+Erwachsenen, Umweltzerstörung, Tierquälerei, Misshandlungen, Verprügeln von Ehepartnern sowie
+Folter und was der bösen Übel und Taten alle sind. Und das gilt für beiderlei Geschlecht, denn gemäss
+den Schöpfungsgesetzen sollen weder Mann noch Frau sich in solchen üblen, bösen, negativen und ausgearteten Dingen ergehen, sondern beide Geschlechter sollen in Ehre und Würde sowie in wahrer Liebe,
+in Frieden, Harmonie und Freiheit miteinander leben und all diese hohen Werte in die Familien, zu den
+Nächsten, Freunden und Bekannten hineinbringen sowie in die Welt zur ganzen Menschheit hinaustragen,
+damit alle endlich zur Ruhe kommen.
+Billy
+
+## Gedanken über den Umgang mit dem weiblichen Geschlecht
+### oder über die alltägliche Diskriminierung, Degradierung und Missachtung der Frauen
+Deutsch-türkische Kämpferin für Frauenrecht gibt auf. Die prominente türkisch-stämmige Berliner Anwältin
+Seyran Ates gibt ihre Lizenz zurück, weil sie um ihr Leben fürchtet (Tages-Anzeiger, Zürich, vom 6. September 2006).
+Die eingangs erwähnten Zeilen aus der Tagespresse waren Anstoss für die folgenden Gedanken. Es ist
+nicht das erste Mal, dass sich der Autor oder die FIGU in ihren Schriften mit diesem bedauerlichen und
+beschämenden Thema beschäftigen. Allein auf der Website der FIGU unter www.figu.org sind zahlreiche
+Artikel zum Thema ‹Missachtung und Suppression der Gleichwertigkeit von Mann und Frau› zu finden.
+Einmal mehr stimmt daher der angeführte Zeitungsartikel über einen weiteren verlorenen Kampf der
+Frauen für die Gleichwertigkeit der Geschlechter sehr nachdenklich. Vor allem jedoch die Tatsache, dass
+auf unserem wunderbaren Planeten ein solcher Kampf überhaupt ausgetragen werden muss. So legt diese
+Auseinandersetzung wiederholt eine weitere menschliche Tragödie offen, die zu beschreiben eine gewisse
+Trauer, Betrübtheit und Unmut nicht vermeiden lassen. Es liegt jedoch nicht in der Absicht des Autors,
+weitere der zahlreichen Übel, Wehen, Ausartungen und Krankheiten dieser Erdenwelt und ihrer Bewohnerinnen und Bewohner bis zum Überdruss zu beschreiben oder aufzuzählen. Es ist jedoch eine
+Tatsache, dass dieses wichtige Thema der missachteten Gleichwertigkeit und Gleichbehandlung von
+
+
+-----
+
+Mann und Frau nicht einfach unter den Teppich gekehrt und vernachlässigt werden darf. Vor allem den
+männlichen Zeitgenossen müssen diese Zusammenhänge und Ungerechtigkeiten immer und immer wieder
+in ihr Bewusstsein gerufen und mit klaren und deutlichen Worten vor Augen geführt werden.
+Unabhängig von zahlreichen kultreligiösen und frauenfeindlichen Traditionen finden sich auch im Denken
+zahlreicher und vermeintlich gebildeter und zivilisierter Männer noch immer massenweise berufliche,
+wirtschaftliche, ideologische, soziale, politische und vor allem sexuell motivierte Hintergründe, Antriebe
+und Argumente, das weibliche Geschlecht zu unterdrücken, deren Rechte zu ignorieren oder in erniedrigender Art und Weise zu missachten. In Tat und Wahrheit existieren im gesamten Weltenraum und
+angesichts Milliarden bewohnter Welten und Billionen menschlicher Meinungen und Ansichten keine
+wahrlichen und schöpfungsbedingten Grundlagen, Gesetze oder Gebote, die dem weiblichen Geschlecht
+in irgendeiner Art und Weise ihre schöpferisch-menschlichen Rechte der Gleichbehandlung, Gleichheit
+und Gleichwertigkeit verweigern würden.
+Das schöpferische ES, das Schöpfungsbewusstsein sowie die menschlichen Geistformen sind eine neutrale,
+belebende und lebenspendende Kraft. Lediglich die sinnlich fassbaren Sphären, gegenständlichen Welten
+und materiellen Bereiche erfordern zur Fortpflanzung der körperlich-fleischlichen Lebensformen ein weibliches und ein männliches Prinzip, so also Mutter und Vater – Mann und Weib.
+Durch den inkarnationsbedingten körperlichen Wandel des menschlichen Geschlechts werden theoretisch
+aus den männlichen Unterdrückern in wechselnder Folge einer neuerlichen Geburt weibliche Unterdrückte.
+Das ist eine Tatsache, die jedoch in dieser Form nur theoretisch und als bessere Veranschaulichung in
+dieser Art und Weise betrachtet werden kann. Dies darum, weil mit jeder neuen Inkarnation in einem
+weiblichen oder männlichen Körper auch ein neues Bewusstsein gebildet wird. So gesehen und bildlich
+betrachtet, kann sich also weder ein Schmied, Schuster oder Schreiner von Berufs wegen gegen die
+Näherin, die Magd oder eine einfache Melkerin erheben, weil er theoretisch in einem folgenden Leben
+als neue Persönlichkeit ebenfalls als eine solche geboren werden könnte. Somit zeugt die Erniedrigung
+und Missachtung des weiblichen Geschlechtes durch die Männer einen Bumerangeffekt, dessen Auswirkungen letztendlich immer mit verheerender Gewalt auf die Urheber zurückgeworfen werden.
+Selbstredend kann die Unterdrückung und Knechtschaft der Frauen nicht einfach pauschalisiert oder
+generalisiert werden, denn das schöpferische Prinzip des Strebens und des Vorwärtskommens fordert
+auch auf dieser Erde ihren Tribut. Tatsächlich lassen sich in religiös, philosophisch, politisch oder ideologisch unabhängigen männlichen Kreisen immer mehr rechtschaffene und gewissenhafte Menschen
+finden, die sich dieser Unbill und Ungerechtigkeit gegenüber dem weiblichen Geschlecht bewusst geworden sind und an der Seite der Frauen für deren Rechte kämpfen. Gegenwärtig sind jedoch auch diese
+Männer – weltweit betrachtet – noch eine unscheinbar kleine Minderheit, doch sie haben gelernt, die
+Frauen als gleichwertige, ebenbürtige und gleichberechtigte Mitmenschen zu achten, zu respektieren und
+zu ehren, und auch sie haben eine durchaus schwierige Vorreiter-Rolle zu erfüllen. Leider lassen sich aber
+im alltäglichen Leben mit Leichtigkeit sehr viele Situationen finden, in denen das weibliche Geschlecht in
+irgendeiner Art und Weise benachteiligt, degradiert, unterdrückt, unterprivilegiert, mit Vorurteilen behaftet
+oder nicht ernstgenommen wird. Infolge dieser jahrtausendealten und schäbigen Tradition werden und
+wurden im Gegenzug von den Frauen gewisse männerfeindliche und ihrerseits ungebührliche Verteidigungsstrategien entwickelt. Diese haben letztendlich wiederum zu einem unrühmlichen Krieg der Geschlechter,
+zu Misstrauen und Ablehnung untereinander geführt. Millionen Männer unterdrücken und versklaven die
+Frauen, zahlreiche Frauen generalisieren und hassen dafür die Männer. Das ist eine denkbar schlechte
+Basis und unglückliche Voraussetzung für eine gute evolutive und gemeinsame Entwicklung zu Beginn des
+dritten Jahrtausends.
+Vordergründig werden in den vermeintlich zivilisierten Nationen und Ländern die verschiedensten Gesetze und Richtlinien zur Gleichwertigkeit der Geschlechter geschaffen. Allein die Notwendigkeit solcher
+Gesetzartikel und Rechtsprechungen zeugt von einer offensichtlich vorherrschenden gesetzwidrigen und
+unterdrückenden Denkweise und Grundhaltung seitens des männlichen Geschlechts. Menschliche Ge
+
+-----
+
+setze und Paragraphen dienen einer Gesellschaft oder einer Zivilisation zur Regulierung und Berichtigung
+eines devianten resp. vom Weg abgehenden und normwidrigen Verhaltens. Eine alte Weisheit besagt
+nicht umsonst: «Wo kein Kläger ist, da ist auch kein Richter.» Jegliche menschlichen Gesetze zur Gleichberechtigung und Gleichwertigkeit von Mann und Frau zeugen also im Grunde genommen davon, dass
+gewisse Menschen nur durch äusseren Zwang und die Erziehung durch die Jurisprudenz zur Akzeptanz
+und Einhaltung dieser grundlegenden Menschenrechte der Gleichwertigkeit und Gleichbehandlung
+angehalten werden können. Das Bewusstsein der Gleichwertigkeit entspricht im menschlich-irdischen
+Denken keiner natürlichen Gegebenheit und muss gegenwärtig durch menschliche Gesetze erzwungen
+werden. Diese juristische Realität zeigt, dass im Denken, in den Gefühlen und im Handeln der Erdenmenschheit – vor allem im Bewusstsein der Männer – noch immer ein gewisses Ungleichgewicht sowie
+Ablehnung und eine Voreingenommenheit über die Gleichwertigkeit, Gleichberechtigung und Gleichbehandlung der Geschlechter besteht. Für einen schöpfungsorientierten und schöpfungsbewussten
+Menschen sind derartige menschliche Gesetzgebungen überflüssig, denn in den schöpferischen Gesetzen
+und Geboten ist die Gleichwertigkeit von Frau und Mann als eines der obersten Prinzipien selbstverständlich.
+Von irgendwelchen Religionen, Dogmen, Philosophien, Ideologien oder von nahestehenden Mitmenschen
+unterdrückt, geächtet oder als Mensch zweiter Klasse beschimpft zu werden, kann in einem derart terrorisierten Menschen schwerste psychische und bewusstseinsmässige Schädigungen erzeugen. Manien,
+Komplexe und Störungen aller Art sind logische Folgen. Diese Suggestionen gewinnen vor allem dann an
+Macht und zerstörerischer Gewalt, wenn einem Menschen diese Verurteilungen, Prägungen, Demütigungen,
+Entehrungen oder Erniedrigungen von Kindheit an eingetrichtert wurden und werden.
+Auf diesem Planeten haben vor allem die Frauen seit Generationen und Jahrtausenden unter einem tiefgreifenden psychischen Terror, der unmenschlichen Herrschsucht männlicher Gier sowie kultreligiöser
+Traditionen, Irrlehren, Falschlehren, Dominanz und fremder Befehlsgewalt zu leiden. Die männlichen Umgangsformen mit dem weiblichen Geschlecht dieses Planeten basieren auf Verletzungen, Beleidigungen,
+Schrammen und eitrigen Wunden. Es wird unbestritten noch sehr lange dauern, bis diese psychischen,
+physischen und bewusstseinsmässigen Blessuren endgültig wieder verheilt, geschlossen und vollumfänglich beseitigt sind.
+Die eigene weibliche Persönlichkeit als minderwertig oder wertlos zu erfahren, ist in allen materiellen und
+feinstofflichen Bereichen des Lebens höchst entwicklungsschädigend und hemmend. Die persönliche Individualität und der ureigene Charakter des betroffenen Menschen werden in ihrer freien Entfaltung
+behindert, gestört und beengt. Millionen irdischer Frauen leben im traurigen und schrecklichen Bewusstsein, eigentlich unerwünscht, lediglich eine kostspielige Last oder einfach nur geduldet zu sein. Liebe,
+Achtung, Zuneigung und Geborgenheit sind ihnen zeitlebens Fremdwörter geblieben, geschweige denn
+zu einer positiven und persönlichen Erfahrung geworden. Die zahlreichen Kultreligionen dieser Erde haben
+einen wesentlichen Teil zu dieser unglücklichen Entwicklung beigetragen. Im Namen kultreligiöser oder
+gesellschaftlicher Traditionen, der Wirtschaftlichkeit und falscher Wertvorstellungen werden auf diesem
+Planeten noch immer Millionen weiblicher Föten abgetrieben. Gegenüber Knaben gelten sie als minderwertig und wertlos. Daher werden sie in bestimmten Gegenden der Erde vielfach unter zweifelhaften
+hygienischen und gesundheitlichen Bedingungen zu Tausenden ihren wehrlosen, rechtlosen und ungefragten Müttern aus dem Leib gerissen und wie leidiger Abfall entsorgt. Diese unbeschreiblich unwürdige
+Handlungsweise wird eines Tages unweigerlich zu grossen und schwerwiegenden Konsequenzen für
+ganze Völker führen. Bereits heute zeigen sich in verschiedenen Weltregionen die logischen Folgen in Form
+eines massiven Frauenmangels, der wiederum zu Aggressionen und Streitigkeiten unter der horrenden
+Überzahl junger Männer führt. Es liegt auf der Hand, dass sich die zahlreich heranwachsenden Söhne
+nach den fehlenden Mädchen und jungen Frauen sehnen, die jedoch bereits während der Schwangerschaft ihren Müttern wieder aus dem Leben gerissen werden. Selbst die Überbevölkerung kann mit solchen
+unwürdigen und drastischen Massnahmen nicht gewaltsam bekämpft werden, denn sie zeugen von
+
+
+-----
+
+Unmenschlichkeit, Barbarei und unbeschreiblichen Greueltaten an Körper, Psyche und Bewusstsein.
+Mädchen und Frauen werden auch im dritten Jahrtausend in zweifelhaften Kulturen noch immer als eine
+unerspriessliche Sache oder als Handelsware betrachtet, aus der letztendlich für diese weder Kapital noch
+materieller Nutzen zu ziehen ist. Haben sie ihre gebärende Pflicht erfüllt, werden viele dieser armen
+Geschöpfe ausgemustert, abgeschoben oder einem harten und menschenunwürdigen Schicksal überlassen. Das sind harte und schonungslose Worte, doch leider entbehren sie nicht einem tragischen und
+realistischen Hintergrund. Zweifellos wäre es um ein vielfaches angenehmer, diese Wahrheiten und unrühmlichen Zustände nicht beschreiben oder anprangern zu müssen. Doch allein während der wenigen
+Minuten, in denen diese Sätze entstanden sind oder gelesen werden, wurden weltweit unzählige Frauen
+und Mädchen allein wegen ihres ‹falschen› Geschlechtes misshandelt, verurteilt, geschändet, abgetrieben,
+getötet oder verstümmelt.
+Aufgrund verschiedenster von den Männern erschaffener schöpfungs- und naturwidriger Grundlagen
+haben noch immer zahlreiche Frauen weder das Recht auf persönliche Gefühle, eigene Bedürfnisse noch
+irgendwelche andere menschliche Regungen aller Art. Diesen Ungerechtigkeiten darf nicht mit Schweigen,
+Wegsehen oder verschlossenen Augen begegnet, sondern ihnen muss mit einem Aufschrei entgegengetreten werden. Zu Tausenden werden auf diesem Planeten junge Frauen von ihren Familien lediglich als
+Gebärmaschinen für männliche Stammhalter an wildfremde Männer verkauft. Mit teuren Mitgiften und
+dem Stigma der Verantwortung für den Familienruin versehen, werden sie vielfach ungefragt und rücksichtslos als rechtlose, billige Sklavinnen oder als Herhälterinnen verschachert. Ohne Rücksicht auf ihre
+Gefühle, ihr Befinden oder in bezug auf die bewusstseinsmässige und psychische Verfassung haben sie
+lediglich eine biologische Aufgabe zu erfüllen und den sexuellen und materiellen Bedürfnissen einer männlichen Gesellschaft gerecht zu werden. Millionen Mädchen und Frauen wurden und werden täglich weltweit in dieser archaischen Tradition zur Unterwürfigkeit, Wertlosigkeit und zum Schweigen erzogen.
+Durch dogmatische, kultreligiöse oder ideologische Vorschriften, psychische und bewusstseinsmässige
+Gewalt sowie den verschiedensten Inhibitionen sind die rechtlosen, vielfach geschlagenen und unterdrückten Frauen häufig des eigenen Denkens, der eigenen Gefühle und des Empfindens verlustig gegangen.
+Durch äussere und gewaltsame Einflüsse, wie falsche Belehrungen, Isolation, Körperstrafen, Bildungsentzug, Analphabetismus oder Indoktrinierung aller Art, haben sie in der Annahme eigener Unzulänglichkeit und Orientierungslosigkeit aufgezwungene fremde Normen, traditionelle Dogmen und vorgeschriebene Denkweisen übernommen. Gravierende psychische und bewusstseinsmässige Schädigungen
+und Manipulationen haben sich bereits tief im Denken und Fühlen der geketteten Frauen verankert und eingebrannt. Dadurch wurde gewissen Handlungsweisen wie gesellschaftlichen Normen und kultreligiösen
+oder männlichen Machtansprüchen zum Zwecke der weiblichen Unterdrückung bereits eine gewisse
+Eigendynamik verliehen. Aus diesem Grund werden je nach kulturellem Umfeld Klitorisbeschneidungen
+und Zwangsverheiratungen von traditionsbewussten Frauen vielfach gutgeheissen, weil diese Handlungen
+angeblich auf vermeintlich guten, bewährten und alten Überlieferungen und Stammesbräuchen usw. beruhen und daher kritiklos und ungeprüft einfach übernommen und vollzogen werden.
+Auch wenn in den sogenannten westlichen Industrienationen sehr viele selbständige und selbstbewusste
+Frauen an die Öffentlichkeit treten oder millionenfach still und leise ohne grosses Aufsehen ein unabhängiges, selbstbestimmtes und eigenständiges Leben führen, sind diese Frauen – weltweit betrachtet – eine
+verschwindend kleine Minderheit. Tatsächlich werden auch in sogenannten modernen Ländern die Frauen
+im Verborgenen und hinter verschlossenen Türen vielfach geschunden, versklavt, zur Prostitution erniedrigt,
+als Arbeitstiere behandelt, misshandelt, ausgebeutet und eingeschüchtert. Andernfalls wären Frauenhäuser und diesbezügliche Beratungsstellen sinnlose Einrichtungen. Die Realität und Statistiken beweisen
+jedoch genau das Gegenteil. Aktuelle Zeitungsberichte sind fast täglich der Tagespresse zu entnehmen.
+(Tages-Anzeiger, Zürich, Mittwoch, 20. September 2006 – Frankreich: Neun Tote nach Familiendramen.)
+Millionen Frauen werden in den verschiedensten sichtbaren und latenten Formen von brutalen Ehemännern,
+unfähigen Lebenspartnern oder von unwürdigen, falschen, profitgierigen und zuhälterischen ‹Freunden›
+
+
+-----
+
+einer gierigen, faunischen und geifernden Männerwelt als Sexobjekte angeboten, in niederen beruflichen,
+familiären oder gesellschaftlichen Positionen gehalten, ihrer Persönlichkeit und eigener Bedürfnisse beraubt oder durch eheliche Gewalt und Übergriffe in ihrer persönlichen Entfaltung ausgebremst. Selbst in
+westlichen und vermeintlich aufgeklärten Zivilisationen haben das Frauenstimmrecht oder die Ansätze zur
+Gleichwertigkeit und Gleichbehandlung keine lange Tradition. Der Einführung des Frauenstimmrechts zum
+Beispiel wurde in der Schweiz erst durch eine eidgenössische Abstimmung am 7. Februar 1971 zugestimmt. Mittlerweile sind erst rund 36 Jahre vergangen. Das formelle Inkrafttreten fiel auf den 16. März
+1971. Die hochzivilisierte und moderne Schweiz war somit eines der letzten europäischen Länder, das
+seiner weiblichen Bevölkerung die vollen Rechte als Bürgerinnen zugestand, doch es war das erste Land,
+in dem dies durch eine Volksabstimmung geschah. Das politisch eng mit der Schweiz verbundene Fürstentum Liechtenstein führte das Frauenstimm- und Wahlrecht erst im dritten Anlauf am 1. Juli 1984 ein. In
+Neuseeland gilt das Frauenstimmrecht seit 1893, in Deutschland seit 1918 und in der Türkei seit 1934.
+Bis das Frauenstimmrecht in allen schweizerischen Kantonen durchgesetzt war, sollte es allerdings noch
+rund weitere 20 Jahre dauern: Am 25. März 1990 gab das Bundesgericht einer Klage von Frauen aus
+Appenzell Innerrhoden recht und bestätigte damit die Verfassungswidrigkeit der Innerrhoder Kantonsverfassung in diesem Punkt.
+Zahllose Kämpferinnen für Gleichwertigkeit und Gleichbehandlung werden selbst in der aufgeklärten
+Schweiz im Berufsleben noch immer desavouiert, gemobbt oder aus frauenfeindlichen Motiven heraus
+eines fadenscheinigen Vergehens angeprangert. Andererseits lassen sich durchaus viele Frauen finden,
+die sich zumindest in unserer westlichen Gesellschaft in keiner Art und Weise benachteiligt fühlen und
+durch die Männer ihres direkten Umfeldes eine gebührende Achtung und den nötigen Respekt erfahren.
+Das ist eine erfreuliche Tatsache, die dem Autor in persönlichen Gesprächen mit Frauen verschiedenster
+Gesellschaftsschichten, alleinerziehenden Müttern, lesbischen Paaren oder Berufs- und Karrierefrauen
+usw. bestätigt und bezeugt wurde. Selbstredend würden jedoch Umfragen in Frauenhäusern oder in
+Frauenberatungsstellen zu anderen Ergebnissen führen.
+Die vordergründige Gleichbehandlung des weiblichen Geschlechtes durch die Männer basiert vielfach auf
+zweifelhaften Gründen. Ursachen für generöse Übervorteilungen und Bevorzugungen der Frauen durch
+die Männer liegen oftmals weniger auf einer bewussten, klaren und respektierenden Haltung zum Thema
+Gleichwertigkeit und Gleichbehandlung, als vielfach mehr auf hormonell bedingten Vorgängen und testosterongesteuerten Argumenten. Zahlreiche Männer verfügen vor allem in sexuellen Belangen über keinerlei Selbstkontrolle oder Beherrschung. Sie wissen sich gegenüber der Weiblichkeit nicht mit Sitte und
+Anstand zu benehmen. Letztendlich entschuldigen oder rechtfertigen weder Fortpflanzungstriebe, Hormone,
+Begierden oder Lüste noch die verschiedensten und vielfältigsten sexuellen Leidenschaften eine Missachtung oder Nichtbeachtung der Frau in gegenseitiger Achtung, Würdigung und Respekt. Männer und
+Frauen sind in einer Ehe, in partnerschaftlichen, freundschaftlichen oder eheähnlichen und anderen
+Beziehungsformen durchaus in der Lage, selbst in lustvollen und sinnlichen Begegnungen die Regeln der
+gegenseitigen Achtung, des Respekts und der Würde bewusst zu bewahren. Vordergründig versuchen
+sich viele männliche Zeitgenossen gegenüber den Frauen anständig, gesittet und kongruent zu verhalten.
+Sie geben sich ritterlich und charmant, werfen mit Blumen und Komplimenten um sich, solange sie sich
+auf der Zielgeraden wähnen. Haben sie jedoch das Objekt ihrer Begierde erobert, folgt für viele Frauen
+ein jähes Erwachen und die bittere Ernüchterung. Bald einmal lassen viele romantische Helden und
+moderne Ritter ihre aufgesetzten, eitlen Masken fallen, verlieren das Interesse an ihrer Beute und zeigen
+ihr wahres Gesicht. Bei zahlreichen Männern zeigt sich durch die Aussicht auf Erfolg ein psychologisch
+interessantes Phänomen des Kontrollverlustes, wie es beispielsweise kürzlich auch bei einer Begegnung
+vermeintlich hochstudierter Menschen mit dem römisch-katholischen Papst zu beobachten war. Die Selbstkontrolle, das Vernunft- und Verstandesdenken werden vergessen, verschwinden und werden umgehend
+durch zweifelhafte Aktionen, Handlungen, unlogische Reaktionen und Verhaltensweisen wie Personenkult
+und Verehrung überlagert.
+
+
+-----
+
+Die Missachtung, Unterdrückung und Nichtbeachtung der Frauenrechte sowie die Blasiertheit gegenüber
+dem weiblichen Geschlecht sitzt noch immer tief in der herrschsüchtigen und machtgierigen Gesinnung
+zahlreicher Männer, trotzdem es offiziell als rückständig und althergebracht gilt. Daher wird dieses
+deviante und unmoderne Verhalten in der Regel nicht offen zur Schau getragen, sondern vielmehr im
+Verborgenen und Versteckten ausgelebt. Gemäss eigenen persönlichen Erlebnissen und Erfahrungen des
+Autors oder den Schilderungen betroffener Frauen sind diesbezügliche, beschämende und unflätige Verhaltensweisen männlicher Zeitgenossen keine Seltenheit.
+Angesichts der jahrtausendealten Erniedrigungen durch das männliche Geschlecht haben sich zahlreiche
+Mädchen und Frauen eigene Überlebensmöglichkeiten geschaffen. Zur Durchsetzung ihrer Rechte und
+weiblichen Würde haben sie einen steinigen, kämpferischen und mühsamen Weg beschritten und dabei
+zwangsläufig auch gewisse männliche Verhaltensmuster übernommen. Aus diesem Grund sind gegenwärtig selbst in weiblichen Kreisen sehr gegensätzliche und widersprüchliche Einschätzungen, unklare
+Vorstellungen, aggressive Strömungen, zweifelhafte Ideologien und fragwürdige Auffassungen zum Thema
+Gleichwertigkeit und Gleichberechtigung zu erkennen und zu finden. Vielfach wehren sich z. B. geschiedene oder lebenserfahrene Hausfrauen und Mütter gegen die traditionellen und herkömmlichen Formen
+des Familienlebens. Sie schätzen ihre neugewonnenen oder hart erkämpften Freiheiten und geniessen die
+Vorzüge persönlicher Selbstbestimmung, die ihnen unter Umständen während Jahren vorenthalten wurde.
+Doch bereits von den eigenen Töchtern werden ihre Ideen und Erfahrungen wieder verworfen. Daher sind
+auch innerhalb weiblicher Kreise gewisse Fehden und Auseinandersetzungen in bezug auf diese Themen
+nicht zu vermeiden. Sogenannte Emanzen-Bewegungen stellen sich gegen die politischen und sozialen
+Bemühungen und Anstrengungen ihrer gemässigten Geschlechtsgenossinnen. Moderne Autorinnen
+fordern und befürworten ein neuerliches Überdenken der traditionellen Mutterrolle im Sinne einer kindergerechten Erziehung und provozieren damit erneute Streitgespräche und Diskussionen in feministischradikalen Kreisen.
+Entgegen geschlechtsspezifischen Unterschieden zwischen Mann und Frau haben sich sowohl in sprachlichen, gesellschaftlichen, wirtschaftlichen als auch in sozialen Umgangsformen zahlreiche Ähnlichkeiten
+der Geschlechter entwickelt. Gewisse männliche Kreise haben feminine bis weibische Züge angenommen,
+während sich bestimmte Vertreterinnen des weiblichen Geschlechtes mit der Aura des Verschrobenen und
+Virilen umgeben. Zwischen Frauen und Männern bestehen jedoch gewaltige psychische, gefühlsmässige
+und bewusstseinsmässige Unterschiede. Die Gleichwertigkeit der Geschlechter bedeutet gemäss der
+Geisteslehre der FIGU nicht eine Gleichmachung von Mann und Frau, sondern sie lehrt eine Gleichheit
+und Gleichberechtigung von Mann und Frau. Also sollten Männer und Frauen in bestmöglicher Form und
+gemäss ihrer schöpferischen Aufgaben und Existenz voneinander lernen und miteinander leben sowie sich
+die gleichen Rechte zugestehen. Die weiblichen Qualitäten und Stärken, die Dinge und Sachverhalte unter
+Einbezug einer gefühlsmässigen, feinfühligen und mütterlichen Komponente zu betrachten, birgt für den
+Mann grosse evolutive Ressourcen. Im Gegensatz dazu könnten die Frauen von der Logik und der
+Rationalität des männlichen Denkens und Bewusstseins profitieren. Entgegen dieser Chance und jeglicher
+Vernunft werden die geschlechtsbedingten Unterschiede jedoch vielfach in einem unlogischen Konkurrenzkampf gegeneinander aufgewogen und in sinnlosen Kämpfen und Disputen ausgefochten. Über die
+Gegensätzlichkeit und den gemeinsamen Nutzen eines bewussten Lernens sind bereits zahllose lehrreiche
+und schlechte Bücher geschrieben worden. Dennoch sind viele Klärungsversuche und politische Schritte
+in Richtung der Gleichwertigkeit und Gleichberechtigung von Mann und Frau vielfach nur reine Theorie
+geblieben. Vor allem auch darum, weil sich die irdische Männlichkeit in ihrem Bewusstsein und Überlegenheitswahn nur sehr schwer zu einem Umdenken in Richtung Gleichwertigkeit, Gleichheit und Gleichberechtigung von Mann und Frau bewegen lässt. Solange die Männer in den Frauen lediglich ein Objekt
+der Begierde sehen, ihren Trieben freien Lauf lassen und das weibliche Geschlecht lediglich respektlos und
+würdelos behandeln und benutzen, werden sich auch die Aggressionen und Ablehnung der Frauen
+gegenüber den Männern weiterhin aufbauen und entwickeln. Dadurch sind mittlerweile auch viele Frauen
+
+
+-----
+
+keine Heiligen mehr – wenn sie es denn jemals gewesen sind. Bereits haben auch sie im Übermass ungerechtfertigte Vorurteile, kriegerische und kämpferische Haltungen gegen die Männerwelt entwickelt und
+bissige Standpunkte eingenommen. Leider haben auch viele Frauen in ihrer mitunter verständlichen Auflehnung gegen die männliche Arroganz eine positive Entwicklung der Männerwelt verschlafen und sich
+in ihrem blinden Widerstand in Fanatismus und Emanzipationskämpfen verstrickt. Selbst einfache Begegnungen mit der Männerwelt werden vielfach unbegründet als Akt der Aggression gedeutet und missverstanden. Andererseits haben sie sich jedoch gegen tatsächliche Übergriffe und den Missbrauch durch die
+Männerwelt zu erwehren gelernt und sind täglich gezwungen, über den schmalen Grat des Abwägens
+zu balancieren. Es ist kein Geheimnis, dass viele Mädchen, junge und reifere Frauen, während ihrer Kindheit und Jugend sexuelle Übergriffe zu erdulden hatten. Tatsächlich werden jedoch in heutiger Zeit – wenn
+auch zu einem geringeren Teil – bereits Männer von Frauen psychisch oder körperlich misshandelt.
+Unsere Welt ist in Sachen Kampf der Geschlechter zu einem multikulturellen Ort geworden. Zahlreiche
+ähnliche oder vergleichbare Handlungsweisen und Verhaltensmuster sind mittlerweile bei beiden Geschlechtern zu finden, ebenso Ausartungen, Kriminalität und verschiedene weitere Extreme. Zahlreiche
+Frauen dieses Planeten haben die graziöse und weichherzige Weiblichkeit durch eine resignierte Härte
+ersetzt und gelernt, sich gegen die täglichen Missachtungen, Unverfrorenheiten, Interventionen und Übergriffe der Männerwelt auf ihre Fraulichkeit zu wehren. Die neue und offene Wehrhaftigkeit des weiblichen
+Geschlechtes darf jedoch nicht darüber hinwegtäuschen, dass noch immer Millionen Mädchen und Frauen
+dieses Planeten keinerlei Möglichkeiten zur Gegenwehr besitzen. So fordert die eingangs erwähnte und
+zurückgetretene Anwältin und deutsch-türkische Kämpferin für Frauenrechte eine Reform des deutschen
+Strafrechts, das Zwangsheiraten blutjunger türkischer Mädchen mit wildfremden Männern zulässt und
+allenfalls mit einer Geldstrafe ahndet. Seyran Ates hält das für eine Menschenrechtsverletzung und ein
+Verbrechen, das nach ihrer Meinung auch bestraft werden müsste. Ganz zu schweigen von der Ungeheuerlichkeit, dass junge Mädchen und Frauen von eigenen Familienmitgliedern wegen eines archaischen
+Ehrbegriffs umgebracht werden. «Frauen sind Sklavinnen auf dem muslimischen Heiratsmarkt» beschrieb
+sie die Lage vieler betroffener Frauen. Die ebenfalls in Deutschland aufgewachsene und eingebürgerte
+Soziologin und Autorin Necla Kelek provozierte mit ihrem Buch ‹Die fremde Braut›, in dem sie zahlreiche
+Fälle von zwangsverheirateten Türkinnen dokumentiert, einen Skandal. Die ehemalige Anwältin Seyran
+Ates ist der Drohungen und gewaltsamen Übergriffe der Männer auf ihre Person überdrüssig geworden
+und fürchtet um ihr Leben.
+Letztendlich ist den Frauen am Ende dieses Artikels in ihrem Kampf für die Gleichwertigkeit und Gleichberechtigung einmal mehr Beherztheit, Ausdauer und Kraft zu wünschen. Als männlicher Zeitgenosse
+wünsche ich ihnen die nötige Reife und Weisheit, Gelehrtheit, Vernunft und Besonnenheit, die horrenden,
+menschenverachtenden Untugenden und Ruchlosigkeiten der kriegerischen und uneinsichtigen Männerwelt der vergangenen Jahrtausende nicht zu wiederholen. Ich vertraue darauf, dass sie die Ehrfurcht, den
+Respekt und die Achtung gegenüber dem Leben nicht verlieren, sondern diese vielmehr als oberste schöpferische Prinzipien zu erkennen vermögen. Frauen und Männer gehören zur Lebensform ‹Mensch› und
+sind gemäss ihrem jeweiligen Sinn, Zweck und ihrer evolutiven Aufgabe vollkommen gleichwertige und
+gleichberechtigte Wesensformen. Zu Beginn des Dritten Jahrtausends ist es eine wichtige Berufung der
+Frauen, dem starrköpfigen und unbelehrbaren männlichen Geschlecht diese schöpferische Tatsache und
+Wirklichkeit vor Augen zu führen und mit gutem Vorbild voranzugehen. Nicht jedoch in einem erniedrigenden, demütigenden und zerstörerischen Kampf der Geschlechter, vielmehr durch die Erkenntnis, das
+Erfahren und dessen Erleben sowie die Gewissheit der schöpferischen Wahrheit, der Liebe, des Friedens,
+der Freiheit und der Harmonie, um auch in dieser Hinsicht ihrer eigentlichen Bestimmung und der Bezeichnung ‹Weib› als Wurzel des Lebens gerecht zu werden (siehe Artikel ‹Vom Ursprung und der Bedeutung
+von Begriffen – Vom OMEDAM zu den Mannen, von den Mannen zum Mann, zum Weib und zur Frau›,
+von Hans-Georg Lanzendorfer, veröffentlicht in ‹Stimme der Wassermannzeit› Nr. 92, September 1994).
+Hans-Georg Lanzendorfer, Schweiz
+
+
+-----
+
+## Bemerkenswerte Zeilen
+
+Lieber Billy, liebe FIGU
+So, nun möchte ich noch ein paar Worte an unseren lieben ‹Chef› Billy richten:
+Diese, meine Zeilen, möchte ich damit beginnen, dass ich persönlich an Dich, lieber Billy, schreibe – aber
+damit einverstanden bin, dass auch die gesamte FIGU dies zu lesen bekommt. Meine Gedanken verweilen
+in letzter Zeit sehr oft bei Dir, mein Freund. – In den vergangenen letzten drei Monaten hatte ich mit vielen
+kleineren Erkrankungen zu kämpfen. Die letzte, die mir einen Krankenhausaufenthalt einbrachte, führte
+mich an die Schwelle des Todes. Dies soll Dich nicht erschrecken, denn ich habe die Geschichte noch in
+letzter Stunde durch meine innere Stimme – den sogenannten eigenen ‹inneren Arzt› oder Schutzmechanismus – und mit Hilfe der mich behandelnden Ärzte überstanden. Eine lapidare Wurzelbehandlung des
+Backenzahnes ist leider schiefgegangen, und ein in meinem Kiefer gewachsener Abszess war derart mit
+Eiter angefüllt, dass mir – laut Aussagen einer Ärztin – kein weiterer Tag mehr beschieden gewesen wäre,
+wenn ich ihn ohne ärztliche Behandlung hätte verstreichen lassen. Die weiteren Einzelheiten hierzu
+möchte ich nicht näher erläutern, denn ich weiss, dass Du mit diesem Thema vertraut bist. Während
+meines Krankenhausaufenthaltes nahm ich Dein Buch ‹Wiedergeburt, Leben, Sterben, Tod und Trauer›
+zur Hand. Dies war mir eine grosse Hilfe und Stütze, denn niemals habe ich mich so eingehend mit diesem
+Thema beschäftigt wie zu dem Zeitpunkt, als Gevatter Tod kurz vor meiner Türe stand. Gedanklich habe
+ich das Thema bis zu diesem Zeitpunkt immer von mir weggeschoben. Nun beschäftige ich mich seither
+dank Deinem so unbeschreiblich wertvollen Buch mit diesem sehr wichtigen Thema. Natürlich bleibt die
+Angst davor, wie ich sterben werde, aber Dein Buch soll und wird mir eine Hilfe sein, meine Gedanken
+und mein Bewusstsein zu stärken, um diesen Umstand des Unausweichlichen zu akzeptieren, ja sogar als
+Schwelle eines kommenden neuen Lebens zu begreifen. Dies wird eine Aufgabe sein, die ich noch mit viel
+Arbeit und Gedankenkraft zu bewältigen habe. Natürlich weiss ich, dass ich viele Themen aus Deinen
+Büchern, die ich bereits gelesen habe, nicht richtig umsetzte, aber ich bin der guten Zuversicht, dass ich
+lerne und Deine Lehre wieder und wieder repetiere und mich damit weiterentwickle. Nur so kann ich mit
+meinem ‹Kleingeist› das erlernen und verarbeiten, was Du, in auch für mich unermesslicher Arbeit, zu
+Werke gebracht hast. Leider hat die Gesamtheit der Menschen Dein liebevolles Tun und Wirken für die
+Wahrheit der Gesetze und Gebote der Schöpfung noch nicht bemerkt oder nicht erkannt, so dass es noch
+lange auf sich warten lässt, bis die Menschheit auf diesem Planeten daraus einmal Nutzen zieht. Aber ich
+hoffe, dass der Tropfen im Meer eine Welle auslöst, die nicht mehr aufzuhalten ist.
+Mir ist es ein Bedürfnis, das einmal auszusprechen, was wenige Menschen äussern. Trotz meiner Stellung
+als Staatsdiener, und unabhängig der Folgen, die ich leider schon zu spüren bekam, bin ich immer und
+ohne Kompromisse der Meinung, dass alle Staatsformen und Religionen auf diesem Planeten verfehlt sind
+und der Falschheit unterliegen. Dies habe ich nicht nur intern geäussert, sondern – auch wenn Du es vielleicht als Dummheit ansiehst – auch privat in Gesprächen mit Freunden und Kollegen usw. Das hat mich
+nicht nur Freundschaften gekostet, sondern auch meine dienstliche Stellung. Entlassen können sie mich
+bisher jedoch nicht, aber ich bleibe nun doch stur und gerecht meiner Linie treu, um meine persönliche
+Meinung zu vertreten. Was soll ich lügen und verheimlichen; ich sehe doch keinen Erfolg, wenn ich immer
+nur Ja und Amen sage. Ein wahrer Freund würde sich niemals wegen meiner Gesinnung gegen mich erheben, sondern mir beratend zur Seite stehen. So bin ich zum Entschluss gekommen, dass der, der sich –
+nur aufgrund meiner Einstellung – als Freund von mir abwendet, meine Freundschaft nicht verdient hat.
+So sehe ich das auch mit Bekannten und Kollegen. Andere Meinungen respektiere ich, aber im Umkehrschluss verlange ich auch (wahrscheinlich ist das zuviel verlangt), dass man meine Meinung und Einstellung zumindest respektiert. Kann sein – und es ist auch so –, dass ich mir damit das Leben noch erschwere,
+aber nach dem Grundsatz zu leben ‹Reden ist Silber und Schweigen ist Gold›, ist mir das Silber lieber.
+Auch wenn diese Redewendung für mich keine materielle und sinnliche Bedeutung hat, so werde ich kein
+Blatt vor den Mund nehmen und durch meine Einstellung der Sache der Wahrheit dienlich sein. Schon oft
+
+
+-----
+
+hab ich mir den Mund verbrannt, und Du, lieber Billy, hast mir geraten, aufgrund meiner Stellung lieber
+einmal nichts zu äussern; aber ich lass mich lieber an den Pranger stellen, als dass ich meinen Mund
+halten werde. Wie schon gesagt, bin ich für viele meiner Bekannten und sogenannten Freunde ein rotes
+Tuch. Ist mir bisher egal, und ich denke, dass ich das auch weiterhin nicht ändern will. Warum soll ich
+mich verstecken? So habe ich in der letzten Zeit im Internet einigen Gegensprechern Deiner Person mit
+Kritik und rechtlichen Schritten gedroht. Habe aber festgestellt, dass allesamt nie geantwortet haben. Nun
+gut, wahrscheinlich haben sie über mich gelacht, aber das ist mir egal, was soll ich mich also weiter damit
+belasten, denn die sind doch dumm und dümmer. Trotzdem werde ich dies aber weiter so durchführen,
+denn es macht mir Spass, einmal meine Gesinnung und Meinung so offen kund zu tun. Niemals kann ich
+das verleugnen, was ich bei Dir gelernt und gesehen habe. Aber ich würde Dich und die FIGU niemals
+dazu benutzen, einen materiellen Vorteil daraus zu ziehen, wie es Menschen tun, die sich einen materiellen Profit versprechen.
+Was soll es, ich kann mit meiner Art ein paar wenige Menschen ansprechen, und wenn es an der Hand
+auch nur zwei oder drei sind, so ist das für mich doch eine grosse Freude, denn wenn wir alle einige dazu
+bewegen, darüber nachzudenken, dann können wir damit auf längere Zeit Erfolg haben. So hoffe ich es
+in meinem ‹Kleingeist›. Heute will und kann ich nicht mehr stillhalten; und ich arbeite daran und werde
+es auch weiterhin tun, dass ein paar wertvolle Menschen von unserer Bewegung Kenntnis erhalten. Die
+Dummen, so hoffe ich, werden sich eines Tages eines Besseren besinnen und auf die Stimme unseres
+Propheten hören. Dass Du der bist, der uns in der Jetztzeit den Weg weist und mit Deiner Stimme zu dem
+aufrufst, was uns zum Ziel bringt, das soll und wird auch den letzten Menschen erreichen. Es kann und
+wird nicht sein, dass Du alleine bist, und deswegen werde ich von hier aus meine Pflicht erfüllen und ungeachtet meiner Stellung das sagen, was ich zu sagen habe. Das möchte ich als der Mensch, der noch
+viel aufzuarbeiten hat, an Deine Person, an alle FIGU-Mitglieder und alle Interessenten weitergeben – als
+Peter Dinè, mit allerhöchstem Respekt und unerschütterlicher Liebe. Deine Arbeit und Dein Wirken in allergrösster Liebe und mit dem schöpferischen Geist in Gedanken unterstütze ich und weiss, dass ich mir
+meiner bewusstseinsmässigen Kleinheit bewusst bin. Niemals wird ein Mensch nur annähernd ermessen
+können, was Du uns bist und was Du mit Deinem Wirken zukünftig in der Menschheit erreichst. Ich weiss,
+und bin der Zuversicht, dass sich Dein Streben und Deine Arbeit für die Wahrheit zu dem Meer entwickelt,
+die der Wassertropfen auslöst. Danke … danke auch an die, die Dich unterstützen und für die Wahrheit
+an Deiner Seite arbeiten.
+Auch den Mitgliedern der FIGU sei mein Dank und meine Liebe in Respekt und Anerkennung ausgesprochen, die sich Tag für Tag aufopfernd für die Wahrheit und die Schöpfungsgesetze und Schöpfungsgebote einsetzen. Für meinen Teil kann ich nur einen kleinen Beitrag dazu leisten, aber ich bin immer in
+Gedanken bei Euch und arbeite stetig an mir weiter, so dass ich in einem zukünftigen Leben auch von
+Anfang an dabei sein kann. Ich hoffe und ich will, dass ich meine Verfehlungen in diesem Leben erkenne
+und behebe, dass sie eine Frucht der Erkenntnis tragen, so, dass ich die Fehler in Zukunft vermeiden kann.
+Das fordert viel bewusstseinsmässige Arbeit, aber ich bin zuversichtlich …
+Lieber Billy, liebe Freunde der FIGU, zum Ende meiner Zeilen herzlichste Grüsse und liebevolle Gedanken;
+ach ja, noch ein Wort an Silvano und Jacobus, habe Euch sehr ins Herz geschlossen und hoffe darauf,
+dass wir uns im nächsten Jahr 2007 – da habe ich als Alleinstehender doch mehr Zeit – wiedersehen,
+wenn es keinen Dritten Weltkrieg gibt, so hoffe und wünsche ich es jedenfalls.
+Wenn ich, Peter Dinè, aus dem schönen Rheintal, durch das Tal des Rheines fahre und die Schönheit der
+Natur beschaue, dann empfinde ich sehr grosse und beglückende Liebe für all das, was uns unsere
+Schöpfung gestaltet und gegeben hat – unermesslich viel für meinen Verstand, und eine ohne irdische
+Worte zu beschreibende Schönheit und Vollkommenheit, die uns unsere geliebte Schöpfung jeden Tag
+aufs neue für ihre Existenz und uns als Menschen vor Augen hält. Nur der, der mit dem Wissen und dem
+beglückenden Gefühl und der Empfindung der schöpfungsgegebenen Erkenntnis alles sieht, der weiss,
+welches Geschenk dieser wunderschöne Planet mit all seinen Landschaften ist, den uns die Schöpfung zum
+
+
+-----
+
+Geschenk gemacht hat. Dies ist ein Augenblick auf eine Landschaft, egal wo sie auch immer sein mag auf
+diesem Planeten, der in Liebe und Respekt vor unserer Schöpfung als Dank und unermesslicher Respekt
+der Schöpfung gezollt werden soll. Dies ist meine Empfindung und mein Gefühl für all das, was unsere
+geliebte Schöpfung für uns als Existenz- und Liebesbeweis geschaffen hat. Dazu hoffe und wünsche ich
+mir, dass alle Menschen einmal so empfinden werden. Ich liebe Euch und ich brauche Eure Nähe …
+Salome an alle
+Euer Freund und liebender Mitmensch. In Liebe
+Peter Dinè, Deutschland
+
+## Mikrowellen-Tarnkappe
+Unsichtbar in der Mikrowellen-Tarnkappe – lässt Gegenstände für elektromagnetische Strahlung verschwinden – Tarnkappen halten Einzug in die Realität: Amerikanische Forscher haben in Laborversuchen
+demonstriert, wie kleine Gegenstände durch ein sie umschliessendes Material zum Verschwinden gebracht werden können. Bislang funktioniert dies allerdings nicht mit sichtbarem Licht, sondern nur mit
+Mikrowellen, wie sie etwa von Radargeräten, Handys oder Satelliten verwendet werden. Die Tarnkappe
+der Forscher um David Smith von der Duke-Universität in Durham besteht aus einem Ring aus sogenannten Metamaterialien. Solche Materialien leiten dank ihrer speziellen Struktur die auftreffende Strahlung
+von der Vorderseite über die Ringstruktur auf die Rückseite um. Damit ist es für die Radarstrahlen so, als
+wäre an der Position der Materialien lediglich leerer Raum. Die Forscher vergleichen den Effekt mit einem
+glatten Stein, der in einem fliessenden Gewässer liegt. Bewegt sich eine Wasserwelle darüber, teilt der
+Stein zwar die Welle, doch hinter dem Stein ist der Welle die Störung nicht mehr anzusehen. Auch die
+Tarnkappe arbeitet so, dass die Wellenfront der Mikrowellenstrahlen trotz darin positionierter Gegenstände scheinbar nicht gestört wird. Die Forscher haben dazu aus Kupferringen und Kupferdrähten sowie
+Glasfaserfolien einen Ring mit einem Durchmesser von zwölf Zentimetern gebaut. Als Vorlage diente
+ihnen dabei ein theoretischer Entwurf eines solchen Metamaterials. Dank der speziellen Anordnung der
+einzelnen Teile brach das Metamaterial elektromagnetische Strahlen dann tatsächlich anders als beispielsweise Glas. Während Glas auftreffende Lichtstrahlen senkrecht zur Oberfläche bricht, brechen Metamaterialien den Strahl von der senkrechten Achse weg. Den Ring aus ihrem Metamaterial haben die
+Forscher nun so konstruiert, dass Mikrowellenstrahlen sozusagen um das Innere des Rings herum gebrochen werden. Die Wellen von Radarstrahlen erscheinen dadurch vor und nach dem Ring ungestört.
+Auf diese Weise wird sowohl die Reflexion der Wellen am Objekt als auch der Schatten des Gegenstandes deutlich vermindert – anders gesagt: Der Ring und die Gegenstände in seinem Hohlraum sind
+praktisch unsichtbar. Die Technik habe das Potenzial, Gegenstände beliebiger Grösse aus den unterschiedlichsten Materialien zum Verschwinden zu bringen, berichten die Forscher. Bislang funktioniert die
+Tarnkappe allerdings nur in zwei Dimensionen. Die Wissenschaftler arbeiten nun daran, Objekte in allen
+drei Dimensionen unsichtbar zu machen. Ob sich das Prinzip irgendwann auch für den Einsatz bei sichtbarem Licht realisieren lässt, können sie jedoch noch nicht sicher sagen.
+David Smith (Duke-Universität Durham) et al.: Science, Online-Vorabveröffentlichung, DOI: 10.1126/
+science.1133628 ddp/wissenschaft.de –, Martin Schäfer, Deutschland
+Quelle: Physik http://www.wissenschaft.de/wissen/news/271046.html; 20.10.2006
+Eingesandt: Achim Wolf, Deutschland
+
+
+-----
+
+## VORTRÄGE 2007
+Auch im Jahr 2007 halten Referenten der FIGU wieder Geisteslehre-Vorträge usw. Nachfolgend die Daten
+für die stattfindenden Vorträge:
+
+## Achtung: Wichtige Änderung!
+Die Vorträge werden ab Juni 2007 im Saal des Centers durchgeführt. Im März findet kein Vortrag statt:
+
+**23. Juni 2007**
+Patric Chenaux **Menschlichkeit**
+
+Hans-Georg Lanzendorfer **Polygamie/Polyandrie**
+
+**25. August 2007**
+Karin Wallén **Liebe**
+
+Christian Krukowski **Menschheitsgeschichte VIII**
+
+**27. Oktober 2007**
+Guido Moosbrugger **Menschliche Geistform II**
+**Was sind Elementarteilchen?**
+
+Pius Keller **Schön, wie die Natur arbeitet**
+
+Pünktlicher Vortragsbeginn um 14.00 Uhr.
+
+Eintritt: CHF 7.– (Eintritts-Ermässigung für FIGU-Mitglieder bei Vorweisen eines gültigen Ausweises.)
+
+An den Vortrags-Samstagen trifft sich im Semjase-Silver-Star-Center um 19.00 Uhr eine Studiengruppe,
+zu der alle interessierten Passiv-Mitglieder herzlich eingeladen sind.
+
+## VORSCHAU PASSIVGRUPPE-ZUSAMMENKUNFT 2007
+
+Die nächste Passiv-Gruppe-Zusammenkunft findet am 26. Mai 2007 statt, in der Turnhalle der Volksschule, Sonnenhofstrasse 2, 8374 Oberwangen/TG. Reserviert Euch dieses Datum heute schon!
+Die persönlichen Einladungen mit näheren Hinweisen folgen zu gegebener Zeit.
+Die Kerngruppe der 49
+
+**IMPRESSUM**
+**FIGU-Bulletin**
+**Druck und Verlag: Wassermannzeit-Verlag, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+**Redaktion: ‹Billy› Eduard Albert Meier, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+**Abonnemente:**
+Erscheint unregelmässig; Preis pro Einzelnummer: CHF 2.– (Zusammen mit einem Abonnement der ‹Stimme der Wassermannzeit› oder der ‹Geisteslehre-Briefe› als Gratis-Beilage.)
+**Postcheck-Konto: FIGU-CH-8495 Schmidrüti, PC 80-13703-3**
+**E-Mail: info@figu.org**
+**Internet: www.figu.org**
+**FIGU-Shop: http://shop.figu.org**
+
+
+-----
+

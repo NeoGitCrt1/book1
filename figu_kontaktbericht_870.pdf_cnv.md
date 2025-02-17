@@ -1,0 +1,592 @@
+# Gespräch zwischen Quetzal von der plejarischen Föderation und ‹Billy› Eduard Albert Meier, BEAM
+
+## Achthundertsiebzigster Kontakt Dienstag, 14. November 2023 19.16 h
+
+**Billy** Ah, da bist du wohlbehalten zurück, mein Freund. Es hat zwar etwas länger gedauert, als du mir gesagt hast,
+aber es ist gut so. Aber lieber später, als nie. Sei also willkommen, Quetzal.
+
+**Quetzal** Sei auch gegrüsst, Eduard, lieber Freund. Ja, es hat etwas länger gedauert, denn es ist noch mehr dazugekommen, als vorgesehen war.
+
+**Billy** Das kann es eben geben, denn es läuft nicht immer alles wie am Schnürchen ab. Aber ehe wir uns unserem
+Gespräch zuwenden, möchte ich dir hier im Computer einiges zeigen, was dich sicher interessieren wird. Sieh hier, dieser
+Artikel, den habe ich von Michael erhalten, und diese hier habe ich von Bernadette:
+
+## Öffentliches Gespräch zwischen Amy Goodman  von „Democracy Now“ und General Wesley Clark
+**_am 2. März 2007, (0:00-2:04 Minuten)_**
+
+_General Wesley Clark „We’re going to take-out 7 countries in 5 years.“_
+
+Wesley Clark: Direkt nach dem 11. September (2001), etwa zehn Tage nach dem 11, September ging ich durch das
+Pentagon und ich sah Verteidigungsminister Rumsfeld und seinen Stellvertretender Wolfowitz.
+Ich ging die Treppe hinunter um ein paar der Leute zu begrüssen, die des Generalstabs, die früher immer für mich
+gearbeitet haben, und einer der Generäle rief mich und sagte, Sir, Sie müssen herkommen und mit mir reden. Ich sagte,
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Sie sind zu beschäftigt. Er sagte nein, nein. Er sagte, wir haben die Entscheidung getroffen, dass wir gegen den Irak in
+den Krieg ziehen.
+Das war am oder um den 20. September. Ich sagte, wir ziehen in den Krieg gegen den Irak, warum? Er sagte, ich weiss
+es nicht, und weiter, sie wissen wohl nicht, was sie sonst tun sollen.
+Also sagte ich, na ja, haben sie etwas gefunden und Informationen gesammelt, die Saddam mit Al-Qaida in Verbindung
+bringen? Er sagte, nein, nein. Er sagte es gibt nichts Neues. Sie haben nur die Entscheidung getroffen, gegen den Irak
+in den Krieg zu ziehen, sagte er. Ich schätze, es ist so, als ob wir nicht wüssten, was wir gegen Terroristen tun sollen,
+aber wir haben ein gutes Militär und wir können Regierungen stürzen, und er sagte weiter, ich denke, wenn das einzige Werkzeug, das man hat, ein Hammer ist, muss jedes Problem wie ein Nagel aussehen, auf den man schlagen kann.
+Ich kam ein paar Wochen später wieder zu ihm, und zu der Zeit bombardierten wir schon im Irak und in Afghanistan,
+und ich sagte, ob wir immer noch gegen den Irak Krieg führen wollen und er sagte, oh, es ist schlimmer als das.
+Er griff auf seinen Schreibtisch und hob ein Stück Papier auf und er erklärte: Ich habe das gerade von oben vom Büro
+von einem Treffen mit dem Verteidigungsminister erhalten, und er erklärte, dies sei ein Memo (Erinnerungsschreiben), in dem beschrieben wird, wie wir sieben Länder in fünf Jahren ausschalten werden, beginnend mit dem Irak
+und dann Syrien, Libanon, Libyen, Somalia, Sudan und zum Schluss Iran.
+Ich sagte, ist es (das Memo) geheim? Er sagte, ja, Sir.
+Ich sagte, zeigen Sie es mir nicht. Und ich sah ihn vor einem Jahr (2006) oder so wieder und sagte zu ihm, erinnern
+Sie sich daran, was wir gesprochen haben? Er sagte, es tut mir leid, Sir, ich habe Ihnen das Memo nicht gezeigt. Ich
+habe es Ihnen wirklich nicht gezeigt.
+Amy Goodman: Verzeihung, wie war bitte sein Name?
+Wesley Clark: Ich werde Ihnen seinen Namen nicht nennen.
+Amy Goodman: Nennen Sie noch einmal die Länder.
+Wesley Clark: Wir beginnen mit dem Irak, dann Syrien und Libanon, dann Libyen, dann Somalia und Sudan und dann
+zurück zum Iran.
+Quelle: https://www.youtube.com/watch?v=6Knt3rKTqCk&t=178s
+
+## Liebe FIGU-Verteilkollegen 😉
+### Bezüglich Mail-Verteiler wollte ich mal nachfragen, an welche EU-Abgeordnete ihr das aus- sendet?
+Dass sich jeder von uns um das eigene Land bzw. um die eigenen Leute im Land kümmert; also jeweils Schweiz,
+Deutschland und Österreich nehme ich mal an.
+
+Selbst schicke ich immer aus an ...
+
+- Bundesregierung in Österreich (alle Regierungsstellen)
+
+- Nationalratsabgeordnete in Österreich
+
+- Abgeordnete der EU: Delegation Österreich
+
+- Ukrainische und russische Botschaft in Österreich, Deutschland und Schweiz
+
+- In BCC an viele Journalisten, Fernseh- und Zeitungsmedien
+
+- In BCC an sonstige Leute in der Öffentlichkeit, die «FIGU-ähnlich» denken; Sahra Wagenknecht und ihre Mitarbei
+ter habe ich auch immer fix im BBC-Verteiler
+
+Schickt ihr zum Beispiel auch an EU-Abgeordnete anderer (nicht deutschsprachiger) Länder aus?
+Wenn wir ein wenig überlappend aussenden, ist das wohl kein Problem. Die Frage ist eben nur, ob wir irgendwelche
+Leute weglassen, die wir aber dabei haben sollten …
+Für skeptische Leute, die wohl nicht gleich einen PDF-Anhang öffnen, gebe ich auch immer einen Auszug direkt in der
+E-Mail an. Dabei selektiere/kopiere ich bestimmte Textteile aus dem PDF, entferne in einem Editor die Zeilenumbrüche mittels Makro und füge eben die Textpassagen (meistens zwei) dann direkt im Mail ein. Wie macht ihr das eigentlich?
+Stefan Hahnekamp
+
+Salome Bernadette
+Vor einigen Tagen habe ich im 868. Kontaktbericht gelesen, dass Billy am 26. Oktober um 22:40 Uhr eine Morddrohung via Telefonanruf erhielt.
+Einem wahrlich hochweisen Menschen, der für die Wahrheit einsteht, mit dem Mord zu drohen, entspricht einer absoluten Unverschämtheit und Feigheit!
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+## 😉
+
+
+-----
+
+Oftmals habe ich auf der FIGU-Website und in den Kontaktberichten gelesen, dass ihr eine Nachtwache betreibt. Gerne
+möchte ich freiwillig meine Dienstleistung für eine Nachtwache für mindestens 1-mal im Monat jeweils am Wochenende anbieten, wenn ihr Bedarf habt.
+Lieber Gruss und Salome
+
+**Quetzal** Interessant, davon wusste ich nichts. Aber es ist wirklich gut so.
+
+**Billy** Das sind also die Schreiben. Das hier, das ist seither noch 2x vorgekommen, wobei man mich morgens um 2
+
+Uhr aus dem Schlaf geschellt hat.
+
+**Quetzal** Das endet wohl nie.
+
+**Billy** Eben, das denke ich auch. Verrückte finden sich leider immer wieder. Und bezüglich der primitiven Anschuldi
+gungen, da denke ich, dass diese mit dem Fritzen aus Zürich zustande gekommen sind, weil dieser eine Mordswut auf mich
+hat, weil ich ihm die Wahrheit sagte bezüglich den Zurechtfeilungsmachenschaften von Darwin, was ihm eben nicht gefallen
+und er es in den falschen Hals bekommen hat. Aber das andere: Auch Bernadette findet, dass wir bezüglich der Verteilung
+der Kontaktberichte an die Regierungen etwas Gescheites tun.
+
+**Quetzal** Das ist auch richtig so.
+
+**Billy** Ja, das weiss ich, und die Berichte werden auch von diversen Regierenden gelesen, denn das beweisen Rück
+antworten, die grossteils erfreulich sind. Dazwischen hat es wohl mal eine Antwort, die von Regierungsbeteiligten sind und
+die motzen, weil sie nicht einverstanden sind, dass die Wahrheit gesagt wird.
+
+**Quetzal** Das kann wohl nicht geändert werden. Aber das, was du vorhin angesprochen hast bezüglich der Telephonate,
+
+da soll ich dich darüber informieren, dass das Unterbinden der Abhörung deiner Telephonate mit Hilfe der Sonaer derart
+perfektioniert wurde, dass …
+
+**Billy** Darüber sollten wir eigentlich nicht reden, denn hier habe ich noch eine Frage, die ich eigentlich bei unserem
+
+Gespräch beantworten will, damit einmal klar wird, was Fakt ist. Hier, lies mal.
+
+**Quetzal** … Du bist ja wirklich kein Hellseher. Was soll denn diese dumme Frage?
+
+**Billy** Eben – wie es ja hier steht. Da will … wissen, wie man Hellseher wird wie ich. – Dazu, so finde ich, ist es meines
+
+Erachtens notwendig zu sagen, dass ich mich nicht mit Hellseherei befasse und auch kein sogenannter Hellseher bin, folglich
+ich auch für die Zukunft nichts hellseherisch erfinden kann. Meine Voraussagen, die ich schon seit meiner Knabenzeit gegeben und erwähnt habe, beruhen darauf, dass ich mit Sfath zusammen gewisse Ereignisse und Geschehen in der Zukunft
+gesehen und miterlebt habe und also weiss, dass sie unweigerlich geschehen und also zutreffen werden. Solche Voraussagen habe ich ja schon als Knabe gemacht und damit nur das gesagt, was Sfath und ich in der Zukunft erlebt haben. Es sind
+dabei von mir auch diverse Sachen genannt, die drohend kommen werden, jedoch geändert und vermieden werden können, wenn die Handlungsweisen zum Besseren geändert werden. Damit ist also gesamthaft klar, dass ich mit Hellseherei
+nichts zu tun habe, wobei zur Hellseherei noch zu sagen ist, dass diese in der Regel nur auf Schwindel und Betrug beruht,
+insbesondere bei jenen ‹Hellsehertalenten›, die sich in den Zeitungen mit hellseherischen Fähigkeiten anbieten – in der
+Regel gegen Geld –, und dann vom Himmel herunter Dinge herphantasieren, die derart aschgrau und blöd sind, dass selbst
+Hühner darüber lachen müssen. Dies, während jedoch die Hellsehergläubigen so dumm und dämlich sind, dass sie diesen
+‹hellseherischen› Lügen und Betrügereien glauben. Diese ‹Hellseherei› hat jedoch nichts mit dem zu tun, wenn ein ehrlicher
+Mensch durch irgendwelche energetische Umstände und Vorkommnisse eine Wahr-Vision hat und sieht, was sich über kurz
+oder lang zukünftig ereignen wird. Dieser Mensch wird sich aber mit absoluter Sicherheit niemals dafür bezahlen lassen,
+wenn er das preisgibt, was ihm die Vision offengekundet hat. Dies ist auch so von warnend Angesagtem in der Weise, dass
+dieses und jenes als Resultat und Ziel sich ergeben und kommen wird, wenn weiterhin in der gleichen falschen Weise gedacht oder gehandelt wird. Auch ein solcher Mensch hat nichts mit Hellseherei zu tun, sondern nur mit klarer Logik, mit
+klarem Verstand und klarer Vernunft. Und mit Sicherheit ist zu sagen, dass auch ein Mensch, der in dieser Weise etwas
+Drohendes ansagt, kein Hellseher ist und sich niemals für seine Ratgebung bezahlen lässt. Nur ‹Hellseher/innen›, die wahrheitlich Lügner und Betrüger sind, lassen sich für ihre vom Himmel gezauberten Lügen und Betrügereien bezahlen, und
+ausserdem sind es Leute, die in Zeitungen und Zeitschriften oder im Internet Dumme und Dämliche suchen, die ihren ‹hellseherischen› Unsinn, ihre Lügen, Betrügereien und Phantastereien glauben und dafür noch teuer bezahlen.
+Das ist also einmal das, ausserdem hat mir anfangs Jahr Arlion via Ptaah ausrichten lassen, dass … Ist aber gut so, denn
+daher kann nichts ausspioniert, abgehört und registriert werden, was nicht in deren Ohren kommen soll. Diese … haben ja
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+auch nichts zu tun mit irgendwelchen Dingen, die sich auf die Schweiz oder deren Sicherheit oder sonstwie beziehen würden. Es ist ja einfach so, dass alles Diesbezügliche reine Privatangelegenheit ist, die niemanden etwas angeht und also auch
+privat bleiben soll. Daher ist es durch Arlion und seine Crew auch so eingerichtet, dass … nicht einmal … registriert werden
+können. Doch mehr sollten wir darüber wirklich nicht reden.
+
+**Quetzal** Das ist wohl richtig, doch es war vielleicht doch gut, dass ich dies angesprochen habe, denn … … …
+
+**Billy** Nein, das kann wirklich nicht geändert werden, denn auch das Spionieren geht einfach weiter, das haben wir
+
+die letzten Tage wieder neuerlich festgestellt, denn … Aber das ist ja nicht der Stoff, über den wir reden wollen. Es geht
+wohl einfach weiter so, und zwar derart lange, wie ich noch lebe. Das ist aber etwas, worüber wir effectiv nicht reden
+sollten, denn es gibt einiges andere, das einmal geklärt werden sollte. Da wurde ich z.B. derbezüglich angesprochen und
+gefragt, dass ja einmal das Theater mit den Gizehheinis war, …
+
+**Quetzal** … da kann ich leider nichts dazu sagen, denn dazu sind mir keine Fakten bekannt. Wenn du jedoch darüber
+
+sprechen willst, dann bin ich ein guter Zuhörer und lerne einiges mehr darüber, was sich diesbezüglich hier auf der Erde
+ergeben hat. Aber worüber wir momentan gesprochen haben, ist es wahrscheinlich gut, wenn du doch einiges von all dem
+abrufst und niederschreibst wenigstens in der Weise, dass gewisse der … darüber nachdenken können. Vielleicht mag es
+dann dazu beitragen, dass endlich Ruhe gegeben wird.
+
+**Billy** Da wartest du aber wohl vergebens darauf. Es ist aber vielleicht doch gut, wenn ich einiges abrufe und aufführe.
+
+**Quetzal** Das denke ich auch. Was kannst du mir aber sagen bezüglich all dem, was du vorhin angesprochen hast?
+
+**Billy** Dazu kann ich dir aber nur das sagen, was ich von Semjase und Ptaah sozusagen zwangsläufig weiss, denn
+
+normalerweise frage ich nicht nach näheren Einzelheiten. Es ist ja nicht mein Bier, etwas wissen zu wollen, wenn es mich
+nicht direkt betrifft. Das habe ich meiner Lebtage so gehalten und bin gut gefahren damit. Was ich nicht weiss, macht mir
+nicht heiss, und es ist auch so, dass mir ausserdem ja gesagt wird, wenn etwas wichtig für mich ist. Daher ist mir auch nur
+bekannt, dass allesamt der Gizehheinis Abtrünnige waren, und zwar irgendwoher aus eurer Föderation. Es waren nur kleine
+Gruppen Krimineller, wie wir solche ja auch auf der Erde haben. Die Heinis aber sind in eurem Universum abgehauen, sind
+zur Erde gekommen und haben sich hier festgesetzt. Eure Sicherheitskräfte haben sie ja dann ‹kassiert› und zurückgebracht,
+wo sie irgendwo auf einem unbewohnten Planeten angesiedelt und ihnen alle jene Mittel weggenommen wurden, die
+ihnen die Möglichkeit gegeben hätten, wieder ins All hinausfliegen zu können. Dabei war auch dieser Ashtar Sheran Typ
+und Co., der jedoch aus dem DAL-Universum war, der sich aber mit seinen Leuten gleichermassen so verhielt, wie die anderen, deren 5 oder 6 solcher Gruppen waren. Irgendwie geschah und ergab sich, dass ein Erdling Ashtar Sherans Namen
+erfuhr – wie, weiss ich wirklich nicht –, der dann damit herumfunktionierte, doch wie, was und wo, weiss ich auch nicht.
+Vielleicht wurde der Name von der Erdlingsperson frei erfunden, erträumt oder sonstwie zuwegegebracht, ich weiss es
+nicht. Irgendwie wurde der Name jedenfalls bekannt, wie ihm auch diverse Dinge oder gar eine Story angedichtet wurde.
+Mehr weiss ich aber nicht darüber. Wie ihr Plejaren ja herausgefunden habt – eben andere als du –, haben alle diese Gruppen auf der Erde unerfreulich gefuhrwerkt und Schaden verursacht, doch hatten sie keinerlei Kontakt oder eine Bewandtnis
+zu Erdlingen. Auch hielten sich alle diese Gruppen von den Fremden fern, gegen die sie sich ebenfalls abschirmten und
+diesen nicht in die Quere kommen wollten. Das aber war wohl aus Sicherheitsgründen, denn die Fremden hätten sie wohl
+nicht gerade mit Samthandschuhen angefasst. Jedenfalls – das weiss ich – ist niemand mehr von diesen Knülchen in diesem
+Universum resp. in unserem Kosmos. Und warum so lange geduldet wurde, dass diese Gruppen hier auf der Erde bleiben
+und dann auch ihr verwirrendes Unwesen treiben konnten, das weiss ich nicht. Erst dann, als diese im Center Schaden
+anzurichten begannen und gar mein Leben gefährdeten, seid ihr Plejaren dann eingeschritten und habt die Heinis geschnappt und zurück ins Ankar-Universum geschafft. Hier auf der Erde warten zwar die Sicherheitskräfte ebenso sehr lange
+Zeiten, bis endlich etwas unternommen wird, jedenfalls dann, wenn es um organisierte grosse Verbrechergruppen oder
+Verbrecherorganisationen geht. Kleine Kriminelle werden dagegen sehr schnell kassiert, folglich der Spruch eine gewisse
+Wahrheit offenlegt, wenn gesagt wird: «Die Kleinen werden geschnappt, doch die Grossen lässt man laufen.» Das ist einmal
+das, was zu sagen ist, und ausserdem ist noch folgendes anliegend: Wenn davon gesprochen wird, dass Auswanderer von
+den Plejaren oder von der Föderation genannt werden, dann sind diese nicht in dieses Universum ausgewandert, sondern
+verblieben ansässig im Ankar-Universum. Dies auch, wenn in der ‹Nähe› von uns in hier bekannten Sonnensystemen künstliche Dimensionentore geschaffen wurden. Nur jenseits unserer Milchstrasse haben sich welche aus eurer Föderation angesiedelt, aber darüber habe ich nur minimale Erkenntnisse, ausser, dass dies bereits vor Hunderttausenden von Jahren
+war. Und eine weitere Frage bezog sich auf die UFOs der Fremden, über die ich allerdings nichts zu sagen habe, weil diese
+nicht zu den Plejaren belangen und also auch in keinerlei Zusammenhang mit euch stehen. Mehr ist bezüglich des Gesagten
+wohl nicht zu erklären. Wenn du aber mehr wissen willst, dann ist es an dir, dich darüber bei Semjase oder Ptaah zu erkundigen.
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Quetzal** Das werde ich tun. Aber jetzt will ich dich informieren darüber, was ich im Nahen Osten…
+
+**Billy** … darüber wollen wir eigentlich nicht mehr reden.
+
+**Quetzal** Das haben wir wohl, und es stimmt schon, doch ich will trotzdem etwas sagen, denn es gibt mir sehr zu denken.
+
+Dieser Netanjahu ist um nichts besser als Adolf Hitler das war, wie ich die Geschehen um ihn während des Weltkrieges von
+1939 bis 1945 durch Aufzeichnungen erlerne. Ausserdem sehe ich, dass im gesamten zwischen Israel und der Hamas bezüglich der Berichterstattung des Kriegsgeschehens alles gleichermassen gehalten wird, wie dies der Fall ist im Ukrainekrieg,
+dass nämlich nur eine einseitige und parteiisch bedingte Berichterstattung erfolgt. Bezüglich der Ukraine wird nur das ganze
+Vorgehen der ukrainischen Armee durch die Medien bekanntgegeben, jedoch nicht das, was auf russischer Seite geschieht.
+Gleicherweise wird im Nahen Osten nur von Israel berichtet, nicht jedoch von der Gegenseite, folglich auch hier Partei
+ergriffen wird, und zwar nur für Israel, das zudem noch viel schlimmer wütet, als die Angreifer. Ausserdem habe ich gesehen, wie israelische Militärs in einem Krankenhaus Schusswaffen usw. versteckt haben, die sie dann angeblich gefunden
+haben und von Kriegsjournalisten ablichten liessen, wozu wahrheitswidrig behauptet wurde, dass diese Waffen von der
+Gegenseite dort gelagert worden seien. Und dass auch von der israelischen Armee Greueltaten begangen wurden, wie auch
+von seiten der Angreifer, das hast du zusammen mit mir selbst beobachtet und weisst also, was wirklich geschieht. Und in
+grossem Mass geschieht es weiter, wobei der ‹grosse Führer› Netanjahu als Handlungsebenbild von Adolf Hitler das Ganze
+in vollem Hass schürt. Das ist das, was der Wahrheit entspricht.
+
+**Billy** Das ist wohl so, ausserdem verhalten wir uns ja neutral, folglich wir nicht die eine oder andere Partei bevorzu
+gen, auch dann nicht, wenn wir bezüglich einer Person, ihrem Verhalten und Handeln usw. die Wahrheit sagen. Und dass
+die Wahrheit bezüglich eines Menschen gesagt wird, bedeutet nicht, dass man deswegen parteiisch ist, sondern eben nur
+die effective Wahrheit spricht, und zwar das, was man sehr genau selbst festgestellt hat und keinerlei Vermutung beinhaltet, sondern nur die reine Wahrheit. Und genau diese passt dem einen und anderen Parteiischen nicht, weshalb dieser
+Mensch dann Beschuldigungen und Beschimpfungen loslässt und Verleumdungen erfindet. Das wollen ganz besonders jene
+bezüglich der Ukraine und Russland nicht sehen, die parteiisch Waffen an Selensky liefern und damit dem Krieg kein Ende
+bereiten, wie sie damit Russland erst recht auffordern, den verdammten Krieg weiterzuführen. Und gleichermassen geschieht es im Nahen Osten, wo Israel in den Himmel hochgehoben und der Hamas der Teufel an den Hals gewünscht wird.
+Diese in ihren Gedanken der Parteilichkeit Fehlgewickelten wollen die Wahrheit nicht wahrhaben und sind nur auf der Seite
+von Israel, sehen nur dieses und verteidigen es parteiisch mit grossem Mundwerk. Dies, obwohl die Israelimilitärs ebenso
+greulich morden und zerstören, wie dies der Hamas ebenfalls eigen ist. Dies geschieht exakt gleichermassen beidseitig,
+während diesseitig nur die Hamas mit Pro und Hurra hochgejubelt wird und völlig fanatisch riesenhafte Demonstrationen
+veranstaltet werden. Wenn diese Parteiischen nun aber vernehmen, was du eben gesagt hast, dann wird das durch deren
+Dummheit und Unvernunft bestimmt und sicher wieder als Antisemitismus ausgelegt, obwohl diese Idioten nicht einmal
+wissen, worauf das Ganze des Begriffes überhaupt zurückführt. Das habe ich schon bei unserem letzten abgerufenen und
+schriftlich festgehaltenen Gespräch gesagt. Doch, wie es eben ist, es kann den Erdlingen noch so viel gesagt und erklärt
+werden, doch es wird darüber nicht nachgedacht und folglich auch nicht verstanden. Es ist beim Reden und Erklären einer
+Sache so, dass nur dadurch etwas völlig richtig verstanden wird, wenn alles genau, unparteiisch und der Richtigkeit gemäss
+durchdacht und so erkannt wird, wie es wahrheitlich ist und eben erst durch dieses Lernen effectiv das Verstehen zustande
+kommt. Anders geht es wirklich nicht, wie es auch mit jeder Sache ist, die gesagt oder erklärt wird, dass diese erst gesehen
+und erlebt zu werden hat, ehe über deren Falschheit oder Wirklichkeit entschieden werden kann. Es besagt also, dass etwas
+erst dann effectiv als Wahrheit erkannt werden kann, wenn durch glaubensfreie, absolut neutrale und auch wahrheitliche
+Gedanken alles durchgearbeitet wird. Dies, wie auch erst dann die effective Wahrheit erkannt und verstanden wird, wenn
+eine Sache erst eigens erlebt wird.
+Nun, wenn ich nun nochmals bezüglich des Antisemitismus etwas sage, dann handelt es sich bei diesem nicht um eine
+Xenophobie resp. eine Fremdenangst, sondern wahrheitlich um eine aus dieser hervorgegangenen Fremdenfeindlichkeit,
+wobei es eigentlich nicht um ein religiöses und soziales Vorurteil gegenüber Juden geht. Grundsätzlich ist es heutzutage
+nämlich ein spezifisches Phänomen, das eine antimoderne Weltansicht ausprägt, die grundlegend in krankhaften Gedanken
+einer Existenzangst fundiert, die als Begründung die Existenz der Juden als Ursache alles Bösen sieht, insbesondere jedoch
+in Problemen kultureller, religiöser, sozialer und politischer Hinsicht, die von den Juden ausgehen sollen. Dies, obwohl sich
+grundlegend und ursprünglich der unbegründete Hass des Christentums und des Islam darin findet – was von den angeblich
+‹Wissenden› bestritten wird –, dass dieser gegen Jmmanuel sei, der im Christentum wider alle Wahrheit lügnerisch und
+fälschlich Jesus Christus genannt wird, obwohl sein Name nie so war, und er zudem vor ca. rund 2028 Jahren geboren
+wurde. (Anm.: Das Jahr der Geburt von Jmmanuel ist nach dem heutigen Gregorianischen Kalender das Jahr 5 vor unserer
+Zeitrechnung resp. vor Chr. Bei der Angabe des Geburtsjahres als 2 vor Chr. handelt es sich um einen Schreibfehler, der
+leider bis jetzt nicht entdeckt wurde.) Also ist der weltweit verbreitete Judenhass resp. der seit langer Zeit immer wieder
+stark aufkommende, jedoch nach einer gewissen Zeit wieder abflauende Antisemitismus mehr denn ‹nur› eine Xenophobie
+oder ein religiöses oder soziales Vorurteil, denn wenn alles richtig betrachtet wird, ist absolut erkennbar, dass es sich um
+eine irre und fanatisch verfälschte Ansicht gegenüber den Juden der sogenannten modernen Zeit handelt. Zwar wurde der
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+heutige Anschuldigungsbegriff ‹Antisemitismus› erst wieder – wenn ich mich nicht gross irre – etwa um 1880 neuerlich aus
+der Kiste der alten Judenbeschimpfungen hervorgeholt, doch wie ich schon beim letzten Kontaktgespräch erwähnte, existierte dieser Begriff schon zu Zeiten von Noandakan, als in der alten Hebronsprache die Feinde seines Sohnes Sem als
+Semanhänger resp. als Semiten beschimpft wurden, eben von Antisemiten. Dieser Begriff hat sich über Jahrtausende erhalten und wurde offenbar irgendwie und irgendwo wieder ‹ausgegraben› und kam eben, wie ich schon sagte, um 1880
+wieder auf und verbreitete sich schnell weltweit. Wie der Begriff der Semfeindlichen im Hebronischen zur Zeit von Noandakan war, das weiss ich nicht mehr genau, doch wenn ich in den Erinnerungen herumsuche, dann kommt mir etwas in den
+Sinn wie ‹Schemnaka› oder so. Ob das allerdings richtig ist, das kann ich nicht beschwören.
+Die judenfeindlichen Menschen denken wirr, nämlich dass die Existenz der Juden der Grund aller Probleme sei, ja gar die
+eigentliche Ursache, dass es überhaupt solche gebe. Dadurch ergab sich schon früh die Form einer rassistisch begründeten
+Ablehnung gegenüber den Juden. Soll das jedoch in seinen verschiedenen Arten verstanden werden, muss ich kurz auf die
+Geschichte der Judenfeindschaft zurückgreifen: Als ein böses Bild der Juden entstanden ist, so beruhte alles das auf alten
+Vorurteilen, die aber längst vergessen waren, jedoch neu negativ erdacht wurden. Es ergab sich, dass der Jude von alters
+her als Wucherer beschimpfte wurde, wobei sich dieser Ausdruck mit der ‹Moderne› aber änderte und daraus der Finanzkapitalist gemacht wurde, wobei die alte Definition der Judenbeschimpfung aber noch nicht aufkam.
+Die neu aufkommenden modernen politischen Strömungen und Ordnungen kamen nach dem 1. Weltkrieg auf – der ja
+verlogen nur als 7jähriger Krieg deklariert wird und effectiv auf die Kappe von Amerika ging. Diese Strömungen riefen dann
+auch die Demokratiebewegungen, den Kommunismus und Liberalismus hervor, wie auch diverse übernationale Organisationen. Dadurch erfolgten dementsprechend auch diverse wirtschaftliche Entwicklungen, wie ebenso auch der Finanzkapitalismus sowie die Globalisierung, bestimmte Erfindungen, die Unheil brachten und schuldhetzend jüdischen bösen Zwecken zugeschrieben wurden und noch heute dieserart unberechtigt zugeschrieben werden. Der diesbezügliche Wahn all
+der vielen Judenhasser geht sogar so weit, dass böse zerstörerische Erfindungen, hauptsächlich Waffen, von den Juden
+gewissen Nationen als notwendig und unentbehrlich aufgezwungen worden sein sollen. Praktisch habe das Ganze dieser
+Art überhandgenommen, folglich Hitler dann mit allen Mitteln dagegen vorgegangen sei und durch den Holocaust dem
+Übel ein Ende bereitet habe.
+Nun, der Antisemitismus bleibt noch sehr lange Zeit als Feindseligkeit ein dauerhaft modernder Komplex idiotischer Überzeugungen, und zwar von Irren und sonstig Verrückten, wobei hauptsächlich religiöse Momente der Christen und des Islam
+mitspielen – was natürlich wider alle Wahrheit vehement bestritten wird. Und zwar sind das judenhassbefallene Gläubige,
+wie auch miese und üble Religionsführer und Religionsvertreter, die sich nach aussenhin schauspielerisch als absolute und
+‹treue› Befürworter ‹judenakzeptierend› geben, in Wahrheit aber eingefleischte Antisemiten und Feinde anderer Religionen und Glaubensrichtungen sind. Sie bilden gegenüber Juden ein geheimes Kollektiv, das seine miesen Überzeugungen
+nach aussen nicht äussert, jedoch sich beim einzelnen als Vorurteil festgefressen hat. Ihre Ideologie sowie ihre religiösen,
+individuellen wie unter Umständen auch kollektiven und allzeitlich geheimen Haltungen, Handlungen und Machenschaften,
+wie auch ihre geheimen sozialen und fiesen Diskriminierungen und politischen geheimen Mobilisierungen gegen Juden, die
+darauf abzielen, sich von den Juden zu distanzieren und um sie zu vertreiben und gar zu vernichten, das wissen sie wohlweislich zu verstecken.
+Was ursprünglich die früheste religiöse Feindschaft hauptsächlich des Christentums gegenüber den Juden betrifft, habe ich
+bereits erklärt, und das war wegen der Kreuzigung Jmmanuels, doch der sogenannte ‹moderne› Antisemitismus hat nichts
+mehr damit zu tun. Heutzutage wird ja auch mehr und mehr vom ‹Antijudismus› geredet, wodurch damit eine Herabsetzung des jüdischen Volkes und dessen Glauben erfolgt, infolge dessen die Juden auch als wahrheitsblind und allgemein
+verstockt beschuldigt und kriegerisch verschrien werden. Aus diesem Grunde sei eben unter den Juden auch die Christenfeindlichkeit und Islamfeindlichkeit, die Gott angeordnet habe und so haben wolle, damit die Juden in dieser Weise vor der
+Christenheit und dem Islam geschützt werden sollen, was wiederum den Judenhassern natürlich nicht in den Kram passt.
+
+**Quetzal** Netanjahu, dieser Kriegshetzer, leitet aber das ganze Kriegsgeschehen derart, dass der Judenhass erst recht
+
+hochbrandet.
+
+**Billy** Ja, natürlich, denn die Antisemiten finden durch sein mordgieriges Handeln erst recht, dass es all das bestätigt,
+
+was über die Juden dahergelogen wird. Alles ist ja wirklich nur Lüge und Betrug und hat rein überhaupt und gar nichts mit
+Wahrheit zu tun. Meinerseits habe ich viele Judengläubige kennengelernt, und alle waren sie Menschen wie wir alle Menschen sind. Ihre Religion spielt dabei keine Rolle und hat für mich nie eine Rolle gespielt. Und sie haben auch keinen Hehl
+daraus gemacht, dass ich keiner Gläubigkeit angehöre. Ganz am Anfang, als wir hier ins Center kamen, da besuchten mich
+noch 3 jüdische Personen, als sie eine Ferienreise hoch nach Deutschland machten. Leider waren es schon recht betagte
+Leute, die inzwischen gestorben sind.
+Und wenn ich noch weiter etwas sagen will: Es mag nun Krieg sein zwischen Israel und der Hamas, doch ist wohl beidseitig
+nicht das ganze Volk einverstanden damit, dass dieser Kriegshetzer und Mörder Netanjahu und auf der Seite der Hamas,
+deren Führung ein Zepter des Todes und der völligen Zerstörung menschlicher Errungenschaften schwingt. Ausserdem
+denke ich, dass jener Teil des Volkes diesen von seinem Amt weghaben will, das vernünftig denkt und keinen Krieg will.
+Auch in der Ukraine und in Russland wird es gleichermassen sein, denn wie ich schon als Junge im Deutschen Reich zusam
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+men mit Sfath erlebt und erfahren habe, ist immer nur ein fanatischer und mordbesessener und vom Krieg begeisterter
+Bevölkerungsteil auf seiten der kriegslüsternen Regierenden, während die andern sich vom Kriegstun abwenden, jedoch in
+der Regel nichts dagegen tun können und schweigen müssen, ansonsten sie selbst noch ermordet werden. So ist es mit
+Sicherheit im Krieg im Nahen Osten, wie mit Sicherheit auch in der Ukraine und ebenfalls in Russland. Das ist sicher nicht
+zu bezweifeln.
+
+**Quetzal** Das ist tatsächlich wie du sagst, da besteht absolut kein Zweifel.
+
+**Billy** Gut, dann ist auch das klar.
+
+**Quetzal** Was mich jetzt aber interessiert und du mir vielleicht erklären kannst, was das war, was mir widerfahren ist,
+
+als ich gestern südlich der Sahara etwas beobachtete, was aber plötzlich verschwand und offenbar nicht real war. Etwas
+Derartiges habe ich noch nicht gesehen.
+
+**Billy** Was denn?
+
+**Quetzal** Es war plötzlich in der Ferne ein Stück einer Landschaft sichtbar, die nach kurzer Zeit jedoch wieder ver
+schwand. Das ist mir unerklärlich.
+
+**Billy** Tja, das war wohl eine Luftspiegelung.
+
+**Quetzal** Was ist das?
+
+**Billy** Das kennst du nicht?
+
+**Quetzal** Nein – ?
+
+**Billy** Dann eben, das habe ich auch einmal mit Sfath erlebt, als ich mit ihm durch eine Wüste getippelt bin. Damals
+
+haben wir mehrere Minuten lang eine Stadt gesehen, die dann einfach wieder verschwand, weil es ja nur eine Luftspiegelung war, die auch Fata Morgana genannt wird. Wie mir Sfath erklärte, handelt es sich dabei darum, dass für das Zustandekommen ein Lichtstrahl gebrochen wird, wobei sich das Licht bogenförmig ausweitet und durch die unterschiedlich warmen
+Luftschichten strahlt und sich irgendwo sichtbar eben als Spiegelung manifestiert, eben als Luftspiegelung resp. Fata Morgana, die sich wie ein reales Objekt widerspiegelt. Darüber gibt es Aufzeichnungen und Behauptungen, wie dass mitten in
+der Wüste plötzlich ein grosses Meerschiff gesehen wurde, wie z.B. um 1878 oder 1880 ein Mann namens Custer behauptet
+hat, der angeblich in der Mojave-Wüste in Südkalifornien ein grosses Schiff gesehen haben will, das grosse Mengen Gold
+geladen haben soll, weshalb er mehre ‹Expeditionen› startete, um das Schiff zu finden. Doch alles war nur Lüge, wie Sfath
+erklärte, denn der Mann flunkerte bezüglich der angeblichen Sichtung der Fata Morgana, denn als Goldsucher erfand er die
+Geschichte, um Leute zu finden, die mehrmals mit ihm unterwegs waren, um eine Goldader zu finden. Das aber soll niemals
+gelungen sein.
+
+**Quetzal** Eine seltsame Methode von Lüge.
+
+**Billy** Natürlich, es ist unlogisch, doch unzählige Erdlinge handeln eben unlogisch, wenn es um Gold oder Geld usw.
+
+geht, daher ufert vieles auch in Kriminalität und Verbrechen aus.
+
+**Quetzal** Dann möchte ich jetzt noch einiges mit dir besprechen, das sich auf mich persönlich bezieht, und zwar …
+
+**Billy** Natürlich – dafür will ich ganz Ohr sein. Aber sagen will ich, dass es mich sehr ehrt, dass du …
+
+Als Anhang noch folgendes, das von mir Quetzal privat angekündigt wurde, was mir Michael zusagte, den Artikel noch zu
+besorgen.
+
+### Sonntag, den 19.11.2023 Privatkontakt = Kein Kotaktbericht, 
+ wie üblich bei reinen Privatbesuchen und Privatgesprächen
+
+**Und hier ist noch der Artikel, den mir Michael eben gebeamt hat.**
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+## Rede von Dr. David E. Martin im Europäischen Parlament
+ am 3. Mai 2023 beim 3. Internationalen Covid Summit
+
+_Automatisch generiertes Transkript aus dem Englischen auf YouTube_
+
+Es ist ein besonders interessanter Ort für mich, an dem ich heute sitze angesichts der Tatsache, dass ich vor über
+einem Jahrzehnt genau an diesem Ort sass, auf diesem Stuhl hier im Parlament der Europäischen Union und damals
+warnte ich die Welt vor dem was kommen würde.
+Während dieses Gesprächs, das damals von den Grünen und der EFA und einer Reihe von anderen Parteien, der europäischen Union und verschiedenen Vertretungen ausgerichtet wurde, erörterten wir ob Europa die Politik der Vereinigten Staaten übernehmen sollte Patente auf biologische Produkte von abgeleiteten Materialien zuzulassen. Und
+zu der Zeit drängte ich dieses Gremium dazu, und ich warnte die Menschen auf der ganzen Welt, dass die Bewaffnung
+der Natur gegen die Menschheit schlimme Folgen hätte.
+Tragischerweise sitze ich heute hier mit den unglücklichen Worten, die ich nicht gerne sage: «Ich habe es euch ja
+gesagt.» Aber Tatsache ist, dass wir nicht hier sind um vergangene Entscheidungen zu vergelten. Wir sind noch einmal
+hierhergekommen, um der menschlichen Natur tatsächlich ins Gesicht zu sehen und die Frage zu stellen, wer wir sein
+wollen und wie die Menschheit aussehen soll. Und statt dies als eine Aufgabe zu sehen, sich in Vergeblichkeit zu üben,
+was von Zeit zu Zeit sehr einfach ist, wenn man in der Position ist, in der ich mich befinde. Ich sehe das eigentlich nicht
+als Übung in Vergeblichkeit, sondern als eine der grössten Chancen, die sich uns bietet, denn wir haben jetzt ein öffentliches Gespräch, das jetzt in den Köpfen der Menschen im Mittelpunkt steht.
+Als dies noch ein esoterisches Gespräch über biologische Patente war, interessierte es niemanden. Aber als zu Hause
+darüber gesprochen wurde, wurde das Gespräch es zu etwas, das die Leute interessieren kann. Also bin ich eigentlich
+ziemlich dankbar für die Gelegenheit und ich danke den Mitgliedern des Parlaments für die Ausrichtung dieser Veranstaltung und ich danke den Übersetzern, bei denen ich mich entschuldige, dass ich eine Terminologie verwende,
+die wahrscheinlich sehr schwer zu übersetzen ist.
+Ich möchte auch die Tatsache anerkennen – was viele von Ihnen wissen –, dass ich mein Engagement in dieser Sache
+zum grossen Teil der grossartigen Arbeit meiner wunderbaren Frau Kim Martin verdanke, die mich in den ersten
+Tagen dieser Pandemie ermutigt hat, vor die Kamera zu treten und über all die Informationen zu sprechen, die ich
+mit sehr kleinen Gruppen auf der ganzen Welt teilte. Es war tatsächlich ihre Ermutigung, die mich in eine Lage gebracht hat, in der viele von euch hören, was ich zu sagen habe.
+Ironischerweise war die Welt, aus der ich komme und die früher sehr beliebt war, meine CNBC- und BloombergPräsentationen, die in den Mainstream-Medien rund um den Globus ausgestrahlt wurden für ein Publikum, das ich
+verloren habe. Ich kann getrost sagen, dass Covid meinen Ruhm vermindert hat. Aber ich kann auch getrost sagen,
+dass ich lieber unter den Menschen bin, mit denen ich heute hier stehe, als bei jenen, welche Teil dieser früheren Welt
+waren. Dies ist ein viel besserer Ort für mich.
+
+Meine Rolle ist heute, unser Gespräch in einen historischen Kontext zu stellen, denn es kam nicht erst in den letzten
+drei Jahren auf und nicht in den letzten fünf oder sechs Jahren, sondern es ist eigentlich eine andauernde Frage, die
+wahrscheinlich hier in Europa in der frühen Mitte der 1900er Jahre begann, aber mit Sicherheit zwischen 1913 und
+1914. Damals begann diese Diskussion genau hier in Mitteleuropa.
+Die Pandemie, die wir in den letzten Jahren hatten, ist auch nicht über Nacht passiert. Tatsächlich begann diese sehr
+spezifische Coronavirus-Pandemie in einer ganz anderen Zeit. Die meisten von Ihnen wissen nicht, dass das Coronavirus 1965 als Modell eines Krankheitserregers isoliert wurde. Das Coronavirus wurde 1965 als eines der ersten infektiösen replizierbaren viralen Modelle identifiziert, die verwendet werden können, um eine Reihe anderer Erfahrungen des menschlichen Zustands zu modifizieren.
+Es wurde ursprünglich mit einer gewöhnlichen Erkältung assoziiert. Aber was besonders interessant an der Isolierung von 1965 ist, war, dass es sofort als Krankheitserreger identifiziert wurde, der verwendet und modifiziert
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+werden konnte für ein eine ganze Reihe von Gründen, und sie haben richtig gehört, das war 1965. Nebenbei bemerkt
+sind diese Dias allgemein frei, Sie können sich gerne jedes einzelne ansehen, jeder Kommentar, den ich mache, basiert
+auf veröffentlichtem Material, also sehen Sie sich diese Referenzen an.
+
+**1966 wurde das allererste COV-Coronavirus-Modell als Grundlage in einem transatlantischen biologischen**
+**Experiment für Manipulationen am Menschen verwendet und Sie haben richtig gehört, das Datum ist 1966.**
+
+Ich hoffe, sie verstehen, was ich sagen will. Diese Pandemie brach nicht über Nacht aus, sondern sie ist etwas, das
+schon lange in der Mache war. Ein Jahr bevor ich geboren wurde, war der erste transatlantische Coronavirus-Datenaustausch zwischen den Vereinigten Staaten und dem Vereinigten Königreich. Und 1967, dem Jahr meiner Geburt,
+wurden die ersten Versuche zur Impfung von Menschen mit modifizierten Coronaviren durchgeführt.
+Ist das nicht erstaunlich? Vor 56 Jahren! Ein Über-Nacht-Erfolg eines Erregers, der seit 56 Jahren in der Entwicklung
+war. Ich möchte, dass Sie sich alle damit anfreunden können. Wo waren wir, als wir als wir dies entgegen biologischen
+und chemischen Waffenverträgen erlaubten? Wo waren wir als menschliche Zivilisation, als wir dachten, dass es akzeptabel sei, einen Krankheitserreger der Vereinigten Staaten zu nehmen und dann die Welt damit zu infizieren? Wo
+war diese Diskussion und wie hätte sie 1967 sein sollen? Diese Diskussion wurde nicht geführt!
+Ironischerweise wurde die Erkältung in den 1970er Jahren in eine Chimäre verwandelt. Und in den Jahren 1975, 1976
+und 1977 begannen wir herauszufinden, wie das Coronavirus modifiziert werden kann, indem es verschiedenen Tieren eingepflanzt wurde – in Schweine und Hunde. Und es überrascht nicht, dass 1990 herausgefunden wurde, dass
+das Coronavirus als Infektionserreger ein industrielles Problem für zwei Hauptindustrien war, nämlich die Industrien
+von Hunden und Schweinen.
+
+**Hundezüchter und Schweinezüchter stellten fest, dass das Coronavirus gastrointestinale Magen-Darm-Prob-**
+**leme verursachte, und das wurde die Grundlage für Pfizers ersten Spike-Protein-Impfstoff. Das Patent wurde**
+**im Jahr 1990 eingereicht und sind Sie seit damals bereit.**
+
+Haben Sie gehört, was ich gerade gesagt habe? 1990! Operation Warpgeschwindigkeit! Es tut mir leid, wo ist der Warp
+und die Geschwindigkeit? Pfizer, lässt 1990 den allerersten Spike-Protein-Impfstoff gegen das Coronavirus patentieren. Ist das nicht faszinierend? Ist es nicht faszinierend, dass uns gesagt wurde, dass das Spike-Protein etwas Neues
+ist, von dem wir gerade erfahren haben, dass es das Problem sei? Nein, es wurde nicht nur herausgefunden, dass es
+nicht jetzt das Problem ist, es wurde im Jahr 1990 herausgefunden, sondern die ersten Patente für einen Impfstoff mit
+dem Spike-Protein des Coronavirus wurden 1990 angemeldet. Wer hätte gedacht, dass Pfizer eindeutig nicht die unschuldige Organisation ist, die nichts anderes tut als die menschliche Gesundheit zu fördern? Eindeutig Pfizer, die
+Organisation, die keine Stimmen in dieser Kammer und jeder Kammer einer jeden Regierung rundum der Welt gekauft hat, nicht Pfizer! Sicherlich würden sie nichts damit zu tun haben. Aber doch, sie waren es!
+
+**1990 fand Pfizer heraus, dass es ein Problem mit den Impfstoffen gab. Sie funktionierten nicht. Wissen sie,**
+**warum sie nicht funktionierten? Es stellte sich heraus, dass das Coronavirus ein sehr verformbares Modell**
+**ist, das sich verändert und verändert und mit der Zeit mutiert. Tatsächlich kam jede einzelne Veröffentli-**
+**chung über Impfstoffe gegen das Coronavirus von 1990 bis 2018 zum Schluss, dass das Coronavirus jedem**
+**Impfstoffimpuls entgeht, weil es sich zu schnell modifiziert, verändert und mutiert, als dass Impfstoffe wirk-**
+**sam sein könnten. Seit 1990 bis 2018 sind das die veröffentlichten wissenschaftlichen Erkenntnisse, meine**
+**Damen und Herren, das ist die Wissenschaft. Der Wissenschaft zufolge ist es ihre eigene Anklageschrift, die**
+**besagt, dass ihre eigenen Programme nicht funktionieren.**
+
+Es gibt Tausende von Veröffentlichungen zu diesem Thema, nicht nur ein paar hundert und nicht nur von Unternehmen, die von der Pharmaindustrie bezahlt werden, sondern auch Publikationen, von unabhängiger wissenschaftlicher
+Forschung, die (einschliesslich der Bemühungen um die Chimären-Modifikationen von Ralph Barrick an der Universität von North Carolina Chapel Hill) eindeutig zeigen, dass Impfstoffe gegen das Coronavirus nicht wirken.
+
+**Das zeigte die Wissenschaft und diese Ergebnisse wurden nie bestritten, aber dann kam im Jahr 2002 eine**
+**interessante Entwicklung (dieses Datum ist sehr wichtig, weil sie die University of North Carolina Chapel Hill**
+**2002 patentierte). Ich zitiere: eine infektiöse Replikation eines defekten Klons des Coronavirus.**
+**Hören Sie sich diese Worte an, infektiöse Replikation defekt! Was bedeutet dieser Satz eigentlich? Für dieje-**
+**nigen unter Ihnen, welche mit dieser Sprache nicht vertraut sind, enthülle ich die Bedeutung: ‹Infektiöse Rep-**
+**likation defekt› ist eine Waffe. Es bedeutet, eine Person zum Ziel zu machen, aber keine Sicherheiten zu ha-**
+**ben, keinen Schaden für andere Individuen zu verursachen. Das ist es, was ‹infektiöse Replikation defekt›**
+**bedeutet. Dieses Patent wurde im Jahr 2002 angemeldet für eine Arbeit von Anthony Fauci, die von NIAID**
+**(National Institute of Allergy and Infectious Disease, North Bethesda, Maryland, USA) von 1999 bis 2002 fi-**
+**nanziert wurde. Diese Arbeit wurde ein Jahr vor SARS 1.0 (erster SARS-Ausbruch 2003) an der Universität**
+**von North Carolina Chapel Hill auf mysteriöse Weise patentiert.**
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Zwischenruf: Dave, wollen Sie damit sagen, dass SARS 1.0 nicht von einem feuchten Markt in Wuhan stammte? Wol-**
+len Sie damit sagen, dass es vielleicht aus einem Labor an der Universität von North Carolina Chapel Hill kommt?
+
+Nein, ich behaupte das nicht, ich sage Ihnen, das sind die Fakten. Wir haben SARS entwickelt, SARS ist kein natürlich
+vorkommendes Phänomen. Das natürlich vorkommende Phänomen wird Erkältung genannt. Es heisst grippeähnliche
+Krankheit, es wird grippaler Infekt genannt, das ist das natürlich vorkommende Coronavirus. SARS ist das von Menschen entwickelte Virus, ein lebendes Systemmodell, das als Waffe eingesetzt werden kann, um Menschen anzugreifen – und sie patentierten es 2002. (Beifall)
+
+**Im Jahr 2003, grosse Überraschung, meldete die CDC überraschenderweise ein Patent auf das Coronavirus**
+**an, das aus Menschen isoliert wurde und damit erneut gegen Verträge und Gesetze bezüglich biologischer**
+**und chemischer Waffen verstiess, die wir in den Vereinigten Staaten haben.**
+
+In diesem Punkt bin ich sehr, sehr genau, die Vereinigten Staaten sprechen gerne über ihre Rechte und die Rechtsstaatlichkeit und all den Unsinn, über den wir gern reden. Aber wir ratifizieren keine Verträge über die Verteidigung
+von Menschen. Es ist auffällig, dass wir das vermeiden. Wir haben eine grossartige Erfolgsbilanz bei der Befürwortung
+von Menschenrechten und dabei für diese einzutreten und sie dann zu verweigern, wenn es darum geht, tatsächlich
+Teil der internationalen Gemeinschaft zu sein, das ist etwas problematisch.
+
+**Lassen Sie mich eines ganz klar festhalten: Als die CDC im April 2003 den Patentantrag auf das SARS-Corona-**
+**virus einreichte, das aus Menschen isoliert worden war, was wurde getan? Sie luden eine Sequenz aus China**
+**herunter und meldeten in den Vereinigten Staaten ein Patent darauf an. Jeder von Ihnen, der mit Biologischen**
+**und Chemiewaffenverträgen vertraut ist, weiss, dass das eine Vertragsverletzung ist. Das ist ein Verbrechen**
+**und ist kein unschuldiges ‹Hoppla›. Es ist ein Verbrechen und das Patentamt der Vereinigten Staaten ging**
+**sogar so weit, die Patentanmeldung zweimal abzulehnen bis die CDC sich entschloss, das Patentamt zu beste-**
+**chen, um den Patentamtmann zu überstimmen und das Patent schliesslich 2007 auf das SARS-Coronavirus zu**
+**erteilen.**
+Lassen Sie sich das nicht entgehen, denn es stellte sich heraus, dass das RT-PCR (quantitative Echtzeit-PCR) der Test
+war, den wir angeblich verwenden sollten, um die Risiken zu identifizieren die mit dem Coronavirus verbunden sind.
+Dieser Test wurde in den von der Europäischen Union geförderten Veranstaltungen in den Jahren 2002 und 2003 von
+mir als bioterroristische Bedrohung identifiziert. Vor 20 Jahren! Das passierte hier in Brüssel und in ganz Europa.
+
+**2005 wurde dieses Virus speziell als Bioterrorismus und Biowaffen-Plattformtechnologie bezeichnet. Das ist**
+**nicht meine Terminologie, die ich hier verwende, sondern es wurde tatsächlich im Jahr 2005 als Biowaffen-**
+**Plattformtechnologie bezeichnet. Ab 2005 erhielt das Virus tatsächlich die offizielle Einstufung als biologi-**
+**sches Kriegsführungsmittel. Ich weiss nicht, ob das für sie nach öffentlicher Gesundheit klingt? Tut es das?**
+**Biologische Kriegsführungs-technologie fühlt sich nicht wie Public Health an, das fühlt sich nicht wie Medizin**
+**an. Es fühlt sich an wie eine Waffe, die entworfen wurde, um die Menschheit auslöschen. So fühlt es sich an**
+**und es fühlt sich so an, weil es genau das ist. Wir wurden dazu verleitet zu glauben, dass die EcoHealth Alli-**
+**ance und DARPA und all die anderen Organisationen auf die wir hinweisen sollten der öffentlichen Gesund-**
+**heit dienen. Aber wir wurden ausdrücklich aufgefordert die Tatsache zu ignorieren, dass durch den Scheck**
+**von Anthony Fauci und ein Seite-an-Seite-Hauptbuch – wo NIAID eine Bilanz ausschliesslich zur biologischen**
+**Kriegsführung hat – über 10 Milliarden Dollar durch Geheimoperationen geschleust wurden – Dollar für Dol-**
+**lar stimmt damit überein, dass niemand in den Medien darüber spricht und das schon seit 2005.**
+
+Unser Funktionserweiterungs-Moratorium, war eigentlich dazu gedacht alle Bemühungen zur Funktionserweiterung
+einzufrieren. Im Herbst des Jahres 2014 erhielt die Universität von North Carolina Chapel Hill praktischerweise einen
+Brief von NIAID der besagte, dass der Funktionsgewinn für Coronaviren in Vivo wegen dem Moratorium ausgesetzt
+werden sollte. Weil ihre Zuschüsse aber bereits genehmigt waren, erhielten sie eine Freistellung. Haben Sie gehört,
+was ich gerade gesagt habe? Ein Biowaffenlabor an der Universität von North Carolina Chapel Hill erhielt eine Ausnahmegenehmigung für die von Funktionsforschung, so dass bis 2016 der Artikel in der Fachpresse veröffentlicht
+werden konnte, der besagt, dass das SARS-Coronavirus im Jahr 2016 kurz davor steht beim Menschen aufzutreten.
+Und falls Sie fragen, Dave, welches Coronavirus würde beim Menschen auftreten? Es war W, I, V, eins, Wuhan-Institut
+für Virologie Virus 1. Bereit, beim Menschen aufzutreten und besprochen 2016 auf der Tagung der Nationalen Akademie der Wissenschaften. 2017 und 2018 ging die folgende Phrase in den allgemeinen Sprachgebrauch der Gemeinschaft ein, dass es einen Unfall geben würde oder eine absichtliche Freisetzung eines Atemwegerregers. Das entscheidende Wort in diesem Satz ist natürlich ‹Freisetzung›.
+Klingt das wie ein Leck? Klingt das wie «Eine Fledermaus und ein Pinguin gingen in eine Bar im Wuhan-Markt, hingen
+ab und hatten Sex und siehe da, wir haben SARS COV2». Nein, die versehentliche oder absichtliche Freisetzung eines
+Erregers der Atemwege war die Terminologie und wurde im April 2019 viermal verwendet.
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Sieben Monate vor der Anschuldigung des Patienten Nummer 1 wurden von Moderna bei der Patentanmel-**
+**dung vier Patente, um den Begriff ‹zufällige oder absichtliche Freisetzung eines Atemwegerkrankungserre-**
+**gers› geändert als Rechtfertigung für die Herstellung eines Impfstoffs für etwas, das es nicht gab. (Beifall)**
+**Falls Sie es noch nicht getan haben, stellen Sie bitte sicher, dass Sie bei jeder Untersuchung auf den Vorsatz**
+**dieser Tat hinweisen, denn es war im September 2019, als die Welt darüber informiert wurde, dass es einen**
+**Unfall geben könnte oder eine absichtliche Freisetzung eines Atemwegserregers, so dass im September 2020**
+**eine weltweite Akzeptanz für eine universelle Impfstoffvorlage vorhanden war. Das sind ihre Worte, direkt**
+**vor ihnen auf dem Bildschirm. Die Absicht war, die Welt dazu zu bringen eine universelle Impfstoffvorlage zu**
+**akzeptieren und die Absicht war, das Coronavirus zu nutzen, um sie dorthin zu bekommen.**
+
+Lassen sie uns das lesen, denn wir müssen das überall wo ich hingehe in die Aufzeichnungen schreiben: Bis eine Infektionskrankheitskrise real vorhanden ist und die Notfallschwelle – die oft weitgehend ignoriert wird – und die Finanzierungsbasis über die Notsituation hinaus zu erhalten, muss das öffentliche Verständnis für die Notwendigkeit
+von medizinischen Gegenmassnahmen wie einem Pan-Influenza- oder Pan-Coronavirus-Impfstoff gewährleistet sein.
+**Ein Schlüsseltreiber dafür sind die Medien und die Ökonomie wird dem Hype folgen. Wir müssen diesen Hype**
+**für unsere Zwecke nutzen. Um zum wirklichen Thema zu kommen: Investoren werden folgen, wenn sie am**
+**Ende des Prozesses Profit sehen. Klingt das nach Public Health? Klingt das wie das Beste für die Menschheit? Nein,**
+meine Damen und Herren, das war vorsätzlicher Inlandsterrorismus, erklärt in der Sitzung der Nationalen Kommission der Akademie der Wissenschaften im Jahr 2015 und von ihr veröffentlicht. Das war ein Akt biologischer und
+**chemischer Kriegsführung, der an der menschlichen Rasse verübt wurde und es wurde schriftlich zugegeben,**
+**dass es sich um finanziellen Raub und finanziellen Betrug handelte: Investoren werden folgen, wenn sie am**
+**Ende des Prozesses Profit sehen.**
+
+Lassen Sie mich abschliessend fünf sehr kurze Empfehlungen geben. Die Natur wurde gekapert. Diese ganze Geschichte begann 1965, als beschlossen wurde, ein natürliches Modell zu kapern und es zu manipulieren. Die Wissenschaft wurde gekapert, als nur Fragen gestellt werden konnten, die im Rahmen des Patents unter dem Schutz der CDC,
+der FDA und der NIH und ihrer entsprechenden Organisationen rund um die Welt erlaubt waren. Es gab keine unabhängige Wissenschaft, es gab nur die gekaperte Wissenschaft und leider gab es keinen Moral-Ausschuss, der die Verletzung aller Codes, für die wir stehen verhindert hätte. Es gab keinen finanziell desinteressierten, unabhängigen Prüfungsausschuss für das Coronavirus, nicht ein einziges Mal seit 1965.
+Wir haben kein einziges unabhängiges IRB einberufen um die Forschung über das Coronavirus zu prüfen. Also war
+die Moral für medizinische Gegenmassnahmen ausgesetzt und letztlich ging die Menschlichkeit verloren, weil beschlossen wurde es zuzulassen. Es ist heute unsere Arbeit zu sagen, dass wir keine weitere Funktionsgewinn-Forschung wollen, keine weitere Bewaffnung durch die Natur. Und das Wichtigste, keine korporative Bevormundung der
+Wissenschaft mehr für eigenen Interessen der Pharmaindustrie, es sei denn, dass sie 100 Prozent Produkthaftung
+übernehmen für jede Verletzung und jeden Todesfall, den sie verursachen. Vielen Dank.
+(Beifall)
+Quellen: https://rumble.com/v2qeic8-riveting-speech-by-dr.-david-martin-at-the-european-parliament-may-3-2023.html
+https://www.youtube.com/watch?v=mfLycFHBsro
+
+COPYRIGHT und URHEBERRECHT 2023 bei ‹Billy› Eduard Albert Meier, ‹Freie Interessengemeinschaft Universell›, Semjase Silver Star
+Center, 8495 Schmidrüti, Schweiz. Kein Teil dieses Werkes, keine Photos und sonstige Bildvorlagen, keine Dias, Filme, Videos und keine
+anderen Schriften oder sonstige Materialien usw. dürfen ohne schriftliche Einwilligung des Copyrightinhabers in irgendeiner Form (Photokopie, Mikrofilm oder ein anderes Verfahren), auch nicht für Zwecke der Unterrichtsgestaltung usw., reproduziert oder unter Verwendung elektronischer Systeme verarbeitet, vervielfältigt oder verbreitet werden.
+
+Veröffentlicht auf www.FIGU.org durch:
+‹Freie Interessengemeinschaft Universell›, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+Copyright 2023 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+

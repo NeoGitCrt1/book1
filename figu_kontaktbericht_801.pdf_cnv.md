@@ -1,0 +1,818 @@
+# Gespräch zwischen Ptaah von der plejarischen Föderation und ‹Billy› Eduard Albert Meier, BEAM
+
+## Achthunderterster Kontakt Sonntag, 1. Mai 2022 13.37 Uhr
+
+**Billy** Hallo, Ptaah, sei willkommen. – Grüss dich, du bist etwas früher als du angekündigt hast.
+
+**Ptaah** Sei auch gegrüsst – und danke für dein Willkomm. Ja, es hat sich so ergeben, dass ich etwas früher hier bin.
+
+**Billy** Das ist ja kein Problem, im Gegenteil, es ist mir recht, denn ich will dich fragen, ob ihr etwas herausgefunden habt
+bezüglich des Autos aus der Ukraine?
+
+**Ptaah** Das konnten wir ergründen, denn es waren deren 2 verschiedene, die in 7 Minuten Abstand auf dem Parkplatz
+waren. Was du zuerst beobachtet hast, das war offenbar ein Privatfahrzeug, und die Personen, die dazugehörten, waren
+offensichtlich auch infolge privater Interessen auf dem Centergelände. Was du aber nicht beobachtet hast: Nach dem Wegfahren des Fahrzeuges, das mit 2 Personen besetzt war, wie wir feststellten, fuhr ein weiteres Fahrzeug gleicher Bauart vor,
+dem 3 männliche Personen entstiegen, die offensichtlich das ganze Centergelände aus einiger Höhe mit einem kleinen
+Fluggerät filmten, was eine der Personen auf einem Sichtgerät kontrollierte. Du warst offenbar gerade zu dieser Zeit wahrscheinlich anderweitig beschäftigt, folglich du nicht sehen konntest, dass dieses Fahrzeug auf den Parkplatz fuhr und hinter
+den Anhängern geparkt wurde. Erst als es weggefahren wurde, was etwa 10 Minuten später war, hast du es beobachtet
+und festgestellt, dass es ein CD-Zeichen trug, wie du richtig feststelltest. Doch darüber sollten wir nicht offen sprechen,
+denn wir vermochten bisher nicht abzuklären, was das Ganze sollte. Richtig war jedenfalls, was du beobachtet hast, doch
+hat es wirklich nichts mit dem Fahrzeug zu tun, das zu einer weiblichen und einer männlichen Person gehörte, die offensichtlich aus reiner Neugierde das Center besuchten. Was du aber später beobachtet hast, das war tatsächlich ein sehr
+teures und gepanzertes Fahrzeug, dessen 3 männliche Insassen aus einiger Höhe mit einem Fluggerät das gesamte CenterGelände gefilmt hatten. Das ist das, was wir eruieren konnten, was der Grund des Ganzen jedoch war und ist, das wissen
+wir bisher nicht, weshalb wir nicht darüber reden und rätseln sollten.
+
+**Billy** Verstehe, dann habe ich nicht das Auto von der Frau und dem Mann in näheren Augenschein genommen, sondern
+dasjenige, das wenige Minuten später hergekommen war, nachdem das erst von mir beobachtete Fahrzeug bereits weggefahren war. Aber komisch ist es doch, dass 2 Autos der gleichen Marke und aus dem gleichen Land auftauchen. Da frage
+ich mich, ob zumindest das Auto mit dem CD-Zeichen im Zusammenhang mit dem Brief steht, der aus Kiew oder so
+stammte, der zudem echt war, wie ihr ja festgestellt habt. Das andere Auto musste wohl hergefahren sein, als ich für einige
+Minuten rüber in die Wohnung musste. Das war wohl ein Quadrocopter, eine sogenannte Drohne, was du als Fluggerät
+nennst.
+
+**Ptaah** Das Objekt war aber grösser als die üblichen, die nur 4 Propellerwerke aufweisen; das Fluggerät hatte nämlich
+deren 6.
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Billy** Zwar habe ich noch nie solch grosse gesehen, doch scheint es sie doch zu geben. Vielleicht werden so grosse Drohnen eben mit Filmkameras ausgerüstet, denn solche Kameras sind vom Gewicht her sicher nicht leicht?
+
+**Ptaah** Das mag sein, doch sollten wir wirklich nicht darüber reden, ehe wir wissen, was es mit dem ganzen Geschehen
+auf sich hat.
+
+**Billy** Dann ist eben das Offen-darüber-zu-Reden für diesmal tabu. Reden wir also später wieder darüber, wenn ihr mehr
+wisst. Dann will ich dich aber fragen, was sein soll damit, dass ich in letzter Zeit mehrmals angefragt wurde, dass wir doch
+ausser der Corona-Seuche im ‹FIGU-Zeitzeichen› auch Berichte veröffentlichen sollten, die von der Politik handeln. Dies
+eben z.B. in bezug auf den Krieg in der Ukraine, warum dieser wirklich losgebrochen sei und was damit effectiv bezweckt
+werde. Auch E-Mails erreichen uns deswegen, wie u.a. Fragen aus aller Welt, wie z.B. folgende, die uns aus Italien erreichten:
+
+**Frage**
+Wir haben einige Fragen, die D. und ich Billy gerne stellen würden, weil wir einige Dinge über den Krieg in der Ukraine nicht
+verstehen. Unsere Fragen beziehen sich auf den Fall, dass nur eine Seite wirklich über den Frieden verhandeln will und die
+andere Seite nur den Krieg ohne Verhandlungen will. Nachfolgend ein Auszug aus dem 798. Kontakt:
+
+_[…] Diesen hat der russische Präsident Putin losbrechen lassen, weil er nicht derart in Geduld zu verharren vermochte,_
+**_wie diese auf ihn geladen wurde, und zwar wohlbewusst durch den senilen Staatsführer Biden der USA, der hoffte, dass_**
+**_Putin das Verbrechen des Krieges ausführe, und zwar indem er eben die Geduld verlieren werde, wodurch Amerika dann_**
+**_letztendlich das tun könne, nämlich sich weiter in den NATO-Staaten nahe an Russland massiv stationieren zu können._**
+
+_[…]_
+
+Wir würden gerne verstehen, wieviel Geduld Russland (Putin) hätte haben müssen, um einen Krieg zu vermeiden, und was
+hätte Putin tun können oder müssen, wenn er von drohenden Angriffen auf Russland aus der Ukraine gewusst hätte, deren
+Grenze nur 450 km von Moskau entfernt ist? Was hätte Russland tun können, um die kriegstreiberischen Machenschaften
+der NATO öffentlich zu machen, um die Menschen im Westen über die Verantwortung der NATO für mögliche Kriegsvorbereitungen zu informieren, um diese NATO-Kriegspläne einzudämmen oder zu stoppen, indem die westliche Öffentlichkeit
+für die Risiken sensibilisiert wird?
+Diese Fragen beziehen sich auch auf ein ähnliches Szenario, dass in naher Zukunft mit dem Beitritt Finnlands und Schwedens
+zur NATO eintreten könnte: Was könnte Russland erstens tun, um zu verhindern, dass nukleare und bakteriologische Waffen an seinen Grenzen plaziert werden, und zweitens, was könnte oder sollte Putin tun, um einen Präventiv- oder Verteidigungskrieg gegen Finnland und damit gegen die NATO zu vermeiden, um eine ähnliche Situation wie in der Ukraine zu
+verhindern?
+In dem zitierten Auszug heisst es wiederum in diesem Satz, dass dieser Krieg von Putin begonnen wurde, aber wir wissen,
+dass die ukrainische Armee den Donbass seit 2014 mit dem Ziel bombardiert, die russischsprachige Bevölkerung zu vernichten. Tatsächlich wurde dieser Krieg, der vor dem Eingreifen Russlands bereits mindestens 15’000 Menschenleben gefordert hatte, von der ukrainischen Armee begonnen und anschliessend von den Separatisten im Donbass geführt. Sind wir
+im Unrecht?
+
+_[…] Was aber kein langes Nachdenken in Anspruch nimmt und klar ist, das bezieht sich darauf, dass niemals Krieg geführt_
+**_und gemordet werden soll. […]_**
+
+Wenn du sagst, dass man niemals einen Krieg führen und niemals einen Mord begehen sollte, dann erinnern wir daran,
+dass sogar die Gesetze der Schöpfung die Selbstverteidigung vorsehen. Könnte dieser Krieg als Selbstverteidigung angesehen werden oder kann Selbstverteidigung nur nach einem Angriff ausgeübt werden? Kann ein Präventivschlag niemals als
+Selbstverteidigung angesehen werden? Dieser Punkt ist wichtig, weil er die Art und Weise betrifft, in der viele Konflikte in
+der Welt ausgebrochen sind, ausbrechen und leider auch ausbrechen werden.
+Wenn sich ein oder mehrere Staaten darauf vorbereiten, bei dir einzumarschieren, um dich zu vernichten, was sollte dann
+getan werden, um einen Konflikt zu verhindern, wenn alle diplomatischen Wege ausgeschöpft sind oder nur eine Seite
+wirklich Frieden will, während die andere nur Krieg will? Oder früher reagieren, so dass dann als einzige Verteidigung ein
+Atomkrieg übrigbleibt?
+Wir haben grosse Zweifel und wären dir dankbar, wenn du sie uns erklären könntest, denn es ist sehr wichtig für uns und,
+wie wir meinen, für viele Menschen in der Welt. Wenn du es für angebracht hältst, könntest du deine Antworten auf diese
+Fragen auch veröffentlichen, indem du sie in einem der regelmässig von der FIGU herausgegebenen Dokumente veröffentlichst.
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Wir möchten diese Gelegenheit noch einmal nutzen, um dir für alles, was du tust, zu danken und dich herzlich zu umarmen.
+E.Z.
+
+**Ptaah** Das sind Fragen grosser Besorgnis, und ich kann verstehen, dass die Erdenmenschen je länger, je mehr verunsichert
+sind und nicht wissen, was logischerweise zu tun ist, insbesondere nicht hinsichtlich der politischen Machenschaften. Speziell in diese wollen wir uns aber nicht einmischen, auch sollst du das nicht tun, wie du dich schon seit meines Vaters Sfath
+Zeiten daran gehalten hast, jedoch erst, als du Schaden und Weh erlitten hast, wie ich in den Annalen meines Vaters nachgelesen habe. Dass du aber angefragt wirst, ob du im Zeitzeichen auch politische Aspekte und Artikel veröffentlich kannst,
+so ist eigentlich dagegen nichts einzuwenden, insofern du durchwegs neutral bleibst und deinerseits keinerlei Meinungskommentare abgibst. Leider würde sonst beim Gros der Erdenmenschen das wiederholt, was du schon in der Schule bei
+Lehrer Frei erlebt hast, von dem du schwer misshandelt und verprügelt wurdest, weil du ihm den Vorschlag gemacht hast,
+er soll in den Unterricht einbeziehen, dass die Zukunft der Erde und deren Menschheit schon in naher Zeit dadurch zu
+Grunde zu gehen drohe, weil unsinnig chemisch alles dazu getan werde, dass die Ozonschicht kaputtgehe. Dies, wie auch,
+dass durch eine schon zu hohe Überbevölkerung und durch ihre sehr unvernünftigen und gar an der Natur verbrecherischen
+und lebensfeindlichen Machenschaften bereits das Klima umzustürzen beginne.
+Dies alles werde ergeben, dass sich die Pflanzen aller Art verändern und gar Giftige und Essbare derart nebeneinanderwachsen werden, dass sie kaum oder überhaupt nicht mehr voneinander unterschieden werden können. Hauptsächlich
+beziehe sich das auf Pilze, die auf der Erde mehr als 7,6 Millionen Gattungen und Arten aufweisen würden, die zudem in
+den Wäldern im Boden quadratkilometerweise vernetzt seien usw. Du wolltest das, was mein Vater Sfath dich lehrte und
+auch in der Natur und in der Zukunft sehen liess, dass Lehrer Frei das in seinem Lehrplan aufnehmen und auch in der Welt
+verbreiten sollte.
+Du wolltest den Erdenmenschen bewusstmachen, wie mein Vater in seinen Annalen festhielt, dass die Menschen für die
+Zukunft der Erde und deren Natur sowie Fauna, Flora und das Klima das Notwendige erfahren und tun sollten, so das Übel
+nicht kommen würde, obwohl du wusstest, dass deine Bemühungen nutzlos sein würden. Du warst damals, wie Vater
+schrieb, noch sehr enthusiastisch und der Ansicht, dass du durch dein ernsthaftes Bemühen der Aufklärung den bereits
+laufenden Prozess der unaufhaltsam wachsenden Überbevölkerung und deren zwangsläufig daraus hervorgehenden zerstörerischen Machenschaften am Planeten, der Natur, wie an der Fauna und Flora und am Klima aufhalten und ändern
+könntest. Es war alles gut gemeint von dir, doch du hast in deinem Enthusiasmus nicht bedacht, dass die Erdenmenschen
+nicht auf dich hören werden, vor allem nicht Lehrer Frei, der alles als Lüge erachtete, folglich er dich für die vermeintlichen
+Lügen bestrafte. So wie Vater in seinen Annalen festhielt, wusstet ihr beide, was sich zukünftig ergeben wird, und das
+sagtest du Lehrer Frei. Der jedoch wollte dies nicht wahrhaben und bezichtigte dich der Lüge, weshalb er dich vor der
+versammelten Klasse mit dem Schwarzdornprügel traktierte. Da beschlossest du, so schrieb mein Vater Sfath, dass du niemals mehr zu anderen Menschen etwas darüber sagen würdest und es auch nicht mehr tun würdest.
+Dass die Ozonschicht derart durch die Menschen geschädigt werde, dass das Leben auf der Erde in Gefahr geraten werde,
+darüber schwiegst du fortan auch beharrlich. Das wurde ausserdem von deinem Lehrer als irre Phantasie und verlogene
+Meinungsäusserung deinerseits und als Lüge gewertet, die nicht verbreitet werden sollte, weshalb er dich verprügelte,
+obwohl du recht hattest mit deiner Voraussage, die du für ihn gar schriftlich verfasst und ihm ausgehändigt hattest.
+Das Gros der Erdenmenschen hat sich seit damals nicht in seiner Gesinnung geändert, und noch immer will es nicht wissen,
+was ihm die Zukunft wirklich drohend bringen wird. Auch will das Gros der Erdenmenschheit nicht etwas gegen Drohendes
+des Zukünftigen unternehmen, was es noch nicht verstehen kann, weil es unfähig in seinem Denken und also derart dumm
+und denkuntauglich ist, um voraussehend genug zu sein. Das betrifft besonders die Staatsführenden aller Staaten, die dafür
+verantwortlich zeichnen müssten, was sich durch ihr Unvermögen der Voraussicht in Zukunft ereignet. Dass das Gros der
+Erdenmenschen noch immer unfähig ist, die richtigen Personen an ihre Staatsführungen zu wählen, das ist uns Plejaren
+nicht verständlich. Dies zwar darum nicht, weil eine Wählerschaft zugelassen ist, die durchwegs unfähig zur Beurteilung
+sowie zur Wahl in jeder erdenklich notwendigen Beziehung jener Personen ist, die sich als Staatsführungskräfte proklamieren, die aber wahrheitlich eines Amtes der Staatsführung untauglich und also absolut unfähig sind.
+
+**Billy** Warum sagst du das wegen meiner Jugend, das ist doch schon alles längst vorbei. Was ich in meiner Jugend schon
+erlebt, erfahren und daraus gelernt habe, das ist wohl nur für mich wichtig, so besonders darum, dass ich mich dranhalte.
+Das muss aber nicht explizit noch erwähnt werden, denn es ist schon lange her seit damals. Bei Frei ging es ja darum – der
+ein rabiater Besserwisser war, der sich überhaupt nichts sagen liess und unbelehrbar war –, dass er selbstherrlich und ein
+Mensch war, der sich nichts sagen liess. Auch Sfath sagte ja, dass er mit diesem Typen nichts zu tun haben will, darum zog
+er ihn ja auch nicht ins Vertrauen, wie eben gegenteilig die Lehrer Graf und Leemann. Wer eben etwas gegen die Meinung
+von Frei sagte, der musste dann seine gewalttätigen Wutausbrüche über sich ergehen lassen. Das wusste ich ja, also war
+ich auch selbst schuld, dass er mich verprügelte. Es war zwar naiv von mir, doch wollte ich es eben trotzdem versuchen –
+so dachte ich damals noch –, denn ich hoffte, dass Frei als Lehrer etwas bewirken könnte, wenn er das verbreiten würde,
+was ich ihm erzählte. Er liess sich aber schon gar nicht belehren von einem Jungen wie mir, den er sowieso auf dem Kieker
+hatte und am liebsten totschlagen würde, denn Dreck gehöre nicht auf die Welt, wie er einmal sagte. Aber lassen wird das,
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+denn vorbei ist vorbei, und ich werde mich hüten, nochmals den gleichen Fehler zu begehen, den ich damals in meiner
+Jugend gemacht habe, folglich ich niemals mehr versuchen werde, einem Menschen meine Meinung klarzumachen. Was
+ich seither tue, ist nicht mehr und nicht weniger als nur das, dass ich das sage, was Fakt von dem ist, was gerade anfällt,
+was also der Wirklichkeit und deren Wahrheit entspricht resp. wie sich der diesbezügliche Fakt verhält. Was dann der
+Mensch daraus macht, wie er alles auffasst und wie er dann handelt, das ist seine Entscheidung allein und eben sein Bier.
+Und wenn ich nun die Fragen von E. und D. beantworte, dann kann ich nichts anderes tun, als das zu sagen, was eben Fakt
+ist, und was sie davon dann durchdenken und daraus entscheiden wollen, das ist allein ihre Sache. Klar muss jedoch sein
+dabei, dass mit all dem was ich sage, nicht meine Meinung wiedergegeben wird, denn diese bleibt allzeitlich neutral, folglich
+ich also keine Meinung vertrete, sondern einfach das wiedergebe, was Fakt ist und der Wirklichkeit und also deren Wahrheit
+entspricht, ohne dass ich mir eine Meinung darüber bilden und eine äussern würde. Also wird in jedem Fall immer nur das
+zur Sprache gebracht werden, was effectiver Fakt ist, ohne auch nur ein Jota einer eigenen Meinung dazuzutun.
+
+**Also: Die Fakten sind diese – und alles was ich nun sage, hat von A bis Z rein nichts mit einer eigenen Meinung zu tun,**
+sondern es sind einzig Fakten, die ich nenne –, dass Putin den Krieg hat losbrechen lassen, weil er nicht in Geduld zu verharren vermochte. Das bedeutet einfach, dass er nicht die Geduld aufbringen konnte, dass er das kriegshetzerische Getue
+des senilen Präsidenten der USA, Biden, durchzustehen vermochte. Das bedeutet, dass der senile US-Präsident – der geheimerweise von der US-Dunkelregierung gelenkt wird – endlich doch noch vernünftig geworden wäre und seine kindischen
+Hetzreden hätte beenden müssen. Dies geschah jedoch nicht, folglich Putin die Geduld verlor und den Krieg begann. Das
+ist Fakt, wie es sich tatsächlich zugetragen hat; doch jeder Krieg ist immer falsch und zudem ein nie wiedergutzumachendes
+Verbrechen, denn Krieg bedeutet Tod, Mord, Verderben und Zerstörung menschlicher Errungenschaften, zudem Vernichtungen in der Natur sowie der Schädigung der Fauna und Flora und somit allen Lebens überhaupt.
+Dass alles einseitig war in bezug auf Friedenseinhaltung, das war von allem Anfang an klar, und zwar wollte nur russlandseits
+und somit Putin den Frieden erhalten. Gegen diese Bemühungen und sein ergebnisloses Abwarten stand der senile kriegshetzerische USA-Präsident Biden – in seinem geheimen Hintergrund jedoch die US-Dunkelregierung, die schon seit dem
+Jahr 1787 ihre weltherrschaftssüchtigen Pläne durchzieht –, zusammen mit Selensky, dem Präsidenten der Ukraine. Beim
+Ganzen war und ist die NATO noch im Spiel, denn Selensky will, dass die Ukraine Mitglied dieser internationalen Mörderorganisation werden soll, die Harry S Truman in den 1940er Jahren als geheimes Mitglied der ‹Dunkelregierung Amerikas›
+zum Zweck der Erlangung der Weltherrschaft Amerikas gegründet hat. Etwas, wovon das gesamte amerikanische Volk
+nichts weiss und seither an der Nase herumgeführt wird. – Selensky, der aus den eigenen Reihen der Regierung bei mir per
+Brief als NAZI, Landes- und Volksverräter bezichtigt wurde, der alles dazu tue, um den Krieg fortzuführen, indem er weltweit
+um Waffen bettle, sei eiskalt und berechnend und wisse genau, wie er es anstellen müsse, dass die Dummen der Welt ihm
+Glauben schenken würden. Alle Dummen der Regierungen rund um die Welt würden diesem NAZI-Selensky, wie er im Brief
+betitelt wurde, mit ihren verantwortungslosen Waffenlieferungen die Hand reichen und genau das tun, was er will. – Hinter
+allem steht zudem die ‹Dunkelregierung Amerikas›, die seit 1787 besteht und deren Bestreben die absolute Weltherrschaft
+ist, so können die USA bereits in vielen Staaten der Erde zu diesem Zweck ihre Militärpräsenz verwirklichen.
+Was sich nun im Krieg in der Ukraine abspielt, ist gesteuert von Amerika, das geheimerweise im Hintergrund mitspielt, wie
+z.B. in der Weise – wobei also die offiziellen Geldgebungen usw. nicht beachtetet werden –, dass Amerika auf der russischen
+Seite Spionage betreibt und eben auskundschaftet, wo die russischen Generalstabsorte sich befinden, die dann an die Ukrainer verraten werden. Selbst habe ich mit Quetzal beobachten können, dass die Amerikaner die genauen Koordinationsdaten der Orte den ukrainischen Strategen lieferten, die dann ihre Raketenangriffe gegen diese Kommandostationen starteten. Also betreibt Amerika auf diese und andere geheime Weise den Krieg in der Ukraine mit, wie das alle jene Länder
+resp. zumindest deren Verantwortungslose auch tun, die parteiisch Sanktionen gegen Russland ausüben oder die Waffen
+an die Ukraine liefern. Alle diese mischeln verantwortungslos im Krieg mit, folglich es nicht mehr ein Krieg zwischen Russland und der Ukraine ist, sondern ein Vielländerkrieg gegen Russland, wobei alles schon jetzt nahe an einen Weltkrieg
+kommt, und zwar gesteuert von Amerika aus, zum Zwecke dessen, Russland zu Boden zu zwingen und in die Weltherrschaftssucht der USA einverleiben zu können.
+Russland konnte nichts tun, um also das zu verhindern, was geschehen ist und weiterhin geschieht, denn die AmerikaNegativ-Propaganda gegen Russland ist seit rund 235 Jahren derart verwirrend in den Köpfen des Gros der irdischen
+Menschheit verankert, dass diese Menschen nur auf diese Falschpropaganda Amerikas ausgerichtet sind, folglich die Wirklichkeit und deren Wahrheit nicht durchzudringen vermag. So wiegen der Hass und die Rachegefühle gegen Russland – seit
+rund 235 Jahren geschürt durch Amerika, weil es Russland nicht politisch kleinkriegen und nicht in seine Weltherrschaftsallüren miteinbeziehen kann – weltweit im Gros der Völker derart krass, dass die Wirklichkeit und deren Wahrheit untergehen. Dies besonders geheimerweise geschürt durch die Dunkel-Regierung, von der das amerikanische Volk nichts weiss
+und die ausserdem die Regierung steuert, die genau das tut, was dem Grundsatz ihres Bestrebens entspricht, nämlich die
+Weltherrschaft zu erlangen.
+Amerika hält seine Lügen und Verleumdungen gegen Russland seit alters her unverändert gespannt, straffgezogen und
+unnachgiebig offen nach oben, um dieses riesige Land so schlecht wie nur möglich erscheinen zu lassen, weil es für Amerikas
+Weltherrschaftsbestrebungen unzugänglich ist. Dagegen kann Russland nichts tun, denn das Gros der Erdenmenschheit ist
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+von den Lügen und Verleumdungen Amerikas gegen Russland derart betäubt und umnebelt, dass kaum noch ein Jota der
+Wahrheit durchdringen und dem Gros der Erdlinge Logik, Verstand und Vernunft vermitteln kann –, wobei allen voraus
+jene Regierenden stehen, die sich in ihrer Unfähigkeit und Dummheit nach dem ausrichten, was ihnen vorgegaukelt wird.
+Die Lügen und Verleumdungen Amerikas finden seit alters her Anklang bei dem dummen und also nichtdenkenden Gros
+der Weltbevölkerung, das sich durch Amerika belügen und blenden lässt, und zwar zum Leidwesen Russlands. Dabei wurde
+und wird nie hinterfragt, was Amerika bisher alles getan hat und weiterhin tut, das um der Weltherrschaftssucht willen die
+Völker der Erde am Narrenseil gängelt, wobei die kriegstreiberischen Machenschaften der USA abgesichert werden durch
+die NATO, in der allen voran ja Amerika steht.
+Nebst allen Dummen jener Regierungen, die Selensky nicht durchschauen und ihm noch und nöcher Waffen liefern, kennen
+die fehlbaren Regierenden der Erde resp. der einzelnen Länder keine Grenzen. Dass schon das mündliche Versprechen
+gebrochen wurde, dass niemals eine Osterweiterung über Deutschland hinaus durch die NATO gegen Russland erfolge –
+wie eben der Bruch des mündlichen Versprechens Amerikas und Deutschlands in den 1990er Jahren –, löste schon früh
+unerfreuliche Differenzen aus. Doch Russland konnte, um des Friedens willen, nichts dagegen tun, weil die USA wie eh und
+je das gefährliche Atommacht-Zepter schwangen und Russland drohten, das ganze Land dem Erdboden gleichzumachen.
+Das Gros der heutigen Politiker beiderlei Geschlechts, das all das Übel des letzten Weltkrieges nicht erlebt und keine Ahnung von Tuten und Blasen von Waffen, Massenmord und Folter, wie auch nicht von Vergewaltigung und Zerstörung sowie
+von anderen Kriegsübeln und davon hat, was Krieg überhaupt ist und unerfahren wie ein Baby ist, führt nichtsdestotrotz
+ein grosses Mundwerk und weiss überhaupt nicht, worum es eigentlich geht.
+Wahrlich, die westliche Welt kann nicht gegen den Krieg sensibilisiert werden, weil diese Westwelt von Amerika abhängig
+und zudem in höchstem Grad amerikagläubig ist. Das Gros der amerikafreundlichen Völker – die seit alters her von Amerika
+durch Hass und Rachetiraden gegen Russland vereinnahmt werden –, steht praktisch unter dem Hammer Amerikas, wobei
+das amerikanische Volk nach Strich und Faden betrogen wird und nichts davon weiss, dass die USA-Regierung mit allen
+gemeinen Mitteln bestrebt ist, einzig Russland zur Sau zu machen – nach dem Willen der geheimen Dunkel-Regierung –,
+um es politisch derart zu schwächen, dass es der USA-Weltherrschaftssucht einverleibt werden kann. Das aber weiss nicht
+nur ich allein, denn es gibt noch andere Menschen, die ihr Gehirn zum Denken brauchen und also nicht dumm und dämlich
+sind, wie nachfolgende Zeitungsartikel beweisen, die ich mir erlaube, noch zu nennen und die ich dir vorlesen will und sie
+später auch diesem Gespräch noch anzufügen gedenke. So hat mir Barbara und dann auch Achim folgendes mit einem Link
+zugeschickt:
+
+## Ex-NATO-Berater:  USA und EU opfern die Ukraine, ‹um Russland zu schwächen›
+_uncut-news.ch, April 20, 2022_
+
+Der ehemalige Schweizer Geheimdienstoffizier und NATO-Berater Jacques Baud über die Wurzeln des Krieges zwischen der
+Ukraine und Russland und seine wachsenden Gefahren.
+Während der Krieg zwischen Russland und der Ukraine in eine neue Phase eintritt, analysiert der ehemalige Schweizer
+Geheimdienstoffizier, hochrangige Vertreter der Vereinten Nationen und NATO-Berater Jacques Baud den Konflikt und
+vertritt die Auffassung, dass die USA und ihre Verbündeten die Ukraine in einer langjährigen Kampagne ausnutzen, um
+ihren russischen Nachbarn ausbluten zu lassen.
+
+**Übersetzung:**
+AARON MATÉ: Willkommen bei Pushback. Ich bin Aaron Maté. Bei mir ist Jacques Baud. Er war in einer Reihe von hochrangigen Sicherheits- und Beratungspositionen bei der NATO, der UNO und beim Schweizer Militär tätig. Er ist ausserdem
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+ehemaliger strategischer Nachrichtenoffizier des Schweizerischen Strategischen Nachrichtendienstes. Jacques, vielen Dank,
+dass Sie sich mir anschliessen.
+JACQUES BAUD: Ich danke Ihnen für die Einladung.
+AARON MATÉ: Zunächst möchte ich Sie bitten, mehr über Ihren Hintergrund zu erzählen und darüber, wie dieser Ihren
+Einblick in die Krise in der Ukraine beeinflusst hat.
+JACQUES BAUD: Nun, wie Sie gerade sagten, bin ich ein strategischer Nachrichtenoffizier. Ich war früher für die strategischen Streitkräfte des Warschauer Paktes zuständig – das war während des Kalten Krieges, aber trotzdem habe ich einen
+guten Überblick über die Geschehnisse in Osteuropa. Ich konnte früher auch Russisch sprechen und lesen, so dass ich Zugang zu einigen Dokumenten hatte. Und vor kurzem war ich zur NATO als Leiter des Kampfes gegen die Verbreitung von
+Kleinwaffen abgeordnet worden. Und in dieser Funktion war ich ab 2014 an mehreren Projekten der NATO in der Ukraine
+beteiligt. Ich kenne also den Kontext recht gut. Ich habe auch den möglichen Zustrom von Kleinwaffen in den Donbass im
+Jahr 2014 überwacht. Als die ukrainischen Streitkräfte also Probleme mit Personalfragen, Selbstmord und all diesen Dingen
+bekamen, die 2014 auftraten, sowie Probleme bei der Rekrutierung von Soldaten, wurde ich gebeten, auf Seiten der NATO
+an mehreren Projekten zur Wiederherstellung der ukrainischen Streitkräfte teilzunehmen. Das ist also, kurz gefasst, mein
+Hintergrund in diesem Bereich.
+AARON MATÉ: Sie haben einen längeren Artikel verfasst, den ich in den Notizen zu diesem Beitrag verlinken werde, in dem
+Sie die Ursachen des Ukraine-Konflikts in drei grossen Bereichen darlegen. Es gibt die strategische Ebene, die Erweiterung
+der NATO; die politische Ebene, die Sie als die Weigerung des Westens bezeichnen, die Minsker Vereinbarungen umzusetzen; und die operative Ebene, die kontinuierlichen und wiederholten Angriffe auf die Zivilbevölkerung des Donbass in den
+letzten Jahren und die dramatische Zunahme Ende Februar 2022.
+Ich möchte Sie bitten, hier anzusetzen. Sprechen Sie über die, wie Sie es nennen, dramatische Zunahme der Angriffe auf
+die Zivilbevölkerung im Donbass im Februar, also in der Zeit, die zur russischen Invasion führte, und darüber, wie diese
+Eskalation der Angriffe, wie Sie sagen, zu diesem Krieg, dieser russischen Invasion, beigetragen hat.
+JACQUES BAUD: Nun, ich denke, wir müssen verstehen, wie Sie wissen, dass der Krieg nicht am 24. Februar dieses Jahres
+begonnen hat. Er begann bereits im Jahr 2014. Aber ich denke, dass die Russen immer gehofft haben, dass dieser Konflikt
+auf politischer Ebene gelöst werden könnte; ich meine die Minsker Vereinbarungen und all das. Der Grund für die Entscheidung, eine Offensive im Donbass zu starten, war also nicht das, was seit 2014 passiert ist. Es gab einen Auslöser dafür, und
+der Auslöser sind zwei Dinge; ich meine, es kam in zwei Phasen, wenn Sie so wollen.
+Die erste ist die Entscheidung und das von [Wolodymyr] Selensky im März 2021 – also im letzten Jahr – verabschiedete
+Gesetz zur gewaltsamen Rückeroberung der Krim, und damit begann der Aufmarsch der russischen Panzertruppen – nicht
+der russischen, sondern der ukrainischen Panzertruppen – in den südlichen Teilen des Landes. Ich glaube, die Russen waren
+sich dieses Aufmarsches durchaus bewusst. Sie wussten, dass eine Operation gegen die Donbass-Republiken eingeleitet
+werden sollte, aber sie wussten nicht, wann, und natürlich haben sie das nur beobachtet, und dann kam der eigentliche
+Auslöser.
+Sie erinnern sich vielleicht, dass – ich glaube, es war am 16. Februar – Joe Biden auf einer Pressekonferenz sagte, er wisse,
+dass die Russen angreifen würden. Und woher sollte er das wissen? Weil ich noch einige Kontakte habe, und niemand
+dachte wirklich, dass die Russen – vor Ende Januar, Anfang Februar –die Ukraine angreifen würden. Es muss also etwas
+gegeben haben, das Biden darauf aufmerksam machte, dass die Russen angreifen würden.
+Und dieses Etwas ist in der Tat die Intensivierung des Artilleriebeschusses des Donbass ab dem 16. Februar, und diese
+Zunahme des Beschusses wurde tatsächlich von der [Grenz-] Beobachtermission der OSZE [Organisation für Sicherheit und
+Zusammenarbeit in Europa] beobachtet, und sie verzeichnete diese Zunahme der Verletzung, und es ist eine massive Verletzung. Ich meine, wir sprechen hier von etwas, das etwa 30-mal so hoch ist wie früher, denn in den letzten acht Jahren
+gab es eine Menge Verstösse von beiden Seiten, nebenbei bemerkt. Aber am 16. Februar gab es plötzlich einen massiven
+Anstieg der Verletzungen auf ukrainischer Seite. Für die Russen, insbesondere für Wladimir Putin, war das das Zeichen, dass
+die Operation – die ukrainische Operation – bald beginnen würde.
+Und dann ging alles los; ich meine, alle Ereignisse kamen sehr schnell. Das heisst, wenn wir uns die Zahlen ansehen, können
+Sie sehen, dass es, wie ich schon sagte, einen massiven Anstieg vom 16. bis 17. Februar gab, und dann erreichte es eine Art
+Maximum am 18. Februar, und das ging weiter.
+Und auch das russische Parlament, die Duma, war sich dieser möglichen Offensive bewusst und verabschiedete eine Resolution, in der Wladimir Putin aufgefordert wurde, die Unabhängigkeit der beiden selbsternannten Republiken im Donbass
+anzuerkennen. Und genau das hat Putin am 21. Februar beschlossen zu tun. Und gleich nach der Verabschiedung der Dekrete, des Gesetzes zur Anerkennung der Unabhängigkeit der beiden Republiken, unterzeichnete Wladimir Putin ein Freundschafts- und Beistandsabkommen mit diesen beiden Republiken. Warum hat er das getan? Damit die Republiken im Falle
+eines Angriffs um militärische Hilfe bitten können. Und deshalb konnte sich Wladimir Putin am 24. Februar, als er beschloss,
+die Offensive zu starten, auf Artikel 51 der UN-Charta berufen, der Unterstützung im Falle eines Angriffs vorsieht.
+AARON MATÉ: Wie Sie bemerkten, dokumentierte die OSZE eine starke Zunahme von Waffenstillstandsverletzungen und
+Artilleriebeschuss auf der von den Rebellen gehaltenen Seite. Aber glauben Sie, basierend auf dem, was Sie bei der Positionierung der ukrainischen Truppen beobachtet haben, dass die Gefahr einer bevorstehenden Invasion oder eines Angriffs
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+durch die ukrainischen Streitkräfte real war? Können Sie das anhand der Positionierung der Truppen auf der anderen Seite
+der Frontlinie beurteilen?
+JACQUES BAUD: Ja. Ganz genau. Ich meine, wir hatten Berichte, und diese Berichte waren in den letzten paar Monaten
+verfügbar. Seit letztem Jahr wussten wir, dass die Ukrainer ihre Kräfte im Süden des Landes verstärken, nicht an der Ostgrenze zu Russland, sondern an der Kontaktlinie zum Donbass. Und tatsächlich, wie wir seit dem 24. Februar gesehen haben, hatten die Russen zu Beginn der Offensive fast keinen Widerstand, vor allem im Norden. Und so konnten sie, was sie
+seitdem getan haben, die ukrainischen Streitkräfte im Süden, im südöstlichen Teil des Landes einkesseln – das heisst zwischen den beiden Donbass-Republiken und dem ukrainischen Festland, wenn Sie so wollen. Und genau dort befindet sich
+heute der Grossteil der ukrainischen Streitkräfte. Und laut der… das ist genau die russische Doktrin, um zu kämpfen, ich
+meine die operative Doktrin. Ihre Hauptoffensive fand eindeutig im Süden statt, denn das von Wladimir Putin erklärte Ziel
+– auf diese Einzelheiten können wir wahrscheinlich später zurückkommen – war die Entmilitarisierung und Entnazifizierung.
+Beide Ziele sollten im Süden des Landes verwirklicht oder erreicht werden, und dort wurden die Hauptanstrengungen der
+Offensive unternommen. Die Offensive gegen Kiew ist eine sogenannte sekundäre Anstrengung, die im Wesentlichen zwei
+Funktionen hatte. Erstens sollte Druck auf die politische Führung in Kiew ausgeübt werden, denn das Ziel ist es, die Ukrainer
+zu Verhandlungen zu bewegen. Das war das erste Ziel dieser zweiten Anstrengung.
+Das zweite Ziel dieses zweiten Einsatzes bestand darin, die restlichen ukrainischen Panzertruppen zu binden oder festzunageln, damit sie die Hauptstreitkräfte im Donbass nicht verstärken konnten. Und das hat ganz gut funktioniert. Das bedeutet, dass die Russen, wie gesagt, die Hauptstreitkräfte, den grössten Teil der Streitkräfte – die ukrainischen Streitkräfte
+– umzingeln konnten. Sobald sie das erreicht haben, könnten sie einige Truppen aus Kiew abziehen, und genau das haben
+sie seit Ende März getan. Sie haben mehrere Einheiten abgezogen, um das zu verstärken, was sie wollen; ich meine ihre
+eigenen Kräfte, um den Hauptkampf im Donbass fortzusetzen. Sie haben also diese Truppen aus dem Raum Kiew abgezogen, und diese Truppen werden nun helfen, die Vorhut, die Offensive gegen die Hauptkräfte im Donbass zu flankieren. Und
+das ist es, was einige als die ‹Mutter aller Schlachten› bezeichnen, die derzeit im Donbass stattfindet, wo man – niemand
+kennt die genaue Zahl der ukrainischen Truppen; die Schätzungen schwanken zwischen sechzigtausend und achtzigtausend,
+die umzingelt sind – und die Kräfte in kleinere Kessel zerteilt und dann zerstört oder neutralisiert werden.
+AARON MATÉ: Für mich ist ziemlich klar, dass die Regierung Selensky kein Interesse an ernsthafter Diplomatie in all den
+kritischen Fragen hatte, die einen Krieg hätten verhindern können, und ich denke, der Hauptfaktor ist, was ich als Druck
+der USA hinter den Kulissen annehme, was wir jetzt nicht vollständig beweisen können. Aber ich kann mir vorstellen, dass
+Beweise dafür später auftauchen könnten. Und natürlich die offene Feindseligkeit der ukrainischen extremen Rechten, die
+Selensky mit dem Tode bedrohten, falls er Frieden mit Russland schliessen würde. Diese Drohungen verfolgten ihn während
+seiner gesamten Präsidentschaft und hielten bis zum Vorabend der Invasion an, was dazu führte, dass Leute wie sein oberster Sicherheitsbeamter Ende Januar sagten, dass die Umsetzung der Minsker Vereinbarungen zur Zerstörung der Ukraine
+führen würde – nachdem Selensky auf der Grundlage der Umsetzung der Minsker Vereinbarungen gewählt worden war –,
+und das setzte sich bis zu den abschliessenden Gesprächen über die Umsetzung der Minsker Vereinbarungen fort, die von
+Deutschland und Frankreich vermittelt worden waren.
+Bei diesen Gesprächen im Februar weigerte sich die Regierung Selensky plötzlich, auch nur mit den Vertretern der Rebellen
+zu sprechen, was eine Einigung möglich machen würde. Und in der Zwischenzeit gab es Entwicklungen wie diese, von der
+wir gerade aus dem Wall Street Journal erfahren haben, nämlich dass der deutsche Bundeskanzler [Olaf] Scholz am 19.
+Februar gegenüber Selensky erklärte, dass, Zitat, «die Ukraine auf ihre NATO-Ambitionen verzichten und ihre Neutralität
+als Teil eines umfassenderen europäischen Sicherheitspakts zwischen dem Westen und Russland erklären sollte.» Und dieser Pakt, den Scholz vorschlug, sollte von Biden und Putin unterzeichnet werden, aber Selensky lehnte dies ab – er lehnte
+es rundheraus ab.
+Aber meine Frage ist, weil ich es für ziemlich schlüssig halte, dass die Selensky-Ukraine-Seite die Diplomatie sabotiert hat,
+aber was ist mit Russland? Glauben Sie, dass Russland alle seine diplomatischen Möglichkeiten ausgeschöpft hat, um einen
+Krieg zu vermeiden? Warum hat es sich zum Beispiel nicht an die UNO gewandt und um eine Friedenstruppe im Donbass
+gebeten? Und zweitens: Wenn das Ziel darin besteht, die Menschen im Donbass zu schützen, warum sollte man dann weit
+über den Donbass hinaus einmarschieren und nicht einfach dorthin gehen?
+JACQUES BAUD: Nun, ich denke, die Russen haben das Vertrauen in den Westen völlig verloren. Ich denke, das ist der
+Hauptgrund. Sie vertrauen dem Westen nicht mehr, und deshalb glaube ich, dass sie jetzt auf einen totalen Sieg auf der
+militärischen Seite angewiesen sind, um bei den Verhandlungen etwas zu gewinnen.
+Ich denke, dass Selensky… Ich bin mir nicht sicher, ob er so abgeneigt ist, Frieden zu schliessen. Ich glaube, er kann es nicht
+tun. Ich glaube, er war von Anfang an gefangen zwischen seinem … man bedenke, dass er mit der Idee gewählt wurde,
+Frieden im Donbass zu erreichen. Das war sein Ziel, das war sein Programm als Präsident. Aber ich glaube, der Westen –
+und ich würde sagen, die Amerikaner und die Briten – wollten diesen Frieden nicht. Und natürlich haben die Deutschen
+und die Franzosen, die für die ukrainische Seite die Garanten des Minsker Abkommens waren, ihre Aufgabe nie wirklich
+erfüllt. Ich meine, sie haben ihre Aufgabe nie erfüllt, ganz klar. Und vor allem Frankreich, das gleichzeitig Mitglied des Sicherheitsrates ist. Denn ich möchte Sie daran erinnern, dass die Minsker Vereinbarungen auch Teil einer Resolution des
+Sicherheitsrates waren. Das bedeutet, dass sie nicht nur von den verschiedenen Parteien in Minsk unterzeichnet wurden,
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+sondern auch von den Mitgliedern des Sicherheitsrates, die für die Umsetzung des Abkommens verantwortlich waren, und
+niemand wollte, dass dieses Abkommen geschlossen wird. Das bedeutet also, dass auf Selensky viel Druck ausgeübt wurde,
+so dass er nicht einmal mit den Vertretern der beiden abtrünnigen Republiken sprechen wollte.
+Und danach haben wir übrigens gesehen, dass es mehrere Anzeichen dafür gibt, dass Selensky die Geschehnisse in der
+Ukraine nicht vollständig unter Kontrolle hatte oder hat. Ich denke, die extreme, sagen wir mal, nationalistische extreme
+Rechte – ich weiss nicht genau, was der richtige Begriff ist, weil es eine Mischung aus allem ist -, aber diese Kräfte haben
+ihn definitiv daran gehindert, oder haben ihn bisher daran gehindert, etwas zu tun. Und wir können auch sehen, dass er in
+Bezug auf den Frieden hin und her schwankt. Sie erinnern sich vielleicht daran, dass Ende Februar, als Selensky angedeutet
+hat, dass er zu Verhandlungen bereit sein könnte, diese Verhandlungen in Belarus stattfinden sollten. Innerhalb weniger
+Stunden, nachdem Selensky diese Entscheidung getroffen hatte, kam die Europäische Union mit einem Beschluss, der eine
+halbe Milliarde Waffen für die Ukraine vorsah, was bedeutet, dass die Amerikaner, sicherlich, aber ich denke, der Westen
+als Ganzes, alle möglichen Anstrengungen unternommen haben, um eine politische Lösung des Konflikts zu verhindern,
+und ich denke, die Russen sind sich dessen bewusst.
+Wir müssen auch verstehen, dass die Russen ein anderes Verständnis davon haben, wie man einen Krieg gegen die westlichen Mächte, insbesondere die USA, führt. Das bedeutet, dass wir im Westen dazu neigen, wenn wir verhandeln, dann
+verhandeln wir bis zu einem bestimmten Punkt und dann hören die Verhandlungen auf und wir beginnen einen Krieg. Und
+das ist Krieg, Punkt. Bei den Russen ist das anders. Man fängt einen Krieg an, aber man verlässt nie den diplomatischen
+Weg, sondern geht in beide Richtungen weiter. Man übt mentalen Druck aus und versucht, ein Ziel zu erreichen, auch mit
+diplomatischen Mitteln. Das ist ganz im Sinne von Clausewitz – der [preussische General und Militärtheoretiker Carl von]
+Clausewitz definierte bekanntlich den Krieg als die Fortsetzung der Politik mit anderen Mitteln.
+Genau so sehen das auch die Russen. Deshalb haben sie während der gesamten Offensive, ja sogar schon zu Beginn der
+Offensive, begonnen zu verhandeln, oder sie haben ihre Bereitschaft dazu signalisiert. Die Russen wollen also durchaus
+verhandeln, aber sie trauen den westlichen Ländern – ich meine dem Westen insgesamt – nicht zu, diese Verhandlungen
+zu erleichtern. Und das ist der Grund, warum sie nicht in den Sicherheitsrat gekommen sind. Übrigens wissen sie das wahrscheinlich, denn wie Sie wissen, ist dieser physische Krieg, den wir jetzt erleben, Teil eines umfassenderen Krieges, der vor
+Jahren gegen Russland begonnen wurde, und ich denke, die Ukraine ist eigentlich nur… Ich meine, niemand ist an der
+Ukraine interessiert, denke ich. Das Ziel ist es, Russland zu schwächen, und sobald das mit Russland geschehen ist, werden
+sie das Gleiche mit China tun, und Sie können das bereits sehen. Ich meine, wir haben gesehen, dass die Ukraine-Krise alles
+andere in den Schatten gestellt hat, aber ein ähnliches Szenario könnte sich zum Beispiel auch mit Taiwan abspielen. Die
+Chinesen sind sich dessen also bewusst. Das ist der Grund, warum sie ihre, sagen wir mal, Beziehungen zu Russland nicht
+aufgeben wollen.
+Die Devise lautet, Russland zu schwächen, und Sie wissen, dass es mehrere Studien der Rand Corporation über die Ausweitung Russlands, die Überdehnung Russlands und so weiter gibt, und das ganze Szenario ist…
+AARON MATÉ: Nur um das für diejenigen zu erklären, die damit nicht vertraut sind: Rand ist eine Denkfabrik in der Art des
+Pentagons, und sie haben 2019 eine Studie durchgeführt, in der sie alle verschiedenen Möglichkeiten untersuchten, wie
+die USA sich überfordern und Russland aus dem Gleichgewicht bringen könnten, und die Top-Option war, Waffen in die
+Ukraine zu schicken, um dort einen Konflikt anzuheizen, der Russland hineinziehen könnte, was genau das ist, was passiert
+ist. [Anm.: Contra24 berichtete darüber]
+JACQUES BAUD: Auf jeden Fall. Und ich denke, dass dies ein kompletter Plan ist, um Russland zu schwächen, und genau das
+ist es, was wir im Moment beobachten können. Wir hätten das voraussehen können, und ich glaube, Putin hat das vorausgesehen. Und ich glaube, er hat verstanden, dass er Ende Februar, ich meine, am 24. Februar, oder sagen wir kurz vorher,
+weil er die Entscheidung vorher treffen musste, aber in den Tagen vor der Entscheidung über die Offensive, verstanden
+hat, dass er nicht nichts tun kann. Er musste etwas tun. Die russische Öffentlichkeit hätte nie verstanden, warum Russland
+einfach zusehen sollte, wie die Donbass-Republiken von der Ukraine überfallen oder zerstört werden. Das hätte also niemand verstanden. Also war er gezwungen zu starten. Und dann, denke ich… und das ist es, was er am 24. Februar sagte, er
+sagte, egal was er tun würde, die Höhe der Sanktionen, die er erhalten würde, wäre die gleiche. Im Grunde wusste er also,
+dass die geringste Intervention im Donbass eine massive Einleitung von Sanktionen auslösen würde, das wusste er also.
+Also entschied er: «Okay, dann muss ich die maximale Option wählen», denn eine Option wäre gewesen, einfach zu verstärken, sich nicht mit den Republiken anzulegen und nur die Republiken an der Kontaktlinie zu verteidigen. Aber er hat
+sich für die grössere Option entschieden, nämlich die Kräfte zu vernichten, die den Donbass bedrohen.
+Und das sind die beiden Ziele, die wir dort sehen. Die Entmilitarisierung, die nicht die vollständige Entmilitarisierung der
+gesamten Ukraine ist, sondern die Unterdrückung der militärischen Bedrohung im Donbass; das ist das Hauptziel. Es gibt
+viele Missverständnisse über das, was er gesagt hat, und natürlich war er nicht sehr klar, aber das ist Teil der russischen
+Art, zu kommunizieren und Dinge zu tun. Sie wollen sich alle Optionen offenhalten, und das ist der Grund, warum sie nur
+das Nötigste sagen. Und genau das hat Putin am 21. gemeint, als er von der Unterdrückung der militärischen Bedrohung
+des Donbass sprach. Die Entnazifizierung hatte nichts mit der Tötung von Selensky oder der Zerstörung der Führung in Kiew
+zu tun. Das war definitiv nicht die Idee, und in der Tat, wie ich schon sagte, ist die wichtigste Art und Weise, wie sie den
+Krieg konzipieren, eine Kombination aus physischer Aktion und diplomatischer Aktion. Das bedeutet also, dass man bei
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+einer solchen Vorgehensweise die Führung behalten muss, um verhandeln zu können, und deshalb gab es keine Möglichkeit, die Führung in Kiew zu töten oder zu vernichten.
+Bei der Entnazifizierung ging es also im Grunde nicht um die 2,5 Prozent der extremen Rechten in Kiew. Es ging um die 100
+Prozent der Asow-Leute in Mariupol und Charkiw und dergleichen mehr. Wir neigen also zu Missverständnissen, weil einige
+Leute sagten: «Nun, aber warum entnazifizieren? Weil es nur 2,5 Prozent rechtsgerichtete Parteien gibt, nur 2,5 Prozent
+oder so ähnlich, also ist es bedeutungslos. Also, warum entnazifizieren? Das macht keinen Sinn.» Aber darum ging es nicht.
+Es ging definitiv um die Gruppen, die seit 2014 von den Ukrainern rekrutiert wurden, um, sagen wir mal, ich würde sagen,
+zu befrieden oder zu kontrollieren. Ich weiss nicht genau, was das richtige Wort dafür ist, aber um im Donbass zu kämpfen.
+Diese Leute waren Extremisten, Fanatiker, und diese Leute waren gefährlich.
+AARON MATÉ: Und einer der Punkte, die Sie in Ihrem Artikel ansprechen und die ich nicht kannte, ist, dass ein Teil des
+Grundes, warum die Ukraine diesen Bedarf an Milizen, rechtsextremen Milizen und ausländischen Söldnern hatte, in der
+hohen Überlaufquote in den eigenen militärischen Reihen liegt, in der Tatsache, dass die Leute nicht dienen wollten und
+sogar zur anderen Seite der Rebellion im Donbass übergelaufen sind.
+JACQUES BAUD: Genau. Wie ich Ihnen bereits sagte, habe ich in der NATO den Zustrom von Waffen in den Donbass beobachtet, und wir konnten weder Waffenimporte noch Waffenexporte von russischer Seite in den Donbass feststellen. Was
+wir jedoch feststellen konnten, war, dass viele ukrainische Einheiten übergelaufen sind und ganze Bataillone übernommen
+haben. Und 2014 stammte der Grossteil der schweren Artillerie, die der Donbass erhielt, von Überläufern. Ganze Einheiten
+sind übergelaufen, mitsamt Munition und Leuten und so weiter. Der Grund dafür ist, dass die ukrainische Armee auf einer
+territorialen… auf einer territorialen Weise bemannt und organisiert war. Das bedeutet, dass es in den Streitkräften eine
+Menge russischsprachiger Leute gab. Als sie dann in den Donbass geschickt wurden, wollten sie nicht einmal gegen ihre
+eigenen Kollegen und russischsprachigen Leute kämpfen, also zogen sie es vor, überzulaufen.
+Hinzu kommt, dass die Führung der ukrainischen Armee im Jahr 2014, ich meine von 2014 bis 2017, extrem schlecht war.
+Es herrschte viel Korruption. Ich bin mir nicht sicher, ob das Militär tatsächlich auf einen solchen Krieg vorbereitet war,
+denn der Krieg, der damals von den Rebellen geführt wurde, ähnelte sehr dem, was man heute im Nahen Osten oder in
+den letzten Jahren beobachten kann. Das führte dazu, dass sich sehr mobile Einheiten sehr schnell bewegen konnten, viel
+schneller als die schweren Einheiten der ukrainischen Armee. Wenn wir uns das Muster der verschiedenen Schlachten
+ansehen, die 2014 und 2015 ausgetragen wurden, können wir feststellen, dass die Ukrainer nie die Führung übernehmen
+konnten. Sie hatten nie die Initiative. Die Initiative lag immer bei den Rebellen. Und es war keine Guerilla. Das ist wichtig
+zu sagen. Es handelte sich um eine extrem mobile Kriegsführung. Hinzu kam, dass die Armee im Allgemeinen nicht wirklich
+auf den Kampf vorbereitet war. Es gab also eine Menge Selbstmorde, eine Menge Alkoholprobleme, eine Menge Unfälle,
+eine Menge Morde innerhalb der ukrainischen Armee.
+Und das führte dazu, dass viele junge Ukrainer das Land verliessen, weil sie nicht in die Armee eintreten wollten. Und was
+ich damit sagen will, ist, dass dies in offiziellen Berichten im Vereinigten Königreich und in den USA aufgezeichnet und
+berichtet wurde, glaube ich. Es gab einige sehr interessante Berichte über die niedrige Rekrutierungsrate von Einzelpersonen, weil die Leute einfach nicht zur Armee gehen wollten. Aus diesem Grund engagierte sich die NATO, und ich war an
+einem solchen Programm beteiligt, bei dem versucht wurde, das Image der Armee umzugestalten und Lösungen zu finden,
+um die Rekrutierungsbedingungen in der Armee zu verbessern und Ähnliches.
+Aber die von der NATO angebotenen Lösungen waren eigentlich institutionelle Lösungen, die Zeit brauchten, und um den
+Personalmangel zu kompensieren und wahrscheinlich aggressiveres Militärpersonal zu haben, begannen sie, Internationalisten und Söldner einzusetzen, um genau zu sein. Niemand weiss genau, wie viele dieser Paramilitärs oder rechtsextremen
+Milizen es gibt. Reuters gibt die Zahl mit hunderttausend an. Ich kann das nicht nachprüfen, aber diese Zahl wurde von
+Reuters genannt. Und das scheint zu dem zu passen, was wir jetzt in den verschiedenen Regionen des Landes beobachten
+können. Diese Paramilitärs spielten also eine wichtige Rolle, nicht in der mobilen Kriegsführung, und ich würde sagen, auch
+nicht in der normalen Feldkriegsführung, aber sie wurden zur Aufrechterhaltung der Ordnung in den Städten eingesetzt.
+Und das ist genau das, was wir heute zum Beispiel in Mariupol haben, wo wir diese Leute hatten, denn sie sind nicht für
+Feldoperationen ausgerüstet. Sie sind für den Krieg in den Städten ausgerüstet. Sie haben leichte Ausrüstung, sie haben ein
+paar gepanzerte Fahrzeuge, aber sie haben nicht wirklich Panzer oder etwas Ähnliches.
+Es handelt sich also definitiv um Einheiten, die für den Krieg in den Städten gedacht sind. Das ist es, was sie in Grossstädten
+tun. Und diese Leute sind extrem fanatisch, können wir sagen, und sie sind extrem gefährlich. Und das erklärt die Art und
+Weise, wie Mariupol, die Schlachten und die extrem brutalen Kämpfe, die man in Mariupol als Beispiel hat, und wir werden
+wahrscheinlich das Gleiche in Charkiw sehen, zum Beispiel.
+AARON MATÉ: Zum Abschluss möchte ich Sie zu einigen der jüngsten Gräueltaten befragen, über die wir berichtet haben.
+Es gab Berichte über Massentötungen von Zivilisten durch Russland in der Stadt Butscha und auch über Tötungen von
+ukrainischen Streitkräften, und dann gab es den Angriff auf den Bahnhof in Kramatorsk. Ich frage mich, ob Sie diese beiden
+Vorfälle bewertet haben und was Sie davon halten.
+JACQUES BAUD: Nun, da gibt es zwei Dinge. Erstens deuten die Hinweise, die wir zu beiden Vorfällen haben, für mich darauf
+hin, dass die Russen nicht dafür verantwortlich waren. Aber in Wirklichkeit wissen wir es nicht. Ich denke, das ist es, was
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+wir sagen müssen. Ich meine, wenn wir ehrlich sind, wissen wir nicht, was passiert ist. Die Hinweise, die wir haben, alles,
+alle Elemente, die wir haben, deuten eher auf eine ukrainische Verantwortung hin, aber wir wissen es nicht.
+Was mich an der ganzen Sache beunruhigt, ist nicht so sehr, dass wir es nicht wissen, denn im Krieg gibt es immer solche
+Situationen, in denen man nicht genau weiss, wer wirklich verantwortlich ist. Was mich beunruhigt, ist, dass westliche
+Politiker begonnen haben, Entscheidungen zu treffen, ohne zu wissen, was vor sich geht und was passiert ist. Und das ist
+etwas, was mich zutiefst beunruhigt, dass wir, bevor wir irgendein Ergebnis einer Untersuchung, einer Ermittlung, und ich
+meine eine internationale, unparteiische Ermittlung, haben, bereits Sanktionen verhängen und Entscheidungen treffen,
+und ich denke, das zeigt, wie der gesamte Entscheidungsprozess im Westen pervertiert wurde. Seit Februar oder sogar
+schon vorher, denn nach der Entführung – oder übrigens nicht Entführung, es war keine Entführung – sondern dem Vorfall
+in Weissrussland mit diesem Ryanair-Flug hatten wir eine ähnliche Situation. Sie erinnern sich vielleicht daran, dass die
+Menschen im Mai letzten Jahres nur wenige Minuten, nachdem die Presse über den Vorfall berichtet hatte, zu reagieren
+begannen, obwohl sie nicht wussten, was vor sich ging! Das ist also die Art und Weise, wie die politische Führung in Europa,
+ich meine in der Europäischen Union, aber auch in den europäischen Ländern, vorgeht. Das beunruhigt mich als Geheimdienstmitarbeiter. Wie kann man eine Entscheidung mit solchen Auswirkungen auf die Bevölkerung oder auf ganze Länder
+treffen, die sogar unsere eigene Wirtschaft stört? Das geht also tendenziell nach hinten los. Aber wir treffen Entscheidungen, ohne überhaupt zu wissen, was vor sich geht, und das deutet meiner Meinung nach auf eine extrem unreife Führung
+hin, die wir im Westen im Allgemeinen haben. Das ist sicherlich in den USA der Fall, aber ich denke, das Beispiel der UkraineKrise zeigt, dass die europäische Führung nicht besser ist als die der USA. Ich glaube, manchmal ist sie sogar noch schlimmer.
+Das ist es also, was uns beunruhigen sollte, dass es Menschen gibt, die auf der Grundlage von nichts entscheiden, und das
+ist extrem gefährlich.
+AARON MATÉ: Jacques Baud ist ein ehemaliger strategischer Geheimdienstoffizier des Schweizerischen Strategischen Nachrichtendienstes, der auch in einer Reihe von hochrangigen Sicherheits- und Beratungspositionen bei der NATO, der UNO
+und dem Schweizer Militär tätig war. Jacques, vielen Dank für Ihre Zeit und Ihren Einblick.
+JACQUES BAUD: Ich danke Ihnen für alles. Ich danke Ihnen.
+QUELLE: US, EU SACRIFICING UKRAINE TO ‘WEAKEN RUSSIA’: FMR. NATO ADVISER
+ÜBERSETZUNG: CONTRA24
+Quelle: https://uncutnews.ch/ex-nato-berater-usa-und-eu-opfern-die-ukraine-um-russland-zu-schwaechen/
+
+Dann ist noch folgender Artikel, der ebenfalls davon handelt, was wirklich hinter dem Ganzen und des Debakels steckt, das
+in der Ukraine veranstaltet wird, und das lügnerisch und verleumderisch anders dargestellt wird, als es wirklich der Wahrheit entspricht. Doch das dumme Gros der Bevölkerungen und Regierenden glaubt und schreit Feuer und Fürio gegen Russland, wodurch das Waffenliefern befürwortet wird, und zwar gemäss Selenskys verantwortungslosem Waffen-Betteln, das
+offenbar von den USA vehement unterstützt und befürwortet wird – und dem von allen jenen Dumm-Dämlichen von den
+Regierungen diverser Länder Folge geleistet wird, welche selbst nicht des Denkens und folglich auch nicht des richtigen
+Entscheidens fähig sind.
+
+## Beim Krieg in der Ukraine geht es in Wirklichkeit um den von den USA angestrebten Regimewechsel in Russland
+uncut-news.ch, April 20, 2022
+
+Die von den Konzernen dominierten Medien (die uns 2003 mit dem ‹Schock und Ehrfurcht›-Angriff auf den Irak wegen nicht
+vorhandener Massenvernichtungswaffen belogen haben) wenden dieselbe Strategie erneut an, um den Krieg zu verkaufen
+und die Öffentlichkeit zu täuschen
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Der amerikanische Friedensaktivist, Dokumentarfilmer und Autor Bruce Gagnon analysiert den aktuellen Krieg in der Ukraine mit einem kritischen Gesamtbild der politischen und strategischen Zusammenhänge, das in den westlichen Medien so
+schmerzlich – und absichtlich – fehlt.
+Im folgenden Interview weist Gagnon darauf hin, dass die russische Militärintervention in der Ukraine, die am 24. Februar
+begann, nur dann richtig verstanden werden kann, wenn man sie als Antwort auf acht Jahre unerbittlicher militärischer
+Angriffe des von der NATO unterstützten Kiewer Regimes gegen die ethnisch russische Bevölkerung der Donbass-Region
+betrachtet. Fast 14‘000 Menschen wurden von dem von der NATO unterstützten Kiewer Regime und seinen russenhassenden Nazi-Regimentern getötet. Wo waren die Verurteilungen der westlichen Regierungen und Medien?
+Die derzeitige Ausweitung des Krieges sei in Wirklichkeit nur die Frontlinie in einem grösseren Krieg, den die Vereinigten
+Staaten und ihre europäischen NATO-Verbündeten gegen Russland führen. Das Endziel ist ein Regimewechsel in Moskau.
+Dieses Ziel soll die Interessen westlicher Unternehmen befriedigen und schliesst auch China ins Visier. Auf diese Weise
+versuchen die USA und ihre imperialistischen Verbündeten, das Entstehen einer multipolaren Welt zu vereiteln und den
+historischen Niedergang der Macht der westlichen Konzerne auszugleichen. Er sagt: «China steht auch auf der Regimewechsel-Liste des Westens, und aufgrund des neuen Wirtschafts- und Militärpakts zwischen Russland und China ist es unerlässlich, zuerst Russland auszuschalten, bevor man sich China vornimmt. Die Vereinigten Staaten nutzen Taiwan derzeit
+in ähnlicher Weise, wie sie die Ukraine als Instrument der Destabilisierung eingesetzt haben.»
+Der Ausgang des Krieges in der Ukraine ist daher von entscheidender Bedeutung. Die USA und die NATO wollen diesen
+Krieg fortsetzen, um Russland auszuschlachten, zu zerstören und zu unterwerfen. Daher der rücksichtslose, kriminelle Zustrom von Waffen aus dem NATO-Block in die Ukraine, um jede politische Lösung zu vereiteln. Gagnon weist auch darauf
+hin, dass die Achse USA-NATO-Kiew wahrscheinlich zu weiteren Gräueltaten unter falscher Flagge greifen wird, um den
+Informationskrieg gegen Russland zu gewinnen – einen Krieg, den die westlichen sogenannten Nachrichtenmedien unter
+dem eingebildeten und trügerischen Deckmantel des ‹Journalismus› offen führen.
+Bruce Gagnon lebt in Maine, Vereinigte Staaten von Amerika. Er ist Gründer und Koordinator des Global Network Against
+Weapons & Nuclear Power in Space. Ausserdem veröffentlicht er in seinem Blog Organizing Notes scharfe Kommentare zu
+internationalen Entwicklungen. Gagnon ist ein Vietnamkriegsveteran, hat als Arbeitsrechtsaktivist gearbeitet und ist in Dutzende von Ländern gereist, um öffentliche Reden und Seminare für Friedens-, Antikriegs- und Gerechtigkeitsorganisationen
+zu halten.
+**Interview**
+_Frage: Der US-Kongress ist im Begriff, ein Lend-Lease-Gesetz zu verabschieden, das die Lieferung von Waffen an die Ukraine_
+stark erhöhen wird, angeblich um das Land vor einer ‹russischen Aggression› zu schützen. Dies geschieht, während zwischen der Ukraine und Russland Verhandlungen über eine Friedenslösung für den Konflikt geführt werden. Versucht
+Washington, die Verhandlungsposition Kiews zu stärken, oder zielen die Vereinigten Staaten darauf ab, den Krieg zu verlängern?
+_Bruce Gagnon: Wenn man die Rand Corp-Studie von 2019 mit dem Titel ‹Overextending and Unbalancing Russia› als Leit-_
+faden nimmt, wollen die USA und die NATO offensichtlich nicht, dass die Verhandlungen zwischen der Ukraine und Russland
+Erfolg haben. Ihr Interesse besteht darin, eine schwärende Wunde entlang der russischen Grenze zu schaffen und Moskau
+zu zwingen, mehr Geld für das Militär und den Wiederaufbau der massiv zerstörten russisch-ethnischen Donbass-Region
+im Osten der Ukraine auszugeben. Die Zerstörung des Donbass ist grösstenteils auf den Beschuss durch die ukrainische
+Armee zurückzuführen, der seit dem von den USA orchestrierten Putsch in Kiew im Jahr 2014 über acht Jahre andauerte.
+_Frage: Bei der Verabschiedung des Lend-Lease-Gesetzes hat der US-Senat den Vorwurf des Völkermords und des Massakers_
+an Zivilisten in der ukrainischen Stadt Butscha durch russische Truppen als Begründung für die Genehmigung weiterer amerikanischer Waffen für die Ukraine angeführt. Russland streitet die Vorwürfe kategorisch ab, während mehrere unabhängige Analysten darauf hinweisen, dass die grausamen Morde eine Provokation unter falscher Flagge waren, die von den
+ukrainischen Streitkräften durchgeführt wurde, um Russland zu belasten. Was halten Sie von den westlichen Medienberichten über das Massaker von Butscha?
+_Bruce Gagnon: Ich habe die Butscha -Geschichte genau studiert, und es ist mehr als offensichtlich, dass dies eine weitere_
+Falschmeldung der US-NATO-Ukraine-Achse war. Die zeitlichen Abläufe deuten darauf hin, dass dies so war. Die russischen
+Truppen verliessen Butscha am 30. März. Am 31. März veröffentlichte der Bürgermeister von Buka ein Video, in dem er
+aufgeregt und stolz verkündete, dass die russischen Truppen abgezogen seien. Am 1. April machte eine Frau, die als Abgeordnete des Stadtrats von Butscha fungiert, ein ähnliches Video, in dem sie den Sieg über die Russen verkündete. Keines
+dieser beiden Stadtoberhäupter erwähnte ein Massaker oder Leichen auf den Strassen, was zu diesem Zeitpunkt mehr als
+offensichtlich gewesen wäre. Am 2. April übernahmen die ukrainischen Streitkräfte wieder die Kontrolle über Butscha. Am
+3. April begannen die westlichen Medien über das angebliche Massaker zu berichten.
+Die US-amerikanische, NATO- und ukrainische Seite hat wiederholt versucht zu behaupten, dass Russland Zivilisten tötet,
+aber jede Geschichte entbehrte einer sachlichen Grundlage. Der letzte Versuch war der Beschuss von Kramatorsk durch die
+ukrainische Armee mit einer Tochka-U-Rakete am 8. April. Dutzende von Zivilisten wurden getötet und bis zu 100 verwundet. Der ukrainische Präsident Wladimir Selenski gab schnell Russland die Schuld, obwohl es sich bei der Tochka-U-Rakete
+um eine veraltete Technologie handelt, die von Russland nicht mehr verwendet wird, und zahlreiche Beweise zeigen, dass
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+sie von der Armee des nazistisch geführten Kiewer Regimes wiederholt zum Beschuss der Donbass-Region eingesetzt
+wurde.
+Ausserdem liegt Kramatorsk in der russisch-ethnischen Region der Ostukraine, die Russland von der nazistisch geführten
+Armee in Kiew zu befreien versucht. Es macht keinen Sinn, dass Russland sein eigenes Volk tötet.
+Man sagt, dass jeder Kriminelle einen Modus Operandi (MO) hat – eine Art, sein schlechtes Verhalten zu wiederholen. Ich
+denke, man kann mit Sicherheit sagen, dass die Ukraine diesen Krieg verliert und zu einem Modus Operandi gegriffen hat,
+um die öffentliche Meinung gegen Russland zu wenden, in der Hoffnung, dass die USA und die NATO dann vollständig auf
+der Seite des Kiewer Regimes in den Krieg eintreten werden. Die Ukraine hat also tatsächliche offensive Militäroperationen
+(zu denen sie nicht mehr wirklich in der Lage ist) durch Ereignisse unter falscher Flagge als ihre primäre Strategie zur Verunglimpfung und Niederlage Russlands ersetzt.
+_Frage: Sie haben gesagt, dass es bei dem Krieg in der Ukraine nicht nur um die Ukraine und Russland geht, sondern dass er_
+vielmehr eine Frontlinie in einer grösseren Konfrontation zwischen dem US-geführten NATO-Block auf der einen Seite und
+Russland und China auf der anderen Seite darstellt. Wollen Sie damit sagen, dass dies ein Stellvertreterkrieg ist?
+_Bruce Gagnon: Es besteht kein Zweifel daran, dass dieser Krieg im Namen einer grösseren Mission geführt wird – einem_
+Regimewechsel in Russland, von dem sich der Westen erhofft, dass er die Zerschlagung Russlands in kleinere Nationen
+ermöglicht, ähnlich wie es die US-NATO nach dem amerikanisch geführten Angriff auf Belgrad 1999 mit Jugoslawien getan
+hat. Ziel ist es, dass westliche Rohstoffkonzerne die Kontrolle über Russlands riesige Landmasse und vor allem über seine
+enormen Rohstoffvorkommen übernehmen, zu denen Erdgas, Erdöl, Holz, landwirtschaftliche Flächen und lebenswichtige
+Mineralvorkommen gehören. Mit dem Abschmelzen des arktischen Eises wird es zunehmend möglich sein, unter dem
+Meer, das seit langem von dicken Eisschichten bedeckt ist, nach Offshore-Ressourcen zu ‹bohren›. Es ist kein Zufall, dass
+zur gleichen Zeit, als dieser Krieg begann, die US-NATO im Norden Norwegens, das an Russlands arktische Region grenzt,
+ein Kriegsspiel namens ‹Cold Response› abhielt.
+In einem seiner verwirrten Momente erklärte US-Präsident Joe Biden kürzlich in einer Rede in Warschau, dass «Putin gehen
+müsse». Ich bin mir mehr als sicher, dass dies bei vielen Sitzungen des Nationalen Sicherheitsrates in Washington seit langem ein wichtiger Tagesordnungspunkt ist.
+In den vergangenen 500 Jahren wurde Russland mehrmals vom Westen aus überfallen. Die Polen kamen 1605 über die
+europäische Ebene, gefolgt von den Schweden unter Karl XII. 1707, den Franzosen unter Napoleon 1812 und den Deutschen
+zweimal, in den beiden Weltkriegen 1914 und 1941. Alle 100 Jahre macht der Westen einen Vorstoss und scheitert.
+China steht ebenfalls auf der Regimewechsel-Liste des Westens, und aufgrund des neuen Wirtschafts- und Militärpakts
+zwischen Russland und China ist es unerlässlich, zuerst Russland auszuschalten, bevor man sich China vornimmt. Die Vereinigten Staaten nutzen Taiwan derzeit in ähnlicher Weise wie die Ukraine als Instrument der Destabilisierung.
+_Frage: Russland hat gesagt, dass es hofft, dass der Krieg in der Ukraine bald beendet sein wird. Aber nach dem, was Sie_
+sagen, besteht die reale Gefahr, dass sich der Konflikt aufgrund der Waffenlieferungen der USA, Grossbritanniens und der
+NATO an die Ukraine noch viel länger hinziehen könnte. Ist es diese Verlängerung des Krieges, die das Kalkül und die Politik
+von Washington und London beeinflusst?
+_Bruce Gagnon: Die Interessengruppen innerhalb des militärisch-industriellen Komplexes zwischen den USA und der EU kön-_
+nen massive Gewinne erzielen, wenn dieser Krieg um Monate oder sogar Jahre verlängert werden kann. Ich glaube, dass
+dies die Absicht von Washington und Brüssel ist. Indem sie die NATO-Mitglieder dazu bringen, veraltetes militärisches Gerät
+in die Ukraine zu liefern, können sich die westlichen Rüstungshersteller lebhaft vorstellen, diese Waffenbestände durch die
+neuesten Technologien zu ersetzen, die mit den weltraumgestützten Kriegsführungsfähigkeiten des Pentagons ‹interoperabel› sein müssen. Im Laufe der Zeit entsteht so eine riesige globale Hightech-Kriegsmaschine. Vergessen Sie nicht, dass
+die NATO auch international tätig wird, indem sie ‹Partner› in Australien, Neuseeland, Südkorea, Japan und anderen asiatisch-pazifischen Ländern aufnimmt. In dieser ‹Missionsvision› wären die USA für die ‹Speerspitze› verantwortlich und hätten die NATO-Mitglieder und -Partner dazu gebracht, für alles zu bezahlen. Die Aufgabe der NATO besteht letztlich darin,
+die Unterwerfung unter die Forderungen westlicher Unternehmen zu erzwingen. Sie erklären, sie seien ein ‹Friedensbündnis›, doch ihre Geschichte ist nichts anderes als endloser Krieg.
+_Frage: Glauben Sie, dass die von den USA angeführte Konfrontation der NATO mit Russland ein noch grösseres Bild ergibt?_
+Das heisst, der grössere Kampf besteht darin, den historischen Niedergang des von den USA dominierten westlichen Wirtschaftssystems aufzuhalten? Russland und China haben immer wieder das Entstehen einer multipolaren Welt auf der
+Grundlage von Zusammenarbeit und Partnerschaft begrüsst. Die Vereinigten Staaten scheinen diese Vision zutiefst abzulehnen, da sie behaupten, dass Moskau und Peking eine so genannte ‹regelbasierte Weltordnung› untergraben. Warum
+lehnt Washington eine multipolare Vision ab? Was macht die amerikanische Macht aus, die unipolare Dominanz, Loyalität
+oder Krieg verlangt?
+_Bruce Gagnon: Die USA und die NATO sind eine unsichere und verzweifelte militärische Kriegsmaschine. Sie sind die Schlä-_
+ger des vom Westen geführten Globalisierungssyndikats. Sie wissen, dass ihre Tage als dominierende westliche imperiale
+Mächte, die den grössten Teil der Welt seit Hunderten von Jahren beherrschen, gezählt sind.
+Es erinnert mich an einen betrunkenen Glücksspieler, der die Würfel rollen lässt – wissend, dass er alles verloren hat, aber
+dennoch ein letztes Mal alles riskiert. Washington und die EU sind sich darüber im Klaren, dass die aufstrebende multipolare
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Welt unaufhaltsam ist – wenn man die Bevölkerungszahlen zusammenzählt, ist diese aufstrebende Flut die grosse Mehrheit
+der Weltbevölkerung. Die USA und die NATO wissen also, dass dies ihre letzte Chance ist, die Kontrolle über den Planeten
+zu behalten. Washington-London-Paris-Berlin-Brüssel wollen die totale Macht und Kontrolle und sind bereit, alle Nationen,
+die sich ihnen in den Weg stellen, in Schutt und Asche zu legen.
+China, Russland, Iran, Indien und andere Länder des globalen Südens verstehen dies natürlich. Sie haben lange genug unter
+der Herrschaft der USA und Europas gelitten. Sie sind dabei, diese multipolare Welt zu schaffen – eine ‹faire Weltordnung›,
+wie sie ein russischer Führer kürzlich nannte, die nicht von der Wall Street, der Bank of England, dem IWF und der Weltbank
+gesteuert wird. Die Frage, die sich uns allen stellt, ist: Werden die USA und die NATO bereit sein, dieses Bestreben, die
+Kontrolle zu behalten, in eine dritte Welt zu tragen, die dann möglicherweise nuklear werden könnte? Die sogenannten
+‹Pazifisten›, die auf den Strassen ukrainische Fahnen schwenken, sollten sich fragen, ob sie nicht ungewollt dazu beitragen,
+die Dinge in diese schreckliche Richtung zu treiben.
+_Frage: Würden Sie zustimmen, dass die westlichen Nachrichtenmedien in der Berichterstattung über den Ukraine-Krieg_
+und dessen Vorgeschichte offener die Funktion eines Propagandasystems übernommen haben, das mit geheimdienstlichen
+Desinformationen hausieren geht, um den Charakter des Konflikts mit Russland zu verzerren?
+_Bruce Gagnon: Die westlichen Medien sind voll dabei, wenn es darum geht, Russland zu dämonisieren und zur Eskalation_
+dieses Krieges beizutragen. Erst vor wenigen Tagen schaltete ich beim Autofahren NPR (National Public Radio) ein und hörte
+einen ‹Korrespondenten› behaupten, russische Truppen hätten junge Mädchen in Buka vergewaltigt.
+Haben wir die bahnbrechenden Anhörungen des US-Senatsausschusses von 1975 über die Kontrolle der Medien durch die
+CIA vergessen? Diese Anhörungen wurden von Senator Frank Church (D-ID) geleitet. Damals wurde aufgedeckt, dass 400
+Journalisten weltweit im Auftrag der CIA Nachrichtenbeiträge lieferten. Operation Mockingbird wurde sie genannt.
+Schauen Sie im Internet nach. Ich glaube nicht, dass die Videos von diesen Kongressanhörungen schon auf YouTube entfernt
+wurden. Ich würde mein Leben darauf verwetten, dass die so genannte ‹Butscha-Vergewaltigungsgeschichte› von der Agentur produziert wurde.
+Erst letzte Woche erfuhren wir aus einem NBC-TV-Bericht, dass die US-Geheimdienste falsche Geschichten über Russland
+verbreiten, um Moskau davon abzuhalten, etwas Schlimmes zu tun“. Die von den Konzernen dominierten Medien (die uns
+2003 den ‹Shock and Awe›-Angriff auf den Irak wegen nicht vorhandener Massenvernichtungswaffen vorgegaukelt haben)
+wenden dieselbe Strategie erneut an, um Krieg zu verkaufen und die Öffentlichkeit zu täuschen. Und wenn man all die
+Bemühungen der konzerneigenen sozialen Medien berücksichtigt, alternative Ansichten zum Ukraine-Krieg zu unterdrücken, wird klar, dass das Ziel Nummer eins die Gehirnwäsche der Öffentlichkeit ist. Modus Operandi – jedes kriminelle
+Syndikat hat einen.
+QUELLE: THE WAR IN UKRAINE IS REALLY ABOUT U.S. PURSUING REGIME CHANGE IN RUSSIA – BRUCE GAGNON
+ÜBERSETZUNG: LZ
+Quelle: https://uncutnews.ch/beim-krieg-in-der-ukraine-geht-es-in-wirklichkeit-um-den-von-den-usa-angestrebten-regimewechsel-inrussland/
+
+Das sind also die beiden Artikel, die ich dir vorlesen wollte, die zudem nicht einfach banal und falsch das aussagen, was von
+den USA und all den Dumm-Dämlichen gehört und gelesen und geglaubt werden will. Da sieht das Ganze ganz anders aus,
+als die Zeitungen so amerikafreundlich und ukrainefreundlich ständig berichten und die Tatsachen anders darstellen oder
+verschweigen, als diese wirklich sind. Alles steht hier in diesen beiden Artikeln, wie ihr mir selbst immer berichtet, worüber
+ich jetzt einmal rede und das sage, was wirklich Tacheles ist, ohne dass ich eine Meinung dazu habe, sondern nur das
+wiedergebe, was ihr mir wahrheitsgemäss berichtet und was ich durch eure Hilfe selbst nachprüfen konnte. Leider hat man
+…, dass ich manchmal …, weil eben meine Haare … . Dass es dabei …, für mich persönlich Beweise zu sammeln, dass das,
+was ihr mir gesagt habt, der Richtigkeit und Wahrheit entsprach, das … …. Das alles, was ich dank eurer Hilfe …, das bleibt
+bei mir, und darüber will ich nicht mehr sagen als das, was ich jetzt eben gesagt habe.
+
+**Ptaah** Das ist für mich zu verstehen, so auch für Bermunda, Florena und Enjana, die dich während diesen Zeiten begleiteten, besonders Bermunda durch die letzten Monate hindurch, wie auch Quetzal, der sich nicht nehmen liess, während
+unserer Abwesenheit Bermunda einige Male zu vertreten.
+
+**Billy** Dankbar bin ich jedenfalls allen für ihre Hilfe, natürlich dich eingeschlossen. Doch jetzt will ich noch folgendes
+sagen, und zwar aus Sicht der Geisteslehre, um die Fragen von E. und D. zu beantworten. Wenn E. von den Gesetzen der
+Selbstverteidigung redet, die uns von der Schöpfung gegeben sind, dann sind die ganz anders, als er und offenbar auch D.
+sich vorstellen. Die schöpferischen Gesetze für den Menschen beruhen weder auf Hass, Rache, Vergeltung, unsinniger Tötung, Folter, Mord, Totschlag, Gewalt und vor allem also weder auf Krieg, Zerstörung noch Vernichtung, wie der Mensch
+dies seit alters her fälschlich interpretiert und tätlich umsetzt.
+Grundlegend ist klar und eindeutig zu erklären, dass die natürlichen Gesetze der Schöpfung nicht einfach aus den Naturgesetzen bestehen, die eine allgemeine Evolutionsgültigkeit haben, sondern aus Gesetzen, die spezifisch abgestimmt sind auf
+das Lebensverhalten und auf die speziellen Verhaltensweisen der verschiedenen Spezies. Diese sind folglich geregelt und
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+gültig für den Planeten, die gesamte Fauna und Flora und den Menschen. Es handelt sich dabei also um Gesetze, die alles
+Lebendige umfassen, das in erster Linie das Werden und Vergehen auf völlig natürliche Weise regelt, und zwar beginnend
+mit der Entstehung des Planeten, bis hin zu allen Lebensformen gross und klein sowie jeder Gattung und Art. Alles und
+jedes ist eingeschlossen darin, so auch der Mensch, und also auch alles Leben bis zur kleinsten einzelligen Mikrobe.
+Die schöpferischen Gesetze bestimmen bezüglich jeder Gattung und Art die Lebensweise und den Erhalt des Lebens, das
+Zusammenleben der einzelnen Gattungen und Arten, sowie den Werdegang für das alltägliche Dasein, der ausnahmslos die
+Nahrungsbeschaffung und die Selbsterhaltung sowie Selbstverteidigung und die Fortpflanzung usw. jeder Gattung oder Art
+der Lebensformen umfasst.
+So sind dieserart die schöpferischen Gesetze für alle Lebensformen bestimmt, so also für alle, die unbewusst ihr Leben
+führen, was über Tiere, Getier und unzählbare andere Lebensformen bis zu den Mikroorganismen reicht. Diese alle sind
+gemäss ihrer Gattung und Art schöpferischen Gesetzen eingeordnet, die infolge Natureingriffen resp. der natürlichen Evolution veränderbar sind, wobei die klimatischen Bedingungen und so auch die Umwelteinflüsse eine sehr wichtige Rolle
+spielen, wodurch völlig natürlich auch neue Lebensformen entstehen können.
+
+Da sind aber völlig andere schöpferische Gesetze gegeben für die Lebensform Mensch, die als sich selbst bewusste Spezies
+selbständig und bewusst evolutionsfähig ist und selbstbestimmend sich bewusstseinsmässig entwickeln, denken, entscheiden und handeln kann. Der Mensch ist also ein Wesen unter allen unzählbaren und vielfältigen Lebensformen, das bewusst
+und selbständig als Lebensform sein Dasein führen kann und zudem der Fähigkeit der Logik, dem Verstand und der Vernunft
+eingeordnet ist. Für die Lebensform Mensch gelten in Beziehung der persönlichen Evolution völlig andere Gesetze, als für
+Lebensformen nichtmenschlicher Natur, die entwicklungsmässig umfänglich, nicht willig und nicht bewusst der Bewusstseinsevolution fähig sind. Die menschliche Natur resp. deren Konzept entspricht dem, dass es die grundlegenden Dispositionen und Eigenschaften enthält, die das bewusste Wollen beinhalten, das bewusste Denken, wie auch bewusste Gefühlsregungen, bewusste Entscheidungen, wie auch ein bewusstes und koordiniertes Handeln dem Menschen eigen ist.
+Es sollen nun die schöpfungsgegebenen Gesetze für die menschliche Lebensform angesprochen werden, die Gesetze der
+Schöpfung für den Menschen, die anders als auf Töten, Morden, Massakrieren, Foltern, Vergewaltigen und Zerstörungen
+sowie Vernichtung usw. ausgerichtet sind, dies auch in bezug auf die Selbstverteidigung.
+Schon oft und oft habe ich erklärt, dass der Mensch als bewusst evolutives Wesen sich derart entwickeln muss, dass er alle
+Aspekte der Ausartung, des Hasses, des Rachenehmens, Vergeltungsübens, der Gewalt, des Tötens und Mordens, des Folterns usw. unter seine bewusste Kontrolle bringen muss. Alle diese negativen Aspekte, die er Zeit seines Lebens in sich
+erschafft und anhäuft, die sich zutiefst in seinem Charakter ablagern, brechen sofort nach aussen durch und richten in der
+Regel Unheil an, wenn dementsprechende Regungen infolge Gedanken oder Gefühlen usw. diese tief im Charaktergrund
+abgelagerten Negativwerte hervorrufen und sie unkontrollierbar nach aussen ausarten lassen. Leider bemüht sich der
+Mensch jedoch seit seinem Werden nicht darum, folglich er seit Anbeginn seines Werdens sich der Unlogik, dem Unverstand und der Unvernunft hingegeben, sich jedoch niemals darum bemüht hat, sich zum wahren Menschen zu formen.
+Entschuldigend ist wohl für ihn zu sagen, dass ihm nie jemals jemand erklärt hat, dass er als Mensch bezüglich seiner bewussten Bewusstseinsevolution einer völlig anderen schöpferischen Gesetzgebung eingeordnet ist, als alle übrigen unzähligen Gattungen und Arten von Lebensformen, die einer allgemeinen unbewussten Evolution in jeder möglichen Entwicklung eingeordnet sind. So begonnen vom Planeten selbst, dessen Atmosphäre und Klima, wie über die gesamte Natur,
+deren Fauna und Flora, bis zu den winzigsten Mikroorganismen.
+
+Die schöpferischen Gesetze des Lebens sind für den Menschen völlig anders, als für sämtliche Lebensformen nichtmenschlicher Natur. Der Mensch ist jene hohe Lebensform unter allem Lebendigen, dessen Lebenskonzept naturmässig den grundlegenden Dispositionen entspricht, die sich als hohe Eigenschaften des bewussten Wollens, des bewussten Denkens und
+des Ideenschaffens und der Kreativität zeitigen, wie jedoch auch der bewussten Gefühlsregungen und der bewussten Entscheidungen sowie der Fähigkeit des daraus resultierenden bewussten und koordinierten Handelns.
+Entgegen allen nichtmenschlichen Lebensformen aller Gattungen und Arten, denen die Werte Logik, Verstand und Vernunft
+abgehen, ist dem Menschen gegenteilig evolutiv gegeben, sich bewusst bewusstseinsmässig zu entwickeln. In diesem Rahmen ist seine Verpflichtung die, im Umgang mit allem Lebendigen, dieses und also sich selbst zu schützen und in Logik,
+Verstand und Vernunft diesem den Wert zuzugestehen und diesen zu wahren, wie es ihm gebührt. Dieses Gesetz schöpferischen Ursprungs gebietet von Grund auf ‹Leben und Leben helfen›, in keiner Weise jedoch ‹wie du mir, so ich dir›, oder
+‹willst du nicht mein Bruder sein, dann schlag ich dir den Schädel ein›. Solcherlei irre Redensarten entspringen den vielfältigen Religionsirrlehren, die Hass, Rache und Vergeltung fordern, die zudem wider die schöpferischen Gesetze zum Schutze
+des Lebens sind. So wird das Gesetz der Selbstverteidigung seit alters her durch den Menschen völlig falsch interpretiert
+und zur Anwendung gebracht, und zwar in der Weise, dass das ‹Gesetz des Stärkeren› gilt, z.B. frei nach der Bibel, in der –
+1. Mose 6. – steht «Wer Menschenblut vergiesst, des Blut soll auch durch Menschen vergossen werden.»
+Dies ist in Wort und Schrift gefasst und gültig in allen Religionen und Sekten, nicht nur in der Bibel, und zwar seit Menschengedenken, angeblich von einem Gott gegeben, doch in Wahrheit ist alles nichts als blutiges Menschenwerk, das auf
+Rache, Vergeltung, Hass, Bosheit und auf blanker Unmenschlichkeit beruht, nicht jedoch auf gerechter Sühne und Strafe in
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Logik, Verstand und Vernunft, wie das durch die schöpferischen Gesetze für den Menschen gegeben ist. Gegenteilig wird
+durch Gewalt sofort zur Gewalt gegriffen, die tief im Charakter des Menschen verankert ist, die er im Lauf seines Lebens
+aufgebaut und sich niemals darum bemüht hat, diese zu beherrschen und abzubauen. Übernommen und gelernt von den
+Mitmenschen, die gleicherart ihr Leben lang tun und sich niemals bemühen, dem schöpferischen Gesetz Folge zu leisten,
+sich nämlich gemäss der Logik, dem Verstand und der Vernunft sich von all dem zu befreien, was für den Menschen schöpfungsgesetzwidrig ist.
+Das Gesetz der Schöpfung in bezug auf die Lebensform Mensch besagt, dass er als einziges bewusst der Logik, des Verstandes und der Vernunft fähiges Wesen die Verantwortung des Lebens trägt, folglich er auch in jeder Art und Weise verpflichtet
+ist, sich dementsprechend um seine bewusste Evolution seines Bewusstseins zu bemühen. Das Bewusstsein aber besteht
+nicht einfach aus leerem Müll, sondern aus allen Aspekten der lebensbejahenden sowie der wichtigen fortschrittlichen
+Verhaltensweisen des Lebens, wie auch der dementsprechenden Befolgung aller Werte des wahren Menschseins überhaupt. Dies aber unterscheidet sich grundsätzlich von allen Aspekten der nebst dem Menschen existierenden Lebensformen aller Gattungen und Arten, die durchwegs nicht der Dispositionen fähig sind, die rundwegs nur der menschlichen Natur
+resp. deren Konzept entsprechen und die Eigenschaften enthalten, die das bewusste Wollen und konstruktive Denken, wie
+auch das bewusste Entscheiden, bewusste Gefühlsregungen, wie auch ein bewusstes und koordiniertes Handeln ermöglichen.
+Dieses nur für den Menschen gegebene schöpferische Gesetz ermöglicht ihm unter allen Lebensformen allein die selbstbewusste sowie bewusste Evolution seines Bewusstseins, durch das er auch erfassen kann, was des Rechtens, was des Unrechtens und was des Guten und des Bösen ist. Eine Fähigkeit, die allein dem Menschen eigen wird, wenn er sich diese
+anzueignen gewillt ist und also in richtiger Weise handelnd selbst darüber bestimmt. Das bedeutet nichts anderes, als dass
+sich der Mensch durch Logik, Verstand und Vernunft selbst befähigen muss, wahrer Mensch zu werden, und zwar indem er
+sich bewusst zu einem solchen entwickelt und alles Böse, Ungute und Unrichtige in sich unter Kontrolle bringt und auflöst.
+So sind es die Gewalt, Eifersucht, der Hass, die Rache, Vergeltungssucht, Laster und Gier usw., die tief in seinem Charakter
+abgelagert sind, die er Zeit seines Lebens in sich aufgebaut hat, achtlos übernommen von den Mitmenschen, wie auch
+durch irgendwelche Gedanken und Regungen usw. selbst erzeugt und tief in seinem Charakter verankert hat. Niemals aber
+suchte der Mensch diese in sich angestauten Übel zu kontrollieren, denn Zeit seiner Existenz liess er diese Regungen zu und
+liess sie zur Ausartung werden, folglich daraus das Böse entstand, der Hass, die Rache und Gewalt, die Eifersucht, die Vergeltung, Mord und Totschlag, Massakrierung und Folter und alles das überhaupt, was menschenunwürdig und menschenfeindlich ist.
+Niemals wurde der Mensch der Erde darüber belehrt, dass das auf ihn allein zutreffende Gesetz der Schöpfung der bewussten Evolution fordert, dass all die Ausartungen, die das Bewusstsein entwickelt oder aufgenommen hat, unter Kontrollle
+gebracht und aufgelöst werden sollen. Folglich kam es nie soweit mit dem Menschen – weil er sich nie bemühte, diese
+Ausartungen zu analysieren, zu bekämpfen und aufzulösen –, dass sie niemals mehr in ihm durch irgendwelche Gedanken
+und sonstige Regungen oder durch irgendwelche Ausseneinflüsse zur Geltung kommen können. Und da er das seit alters
+her nie tat, gewann immer und immer wieder das Böse und Gewalttätige die Oberhand und siegte. So erfanden die Menschen auch einen Gott, dem als Rechtfertigung für Mord und Totschlag, und damit natürlich auch für Krieg und sonstig alles
+Böse, das Recht des Blutvergiessens und der Rache, der Vergeltung und des Hasses usw. und dies letztendlich dem Menschen zugeschrieben wurde. Und in dieser Weise denkt der Mensch noch heute, folglich jeder Gedanke einer Verteidigung
+oder Selbstverteidigung nur darin besteht, mit Gewalt, Hass, Mord, Totschlag und Zerstörung usw. zu reagieren, anstatt in
+Logik, Verstand und Vernunft einen Weg und eine Lösung zu suchen und zu finden, was letztendlich jede Gewalt verhindert.
+Doch noch sind die Menschen der Erde in der Spirale der Gewalt jeder Art gefangen, denn ihr Denken ist seit alters her
+geschwängert mit Hass, Rache, Vergeltung, Mord, Totschlag, Verderben und Zerstörung usw., und daher ist auch nicht mit
+exakter Genauigkeit vorauszusagen, wie sich alles entwickeln und wie die endgültigen Reaktionen der verschiedenen Parteien sein werden, die letztendlich die Endmelodie des Krieges in der Ukraine spielen werden. Wenn E.Z. in seinem E-Mail
+folgendes schreibt:
+
+«Wenn sich ein oder mehrere Staaten darauf vorbereiten, bei dir einzumarschieren, um dich zu vernichten, was sollte dann
+getan werden, um einen Konflikt zu verhindern, wenn alle diplomatischen Wege ausgeschöpft sind oder nur eine Seite
+wirklich Frieden will, während die andere nur Krieg will? Oder früher reagieren, so dass dann als einzige Verteidigung ein
+Atomkrieg übrigbleibt?»
+
+Dann ist dazu leider zu sagen, dass das Ganze in den Sternen steht, wie man so sagt. Leider lässt sich nichts voraussagen –
+auch wenn es die Zukunft schon weiss –, denn es wird sich erweisen, was sein wird. Mehr muss und will ich nicht mehr dazu
+sagen, denn meines Erachtens habe ich sowieso schon zu viel gesagt, als dass das Gros der irdischen Menschheit darüber
+auch nur ein Jota eines einzigen Gedankens verlieren würde. Wahrheitlich waren es seit eh und je nur einzelne Menschen
+– was auch heute so der Fall ist –, die sich wirklich Gedanken um die Wirklichkeit und deren Wahrheit machen und zu
+verstehen suchen, was in dieser Welt beim Erdling alles schief und verkehrt läuft. Von alters her waren solche Menschen
+jene – deren wirklich herzlich wenige waren und die den Mut aufbrachten, die Wahrheit zu sagen –, die ihren Mut mit dem
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Leben bezahlen mussten. Allein die masslosen Verleumdungen gegen sie genügten den Antagonisten nie, denn diese ruhten nicht eher und stillten ihren Hass gegen die wenigen Rechtschaffenen, die das Wort der Wahrheit erhoben, erst dann,
+wenn sie die Wahrheitsbringer durch die Gerichte mundtot machen oder 180 Centimeter im Erdboden verlochen konnten.
+Das ist das, lieber Freund, was ich zu all dem zu sagen hatte, was heute angefallen ist. Was ich aber letztlich noch sagen
+will: Wenn der Krieg wirklich sehr ernst ist, so müssen trotzdem die ‹Nachforschungen› der sogenannten ‹Kommissare›,
+die den Kriegsverbrechen auf den Grund gehen wollen, als lächerlich bezeichnet werden, denn grundlegend wird nur einseitig ermittelt, nämlich gegen die Angreiferpartei, nicht jedoch wird auch das Ganze der Verteidigungspartei begutachtet,
+die gleichermassen sich schuldig macht.
+
+**Ptaah** Wie üblich habe ich deine langen Ausführungen zur Kenntnis genommen, zu denen ich nur zustimmend sein kann.
+Deine Worte werden jedoch nur von wenigen Erdenmenschen aufgenommen und wirklich gedanklich verarbeitet werden.
+Doch lass uns jetzt von anderen Wichtigkeiten sprechen, denn meine längere Abwesenheit hat einige Versäumnisse gebracht, die ich nun mit dir besprechen muss.
+
+**Billy** Natürlich, doch möchte ich dich noch auf die Corona-Seuche ansprechen. Leider hat es ja auch uns im Center
+erwischt – wohingegen ihr euch aber schützen könnt –, doch hoffe ich, dass wir alle das Ganze gut überstehen. Was ich
+aber fragen wollte: Wie sollen wir uns trotzdem verhalten?
+
+**Ptaah** Wenn ihr das Ganze überstanden habt, dann verhaltet euch wie bisher. Verwendet weiterhin die Atemschutzmasken und lasst euch nicht beirren von dem, was unvernünftigerweise von den Staatsverantwortlichen verantwortungslos
+angeordnet wird, dass das Tragen von Atemschutzmasken und das Abstandhalten nicht mehr erforderlich sei. Achtet dieser
+Anordnungen nicht, denn sie entsprechen nicht dem, was noch immer sein muss.
+
+**Billy** Die FFP2-Atemschutzmasken gehören bei uns bisher zum Gebrauch, wenn wir mit Leuten zusammenkommen, die
+nicht in unserem Haushalt mitleben.
+
+**Ptaah** Das ist richtig so, und das solltet ihr nicht ändern und also alles so beibehalten, wie bisher. Auch wenn alle von
+euch wieder frei sind von dem Corona-Virus, dann ändert nichts an eurer bisherigen Vorsicht-Verhaltensweise. Bleibt beim
+Verwenden der FFP2-Atemschutzmasken, denn diese schützen euch zu 96 bis 98 Prozent vor gefährlichen Corona-Infektionen, wie aber auch vor anderen Erregern, die nicht als harmlos zu bezeichnen sind. Noch ist wirklich nicht die Zeit dafür,
+diese Vorsichtsmassnahme ausser acht zu lassen.
+
+**Billy** Danke, das ist eine klare Antwort. Dann kannst du jetzt loslegen mit dem, was du zu sagen hast.
+
+COPYRIGHT und URHEBERRECHT 2022 bei ‹Billy› Eduard Albert Meier, ‹Freie Interessengemeinschaft Universell›, Semjase Silver Star
+Center, 8495 Schmidrüti, Schweiz. Kein Teil dieses Werkes, keine Photos und sonstige Bildvorlagen, keine Dias, Filme, Videos und keine
+anderen Schriften oder sonstige Materialien usw. dürfen ohne schriftliche Einwilligung des Copyrightinhabers in irgendeiner Form (Photokopie, Mikrofilm oder ein anderes Verfahren), auch nicht für Zwecke der Unterrichtsgestaltung usw., reproduziert oder unter Verwendung elektronischer Systeme verarbeitet, vervielfältigt oder verbreitet werden.
+
+Veröffentlicht auf www.FIGU.org durch:
+‹Freie Interessengemeinschaft Universell›, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+

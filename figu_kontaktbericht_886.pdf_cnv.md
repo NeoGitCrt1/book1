@@ -1,0 +1,1350 @@
+# Gespräch zwischen Ptaah von der plejarischen Föderation und ‹Billy› Eduard Albert Meier, BEAM
+
+## Achthundertsechsundachtzigster Kontakt Mittwoch, 1. Mai 2024 00.04 Uhr
+
+**Billy** Du erscheinst wieder früh, doch sei willkommen, lieber Freund, und sei auch gegrüsst in der frühen Morgenstunde.
+Ausserdem kommst du mir wie geschliffen, denn ich habe einiges, das anfällt und einmal besprochen werden soll.
+
+**Ptaah** Grüss dich, lieber Eduard, mein Freund. Du machst mich wundrig, was fällt denn an?
+
+**Billy** Da habe ich einiges, was nach und nach aufs Tapet gebracht werden soll.
+
+**Ptaah** Obwohl es dir wahrscheinlich zuwider ist, so habe ich aber vorher trotzdem noch etwas zu erwähnen und die eine
+Frage an dich, hinsichtlich des kürzlich Vorgefallenen: Hast du inzwischen auch im ‹Zeitzeichen› alles richtiggestellt bezüglich des Sektierismus dieses Jedaiah Ramnarine alias Jedi Reach, wie das Begehr unseres Gremiums war?
+
+**Billy** Natürlich.
+
+**Ptaah** Gut, denn dies ist sehr wichtig geworden, weil aus der ‹Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre
+des Lebens› keinerlei greifende Religionen und auch keine anderweitigen Sektenwesen entstehen sollen, die weltumgreifend derart auf die Erdenmenschen zu wirken beginnen vermögen, dass daraus ein Glaubenswahn hervorgeht. Durch die
+kürzlich vorgefallenen unerfreulichen Ereignisse des Jedaiah Ramnarine haben wir pflichtgemäss unser Gremium über die
+Machenschaften dieses Mannes informiert, der sich auch Jedi Reach nennt. Er hat eine Sekte mit zahlreichen Anhängern
+gebildet, mit Zuhilfenahme all des Wissens aus dem Vorhandensein der von dir gefertigten Berichte bezüglich der Gespräche mit uns Plejaren. Er hat sich infamerweise nicht nur die Passivmitgliedschaft des FIGU-Vereins erschlichen, sondern den
+Inhalt und das Wissen unserer Gespräche – die du abgerufen und schriftlich wortgetreu jeweils als Gesprächsberichte niedergeschrieben hast – dazu missbraucht, diese gewissenlos und sehr dreist zu seinem niederträchtigen Nutzen gewissenlos
+mit verwerflichen Lügengespinsten und fiesen Betrugsmachenschaften dafür zu nutzen, um sich zum Sektenführer zu erheben. In seiner arglistigen und lügenvollen Weise stellt er sich hoch über uns und dich, wie wir nunmehr ergründet haben,
+weil wir vom Gremium beauftragt wurden, das leidige Vorkommnis abzuklären, das sich ergeben hat.
+
+**Billy** Das wusste ich nicht.
+
+**Ptaah** Das geschah ja auch ohne dein Wissen. Wir haben auch ergründet, dass ihr inzwischen gegen die sektiererischen
+Machenschaften von Ramnarine eingeschritten seid und ihn zudem als Passivmitglied aus dem FIGU-Verein ausgeschlossen
+habt. Dagegen hat er, wie ich sagen will, mit sehr primitiven Lügenbehauptungen, Bauernfängerei, Irreführung, Suggestion,
+mit einer dummen und sehr primitiven Vorspiegelung falscher Tatsachen, wie auch mit Täuschung, Unwahrheit, Unsinn,
+Unwirklichkeit und Betrug die Flucht nach vorn ergriffen und hofft, dass die ihn anbetenden dummen Gläubigen und seine
+sonstigen Anhänger seiner Lügen-Sekte auf seine Lügenzüngigkeit und Lügensucht hereinfallen.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Weitumfassender ist leider zu sagen, dass sich schon in den Anfängen der Kontakte, und zwar schon zur Zeit als Asket zu
+dir kam, Erdenmenschen schamlose Lügereien in die Welt setzten, dass sie mit ‹Ausserirdischen› in Kontakt stünden.
+George Adamski war einer der ersten dieser Weise, den du damals mit Hilfe und im Beisein Askets im Volkshaus in Zürich
+zur Rede gestellt hast, wobei du auch etwa zur gleichen Zeit … Dadurch ergab sich dann, …
+
+**Billy** Das war so, doch sollte nicht weiter darüber gesprochen werden – zumindest so lange nicht, …
+
+**Ptaah** Das ist richtig, denn das Ganze würde bestritten, da denkst du sicher richtig. Es bewies sich ja auch, als du und
+Jacobus … und ihr beide in keiner Weise beachtet wurden, und zwar derart, als wärt ihr völlig Fremde und Unbekannte.
+
+**Billy** Das war so, ja. Wir beide haben seither schon 2- oder 3mal davon gesprochen. Herr Dr. Sloman, der … gut kannte,
+sagte von ihm – Dr. Sloman war ja ein Freund von Ilse von Jacobi, den sie ja eigentlich wie ihren Leibeigenen behandelt hat,
+der sich aber nicht von ihr loslösen konnte –, dass … ein Profiteur sei, dem ich nicht zu viel sagen soll, weil er alles derart
+ummünze, dass es sein eigener Verdienst seiner eigenen ‹Forschungsarbeit› sei. Das war mir aber eigentlich schon damals
+egal, denn ich legte bereits seit meiner Jugend niemals Wert darauf, zu jenen Erdlingen gehören zu wollen, die glauben,
+zuvorderst an der Front und in der Öffentlich stehen zu müssen und als etwas Besonderes zu gelten, wie dies z.B. Regierende, Sportler, Bücherschreibende und Schauspielende usw. tun und meinen, dass sie dadurch etwas Spezielles seien. Und
+wenn ich dies sage, dann ist es mein wahres Denken, meine Gefühle und auch mein Verhalten, und zwar schon von Jugend
+auf, als ich eben noch ein kleiner Junge war und mir meine diesbezügliche Einstellung viel Leid und Schaden gebracht hat.
+Deshalb verlief mein Leben nicht einfach in normalen Bahnen, doch dadurch habe ich sehr viel gelernt, wie dass es im Leben
+schwere Zeiten gibt, gute und schlechte Vorkommnisse und Zustände im Ablauf der Tage und Zeiten, doch dass diese zu
+bewältigen sind, wenn man sich bemüht und das Richtige tut. So habe ich mir selbst immer und fortlaufend den guten Rat
+gegeben, nie und niemals mein Leben zu verschwenden, stets wachsam zu sein und was sich immer Böses und Unrechtes
+gegen mich ergibt, nie und niemals Rache und Vergeltung zu üben. Und so habe ich mich selbst belehrt, wenn nötig die
+Stimme zu erheben, laut oder sehr laut zu werden, oder gar herumzubrüllen, wenn das notwendig wird, doch immer in der
+Weise, dass niemals Wut oder Zorn in mir entsteht und hochkommt, und zwar selbst dann nicht, wenn das Schlimmste
+passiert.
+
+**Ptaah** Das habe ich selbst einmal gehört, nämlich dass du einmal mit Jacobus über … gesprochen hast. Ausserdem weiss
+ich sehr klar, dass deine eben gesagten Worte ehrlich der Wahrheit entsprechen, denn ich habe selbst miterlebt, wie du
+effectiv deine Stimme gegen … zum Gebrüll erhoben hast, jedoch nur Sekunden später in normalem Tonfall mit … gesprochen hast. Und ehrlich gesagt, das habe ich zuvor niemals selbst bei dir erlebt, und ich könnte es selbst auch nicht.
+
+**Billy** Das hast du ja wohl auch nicht nötig, denn ich denke, dass dies bei euch schon lange der Vergangenheit angehört.
+Doch hier habe ich eine Frage aus China von …
+
+**Frage:**
+Plejaren gehen keine Ehen auf rechtlicher Ebene ein, weil sie Probleme verursachen und zu Unfreiheit führen. Ich
+würde diesen Rat befolgen, aber ich habe nicht herausfinden können, warum das so ist. Ich verstehe diese Argumentation nicht. Können Sie sie erklären? Ich denke, eine Erklärung würde dazu führen, dass mehr Menschen diesen Rat
+annehmen.
+
+**Darauf habe ich zu erklären:**
+Eine Ehe sollte zwischen 2 Menschen freiwillig sein und nicht zwangsmässig durch behördlichen Einfluss zustande kommen,
+folglich auch Mann und Frau in dieser Weise zusammen eine Ehe führen, die unter beiden nach eigenem Willen selbständig
+geschlossen und des Rechtens geführt wird. Egal ob dies zweigeschlechtlich oder eingeschlechtlich ist, bzw. lesbisch oder
+homosexuell, denn alle Geschlechter sind gleichberechtigt, weil sie natürlich gegeben sind, folglich es also völlig falsch ist,
+Lesbierismus und Homosexualität zu verunglimpfen.
+
+Und Elisabeth hat die Frage von … ausnehmend sehr gut beantwortet, wobei ich finde, dass ihre Antwort auch in unserem
+jetzigen Gespräch erwähnt werden und ich sie dir vorlesen soll, folgedem sie dann auch im Kontaktbericht aufgeführt wird,
+weil alles sehr lehrreich ist und Aufklärung schafft. Daher also hier ihre Worte:
+
+**Antwort:**
+In einem Ehebündnis, wenn es gut und harmonisch funktionieren soll, ist es sehr wichtig, dass sich beide Partner in
+wertschätzender Gleichwertigkeit sehr respektvoll, aufmerksam und auch liebevoll verhalten.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Die wertschätzende Haltung wird in dieser Weise auch dann absolut strikte beibehalten, wenn Meinungsverschiedenheiten auftreten. Meinungsverschiedenheiten sind ganz normal, da ja jeder Mensch eine eigene einzigartige Persönlichkeit besitzt und daher auch nie nur einer Meinung mit einer anderen Person sein kann, jedoch sollten sie nie in
+Streit ausarten.
+Auf unserer Erde werden die Ehen vielfach leider viel zu unüberlegt und ungeprüft geschlossen. In Wirklichkeit
+braucht es immer Zeit, bis der andere Mensch und zukünftige Partner/in in seinem Wesen erfasst und kennengelernt
+wird.
+Wird das nicht befolgt, ist es vorhersehbar, dass dermassen Unstimmigkeiten auftreten in einer Ehe, dass ein weiteres
+Zusammenleben nicht mehr möglich ist.
+Oftmals treten in einer amtlichen Ehe bei einem Ehepartner Besitzansprüche am anderen zu Tage, was unerfüllbare
+Forderungen und Einengungen für den/die betroffene/n Partner/in nach sich zieht.
+Auch stellt sich bei einer amtlichen Eheschliessung vielfach heraus, dass man sich des anderen zu sicher und daher
+nicht gewillt ist, gute Beziehungsarbeit zu leisten.
+Es kann sich in dieser Weise keine gleichwertige eheliche Partnerschaft entwickeln, die für beide Teile positive evolutive Werte hervorbringt.
+Bei einer Ehe, die auf rechtlichem Wege durch eine amtliche Eheschliessung zustande kommt, ist eine Trennung meistens mit erheblichen Problemen verbunden, auch wenn dies den einzig vernünftigen Schritt bei einer aussichtslosen
+Zerrüttung der Ehe bedeuten würde.
+Dies ist besonders dann der Fall, wenn aus der amtlichen Ehe auch Nachkommen hervorgegangen sind.
+Bei einer amtlichen Ehe ist eine rechtliche Verpflichtung gegeben, sodass diese oftmals wider alle Vernunft zwanghaft
+aufrechterhalten werden muss.
+Das MUSS ist aber für eine gleichberechtigte, gleichwertige und harmonische eheliche Partnerschaft keine gute Voraussetzung, denn es sollte in einem Ehebündnis in Freiwilligkeit, Liebe und Freude gesamthaft alles einhellig geteilt,
+gegeben und angenommen sowie bei Problemen und Schwierigkeiten geholfen und beigestanden werden.
+Bei einer freien Ehe fällt der Zwang einer amtlich-gesetzmässigen Verpflichtung weg.
+Auch die völlig ungerechtfertigten Besitzansprüche an den/die Partner/in kommen in einer freien Ehe nicht vor. Dies
+darum, wie sich jeder der Ehepartner ohne eine amtliche Verpflichtung freiwillig in eine gute Beziehungsarbeit einordnet.
+
+**Billy** Das war einmal das von Elisabeth, und es ist mehr als nur bemerkenswert, wie aufmerksam, gut und selbstdenkend
+sie und überhaupt unsere FIGU-Mitglieder sind und dass sie das wiederzugeben vermögen, was sie über all die Jahrzehnte
+erlernten, verstehen und auch erklären können. Das gilt auch dafür, was Bernadette geschrieben hat bezüglich einer Antwort und Aufklärung des Wahnes, dass sich Menschen angeblich an frühere Leben und ihre damaligen Persönlichkeiten
+erinnern würden. Das kann ja als absolute Seltenheit infolgedem … einmal zutreffen, doch solches geschieht derart selten,
+dass eigentlich nicht darüber zu sprechen ist. Und warum das geschehen kann, das sollte eigentlich nicht erklärt werden,
+denn Selbstsüchtige, Wahnbefallene, Gläubige und sonstige, die etwas Besonderes sein wollen, würden sofort zu phantasieren und lügen sowie zu behaupten beginnen, dass sie unter eine solche Ausnahme fallen würden. Daher ist es gescheiter
+zu schweigen und also das Ganze der absolut seltenen Möglichkeit nicht zu nennen, hingegen dir das vorzulesen, was sich
+als wertvolles Werk von Bernadette ergeben hat, und zwar folgendes:
+
+### Missverständnisse, Fehlinterpretationen und Behauptungen
+Von Bernadette Brand, Schweiz
+
+Ein grundlegendes Missverständnis vieler Interessierter und ‹Konsumenten› der FIGU bezüglich der Schöpfungsenergielehre liegt seit allem Anfang darin, dass sie davon ausgehen, es handle sich dabei um eine Art ‹Unterricht in automatisch-evolutivem Fortschritt› bzw. erwarten sie diesen allein durch die Vermittlung von Wissen, wodurch sie auf
+höhere Evolutionsstufen zu gelangen meinen, ohne das Dargelegte auch wirklich verstehen oder nachvollziehen zu
+müssen. Sie ‹beten› das ‹Gelernte› resp. Gelesene einfach nach und erwarten dann, dass sie quasi ‹von selbst› evolutionieren, ohne weiter etwas dazu beitragen zu müssen. Diese Haltung ist etwa mit der von Seminarteilnehmern zu
+vergleichen, die den grössten Teil des Kurses verschlafen oder sich völlig abwesend von den Vorträgen der Referenten
+berieseln lassen, um dann nach abgeschlossener Lehrveranstaltung anderen mit einem Diplom vor der Nase herumzuwedeln, um ihnen weiszumachen, wie viel in diesem Kurs gelernt wurde. Aus der Erfahrung von Seminarleitern ist
+allerdings festzuhalten, dass in der Regel nicht einmal 10% des vermittelten Wissens ‹mitgenommen› und noch viel
+weniger davon umgesetzt wird.
+Zu dieser Einstellung passt sehr genau die Übersetzung des deutschen Begriffs ‹Lehre› ins englische ‹Teaching›, das
+völlig am eigentlichen Sinn des deutschen Wortes vorbeigeht, dafür aber beispielhaft die Konsumhaltung jener
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+aufzeigt, welche eben ‹unterrichtet› oder einfach ‹ins Bild gesetzt› werden wollen, ohne eine wirkliche Eigenleistung
+erbringen zu müssen.
+Der deutsche Begriff Lehre birgt in sich nämlich noch einen viel tieferen Sinn als den von ‹Unterricht›, nämlich den
+von Kenntnisvermittlung, Ausbildung, Bildung, Übung und den persönlichen praktischen Erwerb von Wissen und Fähigkeiten. Also umreisst der Begriff ‹Lehre› alles andere als eine Konsumhaltung, denn eine Lehre erfordert vom Menschen ein hohes Interesse, effective Initiative und Eigenleistung sowie unablässige Übung, weil nur dadurch die notwendigen Kenntnisse, das Wissen und die Fähigkeiten erworben werden können, die dem Sinn und Zweck einer Lehre
+gerecht werden.
+Bezüglich der ‹Schöpfungsenergielehre› heisst das, dass der sich mit diesem Gebiet befassende Interessierte völlig auf
+sich selbst gestellt, sich in jene Bereiche der Lehre einzuarbeiten hat, die für ihn und seine individuelle Denk- und
+Lebensweise eben wichtig und massgebend sind oder für die er sich einfach interessiert. Er ist darauf angewiesen,
+alles und jedes, was ihm die Lehre vermittelt, selbst zu überdenken und sich gründlich mit dem Material zu befassen.
+Das ihm Dargelegte hat er vollumfänglich zu durchdenken und es anhand seines eigenen Lebens und seiner bisherigen
+Erfahrungen auf seine Richtigkeit und Relevanz zu überprüfen. Dazu gehört, dass er sich damit auseinanderzusetzen
+und zu ergründen hat, in welchem Mass er alles in das eigene Leben integrieren und in die Praxis umsetzen kann, um
+dem eigenen Leben eine positive und fortschrittliche – eben evolutive – Wendung zu geben. Diese aktive Auseinandersetzung mit der Schöpfungsenergielehre schliesst jeglichen Glauben aus und erfordert als erstes, dass der Mensch
+damit beginnt, seine ureigenen Gedanken aufzuspüren, sie zu erkennen und ihnen mehr zu vertrauen als allem, was
+ihm gesagt und eingeredet wird. Er wird mühsam und manchmal auch leidvoll zu lernen haben, zu unterscheiden
+zwischen religiösem und weltlichem Glauben und dem, was sich ihm als nüchterne und nackte Tatsache – also als
+Wahrheit – zeigt. Zuerst einmal ist es natürlich desillusionierend, wenig erfreulich und oft schmerzhaft, wenn bequemer Glaube und Phantasien, Vorstellungen, Illusionen oder Einbildungen erkannt, zerpflückt, relativiert und beiseitegeschoben werden sollen, hinter denen sich dann in der Regel eine völlig andere Wahrheit zeigt, als das, was ursprünglich angenommen wurde. Allerdings ist es aber auch so, dass mit wachsender Selbständigkeit des Denkens die
+Unbestechlichkeit wächst, ebenso wie sich innere Sicherheit und Gelassenheit einstellen, belastende Furchtsamkeit
+schwindet und ein wachsendes Selbstvertrauen dem Menschen das Leben und den Umgang mit der Umwelt leichter
+macht. Letztlich führt dieser neue Denkprozess, bei dem sich der Mensch völlig auf das eigene Denken verlässt und
+sich nichts mehr einreden oder vormachen lässt, dazu, dass er sich selbst dadurch befähigt, in grösstmöglichem Umfang wirklich sich selbst und wahrer Mensch zu sein.
+Ergebnis der Miss- und Fehlinterpretation der Schöpfungsenergielehre und der falschen Annahme, dass Lesen auch
+schon Verstehen bedeutet, ist dann unter anderem die Neigung gewisser Interessierter – die zudem meist noch esoterischem Unsinn und phantasievollen, unrealistischen Weltbildern verfallen sind oder unter Drogeneinfluss und
+Wahnerkrankungen leiden – zu behaupten, dass sie allein durch die Lektüre der Schöpfungsenergielehre auf ‹höhere
+Evolutionsstufen› gelangt seien und dadurch alle anderen Menschen weit überflügelt hätten. Als ‹Beweis› für ihre
+haltlosen Behauptungen prahlen sie dann noch damit, welche berühmten, geschichtlich wichtigen und relevanten
+Persönlichkeiten sie in vergangenen Leben gewesen seien. Selbstverständlich handelt es sich dabei niemals nur um
+absolut völlig normale, unbekannte und unspektakuläre Menschen aus dem gewöhnlichen Volk, die keine ‹Geschichte
+geschrieben› haben und deren ‹grosse Namen› in keinen Überlieferungen erwähnt werden. Stets dreht es sich bei den
+genannten Namen um längst verflossene Persönlichkeiten, die nach den völlig falschen, unrealistischen und unlogischen irdischen Massstäben als ‹gross› bezeichnet werden, obwohl sie in ihrem Leben nichts dazu beitrugen, wirklichen Frieden und Freiheit zu den Menschen zu bringen und diese höhere oder hohe Werte als erstrebenswert erkennen zu lassen. In Tat und Wahrheit und bei klarem Licht betrachtet, handelt es sich also bei diesen angeblichen ‹Vorgängerpersönlichkeiten› meist um Eroberer, wie z.B. Alexander der Grosse oder andere Herrscher, Könige, Kaiser und
+sonstige ‹Berühmtheiten›, die aber nichts anderes waren als Machtmenschen, Kriminelle, Despoten, Menschheitsverbrecher oder sonstige Versager, die bezüglich der Erfüllung der schöpferisch-natürlichen Gesetze und Gebote sowie
+von wahrer Menschlichkeit keine Ahnung hatten, sondern ihre Umgebung und ihre Völker terrorisierten und ausbeuteten, versklavten und ins Elend trieben. Die Berufung auf solche Persönlichkeiten aus der Vergangenheit zeigt deutlich auf, ‹wessen Geistes Kinder› jene sind, welche solchen Unsinn behaupten, denn sie sind einer Denkweise verfallen,
+die allein auf Macht, weltliche Grösse, angebliche Wichtigkeit sowie auf Bekanntheit und Berühmtheit ausgerichtet ist
+und die von Selbstüberhöhung und Selbstbeweihräucherung nur so strotzt, weil es ihnen nicht genügt, einfach ein
+‹wahrer Mensch› und ein einfacher ‹Pinggel› zu sein, was sie in ihrem falschen Weltbild a priori bereits als minderwertig und verachtenswert betrachten.
+In Tat und Wahrheit verhält es sich allerdings so, dass Menschen, die behaupten, die Nachfolgepersönlichkeit dieser
+oder jener ‹Berühmtheit› der irdischen Geschichte zu sein, damit beweisen, dass sie einerseits nicht die geringste
+Ahnung von den ‹Wiederbelebungsgesetzen› resp. den Gesetzen des Belebens einer völlig neuen Persönlichkeit durch
+die Schöpfungsenergie haben, und andererseits entlarven sie sich damit selbst als Lügner und Betrüger. Tatsache ist,
+dass sich kein Mensch jemals damit brüsten kann, die ‹Nachfolge-Persönlichkeit› dieser oder jener ‹Vorgänger-Persönlichkeit› zu sein, denn mit dem Tod endet und vergeht jede Persönlichkeit und löst sich einfach auf, d.h. dass die
+Schöpfungslebensenergie beim Tod aus dem Körper entweicht und sich wieder zurück in die Schöpfungsenergie
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+ebene einordnet, wo sie das im materiellen Leben der Persönlichkeit Erlernte selbstverarbeitend verwertet, während
+der Zeit bis sie wieder eine materielle Persönlichkeit belebt und auch deren Bewusstsein bildet. Was bei der Selbstverarbeitung und Wartezeit der Schöpfungslebensenergie in der Schöpfungsenergieebene verbleibt, ist allein das
+effective Wissen, das sich der Mensch resp. die Persönlichkeit erarbeitet hat und das durch die Schöpfungsenergieform energetisch gespeichert wurde. Folglich ist es so, dass die Persönlichkeit jedes Menschen absolut und für alle
+Zeiten und Dimensionen in aller Dauer der Existenz der Schöpfung absolut einmalig und einzigartig ist und bleibt.
+Keine Persönlichkeit kann sich wiederholen oder auf einer anderen aufbauen, weil ihr Zustandekommen das Ergebnis
+des momentanen evolutiven Zustandes ist, der auf dem realistischen Wissen fundiert, das die Schöpfungsenergieform
+während unzähligen menschlichen Leben gespeichert hat. Der evolutive Zustand des Menschen verändert sich jedoch
+sekündlich, minütlich, stündlich, täglich, wöchentlich und ununterbrochen – wenn auch nur in minimalsten Werten –
+durch alles, was der Mensch lernt und erfährt, was ihm begegnet, was er sieht, wahrnimmt, hört, denkt, fühlt und
+erlebt oder sich erträumt. Dadurch verändert sich aber auch die Persönlichkeit, die niemals statisch, sondern immer
+dynamisch ist, was eben ausschliesst, dass sie sich jemals wiederholen kann.
+Im aktiven Leben des Menschen greift sein Unterbewusstsein Wissensimpulse auf, die durch seine Schöpfungsenergieform freigegeben werden und die der Bewusstseinskomplex des Menschen dann unter Umständen aufnimmt und
+weiterverwertet, indem er damit zuerst unbewusst und später bewusst zu arbeiten beginnt, wodurch er sein Wissen
+vermehrt und evolutiv voranschreitet. Dabei spielt es für den Menschen absolut keine Rolle, woher dieses Wissen
+stammt oder wer es in längst vergangenen Zeiten oder erst kürzlich erworben und sich erarbeitet hat. Wichtig ist
+allein, dass es vorhanden ist.
+Wenn nun in den Kontaktberichten oder in anderen Schriften die Rede davon ist, welche heute im Leben stehenden
+Menschen das ‹Ergebnis› früherer, längst vergangener Persönlichkeiten sind, dann sind das absolut einmalige Informationen, die keinen noch so hochstehenden oder weitentwickelten, hochevolutionierten menschlichen Lebensformen zugänglich sind, oder die von diesen herausgefunden oder entschlüsselt werden könnten, denn ihnen allen – egal
+auf welcher hohen Evolutionsstufe sie sich befinden – ist der Zugriff auf die Wissensspeicher von anderen – als nur
+der eigenen ‹Speicherbank› – absolut verwehrt und unmöglich. Solche Zusammenhänge können erst von der viel
+hochstehenderen, absolut neutralen rein-schöpfungsenergetischen Ebene ‹Arahat Athersata› entschlüsselt und freigegeben werden.
+Auf der gegenwärtigen, noch recht niedrigen Evolutionsstufe der Erdenmenschen ist es noch nicht einmal möglich,
+dass bewusst auf den eigenen Wissensspeicher zugegriffen werden kann, denn bis zu einem gewissen hohen Evolutionsgrad ist der direkte, bewusste Zugriff auf den persönlichen Wissensspeicher absolut ausgeschlossen und völlig
+unmöglich. Wissen, das sich Menschen früherer Zeiten erarbeitet haben und das durch die ‹gemeinsame› Schöpfungsenergieform in deren eigenen ‹Wissensspeicher› eingelagert wurde, bewusst abzurufen und dessen Quelle zu ergründen, ist hochanspruchsvoll und kann unter Umständen so belastend sein, dass das noch wenig geschulte und quasi
+‹unterentwickelte› Bewusstsein von heutigen Erdenmenschen einfach zusammenbrechen würde, womit dieses für
+weitere evolutive Schritte oder Entwicklungen absolut unbrauchbar und unzugänglich würde. Da der Fokus aber auf
+Weiterentwicklung bzw. Evolution liegt, wird das menschliche Bewusstsein durch schöpferisch-natürliche Vorgänge
+solange geschützt, bis es die notwendige ‹Reife› hat, dass es gefahrlos offen bewusst auf gewisse ‹Wissensquellen›
+zugreifen und sich diese nutzbar machen kann. Bis vorerst einzelne Erdenmenschen so weit entwickelt sein werden,
+dass sie sich selbst befähigen können, den ‹Wissensspeicher› ihrer Evolutionslinie bewusst anzuzapfen und gezielt
+Wissen und Informationen daraus zu lösen und es evolutiv neu zu verwerten, werden noch unzählige Belebungen
+neuer Persönlichkeiten notwendig sein und Tausende, wenn nicht gar Millionen von Jahren in die Vergangenheit stürzen.
+Ergo ist es bereits anhand dieser unbeholfenen und eher marginalen Erklärungen ein Leichtes zu beurteilen, ob die
+Behauptungen von Menschen richtig sein können, die sich darauf berufen, dass sie in früheren Leben diese oder jene
+‹Berühmtheit› gewesen seien. Das Fazit kann nur eines sein: Solche Behauptungen sind falsch und wahrheitsmässig
+schlicht unmöglich, egal welchen Hintergrund sie haben. Und Menschen, die solche Behauptungen aufstellen, sind
+Lügner, Betrüger, Scharlatane, Schizophrene, Wahnkranke oder Drogengeschädigte, aber mit Sicherheit keine höher
+entwickelte ‹Lehrer›, ‹Gurus›, ‹Meister› oder gar ‹am Ende ihrer Evolution› Angelangte, denn die Evolution endet niemals, sondern schreitet immer weiter voran – unaufhaltsam und unendlich.
+
+**Ptaah** Es ist wirklich sehr bemerkenswert, wie exakt klar und deutlich Elisabeth und Bernadette die beiden Thematiken
+schriftlich erklärend ausgeführt haben, und wirklich unzweifelhaft zu verstehen ist, was sie erklären.
+
+**Billy** Das kann man wohl laut sagen, das ist tatsächlich so. Aber wenn wir schon dabei sind: Sieh hier diesen Brief, das
+schreibt …, dass im Irak kürzlich idiotischerweise die Homosexualität unter Strafe gestellt wurde, wie dies anderswo ebenfalls ist und gar die Todesstrafe darauf steht, wie in Saudi-Arabien, in Nigeria und Somalia, dann auch in Persien resp. im
+Iran und im Sudan. Auch in den Vereinigten Arabischen Emiraten droht die Todesstrafe, in Afghanistan, Pakistan, Mauretanien und Katar. Heterosexuelle Menschen sind ‹natürlich› homophob, die also eine Feindseligkeit gegenüber sexuell
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Andersgeartete resp. eine andere sexuelle Orientierung haben, die durch die Einflüsse resp. Indoktrination der Mitmenschen – Eltern, Bekannte, Freunde und Medien usw. – die homosexuell oder lesbisch sind.
+Diese abneigenden Menschen sind also homophob eingestellt, sie sind also Homophobische, die also ablehnend bis feindlich gegenüber homosexuellen und lesbischen Menschen sind.
+Also sind sie nur jene, welche aktuell Homosexualität und Lesbierismus ekelhaft finden und sich das Ganze als absolut
+unmoralisch einbilden. Und gesagt sei, wenn sich Lesben und Homosexuelle in der Öffentlichkeit küssen, dann ist das völlig
+normal. Das Gros der Heteros ist tatsächlich homophob, und nur, weil es in einer Gesellschaft aufwächst oder aufgewachsen ist, die effectiv rundum homophob ist. Also sind Heteros effectiv homophob, und zwar darum, weil die Welt resp. die
+Menschheit sie zu Heteros mit völligem Unverstand gemacht hat.
+Die Schweiz ist zu etwa zu 50% heterohomophobisch, also abneigend und gespalten gegenüber Lesbierismus und Homosexualität, folglich bezüglich einer Beurteilung von etwa 50 zu 50 gesprochen werden kann. Die 50% Heterohomophobischen
+sind also leider gewaltig fehlorientiert, denn offenbar wissen sie nicht und haben keinerlei Ahnung davon, dass sowohl die
+Homosexualität wie auch der Lesbierismus normal und angeboren sind, wie auch nicht, dass allgemein der Mensch von
+Natur aus derart geartet ist, dass er sich normalerweise der einen oder anderen Art zuwenden kann, und zwar immer nach
+der, zu der er sich hingezogen und gedrängt fühlt.
+Es ist ein Gesetz und Tun sowie ein Strafen – vielfach religiös-sektiererisch, wie in den Ländern, wo die Todesstrafe dafürsteht – gegen die Homosexualität und den Lesbierismus völlig krankhaft idiotisch und verbrecherisch, und zwar darum, weil
+Homosexualität und Lesbierismus angeboren sind – was ja schon bei der Frage von China von mir angesprochen wurde
+bezüglich einer Ehe. Es sind diese Formen der menschlichen Sexualität völlig normal-natürlich und also demgemäss nicht
+abartig, nicht verwerflich und folglich auch nicht etwas, das zu verbieten wäre. Grundsätzlich habe ich das schon seit Nokodemion in meinem Wissen der Schöpfungslebensenergie. Es ist auch etwas, wovon Sfath bezüglich der menschlichen
+Sexualität resp. der persönlichen Sexualprägung bei entsprechenden Gesprächen oftmals die Tatsache erwähnte, dass
+diese in jedem Lebewesen derart vorgegeben ist, dass diese derart wirkt, dass sie verhaltensmässig in der einen oder anderen Weise artet. Also ist jede Sexualitätsform natürlich vorgegeben, so, dass der Mensch – wie auch jedes Tier, Getier
+und jede sonstige Lebensform – alle Formen des Sexualverhaltens resp. die Formen der Sexualitätsausübung naturgegeben
+in sich trägt und im Leben ausübt. So sind z.B. sowohl beim Menschen, wie auch bei allen anderen Lebensformen, die
+verschiedenen Formen der Ausübung der Sexualitätshandlungsweisen natürlich gegeben, wie eben die Art oder Form der
+sogenannten Heterosexualität, des Lesbierismus, der Homosexualität, dann der Bisexualität, des Ipsismus resp. der Selbstbefriedigung, wie aber auch der Zoophilie, also Sex mit Tieren und anderen Lebensformen, was weltweit sehr verbreitet
+ist.
+Weiter will ich auch einige wenige der ausnehmend vielen abartigen und völlig ausgearteten sexuellen Verhaltensweisenformen nennen, die einem Menschen jedoch in absolut keiner Weise natürlich angeboren sind, sondern die er sich krankhaft-verkommend-abartig aneignet und auslebt. Dies ist z.B. der Exhibitionismus (Entblössen der Genitalien gegenüber
+nichtsahnenden Fremden – meistens durch Männer), dann Urophilie (Vorliebe sexueller Weise für Urin), wie auch Koprophilie (Sexuallustgewinn durch menschliche Ausscheidung von Kot) Autonepiophilie (Sexualhandlung mit Babykleidung und
+Windeln) usw., wobei die Palette dieser kurzen Auswahl abartiger sexueller Praktiken jedoch sehr vielfältig ist und eigentliche keine Grenzen kennt.
+
+**Ptaah** Solcherlei Ausartungen sind uns Plejaren unbekannt, jedoch die Formen der Sexualprägung natürlicher Form, wie
+du es nennst, sehr wohl.
+
+**Billy** Dann ist bezüglich dieses Themas weiter nichts mehr zu sagen, folglich ich diese Brieffrage hier noch vorbringen
+will, da Frau … aus den Niederlanden fragt, warum denn die Kontaktberichte immer mit einem Datum versehen sind, das
+eigentlich einen Tag und eine Zeit angibt, die ja nicht der Wirklichkeit entspreche, wenn wir unsere Gespräche zeitverschoben und auch tageverschoben führen, wie dies eben einmal erwähnt wurde.
+
+**Ptaah** Dazu denke ich, dass du das selbst erklären kannst und ich mich diesbezüglich einer Antwort enthalte.
+
+**Billy** Aha – kneifen, das ist ja sonst nicht deine Art.
+
+**Ptaah** Kontakte finden nur zeitversetzt und ortsversetzt statt, um sie derweise geheimzuhalten und selbst unsichtbar zu
+bleiben, weil wir in jeder Art und Weise von Erdenmenschen weder eruiert noch gesichtet werden sollen, wie unser Gremium ausdrücklich anweist. Das ist alles, was ich sagen will, denn alles, was sich jeweils ergibt, das sollst du …
+
+**Billy** … wenigstens etwas. – Gut, dann will ich versuchen, das Ganze einmal klarzulegen: Unsere Leute hier im Center
+erleben oft in verschiedenster Weise mit und können bezeugen, dass ich von euch gerufen werde, wie z.B., dass ihr vom
+Büro aus mich per Telephon ruft, wenn Eva oder ich nicht in den Büros sind. Dies eben dann, wenn ich nicht allein, sondern
+mit jemandem in der Stube oder in der Küche bei Gesprächen bin. Dies ist die eine Art, um mich zu rufen, während anderweitig, wenn ich mit jemandem im Büro ein Gespräch führe oder so, dann rumort ihr in Evas Büro herum, dass ich nachsehe
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+und jemand von euch dort finde, folglich ich natürlich die Gesprächsperson in meinem Büro wegschicken muss. Beliebt von
+euch ist ja auch, dass ihr die Eingangstür von Evas Büro öffnet und diese dann zuknallt, so ich natürlich nachschaue und
+jemand von euch draussen finde, der darauf wartet, damit ich mein Büro wieder ‹freimache›. Diese Weise habt ihr ja gewählt, weil ich durch meinen erlittenen Hirnschlag nicht mehr so gut dazu fähig bin, telepathisch zu reagieren, doch funktioniert es ja auch so.
+Nun, das ist einmal das eine, dann kommen die Gespräche mit euch, und zwar jene, die ich dann abrufe und niederschreibe,
+und diese sind es, die zeitversetzt und ortsversetzt sind, denn nur sehr wenige und kurzzeitige finden in meinem Büro statt,
+denn in der Regel wird alles zeitversetzt und ortsversetzt gemacht und zwar eben aus Sicherheitsgründen, dass nicht plötzlich und unverhofft jemand erscheinen und euch beharmen kann, w…
+
+**Ptaah** … das wäre für uns …
+
+**Billy** Das weiss ich ja, weshalb ich immer die Türen zu meinem Büro verriegle und kontrolliere, dass sich niemand im
+Raum versteckt, wie mir schon Semjase aufgetragen hat. Nun, dass alles in der Weise geschieht, dass die Kontaktgespräche
+über Tage und Wochen zeitversetzt nicht im Büro und also zu Zeiten stattfinden, die schon Tage oder Wochen in der Vergangenheit waren, soll ich das nun wirklich erklären?
+
+**Ptaah** Das soll nun sein, ja, denn es kann dadurch kein Schaden entstehen, sondern …
+
+**Billy** … vielleicht kann es auch verhindern, dass nachspioniert wird, was ja schon damals geschehen ist, als Semjase
+deshalb beinahe ihr Leben einbüsste und folgedem der Weg gefunden wurde, die Kontaktgespräche und auch eure sonstigen Besuche zeitverschoben sowie auch ortsverschoben durchzuführen. Auch die von … heimlich installierten Abhörgeräte,
+die er in meinem Büro angebracht hatte, wurden daher ebenso nutzlos, wie dass er sich im Leerraum des grossen Möbels
+versteckte, wo ich ihn entdeckte und rausschmiss und er dann abhaute und niemals wiederkam.
+
+**Ptaah** Das ist mir sehr gut bekannt, denn mit Quetzal zusammen …
+
+**Billy** Ja, aber das muss nicht unbedingt bekannt werden, denn …
+
+**Ptaah** Natürlich nicht.
+
+**Billy** Gut, dann ist noch folgendes erklärend zu sagen: Die Kontaktgespräche finden natürlich richtigerweise an dem Tag
+und zu der Zeit der Gegenwart statt, wie ich diese auch korrekt deklariere und angebe, und zwar eben auch dann, wenn
+wir für diese Tage oder Wochen in die Zeiten der Vergangenheit gehen. Folglich spielt es also keine Rolle, und es kommt
+kein Betrug vor, denn an dem Tag und zu der Zeit, die von mir angegeben werden, ist das der Gesprächsmoment, und zwar
+auch dann, wenn um diesen zu pflegen in einen Tag und eine Zeit der Vergangenheit zurückgegangen wird. Anderseits sind
+die Kontakte auch oft ortsverschoben, da ihr mich ins Strahlschiff bringt oder wir irgendwo draussen sitzen, irgendwo weit
+weg im freien Land oder wenn wir in einem Wald herumgehen. Dabei ist jedoch immer eine Verbindung zu meinem Büro
+in der Art und Weise gegeben, dass ich sehen kann, was in diesem vorsichgeht und läuft, wobei ich gar das Telephon fernbedienen kann, ohne dass ich im Büro anwesend bin. Eure Technik erlaubt mir das, denn diese ist ja gegenüber der irdischprimitiven haushoch überlegen. Nur dafür gibt es leider keine Lösung, dass ich zu Evas Büroeingangstüre gehen kann, wenn
+dort jemand läutet oder gar dagegenpoltert, was ich ja auch höre. Wenn ich zur Tür gehen wollte, dann wäre die Möglichkeit nur die, dass ihr mich jeweils dafür ins Büro und in die Gegenwartszeit zurückbringen würdet.
+
+**Ptaah** Du hast alles wirklich gut und verständlich erklärt.
+
+**Billy** Das hoffe ich, denn ich möchte nicht nochmals das Ganze aufgreifen, um es nochmals zu erklären. Und du denkst,
+dass das wirklich notwendig war?
+
+**Ptaah** Das war es wohl, denn es wurde ja danach gefragt, wobei auch nichts zu verheimlichen ist. Doch wovon ich jetzt
+zu sprechen habe, ist zuerst folgendes: Auch zur Zeit als meine Tochter Semjase noch persönlich die Verbindung zu dir
+pflegte, ehe durch die Unbedachtheit von … der Unfall erfolgte und Semjase ihre Aufgabe nicht mehr erfüllen konnte, da
+ergab sich schon – und davon will ich jetzt noch speziell reden –, dass schon früh von verantwortungslosen Erdenmenschen
+bösartig mit dem Verbreiten von Lügenbehauptungen über dich, wie aber auch angebliche Verbindungen mit uns Plejaren
+und schlimme Betrügereien gebildet wurden, deren Urheber und Urheberinnen behaupteten, dass sie mit uns in irgendeiner Weise in Verbindung stünden. Es wurde gar behauptet, dass bestimmte Personen ‹Abgesandte› oder gar selbst irgendwelche Wesen von den ‹Plejadengestirnen› seien, was wir aber schon vorgängig wussten und deshalb diesen Lügen und
+Betrügereien dadurch vorbeugten, dass wir unsere wahre Herkunft verheimlichten und nur etwas verschleiert nannten.
+Das ergab sich derart, dass wir erstlich berechnend durch dich wohlbewusst fälschlich proklamieren liessen, dass wir von
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+den Plejadengestirnen kommen würden, was ja soweit der Wahrheit und nicht einer Lüge entsprach. Dies, weil unser Herkommen zur Erde effectiv aus den Gestirnsgebilden der Plejaden erfolgte, die unser Ausgangspunkt in diesem Kosmos waren, um zur Erde zu gelangen, was sich inzwischen – seit damals – jedoch geändert hat, weil wir durch die Technik der
+Sonaer aus unserem ANKAR-Universum direkt zur Erde gelangen können. Also wurde von uns gesagt und durch dich proklamiert – weil wir schon vorgängig wussten, dass betrügende Erdenmenschen in Erscheinung treten und behaupten werden, dass sie mit uns ‹Plejadiern› in direkter Verbindung stehen würden –, dass wir von den Plejadengestirnen herkommen
+würden. Das ergab, dass die Lügen und Betrügereien aufgedeckt wurden, die sich auch tatsächlich dieserart mehrfach derweise ergaben, dass derartige Behauptungen aufkamen, dass Erdenmenschen in indirekter channelingartiger oder direkter
+persönlicher Weise usw. mit uns in Verbindung stehen würden. Dies ergab sich insbesondere von Amerika aus, wie auch
+von Kanada her, wie aber ebenso in Deutschland. …
+
+**Billy** … ja, und sogar in Kanada einer mit Doktortitel, in Amerika durch den Betrüger aus Florida, der durch die Welt
+tingelte, mit seinen Lügen ein Vermögen ergaunerte und in Deutschland einen Fürstentitel kaufen konnte, und zwar mit
+einer seinen Lügen glaubenden Frau aus der Schweiz zusammen, einer Graubündnerin. Gegen all diese Lügner und Lügnerinnen habe ich selbst nie gerichtlich etwas unternommen, und zwar nicht das geringste, denn ich wusste immer, dass ich
+keine Chance bekommen, sondern immer verlieren würde, wie es schon mein Leben lang so ging. Also habe ich nie etwas
+unternommen, und gegen Lügen und andere Angriffigkeiten gegen mich hatte ich sowieso nie die geringste Chance, und
+so machte ich immer ‹Letzter›. Ausserdem bin ich nicht erpicht darauf, an vordester Front zu stehen und mich zur Schau zu
+tragen und mich bewundern zu lassen, denn das sollen jene tun, die des Glaubens sind, ihr Konterfei sei wichtig, um in der
+Öffentlichkeit zu prangen. Meinerseits mache ich mir nichts daraus, sondern widme mich meiner Arbeit und trete nur dort
+in Erscheinung, weil es notwendig ist, wie das z.B. erforderlich war, als ihr mir nahelegtet, dass der Film ‹Contact› von den
+Amerikanern, mit Japanern sowie mit Mexikanern gedreht wurde. Dass ich hie und da einmal privat abgelichtet werde, das
+lässt sich leider nicht vermeiden, doch drücke ich mich da so gut es geht.
+Nun, das ist ja nicht das eigentliche Thema, denn da war noch die Frau aus München, eine Wahrsagerin und einige andere
+mehr, wie z.B. …, der Mann in Genf mit seiner Sekte, die er aufbaute und sich mit deren Gläubigen dann nach Frankreich
+absetzte. Gegen diesen Betrüger und Sektierer klagten ja dann Victor und Adela und strengten ein Gerichtsverfahren an,
+dies, während Guido gegen den Betrüger aus Florida gerichtlich vorging, wobei ich allerdings den Kopf hinzuhalten hatte,
+denn es ging ja schliesslich um die Sache meiner Mission. Die Gerichtsverfahren wurden aber derart geführt, dass meine
+Einwände und Erklärungen nicht akzeptiert und einfach abgeschmettert und ich verurteilt wurde, und zwar in der Weise,
+dass wenn ich nur den Namen der Betrüger nenne oder sagen würde, dass deren Angaben nur Lügen seien, dass ich dafür
+bestraft würde. Aus Deutschland, wo sich der Mann aus Florida als Fürst niedergelassen hatte, wurde mir vom Gericht
+angedroht, dass ich nur schon für die Nennung des Namens des Betrügers bereits 500.– D-Mark Busse zu bezahlen hätte.
+Adela und Victor bezahlten für diesen Prozess – wovon ich ihnen abgeraten hatte – runde 9000.– D-Mark. Für den Betrüger
+aus Genf, der dann nach Frankreich abgewandert ist, und gegen den auch Adela und Viktor einen Prozess anrissen, hatte
+ich letztendlich einige tausend Franken Strafe zu zahlen. Am Prozess konnte ich selbst nicht teilnehmen, weil dieser – wie
+in Deutschland – ohne mich geführt wurde.
+Guido stoppte den Gerichtsprozess wieder, den er privat und zusammen mit einem Rechtsanwalt gegen die Betrügerin in
+München führte, doch erst dann, als die Rechnungshonorare für den Anwalt auf über 30‘000.– D-Mark anstiegen, da erst
+beendete Guido das Ganze und hörte auf mich, dass er doch einfach die Lügnerin lügen lassen soll. Das Ganze führte
+schliesslich dazu, dass von der FIGU aus nie etwas unternommen wurde, um gegen Lügner und Betrüger vorzugehen, die
+sich erdreisteten, die Kontaktberichte zu missbrauchen und auch zu behaupten, dass sie mit euch Plejaren in Kontakt stünden, und selbst herbeorderte oder durch spezielle Umstände hier auf der Erde geborene Plejaren seien. Und dass in all der
+Zeit unsere Gespräche – die ihr Plejaren und ich führen und von denen ich jeweils einige abrufe und niederschreibe –
+genommen und gefälscht werden, das ist euch und mir ja bekannt, wie auch, dass die Fälschungen benutzt werden, um
+Gruppen zu bilden und in diesen durch Lug und Betrug eigene Verbindungen mit euch Plejaren zu behaupten. Doch wenn
+ich daran denke, was ich mit Sfath alles gesehen und erlebt habe bezüglich Fälschungen, da habe ich es schon damals als
+Junge aufgegeben, etwas als Original anzuerkennen, was mir als solches präsentiert wird. Durch Sfath habe ich gelernt,
+gesehen und erlebt, dass die Welt durchwegs nach Strich und Faden belogen und betrogen wird, weil nämlich schon seit
+alters her alles und jedes gefälscht wird und auf dem Erdenrund wohl mehr Fälschungen aller Art existieren, als wahrheitlich
+Originale vorhanden sind. Gegenstände und Erfindungen, Gemälde, Schriften und Bücher wurden in der neueren Zeit der
+letzten 1000 Jahre ganz besonders gefälscht. Schon vor der Antike war nichts sicher vor Fälschungen, nämlich so, dass es
+nachgemacht oder sonstwie gefälscht und als Original oder ‹neue Erfindung› deklariert worden wäre. Das hat sich aber bis
+heute so erhalten, folglich existieren heutzutage auf der ganzen Welt rundum mehr Fälschungen jeder Art, also auch Nachahmungen sowie ‹neue› Erfindungen von bereits vor Jahrhunderten oder gar Jahrtausenden existierten uralten Erfindungen. Davon will ich später jedoch noch mehr sagen, denn mit Sfath zusammen und durch meine offenen Augen sowie durch
+die Hilfe Askets habe ich diesbezüglich viel gesehen und erlebt, dass ich mich deswegen nicht aufrege, dass jetzt dieser
+Ramnarine lügnerisch, betrügerisch sowie sektiererisch herumwerkelt und behauptet, mit euch in Kontakt zu stehen. Was
+dieser Ramnarine sich mit seinen unverschämten Lügen und Betrügereien leistet, das schlägt zwar dem Fass den Boden
+raus, doch denke ich, dass es nicht des Wertes ist, sich weiter damit zu befassen. Über die Fälscherei, die seit alters her auf
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+der Welt grassiert, will ich dann doch noch einiges sagen, weil rundum erdenweit eben wohl mehr Fälschungen existieren
+als eben Originale.
+
+**Ptaah** Du fandest ja schon in deiner Jugend nicht des Wertes, wie du sagst, dich damit zu befassen und dich dem entgegenzusetzen, was dir an Ungerechtem und Bösem angetan wurde, folglich dich eine grössere Anzahl Sektenmitglieder, wie
+auch Frau Horat und Lehrer Frei böse verprügeln und verleumden konnten. Und woraus sich ergab, dass auch verschiedene
+Mitglieder der Behörden der Gemeinde und des Kantons, wie auch verschiedentlich gar Polizeibeamte der Gemeinde und
+anderer Orte dich verleumdeten und verschiedentlich in Anstalten und auch in Gefängnisse steckten und dich auch fremdplazierten, da ha…
+
+**Billy** … stopp, stopp, das gehört nicht daher, und ich werde es auch nicht abrufen und auch nicht niederschreiben.
+
+**Ptaah Alles ist aber zu Unrecht und durch Fälschungen der Tatsachen geschehen, weil du dich gegen das Sektierertum**
+aufgelehnt hast, zu dem dich Frau Horat und Lehrer Frei zwingen wollten, was einmal gesagt werden soll, damit aufgezeigt
+wird, welches Unrecht dir angetan wurde und zu welchen falschen und hinterhältigen Machenschaften gewisse Erdenmenschen fähig sind, wenn sie als Behördenmitglieder oder Polizei plötzlich Macht haben und diese bedenkenlos niederträchtig
+gegen jene anwenden, die ihnen nicht …
+
+**Billy** … nicht in den Kram passen, wie es mir geschehen ist.
+
+**Ptaah** Das denke ich, ja. – Und ich will, dass das, was wir eben gesprochen haben, von dir abgerufen und niedergeschrieben wird. Widerreden hat keinen Sinn.
+
+**Billy** Das will ich wirklich nicht.
+
+**Ptaah** Darüber werden wir noch sprechen.
+
+**Billy** – – Das ist wohl nicht nötig, denn ich denke, dass ich wirklich das Gesagte nicht niederschreibe und es daher beim
+Abrufen unseres Gespräches einfach weglassen werde.
+
+**Ptaah** Darüber werden wir noch reden – wie gesagt.
+
+**Billy** Dein Wille geschehe, doch ich denke, das …
+
+**Ptaah** Du wirst dich umbesinnen, denn …
+
+**Billy** … da werden wir wahrscheinlich nicht einig. – Was ich jetzt aber wieder zur Sprache bringen will ist das, dass die
+Erdlinge einfach nicht begreifen wollen, dass etwas zu tun ist, dass sich das CO2 in der Atmosphäre verdünnt. Bei Sfath habe
+ich gelernt, dass durch das Anlegen von kleinen und grossen Biotopen und das Begrünen des Landes mit Bäumen, Sträuchern und Pflanzen, wozu viele Blumen gehören, CO2 aus der Atmosphäre aufgenommen wird und diese so entlastet.
+Insbesondere sind es dabei Pflanzen, die unwissende Idioten sogar in der Regierung – nebst Organisationen – zum Anbau
+verbieten, weil diese in unseren Gebieten momentan nicht heimisch sind. Dass diese aber früher einmal klimabedingt hier
+waren und zukünftig mit Bestimmtheit wieder hier sein werden, das wird absolut nicht in Betracht gezogen. Und dass ausgerechnet viele dieser Pflanzen sehr wertvoll sind und hier nicht nur gedeihen, sondern wahre grosse Absorbierer von CO2
+sind und dadurch die Atmosphäre von diesem Giftgas zu entlasten helfen, das wissen die Idioten der sogenannten Neophytenfeinde nicht, offenbar auch der Bundesrat in der Schweiz nicht, der in Bern am 1.3.2024 bei einer Sitzung beschlossen
+hat, dass z.B. ab dem 1. September 2024 bestimmte Neophyten resp. gebietsfremde Pflanzen nicht mehr auf den Markt
+gebracht werden dürfen, dies also als idiotische Folge einer entsprechenden Eingabe jener vollidiotischen Neophytenfeinde, die lügnerisch und unverständig behaupten, dass diese und jene Neophyten invasiv und also auswuchernd seien.
+Damit setzt also der Bundesrat – obwohl dessen Mitglieder ganz offenbar nichts von der Pflanzenwelt, deren Wirken und
+Notwendigkeit verstehen, wie viele sogenannte ‹Fachleute› mit falschen Ansichten, Vermutungen und Meinungen auch
+nicht – einen parlamentarischen Vorstoss um. Die krankhaft dummen Neophytenfeindlichen behaupten stur, dass gewisse
+Neophyten invasive Pflanzen seien, die es aber wahrheitlich nicht sind, wie z.B. der Götterbaum, Blauglockenbaum, Schmetterlingsstrauch und Kirschlorbeer, die besonders viel an CO2 aus der Atmosphäre aufnehmen und diesbezüglich viel leisten,
+wie auch andere Gross-Sträucher resp. Gebüschartige. In der Regel handelt es sich dabei um Solitärpflanzen, die schon seit
+langer Zeit und gar seit Jahrhunderten hier gedeihen und sich selbst nicht derart ausbreiten, dass sie invasiv resp. wuchernd
+wären. Doch wenn sie ‹Junge› bringen, dann geschieht es natürlicherweise nur dadurch, dass dies durch ihre Samen geschieht, die zu Boden fallen, durch den Wind oder durch Vögel wie auch Wildtiere weggetragen werden und irgendwo
+wieder zur Erde fallen. Und so geschieht es auch ausnahmslos mit dem Samenverbreiten der einheimischen Pflanzen aller
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Gattung und Art, wobei es ebenso immer fraglich bleibt, ob ein direkt von der Pflanze zu Boden fallender oder durch den
+Wind weggetragener Same, oder ein durch irgendwelche Vögel oder durch Tiere usw. verschleppter Same, keimen und zur
+Pflanze werden kann. Denn nur dann, können Samen aufgehen und sich entfalten, wenn genügend Sauerstoff vorhanden,
+wie auch, wenn der Boden nicht zu kalt und kein Wassermangel ist und das Keimen dadurch nicht verhindert wird und
+somit also Photosynthese betreiben kann. Ausserdem ist es wahrlich absolut unumgänglich sowie von Bedeutung, dass der
+Same in die Erdschicht eingebracht wird, wobei diese aber über dem Samen nicht dicker sein sollte als der Durchmesser
+resp. die Grösse des Samens. Als Faustregel der Natur gilt, dass also jeder Same – in der Regel, wenn es dieser allein ohne
+des Menschen Mitwirken schafft – leicht mit feiner Erde überdeckt wird, was aber vielfach nicht möglich ist und daher der
+Same mit der Zeit verdirbt, weil dieser, eben wie alles und jedes, nur eine begrenzte Lebensdauer hat und also keimfähig
+bleibt.
+Nun, invasive Neophyten sollen natürlich in der Schweiz nicht die einheimische Pflanzenwelt verdrängen und in den Bereichen der Biodiversität keinen Schaden anrichten, wobei aber nur sehr, sehr wenige Neophyten wirklich invasiv und also
+wuchernd, schädlich für die Gesundheit der Menschen und Tiere sind oder Ökonomieschäden verursachen können. Das
+Vorkommen und die Ausbreitung solcher Pflanzen soll natürlich verhindert werden, doch sind es wirklich nur sehr, sehr
+wenige, folglich verursachen sie auch keinen Schaden, wenn deren Ausbreitung überwacht und verhindert wird.
+Dass angeblich gebietsfremde Neophyten gegenwärtig weltweit zum Rückgang der biologischen Pflanzenvielfalt beitragen,
+ist schlichtsweg eine böse lästerliche Lüge, die von Naturreinpfuschern ausgeht, die absolut nichts von Pflanzen und Natur
+verstehen. Wahrheitlich sind es wirklich nur sehr, sehr wenige Neophytenpflanzen, die effectiv invasiv und also auswuchernd sind und auch heimatliche Pflanzen verdrängen. Die Neophytenfeindlichen, die sich schlau denken und sich in wahnmässiger Weise besserwisserisch verhalten, haben wahrheitlich keinerlei Wissen bezüglich des Verhaltens der Natur, denn
+ihr Wahn unterbindet ihnen, das natürliche Wirken und dessen Gesetze wirklich zu erkennen und zu verstehen. Diese Besserwisser mit allen ihren idiotischen Wahnvorstellungen pfuschen ohne wirkliche Kenntnisse bezüglich der natürlichen Gesetze der Natur in diese hinein, wie dies anderweitig andere Wahnbefallene hinsichtlich anderer Dinge tun und damit deren
+normalen Ablauf nicht nur behindern und verändern, sondern gar zur Sau machen.
+Die Neophytenfeindlichen sind leider in ihrem Wahn der Wirklichkeitsblindheit verfallen, auch wenn sie in Bern im Bundeshaus hocken und nach der Geige der Wahnbefallenen tanzen und entscheiden.
+Die Krankhaften sowie Wahnbefallenen dieser Gattung von Irren stecken alles in einen Hut und können infolge des fest
+eingefressenen Glaubens der Mitmenschen ihre bösen und unbedachten Lügen und Betrugsbehauptungen verbreiten, dass
+die irreführenden blöden, bösen, idiotischen und die Wahrheit verfälschenden Wahnlügen und Wahnbetrügereien derart
+greifen, dass viele unbedarfte Blindgläubige darauf hereinfallen und alles als bare Münze nehmen. Die Idiotie all der ganzen
+Neophytenfeindlichkeit und die Besserwisserei bezüglich des diesbezüglich Ganzen, was wirklich für die Natur und deren
+Gedeihen gut und für das Bestehen der gesamten Pflanzenwelt richtig ist – nicht nur der gesamten Flora, sondern auch der
+Fauna, die auch dazu gehört –, gehört den Erdlingen endlich gelehrt, damit sie endlich richtig schalten und walten und nicht
+letztendlich alles Leben völlig zur Sau gemacht wird. Leider hat sich das diesbezüglich Böse aber bis heute derart ausgedehnt
+und wahnmässig verbreitet, dass es gar in den Behörden Eingang gefunden hat, so sich diese zusammen mit Förstern und
+Gärtnern – die als ‹Fachleute› missbelehrt wurden – sowie mit der Polizei aufmachen, um zu residieren und das zu stoppen,
+was Wertvolles getan wird, um alles richtig zu machen. So erdreisten sich solche, die weder vom Tuten noch vom Blasen
+auch nur die geringste Ahnung haben, wobei gar ‹Fachleute› dabei sind – die in ihrem Wahn glauben, dass sie es seien oder
+sich wenigstens so nennen, jedoch vom Ganzen der Natur und deren Gesetzen überhaupt nichts verstehen –, um anzugeben, zu blagieren und Weisungen zu erteilen, weil sie sich gross und mächtig fühlen und meinen, dass sie in ihrer Dummheit
+das Recht hätten, um unter Drohungen idiotische Anweisungen, Verbote oder Befehle zu erteilen. Und genau dazu überlege
+ich schon lange, ob ich einmal offen sagen und erwähnen soll …
+
+**Ptaah** Dass du zumindest jetzt noch nicht darüber offen sprichst, …
+
+**Billy** Da hast du bestimmt recht, doch hier will ich dir noch diesen Brief zeigen, der bezüglich der Übersetzungen der
+Bücher usw. in andere Sprachen ist. Bitte, was hier geschrieben wird, sollte eigentlich … doch lies hier, bitte.
+
+**Ptaah** … Das ist wirklich ein Problem, weshalb ich denke …
+
+**Billy** … ja, das denken Bernadette und ich auch, nämlich, dass das Gremium dafür zuständig ist.
+
+**Ptaah** Du hast mir vorweggenommen, was ich sagen wollte.
+
+**Billy** Eben, darum habe ich ja dazwischengefunkt und gesagt, dass Bernadette und ich der gleichen Ansicht sind. Es wäre
+also gut, wenn du beim Gremium eine Entscheidung einholen könntest. Wir denken, dass …
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Ptaah** Das wäre wohl richtig, und ich will mich noch heute darum bemühen, dies beim Gremium vorzubringen und dir
+danach sofort zu berichten, was die Entscheidung ergeben hat. Jemand von der Station kann dich darüber informieren, was
+sich ergeben wird, folglich du es schon morgen wissen wirst.
+
+**Billy** Das ist gut, dann kann ich es gleich Bernadette weitersagen. Was ich jetzt aber sehr wichtig finde ist das, dass du
+einmal dein ‹Nähkästchen› öffnest und einige Nadeln mit wissenswerten Fäden daran herausziehst, durch die etwas aus
+der plejarischen Geschichte genäht und offengelegt werden kann. Das, so finde ich, wäre viel wichtiger als das vorhin Gesagte wegen mir. So wäre es sicher einmal angebracht zu erklären, warum ihr euch Plejaren nennt, wie auch vieles andere,
+damit diesbezüglich in den Kontaktberichten einmal etwas lesbar wird.
+
+**Ptaah** Ja, das kann ich tun, doch deswegen beharre ich darauf, dass wir nachträglich nach unserem offiziellen Gespräch
+noch allerhand zu besprechen haben bezüglich dem, was wir angesprochen haben. Und das, was du davon gesagt hast, ist
+mir teilweise bekannt, denn meine Tochter Semjase erzählte mir einiges. Zu sagen ist aber zur Aufklärung, dass wir die
+Plejaden darum nannten, weil sich der Durchbruch von unserem ANKAR-Universum zu diesem DERN-Universum unweit
+der euch bekannten Plejadengestirne befindet, genauer gesagt in nahezu 400 Lichtjahren Entfernung jenseits der Plejadengestirne, die in sich nicht sehr persistent sind. Und dass wir uns Plejaren nennen, hat den Grund darin, weil das Plejadensystem in diesem DERN-Universum für uns das nächste Sonnensystem ist, das wir zum Übergang in dieses DERN-Universum
+anpeilen, dessen Name wir von alters her von den Erdenmenschen kennen und derweise für unser System übernommen
+haben, was unsere Vorfahren erst vor rund 2000 Jahren in geringer Abänderung dann Plejaren nannten. So wird auch erst
+seit rund 52‘000 Jahren unsere Heimatwelt resp. unser Planet Erra genannt, weil unsere Vorfahren diese Benennung wählten, als planetenweit unter allen Völkern wirklicher und allgemeiner Frieden einkehrte und sich auch über unsere gesamte
+Föderation ausbreitete, die schon viel früher durch Kriege und Kampfhandlungen zustande kam. Bevor jedoch der wirkliche
+Frieden kam, der jetzt bereits weit über 5 Jahrzehntausende vorherrscht, ergab sich bei unseren sehr frühen Plejaren-Vorfahren, die sich damals ‹Siron› nannten, so, wie auch Erra damals genannt wurde, dass einige Gruppen von ihnen vor 25
+Millionen Jahren den Weg zur Erde fanden. Und dies geschah deshalb, weil einem grossen Trabanten nachgefolgt wurde,
+der sich aus einem System entfernte und durch einen völlig natürlichen Dimensionendurchgang – du nanntest dies einmal
+‹Dimensionentor› – von unserem ANKAR-Universum in dieses DERN-Universum eindrang. Dieser Trabant gelangte nach
+sehr langer Zeit ins SOL-System, da er sich an der Erde als Mond ‹ansiedelte› und seither um den Planeten kreist, sich jedoch
+allmählich von diesem entfernt. Einige Gruppen Enthusiasten der damaligen Bewohner von Siron kamen später auf die Erde
+– die Leben trug und sehr gute Lebensmöglichkeiten bot –, legten hier Domizile an, verloren mit der Zeit jedoch alle Technik
+und die Verbindungen mit Siron und damit natürlich auch zum ANKAR-Universum. Die Folge war, dass sie verwilderten und
+ausstarben.
+Sehr lange Jahrmillionen später fanden neuerlich sironische Gruppen zur Erde, und diese, wie auch deren Nachkommen,
+waren schon damals angehalten gemäss vorgegebenen Direktiven sich von den nicht harmlosen Fremden fernzuhalten,
+deren ferne Nachkommen noch heute auf der Erde …
+Gleichermassen galt das Fernhalten auch gegenüber den Frühmenschen, wie es auch heute durch die strengen Direktiven
+weiter aufrechterhalten wird. Die Fremden, die wir nicht beim Namen nennen wollen, weil das nicht unsere Aufgabe ist
+und wir uns gemäss Direktiven auch nicht einzumischen haben, sind nicht so harmlos, wie all die ‹treuherzigen› und die
+‹blauäugigen› Erdenmenschen – wie du manchmal sagst – glauben, die zu gerne und vertrauensblind nur all das Gute wahrhaben wollen und deshalb bedenkenlos einer Verbindung mit den Fremden nicht abgeneigt sind. Es war schon für unsere
+frühen Vorfahren absolut und streng untersagt, mit irgendwelchen Wesen selbstdenkender und vernunftbegabter Art in
+fremden Universen und Welten in Verbindung zu treten. Dies war immer durch die Direktiven untersagt, die schon seit
+Millionen Jahren gegeben und immer wieder überliefert worden sind, um das Eindringen irgendwelcher Fremden aus fremden Universen in unser ANKAR-Universum zu verhindern. Dass fremde Universen existieren, ausser den eigenen unserer
+Schöpfung, ist schon vor vielen Millionen Jahren durch die Wissenschaften errechnet worden, folglich war es klar, dass es
+mit Sicherheit fremde Universen ausserhalb der Bereiche unserer Schöpfung geben musste. In solche fremde Schöpfungsuniversen zu gelangen blieb uns aber über all die Zeit von Millionen von Jahren verschlossen, folglich es uns erst vor wenigen Jahren zusammen mit den Sonaern gelang, ein fremdes Schöpfungsuniversum zu erbrechen und in dieses zu gelangen,
+was nun erforscht wird und aufzeigt, dass es vieles Leben aufweist. Es ist uns dabei aber weiterhin streng vorgegeben, nach
+unseren Direktiven zu handeln und diese einzuhalten, damit nicht fremde Einwirkungen in negativer Weise bösartig wirken
+können, wie Kriegshandlungen usw., die bei uns während Jahrmillionen immer wieder vorherrschten.
+Was sich weiter ergab im Lauf der Jahrmillionen war, dass sich die Siron-Emigranten auf der Erde zurückhielten und nie
+kenntlich machten, und so blieben sie ebenso unerkannt und also auch von den Fremden unentdeckt, die inzwischen auch
+zur Erde kamen. Die Fremden, die gesamthaft aus verschiedenen Kosmosbereichen dieses DERN-Universums stammten
+und auch in der heutigen Zeit dorthin belangen, haben keinerlei Kenntnis von uns, denn deren Technik – so futuristisch sie
+den Erdenmenschen erscheinen mag – ist der unseren weit unterlegen, folglich sie uns auch nicht zu orten vermögen.
+Ausserdem ist es bis heute so, dass wir uns strengstens an die Direktiven halten und niemals mit den Fremden oder mit
+Erdenmenschen in Verbindung treten und streng darauf bedacht sind, ihnen nicht den Weg zu unserem ANKAR-Universum
+zu verraten oder gar zu weisen. Wohl wurde einmal ein Versuch unternommen, um mit den Erdenmenschen in Verbindung
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+zu treten, wobei allerdings du als Mittelsmann zwischen uns und Amerika zu fungieren gehabt hättest, weil wir eben nicht
+selbst in Erscheinung getreten wären. Doch dieser Versuch misslang kläglich, weil von Amerikas Verantwortlichen für uns
+unmöglich erfüllbare herrschsüchtige und unerfüllbare Forderungen an uns Plejaren gerichtet wurden, die derart herrisch,
+selbstsüchtig machtbesessen und für uns absolut inakzeptabel waren, dass wir den Versuch abbrachen.
+Nun, die späteren Generationen der Sidon-Ansiedler auf der Erde kehrten in der folgenden Zeit entweder nach Sidon und
+dann noch später nach Erra zurück, oder sie sind infolge ihres Alters verstorben. Dabei ist die letzte plejarische Person eine
+Frau gewesen, die im Jahr 1193 nach Erra zurückkehren wollte, jedoch hier auf der Erde verstarb, folglich danach und bis
+heute keine Plejaren mehr auf der Erde ansässig wurden und hier leben. Ausser uns sind nunmehr keine Plejaren auf der
+Erde ansässig, die wir aber nur in geringer Anzahl sind und die wir rundum nur Beobachtungsaufgaben ausüben und in
+absolut keinerlei Weise irgendwelche Verbindungen zu Erdenmenschen pflegen und uns auch nicht in irgendwelcher Form
+in Belange und die Politik usw. der irdischen Zivilisationen einmischen oder irgendwelche Hilfe leisten. Dies war noch z.Z.
+meines Vaters Sfath gegenteilig, jedoch streng begrenzt auf einzelne Erdenpersonen, die zudem in Zeiten der Vergangenheit lebten. Auch ergab sich bei Asket ähnliches, jedoch hauptsächlich auch nur derweise, wie es bei meinem Vater war,
+wobei es jedoch infolge dir erforderte, dass die aus dem Schwester-Universum resp. aus dem DAL-Universum stammende
+und dich betreuende Asket kurzzeitige Begegnungen mit einigen Erdenmenschen der Gegenwart auf sich zu nehmen hatte.
+Hans Meierhofer und Wendelle Stevens waren in die Verbindung mit ihr eingeschlossen, weil dies mit Erlaubnis des Gremiums erfolgte, das diese Kontakte gar wünschte, was aber geheim zu halten war. Dabei wurde immer darauf geachtet, dass
+sowohl die Erdenmenschen wie auch die Fremden niemals auch nur etwas Geringstes davon wahrnehmen konnten.
+Das alles, was ich dir erklärte und von früheren Zeiten erwähnt habe, ist mir bekannt aus der Plejaren-Geschichtsführung
+und aus den Annalen meines Vaters Sfath, der sehr lange und genaue schriftliche Geschehens- und Geschichtsaufzeichnungen der Vorkommnisse auf der Erde und im Zusammenhang mit dir gefertigt hat. Und dass er mit Erdenmenschen Kontakte
+pflegte, das war ihm zu seiner Zeit sonderhalber von unserem Gremium erlaubt, und dass du als Erdgeborener mit uns in
+dauernder Verbindung stehst sowie deine Mission erfüllen kannst, das beruht darauf, dass bei uns die Weisung besteht,
+dass deine Schöpfungslebensenergieform dieselbe ist, die schon zu Beginn der bereits seit 9 Milliarden Jahre andauernden
+Mission des Nokodemion diese erfüllte und erfüllt.
+Also ist zu erklären, dass uns durch die Direktiven vorgegeben ist, unter uns zu bleiben und keinerlei Verbindungen mit
+anderen Menschenwesen einzugehen, auch nicht mit Erdenmenschen und Wesen anderer Universen. Dies besagt also klar,
+dass weder jemand von uns Plejaren, noch irgendwelche menschenähnliche Wesen – wie z.B. Asina –, noch Menschen aus
+unserer Föderation oder überhaupt aus unserem ANKAR-Universum Verbindungen mit Erdenmenschen aufnehmen würden, denn dies würde wider unsere Direktiven verstossen. Dies war schon so, als von uns noch kosmische Kriege geführt
+wurden, und das Einhalten derselben gilt erst recht, seit wirklicher Frieden bei uns herrscht, und zwar föderationsweit.
+Auch hier auf der Erde sind Verbindungen darum strikt zu vermeiden, so, dass die Erdenmenschen – die für uns fremde
+sowie uneinsichtige und gewalttätige Wesen sind – nicht den Durchgang aus diesem DERN-Universum in unser ANKARUniversum finden und neuerliche Eroberungskriege bringen könnten, die seit Millionen von Jahren immer und immer wieder in grossen Gebieten des ANKAR-Universumkosmos herrschten, jedoch endlich vor mehr als 52 000 Jahren beendet und
+beigelegt wurden, folglich seither wahrer Frieden herrscht.
+Es wäre also weder gut noch von irgendwelchem Vorteil, wenn die wirklich nicht harmlos einzuschätzenden Fremden, wie
+auch die unfriedlichen Erdenmenschen irgendwie den Weg in unser ANKAR-Universum finden könnten. Ganz besonders
+die Erdenmenschen sind in ihrer Gesinnung voll auf Gewalt ausgerichtet, was sie äusserlich zu verdecken suchen und sich
+‹scheinfriedlich› geben, doch wenn sie in entsprechende Situationen geraten, dann bricht aus ihnen ihre wahre Gesinnung
+durch, folglich ihre Gewalttätigkeit, ihre Falschheit, ihr Rachegebaren und ihre Vergeltungssucht hin bis zum Mord unkontrollierbar ihre Geltung fordern. Dies wird erschreckend klar durch Armeen und Militärs, die du als Mörderorganisationen
+bezeichnest, was grundsätzlich der Richtigkeit entspricht, denn …
+
+**Billy** … deren Handwerk ist ja nichts anderes als sinnloses Morden, Zerstören und Massakrieren, Vergewaltigen, Foltern
+und Kriegsverbrechen zu begehen, so wie ich es mit Quetzal und Bermunda gesehen habe, als z.B. israelisches Militär in
+einem Krankenhaus die durchwegs Kranken in ihren Betten erschossen hat, obwohl diese Kranken in den Betten nicht einmal Waffen hatten oder Feindliches tun konnten oder etwas Feindliches sagten. Ähnliches sah ich schon als Junge zusammen mit Sfath, als die NAZIs mörderisch und kriegsverbrecherisch herumtobten. Und was Bermunda, Quetzal und ich im
+Nahen Osten gesehen haben, das war nicht mehr nur Krieg, sondern ausgeartetes Massaker, wofür Netanjahu so verantwortlich zeichnet, wie in der Ukraine Selensky und in Russland aber auch Putin, wobei wir aber in Russland nicht in gleichem
+schlimmem Mass Kriegsverbrechen feststellten und sahen, wie eben in der Ukraine und im Nahen Osten. Das Schlimme im
+Krankenhaus, von dem ich eben sprach, bestätigte mir auch José dadurch, indem er mir einen Zeitungsartikel beamte, den
+ich allerdings nicht öffentlich aufschalten soll, der aber das bestätigt, was wir mit eigenen Augen gesehen haben. Andere
+Kriegsverbrechen sahen wir aber, wie ich schon sagte, auch in der Ukraine, als Bermunda, Quetzal und ich dort waren. Wir
+sahen, wie halbwüchsige Mädchen, wie auch junge und ältere Frauen vergewaltigt und danach erschossen oder erstochen
+wurden, aber auch, wie Gefangene, die erst grausam gequält und geschlagen, dann erschossen oder mit Messern ermordet
+wurden, manchmal zu mehreren gleichzeitig, die dann in Massengräbern verscharrt wurden, wie ich schon im letzten NAZIWeltkrieg zusammen mit Sfath gesehen habe.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Damit finde ich, dass einiges zu sagen ist: Der Hammer der heutigen Kriegsgeschehen in der Ukraine ist, dass die idioti-**
+**schen Regierenden von nahezu 50 Ländern einen eigenartigen Weltkrieg führen, wie es ihn noch nie zuvor gegeben hat.**
+**Dadurch nämlich, dass die NAZI-Gesinnten in der Deutschlandregierung – davon sind selbstverständlich allesamt der**
+**Rechtschaffenen der Regierung ausgeschlossen –, wie z.B. zweifellos die russlandfeindliche Strack-Zimmermann, deren**
+**Name, Gesinnung und offene Gedankeneinstellung dafür bekannt ist und die ich deshalb ganz bewusst nenne, kann**
+**dieser eigenartige Weltkrieg nur geführt werden, weil wirklich NAZIs in der Deutschlandregierung hocken und böse wer-**
+**keln. Und dieser Krieg kann auch nur deshalb geführt werden, weil völlig verantwortungslos Waffen, Munition und Geld**
+**für den Krieg in der Ukraine geliefert werden. Völlig verantwortungslos beteiligen sich die Lieferantenländer am Krieg,**
+**der dadurch ein eigenartiger Weltkrieg ist und immer weitergeht. Bei den Lieferungen von Waffen, Munition und Geld**
+**usw. steht Deutschland in kriegshetzender Weise – mit Amerika im Rücken – dem ganzen kriegslüsternen NAZI-Gesindel**
+**der rund 50 Pro-Selensky-Länder allen zuvorderst voran, und zwar grundsätzlich gesteuert vom hegemonistischen Ame-**
+**rika, das unter allen Umständen Russland zur Sau machen und als Trabanten kassieren will. Alle idiotischen, verbreche-**
+**rischen und verantwortungslosen Regierenden und die Massen der zustimmenden Anhänger in jenen Ländern, die Waf-**
+**fen und Munition an den danach bettelnden und kriegslüsternen Selensky liefern – wodurch sich Morde, Leid, Elend und**
+**Zerstörung en masse ergeben –, tragen die Schuld daran, dass dieser Krieg immer weitergeht.**
+**Würden all die dumm-blöden Idioten, Verbrecher und Parteiischen jener Regierenden – wie auch diese befürwortende**
+**und gleichfalls der Dummheit, Idiotie, Blödheit und Parteilichkeit verfallenen Teile der Bevölkerungen – keine Waffen,**
+**Munition und Geld für den Krieg an den Kriegssüchtling Selensky liefern, sondern sich wie es richtigerweise sein müsste,**
+**völlig neutral und nicht parteiisch verhalten, dann wäre der Krieg schon in kurzer Zeit nach dessen Beginn zu Ende gewe-**
+**sen, folglich er auf beiden Kriegsseiten niemals so viele Tote, Vergewaltigungen, Zerstörungen, Elend, Not und Leid ge-**
+**fordert hätte. Dieser Krieg, der grundsätzlich durch das Hegemoniegebaren sowie die grenzenlose Verantwortungslosig-**
+**keit von Amerika und das ostwärts Ausweitenwollen der Mörderorganisation NATO zustande gekommen und durch**
+**Russland resp. durch den Befehl von Putin ausgelöst worden ist – der natürlich als Kriegsurheber sowie Kriegsführer in**
+**keiner Weise in Schutz genommen werden kann –, wäre also schon längstens beendet und vorbei, wenn nicht parteiisch-**
+**verantwortungslose, völlig idiotische, gewissenlose Regierende und gleicherweise veranlagte nichtsnutzige Elemente**
+**aus den Bevölkerungen von rund 50 Staaten ihr böses und lauthals bejahendes Kriegsgebrüll für irre und absolut tödliche**
+**Unmengen Waffenlieferungen, Munitionslieferungen und Gelder an den darum weltweit und unverschämt bettelnden**
+**Kriegslüstling Selensky geliefert hätten und liefern würden. Doch die kranke Verantwortungslosigkeit der Waffen, Mu-**
+**nition und Gelder liefernden schmutzigen Elemente der Regierungen und Befürwortenden aus den Völkern weisen eine**
+**NAZI-Gesinnung und ein NAZI-Verhalten auf, das den NAZIs im letzten Weltkrieg von 1939 bis 1945 in keiner Weise nach-**
+**steht – leider ist das auch hier in der Schweiz so, da schmutzige Regierungselemente sowie Landesverräter und deren**
+**Befürworter aus dem Volk nicht nur die Neutralität der Schweiz zur Sau machen, indem Sanktionen von der EU-Diktatur**
+**übernommen werden, die dann parteiisch gegen Russland erlassen werden. Dies, wie auch Gelder an die Ukraine und**
+**damit auch an Selensky fliessen. Das will natürlich von den Schuldbaren nicht gehört werden, besonders nicht von den**
+**damit angesprochenen Regierenden – womit also die Rechtschaffenen der Politiker nicht angesprochen und nicht schul-**
+**dig sind –, folglich ich aber damit rechnen muss, wenn ich offen rede und diese Tatsachen auch im Internet verbreite,**
+**auch, welche lausigen und schmutzigen Landesverräter in der Regierung hocken und ungeschoren gelassen werden, ob-**
+**wohl sie als lange nach dem Weltkrieg von 1939 bis 1945 Geborene verbrecherisch unsere gute Landes-Neutralität zur**
+**Sau machen, die unser freies Land vor einem Angriff der NAZIs bewahrt hat. Und wenn ich zur ‹Rechenschaft› gezogen**
+**werden soll, weil ich die Wahrheit sage, dann kann dies nur durch von mir sich angegriffen fühlende Landesverräter und**
+**ihre Verfechter sein, denn auch hier in der Schweiz gilt: «Wenn es den Hund trifft, dann bellt er.» Und dass ein Hund**
+**nicht beissen würde, der bellt, das ist nur eine Lüge, was unser ‹Hannibal› bewiesen hat, der an seiner Kette kräftig bellte**
+**und dabei zurückwich, bis die Kette lang genug war, dann ging er auf die Leute los und biss sie. 52 Personen haben dies**
+**erfahren, ehe der Hund infolge eines bösen und schmerzvollen und unheilbaren Leidens eingeschläfert werden musste.**
+**Nun, im Nahen Osten wird auch Mord auf Mord, Massaker auf Massaker, Vergewaltigung auf Vergewaltigung und Zer-**
+**störung auf Zerstörung usw. begangen, wodurch Elend und Leid hervorgerufen werden. Doch hier sind es nicht Putin und**
+**Selensky, sondern die Mördergruppen der Hamas und deren Anführer, wie auch das Mördermilitär Israels, das unter**
+**dem Kommando des völlig gewissenlosen Massenmörders Netanjahu steht, der menschheitsverbrecherisch nach einem**
+**Genozid strebt, und dies wieder – wie könnte es auch anders sein – unter dem Schutz des hegemonistischen Amerika.**
+**Doch hier verschliesst die Welt ebenso die Augen und blockiert das Gewissen, wie das auch in der Ukraine geschieht,**
+**und zwar einerseits darum, weil Partei für die eine oder andere Seite ergriffen und gehegt und keinerlei Neutralität**
+**gepflegt wird –, und besonders darum, weil Amerika mit Waffengewalt hinter allem Unrecht steht, jedoch auch mit**
+**dessen Geheimdiensten, die sich nicht scheuen, jene heimtückisch zu ermorden, die sich getrauen, offen die Wahrheit**
+**zu sagen.**
+**Daher ist rundum in der Welt die Furcht davor in vielen Menschen in einem derartigen Mass grassierend gegenwärtig,**
+**dass viele wie Hunde den Schwanz einziehen, kuschen, schweigen und sich nicht getrauen, die Wahrheit zu sagen, son-**
+**dern sich selbst verleugnen und sich scheinheilig als Amerikafreundliche geben.**
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+## INFOsperber
+Mittwoch, 24.4.2024
+
+_«Töte mich! Lass mich nicht leiden!», bittet verzweifelt ein schwer verletzter Soldat an der Front. © NHK_
+
+## Horror-Video von der Ukraine-Front gehört an die Öffentlichkeit
+**Urs P. Gasche / 24.4.2024**
+
+### Tote, Verletzte, lebenslange Traumata – das Leben und Überleben in Gräben – der reale Einsatz von Drohnen. Eine Dokumentation.
+
+Auf der ukrainischen Seite der Front haben ukrainische Soldaten ihr Schicksal mit Smartphones selber dokumentiert.
+Der Auslanddienst des japanischen öffentlich-rechtlichen Senders NHK hat die Dokumentation zusammengestellt und
+veröffentlicht.
+Die Arbeit von Journalisten an der Front unterliegt scharfer Zensur. Ihre Aufnahmen und ihre Gesprächspartner werden kontrolliert. Medien berichten vor allem über Waffenlieferungen und zeigen Bilder zerstörter Häuser und Infrastruktur. Mit dem unermesslichen Leid der Kämpfer an der Front wird die Öffentlichkeit selten konfrontiert.
+Die Lieferanten von schweren Waffen und Munition lehnen einen Waffenstillstand ab, bei dem Russland die Krim und
+den Donbas vorläufig behalten würde, und der dem grossen Rest der Ukraine – ohne einen Beitritt zur Nato – Sicherheit und Friede garantierte. Ihr Argument: Russland würde die erstbeste Gelegenheit ergreifen, um doch die ganze
+Ukraine zu besetzen. Und ein solcher Waffenstillstand würde die Freiheit und Sicherheit des westlichen Europas
+ernsthaft bedrohen.
+Falls es jedoch Putin tatsächlich nur darum ginge, die Nato und Nato-Raketen von der russischen Grenze fernzuhalten
+und die eher Russland zugeneigten Bevölkerungen der Krim und des östlichen Donbas in der Russischen Föderation
+zu behalten, sähe es anders aus. Dann würde ein Waffenstillstand weitere Zehntausende von Toten, noch mehr Verletzte, Witwen, Waisen und noch mehr Elend wegen zerstörter Infrastruktur auf beiden Seiten vermeiden.
+Krieg ist das Schlimmste, was Soldaten an der Front und Bevölkerungen passieren kann. Das zeigt die Dokumentation
+ukrainischer Soldaten eindrücklich:
+
+➔ Der von Smartphones aufgenommene Krieg
+
+_Ein ukrainischer Soldat an der Front © NHK._
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Ptaah** Das alles lässt sich leider nicht ändern, denn die ungeheuren Massen der Erdenmenschen sind nicht gewillt, sich
+vom Bösen in ihrer tiefen Gesinnung zu lösen und sich vom religiösen und sektiererischen Glauben endlich abzuwenden,
+sich davon zu befreien und sich dem freien und selbständigen Denken, wie damit auch dem Werden des wahren Menschseins zuzuwenden. Die Falschheit aller Religionen und Sekten lassen nicht zu, dass die Erdenmenschen vom Glauben an diese
+freiwerden. Deren Fälschungen bezüglich all den Lügen und vielen Betrügereien sind derart im Glauben der Gläubigen verankert, dass sie effectiv in böser Angst gefesselt und gefangen in ihrem Leben frommherzig im Wahn dahinsiechen, der
+imaginäre Gott würde sie mit Leiden, Schmerzen und Krankheiten bestrafen und sie gar ins Höllenfeuer zum ebenso imaginären Satan verbannen, wenn sie sich nicht aufopfernd, hingebungsvoll, ergeben und eifrig dem Wahnglauben widmen
+würden.
+
+**Billy** Das weiss ich, denn schon Sfath hat mir das erklärt und viel davon erzählt, was und wie den Erdlingen seit alters
+her mit dem Glauben lodernde Angst und Schrecken eingehämmert wird. Und das geschah und geschieht auch heute, wie
+es sich auch noch sehr lange so erhalten wird. Wenn ich besonders an das sektiererische Persien mit den Mullahs denke,
+dann graut mir richtig, denn diese sind mörderische Fanatiker in Persien oder eben Iran, wie es seit den 1930er Jahren
+genannt wird. Mullahs sind – was ich dir erklären will – schiitische ‹Geistliche›, Freitagsprediger, Vorbeter, wie auch Talib
+resp. Studenten, religiöse Rechtsgelehrte von enormer Bedeutung, die eine abgeschlossene theologische Ausbildung haben
+und ‹Mudschtahid› genannt werden. 1979, als Ayatollah Khomeini aus dem französischen Exil heraus die Revolution in
+Persien auslöste und er dann, als er aus Frankreich zurückgekehrt war, den Kaiser Reza Pahlavi stürzte und das Land sehr
+streng mullahsektiererisch wurde, da begann der völlig ausgeartete religiöse Glaubenswahn, und mit dem geschieht seither
+alles Böse, nämlich vom Foltern, Massakrieren, Lynchen, Vergewaltigen und Steinigen usw., wie es speziell auch in SaudiArabien und Afghanistan geschieht, was aber weitgehend nach aussen verheimlicht wird.
+In meinem Leben habe ich diesbezüglich bei Religionsgläubigen viel aus deren Angst entstandenes Unheil gesehen, wie
+dass z.B. durch ihren Religionswahn resp. Glaubenswahn Menschen bestialisch massakriert, Frauen und Kinder sexuell geschändet, gelyncht oder sonstwie ermordet worden sind. Das ist aber nur eine kleine Seite des Bösen, denn ich weiss auch,
+dass nicht nur bezüglich der Religionen und Sekten mehr als nur sehr viel erstunken und erlogen ist und fast täglich erweitert wird, sondern dass auch bezüglich zahlloser Chroniken, der Geschichte, Kriege, der Künste, besonders der Malerei, wie
+aber auch zahllose andere Dinge gefälscht werden. Speziell werden schon seit langer Zeit auch Lebensmittel gefälscht und
+teils mit für den Menschen krankheitserregenden Giftstoffen versehen, wie auch anderweitig vieles auf Fälschungen beruht, durch die jährlich effectiv Milliarden ergaunert werden, nämlich weltweit gegen 300 Milliarden Franken, wie letzthin
+Quetzal berechnete, der sich mit diesen Dingen befasst und auf Erra ja die gesamte Planetenbevölkerung darüber informiert, was auf der Erde geht und läuft, weil ihm ja diese Aufgabe obliegt.
+Nun, was in den letzten 2500 Jahren ‹überliefert› und geschrieben ist in Chroniken und bezüglich der vielen diversen Geschehen und der Weltgeschichte, das strotzt nur so von Fälschungen. Vieles wurde einfach phantasiereich erfunden, oder
+es wurde vom Hörensagen völlig unkontrolliert und ohne jegliche genauen Nachforschungen als effectiv echt und Wahrheit
+schriftlich festgehalten. Zudem wurde sehr vieles mit freien ‹Zugaben› zurechtgeschustert, wie vieles von Vermutungen als
+‹Chronik› und ‹Wahrheit› schriftlich von diversen Schreibkundigen festgehalten wurde, was heute als ‹wahre Weltgeschichte› gilt, obwohl alles oder vieles Lüge und Betrug ist. Das aber will von jenen Erdlingen nicht als Wahrheit erkannt
+und akzeptiert werden, die sich in die seit alters her herumkursierenden schriftlichen Aufzeichnungen ‹verfressen› haben
+und alles unbedacht und falsch als echt einschätzen. Dass aber schon seit der Antike, speziell seit rund 2500 Jahren, dieserart Fälschungen, Lug und Betrug in grossem Rahmen fabriziert wurden, folglich also gelogen sowie betrogen und in dieser
+Weise das ‹Wissen der Weltgeschichte› gesteuert wird, das will der Erdling weder wissen noch akzeptieren, besonders jene
+Erdlinge nicht, die sich mit der Materie der Vergangenheitsgeschichte beschäftigen und ihre Thesen, Ansichten, verworrenen Meinungen und Behauptungen aufstellen, dass die Schwarten krachen. Ganz besonders sind in den letzten 2500 Jahren
+Fälschungen, Lug und Betrug schriftlich derart verbreitet worden, dass heute alles als ‹wahrheitliche Überlieferungen› gilt,
+obwohl eigentlich durchwegs alles und jedes mehr oder weniger Fälschungen enthält, wovon natürlich die in ihrer ‹Vernunft› angefressenen ‹Fachleute› nichts wissen wollen, die vehement die effective Wahrheit bestreiten. Es darf einfach
+nicht wahr sein, dass die effective Wahrheit nun einmal Wahrheit ist, denn diese schneidet den ‹Wissenden der Wissenschaften› den ‹Fachleuten› die Würde ab. Sie sind die, die ‹alles besser wissen›, und daher brechen ihnen alle Zähne aus,
+wenn ihnen das Gegenteil ihrer Annahmen, Vermutungen und Meinungen bewiesen werden kann. Dies tritt insbesondere
+bezüglich angeblicher religiöser Artefakte zu, besonders im Christentum, da mit dem angeblichen Totentuch herumgezaubert wird, das …
+
+**Ptaah** … exakt, es handelt sich dabei nur um ein angebliches Totentuch, denn wahrheitlich gab es nie ein solches, wie wir
+wissen, denn wir haben alles sehr eingehend ergründet und festgestellt, dass ein solches niemals verwendet wurde. Gegenteilig jedoch wurden im Lauf der letzten 2000 Jahre mit verschiedensten Methoden 47 solcher angeblich ‹echten› Totentücher fabriziert, wovon zur heutigen Zeit jedoch nur noch 4 vorhanden sind, wovon jedoch nur die Existenz des einen
+bekannt ist, nämlich des aus Flachs gefertigten grossen Tuches, das als ‹Turiner Grabtuch› bekannt ist, in das angeblich
+Jmmanuel gewickelt worden sein soll. Dabei handelt es sich ebenso um eine Fälschung, wie bei den 3 anderen, die noch
+existieren und geheimerweise … Das jedoch solltest du nicht offen nennen, denn … Diese angeblichen Reliquien, die wirklich
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+alle nur Falsifikaten entsprechen, sind jedoch nicht die einzigen, denn gleichermassen wie diese, werden angebliche Kreuzigungsnägel, ‹Heilige Windeln›, Holzstücke vom angeblichen Kreuzigungskreuz, wie heimlich gar Splitter von Finger- und
+Fussnägeln, wie auch Haare und Blutrückstände usw. als Reliquien gehortet, die jedoch alle nichts anderem als Falsifikaten
+entsprechen. Wie wir durch sehr genaue Abklärungen ergründet haben, wurde nicht ein geringstes Beweisstück sichergestellt, das auf die Kreuzigung von Jmmanuel oder auf seine Person selbst hinweisen würde. Auch die Lanze, die Jmmanuel
+in die Lende gestossen worden sein soll, kursiert als Reliquie im Christentum herum. Das trifft ebenso auf den angeblichen
+Kelch zu, aus dem Jmmanuel Wein getrunken haben soll, den er wahrheitlich verachtete – phantasievoll so gesagt, wie der
+‹Teufel den Weihrauch›, gemäss einem Sprichwort des Christenglaubens, das wohl hierher passt. Doch diesem Unsinn des
+Weintrinkens – Jmmanuel trank ausschliesslich nur Wasser – stehen all die anderen Religionen und deren Sekten nicht
+nach, denn auch diese horten solche betrügerische Utensilien, von denen sie lügnerisch behaupten, dass sie auf ihren Religionsgründer zurückführen würden. Ausserdem sind in allen Religionen und deren Sekten von deren Gläubigen lächerliche
+kurze oder längere Gebete und Anhimmelungen an ihre imaginären Gottheiten zu verrichten, wie auch Regeln einzuhalten
+und irgendwelche rituelle Bewegungen und bestimmte körperliche Waschungen usw. vorzunehmen sind, die durchwegs
+nach dem Ableben der Urheber der Religionen und deren Sekten von Schreiberlingen frei erfunden wurden. Dies, wie auch
+viele Legenden, z.B. Märchen von den Gebrüdern Grimm, die nur Märchen aus allen alten Zeiten zusammengetragen, jedoch nie ein eigenes geschrieben haben. So sind aber auch verrückte Geschichten, Sagen und gar sehr viele Geschichtsberichte usw. voller Fälschungserfindungen, die den interessierten Menschen als ‹Wahrheit› untergejubelt werden, die den
+Schwindel glauben und wobei ‹Fachleute› dazu behaupten, dass alles der Wahrheit entspreche. Doch die Wahrheit ist die,
+dass die Welt resp. der Mensch einfach belogen und betrogen sein will.
+
+**Billy** Genau. – Davon sprach ich in der Küche, nämlich dass seit 2500 Jahren, und zwar besonders während den letzten
+1000 Jahren, auffallend viel Aufkommen von Lug und Betrug zu verzeichnen ist, speziell bezüglich Fälschungen aller Art,
+wobei das Fälschen von Chroniken, Geschichten, Büchern, Malbildern und vieles andere gekennzeichnet ist. Das ungeschriebene Gebot der Verpflichtung, immer nur die Wahrheit und nichts als die Wahrheit zu sagen und niederzuschreiben,
+wurde schon seit der Antike und ganz besonders die letzten 1000 Jahre missachtet. Folglich wurde bei Chroniken und sonstigen ‹Überlieferungen›, bei ‹Originalen› von Malereien und Büchern usw. derart gelogen, betrogen, gefälscht und geschwindelt, dass eigentlich alle Balken hätten brechen müssen. Und dass diese erst recht heute brechen müssten, und zwar
+besonders bezüglich der öffentlichen Medien – Zeitungen, Zeitschriften, Fernsehen und Internet usw. –, die mit äusserst
+wenigen Ausnahmen die Bevölkerungen derart lügnerisch sowie böse und bewusst betrügerisch mit Unwahrheiten sowie
+mit primitiven Falschmeldungen in die Irre führen, das geschieht leider täglich. Und zwar geschieht das nicht selten im
+Auftrag der Regierungen, wobei aber die Völker nicht eruieren können, was Wahrheit, Fiktion, Lüge und Betrug ist. Zwar ist
+dies schon seit alters her so, ganz besonders eben seit den letzten 1000 Jahren, während denen sich alles mehr und mehr
+modernisiert hat und sich laufend fortschrittliche Methoden zu Fälschungen ergeben haben. Zwar wurden schon vor der
+Antike viele unglaubliche Fälschungen hergestellt, wie aber ab damals immer mehr und mehr Fälschungen gefertigt wurden, die z.B. von diversen landeseigenen Bildhauern ägyptische Statuen ermeisseln liessen, die eben von römischen Kaisern
+in Ägypten geklaut und als Vorbilder genutzt wurden. Diese wurden dann als wahre und ‹echte› Ägypten-Kunstwerke deklariert und so bewusst das eigene Volk und die Welt betrogen. Das gleicherart wie auch Darwin als Betrüger handelte und
+er Knochen zurechtfeilte – was ja der Welt ebenso nicht bekannt ist –, um seine Thesen zu ‹beweisen›, dass der Mensch
+vom Affen abstammen soll, wie er behauptete und zurechtschwindelte. Doch dass der Mensch nicht vom Affen abstammt,
+sondern eine eigene Spezies ist, da wird es noch lange dauern, bis das wirklich erkannt wird. Was Darwin bastelte, passt
+etwa in die gleiche Lügenbehauptung jener Wissenschaftler hinein, die darauf beharren, dass der Mensch in Südafrika entstanden sei und von dort aus die Welt besiedelt habe. Diese Lügenbehauptung ist derart wie die Zeit-Fälschungen vor etwa
+1300 und nochmals vor etwa 1500 Jahren, die dann ein Mönch namens Exus oder Exigus oder so vorgenommen hat, und
+zwar unter dem Patronat eines Papstes, der, so denke ich, Johannes geheissen hat. Dies einmal gesagt, wie dass viele Graphiken des Albrecht Dürer und viele Werke anderer Künstler gefälscht wurden und heute davon viele gefälschte Werke, die
+als echt gelten, im Umlauf sind oder als ‹echt› gehortet werden und gar in Museen hängen. Dies, wie die Weltleserschaft
+an der Nase herumgeführt wird bezüglich der Karl May-Bücher und seine erlogene Autobiographie eine lausige und betrügerische Fälschung sind und er damit seine Leserschaft an der Nase herumgeführt hat. Das aber wussten die Mayfans zu
+seiner Zeit ebenso wenig, wie wohl kaum oder überhaupt auch nicht die Maybücherlesenden zur heutigen Zeit. Tatsache
+ist nämlich, dass Karl May weder 40 Sprachen beherrschte, noch nahezu 40‘000 Apachenindianer befehligte oder je in
+seiner Jugend in Amerika war.
+
+Da waren aber auch die Tempelritter, die Templer, wie sie einfach genannt werden, denn vor den frühesten Anfängen des
+Christentums waren einige fanatische Einzelgänger, die damals die Mär mit dem Kelch, aus dem Jmmanuel getrunken haben soll, erdacht und erfunden haben, obwohl nie ein Kelch im Spiel war, sondern nur kleine Schalen benutzt wurden. Und
+Jmmanuel trank niemals Wein, sondern nur Wasser. Dass sehr lange Jahrhunderte, ehe das eigentliche Christentum richtig
+begann, alles erdichtet wurde und also lange zuvor, ehe das Tempelrittertum um 1120 herum gegründet wurde und die
+erlogenen Geschichten über Jmmanuel und Maria von den Tempelrittern übernommen wurden, woraus sie Tonkelche in
+Massen herstellten, das wird bis heute geleugnet, wie auch dass die damaligen Mitglieder des Templerordens aber aus
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+alten Überlieferungen noch wussten, dass die Mutter von Jmmanuel eine stark bräunliche Nord-Afrikanerin und Josef ein
+Weisser gewesen und daher Jmmanuel sozusagen ein Mischling und nicht ganz hellhäutig war. Die Tempelritter waren eine
+militärische Eliteeinheit, die direkt unter der Leitung des Papstes standen und während der Kreuzzüge eine grosse Rolle
+spielten, doch wurde er (Anm.: der Templerorden) schon um 1118 im damals christlich beherrschten Königreich Jerusalem
+gegründet. Was an Chroniken und Geschichtsfälschungen geschrieben wurde und weiter wird bezüglich dem, was im NAZIReich wirklich Grausames geschah und an Fälschungen noch heute lügnerisch verbreitet wird, was die SS-Organisation an
+ungeheuren Menschheitsverbrechen wirklich beging, das wird irgendwie extra fälschlich behauptet oder aus absolutem
+Unwissen verschwiegen und gar beschönigt. Besonders die beschönigenden Lügen und auch all die Betrügereien, die aber
+wohlweislich nicht als Beweis der effectiven Wahrheit auf Celluloid festgehalten wurden, würden allerhand an schrecklicher
+Unmenschlichkeit beweisen, die sich ein sogenannter normaler Mensch nicht vorstellen kann. Wahrlich sind sie derart unmenschlich, dass ich darüber nichts weiter laut sagen will, denn das würde nicht nur von jenen NeoNAZIs sowieso bestritten, die nebst den Rechtschaffenen der Regierenden zur heutigen Zeit als NeoNAZI-Pack in der deutschen Regierung hocken
+und Waffen, Munition und Geld an Selensky liefern, sondern auch von den Menschen überhaupt, weil sie sich die ausgeartete Grausamkeit nicht einmal in ihren schlimmsten Albträumen vorstellen könnten. Die Albträume und Greuel der
+Menschheit gehen aber auch als Wirklichkeit in der Welt weiter und geschehen, ohne dass sie beendet werden können.
+Dabei denke man nur an diesen weltweit um Waffen, Munition und Geld bettelnden Kriegslüstling Selensky, der durch all
+die Zuwendungen des NeoNAZI-Packs den Ukrainekrieg im Auftrag Amerikas immer weiterführt und dieser nicht beendet
+werden kann. So haben die Rechtschaffenen der Regierung und der Teil des Volkes – wie es auch in der Schweiz ist –, die
+wirklich und ehrlich Frieden, Freiheit und Neutralität wollen, keine Chance, dass diese hohen Werte Wirklichkeit werden
+können. Die Fehlbaren sind nicht nur Landesverräter, sondern auch Friedensverräter, Freiheitsverräter und Neutralitätsverräter und gehören nicht in die Regierung, und zwar nicht nur in Deutschland, sondern auch in der Schweiz und in jedem
+anderen Land nicht, denn solcherart Gesindel führt ein Volk nur in Elend und Unfreiheit, Unfrieden sowie letztendlich in
+Krieg und Verderben. Und dass auch von der Schweiz an solche Gestalten, wie eben Selensky, Geld in Millionen- und Milliardenhöhe ‹geliefert› wird, weil es für das Land und Volk als ‹Entwicklungshilfe› dienen soll, von dem sich aber die Oberen
+der Regierungen selbst bereichern, was natürlich vehement bestritten wird, das schlägt allen Fässern die Böden raus. Und
+dies besonders darum, weil die Oberen der Regierung – auch der Schweiz – diesbezüglich das viele Geld der Steuerzahler
+an das und jenes Ausland verschleudern, weil sie auf ‹gut Kind› machen und Ansehen gewinnen und als gute Menschen
+dastehen wollen. Aber dass die Verantwortlichen der Regierung – wie auch die Betreiber der sogenannten Hilfsorganisationen, die gesetzmässig erlaubt meines Wissens etwa 40% ihrer Betteleinnahmen als ‹Umtriebsgeld› usw. kassieren dürfen
+– jene Menschen im eigenen Land praktisch ‹elend verrecken› lassen, die es dringendst nötig haben, dass ihnen mit Geld
+geholfen und ‹unter die Arme› gegriffen wird, damit sie des Rechtens leben können und dafür alles Notwendige haben, das
+wird völlig ausser acht gelassen. So werden Millionen- und Milliardenbeträge von Steuergeldern ins Ausland ‹gespendet›,
+während im eigenen Land bei vielen Menschen der Bevölkerung Armut herrscht und gar viele regelrecht krepieren, anstatt
+dass ihnen geholfen wird und sie nicht elend in Armut dahinsiechen müssen. Und das in einem Land wie der Schweiz, das
+nur so von Reichtum strotzt, jedoch bezüglich der Gesellschaft nur jene achtet, die recht hohe Steuern zahlen, jedoch jene,
+welche sonst schon nicht genug Geld zum Leben haben, noch nach Möglichkeit mit Steuern ausbeutet und sie krepieren
+lässt, während Unmengen an Millionen- oder gar Milliardenbeträgen unter dem schmierigen Deckmantel der angeblichen
+‹Entwicklungshilfe› ins Ausland abtransportiert werden, um auf ‹gut Kind› zu machen. Eine effective Tatsache, die jedoch
+von den Schuldbaren vehement bestritten und geleugnet wird, wie besonders auch von den im Volk einhergehenden ‹Blauäugigen› das Ganze aus dem Licht des religiösen oder weltlichen Glaubens gesehen und ‹beurteilt› wird, die eben daran
+glauben, dass alles mit rechten Dingen zugehe und alles bester Ordnung sei. Dies, weil es doch nicht sein könne, dass derart
+viel Lug und Betrug die Welt beherrsche und es nicht sein könne, dass gar jeder Steuerzahler nach Strich und Faden einfach
+schändlich über den Tisch gezogen und sinnlos ausgebeutet werde.
+Nun, in der Hitze des Gefechtes bin ich etwas abgewichen vom eigentlichen Thema, dann also zu diesem zurück: Wenn
+heute die Werke von Salvador Dali völlig neutral unter die Lupe genommen werden, dann ist die Wahrheit die, dass er seine
+Radierplatten nicht selbst gravierte, sondern diese von verschiedenen Graveuren herstellen liess, wie zudem etwa 85 Prozent der sich im Umlauf befindenden Dali-Werke nur Fälschungen sind, wofür er gar selbst die Hand im Spiel hatte, um sie
+zu verbreiten. Und wenn die Gebrüder Grimm in Augenschein genommen werden, dann ist zu sagen, dass diese nie ein
+einziges eigenes Märchen geschrieben, sondern alles zusammengeklaut haben und diese nur aufmotzten. So und nicht
+anders ging es leider schon vor der Antike vor sich, und zwar zigtausendfach, denn alle Fälschungen jeder Form – wobei es
+immer um Geld und Ansehen ging, wie aber auch um Politik – erfolgten immer weiter und weiter. Und so ging es besonders
+los vor rund 2500 Jahren, da in dieser Weise alles eigentlich gewerbsmässig seinen Anfang fand. Besonders krass begann
+es vor etwa 1000 Jahren, und seit damals hat es derart eingerissen, dass dieserart alles endlos weiterging und nun auch so
+in die Zukunft führt und wohl niemals ein Ende findet. Heutzutage wird weltweit praktisch alles gefälscht, folglich nichts
+mehr vor Fälschern sicher ist, denn die Welt will betrogen sein, wie es schon seit alter Zeit von den Römern her heisst, die
+sagten «Mundus vult decipi». Also soll die Welt betrogen sein, und tatsächlich ist nichts mehr vor Fälschungen sicher, auch
+nicht die Lebensmittel, die – wenn sie nicht als Gemüse direkt aus dem Garten kommen – mit allerhand ungesunden und
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+gesetzlich erlaubten oder auch unerlaubten ‹Zutaten› zusammengepanscht werden, teils mit effectiv leicht oder schwer
+gesundheitsschädlichen chemischen Giftstoffen.
+Was ich aber nicht vergessen will, was ich schon im Gespräch in der Küche gesagt habe, dass auch Helvetien resp. die
+spätere Schweiz von diesen Fälschungen betroffen ist, und zwar ebenso recht happig bezüglich der Chronik, worüber aber
+gefälligst nicht offiziell gesprochen, sondern alles geleugnet und das Volk hinters Licht geführt und natürlich alles bestritten
+wird. Die Schweiz – die schon vor rund 650‘000 Jahren menschliches Leben trug, was natürlich von ‹Fachleuten› bestritten
+wird – wurde noch zur Zeit der Römer, von denen sehr ferne Nachfahren noch heute in der Deutschschweiz als einheimische
+Bewohner leben, aus Gebieten der Nordländer Europas teilweise von antiken keltischen Volkstämmen besiedelt. Das war
+etwa vor 2100 Jahren oder so, wobei aber schon lange davor und vor den Römern einmal die Vor-Kelten – wenn ich so
+sagen darf – hier im Gebiet der Schweiz waren, folglich die Schweizer von heute darauf zurückblicken könnten, wenn sie
+das wüssten, wie aber auch auf Vorfahren, die Alamannen und also nicht nur keltisch waren, wie eben nicht nur die Helvetier. Als jedoch die Helvetier-Kelten hier waren, da lebte – berichtet die Geschichte – ein reicher bedeutender Adliger namens Orgetorix hier, der das Ruder geschwungen hat, was durchaus richtig ist, wie ich sagte – keltisch wird Orgetorix als
+‹König der Totschläger› übersetzt –, der sich etwa vor 2065 Jahren dann selbst gerichtet hat, wie Sfath sagte. Orgetorix war,
+wie Sfath auch sagte, fanatisch darum bemüht gewesen, sich zum König über ganz Gallien aufzuschwingen und dieses zu
+erobern. Er erklärte jedoch auch, dass er deswegen damals vom Stammesgericht zur Verantwortung gezogen werden sollte,
+dem er sich jedoch für kurze Zeit noch zu entziehen vermochte, jedoch dann keinen Ausweg mehr sah und sich bald darauf
+durch Selbstmord richtete. Dazu weiss ich noch, dass jemand ein Gedicht über Orgetorix schrieb, das ich in der Schule
+auswendig lernen musste, doch kann ich mich nicht mehr voll daran erinnern, denn seit ich den Hirnschlag hatte, hapert es
+eben mit meiner Erinnerung. Folgedem weiss ich davon nur noch einiges bruchstückweise, wie z.B. der Anfang, der so geht:
+
+«Es standen im Ring auf grasiger Au
+Helvetiens Mannen aus jeglichem Gau,
+die Mannen vom ganzen Land;
+sie standen beisammen in Waffen und Wehr,
+die wuchtige Keule, den spitzigen Speer,
+die hatte jeder zur Hand.
+Und mitten im Ringe flammenden Blicks,
+da stand der Häuptling Orgetorix.»
+
+Zu mehr reicht meine Erinnerung leider nicht, und wer das Gedicht geschrieben hat, das ist recht lang her, und dazu ist
+meine Erinnerung auch weg.
+Nun aber weiter bezüglich dem, was ich noch sagen will bezüglich Fälschungen: Da ist z.B. in der Schweiz eine Bündnisurkunde der Waldstätte von 1291, die belegen soll, dass diese noch zur Helvetien-Zeit gefertigt worden sei, was erstunken
+und erlogen ist, denn diese ‹Urkunde› wurde erst sehr viel später als Fälschung erstellt. Dies also, wie auch die ‹Mutter
+Helvetia› – die z.B. auf den 1- und 2-Frankenstücken mit Schild prangt: Tell auf dem 5-Frankenstück – als Landesmutterfigur
+sowie als Repräsentationsfigur erst etwa Mitte der Jahre von 1600 auftauchte. Die Schweiz nennt sich Eidgenossenschaft,
+was grundsätzlich auf die Sage des Rütlischwures und also auf diesen ‹Eid› zurückführt, denn mit dieser Sage wird dahergelogen, dass am 1. August 1291 Uri, Schwyz und Unterwalden durch die Mannen Werner Stauffacher von Schwyz, Walter
+Fürst von Uri und Arnold von Melchtal aus Unterwalden auf dem Rütli ein Bund geschlossen worden sei, um das Ganze mit
+einem Aufbegehren gegen die Vögte durch einen Schwur auf einer Bergwiese zu ‹besiegeln› – hoch über dem Vierwaldstätter-See, auf einer kleinen Rodung, eben ‹Rütli› genannt. Dabei wird den Mannen in den Mund gelegt, dass sie gesagt
+haben sollen:
+
+«Wir wollen sein ein einzig Volk von Brüdern,
+in keiner Not uns trennen und Gefahr.
+Wir wollen frei sein, wie die Väter waren,
+eher den Tod, als in der Knechtschaft leben.
+Wir wollen trauen auf den höchsten Gott
+uns nicht fürchten vor der Macht der Menschen.»
+
+Anderweitig erzählt jedoch eine andere ‹historische› Quelle, dass dieses Ereignis rund 16 Jahre später stattgefunden habe,
+und zwar soll sich dieses Ereignis am 8. November 1307 ergeben haben, wobei erst dann die 3 Mannen aus Uri, Schwyz und
+Unterwalden den Rütlischwur der Waldstätte geleistet haben sollen. Dabei soll also dann auch die Verpflichtung gewesen
+sein, einander gegen fremde Ansprüche und Einmischungen beizustehen. Was wirklich war, sah etwas anders aus, wie auch
+bezüglich der Schlacht bei Sempach im Jahr 1386, als sich angeblich Arnold von Winkelried, der Nidwaldner, ‹mutig› in die
+Speere der Gegner resp. der Habsburger-Ritter des Herzogtum-Österreich geworfen haben soll, um damit eine Lücke zu
+‹schlagen›, dass die Schweizer den Sieg erringen konnten. Dabei soll Winkelried grossartig und ‹gottergeben› gerufen haben: «Treue liebe Eidgenossen, sorget für mein Weib und meine Kinder, und gedenket meines Geschlechts.» Helden
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+braucht es immer – ob sie echt sind, taugen oder nicht –, aber es ist nicht nur das Volk blöd irreführend, wie z.B. Winkelried
+heroisch zu erfinden und zu erheben, damit das Volk belogen und betrogen wird und an die Lüge glaubt, wenn die Wahrheit
+die ist, dass dieser – wenn es dieser Winkelried war – nur voller Wut geschrien hat «Mannen macht die Hunde tot», um
+dann einige Minuten später selbst tot gemacht zu werden, indem ihm ein Speer durch die Kehle gestossen wurde. Doch
+diese Wahrheit will niemand wissen, denn wie üblich braucht es einen imaginären Helden, damit der Heroismus erhalten
+bleibt.
+So ist also ein ‹wahrer› Schweizer-Held erkoren worden, wie auch Wilhelm Tell zum Nationalhelden erhoben wurde, der
+von Friedrich Schiller mit der Tell-Saga zurechtgeschustert wurde, und zwar als weitere Phantasiegeschichte, wie sie schon
+in der Wiolantsaga resp. Wielandsaga gegeben war, die in verschiedenen Varianten existiert, jedoch im Handlungskern
+übereinstimmt. Da wurde nämlich in der germanischen Mythologie für diese Heldensage die halbgöttliche Gestalt eines
+germanischen Schmiedes erfunden, der als wahrer Künstler galt und aus ‹Gotensitz› stammen sollte, was im heutigen Südtirol als ‹Gossensass› genannt und im Pfleschertal zu finden ist. Im sogenannten Völundlied der Lieder-Edda wird Wieland
+‹Völund› genannt und hatte 2 Brüder, Schlagfidr und Egil, wobei letzterer ein berühmter Bogenschütze und Jäger war.
+Dieser wurde vom König gezwungen, einen Apfel vom Kopf seines dreijährigen Sohnes zu schiessen, wonach Schiller dann
+diese Saga nutzte, um daraus die Schweizersaga des Nationalhelden Wilhelm Tell zu fertigen, wobei dieser Tell bis heute in
+der durchaus ‹wahren Entstehungsgeschichte› der Schweiz herumgeistert, was natürlich bei Chronik-Fanatikern als effective Wahrheit verfechtet, mir aber von Jugend an gar böse Gewalt brachte, wenn ich etwas gegen die Lügen und Betrügereien und also die Wahrheit gesagt habe. Doch die Saga des Apfelschusses kommt noch in anderen ‹echten› Überlieferungen vor, wie z.B. im William of Cloudesley usw.
+Nun, frühe Schweden oder so sind also vor langer Zeit als keltische Gruppe Helvetier eingewandert, wobei ein Anführer
+namens Orgetorix eine Rolle gespielt hat, worüber, wie ich gesagt habe, also auch ein Gedicht geschrieben wurde. Da damals auch die Alamannen ihre Sprache beibehielten, wobei aber die Burgunder das Latein der Besatzer – das als Vulgärlatein genannt wird – angenommen haben, behielten und dieses verbreitet wurde, wird in der Schweiz heute keine einheitliche Sprache gesprochen, sondern Schweizerdeutsch mit verschiedensten Dialekten, wie auch Hochdeutsch, Französisch,
+Italienisch und Romanisch.
+Nun, Fälschungen sind schon seit alters her rund um die Welt gegeben, dies besonders schon seit der Antike, im letzten
+Jahrhundert und im 21. Jahrhundert ebenfalls; da ist z.B. bezüglich der Fälschung der Kontaktberichte Hans Glanzmann zu
+nennen, wie aber auch Ilse von Jacobi und den W…, dann Dr. … sowie auch die Organisation …, die sich aber inzwischen
+aufgelöst hat. Aber leider hat sich inzwischen seither in 5 verschiedenen Staaten das gleiche ergeben – neuerlich eben
+dieser Reach alias sowieso. Folgedem ist sehr streng darauf zu achten, dass durch stetige Kontrolle darauf geschaut wird,
+dass keine weibliche oder männliche Personen ‹schamlose Lügenwerke› aus den Kontaktberichten fälschen und gar behaupten, dass sie Kontakt mit euch hätten, obw…
+
+**Ptaah** … was in jedem Fall einer Lüge entspricht, denn ausser mit dir, üben wir keinerlei Kontakte mit Erdenmenschen
+oder mit irgendwelchen Erdenwesen anderer Gattung oder Art aus.
+
+**Billy** Natürlich nicht, doch Lug und Betrug braucht der Erdling, welcher lügt und betrügt, nicht zu kaufen, denn die sind
+gratis. Für Lügner und Betrüger ist ihr Tun Reichtum, gleich wie aus Lug und Betrug Macht und Politik resultieren, was nichts
+anderes ist als die Ungerechtigkeit der Menschheit. Alle Möglichkeiten und nur kleinste Abweichungen von der Wahrheit,
+wie auch grosse Verfälschungen und irgendwelche Abarten usw. schaffen neue Begriffsgeschichten, Fälschungen, Lügen
+und Betrügereien und damit auch den Begriff ‹Pseudologia phantastica›, wie auch für viele Menschen dann der Begriff
+‹chronischer Lügner› und ‹chronischer Betrüger› zutrifft, weil sie effectiv solche werden.
+Gesagt sei jedoch noch, wenn ich jetzt zum Schluss nochmals darauf zurückkomme, dass weder die FIGU noch ich persönlich
+uns weiterhin mit all den irren und wirren lügnerischen Anschuldigungen und Betrügereien des Jedaiah Ramnarine alias
+Jedi Reach und seiner Sekte befassen, die neuerdings internetmässig in verschiedenen Foren aufgeschaltet sind. Es sei jeder
+Person freigestellt, vom ganzen Unsinn, den Lügen, Betrügereien, dem sektiererischen Grössenwahn, wie auch der Geldgier
+und sonstigen Profitsucht aller Art, der Selbsterhebung zum Ischwisch und Weisesten aller Weisen, wie jedoch auch von
+der krankhaften Arbeitsabneigung und den Glaubensverführungskünsten nur so strotzenden Machenschaften des Sektierers abhängig zu werden. Mehr ist aus vernünftiger Sicht nicht zu sagen für jene Menschen, welche noch ihres Verstandes
+und ihrer eigenen Gedanken sowie der Selbstentscheidung und des Selbsthandelns einigermassen trächtig und nicht völlig
+irr und wirr einem Glauben verfallen sind. Mehr ist wohl zu all den hassvoll geifernden und haltlosen Anschuldigungen,
+Lügen und Betrügereien des Jedaiah Ramnarine alias Jedi Reach nicht zu sagen, denn die effective Wahrheit ist zu erhaben,
+um sie rechtfertigen zu müssen.
+
+**Ptaah Das ist auch nicht notwendig, denn die Wahrheit spricht für sich selbst und kann niemals durch die schlimmsten**
+Lügen und Betrügereien vernichtet werden.
+
+**Billy** Ja, und es heisst ja, sie ist so beständig wie die Ewigkeit selbst, und diese sagt auch aus, dass sich zukünftig die
+Natur selbst gegen die Unvernunft des Menschen wenden wird, denn wie ich weiss, beginnt sie sich selbst gegen die Über
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+bevölkerung zu wehren, folglich die Menschen immer dümmer und auch anfälliger bezüglich Krankheiten werden, wie die
+Natur aber auch zuschlägt und die Zeugungsfähigkeit der Männer angreift und absinken lässt, die dadurch ganz zwangsläufig ihr diesbezügliches ‹Können› einbüssen, wie auch das weibliche Geschlecht in kommender Zeit unfruchtbarer und also
+empfängnisblind wird. Aber hier habe ich einen Artikel erhalten, den ich dir zeigen soll und den ich dir nicht vorenthalten
+will:
+
+## Kriegsnation USA: Der abschreckende ‹Leitstern Europas›
+_BLOG vom: 11.9.2009, Autorin: Lislott Pfaff, Schriftstellerin Liestal BL_
+
+Nachstehend meine Antwort auf die Behauptung eines Amerika-Fans, die USA dürften auf keinen Fall untergehen und
+müssten der ‹Leitstern› Europas sein und bleiben. Persönlich kann ich mir die Welt ohne USA, das heisst ohne das
+perverse Machtregime dieses Landes, gut vorstellen. Mit ‹Machtregime› meine ich nicht das amerikanische Volk, sondern die Herrschenden und Besitzenden in Amerika seit dessen Gründung. Der Schriftsteller Gore Vidal, der aus der
+US-Machtelite stammt, sagte im Verlauf eines Gesprächs im Juni 1999, die Truman-Doktrin von 1947 sei verlogen
+gewesen. «Angeblich wollten wir jedem Land zu einer guten Regierung, zu Freiheit und Demokratie verhelfen. Aber
+sie diente von Anfang an nur dazu, unser mächtiges militärisches Establishment zu rechtfertigen. Wir geben mehr für
+Rüstung aus als alle Staaten der westlichen Welt zusammen, und dafür braucht man gute Feinde. …» Diese Doktrin
+sage deutlich, worum es den USA seit dem Zweiten Weltkrieg ging: Die Kontrolle über die gesamte Erde zu erreichen.
+Doch dem amerikanischen Volk widerstrebt die Rolle des Weltpolizisten. Dieser furchtbare Ehrgeiz peinigt nur die
+Staatsführer. Der Amerikaner will sich nicht in kriegerische Auseinandersetzungen einmischen, «sondern bleibt am
+liebsten zu Hause, will viel Geld verdienen und sich in aller Ruhe sein Übergewicht anfressen.» (…) «Die amerikanische Armee rekrutiert sich aus den Armen, bei Weiss und Schwarz gleichermassen. Diese Söldnerarmee wird gut
+bezahlt.» Zum Kosovo-Krieg: Es braucht «ein gewaltiges Lügenwerk, als Desinformationskampagne inszeniert vom
+CIA, damit ständig Krisen am Köcheln gehalten werden.» Das Fernsehen erleichtert die Sache: Es liefert wunderbare
+Bilder von blonden blauäugigen Menschen, die gefoltert und aus ihren Dörfern vertrieben und abgeschlachtet werden. Damit lässt sich ein herrlich sentimentales Klima erzeugen. «Nach dem Untergang dieses Weltreichs werden die
+grossartigen Landschaften, die Wildtiere und Pflanzen (Mammutbäume usw.) zum Glück weiter existieren ─ vielleicht
+auch ein paar Indianer, Latinos und Weisse, die sich auf ein vernünftiges Leben eingeschworen haben. Ein ‹Leitstern
+_für Europa› kann aber eine Nation niemals sein, die von jeher expansionistisch eingestellt war und eine globale Ex-_
+pansion anstrebt – das alte Rom war dagegen ein Kinderspiel, musste aber auch untergehen, (siehe unten: ‹USA und
+Europa ─ Mars und Venus›). Der Niedergang wird sicher sehr langsam vor sich gehen, leider ─ so ist zu befürchten ─
+zulasten der Ärmsten im Lande. Die befinden sich ja jetzt schon auf dem absteigenden Ast. Jene, die das nötige Geld
+besitzen, werden sich in andere Länder absetzen. So lief das ja schon immer in der Geschichte der Menschheit. Die
+USA waren seit jeher eine kriegerische Nation (Hiroshima und Nagasaki, Vietnamkrieg usw.) und scheinen es auch
+unter dem Heilsbringer Barack Obama zu bleiben: Verstärkung der US-Armee in Afghanistan, Errichtung von 14
+neuen Armeestützpunkten in Kolumbien usw.
+
+**Obamas ‹Vision› einer atomwaffenfreien Zukunft: Obama kündigte in Prag an: «Wir müssen zusammen eintreten**
+für das Recht aller Menschen, überall frei und ohne Furcht im 21. Jahrhundert zu leben. Als einzige Atommacht, die
+diese Nuklearwaffe (die Atombombe) eingesetzt hat, haben die USA eine moralische Verpflichtung, hier zu handeln.»
+Gleichzeitig betonte der US-Präsident, die USA würden ihr atomares Potenzial so lange beibehalten, wie auch andere
+Staaten Atomwaffen hätten. Der Prozess werde wohl mehrere Jahrzehnte in Anspruch nehmen. «Wir müssen aber
+darauf bestehen und sagen: ‹Yes, we can!›» (lp: ein schöner Slogan ─ aber was bedeutet er?). Die Präsidenten Tschechiens und Polens vernahmen ein deutliches Bekenntnis Obamas zu den Raketenabwehrplänen von George W. Bush
+in den beiden Ländern. «Solange es den Iran und andere Bedrohungen gibt, werden wir auch solche Raketenabwehrsysteme brauchen», bekannte Obama. Der tschechische Regierungs-Chef Mirek Topolanek erfreut: «Obamas Rede
+machte unmissverständlich klar, dass das Raketenabwehrprojekt nicht beendet wird» (Quelle: ‹Mittelland-Zeitung›
+6.4.2009).
+**USA und Europa: Mars und Venus (Robert Kagan) Der US-Autor und ‹Neo-Cons›-Vordenker Robert Kagan: «Die**
+Amerikaner stammen vom Mars, die Europäer von der Venus.»* Die Neo-Konservativen hätten die Aussenpolitik der
+Bush-Administration massgeblich geprägt. Kagan ist überzeugt, dass sich Amerika und Europa aufgrund ihrer Geschichtserfahrung fundamental voneinander unterscheiden und ganz unterschiedliche Vorstellungen vom Einsatz militärischer Gewalt oder von der Rolle internationaler Institutionen und internationalen Rechts haben. Gemäss Kagan
+waren die USA expansionistisch, seit der erste Pilger seinen Fuss auf den Kontinent setzte. Der Drang, sich in fremde
+Angelegenheiten einzumischen, sei «Teil von Amerikas DNA». Amerika sei seit 1776 eine revolutionäre Macht, welche
+Veränderung anstrebe. Liberalismus und Individualismus dienten als Legitimation für die Westexpansion und für die
+spätere globale Expansion. Amerika sei von Beginn an eine ‹gefährliche Nation› gewesen, so Kagan. Statt ‹Geoökonomie› sei heute wieder ‹Geopolitik› wichtig, statt Weltinnenpolitik wieder das Konzert der Mächte wie im 19. Jahrhundert. (lp: Dieses Land soll der ‹Leitstern Europas› sein? Nein danke!)
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Kommentare* Ich bin lieber ein Abkömmling der Venus als des Mars. Aber der Standpunkt ‹USA als Leitstern Euro-**
+pas› passt natürlich ausgezeichnet in den herrschenden medialen Mainstream. Damit hat kein Journalist Mühe, erfolgreich zu sein. Oder wie es Kurt Tucholsky ausdrückte: «Nichts ist schwerer, als sich in offenem Gegensatz zu seiner
+Zeit zu befinden und zu sagen: Nein!»
+
+**Ptaah** Was soll ich dazu sagen – Das Ganze entspricht dem, was tatsächlich ist.
+
+**Billy** Was eben ist, das ist derart, wie es ist. Aber hier hat mir Achim noch etwas gemailt, vom dem ich denke, dass ich
+es dir auch zeigen soll:
+
+Quelle: Facebook
+
+Achim Wolf, Deutschland
+
+**Ptaah** Das Ganze entspricht dem, worüber der Erdenmensch effectiv gründlich nachdenken sollte. Dann käme es soweit,
+dass im Normalfall die Worte wirklich begriffen und verstanden würden und der Mensch von seinem Scheindenken wegkommen und keine Kriege mehr führen würde, wie diese gegenwärtig Zigtausende Tote im Nahen Osten sowie in der Ukraine fordern.
+
+**Billy** Krieg ist immer Gewalt, und Gewalt bringt immer weitere Gewalt, das aber will der Erdling nicht begreifen, und er
+versteht dabei auch nicht, dass er sich der Gewaltlosigkeit zuwenden soll, doch dies bedarf Mut und Stärke. Und dass die
+Gewalt, die er dauernd und bei jeder Gelegenheit anwendet, niemals Frieden und Freiheit bringt, sondern immer nur weitere Gewalt, das will und kann er in seinem Unverstand nicht verstehen. Und das hängt sehr oft damit zusammen, dass er
+sich damit nicht ausgiebig beschäftigt, sondern dem Grübeln und Scheingedanken nachhängt und nicht für alles bereit ist,
+wirklich bewusst zu denken, sondern lieber glaubt. So lässt er einfach in Gleichgültigkeit alles laufen und geschehen, wie es
+sich direkt und momentan, künftighin oder gar ferner zukünftig ergibt, und zwar egal, dass dabei sehr oft Unfrieden, Streit,
+Gewalt, Mord und Totschlag und gar Krieg und Terror mit Zerstörung und Vernichtung entstehen. Ausserdem ist dies dabei
+immer mit Militär verbunden, wenn sich das Unfriedliche auf einen Staat bezieht, doch Militär ist in jedem Fall eine Mördergesellschaft, die nur mit Mord, Gewalt, Zerstörung und Vernichtung ihr blutiges Handwerk ausübt und damit niemals
+Frieden schafft oder diesen mit Morden und anderen Bösartigkeiten ‹verteidigt›. Auch eine ‹Bewaffnete Neutralität›, die
+zur ‹Selbstverteidigung› gelten soll, ist Lug und Trug, denn eine ‹Bewaffnete Neutralität› ist dann, wenn die Bewaffnung
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+zur Selbstverteidigung mit Waffen vorgesehen ist, absolut nichtig. Eine wahre Neutralität darf nicht bewaffnet sein und
+folglich auch kein Militär haben, das mit Waffen drohend eine militärische Intervention von Selbstverteidigung proklamiert,
+denn eine staatlich wahre Neutralität beruht und garantiert nicht allein nur eine absolute Unparteilichkeit und Nichteinmischung in irgendwelche Angelegenheiten fremder Staaten, sondern auch eine allumfängliche Gewaltlosigkeit. Diese erfordert jedoch wahres Vertrauen in sie, wie auch Mut und Stärke des Menschen, um diese wahrlich zu leben und zu pflegen,
+sie bewusst treu auszuüben und sich absolut klar zu sein, dass gegenteilig Gewalt immer wieder Gegengewalt bringt. Folgedem bringt Gewalt nur wieder Gewalt, Rache und Vergeltung, Mord, Folter, Totschlag, Zerstörung, Vergewaltigung, Vernichtung und gar Aus-rottung, jedoch niemals einen effectiven Frieden. Eine ‹Bewaffnete Neutralität›, wie sie die Schweiz
+hat, wird durch Landesverräter zur Sau gemacht, indem von der EU-Diktatur Sanktionen übernommen und gegen ein fremdes Land – in diesem Fall – gegen Russland verhängt werden. Da fragt sich, welche Art von Schweizer denn das ist, wer
+solches praktiziert – wohl kaum jemand, der wirklich effectiv das Vaterland ehrt, würdigt und schätzt –, und nicht weiss,
+was wirklich Neutralität und Bewahrung der Freiheit und des Friedens sowie Schutz des Lebens ist. Also ein mies gesinnter
+Mensch, der nur als schlechte Kreatur mit einer verkommenen Gesinnung einhergeht und völlig verantwortungslos und
+verräterisch handelt – auch wenn dieser Mensch gewählt in der Regierung hockt und nicht einmal ein schlechtes Gewissen
+und den Anstand hat, sich in reuiger Form in aller Offenheit landesweit beim Volk zu entschuldigen, das und dessen Heimatland schmählich verraten wurde. Das ist das, was ich denke, und auch noch dazu, dass solche Landesverräterpersonen
+nicht des Schweizerbürgerrechtes würdig sind.
+
+**Ptaah** Du sprichst ein klares Wort, was der schuldbaren Person und ihren Befürwortern nicht gerade Freude bereitet.
+
+**Billy** Das ist mir klar, doch jene, welche das landesverräterische Handeln dieser miesen Landesverrat-Person in irgendeiner Weise befürworten und unterstützen, sind nicht besser als diese selbst und wie jene, welche mit der EU-Diktatur und
+der NATO-Mörderorganisation liebäugeln und deren Mitgliedschaft anstreben. Auch das ist Landesverrat, weil auch
+dadurch die Neutralität des Vaterlandes zur Sau gemacht und dadurch die Freiheit und der Friede der Schweiz und damit
+deren gesamter Bevölkerung zerstört würde.
+
+**Ptaah** Das stimmt wohl, doch du wirst mit deinen Worten Feinde ‹gewinnen›, denn es werden wohl Negierende auftreten, die in ihrer Gesinnung nicht der Wahrheit gemäss geartet sind und jeder Falschheit und dem Unrechten nachsichtig
+und bagatellisierend und diesbezüglich der Wahrheit entgegenstehen.
+
+**Billy** Das weiss ich, doch ist das falsch, denn entweder gilt das Recht und die Wahrheit, wodurch Ordnung, Friede, Freiheit und Rechtschaffenheit gegeben sind, oder es herrscht Chaos und damit Unrecht, Unwahrheit, Unfriede, Unfreiheit,
+Unrechtschaffenheit und Misswirtschaft.
+
+**Ptaah** Effectiv – das ist so.
+
+**Billy** Eben. – Sieh aber hier, da habe ich noch einen Artikel erhalten, den ich dir zeigen soll. Allerdings habe ich kein Bild
+dazu erhalten und bin auch nicht gewillt, selbst etwas dazu zu sagen. Aber lies selbst:
+
+**Ptaah** …
+
+## INFOsperber
+
+_Die Schweizer Flagge weht auch am Sitz der UNO in Genf. © vivairina/Depositphotos_
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+## Die Neutralitätsinitiative als Chance für eine Kurskorrektur
+_Verena Tobler / 21.4.2024_
+
+### Die Schweiz soll sich um die UNO kümmern und nicht um die NATO. 
+**Es braucht eine radikale Abkehr von neoliberalen Paradoxen.**
+Verena Tobler © zvg
+
+_Red. Die Mediatorin, Soziologin und Ethnologin Verena Tobler ist Expertin für Migration und interkulturelle Ko-Existenz._
+_Sie gehört zu den systemkritischen Linken und Grünen, welche die Neutralitätsinitiative unterstützen._
+
+Georg Häsler, Sicherheits- und Militärexperte der NZZ, behauptete am 12.4.24, in der Neutralitätsinitiative würden
+sich die revisionistische Sehnsucht der SVP nach dem 19. Jahrhundert mit der linken Anti-NATO-Rhetorik vereinigen.
+
+**Knapp zusammengefasst, fordert die Initiative aber viererlei:**
+1. Der Schweiz behält ihre Verteidigungsarmee für den Fall, dass sie angegriffen wird.
+2. Unserem Land ist es verboten, einem Kriegsbündnis – im Klartext: der NATO – beizutreten.
+3. Die Schweiz trägt die Sanktionen der UNO mit – dem wichtigsten Organ der globalen Staatenwelt.
+4. Sie nutzt ihre Neutralität, um zu vermitteln und Konflikte zu verhindern oder beizulegen.
+
+Für systemkritische Linke und Grüne sind die drei Neuerungen wichtig: Die Schweiz verbündet sich nicht mit der
+NATO: jenem aggressiven Verband, der seit 75 Jahren die westliche Vorherrschaft behauptet. Stattdessen orientiert
+sich unser Land künftig an der UNO, öffnet sich für die Probleme und Interessen der globalen Staatenwelt. Und wenn
+die Menschen auf unserem Planeten eine Zukunft haben sollen, wird Friedensarbeit zur Pflicht. Kurz: Die Neutralitätsinitiative erlaubt eine Kurskorrektur!
+
+**Die Meistererzählung der Moderne ist am Scheitern**
+Die Geschichte des Schiffbruchs in wenigen Zeilen: Seit dem 16. Jahrhundert bauten sich Europa und seine Ableger
+USA, Kanada, Australien energetisch-technologisch, finanziell, juristisch und organisatorisch einen überlegenen
+Machtapparat auf. Die westliche Herrschaft beruhte auf Kolonialisierung, Sklaverei, Ausbeutung und Unterdrückung.
+Trotz der formellen Entkolonialisierung blieben den einstigen Herren viele Vorteile: Alle westlichen Staaten sind
+heute modern, sprich monetär organisiert. Dank massiver Konzentration des Kapitals geniesst die Bevölkerung einen
+überdurchschnittlich hohen Lebens- und Konsumstandard. In westlichen Wohlfahrtstaat gehören eine ausreichende
+medizinische Versorgung, ein zufriedenstellendes Bildungssystem genauso dazu wie all die Versicherungen, die den
+Alten, Invaliden, Arbeitslosen, Hinterbliebenen und Kranken das Leben erleichtern – alles monetär basierte Institutionen.
+Aber all diese Errungenschaften sind nur dort möglich, wo die Bevölkerungsmehrheit eine formelle Erwerbsarbeit
+hat Diese Voraussetzung fehlt in armen Staaten bis heute. Ein eklatantes Manko, wurde einst doch allen, die bei liberalen Weltwirtschaften mitmachten, wirtschaftliche Entwicklung und individuelle Freiheiten versprochen. Doch erst
+das Geld macht Individuen ‹frei› im westlichen Sinn.
+So hat der Westen sich und was er als ‹Restwelt› behandelt in eine dreifache Katastrophe geführt:
+
+1. Gewaltige Ungleichentwicklung:
+Die komparativen Kostenvorteile, die der Freihandel verspricht, sind insofern eine Mär, als die Vorteile für wirtschaftlich schwächere Staaten und deren Unternehmungen weit geringer sind als für jene mit dem überlegenen Machtapparat. Deshalb blieben strukturschwache Staaten in der Armutsfalle stecken.
+Viele Länder in Asien konnten dieser Falle entgehen: Sie hatten bereits vorkolonial eine durchstrukturierte Staatstradition: eine amtliche Bürokratie mit Schrift, Geld, Buchhaltung, Steuerabgaben, die auf beruflicher Arbeitsteilung und
+Märkten beruhte. Diese Staaten öffneten ihre Märkte erst, nachdem sie ausreichend wettbewerbsfähig waren.
+Für die Länder Afrikas, vorab südlich der Sahara, gilt das Gegenteil: Als strukturschwache Staaten sind sie dem globalen Wettbewerb nicht gewachsen. Sie wurden ‹vertikal› integriert: a priori ausgerichtet an den Interessen der westlichen Staaten und deren Konzerne. Oft in Kooperation mit den jeweiligen afrikanischen Regierungen – ein Einfallstor
+für Korruption.
+Derartige Ungleichgewichte lösen stets Wanderbewegungen aus – zuerst vom Land in die Stadt, heute von Süd nach
+Nord.
+
+2. Klimaerwärmung und bedrohte Biodiversität:
+Das liberale beziehungsweise neoliberale Weltwirtschaften hat unserem Planeten die Klimaerwärmung und die sinkende Biodiversität gebracht. Obwohl wir längst wissen, dass der westliche Lebensstil nicht globalisierbar ist, halten
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+wir an ihm fest. Ja, wir sind sogar so arrogant, dass wir den Rest der Welt an unseren eurozentrierten Wert- und
+Rechtsvorstellungen und unserem Überkonsum messen.
+
+3. Kriege zum Erhalten der Dominanz:
+Die USA und ihr verlängerter Arm, die NATO, führen seit Jahrzehnten offene und oft völkerrechtswidrige Kriege, um
+die Dominanz des Westens mit allen Mitteln zu erhalten. Nicht nur in Jugoslawien und gegen Afghanistan[[1]]. Auch
+andernorts haben die USA kriegerisch interveniert, oft unterstützt von ihren Verbündeten. Denn die imperiale Grossmacht will sich partout ihre monopolare Weltordnung und ihren hegemonialen Zugriff auf die Ressourcen sichern –
+im Irak, in Libyen, in Syrien, in der Ukraine[[2]] wie in Russland[[3]].
+Und was hat es gebracht? Seit Dekaden ist Europa, zusätzlich zur Wirtschaftsimmigration, mit Hunderttausenden
+Flüchtlingen konfrontiert. In den angegriffenen Staaten herrscht zumeist anhaltendes Chaos. Denn mit Krieg lassen
+sich weder die Ungleichentwicklung noch die Zustände vor Ort lösen.
+Den Grund dafür, dass die westlichen Staaten die USA unterstützen, hat die einstige britische Aussenministerin Liz
+Truss 2022 ‹bluntly› so auf den Punkt gebracht: «Wir brauchen eine Wirtschafts-NATO, die unseren Lebensstandard
+verteidigt.»[[4] ]Inzwischen drängen schier alle Staaten Europas in die NATO. Es droht ein Dritter Weltkrieg.
+In der Schweiz tragen Viola Amherd und Ignazio Cassis diesen Kurs unkritisch und willfährig mit. Befeuert von unseren Mainstream-Medien: NZZ, Tages-Anzeiger, SRF informieren längst nicht mehr umfassend und allseitig. Zum einen
+werden oft wichtige Informationen unterschlagen. Beispielsweise die, dass der Krieg in der Ukraine bereits 2014 begonnen hat – inzwischen von Nato-Generalsekretär Stoltenberg bestätigt. Oder die, dass die Briten im März 2022 der
+Ukraine untersagten, mit Russland einen Friedensvertrag zu erarbeiten.
+Zum andern sorgen die drei Medien wacker für ein manichäisches Weltbild: Angeblich kämpfen die Guten gegen die
+Bösen… der Nachhall zu George W. Bush’s verheerendem Krieg gegen die Achse des Bösen. Legitimiert werden diese
+Kriege stets mit westlichen Werten – ein widersinniges Unterfangen. Ich komme am Schluss darauf zurück.
+Systemkritische Linke und Grüne machen diesen Kurs nicht mit: Er führt geradewegs in den Abgrund.
+
+**Das ‹System› des grenzenlosen Wirtschaftswachstums**
+Der Kapitalismus ist per se am Wachstum orientiert. So stellen auch in der Schweiz sämtliche Grossparteien auf das
+ständige und grenzenlose Wirtschaftswachstum ab: von der SP bis zur SVP. Und dies, obwohl viele Ressourcen endlich
+sind, und obwohl der enorme Energieverbrauch, den der Zugriff auf die globalen Ressourcen erforderlich macht, das
+vielfältige Leben auf unserem Planeten bedroht: Das Klima und die Meere erwärmen sich, die Biosphäre wird zerstört.
+Und während der eine Teil der Menschheit auf dem grenzenlosen Zugriff auf die globalen Ressourcen beharrt, hat der
+andere Teil immer weniger zur Verfügung. Darum wandern die Menschen aus den Armutsregionen in die Schweiz
+oder in die USA ab in Territorialgesellschaften, die drei beziehungsweise sechs Planeten vernutzen.
+Diese systembedingt ungleichgewichtige Wachstumswirtschaft führt zu einem Teufelskreis. Dieser zeigt sich im Politiksystem der EU und in jenem der Schweiz in Form von paradoxen Sackgassen.
+
+**Die Migration vertieft laufend die systembedingten Ungleichgewichte**
+Primär verlassen Gebildete, Tüchtige und die Jungen die armen Staaten: ein Verlust, der Entwicklung für arme Staaten
+schwierig, wenn nicht sogar unmöglich macht. In der Schweiz nimmt mit der Zuwanderung indes die Zahl jener Einheimischen zu, die unter der Immigration leiden: Ihre Löhne bleiben tief oder sinken, der Wohnraum wird rar und
+stetig teurer. Und weil sie in Quartieren leben, die sich mit armen und weniger gebildeten Immigrierten füllen, kommt
+es oft zu ‹cultural clashes›.
+Deshalb murren viele Einheimische auf: Sie sind gegen Immigration, ja verunglimpfen die Immigrierten. In Frankreich
+stellt sich der benachteiligte Teil hinter das Rassemblement National, in Deutschland hinter die AfD, in der Schweiz
+hinter die SVP. Was die Anhänger der rechtsnationalen Parteien aber nicht wollen: die Ungleichgewichte zwischen
+dem armen und dem reichen Teil der Welt abbauen. Damit bleibt der Trend zur Abwanderung dort und zur Einwanderung hier erhalten: Was für ein Paradox.
+
+**Linke Solidarität und Entwicklungshilfe führen ebenfalls nicht zum nötigen Ausgleich**
+Zwar setzt sich Linksgrün für Individuen ein, die sich aus der armen Welt in den reichen Norden absetzen. Ausgeblendet aber wird, dass damit die strukturellen Ungleichgewichte auch im Innern der Herkunftsländer und im internationalen System weiter zunehmen: Die Abwanderung aus dem Süden und der Überkonsum im Norden bleiben erhalten.
+Nota bene mit allen Vorteilen, welche die Immigration in der Schweiz für die besser Gebildeten bringt: Sie sind beruflich gefragt – als Lehrer, als Ärztin, als Integrationsbeauftragte. Und sie können sich eine Putzfrau oder ein Kindermädchen leisten.
+Diese Bildungsschichten feiern gern die Multikulturalität ab. Sie verwiesen darauf, dass die Immigrierten viel Geld
+nach Hause schicken, um dort die Konsumchancen ihrer Lieben zu verbessern. Diese Familien-Solidarität verschafft
+zwar Privilegien, bremst jedoch – was im armen Land dringend nötig wäre – jene wirtschaftlichen und sozialen Ver
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+änderungen, die unabdingbar sind, damit ein Staat überfamiliale Solidarinstitutionen finanzieren kann, sich demokratisch organisiert und von unten kontrolliert werden kann.
+Immerhin: Die SP setzt sich für das Umverteilen in der Schweiz ein. Damit betreibt sie eine Parteipolitik, die von vielen
+eingebürgerten Zugewanderten und Frauen unterstützt wird. Aber auch diese Politik ist – Konzerninitiative hin oder
+her – ein Paradox: Sie ist nur möglich, solange die Schweiz sich ihre überlegene Potenz zur weltweiten Kapitalakkumulation erhalten kann. Das wiederum bringt weitere Zuwanderung. Und ganz aus dem Blick geraten jene grundlegenden Veränderungen der Wirtschaftsregeln, ohne die auch die Anstrengungen der Entwicklungshilfe zu unguter
+Letzt wirkungslos verpuffen.
+
+**Das Parteiprogramm der Grünen ist besonders paradox**
+Das Bevölkerungswachstum der Schweiz ist seit sieben Dekaden eines der grössten in Europa und führt die Idee der
+Biodiversität ad absurdum: «Die Schweiz – ein Land voller Häuser, Strassen, Schienen», war jüngst in einer Zeitung
+zu lesen. Gleichzeit werfen die Grünen den hiesigen Bauern vor, dass sie auf der rasch schwindenden Agrarfläche ihre
+Produktion intensivieren. Das ist aber Teil der Logik in unserem profitorientieren Wirtschaftssystem: Denn werden
+‹unsere› Bauern zu teuer, werden sie verzichtbar. Frau und Herr Schweizer kaufen dann ihre Grundnahrungsmittel
+billiger in Brasilien und Argentinien ein. Ebenfalls nicht bedacht: Auch Wasser und Elektrizität sind nicht grenzenlos
+verfügbar. Erwachen die Grünen erst, wenn alle Böden versiegelt, die Alpen mit Sonnenkollektoren verstellt sind und
+das Wasser sich verknappt?
+
+**Die Haltung der Liberalen ist ebenso paradox wie die der derzeitigen Mitte**
+Man hält bedingungslos am grenzenlosen Weiterwachsen fest und stellt sich hinter Kriege, die im Namen von Demokratie, Menschenrechten, individuellen Freiheiten geführt werden. Dabei dienen beide, Kriege und Freihandel, primär
+dazu, sich die Vorteile des neoliberalen Weltwirtschaftens zu erhalten. Betont wird, Migration sei nötig! Allerdings
+sollten die richtigen kommen: Fachkräfte und Wissenschaftlerinnen aus armen Ländern, von denen es dort ohnehin
+nur wenige gibt. Schamlos wird für den Brain Drain geworben. Im Klartext: Wir haben es mit ‹Entwicklungshilfe von
+unten› zu tun – die Ärmsten finanzieren die Reichsten! So passiert, was unvermeidlich ist: Es kommen auch Ungebildete und Unerwünschte – und zwar ‹en masse› – ein Dilemma, das der Liberalismus nicht lösen kann.
+
+**Systemkritische versuchen diesen Teufelskreis nüchtern und ohne Rancune aufzubrechen**
+Deshalb nun zurück zur ‹westlichen Wertegemeinschaft› – das Musterbeispiel für Systemblindheit.
+
+Im Jahr 2021 hatten 4,1 Milliarden Menschen keine monetäre Absicherung[[5]]. Das heisst: Für die Hälfte der Menschheit waren die leiblichen Kinder die einzige Altersversicherung. Und weil die Alten auf die Unterstützung ihrer physiologischen Kinder angewiesen sind, ist – auch aus rationalen Gründen – in armen Staaten beispielsweise die Homosexualität oft verpönt.
+Das sind zwar Ordnungsvorstellungen, die den Menschenrechten widersprechen und mit den Erwartungen der LGBTQ*-Community und vieler Feministinnen unvereinbar sind. Die Gründe dafür sind aber wirtschaftlicher Art: geschuldet den weltweiten Ungleichgewichten, der geringen Zahl an formellen Erwerbsarbeitsplätzen und, direkt damit verbunden, den fehlenden überfamilialen Solidarinstitutionen.
+So sind die vormonetären Solidarinstitutionen der wichtigste Grund dafür, dass im armen Teil der Welt an verbindli_chen Verwandtschafts-, Generationen- und Geschlechtsrollen festgehalten wird. Alle drei werden – wie früher bei uns_
+– von traditionalen oder religiösen Glaubensvorstellungen legitimiert und stabilisiert. Denn im armen Land sorgen
+keine staatlichen, sondern, wie früher bei uns, religiöse Institutionen – Kirchen, Moscheen, Tempel – für den überfamilialen Ausgleich.
+Warum aber entgeht uns, dass es keine Gesellschaft ohne verbindliche Rollen gibt? Wer nämlich die dort verbindlichen Primärrollen mit den hierzulande verbindlichen Sekundärrollen vergleicht, wird fragen, wie weit die hierarchisch geordneten Primärrollen in der armen Welt übertroffen werden von der Hierarchie, die für unsere Berufs- und
+Erwerbsrollen gilt.
+
+**Die Neutralitätsinitiative erlaubt der Schweiz die dringend nötige Kurskorrektur!**
+Die Neutralitätsinitiative schreibt unserem Land eine Weltoffenheit vor, die am Frieden und Ausgleich arbeitet und
+deshalb Schritte in Richtung sozialer und ökologischer Nachhaltigkeit anvisiert. Earthall, die Nachfolgeschrift von
+‹Grenzen des Wachstums›, betont: Klimaerwärmung und sinkende Biodiversität lassen sich nur dann aufhalten, wenn
+die Ungleichheit reduziert und auf Kriege verzichtet wird. Das pure Gegenteil von dem, was die NATO derzeit macht!
+Die UNO ist eine schwerfällige und intransparente Organisation. Aber was nicht ist, kann – ja muss sogar – noch werden. Zumindest, wenn Menschen künftig weltweit und in allen Staaten ein würdiges Leben haben sollen. Systemkritische Linke und Grüne sind überzeugt: Es ist machbarer und zukunftsträchtiger, sich für eine Reform der UNO einzusetzen, als sich dem verheerenden monopolaren Machtanspruch der USA und ihrem kriegerischen Arm, der NATO, zu
+beugen. Deshalb rufen wir alle Schweizer Bürgerinnen und Bürger auf, die Neutralitätsinitiative zu unterstützen.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Zurück zu Herrn Häsler und seiner NZZ: Wer kriegsbegeistert mit manichäischen Weltbildern operiert und vorgibt,
+in der Ukraine und in Israel würden die Guten gegen die Bösen kämpfen, führt die Schweiz in den Abgrund. Zudem
+gilt: Lagerdenken verdummt. Denn unsere Welt ist nicht nur ungleich, sondern auch höchst komplex. Dafür hat das
+System des liberalen und neoliberalen Weltwirtschaftens gesorgt – welche Herausforderung!
+Um die anstehenden Probleme zu lösen, sind wir auf mehr Komplexitätsintelligenz und Ambiguitätstoleranz angewiesen. Beide werden gestärkt, wenn wir informierte und sachbezogene Auseinandersetzungen und Debatten führen!
+_FUSSNOTEN_
+
+_[1] Der SR hatte den USA und ihren Verbündeten bewilligt, Al-Kaida zu bestrafen. Nicht bewilligt dagegen war der 20jährige Krieg_
+_gegen Afghanistan. Unter den Angreifern auf das WTC war nota bene kein einziger Afghane._
+
+_[2] Vgl. z.B.: War and Theft, The Takeover of Ukraine’s Agricultural Land. The Oaklandinstitute, 2023._
+
+_[3] Vgl. Le Monde diplomatique vom 12.03.1999, Frédéric F. Clairmont: Die Internationale der Plünderer, Sektion Russland._
+
+_[4] In German Foreign Policy: 24.06.22: The West against the Rest_
+
+_[5] Aus: Eine Welt: DEZA-Magazin 27.6.2022: 25._
+
+**Billy** Das ist zwar gesamthaft gesehen eine Sache, die politisch zu werten ist, weshalb ich mich nicht dreinmischen und
+auch keine Ansicht dazu zu äussern will. Dir zum Lesen habe ich sie nur gegeben, weil ich darum gebeten wurde, wobei ich
+aber denke, dass du …
+
+**Ptaah** … gleicherweise wie du das zur Kenntnis nehme, was in diesem Artikel geschrieben ist, jedoch keinerlei Stellung
+dazu nehmen werde. Doch jetzt ist die Zeit weit fortgeschritten, und es wurde sehr viel gesprochen, da denke ich, dass wir
+unser Gespräch für heute beenden und ich zudem meiner Pflicht nachzugehen habe.
+
+**Billy** Du hast recht – in der Hitze des Gefechtes habe ich nicht auf die Uhr gesehen, wie die Zeit dahingeflossen ist. Es
+ist wirklich viel gesprochen worden, wozu ich denke, dass ich Bermundas Hilfe brauche, um dann einigermassen schnell
+alles abzurufen und niederzuschreiben. Es ist wohl gut, wenn ich sofort damit beginne, wenn du weg bist, dass ich vorwärtskomme damit. Am Nachmittag habe ich mich noch mit Michael für ein Gespräch verabredet, doch will ich das zeitlich
+begrenzen, damit ich wieder weiter das Gespräch abrufen und niederschreiben kann. Sag daher bitte Bermunda Bescheid,
+denn ich brauche wirklich ihre Hilfe.
+**Ptaah** Es wird ihr wohl möglich sein, denn ihre Pflicht kann sie mit Florena oder Enjana abtauschen.
+
+**Billy** Das wäre wirklich gut, denn so könnte der Kontaktbericht bereits morgen abend soweit abgerufen und niedergeschrieben sein, dass ich ihn Bernadette zum Korrekturlesen geben kann.
+
+**Ptaah** So eilt es nun auch wieder nicht, doch ich werde Bermunda informieren. Dann will ich jetzt gehen und mich darum
+bemühen, dass du so schnell wie möglich die wichtige Antwort des Gremiums bekommst. Auf Wiedersehn, lieber Freund –
+Eduard.
+
+**Billy** Dann auch auf Wiedersehn, Ptaah, lieber Freund.
+
+### Die FIGU hat zwei neue YouTube Kanäle, auf denen ihr mehr über Billy, die Plejaren und die Schöpfungsenergielehre erfahren könnt:
+
+Deutsch:
+**FIGU**
+Michael von Hinterschmidrüti
+@michaelvoigtlaender9492
+https://www.youtube.com/channel/UCvrDwu4PdnaX328s7n0PWVg
+
+Englisch:
+**FIGU**
+Michael from Hinterschmidrueti
+@michaelvoigtlaender4347
+https://www.youtube.com/channel/UCVRSWBSZ7LszV1y7rlJ_dHA
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Neutrale Informationen zur aktuellen Lage und zu anderen wichtigen Themen:
+
+**FIGU**
+Sonderausgabe Zeitzeichen:
+https://www.figu.org/ch/verein/periodika/zeitzeichen
+
+COPYRIGHT und URHEBERRECHT 2024 bei ‹Billy› Eduard Albert Meier, ‹Freie Interessengemeinschaft Universell›, Semjase Silver Star
+Center, 8495 Schmidrüti, Schweiz. Kein Teil dieses Werkes, keine Photos und sonstige Bildvorlagen, keine Dias, Filme, Videos und keine
+anderen Schriften oder sonstige Materialien usw. dürfen ohne schriftliche Einwilligung des Copyrightinhabers in irgendeiner Form (Photokopie, Mikrofilm oder ein anderes Verfahren), auch nicht für Zwecke der Unterrichtsgestaltung usw., reproduziert oder unter Verwendung elektronischer Systeme verarbeitet, vervielfältigt oder verbreitet werden.
+
+Veröffentlicht auf www.FIGU.org durch:
+‹Freie Interessengemeinschaft Universell›, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+

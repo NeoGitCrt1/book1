@@ -1,0 +1,2103 @@
+27. Jahrgang
+Nr. 113, Sept. 2021
+
+
+Erscheinungsweise:
+Periodisch
+
+
+## FIGU-BULLETIN
+
+Internetz: http://www.figu.org
+E-Brief: info@figu.org
+
+
+###### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+Laut ‹Allgemeine Erklärung der Menschenrechte› vom 10. Dezember 1948,
+‹Meinungs- und Informationsfreiheit› gilt absolut weltweit:
+
+**Art. 19 Menschenrechte**
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit,**
+**Meinungen unangefochten anzuhängen und Informationen und Ideen mit allen Verständigungs-**
+**mitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Aussagen und Meinungen in Artikeln und Leserbriefen usw. müssen
+nicht zwingend identisch sein mit den Gedanken, Interessen, der
+‹Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens› sowie dem Missionsgut der FIGU.
+
+**Für alle in jedem FIGU-Bulletin, Sonder-Bulletin und anderen FIGU-Periodika publizierte**
+**Leserzuschriften, Beiträge und Artikel von Medien usw. verfügt die FIGU über die notwendigen**
+**schriftlichen Genehmigungen der Leserschaft und der Autoren bzw. der betreffenden Medien!**
+
+###### Ehemaliger US-Geheimdienstler:  "Aliens interessieren sich sehr für unsere Atomwaffen"
+**10. Juni 2021 15:27 Uhr**
+
+In einem Interview plaudert der ehemalige Direktor des US-Geheimdienstprojektes "Advanced
+Aerospace Threat Identification Program", Luis Elizondo, aus dem Nähkästchen. UFOs sind laut
+Elizondo nicht nur real und können Dinge, die irdische Technologie nicht kann – sie würden
+auch auffällig oft dort auftauchen, wo es Nukleartechnologie gibt.
+Ehemaliger US-Geheimdienstler: "Aliens interessieren sich sehr für unsere Atomwaffen" Quelle:
+AFP © KTSDESIGN/SCIENCE PHOTO LIBRARY
+
+
+-----
+
+Symbolbild: Laut der Webseite "Statista" wurden in Deutschland bis zum 3. Juni 2021 insgesamt fast 135 900
+vermeintliche UFOs gesichtet
+
+Luis Elizondo war der Leiter eines ehemaligen Spezialprogramms der US-Geheimdienste, das
+"Luft- und Raumfahrt-Bedrohungen" identifizieren sollte. Der offizielle Name der Einheit lautete
+Advanced Aerospace Threat Identification Program (AATIP). In einem Interview mit der
+Washington Post sagte Elizondo jüngst, dass Aliens – oder wer auch immer die unbekannten
+Flugobjekte steuere – anscheinend grosses Interesse an Nukleartechnologie zeigen würden.
+Es gebe "eine Art Schnittpunkt zwischen diesen UAP oder UFO-Sichtungen und unserer
+Nukleartechnologie mit nuklearem Antrieb, Atomstromerzeugung, oder Kernwaffensysteme", so
+behauptet Elizondo gegenüber der Zeitung. Zudem habe es ähnliche Beobachtungen auch in
+anderen Ländern gegeben. Dem ehemaligen Geheimdienstmitarbeiter zufolge sei es den Aliens
+"bei mehr als einer Gelegenheit" gelungen, US-Nukleartechnologie "offline" zu setzen. In anderen
+Ländern sollen sie gar das Gegenteil fertiggebracht haben – sie "online" zu bringen.
+Der Aufhänger für das Interview mit der Washington Post war ein Bericht, den das Pentagon
+jüngst im Zusammenhang mit UFOs – oder wie die offizielle US-Bezeichnung lautet: "UAPs" (für
+"Unidentified Aerial Phenomena") – für den Kongress vorbereitet. Laut ersten Ausschnitten, die
+an die Presse geleakt wurden, will der Bericht weder bestätigen noch ausschliessen, dass es sich
+bei den "UAPs" um Aliens handeln könne. Doch für Elizondo kann es nur eine Erklärung geben.
+
+**"Diese Dinger schaffen 3,4 oder 600g mitten im Flug"**
+
+Das Videomaterial, das er gesehen hätte, deute auf Technologien hin, "die uns irgendwo
+zwischen 50 und 1000 Jahren voraus sein könnten ... sie können offengestanden alles
+übertreffen, was wir in unserem Inventar haben. Und wir sind ziemlich sicher, dass unsere
+ausländischen Gegner alles in ihrem Inventar haben", so Elizondo in der Washington Post.
+Dieses Videomaterial – gedreht von Militärpiloten – zeige zum Teil physikalisch unmögliche
+Dinge. Vor allem die schnellen Richtungswechsel verblüfften Elizondo. "Menschen können etwa 9
+g Kräfte aushalten oder einige unserer besten Flugzeuge können etwa 16 g aushalten", sagte der
+ehemalige Geheimdienstler. Doch "diese Dinger machen 3, 4 oder 600 g mitten im Flug".
+Ausserdem sollen sie mit Hyperschallgeschwindigkeit fliegen können. Zwar existiert HyperschallTechnologie bereits – Russland hat zum Beispiel mehrere Hyperschall-Flugkörper – aber die
+gesichteten Flugobjekte sollen auch extreme Kurven fliegen können, was von Menschen
+gefertigte Objekte bisher noch nicht beherrschen.
+Darüber sollen die UFOs die Fähigkeit haben, sich vor menschlichen Beobachtern zu tarnen und
+in jedem Medium – Luft, Wasser oder im Vakuum des Weltraums – zu operieren, ohne die
+Leistung einzubüssen. Das Pentagon hatte bestätigt, dass ein Grossteil der Aufnahmen echt sei,
+und der ehemalige Direktor der National Intelligence, John Ratcliffe, erklärte Anfang dieses
+Jahres, dass die Regierung mehr Material besitze, das noch nicht veröffentlicht sei.
+"Wo auch immer diese Technologien herkommen, sie sind eindeutig viel weiter fortgeschritten
+als jede irdische Technologie, die unseren Geheimdiensten bekannt ist", so Elizondo weiter. "Wir
+brauchen dringend unsere besten wissenschaftlichen und nachrichtendienstlichen
+Erfassungswerkzeuge, um zu verstehen, was unsere Piloten beobachten.»
+Quelle: https://de.rt.com/nordamerika/118856-ehemaliger-us-geheimdienstdirektor-aliens- interessieren-sich-sehr-fuerunsere
+
+###### Kurz vor Zwölf
+von Andreas Schubiger, Schweiz
+
+Heute ist der 31. Dezember 2020, und wenn ich zum Fenster hinausschaue, sehe ich etwas
+Schnee und einen bedeckten Himmel. Nach der Morgendämmerung, kurz vor Sonnenaufgang,
+machte ich einen Spaziergang. Auf der Anhöhe in der Nähe bot sich ein prächtiger Anblick der
+verschneiten Schweizer Berge. Das besondere Morgenlicht, die Winterlandschaft und die kalte
+Luft zum Atmen waren ein schöner Morgengruss. Nach dem Schneestapfen bin ich wieder im
+Haus an der Wärme. Das Morgenlicht der Sonne ist der aufziehenden Bewölkung gewichen.
+Jahresrückblicke um diese Jahreszeit sind nichts Ungewöhnliches, und dieses Jahr sind sich alle
+einig, dass es wirklich ein ganz besonderes Jahr war. Wirklich? Äusserlich gesehen war vieles
+anders, eben aus Gründen der Corona-Pandemie, um dieses zeitbeherrschende Wort nicht zu
+unterschlagen. Aber was die Reaktionen und Massnahmen der Verantwortlichen auf diese
+
+
+-----
+
+aussergewöhnliche Situation folgen liessen, das war und ist alles andere als ungewöhnlich und
+besonders. Wie viele Bürger dieses Landes vermisse ich bis heute eine Regierung und
+Verantwortliche, die ihre Bezeichnung auch verdienen. Während im Land innovative Bürger,
+Unternehmer, Organisationen und Institutionen sich selbst immer wieder zu helfen wussten,
+muss der Schweizer mitansehen, wie auf Kantons- und Bundesebene mit einem unausgereiften
+und unbedarften, uneinheitlichen Vorgehen von seiner vertrauensvoll gewählten Regierung
+lediglich eine lasche und ernüchternde Reaktion auf diese Herausforderung gegeben wird. Dies
+ist nicht gerade besonders oder gar aussergewöhnlich, sondern entspricht schon eher dem, was
+sonst schon belanglos und trist geboten wird. Mit der Operation Rahmenabkommen wird das
+Volk genausowenig ernst genommen. Natürlich wird bei dieser Sache verheimlicht, was wirklich
+in Brüssel deponiert wird. Wohl nur, weil die Sache zum Himmel stinkt, anders kann es wohl
+nicht sein. Denn, obwohl eine mehrheitliche Tendenz auszumachen ist, dass die bisherige Form
+des Rahmenabkommens nicht den freiheitlichen und demokratischen Vorstellungen der
+Schweizer entspricht, will eine Minderheit auf Biegen und Brechen ein Rahmenabkommen, das
+für die Minderheit von Vorteil, für die Mehrheit aber von gewaltigem Nachteil sein wird. Auf diese
+Art und Weise wird hierzulande regiert und verhandelt. Spätestens jetzt, am Jahresende, kann
+mit Rückblick auf die vergangenen Geschehen einmal mehr festgestellt werden, dass sich im
+allgemeinen Verständnis zwischen Bürger und Regierung etwas drastisch verändert hat, nämlich
+zu Ungunsten des Bürgers, der Bevölkerung. Es ist die Neigung der Regierung, wichtige Fakten
+zu verschweigen wie in den Verhandlungen um das Rahmenabkommen. Weiter ist es kriminell,
+die Bürger aufs Geratewohl in eine immer wieder nächste Coronawelle hineinlaufen zu lassen,
+ohne wirklich greifende Massnahmen zu verordnen. Zu schwach präsentiert sich diese
+Regierung und ängstlich obendrein. Wahrscheinlich hat sie Angst um ihren Posten in der
+Regierung. Wenn die Wissenschaftler der Virologie einen Maulkorb verpasst kriegen, weil sie das
+Problem auf den Punkt bringen, ist das doch ein deutliches Zeichen. Worum geht es überhaupt?
+Geht es um die grosse Kohle, ein paar wenige aus dem Volk, oder geht es um alle, ob reich oder
+arm, gross oder klein? Es geht um die Macht der Politik. Wissenschaftlich nicht versierte Politiker
+sollten wissenschaftliche Entscheidungen fällen, sind aber nicht fähig, dies zu tun, weil sie sich in
+der Rolle sehen, die Geschicke des Staates zu leiten, und dies tun sie dann ganz
+unwissenschaftlich auf Kosten von Menschenleben und der Wirtschaft zuliebe. Das Wohl des
+gesamten Volkes wird nicht als oberste Priorität betrachtet, wie es eigentlich sein sollte. Dafür
+wird parteiisch die Wirtschaft begünstigt.
+Die scheinheilige Zeit der Festtage, wo Bundesräte, die Obrigkeit, ans Zusammenstehen
+appellieren, wirft einmal mehr ihren geheuchelten Schatten in die Zukunft. Auf dieser Basis kann
+getrost auf die allseits üblichen Vorsätze verzichtet werden. Wahre Sorge und Verantwortung um
+das Wohl des Volkes sieht anders aus. Wenn dieses Jahr nun zu Ende geht und wir uns die
+Mühe machen, vorausschauen zu wollen und dabei eine gute Portion Optimismus
+miteinbeziehen, tun wir gut daran, realistisch zu bleiben. Die Politiker bleiben dieselben. Die
+Massnahmen dümpeln ähnlich schwach und lahm dahin. Eine vermeintlich rettende Impfung,
+die den Menschen das sorglose und vergnügliche Leben wieder zurückbringen soll, wird als
+hoch gelobtes und gepriesenes Heilmittel gerade noch rechtzeitig als erlösendes Geschenk
+dargebracht, als wär’s ein Stück der Weisen aus der Weihnachtsgeschichte und heute in aller
+Munde. Das geht unter die Haut, im wahrsten Sinn des Wortes. Frohlocken wird vor allem der
+Geldbeutel der Pharmafirmen. Das erste Impfopfer aus Luzern, welches den geschenkten
+Cocktail mit dem Leben bezahlte, hört nun die himmlische Festmusik aus dem Jenseits mit.
+Leider wird es uns nicht erzählen können, woran es wirklich gestorben ist. So oder so darf
+angenommen werden, dass alles, was die Unzulänglichkeit des Impfstoffes anbelangt, letzten
+Endes sowieso abgestritten und mit Sicherheit in Zukunft auch getan wird. Unvorstellbar, was
+alles auffliegen würde, wenn bekannt wird, dass die Impfstoffe unzureichend, ja sogar gefährlich
+sind – ganz zu schweigen von den kopierten Billigprodukten, die bereits als Schundware auf
+dem Markt zirkulieren und in diesem skandalösen Geschäft mitmischen. Die zulassende
+Institution Swissmedic wäre unglaubwürdig und weitere Kreise ebenso, das Vertrauen in die
+Obrigkeit wäre vollends dahin, es gäbe Juristenfutter und auch die folgenden Rechtsprechungen
+wären in Frage zu stellen usw. Also lassen die Prognosen definitiv keine Glücksgefühle
+aufkommen. Dazu kommt, dass wir heute nicht wissen, was die folgenden Jahre noch bringen
+werden. Es kann sein, dass dies nur der Anfang war, der mit einem regelrechten Paukenschlag
+eingeläutet wurde.
+
+
+-----
+
+Unterdessen ist es dunkel geworden. Heute nacht an Silvester werde ich definitiv wach bleiben
+bis Mitternacht, nicht um das neue Jahr zu begrüssen, sondern um sicher zu sein, dass das alte
+wirklich geht.
+
+######              Rund 60 mm
+Von Bernadette Brand, Schweiz
+
+Am Montag, 10. Mai 2021, um ziemlich genau 8.44 h, sass ich bei meinem Morgenkaffee und
+der dazu gehörenden Lektüre, als ich die Haustüre zuschlagen hörte und Billy schwer
+schnaufend in die Küche stürmte. Als ich aufblickte, bemerkte ich, dass er nicht nur ausser
+Atem, sondern auch etwas grau war im Gesicht. Er setzte sich auf den Stuhl neben dem
+Kochherd, und ich frage ihn: «Häsch müèssè rännè?» Sofort stand er wieder auf und antwortete,
+dass er grade ein <Riesenschwein> gehabt habe, während er mir ein halbvolles HalbliterFläschchen ‹Ginger Ale› unter die Nase hielt. Als ich das Fläschchen in die Hand nahm sah ich in
+der Verschlankung des Flaschenkörpers eine gut 30 mm lange, 10 mm breite und 3 mm tiefe
+Furche, die eine graue aufgerauhte Spur quer durch die glasklare PET-Flasche zog.
+Verständnislos blickte ich ihn an und fragte, was das sei? «Es wurde gerade auf mich
+geschossen», sagte er mit ruhiger Stimme, aber immer noch etwas ausser Atem, und fuhr dann
+fort, dass er oben bei der Schaukel gestanden habe, als ein Schuss aus einem 22 mm
+Kleinkaliber-Gewehr, der offenbar ihm galt, die Flasche getroffen habe.
+Weiter erzählte er mir, dass er zu Jacobus hochgegangen sei, der etwa auf der Höhe der PtaahLaube seinen Bagger schmierte, weil am Waldrand beim oberen Zeltplatz jemand
+herumgeschlichen sei und er deshalb Jacobus anweisen wollte, die Augen offenzuhalten.
+Während er mit Jacobus sprach, beobachtete er eine fremde weisshaarige Frau, die von Sitzberg
+herkommend, den neuen Weg beim Sammler ein Stück hochgegangen und dann
+stehengeblieben sei und scheinbar mit jemandem gesprochen habe, den er aber nicht sehen
+konnte. Jedenfalls kehrte die Frau dann um und ging wieder den Weg zurück, der durch den
+Wald nach Sitzberg führt. Billy, der sehen wollte, wohin die Frau genau ging und ob sie noch
+einmal zurückkäme, ging einige Meter weiter, hinauf zur Schaukel, dorthin, wo der Wanderweg
+nach Schmidrüti über den Hang führt. In dem Moment, als er bei der Schaukel stehenblieb, fuhr
+ihm ein eigenartiger Schmerz in den Rücken, weshalb er sich etwas krümmte, und im gleichen
+Moment knallte ein Schuss, und Billy fühlte einen Schlag an seiner Brust.
+
+Die Kugel aus dem 22 mm-Kleinkaliber-Gewehr hatte dank dem plötzlichen, heftigen Schmerz
+die Ginger-Ale-Flasche getroffen, die er in die Brusttasche seines Hemdes gesteckt hatte, bevor
+er zu Jacobus hochging, weil er durstig war. Zwischen der Rille in der PET-Flasche, die das
+Projektil abgelenkt hatte und der Brust von Billy, fehlten gerade mal rund 6 cm – hätte er die
+Flasche nicht bei sich gehabt, die den Flug des Geschosses abfälschte, wäre er mit Sicherheit
+getroffen worden …
+Jacobus, der den Schuss natürlich hörte, lief unvorsichtigerweise los und rannte wie von der
+Tarantel gestochen den Weg zum Zeltplatz hinauf, während Billy sich schleunigst ins Haus
+zurückzog, nicht ohne jedoch Jacobus zurückzupfeifen. Offenbar war der Schütze, der am
+Waldrand oberhalb des Zeltplatzes herumgestreunt war, den Zeltplatz entlang geschlichen und
+über den schmalen Grasweg hinunter zum Wanderweg gegangen, von wo aus er von der oberen
+Kurve auf Billy anlegte und sofort nach dem Schuss verschwand, ohne auch nur abzuwarten
+oder zu beobachten, ob das Projektil sein Opfer auch gefunden und ausser Gefecht gesetzt
+hatte.
+
+5 Jahre und knapp 8 Monate sind seit dem letzten feigen Mordanschlag auf Billy vergangen, und
+wir alle dachten bereits, dass die Zeit solch übler und hinterhältiger Attacken vorbei sei, worin
+wir uns aber offenbar gründlich getäuscht hatten. Dass perfide Anschläge wie dieser überhaupt
+möglich sind und zustande kommen, ist allein dem traurigen und verkommenen Denken und
+der üblen Einstellung von glaubenswahnbesessenen Sektierern zuzuschreiben, die ihres eigenen
+Charakters und ihres Bewusstseins nicht mächtig sind und sich getrieben von kindischen
+Ängsten und bösartigen Absichten zu solchen menschenunwürdigen Handlungen hinreissen
+lassen.
+
+
+-----
+
+-----
+
+###### Intuition wahrnehmen!
+Im Sommer 1997 machte ich mich auf die Suche, um ein naheliegendes Sonnenblumenfeld zu
+photographieren. Bald fand ich das entsprechende Feld. Freudig ging ich den schmalen Feldweg
+entlang und knipste die leuchtenden Sonnenblumen, die mir so bezaubernd entgegenstrahlten.
+Plötzlich schaute ich dem Hügel entlamg und bemerkte dort eine querliegende Strasse.
+
+"Wohin führt denn die Strasse?" Dieser Gedanke war mir so intensiv und eigenartig und ein
+sonderbares Gefühl durchströmte mich. Über mich selbst wunderte ich mich, denn so neugierig
+war ich sonst nicht.
+Bald darauf kehrte ich wieder um und ging zufrieden mit meiner Kamera voll schöner
+Aufnahmen zum Auto zurück und fuhr die 8 km wieder nach Hause.
+Noch voller Freude und Dankbarkeit für diesen schönen Tag war mir mal wieder bewusst, wie
+herrlich die Natur der Schöpfung ist.
+Der so intensive Gedanke, wo denn die Strasse hinführte, verblasste mit der Zeit, und ich dachte
+gar nicht mehr wirklich daran.
+Seit ein paar Jahren studiere ich schon Billys wertvolle Schriften. Zu dieser Zeit das Buch <Die
+Psyche>. Daraus wurde mir bewusst, wenn der Mensch richtig denken und wissend werden will,
+dann darf er einzig und allein nur die Schöpfung als grösste Kraft anerkennen und zu ihr beten,
+wenn er das Bedürfnis diesbezüglich hat. Schnell legte ich mir dann meinen imaginären Gott ab,
+und eine ungeheure Ruhe, die ich vorher noch niemals in mir verspürte, durchdrang meinen
+Körper. Diesen Moment werde ich niemals vergessen. Ein unbeschreibliches freies Gefühl
+verspürte ich in mir, als wenn mir ein Stein vom Herzen fiele, wie man so schön sagt.
+Genau so erlebte ich dies, wie es im Buch – <Psyche> – von BEAM auf S. 93 zu lesen ist. Von da
+an fühlte ich mich frei und geborgen im Schosse der Schöpfung. Von nun an ehrte, bewunderte
+und betrachtete ich alles mit viel Liebe und Dankbarkeit, die Natur mit ihren vielen Wundern.
+Ebenso übte ich mich täglich in der Meditation, die mir von Anfang an Freude bereitete. Billys
+Bücher verschlang ich damals täglich, wollte mir viel Wissen, Erkenntnis und die daraus
+gewinnenden Erfahrungen machen. Langsam spürte ich in mir eine Veränderung und merkte,
+dass mein Leben seinen Lauf nahm.
+So kam das Jahr 1999.
+In diesem Jahr beabsichtigten mein Mann und ich, ein Eigenheim zu suchen und zu kaufen. Am
+Vatertag dieses Jahres wurde mir bewusst, dass mein Vater nicht mehr lange leben würde, denn
+er wurde immer dünner und seine Krankheit schritt voran.
+Spontan fragte ich ihn, ob er mit mir einen Vatertagausflug machen möchte, denn das Wetter
+war an diesem Tag wunderschön. Es kam keine Antwort. Macht nichts, dachte ich mir, als ich auf
+der Terrassentreppe sass, und mein Papa hinter mir stand.
+Plötzlich merkte ich hinter meinem Rücken etwas, drehte mich um, und mein Vater stand da mit
+Sakko und Krawatte und schmunzelte. So war er. Mama wollte auch mit.
+Welche Richtung wir fahren würden, das sollte Vater entscheiden. Er wollte einen Besuch bei
+einem ehemaligen Kollegen im einem ca. 15 km entfernten Ort machen. Die Fahrt genoss er
+sichtlich, denn sein Krankenhausaufenthalt war noch nicht lange her. Er erfreute sich an den
+strahlend gelben Rapsfeldern, der Blütenpracht ringsum und dem blauen Himmel.
+Als wir den Kollegen nicht antrafen, ich jedoch eine Nachricht hinterliess (später erfuhren wir, er
+war im Garten und hörte uns nicht), fuhren wir wieder weiter.
+Ganz spontan schlug ich dann den Bestimmungsort vor. Meine Eltern hatten nichts dagegen,
+und so ging die Fahrt in Richtung zum Heimatort meines Vaters. Es wurde der Ort und der
+Friedhof besichtigt. Jetzt fährst du den Berg hoch, sagte mein Vater zu mir, denn dort oben
+wohnten Bekannte meiner Eltern, die ich nur vom Erzählen kannte. In dieser Gegend war ich
+auch noch nicht.
+Als meine Eltern an der Haustüre läuteten, die um die Hausecke war, stand ich noch am
+Gartentor und schaute plötzlich über das angrenzende Feld und bewunderte die tolle Aussicht.
+"Hier ist es aber schön, da möchte ich auch wohnen."
+Wieder war ein sonderbares, eigenartiges Gefühl in mir. Ein ganz befreiendes und freudiges
+Wohlbefinden verspürte ich in diesem Augenblick.
+Freudig wurden wir von dem älteren Ehepaar eingeladen. Sie unterhielten sich über frühere
+Zeiten. Zwischendurch fragte ich die kleine sympathische Frau, die ich vorher nicht kannte. «Wo
+befindet sich das Haus Nr. 22», und nannte den Namen der Frau, die dort wohnen sollte. «Gleich
+
+
+-----
+
+daneben», meinte sie. In diesem Haus wohnt nämlich eine ehemalige Kollegin von mir, die ich
+vor kurzem nach 27 Jahren, in der nächstliegenden Stadt wieder traf.
+«Eigenartig», dachte ich mir, «die wohnt gleich nebenan». Als wir uns nach so langer Zeit wieder
+trafen, meinte Anni, wir sollten uns mal wieder treffen. Das hatte ich dann auch vor. Der Ausflug
+mit meinen Eltern ging freudig zu Ende.
+Die Begegnung mit meiner ehemaligen Kollegin ist eine Geschichte für sich.
+Eine Schulfreundin schenkte mir und einer gemeinsamen Freundin einen Gutschein fürs
+Rollstudio, damit man seinen Body gut in Form bringt und auch hält. Irgendwie waren wir dann
+gar nicht so begeistert, aber dennoch fuhren wir 3x in der Woche in die Stadt ins Rollstudio. An
+einem dieser Tage rief mir damals eine Frauenstimme aus dem Hinterraum freudig zu. Wer war
+diese Person? Meine alte Bekannte, die ich schon 27 Jahre nicht mehr gesehen hatte und nichts
+von ihr hörte.
+Bei einer netten Unterhaltung – die ich für nach 2 Wochen mit ihr vereinbarte – erzählte ich ihr,
+das wir ein passendes Haus suchten. "Da, nimm das da drüben", kam ganz spontan von ihr.
+Als ich damals voller Bewunderung über das freie Feld blickte, stand etwas abseits ein Haus, das
+ich gar nicht bemerkte. Na, einladend sah die Vorderseite auch nicht aus, aber die Lage ist
+schon super.
+Zu Hause erzählte ich es meinem Mann. Bald darauf fuhren wir dort hin, und er meinte, dass
+wäre das Haus, aber die Arbeit.
+Nach einer Meditation über das Haus, die eigenartigen Begegnungen, wurde mir dann bewusst,
+ich muss meinen Intuitionen nachgehen.
+Nach vielen Besuchen der älteren Dame wussten wir dann, wer der Erbe sein könnte. Diesen
+suchten wir dann auf, der 25 km weiter entfernt wohnte. Wir putzen vorher noch ordentlich
+unsere Schuhe, denn er hatte ein grosses Schuhwerk. "Der schaut sicher erst auf die Schuhe,
+meinte ich zu meinem Mann. Ob er das tat, weiss ich nicht mehr. Jedenfalls war er uns
+unsympathisch und wies uns einfach ab. Er wusste nicht, ob er das erben würde, sagte er
+eiskalt. (Er hat es geerbt.)
+Der Nachbar liess uns auf Anfrage der älteren Frau das Haus von innen anschauen, denn er war
+der Hausmeister. Das Haus war zwar bewohnt, doch die zwei älteren Schwestern besuchten es
+nur tagsüber, und das ca. 30 Jahre lang.
+Die Bausubstanz war in Ordnung, nur das Dachgeschoss war nicht ausgebaut und diverse
+Renovierungen mussten gemacht und auch der Garten neugestaltet werden.
+So nahm alles seinen Lauf. Wir liessen nicht locker, aber suchten dennoch immer wieder andere
+Häuser auf. Der Alltag forderte uns stets heraus.
+Viele Mosaiksteinchen reihten sich aneinander. Irgendwie war aber alles so eigenartig.
+Ein Makler meldete sich auch; wie der wusste, dass wir ein Haus suchten, wusste ich nicht. Er
+hätte ein Haus für uns, rief er aus. Das ist ja das Gebäude, das wir haben möchten. Er meinte,
+das werde aber nur vermietet wird. Diesen Knilch durchschaute ich bald, denn mit seiner
+überfreundlichen falschen Artverriet er sich selbst.
+So rief ich den Erben an und fragte bestimmt: «Wird das Haus verkauft oder nur vermietet?».
+«Verkauft natürlich.» Da war mir klar, dieser Makler wollte bestimmt auch das Haus kaufen, denn
+er hatte zwei Söhne.
+Meine bessere Hälfte wurde immer ungeduldiger und nervöser. «Lass los von diesem Haus, wir
+bekommen es», sagte ich zu ihm. Plötzlich wusste ich mit Bestimmtheit, dass wir eines Tages
+dort wohnen würden.
+Vater ging es immer schlechter, und 2½ Monate nach dem Vatertag verstarb er. Am Sterbebett
+sagte er noch zu mir: «Kümmert euch um die Mutter.»
+Wieder kam ein Mosaiksteinchen auf mich zu: Mit einem Laden für Heim und Garten stiess ich
+plötzlich mit meinem Fuss auf drei aufeinanderliegende schöne runde Naturplatten, und ich
+nahm sie zur Hand. Auf der ersten war eine Sonne zu sehen, schön eingraviert, auf der 2. stand
+<Willkommen> und auf der dritten war der Hinweis, <Alles hat seine Zeit>. «Die kaufe ich mir
+und lass sie in die Wand reinmauern, wenn wir das Haus haben», kam mir gleich in den Sinn.
+
+Eines Tages vor Silvester kam ein Anruf. Wir könnten das Haus besichtigen. Gleich fuhren wir los.
+Mein Mann hatte sofort einen Durchblick und sah das Haus, wie er es nach der Renovierung
+haben möchte. Es dauerte nicht lange, und dann gehörte es nach 2 Jahren endlich uns. Wir
+konnten bald einziehen. Mit viel Freude, enormer Energie und Tatendrang ging mein Mann
+gleich ans Werk. Mein Gatte war voller Ideen und konnte sein Können unter Beweis stellen.
+
+
+-----
+
+Natürlich half ich mit, wo ich nur konnte, redete ihm nicht drein, denn auch ich hatte meine
+Pläne, und das war die Gartengestaltung.
+Aber zwischendurch machte ich mich mal auf die Suche, um die nähere Umgebung in der freien
+Natur zu erkunden. Wunderschön war es hier, nicht weit weg vom Haus, und ich erholte mich
+ein wenig von der täglichen Arbeit.
+Plötzlich gab es mir einen Stich. Jetzt ging ich sogar auf dem Feldweg, wo ich einst die
+Sonnenblumen photographiert hatte. Von da an wusste ich, das war der Anfang, um zu diesem
+Haus zu kommen. Vor vier Jahren war ich hier. Als wenn mein Unterbewusstsein schon damals
+gewusst hätte, dass in unmittelbarer Nähe ein Haus steht, wo ich und meine kleine Familie einst
+wohnen würden.
+Nach täglicher Arbeit mit viel Herzblut und Freude hatten wir beide dann nach 7 Jahren unser
+<Traumhaus> samt Garten zu unserem Paradies entwickelt.
+Manchmal kommt in mir schon etwas Wehmut auf, dass mein geliebter Vater dies alles nicht
+mehr erleben konnte, wo es doch einst auch mal seine Heimat war.
+Dafür profitierte meine Mutter um so mehr. Ich habe sie in den letzten Jahren immer wieder zu
+uns geholt. Die ersten Jahre lebte auch die ältere Dame noch. Zu ihr hatte ich eine gute
+Verbindung, aber auch sie zog es immer wieder zu mir. Als meine Mutter bei uns verweilte, kam
+auch unsere nette Nachbarin, und wir unterhielten uns prächtig.
+Heute höre ich noch meine Mutter sagen: «Gell, das Haus haben sie für Euch gebaut.» So kann
+man es auch denken. Leider verstarb meine Mama im Sept. 2017, mit 97[1/2] Jahren. Stets
+erfreute sie sich an unserem Garten und der schönen Natur, als ich sie manchmal mit dem Auto
+rumfuhr. Dadurch wurde sie die letzten Jahre immer ruhiger und humorvoller und konnte
+dadurch auch leichter Abschied von uns allen nehmen.
+Dank der Geisteslehre, die unser Künder der Neuzeit, <Billy> E. A. Meier, in unermüdlicher
+Arbeit für uns alle Erdenmenschen niederschreibt und wir die einmalige Gelegenheit haben,
+jetzt, in unserer Zeit, in der wir leben, daraus lernen zu können.
+Ohne Fleiss kein Preis! Mit Sicherheit kann ich sagen, wäre ich nicht diesen Weg der
+Geisteslehreenergie gegangen, hätte mein Leben nicht diesen Erfolg gebracht. Denn die
+Intuitionen wahrnehmen, lernt man durch stetiges Meditieren, durch Selbstverantwortung,
+Selbstliebe u.v.m. In diesem Sinne möchte ich mich aus tiefer Ehrfurcht bei Billy herzlich
+bedanken.
+Magdalena Sonnleitner, Deutschland
+###### ¨
+ * DIE LIEBE * DAS LICHT * DIE WAHRHEIT * DAS LEBEN *
+ „LIEBE ABER IST DER WEG, DIE WAHRHEIT UND DAS LEBEN.
+ KEIN LEBEN VERMAG ZU EXISTIEREN  OHNE DIE LIEBE UND OHNE DAS LICHT DER WAHRHEIT.
+ KEIN LICHT ABER VERMAG ZU EXISTIEREN  OHNE DIE LIEBE UND OHNE DIE WAHRHEIT.
+ UND KEINE WAHRHEIT VERMAG ZU EXISTIEREN  OHNE DAS LICHT UND OHNE DIE LIEBE.
+ DIE WAHRLICHE LIEBE, SIE IST DAS WAHRLICHE SEIN,  UND SIE IST DIE EWIGE WÄRME AUS DEM ZENTRUM  DER SCHÖPFUNG, DIE ALS WAHRLICHES  LEBEN BEZEICHNET WIRD.
+
+Aus der Geisteslehre, Brief Nummer 22, Seite 241, von Billy Meier
+Gestaltung: Regula Lamprecht, Schweiz
+
+
+-----
+
+###### Das rapide Haarwachstum bei <Billy> Eduard Albert Meier (BEAM)
+Seit dem Corona-Pandemie-Ausbruch über der ganzen Welt mit den inzwischen zahlreichen
+Mutationen, wodurch notwendige Schutzmassnahmen auch für die Hausbewohner im FIGUMuttercenter angeordnet werden mussten, vor allem zu Hause zu bleiben und nur in wirklich
+absoluter Notwendigkeit ausserhalb des Centers zu bewegen, bedeutete auch für Billy, dass er
+nicht mehr zum Frisör konnte, und ich als Laie als Haarschneiderin einspringen durfte, weil die
+Haare von Billy aussergewöhnlich schnell und rapide nachwuchsen. So übernahm ich diese
+Aufgabe.
+
+Innerhalb von 2 Monaten, März und April 2021, war es notwendig das Haar von Billy bis zu
+6mal zu schneiden, und jedes Mal mehr als 1 cm, so dass es nicht über seine Ohren wachsen
+würde. Das bedeutete, dass sein Haar alle 10 Tage mehr als 1 cm geschnitten werden musste,
+und jedes Mal scherzte ich mit Billy und fragte ihn: «Bist du wieder weggewesen», was er
+natürlich nie verraten wollte, sondern er blieb immer schweigsam, genügsam und geduldig bis
+die Haarschneide-Aktion vorbei war.
+
+Dabei habe ich von seinen Schriften und Berichten erfahren dürfen, wie er dank der Hilfe von
+den Plejaren sowie auf unserem Planeten in andere Zeiten reisen konnte, wie er auch auf andere
+Planeten in andere Zeitdimensionen <mitgefahren> ist. Und weil er in diesen genannten
+Monaten nie länger von zu Hause weggewesen ist, fiel es kaum jemandem auf, dass er
+tatsächlich ab und zu plötzlich längere Haare trug und dringend wieder einen Haarschnitt
+brauchte.
+
+Im Normalzustand ist das Haarwachstum bei Billy weder schneller noch langsamer als bei
+jedem Erdenmenschen, aber es war doch auffällig, dass er plötzlich wieder längere Haare trug.
+Der grosse Unterschied bei Billy liegt aber darin, dass er seiner Mission gemäss die <Lehre der
+Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens> auf unserer Welt und zugleich auf
+Erra, der Plejarenwelt, verbreitet, wozu er immer wieder die liebe Hilfe und Zusammenarbeit der
+Plejaren hat. Daher reist er an verschiedene Orte, wohin er immer wieder hilfreich transportiert
+wird. Doch darüber spricht er nie, und man muss ihm schon auf die Schliche kommen, um
+etwas von ihm zu erfahren – und dieses Glück hatte ich eben, weil ich seine Haare so häufig zu
+schneiden hatte. Also spricht er nur höchst selten darüber – wenn überhaupt –, dass er weg war.
+In der Regel ist es nur dann die Frisörin, die diesem Geheimnis von Billy auf die Spur kommt
+und diese <Nebenaufenthalte> erfährt. Über den Zusammenhang kommt es manchmal zu
+kurzen Gesprächen, die erklären, dass es nicht so ist, wie allgemein angenommen wird, dass es
+anders ist mit dem Verlauf der Zeit, nämlich, dass diese, wenn sie in der Vergangenheit
+durchlebt wird, manipulativ wird, d.h. dass die Rückkehr zur gleichen Zeit wie der Weggang
+erfolgt.
+
+Wenn Billy sich auf einer Reise befindet, die zeitverschoben zu unserer Erdenzeit ist, so ist die
+Zeit, in der er sich in der Vergangenheit oder Zukunft befindet – z.B. einen Monat lang –,
+während der Abwesenheit von zu Hause so minimal kurz, vielleicht nur Sekunden oder 15 Min.,
+in der Regel nachts bei seiner mühsamen Büroarbeit für die Mission, dann fallen ein paar
+Stunden, Tage oder Wochen Abwesenheit durch die Reisen mit den Plejaren nicht auf. Dies, weil
+während der Zeit die anderen im Haus alle schlafen, deshalb fällt niemandem auf, dass
+überhaupt eine Abwesenheit von Billy stattgefunden hat. Nun aber hat sich das geändert, weil
+nämlich Barbara festgestellt hat, dass die Haare von Billy plötzlich mehr als 1 cm gewachsen
+sind, obwohl ich sie ihm vor 5 Tagen geschnitten hatte, und zwar so kurz, dass sie
+normalerweise in dieser Zeit nicht soviel nachwachsen konnten.
+
+Das also bezüglich der Haare von Billy und vieles mehr, das ich zu wissen bekommen habe
+während meiner 20 Jahre als Kerngruppe-Mitglied. und miterleben durfte. Alles erfüllt meine
+Wenigkeit mit den feinsten Ehrwürdigkeitsgefühlen, die in meinem Tiefsten in mir bleiben.
+
+Lieben Dank, Karin Wallén, Schweiz
+
+
+-----
+
+###### Über Zeitreisen, das Ende der Zeit und denkerische Grenzerfahrungen
+von Christian Frehner, Schweiz
+
+Absicht und Ziel dieses Artikels ist es, genügend ‹Gedankenmaterial› und Indizien
+zusammenzutragen und zu präsentieren, damit der Leser, die Leserin am Schluss der Lektüre
+einen substantiellen Erkenntnisgewinn mit ins restliche Leben nehmen kann. Hauptthema ist
+das Reisen durch Raum und Zeit, und zwar nicht das gedankenbasierte und in der Phantasie
+sich vorgestellte, sondern real vor und zurück entlang der Zeitachse. Dafür ist es jedoch
+erforderlich, dass nebst Motivation, Ausdauer, Unvoreingenommenheit und Mut vor allem eines
+aufgewendet wird, nämlich ‹etwas Zeit›.
+Wer sich mit den Schriften und Informationen der FIGU und von ‹Billy› Eduard A. Meier zu
+befassen beginnt, wird dies kaum wegen eines besonderen Interesses für Zeitreisen tun, sondern
+aufgrund anderweitiger Interessenlagen. Was sich aber jedenfalls nicht vermeiden lässt, ist, dass
+sich jeder dieser Menschen eher früher als später einem unausgesprochenen Fragen-AntwortenKomplex zu stellen hat, wobei bereits bei der Beantwortung der ersten der nachfolgend
+aufgeführten Reihe von Fragen und Aussagen sich die Spreu vom Weizen trennt oder zu trennen
+beginnt. Während ein klares, bewusstes und sicheres Ja den Weg in eine neue, wunderbare und
+verheissungsvolle Welt des Wissens öffnet, hält ein Nein diesen Zugang verschlossen und führt
+umgehend zu einem ‹Übungsabbruch›, wobei dafür verschiedene Gründe der Auslöser sein
+können, wie z.B. Zweifel, Desinteresse, denkerische Anstrengungsunwilligkeit oder ein
+denkerischer Kurzschlussvorgang. Letzterer basiert auf einer Art ‹Überlastungsventil› im Gehirn,
+um das eigene psychisch-mentale Selbst- und Weltbild nicht zu gefährden, das bekanntlich
+beim Gros der Erden-Menschheit auf religiösen, ideologischen, philosophischen oder
+weltanschaulichen Glaubensannahmen (bis hin zum pathologischen Wahn) basiert und deshalb
+mit der Realität bzw. Wirklichkeit nie vollständig in Einklang gebracht werden kann. Diese
+Menschen befinden sich gleichsam in einer Art selbstbestimmter Käfighaltung, wobei wie beim
+sprichwörtlichen ‹Goldener-Käfig-Syndrom› nicht erkannt wird, oder nicht wahrgenommen
+werden will oder kann, dass ausserhalb der offenstehenden Türe Freiheit und ungeahntes
+Wissen und Lernmöglichkeiten zur freien Nutzung und Erarbeitung existieren. Doch diese
+psychologischen Gesetzmässigkeiten sollen hier nicht vertieft behandelt werden, sondern es soll
+nun zügig anhand Fragen und Aussagen schrittweise zum Hauptthema dieses Artikels
+vorgedrungen werden.
+Beginnen wir mit der 1., der ‹Spreu-vom-Weizen-trennen-Frage›:
+1) Zeigen die von Billy zwischen 1964 und 1981 gemachten und durch die FIGU
+veröffentlichten Photos und Filmaufnahmen – für die der Billy-Meier-Fall berühmt oder
+berüchtigt ist – echte, reale ‹UFOs› bzw. ‹Strahlschiffe›, d.h. echte, grosse, substantielle
+fliegende Objekte und also keine Modelle? – Ja oder Nein?
+2) Es gibt keinen anderen vergleichbaren sogenannten UFO-Fall auf der Erde, der sich
+einerseits durch Hunderte qualitativ hochwertiger Photos und weiteren Beweismaterialien
+bzw. Echtheitsindizien auszeichnet, und über den andererseits derart viele wissenschaftliche
+hieb- und stichfeste Beweisführungen bezüglich Authentizität existieren.
+3) Diese riesige Photosammlung wurde nur möglich, weil die Flugobjekte in den 1960iger
+Jahren in Indien und von 1975 bis 1981 in der Schweiz sich derart positionierten –
+eigentlich posierten –, damit sie der einarmige Billy Meier mit seinen einfachen AnalogfilmKameras in möglichst guter Qualität photographieren und filmen konnte.
+4) Daraus folgert, dass die Flugobjekte von jemandem gesteuert werden, der oder die mit Billy
+in Kontakt stehen oder ihn zumindest als photographierende und filmende Zielperson
+ausgesucht haben.
+5) Demzufolge handelt es sich beim Ganzen nicht um einen ‹Zufall› oder eine einmalige,
+ausserordentliche Glückssträhne seitens Billy (NB: Auch andere Personen haben die
+gleichen Flugobjekte gesehen und z.T. photographiert), sondern es besteht eine bestimmte
+Absicht und ein Zweck hinter der Schaffung dieses herausragenden Photo- und
+Filmmaterials, nämlich die Anwesenheit der Flugobjekte öffentlich zu dokumentieren, woraus
+umgehend viele Fragen entstehen (die beabsichtigte ‹Kontroverse›) und Bedarf nach
+Hintergrundwissen ausgelöst wird.
+
+
+-----
+
+6) Da alle Farbbilder der unterschiedlichen Flugobjekt-Typen im Schweizer Luftraum
+photographiert wurden, vorwiegend bei Tageslicht, kann es sich weder um Testobjekte eines
+anderen irdischen Staates noch um ein ‹geheimes› Militärprojekt der Schweizer Armee
+handeln.
+7) Da die Filmaufnahmen dieser Flugobjekte Bewegungsmuster aufzeigen, die bis heute mit
+irdischer Technik physikalisch nicht durchführbar sind (wie bereits erwähnt, und wie
+unwiderlegbare Beweisführungen darlegen, sind es keine Modelle), sind diese Flugobjekte
+sicher nicht irdischer Herkunft.
+8) Da die Informationen in den momentan verfügbaren, mehr als 9000 Seiten umfassenden
+‹Plejadisch-plejarische Kontaktberichte›-Blocks inhaltlich in sich schlüssig sind und
+gesamthaft keinerlei Widersprüche aufweisen, und da der Grossteil der Angaben und
+Informationen und Erklärungen zudem mit der Realität des Weltgeschehens im Einklang
+steht und praktisch alles aufgrund eigener innerer Erkenntnisse und Erfahrungen sowie
+Nutzung von Intellektum, Vernunft und Verstand usw. logisch nachvollziehbar ist, ergibt sich
+die Gewissheit, dass der Billy Meier-Fall echt ist und dass es sich bei den Piloten der
+Flugobjekte tatsächlich um menschliche Wesen nichtirdischer Herkunft handelt, mit denen
+Billy im persönlichen Kontakt steht.
+9) Da es eine Tatsache ist, dass Billy mit ausserirdischen Menschen Kontakt hat, ist dies ein
+logisches Indiz dafür bzw. gibt es nur eine einzige logische Schlussfolgerung, nämlich dass
+überlichtschnelles Reisen eine Tatsache bzw. Realität ist, da diese Menschen ansonsten nicht
+dauernd zwischen ihrem Sonnensystem und uns hin und her fliegen (springen) könnten.
+10) Da das Reisen mit Überlichtgeschwindigkeit offensichtlich möglich bzw. eine Tatsache ist,
+öffnen sich der irdischen Wissenschaft phantastische neue Forschungsziele, und es locken
+ungeheure neue Erkenntnisse. Da das Forschungsziel – Entdeckung und Nutzung der
+Überlichtgeschwindigkeit – aufgrund der Indizien 100%ig der Realität entspricht, gilt es nun,
+alle dazu notwendigen Erforschungs-Zwischenschritte in die Wege zu leiten. Diesbezüglich
+könnte es hilfreich sein, anzuerkennen bzw. zumindest nicht auszuschliessen, dass
+‹unterhalb› der Higgs-Teilchen-Ebene usw. noch mehrere feinere Energieebenen sowie
+Energieformen existieren.
+11) Weil das Reisen mit Überlichtgeschwindigkeit – und zwar vielfach überhöht – realistisch ist,
+öffnet dies die Möglichkeit bzw. Wahrscheinlichkeit von Zeitreisen, womit wir nun bei einer
+besonderen ‹denkerischen Knacknuss› angelangt sind, die wir jetzt gemeinsam knacken
+wollen. Vielleicht hilft das folgende ‹einfache› Beispiel als erster Schritt zum Verständnis des
+Ganzen, indem wir uns folgenden Ablauf vorstellen: Wir sitzen in unserem Strahlschiff, das
+über einen Tachyonenantrieb oder ‹einfach› über eine Vorrichtung verfügt, mit der wir auf
+weitübersetzte Lichtgeschwindigkeit beschleunigen können. Wir nehmen einen Stern ins
+Visier, von dem es heisst, er sei 1 Million Lichtjahre entfernt. Was wir nicht wissen ist, dass
+vor 5000 Jahren, am 1. April, um 15.00 Uhr, dieser Stern mit einem ‹Dunklen Riesen› oder
+sonst einem riesigen Objekt kollidierte und explodierte. Wie gesagt können wir das nicht
+wissen, sondern erst unsere Nachfahren 5000 Jahre in der Zukunft, weil erst dannzumal das
+Abbild der Explosion durch ein Teleskop oder andere Sensormöglichkeiten entdeckt werden
+kann, da der Lichtblitz ja 5000 Jahre benötigt, um bis zu uns zu gelangen. – Also: Wir
+starten und springen mit Überlichtgeschwindigkeit parallel/entlang des sich zwischen Stern
+und Erde erstreckenden Lichtstrahls oder Lichtkorridors in Richtung Stern. Aus einer Laune
+heraus haben wir auf dem Routenkalkulator die ‹Zeitkoordinate› 1. April vor 5000 Jahren,
+14.58 Uhr, vorprogrammiert. Mit schreckgeweiteten Augen sehen wir am Ankunftsort die
+nahende Gefahr und drücken sofort den roten Notknopf, der uns in einem kurzen
+Sekundenbruchteil zurück ins Jahr 2021 auf der Erde katapultiert. Schweissgebadet und an
+allen Gliedern schlotternd, realisieren wir, dass wir gleich doppelt riesiges Glück gehabt
+haben, nämlich 1., dass wir die Katastrophe verpasst und demzufolge überlebt haben, und
+2., dass wir nun wissen, dass sowohl Reisen in die Vergangenheit als auch in die Zukunft
+möglich sind, weil offenbar in der Gegenwart der Vergangenheit bereits auch die Zukunft
+existiert (hat), zumindest bestimmte Aspekte (Näheres dazu weiter unten).
+12) Wie wir aus den Kontaktberichten entnehmen können, sind Zeitreisen tatsächlich Realität.
+Billy hat verschiedene solcher Zeitreisen unternommen, z.B. zurück ins Mittelalter zum
+Rabbiner Jechieli in Frankreich, oder in die Zeit des Propheten/Künders Jmmanuel nach
+Palästina, wie auch einige Jahrzehnte in die Zukunft nach San Francisco, um dessen
+Zerstörung zu beobachten, wobei die beiden spektakulärsten Beweise für die Echtheit der
+
+
+-----
+
+durchgeführten Zeitreisen jedoch anderswo zu suchen bzw. zu finden sind, nämlich beim
+Wachstum von Haaren, als Billy nach kurzer Abwesenheit mit einem 7-Tage-Bart bzw.
+einmal sogar mit einem Vollbart vor seinen Angehörigen auftauchte. Bekanntlich lassen sich
+Barthaare nicht in ihrem langsamen Wachstum hetzen, so wie Gras auch nicht rascher
+wächst, wenn man daran zieht.
+In 12 Erklärungs- bzw. Gedankenschritten sind wir nun beim Thema dieses Artikels gelandet,
+den echten Zeitreisen, wobei nun weitere Gedankenarbeit und eine gute Portion
+‹Gedankenelastizität› gefragt sind, denn schliesslich wollen wir am Schluss einen positiven,
+befriedigenden Erkenntnisdurchbruch erzielt haben.
+Was wir anhand einer Aneinanderreihung von Indizien und logischer Schlussfolgerungen
+erhärten konnten, nämlich dass Zeitreisen nicht nur möglich, sondern Tatsächlichkeit sind, wird
+aber von der Mehrheit der irdischen Menschheit als Science fiction, Quatsch oder unrealistische
+Gedankenspinnerei usw. abgetan, d.h. rundweg als unmöglich bezeichnet. Was aber jene
+Menschen betrifft, die in den Kontaktberichten von Reisen in die Vergangenheit und Zukunft
+lesen, ist zu vermuten, dass diese Information vermutlich in der Regel einfach zur Kenntnis
+genommen wird, ohne sich über den Vorgang tiefere Gedanken zu machen. Wird dann aber
+doch über das ‹Vonstattengehen› von Zeitreisen vertieft nachgedacht, stösst man rasch an
+denkerische Grenzen. Während eine Reise in die Vergangenheit noch einigermassen ‹verstanden
+werden› kann, z.B. indem man sich einen Sprung in eine vergangene Zeitdimension vorstellt
+(analog des vorgenannten Fluges), verkompliziert sich das denkerische Begreifen beim
+Gedanken an Zukunftsreisen. Dabei ist es doch klar: Die Tatsache von Zeitreisen in die
+Vergangenheit bedingt zwingend und logisch, dass, bezogen auf die Zeit der besuchten Situation
+in der Vergangenheit, die Zukunft ebenfalls ‹bereits› existiert (hat). Und wenn von der heutigen,
+durchschnittlich 2,7 Sekunden andauernden Gegenwart ein Sprung in die Zukunft gemacht wird,
+z.B. ins Jahr 3999, dann bedeutet dies logischerweise, dass jetzt, hier in unserer Gegenwart des
+Jahres 2021, bereits die Geschehnisse des Jahres 3999 ablaufen. Nur dadurch ist es möglich,
+einerseits mittels technischer Hilfsmittel Zeitreisen in die Zukunft zu unternehmen, oder durch
+Bewusstseinsnutzung Informationen aus der Zukunft zu gewinnen.
+Doch halt, stop! – Was ist mit dem freien Willen des Menschen?! Wenn die Zukunft bereits
+feststeht, dann steht das doch im Widerspruch zum freien Willen des Menschen? Bewegen wir
+uns unbewusst in einer illusionären Gedankenblase vermeintlicher Freiheit, einer Art denkerischbewusstseinsmässiger Fata Morgana? Haben die religiös Gläubigen schlussendlich doch recht,
+wenn sie behaupten, dass Gott alles bestimmt oder vorbestimmt («so Gott will») und die
+Menschen sich ihm einfach vertrauensvoll hingeben sollen, wie auch, dass seine Wege wohl
+unergründlich seien, er aber schon wisse, was für uns gut ist? – Nun, auf die verschiedenen
+Gottesbilder und den Glauben, dass ein sich ins Alltagsleben des Menschen einmischender
+rächender und parteiischer Herrgott oder Allah usw. das Universum usw. erschaffen habe, wird
+hier nicht weiter eingegangen, weil diese absurde Unmöglichkeit an anderer Stelle bereits
+ausführlich kommentiert wird. Aber auf das Thema ‹freier Wille› näher einzugehen ist tatsächlich
+wichtig, handelt es sich doch dabei um einen Faktor, der Menschen von der Tier-, Getier und
+Pflanzenwelt unterscheidet und ihn als Menschen auszeichnet.
+
+Dass der Mensch tatsächlich über einen freien Willen verfügt, der über das eigene Schicksal
+bestimmt, was von den einzelnen Menschen in unterschiedlich bewusster Form realisiert bzw. in
+Anspruch genommen wird, soll anhand eines fiktiven Beispiels durchgespielt werden:
+
+Variante 1: Ich weiss, dass meine Aufmerksamkeit sehr rasch eingeschränkt ist, wenn ich nicht
+mindestens 8 Stunden geschlafen habe, und dass ich bei Schlafmangel schon 2mal einen
+Sekundenschlaf erlebt habe, der glücklicherweise folgenlos blieb. Am nächsten Morgen muss ich
+um 5 Uhr aufstehen, weil ich wie versprochen 2 Kollegen abholen und zum Flughafen bringen
+werde. Am Vorabend feiern wir den Abschied bei einem Abendessen, trinken etwas Alkohol und
+haben es lustig. Eigentlich müsste ich mich um 21 Uhr aus der Runde verabschieden, um
+schlafen zu gehen, aber es ist so gemütlich und lustig, und ein Witz folgt dem anderen. Und ehe
+ich es versehe, ist es nach Mitternacht geworden und ich habe ein paar Gläser Bier intus. – Um
+5.10 Uhr weckt mich der Wecker zum 2. Mal, denn das 1. Mal habe ich ihn lediglich quittiert,
+mich gedreht und weitergeschlafen. Ich fühle mich gerädert und beginne mit der Morgentoilette.
+Das Frühstück lasse ich aus, denn es ist Zeit abzufahren. Die Kollegen steigen zu, und ich
+steuere das Auto durch die Dunkelheit, münde auf die Autobahn und fahre mit erlaubter
+Höchstgeschwindigkeit Richtung Flughafen. Plötzlich spüre ich einen starken Schlag nach links
+
+
+-----
+
+und vollführe einen Salto – Krachen – Blackout. Später erwache ich im Spital:
+Querschnittgelähmt. Einer der Kollegen ist tot, der andere mit schweren Verletzungen, u.a.
+Schädel-Hirn-Trauma, im künstlichen Koma.
+Variante 2: Mir meiner Verantwortung und körperlichen Belastungsgrenzen bewusst, habe ich
+mich um 21 Uhr zum Schlafen zurückgezogen. Die Fahrt zum Flughafen verlief problemlos. Die
+Kollegen fliegen ihrem Zielort entgegen, und ich kehrte gesund und munter nach Hause zurück.
+Auswertung der Variante 1:
+
+Hat Gott der Herr in seiner unermesslichen Weisheit und Güte vorbestimmt, dass ich mich
+verantwortungslos verhalte, ja eigentlich so verhalten muss, damit einer der Kollegen die
+Abkürzung in den Himmel nehmen kann, und dass der andere das Beste aus seiner Situation
+machen und viel lernen kann, ebenso wie ich, sind doch viele gläubige Menschen der Ansicht,
+Krankheiten und Unfälle – wie auch Behinderungen – müsse und werde es immer geben, damit
+Menschen daraus etwas lernen können? – Oder aber habe ich ganz einfach die aus meinem
+Gewissen aufsteigende Botschaft oder meinen Selbstverantwortungsimpuls wissentlich und aus
+Nachlässigkeit missachtet und dadurch schuldhaft den Normalablauf von 3 Menschenleben
+massiv ‹gestört›?
+Dieses krasse Beispiel zeigt, dass es einerseits der einzelne Mensch ist, der sein eigenes
+Schicksal laufend bestimmt – nämlich indem er eine bestimmte Entscheidung trifft oder nicht,
+d.h ob er sich treiben und fremdbestimmen lässt –, und andererseits, dass durch eigenes
+Verhalten andere Menschen tangiert werden, die ihrerseits wiederum ihr eigenes Schicksal
+durch laufende Entscheidungen bestimmen, was im Rahmen des Kausalgesetzes, nämlich dass
+jede Wirkung aus einer Ursache entspringt, zu den sogenannten Wechselwirkungen führt, die
+dann im Negativen das bewirken was wir als Pech bezeichnen, oder im Positiven als Glück oder
+als ‹nochmals Glück gehabt› usw. Daraus folgert, dass der kognitiv zurechnungsfähige Mensch
+stets die lenkende Hand am Steuerrad des eigenen Lebenslaufs hält, oder halten sollte, weil er
+die Selbstverantwortung für all sein Denken, seine Gefühle und Handlungen permanent zu
+tragen hat und diese nicht delegieren kann. Sich vom instinktgesteuerten Dasein der Tierwelt
+und der Getierwelt und andren Lebensformen unterscheidend, fordert das Menschsein ganz
+grundsätzlich die Nutzung der Fähigkeit, sich stets seiner selbst wie auch der Beziehungen zur
+Umwelt bewusst zu sein, seine Selbstkontrolle nie willentlich auszuschalten (Rausch!) und sich
+generell um die Erlangung neuer Erkenntnisse zu bemühen.
+Wie vom bisher Erklärten abgeleitet werden kann, ist die Nutzung des freien Willens nicht
+absolut, weil ja eben die Wechselwirkungen vielfältigen Ursprungs bestehen, denn es gibt
+Einflüsse von aussen, die wir persönlich unmöglich beeinflussen können und denen wir
+ausgeliefert sind, was wir akzeptieren müssen, ob wir wollen oder nicht, wie wenn z.B. plötzlich
+eine Atombombe über unserem Kopf explodiert (wie seinerzeit in Hiroshima und Nagasaki),
+oder wenn wir von einem gesundwirkenden Ferienrückkehrer aus Afrika mit dem Ebola-Erreger
+angesteckt werden. Selbst ein Einsiedler, der ganz allein auf einer einsamen Insel im Pazifik lebt,
+ist bezüglich seines freien Willens durch Wechselwirkungen eingeschränkt, in seinem Fall nicht
+durch andere Menschen, sondern durch die Interaktionen mit der Natur und dem Wetter usw.
+
+Auf weitere Dimensionen des Freier-Wille-Komplexes, wie z.B. bezüglich der ‹Macht der
+Gedanken›, wird hier nicht weiter eingegangen, denn es ist Zeit, dass wir wieder zum Thema Zeit
+zurückfinden und verspätet, aber doch noch immer rechtzeitig, dort fortfahren, wo vor nicht
+allzulanger Zeit der Einschub zum Thema ‹freier Wille› einen zeitfordernden Exkurs bewirkt hat,
+den aufzuholen oder rückgängig zu machen aber unmöglich ist, denn was einmal geschehen ist,
+kann NIE mehr rückgängig gemacht werden. Diesbezüglich und als zusätzliche Erklärung
+nachstehend ein Zitat aus dem FIGU Bulletin Nr. 40, August 2002, wo Billy auf Seite 12
+folgendes schreibt: «In bezug der Zeitreise in die Vergangenheit oder Zukunft hinsichtlich möglicher
+_Veränderungen des Geschehens und der Wirkungen aus Ursachen, die in der Vergangenheit_
+_resultieren, ist folgendes zum Verständnis von Notwendigkeit und Wichtigkeit: Was sich in der_
+_Vergangenheit bereits ereignet hat, und zwar in jeder Beziehung, hat sich als aus der_
+_vergangenheitsbezogenen Ursache bereits auf die Zukunft ausgewirkt und ist in dieser also bereits_
+_zur feststehenden und realen Tatsache geworden. Folglich wird auch durch eine Vergangenheits-_
+_Reise keinerlei Möglichkeit mehr geboten, bereits stattgefundene Abläufe und Geschehen usw. durch_
+_irgendwelche Handlungen und Eingriffe usw. zu ändern, um in der Zukunft bereits gegebene_
+_Wirkungen aus vergangenheitsbezogenen Ursachen zu verhindern. Dies ist so gegeben hinsichtlich_
+_der normalen Zeitreise, die durch eine Nutzung der Zeit-Dimensionen zustande gebracht werden_
+
+
+-----
+
+_kann und also auf rein technischer, materieller Natur beruht. Danebst gibt es aber noch eine höher_
+_geordnete Form der Zeitreise, die der an einen materiellen Körper gebundene Mensch niemals von_
+_sich aus mit materiellen Mitteln durchführen kann, weil dazu reine geistige Energien erforderlich_
+_sind, durch die selbst grobstoffliche Materie in verschiedene Zeit-Dimensionen transportiert werden_
+_kann. Dabei handelt es sich um eine Form der Zeitreise, der wohl die Bezeichnung Geist-Energie-_
+_Zeit-Dimensions-Reise sowie Geist-Energie-Zeitreise (Anm.: Schöpfungsenergie-Zeit-Dimensions-_
+_Reise bzw. Schöpfungsenergie-Zeitreise) zugeordnet werden kann, und durch die sowohl in die_
+_Vergangenheit wie auch in die Zukunft gereist werden kann. Zu erklären ist noch in bezug der_
+_materiell-möglichen Zeitreise, dass auch all die Abläufe und Geschehen jener Zeitspanne der_
+_Zukunft nicht in irgendeiner Weise verändert oder sonstwie beeinflusst werden können, die sich bis_
+_zu jenem Zeitpunkt bereits ereignet haben, zu dem sich in der Zukunft das direkte Zeitreise-Ziel_
+_befindet. Für den Zeitpunkt dieses Zieles nämlich hat sich bereits wieder die Vergangenheit ergeben,_
+_was bedeutet, dass sich zum Zeitpunkt der Erreichung des Zukunfts-Zeitreise-Ziels die Ursachen der_
+_bis dahin verflossenen Vergangenheit resp. Zeit bereits als Wirkung zur Realität geformt haben._
+
+_Bezüglich zukunftsbezogener Veränderungen resp. der möglichen Beeinflussung zukünftiger Abläufe_
+_und Geschehen ist es möglich, dass eine Einflussnahme auf die weitere Zukunft vorgenommen_
+_werden kann, jedoch erst ab dem Zeitpunkt, zu dem das zukünftige Zeitreise-Ziel zur Gegenwart_
+_wird. In dieser Form handelt es sich um den gleichen Vorgang wie bei der normalen Gegenwart,_
+_während oder in der sowie in der fortlaufenden Zeit in die Zukunft diese beeinflusst, gestaltet und_
+_also Veränderungen der Abläufe und Geschehen geschaffen werden können, und zwar durch das_
+_Schaffen von bestimmten Ursachen, aus denen sich wieder bestimmte Wirkungen entwickeln und_
+_ergeben.»_
+Soweit diese Erklärung, derbezüglich aber möglicherweise und vermutlich noch immer
+erweiterter Erklärungsbedarf besteht, bis schlussendlich der angestrebte Aha-Effekt ausgelöst
+und der Fall ein für alle Mal gelöst sein sollte, könnte oder wird (ist zu hoffen).
+Gemäss dem was Billy erklärt, formt sich die Zukunft, das heisst das Schicksal der Menschheit,
+und davon abhängig in gewissem Mass auch der Zustand des Planeten usw. gemäss der
+Gesamtheit aller fortlaufend anfallenden Entscheidungen, Tätigkeiten und Handlungen der
+Menschen. Alles, was einmal getan oder gesprochen wurde, kann nie wieder rückgängig
+gemacht werden, was, wie bereits weiter oben erläutert wurde, eigentlich Ansporn für jeden
+Menschen sein sollte, eine gewisse Gedankenkontrolle zu üben und auszuüben, weil dadurch viel
+Unerfreuliches und Unheil vermieden werden könnte, was nämlich alles wieder Ursache ist für
+weitere Wirkungen. Dies bedeutet auch, dass es unmöglich ist, einige Jahre in die Vergangenheit
+zurückzureisen, um z.B. den US-amerikanischen Präsidenten Truman umzubringen, bevor er
+seinen menschheitsverbrecherischen Befehl zum Abwurf der beiden Atombomben erteilt hat,
+und wodurch das Geschehen in Japan hätte ungeschehen gemacht werden können. Solch
+unrealistische Szenarien und unlogische Annahmen sind höchstens in Filmen und Romanen
+möglich, wie z.B. in der Terminator-Serie, nicht aber in der Wirklichkeit, weil die Wirklichkeit
+durch Logik, d.h., Folgerichtigkeit und unveränderbare Gesetzmässigkeiten bestimmt wird bzw.
+darauf basiert. Eine Halluzination, eine Illusion oder ein Glaube zeigt demzufolge nicht die
+Wirklichkeit bzw. Realität, sondern ist nur in dem Sinne real, dass die Krankheit Wahn eben als
+Wahn bezeichnet wird, dessen Inhalt nicht real ist, sondern lediglich eine verzerrte
+Sinnesdeutung usw. – Doch zurück zum Thema: Angenommen, wir fliegen 1000 Jahre in die
+Zukunft, dann beginnt der nächste Abschnitt der Zukunft sofort ab jenem Punkt weiterzulaufen,
+da wir dort eintreffen, während nach der Rückkehr in die Gegenwartszeit sich die Zukunft auch
+von dort aus ebenso weiter ergibt, wobei bereits 2021 feststeht, dass in 1000 Jahren unsere
+fernen Nachfahren Besuch von uns Zeitreisenden aus der Vergangenheit erhalten werden, selbst
+wenn wir in der Zwischenzeit bereits gestorben sein werden. Andererseits bedeutet dies, dass
+wenn wir die Zeitreise nicht unternehmen, wir gleichwohl sterben werden, wobei dann in 1000
+Jahren jedoch keine Zeitreisende auftauchen werden.
+
+Nehmen wir noch ein weiteres plastisches und aktuelles Beispiel als Erklärungshilfe: Da
+momentan weltweit keinerlei Anzeichen erkennbar sind, dass in absehbarer Zeit irgendeine
+Regierung eine weltweit verbreitete, offizielle Proklamation an die eigene Bevölkerung richten
+wird, nämlich dass dringender Handlungsbedarf besteht bezüglich einer drastischen
+Eindämmung des Bevölkerungswachstums, weil nun statt Symptombekämpfung unverzüglich
+die Ursache angegangen werden müsse (vorbereitet durch eine dauernde, intensive Aufklärungs
+
+-----
+
+und Sensibilisierungskampagne), wird die Zerstörung der Natur und deren Fauna und Flora
+ungebremst weitergehen, wird sich der Klimawandel weiter verstärken und die Vergiftung von
+Luft, Boden und Wasser sowie aller Lebewesen weiter zunehmen, mit den für die Leserschaft der
+FIGU-Schriften bekannten vielfältigen Auswirkungen. Also besteht bereits fest – d.h. es ist in der
+Zukunft bereits geschehen –, dass im Verlauf der nächsten 1 bis 2 tausend Jahre ein
+‹substantieller› Teil der Menschheit vorzeitig aus dem Leben scheiden wird, sei dies aufgrund
+ungeheurer Naturkatastrophen, durch neue Seuchen oder u.U. aufgrund gewaltsamer, gezielter
+Dezimierungsmassnahmen. Als weiterer Dezimierungsfaktor käme bei einem tatsächlichen
+Absturz der prophezeite Rote Meteor in Frage, der irdischen Wissenschaft inzwischen als
+Apophis bekannt, oder der Ausbruch einer oder mehrerer der rund 12 als Chaldera
+bezeichneten Gebiete, z.B. jene bei Neapel in Italien mit dem riesigen Unterwasservulkan Mount
+Marsilis, oder die Eifel in Deutschland oder das Yellowstonegebiet in den USA, oder eine Reihe
+ausbrechender Supervulkane (wie seinerzeit Krakatau oder noch weiter zurück Santorin), wobei
+durch die Rauchpartikel und giftigen Gase in der Atmosphäre weltweit eine starke Abkühlung
+erfolgen könnte, mit drastischen Auswirkungen auf Land, Ernährung und Lebewesen. – Das
+verantwortungslose, kriminelle und sträflich dumme Nichtstun der irdischen Menschheit als
+Gesamtheit, unter Hauptverantwortung der unfähigen Regierenden usw., deren Pflicht es wäre,
+zum Wohl der Bevölkerungen zu handeln, entspricht auf der Makroebene exakt jenem
+verantwortungslosen Handeln auf der Mikroebene, wo durch Missachtung der Anfälligkeit auf
+Sekundenschlaf ein Unfall mit Todes- und Invaliditätsfolge ausgelöst wurde.
+All das bisher Erläuterte steht in engem Zusammenhang mit den Faktoren oder dem Phänomen
+Raum und Zeit, also Materie und Zeitfluss, wobei gesamthaft alles derart umfassend und
+weitreichend ist, dass es für das menschliche Gehirn in der Gesamtheit wohl kaum je erfassbar
+sein wird, was nebenbei gesagt auch auf das <Absolute Nichts> usw. zutrifft. Das Ganze erinnert
+an den deutschen Komiker Piet Klocke, der in einem seiner Bühnenstücke als schussliger, in
+langen Assoziationsketten dahinmäandrierender Pseudo-Gelehrter und Möchtegern-Forscher die
+rhetorische Frage stellt, wie lange Raum und Zeit schon existieren, um dann nach etwas Zögern
+gleich selbst die Antwort zu geben, nämlich ‹seit geraumer Zeit›.
+Wie wir in den Kontaktberichten nachlesen können, betrieb Sfath umfangreiche Forschungen in
+der Vergangenheit und reiste mit Billy sogar einmal mehrere hundert Millionen Jahre in die
+irdische Urzeit zurück. Zur Illustration des Ganzen nachfolgend ein Beispiel für eine Zeitreise, die
+‹etwas weniger lange› zurückliegt, entnommen aus dem PP Block 17:
+Ptaah spricht über seinen Vater Sfath: «.... Seinen Annalen gemäss erforschte er die Erde zu vielen
+_Zeiten der Vergangenheit, wobei er vor nahezu 40'000 Jahren auch auf den Sanura-See stiess, bei_
+_dem damals das erhöhte Gelände über dem heutigen Center von kleinwüchsigen Menschen_
+_bewohnt war, die eine Grösse von durchschnittlich 115 Zentimetern aufwiesen und die fernste_
+_Nachfahren der ersten irdischen Hominiden waren. Nebst diesen kleinwüchsigen Menschen – deren_
+_fernste Nachfahren teilweise noch heute in Afrika als Pygmäen, wie aber auch in Asien vorkommen –_
+_erforschte mein Vater Sfath auch deren Ursprung, der ihn in viele andere Gebiete der Erde führte,_
+_wobei er auf weitere verschiedene kleinere Gruppierungen Kleinwüchsiger in Europa, Afrika, Süd-_
+_und Nordamerika, in Australien und Asien stiess. Diese alle waren jedoch unterschiedlich und wiesen_
+_bis zu 160 Zentimeter Grösse auf, waren verschieden pigmentiert und wiesen auch anatomische_
+_Verschiedenheiten auf. Interessiert forschte er weiter in der Vergangenheit der Erdgeschichte und_
+_der Erdenmenschheit und ergründete bis in die frühen Zeiten von 17 Millionen Jahren zurück die_
+_sich bis dahin zurückerstreckenden Entwicklungsprozesse der Hominiden. Danach ging er noch viele_
+_weitere Jahrmillionen in die Vergangenheit zurück und stiess vor rund 45 Millionen Jahren im_
+_Gebiet, das heute Deutschland ist, auf 1. Lebensformen, die sich frühzeitlich zu einer Form_
+_entwickelten, woraus vor rund 17 Millionen Jahren der hominide Werdegang hervorging, und aus_
+_dem sich im Lauf der weiteren Jahrmillionen letztendlich die kleinwüchsigen Menschen_
+_entwickelten. Entdeckt hat er diese Lebensformen an dem Ort, wo er dann auch zusammen mit dir_
+_war, um dich lehrend zu unterweisen, wo der eigentliche Ur-Ursprung der sichtbarwerdenden_
+_menschlichen Daseinsform begann, im Gebiet, das du als ‹Grube Messel› bei Darmstadt kennst._
+_Diese 1. Entwicklung der Lebensform, die zum Werden der 1. hominiden Gattung führte, fand mein_
+_Vater Sfath zum allerersten Mal dort, woraus dann über viele Jahrmillionen hinweg aus den sich_
+_daraus weiterentwickelnden Nachfahren im heute als Nordafrika bekannten Gebiet das effectiv 1._
+_menschliche Lebewesen hervorging, wie aber gleichzeitig auch in Gebieten, die heute Europa,_
+_Südafrika, Süd- und Nordamerika sowie Asien und Australien genannt werden.»_
+
+
+-----
+
+Ist schon die Vorstellung ‹herausfordernd›, dass jemand 44 Millionen Jahre in die irdische
+Vergangenheit reist, um dort Forschungen zu tätigen (ein faszinierender Vorgang, speziell wenn
+aus sicherer Distanz Aktivitäten von Sauriern beobachtet werden könnten, wie diese in der
+‹Jurassic Park›-Filmreihe gezeigt werden, allerdings ohne ‹menschliche Zutaten›), überfordert die
+im Buch ‹Diversikum› (Guido Moosbrugger, FIGU Wassermannzeit-Verlag) auf Seite 404
+aufgeführte, ‹Zeitanon› genannte Formel jeglichen Anflug eines vermeintlichen Verständnisses
+menschlichen Denkens, weil diese Formel im gesamten Universum niemals durch ein
+menschliches Gehirn oder einen Computer erfasst und verstanden werden kann. Aber
+interessant und beeindruckend ist es allemal, die Formel zu lesen und die Ewigkeit auf sich
+wirken zu lassen.
+Was zum Thema Zeitreisen noch anzufügen ist (gemäss Auskunft von Billy): Zeitreisen in die
+Vergangenheit oder Zukunft sind nur innerhalb der laufenden Existenz unseres Universums (das
+sich im Materiegürtel befindet, dem 4. von insgesamt 7 Gürteln) möglich, also innerhalb dessen
+Existenzdauer von insgesamt 49 Milliarden Jahren (wovon 17 Milliarden Jahre bereits vergangen
+sind), und zwar bis sich unser materielles Universum übergangslos in reine Energie
+zurückgewandelt haben wird, alle Welten und Galaxien sich aufgelöst haben und bevor das
+nächste Universum sich für erneut 49 Milliarden Jahre zu entwickeln beginnt, und all dies in der
+momentan 46 Billionen Jahre alten, sich während insgesamt 155,5 Billionen Jahren
+ausdehnenden Schöpfung Universalbewusstsein.
+Noch beeindruckt und staunend über diese ungeheuren Zeiträume, muss Ihnen, liebe Leserin,
+lieber Leser, nun leider mitgeteilt werden, dass der am Anfang dieses Artikels prophezeite
+Erkenntnisgewinn bezüglich Ihrer Fragen zum Verständnis von Raum und Zeit, von Dauer und
+Zeitreisen, Zeitströmen und Dimensionen usw. vermutlich magerer als erhofft ausfällt. Es gäbe
+zwar noch endlos viel zu sagen und zu erklären, aber da es sich hier um einen Artikel und nicht
+ein Buch handelt, ist die zeitliche und buchstabenzahlmässige Beschränkung zwischen
+Textbeginn und Textende völlig legitim, aber immerhin kann zum Abschluss noch eine kleine
+Informationsbombe gezündet werden, als eine Art Bonus und Dank für Ihre bisherige
+Aufmerksamkeit: Wahr ist, und Wirklichkeit, dass es eigentlich gar keine Zeit gibt, denn in der
+ganzen Schöpfung gibt es, bzw. herrscht **keine Zeit, sondern nur** **endlose Dauer. Alles ‹fliesst›**
+und ist einem unaufhörlichen Prozess des Werdens und Vergehens und Wiederwerdens
+eingeordnet, und könnten die Rehe und Füchse und Eulen und Forellen usw. denken und
+sprechen wie wir, würden sie diese Aussage und Erkenntnis bestätigen, leben sie doch völlig im
+Hier und Jetzt und frei von zeitlichen und terminlichen Zwängen. Tatsächlich ist die Zeit eine
+‹Erfindung› des Menschen, eine Art Instrument und ein kognitives Hilfsmittel und eine Methode,
+um sich in der Realität des Alltags und Lebens zurechtzufinden und um evolutive Fortschritte zu
+erzielen usw. usf. So wurde von den Menschen beispielsweise der Faktor ‹Termine› erfunden,
+weil ohne diese die Menschen gleich wie die Tiere handeln und ihre Steuererklärung nie
+einreichen würden.
+
+Wie sagte seinerzeit Archimedes: «Gebt mir einen Hebel, der lang genug, und einen Angelpunkt,
+der stark genug ist, dann kann ich die Welt mit einer Hand bewegen.»
+
+Ein solcher Hebel ist selbstverständlich nur als Prinzip und gedanklich bzw. virtuell möglich,
+ganz im Gegensatz zu einem anderen ‹Hebel›, der allen Menschen gratis zur Verfügung steht, für
+alle im täglichen Leben nutzbar ist, und auch in Wissenschaft und Forschung Erkenntnisgewinn
+brächte, nämlich die <Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens>.
+
+###### Bulletin Briefe
+ Leserbriefe
+Salome Billy,
+Oleg Kinash aus der Ukraine ist einverstanden mit der Veröffentlichung als Leserbrief.
+
+Hallo Elisabeth
+Ich freue mich, dass du an mich gedacht hast. Es war für mich eine angenehme Überraschung.
+Oft denken die Menschen nicht an andere. Es ist alles gut bei mir. Danke. Wie ist es bei euch mit
+der Corona-Seuche? Wie ich weiss, tobt heute die dritte Welle durch Europa. Ich habe an dich
+eine Frage gestellt, weil ich dachte, dass die Geisteslehre nicht nur rein materiell-intellektuell
+
+
+-----
+
+genommen werden kann. Denn hätte die GL nur einen rein materiell-intellektuellen Wert, dann
+würde es nicht so gut sein. Ich habe viele Menschen gesehen, die ihren Intellekt verherrlichen,
+wie aber auch, dass sie nur noch unserer Naturwissenschaft hörig geworden sind, was aber
+leider nicht gut aussieht. Was ich an mir bemerkt habe ist das, dass ich je mehr ich verstehe,
+desto weniger will ich über diese Dinge sprechen. Die Menschen haben einfach keinen Respekt
+zu all dem, was wirklich wertvoll ist, denn alles ist bei ihnen nicht auf das SchöpferischNatürliche ausgerichtet, sondern es wird nur alles rein Materielle geschätzt. Was ich auch
+bemerkt habe ist das, dass bei unserer Gesellschaft nur rein materielle Gesetze und Phänomene
+die allererste und primitivste Erkennung und Werte bilden, wobei das Ganze im tiefsten Wert
+aber viel weiter geht, und zwar bis in die sehr feinen und höheren Werte der Logik. So habe ich
+alles verstanden und verstehe auch, dass die Geisteslehre die Lehre der Bewusstseinsevolution
+und des wahren Wissens und Menschseins ist. Ich danke dir und auch Billy für eure sehr
+wertvollen Antworten. Wenn du wieder zu ihm gehst, dann überbring ihm bitte meine Grüsse
+und meinen Dank. Ich habe gelesen, dass er seine Hand beschädigt hat, wozu ich hoffe, dass es
+ihm jetzt wieder gut geht?
+
+**Am 06.02.2021 um 12:15 schrieb Stefan Funder:**
+Hallo liebe Elisabeth,
+Ich hoffe es geht Euch den Umständen entsprechend gut.
+Es ist mir ein Bedürfnis, nochmals Deine Zeit in Anspruch zu nehmen.
+Ich nehme Bezug auf mein letztes Schreiben.
+Das, was ich nachfolgend sage, sage ich als Schüler der Lehre des Lebens.
+Lange Zeit bin ich wie eine Henne auf ihrem Ei gesessen und habe gebrütet, in der Hoffnung,
+dass da ein Küken herauskommt.
+Genau das ist der Fall.
+Es ist mir leid, immer wieder zu hören, dass all Eure Arbeit und vor allem Billy in den Dreck
+gezogen werden.
+Aus meiner Sicht ist Billy der einzige Mensch auf der Erde, der so selbstlos alle seine Gedanken
+und Erfahrungen mit uns allen teilt.
+Ein Geschenk, das viele im Wert noch gar nicht erkannt haben.
+Er ist der Urheber einer völlig neuen Sprache, und er hat uns allen gezeigt und beschrieben, wie
+damit verantwortungsvoll umgegangen werden soll.
+Das Traurige für mich an der ganzen Sache ist, dass selbst Freunde und viele, die ihn als Lehrer
+nutzten, ihm heute Steine in den Weg werfen.
+Es scheint so, als ob viele bereits vergessen haben, wo der Ursprung ihrer Weisheit ist.
+Während meiner Ausbildung wurde mir der Zahn, der mich hätte in dieser Form ausarten lassen
+können, schon früh gezogen.
+Leider ist es aber so, dass die wenigsten die Bereitschaft in sich haben, ihren Erfolg, gross oder
+klein, klar auf die Ausbildung von Billy zurückführen und das auch bekennen.
+Allzu schnell wird, nachdem Probleme, die mit Hilfe Eurer Ratschläge gelöst worden sind, in die
+alte Lebensweise, die zum Übel geführt hat, erneut wieder zurückverfallen.
+Wenn es nicht in einem drin ist, sich selbst zu erziehen und durch sich selbst zu lernen, wird
+eine Selbständigkeit ein Ding der Unmöglichkeit.
+Gerade jetzt, da viel Zeit gegeben ist, um sich zu besinnen und in sich Klarheit zu schaffen, tun
+Das hat aus meiner Sicht Folgen, wo dem einen oder anderen noch die Spucke wegbleibt es die
+wenigsten.
+Die Tatsache, dass der einzelne davon ausgeht, dass wenn er sich gut fühlt, dass es dann
+automatisch heisst, dass das richtig ist, was aber nur einer Oberflächlichkeit entspricht.
+Richtig im Sinnen, Tun und Handeln kann nur das sein, was nicht nur den einzelnen
+zufriedenmacht, sondern alle anderen um Ihn herum auch.
+Ich hoffe, ich habe nicht zu viel vom Stapel gelassen.
+Vielen Dank für Dein Gehör und Deine Zeit. Wie immer Grüsse an alle.
+In Liebe und Freundschaft.
+Salome. Stefan
+
+###### N. W. schrieb Ansprache des ägyptischen Präsidenten an das Volk
+N.W. hat uns folgendes aus dem Arabischen übersetzt, was der ägyptische Präsident
+
+
+-----
+
+in seiner Ansprache gesagt hat. Drei Viertel der Rede hat der Präsident über die
+neuen Städte, die Straßen und über die neue Hauptstadt von Ägypten geführt, die mit sehr
+modernen Technologien ausgestattet ist, wie auch andere neue Städte, wie El Alamein, die am
+Mittelmeer liegt, wo im 2. (3.) Weltkrieg von den Engländern und Deutschen in El Alamein-Stadt
+der Boden mit Minen verseucht wurde, die sehr lange liegengeblieben waren und viele
+Menschenleben forderten, ehe sie entfernt und vernichtet wurden.
+
+Der President sagte zur Erneuerung Ägyptens, dass nach der langen Zeit oder Epoche des
+Krieges, der zahllosen Todesopfer und der gelte: Zerstörungen: <Ägypten steht wieder auf>.
+
+Der President sprach auch von den Armen-Vierteln in der grossen Stadt Kairo, die innerhalb
+kurzer Zeit umgebaut worden war. Das sei jedoch nicht alles, sagt er, es würden alle Dörfer und
+kleinen sowie großen Städte renoviert werden, die am Nil-Fluss liegen –, und alle Straßen
+würden saniert, alles mit elektrischem Strom und Wasser versehen, wozu bereits alle
+notwendigen Leitungen verlegt würden.
+
+1. Die unerlaubten Bauten in der fruchtbaren Zone am Nil-Fluss in Ägypten. Alle diese Häuser
+werden abgerissen und Richtung Wüste neue Hochhäuser für euch gebaut werden. Alssissi
+sagte: «Ich weiß, dass ihr nicht gewohnt seid in Hochhäusern zu leben, aber es muss so sein, da
+Ägypten nicht so viel fruchtbaren Landes besitzt, weshalb wir es nur so lösen können.
+
+Er hat jedoch auch von großen Problemen gesprochen, so von den unerlaubterweise erstellten
+Bauten, die in der fruchtbaren Zone am Nil-Fluss in Ägypten errichtet wurden. Alle diese
+Bauwerke und Häuser sollen abgerissen und durch neue erlaubte Hochhäuser Richtung Wüste
+für die Bevölkerung ersetzt und neu gebaut werden. Der Präsident, Abd al-Fattah as-Sisi, sagte
+aber auch: «Ich weiß, dass ihr nicht gewohnt seid in Hochhäusern zu leben, aber es muss so
+sein, weil Ägypten nicht viel fruchtbares Land besitzt, folglich wir dieses zum
+Nahrungsmittelanbau nutzen müssen. Also können wir nur gut wohnen, wenn wir unsere Häuser
+in der Richtung der Wüste bauen.»
+
+Dann sagte der President weiter: «Ihr sagt uns immer wieder, wir wollen Arbeitsplätze haben;
+doch ihr habt viel Arbeit – nämlich euer furchtbares Land, das ihr zum Anbau von
+Nahrungspflanzen nutzen und bearbeiten könnt, und zwar zum Nutzen aller. Ihr aber
+missbraucht das Land, indem ihr es unerlaubt bebaut und mit vielen Bauten fruchtbares Land
+zerstört. Das ist traurig … «
+
+Und der Präsident sprach weiter die Bevölkerung an und sagte: «In Ägypten werden jedes Jahr 1
+Million neue Menschen geboren – 1 Million Kinder werden zur Welt gebracht, und diese
+Menschen, wenn sie erwachsen werden, brauchen dann auch wieder Arbeit, wie auch alle, die
+schon geboren wurden, und die nach und nach jedes Jahr erwachsen werden und Arbeit haben
+müssen. Doch wir können euch nicht jedes Jahr eine Million neue Arbeitsplätze erschaffen, denn
+das ist unmöglich>.
+
+Das war der Hammer 😄, denn bis jetzt schaffte es keiner der Regierungsmenschen, in dieser
+Weise direkt, klar und offen die Wahrheit zu sagen.
+
+Was der Präsident jedoch weiter sagte, ging in gleicher Weise weiter: «Wir müssen 10 Jahre lang
+die Zahl der neugeborenwerdenden Kinder auf 400 000 pro Jahr reduzieren.»
+
+Wie die ägyptische Bevölkerung das allerdings machen soll, das hat er leider nicht gesagt 🤔,
+und das war zudem auch der Schluss des Videos. Ob er das schafft, das weiß ich nicht, aber ich
+sehe nicht, dass er sich durchsetzen kann, weil ich nämlich weiß, wie die Menschen dort in
+Ägypten denken. – Ich selbst habe keine Kinder 😊, und ich bin froh, dass es so ist.
+
+**Eine Bemerkung:**
+Der Ägyptische Präsident ( SEIN NAME WIRD SO AUSGESPROCHEN: Abd- elfatah elssissi = ﻋﺑد
+اﻟﺳﯾﺳﻲ اﻟﻔﺗﺎح,)sein **Name wird auf Arabisch mit zwei ss س** ausgesprochen, weil, wenn **in der**
+
+
+😄
+
+
+😊
+
+
+-----
+
+**arabischen** Aussprache **ein Buchstabe nur als einzelnes** S **gesprochen wird, dann** **hört sich**
+dieser (ز **)** **wie <sän>** **an,** **und das wird auf Arabisch als <dan> und somit als witzig😊 gedeutet**
+**und verstanden..**
+Sein Name auf arabisch:
+Ich wünsche euch einen schönen Tag
+
+Liebe Grüße an Billy 😍❤ N.W.
+
+###### Anm. Billy: Zum Verständnis für die Leserschaft
+Der Ursprung der heutigen Bevölkerung von Ägypten führt weit in die Vergangenheit zurück,
+denn wie schon die früheren Bewohner dieses altbekannten Landes entstammen auch die
+heutigen einheimischen ägyptischen Menschen indigenen mediterranen nordafrikanischen
+Völkern. Die ägyptische Bevölkerung weist eine enge genetische Verwandtschaft mit den
+heutigen Arabern und den Berbern auf, wie aber auch mit Europäern. Genetische Verbindungen
+bestehen weitgehend auch in den Osten resp. ins Morgenland und damit in die Länder am
+östlichen Mittelmeer, an das sich der Nahe Osten anschliesst, wozu auch die Türkei und
+besonders die griechische Halbinsel und die griechischen Inseln in der Ägäis und die
+mediterranen Küstengebiete gehören.
+
+**Ägypten:** Dieser Staat in Nordafrika am Mittelmeer ist schon seit alters her ein politisch
+bewegtes Land, das diversen Eroberungen anheimfiel und folgedem auch mit verschiedenen
+Religionen konfrontiert wurde usw. Zwangsläufig ergaben sich auch staatsführungsmässig
+immer wieder grosse Veränderungen, die bis in die heutige Zeit anhalten und noch lange
+weitergehen werden. All das aufzuführen, würde jedoch sehr langwierig sein und dicke Bücher
+füllen, weshalb nur kurz folgendes dazu gesagt sein soll, und zwar beginnend mit dem ÄgyptenPräsidenten Husni Mubarak, der in der Geschichte Ägyptens als erster freigewählter Machthaber
+ins Regierungsamt kam.
+
+Muhammad Husni Mubarak oder auch Mohamed Hosny Mubarak wurde 1928 geboren und
+starb am 25. Februar 2020 in Kairo. Wie gesagt, gelangte er als erster freigewählter Präsident an
+die Macht, und zwar im Jahr 1981, wobei er dieses Amt in der Arabischen Republik Ägyptens
+rund 30 Jahre autokratisch innehatte, und zwar bis zum 11. Februar 2011. Dann gab es jedoch
+Ärger, als in diversen Staaten sich die Völker gegen ihre Regierungen erhoben und Freiheit und
+Regierungswechsel usw. forderten, was sich dieserart 2010/11 auch als grossangelegte
+Protestaktionen in Ägypten unter dem Slogan <Arabischer Frühling> ergab, wodurch gemäss
+Angaben der Plejaren 1078 Demonstranten zu Tode kamen, während öffentlich jedoch nur etwa
+850 Tote genannt wurden. Das Ganze veranlasste Mubarak zum Rücktritt, wobei dies
+selbstbeschlossen oder anderseits zwangsbeschlossen erfolgte, das sei dahingestellt, denn
+darüber herrscht bis heute Unklarheit, denn einerseits wird behauptet, er sei gestürzt worden,
+anderseits kursierte, dass er selbst zurückgetreten sei. Dies, während er plejarischen Angaben
+gemäss jedoch zum Rücktritt gezwungen und vor Gericht gestellt und zu einer lebenslangen
+Haftstrafe verurteilt wurde. Diese musste er dann auch antreten. Im März 2017 wurde er aber
+vom obersten Berufungsgericht Ägyptens freigesprochen und aus dem Armeekrankenhaus
+entlassen. Nicht umhin kam er jedoch, dass ihm verboten wurde, Ägypten zu verlassen.
+
+Werden die Demokratie und Bürgerechte in Ägypten unter die Lupe genommen, dann ergibt
+sich de facto, dass auch nach der Aufhebung des Notstandgesetzes nach der Ermordung des
+ägyptischen Vor-Mubarak-Staatspräsidenten Anwar as-Sadat im Jahr 1981 – der von Islamisten
+erschossen wurde, weil er mit Israel einen Friedensvertrag schloss – alles leider äusserst
+unbefriedigend blieb.
+Billy
+
+******************************************
+
+Diese Werte wurden eingegeben:
+Jonas Madsen, Paipisch.
+Finnland,
+
+
+😊
+
+
+-----
+
+Sehr geehrte Damen und Herren,
+Vielen Dank für alle Bücher und andere Material, sie sind sehr Hilfreich. Ich habe schon seit zirka 15 Jahren
+von Billy Meier Kenntnis, aber früher habe ich die Lehre nicht so aktiv studiert. Am ersten bin sehr
+interessiert über UFOs usw., aber jetzt interessierte ich mich nur für die Lehre der Wahrheit.
+Deutsch ist für mich nicht so schwer zu verstehen, weil meine Muttersprache Schwedisch ist. Sprechen und
+schreiben ist ein bisschen schwerer für mich, hoffentlich verstehen sie doch meine Hauptpunkte.
+Im Moment lese ich das Buch „Wenn der Mensch glücklich und zufrieden werden will. Es ist so, dieses
+Buch spricht direkt zu mir und wie ich meine Probleme lösen kann. Es ist sehr hilfreich und alles wirkt so
+logisch. Ich will nur Billy und FIGU danken für all das Material, es steht das Ganze der Menschheit zur
+Verfügung.
+
+Früher war ich ein bisschen deprimiert gewesen, aber jetzt mit Hilfe von Billys Büchern bin ich sicherlich
+auf dem Weg der Besserung <Macht der Gedanken> ist auch ein sehr, sehr hilfreiches und interessantes
+Buch.
+Alles ist zwar ein langsamer und schwer Prozess für mich, das Material zu lesen, verstehen und in meinem
+eigenen leben umzusetzen. Ich will ein wahrer Mensch werden und dies lernen, und dass kann ich mit der
+Hilfe von dem FIGU-Material und den Büchern das wirklich lerne, und das ist zweifellos.
+Vielen Dank!
+Salome, Jonas
+###### Fragen vom 3. Mai 2021
+
+**680. Kontakt, Montag, 7. Mai 2017, 13.07 h resp. Kleinschrift „Der wahre Motor des Denkens“**
+
+**Billy: „… Ganz entscheidend ist also, dass das materielle Bewusstsein des Menschen nicht vom**
+Gehirn erzeugt wird, sondern aus der geistenergetischen Welt des sogenannten
+Universalbewusstseins oder eben der Schöpfung Universalbewusstsein, wobei das diesbezüglich
+Ganze nichts anderes verkörpert, als einen Impulsspeicher, geistenergetisch-elektromagnetischer
+Natur, der nur um der menschlichen Verständnismöglichkeit willen als Universalbewusstsein
+resp. Schöpfung Universalbewusstsein genannt wird. …“
+
+**Fragen hierzu:**
+Ist der Begriff „Impulsspeicher geistenergetisch-elektromagnetischer Natur“ als Synonym für die
+Schöpfung Universalbewusstsein so zu verstehen, dass beispielsweise alle schöpferischnatürlichen Gesetze – wie z.B. das Kausalprinzip, wonach jeder Ursache eine ganz bestimmte
+Wirkung folgt – auf den genannten Impulsen beruhen, die dadurch quasi vollautomatisch zur
+Wirkung und Funktion gelangen?
+– Welche Impulse beinhaltet resp. speichert die Schöpfung Universalbewusstsein noch resp.
+welche Impulse und Kräfte lässt sie darüber hinaus zur Wirkung kommen?
+– Gibt es bezüglich der Impulse auch eine Struktur, die auf der kosmischen Siebenheit beruht?
+– Wenn ja, was alles umfasst diese Siebenheit, wie ist sie aufgebaut?
+
+**Antwort: An und für sich ist die Geisteslehre (Schöpfungsenergielehre) grundsätzlich dazu**
+bestimmt, die Persönlichkeit, den Charakter, nicht bewusstseins-evolutivbedingte Dinge und jene
+Fakten zu lernen und zu studieren, denn die Fragen zur Persönlichkeitsentwicklung entsprechen.
+Anderes ist nicht relevant, sondern äusserst hinderlich, weil diese Faktoren vom Sinn des
+Ganzen der Evolution ablenken.
+
+###### Zitat von der Internetzseite
+https://www.figu.org/ch/ueberbevoelkerung
+bezüglich der irdischen Gesamtbevölkerung
+
+„Die mit der Wirklichkeit übereinstimmenden Zahlen, geliefert von JHWH Ptaah. Stand
+31.12.2020 (Mitternacht): 9'163'081'008.
+Gemäss Aussage der irdischen Bevölkerungsstatistiker beträgt die Bevölkerungszahl per
+10.1.2019 nur rund **7'545'276'910 Menschen (Quelle: www.census.gov). Eine massive**
+Fehleinschätzung!“
+
+
+-----
+
+**Fragen hierzu:**
+– Haben die Plejaren Angaben über die tatsächlichen Bevölkerungszahlen auf den einzelnen
+Kontinenten der Erde?
+
+– Es wurde gesagt, dass die riesige Abweichung zwischen den irdischen offiziellen Zahlen und
+den von den Plejaren gemessenen Zahlen der irdischen Gesamtbevölkerung darauf beruhen,
+dass z.B. Menschen in abgelegenen Gebieten nicht mitgezählt wurden, dass viele Menschen
+unterirdisch leben, dass die Volkszählungen ungenau sind usw.
+
+– Haben die Plejaren hierzu genaue Angaben, also welche Anteile dieser über 1,5 Milliarden
+Menschen (Stand 31.12.2020) wo auf der Erde und unter welchen Bedingungen diese
+Menschen leben.
+
+– Wie ist die Aufteilung der irdischen Gesamtbevölkerung an weiblichen und männlichen
+Menschen?
+Salome und liebe Grüsse  Achim
+
+**Antwort:**
+1. Ja, die irdischen Zahlen der Masse Menschheit stimmen nicht, denn es erfolgt keine
+wirkliche Zählung der Masse der Überbevölkerung, sondern nur eine automatische
+Zählung, die auf eine Sekunde ausgerichtet ist, in der 2,6 Menschen neu geboren werden
+sollen. Das stimmt aber nicht, den gemäss plejarischen Angaben wächst die Population
+der Erdlinge viel schneller und steigert sich zudem. Und dies erfolgt erstens gemäss
+dem, dass die ins zeugungsfähige Alter kommenden Nachkommen ebenfalls wieder
+Nachkommen zeugen, was durch die automatische Berechnung der Erdbevölkerung
+nicht in den 2,6 Minuten berechnet wird. Ausserdem werden die Menschen nicht
+mitgezählt, die im Untergrund leben, wie auch jene Menschen nicht mitgezählt werden,
+die als Eingeborene in den Dschungeln usw. leben oder geboren werden.
+
+2. Nach irdischen Angaben decken sich die Todesfälle angeblich ungefähr gleich mit den
+Geburten, wozu jeder Laie berechnen kann, dass dies nicht stimmt, denn sonst würde
+die Masse der Überbevölkerung ja nicht wachsen, gegenwärtig sind es über 9,16
+Milliarden. Wenn gleichviele Menschen sterben würden, wie geboren werden, dann bliebe
+der Stand ewig gleich und die Menschheit könnte nicht zahlenmässig wachsen. Also
+sterben millionenmässig viel weniger Menschen pro Jahr, als geboren werden, das sollte
+doch klar sein, denn die wachsende Zahl der Überbevölkerung beweist dies. Wenn
+gedacht wird, dass bei der Zählung der irdischen Bevölkerung Ende Jahr 500 genau 198
+847 080 Menschen die Erde belebt haben, dann müssen schon damals mehr Geburten
+statgefunden haben, als gestorben sind. Bis zum Jahr 1800 ging dann alles im Rahmen
+des <Normalen> weiter, ein Anstieg der Erdenpopulation von 892 333 410 Menschen,
+was einem Zuwachs von resp. ein Zuwachs von 693 486 330 Menschgen entspricht. Bei
+einem Bevölkerungstand 1 660 990 034 per Ende 1900 – die Zahl von 1 Milliarde war
+da bereits weit überschritten – betrug der Geburtenüberschuss am Ende dieser 100
+Jahre weitere erreichte die irdische 768 656 624 Menschen- Ende 1950 dann ergab sich
+bereits eine Gesamtpopulation von 2 600 047 000 auf dem Erdenball. Und mit Datum
+vom 31. Dezember 2020 erreichte die irdische Bevölkerung die Überbevölkerungsmasse
+Von 9 Milliarden 164 tausend 81 hundert und 8 Menschen. (25.72021. CF)
+
+Wo und unter welchen Umständen diese Menschen leben, das entzieht sich meiner
+Kenntnis.
+
+3. Die Menschenzahl der einzelnen Kontinente ist mir nicht bekannt, denn ich erhalte
+jeweils nur die Gesamtbevölkerungszahl der Menschheit der Erde, nicht also der diversen
+Kontinente oder Völker. Ausserdem wurde mir auf eine entsprechende Frage
+geantwortet, dass dies nicht eine Frage meinerseits sei, folglich sie für mein Wissen auch
+nicht relevant und von Notwendigkeit sei. Es werden also nur Fragen beantwortet, die für
+mein eigenes Wissen erforderlich seien, worüber ich dann selbst zu bestimmen habe,
+
+
+-----
+
+wie und was ich weitergebe an Informationen. Sind diese jedoch nicht für die
+Allgemeinheit bestimmt, so habe ich darüber zu schweigen oder sie nur umrissig und
+verschleiert resp. weit umschriebenermassen zu nennen.
+
+4. Was die Frage bezüglich Mann und Frau betrifft, so ergibt die Aufzeichnung, dass die
+Aufteilung gesamtirdisch auf die Geschlechter wurde mir inzwischen genannt, und die ist
+dermassen ausgerichtet, dass das Überwiegende bei der männlichen Population liegt.
+
+###### Leserfrage
+Hans-Jörg Schmidt, der Verfasser des Buches ‹Nachbarschaftskunde› über Tschechien, erklärt,
+dass das Volk der Tschechen dazu neige, renitent zu sein und dass das in den Genen dieses
+Volkes verankert sei.
+
+Zuerst dachte ich, dass es peinlich sei, so etwas zu fragen, aber das ist es nicht, weil es die
+Realität ist und diese ist ja da A und O des Lebens. Wie ist nun diese Renitenz in die Gene des
+tschechischen Volkes gelangt? Oder anders gefragt, wo liegt der Ursprung der Renitenz und wie
+ist die Renitenz, oder Störrischkeit z.B. bei einem Kind zu beseitigen? Was müssen die Eltern
+besser machen, damit das Kind sich nicht mehr so verhält?
+
+**Antwort:** Renitenz, also Sturheit, Störrischkeit oder Widerspenstigkeit ist nicht nur eine
+Eigenschaft des tschechischen Volkes, sondern sie ist gleichermassen auch bei anderen Völkern,
+Volksgruppen, Familien oder Einzelpersonen weltweit in mehr oder weniger starker Ausprägung
+zu finden.
+
+Grundsätzlich hat Renitenz einen religiösen Hintergrund resp. ist Renitenz in der Ausformung,
+wie wir sie heute kennen, ursprünglich durch die Religionen und Sekten entstanden. Religiöse
+und Sektierer verhielten sich uneinsichtig, widerspenstig, stur und störrisch gegenüber jenen,
+welche andere Religionen, Glaubensgemeinschaften, Glaubensformen oder die Wirklichkeit
+vertraten und ihnen ihren Glauben aufdrängen oder ihnen die Wahrheit nahebringen und sie der
+Tatsachen belehren wollten. Wenn es um die Anerkennung und die Auseinandersetzung mit der
+Wahrheit, also der Wirklichkeit und der Tatsachen ging, verhielten sie sich ablehnend und
+angriffig gegenüber jedem, der nicht ihres eigenen Glaubens war, was sich bis ins
+Unterbewusstsein eingefressen hat und bis heute unaufhaltsam immer wieder durchdringt und
+gewissermassen aufbricht. Daraus entstand dann im Laufe der Zeit eine grundsätzlich
+ablehnende Haltung gegenüber allem und allen, die etwas Neues oder anderes brachten oder
+vertraten, oder die neuen Gesetze oder Regeln aufbrachten. Dadurch wurde das störrische
+Festhalten am Glauben und an bestimmten Überlieferungen zu einer pathologischen
+Grundeinstellung, die persönlich nur noch schwer zu bekämpfen war und ist und die sich also
+zur Renitenz ausprägte, die sich dann im Lauf der Zeit in den Genen festsetzte.
+
+Anstatt sich der Wahrheit und den Tatsachen zuzuwenden, diese zu akzeptieren, sich danach
+auszurichten und mit diesen zu arbeiten, zogen und ziehen es religiöse und sektiererische
+Menschen also vor, sich an jede Art von Glauben, Illusion und Einbildung zu klammern und die
+Wahrheit resp. die Tatsachen und die Wirklichkeit völlig auszublenden, abzulehnen und sich
+dagegen eben störrisch, widerspenstig und gewaltsam bis hin zu Mord und Totschlag zu
+verhalten.
+
+Da die Renitenz inzwischen in den Genen verankert ist, wird sie von Generation zu Generation
+einerseits durch die genetische Veranlagung bzw. Übertragung und andererseits durch das
+Vorleben der Eltern und der Gesellschaft an die Nachkommenschaft weitergegeben. Mit anderen
+Worten werden die Kinder durch die Eltern und die Gesellschaft zur Renitenz angehalten und
+dazu erzogen.
+
+Renitenz kann bei Kindern nicht einseitig beseitigt werden. Erziehung beruht ja nicht nur auf
+Belehrung, sondern in erster Linie auch auf dem Vorleben bzw. dem Vorbild der Eltern und der
+Gesellschaft. Also müssen sich die Eltern zuerst einmal mit ihrer eigenen Neigung zur Renitenz
+auseinandersetzen und diese bei sich selbst beheben, und gleichzeitig müssen sie ihrer
+
+
+-----
+
+Nachkommenschaft dann auch Akzeptanz, Einsicht, Anpassungsfähigkeit und das persönliche
+Ausrichten nach der Wirklichkeit und der Wahrheit vorleben und dies auf die Kinder übertragen,
+wodurch dann auch die Kinder lernen können, ihre genetische Neigung zur Renitenz in Schach
+zu halten, diese dann mit der Zeit zu kontrollieren, zu meistern und zu bewältigen.
+
+###### Neue Kontaktperson: Plejare Onkoton
+**Zeichnung von Ptaah/20.2.2021**
+
+###### Virtuelle Treffen zu Corona-Zeiten
+
+von Christian Krajczok, Deutschland
+
+Seit nunmehr über einem Jahr musste eine Lösung gefunden werden m trotz dieser schlimmen
+Pandemie den Kontakt unter uns FIGUanern nicht ganz zum Erliegen kommen zu lassen. Man
+ist ja mittlerweile über diverse Plattformen untereinander vernetzt (WhatsApp, Telegramm,
+Skype, Twitter etc.), jedoch bieten diese nicht immer einen adäquaten Ersatz für physische,
+echte Treffen. Ein Treffen von Antlitz zu Antlitz kann wohl nie eine Technik vollständig ersetzen.
+Ich bin seit etwa 2012 bei der FIGU dabei und war schon 1 bis 2 Jahre zuvor das erste Mal auf
+unseren Verein/Interessengemeinschaft gestoßen, als ich das Internet wild durchstöberte und
+mich allen möglichen Informationen/Menschen/Gedanken usw. widmete, die es bot, die es auf
+keinem anderen Wege derart schnell, leicht und vielfältig zu finden gab. 2012 schloss ich mich
+der damals zu meinem damaligen Wohnort nächstgelegenen FIGU-Gruppe (FSS, sprich: FIGUStudiengruppe-Süddeutschland) an. Sogleich, am Tag meiner ersten Teilnahme mit einem
+bemerkenswerten Ereignis, nämlich der völlig überraschenden Kündigung des bisherigen
+Tagungsraumes in Stuttgart. Nach den Überbrückungstreffen bei einem FIGU-Mitglied daheim,
+wurde der Treffpunkt dann nach Karlsruhe umgezogen. Dort habe ich die ersten regelmäßigen
+persönlichen Kontakte zu FIGU-Mitgliedern gehabt. Aus dieser Zeit stammen die Verbindungen
+zu vielen Mitgliedern, die sich bis heute erhalten haben. Vor allem zu Natale Vella und Kai Amos.
+Nach meinem Austritt aus der FSS und meinem Umzug zurück in meine rheinländische Heimat
+ist der Kontakt nie vollständig abgebrochen. Man nutzte ihn um in Kontakt zu bleiben,
+
+
+-----
+
+hauptsächlich mit E-Mail oder neuerdings auch WhatsApp sowie Telegramm. Da Natale in der
+Nähe von Mainz wohnt, das für mich quasi direkt auf dem Weg ins Center liegt, traf man sich,
+sobald ich den Weg ins Center antrat und es zeitlich für uns beide passte. Ansonsten sind die
+Wege relativ weit, so dass echte Treffen eher eine Rarität darstellten, da das Leben bei uns
+beiden sehr viele Pflichten birgt und für ein Treffen praktisch ein ganzer Tag investiert werden
+musste. Wenngleich dies in Planung war, sogar mit weiteren FIGUanern, jedoch aufgrund von
+Corona auf unbestimmte Zeit verschoben wurde. Corona kam, und man überlegte wie man sich
+dennoch <treffen> könnte. Da flatterte irgendwann einmal eine E-Mail in mein Postfach, in
+welcher das FIGU Center eine Empfehlung für Skype abgab, um sich dennoch irgendwie sinnvoll
+treffen zu können. Natale und ich besprachen es über E-Mail und wollten es ausprobieren.
+Selbst nutzte ich mein Apple iPad, mit integriertem Mikrofon und Kamera, und Natale seinen
+Desktop-PC mit der ausgeliehenen Webcam seiner Freundin. Der erste Versuch gelang, und wir
+waren alles in allem positiv überrascht und vereinbarten alle paar Wochen ein Treffen – in der
+Regel am frühen Abend zwischen 18 – 20 Uhr und bis Ende offen. Irgendwann hat Natale
+technisch aufgerüstet, so dass das Erlebnis noch besser werden konnte, sprich: Headset, bessere
+Webcam sowie vor kurzem sogar ein ganz neuer besserer Computer mit allem drum und dran.
+Bei mir blieb alles beim alten. Im Laufe der Zeit sprach Natale andere FIGUaner an, die auch
+Interesse an solchen Treffen haben könnten. Ein FIGUaner trat mal für einige Treffen hinzu,
+jedoch war es für ihn nicht das Wahre. Es wurden ganz klar physische Treffen bevorzugt. Ein
+anderer hatte auch eher Abneigungen, sich virtuell zu treffen, ob es nun am technischen
+Geschick lag oder auch generell physische Treffen bevorzugt wurden, kann man nicht sagen. Als
+letztes Mitglied trat jedoch Kai Amos hinzu und blieb für viele Monate dabei. Bei unserem
+letzten Treffen sprachen wir 5 Stunden lang, die meiste Zeit eigentlich nur über eine einzige
+Frage bzw. Sache. Alle drei hatten wir sehr unterschiedliche Standpunkte vertreten. Es kam zu
+hitzigen Diskussionen. Selbst konnte ich dabei Gedanken und Erfahrungen aus meiner gesamten
+Zeit bei der FIGU mit einweben. Aussagen, die ich in der Vergangenheit gehört hatte, aber
+damals nicht verstanden habe bzw., deren Tragweite und Bedeutung ich damals nicht
+nachvollziehen konnte, ergaben für mich endlich einen/den tieferen Sinn, und ich konnte
+verstehen, weshalb etwas genau so sein muss, wie es ist. Es gibt manchmal einen kleinen aber
+feinen Unterschied, und ein winziges Jota an der falschen Stelle kann schon zu einem falschen
+Ergebnis führen. Wird mit diesem falschen Ergebnis weitergerechnet, dann wird die Abweichung
+bzw. der Fehler immer grösser. Drum ist man vom Center aus wohl so drauf erpicht, für alle
+Zeiten keine auch nur kleinste Verfälschungen der Lehre zuzulassen, damit es nicht wie bei den
+alten Propheten-/Künderpersönlichkeiten dazu kommen kann, dass aus der Lehre krasse
+Verfälschungen entstehen können und schlussendlich der Wahrheit verlustig gegangen wird;
+wobei vielleicht zwar noch ein Fünkchen Wahrheit hie und da vorhanden ist, diese jedoch unter
+Bergen von Falschheit begraben liegen. Unsere Treffen sind wirklich frei im freisten Sinne des
+Wortes. Wir treffen uns dann, wenn wir alle wirklich Zeit haben und uns keine sonstige alltägliche
+Pflichten verfolgen, und auch die Themenwahl ist mehr als frei. Wir wollen über
+Schöpfungsenergie-Lehre-Themen sprechen. Da diese jedoch auf theoretisch alles Existente
+zutreffen, könnte man sagen, dass wir über ‹Gott› und die Welt sprechen, also praktisch alles.
+Jedoch ist ein gewisser Konsens da, dass man jetzt nicht von den aktuellen Fussball-Ergebnissen
+oder – sagen wir mal – Boulevard-Themen spricht, sondern alles sollte einen relativ direkten
+Bezug zur Lehre sowie zum Urquell allen Geschehens und Lebens haben, nämlich der
+Schöpfung. Das häufigste Thema war sicherlich die Corona-Lage. Aktuelle Veröffentlichungen auf
+der FIGU-Webseite wurden von uns seziert und in Bezug zu unserem alltäglichen Leben gesetzt.
+Da dieses Format sehr lose war und mehr diskutiert als irgend etwas gemeinsam gelesen oder
+studiert wurde, probierten wir auch mal aus, eine Kurzschrift zu lesen, einen Kontaktbericht oder
+ein Buch. Man einigte sich irgendwann auf ‹Macht der Gedanken›. Da unsere Treffen in der
+Regel 4 – 5, aber manchmal auch 6 Stunden gingen, bis sogar mal 2 Uhr nachts, verbrachten
+wir aber trotzdem die geringste Zeit damit, gemeinsam zu lesen. Uns fiel auf, dass das Lesen
+von Schriften eine bessere Struktur in unsere Treffen brachte, jedoch verwendeten wir trotzdem
+anteilig die geringste Zeit damit. Fazit: Wir behalten die Treffen bei ich würde sogar behaupten
+über die Corona-Zeit hinaus, auch wenn man noch nicht abschätzen kann, wie lange es so
+weitergeht. Man hat sich persönlich viel besser kennengelernt und auch neuen Elan dazu
+gewonnen, sich regelmässiger mit der Lehre auseinanderzusetzen – denke ich. Aus diesen
+Treffen werden sich sicherlich mal physische normale Treffen ergeben, allein deshalb war es
+schon ein Erfolg. Zudem konnte man die Treffen ohne Probleme absagen, da wir ja alles frei und
+unverbindlich von zu Hause ausgestalteten und nur unsere Freizeit opferten. Dadurch entstand
+
+
+-----
+
+vielleicht jedoch auch einer der grössten Nachteile, indem man vielleicht den Treffen nicht
+genug Wert beigemessen hat. Es ist zu einfach, solche Treffen abzusagen, dennoch ist man
+keinem böse oder hätte irgend etwas verloren. Man kann sich austauschen, auch wenn man
+praktisch an den entgegengesetzten Enden der Welt lebt, und spart immer jede Menge
+Anfahrtskosten und Zeit. Letztendlich freut man sich jedoch eigentlich auf den Tag, wo man sich
+wieder direkt gegenüberstehen kann. Ich würde jedem raten, selbst ein Online-Treffen zu wagen.
+
+(Personen im Bild von links nach rechts oben: Kai Amos, Natale Vella, Christian Krajczok)
+
+P.S. Danke Natale und Kai für die Anregungen und Verbesserungsvorschläge zu diesem Artikel und Eure Bereitschaft, sich
+weiterhin online zu treffen.
+
+###### *********************************************************************
+
+ *********************************************************************
+
+ *********************************************************************
+
+ *********************************************************************
+
+ *********************************************************************
+
+
+-----
+
+Lektion 5 -Die Schöpfung / Artikel: Österreichische Landesgruppe / Artikel: H. Schossmann
+
+Hallo Leute! In vergangenen Folgen haben wir immer wieder über den Schweizer <Billy> Eduard
+Albert Meier und dessen Kontakte zu ausserirdischen Menschen von den Plejaren berichtet.
+Heute wollen wir die Frage beantworten, wieso uns die Plejaren überhaupt besuchen.
+
+Neben ihren eigenen diversen Forschungen, die durch Plejaren auf der Erde durchgeführt
+werden, ist der Hauptgrund ihres Besuches, bei der Verbreitung der Schöpfungs      energieLehre durch Billy Meier, <Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens>
+zu helfen.
+
+Die Lehre des Lebens bezieht sich auf alle Fakten des menschlichen Daseins, der
+bewusstseinsmässigen und gesamten mentalen Evolution, wie auch auf die Tugenden, die
+Entwicklung der Persönlichkeit, des Charakters, die richtige Lebensweise, wie auch auf die
+zwischenmenschlichen Beziehungen und die Partnerschaft und vieles mehr. Die
+Schöpfungsenergie-Lehre andererseits ist ausgerichtet auf alle schöpferisch-natürlichen
+Gesetzmässigkeiten in jeder Beziehung, wie also auch auf die schöpferischen Gebote, die als
+Empfehlungen zur Befolgung gelten, um den Schöpfungsgesetzen gerecht zu werden.
+
+Die Schöpfungenergie-Lehre ist keineswegs neu, sondern sie ist so alt wie die Schöpfung selbst
+und wurde auch auf der Erde während der letzten 10 000 Jahre immer wieder gelehrt, jedoch
+meistens nur in mündlicher Form. Die wenigen schriftlichen Aufzeichnungen, die es über die
+Jahrhunderte und Jahrtausende gab, wurden böse verfälscht und führten zu sektiererischen
+Religionen und Bluttaten sowie zu sagenumwobenen Mysterien, was sich leider bis heute so
+erhalten hat.
+
+Wenn die Geschichte des Erdenmenschen betrachtet wird, dann zeigt sich auf, dass über alle
+Zeit etwas grundlegend falsch läuft. Wie könnte es sonst sein, dass in 10 000 Jahren gerade
+einmal nur 250 Jahre globaler Frieden herrschte? Das ist wirklich ein äusserst betrüblicher
+Umstand. Ständig lebt der Mensch in Unfrieden, wofür die Hauptursache in den Religionen zu
+suchen ist. Es muss bedacht werden, dass diverse religiöse Schriften wie die Bibel, der Koran,
+die Tora, also sämtliche sogenannte <Heilige Bücher> niemals von den jeweiligen Kündern und
+Propheten verfasst wurden, sondern Jahrhunderte später durch irgendwelche Schreiberlinge.
+Diese griffen auf diverse Sagen, Märchen und Lehren zurück, die im Laufe der Jahrtausende
+immer mehr verfälscht, neu interpretiert und mit Falschheiten durchsetzt wurden.
+Durch diese <heiligen> Lügenbücher wurden die Menschen in eine Glaubens-Hörigkeit
+gezwängt, die Hass, Unfrieden, Eifersucht, Betrug, Lüge und Verleumdung, Mord, Folter, Unrecht,
+Totschlag, Todesstrafe, Gewalt, Vergewaltigung, Ausartung, Kindsmissbrauch, Vernichtung und
+Zerstörung sowie Krieg und Terror vorgeben und somit ungeheures Elend und Unheil
+verursachen. Ein sogenannter <barmherziger Gott>, der angeblich seine Menschen lieben soll,
+um sie hsandkehrum in ewige Feuersbrünste zu stürzen, wenn ihm danach ist, dient als übles
+Beispiel für die Menschen, ebenfalls Unfrieden und Terror aller Art zu verbreiten. Doch die
+Annahme eines alles beherrschenden und alles lenkenden Gottes könnte irrer nicht sein,
+sondern dient einzig und allein dazu, der Menschen Bewusstsein zu versklaven und die
+Evolution zu hindern.
+Die Plejarin Bermunda, die sich eingehend mit den Religionen der Erde beschäftigt hat, hat dazu
+am 14. März 2018, während des 705. Kontaktes, folgende Worte gesprochen, die treffender
+nicht sein könnten:
+**"Für uns ist es unverständlich, dass einem solchen Wahn nachgehangen werden kann, der**
+**_derart wirr, wahrheits- und wirklichkeitsfremd ist, dass selbst ein stark im Bewusstsein_**
+**_beschränkter Mensch die Unsinnigkeit eines solchen Irrglaubens erkennen muss._**
+
+**_Unsere diesbezügliche Unverständlichkeit bezieht sich in besonderer Weise auf die christliche_**
+**_Religion, weil diese mit ihrer Lügengeschichte hinsichtlich der „Auferstehung vom Totsein“_**
+**_jeden erdenklich möglichen Unsinn derart weit übertrifft, dass nicht nur ein stark im_**
+**_Bewusstsein beschränkter Mensch die Unsinnigkeit eines solchen Irrglaubens erkennen muss,_**
+**_sondern selbst einer, der dem Irrsein verfallen und völlig bar jeglichen Verstandes und jeder_**
+**_Vernunft ist._**
+
+
+-----
+
+**_Dass auch unverhüllter Hass und Gewaltphantasien aus dieser Lügengeschichte hervorgehen,_**
+**_verbreitet werden und untergründig das Leben der Christgläubigen beeinflussen und deren_**
+**_Tun und Handeln bestimmen, ist eine zwangsläufige Folge, wenn ihr Hass offen durchbricht_**
+**_und Rache fordert, wie z.B. bei Streitigkeiten und Krieg._**
+
+**_Dieser abartige und ausgewucherte Christglaube entspricht einem ganz besonderen Wahn, für_**
+**_den sich jeder christgläubige Mensch schämen muss, weil dieser Glaube allem, was der_**
+**_Wirklichkeit und Wahrheit, dem gesunden Verstand und der bewussten Vernunft widerspricht,_**
+**_und damit also den Werten, die jeder moderne und aufgeklärte Mensch auf der Erde anstreben_**
+**_und vertreten müsste._**
+
+**_Das aber geschieht, weil Verstand und Vernunft bei den Gläubigen fehlen, und zwar bei allen_**
+**_Menschen, die einer Religions- und Gottgläubigkeit verfallen sind, folglich sie bereits ihre_**
+**_Nachkommen in schon frühem Alter zur Gläubigkeit und zur Wirklichkeits- sowie_**
+**_Wahrheitsfremdheit zwingen._**
+
+**_Daher ist jeder religiöse Glaube, und zwar ganz gleich welcher Art, bereits von Grund auf_**
+**_jugendgefährdend und für die Nachkommen schon im jungen Kindesalter absolut ungeeignet,_**
+**_weil durch den Glauben deren persönliche Entwicklung zur Selbständigkeit und Wirklichkeits-_**
+**_Wahrheitswahrnehmung bösartig zerstört wird."_**
+
+Wie ist also das Universum und somit die Schöpfung entstanden? Beginnen wir mit dem Alter.
+Irdische Wissenschaftler theoretisieren, dass das Universum etwa 13,8 Milliarden Jahre alt sei,
+wobei selbst in deren Kreisen Uneinigkeit über die Richtigkeit dieser Angaben herrscht. Zurecht,
+denn sie könnten mit ihrer Annahme kaum weiter daneben liegen.
+
+Gemäss Billys und plejarischer Angaben weist unser Universum bereits das stolze Alter von 46,5
+Billionen Jahren auf. Eine Tatsache, die unsere Wissenschaft unmöglich zu ergründen vermag,
+da sich jede Materie, alle Galaxien, Nebel usw., alle 49 Milliarden Jahre übergangslos verlaufend
+erneuern.
+Entstanden ist das Universum aus dem Zeitlosen, der endlosen Dauer des absoluten Nihilo, und
+zwar indem durch die endlose Energie des Nihilo resp. des absoluten Nichts sich ein
+Energieimpuls generierte, durch den ein ungeheuer stark komprimiertes My resp. ein winzigstes
+Myjota hervorging.
+
+Dieses bildete sich über die endlose Dauer des Nihilo zu einem winzigen Energiekügelchen
+heran, das sich in der weiteren Nihilo-Dauerlosigkeit zu einem ebenso winzigen
+Schöpfungseilein entwickelte. Dieses energierte in sich selbst bis zu einer höchstkomprimierten,
+ungeheuren Energiemasse, die letztendlich durch ihren menschlich unvorstellbar hohen Druck
+explodierte und sich als Ursprung des SEIN-Absolutum resp. der SEIN-Schöpfung als allererster
+Ur-Knall aller Existenz allen endlos-dauernden Werdens-Vergehens und Wiederwerdens
+manifestierte. Dadurch war der Ursprung des SEIN-Absolutum als Myeilein erschaffen, aus dem
+sich die ungeheure Gewaltigkeit des SEIN-Absolutum entwickelte, das in der endlosen
+Dauerlosigkeit seiner allgrosszeitlich-immerwährenden Existenz sechs weitere Absolutumformen
+erschuf, nämlich folgende:
+
+Sohar-, Super-, Kreations-, Zentral-, Ur- und Absolutes Absolutum, wonach aus diesem letzten
+die erste Schöpfungsform hervorging. Diese entwickelte sich in erster Weise als unscheinbares
+My, woraus ein Myjota und daraus ein sich winziges Energiekügelchen heranbildete, das in sich
+selbst energierte, bis es zu einer höchstkomprimierten, ungeheuren Energiemasse wurde, die
+letztendlich durch ihren hohen Druck als Urknall explodierte und Ursprung des allerersten
+Schöpfungsuniversums entwickelte. Danach und seither erschuf und erschafft das Absolute
+Absolutum in endloser Folge in der endlosen Dauer des Nihilo unaufhaltsam neue Schöpfungen,
+die sich durch einen Urknall manifestieren, in sich 7 Dimensionen als 7 Universen bergen und
+sich in Billionen von Jahren selbständig hochentwickeln, um dereinst zurück ins Absolute
+Absolutum einzugehen. In diesem evolutionieren sie weiter, wonach sie dereinst in höchstem
+Entwicklungsstand wiederum in die nächsthöhere Absolutumform eingehen, in das Ur
+
+-----
+
+Absolutum. Dieser Vorgang erfolgt über menschlich undenkbare Dauer, und zwar bis ins SEINAbsolutum, das durch die in sie sich einfügenden und mit ihm verschmelzenden
+hochenergetisch gewordenen Schöpfungen endlos mächtiger und mächtiger an Energie und
+Kraft wird, um in endloser Dauer urewig zu existieren.
+
+Die Energie der Schöpfung – die aus dem Absoluten Absolutum hervorgegangen ist – entspricht
+rein ihrer eigenen schöpfungsenergetischen Natur, die sie aus sich selbst heraus, kreiert, jedoch
+auf einen Energie-Impuls des Nihilo resp. des absoluten Nichts zurückführt. Ein Universum wird
+von den Menschen infolge Unwissens irrtümlich auch Schöpfung oder Universal-Bewusstsein
+genannt, wobei es deren 10[49] verschiedene Schöpfungsformen gibt, die sich in ihren immer
+wieder wechselnden und neuen Existenzdauern stetig höher entwickeln.
+
+Mit dem Urknall beim Entstehen einer Schöpfung bilden sich im nahezu eiförmigen
+Schöpfungsraum 7 Schöpfungsgürtel resp. Dimensionen, die gesamtraummässig ineinander
+verfliessen, weil der gesamte Schöpfungsraum aus 7 Gürteln besteht, wovon der 4. den
+Materiegürtel bildet, während der irrtümlich und infolge Unwissens von der irdischen
+Astronomiewissenschaft als Universum bezeichnet wird, jedoch effectiv nur dem 4.
+Schöpfungsgürtel entspricht.
+Also ist das, was als sichtbares Materie-Universum bezeichnet wird, in dem sich eben die
+grobstoffliche Materie und somit auch Gase, Staub, Gestirne und Planeten usw. bilden, und
+woraus also auch Meteoriten, Sonnen, Kometen, Nebel und Galaxien usw. hervorgehen, deren
+Verdichtungen letztlich auch unsere Erde geschaffen haben, nur einen 7. Teil der Schöpfung
+resp. des gesamten Schöpfungsraumes ist. Und all das resp. die Entstehung dieses Ganzen
+entspricht einem schöpferisch-natürlichen Energievorgang, der rein gar nichts mit einem
+Schöpfer-Gott zu tun hat, sondern einzig und allein mit schöpfungsenergetisch-physikalischen
+und materie-physikalischen Gesetzen und Abläufen, die in jeder Form physikalisch und
+chemisch fundiert sind und auch in diesem Sinne erklärt werden können.
+
+Die Schöpfung besteht als Autonomität in sich selbst und ist – wenn es gemäss menschlichem
+Verstehen so genannt werden darf – sozusagen <verantwortlich> für das Universum, alles darin
+Existierende und also auch für alles Leben. Sie ist die urgewaltigste und grösste Energiemasse
+und Kraft, die sich ein Mensch überhaupt vorstellen kann. Die Schöpfung ist das SEIN und
+NICHTSEIN des Lebens. Sie ist die ungeheuerste Masse Schöpfungs-Energie, die es überhaupt
+geben kann. Sie ist höchste Energie in reinster Form und unmessbar in ihrer Kraft. Obwohl die
+Schöpfung jedoch das Vollkommenste ist, was der Mensch kennt oder zu kennen glaubt, so
+muss sie sich selbst unhemmbar immer weiter vervollkommnen und entwickeln. So schafft die
+Schöpfung unaufhaltsam immer neue winzigste Ballungen von Schöpfungsenergie, die als
+<Teilstückchen Schöpfungsenergie> jegliche Lebensform, egal welcher Gattung und Art,
+individuell beleben.
+
+Das Schöpfungsenergie-Teilchen hat nun seine Mission darin zu erfüllen, dass es der
+Lebensform, der es „zugeteilt“ oder zugehörig ist, in unzähligen Wiedergeburten unaufhaltsam
+Lebensenergie oder Lebenskraft zur Verfügung stellt, bis diese Lebensform ihre Evolution so weit
+vorangetrieben hat, bis sie die höchstmögliche Energie entwickelt hat, die zu erreichen sie fähig
+ist. Wenn sie dann nach frühestens 40 Millionen Jahren ihren höchsten erreichbaren
+evolutionsmässigen energetischen Aggregatszustand erarbeitet hat, dann transformiert sich
+dieser als vom Menschen selbsterarbeiteter evolutionierter Teil in die Gesamtmasse
+Schöpfungsenergie. Ist dies nach unzähligen Leben und vielen Millionen Jahren geschehen,
+dann verschmilzt das Teilstück Schöpfungsenergie also eines fernen Tages mit der Schöpfung
+selbst, resp. mit der gesamten Schöpfungsenergie, und wird wieder untrennbar eins mit ihr,
+wodurch sich die Schöpfung selbst weiter vervollkommnet und immer gewaltiger wird.
+
+Der Mensch ist zum Beginn seines Existierens und seiner Evolution völlig unwissend und
+<unfähig>. Er muss zuerst lernen, alle erdenklich möglichen Impulse zum Erlernen und Aufbau
+seines Intellektums, seines Verstandes und seiner Vernunft zu erfassen und auszuwerten, die
+von seiner Schöpfungsenergie-Form ausgehen, um alles aufzunehmen und zu verwerten, was er
+
+
+-----
+
+durch seine Gedanken- und Bewusstseinsentwicklung bewerkstelligt. Die energetische Kraft
+seiner ihn belebenden Schöpfungsenergie-Form ist stets gleichbleibend, jedoch lernt der
+Mensch im Lauf vieler Leben diese Kraft immer besser zu nutzen, auszuwerten und
+anzuwenden, wodurch er sich auch immer mehr Wissen und Weisheit aneignet und also
+bewusst evolutioniert.
+Je mehr Leben der Mensch hinter sich bringt und bewusst lernt, desto wissender und weiser
+wird er, weil er die energetischen Impulse seiner Schöpfungsenergie-Form immer besser
+anzuzapfen und zu verarbeiten vermag, was zu grösserem Wissen, grösserer Weisheit und zu
+mehr Lebenskraft führt. Allein Verstand, Vernunft, sein Intellektum und das Wissen sowie die
+Weisheit, die sich der Mensch durch seine bewussten Bemühungen in bezug auf die
+schöpfungsenergetischen Impulse erarbeitet und die er sich auch verfügbar macht und
+verwertet, prägen sein Leben, und sein Bewusstsein, seinen Charakter und seine Persönlichkeit.
+Daraus ist zu erkennen: Je materieller und vernunftloser ein Mensch einhergeht, denkt und
+handelt, desto weniger hat er seine Fähigkeit entwickelt, um die Kraft bewusst zu nutzen, die ihm
+seine Schöpfungsenergie-Form zur Verfügung stellt. Rein materielles Denken, ohne dass
+Vernunft und Verstand entwickelt werden, bedeutet, dass ein Mensch auf einer primären, noch
+sehr fortschrittsbedürftigen Stufe der bewusstseinsmässigen Entwicklung steht.
+So wie sich der Mensch über unzählige Leben immer und immer weiter entwickeln muss, und
+dadurch die energetische Kraft seines Teilstücks Schöpfungsenergie immer besser zu nutzen
+und umzusetzen lernt, so unterliegt auch die Schöpfung mit ihren 7 Universen denselben
+Gesetzen.
+
+Wir haben festgestellt, dass unser Universum z. Z. 46,5 Billionen Jahre alt ist und also auch
+schon so lange expandiert. Die Gesamtdauer dieses Expansionsprozesses beträgt allerdings
+beträchtliche 155,52 Billionen Jahre bevor, die Schöpfung in die Kontraktion verfällt resp. mit
+dem Rücksturz beginnt, und zwar mit der gleichen Geschwindigkeit, wie die Expansion stattfand.
+Also kollabiert die Schöpfung bei diesem Kontraktionsvorgang nicht, sondern der Rücksturz
+erfolgt ebenfalls über eine Dauer von 155,52 Billionen Jahre, während denen die gesamte
+während der Expansionsphase evolutiv erarbeitete Energie aufgearbeitet und zur weiteren Kraft
+wird, die sich am Ende der Kontraktion derart komprimiert, dass sie übermächtig wird und
+dadurch ein neuer Urknall und folglich daraus eine neue Schöpfungsform hervorgeht, und zwar
+eine sogenannte Ur-Schöpfung, der nach ihrem Werdegang viele weitere folgen werden.
+
+Also ergibt sich für die Expansion, die im Urknall ihren Anfang gefunden hat und die
+nachfolgende Kontraktion, eine Gesamtdauer von 311 Billionen Jahren. Diese Zeit wird als
+Wachperiode der Schöpfung bezeichnet, der logischerweise eine Schlummerperiode folgt. Wenn
+sich also die Schöpfung zum 1. Mal in ihren Schlummer legt, geschieht das für dieselbe Dauer
+wie die der ersten Wachperiode, nämlich für 311 Billionen Jahre, das sind 311 x 10[12] Jahre.
+
+Die nächste Wachperiode der Schöpfung dauert dann bereits 7mal so lang, wie die
+vorangegangene, also 2177,28 x 10[12 ]Jahre wobei die darauf folgende Schlummerperiode also
+ebenfalls 2177,28 x 10[12] Jahre beträgt. So geht es weiter in insgesamt 7facher Form wobei sich
+die Dauer der Wach- und Schlummerperioden der Schöpfung stets versiebenfacht.
+
+Diese erste Folge der sieben Wach- und Schlummerperioden, die eine Gesamtdauer von 85 384
+834,56 x 10[12 ]Jahren aufweist, wird als all ur-ur-urzeitliche Erst-Schöpfung, oder eben EinfachSchöpfung bezeichnet. Nachdem sich die Schöpfung über diesen Zeitraum evolutioniert hat,
+entwickelt sie sich zur Ur-Schöpfung, die wiederum 7 Wach- und Schlummerperioden
+durchläuft, wobei sich auch deren Dauer stets versiebenfacht.
+
+Danach wird sie zur Zentral-Schöpfung nach denselben Regeln. Dieser Vorgang wiederholt sich
+in weiterer Folge eben 10[49 ]Mal, bevor die Schöpfung in das Absolute Absolutum eingeht.
+
+Daraus ist klar zu erkennen, dass das Gesetz von Werden und Vergehen, von Ursache und
+Wirkung, von Urbeginn an gegeben ist. Wir können dieses Phänomen überall in der Natur
+beobachten, sei es das Erblühen und Vergehen von Pflanzen, der immerwährende Rhythmus
+von Tag und Nacht, genauso wie der ständige Wechsel zwischen Leben und Tod. Das Werden
+und Vergehen entspricht zwei verschiedenen Polen, die gegengleich dem Positiven sowie dem
+Negativen gleichgerichtet sind. Alles Gegenpolige aber erzeugt ein Spannungsverhältnis, wobei
+
+
+-----
+
+jeder der beiden Pole sie in sich selbst ein Ganzes und also eine Einheit bildet,
+zusammengeschlossen mit dem anderen Pol aber ebenfalls ein Ganzes bilden und eine Einheit
+ergeben.
+
+Dieses Spannungsverhältnis zwischen den beiden Gegenpolen im gemeinsamen Einssein ist
+aber erforderlich für alles sich Ergebende, alle Geschehen, Veränderungen und in weiterer sowie
+unabänderlicher Folge für die Evolution, denn aus allem Werden und Vergehen entsteht immer
+wieder Neues und somit Fortschritt und eine unaufhaltsam fortlaufende Weiterentwicklung.
+
+Ein permanentes Streben nach Evolution entspricht also einer schöpfungs- vorgegebenen
+Aufgabe und Pflicht des Menschen. Leider verhindert der auf der Erde vorherrschende
+Gotteswahnglaube jedoch jeglichen wirklichen bewusstseinsmässigen Fortschritt, weshalb ein
+Grossteil der Menschheit einer Stagnation anheimgefallen ist. Allgemein wird die Masse der
+Menschheit ganz bewusst durch Religionen und Sekten sowie deren stetig proklamierten
+Gotteswahnglauben, wie auch von Behörden und Regierungen auf dieser Stufe gehalten, teils
+darum, weil diese selbst nicht eines Besseren belehrt sind, teils aber auch darum, weil dadurch
+der Mensch im besten Masse manipuliert, versklavt und unterdrückt werden kann.
+
+Die Mehrheit der Erdenmenschen macht sich jedoch um diese Belange kaum oder überhaupt
+keinerlei Gedanken und lebt, so gut es ihr möglich ist, einfach vor sich hin und in den Tag
+hinein. In der Regel erziehen Eltern ihre Kinder zu einem guten Pflichtbewusstsein, und sie
+wünschen sich für sie eine gute Ausbildung sowie für später ein erfolgreiches Berufsleben.
+Natürlich verstehen sie, dass sich die Jugendlichen zwischendurch bei Partys oder mit sonstigen
+Freizeitbeschäftigungen vergnügen, aber dennoch sind Eltern bestrebt, ihre Kinder zu einem
+raschen, erfolgreichen Schulabschluss zu motivieren.
+
+Also stellt sich die Frage, warum die Erwachsenen nicht selbst an einem raschen Schulabschluss
+resp. an einer schnellen, guten Evolution und schliesslich an einem Einswerden mit der
+Schöpfung interessiert sind? Sie könnten die <Lebensschule> – also ihre fortlaufende Evolution –
+wesentlich beschleunigen, wenn sie von ihrem Gotteswahnglauben ablassen und ihr Leben nach
+den ewig gültigen schöpferisch-natürlichen Gesetzen ausrichten und ihr Dasein in Frieden,
+Harmonie, Liebe und Weisheit führen würden.
+
+Wie jämmerlich ist doch das Horten materieller Güter sowie das primitiv-dumme Ausleben von
+Machtgelüsten als einzigen Lebensinhalt zu sehen!
+Keine, aber auch gar keine dieser mondänen Dinge sind von bleibendem Wert und somit auch
+der Evolution des Bewusstseins des Menschen nicht zuträglich, weil diese darin beruhen, dass er
+immer weniger den Sinn des Lebens erkennt und in keiner Weise wirklicher Mensch wird. Man
+sollte sich stets im klaren sein: Das letzte Hemd hat keine Taschen. Egal wieviel Reichtum,
+Macht, Grund und Boden sowie sonstige Güter der Mensch während seiner laufenden
+Inkarnation anhäuft – nichts davon ist von Beständigkeit.
+
+Nur die bewusstseinsmässige Evolution, das Weiterentwickeln der eigenen Bewusstseinskraft
+sowie der Erwerb und Auf- und Ausbau von Vernunft, Verstand, Wissen, Weisheit, einer
+respektablen Persönlichkeit, eines guten Intellektums und eines wertigen Charakters kommen
+dem Menschen in zukünftigen Leben immer zugute. Alles andere ist reine Zeitverschwendung,
+wie sie bestenfalls unreifen unerwachsenen erwachsenen Menschen eigen ist. Kinder vertändeln
+ihre Zeit in der Regel nicht, sondern lernen aus ihren Aktionen und ihren Spielen verschiedenste
+Dinge und Fertigkeiten, die ihnen später im Erwachsenenleben zugutekommen.
+
+Die Plejaren haben das schon vor sehr, sehr langer Zeit erkannt und ihr Dasein in den Dienst der
+Evolution und somit der Schöpfung gestellt. Wen wundert es da noch, dass sie nicht mit
+unreifen, noch sehr niedrig evolutionierten Lebensformen wie den Erdenmenschen in Kontakt
+treten?
+
+Wir sollten ihnen und Billy dankbar sein, dass sie uns die <Lehre der Wahrheit, Lehre der
+Schöpfungsenergie, Lehre des Lebens> bringen, denn die Mühe und der Aufwand, die sowohl
+
+
+-----
+
+Billy als auch die Plejaren damit haben, ist sehr viel mehr, als sich die meisten Menschen auch
+nur annähernd vorstellen können.
+
+Weitere Informationen betreffend der Schöpfung und Schöpfungsenergie findet Ihr in den
+zahlreichen Büchern und Schriften von Billy und in den Publikationen der FIGU. Abonniert
+unseren Kanal für weitere interessante Themen und klickt auf die Glocke, wenn Ihr über unsere
+neuesten Veröffentlichungen informiert werden wollt. Dann also bis unserer nächsten Folge,
+wenn wir Euch wieder viel Wissenswertes verraten: Was euch die Schule verschweigt.
+
+### ************************************************ ************************************************ ************************************************ ************************************************ ************************************************ ************************************************ ************************************************
+
+(falsches Friedensymbol = ☮ = keltische Todesrune (nach unten gedrehte „Lebensrune“)
+
+**Das Friedenssymbol** **Ur-Symbol Überbevölkerung**
+
+**Autokleber** **Bestellen gegen Vorauszahlung:** **E-Mail, WEB, Tel.:**
+**Grössen der Kleber** **FIGU** info@figu.org
+120x120 mm = CHF  3.–          Hinterschmidrüti 1225 www.figu.org
+250x250 mm = CHF  6.–          Schmidrüti Tel. 052 385 13 10
+300X300 mm = CHF 12.           Schweiz Fax 052 385 42 89
+
+###### *************************************************************************** ***************************************************************************
+
+
+#### ☮
+
+
+-----
+
+Lesson 5 – The Creation
+
+Hi guys! Throughout our past episodes we have reported on the Swiss man 'Billy' Eduard Albert
+Meier and his contacts with extraterrestrial humans from the Plejaren. Today we want to find out
+why the Plejaren actually visit us in the first place.
+
+Aside from multi-layered research the Plejaren conduct on Earth, their actual reason for visiting
+us is to help spread the Teaching of the Creation-energy by Billy Meier, the 'Teaching of the
+Truth, Teaching of the Creation-energy, Teaching of the Life'.
+
+The Teaching of the Life refers to all aspects of human existence, conscious and complete
+mental evolution, virtues, the development of personality, character, the proper way to live, but
+also to interpersonal relations, partnerships and much more. The Teaching of Creation-energy,
+on the other hand, is focused on all creational-natural laws in every way, as well as on the
+creational principles, which are recommendations to follow in order to live up to the Laws of
+Creation.
+
+The Teaching of Creation-energy isn't new by any means, it is in fact as old as Creation itself and
+has also been taught on Earth throughout the last 10,000 years but mostly only in oral form.
+The few written records, which existed over centuries and millennia, have been viciously falsified
+which led to sectarian religions and blood-deeds as well as to legendary mysteries which
+unfortunately survived to this day.
+
+If we look at the history of terrestrial humans, it's obvious something went terribly wrong
+throughout the past millennia. How else could it be that out of 10,000 years of Earth history a
+mere 250 years were actually defined by global peace? That is indeed a very sad state of affairs.
+We live in a constant state of discord and the major blame for this falls on religions. Keep in
+mind that various religious writings like the Bible, the Koran, the Tora, thus all so-called 'Holy
+Books' have never actually been written by their respective heralds and prophets, but often
+centuries later by any random scribblers. They relied on various legends, fairy-tales and
+teachings which have been continuously altered and falsified through the course of millennia,
+they were re-interpreted and intermingled with falsehoods.
+
+Through these 'holy' books of lies, people were forced into a blind obedience, which causes
+hatred, discord, jealousy, deceit, lies and slander, murder, torture, injustice, manslaughter, death
+penalty, violence, physical and psychical Gewalt, Ausartung, child abuse, destruction and
+elimination as well as war and terror, thus causing immense misery and disaster. A so-called
+'benevolent god', who is supposed to love his people just so he can plunge them into eternal
+fires whenever he feels like it, serves as a deplorable example for people to also spread discord
+and terror of all kinds. The concept of an all-ruling, all-directing God, however, could not be any
+more irrational, but serves only to enslave the consciousness of the human being and to
+impede/prevent evolution.
+
+On March 14, 2018 during the 705th contact the Plejaren woman Bermunda, who has studied
+Earth religions in great detail, has spoken the following words on this subject which couldn't be
+more to the point:
+
+_“For us it is incomprehensible that such a delusion can be indulged in, which is so confused_
+**_and so far from the truth and reality that even a human being who is severely limited in_**
+**_consciousness must recognise the nonsensical nature of such an irrational belief._**
+
+**_Our incomprehensibility in this respect relates in a special way to the Christian religion,_**
+**_because with its story of lies concerning the 'resurrection from death' it surpasses all_**
+**_conceivable nonsense to such an extent that not only a human being who is severely small-_**
+**_minded in consciousness must recognise the nonsense of such an irrational belief, but even_**
+**_one who is a slave to lunacy and completely devoid of all intellect and rationality._**
+
+
+-----
+
+**_The fact that undisguised hatred and fantasies of Gewalt also arise from this story of lies, are_**
+**_spread and subliminally influence the lives of believers in Christ and determine their actions_**
+**_and deeds, is an inevitable consequence when their hatred breaks through openly and_**
+**_demands revenge, as for example in disputes/quarrel and war._**
+
+**_This deviant/perverse and overgrown/proliferate faith in Christ corresponds to a very special_**
+**_delusion, of which every human being who believes in Christ must be ashamed, because this_**
+**_faith contradicts everything that is reality and truth, common sense and conscious rationality,_**
+**_and thus the values that every modern and knowing human being on Earth should strive for_**
+**_and represent/advocate._**
+
+**_But this happens because the believers lack intellect and rationality, namely all human beings_**
+**_who are addicted to religion and belief in God, so that they force their offspring to believe and_**
+**_to be alienated from reality and truth at an early age._**
+
+**_Therefore, every religious belief, no matter what kind, is already fundamentally dangerous to_**
+**_young human beings and absolutely unsuitable for their offspring, even at a young age,_**
+**_because their personal development towards independence and perception of reality and truth_**
+**_is maliciously destroyed by their belief.“_**
+
+So how did the universe and thus creation come about? Let's start with the age. Terrestrial
+scientists theorize that the universe is about 13.8 billion years old, this assessment, however, has
+been subject to heavy debates. Rightly so, for their estimate could not be further from the truth.
+
+According to Billy’s and Plejaren data, our universe dates back some respectable 46.5 trillion
+years, that is 46.5 million million years. Our scientists couldn't possibly figure this out, because
+all material, all galaxies, nebulae etc. renew themselves continuously every 49 billion, that is 49
+thousand million years.
+
+The universe has originated from the timelessness of the endless duration of the absolute Nihilo,
+and through the endless energy of the Nihilo, of the absolute nothing, an energy impulse has
+been created, by which a tremendously strongly compressed My, a most tiny Myjota came
+about.
+
+This formed itself over the endless duration of the Nihilo to a tiny energy globule which evolved
+in the further Nihilo perpetuity to an equally tiny egg-shaped creation particle. This energised in
+itself up to a most compressed tremendous energy mass which eventually exploded due to its
+unimaginably high pressure and manifested itself as origin of the 'SEIN-Absolutum' that is the
+SEIN-creation as the very first big bang of all existence, of all endless-permanent becomingpassing and becoming again. Thereby the origin of the 'SEIN-Absolutum' was created as tiny Myegg, from which the tremendous might of the 'SEIN-Absolutum' evolved, which in the endless
+non-duration of its all-great-ever-perpetual existence created six more Absolutum-forms – known
+as the: Sohar-, Super-, Kreations-, Zentral-, Ur- and Absolutes-Absolutum, the last of which
+proceeded from the very first creation-form ever.
+
+This initially developed as an inconspicuous My, from which a Myjota developed and
+subsequently a tiny energy globule, which energised in itself, until it became a highly
+compressed immense energy mass, which finally exploded due to its high pressure in a big
+bang and became the origin of the very first creation-universe. After that and since then the
+'Absolutes-Absolutum' has created and creates in endless succession in the endless duration of
+the Nihilo incessantly new creations, which manifest themselves by a big bang, contain 7
+dimensions as 7 universes and evolve independently over trillions of years to one day return into
+the 'Absolutes-Absolutum'. There they continue to evolve, to one day - after having attained the
+highest form of evolution - cross into yet an even higher Absolutum form, into the 'PrimalAbsolutum'. This process, which takes so much time humans cannot possibly fathom, continues
+all the way to the 'SEIN-Absolutum', which thanks to the highly energetic creations uniting into it
+grows increasingly mightful in energy to exist in ur-endless duration.
+
+
+-----
+
+The energy of Creation – which proceeded from the 'Absolutes-Absolutum' – corresponds purely
+to its own creational-energetic nature, which it created from in itself, yet, relates back to an
+energy impulse of the Nihilo, that is of the absolute nothing. Due to their unknowing human
+beings erroneously refer to a universe also as creation or universal consciousness wherethrough
+there are, however, 10[49 ]different forms of creation, that keep evolving throughout ever changing,
+new phases of existence.
+
+With the big bang as the origin of a creation 7 Creation belts or dimensions are formed in the
+almost egg-shaped creation space, which flow into each other throughout all of space, because
+the entire Creation-realm encompasses 7 belts. The 4th belt forms the belt of material, which
+the earthly astronomy-science erroneously and falsely refers to as 'universe' which is in fact just
+the 4th belt of the entire actual universe. So that what is called visible material universe, in
+which the coarse material and therefore also gases, dust, celestial bodies and planets etc. are
+formed, and from which thus meteorites, suns, comets, nebulae and galaxies etc. emerge,
+whose condensations have created our earth, is only a 7th part of the Creation, that is of the
+entire Creation-realm. And the formation of all of this in its entirety is a creational-natural energy
+process, which has absolutely nothing to do with a 'creator-god', but just with creationalenergetic-physical and material-physical laws and processes, which are physically and
+chemically based and can also be explained in this way.
+
+The Creation exists as autonomy in itself and is – if one may be calling it that – according to
+human understanding, so to speak 'responsible' for the universe, everything existing in it and
+hence also for all life. It is the most ur-immene/ur-gigantic and largest mass of energy and
+power, which a human can possibly imagine. The Creation is the BEING and NONBEING of life. It
+is the most immense mass of creational energy that can possibly exist. It is highest energy in
+purest form and unmeasurable in its power. Even though the Creation is the relatively absolutely
+developed human beings know or think they may know, it must relatively absolutely fulfil itself
+relentlessly and keep evolving. So the Creation creates incessantly new tiny fullness of
+Creational-energy which as 'particle of creational-energy' individually gives life to every life form,
+no matter what species.
+
+Now the 'particle of creational-energy' has to fulfil its mission by relentlessly providing lifeenergy or life-power to the life form it has been 'assigned' to throughout countless rebirths, until
+this life form has advanced its evolution to such an extent, that it has developed the highest
+possible energy, it is able to ever attain. If it has reached this highest attainable evolutionary
+energetic aggregate state – no sooner than after 40 million years – then the 'particle of
+creational-energy' transforms itself as by a human being self-attained, evolutionised part into the
+total mass of creation energy. If this has happened after countless lives and many millions of
+years, then the part of creational-energy unites one day with the Creation itself, that is with the
+entire creational-energy, and again becomes inseparably one with it, wherethrough the Creation
+itself relatively absolutely fulfils itself further and becomes more and more enormous.
+
+At the beginning of their existence and their evolution human beings are completely unknowing
+and 'incapable'. They must first learn to grasp and process all kinds of impulses for studying and
+building up their intellectum, their intellect and rationality, which emanate from their creationalenergy form, in order to absorb and utilise everything that they accomplish through their
+thought and consciousness evolution.
+
+The energetic power of their animating creation-energy form remains always unchanged,
+however, throughout many lives human beings learn to use, evaluate and apply this power better
+and better. In doing so they also gain more knowledge and wisdom and thus evolve consciously.
+
+The more lives humans live and spend learning consciously, the more knowledgeable and wiser
+they become, for they are more efficiently able to tap and process the energetic impulses of
+their creational-energy form, which leads to greater knowledge, greater wisdom and to more life
+power. Only understanding, rationality, their intellect and knowledge as well as wisdom, which
+
+
+-----
+
+humans acquire through their conscious efforts with regard to the creational-energetic impulses,
+which they cultivate and exploit, influence their lives, and their consciousness, character and
+personality. This goes to show: the more materially oriented and devoid of rationality humans
+live, think and act, the less they have developed their ability to consciously use the power
+provided by the creational-energy.
+
+A purely material way of thinking, without developing rationality and intellect, means that a
+human being is still on a primary stage of consciousness development, which still needs a lot of
+progress.
+
+Just as human beings must keep evolving over countless lives, and better learn to use and wield
+the energetic strength of their 'particle of creational-energy', the Creation itself, with its seven
+universes, is subject to the same laws.
+
+We have determined that our universe is 46.5 trillion years old, that is 46.5 million million years,
+and has therefore been expanding this long. However, the total duration of this expansion
+process amounts to a considerable 155.52 trillion years before the Creation commences the
+contraction, that is to say, begins with the fall back at the same speed as the expansion
+occurred. Hence the Creation does not actually collapse during this contraction process, but the
+fall back occurs over a duration of 155.52 trillion years, during which all the energy that has
+been evolutionarily generated during the expansion phase becomes a power which compresses
+itself at the end of the contraction process in such a way that it becomes overpowered and a
+subsequent new big bang ensues and a new Creation-form emerges, namely a so-called PrimalCreation which though its course of evolution will followed by many more. So the expansion
+which has begun with the big bang and its subsequent contraction lasts 311 trillion years. This
+time is known as the 'awake period of the Creation' which is naturally followed by a 'SLUMBER
+period'. When the Creation goes to sleep for the 1st time, it does so for the same duration as
+that of the first waking period, namely for 311 trillion years, that is 311 x 10[12] years.
+
+The next awake period of the creation then lasts 7 times as long as the previous one, that is
+2177.28 x 10[12 ]years whereas the following slumber period likewise amounts to 2177.28 x 10[12 ]
+years. It goes on like that in 7-fold form while the duration of the awake and slumber periods of
+the Creation keeps increasing sevenfold.
+
+This first sequence of the seven awake and slumber periods which amounts to a total duration
+of 85 384 834.56 x 10[12] is referred to as the Ur ur-all-primal-first creation, or just lowest
+creation. After the creation has evolved over this period of time, it develops into the primalcreation which again goes through seven awake and slumber periods, whereby also their
+duration always increases sevenfold.
+
+After that it evolves into the Central-Creation according to the same rules. This process repeats
+itself in further consequence, 10[12] times, before the Creation enters the 'Absolutes Absolutum'.
+
+It is therefore quite apparent that the law of becoming and passing, of cause and effect, is given
+from the very beginning. We can observe this phenomenon everywhere in nature, be it the
+blossoming and passing away of plants, the perpetual rhythm of day and night as well as the
+constant change between life and death. The becoming and passing each match two different
+poles, which refer to the positive as well as to its negative counterpart, respectively. The two
+opposing poles, however create a circumstance of tension and while each of the two poles forms
+a full unit on its own, they also form another unit once they are paired with the other pole.
+
+This circumstance of tension between the two opposing poles in the common oneness is
+essential for all occurrences, all happenings, changes and inevitably for evolution, for all
+becoming and passing away creates relentlessly something new resulting in progress and an
+unstoppable ongoing further development.
+A permanent striving for evolution is a creation-given task and duty of any human being.
+Unfortunately, however, the God-delusion belief prevailing on Earth prevents any real evolution
+of the consciousness, which is why a large part of humankind remains trapped in stagnation.
+
+
+-----
+
+Generally the masses are deliberately kept by on this level by religions and sects as well as their
+constantly proclaimed God-delusion belief, but also by authorities and governments, on one
+hand because they don't know any better themselves, on the other hand also because humans
+can be easily manipulated, enslaved and suppressed this way.
+
+The majority of the people on Earth doesn't care about these things, remains oblivious and goes
+about their lives as best ass they can. In general, parents raise their children to have a good
+sense of duty, and they wish for them to have a good education and a successful career later on.
+Of course, they understand that occasionally young people enjoy themselves at parties or other
+leisure activities, but nevertheless, parents are eager to motivate their children to graduate from
+school quickly and successfully.
+
+That begs the question, why then are adults themselves not interested in a swift graduation, that
+is, in a quick, sound evolution and finally in becoming one with the Creation? They could
+accelerate the 'school of life' – thus their continuous evolution - substantially if only they would
+let go of their God-delusion belief and would align their life according to the eternally valid
+creational-natural laws and would lead their existence in peace, harmony, love and wisdom.
+
+How sad is it to make the hoarding of material goods and the primitive-dumb lust for might and
+dominion the sole purpose of one's life! None, none of these mundane things whatsoever
+provide lasting value and are therefore in no way conducive to the evolution of the
+consciousness of humans, because these are based in the fact that they recognise less and less
+the meaning of life and fail to become real human. One should always keep in mind: Shrouds
+have no pockets. No matter how much wealth, might, land and other goods a person
+accumulates during his or her current incarnation – none of it will endure. Only the evolution of
+the consciousness, the increased development of one's own power of consciousness as well as
+the growth and expansion of rationality, intellect, knowledge, wisdom, a respectable personality,
+a good intellectum and a valuable character, will always benefit a person in future lives.
+Everything else is a waste of time, as it is at best inherent in immature adult people. Children, as
+a rule, do not waste their time, but learn from their actions and their games various things and
+skills that will benefit them later in adult life.
+
+The Plejaren have realised this a very, very long time ago and placed their existence into the
+service of the evolution and thus the Creation. Does it come as a surprise then that they do not
+seek contact with immature, still very low-evolved life forms like the Earth human beings?
+
+We should be grateful to them and Billy for bringing us the 'Teaching of the Truth, Teaching of
+Creation Energy, Teaching of the Life', for the effort and the amount of work that both Billy and
+the Plejaren put into this is so much more than most people can even begin to imagine.
+Find more information on the Creation and creational energy in Billy's many books, writings and
+FIGU publications. Subscribe to our channel for more interesting topics and hit the bell if you
+want to know about our latest publications. Well then, see you in our next episode, when we will
+reveal lots of interesting facts again:
+What school won't tell you.
+
+##### ********************************************************
+### ************************************************ ************************************************
+
+
+-----
+
+###### Verbreitung des richtigen Friedenssymbols
+
+Das falsche Friedenssymbol – die heute weltweit verbreitete sogenannte
+
+**Es soll FRIEDEN sein auf Erden** <Todesrune>, die aus den keltischen Futhark-Runen resp. der umgedrehten
+
+**And there shall be PEACE on Earth** Algiz-Rune fabriziert wurde – ist der eigentliche Inbegriff negativer Einflüsse
+
+und schafft zerstörerische Schwingungen hinsichtlich Unfrieden, Fehden und
+
+**AMANI** **ΕΙΡΗΝΗ** Hass, Rache, Laster, Süchte und Hörigkeit, denn die <Todesrune> bedeutet für
+**BARIŞ** **VREDE** viele Menschen Reminiszenzen an die NAZI-Zeit, an Tod und Verderben, wie
+**PAQE** **��** aber auch Ambitionen in bezug auf Kriege, Terror, Zerstörungen vieler Art, und
+**PACE** **שרום** damit weltweit Unfrieden, weil für die Menschen jedes Todeszeichen Angst und
+**МИР** शांित Unheil symbolisiert.
+**PAIX** **���** Es ist wirklich dringlichst notwendig, dass die <Todesrune> als falsches
+**PAZ** **��** Friedenssymbol, das Unfrieden und Unruhe menschlicher Errungenschaften
+
+und aller notwendigen Lebensgrundlagen jeder
+
+**FIGU.ORG** schafft, völlig aus der Erdenwelt verschwindet und dadurch das uralte sowie
+
+**FIGU, Semjase-Silver-Star-Center, 8495 Schmidrüti**
+**Schweiz/Switzerland  Tel. + 41 (0)52 385 13 10** richtige Peacesymbol resp. Friedenssymbol auf der ganzen Erde verbreitet und
+
+weltbekannt gemacht wird, dessen zentrale Elemente Frieden, Freiheit,
+Harmonie, Stärkung der Lebenskraft, Schutz, Wachstum und Weisheit reflektieren, aufbauend wirken und sehr
+besänftigend und friedlich-positiven Schwingungen zum Durchbruch verhelfen, die effectiv Frieden, Freiheit und
+Harmonie vermitteln können! Wir wenden uns deshalb an alle vernünftigen Menschen der Erde, an alle FIGU
+Interessengruppen, FIGU Studiengruppen und FIGU Landesgruppen und damit an alle vernünftigen und ehrlich nach
+Frieden, Freiheit, Harmonie, Gerechtigkeit, Wissen und Evolution strebenden Menschen, ihr Bestes zu tun und zu geben,
+um das richtige Friedenssymbol weltweit zu verbreiten und Aufklärung zu schaffen über die gefährliche und destruktive
+Verwendung der <Todesrune>, die in Erinnerung an die NAZI-Verbrechen kollektiv im Sinnen und Trachten der
+Menschen Charakterverlotterung, Ausartung und Unheil fördert, wie das leider auch nach dem Ende des letzten
+Weltkrieges 1939–1945 extrem bis in die heutige Zeit hineingetragen wird.
+
+###### Spreading of the Correct Peace Symbol
+The wrong peace symbol – the globally widespread “death rune” which has been fabricated from the Celtic Futhark
+/quintessence of negative influences and evokes destructive swinging-waves regarding unpeace and hatred, revenge,
+vice, addictions and bondage, because for many human beings the “death rune” means reminiscence (memories) of the
+Nazi era, of death and ruin as well as ambitions concerning war, terror, destruction of human achievements, livelihoods
+as well as global evil unpeace.
+Therefore it is of the utmost necessity that the wrong peace symbol, the “death rune”, disappears from the world and
+that the ur-ancient and correct peace symbol is spread and made known all-over the world, because its central elements
+reflect peace, freedom, harmony, strengthening of the life power, protection, growth and wisdom, have a constructive and
+strongly soothing effect, and help peaceful-positive swinging-waves to break through.
+Therefore we appeal to all FIGU members, all FIGU Interessengruppen, FIGU Studiengruppen and FIGU Landesgruppen
+as well to all reasonable human beings, who are honestly striving for peace, freedom, harmony, fairness, knowledge and
+evolution, to do, and give, their best to spread the correct peace symbol worldwide and to bring forth clarification about
+the dangerous and destructive use of the “death rune”, which in memory of the Nazi crimes collectively furthers
+deterioration and neglect of character-"ausartung" and terribleness in the reflecting and striving of the human being, as
+this is still being extremely carried on after the end of the last world war 1939–1945 until the current time.
+
+##### Verbreitet auch das <Kampf der Überbevölkerung>-Symbol
+
+
+-----
+
+(Falsches Friedensymbol = ☮ = Keltische Todesrune (nach unten gedrehte „Lebensrune“)
+
+**Das Friedenssymbol** **Ur-Symbol Überbevölkerung**
+
+**Autokleber** **Bestellen gegen Vorauszahlung:** **E-Mail, WEB, Tel.:**
+**Grössen der Kleber** **FIGU** info@figu.org
+120x120 mm = CHF  3.–        Hinterschmidrüti 1225 www.figu.org
+250x250 mm = CHF  6.–        Schmidrüti / Schweiz Tel. 052 385 13 10
+300X300 mm = CHF 12. Fax 052 385 42 89
+
+**Nutzt euer Auto und klebt das <Kampf der Überbevölkerungs>-Symbol und das Friedens-Symbol darauf,**
+**und verbreitet es auf diese Weise. Klebt es, wo es erlaubt ist, auch sonst überall an Wände, Plakate usw.!**
+
+**IMPRESSUM** **///    Für CHF/EURO 10.– in einem**
+**Couvert, senden** **wir Ihnen/Dir 3 Stück farbige Kleber**
+**FIGU-BULLETIN und FIGU Sonder-BULLETIN                        ///    Grösse** **120 x 120 mm = am Auto**
+**Druck und Verlag: FIGU** Wassermannzeit-Verla                     /// **aufkleben**
+**Grösse. 25 x 25 mm**
+Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+**FIGU-BULLETIN erscheint periodisch; FIGU-Sonder-BULLETIN erscheint sporadisch;**
+Beide Bulletins werden auch im Internetz veröffentlicht, auf der
+
+FIGU-Webseite: www.figu.org/ch
+**Redaktion: BEAM** ‹Billy› Eduard Albert Meier /././ **Telephon +41(0)52 38513 10 (7.00 h – 19.00 h) / Fax +41(0)52 385 42 89**
+
+**Postcheck-Konto: PC 80-13703 3 / IBAN: CH06 0900 0000 8001** **3703-3**
+FIGU Freie Interessengemeinschaft, 8495 Schmidrüti, Schweiz
+**FIGU-Shop: shop.figu.org**
+
+**© FIGU 2021**
+Einige Rechte vorbehalten.
+Dieses Werk ist, wo nicht
+anders angegeben, Geisteslehre Friedenssymbol
+lizenziert unter : **Frieden**
+www.figu.org/licenses/by- Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst
+
+dann werden, wenn jeder verständige und vernünftige Mensch
+
+nc-nd/2.5/ch/ endlich gewaltlos den ersten Tritt dazu macht, um dann
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung des** nachfolgend in Friedsamkeit jeden weiteren Schritt bedacht und
+**Urhebers ausdrücklich erlaubt. / Erschienen im Wassermannzeit-Verlag:** bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun.
+FIGU, ‹Freie Interessengemeinschaft Universell›, Semjase Silver Star Center, SSSC, 10. September 2018, 16.43 h, Billy
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz/Switzerland
+
+###### (Falsches Friedensymbol = = Keltische Todesrune) 
+# ☮
+
+###### (Nach unten gedrehte „Lebensrune“)
+
+
+#### ☮
+
+
+-----
+

@@ -1,0 +1,983 @@
+### Erscheinungsweise: Internet: http://www.figu.org 9. Jahrgang Sporadisch E-Mail:  info@figu.org Nr. 42, Februar 2003
+
+## Vom knatternden Automobil zu Science-fiction?
+**Gedanken zum ganz gewöhnlichen Alltag**
+Die Entwicklungsgeschichte des Automobils ist erstaunlich, zeugt sie doch davon, dass selbst technische
+Entwicklungen einer ungeheuren Stagnation unterworfen sein können.
+Über einhundert Jahre sind mittlerweile vergangen, seit die Herren Daimler und Benz in Europa mit den
+ersten motorgetriebenen Pferdewagen über die Feldwege ratterten und mit ihrer Erfindung ein neues technisches Zeitalter einleiteten. Fast zur gleichen Zeit, nämlich Anfangs der 90er Jahre des vorletzten Jahrhunderts (1891), wurde mit dem deutschen Flugpionier Otto Lilienthal der Grundstein zur Fliegerei und
+Raumfahrt gelegt. Lilienthal schaffte es offiziell als erster Mensch der Neuzeit, mit einem vogelähnlichen
+und starren Gleitflugzeug einige hundert Meter weit zu segeln. Er selbst kam bei seinen Versuchen am 10.
+August 1896 ums Leben. Seine einfache Erfindung wurde jedoch seither mit riesigen Schritten weiterentwickelt und vorwärtsgetrieben.
+Dreiundvierzig Jahre später wurde in Deutschland anno 1939 von Ingenieur Ohahin die HE 178, das erste
+Düsenflugzeug entwickelt. Dreiundsiebzig Jahre nach Lilienthals Tod standen angeblich am 20.7.1969
+bereits die ersten Menschen auf dem Mond oder sie flogen in Jumbo-Jets mit über 400 Passagieren über
+den Planeten Erde. Ganz im Gegenteil dazu die Erfindung des Automobils von Daimler (1887 4rädrig)
+und Benz (1885 3rädrig). Obschon im Aussehen, der Technik und im Komfort der Blechkutschen gewisse
+Verschönerungen oder Sparsamkeits-Entwicklungen stattgefunden haben, schlummert jedoch selbst im
+Jahre 2003 unter der Haube noch immer ein hundert Jahre altes und längst überholtes Verbrennungsmotorenkonzept der beiden Herren Otto und Diesel. Benzin und Diesel sind noch immer der Treibstoff der
+Gegenwart – nach über einhundert Jahren Entwicklungszeit. Andererseits hat Otto Lilienthals Erfindung
+bis heute jedoch den Sprung vom einfachen Segler zur Entwicklung des Tachyonenantriebs und Antigravitationsantriebs noch nicht geschafft, jedoch zum Raketen- und Düsenantrieb. Tachyonenantriebe und
+Antigravitationsantriebe werden aber schon seit geraumer Zeit zumindest bereits erforscht.
+Allmählich gehen aber auf unserem Planeten die Erdpetroleum-Vorräte zur Neige, und auch alle anderen
+fossilen Brennstoffe schwinden. Dies ist längst kein Geheimnis mehr und wurde bereits Mitte der Siebzigerjahre von Semjase, Ptaah und anderen Ausserirdischen für die Jahrtausendwende vorausgesagt. Angesichts dieser Bedrohung geschieht in der Entwicklung des Automobils allmählich eine wundersame Wendung und es wird fieberhaft in Richtung Zukunft gearbeitet. Schon längst wurde nämlich erkannt, dass die
+Mobilität und die Bewegung wesentlich zur Evolution des Menschen beiträgt. Das Auto als ‹Kommunikationsinstrument› kann nicht einfach verboten werden, wie dies von gewissen ‹alternativen› Kreisen immer
+wieder gefordert wird. Nicht zuletzt werden sich, einerseits bedingt durch Treibstoffmangel und andererseits durch den evolutionsbedingten Fortschritt, die Antriebsformen der irdischen Fortbewegungsmaschinen
+grundlegend ändern müssen. Dem Konzept der Verbrennung wertvoller fossiler Brennstoffe muss im Angesicht der Überbevölkerung und Ausbeutung irdischer Ressourcen endlich ein Ende gesetzt werden.
+
+
+-----
+
+Gemäss den plejarischen Voraussagen wird es der Menschheit eines Tages gelingen, die Umweltprobleme durch technische Erfindungen in den Griff zu bekommen. Die Auto-Industrie scheint dazu ihren Beitrag zumindest eingeleitet zu haben. Einige Autohersteller setzen nämlich plötzlich wieder vermehrt auf
+Elektromobile, doch obwohl elektrisch betriebene Fahrzeuge direkte Nullwerte beim Benzinkonsum und
+den Abgaswerten ausweisen, blieben die Batterieprobleme jedoch bis heute weithin ungelöst, im Zeitalter
+der ‹Raumfahrt› eine etwas unverständliche Tatsache. Dies im Gegensatz zu den indirekten Abgas-Nullwerten von Fliess-Wasserkraftwerken, Sonnenenergie oder Wind-Energiekraftwerken, welche die umweltschädlichen Kohle-, Oil-, oder Atomkraftwerke ablösen könnten.
+Trotz grosser fortschrittlicher Entwicklungen in vielen anderen Gebieten, wie der Medizin, der Astrophysik und Elementarteilchenphysik, der Elektro- und Computertechnik bis zur graphischen Industrie usw. usf.,
+scheinen sich die Autobauer noch immer nicht vom herkömmlichen Verbrennungsprinzip ihrer Motoren
+lösen zu können. Ihre Produktionsstätten sind mittlerweile futuristischer als ihre Produkte selbst. Dennoch,
+ihr eigentliches Ziel ist es, die Antriebe ‹unabhängiger› von den Produkten des Erdpetroleums zu machen.
+Zur Zeit wird durch die Autoindustrie in vier verschiedenen Hauptrichtungen geforscht: Zum einen an weiteren Verbesserungen der Benzin- und Dieselmotoren durch elektronische Steuerungen. Eine andere Lösung soll im Erdgas liegen. Methanolfahrzeuge oder Biogasfahrzeuge werden bereits erprobt, was jedoch
+deutlich eine gewisse Unbeholfenheit der Entwickler aufzeigt, sich endgültig von den fossilen Brennstoffen
+zu trennen. Paradoxerweise scheinen sie zu vergessen, dass Biogas und Erdgas, wie das Erdpetroleum
+(fälschlich Erdöl genannt), ebenfalls nur in beschränktem Masse vorhanden sind.
+Weiter sollen die Akkus von Elektroautos verbessert werden. Die Stromproduktion elektrisch betriebener
+Fahrzeuge greift jedoch auch hier unlogischerweise noch immer auf die altherkömmlichen Benzinmotoren
+und Dieselaggregate oder auf sogenannte Brennstoffzellen zurück.
+Als vierte Lösung werden sogenannte Hybridkonzepte, also eine Kombination zwischen Verbrennungsund Elektromotoren, entwickelt. Lediglich die Firma BMW bietet ab dem Jahr 2001 in der 7er-Baureihe
+ein völlig neuartiges Fahrzeug mit einem sogenannten Wasserstoffmotor an. Mit Solarenergie gewonnener und sehr hochexplosiver Wasserstoff wird dabei in einem Verbrennungsmotor zu Wasser verbrannt.
+Das am 6.Mai 1937 in Lake Hurst bei New York explodierte Luftschiff ‹Hindenburg› gilt als historisches
+Beispiel für die Gefährlichkeit des Wasserstoffes. Der Autohersteller Daimler Chrysler folgt bis zum Jahr
+2004 mit einem eigenen Wasserstoffmotor, bei dem, durch einen ‹Reformer›, aus Methanol Wasserstoff
+für die Verbrennung gewonnen werden soll. Zumindest ist dies ein Ansatz für eine völlig neuartige und
+‹umweltschonende› Antriebstechnik. Dennoch sind natürlich die Auswirkungen von Millionen von wasserstoffbetriebenen Motoren nicht abzuschätzen.
+Ford, Honda, Renault, Subaru, Saab, Fiat, Toyota oder VW gehen eigene Wege in Richtung Hybridfahrzeugen mit Benzin, Diesel, Brennstoffzellen und Elektroantrieben.
+115 Jahre sind vergangen und noch immer schlägt das Herz irdischer Motoren durch das gebändigte
+Feuer in Form von Kolben, Ventilen, Zahnrädern, Kardanwellen und Pleuelstangen. Zumindest die ersten
+Kinderschuhe sind ausgezogen und die nächst grössere Schuhnummer eingelaufen. Warten wir also gespannt darauf, wie sich unsere irdischen und motorisierten Fortbewegungsmittel im Laufe der nächsten
+weiteren einhundert Jahre entwickeln. Es ist nur zu hoffen, dass nicht abermals ein Jahrhundert vergeht,
+bis erneuter Treibstoffmangel ein erzwungenes Umdenken in die nächste Entwicklungsstufe fordert.
+Im Alter von einhundert Jahren plant der Autor dieses Artikels voraussichtlich eine kurze Ferienreise auf
+den Mond ins ‹Luna-Hotel› mit Sicht auf die Erde. Es wäre jedoch interessant zu erfahren, ob er dieses
+Abenteuer bereits mit seinem eigenen ‹fliegenden Auto› unternehmen wird oder ob er mit einer alten, ratternden und rauchenden Blechkutsche mit Kolbenmotor zur High-Tech Startrampe eines AntigravitationsRaumschiffes fahren muss. Fazit im Jahre 2062: Verstopfte und stinkende Autostrassen und zwei Stunden
+Autofahrt für 25 Kilometer zum Flughafen – zehn Minuten Flugzeit zum Mond für 384 000 Kilometer.
+Hans G. Lanzendorfer
+
+
+-----
+
+## Mond und Erde sind Geschwister – aber ...!
+**oder**
+‹Wie der Mond zur Erde kam› und ‹die Erfüllung einer Prophezeiung von Quetzal›
+Nach wie vor stellt der Mond für die irdische Wissenschaft ein grosses Rätsel dar. Über seine Entstehung
+und Herkunft wurden im Lauf der Jahre immer wieder verschiedene Theorien entwickelt. Dennoch existieren für die Wissenschaftler nach wie vor keine schlüssigen Beweise oder Erkenntnisse darüber, woher
+unser Erdtrabant wirklich stammt. Im Internet-Forum der FIGU ist die Frage aktuell, und im Oktober 2001
+wurde das Thema erneut in den Medien aufgeworfen (siehe Tages-Anzeiger vom 13. Oktober 2001). ETHForscher aus Zürich lieferten angebliche Beweise dafür, dass der Mond aus der Kollision eines Planeten
+mit der Ur-Erde entstanden sein soll. Dennoch lassen sie vorsichtig verlauten: «Mond und Erde sind mit
+grosser Wahrscheinlichkeit aus dem gleichen Material entstanden.»
+Die heute weitgehend akzeptierte, sogenannte ‹Giant-Impact-Theorie› geht davon aus, dass rund 50 Millionen Jahre nach der Geburt des Sonnensystems ein etwa marsgrosser Planet, der von der Wissenschaft
+Theia genannt wird, mit der Protoerde kollidierte. Die daraus entstandenen Erdtrümmer sollen um die Erde
+angeblich eine Scheibe (ähnlich den Saturn-Ringen) gebildet haben, woraus der Mond entstanden sei.
+Die Zürcher Forscher weisen darauf hin, dass die Sauerstoffisotope der beiden Himmelskörper identisch
+seien. Dabei lassen sie jedoch eine sehr wichtige Tatsache aus den Augen: Das Universum, die Schöpfung,
+ist im Grunde genommen eine unermesslich grosse Lebensform. Alles Leben und jegliche Existenz, alle Planeten, Welten, Systeme, Sonnen und Galaxien bilden darin eine Einheit. Daher ist es nicht verwunderlich,
+dass im gesamten Universum an den entlegensten Orten, nebst vielen unbekannten, logischerweise auch
+immer wieder die gleichen Elemente gefunden werden können. Bestimmte Kristalle, Gase, Metalle,
+Gesteine und die verschiedensten Stoffe lassen sich auf unzähligen bewohnten und unbewohnten Welten
+und Planeten des Universums finden. Gold bleibt Gold, selbst am anderen Ende unseres Universums.
+Ziehen wir einen alten Nussbaum als Vergleich heran. Er bildet eine Einheit in sich selbst und verfügt über
+unzählig viele Äste und Gabelungen bis an seine äussersten Enden. Er trägt Hunderte oder Tausende
+Nüsse, die als einzelne Welten betrachtet werden könnten. Jede dieser Nüsse ist einzigartig und dennoch
+vergleichbar mit den anderen, dies, obwohl sie vordergründig nicht in direkter Verbindung zueinander
+stehen, jedoch der gleichen Wurzel entstammen. Auch hier gilt das Gesetz des Makrokosmos im Mikrokosmos, im grossen wie im kleinen, auf einzelnen Welten wie auch im gesamten Weltenraum. Hätten die
+Forscher die Möglichkeit, dann könnten sie die als Beweise herangezogenen Sauerstoffisotope auch auf
+unzählig vielen fremden Welten des Universums nachweisen.
+Die Geschichte in bezug unseres Erd-Mondes wurde erstmals im 5.Kontakt vom Sonntag, dem 16.Februar
+1975 von Semjase erläutert, aus dem die wesentlichen Aussagen wiedergegeben werden sollen:
+
+Semjase
+...
+Sicher, doch ich bin noch nicht zu Ende, denn ich möchte dir jetzt noch ursprünglichere Dinge
+erzählen; die Urgeschichte dieses für die Erde so schicksalhaften Kometen, der auch den Trabanten, den Mond, hergebracht hat – das Bruchstück eines kleinen Planeten aus einem sehr fernen Sonnensystem. Der Erdmond, der von einem 4,5 Millionen Jahre älteren Kleinplaneten
+stammt, als es die Erde ist. Es war vor Jahrmillionen. Tief im unbekannten Raum, in einem Sonnensystem nahe der Milchstrasse, schwebte ein einsamer Stern weitab der normalen Bahnen der
+die Sonne umkreisenden Trabanten. Er war ein Dunkelstern, bar jeglichen Lebens, sehr gefährlich in seiner unberechenbaren Bahn, in die er durch eine gewaltige Eruption seiner ursprünglichen Sonne geschleudert worden war. Dies, als seine Ursprungssonne durch allerschütternde
+Explosionen zerbarst und in ihrer Vernichtung die sie umkreisenden Trabanten teilweise zerstörte
+oder sie als gefährliche Geschosse in den dunklen Raum hinausschleuderte. Die Sonne selbst
+stürzte dann in sich zusammen und riss ein Loch in den Weltenraum. Ihre Materie presste sich
+
+
+-----
+
+mit ungeheurer Gewalt zusammen und wurde zu einer kleinen Masse komprimiert. Hatte die
+Sonne in ihrem normalen pulsierenden Zustande einen Durchmesser von elf Millionen Kilometern gehabt, so schrumpfte sie nun zusammen auf eine Dichte von nur noch ganzen 4,2 Kilometern. Dadurch wurde die Materie derart verdichtet, dass ein einziger Kubikzentimeter mehrere tausend Tonnen wog. Seither schwebt sie als dunkle gähnende Höhlung im Raum, die auf
+Millionen von Kilometern im Umkreis alles in sich hineinreisst, was sie zu erfassen vermag und
+was in ihren Bann gerät. Der von ihr damals weggeschleuderte Dunkelstern fing sich in einem
+benachbarten Sonnensystem wieder ein und umkreiste es in einer unberechenbaren Bahn. Im
+Kraftfeld der riesigen Sonne umkreiste er viele Jahrtausende ihre Trabanten und sie selbst, zeugend davon, dass er einst eine Katastrophe über das System hereinbrechen lassen würde. Doch
+noch weitab der eigentlichen Welten zog der jeglichem Leben bare Dunkelplanet durch den
+Raum. Gewaltig und unnahbar schwebte er durch die eisige Kälte des Alls – als ein Ausgestossener, als ein Wanderplanet, als ein Fremder in einem fremden System; dunkel, gefährlich und
+todbringend. Im Banne der sich weit ausreckenden Kraftarme der Sonne näherte er sich im Laufe
+der Jahrtausende mehr und mehr dem eigentlichen Bereich der Systemtrabanten, die er schon
+seit so langen Zeiten in sich stets steigerndem Tempo umkreiste. Unmerklich, jedoch stets wurde
+seine Bahn enger und enger, und Jahr um Jahr wuchs das Ausmass seiner Gefahr. Mit den Jahrtausenden stürzte er dann plötzlich und unerwartet schnell hinein in den engsten Bannkreis der
+Sonne und ihrer Planeten. Wie ein gieriges Ungeheuer tauchte er aus der Schwärze des Alls und
+kündete todbringende Vernichtung. Vorerst war er nur wie ein Schemen aus dem Nichts; dann
+aber erkannte man ihn schleierhaft und verschwommen als halbdunkle runde Scheibe. Nun
+bereits beleuchtet von den sich reflektierenden Strahlen der Sonne, näherte er sich mit ungeheurer Geschwindigkeit der Umlaufbahn des äussersten Planeten. Noch aber war er Millionen
+von Einheiten vom eigentlichen Herd der friedlichen Ruhe entfernt, die er jedoch bald in seiner
+gigantischen Grösse in eine brodelnde Hölle verwandeln musste, wenn er in die Stille dieser
+Harmonie eindrang. Aber noch Zeiten vergingen vorerst, ehe der Riese endgültig aus seiner
+Bahn ausscherte und in gefährlichste Nähe gerückt war. Nun bereits als runde Kugel erkennbar,
+reflektierte der Zerstörer das Sonnenlicht, während er hinter sich her einen feinen Schleier leuchtender Partikel herzog. Nur noch einige hunderttausend Einheiten von den nächsten Welten entfernt, rief er auf diesen höllische Stürme hervor, die grosse Gebiete vernichteten, die von den
+dort friedlich entstehenden Menschen bebaut worden waren. Mit zitterndem Beben um ihr mühsam errungenes Gut und ihr ohnehin schon hartes Leben, sahen sie sich plötzlich preisgegeben
+den gewaltigen und unbarmherzigen Kräften des Universums. Hilflos, verdammt, um vom Leben
+dem Tode überantwortet zu werden, starrten sie hinaus in den Himmel, zu dem riesenhaften
+Wanderplaneten, der als kosmisches Todesgeschoss heranraste. Es war nur noch eine Frage der
+Zeit, ehe die Kräfte des Kosmos ihre ungeheuerlichen Mächte entfalten mussten. In der Nacht
+des dritten Tages nach Einbruch des Zerstörers in die Bahnen der Planeten, es mochte kurz die
+Nachtmitte vorüber gewesen sein, drang der Weltraumbummler in die elliptische Bahn des sechsten Planeten ein. Gewaltige kosmische Stürme hervorrufend, schleuderte er den der Bahn
+angehörenden Planeten um einige Einheiten aus seiner Richtung und brachte ihn auf gefährlichen Kurs zur Sonne. Ungeheure Eruptionen und Stürme zerrissen das friedliche Bild des in seiner Herrlichkeit blühenden Sternes. Berge in sich zusammenstürzen lassend und Meere aus ihren
+Betten werfend, suchte er sich eine neue Bahn um seine Sonne. Voller Grauen und Entsetzen ob
+den gewaltigen Naturgewalten flüchteten sich die Menschen in die weiten Ebenen hinaus, die
+den Planeten zahlreich überzogen. Doch die entfesselten Naturgewalten waren stärker als der
+Wille und die rettende Idee der Menschen. Zwei Drittel der den Planeten bewohnenden Menschheit wurde getötet und vernichtet in der entfesselten Hölle der Natur. Wilde Wasser rissen grosse Teile des Festlandes hinweg, während explodierende Vulkane ungeheure Flächen unter glü
+
+-----
+
+hender Lava begruben und in Schutt und Asche legten. Die Tagesumlaufzeiten verzweifachten
+sich, und der Planet umlief die Sonne in entgegengesetzter Richtung. Durch kosmische Bestimmungen gezwungen, mussten die Überlebenden einen neuen Anfang finden – bar jeder Kultur
+–, zurückversetzt in eine Primärzeit der Entstehung. Der Zerstörer aber durchraste weiter das
+System, Hölle, Tod und Vernichtung verbreitend. Er schnitt die Bahn des fünften Planeten; einer
+Welt, die im Begriffe war, erstes Leben zu zeugen. Dieser aber lag zur Zeit des Geschehens
+glücklicherweise zu weit von seiner Bahntraversierung entfernt, als dass er ernsthaft in Mitleidenschaft hätte gezogen werden können. Ausser mächtigen Stürmen und kleineren Beben zu
+Land und zu See waren auf ihm keine nennenswerten Vorkommnisse zu verzeichnen. Der vierte Trabant des Systems sollte im Kampf der Welten seine Vernichtung finden. Als kleinster von
+allen Trabanten zog er stoisch seine Bahn, und in Vorausberechnung gesehen, musste er genau
+dann die Flugbahn des Wanderers kreuzen, wenn er ihn frontal vor sich hatte. Und genau so
+geschah es: Er geriet in die unwiderstehliche Kraft der Vernichtung des Riesen. Wie zwei wilde
+Ungeheuer rasten die beiden Planeten aufeinander zu; ein Riese und ein Zwerg. Doch ehe die
+beiden aufeinanderprallen konnten, zerrissen gewaltige Explosionen den leblosen toten Zwergplaneten. Seine Bruchstücke wurden hinausgeschleudert in die endlosen Weiten des Alls, wo sie
+als Sternschnuppen oder Meteore von den Kräften anderer Sterne eingefangen wurden und verglühend in ihren Atmosphären ihr endgültiges Ende fanden. Weitere Teile des Zwerges wurden
+in die Sonne hineingerissen und atomisierten. Weitere Teile wurden in den Zerstörer hineingerissen und wurden dort ein Stück seiner selbst. Geschleudert wie von einer Gigantenfaust schoss
+eine Hälfte des Zwergplaneten davon durch die unendlichen Weiten des Raumes, einem sehr
+fernen Ziele zu. Mehrfach geriet er auf seiner Bahn in den Bereich von Sonnen und Sternen,
+wurde erschüttert, von Meteoren und Sternschnuppen getroffen und veränderte dadurch seine
+Form. Schon nach wenigen Jahrhunderten war er zu einer kantigen rundlichen Form gelangt.
+Er war jedoch tot und öde, bedeckt von riesigen tiefen Kratern und lebensunfähig. Durch die
+Kräfte verschiedener Systeme wurde er langsam in seiner Geschwindigkeit gebremst und änderte mehrmals seinen Kurs, bis er eines Tages von der Sonne eines Systemes angezogen wurde
+und in ihren Bannkreis einbrach. Als dunkler, toter Stern durchzog er alle Planetenbahnen der
+äusseren Ringe, ohne irgendwelche Schäden zu verursachen. Erst in den inneren Ringen kollidierte er mit einigen Bruchstücken eines zerstörten Planeten, die aber nur tiefe Krater in ihn rissen. Dadurch wurde sein Kurs aber ein andermal geringfügig geändert, was zur Folge hatte,
+dass er parallel auf die Bahn des zweiten Planeten getrieben wurde, der bereits erstes primitives Leben zeugte. Ein Stern, der von grossen Meeren und dichten Primärurwäldern überzogen
+war, urweltlich, tödlich und doch grausam phantastisch. Von diesem Zeitpunkt an vergingen nur
+noch 34 Tage, ehe der Zwerg den Stern eingeholt hatte und in seinen Bann geschlagen wurde.
+Die Kräfte des Planeten genügten, den Zwerg an sich zu fesseln und ihn als neuen Trabanten um
+sich kreisen zu lassen, in einer sich stets verändernden elliptischen Bahn. Seither kreist er als
+Mond um die Erde; 4,5 Millionen Jahre älter als sein Muttergestirn.
+
+Mit der Veröffentlichung des Berichtes der Zürcher Wissenschaftler im Oktober 2001 erfüllt sich zudem
+eine Prophezeiung, die am Montag, dem 17. März 1986, von Quetzal während des 207. Kontaktes mit
+Billy gegeben wurde.
+
+Billy Gut. Dann eine andere Frage in bezug auf den Erdmond. Seit geraumer Zeit behaupten Wissenschaftler, dass der Erdmond seinen Ursprung in oder von der Erde habe. Dabei gibt es die
+Theorie, dass er als gesamter Block von der Erde weggeschleudert worden sei, während eine
+andere Theorie besagt, dass gewaltige Staubwolken sowie kleinere und grössere Gesteins- und
+Erdbrocken von der Erde weggeschleudert worden seien, und zwar durch den Einschlag eines
+
+
+-----
+
+gewaltigen Kometen oder eines anderen Planeten. Der Komet oder Planet soll dabei in etwa so
+gross gewesen sein wie der Planet Mars usw. Das weggeschleuderte Material soll sich im Laufe
+der Zeit gesammelt und zum Mond entwickelt haben. Im Gegensatz dazu habt ihr aber erklärt,
+dass der Erdmond aus eurem Raum-Zeit-Gefüge in das unsere und dann in das SOL-System eingedrungen sei, in dem er sich dann von der Erde als Trabant einfangen liess.
+
+Quetzal Die Annahmen der irdischen Wissenschaftler entsprechen nicht der Richtigkeit, denn der Ursprung des Erdmondes führt nicht auf die Erde zurück und also auch nicht auf einen
+Zusammenstoss oder dergleichen mit einem marsgrossen Kometen oder Planeten. Der Mond
+fand zu früherer Zeit den Weg aus unserem Raum-Zeit-Gefüge heraus und drang in das eure
+ein, wonach er von der Erde durch deren Anziehungskraft festgehalten wurde und seither,
+immer mehr von der Erde abweichend, um den Planeten kreist und noch heute wie zu allem
+Anfang die Erdrotation beeinflusst und also eine Bremswirkung erzeugt.
+
+Billy Das habt ihr mir schon früher erklärt. Wie steht es aber mit der Mondmaterie? Welcher Art ist
+die?
+
+Quetzal Sie ist zumindest in gewissen Teilen gleichermassen wie die Materie der Erde, wobei jedoch
+auch noch andere Materieformen in Erscheinung treten. Auch die isotopische Zusammensetzung
+im Bezug auf Sauerstoff usw. sind weitestgehend und teilweise sogar identisch mit denen der irdischen Materie. Diese Tatsache wird leider eines Tages zur wissenschaftlichen Falschdiagnose
+führen, dass der Erdmond aus weggeschleuderter Materie der Erde entstanden sei.
+
+Billy Dem wird dann wohl kaum die Wahrheit entgegenzusetzen sein, denn die irdischen Wissenschaftler sind für ihre Borniertheit bestens und zur Genüge bekannt.
+
+Quetzal Das wird wohl so sein, wenn es soweit ist, dass Materievergleiche usw. Anwendung finden können.
+
+
+Billy Weisst du, wann das sein wird?
+
+
+Quetzal Nein, diesbezüglich kann ich nur gemäss der irdischen technischen Entwicklung eine Schätzung
+vornehmen. Dabei komme ich auf etwa 15 bis 20 Jahre, ehe die irdische Isotopengeologie mit
+ihren technischen Messmöglichkeiten derart fortgeschritten sein wird, dass respektable und zutreffende Resultate erzielt werden können.
+
+
+Billy Dann wird es also nach dem Jahrtausendwechsel sein.
+
+
+Fazit: Nun denn, meine Damen und Herren Wissenschaftlerinnen und Wissenschaftler. Bei allem Respekt
+für Ihre Arbeit muss der Vorwurf einer gewissen Engstirnigkeit Ihrer Zunft stehengelassen werden. Ihre
+Kolleginnen und Kollegen der Astrophysik entdecken fast monatlich neue Galaxien, Sonnensysteme und
+gar einzelne Planeten. Die bereits messbaren Entfernungen des Weltenraums werden mit Hilfe neuester
+Techniken immer grösser. Fremde Welten öffnen den ‹Sehenden› Tür und Tor. Dennoch beschränkt sich die
+Akzeptanz von möglichem Leben, bestimmten Elementen oder lebentragender Materie noch immer auf
+unser Sonnensystem. Verwechseln Sie doch bitte die Bildschirme und Anzeigen ihrer Apparaturen, Maschinen und Messgerätschaften nicht mit virtuell geschaffenen Kino-, Computer-, Spielfilm- und Scheinwelten. Denn eines ist so sicher wie die Existenz der Menschheit: Wir sind nicht allein.
+Hans G. Lanzendorfer
+
+
+-----
+
+## Bemerkenswertes
+Liebe Freunde der FIGU,
+... sende ich Euch einen Auszug aus dem Taschenbuch «Die Weissagungen des Nostradamus, neu
+entschlüsselt», von Manfred Dimde (Goldmann Verlag). Es gibt zwar eine ganze Menge Bücher über
+das Thema, und vermutlich ebenso viele Forscher,
+die behaupten, endlich die ganzen Centurien von
+Nostradamus entschlüsselt zu haben. Manfred Dime
+ist der Meinung, er habe endlich nach etwa 10jähriger Arbeit und mit Hilfe des Computers den Code
+geknackt und somit die Prophezeiungen entschlüsselt.
+Den beigelegten Abschnitt von Seite 215/216 habe
+ich aus vorgenanntem Buch herauskopiert, denn das
+Ganze deckt sich auf erstaunliche Weise mit Details
+aus der prophetischen Geschichte von Henok, die
+Billy preisgegeben hat und die im Semjase-Block 15,
+Seite 2817 (aus Zweihundertfünfzehnter Kontaktbericht vom Samstag, 28. Februar 1987, 2.09 h),
+nachzulesen ist. – Die Herkunft der Hautfarben der
+irdischen Menschen, die Genveränderung (Genmanipulation), die Gegend des Sirius, die Flucht der
+Genmanipulierten und ihre Verfolgung, das Versteck
+am Rande der Galaxie, die Weiterentwicklung des
+Volkes und die ‹Reparatur› des Gendefekts aus
+eigener Hand.
+Da das Buch schon ein paar Jährchen auf dem
+Buckel hat, ist es ausgeschlossen, dass Dime sich
+von dem entsprechenden Semjase-Bericht ‹inspirieren› lassen hat. Für mich der Beweis, dass er zumindest teilweise die Prophetien richtig interpretiert
+hat. – Ist vielleicht nicht so wichtig, dachte aber, es
+könnte interessant sein.
+Roberto Manfrini/Schweiz
+
+## An alle Mitmenschen !!!
+Mensch der Erde, wehre Dich gegen die bösen Machenschaften der Politiker, Wirtschaftsbosse sowie der
+Päpste und Religionsvertreter. Tuet Euch zusammen und sehet und erkennet die Falschheit der ‹Obrigkeit
+und Religionen›. Erhebet Eure Stimmen gegen Staatsverschuldung und Misswirtschaft. Stoppt die durch
+unsere Politiker und Wirtschaftsbosse geförderten Umweltzerstörungen (weil diese nur geldgierig sind,
+dulden sie weitere Umweltzerstörungen). Wir als Menschen dieser Erde haben uns über viele Zeitepochen
+von Machtgierigen und falschen Pfaffen sowie blutrünstigen Diktatoren lange genug die Unwahrheit predigen lassen (auf gut Deutsch, wir wurden und werden immer noch verdummt). Nur wir als Menschen können etwas ändern, tuet dies jetzt, um die drohenden Ereignisse abzuändern.
+‹Ein Nachdenklicher›/Europäische Union
+
+
+-----
+
+Der nachfolgende Artikel aus der Zeitschrift «NEXUS NEW TIMES» (Ausgabe Juli-August 2002) wurde
+uns aus Amerika zugesandt:
+## «National Geographic» beweist Billy Meiers Behauptung
+Endlich ist der Beweis erbracht, der Eduard (Billy) Meiers Behauptung bestätigt, in den Siebzigerjahren
+von Ausserirdischen von den Plejaden kontaktiert worden zu sein!
+In der Januar-2002-Ausgabe der Zeitschrift National Geographic wurde eine interessante Bestätigung der
+Echtheit von Meiers Behauptungen abgedruckt. In jener Ausgabe fand ich eine Kurzmeldung (newsbrief),
+die bestätigt, dass der Mount Everest nicht der höchste Berg der Erde ist, genau wie Meier dies in den
+Siebzigerjahren behauptet hatte (anlässlich des 31. Kontaktgespräches vom 17. Juli 1975; A.d.Ü.).
+Meier erwähnte in seinen Schriften, dass ihm die Plejadier erklärten, dass der Mount Chimborazo in Ecuador 2150 Meter höher sei als der Mount Everest, weil die Erde nicht ganz rund sei, sondern sich vielmehr
+in der Mitte ausbeule; deshalb sei die Messung ab Meereshöhe nicht akkurat genug, um die Höhe eines
+Berges zu messen.
+National Geographic stellte fest, dass Wissenschaftler nun bestimmt hätten, dass sich die Erde um die Mitte
+ausbeule, und zwar wegen der Drehbewegung der Erdrotation. Deshalb sei der Mount Chimborazo,
+wenn vom Zentrum des Planeten aus gemessen werde, 2200 Meter höher als der Mount Everest. Die Kurzmeldung besagt, dass, gemessen vom Zentrum der Erde, der Mt. Chimborazo 6 384 450 Meter und der
+Mt. Everest 6 382 250 Meter hoch seien.
+Ich denke, dass mir jedermann zustimmt, dass es für einen armen Schweizer Bauern ohne höheren Schulabschluss eine ausserordentliche Leistung darstellt, diesen speziellen Berg herauszupicken und ihn als den
+höchsten Berg der Erde zu erklären, höher als der Mt. Everest, und sich dessen Höhe bis auf 50 Meter zu
+nähern – gemessen ab dem Zentrum der Erde –, und zwar Jahre bevor Wissenschaftler diese Tatsache
+entdeckten.
+1997 schrieb ich Star Wisdom, ein Buch über die essentielle, geistige Botschaft der Plejadier (basierend
+auf Billy Meiers Semjase-Kontaktberichten), worin ich die Chimborazo-Behauptung erwähnte.
+In der Februar-2002-Ausgabe des in Grossbritannien domizilierten UFO Magazins (Jg. 21, Nr. 3) wurde
+mein Buch von Kate Miller besprochen, die feststellte:
+_«... die Frage, die mich beim Lesen von Star Wisdom am meisten beschäftigte war, ob ein angeblich armer_
+_Schweizer Bauer (ohne höheren Schulabschluss) diese Art von wunderbaren und inspirierenden Worten_
+_heraufbeschwören konnte, wie sie sich im Buch manifestieren. Konnte er möglicherweise die sieben_
+_Grundprinzipien der Plejadier erfunden haben, die Einheit, ewige geistige Evolution, Selbstverantwor-_
+_tung, Liebe, Ausgeglichenheit, Wahrheit und Gleichwertigkeit umfassen?_
+_Es ist für mich nicht erklärbar (die genaue Nennung des Mt. Chimborazo als höchsten Berg dieses Plane-_
+_ten), und ich bezweifle ernsthaft, ob Skeptiker dies zu versuchen wagten, aber bitte, sie sollen sich keinen_
+_Zwang antun! Dasselbe gilt für jeden der denkt, dass es eine lohnende Übung wäre, Billy Meier und die_
+_Lehre der Plejadier wieder zu besuchen. Sie würden eine wahrhaft lohnende Erfahrung machen.»_
+Heute besteht ein grosses öffentliches Interesse für das UFO-Phänomen und ebenso für Spiritualität. Star
+Wisdom bietet einen rationalen, logischen und eminent wirksamen Weg, um im täglichen Leben Spiritualität zu üben.
+Die Plejadier präsentierten Meier eine klare und befreiende Botschaft, die mir nicht nur willkommen, sondern die notwendig ist im chaotischen Bereich der modernen Spiritualität, in dem verhärtete Dogmen des
+Fundamentalismus mit der Verlockung von New-Age-‹Pop›-Philosophien wetteifern. Im Lichte der aktuellen Geschehnisse auf unserem Planeten glaube ich, dass es Zeit ist für uns, ihre diesbezüglichen weisen
+Anweisungen ernstzunehmen.
+Wenn Sie Star Wisdom lesen wollen, schreiben Sie bitte an mich, Gene Andrade, PO Box 223743, Carmel, CA 93922, USA, um Informationen zu erhalten, wie sie eine Kopie des Buches direkt von mir beziehen können. Als Alternative können Sie es von Amazon.com bestellen.
+Übersetzt von Christian Frehner
+
+
+(Quelle: Gene Andrade Presseinformation 28 April 2002; via E-Mail starwisdom@pacbell net )
+
+
+-----
+
+## A note regarding the following article:
+Regarding the hight numbers given in the article below we'd like to add the following information: The average equator radius is 6,378,388 meters, the average polar radius 6,356,912 meters (according to dtvLexikon). This is a difference of nearly 43 kilometers, in relation to the diameter.
+If an imagianry circle is drawn around the center of the Earth that just touches the peak of Mount Chimborazo, the difference to Mount Everest is 2,143 meters, as is shown in a list of several mountanis on the
+following Web-Site:
+http://keplerweb.oeh.uni-linz.ac.at/trading/climbing/tipstr.htm
+Christian Frehner
+
+(Taken from NEXUS NEW TIMES, JULY-AUGUST 2002, page 61; www.nexusmagazine.com)
+
+## “NATIONAL GEOGRAPHIC” validates Billy Meier Claim
+Finally, proof has emerged that validates Eduard (Billy) Meier's claim that he was contacted by extraterrestrials from the Pleiades in the 1970s!
+The January 2002 issue of National Geographic magazine printed an interesting confirmation of the validity of Meier's claims. In that issue, I found a newsbrief which acknowledges that, just as Meier claimed
+back in the 1970s, Mt Everest is not the highest mountain on Earth.
+Meier, in his writings, stated the Pleiadians told him that Mt Chimborazo in Ecuador was higher than Mt
+Everest by 2,150 metres because the Earth is not perfectly round but, rather, bulges in the middlethus,
+measuring mountains from sea level is not an accurate way of assessing the true height of a mountain.
+_National Geographic states that scientists have now determined that the Earth bulges around the middle_
+because of the spinning action of the Earth's rotation, and thus, when measured from the center of the
+planet, Mt Chimborazo is actually higher than Mt Everest by 2,200 metres. Measured from sea level, Mt
+Everest is 2,540 metres higher than Mt Chimborazo. The newsbrief states that when measured from the
+centre of the Earth, Mt Chimborazo is 6,384,450 metres high and Mt Everest is 6,382,250 metres high.
+For a poor Swiss farmer who never graduated from high school to pick that particular mountain and declare it to be the highest mountain on Earth, higher than Mt Everest and to come within 50 metres of its
+height, measured from the centre of the planet, years before scientists recognized this fact is quite an extraordinary feat, I think anyone would have to agree.
+In 1997 I wrote Star Wisdom, a book about the essential spiritual message of the Pleiadians (based on
+Billy Meier's Semjase contact notes), which mentioned the Mt Chimborazo claim.
+In the February 2002 issue of the UK-based UFO Magazine (vol. 21, no. 3), my book was reviewed by
+Kate Miller, who stated:
+_... the question that became uppermost in my mind on reading Star Wisdom was whether a supposedly_
+_poor Swiss farmer (who never graduated from high school) could conjure up the kind of beautiful and_
+_inspiring words that are manifest in the book. Could he have possibly invented the seven basic principles_
+_of the Pleiadians that cover Oneness, Eternal Spiritual Evolution, Self-Responsibility, Love, Balance, Truth_
+_and Equality?_
+_I can't explain it [the accurate naming of Mt Chimborazo as the highest mountain on this planet] and I se-_
+_riously doubt whether sceptics would even venture to try, but please, be my guest! The same is true for any-_
+_one who feels it would be a worthwhile exercise to revisit Billy Meier and the teachings of the Pleiadians._
+_You just may find it a truly rewarding experience._
+Today there is a great public interest in the UFO phenomenon as well as in spirituality. Star Wisdom offers
+a rational, logical and eminently effective way of practising spirituality in one's daily life.
+The Pleiadians presented to Meier a clear and liberating message which, to me, is not only welcome but
+necessary in the chaotic realm of modern spirituality where the hardened dogmas of fundamentalism are
+competing with the allure of New Age “pop” philosophies. In light of the current events on our planet, I
+believe it is time for us to take seriously their wise directives in this regard.
+
+
+-----
+
+If you want to read Star Wisdom, please write to me, Gene Andrade, at PO Box 223743, Carmel, CA
+93922, USA, for information on how to order a copy of the book directly from me; alternatively, you can
+order it from Amazon.com.
+
+
+(Source: Gene Andrade press release, April 28, 2002, via email starwisdom@pacbell.net)
+
+
+## Die Klagesache
+**‹Raël› Claude Vorilhon gegen ‹Billy› Eduard Albert Meier (BEAM)**
+**oder: Eine Gegenüberstellung**
+Am 27. Juli 2002 hat die Öffentlichkeit aus einem ‹Tages-Anzeiger›-Artikel vom Prozess ‹Raël› Claude
+Vorilhon gegen ‹Billy› E. A. Meier erfahren. Einige Tage zuvor war im schweizerischen TV DRS in der Sendung DRS aktuell über den aussergewöhnlichen Fall berichtet worden. Gemäss dem Zeitungsartikel des
+Journalisten und Buchautors Hugo Stamm hatte ‹Billy› E. A. Meier (BEAM) bereits im Jahre 1997 in einem
+Bulletin-Artikel ‹Raël› Claude Vorilhon tüchtig die Leviten gelesen, ihn einen «Schwindler» und «irren Lügner» genannt. Der Fall wanderte zu Gunsten ‹Billy› Meiers vor das Winterthurer Bezirksgericht. Nach dem
+Rekurs seitens des raëlitischen Anwalts wurde das Verfahren ans Zürcher Obergericht weitergeleitet, das
+dann für Raël entschied. Letztendlich fällte das Bundesgericht ein Urteil (Zitat ‹Tages-Anzeiger›): Auch
+wenn die Lehren Raëls als «provokativ, inakzeptabel und verwerflich» betrachtet werden könnten, habe
+Meier kein Recht, Raël derart hart zu kritisieren. Soweit also zu den vergangenen Geschehen.
+
+Die obengenannte Auseinandersetzung der beiden ‹UFO-Titanen›, wie sie von Hugo Stamm genannt wurden, wirft natürlich die Frage nach den Hintergründen der beiden Kontrahenten auf.
+Sowohl der 56jährige Franzose Claude Vorilhon als auch der 66jährige Schweizer ‹Billy› Eduard
+A. Meier sagen von sich selbst, seit Mitte der 1970 er Jahre in Kontakt mit Ausserirdischen zu stehen. Vorilhon spricht von den ELOHIM, also angebliche Ausserirdische, die bereits in der ‹Bibel› genannt werden.
+Auf deren Heimatplaneten will er sich während eines Aufenthaltes unter anderem mit Jesus, Moses, Buddha, Mohammed und anderen getroffen sowie mit wunderschönen, nackten jungen und androiden Frauen, die ihn ‹umsorgten›, eine wollüstige Zeit verbracht haben. ‹Billy› Meier hingegen beschreibt seine
+ausserirdischen Freunde als Menschen aus Fleisch und Blut, die sogenannten Plejaren. Es sind Menschen,
+deren Heimatplanet in der Richtung der uns bekannten Plejadengestirne, jedoch rund 80 Lichtjahre weiter entfernt und einen Sekundenbruchteil dimensionsverschoben in der Zukunft liegt. Sowohl ‹Raël› Claude Vorilhon als auch ‹Billy› E. A. Meier liefern Beweise für ihre Aussagen, wobei sich jedoch in der Qualität ihrer Aussagen und in ihrer Beweisführung ganz offensichtlich Welten trennen.
+Der Schweizer ‹Billy› Eduard A. Meier gilt als öffentlichkeitsscheu und hält sich eher im Hintergrund. Er
+meidet den Medienrummel und führt auch für Interessierte und Befürworter keine grossangelegten Massenspektakel oder persönliche Vortragsreisen durch. Zudem hat es der von ihm im Jahre 1975 gegründete Verein FIGU niemals darauf ausgelegt, Heerscharen von ‹gläubigen› Mitgliedern zu werben.
+‹Raël› Claude Vorilhon hingegen heisst bereits jedermann auf seiner Internet-site gleich mit einem Anmeldeformular für eine Mitgliedschaft willkommen, bietet in Slowenien in einem grossen Sportzentrum
+verschiedene Seminare an, die entweder von Raël selbst oder von seinen sogenannten ‹Guides› geleitet
+werden. Ein sogenanntes Erweckungs-Seminar bietet angeblich Gelegenheit, die Technik der SINNLICHEN
+MEDITATION zu erlernen und eigene Fähigkeiten zu entwickeln, so z.B. die Harmonisierung des Gehirns,
+die Funktionsweisen des Körpers zu entdecken oder zu lernen, wie man jeden einzelnen Augenblick seiner
+Existenz durch Töne, Gerüche, Geschmacksrichtungen oder Liebkosungen geniessen kann (Quelle:
+www.rael.org).
+Die Lehren und Reden ‹Raëls› werden zudem auf Videos oder Tonträgern vertrieben. Nach eigenen
+schwankenden Angaben zählt die Bewegung rund 28000 Mitglieder in 85 Ländern.
+Von ‹Billy› Meier wird jedoch weder ein einziges Photo vertrieben, das ihn mit Mikrophon vor versammelter Menge beim ‹Predigen› zeigt, noch sind von ihm irgendwelche mit der ‹Geisteslehre› besproche
+
+-----
+
+nen Tonträger im Handel. Im Gegensatz zu ‹Raël› hat sich ‹Billy› auch noch nie in ‹Messias-Pose›, wallendem Gewand und zum Himmel gerichteter Hand darstellen lassen.
+Während die Raël-Bewegung Meditations-Seminare zur ‹Erkennung› und ‹Erweckung› der eigenen
+Sexualität und deren Genuss anbietet, lehrt ‹Billy› Meier in der ‹Geisteslehre› die Atem-Achtsamkeit, die
+schöpfungsgesetzmässigen und kosmischen Zusammenhänge sowie die Selbstverantwortung und Kontemplation. Während sich ‹Raël› Claude Vorilhon in einem Gebet seiner Anhänger/innen als den wahren Erlöser und Beauftragten der biblischen ELOHIM in der Neuzeit verehren lässt, bekämpft ‹Billy› E.A.
+Meier vehement jegliche Anhimmelei und Kulte um seine Person.
+Vorilhon stützt seine Behauptungen hauptsächlich auf seine zwei Bücher ‹Das Buch, das die Wahrheit
+sagt› (frz. 1974, dt. Weiden 1985) und ‹Die Ausserirdischen haben mich auf ihren Planeten mitgenommen› (frz. 1975, dt. Weiden 1990), das angeblich die Botschaft der fremden ELOHIM-Männer verkündet
+und in dem Vorilhon auch über seine irgendwie undurchsichtige Herkunft berichtet.
+Als Beweise seiner Aussagen bezieht sich Vorilhon lediglich auf die Aufzählung verschiedenster UFO-Darstellungen und UFO-Zeugenberichte der sogenannten Prä-Astronautik, aus dem Mittelalter und bis hin zu
+den bekannten Sichtungsberichten der Gegenwart. Als weitere Beweisvorlage werden von ihm die biblischen Überlieferungen des Hezekiel usw. angeführt.
+Im Gegensatz zu ‹Billy› E. A. Meier, liegen von Claude Vorilhon weder irgendwelche Ton-, Bild- oder Filmbeweise seiner angeblichen Ausserirdischen vor. Er beschränkt sich auf farbenprächtige Zeichnungen und
+Embleme. Im weiteren sind in seinem Fall auch keinerlei Zeugenberichte von Personen bekannt, die seine
+Sichtungen begleitet hätten oder irgendwelche diesbezüglichen Begegnungen bestätigen könnten. Seine
+angeblichen Kontakte werden nicht, wie bei ‹Billy› Meier, durch umfangreiche Gesprächsberichte mit den
+Ausserirdischen untermauert, noch sind irgendwelche andere nachvollziehbare und aussagekräftige
+Beweise vorhanden, die seine Aussagen untermauern könnten. Die Anhänger/innen ‹Raëls› haben sich
+einzig und allein auf dessen Äusserungen zu verlassen und können ihm daher lediglich einfach ungeprüft
+‹glauben› oder ‹blind› vertrauen.
+Die Beweisführung im Falle von ‹Billy› Meier reicht hingegen von über tausend Photos, Ton- und Filmaufnahmen der Strahlschiffe, Metallproben und Lügendetektoren-Tests bis zu den Aussagen von über hundert
+Zeuginnen und Zeugen, die seine Kontakte durch eigene Erlebnisse, persönliche Sichtungen und
+Begegnungen mit Ausserirdischen, diverse Photographien sowie aussergewöhnliche Vorkommnisse
+bestätigen können.
+Die Kontakte Claude Vorilhons begannen angeblich während eines Spazierganges im Vulkangebirge
+über Clermont-Ferrand im Jahr 1973. Vor seinen Augen soll eine fliegende Untertasse gelandet und dieser angeblich ein kleiner Mann mit Namen ‹Jahwe› entstiegen sein. Dieser beauftragte wiederum
+angeblich Vorilhon, den er ‹Raël› nannte (von ‹Israel›?), seine Botschaft als letzter Prophet, als Prophet
+der Religion der Religionen weiterzuverbreiten, was schliesslich aber auch nicht nachgewiesen werden
+kann.
+Am 28. Januar 1975 kam es in der Nähe von Hinwil, bei der ‹Frecht›, zum ersten offiziellen Kontakt des
+damals 38jährigen ‹Billy› E. A. Meier mit der ausserirdischen Frau Semjase, dies nachdem er bereits seit
+seinem 5. Lebensjahr immer wieder mit Ausserirdischen rege Kontakte pflegte.
+Interessanterweise stürzte sich die ufologische Welt jedoch mit ihren Beweisforderungen nicht etwa auf die
+sehr seltsame und wirklichkeitsfremde Botschaft des ‹Raël› Claude Vorilhon sowie auf viele andere, die
+behaupten, Kontakte mit Ausserirdischen in persönlicher und/oder telepathischer Form zu haben, wofür
+auch sie keinerlei Beweise vorlegen können, sondern vielmehr auf ‹Billy› E. A. Meier. Vorilhon arbeitete
+seit jeher mit dem modifizierten christlichen ‹Glauben› und begann seine Anhänger um sich zu scharen.
+Die ‹Gläubigkeit› an seine ‹UFO-Religion› ist ganz offensichtlich bis heute der Grund dafür, warum er
+noch niemals offiziell dazu aufgefordert wurde, ‹sichtbare› oder ‹handgreifliche› Beweise seiner angeblichen Kontakte zu ausserirdischen Menschen vorzulegen. Selbst für die Anfrage der Raëlisten bezüglich
+eines Botschaftsgebäudes der Ausserirdischen beim schweizerischen Bundesrat, konnten ausser ‹Glaubensdinge› keinerlei klare Beweise für die Existenz der angeblichen Ausserirdischen vorgelegt werden.
+
+
+-----
+
+Ganz im Gegenteil zu ‹Billy› E. A. Meier. Selbst Wissenschaftler der Firma IBM sowie Mitarbeiter/innen
+der NASA und der USA-CIA usw. haben ihm auf die Finger geschaut, ihn während Wochen, Monaten
+und Jahren beobachtet und seine Aktivitäten durchleuchtet. Im Falle von ‹Raël› Claude Vorilhon werden
+jedoch Tests oder Prüfungsverfahren bezüglich seiner angeblichen Kontakte mit keiner einzigen Silbe
+erwähnt. Wie bereits erklärt, hat Vorilhon seine Theorie lediglich in zwei Büchern niedergelegt,
+abgesehen von seinem neueren Buch über die ‹sinnliche Meditation› sowie sein kleines Werk zum Thema
+‹Klonieren›.
+Dem gegenüber sind von ‹Billy› Meier und der FIGU (Freie Interessengemeinschaft für Grenz- und Geisteswissenschaften und Ufologie-Studien) mittlerweile rund 20000 Seiten Schriften-Material erhältlich. So
+sind Tausende Seiten Kontaktberichte, die Geisteslehre, eine respektable Zahl Broschüren und Kleinschriften, periodische Schriften sowie mittlerweile 26 Bücher erschienen, die unter ‹Billys› Feder entstanden sind,
+wobei sich bereits zwei weitere kurz vor der Drucklegung befinden. Nebst dem Material von ‹Billy› sind
+zusätzlich umfangreiche Schriften der Mitglieder des Vereins FIGU veröffentlicht worden, so u.a. zwei Bücher von Guido Moosbrugger, wovon eines Billys Kontakte und Erlebnisse im Zusammenhang mit Zeugen
+behandelt, und ein weiteres Erklärungen, Daten und Fakten des Universums gemäss Billys Erklärungen liefert. Im weiteren schrieb der US-Autor Gary Kinder ebenfalls ein Buch über Billy und dessen Geschichte
+usw., und zwar gemäss gemachten Abklärungen des «Billy Meier» Case. Während sich ‹Raël› Claude
+Vorilhon und seine ‹Raëliten› zu einer klar definierbaren und missionierenden UFO-Sekte der ‹UFO-Gläubigkeit› entwickelt haben, musste ‹Billy› Meier selbst wissenschaftliche Untersuchungen über sich und seine
+Beweismaterialien ergehen lassen, denen er ausnahmslos und mehrmals standgehalten hat. ‹Billy› E. A.
+Meier hat mit seinen UFO-Photos und der klaren Beweislage die weltweit grösste UFO-Kontroverse ausgelöst.
+Jegliche UFO-Kulte, die Anbetung oder eine Verehrung der Ausserirdischen als vermeintliche ‹Götter›
+oder ‹Retter der Erde› werden in der FIGU aufs strengste verpönt und bekämpft. Demgegenüber werden
+die ‹vom Himmel Gekommenen› ELOHIM der ‹Raël-Bewegung› als Retter und Heilsbringer sowie als die
+Erschaffer der irdischen Menschheit verehrt. Während ‹Raël› Claude Vorilhon die Sinnlichkeit der Sexualität zum obersten Gebot erklärt, die biblischen Lehren als Botschaften der angeblichen Ausserirdischen
+verkündet und den Motor-Rennsport als deren Vorliebe ‹outet›, kämpft ‹Billy› Meier gegen die Umweltverschmutzung, gegen die Ausbeutung des Menschen, gegen die Sittenlosigkeit, Umweltzerstörung, Folter und Todesstrafe sowie gegen die Kinder- und Frauenmisshandlung und den religiösen Sektierismus.
+Und er kämpft für die Gleichberechtigung und Gleichstellung der Frauen in allen Rechten gegenüber dem
+Mann, und er kämpft gegen die Überbevölkerung, gegen Intrigen und Verleumdungen seiner Antagonisten und hat bis zum Jahre 2002 mittlerweile 19 feige und hinterhältige Mordanschläge überlebt. Billy
+Meier lehrt aber auch, dass der Mensch für alles und selbst die Verantwortung zu tragen und also für sein
+Auf und Ab seines Lebens sowie für sein Glück und sein Wohl selbst zu sorgen hat und folglich in jeder
+Beziehung selbst dafür verantwortlich zeichnet, ob sein Leben von Erfolg gekrönt ist oder durch miese
+Gedanken, Gefühle und Handlungen zur Hölle wird, oder ob das Leben durch einen religiösen Sektierismus in die Irre und Abhängigkeit eines Gurus führt, in einen psychischen Zusammenbruch oder schliesslich in den Selbstmord.
+Eine Unterscheidung und Gegenüberstellung der beiden Fälle deutet ganz offensichtlich darauf hin, dass
+‹Billy› E. A. Meier mit seinen Kontakten zu den ausserirdischen Menschen der plejarischen Föderation und
+mit seinen diesbezüglichen klaren Beweisen gewissen Kreisen das Fürchten lehrt. ‹Raël› Claude Vorilhon
+scheint jedoch weder für die ufologische Wissenschaft noch für Geheimdienstkräfte von besonderem Interesse zu sein, sind doch keine schwerwiegenden Bedrohungen oder Angriffe gegen ihn bekannt geworden. Ganz offensichtlich unterscheidet sich die Wahrheit von der Unwahrheit auch dadurch, dass die
+Wahrheit mit allen Mitteln bekämpft und nicht gerne gehört werden will, während die Unwahrheit zweifelhafte Siege feiert.
+Hans Georg Lanzendorfer
+
+
+-----
+
+## Leserfragen:
+
+ Frage
+Ich habe von einem ehemaligen Freund, der an einem Nierenversagen gestorben ist und Kontakte mit
+unseren ausserirdischen Brüdern und Schwestern hatte, gehört, dass 80 Prozent unserer Alpen in der
+Schweiz hohl sind und dort hochmoderne Laboratorien eingebaut worden sind, mit denen die Ausserirdischen dort wissenschaftliche Experimente und Versuche durchführen. – Im weiteren habe ich von einem
+Freund gehört, der im eidgenössischen Militär-Flugplatz in Dübendorf Offizier ist, er hätte dort in den
+unterirdischen Hangars ausserirdische Menschen mit grossen Köpfen und Augen gesehen, die mit dem
+schweizerischen Militär mitarbeiten. Sind diese zwei Behauptungen wahr?
+David Spira/Schweiz
+
+## Antwort
+Ehe ich auf Ihre zwei Fragen eingehe, möchte ich Sie darum bitten, bei weiteren Fragen an mich die normale deutsche Schreibweise der Gross- und Kleinschreibung zu benutzen, da es für mich äusserst
+umständlich und ungewohnt ist, Ihre gesamthafte Gross-Schreibweise, und dazu noch in dem sehr engen
+Buchstabenabstand, zu entziffern. Ihr diesbezügliches Entgegenkommen würde mir die Arbeit sehr
+erleichtern.
+Hinsichtlich Ihrer Fragen ist folgendes zu sagen: Es scheint mir so, als ob Sie mich ‹auf die Rolle› schieben
+und sich also einen Spass mit mir erlauben wollen. Sollten die Fragen jedoch wirklich ernst gemeint sein,
+dann sind wohl Sie derjenige, mit dem man sich einen Spass erlaubte oder den man mutwillig, böswillig
+und vorsätzlich nach Strich und Faden für blöd verkauft hat. Hat man Ihnen nämlich tatsächlich die Mär
+der beiden Behauptungen aufgebunden, dann sind Sie leider einem Schwindel oder einer Scharlatanerie
+aufgesessen, so Sie also sozusagen ‹geleimt› wurden. Effectiv ist nämlich weder an der einen noch an der
+andern Behauptung ein Faden Wahrheit, denn das Ganze stellt einen absoluten Unsinn und Schwachsinn
+dar. Weder sind unsere Alpen in der Schweiz hohl, noch leben in ihnen ebensowenig Ausserirdische, wie
+auch nicht in den militärischen Flugplatzanlagen in Dübendorf. Es gibt dort weder Ausserirdische mit
+grossen Köpfen und grossen Augen, noch arbeiten solche mit unserer Schweizerarmee zusammen.
+Bezüglich Ihres verstorbenen Freundes, der angeblich mit ‹unseren ausserirdischen Brüdern und Schwestern› Kontakte hatte, ist ebenfalls zu sagen, dass es sich bei dieser Behauptung sicherlich um einen üblen
+Scherz gegenüber Ihnen handelte, auf den Sie offenbar hereingefallen sind – immer vorausgesetzt, die
+Behauptung wurde wirklich an Sie herangetragen.
+Meinerseits möchte ich Ihnen empfehlen, sich etwas mehr auf die Seite der effectiven Realität zu stellen
+und sich selbst dies und das gründlicher zu überlegen, um dadurch selbst die wirkliche Wahrheit zu
+finden. So schwer ist das nämlich nicht, und ausserdem lernt man dadurch auch zu erkennen, ob man
+angelogen, beschwindelt oder einfach zum Narren gehalten wird oder nicht.
+Billy
+
+## Frage
+Folgende Frage möchten wir in englischer Sprache in einem Bulletin via die Web site von der Freien Interessengemeinschaft beantwortet haben: Warum wird Sheik Muhammed Abdullah alias ‹Phantom› und
+‹Billy› dauernd von sogenannten UFO-Fachleuten sowie von Leuten, die Sekten bekämpfen, angegriffen?
+Sheik Muhammed Abdullah, wir haben ihn schon vor 37 Jahren in Bagdad kennengelernt und zusammen
+mit ihm ein besonderes Erlebnis mit einer sehr nahen UFO-Beobachtung gehabt, ist ein ehrlicher Mensch
+und bestimmt kein Sektierer. Daher verstehen wir nicht, weshalb er dauernd angegriffen und des Betruges
+und des Sektierismus bezichtigt wird, wie wir aus dem Internet entnehmen. Kann uns vielleicht Sheik
+Muhammed Abdullah selbst eine Antwort darauf geben?
+Ibrahim Nasrallah und Suleiman Habasch/Irak
+
+
+-----
+
+## Antwort
+Erst möchte ich einmal sagen, dass es mir seltsam erscheint, dass mich immer wieder alte Bekannte und
+Freunde aus aller Welt durch das Internet finden, mich besuchen, mir telephonieren oder mich per Fax
+usw. anschreiben. Irgendwie holt mich schon seit geraumer Zeit meine Vergangenheit ein. Natürlich freue
+ich mich sehr darüber, und es ist mir auch eine ganz besondere Ehre, dass man mich nicht vergessen hat
+und an mich denkt, obwohl seit der Zeit der früheren Bekanntschaft und der zusammen erlebten Geschehnisse usw. bereits Jahrzehnte vergangen sind. Dafür, liebe Freunde Ibrahim und Suleiman, möchte
+ich euch an dieser Stelle ebenso herzlich meinen tiefen Dank aussprechen und euch meine lieben Grüsse
+und Wünsche entgegenbringen, wie auch allen anderen Bekannten, Freunden und Freundinnen aus den
+verschiedensten Ländern Europas, des Orients, Nordafrikas, des mittleren und nahen Ostens, Amerikas
+und Kanadas usw. Leider ist es mir heute aus gesundheitlichen Gründen versagt, nochmals grosse Reisen
+in ferne Länder unternehmen zu können, so wir uns wohl nicht wiedersehen werden, wenn Ihr nicht selbst
+den Weg hierherfinden könnt. Nichtsdestoweniger jedoch werde ich Euch sowie alle andern Bekannten,
+Freunde und Freundinnen in steter und guter Erinnerung behalten, denn Ihr sowie alle andern ward und
+seid ein Teil meines Lebens.
+Nun aber zur Beantwortung eurer Frage: Das Prinzip ist einfach das: «Was nicht sein darf, darf nicht
+sein», resp.: «Was nicht sein darf, darf nicht wahr sein und muss mit allen Mitteln bekämpft, unmöglich
+gemacht und bestritten werden». Das trifft auch zu in bezug meiner Kontakte zu den Plejaren und hinsichtlich der Geisteslehre und allen Schriften und Büchern, die ich verbreite. Daher mischen sich auch Leute
+in meine Arbeit und Sache, die Sekten bekämpfen, um mich des Sektierismus zu beschimpfen, wobei diese
+mich Beschimpfenden aber weder mich selbst noch meine Arbeit kennen. Wie es bei Sekten-Bekämpfern
+üblich ist, haben diese eine eingefleischte Denkrichtung und Meinung, die sie stur nur in die ihnen eigene
+Ansichtsrichtung gehen lässt und die keinen Platz für wirkliche Abklärung der Dinge und Tatsachen zulässt,
+wodurch deren Vernunft nur gerade derart weit reicht, alles in einen Topf zu werfen und die effective
+Wahrheit ausser acht zu lassen. Die Wahrheit ist also dabei nicht gefragt, sondern nur die eigene, eingefleischte und zur unkontrollierbaren Gewohnheit gewordene einseitige und alles kritisierende selbstherrliche, kompromisslose und falsche Meinung. Gleichermassen trifft das auch zu auf die sogenannten
+‹Fachleute› der UFOlogie, die alles besser wissen wollen, alles Falsche, Getürkte, Betrügerische, Schwindlerische, Erlogene und Halluzinatorische als echt und als Wahrheit bezeichnen, jedoch das Wirkliche,
+Wahrheitliche und Echte als Lüge, Schwindel und Betrug abtun und gar mit verleumderischen
+Behauptungen und Darstellungen jene betrügen und belügen, welche ihnen unbedarft Glauben schenken.
+Leider kann man sich aber gegen diese miesen Machenschaften nicht wehren, denn da die effective Wahrheit verpönt ist, weil sie eben wehtut und das gesamte Weltbild ins Wanken bringen könnte, erhält nicht
+die Wahrheit das Recht zu ihrer Verbreitung, sondern die Falschheiten, Lügen, Betrügereien, Verleumdungen und Angriffe sowie gerichtliche strafende Massnahmen gegen jene ehrlichen Menschen, die sich
+profitlos darum bemühen, die wahrheitliche Wahrheit zu verkünden.
+Sheik Muhammed Abdullah /‹Billy›
+
+## Question
+We would like to have the following question answered in English in a Bulletin by way of the Free Community of Interest’s (FIGU) web-site: Why is Sheik Muhammed Abdullah alias “Phantom” and ‘Billy’ constantly attacked by so-called UFO experts as well as by people who fight against sects? Sheik Muhammed
+Abdullah, whom we had already got to know 37 years ago in Baghdad and with whom we had a very
+close UFO observation, is a sincere human being and certainly no sectarian. Therefore we don’t understand why he is constantly attacked and accused of fraud and sectarianism, as we can gather from the Internet. Could perhaps Sheik Muhammed Abdullah himself give an answer on this?
+Ibrahim Nasrallah and Suleiman Habasch, Iraq
+
+
+-----
+
+## Answer
+First of all I want to say that it appears strange to me that again and again old acquaintances and friends
+from all over the world find me through the Internet, visit me, telephone me or write to me by fax etc. For
+quite some time my past somehow gets actual again. Of course I am pleased about it, and also it is a special honor to me that I was not forgotten and one remembers me, although decades have passed since
+that early acquaintance and the events etc. that we experienced together. For this, dear friends Ibrahim
+and Suleiman, I would like to express my deep thanks and present to you my dear regards and wishes,
+and also to all other acquaintances, male and female friends from the diverse countries of Europe, the Orient, North Africa, Middle and Near East, America and Canada, etc. Unfortunately, for reasons of health
+I am denied to undertake great travels to far-away countries again. That’s why we will not meet again except if you could find your way to me here. Nevertheless I will have pleasant memories of you, as well as
+of all other acquaintances, male and female friends, because you, as well as all the other ones, have been,
+and still are, a part of my life.
+But now to the answer to your question:
+It is simply this principle: “What may not be, may not exist” or “What may not be, may not be true and
+must be fought with all means, made looking ridiculous, and (must be) disputed,” respectively. The same
+holds true regarding my contacts with the Plejarans and with regard to the spiritual teachings and all writings and books that I disseminate. Therefore people who fight against sects interfere in my work and affairs, in order to abuse me of sectarianism, whereby those abusing persons neither know me nor my work.
+As it is usual with persons who fight against sects, they have their ingrained way of thinking and opinion
+which permits them to obstinately go into one direction of view only, and which does not allow any space
+for a real investigation of the matter or facts. Because of this their reason reaches only as far as to lump
+everything together and to disregard the effective truth. Thus, not the truth is sought-after, but only one’s
+own ingrained, one-sided, high-handed, uncompromising and false opinion which has become an uncontrollable habit and which criticizes everything. The same holds true for the so-called ufology “experts”
+who want to know everything better, who call all that what is false, faked, fraudulent, swindling, made up
+and hallucinating as genuine and the truth, but who dismiss that which is real, truthful and genuine as lie,
+swindle and fraud, and who even deceive and belie all those with slandering claims and descriptions who
+naïvely believe in them. Unfortunately one cannot defend oneself against those rotten machinations. Since
+the effective truth is scorned—because it hurts and could bring one’s conception of the world to totter—it
+is not truth that receives the right of its dissemination, but falseness, lies, fraud, slandering and attacks as
+well as legal and punishing actions against those sincere human beings who, without any profit, trouble
+themselves to proclaim the true truth.
+Sheik Muhammed Abdullah / ‘Billy’
+Ins Englische übersetzt von Christian Frehner
+
+## Frage
+Meine Schwester (sie lebt in San Francisco, USA) hat Hepatitis C Viele ihrer Bekannten haben diese
+Krankheit.
+Ebenso viele ihrer Bekannten haben sowohl Hepatitis C. als auch AIDS. Meine Schwester bagatellisiert die
+Ansteckungsgefahr bezüglich dieser beiden Erkrankungen und hält mich hierbei für übervorsichtig. Dabei
+ist es ganz sicher nicht so, dass ich Angst habe, ich habe lediglich einen gehörigen Respekt vor diesen
+Krankheiten. Ich habe nun die Erklärungen bezüglich AIDS in ‹Prophetien und Voraussagen› gelesen und
+fand dies sehr informativ. Haben Sie auch so gehaltvolle Informationen betreffend Hepatitis C? Denn hier
+herrscht noch ein ziemlicher Aufklärungsbedarf, was die Ansteckungswege anbelangt.
+Barbara Lotz/Deutschland
+
+
+-----
+
+## Antwort
+Leider werden in der Regel alle ansteckenden Krankheiten von davon befallenen Personen bagatellisiert,
+weil die Krankheiten für sie zur Selbstverständlichkeit werden, wie das sehr krass in Afrika an jenen Orten
+zum Ausdruck kommt, wo rund 80-85 Prozent der Bevölkerung von AIDS befallen sind (engl. aquired-immune-defiency-syndrome) [wurde gemäss plejarischen Angaben bereits in den frühen Fünfzigerjahren
+des letzten Jahrhunderts von Affen, den sogenannte grünen Meerkatzen, durch Sodomie-Handlungen
+usw. auf den Menschen übertragen und ist bisher unheilbar]). Es handelt sich dabei um eine Krankheit,
+die äusserst ansteckend ist und sowohl durch sexuellen Kontakt wie auch durch Bluttransfusionen und
+durch sonstigen Blutkontakt übertragen werden kann. Die Plejaren sprechen gar davon, dass AIDS in gewissen Fällen auch durch blutsaugende Insekten und Blutegel sowie durch Sodomie übertragen werden
+kann, was allerdings von den irdischen Medizinern und Wissenschaftlern bis heute bestritten wird.
+Menschen, die mit ansteckenden Krankheiten infiziert sind, verharmlosen in der Regel alles und
+verschweigen gegenüber andern oft die Tatsache ihrer Erkrankung, wodurch auch oft körperliche resp.
+sexuelle Kontakte aufgenommen und gesunde Menschen dadurch angesteckt werden. Auf diese Art werden sogar in unverantwortlicher Weise Nachkommen gezeugt, wodurch sich die Krankheiten manchmal
+auch dadurch noch mehr ausbreiten, was aber unverantwortlicherweise in gewissen Fällen von den
+Medizinern und Wissenschaftlern bestritten wird. Und leider sind gegen gewisse Arten solcher Krankheiten, wie im besonderen des AIDS, keine Kräuter gewachsen, folglich letztendlich nur übrig bleibt, den Tod
+in Kauf zu nehmen, weil es einfach noch keine Medikamente gibt, durch die eine solche Krankheit geheilt
+werden könnte.
+Doch um nun konkret in bezug auf Hepatitis C eine Antwort zu geben: Meinerseits bin ich kein gelernter
+Mediziner, folglich ich nur das erklären kann, was mir hinsichtlich dieser Krankheit geläufig ist: Hepatitis
+C entsteht durch das Hepatitis-C-Virus, das abgekürzt HCV oder HC-Virus genannt wird. Bei dieser Krankheit handelt es sich um die häufigste Form der sogenannten Posttransfusionshepatitis, die auf der ganzen
+Welt ca. 90 Prozent Häufigkeit aller Hepatitisformen umfasst. Die Ansteckung erfolgt im Gegensatz zu
+AIDS selten durch sexuellen Kontakt, sondern meist parenteral, also unter Umgehung des Verdauungsweges, wie z.B. durch subkutane (engl. subcutaneous = unter der/die Haut), intramuskuläre oder intravenöse Injektion oder durch Infusion, z.B. parenterale Ernährung. Risikogruppen für diese ansteckende
+Krankheit sind vor allem Menschen, die dem Drogenkonsum frönen. Besonders gefährdet sind aber auch
+Bluttransfusions-Empfänger sowie Organtransplantations-Empfänger. Die Inkubationszeit beträgt 2-26
+Wochen, und eine Immunisierung ist absolut ausgeschlossen.
+Billy
+
+## Frage
+Wenn männliche Lebensformen positiv und weibliche negativ sind, betrifft dies nur den materiellen Körper oder bezieht sich das auch auf den Geist? Das heisst, gibt es positiven bzw. negativen Geist, oder ist
+er beides bzw. was sonst?
+Barbara Lotz/Deutschland
+
+## Antwort
+Das Negativ und Positiv, wie der Mensch diese Kräfte kennt, bezieht sich einzig und allein auf den materiellen Körper, denn der Geist selbst ist immateriell, absolut neutral, ausgeglichen und harmonisch, folglich er keinen negativen oder positiven Formen oder Normen materieller Natur eingeordnet ist im Sinne
+des Negativ und Positiv, wie diese beiden Kräfte dem Menschen bekannt sind. In schöpferisch-energetischem Sinne jedoch ist jeder Geist resp. jede Geistform mit einer schöpferischen Negativ-Energie und
+Positiv-Energie ausgestattet, und zwar zu je 100 Prozent und in völliger neutraler Ausgeglichenheit und
+Harmonie. Diese beiden Energieformen sind aber in keiner Weise in Zusammenhang zu bringen mit den
+
+
+-----
+
+materiellen oder halbmateriellen Kräften Negativ und Positiv, die durch den Menschen und durch die
+Natur genutzt werden und die in die eine oder andere Richtung verstärkt oder vernachlässigt werden oder
+gar einer Ausartung anheimfallen können, was bei den schöpferischen Formen Negativ und Positiv niemals der Fall sein kann, weil sie zusammen stets eine ausgeglichene und harmonische Einheit ergeben,
+und zwar in einer absoluten Neutralform.
+Billy
+
+## Frage
+Ist Astrologie Humbug, oder handelt es sich hierbei um eine ernstzunehmende Sache (ich rede hier nicht
+von Illustrierten-Horoskopen; dass diese nicht ernstzunehmen sind und vor allem zu verallgemeinernd, ist
+mir klar)?
+Barbara Lotz/Deutschland
+
+## Antwort
+Horoskope, die über Charakter-Beschreibungen resp. Eigenschaften-Beschreibungen der Menschen hinausgehen, können in der Regel tatsächlich ebenso als Humbug gewertet werden wie auch das Handlesen,
+das Kaffeesatzlesen und das Kartenlesen resp. die Kartenschlägerei usw. Den Tierkreiszeichen, wie sie irrtümlich genannt werden und die eigentlich die richtige Bezeichnung Sternzeichen tragen, sind bestimmte
+Charakter-Eigenschaften zugeordnet, auf die man sich in der Regel verlassen kann. Was jedoch darüber
+hinausgeht, wie z.B. in bezug von Schicksals-Beschreibungen, Lebensweg-Beschreibungen, Partnerschafts-Beschreibungen, Anzahl der Nachkommen, Reichsein oder Armut, Glück oder Unglück, Gesundheit, Krankheit oder Unfall usw. usf., beruht auf absolutem Unsinn und auf reiner Spekulation. Wie angebliche ‹Hexen› und ‹Hexer› oder ‹Magier/innen›, ‹Trance-Medien› und ‹Hellseher› ihr zweifelhaftes
+und unehrliches Gewerbe betreiben, so gilt in der Regel das gleiche auch für die Ersteller/innen der
+Horoskope, wenn sie Angaben in vorgenannter Form machen, die über die Charakterkunde und deren
+direkte und indirekte Zusammenhänge hinausgehen.
+Die Betreiber/innen all der vorgenannten Sparten – von Horoskop-Erstellern bis Hexen, Magiern, Hellseher/innen und Trance-Medien usw. – laufen entweder auf einer Linie dessen, dass sie, bewusst oder
+unbewusst durch Einbildung oft krankhafter Form, Mauschelei betreiben und die Mitmenschen nach Strich
+und Faden übers Ohr hauen, wie man so schön und gelinde sagt. Und dass dabei für die Mauschelei den
+gläubigen Kunden noch horrende Honorare abgeknöpft werden, ist ja allgemein bekannt. Davon lassen
+sich aber Dumme, Naive und Wahngläubige nicht abschrecken. Vielfach ist die Regel dabei noch die,
+dass jene, welche solcherart Gewerbe betreiben, nicht gerade die intelligentesten Menschen, jedoch mit
+einer gehörigen Menge Bauernschläue und psychologischer Trickserei sowie mit einer guten Menschenkenntnis ausgestattet sind, wodurch sie genau wissen, welche Menschen sie in welchem Masse bemauscheln und welchen sie also die grossen und welchen sie die kleinen Bären ‹aufbinden› und wieviel Moneten sie ihnen dafür abknöpfen können. Alle, die diesbezüglich Mauschelei betreiben, verstehen es in der
+Regel ausgezeichnet, ihre ‹Kunden› resp. jene, welche bei ihnen Rat und Hilfe suchen, in einer Form auszuhorchen und dadurch dann Kombinationen herzustellen, dass diese nichts davon bemerken, wodurch
+sie dann sozusagen «aus allen Wolken fallen», wenn ihnen durch die angeblich ‹magisch Begabten›
+bestimmte Sachen auf den Kopf zugesagt werden. Viele fühlen sich aber auch ‹gebauchpinselt›, wenn
+ihnen Werke, Taten und Eigenschaften usw. zugesagt werden, die sie sich in Selbstüberschätzung und
+Selbstlob einbilden, nur weil es ihnen gesagt wird. Und weil die Hilfe- und Ratsuchenden den angeblich
+‹Übersinnlichen› hörig sind, können sie durch ihren Glauben auch daraufhinarbeiten, dass sich düstere
+Behauptungen tatsächlich bewahrheiten, weil bewusst oder unbewusst alles dazu getan wird, dass sich
+ein vorausgesagtes Unglück, eine Krankheit oder ein Streit usw. dann tatsächlich auch ereignet. Das
+wiederum gibt den betroffenen Gläubigen und Hörigen neuen Auftrieb, dem ganzen Unsinn erst recht
+
+
+-----
+
+Glauben zu schenken und anzuhängen, wodurch sich der Kreis schliesst und der Glaube an das Irrationale neuen Nährboden erhält und die Mauscheleien der ‹Übersinnlichen› immer mehr dumme, gläubige
+und naive Anhänger gewinnen, weil jene dann fleissig unentgeltlich dafür Propaganda machen. Dies
+darum, weil sie glauben, Tatsächlichkeiten erfahren und erlebt zu haben, die wahrheitlich jedoch nur
+Schein, Mauschelei, Lug und Trug sind.
+Billy
+
+## Frage
+Angenommen ein Mitglied der FIGU würde gefragt, warum es von der Wiedergeburt überzeugt sei, so
+würde die Antwort doch bestimmt lauten, dass die Belange um die Reinkarnation ganz einfach der Wahrheit entsprächen. An dieser Stelle würde der Fragesteller doch den Vorwurf machen, dass es sich auch
+hierbei nur um einen ‹Glauben› handle. Wie könnte man den Fragesteller davon überzeugen, dass dies
+eben nicht zutrifft? Wie kann man also, ohne sich auf Billys Geisteslehre zu berufen oder sich auf Angaben von den Plejadiern/Plejaren zu stützen, durch logische Argumente schlussfolgern, dass es eine
+Wiedergeburt des menschlichen Geistes geben muss?
+N.L./Deutschland
+
+## Antwort
+In erster Linie muss gesagt sein, dass es völlig falsch ist, einen Menschen von etwas zu überzeugen oder
+ihn überzeugen zu wollen. Überzeugen bedeutet nämlich, dass einem Menschen eine andere Ansicht
+resp. Meinung gegenüber der seinen ‹eingehämmert› wird oder werden soll. Man zeugt also über dessen
+eigene Ansicht/Meinung eine andere Ansicht resp. Meinung, folglich er nicht mehr das annimmt und vertritt, was seinen eigenen Gedanken und Gefühlen und somit also auch nicht mehr seiner eigens erschaffenen Ansicht/Meinung entspricht. Jemanden von etwas zu überzeugen bedeutet also, dass dessen eigenes Ansichts- und Gedankengut gewaltsam mit etwas anderem überdeckt, unterdrückt oder verändert
+wird, folglich er also nicht mehr Herr seiner eigenen, sondern einer fremden Ansicht/Meinung ist.
+Doch wenn nun ein FIGU-Mitglied gefragt wird, warum es von der Wiedergeburt des Geistes (und nur
+der, aber nicht die Persönlichkeit ist der Reinkarnation fähig) überzeugt sei, dann wird es mit Bestimmtheit
+nicht antworten, dass das einfach der Wahrheit entspreche. Auch der Vorwurf, dass alles nur ein Glaube
+sei, kann demgemäss also nicht Fuss fassen. Und das darum, weil die Antwort lauten würde, dass die
+Wahrheit in bezug der Reinkarnation des Geistes resp. der Geistform einzig und allein in sich selbst
+gefunden werden kann, und zwar auch nur dadurch, dass man die schöpferischen Gesetze und Gebote,
+die Lehre des Geistes, die Lehre des Lebens und die Lehre der Natur usw. gründlich studiert und dadurch
+die Erkenntnis und das Wissen und damit die Weisheit gewinnt, dass die Wiedergeburt des Geistes resp.
+der Geistform eine unumstössliche Tatsache ist, die nicht von der Hand gewiesen werden kann. Und in dieser Form der selbsterlangten Erkenntnis und des Schaffens von eigenem Wissen und eigener Weisheit
+kann auch nicht von einem Glauben, von einer Überzeugung oder von einer Selbstüberzeugung die Rede
+sein. Das Lernen ist jedoch langwierig, mühsam, mit vielen Hochs und Tiefs verbunden und tatsächlich eine
+niemals endende Lebensaufgabe.
+Es gibt ungeheuer viele Menschen auf unserer schönen Welt, die nach der wirklichen Wahrheit suchen,
+doch das Gros findet diese leider nicht, sondern verfällt irgendwelchen Sekten-Gurus, die mit fadenscheinigen Wahrheiten ihre Gläubigen fangen, ausnutzen, ausbeuten und betrügen. Und weil die Menschen,
+die nach der effectiven Wahrheit suchen, diese nicht kennen und diese andererseits auch nicht leicht zu
+finden, sondern mit viel Anstrengung, Mühe und Lernarbeit sowie mit harter und tiefer Erkenntnis verbunden ist, die recht schmerzhaft auf das Ego und auf die Gedanken und Gefühle wirkt, wird ständig nach
+etwas gesucht, das keine schmerzhaften Erkenntnisse bringt und keines Lernens, sondern nur eines Glaubens an eine Heilslehre, an einen Gott oder an einen Sekten-Guru bedarf, an einen Priester oder an den
+
+
+-----
+
+Papst, der sich als Gottes Stellvertreter auf Erden wähnt, jedoch den Menschen nur einen zwangsmässigen, psychologisch und suggestiv ausgefeilten Glauben aufzwingt und ebensowenig wahre Liebe, Wissen, Frieden, Freiheit, Ausgeglichenheit, Harmonie, Freude, Glück und Weisheit zu bringen vermag, wie
+auch nicht all die Sekten-Häuptlinge und sonstigen Fritzen usw., die nur blinden Glauben fordern, des
+Menschen Selbstverantwortung zerstören und ein Hinterfragen aller Dinge und ein Lernen der effectiven
+Wahrheit ebenso verbieten wie auch das Sich-Abwenden von ihrer Irrlehre. Eine Tatsache, durch die
+gewährleistet werden soll, dass der Kreis der Gläubigen und Hörigen erhalten bleibt.
+Billy
+
+## Frage
+Was halten eigentlich die Plejaren und Billy von den Kriegshandlungen der Amerikaner in Afghanistan
+und von all den kriegerischen Einmischungen, die seit Jahrzehnten durch die Amerikaner in aller Welt
+immer wieder erfolgen, und gleichermassen gilt die Frage auch für die kriegerischen Machenschaften der
+Israelis und der Palästineser gegeneinander sowie in bezug auf Krieg und Terrorismus überhaupt?
+Max Wiesendanger/Schweiz
+
+## Antwort
+Sowohl die Plejaren wie auch ich, Billy, sind in bezug auf Krieg und Terrorismus gleicher Meinung. Und
+was Amerika in Afghanistan sowie Israel und Palästina gegeneinander betreiben, kommt nichts anderem
+gleich als blankem Terror. Weder die eine noch die andere Seite in Israel und Palästina sowie auch nicht
+Amerika können mit ihrem mörderischen und terroristischen Tun toleriert oder gar akzeptiert werden, denn
+allseitig wird gemordet und werden unschuldige Menschenleben vernichtet und Rache geübt. Alles was so
+im Namen der Freiheit, der Sicherheit des Bürgers und des Staates sowie im Namen der Menschlichkeit,
+des Friedens und der Freiheit getan wird, bedeutet nichts anderes als böse Rachgier und Vergeltungssucht
+sowie Gier nach Macht, Land und Ressourcen, wobei alle unmenschlichen, mörderischen, terroristischen
+und sonstigen schmutzigen Mittel gerade noch gut genug sind, um das Ziel zu erreichen, und zwar ganz
+egal, wieviele Menschenleben es auch kostet. Darauf haben weder Amerika, Nazi-Deutschland, Russland,
+China, Japan, Israel, Palästina, Iran, Irak, Syrien, Frankreich, Spanien, England, Irland, Italien, Arabien,
+Pakistan, Indien, Korea und noch viele sonstige kriegführende Staaten und Mächtige aller Zeiten, die in
+ihrer Zahl kaum aufzuführen sind, jemals Rücksicht genommen; und das tun sie auch heute genausowenig, wie auch nicht Israel und Palästina. Alle handeln und handelten sie menschenunwürdig, menschenverachtend, lebensverachtend, selbstherrlich, selbstgerecht und vor allem in blankem Terror. Eine Tatsache,
+die niemals eine Berechtigung fand, keine findet und niemals eine finden wird.
+Krieg und Terror sind niemals eine Lösung, um ein Problem zu lösen oder um Frieden, Freiheit, Harmonie
+und Sicherheit zu schaffen, denn Krieg und Terror zeugen wieder Krieg und Terror. Unlogische, nackte
+Gewalt kann nicht mit unlogischer, nackter Gewalt beantwortet und besiegt werden, sondern nur durch
+eine gewaltsame Gewaltlosigkeit, was bedeutet, dass allein durch logische, menschen- und lebenswürdige Gewalt, ohne Mord, Totschlag, Krieg und Terror ein wirklicher Erfolg für Frieden, Liebe, Freiheit,
+Harmonie und Sicherheit erlangt werden kann. Und das gilt sowohl für die Staaten und Völker, wie aber
+auch für grössere und kleinere Menschengruppierungen jeder Art, was bis in die einzelne Familie hineinreicht.
+Billy
+
+## Frage
+Die sogenannte ‹kosmische Lebensenergie›, ‹kosmisch-elektromagnetische Lebensenergie› oder auch einfach ‹kosmisch-elektromagnetische Schwingungen› resp. ‹kosmisch-elektromagnetische Energie›, wie eine
+
+
+-----
+
+andere Bezeichnung lautet in bezug auf die ‹kosmische Lebensenergie›, was ist darunter sowie unter
+Elektrosmog zu verstehen, und ist dieser überhaupt für Mensch, Tier und Pflanzen schädlich oder nicht?
+Peter Steinemann/Schweiz
+
+## Antwort
+Diese Frage bezüglich ‹kosmischer Lebensenergie› wurde vor geraumer Zeit auch von anderen Personen
+gestellt, weshalb ich die Antwort sowohl für Sie wie auch für andere Interessierte anführen will, wobei die
+Antwort Nr. 3 aus dem Kontaktbericht Nr. 330 vom 29. August 2002 vom Plejaren Ptaah stammt.
+
+**Kosmisch-elektromagnetische-Lebensenergie gibt es in zwei Formen:**
+1) Für die gesamte grobmaterielle Existenz, also für alles Grobmaterielle. Diese ‹Kosmisch-elektromagnetische-Lebens-Energie› wird aus der unerschöpflichen universellen Elektronen-Energie erschaffen
+und wandelt sich dann in eine halbgeistige Energieform um, die alles materielle Leben belebt. Der Vorgang dieser Energie-Erzeugung findet im Materiell-Universum statt, also im 4. Gürtel, der FestkörperUniversum-Gürtel genannt wird, und zwar durch eine Wechselwirkung des 3. Gürtels (Urkern-Gürtel
+= Positiv) und des 5. Gürtels (Umwandlungs-Gürtel = Negativ).
+2) Für die gesamte reingeistige Existenz, so also für alle Formen, die reingeistiger resp. schöpfungsenergiemässiger Natur sind. Diese ‹Kosmisch-elektromagnetische-Lebens-Energie› ist schöpferisch-geistiger Natur und regeneriert sich durch einen ununterbrochenen Schöpfungsgeist-Energiewechsel in
+unendlicher Weise, wie ein perfektes Perpetuum mobile, und zwar aus dem Schöpfungskern heraus,
+in dem die Ursprungs-Energie aus dem 7. Gürtel (Ramm-Gürtel resp. Schöpfungsmaterie-Gürtel resp.
+Expansions-Gürtel resp. Verdrängungs-Gürtel) aufgenommen wird, die in diesen Gürtel aus dem
+Absoluten Absolutum abgegeben wird.
+3) Elektrosmog kann in keiner Weise mit der ‹kosmisch-elektromagnetischen Energie› resp. mit der ‹kosmisch-elektromagnetischen Lebensenergie› in Zusammenhang gebracht werden, denn im Gegensatz
+zu dieser ist Elektrosmog für alle Lebensformen nicht belebend, sondern sehr schädlich, wobei insbesondere der Mensch dafür sehr anfällig ist, nebst Haustieren und Wildtieren sowie Pflanzen. Elektrosmog-Felder treten überall dort auf, wo elektrische Leitungen verlaufen oder wo sich elektrische
+Apparaturen, Anlagen, Generatoren oder Transformator-Stationen usw. befinden. Auch Radio-, Fernseh- und Mobiltelephon-Sendeanlagen sowie gleichartige Empfänger, also Funktelephone, Funkanlagen und Mobiltelephone resp. die sogenannten ‹Handys› sondern starke Emissionen von Elektrosmog
+ab, der nichts anderes darstellt als ‹niederenergetische elektromagnetische Felder› resp. ‹niederenergetische elektromagnetische Schwingungen›. Auswirkungen des Elektrosmog auf den Menschen
+können z.B. Schwindel, Bewusstseinsstörungen, Kopfschmerzen, Gehirnerwärmung, Konzentrationsstörungen, Allergien, Blutkrankheiten, Rheuma, Nervenkrankheiten, Psyche-Schäden, Essstörungen
+sowie Aggressionen, Schlafstörungen, Vergesslichkeit, Persönlichkeitsveränderungen, Depressionen,
+Sehstörungen, ja sogar Krebs usw. sein, wie die Plejaren erklären, was jedoch anderweitig von den
+irdischen ‹Fachleuten› und ‹Wissenschaftlern› in der Regel ebenso vehement bestritten wird wie auch
+von den Herstellern der Elektrosmog aussendenden Produkte.
+Zur vorgehenden Antwort Ptaahs dürfte auch nachfolgender Artikel aus der Fachzeitschrift MEDIZIN von
+Interesse sein.
+
+Billy
+
+
+-----
+
+## Handy schadet
+**Artikel aus der Fachzeitschrift MEDIZIN/Datum und Ausgabe unbekannt**
+Die von Mobiltelefonen ausgehende elektromagnetische Strahlung könnte für den Menschen schädlicher
+sein als bisher angenommen. Zu dieser Annahme kommt eine Zellkultur-Studie der finnischen Strahlungsund Atomsicherheitsbehörde. Die Handy-Strahlen führten in der Untersuchung zu einer Ausdünnung der
+Wände von Blutgefässzellen. Sollte dieser Effekt, der im Labor beobachtet wurde, auch im menschlichen
+Organismus vorkommen, würde dies die Blut-Gehirn-Schranke stören. Kopfschmerzen, Müdigkeit und
+sogar Alzheimer-ähnliche Erkrankungen könnten die Folge sein.
+Zur Verfügung gestellt von Brunhilde Koye/Schweiz
+
+## Leserfax/Frage
+Billy, da ich mir sicher bin, dass du dich noch an mich erinnern wirst, erlaube ich mir, mich mit diesem Fax
+mit dir in Verbindung zu setzen. Deine Faxnummer habe ich aus dem Internet, in dem du eine grosse Website führst, die ich immer wieder besuche. Leider habe ich selbst keine Faxmaschine, weshalb ich dir dieses Fax durch eine fremde Person senden lassen muss. Wie du siehst, habe ich die deutsche Sprache nicht
+verlernt, und jetzt erinnerst du dich bestimmt an mich: Ich bin Isar Ahmad. Wir haben uns 1967 in Quetta kennengelernt, als du mir so selbstlos geholfen und mich mit 21 Jahren vor dem schweren Übel bewahrt
+hast, das sich durch meine Unvernunft ergeben hätte. Für deine Hilfe werde ich dir mein Leben lang dankbar sein. Ich bin nun 56 Jahre alt, verheiratet und Vater von zwei Knaben und einer Tochter. Leider lebt
+nur noch meine Mutter, die ja aus Deutschland stammt, wie du weisst. Sie ist jetzt 84 Jahre alt. Vater starb
+vor zwei Jahren. Doch nun zu meiner Frage: Da ich wieder von Quetta weggezogen und wieder in meinem Heimatort wohnhaft bin und demzufolge in einer Angelegenheit nach Karachi musste, hatte ich dort
+eine seltsame Begegnung, wozu ich dich fragen möchte, ob du mir bei der Aufklärung des Vorfalls behilflich sein kannst? Die Sache ist die: Im Post-Office begegnete mir eine ältere Dame, die erklärte, dass
+sie Amerikanerin und ihr Name Judy Reed sei und dass sie schon seit rund drei Jahrzehnten abwechslungsweise in Indien und Pakistan lebe. Mit ihr ins Gespräch kommend erfuhr ich, dass sie schon 1963
+oder 1964 in Pakistan und zudem auch in Quetta gewesen sei, wonach sie dann nach Teheran ging, und
+zwar zusammen mit ihrem deutschen Freund. Dort sagte sie, habe sie einen Schweizer kennengelernt,
+dem sie den Namen ‹Billy› gegeben habe, weil er wie ‹Billy the Kid› gekleidet gewesen sei. Das traf mich
+seltsam, weshalb ich weiter nach dieser Bekanntschaft fragte und noch viele andere Einzelheiten erfuhr. Je
+länger je mehr schien es mir, dass du vielleicht dieser Mann sein könntest, den sie mir beschrieb. Also liess
+ich sie dein Photo schauen, das du mir 1967 geschenkt hast und das ich immer bei mir trage. Sie schaute das Bild lange an und sagte dann, dass das tatsächlich der Mann sei, den sie in Teheran kennenlernte
+und den sie Billy nannte. Nun möchte ich wissen, ob die Geschichte stimmt, die ich von dieser Dame erfahren habe. Und da ich, wie ich schon erklärte, regelmässig deine Web site besuche und nach wie vor
+sehr gut die deutsche Sprache beherrsche, da ich mit meiner Mutter nur deutsch spreche, so kannst du mir
+die Antwort in einem deiner Bulletins geben. Vielleicht werde ich etwas warten müssen, doch bin ich mir
+sicher, dass ich eine Antwort von dir erhalten werde. Sollte es dir möglich sein, dass du wieder einmal
+nach Pakistan kommst, dann würde es mich freuen, dich in meinem Haus als Gast aufnehmen und bewirten zu dürfen. Auch meiner Mutter würde es eine ausserordentliche Freude sein, und ausserdem möchte sie sich einmal persönlich für deine Hilfe bedanken, die du mir in Quetta hast zukommen lassen. Ich für
+mich schätze dich als sehr lieben und guten Freund, und sollte es meinerseits einmal möglich sein, in die
+Schweiz zu reisen, dann würde ich dich gerne besuchen. Es grüsst dich:
+Isar Ahmad/Pakistan
+
+
+-----
+
+## Antwort
+Lieber Isar,
+wie du wünschst, beantworte ich dein Fax auf diesem Wege via das Februar-Bulletin, was mir ja auch
+nicht anders möglich ist, weil du keinerlei Anschrift erwähnt hast, und da das Faxformular auch keine
+Absender-Nummer aufweist.
+Natürlich vermag ich mich an dich zu erinnern, und das ganze damalige Geschehen ist mir ebenfalls noch
+gut in Erinnerung. Es freut mich, dass du trotz der bösen Sache wieder den Weg ins Leben gefunden und
+eine Familie gegründet hast. Auch dass deine betagte Mutter noch lebt, ist mir eine grosse Freude. Sicher
+sind deine Kinder schon längst verheiratet und haben ebenfalls Nachkommen. Und was mag wohl dein
+Freund Ayub machen, bei dem meine Frau und ich mit unserem in Quetta geborenen Töchterchen Gilgamesha noch zwei Monate wohnen durften? Lass mich doch wissen, was sich weiter alles so ergeben hat.
+Du kannst mich ja auch telephonisch erreichen. Die Rufnummer findest du auf der Web site.
+Nun zu deiner Frage: Ja, die von Judy Reed genannte Person, der Mann, den sie in Teheran, in der persischen Hauptstadt traf und ihm den Namen ‹Billy› gab, das war tatsächlich ich. Mit ihr und ihrem deutschen Freund reiste ich dann nach Täbris/Persien und von dort an die türkische Grenze, wonach wir zusammen über Dogubayazit weiter nach Erzurum, Kars, Trabzon, Samsun und Bafra usw. und dann nach
+Ankara, Üsküdar und Istanbul sowie nach Alexandropolis und Kavalla in Griechenland nach Thessaloniki trampten, wo wir uns dann trennten. Danach ging ich zurück in die Türkei, wo ich einen Auftrag zu
+erledigen hatte, der mich schon vorher über Indien und Persien in die Türkei geführt hatte, wo ich dann
+im Monat August 1964 in Iskenderun einen Unfall hatte, durch den ich den linken Arm verlor. Doch diese
+Unfall-Geschichte ist dir ja bekannt. So sei nun gegrüsst, und lass wieder etwas von dir hören.
+Billy
+
+## Anfrage aus der Tschechei
+Ein gewisser Ivo Benda benutzt offenbar Billys Bilder und Schriften, die er im Internet und in Büchern veröffentlicht. Zudem behauptet er, die Wiedergeburt von Ashtar Sheran zu sein und mit dem Plejaren Ptaah
+in Kontakt zu stehen. Hat dieser Benda Billys Erlaubnis, um sein Material zu benutzen, und stimmt das mit
+der Wiedergeburt und dem Kontakt mit Ptaah?
+T.U./Tschechei
+
+## Antwort
+Beim Ganzen um Ivo Benda handelt es sich um eine weitumfassende Mauschelei, denn er hat weder eine
+Erlaubnis, um mein Material zu gebrauchen, noch stimmt es, dass er die Wiedergeburt Ashtar Sherans
+ist oder dass er mit Ptaah Kontakt hätte. Dazu mein Gespräch mit Ptaah in dieser Sache am 29. August
+2002:
+
+Billy Dann eine andere Frage: In der Tschechei funktioniert ein gewisser Ivo Benda herum, der – wie
+man mir berichtet hat – im Internet und in Büchern mit meinen Photos und Schriften wie überhaupt mit allem meinem Material herumfunktioniert und auch behauptet, dass er die Wiedergeburt des Ashtar Sheran sei und mit dir in Kontakt stehe. Nun weiss ich aber, dass alle diese
+Behauptungen auf Mauscheleien beruhen, denn erstens hast du ausser mit mir mit keinem
+anderen Erdenmenschen Kontakt, und zweitens kann Ashtar Sherans Geistform nicht in einem
+Erdenmenschen reinkarniert sein, da dieser Typ vor wenigen Jahren ja im DAL-Universum zu
+Tode gekommen ist und folglich seine Geistform wiedergeburtsmässig nicht mehr in unser
+DERN-Universum zurückkehren kann.
+
+
+-----
+
+Ptaah Der Sachverhalt in allen Dingen ist der, wie du sagst. Und ganz klar möchte ich zum Ausdruck
+bringen, dass ich mit diesem Mann in keinerlei Weise in Kontakt stehe und dass alle seine diesbezüglichen Behauptungen der Unwahrheit entsprechen. Du weisst, dass du in jeder Beziehung
+unsere einzige Kontaktperson auf der Erde bist, so also sowohl in telepathischer wie auch in physischer oder in irgendeiner anderen Hinsicht. Auch die Behauptungen des Mannes hinsichtlich
+seiner angeblichen Wiedergeburt als Ashtar Sheran sind nur einer Unwahrheit einzuordnen.
+Mehr dürfte in dieser Sache nicht zu erklären sein, ausser dass uns des Mannes Mauscheleien,
+wie du seine Machenschaften sehr verharmlosend nennst, bestens bekannt sind.
+Billy
+
+## Verbundenheit
+In unserer heute so lieblosen, hastigen, materiellen, kriegerischen, terroristischen und überbevölkerten Welt
+trifft sich jeden Dienstag ein kleines Grüppchen von Gleichgesinnten bei Elisabeth und Guido Moosbrugger
+in der Nähe des Bodensees in Deutschland zum Geisteslehre-Studium sowie um die Schriften und Bücher von
+‹Billy› Eduard Albert Meier zu studieren, diese verstehen zu lernen, auszuwerten, zu diskutieren und für das
+ganze Leben praktisch umzuzusetzen und – so sie das wünschen – an andere Menschen weiterzugeben.
+Auf unserem Erdenball ist Billy der einzige, der für uns Menschen die Geisteslehre resp. die Gesetze und
+Gebote der Schöpfung unverfälscht niederschreibt und sein Wissen an uns Menschen weitergibt. Die Geisteslehre, die er lehrt, beinhaltet das einzig richtige und gültige Wissen der wahrlichen Wahrheit für uns
+Menschen dieser Erde. Sie hat aber auch universumweit und darüber hinaus ihre Gültigkeit, denn das
+wahre Wissen, die wahre Liebe, die wirkliche Wahrheit und die Weisheit schöpfungsmässiger Natur
+haben universale Wirksamkeit. Die Geisteslehre ist nicht aufgebaut in einer Weise einer Religions-, Sekten-, Polit- oder Weltverbesserungsphilosophie, sondern in einer aufklärenden, belehrenden, zwanglosen
+und suggestivlosen, jedoch an die Vernunft appellierenden und zum eigenen Denken und Nachdenken
+auffordernden Form. Und allein das entspricht schon der logischen und unumstösslichen Wahrheit, aus
+der sich ergibt, dass niemals Zwang oder suggestive Beeinflussung zum Erarbeiten von Wissen, Liebe und
+Weisheit in Erscheinung treten dürfen.
+Die wirkliche Geisteslehre, wie sie durch Billy gebracht wird, wäre z.B. im Gegensatz zu Religions-, Sekten-, Polit- und Weltverbesserungsphilosophien ein sehr gutes Welt-Pflicht-Schulfach, denn sie entspricht
+der logischen und unumstösslichen wahrlichen Wahrheit, durch die wieder Frieden, Liebe und Harmonie
+bei uns Erdenmenschen einkehren könnten.
+Billy vermittelt uns seine physischen und telepathischen Kontakte zu den Plejadiern/Plejaren in schriftlicher
+Form, wobei allein diese Berichte seit dem 29. Januar 1975 bis heute bereits mehrere tausend Schreibmaschinenseiten im Format DIN A4 umfassen. Hinzu kommen noch viele Bücher, die schriftliche Geisteslehre, Broschüren und Kleinschriften, die gesamthaft alle sehr viel Wissen über das Schöpfungs-Universum
+und die richtige Lebensweise enthalten und wie wir Menschen mit unserer Erde umgehen sollen. Das Wissen enthält aber auch die Lehre, dass wir Erdenmenschen nicht die einzigen menschlichen Lebensformen
+in den unermesslichen Weiten des Universums sind. Es zeigt aber auch die Falschlehren der Religionen
+und Sekten auf. Das Wissen lehrt auch die Existenz der Kausalität resp. dass jede Ursache eine bestimmte Wirkung bringt und dass also jede Wirkung auf einer bestimmten Ursache beruht. Die Lehre des Wissens sagt auch aus, dass kein Zufall, sondern nur eine Fügung existiert und dass alle Existenz dem Werden und Vergehen eingeordnet ist, der Zeugung, der Geburt, dem Leben, dem Sterben und dem Tod sowie
+der Wiedergeburt der Geistform resp. des schöpferisch-menschlichen Geistes. Die Lehre des Geistes vermittelt das Wissen um den wahrheitlichen Sinn des Lebens und wie das richtige, fortschrittliche und nach
+Höherem strebende Denken in neutral-positiver Form erfolgen muss. Und nicht zuletzt wird gelehrt, dass
+der Mensch in Würde und Ehrwürdigkeit sowie in Ehrfurcht vor allem Leben sein Dasein zu erfüllen hat,
+wobei Hass, Lieblosigkeit, Krieg, Terror, Mord, Eifersucht, Dieberei und Betrug sowie Lüge, Feindschaft und
+Ausartungen aller Art usw. keinerlei Existenzberechtigung haben. Diese Lehre und natürlich alle Schriften
+
+
+-----
+
+und Bücher usw. sind erhältlich in deutscher Sprache beim ‹Wassermannzeit-Verlag›, FIGU, SemjaseSilver-Star-Center, CH-8495 Schmidrüti/ZH.
+Die FIGU führt monatlich zweimal Friedensmeditationen durch, an denen sich auch mehr als 3,5 Milliarden Plejadier/Plejaren und Angehörige ihrer galaxienweiten Föderation beteiligen, wodurch mitgeholfen
+wird, die Erdenmenschen etwas friedlicher zu stimmen, wodurch viel Unheil vermindert werden kann. Für
+diese sehr weit in unser Universum hinausreichende Verbundenheit möchte ich den Ausserirdischen meinen ganz besonderen Dank aussprechen.
+Komme ich jeweils Dienstagnacht von der Studiengruppe nach Hause, dann schwirren mir noch sehr viele
+Gedanken im Kopf herum, denn aus der Geisteslehre und aus den Diskussionen ergeben sich immer wieder viele Fragen, die ein tiefgründiges Nachdenken und ein weiteres Nachfragen erfordern, um eine Lösung
+und einen Erfolg sowie eine Erkenntnis gewinnen zu können. Das hält mich aber trotzdem nicht davon ab,
+ruhig und zufrieden mit dem Gedanken einzuschlafen, dass es tatsächlich noch andere Menschen und Völker auf anderen und eben erdfremden Welten in unserem Universum gibt. Und ich bin Billy und den Plejadiern/Plejaren sehr dankbar für alles von ihnen übermittelte Wissen, das für die Erdenmenschen schon jetzt
+von grosser Bedeutung und Wichtigkeit ist und es mit Sicherheit auch in ferner Zukunft sein wird.
+Erhard Lang/Deutschland
+
+
+Ein Gespenst geht um auf der Welt – das Gespenst von Angst,
+Fanatismus, Terrorismus, Tod, Zerstörung
+sowie Vernichtung und blutiger, böser Gewalt;
+und alle Mächte der Welt haben sich dazu vereinigt,
+mit gleichen Mitteln aller möglichen blutigen Gewalt
+sowie hassvoll und voll Rachsucht
+eine heilige Hetzjagd gegen das Gespenst zu führen
+und nicht minder Angst, Tod, Terror, Zerstörung, Verderben und Vernichtung
+über die Menschheit sowie über die Welt zu bringen –
+ein Werk Irrer, Mächtiger und Verrückter,
+deren Ziel die Erfüllung ihres Wahnsinns ist.
+
+3. Dezember 2002, 23.25 Uhr, Semjase-Silver-Star-Center, Billy
+
+
+## VORTRÄGE 2003
+Auch im Jahr 2003 halten Referenten der FIGU wieder Ufologie- und Geisteslehre-Vorträge. Nachfolgend die
+Daten für die stattfindenden Vorträge:
+
+22. März 2003 Hans Georg Lanzendorfer: Gleichgeschlechtliche Lebenspartnerschaft
+(Homosexualität/Lesbianismus)
+Guido Moosbrugger (zu einem Text von Billy): Mensch der Erde, höre …
+28. Juni 2003 Patric Chenaux: Die Verweichlichung des Menschen
+Piero Petrizzo (zu einem Thema von Billy): Emotionen, Gefühle, Argwohn und Naivität
+23. August 2003 Patric Chenaux: UFO’s oder Satelliten
+Karin Wallén: Das Wiederholungsprinzip und die Gefühle
+25. Oktober 2003 Natan Brand: Die Welt verändern
+Guido Moosbrugger: Siebenheit des Materienaufbaues
+
+Pünktlicher Vortragsbeginn um 14.00 Uhr. Eintritt: CHF 7.– (Eintritts-Ermässigung für FIGU-Mitglieder bei
+Vorweisen eines gültigen Ausweises.) An den Vortrags-Samstagen trifft sich im Semjase-Silver-Star-Center um
+19.00 Uhr eine Studiengruppe, zu der alle interessierten Passiv-Mitglieder herzlich eingeladen sind.
+
+
+-----
+

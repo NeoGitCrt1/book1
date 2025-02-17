@@ -1,0 +1,55 @@
+## XXVIII. Relativistische Raumfahrt
+
+Bei der relativistischen Raumfahrt haben wir es mit weitreichenden Hochgeschwindigkeits-Expeditionen zu fernen Gestirnen zu tun. Eine solche
+Reise erfolgt mit einer Geschwindigkeit, die bis nahe an die Lichtgeschwindigkeit heranreicht, wobei eine der erstaunlichsten Effekte der Speziellen Relativitätstheorie von Albert Einstein in Erscheinung tritt, und
+zwar die Zeitdilatation.
+Zeitdilatation oder Zeitdehnung bedeutet, daß im Gegensatz zu unseren
+alltäglichen Erfahrungen, eine Uhr in einem schnell bewegten Bezugssystem langsamer läuft als im Ruhezustand vom ruhenden Standort aus betrachtet. Mit anderen Worten ausgedrückt: Es ist tatsächlich die Zeit, die
+im bewegten System langsamer geht aus dem Blickwinkel eines ruhenden
+Beobachters. Befindet sich ein solcher Beobachter auf der Erde, dann darf
+man in diesem Zusammenhang die Erde wenigstens vorübergehend als ruhend betrachten, obwohl sie nicht nur eine, sondern mehrere Bewegungen
+gleichzeitig ausführt.
+Wie sich die Zeitdilatation in der relativistischen Raumfahrt bemerkbar
+macht, wird in der Skizze «Zeitdehnung» an einigen Beispielen veranschaulicht.
+Wenn wir in Gedanken ein Raumschiff sehr schnell mit konstanter Geschwindigkeit an unserer Erde vorbeiflitzen lassen, dann dehnt bzw. verlangsamt sich der Zeitablauf in diesem Schiff vom relativ ruhenden Beobachtungsstandpunkt der Erde aus beobachtet. In Zahlen ausgedrückt
+beträgt die Verlangsamung...
+bei 50 %  der Lichtgeschwindigkeit 8 Minuten pro Stunde
+bei 87 %  der Lichtgeschwindigkeit rund das 2fache
+bei 94,5 % der Lichtgeschwindigkeit rund das 3fache
+bei 99 %  der Lichtgeschwindigkeit rund das 7fache usf.
+
+**Zeitdehnung und Zeitverkürzung**
+Einerseits sagen wir, daß der Zeitablauf im bewegten Raumschiff langsamer erfolgt als im ruhenden Bezugssystem, andererseits kann man diese
+Zeitverlangsamung gleichzeitig auch als Zeitverkürzung betrachten.
+Es mag etwas eigenartig klingen, aber infolge der Zeitdehnung kommt im
+bewegten Schiff auch eine entsprechende Zeitverkürzung zustande. Wenn
+also in der Bodenstation eine Stunde vergangen ist, registriert man von hier
+
+
+-----
+
+# Zeit-Dehnung
+
+|Col1|Col2|12.20 Bordzeit|
+|---|---|---|
+||||
+
+|Col1|Col2|12.52 Bordzeit|
+|---|---|---|
+||||
+
+
+12.00 bis 13.00
+
+Erdzeit
+
+Vom ruhenden Beobachtungsstandort der Erde aus betrachtet dehnt bzw. verlangsamt sich der Zeitablauf im bewegten Raumschiff
+bei 87 % der Lichtgeschwindigkeit um das rund 2fache
+bei 94,5 % der Lichtgeschwindigkeit um das rund 3fache
+bei 99 % der Lichtgeschwindigkeit um das rund 7fache
+Die Besatzung kann dies selbst nicht wahrnehmen bzw. messen, weil restlos
+alles zeitlich langsamer abläuft, auch der Lebensrhythmus der Raumfahrer.
+
+
+-----
+

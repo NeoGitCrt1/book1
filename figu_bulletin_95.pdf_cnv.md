@@ -1,0 +1,1418 @@
+# FIGU-BULLETIN
+
+**Freie**
+
+**Interessengemeinschaft**
+**FIGU**
+
+**r**
+
+#### Erscheinungsweise: Internetz: www.figu.org 22. Jahrgang Sporadisch                E-Brief:  info@figu.org               Nr. 95, Dez. 2016
+
+ Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+Laut ‹Allgemeine Erklärung der Menschenrechte› vom 10. Dezember 1948, Artikel 19, ‹Meinungs- und Informationsfreiheit›:
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die**
+**Freiheit, Meinungen unangefochten anzuhängen und Informationen und Ideen mit allen**
+**Verständigungsmitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Aussagen und Meinungen müssen nicht zwingend identisch sein mit Gedanken, Interessen, Lehre und Missionsgut der FIGU.
+
+## Umgekehrte Algiz-Rune: Der Irrtum mit dem Friedenssymbol
+
+_Veröffentlicht am 27. Mai 2016 von rsvarshan_
+
+_Todesrune                             Algiz-Rune steht für göttlichen Schutz_
+
+Seit den Terroranschlägen von Paris schmücken sich viele Menschen in den sozialen Netzwerken zur
+Solidaritätsbekundung mit einer Kombination aus Eiffelturm und CND-Symbol in ihren Profilen. Das CND**Symbol ist das wohl bedeutendste Friedenszeichen und wurde 1958 vom britischen Künstler Gerald Holtom**
+**im Auftrag der britischen Kampagne zur nuklearen Abrüstung entworfen. Ein böser Geist wohl muss ihn**
+bei der Kreation des Symbols geritten haben, da es sich beim CND-Friedenssymbol um die auf den Kopf
+gestellte Algiz-Rune handelt. Während die Algiz-Rune an sich ein göttliches und kraftvolles Schutzsymbol
+**ist, steht sie ‹verkehrt herum› unter anderem für Trennung und Verlust.**
+Unsere germanischen Vorfahren, wie auch heute noch die indigenen Völker in Amerika, Afrika und Asien,
+schätzten die Kräfte der Natur und Symbole als Zeichen der Götter.
+Ihre Entscheidungen richteten sie nicht nur nach dem Wetter, nach den Sternen und
+nach der Fruchtbarkeit des Bodens, sondern auch nach Zeichen und Symbolen,
+die ihnen die Götter schickten. Damals wie heute gibt es keine Zufälle, sondern
+alles geschieht nach einer höheren, kosmischen Ordnung. Die Germanen sahen
+sich als ein Teil der Schöpfung, und nicht als Herren über der Natur, wie dies in
+unserer westlichen Welt der Fall ist. So erkannten sie Runen, die bereits ca. 50
+Jahre vor unserer Zeit im nordisch-germanischen Raum nachgewiesen wurden,
+als Hinweise ihres eigenen Schicksals an. Sie konnten gute wie schlechte Nach
+
+**Freie**
+
+
+-----
+
+richten übermitteln, je nachdem um welche Runen es sich dabei handelte bzw. wie herum sie sich ihnen
+zeigten.
+
+#### Algiz-Rune steht für göttlichen Schutz
+Wem die Algiz-Rune im Alltag begegnet, erhält (vereinfacht gesagt) positive Energie und göttlichen Schutz.
+Jetzt verankern sich Vorhaben zum Guten, die Gesundheit blüht auf und es kommt Glück in Liebe und
+Partnerschaft. Die Algiz-Rune steht auch für das Kronen-Chakra und somit für die Verbindung zwischen
+Göttern und Menschen, zwischen der feinstofflichen und der materiellen Welt.
+
+#### Umgekehrte Algiz-Rune steht für Trennung und Verlust
+**Wenn man der umgekehrten Algiz-Rune begegnet, so wie sie derzeit auf den Eiffelturmmotiven dar -**
+**gestellt wird, bedeutet dies Trennung von der göttlichen Quelle, Verlust und ein Ende von bestimmten**
+**Dingen. Eine entstehende oder entstandene Krankheit kann die Folge der Abkapselung von den gött lichen**
+Energien und von Optimismus bedeuten. Auch kann eine Begegnung mit einer auf dem Kopf stehenden
+Algiz-Rune ein Hinweis sein, dass man ‹den Boden unter den Füssen verliert›, weil man ‹zu hoch fliegt›.
+So ehrenwert die Solidarität für die Opfer und Angehörigen von
+Paris auch ist, so ungeschickt ist das ungeprüfte Übernehmen von
+heiligen Symbolen durch die Masse. Ein Irrtum eines Künstlers, der
+weitreichende Folgen haben kann, wenn man sich dessen bewusst
+macht, wie energetisch kraftvoll Zeichen und insbesondere Runenkräfte wirken. Tragischerweise erschuf der Erschaffer des CNDFriedenssymbols Gerald Holtom nach eigener Aussage das Zeichen
+aus dem Winkeralphabet (von N für nuclear und D für disarmament zu deutsch: ‹Abrüstung›) – siehe
+_Abbildung, ohne sich im Klaren darüber zu sein, dass er ein eher negativ besetztes Symbol kreierte,_
+welches nach seiner Erschaffung zigtausende Menschen als falsch verstandenes Friedenssymbol öffentlich zur Schau stellten. Wenn man sich die Entwicklung der Menschheit seit der Friedensbewegung, beginnend in den 50er Jahren des 20. Jahrhunderts, ansieht, so kann man heute kaum Besserung feststellen.
+Es sind dieselben Grausamkeiten wie damals, nur in neuem Gewand.
+
+#### Runen sind heilige Zeichen und verfügen über kosmische Kräfte
+Auch wenn sicher mehrere Umstände zu den Ungerechtigkeiten und Kriegen auf der Erde mit beitragen,
+als nur ein falsch verstandenes Friedenssymbol, so sollten wir unseren Geist (Anm. Bewusstsein) dennoch
+so weit frei bekommen, um zu erfassen, dass nichts auf der Welt zufällig geschieht. Weder im globalen
+Weltgeschehen noch im individuellen Leben. Verstehen wir Menschen uns wieder als ein Teil der kosmischen Ordnung, so können die Dinge um uns herum wieder fliessen und sich zum Guten wenden.
+Unsere germanischen Vorfahren setzten Runenkräfte gerne sowohl als Orakel ein, wenn es etwa darum
+ging, wichtige Entscheidungen zu treffen, die möglicherweise über Leben und Tod entschieden, als auch
+als kraftvolle göttliche Unterstützung in schwierigen Situationen. So hoch entwickelt sich unsere westliche
+Zivilisation in materiellen Dingen auch sieht, so arm ist sie an Kenntnissen für die spirituellen Zyklen und
+Wirkungsweisen des Lebens.
+**Statt die Welt noch künstlicher zu machen, sollten wir uns zurückbesinnen auf die Natur, welche ein Teil**
+**der Welt und des Universums ist, genauso wie jeder Stein, jede Pflanze, jedes Tier, jeder Mensch – und**
+**die heiligen Runen.**
+_© Alex Miller/germanen-magazin.de_
+
+_Bilder: CND Friedenssymbol: Danny Birchall flickr cc, Algiz-Runenstein & Algizrune im Fachwerkhaus: germanen-_
+_magazin.de, „Algizrunen-Baum“: Karl-Ludwig Poggemann flickr cc, Winkeralphabet: wikipedia_
+
+_Quelle:_ _https://rsvdr.wordpress.com/2016/05/27/umgekehrte-algiz-rune-der-irrtum-mit-dem-friedenssymbol/_
+_(Erlaubnis liegt vor)_
+
+
+-----
+
+### Expansion: Kosmos dehnt sich schneller aus als erwartet
+
+_Epoch Times, Donnerstag, 16. Juni 2016 18:23_
+#### Die Expansion des Kosmos verläuft schneller als erwartet. Das ergaben äusserst präzise Messungen mit dem Hubble Teleskop. Astronomen vermuten einen Zusammenhang mit der so- genannten ‹dunklen Materie›.
+
+_Foto: Nasa_
+
+Das Weltall dehnt sich immer schneller aus. Das ist das Ergebnis neuester Messungen mit dem HubbleSpace-Telescope. Damit wurde die Ausdehnungsgeschwindigkeit des Universums so genau wie nie zuvor
+bestimmt. Laut den Messungen liegt die Hubble-Konstante bei 73,2 Kilometer pro Sekunde pro Megaparsec (3,26 Millionen Lichtjahre – zum Vergleich: Die Andromedagalaxie ist ungefähr 2,5 Millionen
+Lichtjahre von uns entfernt).
+Das bedeutet, durch die Expansion entfernen sich zwei Galaxien in einer Entfernung von etwa 3 Lichtjahren mit 73 Kilometern pro Sekunde voneinander.
+
+_Foto: Nasa_
+
+Gleichzeitig wurde die Konstante über das Urknall-Echo mithilfe der Satelliten ‹WMAP› und ‹Planck›
+gemessen. Obwohl im Gegensatz zum Urknall-Echo der Messwert von Hubble dem lokalen Universum
+entlehnt wird, sollten beide Messwerte identisch sein.
+«Man beginnt an zwei Enden und erwartet, dass sie sich in der Mitte treffen, wenn alle Zeichnungen und
+Messungen korrekt sind», so der US-Nobelpreisträger Adam Riess. Aber genau das sei nicht passiert.
+Stattdessen sei die Expansion 5 bis 9 Prozent grösser. Man wisse aber nicht warum.
+
+#### Dunkle Strahlung könnte der Grund sein
+Die Forscher überlegen nun, ob es mit einem hypothetischen Elementarteilchen zu tun haben könnte.
+Dieses Teilchen wird auch als dunkle Strahlung bezeichnet und könnte die Energiebilanz im frühen Universum geändert haben.
+Man erhofft sich daraus Rückschlüsse auf die Natur der Dunklen Materie ziehen zu können. «Diese überraschende Entdeckung könnte ein wichtiger Schlüssel zum Verständnis jener geheimnisvollen Teile des
+Universums sein, die 95 Prozent von allem ausmachen und kein Licht aussenden, etwa Dunkle Energie,
+Dunkle Materie und Dunkle Strahlung», glaubt der Astronom Riess. (dk)
+
+_Quelle:_ _http://www.epochtimes.de/wissen/mystery/expansion-kosmos-dehnt-sich-schneller-aus-als-erwartet-_
+_a1337400.html_
+
+
+-----
+
+#### Hierzu Auszüge aus dem 544. offiziellen Kontaktgespräch vom 1. September 2012 (siehe FIGU-Sonder-Bulletin Nr. 71)
+**Billy      Schon gut, Entschuldigung, es bleibt verschwiegen. Mein Interesse liegt ja nicht darin, mir**
+anvertraute Geheimnisse zu verraten, denn eigentlich wollte ich nur darüber sprechen, dass nicht nur
+die vier den irdischen Physikern bekannten Naturkräfte, sondern auch die restlichen drei, die ihnen noch
+unbekannt sind, als bestimmte winzige und ultrawinzige Teilchen existieren, so in bezug auf die Gravitation, den Elektromagnetismus und die starke und schwache Kernkraft. Auch die dunkle Energie und
+die dunkle Materie sind einbezogen in den Teilchenbereich, wobei gewisse dieser Teilchen, die ja auch
+Energien mit Kräften sind, in absehbarer Zeit entdeckt werden sollen, wie du kürzlich gesagt hast. Zwar
+dauert es bis dahin noch etwas, aber der Erfolg ist ja deiner Erklärung gemäss als Voraussage zu verstehen. Ausserdem, das darf ich wohl sagen, sind in den – sagen wir mal den normalen oder einfachen –
+Elementarteilchen wiederum in siebenfacher Weise noch winzigere Teilchen enthalten, die, wie ich von
+Sfath gelernt habe, sozusagen als ultrawinzige Ultra-Elementarteilchen bezeichnet werden können. Auch
+wenn ich mit dieser Aussage darauf hinweise, dass eine grundlegende Siebnerkette von Naturkräften
+gegeben ist und dass weitere Teilchen in den bereits bekannten und noch unbekannten Elementarteilchen
+existieren und dass dann erst unter dieser Siebnerreihe das beginnt, woraus ursprünglich alles aus reiner
+Geistenergie hervorgegangen ist, so verrate ich damit kein Geheimnis, denn das Ganze entspricht der
+Geisteslehre, in der ich diese Dinge ja auch offen nenne. Und da den irdischen Physikern, speziell den
+Teilchenphysikern, das innere und grundlegende Wissen rund um den eigentlichen geistenergetischen
+Aufbau dieser Dinge fehlt, können sie ja doch nichts mit dem anfangen, wovon ich spreche. Es müssten
+wohl schon exakte Angaben und Erklärungen sein, damit die Physiker Nutzen daraus ziehen könnten.
+Die physikalischen Erkenntnisse in bezug auf den wahren und grundlegenden Aufbau und die exakten
+Zusammenhänge der Materie stehen bei den Physikern ja immer noch im materiellen Bereich der Materie,
+denn sie sind bis heute noch nicht so schlau geworden, dass sie auf den Gedanken gekommen wären,
+dass der Ursprung aller Materie, alles Existenten und des gesamten Universums überhaupt, nicht einfach
+aus dem rein materiellen Bereich heraus zu erklären ist. Auch die Elementarteilchen sind als solche trotz
+ihrer energetischen Winzigkeit und Unscheinbarkeit noch rein materiell und noch nicht immateriell, denn
+das Immaterielle ist rein geistenergetischer Natur, und allein diese Energie ist der absolut einzige Ursprung
+aller Dinge und aller Materie jeder Art. Und dabei gehört zur Materie alles, was feststofflich, flüssig und
+gasförmig ist, das auch vom Menschen wahrgenommen und in verschiedenster Weise gemessen und
+nachgewiesen werden kann, wie mir dein Vater gemäss eurer Physik erklärte. Das Fein- und Feinststoffliche jedoch besteht aus reiner Geistenergie, und diese ist für den Menschen nicht fassbar. Und allein
+diese Geistenergie ist der Ursprung aller Existenz jener Dinge, die vom Menschen in irgendeiner Art
+und Weise erfasst, nachgewiesen und gemessen werden können, während es ihm aber bis zur heutigen
+Zeit noch nicht möglich ist und auch noch lange in der Zukunft nicht möglich sein wird, die schöpferischnatürliche Geistenergie nachzuweisen und zu messen. Da jenen irdischen Physikern aber – die sich mit
+dem Ursprung des Lebens und damit auch mit der fest-, flüssig- und gasförmigen Materie befassen und
+diesbezüglich alles zu ergründen versuchen – selbst die minimalste Erkenntnis hinsichtlich der Geist energie fehlt, aus der im absoluten Ursprung alles hervorgegangen und entstanden ist, so sind sie noch
+sehr weit davon entfernt, danach zu forschen und Erkenntnisse darüber zu gewinnen, wie sich aus der
+rein geistigen Energie der Prozess der Materiewerdung ergibt.
+Wie Kinder, die unmutig in ihrem Essen herumstochern und darin nicht das finden, was ihnen schmeckt,
+so stochern die irdischen Physiker in einem Bereich herum, in dem sie nicht den wirklichen Ursprung
+aller Dinge finden können. Natürlich ist es beim diesbezüglichen Forschen notwendig, die rein materiellen
+Aspekte der Materie zu erkennen und diese Erkenntnisse dann richtig zu nutzen, um nicht damit Unheil
+anzurichten, doch wenn der wirkliche Ursprung aller Dinge erkannt werden will, dann muss endlich die
+Erkenntnis reifen, dass dieser in der Geistenergie liegt. Diese hat jedoch nichts mit dem zu tun, was vom
+Menschen der Erde irrig als ‹Geist› bezeichnet wird, der als solcher das verkörpern soll, was das menschliche Bewusstsein ist. Der Geist resp. die Geistenergie ist nicht das Bewusstsein, denn der Geist oder
+
+
+-----
+
+eben die Geistenergie denkt nicht und schafft kein ‹geistiges› Eigentum, denn dies ist allein dem materiellen Bewusstsein vorbehalten. So kann beim Menschen – oder bei anderen Lebensformen – auch keine
+‹Geisteskrankheit›, sondern nur eine Bewusstseinstrübung und Bewusstseinskrankheit usw. in Erscheinung
+treten, denn der Geist resp. die Geistform resp. die Geistenergie ist absolut tabu und unbeeinflussbar
+durch irgendwelche Dinge wie Krankheiten usw. aus dem materiellen Bereich.
+
+### Wissenschaftler haben Gehirnregion gefunden, die für das Gewissen zuständig ist
+
+_Kounetya Sinha; The Times of India; Fr, 31 Jan 2014 17:32 UTC_
+Der Teil des Gehirns, der Menschen allen anderen bekannten Tieren überlegener macht, und der auch
+als innere Stimme funktioniert, wurde nun endlich gefunden.
+Wissenschaftler der Universität Oxford haben zum ersten Mal einen Teil des menschlichen Gehirns
+gefunden, der ganz anders aussieht als die Gehirne anderer Primaten. Er ist Teil des Ventrolateralen
+Frontalen Cortex, eine Region des Gehirns, von der man seit über 150 Jahren weiss, dass sie die höchsten
+Aspekte von Erkenntnis und Sprache beinhaltet.
+«Wir haben einen Bereich im menschlichen frontalen Cortex gefunden – der Gehirnbereich, der bekanntlich mit höheren Planungs- und Entscheidungs-Prozessen beschäftigt ist –, von dem wir denken,
+dass er sehr menschlich ist. Es scheint keine Entsprechung in Affen zu geben. Dieser Bereich wurde
+auch mit Multi-Tasking in Verbindung gebracht», sagte der Autor der Studie, Franz-Xaver Neubert der
+Universität Oxford.
+Wissenschaftler glauben auch, dass der laterale präfrontale Cortex die laute (innere) Stimme ist, die uns
+aufrüttelt, wann immer wir in unserem Leben in Richtung von bösen Taten oder Fehlgriffen abgleiten.
+Die Oxford-Wissenschaftler sagen, dass dies die Region ist, die uns sagt, wenn wir falsch handeln,
+und ob wir etwas besser machen sollen.
+Es wurden Magnetresonanz-Aufnahmen von 25 erwachsenen Freiwilligen benutzt, um Schlüssel komponenten in diesem Bereich des Cortex zu identifizieren, und herauszufinden, wie diese Bereiche
+mit anderen Bereichen verbunden sind.
+Die Ergebnisse wurden mit 25 äquivalenten Magetresonanz-Aufnahmen von Affen verglichen.
+
+_Quelle: https://de.sott.net/article/24334-Wissenschaftler-haben-Gehirnregion-gefunden-die-fur-das-Gewissen-_
+_zustandig-ist_
+
+#### Auszug aus dem FIGU-Sonder-Bulletin Nr. 38 zum Thema Übersinnliches resp. Feinstoffsinnliches resp. Fluidalkräfte
+… Das menschliche Gehirn verfügt nebst der Zirbeldrüse auch noch über andere bemerkenswerte
+wichtige Faktoren, wie z.B. das ‹Frühwarnsystem›, das sich nahe beim vorderen Stirnhirnlappen befindet, in der Hirnregion ‹Anterior Cingulaze Cortex›, kurz ACC genannt. Diese Hirnregion ist es, die
+dann aktiv wird, wenn z.B. eine schwierige Entscheidung zu treffen ist, wie unter anderem, wenn zwischen zwei sich einander widersprechenden Alternativen entschieden werden muss. ACC warnt den
+Menschen aber auch vor drohenden oder auftretenden Gefahren, die nur empfindungsmässig wahrgenommen werden und folglich nicht als direkter Warnfaktor ins Bewusstsein dringen. Ein weiterer
+Faktor ist der in bezug auf die empfindungsmässige Wahrnehmung von Geräuschen, die nicht als
+grobstoffsinnliche Wirkung in Erscheinung treten und vom Menschen also auch nicht grobstoffsinnlich
+wahrgenommen werden können, sondern als Infraschall, wie diese z.B. von grossen Tieren oder von
+Erdbeben usw. ausgehen. …
+
+
+-----
+
+_Bild der genannten Gehirnregion aus dem Internetz_
+
+### Mars: Bislang direktester Beleg für die einstige Sauerstoff-Atmosphäre
+
+_Andreas Müller; Grenzwissenschaft aktuell; Di, 26 Apr 2016 00:00 UTC_
+Toulouse (Frankreich) – Der NASA-Rover ‹Curiosity› hat im Marskrater Gale neben dem eisenoxidreichen
+Gestein, das der Marsoberfläche seine charakteristische und buchstäblich rostig-rote Farbe verleiht, erstmals auch einen hohen Anteil an Manganoxid entdeckt. Entsprechend müsste die Atmosphäre des Roten
+Planeten einst deutlich sauerstoffreicher gewesen sein, als bislang gedacht. Das hätte auch Konsequenzen
+für das schon so lange gesuchte Leben auf dem Mars.
+
+_© NASA/JPL_
+_Selbstporträt des Mars-Rovers ‹Curiosity› am Fusse des Mount Sharp im Innern des Gale-Kraters._
+
+«Etwa drei Prozent des Gesteins weisen einen hohen Anteil von Manganoxid auf», berichtete Agnès
+Cousin vom L’Institut de Recherche en Astrophysique et Planétologie (IRAP) vergangene Woche auf dem
+Jahrestreffen der European Geophysical Union (EGU) in Wien.
+
+«Dies erfordert neben ausreichend vorhandenem Wasser auch stark oxidierende Bedingungen. Die Atmo sphäre könnte also deutlich sauerstoffreicher gewesen sein, als bislang vermutet», so die Forscherin.
+Während die Atmosphäre des Mars heute zu 95 Prozent aus Kohlendioxid besteht und nur noch geringe
+Spuren von Sauerstoff enthält, vermuten viele Wissenschaftler schon lange, dass auch der Mars einst
+über eine deutlich sauerstoffreichere Gashülle verfügte. «Die jetzige Entdeckung ist der bislang direkteste
+**Beleg dafür», berichtet der ‹New Scientist›.**
+
+
+Bislang haben die Forscher das genaue Alter des Manganoxids noch nicht bestimmen können, hoffen
+diese Datierung aber anhand weiterer Daten des Rovers noch durchzuführen.
+
+
+-----
+
+_© JPL-Caltech/NASA_
+_Zwei manganreiche Proben im Fokus der ChemCam des Mars-Rovers ‹Curiosity›._
+
+
+Da der grösste Teil der Manganoxidablagerungen in der Nähe des einstigen Sees am Grunde des Kraters
+gefunden wurde, vermutet das Team um Cousin, dass in diesem Wasser gelöster Sauerstoff zu seiner
+Entstehung beigetragen hat: «Es besteht also durchaus die Möglichkeit, dass es in der Marsatmosphäre
+Sauerstoff gab und das vor Ort vorhandene Wasser oxidierend wirkte.»
+«Wenn es also hierfür genügend Sauerstoff gab, so wäre dies kein gutes Zeichen für dortiges frühes
+Leben», zitiert der ‹New Scientist› Damien Loizeau von der Université de Lyon und erläutert, dass Oxida tion auf der Erde biologische Moleküle aufbricht. «Das Erscheinen von Sauerstoff auf der Erde ging zwar
+auf Organismen zurück, die diesen produzierten – war aber ein Desaster für die anderen Organismen
+der damaligen Zeit. Sauerstoff ist schlecht für Leben, wie wir es kennen.» Zugleich fügt er aber erläuternd
+hinzu: «Wir wissen aber auch, dass nur Leben selbst grössere Mengen an Sauerstoff erzeugen kann.»
+_Quelle: http://de.sott.net/article/23623-Mars-Bislang-direktester-Beleg-fur-die-einstige-Sauerstoff-Atmosphare_
+
+### Plastik: Studien zeigen, dass Speisefische und Pflanzenfresser voller Mikroplastik sind
+
+_Doro Schreier; Netzfrauen; Mo, 18 Apr 2016 00:00 UTC_
+Weibliche Austern, die dem Mikroplastik ausgesetzt waren, produzierten 38% weniger Eier und die
+Spermien der männlichen Austern waren 23% langsamer. In der Folge hatten die Tiere weniger Nachkommen, die sich zudem langsamer entwickelten.
+
+Mikroplastik ist praktisch überall: Auf der Wasseroberfläche der Ozeane, in Flussmündungsgebieten,
+an Küsten und sogar in den Sedimenten der Tiefsee. Makrele, Kabeljau und andere Speisefische aus
+der Nord- und Ostsee nehmen mit ihrer Nahrung im Meer schwimmendes Mikroplastik auf. Das berichten Forscher des Alfred-Wegener-Instituts (AWI) in Bremerhaven in zwei neuen Studien. Damit zeigen
+sie, dass Mikroplastik nicht nur eine Gefahr für Seevögel, Wale und Lebewesen am Meeresboden darstellt.
+
+
+-----
+
+Es handelt sich um ein globales Problem, wie auch die neue Studie aus Japan zeigt. Fast 80% der japa**nischen Sardellen, die in der Tokyo Bay gefangen wurden, hatten in ihrem Verdauungssystem Plastik -**
+**müll. Die Forschungsgruppe von Professor Hideshige Takada von der Tokyo University of Agriculture**
+and Technology zeigte sich beunruhigt über das besorgniserregende Ausmass der Verschmutzung in
+den japanischen Gewässern. Das Team untersuchte 64 gefangene Sardellen und fand 150 Mikroplastik partikel oder Kunststoffteile bis zu 5 Millimeter im Verdauungstrakt von 49 Sardellen.
+Auch aus den USA kommt eine aktuelle Nachricht: Eine Studie von Environmental Science & Technology
+stellt fest, dass jeden Tag 8000 Milliarden Mikrokügelchen die Gewässer in den Vereinigten Staaten
+verschmutzen. Diese beunruhigende Statistik wirft die Frage auf, welche Auswirkungen solche massive
+Mengen von Mikroplastik auf die im Wasser lebenden Tiere hat.
+Erst kürzlich erschien ein Artikel: ‹Mehr Kunststoff, weniger Austern?› in National Geographic Meerblick.
+Der Artikel befasst sich mit den negativen Auswirkungen durch Mikroplastik auf Krebs und andere
+Filtrierer. In einer Studie untersuchten Forscher aus Frankreich und Belgien Austern. Dazu steckten sie
+eine Gruppe der Tiere in Wassertanks mit Mikroplastikteilchen, eine andere Austern-Gruppe in sauberes
+Wasser. Dann sahen sie sich an, wie sie sich entwickelten. Das Ergebnis überrascht wenig: Die Austern,
+die im Plastikwasser lebten, pflanzten sich weniger fort. Zu Beginn des Experimentes hatten sie knapp
+20 Prozent weniger Nachwuchs, nach zwei Monaten fehlten im Vergleich rund 40 Prozent der Nachkommen. Die Forscher gehen davon aus, dass das Plastik die Austern vergiftet.
+«Ihre Eier und Spermien waren deutlich kleiner als die der Tiere im sauberen Wasser.»
+In Indien versucht die National Green Tribunal (NGT) ein Verbot der Verwendung von Mikroplastik in Kosmetik- und Körperpflegeprodukte zu erwirken. Die Begründung: Mikroplastik stellt eine Gefahr für das
+Leben im Wasser und für die Umwelt eine extreme Gefahr dar. Zur Zeit wird noch über das Verbot verhandelt, aber daran sehen sie, dass auch in anderen Ländern Mikroplastik als Gefahr erkannt worden ist.
+
+**Neue AWI-Studien zeigen, dass die Plastikreste in Nord- und Ostsee auch von Speisefischen und**
+**Meeresschnecken gefressen werden.**
+In der Fisch-Studie untersuchten die Wissenschaftler den Verdauungstrakt und Mageninhalt von 290
+Makrelen, Flundern, Heringen, Dorschen und Klieschen (Anm. Scharbe/Eisflunder) aus der Nord- und
+Ostsee. Dabei zeigte sich, dass beispielsweise der Hering zu bestimmten Jahreszeiten gar keine Mikro plastikpartikel aufzunehmen scheint. Bei der Makrele hingegen schwankte der Prozentsatz der Tiere
+mit Mikroplastik in den Verdauungsorganen je nach Meeresregion zwischen 13 und 30 Prozent. Damit
+verschlucken Makrelen deutlich häufiger Mikroplastikpartikel als in Bodennähe lebende Fischarten wie
+Flunder und Kliesche.
+In der zweiten Mikroplastik-Studie untersuchte der AWI-Biologe Lars Gutow gemeinsam mit Kollegen
+im Labor, ob Pflanzenfresser wie die Gemeine Strandschnecke Littorina littorea Mikroplastikpartikel bei
+der Futtersuche aufnehmen. Die Schnecken leben zum Beispiel an der Felsküste Helgolands und fressen
+dort Blasentang und andere im Kelpwald wachsende Grossalgen.
+Die Ergebnisse der anschliessenden Untersuchungen im Fluoreszenz-Mikroskop waren eindeutig: «Je höher
+die Mikroplastik-Konzentration im Wasser ausfiel, desto mehr Partikel setzten sich auf der Algenoberfläche fest», berichtet Lars Gutow. «Gleichzeitig konnten wir nachweisen, dass die Schnecken diese Plastik fragmente ganz unbeeindruckt mitfressen. Das heisst im Umkehrschluss: Wir müssen auch die Gruppe
+der marinen Pflanzenfresser in den Kreis der durch Mikroplastik betroffenen Tierarten mit aufnehmen.»
+Bisher hatten sich Meeresforscher bei der Suche nach gefährdeten Arten vor allem auf jene Organismen
+konzentriert, die für die Nahrungsaufnahme den Meeresboden durchwühlen oder Meerwasser filtrieren.
+«Jetzt wissen wir, dass das Spektrum der betroffenen Arten viel grösser ist und wir Lebensräume wie
+die Felsküstenbereiche ebenfalls berücksichtigen müssen», so Lars Gutow. (Studie: ‹Plastic ingestion by
+pelagic and demersal fish from the North Sea and Baltic Sea›.)
+Allerdings sei bisher sowohl für Fische als auch für die Strandschnecke völlig unbekannt, ob und wie
+sich die regelmässige Aufnahme von Mikroplastik langfristig auf die Gesundheit auswirkt. Für den
+Menschen gilt das übrigens auch!
+
+
+-----
+
+#### Mikroplastik auf dem Teller
+Über die Nahrungskette gelangt das Plastik aus dem Wasser oder der Luft sogar auf unseren Teller.
+Zum Beispiel versteckt im leckeren Fischfilet findet es den Weg in unseren Körper. Im vergangenen Jahr
+wiesen Forscher zudem erstmals Mikroplastik im Salz nach. Die Proben aus chinesischem Meersalz
+enthielten bis zu knapp 700 Plastikpartikel pro Kilogramm.
+Auch in Honig, Mineralwasser und Bier fanden Lebensmitteltester bereits die winzigen Partikel. Wie
+sich das Plastik auf unsere Gesundheit auswirkt, ist noch unklar. Die Untersuchungen an Tieren machen
+jedoch deutlich, dass Mikroplastik durchaus gesundheitliche Schäden verursachen kann.
+Mikroplastik nennt man winzige Kunststoff-Partikel, die Zahnpasta, Peelings und anderen Kosmetik- oder
+Pflegeprodukten beigemischt oder zum Beispiel auch aus Synthetiktextilien ausgewaschen werden. Das
+Wasser in Flüssen und Teichen wird nicht nur durch Chemikalien verschmutzt, sondern auch durch sogenanntes Mikroplastik (unter fünf Millimeter grosse Kunststoffteilchen). Sie stammen unter anderem aus
+Kosmetikprodukten, wo sie für Peelingeffekte eingesetzt werden.
+**Sie passieren nach Gebrauch die üblichen Kläranlagen nahezu ungehindert und werden durch Flüsse**
+**in Seen und die Ozeane gespült. Unterwegs reichern sich die Partikel mit Schadstoffen an, da viele**
+chemische Produkte ebenso wie Mikroplastik aus Erdöl hergestellt werden. Wissenschaftliche Unter suchungen haben erwiesen, dass freigesetztes Mikroplastik oft mehr als tausend Mal so stark mit Schadstoffen belastet ist wie das umgebende Wasser.
+**Fische und andere Wassertiere halten die kleinen Plastikkügelchen oftmals für Plankton und fressen**
+**sie, dabei nehmen sie hochkonzentrierte Schadstoffe auf und lagern sie im Gewebe ein. Durch die Nah-**
+rungskette landen diese Umweltgifte wieder auf unserem Teller. Die Profitgier der Industrie tötet millionenfach arglose Wasserlebewesen und vergiftet unsere Nahrung. Das muss unbedingt schnellstmöglich
+gestoppt werden!
+Kosmetikhersteller müssen Plastik als Inhaltsstoff deklarieren. Verbraucher können Kunststoffe in der Liste
+der Inhaltsstoffe an folgenden Bezeichnungen und Abkürzungen erkennen:
+– Polyethylen (PE)
+– Polypropylen (PP)
+– Acrylat (ANM)
+– Ethylen-Vinylacetat (EVA)
+– Polyethylenterephthalat (PET)
+– Polyester (PES)
+– Polyamid (PA)
+– Polyurethan (PUR)
+– Polyimid (PI)
+
+Der BUND hat eine Liste mit Produkten zusammengestellt, die Mikroplastik enthalten.
+Ein Experiment, das sich in jedem Haushalt durchführen lässt:
+Letztendlich besteht ein Grossteil des Problems jedoch im menschlichen Verhalten. Und wie Ramani
+Narayan (Michigan State University, USA) es zusammenfasst: «Die Meeresumwelt ist keine Müllhalde,
+Produkte sollten daher nicht zur Entsorgung im Meer konzipiert werden.» Und: «Produkte wie Microbeads sollten so designt werden, dass sie in Kläranlagen biologisch abgebaut werden können. Sie
+sollten die Meere also niemals erreichen.»
+Eine Erfolgsmeldung gibt es allerdings. Zahnpasta gibt es ab sofort nur noch ohne Mikroplastik. Aktuell
+sind dem BUND deutschlandweit keine Zahnpasta-Hersteller mehr bekannt, die Mikroplastik in ihren
+Produkten verwenden. Gleichzeitig fordert die Institution alle Konsumenten auf: «Sollten Sie über Zahnpasta im Laden stolpern, die noch immer Mikroplastik enthält, bitten wir Sie, dies dem BUND auf
+www.bund.net/mikroplastik zu melden.»
+
+
+_Quelle: http://de.sott.net/article/23452-Plastik-Studien-zeigen-dass-Speisefische-und-Pflanzenfresser-voller-Mikro -_
+_plastik-sind_
+
+
+-----
+
+### Naht das Ende der Supermacht USA?
+#### Auszüge aus dem 544. offiziellen Kontaktgespräch vom 1. September 2012
+_(FIGU-Sonder-Bulletin Nr. 71)_
+**_Billy_** _Aha, dann kann dieses Übel durch die Vernünftigen der USA-Bevölkerung also vermieden_
+_werden. Aber mit den USA kann ja das Ganze nicht ewig so weitergehen, wie es war, ehe Barack_
+_Obama kam, dem das Ende des Irakeinsatzes und die Ausschaltung Osama bin Ladens zu verdanken_
+_war, wie aber auch der humanitäre Riesenfortschritt für das amerikanische Volk in bezug auf die um -_
+_fassende Krankenversicherung, die dieser menschenfeindliche Romney ja wieder abschaffen will. Wenn_
+_ich bedenke, was du mir schon 1975 auf meiner Grossen Reise anvertraut hast, dass die Supermacht_
+_USA nach dem Jahr 2020 gemäss euren Wahrscheinlichkeitsrechnungen ein Ende finden könnte, wenn_
+_sich bis dahin in diesem Staat nichts zum Besseren ändert und wenn weiterhin sich mit den USA Ver-_
+_bündete von diesem Staat distanzieren oder gar zu offenen Feinden werden, dann könnte Obama viel-_
+_leicht der springende Punkt sein, dass dies doch noch verhindert werden kann, oder?_
+
+**_Ptaah_** _Das könnte so sein, doch zu bedenken ist auch, was dann die Obama-Nachfolger weiter_
+_tun und welche Innen- und Aussenpolitik sie betreiben, denn auch dadurch wird bestimmt, was nach_
+_2020 sein wird._
+
+**Billy** _Du hast damals im Jahr 1975 einerseits insbesondere die ungeheuren Widersprüche in_
+_bezug auf die Politik, die Wirtschaft, die Militärmachenschaften, den Verfall der Kultur sowie das sich_
+_steigernde Religions- und Sektenwesen und die schweren kriminellen Handlungen oder gar Verbrechen_
+_der alten Präsidenten der USA angesprochen und gesagt, wenn in diesen Dingen weiterhin in gleichem_
+_und sich noch steigerndem Rahmen gewurstelt werde, dann sei der Zusammenbruch nicht zu vermeiden._
+_Das alles habe ich mir gut gemerkt und kann wirklich verstehen, wenn es sich so ergibt, wie ihr errechnet_
+_habt. Weiter sagtest du damals auch, dass China sich dann, wenn die USA kollabieren, zur nächsten_
+_Welt- und Supermacht mausern könnte, was aber grundlegend bedinge, dass China bis dahin starke_
+_Verbündete um sich schare, weil diese notwendig seien, um als Supermacht genügend Einfluss zu be-_
+_sitzen und überhaupt als solche bestehen zu können. Allein eine ökonomische Macht, wie das China_
+_sei, das von der Weltwirtschaft abhängig sei, so hast du erklärt, genüge nicht, um eine Supermacht_
+_zu sein. Aber Grössenwahn könnte zu katastrophalen Versuchen und zu weltweiten Kriegshandlungen_
+_führen, um eine Supermachtstellung zu erlangen. Wenn nun aber in bezug auf die USA nur einmal der_
+_riesige Staatsschuldenberg von mehr als 16 Billionen Dollar betrachtet wird, der nicht mehr getilgt_
+_werden kann und für den nur noch knapp oder nicht einmal mehr umfänglich die laufenden Zinsen_
+_aufgebracht werden können, dann muss selbst der Dümmste erkennen, wie es um die USA steht. Aber_
+_da steht ja US-Amerika nicht allein da, denn man muss nur an Deutschland, Frankreich, England,_
+_Spanien und Italien usw. denken, die gleichermassen rundum misswirtschaften und billionenschwere_
+_Schuldenberge haben. …_
+
+Es wird immer wahrscheinlicher, dass die USA ihren Supermacht-Status verlieren und sich ihre bisherigen
+Verbündeten immer mehr von ihnen abwenden. Das ist auch der Tatsache geschuldet, dass Obama
+schon längst nicht mehr der Mann ist, der er in seiner ersten Amtsperiode war, denn er ist inzwischen
+offenbar den ständigen Einflüsterungen seines nach Krieg schreienden Umfeldes erlegen und hat einen
+grossen Teil seiner Ideale über Bord werfen müssen. Dass sich der Abstieg der USA immer mehr abzeichnet, das belegt unter anderem der folgende Artikel.
+Achim Wolf, Deutschland
+
+
+-----
+
+### Das Schiff ‹US-Imperium› sinkt
+
+_1. Mai 2016 von Niki Vogt_
+
+
+_1. Mai 2016 (Redaktion) Die Zeugen werden immer zahlreicher, die die Wahrheit über das US-Imperium_
+offen und mutig vor der Kamera sagen. Und sie werden immer hochkarätiger: Der ehemalige US-Army
+Colonel und früherer Sicherheitsberater der Reagan-Regierung, Lawrence Wilkerson, steht in einem Inter view mit Abby Martin bei ‹Telesur› Rede und Antwort. Er berichtet von seinen Einblicken, den Informationen, Strategien und Taktiken, die ein ausuferndes Imperium entwickeln (muss), um die Fäden der Macht
+in der Hand zu behalten. Begriffe wie ‹gut› oder ‹böse› spielen keine Rolle mehr. Wilkerson gewährt
+einen seltenen Insider-Blick auf die Hintergründe US-amerikanischer Kriege, die Manipulation durch Geheimdienste und die Verflechtung der Rüstungsindustrie mit politischen Interessen. Den US-Imperialismus
+sieht er zum Scheitern verurteilt, wie alle ausufernden Imperien, die letztlich von innen heraus durch
+Korruption, kulturellen und moralischen Niedergang, Dekadenz und den Verlust der eigenen Wirtschaftskraft zerfallen.
+Wilkerson war überdies viele Jahre als Berater des US-Aussenministeriums unter Colin Powell aktiv. Heute
+spricht der ehemalige Regierungsbeamte offen über die Korruption innerhalb der politischen Elite und
+deckt auf, wie Wirtschaftsinteressen die US-Aussenpolitik bestimmen.
+
+_Anmerkung: Siehe https://www.youtube.com/watch?v=-LPCauj9LJw; Beschreibung von dort:_
+
+#### Empire Files: Abby Martin interviewt US-Regierungsberater Wilkerson – «Das Schiff ist am Sinken»
+_Veröffentlicht am 26.04.2016_
+Für den RT Deutsch-Kooperationspartner Telesur interviewte Abby Martin den ehemaligen US Army
+Colonel und früheren Sicherheitsberater der Reagan-Regierung Lawrence Wilkerson. Darüber hinaus
+war Wilkerson viele Jahre als Berater des US-Aussenministeriums unter Colin Powell aktiv. Heute spricht
+der ehemalige Regierungsbeamte offen über die Korruption innerhalb der politischen Elite und deckt
+auf, wie Wirtschaftsinteressen die US-Aussenpolitik bestimmen. Wilkerson gewährt einen seltenen InsiderBlick auf die Hintergründe US-amerikanischer Kriege, die Manipulation durch Geheimdienste und die
+Verflechtung der Rüstungsindustrie mit politischen Interessen. Den US-Imperialismus sieht er zum Scheitern
+verurteilt.
+_Quelle: http://quer-denken.tv/das-schiff-us-imperium-sinkt/ (Erlaubnis liegt vor)_
+
+### Leserfragen
+**Billy      ... Dann etwas anderes: Florena hat ja folgende Bulletin-Leserfrage von Herrn Utzinger und**
+meine Antwort dazu abgelichtet und dir übermittelt, damit du sie studieren und dir eine Meinung dazu
+bilden kannst. Und weil auch du mich vor geraumer Zeit gefragt hast, ob ich einmal in bezug auf das
+
+
+-----
+
+gleiche Thema für dein Interesse schreiben könne – aus welchem Grund auch immer –, habe ich mich
+bemüht, auf die Leserfrage und auf deinen Wunsch hin, die Sache etwas ausführlicher anzugehen und
+das Ganze aus meiner persönlichen Sicht als Antwort darzulegen. Das Ganze meiner Darlegungen und
+Ausführungen konnte ich dabei natürlich nicht nur in zwei oder drei Sätzen erklären, folglich alles wenig
+mehr als sieben Seiten in Anspruch genommen hat, wozu ich nun wissen will, ob meine Bemühungen genug
+und ausführlich und klar genug für dich sind, oder ob ich das Geschriebene noch weiter aus arbeiten
+und also noch mit anderen Aspekten ergänzen soll?
+
+### Frage
+Ich wurde durch einen Bekannten auf Ihre Anrufnummer aufmerksam gemacht, der mir viel über Sie erzählt hat, und zwar in völlig anderer Weise, als ich allgemein in Zeitschriften über Sie gelesen habe.
+Es wird so viel über Sie erzählt, wie auch über die Schweiz, und zwar besonders in meinem Kollegenkreis, wenn ich auf Ihre Person und auf die Schweiz zu sprechen komme. Deshalb erlaube ich mir jetzt,
+Sie anzurufen und um Ihre persönliche Meinung zu Verschiedenem zu fragen. Allen öffentlichen Medien
+kann man ja nicht trauen, denn diese sind nur auf Lügengeschichten aus und verschweigen den Lesern
+das, was wirklich ist. Also möchte ich Ihre Meinung zu meinen folgenden Fragen hören, so eben, wie Sie
+sich allgemein bezüglich der Ansichten, Meinungen und Bürgerpflichten, dem Glauben der Menschen,
+den Religionen und Rassen, wie generell auch zur Armee, den Behörden, der Polizei und der Regierung
+in der Schweiz verhalten. Auch interessiert mich, welche Meinung Sie zur sogenannten direkten Demokratie der Schweiz haben, von der man manchmal im Fernsehen hört, wie aber auch, wie Sie die Demokratie der anderen Staaten und deren verschiedene Regierungsformen beurteilen, von denen es auf
+unserer Welt ja etwa vier oder fünf verschiedene Systeme gibt. Und wie verhalten sich die Menschen der
+Schweiz hinsichtlich der Regierung und der Gesetzgebung usw.? Was halten Sie von der Europäischen
+Union und von der Regierungsform der Schweiz, wobei mich auch interessiert, ob Sie mir sagen können,
+wie diese funktioniert und in welcher Form die Schweizer-Politiker ihre Debatten führen?
+H. Utzinger, Deutschland
+
+### Antwort
+Erstens muss erklärt werden, dass es auf Mutter Erde resp. bei den irdischen Staaten mehr als nur vier
+oder fünf Regierungsformen resp. eine ansehnliche Menge Regierungssysteme gibt, worauf ich aber
+ebenso an späterer Stelle noch ausführlicher antworten werde, wie auch in bezug auf die Demokratie der
+Schweiz und anderer Staaten. Erstens möchte ich folgendes sagen bezüglich meiner Ansicht, Meinung
+und meines Verhaltens bezüglich Ihren Fragen in bezug auf die Ansichten, Meinungen, den Glauben,
+die Rassen der Menschen und die Religionen: Grundsätzlich bin ich tolerant und akzeptiere kritiklos,
+welche Ansicht und Meinung ein Mensch hat, welcher Glaubensgemeinschaft, Religion, Sekte, Ideologie
+und welchem Volk, welcher Hautfarbe, welchem gesellschaftlichen Stand und welchem Geschlecht ein
+Mensch angehört. Für mich ist nur wichtig, dass der Mensch ein rechtschaffenes Leben führt und auch seine
+Handlungen, Taten und Verhaltensweisen dementsprechend sind. Selbstredend ist für mich daher auch
+wichtig, dass der Mensch nach den schöpferisch-natürlichen Gesetzen und Geboten lebt und mit den
+Mitmenschen, der Natur und deren Fauna und Flora in Rechtschaffenheit umgeht und auch in Ehrlichkeit,
+Ehre, Freiheit, Frieden, Harmonie und Würde lebt. Also liegt es mir auch fern, Menschen aus irgendwelchen Gründen zu verurteilen, folglich ich nur deren gute oder schlechte resp. positive oder negative
+Gedanken, Handlungen, Ideen, Taten und Verhaltensweisen beurteile und entweder akzeptiere oder
+ablehne und dafür auch offen ohne Wenn und Aber mit meiner Meinung einstehe.
+Was nun an Bürgerpflichten und deren Einhaltung und Erfüllung im Guten und Rechten sowie im Bösen
+und Schlechten anfällt, denen sich die Bürgerinnen und Bürger eines Landes zwangsläufig einzuordnen
+haben – ob sie wollen oder nicht –, das kann nicht ich beurteilen, weil dies nur die Bürgerinnen und
+Bürger des betreffenden Landes können. Und das ist so, weil in den betreffenden Staatsgebilden die
+
+
+-----
+
+Menschen den Gesetzen, Verordnungen und Vorschriften usw. ein- und untergeordnet sind, deren viele
+Verschiedenheiten ich nicht kenne und die ich also auch nicht beurteilen kann. Die einzelnen Staaten
+werden zudem politisch auch unterschiedlich gesteuert und regiert oder missregiert. Es herrschen ja noch
+heute Autokratien, Diktaturen, Monarchien und Republiken und diverse andere Staatssysteme vor, in
+denen nicht selten menschenfeindliche Gesetze, Verordnungen und Vorschriften usw. herrschen, wie
+verschiedentlich gar noch die Todesstrafe und Folter. Und was auf der Erde bezüglich der sogenannten
+‹Regierungsformen› heute existiert, ist teilweise direkt katastrophal zu nennen, wobei der Normalbürger
+keine Ahnung davon hat, was sich hinter diesen Regierungssystemen grundsätzlich versteckt. Genau
+diese Tatsache hat mich dazu veranlasst, einmal nachzuforschen, welche Staatsformen und Regierungssysteme bei den irdischen Ländern und Staaten vorherrschen, folglich habe ich im Internetz dazu bei
+WIKIPEDIA folgende interessante ‹Liste der Staats- und Regierungsformen› gefunden:
+
+#### Liste der Staatsformen und Regierungssysteme
+Diese Liste der Staats- und Regierungsformen verzeichnet alle auftretenden Regierungssysteme
+sortiert nach der heutigen, zweigeteilten Auffassung der Staatsformen, nämlich Republik und
+Monarchie. Da einige Politikwissenschaftler und Staatsrechtler aber teilweise diese beiden Staatsformen auch noch gegenüber diktatorischen Systemen abgrenzen (was nicht unumstritten ist, zumal sich Diktaturen in der Regel formaljuristisch Monarchien oder Republiken nennen), wurden
+ebenfalls die dort auftretenden Regierungssysteme im Folgenden näher erläutert:
+
+#### Monarchie
+Monarchien (gr. Herrschaft des Einen) bezeichnen eine Alleinherrschaft, oder heutzutage treffender
+eine Staatsform, bei der ein Monarch der Souverän ist. Die Exekutivgewalt ist grundsätzlich in einer
+Person an der Spitze konzentriert (bis ins 19. Jahrhundert übte der Monarch die alleinige Staats gewalt aus, vgl. monarchisches Prinzip; heute ist sie nicht notwendigerweise zentralisiert), welche
+entweder durch Erbfolge oder durch Wahl auf Lebenszeit nach tradierten Riten bestimmt ist. Ein
+Monarch ist auf Lebenszeit oder bis er freiwillig abdankt im Amt, kann aber in manchen Staaten
+auch gesetzlich seines Amtes enthoben bzw. zur Abdankung gezwungen werden.
+
+#### Varianten der Staatsform Monarchie
+**Erbmonarchie: Eine Erbmonarchie bezeichnet eine Monarchie, in der die Thronfolge durch die**
+Nachkommen des Monarchen eingenommen wird.
+
+**Wahlmonarchie: Der Monarch wird nicht durch die Erbfolge, sondern durch eine Wahl bestimmt.**
+Im Folgenden werden die möglichen in Monarchien auftretenden Regierungssysteme (ohne die
+diktatorisch-autokratischen Systeme) aufgelistet:
+
+#### Regierungssysteme in Monarchien
+**Absolute Monarchie           Der Monarch besitzt uneingeschränkte Macht; die illegitime, ent-**
+artete Sonderform ist die Tyrannis (siehe unter Abschnitt Diktatur).
+
+**Konstitutionelle Monarchie    Die Macht des Monarchen ist durch eine Verfassung mehr oder**
+weniger beeinträchtigt, er kann nicht absolut herrschen.
+
+**Parlamentarische Monarchie:   Quasi demokratische Monarchie, da der Monarch ausschliesslich**
+repräsentative Aufgaben hat.
+
+**Ständische Monarchie:         Gliederung des Volkes in mehrere ungleich mächtige Stände, Lehns-**
+herrschaft und starke Monarchie (vgl. Mittelalter, Feudalismus).
+
+#### Republik
+Die Republik (lat. öffentliche Angelegenheit) steht in erster Linie für das Gemeinwohl, bzw. für die
+Volkssouveränität. Als die Staatsform, die sich am Gemeinwohl orientiert, gilt sie seit der Fran 
+
+-----
+
+zösischen Revolution als Gegenstück zur Monarchie; geht oft mit der Demokratie einher, muss
+aber nicht (die Römische Republik war beispielsweise nicht demokratisch; parlamentarische Monarchien sind demokratisch, aber keine Republiken).
+
+#### Varianten der Staatsform Republik (schliessen sich gegenseitig nicht immer aus):
+**Aristokratische Republik: Ständestaatliche Herrschaftsform mit Vorherrschaft des Adels (Adelsre-**
+publik) auch im Rahmen eines Senats als Senatsaristokratie oder mit bürgerlich-patrizischer Vorherrschaft (Städtearistokratie) oder klerikaler Priesterherrschaft (Priesteraristokratie). Davon zu
+unterscheiden sind die Arbeiteraristokratie nach Marx et al. und die Geldaristokratie.
+
+**Autonome Teilrepublik:     Autonome Republik, welche jedoch völkerrechtlich einer anderen,**
+also einer Bundesrepublik, angehört. Besonders autonome Sonderform der Unionsrepublik.
+
+**Bundesrepublik:           Föderale Republik, Bund mehrerer teilsouveräner Gliedstaaten.**
+
+**Dschamahirija:            (Dschamahiriyya, Jamahiriyya) Direktdemokratische Islamische**
+Republik der ‹Volksmassen›. Sie wurde von Muammar al-Gaddafi in Libyen erfunden und erstmals
+implementiert.
+
+**Islamische Republik:** Bezeichnung für Staaten, die teilweise nach islamischen Prinzipien
+regiert werden (‹Gottesstaat› auf Grundlage des Koran).
+
+**Konstitutionelle Republik:   Bezeichnung für Republiken, deren staatliche Zwangsgewalt durch**
+eine Verfassung (Konstitution) beschränkt ist und daher den Bürgern Sicherheit und Schutz bietet.
+Diese Art der Republik ist heutzutage in so gut wie jeder Demokratie anzutreffen.
+
+**Rzeczpospolita:** (poln. ‹gemeinsame Sache›) Polnisch-Litauische Adelsrepubliken;
+war jedoch de facto Wahlmonarchie mit ausgeprägter Adelsbeteiligung.
+
+**Tochterrepublik:           Informelle Bezeichnung für Republiken, welche nach dem Vorbild**
+einer anderen aufgebaut wurden, geschichtlich vor allem nach dem Modell Frankreichs oder
+Grossbritanniens.
+
+**Unionsrepublik:           (Teilrepublik) Bezeichnung für autonome (Teil-)Republiken in einem**
+grösseren Verbund (z. B. Bundesstaat).
+
+**Volksrepublik:** (diktatorisch) Selbstbezeichnung, meist für Einparteiensysteme (siehe
+dort), bei denen eine kommunistische Partei autokratisch regiert.
+
+**Einparteiensystem:** (diktatorisch) Diktatorische Herrschaft durch eine Partei, oft in realsozialistischen oder faschistischen Ländern anzutreffen.
+
+**Militärdiktatur:            (diktatorisch) Ausübung der Regierung durch ein militärisches System**
+(siehe auch Militärregierung) sowie entsprechende Mischformen.
+
+Im Folgenden werden die möglichen in Republiken auftretenden Regierungssysteme (ohne die
+diktatorisch-autokratischen Systeme) aufgelistet:
+
+#### Regierungssysteme in Republiken
+**Parlamentarisches Regierungssystem: Die Ämter Staats- und Regierungschef sind getrennt, wobei**
+die Regierung stets vom Vertrauen des Parlaments abhängig ist.
+
+**Präsidentielles Regierungssystem:     (Präsidialrepublik) Republik, in der der Präsident sowohl**
+Staatsoberhaupt als auch Regierungschef ist und in (quasi-)direkter Volkswahl bestimmt wird.
+
+
+-----
+
+**Semipräsidentielles Regierungssystem:** Ursprünglich Begriff für das politische
+System Frankreichs während der Fünften Republik, heute auch auf andere Systeme angewandt.
+Mischtyp aus Parlamentarischem und Präsidentiellem System.
+
+**System der parlamentsgebundenen Exekutivgewalt:   Republik, in der der Präsident sowohl**
+Staatsoberhaupt als auch Regierungschef ist, jedoch vom Parlament gewählt wird und von dessen
+Vertrauen abhängig ist.
+
+**Räterepublik:        Herrschaft wird über vom Volk direkt gewählte Räte ausgeübt.**
+
+**Direktorialsystem:    Republik, in der ein Direktorium die Regierungsgewalt innehat.**
+
+#### Diktatur
+Die Diktatur (lat. vorschreiben, befehlen) ist ein politisches System, das meist zu den Herrschaftsformen gezählt wird, allerdings auch als Staatsform aufgefasst werden kann. Ursprünglich war ein
+(römischer) Diktator ein mit Sondervollmachten legitimierter Befehlshabender über alle Bereiche
+auf Zeit in Notzeiten. In einer Diktatur regiert ein einzelner Diktator oder eine kleine Gruppe ohne
+freie Wahlen; (moderne) Diktatoren kommen anders als Monarchen nicht durch Erbschaft oder
+Wahl an die Macht, sondern illegitim, indem sie eine legitime Staatsform stürzen. Deshalb können
+auch formelle (de jure) Republiken oder Monarchien diktatorisch geführt werden.
+
+#### Varianten der Diktatur Die Herrschaftsausübung kann entweder autoritär oder totalitär sein.
+Einen Sonderfall der Diktatur stellt die aus der kommunistischen Ideologie stammende Diktatur
+des Proletariats, also die Herrschaft der Arbeiterschaft, dar.
+
+#### Regierungssysteme
+**Die nachfolgende Tabelle fasst auch die diktatorischen Regierungssysteme nochmals konkret zu-**
+**sammen:**
+
+#### Diktaturen
+**Einparteiensystem:   Diktatorische Herrschaft durch eine Partei, oft in realsozialistischen oder**
+faschistischen Ländern anzutreffen.
+
+**Militärdiktatur:      Ausübung der Regierung durch ein militärisches System.**
+
+**Personelle Diktatur:  Auf eine Führungsperson fixierte, weniger ideologische Diktatur und damit**
+das Regierungssystem einer diktatorisch, charismatischen Herrschaft.
+
+**Mischformen:        Mischtypen aus den vorherigen Diktaturvarianten.**
+
+**Tyrannis/Despotie:   Entartete Form einer absoluten (Gewalt-)Herrschaft, entspricht einer Auto-**
+kratie bzw. Despotie und ist somit eine illegitime Diktatur und Willkürherrschaft des Monarchen.
+
+Dazu will ich nun etwas sagen, und zwar, dass wohl die meisten Bürgerinnen und Bürger aller Staaten
+der Erde wohl kaum wissen, was sich hinter den Regierungsformen ihrer Heimatländer wirklich verbirgt,
+und das – so sehe ich es – bezieht sich auch auf das Gros des Schweizervolkes, das sie ja auch in ihrem
+Fragenblock ansprechen. Also will ich erst einmal auf die ‹direkte› Demokratie der Schweiz und kurz
+auch auf die schweizerische Regierungsform zu sprechen kommen. Im grossen und ganzen bin ich persönlich mit unserer Schweizerregierung zufrieden und auch dankbar, dass ich in dieser – meiner schönen
+Heimat Schweiz – in Frieden und Freiheit sowie in verhältnismässig guter und grosser Sicherheit leben
+und meine Arbeit verrichten kann. Und das ist eine Sache, die ich sehr gut beurteilen kann, weil ich
+während Jahren in vielen Ländern gelebt und auch in privater Weise für diverse Behörden als Beauftragter
+
+
+-----
+
+in bezug auf Kriminalitätsbekämpfung gearbeitet habe und folglich auch Einblick in die Regierungs systeme, Gesetzgebungen und in die Volksmeinungen und deren Lebensweisen usw. gewonnen habe.
+Also konnte ich mir diesbezüglich gewisse Kenntnisse aneignen und darf auch anerkennen, dass die
+Regierung, und zwar die Gesamtschweizerische Regierung in Bern, wie auch die in den Kantonen und
+Gemeinden, anderweitig aber auch die Armee und die Polizeiorgane in der Schweiz sehr gute Arbeit
+leisten und bei einem Vergleich mit anderen Staaten ausnehmend sehr viel besser dastehen. Zwar gibt
+es gewisse Dinge in Form von Ansichten, Meinungen und Bestrebungen in bezug auf das Parteienwesen,
+das von bedenklich bis sehr bedenklich ist, wie z.B. das heimatverräterische Bestreben gewisser Parteien
+und deren Heimatabtrünnigen resp. deren Mitglieder, die, in Untreue zur Heimat, schmählich in verantwortungsloser Weise die Schweiz an die EU-Diktatur zu verschachern versuchen und damit die gesamte
+Freiheit, den Landesfrieden, die Neutralität und die Landessicherheit gefährden. Es gibt aber auch Fakten,
+die einer ‹direkten› Demokratie widersprechen, wie diese immer wieder unrichtigerweise proklamiert
+wird, denn die Schweiz hat effectiv keine direkte Demokratie, sondern eine sogenannte ‹Halbdirekte
+Demokratie›. Doch davon soll noch an späterer Stelle etwas gesagt werden.
+Nun soll erst noch in bezug auf Ihre Frage etwas gesagt werden, die sich darauf bezieht, in welcher Form
+die Schweizer-Politiker ihre Debatten führen. Dazu sehe ich die Sache in bezug auf Politiker- und Parlaments-Debatten usw. bei der Schweizer-Regierung im Vergleich zu anderen Staaten so, dass diese viel
+zu lasch geführt werden. In einem Halbdirekten-Demokratie-Staat, wie dies eben die Schweiz ist, sollte
+und dürfte bei Politiker-, Parlaments- resp. Regierungs-Debatten keine Laschheit und keine Duckmäuserei
+gegeben sein, sondern es müsste eine offene, ehrliche und direkte Kommunikation und also ein absolut
+offenes Wort herrschen. Wird dieser Weise aber nicht Geltung gegeben, dann herrscht ein Klima der
+Eintönigkeit und des ‹Um-die-Sache-Herumredens› und der Schonung gegenüber den Angesprochenen,
+wie aber speziell eben der Sache vor, die verstandes- und vernunftmässig behandelt und in einen richtigen und wertigen Entschluss und Beschluss gefasst werden muss. Wenn bei solchen Debatten nach der
+Erfüllung eines Harmoniebedürfnisses gestrebt wird, um notwendige Angriffigkeiten gegen andere zu
+vermeiden, die rechthaberisch, besserwisserisch, bedenkenlos und leichtfertig Falsches tun und befürworten, dann ist das völlig falsch. Grundsätzlich sind auch harte Worte harter Wahrheit notwendig, um
+wertbringende Debatten zu führen, und das gilt sowohl in einer Familie wie auch in der Regierung. Wenn
+das aber von Politikern und Parlamentariern nicht akzeptiert wird, eben dass bei politischen Debatten
+auch harte Worte und harte Wahrheit Geltung haben müssen, dann gehören solche Politiker-, Parlamentarier und Regierungsmitglieder weder in politische Parteien noch in ein Behördenamt oder gar in die
+Regierung. Also muss zur Klarlegung aller Dinge, und speziell in bezug auf die Wahrheit, eine zweiseitige
+resp. mehrseitige scharfe Rhetorik im Vordergrund stehen, doch wenn jemand diese aus irgendwelchen
+selbstmitleidigen Gründen usw. nicht akzeptieren kann oder nicht will, dann ist eine solche Person weder
+amts-, politik-, parlaments- noch regierungsfähig. Was nun aber die Laschheit in bezug auf die Kommunikation bei politischen, parlamentarischen und regierungsamtlichen Debatten in der Schweiz betrifft, so
+könnten diese trotz des Harmoniebedürfnisses in einer scharfen Rhetorik geführt werden. Dies eben dann,
+wenn nicht einzelne unfähige Debattenmitglieder mitwirken würden, die in ihrer Meinungs-, Handlungssowie Verhaltensweise rhetorisch angegriffen werden müssen und dies nicht akzeptieren können, weil
+sie selbstherrlich und selbstmitleidig zur Selbstbestätigung einfach unbelehrbar auf ihrem Standpunkt
+beharren.
+Wenn ich nun das Ganze aller irdischen Regierungssysteme betrachte, dann vermisse ich dabei grund sätzlich die Demokratie überall in jenen Ländern – wobei ich die Schweiz wohl mit Recht ausklammere,
+die effectiv eine funktionierende ‹Halbdirekte-Demokratie› ist –, wo sie lügenhaft proklamiert wird, wie
+dies meist bei einer Republik oder Union usw. der Fall ist. Dazu will ich speziell sagen, was ich selbst
+darunter, und zwar speziell unter ‹direkter Demokratie› verstehe, was eigentlich auch staatlich vorge geben darunter verstanden werden müsste. Leider ist aber praktisch in keinem Staat der Erde diese
+direkte Demokratie im ganzen Umfang gegeben, wie auch die Demokratie an und für sich – ausser in
+grösserem Rahmen in der Schweiz. Also kann auch von der Schweiz nicht gesagt werden, dass sie einer
+reinen und damit einer direkten Demokratie entsprechen würde, wie diese grundsätzlich verstanden
+
+
+-----
+
+werden müsste, jedoch nicht in ‹direkter› Weise gehandhabt wird. Leider ist das also auch in meiner
+Heimat, also der Schweiz, so, weil auch hier nur eine Teil-Demokratie herrscht, wobei ein Parteienwesen
+mitspielt, das sich oft bei gewissen Parteiangehörigen mit ihren dummen Feindlichkeiten gegen andere
+Parteien und deren Angehörige abgrundtief lächerlich auswirkt, speziell eben bei jenen, welche die
+Schweiz unter das Joch der ‹Europäischen Union› zwingen wollen, die durch deren Erschaffung sich zu
+einer effectiven Unions-Diktatur entwickelt hat, die ohne offizielles Wissen der EU-Diktatur-Völker gemäss
+der Grundrechte-Charta der Europäischen Union das Töten von Menschen resp. die Todesstrafe bei Aufständen wieder eingeführt hat. Dies wohl darum, weil die EU-Diktatoren offensichtlich schon früh damit
+rechneten, dass in ihrer Union-Diktatur mit der Zeit Aufruhr unvermeidlich sein wird und nur durch Gewalt
+und Todes strafe verhindert oder eingedämmt werden kann.
+Was nun zur Schweiz zu sagen ist: Zwar ist das Schweizervolk und das Bestehen des Landes mit seiner
+Regierung in Bern sowie mit den Kantons- und Gemeinderegierungen im allgemeinen, mit der Bundesverfassung sowie mit der Gesetzgebung usw. gut versehen, doch kann eben leider nicht von einer
+‹direkten› Demokratie gesprochen werden, wie das so gerne fälschlicherweise proklamiert wird. Sein
+müsste nämlich eine direkte Demokratie dermassen, dass in jedem Fall und absolut umfänglich in allen
+politischen, militärischen, sozialen, konzernwirtschaftlichen, regierungsamtlichen und landes- resp. staatssowie volksbelangenden Dingen usw. einzig und allein das Volk resp. die Bürgerinnen und Bürger zu
+entscheiden hätten. Das ist jedoch auch in der Schweiz nicht der Fall, weil eben das eine und andere
+durch die reinen Regierungskräfte – in der Regel eben durch bundes-, national- und ständerätliche Abstimmungsverfahren sowie durch behördliche Verordnungen usw. bestimmt und über den Kopf des Volkes
+hinweg verhandelt und beschlossen wird, wie eben im krassesten Fall z.B. auf Anliegen, die sich ausserhalb eines gewissen Teils des Volkswillens in Brüssel mit der despotischen EU-Diktatur abspielen. Das
+politische System der Schweiz ist zwar derart, dass offiziell das Volk die oberste politische Instanz des
+Staates ist, und folglich ist das politische System der Schweiz von diesem Grundsatz geprägt, demgemäss
+die Schweizerinnen und Schweizer ihre Meinung auf Bundesebene, im Kanton und in der Gemeinde
+kundgeben können, doch bei gewissen Dingen ist das leider nicht der Fall. Das Volk kann auch in Zusammenarbeit mit ihren diversen Parteien unterschiedliche Anliegen, Anträge und Fragen usw. zur Abstimmung aufbringen und effectiv auch darüber abstimmen, wie auch ihre Vertreterinnen und Vertreter
+in die Gemeinde- und Kantonsregierung sowie in den Nationalrat und den Ständerat im Bundeshaus
+wählen. Die Bundesräte selbst dürfen jedoch nicht vom Volk gewählt werden, sondern nur von der ‹Vereinigten Bundesversammlung›, was eben unter anderem auch der ‹direkten› Demokratie widerspricht,
+und zwar auch dann, wenn eine Volksabstimmung die Bundesratswahl durch die ‹Vereinigte Bundesversammlung› bestimmend rechtfertigt. Der Bundesrat (französisch ‹Conseil fédéral›, italienisch ‹Consiglio
+federale›, rätoromanisch ‹Cussegl federal›) resp. Gesamtbundesrat ist die eigentliche und unumstössliche
+Bundesregierung der Schweizerischen Eidgenossenschaft (gemäss Art. 174 der Bundesverfassung), die
+als ‹oberste leitende und vollziehende Behörde des Schweizer-Bundes› regiert. Die männlichen Mitglieder
+werden ‹Bundesrat›, die weiblichen ‹Bundesrätin› und im Volksmund auch ‹Landesvater› und ‹Landesmutter› genannt. Wenn es aus sprachlichen Gründen erforderlich ist, dann wird infolge des Unter scheidens der einzelnen Mitglieder zwischen der Behörde selbst, anderseits aber auch beim Volk, der
+Bundesrat auch ‹Gesamtbundesrat› genannt. Dieser gilt (gemäss Art. 177 Abs. 1 Bundesverfassung) als
+Kollegialbehörde, was einen gewaltigen Unterschied zu allen anderen Regierungen anderer sogenannter
+‹demokratischer› Staaten darstellt. Der Bundesrat der Schweiz besteht aus sieben Mitgliedern, die in
+jeder ihrer bundesrätlichen Tätigkeit gleichberechtigt sind. Die Bundesrat-Mitglieder werden, wie gesagt,
+von der ‹Vereinigten Bundesversammlung› gewählt, und zwar fest auf vier Jahre. In der Schweiz bilden
+die Mitglieder des Bundesrates die oberste Macht der Landesregierung. Sie werden durch rechtliche
+Vorschriften in der Bundesverfassung und im Parlamentsgesetz geregelt, wie auch durch informelle Über einkünfte zur Sitzverteilung wie die von 1959 bis 2003 praktizierte sogenannte Zauberformel, die
+eigentlich grundsätzlich als Konkordanz verstanden werden muss, weil in der Schweiz eine Konkordanzdemokratie herrscht. Unter Konkordanz wird der Wille verstanden, dass möglichst viele verschiedene
+gesellschaftliche Gruppierungen, Minderheiten und Parteien in einen Prozess der Entscheidungen ein
+
+-----
+
+zubeziehen sind und durch einen Konsens resp. durch eine Einigkeit bestimmt werden müssen. Diese
+Konkordanz wird vom Parlament bei der Zusammenstellung des Bundesrats berücksichtigt. Zu sagen ist
+dazu auch, dass diese in der Schweiz während Jahrzehnten zu einer Tradition geworden ist, woraus sich
+1959 auch die sogenannte Zauberformel gebildet hat. Gemäss dieser Formel durften die drei wählerstärksten Parteien, SP, FDP und CVP, je zwei und die viertstärkste, SVP, einen Sitz im Bundesrat beanspruchen. Diese Zusammensetzung blieb bis 2003 unverändert bestehen. Dann wechselte ein Sitz von
+der CVP zur SVP, weil diese zur wählerstärksten Partei aufgestiegen war. Die neue Zusammensetzung
+der 2:2:2:1-Formel wurde teilweise als ‹neue Zauberformel› deklariert oder weiterhin einfach ‹Zauberformel›, die meines Wissens bis 2008 währte. Bei den Gesamterneuerungswahlen des Bundesrates muss
+zwischen diesen und den Ersatzwahlen zur Besetzung von Vakanzen unterschieden werden (Vakanz
+mittellateinisch vacantia ‹das Freisein, Leersein›, und es bezeichnet die Tatsache, dass ein Amt oder eine
+Arbeitsstelle momentan nicht besetzt ist). Eine Gesamterneuerungswahl des Bundesrates erfolgt alle vier
+Jahre, und zwar in der ersten Session nach den Gesamterneuerungswahlen des Nationalrates, wobei
+alle sieben Bundesratssitze vergeben werden. Ergibt sich dabei eine Vakanz, weil ein Bundesratsmitglied
+während der Amtsperiode zurücktritt oder stirbt, dann erfolgt separat eine Nachfolgerwahl, wobei dieses
+Bundesratsmitglied jedoch nur bis zur nächsten Gesamterneuerungswahl des Bundesrates das Amt inne hat. Weiter ist zu sagen, dass jedes Jahr von der Vereinigten Bundesversammlung aus dem Bundesrat
+ein Mitglied in die Bundespräsidentschaft erhoben wird, wie auch der Vize-Bundespräsident für das
+kommende Jahr bestimmt wird. Wie sich in der Schweiz das ganze Prozedere abspielt und wie das
+System funktioniert, kann auch im Internetz bei WIKIPEDIA wie folgend (Anm. Billy: korrigiert) nachgelesen werden:
+
+
+Zur Wahl eines Bundesrates oder einer Bundesrätin versammelt sich am Tag der Wahl die ‹Vereinigte
+Bundesversammlung› im Nationalratssaal, wobei der Nationalratspräsident resp. die Nationalrats präsidentin den Vorsitz führt oder die Stellvertretung durch die Ständeratspräsidentschaft gegeben
+ist. Die weiblichen und männlichen Nationalräte (grosse Kammer des Parlaments der Schweize rischen Eidgenossenschaft mit 200 Mitgliedern) nehmen auf ihren gewohnten Sitzen Platz, für die
+Ständeräte befinden sich die 46 Sitze hinten an der Wand.
+
+Nach der Eröffnung der Sitzung folgt, im Falle eines Rücktritts, eine Laudatio durch den Nationalratspräsidenten resp. die Nationalratspräsidentin und eine kurze Ansprache des abtretenden Regierungsmitglieds. Danach treten meistens die Vorsitzenden der im Parlament vertretenen Parteien
+zum Rednerpult und geben die Wahlempfehlung ihrer jeweiligen Partei bekannt. Weitere Wort meldungen, auch durch die Kandidaten und Kandidatinnen, sind möglich. Danach beginnt die
+Wahl.
+
+Gemäss Parlamentsgesetz erfolgt die Wahl geheim. Für jeden Wahlgang werden andersfarbige Zettel
+ausgeteilt, um Wahlbetrug zu verhindern. Nach jedem Wahlgang wird das Resultat vom/von der
+Vor sitzenden verlesen. Der neue Bundesrat resp. die neue Bundesrätin muss mit der absoluten
+Mehrheit der abgegebenen und gültigen Stimmen gewählt werden. Ab dem zweiten Wahlgang
+scheiden Kandidaten und Kandidatinnen mit weniger als 10 Stimmen aus, ab dem dritten der/diejenige mit der geringsten Stimmenzahl.
+
+Ist ein Kandidat oder eine Kandidatin gewählt, wird er/sie vom Vorsitzenden gefragt, ob die Wahl
+angenommen werden möchte. Ist der/die Gewählte nicht selbst Mitglied der Bundesversammlung,
+wird die Versammlung in der Regel unterbrochen, bis der/die Betreffende anwesend ist. In seltenen
+Fällen kam es auch schon vor, dass ein gewähltes Mitglied Bedenkzeit erbat und deshalb die Sitzung
+vertagt wurde. Erklärt es schliesslich Annahme der Wahl, folgt die Vereidigung unmittelbar.
+
+Der oder die – im Falle einer Wiederwahl – Gewählten treten in Begleitung der Bundesweibel vor
+die Versammlung. Hier legen sie den Amtseid ab. Danach werden sie offiziell als ‹Herr Bundesrat›
+bzw. ‹Frau Bundesrätin› betitelt.
+
+
+-----
+
+#### Drei Ebenen
+Die Politik der Schweiz spielt sich auf drei Ebenen ab: Bund, Kantone und Gemeinden können je
+autonom über gewisse Aufgaben entscheiden. Dabei gilt das Prinzip der sogenannten Subsidiarität:
+Die obere Ebene soll nur tun, was die untere nicht selber tun kann.
+
+**Direkte Demokratie**
+In keinem anderen Land können sich die Bürgerinnen und Bürger in Abstimmungen zu mehr
+Themen äussern als in der Schweiz. Das Volk ist der Souverän des Landes, also die oberste politische
+Instanz. Es umfasst alle mündigen Frauen und Männer mit Schweizer Bürgerrecht – über 5,2 Mio
+Personen.
+
+**Politische Parteien**
+Die Parteienlandschaft der Schweiz ist vielfältig: Manche Parteien sind auf Bundesebene vertreten,
+andere existieren nur in den Gemeinden oder Kantonen. Die Parteien in der Schweiz sind meist
+Vereine, die sich hauptsächlich über Mitgliederbeiträge und Spenden finanzieren.
+
+**Drei Staatsgewalten**
+Die Schweiz ist nach dem Prinzip der Gewaltenteilung aufgebaut. Die Staatsmacht ist in drei unabhängige Bereiche aufgeteilt: Die Legislative (Gesetzgebung), die Exekutive (Vollziehung) und die
+Judikative (Rechtssprechung).
+Parlament (Legislative)
+Regierung (Exekutive)
+Gerichte (Judikative)
+
+#### Mitbestimmungsrechte
+Neben dem Stimm- und Wahlrecht besitzen die Schweizer Bürgerinnen und Bürger auf allen
+Ebenen weitere Mitbestimmungsrechte und können die Politik so massgeblich mit beeinflussen. Sie
+können z.B. eine Initiative oder ein Referendum lancieren oder eine Petition einreichen.
+
+Soweit also einiges in bezug auf das Regierungssystem der Schweiz, folglich ich nun die Frage in bezug
+auf die Demokratie ansprechen will:
+
+**Demokratie,** dieser Begriff stammt aus dem Altgriechischen und bedeutet ‹Herrschaft des Volkes›. Also
+ist die Meinung dieses Begriffs, dass im Gegensatz zu allen anderen Regierungsformen allein das Volk
+die Macht und Möglichkeit hat, bedeutenden Einfluss auf die Politik auszuüben. Diesbezüglich verstehe
+ich auch, dass mit dem ‹Volk› beide Geschlechter, also Frauen und Männer, gemeint sind, resp. alle Bürgerinnen und Bürger des Landes resp. Staates. Ausserdem ist die Demokratie meines Verstehens die einzige
+Staatsform, in der einmal durch das Volk festgesetzte Regeln absolut für alle Staatsbürger und Staatsbürgerinnen und damit auch für Amts-, Militär-, Polizei- und Regierungspersonen usw. gelten, inklusive
+jenen Personen, die für das Erstellen, Ausüben und Wählen der Gesetze, Gebote, Regeln, Verordnungen
+und Vorschriften usw. verantwortlich sind. Dies ist ein wichtiger Unterschied zu allen anderen weltweit
+existierenden Regierungsformen, während es in Diktaturen und absoluten Monarchien usw. nämlich üblich
+ist, dass die erstellten Gesetze, Verordnungen und Vorschriften usw. nicht für die Regierenden, die das
+Land führen, wie teilweise auch nicht für deren Trabanten und Schergen, sondern einzig nur für alle
+weiblichen und männlichen Normalpersonen resp. Normalbürgerinnen und Normalbürger des Volkes
+gelten. Es gibt auf der Welt verschiedene Staaten, die behaupten, dass sie eine Demokratie pflegen würden,
+wobei sie sich teilweise stark unterscheiden. Zwar haben sie alle drei Grundsätze gemeinsam, und zwar
+Freiheit, Kontrolle und Gleichheit, doch sind diese ihn Wahrheit nur teilweise gegeben und zudem eingeschränkt, denn wenn das Ganze betrachtet wird, dann ist erkennbar, dass die Rechte, die restlos für
+alle gelten sollen, eben doch nicht für alle gelten, wenn es z.B. um Strafsachen geht. Tatsache ist nämlich,
+dass in diesen ‹Demokratien› oft Unrecht vor Recht ergeht, wenn Regierende, Amtspersonen, Oligarchen
+
+
+-----
+
+und sonstig ‹öffentliche› oder ‹verdiente› Personen Gesetze brechen oder gegen Verordnungen und Vorschriften verstossen und dann mit ‹Handschuhen angefasst› und aus irgendwelchen ungerechtfertigten
+‹mildernden› Umständen nachsichtig und sozusagen ‹begnadigend› entschuldigt und im Gegensatz zur
+schweren Straftat lächerlich gering und schonend ‹bestraft› werden. Und das geschieht auch mit Schwerverbrechern und Schwerkriminellen aller Art, weil allgemein die schon seit langer Zeit aufgekommene
+Falschhumanität völlig ausgeartet ist. Und das hat zur Folge, dass schwere Straftaten falschhumanistisch
+nur noch viel zu milde geahndet werden, wodurch jede Form von Schwerstverbrechen – wie Mord jeder
+Art usw. – sowie Schwerstkriminalität und auch Leichtkriminalität immer mehr überhandnehmen. Und je
+mehr die Überbevölkerung steigt, desto mehr und weiter breitet sich das Ganze der Falschhumanität, der
+Kriminalität und Verbrechen jeder Art in stetig schlimmeren Formen aus, wobei unlautere Regierungen
+und unzählige Konzerne munter dabei mitmischen, ohne dass es ihnen nachgewiesen werden kann und
+sie deshalb auch nicht zur Rechenschaft gezogen werden. Dabei spielt auch das Gros der käuflichen
+öffentlichen Organe wie TV, Zeitungen und Journale und deren ebenso käufliche Journalisten eine sehr
+grosse Rolle in bezug auf bewusste Falschinformationen, durch die das Volk und die Leserschaft hinters
+Licht geführt, betrogen, in die Irre und zu falschen Ansichten und Meinungen geführt werden. Doch was
+nun die Form der Demokratie betrifft, so ist dazu zu sagen, dass in einer solchen drei grundlegende
+Werte gegeben sein müssen, wie:
+
+**Freiheit:   Diese muss einer klaren Rechtsordnung (Verfassung und Gesetze) entsprechen und einge-**
+halten werden, wie auch eine ausdrücklich erwünschte Meinungsvielfalt garantiert sein muss, wozu unter
+anderem auch die Pressefreiheit gehört (die jedoch schon seit Jahrzehnten leider grösstenteils in praktisch
+allen Staaten durch aussagen- und interviewverfälschende, ehrlose, selbstherrliche, sensationsgeile, wahrheitsverdrehende, käufliche Journalisten und Medien mit Lügen, Sensationsaufmachungen und Verleumdungen schmählich missbraucht wird – oft bezahlt durch unlautere Machenschaften gewisser Firmen,
+Oligarchen, Konzerne, Politiker und gar Regierungen –, wovon natürlich alle rechtschaffenen Journalisten
+ausgeschlossen sind). Zur demokratischen Freiheit gehört auch die Versammlungsfreiheit (gemäss Artikel
+20 Versammlungs- und Vereinsfreiheit, 1. Jeder Mensch hat das Recht auf Versammlungs- und Vereinigungsfreiheit zu friedlichen Zwecken. 2. Niemand darf dazu gezwungen werden, einer Vereinigung anzuge hören.), wie auch die Meinungsfreiheit (gemäss Artikel 19, Meinungs- und Informationsfreiheit, Allgemeine
+Erklärung der Menschenrechte der Vereinten Nationen, vom 10. Dezember 1948: Jeder Mensch hat das
+Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit, Meinungen unangefochten anzu hängen und Informationen und Ideen mit allen Verständigungsmitteln ohne Rücksicht auf Grenzen zu
+suchen, zu empfangen und zu verbreiten).
+
+
+**Kontrolle:  In einer Demokratie müssen alle drei Gewalten, Parlament (Legislative), Regierung (Exekutive),**
+**Gerichte (Judikative), eindeutig getrennt sein, wobei auch das Resultat von freien Wahlen akzeptiert sein**
+muss und das Volk die Kontrolle über die Regierung ausüben kann.
+
+**Gleichheit: In einer Demokratie müssen alle Bürger und Bürgerinnen die gleichen Rechte und Pflichten**
+haben, was auch für alle Amtsträger von Behörden und Regierungen ebenso gilt wie auch für – wie z.B.
+in der Schweiz Bundesrats-, Nationalrats- und Ständeratsmitglieder – Akademiker, Direktoren, Präsidenten
+und Präsidentinnen, Richter, Richterinnen und weibliche und männliche Polizeibeamte und Militärs usw.,
+folgedem vor dem Gesetz alle gleich sind und gleichgestellt sein müssen. (Dieses Gleichgestelltsein wird
+aber dort nicht immer gewährleistet, wo in irgendeiner Form in bezug auf ein ‹Bessergestelltsein› infolge
+Gesellschaftsstand und Titelschleicherei usw. ein gewisser Nepotismus resp. eine Vetterliwirtschaft herrscht,
+was sich leider wie überall in der Welt auch bei der Demokratie eines Landes nicht vermeiden lässt, jedoch
+durch faule Ausreden und Begründungen und Falschhumanität kaschiert wird.)
+
+**Demokratien** existieren meines Wissens in drei verschiedenen Formen:
+1. Die indirekte Demokratie
+
+
+-----
+
+2. die halbdirekte Demokratie
+3. die direkte Demokratie
+Innerhalb dieser Formen existieren teilweise grosse Unterschiede, die speziell aufzuführen wohl nicht
+wichtig sind, wobei aber zu den drei Formen folgendes interessant ist zu wissen:
+
+**Indirekte Demokratie bedeutet, dass das Volk die Abgeordneten (Legislative) wählt, die dann die Regie-**
+rung (Exekutive) wählen. Die Abgeordneten sind es aber, die selbständig über Gesetze und Verfassung
+bestimmen, folglich das Volk nur über einen Umweg über die Gesetze entscheiden kann. Da die Abgeordneten vom Volk gewählt werden, vertreten diese ihre Wähler dann auch im Parlament bei Entscheidungen in bezug auf Gesetze und Verfassung, wobei aber die Abgeordneten bestimmen.
+
+
+**Halbdirekte Demokratie bedeutet, dass das Volk die Abgeordneten (Legislative) wählt, die dann wieder -**
+um die Regierung (Exekutive) wählen. Einflussmöglichkeiten in bezug auf Gesetze und Verfassung haben
+sowohl die Legislative als auch die Exekutive. Das Volk der Schweiz wählt zum Beispiel die Legislative –
+das Parlament –, und zwar in Form des Nationalrats und des Ständerats. Diese beiden Räte vertreten
+ihre Wähler und ihre Anliegen bei der Gesetzgebung und wählen für das Volk den Bundesrat resp. die
+Exekutive. Das Volk kann aber auch direkt Gesetze bestimmen, wie auch über Verfassungsänderungen
+abstimmen, wobei dies über Initiativen und Referenden möglich ist. Also ist die Schweiz eine halbdirekte
+Demokratie.
+
+**Direkte Demokratie bedeutet, dass diese eigentlich in ihrer Reinform in keinen Ländern existiert, wenn**
+von zwei Schweizer Kantonen, Glarus und Appenzell Innerrhoden, abgesehen wird, die durch ihre
+Landsgemeindeform weitgehend eine direkte Demokratie ausüben, wobei diesbezüglich das Volk die
+Abgeordneten und die Regierungsmitglieder direkt wählt und über Gesetze und Verfassung entscheidet.
+Die Kantonsparlamente bereiten nur die Abstimmungen vor und üben nur eine beratende Funktion aus.
+
+
+#### Nachtrag
+**WIKIPEDIA-Erklärung für Nepotismus (lateinisch nepos ‹Neffe› und -ismus), auf Deutsch**
+‹Vetternwirtschaft›, auf Schweizerdeutsch ‹Vetterliwirtschaft› genannt, bezeichnet eine übermässige
+Vorteilsbeschaffung durch bzw. für Familienangehörige, Familienmitglieder bzw. Verwandte. Beispiele für diese Bevorzugung sind die Gewährung von ungewöhnlich günstigen Vertragskonditionen für Verwandte oder die Unterlassung notwendiger Prüfungen bei Verwandten zu Lasten einer
+Institution oder eines Unternehmens, in denen ein Familienangehöriger eine leitende Position
+innehat.
+Im Schwäbischen wird von ‹Vetterleswirtschaft› gesprochen. Es sind keine Familienangehörigen,
+sondern sonstige Personen die Nutzniesser des verschafften Vorteils, spricht man auch von Günstlingswirtschaft (siehe auch Klientelpolitik). Im bairischen Sprachraum heisst es ungeachtet einer familiären Verbandelung ‹Spezlwirtschaft› (‹Spezi› oder ‹Spezl› = bair. ‹Freund›), in Österreich
+‹Freunderlwirtschaft›; im Rheinland spricht man vom ‹Klüngel›. Auch Schiebung kann eine Form
+des Nepotismus sein.
+Der Begriff ‹Vetter› wird heute kaum mehr verwendet. Früher bezeichnete man damit Cousins.
+Vetternwirtschaft bedeutet, dass jemand in einer einflussreichen Position Verwandte (manchmal
+auch Bekannte oder befreundete Personen) mit guten Posten versorgt. Es wird jemand also nicht
+wegen seiner/ihrer Fähigkeiten in eine bestimmte Position eingesetzt, sondern auf Grund der Verwandtschafts- oder Freundschaftsbeziehungen.
+Vetternwirtschaft wird auch als Nepotismus bezeichnet. Das lateinische Wort ‹nepote› bedeutet auf
+Deutsch Neffe bzw. Verwandter. In früheren Zeiten war Vetternwirtschaft weit verbreitet. Manche
+Herrscher und Herrscherinnen setzten Verwandte in hohe Ämter ein und erwarteten, dass diese
+ihnen dafür dankbar sein und ihre Anliegen umsetzen würden.
+
+
+-----
+
+Damit, so denke ich, ist wohl das Notwendigste und Wichtigste gesagt und erklärt in bezug auf Ihren
+Fragenblock und damit auch Rede und Antwort gestanden, was eben einige Zeit für alle Ausführungen
+in Anspruch genommen hat und auch genug sein sollte.
+Billy
+
+**Ptaah     Wie du das Ganze erklärend ausgearbeitet hast, ist ausführlich genug, folgedem ich denke,**
+dass weitere Ausführungen und Erklärungen nicht erforderlich sind, sondern alles verständlich machen
+und auch die genannten Dinge aus deiner Sicht klarlegen.
+
+**Billy      Danke. Ist mir eine Ehre, dir damit dienlich sein zu können. Doch darf ich dich fragen, was**
+du vom Gebaren und Tun des türkischen Diktators Erdogan hältst?
+
+**Ptaah     Er hat sich durch seine Veranlagung tatsächlich schon vor geraumer Zeit zum Diktator ge-**
+wandelt, wobei er in wahnmässiger Form in religiösem, konservativem resp. rückschrittlichem, rückständigem und machtbesessenem Sektierismus gefangen ist. Als Diktator lebt er im Wahn, an keine Rechtsnormen
+gebunden sein zu müssen, folgedem er bestehende und überlieferte Gesetze willkürlich auslegt, zur Anwendung bringt und durch seine Schergen ausführen lässt und damit jenen Teil vom Volk terrorisiert und
+dessen Rechte ausser Kraft setzt, der wider seine diktatorisch-sektiererische Regentschaft, seinen Grössenund Persönlichkeitswahn sowie seine Selbsterhebung ist. Er wähnt sich schon seit geraumer Zeit als unumschränkter Machthaber im Staat, weist bereits erste Züge eines Gewaltherrschers auf, ist despotisch
+veranlagt und strebt nach Alleinherrschaft, Tyrannei und Volksunterdrückung.
+
+**Billy      Aha, etwa in diesem Rahmen schätze ich ihn auch ein. Wenn ich an Hitler, Stalin und all**
+die anderen Diktatoren denke, die jemals auf der Erde über die Völker herrschten und Abermillionen
+von Menschen ermorden liessen und in Not und Elend trieben, eben in ihrer Machtgier und paranoischen
+Psychopathie, dann graut mir. Wenn ich daran denke, was sich in der Türkei regierungsmässig noch
+entwickeln kann, wenn dem Erdogan-Wahn nicht Einhalt geboten wird und die Türkei unter Umständen
+noch Einlass in die EU-Diktatur findet und dann zwei Diktaturen ihr Unwesen in Europa treiben, dann
+steht den europäischen Völkern noch viel Böses bevor.
+
+**Ptaah     Was Erdogan betreibt ist auch meines Erachtens ein böses diktatorisch geführtes Regime,**
+von dem wirklich nichts Gutes zu erwarten ist, folglich sich auch aus den Machenschaften bezüglich der
+Flüchtlingsabmachungen, die zwischen dem Diktator und der wirklichkeits-fremd-naiven deutschen Bundeskanzlerin sowie der EU-Diktatur getroffen wurden, schon jetzt Probleme anbahnen, die alles in Frage
+stellen.
+
+**Billy      Das war ja zu erwarten. Aber etwas anderes: Was denkst du zu meiner Meinung, dass**
+nach meinem Verstehen Terroristen und terroristenartige und folternde Militärs keine Soldaten, sondern
+mörderische Gewalt- und Kriegsverbrecher sind, die auch als solche behandelt und in lebenslange
+Verbannung geschickt werden müssen. Normale Soldaten sind ja in der Regel vom Staat rekrutierte
+Kämpfer, die unter Eid stehen und den Genfer Abkommen resp. Konventionen von 1949 eingeordnet
+sind, die bis heute bestehende Regeln zum Schutz von verwundeten und kranken Militärpersonen zu
+Lande und zur See sowie der Kriegsgefangenen in einzelnen Abkommen niedergelegt wurden. Neu
+wurde in einem vierten Genfer Abkommen auch der Schutz von Zivilpersonen bei bewaffneten Konflikten
+ver ankert. Besonders das dritte und das vierte Abkommen enthalten ausführliche Menschenrechtsgarantien, die zu Gunsten von Kriegsgefangenen und der Zivilbevölkerung beschlossen wurden. Eine einzige
+Ausnahme-Bestimmung, und zwar der gemeinsame Art. 3 der vier Genfer Abkommen, enthält die absolut
+grundlegenden Menschenrechte, die aber nur während internationaler bewaffneter Auseinandersetzungen zur Anwendung kommen.
+
+
+-----
+
+**Ptaah     Du kennst meine Meinung, nämlich dass ich die deine nur bestätigen und befürworten kann.**
+
+### Frage
+Ist es möglich, dass man einiges mehr erfahren kann über die vier Gruppierungen, deren UFOs immer
+wieder gesichtet werden und von denen in den Kontaktgesprächen manchmal die Rede ist?
+U. Kuhnert, Deutschland
+
+### Antwort
+Diese Frage kann mit folgendem Kontaktbericht-Auszug vom 3. Mai 2016 beantwortet werden:
+Billy
+
+**Billy      Danke. Wir haben ja immer wieder einmal in Sachen der sogenannten UFOs und damit**
+auch über die vier Gruppierungen gesprochen, die eben mit ‹unbekannten Flugobjekten› im irdischen
+Raum herumkurven. Und zu diesen vier Gruppierungen gehört ja auch die Gruppe der ‹Erdzukünftigen›,
+die ja aber eigentlich in sich in zwei Gruppierungen einzuteilen sind, wie ihr mir schon zu Beginn unserer
+Kontakte bei Privatgesprächen gesagt habt. Deine Tochter Semjase hat schon darüber gesprochen, wie
+aber auch Quetzal und du selbst, was aber nie in Gesprächsberichten veröffentlicht wurde, weil es eben
+immer privat war. Erst in neuerer Zeit, als ihr bestimmte Beobachtungen gemacht und eindeutige Erkenntnisse gewonnen habt und ihr zu bestimmten Beweisen gelangt seid, hast du offen einiges darüber gesagt.
+Dazu möchte ich nun fragen, inwieweit es erlaubt ist, dass wir fortan zusammen mehr in offener Weise
+darüber reden, wie eben in bezug darauf, dass die Gruppierung der ‹Erdzukünftigen› eben zwei Gruppierungen entspricht und warum ihr sie so und nur als eine Gruppierung nennt, obwohl es ja eigentlich
+deren zwei sind?
+
+**Ptaah     Es bestand dafür eigentlich keine direkte Geheimhaltung, doch war es uns gelegen, so lange**
+nicht offen darüber zu sprechen, ehe wir nicht Genaueres wussten. Als ‹Erdzukünftige› bezeichnen wir
+die eine Gruppierung deshalb, weil sie eine effectiv erdzukünftige ist resp. in fernerer Zukunft auf der
+Erde existiert und durch Zeitüberbrückungen in die heutige Zeit kommt.
+
+**Billy      Pardon, mit Zeitüberbrückungen meinst du wohl Zeitreisen, wie wir dazu sagen? Dann sind**
+mit ‹Erdzukünftige› in diesem Fall jene Erdlinge der fernen irdischen Zeit gemeint, die bereits in ferner
+Zukunft auf der Erde leben und durch die Möglichkeit ihrer Zeitreisetechnik mit ihren verschiedenartigen
+kleinen und grossen futuristischen Fluggeräten in unsere Gegenwart kommen. Dies tun jedoch auch die
+anderen ‹Erdzukünftigen›, die in einem bestimmten unterirdischen Gebiet ihr Staatswesen haben und
+über eine allgemeine futuristische Technik und so auch bezüglich von Fluggeräten besitzt. Diese Fluggeräte, die ich eben eurem Sinn gemäss so nenne, sind für die heutige Zeit und die irdisch-technische
+Entwicklung eben völlig futuristisch resp. fortschrittlich, innovativ, progressiv, richtungsweisend, der gegenwärtigen Zeit voraus und also zukunftsweisend usw. In bezug auf diese zweite Gruppierung, die ihr auch
+‹Erdzukünftige› nennt, ist zu sagen, dass diese ‹Erdzukünftigen› jedoch nicht aus der fernen Erde-Zukunft
+stammen, auch keine direkte, jedoch indirekte sehr ferne Nachkommen von Ausserirdischen sind, die
+tief-unterirdisch unter der Erdoberfläche lebende Menschen sind, die mit ihren futuristischen Fluggeräten
+ebenfalls im irdischen Luftraum herumkurven, wie ihr mir erklärt habt. Und dies geschieht sehr oft, und
+zwar interessanterweise am häufigsten in der westlichen Hemisphäre, die wir als gedachte westliche
+Erdhalbkugel geografisch eben mit diesem Begriffe bezeichnen, und zwar als Gegenstück zur östlichen
+Hemisphäre resp. Erdhalbkugel. Die beiden gedachten Erdhalbkugeln resp. Hemisphären werden,
+wenn ich mich richtig erinnere, durch den 0°-Referenzmeridian bei Greenwich und den sogenannten
+Antimeridian bei 180° getrennt. Demgemäss gehören die Gebiete westlich von London, Westafrika und
+die gesamten Gebiete von Nord- und Südamerika, Patagonien, Grönland und Kanada zur westlichen
+
+
+-----
+
+Hemisphäre, wo eben die meisten Sichtungen von verschiedenartigsten kleinen und grossen und gar
+riesigen UFOs resp. futuristischen Flugobjekten der ‹Innerirdischen› in Erscheinung treten. Interessieren
+würde mich, warum das so ist, denn in der östlichen Hemisphäre werden solche futuristische Fluggeräte
+resp. UFOs weniger oft beobachtet, eben im Grossteil von Europa, Asien, Australien, Neu Seeland und
+Ozeanien, die zur östlichen Hemisphäre gerechnet werden. Dazu ist eigentlich noch zu sagen, dass im
+Volksmund gemäss der sogenannten Monroe-Doktrin von 1823 die westliche Hemisphäre oft mit der
+‹Neuen Welt› resp. mit Amerika und den benachbarten Inselstaaten gleichgesetzt bzw. durch die Mitgliedstaaten der Nato politisch abgegrenzt wird.
+
+**Ptaah     Was du sagst ist richtig, und die Begründung, warum die innerirdischen und auch die aus**
+der irdischen Zukunft stammenden ‹Erdzukünftigen› besonders in der westlichen Hemisphäre operieren,
+das ist damit zu begründen …, worüber dir jedoch Schweigen geboten ist.
+
+**Billy      Aber warum, das ist dazu die Frage, nennt ihr diese erdinneren Bewohner auch ‹Erdzukünf-**
+tige›, von denen wir ja auch schon oft gesprochen haben und die ihr immer nur in dieser Weise genannt
+habt, ohne eine Erklärung dazu zu geben? Das ist mir einfach nicht klar, wie auch nicht, warum ihr nie
+darüber gesprochen und den Begriff auch nie definiert habt.
+
+**Ptaah     Der Grund unserer Benennung ‹Erdzukünftige› beruht darauf, weil die gesamte Technik der**
+Bewohner des erdinneren Staates einer zukünftigen irdischen Technik entspricht, die erst in kommender
+Zeit ihren Anfang finden und auch erst in fernerer Zukunft Wirklichkeit werden wird. Und dass wir darüber nie in ausführlicher Weise gesprochen und keine Erklärungen abgegeben haben, das lag daran,
+weil du in deiner Zurückhaltung nie danach gefragt, du dich immer daran gehalten hast, unseren Direktiven Beachtung zu schenken. Das haben wir sehr geschätzt, und ausserdem warst du auch nie in einer
+Weise von Neugierde getrieben, die uns in bezug auf unsere Direktiven hätte in Verlegenheit bringen
+können. Und was wir dir jemals erklärten, und zwar auch geheime Dinge, das erfolgte immer aus Notwendigkeit heraus, wobei wir uns aber immer darauf verlassen durften, dass du unter allen Umständen
+das Wort zum Schweigen einhältst.
+
+**Billy      Schon gut, darüber müssen wir ja nicht reden, denn meine Frage hast du ja beantwortet,**
+folglich es nicht mehr braucht. Dann nochmals eine Frage: Sind diejenigen drei, die ich in … kennengelernt habe, wie auch die zwei in …, also Angehörige dieser … gewesen, wie ihr sie bei ihrem richtigen
+Namen nennt? Wenn ja, dann leben sie im unterirdischen Staatsgebilde im Gebiet von …
+
+**Ptaah     Auch das ist richtig, doch darüber besteht Schweigepflicht.**
+
+**Billy      Das habt ihr mir schon oft gesagt, und ich halte mich daran. Aber was wir eben diesbezüglich**
+gesagt haben, das kann offiziell bleiben, oder?
+
+**Ptaah     Wir können auch künftig offen darüber reden, doch es dürfen keine Benennungen, Namen**
+und keine Orte genannt werden. Und es muss auch klar sein, dass wir weiterhin mit diesen Gruppierungen
+in keinerlei Kontakte treten.
+
+**Billy      Wofür ich ja eure Begründungen kenne.**
+
+
+-----
+
+### Oliven sind kleine Kraftpakete und können die Gesundheit fördern
+
+_Epoch Times, Montag, 30. Mai 2016 17:07_
+**Oliven sind viel mehr als nur eine leckere Beilage. Sie haben viele Vorteile, wenn es um die Förderung**
+**der Gesundheit geht. Wie Studien zeigten, helfen die Inhaltsstoffe der Olive gegen Krebs, insbesondere**
+**den des Dickdarms und der Brust.**
+
+_Oliven am Baum; Foto: Sean Gallup/Getty Images_
+
+Oliven sind viel mehr als nur eine leckere Beilage. Sie haben viele Vorteile, wenn es um die Gesundheit
+geht und als solche sind sie ideal um Mahlzeiten wie Salate zu bereichern. In der Tat haben Studien belegt, dass Oliven Inhaltsstoffe haben, die helfen Krebs zu bekämpfen, insbesondere des Dickdarms und
+der Brust.
+Eine Studie an der Universität von Barcelona hat aufgedeckt, dass die Haut der Oliven Maslinsäure enthält, von der bekannt ist, dass sie Krebszellen abtöten und das Wachstum von Dickdarmkrebszellen
+drastisch verlangsamen kann. Eindrucksvoll: Die Konzentration von Maslinsäure in Olivenhaut kann bis
+zu 80 Prozent betragen.
+Die zweite Studie, diesmal gemeinsam von Forschern am katalanischen Institut für Onkologie in Girona
+und der Universität von Granada durchgeführt, hat festgestellt, dass Phenole in extra-nativem Olivenöl
+eine Rolle beim Absterben von Brustkrebszellen gespielt haben, ein Prozess, der ‹Apoptose› genannt
+wird.
+Es ist also kein Wunder, dass Oliven auf der Liste der George Mateljan Stiftung der weltweit gesündesten
+Lebensmittel stehen – für ihre Fähigkeit Krebs zu bekämpfen und andere Vorteile. In einer Beschreibung
+auf der Webseite wird angegeben, dass die «anti-oxidativen sekundären Pflanzenstoffe in Oliven eine
+besondere Fähigkeit haben können, die DNA (Desoxyribonukleinsäure) vor Schäden durch Sauerstoff
+zu schützen – die wichtigste chemische Komponente des genetischen Materials in unseren Zellen.»
+
+#### Oliven bekämpfen hohen Cholesterinspiegel und Entzündungen
+Zusätzlich zur Fähigkeit Krebszellen zu bekämpfen, kann die Gesundheit auch auf andere Weise von
+Oliven profitieren. Schwarze Oliven zum Beispiel haben einen hohen Gehalt an Vitamin E, was für
+Gehirn, Lunge und Blut-Zell-Funktionen lebenswichtig ist. Nach Angaben des National-Institute-of-Health
+kann Lebensmittel wie Oliven zu essen, die einen hohen Anteil an ungesättigten, gesunden Fetten enthalten, dem Körper helfen, die Aufnahme von Vitamin E zu steigern.
+Oliven sind auch ein Weg, die Gesundheit des Herzens zu unterstützen, sowie Entzündungen in Schach
+zu halten. Ihr Gehalt an einfach ungesättigten Fettsäuren spielt eine Rolle bei der Regulierung des
+Cholesterinspiegels, Senkung der schlechten Cholesterine (LDL) und Erhöhung der Guten (HDL). Und nach
+Aussagen der Arthritis-Foundation haben Studien einen Zusammenhang zwischen Olivenöl und Ent zündungen gezeigt; die Verbindungen in Olivenöl können die Entstehung von Entzündungen, ähnlich
+wie Antirheumatika, halbieren.
+Das sind gute Nachrichten, besonders wenn man bedenkt, dass die Einnahme von Antirheumatika zu
+vielen schädlichen Auswirkungen auf die Gesundheit führen kann. Die Mayo-Clinic erwähnt einige Pro
+
+-----
+
+bleme, die durch die Einnahme von Antirheumatika entstehen, wie Mund-Entzündung, Nachtblindheit
+und starke Schmerzen. Eine natürliche, gesunde Option wie Oliven zu essen und extra-natives Olivenöl
+zu verwenden, ist eine viel bessere Alternative, um die Gesundheit in Topform zu halten.
+_Quelle: http://www.epochtimes.de/gesundheit/oliven-gegen-krebs-a1304285.html_
+
+### Niederländische Firma gewinnt saubere Energie aus lebenden Pflanzen
+
+_Publiziert am 28 Juli, 2015 unter Technik; Gute Nachrichten_
+Viele Menschen wünschen sich eine Welt, in der man in Harmonie mit der Natur leben kann und trotzdem
+die Bequemlichkeit und den weltweiten Zugriff auf Nahrungsmittel und technische Innovationen nicht
+missen muss. Man hört doch viel zu oft Nachrichten über das Aussterben von bestimmten Lebewesen
+und Pflanzen, über eine weitere Ölkatastrophe, über ein neues Fracking-Vorhaben und so weiter und so
+weiter.
+
+_© whologwhy/flickr.com (CC BY 2.0)                      © plant-e.com_
+
+#### Wie funktioniert nun das Ganze?
+Bei der Photosynthese produziert eine Pflanze organisches Material. Ein Teil dieses Materials wird für
+das Wachstum der Pflanzen verbraucht. Der grössere Teil kann von der Pflanze nicht genutzt werden
+und wird über die Wurzeln der Pflanze in den Boden ausgeschieden. Um die Wurzeln herum leben
+Mikroorganismen, die das organische Material zerlegen, um damit für sich Energie zu gewinnen. Bei
+diesem Prozess werden Elektronen als Abfallprodukt freigesetzt. Wenn man nun eine Elektrode an die
+Mikroorganismen auf geeignete Art und Weise anbringt, kann man damit Elektrizität ‹ernten›. Das bedeutet, dass die Pflanzen ungestört wachsen und dabei gleichzeitig Strom liefern können.
+Bis jetzt ist diese Technologie noch nicht so weit, dass man damit grössere Verbraucher versorgen könnte,
+aber für das Aufladen von Handys oder zum Betreiben von Lampen reicht es bereits jetzt. Die Strom versorgung im Hauptquartier in Wageningen wird bereits vollständig über den ‹Pflanzenstrom› sichergestellt.
+Man stelle sich folgendes vor: Man schaut aus dem Fenster und sieht draussen eine moderne Welt, alles
+ist grün und die Luft ist rein und der Fortschritt basiert nicht auf der Ausbeutung von ‹Mutter Erde›, dank
+solcher erstaunlichen Projekte, wie es ‹Starry Sky› darstellt.
+
+
+_Alle weiteren Infos findet ihr unter plant-e.com und plantpower.eu._
+_Quellen: ewao.com, plant-e.com_
+_Herzlichen Dank für den Tipp von einer unserer Leserinnen auf Facebook! ;-)_
+
+_Quelle: http://www.gute-nachrichten.com.de/2015/07/technik/niederlaendische-firma-gewinnt-saubere-energie-_
+_aus-lebenden-pflanzen/ (Erlaubnis wurde erteilt)_
+
+
+-----
+
+### Studie weist Unkrautvernichter im Urin vieler Kita-Kinder nach
+
+_Posted on Mai 19, 2016 9:44 pm by jolu; Epoch Times, Donnerstag, 19. Mai 2016 16:54_
+Nach der vom Landesumweltamt NRW vorgelegten Untersuchung lag der Stoff oberhalb der Bestimmungsgrenze – allerdings weit unter dem EU-Grenzwert für die tägliche Aufnahme des Stoffes.
+
+_Protest gegen den Einsatz des Pflanzenschutzmittels Glyphosat._
+_Foto: Axel Heimken/Archiv/dpa_
+
+Das umstrittene Unkrautvernichtungsmittel Glyphosat ist bei einer Studie in Nordrhein-Westfalen im Urin
+zahlreicher Kita-Kinder nachgewiesen worden. Nach der vom Landesumweltamt NRW vorgelegten Unter suchung lag der Stoff oberhalb der Bestimmungsgrenze – allerdings weit unter dem EU-Grenzwert für
+die tägliche Aufnahme des Stoffes. Die ‹Neue Rhein/Ruhr Zeitung› hatte zuerst darüber berichtet.
+Glyphosat ist noch bis zum 30. Juni in der EU zugelassen. Der Unkrautkiller wurde von der WHO vor
+einigen Monaten als wahrscheinlich krebserregend eingestuft. In einer neuen WHO-Studie, die unlängst
+veröffentlicht wurde, heisst es, das Monsanto-Gift sei nicht krebserregend. Derzeit streiten die EU-Mitgliedsstaaten über eine Verlängerung.
+_Quelle: https://wahrheitfuerdeutschland.de/studie-weist-unkrautvernichter-im-urin-vieler-kita-kinder-nach/_
+
+
+### Forscher erschaffen Chimären: Schweine als Organspender für Menschen
+
+_Sputnik; Di, 07 Jun 2016 16:28 UTC_
+Haben jetzt schwerkranke Menschen, die jahrelang auf Spender warten, wortwörtlich ‹Schwein gehabt›? Wissenschaftlern von der Universität Kalifornien ist es gelungen, im Körper eines Borstentieres
+menschliches Gewebe zu züchten, berichtet ‹Zee News›.
+
+_© Flickr/Chris Skitch_
+
+Nach Angaben der Forscher sehen die Chimären, deren DNA in einem frühen Zellstadium verändert
+wurde, wie übliche Schweineembryos aus. Das einzige, was sie von ihren Artgenossen unterscheidet,
+sei die Bauchspeicheldrüse, die vollkommen aus menschlichen Stammzellen bestehe.
+Bislang sei die Schwangerschaft der Schweine, denen solche Embryos eingepflanzt wurden, für Untersuchungszwecke nach 28 Tagen unterbrochen worden. In diesem Stadium sei bereits bestätigt worden,
+dass das Gewebe der Bauchspeicheldrüse tatsächlich aus menschlichen Zellen bestehe.
+
+
+-----
+
+Nun hoffen die Wissenschaftler, dass auf diese Art gezüchtete Organe für Transplantationen geeignet
+sein werden. Allerdings befürchten Kritiker, dass humane Zellen die Schweine beeinflussen und die Tiere
+damit ‹menschlicher› werden könnten.
+_Quelle: https://de.sott.net/article/24423-Forscher-erschaffen-Chimaren-Schweine-als-Organspender-fur-Menschen_
+
+#### Anmerkung: Wieder wird eine Aussage bzw. eine recht weit in die Zukunft reichende Voraussage von
+BEAM bestätigt, und zwar die Sätze 284 ff. vom 251. offiziellen Kontakt am 3. Februar 1995:
+_Auch hinsichtlich der Wissenschaftler ist diesbezüglich nichts vorauszusagen, das von Gutem wäre, denn_
+_zu dieser Zeit werden sie die ersten Mensch-Tier-Genmanipulationen vornehmen und Wesen schaffen,_
+_die als sogenannte ‹Halbmenschen› aus Mensch-Schwein-Kreuzungen entstehen, die dann zu Kampf-_
+_maschinen herangebildet werden, um Kriege zu führen und Arbeiten aller Art im Weltraum zu erledigen._
+_(Quelle: http://www.figu.org/ch/ufologie/kontaktberichte/kontaktbericht-251)_
+Achim Wolf, Deutschland
+
+### Musik – eine wunderbare Form zusätzlicher Therapie
+
+_Posted on Juli 7, 2016 4:32 pm by jolu; von Jacqueline Roussety, Donnerstag, 7. Juli 2016 11:31_
+**Musik bietet die Möglichkeit sich mitzuteilen, innere Welten auszudrücken. Die Musik spielt immer im**
+**Leben eine Rolle – eine heilsame.**
+
+_Foto: fotolia.com/Musik_
+
+Linda Maguire begann nach einer jahrzehntelangen international erfolgreichen Opernkarriere, den
+Gesang in der Gesundheitstherapie anzuwenden. Das begann vor über zehn Jahren mit einer sehr bewegenden Erfahrung, als sie einen Freund, der an Alzheimer litt, im Heim besuchte.
+Sie setzte sich ans Klavier und begann zu spielen und zu singen; plötzlich konnte der Freund ohne Probleme das Lied mitsingen. Seine Gesichtszüge entspannten sich und daraufhin ging Linda Maguire jede
+Woche ins Heim und begann ihre eigene Musiktherapie anzubieten. Sie studierte mit den verschiedensten
+Patienten Lieder ein, von berühmten Evergreens bis hin zur Volksmusik.
+Bereits nach vier Monaten zeigten ihre Probanden bemerkenswerte Verbesserungen in der Wahrnehmung,
+ihrer Aufmerksamkeit, und besonders die oft aggressiven Patienten, die an Alzheimer litten, schienen ge löster und friedfertiger zu sein. Die Musik gab den Alzheimerpatienten ein Gefühl von Macht und Besitz.
+Denn alles hatten sie verloren, um im alltäglichen Leben die Dinge aus eigener Kraft steuern zu können.
+Aber besonders Musik, Noten und Rhythmus werden vom Gehirn besonders verinnerlicht. Deshalb war
+es gerade den Alzheimerpatienten möglich, der Musik zu folgen, und sie konnten sich tatsächlich an
+Lieder erinnern und begannen sofort, diese mitzusingen.
+Mittlerweile wird die Therapie von Linda Maguire sehr erfolgreich überall angewendet, vor allen Dingen
+auch in der Gerontologie, wo es darum geht, besonders alten Menschen noch ein positives Lebens- und
+Körpergefühl zu vermitteln. Viele Studien haben seither bewiesen, dass Musik die effektivsten Verbesserungen bei Schizophrenie, Depressionen und chronischen Schmerzpatienten aufweist.
+
+
+-----
+
+Es ist bestimmt nicht nur das Singen an sich, sondern das Gefühl gebraucht zu werden, in einer Gemeinschaft etwas zu erleben, und besonders bei alten Menschen werden Erinnerungen an die Kindheit wach.
+Diese verschütteten Bilder gilt es durch das Singen sichtbar zu machen, und sie schenken oft mehr Lebens qualität als so manche Medikamente und herkömmliche Therapiemethoden.
+
+#### Singen – eine ganzheitliche Methode
+Beim Singen kommt es zu einer höheren Sauerstoffversorgung, das trägt dazu bei, dass der ganze
+Körper erreicht wird und wieder als Einheit funktionieren kann. Das Gehirn wird mit mehr Sauerstoff versorgt, denn eine permanente Unterversorgung ist eine der Ursachen, die Angstzustände auslösen können.
+Die Wissenschaft konnte nachweisen, dass ein permanenter Sauerstoffmangel im Hirn auch einer der
+Auslöser für Alzheimer und Angstzustände ist.
+Auch werden beim Singen deutliche Verbesserungen in der Herzfrequenz und beim Blutdruck registriert
+und vor allen Dingen kann das Hormon Dopamin nachgewiesen werden. Jenes Glückshormon, das für
+den Melatoninspiegel wichtig ist, um Depressionen vorzubeugen. Sobald die Patienten singen, weisen
+sie auch eine viel bessere Körperhaltung auf. Die Gesichtszüge beginnen sich zu entspannen, angespannte Muskeln werden losgelassen, und dieses positive Gefühl durchzieht den ganzen Körper. Das
+Sich-Aufrichten spiegelt Selbstbewusstsein wider und zeigt: Schaut und hört her, mich gibt es noch!
+Linda Maguire hat im Prinzip nicht wirklich etwas Neues entdeckt, sondern bewährte Traditionen und altes
+Wissen neu belebt. In der chinesischen Sprache ist das Zeichen für ‹Musik› auch die Basis des Zeichens
+für die ‹Medizin›. Schon hier erkannte man die heilsame Wirkung von Rhythmus, Tönen und Melodie.
+
+#### Musik: ‹Der Klang der Fröhlichkeit›
+Nicht von ungefähr singt die Mutter dem kranken Kind ein Lied, um es zu beruhigen und vor allen Dingen
+eine Nähe zu erzeugen, die Sicherheit und Geborgenheit vermittelt.
+Linda Maguire konnte beobachten, dass Autisten und Schlaganfallpatienten sich viel schneller erholten,
+wenn sie immer wieder Lieder sangen, vor allen Dingen in der Gemeinschaft. Denn ihre Gesamtmotorik
+wurde durch das Singen angesprochen und verhilft zur Genesung.
+
+#### Klavier, Violine, Percussion und die klassische Gitarre
+Natürlich werden in dieser Musiktherapie auch verschiedene Instrumente eingesetzt. Denn die verschiedenen Klänge lösen unterschiedliche Reaktionen aus. Die klassische Gitarre besitzt eher weiche Töne,
+während die Violine die hohen Töne anstimmt. In der Musiktherapie geht es um die wiederkehrende
+Verwendung eines bestimmten musikalischen Objekts, das sich auf Dauer zu einem sehr wichtigen
+Bezugspunkt im therapeutischen Kontakt- und Beziehungsaufbau entwickeln kann. Mit der Auswahl des
+Instruments und eines bestimmten Liedes geht es in der Musiktherapie darum, die Herzfrequenz zu senken
+oder zu heben. Soll der Patient eher zur Ruhe kommen oder aus einer Lethargie geweckt werden? Soll
+der Patient sich mehr bewegen, dann ist es wichtig, einen starken Rhythmus zu erzeugen, den Linda
+Maguire gerne über das Klavier nutzt.
+Mittlerweile arbeitet sie, nachdem sie ihren Master in Neurologie abgeschlossen hat, als wissenschaftliche Neurologin und ihre aktive und rezeptive Musiktherapie wird in vielen Fachbereichen angewandt.
+Musik bietet die Möglichkeit sich mitzuteilen, innere Welten auszudrücken. Die Musik spielt immer im
+Leben eine Rolle. Jeder Mensch hat ein persönliches Lieblingslied, Musik kann Änderungen hervorrufen,
+Musik kann beruhigend wirken oder zum Tanzen einladen. All diese Emotionen lassen Dialoge entstehen
+und sind in vielen Therapien unersetzlich geworden.
+_Quelle: http://www.epochtimes.de/gesundheit/ratgeber/musik-gesundheit-a1290635.html bzw. https://wahr-_
+_heitfuerdeutschland.de/musik-eine-wunderbare-form-zusaetzlicher-therapie/_
+
+**_Anmerkung: Bitte beachten Sie hierzu die neue, kostenlose Kleinschrift der FIGU ‹Auswirkungen von guter und_**
+_schlechter Musik› im FIGU-Shop bei https://shop.figu.org/sites/default/files/auswirkung_von_guter_und_schlech-_
+_ter_musik.pdf_
+
+
+-----
+
+### Afrikanische ‹Schwarze Erde›: 700 Jahre alte Bauerntechnik wiederentdeckt
+
+_29. Juni 2016 aikos2309_
+
+_Die Erde in grossen Teilen des subsaharischen Afrika ist sehr karg –_
+_die ‹Schwarze Erde› könnte das ändern_
+
+Die berühmte ‹Schwarze Erde› (Terra Preta) galt lange als verschollenes Erbe von längst ausgestorbenen
+Völkern der Amazonasregion. Denn dort finden sich inmitten des sonst eher kargen Regenwaldbodens
+Flecken mit dunkler, ungewöhnlich nährstoffreicher Erde.
+Man vermutet, dass die präkolumbianischen Bewohner dieser Gegenden schon vor Tausenden von Jahren
+spezielle Kultivierungs-Methoden nutzten, um den nährstoffarmen Boden anzureichern. Welche dies genau
+waren, blieb jedoch unbekannt, weil das Wissen darüber nach der Ankunft der Europäer grösstenteils
+verlorenging.
+
+#### Schwarze Erde auch in Afrika
+Jetzt jedoch haben Forscher in Westafrika ebenfalls Gebiete mit Schwarzer Erde entdeckt. Und nicht nur
+das: Die Bauern in Ghana und im Nordwesten Liberias nutzen noch heute gezielt Kultivierungstechniken,
+die die Entstehung dieser fruchtbaren Böden fördern. Um herauszufinden, worin das Geheimnis der
+‹Schwarzen Erde› liegt, verbrachten die Wissenschaftler mehrere Wochen in den Dörfern der Bauern, unter suchten die Erde und liessen sich die traditionellen Düngemethoden zeigen.
+Ihre Studien ergaben Erstaunliches: Während die normale Erde in diesem westafrikanischen Landstrich
+sehr nährstoffarm und relativ sauer ist, erwies sich die Schwarze Erde als nahezu perfekt für den Pflanzen anbau. Obwohl die Schwarze Erde nur in sehr kleinen Flecken vorkam, lieferte sie den Dorfbewohnern
+rund ein Viertel ihrer gesamten pflanzlichen Nahrung. «Die Schwarze Erde ist der Häuptling aller Böden
+bei uns», erklärte einer der Bauern.
+
+
+#### Lange fruchtbar
+Der Grund für diese enorme Fruchtbarkeit liegt im Nährstoffgehalt der Schwarzen Erde, wie die Bodenanalysen ergaben: «Die Afrikanische Schwarze Erde ist weniger sauer und enthält 200 bis 300 Prozent
+mehr organischen Kohlenstoff und bis zu 26 Mal mehr Biokohle», berichten James Fairhead von der University of Sussex und seine Kollegen. «Diese bleibt sehr lange im Boden erhalten und das ist wichtig, sowohl für die Bodenfruchtbarkeit als auch für die Kohlenstoffspeicherung.»
+Zudem enthält die Schwarze Erde doppelt so viel pflanzenverfügbaren Stickstoff und sogar bis zu 270
+Mal mehr Phosphor. Das Spannende daran: Die Umwandlung des normalen Bodens in die Schwarze
+Erde macht diesen nicht nur sehr viel ertragreicher und fruchtbarer, der Effekt hält auch im Gegensatz zu
+modernen Düngemethoden über Jahrhunderte hinweg an.
+
+#### Asche, Knochen und Pflanzenreste
+Was aber ist das Geheimnis hinter dieser Erde? Das Rezept dafür ist verblüffend simpel: Eine Mischung
+aus Abfällen wird unter die karge Erde gemischt.
+
+
+-----
+
+Eine Komponente der ‹Düngemischung› sind Asche, Kohlenreste und Tierknochen vom Kochen, eine
+weitere sind Rückstände von der Palmölverarbeitung, Reisstroh, Reste von Palmblättern und Früchten und
+weitere Pflanzenabfälle.
+«Diese ständige Zufuhr von nährstoff- und kohlenstoffreichen Ablagerungen führt zu einer anhaltenden
+Bildung der fruchtbaren Schwarzen Erde rund um die Siedlungen», erklären die Forscher.
+Sie vermuten, dass auch die Indios Südamerikas ihre Schwarzerde einst auf ganz ähnlich Weise herstellten.
+«Das Überraschendste daran ist, dass isolierte Bauerngemeinschaften diese Schwarze Erde sowohl in
+Südamerika als auch in Afrika erfunden haben», sagt Dawit Solomon von der Cornell University. «Obwohl
+diese Menschen durch Zeit und Raum weit voneinander getrennt waren, erreichten sie beide etwas, das
+selbst die moderne Landwirtschaft bis heute nicht geschafft hat.»
+
+#### Nachahmung erwünscht
+Nach Ansicht der Forscher könnte es sich lohnen, die simple aber effektive Strategie der westafrikanischen
+Bauern auch anderswo nachzuahmen. Denn sie könnte überall dort helfen, wo karge Böden nur geringe
+Erträge bringen und schnell auslaugen.
+«Diese traditionelle Methode hat das Potenzial, das Leben von Tausenden von Menschen zu verbessern,
+die in einer der ärmsten und von Hunger bedrohtesten Regionen Afrikas leben», sagt Fairhead.
+Gerade im Afrika südlich der Sahara gehören die kargen Böden zu den ertragsärmsten weltweit.
+_Quellen: PublicDomain/natur.de am 17.06.2016_
+_Quelle:_ _http://www.pravda-tv.com/2016/06/afrikanische-schwarze-erde-700-jahre-alte-bauerntechnik-wieder-_
+_entdeckt/_
+
+### Süssstoffe nicht nur schädlich: Sie verändern auch den Geschmackssinn
+
+_Heike Kreuz; Heilpraxisnet; Do, 30 Jun 2016 00:00 UTC_
+**Süssstoffe verändern den Geschmack: Wenn Kindern das Obst nicht süss genug ist**
+
+_© abcmedia – fotolia_
+
+Künstliche Süssstoffe haben eine hohe Süsskraft und kaum Kalorien. Daher können Saccharin & Co. bei
+der Gewichtskontrolle unterstützen. Zudem gibt es Hinweise, dass der Ersatz von Zucker durch Süssstoffe
+bei der Gewichtsabnahme helfen kann.
+Auf lange Sicht und für Menschen, die kein Gewicht verlieren möchten, ist ein regelmässiger Verzehr von
+künstlich gesüssten Produkten aber nicht zu empfehlen. Denn die Aufnahme von Süssstoffen verändert
+die Geschmackswahrnehmung, erklärt Susan Jebb, Professorin für Ernährung und Gesundheit an der
+Oxford Universität in England. Webb sprach sich im Rahmen einer Diskussionsrunde auf dem ‹Cheltenham
+Science Festival› für einen umsichtigen Umgang mit künstlichen Süssstoffen in der Ernährung aus.
+Vor allem Kinder gewöhnen sich rasch an die extreme Süsse kalorienreduzierter Getränke, Süsswaren
+und Desserts. Mit der Zeit steigt das Verlangen nach süssen Speisen. Die natürliche Süsse von Früchten
+wird nicht mehr wahrgenommen, was zu einem verringerten Verzehr von frischem Obst führen kann.
+«Junge Kinder essen gerne Früchte mit Naturjoghurt, bis sie ein mit Zucker oder Süssstoff gesüsstes
+Joghurt probiert haben», gibt Jebb ein Beispiel. Wird die Ernährung umgestellt, findet der Gaumen aber
+zu einem gesunden Geschmacksempfinden zurück.
+
+
+-----
+
+Süssstoffe haben eine 30- bis 13 000mal höhere Süsskraft als Haushaltszucker und kaum Kalorien. Sie
+gelten als Lebensmittelzusatzstoffe und haben daher eine E-Nummer. In der Lebensmittelindustrie ist der
+Einsatz auf bestimmte Produkte begrenzt und beispielsweise für Säuglingsnahrung verboten. aid
+_Quelle: https://de.sott.net/article/24798-Susstoffe-nicht-nur-schadlich-Sie-verandern-auch-den-Geschmackssinn_
+
+### VORTRÄGE 2017
+Auch im Jahr 2017 halten Referenten der FIGU wieder Geisteslehre-Vorträge usw. im Saal des Centers:
+
+**22. April 2017:**
+Andreas Schubiger **Lebenslehre – Erziehung des Menschen, 1. Teil**
+_Zitat aus dem Buch ‹Erziehung der Kinder, Jugendlichen und Erwachsenen› von Billy_
+_(Seite 274): «… erst werden Kinder in die Welt gesetzt und diese dann falsch erzogen_
+_und irrig belehrt, ehe vom Gros aller Eltern begriffen wird, dass sie selbst zuerst der_
+_Erziehung und Belehrung bedürfen, damit sie ihre Nachkommen gut, richtig und ver-_
+_nünftig erziehen und belehren können.»_
+
+Bernadette Brand **Grenzen**
+_Grenzen, Begrenzungen und Vorurteile im eigenen Denken aufspüren und erkennen._
+
+**24. Juni 2017:**
+Pius Keller **Gewohnheiten**
+_Erwünschte Gewohnheiten für den Aufbau der Psyche erlernen, um dadurch die eigenen_
+_Fähigkeiten, Möglichkeiten und wirkliche Selbsterkenntnis sowie Ausgeglichenheit zu_
+_erarbeiten._
+
+Erhard Lang **Von der endlosen Dauer bis zum SEIN-Absolutum**
+_Film und nachfolgende Diskussion._
+
+**26. August 2017:**
+Andreas Schubiger **Lebenslehre – Erziehung des Menschen, 2. Teil**
+_Weitere Erkenntnisse zur Lebenslehre aus dem Erziehungsbuch von Billy._
+
+Christian Frehner **Geisteslehre im Alltag**
+_Anwendung und praktische Beispiele._
+
+**28. Oktober 2016:**
+Michael Brügger **Wie weiss der Mensch, dass er etwas wirklich weiss?**
+_Scheinwissen, Schablonenwissen, Bücherwissen, effektives Wissen usw. Worin besteht_
+_der Unterschied?_
+
+Erhard Lang **Geburt der neuen Persönlichkeit und**
+**Wiedergeburt der unsterblichen Geistform**
+_Film und anschliessende Diskussion._
+
+
+-----
+
+-----
+

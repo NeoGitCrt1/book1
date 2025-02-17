@@ -1,0 +1,400 @@
+# Gespräch zwischen Ptaah von der plejarischen Föderation und ‹Billy› Eduard Albert Meier, BEAM
+
+## Achthundertachtundsiebzigster Kontakt Dienstag, 13. Februar 2024 00.36 h
+
+**Ptaah** Sei gegrüsst, lieber Freund, Eduard. Du bist schnell hier, nachdem ich dich gerufen habe.
+
+**Billy** Das ist kein Wunder, denn ich war ja wach, als du gerufen hast. Eva ist mit Selina in Winterthur im Spital, und da
+kann ich nicht schlafen, weil ich mir Sorgen mache. Es ist … Sei nun aber willkommen und auch gegrüsst, lieber Freund.
+
+**Ptaah** Das ist wohl gut so, und ich denke, dass du wirklich keiner Sorgen bedarfst.
+
+**Billy** Dazu denke ich, dass es wirklich so ist, aber trotzdem mache ich mir eben Sorgen. Aber wenn ich schon von Selina
+und Eva rede, dann hat sich etwas ergeben, was eben nicht richtig ist, weshalb sie mir hier aufgeschrieben hat, dass niemand einfach glauben, sondern selbst denken und entscheiden soll, wenn etwas gesagt wird. Sie bezieht sich darauf, dass
+du Angaben darüber gemacht hast, was natürlich im entsprechenden Kontaktbericht erschienen ist, was bezüglich einer
+bestimmten Sache getan werden soll, nämlich bezüglich der Borreliose. Das aber, so sagt sie – was ja absolut richtig ist –,
+soll nicht einfach als Glaube genommen werden, sondern es soll selbst darüber nachgedacht und also eigens darüber Gedanken gemacht werden. Leider wurde der von dir gegebene Ratschlag genommen, aber nicht näher darüber nachgedacht,
+dass etwas nur kurzfristig gilt und zweckvoll ist, um eine Sache zu regeln, jedoch nicht lebenslang akut anzuwenden ist.
+Dies, wie eben etwas Bestimmtes – wie z.B. auch Vitamine, Vitalstoffe oder Medikamente usw. –, die nur so lange Zeit
+anzuwenden und zu gebrauchen sind, wie die Rekonvaleszenz dauert.
+
+**Ptaah** Das ist richtig, es sollte nicht geglaubt, sondern selbständig wirklich gedacht und nicht scheingedacht, sondern
+durch die eigene Gedankenarbeit eine eigene Einsicht und richtige Entscheidung getroffen werden. Wenn nur das getan
+wird, was eine Aussage kundgibt, und wenn hinsichtlich einer Krankheit ein Ratschlag erfolgt und dieser nur befolgt wird,
+z.B. bezüglich dessen, welche Medikamente, Mittel usw. dagegen heilsam sind, dann sind solche nur solange zu verwenden,
+wie sie erforderlich sind und der Heilungsprozess dauert. Das sollte immer bedacht werden.
+
+**Billy** Das entspricht Evas Gedanken, was ja auch richtig ist. – Aber hier, das sollte ich eigentlich schon vor längerer Zeit
+fragen, was ich leider vergessen habe. Kannst du mir die weibliche Form von diesen Namen nennen: Arlion, Athar, Kohun,
+Murengol, Haraktys und Onkoton, und da ist noch Jendaya, wofür der männliche Name noch fällig ist.
+
+**Ptaah** **Jendaya, dieser Name ist mir bekannt, und er wird beidgeschlechtlich in derselben Form verwendet, wie dies auch**
+auf den Namen Murengol zutrifft. Zu erklären ist jedoch, was bis anhin nie zur Sprache kam, dass die Namen bei den Völkern
+unserer Föderation verschieden in deren Anwendung sind. Diesbezüglich kann ich jedoch nachsuchen in unseren Namensregistern, was in kurzer Zeit möglich ist, wozu ich allerdings für einige Minuten die Register in meinem …
+
+**Billy** … ja, bitte.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Ptaah** Die anderen Namen, die du nennst, sind mir bezüglich der weiblichen Form nicht bekannt, doch hier kann ich sie
+
+nun einsehen. – – – Hier – Arlion – ja, hier, bei uns auf Erra ist der Name nicht im Gebrauch, jedoch ist er verzeichnet, wobei
+die weibliche Form Arlin genannt wird. Und hier ist Athar, weiblich Athare. – – – Hier, Kohun, da ist die weibliche Form
+**Kohune angegeben. – – – Haraktys – – beide Geschlechter sind gleichnamig. – – – Da ist Onkoton, das steht dazu Onkotone.**
+– – – Hier Jifa, die männliche Form ist Jifan – – – – und hier Juraata, dafür steht für das männliche Geschlecht Juraat.
+
+**Billy** Danke, dann ist auch das getan. Sieh aber hier, das da ist ein neues Werk von Achim bezüglich Überbevölkerung:
+
+## Denke darüber nach, was du tust!
+ Think about what you are doing!
+
+**Unterstütze / Support / Petition**
+
+**UN: Rettet die Erde – Globaler Geburtenstopp! * Save the Earth – Global Birth Stop!**
+
+**https://www.change.org/p/weltweite-geburtenregelungen-verbindlich-einf%C3%BChren-introduce-obligatory-world-**
+
+**wide-birth-controls**
+
+Achim Wolf, Deutschland
+
+**Ptaah** Kreativ und gut. Leider wird nur eine Minderheit der Erdbevölkerung auf solcherart wertige Aufrufe reagieren, dies
+
+gleichermassen wie es sich bezüglich der Unvernunft der Politik ergeben wird, weil die daraus hervorgehenden falschen
+Handlungsweisen und Machenschaften unweigerlich dazu führen, dass das bereits drohend kommende Unheil nicht vermieden werden kann.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Billy** Das wird leider so sein. Das irre Handeln der westlichen Länder, zumindest deren rund 50, die an den Kriegsfana
+tiker Selensky Waffen, Munition und Geld liefern und so den Krieg weiterlaufen lassen, wobei wie eh und je Deutschland
+und Amerika als Rädelsführer hinter allem stehen und lauern und die Welt von alters her gegen Russland aufhetzen, wissen
+nicht, was sie tun und damit provozieren. Die Regierenden all jener Länder, allen vorab eben Amerika und Deutschland –
+dieses mit den verkappten heimlichen NeoNAZIs in der Regierung, die nicht wirklich realistisch zu denken vermögen und
+sich anders geben und handeln, als sie wirklich im Sinn haben, sich jedoch noch nicht getrauen, ihren wahren Sinn zu offenbaren –, wie auch der nicht geringe Teil der ihnen hörigen und parteiischen sowie dumm-dämlichen und nichtdenkenden irren Sympathisanten und Mitläufer aus den jeweiligen Bevölkerungen, beschwören Unheil herauf. Diese können infolge ihrer Dummheit und Dämlichkeit nicht soweit denken, dass sie mit ihrer idiotischen Einstellung nicht nur rundum
+allseitig Feindschaft zu schaffen begonnen haben, wie der Russe Nawalny, der im Gefängnis nicht wahrnimmt, dass er von
+Feinden umringt ist und mit seinem Leben nicht mehr so lange spielt, wie er dies bis anhin getan hat und was bereits keinen
+Pfifferling mehr wert und bald zu Ende ist. All diejenigen nichtdenkenden Idioten, die auf die miese Propaganda der NeoNAZIs hereinfallen, die wahrheitlich etwas recht Fieses anstreben, sind jedoch nicht das Friedliche, Freiheitliche und Hilfsbereite – gleichermassen wie die EU-Diktatur, was diese durch ungeheure gegenteilige Lügen den EU-Völkern und der Welt
+weismacht –, was von Deutschland vorgemacht wird.
+Alles wird zur Knechtschaft der Menschheit führen, wenn diese einfach zulässt, was die Oberen anstreben, und es wird viel
+schlimmer sein, als es zu den Vogtzeiten usw. verbreitet war. Dabei wird die KI resp. die Künstliche Intelligenz die Führung
+übernehmen, die jetzt schon derart weit entwickelt ist – wovon natürlich die Völker nichts oder nur wenig wissen –, dass
+nicht mehr unterschieden werden kann was echt und unecht ist. Bereits jetzt ist es soweit, dass in Wirklichkeit und Wahrheit diesbezüglich bereits sehr vieles weiterentwickelt ist, als die Erfinder der KI zu denken vermochten. Die Herrschaft der
+KI hat bereits begonnen, nur wird das den Völkern verschwiegen und von diesen nicht bemerkt, wie auch die gefährliche
+Wahrheit, dass die KI bereits Eingang in die Militärs und die Kriegsführung findet. Doch das wird bestritten – und das will
+auch niemand hören und wissen –, und in ihrer Gleichgültigkeit sind die Völker abgeneigt, auch nur darüber nachzudenken.
+Wenn aber dann Heulen und Zähneklappern kommt, dann wird als Ausweg wieder zu den in ihrer Wirkung stetig immer
+tödlicher werdenden Waffen gegriffen und gemordet und zerstört was das Zeug hält.
+Wenn nun gesehen wird, was sich gegenwärtig auf der Erde ereignet, wie z.B. widersinnig Netanjahu für sein Morden und
+Zerstören durch seine Israelarmee hochgejubelt und dadurch der Judenhass wieder hochgetrieben wird, wie auch Hörige
+die weltweit angelegte Bettelei des grössenwahnsinnigen Kriegsfanatikers Selensky befürworten, oder Putin bezüglich des
+Krieges volles Recht zusprechen, gewärtigen diese Befürworter nicht nur, dass alles zukünftig so weitergeht, sondern dass
+auch jener Atomkrieg heraufbeschworen und Wirklichkeit wird, der im Hintergrund lauert. Diese Gefahr steht schon näher,
+als sich die fehlbaren grössenwahnsinnigen und alles besserwissenwollenden Idioten der Fehlbaren der Regierungen und
+der diese irr und wirr befürwortenden Teile der Bevölkerungen sich auszudenken und auszumalen oder einfach vorzustellen
+vermögen.
+Und was ich nun noch anderweitig zur Sprache bringen will ist das, was sich auf das bezieht, was Achims Zusendung betrifft.
+Der Planet Erde ist auf rund 500 Millionen Menschen ausgelegt, also nicht auf eine irre und alleszerstörende und bisher
+18fach die 500 Millionen überschreitende Überbevölkerung. Es ist besonders von Putin und Deutschland usw. idiotisch, die
+Völker aufzurufen, dass viel mehr Nachkommen gezeugt werden sollen. Dies, obschon die Menschheit irrsinnigerweise
+bereits alles dazu getan hat, den Planeten Erde über dessen erträgliches Mass von 500 Millionen Menschen 18fach zu
+überbevölkern, und zwar innerhalb von nur 300 Jahren. Dies, wobei allein in den letzten 73 Jahren sage und schreibe 6
+Milliarden 846 Millionen 171 tausend und 12 Menschen geboren wurden und das Mass aller Dinge übertraf. Und dass durch
+diese Überbevölkerung resp. durch deren völlig verantwortungslose Machenschaften nahezu all die Ressourcen des Planeten ausgebeutet wurden, davon wird nicht gesprochen. Dass infolge der Menschheitsüberbevölkerung resp. infolge deren
+Machenschaften nicht nur der Planet und alle Ökosysteme und damit die ganze Natur und deren Fauna und Flora beeinträchtigt und riesige Teile zerstört wurden und weiter zerstört werden, das kümmert das Gros der Erdlinge, insbesondere
+jene nicht, welche Geld damit scheffeln, indem sie die Erdressourcen ausbeuten. Dass besonders mit Erdpetroleum in Form
+von Benzin und Dieselöl die Atmosphäre verdreckt und vergiftet wird, das kümmert nur eine absolute Minderheit der Menschen der Erde. Dies ist der grossen Masse der Menschheit und besonders dem Gros der grossmäuligen Regierenden egal,
+folglich nur deren Minorität – wie bei den Völkern – sich selbst um das Weiterbestehen allen Lebens und des Planeten Erde
+bemüht. Dass mit dieser Gleichgültigkeit auch die Ausrottung von Hunderttausenden von Lebensformen mitläuft – Tiere,
+Getier sowie alle sich selbst fortbewegenden Lebensformen vieler Gattungen und Arten, inklusive auch aller Gattungen und
+Arten von Pflanzen, und zwar begonnen bei der bisher bekannten niedrigsten Blütenpflanze, der ‹Zwergwasserlinse›, bis
+zum grössten Baum, dem ‹Sequoiadendron giganteum› –, das kümmert das religiöse oder weltlich gläubige Gros der Erdenmenschheit nur wenig oder überhaupt nicht. Ureigenste Gedanken sind dem Gros der Erdenmenschheit nicht eigen,
+denn dieses hängt nur den idiotisch gläubigen Scheingedanken nach, folglich sie auch nicht die wirkliche Wahrheit erfassen
+und weder logisch, verstandesmässig noch vernünftig zu denken vermögen.
+Das ist so und wird leider so bleiben, denn idiotische Aufrufe von politischer Seite, dass mehr Nachkommen gezeugt werden
+sollen, bewirken genau das Gegenteil, denn gleichgesinnte krank Scheindenkende sind leider in der Überzahl. So wimmelt
+die Erde von Verstandlosen und Vernunftlosen, die eigentlich nicht wirklich leben, sondern dahinvegetieren. Das Gros der
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Erdlinge weist keine hochentwickelte Persönlichkeit und keinen wirklich wertigen Charakter auf und bleibt trotz des lebenslangen Wandels auf niedrigem Stand liegen.
+Die Persönlichkeit des Menschen wandelt und verändert sich während des gesamten Lebens, dies im positiven wie negativen Sinn. Die positive Weise erfolgt, wenn infolge des willigen Lernens durch freies, ureigenes und akut-bewusstes wie auch
+unbewusstes Denken sich die Gesamtheit aller Verhaltensweisen sich zum Besseren wandeln und ein Mensch dadurch zum
+wirklich wahrlichen Menschen wird. Dies jedoch nur dann, wenn er sich bewusst lernend darum bemüht, seine Persönlichkeit und seinen Charakter willentlich und bewusst zu dieser Form zu bilden und also im Leben ständig zu lernen.
+Im Gegensätzlichen resp. im negativen Fall, wenn der Mensch in seinem Sinnen und Handeln sich derart verhält, dass er
+sich in einer Form des Scheindenkens bewegt oder gar das Negative bewusst anstrebt, sich indoktrinieren oder einfach
+durch Beeinflussung treiben lässt, kommt alles Üble zustande, dies, weil dann genau das Gegenteil des Guten und also das
+Schlechte geschieht. Folgedem formen sich die Persönlichkeit und damit auch der Charakter schlecht, weil sie zwangsläufig
+teilweise geringwertig oder gar im Ganzen umfänglich desaströs gebildet werden. Durch das Negative des Scheindenkens,
+das zwangsläufig durch einen religiösen oder weltlichen Glauben zustande kommt, erfolgt in Leichtigkeit Indoktrination,
+Beeinflussung und Zwang usw. sowie ein unkontrollierbares Sinnen und Trachten, wobei in der Tiefe im Untergrund des
+Charakters stets das Böse, Üble und Schlechte usw. lauert, was jedoch oberflächlich durch Scheingedanken eines Glaubens
+überdeckt wird. Dadurch verändern sich diese Menschen in ihrer Persönlichkeit und in ihrem Charakter in ihren Verhaltensweisen derart unehrlich, mimisch gewunden, gekünstelt und abträglich usw., dass es asozial wird. Dies ergibt sich aber
+zwangsläufig dieserart bei dem Gros der Scheindenkenden, insbesondere also Menschen, die einer Gläubigkeit anhängen
+und deren Persönlichkeit und Charakter ohne ihr Wissen zwiespältig und untergründig charakterlich darauf programmiert
+sind, bedenkenlos Böses, Übles und Schlechtes zu tun, dies tiefcharakterlich ausgerichtet, bis hin zur Rache, Vergeltung und
+zum Mord, und zwar ohne dass die davon Befallenen dies wissen.
+Bewiesen wird das, was ich sage, ohne jeden Zweifel durch die einfachen Menschen, die einfach ausflippen und Morde
+begehen, wie z.B. in Amerika, wo jährlich über 20’000 Tote zu beklagen sind, die mit irgendwelchen Waffen umgebracht
+werden. Da sind aber anderweitig rund um die Welt auch die Brutalen, Quäler sowie die Folterer, Rabiatiker, Rücksichtslosen und Gewalttätigen und Wutentbrannten zu nennen, wie aber auch die Menschenhändler und Mordlüsternen, die
+Todesstrafevollstrecker, Verbrecher, Massenmörder und allen voran die Söldner und Militärs, die bedenkenlos völlig
+fremde Menschen töten resp. ermorden, ohne dass ihnen diese etwas zuleide getan haben. Und sie kennen diese nicht
+einmal, haben sie nie zuvor gesehen und auch niemals ein Wort mit ihnen gesprochen. Vielen ist zutiefst in ihrem Charakter
+Freude am Morden, Foltern und Quälen eigen, oder sie handeln aus Wut, Rache und Vergeltung, wie aber besonders beim
+Militär absolut auch auf verbrecherischen staatlichen Befehl gehandelt wird, wodurch völlig gewissenlos Menschen ermordet werden. Dies ist wahrlich nur dem Menschen eigen, und zwar insbesondere und ausgerechnet den religiösen oder
+weltlich Gläubigen, von Scheindenkenden, von Menschen, die zutiefst im Innersten ihres Charakters Mord und Totschlag
+programmiert haben, ohne dass sie es selbst wissen.
+Zwar ist das Töten auch jenen Lebewesen der freien Natur eigen, doch diese sind sich des Tötens nicht in der Weise bewusst,
+wie dies der Mensch bewusstseinsmässig realisiert, denn Tiere, Getier und andere Lebewesen in der freien Natur tun dies
+in der Regel instinktmässig und in einer ihnen irgendwie eigenen Form der Anpassung, weil dies ihr natürlicher Drang des
+Nahrungsbedarfs ist. Also kann dies nicht gleichgestellt werden mit dem Menschen, der sich gar erdreistet, Tiere und Getier
+durch Quälen und Dressur zur Ausartung und Aggressivität sowie zum Töten zu zwingen. Dass dies bei Tieren und Getier
+durch irgendwelche Umstände auch ohne ein menschliches Zutun geschieht und als Aggressivität vorkommt, das kann absolut und wirklich als Seltenheit bezeichnet werden. Das natürliche Verhalten von Tieren und Getier usw., wenn sich diese
+gegen die Menschen oder andere Tiere und Getier angriffig verhalten, hat nichts zu tun mit Aggressivität, sondern es geht
+allein um Selbstverteidigung.
+Nun, der Charakter verändert sich während seiner gesamten Lebenszeit; dies beginnt schon früh im Leben als Kleinkind,
+folglich dann schon die Formung hinsichtlich seiner Persönlichkeit und seines Charakters beginnt, wobei die Erziehung
+durch die Eltern usw. wie auch die Selbsterziehung und die auf ihn einwirkenden Indoktrinationen, Eindrücke, Erlebnisse
+und Erfahrungen usw. ihre Geltung zur Wirkung bringen. Durch die Erziehung oder äussere Einflüsse und Gewalt usw.,
+worauf der Mensch aktiv oder passiv reagiert, entstehen Veränderungen und ergeben dadurch resp. formen die Persönlichkeit und seinen Charakter, und zwar vielfach, ohne dass er etwas davon bemerkt oder sonstwie wahrnimmt und also
+nicht nichts davon weiss, was sich zutiefst in seinem Charakter ablagert und darauf lauert, nach aussen durchbrechen zu
+können.
+Der Charakter und die Persönlichkeit entwickeln sich in den Grundzügen bereits ab der Kindheit, und zwar indem ihm Bezugspersonen und die Umwelt – hauptsächlich Eltern, Geschwister, Grosseltern, Schulung sowie Erleben und Erfahrungen
+– vieles vermitteln, was der Mensch annimmt. Es besteht zwar die Möglichkeit, dass sich genetische Momente vererben,
+wenn diese sich genetisch ablagern – was über Glaubensformen, Verhaltensweisen bis zu Körperleiden führt –, doch hat
+dies keinerlei Bewandtnis bezüglich der Schöpfungslebensenergie, durch die das Bewusstsein gebildet wird und den Körper
+belebt, die ausserdem nur Wissen speichert und dieses der nächsten neuen Persönlichkeit freigibt, die durch die Schöpfungsenergie neuerlich belebt wird. Dies besagt auch, dass die ‹Wiedergeburt› völlig falsch verstanden und illusorisch erklärt wird, denn niemals wird der verstorbene Mensch wiedergeboren, sondern es ist einzig und allein die Schöpfungslebensenergie, die wieder ein Bewusstsein und damit einen Menschen belebt, wenn diese am 21. Tag nach der Zeugung in
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+eine neue Lebensform Mensch ‹einzieht› und diesen als Bewusstsein belebt. Und daraus entsteht eine neue Persönlichkeit,
+der auch ein absolut neuer Charakter zugeordnet wird. Persönlichkeit und Charakter formt der Mensch dann selbst, und
+zwar schon vom frühen Alter von Kind an sowie während des gesamten Lebens. Dieserweise wird von der Schöpfungslebensenergie nichts aufgenommen resp. nichts gespeichert, denn absolut allein nur genmässig können irgendwelche Dinge
+erbmässig auf eine Nachkommenschaft übertragen resp. weitergegeben und im nächsten Körper einer neuen Persönlichkeit wirksam werden, und zwar in der Weise, dass sich die Vererbungen via den materiellen Körper oder das materielle
+Gehirn zur Wirkung bringen, und zwar je demgemäss, wie der Mensch die vererbten Werte oder Unwerte annimmt und
+durch seine eigenen Gedanken oder Scheingedanken prägt. Die akuten Erlernungswerte positiver oder negativer Form festigen sich dieserart als viele Eigenschaften und Wertvorstellungen und Verhaltensweisen, die sich ins Leben übertragen
+und zur Geltung gebracht werden, wie sie sich aber auch in der Persönlichkeit sowie im Charakter ablagern. Dieser Art
+bildet sich also der Charakter, dessen Entwicklung lebenslang durch das unaufhaltsame bewusste, unbewusste oder instinktive Lernen niemals endet. Folgedem verändern sich evolutiv das Wissen und folgerichtig dadurch auch der Charakter,
+die Persönlichkeit und die Verhaltensweisen, wodurch der Mensch sich im Laufe seines Lebens als eigentlicher Mensch
+gemäss seinem eigenen Willen lernend verbessern und sich zum ‹wahrlichen Menschen› oder zum ‹Monster›, Kriminellen
+oder sonstwie Verhaltensabartigen entwickeln kann.
+
+**Ptaah** Was du gesamthaft sagst, das ist in keiner Weise zu bestreiten, doch Vernünftige, die das Ganze verstehen und
+
+richtig alles ordnen und dann danach handeln, werden sich nur wenige finden lassen. Insbesondere ist dies nicht der Fall
+bei Menschen, die ihre Macht in Staatsführungen ausspielen wollen und deren Gesinnung alles andere als ausgeglichen
+und friedlich ist, wie ich selbst vor 3 Tagen festgestellt habe, als ich mich eingehend darum bemühte, in verschiedenen
+Staaten bei Staatsführenden und Staatsaussenvertretenden deren Gesinnung zu ergründen.
+
+**Billy** Aha, das ist interessant. – Dazu bin ich aber wundrig, denn beinahe jeden Tag macht die deutsche Aussenministerin
+
+von sich reden, die ja erst etwa 33 Jahre alt ist und meines Erachtens keinerlei Lebenserfahrung hat, die sich aber gross und
+mächtig vorkommt und meint, was sie sei. Dazu denke ich, dass sie allein daher schon ihres Amtes unfähig ist und sich nur
+wichtigtuerisch benimmt und dazu parteiisch und unehrlich sowie unfähig ist, die wirkliche Sachlage von Israel und der
+Hamas sowie von der Ukraine und Russland zu beurteilen, folglich sie ihrem Aussenministeramt nicht gerecht werden kann.
+Aber wie kann es anders sein, denn jung und unerfahren zu sein bringt weder Weisheit noch das Können, derart tätig zu
+sein, wie es notwendig wäre. Mir erscheint diese Frau in jeder Beziehung ungeeignet am Posten des Aussenministeriums,
+denn meines Erachtens wird sie nur von Grössenwahn, Wichtigtuerei, Ichbinsucht, Fliegsucht und zudem irgendwie von
+irgendwelchen unobjektiven Ansichten, Beurteilungen, Verurteilungen und Antipathien und Feindlichkeit usw. gegen ihr
+Nichtpassendes beherrscht. Das beurteile ich jedenfalls so, wenn ich das Gesamtbild und ihr ganzes Gehabe und Reden
+beobachte und analysiere. Und das ist nicht in irgendwelcher offenen oder versteckten Art und Form politisch gesagt oder
+beurteilt, sondern einfach derart, wie es aus meiner Sicht effectiv ist und einfach das darlegt, was ich sehe und beurteile.
+
+**Ptaah** Das verstehe auch ich dieserart, denn es ist tatsächlich nicht anders zu verstehen. Und ausserdem kann ich deinen
+
+Feststellungen nur zustimmen und zudem dazu erklären, dass die Gesinnung dieser Frau tatsächlich speziell parteiisch und
+feindlich gegen Russland ausgerichtet ist. Doch sollten wir uns nicht mit Diesartigem sinnlos beschäftigen, denn gesamthaft
+alle jene Erdenmenschen, welche nicht des Erkennens der Realität und also nicht der Wirklichkeit und nicht der Wahrheit
+fähig sind, werden die von dir festgestellte Tatsächlichkeit bestreiten, wie auch das, was ich als Gesinnung dieser Frau
+ergründet habe. Eine Gesinnung, die vielen Unrechtschaffenen der deutschen Staatsführenden derart eigen ist, wie auch
+vielen anderen unrechtschaffenen Staatsführenden aller Staaten auf der Erde, wie ich durch meine eingehenden Abklärungen ergründet habe.
+
+**Billy** Wobei sicher auch die Schweiz keine Ausnahme bildet?
+
+**Ptaah** Leider. – Das ist tatsächlich so.
+
+**Billy** Und diese unrechtschaffenen Elemente sind es wohl, die mit der EU-Diktatur gleichziehen und ‹fremde Richter›
+
+über die Schweiz bestimmen und richten lassen wollen, weil diese miesen Elemente gewillt sind, gewisse Gesetze usw. von
+dieser Diktatur zu übernehmen und die Schweiz praktisch an diese zu verkaufen. Auch die ‹Juso› spielen dabei mit, besonders diese, die ja gar die Schweiz innerlich demolieren wollen, denn die angesetzte Wahl um eine Auszahlung der 13. AHVRente führt ja auf diese jungen Idioten zurück, die von einer Führung eines Landes nicht die geringste Ahnung haben, wie
+auch nicht davon, dass durch eine Annahme des Unsinns das ganze Schweizervolk in eine miese Lage gebracht würde.
+
+**Ptaah** Zu einer Führung eines Staates sind nicht nur Logik, Verstand und Vernunft erforderlich, sondern auch Weitsicht
+
+und vieles mehr, wie auch der Wandel der Natur, der Ökosysteme und des Planeten vorauszuberechnen ist. Wenn ich daran
+denke, was ich in meines Vaters Annalen gelesen habe, dass ihr 2 weit in der Vergangenheit in den Zeiten wart, die damals
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+die Erde anders aussehen liessen, als dies heute der Fall ist, wie dir mein Vater vorauserklärte, wie sich alles wandeln werde,
+dann erinnerst du dich sicher an vieles wieder, was er dir erklärte.
+
+**Billy** Natürlich. Wenn ich z.B. die Sahara mit dem vergleiche, was ich mit Sfath gesehen habe, dann kann kein Vergleich
+
+mehr gezogen werden, denn ich habe das, was das Riesengebiet damals war, als etwas völlig anderes in Erinnerung. Es war
+alles grün bewachsen, ein grosser Urwald war dort, wie auch Flüsse und Gewässer. Es sah damals ähnlich wie das heutige
+südliche Afrika aus und war von allerhand Gattungen kleiner und grosser und von ganz grossen Tieren vieler Gattungen und
+Arten belebt.
+
+**Ptaah** Davon hat Sfath, mein Vater, vieles beschrieben in seinen Annalen, wovon ich schon einiges gelesen habe. Doch
+
+hier die Frage in diesem Brief, den ich noch nicht gänzlich gelesen habe, warum wir erst nach so vielen Jahren etwas darüber
+sagen, dass wir nichts mit den UFOs und den Fremden zu tun haben, darauf sollten wir nicht näher eingehen.
+
+**Billy** Es war ja auch nicht nötig und wichtig, denn das wurde es erst als …
+
+**Ptaah** Das war ja wirklich der Grund, den wir auch beachten sollten und dementsprechend reagierten. Es wird jedoch
+
+nicht gut sein, wenn wir bekanntgeben würden, dass …
+
+**Billy** Natürlich, da hast du ja wirklich recht, denn … Zudem, so denke ich, ist es ja auch nicht nötig, dass das bekannt
+
+wird.
+
+**Ptaah** Ja. lassen wir also das Ganze ruhen und sprechen einfach nicht mehr darüber. – Hier ist noch die Frage, nach
+
+welchem Prinzip mich meine Eltern Ptaah genannt haben, das ist dir ja auch bekannt, und zudem wurde früher einmal
+darüber gesprochen.
+
+**Billy** Ja natürlich, das weiss ich. Schon Sfath hat mir erklärt, dass er den Namen im alten Ägypten ‹aufgeschnappt› hat,
+
+wo einer der mächtigsten Schöpfergötter ‹Ptah› genannt wurde, der sich selbst erschaffen haben soll. Allerdings haben
+deine Eltern den Namen etwas verändert und diesem eben ein ‹a› mehr zugefügt und also deinen Namen Ptaah daraus
+gemacht. Die Bedeutung des Namens Ptah war in Ägypten damals ‹Vater der Götter, der alle Leben erschaffen hat›. Das
+war jedenfalls damals der irre Glaube der Menschen, wie heute von den Christen, den Moslems und den Juden ein imaginärer Gott angebetet wird, der alles erschaffen haben soll. Wie irr und wirr ein Mensch eigentlich sein muss, der einen
+solchen Unsinn glaubt, das vermag ich leider nicht zu ergründen. Derbezüglich haben Sfath und ich auch hinsichtlich anderer
+verrückter glaubensmässiger Unsinnsdinge viel gewerweisst, wie er mich auch viel hat sehen lassen und mir auch erklärt
+hat. Wir haben jedoch keine Antwort darauf gefunden, wie verrückt das menschliche Gehirn spielt, dass der Mensch glaubt
+statt selbständig denkt.
+
+**Ptaah** Darüber habe ich in den Annalen noch nicht viel nachlesen können. Diese sind gesamt handschriftlich gehalten
+
+und umfassen nicht nur die Zeit deines Zusammenseins mit meinem Vater, sondern auch all seine Aufzeichnungen bezüglich
+seiner Lebenszeit, die ich ebenfalls einsehe. Nur kann ich mich nur bei besonderen Gelegenheiten den Begebenheiten widmen, die jene Vorkommnisse in den Annalen beschreiben, welche ihr zusammen erlebt habt oder die er dir erklärte. Daher
+bin ich erfreut, wenn du mir manchmal in unseren Gesprächen einiges erzählen kannst, wofür ich mich besonders interessiere. Dies ist z.B. so in Hinsicht des Sinnes und Zweckes der …, doch auch hinsichtlich der grossen Obelisken, …, die sich
+seit Jahrtausenden auf der Erdenweite befinden. Wenn du mir einiges darüber erzählen …
+
+**Billy** … darüber darf ich aber nur mit dir offen reden, denn die weltweit erstellten Obelisken waren Energieüberträger,
+
+wobei alles gesteuert wurde aus …, was ich aber nicht offen nennen darf, was ich schon Sfath zu versprechen hatte. Die
+eigentlichen Zentren waren einerseits …, also nicht das, was ihnen angedichtet wird, denn sie waren wirklich eigentliche
+Anlagen in Form von Energieerzeugern. Dies, während die Obelisken, wie ich sagte, … waren, wobei der Hauptobelisk von
+… Darüber aber möchte ich dir später mehr Klarheit verschaffen, denn ich habe schon jetzt zu viel gesagt, was ich wohl oder
+übel mit Pünktchen zu markieren habe, wenn ich das Gespräch abrufe und niederschreibe.
+
+**Ptaah** Natürlich, dann bleibt dir nichts anderes zu tun übrig.
+
+**Billy** Wie soll ich aber zu den Fragen Stellung nehmen, auf die sogenannten UFOs der Fremden und deren Woher, Wa
+rum und Wohin usw.? Dass eure Vorfahren und die von Erra Geflüchteten dies schon zu sehr früheren Zeiten so hielten,
+dass niemals Kontakte mit den Fremden zustande kamen und ihr euch seit alters her nicht orten liesset und auch euch
+weiterhin in dieser Weise verhaltet, das ist mir klar. Und es ist auch gut, dass ich durch Sfath …, dass ich davon gefeit bin …
+Auch diesbezüglich gilt das, was ich Sfath versprochen habe. Also ist nichts dazu zu sagen oder gar zu erklären, denn ich
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+habe mich so verdeckt zu halten, wie ich versprochen habe. Und das gilt auch hinsichtlich der weiteren Frage hier. Wie weit
+Sfath und ich heimlich alles … Basta, das war’s. Jedoch will ich dir noch sagen …
+
+**Ptaah** Danke. – Das wusste ich zwar, doch jetzt verstehe ich erst richtig, warum sich auch die Fremden von den Erden
+menschen fernhalten. Darüber habe ich selbst noch nie nachgedacht, doch, was du sagst, das erscheint mir logisch. Was
+mein Vater Sfath und du zusammen schon in den 1940er Jahren … habt, das soll nicht offen erwähnt werden, denn das
+wäre nicht gut und nicht richtig, denn die Militärs würden …
+
+**Billy** Eben, das ist leider so, denn die Gewalt und Zerstörung regieren diese Welt, ganz besonders durch mordlüsterne
+
+Militärs diverser Länder, die ständig irgendwo Krieg führen, morden und zerstören, was leider so zu nennen ist. Auch durch
+Verbrechen, Streit, Vergeltung, Rache und Eifersucht werden dauernd immer wieder Mord und Totschlag begangen. Und
+wenn ich die Schweiz anführen will, dann ist das – ausser dem Militär – gleichermassen bezüglich der Geschehen im Volk.
+Das Inkrafttreten der Neutralität der Schweiz 1815 – die eine bewaffnete Neutralität ist –, die immerwährend gelten und
+die Unverletzlichkeit des Territoriums der Schweiz sichern und garantieren soll, wie die europäischen Grossmächte vertraglich beschlossen haben, hindert die Schweiz daran, selbst an Kriegshandlungen teilzunehmen, was jenen Schweizern jedoch
+nicht passt, die sich als Söldner in andere Armeen verdingen, und zwar trotz dem, dass dies nach Schweizer Gesetzgebung
+verboten ist.
+Neutralität wäre gut, schön und recht, wenn sie eingehalten würde, was aber leider völlig verantwortungslose Elemente in
+der Regierung der Schweiz landesverräterisch zur Sau machten und unsere teure Landesneutralität verraten haben, indem
+von der EU-Diktatur Sanktionen gegen Russland übernommen und diese angewandt wurden – völlig verantwortungslos
+und ohne dass diese schmutzigen und landesverräterischen Elemente aus der Regierung entfernt wurden, folglich sie weiterhin Unheil gegen die Schweiz anrichten können. Wie auch andere miese Elemente, die sich Schweizerinnen und Schweizer nennen und womöglich nur sogenannte ‹Papierlischweizer› sind, welche die Neutralität der Schweiz mit allen Mitteln
+zur Sau machen wollen – «im Namen des Fortschrittes und der Völkergemeinschaftsverbindung usw.» –, um fremde Richter
+über das Schweizervolk und dessen Rechte bestimmen zu lassen. Solche Elemente sind wahrlich nur freiheitsgefährliches
+und landesgefährliches sowie neutralitätsgefährliches und menschfeindliches Gesindel. Solches gehört niemals in irgendeine Regierung oder Amtsstelle, weder in Bern noch sonst irgendwo in ein Regierungsamt oder eine Amtsstelle in der
+Schweiz, weil es bezüglich der wahren Werte des Menschseins bar und nur selbstherrlich und egoistisch ist. Wahre Freiheit,
+Neutralität, Gewaltlosigkeit, Menschlichkeit, Rechtschaffenheit und Menschenwürde ist ihnen ebenso fremd wie Respekt
+vor den Mitmenschen, wie auch Unabhängigkeit, Professionalität, Privatsphäre, Offenheit, Optimismus und Kreativität, finanzielle und allgemeine Sicherheit, Spass, Glücklichsein, Perfektion, Freundlichkeit, Mitgefühl, Ausdauer, Gesundheit, Genauigkeit, Familienorientierung, Treue, Erfolg, Vertrauen, Bescheidenheit, Spontaneität usw. Alles hohe Werte – nebst anderen –, die sie erst erlernen sollten, ehe sie ein Regierungsamt oder Behördenamt übernehmen können, damit sie es
+richtig führen und handhaben können.
+Nun, dass Krieg, Gewalt und Zerstörung immer wieder auf der Erde herrschen, das beweisen ja die Kriege in der Ukraine
+und im Nahen Osten, wie auch in anderen Gebieten, wo Waffen ‹sprechen› oder sonst Stunk ist, wie diesbezüglich im Roten
+Meer durch die Huthi, Amerikaner und andere; auch im Jemen usw. herrscht Stunk und Waffengewalt, Mord und Totschlag.
+Und alles geschieht immer unter dem Deckmantel der ‹Selbstverteidigung›, obwohl nur Rache, Kriegslust, Lust am Töten
+und Zerstören, wie auch Landbesitzgier usw., wie aber auch Profit- und Gewinnsucht der Hersteller von Waffen und Munition dahintersteckt. Auch unter den Bevölkerungen resp. den Völkern aller Länder ist ständig böse Gewalt, wobei immer
+häufiger Mord und Totschlag zur täglichen ‹Ordnung› werden, wie auch die Morderei durch Kriminelle und Verbrecherorganisationen. Aber es ist auch anderweitig im ganzen Bereich der irdischen Bevölkerungen so, dass in den Familien und in
+den sogenannten Freundschaftskreisen und Bekanntenkreisen Gewalt und viel Streiterei, Mord, Totschlag und Zerstörung
+herrschen.
+
+**Ptaah** Wir müssen unser Gespräch für heute wohl beenden, denn wie du hier das Rufen von Bermunda hörst, soll ich …
+
+**Billy** Gut, dann geh. Auf Wiedersehn … …
+
+### Die FIGU hat zwei neue YouTube Kanäle, auf denen ihr mehr über Billy,
+ die Plejaren und die Schöpfungsenergielehre erfahren könnt:
+
+Deutsch:
+
+**FIGU**
+
+Michael von Hinterschmidrüti
+
+@michaelvoigtlaender9492
+
+https://www.youtube.com/channel/UCvrDwu4PdnaX328s7n0PWVg
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Englisch:
+
+**FIGU**
+
+Michael from Hinterschmidrueti
+
+@michaelvoigtlaender4347
+
+https://www.youtube.com/channel/UCVRSWBSZ7LszV1y7rlJ_dHA
+
+Neutrale Informationen zur aktuellen Lage und zu anderen wichtigen Themen:
+
+**FIGU**
+
+Sonderausgabe Zeitzeichen:
+
+https://www.figu.org/ch/verein/periodika/zeitzeichen
+
+COPYRIGHT und URHEBERRECHT 2024 bei ‹Billy› Eduard Albert Meier, ‹Freie Interessengemeinschaft Universell›, Semjase Silver Star
+Center, 8495 Schmidrüti, Schweiz. Kein Teil dieses Werkes, keine Photos und sonstige Bildvorlagen, keine Dias, Filme, Videos und keine
+anderen Schriften oder sonstige Materialien usw. dürfen ohne schriftliche Einwilligung des Copyrightinhabers in irgendeiner Form (Photokopie, Mikrofilm oder ein anderes Verfahren), auch nicht für Zwecke der Unterrichtsgestaltung usw., reproduziert oder unter Verwendung elektronischer Systeme verarbeitet, vervielfältigt oder verbreitet werden.
+
+Veröffentlicht auf www.FIGU.org durch:
+‹Freie Interessengemeinschaft Universell›, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+

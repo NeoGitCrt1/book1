@@ -1,0 +1,987 @@
+#### Erscheinungsweise: Internet: http://www.figu.org 8. Jahrgang Sporadisch E-Mail:  info@figu.org Nr. 41, November 2002
+
+## Suche nach fremden Welten oder ...nach blauen und grünen Planeten sollt ihr suchen!
+Irdische Forscherinnen und Forscher befassen sich immer mehr und in offizieller Form mit der Suche nach
+Leben auf fremden Planeten. Offensichtlich werden dabei mittlerweile auch sehr wichtige Erkenntnisse
+erlangt. Eine ihrer neuesten Entdeckungen basiert auf einem Belang, der von ‹Billy› Eduard A. Meier
+(BEAM) bereits im Jahre 1978 und 1993 in seinem Buch ‹Existentes Leben im Universum› auf Seite 314
+beschrieben wurde. So nämlich die Tatsache, dass sich die Raumfahrer/innen bei ihrer Suche nach bewohnten oder belebten Planeten an deren Farbe orientieren können. Bewohnte Welten strahlen nämlich
+ein bläuliches bis grünes Licht ab. So schrieb Billy unter anderem: «Bereits jetzt zeichnen die wissenschaftlichen Forschungen aber schon bewundernswerte Resultate ab, die den Erdenmenschen erkennen
+lassen werden, dass Planeten mit optimalen und optimalsten Lebensbedingungen und Lebensformen nicht
+alle Variationen von Blau aufweisen müssen, wie bisher infolge des blauen Farblichtes der Erde angenommen wurde, sondern dass alle Variationen der Farbe Grün in Erscheinung treten müssen.»
+
+Im Tages Anzeiger vom 19. April 2002 war zu diesem Thema folgender Artikel zu lesen:
+_...Weil die Forscher nicht einfach ins All fliegen konnten, um das von der Erde reflektierte Sonnenlicht zu_
+_vermessen, bedienten sie sich eines Tricks: Die Erde strahlt einen grossen Teil des auf sie treffenden Son-_
+_nenlichts ins All zurück. Die Lichtstrahlen treffen auch auf den Mond, der diese wiederum zur Erde zu-_
+_rückwirft. Das Spektrum des reflektierten Lichts gab den Forschern Aufschluss darüber, wie unser Planet_
+_von einem fernen Beobachter wahrgenommen wurde. Dieser Schein der Erde lasse vor allem Rückschlüs-_
+_se auf Wolken, Ozon, Wasser und Sauerstoff zu, schreiben Trau und seine Kollegen. Dadurch kann man_
+_aber indirekt auch auf die Existenz von Leben schliessen. Die Ergebnisse der Astrophysiker sollen vor allem_
+_einem Nasa-Projekt dienen, das sich mit der Suche nach neuen erdähnlichen Planeten im All befasst._
+
+Es wird wohl noch einige Zeit dauern, bis die ersten blauen oder grünen Planeten in den hochmodernen
+Teleskopen der irdischen Astrophysiker erscheinen werden. Dennoch ist diese Erkenntnis ein wichtiger
+Schritt auf dem langen Wege zur Akzeptanz ausserirdischen Lebens. Eine wichtige Hürde steht der irdischen Menschheit in diesem Denkprozess jedoch noch bevor. So nämlich jene Einsicht, dass es sich bei
+ausserirdischem Leben um Menschen handeln kann, die uns in vielem ähnlich sind oder uns tatsächlich
+sogar in jeglicher Hinsicht um Jahrtausende in ihrer Entwicklung überlegen sind.
+Hans Georg Lanzendorfer
+
+
+-----
+
+## Beobachtung – Unbekanntes Flugobjekt
+Am Mittwoch den 17. April 2002 unternahm ich, wie es mir schon zur lieben Gewohnheit geworden ist,
+in meiner Heimatgemeinde Höchst/Österreich einen nächtlichen Spaziergang. Es dürfte so gegen 22.00
+Uhr gewesen sein, als ich ein gelbes ja fast schon orange leuchtendes Objekt am leicht bewölkten Himmel
+erblickte. Dieses war etwa faustgross und befand sich von meiner Position aus gesehen in nordwestlicher
+Richtung, wo es sprunghaft mehrere Auf- und Abbewegungen durchführte. Gleichzeitig erfolgte ein leuchtender Funkenregen, der einmal links und einmal rechts vom Objekt ausging.
+Das Ganze war während etwa 20 Sekunden zu beobachten, wonach die ganze Lichterscheinung abrupt
+erlosch. Zuerst dachte ich dabei, dass es sich bei der Erscheinung um eine Feuerwerksrakete oder dergleichen gehandelt haben könnte, doch diese Vermutung musste ich wieder fallen lassen, da die Vertikalbewegungen des Objektes nicht mit einem Feuerwerkskörper zu vereinbaren waren. Auch ein Flugzeug
+oder ein Hubschrauber konnte mit Sicherheit ausgeschlossen werden, denn trotz der relativen Nähe des
+beobachteten Phänomens war keinerlei Geräusch zu hören.
+Ingo Gruber/Österreich
+
+## UFO gesichtet
+Pambio-Noranco TI. – Ein Automobilist will am 23. Dezember 2001auf der A2 zwischen Chiasso und Lugano ein UFO gesichtet haben. Das unbekannte Flugobjekt habe zunächst die Form eines Bumerangs gehabt und sich dann in ein Dreieck verwandelt. Gemäss dem UFOlogischen Zentrum der italienischen
+Schweiz ist dies eine glaubwürdige Schilderung. (SDA)
+Tages-Anzeiger 8.1.2002/ Eingesandt von Arthur Wucher/Schweiz
+
+## Neutrinos haben eine Masse oder ...eine weitere Erklärung von ‹Billy› Eduard A. Meier (BEAM) aus den Jahren 1978/93 wird bestätigt
+_Ein jahrzehntealtes Physikrätsel ist endgültig gelöst:_
+_Neutrinos, die häufigsten Teilchen im All haben eine Masse_
+_(‹Tages Anzeiger› vom Dienstag, 4. Juni 2002)_
+Es ist immer wieder interessant zu beobachten, wie sich frühe Erklärungen und Aussagen der Plejaren und
+‹Billy› E. A. Meier (BEAM) in der heutigen Zeit bestätigen. In den ersten Kontakt-Berichten zwischen Semjase und Billy war oft davon die Rede, dass sich dieses oder jenes erst in rund zwanzig oder mehr Jahren
+verwirklichen werde oder dass massgebliche Erkenntnisse erst in naher Zukunft erlangt würden etc. Die
+offiziellen Kontakte zwischen ‹Billy› und den Ausserirdischen haben im Jahre 1975 begonnen. Das ist mittlerweile 27 Jahre her. Allmählich werden wir vermehrt Zeugen, wie sich alte Voraussagen zu erfüllen beginnen. So auch neue Erkenntnisse zum Thema ‹Neutrinos›, wie ein Zeitungsartikel des ‹Tages Anzeiger›
+vom 4. Juni 2002 einmal mehr zeigt. Lassen wir jedoch die Fakten für sich sprechen.
+_(‹Tages Anzeiger›)_
+_«Diese Konferenz markiert einen Meilenstein. Wir gehen von hier weg in der absoluten Überzeugung,_
+_dass es dieses neue Phänomen tatsächlich gibt.»_
+_Das Phänomen, das Friedrich Dydak vom Teilchenphysiklabor Cern in Genf so begeistert, betrifft die Ver-_
+_wandlungskünste eines merkwürdigen, weil überaus flüchtigen Elementarteilchens – des Neutrinos._
+_Lange Zeit wussten die Physiker nicht einmal, ob das geisterhafte Partikel überhaupt Masse besitzt. Die_
+_letzten Zweifel wurden vergangene Woche auf der ‹Neutrino2002›-Konferenz in München ausgeräumt._
+_Mittels eines riesigen Wassertanks in Kanada hat ein internationales Physikerteam endgültig gezeigt, dass_
+
+
+-----
+
+_Neutrinos eine – wenn auch mickrige – Masse tragen._
+In seinem Buch ‹Existentes Leben im Universum› hat ‹Billy› E. A. Meier (BEAM) bereits im Jahre 1978 zum
+Thema Neutrinos einige interessante Aussagen gemacht.
+_Seite 169_
+_...wobei auch Neutrinos eine gewichtige Rolle spielen, die unhemmbar durch alle Materie hindurch-_
+_schiessen und sich irgendwo in einem ‹Band› wieder sammeln und dann eine ungeheure Schwerkraft bil-_
+_den, die neuerlich Materie und Gase aller Art an sich bindet, wodurch neue Sterne und neue Galaxien_
+_entstehen. Je nach der Masse, die vom explodierten oder in sich kollabierten Stern übrig bleibt, vermag_
+_sich daraus ein ‹Reisser›, ein sogenanntes Schwarzes Loch, zu bilden oder aber ein sogenannter Weisser_
+_Zwerg, der von den Erdwissenschaftlern dann Neutronenstern genannt wird._
+_Seite 192_
+_Auch Neutrinos und Neutronen sind Energieträger sowie auch die Elektronen, die eine ganz besondere_
+_Bedeutung haben als Energieträger._
+_Elektronen sind in unendlicher Masse im gesamten Universum vorhanden, sowohl im freien Raum als auch_
+_in jeder Galaxie und in jedem Himmelskörper und in allen Formen jeder feineren und gröberen sowie_
+_ganz groben Materie._
+_Seite 280 ff._
+_Cowan und Reines wiesen die Existenz dieses Teilchens also nach, das dann NEUTRINO genannt wurde._
+_Gerade dieses Neutrino aber ist sehr schwer zu isolieren, was jedoch sehr gut ist, denn würde der_
+_Erdenmensch dies zur heutigen Zeit vermögen, dann würde er dies tun und damit unweigerlich und ret-_
+_tungslos das gesamte Universum zerstören, wenn er nämlich dieses Neutrino unter bestimmten Vorausset-_
+_zungen nutzen würde._
+Dazu die Aussagen der Ausserirdischen: Bereits vermögen die Erdenmenschen die Existenz des TELONIN
+_nachzuweisen, dem sie jedoch die Bezeichnung NEUTRINO gegeben haben. Wahrhaft eine gefährliche_
+_Entdeckung, wenn der Erdenmensch bereits befähigt wäre, dieses Telonin, die Neutrinos, zu isolieren. Nur_
+_zu schnell würde dann nämlich in ihm die Erkenntnis reifen, dass das Telonin unter ganz bestimmten Vor-_
+_aussetzungen nutzbar ist und zusammen mit bestimmten hervorzurufenden Reaktionen zur absolutesten_
+_und totalitärsten Waffe würde, die jedoch nur ein einziges Mal zum Einsatz käme, weil eine ungeheure_
+_Kettenreaktion daraus entstünde. Eine gleissende Explosion würde die Erde in weniger als 5/100-Sekun-_
+_den in eine weissglühende Gaswolke verwandeln, während die Kettenreaktion in den freien Raum hin-_
+_ausrasen würde, mit der Geschwindigkeit des Lichtes, um alles explodierend und verglühend in Gase zu_
+_verwandeln und zu zerstören._
+_Mit Lichtgeschwindigkeit würde sich diese Explosion über das gesamte Universum ausdehnen und dieses_
+_unaufhaltsam zerstören, was allerdings viele Billionen Jahre in Anspruch nähme, weil die Zerstörung hin-_
+_ter der Universums-Expansion nachrollen würde, die ja vielfache Lichtgeschwindigkeit beträgt. Als Ver-_
+_gleich würde der Vorgang so aussehen, wie wenn ein Ballon aufgeblasen würde bis ins Unendliche und_
+_er an seiner Aussenhaut aus weisslodernder Masse bestünde. Alles, was in diese gleissende Masse gezo-_
+_gen würde, fiele mit Lichtgeschwindigkeit der Zerstörung und Vergasung anheim ohne Stoppungsmög-_
+_lichkeit. So würde sich die unsachgemässe Nutzung der Teloninteilchen auswirken, weil eine Ketten-_
+_reaktion unvermeidlich wäre aus dem Grunde, weil die Telonin eine Form jener grundlegenden_
+_Lebensbausteine des gesamten Universums sind, die alle und jede Materie durchdringen, beleben und gar_
+_erzeugen. Sie durchdringen jede Atmosphäre, den freien Raum des Universums und eine jegliche Mate-_
+_rie, wobei sie jedoch oft verändert sind in sich selbst._
+_Selbst Blei kann diese Teilchen nicht bändigen und halten, und selbst durch eine Bleiwand von 1 Million_
+_Kilometer Dicke rasen sie ungehindert mit Lichtgeschwindigkeit hindurch. Die einzige Möglichkeit ihrer_
+_Bändigung besteht in einer speziellen Form der Magnetspeicherung, ähnlich wie bei der Antimaterie-Spei-_
+_cherung. Auch die Telonin können dem Menschen aber nutzbar gemacht werden, wie auch die Antima-_
+_terie. Und Telonin ist im gesamten Universum genügend vorhanden, dass diese Teilchen von den Menschen_
+
+
+-----
+
+_als Energielieferanten in jeder beliebigen Menge und ohne jemalige Gefahr eines Raubbaues genutzt wer-_
+_den könnten, wie auch die Elektronen, nur ist ihrer sehr schwer habhaft zu werden, weil sie in ‹Flüssen›_
+_und Bändern sowie in Ballungen im Universum schweben, wo sie nur sehr schwer erreicht werden kön-_
+_nen. Neutrinos entstehen durch explosive Wandlungsprozesse von Sonnen und Galaxien usw. und blei-_
+_ben wie die Elektronen allzeitlich bestehen. Ihre Masse ist dermassen gross, dass sie absolut unein-_
+_schränkbar ist, auch wenn auf jedem einzelnen Gestirn des Universums Menschen wären, die ihre_
+_erforderlichen Energien durch die Telonin beziehen würden. Die Gesamtmasse der Telonin im ganzen Uni-_
+_versum ist um das Millionenfache grösser als die Masse aller Galaxien, Gestirne und Planeten zusammen,_
+_wobei die Telonin in ihrer Masse noch unaufhaltsam und unerrechenbar bis zu jenem Zeitpunkt zuneh-_
+_men, wenn dereinst das Universum wieder in sich zusammenstürzt, nämlich in rund 109,5 Billionen Jah-_
+_ren._
+Soweit also die Aussagen der Ausserirdischen über die Neutrinos.
+
+Einmal mehr sollte der Menschheit die Tatsache bewusst werden, welch wertvollen ‹Hüter des Schatzes›
+und welch grosse Weisheits- und Lehrquelle sie eines Tages verliert, wenn die unvorstellbar wertvollen Kontakte zur plejarischen Föderation irgendwann verstummen. Dann nämlich, wenn ‹Billy› E. A. Meier nicht
+mehr unter den Erdlingen im Diesseits sondern wieder im Jenseits verweilen wird. In Hunderten von Jahren wird dann womöglich diese Generation als eine der uneinsichtigsten und unbelehrbarsten in die Erdgeschichte eingehen. Mit absoluter Sicherheit wird sich nämlich auch jene plejarische Voraussage erfüllen, die besagt, dass das Gros der Erdenmenschheit erst in rund 800 Jahren die wahrliche Wahrheit um
+‹Billy› E. A. Meier erkennen und die Geisteslehre befolgen werde.
+Hans Georg Lanzendorfer
+
+## Leserfragen:
+Gibt es ein «nach dem Tod»?, wenn ja, was?
+Lars Klann/Deutschland
+
+## Antwort:
+Um diese Frage beantworten zu können, kommt man nicht umhin, zuerst den Sinn des Lebens zu hinterfragen. Jeder Mensch ist in sich Träger eines Teilstücks Schöpfungsgeist. Der Sinn des Daseins beruht
+darin, den menschlichen Geist über unzählige Wiederleben unaufhaltsam durch stetiges Lernen und durch
+das Erarbeiten von Liebe, Wissen und Weisheit in relativ bestmöglichster Form zu vervollkommnen. Die
+jeweiligen Jenseitsaufenthalte der schöpferisch-menschlichen Geistform dienen der Aufarbeitung und Vorbereitung für ein weiteres Leben mit einer neuen Persönlichkeit in einem neuen materiellen Körper.
+Elisabeth Gruber
+
+## Frage:
+Wie werden unerklärbare Phänomene betrachtet?
+Lars Klann/Deutschland
+
+## Antwort:
+Unerklärbare Phänomene gibt es nur so lange für den Menschen, wie er in Unkenntnis der materiell-sichtbaren als auch der unsichtbaren aber doch wirksamen naturgesetzlich-logischen Vorgänge lebt.
+Elisabeth Gruber
+
+
+-----
+
+## Frage:
+Grundlagen der Lehre.
+Lars Klann/Deutschland
+
+## Antwort:
+Die Lehre der FIGU ist die Lehre des Geistes, die auf unveränderbaren allzeit-gültigen schöpferischen
+Gesetzmässigkeiten beruht.
+Elisabeth Gruber
+
+## Frage:
+Wird die Lichtkonstante je 0 km/s erreichen (praktisch der Wendepunkt), ab wo das Universum sich
+wieder zusammenzieht, um dann wieder zu steigen?
+Barbara Lotz/Deutschland
+
+## Antwort:
+Am Wendepunkt (Expansion ➝ Kontraktion) beträgt die Expansions-Geschwindigkeit nicht 0 km/sec.
+(Siehe Artikel Seite 19)
+Nach der Kontraktion des Universums resp. der Schöpfung, also nach dem Rücksturz resp. dem
+Zusammenzug, sinkt die Lichtgeschwindigkeit auf den Nullpunkt ab, wobei das Universum resp. die
+Schöpfung als doppelte sich gegenseitig drehende Spirale rotiert (siehe ‹Existentes Leben im Universum›,
+Seite 278). Folgende Darstellung zeigt das Schöpfungs-Universum resp. das Spiral-Universum resp. die
+Schöpfungsspirale resp. Universumsspirale das/die eine gewisse Eiförmigkeit aufweist, wie das tatsächlich beim Universum/der Schöpfung auch in Wirklichkeit der Fall ist. Bei der zeichnerischen Darstellung
+handelt es sich um ein Vermächtnis von Professor Slomann/Deutschland an Billy.
+
+
+-----
+
+Schöpfungs-Universum = Spiral-Universum = in sich doppelläufige, gegeneinander rotierende Spirale =
+Spirale = Aussenwände/Universums-Wände = Expansions-Wände = Expansions-Aussen-Energie.
+Ein Spiral-Universum ist von aussen nicht einsichtbar wegen der Aussen-Expansions-Energiewand.
+Das Schöpfungs-Universum resp. Spiral-Universum ist eingeschlossen zwischen anderen Universen = Spiral-Universen, Ur-Universen, Zentral-Universen usw. = wie eine Wabenkammer in einer ganzen Wabe.
+Entfaltet sich explosionsmässig die neue Schöpfung resp. das neue Universum, dann geschieht dies mit
+einer ungeheuren Geschwindigkeit, die in 10 hoch 7000facher Lichtgeschwindigkeit zu berechnen ist für
+die erste zentrale Explosionsausdehnung. Danach reduziert sich die Expansionsgeschwindigkeit und pegelt sich bei einer bestimmten Lichtkonstanten ein, die sich dann über eine bestimmte Halbwertszeit hinweg stetig halbierend reduziert. Dieser Vorgang setzt sich dann bis zur Mitte der gesamten Existenzzeit
+der Schöpfung resp. des Universums fort, wonach dann wieder die Kontraktion resp. der Rücksturz beginnt.
+Wie sich die Höhe der einzelnen Geschwindigkeiten errechnen lassen und wie hoch die Halbwertszeit bei
+der neuen Schöpfung resp. beim neuen Universum zu berechnen ist, ist leider unbekannt, da keinerlei
+Kenntnisse über Daten anderer Universum-Formen resp. Schöpfungs-Formen existieren, die andersgeartet sind als unser/e Universum/Schöpfung, in der wir als Menschen im Materiegürtel in grobstofflicher
+Form existieren.
+Billy
+
+## Frage:
+Bewegt sich das Licht in den äussersten Bereichen des Universums immer noch mit 147facher Lichtgeschwindigkeit oder mittlerweile langsamer?
+Barbara Lotz/Deutschland
+
+## Antwort:
+Das Universum als Ganzes expandiert immer noch mit 147facher Lichtgeschwindigkeit. Der hellstrahlende Expansionsgürtel resp. Ramm-Gürtel des/der Universums/Schöpfung nimmt kontinuierlich in seiner
+Geschwindigkeit ab, um stufenlos in eine Kontraktions-Geschwindigkeit resp. Rücksturz-Geschwindigkeit
+resp. Zusammenzugs-Geschwindigkeit überzugehen. Dabei erfolgt dann der umgekehrte Prozess der Expansion und Explosion und in der Folge also eine Implosion, bei der sich die Geschwindigkeit wieder zu
+vielfacher Lichtkonstante steigert.
+Billy
+
+## Frage:
+Wie wird Neugeist kreiert bzw. gezeugt?
+Barbara Lotz/Deutschland
+
+## Antwort:
+Beim sogenannten Neugeist handelt es sich um reine schöpferisch-geistige Energie absolut neutraler Form,
+die erstmals in einen materiellen menschlichen Körper inkarniert und diesen belebt, dabei jedoch noch
+völlig unerfahren und absolut wissenslos und weisheitslos ist in bezug auf selbst und durch das materielle
+Bewusstsein des Menschen erarbeitetes Wissen und letztendlich daraus resultierende Weisheit. Inhaltlich
+ist dieser neutralen Neugeistform nur alles Schöpferische gegeben, so die wahre schöpferische Liebe, die
+Kraft der schöpferischen Energie und das Wissen sowie die Impulse aller schöpferischen Gesetzmässigkeiten und Gebotsmässigkeiten.
+
+
+-----
+
+Neugeistform wird diese an und für sich erst dann mit dieser Bezeichnung genannt, wenn sie tatsächlich
+erstmals in einem menschlichen Körper einzieht resp. in einen solchen eben hineingeboren wird. In ihrer
+Urform wurde die Neugeistform bei der Erschaffung des universellen Materiegürtels durch die Kreationskraft des Universums resp. der Schöpfung, des Universal-Bewusstseins, geschaffen, und zwar in unendlicher Zahl. Diese neutralen Energieformen breiteten sich über den gesamten Bereich des Materiegürtels
+aus und setzten sich fest auf Gestirnen und Planeten usw., wobei aber auch ihrer unzählige durch den
+freien Weltenraum treiben. Diese Energieformen nun treten überall dort einzeln als Neugeistform in einen
+menschlichen Körper ein und setzen sich in dessen Colliculus-Superior (paariger Knotenpunkt – Dach des
+Mittelhirns) fest, wo es einer solchen neuen, neutralen und noch unwissenden Geistform bedarf. Diese entwickelt sich dann in Liebe evolutionierend über sehr viele Reinkarnationen und also Wiedergeburten hinweg und sammelt Wissen, Können und Weisheit, erweitert ihre schöpferisch bedingte wahre Liebe und
+kumuliert mit all diesen Werten zusammen ihre Energie, wodurch sie immer kraftvoller wird. Dabei spielt
+auch die Entwicklung des materiellen Bewusstseins resp. die Persönlichkeit des Menschen eine äusserst
+wichtige Rolle, weil in erster Linie durch diesen Faktor Wissen und Weisheit erarbeitet wird, deren positive Resultate in die Geistform transferiert, von dieser registriert und aufgenommen und dann zu neuen Resultaten von Liebe, Wissen, Weisheit und kraftvoller Energie verarbeitet werden, was bedeutet, dass die
+Geistform evolutioniert und immer kraftvoller und energiereicher, wissender und weiser wird.
+Billy
+
+## Frage:
+Woran kann man feststellen, dass die Lichtgeschwindigkeit langsamer geworden ist?
+Barbara Lotz/Deutschland
+
+## Antwort:
+Es ist nur möglich, die Reduzierung der Lichtgeschwindigkeit durch astrophysikalische Apparaturen und
+Geräte mit feinsten Messmöglichkeiten festzustellen sowie mit daraus zu erstellenden sehr genauen mathematischen Berechnungen. Meines Wissens wurden in dieser Form vor etwa zwei Jahren auch entsprechende wissenschaftliche Erkenntnisse darüber gewonnen, dass der Vorgang der LichtgeschwindigkeitsReduzierung tatsächlich gegeben ist.
+Billy
+
+## Frage:
+Die in Punkt/Frage 4 von mir genannte Freundin darf kein tierisches Eiweiss essen (infolge vererbter Stoffwechselstörung).
+Sie erwähnen im Buch ‹Einführung in die Meditation›, Seite 68, dass es einen vollwertigen pflanzlichen
+Ersatz für tierisches Eiweiss gibt. Dürfen Sie mir sagen, was dieser Ersatz ist, und wenn ja, welcher?
+Barbara Lotz/Deutschland
+
+## Antwort:
+Bei dem vollwertigen pflanzlichen Ersatz für tierisches Eiweiss handelt es sich um eine Meeralgen-Art, die
+jedoch meines Wissens bisher leider noch nicht lebensmittelmässig genutzt wird. Der Name der Alge ist
+mir unbekannt. Nichtsdestoweniger jedoch werden bereits verschiedene proteinhaltige Meeralgen-Arten
+als Nahrungsmittel für den Menschen genutzt, und zwar insbesondere in Ländern wie Japan und China
+usw. Diese Algen-Lebensmittel schmecken zwar in der Regel stark nach Meer und Fisch, wie ich aus eigener Erfahrung weiss, doch decken deren einige ein gewisses Mass des benötigten Eiweissbedarfes. Es ist
+
+
+-----
+
+mir nicht bekannt, ob die sehr stark eiweisshaltige und das tierische Eiweiss ersetzende Alge überhaupt
+schon gefunden und bekannt und wissenschaftlich erforscht wurde.
+Billy
+
+## Frage:
+In der Schrift (im Buch, Anm. Billy) ‹Aus den Tiefen des Weltenraumes ...›, auf den Seiten 213 ff. sowie
+auch in einigen anderen Schriften, wird vor einer rein vegetarischen Ernährung gewarnt, da der Verzicht
+auf Tierprodukte negative Auswirkungen auf den Menschen hat, wie bereits bei Kindern und Jugendlichen. Ist denn jetzt damit eine veganische Ernährung, also ein Verzicht auf jegliche tierische Stoffe oder
+eine wirklich vegetarische Ernährung gemeint, die genügend Milch, Milchprodukte, Eier usw. beinhaltet?
+N.L./Deutschland
+
+## Antwort:
+Es ist damit sowohl die Ernährung der Vegetarier wie auch die der Veganer gemeint, denn beide Ernährungsformen entsprechen nicht jener Nahrungsnorm, durch die der menschliche Metabolismus in vollumfänglicher, naturmässiger und zweckdienlicher Form arbeiten und alle Funktionen erfüllen kann. Der
+menschliche Metabolismus ist darauf ausgerichtet und geschaffen, um sowohl vegetarische wie auch tierische Nahrung zu verwerten, folglich er auch all dieser Stoffe bedarf, wenn er umfänglich korrekt, richtig, gesundheitsfördernd und gesundheitserhaltend arbeiten soll. Also kann auch das Immunsystem, das
+auch vom Stoffwechsel und somit auch von der Nahrung abhängig ist, nur dann gesund und stark sein
+und wirklich alle Funktionen richtig wahrnehmen und ausüben, wenn durch eine entsprechende Nahrung
+der Metabolismus richtig funktionieren kann. Das aber kann dann jedoch nicht der Fall sein, wenn ihm
+jegliche tierische Nahrung verweigert wird, wozu auch das Tierfleisch gehört, weil dieses nebst dem Eiweiss noch viele andere Stoffe enthält, die zum richtigen Funktionieren des menschlichen Stoffwechsels
+und zur richtigen Funktion der einzelnen Organe und des gesamten Körpers und gar des Bewusstseins,
+der Gedanken, Gefühle und auch der Psyche beitragen. Natürlich wird diese Tatsache von allen Fanatikern, Freaks und Besserwissern des Vegetarismus und Veganismus sowie auch von besserwissenwollenden Wissenschaftlern usw. vehement bestritten, was jedoch der Wahrheit trotzdem keinen Abbruch tun
+kann, denn diese bleibt so oder so bestehen. Bekanntlich ist beim Erdenmenschen Vernunft jedoch ein
+rarer Artikel, folglich die Irrlehren des Vegetarismus und des Veganismus auch noch sehr lange weiterbestehen werden und alle, die die Falschheit dieser Lebensweise aufzeigen und klarlegen wollen, in die
+Wüste geschickt und unflätig beschimpft und mit Ausreden, Redewendungen und ‹aufklärenden› Worten
+und Erklärungen beharkt werden, die unsinniger nicht sein können.
+Zu sagen ist natürlich noch, dass es Menschen gibt, die an irgendwelchen allergischen Krankheitserscheinungen leiden, die daher aus Gesundheitsgründen nur bestimmte oder überhaupt keine tierische Produkte geniessen dürfen. Dies trifft auch zu, wenn allergische Reaktionen auftreten beim Auftragen kosmetischer Produkte auf die Haut oder bei der Einnahme von Medikamenten, die auf tierischer Basis
+fundieren. Für Menschen, die unter solchen Krankheitserscheinungen leiden, gelten natürlich andere Nahrungs-/Lebensregeln, weil ihr Metabolismus und ihr Immunsystem usw. durch irgendwelche genetische
+oder sonstige Beeinträchtigungen und Veränderungen derart in ihrer normalen Funktion irgendwie gestört
+sind, dass eben Allergien oder Krankheiten in Erscheinung treten, wenn Nahrungsmittel aus tierischen
+Stoffen genossen werden.
+Billy
+
+
+-----
+
+## Frage:
+Warum werden auf den Plejaden (Plejaren, Anm. Billy) in Notfällen nur ‹kleine› Tiere, wie Hasen und Hühner, und keine grossen Tiere, wie z.B. Kühe, getötet?
+N.L./Deutschland
+
+## Antwort:
+In bezug auf einen Notfall zur Tötung nur ‹kleiner› Tiere muss festgestellt sein, dass davon ausgegangen
+werden muss, dass sich ein Mensch oder eine kleinere Gruppe Menschen aus irgendwelchen Gründen in
+Not befindet, und zwar in einer, aus der eine Nahrungsmittelnot resultiert. Das heisst also, dass keine
+Lebensmittel mehr vorhanden sind, wie auch in der freien Natur keine Früchte und keine Gemüse mehr
+usw., durch die die lebensnotwendigen Stoffe für den Erhalt des menschlichen Körpers und dessen Stoffwechsel und alle sonstigen Funktionen usw. gewährleistet werden können. Ist es in einer solchen Situation
+dann z.B. jedoch gegeben, dass ‹kleine› oder eben ‹niedere› Tiere gejagt und erlegt werden können,
+dann kann und darf diese Möglichkeit genutzt werden, jedoch nur gerade in dem Rahmen, dass nicht
+mehr Tiere getötet werden, als direkt zur jeweiligen momentanen Ernährung des/der an Hunger und Not
+leidenden Menschen benötigt werden. Jeweilig und momentan bedeutet dabei einen Tag. Davon muss
+ausgegangen werden, wie eine plejarische Erklärung besagt, die weiter auch davon spricht, dass aus gesundheitlichen Sicherheitsgründen keine ‹wilde› Fleischnahrung länger als einen Tag aufbewahrt werden
+soll, wenn nicht für die Lagerung notwendige Kühlgeräte oder sonstige Frischhalteapparaturen zur Verfügung stehen, was in einer Notsituation verständlicherweise ja äusserst fraglich wäre, folglich es z.B. in
+der freien Natur usw. recht gefährlich sein kann, Fleisch unbehandelt längere Zeit zu lagern, ohne dass
+es durch gesundheitsschädliche Bakterien befallen wird.
+Natürlich gibt es Möglichkeiten zur Präparation von Fleisch, wie z.B. durch Braten oder Einsalzen usw.,
+was bei den Plejaren in eventuell gegebenen Notsituationen sicherlich auch getan würde, wenn durch eine
+Jagd und durch das Erlegen von Kleintieren mehr Fleisch anfallen sollte, als dieses eben an einem Tag verzehrt werden kann, doch besagt eine plejarische Direktive, dass nicht mehr Tiere erlegt werden sollen, als
+zur Nahrung der sich in Not befindenden Menschen für einen Tag notwendig ist. Diese Direktive fundiert
+darauf, dass eine Rettung des oder der sich in Not Befindenden jederzeit möglich sein kann und dadurch
+unnötig gehortete Fleischmengen dem Verderb anheimfallen würden, eben infolgedessen, dass sie nicht
+mehr benötigt werden und wieder die normalen Nahrungsmittel zur Verfügung stehen, die ja dann in einer
+solchen Situation auch wieder gebraucht würden. Auch wird durch diese Direktive gleichzeitig das plejarische Gesetz dessen geschützt und eingehalten, dass Tiere nur in wirklichen Notsituationen getötet werden sollen resp. dürfen, und zwar auch nur stets in der Anzahl, wie es um des Lebenserhaltes erforderlich
+ist. Das bezieht sich natürlich nicht nur auf Kleingetier, das eventuell notwendigerweise in einem Notfall
+zur Nahrung eines oder mehrerer Menschen dienen muss, sondern auch auf Grosstiere, wie Raubtiere,
+die eventuell in Notwehr getötet werden müssen.
+Durch das Erklärte dürfte klar sein, warum in Notfällen zur Nahrung eines oder mehrerer Menschen nur
+Kleingetier und nicht Grossgetier gejagt und erlegt werden soll resp. darf. Grundsätzlich nämlich, und
+auch das geht aus dem Erklärten hervor, ist es plejarischen Gesetzen gemäss untersagt, Tiere zu töten,
+ausser eben in Notfällen zur Nahrungsbeschaffung oder in Notwehr zum Schutze des Lebens.
+Ein weiterer Faktor ist noch zu erwähnen, der in der Direktive ebenfalls zu deren Begründung enthalten
+ist: Je nach Gattung und Art des Getiers weist dieses unterschiedlich entwickelte Formen in bezug auf ein
+Instinkt-Bewusstsein auf, so also bei höheren Tieren in der Regel auch eine höherentwickelte und bei niederen Tieren eine niedrigere Instinkt-Bewusstseinsform gegeben ist. Grob gesehen kann also davon ausgegangen werden, dass Kleingetier in der Regel eine niedriger entwickelte resp. evolutionierte Instinkt-Bewusstseinsform besitzt als eben das Grossgetier. Doch wie gesagt, handelt es sich dabei um eine Regel,
+die natürlich immer Ausnahmen zulässt. Und dass in Notfällen Kleingetier zu menschlichen Nahrungszwecken gejagt und erlegt werden darf gemäss der besprochenen plejarischen Direktive, hängt also damit
+
+
+-----
+
+zusammen, dass, wenn schon Tiere zu Nahrungszwecken getötet werden müssen, nur solche erlegt werden, deren Instinkt-Bewusstseinsform in bezug einer höheren und schnellen Evolution nicht besonders ins
+Gewicht fällt, denn hinsichtlich der Instinkt-Bewusstseins-Evolution und der Instinkt-Bewusstseins-Intelligenz
+bestehen zwischen kleinen und grossen Tierarten teilweise gewaltige Unterschiede, und zwar sowohl in
+deren Bestehen als aus in deren Entwicklung, wobei jedoch, wie erklärt, gewisse Ausnahmen in Erscheinung treten können. Um das besser verstehen zu können, bemühe man sich nur, z.B. einen Elephanten,
+ein Rindvieh, ein Nashorn oder ein Pferd usw. einem Hasen, einem Huhn oder einer Maus usw. gegenüberzustellen.
+Billy
+
+## Frage:
+Schon seit langer Zeit verfolge ich mit grossem Interesse in der Website der FIGU alles, was veröffentlicht
+wird, so auch die Rubrik ‹Leserfragen› in den Bulletins. Auch ich hätte einmal eine Frage, die bitte in einem
+Bulletin beantwortet werden soll, wenn das möglich ist, auch wenn ich keine Mitgliedschaft zur FIGU auszuweisen habe.
+Was ist von all den Behauptungen und Darstellungen in Büchern und Schriften zu halten, dass die Juden,
+deren Zionisten, die Freimaurer und die Illuminaten sowie andere Vereinigungen, Geheimgesellschaften
+und Geheimdienste sowie Finanzmächte usw. usf. darauf aus seien, die Weltherrschaft zu erlangen und
+auf der Erde eine sog. ‹Universale Religion› oder ‹Universale Finanzmacht› usw. zu errichten? Besonders
+möchte ich dabei auf die Bücher des Jan van Helsing ‹Geheimgesellschaften und ihre Macht im 20. Jahrhundert›, ‹Geheimgesellschaften 2› und ‹Buch 3› hinweisen sowie auf das Buch ‹Die Freimaurer und der
+Vatikan› von M. Adler. Im weiteren auch auf diverse Bücher von Schriftstellern wie Dr. John Coleman (‹Das
+Komitee der 300›), D. Griffin (‹Wer regiert die Welt?)› und Conrad C. Stein (‹Die geheime Weltmacht›),
+W. von Rohr (‹Geheime Herrscher der Welt›), J. Rothvenz (‹Freimaurersignale›), wobei diese Liste zahllos
+weitergeführt werden könnte. Und weiter, was ist davon zu halten, dass die Erde und damit die irdische
+Menschheit bereits von Geheimbünden und Geheimlogen in geheimer Weise regiert werde, wie z.B.
+durch die ‹Magier der Schwarzen Kunst› oder durch das Grosskapital oder durch aufgestiegene ‹Meister
+der Weissen Bruderschaft› usw.?
+Justine Singer/Deutschland
+
+## Antwort:
+Als erstes muss erklärt sein, dass viele Buchschreiber usw. ihr Geschreibsel unter einem Pseudonym veröffentlichen. Dies einerseits darum, weil sie Angst davor haben, erkannt und in irgendeiner Form dafür belangt oder einfach angegriffen zu werden, andererseits aber auch, um einfach einen klangvolleren
+Namen zu besitzen, weil ihnen der eigene nicht zusagt und nicht gut genug ist oder einfach zuwenig Eindruck vermittelt, wie das auch bei Artisten und Schauspielern usw. der Fall ist. Doch besonders Leute, die
+unsinnige Bücher schreiben, durch die den Menschen Angst, Furcht und Schrecken eingejagt wird durch
+unsinnige und schwachsinnige Behauptungen, Lügen, blödsinnige Vermutungen und Verleumdungen
+usw., wagen nicht, offen ihren wahren Namen und ihre tatsächliche Anschrift zu nennen; dies wohl
+darum, dass sie ob ihrem verbreiteten Unsinn eben nicht durch irgendwelche Leute beharkt werden. So
+kann man sich auch leicht vorstellen, dass sich Jan van Helsing, der in Wirklichkeit Jan Holey heisst, wohl
+aus Gründen hinter seinem Pseudonym versteckt, die eben darin zu suchen sein könnten, dass er nicht von
+Leuten beharkt und angegriffen wird, deren Ansichten und Verständnis nicht konform laufen mit seinem
+mauscheleihaften Geschreibsel in seinen Büchern. Daran tut er wahrscheinlich auch gut, wenn man bedenkt, dass zumindest eines seiner Bücher in der Schweiz und in Deutschland verboten wurde, infolge anti
+
+-----
+
+semitischer Äusserungen, Verdächtigungen und – gelinde gesagt – Falschdarstellungen und Falschbehauptungen, wie die Presse veröffentlichte und wie die dafür zuständigen Behörden erklärten.
+Nun, was den Wert gewisser Bücher und Schriften verkörpert, die teils manchmal auch neonazistisch und
+extrem sowie tatsächlich antisemitisch, geschichtsverleugnend, verleumderisch, wahrheitsverdrehend, rassistisch und bösartig betrügerisch und lügenhaft Behauptungen, Darstellungen und Erklärungen darbringen, ist zu sagen, dass sie des Lesens nicht wert sind und Anschauungen und Ideologien usw. verbreiten,
+die in ihrem Schwachsinn und Unsinn mehr als nur zum Himmel schreien.
+Was nun aber die von Ihnen genannten Bücher betrifft, dazu möchte ich sagen, dass auch deren Inhalt in
+keiner Weise lesenswert ist, ganz zu schweigen davon, dass das Ganze des Geschreibsels ernst genommen werden könnte. Alles entspricht nicht der Wahrheit und Wirklichkeit, sondern einzig und allein wilden Phantasien, Annahmen und Vermutungen, die in der Regel aufgebaut sind auf wilden Phantasien,
+Ängsten und Vermutungen, auf anderen neuen oder altherkömmlichen Schriften gleicher Art, in denen
+derselbe Schwachsinn und Unsinn erzählt wird. Jede und jeder die/der dann aus solchen Falschinformationen derartiger Bücher und Schriften heraus sowie vom Hörensagen neue Bücher und Schriften erstellt,
+behauptet dann, dass viel altherkömmliches Schriftenmaterial und ausführliche und massgebende Fakten
+usw. durchgearbeitet und eingehend studiert worden seien und nun das neue Schriftwerk das Resultat
+namhafter und wertvoller Forschungen sei.
+In der Neuzeit hat der gesamte esoterische, parapsychologische und sektiererische Unsinn und Quatsch
+derart überhandgenommen, dass damit besonders die sogenannte zivilisierte Welt richtiggehend überschwemmt worden ist. Aufgekommen ist der ganze Schwachsinn insbesondere durch den JahrtausendWechsel, der bereits in den ersten Jahrzehnten des 20sten Jahrhunderts die ‹Gemüter› all jener Menschen
+bewegte, die einem Wahnglauben irgendwelcher Art verfallen waren. Insbesondere spielte dabei der angebliche Weltuntergang eine massgebende Rolle, in dessen Zusammenhang der ‹Liebe Gott› oder ‹Jesus
+Christus› mit seinen Heerscharen zur Erde kommen und über alle Heiden und Abtrünnigen vom christlichen Glauben Gericht halten und die ‹Bösen› in die Hölle und dessen ewiges Fegefeuer verdammen sollten. Dabei spielten in diesen Wahnvorstellungen auch Ausserirdische und UFOs eine gewichtige Rolle im
+Spiel der verantwortungslosen Buchschreiber/innen und Sektierer/innen. Und auch später, als der Wechsel zum neuen Jahrtausend immer näherrückte, wurde in vielen Büchern mit sektiererischen oder einfach
+unsinnigem Inhalt behauptet, dass Ausserirdische mit ihren Raumschiffen kommen und die ‹Guten und
+Christgläubigen› von der ‹verdammten› Erde wegholen und ins Paradies bringen würden. Ganz Verrückte
+behaupteten sogar, dass ein riesiger Planet ins SOL-System einziehe, auf dem die irdischen Vorfahren aus
+den Tiefen des Weltenraumes lebten und die Erde und deren Menschen retten würden usw. Diesbezüglich
+könnte eine ellenlange Liste mit Namen von Autoren und Autorinnen und deren Werken mit unsinnigen
+Behauptungen, Lügen und Vermutungen aufgestellt werden.
+Wird das Ganze betrachtet, dann fragt sich, wozu das alles eigentlich? Die Antwort ist einfach: Damit ist
+sehr viel Geld zu verdienen, und zwar durch alle jene Menschen, die in Unkenntnis der Wahrheit und infolge ihrer Realitätsfremdheit die Schundliteratur kaufen und lesend verschlingen, um den ganzen Unsinn
+dann zu glauben. Ganz besonders in den Staaten der sogenannten zivilisierten Welt leben sehr viele Menschen, die nach der eigentlichen Wahrheit des Lebens suchen und demgemäss nach allem greifen, was
+sie für sich als nutzvoll erachten, um eine höhere Evolution zu erreichen und ‹eingeweiht› zu werden. Und
+genau durch dieses Suchen laufen sehr viele Menschen in die Irre, weil sie an Bücher und Schriften sowie
+an Sekten und deren verantwortungslose und machtgierige Führer herankommen, die das grosse Heil versprechen, das jedoch nur durch blinden sektiererischen Gehorsam und durch absolut hündische Demut
+vor einem Gott, vor irgendwelchen Ausserirdischen oder vor einem Guru und Meister oder sonstigen Sektenciceronen erreicht werden kann, der seine Anhänger und Gläubigen bis aufs Blut aussaugt und nach
+Möglichkeit noch terrorisiert und sexuell oder sonstwie missbraucht.
+Zu beachten ist im weiteren, dass genannte Form der Bücherschreiber/innen und Sektenbosse in jeder
+Form die Angst im suchenden Menschen derart schüren mit ihrem dargebrachten Unsinn an Lügen,
+
+
+-----
+
+Behauptungen, Vermutungen, Verleumdungen und ihrem angeblichen ‹Wissen um die Wahrheit› sowie
+dem ‹Studium wertvoller alter Überlieferungen› usw., dass Furcht und Schrecken hochsteigen und eine
+Flucht nach vorn in der Form gesucht wird, dass aller dargebrachte Unsinn und Quatsch geglaubt und
+danach gelebt wird. Und der ganze Sektierismus und der bedingungslose Glaube der Gläubigen an die
+dargebrachten Lügen und Behauptungen von Buchschreibern und Sektierern sowie an eine höhere Macht
+(oder an den/die Führer/in der Sekte usw.) resp. einen Gott, der alles erdenken, lenken und das Leben
+des Menschen bis ins letzte Detail bestimmen soll, führt dazu, dass der Mensch des irren Glaubens wird,
+dass er selbst nicht zuständig und nicht verantwortlich sei für seine eigenen Gedanken und Gefühle sowie
+für sein Handeln.
+Mit dem Schreiben und Verkauf der unsinnigen Bücher und Schriften kann bei den suchenden und den
+verunsicherten, leichtgläubigen sowie in Angst und Schrecken gejagten Menschen sehr viel Geld verdient
+werden. Dies trifft sowohl zu in bezug auf jeden Sektierismus, wie aber auch auf angebliche Kontakte mit
+Ausserirdischen und deren ebenso angeblichen Botschaften, die in der Regel derart zum Himmel
+schreiend blöd, idiotisch und primitiv sind, dass man auf den Gedanken kommen muss, dass diese angeblichen Ausserirdischen eigentlich dämlicher sein müssen als die Polizei erlaubt. Doch Spass beiseite: Alle
+diese angeblichen Botschaften, die von den sogenannten Kontaktpersonen direkt-physisch, durch Channeling oder einfach telepathisch empfangen werden wollen oder empfangen worden sein sollen zeugen
+davon, dass dummdreiste oder irgendwie psychopathische, schizophrene, wahngläubige, imagehungrige, psychisch labile Erdenmenschen dahinter stecken, denen sich auch machthungrige oder geldgierige
+Profiteure zugesellen. Dazu gehören auch die unreellen Gestalten und Kreaturen, die in verwerflicherweise und ohne effective Kenntnisse und ausgeprägte Fähigkeiten sich astrologisch betätigen und falsche
+Horoskope erstellen, oder die sich als angebliche Hellseher/in, Telepath/in und als angebliche Totenbeschwörer und Kartenschläger oder jeden sonstig anverwandten Unsinn ausgeben, um damit die Mitmenschen zu betrügen. Und die Regel ist die, dass es sich dabei wirklich und tatsächlich nur um blanken Unsinn handelt, mit dem unheimlich viel Geld aus den Taschen und aus dem Portemonnaie der dummen
+Gläubigen gezogen werden kann, wodurch sich die Schwindler, Betrüger, Lügner und Scharlatane ihre
+eigenen Portefeuille randvoll füllen und damit in Freuden und Herrlichkeit leben können – eben auf Kosten
+der Dummen.
+Um nun aber direkt auf die Frage zurückzukommen: Wer auf der Erde wirklich die Macht in Händen hat,
+ist absolut eindeutig festzustellen: Die Mächtigen dieser Welt sind jene, welche offiziell die Staaten regieren, und das sind die Politiker und die Militärs – Präsidenten, Diktatoren und Generäle usw. –, die jedoch
+in den wenigsten Fällen weltherrschaftssüchtig sind, sondern sich mit ihrer Macht auf ihr eigenes Land beschränken – und für sich selbst Millionen an Dollarbeträgen horten. Wahrheitlich sind es nur wenige Staaten auf der Erde resp. deren Mächtige, die sich die ganze Welt unter ihre Herrschaft reissen wollen. Doch
+darüber muss wohl nicht speziell etwas gesagt werden, weil die ganze Welt bestens darüber orientiert ist,
+welche Staaten und deren Mächtige Weltherrschafts-Ambitionen haben und versuchen, sich als Welt-Polizei aufspielen oder religiös-fanatisch, fundamentalistisch, aus persönlichem Hass, grenzenloser Raffgier
+oder aus Grössenwahn, Sektiererwahn, Irrsinn oder Wahnsinn die Welt und deren gesamte Bevölkerung
+unter den Nagel zu reissen, zu unterjochen und zu versklaven.
+Billy
+
+## Frage:
+Kürzlich wurde ich von einer Bekannten in einen Zirkel mitgenommen, wo dann sehr ernsthaft von einem
+Redner über esoterisch-parapsychologische Phänomene usw. gesprochen wurde. Es war dabei dann auch
+die Rede von einem Biometer oder ähnlich, mit dem die sogenannte ‹Kosmoelektrische Energie› oder so
+gemessen werden könne. Als zu dieser Sitzung eingeladener Laie, habe ich von allem leider nichts verstanden. Auch meine Bekannte konnte mir keine näheren Erklärungen dazu geben, wie auch andere Per
+
+-----
+
+sonen des Zirkels nicht, die diesem angehören. Auf meine Fragen hin wurde ich nur mit unverständlichen
+Darlegungen abgespiesen, denn offenbar haben auch die Zirkelmitglieder von allem nichts verstanden.
+Es blieb so in mir der Eindruck haften, dass diese Leute nur in den Zirkel laufen, um dabei zu sein, weil
+das vielleicht in ihren Kreisen so üblich ist und zum guten Ton gehört, dass jedoch von den sehr komplizierten und mit vielen unverständlichen Fremdworten dargebrachten Erklärungen rein gar nichts verstanden wird, sondern dass sozusagen nur mit den Wölfen geheult wird, eben dass man einfach gleicher Meinung ist wie die irgendwelchen komplizierten, unverständlichen und meines Erachtens gar unsinnigen
+Stoff vortragende Person. Als wirklicher Laie würde mich nun doch interessieren, wovon in diesem Zirkel
+bezüglich des genannten Biometer und der kosmoelektrischen Energie eigentlich die Rede war. Nur soviel
+habe ich davon verstanden, dass dabei irgendwelche Kraftfelder der Erde im Spiel sein sollen.
+Friedrich Ernstberger/Deutschland
+
+## Antwort:
+Entweder haben Sie teilweise die gehörten Ausführungen in bezug der Bezeichnungen falsch verstanden,
+oder sie wurden durch die Vortragsperson falsch übermittelt. Bei dem von Ihnen genannten Biometer, so
+denke ich, handelt es sich wohl um einen sogenannten Bovis-Biometer, und bei der kosmoelektrischen
+Energie, wie Sie diese nennen, dürfte es sich wohl um die angebliche ‹Kosmoterrestrische Energie› handeln.
+Der Bovis-Biometer stellt ein Messinstrument recht seltsamer Weise und einer nicht überprüfbaren Funktion
+dar, auf das und dessen Richtigkeit jedoch Menschen schwören, die behaupten, dass mit dieser Apparatur resp. mit diesem Gerät, eine Schablone und ein Pendel, kombinierte kosmischterrestrische Energiefelder resp. Kraftfelder gemessen werden könnten. Angeblich lässt oder lassen sich damit die Energie/n
+eines bestimmten oder beliebigen Ortes bestimmen. Das Messgerät besteht aus zwei physikalischen Einheiten, wie das bei jedem Messgerät üblich ist. So besteht die eine Einheit aus einem hochempfindlichen
+Sensor, während die andere aus einer Anzeige für die Messwerte besteht. Der Sensor beim Bovis-Biometer besteht jedoch nicht aus einer im Gerät eingebauten Sonde, sondern die Sensor-Funktion wird durch
+den Menschen selbst ausgeübt. Wird oder soll so die Energie eines Ortes gemessen werden, dann hat sich
+der Mensch genau auf den bestimmten Ort zu stellen, dessen Energie ergründet und untersucht werden
+soll. In der Funktion des Sensors hält der Mensch ein Pendel in der rechten Hand, während mit der Linken
+das Bovis-Biometer gehalten wird, das eigentlich nicht mehr ist als eine Schablone mit einer genau definierten Skala, die Werte zwischen 0 und 10 000 anzeigt und die wie auf einem Lineal aufgetragen sind.
+Wird die Messung begonnen, dann wird mit der rechten Hand das Pendel über den Nullpunkt gehalten
+und dieses dann mit einem kleinen Ruck leicht angestossen, damit es sich im Uhrzeigersinn zu drehen resp.
+zu kreisen beginnt. In dieser Weise wird dann die Hand mit dem Pendel langsam über immer höhere
+Werte der Bovis-Biometer-Skala geführt. Wird nun Bovis, dem Erfinder des Biometers Glauben geschenkt,
+dann dreht sich das Pendel in der Hand so lange im Uhrzeigersinn weiter rechts herum, bis der genaue
+Energiewert des getesteten Ortes auf der Schablonen-Skala erreicht ist, wonach sich dann das Pendel nur
+noch auf und ab bewegen soll.
+Die Bovis-Biometer-Skala umfasst nur 10 000 Werte, doch sollen sich auch höhere Werte damit messen
+lassen. Zu diesem Zweck muss nach dem Erreichen der 10 000er-Marke das sich immer noch im Uhrzeigersinn drehende Pendel wieder an den Nullpunkt zurückgeführt werden. Da wird dann das Pendel
+wiederum über die Skala nach oben geführt, wobei dann die neuen Zahlenwerte zu den alten resp. ersten angezeigten Werten hinzugefügt werden müssen. Dieser Vorgang kann mehrmals erfolgen, wodurch
+das Mehrfache des 10 000er-Wertes letztendlich in Erscheinung treten kann.
+Der Bovis-Biometer ist klassischen Wissenschaftlern äusserst suspekt, so aber auch Ptaah und Quetzal von
+den Plejaren. Alle erklären sie, dass der Mensch als Sensor in bezug auf derartige Messungen sowie auch
+andere willensbestimmte und gedankenbestimmte Pendelvorgänge usw. viel zu subjektiv sei, als dass tatsächlich eindeutige Messresultate oder sonstige Pendelresultate erzielt werden könnten. Das darum, weil
+
+
+-----
+
+das Pendel unweigerlich gedanklich und willentlich sowie durch feinste Handführung und Fingerbewegungen beinflusst wird und dementsprechend das Resultat hervorbringt, was absolut unbewusst und unerkennbar vom Menschen von diesem gewünscht und erhofft wird. Und um auf den Bovis-Biometer zurückzukommen: Mit herkömmlichen physikalischen Methoden und Mitteln, wie sie auf der Erde heute
+existieren und üblich sind, können bis zur gegenwärtigen Zeit die angeblich durch Bovis-Biometer
+erspürten Energien eines bestimmten oder beliebigen Ortes in keiner Art und Weise gemessen werden.
+Und wie die Plejaren diesbezüglich erklären, wird dies auch nicht auf die genannte Weise mit dem BovisBiometer jemals möglich sein. Ein solcher, so wird von Ptaah und Quetzal erklärt, funktioniert nur bei
+davon beeindruckten und befangenen Menschen, die daran glauben.
+Bezüglich der kosmoterrestrischen Energie ist zu sagen, dass es sich dabei angeblich um eine Energie handelt, die im Zusammenschluss von kosmischen und irdischen Kräften sogenannte Kraftorte bilden sollen;
+Orte also, an oder bei denen sich die kosmoterrestrischen Energien speziell stark und ausgeprägt manifestieren sollen.
+Wohl jeder Mensch kennt Orte oder Stätten, die ihn beim Betreten oder Beschauen auf eine sehr eigenartige Weise berühren und seltsame Gedanken und Gefühle und manchmal gar ein Schaudern und Frieren oder ein Heisswerden der Haut oder des ganzen Körpers hervorrufen. Es sind dies Orte und Stätten,
+die so manchen Menschen nicht mehr zur Ruhe kommen lassen, ihn irgendwie zu irgendwelchen Gedanken, Gefühlen, Dingen und Handlungen inspirieren und ihn neue Kraft schöpfen lassen. Manche dieser
+Orte und Stätten können dem einen oder andern unheimlich und gefährlich erscheinen, während andere
+den Eindruck der Freude und Liebe sowie des Friedens und des Glücks vermitteln. Dabei kann es sich um
+einen Wald oder einen einzelnen Baum, um einen Hügel oder Berg, um eine Kirche, eine Ruine oder um
+ein Haus handeln. Es kann aber auch ein Raum sein, eine Insel, eine ganze Landschaft oder sonst was
+auch immer.
+Was es nun aber mit solchen Kraftorten auf sich hat und welche Energien da wirklich wirken, ist in keiner
+Weise mit kosmoterrestrischer Energie zu erklären, denn der wirkliche Ursprung und Vorgang ist völlig anders geartet und erklärbar, als eben durch eine derartige Energie. Die allermeisten sogenannten Kraftorte
+wirken ganz einfach auf den einen Menschen anziehend oder abstossend und demgemäss also negativ
+resp. unheimlich, abschreckend, beklemmend, böse, nicht geheuer, dämonisch, gruselig oder drohend,
+während der gleiche Ort oder die gleiche Stätte auf andere Menschen eine behagliche, friedliche, liebevolle, anheimelnde, sichere, glückliche und optimistische Wirkung ausübt. Dies artet sich je nach der jeweiligen Einstellung des betreffenden Menschen. Das heisst, wenn eine negative oder wahngläubige Einstellung und dementsprechende Vorstellungen vorherrschen, ganz gleich ob bewusst oder unbewusst,
+dann manifestieren sich auch die negativen Formen dieser Vorstellungen. Ist dagegen die Einstellung positiv und auf Realität ausgerichtet, dann manifestieren sich deren Resultate auch in entsprechender Form,
+Art und Weise. Es ist also von absoluter Bedeutung, welche Einstellung der Mensch zutage legt und ob er
+in einem Glauben an irgendwelche unreale Vorstellungen gefangen oder ob er der Realität zugetan ist.
+Dabei kommt aber noch ins Spiel, dass Sympathie und Antipathie beim Ganzen eine sehr wichtige Rolle
+spielen, ob einem Menschen nämlich der Ort oder die Stätte sympathisch oder antipathisch ist, ob ihm der
+Ort oder die Stätte eben zusagt oder nicht. Dies ist ein sehr wichtiger Faktor dessen, dass demgemäss eben
+die entsprechenden Erwartungen, Hoffnungen und Wünsche bewusster oder unbewusster und positiver
+oder negativer Art sich manifestieren.
+Werden also sogenannte Kraftorte oder Kraftstätten entdeckt oder aufgesucht, von denen behauptet wird,
+dass diese kosmoterrestrische Energie abstrahlen, dann entspricht das nicht der Richtigkeit, denn wahrheitlich handelt es sich um einfache Sympathieorte/Sympatiestätten oder Antipathieorte/Antipathiestätten, je nach Einstellung, Glauben, Erwartungen, Hoffnungen und Wünsche der Menschen, die solche
+Orte/Stätten besuchen. Werden dann von diesen Personen irgendwelche magische, esoterische, parapsychologische oder in ähnlicher Form gehaltene Messungen durchgeführt, die in keiner Weise reale physikalische Ergebnisse zeitigen können, sondern nur derartige, die eben durch eigene Einbildung und Ein
+
+-----
+
+flüsse irgendwelcher Art entstehen, dann dürfen solche Resultate und Ergebnisse nur mit äusserst schlechtem Gewissen als real betrachtet und gewertet werden. Leider jedoch sind sehr viele Menschen Pseudowissenschaftler, die sich mit derartigen Dingen beschäftigen und bedenkenlos an alles glauben, was nicht
+gleich handfest erklärt werden kann und deshalb als übersinnlich und dergleichen bezeichnet wird, obwohl es im ganzen Universum und damit in der ganzen Schöpfung und damit auch im geistigen Bereich
+nichts gibt, das übersinnlich oder unerklärbar wäre.
+Zu erwähnen ist nun aber noch, dass es auf der Erde sogenannte Fluidal-Kraftstätten oder Fluidal-Kraftorte gibt, die jedoch nichts gemeinsam haben mit den angeblichen Kraftorten, die angeblich ihre Kraft
+durch ‹kosmoterrestrische Energie› resp. durch eine Kombination kosmischer und irdischer Energie beziehen sollen. Die Kraft einer Fluidal-Kraftstätte resp. von einem Fluidal-Kraftort entsteht durch Menschen,
+die an diesen Orten/Stätten ihre Fluidalkräfte ablagern. Dies geschieht dadurch, dass sie an den betreffenden Orten leben und wirken oder besonders starke Erlebnisse haben – oder hatten –, aus denen fluidale negative oder positive Schwingungen entstanden, die sich an den betreffenden Orten/Stätten ablagern/ablagerten. Diese Fluidal-Schwingungen weisen dabei die Eigenschaft auf, dass sie sich über viele
+Jahrhunderte und gar Jahrtausende am selben Ort halten und so über lange Zeit hinweg von sensiblen
+Menschen gespürt oder empfunden werden können. Je nach Intensität der tatsächlich durch Menschen erzeugten Fluidal-Schwingungen, lagern sich diese also über eine kürzere oder längere Zeit ab, wobei sie
+aber kontinuierlich in ihrer Kraft abnehmen und sich letztendlich ganz auflösen. Doch wie erklärt, hat
+diese Form von Kraftzentren nichts mit jenen angeblichen Kraftorten und Kraftstätten zu tun, die allein
+durch Einbildung, Glauben, Erwartungen, Hoffnungen und Wünsche sowie durch Sympathie oder Antipathie des Menschen entstehen und deren nichtexistenten Energien angeblich durch den Bovis-Biometer
+oder durch sonstige esoterische, geomantische, parapsychologische oder sonstige paranormale Methoden usw. gemessen werden können.
+
+(geomantische – Geomantie = Pseudowissenschaft in bezug subtiler Energien und Kraftströme der Erde,
+wobei der menschliche Körper das beste Messinstrument sein soll, um all jene Energien wahrzunehmen,
+von denen die klassische Physik keinerlei Vorstellung habe, die jedoch nichtsdestoweniger das Leben des
+Menschen sowie seine Gefühle und Gesundheit mitbestimmen würden)
+Billy
+
+## Frage:
+In meinem Bekanntenkreis – wir befassen uns mit Esoterik, Magie, Parapsychologie und Ufologie – wurde
+kürzlich das Thema Wiedergeburt diskutiert. Dabei kam auch die Rede auf Billy Meier, der behauptet,
+dass er die Reinkarnation von Jesus Christus sei, was ich als böse Lüge und als grössenwahnsinnig erachte. Was hat dieser Billy Meier dazu zu sagen? Wie kommt er dazu, eine solche verlogene Behauptung
+aufzustellen? Wenn er andererseits etwas von der Wiedergeburt verstehen würde, dann wüsste er, dass
+Jesus Christus zu Gott-Vater in den Himmel aufgefahren ist und also nicht auf der Erde reinkarnieren kann.
+Beatrice Curti/Schweiz
+
+## Antwort:
+In erster Linie möchte ich auf Ihre Angriffigkeit dessen Stellung nehmen, dass Sie mir an den Kopf werfen,
+dass ich nichts in bezug der Wiedergeburt verstehe, denn diesbezüglich verstehe ich mit Sicherheit sehr
+viel mehr als Sie und Ihre Bekannten Ihres komischen magischen Zirkels. Bereits am Telephon wurde Ihnen
+gesagt, dass Sie sich auf der FIGU Website www.figu.org in bezug Ihrer Frage informieren können, und
+dass es sich bei der von Ihnen genannten Behauptung um eine von irgendwelchen Gehirnamputierten und
+Irren erfundene bösartige Verleumdung meiner Person handelt, denn ich habe niemals einen derartigen
+
+
+-----
+
+Unsinn verlauten lassen. Schon im Bulletin Nr. 37, Seite 10, vom November 2001 habe ich auf eine gleiche Frage die entsprechende Antwort und Erklärung gegeben, worin klar und deutlich gesagt wurde, dass
+eine solche Behauptung meinerseits niemals in die Welt gesetzt wurde. Es wäre auch anmassend und zugleich blödsinnig von mir, eine solche Behauptung aufzustellen, ganz zu schweigen davon, dass es eine
+Unmöglichkeit wäre, als Reinkarnation des Jesus Christus resp. des Jmmanuel, wie sein richtiger Name
+lautete, wieder in Erscheinung zu treten. Tatsache ist nämlich, dass sich jede Persönlichkeit eines Menschen
+nach dessem physischen Verstorbensein in reine Energie auflöst und also für alle Zeiten vergeht, folglich
+sie in keiner nahen oder fernen Zukunft durch eine Reinkarnation wieder in Erscheinung treten kann. Eine
+Wiedergeburt ist einzig und allein der persönlichkeitslosen und absolut neutralen Geistform vorbehalten,
+die bei ihrer Reinkarnation in einen neuen materiellen menschlichen Körper auch keine persönlichkeitsbezogene Impulse, Erinnerungen, Gefühle oder irgendwelche Werte oder Unwerte usw. mitnimmt, weil
+diesbezüglich in der Geistform nichts abgelagert resp. gespeichert ist. Demzufolge ist es auch unmöglich,
+dass irgendwelche Dinge aus dem früheren Leben in das neue mitübernommen werden können, was auch
+besagt, dass also die Karma-Lehre des Buddhismus einer Irrlehre entspricht, dergemäss Persönlichkeiten
+der Wiedergeburt eingeordnet sein sollen, die dann im neuen Leben auch ein Karma zu tragen hätten in
+positiver oder negativer Form, eben je nach dem, wie sich der Mensch im vorigen Leben verhalten hätte.
+In der Folge der Karma-Tragung geht die Karma-Irrlehre sogar so weit, dass behauptet wird, der Mensch
+könne gar als irgendein Tier wiedergeboren werden, z.B. als Kaninchen, Schlange, Hund, Vogel, Katze
+oder als Schwein, Rindvieh oder Esel usw., was natürlich einem absoluten Unsinn entspricht – auch wenn
+man sich manchmal tatsächlich fragen muss, ob die eine oder andere tierische Bezeichnung auf gewisse
+Personen vielleicht zutrifft, wenn man deren tierähnliches Benehmen und Verhalten sowie deren dummdreiste, schwachsinnige und verleumderische Behauptungen näher betrachtet oder untersucht.
+Billy
+
+## Frage:
+Wie wir wissen, ist Hugo Stamm stark gegen Sie, Billy Meier und gegen die FIGU eingestellt, und da fragen wir uns, weil wir wissen, dass das Ihnen, Billy Meier bekannt ist, warum Sie in den Bulletins trotzdem
+Stamms Tages-Anzeiger-Zeitungsartikel veröffentlichen und damit für diesen die Billy-Meier- und FIGUSache negierenden Mann noch Werbung machen. Auch Stamms Artikel über Sie vom 27. 7. 02 in Sachen
+des Sekten-Gurus Raël resp. Claude Vorilhon sehen wir in seiner Art als äusserst fragwürdig, da er weder
+die wirklichen Sachverhältnisse noch Sie persönlich kennt und also nicht beurteilen kann, ob Sie ein Sekten-Guru der FIGU sind oder nicht. Eine Beschimpfung, die wir abscheulich finden und gegen die Sie
+etwas unternehmen sollten, weil, wie wir wissen, kein Faden daran der Wahrheit entspricht. Es ist uns unverständlich, wie dieser Zeitungsschreiber Sie in dieser Weise betiteln und beschimpfen kann, ohne Sie
+persönlich oder all das wirklich zu kennen, was Sie schreiben und lehren und vertreten. Das verstehen wir
+nicht, denn wenn Stamms Ansicht schon gegen Billy Meier und die FIGU gerichtet und er der Meinung ist,
+dass es sich bei ihm um einen Guru und beim statuierten Verein um eine Sekte handle, wozu wir absolut
+gegenteiliger Ansicht sind, da wir die Bücher und sonstigen Schriften usw. Billy Meiers kennen, die alles
+andere als sektiererisch, sondern sehr lehrreich sind, dann müsste er eigentlich wütend auf Stamm sein
+und dessen Angriffigkeiten zumindest mit einem entsprechenden öffentlichen Kontern beantworten, um
+sich zu verteidigen und alles richtigzustellen. Doch warum tut er das nicht?
+Frau A. Fischer und Herr T. Quinter/Schweiz
+
+## Antwort:
+Erstens muss ich Ihnen in dem Punkt recht geben und einmal öffentlich klarlegen, dass mir Hugo Stamm
+tatsächlich bisher leider nie persönlich begegnet ist und ich auch nie brieflich, telephonisch, per E-Mail
+oder per Fax jemals mit ihm in Kontakt gestanden habe, folglich also auch er mich nicht in der einen oder
+
+
+-----
+
+anderen Weise kennt. Doch wenn er trotzdem gegen mich und die FIGU das Panier setzt und meint, dass
+es sich bei unserem Verein um eine Sekte und bei mir um einen Sekten-Guru usw. handle, dann ist das
+zwar sehr bedauerlich, doch kein Grund dafür, ihn für seine Meinung anzugreifen, und zwar weder
+öffentlich noch in verdeckter privater Weise. Natürlich wäre es von Hugo Stamms Seite aus erst eine wirklich faire Sache, wenn er mich persönlich kennen würde und sich auch intensive mit der FIGU und mit all
+unserem Stoff auseinandergesetzt und tatsächlich auch alles studiert hätte. Leider aber verlässt er sich
+offenbar nur auf das Hörensagen sowie auf zerreissende und sachverfälschende Journal- und Zeitungsartikel, sachverfälschende TV-Sendungen und auf Bücher gleicher Form. Die Ansicht und Meinung sind
+jedoch die seine, und das ist sein gutes Recht, wie es eben auch Ihr Recht ist, Ihre eigene Ansicht und Meinung zu haben. Dabei spielt es keine Rolle, ob die Ansicht oder Meinung nun richtig oder falsch ist, denn
+letztendlich sind Ansicht und Meinung eine private und persönliche Angelegenheit, derzu kein Mensch das
+Recht hat sich einzumischen, solange alles des Rechtens ist. Und zudem sollte jeder Mensch seine Ansicht
+und Meinung auch offen sagen und vertreten dürfen, wenn diese der Wahrheit entspricht, doch das ist leider in der Schweiz unter gewissen Umständen durch die Gesetzgebung nicht erlaubt, weil das freie Wort
+in seiner Richtigkeit und Wahrheit in offener und öffentlicher Form verboten ist. Und wie ich leider feststellen und selbst erfahren musste, als ich offen die – gelinde gesagt – Mauscheleien eines Sekten-Häuptlings anprangerte, wurde ich vor Gericht zitiert.
+Nun, das Genannte ist einmal das eine, und das andere ist das, dass ich es keinem Menschen übel nehme,
+wenn einer gegen mich schimpft, lästert, flucht, mich beschimpft und verleumdet, denn letztendlich muss
+jeder Mensch seine eigene Haut zu Markte tragen, was besagt, dass ein jeder selbst für sein Recht oder
+Unrecht verantwortlich ist und dafür die guten oder schlechten Früchte ernten muss. Und ausserdem, das
+muss klar gesagt sein, hat mir Herr Stamm niemals Steine nachgeworfen, mich öffentlich verunglimpft,
+geschädigt, mich diffamiert, mir sonstwie ein Leid angetan oder Schaden zugefügt. Das tat er auch nicht
+in seinem Artikel vom 27. 7. 02, auch wenn er mich einen Sekten-Guru und UFO-Papst nennt und verschiedene Dinge als gegeben erachtet, die jedoch nicht der Wirklichkeit entsprechen, wie z.B. dass er
+meint, ich hätte über meinen Sieg beim Bezirksgericht Frohlockung empfunden und hätte dann nur eine
+kurze Siegerfreude gehabt, als das Obergericht anderer Ansicht war als das Bezirksgericht. Da täuscht
+sich leider der liebe Herr Stamm gewaltig, denn solche Gedanken und Gefühle sind mir fremd, weil meine
+Erziehung und mein Verhalten nicht auf solche Dinge ausgerichtet sind, wie auch nicht auf irgendwelchen
+Gewinn und Reichtum materieller Form, sondern einzig und allein darauf, das zu tun was richtig ist, und
+um den Menschen Wissen und Hilfe zu bringen, die das wünschen und danach streben, im Leben in bezug
+des Wissens, der Liebe, der inneren und äusseren Freiheit, der Freude sowie einer fortschrittlichen, gerechten und zufriedenheitsbringenden Lebensführung Erfolge zu erzielen. Und all das ohne irgendeinen
+verwirrenden, versklavenden und ausbeutenden Glauben irgendwelcher Art, und so also auch ohne
+irgendwelchen Sektierismus oder sonstigen bewusstseinsbeeinträchtigenden Schwachsinn und Unsinn, wie
+das eben Religionen und Sekten eigen ist.
+Und was noch zu sagen ist: Die Artikel von Hugo Stamm, zumindest alle jene, die ich kenne, sind sehr
+sachlich und intentional gehalten, auch wenn manchmal, wie beim Artikel über mich, etwaige wirklichkeitsfremde und von Sachunkundigkeit zeugende Banalitäten durchbrechen, was jedoch mangels dessen
+sein dürfte, dass gewisse Abklärungen und sachdienliche Informationen eben doch fehlen. Im grossen und
+ganzen aber, das möchte ich gesagt haben, schreibt Herr Stamm recht sachlich, wobei auch ein gewisser
+Humor zur Geltung kommt, der recht erfrischend wirkt. Und wenn ich schon dabei bin, der grünen Männchen wegen, die er im Artikel anspricht: Vielleicht lässt sich auch Hugo Stamm eines Tages belehren, dass
+es auf dem Gebiet der UFOlogen nicht nur Flunkerer und Betrüger, sondern auch deren Ehrliche gibt, die
+weder Sektierer noch auf Image-Pflege und auf Profit aus sind und die man nicht als Psychopathen,
+Schwindler, Lügner und Betrüger oder Scharlatan bezeichnen kann, weil das was sie sagen, bringen und
+erklären doch der Wahrheit entspricht. Und um das zu erkennen und zu erfahren, dazu ist nur etwas klare
+Vernunft und etwas Verständnis erforderlich, folglich also keinem Menschen erst ein sogenanntes UFO auf
+
+
+-----
+
+den Kopf fallen oder er grüne Männchen sehen muss, um die Wahrheit zu finden. Eigentlich ist es ja so:
+Ehe der Mensch Schaden erleidet, sollte er zur Vernunft kommen und sich der effectiven Wahrheit zuwenden, auch wenn diese sehr oft nur äusserst schwer zu finden ist und letztendlich noch verteufelt weh
+tun kann. Und dazu möchte ich sagen: Die klaren und effectiven Fakten werden – in der Regel – offen,
+korrekt und sachgemäss sowie ungeschminkt auf den Tisch gelegt und lassen keine Zweifel dessen aufkommen, was der wirklichen Wahrheit entspricht, was einen äusserst bemerkenswerten Zug der Aufrichtigkeit und Sachdienlichkeit darstellt. Und gerade das ist ein wichtiger Punkt im Journalismus, der leider
+bei vielen Journalisten heutzutage nicht mehr zu finden ist, weil vielfach nur noch Sensations-Journalismus
+betrieben wird, mit Lügen und Sachverdrehungen. Man kann in bezug auf Herrn Stamm, so denke ich,
+guten Vertrauens annehmen, dass er weiterhin in seiner redlichen und aufrichtigen Weise nur der Wahrheit entsprechende Fakten in seinen Artikeln zur Geltung kommen lässt, worüber ich mich jedenfalls freuen würde. Wer dies nicht verstehen sollte, dem sei geraten, sich gründlich damit auseinanderzusetzen,
+was ehrlicher, aufrichtiger und wahrheitlicher Journalismus wirklich ist. Mehr muss eigentlich dazu nicht
+gesagt sein.
+Billy
+
+
+Artikel Hugo Stamm Tages-Anzeiger, 27. Juli 2002
+
+
+## Lesermeinung
+An die Freie Interessengemeinschaft FIGU,
+Durch den Tages-Anzeiger-Artikel von Hugo Stamm sowie die Fernsehnachricht des Schweizer Fernsehens, die beide im Bezug von Billys Angriff gegen Claude Vorilhon alias Raël, seines Zeichens SektenGuru der Raël-Bewegung, offen und ungeschminkt die angriffigen Worte Billys genannt haben, ist nun das
+Gros der Schweizerbevölkerung offiziell darüber orientiert, was Billy gegen Raël in Bewegung setzte und
+dafür vom Sekten-Macho und seinen gläubigen Schäflein vor Gericht zitiert wurde. Und dass Hugo Stamm
+und das Schweizer Fernsehen Billys Worte beim Namen genannt haben, finde ich mutig von den beiden,
+denn nun kann sich so jeder vernünftige Mensch der Öffentlichkeit seine eigenen Gedanken um Billys Angriff gegen den Sekten-Chef und seine Anhänger machen, das zum einen, und zum andern auch darum,
+was von der Raël-Sekte sowie von ihrem Boss und von seinen Anhängern zu halten ist. Und wie dabei das
+Urteil ausfällt, das ist jedes Menschen eigene Sache. Meinerseits möchte ich jedoch dazu sagen, dass ich
+
+
+-----
+
+auf Billys Seite stehe, seit nunmehr 45 Jahren seinen Gerechtigkeitssinn und seine Liebe für Menschen und
+ihn als wahren Tausendsassa kenne, und zwar besonders wenn es darum geht, sich in Not befindenden
+Menschen in jeder ihm möglichen Weise und nach bestem Vermögen beizustehen und zu helfen, und zwar
+selbst dann, wenn er sein Leben dafür aufs Spiel setzt, wie ich in eigener Not erfahren habe. Und von solchen Dingen kann wohl beim Sekten-Guru Raël keine Rede sein, denn was ich über diesen Möchtegerngross weiss, lässt sich nicht mit Billys Wesen, Denken, Fühlen und Handeln vergleichen, so dieser Claude
+Vorilhon ihm weder das Brot noch einen Schluck Wasser reichen könnte.
+Meine Meinung ist, dass es gut war, was Hugo Stamm und das Schweizer Fernsehen damit getan haben,
+eben Billys Worte beim Namen zu nennen, denn den Vernünftigen wird dadurch die Augen geöffnet.
+Zwar wurde durch Hugo Stamm versucht, Billy als Sekten-Guru darzustellen, was er jedoch in keiner
+Weise jemals war oder ist, doch ich denke, dass sein Artikel trotzdem sehr gut war und die notwendigen
+Informationen enthielt, durch die klar gesagt wurde, welche angriffigen Worte Billy gegen einen Mann
+gebrauchte, der tatsächlich ein Sekten-Guru ist, wie die vernünftige Öffentlichkeit sicher weiss. Es ist sicher
+zu denken, dass der Artikel von Hugo Stamm und die Information des Schweizer Fernsehens erst recht den
+Zweck dessen erfüllt haben, den Billy eigentlich verfolgte. Was er so mit seinen Bulletins, mit eine Auflage
+von 320 Exemplaren, und via Internet nicht erreicht hat, dass nämlich die ganze Schweiz und auch grosse
+Teile des Auslandes über seinen Angriff und über seine Worte informiert wurden, geschah nun durch verschiedene Medien, wobei der Tages-Anzeiger und das Schweizer Fernsehen nur zwei von vielen sind.
+Ich wünsche Billy weiterhin alles Gute und viel Erfolg bei all seinen Bemühungen, wobei ich nicht versäumen möchte, ihm nochmals all meinen Dank für mein Leben zu entrichten, das er mir in selbstloser Weise
+zurückgegeben und dabei sein eigenes Leben aufs Spiel gesetzt hat.
+Zürich, den 5.8.02, M. Suter z. Z. in der Schweiz
+
+## Die Expansion unseres Universums
+Nachdem das Schicksal des Universums von der Expansion ganz entscheidend beeinflusst wird, sind die
+Kosmologen natürlich sehr darum bemüht, möglichst viele und vor allem wahrheitsgetreue Ergebnisse darüber zu gewinnen. Leider sind die diesbezüglichen Informationen, die in letzter Zeit verbreitet wurden,
+nicht besonders beweiskräftig, zumal sie in relativ kurzer Zeit zu völlig konträren Auffassungen geführt
+haben. Dass unser Universum expandiert, darüber sind sich wohl alle Naturforscher einig. Während jedoch zeitweilig gar keine, beziehungsweise eine geschwindigkeitsabnehmende Expansion angenommen
+wurde, wird neuerdings die Auffassung vertreten, wir hätten es wahrscheinlich mit einem Universum zu
+tun, dessen Expansion aufgrund neuer Beobachtungen auf dem astronomischen Sektor mit zunehmender
+Beschleunigung in die Zukunft voranschreite. Welche der widersprüchlichen Auffassungen sind nun eigentlich richtig?
+Zunächst dürfen wir von der Tatsache ausgehen, dass – analog zur Ansicht der meisten Naturwissenschaftler – unser Universum mit einem bombastischen Paukenschlag die kosmische Bühne betreten hat, jedoch auf eine andere Art und Weise, als dies in unseren Lehrbüchern geschrieben steht. Was unseren Gelehrten begreiflicherweise offenbar enorm zu schaffen macht, ist allein schon die Ermittlung einer
+halbwegs gültigen Altersangabe. In Anbetracht der unzuverlässigen Quellen, die der astronomischen Forschung derzeit zur Verfügung stehen, ist es allerdings verständlich, dass speziell auf diese Frage trotz
+eifriger Bemühungen bislang keine befriedigende Antwort gefunden werden konnte. So werden einmal
+mehr und einmal weniger Milliarden Jahre in Erwägung gezogen, je nach den gerade für richtig gehaltenen Auslegungen der Beobachtungsergebnisse usw. Momentan scheint man sich auf einen Mittelwert
+zwischen 12 und 18 Milliarden eingependelt zu haben. Ein Alter von 15 Milliarden Jahren entspricht aber
+bei weitem nicht der Realität, die auf einen mehrtausendfach höheren Faktor anzusetzen ist. Gemäss den
+Angaben der Bewohner vom Planeten ERRA erfolgte der sogenannte Urknall nicht vor Milliarden, sondern
+
+
+-----
+
+bereits vor rund 46 Billionen Jahren. Dieser Geburtsakt darf aber keineswegs mit einer materiellen Explosion irgendwelcher Art verglichen werden. Vielmehr handelte es sich dabei um eine unvorstellbare Explosion gigantischen Ausmasses rein geistiger Natur. Ausgangspunkt war im wahrsten Sinne des Wortes
+ein kosmisches Ei, ein winziges stecknadelgrosses Gebilde, bestehend aus reinster, uriger Schöpfungsgeist-Energie. Im Buch OM, Seite 7, Kanon 8, Verse 4 bis 7 und 10 heisst es dazu wortwörtlich:
+4. «Am Anfang war die Eiform der Schöpfungsspirale, hervorgebracht durch die Idee der Ur-Schöpfung. (Die Ur-Schöpfung verkörpert eine noch höhere Evolutionsstufe als dies beim Schöpfungsgeist
+unseres Universums der Fall ist, AdV.)
+5. Die Schöpfungsspirale war geistige Urform, winzig klein und nur von der Grösse eines Flohs.
+6. In der Spirale aber rotierete und pulsierete die Geistenergieform der werdenden Schöpfung, gewaltig und ausdehnungsgewillet.
+7. Die Energieform wuchs und wurde zur geballeten Kraft, und explodierete in grellstem Blitzefeuer.
+10. Die Schöpfung (bzw. das Universum, AdV.) ward geboren, erdacht durch die Idee der Ur-Schöpfung
+und kreieret durch die eigene Kraft.»
+Der Schöpfungsgeist begann in bewusster Form zu arbeiten und schickte sich an, alle in der Vorgebärphase entwickelten Ideen schrittweise in der vorgesehenen Reihenfolge zu verwirklichen.
+Mit der Urknall-Explosion entstand gewissermassen mit einem Schlag unser Universum, das unverzüglich
+in Expansion versetzt wurde. Dabei konnte sich das Universum jedoch nicht in eine gähnende Leere ausdehnen, was nicht so ohne weiteres verständlich sein dürfte. Ein Ballon, der aufgeblasen wird, dehnt sich
+aus in den freien Raum, der ihn umgibt. Bei der Ausdehnung des Universums ist die Situation eine völlig
+andere. In der Tat musste die Kraft des Schöpfungsgeistes mit Hilfe der Expansion zunächst einmal die
+‹leere Weite des Universums› schaffen, in dem noch Raum- und Zeitlosigkeit herrschte. Der allmächtige
+Schöpfungsgeist musste also zuerst die Voraussetzung schaffen, damit sich überhaupt eine Raumstruktur
+bilden konnte. Erst nachdem sozusagen genügend Platz vorhanden war, folgte die eigentliche Kreation
+von Raum und Zeit usw., wodurch unser Universum zum ersten Mal in sichtbarer, greifbarer Form existent
+wurde.
+Nicht weniger erstaunlich ist die Urknall-Explosions-Geschwindigkeit, die mit einer derart übersetzten
+Lichtgeschwindigkeit erfolgte, wie sie schneller nicht sein konnte, und zwar mit der grösstmöglichen Geschwindigkeit, die es im Universum gibt, nämlich mit der Schöpfungsgeist-Geschwindigkeit, das heisst mit
+10[7000] facher Lichtgeschwindigkeit. Die Folge davon war, dass das Universum nach dem Urknall bereits
+einen durchschnittlichen Radius von 14 Dezilliarden Lichtjahren (14 x 10[63]) aufzuweisen hatte. Die Urknall-Explosion wurde ferner zur Triebfeder für die Expansion des Universums, in deren Phase es sich derzeit und noch sehr lange befindet. Diese Ausdehnungsphase schreitet ohne Unterbrechung voran und vollzieht sich geschwindigkeitsmässig in zwei unterschiedlichen Abschnitten, und zwar mit einer sehr
+schnellen Anfangsexpansion und einer darauffolgenden, wesentlich langsameren, abnehmenden Restexpansion. Die Anfangsexpansion setzte direkt nach dem Urknall ein und erfolgt seitdem konstant mit 147facher Lichtgeschwindigkeit, also mit 44 069 491,325 km/sec gleich rund 158,7 Milliarden km/h. Meinen
+Berechnungen zufolge wird sie insgesamt rund 47,5 Billionen Jahre lang unverändert anhalten. Die anschliessende Restexpansion zieht sich dann immerhin noch über einen Zeitraum von 108 Billionen Jahre
+mit ständig sinkender Geschwindigkeit dahin, wobei sich die Geschwindigkeitsabnahme zwar nicht
+gleichmässig, so doch durchschnittlich mit der Halbwertzeit-Konstante von 6,34775510204082 Billionen
+Jahren verlangsamt. Die Konstante besagt, dass die Ausdehnungs-Geschwindigkeit jeweils nach rund 6,3
+x 10[12] Jahren im Durchschnitt um die Hälfte kleiner wird. Demgemäss beträgt die Expansionsgeschwindigkeit nach dem Ablauf von 17 Halbwertzeiten 336 km/sec (genau 336,223 536 km/sec =
+1 210 404,73 km/h).
+
+
+-----
+
+**Abnahme der Expansionsgeschwindigkeit**
+Die Expansion unseres DERN-Universums erfolgt rund 47,5 Billionen Jahre lang mit 147facher Lichtgeschwindigkeit, also 47,608163265306 x 10[12] Jahre mit der Geschwindigkeit von 44 069 491,326 km/sec.
+Bei der Restexpansion nimmt die Expansionsgeschwindigkeit mit der Halbwertzeit-Konstante von
+6,34775510204082 x 10[12] Jahren ab.
+
+
+Zeit H Dauer in 10[12] Jahren Geschwindigkeit in km/sec Mittelwert
+
+0   –  7,5 = 47,60816326530606 = 44 069 491,326 33 052 118,49 km/sec
+
+7,5 –  8,5 = 53,95591836734688 = 22 034 745,663 16 526 059,25 km/sec
+
+8,5 –  9,5 = 60,30367346938770 = 11 017 372,831 8 263 029,625 km/sec
+
+9,5 – 10,5 = 66,65142857142852 = 5 508 686,415 4 131 514,811 km/sec
+
+
+10,5 – 11,5 = 72,99918367346954 = 2 754 343,207 875 2 065 757,405 km/sec
+
+11,5 – 12,5 = 79,34693877551016 = 1 377 171,603 937 1 032 878,703 km/sec
+
+12,5 – 13,5 = 85,69469387755098 = 688 585,801 968 516 439,351 km/sec
+
+13,5 – 14,5 = 92,04244897959180 = 344 292,900 984 258 219,675 km/sec
+
+14,5 – 15,5 = 98,39020408163232 = 172 146,450 492 129 109,837 km/sec
+
+15,5 – 16,5 = 104,73795918367344 = 86 073,225 246 64 554,918 km/sec
+
+16,5 – 17,5 = 111,08571428571426 = 43 036,612 623 32 277,459 km/sec
+
+17,5 – 18,5 = 117,43346938775508 = 21 518,306 311 16 138,729 km/sec
+
+18,5 – 19,5 = 123,78122448979590 = 10 759,153 155 8 069,364 km/sec
+
+19,5 – 20,5 = 130,12897959183672 = 5 379,576 577 4 034,682 km/sec
+
+20,5 – 21,5 = 136,47673469387754 = 2 689,788 288 2 017,341 km/sec
+
+21,5 – 22,5 = 142,82448979591836 = 1 344,894 144 1 008,670 km/sec
+
+22,5 – 23,5 = 149,17224489795918 = 672,447 072 504,335 km/sec
+
+23,5 – 24,5 = 155,52000000000000 = 336,223 536 km/sec
+
+Am Ende der Expansion beträgt die Geschwindigkeit 336 km/sec (genau 336,223536 km/sec =
+1210 404,73 km/h).
+
+**Ausdehnung des Universums**
+Betrachten wir die Expansion vom Gesichtspunkt der Ausdehnung, dann ergibt sich folgende Aufstellung:
+Die durch die Expansion verursachte Ausdehnung des gesamten Universums, das wir etwas vereinfacht
+als riesige Kugel betrachten dürfen, erfolgt vom Zentrum (Zentralkern) aus in alle Richtungen.
+1. Die Anfangsexpansion erfolgt 47,6 x 10[12] Jahre lang mit 147facher Lichtgeschwindigkeit und ergibt
+die Erstausdehnung von 7 x 10[15] Lichtjahren.
+2. Die verlangsamte Expansion dauert 107,9 x 10[12] Jahre lang und erzeugt die Restausdehnung von 1,4
+x 10[15] Lichtjahren.
+3. Somit beträgt die gesamte Expansionsausdehnung während 155,52 x 10[12] Jahren insgesamt 8,4 x
+10[15] Lichtjahre.
+
+**Expansionsvergleich**
+Wenn wir nun die Expansionsausdehnung etwas genauer unter die Lupe nehmen, dann steht uns eine riesige Überraschung ins Haus. In Anbetracht dessen, dass sich unser Universum in jeder Sekunde durchschnittlich um 16 Millionen km ausdehnt, denkt man unwillkürlich, das Universum müsse sich doch ganz
+gewaltig aufblähen, gleichsam wie ein Wasserball, der beim Aufblasen immer grösser und grösser wird.
+Dem ist aber nicht so. Die gesamte Expansion ist zwar überwältigend, andererseits aber doch nicht. Wie
+ist das zu verstehen?
+
+
+-----
+
+Der Radius des Universums misst am Beginn der Expansion 14 x 10[63] (14 Dezilliarden) 10 x 10[54] (10 Nonillionen 2,7465 x 10[15] (rund 2,7 Billiarden) 14 x 10[6] (14 Millionen) 3,5 Lichtjahre. Um den Sachverhalt
+besser zu erfassen ist es angebracht, die Zahl in ihrer ganzen Grösse anzuschreiben. 14 000 000010
+000000 000000 000000 000000 000000 000000 002746 500014 000003,5 Lichtjahre.
+Zählen wir jetzt die ganze Expansionsausdehnung dazu, so wachsen die 2,7465 Billiarden lediglich auf
+11,1465 Billiarden an, aber dies ist auch schon alles. Auf Anhieb wird ersichtlich, dass dieser Ausdehnungszuwachs im linken Zahlenbereich der Dezilliarden und Nonillionen kein einziges Jota ändert. Eine
+zahlenmässige Erhöhung ist einzig und allein am rechten Schwanzende – bei den Billiarden – der 65 stelligen Zahlenschlange festzustellen, während am Kopf links vorne alles beim alten bleibt. Mit diesem verblüffenden Ergebnis hätte wohl niemand gerechnet.
+Es drängt sich die Frage auf, wie gross die gesamte Expansionsausdehnung in Anbetracht der Grösse des
+Universums wohl sein mag, wenn man den Sachverhalt im richtigen Grössenverhältnis zeichnerisch darstellen will. Dies ist aber leichter gesagt als getan. Nicht einmal die Ausdehnung unseres SOL-Systems ist
+als Darstellungsobjekt hinreichend geeignet. Statt dessen wähle ich die Milchstrasse (unsere Galaxis), um
+wenigstens eine einigermassen brauchbare Vorstellung zu gewinnen. Deshalb lassen wir zunächst den
+Radius des Universums in Gedanken auf 114 000 Lichtjahre, das heisst auf den Äquatorialdurchmesser
+unserer Milchstrasse zusammenschrumpfen. Danach fügen wir den Zahlenwert der Expansionsausdehnung massstabsgerecht, also im richtigen Grössenverhältnis z.B. am rechten Rand des Äquatorialdurchmessers dazu, um zeichnerisch festzuhalten, welche Vergrösserung tatsächlich erzielt wird.
+Dieses Milchstrassen-Modell ist sozusagen eine Miniaturausgabe der Wirklichkeit, das zwar die richtigen
+Grössenverhältnisse bietet, andererseits aber die Erwartungen in bezug auf die Anschaulichkeit bei weitem nicht so gut erfüllt, wie man es gerne hätte. Es ist nämlich kaum zu glauben, dass die gesamte
+Expansionsausdehnung während 155,52 x 10[12] Jahren nicht mehr als den oktillionsten Teil (genauer 1,67
+x 10[-48]) des Universum-Halbmessers (nach dem Urknall) ausmacht. Auf unsere Milchstrasse übertragen
+ergibt dies weder einen Kilometer oder einige hundert Meter, die am äusseren Rand angehängt werden
+müssen, um das richtige Ausmass der Expansion darzustellen, sondern – sage und schreibe – nur 0,6
+Quadrillionstel mm (0,647 x 10[-24] mm).
+
+**Unsere Milchstrasse**
+
+114 000 Lichtjahre
+
+durchschnittlicher Äquatorialdurchmesser + Betrag der gesamten Ausdehnung
+
+Bevor ich nun meine Ausführungen zu Ende bringe, möchte ich es nicht versäumen, auf die besondere Bedeutung der Halbwertzeit-Konstante hinzuweisen. Wie aus der Zahlentabelle eindeutig ersichtlich ist, lässt
+sich mit ihrer Hilfe die Abnahme der Expansionsgeschwindigkeit mit exakter Genauigkeit ermitteln. In
+Halbwertzeiten von 6,347 755 102 040 82 Billionen Jahren gerechnet, beträgt die gesamte Expansion
+genau 24,5 Perioden, und zwar bis die Halbzeit des Universum-Alters von 155,52 x 10[12] Jahren erreicht
+ist. Diese verblüffende Übereinstimmung bis in die letzten Dezimalstellen kommt aber auch nicht von ungefähr, denn ganz offensichtlich handelt es sich um eine absolut richtige und unabänderliche Konstante,
+die für das ganze Universum Gültigkeit besitzt. Allerdings ist sie in keinem einzigen Lexikon zu finden,
+deshalb kommt ihr zweifellos eine wissenschaftliche Bedeutung ersten Ranges zu.
+Als die unbekannte Konstante vor etlichen Jahren zum ersten Mal in den FIGU-Schriften an die Öffentlichkeit gelangte, lag die Vermutung nahe, dass der Autor Billy Meier sehr wahrscheinlich eine diesbezügliche Schützenhilfe von seinen ausserirdischen Freunden vom Planeten ERRA in Anspruch genommen
+habe. Doch wie sich später herausstellte, stand diese Vermutung auf wackeligen Beinen – sie war ein Irrtum. Die Herkunft der Kenntnisnahme ist eigentlich recht geheimnisvoll und zwar deshalb, weil die genannte Konstante nicht einmal den hoch evolutionierten Plejadiern/Plejaren bekannt war. Aber das ist
+noch nicht alles, denn es gab und gibt für sie auch in Zukunft niemals die Möglichkeit, irgendeine Spei
+
+-----
+
+cherbank als Erkundungsquelle für diesen Zweck zu benutzen. Nun fragt man sich mit Recht, auf welche
+Art und Weise Billy Meier in den Besitz der 15stelligen Zahl gelangt sein könnte. Aber wie dies nun einmal ist – ob man es für wahr halten will oder nicht –, Tatsache ist jedenfalls, dass Billy die bewundernswerte Fähigkeit besitzt, unbekannte Zahlenwerte und andere wissenswerte Fakten aus einer bestimmten
+Speicherebene abzurufen, die nur er allein aus ganz bestimmten Gründen anzapfen kann.
+Zu guter Letzt sei noch erwähnt, dass die in diesem Artikel dargebotene Aufstellung über die Abnahme
+der Expansionsgeschwindigkeit effektiv zum allerersten Male veröffentlicht wird.
+Guido Moosbrugger/Deutschland
+
+## Und wieder einmal ...
+**Mordanschlag Nr. 19, vom 26. August 2002, 20.55 Uhr**
+Am Montag, den 26. August 2002, kam ich am Abend gegen 18.40 Uhr von einer Zivilschutzübung ins
+Center zurück, die ich für eine ganze Woche zu absolvieren hatte. Das Militär stellte mir für diese Zeit
+einen Militär-Puch (Geländefahrzeug) zur Verfügung, den ich nun auf dem Parkplatz bei der Garage abstellte und mit Material für den nächsten Tag bestückte. Noch am Fahrzeug beschäftigt, trat Billy zu mir
+und wir kamen ins Gespräch. Er erzählte mir von einem seltsamen Besuch, den er am Nachmittag hatte.
+Ein grossgewachsenes fremdes Pärchen war gegen 14.10 Uhr mit einem weinroten Personenwagen vor
+dem Remise-Gebäude vorgefahren, begrüsste ihn mit Herrn Meier und fragte, ob sie das Center besichtigen könnten. Billy sagte ihnen, dass sie sich schon umschauen dürften, dass jedoch niemand anwesend
+sei, der sich um sie kümmern könne. So wollten sie ihr Auto auf dem vorderen Parkplatz beim Biotop abstellen, kamen jedoch nicht mehr zurück. Billy wunderte sich darüber und fragte nach, ob jemand die fraglichen Personen gesehen hätte. Von Renate König aus Schmidrüti wurde ihm bestätigt, dass die beiden das
+Center verlassen hatten und die Strasse Richtung Sitzberg hinaufgefahren seien.
+Wir sprachen noch über das eine und andere, wobei ich mit meinem Rücken Richtung hinterer Rank stand
+und sah, wie Billy um 18.45 Uhr plötzlich über meine Schulter blickte. Dann sagte er, er habe soeben einen
+dunkelgekleideten Mann in der Kurve hinten beim Geröll-Silo verschwinden sehen, der nur für Sekunden
+sichtbar gewesen sei. Das schnelle Verschwinden des Mannes veranlasste mich dazu, zur Kurve hinunterzurennen und nachzuschauen. Nirgends aber fand ich ein Anzeichen eines Menschen. Nach kurzem Suchen ging ich zu Billy zurück und wir beschlossen, vermehrt Aufmerksamkeit walten zu lassen, weil uns
+das Verhalten des beobachteten Mannes doch recht seltsam vorkam. Zehn Minuten später, es war gerade
+18.55 Uhr, standen wir beide vor dem Wohnhaus und betrachteten zusammen eine grosse Kreuzspinne,
+die gerade einen Nachtfalter verspeiste, während das wunderschöne und grosse Spinnennetz in der
+Abendsonne glitzerte.
+Ein weiteres Mal stand ich mit dem Rücken zur Garage, als Billy wieder über meine Schulter sah und rief:
+«Jetzt ist der Kerl schon wieder aufgetaucht!» Jedoch hatte Billy nur kurz dessen Oberkörper neben der
+etwas entfernten Kinderschaukel gesehen, wo offenbar der gleiche Mann wieder aufgetaucht und auch
+gleich wieder verschwunden war. Wieder spurtete ich los, zusammen mit Billy, und abermals suchten wir
+vergebens nach Spuren und dem Mann. Nach längerem ergebnislosem Suchen beschlossen wir, sehr aufmerksam die Umgebung im Auge zu behalten. Ich erledigte noch verschiedene Arbeiten, duschte anschliessend, bevor ich mich dann zur Meditation zurückzog. Als ich um 20.35 Uhr in die Küche zurückkam, spielten Billy und Patric am Küchentisch eine Partie Schach. Ich schaute den beiden noch eine
+Weile zu und kochte mir auch einen Kaffee. Es war 20.55 Uhr als ich zum Kühlschrank ging, um Kaffeerahm zu holen, als Billy fragte, was denn draussen los sei und er hastig die Küche durch den Hinterausgang verliess, offenbar aufgeschreckt durch ein Geräusch, das ich selbst allerdings nicht gehört hatte, weil
+ich mich in diesem Augenblick im Hinterraum der Küche befand. Sekunden später peitschte ein Gewehrschuss auf, der sich nach einer Kleinkaliber-Waffe anhörte. Zur Küchentür rennend, riss ich diese auf und
+prallte beinahe mit Billy zusammen, der die Treppe hoch in die Küche zurückgestürmt kam. Hastig fragte
+ich ihn: «Hät’s wieder knallt?» Kurz bejahte er: «Ja, beim Russenwohnwagen!» Daraufhin holte ich in mei
+
+-----
+
+nem Zimmer meine Artillerie und schaute draussen nach, während auch Billy in der Zwischenzeit seine
+Waffe holte und nun ebenfalls bewaffnet nach draussen kam. Eine Minute später durchsuchten wir gründlich
+das Center-Areal nach dem feigen Attentäter, bewaffnet mit Lampe, Pistole und Gewehr. Nach einer halben
+Stunde erfolgloser Suche brachen wir die Aktion ab und zogen uns ins Haus zurück, wo Patric und Madeleine an der Hausecke standen und nach uns Ausschau hielten, weil sie den Schuss ja auch gehört hatten.
+Billy erzählte uns, dass er im Schein der Hühnerhoflampe vor dem ‹Russenwohnwagen› einen Schatten
+wahrgenommen und sogleich einen Satz zur Seite gemacht und im gleichen Augenblick eine Feuerlanze
+aus einer Waffe gesehen und gleichzeitig den Knall eines Schusses wahrgenommen habe. Seiner schnellen Reaktion verdankt er wohl sein Leben.
+Später gesellte sich noch Freddy zu uns, und gemeinsam suchten wir draussen nach ballistischen Spuren,
+wie eben eine Geschoss-Hülse, ein Einschuss-Loch in der Hauswand oder so, und ein eventuelles Geschoss. Die Einschuss-Stelle fanden wir dann auch, jedoch nicht in der Hauswand, sondern in der Kunststoff-Scheibe des Käsehäuschens, vor dem Billy in etwa sechs Meter Abstand bei der Hoflampe gestanden
+hatte. Später fanden Freddy und ich tatsächlich auch das deformierte Projektil, bei dem es sich klar um
+ein Kleinkaliber-Geschoss handelte. Dies war nun schon der 19. erfolglose Mordanschlag auf Billy, wovon
+ich selbst deren sechs direkt miterlebte. Mit Galgenhumor sagte Billy, dass sein einstmaliger Gönner,
+König Husain von Jordanien, ihm immer noch um eine ganze Anzahl Mordanschläge auf dessen Leben
+voraus gewesen sei, ehe er an Krebs starb, denn auf ihn seien 32 Attentate verübt worden. Bleibt nur zu
+hoffen, dass für die nächste Zeit wieder Ruhe einkehrt.
+Silvano Lehmann, Schweiz
+
+## Wieder einmal mehr ...
+Ganz offensichtlich ist es zur Gegenwartszeit, am Anfang des dritten Jahrtausends, unter den Erdenmenschen leider immer noch so, dass von verschiedenen Kräften nach Möglichkeiten gesucht wird, der Wahrheit und der wirklichen Aufklärung mit primitiven Gewaltmitteln den Garaus zu machen, wie dies schon zu
+früheren und frühesten Zeiten der Fall war und offenbar zum heutigen Zeitpunkt leider noch immer kein
+Ende gefunden hat. So geschah es auch am Montag, dem 26. August 2002, als ein weiteres Attentat in der
+langen, mehr oder weniger erfolgreichen Kette der gewaltsamen Wahrheitsunterdrückung und Wahrheitszerstörung dazukam, und zwar indem von bisher unbekannter Seite ein weiterer Versuch unternommen
+wurde, ‹Billy› Eduard Albert Meier das Lebenslicht auszulöschen. Glücklicherweise misslang dieser Mordanschlag gründlich, nicht zuletzt auch dank der Vorsicht und der schnellen Reaktionsfähigkeit Billys. Was
+aber war geschehen? An diesem besagten Montag hatte ich, Patric Chenaux, um acht Uhr abends eine Verabredung mit Billy für ein gemeinsames Schachspiel in der Centerküche. Schon als wir uns begrüssten, erschien es mir, als sei Billy irgendwie um irgendetwas besorgt, und als ich ihn darauf ansprach, gab er mir
+nur eine ausweichende Antwort, so ich die Angelegenheit zur Seite schob und wir mit dem Schachspiel beginnen konnten. Es war gerade, als die Zeiger der beiden Küchenuhren so gegen 20.55 Uhr rutschten: Billy
+und ich sassen immer noch beim Schachspiel und waren mit Silvano Lehmann allein in der Küche. Plötzlich
+fuhr Billy hoch und fragte: «Was ist denn da draussen los?», währenddessen er gleichzeitig aufmerksam
+aber nur kurz in Richtung Küchenfenster blickte, um sogleich aufzustehen und zur hinteren Küchentür zu
+eilen, die hinaus in den Hinterhof führt. Auf meine Frage, was denn los sei, entgegnete er mir nur kurz, dass
+er nur ein Geräusch gehört habe; und schon war er durch die Tür ins Freie entschwunden. Da mir diesbezüglich nichts aufgefallen und ich auch nichts gehört hatte, wahrscheinlich weil ich mich aufs Schachspiel
+konzentrierte, blieb ich einfach sitzen und blickte zum Küchenfenster hinaus.
+Nur wenige Sekunden später, nachdem Billy die Küche verlassen hatte, ertönte draussen ein halblauter
+Knall, der, wie mir schien, sich wie ein Gewehrschuss von einem Kleinkaliber-Gewehr anhörte. Silvano,
+der gerade aus dem Küchenhinterraum herausgekommen war und nur etwa einen Meter von der Tür entfernt stand, realisierte sofort, was geschehen war, denn er hörte den Schuss ebenfalls. Hastig riss er die
+
+
+-----
+
+Küchentür auf und wollte blitzartig ins Freie rennen, um Ausschau zu halten, was er aber nicht mehr tun
+konnte, da sogleich Billy rennend die Treppe hochstürmte und im Türrahmen erschien, beinahe mit Silvano zusammenprallend. Auf die Frage Silvanos, ob das ein Schuss gewesen sei, was wir hörten, und ob
+wieder auf ihn geschossen worden sei, erwiderte Billy ziemlich ausser Atem mit einem Ja, um sogleich anzufügen, dass er seine Pistole holen gehe, währenddessen Silvano in sein Zimmer eilte und mit seinem
+Gewehr zurückkam. Zu dritt und zusätzlich mit einer Taschenlampe bewaffnet, verliessen wir die Küche
+und betraten den Hinterhof, wo Billy uns die Stelle zeigte, woher der Schuss kam. Er erklärte uns, dass er
+nach dem Verlassen der Küche an jener Stelle eine dunkle Gestalt und deren Umrisse vis-à-vis des Russenwohnwagens, im Schatten neben dem grossen Zaun, der das ganze Hühnergehege umspannt, gesehen und sogleich darauf eine Feuerlanze – das Mündungsfeuer einer Feuerwaffe – gesehen habe, begleitet von einem Knall. Als er die dunkle Gestalt erblickte, wich er sofort zurück, um sich schnellstens aus
+dem Schussfeld zu entfernen und zur Küche zurückzurennen, wo eben Silvano hinauslaufen wollte. Und
+jenes Geräusch, das er zuallererst vernahm und das ihn aus der Küche lockte, so berichtete Billy weiter,
+war mit grosser Wahrscheinlichkeit ein Stein, den diese finstere Gestalt offenbar an die Eternitwand an
+der Nordseite des Hauses geworfen hatte, wohl in der bösen Hoffnung dessen, dass dadurch, eben durch
+das dadurch verursachte Geräusch, Billy aus dem Haus zu locken sei, was sich zwar bewahrheitete, aber
+glücklicherweise ohne schlimme Folgen blieb. Nach dieser kurzen Schilderung Billys machte sich Silvano,
+ausgerüstet mit Gewehr und Taschenlampe, sogleich auf die Pirsch und suchte die nähere und weitere Umgebung des Centergeländes nach diesem gemeinen Unhold ab, währendem Billy und ich in der Nähe des
+Hauses blieben, suchten und hofften, etwas erkennen oder sehen zu können. Ein paar Minuten später gesellte sich Madeleine Brügger zu uns und fragte, was denn los sei, da sie von ihrem Zimmer aus ebenfalls
+den Schuss gehört hatte. Billy erläuterte ihr in kurzen Zügen den Sachverhalt des Geschehens, worauf sich
+wiederum ein paar Minuten später ein schwarzes Automobil dem Center näherte, auf dem oberen Centerparkplatz parkierte, und aus dem Simone und Stephan A. Rickauer entstiegen, zu denen wir uns dann
+gesellten. Auch die beiden wurden von Billy in das Geschehen eingeweiht. Er fügte aber noch hinzu, dass
+er schon den ganzen Tag das flaue Gefühl gehabt habe, dass etwas nicht stimme, weil am frühen Abend
+er und Silvano zweimal, innerhalb zehn Minuten, einen verdächtig aussehenden und sich verdächtig verhaltenden Mann auf dem Centerareal beobachteten, der sich nach seiner Entdeckung sogleich aus dem
+Staub machte. Nach dieser Schilderung Billys kam Silvano von seiner Suche zurück und erklärte, dass er
+nichts und niemanden gefunden oder entdeckt habe, woraus wir schlossen, dass der gemeine Schütze und
+Attentäter nach seinem Schuss sofort und auf Nimmerwiedersehen das Weite gesucht hatte. Also gingen
+wir zum Tatort zurück und beschlossen, nach dem abgefeuerten Projektil zu suchen, da es ja wahrscheinlich irgendwo eingeschlagen war, nachdem es glücklicherweise Billy verfehlt hatte. Nach der Rekonstruktion der Flugbahn des Geschosses suchten wir an der Ostseite des ‹Chäshüsli›, das hinter dem Wohnhaus
+steht, Wand und Fenster ab und wurden relativ rasch fündig. Im ‹doppelplastikverglasten› Fenster entdeckten wir einen glatten Durchschuss eines kleinkalibrigen Geschosses, der in den Brennholz-Lagerraum
+führte und in dem, zu einem späteren Zeitpunkt, von Silvano und Freddy, der sich auch zu uns gesellte,
+tatsächlich auch noch das Projektil gefunden wurde. Nun, was ist zu diesem mittlerweile 19. Mordanschlag auf Billy eigentlich noch zu sagen? Meiner Meinung nach nur noch dieses: Nach einer relativen
+Ruhe von gut vier Jahren (die beiden letzten Mordanschläge fanden im Jahre 1998 statt), waren wir eigentlich der Meinung, dass sich die Gesinnung des Erdenmenschen soweit zum Besseren gewandelt hätte,
+dass die unrühmlichen und primitiven Zeiten der gemeinen Mordanschläge endgültig vorbei seien, worin
+wir uns aber offenbar ein bisschen getäuscht haben. Wann endlich lernen gewisse Kreise, dass die Wahrheit auch nicht mit den hinterlistigsten und bösartigsten Mitteln, vor allem nicht mit Gewaltmitteln, aus der
+Welt zu schaffen ist. Wahrscheinlich erlangen diese dunklen Elemente erst dann den Funken der Erkenntnis, wenn sie einsehen müssen, dass sie auf Dauer einiges besser fahren, wenn sie, anstatt gegen die
+Wahrheit, für sie und mit ihr arbeiten.
+Patric Chenaux, Schweiz
+
+
+-----
+
+-----
+
+Tages-Anzeiger, 14. 2.2002
+
+BILD NASA
+
+
+Tages-Anzeiger, 22.1.2002
+
+
+-----
+
+BILD NASA
+
+
+-----
+

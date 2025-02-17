@@ -1,0 +1,513 @@
+25. Jahrgang
+Nr. 106, Dez. 2019
+
+
+Erscheinungsweise:
+Sporadisch
+
+
+# FIGU-BULLETIN
+
+Internetz: http://www.figu.org
+E-Brief: info@figu.org
+
+
+### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+
+Laut ‹Allgemeine Erklärung der Menschenrechte› vom 10. Dezember 1948,
+
+‹Meinungs- und Informationsfreiheit› gilt absolut weltweit:
+
+**Art. 19 Menschenrechte**
+
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit,**
+
+**Meinungen unangefochten anzuhängen und Informationen und Ideen mit allen Verständigungs-**
+
+**mitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Aussagen und Meinungen in Artikeln und Leserbriefen usw. müssen
+
+nicht zwingend identisch sein mit den Gedanken, Interessen, der
+
+‹Lehre der Wahrheit, Lehre des Geistes, Lehre des Lebens›
+
+sowie dem Missionsgut der FIGU.
+
+=================================================================================
+
+**Für alle in jedem FIGU-Bulletin, Sonder-Bulletin und anderen FIGU-Periodika publizierten Leserzuschriften,**
+
+**Beiträge und Artikel von Medien usw. verfügt die FIGU über die notwendigen schriftlichen**
+
+**Genehmigungen der Leserschaft und der Autoren bzw. der betreffenden Medien!**
+
+=================================================================================
+### *********************************************************************************
+
+## Von Hirten und Schafen
+
+von Christian Frehner, Schweiz
+
+In der hebräischen Bibel bzw. im Alten Testament sind unter ‹Die poetischen Bücher› 150 sogenannte
+Psalmen (von gr. ψαλμός _psalmós ‹Saitenspiel, Lied›) enthalten. Dabei handelt es sich um Lieder,_
+Gedichte, Gebete und Lobpreisungen zugunsten des «Herrn», also dem Gott der Juden und später
+hinzugekommenen Christen. Auszüge aus diesen Psalmen werden oft zur Ausschmückung von
+Predigten verwendet, oder zum Ausfüllen nichtgenutzten Platzes auf Zeitungsseiten mit Todesanzeigen.
+Ein gerne und oft zitierter Psalm, nämlich der 23., beginnt wie folgt (Quelle: Zwingli-Bibel): «Der Herr ist
+mein Hirte, mir wird nichts mangeln. Auf grünen Auen lässt er mich lagern, zur Ruhestatt am Wasser
+führt er mich. …» Zugegeben, ein schönes, poetisches Bild, das hier entwickelt und in der Bibel und
+auch im Neuen Testament von den Autoren öfters benutzt wird – irgendwie archaisch anmutend, und
+nicht gerade alltäglich in der heutigen Zeit von Internetz, künstlichem Intelligentum und Smartphones.
+Aber leider sind die Dinge nicht immer so, wie sie scheinen oder erscheinen. Wohl kaum je werden
+einem Gläubigen beim wohligen und andächtigen Anhören dieses Psalms die inneren Alarmglocken zu
+schrillen beginnen, weil er sich plötzlich bewusst wird, dass es sich bei diesem friedlichen Bild des
+Hirten mit seinen Schafen um eine Art düstere Allegorie, d.h. eine Verschleierung handelt. Um dies zu
+erläutern, lasst uns das Bild bzw. Gleichnis doch mal etwas genauer und vor allem neutral betrachten:
+Wofür steht das Bild der Schafherde, von Schafen generell? – Wohl kaum für Eigenschaften wie Initiative,
+Individualismus oder Selbständigkeit, sondern wohl viel eher für Kollektivismus und ausgeprägten
+Herdentrieb, also Mitläufertum, und konkret natürlich für eine Art ‹Rasen- bzw. Grasmäher›-Tätigkeit
+und als Lieferanten von Wolle, damit beispielsweise der Hirte sich davon einen warmen Wintermantel
+weben lassen kann. Aber der Hauptzweck einer gehüteten Schafherde ist ganz klar der eines
+Fleischlieferanten. Die Rolle bzw. Aufgabe des Hirten, für die er vom Besitzer der Herde bezahlt wird,
+
+
+-----
+
+beschränkt sich darauf, dafür zu sorgen, dass möglichst alle Lämmer überleben, dass die Herde gesund
+und vollzählig bleibt und, wenn ein Teil der Herde für die Schlachtung ausgesondert wird, dass diese
+Tiere schön Fleisch und Fett angesetzt haben.
+
+Diese realistische Sachlage nun festgestellt zu haben, führt einen kritisch-denkenden Menschen wohl
+automatisch dazu, sich zu fragen: ‹Und jetzt, was vermittelt uns dieses poetische Bild und Gleichnis, das
+so oft von der Kanzel herunter gepredigt und von den Gläubigen als von Gott verheissene Geborgenheit
+und Führung mit Inbrunst aufgesogen wird, bei neutraler, nüchterner Analyse tatsächlich?›
+Die **Schafe repräsentieren die Gläubigen, die Besucher von Kirchen, Synagogen und Moscheen, die**
+Bezahler von kirchlich-institutionellen Abgaben, aber auch die Wissenschaftsgläubigen, die
+
+selbsternannten Skeptiker, die gedankenlos mit der Masse Mitschwimmenden sowie die intellektbezogen Unbedarften usw.
+Als **Hirten wirken die Geistlichen aller religiös-sektiererischen Fraktionen sowie die unzählbar vielen**
+selbsternannten Gurus, Meister und Experten in bezug auf Religion, Politik, Lehre und Wirtschaft usw.
+usf., die sich mit ihren unbewiesenen Behauptungen und Hypothesen aufplustern und von den
+Anhängern anhimmeln lassen.
+Und wer nun ist der Besitzer der Herde? Nun, da «der Herr», also Gott als personifizierter Erschaffer des
+Universums usw., nie existiert hat und ‹nur› einem von Menschen erfundenen Wahnbild entspricht, ist es
+demzufolge der religiöse oder andersgelagerte **Glaubenswahn, der die Kontrolle über die Gehirne der**
+Gläubigen ausübt und diese in einer Art schizophrenem, bewusstseinskomatösem Zustand
+gefangenhält, sozusagen ‹besitzt›, wobei sich die Betroffenen ihres unfreien, sklavenhaft erniedrigten
+Zustandes absolut nicht bewusst sind und sich stattdessen in blinder Glückseligkeit oder eitel
+Selbstgerechtigkeit als freie Menschen wähnen. Wohl mit Augen versehen, aber bewusstseinsmässig
+blind, werden diese ‹Schafe› teils absichtlich in bewusstseinsmässiger Dunkelheit gehalten, oder sie tun
+dies aus Überheblichkeit, Hochnäsigkeit und Borniertheit usw. selbst und also ohne fremdes Dazutun.
+Traurige Tatsache ist, dass alle diese Menschen in ihrem unbewusst bewohnten ‹Gefängnis› keine
+Ahnung davon haben, welche Wonnen an wirklicher Freiheit sie geniessen könnten, würden sie ihr
+Denken und Handeln ausschliesslich auf die Realität ausrichten, was bedeutet, dass sie als
+bewusstseinsmässig-freie Menschen die Verantwortung für all ihr Denken, Fühlen und Handeln selbst
+tragen, anstatt ihre Eigenständigkeit und ihre Freiheit an imaginäre Wahngebilde abzutreten. Leider wird
+diese bereits seit Jahrtausenden anhaltende menschliche Tragödie, die sich aufgrund des
+ungebremsten Bevölkerungswachstums stetig intensiviert, noch lange andauern, lässt sich doch die
+Schädigung bzw. Fehlfunktion, die im Stirn- und Schläfenlappen des Gehirns der Gläubigen verankert
+ist und die deren ‹Therapieresistenz› quasi zementiert, nicht so einfach beheben. Dazu braucht es über
+sehr viele Generationen hinweg eine zu erfolgende Aufklärungsarbeit, denn genetische Anomalien in
+diesem Ausmass benötigen für eine Heilung bzw. Neutralisierung entsprechende bewusstseinsmässige,
+konsequente und zielgerichtete Bemühungen über sehr lange Zeit.
+Leider wird diese Tragödie noch verstärkt dadurch, dass momentan im Weltgeschehen kein einziger
+Hinweis festzustellen ist, der einen Trend dafür aufzeigen würde, dass der grosse ‹Knall› abgewendet
+werden kann, der gemäss dem universellen Gesetz von Ursache und Wirkung sich mit immer lauter
+werdendem Grollen ankündet. Dieser ‹Knall› kann ein einzelnes Ereignis oder deren mehrere sein, und
+er bzw. dieses wird mit grosser Wahrscheinlichkeit dazu führen, dass ein grosser Teil der irdischen
+Menschheit in einem abgekürzten Verfahren ins Jenseits befördert wird; dies hauptsächlich wegen der
+Tatsache, dass einem Glauben unterworfene Menschen unfähig sind, den Sinn für weltweit greifende,
+radikale Geburtenregelungs-Massnahmen zu erkennen, geschweige denn solche zu akzeptieren. Und so
+rennt die riesige ‹Schafherde›, die gemäss plejarischen Angaben rund 96% der irdischen Menschheit
+umfasst, mit starr auf den Gebetsteppich, das Smartphone, die Kanzel oder die unfähigen Leithammel
+gerichtetem Blick auf den unter einer herannahenden, düsteren Wolkenwand verborgenen Rand eines
+bodenlosen Abgrunds zu. 9.3.2019
+
+## Der beste Weg
+
+Der beste Weg, um mit anderen Menschen auszukommen, ist der, sich
+
+nicht darum zu kümmern, was die anderen tun, sondern in guter Manier
+
+sich um alle eigenen Belange zu bemühen und selbst Wertiges zu leisten.
+
+SSSC, 12. Januar 2005, 16.45 h, Billy
+
+
+-----
+
+## Der neue Centerbewohner <Zwerg Barbarus>
+ und sein grosser Bruder <Riese Präses Andreas>
+
+Wenn dem Kleinen nichts zu gross ist, ist dem Grossen nichts zu klein.
+
+## Sichtung eines Unbekannten Flug-Objektes vom FIGU-Center aus
+
+Dieses UFO resp. Unbekannte Flugobjekt wurde erstmals im Vorbeiflug südlich über Schmidrüti am 22. Juli 1977, um ca.
+9.00 h, von Guido Moosbrugger, Herbert Runkel, H. u. K. Schutzbach und Billy und seither von einzelnen Personen
+sporadisch immer wieder beobachtet, wie es von Westen herkommend nicht sehr hoch über Schmidrüti nach Osten flog.
+Neuerding wurde das Objekt am 2. und 16. Mai 2019 auf gleicher Flugbahn vom Center aus jeweils zwischen 20.45 h und
+20.50 h auch von mehreren KG-Mitgliedern beobachtet. Am 23. und 25. Mai jedoch flog offenbar das gleiche Objekt, in
+grösserer Höhe als sonst, vom Center aus gesehen im Norden vorbei und wurde von Barbara Harnisch, Stefan und
+Anton Hahnekamp, Tony Quinn und Maarten de Penning beobachtet. Am 1. Juni zog um 23.00 h offenbar das
+nämliche Objekt über das FIGU-Center hinweg und wurde von Patric Chenaux und Billy, wie auch in Fischingen von Pius
+Meinrad Keller beobachtet. Am 9. Juni 2019 beobachtete Billy in der anbrechenden Dunkelheit um 22.17 h von der
+Nordseite des Centers aus, wie offenbar wieder dasselbe Objekt völlig geräuschlos von Westen herkommend und sehr
+tieffliegend das Tal entlangflog, um dann vor dem bewaldeten Osthügel schräg nach oben anzusteigen und über die
+Tannenwipfel hinweg ostwärts zu verschwinden. Ehe das Objekt verschwand, das Billy auf eine Grösse von ca. 5–7
+Metern schätze, konnte er noch ein Photo des sehr hell gelblich-orange leuchtenden Objektes machen.
+
+**Erste sechs Photos**
+
+Am 23. Mai, um 21.58 h konnte ich 4 Aufnahmen machen. Stefan und Anton Hahnekamp, Tony Quinn
+
+und Maarten de Penning haben mich, Barbara Harnisch, darauf aufmerksam gemacht und schauten ebenfalls zu.
+
+
+-----
+
+Beide Male, 23. und 25. Mai 2019, flog das Objekt völlig geräuschlos von Westen nach Osten
+
+Photo unten: Minikamera COOLPIX: Nordrichtung; Vordergrund die Vogelfutterstelle; rechts Hofleuchte; Aufnahme: Billy.
+
+9. Juni 2019, 22.17 h, hinter dem Center, Unbekanntes Flugobjekt.
+
+## Verstand, Vernunft, Intelligenz,
+
+
+## Verstand, Vernunft, Intelligenz,
+
+
+-----
+
+### Ein oranges Flugobjekt hinter dem Center
+
+Am Sonntag 14.7.2019 hatte ich Nachtwache. Um ungefähr 21.45 wollte ich auf die Runde gehen und
+zog gerade meinen Regenmantel und die -hose an, als ich sah, dass Billy in die Küche kam. Ich hatte
+ihn gesucht, weil ich ihm etwas ausrichten wollte. Nachdem ich ihm gesagt hatte, was ich sagen wollte,
+fiel mir auf, dass Billy nach draussen schaute; daher, neugierig geworden, wollte ich sehen, wonach er
+gerade Ausschau hielt. Seinem Blick folgend, konnte ich am Horizont ein stark organgefarbenes, rundes
+Lichtobjekt sehen. Gemeinsam gingen wir zum Küchenfenster, wonach Billy nach einiger Zeit meinte:
+«Es isch è Flugi». Was aber seltsam war, war die Tatsache, dass es nicht weiss-gelb war, wie die üblichen
+Flugzeug-Scheinwerfer, sondern stark orange, und als ich das Ganze beobachtete, konnte ich keine
+blinkende Lichter sehen, wie es bei Flugzeugen üblich ist. Auch wenn das Licht der Scheinwerfer direkt
+in unsere Richtung kommend war, war kein Blinklicht zu erkennen, wie das immer der Fall ist, wenn
+Flugzeuge am Himmel rund ums Center vorbeifliegen und den Flughafen Kloten ansteuern. Das Fehlen
+eines Blinklichts beim orangefarbenen Licht veranlasste mich, nach draussen zu gehen, um das Objekt
+genauer anzuschauen, weil ich annahm, dass vielleicht die Blinklichter durch die Glasscheibe der
+Küchenfenster nicht gut sichtbar sein konnten. Als ich draussen war, konnte ich jedoch auch keine
+Blinklichter erkennen, obwohl das stark in oranger Farbe leuchtende Flugobjekt deutlich zu sehen war.
+Weil ich dachte, dass die Blinklichter bei Flugzeugen unter bestimmten Umständen erst unter einem
+gewissen Blickwinkel gut sichtbar sein könnten, wartete ich draussen darauf, dass ich das noch genau
+überprüfen könnte, eben ob es Blinklichter gab oder nicht. Billy kam dann auch zu mir nach draussen,
+doch es waren auch da immer noch keine Blinklichter zu sehen. Also beobachteten wir längere Zeit das
+völlig lautlos unter den dunklen Wolken schwebende Objekt, das offenbar stationär unter dem Gewölk
+verharrte, doch dann verschwand es plötzlich spurlos, als hätte sich das helle orange Licht einfach
+ausgeschaltet. Hinter dem Objekt hatte es dicke Schichten dunkler Wolken, also konnte es sich nicht um
+einen Stern gehandelt haben, der hätte durchscheinen können, und ausserdem war das orange Licht
+viel zu intensiv und zu gross für einen Stern. Über dem Objekt waren auch zwei weitere dichte
+Schichten dunkler Wolken, weil es zuvor geregnet hatte und nochmals zu regnen drohte, doch diese
+hatten sich auch durch das plötzliche Verschwinden des orangen Objekts nicht verändert.
+Nun, meine erste Annahme war, dass das Objekt in die Wolken hineingeflogen und daher unsichtbar
+geworden sei, was ich auch Billy sagte. Plötzlich erschien das Objekt aber nochmals unter den Wolken,
+jedoch näher zu uns und zudem rechts von der vorherigen Position, wo das Objekt zuvor als etwas
+kleineres Licht erschienen war. Am neuen Ort blieb es nur kurze Zeit schwebend stehen, wonach es wie
+zuvor plötzlich und endgültig verschwand. Von dem Punkt aus, wo das Objekt zuerst unter den Wolken
+war, hat es wohl blitzschnell senkrecht hochsteigen müssen, um in den Wolken zu verschwinden und
+um dann viel näher zu uns und zudem auch rechts von der früheren Position wieder zu erscheinen, wo
+es zuerst eben erschienen war. Das Objekt hat offenbar eine rechteckige Flugbewegung machen
+müssen, was für unsere heutigen Flugzeuge absolut unmöglich ist. Trotz meiner Bedenken, dass es
+eben kein Flugzeug gewesen sein konnte, wartete ich einige Zeit, weil ich sicher sein wollte und ich mich
+vielleicht doch getäuscht haben könnte und es doch ein Flugzeug hätte gewesen sein können, das in
+den Wolken herumgeflog. Billy sagte dazu, dass Flugzeuge nicht einfach ihre Positionslichter
+ausschalten dürften und dass es Pflicht sei, diese in Betrieb zu halten. Also warteten wir beide draussen,
+bis mir auffiel, dass kein Düsen- oder Motorengeräusch zu hören war, was ja zwangsläufig hätte sein
+müssen, weshalb wir noch längere Zeit zuwarteten, wobei jedoch auch nach mehreren Minuten rundum
+alles ruhig blieb und kein Flugzeuggeräusch irgendwelcher Art zu hören war, was jedoch hätte sein
+müssen. Auch war keine Haloerscheinung auf der Unterseite der Wolken zu sehen, was ein
+Flugzeugscheinwerfer sicher erzeugt hätte, wie ich verschiedentlich schon feststellte, wenn Flugzeuge
+über den Wolken flogen und ihr Scheinwerferlicht durch die Wolken drang. Trotzdem wartete ich aber,
+in der Hoffnung, dass wenn es ein Flugzeug gewesen wäre, es die gleiche Flugbahn hätte nehmen
+müssen, wie die anderen Flugzeuge auch, die öfters vom Nord-Horizont herkommend in Richtung zu
+unserem Center fliegen und dann links Richtung Westen abdrehen müssen, um den Flughafen Kloten
+anzusteuern. Es geschah jedoch nichts dergleichen, denn das orange Objekt kam nicht wieder zum
+Vorschein, sondern blieb verschwunden.
+Billy und ich hörten sehr genau hin, doch war weder ein Düsen- noch ein Motorengeräusch
+wahrzunehmen, noch sahen wir irgend etwas auf der normalen Bahn der Flugzeugrouten erscheinen.
+Die Bahn der Flugzeuge aus der Nord- oder Ostrichtung ist normalerweise nah am Center vorbei und
+nicht gerade sehr hoch am Himmel. Aber es passierte effectiv nichts. Billy meinte dann, seine erste
+Vermutung korrigierend, dass wenn es ein Flugzeug gewesen wäre, dieses schon längst wieder hätte
+erscheinen und vorbeifliegen müssen. Zudem hätten wir schon längst ein Düsen- oder Motorgeräusch
+hören müssen, was jedoch nicht der Fall war. Nachdem Billy seine Meinung gesagte hatte, ging er
+
+
+-----
+
+wieder ins Haus, vielleicht 10 oder 15 Minuten, nachdem das orange Objekt spurlos und geräuschlos
+verschwunden war. Also ging auch ich kurz mit Billy rein, jedoch kurz darauf wieder hinaus, weil ich
+einfach sicher sein wollte, dass es doch kein Flugzeug gewesen war. Ungefähr fünf Minuten wartete ich
+draussen, wonach ich dann ein Düsengeräusch von einem Flugzeug hörte, das sehr niedrig flog. Und
+dieses Flugzeug, das ich jetzt sah und hörte, hatte eine Flugbahn, die andersartig zu der war, die das
+orange Objekt hätte nehmen müssen, wenn es ein Flugzeug gewesen wäre, denn dieses nun kam aus
+einer völlig anderen Richtung, als dies beim orangen Objekt der Fall war. Dieses Flugzeug, das ich nun
+hörte und sah, flog auch zu niedrig und nicht so hoch, wie eben das orangefarbene Objekt. Bei diesem
+Flugzeug sah man nun auch dieses Mal den weissen Scheinwerfer und die weiss-gelben Positionslichter,
+nicht eben nur ein grosses und starkes oranges Licht wie beim beobachteten Objekt. Dieses war also
+mit absoluter Sicherheit kein Flugzeug, und das kann ich klar bezüglich meiner Beobachtungen sagen
+in bezug auf das Verhalten des orangen Flugobjekts, gegensätzlich zu Flugzeugen.
+
+Ulrich Nangue, 15.7.2019, Schmidrüti
+
+## Verstand, Vernunft und Intellekt 
+ Die fehlenden Werte beim Gros der überbordenden Überbevölkerung
+
+Einzig durch einen gut-klaren Verstand, eine nachhaltige, fassbare Vernunft und durch ein genügend
+hoch und sich bis zur Reife entwickeltes Intellektum resp. Intelligentum können die Wirklichkeit, deren
+Wahrheit und die Unwiderlegbarkeit jeder Realität absolut deutlich erkannt werden, wie auch jedes
+natürliche Gesetz und Gebot, die in aller Freiheit in der freien Natur weit-rundum auf der Erde mit
+ihrem gesamten Leben, wie auch als prachtvolles Universum mit üppigen Gestirnen als Wesen
+Schöpfung in ihrer unendlichen, weiten Herrlichkeit jedem gesammelten Menschen sichtbar, klar
+bewusst und auch verstanden werden. Dies führt jeden verlässlichen Menschen zum bewussten
+Erarbeiten bester Werte in bezug auf das persönliche Leben und Wohl sowie zum Segen für alle
+Nächsten und alles sonstig Existente. Alles ist solid in richtiger Art und Weise friedlich sowie auch
+nutzvoll und nachhaltig zu formen, um es dann auch umzusetzen und es in bester wertvoller Weise zu
+verwirklichen. Dies ist aber dem Menschen unmöglich, wenn ihm alles an Kraft und Wissen, an gutem
+Verstand, klarer Vernunft und echtem Intellekt und auch an jeder Weisheit fehlt. Weil er sich aber in
+keiner Weise bemüht, alle die Werte von Verstand, Vernunft und Intellekt zu erarbeiten, bleibt er für die
+Zeit seines Lebens dumm, ist unfähig, all die wichtigen, guten und soliden Werte des Daseins sowie alles
+sehr Notwendige in jeder erdenkbaren Hinsicht zu erlangen. Das bedeutet, dass ihm für alle Zeiten der
+Weg zur Weisheit verschlossen und er ein Wahrheitsversager bleibt, und zwar sowohl in bezug auf sein
+Leben gesehen, wie aber auch hinsichtlich aller wahren Erkennung, Wahrnehmung und all der
+Möglichkeiten, die rundum in der Natur gut sichtbar den Weg weisen, um die effective Wirklichkeit und
+deren klare, unumstössliche Wahrheit zu erkennen, die einzig darin zu finden ist, jedoch effectiv und
+absolut nicht in irgendeinem wirr-kranken Glauben einer Religion, Sekte, Philosophie oder sonstig
+dummen Narretei. Wenn es dem Menschen an einer richtigen Gesinnung oder Meinung mangelt, oder
+an obligaten Entscheidungen, dann ist niemals Gläubigkeit gefragt, sondern Verstand, klare Vernunft,
+Intellekt resp. Intelligentum, Verantwortung, kluges Verhalten, logisches Handeln sowie Klarheit, Scharfsinn, Gebildetsein und Gescheitheit – und zwar zur Geltung gebracht in Bescheidenheit und
+Rechtschaffenheit.
+SSSC, 28. April 2019, 12.34 h, Billy
+
+In der Politik wird ein dummer Mensch mit beschränktem Kopf mehr geschätzt als ein einfacher
+
+Mensch mit gescheitem Kopf, der klar bei Verstand und Vernunft, sehr weise und daher
+
+voll der Liebe und des Friedens ist; fern allem Despotismus, Hass und Hirnlosen.
+
+SSSC, 21. Oktober 2015, 11.18 h, Billy
+
+## The vehement and irrational rejection by the human being with regard to
+ life- and nature-conservation measures to preserve life and nature
+
+**(Die vehemente und vernunftwidrige Ablehnung des Menschen**
+
+**in bezug auf lebens- und naturerhaltende Massnahmen)**
+
+http://www.figu.org/ch/files/downloads/zeitzeichen/figu_zeitzeichen_101.pdf
+
+The majority of the humankind considers the planning of the killing of human beings, the production
+
+and distribution of weapons and materials of war as well as the waging of war just as legitimate as
+
+torture and the death penalty. This, while the careful contraception with regard to descendants and thus
+
+
+-----
+
+a worldwide birth control is referred to as a felony against the sphere of personal privacy. Also, the
+
+preservation of the balance of nature, the fauna and flora as well as the climate and the planet and the
+
+rational exploitation and use of the available resources of the Earth come up against vehement and
+
+irrational rejection.
+
+The taking up of arms in preparation for killing and the effective acts of war being the actual murder of
+human beings, is by no means legitimate according to the creational-natural laws and
+recommendations, as this the human being of the Earth unfortunately sees and believes to understand
+otherwise, namely that he/she simply – for whatever wrong, egotistical/selfish, jealous, hateful, vindictive,
+retaliatory, might-greedy, warlike, punitive or other human-unworthy/inhumane and life-hostile
+justifications or reasons – is entitled to the killing and murdering of fellow human beings. And in this
+regard, religions and sects play a decisive role, namely through the invention of the imbecilic myth that
+there is an all-loving god who had created the world, the sun, the stars and everything existing, with
+which the irrational teaching and gothic tale could take root, that not the laws of nature are the origin of
+all things, but simply god. And with this such loving god father – who is supposed to be lenient and fair
+and shall bear the responsibility for everything existent – the wrath of god was also nonsensically and
+contradictorily thought-up, which takes action against all and everything with harsh punishment, what
+offends against his directives, commands, decrees and commandments, and as a last sequence in
+terms of a punishment, even the body's mutilation and the death penalty shall be justified and
+legitimate. And all this nonsense has already been woven into the education of the children since time
+immemorial and hammered into them with suggestive persuasive Gewalt, imparted to them as belief
+and made them dependent on it. Consequently, they are confronted from early on with the religioussectarian god-lie and with the egoism, the hatred, the revenge and retaliation, death and war as well as
+selfishness, imperiousness, jealousy and might-behaviour, etc., just as these unvalues are characteristic
+to god, who – as is drummed into the children – controls and rules in this wise as he likes. Included
+therein, however, are also envy, lovelessness, unconcernedness, selfishness and irresponsibility towards
+the value of life, because the whole responsibility is shifted to god, the humanly thought-up imaginary
+figure of delusion, and the anxiety of the angry and vengeful god does not allow to bear selfresponsibility.
+The pathological lowly intelligent and simple-minded, illogical and contradictory lie, namely that there is
+a god who is the goodness and love itself, also legitimises that he alone determines everything and
+therefore has the sole right to demand punishment, revenge and retribution in many respects for
+infringement, etc., and indeed even bodily mutilations and death for heterodoxy (believing differently),
+for delicts, adultery, errors, god-belief apostasy, guilt, unright, felony and infringement, etc., as well as
+war against hostile or simply human beings, groups and peoples who believe differently. Thus, it is only
+therethrough, namely through this insanity of the religious-sectarian god-delusion-belief, that the
+majority of the earthly humankind is struck with anxieties, misery, affliction, hardship and horror,
+besides the fact that the Earth is a malicious place of horror for large parts of the human beings as a
+result of torture, war, death and destruction as well as the consequences of globalisation and
+overpopulation. In addition to this, many heavy strokes of fate will have to be endured, because natural
+disasters will shake the world which the human being of the Earth has brought about himself/herself,
+namely by the outcoming effects that are rampant all around due to the irrationally grown
+overpopulation, wherethrough the laws of nature, the fauna and flora as well as the climate and even the
+planet itself were destructively afflicted and continue to be tormented.
+In the course of this, however, the god-delusion-befallen ones, the god-believers, are of the irrational
+belief that they could bear everything better if they believe in an imaginary god and pray to him,
+begging for betterment and for the prevention of all terrible things, as has been the case since time
+immemorial, when the fore-forefathers thought up an imaginary god in order to angstfully place
+themselves under his protection, but who shall also help them in every respect, although never any
+begged- and prayed-for help came from him. Precisely, because god is only a human-thought-up
+imaginary figment of the imagination out of anxiety, which has neither vitality nor energy or power in it
+and will also never have them. So, the fantasy-figure of god was devised by the human being in the
+primeval times and was raised to an invisible pedestal as protector and punisher, from where he is
+supposed to rule since time immemorial over the human being as an individual and also as a mass in
+godly love and wisdom, as well as wrathfully and punitively. This was thought up in such a way by the
+human beings of the Earth, instead of bethinking themselves, their own power and their own abilities
+and having made an effort for a helpful and useful action in their own wise and in self-initiative. Since
+they did not do this, however, and they also did not bethink their inner, neutral-positive nature and thus
+also disregarded the creational-natural laws and recommendations that determined their inner nature,
+
+
+-----
+
+they sought in their angst an imaginary, kindhearted god-father, who should reward them and protect
+and release them from all evil and terrible things. At the same time, however, in their irrationality and in
+their unintellect, they also thought up with this imaginary god, a punitive and avenging imaginary-form
+of god, who, since then, personally punishes the human being, angrily and furiously, for their
+misbehaviour or for their god-unbelief by acts of retaliation through any 'godly' acts, or lets human
+beings be persecuted and killed by human beings who have believingly fallen for him, and indeed also
+by religious-terrorism, witch hunts, religious persecution, the murder of believers and religious wars.
+Well, god is also only a tin god, like any other tin gods, because he is indeed also only a fantasy-spectre
+invented by human beings, which instrumentalizes the human being of the Earth – depending on the
+religion and sect – for its own purposes according to its liking and need, although since time
+immemorial contradictions could not be avoided, just as they also cannot be avoided today, nor the fact
+that collectively, entire peoples were brought to reason with Gewalt, death, coercion and with inhumane
+punishments through war, oppression and enslavement; just as this is still attempted today by the use
+of religious-sectarian terror. Thus entire tribes and peoples have been exterminated, which – already
+since time immemorial – has never corresponded to the creational-natural laws and recommendations,
+because these make it absolutely clear that neither misery brought forth by human beings nor torture,
+Gewalt, suffering, coercion, death and war make any sense, but to the contrary only love, peace, freedom
+and harmony. If, however, all the unvalues unworthy of human beings are nevertheless done, then they
+correspond completely to inhumane Ausartungen that are going wild and that are contrary to the
+creational-natural volition, which never have any justification and are only carried out by ausgeartet
+human creatures who have fallen prey to sheer egoism, utter unhumaneness, imperiousness and
+selfishness, might-greed and all other human- and life-based depravity. If in this respect – as well as
+elsewhere and near and far – the creational-natural laws and recommendations are maliciously broken
+and disregarded, and indeed solely out of wrong egotistical, might-greedy, selfish, imperious and
+avaricious considerations as well as out of wrong thought-feeling-psyche-based impulsations, which –
+considered in terms of intellect and rationality – are not only absolutely illogical but also utterly perverse
+and ausgeartet and crassly contradict the true inner creational-natural given nature, then only perverse
+evil and ausgeartet negativity arises, which can never be legitimised. Precisely in this respect, however,
+the human being of the Earth is acting selfishly in an ausgeartet kind and wise and behaves in a form,
+from which he/she sees in his/her self-greed only himself/herself and his/her own advantages, and
+disregards all humanity and treads it underfoot. Truthly, the humankind of the Earth – at least the
+majority of the earthly humanity – has thus manoeuvred himself/herself into a state of egoism, of utter
+unconcernedness, imperiousness, selfishness and consciencelessness, that he/she neither understands
+nor knows what the high values of the true love, of the peace, of the freedom and harmony effectively
+are. In fact, he/she can therefore no longer recognise these values at all, and moreover no longer knows
+what they mean in general, because the relevant terms are only known to him/her from hearsay and
+from reading, consequently, he/she can no longer really understand them, let alone realise them and
+bring them to fruition. From this it also results, that the heedful contraception and precautions
+regarding procreation of offspring is rejected out of purely egotistical and imperious, selfish and
+irresponsible modes of thought, feeling, action, and behaviour. This, however, is also based therein, due
+to the fact that it is vehemently rejected out of the same wrong modes of behaviour, to purely personally
+and privately do something intellect- and rationality-based, which corresponds to the rightness and the
+overall well-being of the entire humankind, of nature and its fauna and flora as well as the climate and
+the planet itself. Fundamentally, all and everything good and positive is done purely ausgeartetegoistically only for one's own person and one's own well-being, and far from any connecting interhumanly valueful thoughts and feelings for the individual human being and the entire humankind. The
+wrong and dangerous justification is based on the fact that everything that is of private nature, also
+should and must remain of private nature, therefore also the excessive begetting of offspring in
+accordance with one's own free will, and indeed irrespective of whether, with that, due to the
+machinations of the overpopulation and the catastrophic consequences and terrible Ausartungen
+proceeding from it, the entire earthly existence, the humankind and all life in general – consequently
+including nature and its fauna and flora, as well as the climate and even the planet itself, as well as also
+any life- and survival-possibility – is endangered and ultimately destroyed. From this, precisely from this
+lowly intelligent and simple-minded view and opinion, which is based on blank ausgeartet egoism, on
+might-behaviour, imperiousness, selfishness, avarice and all-embracing irresponsibility, a worldwide
+birth stop and a state-controlled control of births becoming increasingly necessary, is rejected. And all
+these mentioned unvalues are, in the signs of religions, might and money, also the reason for the fact
+that the human being of the Earth takes the right, to which he/she is not entitled, to kill, to torture, to
+murder and massacre, to enslave, to exploit fellow human beings by felonious deeds and actions in the
+
+
+-----
+
+name of an imaginary god and thus with 'godly' provisions, laws and recommendations and all sorts of
+imbecilic religious dogmas. However, there are also still other inhumane factors involved, such as
+jealousy, hatred, revenge and pathological craving for retaliation, which in a completely ausgeartet wise
+are commonplace and know no bounds with the human being of the Earth. These all are, among many
+other reasons, why the greater part of the earthly humanity considers the planning and carrying out of
+the killing of human beings, the production and distribution of weapons and the armament of war
+materials as well as the conducting of wars as legitimate. And it is for the same reasons why the heedful
+and urgently needed prevention with regard to the procreation of offspring is seen as a purely private
+matter and thus a worldwide controlled birth-stop is vehemently rejected. And it is once again the same
+reasons that do not prevent the available resources from being further exploited and squandered by the
+overpopulation and thus making the controlled use of the Earth's resources impossible for future
+descendants. So the stated reasons are also the ones which bring about the fact that, all around in the
+entire nature, in the climate and throughout the planet, the lack of balance cannot be restored. This
+means that everything that would correspond to the intellect and rationality, in order to again restore
+the all-around destroyed balance in relation to nature, the fauna and flora, the climate and the planet,
+which has been completely destroyed by the human being of the Earth out of sheer stupidity and
+simple-mindedness as well from egoism, avarice, might-behaviour, selfishness, imperiousness and
+irresponsibility, is seen by human beings of the Earth as unright or even as a felony just as well as a
+worldwide controlled regulation of births.
+SSSC, May 30. 2014, 11.43 pm Billy
+Translation: Bruce Lulla, USA/Mariann Uehlinger, Switzerland
+http://www.figu.org/ch/files/downloads/zeitzeichen/figu_zeitzeichen_101.pdf
+
+**IMPRESSUM**
+**FIGU-BULLETIN**
+**Druck und Verlag: FIGU** Wassermannzeit-Verlag,
+
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+
+**Redaktion: BEAM** ‹Billy› Eduard Albert Meier,
+
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+Das FIGU-BULLETIN oder FIGU-Sonder-BULLETIN
+
+erscheint dreimonatlich und wird auch im Internetz auf
+
+der FIGU-Webseite veröffentlicht. Im Abonnement der
+
+FIGU-Dreimonatsschrift <Wassermannzeit> ist das FIGUBULLETIN inbegriffen. Geisteslehre Friedenssymbol
+
+**Postcheck-Konto: FIGU Freie Interessengemeinschaft,** Frieden
+
+8495 Schmidrüti, PC 80-13703-3
+
+Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+
+IBAN: CH06 0900 0000 8001 3703 3 wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten
+
+**E-Brief: info@figu.org** bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun. Tritt dazu macht, um dann nachfolgend in Friedsamkeit jeden weiteren Schritt
+
+**Internetz: www.figu.org** SSSC, 10. September 2018, 16.43 h, Billy
+
+**FIGU-Shop: shop.figu.org**
+
+**© FIGU 2019**
+
+Einige Rechte vorbehalten.
+
+Dieses Werk ist, wo nicht anders
+angegeben, lizenziert unter:
+
+www.figu.org/licenses/by-nc-nd/2.5/ch/
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung des Urhebers ausdrücklich erlaubt.**
+Erschienen im Wassermannzeit-Verlag: FIGU, ‹Freie Interessengemeinschaft Universell›, Semjase-Silver-Star-Center,
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+

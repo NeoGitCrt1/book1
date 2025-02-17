@@ -1,0 +1,1052 @@
+**Freie**
+
+
+### Erscheinungsweise: Internet: http://www.figu.org 15. Jahrgang Sporadisch E-Mail:  info@figu.org Nr. 66, März 2009
+
+## Ohne Arbeit oder sonstig wertvolle Tätigkeit vergammeln die Menschen
+Der Müssiggang trägt nicht nur zur Vergammelung des Menschen bei, sondern im Alter resp. Ruhestand
+nach der Pensionierung unwiderruflich auch zur Altersschwäche. Grundsätzlich ist die Untätigkeit, der
+Müssiggang, die Arbeitsscheue, wie aber auch der Altersruhestand in jeder Art und Weise eine sehr
+schlechte Idee, denn das Nichtstun macht psychisch, bewusstseinsmässig sowie physisch krank und vertreibt die Menschen aus den nützlichen sozialen Funktionen.
+
+Menschen, Frauen und Männer, jung und alt, die im Leben dem Müssiggang frönen oder die in Pension
+gehen und im Ruhestand nur in einer Weise des Nichtstuns dahinleben, geraten in der Regel in eine
+schwere Identitätskrise. Müssiggänger während des Lebens geraten sehr oft in Alkohol- oder Drogenabhängigkeit und verfallen in asoziale Auswüchse, während untätige Menschen im Ruhestand sich nutzlos
+fühlen. Und sehr viele der Müssiggänger im Leben, wie auch viele Menschen im Altersruhestand, verlieren die Freude am Leben und begehen Selbstmord. Und besonders bei Rentnern ist die Suizidrate sehr
+hoch und übertrifft alle anderen Altersgruppen.
+Tatsache ist, dass für alle Müssiggänger im Leben, Männer, Frauen, Jugendliche jeden Alters sowie für die
+Rentner und an krankheitlichen Beschwerden aller Art leidende Menschen, neue Rollenbilder von Notwendigkeit sind, durch die bei ihnen eine Lebensbejahung durchdringt, was hauptsächlich durch eine vernünftige Tätigkeit und entsprechende Aufgaben in Betracht gezogen werden kann.
+
+Menschen, die Müssiggänger im Leben sind oder die nach der Pensionierung in der Weise im Ruhestand
+leben, dass sie nur noch dem Nichtstun nachgehen, betrachten fälschlich das Leben und das Alter als grossen Kampf und als Massaker. Das jedoch hat nichts mit der Wirklichkeit und Wahrheit zu tun, denn diese
+Einstellung entspringt einzig und allein aus der falsch geführten Lebensweise dieser Menschen. Wahrheitlich ist das Leben weder ein Kampf noch ein Massaker, sondern eine Freude und ein Weg des Fortschritts
+und der Entwicklung. Doch alle, die über das Leben und seine Situationen usw. klagen, sei es in bezug auf
+eine fehlende Gesundheit, fehlende oder mangelhafte zwischenmenschliche Beziehungen, mangelndes
+Geld usw., sie gestalten ihr Leben selbst, ihre jeweilige Situation, ihr Verhalten, ihre Arbeit oder ihr Nichtstun, denn jeder einzelne ist selbst seines Schicksals Schmied. Wenn sie also leiden, dann schaffen sie sich
+ihr Leiden selbst, ihre finanziellen Schulden, ihren Streit mit anderen Menschen, mit dem Partner, einem
+Freund, Bekannten oder sonstigen Mitmenschen. Und sind sie krank, dann ist es auch ihre eigene Einstellung und ihr Verhalten, wie sie sich zu ihrer Krankheit stellen, eben leidend, griesgrämig, wehleidig,
+selbstbemitleidend – oder tapfer, geduldig, guten Sinnes auf Heilung und Fortkommen usw.
+Tatsache ist, dass die Müssiggänger im Leben sowie viele im altersmässigen Ruhestand lebende Rentner,
+zu denen aber auch eine grosse Anzahl Frührentner gehören, die Flucht vor dem Leben zur zentralen Aufgabe ihres Lebens sowie ihres bewusstseinsmässigen, psychischen und körperlichen sowie gesundheitlichen Zerfalls machen. Das Ganze ist wahrheitlich eine eigentümliche und feige Selbstbezogenheit, indem
+
+
+**L**
+
+**WESEN FREMDER WELTEN**
+**BESUCHEN DIE ERDE**
+
+
+-----
+
+eine Fixierung auf die eigenen Leiden, auf unerfreuliche Situationen und Lebensumstände erfolgt und jede
+Eigeninitiative für eine sinnvolle Beschäftigung schon von Grund auf zerstört wird. Und diesbezüglich
+spielt das Alter keine Rolle, wie auch nicht das Geschlecht des Menschen, denn grundlegend ist nur die
+ganze Einstellung zum Leben und zu dessen Pflichten von Bedeutung, die besagt: Wer rastet, der rostet.
+Genau das trifft aber auf die Menschen zu, die im Leben Müssiggang betreiben, wie aber auch auf viele
+Frührentner und pensionierte Ruheständler beiden Geschlechts, wenn sie völlig initiativelos im Nichtstun
+versinken, elend dahinvegetieren und sich feige in eigener Verantwortungslosigkeit allen möglichen Leiden und dem schwindenden Lebensmut ausliefern. In dieser Weise entsteht feiger Lebensüberdruss, feige
+Wehleidigkeit und letztlich feiger Selbstmord, um dadurch all dem durch Feigheit zu entfliehen, was in eigener Initiativelosigkeit und Verantwortungslosigkeit nicht bewältigt wird. Das ist die harte aber wahrliche
+Wahrheit, auch wenn sie von den Betroffenen sowie von antagonistischen Besserwissern, Kritikern, Wahrheitsleugnern und verweichlichten Falschhumanisten bestritten wird, die diese Tatsache in Grund und
+Boden zu stampfen versuchen. Dem zum Trotz bleibt die Tatsache bestehen: Wer rastet, der rostet. Und
+wer sich während des Lebens, als Frührentner oder im Ruhestand nach der Pensionierung dem Nichtstun
+hingibt, der verfällt Lastern, Süchten und allerlei körperlichen, gesundheitlichen, bewusstseinsmässigen
+und psychischen Leiden sowie der Griesgrämigkeit und dem Lebensüberdruss usw. Diese Unwerte aber
+führen ins brüllende Elend und enden sehr oft im Selbstmord, der unter den Müssiggängern, den initiativelosen Nichtstuern, sehr hohe Raten aufweist.
+Die Lebenserwartung steigt ständig, wobei jedoch der Sinn und die Verantwortung für eine gesunde Tätigkeit immer mehr abnehemen, denn mehr und mehr wird nach Frühpension geschrieen und nach ständig weiterer Verkürzung der Arbeitszeit sowie Teilzeitarbeit. Viele wähnen, dass sie schon früh ihre berufliche oder sonstig tätigkeitsmässige Karriere hinter sich lassen müssten, um dem Nichtstun zu frönen. Viele
+wähnen aber auch, dass sie durch Alkohol-, Drogen- oder Medikamentensucht ihr Leben bewältigen
+könnten. Doch mit diesen Einstellungen schwinden auch ihre Interessen, Fähigkeiten, Möglichkeiten, Hobbys sowie ihre grossen und lebensbejahenden Gedanken und Gefühle dahin, wodurch eine zwangsläufige Vergammelung stattfindet, eine Identitätskrise zutage tritt, Gedanken und Gefühle der eigenen Nutzlosigkeit und des Suizids. In dieser Weise erblicken die betroffenen Menschen unvermittelt alles Elend und
+alle Not, die über sie hereinbricht oder hereingebrochen ist, wobei sie aber nicht erkennen, dass es ihre
+eigene Schuld ist, folglich sie diese den Mitmenschen, dem Staat und dem ach so bösen Leben und dessen krassen Umständen zuschieben.
+Für frühere Generationen war die tägliche Arbeit nutzvoll, die bis ins hohe Alter beibehalten und durchgeführt wurde. Der Müssiggang im Leben war ihnen fremd, denn ohne Arbeit gab es keine gesunde, wertvolle und fortschrittliche Existenz. Kam dann das hohe Alter, dann gab es ein kurzes Aufschnaufen auf der
+Ruhebank, mit etwas weniger Arbeit, ehe der Tod sein Zepter schwang. Heute jedoch wird das Aufschnaufen schon während der hochaktiven Lebensphase angestrebt, so dieser tätigkeitslose, teilzeitliche oder
+nachberufliche Zustand der Untätigkeit bereits einen Drittel oder Viertel, manchmal sogar die Hälfte der
+Lebensspanne umfasst. An und für sich – so denken viele – müsste der Mensch in dieser Weise eigentlich
+froh und glücklich sein, doch das ist nicht der Fall und kann auch nicht der Fall sein, denn das Nichtstun
+bringt Leiden und Schäden mancherlei Art. Zwar ist heute zumindest in den industrialisierten Ländern ein
+Grossteil der Altersrentner finanziell gut gestellt, wie auch viele andere, die noch im Vorrentenalter stehen
+und gesundheitlich keine oder nur geringe Beschwerden zu nennen haben; doch plötzlich ist die Identitätskrise da, weil sie durch selbsterzeugte Untätigkeit geschlagen sind und nichts oder nichts mehr an Vernünftigem im Leben leisten. Die Untätigkeit reisst plötzlich an den Nerven, an der Einstellung und am Verhalten, und statt der grossen tätigkeitslosen Freiheit drohen nunmehr verzweifelte Leere sowie Gedanken
+und Gefühle der Nutzlosigkeit. So fallen alle jene in Griesgrämigkeit und in eine Identitätskrise, welche
+den Plan haben und wähnen, dass sie im Leben oder im Rentenalter ausruhen und dabei froh und glücklich sein könnten.
+Mit der Untätigkeit, sei es Frau oder Mann, jung oder alt, verliert der Mensch die Kontrolle über sich selbst,
+
+
+-----
+
+und zwar darum, weil er mit seinem Dasein der Untätigkeit überfordert und beziehungsarm wird.
+Zwischenmenschliche Beziehungen bröckeln und verschwinden letztendlich, um einer Gleichgültigkeit und
+Kälte gegenüber der Umwelt und den Mitmenschen Platz zu machen. Mit dem Nichtstun – während des
+Lebens im oder vor dem Rentenalter – wird der ganze Status des Lebens verloren, wie aber auch der strukturierte Tagesablauf, was letztlich damit endet, dass auch das soziale Beziehungsnetz zusammenbricht,
+der Mensch in sich selbst verlorengeht, sich nutzlos und wertlos erscheint und seinem Leben mit Gewalt
+ein Ende bereitet. Der Zusammenhang besteht dabei darin, dass Gedanken und Gefühle die Psyche und
+das Bewusstsein in der Weise belasten und in Aufruhr bringen, dass der Mensch nicht mehr gebraucht
+werde, folglich er sich überflüssig, allein und in Hinsicht tätigkeitsmässiger Verrichtungen hilflos und nutzlos fühlt. Viele Menschen dieser Art, ob Frau, Mann, jung oder alt, vermögen nicht einmal sich selbst in
+angemessener und menschenwürdiger Weise zu versorgen oder auch nur selbst eine Mahlzeit herzurichten oder die eigene Wäsche zu besorgen, geschweige denn, dass sie mit ihrer freien Zeit etwas Nutzvolles und Vernünftiges anzufangen wissen. Unzählige Müssiggänger, Arbeitsscheue, Frührentner und alterspensionierte Rentner sitzen nur noch halbe oder ganze Tage vor dem Fernseher und konsumieren jeden
+Schwachsinn und Unsinn, der ihnen als TV-Kost vorgeflimmert wird. Dadurch aber fördern sie ihre eingebildete Nutzlosigkeit erst recht, wodurch sie irgendwelchen Süchten und Lastern verfallen, aus denen sie
+sich nicht mehr zu befreien vermögen, seien es in dieser Beziehung Alkohol, Drogen, Medikamente, Vergnügungen, Streit, Hass, Eifersucht, Selbstmitleid oder was sonst auch immer. Die Identität wird fragil und
+schafft grosse Verunsicherung, wobei das Selbstwertgefühl immer mehr zerfällt, das sich zudem nur daran
+orientiert hat, was getan und was nicht getan wurde.
+Müssiggang, Nichtstun und Ruhestand sind abstossende Worte für jeden vernünftigen und sich stets leistungsfähig haltenden Menschen, der sich einer nutzvollen Arbeit oder sonst irgendeiner wertvollen Tätigkeit hingibt, sei es ein Mann, eine Frau, sei es jung oder alt. Erhält sich der Mensch nicht leistungsfähig
+durch nutzvolle und ihn in vernünftigem Rahmen auslastende Tätigkeiten, dann bedeutet das, dass er sich
+bereits zu seinen Lebzeiten sein Grab schaufelt und in dieses hinabsteigt. Wahrheit ist, dass sich der
+Mensch durch seine Arbeit oder sonstig wertvolle Tätigkeit und den daraus entstehenden Lohn und Wert
+in seiner Identität bestimmt und bestätigt fühlt, doch wenn er nur den Müssiggang, das Nichtstun oder einfach das Rentnerleben als Ruhestand pflegt, dann verliert er seine Identität. Ein Mensch, der als Müssiggänger und Nichtstuer sein Leben führt, oder ein Mensch, der durch eine Frührente oder altersmässige
+Pensionierung aus seinem Leistungsleben ausrangiert wird, verfällt unweigerlich und unversehens in eine
+Identitätskrise, wenn er sich nicht durch eigene Initiative mit irgendeiner wertvollen Arbeit oder Tätigkeit
+verbindet, die sein Selbstwertgefühl ständig oben hält und nicht sinken lässt.
+Vielen Menschen, Frau, Mann, jung und alt, fällt der Umgang mit der Arbeit und auch mit der Verantwortung in bezug auf die eigene Körperlichkeit sowie mit Leiden, Krankheit und Verlust usw. schwer, wobei
+das männliche Geschlecht diesbezüglich eindeutig mehr davon betroffen ist als das weibliche. Das männliche Geschlecht orientiert sich hauptsächlich an seiner Kraft und Stärke sowie an der sexuellen Potenz,
+die jedoch zunehmend in Frage gestellt werden, je weniger nutzvolle Arbeit geleistet und damit auch die
+Körperertüchtigung sehr stark beeinträchtigt wird, was insbesondere dann ausartet, wenn Alkohol und
+Drogen gebraucht werden oder eine Medikamentensucht besteht. Und werden Arbeit, der Mentalblock
+resp. Bewusstsein, Gedanken, Gefühle und Psyche sowie die Körperertüchtigung vernachlässigt, dann
+zieht sich das auch hinein ins Rentenalter, wenn durch die Pension der Ruhestand ansteht und das Übel
+der Vernachlässigung der Arbeit und Körper- sowie der mentalen Ertüchtigung ihren Tribut fordert. So
+geht sehr vieles nicht spurlos am Menschen vorbei und trägt sich bis ins Alter hinein, und zwar insbesondere darum, weil viele die Wichtigkeiten des Lebens unterdrücken und damit in sich untergründige Ängste schaffen, die während des ganzen Daseins anhalten. So werden sowohl Emotionen, wie aber auch
+Gedanken und Gefühle sowie Liebe, Zuneigung und Freundschaften usw. vernachlässigt, unterdrückt und
+verdrängt, wodurch kein Ausleben all dieser Werte möglich ist.
+Wenn der Mensch es verpasst – Mann, Frau, jung oder alt –, sein Rollenbild des Lebens zu hinterfragen,
+
+
+-----
+
+droht er früher oder später tatsächlich aufs Abstellgleis des Lebens zu geraten. In dieser Weise machen
+sie sich selbst sozusagen zu menschlichem Sperrmüll, weil sie sich rundum selbst als unnütz geben und
+allen jenen in bezug auf die Pflichterfüllung des Lebens im Weg stehen, welche sich bewusst, redlich und
+ernsthaft um die Lebenserfüllung bemühen. So behindern sie die Entwicklung all jener, welche das Leben
+in guter Weise erfüllen und bewusst dem Fortschritt und der Evolution zugetan sind, und diese können
+gegen den menschlichen Sperrmüll nichts tun, der sich nicht belehren lässt und nicht gewillt ist, das Leben
+des Rechtens zu führen, sondern nur klagt, leidet und sich nicht um Besserung bemüht. Also bleibt ihnen
+nur übrig, ihre menschliche Pflicht zu tun in der Weise, dass sie die Unbelehrbaren pflegen, aufpäppeln
+und alles mögliche tun, um sie am Leben zu erhalten und ihnen irgendwie ein Leben zu gewährleisten, das
+ihnen ihre selbsterschaffenen Leiden lindert und sie letztendlich eines menschenwürdigen Todes sterben
+können.
+Die Müssigkeit, die Untätigkeit vieler Frauen, Männer, egal ob jung oder alt, führt häufig nebst den genannten Übeln auch dazu, dass eingegangene und bestehende eheliche Beziehungen in die Brüche gehen
+und zur Scheidung führen, weil der eine Partnerteil die Untätigkeit und Unbeholfenheit des andern nicht
+mehr erträgt und wieder die eigenen Wege gehen will, um wirklich und wahrheitlich leben zu können. So
+ist es notwendig, dass Mann und Frau auch Handfertigkeiten in bezug auf Arbeit und sonstige Tätigkeiten erlernen, um dem anderen Partnerteil eine Stütze zu sein und ihm hilfreich beistehen zu können. Das
+bezieht sich auch darauf, dass gelernt werden muss, eigene und gemeinsame soziale Beziehungen zu
+knüpfen und gedankliche, bewusstseins- und gefühlsmässige sowie psychische Kompetenzen zu entwickeln. In einer verbindenden Beziehung, und zwar ganz gleich wie diese auch immer geformt ist, ist es
+notwendig, dass die Partner gegenseitig aufeinander eingehen und bereit sind, klaglos für die in ihren
+Bereich fallende jeweilig bestimmte Infrastruktur aufzukommen resp. für die organisatorische und wirkliche Versorgung und den Nutzen in der bestehenden Verbindung.
+Je älter die Menschen werden, desto gekränkter und verletzter reagieren sehr viele gegenüber dem Altern
+und dem Alter selbst, und das wiederum ist ein starker Trieb dafür, dass massiven Süchten und Lastern verfallen wird, insbesondere dem Alkohol und Drogen sowie Medikamenten, die bewusstseinsbetäubend
+sind. Daraus erfolgt wiederum eine gedanklich-gefühlsmässige Verarmung sowie eine soziale Isolation,
+woraus vielfach letztlich Selbstmord resultiert, und zwar sowohl beim männlichen wie auch beim weiblichen Geschlecht, wobei die erhöhte Suizidalität allerdings in der Männerwelt überwiegt, und zwar besonders mit steigendem Alter und sehr stark nach der Pension. Und tatsächlich ist in der heutigen Zeit die
+Zahl der Selbsttötungen sehr stark steigend, denn je länger je mehr finden die Menschen keinen Sinn mehr
+im Leben und werden dessen überdrüssig. Wahrheitlich verarmen die Menschen in bezug auf eine
+bewusste und verantwortungsvolle Evolution immer mehr, folglich sie falschhumanistisch und lebensunfähig werden und einfach im Selbstmord eine falsch erhoffte Erlösung suchen. Und je unkontrollierter
+die Weltbevölkerung zunimmt, desto unpersönlicher, fremder sowie gleichgültiger werden die Menschen
+gegeneinander. Dadurch wird die Vereinsamung des einzelnen ebenso vorprogrammiert wie auch die Laster des Müssiggangs, der bewussten und parasitenhaften Untätigkeit sowie der Arbeitsscheue, so aber
+auch das Aufgeben jeder Arbeit und Tätigkeit sowie der mentalen und körperlichen Ertüchtigung während
+des Vorrentnerlebens und nach der Pensionierung.
+Der Selbstmord der Menschen wird in skandalöser Weise verharmlost und gar durch den Staat noch gefördert, indem verantwortungslosen Mordlüsternen ihr Handwerk der indirekten Selbstmordhilfe erlaubt
+wird. Suizid ist in allgemeiner Form ein Symptom für eine sehr verbreitete Sinnkrise geworden, für eine
+fälschlich erdachte Sinnlosigkeit des Lebens, und zwar sowohl unter Jugendlichen wie auch unter Rentnern, insbesondere jedoch bei letzteren. Dabei spielen auch, wie bereits vorerwähnt, Alkoholismus, Medikamentenmissbrauch und Drogensucht eine gewichtige Rolle, was jedoch in der Regel totgeschwiegen
+oder überhaupt nicht beachtet wird, obwohl dies Alarmzeichen für eine verkrachte Psycheverfassung sind.
+Betroffen davon sind jung wie alt, die suchtgefährdet sind, wobei jedoch in dieser Beziehung die Zahl
+jener stetig steigt, die als Rentner ihr Leben fristen. Die jungen Alkohol-, Drogen- und Medikamentensüch
+
+-----
+
+tigen sowie die Arbeitsscheuen und Müssiggänger im Leben vergammeln und verkommen auf der Strasse, werden Penner, kriminell, krank durch HIV usw. und enden als Leichname in der Gosse, oder sie werden in Anstalten usw. gesteckt, um nach ihrer Entlassung ihrer Sucht und dem Laster neuerlich zu verfallen. Das, während die Frührentner und Altersrentner in Pflege- und Altersheime gesteckt und mit
+Psychopharmaka traktiert werden, um sie ruhigzustellen, damit nicht zuviel Arbeit durch sie anfällt. Das
+aber hilft in keiner Weise weiter, ganz im Gegenteil, denn Menschen, junge wie alte, die in Anstalten und
+Heime gesteckt werden und keine Aufgabe, keine Arbeit und keine sonstig wertvolle Tätigkeit haben, vergammeln rettungslos, verfallen und werden krank. Die in dieser Weise betroffenen jungen und alten Menschen werden ihrem Leben und ihren Aufgaben entpflichtet, und genau das führt als hauptsächlichster
+Faktor zu schweren Depressionen, wie aber auch zur Rebellion gegen das staatliche System, die gesellschaftliche Ordnung und gegen die Gesetze usw. Das ist aber weiter nicht verwunderlich, denn durch das
+Ganze dieser Art des Umgangs mit den Müssiggängern, Arbeitsscheuen, Untätigen, Süchtigen und Lasterhaften sowie mit den Frührentnern und infolge Alters pensionierten Menschen fehlt die Zukunftsorientierung. Ausnahmen gibt es dabei wohl unter den Altersrentnern, doch diese Ausnahmen vermindern sich
+stetig, denn mehr und mehr werden die Alten nur noch zu Zuschauern in bezug auf das wirkliche Leben,
+das ausserhalb ihres Einflusskreises stattfindet. Gleichermassen gilt das aber auch für die Ausständigen,
+die Alkohol-, Drogen- und Medikamentensüchtigen, die Arbeitsscheuen, Untätigen und Müssiggänger.
+Wahrheitlich wartet niemand in ehrhafter Weise auf sie, denn niemand erwartet noch etwas Wertvolles
+von ihnen, so sie in sozialem Sinne einfach abgeschrieben und tot sind.
+Müssiggänger, Untätige und Arbeitsscheue, Süchtige und Lasterhafte werden auf das Abstellgleis gestellt,
+vergammeln und verkommen in der Gosse. Frührentner und Altersrentner werden aber ebenso vielfach
+auf das Abstellgleis abgeschoben und von jeder Verantwortung in bezug auf die gesellschaftliche Beteiligung ausgeschlossen, und das hat zur Folge, dass ebenso eine existentielle Leere entsteht wie bei den
+Süchtigen, Lasterhaften, Arbeitsscheuen, Untätigen und Müssiggängern. All diese Menschen, jung wie alt,
+werden nicht ausreichend oder überhaupt nicht in die Mitte der Gesellschaft und nicht in den öffentlichen
+Raum gestellt, wo sie verantwortungsvoll mitwirken könnten. Die soziale Teilhabe wird ihnen völlig verweigert, und zwar obwohl der Mensch ein soziales Wesen ist und sich erst richtig durch sein positives und
+verantwortungsbewusstes Handeln in der Gemeinschaft entfaltet.
+Wahrlich, als verantwortungsvolle Menschen können wir es uns nicht leisten, dass all diese jungen und
+alten Menschen abseits stehen, nur weil sie ausserhalb des sozialen Gefüges oder ins Rentenalter gefallen sind. Also ist es notwendig, dass eine entsprechende Kultur entwickelt wird, in die all diese Menschen
+einbezogen sind und in sozialer Art und Weise ihr Leben führen können. Die jungen Ausgeflippten dürfen nicht einfach ausrangiert werden, wie die im Rentenalter stehenden sich auch nicht einfach selbst zurückziehen oder zurücksetzen lassen dürfen, sondern sich mit allem erdenklich Möglichen in bezug auf
+Arbeit und sonstig wertvolle Tätigkeit noch beschäftigen müssen, und zwar auch in sozialer Hinsicht, in
+der Gesellschaft und auch in der Politik. Die Ausgeflippten aller Art müssen durch staatliche Bemühungen
+des Rechtens und der positiven Lebensführung angeleitet und belehrt werden, dass sie von ihren Süchten,
+Lastern, von ihrer Arbeitsscheue, ihrer Untätigkeit und von ihrem Müssiggang ins gerechte Leben der Arbeit und des Sozialen finden, während die im Rentenalter stehenden Jungen und Alten vor jeder Diskriminierung dessen geschützt werden müssen, dass sie für soziale, gesellschaftliche und politische Tätigkeiten
+untauglich seien.
+Jegliche Ausgrenzung von Menschen aus dem Sozialleben und aus der Gesellschaft ist kriminell und in
+keiner Art und Weise zukunftstauglich. Aller Wohlstand der Menschheit hängt von der Kreativität und von
+der Innovationsfähigkeit resp. von der Fähigkeit des Erneuerns und Veränderns ab, von der geplanten und
+kontrollierten Veränderung und Neuerung im sozialen System, durch neue Ideen, Techniken und politischen Fortschritt usw.
+Bei den Ausgeflippten und bei den Altersrentnern geht es nicht darum, sie wider ihren Willen als Lückenbüsser für irgendwelche Arbeiten und Tätigkeiten usw. in die Pflicht zu nehmen, sondern sie bezüglich
+
+
+-----
+
+ihrer Verantwortung zu belehren und ihnen Wege zu weisen und Möglichkeiten zu geben, damit sie sich
+wertvoll beschäftigen können und nicht Depressionen, Süchten und Lastern usw. verfallen. Sie müssen als
+mitverantwortliche und handelnde Menschen angesprochen und behandelt werden, die im öffentlichen
+Leben eine ihnen gerecht werdende Position einnehmen können. Also ist es nicht damit getan, dass Ausgeflippten, wie Süchtigen, Lasterhaften, Arbeitsscheuen, Scheininvaliden, Müssiggängern und sonstigen
+Untätigen und Simulanten, einfach horrende Renten bezahlt und die Rente der Alten hinaufgesetzt wird,
+während sie vom gängigen Arbeits- und Tätigkeitsprozess ausgesetzt und ausgeschlossen werden. Das
+bedeutet nicht, dass unbedingt eine Erwerbstätigkeit ausgeübt werden muss, jedoch eine Arbeit oder
+irgendwelche Tätigkeit, durch die Bewusstsein, Gedanken, Gefühle, Psyche und Körper gesund erhalten
+werden können und auch eine Befreiung von Süchten, Lastern und Depressionen erfolgt oder sie verhindert. Und wenn der Mensch in seinen jungen und mittleren Jahren oder in seinem Vorrentner- oder Altersrentnerleben einer Arbeit oder sonstig wertvollen Tätigkeit nachgeht, dann bieten sich ihm immer wieder
+neue Freiheiten in mancherlei Beziehungen. Und wird das Ausführen einer Arbeit oder sonstig wertvollen
+Tätigkeit in Freiwilligkeit und Freiheit getan, dann schwinden alle Zwänge dahin und es eröffnen sich
+immer wieder neue wertträchtige Sichtweisen. In dieser Weise ist der Alltag nicht länger von einem programmierten System und von Konkurrenz geprägt, wodurch nicht selten ein verkanntes Entwicklungspotential in Sachen Kreativität zum Vorschein kommt. Das aber ist eine neue Freiheit, die gleichermassen für
+Mann und Frau gilt sowie für junge Menschen und alte, die in Pensionierung leben. Und tatsächlich hat
+es jeder Mensch selbst in der Hand, sein Leben zu einem besseren zu wandeln, ihm einen neuen Dreh zu
+geben durch eine vernünftige Arbeit oder sonstig wertvolle Tätigkeit, denn jeder ist des eigenen Schicksals Schmied.
+SSSC, 20.Juni 2008, 00.58 h, Billy
+
+## Gut oder Böse – was ist des Menschen Natur?
+Grundsätzlich ist kein Mensch von Grund auf böse, denn er ist von Natur aus genetisch nicht auf Gewalt
+und Manipulation ausgerichtet. Die Abgründe des Bösen, der Gewalt, der Rache und Vergeltung, der Unehrlichkeit und des Hasses sowie der Eifersucht und Falschheit und sonst allem Ausgearteten und Menschenunwürdigen tun sich erst im Laufe des Lebens auf. Und öffnen sich diese Abgründe des Bösen, dann
+geschieht das nicht selten in einem Mass, dass der dem Bösen verfallene Mensch den Weg zurück zum
+Guten nicht mehr findet.
+Von Natur aus ist kein Mensch böse, gewalttätig und in dieser Form in der einen oder anderen Art und
+Weise ausgeartet, denn grundlegend ist in keinem Menschen ein grundlegender und genbedingter
+Gewalt-Code gegeben. Die Wahrheit ist die, dass das Böse im Menschen von ihm während des Lebens
+erlernt wird, was schon in früher Kindheit geschehen kann, wie aber auch erst im späteren Alter. Und tatsächlich ist zum Erlernen der Gewalttätigkeit, des Bösen und jeder möglichen Ausartung keine Altersgrenze gesetzt, so also ein Mensch, der ein Leben in guter und friedlicher sowie gewaltloser Weise führte, selbst noch im höheren Alter plötzlich der Gewalttätigkeit verfallen kann, wenn er den entsprechenden
+Lebensumständen verfällt, durch die er sich selbst zur Gewalt führt.
+Vorgegeben durch die Gene sind dem Menschen nur Reaktionsmuster und Schutzprogramme, archaische
+resp. auf die Frühzeit zurückführende Reaktionsfunktionen in bezug auf Angriff, Flucht oder Erstarrung.
+Reaktionsmuster also, wie sie auch vielem Getier eigen sind und vom Gehirn gesteuert werden; beim Menschen vom ältesten Teil des Gehirns, vom Hirnstamm. Der Hirnstamm reagiert auf jede erdenkliche und
+akute Bedrohung gegenüber dem Bewussten des Bewusstseins völlig unbewusst, folglich dieses das Ganze
+der Reaktion in bezug auf die Bedrohung nicht kontrollieren kann. Der unbewusste Reaktionsvorgang
+durch die akute Bedrohung verhindert also eine Kontrollfunktion des Bewussten des Bewusstseins, was zur
+
+
+-----
+
+Folge hat, dass dieses erst durch die unbewusste Wahrnehmung und die dadurch auftretenden Gefühle
+dem Ganzen bewusst wird. Tritt also eine akute Bedrohung auf, eine Gefahr usw., dann reagiert der Hirnstamm mit einer unbewussten Wahrnehmung und damit auch mit unbewussten Gedanken, die ablaufen,
+ohne dass dabei das Bewusste des Bewusstseins eingeschaltet wird. Diese unbewusste Wahrnehmung und
+die dadurch entstehenden Gefühle führen zu einer Blitzreaktion, aus der ein Angriff, eine Flucht oder eine
+Erstarrung resultiert und dann erst in bewusster Weise ins Bewusstsein dringt. Das Ganze ist eine unbewusst gesteuerte Schutzreaktion, die jedoch mit einer destruktiven Aggression nichts zu tun hat und die
+erst nach der unbewussten Blitzreaktion als bewusster Faktor ins Bewusste des Bewusstseins dringt. Sind
+bei diesem Vorgang nun jedoch ungünstige Bedingungen und Verhältnisse gegeben, dann kann es zum
+Eklat führen, eben zur destruktiven Aggression, weil nämlich auch die Kontrolle negativer Impulse nicht
+genetisch vorgegeben ist, sondern durch eine gesunde Bewusstseinstätigkeit und damit durch eine gesunde Gedanken-, Gefühls- und Verhaltenswelt gelernt werden muss.
+Wird das Verhalten des Menschen analysiert, dann ist erkennbar, dass alles im Laufe seines Lebens von
+seinen komplexen Bewältigungsstrategien abhängt, um seine Bedürfnisse zu befriedigen, seine Konflikte
+und Probleme zu lösen und seine Fehler zu beheben und auch von seinen Mitmenschen Anerkennung zu
+gewinnen. Werden diese Fähigkeiten beim Menschen gesucht, dann lassen sich diese in seiner Grosshirnrinde finden, aus der immer komplexere und bessere Bewältigungsstrategien erwachsen und ihn des Rechtens nach schöpferischen Gesetzen und Geboten leben lassen, insofern er in diesem Erfüllungsklima aufwächst und sein Leben führt. Wächst er aber in einem Klima auf oder lebt er in einem, in dem Angst,
+Brutalität, Druck, Gewalt, Eifersucht, Folter, Unehrlichkeit, Hass, Rache, Vergeltung oder sonstig Böses und
+Ausartungen gang und gäbe sind, dann werden in den Tiefen des Gehirns die altabgelagerten, frühzeitlichen Abwehrprogramme Angriff, Flucht und Erstarrung verstärkt, wodurch Gewaltreaktionen in Erscheinung treten. Je gemäss dem Bösen, der Gewalt, der Ausartung werden sehr schnell als einzig mögliche
+und erfolgreiche Bewältigungsstrategie das gleiche Böse, die gleiche Gewalt und die gleichen Ausartungen als einziges Mittel der eigenen Behauptung und damit als einzige Chance gesehen, sich gegenüber
+sich selbst sowie gegenüber anderen Menschen oder einer Situation zu behaupten und eigens die Macht
+auszuüben. Dieses Verhalten führt sehr schnell zur Gewohnheit, was in der Regel schon in früheren Kinderjahren geschieht und nicht mehr abgelegt werden kann. So trägt der Mensch sein erlerntes Böses, die
+Gewalt, den Hass, die Rache und Vergeltung und alle Ausartungen sein Leben lang mit sich herum, was
+zwangsläufig zu zeitweiligen oder dauernden Gewalttätigkeiten führt. Im ganzen Verhalten ist auch eine
+dauernde und untergründige, unbewusste Angst davor eingebettet, Nachteile und Schaden zu erleiden,
+durch die eine dauernde und wühlende destruktive Aggressivität genährt wird, die den Angstzustand weiter steigert und daraus heraus wiederum die erlernte Gewaltbereitschaft hochschraubt. Das Fazit des Ganzen sind letztlich Mord und Totschlag, Krieg und Zerstörung, wie das seit alters her der Fall ist.
+Wächst ein Mensch in einem Klima der Angst, der Gewalt, der Brutalität und der Ausartungen auf oder
+lebt er im Erwachsenenalter in einem solchen Klima, dann übernimmt er zwangsläufig dessen böse und
+negative Formen, indem er diese erlernt und damit den archaischen resp. frühzeitlichen Abwehrprogrammen von Angriff, Flucht und Erstarrung wieder Platz einräumt, was zwangsläufig zur Gewalttätigkeit führt.
+Das darum, weil im Bewussten des Bewusstseins keine Impulskontrolle stattfindet, weil sie nicht erlernt oder
+einfach über Bord geworfen wurde, folglich ein völlig anderes Verhaltensmuster in Erscheinung tritt, das
+nach destruktiver Aggression schreit, nach Gewalt, Rache, Vergeltung, Eifersucht, Folter, Todesstrafe,
+Hass, Krieg, Zerstörung, Unehrlichkeit und sonstig nach allem Bösen. Die gesamten Nervenzellverbände
+brüllen aggressiv nach Angriff, wobei jedoch auch Flucht und Erstarrung sowie Hinterlistigkeit, Gemeinheit, Würdelosigkeit, Menschenverachtung und Feigheit darin verwickelt sein können, die bei einem Angriff zur Geltung kommen. So vernetzt sich alles miteinander, wobei diese Vernetzung besonders dadurch
+stabil wird, weil sich zu den ganzen Aggressionen und Ausartungen noch das Belohnungszentrum einschaltet und das Gehirn mit dem Botenstoff Dopamin überflutet. Dadurch fühlt sich der Mensch in seiner
+Aggression, Gewalt und Ausartung usw. selbst bestätigt, gross und mächtig, und genau das führt wieder
+
+-----
+
+um dazu, dass er süchtig in bezug auf seine Gewalttätigkeit wird und somit immer weiter nach dem Bösen
+strebt und Streit, Krieg und alle Tode und Zerstörungen auslöst, um seine Belohnungskaskaden durch den
+Botenstoff Dopamin zu befriedigen. Auf diese Art und Weise mutiert der Mensch zum Bösen, zur Aggression, zur Gewalt und zu sonst allen Ausartungen, wodurch Mord und Totschlag, Streit, Eifersucht, Rache,
+Hass, Folter, Vergeltung, Kriege, Todesstrafe und Zerstörung zur Tagesordnung gehören.
+Das Böse grassiert sowohl im einzelnen Menschen, wenn er es erlernt hat, wie aber auch in Gruppen und
+ganzen Völkern. Es ist nicht die Frage nach Gut oder Böse, nicht die Frage nach Richtig oder Falsch, die
+das Urteilsvermögen des Menschen bestimmt, sondern es ist des Menschen Erlernen des Bösen, das dann
+das Leben und die Lebensweise bestimmt. Beim einzelnen Menschen ist es die Loyalität gegenüber dem
+eigenen Bösen, wodurch er seine Lebensweise bestimmt, bei Gruppen oder Völkern ist es die Gruppenoder Völkerloyalität für das Böse, durch die sich die Menschen zu einem religiösen, politischen, philosophischen oder ideologischen Wahn, für die Todesstrafe und für Kriege missbrauchen lassen. Doch der
+Mensch wird nicht mit einer blinden Loyalität geboren, denn diese erlernt er durch seine Umwelt. Grundlegend hat der Mensch bei der Geburt ein echtes Gewissen, das nach dem Guten strebt. Also ist dem Menschen keine Anziehungskraft des Bösen in die Wiege gelegt, sondern das Gute und Positive, und zwar
+ganz gemäss den schöpferischen Gesetzen, dass jedes Leben unbelastet von Bösem resp. von destruktiver
+Aggressivität resp. Gewalt geboren werden soll. So ist die Wahrheit, dass der Mensch mit einem guten
+und positiven Sozialverhalten in die Welt geboren und durch dieses gesteuert wird, und zwar schon lange
+bevor er sich dessen überhaupt bewusst wird. Das besagt nichts anderes, als dass jeder Mensch, dem Gewalt, Böses, Aggressionen und Ausartungen irgendeiner Art eigen sind, selbst die Schuld dafür trägt, und
+zwar darum, weil er ureigenst alles Diesbezügliche im Laufe seiner Kindheit oder seines Erwachsenenlebens erlernt.
+Von Natur aus ist kein Mensch gewalttätig, sondern er lernt durch seine Umgebung gewalttätig zu sein,
+durch seine Eltern, Geschwister, Verwandten, Freunde, Bekannten und sonstigen Mitmenschen. Und er
+lernt gewalttätig zu sein durch die Religionen und Sekten, die Mord und Totschlag und sonstige böse
+Gewalt und Übel lehren; durch die Politik sowie die Militärs, die Kriege anordnen und Tod und Zerstörung
+verbreiten; und durch die Strafgesetzgebung, durch die Folter und Todesstrafe ausgeübt werden; wie aber
+auch durch gewalttätige Sportarten, Spiele und Erziehungsmassnahmen usw. So wird vom Menschen
+Gewalt schon von Kindesbeinen an gelernt, nicht selten gar schon im Säuglingsalter, wobei das Böse als
+einzige erfolgreiche Bewältigungsstrategie gesehen wird, um sich gegenüber anderen Menschen und der
+ganzen Umwelt zu behaupten. Diese destruktive Aggressivität ist jedoch nicht harmlos, denn grundsätzlich richtet sich das Böse auch gegen den eigenen Ursprung, denn Tatsache ist, dass Böses jeder Art mit
+der Zeit unglücklich macht, und zwar auch dann, wenn der Mensch für sein gewalttätiges oder sonstwie
+böses Tun nicht bestraft wird. So ist die Realität die, dass es dem einzelnen früher oder später nicht gut
+geht, wenn er Böses getan hat, denn die psychische Stabilität lässt mit der Zeit nach, weil das schlechte
+Gewissen keine Ruhe gibt. Ausgenommen davon sind Menschen, die völlig verroht und gefühlskalt sowie
+verantwortungslos und gewissenlos geworden sind, was auch auf solche zutrifft, die als gesetzliche Henker oder als Soldaten töten, weil sie den Gerichts- oder Militärbefehl hinter sich wissen und des falschen
+Glaubens sind, dass sie des Rechtens handeln würden, folglich sie sich kein schlechtes Gewissen machen.
+Die Regel für das Tun von Bösem – ganz gleich welcher Art – ist die, dass sich mit der Zeit im Menschen
+das schlechte Gewissen regt und dadurch die psychische Stabilität ins Wanken gerät. Und diese psychische Destabilisierung führt zu schweren Depressionen, zu einer Steigerung des Selbstmordrisikos und der
+Gefahr, der Sucht von Medikamenten, Drogen und Alkohol zu verfallen. Und Tatsache ist, dass bei Menschen, die das Böse erlernt haben und diesem verfallen sind, der Prozentsatz der Selbstmorde, der Süchte und der Depressionen 530mal grösser ist als bei Menschen, die nicht dem Bösen verfallen sind. Und
+das trifft auch dann zu, wenn die Taten nie geahndet und die Täter also nie bestraft wurden.
+Erkennt der Mensch nicht, dass sein Tun des Bösen falsch ist und er sich nicht darum bemüht, auf den Weg
+des Guten und Rechten zu gelangen, um fortan auf ihm zu wandeln, was für jeden Fehlbaren durchaus
+
+
+-----
+
+im Rahmen des Möglichen ist, dann läuft er immer mehr in sein Verderben. Wird das Böse genauer betrachtet, das der Mensch tut, dann ist darin so etwas wie eine Mitte des Ganzen zu erkennen, sozusagen
+eine Halbwertszeit. Für den, der Böses tut, sei es Gewalttätigkeit oder Kriminelles in bezug auf finanziellen Gewinn, versteckt sich das Ganze unter einem Mantel der Macht gegenüber anderen Menschen oder
+unter einem Mantel der schnelleren Bereicherung. Doch alles erreicht einmal seinen Höhepunkt, eine Mitte
+oder eben eine Halbwertszeit, von wo aus es wieder abwärts geht resp. wo ein Prozess der Selbstauflösung beginnt, die Energie nachlässt und die psychische Stabilität zu wanken sowie sich das Gewissen zu
+regen beginnt. Das ist die Zeit, zu der die Energie für das Gute wieder zur Geltung kommen muss, der
+Mensch wieder schöpferisch, konstruktiv und gerechtigkeitsliebend wird, weil die wahre Energie des
+Lebens auf Dauer keinen reinen Egoismus duldet. Für so manchen, der im Leben Böses erlernt hat und
+danach lebt, mag der Zeitpunkt in bezug auf das Lernen und Ausüben des Guten nach schöpferischen
+Gesetzen und Geboten sowie das Konstruktive und Gerechtigkeitsliebende im Laufe des aktuellen Lebens
+erfolgen, während für andere dieser Zeitpunkt erst zu spät kommt, um noch ein gutes Leben zu führen –
+nämlich erst dann, wenn Gevatter Tod heranschreitet. Zwar ist der Gerechtigkeitssinn des Menschen schon
+von Geburt an in seinem Gehirn verankert, doch um ihn zur Geltung kommen zu lassen, muss er gehegt
+und gepflegt werden. Dieses Hegen und Pflegen ist besonders dann von enormer Bedeutung, wenn die
+Umwelt Einflüsse darauf ausübt, denn wahrheitlich hängt das Gute vom festen Willen des Menschen ab
+sowie davon, wie er sich von seiner Umwelt beeinflussen lässt oder nicht. So muss der Mensch selbst den
+Sinn für das Gute haben, hegen und pflegen und darf sich diesbezüglich nicht auf die Umwelt verlassen,
+und zwar darum nicht, weil die direkte oder indirekte Umwelt den Sinn des Guten nach eigenen Regeln
+und nach eigenem Gutdünken, Verstehen und Nutzen interpretiert.
+Gut und Böse sind stets verbunden mit Lobung oder Strafe, wobei sich insbesondere bei der Strafe die
+Frage stellt, wieviel der Mensch davon benötigt, wenn er etwas Böses getan hat, und ob die Strafe hilft,
+das Böse im Menschen zum Guten zu wenden. Und genau dazu ist zu sagen, dass vielfach Strafen für die
+Fehlbaren genau das Gegenteil oder gar Nachteile bewirken und Rachegedanken, Hass und Vergeltungsgedanken auslösen, statt eben eine Wandlung zum Guten. Der Grund dafür ist der, dass Strafen nur dort
+funktionieren und die Fehlbaren sich zum besseren und guten Verhalten wandeln, wenn die Strafen von
+den Fehlbaren auch akzeptiert, als richtig erkannt und also auch als Mittel zum guten Zweck verstanden
+werden. Diese Tatsache schränkt die Nützlichkeit des Strafens ungeheuer stark ein, weil eben Regeln und
+Strafen nur dann Nutzen bringen, wenn von den Fehlbaren eine Akzeptanz dafür gegeben ist und sie die
+Regeln und Strafen dazu auf sich nehmen, um gerecht, gewaltlos und ehrlich zu handeln. Nur in dieser
+Weise sind Regeln und Strafen nützlich und bringen wichtige Voraussetzungen für die wirtschaftliche Entwicklung, für Innovation, Handels- und soziale Erfolge sowie für technische, medizinische und wissenssowie weisheitsmässige Fortschritte, Liebe, Frieden, Freiheit, Harmonie und bewusstseinsmässige Evolution.
+SSSC, 27. Juli 2008, Billy
+
+
+## Im Grunde ist alles schlimmer geworden
+**Der Biologieprofessor sieht keine Anzeichen für eine Entwarnung**
+
+
+**FOCUS: Herr Ehrlich, 1968 erschien Ihr Buch ‹Die Bevölkerungsbombe›, in dem Sie vor der drohenden**
+Überbevölkerung des Planeten warnten. Heute heißt es, die Bombe sei entschärft. Teilen Sie diese Meinung?
+
+**Ehrlich: Nein, im Gegenteil. Im Grunde ist in den letzten 25 Jahren alles schlimmer geworden. Damals**
+wuchs die Weltbevölkerung um 70 Millionen Menschen jährlich, heute um 95 Millionen. Entsprechend hat
+sich der ökologische Zustand der Erde verschlechtert.
+
+
+-----
+
+**FOCUS: Sie hatten 1968 katastrophale Hungersnöte vorausgesagt. Die sind ausgeblieben.**
+
+
+**Ehrlich: Die Zahl der Menschen, die an Hunger sterben, hat sich in den vergangenen Jahrzehnten kaum**
+geändert. In den letzten 20 Jahren sind 200 Millionen Menschen verhungert. Es hat lediglich weniger
+massive Hungersnöte gegeben.
+
+**FOCUS: Weil die Nahrungsmittelproduktion erheblich schneller gewachsen ist als die Weltbevölkerung?**
+
+**Ehrlich: Die ‹Grüne Revolution› war erfolgreicher, als manche von uns erwartet hatten. Damit ist es jetzt**
+aber vorbei. Bei Reis lässt sich keine Ertragssteigerung mehr erreichen.
+
+**FOCUS: Weltweit wächst die Bevölkerung, aber in vielen Ländern ist die Geburtenrate zurückgegangen.**
+
+**Ehrlich: Die chinesische Methode funktioniert, ist aber für die meisten von uns zu repressiv. In vielen armen**
+Ländern geht die Geburtenrate zurück, wenn der Status der Frauen verbessert wird.
+
+
+**FOCUS: Ist Überbevölkerung ein Problem der Dritten Welt?**
+
+
+**Ehrlich: Nein, die USA sind das am meisten überbevölkerte Land der Erde. Überbevölkert ist ein Land,**
+wenn es seine natürliche Lebensgrundlage zerstört. Die USA haben eine gigantische Bevölkerungszahl mit
+einem enormen Appetit auf Rohstoffe. Kein anderes Land betreibt einen solchen Raubbau mit dem Planeten.
+
+**FOCUS: Ist es also genauso wichtig, unser Konsumverhalten zu ändern, wie die Geburtenrate zu drosseln?**
+
+**Ehrlich: Es muss beides parallel laufen. Wir müssen sparsamere Technologien entwickeln und verwenden**
+und sinnlosen Konsum einschränken. Denn die reichen Nationen sind für 70 Prozent, die armen für 30
+Prozent der Umweltzerstörung weltweit verantwortlich, obwohl es viermal mehr arme als reiche Menschen
+gibt.
+
+
+**FOCUS: Was ist ihr optimistischstes Szenario?**
+
+
+### e
+
+**Ehrlich: In unserem neuen Buch ‹Healing the Planet› errechnen wir, dass wir in etwa 100 Jahren zehn Milli-**
+arden Menschen sein werden. Anschließend nimmt die Zahl wieder ab. Zehn Milliarden Menschen, die
+alle etwa gleich viel Energie und Rohstoffe verbrauchen. Dazu müssten die reichen Länder ihren Energiebedarf halbieren, während die armen Länder ihn verdreifachen dürfen. Die Belastung der globalen ökologischen Grundlage würde sich dann verdoppeln. Ob der Planet das aushält?
+
+**FOCUS: Und die Alternative?**
+
+**Ehrlich: Die haben wir vor Augen. Dank Aids wird in den Ländern Zentralafrikas das Bevölkerungswachs-**
+tum in den nächsten zehn Jahren zurückgehen. Entweder beschränken wir unsere Zahl selbst, oder die
+Natur wird es für uns tun – mit Epidemien und Hungersnöten.
+
+**Quelle: FOCUS Nr. 13 (1993), URL = http://www.focus.de/wissen/wissenschaft/ueberbevoelkerung-im-**
+grunde-ist-alles-schlimmer-geworden_aid_144353.html
+
+**Informationen über Paul Ehrlich (Quelle: http://de.wikipedia.org/wiki/Paul_Ralph_Ehrlich)**
+Paul Ralph Ehrlich (* 29. Mai 1932 in Philadelphia, Pennsylvania) ist Professor für Biologie an der Stanford-Universität. Er ist renommierter Entomologe mit dem Spezialgebiet der Lepidoptera (Schmetterlinge).
+Er ist ebenso bekannt als Forscher und Autor im Themenbereich Überbevölkerung.
+
+**Ausbildung**
+Ehrlich erreichte seinen B.A. in Zoologie 1953 an der University of Pennsylvania, seinen M.A. 1955 und
+seinen Ph. D. 1957 an der University of Kansas. Während seiner Studien nahm er an Forschungsreisen
+über Insekten im Beringmeer und in der kanadischen Arktis teil. Während eines Stipendiums der ‹Natio
+
+-----
+
+nal Institutes of Health› untersuchte er die Genetik und das Verhalten von parasitischen Milben. 1959
+wechselte er zur Fakultät in Stanford, wo er 1966 ordentlicher Professor für Biologie wurde.
+
+**Familie**
+Am 18. Dezember 1954 heiratete Paul Ehrlich die Forschungsassistentin Anne H. Ehrlich geborene Fitzhugh Howland. Sie sind heute noch verheiratet und haben eine Tochter, Lisa Marie.
+
+**Akademische Aktivitäten**
+Ehrlich ist Präsident am ‹Center of Conservation Biology› an der Stanford-Universität. Er ist Mitglied der
+American Association for the Advancement of Science, der American Academy of Arts and Sciences und
+der American Philosophical Society. Ehrlichs Forschungsgruppe in Stanford beschäftigt sich gegenwärtig
+mit natürlichen Populationen der Skabiosen-Scheckenfalter (Euphydryas aurinia). Zusammen mit Gretchen Daly arbeitete er auf dem Gebiet der Biogeografie. Er erforscht den Einfluss menschlicher Aktivitäten auf die Artenvielfalt. Ehrlich führt weiter Basisforschung über Populationsbiologie und Ressourcen
+durch, wobei er sich auf gefährdete Arten, kulturelle Evolution, Umweltethik und auf die Bewahrung von
+genetischen Ressourcen konzentriert.
+
+**‹The Population Bomb›**
+Ehrlich hat zahlreiche Bücher über Ökologie, Entomologie, Überbevölkerung und verwandte Gebiete geschrieben. Sein bekanntestes Buch wurde 1968 ‹The Population Bomb› (‹Die Bevölkerungsbombe›) herausgegeben. ‹The Population Bomb› wurde auf Vorschlag von David Brower, damals der geschäftsführende Direktor des Sierra Club, als Fortsetzung eines Artikels im ‹New Scientist› im Dezember 1967
+geschrieben. In jenem Artikel sagte Ehrlich voraus, dass ungefähr zwischen 1970 und 1980 Hungersnöte in der Welt auftreten würden, da die Überbevölkerung die Ressourcen zu stark belastet.
+Eine 1980 von Julian Lincoln Simon vorgeschlagene und über 10 Jahre laufende Wette über die Preisentwicklung von Rohstoffen hat Ehrlich verloren, da es nicht zu den vorausgesetzten Verknappungen kam.
+
+**Weitere Aktivitäten**
+Ehrlich war 1968 einer der Gründer von ‹Zero Population Growth› (Nullwachstum der Bevölkerung).
+Heute nennt sich die Organisation ‹Population Connection›. Ihr Ziel war vor allem Aufmerksamkeit auf
+das Problem der Überbevölkerung zu lenken und Druck auf den Gesetzgeber auszuüben. Er und seine
+Frau Anne gehörten bis 2003 zum Beraterstab bei der ‹Federation for American› Immigration Reform.
+Zusammen mit Stephen Schneider und zwei weiteren Autoren kritisierte er in der Januar-2002-Ausgabe
+von ‹Scientific American› Bjørn Lomborgs ‹The Skeptical Environmentalist›.
+
+**Kritik**
+Kritiker haben Ehrlich mit Thomas Malthus wegen seiner vielen Vorhersagen von Hunger- und Wirtschaftkatastrophen verglichen, die dann nicht eingetreten sind.
+
+**Ehrungen**
+‹John Muir Award› vom Sierra Club
+‹Gold Medal Award› von World Wildlife Fund International
+‹MacArthur Prize Fellowship› von der MacArthur Foundation
+Crafoord-Preis von der Königlich Schwedischen Akademie der Wissenschaften 1990
+‹World Ecology Award› vom ‹International Center for Tropical Ecology›, University of Missouri 1993
+Volvo Environmental Prize 1993
+United Nations Sasakawa Environment Prize 1994
+Heinz Award for the Environment 1995
+Tyler Prize for Environmental Achievement 1998
+
+
+-----
+
+Dr. A. H. Heineken Prize for Environmental Sciences 1998
+Blue Planet Prize 1999
+‹Eminent Ecologist Award› von ‹Ecological Society of America› 2001
+‹Distinguished Scientist Award› vom ‹American Institute of Biological Sciences› 2001
+
+**Veröffentlichungen**
+How to Know the Butterflies (1960)
+Process of Evolution (1963)
+The Population Bomb (1968)
+Population, Resources, Environments: Issues in Human Ecology (1970)
+How to Be a Survivor (1971)
+Man and the Ecosphere: Readings from Scientific American (1971)
+Human Ecology: Problems and Solutions (1973)
+Introductory Biology (1973)
+The End of Affluence (1975)
+Biology and Society (1976)
+Ecoscience: Population, Resources, Environment (1978)
+The Race Bomb (1978)
+Extinction (1981)
+The Golden Door: International Migration, Mexico, and the United States (1981)
+The Cold and the Dark: The World After Nuclear War (1984, Koautoren Carl Sagan, Donald Kennedy und Walter Orr Roberts)
+Earth (1987, zusammen mit seiner Frau)
+Science of Ecology (1987, Koautor Joan Roughgarden)
+The Cassandra Conference: Resources and the Human Predicament (1988)
+The Population Explosion (1990, zusammen mit seiner Frau)
+Healing the Planet: Strategies for Resolving the Environmental Crisis (1991, zusammen mit seiner Frau)
+Birds in Jeopardy: The Imperiled and Extinct Birds of the United States and Canada, Including Hawaii
+and Puerto Rico (1992, Koautor David S. Dobkin und Darryl Wheye)
+The Stork and the Plow: The Equity Answer to the Human Dilemma (1995)
+Betrayal of Science and Reason: How Anti-Environment Rhetoric Threatens Our Future (1998, zusammen mit seiner Frau)
+Human Natures: Genes, Cultures, and the Human Prospect (2002)
+One With Nineveh: Politics, Consumption, and the Human Future (2004, zusammen mit seiner Frau)
+On the Wings of Checkerspots: A Model System for Population Biology (2004, Koautor Ilkka Hanski)
+
+**Weblinks**
+Paul R. Ehrlichs Website an der Stanford University
+Population Connection (ehemals ‹Zero Population Growth›)
+Literatur von und über Paul Ralph Ehrlich im Katalog der Deutschen Nationalbibliothek
+
+
+-----
+
+## Toxoplasma gondii
+Toxoplasmose ist eine gefährliche Infektionskrankheit, die den meisten Menschen noch unbekannt ist. Bereits 1982 wurde von Billy in der FIGU das erste Mal über Toxoplasmose gesprochen. Aus einem Gespräch zwischen Billy und Quetzal ging hervor, dass damals weltweit bereits 62% der Menschheit infiziert
+waren. Leider wurde das Gespräch 1982 nicht schriftlich festgehalten. Quetzal wies nämlich damals auf
+die Auswirkungen dieser heimtückischen Krankheit hin, die Hirn- und Organschädigungen hervorruft und
+den Charakter der Menschen verändert.
+Im Juni 2008 wurde in einer TV-Sendung über das Thema Toxoplasmose berichtet. Erstaunlicherweise ist
+die Forschung inzwischen zu gleichen bzw. ähnlichen Ergebnissen gekommen, wie 1982 von Billy gesagt
+wurde, der seine Informationen von Quetzal hatte.
+Der Begriff Toxoplasmose stammt aus dem Griechischen und bedeutet ‹bogenförmiges Gebilde›. Es handelt sich um einen heimtückischen Parasiten, der unbemerkt das Gehirn des Menschen beeinflusst und
+seine Funktionen verändert. Wissenschaftliche Forschungen haben ergeben, dass zum jetzigen Zeitpunkt
+über 50% der Menschen weltweit davon betroffen sind.
+Das Protozoen (Parasit) «Toxoplasma gondii» dringt in das Gehirn des Menschen ein und setzt sich dort
+fest. Die Ansteckung wird in der Regel durch engen Umgang mit Katzen übertragen, wobei die Erreger
+im Katzenkot lauern. Auch Schweine und Rinder können die von der Katze ausgeschiedenen Zysten mit
+dem Futter aufnehmen. Wird das Fleisch vor dem Verzehr gar nicht oder zu wenig gekocht, wie z.B. bei
+Mettwurst oder Tatar (rohes Fleisch), dann gelangt der Erreger in den Körper des Menschen. Aber auch
+bei Gartenarbeiten ist niemand vor dem Parasiten sicher. Salat und Gemüse können mit den Zysten aus
+dem Katzenkot verseucht sein. Eine Katze scheidet – am liebsten in lockerer Gartenerde – pro Tag ca. zehn
+Millionen ansteckender Zysten aus, die dann über Monate hinweg eine akute Gefahr bleiben, auch wenn
+der Kot nicht mehr sichtbar ist. Deshalb ist grosse Vorsicht angebracht.
+Ratten, Vögel und Mäuse nehmen den Erreger mit dem Futter auf. In diesen Lebensformen, die von Katzen gefressen werden, kann sich der Einzeller gut und stark entwickeln. Im Darm der Katze legt er seine
+Eier ab, die dann von dieser durch den Kot wieder ausgeschieden werden und von einer Maus oder vom
+nächsten Vogel usw. wieder gefressen werden. Damit ist dann der Kreislauf des Toxoplasma gondii geschlossen.
+Der Einzeller Toxoplasma kann alle warmblütigen Lebewesen befallen. Gelangt der Mensch mit den sehr
+ansteckenden Zysten im Katzenkot in Kontakt, von dem auch das Fell kontaminiert sein kann, dann genügt das für eine Infizierung. Da sich viele Menschen Katzen als Haustiere halten, geht daher in bezug
+auf eine Toxoplasmoseansteckung die grösste Gefahr von den Hauskatzen aus. Als grosse Seuchenherde
+gelten deshalb auch Sandkästen auf Kinderspielplätzen, in denen sich Katzen und Hunde gerne ihrer Notdurft entledigen. Das wiederum ist eine grosse Gefahr für Kinder, die mit den Händen im Sand spielen,
+dadurch den Toxoplasmoseerreger aufnehmen und sich infizieren, wenn sie die ungewaschenen Finger in
+den Mund stecken. Besonders gefährdet sind Katzen- und Hundeliebhaber, die ihre Tierliebe derart übertreiben, dass sie sich von ihren Tieren überall ablecken, sie in ihren Betten schlafen lassen oder ihre Lieblinge küssen. Eine Ansteckungsgefahr von Mensch zu Mensch besteht als Ausnahme nur bei Schwangeren, weil Mutter und Kind den gleichen Blutkreislauf haben. Frauen sind während der Schwangerschaft
+besonders anfällig, wobei Toxoplasmose zu erheblichen Schädigungen, zu Fehlgeburten und zu schweren gesundheitlichen Schäden des Babys, zu Missbildungen oder später zu Lernbehinderungen führen
+kann. Durch die Forschung wurde ausserdem festgestellt, dass Frauen mit Toxoplasmose deutlich häufiger
+Knaben als Mädchen gebären.
+Der Parasit kann sich zwar im Körper des Menschen nicht fortpflanzen, kann sich aber in Form von sogenannten Pseudozysten vermehren. Diese Pseudozysten können sich derart tarnen, dass das menschliche
+Immunsystem sie nicht mehr als Fremdkörper erkennt. Der Erreger kann sich aber auch durch körpereigene Zellen vermehren, und zwar bevor er sich im ganzen Körper ausbreitet und sich im Gehirn sowie in
+der Muskulatur einnistet. Bei Menschen mit Immunschwäche, etwa bei AIDS-Patienten, kann die Toxoplas
+
+-----
+
+mose schwerwiegende Folgen haben. Doch auch Menschen ohne besondere Anfälligkeit erkranken,
+wobei letztlich sehr schwere körperliche und organische Schäden die Folge sind; Leiden, Schmerzen und
+Krankheiten, die jahrelang von Ärzten falsch behandelt werden und folglich nicht heilen, sondern immer
+schlimmer werden, weil die wahren Ursachen nicht erkannt und deshalb falsche Diagnosen gestellt und
+ebenfalls falsche Behandlungen verordnet werden, wie Billy ausdrücklich erklärt. In Extremfällen platzen
+die Pseudozysten, und danach breitet sich die Toxoplasmose im ganzen Körper aus und befällt nahezu
+alle Organe. Nach und nach bilden sich Geschwüre, die letztlich zum Tod führen können.
+Forscher haben nachgewiesen, dass der Parasit auch Auswirkungen auf das Denken und Handeln der
+Menschen hat, wobei Billy und Quetzal erweiternd erklären, dass sich Toxoplasmose auch äusserst negativ auf die Gefühlswelt und auf die Psyche auswirken, die durch die Krankheit sehr schwer geschädigt werden können.
+Durch Toxoplasmose erkrankte Menschen neigen sehr oft zu stark erhöhter Risikobereitschaft, zu Aggressivität sowie zu Stimmungsschwankungen und zu gefährlichen Verhaltensweisen in bezug auf sich selbst
+und die Mitmenschen. So ist auch Leichtsinnigkeit und Verantwortungslosigkeit gegenüber sich selbst und
+auch gegenüber anderen Menschen an der Tagesordnung. Das ist jedoch nicht verwunderlich, und zudem
+wirkt sich die Krankheit Toxoplasmose auch unterschiedlich in bezug auf das Verhalten von Männern und
+Frauen aus. Männer nehmen die gesellschaftlichen Regeln nicht mehr so genau, wie auch nicht die Pünktlichkeit, so sie häufig zu spät kommen. Zudem tritt eine grosse Aggressivität und Eifersucht in Erscheinung,
+nebst seltsamen und unkorrekten Verhaltensweisen gegenüber den Mitmenschen. Frauen dagegen werden warmherzig, neigen zu einem spontaneren Lebensstil und wechseln häufig ihre Partner. Bei Menschen, die von der Krankheit befallen sind, wurde zudem festgestellt, dass die Wahrscheinlichkeit, an
+einem Verkehrsunfall beteiligt zu sein, 2,7mal höher ist als bei gesunden Menschen. Die Gründe sind die
+schlechteren Reaktionszeiten und die höhere Risikobereitschaft, was besonders oft auch durch Risiko- und
+Extremsportarten zum Ausdruck kommt, wie z.B. Basejumping, Sky-Diving, Free-Climbing, Extrem-Bergsteigen und Canyoning usw.
+Das Verhalten bei Tieren ist ebenfalls interessant. Lammfromme Tiere werden plötzlich zu Bestien, während Raubtiere förmlich zu Lämmern werden können. Von Forschern wurden schon viele Fälle manipulierter Selbstmorde bei Tieren beobachtet. Beispielsweise bewegt sich eine Maus oder eine Ratte auf eine
+Katze zu, ohne mit der Wimper zu zucken, um von dieser getötet zu werden.
+Toxoplasmose kann nur durch eine spezielle Blutuntersuchung erkannt werden (wie auch die Krankheit
+‹Lyme Borreliose›, die durch Zeckenbisse hervorgerufen wird und die teilweise ähnliche Symptome und
+Krankheiten auslösen kann wie die Toxoplasmose, wie Quetzal und Billy lehren). Da es aber verschiedene Formen der Toxoplasmose gibt, sind noch lange nicht alle erforscht. Bei den bekannten Arten ist im Anfangsstadium eine Heilung durch Antibiotika teilweise möglich. Toxoplasma gondii ist jedoch zweifellos
+eine sehr gefährliche und unberechenbare Krankheit, genauso wie die Lyme Borreliose. Die Wissenschaft
+hat weiterhin alle Hände voll zu tun, um ein wirksames Gegenmittel zu finden, wie bei so vielen anderen
+bisher noch unheilbaren Krankheiten bei den Menschen auf der Erde.
+Silvano Lehmann, Schweiz
+
+## Leserbrief
+In bezug auf folgenden Leserbrief erlaube ich, BEAM, mir – wie auch in diversen anderen Fällen von Briefveröffentlichungen, die mir mit vollem Vor- und Nachnamen bekannten Schreiberpersonen, deren Anschriften mir auch bekannt sind, aus Sicherheitsgründen für diese, ihre berufliche Tätigkeit und ihren
+Freundeskreis usw. nur mit Initialen hinsichtlich ihrer Vornamen oder auch ihrer Familiennamen zu nennen –, die Person des folgenden Leserbriefes nur mit den Initialen ihres vollen Namens sowie mit der Angabe deren Landes zu kennzeichnen. Das gegensätzlich zum Wunsch der Schreiberperson des Leserbrie
+
+-----
+
+fes – wie auch in anderen gleichartigen Fällen –, weil ich Nachteile irgendwelcher Art gegen sie nicht tolerieren und nicht verantworten kann.
+Billy
+
+## Lieber Leser
+Mein Name ist P.K. aus Deutschland, ich bin Mitglied der FIGU, auch wenn nur passiv. Mein Anliegen ist
+von persönlicher Natur und ich bitte, dies auch gebührend zu behandeln. Vielen Dank für Dein liebes Verständnis, und ich möchte meine Liebe und meinen Respekt allen Aktiven mitteilen, die an der gemeinsamen Sache der Wahrheit und ihrer Verbreitung arbeiten. Danke, danke, und ich gebe allen vielmals mein
+Liebegefühl für Eure Arbeit, meine Lieben. Ich bin leider weitab vom FIGU-Center, und ich habe noch viel
+des eigenen Lernens in bezug auf Billy-BEAMs Lehre zu bewerkstelligen. Erst aber mal bin ich in der
+Pflicht, meine Schuld zu benennen, die materieller Natur ist, und die ich Billy persönlich mitteilen will. So
+sind die nachfolgenden Zeilen meinem lieben Freund und Belehrer Billy gewidmet und ich bitte Dich, lieber Leser, dies zu respektieren, wobei ich auch damit einverstanden bin, wenn Du meine Zeilen hier liest.
+
+**Lieber Chef,**
+ich bin sehr betrübt und beschämt darüber, dass ich ... Es wäre mir ein grosses Joch, nicht mehr in dem
+gemeinsamen und weltumfassenden Gefüge der FIGU sein zu können. Auch wenn ich mich nur gering an
+den Aktivitäten beteilige, so habe ich doch einen Gedanken, der mich schon seit einiger Zeit beseelt, und
+den ich Dir, sobald es mir möglich ist, persönlich unterbreiten möchte. Damit will ich Dir sagen, dass meine
+Schwester, mein Schwager und ich demnächst bei Euch zu Besuch sein werden und dass dieser Besuch –
+so hoffe ich – zu einem Ergebnis meiner Planung (ist noch im Werden mit ganz kleinen Schritten) führt,
+mit Deinem Einverständnis natürlich, so mein Plan sich langsam zu einem guten Gebilde entwickelt, nämlich, dass für eine Region in der Mitte Deutschlands ein kleines Bollwerk, oder anders gesagt, eine kleine
+Bastion der FIGU heranwächst. Wir werden ja sehen ... Mein diesbezüglicher Wunsch ist schon eine geraume Zeit alt, und wir werden ihn bald umsetzen, sobald wir die Möglichkeit dazu finden. Ich weiss, es
+gibt viel bei Euch zu tun, und ich freue mich schon darauf, meine entschlummerte Tatkraft zu beleben.
+Habe schon einige Zeit im Internet ab und an Deinen englischen Ausführungen zugehört, dann kam mir
+der Gedanke, dass ich alles, was ich hier habe, aufgeben und mich zu Euch in die Schweiz absetzen
+könnte. Eine innere Stimme sagte mir aber, dass dies falsch sei und der richtige Weg der sei, all meine
+persönlichen und bewusstseinsmässigen Belange zu regeln und anschliessend hier, wo ich lebe und als
+Polizist arbeite, der ‹Lehre der Wahrheit› folgen und die Gesetze und Gebote der Schöpfung weiter lernen soll. Dabei soll auch ein Teil der FIGU an diesem, meinem Lebensort entstehen, den es zu pflegen und
+mit gemeinschaftlicher Hilfe meiner Schwester aufzubauen gilt. Dies ist zwar vorderhand nur ein Gedanke und ein Wunsch von mir, der zur Verwirklichung noch einige Zeit der Vorbereitung und meiner persönlichen Arbeit an mir selbst bedingt, aber ich halte daran fest und werde es mit Dir besprechen.
+Die Arbeit an meiner Persönlichkeit verlangt noch viele Veränderungen, aber da sage ich Dir nichts
+Neues, ich denke Du weisst, welches ‹Geistes› Kind ich bin; ich kann mich aber doch ganz gut selber einschätzen. So weiss ich, dass ich noch viel an mir selbst rumwerkeln muss, was aber eine Arbeit sein wird,
+in die ich mich noch hineinbewegen muss. Aber was soll alles Gejammere und Getue, denn ich will und
+werde es zuwegebringen und mein Bewusstsein ist damit genährt, der Schöpfung zu dienen und diese zu
+lieben und zu ehren. Alles Getue, sei es materiell oder irdisch in vergnügender Weise, bringt mich nicht
+weiter, sondern blockiert mich. So war es bisher. Auch mein Beruf als Polizist hat mich abgehärtet, und
+ich bemerkte eine für mich heute erschreckende Art, mit Schicksalen von Menschen umzugehen, die mich
+nicht mehr gefühlsmässig berührten. Das ist schon sehr bedenklich und ich bemühe mich, dies zu korrigieren, denn was wären wir als Menschen dieses Planeten, wenn wir kein Mitgefühl für andere Wesenheiten mehr empfinden, sei es ein Mensch, ein Tier oder die Pflanzenwelt. Egal welche Lebensform die
+
+
+-----
+
+Schöpfung auch immer geschaffen hat, sie verdient es, von jeder anderen Lebensform geachtet und darüber hinaus mit Respekt und allumfassender Liebe geehrt zu werden. So soll auch jeder Mensch, egal welcher Herkunft und Hautfarbe sowie unabhängig seiner Einstellung oder seines Glaubens, mit gebührendem Respekt behandelt werden. Dies ist mir durch Deine Lehre bewusst geworden, lieber Billy, und ich
+bemühe mich, die Gesetzmässigkeit diesbezüglich zu achten, auch wenn ich es, so muss ich eingestehen,
+mal im Dienst vergessen habe. Aber ich war immer bemüht, mich so zu verhalten, dass ich keinem Menschen, der in meine Obhut kam, vorsätzlich geschadet habe. Das ist ein schwerer Gang, weil ich mir schon
+so einiges anhören muss, sei es an Beleidigungen oder auch in bezug auf Angriffe mit brutaler Gewalt.
+Es ist schon manchmal sehr schwierig in meinem Beruf, die Fassung zu bewahren, aber das habe ich trotz
+meiner persönlichen Emotionen lernen müssen. Bin eben auch nur ein fehlbarer Mensch, der aber sehr
+gerne zu dem strebt, was uns Menschen der Erde durch Liebe und Harmonie der allumfassenden und
+wahrheitlichen Gesetze der Schöpfung zum höchsten Geschenk gemacht wurde. Alleine der Sonnenaufgang am Morgen, der mich nach meiner Nachtschicht auf meinem Nachhauseweg begleitet, ist von einer
+unbeschreiblichen Liebe und zärtlichen Wesenheit der Schöpfung begleitet, die mir in meiner Brust das
+Herz zum Jubilieren und Frohsinnen belebt. Die Sonne birgt in sich das Symbol der Schöpfung, und das
+Antlitz der aufgehenden Sonne, das ich des Morgens mit liebevollem Auge erblicke, erfüllt mich mit grossem Dank an unsere Schöpfung, und ich werde durch die wärmende Sonnenstrahlung ins Bewusstsein emporgehoben, dass ich ein Teil dessen bin, was mich belebt und meine Geistform dereinst vor Urzeiten erschaffen hat, nämlich die allumfassende Liebe, die aus dem Gefüge unseres Universums hervorgeht, aus
+unserer unbeschreiblich schönen Schöpfung. In diesem leider nur sehr kurzen Verharren der Einigkeit mit
+dem Schöpferischen, bis ich mein Haus betrete, um den Schlaf der Nacht nachzuholen, schwingt die Herrlichkeit und Grösse meiner mir so lieb gewordenen Schöpfung in meinem Bewusstsein mit. Es ist eine Symphonie, die sich niemals mit irdischer Musik vergleichen lässt; ein Geschenk der allumfassenden Schöpfung, das noch lange in mir nachklingt und das ich mit meinen bescheidenen Bewusstseinsschwingungen
+in mir aufnehme und dankbar dafür bin, dass ich geboren wurde und belebt werde.
+Was für einen Menschen das Höchste ist, wird er erfahren, wenn er alles Schöpferische wirklich sieht,
+wenn er es riecht, wenn er es spürt und wenn er darin mitschwingt, wenn er es fühlt und respektiert, wenn
+er aufrichtig und er bereit dazu ist, jedes noch so kleine Lebewesen zu achten. Und er kann es erfahren,
+wenn er sich seiner selbst bewusst wird und das ganze Gebilde der allumfassenden Schöpfung in sich erkennt und sein Bewusstsein sowie seine Gedanken und Gefühle darauf ausrichtet, auf die wirkliche Wahrheit, und wenn er sich dadurch belehrt und belehren lässt. Und dieses Belehren und Belehrenlassen und
+das Lernen und Wissensammeln ist auch für mich das grosse Ziel – es muss aber auch das Ziel für uns alle
+Menschen sein, und zwar auch dann, wenn wir dazu noch viele Berge erklimmen müssen und oftmals abstürzen. Ja, mein lieber Freund, ich weiss es, und mir ist es bewusst, dass dieser Weg für die irdische
+Menschheit noch lange und felsig ist – so auch für mich ...
+So, nun genug, ich möchte Dir, als lieber Mensch und bedingungsloser Freund, meine Liebe und Achtung
+vor Deinem Wirken und Deinem damit verbundenen Leid zollen durch meine Worte, die schwach bemessen sind mit meinem Wortschatz und alles nicht so zum Ausdruck bringen können, wie ich alles tief in mir
+empfinde. Es bleibt mir nur zu schreiben, dass ich Dir und allen Deinen Mitstreitern für die ‹Lehre der
+Wahrheit› und für all die schwere Arbeit, die Ihr verrichtet, sehr dankbar bin und dass ich eine herzliche
+Liebe sowie grossen Respekt und Dank empfinde. Mir ist es bewusst, dass Du uns hier in Deutschland niemals vergessen hast.
+Und damit möchte ich vorerst mein Schreiben beenden und es also auch nicht zu lange ausführen, denn
+ich denke, dass es schon lange genug ist ... Du hast ja sicher noch wichtigere Arbeiten zu erledigen. Ich
+bin damit einverstanden, dass Du das ganze Schreiben oder Auszüge davon veröffentlichst. Liebe Grüsse von meiner Schwester und mir.
+Herzlichst und Salome,
+P.K., Deutschland
+
+
+-----
+
+## Leserfrage
+Immer wieder hört man, dass Wütende Genpflanzungen zerstören, weil die genetisch veränderten Pflanzen sehr giftig sein sollen. Ist das wirklich so?
+T. Pechold, Deutschand
+
+**Antwort**
+Diese Frage kann mit einem kurzen Gesprächauszug aus dem 471sten Kontaktgespräch vom 16. September 2008 beantwortet werden:
+
+Billy Dann habe ich eine Frage bezüglich der Gentechnologie: Du weisst ja, dass hier auf der Erde
+die Dummheit der Gentechnikgegner dazu führt, dass sie durch Vandalenakte für Genversuche
+ausgebrachte Pflanzen und Saaten zerstören. Dadurch wird es den Gentechnikern natürlich sehr
+schwer gemacht, Nahrungspflanzen und Obst sowie Früchte und Gemüse gegen Krankheiten
+und Schädlinge resistent zu machen, wie aber auch ertragreicher, wodurch viele Probleme in
+bezug auf den Hunger bei den Menschen der Erde gelöst werden könnten. Die Gentechnik in
+Hinsicht auf Pflanzen, Obst, Früchte und Gemüse könnte meines Erachtens aber auch Probleme
+der Medizin lösen, weil bestimmte Stoffe auch in dieser Verwendung finden könnten. Natürlich
+ist es so, dass Genversuche erst einmal Misserfolge oder Unerfreuliches bringen, wie das
+zwangsläufig bei allem und jedem ist, das erst entwickelt wird, folglich also Fehler auftreten können. Das aber darf ja kein Grund sein, um die Entwicklungsversuche zu stoppen und nicht
+weiterzuführen, denn würde das geschehen, dann stünde die Entwicklung still, und tatsächlich
+hätte es von alters her auch nie eine gegeben. Leider ist es auf der Erde aber so, dass sich in
+bezug auf Neuerungen immer ganze Horden von Dummen und Dämlichen zusammenfinden,
+die gegen Weiterentwicklungen und neue Dinge protestieren und diese zu verhindern versuchen, wobei in der Regel Falschinformationen durch Besserwisser, Kritiker und sonstige Widersacher die Runde machen. So entsteht in vielen, die den Falschinformationen Glauben schenken, Angst und Feigheit, woraus sich die Falschinformations-Gläubigen zusammenrotten und
+mit Zerstörungsaktionen die Neuentwicklungen zu verhindern suchen. Was sie jedoch damit in
+bezug auf die Entwicklung und auf einen besseren Lebensstandard anrichten, vermögen diese
+mit Dummheit und Dämlichkeit Geschlagenen weder zu erahnen noch zu verstehen. Und ein
+Mensch, der einfach als blinder Mitläufer irgendwelcher Verleumdungen, Lügen, falscher Lehren oder Behauptungen umherrennt, Zerstörungen hervorruft oder gar andere Menschen durch
+Falschheiten in die Irre führt, kann wirklich ebenso nur von Dummheit und Dämlichkeit geschlagen sein wie jene, welche in Pro und Hurra fallen für Kriegshetzer und deren verbrecherische
+Machenschaften.
+
+
+Ptaah Das ist klar und deutlich gesagt und entspricht dem, wie es sich wirklich verhält.
+
+
+Billy Meine ich auch, weshalb ich es auch sagte. Doch wäre es möglich, dass du einen Hinweis geben
+könntest in der Hinsicht, wie die Gentechniker vorgehen müssen, um in der Gentechnik wirklich
+Erfolge zu erzielen, die sich in den richtigen Bahnen bewegen und jene Erfolge bringen, die
+grundsätzlich erbracht werden müssen? Meines Erachtens wird einfach in der falschen Richtung
+geforscht und manipuliert.
+
+Ptaah Dass in der Gentechnik bezüglich der Pflanzen, des Obstes, der Früchte und des Gemüses in
+falscher Richtung geforscht und manipuliert wird, das entspricht tatsächlich dem, was gegeben
+ist. Der Fehler, der beim Ganzen begangen wird, ist der, dass mit artfremden Genen manipu
+
+-----
+
+liert wird, anstatt dass für die Versuche arteigene Gene benutzt werden. Durch artfremde Gene
+entstehen Hybriden, und diese entsprechen nicht dem, was sein muss, denn durch Hybriden entstehen u.U. Giftstoffe, die sehr schädliche Wirkungen auf Menschen und Tiere sowie auf Gewächse aller Art hervorbringen können. Nur in seltenen Fällen können artfremde Gene in bezug
+auf die Genmanipulation Verwendung finden und wirksame, gute und wertvolle hybridische Erfolge bringen, während Genmanipulationen mit arteigenen Genen von sehr grossem Wert sind,
+Nutzen bringen und für die Erdenmenschen viele Probleme lösen, sei es in bezug auf Nahrungsmittel aller Art, die Medizin und den Lebensstandard. Greifen also die Gentechniker für ihre Experimente auf die arteigenen Gene der Früchte, des Obstes, der Pflanzen und des Gemüses,
+dann erst gehen sie den richtigen Weg.
+
+Billy Mit deiner Antwort ist etwas zu beginnen. Wenn die Genwissenschaftler darauf hören und in
+dieser Weise arbeiten, dann werden sie sicher auch bald gute Erfolge haben.
+
+
+## Leserfrage
+Als Leser Ihrer Bulletins auf Ihrer Website habe ich etwas zu fragen, das Sie in einem Ihrer Bulletins beantworten können, denn sicherlich gibt es noch andere Personen, die sich für diese Dinge interessieren:
+Was halten Sie, Billy Meier, von den Geschehen, die in Georgien gewesen sind, was davon, dass Russland Abchasien und Süd-Ossetien als unabhängig erklärte, und was davon, dass die Olympiade in China
+durchgeführt wurde, das die Menschenrechte missachtet? Weltweit wurde darüber viel geredet, doch hat
+es nichts gebracht, folglich die Spiele doch dort durchgeführt wurden. Auch wegen Tibet und dem Dalai
+Lama ist China in üblem Gerede. Man weiss als einfacher Mensch einfach nicht, was man von allem halten und was man dazu sagen soll. Für ein offenes und ehrliches Wort von Ihnen wäre ich dankbar, denn
+ich kenne die Länder und deren Menschen sowie die politischen Lagen nicht, worüber so viel geredet wird,
+weshalb es mich interessiert, ob all die Darstellungen gerechtfertigt sind, die über die Russen wegen Georgien gesagt werden, die in Georgien eingefallen sind und Krieg geführt haben. Auch dass China trotz
+ihrer unmenschlichen Machenschaften mit der Olympiade bedacht wurde, hat allerhand Aufstand hervorgerufen.
+R. Spörri, Schweiz
+
+**Antwort**
+Was ich Ihnen in bezug auf Ihre Fragen zu antworten habe, ist folgendes: Als erstes muss klar sein, dass
+ich weder in der einen noch in der anderen Sache über Recht und Unrecht zu urteilen habe und das auch
+nicht im Sinn habe zu tun, weil es mir einfach nicht ansteht zu urteilen. So halte ich mich daran, wie ich
+das seit jeher tue hinsichtlich Belangen, die politischer Struktur sind. Also politisiere ich nicht, sondern verfüge mich in bezug meiner Antworten in politischer Beziehung nur darauf, die effectiven Fakten zu nennen, wie diese aus wahrheitlicher Sicht zu sehen sind. So verhalte ich mich auch neutral und nenne nur
+gegebene Fakten, auch wenn diese von Regierungen, Machthabern, Politikern, Kritikern, Besserwissern,
+von Medien sowie von Religions- und Sektenvertretern, Ideologen und Philosophen mit falschen Lehren vehement bestritten und verleumderisch als Politisierung dargestellt werden.
+
+Sowohl in bezug auf Georgien wie auch auf China, Tibet und den Dalai Lama (siehe Sonder-Bulletin Nr.
+44, Juni 2008) werden durch Besserwisser, Kritiker, Sympathisanten des Dalai Lama, öffentliche Organe
+und durch die Regierungen und Machthaber verschiedenster Staaten ungeheure Lügen und Verleumdungen vielfältiger Formen verbreitet, denn die effective Wahrheit in vielerlei Belangen ist für die machtausgerichteten Machenschaften der Regierungen und Machthaber diverser Staaten sowie für die diktatorische
+
+
+-----
+
+Politik der EU und der nach immer mehr Staaten heischenden NATO ebensowenig dienlich wie auch nicht
+für die öffentlichen Medien und deren Sensationsmacherei. Die Berichterstattungen der Medien, Regierungen und Machthaber dienen nicht mehr zur reellen und wahrheitlichen Information der Menschen, sondern allein nur noch der Profitmacherei und dem Gewinnen von Anhängern und Regierungsgläubigen
+sowie Lesern (Zeitungen und Zeitschriften), Zuhörern (Radio, Rundfunk) und Zuschauern (TV resp. Fernsehen). So werden durch sie ungeheure Lügen und Verleumdungen erdichtet sowie Filme und Photos durch
+Statisten betrügerisch als ‹echt› hergestellt usw. oder einfach gewissenlos gefälscht und retouchiert. Also
+werden die effectiven Tatsachen bewusst und profitgierig verfälscht und der Öffentlichkeit lügnerisch, betrügerisch und verleumderisch als Wahrheit verkauft, wobei sich dies insbesondere auf schmutzige Angelegenheiten und Machenschaften in der Politik bezieht, wie aber auch auf Kriegsberichte, Aufstände, Terrorakte und Geheimdienstmachenschaften usw.
+Was nun aber bezüglich Georgien und dazu zu sagen ist, dass Russland dort eingegriffen und die Ordnung wiederhergestellt hat, das hat seine Bewandtnis darin, dass der machtgierige und kriminelle Machthaber Georgiens, Saakaschwili, seine Armee kriegerisch, mordend und zerstörend die von Georgien abtrünnigen Nachbarstaaten Süd-Ossetien und Abchasien überfallen liess. Daraufhin marschierten die
+russischen Militärs als Schutztruppen für Süd-Ossetien und Abchsaien in Georgien ein, um die Ordnung
+wiederherzustellen und die beiden von Georgien abgefallenen Staaten vor weiteren Angriffen der Georgier zu bewahren, die wahrhaftig mörderisch und bösartig zerstörend gewütet haben. Wie es nun auf unserer schönen Welt aber üblich ist, wurde und wird von den Regierungen und Mächtigen der Erde, und
+zwar insbesondere von den USA, Deutschland, Frankreich, der EU und NATO, das Vorgehen der Russen
+natürlich vehement verurteilt. Dadurch aber mischen sich Staaten in die Angelegenheit Russlands ein, die
+selbst genug Dreck am Stecken haben in bezug auf ihre eigene Politik und die sich vehement verwehren,
+wenn sich Russland oder andere Staaten in ihre eigenen politischen und militärischen Belange einmischen.
+Den Hammer dabei leisteten sich bei der Sache aber die USA, die sich als Moralprediger gegen Russland
+aufführten und es weiterhin tun, obwohl ausgerechnet die USA die Schnauze halten und also schweigen
+und sich schamvoll und schuldvoll im tiefsten Loch aller Schande und Schändlichkeit verkriechen müssten.
+Man bedenke bezüglich der USA all der ungeheuren Kriegsverbrechen, die durch die US-amerikanische
+Armee und Luftwaffe in aller Welt begangen wurden – und weiterhin werden –, wie z.B. die ungeheuren
+und ungerechtfertigten Bombardierungen im Zweiten Weltkrieg, als sie z.B. die Lazarettstadt Dresden im
+Deutschen Reich in Schutt und Asche legten, wobei rund 250000 oder mehr unschuldige und schwer verwundete, kampfunfähige Menschen ums Leben kamen. Und man bedenke Hiroshima und Nagasaki, wo
+1945 durch die Atombombenabwürfe auch Hunderttausende von unschuldigen Menschen durch die mörderischen USA-Machenschaften ermordet wurden. Und man bedenke der Massaker, die durch die USMilitärs in Vietnam angerichtet wurden – wie auch anderswo –, wie aber auch der Massaker zu bedenken ist, die in den USA selbst durchgeführt wurden, die beinahe zur völligen Ausrottung der Indianer
+führte. Das nebst vielen Kriegsherden, die durch die USA in vielen Ländern der Erde geführt wurden – und
+werden – und im Laufe der Zeit Hunderttausende und Millionen von Menschenleben forderten, sowohl
+durch die Schuld der US-Militärs wie auch durch die verbrecherischen Machenschaften der CIA und der
+anderen Geheimdienste. Nicht zuletzt sollten die Fehlbaren und Verbrecherischen der USA aber auch die
+Schnauze halten, die mörderisch die Todesstrafe ausüben oder befürworten, wie aber auch jene, welche
+die Kriege im Irak und in Afghanistan zu verantworten haben und deren Schergen, die Militärs, viele Tode
+und Zerstörungen verbreiten, wozu die Welt noch pro und hurra schreit. Und man bedenke in bezug auf
+die USA der mörderischen Machenschaften, die zur Zeit der Sklaverei verübt wurden, wie durch den KuKlux-Klan und sonstige Rassisten, was sich selbst noch bis in die heutige Zeit hineinträgt. Noch heute sind
+die USA noch vom Rassismus geprägt, wie durch diverse Neonazigruppierungen, unter denen die aus
+Kriminellen und Verbrechern bestehende ‹Aryan Brotherhood› wohl die schlimmste Form ist. Doch in der
+Welt scheinen die USA bei den Dummen, Dämlichen sowie Kriegs- und Terrorfreudigen alle Rechte zu
+haben, und zwar unter all den Regierenden und Mächtigen ebenso wie auch unter jenen des Volkes, wel
+
+-----
+
+che als Unzurechnungsfähige unter aller Primitivität einhergehen, weshalb sie die effective Wahrheit nicht
+sehen, nicht wahrnehmen und nicht erkennen oder nicht erkennen wollen, nämlich dass die USA in aller
+Welt ihren selbsterschaffenen Weltpolizeistatus ausüben und buchstäblich über unzählige Leichen gehen.
+All das kümmert aber weder die Regierenden und Mächtigen der Welt, nicht die Deutschlands, Frankreichs und Englands, der EU und der NATO, noch jene Dummen und Dämlichen, die in das gleiche
+schmutzige Horn stossen wie jene der Regierungen und Machthaber, welche verantwortungslose und
+selbstherrliche Lümmel sind, die all die rechtschaffenen Regierenden und deren Volksnähe und Menschlichkeit untergraben. Dazu kommen noch die bornierten und unbedarften Menschenrechtler und Besserwisser, die gleichermassen tun und schmutzige Propaganda gegen jene Staaten betreiben, die eigene
+Wege gehen, wie eben Russland in bezug auf Georgien und China hinsichtlich Tibet, wobei gegen die
+Chinesen und Russen geflucht, gewettert, geschimpft und diese verteufelt werden, weil in bezug auf sie
+alles als Unrecht und Unfreiheitlichkeit beschimpft wird, während die Stänkerer und Verurteilenden selbst
+nicht besser sind. Man bedenke dabei nur all der Staaten, wozu auch Italien, Australien, ehemalige Ostblockstaaten, England, und Deutschland gehören – man erinnere sich dabei Deutschland mit dem ‹Nie
+wieder Krieg› –, die ihre Militärs von den USA in Kriege hineinreissen lassen, wie im Balkan, im Irak und
+in Afghanistan. Was dabei als besonderes Unrecht verurteilt werden muss, ist die Tatsache der unverhältnismässigen Gewalt, wie aber ganz speziell das Morden, Foltern, Zerstören, Vernichten, Verseuchen, Vergewaltigen und das Ausüben von Greueln aller Art.
+Der Konflikt Tibet und China ist eine besondere Sache, wobei der Dalai Lama der eigentliche Drahtzieher
+dessen ist, dass China hart gegen Tibet vorgeht, denn seine ‹Göttlichkeit›, ‹Herrlichkeit› und ‹Heiligkeit›
+ist ein machtgieriger Kerl, der ebenso über Leichen geht, um die religiöse und politische Macht in Tibet erringen zu können, wie die Bösen der USA und Chinas ebenso die Welt mit Leichen pflastern. Allesamt
+haben sie kein Gewissen, wobei sie einen grossen Teil der Menschheit mit ihren Lügen, Verleumdungen
+und Betrügereien in bezug auf ihr Handeln irreführen – und die Dummen alles glauben, weil sie selbst die
+Fakten nicht richtig zu sehen und nicht zu erkennen sowie auch nicht zu beurteilen vermögen, weil sie wie
+blinde Hühner sind, die rundum vergiftete Körner aufpicken und letztlich daran sterben. Der Dalai Lama
+mit seinem schleimigen Gehabe betrügt seine Gläubigen und Anhänger ebenso, wie die USA einen
+Grossteil der irdischen Bevölkerung in bezug auf ihr Weltpolizeigebaren und hinsichtlich der angeblichen
+Terrorbekämpfung in die Irre führen in der Beziehung, dass sie in Wahrheit nicht Frieden schaffen, sondern die Macht der ganzen Erde an sich reissen und mit ihrem armseligen US-Englisch die anderen Sprachen der Welt, und zwar insbesondere die deutsche, zum Verschwinden bringen wollen. Das nebst dem,
+dass sie sich durch ihre hinterhältigen Machenschaften in immer mehr Staaten einschleichen und sich
+darin festsetzen, um darin ihre Macht auszuüben und sich auch deren Erdressourcen zu sichern. Natürlich können diese fiesen und mörderischen US-amerikanischen Machenschaften nicht über die ebenfalls
+mörderischen Machenschaften und Gewalttätigkeiten des Regimes von China hinwegtäuschen, doch diese
+Ausartungen sind regime-, militärisch- und strafeungerechte Dinge, die in keiner Weise dem chinesischen
+Volk zur Last gelegt werden können. Etwas, das gleichermassen für den rechtschaffenen Bevölkerungsteil
+der USA gilt, der sich nicht gegen die mörderische und gewalttätigen sowie kriminellen und verbrecherischen Machenschaften durch die Staatsverantwortlichen und ihre Anhänger sowie Geheimdienste zur
+Wehr setzen kann. Das Gros des chinesischen und ein gewisser Teil des US-amerikanischen Volkes selbst
+will friedlich leben. Leider gibt es in jedem Volk natürlich auch dumme und unbedarfte Regierungstreue,
+wie das in jedem anderen Staat auch der Fall ist; und diese sind es, zusammen mit den mörderischen und
+gewalttätigen Regierenden, die Unheil anrichten. (Dazu muss fairerweise aber auch gesagt werden, dass
+es Staaten gibt, wenn auch sehr wenige, deren Staatsführende nicht gewalttätig und nicht mörderisch,
+nicht zerstörend, nicht kriminell und nicht verbrecherisch sind.) So ist in den Staats- und Volksführungen
+das Böse, das Kriegerische, Terroristische, das Kriminelle und Verbrecherische sowie das Zwangs- und
+Gewalttätige sowie das Mörderische beinahe in jedem Land der Erde gegeben. Leider haben vielfach nur
+verantwortungslose, machtbesessene und selbstherrliche Regierende und deren Anhänger und Befürwor
+
+-----
+
+ter die Macht in Händen, nicht jedoch das Volk, und so können sie das ihnen unterstellte und in Obhut gegebene friedliche Volk unterdrücken, ausnützen, ausbeuten, zur bösen Gewalt verführen und missbrauchen, um es zu Krieg, Mord, Brandschatzung, Folter und Zerstörung zu zwingen, und zwar durch einen
+eingehämmerten politisch-fanatischen oder religiös-fanatischen Glauben, wie das auch bei gewissen Terrororganisationen usw. der Fall ist. So ist es nicht nur in China und in den USA, sondern in vielen anderen Staaten der Welt, so also auch in Tibet, wo der Einfluss des Dalai Lama und der USA die Menschen
+gegen die Chinesen aufbringt, die für die Tibeter in Wahrheit viel Gutes getan und die bösartige Sklaverei, Leibeigenschaft und schamlose und grenzenlose Ausbeutung zum Verschwinden gebracht haben, die
+seit jeher durch den Dalai Lama und Panchen Lama befürwortet wurden. Das nebst vielem anderem an
+Gutem, das China nach Tibet gebracht hat, das sich der Dalai Lama mit seinem schleimigen Wesen als
+‹Göttlichkeit› und ‹Heiligkeit› sowie als Politmächtiger mit Hilfe der USA und anderen Ländern sowie durch
+Lug und Trug gewonnene Anhänger unter den Nagel reissen will. Das, wie auch die USA sich die Alleinherrschaft über die Erde und die ganze Menschheit sichern wollen und deshalb bereits ihr Zepter über die
+ganze Welt schwingen, und zwar mit Krieg, Terror, Zerstörung, Mord und schmutzigen Geheimdienstmachenschaften, was bisher, gesamthaft gesehen, Millionen von Menschenleben forderte und mit Sicherheit
+weiterhin zahllose Tote fordern wird. Eine Tatsache, die wohl nicht zu bestreiten ist, wie auch nicht die Tatsache, dass in Tibet unter der Herrschaft der Dalai Lamas und Panchen Lamas seit alters her unzählige
+Menschen zu Tode gefoltert, unzählbaren die Hände, Arme, Füsse und Beine abgehackt, massenweise gefoltert, bis zum Tod ausgepeitscht oder durch das Ausstechen der Augen geblendet wurden. Eine brüllende Tatsache, die in keiner Weise hinter all den Greueltaten der USA, von China, des Saddam Husain, Josef
+Stalin, Adolf Hitler, Karadzic, Adolf Eichmann und des Milosevic sowie Ceaucescou und sonst allen
+Kriegs- und Menschheitsverbrechern zurücksteht. Doch daran denkt niemand, oder es wird als des Rechtens den machtgierigen und sich zur ‹Heiligkeit› und ‹Göttlichkeit› erhebenden Dalai Lamas und Panchen
+Lamas verziehen. Anderweitig aber ist es so, dass in aller Welt die blinden Anhänger des immer süffisant
+grinsenden Dalai Lama, Tenzin Gyatso, keinerlei Ahnung davon haben, welch böse und mörderische Gewaltherrschaft unter dem Regime der Dalai Lamas und Panchen Lamas in Tibet seit alters her wirklich geführt wurde. Der stets katzbuckelnde und demütig erscheinende sowie ewig grinsende frauenfeindliche
+Dalai Lama strebt nicht nach wahrem Frieden und Freiheit für die Tibeter, sondern er buhlt um die Herrschaft über sie und das Land, und zwar sowohl als ‹göttliche Heiligkeit› wie auch als Politmächtiger und
+Herrscher über Tibet und dessen Bevölkerung. Und dazu ist ihm jedes Mittel recht, was jedoch weder die
+Tibeter noch die weltweiten blinden Anhänger erkennen.
+Billy
+
+## Was die Zukunft in bezug auf die Klimakatastrophe und die Umweltzerstörung für die Menschen der Erde bringt
+**Eine Voraussage**
+Alle ihr Menschen der Erde, ihr seid verantwortlich für euer Wohl und Wehe, für das Klima eurer Erde,
+für euren Planeten, und also seid ihr verantwortlich für euer eigenes Leben sowie für das aller Kreaturen,
+für Fauna und Flora, für die ganze Natur und alles, was da wächst, kreucht und fleucht. Ihr seid sowohl
+als einzelne für alles verantwortlich wie auch als gesamte Masse Menschheit, verantwortlich für alles, was
+ihr an Gedanken und Gefühlen auch immer hervorbringt und was ihr durch euer Handeln bewirkt. Nebst
+euch Menschen aller Völker, die ihr für alles verantwortlich seid, was sich auf der Erde und in eurem Dasein auch immer ergibt, stehen an vorderster Front eure Behörden und Regierungen; und euch allen, euch
+einzelnen Menschen der Erde und euch Verantwortlichen der Behörden und Regierungen sollen folgende
+mahnende Worte kundgetan sein: Schon 1951, 1958 und 1964 und auch zu anderen Zeiten wurden
+durch meine Prophetien und Voraussagen weltweit Behörden, Regierungen, Zeitungen, Organisationen
+und Radiostationen darauf aufmerksam gemacht, was sich zukünftig auf der Erde und unter euch Men
+
+-----
+
+schen an Unerfreulichem ergeben wird. Damals war noch Zeit, die angekündigten drohenden Dinge teilweise ändern zu können, während andere Teile jedoch unveränderbar eintreffen mussten, weil sie nicht
+mehr geändert werden konnten. Dazu und zu all dem, was vorausgesagt und prophezeit wurde, soll nun
+weiter folgendes ausgeführt werden: Es sind nun die ersten acht Jahre des 21sten Jahrhunderts dahingegangen, während denen sich die Prophetien und Voraussagen der 1950er sowie der 1960er Jahre erfüllt
+haben, wie all der Jahrzehnte danach, und zwar bis zur heutigen Zeit. Nichtsdestoweniger wurde meinen Mahnungen trotz der Erfüllung meiner Prophetien und Voraussagen keine Achtung geschenkt, folglich erdenweit die angekündeten Übel immer mehr überhandnahmen und sich nunmehr noch weiterhin
+steigern. Nur sehr wenige Menschen sind es tatsächlich, die meine früheren prophetischen und voraussagenden Warnungen ernst nahmen und auch heute ernst nehmen, doch das Gros von euch Menschen der
+Erde hat sich nicht darum gekümmert und schert sich auch heute nicht darum, sondern tritt die Wahrheit
+weiterhin mit Füssen. So wollt ihr nicht wissen und nicht verstehen, dass ihr selbst die Schuld an allen Übeln
+und an allen Katastrophen tragt, die sich in eurer Gesellschaft und auf eurem Planeten ereignen. Zwar hat
+es schon immer Erdbeben, Seebeben, Bergstürze, Überschwemmungen, Unwetter, Dürren, Vulkanausbrüche und andere Naturkatastrophen auf der Erde gegeben, weil die Natur seit Anbeginn der Zeiten in dieser Weise gewirkt hat, doch nunmehr habt ihr all diese Übel durch eure eigene Schuld in ein derart gewaltiges Mass gesteigert, dass diese nicht mehr aufzuhalten sind. Und der hauptsächliche Grund für all
+die Übel, die über euch Menschen rollen, wie Verbrechen, Seuchen, Kriege, Hunger, Unmenschlichkeit
+und Klimazerstörung usw., liegt in der gewaltigen Zahl der Überbevölkerung, die ihr nicht durch rigorose Geburtenstoppmassnahmen eindämmt, sondern sie weiter verantwortungslos heranzüchtet. Und diese
+Masse der Übervölkerung ist an allen in Erscheinung tretenden Übeln und Katastrophen aller Art schuld,
+wobei sich in Relation zur steigenden Masse Menschheit auch alle Übel, Unbill, Umwälzungen und alles
+Unheil unaufhaltsam steigern. So bringt die Zukunft für euch Menschen der Erde noch viele weitere Widerwärtigkeiten, Schicksalsschläge sowie Elend, Not, Nachteile, Erschütterungen und Verhängnisse, die sich
+in mancherlei und ungeheure Katastrophen ausweiten, denn fortan schlägt die Natur des Planeten mit
+noch grösserer Wucht auf euren Wahnsinn der Überbevölkerung und die damit verbundene Zerstörung
+des Klimas, der Natur und vielerlei Lebens zurück, als sie das bisher getan hat. Bereits ist die Zeit gekommen, da euch die Natur eures Planeten mancherorts in die Flucht schlägt, was sich durch die zerstörte Umwelt durch euren Einfluss und also durch eure Schuld in den letzten Jahrzehnten bösartig verstärkt hat.
+Bereits sind heute ganze Völker auf der Flucht vor den Folgen der zerstörten Umwelt und der Klimakatastrophe, die von verantwortungslosen Wissenschaftlern und Besserwissern noch immer bagatellisiert
+oder gar völlig bestritten wird. Und es sind viele Menschen und gar ganze Völker auf der Flucht vor den
+gefährlichen Auswirkungen in bezug auf Industrieunfälle. Menschengruppen und ganze Völker flüchten
+auch vor den sich ausbreitenden Wüstengebieten, vor den steigenden Meeresspiegeln, der Zerstörung von
+Feld und Flur, der Berge durch Vergnügungsparks und Sportanlagen aller Art, wie aber auch, weil die lebensnotwendige Luft durch giftige Abgase gesundheitsschädigend geschwängert wird. Auch der Hunger
+treibt die Menschen davon, vielfach durch die Zunahme der Unfruchtbarkeit des Bodens, der durch Verödung nicht mehr für den Nahrungsmittelanbau bewirtschaftet werden kann. Vielfach aber werden durch
+die verantwortungslose Hilfe von Hilfsorganisationen aus Industriestaaten die diversen Völker von Drittweltländern mit Lebensmitteln überschüttet, folglich durch die Nahrungsmittelempfänger kein Nahrungsmittelanbau mehr betrieben wird, oder, wenn die Hilfeempfänger noch Nahrungsmittelanbau betreiben,
+sie ihre Produkte nicht mehr verkaufen können, weil diese Eigenproduktionen viel teurer sind als die durch
+Hilfsorganisationen aus Industriestaaten eingeführten Nahrungsmittel.
+Nicht nur das Steigen der Meeresspiegel infolge des Schmelzens der Pole und der Gletscher, sondern auch
+der zunehmende Abbruch der Meeresufer und der Verlust des Bodens treibt nach und nach ebenfalls
+ganze Menschengruppen und gar ganze Völker in die Flucht, insbesondere jene, die auf Meeresinseln
+wohnen, die durch die steigenden Wasser immer mehr und letztlich völlig überflutet werden. Die Masse
+der Menschen, die infolge all der klimatisch und industriell bedingten Übel und Katastrophen flüchten –
+
+
+-----
+
+die wahrheitlich Umweltflüchtlinge sind und auch so genannt werden müssen –, steigert sich in den nächsten Jahren auf über 35 Millionen. Doch die Berechnung gilt nur für die nächsten Jahre, denn durch die
+unaufhaltsame und verbrecherisch zu nennende Zunahme der Überbevölkerung steigert sich die Zahl
+weiterhin, so in nur 45–50 weiteren Jahren die Erde, alle Länder und die Menschheit mit 200 Millionen
+Umweltflüchtlingen konfrontiert sein werden. Nebst dem sind noch sehr viele Flüchtlinge, die aus politischen, rassistischen, religiösen oder sozialen Gründen usw. verfolgt werden und die in den nächsten Jahren auch auf eine Zahl von rund 30 Millionen ansteigen werden.
+Die Auswirkungen der Umweltverschmutzung in Relation zum Wahnsinn der steigenden Überbevölkerung
+nimmt Formen an, die stetig schlimmer und verheerender sowie katastrophaler werden. Die Trinkwasserreserven werden immer mehr vergiftet, wie z.B. in Asien durch Arsen, woran bereits jedes Jahr viele Tausende von Menschen sterben, während in anderen Ländern das Trinkwasser immer knapper wird und
+letztlich versiegt. Andernorts wird der Lebensraum für viele Menschen dadurch gefährdet und zerstört,
+weil die Regenwälder abgeholzt werden und daraus verheerende klimatische Veränderungen und unbewohnbare Flächen resultieren, wie durch Desertifikation resp. das Vordringen von Wüsten in bis anhin
+von Menschen bewohnte Gebiete. Auch werden immer mehr die Gewässer leergefischt, Getierarten ausgerottet oder sehr vielem Getier der Lebensraum genommen, wie auch viele fruchtbare Böden, Wiesen,
+Fluren sowie Auenflächen zubetoniert und damit die Natur zerstört, wie das speziell durch Hotels, Ferienlager, Seilbahnen, Skipisten sowie durch militärische Übungsschiessplätze in den Bergen der Fall ist; das
+nebst der verantwortungslosen Verbauung der Berghänge sowie See- und Flussufer für menschliche Wohnungen und Erholungscenter usw. Die Atmosphäre wird durch Abgasemissionen mit CO2 vergiftet, hauptsächlich durch zu viele Autos, die von all jenen benutzt werden, welche eigene Verkehrsmittel für Reisen,
+Arbeitswege und Einkäufe sowie für unsinnige Vergnügungsfahrten benutzen, obwohl sie leicht zu Fuss
+gehen könnten. Weiter sind auch all die Heizungen und Industrieanlagen zu nennen, die mit fossilen
+Brennstoffen betrieben werden und – trotz Filtern, die unzureichend sind – stündlich Tonnagen von Dreck,
+Feinstaub und Giftstoffen aller Art in die Luft schleudern. Und was an Dreck und Gift in die Luft hinausfliegt, setzt sich auch wieder auf den Boden, ins Erdreich sowie ins Wasser ab, wodurch die ganze Pflanzen- und Getierwelt – inklusive der Mensch – damit kontaminiert wird, auch das Gemüse und die Früchte, die sowieso schon durch giftige Spritz- und Treibmittel verseucht werden, um den Ernteertrag und den
+Profit zu steigern.
+Von der Natur- und Umweltzerstörung sowie von der Klimakatastrophe und der Ausbeutung der
+Ressourcen der Erde sind alle Kontinente der Welt betroffen, doch das ist nur der Anfang des kommenden grossen Übels, der laufenden Katastrophe und des Schreckens, der euch Menschen der Erde noch bevorsteht. Wahrheitlich kommt alles noch viel schlimmer, und zwar in jeder erdenklichen Beziehung, wobei
+weltweit die Flüchtlingsströme der Umweltflüchtlinge letztlich ausarten und ethnische Zusammenstösse hervorrufen, wie sie sich bereits in den Industriestaaten ergeben. Und tatsächlich ist das bereits so, auch wenn
+es noch nicht gesehen werden will: Bereits bestehen gegen Flüchtlinge und Einwanderer aller Art aus fremden Ländern durch Einheimische mehr oder weniger schadenbringende, würdelose, rassistische, menschenverachtende und religiös verunglimpfende Verhaltensweisen in beinahe allen Ländern der Erde,
+wobei jedoch die diesbezüglich grössten Übel sich in den reichen Industriestaaten ergeben. Und schon
+seit geraumer Zeit ist es auch soweit, dass auch die Glaubensfreiheit angegriffen wird und den Gläubigen ihre freiheitlichen Rechte beschnitten werden, wobei auch die Hauptreligionen resp. deren Vertreter
+aller Art mitmischen. So werden den Gläubigen eigene Zusammenkunftststätten und deren Eigenarten
+ebenso verwehrt wie auch das Tragen bestimmter Kleidungsstücke und glaubensmässiger Symbole und
+Amulette usw., wobei in dieser Beziehung insbesondere sehr viele Angehörige des Christentums Terror
+ausüben und den Glauben sowie die Glaubenssymbole anderer Gruppierungen und Völker verunglimpfen. Und ganz besonders im Christentum ist es üblich, Gruppierungen als Sekten zu beschimpfen, die mit
+irgendwelchen religiösen Glaubensmässigkeiten nichts zu tun haben wollen.
+
+
+-----
+
+Überbevölkerung: Ein Begriff, der von allen Dummen und Dämlichen unter euch Menschen der Erde nicht
+wahrgehabt werden will in bezug darauf, dass die Welt von Menschen überlaufen ist und von ihr nicht
+mehr ernährt und nicht mehr getragen werden kann. Dumme und Dämliche mit akademischen Titeln,
+sprich Wissenschaftler, Zeitungsfritzen und Besserwisser aller Art wollen die Wahrheit nicht wahrhaben
+und behaupten gar, dass die ganze Wirtschaft und mit ihr das Leben zusammenbrechen werde, wenn weniger Menschen geboren und die Menschheit durch einen rigorosen und vernünftig gesteuerten Geburtenstopp reduziert werde. Aber auch viele unter euch, ihr Menschen der Erde, die ihr einfache Bürger
+ohne akademische Titel usw. und für die weitere Heranzüchtung der Erdenmenschheit seid, auch ihr seid
+nicht besser und wähnt, dass euch die Freiheit beschnitten werde durch einen staatlich geregelten Geburtenstopp. Doch wird wahrlich eure Freiheit nicht beschnitten, wenn an euren Verstand und an eure Vernunft appelliert wird, damit ihr nur noch Nachkommen in einem Masse zeugt, dass die Überbevölkerung
+reduziert und damit das Leben im ganzen Umfeld der Erde erhalten wird, was durch die Masse Überbevölkerung nicht möglich ist, weil durch diese langsam aber sicher alles Leben, die Natur und das Klima
+rettungslos zerstört werden. Wie dumm und dämlich müsst ihr als jene unter euch Menschen der Erde sein,
+die ihr bar jeden Verstandes und bar jeder Vernunft die Wahrheit nicht erkennt und weiterhin vor euch
+hinwurstelt in eurer kaninchenhaften Heranzüchtung eurer Nachkommen! Und wie dumm und dämlich
+seid ihr alle, die ihr akademische Titel tragt, Wissenschaftler oder einfach Besserwisser seid und die ihr in
+feiger Angst vor eurem schwindenden Profit und Image falsche Behauptungen und Lügen aufstellt und die
+Menschheit zum Narren haltet, indem ihr die Wahrheit in bezug auf die weltweiten katastrophalen Umstände und Geschehen leugnet, einfach nicht seht oder nicht einzuschätzen vermögt, die durch die Überbevölkerung hervorgerufen werden. Akademische oder sonstige Titel nützen in bezug auf die Wahrheit
+ebensowenig wie auch nicht alle grossen Worte, die ebenso blöd, dumm und dämlich sind, wie die nachweisbar irre Behauptung, dass die Erde eine flache Scheibe sei.
+1951 schrieb ich: ‹Dass der Zweite Weltkrieg sein unrühmliches Ende gefunden hat, der von 1939 bis
+1945 dauerte und rund 62 Millionen Menschen das Leben gekostet hat. Selbst die atomare Energie wurde
+zur Ermordung von Hunderttausenden von Menschen und zur Zerstörung derer Städte eingesetzt – durch
+die verantwortungslose und verbrecherische Handlung der USA, als die japanischen Städte Hiroshima
+und Nagasaki durch Atombomben zerstört wurden. All das wird leider jedoch nicht das Ende aller
+Schrecken, Massenmorde, Kriege und Terrorhandlungen sein, wenn die Menschen aller Völker nicht endlich gescheit genug werden, ihre machtgierigen Regierungsbosse ihrer Ämter zu entheben und sie das Hasenpanier ergreifen zu lassen. Das Volk in jedem Land ist es grundsätzlich, das die Regierenden wählt –
+in der Regel leider die falschen, die erst grosse Versprechungen machen, um dann, wenn sie an der Macht
+sind, Krieg und Terror vom Zaun zu brechen und das Volk mit Lügen und Betrug in ihren Bann zu schlagen, wodurch es den Oberen hörig wird und die wirkliche Wahrheit verkennt. Das aber wird zukünftig
+böse Folgen bringen, denn weltweit werden Staatsgewaltige – wenn die Völker nicht dagegen einschreiten – die Menschen immer mehr in Kriege, Terror und Hass verwickeln, bis das Ganze weltweit unkontrollierbare Formen annimmt.›
+Nun, was ich damals offen aussprach, hat sich seither vielfach bewahrheitet, und schon seit geraumer Zeit
+haben sich die angedrohten ungeheuerlichen Dinge zu einem weltweiten Brand und offenen Feuer entwickelt. Die Zeit des Übergangs ist abgelaufen, in der das Ungeheure noch zu stoppen gewesen wäre,
+das für die Zukunft der ganzen irdischen Menschheit und für die Erde und deren Natur vorausgesagt
+wurde. Nunmehr können keine greifende Gegenmassnahmen alles noch zum Besseren und Besten verändern, sondern auf lange Zeit kann alles nur noch gelindert werden. Eine Änderung zum Besseren und Besten nämlich bedarf sehr langer Zeit, die mit Jahrhunderten berechnet werden muss. Dazu ist es aber notwendig, dass ihr, Menschen der Erde, als einzelne und als Völker, als Verantwortliche der Regierungen,
+Behörden, Wissenschaften und Militärs sowie aller anderweitig für die Welt, deren Sicherheit und das
+Leben Zuständigen euch stark bemüht, alle durch eure unvernünftig herangezüchtete Überbevölkerung
+entstandenen Übel und Katastrophen zu bekämpfen, zu stoppen und einen positiven Weg zu gehen. Seid
+
+
+-----
+
+ihr dazu aber nicht bereit und tut ihr es nicht, dann bringt ihr noch weitere Schrecken hervor, die zu bösen
+Geisseln der irdischen Menschheit werden. So werden weiterhin Kriege, Terror, Zerstörung und Vernichtung mit tausendfältigen Toden und Millionen von Ermordeten und Toten durch Naturkatastrophen eure
+Zukunft belasten, denn eure ungeheuer wachsende Überbevölkerung lässt keine andere Möglichkeit zu.
+Menschen der Erde, durch eure Schuld sind alle Naturgesetze aus den Fugen geraten, so alle Unwetter
+und Naturkatastrophen, die Hagelwetter, Schneestürme und Regenfluten, ungeheure Überschwemmungen
+usw. nunmehr zur Tagesordnung gehören. Durch eure Überbevölkerung habt ihr die Auenwälder, Auenebenen, Berghänge, See-, Fluss- und Meeresufer zu Wohngeländen umfunktioniert. Dadurch können die
+wilden Wasser der Regenfluten ihren Weg in eure Häuser finden und vielen von euch den Tod bringen.
+Durch eure Schuld taut weltweit der Permafrost auf und ruft Bergstürze und Lawinen hervor, während
+Erdbeben, Seebeben und Vulkanausbrüche sowie gewaltige Stürme Tod, Zerstörung und Verderben bringen. Und alles mehrt sich weiterhin, die Orkane und Taifune, die Hurrikane und Tornados, die immer
+gewaltiger und zerstörender werden. Und an allem ist nur eure Überbevölkerung schuld, denn durch sie
+und ihre ungeheuer negativen Auswüchse werden alle Übel und alle Naturkatastrophen, wie aber auch
+alle menschlichen Katastrophen jeder Art hervorgerufen. Die unnatürliche Klimaveränderung, weitere
+Kriege, Verbrechen, Krankheiten, Seuchen und der ganze weltumfassende Terrorismus und fanatische
+Religionswahn usw. sind bösartige Folgen der Überbevölkerung. Und all das wirkt sich äusserst nachteilig auf eure gesamte irdische Menschheit aus. Die ungeheuren Massen und Gewichte eurer Städte und
+Dörfer drangsalieren die inneren Strukturen der Erde in immer schlimmerem Mass und drängen die
+tektonischen Platten zu Verschiebungen, durch die Erd- und Seebeben ausgelöst werden, die Hunderttausende und letztlich Millionen von Menschenleben fordern. Alle Beben haben jedoch auch Einflüsse auf den
+ganzen irdischen Vulkanismus, weltweit auf die Vulkane, die vielfach in grossen Tiefen miteinander verbunden sind und immer häufiger und zerstörender in Tätigkeit treten. Auch das fordert viele Menschenleben, besonders in jenen Gegenden, wo unvernünftigerweise nahe an den Vulkanen Wohnstätten gebaut
+werden. Doch nicht genug damit, denn durch die verantwortungslos wachsende Überbevölkerung treten
+viele weitere, neue ungeheure sowie unlösbare Probleme in Erscheinung, auch in bezug auf die Hungersnöte, die sich je länger je mehr steigern, eben je mehr die Überbevölkerung wächst. Alte und ausgerottet
+geglaubte Krankheiten kehren wieder, zusammen mit neuen Krankheiten und Seuchen, denen viele Menschen zum Opfer fallen werden. Durch den Massentourismus wächst auch der Strom der Wirtschaftsflüchtlinge aus aller Welt, denn was die Touristen aus den reichen Industriestaaten den Bewohnern der armen
+Touristenländer vorzeigen, wollen diese auch haben. Folglich fliehen sie ihr Heimatland und suchen als
+Wirtschaftsflüchtlinge stetig mehr das Luxusleben in den reichen Ländern. Auch das Asylantenproblem –
+zusammen mit dem Flüchtlingsstrom der Umweltflüchtlinge und dem Strom der Verfolgten – nimmt immer
+mehr zu und wird zur Unlösbarkeit.
+Es ist so gekommen, wie 1951 vorausgesagt, dass das Ende der 1980er Jahre die Hochkonjunktur zusammenbrechen und weltweit eine ungeheure und noch nie dagewesene Arbeitslosigkeit ausbrechen liess,
+wodurch die Kriminalität durch Arbeitslose, Drogenabhängige und Arbeitsscheue ebenso anstieg wie
+auch die Kriminalität durch Kriminelle, die selbst vor Mord nicht zurückschrecken, wenn sie ihren Untaten
+und Verbrechen nachgehen. Auch die Staatsverschuldungen stiegen in diversen Ländern ins Unermessliche, wie auch die terroristischen Machenschaften. Die Prostitution nahm unglaubliche Formen des Gesellschaftsfähigen an und wurde derart in die Öffentlichkeit hinausgetragen, dass heute selbst Kinder nicht
+davon verschont werden. Die Prostitution wurde zu einem ‹ehrbaren› Beruf, der von den Behörden offiziell anerkannt und auch der Steuerpflicht eingeordnet wurde. Das Fernsehen wurde in jeder Familie
+ebenso zum Alltag wie die Technik der Computer. Und beides, das Fernsehen und die Computer, wurden
+zu den wichtigsten Informationsmedien, wie aber auch zu den bedeutendsten Formen der öffentlichen Prostitutionswerbung.
+Ihr Menschen der Erde, sehr viele von euch wurden im Verlaufe der 60 Jahre kalt in euren Gedanken und
+Gefühlen, wodurch heute eure zwischenmenschlichen Beziehungen immer seltsamere Blüten zutage brin
+
+-----
+
+gen, weil für euch alles nur noch zweckbestimmt ist – auch eure Beziehung zum Nächsten. Wahre Liebe
+ist bei euch zur Rarität geworden, und Ehen schliesst ihr nicht mehr aus Zuneigung zueinander, sondern
+nur noch, um Profit zu machen, euer Image zu pflegen und um einem bestimmten Status frönen zu können, der mit Ansehen und Geld gehandelt wird. Diese so geschlossenen Ehen halten nicht mehr, folglich
+immer mehr Familien zerstört und gar die Kinder sexuell missbraucht werden, während andere asozial
+werden und verwahrlosen, weil sich ihre Eltern nicht um sie kümmern. Viele unter euch Menschen der Erde
+führen ein Leben, das vielfach nur noch auf Drogen, Sucht, Laster und Vergnügen ausgerichtet und zerstörerisch sowie disharmonisch geprägt ist. Vielfach ist dadurch eure Psyche beeinträchtigt und euer ganzes Verhalten ist dem Negativen verfallen.
+Ihr Menschen der Erde, ihr selbst seid die Urheber für alle Übel und Katastrophen, die auf eurer Welt grassieren, wobei ihr die wirkliche Ursache dadurch geschaffen habt, indem ihr eure Überbevölkerung in
+immer höhere Zahlen getrieben habt und die Zahl noch höher treibt. Also seid ihr selbst verantwortlich für
+alles und somit in eigener Person auch Gott, und als solcher bestimmt ihr selbst eure ungeheuren Probleme und Auswüchse; ihr, die ihr grössenwahnsinnig glaubt, das höchste und gewaltigste Wesen im Universum zu sein – weit höher, als dies die Schöpfung jemals sein kann, aus der alles hervorgegangen ist.
+Durch eure Schuld, durch eure Überbevölkerung, durch euren Grössenwahn, durch eure Unvernunft und
+Selbstherrlichkeit fordert ihr alle Kräfte der Natur heraus, die sich zusammen mit der Erde aufbäumt und
+sich gegen eure ausgearteten Machenschaften zur Wehr setzt. Also überborden die Naturgewalten auf
+der Erde, zusammen mit dieser selbst, weil ihr Menschen der Erde den gesamten natürlichen Gang der
+Elemente und des Lebens gestört habt und ihn zerstört.
+Das alles habe ich heute zu sagen; die Wahrheit, wie sie tatsächlich ist. Fasst nun alle den Mut, ihr Menschen der Erde, das Offenbarte zu überdenken, daraus die richtigen Schlüsse zu ziehen und fortan richtig zu handeln. Noch ist sehr wenig Zeit dazu, um die allergrössten Katastrophen zu vermeiden, doch
+müsst ihr diese Zeit nutzen, denn sie zerrinnt euch zwischen den Fingern. Bedenkt dieser Wahrheit und
+handelt im Sinne des Rechten, auf dass ihr eine Wandlung zum Besseren vornehmt. Macht alles öffentlich,
+was ihr durch die gesagten Worte erfahren habt, lehrt sie allen Menschen der Erde, lehrt sie in allen euren
+Medien, um eine Änderung und Wandlung in positivem Sinne zu erreichen. Nur wenn ihr vernünftig handelt, so wie euch kundgetan ist, bewahrt ihr euch vor noch grösserer Unbill, vor noch grösseren Übeln,
+vor weiteren Ausartungen, vielen neuen Toden und Zerstörungen und vor dem Schritt in die endgültige
+Vernichtung. Ihr alle, Menschen der Erde, die ihr euch diesen Worten der Wahrheit zugetan fühlt, ihr habt
+die gute Möglichkeit – wie sie euch schon 1951, 1958 und 1964 genannt wurde –, eure Macht in Verantwortung zu nutzen und die Erde und die ganze Menschheit vor all dem zu bewahren, was euch auch
+jetzt mit neuen Worten offenbart ist. Zögert nicht, sondern handelt, und zwar schnell, denn die Zeit drängt.
+Handelt umgehend, um noch Schlimmeres zu verhindern, als es schon geschehen ist und gegenwärtig geschieht. Handelt ohne zu zögern, denn sonst seid ihr ebenso verantwortlich dafür, wenn die Zukunft noch
+sehr viel Schlimmeres für die Erde und eure Menschheit bringt, als durch eure Schuld bereits heraufbeschworen und Wirklichkeit wurde.
+SSSC, 20. Juli 2008, 19.14 h, Billy
+
+
+-----
+
+## VORTRÄGE 2009
+Auch im Jahr 2009 halten Referenten der FIGU wieder Geisteslehre-Vorträge usw. im Saal des Centers:
+
+
+**28. März 2009:**
+Patric Chenaux **Aspekte des Gewissens**
+Das Gewissen ist bekanntlich ein wichtiger Faktor im Leben und Wirken des Menschen.
+Was aber ist das Gewissen in seinem Wesen, in seinem Ursprung und in seiner Funktion? Und existiert überhaupt ein effectives Gewissen oder ist dieses nur das Produkt
+menschlicher Gedanken und unterschiedlicher Lebens- und Wertvorstellungen?
+Philia Stauber **Materieller Bewusstseinsblock I**
+Der Mentalblock und seine Funktionen
+
+
+**27. Juni 2009:**
+Hans-G. Lanzendorfer Rund um den ‹Kelch der Wahrheit›
+Lehre, Geschichte, Hintergründe
+Philia Stauber **Materieller Bewusstseinsblock II**
+Der Unterbewusstseinsblock und seine Funktionen
+
+
+**22. August 2009:**
+Bernadette Brand **Alles, was der Mensch tut …**
+Über die Umsetzung der Geisteslehre ins tägliche Leben
+Pius Keller **Kennzeichen des Lebens und Unterschiede zwischen Pflanze, Mensch, Getier**
+**und Tier I**
+Über Merkmale und einige markante Kennzeichen und Grundlagen, die in ihrer
+Gesamtheit materielles Leben ausmachen, sowie vom Bau und Leben der Pflanzen und
+deren Unterscheidung zu Getier, Tier und Mensch.
+
+**24. Oktober 2009:**
+Christian Frehner **«Denn sie wissen nicht, was sie glauben!»**
+Im Spannungsfeld zwischen ‹Glaubensgewissheit› und Wahrheit.
+Natan Brand **Erziehung ist alles!**
+Was ist eine gute Erziehung und lässt sich das überhaupt definieren? Was sollen Kinder
+lernen, damit sie ein menschenwürdiges und selbstbestimmtes Leben führen können?
+Wer soll und kann eigentlich erziehen? Ein Vortrag über die Grundlagen menschlicher
+Erziehung, ihren Sinn und Wert, wie sie durch den ‹Kelch der Wahrheit› und die
+Geisteslehre gelehrt werden.
+
+Pünktlicher Vortragsbeginn um 14.00 Uhr.
+Eintritt: CHF 7.– (Eintritts-Ermässigung für FIGU-Mitglieder bei Vorweisen eines gültigen Ausweises.)
+An den Vortrags-Samstagen trifft sich im Semjase-Silver-Star-Center um 19.00 Uhr eine Studiengruppe,
+zu der alle interessierten Passiv-Mitglieder herzlich eingeladen sind.
+Die Kerngruppe der 49
+
+**IMPRESSUM**
+**FIGU-Bulletin**
+**Druck und Verlag: Wassermannzeit-Verlag, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+**Redaktion: ‹Billy› Eduard Albert Meier, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+**Abonnemente:**
+Erscheint unregelmässig; Preis pro Einzelnummer: CHF 2.– (Zusammen mit einem Abonnement der ‹Stimme der Wassermannzeit› oder der ‹Geisteslehre-Briefe› als Gratis-Beilage.)
+**Postcheck-Konto: FIGU-CH-8495 Schmidrüti, PC 80-13703-3**
+**E-Mail:** info@figu.org
+**Internet:** www.figu.org
+**FIGU-Shop: shop.figu.org**
+
+
+-----
+

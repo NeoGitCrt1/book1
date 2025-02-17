@@ -1,0 +1,2349 @@
+# Gespräch zwischen Quetzal von der plejarischen Föderation und ‹Billy› Eduard Albert Meier, BEAM
+
+## Achthundertsechsundneunzigster Kontakt Sonntag, 1. September 2024 12.54 Uhr
+
+**Quetzal** Hallo, Eduard, mein lieber Freund, da bin ich ebenfalls. Sei gegrüsst.
+
+**Billy** Ja, sei auch gegrüsst und auch willkommen, mein Freund. Bermunda. Florena und Enjana waren letzte Nacht
+auch hier, weshalb ich schon um 2 Uhr ins Büro beordert wurde.
+
+**Quetzal** Deshalb komme ich jetzt auch, jedoch nicht in der Nacht. Es ist notwendig, dass ich einiges mit dir berede, und
+zwar gleich jetzt: Es …
+
+**Billy** Das …
+
+**Quetzal** …
+
+**Billy** …
+
+**Quetzal** … Das alles sollst du jedoch nicht bekannt machen, denn … Ausserdem habe ich aber zu wiederholen, was ich
+dir beim letzten Besuch schon erklärt habe, nämlich dass du – auch die Centerbewohner – Vorsicht walten lassen sollst
+gegenüber Fremden, die ins Center kommen. Du selbst sollst besonders auf Vorsicht achten, wenn du auswärts gehst. Auch
+sollt ihr im Center darauf achten, wenn …
+
+**Billy** Klar, und bezüglich dem Nichtreden hat schon Sfath gesagt, dass ich niemals ein Wort bezüglich solcher …
+verlauten lassen soll. Mit meinem Einverständnis …, folglich ich niemals auch unter Gewalteinwirkung oder durch Elektronik
+oder Drogeneinfluss nie reden oder eben plaudern würde. Daher sollten wir auch nicht weiter über dies alles reden. Was
+ich aber hier habe, das ist wichtig, nämlich was Bernadette geschrieben hat, das sich auf Fragen bezieht, die immer wieder
+aus aller Welt an uns gerichtet werden, dies bezogen auf einfache Beiläufigkeiten, die wirklich nur solche sind und die in
+der ‹Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens› nur erwähnt und genannt werden, um einen
+Überblick zu verschaffen. Diese aber sind in keinerlei Weise relevant bezüglich dessen, dass sie erlernt werden sollen, denn
+für das Erlernen der ‹Lehre des Lebens› sind diese Beiläufigkeiten, die sich auf das Universum, die Dimensionen usw. beziehen, von keinerlei Belang. Die Wichtigkeit der Lehre liegt allein im wahrlichen Menschwerden, worum sich der Mensch
+in bewusst ehrlicher Weise bemühen soll, um effectiv wahrer Mensch zu werden, dieserart, dass endlich alle bösen Übel
+vom Menschen abgelegt und ehrliche Liebe, ehrlicher Frieden und ehrliche Freiheit in der Erdenmenschheit werden. Also
+hat sie folgendes geschrieben:
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+## Vorausgehender Kommentar:
+
+Fragen, die mit der Lehre der Schöpfungsenergie nur ganz am Rande etwas zu tun haben, sollen nicht weiterverfolgt
+werden, weil die Beschäftigung mit diesen Themen nichts zur Evolution zum wahren Menschsein beiträgt. Evolution
+bedeutet eigentlich eine langsame, bruchlos fortschreitende Entwicklung grosser oder grossräumiger Zusammenhänge resp. eine allmähliche Fortentwicklung zu höheren Formen des Lebendigen, in diesem Fall des Menschen. Mit
+anderen Worten handelt es sich bei der Evolution um einen Kraftzugewinn durch Lernen und Anwenden in allen
+Bereichen, in denen sich die Menschen betätigen, wobei das Gewicht auf ‹betätigen› liegt und nicht auf theoretischem
+Wissen, das nicht angewendet werden kann und deshalb auch nicht evolutiv ist, sondern nur einen Verständnisüberbau schafft, den die Menschen benötigen, um sich von ihrer Welt, ihrem Leben und dessen Sinn eine Vorstellung machen zu können. Folglich sind theoretische Themen in keiner Weise direkt evolutionsfördernd, sondern sie lenken im
+Gegenteil von der Evolution ab, weil sie viele Menschen dazu verführen, sich mit einem Thema zu befassen, das sie in
+ihrem persönlichen Leben nicht weiterbringt. Als Beispiel soll die sogenannte ‹Wiedergeburt› dienen, die gar nicht
+existiert und auch nicht existieren kann, weil es sich bei der Schöpfungsenergieform um einen reinen Partikel der
+eigentlichen Schöpfungsenergie handelt, der nicht ‹Fleisch werden› kann, also nicht wiedergeboren wird, sondern
+nur einen neu gezeugten Embryo am 21. Tag durch seinen Energieimpuls zum eigenständigen Leben erweckt und
+diesen Embryo während seiner gesamten Entwicklung und Lebensdauer bis zum Verfall des materiellen Körpers mit
+schöpferischer Lebensenergie versorgt.
+Die evolutive Aufgabe des Menschen ist es, als quasi materialisierte Schöpfungsenergieform, sich derart positiv aufzubauen, dass die Kraft des Lebensimpulses sich immer besser und stärker aufbauen und durchsetzen kann, und das
+ist nur möglich durch selbständiges bewusstes Denken und Handeln, durch das gelernt wird, was Leben heisst und
+wie es gelebt werden soll, damit die Kraft der Schöpfungsenergieform sich im täglichen Leben manifestieren und
+wachsen kann. Dazu ist aber keine Theorie erforderlich, selbst wenn sie noch so interessant und verlockend erscheinen mag, sondern die praktische Umsetzung dessen, was einen wirklichen Menschen ausmacht, wie Verständnis, Toleranz, Neutralität, Arbeits- und Einsatzfreude, Grosszügigkeit, Hilfsbereitschaft, Zusammenarbeit, Einfühlungsvermögen, Nachsicht, Liebe, Freude, Loyalität, Integrität usw. usf. Das und viele andere sind die praktischen Themen der
+Schöpfungsenergielehre, mit denen die Menschen sich befassen und daran wachsen sollen. Aus diesem Grund wurden
+auf Anraten von Billy alle Fragen aus dem Gespräch entfernt, die nicht direkt zur Schöpfungsenergielehre gehören.
+
+Bernadette Brand, SSSC, 31. August 2024
+
+**Quetzal** Das ist ausnehmend gut und zudem wichtig, denn bei der Lehre geht es wirklich nicht darum, sich mit den nur
+
+kurz aufgeführten Beifügungen zu befassen, denn die Lehre, die in der Urzeit vor etwa 9 Milliarden Jahren von Nokodemion
+erschaffen worden war, um den Menschen das wahre Menschsein zu lehren, damit sie zu Wesen wahrer Liebe, des Friedens
+und der Freiheit werden, gilt bezüglich ihrer Richtigkeit und Wichtigkeit allüberall in allen Universen.
+
+**Billy** Besser könnten du und ich das Ganze wohl nicht erklären.
+
+**Quetzal** Das Erklärte kann und will jedoch nur von Menschen verstanden und akzeptiert werden, welche bewusst ihr
+
+Intelligentum soweit entwickelt haben, dass sie weder der Soziopathie verfallen noch sonstwie besserwisserisch und überheblich sind, wie sie sich zudem wirklich um Bescheidenheit und Lernfähigkeit bemühen.
+
+**Billy** Wie recht du hast, doch die Stänkerer und Besserwisser werden die Wahrheit nicht und in keiner Weise akzep
+tieren, denn deren Dummheit lässt die Wahrheit nicht zu. Sieh aber diesen Artikel hier, er wurde mir gestern per Mail mit
+der Bitte zugesandt, dass ich ihn in einem Zeitzeichen veröffentlichen soll. Den gleichen Artikel aber habe ich auch von
+Achim erhalten, und zwar ebenfalls für das Zeitzeichen. Dazu denke ich, dass ich diesen auch dir vorlegen soll.
+
+**Quetzal** Wenn du denkst, dann will ich ihn lesen …
+
+## Eine Stimme aus der Ukraine – eine Mutter blickt auf ihre Heimat
+
+Peter Hänseler, Fr. 23. Aug 2024
+
+### Wir haben eine Ukrainerin gebeten, ihre Sicht als Mutter und Bürgerin dieses Nachbarn Russlands aus menschlicher Warte zu beschreiben. Ein packendes und berührendes Essay, das die Folgen der Geopolitik aus persönlicher Sicht betrachtet.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Einleitende Worte von Peter Hänseler**
+
+In unserem Freundeskreis gibt es viele Ukrainerinnen und Ukrainer. An den meisten gemeinsamen Nachtessen in
+Moskau mit Freunden und Bekannten sind etwa die Ehefrau oder der Ehemann aus der Ukraine. In Russland leben
+Millionen – man spricht von bis zu 12 Millionen – Ukrainer und Ukrainerinnen. Seit 2022 sind Millionen dazugekommen. Sie leben friedlich beim grossen Nachbarn. Sie werden in Russland als Brüder und Schwestern und nicht als
+Ausländer wahrgenommen. Sie leben ihre Kultur mit allem, was dazugehört. Die Autorin des folgenden Essays ist eine
+enge Gesprächspartnerin und Freundin. Sie lebt, aus Gründen, die das Essay offenbart, nicht mehr in der Ukraine. Ihr
+Beruf hat nichts mit Journalismus oder Publizistik zu tun, sie ist gebildet und Mutter von Söhnen, die noch immer in
+der Ukraine leben. Somit ist es notwendig, ihre Identität zu schützen. Ihre Ausführungen lesen Sie in nicht redigierter
+Form. Ein Bericht, der in seiner Echtheit und Offenheit berührt und betroffen macht. Ein Zeitzeugnis, dem in den
+Leitmedien kein Platz eingeräumt würde. Der Text wurde auf Russisch verfasst und von uns übersetzt.
+
+Bild: Warstein Total Lokal
+
+### Zeilen einer ukrainischen Mutter
+
+Ich bin in der Ukraine geboren und aufgewachsen, in der sehr schönen und jahrhundertealten Stadt Kiew. Meine erwachsenen Söhne sind ebenfalls in Kiew geboren, aufgewachsen und befinden sich auch jetzt noch in der Ukraine. Sie
+können die Ukraine seit mehr als zwei Jahren nicht mehr verlassen. Peter Hänseler lud mich ein, meine Gedanken
+über all das zu teilen, was ich als Mutter empfinde, deren Kinder seit Februar 2022 von ihrem eigenen Staat gefangen
+gehalten werden, ohne die Möglichkeit und sogar ohne das Recht auf ein normales Leben und Freiheit. Ich habe dieses
+Angebot dankbar angenommen. Ich beginne diese Geschichte damit, dass wir 2019 mit grossen Erwartungen der
+Machtübernahme durch Selensky entgegengesehen haben. Meine Söhne haben für ihn gestimmt. Selensky sprach damals Russisch, sein Wahlprogramm war auf Frieden und ein Ende des Krieges im Donbass ausgerichtet. Nach und
+nach mussten wir erfahren, dass es sich dabei nur um ein Wahlversprechen handelte, um Präsident zu werden. Heute
+wissen wir, was für eine Täuschung das alles war, der Betrug an einem ganzen Land. Einen schlechteren Präsidenten
+für die Ukraine kann man sich nicht vorstellen. Als im Februar 2022 alles begann war ein weiteres grosses Problem,
+dass die überwältigende Mehrheit der Ukrainer glaubte, die Ukraine hätte sich nichts zuschulden kommen lassen,
+dass sie nur ihren Weg nach Europa und in die NATO suchte und daher jedes Recht hatte, ihre Konflikte, sogar im
+Donbass mit ihren eigenen Bürgern, mit Gewalt zu lösen. So hat uns die westliche Propaganda beeinflusst. Wie konnte
+es geschehen, eine so grosse Zahl von Ukrainern einer solchen Gehirnwäsche zu unterziehen, dass sogar der Grundinstinkt – die Selbsterhaltung des menschlichen Lebens – nicht mehr funktionierte? Und der Todeskult mit Johnsons
+Slogan «Kampf bis zum letzten Ukrainer!» kostete bis heute Hunderttausende von Menschenleben und machte eine
+ganze Generation von Ukrainern zu Krüppeln. Seit dem 2. Weltkrieg ist es das erste Mal in der Welt, dass ein Land von
+solchem Ausmass auf der Ebene der Gesetzgebung und unter dem Deckmantel der Verteidigung der Demokratie in
+ein riesiges Gefängnis verwandelt wurde. Wie wurde es möglich, dass die Ukrainer in dieser Hölle gelandet sind?
+Wann hat diese geistige Verseuchung begonnen? Der erste Schuss wurde sehr lange vor den heutigen Ereignissen
+abgefeuert. Wie viele Ukrainer habe ich mich früher nicht besonders für Politik interessiert, ich hatte einfach keine
+Zeit und keine Energie, denn das Leben in der Ukraine war schon immer schwierig. Man musste hart arbeiten und
+konnte sich immer nur auf seine eigene Kraft verlassen, nicht auf die Hilfe des Staates. Heute bedaure ich, dass ich in
+der Vergangenheit den seltsamen Todesfällen verschiedener Politiker, berühmter Journalisten oder Künstler, die die
+Ukraine vor der gefährlichen Geopolitik warnten, wenig Aufmerksamkeit geschenkt hatte. Heute weiss ich, dass sie
+echte Patrioten waren, die ihr Land und seine Menschen wirklich liebten und ihr Land bewahren wollten. Heute gibt
+es keine solchen Persönlichkeiten mehr, sie wurden alle seit den 1990er Jahren systematisch umgebracht. Ich werde
+einige Beispiele nennen, die jeder in der Ukraine kennt, obwohl ich sicher bin, dass es noch viel mehr gab. 1991 kandidierte Wjatscheslaw Tschernowol für das Amt des Präsidenten der Ukraine. Er war der erste Politiker, der sich für
+eine echte föderale Struktur des ukrainischen Staates einsetzte. Im Jahr 1999 kam er bei einem Verkehrsunfall ums
+Leben. Die Ermittlungen zogen sich über viele Jahre hin, da vieles darauf hindeutete, dass der Unfall kein zufälliges
+Ereignis war.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Wjatscheslaw Maximowitsch Tschernowol
+
+Oles Buzina war ein berühmter Schriftsteller, Journalist und Politiker, der die russische Sprache und Kultur verteidigte. Er setzte sich für eine Annäherung zwischen der Ukraine und Russland ein und wurde 2015 am helllichten Tag
+im Eingang seines eigenen Hauses in Kiew erschossen. Die Ermittlungen zu dem Mord verliefen ergebnislos.
+
+Oles Alexejewitsch Buzina
+
+Ebenfalls 2015 kam der bekannte und beliebte Sänger und Musiker Kuzma Skryabin (Künstlername; richtiger Name
+Andrey Kuzmenko) unter sehr merkwürdigen Umständen bei einem Unfall ums Leben. Er kritisierte den Maidan und
+sprach sich gegen die Fortsetzung des Krieges im Donbass durch die Ukraine aus. «Der Maidan war geplant, um die
+Asche mit unseren Händen zu harken. Sie mussten Janukowitsch loswerden, der den Oligarchen im Weg stand. Nach
+dem Maidan wurde es noch schlimmer – der Krieg begann», sagte Andriy Kuzmenko.
+
+Andriy Viktorowitsch Kuzmenko
+
+Fast 30 Jahre lang hat die Ukraine methodisch bestimmte Narrative geformt, von denen man wusste, dass sie eine
+geopolitische Zeitbombe sind.
+30 Jahre! Denken Sie einmal über diesen Zeitraum nach. Eine ganze Generation ist unter diesen Parolen aufgewachsen. Kein Wunder, dass meine Söhne, als ich ihnen im Februar 2022 von meinen Überlegungen erzählte, einfach aufhörten, mit mir zu reden, weil sie dachten, ich würde den Aggressor unterstützen. Schliesslich ist es sehr bequem,
+dem Narrativ «Es war Putin, der die Invasion begonnen hat» zu folgen. Ich brauchte viel Zeit, viel Geduld und viele
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Gespräche, bis meine Söhne selbst begannen, das ganze Bild zu sehen. In solchen Momenten habe ich es wirklich
+bedauert, dass wir vorher nicht viel über Politik im Allgemeinen gesprochen haben.
+Jetzt gibt es in der Ukraine keine Führungspersönlichkeit mehr, die das Land aus der Katastrophe und dem Zerfall
+führen könnte. Kann das Volk ohne einen Führer etwas tun? Dies ist eine sehr, sehr schwierige Aufgabe. Doch die
+Menschen beginnen sich zu wehren. Sie zünden jeden Tag Fahrzeuge der Wehrämter (TZK) an, welche junge Ukrainer
+für die Front jagen und versuchen sogar, Grenzposten zu durchbrechen. Ganze Dörfer schliessen sich zusammen, um
+einen Sohn, Ehemann, Bruder, Vater physisch der Polizei und dem Wehramt zu entreissen.
+Die Polizei und die Wehrämter greifen sich die Männer direkt auf der Strasse, sperren Bankkonten, schneiden ihnen
+den Zugang zu medizinischer Versorgung ab und nehmen ihnen das Recht auf Arbeit und Beschäftigung. Diese Gewalt
+zerstört die gesamte moralische Verfassung der Bevölkerung.
+Heute – Ende August 2024 – verstehen viele Ukrainer, was vor sich geht. Aber sie sind nicht in der Lage, die Situation
+zu ändern. Es ist für die Menschen im Westen unmöglich zu verstehen, unter welchem psychischen und physischen
+Druck die Ukrainer stehen, wie die Politik des ‹grossen westlichen Freundes› das grösste Land in der Mitte Europas
+in ein regelrechtes Konzentrationslager verwandelt hat, in dem Männer töten müssen oder selbst getötet werden.
+Und wenn jemand auch nur eine Diskussion in Richtung Diplomatie, Verhandlung, Kompromiss anstösst, werden
+diese Menschen, selbst ältere Menschen, zum Sicherheitsdienst SBU gerufen, eingeschüchtert, inhaftiert. Die Mutigeren werden vielleicht geschlagen, verstümmelt, gefoltert, vergewaltigt und dann vor laufender Kamera gezwungen,
+ihre Loyalität zum Regime von Selensky und den bewaffneten Kräften der Ukraine zu bekennen. Was hat das mit
+Demokratie zu tun? Das ist Faschismus im wahrsten Sinne des Wortes.
+Mit den Ereignissen bei Kursk ist es klar, dass es keine Verhandlungen geben wird. Das ist das Ende. Es ist an der Zeit,
+dass alle begreifen, dass sich hier eine grosse Tragödie abspielt. Nicht nur für die Ukraine und Russland, sondern auch
+für Europa und die ganze Welt. Stellen Sie sich metaphorisch gesprochen eine Familie vor, in der ein Bruder verrückt
+geworden ist und nun der andere Bruder ihn töten muss, um den Rest der Familie zu retten.
+In Anbetracht der Fakten sollte jedem klar sein, dass die heutige Ukraine wie ein Krebsgeschwür Europa und die Welt
+in die Katastrophe treibt. Aber die westlichen und vor allem die britischen Machthaber kümmert das nicht im Geringsten. Sie haben die Ukraine viele Jahre lang unter ihren Händen sehr erfolgreich zu dem gemacht, was sie heute
+ist.
+Seit 2019, mit dem Machtantritt von Selensky, ist meine Familie einen sehr schwierigen Weg gegangen. Alles hat sich
+verändert. Das normale Leben ist zerstört worden. Die einzige Hoffnung, die uns bleibt, ist, dass wir uns eines Tages
+alle unter einem friedlichen Himmel wiedersehen werden.
+
+Quelle: https://voicefromrussia.ch/eine-stimme-aus-der-ukraine-eine-mutter-blickt-auf-ihre-heimat
+
+**Quetzal** Das ist klar und deutlich. Dazu will ich aber erwähnen, dass Bermunda und Enjana diesen Menschen Selensky
+
+in seiner Gesinnung ergründet und erkannt haben, dass diese alles andere als das ist, was er bei der Wahl zur Präsidentschaft durch Lügen und falsche Behauptungen erwirkt hat, nämlich dass er als Präsident erkoren wurde. Seine Gesinnung,
+so ergründeten Bermunda und Enjana, beruht grundlegend auf Selbstherrlichkeit, Machtgebaren, Rechthaberei und Kriegsfanatismus, folgedem er auch von einem Kriegswahn befallen ist. Sei…
+
+**Billy** … das ist ja so klar wie Gülle, denn fast alle, die ein öffentliches Amt anstreben, lügen bei der Wahl wie gedruckt
+
+und versprechen den alle Lügen glaubenden dummen Wählerschaften das Blaue vom Himmel herunter. So hat es damals
+auch die deutsche Kanzlerin Merkel gehalten, die in ihrer Dummheit und Dämlichkeit gar das Heil versprochen hat, als sie
+ans Ruder kam. Als sie dann ihre Willkommenskultur ausrief, starteten weltweit unzählige Landesflüchtlinge und verliessen
+und verlassen ihre Heimat. Das Gros dieser Flüchtlinge liess sich durch Schlepper in aller Herren Länder schleppen, dort
+seither überquellen und Morde und immer wieder Morde und viele schwere kriminelle Handlungen begehen. Dies, während sehr viele auf dem Weg nach Europa zu Tode kamen, weil sie bei der Überfahrt ertranken. Und das hält noch heute
+an und belastet die Länder mit Asylanten, wobei verrückte Europäer, die an Merkels Willkommenskultur und falscher
+Menschlichkeit festhalten, die Asylanten schützen, für die finanziell die Staaten Europas aufkommen und diese mit Geld,
+Lebensmitteln und Unterkünften versorgen, ohne dass diese ‹Flüchtlinge› arbeiten müssen, dies jedoch die steuerzahlende
+Bevölkerung tun und so die ‹Flüchtlinge› erhalten muss. Ausserdem hat es durch die Willkommenskultur dieser irren Bundeskanzlerin dazu geführt, dass religionsbesessene IS-Fanatiker aus Arabien, der Türkei und anderen Ländern nach Europa
+‹gewandert› sind und hier allerorts ihr Unwesen treiben und Tote forderten, was sich ständig steigert. Auch Verbrecherclans sind aus den genannten Ländern nach Europa in alle Länder gekommen – gar auch nach Amerika. Gar ganze
+Verbrecherclans und Verbrecherfamilien ‹wandern› nach Europa und üben hier ihre kriminellen ‹Geschäfte› aus, ohne dass
+in diversen Fällen dagegen etwas unternommen werden kann.
+Nun, bezüglich der Regierenden, da sind ja wahrheitlich nur wenige ehrlich, deren Gesinnung wirklich das ist was sie sagen,
+und sie auch wirklich in ihrem Amt dann das anstreben, was sie bei der Wahl versprechen. Das ist auch in der Schweiz so,
+und zwar auch gegenwärtig, wobei jene jedoch, die wirklich zum Wohl des Volkes als Rechtschaffene im Bundeshaus arbeiten, nicht erfolgreich durchkommen können, und zwar weil Unrechtschaffene und Selbstherrliche resp. Soziopathen im
+Bundesrat sind. Dies, wie gleicherart auch ein Teil solcher weiblicher und männlicher Elemente Unrechtschaffener im
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Nationalrat und Ständerat herumfungiert, der leider in recht negativer Weise bei allem mitzureden und zu entscheiden hat,
+und dies eben vielfach wider das Wohl sowie die wirkliche Freiheit der Bürgerschaft. Der volle Teil dieser soziopathisch
+veranlagten sowie recht übel unrechtschaffenen Regierenden – die in der Regel sich selbst nicht kennen und daher nicht
+wissen, dass sie Soziopaten und Unrechtschaffe sind, die verrückte Herrscherallüren haben sowie auch an starker Überheblichkeit kranken – ist durch Lügerei, Betrügereibehauptungen und Schauspielerei ans ‹Ruder› der Regierung gekommen.
+Diese sind es, die verhindern, dass folglich von den Rechtschaffenen der Regierenden – die wahrheitlich nur Scheinregierende sind – das nicht durchdringen und nicht beschlossen werden kann, was sie als volksnahe und rechtschaffene Regierende zum Volkswohl durchsetzen wollen. Beharren sie jedoch darauf, dass wirklich das Gute und Richtige zum Volkswohl
+durchgesetzt, beschlossen und zur Anwendung gebracht werden soll, dann werden sie aus ihrem Amt gestossen und regelrecht rausgeschmissen, wie das mit Bundesrat Blocher getan wurde. Folglich wurde er als Bundesrat gefemt und musste
+gehen. Dass …
+
+**Quetzal** … was bedeutet das? Das Wort ‹gefemt› kenne ich nicht!
+
+**Billy** Der Begriff kommt von ‹Feme›, der eigentlich ‹Strafe› bedeutet, folgedem ‹gefemt› für ‹bestrafen› steht. Dieser
+
+Begriff wurde schon im 14. Jahrhundert, also im Mittelalter, verwendet, als sogenannte Femegerichte, also Strafgerichte
+veranstaltet wurden, wobei später auch der Begriff Fememord geprägt wurde, weil innerhalb rechter Gruppierungen –
+besonders in den 1920er Jahren – angebliche Verräter durch Femegerichte dann ermordet wurden. Solcherart Femegerichte waren in der Regel geheim und nicht legalisiert und ausserdem nur dazu bestimmt, um politische Anschläge und
+Morde usw. zu rechtfertigen. Insbesondere waren solche Femegerichte bei NAZI-Organisationen und NAZI-Gruppen gang
+und gäbe, was aber der Bevölkerung und auch den Medien verschwiegen wurde, und dies noch heute verschwiegen wird.
+Das Ganze der geheimen Femegerichte, die auch geheimerweise unter … durchgeführt wurden, was aber strengstens geheimgehalten wurde und nichts darüber schriftlich festgehalten werden durfte – wobei letztendlich auch alle 7 Beteiligten
+liquidiert wurden, als das … nahte –, ist eine Effektivität, die niemand wusste, ausser den 2 Personen, die im Auftrag von …
+als Liquideure wirkten und auch … vortäuschten. Dies alles wurde aber rigide gehalten, also starr, streng unflexibel und
+geheim, denn es wurde ausserhalb aller Regeln, Strukturen und Vorschriften auf eine strikte oder unnachgiebige Weise
+durchgeführt, ohne dass jemals auch nur ein Jota eines Wortes dieser Geheimsache bekannt wurde. Die 2 Personen, die
+Liquideure, die um das Ganze Wissende und treu … ergeben waren, schwiegen und nahmen das Geheimnis mit ins Grab.
+Sfath hat nur geraten, jedoch nicht verboten, darüber mindestens 50 Jahre nicht zu reden, woran ich mich gehalten habe;
+da ich aber seither in ein Alter gekommen bin, da ich denke, dass das doch noch gesagt werden soll, da sage ich das, worüber
+ich nicht 50, sondern rund 80 Jahre geschwiegen habe, was ich mit Sfath zusammen auch erlebte und mit eigenen Augen
+sah.
+Nun, was ich noch sagen und erklären will ist, dass sehr selten diese Femegerichte auch … Nun aber noch das: Das Femegericht wurde selten auch ‹Landfriedensgericht› genannt. Besonders in Mitteldeutschland und Ostdeutschland setzten die
+Regierungen solche Femegerichte ein, die als spezielle Sondergerichte zum Schutz des Friedens für das Land deklariert
+wurden. Das aber wurde sofort ungültig erklärt, als Adolf Hitler 1933 als Reichkanzler erschien, folglich fortan nur noch das
+sogenannte ‹Führungsprinzip› Gültigkeit hatte.
+
+**Quetzal** Danke für die Erklärung, doch du solltest den Namen der Person nicht offen nennen, die du genannt hast, dies,
+
+wenn du unser Gespräch abrufst und niederschreibst, denn es …
+
+**Billy** Gut, dann werde ich eben Pünktchen setzen. Nun sollte ich aber noch das Restliche zu dem sagen, wovon ich
+
+schon einiges gesagt habe. Also – wo bin ich denn stecken geblieben – – – ja, natürlich, da war ich doch dabei zu sagen,
+wenn ich mich richtig erinnere, dass sich alle Rechtschaffenen in den Regierungen in der Regel gegen die Unrechtschaffenen
+bezüglich dem nicht durchsetzen können, was sie eigentlich wollen, folglich sie letztendlich für das Volk und das Land nicht
+das Gute und Fortschrittliche erreichen können, was sie grundsätzlich wollen. Doch jener Teil, der dumm-dämlich und gläubig aus dem Volk heraussticht und der alle jene Lügner, Behaupter, Betrüger sowie jene, welche das Blaue vom Himmel
+herunterzuholen versprechen, zu Regierenden und Beamten wählt, der hat keine Fähigkeit zur Menschenkenntnis. Dies
+nebst dem, dass dieser Teil der Bevölkerungen offensichtlich entweder zu den allgemeinen Gläubigen und Scheindenkenden sowie Schwachgebildeten gehört, die blindgläubig den Bock zu einem Gärtner machen, oder der zu jenen Profiteuren
+gehört, die Lügner und Betrüger in ein Staatsamt bugsieren können, um dadurch ihren eigenen Willen durchsetzen oder
+viel Geld gewinnen zu können. Ausserdem werden von den Schwachgebildeten des Volkes – oder von den Schlechten,
+Dummen und Ungebildeten der Regierenden selbst – Elemente in die Regierung gewählt, die effectiv nichts taugen sowie
+eine sehr erbärmlich schwache Allgemeinbildung aufweisen. Dies, wie dies z.B. offensichtlich in der Schweiz geschieht, da
+Elemente in den Bundesrat gewählt werden, die bezüglich der Allgemeinbildung derart lausig-schwach sind, dass sie keinerlei wichtige Kenntnis, noch ein wertiges Wissen aufweisen. Dies speziell auf eine scheindenkende Amtsperson bezogen,
+die dumm-dämlich und blöd behauptet, dass die Biodiversität nicht erforderlich und es wichtiger sei, Autostrassen usw. zu
+bauen. Dass jedoch der Planet selbst sowie die gesamte Natur mit ihrer Fauna und Flora allein gewährleisten können, dass
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+überhaupt Leben auf unserem Planeten möglich ist, das weiss offenbar die allgemeinbildungsarme Scheindenkerperson
+nicht. Und Wissen darüber zu besitzen, dass die Biodiversität und die gesamte Fauna und Flora für sämtliche Lebensformen
+lebensnotwendig ist und so also auch für den Menschen, das ist klar und tatsächlich lebenswichtig und auch für eine Bundesratsperson wichtig zu wissen. Und weiss diese dies in ihrem Mangel an Allgemeinbildung nicht, dann gehört diese auch
+nicht in den Bundesrat. Die im Kopf rotierende und krankhaft idiotische Furzidee einer Bundesratperson, dass mehr Autostrassen und anderer Unsinn gebaut werden müssen, weil dies die Zukunft und das Wachstum der Menschheit erfordere
+usw., entspricht einem sträflichen verantwortungslosen Schwachsinn sondergleichen. Dies besonders darum, weil die
+Menschheit der Erde im Mass einer bereits alleszerstörenden Überbevölkerung lebt, durch die alle Lebensgrundlagen des
+Planeten, der Natur und dessen Fauna und Flora schon weitestgehend derart vernichtet sind, dass alles und jedes des
+Weiterbestehens der Menschheit gefährdet ist.
+Durch einen mehrjährigen Geburtenstopp in Etappen muss die Menschheit gewaltig reduziert werden, sonst geschieht es,
+dass letztlich weltumfassend alles Leben kollabiert und – deutsch gesagt – elend verreckt. Dieses Drohende geht offenbar
+als grundlegende wichtigste Erkenntnis und als lebensnotwendiges Wissen nicht in den verborten Schädel und das verbrannte Hirn des scheindenkenden Bundeshausknallfrosches ein, der selbstherrlich sowie infolge offensichtlich fehlendem
+Intelligentum die Biodiversität abschmettern und die Wölfe usw. abknallen lassen will. Es ist effectiv traurig und verantwortungslos, dass offenbar ein Mensch in Bern ein Bundesamt ausüben darf, dem das Intelligentum und das Wissen nicht
+dazu ausreicht, um die Wahrheit zu sehen, diese zu erkennen und der dazu gegen alle Vernunft und Verantwortung mit
+blöden Lügen, Sprüchen und Scheinargumenten gegen die Biodiversität zu wettern wagt. Dies, wie auch die Wölfe, Biber
+und offenbar dann letztlich auch noch Seeotter usw. abgeknallt werden sollen. Dies, weil angeblich diese für die Menschen
+gefährlich und für die Landwirtschaft schädlich sein sollen. Und dies, wie auch gewisse dümmlich-dämliche und ebenfalls
+ungebildete Befürworter und Landwirte sowie der ‹Schweizer Bauernverband› zu blöde und derart krankhaft zu dumm
+sind, um zu verstehen, dass die Biodiversität das Nonplusultra für sämtliche Existenz alles Lebens ist, folglich ohne diese
+nichts existieren und leben kann und erst recht zukünftig nicht mehr leben könnte, wenn nicht endlich doch noch Vernunft,
+Verstand und blanke Verantwortung greifen. Dies gilt auch für alle jenes Teils der Bevölkerung, der krankhaft dumm, dämlich und intelligentumlos ist, wie auch Besserwisser und sonstige Idioten, wozu auch jener Teil sogenannter Intellektueller
+gehört, der bestreitet, dass der Mensch infolge seiner Überbevölkerung auf der Erde überquillt und mit seinen verantwortungslosen Machenschaften aller Art den Planeten, die Natur sowie deren Fauna und Flora nicht nur zerstört, sondern
+vernichtet und grosse Teile gar ausrottet, und zwar gegen 60’000 Gattungen und Arten der Fauna und Flora pro Jahr, wobei
+die irdischen Wissenschaftler falsche Angaben von nur etwa 20’000 machen.
+Nun, mit dem Gesagten ist noch nicht genug, denn da sind noch jene Knallfrösche zu nennen, die besserwissend und gescheiter als die Natur und überhaupt die gesamte Schöpfung sein wollen, die krankhaft dumm-dämlich infolge des Verschmähens der Wahrheit und des religiösen sowie irren Glaubenswahns ‹Gott› genannt und angebetet wird. Diese irrig
+denkenden sowie in allen Formen daherphantasierenden Erdlinge erlauben sich, besserwissend und gewissenlos sich über
+alle Naturgesetze hinwegzusetzen und unbedacht sowie blödsinnig alle Neophyten – also fremdländische Pflanzen – durch
+eine Freisetzungsverordnung zu verbieten, die aber hier in Europa schon seit Jahrhunderten heimisch geworden sind, wie
+diese und andere in Zukunft infolge des Klimawandels sowieso in Europa heimisch werden. Auch diesen Knallfröschen fehlen Vernunft, Verstand und Intelligentum in einem Mass, das nicht zu überblicken ist. Bezüglich der Neophyten, von denen
+die Rede ist und von denen ich spreche, sind diese nicht von einer Gattung oder Art, die zu den sehr, sehr wenigen fremdländischen invasiven Pflanzen gehören, also zu den wuchernden Gewächsen, die selbstverständlich vermieden werden sollen. Doch durch die gesamte unverschämte Lügerei der Neophytenfeindlichen grassiert eine Betrugs-Kampagne rundum,
+die dazu führt, dass auch sehr nützliche Neophyten verteufelt und verboten sowie auch nicht mehr gepflanzt werden dürfen.
+Mit schädlichen Neophyten sind also nur die gemeint, die invasiv sind, nicht jedoch jene, welche von krankhaft Irren idiotisch behauptend dies aber doch sein sollen, doch wahrheitlich dies nicht sind, sondern gut und problemlos gedeihen, und
+zwar zukünftig mehr und mehr, und zwar selbständig durch die Natur herkommend, wie z.B. durch Samenübertragung
+durch den Wind. Doch wie von Blödheit geschlagen und wie ungebildet, unwissend, dumm und dämlich gewisse Menschen
+sind, die das nicht begreifen – wie andere Wahrheiten auch nicht – und nicht verstehen, das geht hier aus diesem Artikel
+des INFOsperber hervor, der zwar nichts mit Neophyten zu tun hat, aber trotzdem auf die Idiotie der Besserwisser und
+Stänkerer hinweist. Grundsätzlich ist der Artikel jedoch bezogen und gerichtet auf die Ablehnung der lebenswichtigen und
+lebensnotwendigen Biodiversität, die mit unglaublich primitiver Lügerei und Angstmacherei zur Sau gemacht werden soll.
+Dazu werden auch der Bauernverband und die Landwirte mit unverschämten Lügen auf die Ablehnung der vorgesehenen
+bundesrätlichen Wahl bezüglich der Biodiversität ‹heiss› gemacht, damit eine vielstimmige Ablehnung erfolgen soll, die
+vorgesehen ist und anfällt, wobei Lug und Trug in Massen von den Ablehnenden angebracht sein werden, denn wie üblich
+soll die ganze abstimmende Bevölkerung nach Strich und Faden mit Lügen und Betrug über die Ohren gehauen und hinters
+Licht geführt werden:
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+## «30% Fläche weg»: Für so dumm hält uns der Bauernverband
+
+Donnerstag, 29.08.2024, Samstag, 31.08.202430
+
+### 30 Prozent Landwirtschaftsland weg bei einem Ja zur Biodiversitätsinitiative? 
+ Diese Behauptung entbehrt jeglicher Grundlage. 
+
+**© bm Beatrix Mühlethaler / 31.08.2024**
+
+### Abstimmungsplakate suggerieren, dass die Biodiversitätsinitiative
+ bewirtschaftete Natur zu Brachland macht. Das ist reine Polemik.
+
+Der Bauernverband engagiert sich wie bei der Trinkwasserinitiative vor drei Jahren mit einer grossen Plakataktion.
+Bauern und Bäuerinnen lassen sich von ihrem Verband vor den Karren spannen: Landauf landab zieren plakative
+Aussagen das Bauernland. Praktisch dabei: Er muss keine teuren Plakatwände an bewilligten Standorten mieten, die
+Bauernhöfe besorgen den Aushang gratis in der freien Landschaft.
+Die ‹Tschüss›-Kampagne des Bauernverbands suggeriert nicht nur den Verlust der Lebensmittelproduktion, sondern
+auch der Nutzung weiterer Güter, zum Beispiel des Waldes. Unredlich, was der Bauernverband in den Text der Biodiversitäts-Initiative hineinprojiziert: Diese nennt nämlich keine quantitativen Ziele und auch keine Verbote!
+Die 30 Prozent pickte der Bauernverband aus der globalen Biodiversitätskonvention, der die Schweiz beigetreten ist.
+Diese fordert im Handlungsziel 2:
+«Sicherstellen, dass sich bis 2030 mindestens 30 Prozent der Flächen degradierter Land-, Binnengewässer- sowie
+Meeres- und Küstenökosysteme in einem Prozess der wirksamen Wiederherstellung befinden, um die biologische
+Vielfalt, die Ökosystemfunktionen und -leistungen, die ökologische Unversehrtheit und die Vernetzung zu verbessern.»
+Nutzen kann man diese Gebiete gemäss Konvention weiterhin, nämlich so, dass ihr ökologischer Wert erhalten bleibt.
+Das ist auch bei bestehenden Schutzgebieten in der Schweiz der Fall. Zum Beispiel dürfen geschützte Magerwiesen
+zwar nicht gedüngt, aber gemäht werden.
+Beispielhaft sind auch Regionen, in denen Bauern auf ihrem Land – vom Naturschutz beraten und entgolten – für eine
+wertvolle Kulturlandschaft sorgen. Ackerfrüchte und Obst produzieren sie auch, aber im Verbund mit vielfältigen
+Wiesen, Hecken und Kleinstrukturen.
+Der Bauernverband macht also aus Schützen und Nutzen einen Gegensatz, den es so nicht gibt. Mehr noch: Nimmt
+man seine Behauptung vom 30-prozentigen Landverlust zum Nennwert, heisst das: Die Bauern schaffen es nicht, Lebensmittel so zu produzieren, dass die biologische Vielfalt und die Ökosystemleistungen erhalten bleiben. Damit erweist er den Bauernbetrieben, die naturgemäss wirtschaften, einen Bärendienst. Würde die Initiative bei einem Ja
+sinngemäss in Gesetze und Verordnungen gegossen, würden wohl mehr Ökoleistungen von den Höfen gefordert, diese
+aber auch besser entgolten.
+
+Die Biodiversität ist das Wichtigste für den Menschen, wie für alle Lebensformen überhaupt, und die Biodiversität ist der
+effectivste Wert für alles Leben, das der Planet hat. Die Biodiversität umfasst die gesamte Natur mit allen ihren Ökosystemen aller Lebensräume, so die Wälder und gesamthaft alle Gewässer, das Grundwasser, die Rinnsale, die Bäche und Flüsse,
+gar die Wasserpfützen und natürlich alles Land, alle Auen, Fluren und Gebirge, Moore und Sümpfe, alle Gärten, Äcker und
+die Vielfältigkeit des Erdinnern sowie die genetische Vielfalt innerhalb aller Gattungen und der daraus hervorgegangenen
+Arten, so auch die aus diesen natürlich mutierten oder künstlich gekreuzten Unterarten, wie jedoch auch die beim Menschen entstandenen Rassen verschiedenster Farben und anatomischer Merkmale und Unterschiede usw.
+Die Biodiversität, und also die gesamte Vielfalt der Fauna und Flora, so also der Tierwelt und Getierwelt, alle anderen millionenfältigen sich selbstbewegenden Lebensformen, wie aber auch gesamthaft alle Pflanzenarten, und zwar von der winzigsten bis zum grössten Baumgewächs, sind lebenotwendig, dass alles existieren und leben kann – also auch der Mensch.
+Dies gesehen und verstanden bezüglich der genetischen Vielfalt aller verschiedenen Gattungen und aller Arten. Und die
+Biodiversität, das sei erklärt, umfasst sämtliche Lebensformen gemäss ihren Gattungen und daraus durch natürliche Kreuzungen oder durch Genmanipulation abgespaltene Arten. Es umfasst dabei die Biodiversität die gesamte Fauna und Flora
+– wozu eben auch der Mensch gehört –, wobei alle die Lebensformen sowohl auf der Erde, in der Erde, in den Gewässern,
+Höhlen usw., wie auch in der Atmosphäre leben, weil eben unterschiedliche Lebensräume gegeben sind. Auch Pilze und
+zahllose andere Gewächse gehören dazu, wie auch Bakterien und Viren, bis hinunter zu den Mikroben und noch winzigere
+einzellige Lebensformen, die aber der Wissenschaft noch heute nicht bekannt sind. Und dass dabei für all dieses Leben in
+allen Bereichen der Erde auch die Sonne, das Wetter, der Wind, Regen und Schnee, sowie der Sand der Wüsten eine sehr
+wichtige Rolle spielen, das wissen wohl viele Menschen, aber nicht, dass der Sand der Wüsten sehr wichtig und für das
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Leben auf der Erde von enormer Bedeutung ist. Z.B. trägt der Wind jährlich ca. 30 000 Tonnen Wüstensand von der Wüste
+Sahara in Nordafrika über den Atlantik nach Südamerika, wo er sich düngend im Regenwald resp. Regendschungel einlagert.
+Dass auch der Mond auf die Erde einwirkt, das ist wohl weitum den Menschen bekannt, nicht jedoch, dass dieser z.B. auch
+bezüglich des Erdinnern und des Vulkanismus eine sehr wichtige Funktion ausübt.
+
+**Quetzal** Den Erdenmenschen kann dies wohl verziehen werden, denn ihnen stand kein Lehrer wie Sfath bei und be
+lehrte sie bezüglich seines enormen Wissens.
+
+**Billy** Das stimmt wohl, doch meines Erachtens ist es keine Entschuldigung dafür, dass dem Gros der Erdlinge ein
+
+gutes und gesundes Allgemeinwissen fehlt und dieses immer mehr verkümmert, es dümmer und dämlicher wird, sich verschiedensten Drogen ergibt und eben einem allgemeinen Niedergang entgegengeht und effectiv verblödet. Und dass das
+nicht bemerkt wird und eines Tages in Zukunft durch die KI zur Katastrophe führt, wenn sich diese selbständig macht und
+gegen die Menschheit richtet, was jedoch nicht gesehen wird und nicht gesehen werden will.
+
+**Quetzal** Das steht auch in den Annalen von Sfath.
+
+**Billy** Muss es ja, denn er und ich …
+
+**Quetzal** … natürlich.
+
+**Billy** Eben. Jetzt finde ich aber, dass ich dir zeigen soll, wie ich jeweils die ‹Sonder-Zeitzeichen› anfertige, denn bisher
+
+habe ich dir das noch nicht vorgeführt.
+
+**Quetzal** Das stimmt, doch sagen will ich, dass das ‹Sonder-Zeitzeichen›, das du 3mal pro Monat aus Artikeln fertigst,
+
+weltweit verbreitet werden sollte, denn darin finden sich Aussagen und Berichte bezüglich der Weltgeschehen, die nur
+wenige oder keine Medien veröffentlichen. Dies ganz besondere jene Aussagen und Berichte nicht, die du via die Infomationen von INFOsperber bekommst. Diese aufklärenden Informationen, die du mit deinem ‹Sonder-Zeitzeichen› im Internet
+veröffentlichst, sind sehr aufschlussreich und erweitern jener Leserschaft das Wissen bezüglich der Weltgeschehen, die
+diese ‹Sonder-Zeitzeichen› lesen.
+Lieber Freund, was du an diesem Artikel von Achim und vom INFOsperber hast, das bestätigt das, was du oftmals und
+immer wieder sagst. Alles das scheint mir sehr aufschlussreich zu sein, auch zum Ganzen dessen, dass stetig immer nur
+böse und schlecht über Russland und Putin berichtet wird, nicht jedoch über die Ukraine und Selensky, der in amerikanischen Diensten steht und dem Kriegsverbrechen anzuschreiben sind, die er in seiner Kriegsversessenheit befiehlt. Dies zwar
+derart, wie er auf Amerikas Befehl und Hegemoniebestreben sowie dessen hinterhältige Anordnung hin Kampfeinheiten in
+russisches Gebiet eindringen und dort morden sowie zerstören lässt.
+Natürlich entschuldigt das in keinerlei Weise das Kriegsgebaren von Putin, denn auch auf seiner Seite der Kriegsführung ist
+alles anders als des Rechtens, doch ist dieses nicht bezüglich all dem, was Selensky und seine Armee sich durch Amerikas
+hinterhältiges Anordnen erlauben, jedoch alles von den Medien verschwiegen und nur Russland und Putin als Übel angeprangert wird. Und zu sprechen ist auch davon, dass die Führungen und Teile der Bevölkerungen fremder Staaten – hauptsächlich Amerika und Deutschland – Hilfe und vor allem Waffen an die Ukraine liefern, was noch schwerwiegende Folgen
+bringen wird.
+
+**Billy** Das weiss ich, und es wird wirklich unerfreulich sein, denn was Sfath und ich zusammen …
+
+**Quetzal** Das ist mir bekannt aus Sfaths Annalen.
+
+**Billy** Ja, das hat er sicher alles aufgeschrieben, auch …
+
+**Quetzal** Das ist der Fall. – Jetzt aber habe ich dir etwas Unerfreuliches zu sagen, nämlich soll ich dir vom Gremium
+
+auftragend mitteilen, dass ich dringenderweise bei unserem gegenwärtigen Gespräch all das wiederholend zur Sprache
+bringen soll, dass es Sfaths Annalen durchsieht und kontrolliert, was Sfath niedergeschrieben und dir am Sonntag, den 5.
+Mai 1946 in voraussagender Weise nahegebracht hat. Das Gremium erklärt, das dies dringend notwendig und abermals
+bekanntzugeben sei, weil das von euch Veröffentlichte weitgehend nicht alles dem entspreche, was in den Annalen aufgeführt ist. Im Auftrag des Gremiums habe ich dir mitzuteilen, dass Sfaths Annalen mit der Ausgabe des Gesprächsberichtes
+kontrolliert wurde, der Sfaths Gespräch vom 5. Mai 1946 nebst anderem enthält. Wie jetzt bei dieser Kontrolle festgestellt
+wurde, stimmt leider der Inhalt nicht mit den Aufzeichnungen der Annalen überein, denn es fehlen sehr wichtige Teile des
+Gesprächs, wie aber ungeheure Verfälschungen eingebracht wurden. Viele Aussagen der Annalen, die du veröffentlicht
+hast, wurden durch die dir bösartig schadenbringenden Energien entfernt wie auch verfälscht, was offenbar dieserart schon
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+viel früher gleicherart geschah, als du wahrgenommen hast. Nun ist es erforderlich, wie das Gremium anordnet, dass der
+vollständige Gesprächsbericht gemäss den effectiv von Sfath gefertigten Annalen nochmals wiederzugeben und zu veröffentlichen sei. Folglich ist dabei darauf zu achten, dass keinerlei fehlende Aussagen und Verfälschungen mehr gegeben sein
+werden und dass nun alles resp. das Ganze der Sfath-Annalen vollständig ist, folglich alles genau zu kontrollieren ist. Dies
+soll durch dich und Bernadette erfolgen; dann sollst du diese Voraussagen diesem Gesprächsbericht beifügen, den dir das
+Gremium direkt auf deinen Computer übertragen wird, denn es ist anzunehmen, dass dieser im Original bei dir nicht mehr
+vorhanden ist. Wie ich denke, wurden von euch die unbemerkten Entfernungen ganzer Textblöcke, wie auch die eingefügten Verfälschungen nicht bemerkt, weshalb ihr also abermals Sfaths Worte wiedergeben sollt, wie sie ursprünglich von ihm
+gesagt wurden, wobei ihr diesmal jedoch genau kontrollieren sollt, ob wieder etwas fehlt oder verfälscht ist.
+
+**Billy** Dann habe ich das Ganze also bereits als Kopie im Computer übertragen bekommen und kann es als solche
+
+diesem Gespräch zugeben?
+
+**Quetzal** Das ist so, und es ist wohl nur dieserweise zu fertigen, dass du den Bericht unserem Gespräch beifügst.
+
+**Billy** Warte einen Augenblick, denn ich sehe im Computer nach – – – – – – Ja, hier ist es tatsächlich – soll ich es
+
+einfach hier an dieser Stelle in unserem Gespräch beifügen?
+
+**Quetzal** Das hat wohl so zu sein, und ich denke, dass du es dann auch lesen und korrigieren willst, denn es handelt sich
+
+um eine Kopie deines Abrufwerkes, das noch nicht auf Schreibfehler hin korrigiert ist, wie ich aus den Anweisungen des
+Gremiums heraushörte und es selbst noch nicht gelesen habe. Aber es wird notwendig sein, dass du es durchsiehst, denn
+das Gremium erklärte, dass durch das Übermitteln wohl auch Verschiebungen der Worte auftreten, wie auch des Seitenformats, weil die irdische Technik noch sehr für Fehlfunktionen anfällig ist. Also hast du es später doch durchzulesen und
+das Fehlerhafte richtigzustellen.
+
+**Billy** Das stimmt, denn das Ganze ist ja recht lang und ausführlich. Aber ich will es dann später durchlesen und sehen,
+
+was am Format und bezüglich der Worte richtigzustellen ist, wie es dann Bernadette endkorrigiert und wir es erst dann
+veröffentlichen werden. Wir werden natürlich streng achtsam sein und darauf sehen, dass diesmal wirklich alles von Sfaths
+Aussagen vorhanden ist und keine Verfälschungen gegeben sind.
+
+**Quetzal** Das lässt sich wohl nicht ändern, wie ich schätze.
+
+**Billy** Dann sei es eben. Also werde ich es hier einfügen, wobei ich jedoch finde, dass das vorgehende der 8 Sätze des
+
+Gespräches nicht erforderlich ist, um es auch mitzukopieren, oder?
+
+**Quetzal** Das kannst du wohl weglassen, folglich du nur die direkten Aussagen von Sfath zu kopieren hast, wobei aber
+
+alles des Gespräches bezüglich der Schreibfehler noch zu korrigieren ist, denn es handelt sich um das, was du abgerufen
+und niedergeschrieben hast und aus dem bereits alles verändert und entfernt wurde, als du dieses zur Korrektur weitergegeben hast.
+
+**Billy** Denke ich auch, dann füge ich also beim Abrufen unseres Gesprächs Sfaths Voraussagen hier ein:
+
+(Anmerkung: Die nachfolgende Voraussage von Sfath, wurde in Originalabschrift seinen Annalen entnommen, weshalb
+auch seine Schreibweise unverändert übernommen wurde und auch so beibehalten werden soll, auch wenn diese mit der
+heutigen Schreibweise und Grammatik nicht übereinstimmt.)
+
+## Sfath
+
+5. Mai 1946
+
+9. Wie schon die letzten Jahre, habe ich dich auch heute mit vielen Fakten vertraut zu machen, die du sehr wohl
+
+verstehen kannst und auch immer bewusst zu verkraften und zu verarbeiten haben wirst, was dir aber nur dadurch
+möglich sein wird, weil du durch mein Eingreifen in deiner Bewusstseinsentwicklung in Bezug auf deine Vernunft
+und deinen Verstand schon um das Vielfache weiterentwickelt bist, als dies normalerweise bei einem Erdenjungen
+in deinem Alter und gar bei einem vierfach älteren Erdenmenschen der Fall sein kann.
+10. Gut, auch bezüglich der ersten und all den anderen mit dir geführten Gespräche hinsichtlich der Erklärung
+
+deiner Aufgaben und Mission wird noch etwas zu sagen sein, nämlich dass ich mehrmals und zu verschiedenen
+Zeiten die gleichen Fakten zur Sprache bringen werde, was jedoch wichtig darin beruht, damit du dir durch die
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Wiederholungsmethode immer wieder die Einzelheiten all dessen Werte interessenvoll in Erinnerung zu rufen vermagst, was aus meinen Erklärungen und all dem, was du gelernt hast und weiterhin lernst, für dich und deine Aufgabe und Mission von wichtiger Bedeutung sein wird.
+11. Dazu gehören auch Kenntnisse, die dich zwar erst in späteren Jahrzehnten interessieren werden, besonders
+
+dann, wenn du selbständig erstlich in die Welt hinausziehst, um erst viele Jahre später von deinen Reisen, Arbeiten
+und Abenteuern in fremden Staaten wieder endgültig in die Schweiz zurückzukehren. Darüber will ich dir jetzt
+jedoch nur einiges in Bezug auf dein erstes Weggehen sagen, doch Weiteres zu späterer Zeit. Erstlich wirst du also
+deine Heimat verlassen und in Istanbul am Bosporus in der Türkei für kurze Zeit leben und im Bazar als Fremdenführer tätig werden. Dann gehst du für längere Zeit nach Jordanien, wobei dieser Staat erst gegründet werden wird,
+und zwar noch diesen Monat. Dort wirst du in der Hauptstadt bei einem Prinzen und dessen Familie zu Gast sein
+und auch im Königspalast beim König als Mittelsmann fungierend eingehen und ausgehen. Du wirst zudem gleichzeitig in Amman in einem Marmorwerk das Handwerk der Marmorbearbeitung erlernen, und dann danach weiter
+in der Stadt Jerusalem einiges der Kunst des Schmuckherstellens. Danach wirst du dann kurzfristig in Betlehem
+wohnen, wo du dich als Fremdenführer betätigen kannst, wonach du weiter nach Israel gehen wirst, was jedoch erst
+in kommender Zeit, nämlich in zwei Jahren gegründet werden wird. Dieses wird dann aber im zweiten Jahrzehnt
+des neuen Jahrtausends einen mordbelasteten Krieg gegen Palästina führen, der gesinnungsmässig sowie schuldenschwer und verbrecherisch als Genozidwunsch von einem irren Führenden gesteuert, und wodurch wieder eine üble
+Judenfeindlichkeit und ein neuerlicher Rassenhass geschaffen und hervorgerufen werden wird. Dies, wie diese
+Feindlichkeiten auch schon im dritten Reich Hitlers herrschte und also neu entfacht werden wird. Dieser Hass wird
+aber schon in den ersten Jahrzehnten auch im neuen Jahrtausend durch die Hermandad im Staate Deutschland
+neuerlich aufkommen, und zwar weil die Polizei alles und jedes zur Routine machen wird und in Bezug auf ihre
+Pflichten nichts mehr den entsprechenden Situationen angleichen werden wird. Das führt auch wieder vermehrt
+dazu, auch in der Schweiz und in allen Staaten rund um die Erde, dass all das Rachedenken sowie Vergeltungsdenken vieler Menschen, die nichts derbezüglich lernen, dass alles Leben jedwelcher Gattung und Art, wie sie handlungsmässig und verhaltensmässig auch immer geartet ist, geschützt werden soll. Unrechtschaffene Menschen aber
+fordern vermehrt wieder aus den Tiefen ihres schlechten Charakters des Unrechtens heraus den Tod für andere
+Menschen, weil diese Mitmenschen – irgendwelche – etwas falsch getan haben. Es mag selbst nur Geringes des
+Unrechtens sein, doch es reicht für alle jene bösen im Charakter ausgearteten Soziopathen, dass sie unbedacht den
+Tod von Straftätern wollen, wenn diese etwas des Unrechtes getan oder gar Morde begangen haben. Alle jene
+jedoch, wenn sie selbst irgendwie straffällig und dem Tod ausgeliert werden sollen, weil sie selbst sich durch irgendwelche Unrechtstaten schuldig machen, winseln dann, und für sie soll dann Gnade vor Recht ergehen. Und dies
+wird zukünftig noch verstärkt in Erscheinung treten, wenn 1949 durch Amerika eine böse militärisch fundierte Organisation gegründet werden wird, die sich international verbreiten, dann weltweit unter dem Deckmantel des angeblichen Friedenserhaltes sowie der Friedensschaffung auf der ganzen Erde kriegerisch mit Krieg, Mord und Zerstörung agieren werden wird.
+Dies wird erst recht zu dem führen, was ich angesprochen habe in Bezug auf das Töten von Straffälligen, denn viele
+Erdenmenschen werden dadurch charakterlich derart verkommen, dass sie jeglichen Bezug zur Humanität und
+Rechtschaffenheit verlieren und vergeltungssüchtig werden. Amerika wird ungewollt offenbaren, wenn es durch
+die Gründung dieser Organisation auch seine schlimme Weltherrschaftssucht wie auch seinen schon seit alter Zeit
+her betriebenen krankhaften und irren Wahn zeigt, Weltpolizei sein zu wollen. Dadurch wird Amerika resp. die
+Staatsführung und alle jene des Volkes, welche mit dieser einig sind, zur Weltübelkeit, und Amerika wird so zum
+kriminellsten und verbrecherischsten Staat allen Übels auf der Erde werden.
+Doch nun weiter, was sich in Bezug auf dein erstes Weggehen von der Heimat ergibt, dem ein langjähriges Wegbleiben folgt. Also: Du wirst von Betlehem aus weiter nach Bagdad im Irak im früheren Mesopotamien gehen, um
+dann von dort aus in das Kaiserreich Persien weiterzugehen. Dort wirst du den Kaiser noch kennenlernen, der krank
+sein und zudem aus dem Staat fliehen wird, wie auch die Amerikaner Persien verlassen werden, wo sie sich eingenistet haben werden. Später wird Persien streng sektiererisch sowie mörderisch und von sehr fanatischen religiösen
+Diktatoren-Geistlichen beherrscht werden, doch zu der Zeit, dass sich dies ereignen wird, wirst du wieder in deiner
+Heimat sein und dich um deine Mission bemühen, die sich trotz vieler Widersachermächte weltweit verbreiten werden wird.
+Nun will ich dich aber bereits heute darauf hinweisen, dass du dich spätestens ab dem Ende der 1960er Jahre intensiv
+damit zu beschäftigen und zu bemühen haben wirst, all deine Kenntnisse in Bezug auf deine erlernten Arbeiten und
+Fähigkeiten einzusetzen, um den Aufbau eines Sitzes des Lernens und der Lehreverbreitung zu fertigen, dass die
+Lehre Nokodemions auf der ganzen Erde verbreitet werden wird. Dies wird also zu erfolgen haben, wenn du nach
+vielen Jahren von all deinen lehrreichen Zeiten deiner Auslandaufenthalte in die Heimat zurückkehrst und deine
+Arbeit und Mission aufzubauen beginnst und dann weltweit führen werden wirst. Dies wird viele deiner Fähigkeiten
+und Kenntnisse in Bezug auf sehr viele Arbeitsgebiete erfordern, die du in der Schweiz und in vielen fremden Staaten noch lernen wirst. So werden dann deine Fähigkeiten und Arbeitskenntnisse vom Bauwesen, der Elektrizität,
+der Landwirtschaft und des Gartenbaus sowie der Pflanzen usw. sehr weitumfassend sein, die du benötigen wirst,
+denn du wirst auch die Bauarbeiten, Maurerei, Zimmerei, die Elektrizität und vieles andere selbst zum Aufbau des
+ganzen Sitzes in die Hand nehmen müssen. Auch die direkte und weite Umgebung wirst du bearbeiten müssen, wie
+du diese bereits zusammen mit deiner Mutter und deinem Vater gesehen hast und kennst, als ihr dort herumgegangen seid. Zu der Zeit aber, da du dir dann deinen dortigen Lebenssitz ankaufst, wird dieser sehr übel gammelig resp.
+verlottert, ungepflegt und heruntergekommen sein, wie du etwas benennst, das nicht gewartet und schadhaft ist. Du
+wirst das Gelände weitum neu zu bewalden haben, wie du auch mit Gesträuch, vielen Blumen, Büschen und diversen Bäumen usw. rundum alles verkommene Land zu begrünen haben wirst. Dies, wie du auch das verwilderte und
+durch Kühe treppenmässig geschädigte Hügelgelände wieder auszugleichen haben wirst, wie auch sehr vieles andere in Bezug auf die Strasse und die Wege, die anzufertigen sind. Im Haus wirst du durch deine Zimmereikennt
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+nisse auch diverse Räumlichkeiten neu zu errichten haben. Doch auch mit deiner Schreibkunst wirst du viele Bücher
+zu schreiben, zu fertigen und umzusetzen haben.
+12. Es wird dann auch sein, dass du dich eingehend informieren und dazu auch Neues lernen musst, nämlich
+
+bezüglich des Finanzwesens, wozu ich dir einführend nun folgendes darlegen will:
+13. Die Zukunft des irdischen Banken-, Firmen- und Konzernwesens sowie der Politik, Regierungen und der
+
+Wirtschaft wird in den nächsten Jahrzehnten sehr profitreich sein, wonach dann jedoch eine umfassende Misswirtschaft in allen Lagern in Erscheinung treten wird, wie auch ab den 1980er Jahren bis weit hinein ins neue Jahrtausend vieles zusammenbricht, was jedoch nicht nur Banken, sondern auch Firmen, grosse Konzerne und Privatleute
+infolge finanzieller Misswirtschaft, Korruption und Kriminalität zugrundegehen lässt, denn der Reichtumswahn
+wird durch den schon lange begonnenen Kapitalismus dann bis sehr weit ins nächste Jahrtausend in ungeahnte
+Höhen treiben.
+Die Erdenmenschen werden infolge ihres Reichtumswahns keine Grenzen mehr kennen und deshalb derart immense verbrecherische Machenschaften hervorrufen, dass diese nicht mehr überblickt werden können. Der Kapitalismus wird kriminell die Freiheit und Ehrlichkeit des Menschen stark beschränken und dazu führen, dass er nicht
+mehr selbst das Geld in den eigenen Händen haben wird. Dies durch die eigene Dummheit und Unfähigkeitm mit
+dem Geld des Rechtens umzugehen und es nicht sinnlos zu verschleudern, wie auch zudem unbedacht und falsch
+vertrauensselig den Banken und sonstigen Geldinstituten die Geldmacht zu geben. Auch kommt zukünftig, dass
+der Erdenmensch von den Staatsführungen mit immer höheren Steuern derart ausgeraubt werden wird, dass nicht
+wenige Menschen als Minderbemittelte der Armut verfallen. In der Schweiz wird die Ungerechtigkeit aufkommen,
+dass die der Armut Verfallenden als Armengenössige verschrien werden, die wohl in Armenhäusern leben dürfen,
+jedoch vom Staat und dessen Gemeinden und Beamten in deren wirklicher Not missachtet werden. Gegenteilig
+jedoch werden viele der Gelder – zur gedanklichen Gutmacherei und Imagepflege der Hilfsbereitschaft des Staates
+Schweiz – ins Ausland vergeben werden, während die Armut bei nicht wenigen Menschen des Schweizervolkes, bei
+der üblicherweise schlecht entlohnten allgemeinen Arbeiterschaft einzieht. Dies, während die Staatsführenden aller
+Staaten auf der Erde mit horrenden Entlohnungen bezahlt sowie dann nach deren Amtsaufgabe auch ebenso horrende Pensionen erhalten werden. Dies, wobei alle die Menschen der diesbezüglich fehlbaren Staaten von den absolut verantwortungslos handelnden sowie schuldenmachenden Staatführenden wirklich bis zum letzten Heller kontrolliert und mit hohen Steuern und unrichtigen Gesetzen, Regeln und Vorschriften belegt und drangsaliert werden.
+Dies, während weltweit die Menschen anderweitig allgemein von den Banken, Geldinstituten sowie von den Geldfirmen und Geldkonzernen usw. derart beschnitten werden, dass durch die Banken nur noch über ein Kartenwesen
+über das Geld verfügt werden kann, so den Menschen die Freiheit des völlig freien sowie selbständigen Geldhabens
+und die Geldverwaltung weggenommen werden wird. Die Unbedachtheit sowie auch die sehr übel grassierende
+Gedankenfaulheit der Erdenmenschen in kommenden Zeiten lässt dies ohne Gegenwehr wie auch infolge völliger
+Gleichgültigkeit und Interesselosigkeit zu, wodurch diese nicht aus der Sklaverei loskommen, die von alters her
+noch Jahrhunderte weiterbestehen bleibt, jedoch jetzt und zukünftig nur in moderner Form. Dies, weil der Erdenmensch nicht darüber nachdenkt, dass er eigentlich sich dadurch selbst zum Sklaven macht, weil er durch sein Wählen bei Wahlgängen all die Gesetze, Vorschriften und Regeln usw. selbst bestimmt, wie er auch selbst die Staatsführung und deren Beamte bestimmt, die dann die Bürgerschaft gängeln und ausnutzen. So und dadurch ist der
+Erdenmensch nicht wahrlich frei, sondern von zahllosen Gesetzen, Regelungen und Verordnungen sowie von Verboten usw. gefangen, umgeben und eben gevogtet, was bedeutet, dass er völlig wehrlos dem Machtbereich der
+Staatführenden und den Allüren der Staatsführungsvertretenden, wie den Gemeindebehörden, Militärgesetzen und
+auch der Polizei usw. folgsam zu sein hat, ansonsten er im andern Fall bestraft werden wird.
+14. Besonders in Europa, und damit auch in der Schweiz, wie ebenso in den USA und Kanada werden die Ban
+ken, Firmen, Konzerne und viele Menschen in privater Weise in grosse sowie horrende Schwierigkeiten verfallen
+und für ihr Weiterbestehen und Leben Staatshilfen in Anspruch nehmen müssen, wobei jedoch für einige ihre ganze
+Misswirtschaft zum Bankrott führen wird. Besonders die Staaten Amerika und Deutschland fallen in sehr grosse
+Verschuldung, wie auch ein halbes Hundert andere Staaten, die völlig verantwortungslos Kriegshilfe für einen Ostblockstaat leisten werden, der im langjährigen Krieg stehen wird, der wie üblich hinterhältig von Amerika provoziert werden wird. Dabei habe ich noch ganz speziell Deutschland zu nennen, denn der annektierte sowie unter der
+Fuchtel von Amerika stehende Staat wird kurz nach dem in 54 Jahren kommenden Jahrtausendwechsel Flüchtlinge
+aus aller Welt aufnehmen und diese finanziell derart unterstützen, dass sich der Staat – auch andere Staaten – hoch
+verschulden wird. Die sehr oft illegalen Einwanderungen werden jedoch auch in Amerika sein, wobei dies gesamthaft ausgelöst werden wird durch die Dummheit einer Staatsgewaltigen in Deutschland, die unbedacht die Erdenmenschen der minderbemittelten Staaten auffordern wird, sich in die nördlichen und in die finanziell gutgestellten
+Staaten der Erde zu begeben und in diese einzureisen, um dort ihr Glück zu finden.
+15. Jedoch auch bei den Bevölkerungen vieler dieser Länder, und zwar auch besonders in ganz Europa, speziell
+
+jedoch in Deutschland, den USA und Kanada, wie auch in der Schweiz, werden auf privater Basis ebenso derartige
+finanzielle Verschuldungen entstehen, dass die Menschen ihren anfallenden finanziellen Verpflichtungen nicht
+mehr gerecht werden können, wie dies auch in Bezug auf die Staatshaushalte vieler Länder der Fall sein wird, die
+ihren Schulden nicht mehr Herr werden können.
+16. Das Ganze führt zu schweren wirtschaftlichen Zusammenbrüchen und zur Auflösung und zu Konkursen von
+
+alteingesessenen und über lange Jahrzehnte des Rechtens geführten Banken, Firmen und Konzernen, wie auch zu
+jahrelangen Staatsfinanzproblemen, die aber unter gewissen Umständen zu einem Staatsbankrott werden führen
+können. Dies, wie es auch infolge prekärer Geldbesitzunstimmigkeiten zu Morden kommen wird, wie auch immense
+Schulden viele Familien zerstören und Suizide fordern werden. Dies, während über sehr lange Zeiten hinweg auch
+viele Staatsführungswechsel infolge der Unfähigkeit selbstherrlicher, ungebildeter wie auch absolut regierungsunfähiger Machthaber alle Staatsgeschäfte missleiten und letztlich einer von Amerika 1949 aufkommenden Militärorganisation beitreten, die weltumfassend mit Mord sowie Zerstörung ‹Sicherheit› gewährleisten soll. Dies, wie viele
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Staaten in kommender Zeit unbedacht auch einer üblen europäischen Diktatur beitreten werden, die ihre Mitgliedstaaten für dieses und jenes zwingen werden wird. Diese wird in den ersten Zügen bereits in rund 10 Jahren ihren
+Ursprung finden, dann in einem weiteren Jahrzehnt durch ihren weiteren Fortgang erweitert und Jahrzehnte später
+dann als Europäische Union ihre Gründung finden werden. Diese Diktatur, die erstlich noch die Todesstrafe verfechten wird, die später jedoch aufgehoben werden wird, bindet dann viele Staaten an sich, wobei in späterer Zeit
+auch die Staatsführenden sowie dumme Unbedachte aus dem Volk der Schweiz sich dazu verleiten lassen werden,
+von dieser Diktatur profitieren zu wollen oder sich dieser gar schleichend anzuschliessen. Dadurch würde die
+Schweiz nicht nur ihre altbewährte Freiheit, sondern auch ihre Neutralität verlieren, wenn dieser Zusammenschluss
+Wirklichkeit werden würde. Trotzdem jedoch wird von verantwortungslosen machtgierenden Staatsführenden der
+Schweiz und die irregeführten Menschen des Schweizervolkes versucht oder gar befohlen werden, sich der Diktatur
+anzuschliessen.
+Alle die willfährigen Menschen der Schweiz, wie auch vieler anderer Staaten, werden nicht nur ihr Machtstreben
+und ihre Illusionen sowie unbedachten Wünsche verfolgen, sondern auch nichtdenkend und also derart dumm sein,
+dass sie nur weltlich Gläubige der falschen Politik der Staatsführenden sind.
+17. Und nun, um nochmals auf den Privatbereich zu sprechen kommen, so entstehen, wie ich bereits gesagt habe,
+
+grosse finanzielle Verschuldungen, weil ein sinnloses und unkontrollierbares Verschleudern von Geld für viele unnötige Dinge hervorgerufen wird. Dies, weil auch weitumgreifend in den Bevölkerungen sehr bösartige Familienzerwürfnisse und Familienzerstörungen erfolgen und zur bösen Tagesordnung werden, wie auch sehr schwere kriminelle und verbrecherische Handlungen und Taten greifend werden, die nicht nur ständige Zerwürfnisse
+erschaffen, sondern auch in Mord und Totschlag enden werden.
+18. Durch die sich anbahnende und sich rasch entwickelnde wirtschaftliche Hochkonjunktur werden die Entloh
+nungen der Arbeitnehmenden sich schnell erhöhen und auch den allgemeinen Lebensstandard in höhere Formen
+treiben, was die Menschen dazu verleiten wird, weltweite Urlaubsreisen in fremde Staaten, Kreuzfahrten auf Meeren und anderes zu unternehmen, wie sich immer grössere finanzielle Ausgaben zu leisten und Schulden zu machen,
+weil sie sich all ihre masslos überbordenden Wünsche hinsichtlich ihres Lohneinkommens nicht leisten können.
+19. Für dich, deine Familie, die Arbeits- und Missionsgruppe und deren einzelne Mitglieder, wie auch für ein
+
+Center, das du mit Hilfe deiner sich um dich versammelnden Getreuen an einem dir bekannten Ort, auf einer unweit
+erhöhten Stelle in der Nähe der Geburtsstätte deiner Mutter nach deinen Vorstellungen aufbauen wirst, wirst du
+dich in deinem Lernen zukünftig weiter zu bemühen haben, dich mit einem grossen Finanzhaushalt vertraut zu
+machen. Die erforderlichen Finanzen für den Kauf und Ausbau wirst du durch harte Händearbeit verdienen, wie
+jedoch auch durch dein Leben gefährdende Aufträge und Aufgaben, die du in fremden Staaten ausführen und dafür
+gut entlohnt werden wirst.
+20. Und diesbezüglich wirst du in freiwilliger Weise die Verantwortung und Verwaltung für die Gemeinschaft
+
+übernehmen, die du als Verein formen und dessen Mitgliedern du auch ratgebend und hilfreich beistehen wirst.
+21. Die Zukunft der Finanzwirtschaft wird aber schwierig sein, denn ab dem Jahr 1988 wird es in der ganzen
+
+Welt bezüglich des Geldes erst recht düster werden, weil dann in den USA die Gründung einer Kapitalmacht stattfindet, die als weltweit wirkende Schattenbank und Welt-Schattenregierung in die gesamte Weltfinanz eingreifen
+und viele Staaten und deren Strukturen beherrschen wird, wobei dann weltweit auch neue Zahlungsmittel und
+Geldwerte aufgebracht werden.
+22. In den USA selbst wird sich diese Kapitalmacht zu einer staatsinternen Schattenregierung ausbauen, die –
+
+für die Bevölkerung der USA in geheimer Weise bleibt – dann die Vereinigten Staaten von Amerika nach ihrem
+Willen regieren wird, wie dies auch durch eine andere US-amerikanische Schattenregierung geschieht, die bereits
+seit langem existiert und sich auch bis in weite Zukunft erhalten wird.
+23. Die neue Kapitalmacht, die im Jahr 1988 gegründet wird, wie ich schon erklärte, wird ein weltweites Kapi
+talnetzwerk aufbauen, und zwar in kurzer Zeit, wodurch dann nicht nur umfangreich die Finanzwelt der Banken,
+wie auch die Politik, sondern verschiedene Staatswesen und auch die Weltwirtschaft und viele Staaten nach den
+Machtstrukturen dieser Welt-Schattenregierung beherrscht werden.
+24. Bezüglich dieser Dinge und der Politik, die du niemals selbst betreiben wirst, musst du viel lernen, so also
+
+auch viele Fakten, die ich dir schon genannt habe und auch weiterhin nennen werde. Diese sind dann von dir zu
+nutzen, um faktenaufweisende und warnende Schreiben zu verfassen und anonym an die Staatsführenden aller
+Staaten zu versenden, bezüglich der gefährlichen unfriedlichen kommenden politischen Weltgeschehen, die in vielen Staaten immer wieder schwerwiegende Kriege hervorrufen, die in der Regel sehr vielfach durch altherkömmliche amerikanische wie üblicherweise hinterhältige hegemonistische Machenschaften ihren Ursprung finden.
+25. Du sollst aber auch die drohenden, unheilbringenden, die Natur und deren Fauna und Flora sowie die Ge
+wässer und das Klima und die all das Natürliche des Planeten zerstörenden und vernichtenden Ausartungen aufweisen, die zu urweltgleichen Naturkatastrophen führen werden. Dies, wenn all den zukünftig drohenden sowie
+ausartenden Machenschaften der Menschen nicht Einhalt geboten wird und sie sich verantwortungslos zahlenmässig immer weiter vermehren. Wenn dieses Tun der Vermehrung der Erdenmenschheit nicht beendet wird, dann
+werden sich daraus zukünftig sehr bald technische Entwicklungen ergeben, die unter anderem eine künstliche Intelligenz hervorbringt, die sich eines Tages gegen die Erdenmenschheit richten und diese bekämpfen wird.
+26. Dazu ist bereits der Beginn gesetzt mit der rund 2,6 Milliarden Menschen umfassenden und weit übersetzten
+
+Erdenmenschheit, die du zukünftig als Überbevölkerung bezeichnen wirst, durch die seit den drei Weltkriegen, mit
+dem ersten der im Jahr 1756 begonnen hat, dann in diesem Jahrhundert der von 1914 bis 1918 und der von 1939 bis
+letztes Jahr dauernde, der durch das verbrecherische Handeln Amerikas mit dem bösartigen Einsatz von Atombomben beendet wurde und mithalf, dass der Klimawandel in Gang gesetzt wurde. Und dass Amerika in den weiten
+amerikanischen Gebieten auch die indigenen Völker genozidartig bekämpft hat, das gehört auch dazu. Und besonders in diesem Jahrhundert, wie aber auch im nächsten Jahrtausend werden durch die Schuld von Amerikas Staatsmächtigen und deren Mitläufer noch sehr vielfach weltweit weiter aufkommende Kriegshandlungen massenweise
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Tote und viel Not, Elend und Zerstörung fordern und dadurch auch neue Krankheiten nach Europa bringen.
+Und es wird auch zu nennen sein, das in der Regel Amerika vielfach die Schuld daran tragen wird. Dessen Staatsmächtige schüren grosses Unheil, und das Militär führt dann deren Kriege aus, die diese anzetteln und ausbrechen
+lassen. Und gleichermassen geht es also im nächsten Jahrtausend weiter, jedoch im Zusammenhang mit der Weiterentwicklung der Technisierung und dem bösen Missbrauch der Atomenergie in vielfacher Weise, wie auch mit
+der endlosen verbrecherischen kriegsmässigen, industriellen und privaten Ausbringung von Gasen und Giften sowie Kunststoffen aller Art usw., wodurch die Natur und deren Fauna und Flora, wie auch die Meere und Gewässer
+sowie die Gletscher und Landschaften aller Art vergiftet werden. Dadurch aber wirkt sich sehr vieles auf das Klima
+aus, das sich nun schnell derart wandelt, dass es urweltlich zu wirken beginnt, wie die naturzerstörenden Machenschaften der Erdenmenschheit dies in den nächsten wenigen Jahrzehnten herausfordern, was aber bereits schon
+früher und also nicht erst jetzt begonnen hat und in der Zukunft schwerwiegende Folgen zeitigen wird. Auch der
+Weltkrieg von 1914 bis 1918 hat mit all seinen schädlichen Ablagerungen in der Atmosphäre viel dazu beigetragen,
+worum sich aber kein Erdenmensch kümmerte, was aber sehr stark zum Umsturz des Klimas beiträgt, der das nun
+unvermeidlich kommende Wetterunheil usw. bringen wird.
+27. Also werden sich die schlimmen Auswirkungen bezüglich der durch die Schuld und Unvernunft der irdischen
+
+Menschheit hervorgehenden Klimazerstörung schon im nächsten Monat Dezember zeitigen.
+28. Und dass diese kommenden und sich bis in weite Zukunft fortsetzenden Klimaveränderungen wirkliche Fol
+gen der krassen sowie total alles zerstörenden Machenschaften der hohen Zahl der Erdenmenschheit sein werden,
+wird von den Wissenschaftlern und allen Verantwortlichen bis weit ins nächste Jahrtausend bestritten werden.
+29. Zwar wird es dann sein, dass mit der Zeit von verschiedensten Sparten der Wissenschaftler anerkannt werden
+
+wird, nämlich, dass allerlei greifende verantwortungslose Machenschaften der Menschheit die Klimaveränderung
+hervorgerufen haben werden. Doch wird noch immer nicht die Rede davon sein, dass all die naturverändernden
+sowie alle die planetenbeeinträchtigenden und all die klimazerstörenden Machenschaften in ihrem unermesslichen
+Ausmass einzig durch die weit über dem erdverträglichen Mass des Verkraftenkönnens der schnell und unaufhaltsam wie auch zahlenmässig hoch anwachsenden Erdenmenschheit erfolgt. Und es wird zukünftig sehr schnell die
+anwachsende Masse Menschen die Natur und deren Fauna und Flora, sowie den Planeten schädigen und nachteilig
+verändern, und zwar derart, dass ungeheure Nachteile auch für die Erdenmenschheit zustande kommen werden,
+und zwar so, dass vorerst und noch lange und weit ins nächste Jahrtausend keine Hilfe dagegen ergriffen werden
+kann.
+30. Die hauptsächlichen Ursachen des Klimawandels, der, wenn vorerst auch nicht die Rede davon sein und
+
+eigentlich eine Klimazerstörung sein wird, werden in mancherlei Formen von unverantwortbaren Machenschaften
+und durch die stetig wachsende Masse Menschheit ausgelöst werden, wobei die manipulativen Formen darin fussen
+werden, dass durch diese das gesamte irdische Ökosystem, das Klima, die Atmosphäre und Natur sowie der gesamte
+Planet bis in seine Grundfesten zerstörend einbezogen sein werden wird.
+31. Alles wird auch ausgelöst werden durch eine verantwortungslose Erdressourcenausbeutung, Vergiftung und
+
+Verpestung der Atmosphäre, der Natur und deren Fauna und Flora, der Meere und Binnengewässer, durch vielartige toxische Stoffe, Gase, Emissionen von Explosionsmotoren und Heizungen, die mit fossilen Brennstoffen betrieben werden.
+32. Auch künstliche, giftige Düngemittel und allerlei Herbizide, Pestizide und viele andere Stoffe werden zer
+störend auf die gesamte Natur, Fauna und Flora sowie auf den Planeten selbst negativ wirken, dies, wie auch auf
+die Menschen, wodurch bei ihnen viele schwere Krankheiten hervorgerufen werden.
+33. Und durch Giftgase und allerlei giftigen Schmutz wird auch die Ozonschicht im Sauerstoff gefährlich vermin
+dert und beeinträchtigt, was bei den Menschen zu Hautkrebs und anderen Leiden führen und zudem auch sehr viele
+Veränderungen in der Natur und bei deren Fauna und Flora hervorrufen wird.
+34. Es werden auch alle Meere und Binnengewässer mit Giftstoffen und allerlei Unrat belastet und arg verseucht
+
+werden, wobei gar das Trinkwasser mit den Giften kontaminiert werden wird, und wodurch viele Erdenmenschen,
+Tiere, Getier und andere sich selbst fortbewegende Lebensformen erkranken und gar sterben werden, wie dies auch
+auf die Pflanzenwelt übergreifen wird und viele Gattungen und Arten vernichtet und ausgerottet werden. Schon
+jetzt beklagen sich viele gleichartige Lebensformen deshalb untereinander und werden dies zukünftig noch mehr
+tun. Leider jedoch versteht der Mensch diese Sprachen nicht, und er zweifelt gar, dass ausser dem Menschen andere
+Lebensformen, wie Tiere, Getier und andere je nach Gattung und Art eigene Sprachen haben, die aus bestimmten
+Lauten bestehen. Dies, wie auch gemäss ihrer Gattung und Art jede ihre eigene Sprache hat, so z.B. für den Menschen nicht wahrnehmbare Töne oder auch ausstrahlende Schwingungen oder Impulse usw. Gar Gestein, Metall
+und jede andere Materie weist ihre eigenen Sprachen auf, die auf Impulsen oder Schwingungen verschiedener Form
+beruhen, die gleichgerichtet der Gattung oder Art untereinander kommunizieren.
+35. Besonders vielartige Kunststoffe in allen Gewässern der Welt werden für unzählige Wasserlebensformen ein
+
+elendes Sterben und den Tod bringen, was sich so auch in Bezug auf alle Gattungen und Arten in Fluren, Wiesen
+und der Luft, Wälder und vielen Landlebewesen auswirken wird.
+36. Der Kunststoff, das will ich noch erklären, wurde schon im Jahr 1531 im damaligen Deutschland aus der
+
+Verarbeitung von Käse als ‹Kunsthorn› oder ‹Kasein› erfunden, jedoch werden auch in den nächsten Jahrzehnten
+wieder neue Formen und Produkte erfunden, die im Lauf von wenigen Jahrzehnten zu einer sehr schlimmen und
+weltumfassenden Umweltkatastrophe führen, weil die Erdenmenschen Unmengen der Kunststoffe achtlos und verantwortungslos in der freien Natur wegwerfen werden. Dies wird erfolgen selbst bis in höchste Höhen der Gebirge,
+die als Besteigung derselben als Prestige und als neuer ‹Sport› gelten werden wird.
+37. Und all die Ursachen und Auswirkungen werden zu Umweltkatastrophen führen, denen die gesamte irdische
+
+Menschheit nur noch sehr schwer oder überhaupt nicht mehr Herr werden wird, denn im Verhältnis zu der verantwortungslos immer weiter und zahlenmässig höher anwachsenden Erdenmenschheit wird gesamthaft alles an Umweltverschmutzung, wie auch an Verschmutzung des gesamten Planeten, der Natur, dem Beeinträchtigen der Fauna
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+und Flora, dem Zerstören des Klimas sowie der Atmosphäre immer umfangreicher, prekärer, gefährlicher, zerstörender und lebensvernichtender werden.
+38. Und der Anfang dafür wurde durch die bereits jetzt bestehende schiere Übermasse der Erdenmenschheit
+
+und deren ausgeartete Machenschaften gelegt, wozu in schlimmster Weise die weltumfassend bereits und bald ausbordend kommende Klimaveränderung mit ihren weltweit zerstörenden Folgen gehören werden wird.
+39. Dafür werden in erster Linie die USA den Urgrund liefern und die vollumfängliche Schuld tragen, und zwar
+
+durch ihren verbrecherischen verantwortungslosen ersten atomaren Test und die zwei Atombombenabwürfe auf
+Hiroshima und Nagasaki. Zwar hat schon das NAZIregime im NAZI-Deutschland erste heimliche, jedoch nicht
+ganz nutzlose Versuche in Bezug auf der Nuklearbasis unternommen, doch erst Amerika war wirklich erfolgreich
+und konnte verbrecherisch damit siegen, wodurch jedoch auch diverse Staaten der Erde der Atomformel habhaft
+werden und fortan dann eine grosse Gefahr für einen eventuellen weltweiten Atomkrieg aufkommen und eine ungeheure Katastrophe auslösen könnten.
+40. Diese am Planeten, der Natur sowie dem Klima, der Fauna und Flora und an der Erdenmenschheit began
+genen verantwortungslosen Verbrechen führen nun ab dem kommenden Monat Dezember zu den ersten drastischen sowie folgenschwer in Erscheinung tretenden Auswirkungen in Bezug auf eine sich sehr schnell sowie unaufhaltbar entwickelnde und sich weltweit allumfassend sehr nachteilige Klimaveränderung, die niemals mehr
+rückgängig gemacht werden kann.
+41. Also wird sich in acht Monaten unabänderbar der sich fortan immer mehr ausweitende und bemerkbare
+
+Klimawandel ankündigen, woraus sich in den nächsten 2500 Jahren immer schlimmere Naturkatastrophen entwickeln, die auf der ganzen Erde ungeahnt viel menschliche Not und Elend sowie Zerstörungen hervorrufen werden,
+insbesondere durch urweltliche Stürme und gewaltige Regenmassen, die in Europa und rund um die Welt vielfach
+verheerende Überschwemmungen hervorrufen werden wird.
+42. Was sich nun aber durch das amerikanische atomare Verbrechen umfänglich am Planeten, der gesamten
+
+irdischen Menschheit, der Natur, Fauna und Flora, der Atmosphäre und am Klima ergeben wird, das nimmt nun
+fortan alles seinen zerstörenden Lauf, folglich die ersten sehr schweren Klimaveränderungen bevorstehen, die sich
+ab dem kommenden Monat Dezember ankünden, jedoch erst in rund 80 Jahren richtig losbrechen werden.
+43. Also kommt es, wie es unweigerlich kommen muss, nämlich, dass im kommenden Monat Dezember ganz
+
+Mitteleuropa von einer ungewöhnlichen Kältewelle bis Minus 30 Grad heimgesucht wird, die auch England ergreifen und zum Erfrierungstod von einer grossen Zahl Menschen führen und erst Mitte des Monats März nächstes
+Jahr, also 1947, enden wird.
+44. Doch die kommenden extremen Wetterbedingungen werden noch viel weitgreifender sein und bis 1948 an
+halten und auch in anderen Ländern für die Menschen viel Not, Leid und Elend bringen, besonders nach dem
+Jahrtausendwechsel, und zwar zukünftig bis weit ins dritte Jahrtausend hinein.
+45. Und dies wird unweigerlich auch sein mit dem bevorstehenden Kältewinter, der ab nächstem Jahr als ‹Hun
+gerwinter› bezeichnet werden und auch im Zusammenhang mit der üblen und schon Anfang von diesem Jahr begonnenen Lebensmittelkrise stehen wird. Diese wird in Europa den Tod mehrerer Hunderttausender von Menschen fordern, was auch auf die Sowjetunion übergreifen und dort für mehr als 2,4 Millionen Menschen den Tod
+bringen wird, wie auch in anderen Ländern schlimme Auswirkungen unvermeidbar sein werden.
+46. Wenn jedoch nächstes Jahr die Kältewelle im Monat März ihr Ende findet, dann wird gegenteilig eine grosse
+
+Hitzewelle und damit ein sehr heisser Sommer beginnen, der in ganz Europa bis Ende September anhalten, keinen
+Tropfen Regen bringen und als ‹Steppensommer 1947› in die Annalen eingetragen wird. Und das wird sich lange
+bis ins dritte Jahrtausend hinein so immer wieder ergeben, weil die zahlenmässig immer mehr überbordende Erdenmenschheit den Planeten Erde, den ganzen Weltbereich und dessen Natur-Ökosysteme durch zerstörende Machenschaften überflutet und damit weiterhin verantwortungslos die Klimaveränderung verursacht und vorantreibt,
+wie sie auch die Beeinträchtigung allen Lebens der Natur und deren Fauna und Flora immer mehr weitertreibt.
+47. Je nach Ort und Gegend werden auf der Welt die Temperaturen zeitweise zwischen 39,5 Grad Celsius im
+
+Schatten und 47 und gar über 50 Grad Celsius an der Sonne betragen, wobei gewisse Fruchtbäume zweimal blühen
+und kleine Früchte tragen werden. Und das alles wird sich bis weit ins dritte Jahrtausend hinein so ergeben.
+48. Fluren, Gemüsegärten und Wiesen werden nächstes Jahr ebenso austrocknen, wie auch kleinere Seen und
+
+Bäche, auch grosse Seen und Flüsse einem sehr tiefen Wasserstand verfallen werden.
+49. Und weil nächstes Jahr überall das Regenwasser fehlen wird, muss dann europaweit viel Vieh notge
+schlachtet werden, denn infolge Regenmangels wird kein Futter mehr für die Tiere wachsen.
+50. Wasser fehlt dann auch in der Natur, in der Tiere verdursten, und so wird zwei Jahre nach dem letzten Welt
+krieg rundum grosse Not herrschen, wobei in gewissen Gebieten die Menschen Hunger leiden werden, der durch
+die extreme Hitze noch verschärft werden wird.
+51. Und weil vielerorts im nächsten Jahr überhaupt kein Regen und vielerorts auch sonst kein Wasser sein wird,
+
+werden schlimme Ernteaussichten entstehen, denn die Tage werden heiss und sonnenstrahlig sein und keine Pflanzen wachsen lassen. Und weil kein Regen fallen wird, können die Bauern auch die nächste Saat nicht ausbringen,
+folglich es keine grosse Ernten geben und dann grosser Mangel an bestimmten Nahrungsmitteln entstehen wird.
+52. Das Ganze der Kältewelle und Hitzewelle wird jedoch von Meteorologen, Klimaforschern, von gewissen
+
+anderen Wissenschaftlern und von der Bevölkerung bagatellisiert und natürlichen Wetterveränderungen, jedoch
+nicht dem Klimawandel zugeschrieben werden, weil derbezüglich alle Meteorologen sowie gesamthaft alle Wissenschaftler noch keinerlei Kenntnis haben und sich deswegen auch keine Gedanken darum machen, sondern es einfach einem natürlichen Gang der Natur zuordnen.
+53. Es wird also lange und bis in die ersten Jahre des neuen Jahrtausends hinein behauptet werden, dass es sich
+
+um natürliche wandelnde Wettervorgänge handle, die sich von Zeit zu Zeit ergeben würden, folglich werden sich
+während den nächsten folgenden Jahrzehnten weder gelernte Wissenschaftler noch die einfache Menschheit selbst
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Gedanken um die wirklichen Ursachen machen.
+54. Alle Besserwisser werden jedoch vernunftlos den Tatsachen widersprechen, dass alles infolge der ausarten
+den und verantwortungslosen Machenschaften durch die alles vernichtenden und zerstörenden Auswüchse und Machenschaften der die Erde überbevölkernden Erdenmenschheit ist, die Schuld trägt daran, dass sich in der Natur,
+am Klima und an der Atmosphäre alles derart negativ verändert. Alles wird aber derart bedingt sein, dass es sich
+immer mehr ausweiten und rettungslos zu grassieren beginnen wird.
+55. Die kommenden Jahrzehnte werden bis weit ins 3. Jahrtausend hinein auch viele neue Aufstände, Bürger
+kriege, Kriege und Revolutionen rund um die Erde bringen, wie auch bösartige und gewissenlose Diktatoren ihr
+mörderisches Wirken weiterhin über ihre Völker ausüben werden, wozu vielfach die USA wie altherkömmlich alles
+tun werden, um des eigenen Vorteils willen fremde Regierungen zu stürzen, wobei vielfach Amerika dies hinterhältig provoziert, wobei auch zu sagen ist, dass weltweit Präsidentschaften von vielen Staaten mehr als Diktaturen
+geführt werden als freie Staaten.
+56. Es wird in absehbarer Zeit auch ein weltweiter und religiös bedingter sektenbezogener und anderseits auch
+
+unmenschlich verbrecherischer Terrorismus entstehen, wofür ebenfalls die USA mit ihrer Politik und ab dem Jahr
+1756 praktisch alle seither gewesenen USA-Staatsgewaltigen im Wahn lebten und noch heute leben, dass mit geheimdienstlichen, militärischen und kriegerischen Eingriffen in die Belange fremder Staaten die Weltherrschaft an
+Amerika gerissen werden müsste, wie zudem die ‹besiegten› Staaten bezüglich deren Erdressourcen und Schätzen
+auszuräubern seien.
+57. Und das werden mit sehr wenigen Ausnahmen – die du an einer halben Hand abzählen kannst – auch die
+
+kommenden weiteren USA-Machthaber tun, denn der bösartige amerikanische Weltherrschaftswahn wird unhemmbar weiterexistieren, und auch in Zukunft werden die Präsidenten Amerikas unendlich viel Leid, Elend, Folter, Tode und Zerstörung über die Welt bringen, oft mit Zuhilfenahme der amerikanischen gewissenlosen Geheimdienste.
+58. Es handeln aber auch alle jene Elemente in gleicher Weise und ziehen gleicherart mit, die gegenwärtig an
+
+der Macht und als Mitläufer und damit auch gleichen Sinnes sind, wie auch alle Gleichartigen gleicherart handeln
+werden, die zukünftig sein werden.
+59. Und es werden die Staatsmächtigen selbst sein, wie auch ihre Berater und Mitläufer, Befehlshaber und Be
+fehlsausübende der Geheimdienste und Militärs usw., wie auch jene aus den Bevölkerungen, die gleicher Gesinnung
+sind.
+60. Es werden aber weltweit auch verbrecherische Organisationen mancherlei Art, wie auch extremradikale ras
+sistische sowie religiös sektiererische mörderische Organisationen entstehen, woraus auch mancherlei religiöse und
+auf Wahnbesessenheit bezogene Todessekten hervorgehen, die besonders in den USA, in Südamerika, der Schweiz,
+in Japan und Kanada, wie auch in Arabien, Afrika, Asien, Frankreich und in einigen anderen Ländern in Europa
+und im Osten infolge religiösem Irrsinn und Machtwahn Hunderttausende Ermordete fordern werden. Insbesondere werden im arabischen Raum religiösfanatische und mörderische und terroristische Sektenwesen hervorgehen,
+die auf der ganzen Erde ihr blutiges Handwerk betreiben werden. Mord, Massenmord Zerstörung und Leid, Not,
+Elend sowie Angst und Schrecken zu verbreiten, insbesondere in Amerika und Deutschland, wird ihr Metier sein.
+61. Du wirst all diese Fakten ebenso gründlich zu bedenken haben, und als Religionsloser wirst du Arabien be
+reisen, dort arbeiten und dich in deren Religion einbewegen, solcherart diese dir um des Verstehens willen pro
+forma aneignen, um zu verstehen, dass nicht die wahrlich Gläubigen die Übeltäter, sondern rechtschaffene Menschen sind, während alle die ausgearteten und fanatischen Sektenangehörigen irrgeführte und passionierte Mordkreaturen sind.
+Und dies wird so kommen, wie auch all das, was ich dir in den letzten Jahren erklärt, gesagt und gelehrt habe, denn
+du wirst ab dem nächsten Jahrzehnt dementsprechende Schreiben zu verfassen haben, die du an alle Staatsführenden und an viele öffentliche Medien rund um die Welt senden sollst, um sie darauf hinzuweisen, was geschehen
+wird, wenn nicht endlich von der irdischen Menschheit umfänglich Vernunft gelernt, angenommen und geübt wird.
+62. Wenn dies nicht geschieht, deine Worte nicht beachtet werden und keine Früchte tragen, dann wird der Erde
+
+und ihrer Menschheit eine sehr böse und üble Zukunft bevorstehen.
+63. Und damit du deine diesbezügliche Aufgabe ebenso erfüllen kannst, werde ich dich weiterhin in guter
+
+Schreibkunst unterrichten, wie ich dies durch Impulsführungen schon seit deinem 4. Altersjahr ohne dein bewusstes
+Wissen getan habe, wodurch du ohne Wissen deiner Eltern bereits zu schreiben gelernt hast, ehe du in die Schule
+eingegliedert wurdest. Lehrer Graf ist darüber informiert, weshalb er dich in jeder Weise unterstützt.
+64. Und wie ich dies seit 1944 auch mit deinem Einverständnis und Wissen getan habe, werde ich es auch forthin
+
+tun, wie dich auch Pfarrer Zimmermann unterstützt, wobei sie und du aber nicht verhindern können, dass du durch
+verschiedene Mitglieder der Sekte … verleugnet, geschlagen und verfolgt wirst und du ungerechterweise im Auftrag
+der Behörden der Gemeinde sowie des Kantons und auch deren Untergebenen drangsaliert werden wirst, und zwar
+auch dann, wenn du dein Heimatland verlässt und du deshalb keine Ruhe und Sicherheit finden wirst, wie ich dir
+dies bereits erklärt habe.
+65. Doch du sollst trotz deines bisher erlangten umfangreichen Wissens weiterhin bis 1953 noch sehr viel lernen
+
+und deine Interessen auf sehr viele Dinge ausrichten, die du wissen und verstehen sollst.
+66. Also sollst du dich grundsätzlich und aussergewöhnlich für dein Alter für sehr viele Dinge interessieren, was
+
+sich zuünftig in deinem Leben, wie auch in der Welt in allerlei Hinsichten viel mehr ereignen wird, als das, was ich
+dir bisher bei all den verschiedenen Erklärungen und Voraussagen bis heute nahegebracht, erklärt und dir in den
+nächsten Jahren auch weiterhin noch kundzugeben und zu erklären habe.
+67. Eigentlich hast du dich für alles zu interessieren, besonders darum, weil du lernen musst, dich durch deine
+
+Gedanken und Gefühle mit allem zu beschäftigen und dich darauf vorzubereiten, um deine Psyche zu stärken und
+in jeder Hinsicht alles zu verkraften, wobei du jedoch darüber zu schweigen hast und nichts weitererzählen sollst.
+Es wäre keinesfalls sinnvoll und vor allem sehr gefährlich, wenn die Erdenmenschen kommende Geschehen
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+erfahren würden, die sich in der Zukunft ereignen werden, denn diesbezüglich habe ich die Erfahrung gemacht,
+dass ohne Ausnahme die Menschen dieser Welt absolut und durchwegs falsch voraus reagierten.
+68. Deswegen sollst du dich zurückhalten und schweigen über alles deines Wissens in Bezug auf die Zukunft,
+
+aber du sollst dich trotz deines Wissens und Könnens niemals über die anderen Menschen erheben, sondern immer
+bescheiden und gerecht bleiben, denn Bescheidenheit und das Gerechtsein ist die Mutter aller Tugenden, die du
+immer und in jeder Situation zu respektieren hast.
+69. Auch wenn du sehr viele der kommenden Geschehen der Zukunft kennst und du in diesen Belangen wissen
+der bist, als dies gegenteilig die Menschen allgemein sein können, wie du auch hinsichtlich der Missionslehre und
+allem damit Verbundenen ein von anderen Menschen nicht erreichbares Wissen aufweisen wirst, sollst du immer
+bescheiden bleiben.
+70. Kommende Geschehen vorauszuwissen, wie ich dir schon bei anderen Erklärungen gut verständlich gemacht
+
+habe, bedeutet in jedem Fall – was es auch immer sein wird – eine sehr schwere, das Bewusstsein und die Psyche
+beanspruchende Belastung, und zwar besonders dann, wenn es sich um Vorkommnisse handelt, die einerseits auf
+dich persönlich bezogen oder anderseits wider deine persönliche Einstellung, Ehre, Moral, Verhaltensweisen und
+Würde hinsichtlich des Wertes des Lebens, des Wohls der Menschen, aller Lebensformen und der Natur gerichtet
+sind.
+71. Und da dir gemäss der Belehrung, deiner gesunden Einstellung, deinem Charakter, deiner Moral, dem Ge
+rechtigkeitssinn und nach den dir bekannten Schöpfungsgesetzen und Schöpfungsgeboten in guten ausgerichteten
+Weisen also auch deine Gedanken, Gefühle und deine Empfindungen die Formen deines Verhaltens bestimmen,
+widerstrebt dir alles Abartige. Deshalb ist es notwendig, dass ich dich, wie bis anhin, auch weiterhin lehre, wie du
+durch deine Gedanken, Gefühle, Empfindungen, Regungen und Emotionen usw. den gesunden Zustand deines
+Bewusstseins und deiner Psyche pflegen und erhalten kannst.
+72. Dabei musst du jedoch diesbezüglich deinen eigenen Verstand und deine eigene Vernunft sowie die Logik
+
+nutzen, um den dir diesbezüglich persönlich gegebenen Weg zu beschreiten und dein Ziel zu erreichen.
+73. Dies ist von bedeutender Notwendigkeit, denn ohne dieses unumgängliche Lernen, um deine Gedanken und
+
+Gefühle usw. in richtiger und positiver Weise zu pflegen, damit deine Psyche ausgeglichen und gesund bleibt, vermöchtest du viele Erklärungen und Voraussagen nicht zu verkraften, denn sie würden dich derart übel belasten,
+dass du daran zerbrechen würdest, wenn sie in zukünftiger Zeit eintreffen und sich dann wahrheitlich ergeben.
+74. Durch das Lernen wirst du jedoch kraftvoll und kontrollierend in deinen Gedanken und Gefühlen werden,
+
+sie zu beherrschen lernen und auch deinen Bewusstseinszustand und Psychezustand unter Kontrolle halten können,
+und zwar auch dann, wenn dich grosses Leid, Schmerz und tiefe Trauer treffen, die dir in deinem Leben sehr oft
+begegnen und dich also nicht verschonen werden.
+75. Also ist es von vorgebender Notwendigkeit, dass du dich schon jetzt und auch zukünftig damit befasst und
+
+dich auch auf die Zukunft vorbereitest, und zwar besonders darauf, deine Gedanken und Gefühle derart zu formen
+und zu kontrollieren, dass du nie in Schwierigkeiten mit deinem Bewusstsein und deiner Psyche verfällst.
+76. Also werde ich dich auch in strenger Weise nach unserer Psychologie unterrichten und dich selbst diesbezüg
+lich entscheiden und formen lassen, folglich also wie bisher ich in keiner Art indoktrinierend dich belehren oder
+sonstwie dich in solcher Weise behandeln werde. Also werde ich dich nur nach unserer und somit den irdischen
+Kenntnissen überlegenen Psychologie belehren und unterrichten, was wohl für dich selbst von sehr grosser Wichtigkeit sein wird, um dich hinsichtlich dir selbst immer in psychologischer Weise richtig zu bilden und zu verhalten.
+77. Es wird aber auch sein müssen, dass du die psychischen Regungen der Menschen richtig zu erkennen und zu
+
+beurteilen vermagst, wodurch du dich einerseits selbst vor Schaden bewahren, anderseits jedoch ihnen auch Lebenshilfe und Verhaltenshilfe sowie psychische Gesundungshilfe leisten kannst, wenn die Notwendigkeit dazu besteht und du nach Hilfe gefragt wirst, doch vermesse dich niemals in der Weise, dass du diesbezüglich von dir aus
+Hilfe anbieten würdest, denn dies würde nicht erwünscht sein.
+78. Also wirst du durch diese meine Belehrung und Unterrichtung nach unseren Richtlinien zu viel mehr Kennt
+nissen gelangen, als dir jedes irdische Psychologiestudium zu bieten vermöchte.
+79. Deine Psyche hast du derart unter Kontrolle bringen, dass du auch sehr schlimme Dinge ohne Schaden ver
+kraften und durchstehen kannst, denn das werden dein Leben selbst, wie auch deine Aufgabe, deine Erlebnisse
+sowie all die Angriffe auf dich und dein Leben, wie auch alles Kommende fordern, folglich du auch das alles zu
+verkraften hast, was dir Frau Horat, die Behörden der Gemeinde und des Kantons samt allen Untergebenen, der
+Polizei usw. künftig antun und all die Energie deiner Psyche von dir fordern werden, dass du deine Mission erfüllen
+kannst, die sehr viel von dir abverlangen wird.
+80. Und es wird in deinem Leben oft der Fall und notwendig sein, dass du über ein starkes Bewusstsein, starke
+
+kontrollierte Gedanken und Gefühle und eine starke, gesunde Psyche verfügst, denn es werden an dich Anforderungen gestellt werden, die normalerweise ein Mensch nicht zu verkraften vermag.
+81. Es wird sich sehr viel in deinem Leben ergeben, weil du weitab deiner Heimat ein abenteuerliches und nicht
+
+ungefährliches Leben führen wirst, ehe du nach vielen Jahren heimkehrst, sesshaft wirst und deine Arbeit und Mission beginnst, die jedoch nicht leicht, sondern mit viel Arbeit und bösartigen Angriffen gegen dein Leben und mit
+Widerwärtigkeiten gegen dich und deine Missionsbemühungen sein wird.
+82. Nach aussen jedoch, und das muss ich abermals sagen und von dir fordern, sollst du gegenüber allen Erden
+menschen über alles und jedes Zukünftige Schweigen bewahren, denn es wäre einerseits gefährlich, offen darüber
+zu sprechen, was ich dir als Erklärungen und Voraussagen gelehrt und auch noch weiterhin zu lehren habe, weil ein
+Vorauswissen der Fakten bei den Menschen Angst und Entsetzen hervorrufen würde.
+83. Also kannst du über alles offen reden, was nicht solche Fakten des Schweigensollens betrifft, die Dinge auf
+zeigen, worüber ich dir schon Stillschweigen auferlegte und dies auch bezüglich weiterer Informationen zu tun habe,
+und zwar für alles, was ich dir während den nächsten 7 Jahren noch kundtun werde.
+84 Auch bei machtbesessenen Staatsführenden, wie bei jeder Art von bedeutenden Führungen, folglich also
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+auch bei Rassistenorganisationen, Religionisten aller Schattierungen, bei Priestern, Pfarrern und Theologen, bei
+Sekten und Wissenschaftlern sowie bei Kriminellen, Verbrechern und Widersachern jedwederlei Art, können
+Handlungen und Taten heraufbeschworen werden, durch die du und deine Aufgabe und Mission gefährdet werden
+können. Wenn du dazu einwilligst, dass ich alles durch Hypnose blockiere, was jemals in Bezug auf Zukünftiges von
+mir erklärt wurde, wie auch hinsichtlich deiner Kontakte mit mir und denen in aller Zukunft mit meinen Nachfolgern, dann kann ich das durchführen, worüber du dich jedoch später entscheiden kannst.
+85. Alles Wissen, wenn du darüber offen sprechen würdest, könnte zu weltweiten menschlich ausgelösten Kata
+strophen führen, was jedoch nie sein darf.
+86. Zu vermeiden wird aber trotzdem nicht sein, dass du von Antagonisten und Wundrigen sowie von Religio
+nisten und fanatischen Sektierern, wie ganz besonders durch Selbstherrliche, Besserwissende, durch Priester, Pfarrer und Theologen sowie Neider und Provitsuchende und Sichgrossmachende ausgefragt und belästigt wirst, wie
+auch Sektenbefangene und allerlei andere Widersacher dich der Lüge, des Betruges und der Scharlatanerie bezichtigen werden und du des Schwindels beschimpft wirst, wie auch durch Anschläge auf dein Leben versucht werden
+wird, dich im wahrsten Sinn des Wortes mundtot zu machen, um deine Mission zu schädigen, als unglaubwürdig
+darzustellen und zu zerstören.
+87. Es wird aber auch nicht zu vermeiden sein, dass dich Militär und Staatssicherheitsdienste überwachen und
+
+Böswillige dich bei Behörden, Geheimdiensten und Polizei durch Lug und Trug denunzieren werden, worauf du
+aber nicht achten, sondern einfach unbeirrt deine wichtige Arbeit und Mission führen sollst, die auch Erfolg bringen
+wird.
+
+**Edi**
+Was du sagst und du mir auch die letzten Jahre erklärt und gelehrt hast, das kann und konnte ich gut verstehen. Zu
+allem habe ich mir auch immer viele Gedanken gemacht, wobei mich manches auch in der Weise anregte, was sich
+letztendlich aus allem ergeben wird. Dies z.B., was sich letztlich durch das Kommende der schnell wachsenden
+Erdenmenschheit ergibt, die du schon mehrmals angesprochen und dazu gesagt hast, dass durch deren Benehmen
+der weltweite Terror und viele Kriege, Streit sowie Fehden entstanden sind und weiterhin entstehen werden, selbst
+wenn ich meinen letzten Weg gegangen bin. Ich spreche von vielartigen Auswirkungen der Politik und des Verhaltens der Erdenmenschen, dass durch diese viele Übel zustande kommen werden. Darum hast du mir auch aufgetragen, dass ich ab 1951 deine Erklärungen niederschreiben und als Warnungen weitherum verbreiten soll, doch denke
+ich, dass ich dafür noch vieles mehr zu erlernen habe, wie z.B. auch, was der Ursprung von allem ist, was in den
+kommenden Zeiten kommen wird. Auch in Bezug auf die weiter ansteigende Masse der Erdenmenschheit und
+allem, was sich daraus ergeben wird.
+
+**Sfath**
+88. Du hast recht und denkst wirklich über alles nach, weshalb du auch nach dem Ursprung der kommenden
+
+Geschehen gefragt hast.
+89. Die Masse der wachsenden Erdenmenschheit, welche Übel sich daraus zukünftig ergeben werden, darüber
+
+habe ich dir noch viel zu erklären.
+90. Jetzt aber will ich zuerst damit beginnen, was der Anfang oder eben der Ursprung sehr vieler in den kom
+menden nächsten fünfeinhalb Jahrzehnten an heillosen Dingen, Faktoren und schlimmen Geschehen sein wird, die
+sich auch weit in das nächste Jahrtausend hineintragen werden.
+91. Durch die Schuld der politischen, militärischen, wirtschaftlichen, wissenschaftlichen sowie aller Weltherr
+schaftssüchtigen sowie die ungeheuren verbrecherischen Machenschaften der USA wird schon nächstes Jahr weltweit viel unmenschliches Übel hervorbrechen und viel Unheil seinen Anfang nehmen.
+92. Durch das verbrecherische Tun der USA wird vielerorts auch Terrorismus entstehen, wie aber durch Le
+bensmittelkonzerne und infolge dem Erdressourcenraubbau auch vielartige Naturzerstörungen und Katastrophen
+die Lebensgrundlagen von Millionen von Menschen vernichten.
+93. Zum grössten Teil werden alle bösartigen Vorkommnisse, wie Kriege, blutige Aufstände und Bürgerkriege
+
+sowie heimtückische Geheimdienstoperationen, Revolutionen, Regierungsstürze, Massenmorde, Zerstörungen
+und Vernichtungen durch die USA heraufbeschworen. Das wird unzählige Private und Rassisten sowie Kriminelle,
+Drogensüchtige und Flüchtlinge sowie politisch Irregeleitete dazu animieren, mit Schiesswaffen und Messern usw.
+wahllos Mitmenschen zu attackieren und zu töten.
+94. Amerika wird weiterhin viel Übel, Not und Elend, wie aber auch tausendfältigen Tod über die Erde und die
+
+ganze Menschheit bringen, und von Amerika aus wird sich auch ein religiöses, wahnbedingtes Sektenwesen über
+die Welt verbreiten und Tausende Todesopfer fordern.
+95. Ab jetzt werden bis weit in die Zukunft des kommenden nächsten Jahrtausends reichende neue machtge
+steuerte politische, militärische und geheimdienstliche Machenschaften Amerikas zu Kriegen und Revolutionen
+sowie Terrorismus rund um die Welt führen, weil es neuerlich mit einem Atomprogramm und mit Atombombentests beginnen und auch andere Staaten zu gleichen Handlungen animieren wird, die dann in kommenden Zeiten
+heimlich bis weit ins nächste Jahrtausend weitergeführt werden, was sehr viele Menschen zur Flucht zwingen und
+vieles radioaktiv verstrahlen lassen wird.
+96. Aus dem neuen Atomprogramm der USA wird sich, eben was sich durch dieses weltweit ergibt, eine welt
+weite Atomspionage entwickeln.
+97. Im Laufe der Zeit werden infolge Spionage auch die Sowjetunion und China in den Besitz von Unterlagen
+
+für die Atombombentechnik gelangen und gleichermassen viele Tests durchführen, viele Gelände und Gewässer
+atomar verseuchen und in den Besitz der Bombenkenntnisse und Pläne gelangen, wie auch andere Staaten derselben habhaft werden und nukleare Waffen und Bomben herstellen werden.
+98 Die Spionage wird vehement betrieben werden. Um in den Besitz der Pläne und Unterlagen usw. bezüglich
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+der Atombombentechnik zu gelangen, wird diese jedoch auch von verschiedenen anderen Staaten bis zum Mord
+betrieben werden. Folglich werden in kommender Zeit und noch geraume Zeit vor dem Beginn des nächsten Jahrtausends in mehreren anderen Staaten nebst den USA, China und der Sowjetunion – die ab den 1990er Jahren
+wieder Russland genannt werden wird – nukleare Bomben hergestellt und grosse Lager von Atomwaffen angelegt.
+99. Die technische Entwicklung der Atomtechnik, die als Kernwaffentechnik bezeichnet und seit 1940 von Ame
+rika betrieben wird, beruht auf Forschungen, die bereits das NAZIreich unter Adolf Hitler betrieben hat, das heimliche Versuche tätigte, jedoch in Bezug auf einen Erfolg durch Amerika und Russland und deren Sieg über das
+Reich davon abgehalten wurde.
+100. Dadurch breitet sich jetzt eine allgemeine militärische Atomwaffenaufrüstung der Weltmachtstaaten aus,
+
+und zwar besonders der USA und der Sowjetunion, denen sich aber auch China und bald schon auch England,
+Frankreich und Kanada anschliessen werden, wie auch diverse andere Länder, auch wenn sie nicht derart weltmachtreich sein werden wie die USA und die Sowjetunion.
+101. Da seit jeher die westlichen Staaten, wie eben besonders Europa und die USA, altherkömmlich feindlich
+
+gegen das russische Imperium, russische Kaiserreich, russische Zarenreich gesinnt sind, wird dies zwischen allen
+Staaten zu einem Wettrüsten führen und dazu immer modernere Waffen erfunden werden. Zudem ergibt sich in
+diesem Jahrhundert noch ein kommender sogenannter Kalter Krieg, der jedoch schon früh im nächsten Jahrtausend
+endet und, wie üblich durch die Schuld von Amerika, einen Krieg auslöst, der durch Russland begonnen, jedoch
+effectiv durch die Schuld von Amerika zustande kommen wird. Verantwortungslos jedoch werden von Amerika
+und von vielen amerikafreundlichen Staaten Waffen und Geld zur Unterstützung an das Kriegsland geliefert, während der Krieg heimlich von Amerika via den kriegssüchtigen Präsidenten des Staates geführt wird. Dies löst eine
+grosse Gefahr aus, denn wenn die Staaten, die verantwortungslos Waffen liefern und den Weltherrschaftsambitionen Amerikas weiter Vorschub leisten, nicht zur Vernunft kommen, dass sie ihre Parteilichkeit und die Waffenlieferungen beenden, dann wird sehr Übles anstehen.
+102. Besonders in diversen Staaten werden unkontrolliert Atombomben erschaffen werden, so aber auch Was
+serstoffbomben resp. Plutoniumimplosionsbomben usw., die dann heimlich getestet werden und die ungeheuer viel
+Energie freisetzen. Dies in einer Form einer Explosion aus Kernreaktionen und durch Kernspaltungen oder Kernverschmelzung, wobei in dieser Beziehung die Kernforschung eine grosse Vielfalt unterschiedlicher Varianten hervorbringen wird.
+103. Und es werden zukünftig zur Abschreckung und Drohung viele Tausende solcher Bomben und andere nuk
+leare Waffen von den Weltmachtstaaten, eben besonders von den USA und der Sowjetunion resp. später von Russland, wie von fanatischen Religionsstaaten geschaffen, gelagert und in dieser Weise ein gefährlicher Zustand für die
+ganze Erde hervorgerufen werden, der bis nahe an das übernächste Jahrtausend unter einem bösen Zeichen eines
+drohenden weltweiten und weltzerstörenden Nuklearkrieges stehen wird.
+104. Und es wird vielmals in den 1970er und 1980er Jahren sein, dass durch Missverständnisse Atomkriege aus
+zubrechen drohen; einmal wird es durch eine Falschmeldung eines sowjetischen Spionagesatelliten sein, der Sonnenreflexionen auf Wolken aufzeichnen wird, die dann fälschlich als Start einer Atomrakete der USA gegen die
+UdSSR eingeschätzt und zur drohenden Gefahr eines sowjetischen Atomschlages werden wird.
+105. Infolge des atomaren Wettrüstens werden schon ab jetzt und auch später in den kommenden Jahrzehnten
+
+immer wieder weitere gefahrvolle Situationen durch Handlungsmissverständnisse, wie auch infolge Spionage und
+bewusste oder erfundene Falschmeldungen in Erscheinung treten, weil militärische Fehlalarme schon seit jeher
+gegeben sind, besonders seit dem Beginn des durch Amerika verbrecherisch hervorgerufenen atomaren Zeitalters,
+das bereits 1940 begonnen hat.
+106. Und solche Fehlalarme werden sich zukünftig immer wieder ergeben, weil in allen den fehlerhaften Vertei
+digungskonzepten der amerikanischen und sowjetischen Militärblöcke, wie auch gesamthaft in allen den Raketenfrühwarnsystemen aller Armeen eine sehr umfangreiche Fehlerhaftigkeit herrschen wird, die stetig Atomkriegsdrohungen und andere Gefahren usw. heraufbeschwören werden.
+107. Besonders grosse Gefahren werden in kommenden Jahrzehnten und weit bis ins nächste Jahrtausend entfal
+tet, wenn durch Angst, Dummheit und Unvernunft der Machtbesessenen, besonders durch die Führung von Amerika und deren intelligentumlose Berater, erhöhte Spannungen zwischen den USA und der UdSSR resp. später
+zwischen Amerika und Russland, heraufbeschworen werden, wobei jedoch, wie seit alters her üblich, die gefährlichen Aggressionen von den Vereinigten Staaten von Amerika ausgehen werden, die auch neuartige fliegende Zerstörungswaffen verbreiten und eine neuartige Kriegsführung hervorrufen werden. Dies, während sich die Sowjetunion resp. später das zukünftige Russland zurückhalten, jedoch misstrauisch bleiben und sich auch demgemäss
+verhalten wird.
+108. Das wird besonders auch dann zutreffen, wenn in den späten 1970er und 1980er Jahren eine lasch geführte
+
+Entspannungspolitik zusammenbricht, wodurch dann ein neues gegenseitiges und sehr starkes Misstrauen zwischen
+den beiden Weltmächten zustande kommen wird, das zu einem hohen und sehr gefährlichen Höhepunkt getrieben
+und zur weiteren und irren Aufstockung des Nukleararsenals führen wird, durch das die gesamte Erdoberfläche
+und alles Leben zerstört werden könnte.
+109. Und es wird sein, dass in vielen Fällen die Welt nur knapp einem Atomkrieg entgehen wird, wobei aber die
+
+verantwortlichen Machthaber der Welt nichts lernen, weshalb folglich an allem nichts geändert wird und 1949 der
+sogenannte Nordatlantik-Pakt gegründet werden wird, der auf der Basis der sogenannten Vereinten Nationen entstehen und zustande kommen wird, um angeblich ein globales System kollektiver Sicherheit zu schaffen.
+110. Der Nordatlantikvertrag verdankt dann seine Entstehung der am 26. Juni letztes Jahr in San Francisco statt
+gefundenen Unterzeichnung der ‹Charta der Vereinten Nationen›, die dann als ‹Verfassung der Staatengemeinschaft› gilt, womit auch ein westeuropäisches Bündnis und damit auch ein globales System kollektiver Sicherheit
+geschaffen werden sollte.
+111. Doch trotzdem wurde mit dem Ende des im letzten Jahr 1945 beendeten Weltkrieges keine Phase eines
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+weltweiten Friedens geschaffen, sondern ein Zustand, der kommend zu einem sogenannten ‹Kalten Krieg› führen
+wird, der bis zu einem bestimmten Zeitpunkt ein Faktor der zukünftigen politischen, militärischen und wirtschaftlichen Entwicklung werden und auch verschiedentlich zu einem atomaren Krieg auszuarten drohen wird.
+112. Infolge des Unvermögens des Staatsmechanismus Amerikas resp. der USA und der Sowjetunion – die als
+
+Grossmächte seit langer Zeit feindlich gegeneinander gesinnt sind, und zwar als einzige aller im letzten Weltkrieg
+mitgewirkten Staaten – verfolgen unterschiedliche militärische und politische Interessen.
+113. Dabei wurden und werden in der Regel amerikanische Forderungen an die UdSSR gestellt, die nur für die
+
+USA vorteilhaft sind, was sich weiterhin so erhalten wird, weil Amerika auf das bekannte Biegen oder Brechen
+absolut bedingungslos in seinem Weltherrschaftswahn alleiniger Bestimmer aller Weltgeschehen sein will.
+114. So werden beide Staaten, Amerika und die Sowjetunion – wie auch später Amerika und Russland – als vor
+herig Verbündete im durch Hitler und das NAZIreich ausgelösten Weltkrieg weiterhin zwischen sich Konflikte
+schaffen, die weiter zu Gegensätzen zwischen Amerika und der Sowjetunion führen werden, wobei die Feindschaft
+und diese Gegensätze seit dem Ende des Weltkrieges noch krasser und offener zutage treten, als dies früher war.
+115. Und diese Feindschaft wird nicht bei den USA und der UdSSR bleiben, sondern auch weit in der Welt in
+
+viele andere Länder hinausgetragen, greifen und Aufstände, Kriege, Revolutionen, Unfrieden und Terrorismus
+bringen und hervorrufen.
+116. Dabei wird auch sein, dass sich vielfach Amerika durch seine Religionsfanatiker, Militärkräfte und die Staats
+politiker, wie auch dessen Geheimdienste in fremde Händel sowie Probleme einmischt, um wie üblich weltherrschaftssüchtig und hinterhältig Staatsführungsumstürze zu erzwingen, zu provozieren und auch durchführen zu lassen. Folglich wird Amerika sehr viel Schuld an Kriegen, Terror, Zerstörungen und Umstürzen usw. tragen und auf
+diese Art niemals ein Staat des Friedens und der Rechtschaffenheit werden, solange es dem Weltherrschaftswahn
+frönt und durch diesen in aller Welt Tod, Verderben und endlos Angst verbreitet. Folgedem werden in anderen
+Staaten resp. deren Führungskräfte sowie gewisse Teile der Bevölkerungen durchwegs zu Scheinfreundschaften
+gezwungen und zu freundlichem Umgang mit Amerika, obwohl dieses abgelehnt wird, wobei jedoch die, die sich
+als Amerikafreundliche geben, nicht wagen, dies aus Angst offen zuzugeben, weil sie sich davor ängstigen, Nachteile
+einzuhandeln oder geharmt zu werden.
+117. Und da die Politikmacht Amerikas, nicht jedoch das Gros des Volkes selbst, weiterhin und hinterhältig ver
+deckend auf eine absolute Weltherrschaft tendiert, werden auch die amerikanischen Geheimdienste und die Militärmacht direkt sowie die Wirtschaft in fremden Ländern tätig und unternehmen dauernd Aktionen, die Kriege
+sowie verschleierte Terrorakte und Staatsführungsunterwanderungen durchführen und diese Staaten dann besatzungsartig unter Kontrolle halten.
+118. All das wird in allen Staaten der Erde von Amerikas Gnaden derart gehandhabt, wo sich die Militärs, Ge
+heimdienste und Spione sowie die Politik und Wirtschaft Amerikas einzunisten vermag, dass nachteilige politische,
+militärische und wirtschaftliche Nachteile für den betreffenden Staat entstehen, wie das Wirken Amerikas auch
+viele anderweitige schlimme Folgen zeitigt und alles zu Aufständen, Anarchismus, zu Aufruhr, Bürgerunzufriedenheit, Fremdenhass und Rassenhass sowie zu anarchistischen, tödlich und verbrecherisch geprägten politischen
+Gruppierungen und Pöbeln führt, die mordend ihrem Wahn des Terrormachens frönen werden.
+119. Es werden aber auch weltumspannende Terrororganisationen aufkommen, insbesondere in Arabien, deren
+
+fanatische religiöse Gründer durch amerikanische Militärs usw. zu Kämpfern ausgebildet werden, die dann Gleichgesinnte zum Terrorismus um sich scharen und sehr blutige religionspolitische Kämpfe sowie Morde und Zerstörung in die ganze Welt hinaustragen und Morde verüben sowie Terror verbreiten, wie sie auch erbarmungslos und
+gnadenlos unzählige Andersgläubige und zudem unschuldige Menschen bestialisch foltern und ermorden.
+120. Es werden aber, wie ich dir schon bei früheren Erklärungen darlegte, in den kommenden Zeiten und bis weit
+
+ins nächste Jahrtausend hinein durch Amerika in mehreren fremden Staaten aufkommende geheimdienstliche, militärische, kriminelle und verbrecherische, sowie auch kriegerische, terroristische und wie altherkömmlich umstürzlerische, politische und wirtschaftliche Machenschaften viele Staatssysteme zusammenbrechen lassen und teils zu
+Bürgerkriegen und Terroristenkriegen führen, wodurch sehr grosse und langanhaltende Flüchtlingsströme sowie
+fluchtartige Völkerwanderungen entstehen werden. Dabei wird die Öffentlichkeit niemals erfahren und auch nicht
+aufgeklärt werden, dass Amerika der Urheber resp. Drahtzieher des Ganzen sein wird, denn dies wird mit allen
+erdenklichen Mitteln verhindert werden, wobei auch Morde in einer Häufigkeit begangen werden, deren Zahl nicht
+berechnet werden kann, weil alles hinterhältig sowie geheim begangen werden wird.
+121 Aus allem wird sich ein sehr unerfreulicher und weitreichender Terrorismus entwickeln, wie auch ein nicht
+
+mehr zu stoppendes Flüchtlingswesen bis in weite Zukunft, das noch verstärkt werden wird durch die Dummheit
+und Unfähigkeit der Frau, die in Deutschland für lange Jahre die Führerperson sein wird, wie ich das bereits erwähnt habe.
+122. Mit der Zeit ergeben sich daraus sehr umfangreiche Flüchtlingsströme, die sich über die ganze Erde ausbrei
+ten und in 70 Jahren rund 80 Millionen Flüchtlinge umfassen werden, weil im neuen Jahrtausend die verantwortungslose naiv-kranke Machthaberin in Deutschland erst recht alles dazu beitragen wird, dass aus politisch, wirtschaftlich unterentwickelten, unsicheren kriegsbelasteten sowie oft dem Terrorismus verfallenen Staaten Millionen
+von Flüchtlingen nach Europa und Amerika strömen.
+123. Viele werden dabei nur der Bezeichnung nach wirkliche und des Lebens gefährdete Flüchtlinge sein, denn
+
+eine grosse Anzahl andere fliehen zu jener kommenden Zeit aus ihrer Heimat nur aus wirtschaftlichen, kriminellen,
+verbrecherischen und aus terroristischen Gründen, um in den Zufluchtsländern zu profitieren sowie kriminell und
+verbrecherisch zu handeln.
+124. Es werden aber auch in religiösem Sektenwahn Ausgeartete sein, die sich lügnerisch als Flüchtlinge in Not
+
+ausgeben, um als religiöse Terroristen in Zufluchtsstaaten zu gelangen, in denen andere Religionen und Sekten
+vorherrschen, um dort vor allem unter den an Krieg und Terror unbeteiligten und unschuldigen Andersgläubigen
+Tod, Unheil und Zerstörung zu verbreiten.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+125. Das Gros all der Staatsführenden und sonstig Verantwortlichen wird für die Abwendung der Massen Flücht
+lingszuwandernden jedoch machtlos und weitgehend auch unfähig sein, dem Aufkommen all der entstehenden
+Probleme in logischer, klarer sowie vernünftiger Weise zu begegnen, denn sie werden gegenteilig aller Vernunft
+falsche und unzureichende Entscheidungen treffen und Massnahmen aufbringen und beschliessen, die nutzlos sein
+und die Übel weitergehen lassen werden. Ausserdem werden vielfach die Zuständigen und Verantwortlichen
+scheinheilige Mitleiddenkende oder religiöse Leichtgläubige sein, weshalb nicht das Richtige getan werden wird,
+um die Flüchtlingsströme zu beenden.
+126. Dadurch werden sich die Problematiken und die Schwierigkeiten bezüglich der Handhabung der Flüchtlings
+massen und was deretwegen getan werden soll, erst recht hochtreiben und die notwendigen Lösungen erschweren,
+und zwar derart, dass letztlich Zwangsmassnahmen zu ergreifen sind, die in den nur dem Namen nach sogenannten
+Flüchtlingen Hass und Feindschaft säen, woraus Übeltaten in böser Ausartung hervorgehen werden.
+127. Jedoch wird nicht erst dadurch sich dann ergeben, dass zugewanderten kriminellen, terroristischen sowie
+
+verbrecherischen Elementen die Wege zu gesetzwidrigen Handlungen und Taten und damit auch zu Mord, Massenmord und Zerstörung geebnet werden, sondern es wird schon damit beginnen, dass die Dummheit der Frau in
+der deutschen Staatsführung die Wünsche dessen offenbaren wird, dass allen Flüchtlingen aus unterentwickelten
+resp. Entwicklungsstaaten das Recht eingeräumt werden soll, in den reichen Wirtschaftsstaaten des Nordens aufgenommen zu werden und ihnen auch Arbeit zu geben.
+128. Also werden zukünftig immer mehr und umfangreichere Probleme und Ausartungen entstehen, die sich
+
+durch böse Gewalt, Kriminalität sowie Verbrechen infolge des kommenden Flüchtlingsdesasters und des vielfältigen politischen, paramilitärischen, rassistischen sowie religiös und sektiererisch ausnehmend geprägten Terrorismus
+ganz besonders anfangs des nächsten Jahrtausends und weit darüber hinaus in Europa und auch in Amerika sowie
+nahezu weltweit ergeben.
+129. Und es wird sein und werden, dass dann nur noch durch sehr rigorose Massnahmen die gesamten Flücht
+lingsströme und Flüchtlingsprobleme gelöst werden könnten, wobei jedoch durch alle die Staatsführenden und
+sonstig Verantwortlichen die notwendigen Massnahmen und Schritte zu unternehmen und folglich richtige und
+greifende Massnahmen ohne Pardon, jedoch human, durchzuführen sind. Es werden erstlich aber keine richtige
+Entscheidungen noch Vorkehrungen getroffen, noch richtige Handlungen durchgeführt werden, folglich daher jedoch Besonnenheit gefragt und ein richtiges Handeln angesagt zu werden sein wird.
+130. Und dies wird so sein, weil die Erdenmenschen weder die Wirklichkeit sehen, noch alles richtig zu beurteilen
+
+vermögen, folglich die Probleme erstlich nicht gelöst werden, sondern sich noch vertiefen und mehren, wonach erst
+die Not das Denken und die Vernunft anregt und die richtige Lösung gesucht wird, was dann auch der Fall sein
+wird, wenn die Flüchtlingsströme bereits viel Übel gebracht haben.
+131. Durch alle Verantwortlichen wird aber erstlich nicht gesehen, was sich aus allem ergeben wird, weil sie ver
+standesarm und vernunftsmässig nicht dazu in der Lage sein werden, was daran liegen wird, dass ein Teil der Staatsführenden und sonstig ihre Verantwortung Schmähenden nur für sich selbst denken und handeln werden, wobei
+ihnen alles andere und damit auch das Wohl und Wehe der Mitmenschen völlig gleichgültig sein wird.
+132. Daher wird es zukünftig auch sein – und zwar insbesondere in Europa –, dass alle verschiedensten Sicher
+heitsorganisationen der durch das Flüchtlingswesen stark betroffenen Staaten nicht nur äusserst blauäugig, nachlässig und unbedarft sein, sondern lange Zeit die wirkliche Sachlage nicht erkennen werden.
+133. Also wird ihnen allen die Erkenntnis entgehen, dass mit den Flüchtlingsströmen eine sehr grosse Anzahl
+
+kriminelle und verbrecherische Elemente, wie auch politisch und religiös Radikalisierte sowie sektengesteuerte
+Mordelemente und zerstörungsbeauftragte Terroristen unter dem Deckmantel Flüchtlinge nach Europa und auch
+nach Amerika und in sonstig alle Zufluchtsländer eingeschleust werden, wo diese dann im Laufe der Zeit als Einzeltäter oder Gruppentäterschaft Tod, Unheil, Verderben und Zerstörung verbreiten werden.
+134. Andererseits wird ein anderer Teil von Verantwortlichen für Flüchtlinge derart lebensfremd sowie auch wirk
+lichkeitsfremd, unbedarft und naiv sowie mimosenhaft, schwach, schwächlich, verweichlicht, zerbrechlich, zimperlich und in Gedanken, Gefühlen und bezüglich der Humanität derart dumm und zudem kränklich sein, dass sie alles
+verharmlosen und erst recht alles dazutun, dass alle Übel weiter steigen und sich alle Probleme dadurch erst recht
+mehren werden.
+135. Und werden die Staatsführenden und die Politiker und sonstig Verantwortlichen überhaupt – die vielfach
+
+von der Wirtschaft gesteuert werden – auf komplexe und sehr wichtige Fragen angesprochen, werden sie immer
+oder meist nur kurze und nichtssagende Antworten geben, weil sie nicht tiefgründig zu denken vermögen, weil ihre
+intellektuelle Leistung in der Regel keiner Hochwertigkeit entspricht und auch kaum ein hohes Intelligentum verlangt werden wird, um staatführend zu werden.
+136. Diesbezüglich habe ich dir in den letzten zwei Jahren schon mehrmals einiges erklärt, wozu nun aber auch
+auszuführen ist, dass die rasant steigende Erdenmenschheitsbevölkerung zukünftig auch solche Aktivitäten hervorbringen wird, die sowohl politisch, religiös und sektiererisch als auch terroristisch bedingt sein werden, dass weltweit
+bösartige, mörderische und zerstörende Folgen hervorgerufen werden.
+137. Durch die unaufhaltsam steigende Übermasse der menschlichen Erdbevölkerung werden sehr schnell immer
+
+mehr Religionsgläubige und Sektengläubige wie auch mordlüsterne oder krankhaft tötende oder sonstwie ausgeartete Menschen in Erscheinung treten. Dies werden aber auch Menschen sein, die einem völlig ausgearteten, blinden,
+fanatischen sowie blut- und todfordernden Streben oder sonstwie einem Wahn verfallen sein werden.
+138. Und es werden sich besonders in Asien, Vorderasien, wie auch in Arabien und Afrika, jedoch auch in ande
+ren Regionen der Erde grosse religionsbezogene mörderische und organisierte Sekten bilden, die weltweit todverbreitend agieren und Angst und Schrecken verbreiten werden.
+139. Und das alles wird unabwendbar sein und sich ereignen, wie das Schauen in die Zukunft klar darlegt und sich
+
+die beginnenden Anzeichen dafür bereits zur heutigen Zeit ergeben.
+140. Der fanatische religiöse und sektiererische Glaube stellt in den kommenden Jahrzehnten und im nächsten
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Jahrtausend eine gefährliche Rückkehr der Religionen und Sekten dar, durch die üble und tödliche glaubensbedingte Auseinandersetzungen, Folter, Gewalt, Morderei, Kriege, Terrorismus sowie Unterdrückung, Vergewaltigung und Zerstörung ausgelöst werden.
+141. Die Wahrheit zeigt diesbezüglich auf, dass die Rolle von Religionen und Sekten ambivalent und also doppel
+deutig, verlogen, zwiespältig und zwielichtig sind und schwere Konflikte und Ansichtendifferenzen und also Meinungsverschiedenheiten, Streit und gar Kriege hervorrufen, wobei fanatische Glaubensfaktoren für viele bösartige
+Ausartungen und Wirkungen verantwortlich sein und grosse blutige Rollen spielen werden.
+142. Unter den Gläubigen der verschiedenen Hauptreligionen und deren beinahe unzählbaren Sekten herrschen
+
+seit alters her vielfach Gewalttätigkeit, Verfolgung, Hass und gar Mord, obwohl alle Religionen und deren Sekten
+Gerechtigkeit, Liebe, Frieden und Humanität predigen, was jedoch nichts anderem als einer Phrase der Verschleierung entspricht, und zwar derart, dass jede Religion und Sekte durch ihre Dogmen und ihren Glauben alle ihre
+Gläubigen der Welt in ihren Bann schlagen und ausbeuten können.
+143. Ausserdem soll dadurch den Gläubigen verheimlicht werden, dass sich wahrheitlich die Religionen und Sek
+ten untereinander feindlich gesinnt sind, was jedoch seit jeher vehement bestritten wird, und jede einzelne der Religionen und Sekten versucht hinterhältig den anderen Glaubensrichtungen die Gläubigen abspenstig zu machen.
+144. Genau so wird es auch in aller Zukunft sein, denn in den kommenden neuen Zeiten, und zwar noch vor dem
+
+Jahrtausendwechsel, wird es hinterhältig mit Radio durch eine heimliche und die Welt umfassende Planung und
+Durchführung konfessionsübergreifender Andachten, Gläubigen-Begegnungen, Gebetszirkeln und Gesprächskreise, Gemeindefeste und ‹Gottesdienste› usw. geschehen, dass alle Arten von Religionsgläubigen und Sektengläubigen und jeder Gläubige glaubensbetäubend damit konfrontiert werden wird.
+145. Doch auch blutige und todbringende religiöse und sektengesteuerte Machenschaften werden sich in aller
+
+Welt derart mehren, wie dies im kommenden Monat August geschehen wird, und zwar wie es im menschenreichen
+Indien der Fall sein wird, wenn in der Stadt Kalkutta infolge Regierungsstreitigkeiten zwischen den Islamgläubigen
+und Hindugläubigen bösartige blutige Auseinandersetzungen hervorgerufen und mehr als 2300 Menschenleben
+fordern werden wird.
+146. Und dies wird so weitergehen bis weit in das nächste Jahrtausend hinein, denn es werden wie seit jeher die
+
+Gläubigen der einen Religion und Sekten feindlich wider die anderen Religionen und Sekten gesinnt sein; die Christen und Juden gegen die Muslime, und umgekehrt, die Buddhisten gegen Hinduisten und umgekehrt, und alle anderen Religionsgläubigen und Sektengläubigen gegen andere Religionsgläubige und Sektengläubige.
+147. So wird diesbezüglich die Zukunft sein, und kommend auch im 21. Jahrhundert an vielen Orten der Welt, wo
+
+Folter und hunderttausendfach Gewalt, Mord, Tod, Unfrieden, Vergewaltigung und Zerstörung sein und Angst
+werden wird.
+148. Und dies wird gleicherweise so kommen durch Unvernunft und politische Parteilichkeit, wie auch durch den
+
+Hass, der durch grosse Teile der Bevölkerungen in jenen Ländern entstehen werden wird, in denen Flüchtlingsströme einwandern und die Flüchtlinge andern Glaubens als die Einheimischen sein werden.
+149. Die Folgen davon werden Fremdenhass, Glaubenshass, Religionshass und Sektenhass sowie Rassenhass sein,
+
+und im neuen Jahrtausend wird der Judenhass wieder neu und stark aufflammen, weil der in zwei Jahren gegründet
+werdende Staat Israel einen bösartigen mörderischen Geheimdienst erstellen wird, dessen Agenten dann gewissenslos Morde begehen und heimliche Attentate verüben, wie es auch in den Jahren des nächstens Jahrtausends in
+einem Krieg gegen die an Israel angrenzenden Araber getan werden wird. Dies, wenn von arabischen Kräften Krieg
+ausgelöst werden wird, wonach dann ein hassvoller israelischer Massenmörder seinerseits Krieg gegen die anliegende arabische Bevölkerung führen werden wird und diese durch einen Genozid ausrotten will. Dieser Krieg wird
+sich über andere Länder ausbreiten und Brandschatzungen, Gewalttaten, Hinterhältigkeiten, Mord, Totschlag, unmenschliche Handlungen und Taten sowie auch grosse Zerstörungen und hinterlistige Massenmordanschläge des
+kommenden israelischen Geheimdienstes hervorrufen.
+150. Und es werden sich in vielen anderen Staaten, besonders in Europa und in den USA, Fremdenhassgruppen
+
+und Rassenhassgruppen und gar grosse Rassenhassorganisationen bilden und ihr Hassgebaren in den jeweiligen
+Landesbevölkerungen ebenso verbreiten, wie alles auch in andere Staaten und in andere Bevölkerungen hinausgetragen werden wird, wo sich weitere und gleichartige Gruppen und Organisationen mit übler Gesinnung bilden, die
+sich dann auch grenzüberschreitend mit anderen Gleichgesinnten zusammenschliessen werden.
+151. Aus dem Fremdenhass und Rassenhass wird sich sehr schnell ein neuer Glaubenshass und Religionshass
+
+entwickeln, ein offener Hass gegen Andersgläubige, wie aber auch gegen sonst Andersdenkende, die sich nicht mit
+dem Fremdenhass, Rassenhass sowie nicht mit Religionshass verbinden, sondern Selbstdenkende bleiben und die
+sich als einzelne davon distanzieren werden wird.
+152. Also wird es kommen und sein, dass die Hassbesessenen und die Andersdenkenden und sich vom Hass Dis
+tanzierenden ebenfalls Gruppierungen und Organisationen bilden und sich gegen jede radikale Machenschaft bezüglich Feindseligkeit, Mitgefühllosigkeit, Rücksichtslosigkeit, Unmenschlichkeit und Unversöhnlichkeit usw. gegenüber Andersdenkenden und Andersgläubigen zur Wehr setzen werden. Doch diese werden ihre Gesinnung
+ändern und sich gegen das Übermass von Wirtschaftsflüchtlingen zu wehren beginnen, die – infolge unbedachter
+Animation einer Staatsgewaltigen in Deutschland – in die Wirtschaftsstaaten des Nordens der Erde eindringen, und
+zwar von unterentwickelten Staaten her. Die lange noch Gutgesinnten werden sich mehr und mehr feindlich gegenüber diesen Flüchtlingen stellen, und letztendlich führt alles dazu, dass alles des Flüchtlingswesens zu blutigen Auseinandersetzungen führt und bekämpft werden wird.
+153. Und schlussendlich wird es unvermeidlich sein, dass auch die Regierungen und die Sicherheitsorgane der
+
+Länder mit in diese Machenschaften hineingezogen werden, wodurch aus allem bürgerkriegsähnliche Zustände
+oder gar tatsächliche Bürgeraufstände entstehen können, wenn dem Ganzen nicht Einhalt geboten und Ordnung
+geschaffen werden wird.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+154. Viele dem Fremdenhass, Rassenhass, Religionswahn und Sektierismus Frönende werden einer unkontrol
+lierbaren Machtillusion und durch Anarchismus, Folter, Gewalt und Mord in ihrem Fremdenhass, Religionswahn
+und Sektenwahn, Rassismus und ihrem anderweitigen Wahngebaren einer Zwangsvorstellung verfallen, absolut des
+Rechtens zu sein, um Herr über Leben und Tod der Mitmenschen bestimmen zu können.
+155. Diesem Wahn werden den davon Besessenen grosse gleichgesinnte Anhängerscharen folgen und sich um
+
+diese sammeln, die dann zu Waffen und allerlei sonstig tödlichen Mitteln greifen werden, um damit weltweit Attentate und Terrorakte auszuüben und massenweise Menschen zu massakrieren, zu ermorden und vieles zu zerstören.
+156. Die grosse Masse der Überbevölkerung, die ich nun beim Namen nenne, wird es mit sich bringen, dass un
+abwendbare Arbeitslosigkeit, Not, Elend und immer grössere Armut, wie auch immer mehr gesetzliche und
+menschliche Ungerechtigkeit herrschen wird, wie es auch allesamt und gross kommt, dass der Erdenmensch in grossem Mass anfällig für Krankheiten werden wird, wie Krebs sowie Altersbeschwerden und Altersblödheit usw. Alles
+dies und sonstig Übles wird zukünftig mehr und mehr herrschen, wie viel Arbeitslosigkeit, wodurch unzählige Menschen beschäftigungslos und tatenlos in die Tage und in die Zeit hineinleben, keine geregelte Zukunft mehr haben
+und auch keine sehen und ihres aussichtslosen Zustandes überdrüssig werden. Und dadurch entsteht eine verantwortungslose Gesinnung bei vielen Menschen, und daraus auch grosse Kriminalität, was dann überhandnehmen
+und alles Diesbezügliche in horrender Weise übertrifft und viele Suizide hervorrufen werden wird.
+157. Dadurch wird ohne Zweifel kommen, dass sehr endlos viele meist junge und jüngere Erdenmenschen der
+
+Hoffnungslosigkeit verfallen und kriminell werden, wie sie auch politischen Verführern sowie religiösen und sektiererischen Hasspredigern und Terroristen, wie auch anderen verbrecherischen Propagandisten Gehör schenken
+und diesen rettungslos verfallen, so mancher Mensch dieserart sich dieses Übel aneignen, in sich steigern und
+dadurch verkommen werden wird.
+158. Alles Böse und Übel findet seinen Beginn und Ursprung in Religionsstätten, in Sekten, Familien sowie in
+
+Gruppen und kleinen und grossen Gemeinschaften, in Militärarmeen und durch öffentliche Organe mancherlei Art.
+Und es findet sich und wird geschehen mit neuen und modernen Techniken und Informationsmitteln, mit loderndem Fanatismus, durch Werber und Propaganda, wodurch einzelne Menschen oder ganze Gruppen oder Gemeinschaften durch dieses und jenes Unrechtschaffene indoktriniert werden. Dies, weil alles auf suggestivstarkem Anheuerungsgerede und Hassreden für Gewalt, Krieg und Terror basieren wird. Mörderische Attentate, wie auch
+Krieg, Mord, Totschlag und Selbstmordattentate und sonstig bestialische Ausartungen sowie ungeheure Kriege und
+Zerstörungen führen in die Zukunft bis ins nächste Jahrtausend und weiter, was sich absolut bewahrheiten und
+Wirklichkeit werden wird.
+159. Also werden in künftiger Zeit sehr vielfach auch Frauen in Kriege und Terror ziehen und unsagbar viel Leid,
+
+Elend, Schmerz, Unheil, Tod, Verderben und Zerstörung verbreiten. Waren es bisher die Männer, die ihre mörderischen und zerstörenden Ausartungen in Aufständen und Kriegen usw. zur Geltung brachten und ausübten, werden es zukünftig auch Frauen sein, die das blutige Handwerk des Tötens und Mordens ausüben werden, wie auch
+das sinnlose Zerstören von mühsam errichteten menschlichen Errungenschaften.
+160. Und je umfangreicher die Masse der Erdenmenschen anwächst, desto mehr werden hauptsächlich junge und
+
+jüngere Menschen keine Chancen für ihre Zukunft sehen und den irr nach Sektierismus, Attentaten, Folter, Krieg,
+Mord, Selbstmord, Tod, Verderben, Vergewaltigung und Zerstörung schreienden Machtbesessenen, Religionsfanatikern sowie Sektenfanatikern und Terroristenpredigern usw. glauben, folglich ihnen viele Menschen folgen und
+deren bösen Hetzreden und Lügenwerbungen hörig werden wird.
+161. In dieser Weise greift zukünftig alles Diesbezügliche, wie auch alles Böse, Ausgeartete und Zerstörende und
+
+Vernichtende immer weiter und bösartiger um sich und weitet sich zu einem mörderischen Terror und gar zu todbringenden Terrororganisationen aus, die einerseits stark politisch, wie aber auch religiös und ganz stark und besonders hintergründig sektiererisch und diesbezüglich interessengesteuert und machtbestimmt sind. Dies im Hauptsächlichen durch das Christentum, den Islam und den Buddhismus.
+162. Und in religions-sektiererischer Art werden sich mehrere besondere Terrororganisationen bilden, die gross
+
+und mächtig sein werden, deren mörderisches und zerstörerisches Tun und Unwesen treiben besonders in verschiedenen islamischen Ländern, wie auch in Europa und in den USA und in Asien viele Tausende Menschenleben
+fordern werden.
+163. Diese mörderischen sektiererischen Organisationen werden infolge falscher Auslegung und falschem Ver
+stehen ihrer Mutterreligion ohne Erbarmen und ohne Gewissen und völlig verantwortungslos mörderisches Unheil
+verbreiten, ohne jede Gnade und Menschlichkeit, wie auch ohne Nachsicht, und sie werden weltweit in vielen Ländern Tod und Verderben verbreiten und gar ganze oder grosse Teile von Ländern in ihre Gewalt bringen und terrorisieren, wenn ihnen nicht des Rechtens in massgebender Weise Einhalt geboten werden wird.
+164. Doch auch viele machtbesessene Diktatoren, Regierende und Militärs vieler Länder werden Tod und Zer
+störung hervorrufen, wodurch zukünftig vielfache Wechsel der Regierungsformen erfolgen, die jedoch durch Gewalt in Form blutiger und mörderischer Aufstände, Revolutionen und Regierungsumstürze einhergehen, was bereits bestimmt ist und unweigerlich kommen und werden wird.
+165. Mit Kriegshandlungen werden viele Staaten konfrontiert werden, doch allen voran wird Amerika stehen, das
+
+sich, wie seit alters her, politisch, militärisch und geheimdienstlich rund um die Welt in krimineller, verantwortungsloser und verbrecherischer Form weiterhin – wie schon immer seit seinem Bestehen – in fremde Landesbelange
+einmischen und nach Weltkontrolle und Weltherrschaft streben.
+166. Aber auch angeblich volksnahe Obrigkeiten und Gerichte werden mit Blut, Folter und Tod handeln, und
+
+zwar indem sie über Menschen mörderisch richten und diese rachevoll der Todesstrafe überantworten, wie dies z.B.
+auch morgen Montag in Hamburg, in Deutschland, der Fall sein wird. Dort werden 11 Menschen zum Tod verurteilt,
+weil sie sich während des Krieges als Konzentrationslagerwächter schuldbar machten. Folgedem geschieht es aber
+durch die dafür  zuständigen Richter, dass weiterhin gemordet werden wird, anstatt dass richtigerweise allen der
+11 Schuldigen lebenslang die Freiheit entzogen und sie solcherweise bestraft würden.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+167. Und diesen Todesurteilen werden durch alliierte Militärgerichte in Deutschland noch viele andere gleicher
+art folgen, und zwar nicht nur infolge Kriegsverbrechen und Mord, sondern auch aus vielerlei anderen Gründen in
+Bezug auf Verbrechen.
+168. Auch in vielen anderen Staaten rund um die Welt werden Menschen zu Todesstrafen verurteilt und dieser
+weise ermordet – gestützt durch die Gesetzbarkeit –, folglich Menschen dem Tod überantwortet werden, weil keine
+Menschlichkeit und keine Gerechtigkeit herrschen, sondern nur diktatorische, blutrünstige Gesetzgebungen,
+wodurch die Freiheit und der Frieden der Menschen eingeschränkt sind, werden oder gar vollständig fehlen. Dies,
+weil Todesdrohung herrscht und die Menschen durch die Todesstrafe zum Morden animiert werden und sich tief in
+ihrem Charakter nicht Menschlichkeit, sondern Racheambitionen und Vergeltungsdrang festkrallen und bei jeder
+noch so geringen Gelegenheit zum Ausbruch kommen.
+169. Und was all den Staaten der Erde besonders Amerika vornweg hat, das ist in Bezug auf die Todesstrafe,
+
+wobei es auch nebst vielerlei anderen Beziehungen vieles tut, was nicht an die Öffentlichkeit gelangt, wie auch nicht,
+dass es seit dem Weltkriegsende letztes Jahr auch viel Nutzen aus vielen NAZIverbrechern und auch aus NAZIkriegsverbrechern zieht. Dies, wie z.B., dass sehr viele der im Krieg und im NAZIreich in verschiedenen Fachrichtungen tätige NAZI-wissenschaftler vom amerikanischen Militär nach Amerika abtransportiert wurden, um
+fortan in Amerika für dieses mit ihrem Wissen und Können tätig zu sein, was jedoch verschwiegen wird. Dies darum,
+weil Amerika durch das Wissen und Können all der vielen NAZIwissenschaftler Nutzen gewinnt, was dazu führen
+wird, dass Amerika sich in 15 Jahren befähigt werden wird, in den Solarraum über der Erde zu gelangen, um dann
+in späteren Jahren auch zum Mond hoch zu gelangen. Auch die Sowjetunion wird das gleiche tun und noch vor
+Amerika erstlich in einen Orbit um die Erde gelangen.
+170. Viele dieser Wissenschaftler, oder wie du einmal sagtest, NAZIverbrecher, wurden durch die amerikanischen
+
+Militärs als Fachkräfte für die Entwicklung neuer Waffentechniken aller Art und besonders auch für die Raketenbauentwicklung nach Amerika transportiert, um, wie ich sagte, dort für die Entwicklung von allerlei geheimen Waffensystemen, Raketensystemen sowie auch Flugzeugsystemen eingesetzt zu werden
+171. Also wurden und werden diese kriegsverbrecherischen Elemente – von denen schon jetzt mehr als 1500 Fach
+leute und Wissenschaftler mit NAZIhintergrund in Amerika sind, denen aber noch viele andere folgen werden und
+die alle durch ihre Erfindungen und Entwicklungen den USA zur grössten Weltmachtstellung verhelfen müssen –
+nicht zur Rechenschaft gezogen, sondern in Sonderstellungen eingesetzt und mit Sonderrechten ausgestattet, wie
+ihnen aber auch staatlicher Schutz gewährt wird.
+172. Aus dem verantwortungslosen Handeln, Wirken und den Verbrechen durch die nahezu gesamthafte irdische
+
+Menschheit erleiden der Planet, die Atmosphäre, das Klima, das Land und die Gewässer sowie die Natur Zerstörungen, Ausbeutungen sowie die Fauna und Flora gar sehr horrende Ausrottungen, die sich mehren und gar auf
+mehrere Zehntausende pro Jahr steigen. Und neuerlich werden massenweise neue Gifte und sonstige neue Giftstoffe erfunden, die weltweit zur Bekämpfung von unerwünschten Pflanzenschädlingen in die Natur ausgebracht
+werden, die jedoch langfristig nicht nur das ganze Erdreich sowie die Atmosphäre und alle Gewässer vergiften,
+sondern auch krankheitserregend auf die Erdenmenschen wirken, was unweigerlich kommen werden wird. Dies,
+wie auch durch machtbesessene und verantwortungslose Regierende, Militärs und Wissenschaftler usw., wie jedoch
+auch durch das Gros der Bevölkerungen sowie viele Konzerne und Firmen aller Art zukünftig weltweit in allen
+Staaten verantwortungslose und zerstörerische Arbeiten und Machenschaften verrichtet werden, die den Planeten
+und die Natur sowie deren gesamtes Leben aller Gattungen und Arten drangsalieren, übel schädigen und gar ausrotten, was in weltweiter Art und Weise in Erscheinung treten und aufkommen sowie absolut unwiderruflich kommen und werden wird.
+173. An vorderster Stelle werden diesbezüglich die Vereinigten Staaten von Amerika sowie Europa mit der Pro
+duktion und Anwendung solcher Gifte stehen, um sie auch profitmachend weltweit zu verbreiten, wobei dadurch
+alle Staaten der Erde mit Giftstoffen aller Art sozusagen überschwemmt werden. In erster Linie aber wird nämlich
+Spionage bezüglich der Entwicklung und Nutzung der Kernwaffen betrieben, und zwar schon seit rund einem Jahr.
+174. Schon Forscher und Wissenschaftler des NAZIreichs versuchten seit 1938 und neuerlich während der Zeit
+
+des beendeten Weltkrieges und so nach dem ungeheuren amerikanischen atomaren Verbrechen in Hiroshima und
+Nagasaki, moderne Waffensysteme zu entwickeln, jedoch ist dabei bisher glücklicherweise keine brauchbare Kernwaffe zustande gekommen, sonst wären die Erde und die Menschheit in eine atomare Katastrophe gestürzt worden.
+Doch es kommt unweigerlich so, dass die weltweite Spionage von Erfolg gekrönt sein wird und diverse Staaten in
+den Besitz der Atomformeln kommen werden.
+175. Nichtsdestotrotz wird durch die Schuld Amerikas und jener Länder, die künftighin fleissig Amerika nachei
+fern werden, sich weltweit eine Katastrophe ausbreiten, wozu aber eine besondere Erklärung notwendig ist, die ich
+dir nun nennen will, wobei ein NAZI-Kriegsverbrecher namens Kammler und sein Handeln zu erwähnen von besonderer Bedeutung sind.
+176. Kammler ist – noch – ein gewissenloser und sehr präziser, logischer und äusserst berechnender Denker, ge
+lernter Architekt und Ingenieur, und ihm war schon zu Beginn des im Jahr 1939 begonnenen Krieges klar, dass
+dieser nicht zu gewinnen und ein Sieg gegen die Weltmächte Amerika und Sowjetunion gesamthaft aussichtslos
+war, weil Hitler und seine ihm Ergebenen die Weltmächte Amerika und Sowjetunion und jene, welche sich mit
+diesen verbündeten, bezüglich des gesamthaften Waffenarsenals und Streitkräftepotentials sehr weit unterschätzten.
+177. Schon von Anfang an war es Kammler klar was zwangsläufig kommen wird, denn er durchschaute von An
+fang an alles und wusste auch, dass er durch ein rücksichtsloses Mitwirken beim NAZI-Regime seine grosse Chance
+nutzen konnte, seinen Machtwahn ausleben zu können, wobei er auch schon den Gedanken hegte, mit wichtigen
+Unterlagen des Forschungsmaterials usw. zum Feind überzulaufen, wenn die Kriegssituation für ihn gefährlich werden würde.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+178. Folglich fügte er sich berechnend in alles ein, jedoch nur, um seiner Machtausübung willen und darum, sich
+
+zu einer mächtigen NAZIgrösse hochzuschwingen und damit zu einem der mächtigsten Männer des NAZI-Regimes
+emporzuarbeiten.
+179. Also war er schon von zu allem Anfang und Beginn des Hitleraufkommens in der Art ein Verräter an Hitler
+
+und am Dritten Reich, weil er seinem Sinn nach nicht für diese, sondern nur für sich selbst und sein Machtgebaren
+wirkte.
+180. Kammler war nebst seinem Verrätertum schwer persönlichkeitsgestört, was er jedoch gegenüber anderen
+
+Menschen, mit denen er zu tun hatte, durch seine Schauspielkunst routiniert zu überspielen und zu verheimlichen
+wusste.
+181. Dadurch war es ihm möglich, schnell zum SS-Obergruppenführer und General der Waffen-SS der NAZI
+Diktatur sowie als Machtbesessener und zudem äusserst kaltblütiger Massenmörder, wie auch gewissenloser Judenhasser und Rassist sondergleichen, wie aber auch als bösartiger Hassbesessener gegen Menschen allgemein zu einer
+wichtigen NAZIgrösse aufzusteigen.
+182. Er wurde auch für das Düsenflugzeugprogramm zuständig, sowie auch für all die sehr zahlreichen unterirdi
+schen Rüstungsfabriken, die gemäss Hitlers Befehl auch die Produktion der Flügelbomben V1 und der ballistischen
+Raketen V2 produzieren mussten.
+183. Doch als das Kriegsende kam, schob Kammler, um seiner persönlichen Sicherheit willen, alle seine ausgeübte
+
+Macht von sich, bemächtigte sich zudem mit Hilfe von zwei Vertrauten, die am Programm der Kernwaffenforschung
+arbeiteten, geheimer und äusserst wichtiger Pläne in Bezug auf die Atom-Forschungsaufzeichnungen.
+184. Diese bezogen sich auf ein Kernspaltungsprojekt und Uranprojekt, das nach der deutschen Entdeckung der
+
+Kernspaltung 1938 in Deutschland bis zum Weltkriegsende geheimerweise betrieben wurde, wie Hitler es befohlen
+hatte.
+185. Dieser erteilte persönlich den Befehl, die Kernspaltung technisch voranzutreiben und nutzbar zu machen,
+
+um diese zu einer weitum verheerenden und alles zerstörenden Kernwaffe zu entwickeln.
+186. Die diesbezüglich äusserst geheimen Forschungen wurden sehr weit vorangetrieben und waren den gleichar
+tigen noch in den Anfängen steckenden und geheimen Forschungen und Entwicklungen Amerikas um rund 17
+Jahre weiter voraus. Zwar waren den fleissigen deutschen NAZI-Wissenschaftlern einige Erfolge beschieden, die
+jedoch bis Kriegsende keine Erfolge in der Hinsicht brachten, dass sie eine funktionierende Atombombe oder sonstige Kernwaffe hätten herstellen können.
+187. Eigentliche Kernwaffentests blieben der NAZI-Diktatur also versagt, weshalb nur zwei kleine Explosions
+versuche durchgeführt werden konnten, die jedoch nur mit minimalem Erfolg zu bewerten und also nicht von nennenswerter Bedeutung waren.
+188. Auch gelang es den Wissenschaftlern nicht, auch eine wirklich nukleare Kettenreaktion in einem Reaktor
+
+herzustellen, weil es trotz aller sehr umfangreichen Baubemühungen nicht gelang, entsprechend nutzbare Reaktoren zu verwirklichen.
+189. Nichtsdestotrotz jedoch waren die Forschungen sehr weit fortgeschritten, zwar nicht derart erfolgreich, dass
+
+ein befriedigendes Resultat einer Verwirklichung nahegestanden hätte, doch war alles plangerecht weit entwickelt,
+worüber wertvolle Aufzeichnungen und Pläne bestanden, die Kammler mit Hilfe seiner zwei Vertrauten an sich
+bringen konnte, nebst nahezu 68 Kilogramm waffenfähigem Uran, das geheimerweise gefertigt wurde.
+190. Mit allen gestohlenen notwendigen Unterlagen und dem Uran versehen gelang es ihm, sich den Amerika
+Geheimdiensten zu stellen und diesen alles zu übergeben, wobei er die Hoffnung hegte, willkommen geheissen,
+geschützt und nicht vor ein Kriegstribunal gestellt zu werden.
+191. Tatsächlich war er entgegen seinem wirklich hohen Intelligenzgrad und seiner Gerissenheit in dieser Bezie
+hung mehr als nur naiv, sondern abartig-dumm hoffnungsvoll und dachte, dass er als Überbringer der gestohlenen
+geheimen Forschungspapiere, der Ergebnisse, Pläne und dem Uran als wertvoller Überläufer geschätzt, nach Amerika gebracht und von den Amerikanern geschützt werden würde.
+192. Doch diese wussten, dass er einer jener schlimmsten NAZI-Kriegsverbrecher war, denen Massenmorde an
+gelastet wurden und denen nicht zu trauen war.
+193. Folglich wurde er verhaftet, als er sich den Geheimdiensten stellte, ihm all seine entwendeten geheimen Auf
+zeichnungen und Pläne und das Uran weggenommen wurden, um ihn dann als gefährlichen und verräterischen
+Gefangenen nach Amerika in ein Gefängnis zu bringen.
+194. Die Amerikaner wussten in Bezug auf die eigenen Kernspaltungsforschungen und eigenen Bemühungen also
+
+Bescheid und kassierten natürlich von Kammler das gestohlene Material, wobei sie keinerlei Ahnung davon hatten,
+dass sich das NAZI-Reich mit der Nuklearforschung beschäftigte. Das Ganze, dass Amerika in den Besitz der
+NAZI-Nuklear-Forschungsmaterialien gelangt war, bevor die Sowjetunion vorgezogen werden konnte, war für sie
+wohl später diesbezüglich nicht erfreulich, denn sie gewannen nicht alle wichtigen Erkenntnisse der NAZIwissenschaftler, deren Wissen sie ebenso gerne habhaft geworden wären, wie eben die Amerikaner diese sich aneignen
+konnten.
+Dass sich die Amerikaner in Bezug auf die Pläne gesamthaft auch das Wissen um das nazistische Rüstungswissen
+und den Entwicklungsvorsprung in der Düsenflugzeugfertigung sowie der Raketentechnik sichern konnten, und
+dass in Bezug auf die fortschrittlichen Techniken der NAZIs die Amerikaner schockiert waren, das wurde natürlich
+verschwiegen.
+195. Also jagten die Amerikaner nach weiteren Plänen, Aufzeichnungen, Wissenschaftlern und Forschern sowie
+
+Teilen von ganzen nuklearen Plänen und den Produktionsplänen. neuer Techniken der NAZIs, um sich das NAZIKnow-how zu sichern, ehe alles der Sowjetunion in die Hände fallen konnte.
+196. Dazu brauchten sie natürlich auch Kammler, der ihnen mit seinem Wissen und seinen Aufzeichnungen und
+
+Plänen sowie dem übergebenen Uran äusserst willkommen war, jedoch nicht nach seinem Sinn, denn nach seiner
+Verhaftung im Monat Mai letzten Jahres wurde er als Gefangener nach Amerika gebracht und wird seither in einem
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Hochsicherheitstrakt eines Gefängnisses festgehalten, wo er seither immer wieder während Stunden verhört, dies
+ihm aber schlussendlich zu viel wird und er im Laufe des nächsten Jahres sein Leben durch Selbstmord beenden
+wird, wie ich in einer Vorausschau gesehen habe. Das wird alles geheimgehalten und folglich niemals der Öffentlichkeit preisgegeben, sondern immer bestritten werden.
+197. Doch dass Amerika aus den von Kammler erhaltenen Forschungsaufzeichnungen, Ergebnissen, Erkenntnis
+sen und Plänen und dem waffenfähigen Uran für ihre eigenen Forschungen, Pläne und Experimente usw. grossen
+Nutzen gezogen hat, das steht absolut und einwandfrei fest.
+198. Nur durch das ihnen durch Kammler zugespielte, gewonnene fortschrittlichere Wissen der NAZI-Kernspal
+tungsforschung konnte der auf dem Gelände der White Sands Missile Range in der Nähe der Stadt Alamogordo,
+New Mexico, von den USA unter dem Namen Trinity-Test resp. ‹Dreifaltigkeit› durchgeführte erste Atombombentest erfolgen und dann die zwei Atombomben gebaut werden, die auf Hiroshima sowie Nagasaki abgeworfen
+wurden.
+199. Und diese verantwortungslosen und verbrecherischen Ungeheuerlichkeiten an der gesamten Menschheit,
+
+dem Planeten, der Atmosphäre, der Natur sowie an der Fauna und Flora, an allem Land und allen Gewässern sowie
+am Klima, findet noch dieses Jahr Fortsetzungen, denn die verbrecherischen atomaren Tests Amerikas werden
+weitergeführt.
+200. Also wird es auch nicht beim Atombombenabwurf auf die japanischen Städte Hiroshima am 6. August und
+
+Nagasaki am 9. August und deren Zerstörung letztes Jahr bleiben, was mehrere Hunderttausende von Menschenleben und unzählige verwundete und atomar verstrahlte Menschen gefordert hat.
+201. Und alle daran verbrecherisch beteiligten und befürwortenden verantwortungslosen und in ihrer Gesinnung
+
+entmenschten Elemente wähnten und wähnen in ihrem Wahn weiterhin, sich im Recht zu befinden und in ihrer
+verbrecherischen und menschenverachtenden Weise richtig gehandelt zu haben und auch weiterhin so handeln zu
+müssen.
+202. Also werden dieserart wie bisher von den USA im kommenden Monat Juli zwei neue Kernwaffentests durch
+geführt, und zwar auf dem Bikini-Atoll, das schon vor sechs Jahren völlig verstrahlt wurde und das ab 1950 neuerlich
+für Kernwaffenversuche missbraucht werden wird.
+203. Schon durch den ersten Atombombentest und die nuklearen Bombenabwürfe wurde ein ungeheuerliches
+
+Verbrechen an der Erdenmenschheit, am Planeten, an der Natur und deren Fauna und Flora, wie auch in Bezug
+auf die Atmosphäre und das Klima begangen. Das wirkt sich nun zusätzlich zu all den zahllos vielen negativen und
+zerstörerischen Machenschaften der Erdenmenschen planetarisch und naturmässig vernichtend und ungewöhnlich
+schnell zu einem sich nunmehr in den nächsten Jahrzehnten auswirkend kommenden Klimaumsturz aus. Dieser
+wird besonders ab Beginn des nächsten Jahrtausends ungeheure Hochwassermassen in aller Welt bringen – also
+auch in Europa –, wie alles auch viele Menschenleben fordern und ungeheure Zerstörungen hervorrufen werden
+wird. Und mit den neuen Atombombentests – auch anderswo auf der Erde durch andere Staaten, sowie durch unverhoffte Atomunfälle und Versagen von Sicherheitssystemen bei Atomkraftwerken, die kommend erstellt werden
+– wird das Ganze sich sehr bösartig auf die gesamte Natur, das Klima und allesamt auch auf die Pflanzenwelt und
+auf alle Lebewesen zu Land und Wasser auswirken, wie Mutationen hervorgebracht und Gegenden Hunderte und
+gar Tausende von Jahren durch atomare Verseuchung unbewohnbar werden.
+204. Dies alles nebst dem, dass unzählige Menschen durch radioaktive Verstrahlungen erkranken und sterben
+
+werden, was in dieser Weise auch staatlich und verbrecherisch genutzt werden wird, um für gewisse Religionssektiererorganisationen, die Politik und Geheimdienste sowie Diktaturen und Militärs usw. unliebsam werdende Menschen zu ermorden.
+205. Besonders durch Amerikas und anderer Staaten Geheimdienste diverser Staatsführungen werden vielerlei
+
+solche Verbrechen hervorgerufen und weitergetrieben, wie aber auch durch andere Staaten Verbrecherorganisationen hochgezüchtet werden, wie dies auch in rein privater Weise geschehen wird, besonders islamisch fundiert, wie
+dies schon seit alters her hinsichtlich Sektierismus jeder Art und von Verbrechen der Fall ist.
+206. Und die Verbrechen an der gesamten irdischen Menschheit werden durch die Vereinigten Staaten von Ame
+rika infolge der staatsführungsbedingten Weltherrschaftssucht immer mehr durch Kriegseinmischungen weitergeschürt, wie diese schon seit Entstehung Amerikas geschehen sind und zur Teilausrottung der im Land Amerika
+angestammten indigenen Völker resp. der Indianer geführt, wie aber bisher durch verbrecherische Weltherrschaftseinmischungen in Form von Krieg usw. Hunderttausende und gar Millionen von Menschenleben gefordert hat. Allein schon wie es letztes Jahr verbrecherisch durch die Atombombenabwürfe am 6. August auf Hiroshima und am
+9. August auf Nagasaki geschah, wobei diese beiden Städte völlig zerstört und Amerika von Gleichgesinnten und
+völlig verantwortungslosen Regierenden und Bevölkerungsteilen anderer Staaten gelobt und befürwortet wurde.
+Dies also von menschlich unwürdigen und ausgearteten Elementen, die in keiner Weise die Bezeichnung Mensch
+verdienen.
+207. Durch dieses ungeheure Atombombenabwurfverbrechen Amerikas auf Hiroshima und Nagasaki, das Hun
+derttausende von Menschenleben forderte, wurden nicht nur Menschenleben ermordet, denn es hat auch sehr viele
+Verwundete und Kranke gefordert, die durch den atomaren Ausfall verstrahlt wurden, infolge der Verstrahlung
+noch qualvoll sterben werden, wie viele andere noch ein schmerzvolles und qualvolles Dasein haben werden.
+208. Allein diesbezüglich ist Amerika eine Schande für die ganze Nation und gesamthaft für die gesamte irdische
+
+Menschheit.
+209. Nun werden also durch Amerika neuerlich Atombombentests durchgeführt werden, und zwar bereits im
+
+kommenden Monat Juli auf dem Bikini-Atoll, und diesen verbrecherischen Tests werden in den nächsten Jahrzehnten auch von verschiedenen anderen Staaten weitere atomare Tests folgen, folglich die Erde und deren Menschheit
+zukünftig auf einem gefährlichen mit Atombomben bestückten Planeten angstvoll mit der Drohung eines Atomkrieges leben wird.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+210. Aus meinen Vorausschauungen, die ich bis ins Jahr 2020 durchgeführt habe, weiss ich, dass von acht Ländern
+
+durch deren verantwortungslose und machtbesessene Staatsmächtige, ihre Berater, sonstig Machthabende, Forscher und Wissenschaftler ab dem allerersten und verbrecherischen Atomtest Amerikas bis zum Jahr 2020 mehr als
+2000 weitere atomare Bombentests angeordnet und durchgeführt werden, wozu ich einige dieser zusammen mit dir
+beobachten werde.
+211. Gesamthaft werden sich auch diese äusserst nachteilig und zerstörend auf den gesamten Planeten und die
+
+gesamte Natur und deren Fauna und Flora sowie auf das Klima und die Atmosphäre auswirken, und zwar bis in die
+inneren Strukturen der Erde, was auch über viele Jahrzehnte hinweg und weit in die nächsten Jahrtausende hinein
+zu sehr vielen nachhaltigen und nachteiligen Auswirkungen der Erdtektonik und damit zu vielen schlimmen Erdbeben und Vulkanausbrüchen führen wird.
+212. Auch werden durch die folgenden atomaren Tests alle Strukturen der Natur und des Klimas derart geschädigt
+
+und nachteilig verändert, dass alles ausser Kontrolle gerät und nicht wieder regeneriert werden kann, folglich die
+Schädigungen weit in die folgenden Jahrtausende hinein ihre Wirkungen zeitigen werden.
+213. Doch es wird alles noch schlimmer werden, denn die Machtgier der verantwortungslosen Staatsmächtigen,
+
+ihrer Berater, Befürworter, Mitläufer, sonstig Machtbesessenen, der Militärs und Wissenschaftler sowie des religiösen und sektiererischen Gros der gläubigen, alles befürwortenden Bevölkerungen, wird fortan keine Grenzen in
+irgendwelcher Beziehung mehr kennen. Überall und in jeder Art der Lebensweise, des Benehmens, der Wünsche
+und Begierden, des Verhaltens, der Beherrschung, des Lernens und Wissens, der Arbeitsamkeit sowie in jeder
+Weise des anständigen Lebens werden in den nächsten Jahrzehnten Verfall und Verkommenheiten aufkommen,
+wie gewerbsmässig erlaubte Prostitution. So werden viele Ausartungen zur absoluten und gefährlichen Tagesordnung werden, wie auch durch die Weiterentwicklung der Technik für Krieg usw. tödlichere und vielfach unkontrollierbare zerstörendere Bomben und ‹intelligente› Waffensysteme, wie auch Raketen, Fernlenkwaffen und allerlei
+andere Waffen gefordert und entwickelt werden.
+214. Also werden besonders durch den Forschungs- und Machtwahn der Menschen neue Not, neues Elend, Tod,
+
+Untergang, Vernichtung, Verderben und höchstmögliche Zerstörung bringende Bomben, Raketen, das Ziel selbstsuchende Flugsprengkörper und sonst vielerlei andere sowie gefährliche und tödliche Waffensysteme technischer
+und chemischer Art erschaffen, die Tod, Zerstörung und Verderben bringen werden.
+215. Dabei spielen bei erfinderischen und in Bezug auf Zerstörung und Mord gesinnungsmässig ausgearteten
+
+Menschen auch Wahngedanken der Angst mit, weil infolge dummer, feiger und krankhafter Feindangriffsvorstellungen mögliche eingebildete Aggressionen und Angriffe erwartet werden.
+216. Dies wird bei den sich feindlich gesinnten Atomweltmächten zu einer sinnlosen, krankhaft dummen und
+
+verantwortungslosen, unberechenbaren Aufrüstung mit Kernspaltungswaffen resp. Nuklearwaffen aller Art führen
+und damit zur Gefahr eines Atomkrieges, der alles Lebendige auf der Erde vernichten, zerstören und den Planeten
+zu einer toten Wüste machen könnte.
+217. Das Gros aller gegenwärtigen und zukünftigen Staatsgewaltigen, sonstig Staatsmächtigen aller Art und Staa
+ten, deren Berater, verantwortungslose Befürworter aus den Völkern und die sonstig Mächtigen, die Militärs und
+Wissenschaftler, die diesbezüglich mit dem Feuer spielen, sind derart irresponsibel, achtlos, gedankenlos, gewissenlos, gleichgültig, leichtfertig, pflichtvergessen, sorglos, gesinnungslos, rücksichtslos, skrupellos und zudem dumm
+und voller Angst und Feigheit, dass sie absolut unberechenbar sind und es auch in weiter Zukunft noch sehr lange
+sein werden. Dies darum, weil nur wenige Rechtschaffene und Verantwortungsvolle in die Staatführungen gewählt
+werden und so an die Regierungsgeschäfte gelangen. Oft putschen sich Unrechtschaffe in eigener Weise zu Diktatoren hoch und tyrannisieren das Volk.
+218. Also werden Amerika und andere Staaten neue atomare Tests anordnen, befürworten und noch vernichten
+dere atomare Bomben mit ungeheuer viel mehr Zerstörungspotential fordern, als gegenwärtig noch sogenannte
+Implosionsbomben oder Uranbomben es jetzt noch sind.
+219. Folglich wird das nächste Verbrechen nicht ausbleiben, das sich aus der atomaren Technik herausbildet, auch
+
+wenn es bis dahin noch lange dauern werden wird bis es geschieht, wenn keine Vernunft und Verantwortung bei
+den Erdenmenschen zu greifen vermag. Dann wird es als nächstes eine viel stärkere und der Uranbombe tausendfach überlegene Wasserstoffbombe sein, die erschaffen werden wird, wonach noch Schlimmeres in Planung steht.
+220. Also werden es noch weitere Kernwaffen und noch Schlimmeres sein, wie also viele andere Formen von
+
+tödlichen und zerstörenden Vernichtungswaffen, die bereits in den kommenden Jahrzehnten und auch im neuen
+Jahrtausend zukünftig entwickelt werden, so z.B. sogenannte Fusionsbomben und Neutronenbomben sowie sonstige Neutronenwaffen usw., wie jedoch ebenso unbemannte Flugkörper, die ferngesteuert und auf weite Distanzen
+Tod und Vernichtung sowie Zerstörung bringen werden. Dies, wie auch im neuen Jahrtausend nicht mehr Mann
+gegen Mann gekämpft werden wird, sondern die neue Art der Kampfführung wird hinterhältig auf weite Distanz
+sein. Und zur neuen kommenden Zeit werden auch Frauen das Handwerk des Krieges erlernen und sich kämpfend
+in die Kriege einmischen, folglich fortan dann sich das wiederholen werden wird, was bereits vor sehr langer Zeit
+dem Amazonenvolk eigen war.
+221. Alle kommenden Kriege auf der Erde werden die Flucht von vielen Millionen Menschen hervorrufen, wie
+
+dies schon letztes Jahr während und nach dem Weltkrieg mit zahlreichen Fluchtwellen aus diversen Staaten der Fall
+war. Denn diesbezüglich wird es sein, dass bis in die weite Zukunft des nächsten Jahrtausends noch viele weitere
+Kriege folgen und Menschen aus den Kriegsgebieten flüchten werden. Dabei wird oft Amerika durchwegs und
+ständig offen oder heimlich im Hintergrund der Hauptbeteiligte oder der anregende Grund oder gar der direkte
+Urheber sein, dass Kriege ausgelöst werden, wie es in den nächsten Jahrzehnten oft mancherorts der Fall sein wird.
+Dies z.B. auch nur 2 Jahrzehnte nach dem Beginn des neuen Jahrtausends, da Amerika seine Mörderorganisation,
+die in rund 2 Jahren durch Amerika gegründet werden wird, nach Osten verlagern will, trotz früherem Versprechen,
+dass dies nicht getan werde, was in rund 45 Jahren erfolgen wird. Das infolge des Versprechensbruches gegenüber
+dem der Sowjetunion nachfolgenden Russland, das deshalb kriegsmässig in ein Land einfallen wird, um in dieser
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+falschen Weise das ihm zustehende Recht zu fordern. Durch Amerikas Aufruf an viele andere Staaten jedoch, durch
+Finanzhilfe und Waffenhilfe usw. dem durch Russland kriegerisch angegriffenen Land beizustehen, werden rund
+50 Staaten dem hinterhältigen Begehren Amerikas Folge leisten, folglich der Krieg lange andauern sowie viele Tote
+fordern und grosse Zerstörungen hervorrufen wird.
+222. Und die Zeit des atomaren Geschehens auf dem Bikini-Atoll wird der eigentliche Zeitpunkt des Ursprungs
+
+der zukünftig weltweiten Fluchtwellen sein, die sich aus vielerlei Gründen, wie Dürre, Hunger, Armut, Kriege, Not,
+Elend, Arbeitslosigkeit und Terror usw., sehr weit bis ins 3. Jahrtausend hineinziehen und letztlich 250 000 000 bis
+350 000 000 Menschen umfassen werden. Und dass diesbezüglich alle die Industriestaaten des Nordens mit Flüchtlingen aus sogenannten unterentwickelten Staaten sozusagen überschwemmt werden, das wird, wie ich bereits erwähnte, auf eine Staatsführende in Deutschland zurückführen, die unbedacht eine ‹Willkommenskultur› proklamieren und das Volk das Ganze vielfach so nennen wird.
+223. Kriegsfreie, politisch, sozial und wirtschaftlich gutgestellte Staaten werden in kommenden Zeiten und beson
+ders im nächsten Jahrtausend mit Flüchtlingen überrannt werden, besonders ganz Europa und der amerikanische
+Kontinent.
+224. Das aber erklärte ich dir während den letzten 2 Jahren schon mehrmals, wie auch, dass zukünftig aus allen
+
+wirtschaftlich unterentwickelten Staaten mit unbestreitbar und unzweifelhaft armen, teils auch des Lebens bedrohten Flüchtenden, wie jedoch auch mit einfachen sogenannten Wirtschaftsflüchtlingen oder auch Arbeitsscheuen zu
+rechnen sein wird. Auch werden viele Betrüger, Kriminelle, Gangster, Mordgesindel, Kapitalverbrecher wie allerlei
+Schwerverbrecher und sonstige Straftäter sowie sonst allerlei Übeltäter, Kleinverbrecher und Terroristen mitziehen, die natürlich von den Behörden, Grenzbeamten, der Polizei und sonstigen Sicherheitsorganen der Zufluchtsländer nicht erkannt, eingelassen und dann als hilfsbedürftige Flüchtlinge anerkannt werden.
+225. Und die Anzahl dieser Flüchtlinge verschiedener Prägungen wird sich schon ab der heutigen Zeit von Jahr
+
+zu Jahr ständig steigern, nachdem die Staatsführende von Deutschland im nächsten Jahrtausend jedoch das gesamte
+Weltflüchtlingsproblem sehr rasch derart ausweitet, und zwar besonders in allen Staaten von ganz Europa – das
+ausser der Schweiz zu jener Zeit eine Union-Diktatur sein wird –, dass die Staaten der Flüchtlingsproblematik dann
+kaum mehr Herr zu werden vermögen. Diese werden nämlich im neuen Jahrtausend en masse in Europa eindringen, und zwar eingeschleust durch kriminelle Banden, die gegen Entgelt die Flüchtlinge in die gutgestellten und
+reichen Wirtschaftsstaaten bringen. Nicht wenige der Flüchtlinge finden auf ihrer Flucht den Tod, wenn sie verhungern, durch Strapazen oder Krankheit sterben, bei Schiffsfahrten ertrinken, wenn sie über Bord gehen, kentern und
+nicht schwimmen können.
+226. Infolge Not und Elend in Afrika, Krieg und Terrorismus in Asien oder im Nahen Osten und Orient werden
+
+grosse Flüchtlingswellen tatsächlich des Lebens bedrohter oder arbeitsuchender Flüchtlinge nach Europa kommen,
+wie jedoch auch viele Terroristen, Arbeitsscheue und Kriminelle, wie nur den Wohlstand suchende Elemente, vielartige Verbrecher, die ganz Europa unsicher machen werden und dieses überrennen.
+227. Und der wirkliche Ursprung dieser kommenden Flüchtlingsströme und all der stetig zunehmenden regel
+rechten Völkerwanderungen wird einerseits die unaufhaltsam in ihrer Anzahl steigende Masse der Weltbevölkerung sein, wie auch die Arbeitslosigkeit und die argen Aufstände, Existenzlosigkeit, wie auch Hunger, Krankheiten,
+Kriege, Fremdenhass und Rassenhass, wie aber auch Religionshass, Terrorismus, Verfolgungen, Seuchen und prekärer Wassermangel, wie sehr viele andere Faktoren, die in den Heimatländern der Flüchtlinge zu unlösbaren Problemen führen werden.
+228. Andererseits wird dazu aber auch das Weltmachtbegehren Amerikas beitragen, durch das gravierende kri
+minelle, verbrecherische, religiöse, sektiererische, politische und diktatorische, geheimdienstliche, militärische und
+wirtschaftliche Eingriffe in die verschiedenen Strukturen der asiatischen, afrikanischen sowie in die östlichen sowie
+arabischen, orientalischen und die armen afrikanischen Staaten erfolgen und daraus ungeheuer viel Unheil, Leid,
+Not, Elend sowie Unfrieden und Terrorismus erschaffen werden.
+229. Dadurch werden sich zukünftig sehr viele Menschen zu Feinden untereinander wandeln, wie auch immer
+
+mehr zur Lebensunfähigkeit und Gleichgültigkeit in jeder schlechten Weise werden, woraus auch Arbeitsscheue,
+Betrüger und Diebe entstehen, wie jedoch auch viele Kriminelle zu Einbrechern, Mordenden und Raubenden werden.
+230. Andere wiederum werden, wie schon von alters her, neuerlich von grenzenlosem Hass wider Bekannte,
+
+Freunde, eigene Familienangehörige und gegen Nachbarn, Andersgläubige, Fremde, Ausländer und andere Völker
+befallen.
+231. Der im NAZIreich gewaltig aufgebaute altherkömmliche Rassenwahn wider die Juden wird sich in erwei
+ternder Weise fortsetzen und weit ins nächste Jahrtausend hineingetragen, weil im Staat Israel, der demnächst gegründet wird, ein irrer Massenmörder die israelischen Militärs kriegsmässig auf die Araber hetzen wird, um diese
+durch einen von ihm ausgedachten Genozid weitestgehend oder nach Möglichkeit ganz auszurotten. Dadurch werden weltweit neuerliche Rassenwahnbewegungen und Judenhasser in Erscheinung treten, die nicht nur altherkömmlich im Islam fundieren, sondern auch verschiedenste im Christentum, wodurch schon zu alten Zeiten viele
+unschuldige Menschen ermordet wurden und dann auch neuerlich ermordet werden.
+232. Viele Menschen werden in den kommenden Jahrzehnten und ebenfalls weit ins nächste Jahrtausend hinein
+
+zu ausgearteten blindfanatischen Gläubigen und Hörigen von Religionen und Sekten und zu blutheischenden, entmenschten und auch zu mordenden Familienehrefanatikern, wie auch zu Mordwahngläubigen von weltweit agierenden religiösen sowie sektiererischen bösen Fanatikern gewissensloser Terrororganisationen.
+233. Und aus diesen gehen viele Mordtäter hervor, besonders ab den noch fernen jedoch kommenden 1990er
+
+Jahren und bis weit ins 3. Jahrtausend hinein. Dies ergibt sich dann als Einzeltäter oder in Gruppen und als Attentate, Mordaktionen sowie Selbstmordattentate, bei deren Verübung in verschiedener Art und Weise teils massenhaft unbeteiligte unschuldige Menschen – so Frauen, Kinder, Jugendliche und Männer jeden Alters – ermordet und
+jeweils oft ein Massaker erfolgen werden wird.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+234. In dieser Weise wird der Terrorismus weltweit um sich greifen und sehr viele Tode über unbeteiligte und
+
+unschuldige Menschen bringen, was zwar viele der irdischen Menschheit in ihren Gedanken und Gefühlen kurzzeitig betroffen, jedoch nicht wirklich nachdenklich machen wird, wie dies seit jeher so gewesen ist und weiterhin so
+bleiben wird.
+235. Selbst grauenvollste, mörderische und katastrophalste Geschehen und Vorkommnisse berühren, ergreifen
+
+und regen die Menschen in ihren Gedanken und Gefühlen wie seit eh und je nur kurze Zeit an – wenn überhaupt –
+, wonach alles wieder schnell vergessen werden wird, ohne dass ein eigentliches, tiefgründiges Aufwühlen und Erschüttern im Sinnen der Erdenmenschen zustande kommen wird, was wie seit jeher dazu führt, dass im Grunde
+gesehen nicht einmal in mindester Weise versucht werden wird, etwas gegen alle auftretenden bösen Übel und die
+auftretenden Verbrechen zu tun, um diesen effectiv entgegenzuwirken. Vom Gros der Völker wird nur scheinheilig
+mit leeren und kraftlosen Worten etwas gegen all die Übel getan, weil es ja nicht die Grosssprechenden selbst betrifft, sondern ihnen Fremde, zu denen sie keinerlei persönliche Beziehung haben.
+236. Und dies alles bezieht sich auch darauf, dass die Erdenmenschen gleichgültig in den Tag und in die Zeit
+
+hineinleben und sich keinerlei ernsthafte Gedanken bezüglich des Lebens, des Daseins und aller Geschehen, alles
+Existierenden sowie aller Lebenswichtigkeiten machen.
+237. Anderseits bezieht es sich auch darauf, dass in den kommenden Zeiten bis weit ins 3. Jahrtausend hinein sich
+
+infolge des schnellen Hinweggehens und Vergehens der Gedanken und Gefühle sowie der Gleichgültigkeit und
+Beziehungslosigkeit der Menschen untereinander sowie auch in Bezug auf schlimmste Geschehen und üble Tatsachen, wie katastrophale menschliche Ausartungen, tödliche und zerstörende Geschehen, ausartende Machenschaften und infolge der schieren Masse der in unverantwortlichem Mass anwachsenden Überbevölkerung, sich immer
+schlimmere Folgen ergeben werden.
+238. Und durch die unaufhaltsam steigende Masse der Erdenmenschheit werden sich künftighin vermehrt und
+
+ständig sich weiter mehrend sehr bösartige, dramatische und mutierende Veränderungen ergeben, wie tödliche Geschehen und böse zerstörungsbringende Faktoren am Planeten, weil dieser in Bezug auf eine übermässige Ressourcenausbeutung verbrecherisch über alle Massen geschädigt und zerstört werden wird. Dies, wie auch die Meere und
+alle Festlandgewässer geschädigt und deren Lebensformen, wie z.B. durch räuberische Vorgänge, ausgerottet werden, wie sich aber alles dies auch auf das Land sowie auf die Natur und zahllose pflanzliche Lebensformen ergeben
+wird, denn der Erdenmensch verliert künftig völlig die gerechte, gute und richtige Lebensweise, wie damit auch das
+Ziel des Lebens und alle Verantwortung gegenüber allem und jedem.
+239. Aber nicht nur diesbezüglich wird zukünftig gewaltiger Schaden entstehen, sondern der Mensch wird selbst
+
+derart betroffen werden, dass sein Gesundheitsvermögen beeinträchtigt und alle seine vielen unguten Verhaltensweisen sich krankheitserregend auswirken, schadenbringend ausarten und zukünftig zu vielen sowie vielartigen Toden führen. Dabei wird zukünftig auch das Giftausbringen in die Natur durch die Verantwortungslosigkeit der Giftherstellungskonzerne dazu beitragen, denn der Giftgebrauch wird zu florieren beginnen, und zwar weltweit
+dadurch, indem die Landwirtschaft und die Gartenbaubetriebe sowie die Regierungen und Behörden dafür an vorderster Stelle sein werden, um die tausendfältigen Gifte aufzukaufen und in die Äcker, Gärten und auf die Strassen
+auszubringen und damit das gesamte Bodenreich zu vergiften. Dabei wird auch die Atmosphäre vergiftet, wobei
+dadurch wiederum das Klima beeinträchtigt und die dadurch entstehenden Auswirkungen mithelfen werden, dass
+all die von der verantwortungslos steigenden Masse Überbevölkerung hervorgehenden und verantwortungslosen
+Machenschaften immer mehr das Klima beeinträchtigen, wodurch katastrophal ausartend heraufbeschwörend
+schlimme Veränderungen hervorrufend und vieles zerstören werden wird.
+240. Und bei der gesamten Fauna und Flora, beim Planeten selbst sowie bezüglich aller Dinge des Lebens und
+
+der Existenz aller Wichtigkeiten ergibt sich, dass schlussendlich die destruktiven Auswirkungen in jeder Beziehung
+nicht mehr kontrolliert, nicht mehr rückgängig gemacht und nicht mehr aufgehalten werden können und dadurch
+die gesamte irdische Existenz in Frage gestellt wird.
+241. Und wenn die Menschheit der Erde nicht dazu gebracht wird, das Wachstum der in jeder Weise ausartenden
+
+Überbevölkerung zu stoppen, um in dieser Weise weiteres Unheil zu vermeiden und das bereits bestehende zu
+reduzieren, dann wird die letzte Katastrophe des Untergangs nicht zu vermeiden sein.
+242. Zum Übel der unkontrolliert anwachsenden Masse Menschheit nämlich kommt schon in naher Zukunft welt
+weit ein Schwarzhandel mit vielerlei und immer wieder mit neu erfunden werdenden und süchtig machenden Drogen. Aufkommend und beginnend wird sehr schnell daraus hervorgehend die nicht mehr zu stoppende Drogensuchtzeit sein, da viele meist junge Erdenmenschen der Abhängigkeit diverser Drogen und damit der Drogensucht
+verfallen und menschlich verkommen und gar mancher in elender Weise sterben werden wird. Durch aufkommende
+Drogenproduktion und kriminellen Drogenhandel werden sich völlig neuen Sparten der Kriminalität und des Verbrechertums ergeben, sowie, wie gesagt, einer üblen Drogensucht verfallen, wie auch eine neue Form von Elend
+sich ergeben werden wird, die sehr schnell nicht mehr gestoppt werden kann. Auch viele katastrophale Geschehen
+aller Art werden in Erscheinung treten, wie Rachemorde durch einzelne Personen, Eifersuchtsmorde, Raubmorde,
+Hassmorde, Massenmordtaten, Religionsmorde, Sektenmorde und Fehdemorde, Ehrenmorde und Morde durch
+Gruppierungen, die terroristisch bedingt sind, oder Morde, die durch depressive, eifersüchtige, hassbefallene, kriminelle, an der Psyche oder im Bewusstsein erkrankte Menschen begangen werden. Dann werden aber auch viele
+Regierende und sonstig Verantwortliche diverser Staaten trotz des Sicherheitsschutzes betroffen sein und ermordet
+werden, wie aber auch ein einzelner Mensch, der aus irgendwelchem Grund einfach gehasst und ermordet werden
+wird.
+243. Doch das Gros der Menschheit wird – wie seit alters her – nur unehrliche, beziehungslose und scheinheilige
+
+Beileidsbezeugungen und sonstig grosse Worte von sich geben, wenn durch einzelne Menschen Mordtaten oder
+durch ganze Gruppen Mordaktionen ausgeführt sowie Leid und Elend verbreitet werden.
+244. Dabei wird es keine Rolle spielen, ob die Taten durch depressive oder anderswie im Bewusstsein oder an der
+
+Psyche erkrankte und geschädigte Täter oder Täterinnen, Verwirrte, Hassgestresste, Glaubensbefallene,
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Religionisten oder Sektierer, Rassisten oder Terroristen ausgeübt werden, denn in der Regel werden – wie seit jeher
+– die Beileidsbezeugungen und Anteilnahmen des Gros der Völker, der Gläubigen und Regierenden sowie sonstig
+Verantwortlichen nur Lug, Trug und Schein der Aufrichtigkeit sowie des ehrlichen Mitgefühls sein.
+245. Also wird das Erscheinen und Präsentwerden der Regierenden, Staatsmächtigen und Verantwortlichen an
+
+schlimmen Geschehensorten ebenso nur für diese selbst und zum Erhalt ihres Amtes von Nutzen sein, wie auch
+ihre Worte und Versprechungen, die für die Leidbetroffenen nur Betrug, List, Lüge, Täuschung und leere Worte
+sein werden, wie dies schon seit alters her so gehalten wird.
+246. Und wie das Gros der Staatsgewaltigen und all der anderen Verantwortlichen, wie viele des Gros der Men
+schen des Volkes bei den vielerlei Vorkommnissen und in Erscheinung tretenden Mordgeschehen durch einzelne
+Täter oder Täterinnen oder durch Gruppen terroristischer Art nur leere Versprechungen machen und dumme Reden führen, so wird dies auch in vielen anderen Beziehungen auch zukünftig so sein.
+247. Also wird es sich in gleicher Weise zutragen in den kommenden Jahrzehnten und weit ins neue Jahrtausend
+
+hinein, wenn sich die bereits zur heutigen Zeit anbahnenden schwerwiegenden Naturkatastrophen, wie schwerste
+Unwetter, Überschwemmungen, Erdbeben sowie schlimme Vulkanausbrüche ergeben, deren Ursprung auf Naturbeeinträchtigung, Planetzerstörung sowie klimazerstörende Machenschaften der Masse Überbevölkerung zurückführen wird.
+248. Alles der den Planeten, die Natur sowie deren Fauna und Flora und die Atmosphäre und das Klima zerstö
+renden Machenschaften der Erdenmenschen wird nicht wieder gutzumachen sein. Die zukünftigen Naturgeschehen
+werden unzählige Menschenleben fordern, ungeheure Zerstörungen und Leid hervorrufen und letztlich dazu führen, dass sich Not, Elend, Krankheiten, Seuchen, Platzmangel, Nahrungsnot und Wassermangel derart über die
+gesamte Erde und die Menschheit ausbreiten, dass allem nichts mehr entgegengesetzt werden kann. Und es kommt
+gar dazu, dass weltweit vielerorts derart ungeheure und urweltliche Unwetter sehr schwere Zerstörungen und Hochwasser sowie Überschwemmungen hervorrufen, wie diese durch die alles zerstörenden Machenschaften der Erdenmenschen den Planeten und die Natur in den kommenden Zeiten der Zukunft provoziert und selbstherrlich durchführen werden wird. Der Planet Erde, dessen Natur und deren Fauna und Flora werden zukünftig durch die bösen
+zahllosen zerstörerischen und vernichtenden Machenschaften der Erdenmenschen derart in sehr vielen verantwortungslosen Arten und Weisen traktiert werden, dass weltweit täglich viele Zerstörungen, Vernichtungen und Ausrottungen in der Natur hervorgerufen werden und endlos stattfinden. Dies nämlich in Bezug auf die Lebewesen,
+was da sind Tiere, Getier und andere Lebensformen, die laufen, schwimmen, fliegen, schlängeln oder kriechen usw.,
+wie auch alles in Bezug auf die Welt der Pflanzen, und zwar vom einfachsten Moos bis zum Riesenbaum. Das Ganze
+führt also zur weitreichenden Zerstörung und Vernichtung der Natur und deren Fauna und Flora, wie jedoch auch
+zur völligen Ausbeutung des Planeten in Bezug auf seine Substanzen und all der Rohstoffe, vor allem hauptsächlich
+das Erdpetroleum, die Metalle und Gase.
+249. Und wenn diese Zeit kommt, der die Erdenmenschheit schon seit längerem und jetzt bereits sehr schnell
+
+entgegengeht, wird, wenn die irdische Menschheit nicht in absehbarer und nützlicher Frist auf den Weg des gesunden Verstandes und der Vernunft zurückkehrt, dann kann es keine Hilfe mehr geben.
+250. Das heisst auch, wenn das Wachsen der Masse Überbevölkerung nicht gestoppt und nicht durch eine Gebur
+tenregelung rigoros reduziert und in absehbarer Zeit auf einen normalen und planetengerechten Stand für den
+Planeten Erde von nur 500 Millionen gebracht wird, wie auch nicht endlich ein weltweiter Friedenszustand, umfängliche Freiheit und eine völlig umfassende Sicherheit für den Planeten und dessen Natur sowie für alles Leben
+geschaffen wird und entsteht, dann kommt es, wie schon zu früheren Zeiten, dass unwiderruflich ein Ende jeglicher
+gegenwärtig noch existierender Hochkultur kommt und die irdische Menschheit unumgänglich verschwinden werden wird
+251. Bis dahin wird es zwar noch einige Zeit dauern, doch wird der Untergang unausweichlich sein, wenn nicht
+
+die Masse Überbevölkerung niedrig gehalten und alles sonstig das Leben und alle Existenz Erhaltende, das gesamthafte irdische Leben, das Wirken des Planeten und alle Lebewesen sowie die Natur und deren Fauna und Flora vor
+allem Gefährdenden geschützt und alles Ausartende aller Machenschaften gestoppt wird.
+252. Leider wird das jedoch in den kommenden Jahrzehnten und auch noch weit ins nächste Jahrtausend hinein
+
+nicht der Fall sein, und zwar auch dann nicht, wenn du deine Schreiben verfasst und Pfarrer Zimmermann und
+Lehrer Graf meine Voraussagen in tausendfacher Weise umdrucken und an alle Regierungen, Medien, Behörden,
+wichtigen Organisationen, nach Rom dem Papst, an alle namhaften Vorsteher aller Religionen und Sekten usw.
+senden werden.
+
+(Anm.: Pfarrer Emanuel Zimmermann und Lehrer Karl Graf unterstützten Eduard, indem sie die gesamte Voraussage von Sfath, die Eduard aufgeschrieben hatte, korrigierten und dann via Umdruckverfahren rund 6000mal kopierten. Die Kopien versandten sie, mit dem Absender von Pfarrer Zimmermann versehen, an alle Regierungen
+sowie an sämtliche Zeitungen auf unserer Welt, jedoch ohne jegliches Echo, denn Pfarrer Zimmerman erhielt nicht
+eine einzige Antwort auf die mühevolle und kostspielige Aktion, die die beiden Unterstützer von Eduard aus eigener Tasche berappt hatten.)
+
+253. Es werden sich aber, wenn du deine Arbeit tust, nach und nach Menschen sowie Gruppen zusammenfinden,
+
+wie auch um dich, wenn du selbst zu wirken beginnst. Es werden sich wohl Erdenmenschen gruppieren und weltweit
+die Lehre des Lebens lernen, sie befolgen und sich bemühen, zu leben und zu lernen, die Lehre zu verbreiten beginnen, woraus die Hoffnung hervorgehen wird, dass in 800 bis 900 Jahren sehr viele Menschen sich langsam bemühen werden, ganz bewusst ihren Verstand und ihre Vernunft zu nutzen und sich der Lehre zuzuwenden, die du in
+30 Jahren fortan in grossem Umfang niederschreiben, verbreiten und den Menschen der Erde lehren wirst.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+254. Doch du sollst wissen, dass dies eine ausnehmend schwere und sehr schwierige Aufgabe und Arbeit sein wird
+
+und du infolge Sektierismus schon bald verleugnet und arg geharmt wirst, wobei auch die Behörden und Staatsbedienstete verschiedenster Couleur mitwirken werden.
+Du bist in einer Welt geboren, in der dir bezüglich deiner Mission schon jetzt Menschen sehr feindlich gesinnt sind
+und dir Leid antun, und es werden noch viele kommen und dir sehr bösartig entgegentreten. Und wenn du in dieser
+Welt deine Mission zu erfüllen hast, weil in dieser die Menschen durch Religionen und Sekten irregeführt werden,
+unfrei, geknechtet und versklavt sind, wie aber auch der Besserwisserei, Gewohnheiten, der Eigenherrlichkeit, Lastern und Süchten sowie der Eitelkeit, dem Grössenwahn und dem Wahnglauben von Religionen und Sekten, wie
+aber auch mancherlei anderen Hinsichten usw. verfallen sind, dann wird es noch sein, dass dir nach dem Leben
+getrachtet wird.
+255. Und wie es auf der Erde bei den Menschen diesbezüglich bisher war, wird es auch zukünftig sein, und zwar
+
+in sich stetig steigerndem Mass, denn infolge der noch sehr lange Zeit unaufhaltsam steigenden Überbevölkerung,
+die sich im neuen Jahrtausend auf über 10 Milliarden ergeben wird, folgt nun in den kommenden Jahrzehnten bis
+ins dritte Jahrtausend, wie noch weit in dieses hinein, dass immer mehr Menschen der Alkoholsucht, Drogenabhängigkeit und Eifersucht, der Geldgier, Gewalttätigkeit, der Kriminalität und dem Verbrechertum, dem sexuellen
+Kindsmissbrauch, dem Kriegeführen, der Kindesmisshandlung, Frauenmisshandlungen und den Vergewaltigungen
+verfallen werden. Und es kommt auch die Unrechtschaffenheit aller Art überhaupt, wie zukünftig staatlich die erlaubte und besteuerte Prostitution, wobei jede dieser Ausartungen zu grossen Problemen werden wird.
+256. Zukünftig treten auch immer mehr bewusstseinsverwirrte wie auch an der Psyche erkrankende Menschen in
+
+Erscheinung, die an schweren Depressionen und vielen anderen Krankheiten eines geschädigten Bewusstseins und
+einer geschädigten Psyche leiden werden.
+257. Die Ursprünge dafür werden in den vielartigen Auswirkungen und Dingen der Masse der überbordenden
+
+Überbevölkerung fundieren, wie z.B. in einem fanatisch ausartenden politischen, religiösen und sektiererischen
+Wahn, wobei im religiösen und sektiererischen Aberglaubenswahn in durch Alkohol und Drogen hervorgerufenen
+Wahnerscheinungen, Hirngespinsten sowie Illusionen, Irrealitäten, Sinnestäuschungen, Trügereien, Wahnvisionen,
+Wunschbildern, Trugbildern und suggerierten irren und wirren Eingebungen gewissenloser Verführer Glauben geschenkt werden wird, wodurch die Wirklichkeit verkannt und gar geleugnet werden wird.
+258. Die rasant ansteigende Masse der Überbevölkerung wird sich auch nachhaltig und sehr nachteilig-schlecht
+
+und übel auf die Moral sowie auf die Verhaltensweisen, Krankheiten und Leiden der Erdenmenschen auswirken,
+wie sich das z.B. ergeben wird in bezug auf anankastische Neurosen, Getriebenheiten, krankhafte Leidenschaften,
+wie auch hinsichtlich Manien, masslosen Begehren, Wünschen und Süchten, wobei auch Raserei, Tobsucht, Tollheit
+und Tollkühnheit, Wut, Gewalt und Zwangserkrankungen, Zwangsneurosen und Zwangsstörungen usw. dazugehören werden.
+259. Und die ungeheuer sehr schnell steigend-kommende Masse Überbevölkerung wird eine in der Menschheit
+
+allgemein um sich greifende Verweichlichung der Gedanken, Gefühle und der Psyche, des Körpers sowie eine Lebensunbeständigkeit mit sich bringen, dass selbst kleine Anspannungen und Anstrengungen zu Hitzewallungen,
+Fieber, Wahn, Herzversagen und zu einem totalen Zusammenbruch führen.
+260. Es werden sich daraus aber auch seltsame Einbildungen, wahnkranke Erscheinungen, Hirngespinste, Irrea
+litäten und Schwindel ergeben, wie dies geschehen wird wie es schon mehrfach geschehen ist, dass Wahneinbildungen von einzelnen oder wenigen Menschen derart für diese selbst und für strenggläubige Mitmenschen in Wahnbildungsform sichtbar erscheinen und über viele Jahrzehnte und gar Jahrhunderte glaubens-wahnmässig sichtbar
+bleiben. Exakt derweise, wie wir zusammen bei der Vergangenheitsreise im Februar des Jahres 1858 und zweimal
+auch an den folgenden Tagen in Lourdes die Frau Bernadette Soubirous beobachtet haben, die irgendwie hysterisch
+war und eine Mariaerscheinung gesehen haben will, was wir zwei als Nichtgläubige jedoch logischerweise nicht
+sehen konnten, weil das Ganze der Hysterischgläubigen, eben dieser Bernadette Soubirous, nur eine Wahnglaubenseinbildung war.
+261. In den kommenden Jahrzehnten und bis weit ins nächste Jahrtausend hinein werden unzählige Menschen
+
+infolge religiösen oder sektiererischen Wahnglauben krankhaften Gedanken, Gefühlen und damit Verwirrungen
+des Bewusstseins und schweren psychischen Störungen verfallen, die sich zukünftig durch eine Minderung der Lebensbeherrschung und Lebensqualität ergeben werden, und zwar durch eine Lebensverweichlichung, die zwangsläufig aus dem Wahnglauben hervorgehen werden wird. Das wird dazu führen, dass die Gläubigen durch die Religionsmächtigen und Sektenmächtigen über öffentliche elektrophonische Informationsmedien glaubensbetrogen
+und finanziell ausgebeutet, wie jedoch auch diverse Staaten durch ungerechte Religionssteuern die Gläubigen finanziell schädigen werden.
+262. Auch Lebensinteresselosigkeit, Lebensmutlosigkeit und Lebensüberdrüssigkeit werden weit um sich greifen
+
+und sich ausbreitend zu vielen Selbstmorden führen.
+263. Auch eine umfängliche Interesselosigkeit und Gleichgültigkeit bezüglich der eigenen Bewusstseinsentwick
+lung, der persönlichen Werte und des Wohlbefindens, wie auch der Bildung, Selbsterkenntnis und des Selbstwertes
+werden besonders bei vielen jüngeren Menschen zur Tagesordnung gehören.
+264. Und was in Bezug auf die Gleichgültigkeit hinsichtlich der eigenen Person bezogen sein wird, wird auch auf
+
+Mitmenschen übertragen werden und verbindende Beziehungen zwischen den Menschen immer mehr verhindern
+und diese schlussendlich auflösen.
+265. Dadurch entstehen nicht nur in der Gesellschaft beziehungslose Zustände, sondern auch in den Familien, in
+
+Bekanntschaften, Freundschaften und Partnerschaften, wodurch sich die Menschen fremd, bedeutungslos und
+gleichgültig werden und folglich alle ihre eigenen Wege gehen werden.
+266. Es wird zukünftig aber auch sein, dass viele Menschen einer Nichtbeherrschung und Verkümmerung von
+
+Verstand und Vernunft verfallen, und zwar infolge einer ausartenden und völlig destruktiven Veränderung der
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Auffassungsgabe, des Verstehens sowie der Verkümmerung der sehr wichtigen Verarbeitungsfähigkeit des Bewusstseins.
+267. Und dies wird sich schon im Lauf der nächsten Jahrzehnte anbahnen, was sich besonders bei jungen und
+
+jüngeren Menschen in Bezug auf ihre negative Lebensführung sowie die krankhafte Zurückbildung der Lernfähigkeit beeinträchtigend zum Ausdruck bringen werden wird.
+268. Die zukünftig immer mehr um sich greifende falsche Erziehung der Nachkommenschaft durch die Eltern,
+
+wie auch die Bildung und Interessen sowie die Lernfähigkeit in Bezug auf die Nachkommen von den Kindern, so
+werden diese einerseits verweichlicht und degeneriert, während sie andererseits des Verstandes und des Vernunftvermögens schwach werden, was sich in den Genen ablagert und durch die weiteren Nachkommen wiederum auf
+deren Nachkommen vererbt werden wird.
+269. Dadurch werden durch das Wachsen der Masse Überbevölkerung der Verstand und die Vernunft der Nach
+kommen ausartend und mutierend schwächer, was dazu führen wird, dass zunehmend eine chaotische VerstandVernunft-Steuerung entsteht, die auch in allen Beziehungen lebensnachteilig zum Ausdruck gebracht werden wird.
+270. Eine jetzt im Jahr 1946 falsche Erziehung fördert bei der Nachkommenschaft nicht nur die allgemeine Ver
+weichlichung und ein Nachlassen des Verstandesdenkens, wie aber auch ein Versagen des Vernunftvermögens,
+sowie auch eine niedrige Intelligentumsentwicklung und körperliche Beeinträchtigungen mancherlei Art.
+271. Und Tatsache ist, dass diese nachteiligen Veränderungen durch die rasant steigende Überbevölkerung un
+aufhaltsam vererbt werden und das Gros der Menschheit in Bezug auf Verstand und Vernunft – zwar nur sehr
+langsam, doch unaufhaltsam – immer mehr verkümmern, was sehr schwerwiegende Folgen für die Zukunft zeitigen
+werden wird.
+272. Und dies führt weiterhin dazu – wie schon seit alters her –, dass nur Menschen sich zur Regierungsmacht und
+
+zu ähnlichen und gleichgerichteten Ämtern und Positionen durchsetzen und erheben können, die weitgehend kontrollierend ihres Verstandes und ihrer Vernunft mächtig sind und sich beim Gros der Völker darum durchsetzen
+können, weil dieses nicht voll und ganz des Verstandes und der Vernunft fähig und also dumm ist, was bedeutet,
+dass es nicht zum Selbstdenken, sondern nur zu einem gläubigen Glaubensdenken fähig ist.
+273. Das Gros der Machtmenschen, das selbstredend mit Lug und Betrug sowie durch die Dummheit des Gros
+
+der scheindenkenden Völker in die Regierungen gelangt – eben mit Ausnahmen, die charakterfest, ehrenhaft, integer, vertrauenswürdig und des Verstandes sowie der Vernunft fähig sind –, kann suggestiv und rhetorisch das
+Gros des Verstandes und der Vernunft minderbegabten Volkes nutzen und ausnutzen, um es auf seine Seite zu
+ziehen und sich selbst an die Regierungsmacht zu bringen.
+274. Es ist zweifellos aber auch so, wie ich festgestellt habe, dass unter den Regierenden auch vernunftlose und
+
+verstandesschwache Menschen sind, die es nur durch Beziehungen, Falschheit, Gewalt, Lug und Trug, Heuchelei,
+Rücksichtslosigkeit und Überredungskunst in Regierungen, Ämter und hohe verantwortungsvolle Positionen schaffen.
+275. Doch was nun die Zukunft bringen wird in Bezug auf die Lebensverhaltensweise vieler Erdenbewohner, ist
+
+die Tatsache, dass zukünftig viele Menschen ruchlosen Anstössigkeiten und Lastern verfallen werden. Dadurch
+steigern sich zukünftig weltweit die Kriminalität und das Verbrecherwesen, und diese können von den staatlichen
+Sicherheitskräften nicht mehr kontrolliert werden, wie zudem die Gerichtsbarkeiten zeitlich in Bedrängnis kommen, die stetig anfallenden Strafverfahren zu verarbeiten, die Menschen betreffen, die liederlich, sittenlos, ungebührlich, unschicklich, verdorben, amoralisch, anrüchig, erbärmlich, schlecht, unanständig, unmoralisch, vulgär und
+verworfen sowie kriminell oder verbrecherisch usw. werden.
+276. Die Realität und Wahrheit werden nicht mehr derart real wahrgenommen, wie es erforderlich wäre und sein
+
+sollte, folglich auch immer mehr gedankliche Verwirrungen entstehen und sich die Menschen falsche Vorbilder,
+Ideale, Leitbilder, Utopien sowie Wahngedanken und Wunschbilder schaffen, wodurch sie eigeninitiativelos und
+der Selbstentscheidungsfähigkeit unfähig werden, sondern weltlich, religiös oder sektiererisch glaubensmässig gemäss dem leben und handeln werden, was ihnen gesagt und eingeflüstert wird. Dadurch wird selbst auch für die
+Wissenschaft unerkennbar – weil sie sich zukünftig nicht in dieser Richtung beschäftigen und daher auch nicht erkennen werden wird –, dass die Erdenmenschen der Eigeninitiative in Bezug auf die Entwicklung einer persönlichen Ansicht und Erachtung, Einstellung, Haltung und urpersönlicher Gedanken nicht mehr fähig, sondern nur
+noch durch Glaubensbelange gesteuert werden. Dadurch werden sie vermehrt schnell aufkommend fanatisch und
+eifernd in der Beziehung, krankhaft Dingen, Handlungen und Taten anderer Menschen nachzuhängen und daran
+festzuhalten, was dazu führen wird, dass sie in ihrem Wahnverhalten nicht erkennen können, dass sie durchwegs
+nicht mehr selbst über alles und jedes entscheiden, sondern diesbezüglich fremdgesteuert werden.
+277. In dieser Weise entstehen im Menschen wildwirkende Unwirklichkeiten aller Art, die in Lebensinhaltslosig
+keiten ausarten und keine wertvolle und fortbildende Gedanken, Gefühle und keine eigene Leistung und Ansicht
+usw. mehr zulassen, wodurch nur noch die Leistungen, Handlungen, Meinungen und Taten anderer Menschen anerkannt, wiedergegeben und zur Geltung gebracht werden.
+278. Auch wirklichkeitsfremde esoterische Gruppierungen und Organisationen, Religionen, Sekten und Philoso
+phien usw. werden zukünftig zunehmend die Gläubigen beherrschen und sie von der Wirklichkeit und Wahrheit –
+wie seit alters her – fernhalten und in die Irre führen. Und es werden zukünftig bei vielen Menschen mehr und mehr
+Wahnvorstellungen in Erscheinung treten, wie es schon 300 Jahre lang ab dem 15. Jahrhundert war, als der Geisterwahn und Hexenwahn sowie Dämonenglauben und der Glauben an sonstig übernatürliche Mächte beim Gros
+der Erdenmenschen verschiedenster Völker grassierte …
+
+**Edi** … das weiss ich, dass damals besondere Merkmale galten, um als Hexe und Teufelsanbeterin denunziert und
+
+ermordet zu werden. Besondere Augenfarben, wie z.B. hellblaue Augen bei dunkelhäutigen Menschen, wie aber
+auch rote Haare oder Sommersprossen, Muttermale, Warzen, eine dritte Brustwarze usw. reichten aus, wie gar der
+Besitz einer schwarzen Katze war Grund genug, eine Frau als Hexe zu denunzieren. Der Wahnglaube an Hexen ist
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+uralt, und dass Frauen als Hexen angeblich mit dem Teufel im Bund standen und mit ihrer Zauberkraft Schaden
+anrichten konnten, das entspricht religiösen Mären sondergleichen. Trotzdem aber begannen ab dem 15. Jahrhundert regelrechte Hetzjagden auf vermeintliche Hexen, wodurch Zehntausende Menschen – vor allem Frauen, doch
+selten auch Männer – ermordet wurden, oft vorher gefoltert. Sie starben dabei am Galgen, durch Räderung, Ersäufen, Vierteilung oder auf dem Scheiterhaufen usw. Und dieser Hexenwahn existiert noch heute, wie der Teufelsglaube und auch der Geisterglaube usw., die noch weiter und lange Zeit in die Zukunft ihr Glaubens-Unwesen
+treiben werden – besonders in unterentwickelten Ländern, wo noch Geisterglaubensformen usw. bestehen und gang
+und gäbe sind –, dies nebst dem Dämonenglauben, Glauben an gute und böse Geister und Marienerscheinungen
+usw.
+
+**Sfath**
+279. Ja, das war so, ist so, und wird zukünftig auch so weitergehen. Glaubensbedingte religiöse und sektengeför
+derte Wahnformen aller Art werden sich in der Zukunft weltweit wieder mehren und die dieserart gläubigen Menschen in unsinnige Sinnestäuschungen verfallen lassen, sowie sie sich vermehrt wieder Blendwerken, Einbildungen,
+Illusionen, Glaubenslügen, Vorspiegelungen falscher Tatsachen, Wahngeschehen, Gaukeleien und Irrealitäten hingeben werden.
+280. Religiöser und sektiererischer Aberglaube resp. Wahnglaube und der Geisterglaube und Gespensterglaube,
+
+die sektenbedingte Hellseherei, die religiöse Gottesbotschafterei und religiöse Wundertätigkeit werden zukünftig
+zu neuen Höhepunkten geführt, wie auch die Geisterfurcht, der Mystizismus, Wunderglaube und Wahnvorstellungen. Der Dämonenglaube hingegen ist verflacht und wird zukünftig keine sehr grosse Rolle mehr spielen.
+281. Alle die Übel und überhaupt alles Religiöse und Sektiererische wird in kommender Zeit verantwortungslos
+
+durch Lug und Trug der Religionen und Sekten und deren fanatische und machtbesessene Verfechter derart gesteuert werden, dass deren viele Gläubige sich sammeln, um in Terrororganisationen im Namen eines vorgeblichen
+Schöpfergottes viele zu Folter, Gewalt, Krieg, Mord, Vergewaltigung und Zerstörung zu verführen, um als Gotteskrieger unschuldige Menschen zu foltern und zu töten und dadurch zu ihrem angeblichen Gott ins Paradies zu
+kommen.
+282. In dieser Weise wird es sein und kommen, dass in den kommenden Jahrzehnten und weit ins nächste Jahr
+tausend hinein solche Vorkommnisse vorbereitet und später dann ausgeübt werden, folglich Krieg, Mord, Tod,
+Vernichtung und Zerstörung, Leid, Elend, Trauer und Not sowie allerlei andere Übel über die ganze Welt und
+deren Menschheit bringen werden.
+283. Also werden zukünftig mit der Zeit zuhauf irregeführte Menschen in Erscheinung treten, die als sektenge
+steuerte und terroristische Radikalisierte und Wahnbefallene mörderisches Unheil, Leid, Elend, Not und Trauer
+über die Menschen der ganzen Welt bringen werden.
+284. Und das werden sie als einzelne oder in Gruppen und Terrororganisationen tun, als fanatische Gotteskrieger
+
+und Rächer und dabei zahllos unschuldige Menschen ermorden, grosse Zerstörungen anrichten und auch sehr alte
+Kulturgüter unwiederbringlich zerstören, wogegen die ganze Erdenmenschheit hilflos und machtlos sein wird.
+285. Es werden zukünftig aber auch immer mehr Mütter sein, die ihre Neugeborenen, wie aber auch ihre schon
+
+älteren Kinder ermorden, dies, wie Mütter und Väter auch vermehrt ihre Töchter und Söhne sexuell missbrauchen
+werden, wie Vergewaltigungen durch Frauen wie auch durch Männer sich mehren, wobei auch fremde Kinder beiderlei Geschlechts sexuellem Missbrauch und Frauen der Zwangsprostitution und gar der Sexsklaverei verfallen
+werden. Dies, während andere Frauen, wie auch Männer, in steigendem Mass immer mehr kriminelle kapitalverbrecherische und schwerverbrecherische Taten begehen, die oft tödlich enden.
+286. Und geschehen solche Taten, dann werden infolge einer bedenklichen humanistischen Verweichlichung im
+mer schlimmere, verwerflichere gegen Leib, Leben und Gut der Menschen gerichtete Handlungen begangen und
+Taten ausgeführt, wofür die Täterschaften jedoch in falsch verstandener Humanität viel zu gelinde zur Rechenschaft
+gezogen und dadurch animiert werden, in ihrem Handeln und Tun weiterzumachen.
+287. Auch wird in den kommenden Jahrzehnten ein durch Behörden erlassenes Gesetz offizielles legales Morden
+
+für sterbewillige Menschen aufkommen, was ‹Freitod› genannt werden und einen sogenannten ‹Sterbetourismus›
+hervorrufen wird, wobei der Selbstmord jedoch Mord sein wird, weil Helfer den Sterbewilligen Gifte verabreichen,
+die von diesen eigenommen werden. Weil jedoch die Giftverabreichung durch Drittpersonen erfolgt, bedeutet dies
+Beihilfe zum Mord, was strafbar zu sein hat, was jedoch wider jedes Gesetz des Lebensschutzes verstösst und deshalb bestraft werden müsste, was jedoch falscherweise missachtet werden wird.
+288. In dieser Weise werden durch das Gesetz lebensverantwortungslose Sterbewillige nicht durch Suizid das Le
+ben verlassen, sondern ermordet. Und zu diesem Zweck werden auch aus fremden Staaten Selbstmordwillige in die
+Schweiz einreisen dürfen, in der das diesbezüglich legalisierte ehrlose und würdelose sowie systematische ‹Selbstmord›-Ermorden sehr schnell ‹Sterbetourismus› genannt werden wird. Mit Narkotika werden von völlig verantwortungslosen Mordlüsternen gesetzlich erlaubte Praktiken – wie diese nationalsozialistisch auch im NAZIreich praktiziert wurden – in kommender Zeit also auch in der Schweiz zutreffen und diese Art des Mord-Sterbens gesetzlich
+erlaubt werden.
+289. Alles bisher Dargelegte, Erklärte und Gesagte entspricht Voraussagen, die bezogen sind auf viele kommende
+
+Geschehen und Vorkommnisse der nächsten Jahrzehnte sowie den Zeiten des nächsten Jahrtausends, wie ich sie in
+der Zukunft erschaut und dir nun nahegebracht habe, wie ich dich vieles durch Zukunftsreisen noch erschauen
+lassen werde, wie auch noch vieles mehr durch Vergangenheitsreisen, wie du diese bereits kennst.
+290. Alles von mir selbst Gesprochene, wie auch all das, was du selbst sagst, wird umfänglich durch eine sehr
+
+hochentwickelte Phonographieapparatur aufgezeichnet und aufbewahrt, wodurch es niemals verlorengeht, folglich
+selbst nach sehr langer Zeit alles wieder abrufbar sein wird. Das derweise, wie du das dann in zukünftiger Zeit tun
+wirst, wenn du in 22 Jahren nach deinem abenteuerreichen und arbeitsamen Aufenthalt in vielen Ländern in die
+Schweiz zurückkehrst und deine Mission beginnen und ausführen wirst.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+291. Es wird für dich und deine Aufgabe und Mission jedoch von Notwendigkeit sein, dass ich dir noch viele
+
+weitere voraussagende Fakten zu erklären und viele Geschehen der Vergangenheit und der Zukunft in jenen Zeiten
+durch das direkte Erschauen lasse, die aber von dir nicht weitergesagt und also nicht offen genannt werden dürfen.
+292. Folglich darfst du vieles auch nicht zur Erinnerung aufschreiben, sondern nur jene Fakten, Erklärungen und
+
+Voraussagen, die ich dir für deine Arbeit deiner von dir zu verfassenden Schreiben nenne, die du ab den 1950er
+Jahren verfassen und an alle Regierungen der Welt und an viele namhafte öffentliche Medien, wie auch Journale,
+Radiostationen und Zeitungsredaktionen, wie aber auch an verschiedene namhafte Organisationen senden sollst,
+wozu dir, wie ich schon erklärte, Pfarrer Zimmermann und Lehrer Graf sehr behilflich sein werden.
+293. Erst in fernerer Zukunft wird es dir erlaubt sein, offen über die Inhalte unserer Gespräche zu sprechen, wenn
+
+das von dir verlangt wird, was du dann tatsächlich auch tun wirst, wie ich durch mein Schauen auf dich in zukünftigen
+Zeiten gesehen habe.
+294. Damit soll für heute genug erklärt und gesagt sein in Bezug darauf, was ich dir diktiert habe und du auch
+
+aufzuschreiben hattest, damit es dein Lehrer Graf korrigieren und dann mit Pfarrer Zimmermann zusammen umdrucken und in tausendfältiger Weise rund die Welt versenden kann.
+
+**Billy** Leider haben wir auf der Erde praktisch in allen Ländern und deren Regierungen nur ‹Geschmäus› von Regie
+renden, die nur ihre Macht ausleben und ihre Völker finanziell ausräubern, nach Strich und Faden drangsalieren und dafür
+grosse Entlohnungen einsacken, eben als ‹Lohn› Hunderttausende von Franken jedes Jahr. Und viele, die dieses ‹Geschmäus› bilden, wechseln ihre Parteizugehörigkeit und ihre Meinung wie die Hemden, die sie sie tragen. Gegen all diese
+Taugenichtse bei den Regierungen haben die Rechtschaffenen, die wohl auch anwesend sind und mitregieren wollen, gegen
+alle regierenden Machtbesessenen keine und sogar nicht die geringste Chance, sondern sie müssen den Unrechtschaffenen
+ständig beigeben und ‹parieren›, wie wir im Bülacherdialekt sagen, wenn Folgsamkeit und Zucht angesagt ist, wie bei der
+Diktatorin (…› in Brüssel, die befiehlt und vor der alle kuschen, oder … in Deutschland, der keine eigene Meinung hat,
+sondern nur nach dem Wind eine ‹Meinung› vertritt, die andere bestimmen. Dies sei einmal gesagt, wenn ich das so sagen
+und verlauten lassen darf, was ich persönlich feststelle.
+Alles ist leider nicht so wie bei euch, da ihr auf Erra täglich in der Riesenpyramide 1,5 Millionen absolut parteilose Abgeordnete der ganzen riesenhaften Föderation habt, die über alles und jedes Anfallende beraten und dann einstimmig ihren
+Entschluss fassen. Etwas, das hier auf der Erde bei keinen Regierungen zustande kommen kann, denn jede hat ihre Partei,
+die ihre separaten Ideen verfechtet und niemals einig wird, folglich nur zähneknirschend ein Resultat eines einmal gefassten
+Beschlusses einer Gegenpartei akzeptiert wird. Auf Erra könnte so etwas nie und niemals vorkommen, dass Hilfe gegeben
+und Waffen in ein fremdes Kriegsgebiet geliefert werden, wie Deutschland das bewerkstelligt und damit die Gefahr heraufbeschwört, dass es früher oder später auch mit Krieg belegt wird, obwohl die Regierung daherlügt, dass niemals wieder im
+eigenen Land Krieg kommen werde. Dass jedoch die Gefahr geschaffen wird, einen solchen zu provozieren, der dann doch
+kommt, dazu wird von der Regierung durch die parteiische Hilfe und das Liefern von Waffen und also durch Idiotie alles
+getan. Solche Idiot-Regierende gehören von ihrem Amt weggeschafft. Und solche, die gar selbst einen Krieg anzetteln,
+gehören persönlich an die Front geschickt, eben die Kontrahenten selbst, die einen Krieg anzetteln wollen, um sich gegenseitig zu bekämpfen und ihren Wahn auszufechten.
+
+**Quetzal** Das wäre tatsächlich die richtige Lösung.
+
+**Billy** Das wird aber nur ein Wunschtraum bleiben, denn zu viele Erdlinge sind militärverrückt, wie zudem in ihrer
+
+Gesinnung nicht geläutert, sondern vollauf der Rachsucht und Vergeltung ergeben. Dies, wie auch der Tötungswillen noch
+tief in ihrem Charakter steckt, der sofort zur Geltung kommt, wenn sich die Situation dazu ergibt, wie z.B. bei Streit oder im
+Krieg, da alle noch so guten Vorsätze fallen gelassen werden und gemordet, gefoltert, vergewaltigt und massakriert wird,
+was das Zeugs hält.
+
+**Quetzal** In solchen Situationen fallen alle Hemmungen weg, denn es wird nicht mehr an deren Richtigkeit gedacht,
+
+sondern …
+
+**Billy** … an das «So wie du mir, so ich dir», und zwar völlig egal, wer dann getötet wird, eben gar der eigene leibliche
+
+Bruder, der Vater, die Mutter oder leibliche Schwester, der Freund, die Freundin, der Ehemann oder die Ehefrau oder jemand aus der Verwandtschaft. Und wenn es darum geht, im Militär zu töten, dann fallen sowieso alle Hemmungen weg,
+denn Frau, Kind oder Mann werden zum Töten und also zu Mord ausgebildet und dressiert, wenn sie zum Militär verpflichtet oder sonstwie zum Töten und Morden usw. gezwungen oder verleitet werden.
+
+**Quetzal** Zu deinen Worten ist effectiv nichts Gegenteiliges einzuwenden.
+
+**Billy** Okay, dann schliessen wir dieses Thema, denn ich will vermelden, dass ein Passivmitglied Christian auf das
+
+Folgende aufmerksam gemacht hat, als es etwas suchte:
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+## Aufgedeckt
+
+Beim 883. Kontakt am Sonntag, den 7.4.2024 erwähnte Billy gegenüber Ptaah folgendes:
+
+«Da war aber ein Mann, Haller oder Heller oder so hiess er und war etwa 30 Jahre alt, den ich zusammen mit Sfath
+kennenlernte, als wir zusammen mit Wendelle Stevens, der damals etwa im gleichen Alter war wie der Mann, uns
+irgendwo abseits einer Stadt in Kanada trafen. Dieser Mann, der wusste, dass Sfath nicht von der Erde war, interessierte sich und fragte Sfath, wie denn der Mensch zum Leben komme usw., und dazu erinnere ich mich, dass ihm Sfath
+einiges bezüglich der Schöpfungslebensenergie erzählte. Dafür interessierte sich auch Wendelle, doch gebot Sfath uns
+allen, darüber nichts in die Welt hinauszuposaunen und also zu schweigen. Für Heller oder Haller – ich weiss nicht
+mehr wie der Mann wirklich hiess – und für Wendelle gab Sfath noch einiges preis, was sie in Zukunft nämlich tun
+würden, so dieser Haller oder Heller sich mit Bauen, dem Kaufwesen und mit Politik, wie privat auch mit den Fremden
+und deren Fluggeräten usw., Wendelle jedoch sich ausser in der Armee auch offiziell mit den Fremden und deren
+UFOs beschäftigen würden. Was aus dem Kanadier geworden ist, das weiss ich leider nicht, denn ich sah ihn nur einmal 1949 oder 1950.»
+Solche Hinweise sind natürlich interessant und ihnen wird von verschiedenen Kerngruppe- und Passivmitgliedern
+gerne nachgespürt, denn immerhin sind es wirklich gute Beweise für die Richtigkeit und Wahrheit dessen, was Billy
+bei den Kontaktgesprächen erzählt. Leider sind solche Recherchen nicht immer von Erfolg gekrönt, und so bleibt
+manches einfach im Verborgenen. Nicht jedoch in diesem Fall, denn wie von verschiedenen Seiten unabhängig herausgefunden wurde, handelt es sich bei diesem Haller oder Heller in Tat und Wahrheit um Paul Theodore Hellyer, der
+einen sehr bemerkenswerten Lebenslauf hatte und in Kanada eine interessante Karriere als Politiker machte, ehe er
+in seinen alten Tagen dann ganz offen und offiziell über die Existenz ausserirdischer Menschen sprach und verlangte,
+dass die Regierungen ihr Wissen darüber freigeben sollten.
+
+### In Wikipedia ist über den Mann folgendes zu finden:
+
+**Paul Theodore Hellyer,**
+
+(* 6. August 1923 in Waterford, Ontario; † 8. August 2021 in Toronto)
+
+war ein kanadischer Unternehmer, Ingenieur, Kaufmann und Politiker der Liberalen Partei, der Progressiv-konservativen Partei sowie zuletzt der Canadian Action Party, der mehr als 23 Jahre Abgeordneter des Unterhauses, mehrfach
+Minister sowie zwischen 1997 und 2003 Vorsitzender der Canadian Action Party war.
+Nachdem er bei der Unterhauswahl am 31. März 1958 in seinem Wahlkreis abermals den Wiedereinzug als Abgeordneter in das Unterhaus verpasste, wurde er bei einer Nachwahl am 15. Dezember 1958 im Wahlkreis Trinity wieder
+zum Abgeordneten in das Unterhaus gewählt. Am 22. April 1963 wurde er von Premierminister Lester Pearson
+schliesslich zum Minister für nationale Verteidigung in die 19. Regierung Kanadas berufen, in der er nach einer Regierungsumbildung am 19. September 1967 das Amt des Verkehrsministers übernahm. Verkehrsminister im Kabinett
+von Pierre Trudeau (1968-1969)
+Das Amt des Verkehrsministers behielt er auch nachdem am 20. April 1968 Pearsons Nachfolger Pierre Trudeau das
+20. kanadische Kabinett gebildet hatte. Etwas mehr als ein Jahr darauf trat Hellyer am 29. April 1969 von seinem Amt
+als Verkehrsminister zurück, nachdem es zu Meinungsverschiedenheiten über die Wohnungsbaupolitik der Regierung gekommen war.
+Hellyer verfasste darüber hinaus zahlreiche Bücher, die sich insbesondere mit politischen Themen befassten. Er
+machte wiederholt Schlagzeilen durch Äusserungen zu ausserirdischem Leben auf der Erde. Er setzte sich dafür ein,
+die angeblichen Technologien der Aliens zu nutzen, um den Klimawandel zu stoppen, und hielt den Regierungen vor,
+den Wissenstransfer von ausserirdischer zu irdischer Wissenschaft zu behindern.
+
+**Behauptungen der ausserirdischen Intelligenz**
+
+Am 3. Juni 1967 weihte Hellyer ein nicht identifiziertes Flugobjekt-Landepad in St. Paul, Alberta ein. Die Stadt hatte
+sie als ihr kanadisches Hundertjahrfeierprojekt gebaut und als Symbol dafür, den Raum frei von menschlicher Kriegsführung zu halten.
+Anfang September 2005 machte Hellyer Schlagzeilen, indem er öffentlich verkündete, dass er an die Existenz von
+UFOs glaube. Am 25. September 2005 war er ein eingeladener Redner auf einer Exopolitik-Konferenz in Toronto, wo
+er dem Publikum erzählte, dass er eines Nachts mit seiner verstorbenen Frau und einigen Freunden ein UFO gesehen
+habe.
+Im Jahr 2007 berichtete der ‹Ottawa Citizen›, dass Hellyer von den Regierungen der Welt verlange, dass sie die AlienTechnologie offenlegen sollen, die verwendet werden könnte, um das Problem des Klimawandels zu lösen.
+In einem Interview mit RT (ehemals Russia Today) im Jahr 2014 sagte Hellyer, dass mindestens vier Arten von Aliens
+seit Tausenden von Jahren die Erde besuchen, wobei die meisten von ihnen von anderen Sternensystemen stammen,
+obwohl einige auf Venus, Mars und Saturns Monden leben.
+Aufschlussreich ist auch ein Artikel, der am Donnerstag, den 23.4.2015, auf FOCUS, Online erschienen ist:
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+### ‹Enthüllungstour› in Kanada
+
+**Ex-Minister: Regierungen müssen zugeben, dass Aliens mitten unter uns leben**
+
+In den 60er-Jahren war er Minister in Kanada. Jetzt kämpft Paul Hellyer dafür, dass die Existenz von Aliens anerkannt
+wird. Mehr noch: Auf einer ‹Enthüllungstour› fordert er die Regierungen weltweit auf, ihre Ufo-Akten offenzulegen.
+Er ist inzwischen 91 Jahre alt, aber in seiner Mission unermüdlich: Der frühere kanadische Verteidigungsminister
+Paul Hellyer ist überzeugt, dass Aliens seit Tausenden von Jahren die Erde besuchen und unter den Menschen leben.
+Diese These vertritt Hellyer, der in den 60er-Jahren Verteidigungs- und Verkehrsminister war, seit Jahren.
+Jetzt ist der Senior in die Offensive gegangen: Mit anderen Alien-Gläubigen startete er eine ‹Enthüllungstour› (‹Disclosure Canada Tour›). Am vergangenen Wochenende sprach er vor rund 400 Menschen an der Universität in Calgary
+und forderte die Regierungen weltweit auf, zu enthüllen, was sie über ausserirdische Besucher wissen.
+
+Menschen sollen Akteneinsicht einfordern
+
+«Viele Medien werden nicht darüber berichten», sagte Hellyer in einem Interview mit dem kanadischen TV-Sender
+CTV mit Blick auf die mutmasslich zurückgehaltenen Akten. Man könne nur hoffen, dass eines Tages eine kritische
+Masse an Menschen erreicht werde, die auf «die eine oder andere Weise» fordert: «Herr Präsident oder Herr Ministerpräsident, wir wollen die Wahrheit und wir wollen sie jetzt, denn sie berührt auch unsere Leben.» Hellyer glaubt
+nach eigenen Angaben, dass Aliens die Erde genauso häufig anfliegen wie Verkehrsflugzeuge.
+Der Kanadier, der im Lauf seines Lebens unterschiedlichen Parteien angehörte, ging erstmals 2005 mit seinem AlienGlauben an die Öffentlichkeit.
+
+«Einige Alien-Frauen verkleiden sich als Nonnen»
+
+In einem Interview von Januar 2014 äusserte er unter anderem die Vermutung, dass es 80 verschiedene Spezies gebe,
+von denen einige aussähen wie wir und auf der Strasse und nicht zu erkennen seien. Man nenne sie ‹Nordic Blondes›.
+Sie sähen aus wie hellhäutige Skandinavier. «Einige von ihren Frauen sind sogar als Nonnen verkleidet nach Las Vegas
+zum Shoppen gegangen und keiner hat sie erkannt», sagte Hellyer damals. Es gebe aber auch die kleinen ‹Short Grey´s›
+mit dünnen Armen und Beinen und einem sehr grossen Kopf, wie man sie aus Cartoons kenne.
+Technologisch seien die Aliens, die in der Regel friedliebend seien, den Menschen Lichtjahre voraus. Deswegen sei es
+ein Fehler, Ufos einfach abzuschiessen – was bisher gängige Praxis sei. Dies könne letztlich einen interstellaren Krieg
+provozieren.
+
+**Quetzal** Interessant, und bestimmt freut es dich, doch noch einmal von diesem Mann etwas in Erfahrung zu bringen,
+
+auch wenn er schon gestorben ist. Anderseits jedoch bestätigt dies deine Erinnerungsaussage, was ja als wertvoll zu bewerten ist.
+
+**Billy** Ja, er war wirklich ein Ehrenmann, und er schwieg und hielt sein Versprechen auch, dass er niemals etwas von
+
+Wendelle, mir und den Plejaren sagen würde, dass er sich in seinem Leben jedoch intensiv bemühe, die Machenschaften
+um die Fremden mit ihren UFOs aufzudecken. Dass einiges nun ans Licht kommt und meine Erinnerungsaussage bestätigt,
+das kann natürlich erfreulich sein, doch Besserwisser und Zweifler sowie Neider usw. werden dies wieder nicht nur anzweifeln, sondern mich auch der Lüge und des Betruges bezichtigen. Das aber stört mich weiter nicht, wie auch nicht, dass man
+durch mich … Dies eben z.B. … Dass man nicht zur Wahrheit stehen kann oder will, sondern mich im Gegenteil verleugnet
+und falsch mit bösen Lügen beschuldigt, wie ich das schon als Knabe sowie auch meiner Lebtage genug erfahren habe,
+wobei gar Behörden, Polizei und Staatsangestellte mich mit Verleumdungen gegen ‹Entlohnung› zur Sau machten, daran
+habe ich mich schon gewöhnt, als mich die Horat und die Pavoni verprügelten, als ich noch ein Junge war. Das wird zwar
+noch heute versucht, besonders von …, und dies … Darauf reagierte ich vorderhand nicht, doch vielleicht muss ich das doch
+und nenne dann offen alles und verbreite es im Internet.
+
+**Quetzal** Dass wieder versucht wird, dich neuerlich zu harmen, was … Die Zeit wird das erweisen, doch leider sind auch
+
+viele andere Widersacher, die dir nicht nur Schaden zufügen und auch die Wahrheit nicht akzeptieren wollen. Dies nebst
+dem – was noch immer seit deiner Knabenzeit gegen dich aktuell und von den Sektenmitgliedern der … pendent ist und
+noch immer von 3 Personen verfechtet wird – haben sich wieder einige fanatisch Gläubige den 3 noch lebenden fanatischen
+Nachkommen der hassvollen Urheber der … zugesellt. Folglich haben sich wieder einige Fanatiker zusammengefunden, die
+Böses gegen dich sinnen, wie wir ergründet haben.
+**Billy** Erfreulich. – Wohl an der Zeit, dass ich mich auf den Weg der Vorsicht begebe, der …
+
+**Quetzal** Das ist zwar deine Art, aber das Ganze muss dennoch wieder intensiver sein.
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Billy** Natürlich, es ist ja offenbar notwendig, doch wenn alles wieder von vorn beginnt, dann wird es ein bisschen
+
+schwieriger, weil ja nun eine gewisse Überwachung mehr Sicherheit bietet. Zwar ist das Ganze recht kostenreich gewesen,
+doch als das letzte Mal ein Anschlag auf mich versucht wurde; das war damals, etwa vor zweieinhalb Jahren, als Mariann,
+Willem und ich am Tisch vor der Haustüre sassen und der Schuss glücklicherweise durch einen bestimmten Umstand hoch
+in den Himmel ging, wobei unter Umständen nicht ich, sondern Mariann oder Willem getroffen worden wären. Es war ja
+auch sagenhaftes Massel, als der auf mich gerichtete Blitz der Gizeh-Heinis mich rechts an der Hand getroffen, runtergefahren und am rechten Knie dann in den Stein gefahren ist, wo ein Stück Stein herausgesprengt wurde. Dass Silvano nicht
+Schaden nahm, der direkt neben mir stand, war wie ein Wunder, während Bernadette gewaltig erschrak, die neben der
+Türe zu ihrem Raum stand und auch ein 2meter-Gipfel vom Birkenbaum durch den Blitz ‹weggeschossen› wurde.
+
+**Quetzal** Ja, das ist mir bekannt, denn darüber wurde ich aufgeklärt, und es war wirklich Glück, dass du überlebtest, wie
+
+du später sagtest. Wir werden ja sehen und erfahren, was sich zukünftig ergeben wird, doch ist durch die Überwachung
+effectiv mehr Sicherheit gegeben.
+
+**Billy** Natürlich, das sind auch meine Gedanken, und die happigen finanziellen Auslagen haben sich gelohnt. Ausser
+dem wird ja etwas nicht so heiss gegessen, wie es gekocht wird. Deshalb denke ich, dass durch die teuren Überwachungsgeräte tatsächlich alles dazu beigetragen wird, dass ordentlich mehr Sicherheit geboten ist.
+
+**Quetzal** Das dürfte wirklich so sein.
+
+**Billy** Bernadette hat das Geschehen schriftlich festgehalten, wie vieles andere aus meinen Lebenserinnerungen.
+
+Aber hier ist noch eine Frage, die ich dir vortragen soll von einer Frau Zimmermann, nämlich die: Haben die Plejaren wirklich
+nichts mit den UFOs zu tun?
+
+**Quetzal** Du weisst doch, dass das nicht der Fall ist, denn unsere Herkunft führt zurück ins ANKAR-Universum, folglich
+
+wir also weder in diesem DERN-Universum anstämmig sind, noch uns in solchen Fluggeräten bewegen, die von den Erdenmenschen beobachtet und UFOs genannt werden. Ausserdem sind unsere Direktiven derart ausgerichtet, dass wir uns von
+den Fremden, die diese UFOs steuern, fernhalten und uns also ihnen gegenüber nicht erkennbar machen, und dies weder
+in sichtbarer noch in irgendwelcher Form der Kommunikation. Das ist dir doch bekannt.
+
+**Billy** Natürlich, doch die Frage von Frau Zimmermann wurde ja nicht an mich, sondern an dich gerichtet, folglich du
+
+sie beantworten sollst.
+
+**Quetzal** Das habe ich ja jetzt getan und will ich zudem auch das Gespräch beenden, denn ich habe noch anderweitig
+
+einiges zu tun, weshalb ich zu gehen habe. Wenn du meiner bedarfst, dann rufe mich. Leb wohl Eduard, lieber Freund.
+
+**Billy** Dann eben, leb auch wohl, mein Freund, leb wohl, Quetzal.
+
+### Die FIGU hat zwei neue YouTube Kanäle, auf denen ihr mehr über Billy,
+ die Plejaren und die Schöpfungsenergielehre erfahren könnt:
+
+Deutsch:
+
+**FIGU**
+
+Michael von Hinterschmidrüti
+
+@michaelvoigtlaender9492
+
+https://www.youtube.com/channel/UCvrDwu4PdnaX328s7n0PWVg
+
+Englisch:
+
+**FIGU**
+
+Michael from Hinterschmidrueti
+
+@michaelvoigtlaender4347
+
+https://www.youtube.com/channel/UCVRSWBSZ7LszV1y7rlJ_dHA
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Neutrale Informationen zur aktuellen Lage und zu anderen wichtigen Themen:
+
+**FIGU**
+
+Sonderausgabe Zeitzeichen:
+
+https://www.figu.org/ch/verein/periodika/zeitzeichen
+
+COPYRIGHT und URHEBERRECHT 2024 bei ‹Billy› Eduard Albert Meier, ‹Freie Interessengemeinschaft Universell›, Semjase Silver Star
+Center, 8495 Schmidrüti, Schweiz. Kein Teil dieses Werkes, keine Photos und sonstige Bildvorlagen, keine Dias, Filme, Videos und keine
+anderen Schriften oder sonstige Materialien usw. dürfen ohne schriftliche Einwilligung des Copyrightinhabers in irgendeiner Form (Photokopie, Mikrofilm oder ein anderes Verfahren), auch nicht für Zwecke der Unterrichtsgestaltung usw., reproduziert oder unter Verwendung elektronischer Systeme verarbeitet, vervielfältigt oder verbreitet werden.
+
+Veröffentlicht auf www.FIGU.org durch:
+‹Freie Interessengemeinschaft Universell›, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+Copyright 2024 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+

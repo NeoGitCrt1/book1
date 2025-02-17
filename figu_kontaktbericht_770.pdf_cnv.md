@@ -1,0 +1,2102 @@
+# Gespräch zwischen Florena und Bermunda von der plejarischen Föderation, und ‹Billy› Eduard Albert Meier, BEAM
+
+## Siebenhundertsiebzigster Kontakt Mittwoch, 5. Mai 2021 00.08 h
+
+**Billy** Ah – willkommen, Bermunda. Grüezi. – Schön, dass du auch wieder einmal kommst. Ist ja ungewöhnlich, denn du
+hast bei deinem letzten Herkommen nichts gesagt, dass du so lange … nun ja, ich meine, du bist jetzt so lange weg gewesen
+… Auch du, Florena, auch dich grüss ich, und seid willkommen. …
+
+**Bermunda** Ja, aber sei auch du gegrüsst … Leider war es mir nicht möglich herzukommen, weil ich wegberufen wurde.
+
+**Florena** Sei auch gegrüsst, lieber Vaterfreund.
+
+**Bermunda** Weil ich … leider, denn ich …
+
+**Billy** … ? … ?
+
+**Florena** Bermunda und ich, wir sind gute Freundinnen und wie Geschwister zusammen. Auch ich habe leider Unerfreuliches
+zu berichten, denn meine Verbindung mit …
+
+**Billy** Ach so, ich verstehe, dann redet ihr zusammen auch über jene Dinge, die Bermunda bewegt haben, wie sie eben
+sagte. Dass es dir nicht leichtgefallen ist, Bermunda, das kann ich verstehen, denn … … …
+
+**Bermunda** Ja, danke … ich wusste, dass du es verstehen wirst. Aber was wir jetzt gesagt haben, das bezieht sich auf
+meine privaten Belange, die du beim Schreiben des Gespräches nicht abrufen und nicht niederschreiben sollst.
+
+**Billy** Natürlich nicht, das ist doch klar, denn … Aber du, Florena – ich finde es bedauerlich, dass deine …
+
+**Florena** Leider ist es so, und nicht zu ändern. Damit habe ich aber, wie Bermunda, … Ausserdem … wenn ich dann auch
+darüber mit dir reden darf, wenn du dir etwas Zeit dafür nehmen kannst?
+
+**Billy** Auch dich kann ich verstehen, Florena. Du solltest dir deswegen jedoch keinerlei schmerzliche Gedanken machen,
+und vor allem kein Problem, denn es gibt im Leben immer wieder Momente und Situationen, in die man sich einfach einfügen muss, ob man will oder nicht. Ausserdem lassen sich Probleme in der Regel immer lösen, wenn man darüber ratschlagt
+und Verstand und Vernunft walten lässt. Also können wir auch zu dritt miteinander diese Zustände bereden und eine Lösung für alles suchen. Doch darüber offen reden, das können wir später, und dann eben privat. Jetzt ist es ja nicht der Fall,
+weil ich denke, dass das, was wir bisher geredet haben, sozusagen unsere Begrüssungseinführung war, wobei aber doch
+einiges nicht genannt werden soll, wenn ich das Gespräch abrufe und niederschreibe, weil ja doch einiges nicht dazugehört
+und das Ganze eure Privatsache ist, und das soll es ja auch bleiben, wobei ich denke, dass auch du, Florena …?
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Florena Wir vertrauen einander.**
+
+**Bermunda** Natürlich.
+
+**Billy** Dann ist ja alles klar, und auch für mich ist es selbstverständlich, dass ich deine Sache als rein privat sehe und sie
+auch dieserart behandle und weder etwas davon abrufe noch niederschreibe. Aber seht einmal hier, bitte, diesen Artikel
+hat mir Achim Wolf gestern gebeamt. Du solltest ihn bitte lesen, und mir dann sagen, was du davon hältst.
+
+**Bermunda** … liest …
+
+**Florena Kann ich mithören, wenn Bermunda laut vorlesen kann?**
+
+**Billy** Natürlich – wenn du bitte vorlesen willst, Bermunda?
+
+**Bermunda** Ja – … liest vor …
+
+## AstraZeneca: Gefährliche Nebenwirkung  viel häufiger als angenommen
+4 Mai 2021 06:45 Uhr, von Susan Bonath
+
+COVID-19-Impfung: AstraZeneca stufte akuten Mangel an Blutplättchen bereits Mitte April als "häufige Nebenwirkung" ein.
+Einem bis zehn von 100 Geimpften drohen demnach innere Blutungen. Das Paul-Ehrlich-Institut hängt das aber nicht an die
+grosse Glocke.
+
+Quelle: www.globallookpress.com © Alfonso Di Vincenzo/Keystone Press Agency
+
+Die COVID-19-Impfstoffe können Blutgerinnsel begünstigen. Das gilt inzwischen als erwiesen. Speziell der Konzern AstraZeneca sorgte für Schlagzeilen, nachdem jüngere Geimpfte an Hirnvenenthrombosen oder Hirnblutungen verstorben waren. Beides in Kombination habe man nur "sehr selten" festgestellt. Und COVID-19 sei viel gefährlicher, beschwichtigten
+die deutsche Impfstoff-Überwachungsbehörde namens Paul-Ehrlich-Institut (PEI) und die Leitmedien gleichermassen. Doch
+mit einem brisanten Detail hält das PEI seit drei Wochen hinterm Berg: Eine sogenannte Thrombozytopenie tritt offenbar
+sehr viel häufiger auf als bisher bekannt. Ein solcher Mangel an Blutplättchen wird nicht immer bemerkt. Aber er kann im
+Ernstfall zu schweren inneren Blutungen, auch Hirnblutungen führen und gilt deshalb immer als Notfall.
+
+**PEI und Leitmedien schweigen**
+Das geht aus einem zweiten sogenannten "Rote-Hand-Brief" des schwedisch-britischen Pharmakonzerns AstraZeneca hervor. Dieser stammt bereits vom 13. April 2021. In den Leitmedien wurde darüber zumindest nicht aufsehenerregend berichtet. Lediglich auf dem Webblog tpk.at ist ein ausführlicherer Bericht zu finden.
+Ausserdem berichtete das Fachportal apotheke-adhoc.de über den Rote-Hand-Brief des britisch-schwedischen Impfstoffherstellers. Allerdings blieb der Umstand, dass Thrombozytopenien nunmehr als häufig gelten, darin unerwähnt. Das Paul
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Ehrlich-Institut hat den Brief zwar ordnungsgemäss auf seiner Webseite veröffentlicht. Doch muss der Laie schon sehr akribisch suchen, um ihn dort zu finden.
+
+**Ein bis zehn Prozent der Geimpften könnten betroffen sein.**
+Darin heisst es zwar, Thrombosen in Kombination mit Thrombozytopenie stufe der Ausschuss für Risikobewertung (PRAC)
+der Europäischen Arzneimittel-Agentur (EMA) weiterhin als "sehr seltene Nebenwirkung" durch eine AstraZeneca-Impfung
+ein. Allerdings räumt der Konzern wörtlich ein:
+
+**_"Eine der Aktualisierungen betrifft Abschnitt 4.8 der Fachinformation. Thrombozytopenie wurde als unerwünschte Reak-_**
+**_tion mit einer Häufigkeit von 'häufig' eingeführt, basierend auf Daten aus klinischen Studien."_**
+
+Nebenwirkungen von Medikamenten werden auf Beipackzetteln nach der Häufigkeit des Auftretens klassifiziert. "Sehr selten" bedeutet demnach, dass weniger als einer von 10.000 Patienten davon betroffen ist.
+Als "häufig" wird so eine unerwünschte Wirkung deklariert, wenn sie bei einem bis zehn von 100 Patienten auftritt. Das
+Serum Vaxzevria von AstraZeneca wurde bis zum 2. April (neuere Sicherheitsberichte hat das zuständige PEI noch nicht
+veröffentlicht) knapp drei Millionen Mal verabreicht. Wenn die Untersuchungen ernst zu nehmen sind, könnte 30.000- bis
+300.000-mal bei den Geimpften ein Mangel an Blutplättchen aufgetreten sein – wohl meistens unbemerkt oder ohne, dass
+ein Arzt aufgesucht wurde.
+
+**AstraZeneca: Thrombozytopenie wohl eine Autoimmunreaktion**
+Die Autoren von AstraZeneca, Susanne Tubis und Klaus Hinterding, vermuten laut Brief, die gefährliche Gerinnungsstörung
+werde wohl durch Antikörper verursacht, die durch die Impfung gebildet werden. Diese sogenannten PF4-Antikörper bänden sich häufig an Blutplättchen und veränderten deren Struktur. Bei Geimpften, die eine Thrombozytopenie mit oder ohne
+Thrombose entwickelten, habe man besonders viele von diesen speziellen Antikörpern gefunden. Das stärke die These, so
+die Autoren.
+Offiziell meldete das PEI bis zum 21. April insgesamt 75 Fälle von Hirnvenenthrombosen nach COVID-19-Impfungen, die
+einen kleinen Teil aller aufgetretenen Thrombosen darstellen. Zwölf Fälle davon seien nach der Gabe des Impfstoffs Comirnaty von Pfizer/BioNTech aufgetreten, 63-mal traf es mit dem AstraZeneca-Vakzin Geimpfte. Insgesamt waren 56 Frauen
+und 19 Männer betroffen – die meisten waren jünger als 60 Jahre.
+Ausschliesslich nach der Gabe von Vaxzevria (AstraZeneca) sei es in 34 Fällen gleichzeitig zu einer Hirnvenenthrombose und
+Thrombozytopenie gekommen, so das PEI. Zwölf Personen seien daran gestorben. Drei weitere überlebten demnach Blutgerinnsel im Gehirn nicht, die nach der Gabe des Pfizer/BioNTech-Vakzins aufgetreten waren.
+
+Von einer relevanten Dunkelziffer weiterer Fälle ist aber auszugehen. Erstens wird nur ein geringer Teil von Nebenwirkungen überhaupt gemeldet. Zweitens wurden bisher besonders viele ältere und kranke Menschen geimpft. Sterbefälle oder
+schwere klinische Symptome können hier viel einfacher auf Vorerkrankungen und Alter geschoben werden. In Pflegeheimen etwa gab es jedenfalls zahlreiche der Autorin bekannte Todesfälle nach Impfungen, denen eine natürliche Ursache
+zugeschrieben worden war und die deshalb nicht weiter rechtsmedizinisch untersucht wurden.
+
+**Informationen nur für Ärzte vorgesehen**
+Die mutmassliche Heimlichtuerei mit schweren Nebenwirkungen dieser mRNA- und Vektor-Impfstoffe scheint sich an dem
+jüngsten Beispiel von AstraZeneca erneut zu bestätigen. Warum informieren PEI und die Presse nicht die breite Öffentlichkeit über das häufige Auftreten einer Impfreaktion, die insbesondere im Fall der Nichtbehandlung sogar tödliche Folgen
+haben kann?
+PEI-Sprecherin Susanne Stöcker erklärte dazu, so ein "Rote-Hand-Brief" richte sich "explizit an Ärztinnen und Ärzte". Früher
+habe man diese deshalb ausschliesslich an diese versandt. "Seit einigen Jahren veröffentlichen das PEI und das Bundesinstitut für Arzneimittel und Medizinprodukte diese Dokumente zusätzlich auf ihren Internetseiten, wo sie für alle Interessierten zugänglich sind", fügte sie an.
+Mit anderen Worten: Wer wissen will, ob die Impfung für ihn möglicherweise mehr Gefahren birgt als eine CoronavirusInfektion, muss selbst die Internetseiten der Fachbehörden durchsuchen. Fakt ist aber auch: Die Impfärzte müssten darüber
+Bescheid wissen und die Impflinge entsprechend warnen.
+
+**Wo bleibt der Sicherheitsbericht?**
+Unverständlich bleibt zudem, warum das PEI seit Wochen keinen Sicherheitsbericht mehr veröffentlicht hat. Der jüngste
+am 3. Mai abrufbare Bericht umfasst den Zeitraum bis zum 2. April. Über einen Monat gab es also keine neuen Informationen von der zuständigen Behörde. Stöcker beschwichtigte: Die nächste Veröffentlichung sei für Anfang Mai geplant und
+komme wohl in dieser Woche heraus. Sie fügte wörtlich an:
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**_"Vor dem Hintergrund der zunehmenden Zahl von Impfungen erreichen uns natürlich auch entsprechend mehr Verdachts-_**
+**_fallmeldungen, die erfasst und bewertet und für die gegebenenfalls nachrecherchiert werden muss (sic!). Zudem bitte ich_**
+**_Sie zu bedenken, dass in den letzten Wochen sehr viele Aktivitäten im Hinblick auf die Sicherheit der COVID-19-Impfstoffe_**
+**_erforderlich waren."_**
+Bereits im letzten Sicherheitsbericht des PEI waren ursprünglich aufgeführte schwerwiegende Verdachtsfälle, darunter Gesichtslähmungen, Herzmuskelentzündungen, Schlag- und Krampfanfälle, nicht mehr explizit benannt worden. Als Grund
+erklärte die Sprecherin vor einigen Wochen, man könne nicht jede Einzelwirkung gesondert nennen.
+_Quelle: https://de.rt.com/meinung/116950-astrazeneca-gefaehrliche-nebenwirkung-viel-haeufiger-als-angenommen/_
+
+**Billy** Und – was denkt und sagt ihr dazu?
+
+**Bermunda** Das Ganze dieser Ausführungen ist uns schon bekannt, seit dem ersten Aufkommen dieser Impfstoffe,
+wobei ich aber nicht nur an diesen hier genannten denke, sondern ohne Unterschied an alle, die gesamthaft nicht genügend
+getestet und in einem Schnellverfahren fahrlässig unerprobt verwendet werden.
+
+**Billy** Und du, Florena, du bist ja auch in Medizin und Virologie bewandert, und deshalb denke ich, dass du auch einiges
+dazu sagen könntest, was eure Forschungen ergeben. Oder sollst du nicht darüber reden?
+
+**Florena** Was grundlegend zu erwähnen ist, das wurde bereits von Beginn an von Ptaah als Verantwortungslosigkeit der
+Obrigkeiten beanstandet. Und wie er voraussagte, haben diese unerprobten Impfstoffe auch viele Todesopfer gefordert,
+was jedoch allgemein öffentlich verschwiegen und alle Toten falscherweise als direkte Seuchentote erklärt wurden. Was
+sich ausserdem für viele Menschen aus diesen Impfungen an langzeitigen Gesundheitsschäden ergibt und weiter ergeben
+wird, davon wurde öffentlich nichts erklärt. Dies, wie auch nicht bekanntgemacht wird, was sich diesbezüglich für Menschen ergibt, die schon seit Beginn der Impfungen an Corona-Langzeitfolgen leiden, wie aber diesbezüglich fortan auch
+noch weitere folgen werden.
+Unsere Abklärungen haben in letzter Zeit ergeben, dass nicht nur in Europa mehrere Tausende von Menschen bösartigen
+schweren Nebenwirkungen und Langzeit-Gesundheitsschäden infolge Corona-Impfungen verfallen sind, sondern auch in
+allen Ländern, in denen Corona-Impfungen durchgeführt wurden und wobei weiterhin Impfungen verabreicht werden. Insbesondere sind dabei Impffolgen zu nennen, die sich einerseits immer wieder in vielen Fällen seit den ersten Impfungen
+ergeben haben, wie sich solche aber zukünftig ereignen werden, wie:
+
+1. Hirnblutungen,
+2. Herzinfarkte,
+3. Angstzustände,
+4. Geschmacksverlust,
+5. Hyperaktivität,
+6. Hypersensitivität,
+7. Sehstörungen,
+8. Grippeähnliche Erkrankungen,
+9. Fieber,
+10. Schüttelfrost,
+11. Schwindel,
+12. Unwohlsein,
+13. Guillain-Barré-Syndrom, eine Schädigung der Nerven vor allem im Rückenmark, wodurch teils schwere motorische Funktionsstörungen wie Lähmungen entstehen,
+14. Stimmveränderungen,
+15. Glockengesichtslähmungen,
+16. Bewegungsunsicherheit,
+17. Schmerzen an der Injektionsstelle,
+18. Hirnvenenthrombosen u.U. mit gleichzeitigem Mangel an Blutplättchen resp. Thrombozytopenie, die durch eine
+Autoimmunreaktion ausgelöst wird, wobei sich dann verstärkt bei inneren Entzündungen und Gefässverletzungen Antikörper gegen eigene Blutplättchen bilden,
+19. Arteriosklerotische Veränderungen,
+20. Herzmuskelentzündungen,
+21. Blutungen beim weiblichen Geschlecht ausserhalb der Regel.
+
+Weiter ergaben unsere Erkenntnisse und Forschungen, dass auch folgende Beschwerden auftreten können:
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+22. Brustkorbschmerzen,
+23. Beinschwellungen,
+24. Blaue Flecken,
+25. Kurzatmigkeit,
+26. Bauchschmerzen,
+27. Kopfschmerzen, enorm starke,
+28. Sehen in verschwommener Weise,
+29. Risiko-Narkolepsie u.U.,
+30. Verdauungsbeschwerden,
+31. Müdigkeit,
+32. Körper-Schmerzen diverser lokaler Art.
+
+Auch andere Gesundheitsschäden, Leiden und Krankheiten haben sich durch Impfungen ergeben, wie zahlreiche Kurzfolgen
+und Langzeitfolgen, wie aber auch Spätfolgen, Dauerleiden oder diverse Dauerkrankheiten aus den verwendeten und unausgegorenen Impfstoffen diverser Arten hervorgehen können, wobei der effective Ursprung derselben dann nicht eruiert
+und also nicht erkannt werden kann, ob dieser auf die Corona-Seuche selbst oder auf die unzulänglichen Impfstoffe zurückführt. Wenn spezifische Symptome bei Autoimmunerkrankungen auftreten, ergeben sich diese nicht immer sofort, sondern
+erst mit der Zeit, wobei das Ganze dann um so schlimmer werden kann.
+Auch altherkömmliche Impfschäden, die sich infolge anderer Impfungen hinsichtlich anderer Krankheiten ergeben, können
+sich infolge Corona-Impfungen als Langzeit- und Spätwirkungen neuerlich ergeben und von Wissenschaftlern, Ärzten und
+Virologen usw. bestritten werden, wie das von ihnen bereits seit dem Jahr 1796 ab den ersten Anfängen von Impfungen
+getan wird. Es …
+
+**Billy** Entschuldigung, wenn ich dich unterbreche, aber wie kam denn das zustande in dieser frühen Zeit, eben, dass erste
+Impfungen gemacht wurden? Leider habe ich mich nie damit befasst, wie und wann die erste Impfung zustande gekommen
+ist.
+
+**Florena Das ergab sich daraus, weil ein Knabe gegen Kuhpocken immungemacht werden sollte, eben durch einen herge-**
+stellten Impfstoff, mit dem die erste Impfung an einem Menschen, einem Knaben, erprobt wurde, wobei der Impfvorgang
+dann auch Vaccination genannt wurde.
+
+**Billy** Aha, interessant, und diese Bezeichnung hat sich bis heute so erhalten. Kuhpocken war dafür also der Grund, dann
+wurde demnach der lateinische Begriff <vacca> also <Kuh> zum Inbegriff für Impfung, eben Vaccination, was dann wohl
+mit <vaccinus> weiterführte, was etwa <von der Kuh herkommend> bedeuten kann oder so.
+
+**Florena Das ist richtig. – Und was ich jetzt erkläre, solltest du beim schriftlichen Wiedergeben unseres Gesprächs besonders**
+kennzeichnend hervorheben:
+
+### Was nun weiter zu sagen ist, das entspricht weder einer Angstmacherei noch einer Panikmache, wie auch keiner Aufforderung zur Unterlassung oder einem Ausführenlassen von Impfungen in bezug auf eine Schutzvorsorge gegen die Corona-Seuche. Jedes Nachdenken, Überlegen, Entscheiden sowie auch das Handeln hinsichtlich dessen, ob sich eine Person für oder gegen eine Corona-Impfung ent- scheidet, das bedingt in jedem Fall eingehender, gründlicher und logischer Überlegungen und Abwä- gungen. Dabei bedarf das Ganze einer persönlichen, folgerichtigen und damit einer eigenen, wohl- durchdachten verstand-vernunftgemässen Entscheidung, die einzig und allein nur jede Person für sich selbst bestimmen kann, die ihrer Sinne mächtig und fähig ist, eigens über das persönliche Wohl, Wehe, Tun und Lassen zu entscheiden.
+
+Tatsache ist, dass das Ganze der Impfungen auch Aspekte dessen aufweist, dass brisante Gefahren mit unbekannten Langzeitfolgen verschwiegen werden. Diesbezüglich wird auch von namhaften Instituten lügenhaft behauptet, dass Langzeitdaten in bezug auf Negativfolgen durch Corona-Impfungen auf Missverständnissen und zudem sehr oft durch den unrichtigen
+Einsatz oder Missbrauch von Arzneimitteln beruhen würden. Das entspricht jedoch nicht der Wahrheit, wie wir festgestellt
+haben.
+Üblicherweise, und das ist explizit zu erklären, treten Impfreaktionen normalerweise innerhalb weniger Stunden oder Tage
+auf, jedoch haben sich bei unseren Forschungen Erkenntnisse ergeben, die beweisen, dass infolge einer Corona-Impfung
+diverse Erkrankungen, Leiden, Gebrechen sowie langanhaltende gesundheitsschädigende Reaktionen bis hin zum Siechtum
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+aller Art erst nach einigen Wochen, Monaten, erst nach Jahren oder gar nach Jahrzehnten auftreten können, wobei dann –
+gemäss unseren Vorausschauen – die Ursachen nicht erklärt und keine Heilmethoden zur Anwendung gebracht werden
+können.
+Unsere Forschungen weisen bei Untersuchungen auch aus, dass ganz besonders Frauen nachteilig von Impfungs-Nebenwirkungen betroffen werden, wobei wir aber auch festgestellt und erkannt haben, dass sich die Ribonukleinsäure des
+Corona-Seuche-Virus ins menschliche Erbgut einbaut usw. Folglich ergeben sich deshalb auch langzeitig Erbschäden diverser, jedoch nicht vorausbestimmbarer Art, wie jedoch auch gesundheitlich schwerwiegende sowie sehr bedenkliche Behinderungen innerorganischer und äusserlich-körperlicher Art hervorgerufen werden können. Auch stellen wir laufend und
+täglich fest, dass in allen Ländern, in denen Impfungen durchgeführt werden, sich immer wieder Todesfälle ergeben, die
+sich unseren Erkenntnissen nach sehr oft als Impfnachwirkungen zeitigen. Ungeachtet offensichtlicher sehr massiver Nebenwirkungen und Todesfälle läuft die Impfpropaganda in allen Ländern jedoch ungehindert weiter, wobei jedoch weder
+von Behörden, Staatsführungen noch von Gesundheitsinstituten und Ärzten usw. die Öffentlichkeit darüber informiert,
+sondern alles Diesbezügliche bestritten, verschwiegen oder bewusst geleugnet wird. Und dies wird ganz besonders in
+nächster Zeit so sein, weil Infektionen und Todesfälle vorerst in diversen Ländern rückläufig sein werden, was viele Menschen zur Unvorsichtigkeit und zum Übermut veranlassen wird und u.U. böse Folgen zeitigen kann, wie es auch möglich
+sein kann, dass neue sich ergebende Mutationen weiteres Seuchenunheil bringen, worüber ich meinerseits jedoch noch
+keinerlei Wissen habe, weil ich mich diesbezüglich nicht direkt, sondern nur nebenbei und auch nur sporadisch informiere.
+
+**Billy** Das weiss ich, aber danke dafür, was du erklären konntest, Florena. Auch weiss ich von Ptaah nebst anderem, dass
+vieles mehr als nur unlauter und auch mit Betrug verbunden war, ist und weiter sein wird. Ptaah erklärte auch, dass nebst
+dem Aufkommen von vielen Impftoten auch viele Menschen durch die Impfungen gesundheitsbeeinträchtigende Langzeitschäden und Impfspätschäden erleiden werden, wie aber geimpfte Personen trotzdem von der Seuche befallen werden
+können, was dann aber in besonderen Fällen auch durch Tests nicht mehr festgestellt werden könne, weil sich die Seuche
+nur noch impulsmässig im Organismus festhalte, was jedoch mit irdisch-medizinischen Möglichkeiten nicht feststellbar sei.
+Daher, so erklärte er, könnten solcherart Corona-Impuls-Erkrankte andere Personen weiterhin anstecken, ohne dass sie
+selbst wüssten, dass sie Corona-Impulsträger und damit infizierend seien. Und zudem, so erklärte er, könnten dann auch
+die dieserart Impulsinfizierten weitere Personen anstecken usw., wobei dann aber nicht unbedingt wieder Corona-Symptome, sondern verschiedenste andere Leiden und Krankheiten bis hin zum Siechtum Folgen sein könnten.
+
+**Bermunda** Ptaah erklärte auch – und als Fachkraft hat er sich ja sehr mit allem beschäftigt und selbst Forschungen
+betrieben –, dass die Seuche auf- und abschwelle, neue Mutationen sich mit anderen verbinden und dadurch neue Formen
+bilden werden. Auch erklärte er, dass beim Corona-Virus eine Heimtücke gegeben sei, die sich derart äussern könne, dass
+sich das Virus scheinbar zurückziehe, um dann jedoch plötzlich wieder vermehrt loszubrechen und sich wieder vehement
+zu verbreiten, weshalb ein Absinken von Infektionen und Todesfällen u.U. nur ein Warnzeichen für einen neuen Ausbruch
+sein könne. Auch erklärten unsere Wissenschaftler, dass das Corona-Virus allzeitlich beständig bleibe und selbst nach Jahrtausenden als Neumutationen wieder aktiv werden könne.
+
+**Billy** Das hat mir auch Sfath schon gesagt, und alles, was ihr gesagt habt, das entspricht dem, was sich bisher auch so
+ergeben hat und dieserart auch jetzt noch gegeben ist. Ausserdem haben wir, Sfath und ich, durch unsere Zukunftsschauen
+beobachtet, dass einerseits das sich bereits vor mehr als 3 Monaten in Indien entwickelte Corona-Virus als neue Mutation
+erst zu spät erkannt wurde, nachdem es bereits viele Opfer gefordert hat, folglich keinerlei exakt darauf ausgerichtete
+Massnahmen ergriffen und durchgeführt werden konnten. Und die Massnahmen, die dann zu spät gegen die sich in Indien
+ausbreitende neue Abart des Corona-Virus ergriffen wurden und durchgeführt werden, sind absolut fahrlässig-nutzlos gegen diese leichter als andere Mutationen infizierende Abart, wodurch nun täglich Hunderttausende infizierte Menschen
+und ebenso Tausende von Todesopfern zu beklagen sein werden. Auch wird diese indische Mutation, die infolge der Unfähigkeit sowie Dummheit der obrigkeitlichen Machthabenden in Europa bereits eingeschleppt wurde, die Sachlage wieder
+negativ verändern.
+Die Unfähigkeit der Machtführenden in bezug auf die Beurteilung und Lageerkennung sowie zum Erlass aller notwendigen
+Schutzmassnahmen waren schon seit Beginn der Corona-Seuche derart unbedacht, unzureichend, närrisch und der Gesundheitssicherheit der Völker abträglich, dass keinerlei Chance bestand, das Übel zu beenden, ehe es hätte zur Seuche
+werden können.
+Durch die indische Mutation werden wieder neue infektiöse Zustände entstehen, was ebenso zu weiteren Problemen führen wird, wie die nunmehr aufkommenden zu frühen Öffnungen und Lockerungen der sonst schon verantwortungslosungenügenden Sicherheits-Schutz-Massnahmen. Die Verantwortungslosigkeit und Dummheit der Verantwortlichen aller
+Obrigkeiten beginnen bereits damit, ihre sonst schon sehr ungenügenden Anordnungen und Massnahmen viel zu schnell
+zu lockern, was sich jedoch in einer gewissen Zeit in der einen und anderen Art zukünftig rächen kann, wobei ich darüber
+jedoch keine Kenntnisse habe und noch nicht informiert bin, was sich tatsächlich aus diesen verfrühten Lockerungen ergeben wird.
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Florena** Was sich ergeben hat hinsichtlich der indischen Mutation, so wäre diesbezüglich eine dauerhafte Kontrolle der
+Corona-Auswüchse notwendig gewesen, was aber ebenso nicht der Fall war, wie es auch heute nicht ist und es sich aber
+auch morgen und übermorgen usw. nicht ergeben und deshalb noch viele Opfer fordern wird. Eine solche Kontrolle und
+auch das Anordnen entsprechend notwendiger Vorkehrungen usw. wäre die Aufgabe der auf der Erde hierfür zuständigen
+WHO gewesen, die jedoch in jeder Beziehung in diesem Fall ebenso versagt hat, wie gesamthaft auch direkt auf die CoronaSeuche in weltweiter Weise bezogen. Dadurch konnte sich folglich diese Seuche als Pandemie ausbreiten und diese bis
+anhin – unseren sehr präzisen Zählungen gemäss – 9,65 Millionen Menschenleben fordern, wovon bis anhin offiziell irdische
+Statistiken jedoch 3,4 Millionen weniger ausweisen. Dies, während Schätzungen irdischer Wissenschaftler also von nahezu
+3 Millionen weniger Toten ausgehen, als von den 9,65 Millionen, die wir sehr genau gezählt haben.
+Die Begründung für diese Falschschätzungen sind die, dass den Statistikerstellern alle Möglichkeiten zur genauen Abklärung
+und Zählung aller Corona-Toten und Corona-Vorgänge fehlen. Durch das Fehlen dieser Möglichkeiten zur Eruierung der
+effectiven Fakten werden jedoch unstimmige Zahlen sowie Hypothesen aufgebracht und der Erdenmenschheit als Tatsachen vorgelegt, was aber einem Betrug und Lügenwerk entspricht. Diesbezüglich wird sich auch neuerlich ein Betrug und
+Lügenwerk durch die WHO ergeben – wie bereits, wie ich weiss, auch von Ptaah sowie anderweitig mehrfach erwähnt
+wurde –, denn als weitere Folge ist abermals eine Scheinerforschung zur angeblichen Ursprungsergründung der CoronaSeuche angelaufen, wodurch in China neue angeblich wissenschaftliche Untersuchungen usw. die Herkunft der CoronaSeuche nachweisen sollen. Und wie wir durch unsere Beobachtungen, Abklärungen und belauschte geheime Gespräche
+erfahren haben, wurden von einigen wenigen bestimmten Teilnehmern dieser Untersuchungskommission bereits Fledermäuse als angebliche Corona-Seuchenverursacher bestimmt, obwohl die angeblichen Forschungen keinerlei entsprechende Nachweise dafür erbringen werden, weil die mit dem Virus infizierten Personen aus dem Geheimlabor bereits wenige Wochen nach der Verschleppung des Virus an der Seuche verstorben sind. Und dass durch diese Verschleppung des
+Virus auch Säugetiere, wie auch Fledermäuse, damit in Kontakt kamen, das habe ich bereits erklärt, wie auch, dass sich dies
+vereinzelt auch in andere Länder hinaus ergeben hat.
+Durch das Lügen- und Betrugswerk, das bereits als beschlossene Sache bevorsteht, soll das Ganze dessen verhindert werden, was sich als effective Ursprungentstehung des Corona-Virus in den 1970er Jahren zwischen Mao Tse-tung und dem in
+Hass gegen Amerika erwallten Amerikaner … ergeben hat, wodurch das Virus in Geheimlaboren herangezüchtet und dann
+durch Unachtsamkeit freigesetzt wurde. Also wird in kurzer Zeit ein neues Lügen- und Betrugswerk durch die WHO in die
+Welt gesetzt und betrügerisch den Völkern vorgesetzt werden, wenn neuerlich pro forma der Ursprung der Corona-Seuche
+ergründet werden soll, wobei jedoch bereits, wie gesagt, seit geraumer Zeit in Betracht gezogen wird, als Urheber der
+Seuche Fledermäuse zu bestimmen, die als Säugetiere teils auch vom Corona-Virus befallen wurden. Dies, als in einem
+Geheimlabor durch eine Unachtsamkeit das Virus Laboranten infizierte und diese es nach aussen verschleppten. Dabei
+wurden nicht nur Menschen durch das Corona-Virus infiziert, sondern auch verschiedene Fledermäuse. Und da auf der Erde
+die Fledermäuse als einzige Säugetiere zum aktiven Flug fähig sind, wurde die Suche auch auf einige andere Säugetiere und
+Lebewesen übertragen, was aber bisher keinerlei weitumfassende Folgen zeitigte, wodurch das Ganze bekannt geworden
+wäre. Das aber hat sich nicht nur auf China beschränkt, denn vereinzelt hat sich das Ganze der Verschleppung der Seuche
+in die Welt hinausgetragen, durch infizierte Menschen, die trotz der Corona-Seuche herumreisten und das Virus in diverse
+andere Staaten hinausgetragen haben, folglich auch in anderen Ländern einzelne Fledermäuse und andere Säugergattungen vom Corona-Virus befallen wurden. Das hat sich zwar bis anhin in nur sehr wenigen Fällen in der freien Wildbahn
+ergeben, jedoch bereits mehrmals bei privaten Tierhaltungen und bei Schautieranlagen.
+Wie wir schon seit jeher durch unsere Beobachtungen und Abklärungen usw. wissen, werden die irdischen Völker von
+Behörden, Statistikern, Obrigkeiten sowie von Geheimdiensten und Politikern usw. mit Betrugsdaten und Lügen irregeführt
+– die als angebliche wissenschaftliche Tatsachen vorgegaukelt werden. Dies, während effective Sachdaten und wichtige
+aufklärende Informationen den Völkern verschwiegen und verheimlicht werden, wie dies ebenso der Fall ist hinsichtlich
+vieler volksausgeschlossener politischer Geheimverhandlungen, Selbstherrlichkeitsentscheidungen und Geheimbeschlüsse, die oft volks- und staatsfeindlich sind und zum Schaden von Landesbevölkerungen und Staatsverfassungen ausarten, wie aber in dieser Weise solcherart Machenschaften auch zu Kriegs- und Terrorhandlungen wider andere Länder und
+Völker führen – was bei uns Plejaren absolut unmöglich wäre. Und diese Tatsachen haben nichts zu tun mit den weitverbreiteten pathologisch irr-wirren Wahnvorstellungen der seit alters her auf der Erde verbreiteten sogenannten Verschwörungstheorien.
+
+**Billy** Verschwörungstheorien, da sprichst du etwas an, das idiotischer nicht sein kann, jedoch seit alters her grosse
+Gruppierungen Erdlinge durch Wahnideen verrückt macht. Gross aufgekommen sind diese Verschwörungsidiotien durch
+religiös-sektiererische Wahnvorstellungen, wie z.B. bei Seuchen, bei denen die Gotteswahngläubigen in ihrem Glaubenswahn das Ganze als Strafe Gottes für ihren Ungehorsam gegen ihn erachteten und sich deshalb selbst kasteiten, und zwar
+nicht selten bis hin zum Selbstmord. Vorangetrieben wurde das Ganze noch von Priestern und Pfaffen sowie von übergeschnappten Sektenfanatikern, wie ich mit Sfath beobachten konnte.
+Was nun aber jene Gesellen der WHO betrifft, die du angesprochen hast bezüglich neuer angeblicher Nachforschungen, so
+sind diese nur grossmäulig und führen eine nutzlose und sehr teure Organisation, deren Betreiber horrende Saläre
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+<verdienen>, wie das auch hinsichtlich dem Gros aller Regierenden so ist. Aber lassen wir das, denn Reden bringt nichts,
+und ausserdem wird man von den Dummen der Bevölkerungen bösartig verunglimpft, die zu den Regierenden halten und
+diesen alle Lügen glauben, wie man aber auch durch die Behörden und <Volksüberwacher> als Querulant verschrien und
+als asozial in Fichen registriert wird, wie ich aus eigener Erfahrung weiss, wie aber auch aus Polizeiberichten und Staatsarchivaufzeichnungen usw., die ich angefordert und erhalten habe. Jetzt aber etwas anderes, und zwar folgendes: Kann es
+bei Infizierungen durch das Corona-Virus sein, dass es bei den weitgehend noch nicht erprobten Impfstoffen und eben bei
+den damit durchgeführten Impfungen in bezug auf deren Wirken darauf ankommt, welcher Immunsystemzustand gerade
+vorherrscht?
+
+**Florena Ja, das trifft zu, das ist mir alles bekannt. Was ich jedoch noch erwähnen wollte hinsichtlich der Verschwörungs-**
+theorien, so wird es so sein, dass einerseits das Ganze der Wahrheit nicht ergründet werden kann, weil hierzu das gesamte
+technische Instrumentarium infolge aller erforderlichen Entwicklungsmöglichkeiten fehlt und also noch nicht existiert, anderseits wird alles verschwiegen werden, oder, was sehr wahrscheinlich werden könnte, als Verschwörungstheorie aufgebracht werden. Dafür könnte dann der Grund der sein, dass Amerika vor aller Schuld geschützt werden und auch als grosse
+Finanzierungskraft für die WHO erhalten bleiben soll. Doch wie kommst du zu deiner Frage?
+
+**Billy** Das wird wohl so sein, wie du sagst. Einerseits ist es ja so, dass krankhaft dumme Menschen Verschwörungstheorien erfinden, oder solcherart verrückte Theorien durch irgendwelche Umstände ungewollt entstehen, während jedoch
+auch effective Wahrheiten ganz bewusst als Verschwörungstheorien aufgebaut und verbreitet werden, und zwar nicht nur
+von Privatpersonen, sondern auch von Behörden, Regierungen und Organisationen usw. Dies wie z.B. bezüglich der getürkten angeblich ersten Mondlandung der USA, die während des <Kalten Krieges> fabriziert wurde, um der Sowjet-Union eins
+auszuwischen und Angst zu machen. Und wenn es u.U. dazu kommt mit dem Ursprung der Corona-Seuche, dann wird es
+sein, um die USA von jeder Schuld freizusprechen, obwohl es sich um einen Racheakt des Amerikaners … im Mitwirken von
+Mao Tse-tung gehandelt hat, weil sich der Hass von … gegen das amerikanische Volk gerichtet hat und er es bestrafen
+wollte, obwohl dieses …, doch das ist ja egal.
+Aber meine Frage: Manchmal kommen einfach so Gedanken und Fragen in mir hoch, wie gerade jetzt, da ich mich daran
+erinnere, dass schon Sfath und kürzlich auch Ptaah sagte, wir sollen auch dann weiterhin äusserste Vorsicht walten lassen
+und Atemschutzmasken tragen sowie den notwendigen Abstand zu den Mitmenschen einhalten, wenn sich die Seuche
+zurückziehe, weil ein Nachlassen einer Seuchenwelle keine Gewähr weder für deren Ende, noch für eine grössere Sicherheit
+sei. Ausserdem weiss ich aus der Zeit mit Sfath, dass das, was sich gegenwärtig mit der sich etwas verflachenden CoronaSeuche ergibt, nicht einfach nur auf bessere Schutzmassnahmen und deren Beachtung durch die Vernünftigen unter den
+Menschen zurückführt, sondern grossteils auf die Klimabedingung des aufkommenden Frühlings, wie damals Sfath erklärte.
+Das aber lässt u.U. bei einem weiteren Klimaeinfluss die Seuche wieder ansteigen. Dies jedoch möglicherweise auch anders
+als durch die Seuche selbst, wie durch anderweitige Leiden und Krankheiten, die durch Impulsauslösungen oder durch
+Wandlungsfolgen aus der Seuche hervorgehen, wie Sfath erklärt hat. Möglicherweise könnten sich aber auch Leiden und
+Krankheiten ergeben, die sich heimtückisch aus nicht erkennbaren Vireninfektionen herausbilden. Und weiter führe die
+Corona-Seuche bei vielen Menschen – so erinnere ich mich daran, was Sfath damals erklärte – nicht nur zum Tod, sondern
+auch zu schweren Langzeitgesundheitsschäden, die nicht geheilt werden könnten. Dies sei auch der Fall hinsichtlich der
+durch die Seuche auftretenden Atembeschwerden, die sehr oft zum Tod führen und viele Menschleben kosten würden,
+wie das auch der Fall sei in bezug auf diverse langzeitige Gehirnerkrankungen, die lebenszeitlich üble Beschwerden bringen
+oder vielfach zum Tod führen würden. Weiter weiss ich von Sfath auch, dass von den Virologen, Medizinern und Epidemiologen sowie Gesundheitsinstitutionen viele für die Bevölkerungen wichtige Informationen verschwiegen werden, wie z.B.,
+dass die Corona-Virus-Proteine sehr stark die Signale des Immunsystems angreifen und dieses derart manipulieren, dass es
+versagt.
+
+Folglich ist es notwendig – so habe ich bereits durch die Lehren von Sfath gelernt –, dass alles Notwendige für das Immunsystem zu tun ist, um dessen äusserst lebenswichtige gesamtkörperorganische Funktion aufrechtzuerhalten, was insbesondere vernünftigerweise vom Menschen bewusst derart zu tun ist, indem dem Immunsystem bei Bedarf zusätzlich stärkende
+Vitalstoffe zugeführt werden.
+
+**Vitalstoffe entsprechen verschiedenen Nährstoffen, die der Körperorganismus unumgänglich zu seiner Funktion benötigt,**
+die er jedoch nicht selbst herstellen kann, folglich ihm diese Nährstoffe über die Nahrung zuzuführen sind. Genügen jedoch
+die in der Nahrung enthaltenen Vitalstoffe zur Gesunderhaltung des Körperorganismus nicht, dann sind ihm solcherart
+Nährstoffe separat zuzuführen. Dies kann in leichter Weise dadurch erfolgen, indem ausreichend im offenen Handel erhältliche Nahrungsergänzungsmittel erstanden und dem Körperorganismus als – wie der Begriff erklärt – Nahrungsergänzung
+zugeführt werden, und zwar völlig entgegen allen dumm-dreisten Miesmachern und Besserwissern usw., wozu auch gewisse Mediziner usw. gehören, die sich berufen wähnen, die Wahrheit zu bestreiten, dass solcherart Vitalstoffe für viele
+Menschen und deren Immunsystemfunktion und Gesundheit lebensnotwendig sind.
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Dass oft Ärzte usw. die Tatsache einer zusätzlichen notwendigen Anwendung von Vitalstoffen bestreiten, dafür lässt sich
+nicht selten die dumm-dreiste Begründung finden, dass dies nicht notwendig sei, weil die Nahrung genügend dieser Stoffe
+enthalte. Dass jedoch durch den privaten Kauf und Gebrauch von lebensnotwendigen Vitalstoffen resp. Nahrungsergänzungsmitteln durch Patienten und Patientinnen die Ärzte usw. in der Weise benachteiligt werden, dass sie den Verkauf
+ihrer Chemiemedikamente und teuren Vitalstoffe an ihre Patienten-Kundschaft einschränken müssen, das wird verschwiegen. Dies einerseits, während anderseits <gute Patienten und Patientinnen> gesünder werden oder einfach gesund bleiben,
+folglich sie keinen Arzt brauchen und diese viel weniger Honorare einfordern können. Diese Tatsache wird jedoch vehement
+bestritten – was ja logisch sein dürfte.
+Zur Immunstärkung sind insbesondere Vitamine, Mineralstoffe und Spurenelemente von unumgänglicher Notwendigkeit,
+die im offenen Handel käuflich erworben werden können, wobei jedoch ganz besonders auf eine gute, saubere und wertige
+Qualität geachtet werden sollte, die in der Regel nur bei staatlich geprüften Produkten gegeben und demgemäss auch nur
+im Fachhandel erhältlich sind, wie in Drogerien, Apotheken sowie in staatlich anerkannten rechtsverbindlichen Fachgeschäften.
+Insbesondere sind folgende Vitamine, Mineralstoffe und Spurenelemente für den Aufbau, die korrekte Funktion und den
+Erhalt eines funktionierenden Immunsystems von Bedeutung:
+
+1. Vitamin A
+2. B-Vitamine
+3. Vitamin C
+4. Vitamin D
+5. Zink
+6. Kupfer
+7. Selen und Eisen
+
+Das Immunsystem ist dem Menschen als organischer Schutzfaktor gegen schädliche Bakterien, Pilze, Mikroorganismen,
+Schadstoffe und Viren von Grund auf angeboren, wobei es, wenn der Körperorganismus von solcherart Eindringlingen angegriffen wird, sofort darauf reagiert und gegen diese abwehrend vorgeht. Dies eben, dass durch die Angreifer keine Leiden
+oder Krankheiten verursacht werden können, folglich durch das Immunsystem eine Abwehr erfolgt, wodurch die eindringenden Erreger unschädlich gemacht werden. Die dauerhaft wachsame Abwehrfähigkeit des Immunsystems ist dabei
+grundlegend und umfänglich auf die Gesunderhaltung des gesamten menschlichen Körperorganismus ausgerichtet,
+wodurch stetig gewährleistet wird, dass alle aus der Umwelt ständig auf den menschlichen Organismus einwirkenden Leiden- sowie Krankheitserreger nicht nur bekämpft werden, wenn sie in den Organismus eindringen, sondern diesen bereits
+davor schützen, dass die Erreger, denen der Körper dauernd ausgesetzt ist, nicht in den Organismus eindringen können.
+Wie das Immunsystem und alles Drum und Dran funktioniert, so erinnere ich mich noch in einigen Dingen daran, was Sfath
+dazu erklärte, wozu ich – weil mich kürzlich jemand um sachentsprechende Auskünfte und Erklärungen gebeten hatte –
+deshalb vor wenigen Tagen darüber auch noch einiges im Internetz nachgelesen und neu aufgearbeitet habe, wie auch
+darum, um mit meinem diesbezüglichen Wissen wieder à jour zu sein, weshalb ich jetzt auch einiges dazu erklären kann.
+Daher kann ich nun folgendes sagen und ausführen:
+Das Immunsystem schützt den Körper und die verschiedenen Organe, Zellarten und Eiweisse vor Krankheitserregern und
+vor krankmachenden Zellveränderungen, und somit natürlich vor allen Angreifern und Schadstoffen usw., wobei es sich
+jedoch nicht bemerkbar macht, sondern einfach still und reibungslos funktioniert und die körpereigene Abwehr unter Kontrolle behält. Das Immunsystem versagt jedoch dann, wenn es geschwächt wird oder gegen besonders aggressive Krankheitserreger nichts mehr ausrichten kann, folglich der Körper dann krank wird. Dies kann explizit dann der Fall sein, wenn
+dem Immunsystem ein Erreger noch unbekannt ist. Ohne dieses System wäre der Körper in seinem inneren Organismus
+schädlichen Einflüssen aus der Umwelt genauso schutzlos gesundheitsschädigenden Veränderungen ausgeliefert, wie
+ebenso der gesamte Körperaussenbereich, dessen Hauptaufgabe es ist, diesen durch körpereigene abwehrende Massnahmen gegen Krankheitserreger und Verletzungen zu schützen und zusätzlich durch Bekleidung usw. Grundlegend jedoch
+muss der Mensch selbst darum besorgt sein, sich verstand-vernunft-intellektummässig zu bemühen, um sein Immunsystem
+durch innere und äussere Massnahmen usw. gesund zu erhalten und sich so vor Leiden, Krankheiten, Verletzungen und
+Körper-, Organ- und auch Psycheschäden usw. zu schützen und alles unschädlich zu machen, was sein Gesundheitssystem
+in irgendeiner negativen Beziehung beeinträchtigen kann. In erster Linie muss der Mensch selbst durch sein Intellektum,
+seinen Verstand und seine Vernunft darauf bedacht sein, alles Schadenbringende zu erkennen und es von seinem Körper
+sowie vom gesamten inneren und äusseren Organismus fernzuhalten, oder, wenn er von Schadenerregern befallen ist,
+diese aus dem Körper zu entfernen oder sie zu neutralisieren hat, was in der Regel durch eine fachlich korrekte medikamentöse Behandlung notwendig sein kann. Dies ist dann der Fall, wenn durch Mikroben, Bakterien, Parasiten, Pilze, Viren
+und giftige Schadstoffe als Krankheitserreger Leiden oder Krankheiten verursacht werden, die einer durchwegs fachärztlichen Behandlung bedürfen. Dies ist dann der Fall, wenn z.B. folgende Erreger auftreten:
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+1. Mikroben resp. Mikroorganismen: Pilze, z.B. Schimmel-, Faden-, Sprosspilze
+2. Viren, wie Grippe, Hepatitis- und Noroviren
+3. Bakterien, wie Staphylokokken, Enterobakterien, Pseudomonaden, Salmonellen
+4. Parasiten, wie Helminthen resp. Würmer, Amöben, Lamblien
+5. Schadstoffe aller Art aus der Umwelt, wie Gifte aller Art
+6. Körperverletzungen, hervorgerufen durch Unfall und andere Faktoren
+
+Mikroben resp. Mikroorganismen sind winzig kleine Lebewesen, die zu winzig sind, um mit dem blossen Auge gesehen zu
+werden, aber den gesamten menschlichen Körper umgeben, sich jedoch auch in der Luft, im Wasser, in der Erde und praktisch auf und in allem und jedem Existierenden befinden. Allein der menschliche Körper ist von Abermillionen dieser winzigen Mikroorganismen resp. Mikroben belebt. Manche Arten sind Leidens- und Krankheitserreger, andere hingegen sind für
+die Gesundheit und das Existierenkönnen des Menschen lebenswichtig, und zwar absolut. Werden dabei die häufigsten
+dieser Mikroben in Augenschein genommen, dann sind an erster Stelle die Pilze und Viren zu nennen, während darüber
+hinaus noch eine andere Gruppe existiert, bei denen es sich um Kleinstlebewesen handelt, die Krankheiten verursachen,
+wie z.B. Malaria und die Toxoplasmose. Was in bezug auf einzelne Krankheitserreger noch zu sagen ist, das ist folgendes:
+
+**Bakterien/Bazillen. Bakterien sind einzellige Lebewesen, von denen diverse zum Überleben Sauerstoff benötigen, während**
+andere ohne Sauerstoff auskommen, wobei einige Hitze ertragen, während andere bevorzugt in einer kalten Umgebung
+leben. Bei diesen handelt es sich um einzellige sporenbildende Stäbchenlebewesen.
+Bakterien können selbst Nachkommen produzieren und weisen einen Stoffwechsel auf. Dabei sind sie einzellige Lebewesen
+ohne Zellkern. Alles, was Bakterien zum Leben und zu ihrer Fortpflanzung benötigen, befindet sich in deren Zelle.
+Bakterien werden u.a. auch dazu benötigt, um bestimmte Lebensmittel herzustellen, wie z.B. Joghurt, Sauerkraut oder
+Käse.
+Bakterien haben aufgrund ihrer Stäbchenform ihren speziellen Namen. Bazillen werden allgemein mit Bakterien und mit
+Krankheitserregern gleichgesetzt. Auch aus fachlicher Sicht sind Bazillen den Bakterien gleichgesetzt, wobei die Bazillen
+jedoch einer Unterform mehrerer Gattungen entsprechen, zu denen unter anderem auch die Kokken resp. Kern- oder Kugelbakterien gehören. Gesamthaft kommen alle in vielen Bereichen des menschlichen Körpers vor, wobei viele, wie bereits
+erwähnt, gutartig und nützlich und gar lebensnotwendig für den menschlichen Organismus, andere jedoch schädlich sind.
+Letztere gilt es ganz besonders im Mundraum einzudämmen, und zwar durch eine regelmässige und richtige Mund- und
+Zahnhygiene, weil sich im Mund- und Zahnbereich – insbesondere bei Zahnfäulnis – permanent neu gefährliche Krankheitserreger bilden und vermehren, was u.U. bis zu tödlichen Folgen führen kann. Wird das Ganze bedacht, dann wird erkannt,
+dass im Prinzip der Kampf gegen Bazillen usw. lebenslang geführt werden muss.
+
+**Mikroben/Mikroorganismen sind winzig kleine Lebewesen, die viel zu klein sind, um, wie bereits erklärt, mit blossem Auge**
+gesehen zu werden.
+
+**Viren sind keine Lebewesen im eigentlichen Sinn, sondern nur einfache organische Strukturen, die keinen eigenen Stoff-**
+wechsel haben, die jedoch in gesunde Zellen des menschlichen Organismus (wie auch bei Tieren, Getier und anderen Lebensformen) eindringen und dadurch Leiden und Krankheiten verursachen.
+Also handelt es sich bei diesen auch nicht um Lebewesen, sondern sie bestehen vielmehr aus einem oder aus mehreren
+Molekülen, die von einer Eiweisshülle umschlossen sind, in der sich genetische Informationen befinden, die von den Viren
+benötigt werden, um sich zu vermehren.
+Viele Viren sind verantwortlich für viele Leiden und Krankheiten, während andere für den Menschen harmlos sind oder nur
+eine lästige Erkältung und andere unbedeutende gesundheitlich harmlose Erscheinungen auslösen, während andere jedoch
+unhemmbar ernsthafte oder gar lebensbedrohende Krankheiten verursachen können, wie z.B. die Corona-Seuche, AIDS,
+Hepatitis A, Hepatitis B, Influenza, Japanische Enzephalitis, das humane Papillomavirus, Leberentzündung, Masern, Mumps,
+Poliomyelitis, Tollwut, schwere Durchfälle durch das Rotavirus, Röteln, Varizellen, Gelbfieber.
+Viren dringen in gesunde Zellen ein und vermehren sich von dort aus. Ohne eine solche Wirtszelle kann sich ein Virus nicht
+vermehren. Nicht alle Viren sind derart, dass sie Beschwerden auslösen, und in vielen Fällen ist es gar so, dass der Körper
+die Eindringlinge derart erfolgreich bekämpfen kann, dass keine Krankheitsausbrüche erfolgen, wie es z.B. beim unter vielen
+Menschen sehr weitverbreiteten Lippenherpes der Fall ist. Lippenherpes wird also durch Viren ausgelöst, die sich in bestimmten Nervenzellen befinden und eben bei manchen Menschen zu Lippenbläschen führen, wenn das Immunsystem
+überbeansprucht wird.
+Mit Medikamenten können Viren nur relativ schwer bekämpft werden, weil sie eben keine Lebensformen, sondern nur
+leblose organische Strukturen sind, die keinen Stoffwechsel und daher keinen Nahrungsvorgang aufweisen und daher keinerlei medikamentöse Stoffe aufnehmen und verdauen können. Durch Impfungen kann jedoch die Körperabwehr <trainiert> und der Körper dadurch weniger empfindlich gegen die Erreger gemacht werden.
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Pilze sind sehr weit verbreitet und zudem an viele verschiedenste Lebensräume angepasst, so auch im Haushalt und Wohn-**
+bereich der Menschen, wo diesbezüglich wohl die bekanntesten Schimmelpilze aller Art zu finden sind.
+Pilze kommen jedoch in einigen Arten natürlicherweise auch auf der Haut oder im Körper des Menschen vor, wobei sie
+jedoch auch Leiden und Krankheiten resp. Mykosen hervorrufen können, die häufig als Fuss- und Nagelpilze in Erscheinung
+treten.
+Pilze können beim Menschen auch zu schweren Infektionen und gar zur Lungenentzündung führen, wie jedoch auch zu
+Schleimhautentzündungen im Mund.
+Pilze beim Menschen sind nicht harmlos und können auch verschleppt und auf andere Menschen übertragen werden, und
+zwar insbesondere dann, wenn Geschlechtsorgane von Pilz befallen werden und dessen ungeachtet trotzdem Geschlechtsakte vollzogen werden.
+Pilze, die Körperorgane befallen, sind zwar je nachdem gut heilbar, doch wenn Komplikationen auftreten, dann können sie
+zur Lebensbedrohlichkeit werden.
+Pilze können auch nutzvoll sein, denn pflanzliche Pilze bestimmter Sorten sind essbar und dienen dem Menschen daher als
+Nahrung, wie diverse Pilze für ihn jedoch auch hilfreiche Eigenschaften aufweisen, wie z.B. ein Schimmelpilz, woraus das
+Antibiotikum Penicillin gewonnen werden kann.
+
+Doch nochmals zurück zum Immunsystem, denn dazu ist noch zu sagen, dass besonders in der kalten Jahreszeit Temperaturschwankungen und durch Heizungen erzeugte trockene Luft schnell dafür sorgen, dass die körpereigenen Immunabwehrkräfte ins Wanken geraten, wodurch der Mensch für Erkältungen sowie grippale Infekte anfälliger wird, folglich ein
+effectiv gesundes Immunsystem von besonderer Wichtigkeit ist, weil allein dieses den Menschen vor Krankheiten schützt.
+Die Aufgabe des Immunsystems ist dann dabei immer die, dass es
+
+1. die eigenen Bauelemente von Fremdeindringlingen unterscheidet und diese Fremden dann bekämpft, um sie als
+gesundheitsschädliche Eindringlinge, Schadstoffe und giftige Substanzen usw. zu eliminieren.
+
+2. Das Immunsystem ist – einfach erklärt – das Abwehrsystem des Körpers selbst und des gesamten inneren Körperorganismus. Es sorgt dafür, dass krankheitserregende Mikroorganismen aller schädlichen Art, wie auch Bakterien
+und Viren, Pilze, Keime und Parasiten usw., die in den Körperorganismus gelangen, bekämpft und daran gehindert
+werden, dass eine Infektion entstehen kann. Das Immunsystem ist jedoch nicht ein eigenständiges Organ, sondern
+es setzt sich aus zahlreichen Bestandteilen zusammen, wie unter anderem aus Organen wie der Haut, der Milz und
+dem gesamten Darm, wobei der Dickdarmtrakt eine sehr wichtige Aufgabe erfüllt. Gemeinsam mit weiteren körpereigenen Systemen schützen diese Organe den gesamten Organismus vor Leiden, Krankheiten und Siechtum.
+
+**Vitalstoffe entsprechen dem stetigen Bedarf des Immunsystems, und diese Stoffe werden grundsätzlich durch Nahrungs-**
+mittel aufgenommen und durch die Verdauung aufgearbeitet, um danach zu den betreffenden Organen zu gelangen, die
+explizit immunsystemaufbauend wirken und demgemäss die entsprechenden Vitalstoffe verwerten und dadurch das Immunsystem stärken.
+
+Vitalstoffe entsprechen körperfremden Stoffen und Substanzen, durch die alle an der Gesunderhaltung und am Aufbau des
+Immunsystems beteiligten Organe aktiviert werden, wenn diesen die Stoffe zugeführt werden. Zu diesen Stoffen gehören
+auch die Eiweisse auf der Oberfläche von Pilzen und Viren. Wenn diese an spezielle Abwehrzellen andocken, dann wird eine
+ganze Reihe von Zellprozessen ausgelöst und in Gang gesetzt. Nach einem ersten Kontakt mit einem Krankheitserreger
+erfolgt in der Regel eine Speicherung der entsprechenden Informationen, die vom Erreger ausgehen. Erfolgt dann ein erneuter Kontakt der gleichen Art, dann werden die gespeicherten Informationen sofort wieder abgerufen, folgedem sich das
+angegriffene Immunsystem schneller zur Abwehr aktiviert und den Krankheitserreger bekämpft.
+
+3. Das Immunsystem ist des Menschen angeborener Schutz gegenüber schädlichen Viren, Bakterien und
+Schadstoffen aller Art, die ihn krankmachen können, und daher ist es für ihn von besonderer Bedeutung
+und Wichtigkeit, sein Immunsystem immer vollauf in Funktion zu halten, damit er sich tagtäglich und
+allzeitlich darauf verlassen und damit seine Gesundheit gewährleisten kann.
+
+Was weiter zu beachten ist, um das Immunsystem zu pflegen, gesund und stark zu erhalten, dazu ist es wichtig, darauf zu
+achten, dass dem gesamten Körper immer genügend Bewegung und genügend Schlaf zugestanden wird, wie auch das gesamte Atmungssystem bis tief in die Lunge frischer, gesunder und sauerstoffhaltiger Atemluft bedarf.
+
+Was besonders schädlich ist und das Immunsystem in seiner Wirksamkeit und Kraft sehr stark beeinträchtigt und den Menschen leidens- und krankheitsanfällig macht, sind folgende Faktoren:
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Rauchen sollte unterlassen werden, denn es ist – wie allgemein bekannt – sehr gesundheitsschädlich, insbesondere in be-**
+zug auf die Lungen, wobei jedoch wenig oder überhaupt nicht bekannt ist, dass auch das Immunsystem stark darunter
+leidet, beeinträchtigt und geschwächt wird.
+
+**Alkohol ergibt ebenso Beeinträchtigungen auf das Immunsystem, folglich – wenn Alkohol aber schon sein <muss> – er dann**
+nur äusserst mässig konsumiert werden soll.
+
+**Medikamente chemischer Natur (u.U. auch natürliche) können gesundheitsschädlich sein, auch wenn sie ärztlich verschrie-**
+ben werden und genesungsfähig und also heilsam sind oder nahezu als harmlos gelten – insbesondere die in der Regel
+bedenkenlos bei jedem Wehwehchen griffbereiten Schmerztabletten.
+
+**Schmerztabletten/Schmerzpulver usw. enthalten gesundheitsschädliche Giftstoffe usw., die als Schmerz-Botenstoffe an**
+den Schmerzrezeptoren der Nervenenden im Gewebe andocken und nicht nur das Schmerzempfinden hemmen, sondern
+sich auch negativ-schwächend auf das gesamte Immunsystem auswirken. Dies, weil die schmerzlindernden Stoffe effectiv
+gefährlichen Giften entsprechen, wie das Paracetamol, Naproxen und Diclofenac.
+
+**Paracetamol/Naproxen** = Magengeschwüre; **Diclofenac = Herzinfarkt, enthalten Giftstoffe und sind gesundheitsgefähr-**
+dend. Paracetamol ist in den meisten Schmerzmitteln enthalten, wobei eine Überdosis tödlich sein kann, wie jedoch allein
+der normale Gebrauch zu schwerem Leberversagen führen kann, wobei ausserdem durch jedes Schmerzmittel mit Paracetamol das Risiko für Herzinfarkt, Magengeschwür und Schlaganfall sehr stark erhöht wird. Auch Nierenschäden und innere
+Blutungen im Verdauungstrakt können sich ergeben, wie auch die Haut von Paracetamol angegriffen werden kann. Im
+schlimmsten Fall ergeben sich tödliche Folgen.
+
+**Paracetamol verursacht auch Leberschäden, indem es die Verbindungen zwischen den Leberzellen aufbricht. Wenn diese**
+zerstört werden, dann wird auch die Struktur des Lebergewebes geschädigt, wobei die Zellen nicht mehr richtig funktionieren können und diese zudem letztendlich zugrunde gehen. Eine Überdosis Paracetamol kann tödlich sein. Die Einnahme
+von Schmerzmitteln – mit Paracetamol, u.U. auch ohne – kann zu Leberversagen führen, ausserdem wird das Risiko für
+Herzinfarkt, Magengeschwür und Schlaganfall usw. durch Schmerzmittel aller Art stark erhöht, wie bereits Sfath erklärt hat.
+Dies, während auch durch irdisch-wissenschaftliche Forschungen festgestellt wurde, dass durch gesamthaft alle Schmerzmittel, die Paracetamol enthalten, bösartige Nebenwirkungen entstehen, wie folgende, die ich hier als Liste aus dem Internetz herauskopiert habe, wobei andere Schmerzmittelzusätze und deren Wirkstoffe meines Erachtens gleichartige Nebenwirkungen zeitigen:
+1. Anstieg der Leberenzyme (Serumtransaminasen),
+2. Verminderung der Blutplättchen (Thrombozytopenie),
+3. Verminderung weisser Blutkörperchen (Agranulozytose),
+4. allergische Reaktionen (Hautausschlag/Nesselausschlag),
+5. Schockreaktion,
+6. Verengung der Atemwege (Analgetika-Asthma).
+
+Dazu ist wohl noch zu sagen – was jedoch nicht erwähnt wird –, dass ganz besonders Menschen durch SchmerzmittelNebenwirkungen gesundheitsgefährdet sind, u.U. lebensgefährlich, die mit Übergewicht und/oder Fettleibigkeit zu kämpfen haben, Alkoholiker sind oder an einer schlechten Ernährung leiden. Wenn zu häufig oder im Übermass Schmerzmittel
+eingenommen werden, kann es zu einer schweren Lebervergiftung sowie zu anderen Leberschäden usw. führen, und zwar
+besonders bei Problemen, wie Übergewicht oder Fettleibigkeit, häufiger Alkoholkonsum, schlechte Ernährung sowie Drogenkonsum.
+Das ist das Grundsätzliche, was ich bezüglich dieser Thematik zu sagen hatte, und zwar auch aus der Sicht, dass später
+vielleicht einige Menschen etwas davon nutzen können, wenn sie unseren Gesprächsbericht lesen, den ich ja abrufen und
+niederschreiben werde und der dann auch auf unserer FIGU-Webseite aufgeschaltet wird.
+Jetzt, ihr 2 hübschen, stillen Zuhörerinnen, habe ich eine Frage in einer anderen Sache, die in mir hochkommt, und zwar,
+was ihr eigentlich dazu denkt, was sich schon seit Mitte der 1980er Jahre und bis heute bezüglich des seltsamen Gesangund Musiktrends hier auf der Erde ergibt? Mei…
+
+**Bermunda** Dazu habe wohl ich eine Antwort zu geben, weil ich eine diesbezüglich vielfältige Fachausbildung aufweise, was …
+
+**Billy** Entschuldige – du meinst damit, dass auch ihr Plejaren Musik und das ganze Darum und Dran lernt und studiert?
+
+**Florena Natürlich, und Bermunda ist eine bekannte Virtuosin auf Erra und beherrscht mehrere Harmonieinstrumente.**
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Billy** Wusste ich nicht, denn du hast mir noch nie auch nur eine entsprechende Bemerkung dazu gemacht, Bermunda.
+
+**Bermunda** Ja, es gab dafür auch kein Bedürfnis. Wenn du willst, dann kann ich dir aber jetzt etwas dazu erklären!
+
+**Billy** Gern, danke, doch denke ich, dass dadurch die Zeit heute etwas lang werden wird, denn ich habe noch einiges,
+was mir auf der Zunge liegt.
+
+**Bermunda** Das wird kein Problem sein, denn wir können uns einige Zeit zurücksetzen, wenn du willst.
+
+**Billy** Wenn du meinst –gut, 2 oder 3 Stunden würden wohl genug sein.
+
+**Bermunda** Dann lass uns gehen, wir müssen in mein …
+
+**Billy** Tamam …
+
+**Bermunda** … Da sind wir.
+
+**Billy** Dann können wir jetzt ja loslegen, und du kannst mir deine Kenntnisse bezüglich deiner Virtuosität offenlegen,
+worauf ich gespannt bin. Die Zeit spielt ja jetzt keine Rolle mehr.
+
+**Bermunda** Darüber will ich später reden, wenn du das dann wirklich noch willst, denn zuerst sollte Florena dir die
+von Ptaah für dich beorderten Erklärungen bezüglich der Corona-Seuche nennen, die er als bedeutend zur Informierung
+erwähnte.
+
+**Florena Das ist tatsächlich so, also habe ich im Auftrag von Ptaah folgendes zu erklären: Neuerlich wird von der WHO und**
+auch von gewissen europäischen sowie amerikanischen Stellen versucht werden, den Ursprung der Corona-Seuche herauszufinden, wobei deren Keimzelle jedoch nicht ergründet werden kann und effectiv nicht gefunden werden will, um die
+Schande des Verrats von Amerika fernzuhalten. Daher wird es sein, dass mehrmals verschiedentlich bewusst falsche Thesen
+und Vermutungen aufgebracht werden, die beweisen sollen, dass die Seuche tierischen Ursprungs sei. Darüber werden wir
+jedoch immer wieder einmal einiges zu bereden haben.
+Eine weitere Anmerkung von Ptaah bezieht sich auf Unerfreuliches aus Vorausschauen, die aufzeigen, dass in den nächsten
+Wochen weltweit durch Staats- und Behördenverordnungen unbedacht und verantwortungslos der Grossteil aller Vorsichtsmassnahmen und Lockdowns bezüglich der Corona-Seuche gelockert und teil vollständig aufgehoben werden.
+Dadurch werden die Bevölkerungen aller Länder in eine falsche Sicherheit gewiegt, was u.U. schwerwiegende Folgen hervorrufen kann, worüber jedoch seiner Anordnung gemäss keinerlei Ausführungen gemacht werden sollen, wozu mir selbst
+aber auch persönliche Kenntnisse fehlen. Ptaah erklärte, dass seine Vorausschauen ergeben haben, dass unbedacht und
+verantwortungslos viel zu frühzeitig gar die Sicherheit des Lockdowns aufgehoben und des Nicht-mehr-Verwendens von
+Atemschutzmasken und Nicht-mehr-Abstandhaltens erlaubt werde, was im Zusammenhang mit neuen Corona-Virus-Mutationen zu weiteren grösseren Verseuchungsherden führen könne. Daher empfiehlt er:
+
+1. Niemand soll sich auf diese in der nächsten Zeit durch die Staatsverantwortlichen und Behörden aufkommenden unbedachten Erlasse und Verantwortungslosigkeiten einlassen, sondern nach eigenem Verstand und eigener Vernunft jeder
+anfallenden Situation gemäss sich richtig und verantwortungsvoll verhalten.
+
+2. Atemschutzmasken der Klasse FFP2 sollen im Umgang mit anderen Personen, die nicht in den persönlich sicheren und
+seuchenfreien Umgangsbereich belangen, weiterhin benutzt werden.
+
+3. Wie das Tragen von Atemschutzmasken der Klasse FFP2 soll auch der notwendige Abstand zu anderen Personen eingehalten werden, insbesondere zu Fremdpersonen, während im Kreis von engeren Bekanntschaften und Freundschaften
+weitere Abstände nicht unbedingt erforderlich sind, wenn eine gewisse Sicherheit hinsichtlich einer Nichtinfizierung
+besteht.
+
+4. Das Nichttragen von Atemschutzmasken oder das Tragen von minderwertigen nicht FFP2-, wie FFP1- und Stoffmasken
+usw. sollte unterlassen werden, weil sie keinerlei Schutz gegen das Corona-Virus und all dessen Mutationen bieten. Das
+Tragen von minderwertigen Masken ist nicht nur fahrlässig, sondern auch unverantwortlich und zudem gesundheitsgefährdend – u.U. lebensgefährlich.
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+5. Bezüglich Impfungen gegen die Corona-Seuche können und dürfen wir keinerlei Ratgebungen erteilen, denn ein Für
+oder Wider liegt einzig und allein in der persönlichen Entscheidung und Verantwortung jedes einzelnen Menschen
+selbst.
+
+Das sind die 5 Wichtigkeiten, die Ptaah explizit genannt haben will.
+
+**Billy** Finde ich alles richtig, gut und recht, doch habe ich dazu zu sagen, dass auch wir von der FIGU uns daranhalten und
+keinerlei Ratgebung geben, ob sich jemand impfen lassen soll oder nicht. Effectiv muss das jeder Mensch mit sich selbst
+ausmachen, sein Intellektum nutzen und alles persönlich nach eigenem reifen Überlegen nach Verstand und Vernunft entscheiden.
+
+**Florena Das muss so sein und ist wichtig. Aber nun weiter mit dem, was ich gemäss Anordnung von Ptaah zu erklären habe:**
+Weltweit wurden mit dem Einsatz von fahrlässig testlosen resp. ungeprüften Corona-Seuche-Impfstoffen kriminellerweise
+Menschen ohne deren Wissen als Versuchsobjekte für zweifelhafte und gefährliche Impfstofftests missbraucht. Dieses
+menschenverachtende und gar verbrecherische Handeln und Tun der entsprechenden Chemie- und Impfstoffkonzerne hat
+nicht nur zu sehr zahlreichen negativen Auswirkungen und zu viel Leid, Elend und Leiden geführt – was geflissentlich verschwiegen resp. geheimgehalten wird –, wie viele Todesfälle und Langzeiterkrankungen, wie sich jedoch auch Spätfolgen
+ergeben, die erst nach Monaten, Jahren oder Jahrzehnten erfolgen werden und deren Ursprung und Ursache dann nicht
+mehr eruiert werden kann. Dies nebst dem, dass verschiedene Leiden usw. durch die gefährlichen genbasierten Impfstoffe
+entstehen können, wobei bei einzelnen Menschen nicht vorausgesagt werden kann, wie, wann, ob und welche Reaktionen
+infolge einer Impfung auftreten werden oder können. Ausserdem können bei einem gewissen Teil der Geimpften keine
+feststellbare Corona-Symptome auftreten, obwohl sie Corona-Impulse in sich tragen, folglich sich bei ihnen ebenso Veränderungen der Blutwerte ergeben, wie bei erkennbar Corona-Infizierten. Auch ergibt sich aus unseren Forschungen, wie
+Ptaah erklärt, dass Spikeproteine von Corona-Viren auch Blutgerinnsel verursachen, wobei D-Dimere im Blut als Spaltprodukte entstehen.
+Ptaah erklärt weiter, dass sich unbemerkt auch kleine Thrombosen bilden können, durch die Gerinnungsplättchen verbraucht werden, wie unsere Forschungen und Erkenntnisse eindeutig beweisen. Also sind die genbasierten Impfstoffe absolut nicht ungefährlich, und zwar auch dann nicht, wenn völlig verantwortungslos Gegenteiliges behauptet wird.
+Nebst all dem bisher Genannten sind zahlreiche weitere unterschiedliche Symptome, die sich durch die verschiedenen
+Corona-Impfstoffe im menschlichen Organismus ergeben, die teils sowohl zum Tod als auch zu Langzeitschäden und Spätfolgen führen, deren Ursache jedoch verschleiert und bestritten wird, was auch zukünftig sein wird. Folglich werden sich
+bis weit in die Zukunft Todesfälle und schwere Nebenwirkungen auch als Langzeitfolgen und Spätfolgen ergeben, deren
+grundlegende Ursache jedoch – entgegen der Wirklichkeit – nicht mehr in der Corona-Seuche sowie in den gefährlichen
+genbasierten Impfstoffen gesucht werden wird, die gewissenlos und verantwortungslos ungetestet verwendet werden, und
+zwar vor allem infolge Geldgier und Profitsucht der Impfstoffhersteller. Und diese Gewissenlosigkeit und Verantwortungslosigkeit ist auch gegeben, wenn in verschiedenen Fällen durch Impfungen eine gewisse Immunität gegen die Corona-Seuche erwirkt werden kann, wobei diese einerseits u.U. nur kurzanhaltend oder derart sein kann, dass trotzdem eine Infektion
+entstehen und weiterverschleppt werden kann, und zwar ohne dass infolge der Impfung eine Infizierung feststellbar wird.
+Dies steht auch im Zusammenhang damit, dass sich Impulsablagerungen der Seuche ergeben, die weitergetragen werden
+und folglich in dieser Weise neue Infektionen erzeugen können, was sich u.U. über Jahrhunderte und Jahrtausende erhalten
+und immer wieder zu neuen Mutationen und zum Ausbruch der Krankheit führen könne, wie das ähnlicherweise bei Influenzaviren der Fall ist. Dazu erklärt Ptaah, dass dieses eigenartige Phänomen jedoch den dafür zuständigen Wissen-schaften absolut unbekannt sei, denn bezüglich Krankheits-Impulsablagerungen seien noch niemals wissenschaftliche Forschungen betrieben worden, wie dazu bisher auch alle erforderlichen Möglichkeiten fehlen würden.
+Ptaah erklärte weiter, dass die bis anhin verwendeten sowie noch immer absolut ungenügend geprüften Impfstoffe toxisch
+sind, folglich sich auch toxische Wirkungen ergeben, wobei u.a. die Antikörper aus diesen teils sehr gesundheitsgefährlichen
+Impfstoffen beim weiblichen Geschlecht auch auf das Kolostrum resp. die Vormilch und folglich dann auch als das Hormon
+Prolaktin übertragen werden, das entscheidend zur Muttermilchbildung wichtig ist. Das aber bedeutet, dass durch solcherart infizierte Muttermilch bereits Neugeborene mit dem Corona-Virus infiziert werden, wobei daraus hervorgehend bei
+Säuglingen auch Blutungen im Magen-Darm-Trakt auftreten können. All diese Tatsachen werden jedoch, sobald sie den
+Fachwissenden bekannt werden, insbesondere auch von den Impfstoffproduzenten, den gemeinen Bevölkerungen verschwiegen und verheimlicht, diese jedoch gegenteilig zu ungeprüften Impfungen animiert, wobei gewissenlos Leiden und
+Krankheiten und gar der Tod der Menschen in Kauf genommen wird, und das alles nur um des schnöden Profites willen.
+Nebst all den bisher offengelegten Informationen ergibt sich auch, dass sich im Organismus des Menschen durch das Corina-Virus Spike-Protein entwickelt, das, sobald es in den Blutkreislauf gelangt, nahezu allein am Herz-Kreislauf-System
+schwere bis irreversible Schäden verursachen kann. Zudem, so erklärte Ptaah weiter, überwindet das pathogene SpikeProtein auch die Blut-Hirn-Schranke und verursacht ebenfalls schwerwiegende und irreversible Gehirnschäden, wie auch
+Blutgerinnsel und schwerwiegende Herzprobleme.
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Weiter erklärt er, dass unsere Forschungen zweifellos das Eindringen von Vakzin-Nanopartikeln in die Körperorgane beweisen, diese sich im Blut anreichern und sich im Knochenmark sowie in der Leber, Milz und in den Nebennieren sehr hoch
+konzentrieren. Beim weiblichen Geschlecht, so beweisen unsere Forschungen eindeutig, konzentrieren sich die Vakzin-Nanopartikel in den Eierstöcken und führen bei Schwangerschaften bis hin zu schweren Geburtsschäden bei Neugeborenen.
+Krankheitserscheinungen dieser Art treten jedoch bereits seit den ersten Impfungen auf, was aber, wie unsere Beobachtungen und Abklärungen ergeben, nebst anderen wichtigen Informationen ebenso gegenüber der Öffentlichkeit verschwiegen oder bestritten wird, wie z.B auch, dass als Folgen von Impfungen oft Fieber über 38 Grad sowie Gelenkschmerzen,
+Bauchschmerzen, Kopfschmerzen, Durchfall, Müdigkeit, Hörprobleme, Erbrechen, Schwindel, Frösteln, Übelkeit, Atemnot
+und Muskelschmerzen usw. auftreten können, und zwar bis hin zu lebensgefährlichen oder gar tödlichen Wirkungen. Dies
+sind also einige zu nennende Impffolgen – oder können es sein –, wobei diese jedoch durch die negative Anfälligkeit der
+körperlich-organischen Gesamtkonstitution bestimmt werden, wie z.B. durch eine gedanklich-negative Einstellung und damit durch eine psychisch-negative Verfassung. Negative Impffolgen gehen vorwiegend aus dem Wirkungsgrad des Immunsystems hervor, wobei dieser Grad jedoch insbesondere durch den Menschen selbst bestimmt wird, und zwar durch sein
+Verhalten in bezug auf seine gesamte Lebensweise. Hauptsächlich ergeben sich unerfreuliche Anfälligkeiten hinsichtlich
+des Immunsystems bei einer Immunsuppression, und zwar weil durch diese das körpereigene Abwehrsystem resp. das
+Immunsystem gewaltsam unterdrückt wird. Dies ergibt sich insbesondere durch eine organische Krankheit oder eine überhöhte physische oder psychische Belastung, wobei Süchte besondere Risikofaktoren und eine grosse Rolle spielen, aber
+auch eine negative gedankliche Einstellung, Hypochondrie, Nikotin, ein Übermass von Koffein und Teein. Auch Amphetamine, Schnüffelstoffe und sogar Sportsucht, ungenügende Körperhygiene, Beruhigungsmittel, zu geringe Körperbewegung,
+wie aber auch gezielt das Konsumieren von Alkohol, Drogen und Medikamenten erhöht die Infizierungsanfälligkeit, wie
+auch Magersucht, Bulimia nervosa, Fettsucht, eine falsche Ernährungsweise und Essstörungen usw.
+Es gibt verschiedene Faktoren, die ich dazu zu nennen habe, wie unter anderem nebst einer üblich-normalen Übertragungsinfektion eine Ansteckung der Corona-Seuche infolge weiterer schwerwiegender zusätzlicher Faktoren entsteht, wofür der
+einzelne Mensch in bezug auf seine gesamten Verhaltensweisen usw. die persönliche Verantwortung trägt. Und dies entspricht einer effectiven Tatsache, die jedoch, wie wir aus unseren Forschungen und Beobachtungen schon seit jeher wissen,
+von allen <wissenden> irdischen Fachwissenschaften der Medizinischen Fakultäten aller Universitäten, wie besonders von
+der Virologie, Epidemiologie, Infektiologie, Immunologie, Immunhämatologie und Psychologie bestritten wird, weil sie allesamt in diesen anfallenden Disziplinen zu ungebildet und zu unwissend und zudem auch hochnäsig sind, wie du diesen
+Personen einmal <zugestanden> hast.
+Was nach Anweisung von Ptaah weiter zu erklären ist, das entspricht dem, dass das Corona-Virus wie jedes Virus überhaupt
+persistiert resp. fortbestehend bzw. dauerhaft als Krankheitserreger langzeitig weiterbestehen bleibt, und zwar über Jahrtausende, weil einmal aktiv gewordene Viren wohl eingedämmt, minimiert und zum Verschwinden gebracht, jedoch niemals ausgerottet werden können. Gegenteilige unwahre Behauptungen der irdischen Virologie und Immunologie usw. entsprechen einem Unwissen oder einer bewussten Unwahrheit.
+Nach einer Infektion bilden die Viren, trotz einer wirksamen Serumantikörperverdünnung, und die Antikörperträger selbst
+potentielle Infektionsquellen. Eine Virusvermehrung wird zwar in der Regel durch Impfstoffe gehemmt, doch führen die
+Impfsubstanzen in bezug auf jede einzelne Virusart gesehen nie zu überzeugenden Resultaten, folglich Viren auch niemals
+ausgerottet, sondern nur lahmgelegt oder für eine kürzere oder längere Zeit in ihrer Aktivität eingeschränkt werden können
+– auch über Jahrtausende –, wobei sie jedoch jederzeit wieder in eine neue Aktivität verfallen können.
+Wird die pandemische Durchseuchung der irdischen Weltbevölkerung betrachtet, dann ist diese regional unterschiedlich
+vom Corona-Virus befallen und schwankt zwischen den Industriestaaten gegenüber den Drittweltländern in jeder Beziehung sehr stark, weil diese Entwicklungsländer allgemein von den Staatsführenden, Firmen und Konzernen der Industrieund Herrscherstaaten hemmungslos in jeder erdenklich möglichen Beziehung benachteiligt und gewissenlos ausgebeutet
+und die Drittweltvölker ins Elend, in Not und Verderben, in Hunger und bis in den Tod getrieben werden.
+Weiter habe ich zu erklären, dass Verdünnungen für Impfstoffe, für Antikörper oder Antigene nur gerade noch eine positive
+Antigen-Antikörper-Reaktion ergeben können, folglich die Verdünnungsstufe bei einem diagnostischen Test gerade noch
+positiv angezeigt werden kann. Und weil die Verdünnungsration in der Chemie einem anderen Prozess entspricht, ist also
+zu erklären, dass es sich dabei korrekterweise gesagt um eine Antikörperverdünnung handelt.
+Wenn eine Impfstoffverdünnung aussagekräftig sein soll, dann muss diese mindestens das 4fache vom bestehenden Grundmass der Stoffverdünnung sein. Erfolgt dann jedoch ein Anstieg, dann weist das darauf hin, dass eine frische Infektion
+vorliegt, während gegensätzlich ein Abfall das Abklingen einer Infektion anzeigt. Also ist auch zu sagen, dass eine Einzelmessung des Ganzen deshalb oft nur eine geringe Aussagekraft hat.
+Ein Anstieg ist zwingend an das Vorhandensein der jeweils untersuchten Antikörper gebunden, und da die Produktion von
+Antikörpern erst nach ca. 10–16 Tagen einsetzt, ist bei Verdacht auf eine Infektion ein Anstieg auch erst nach 10–12 und
+seltener erst nach 14–16 Tagen festzustellen.
+Einen Erklärungsansatz zum Ganzen, was ich nun zu nennen habe, liefert der Biopsychosozialfaktor, der seine Entwicklung
+in Störungen in jenen Ursprüngen findet, die in körperlichen Ebenen als auch gedanken-gefühls-psychisch-bedingten sowie
+in der sozialen Ebene fundieren. Auf körperlicher Ebene sind das z.B. Reaktionen im Bewusstsein und Gehirn, die während
+des Substanzkonsums der verschiedenen Ebenen auftreten. Auf psychischer Ebene können beispielsweise bestimmte
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Gedanken- und Gefühlsmuster – wie z.B. ein mangelndes Selbstwertgefühl, Hass, Lüge, Verleumdung, Rache, Vergeltung
+und Verschlagenheit usw. – zum Substanzkonsum führen. Auf sozialer Ebene spielen u.a. auch die Beziehungsgruppen eine
+bedeutende Rolle, wie Gruppierungen von etwa Gleichaltrigen, die für den einzelnen Menschen als primäre soziale Bezugsgruppe von Wichtigkeit sind.
+Alle Ebenen beeinflussen sich wechselseitig, und ausserdem sind sie auch ausschlaggebend für die Ursachenfindung.
+Schlussendlich tragen die verschiedenen Faktoren dazu bei, dass sich im Bewusstsein und im Gehirn eine Veränderung
+ergibt, durch die im Gehirn Botenstoffe ausgeschüttet werden, die sowohl das gesamte Körpersystem mit all seinen Organen, wie aber auch das Bewusstsein beeinflussen. Auch verschiedene anstrengende und viel Kraft fordernde Lernvorgänge
+können eine Schwächung des Immunsystems hervorrufen und so bei einer Virusinfizierung mitwirken. Die Veränderungen
+im Bewusstsein und Gehirn führen in dieser Weise letztlich dazu, dass die Anstrengungen negative Gedanken und Gefühle
+erschaffen, die sich negativ auf die Psyche und immunschwächend auswirken. Der von diesen Veränderungen abhängig
+werdende Mensch nimmt dies jedoch nicht wahr, spürt dabei weder Lust noch Freude, sondern Müdigkeit und verfällt einer
+Missstimmung, die gesamthaft negativ und schwächend auf ihn einwirkt.
+Zudem können auch bestimmte Situationen im täglichen Dasein gleichermassen schwächend auf das Immunsystem einwirken, wie etwa die Ausstrahlung und der Geruch von Personen sowie bestimmter Nahrungsmittel und vielerlei Substanzen.
+Das führt zu einer Konditionierung resp. zu Formen von Reiz-Reiz-Assoziationen bzw. Reiz-Reaktions-Assoziationen resp. zu
+sich wiederholenden Koppelungen von Reizen resp. Verknüpfung von Vorstellungen, die psychische Unruhe und Verhaltensweisen schaffen, die sich immunschwächend auswirken. Das bedeutet: Die jeweilige Situation selbst löst dann im Menschen Risikofaktoren aus, die bezüglich der Aufrechterhaltung des Immunsystems eine negative Rolle spielen und dieses
+schwächen anstatt stärken.
+Die Anfälligkeit für das Erklärte unterscheidet sich von Mensch zu Mensch, und zwar aufgrund unterschiedlicher erblicher,
+umweltbedingter, entwicklungsbedingter sowie ethischer, charakterlicher und moralischer Faktoren. Letztlich handelt es
+sich also um ein Zusammenspiel verschiedener Faktoren, die das Risiko einer Immunschwäche und damit einer Infizierung
+durch ein Virus erhöhen – oder vor einer solchen schützen können.
+
+**Billy** Entschuldige, alles was du sagst und erklärst, das hat mich bereits Sfath gelehrt, wozu er aber auch sagte, dass das
+Ganze von allen irdischen Wissenschaftsgrössen, die sich mit der Virologie, Epidemiologie und Immunologie usw. befassen
+würden – wie aber besonders auch von unseren Erdlings-Superpsychologen, die sowieso immer alles besser wissen wollen
+und sich als Superintelligente und über den Mitmenschen zu stehen wähnen –, niemals bedacht, geschweige denn akzeptiert werde, weil sie in ihrer Borniertheit unfähig seien, sich in dieser Richtung auch nur anflugsweise einen winzigen verstandesmässigen und vernünftigen Gedanken zu machen. Rede aber ruhig weiter, denn ich wollte dies nur nebenbei bemerken.
+
+**Florena** Was du sagst, das hat mir auch Ptaah bereits gesagt, und ausserdem weiss ich vieles aus seinen Erklärungen, die
+er uns aus den Aufzeichnungen von Sfath weitergibt, um uns allgemein darüber zu informieren, was um deine Persönlichkeit für uns ebenso von Bedeutung ist zu wissen, wie auch um deine Fähigkeiten und alles Erlernte.
+Nun will ich aber noch das Restliche erwähnen, was mir Ptaah zu erklären aufgetragen hat: Was das Risiko erhöht, eine
+Immunschwäche zu erleiden und dadurch leichter eine Virusinfektion herbeizuführen, was von irdischen Virologen usw.
+bestritten werden wird – wie dir bereits Sfath erklärte, wie du sagst –, so spielen beim Ganzen auch die verschiedensten
+individuellen Faktoren der einzelnen Menschen eine wichtige Rolle, so also auch das Umfeld, in dem der Mensch lebt,
+handelt und wirkt, wie auch sein Verhalten, seine Lebens- und Lerneigenschaften sowie selbst sämtliche Substanzen, mit
+denen er in der einen oder anderen Weise in Kontakt kommt. Diese können im Zusammenspiel das Risiko einer Immunschwächung derart herbeiführen und erhöhen, dass sie praktisch ohne anderweitige Anfälligkeiten zu einer Virusinfektion
+führen können. Daher können verschiedenste Risikofaktoren auftreten, von denen sich selbst Virologen, Epidemiologen,
+Mediziner und besonders auch Psychologen keinerlei Vorstellungen zu machen vermögen, folglich sie auch alles bestreiten
+werden, wie dass beispielsweise erblich bedingte, wie jedoch auch rein individuelle Faktoren altherkömmlicher, neuerer
+oder gegenwärtiger Art urheblich an Infizierungen beteiligt sein können, wie:
+
+1. Depressionen,
+2. bereits im Kindesalter oder im Verlauf des Lebens eingenommene lebenszeitwirkende Substanzen,
+3. Leistungsdruck,
+4. Stressbelastung,
+5. hoher Leistungs- und Konkurrenzdruck,
+6. Angstzustände,
+7. belastende persönliche Lebensumstände,
+8. Überforderung jeder Art,
+9. Schlafstörungen oder Schmerzzustände,
+10. psychische Störungen oder Erkrankung,
+11. Aufmerksamkeitsdefizit,
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+12. Entscheidungsdruck,
+13. Hyperaktivität,
+14. falsches soziales Umfeld,
+15. schlechte Bekanntschaften, Freundschaften oder Familienverhältnisse,
+16. anstrengendes oder unbeliebtes Berufsleben resp. Arbeitswesen,
+17. Risikofaktoren durch Missbrauch von Substanzen aller Art usw.,
+18. zwischenmenschliche Konflikte mit Eltern, Geschwistern, Freunden, Bekannten, Fremden,
+19. schlechte schulische Leistungen,
+20. Fähigkeitsunterforderung,
+21. Trennung von einem geliebten Menschen,
+22. Todesfall eines geliebten Menschen,
+usw.
+
+Das sind die Erklärungen von Ptaah, die ich dir nennen soll, wozu ich denke, dass ich alles genannt und nichts vergessen
+habe.
+
+**Billy** Danke, und wenn es nicht vollständig wäre, dann könntest du es immer noch nachträglich sagen und weiter ausführen. Jedenfalls nochmals danke. Dann möchte ich nun gerne das von dir hören, Bermunda, was du mir bezüglich der
+Musik und deines diesbezüglichen Wissens ausführen willst.
+
+**Bermunda** Gerne –, wenn du nun wirklich mein gebildetes Verstehen bezüglich Musik in Anspruch nehmen willst,
+dann kann ich dazu erklären, dass ich aus Interesse meiner eklektischen Passion auch die gesamten irdischen musikalischen
+Kunstgattungen tiefgreifend studiert habe. Auch lag es in meiner Passion, alle diese Werke und die daraus hervorgegangenen und auch heute noch daraus hervorgehenden organisierten Schallereignisse ebenfalls eingehend zu studieren. Also
+erfasst mein Wissen alle diesbezüglichen Kunstrichtungen resp. Musikrichtungen aller irdischen Völker seit alters her, und
+zwar bis in die heutige Zeit, wie Oper, Salonmusik, Tanzmusik, Jazz, Pop, Schlager, House, Hip-Hop, Landmusik, Klassik,
+Worksongs, Kindergesang, Country-Musik, Messen-Musik, Rockmusik, Operette, Musical, Techno, Rhythm and Blues, Metal, Alpmusik, Singsang, Industrial, Krautrock, Elektronisch, Call and Response, Classic Rock, Alternativ Rock, Punk Rock,
+Negro Spiritual und African-American Spiritual, Gospel, Folk Punk, Deutschrock und Grunge, Jazz Rock, wie aber auch Kirchenmusik, Sektengesang, Gebetsgesang, Volksmusik, Chor-Musik und viele andere.
+Musik und Gesang harmonischer Art und Weise mobilisieren das Bewusstsein des Menschen wie auch das Instinktbewusstsein der Säugetiere, des Getiers und aller Lebewesen allgemein, was leider dem Gros der Erdenmenschen nicht bekannt
+ist.
+Musik und Gesang harmonischer Art und Weise – wie du ja weisst, da du diesbezüglich belehrt bist – produzieren beim
+Menschen Wohlhormone, die sich auf einen Halbwegewert gute oder effectiv gute sowie auf beste entwickelte Charaktereigenschaften des Menschen auswirken. Bei einer gewissen grösseren Masse der Erdenmenschen sind diese Charaktereigenschaften in der Regel mit einem Halbwegewert zu bemessen, was bedeutet, dass diese Menschen charaktereigenschaftlich halbwegewertig einer Gedanken-Gefühls-Psyche-Stimmung von Frieden, Harmonie, Freude und Liebe fähig und
+zugänglich sind, folglich sie also ihre Gedanken, Gefühle und Psyche in einer gewissen Ausgeglichenheit führen. Dies darum,
+weil das Bewusstsein dieser Menschen die harmonischen Klänge von Musik und Gesang auswiegend, wohlgliedernd und
+ebenso beruhigend verarbeitet, wie es dies unbewusst auch mit den Geräuschen, Klängen und allen Stimmen der Natur
+macht. Wenn jedoch etwas Störendes in diese Stimmung einbricht, dann löst sich diese sehr schnell und lässt die nur halbwegs erarbeiteten guten Charaktereigenschaften aufwallen und alles Negative durchbrechen. Dazu solltest jedoch du etwas
+erklären, denn du wirst unser Gespräch ja abrufen und niederschreiben, damit es von vielen gelesen werden kann. Du
+kennst gegensätzlich zu mir zudem die Erdenmenschen und weisst, wie ihnen etwas zu erklären ist. Ausserdem bist du in
+diesen Belangen sehr belehrt und vermagst folglich alles genau zu erklären, so dass es auch verstanden wird. Danach will
+ich dann das weitere Notwendige erklären. Daher, bitte …
+
+**Billy** Wenn du meinst! – Gut, was du angesprochen hast, dabei bricht nicht nur Negatives durch, sondern auch Wut,
+Gewalt, Bösartigkeit, Hass, Rache und Vergeltung, wobei dann in der Regel auch vor Mord und Totschlag, Vernichtung und
+Zerstörung nicht zurückgeschreckt wird. Das sind wohl die Fakten, die du meinst, dass ich sie erklären soll?
+
+**Bermunda** Ja, bitte. Dazu solltest du etwas erklären, wenn möglich etwas ausführlich, denn dein diesbezügliches
+Wissen umfasst mehr als das meine. Zudem wirst du ja unser Gespräch auch abrufen, niederschreiben und zum Lernen
+weitergeben, was wichtig und wohl auch lehrreich wäre.
+
+**Billy** Du magst recht haben, dass das Ganze etwas ausgeführt werden sollte. Du hast vorhin jedoch etwas gesagt, was
+ich erst rückfragen muss, weil ich den Begriff nicht kenne, nämlich <Halbwegewert>. Was bedeutet das? Wenn ich dieses
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Wort durch meine Gehirnwindungen drehe, dann komme ich darauf, dass du damit vielleicht <die Hälfte von etwas Bestimmtem> oder eben etwas <Halbwertiges>, etwas <das nur halbwegs gemacht wird> oder so ähnlich meinst?
+
+**Bermunda** Ja, das ist der Sinn davon.
+
+**Billy** Gut, dann ist die Sache klar, und ich werde den Begriff auch bei meinen Erklärungen benutzen. Bei dem, was du
+gesagt hast ergibt sich, dass bei Menschen – was ich nun wohl wiederholen muss –, die in sich effectiv halbwegewertig gute
+oder beste entwickelte Charaktereigenschaften erarbeitet und entwickelt haben, durch harmonische Musik und ebensolchen Gesang sich Wohlhormone produzieren. Dies bewirkt in ihnen Gedanken-, Gefühls- und Psycheregungen, die zu einer
+gewissen Ausgeglichenheit führen. Diese Menschen weisen, wie du erklärst, in der Regel einen CharaktereigenschaftenHalbwegewert auf, der – wenn ich das richtig verstehe und interpretiere – einem halbwegs guten Charakterwert entspricht,
+der meines Erachtens einem grossen Teil, ja gar dem Gros der Menschheit eigen ist, und zwar egal ob die Menschen einem
+völlig irren und wirren Gotteswahnglauben verfallen, oder ob sie dem klaren Verstand, der gesunden Vernunft und dem
+konstruktiven Intellektum zugetan sind. Dabei jedoch, und das entspricht der traurigen Tatsache, artet das Bösartigste
+nachweisbar seit alters her bei jenen Menschen aus, die einem religiösen oder sektiererischen Wahnglauben verfallen sind.
+Die Glaubens- und Religionskriege, die bereits seit jeher, und zwar schon seit dem ersten Aufkommen der Religionen und
+Sekten zu Streit, Krieg und Terror führten und bis in die heutige Zeit anhalten, haben viele Millionen Menschenleben gefordert und fordern weiterhin viele Todesopfer. Dies alles im Namen eines Gottschöpfers, der nicht existiert, der jedoch die
+Liebe und Güte selbst sein soll, jedoch für jeden Unglauben an ihn böse Strafe fordert und dazu Kriege, Terror, Mord, Folter
+und Totschlag segnet. Und wenn dadurch Morde, Massaker, Vergewaltigungen, Zerstörungen und Vernichtungen sowie
+Genozide resp. Völkerausrottungen durchgeführt werden, dann geschieht dies mit irren Lobgebeten an einen nichtexistierenden Gott der zahllosen Religionen und Sekten, von deren verschiedenen nicht einmal die Experten wissen, wie viele
+Hunderte und Tausende es bei der gottglaubenswahnbefallenen Erdenmenschheit überhaupt gibt. Doch all die vielen Milliarden Gläubigen der Religionen und Sekten mit ihren Göttern – wie Gott, der Vater des Christentums; Allah des Islam und
+Sikhismus; Ahura Mazda des Zoroastrismus; Adonai-Eleohim-El-Jahwe des Judentums; Brahma/Indra/Dakshaé/Hiranyagarbha/Vishvakarman und über 3 Millionen andere Gottheiten des Hinduismus – sind es exakt, die sofort ausflippen, wenn
+sich etwas entgegen ihren in der Pubertät erarbeiteten halbwegs guten Charakterwerte ergibt. Sehr schnell wird dann jeder
+gute Vorsatz unbedacht über den Haufen geworfen und zur Waffe gegriffen, um mit Streiten, Gewalt, Mord und Totschlag,
+Krieg, Rache, Hass, Terror und allen bösen Ausartungen auf Teufel komm raus allen höllischen Ausartungen freien Lauf zu
+lassen. Und diese Tatsache ist bis weit in die irdische Menschheitsgeschichte zurückzuverfolgen, und zwar vor allem nachweisbar durch Religionskriege und andere schwerwiegende Religionskonflikte, die gesamthaft das Mehrfache an Menschenleben gekostet haben, als alle 3 Weltkriege zusammen, von denen der 1. Weltkrieg von 1756 bis 1763 in der irdischen
+Weltkriegsgeschichte unterschlagen wird.
+Wie viele Religionskriege es auf der Erdenwelt seit alters her effectiv gegeben hat und noch immer und immer wieder gibt
+– wobei heute hauptsächlich der Islamistmus mit seinem gesamten mörderischen und zerstörerischen Fanatismus, mit seinen Morden, Massakern, Vergewaltigungen, mit Folterei, Vernichtungen und Zerstörungen usw. an vorderster Front steht
+–, darüber gibt es keinerlei genaue Aufzeichnungen, folglich keine exakte Zahl genannt werden kann, die jedoch zweifellos
+in die Tausende geht.
+Bei Religions- und Sektenkriegen ging und geht es auch heutzutage nie allein um die Religion, Sekte und deren irren Gotteswahnglauben, denn grundlegend waren und sind in der Regel nebst dem religiösen Sektierismus die 2 weiteren Hauptursachen für Aufruhr, Aufstand, Bürgerkrieg, Völkerkrieg und Terror stets Gold, Diamanten, Schätze, Landgewinn und Geld,
+wie aber auch Macht und Herrschaftsgewalt. Erst zuletzt ging es dann effectiv um den Wahnglauben, wofür die Glaubenswahnfanatiker folterten, vergewaltigten, mordeten und massakrierten. Dies wurde immer getan, und zwar egal ob bei Religions- und Sektenkriegen oder bei sonstigen Kriegen und Terror, wie das auch heute noch so ist und weiter noch lange so
+bleiben wird, und zwar solange noch Religionen, Sekten, Gotteswahnglauben und machtgierige sowie geldgierige Menschenkreaturen existieren, die von den unbedarften Völkern in die Regierungen gehievt werden. Dies einerseits, während
+anderseits auch der Glaubenswahn weiterhin Unheil bringen wird, wenn auch die oberen und obersten Religions- und Sektengestalten weiterhin geduldet werden, deren Vorfritzen bis hinauf zu den obersten Führern unsagbares Unheil über die
+Menschheit brachten und zahllose Menschenleben ermorden liessen.
+Kriege, Aufstände und Terror – ob politisch bedingt, aus Machbesessenheit, aus Gier irgendwelcher Art, aus Hass, Rache
+oder Religions- oder Sektenwahn –, allesamt werden nur durch Menschen bestimmt und ausgeführt, die ihre Pubertätszeit
+nur halbwegewertig zur menschwürdigen Charakterentwicklung genutzt haben, folglich ihr Charakter nur halbwertig aufgebaut und also mangelhaft entwickelt wurde. Also ergab sich in der 6jährigen Haupt-Pubertäts-Entwicklungsphase der
+gravierende Mangel, dass die hohen Lebensverhaltenswerte sowie die lebensnotwendigen Gedanken-Gefühls-PsycheWerte nicht erlernt und nicht entwickelt wurden. Dazu gehören auch die gut-hochwertigen Charaktereigenschaften sowie
+die Liebe, Güte, Freiheit, Ausgeglichenheit, der Anstand und der Frieden, wie auch das Rechtschaffensein usw., die ebenfalls
+nur halbwegewertig erarbeitet und entwickelt wurden, folglich gesamthaft alle diese Halbwegewerte auch nicht kontrolliert werden können. Durch die fehlende Kontrolle jedoch, flippt der Mensch sofort aus und wird wütend, zornig und
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+gewaltbereit, und es kommen Hass und Racheanwandlungen usw. in ihm hoch. Folgedem wurde und wird auch nicht verstanden, was diese bestimmten Werte bedeuten, wie z.B. die Liebe, die in <Fachbüchern> als nicht definierbar beschrieben
+wird, wie eben etwa folgendermassen, was ich einmal zu lesen bekommen habe: «Für Liebe gibt es keine allgemeingültige
+Beschreibung, weil jeder Mensch sie für sich individuell anders definiert als ein anderer Mensch.» Im <Duden> habe ich
+beispielsweise einmal gelesen: Dass <ein starkes Gefühl des Hingezogenseins und damit eine im Gefühl begründete Zuneigung zu einem nahestehenden Menschen als Liebe zu definieren sei>. Ausserdem könne Liebe beispielsweise auch auf
+<geistiger> Anziehung beruhen und müsse also nicht immer körperlich sein. Mit Sfath habe ich darüber oft diskutiert und
+dabei habe ich viel von ihm gelernt, was mich dazu brachte, selbst eine Definierung für wirkliche und ehrliche Liebe zu
+formen, die Sfath gut fand und wozu er sagte, dass seines Erachtens das, was ich formulierte, explizit das aussage und
+definiere, was als Liebe wirklich zu verstehen sei, nämlich:
+
+<Liebe ist empathische Gedanken-Gefühls-Psyche-Empfindung würdiger Verbundenheit.>
+
+Liebe kann als solche, wenn sie effectiv gegeben und nicht unehrlich-heuchlerisch ist, ein Mensch für einen anderen Menschen innig empfinden, wie eine wirkliche Liebe dieserart auch in einer entsprechend anders geformten Weise für eine
+Pflanze, ein Tier, Getier oder sonst ein Lebewesen, wie aber auch für etwas gegenständlich Materielles, für Musik, Gesang
+oder eine andere Kunstrichtung oder für sonst irgend etwas nach dessen Art usw. empfunden werden kann.
+
+Liebe entspricht etwas anderem als einer Verliebtheit resp. einem Verliebtsein, denn dies hat gegensätzlich zur wirklichen
+Liebe nichts mit Liebe zu tun, sondern es ergibt sich aus einem unklaren und täuschenden Gedanken-Gefühls-Psyche-Zustand. Dieser geht aus Einbildungswünschen hervor, die sich aus besonderen und verschiedenen Ursachen ergeben, wie
+beispielsweise aus Betrachtungen und einem Gefallen bezüglich körperlicher Proportionen, einem Gesichtsbild, einer
+Stimme, Redensform, oder infolge Körperbewegungen, Gangart oder Verhaltensweisen usw. Daraus kann sich jedoch keine
+würdige resp. innere empathische Gedanken-Gefühls-Psyche-Verbundenheit ergeben, und zwar selbst nach langer Zeit und
+also auch nach Jahren und Jahrzehnten nicht, folglich dereinst unweigerlich die Verliebtheit resp. das Verliebtsein endet
+und null und nichtig wird. Das ist dann oft der Grund dafür, dass sich andere Verliebtheiten zu anderen Menschen ergeben,
+folglich sich langjährig zusammengeraufte Menschenpaare wieder trennen und andere Partnerschaften eingehen, wobei
+sie u.U. abermals nur einem Verliebtsein verfallen, folglich sich das Verliebtheitsproblem wiederholt – und dann vielleicht
+wieder, und wieder …
+Wovon ich zuvor gesprochen habe: Der Grund dafür – dass über das Halbwegewertige der sehr mangelhaften Charaktereigenschaften keine bewusste und dauerhafte Kontrolle ausgeübt werden kann, sondern sofort ausgeflippt wird und es zu
+Gewalttätigkeiten, Hass, Rache und allen bösen Ausartungen kommt, wenn sich etwas ergibt, was nicht ins persönliche
+Gedanken-Gefühls-Psychemuster passt – ist der, dass nur ein halbwertiger Wert guter Charaktereigenschaften und keine
+Kontrolle darüber besteht. Wenn der Mensch sich über Musik und Gesang und allerlei Harmonisches freuen und dafür
+Regungen wie Liebe, Frieden und Ausgeglichenheit usw. in sich aufkommen lässt, jedoch nicht die Kraft darüber hat, alles
+auch zu behalten und zu beherrschen, wenn irgendeine stimmungsstörende Widerwärtigkeit oder Angriffigkeit aufkommt,
+dann bricht zwangsläufig die andere und noch negative, böse halbwegewertige Charakterseite durch und schafft böse Ausbrüche, Streit, Hass, Rache und Gewalt usw., weil die guten Charakterteile nur halbherzig und eben, wie du sagst, Bermunda, nur halbwegewertig entwickelt sind, folglich sie von den anderen noch unverarbeiteten und bösen Charakterteilen
+beherrscht und überwältigt, übergangen, missbraucht oder einfach beendet werden können, wie das auch mit den Halbwegewerten der Charaktereigenschaften der Fall ist.
+Die Machthabenden oder irgendwelche religiöse, sektiererische Gruppierungen von Menschen wollen immer mehr Macht
+über ihre Gläubigen erlangen und möglichst rundum alles über sie bestimmen, wie das auch die Staatsmachthabenden und
+Gewaltherrschenden tun, nebst dem, dass alle nach viel Geld und Reichtum hecheln – und eben vor allem Geld, Geld und
+Reichtum. Daher ist es auch in den Regierungen so, dass die Parteien untereinander um Geld streiten und keinerlei politische Einigkeiten zustande kommen, sondern immer Parteidifferenzen das Politparkett beherrschen. Dass sich allüberall in
+allen Regierungen auch Religiosität und Sektierismus ergibt, das ist unbestreitbar. Die Geldgier ergibt sich auch, wenn wertvolles Land für Bauten zerstört werden will, oder wenn Bodenschätze wie Gold, Öl oder andere Rohstoffe gefunden und
+ausgebeutet werden sollen. Tatsache ist dabei, dass das Gros der streitenden Regierenden und Politiker ebenso, wie das
+Gros der Völker, nur halbwegewertige Charaktereigenschaften aufweisen, folglich sie die ersten sind, die nach Krieg und
+Terror schreien, wenn sich Probleme mit anderen Völkern ergeben. Dass dann die ebenso nur halbwegewertig-charakterlichen Bevölkerungen zu den Waffen greifen und den unfriedlichen, bösartigen und mörderischen Kriegs- und Terrorrufen
+ihrer Regierenden und Aufwiegler ebenso unbedacht und willig Folge leisten, wie wenn die Religions- und Sektenführer
+dasselbe tun, das ist infolge der halbwegewertigen Charakterentwicklung des Bevölkerungsgros unvermeidbar. Das hat sich
+so seit alters her durch die zahllosen Kriege, Aufstände, Bürgerkriege, Religions- und Sektenkriege und allen Terror erwiesen, sei es durch die mörderischen Kreuzritter gewesen, nach den Hussitenkriegen, die ersten europäischen Religionskriege
+resp. die Kappelerkriege zwischen den katholischen Innerschweizern und den Zürchern, oder die Schlachten bei Zülpich,
+Deutschland; Toul, Frankreich; oder Wogastisburg in Ost-Mitteleuropa. Auch die Schlacht im Jahr 1740 um die öster
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+reichische Erbfolge und die 8 Kriege um Schlesien, wie auch der Krieg zwischen Nordvietnam und den USA. Auch die Religionskriege in Frankreich sind zu nennen, wie die Hugenottenkriege 1562–1598, dann auch der niederländische Freiheitskampf im gleichen Jahrhundert, wonach dann etwa 100 Jahre danach der englische Bürgerkrieg und dann der 30jährige
+Krieg folgten. Und all das nur so nebenbei gesagt, denn bis weit in die Vergangenheit und Gegenwart der MenschheitsKriegsgeschichte haben derart zahllose Kriege und Terrorakte stattgefunden und gesamthaft so viele Millionen Menschenopfer gefordert, dass sie nicht gezählt werden können und auch nicht schriftlich festgehalten wurden. Tatsache ist dabei
+jedoch, dass in allererster Folge die zahlenmässig meisten und zudem allerübelsten Religionskriege und Religionsterrorakte
+seit alters her und bis in die heutige Zeit durch das Christentum und durch den Islam ausgelöst und durchgeführt wurden,
+mit grauenvollen Massakern, Folterei, Vergewaltigungen und Morden. Und all das im Verlauf von nur 2 Jahrtausenden, was
+viele Millionen von Menschenleben gefordert hat, und zwar auch zahllose Frauen und Kinder – und alles im Namen des
+Gott-Vaters, der seine Kinder, die Menschen liebt; des Gottes, des Allmächtigen und Allbarmherzigen, in dessen Namen die
+tödlichen Waffen, Kriege und der religiöse Terror gesegnet wird, um alle Menschen, Männer, Frauen und Kinder elend und
+bestialisch zu massakrieren und abzuschlachten, wenn sie anderen Glaubens oder anderen Volkes sind.
+Der unterschiedliche Glauben der streitenden Gotteswahngläubigen aller Religionen, Sekten und deren Bonzen sowie aller
+Völker aller Länder, wie auch aller Regierungen und Parteien, trägt oft dazu bei, dass sich die Fronten zwischen verschiedenen Gläubigen immer wieder verschärfen, wobei ganz besonders ausgeartete neunazistische Christen alle Juden ebenso
+beharken und ausrotten wollen, wie ausgeartete fanatische Islamgläubige. Doch auch bei vielen Juden selbst lodern Hass
+und Rache, folglich auch diese nicht zurückschrecken, ihre ihnen feindlich gesinnten Widersacher zu morden, wenn diese
+ihnen in die Hände fallen. Gleichermassen gilt das auch für die Gläubigen anderer Religionen und Sekten, denn ihnen allen
+ist der Halbwegewert ihrer Charaktereigenschaft eigen, folgedem ihnen wahre Liebe, Frieden und Freiheit sowie Harmonie,
+Ausgeglichenheit und menschliches Rechtschaffensein sowie echte Ethik, Moral, Menschenehre und Menschenwürde ausserhalb ihres Halbwegewertes wie Schall und Rauch und sofort null, nichtig und vergessen sind, wenn auch nur das Geringste gegen ihre Gesinnung aufkommt. Das war schon immer so, wie es auch die Geschichte der Menschheit seit alters
+her beweist. Bereits die alten Griechen führten Kriege, um ihre Heiligtümer zu schützen. Im Mittelalter kämpften Christen
+und Muslime darum, wer die grösseren Rechte an Jerusalem hat. Der Streit ist bis heute nicht geschlichtet, folglich das
+Kriegen, der Terror und das Morden und Zerstören ungehemmt überall weitergeht und kein Ende findet.
+Wird die Mordgeschichte der christlichen Religion betrachtet, dann lieferten sich schon seit alters her katholische und protestantische Christen immer wieder Kriege und Terrorakte in Europa und sonstwo überall, wie auch in der frühen Neuzeit,
+und zwar bereits ab 1232, Inquisitoren sogenannte Ketzer verfolgten, also Menschen, die entweder nicht an einen imaginären Gott glaubten oder zumindest nicht einen Gotteswahnglauben ausübten, wie es von der christlichen Kirche vorgeschrieben und verlangt wurde. Weiter ergab sich danach ab 1350 der sog. Hexenwahn, der in Europa in der Zeit von etwa
+1350 begann, der bis 1750 dauerte, wobei dieser Hexenwahnsinn seinen Höhepunkt ab 1550 und die Hexenprozesswelle
+sowie die damit verbundenen grauenvollen Folterungen und Verbrennungen der Menschen auf Scheiterhaufen, wie auch
+das Ersäufen in Flüssen bis 1650 dauerten.
+Die von 1562 bis ca. 1630 zahlreichen Missernten, die sich durch schlechte Wetterverhältnisse ergaben, was auch zu starken
+Preiserhöhungen für Nahrungsmittel führte, diente den christlichen Predigern dazu, Hexen dafür verantwortlich zu machen, weil die Gotteswahnglaubensprediger selbst glaubten, dass es so sei. Nach Meinung der Menschen allgemein wurden
+so angebliche Hexen für alles und jedes haftbar gemacht, was sich an Negativem, Bösem und Schlechtem ergab, so auch
+die Armut, Todesfälle und Kriegszüge und, und, und. Und das dauerte in Europa letztendlich bis 1680, als die letzten Hexenverfolgungen in Österreich beendet wurden. All das Unheil, Elend, Leid und der unsagbare Schmerz, sowie der gesamte
+vom verlogenen Katholizismus gepredigte und dahergelogene Hexenunsinn, wie auch der idiotische realitätsfremde Gotteswahnglaube vieler Zigtausende, der Folterungen und Morde an unschuldigen und als Hexen massakrierten Menschen –
+Frauen, Kinder und Männer – gebracht hat, das kümmerte weder zu jenen Zeiten die christlichen Gläubigen und Gotteswahnheuchler, wie auch zur heutigen Zeit die gesamte Christenwelt nicht. Wahrlich, so war es, denn sie mussten ja damals
+und müssen auch heutzutage nicht ihr eigenes Fell abreissen, gerben und auch nicht auf den Scheiterhaufen verbrennen
+lassen. So, wie damals auf vermeintliche Hexen regelrechte mörderische religionsbedingte Hetzjagden nach Christenwahnsinn veranstaltet wurden, dem viele Zigtausende von unschuldigen Menschen zum Opfer fielen, die grauenhaft gefoltert
+und dann lebendigen Leibes auf Scheiterhaufen verbrannt wurden – vor allem junge und ältere Frauen und teils auch Kinder
+–, so geht es im Versteckten weiter, besonders in Drittweltländern, wo der christliche Wahnglaube weiterhin stark grassiert.
+Ausgelöst zu alter Zeit durch den Obersten der katholischen Sektiererbosse in Rom, Papst Innozenz VIII., der eine Urkunde
+als sog. Hexenbulle erliess – und so wird das auch heute noch in perfider anderer Weise gehandhabt. Dies, um Menschen
+aus der Welt zu schaffen – wie mich –, die es wagen, die effective Wahrheit zu sagen und zu verbreiten, nämlich, was es in
+bezug auf den Gotteswahnglauben auf sich hat und welche ungeheuren mörderischen Menschheitsverbrechen im Namen
+eines schwachsinnig erdachten und angeblich <liebevollen> Gott-Vaters begangen wurden und weiterhin ausgeübt werden.
+Religiöse christlicher Gruppen bekämpften sich auch in Bürgerkriegen in Nordirland, und sie bekämpfen sich noch immer
+heimlich, auch wenn nicht öffentlich darüber berichtet wird. Und auch heutzutage ergibt sich dasselbe in Israel und Palästina resp. zwischen den Juden und Muslimen, wie auch die Chinesen und Uiguren resp. die Buddhisten, Taoisten, Kon
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+fuzianisten und die Islamgläubigen miteinander Terror machen und morden, so aber auch in Myanmar die Burmesen und
+Rohingya resp. die Buddhisten und Muslime. Auch bei all diesen wird das gleiche traurige Religionshasslied gesungen – und
+bei all diesen, wie es allüberall ist, kann nicht die Hand umgedreht und etwas Besseres gesehen werden, denn die einen
+sind nicht besser als die andern, weil sie alle im selben Spital krank sind, vollgefressen mit Hass und Rache wider den Gotteswahnglauben der anderen, die sie infolge deren Glauben als Feinde sehen. Und exakt diesbezüglich ist Tatsache, dass
+alle diese Menschenvölker im Höchstfall eine Entwicklung von einem Halbwegewert aufweisen, wobei die grossen Massen
+und ihre Führerschaften jedoch weit darunter liegen und vielleicht, so denke ich, wenn ich alles berücksichtige, was ich
+bezüglich dieser Menschen weiss, dass diese Menschen in bezug auf ihre Gesamtentwicklung als Mensch noch weit unter
+dem Halbwegewert einzuordnen sind. Und das bedeutet, dass sie in ihrem Gottesglaubenswahn noch derart verfangen
+sind, dass ihnen ein Menschenleben null und nichtig, absolut gleichgültig und wertlos ist – ausser ihrem eigenen –, folglich
+das ganze Unheil so weitergeht, wie es seit alters her überliefert und vererbt ist und in dieser Weise weiter in die Zukunft
+getragen wird. Und daran werden auch all die grossmäuligen Besserwisser, Psychologen, religiösen Gotteswahngläubigen,
+Menschen- und Völkerkenner, Professoren und sonstigen studierten Alleswisser nichts ändern, und zwar auch dann nicht,
+wenn sie behaupten würden, ihr erphantasierter Gott selbst zu sein.
+Zu sagen ist nun nur noch, dass es bei allen genannten Ausartungen, wie ich schon erklärte, vor allem nicht nur um den
+Gotteswahnglauben allein geht, sondern darum, wer in den Regierungen und in der Politik das grosse Wort führen und wer
+die eigentliche Regierungsmacht innehaben kann. Dies nebst dem, dass es seit alters her auch hauptsächlich um Geld und
+Reichtum geht und um Landbesitz. Und das ist z.B. auch so hinsichtlich der dauernden Kriegsmachenschaften zwischen
+Palästina und Israel, und zwar seit das alte Hebräervolk aus Ägypten flüchtete und sich im <verheissenen Land> festsetzte
+und seither eine blutige Fehde immer wieder Menschenleben kostet, wie in der Religionsgeschichte geschrieben steht. Und
+das Ganze wird noch weit in die Zukunft weitergehen mit Terror, Mord, Zerstörungen, und zwar immer mit dem Ruf <Gott
+ist gross>.
+Allen diesen Menschen ist es gesamthaft eigen, dass sie einer Gedanken-Gefühls-Psyche-Stimmung von Frieden, Liebe,
+Freude und Harmonie zugänglich und auch fähig sind, diese Werte zu spüren, das Ganze auch zum Ausdruck zu bringen und
+es zu leben, und zwar auch im täglichen Leben und im Umgang mit den Mitmenschen, der Natur und deren Lebensformen.
+Und das ergibt sich darum, weil das Bewusstsein dieser Menschen die harmonischen Klänge von Musik und Gesang auswiegend, wohlgliedernd und ebenso beruhigend verarbeitend in sich aufnimmt und durch ihre Schwingungen ihrer Gedanken und Gefühle zu einem psychischen Wohlbefinden erhebt. Und dies tun sie so lange, wie sie es in unbewusster Weise
+auch mit den Geräuschen, Klängen und allen Stimmen der Natur machen.
+Beim Menschen ist sein charaktereigenschaftliches Halbwegewertigsein soweit gut und recht, jedoch nur derart lange, bis
+etwas Störendes in die harmonische Stimmung einbricht, denn wenn sich auch nur eine geringe Behelligung oder Behinderung auf das Ganze der Liebe, den Frieden, die Freude, Harmonie, Aufgeschlossenheit und Ausgeglichenheit usw. ergibt,
+dann schwindet das charaktereigenschaftliche Halbwegewertigsein sehr schnell dahin, stürzt ab und lässt die sehr mühsam
+erarbeiteten und nur halbwegewertigen guten Charaktereigenschaften wütend oder zornig aufwallen. Die Kontrolle über
+das halbwertig erarbeitete Gute geht dadurch hemmungslos verloren, wodurch alles Vorhandene des noch unverarbeiteten
+Negativen der Charaktereigenschaften in böser Weise durchbricht und damit Unheil angerichtet wird. Zwangsläufig ergeben sich dann daraus Streit und Hader, Hass und bösartige Gewalttätigkeiten, Racheanwandlungen, Vergeltungstaten,
+Kriege, Terror und Mord und Totschlag, weil urplötzlich aus irgendwelchen irren und wirren Gründen das Ganze von Liebe,
+Frieden, Freude, Harmonie und Ausgeglichenheit usw. weggeschoben, unwichtig und durch aufwallende Angst, Wut oder
+Zorn, Sieger- oder Profitgedanken nichtig wird.
+Nun. – Gut ist etwas besser, und Bestes wäre das, was sein müsste, jedoch ist es so gut wie. Dass nichts erreicht wird an
+guten und besten Charakterentwicklungseigenschaften, das ist klar, und zwar so lange nicht, wie nichts dafür getan wird,
+sondern nur im altherkömmlichen miesen und traurigen sowie unheilbringenden Stil weitergewurstelt wird.
+Was nun noch zu sagen und zu erklären ist, weil ich es als dringend notwendig erachte, dass es einmal offengelegt wird,
+das bezieht sich darauf, dass allgemein je nach Gattung und Art auch alle Tiere, also Säuger, wie aber auch alles Getier –
+was keinen Säugetieren entspricht –, wie jedoch auch Vögel, Schleichen, Reptilien und alle anderen Lebensformen überhaupt in die Wegewertigkeit einzuordnen sind, demgemäss diese sich auch verhalten. Grundsätzlich, das muss effectiv
+einmal erklärt, wie aber auch klar offengelegt werden – und zwar auch, wenn alle sich mit dieser Materie befassenden
+schlauen Wissenschaftsgrössen, alle Besserwisser und Wahrheitsnegierenden dagegen Amok laufen, Terror veranstalten
+und mich als Irren und Verrückten beschimpfen –, dass nämlich gesamt alle Säugetiere eine animalisch halbwegebewusste
+Halbwegebewusstseinsform aufweisen. Diese natürliche Halbwegeform entspricht zwar <nur> einem halbwegebewussten
+Halbwegebewusstsein, ist jedoch höher entwickelt als das Nur-Instinkt-Bewusstsein des Getiers, das – wie ich schon erklärte – keinem Tier, sondern eben dem Getier und damit keinem Säugerlebewesen entspricht. Diese Tatsache bedeutet
+nun aber, dass jedes Tier nach seiner Gattung und Art und damit gemäss dem evolutiven halbwegebewussten Halbwegebewusstsein wahrnimmt und fühlt resp. <versteht>, was um es und mit ihm vorgeht – eben halbwegebewusst. Das also
+einmal dieserart erklärt, wie auch offenzulegen ist, dass je nach Gattung und Art der Tiere infolge ihres ihnen natürlich
+vorgegebenen halbwegebewussten Halbwegebewusstseins demgemäss auch ein Halbwegewert-Instinkt-Denkvermögen
+und damit auch eine Halbwegewert-Instinkt-Selbsterkennung und Halbwegewert-Instinkt-Psyche eingeordnet ist. Dies
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+habe ich bereits bei Sfath gelernt, erlebt und erfahren, als er mir mit seinen Apparaturen die Möglichkeit geboten hatte,
+mich mit diversen Säugetieren in Rede und Antwort verständigen zu können. Auch alles Getier verfügt je nach Gattung und
+Art über ähnliche Formen, wie auch viele andere Lebensformen, wozu auch Pflanzen gehören. Alle verfügen mindestens
+über ein Instinkt-Empfindungs-Wahrnehmungsvermögen und damit auch über gewisse Instinkt-Empfindungs- Handlungsfähigkeiten, denen Instinkt-Empfindungs-Entscheidungen vorausgehen, was ich ebenfalls mit Hilfe von Sfath selbst erleben
+und erfahren konnte. Daher kann ich mit gutem Gewissen sagen, dass alle Erdlinge, insbesondere Wissenschaftler – die
+sich mit diesen Faktoren befassen –, mit ihren anderslautenden Behauptungen nicht nur rein nichts wissen in bezug auf
+andere Lebensformen, ausser einiges bezüglich des Menschen. Ihre ganze Weisheit beruht in der Regel nur auf Annahmen
+und Vermutungen und also nicht auf effectiven Wissensfaktoren, folglich sie nur hypothetisieren und in Wirklichkeit keinerlei effective Kenntnisse haben – was sie aber in ihrem diesbezüglichen Mangel an Intellektum, Verstand und Vernunft
+vehement bestreiten, weil sie vor dem Volk mit Blenden die Gescheitesten sein wollen. Zwar kennen sie wohl alle – wenn
+ich etwas vergleichend vom eigentlichen Sinn des Gesagten abweichen darf – den uralten weisen Spruch <Quäle nie ein
+anderes Wesen zum Scherz, denn es fühlt genau wie du den Schmerz>. Zwar wurde in der Neuzeit der Begriff <Wesen>
+durch <Tier> ersetzt, doch bleibt sich der Spruchwert derselbe.
+Nun jedoch nochmals: Alles Erklärte bezüglich der Wegewerte ergibt sich nicht nur beim Menschen, sondern gleichermassen allgemein auch bei den Tieren, dem Getier, bei Vögeln und allen anderen Lebewesen in der freien Natur, und zwar bis
+hin zum letzten kleinen Insekt, wie auch bei jenen Lebewesen, die von Menschen gehalten werden. Die Wegewerte spielen
+dabei die Rolle des Verhaltens, denn insofern diese Lebensformen in ihrem Wegewert ihres natürlichen Instinktbewusstseinsverhaltens ungehemmt, unbelastet und völlig unbeeinträchtigt von sie belastenden Einflüssen leben können und also
+nicht durch irgendwelche bösen Einflüsse bösartig in ihrem Verhalten verändert und verstört gemacht werden – insbesondere von Menschen durch Misshandlungen usw. –, dann arten sie in der Regel nicht aus, sondern leben in ihren normalen
+Trieben, und zwar auch hinsichtlich ihren völlig natürlichen vorgegebenen Instinkt-Charakterwegewerten. Gegensätzlich
+dazu steht der Mensch, der in seiner Jugend in der mittleren 6jährigen Pubertätsphase seine wichtigen Wegewerte in bezug
+auf seine wichtigen Charaktereigenschaften und Charakterverhaltensweisen zu bilden und in richtiger Weise zu formen hat,
+was aber leider das Gros der Erdenmenschheit nur in ungenügender Weise als Halbwegewertigkeit ausführt, folglich nur
+halbwertige Charaktereigenschaften erarbeitet werden. Das aber führt dazu, dass – wie eben z.B. durch harmonische Musik
+und gleichartigen Gesang, wovon anfangs die Rede war – die erarbeiteten Halbwegewerte zwar bis zu einem gewissen Grad
+bestimmter erlernter Werte von Liebe, Frieden, Freiheit, Harmonie und Ausgeglichenheit sowie Rechtschaffensein erschaffen werden können, die jedoch infolge fehlender Kontrolle umgehend wieder in sich zusammenbrechen und null und nichtig werden sowie böser Gewalt freien Lauf lassen, sobald das Harmonische durch Störendes und Unlauteres belastet wird.
+Das, Bermunda, ist das, was ich zu erklären hatte. Wahrscheinlich hast du das Ganze wohl nicht in dieser Weise erwartet,
+aber wenn ich schon etwas erklären soll, dann …
+
+**Bermunda** … machst du es auch ausführlich, richtig und derart, dass alles auch verstanden werden kann. Du hast
+alles nicht nur sehr gut, ausführlich und weitumreichend erklärt, wie es mir nicht möglich gewesen wäre, sondern ich habe
+selbst aus allem noch einiges gelernt, was mir bis anhin unbekannt war. Mein Dank sei dir dafür.
+
+**Florena Dem schliesse ich mich an, und auch ich danke dir. – Du bist wie ein Wissensbücherlager.**
+
+**Bermunda** Eine Bibliothek.
+
+**Florena Ja, das ist der richtige Begriff.**
+
+**Bermunda** Lieber Freund – Eduard …, – es hätte mir bewusstwerden sollen, dass wenn ich dich um eine Erklärung
+bitte, dass du dann ausführlich erklärend darauf eingehst, folglich ich dann nichts weiter erklären muss. Also hast du auch
+das erklärt, was ich noch erklären wollte, dass Musik und Gesang disharmonischer Art und Weise, Misstöne, Missklänge,
+Missgesang und allgemein-gesamthaft diskrepante Töne, Klänge und Geräusche im Bewusstsein sowie in den Gedanken,
+Gefühlen und in der Psyche des Menschen chaotisierende Zustände verursachen, die sich unkontrollierbar und fanatisch
+auf die ganze Diskrepanz auswirken und eine innere Disharmonie erzeugen. Das Ganze wirkt sich schädigend auf die mangelhaft entwickelten Charaktereigenschaften des Menschen aus, wodurch Unfrieden, Lieblosigkeit, Hass, Vergeltungssucht
+und Rachsucht, wie auch Mitgefühlsarmut, Feindlichkeit und Unzufriedenheit sowie Harmonieerfassungsverlust usw. als
+zwangsläufige Folgen daraus hervorgehen.
+Das Ganze von Disharmonischem und dessen negativen Auswirkungen trifft nicht nur auf den Menschen zu, denn die ganze
+Diskrepanz disharmonischer Art und Weise von Misstönen, Missklängen und Missgesang, wie allseitig-gesamthaft diskrepante Töne, Klänge und Geräusche usw., wirken sich auch allgemein auf die Tiere, das Getier und auf alle Lebewesen aus.
+Und wenn diese von solchem dissonanten Lärm und Krawall direkt betroffen werden, verfallen sie folglich Formen des
+Fehlverhaltens und bösen Aggressionen, werden gar bösartig-ausartend, wie das eben der Fall ist bei jenen Menschen, die
+in ihrer Wegewerteevolution ungenügend vorangeschritten sind, wie das Gros der Erdenmenschheit, wie du ausgeführt
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+und erklärt hast. Das, was sich das Gros der Menschen, wie du erklärst, während der wichtigen Hauptpubertätsphase als
+nur halbwegewertige Charaktereigenschaften und Charakterverhaltensweisen usw. erarbeitet hat, was die Menschen jedoch nicht zu kontrollieren vermögen, das führt dazu, dass sie bei jedem negativ auf sie einwirkenden Einfluss sehr schnell
+in verschiedenen Arten und Weisen verbal ausfällig oder gewaltmässig ausartend werden.
+Wenn Musik und Gesang tiefgründiger definiert werden, dann stellen sie für das Bewusstsein eine grosse Herausforderung
+dar, denn die harmonischen Tonfolgen bauen nicht nur harmonische Wirkungen liebevoller, freiheitlicher, friedlicher, ausgleichender und rechtsschaffender Form auf, sondern sie können auch einen Trainingseffekt für die Gedächtnisleistung
+bewirken. Doch wie du sehr gut erklärt hast, führt jede dieserart durch Musik und Gesang erschaffene Harmonie bei Menschen – wenn diese mit einer nur Halbwegewertung ihrer Charaktereigenschaften und ihres Charakterverhaltens behaftet
+sind – einerseits sehr schnell zu einem Fanatismus, anderseits zu bösartigen Auswirkungen. Und dies ergibt sich sofort,
+wenn irgendwelche wirkliche oder scheinbare negative Ausseneinflüsse unkontrollierbar schnell die zustande gebrachte
+Harmonie stören, folglich dann alles entstandene Harmonische schlagartig zusammenbricht, wodurch Ausartungen, Bösartigkeit und Gewalt losbrechen und Unheil angerichtet wird.
+Dass Musik und Gesang melodisch-harmonischer Weise beruhigend, moralaufbauend und kreativ wirkt, das liegt unter
+anderem daran, dass aus der gesamten Fülle der Harmonie gleichzeitig viele Informationen zum Aufbau von Ethik und
+Moral dargeboten werden. Dabei ergeben sich ethische Voraussetzungen für das bewertende menschliche Gedanken-Gefühls-Psyche-Gefüge sowie für sachentsprechende Entscheidungen und Handlungen. Folglich wird dadurch auch das methodische Nachdenken in bezug auf die Moral gefördert, wodurch sich im Zentrum der Ethik das spezifisch moralische
+Denken, die moralisch korrekten Gefühle, Entscheidungen und das Handeln ergeben, insbesondere hinsichtlich seiner Begründbarkeit und Reflexion.
+Das Bewusstsein muss die verschiedenen Melodien und Tonhöhen erkennen und diese miteinander parallelisieren, jedoch
+muss es zugleich auch die zeitliche Abfolge der Töne erfassen, woraus sich auch Rhythmen und die Takte ergeben, wobei
+aber gleichzeitig auch die aufkommenden Töne zu Akkorden aufgegliedert werden müssen.
+Weiter ist auch die Schallquelle und deren Art von Bedeutung, wie jedoch auch deren Position, denn wenn Musik oder
+Gesang als direkte Darbietung gehört wird, sollten aufmerksame und interessierte Zuhörende wissen, ob und wo ein bestimmtes Musikinstrument gespielt wird und wo es im Raum steht. Dies alles ist beim wirklichen Zuhören von harmonischer
+Musik ebenso wichtig für das Bewusstsein, damit es die ganze Fülle von Harmonie, Tönen und Klängen durch Messungen
+und Vergleiche beurteilen und in ihrem Harmoniewert feststellen kann. Das entspricht einer Aufgabe des Bewusstseins, die
+erst getan werden muss – insbesondere bei Personen, die selbst musizieren –, um das Harmonieverständnis darauf auszurichten, wobei jedoch auch zu verstehen ist, dass dabei bestimmte Gehirnteile beansprucht werden, weil verschiedene
+dieser Aufgaben einerseits die rechte Gehirnhälfte zur Verarbeitung benötigen, während andere jedoch nur durch die linke
+Gehirnhälfte verarbeitet werden können. Dies ergibt sich jedoch bei Personen, die sich sehr streng mit Musik beschäftigen,
+oft gegenteilig, was …
+
+**Billy** Entschuldigung, was meinst du damit, <Personen, die sich sehr streng mit Musik beschäftigen>? Meinst du damit
+vielleicht Berufsmusiker, wie wir solche auf der Erde haben, und die eben damit ihren Lebensunterhalt verdienen? Wenn
+ja, dann die Frage: Habt auch ihr solcherart Musiker?
+
+**Bermunda** Ihr nennt diese Personen wohl so. – Ja, das ist der Sinn meiner Erklärung. Und ja, auch bei uns pflegen wir
+die Musik in dieser Weise und führen Studien der Musiklehre. Und dass ich dir alles zu deinem Verständnis erklären kann,
+das vermag ich zu tun, weil ich durch meine Musiklehre bezüglich der Grundlagen und Formen der Musik sowie der Kompositionslehre, wie auch der Takt- und Zeitmasse und der Notenschrift durch mein Studium ebenso bewandert bin, wie
+auch hinsichtlich der Tonbenennung, Rhythmik, der Tonarten und Tonstufen usw.
+
+**Billy** Da kann ich leider nicht mitreden, denn alles war für mich ein Greuel in bezug auf das Malen und Lesen von Musiknoten. Auch hinsichtlich Bruchrechnungen weigerte ich mich, diesen Quatsch zu erlernen, denn für mich kommt dieser
+Unsinn einem Terror gleich, weil das wohl nur Mathematiker und vielleicht irgendwelche Techniker bei Entwicklungen
+brauchen, während das Ganze für den Normalbürger jedoch einem Schwachsinn entspricht. Aber störe dich nicht daran,
+sondern sprich weiter davon, was du begonnen hast zu erklären.
+
+**Bermunda** … Nebst meiner Kundigkeit hinsichtlich der Harmonik und Harmonielehre bin ich auch kundig in bezug auf
+die Genese, Genealogie, Vererbungslehre resp. Genetik resp. der Erbbiologie. Also bin ich auch bewandert in der Wissenschaft der Gesetzmässigkeiten der Vererbung von Merkmalen, wie auch bezüglich der grundlegenden Phänomene der Vererbung im Bereich der Moleküle, wie auch der Herkunft aller grundlegenden Faktoren usw. Wenn du in dieser Richtung
+Fragen hast, dann kann ich sie dir also beantworten, wie ich nun auch in der Lage bin, dir noch weiter folgendes zu erklären:
+Bei Personen – was ich bereits vorhin angesprochen hatte –, die sich sehr streng mit Musik beschäftigen, ergibt es sich mit
+den linken und rechten Gehirnhälften oft gegenteilig zu Personen, die sich selbst nur wenig mit Musik beschäftigen oder
+die nur Zuhörende sind. Die Begründung dafür verstehe ich zwar, jedoch bin ich diesbezüglich nicht fachlich, sondern nur
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+allgemein gebildet, folglich ich dazu nur wenig erklären kann, nämlich wie sich dieses Phänomen ergibt. Dasselbe Faktum
+ergibt sich auch bei Armen und Händen als links- oder rechtslastig, wobei sich auch die Links- und Rechtslastigkeit der
+Gehirnteile als Ganzes während der Zeitspanne der pränatalen Phase im Mutterleib beim Fötus heranbildet, wobei bestimmte biologische Faktoren bedeutsam sind, wie genetische Einflüsse durch Chromosomen. In dieser pränatalen Phase
+wirken jedoch auch viele Eigenschaften der Mutter auf den Fötus, die sich auch auf ihn derart übertragen, dass sie ihn stark
+formen und ihm in der Entwicklung zum eigentlichen körperlichen Menschwerden bis zur und nach der Geburt eigen bleiben und ihm lebenszeitig verbleiben. Diese Einwirkungen auf den Fötus – die von der Mutter bereits schon früh auf ihre
+Leibesfrucht übertragen und von dieser aufgenommen und festgesetzt werden und also einen grossen Einfluss auf ihn
+ausüben – ergeben sich gleichermassen in bezug auf das allgemeine physische Wohlergehen sowie hinsichtlich der bereits
+sehr früh beginnenden pränatalen mentalen Verfassungsentwicklung, die nach der Geburt in bewusster sowie unbewusster
+Weise evolutiv durch die Erarbeitung in der pubertären Hauptphase sich höher als Charakterbildung und Charakterverhalten formt, wie auch du dies schon öfters bei unseren Gesprächen angeführt und erklärt hast. Diese Entwicklung beginnt
+bereits kurz vor der 3. Woche der Schwangerschaft, wobei sich auch bereits bis ca. zur 8. Woche der weiteren Entwicklung
+nahezu vollständig auch das Gehirn, Rückenmark und das Neuralsystem anlegen und bilden werden, was sich dann weiter
+fortsetzt, bis sich das Gehirn vollständig ausgeprägt hat, was sich bei der Gattung Mensch in der Regel im Alter von 28
+Jahren ergibt.
+
+**Billy** Meinst du damit Erdenjahre?
+
+**Bermunda** Ja, natürlich, und diese sind gleichermassen zu berechnen, wie unsere Zeit, denn auch bei uns …
+
+**Billy** Weiss ich, ja, denn auch bei euch ist ein Jahr praktisch ein Jahr wie bei uns.
+
+**Bermunda** Das ist so.
+
+**Billy** Eben, doch unsere Oberintelligenten, die sich mit dem Gehirn des Menschen beschäftigen, wollen – seit dem Aufkommen ihrer Wissenschaften vor noch nicht allzulanger Zeit – mehr wissen und gelernt sowie erkannt haben in bezug auf
+die Endentwicklung des Gehirns, als ihr Plejaren, die ihr euch schon seit mehreren Jahrzigtausenden intensiv damit beschäftigt und viele Erkenntnisse mehr gewonnen habt, als unsere grossspurigen Erdlingswissenschaftler. Diese behaupten ja
+infolge ihres ungeheuren und grenzenlosen Intelligentums und in ihren Vermutungen, dass ihr Wissen – wie sie meinen –
+die Wirklichkeit des Schöpferischen überschreite und sie folglich ihre <Weisheit> mit Schaufelbaggern gefuttert hätten.
+Daher behaupten sie ja auch, dass das Gehirn des Menschen bereits im Alter von 18 oder spätestens mit 22 Jahren voll
+entwickelt und folglich er auch erwachsen sei. Dem entgegen lernte ich bereits bei Sfath bei seinem Psychologieunterricht,
+dass einerseits das menschliche Gehirn im Normalfall – und zudem bei völlig gesunder sowie konstruktiver Erschaffung des
+Gehirnorganismus und dessen Funktion – das Ganze beim Menschen erst im Lebensalter von 28 Jahren voll entwickelt sei.
+Anderseits – und das ist eigentlich der springende Punkt – bedeutet die volle Entwicklung des Gehirns und des gesamten
+Körperorganismus in keiner Weise, dass damit auch der innere Gehirnausbau voll normal entwickelt sein muss. Explizit der
+Gehirn-Innenzustand entspricht nämlich dem Faktor, der über das Normal und Anormal bestimmt, und damit auch darüber,
+ob der Mensch erwachsen ist oder nicht. Also bedeutet eine Vollentwicklung des Gehirns keinerweise auch ein Erwachsensein, sondern nur den naturgemässen Aufbau der äusseren und inneren Gehirnkonstruktion.
+Das Erwachensein des Menschen entspricht in keiner Weise der vollen Entwicklung des Gehirns, sondern einem völlig anderen Entwicklungsfaktor und Wert, was nämlich grundsätzlich und bestimmend in der Erarbeitung und Entfaltung des
+Intellektums, wie auch von Verstand und Vernunft fundiert. In bestimmten Weisen sind darin auch die Entfaltung der Charaktereigenschaften, wie auch das Charakterverhalten und das allgemeine Lebensverhalten und Lebenswirken usw. eingeordnet. All das ist jedoch, nebst vielem anderen, im Mittelprozess der Pubertätsphase erst zu erlernen und zu erarbeiten,
+danach erlernend praktisch durch die Lebensführung umzusetzen und also zu leben, wodurch sich daraus der Wert der
+Erfahrung und das Lebensverhalten ergibt. Das Ganze, das dieserart aus dem Pubertätslernen hervorgeht, bestimmt den
+Grad und Wert des Erwachsenseins, was bedeutet, dass dieses nicht einfach ein Erwachsensein ist, sondern je nach Art
+aller erarbeiteten Faktoren und deren Werten den Grad des Erwachsenseins bestimmt. Je höher oder niedriger die Entwicklung von Intellektum, Verstand und Vernunft sowie von Charaktereigenschaften, Charakterverhalten und allgemeinem
+Lebensverhalten ausgebildet sind und umgesetzt werden, demgemäss ist auch der Grad und Zustand des Erwachsenseins
+zu bestimmen, wobei dieses aber nicht mit dem Menschseinwert und dem Persönlichkeitswert in einen Vergleich gezogen
+werden kann, weil diese einer völlig anderen Natur sind.
+Nun, das Ganze aller genannten Entwicklungen ergibt sich erst durch das Gehirn und dessen Funktion sowie dessen Wert
+sowie der Arbeit zahlloser Nervenzellen, aus denen das Innere des Gehirns besteht. Diese finden sich aus dem gesamten
+Körperorganismus über Nervenfasern resp. dünnste Nervenstränge resp. energetisch wirkende Reizleitungen im gesamten
+Inneren des Gehirns zusammen, und zwar als filigrane Nervenfaserstränge, die aus dem Inneren des Gehirns auch wieder
+über die Nervenfaserstränge wegführen, die mit allen notwendigen Körperorganen verbunden sind, diese beeinflussen und
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+steuern. Grundsätzlich ist nämlich das Gehirn die Zentrale des gesamten Nervensystems, wodurch auch sämtliche lebenswichtigen körperorganischen Funktionen gesteuert werden, und zwar in besonderer Art und Weise durch den ungemein
+wichtigen Bewusstseinsblock des Menschen. Durch diesen Block werden nämlich das Positive und Negative – auch Gut und
+Böse genannt –, das Intelligentum, der Verstand und die Vernunft, wie auch alle erdenklich möglichen weiteren Faktoren
+ermöglicht, gebildet und gesteuert, wie das Gedanken- und Sprachvermögen, so aber auch die Entscheidungsfähigkeit, das
+Handlungsvermögen und die Koordination vieler verschiedener Bewegungen. Dazu gehören aber auch das Wahrnehmungsvermögen und die gesamten Sinneseindrücke und die Fähigkeit des Reagierens usw. usf.
+Zu sagen ist nun eigentlich nur noch, dass die Individualentwicklung des Menschen dessen eigenes Drum und Dran ist, was
+bedeutet, dass er gesamthaft sich selbst bewusst darum bemühen muss, alles selbst in sich aufzubauen und zu entwickeln.
+Das hat in erster und wichtigster Linie in der 6jährigen mittleren Pubertätsphase zu erfolgen, während der das gesamte
+Lebensbestimmende zu erarbeiten und zu entwickeln ist. Diese Phase der Entwicklung – wie auch die späteren Phasen
+danach, die durch das Leben hindurch immer wieder ein weiteres Lernen fordern – durchläuft jeder Mensch, und zwar egal,
+ob hier auf dieser Welt als Erdling, auf Erra als Plejare oder sonstwo auf anderen Welten.
+Das Ganze der menschlichen Bewusstseinsentwicklung beginnt jedoch nicht erst in der Pubertät, sondern bereits nach dem
+Zeugungsakt mit der befruchteten Eizelle, hält während des ganzen Lebens an und endet erst dann, wenn der Mensch
+durch den Tod sein Leben wieder beendet. Dadurch ist gesamthaft alles mit einem lebenslangen Wandel verbunden, mit
+einem Ausbilden, Wachstum und Werdenlassen körperlicher und bewusstseinsmässiger Fähigkeiten und natürlich deren
+Entfaltung. Dazu gehören aber auch das sich alterungsmässig ergebende Abbauen und Wiederabnehmen aller erarbeiteten
+Fähigkeiten, Energien und Kräfte, wie auch das Leistungsvermögen zum Erhalt alles Erarbeiteten im persönlichen Interesse
+und in der ureigenen Initiative liegt. Das bedeutet, dass nicht nur während des Lebensverlaufs alles an Fähigkeiten jeder
+Façon selbst zu erlernen, zu erarbeiten, umzusetzen und zu erhalten sind, und zwar bis ins Alter. Zu all diesen Fähigkeiten
+gehören auch alle Körperbewegungen, wozu auch das Gehen und Laufen gehören, was ja zur Fortbewegung dient, wobei
+sich Laufen und Gehen darin unterscheiden – was wohl wichtig ist, dass es auch einmal erklärt wird –, dass beim Gehen mit
+den Füssen immer ein Bodenkontakt zustande kommt, während beim Laufen kein ganzer, sondern nur ein Teil des Fusses
+den Boden berührt.
+Was nun jedoch das persönliche Interesse und den Willen des Menschen bezüglich seines zu kontrollierenden Durchhaltevermögens betrifft, so ist er selbst dafür verantwortlich und hat die dazu notwendigen Energien und Kräfte selbst dafür zu
+generieren. Alle Vorgänge jeglicher Art und aller vielfältigen Formen entsprechen in den Zellen und gesamthaft in allen
+Körperorganen unaufhaltsamen Veränderungen, denn allesamt unterliegen sie einem dem Leben – je gemäss der Gattung
+oder Art – vorgegebenen inneren Lebensprogramm. Das Ganze ist jeder Lebensform eigen und unaufhaltbar, und zwar je
+– wie bereits gesagt – individuell geformt nach dessen Gattung und Art, und zwar derart, dass es nicht rückgängig gemacht
+werden kann.
+
+**Bermunda Du erstaunst mich aber trotz allem immer wieder aufs neue, denn offensichtlich hast du bei Sfath sehr viel mehr**
+gelernt – aber es wäre wohl müssig darüber zu reden –, als du freigibst zu sprechen darüber. Nun, das Encephalon resp.
+das Gehirn – nein, ich muss es anders formulieren: Der Hirnstamm ist es, der vom Gehirn Informationen zum Kleinhirn und
+dem Rückenmark umleitet, wodurch auch die Bewegungen der Augen und weiter auch die Mimik kontrolliert werden. Der
+Hirnstamm reguliert zudem auch die lebenswichtigen Funktionen der Atmung und des Blutdrucks, insbesondere jedoch
+den Herzschlag als wichtigsten Faktor. Dies, während das Kleinhirn die Bewegungen koordiniert und ausserdem für das
+Gleichgewicht verantwortlich ist.
+
+**Billy** Interessant – kannst du noch einiges weiter zum Ganzen sagen und erklären, denn es würde mich interessieren –,
+vielleicht kannst du kurz etwas in irdisch-medizinischem Verständnis darüber sagen, was die Ursache von Geburtsnachteilen resp. Geburtsschäden ist? Auch wäre einmal die Wichtigkeit zu erklären, dass in bezug auf das analytische Denken die
+linke Gehirnhälfte zuständig ist, während die rechte Gehirnhälfte für die Vernetzung des Denkens zuständig ist und alles
+reguliert, zudem jedoch auch die Emotionen steuert usw.
+
+**Bermunda** Was du bezüglich Geburtsnachteilen weisst, das muss ich dir nicht weiter ausführen, denn wie du gelernt
+hast, entspricht jeglicher Geburtsschaden einer sich vorgeburtlich ergebenen organischen Missformung resp. Fehlgestaltung eines oder mehrerer Organe, was als Fehlbildungssyndrom bezeichnet wird. Du hast dich diesbezüglich bereits bei
+Sfath darum bemüht, einiges darüber zu lernen, weil deine Schwester Verena von einem solchen Syndrom betroffen war,
+wie das nun leider auch bei deiner Tochter Selina Mercedes der Fall ist, weshalb du dich auch neuerlich immer wieder mit
+diesen Faktoren befasst, wie ich weiss.
+Was nun jedoch die Arbeitsformen und Arbeitsweisen der linken und rechten Gehirnteile betrifft, so will ich diesbezüglich
+keinerlei besondere Ausführung in Betracht ziehen, sondern nur auf mein begonnenes Thema zurückkommen, nämlich auf
+die Musik.
+Wenn ich so sagen darf, dann unterscheiden sich Musikergehirne von den Gehirnen nicht musizierender Menschen. Bei
+Personen mit Musikgehirnaktivitäten sind deren Bereiche stark analysierend ausgebildet und führen zu besonderen Verbin
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+dungen der Hände und dem Hören. Bei Musikergehirnen sind die Bereiche, welche die Aktivitäten der Hände mit denen
+des Hörens und Analysierens verknüpfen, besonders stark ausgebildet. Dadurch ergeben sich einerseits diverse Aktivitäten
+beim Musikspielen, die bleibende Veränderungen beim Musikhören erschaffen, wobei zwischen den Nervenzellen durch
+Musik auch Neuverschaltungen entstehen, die sich gesamthaft im Musikergehirn einlagern und erhalten bleiben.
+Für ein Musikergehirn ist Musik trotz Musikharmoniefähigkeit eine grosse Herausforderung, doch wirkt sich das Ganze auf
+die Musik- und Harmoniegedächtnisleistung aus, und zwar in einer stetig trainierenden Art und Weise, folglich es sich weiterbildet und nicht mehr vergeht. Zustande kommt dies, weil sich Musik in ihrer Fülle aus reinen musikalischen Informationen ergibt, die das Musikgehirn als Tonhöhen und Melodien erkennt und diese miteinander vergleicht und ordnet.
+Zudem vermag das Musikgehirn gleichzeitig auch aufkommende Töne und Akkorde zu klassifizieren, wobei durch eine Fülle
+von Messungen und Vergleichen auch die Position und die Art und der Standort der Schallquelle im Musikraum eruiert
+wird. Auch die zeitliche Abfolge der Töne wird erfasst und ebenfalls geordnet, wodurch auch die Takte und Rhythmen
+folgerichtig gegliedert werden. Das Musikgehirn hat natürlich zuallererst die wichtige Aufgabe des Teilens der linken und
+der rechten Gehirnhälfte, wobei passionierte Musikerpersonen diese Aufteilung oft explizit anders herum aufweisen, als
+Nichtmusizierende, wie sich Musikgehirne auch anderweitig von Gehirnen musikalischer Menschen unterscheiden.
+Durch die Aktivitäten beim Musizieren und beim Musikhören verändert sich das Gehirn, und zwar in einer Weise, die dauerhaft bleibend ist. Dadurch ergibt es sich völlig natürlich, dass jegliche Neuverschaltungen, die durch Musik im Gehirn und
+ebenso durch die Nervenzellen entstehen, dem Menschen lebenslang erhalten bleiben.
+Weiter ergibt sich durch harmonische Musik, dass sich der Herzschlag, der Blutdruck, die Atemfrequenz und die Muskelspannung des Menschen in positiver Weise verändern, wie auch der Hormonhaushalt beeinflusst wird und die Klänge vor
+allem auch positiv auf die Nebenniere und Hypophyse einwirken. Je nach Art harmonischer Musik werden zudem auch
+verschiedene Hormone abgegeben, wie Adrenalin bei schneller und aggressiver Musik, während bei sanften und ruhigen
+Klängen Noradrenalin ausgeschüttet wird, wodurch z.B. eine Verringerung von Stresshormonen erfolgt, was auch dazu
+führt, dass die Betaendorphine im Körper sich stark erhöhen, die schmerzkontrollierend wirken. Klassische und andere
+harmonische Musikformen vermögen also effectiv Schmerzen zu lindern, folgedem jede gute Harmonie auch musik-medizin-therapeutisch genutzt werden kann. Und dies trifft insbesondere hinsichtlich wirksamer Schmerzbehandlungen zu, wie
+jedoch auch erfolgreich in bezug auf psychologische und psychische Probleme, wie jedoch auch auf jegliche harmonische
+Beziehungs-Umgangsform von Mensch zu Mensch, wie du weisst und worum du dich immer bemühst, wie ich weiss.
+Für den melodisch bedachten Menschen ist harmonische Musik oder eigenes Musizieren sehr erholsam, friedenfördernd,
+moralausgleichend, beruhigend und liebefördernd, wie jedoch auch rehabilitierend in bezug auf geriatrische resp. altersmedizinische Probleme hinsichtlich körperlicher sowie sozialer und bewusstseinsbedingter Aspekte und der Versorgung
+akuter und chronischer Krankheiten, insbesondere in der Frührehabilitation und Prävention alter Personen. Har…
+
+**Billy** Entschuldigung, wenn ich dich unterbreche. Wenn ich richtig verstehe, dann bedeutet deine Erklärung mit anderen
+Worten, dass du damit eine besondere musikmedizinische Spezialdisziplin für ältere Menschen meinst. Und wenn ich auch
+deine weitere Ausführung richtig verstehe, dann richtet sich das Ganze von harmonischen Musikwirkungen auf körperliche,
+soziale und bewusstseinsmässige Aspekte aus, und zwar derweise, dass sich alles als Vorsorge und Versorgung für eine
+frühe Rehabilitation und Prävention in bezug auf akute und chronisch gegebene oder evtl. aufkommende Krankheiten auswirkt – eben ausgerichtet auf in höherem Alter stehende Menschen.
+
+**Bermunda** Ja, das ist richtig, und es ist erstaunlich, wie präzise und besser du es erklärst, als ich es ausgeführt habe
+– aber mich wundert es nicht. Was nun jedoch noch zu erklären ist, das ist folgendes: Harmonische Musik wirkt auf das
+Bewusstsein des Menschen wie ein Jungbrunnen, und zwar als wohlgebildete und gesunde Schwingungen, die liebewirkend
+sowie friedenfördernd, ausgleichend und beschwingend auf das Bewusstsein und die Bioresonanz einwirken, wobei neue
+Nervenverschaltungen gebildet werden. Dies also in positiver Art und Weise, während schlechtgebildete, disharmonische
+Geräusche einem wechselhaften, uneinheitlichen Gemisch von knallenden Schwingungen entsprechen, die als Lieblosigkeit, Friedlosigkeit und Ausgleichstörung tief untergründig die Psyche belasten und demolieren, was jedoch von den Menschen nicht wahrgenommen wird. Dies darum, weil sie solcherart Geräusche infolge ihrer pathologisch bewusstseinsbedingten und psychisch beschränkten sowie sehr deformierten, selbstsüchtigen, öden und äusserst übermässig abnormen
+Disharmonieperzeption jegliche effective Harmonie nicht als solche zu erfassen vermögen.
+Jeglicher Form einer Disharmonieperzeption verfallene Menschen fehlt das Vermögen der sinnlichen Wahrnehmung effectiver Harmonie in jeder Beziehung, also nicht nur in bezug auf Musik, sondern allgemein in jeglicher Hinsicht. Folgedem
+gehen sie in ihrem Dasein mit Disharmoniegeräuschen einher, die sie sich krankhaft als Harmonie einbilden, dadurch in
+pathologisch-falsche Begeisterung, Scheinfreude und Hingerissenheit verfallen, ohne ein bewusstes Erfassenkönnen, Identifizierenkönnen, Verstehenkönnen und ohne ein Wahrnehmenkönnen dessen, dass sie sich nicht an effectiver Musikharmonie erfreuen, sondern sich selbstbetrügend einer Scheinfreude und Scheinbegeisterung an disharmonischen und die
+Psyche sowie das Bewusstsein schädigenden Geräuschen ergötzen.
+Gemäss unseren Forschungen ergaben sich seit Mitte der 1970er Jahre, jedoch ganz speziell ab Mitte der 1980er Jahre auf
+der Erde derart krasse <musikalische> Disharmonien, denen grossteils junge und mittelalterliche Menschen verfallen sind
+und sich bis heute erhalten und ausbreiten konnten. Und wie unsere Forschungen erweisen, ergibt sich das auch noch
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+längere Zeit in die Zukunft, folglich diese schadenbringenden und moralzerstörenden Geräusche disharmonisierend immer
+mehr und gefährlicher auf das Gros der irdischen Menschheit übergreifen. Dies jedoch führt schon seit geraumer Zeit zur
+Unzufriedenheit in verschiedenen Bevölkerungsschichten, wie auch zu Unfrieden und Anarchiegehabe, was sich bereits
+unverkennbar ausbreitet und sich ebenso zerstörend auf die Ethik und Moral der Menschen auswirkt, wie das falsche <Friedenssymbol>, die Todesrune, wie ja du diese Tatsache bereits seit Jahren bekanntzumachen versuchst, was je…
+
+**Billy** …doch infolge der Massendummheit der Erdlinge nicht begriffen werden will, folglich dieses Unheilsymbol ebenso
+wie die religiöse und sektiererische Gotteswahngläubigkeit der Erdlingsheit weiterhin bösen Schaden, Unfrieden, Ungerechtigkeit, Hass, Lieblosigkeit, Disharmonie, Mord und Totschlag, Terror, Krieg, Streit, Unfreiheit sowie Zerstörung und
+Vernichtung über die Menschheit, die Erde, deren Ökosysteme, die Natur und deren Fauna und Flora, die Atmosphäre und
+das Klima bringt.
+
+**Bermunda** Etwas im ähnlichen Sinn wollte ich sagen, wie jedoch weiterführend auch, dass die völlig disharmonische
+Geräuschbelastung tieffrequente Schallimmissionen freisetzt, insbesondere durch Infraschall resp. Frequenzen, die unterhalb der menschlichen Hörgrenze liegen. Diese Frequenzen belasten gesamthaft das menschliche Gehirn und damit
+zwangsläufig schädigend auch das Bewusstsein, folgedem Intelligentum, Verstand und Vernunft in ihrer Funktion beeinträchtigt und behindert werden.
+
+**Billy** Ja, stimmt, das hat mir schon Sfath eingehend erklärt und mich dazu belehrt, dass der Mensch tagtäglich durch
+tieffrequente Schallimmissionen belastet wird, wobei vielerlei Faktoren verheerende Rollen spielen und den Menschen
+belasten. Die diesbezüglich übelsten Formen ergeben sich dabei aus Bewusstseinsbelastungen, die aus religiöser und sektiererischer Gläubigkeit der Menschen entstehen, und zwar einerseits durch ein bewusstes oder unbewusstes Wahrnehmen, Sehen, Betrachten, Hören, Erfühlen oder Erahnen irgendwelcher religiöser Dinge, Zeichen, Schmuckstücke, Bücher,
+Gebäulichkeiten oder Geräusche – wie Kirchenglockengeräusch, Musik, Gebete, Reden und Predigten usw. usf. All diese
+Faktoren, und noch viele andere dazu, führen beim Menschen zum unbewussten Ausschalten von Intellektum, Verstand
+und Vernunft und damit auch des klaren Denkvermögens, was zum Aufbau und Durchbrechen einer Gläubigkeit führt, die
+auch das Kontrollvermögen zum Erliegen bringt und dieses durch vielartige und unkontrollierbare Emotionen negativer,
+bösartiger sowie positiver, gutartiger Formen ersetzt. Dadurch erfolgen Gedanken-Gefühls-Psyche-Erregungen, die unkontrollierbar von Liebeüberwallung, Zuneigung, Harmonie, Verbundenheit und Frieden usw., jedoch bis hin zu Streit, Unfrieden, Hader, Disharmonie, Hass, Gewalttätigkeit, Verleumdung, Krieg, Terror und Mord sowie sonst zu allem Bösen, Niederträchtigen und Ausgearteten sich ausdehnen.
+
+**Bermunda** Wie explizit du in allen Dingen alles derart zu erklären vermagst, dass alles klar ausgelegt wird und ebenso
+auch zu verstehen ist, das erstaunt mich immer wieder und ich wünschte, dass auch mir das eigen wäre, was mir aber wohl
+versagt bleiben wird. Doch was ich nicht umhinkomme zu erklären, das ist die Tatsache, dass die irdischen wissenschaftlichen Fachkräfte noch keinerlei Ahnung oder vielleicht nur erste vage Vermutungen von all dem haben, wovon wir sprechen
+und was du soeben erklärt hast. Also ist es ihnen auch nicht gegeben zu verstehen und zu wissen, dass die von dir erklärten
+Faktoren tatsächlich vorgegeben und von enormer und grundlegender Wichtigkeit für die Charakterbildung, die Gesinnung
+sowie für die ethisch-moralischen Verhaltenweisen und das Handeln sind. Auch ist zu beachten, dass in der gesamten irdischen Technik jeglicher Art noch keinerlei Instrumentarien und Apparaturen usw. existieren – was noch lange Zeit so bleiben wird –, mit denen diese untergründig im menschlichen Bewusstsein wirkenden und vielerlei Beschwerden verursachenden tieffrequenten Geräusche wahrgenommen und registriert werden könnten.
+In der Regel werden die tiefgründenden Geräusche zudem von weiteren für die menschlichen Sinne unwahrnehmbaren
+tieffrequenten Sekundärschallschwingungen aus verschiedensten Geräuschen begleitet, die schädliche Wirkungen auf das
+Bewusstsein des Menschen auszuüben vermögen, die er infolge seines Unwissens und seiner Wahrnehmungsunfähigkeit
+sowie seiner fehlenden Selbstkontrolle nicht zu beherrschen vermag, demzufolge er sich bis hin zur Ausartung verhält.
+
+**Billy** Exakt, und diese Ausartungen entsprechen einem schlechten Benehmen und unschönen Betragen, schlechten und
+üblen Angewohnheiten, Bösartigkeiten, Beschimpfungen, Falschheiten sowie Lügerei, Betrug und Verleumdung. Nebst all
+diesen Auswüchsen sind jedoch auch Unsitten, weitere unerfreuliche Ungezogenheiten und Impertinenzen als bleibende
+Folgen anhängig, wie Hass, Streitsucht, Schändlichkeit, Schwächen, Gewalttätigkeit, bösartige Charakterauswüchse vielfältiger Art, wie auch Laster, Frechheit, Unfug, Untugenden und Unsitten. Weiter zu nennen sind auch Unmanier, Ungezogenheit, schändliche Unarten, Rüpelei, Angriffigkeit, religiös-sektiererischer Gotteswahnglaube, Gottglaubenswahnsinn und
+dessen Ausartungen, politischer Wahn, Machtsucht, Diktatur, Despotie, Kriminalität und Verbrechen, letztlich auch Mord
+und Totschlag, Folter, Vergewaltigung, Pädophilie, Sklaverei, Prostitution, Genozid, Völkerhass, Glaubensverfolgung, Krieg
+und Terror usw.
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Bermunda** Die Geräuschbelastungen, die aus tieffrequenten Schallemissionen hervorgehen, und zwar insbesondere
+durch Infraschall, verursachen beim Gros der Erdenmenschheit – wie wir durch unsere diesbezüglich langzeitigen sowie
+sehr umfangreichen Forschungen feststellen – zunehmend immer häufiger weitumfassende Schäden in bezug auf alle erdenklich möglichen falschen Verhaltensweisen, derbezüglich die Menschen stetig mehr vielartigen menschenunwürdigen
+Ausartungen verfallen, wodurch auch ihre anarchistischen Unwerte ebenso zunehmen, wie stetig neue unsinnige, willkürliche, unbedacht-dumme staatliche räsonierende Gesetze, Bestimmungen und Verordnungen, die insbesondere durch
+machtbesessene und zudem glaubensreligiös Befangene in Staatsführungspositionen wirkende Machtwahnbesessene aufgebracht und zur Freiheitseinschränkung, strikten Kontrolle und Züchtigung der Bevölkerungen erdacht und erlassen werden. Und diese Staatsführungsmachenschaften nehmen unseren Beobachtungen und Feststellungen gemäss immer mehr
+überhand und an Bedeutung zur Volksunterdrückung zu. Und dies alles ergibt sich durch staatsführungsunfähige Staatsmachtinhabende, die in der Regel infolge deren Lügenversprechen und Vorspiegelungen falscher Interessen usw. von den
+dadurch betrügerisch überzeugten, unbedarften, Politikwissen sowie in bezug auf eine Menschenkenntnis, Charakterbeurteilung sowie Ethik und Moral usw. ungebildeten Bevölkerungen gewählt und in Staatspositionen geordert werden, denen
+sie weder würdig noch fähig sind, sie innezuhaben und des Rechtens zu bewältigen. Diese Volksgewählten oder sich selbstherrlich durch Lug, Betrug oder Gewalt selbst in solche Positionen gehobenen machtbesessenen Scheinführungskräfte sind
+es zudem, die bevölkerungsfeindlich mit stetig neuen Gesetzen, Bestimmungen, Dekreten und Verordnungen usw. alles
+daransetzen, die Bevölkerungen zu drangsalieren und zudem diese mit neuen Steuerabgaben auszubeuten. Dies, um sich
+selbst höher zu entlohnen, wie aber auch ohne Bevölkerungseinwilligung selbstherrlich, unsinnig und vernunftwidrig Unmassen von finanziellen Mitteln zu verschleudern, wie du diesen Ausdruck einmal benutzt hast.
+
+**Billy** Du weichst vom Thema ab, Bermunda, doch du hast zweifelsohne recht, denn auch ich habe gleiche Kenntnisse
+gewonnen. Dass ihr euch jedoch ebenfalls mit diesen Dingen in deiner genannten Weise beschäftigt, das wusste ich bisher
+allerdings nicht. Und dass das tatsächlich so ist, wie du sagst, das ist effectiv unbestreitbar, wozu ich aber denke, dass wir
+die diesbezüglichen miesen Politikmachenschaften der machtbesessenen Regierenden usw. ausseracht lassen und nicht
+darüber reden sollten, denn das soll nicht unser Ding sein. Politik sollen jene Leute betreiben, die in ihrer Dummheit sowieso
+alles besser wissen wollen als jene anderen, welche ausserhalb jeder Machtgier und Dummheit alles ruhig, vernünftig und
+sachgerecht erkennen, bedenken und beurteilen können, die aber weder nach ihrer Meinung noch nach einer Ratgebung
+gefragt werden, folglich das idiotische politische und regierungsamtliche Theater endlos weitergeht. Also sollten wir bei
+unserem Thema bleiben und vielleicht für jene Menschen erklären, die nicht wissen, was es mit Infraschall auf sich hat,
+dass es sich dabei um Luftschallwellen handelt, die unterhalb des menschlichen Hörbereiches anzuordnen sind und also
+durch die Ohren nicht wahrgenommen werden können, jedoch unbewusst durch das Bewusstsein und folglich auch unbewusst, untergründig und in verschiedenen Formen, Arten und Weisen auf dieses positiv oder negativ einwirken. Und diese
+Einwirkungen werden vom Menschen nicht kontrolliert, folgedem er auch nichts dagegen unternimmt, wenn sie ihn untergründig charakterlich fehlformen und er dadurch auch in bezug auf sein Intellektum, seinen Verstand und seine Vernunft
+sowie in bezug auf seine Verhaltensweisen und seine Wahrnehmung der effectiven Wirklichkeit und deren Wahrheit beeinträchtigt wird. Das ist auch einer der diversen Gründe, weshalb er weltfremd oder eben wirklichkeitsfremd zum Gläubigen wird – in der Regel dann eben insbesondere religiös-sektiererisch als Gotteswahngläubiger.
+
+**Bermunda** Nochmals – es ist so erstaunlich für mich, wie du alles, wovon du auch immer sprichst, so einfach und
+präzise zu erklären vermagst –, nahezu beschämt es mich. Jetzt sollte ich aber dazu noch Stellung nehmen, was du bezüglich
+der disharmonischen Geräusche gesagt hast, die als Musik und Gesang bezeichnet und von vielen Anhängern frenetisch
+bejubelt werden, obwohl von harmonischen Tönen und Klängen sowie von wirklichem Gesang keine Rede sein kann, sondern nur von schrecklicher Disharmonie und …
+
+**Billy** Die einem durch Mark und Bein fährt und nichts anderem entspricht, als einem demoralisierenden Gejaule, Geheul
+und Gebrüll, Geraschel, Knallen, Krachen, Rauschen, Knistern, Heulen, Platschen, Knirschen, Radau, Klamauk, Schallchaos,
+Tumult, Höllenlärm, Gekreische, Geschrei und Spektakel sowie allem, was jede Freude, jeden Frieden, jede Ausgeglichenheit und Harmonie bereits im Keim erstickt. Das Ganze dieser katastrophalen Disharmoniegeräusche, die fälschlich als moderne Musik bezeichnet werden, wie auch das Disharmoniegejaule, das als moderner Gesang gilt und hauptsächlich zahllose Jugendliche und Mittelalterliche begeistert und ausflippen lässt, das, so schätze ich alles ein, zeigt auf, wie
+bewusstseinsmässig und psychisch demoliert diese Menschen sind. Der ganze disharmonische Krach, den sie in ihrem Geräuschwahn als Musik und Gesang zu verstehen glauben, lässt sie in ihrem Charakter – auch im Zusammenhang mit ihrem
+Gotteswahnglauben – ebenso verkümmern, wie in ihrer Würde, Ehre, Ethik und Moral. Demzufolge rasten sie bei jeder
+passenden und unpassenden Gelegenheit plötzlich bösartig aus, werden beschimpfend, ausfällig, gemein und gewalttätig,
+wobei in ihnen Rache, Vergeltung, Streit und Hass losbrechen, wie ebenso plötzlich bei jeder passenden und unpassenden
+Gelegenheit aus ihnen auch Lug, Betrug und Verleumdung losbrechen, wobei bedenkenlos auch Mord und Totschlag sowie
+Krieg und Terror zu ihrem ganzen Metier gehören.
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Bermunda** Du nennst alles beim Namen derart, wie es wirklich ist. Doch diese Menschen – die all den genannten
+ausgearteten Geräuschen nachhängen, die sie fälschlich als Musik und Gesang wähnen, diesen frönen und deren ganze
+Disharmonien fälschlich als Harmonie einschätzen sowie in den Weisen ausarten, wie du gerade erklärt hast – sind schwerwiegenden Psychestörungen verfallen. Daraus ergeben sich in ihnen auch schwere Störungen der Charakterbildung, die
+sich letztendlich als ausartende und gewalttätige Charaktereigenschaftenformen auswirken, die nicht kontrolliert werden
+können und folglich zu bösem Unheil führen. In letztendlicher Folge ergeben sich daraus im Lauf der Zeit diese und jene
+Störungen bei den Lebensvorgängen in Organen oder im gesamten Körperorganismus, und zwar mit Folgen subjektiv empfundener und/oder objektiv feststellbarer körperlichen oder das Bewusstsein und damit auch die Gedanken, Gefühle und
+die Psyche beeinträchtigenden Veränderungen, woraus nicht nur ein wirklichkeitsfremdes Lebensverhalten, sondern letztendlich auch ein Suizid erfolgen kann.
+Was nun noch zu alldem zu erklären ist, wovon ich hinsichtlich der Musik gesprochen habe, das bezieht sich darauf, dass es
+sich bei harmonischen Tönen und Klängen usw. um effective Formen der Harmonik handelt, und zwar gegensätzlich zu
+allen disharmonischen Geräuschen – wie hinsichtlich jenen, welche du sehr treffend als Jaulen, Heulen und Kreischen formulierst und die wider alle Realität behauptend als angeblicher Gesang zu erklären versucht werden –, wie das bereits seit
+längerer Zeit auf der Erde als sogenannte <moderne> Musik bezeichnet wird, was wahrheitlich jedoch keiner Musik, sondern nur einem instrumentalen disharmonischen Krawall- und Radauspektakel entspricht, wie auch einem misstönenden
+weiblichen und männlichen Gekreische, Gejammer, Wehgeschrei, Klageheulen, Wehklagen und Gezeter.
+
+**Billy** Du schlägst mir langsam nach, Bermunda. Deine Ausdrücke und Bezeichnungen sind wirklich grossartig.
+
+**Bermunda** Wenn du meinst? Aber ich bin gelehrig.
+
+**Billy** Ja, das höre ich, und dann ist auch das geklärt. Rede also weiter, bitte.
+
+**Bermunda** Gut, dann will ich noch folgendes erklären: Gegensätzlich zum heutig schrecklichen modernen unmusikalischen Disharmoniekrawall, was auf der Erde als Instrumentalmusik genannt wird, wie auch das Wehgeschrei und die Gekreischarien, was Gesang sein soll, so ist zu sagen, dass weder das eine noch das andere irgendwelcher Harmonie entspricht.
+Ein Ebenmass resp. eine Harmonie entspricht gegensätzlich dazu einer Ordnung des Zusammenklangs mehrerer harmonisch gegliederter Töne – bei einem Ton handelt es sich um gleichmässige und einheitliche Schwingungen, beim Klang hingegen erklingen mehrere Töne gleichzeitig, die sich überlagern –, was als vertikale resp. zeitgleiche Komponente von Abgewogenheit und Ausgeglichenheit und eben als Musik wahrgenommen werden kann, und zwar im Unterschied zu den
+horizontalen resp. zeitseriellen Komponenten Melodie und Rhythmus, die erkennbar schwingend und vibrationsmässig
+spürbar wahrgenommen werden.
+Die eigentliche Harmonielehre jedoch ist als systematische Erfassung eines Akkordgestaltens in bezug auf einen tonalen
+Klangraum zu definieren, wobei methodische Anleitungen im Tonsatz eine verbindende und möglichst fehlerfreie Handhabung der Klangverbindungen im Sinne der traditionellen Vorgabe der Musik innerhalb der entsprechenden tonalen Epoche
+bedingen. Nebst all diesem ist der eigentliche Gegenstand der Harmonielehre der, dass nebst dem Aufbau der Akkorde
+ganz besonders die Klängeverbindung zu musikalisch logischen Folgen gebildet werden.
+Wenn die Harmonik eines Musikstücks betrachtet wird, dann ist das Ganze der leitereigenen Dreiklänge einer Tonleiter zu
+beachten und zu definieren, wie auch die Haupt- und Nebendreiklänge sowie die Kadenz. Erst dadurch wird erkannt, welche
+Akkorde zum entsprechenden Musikstück gehören. Wenn beim Menschen die musikalische Harmonie im Alltag beobachtet
+und analysiert wird, dann kann bei ihm, wenn er auf Harmonie reagiert, eine positive Wirkung erkannt werden, wobei die
+Harmonie der Musik bei ihm durch einzelne Akkorde zueinander eine harmonische Beziehung schafft.
+Der übergeordnete Begriff <Harmonik> steht für den Zusammenklang der Töne, für die sogenannte vertikale Komponente
+der Musik. Die Akkorde bestehen aus Durdreiklängen als Hauptdreiklänge, wobei die 2., 3. und 6. Stufe sich aus Grundton,
+kleiner Terz und Quinte zusammensetzen und damit Molldreiklängen resp. Nebendreiklängen entsprechen, wie …
+
+**Billy** Entschuldige bitte, Bermunda, das ganze Diesbezügliche ist wohl nicht notwendig zu erklären, denn das führt sicher
+zu weit, und das von dir bisher Erklärte sollte eigentlich genügen. Ausserdem weiss ich soviel, dass Musik und Harmonik
+eigentlich auch eine grundlegend pädagogische Bedeutung haben, auch wenn viele andere Dinge, Fächer und Werte im
+täglichen Leben zwar in den Lehrplänen bevorzugt werden, weil die Menschen diese für wichtiger halten, als die Musik und
+Harmonik bewusst ins tägliche Dasein zu integrieren. Das, so erinnere ich mich, hat mir jedenfalls Sfath erklärt und auch
+gesagt, dass mir diese Werte in meinem Leben einen grossen Beitrag zur sozialen Entwicklung leisten würden, und zwar
+auch dann, wenn ich selbst weder Musiknoten noch Musikinstrumente erlernen werde. Und Tatsache ist, dass mir in meinem Leben Musik und Harmonik sehr viel geholfen haben und ich nur dank diesen einen bösen psychischen Zusammenbruch in meiner Ehe überlebt habe, als mir der ganze Terror über den Kopf gewachsen war, wobei mich dann Semjase im
+letzten Moment noch vor dem Schlimmsten bewahren konnte. Dabei habe ich mich, wie schon immer in meinem Leben,
+im Gesang geübt und auch einmal in Baghdad im Radio meine musikalische Ader hören lassen, doch war es in meinem
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Leben tatsächlich so, dass sich meine soziale Kompetenz derart gesteigert hat, dass ich in mir ein ruhiges, aggressionsfreies
+Klima erschaffen konnte. Dieses hat mich frei und offen, ohne Fehl und Hader mit allem und jedem und sowohl mit den
+Menschen, meiner Arbeit, mit der Natur und deren Fauna und Flora gemacht, folglich ich mit allen aufkommenden Situationen derart umzugehen lernte, dass ich mich nicht tadeln muss und auch mit einer wachen Aufmerksamkeit meine Mitmenschen, alles Leben rund um mich und in der freien Natur usw. so wahrnehmen kann, wie es effectiv ist. Dadurch kann
+ich auch laufend meine Motivation und Konzentration in bezug auf meine Arbeit trainieren, wie auch mein älterwerdendes
+Gedächtnis, das aber doch nicht mehr so gewaltig auf Vordermann ist wie früher. Aber sagen will ich doch noch, dass Musik
+und Harmonik für mich noch heute immer ein unmittelbar belohnendes Erlebnis ist, wenn alles richtig klingt und auch schön
+ist – wenn man zu Musik und <Harmonik> schön sagen darf.
+Zu erinnern vermag ich mich noch, dass Sfath sagte, wirkliche Musik und Harmonik würden im Gehirn beim Älterwerden
+der Menschen den Abbau von Nervenzellen verhindern und diese gar stärker ausbilden, während gegenteilig disharmonischer instrumentaler Krach sowie menschliches Gejaule und Geheul usw. bereits im laufenden Leben einen Nervenzellenabbau im Gehirn verursachen und Bewusstseinsschäden hervorrufen und gar zu Suchtgebaren führen würden.
+
+**Bermunda** Das kann ich bestätigen, denn alle Gehirnpartien, die in bezug auf das Hören und Bilden von Lauten ausgerichtet sind, werden explizit durch wahre Harmonik von Musik und Gesang stimuliert und dadurch auch bewegt und
+trainiert sowie aktiv erhalten, wobei besonders die harmonischen akustischen Feinheiten kraftvoll das Gedächtnis beeinflussen und anregen, wobei diesbezüglich insbesondere harmonischer Gesang von enormer Wirksamkeit ist.
+
+**Billy** Ja, das sagte auch Sfath, daran erinnere ich mich. Aber lieben Dank für all deine Erklärungen. Doch gerade jetzt
+kommt mir noch etwas bezüglich der Corona-Seuche in den Sinn, und zwar, dass Sfath damals sagte, dass auch dann weiterhin äusserste Vorsicht walten gelassen, Atemschutzmasken getragen sowie Abstand zu den Mitmenschen eingehalten
+werden soll, wenn sich die Seuche zurückziehe, weil ein Nachlassen der Seuchenwelle keine Gewähr weder für deren Ende
+noch für eine grössere Sicherheit sei. Und ich erinnere mich ausserdem aus der Zeit mit Sfath, dass das, was sich mit der
+kommenden etwas verflachenden Corona-Seuche ergibt, nicht einfach das endgültige Ende ist, weshalb Schutzmassnahmen weiterhin durch die Vernünftigen unter den Menschen Beachtung finden sollten. Teils erfolgt das kommende Abflauen
+der Seuche durch die Klimabedingung des Frühlings und dann durch den aufkommenden Sommer, wie Sfath damals erklärte. Das aber bedeutet, dass u.U. bei einem weiteren Klimaeinfluss die Seuche wieder ansteigen und neues Unheil losbrechen kann. Dies jedoch möglicherweise auch anders als durch die Seuche selbst, wie durch anderweitige Leiden und
+Krankheiten, die durch Impulsauslösungen oder durch Wandlungsfolgen aus der Seuche hervorgehen können, wie Sfath
+erklärt hat. Möglicherweise könnten sich aber auch Leiden und Krankheiten ergeben, die sich heimtückisch aus nicht erkennbaren Vireninfektionen herausbilden. Und weiter führe die Corona-Seuche bei vielen Menschen – so erinnere ich mich
+daran, was Sfath damals erklärte – nicht nur zum Tod, sondern auch zu schweren Langzeitgesundheitsschäden, die nicht
+geheilt werden könnten. Dies sei auch der Fall hinsichtlich nicht genügend und nur fahrlässig erprobten Impfstoffen sowie
+durch die Seuche auftretende gefährliche Gesundheitsbeschwerden, wie Herzversagen und andere Impfwirkungen usw.,
+die sehr oft zum Tod führen und viele Menschleben kosten würden, wie das auch der Fall sei in bezug auf diverse langzeitige
+Gehirnerkrankungen, die lebenszeitlich üble Beschwerden bringen oder vielfach zum Tod führen würden. Weiter weiss ich
+von Sfath auch noch, dass von den Virologen, Medizinern und Epidemiologen sowie Gesundheitsinstitutionen und Immunologen usw. viele wichtige Informationen für die Bevölkerungen verschwiegen werden, wie z.B., dass die Corona-VirusProteine sehr stark die Signale des Immunsystems angreifen und dieses derart manipulieren, dass es versagt. Folglich ist es
+notwendig – so habe ich bereits durch die Lehren von Sfath gelernt –, dass alles dazu Notwendige für das Immunsystem zu
+tun ist, um dessen äusserst lebenswichtige gesamtkörperorganische Funktion aufrechtzuerhalten, was insbesondere vernünftigerweise vom Menschen bewusst derart zu handhaben ist, indem dem Immunsystem bei Bedarf zusätzlich stärkende
+Vitalstoffe zugeführt werden. Diese entsprechen jedoch nicht mehr als effectiven Vitalstoffen, die das Immunsystem stärken und in gewissem Rahmen aufrechterhalten können, mehr nicht, denn als Corona-Virus-Abwehrmittel oder CoronaHeilmittel sind sie nichts wert, denn sie entsprechen keinen Heilmitteln.
+
+**Florena Womit du wohl richtig denkst.**
+
+**Billy** Eben. Dann habe ich aber hier jetzt noch die angesagten Terror-Seiten, die in meinen Computer gebeamt werden
+und meine Arbeit ebenfalls stören. Danach habe ich dann noch anderes zu bereden, denn es fällt noch einiges an, worüber
+wir noch reden sollten – auch wenn es eben spät wird.
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+g g g g g
+noch tue.
+
+Das sind nun einmal die Seiten, die mir dauernd dazwischenfunken und mir mein Schreiben schwer machen. Dagegen tun
+kann ich leider nichts, denn alles ist sinnlos, auch all die guten Ratschläge aus aller Welt, die mich täglich erreichen.
+
+**Bermunda** Das ist ja wirklich schlimm.
+
+**Florena** Das darf ja nicht wahr sein. – Und das ergibt sich, wenn du schreibst?
+
+**Billy** Ja, und dagegen kann ich nichts tun, denn jedes einzelne Wort muss ich korrigieren – jedes einzelne von rechts
+nach links, anders geht es nicht. Das Interessante dabei ist noch, dass jemand anderes als ich richtig Schreiben kann, und
+zwar, ohne dass Fehler entstehen. Das können Zeugen belegen.
+
+**Florena Das will ich sehen, lass mich bitte an dein Gerät. Es ist mir noch nie … … Warte, ich habe es gleich. Ja, es geht schon**
+ich schreibe jetzt … Es ist mir ein Vergnügen auf deinem Gerät nun wieder etwas schreiben zu können. Siehst du, es geht
+einwandfrei. – Nun bist du dran, ich werde genau zusehen. So wie du mir zusiehst, so will ich diesmal dir genau zusehen
+und sehr gerade genau …
+
+**Billy** Bittre …, hier hisSZTV DZ meiun. Wercl, da ivch. Ivcjh. Jett untrr dxein emn SAuujng en svchreinbrex. Wnn dimrc
+bdsads g exno g¨ügt?
+
+**Florena Das verstehe ich nicht, ich habe dir doch zugesehen, du hast korrekt geschrieben. Was soll denn das heissen, was**
+du eben geschrieben hast? Schon früher hast du mir das gezeigt, doch erst jetzt begreife ich wirklich, was hier bei dir eigentlich geschieht. Es ist so …
+
+**Billy** Soll ich das wirklich korrigieren?
+
+**Florena** Ja.
+
+**Billy** Gut, ich versuche es noch zusammen zu bringen. Hier ist nochmals das, was ich eben geschrieben habe, ich muss
+es nur kopieren: Bittre …, hier hisSZTV DZ meiun. Wercl, da ivch. Ivcjh. Jett untrr dxein emn SAuujng en svchreinbrex. Wnn
+dimrc bdsads g exno g¨ügt?
+
+Ich versuche es nochmals zusammenzubringen: Bitte …, hier ist mein Werk. Da ich jetzt unter Deinen Augen schreibe.
+**Wenn Dir das genügt?**
+
+Dies ist es nun, was ich vor deinen Augen geschrieben habe, wenn dir dieses Korrigierte genügt?
+
+**Florena Ja, … es ist unglaublich.**
+
+**Bermunda** Es ist wirklich unglaublich, was diese religiösen Kräfte zu tun vermögen. Das sind sie doch, die dich derart
+belästigen und an deiner Arbeit behindern?
+
+**Billy** Ja, so haben es Yanarara und Zafenatpaneach herausgefunden. Sie haben seit dem Jahr 2001 daran gearbeitet, bis
+sie endlich den Ursprung gefunden haben, eben die religiösen-sektiererischen Kräfte, die sich selbständig gemacht haben
+und mir ins Handwerk pfuschen, um mich fertig zu machen. Jetzt fehlt nur noch, dass von der Kraft meine Körpergesundheit
+angegriffen wird. Das kann ich wohl leider nicht verhindern, so es mich eines Tages erwischen wird und ich die Folgen
+tragen muss.
+
+**Florena** Wir werden uns darum bemühen, doch dass wir etwas tun können, das wird noch Jahre dauern. Das jedenfalls
+sagte Yanarara.
+
+**Billy** Bis dahin bin ich schon längstens nicht mehr, denn ich lebe ja nicht ewig und werde eben meinen Weg gehen, um
+danach nicht wieder die Religion und das Sektierertum anzuprangern, die gesamthaft die Erdenmenschheit kaputt machen,
+sie gläubig vereinnahmt, beherrscht und sie im Glauben an einen imaginären Gott-Vater und an einen nie existierten Gottessohn als Heiland, an Allah und Shiva usw. darben lässt. Dies, um nie den Menschen seine eigenen Gedanken denken und
+seine ureigenen Entscheidungen fällen zu lassen. Dies wohl in Ewigkeit, denn es wird kaum jemand den Mut aufbringen,
+hart genug ins Gefecht gegen den Religionswahn und den Sektiererwahn ins Feld zu ziehen, wie ich das noch tue.
+
+**Bermunda** Du bist verbittert.
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Florena Das ist er wohl mit Recht.**
+
+**Billy** Ihr mögt recht haben. Es ist aber wirklich so, dass man für die Katze redet, denn das Gros der Menschheit ist irre
+und hängt lieber einem <lieben Gott> und einem Allah und Buddha nach – oder wie alle heissen mögen –, anstatt selbst zu
+denken und selbst zu entscheiden und zu handeln.
+
+**Florena Du erinnerst mich an unsere Geschichte, denn unsere Vorfahren benötigten Jahrmillionen, ehe sie sich von ihrem**
+Gottglauben befreien konnte. Erst vor rund 52 000 Jahren faden sie zu sich selbst, und das auch nur durch ein …
+
+**Billy** … ein riesiges Kugelgebilde, ich weiss.
+
+**Florena Ja, es war die Rettung unserer Vorfahren. Es hat viele Menschenleben gekostet, doch seither herrscht bei uns**
+Frieden, keine Kriminalität und kein Hass mehr. Die Menschen denken frei, entscheiden und handeln frei, ohne jeglichen
+Glauben an einen Gott und dergleichen. Sie sind gegensätzlich zu den gottgläubigen Erdenmenschen völlig frei von einem
+Glauben und leben in Frieden und Freiheit, ohne die Belastung von Geld und Machtgier, wie die Erdenmenschen dies gegensätzlich tun.
+
+**Billy** Das wäre das, was auch bei der irdischen Menschheit der Fall sein müsste. Doch das aber sind Wunschträume,
+denn es sind nur sehr Wenige, die sich für die effective Wahrheit interessieren, denn das Gros der Erdlinge hört lieber auf
+den Gotteswahnglauben, auf den Sektierismus, der sie versklavt und hörig sein lässt. Dies in bezug auf einen Glauben, durch
+den sich Arbeitsscheue durch fromme Reden und Lügen an den Gotteswahngläubigen bereichern – wie Pfaffen, Priester,
+Bischöfe, Kardinäle, <Seel>sorger, und allen voran der Oberbonze Papst in Rom, wie bei anderen Religionen und Sekten
+und deren Führern und Bonzen allgemein in aller Welt.
+Nur deren Wenige sind es, die sich der Wahrheit zuwenden, in der Regel sind es FIGUaner, die sich mit der Wahrheit befassen und den Weg zur Wahrheit finden. Dies während andere sich Atheisten schimpfen, jedoch trotzdem in irgendeiner Art
+und Weise gläubig sind – nur eben nicht wahrheitswissend –, weil sie in ihrem falschen Atheismus glauben, dass sie die
+Weisheit mit Schaufelbaggern gefuttert hätten.
+Ausserdem ist noch zu fragen – weil es mich eben interessiert –, was diesbezüglich die Zukunft bringt. Insbesondere fragt
+sich – da mit dem sogenannten Kunststoff, mit Plastik und mit Gift aller Art die Erde überschwemmt wird –, was aus allem
+noch werden wird. Was bisher noch weites Land ist – das noch existiert, das jedoch bald nicht mehr sein wird, weil es im
+Unrat der Plastikwelt und der Gifte sowie der neuen Bauten ersticken wird, durch neue Häuser, Strassen, Fabriken, Seilbahnen, Fussballplätze, Sessellifte, und Bahntrasses aller Art –, wird bald zur Rarität und zur Seltenheit, sehr teuer und
+unerschwinglich werden. Dies, wenn nichts dagegen getan wird, wie ich von Sfath noch weiss. So wird die Welt alle Ökosysteme und deren Natur, Fauna und Flora verlieren, und die Atmosphäre und das Klima werden noch weiter zerstört werden. Dies nicht zuletzt darum, weil der Erdling durch seine schon längst überhandgenommene und noch unaufhaltsam
+wachsende Überbevölkerung immer mehr Land zum Verbauen benötigt, wobei er die lebensnotwendigen Sauerstofferzeuger und CO2-Silos abholzt – die Wälder und Regenwälder, die Urwälder.
+Auch der Wind spielt dabei eine grosse Rolle, weil er alles an Unrat über die Welt verbreitet, was der Erdling in die freie
+Natur freisetzt. Dazu kommen noch die Stürme, die künftig der Klimawandel zusätzlich bestimmt, die alles an Unrat noch
+weiter verteilen und auch das Land seiner Fruchtbarkeit berauben und es leblos werden lassen.
+Und da ist auch noch der Erdling selbst, der sich – besonders in Europa – in das Leben der Natur einmischt, der altherkömmliche Pflanzen, Tiere sowie Getier usw. ausrottet, obwohl sie seit Jahren und Jahrhunderten in Europa heimisch geworden
+sind und in künftiger Zeit das Land beleben werden, das infolge der unaufhaltsam anwachsenden Überbevölkerung in absehbarer Zeit immer rarer werden wird.
+Alles und jedes was fremdartig wirkt, wird als invasiv bezeichnet und ausgerottet, denn es wird nicht begriffen, dass durch
+den Klimawandel sich auch der gesamte Naturwandel vollzieht und damit auch der Wandel der Pflanzen. Es wird nicht
+begriffen, dass auch das Invasive seine Lebensberechtigung hat, wenn es keinen Schaden anrichtet, was ja wirklich nur
+selten der Fall ist und verdrängt werden muss, um dem Fruchtbaren den Lebensraum zu erhalten – das zudem menschenbestimmt wird, in der Regel völlig zu Unrecht. Es wird gar zu Unrecht durch Naturschützer verlangt, dass angeblich invasive
+Pflanzen ausgerottet werden sollen, obwohl sie weder gefährlich noch invasiv, sondern ortsgebunden sind, die nach ihrem
+Erdreich wachsen und völlig harmlos sind. Erst durch den Menschen werden sie gefährlich oder wuchernd ausartend, während sie völlig harmlos bleiben, wenn man sie in Ruhe lässt. Das ist unsere Erfahrung, die wir hier in Center gemacht haben.
+Müssten wir nach dem gehen, was irre von jenen gepredigt wird, die alle fremdartigen Pflanzen ausrotten wollen, dann
+müssten wir mindestens zur Hälfte alle Pflanzen ausrotten, die hier auf unserem Gelände gut wachsen und seit Jahrhunderten in der Schweiz heimisch geworden sind.
+Was Wucherpflanzen sind, so können sie sich immer nur dann invasiv vermehren, wenn sie den richtigen Boden resp. den
+richtigen Untergrund dazu haben, sonst bleiben sie an Ort und Stelle und wachsen einfach dort, wo der Wind eben den
+Samen hingetragen hat. Das haben wir im Center während nahezu 50 Jahren selbst erlebt und erfahren, und wir sind gut
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+damit gefahren – ausser einmal, als uns ein Mensch dazwischengepfuscht hat. Wer es war, weiss ich nicht mehr, aber es
+war unerfreulich.
+
+**Bermunda** Die Menschen verstehen eben die Wahrheit nicht, weshalb sie auch nicht deren Ursprung finden können.
+Sie verstehen nicht, dass sich die gesamte Natur und deren Fauna und Flora, wie auch der Planet selbst sowie all seine
+Ökosysteme und damit auch die Atmosphäre und das Klima im laufenden Wandel befinden und folgedem nichts so bleibt,
+wie es gegenwärtig ist. Unaufhaltsam wandelt sich der gesamte Planet und damit auch alles, was ihn belebt und auf ihm
+lebt. Folglich nichts so bestehen bleibt wie es gegenwärtig ist. Natürlich geht es gesamthaft eine lange Zeit, die sich an
+Millionen Jahre reiht, doch der Wandel findet laufend statt, und er geht vor sich, ohne dass die Menschen davon etwas
+bemerken. Gar stündlich vollzieht sich der laufende Wandel der gesamten Erde, vermehrt und schneller durch die bösen
+zerstörenden Machenschaften der immer mehr überbordenden Überbevölkerung. Das jedoch realisieren die Erdenmenschen nicht im Leben ihres irren Glaubens – nebst dem wirren Glauben an ihren Gott oder ihre Götter –, der darauf ausgerichtet ist, dass der Planet Erde so weiterbestehen soll, wie er gegenwärtig ist. Dies ist ein schwerer Trugschluss, denn die
+Erde ist durch die Unvernunft der Erdenmenschheit in einem künstlich erzeugten Wandel begriffen, und zwar ausgelöst
+durch die sehr bösartig zerstörenden sowie vernichtenden Machenschaften, wie du diese treffend in deinen Voraussagen
+beschrieben hast, in die auch ich Einsicht nehmen durfte, als Ptaah sie uns vorlegte, dass wir Kenntnis davon gewinnen
+konnten.
+Wir wissen, dass alle Existenz einzig bei der Schöpfung liegt, die niemals etwas fordert und weder belohnt noch bestraft,
+sondern nur existiert, sich höher entwickelt und das Leben des Menschen weder hemmt noch irgendwie beeinflusst, sondern er ganz allein dies nach eigenem Willen bestimmen und bewirken kann. Niemals ist die Schöpfung in der Lage, selbst
+etwas zu bestimmen, zu entscheiden und nach eigenem Willen zu handeln, denn in ihrer Existenz ergibt sich alles nach dem
+Gesetz der Selbstevolution, der absoluten Selbstentwicklung, die sich je nach der individuellen Entfaltung formt.
+
+**Billy** Wem sagst du das … Das ist so und bleibt so, und es ist auch gut so, denn das Ganze braucht so weder einen <lieben
+Gott>, einen <Allah>, einen <Shiva>, <Aither>, <Amaunet>, <Puja>, <Durga>, <Lakshmi>, <Ganesha> oder <Vishnu>, <Parvati>, <Jahwe>, <Ahura Madza>, <Lucifer> oder <Aurora> usw. Es braucht nun Intellektum, Verstand und Vernunft, und
+zudem eine Persönlichkeit, die unabhängig ist von allen äusseren Einflüssen, die das Charakterbild und das Bewusstsein
+negativ zu beeinträchtigen vermögen. Positive Charaktereigenschaften und Bewusstseinwerte, die zur Persönlichkeitsbildung genutzt werden, dürfen nicht zur Ausartung gelangen, sondern müssen streng kontrolliert und bewahrt werden, um
+im Ausdruck der Persönlichkeit zur positiven Geltung zu kommen.
+Die Wahrheit des ganzen Existierenden heisst einfach Schöpfung, und die ist und bleibt gegenstandlos für alle Zeit. Sie ist
+reine Energie, eben Schöpfungsenergie in endlos vielfältiger Form, die endlos evolutioniert und existiert, jedoch jeder Lebensform es freilässt, sich selbst nach eigenem Wert zu entwickeln, so wie es die gesamte Schöpfung vorgibt. Es gibt also
+keinen Gott oder gar mehrere Götter, es gibt nur Menschen, die sich nach eigenem Ermessen und nach eigenem Sinn
+entwickeln können – frei nach eigenem Willen, der sich aufbaut während der 6jährigen Periode seiner Pubertätszeit, die
+sich im frühen Alter seiner Jungmenschwerdung ergibt und richtig genutzt werden soll, um den Sinn des Lebens zu erfüllen
+– seine Persönlichkeitsbildung und seine gesamte Evolution als wahrer Mensch. Darin liegt keine täuschende Kraft, die sich
+guttut an religiös-sektiererischen Phantasien, sondern nur an der Wirklichkeit und deren Wahrheit, die wissensmässig mit
+der Natur, deren Fauna und Flora, dem gesamten Universum und damit schöpfungsverbunden ist. Der Glaube an einen
+Gott, der angeblich die Welt und das Universum erschaffen hat, ist sowieso Schwachsinn, denn allein die Schöpfung war
+dazu fähig, denn sie ist existent seit Urbeginn und wird es immer bleiben bis sie dereinst eingeht in das SEIN-Absolutum,
+hoch evolutioniert und ewig beständig.
+Wird das Wort Religion betrachtet, dann leitet es sich ab von <religio>, von einem lateinischen Wort, das so viel wie <Gottesfurcht> bedeutet, nach anderer Auslegung auch <Versöhnung mit den Göttern>. Der irre Glaube an einen Gott oder
+Gott-Vater, an einen Gottes-Sohn, an einen <Heiland>, an Allah oder Shiva, an eine höhere Macht über dem Menschen, die
+ihn davon glaubensmässig abhängig macht, folglich er sich durch Wahrheits-Verleumder und Lügner irreführen und durch
+das Leben irreleiten lässt, das ist – gelinde gesagt – nur Quatsch. Der Mensch erkennt dadurch seinen Lebenssinn nicht und
+richtet seine Lebensweise folglich danach aus, was ihm durch die Religionsvertreter vorgelogen wird. Viele Menschen setzen sich daher in ihrem Glauben mit dem Tod auseinander und glauben an einen Himmel und eine Hölle, in den/der sie
+gemäss ihrer Lebensweise dereinst <landen> sollen.
+Wie viele Religionen es tatsächlich unter der gesamten gegenwärtig 9,2 Milliarden umfassenden Erdlingsheit eigentlich
+gibt, das können selbst sogenannte <Experten> nicht genau erklären, denn es ist schwer zu sagen, ob eine Glaubwahnrichtung auch wirklich einer sogenannten Religion entspricht. Allgemein werden zwar 5 Weltreligionen unterschieden, die sich
+aus sogenannten Buddhisten, Christen, Islamisten, Judisten und Hinduisten ergeben. Jede dieser Weltreligionen weist zudem noch eigene verschiedene und urtümliche Strömungen auf, die schlichtweg als Sekten bezeichnet werden – als ob
+Hauptreligionen keine Sekten wären! Oftmals gibt es auch gewaltige Unterschiede in den Gebeten der Gotteswahngläubigen, folglich es unmöglich ist, alle Religionen genau einzuschätzen und auch alles niederzuschreiben. Die Religionen verfügen auch über eine sehr lange Geschichte – meistens erstunken und erlogen, und zudem mörderisch und menschenverachtend.
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Die einen Weltreligionen haben nur EINEN Gott, andere haben MEHRERE Götter oder andere GAR KEINE Götter oder Göttinnen. Die Erdenmenschheit hatte gemäss Sfath gegen 1950 an die rund 45 000 verschiedene Glaubenswahnrichtungen
+zu verzeichnen, die sich wohl seither mit der horrenden Masse der Überbevölkerung vervielfacht hat. Davon wird den
+hauptsächlichen Teil wohl das Christentum und der Islam ausmachen, während der Hinduismus und Buddhismus sowie das
+Judentum hinterherhinken. Alle Restlichen aber verteilen sich auf kleine Religionen, Sekten und Privatgruppierungen, wie
+auch auf reine private Glaubensrichtungen.
+Meinerseits denke ich, dass die Religionen nichts als dumm-dämliche Geschichten über Götter, Göttinnen, Heilige, Gottessöhne, Engel und Geister und sonstige erfundene Wesenheiten sind, die erdacht wurden, um die dummen Gotteswahngläubigen beherrschen zu können. Ausserdem vermitteln diese idiotisch-religiösen Geschichten den Gotteswahngläubigen
+bestimmte Vorstellungen darüber, wie sie sich im täglichen Leben und Dasein richtig verhalten, jedoch sofort zur Waffe
+greifen und die Feinde bedenkenlos töten sollen, sobald sich jemand erdreistet, gegen den eigenen Gottesglauben oder
+gegen die eigene Meinung oder Freiheit etwas zu sagen. Also können sich solche Vorstellungen von <göttlicher Liebe für
+alle> natürlich sehr schnell ändern, vor allem bei Gläubigen, d.h. bei Erdlingen, wie auch besonders bei Gemeinschaften,
+wenn von oben herab, ich meine von den Regierenden, eine Aufforderung kommt oder ein Befehl dazu erlassen wird.
+Es ergibt sich tatsächlich, dass jeden Tag neue Sekten entstehen, neue Religionen, neue politische Gruppierungen und Fanatiker, bei denen sich Menschen zusammenrotten und an etwas glauben. Es genügt schon, dass eine Handvoll Gläubige
+es z.B. schafft, ihre Überzeugungen an die Nächsten weiterzugeben, und schon ist eine neue Sekte im Anmarsch, die Tod,
+Schrecken und Verderben verbreitet. Und das Ganze wird weitergegeben, selbst an Kinder und Kindeskinder, bis es voller
+Hass grassiert, mordet und Tod und Elend verbreitet, um dann plötzlich wieder zu verschwinden, als ob es nie existiert
+hätte.
+Viele Sekten, Gruppierungen, politische Fanatiker und Religionen, die oft so wenige Anhänger aufweisen, dass kaum jemand sie kennt oder wahrnimmt, leben unter der Menschheit und beeinflussen andere mit Angst und Schrecken. Immer
+treten dabei einige besonders hervor, indem sie ausflippend zur Waffe greifen und wahllos um sich ballern und unschuldige
+Menschen ermorden – einfach so, um ihr Mütchen zu kühlen und zu stillen, und um ihre falsche Gläubigkeit durch das
+Morden unschuldiger Menschen zu befriedigen. Da fragt sich, wo denn dieser <liebe Gott> hockt, der doch alles sehen,
+lenken und in Ordnung halten soll? Wo hockt er denn, dass er überhaupt solches an Ungerechtigkeit zulässt und die Fehlbaren nicht zur Rechenschaft fordert, da er doch so gerecht sein soll? Aber alles ist nur Lüge, denn da kein Gott vorhanden,
+sondern seine erphantasierte Existenz nur Lug und Trug ist, kann er weder eingreifen noch die Fehlbaren seiner Gläubigen
+zur Rechenschaft ziehen.
+Das Christentum und der Islam sind als Weltreligionen beide aus dem Judentum hervorgegangen, dessen Gründer vor Urzeiten – vor mehr als 4500 Jahren – ein schwarzer Mann namens <Abram> aus Afrika war, was heute vehement bestritten
+wird. Aus diesem Grund kennen Christen und Islamangehörige viele der Lügengeschichten aus der Thora, dem jüdischen
+Religionsbuch. Und daher verehren Juden, Christen und Islamangehörige auch die gleichen Propheten, die als Gesandte
+Gottes erachtet und <heilig> gesprochen werden. Zudem erdreisten sich die Christen noch dermassen, dass sie den Menschensohn Jmmanuel als Gottessohn deklarieren und ihn als <heiligen Heiland> anbeten – einen Menschen, der sich vehement dagegen zur Wehr setzte, allerdings vergebens, denn der Glaubenswahn der Christen ist stärker, denn er klammert
+sich mit aller Macht an den Gotteswahnglauben.
+Dass dabei auch der Islam mitspielt in Form des Felsendoms und damit der Al-Aqsa-Moschee in Jerusalem, das <Heiligtum>
+dieser Glaubensrichtung, das haut dem Fass noch den Boden raus.
+Die Al-Aqsa-Moschee ist nämlich eine Moschee auf dem Tempelberg in der Jerusalemer Altstadt, wobei diese Moschee als
+drittwichtigste des Islams gilt, angeblich gemäss der Al-Haram-Moschee verbunden mit dem zentralen Heiligtum der Kaaba
+in Mekka, wie auch mit der Prophetenmoschee und mit dem Grab des islamischen Propheten Mohammed in Medina.
+Die Al-Aqsa-Moschee gilt als drittwichtigste Moschee des Islam, ausser dem zentralen <Heiligtum> der Kaaba in Mekka und
+dem Grab des islamischen Propheten, der Prophetenmoschee Mohammed in Medina. Der heute gängige Name Al-Masdschid al-aqsā, was <Die ferne Kultstätte> bedeutet, nimmt bezug auf den ersten Vers der 17. Sure, die da heisst: <Gepriesen
+sei der, der mit seinem Diener in der Nacht von der heiligen Kultstätte in der fernen Kultstätte, deren Umgebung wir gesegnet haben, …> = Gepriesen sei der, bedeutet: Mohammed. Die ferne Kultstätte bedeutet: Jerusalem. Die Al-Aqsa-Moschee wurde also im Koran <ferne Kultstätte> genannt, während sie jedoch tatsächlich erst 103 Jahre später und nach den
+im Koran geschriebenen Ereignissen erbaut wurde. Dies entgegen den falschen Behauptungen, dass sie bereits 90 Jahre
+nach den im Koran gesagten Geschehen erstellt wurde. Gegenwärtig wird das Ganze folgend genannt: Die erste der beiden
+Gebetsrichtungen (Jerusalem vor Mekka) und die dritte der beiden Heiligen Stätten (Mekka und Medina) sollen als Richtungen des Gebetes dienen, wodurch eindeutig der Prophet angebet wird und nicht Allah, wie behauptet wird.
+Im Bereich der heutigen Moschee war früher der <Herodische Tempel>, den der damalige König 924 v. Jmmanuel (Chr.)
+erbauen liess, der aber bereits 73 Jahre später beim Jüdischen Krieg durch die Römer zerstört wurde, als Kaiser Titus Flavius
+Vespasianus, als Nachfolger seines Vaters Vespasian, die flavische Dynastie regierte.
+Heute ist vom damaligen Tempel nur noch die Stützmauer bestehend, die sogenannte Klagemauer, die von den Judengläubigen fleissig benutzt wird. Auf dem Tempelberg selbst liess der byzantinische Kaiser Justinian l. im Jahr 53 eine christliche
+Kirche errichten, die er auf den Namen <Maria von Nazareth> resp. der <Seligen Jungfrau> – da fragt sich, wie denn eine
+Schwangere und später Mutter noch Jungfrau sein kann? – weihen liess, wobei die Kirche jedoch bei der Eroberung
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Jerusalems zerstört wurde. Das war – so nehme ich an, weil ich das Jahr nicht mehr genau weiss – so um das Jahre 612.
+Beim Ganzen mag ich mich noch an das Jahr 1969 zu erinnern, damals verübte ein Irrer aus Australien – den Namen des
+Irren weiss ich nicht mehr (Anm. Bernadette: Denis Michael Rohan) – einen Brandanschlag auf die Al-Aqsa-Moschee. Damals war ich gerade zurück aus Indien, Pakistan, der Türkei und Griechenland.
+Nun aber weiter bei den Religionen und Sekten, bei denen allerdings grosse Unterschiede in Erscheinung treten, und zwar
+auch bei den Hauptreligionen. Verschiedenheiten treten vor allem bei den Christen, Islamisten und den Juden auf, die am
+meisten den Gott, Allah und den Adonai/Jehova verehren. Zwar warten die Juden noch immer auf ihren einen Messias, auf
+jemanden, der sie vom Bösen und vom Übel der Welt errettet und erlöst – doch sie werden bis in alle Ewigkeit warten;
+umsonst, denn er wird niemals erscheinen, weil er ebenso einem Phantasiewesen entspricht wie Gott, Allah und Adonai/Jehova. Auch erging es den ersten Christen so, die ursprünglich dem Judentum anhängig waren und auf einen <heiligen>
+Messias warteten, den sie aber vergassen, als ihnen dann Jmmanuel begegnete, den sie kurzerhand einfach <Jesus> nannten und gläubig dem Wahn verfielen, Jesus sei der Messias, der ihnen von Phantasten und Lügnern prophezeit war.
+An und für sich nennen sie ihren Gott nur den <Vater und Herr der Welt>, denn den Namen Gottes sprechen sie ebenso
+nicht aus, wie das eigentlich auch den lslamgläubigen und den Christen eigen ist. Alle glauben sie nämlich, dass es einerseits
+sich nicht zieme, den Namen Gottes auszusprechen und es zudem nur einen Gott gebe, der allein das ganze Universum für
+den Menschen erschaffen habe.
+Gemäss ihren allen – also den Gotteswahngläubigen – indoktrinierten Überzeugung ist er stets, eben Gott, allgegenwärtg
+und lenkt sehr mächtig und vor allem gütig die Menschen und die Welt. Er soll – so behauten die Gotteswahngläubigen und
+vor allem ihre Pfaffen, Prediger und sonstigen Märchenerzähler – die Geheimnisse der Menschen kennen, diese belohnen
+für ihre guten Taten, doch sie bestrafen für alles, was sie wider seine Liebe und seine Gesetze tun.
+Nach dem Glauben der Juden hat Gott das jüdische Volk auserwählt und es beauftragt, den Glauben an den einen einzigen
+Gott auf der ganzen Erde zu verbreiten. Dazu schloss er einen Bund mit Abraham, dem Vater des jüdischen Volkes. Seine
+Lehre offenbarte Gott dann Mose, und laut Überlieferung schloss Gott mit Mose und dem jüdischen Volk am Berg Sinai
+ebenfalls einen Bund – da fragt sich nur, ob er denn schläft und alles Böse nicht sieht, das seine <Schäfchen> auf Erden
+machen. Nämlich all die Morde und all die Verbrechen, all die Vergewaltigungen an Frauen, all die Kriege, all den Terrorismus, und die die Natur und deren Fauna und Flora sowie die ganze Welt zerstörende Überbevölkerung!
+Gehet hin und mehret euch, das steht in der Bibel, aber kein Wort davon, dass zu viele Menschen mit ihrer Überbevölkerung
+alles Leben des Planeten Erde zerstören und die gegenwärtig 9,2 Milliarden Erdlinge – die fälschlich immer noch offiziell
+mit 7,8 Milliarden berechnet werden – die Erdenwelt bereits an den Rand des völligen Zusammenbruchs gebracht haben.
+Wie reimt sich da der Bibel-Spruch des Gottes aus der Christenbibel, die da die frommen Worte daherlügt und ganz offenbar
+die Gotteswahngläubigen besonders beeindruckt:
+
+6. Und der Herr ging vor seinem Angesicht vorüber und er rief: <HERR, HERR, Gott, barmherzig und gnädig und geduldig
+und von grosser Gnade und Treue!
+7. … der da bewahret Gnade in tausend Glieder und vergibt Missetat, Übertretung und Sünde, und vor welchem niemand
+unschuldig ist; der die Missetat der Väter heimsucht auf Kinder und Kindeskinder bis ins dritte und vierte Glied.>
+
+Und nochmals sei explizit erwähnt, dass alle Theisten daran glauben, dass sie es nur mit einem einzigen Gott zu tun haben,
+folglich sie dem Monotheismus nachhängen und den Wahnglauben verbreiten, allein dieser Gott habe das ganze Universum
+für den Menschen erschaffen. Nach ihrer indoktrinierten Überzeugung ist er stets gegenwärtig und lenkt mächtig und gütig
+die Welt. Er kennt die Geheimnisse aller Erdlinge, belohnt sie für gute Taten, während er sie für alles bestraft, was wider
+seine Liebe, seine Befehle und wider seine Gesetze ist.
+Nach dem Glauben der theistischen gotteswahngläubigen Völker sind sie alles Auserwählte und beauftragt, den Gottsglauben in bezug auf den einen einzigen Gott auf der ganzen Erde zu verbreiten. Dazu soll er zu sehr früher Zeit schon einen
+Bund mit Abram, dem Afrikaner, geschlossen haben, dem Vater des frühen hebräischen Volkes. Seine irre Lehre – die er
+offensichtlich aus den Fingern gesogen hatte – offenbarte dieser dann dem damaligen hebräischen Volk, das den erdachten
+Gott anerkannte und ihn über die Jahrtausende <führen> liess, ehe der Schläuling Mose in den Vordergrund trat, und die
+Macht an sich riss, sich als Führer proklamierte und behauptete, er habe auf dem Berge Sinai ebenfalls einen Bund mit Gott
+geschlossen.
+Nun aber nochmals zurück zu den Sekten und Religionen, die keineswegs einheitlich, sondern sehr unterschiedlich sind,
+denn es gibt auch welche, die nicht nur an einen, sondern an viele Götter glauben. So sind z.B. die Hindus, die in Indien und
+Nepal sowie auf Bali ihr gläubiges Leben fristen und dort z.B. den Affengott Hanuman, den Schöpfergott Brahma und den
+Elefantengott Ganesha anbeten.
+Doch es gibt auch Gemeinschaften, die gänzlich und völlig ohne Gottheiten auskommen, wie z.B. der klare Buddhismus,
+dessen Anhänger zwar den Buddha als Erleuchteten ehren, nicht aber als einen Gott, sondern ihn nur als Lehrer sehen und
+schätzen. Zwar kann man diese Menschen infolgedessen als Weise sehen, wenn sie nur gerade den Buddha ehren und seine
+Lehren befolgen. Doch wenn sie weiteres tun im Zug ihrer körperlichen Verrenkungen und Köperbeherrschung usw., gehört
+das Ganze bereits ins Kultische, das über die Normalbeherrschung hinausgeht und ins Reich der Selbstkasteiung gehört.
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Dann gibt es aber noch die Sekten und Religionen, die zwar keinen Gott verehren, die aber trotzdem Götter haben, die für
+sie gewisse Bedeutungen aufweisen. So gibt es in manchen Strömungen des Buddhismus zwar verschiedene Götter, doch
+haben diese keinen grossen Stellenwert, wie ihn der Gott bei göttlichen Religionen und Sekten hat. And last but not least,
+gibt es natürlich noch Menschen, die einfach gar keiner Sekte- oder Religionsgemeinschaft angehören, an keinen Gott glauben, sondern Freidenker sind, eben Atheisten. Doch bei solchen habe ich festgestellt, dass sie trotzdem Gläubige sind, wenn
+nicht an einen Gott so doch an persönliche Ansichten, Ideen und Meinungen, die so vielfältig sind, wie es Sterne am Himmel
+gibt. Also existiert bei ihnen kein Wissen um die Wirklichkeit und deren Wahrheit, sondern ein Glaube irgendwelcher Art,
+der sie abhängig macht von ihrer Ansicht, Idee oder Meinung usw. Folglich sind sie trotz allem nur Gläubige, jedoch einer
+völlig von einem Gott freien Art und Weise – doch eben Gläubige, die nicht wissend, sondern von eigenen Ansichten, Ideen
+und Meinungen abhängig sind. Sie erkennen nicht, dass sie allein und trotzdem in der Masse der Schöpfungsenergie existieren, und so auf sich selbst und zugleich auf die Masse alles Lebendigen angewiesen sind.
+Und weil es so viele verschiedene Erdlinge infolge der Überbevölkerung gibt, so gibt es auch viele Glaubensgruppierungen,
+Sekten und Religionen, Ansichten, Ideen und Meinungen etc., denn wie und wo wir Menschen auch gehen, leben und uns
+beeinflussen lassen oder nicht, wir werden täglich mit der Wirklichkeit und deren Wahrheit konfrontiert. Wir ehren Erdlinge, Menschen, die wir hoch und ehrenvoll achten, und es werden Götter, Geister oder Heilige angebetet, die als hohe
+Mächte erachtet werden. In manchen Gebieten der Erde leben die Erdlinge in sehr kleinen Glaubensgemeinschaften zusammen, und oft hat eine Grossfamilie oder ein Dorf eine ganz eigene Sekte oder Religion. Und so ist es völlig klar, dass es
+aus diesem Grund auf der ganzen Erde nur so wimmelt von verschiedenen Glaubenswahnrichtungen. Lassen wir jetzt aber
+das Ganze, denn es bringt sowieso nichts, denn es gefährdet und vernichtet nur die Wahrheit erst recht, denn sie wird
+sowieso bestritten und geleugnet, weil alles geglaubt wird, was von alters her überliefert wird, auch wenn es grundfalsch
+und erlogen ist.
+
+**Florena Das findet den Grund darin, dass die Erdenmenschheit die Wahrheit nicht weiss, sondern belogen sein will.**
+
+**Billy** Mich interessiert etwas anderes, nämlich warum Mikroplastik von den Erdlingen eigentlich nicht als Erdeverschmutzer erkannt wird, obwohl dieser nicht nur die Binnengewässer und Meere verpestet und alles Leben in den Wassern
+erstickt, sondern auch das noch durch Chemie nutzbare Land verpestet.
+
+**Bermunda** Sie missachtet durch ihre masslose Überbevölkerung auch die freie Natur ebenso, wie deren Fauna und
+Flora. Sie missbraucht und tötet sie, wie auch die Gewässer aller Art sowie die Atmosphäre, das Klima und das nur durch
+blanke Chemie fruchtbar erhaltene Land. Ausserdem wird sehr wohl in der von dir genannten Richtung geforscht, was
+jedoch bisher noch nicht an die Öffentlichkeit gedrungen ist. Es werden aber die ersten Schritte dazu unternommen werden, doch viel an Nutzen wird das Ganze nicht bringen, das weisst du von Sfath her noch sehr genau.
+
+**Billy** Da bin ich aber gespannt darauf, wie viel von der Wahrheit an die Öffentlichkeit dringen wird. Grosse Hoffnung
+habe ich aber nicht, denn alles wird sowieso derart banal sein, zudem wenig informativ und ebenso nichtssagend, dass es
+nicht in die harten Schädel jener Erdlinge eindringt, die sich halbwegs dafür interessieren. Zudem wird es dann zu einer Zeit
+ausgestrahlt werden, die derart gewählt wird, dass niemand zuhört, sondern eben nur einige wenige Freaks, die sich halbwegs für die Sache interessieren. Es ist ja üblich, dass wichtige Fernsehsendungen zu Zeiten gebracht werden, da ihnen
+niemand zuschaut und sich niemand dafür interessiert. Fussball und nochmals Fussball – der als blanke Idiotie immer viel
+wichtiger ist –, jedoch nicht die Wahrheit darüber, was die Überbevölkerung alles an der Natur, deren Fauna und Flora, an
+den gesamten Ökosystemen des Planeten Erde und an dessen Atmosphäre und Klima zerstört.
+
+**Florena Du bist wirklich verbittert., doch ich verstehe das, denn es ist wirklich mehr als nur schlimm, was diese Überbevöl-**
+kerung auf der Erde alles an Unheil anrichtet. Es ist noch viel schlimmer, als du in deinen Voraussagen genannt hast, die ich
+letzthin bei Ptaah einsehen durfte.
+
+**Billy** Du sprichst von denen, die ich 1947 im Sanatorium geschrieben habe?
+
+**Florena Ja.**
+
+**Billy** Ja, ich weiss. – Schon längstens wollte ich diese reinholen, doch bisher fand ich einfach keine Zeit dazu. Was denkst
+du aber bezüglich der Flüchtlingswelle aus dem Süden und Osten nach Europa?
+
+**Florena Was du geschrieben hast in deiner Voraussage, dass Europa überschwemmt davon wird, woran die deutsche Bun-**
+deskanzlerin als regierungsunfähige Person die Schuld tragen wird.
+
+**Billy** Aha, und was wird mit dem Insektensterben, das in der Landwirtschaft durch Chemie so vorangetrieben wird, dass
+ein Schaden ohnegleichen in der Natur entsteht, und der so vorangetrieben wird, dass immer mehr ausgerottet wird, was
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+lebensnotwendig für das Weiterbestehen der Menschheit ist? Da dies so wichtig ist, sollte dies doch schon längstens bekannt sein und ein Verbot erlassen sein, dass in der Landwirtschaft und in Gartenbetrieben kein Pestizid, kein Herbizid, kein
+Fungizid und überhaupt keinerlei Chemie mehr gebraucht werden darf, weil dies alles die Natur und deren Fauna und Flora
+zerstört.
+
+**Florena** Das sind fromme Wünsche, gegen die sich aber die Landwirte und Gartenbetriebe vehement zur Wehr setzen,
+denn ohne Chemie, vermögen sie aus den völlig ausgelaugten und unfruchtbar gewordenen Böden nichts mehr zu gewinnen und keinerlei Essbares mehr zu ernten. Also werden sie sich zur Wehr setzen, auf Biegen und Brechen, wie du zu sagen
+pflegst.
+
+**Billy** Dann hätte ich eine politische Frage, die sich auf die Schweiz bezieht. Eigentlich weiss ich, dass ihr euch damit nicht
+beschäftigt, doch möchte ich gerne eure private Meinung hören. – Was denkt ihr dazu, dass die Schweizerregierung in Bern
+sich mit der EU-Diktatur einlässt und nach deren Forderungen Ja und Amen sagt – wenigstens teilweise?
+
+**Bermunda** Erstens wissen wir, dass die EU keine Beständigkeit haben wird, und zweitens wird falsch von der Schweiz
+gehandelt, wenn sie sich auf die Begehren der Europäischen Union einlässt. Schon von Anfang an war alles falsch, denn die
+EU ist auf die Schweiz angewiesen, nicht umgekehrt. Die Schweiz hat sich nur auf leere Drohungen eingelassen, die wohlberechnet, aber wirklich nur leer waren. Die Schweiz ist immer darauf reingefallen, das war leider die Wirklichkeit, und
+damit hat sie ihre Neutralität und Freiheit einer Diktatur geopfert. Das ist leider nicht mehr rückgängig zu machen. Je mehr
+sich die Schweiz auf die Forderungen der EU einlässt, desto gefährlicher wird es für die Neutralität und den Frieden des
+Landes, denn das Ganze kennt bereits keine Grenzen mehr und findet den Fortgang in der Unausweichlichkeit des angeblichen Friedenseinsatzes des Schweizer Militärs, das gezwungenermassen unter dem Deckmantel der Neutralität fremde
+Kriegsdienste leistet – angeblich als Beobachter und Hilfeleistende.
+
+**Florena Das kann ich nur bestätigen – mehr ist dazu nicht zu sagen.**
+
+**Billy** Dachte ich doch, … habe mich also nicht getäuscht. Das wollte ich nur wissen. – – Dann etwas anderes: Dass in
+bezug auf die Corona-Impfungen Impfzeugnisse ausgestellt werden, das finde ich nicht gut, denn irgendwie werden
+dadurch die Nichtgeimpften diskriminiert, finde ich. Ausserdem ist doch längst bewiesen, dass ein Grossteil der Geimpften
+trotzdem ansteckend ist und ein anderer Teil an schweren Nebenwirkungen leidet, bis dahin, dass gar Herzversagen die
+Folgen von Impfungen sein können, weshalb es verantwortungslos von den Virologen und den Regierungen ist, die Menschen zu Impfungen aufzufordern. Und dass durch die Impfzeugnisse die Ungeimpften zudem benachteiligt werden, das
+wird sich noch erweisen, denn diese Idiotie wird noch ihre Folgen zeitigen, denn die Geimpften werden schlussendlich
+gegenüber Ungeimpften bevorzugt werden, wodurch viele die Arbeit verlieren und arbeitslos werden.
+
+**Bermunda** Dazu ist zu sagen, dass das hie und da zutreffen wird und dass diese Aufforderungen zur Impfung wirklich
+gewissenlos sind, denn die Virologen und die Staatsführenden wissen sehr genau um die Gefahr, die sich durch Impfungen
+ergibt mit einem Impfstoff, der noch nicht genügend erforscht ist. Das Ganze der Impfstoffherstellung beruht auf einer
+gewinnbringenden Huschhusch-Arbeit, wie du das einmal genannt hast. Die nur auf Profit ausgerichtet ist und jene benachteiligt, welche vertrauensvoll genug sind, sich auf Impfungen einzulassen. Wahrheitlich haben jene nur sogenanntes Glück
+gehabt, die sich auf solcherart Impfungen eingelassen haben und keine Nebenwirkungen davongetragen haben – auch
+wenn es Milliarden sind. Dies also darum, weil die angewendeten Impfstoffe noch ungenügend erprobt sind und zudem
+legalerweise erst durch die Anwendung an den willigen und in Angst lebenden Bevölkerungen aller Staaten ungehemmt
+und umsonst getestet werden können.
+
+**Billy** Dazu bleibt mir nichts zu sagen, doch das eine bleibt mir übrig zu erwähnen, dass jeder Mensch alles selbst bedenken, entscheiden und danach handeln muss, denn jede Empfehlung, ob jemand sich impfen lassen will oder nicht, oder er
+nach Vernunft und Verstand und nach eigenem Intellektum entscheidet und handelt, das bleibt allein jedem selbst überlassen, und zwar in jeder erdenklichen Beziehung. Jeder Mensch muss sich in jedem Augenblick seines Lebens selbst entscheiden, ohne jede Beeinflussung eines andern, folglich nur das rein Persönliche zu Geltung kommt in vollkommener
+Selbstverantwortung. Also kann ich nicht sagen, was jeder Einzelne zu tun hat, denn jeder muss in eigener Verantwortung
+denken, entscheiden und handeln. Das bedeutet aber auch – und da kommen wir wieder auf das Sektentum und die Religionen zurück –, dass jeder Glaube und Wahn an einen Gott ausgeschaltet werden muss und effectiv nur das ureigene
+Denkvermögen, Entscheidungspotential und das ureigene Handlungskönnen in Betracht gezogen werden darf, niemals jedoch ein Glaube oder gar Wahn an irgend etwas.
+Irreführend predigen die Sekten- und Religionsfritzen und die gleichnamigen Fritzinnen, dass der Mensch selbst denken
+und richtig handeln soll, doch immer nur nach dem Gotteswahnglauben, folglich so oder so der Wahnglaube im Vordergrund steht und das ureigene Denken, Entscheiden und Handeln immer und in jedem Fall nicht selbständig und eigen,
+sondern fremdbestimmt und jedenfalls immer und ausnahmslos glaubensmässig geformt ist. So beweist die Tatsache, dass
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+jeder gotteswahngläubige Mensch immer und in jedem Fall nicht selbständig denkt, entscheidet und handelt, sondern dass
+er immer durch seinen Glauben gehemmt wird und nur demgemäss seine Gedanken, Entscheidungen und sein Handeln
+ausübt, also das, was ihm sein Gottesglaube oder sonstiger Glaube vorgibt. Das indoktrinierend Glaubensgepredigte – sei
+es durch Sekten- und Religionsverfechter oder sonstige Gläubige, Betrüger und Lügner irgendeiner Art – wirkt sich auf ihn
+jedenfalls immer so aus, dass der in dieser Weise beharkte Mensch glaubt, er denke, entscheide und handle nach eigenem
+und freiem Willen, während er jedoch wahrheitlich indoktriniert demgemäss denkt, entscheidet und handelt, was ihm sektiererisch und religionsmässig durch Sekten- und Religionsgläubige oder andere Wahngläubige eingehämmert wurde. So
+ist der Mensch also in seinem Denken, Entscheiden und Handeln nicht frei, sondern immer an seinen Glauben gebunden,
+und demgemäss lebt er glaubensmässig in den Tag hinein, ohne sich einmal Gedanken darüber zu machen, dass er eigentlich – beeinflusst durch seinen Glauben – nur eine Marionette jener Gilde ist, die ihn am Narrenseil eines Gottglaubens oder
+sonstigen Glaubens gängeln, um selbst keiner anständigen Arbeit nachgehen zu müssen, sondern auf Kosten der <dummen> Gläubigen zu leben.
+Nun, wenn der Mensch der Erde – eben der Erdling – wirklich frei von jedem Glauben sein will, dann muss er für alles und
+jedes in seinem Leben, was sich auch immer ergibt, die Verantwortung selbst tragen. Das bedeutet, dass er für sein Denken,
+Entscheiden und Handeln in jedem einzelnen Fall sich absolut bewusst sein muss, dass er für alles und jedes die volle Selbstverantwortung zu tragen hat und weder das <Schicksal> noch ein <lieber Gott> dafür verantwortlich zeichnet. Jedes
+<Schicksal> schmiedet sich der Mensch selbst, denn er ist das Wesen <Gott> selbst, das alles lenkt und schafft, der Verantwortung trägt und alles bestimmt während der gesamten Lebenszeit des Menschen. Nichts ausser ihm selbst – ausser den
+staatlichen Gesetzen, denen er sich zwangsläufig einzuordnen hat, denen er aber nach eigenem Ermessen Folge zu leisten
+vermag – kann ihn davon abhalten, seine Pflicht als wahrer Mensch zu tun und in richtiger Weise die Selbstverantwortung
+wahrzunehmen. Dazu muss er nur sich selbst und sich vollauf bewusst sein, dass er ein selbständiges Wesen ohne Abhängigkeit von einem Glauben irgendwelcher Art, sondern sich selbst und für alle seine Taten, für sein Denken, Entscheiden
+und Handeln selbst verantwortlich ist
+Um sich frei von jedem Glauben zu machen, hat der Mensch einen schweren Gang zu gehen, der ihn über Wege führt, die
+ihn oft an der Richtigkeit der Wahrheit zweifeln lassen, jedoch derart sind, dass schlussendlich die Wahrheit derart kraftvoll
+durchbricht, dass alle Zweifel derart in tiefe Vergessenheit verfallen, dass sie endgültig aufgelöst und nichtig werden. Das
+ist der Weg der dazu führt, dass der Mensch langsam wissend wird und sich nur noch der Wahrheit zuwendet, und damit
+dem SEIN der Schöpfung und ihrer allzeitlichen Existenz, die in endloser Wiederholung und im dauernden Wandel der Evolution in alle erdenkliche Dauer fortbesteht.
+
+**Florena** Er ist einfach erstaunlich, wie du alles in Worte zu fassen vermagst, die klar, deutlich, einfach und verständlich alles
+zu Ausdruck bringen, was erklärt werden muss.
+
+**Bermunda** Darum ist er der, der er sein muss, auch wenn es nicht verstanden wird von jenen, welche es besser wissen
+und verstehen wollen, die aber in Wahrheit zu ungebildet sind, um seine Worte richtig zu verstehen. Er ist der Mensch, der
+die Lehre bringt, um deren Wahrheit die Menschen der Erde streiten werden, denn er bringt nicht einfach den Frieden,
+sondern er muss eben der sein, der den Widerstreit auslöst, damit die Menschen der Erde den Weg zur Wahrheit suchen
+und finden werden. Daher ist er der, der er sein muss, folglich es keinem Wunder gleichkommt, dass er der ist, der er sein
+muss.
+
+**Florena Das ist mir klar und verständlich, und der Sinn meines Wortes zieht das auch nicht in Zweifel denn mein Wort**
+bezieht sich nur darauf, dass es erstaunlich ist, wie exakt unser Freund immer die richtigen Worte findet, um etwas zu
+erklären, wozu wir grosse Mühe hätten.
+
+**Bermunda** Entschuldigung –, dann habe ich deine Worte missverstanden.
+
+**Florena Das ergibt sich manchmal so. Damit ist ja alles geklärt.**
+
+**Billy** Dann kann ich ja fortfahren in meiner Fragestellung. Wie steht es bei euch bezüglich Berufssport, wie das bei uns
+bespielweise der Fussball ist, dessen Spieler berufsmässig <tschutten> und keiner geregelten Arbeit nachgehen?
+
+**Florena** Das ist bei uns nicht üblich, denn Sport wird nur ausserhalb der üblichen Zeit, die du Arbeitszeit nennst, betrieben.
+Dass zudem Geld dafür bezahlt werden muss, um zuschauen zu dürfen, das ist abartig. Ausserdem besitzen wir keinerlei
+Geldsysteme oder ähnliche Zahlungssysteme, und zudem untersagen unsere Direktiven auch solcherart Machenschaften.
+
+**Billy** Das ist klar. Dann die nächste Frage: Alle die Regierenden sind Grossmächtige, auch mit ihren Worten, folglich sie
+vom Elend und der Not jener Menschen reden, die in Not und Elend sind und ihnen viel Geld spenden, das …
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Bermunda** … die Notdürftigen 1. nie erhalten, 2. von den Staatsführenden selbst kassiert werden, und 3. von Steuergeldern abgezweigt werden, denn die Staatsführenden selbst opfern nichts von ihrem privaten Geldsegen, den sie haben.
+
+**Billy** Das wollte ich eigentlich wissen. Dann noch folgendes: Was Greta Thunberg macht ist offenbar kriminell gelenkt,
+denn die Dummheit dieser Göre und ihrer Demonstrationsbewegung lenkt vollkommen von den effectiven Problemen ab,
+die durch die Überbevölkerung bestehen und den Klimawandel verursachen.
+
+**Florena Das ist richtig, die Machenschaften der Greta Thunberg entsprechen einem kriminellen Handeln, denn der wirkli-**
+che Grund wird dadurch unterdrückt, indem verschwiegen wird, wo der wirkliche Grund der Umweltzerstörung zu finden
+ist, nämlich bei der Überbevölkerung.
+
+**Billy** Denke ich auch. Wie steht es aber damit, denn einst hörte ich vor mehr als 70 Jahren, dass der Sekten- und Religionswahn der Erdlinge zum Untergang der Menschheit führe?
+
+**Florena Dies Gefahr besteht tatsächlich; gegenwärtig noch mehr als zuvor zur Zeit, als alles noch etwas friedlicher war.**
+Jetzt ist tatsächlich alles in der Schwebe zwischen möglicher Ausartung und Vernunft, wobei besonders die EU und die USA,
+die die bösartigen treibenden Kräfte sind, die sich überall einmischen und Kriegsstimmung erzeugen. Dies so lange, bis –
+wie sagst du jeweils – jemandem der Kragen platzt, was früher oder später sein kann. Auch in der Schweiz gärt es, weil wie
+überall auf der Welt, völlig unfähige Personen an den Staatsführungen sitzen, die nicht wissen, was in den Völkern vorgeht,
+die unzufrieden sind und danach streben, endlich eine Staatsführung nach ihrem Sinn zu haben, in der nicht nur Unfähige
+sitzen, sondern Rechtschaffene.
+
+**Billy** Da hast du wohl recht, doch ändern wird sich so lange nichts, bis es eines Tages kracht. Was haltet ihr denn von
+Sanktionen, die gegen andere Länder verhängt werden?
+
+**Bermunda** Kindisch.
+
+**Florena Typisch für Staatsführungsunfähige, für Personen, die jeglichem lntelligentum, jeglichem Verstand und jeglicher**
+Vernunft bar sind. Sie leben im Wahn dessen, dass sie durch Sanktionen etwas erreichen könnten, das sie bei unartigen
+Kindern anwenden und sie damit bestrafen wollen. Es handelt sich dabei um ein effectiv kindisches Denken und um ein
+ebensolches kindisches Handeln, wie es Bermunda vorhin genannt hat.
+
+**Billy** Dann gehen wir in dieser Hinsicht einig. Wie steht es aber damit, dass in bezug darauf die Wahrheit behördenseits
+verschwiegen wird, dass die sogenannten UFOs wirklich existieren, und dass sie gar beschossen werden? Alles wird – wie
+vieles andere auch – einfach als Verschwörungstheorie abgetan, zwar mit Recht, denn zuviel Unsinn wird damit verbreitet.
+Was aber des Rechtens ist, das sollte auch als des Rechtens genannt und nicht einfach bestritten werden.
+
+**Florena Deshalb werden wir auch abwesend sein und erst nach Ende des Monats Juli oder August wieder zurückkommen.**
+
+**Billy** Das verstehe ich nicht?
+
+**Bermunda** Wir werden in 12 Tagen für längere Zeit abwesend sein sind – bis Ende des Monats Juli oder August.
+
+**Billy** Ah, das sind ja wieder Neuigkeiten. – Und Ptaah?
+
+**Florena Er wird zum gleichen Zeitpunkt zurückkommen.**
+
+**Billy** Zwar frage ich nicht warum, doch ihr werdet ja einen triffigen Grund für eure Abwesenheit haben.
+
+**Bermunda** Das haben wir sehr wohl, und der liegt darin, dass wir seit alters her uns nicht durch andere Fremde erkennen lassen, sondern nur in Einzelfällen, wie es im Zusammenhang mit Sfath geschehen ist, und auch in der Frühzeit mit
+Angehörigen der FIGU-Gruppierungen.
+
+**Billy** Du meinst, dass euch niemand von den Fremden jemals orten konnte, auch eure Vorfahren nicht?
+
+**Bermunda** Ja. Es hat …
+
+**Florena Ihr solltet nicht so offen darüber reden, denn …**
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Billy** Das bisher Gesprochene kann ich ja auslassen, wenn ich das Gespräch abrufe.
+
+**Florena Das solltest du, das Gesagte sollte wirklich …**
+
+**Billy** Das vorhin Gesagte werde ich schon …, denn die Fremden. … Also werde ich das …
+
+**Florena Wir müssen wirklich für die Fremden unerkannt bleiben, denn wir können …**
+
+**Bermunda** Daran dachte ich nicht …
+
+**Billy** Ehrlich gesagt, ich auch nicht. Jetzt verstehe ich erst, warum ihr so darauf erpicht seid, dass ihr …
+
+**Florena Ja, und mehr sollten wir darüber nicht reden.**
+
+**Billy** Also werde ich beim Abrufen nur das Notwendige niederschreiben. Damit ist wohl alles gesagt, was nötig ist. Aber
+mich interessiert doch, was ihr zu sagen habt, bezüglich des …
+
+**Florena Zu deiner …**
+
+**Billy** Damit begnüge ich mich. – Dann habe ich aber noch diese Frage: Wie viele Sprachen habt ihr eigentlich auf Erra?
+
+**Bermunda** Wir haben zwar verschiedene Sprachen, doch nur eine, die allen geläufig ist und die jede Person völlig
+beherrscht.
+
+**Billy** Dann kann sich jede Person mit jeder anderen verständigen, egal wo sie immer aufeinandertreffen.
+
+**Florena Ja.**
+
+**Billy** Dann habe ich hier noch die Frage bezüglich der Prostitution, eben die Hurerei. Da fragt mich jemand, wie ihr auf
+Erra das haltet? Gib es bei euch auch Bordelle oder dergleichen?
+
+**Bermunda** Solches kennen wir nicht. Unsere Direktiven enthalten auch keinerlei derartige Aufzeichnungen, denn
+grundlegend wird alles Diesbezügliche bei unseren Völkern verpönt und geregelt, ehe es zu Notsituationen kommt. Wir
+haben diesbezüglich alles geregelt in der Weise, dass Androiden zur Verfügung stehen, die alle privat diesbezügliche Bedürfnisse regeln, auf wirklich rein privater Basis, ohne dass eine öffentliche Prostitution stattfinden würde. So ist alles privat
+geregelt, solcherart in weiblicher und auch in männlicher Hinsicht, folglich weibliche wie männliche Androiden zur Verfügung stehen, niemals jedoch Menschen, die sich dieser Tätigkeit hingeben würden. Selbstverständlich bestehen Gemeinschaften dieser Art zwischen zwei Menschen, die als solche jedoch feste Verbindungen sind und folglich auch in dieser
+Beziehung keinerlei Prostitution betrieben wird.
+
+**Florena** Damit sollte für heute nun wirklich alles besprochen sein, weshalb ich dafür bin, dass wir jetzt alles beenden.
+
+**Billy** Wie du meinst. Dann sei es. Es ja wirklich schon spät, auch in der Normalzeit. …
+
+COPYRIGHT und URHEBERRECHT 2021 bei ‹Billy› Eduard Albert Meier, ‹Freie Interessengemeinschaft Universell›, Semjase Silver Star
+Center, 8495 Schmidrüti, Schweiz. Kein Teil dieses Werkes, keine Photos und sonstige Bildvorlagen, keine Dias, Filme, Videos und keine
+anderen Schriften oder sonstige Materialien usw. dürfen ohne schriftliche Einwilligung des Copyrightinhabers in irgendeiner Form (Photokopie, Mikrofilm oder ein anderes Verfahren), auch nicht für Zwecke der Unterrichtsgestaltung usw., reproduziert oder unter Verwendung elektronischer Systeme verarbeitet, vervielfältigt oder verbreitet werden.
+
+Veröffentlicht auf www.FIGU.org durch:
+‹Freie Interessengemeinschaft Universell›, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+Copyright 2021 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+

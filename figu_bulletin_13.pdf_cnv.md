@@ -1,0 +1,658 @@
+# FIGU-BULLETIN
+
+**Freie**
+
+**Interessengemeinschaft**
+**F.I.G.U.**
+
+**r**
+
+### Erscheinungsweise: 4. Jahrgang Sporadisch Nr. 13, Januar ‘98
+
+## Leserfrage
+Warum werden du, deine Kontakte zu den Plejadiern und deine Mission von ehemaligen FIGU-Mitgliedern
+und von «P.» diffamiert, obwohl «P.» selbst Demonstrationen verschiedener Art miterleben und Dinge sehen
+und hören durfte, die allen anderen Menschen zumindest bis zur Stunde verschlossen blieben? Ich denke
+dabei besonders an die Herren Runkel und Schutzbach sowie an einige andere, die mir selbst bekannt sind
+und die mir verschiedentlich beteuerten, dass sie Zeuge gewesen seien von verschiedenen Strahlschiffsichtungen plejadischer Flugmaschinen sowie von eigenartigen Lichtdemonstrationen am hohen Nachthimmel, so aber auch vom An- und Wegflug der Schiffe, wenn du Kontakt hattest. Es ist mir, und sicher auch
+vielen anderen, völlig unverständlich, dass all diese Personen erst zur Wahrheit standen, um dann plötzlich den Handschuh zu werfen und dann voll bewusst alles zu bestreiten, zu verleumden und als Lug, Betrug und Schwindel darzustellen. Von «P.» wurde mir sogar erzählt, dass «P.» in eurer Wohnstube einem
+Ausserirdischen begegnet sei und auch rund ums Haus und im Hinterschmidrüti-Gelände Beobachtungen
+hinsichtlich ausserirdischer Menschen gemacht habe. Besonders daher verstehe ich nicht, dass gerade
+«P.» heute alles diffamiert und dich aller üblen Schwindelei, Lügerei und Betrügerei und noch viel schlimmerer Dinge bezichtigt.
+Bruno Stauffer/Schweiz
+
+## Antwort:
+Erstens möchte ich dir sagen, dass es mich freut, wieder einmal etwas von dir zu hören, denn es ist schon
+lange her, seit du dich das letzte Mal gemeldet hast. Leider hast du auch keine Adresse angegeben, und
+in unserer Abo-Kartei ist sie auch nicht vorhanden, folglich ich annehme, dass du unser FIGU-Bulletin
+von irgendwelchen Freunden erhältst, da du ja über unsere Belange informiert bist. – Weiter möchte ich
+sagen, dass «P.» nicht länger mit mir in Kontakt steht, weil sich zwischen «P.» und mir sowie dem Verein
+FIGU zu viele negative Dinge ereignet haben. Darüber jedoch müssen keine weiteren Worte verloren
+werden.
+Nun, warum verschiedene ehemalige Vereinsmitglieder in verleumderischer Form über mich herfallen,
+hat einerseits wohlbekannte wie andererseits jedoch auch unverständliche Gründe. Es spielt dabei nicht
+nur Hass und Rachsucht eine grosse Rolle, sondern auch misslungener Egotismus und Herrschsucht sowie
+Unredlichkeit und verschiedene damit verwandte Untugenden, die hier aufzuzählen jedoch gewiss nicht
+nötig sind, denn ich fühle mich darüber erhaben, die Fehler anderer gross herausposaunen zu müssen,
+um mich besser hinzustellen, als ich das bin. Nur eines darf ich mit gutem Gewissen dazu sagen, dass all
+die Vorwürfe gegen mich nicht der Wahrheit entsprechen und ich mich gegen diese nicht verwehre (was
+hier nun vielleicht doch ein wenig der Fall ist, was aber nicht aus Eitelkeit oder aus schlechtem Gewissen
+geschieht, sondern um dir den wirklichen Sachverhalt zu erklären). Das Mich-nicht-Verwehren ist vermutlich der Grund dafür, so nehme ich an, dass man auf mich besonders wütend und rachsüchtig ist, weil
+ich durch keinerlei Rechtfertigung auf die verleumderischen Angriffe eingehe und dadurch keine Hand
+
+**Freie**
+
+
+-----
+
+habe zur öffentlichen Streiterei biete, ganz egal, wer auch immer versucht, mich mit Lügen und Beschimpfungen zu diskreditieren. lch denke einfach, dass diese Menschen in sich selbst ungemein arme
+Kreaturen sind, die nur zu leben vermögen, weil ihnen die Mitmenschen beistehen. Irgendwie finde ich
+daher, dass sie krank in ihrem Kopfe sind und ihr Bewusstsein resp. ihre Persönlichkeit, ihren Charakter
+sowie ihre Moral und Launen nicht zu kontrollieren und nicht zu beherrschen vermögen, wodurch sie unfähig sind, gemäss der Wahrheit zu leben, diese zu akzeptieren und diese bis zum Letzten auch zu vertreten. Sie sind so selfish, dass sie in jeder Beziehung nur sich selbst sehen und jede Wahrheit nur gerade derart lange anerkennen, wie diese noch frisch in ihrem Gedächtnis ist und ihnen nach innen und
+aussen und gegenüber anderen Menschen Nutzen bringt. Ist dies jedoch nicht mehr der Fall, dann verschwindet für sie die wirkliche Wahrheit in weite Ferne und sie schustern sich die Wahrheit dann nach eigenen Bildern zurecht, ganz gemäss ihren verdrehten und eingebildeten Wahnideen und sonstigen Vorstellungen, die sie dann als gegeben und als Wirklichkeit annehmen und vehement vertreten. Dabei ist es
+für sie dann unmöglich, noch zwischen Wirklichkeit und Fiktion zu unterscheiden, folglich sie das Fiktive
+erfassen und bis zur notorischen Lügerei verbreiten und diese Lügen dann auch selbst als Wahrheit glauben.
+Müssen solche Menschen gemäss der Wahrheit zu etwas stehen, dann ist diese ihnen in ihrem Lügengewebe entfallen, folglich diese, soll sie ihnen bewusst sein, ihnen immer wieder von neuem vergegenwärtigt
+werden muss. Tatsächlich nämlich vermögen sich diese Menschen nur immer mit dem gerade
+Gegenwärtigen in jedoch auch nur teilweise wahrheitlicher Form zu befassen und zu erinnern, weil sie
+sich nicht mit älteren Erinnerungen identifizieren können. Weil ihr durch notorische und ausgeartete Lügen
+drangsaliertes Erinnerungsvermögen zu schwach ist, vermögen sie die Erinnerung nicht aufrecht- und lebendigzuerhalten. Die Folge ist also die, dass sie wirkliche Erinnerungen nur dadurch behalten können,
+wenn sie immer neuerlich auf sie wirkende Dinge der gleichen Art fortlaufend erleben, sozusagen immer
+wieder als neue Beweise. Ist ihnen aber der Zugang zu neuen Erlebnissen der gleichen oder ähnlichen
+Art verschlossen, dann verblassen die alten Erinnerungen sehr schnell und werden völlig gegenstandslos,
+was dazu führt, dass die alten Erlebnisse und Geschehen usw. bestritten und verleumdet werden. Von dieser Art Bewusstseinsschaden, das muss vornweg genommen werden, sind in der Regel nur Menschen befallen, die den Untugenden und der Unredlichkeit in verschiedenen Beziehungen frönen und denen also
+auch Lügerei, Betrügerei, Dieberei und Schwindelei und dergleichen in grobem Masse eigen sind. Ein
+Übel hakt sich bei ihnen in das nächste und schafft so die unmöglichsten Verbindungen, aus denen Lug
+und Trug sowie Verleumdungen und viele andere Übel hervorgehen.
+Billy
+
+## Leserfrage:
+
+HAARP: Dies ist die Abkürzung eines amerik. Militärobjekts, bei welchem mit riesigen Antennenfeldern in
+Alaska die Ionosphäre beeinflusst wird. Scheinheilig sagen die Amis, sie würden damit Erdkrustenbeobachtungen machen. Ihr wahres Ziel sei aber eine globale Wettermanipulation, kontern besorgte Anwohner der Antennenanlagen. Weisst du etwas darüber?
+Franco Chelini/Schweiz
+
+## Antwort:
+
+HAARP ist die Abkürzung für «High Frequency Active Auroral Research Program», auf Deutsch «Hochfrequenz-Aurora-Forschungs-Programm». Dahinter versteckt sich ein Projekt der Amerikaner, das eine
+grössere Menschheitskatastrophe hervorrufen kann als der Bau der Atombombe. Wahrheitlich wird mit
+dem HAARP eine Testanlage gebaut, mit der eine Science-fiction-Schlacht geführt werden kann. Es
+handelt sich dabei um ein geradezu wahnwitziges Experiment, wird doch damit geplant, den Himmel mit
+Energiestrahlen zu beschiessen, und zwar durch die riesige Antennenanlage, die sich hinter der harmlo
+
+-----
+
+sen Bezeichnung HAARP verbirgt.
+Die Energiestrahlen werden von der Ionosphäre zurückgeschleudert, als Elektrowellen extrem niedriger
+Frequenz (ELF), wobei sich diese Wellen dann in eine heimtückische Waffe verwandeln:
+
+1) ELF-Wellen dringen in die Gehirne von Mensch und Tier ein, wenn sie auf diese gerichtet werden, wodurch die Opfer nicht nur aktionsunfähig und die Menschen
+damit auch kampfunfähig gemacht werden, sondern sie verfallen auch dem Wahnsinn. Die ELF-Wellen sind für die Militärs aber auch in anderen Dingen nützlich, denn
+sie durchdringen selbst Stein- und Stahlmauern usw.
+
+2) ELF-Wellen verbessern den Funkkontakt selbst in dicken Bunkern und in Atom-UBooten usw.
+
+3) ELF-Wellen durchdringen auch das Erdreich und vermögen so versteckte Bunker aufzuspüren.
+
+4) ELF-Wellen vermögen weiter auch Raketengeschosse und Flugzeuge sowie sonstige
+Flugkörper auch hinter der Erdkrümmung aufzuspüren und zu lokalisieren.
+
+5) ELF-Wellen sind derart, dass sie die gesamte gegnerische Elektronik und den Funk
+blockieren können.
+
+Dies alles ist jedoch nur eine Seite der HAARP-Technik, denn mindestens genauso beängstigend sind auch
+die möglichen Nebenfolgen, die beachtet werden müssen. Tatsache ist nämlich, dass bisher noch kein
+Mensch weiss, wie die Ionosphäre reagiert, wenn sie mit Energiestrahlen ausgebeult wird. Es ist zu bedenken, dass die Ionosphäre sehr empfindlich ist. Mit der Ozonschicht zusammen schirmt sie die Erde
+und deren gesamtes Leben vor der tödlichen Weltraumstrahlung ab. Es ist durchaus denkbar, dass die zusätzliche Energiestrahlung durch HAARP dieses sensible System nicht nur stören, sondern zerstören könnte,
+so natürlich auch die Ozonschicht.
+Die Militärs und deren Wissenschaftler wollen die Gefahren natürlich nicht sehen und nehmen einfach an,
+dass nichts passiert, folglich sie einfach weitermachen, und zwar trotz mahnenden Stimmen. Im Jahre
+2003 sollen es dann 180 Antennen sein, die den Wahnsinn einleiten. Tests laufen jedoch bereits jetzt mit
+etwa 60 fertiggestellten Antennen.
+
+Vor Alaskas Bergen wird ein Antennenwald erbaut,
+um eine Testzone für den Radiokrieg zu schaffen.
+Die Funktion soll folgendermassen sein: Über der
+Ozonschicht liegt die empfindliche Ionosphäre. Bei
+dieser handelt es sich um eine Gasschicht, die mit
+elektrischen Teilchen angereichert ist – Ionen. HAARP
+als Ionosphäreaufheizer nutzt seine Antennen, um
+mit diesen gebündelte Hochfrequenz-Radiowellen
+auf bestimmte Gebiete der Ionosphäre abzuschiessen, wodurch künstliche Ionenwolken entstehen, die
+ausgebeult werden und wie Linsen wirken. Diese
+werfen dann die ELF-Wellen zurück, die eine extrem niedrige Frequenz aufweisen. Diese können
+dann z.B. Flugkörper orten sowie auch für andere
+und störende wie auch tödliche Zwecke genutzt
+und auch auf andere Zonen der Erdoberfläche gelenkt werden, und zwar je gemäss dem Abschuss
+
+-----
+
+winkel der Radiowellen durch die Ionenlinsen.
+Schon vor langer Zeit verlor der Mars seine Atmosphäre, jetzt kann bald das gleiche der Erde drohen, und
+zwar durch die Verantwortungslosigkeit und den Wahnwitz der Amerikaner, die auch für den zerstörerischsten Wahnsinn des Zweiten Weltkriegs verantwortlich sind – für die Atombombe. Die Regierung der
+USA wiegelt zwar ab, dass es sich bei HAARP um eine rein wissenschaftliche Einrichtung handle, doch
+wahrheitlich versteckt sich hinter dem Projekt eine gigantische Strahlenwaffe, bei der es sich um ein neues,
+riesiges militärisches Potential handelt, das auch ein riesiges Gefährdungs-Potential für den gesamten Planeten und für dessen sämtliche Lebensformen darstellen kann. Die obligate Umweltstudie für das HAARP
+erwähnt sicherheitshalber ‹Veränderungen der Ionosphäre›, die u.a. auch den Ozongürtel beeinflussen
+könnten, doch wurde bezeichnenderweise diese Studie nicht vom US-Umweltbundesamt erstellt, sondern
+von der Air Force und von der Marine selbst.
+Eigentlich ist es ja keine Frage, warum ein Staat wie Amerika mit Strahlenkanonen die Ozonschicht und die
+Ionosphäre zerschiessen will, wenn man die Denkrichtung aller jener kennt, die immer die Grössten und
+Mächtigsten sein wollen – wofür natürlich alle jene Amerikaner, die dagegen und in ihrer Gesinnung wirklich positiv-menschlich sind, nichts können, und zwar auch nicht dafür, dass gewisse Elemente grosskotzbrockiger Form das Sagen haben oder im gleichen Rahmen mit diesen Pro und Hurra schreien.
+Es fragt sich aber trotz allem, warum wissend das Risiko einer unkontrollierbaren Kettenreaktion zumindest in der Ozonschicht und in der Ionosphäre eingegangen wird? Die Frage ist wohl damit zu beantworten, dass einerseits für die Militärs und die beteiligten Gross- und Kleinfirmen die Arbeitsbeschaffung
+und zweitens auch die Anwendungsmöglichkeiten von HAARP sowie die in Umlauf kommenden Gelder
+und nicht zuletzt die damit verbundene Macht ausschlaggebend sind.
+Mit HAARP können Kräfte freigesetzt werden, denen bis anhin jeder potentielle Gegner nichts entgegenzusetzen hat, das auch nur annähernd gleichwertig wäre. Bisher gehörten zu jedem nuklearen AngriffsSzenario mehrere in grosser Höhe gezündete Nuklearsprengkörper mit hohem EMP (Elektromagnetischer
+Puls). Mit HAARP als Waffe wird diese Wirkung auch ohne strahlende Energie des Atoms erreicht. HAARP
+kann noch viel mehr, denn es kann damit auch bis tief in die Erde geblickt werden, um z.B. auch Erdoilvorkommen zu finden oder um, wie bereits erklärt, auch geheime Bunker zu orten. Dass dabei bestimmte
+Strahlen für die Menschen, Pflanzen und Tiere nicht nur gefährlich, sondern sogar tödlich sein können,
+wird einfach ohne Bedenken in Kauf genommen. HAARP kann zwar als Super-Radar eingesetzt werden
+und gleichzeitig Marschflugkörper zerstören, doch das rechtfertigt nicht, mit dem Leben der Menschheit
+sowie mit dem der Pflanzen und Tiere und mit der Existenz des Planeten zu spielen. Das spielt aber für
+die Militärs und Grossfirmen sowie für die regierungsmässigen Verantwortlichen der USA keine Rolle.
+Ganz im Gegenteil, sie freuen sich noch darüber, dass sie nicht gegen Nuklearteststopps (an die sich sowieso keine Staaten halten, oder nur die wenigsten) und nicht gegen Verträge in bezug auf antiballistische
+Abwehrsysteme oder Abrüstungsverträge verstossen. Sie freuen sich aber auch darüber, dass sie, zumindest bis heute, in der grossen Weltöffentlichkeit mit ihrem verbrecherischen Tun noch kein grosses Aufsehen erregt haben, weil es bisher noch beinahe totgeschwiegen werden konnte – aber auch weil sich
+das Volk überhaupt nicht darum kümmert.
+Strahlenkanonen- und Mikrowellenkriege stehen kurz vor ihrer Wirklichkeitswerdung. Doch der Mensch
+der Erde kann sich effective nicht leisten, weder die Ozonschicht noch irgendeine andere die Erde umgebende Sphäre zu verlieren – oder gar das eigene Leben und das der Pflanzen und Tiere. Der Erdenmensch kann es sich nicht leisten, mit Gigawatt in der Atmosphäre herumzustochern und Beulen in die
+verschiedenen Sphären zu schlagen oder diese in ihrer Harmonie zu stören oder sie gar zu zerstören. Zumindest werden durch den Wahnwitz Wunden geschlagen, die niemals mehr heilen können, wodurch
+alles irdische Leben gefährdet wird, und zwar vielleicht für immer.
+Gegenwärtig ist die Anlage noch in schwachem Testbetrieb, doch treten bereits im Weltklima Störungen
+auf, die nicht mehr übersehen werden können. Doch diese Tatsache kümmert die HAARP-Verantwortlichen und deren Mitschreier in keiner Weise, ja sie bestreiten sogar, dass die globalen Naturkatastrophen
+
+
+-----
+
+etwas mit den gefährlichen Experimenten zu tun hätten, wogegen aber die Plejadier/Plejaren erklären,
+dass sehr wohl Zusammenhänge bestehen – wie auch im Bezug auf die Umweltverschmutzung, Klimaerwärmung und Umweltzerstörung, durch die Überschwemmungen, Vulkanausbrüche, Erdbeben und Unwetter ausgelöst werden, was auch durch die gegenwärtig noch geringen HAARP-Tests zustande kommt.
+Piloten werden schon seit längerer Zeit aufgefordert, die Anlage weiträumig zu umfliegen, und vielleicht
+ist in der Zwischenzeit die Anlage bereits auf voller Leistung oder wird dies im Jahre 1998 sein. Bereits
+ein Gigawatt reicht aus, um ein Loch in die Ionosphäre zu brennen, doch am Ende soll die Leistung der
+Anlage resp. der Strahlenkanone auf 100 Gigawatt gesteigert werden; das sind 100 Milliarden Watt.
+Tatsächlich ist es so, dass die neue Strahlenwaffe das Bewusstsein von Menschen und Tieren ebenso beeinflusst und schädigt wie auch das gesamte Erbgut sämtlicher Tiere und Pflanzen und natürlich der Menschen,
+einmal ganz abgesehen davon, dass das gesamte hochsensible Energiefeld der Erde bis zu einem Polsprung manipuliert werden kann.
+Der gefährlichen, zerstörerischen und tödlichen Möglichkeiten sind viele, die durch einen Ionosphärebeschuss zutage treten können. Doch darüber machen sich die Verantwortlichen keinerlei Gedanken,
+folglich das geheime Rüstungsprogramm, durch das die Ozonschicht zerschossen und die Ionosphäre
+aufgeheizt werden soll, bedenkenlos durchgeführt wird.
+Es war 1945 in Amerika, als Wissenschaftler im Auftrage der US-Regierung und der US-Militärs die erste
+Atombombe der Neuzeit zündeten. Und wie sie erst später bekannten, wussten sie ebenfalls vorher nicht,
+was eigentlich geschehen würde und ob vielleicht eine nukleare Kettenreaktion hervorgerufen und möglicherweise die gesamte Erdatmosphäre oder gar den Planeten verbrennen würde. Und wie damals bei
+dem Atombombentest stehen auch heute mit dem HAARP die Chancen 50:50. Auch heute wird mit diesem
+Chancenanteil das Experiment durchgeführt, wie damals 1945 die Bombenzündung. Die schlimmsten Befürchtungen trafen damals zwar nicht ein, weil noch einmal alles ‹gut› ging, doch entstanden aus dem
+Experiment andere und ebenso schreckliche Szenarien, als neue Bomben gebaut und auf menschliche
+Wohngebiete abgeworfen wurden, wodurch Hunderttausende von Menschen getötet, unzählige durch
+Verbrennungen verstümmelt und viele Nachkommen radioaktiv Verseuchter mehr Monster als Menschen
+wurden. Ausserdem wurden seither weltweit riesige Gebiete radioaktiv verseucht und für Zigtausende von
+Jahren unbewohnbar gemacht. Die Verseuchung geschah dabei sowohl durch Atombombentests wie
+auch durch kommerzielle Atombombennutzung. Doch noch immer nicht genug damit, denn auch zu
+friedlichen Zwecken benutztes Atommaterial forderte seither auf der ganzen Welt unzählige Menschenopfer, und zwar durch Verseuchungen resp. durch atomare Verstrahlungen, die durch Unfälle und
+Leichtsinn sowie durch Verbrechen enstanden. Und gerade in letzter Beziehung steht wieder einmal Amerika an der Spitze, denn die Verantwortlichen dieses Staates (der in dieser Beziehung nicht der einzige
+ist, leider) führte an Zigtausenden von unschuldigen Menschen und in ganzen Dörfern und Kleinstädten
+verbrecherisch heimliche Versuche mit radioaktiver Strahlung durch, so aber auch mit radioaktiven Medikamenten usw. usf. Das sind zwar Tatsachen, die inzwischen zumindest teilweise öffentlich bekannt wurden, doch sind sie einerseits bei weitem nicht alle aufgedeckt worden und andererseits derart unmenschlich, dass man sich fragen muss, ob eigentlich die Verantwortlichen und die Befürworter dieser
+Machenschaften selbst noch menschliche Wesen oder nur ungeheure, blutrünstige und verantwortungslose Monster waren und sind.
+Nun, mit der Atombombe, die zu Kriegs- und Kommerzzwecken genutzt wurde und wird sowie durch die
+sonstige und sogenannte friedliche Atomenergienutzung ist auf der ganzen Erde nicht wieder gutzumachender Schaden und unendliches Leid und Elend angerichtet worden – und wird noch weiter angerichtet.
+Nichtsdestoweniger jedoch machen die Amerikaner weiter und haben jetzt in aller Heimlichkeit ein neues
+Verbrechen an der Menschheit in Planung – eine hochbrisante Testserie für den Einstieg in ein neues,
+futuristisches, vernichtendes und tödliches Waffensystem, das ebenso vernichtend und tödlich für den gesamten Planeten und all seine Lebensformen sein kann, zu denen bekanntlich auch der Mensch gerechnet
+wird. Der Ausgang sowie die Spätfolgen des Wahnwitzes sind dabei ebenso ungewiss wie damals, als
+
+
+-----
+
+1945 die erste Atombombe gezündet wurde. Zwar gibt es entsetzte Wissenschaftler, die mit der ganzen
+Sache nichts zu tun haben und die der Meinung sind, dass wieder einmal durch die Machtsucht des
+Erdenmenschen und insbesonders der des US-Militärs und der US-Regierungsverantwortlichen das gesamte Leben der Erde in seiner gegenwärtigen Form sowie gar die ganze Existenz des Planeten auf dem
+Spiel stehe.
+Unter all jenen Wissenschaftlern, die sich ihrer Verantwortung noch bewusst sind, gilt das HAARP als eine
+der grössten Bedrohungen der Ozonschicht, dies jedoch nur nebst vielen anderen Einflüssen, die HAARP
+auch in anderen Sphären und auf der Erde sowie bei allen Lebensformen hervorrufen kann. Die Möglichkeiten reichen von Hautkrebs bis zur Klimazonenverschiebung, von ungeheuren Unwettern und Dürrekatastrophen bis hin zu Überschwemmungen, Erdbeben und Vulkanausbrüchen. Zwar alles Dinge, die
+jetzt schon zur Alltäglichkeit gehören und die durch den Wahnsinn Überbevölkerung und deren Folgen
+hervorgerufen werden, wie z.B. Umweltzerstörung und Umweltverschmutzung und daraus resultierender
+Treibhauseffekt und Erdoberschicht-Gewichtsverlagerungen usw. usf. Seit geraumer Zeit sind aber auch
+die bereits andauernden HAARP-Versuche schuld daran, durch die Klimaveränderungen und dadurch weltweit Erdbeben, Vulkanausbrüche und sintflutartige Unwetter und Umweltkatastrophen ausgelöst werden,
+was natürlich von den HAARP-Verantwortlichen bestritten wird, wozu jedoch die Plejadier/Plejaren erklären, dass dem tatsächlich so sei und dass mit dem HAARP auf lange Sicht derart viel Schaden, Leid,
+Elend, Not, Verheerung und Zerstörung angerichtet werde, dass ein Wiederausgleich der gesamten
+Natur und allen Lebens nicht mehr möglich sei, weil Langzeitwirkungen entstünden, die restlos alles derart negativ beeinflussten und die kein Sichwiedererholen zuliessen.
+Weltweit wird seit geraumer Zeit Jagd gemacht auf Ozonkiller, wie FCKW, was ja auch richtig ist. Die
+Amerikaner jedoch stellen sich in vielen Dingen des Umweltschutzes ebenso quer wie auch hinsichtlich der
+Lebensförderung und Lebenserhaltung im allgemeinen, wie allein schon durch die Todesstrafe bewiesen
+wird, die von vielen Amerikanern zur Herrlichkeit hochgejubelt und gnadenlos zur Anwendung gebracht
+wird. Und wie sie sich, die US-Verantwortlichen und ihre Pro- und Hurraschreier, in diesen Dingen selbstherrlich benehmen, so tun sie das auch mit ihrem neuen Waffensystem HAARP und setzen sich über alle
+Köpfe der gesamten Menschheit hinweg, um gefährliche Löcher in die empfindliche Ionosphäre zu
+schiessen und alles Leben der Erde zu gefährden. Sie nehmen sich einfach das Recht, darüber zu bestimmen und zu glauben, nichts gehe über ihren verdammen Macht- und Grössenwahnsinn.
+Durch HAARP wird die Ionosphäre geschädigt und teilweise geschmolzen, was die Gefahr hervorruft,
+dass ungehindert kosmische Strahlung eindringen kann. Schon allein das bezeugt, dass HAARP ein verantwortungsloses Projekt ist. Der Wahnsinn hat aber bereits Geschichte, die dem Volk in der Regel verheimlicht wird: Bereits 1958 wurden im Weltraum 3 Atombomben gezündet, um damit das Wetter zu beeinflussen. Nach diesem Wahnwitz dauerte es nur gerade zwei Jahre, ehe als Folge eine ganze Serie
+Klimakatastrophen in Erscheinung trat. 1961 war es dann soweit, dass 350 000 2-4 Zentimeter lange
+Kupfernadeln in die Ionosphäre geschossen wurden, wonach sich die Erde dadurch rächte, dass in Alaska
+ein Erdbeben der Stärke 8,5 losbrach und in Chile ein Grossteil der Küste ins Meer abrutschte. 1963 dann
+zündeten die Amerikaner und die UdSSR 300 Megatonnen starke Atombomben in der Stratosphäre, wodurch riesige Löcher in die Ozonschicht gerissen wurden. Und dies sind nur gerade einige wenige der
+menschheitsverbrecherischen Machenschaften der Amerikaner und der ehemaligen Sowjet-Union, denn
+wahrheitlich gehen mehrere Dutzend solcher Verbrechen auf die Kappe der Amerikaner und Russen
+sowie der Franzosen, Israeli, Chinesen und anderer, die am gleichen Strick ziehen.
+Was jetzt durch HAARP kommen kann, kann noch weit schlimmer sein als alles bisher Dagewesene. Die
+Gefahr droht aus Alaska, und zwar 320 Kilometer nordöstlich von Anchorage. In der dortigen Einsamkeit
+entsteht ein 360 Masten umfassender und 24 Meter hoher Antennenwald, mit dem die Militärs gebündelte Hochfrequenzstrahlen in die Ionosphäre jagen wollen (und dies testweise auch schon seit geraumer Zeit
+tun, wodurch bereits erweitert Klima- und Unwetterkatastrophen sowie Erdbeben und Vulkanausbrüche
+entstehen), um den Schutzgürtel zu erhitzen und teilweise zu verschieben. Dadurch werden in die Iono
+
+-----
+
+sphäre gigantische ‹Linsen› gebrannt, durch die dann die Strahlen gebündelt zur Erde zurückgeschickt
+werden. Die wissenschaftlichen Grundlagen für HAARP hat der verantwortungslose Tesla-Schüler Bernard
+Eastlund geschaffen, der seine Arbeit schon 1985 unter der bedrohlichen Bezeichnung «Methode und Vorrichtung zur Veränderung eines Bereiches in der Atmosphäre, Ionosphäre und/oder Magnetosphäre der
+Erde» patentieren liess. Ein Projekt, das globalen Vandalismus bedeutet, weil dadurch riesige Mengen
+Energie in Gigawatt-Stärke in die oberen Sphären der Erde geschossen werden, wobei in keiner Weise
+abgeschätzt werden kann, was dadurch in der früheren oder späteren Zukunft mit der Erde und deren
+gesamten Lebensformen an Menschen, Tieren und Pflanzen geschehen wird.
+Wenige Jahre nach seiner Erfindung verlor Eastlund infolge Geldmangels die Kontrolle über sein Patent,
+zu dem er erklärte, dass es sich bei der entstehenden Antennenanlage in Alaska um eine gigantische
+Strahlenwaffe handle, die nicht nur alle Kommunikationsnetze, sondern auch Raketen, Flugzeuge und
+Satelliten zerstören und noch sehr viel mehr könne. Gewollte oder ungewollte Nebenerscheinungen seien
+u.a. auch Klimakatastrophen auf der ganzen Erde oder auf Teilen derselben, wie aber auch der Einfall
+von tödlicher Weltraumstrahlung in völlig unschützbarer Form auf zu bestimmende Erdteile durch Militärs
+und Staatsverantwortliche usw.
+
+400km Exosphäre
+
+Mittlere Temperaturverteilung
+für die Breitenzone 30-50
+
+300 Polarlicht F2-Schicht
+
+200 F1-Schicht Thermosphäre(Ionosphäre)
+
+E-Schicht
+
+100
+90
+80 Mesopause
+
+70 leuchtende Nachtwolken
+
+im Sonnenfleckenmaximum 60 Obergrenze der Dämmerung Mesosphäre
+
+im Sonnenfleckenminimum 50 Meteor
+
+Stratopause
+
+40
+
+30 Schallwellen Perlmutterwolken Stratosphäre
+
+20 Zirren
+
+10 Gewitterwolken Mt. Everest Tropopause
+
+Troposphäre
+
+Regenbogen
+
+-100 0 100 250 500 750 1000 1250 °C
+
+Aufbau und mittlere Temperaturverteilung der Erdatmosphäre
+
+Billy
+
+## Tropenwaldsterben
+### Amazonasforscher schlagen Alarm
+Fällt am Amazonas ein Baum einer Axt oder einem Feuer zum Opfer, dann droht nicht nur mindestens
+auch ein zweiter einzugehen, sondern während eines Zeitraums von 10 bis 17 Jahren auch bis zu 36 Prozent der Vegetation rund um die abgeholzten Flächen. Nichtsdestoweniger jedoch wird der verbrecherische Frevel von Profithaien bedenkenlos weiterbetrieben.
+Diesem zusätzlichen Verlust an tropischem Regenwald kamen Forscher durch ein Experiment im brasilianischen Manaus auf die Spur. Zu Studienzwecken wurden knapp 70 ‹Kahlschläge› in den Regenwald gehauen und die Auswirkungen auf die umgebende Vegetation untersucht, wodurch der Nachweis gelang,
+dass das Roden und Verbrennen des Waldes den Nährstoffzyklus und andere biologische Prozesse, wie
+z.B. die Befruchtung der Bäume und Pflanzen, nachhaltig verändert. Die verbrecherisch-frevlerischen Ein
+|mmerung|Col2|
+|---|---|
+
+
+-----
+
+griffe der Menschen bewirken mikroklimatische Veränderungen und stetig zunehmende Windturbulenzen
+in einem rund 100 Kilometer breiten Randstreifen um die kultivierten Parzellen im Urwald. Das beweist,
+dass mit dem verbrecherisch-frevlerischen Abholzen des Urwaldes resp. mit dem völligen Kahlschlagen desselben das Baumsterben nicht beendet ist, sondern eigentlich erst richtig beginnt, denn die darauffolgende naturbedingte Zerstörung setzt sich noch mindestens ein bis knapp zwei Jahrzehnte weiter fort.
+Zu befürchten ist, dass die so zusätzlich verlorene Biomasse auf längere Sicht nicht wieder von selbst
+nachwächst, sondern dass die ältere Vegetation des Regenwaldes langsam aber bestimmt eingeht und
+durch kürzere, niedrigere und buschartige Wälder mit sehr geringem Volumen und weniger Biomasse ersetzt wird. Weiter werden auch makroklimatische Veränderungen ausgelöst, die weltumfassend wirksam
+werden und gewaltige Zerstörungen anzurichten vermögen. Umso dringender wird es, den Wahnsinn der
+Regenwaldzerstörung endlich zu stoppen, was nur durch die Macht der Regierungen geschehen kann –
+wenn diese nicht mit den verbrecherischen Profithaien unter einer Decke stecken oder gar selbst für die
+Verbrechen am Tropenwald verantwortlich zeichnen, wie das in verschiedenen Ländern der Fall ist.
+Schuld daran tragen aber auch jene Finanzhaie und Haibanken, die durch Darlehen und
+Entwicklungshilfegelder den verbrecherischen Wahnsinn der Urwaldzerstörung noch fördern – unter dem
+Deckmantel der Humanhilfe, wobei jedoch in Wahrheit für sie nur der horrende Profit wichtig ist.
+Billy
+
+
+## Leserfrage
+Von Billy wird behauptet, dass er nur ein dummer Bauer mit nur geringer vierjähriger Schulbildung sei,
+und auch nur eine mangelhafte schweizerdeutsche Schriftsprache beherrsche. So jedenfalls wird behauptet. Wer schreibt denn nun all die Arikel, Schriften und Bücher, die unter Billys Namen erscheinen?
+Was stimmt nun daran nicht? – Ich meinerseits machte so meine Feststellungen.
+Priska Sauber, Schweiz
+
+## Antwort:
+Sicher versteht es sich von selbst, dass Billy die oben gestellten Fragen nicht selbst beantworten will. Es
+liegt ihm nämlich keineswegs, über seine Person grosse Worte zu verlieren. Im Zusammenhang mit den
+gestellten Fragen scheint es mir aber angemessen, etwas mehr über Billys Schulzeit und seine Ausbildung
+verlauten zu lassen, als er selbst das tun würde. Im Verlaufe dessen, was es dazu zu sagen gibt, werden
+sich die gestellten Fragen ohnehin selbst beantworten, ohne dass ich explizit darauf eingehen muss:
+Der junge Eduard Meier besuchte in Bülach die Primarschule in den Jahren ab 1943. Die ersten drei Jahre
+verliefen ‹ohne nennenswerte Vorkommnisse›, wenn man davon absieht, dass er damals seinen Lehrer
+Karl Graf derart mit Fragen bombardierte, dass dieser sich sogar an Professoren wandte, um die klugen
+Fragen seines kleinen Schülers beantworten zu können – und nur zu oft kam es vor, dass keine Antworten möglich waren, weil es diese einfach noch nicht gab. Es versteht sich dabei auch von selbst, dass er
+ohne Anstrengungen lesen und rechnen erlernte. Der kleine, unscheinbare Junge war ein Kind, das sich
+sehr gut mit sich selbst und seinen Interessen beschäftigen konnte und das nicht selten für ganze Tage oder
+Nachmittage verschwand und seinen eigenen ‹Geschäften› nachging.
+Der Wechsel von der dritten in die vierte Primarschulklasse brachte auch einen Lehrerwechsel mit sich,
+der sich recht übel auswirken sollte. Der neue Lehrer, Hans Frei, der für die Schüler der vierten bis sechsten
+Klasse zuständig war, hatte aus unerfindlichen Gründen eine Aversion gegen seinen neuen Schüler und
+plagte diesen, wo immer er eine Gelegenheit dazu fand. Eduard quittierte diese Behandlung damit, dass
+er einfach die Schule schwänzte, ohne dabei jedoch den Schulstoff zu vernachlässigen, den er sich mit
+der Hilfe Sfaths und des Freundes seines Vaters, Fritz Seidel, ‹so nebenbei› erarbeitete. Schlussendlich
+brachte es der Junge auf satte 175 unentschuldigte Absenzen im vierten Schuljahr, während dem er auch
+
+
+-----
+
+-----
+
+Die Mär vom 4. Klasse-Schulabgang kann nur durch ein Missverständnis oder durch kaltes Kalkül zustande gekommen sein, durch Personen, die sich durch diese Behauptung einen besonderen Profit erhofften. Durch weitere Autoren, die mit den schweizerischen Schulgesetzen nicht vertraut waren, wurde
+diese Fehlinformation unwissentlich oder böswillig weiterverwendet und zum Teil sogar noch aufgebauscht. Die Schulgesetze der Schweiz verunmöglichten schon in den 40er Jahren, dass ein Schweizer in
+der vierten Klasse von der Schule abgehen konnte, denn gesetzlich sind bei uns neun Schuljahre als mindeste Ausbildung vorgeschrieben.
+Autodidaktische Ausbildung war in Billys Leben stets sehr gross geschrieben und sie ist auch heute noch
+seine Quelle ständigen Lernens in jeder Hinsicht. Nicht nur den perfekten Umgang mit der deutschen
+Sprache hat er sich weitgehend selbst erarbeitet, sondern auch eine Fülle handwerklicher Fähigkeiten, die
+es ihm ermöglichen, in einer Vielzahl verschiedenster Berufe fachlich kompetent tätig zu sein.
+Fazit: Nach allem, was bisher erklärt wurde, ist es absolut unmöglich, dass jemand anders als Billy selbst
+seine Artikel, Schriften und Bücher verfassen könnte. Sein Gebrauch der deutschen Sprache ist der eine,
+kleine Beweis für diese Tatsache, sein überragendes Wissen und die für irdische Verhältnisse absolut einmalige Weisheit, die aus seinen Schriften spricht, der andere grosse.
+Bernadette Brand
+
+## Leserfrage
+«Aus den Tiefen des Weltenraums ...», bei Ihrem Photo Nr. 96 steht das Datum 20.9.1998, das muss eine
+Verschreibung sein. Könnten Sie mir die wirkliche Jahreszahl der Entstehung dieses Fotos sagen?
+Arthur Wucher/Schweiz
+
+## Antwort:
+Tatsächlich handelt es sich bei dieser Jahresangabe um einen Schreibfehler. Das richtige Datum der Aufnahme lautet: 20.9.1989.
+Billy
+
+## Leserfrage
+Talmud Jmmanuel, Seite 162-164: Ist es nicht möglich gewesen, eine Zeitreise in die Vergangenheit zu
+arrangieren, um die Schriftrollen vor der Versiegelung zu kopieren? Oder da nichts verloren gehen kann,
+sind diese Texte nicht bei Ptaah oder in der Arahat Athersata-Geistesebene oder in den Akasha-ChronikSpeicherbänken registriert, um von dort abgerufen werden zu können?
+Arthur Wucher/Schweiz
+
+## Antwort:
+Zur Zeit der Anfertigung der Schriftrollen wurden diese aufzeichnungsmässig laufend von den Plejadiern/
+Plejaren übernommen und somit sichergestellt, folglich dies vor der Harzversiegelung nicht noch speziell
+notwendig war und weshalb auch keine Vergangenheitsreise zu deren Sicherstellung notwendig war.
+Durch die Übersetzung der Schriftrollen durch Isa Rashid sowie durch die Mithilfe der Plejadier/Plejaren
+wurden die Schriftrollen von mir genauestens überarbeitet und dann nach Ptaahs OK für den Druck veröffentlicht. Das restliche Material, das von Isa Rashid nicht mehr übersetzt werden konnte, ist nicht von
+grosser Bedeutung, denn es bezog sich nur noch auf Wiederholungen der Lehre Jmmanuels, die er in
+Indien verbreitete, folglich praktisch kein grosser oder überhaupt kein Schaden entstanden ist durch die
+Vernichtung.
+Die Schriften fielen nicht den Israelis in die Hände, sondern sie wurden eindeutig vernichtet, wie Semjase,
+Quetzal und Ptaah eindeutig erklärten. Und da es sich beim fehlenden Restmaterial nur um Lehrewiederholungen handelt, ist es auch nicht des Wertes, sich darüber noch weitere Gedanken zu machen; das
+wirklich wichtige Material wurde noch frühzeitig übersetzt und als Talmud Jmmanuel veröffentlicht.
+Billy
+
+
+-----
+
+## Leserfrage
+Semjases Hirnkollaps: Billy, Sie erhielten bei Ihrem ersten Besuch bei Sfath eine Haube aufgesetzt, mit der
+Ihnen ungeheures Wissen übertragen wurde. … könnten so auf diese Weise Semjase ihre PSI-Kräfte und
+erlernten Fähigkeiten nicht wieder zurückgegeben werden, damit es nicht 70 Jahre dauert, bis sie alles
+wieder erlernt und erlangt hat? Sie war ja nicht gestorben. Oder sind Schöpfungs-Gesetze da, dass so
+etwas nicht möglich ist, auch nicht aus den Akasha-Speicherbänken, da gemäss dem Buch ‹Die Psyche›,
+Seite 19, 3. Abschnitt, die dort gespeicherten Informationen praktisch zur ewigen Haltbarkeit und Beständigkeit umgeformt werden?
+Arthur Wucher/Schweiz
+
+## Antwort:
+Semjase verfiel nach ihrem Unfall in einen Zustand hochgradiger Reduzierung der Stoffwechselprozesse,
+was mit anderen Worten Scheintod bedeutet. Dies ist ein Zustand tiefster Bewusstlosigkeit, in dem die
+Vitalfunktionen, wie Atmung, Herztätigkeit und Reflexe derart reduziert sind, dass diese ohne spezielle
+und vor allem apparative Hilfsmittel, die z.B. EEG und EKG ermöglichen, nicht mehr festgestellt werden
+können. Die in der genannten Form reduzierten Vitalfunktionen gewährleisten in noch minimalster Form
+für eine gewisse Zeit die Versorgung der lebenswichtigen Organe, was zur Folge hat, dass nicht alle
+Todeszeichen ausgeprägt sind. Das Zustandekommen des Scheintodes ist vielfältig, folglich dieser z.B.
+durch Schlafmittelvergiftungen und ähnliches sowie durch starke Unterkühlung, durch elektrische Unfälle,
+Ertrinken, Lungenembolie, Schlaganfälle, hohen Blutverlust oder durch Schädelverletzungen und Hirnschädigungen usw. hervorgerufen werden kann. Ein Erfolg bei Wiederbelebungsmassnahmen hängt
+ebenso von der Dauer des Scheintodzustandes ab wie auch eine vollständige Wiederherstellung aller
+Körperfunktionen.
+Durch den Unfall erlitt Semjase grössere Zerstörungen ihrer Hirnmassen, und zwar sowohl am Grosshirn
+(beide Halbkugeln des Gehirns) wie auch am Kleinhirn (syn. Cerebellum) und an der Grosshirnrinde (cerebral cortex). Dies hatte zur Folge, dass die zerstörten Gehirnteile künstlich wieder hergestellt und durch
+einen sehr schwierigen medizinisch-chirurgischen Eingriff ausgewechselt werden mussten, was jedoch die
+Plejadier/Plejaren nicht zu tun vermochten, sondern nur die Wissenschaftler eines 4000 Jahre weiterentwickelten Volkes namens Sonaer, aus dem DAL-Universum, die durch Askets Hilfe in unser DERN-Universum kamen, das von Askets Volk Senan-Universum genannt wird. Allein der Umwandlungsprozess der
+künstlichen Gehirnmasse, die Semjase eingepflanzt wurde, nimmt mehrere Jahre in Anspruch, was allerdings nach plejadisch-plejarischen Massstäben gesehen werden muss, denn nach ihren Begriffen sind
+sechs Jahrzehnte ‹einige Jahre›, und diese Zeit dauert es für den Umwandlungsprozess, damit die neuen
+künstlichen Hirnteile derart sich umformen oder umwandeln, dass sie dann solchermassen sind, als wären
+sie von Geburt auf normale Gehirnbestandteile.
+Das ganze Drum und Dran dieses medizinisch-chirurgischen Verfahrens und die diesbezügliche Technik
+ist mir unbekannt, folglich ich darüber auch nichts Näheres berichten kann. Zu erklären vermag ich aber
+noch folgendes: Einmal erlernte und dann verlorene Fähigkeiten können nicht einfach z.B. durch apparative Übertragung usw. wieder in ein Gehirn eingesetzt werden, denn Fähigkeiten selbst müssen auch in der
+Praxis erarbeitet werden, und zwar auch dann, wenn das theoretische Wissen apparativ in das Hirn vermittelt werden kann. Weiter ist die Technik der Sonaer auch noch nicht. Zudem war sie zur Zeit des Unfalls von Semjase auch noch nicht derart ausgereift, dass sie vollauf funktionierte, weshalb es zwangsläufig zu Komplikationen kam. Im weiteren sind die Fähigkeiten, die Semjase neu erlernen muss, nicht
+einfach PSI-Kräfte-bestimmt, sondern derart, dass sie mit der Nutzung der neugeschaffenen Hirnteile zusammenhängen. Das bedeutet, dass sie die Fähigkeiten der Nutzung ihres neuen Gehirns und Bewusstseins von Grund auf neu erlernen muss, was etwa sechs bis sieben Jahrzehnte dauert. Mit dem Wiedererlernen ihrer Fähigkeiten sind also im hauptsächlichen diese Faktoren gemeint.
+
+
+-----
+
+Die Plejadier/Plejaren konstruieren schon seit einigen Jahrtausenden bioorganische Gehirne für ihre
+Androiden, doch handelt es sich dabei, wie man mir früher einmal erklärte, nicht um Gehirne gleicher Art,
+wie sie der Mensch besitzt. Mit der Herstellung künstlicher Gehirne, die ‹menschentauglich› sind, befassen
+sich die Plejadier/Plejaren-Wissenschaftler zwar schon sehr lange, erklärte man, doch entscheidende
+Fortschritte dieser Form erlangten sie erst durch die Hilfe der Sonaer aus dem DAL-Universum, mit denen
+seither diesbezüglich und auch auf anderen Gebieten eine enge Zusammenarbeit stattfindet. Eine Perfektion in der künstlichen Gehirnherstellung ist bis anhin jedoch noch nicht erreicht, weshalb auch noch
+ein langer Regenerationsprozess erforderlich ist, bei dem auch eine Umwandlung der künstlichen Gehirnmasse erfolgt.
+Billy
+
+## Big Foot als Retter
+Aus Vancouver/Kanada wurde im November 1997 berichtet, dass ein ‹braver Big-Foot› einem Bergsteiger das Leben gerettet haben soll. Der Gerettete, Peter White, ein 35 Jahre alter Bergsteiger, war im
+kanadischen Backbone-Gebirge am sogenannten Marmot-Pass unterwegs, bei Regen und matschigem
+Boden. Plötzlich soll er den Halt verloren haben, auf den Hintern gefallen und den Abhang hinuntergerutscht sein.
+Wie der Mann berichtete, stürzte er dann in eine Schlucht, schlug mit dem Kopf auf einem Felsen auf und
+verlor das Bewusstsein. Als der Bergsteiger – ein Tankwart aus Vancouver – wieder erwachte, traute er
+seinen Augen kaum. Er erklärte: «Erst spürte ich einen heissen Atem, dann sah ich ein grosses, haariges
+Gesicht mit tiefliegenden Augen. Zweifellos lag ich in den Armen eines Big Foot.» Und dieser schien an
+White den Narren gefressen zu haben, denn er trug den Verletzten vorsichtig aus der Schlucht und legte
+ihn dann sanft unter einem Baum auf den Boden. Wie White erklärte, brummte der Big Foot manchmal
+vor sich hin.
+Als der Morgen graute, erkannte der Bergsteiger, dass ihn der gutherzige Big Foot oder Schneemensch –
+denn vielleicht war es ja auch ein Yeti – zu einem Bach gebracht hatte, was des Verletzten Glück war,
+denn erst Tage später wurde er gefunden, wobei er äusserte, dass er sich darüber gewundert habe, weshalb der Urmensch ihm geholfen habe.
+Ein Ranger von der Backbone-Bergwacht, Steve de Milly, so wurde berichtet, soll den Aussagen des Bergsteigers Glauben schenken, denn bei einem Nachforschen vor Ort sollen die Suchenden ungewöhnlich
+grosse Fussabdrücke gefunden haben.
+Billy
+
+## Revolte der Internet-Benützer
+Aus Amerika wird berichtet, dass angeblich eine Revolte der Internet-Benützer im Anzug ist, und zwar
+gegen SAIC, eine grosse Verteidigungs- und Nachrichtendienst-Vertragsfirma. Durch den Ankauf der
+Firma Internic im US-Bundesstaat Virginia, gewann SAIC volle Kontrolle über das Internet, und SAIC könnte
+das gesamte Internet sozusagen mit einem Schalterknopf blockieren, oder die Information an der Quelle
+heimlich verändern und verfälschen. Jedenfalls haben bei vielen Benützern des Internets die Alarmglocken geklingelt! Inzwischen haben bereits durch SAIC unter Kontrolle gehaltene ‹servers› falsche Informationen als Antworten auf automatische ‹hosts› Anfragen gegeben. Oftmals wurde ihnen gesagt,
+dass die ‹name servers› nicht existierten. Diese ‹name servers› werden verwendet, wenn jemand einen
+‹host› im Internet oder E-mail sucht. Die ‹name servers› sind wie ein Telephonbuch oder Vermittlungsdienst
+im Internet, und sie enthalten alle Internet ‹host› Nummern. Die wichtigsten ‹servers›, welche die Infor
+
+-----
+
+mation über die Struktur des ‹Telephonbuches› enthalten, werden nun von Internic betrieben, einer Abteilung der Firma Network Solutions Inc., deren Besitzer diese SAIC ist …
+Diese Firma bietet nicht nur schlechten Service und ist teuer, ihr Ziel soll es auch sein, alles im Internet
+unter Kontrolle zu halten und heimlich zu zensieren. Der Vorstand dieser Firma besteht aus Robert Gates
+(CIA-Direktor unter Präsident Bush), aus John Deutsch, dem gegenwärtigen CIA-Direktor, Anita Jones
+(Deutschs frühere Pentagon Nachrichtenoffizierin), William Perry (ehemaliger Verteidigungsminister) und
+allen möglichen anderen Direktoren und Mitgliedern des Sicherheitsdienstes.
+Wie berichtet wird, wäre es möglich, dass die Falschinformation, die gegenwärtig von Internic ‹name
+servers› herausgegeben wird, nur ein einfaches technisches Problem ist, aber das scheint höchst unwahrscheinlich zu sein, denn die ‹root name servers› haben das Internet fast 30 Jahre lang ohne Probleme
+unterhalten, und die ‹server software› war bisher ebenfalls verlässlich. (Weitere Infos dazu evtl. im nächsten
+Bulletin.)
+H + B/USA, Billy
+
+## ‹Lichtwellen-Handy›
+Mit der Betrugsgestalt ‹Ashtar Sheran› (der schon vor Jahren als gefährlicher Verbrecher während eines
+Weltraumkampfes im DAL-Universum eliminiert wurde) werden immer wildere Blüten getrieben. Nicht
+genug damit, dass Wahnkranke und Betrüger laufend behaupten, mit dieser Gestalt in Verbindung zu
+stehen und ständig neue Botschaften von ihm zu erhalten, denn jetzt werden mit ihr auch noch andere
+kommerzielle Geschäfte betrieben, wie in den UFO-Nachrichten vom September/Oktober 1997 mit folgender Darlegung berichtet wird:
+
+## ‹Ashtar› und das ‹Lichtwellen-Handy›
+
+### Im Juli und August 1997 erhielten viele Personen im deutschsprachigen Raum wichtige Post von Ashtar. Dies ist aber nicht Kommandant Ashtar Sheran – nein – dieser Ashtar kommt von der ‹Vereinigung Brüder des Weltalls› und machte mit seiner Crew eine Notlandung auf der Erde. Da er nun auf unserer Erde aus den gegebenen Umständen wohl zurückbleiben muss, blieb ihm nichts anderes übrig, als ein lukratives Geschäft zu eröffnen. Ashtar verkauft LICHTWELLEN-HANDYS – und – man glaubt es kaum – per Knopfdruck ist man in Kontakt mit den Brüdern aus dem All. Doch nicht nur das, die Raumbrüder scheinen nun endlich ein Einsehen mit uns armen Erdenmenschen zu haben und wollen uns mittels Handy fortan jeden Wunsch erfüllen! In dem Brief heisst es z.B.: «Und niemand ist Ihnen böse, sollte der ‹jüngste Tag› noch Jahrhun- derte auf sich warten lassen, wenn Sie den Kontakt zu den hochentwickelten ausserirdischen Wesen dazu benutzen, um irdische Vorteile, wie die Erfüllung von x-beliebigen Wünschen zu erreichen …» Auch kann man mittels Handy dem 3. Weltkrieg oder gar dem Polsprung entfliehen (!) Und das Schönste: die- ses Lichtwellen-Handy kostet nur 120.– DM. Wir möchten alle unsere Leser bitten zu prüfen, wo sich die Realität befindet und wo Fantasie oder gar Betrug anfängt. In einem hat dieser Ashtar recht, wenn er zu Anfang seines Angebotes schreibt: «Im ersten Moment werden Sie denken – da will sich jemand einen Spass mit mir erlauben –, aber wenn Sie aufmerksam weiterlesen, werden Sie feststellen, dass das Ganze bitterer Ernst ist!» Ja, es ist bitterer Ernst, denn wem daraus das Paradies geschaffen wird und wer sich dann jeden x-beliebigen Wunsch erfüllen kann, ist näm- lich einzig und allein ‹Ashtar› von den ‹Brüdern des Weltalls› – dann nämlich, wenn möglichst viele Leute sein Lichtwellen-Handy kaufen! (UN Nr. 331, September/Oktober 1997, VENTLA-Verlag Nachfolger, D-33330 Gütersloh, Postfach 3112)
+
+Vom Ventla-Verlag aus wird zwar gesagt, dass es sich bei der Benennung ‹Ashtar› nicht um die des
+Verbrechers Ashtar Sheran handle, doch eine solche Fügung gibt es sicher nicht, dass ausgerechnet ein
+
+
+-----
+
+Ausserirdischer namens Ashtar auf der Erde auftauchen soll, der nur gerade den Namen mit einem
+anderen gemeinsam hat, der schon seit Jahrzehnten in den Gehirnen von Wahnkranken und Betrügern
+sowie deren Anhängern herumgeistert.
+Billy
+
+## UFO-Beobachtungen
+1) Am 21. September 1997 beobachteten Atlantis Meier, Automonteur, Guntershausen TG und Simone
+Holler, Pharm. Tech. Assistentin, Sigmarzell BRD, ein sterngrosses Lichtobjekt, das von Norden nach
+Süden flog. Die Geschwindigkeit war 3-4mal höher als die eines Düsenjets und die Flughöhe auch
+über der, in der ein Verkehrsflugzeug fliegt. Die Flugbewegung des Lichtobjektes war geradlinig und
+geräuschlos. Der Himmel war sternenklar. Die Beobachtung fand in CH-8495 Schmidrüti, Hinterschmidrüti statt, und die Farbe des Lichtobjektes war weiss. Das Objekt konnte beobachtet werden,
+bis es hinter dem Baumhorizont verschwand.
+
+2) Am 26. Oktober 1997 beobachtete Christian Krukowski, Landschlacht TG um 05.13 h während ca.
+4 Min. ein weisses sterngrosses Flugobjekt, zu dem sich dann ein zweites gesellte. Er berichtet folgendes über seine Sichtung: Bemerke zuerst ‹fahrenden Stern› von West nach Ost. Plötzlich kommt ein
+kleiner ‹Stern› hinterhergeflogen, im Zick-Zack, und fliegt in gleichem Abstand und in gleicher Geschwindigkeit dem grossen ‹Stern› hinterher. Dann drehen beide Objekte gleichzeitig ab und fliegen in
+gleichbleibendem Abstand von Ost nach West zurück. Geräusche waren keine zu hören. Der Beobachtungsort war im SSSC während eines Nachtwacherundganges.
+
+3) Am 9. August 1997 beobachtete ich, Billy, um 22.10 h folgendes bei sternenklarem Himmel: Einen
+Rundgang auf dem Hofgelände machend, ging ich gerade über den Garagenparkplatz, als ich auf
+ein helles, grosses Leuchtobjekt aufmerksam wurde, das sich in schätzungsweise 4-5 Kilometer Höhe
+von Süden her Richtung Nord-Ost bewegte, und zwar derart langsam, dass ich es während gut drei
+Minuten genau betrachten konnte und während denen es eine Flugdistanz von etwa zwei Kilometern
+zurücklegte – von meiner Sicht aus gesehen. Bei dem Objekt handelte es sich um eine wie ein oranges
+Bengallicht gleissende Kugel mit einem von meinem Beobachtungsort aus gesehenen Durchmesser von
+etwa 50 Zentimetern. Um das Objekt herum war ein ‹Feuerkranz› gelbroter Strahlen, die ebenfalls
+mit etwa 50 Zentimetern Breite das Objekt umflackerten, folglich das Ganze im Durchmesser etwa
+150 Zentimeter betragen haben dürfte. Vergleichbar wäre das beobachtete Objekt mit einer zeichnerisch dargestellten Sonne mit Strahlen rundum.
+Etwa drei Minuten das ungewöhnliche und auch sehr langsame Objekt beobachtend, hörte ich plötzlich
+vor dem Wohnhaus auf dem kiesigen Grund Schritte, als sich jemand dem Haus näherte. Bemüht
+darum, diesem Jemand meine Beobachtung ebenfalls vor Augen zu führen, rief ich lautstark, um auf
+mich aufmerksam zu machen. Leider wurde mein Rufen jedoch nicht gehört, denn umgehend verschwand die Person im Windfang des Hauses. Also widmete ich mich wieder meiner Beobachtung,
+wobei ich jedoch das Objekt nur noch wenige Sekunden sehen konnte, wonach es dann spurlos verschwand, und zwar so geräuschlos, wie es schon vorher die ganze Zeit der Fall war.
+
+Bei dem beobachteten Objekt handelte es sich eindeutig nicht um ein Plejadier-Plejaren-Schiff, sondern um ein mir absolut unbekanntes Flugobjekt, dessen Form ich in all den Jahren meiner Kontakte
+noch niemals gesehen habe.
+
+4) Frau Hiestand, Wetzikon-Pfäffikon berichtet, dass ihre Tochter im Monat September über CH-Hinwil
+ZH gegen 23 Uhr ein etwa fussballgrosses orangeleuchtendes Objekt hoch am Himmel beobachtet
+habe, das rundum einen feurigen Kranz aufwies und das während rund 10 Minuten am selben Ort
+
+
+-----
+
+am Himmel schwebte. Auf der Terrasse ihres Hauses stehend rief die Beobachterin ihrem Mann, der
+das Objekt ebenfalls noch einige Zeit zu sehen vermochte, ehe es dann einfach plötzlich verschwand.
+Während der ganzen Beobachtung war kein Geräusch zu hören.
+
+Ebenfalls Frau Hiestand berichtet, dass sie gegen 22.15 h am 30. Oktober 1997 auf dem Balkon ihrer
+Wohnung stand und den Himmel beobachtete, als sie plötzlich am Nachthimmel Richtung Nord-West
+ein annähernd fussballgrosses, gleissendes Objekt sah, das einen eigenartigen Flammenkranz aufwies. Als sie nach ihrem Mann rief, der das Objekt auch sehen sollte, damit man ihr nicht vorwerfen
+könne, sie hätte phantasiert, sah dieser das Objekt ebenfalls. Als er den Feldstecher holte, um alles
+genauer betrachten zu können, stellten beide Beobachter fest, dass das Objekt tatsächlich rundum
+flammte (Schweissbrennerfeuer) und dass es bengalisch in gelbem Licht gleisste. Während der Beobachtung wurde auch festgestellt, dass verschiedene Flugzeuge den Flughafen Kloten anflogen oder von
+dort starteten und in den Himmel zogen, wobei jedoch offenbar keinerlei Notiz vom Objekt genommen
+wurde. Die Beobachtung dauerte etwa 6-7 Minuten, ehe das geräuschlose Objekt verschwand, wie
+wenn es einfach das Licht ausgemacht hätte. Die Beobachtungsdistanz wurde auf etwa 15-20 Kilometer
+geschätzt und die Schwebehöhe des Objektes ca. 10 000-15 000 Meter.
+
+5) Frau H. Bieri, Hausfrau, und Herr H. Bieri, Maschinenbauingenieur, aus Pfäffikon berichteten, dass
+sie in der Nacht vom 30. Oktober 1997 zusammen ein eigenartiges, unbekanntes Flugobjekt beobachten konnten. Ihre Beobachtung dürfte zusammentreffen mit der von vorgenannter Frau Hiestand,
+Wetzikon-Pfäffikon.
+Das Ehepaar Bieri berichtete, dass in jener Nacht ein leichter Hochnebel war, der sich als leichter
+Dunst zeigte. Als Frau Bieri gegen 22.15 h vor das Haus trat, um etwas frische Luft zu schöpfen, bemerkte sie in Nord-West-Richtung ein kugelförmiges, oranges Leuchtobjekt, das am Ort verharrte. Um einen
+Zeugen zu haben und auch ihren Mann einmal ein solches Phänomen sehen zu lassen, rief sie diesem, der umgehend mit einem Fernglas aus dem Haus kam und durch dieses das Objekt beobachtete. Seinen Angaben gemäss schätzte er die Beobachtungsdistanz zum Flugkörper auf etwa 20 Kilometer und dessen Flughöhe auf etwa 15 Kilometer. Die Grösse des Objektes gab er mit [1]/8 der des
+Vollmondes an, der trotz des leichten Dunstes zu sehen war. Geräusche waren keine zu hören.
+Durch das Fernglas konnte das Ehepaar Bieri beobachten, dass die orangefarbene Kugel rundum
+eine Feuer-Korona aufwies. Nach etwa drei Minuten Beobachtungsdauer löste sich das Objekt aus
+seiner ruhenden, schwebenden Stellung und flitzte plötzlich davon, und zwar mit einer geschätzten Geschwindigkeit von etwa 800 Stundenkilometern, wonach es dann kleiner wurde und ‹einfach so› verschwand.
+
+Billy
+
+Den nachfolgenden, von Ch. Frehner aus dem Englischen übersetzten Bericht erhielten wir von Parviz
+Nazem aus dem Iran zugesandt:
+
+### Sehr geehrter Herr Meier
+
+ Sie erhielten Ihren Übernamen ‹Billy› genau dort, wo das mysteriöse Phänomen stattgefunden hat. Ich beziehe mich auf Teheran, die Hauptstadt Irans, wo Sie sich einige Zeit aufhielten. Im Herbst 1980, wie Sie wohl wissen, begann ein blutiger Krieg zwischen Iran und Irak, der 8 Jahre dauerte. In vielen Familien auf beiden Seiten verursachte dieser Krieg durch den Verlust von geliebten Personen grosses Leid und Sorgen. Zu meiner Überraschung sagte damals in der westlichen Welt niemand etwas darüber, und auch heute wird darüber geschwiegen (wie wenn wir ein Haufen Labormäuse wären, die sowieso verschwendet werden müssten). Im Vergleich gibt es zahlreiche Filme, Literatur, Dokumentationen und Videos über
+
+
+-----
+
+### andere Kriege und Konflikte, die verschiedenenorts stattfanden. Vielleicht wenn Sie, als eine einflussreiche Person, etwas bezüglich meiner Bitte unternehmen, dann hat die Menschheit, zumindest meiner und anderer Überlebender Ansicht nach, ihre Pflicht getan bezüglich dieses Krieges. Ich versuche aufzuzeigen, dass das Aufdecken gewisser Geheimnisse und einiger Unbekannten über diesen Krieg ein grösseres Er- gebnis darstellt im Gegensatz zur Entdeckung der Geheimnisse des ‹Alien Autopsy›-Films (Santilli- Roswell-Film – d. Ü.), da bei ersterem ein viel grösseres Publikum involviert war und es menschlicheren Zwecken dient.
+
+ Hier ist meine Geschichte: In der ersten Kriegsnacht im Herbst 1980 beobachtete ich zusammen mit ungefähr 2000 Armeerekruten, die ihre Militär-Ausbildung in einer Basis namens Farah-abad verbrachten, das bizarrste und unerklär- lichste Phänomen, das uns je geschah. Wir assen unser Abendessen um ca. 17.00 Uhr. Die Basis stand in voller Alarmbereitschaft, und den Rekruten war es bis auf weiteres unter keinen Umständen erlaubt, diese zu verlassen. Plötzlich war die ganze Welt erfüllt von Geräuschen, von Explosionen und Flugabwehr- geschützfeuer. Wir alle verliessen die Cafeteria, um nachzuschauen, was los war. Jemand deutete zum Himmel und schrie: «Hier sind sie, die irakischen Düsenflugzeuge!» Da waren neun leuchtende Objekte, in Dreiergruppen geordnet und Dreiecke bildend, die bewegungslos über unserer Flugabwehr-Batterie schwebten, 5 km entfernt im Osten. Jeder Schütze in der Gegend, der diese Objekte sah, feuerte auf diese. Innert weniger Sekunden wurden unsere Raketen abgefeuert. Zu meiner Überraschung bewegten sich die Objekte zuerst nicht. Deshalb dachte ich, dass sie innert kürzester Zeit abgeschossen würden. Aber als die Raketen annähernd die Körper dieser Dinge erreichten, gingen die Objekte vertikal in die Höhe (die Ge- schwindigkeit war ungeheuer) und liessen die Raketen weit zurück, die schliesslich explodierten. Unmit- telbar danach kamen die Objekte an ihren ursprünglichen Ort zurück, dabei ihre Dreieck-Formation be- haltend. Dies dauerte so lange, bis keine weiteren Raketen mehr abgeschossen wurden; Stille breitete sich überall aus. Ich hörte eine Stimme in meinem Kopf: «War das alles? Lasst euch zeigen, was Feuerkraft ist.» Als dieser Gedanke in mir hochkam, tauchten die Objekte auf uns nieder. Sie benötigten weniger als 10 Se- kunden, um über unseren Köpfen zu sein. Ich hatte bereits laut geschrien: «Lauft um euer Leben, diese verdammten …söhne wollen uns töten», und alle reagierten auf meinen Schrei und rannten zu den Fuchslöchern, die wir am selben Tag um unsere Baracken herum gegraben hatten. Ich warf mich in das nächste. Zwei Sekunden später hörte ich mich zu mir selbst sagen: «Steh auf, Feigling, du nennst dich einen Soldaten; du hast dich während Stunden in diesem Loch versteckt, und keine Kugel wurde abge- schossen und keine Bombe abgeworfen.» Ich verliess das Fuchsloch und schaute zum Himmel empor, um zu schauen, wohin die Objekte geflogen waren. Es war erstaunlich. Der Himmel war nicht der Himmel von 17.00 Uhr; er war dunkel und mit Sternen übersät. Ich schaute auf meine Uhr: Es war ca. 21.30 Uhr. Ich blickte um mich, um allen zu sagen, dass die Gefahr vorüber sei. Niemand war da! Alle Löcher, die in einer Linie gegraben waren, waren leer. Ich ging fort, um die Gebäude nach einem Zeichen meiner engsten Freunde abzusuchen. Die Gebäude waren leer. Alles in allem durchsuchte ich vier Baracken auf der Basis; alle waren unbesetzt. Da war niemand, nicht mal ausserhalb derselben. Gemäss den militärischen Befehlen hätten wir alle schlafend in unseren Betten liegen müssen. Da waren aber weder Offiziere noch Feldwebel in Sicht, die den Befehlen hätten Nachdruck verleihen können. Ich fühlte mich müde, ging zu meiner Baracke zurück und schlief ein, je- doch nur, um am nächsten Tag aufzuwachen und alle andern in ihren Betten zu sehen. Niemand machte irgendeinen Kommentar zur vorherigen Nacht. Sogar mein engster Freund beantworte- te mir meine Fragen zu den Geschehen der letzten Nacht und zu seiner Meinung über die Objekte nicht. Die Armee gab dann eine Erklärung ab, dass diese Objekte UFOs waren und dies der Grund war, wes- halb sie (die Armee – d. Ü.) diese nicht erwischen konnte; aber insgesamt ignorierte jedermann was ge- schehen war. Ich muss sagen, dass, solange ich auf dieser Basis war, die Raketenbatterie vorher und nachher keine ein- zige Rakete auf irgendetwas abschoss. Tatsächlich kamen die irakischen Kampfflieger und bombardierten
+
+
+-----
+
+### Teheran; und sie flogen genau über dieselbe Raketenbatterie, doch da war keine Reaktion von dieser. Zwei Jahre nach Kriegsende wurde enthüllt, dass wenn auch nicht alle, so doch die meisten der iranischen Flug- zeugabwehr-Raketen mysteriöserweise sabotiert wurden. Aber vielleicht war es nur das, was sie dachten. Ich hatte einige Raketen gesehen, die zur Reparatur nach Japan verschifft wurden.
+
+ Ein paar Monate nach diesem Geschehen war ich wieder im Herzen des Geschehens – an der Kampffront. Ich kam lebend zurück und bin absolut sicher, dass es Zeit war, dass ich getötet werden sollte, ich aber entweder in der Gefahr richtig reagierte oder sonstwie die direkten Treffer auf unsere Stellung überlebte.
+
+ Herr Meier, ich habe geschätzt, dass in jener Nacht rund 4000 Leute entführt wurden. Ich erwähnte zuvor, dass ich vier Gebäude untersuchte und diese leer vorfand. In jedem Gebäude hätten zu jener Zeit 100 Personen anwesend sein müssen. So bedeutet dies, dass ich sicher bin in bezug auf eine Entführung von 400 Personen. Da es in jener Gegend zwei Armee-Basen gab, von denen jede eine Kapazität für rund 2000 Personen hatte, schliesse ich daraus, dass rund 4000 Leute in jener Nacht entführt oder zum Schweigen gebracht wurden.
+
+ Sind dies genügend Leute, um mir zu helfen, Ihre Zustimmung zu erhalten, dass dieser Fall genauso legitim ist wie der ‹Alien Autopsy›-Fall? Ist dieser Fall genügend mysteriös, um eine Frage über die Vor- kommnisse an Ihre plejadischen Freunde zu richten? Wurde dieser Krieg durch irgendwelche ausser- irdischen Wesen unterstützt? Haben sie versucht, die Theorie ‹Nur die Stärksten überleben› zu prüfen? Haben sie versucht, den Soldaten paranormale Kräfte einzugeben, damit sie in Ernstkampfsituationen überleben, oder um härtere Soldaten zu produzieren? Standen sie in Kontakt mit dem US-Militär, um zu versuchen, die iranische Armee von ihren Luftabwehrgeräten fernzuhalten, damit die irakischen Kräfte die Luftübermacht erhalten? Was machten die Aliens mit uns, als sie uns zu ihren Untergrund-Basen mitnahmen? Ich hatte nasse, röt- liche Erdflecken auf meiner Uniform, als ich das Fuchsloch verliess. Die Erde im und um das Fuchsloch war gelblich und trocken. Warum bin ich in meinem Körper voller Schmerzen? Diese Schmerzen in meinem Körper begannen ein paar Monate nach meiner Entführung. Kann ich auf Ihre Hilfe zählen, Herr Meier? Sie sind meine letzte Hoffnung.
+
+ Mit freundlichen Grüssen Parviz Nazem
+
+## Kommentar
+
+Die Vorkommnisse der beobachteten UFOs sind nicht zu bestreiten, denn über diese wurde auch anderweitig berichtet. Was jedoch in bezug auf die «Barackenerlebnisse» zu sagen ist, bezieht sich darauf,
+dass es sich dabei mit grösster Wahrscheinlichkeit um ein psychisches Schocktrauma handelte. Dieser
+Ansicht sind auch die Plejadier/Plejaren, denen auch nichts davon bekannt ist, dass bei dem Vorfall
+iranische Soldaten entführt worden sein sollen. Auch waren die Plejadier/Plejaren am UFO-Vorfall nicht
+beteiligt und mit Sicherheit bestand von den UFO-Besatzungen auch keine Absicht, in irgendeiner Form
+in die Kriegsgeschehen einzugreifen.
+Zu sagen ist noch, dass das psychische Schocktrauma ganz offenbar über mehrere Stunden hinweg
+angehalten haben muss und eine sogenannte «Realerinnerung» hervorrief, durch die etwas scheinbar
+Erlebtes als real erachtet wird, wie das auch der Fall ist bei einer sogenannten «Realvision».
+Billy
+
+
+-----
+
+## FIGU-VORTRÄGE 1998
+Unsere Ufologie- und Geisteslehre-Vorträge mit verschiedenen Referenten der FIGU finden 1998 an folgenden Daten statt:
+
+Vortragsdaten Referenten/Themen:
+
+28. März1998 Hans G. Lanzendorfer: Moderner UFO-Sektierismus heute:
+Pseudo-UFO-Kontaktler, UFO-Kult, UFO-Kult-Religionen
+und UFO-Sektierer weltweit im Internet
+Philia Stauber: Auf dem Weg zum Menschsein
+
+23. Mai 1998 Guido Moosbrugger: Übersicht der Kontakte mit extraterrestrischen Intelligenzen und hohen Geistwesen
+Hans G. Lanzendorfer: Die ‹Propheten› Eli, Elia (Elja), Elisa
+Interessantes zur Geschichte des Johannes des Täufers, zur
+Bibel und zum Neuen Testament
+
+22. August 1998 Christian Krukowski: Menschheitsgeschichte
+Christina Gasser: Meditation
+
+24. Oktober 1998 Silvano Lehmann: USA – Forschung ohne Rücksicht
+Wolfgang Stauber: Gerechtigkeit
+
+Vortragsort: Restaurant Freihof, Schmidrüti
+
+Pünktlicher Vortragsbeginn um 14.00 Uhr.
+
+Eintritt: CHF 7.— (Eintritts-Ermässigung für FIGU-Mitglieder bei Vorweisen eines gültigen Ausweises).
+
+Wir freuen uns auf Ihr Erscheinen und begrüssen gerne auch Ihre Freunde, Kollegen und andere Interessierte.
+
+Wir erinnern Sie daran, dass im Restaurant Freihof in Schmidrüti Konsumationspflicht besteht.
+
+An den Vortrags-Samstagen trifft sich im Semjase-Silver-Star-Center um 20.00 Uhr eine Studiengruppe, zu der alle interessierten Passiv-Mitglieder herzlich eingeladen sind.
+
+
+-----
+

@@ -1,0 +1,130 @@
+# TALMUD JMMANUEL
+### von Judas Ischkerioth
+
+## DAS 1. KAPITEL
+
+### Der Stammbaum Jmmanuels
+1. Sehet, ich Judas Ischkerioth aus Keriot in Judäa nehme auf (schreibe)
+die Schrift (Schriftrolle, Buch, Geschichte) und das Arkanum Jmmanuels (Arkanum = Geheimnis; wörtlich ‹Koffer›), der da heisset ‹Der
+mit JHWH-Wissen› (Jschwisch-Wissen = fälschlich übersetzt: ‹Der
+mit göttlichem Wissen› und ‹Gott mit uns›), und der da ist ein Sohn
+Josephs, des Jakob, des fernen Nachfahren Davids, der da war ein
+Nachfahre Abrams, dessen Geschlecht zurückreichet zu Adam, dem
+Vater eines irdischen Menschengeschlechtes, der gezeugt ward durch
+den Himmelssohn Semjasa mit einem irdischen Weibe; und Semjasa, der Zeuger Adams, war also ein Vetter des Anführers Semjasa,
+dem oberen Anführer der Himmelssöhne, die da waren die Wächterengel (Wächter-Boten, Wächter-Aufseher) des JHWH (Jschwisch/
+Ischwisch, Weisheitskönig), des grossen Herrschers der Weithergereiseten.
+
+#### Erklärungen:
+**JHWH = Jschwisch = Weisheitskönig (altlyranisch = Jschwjsch)**
+**JHRH = Jschrisch = Weisheitskönigin (altlyranisch = Jschrjsch)**
+**Wissen und Weisheit**
+Was in bezug auf das Jschwischtum (resp. JHWH = männlich = Weisheitskönig) und das Jschrischtum (resp. JHRH = weiblich = Weisheitskönigin)
+sowie hinsichtlich der Weisheit zu erklären ist, kann folgend formuliert und
+dargelegt werden:
+
+JHWH (Jschwisch) war für die Hebräer nach ihrem falschen Verständnis
+der für sie unaussprechliche Name ‹Gottes›, ein Begriff also, der fälschlich
+mit ‹Gott› resp. mit anderen und gleichen unwerten Bezeichnungen gleich
+
+-----
+
+gesetzt wurde, so diesbezüglich diverse Gottbezeichnungen in Erscheinung
+treten wie Jahjeh, Jahawah, Jahve, Jahveh, Jahwe, Jehova, Jehovah, Jehowah,
+Adonai, Elohim, Ehjeh, HERR, Herr, ER und Ewiger. Mose sagte (2. Mose,
+3, 14 – vergleiche auch 2. Mose, 3, 16, 18): «Er, der ist, der er ist – Jahjeh, er
+hat mich zu euch gesandt.» Die alte Schreibweise war ‹jahweh ascher jahweh› = ‹er ist, der er ist›. Das Wort Jahweh wurde von den alten Hebräern
+als ‹Jahh-Wee› ausgesprochen, wobei die Betonung auf ‹Wee› bestimmt war.
+Die richtige Aussprachsweise des Tetragrammatons JHWH hatte jedoch
+nichts mit ‹Jahwe› resp. mit ‹Jahh-wee› usw. zu tun, denn wahrheitlich handelte es sich beim Kürzel JHWH um den neunbuchstabigen und aus irgendwelchen undefinierbaren Gründen für die Hebräer unaussprechlichen
+Namen ‹Jschwjsch›.
+
+Die alte Sprach- und Schreibform JSCHWJSCH, abgekürzt JHWH ist ein
+Wort aus einer auf der Erde längst vergessenen Sprache, dem ALT-LYRANISCHEN. Diese Sprache wurde nicht auf der Erde kreiert, sondern in einem
+fernen Sternensystem und von Raumfahrern zur Erde gebracht.
+
+JSCHWJSCH als Wortbegriff stellt einen Titel dar, der in die irdischen Sprachen mit Weisheitskönig übersetzt wird. Weisheitskönig aber bedeutet, dass
+dieser Titel von einem Menschen getragen wird, der in der Erkenntnis, Auslegung und Befolgung der schöpferischen Gesetze und Gebote höchstmöglich bewandert und gebildet ist und gestreng den schöpferischen Gesetzen
+und Geboten lebt und absolutes Vorbild ist all jenen, welche noch belehrt
+werden müssen und den Wissens-, Könnens-, Weisheits-, Liebe- und Logikstand eines Weisheitskönigs noch nicht erlangt haben.
+Ein Weisheitskönig, ein JSCHWJSCH also, lebt als absolutes Vorbild im Sinne
+der schöpferischen Gesetze und Gebote, und er verfügt über das einem
+Menschen höchstmögliche Wissen und Können im Bezug auf das Wissen
+selbst, als aber auch hinsichtlich der Liebe, der Weisheit und der Logik.
+Ein Weisheitskönig (JSCHWJSCH) zu sein bedeutet für diesen Menschen,
+dass er sich für die ferne Zukunft darauf vorbereitet, in den Endstadien der
+menschlich-physischen Daseinsform zu leben, und dass sich dieser Mensch
+also bereits darauf vorbereitet, dereinst seinen physischen Körper abzulegen,
+um als Halbgeistform in die Bereiche und Ebenen des immateriellen Daseins
+einzugehen. Bis dabei dieser Zeitpunkt eines Menschen erreicht wird, vom
+
+
+-----
+
+Augenblick seiner Kreation an gerechnet, bis zum Zeitraum der Wandlung
+von der materiellen bis hin zur immateriellen Körperform, vergehen 40 bis
+60 Millionen Jahre (nach Erdenjahren gerechnet). Also besagt dies, dass ein
+Mensch nach seiner Kreation 40 bis 60 Millionen Jahre einen grobstofflichen,
+einen physischen Körper trägt, ehe er diesen ablegt und zur reinen Geistform wird, je nachdem, wie seine Gesamtevolution verlaufen ist – schneller
+oder langsamer, woraus sich die Differenzspanne zwischen 40 und 60 Millionen Jahren ergibt. Dieser Zeitraum wird jedoch nur gemäss den reinen
+Lebensjahren berechnet, während denen ein Mensch als solcher materiell
+sein Dasein führt.
+
+Der Titel JSCHWJSCH wurde schon zu sehr alten Zeiten zur Erde gebracht,
+schon vor Millionen von Jahren, und stets hatte er einen führenden und
+guten Klang. Unter den Raumeinwanderern waren jedoch leider auch Elemente, die sich unrechtmässig selbst zu JSCHWJSCHs erhoben hatten, ohne
+dass sie dafür qualifiziert und gebildet waren. Und sie waren es, die in Machtgier schwelgten und sich dementsprechend benahmen. Sie legten sich neue
+Titel zu, die von den Menschen der Erde verstanden wurden, so nämlich die
+Titel von Kräften, die die Schöpfungskraft verkörpern sollten. Schöpfer war
+die naheliegendste Benennung, die dem Menschen der Erde am plausibel sten war, weshalb sie sich also auch in dieser Form benennen und feiern
+liessen. Der Schritt zur Verehrung und Anbetung war dann nur noch klein.
+Die Verfälschung des Titels JSCHWJSCH zum Schöpfer war vollumfänglich
+gelungen, samt und sonders mit den damit verbundenen Konsequenzen.
+Der nächste Schritt der Verfälschung kam dann damit, dass die lyranische
+Schreibweise des Titels JSCHWJSCH (JHWH) und damit auch die Aussprache desselben verändert wurde, nämlich in JSCHFESCH, dessen lyranische
+Schreibweise JHFH war, was später durch die vorgeschichtlichen Hobranos
+(spätere Bezeichnung: Habiru, Hebrajos, Hebraio, Ebräer, Hebraeui und
+Hebräer usw., wobei jedoch klar sein muss, dass die alten Bezeichnungen in
+verschiedenen Sprachen zu verstehen sind, die sich grundsätzlich und nicht
+unbedingt auf die alten und die heutigen israelitischen Sprachen beziehen,)
+eine weitere Verfälschung erlitt, nämlich z.B. auch der Begriff JHFH =
+JSCHFESCH in JHVH, was aus der altlyranischen in irdische Sprachen übersetzt wahrhaftig nichts Gutes bedeutet, nämlich König der Falschheit =
+Falschheitskönig. Ein Titel, womit bei den alten Lyranern Menschen be
+
+-----
+
+zeichnet wurden, die ihr Leben und Wirken mit Lügen, Betrug, Ehrlosigkeit, Unehrlichkeit, Macht, Gewalt, Terror, Anarchismus, Krieg und Tod sowie mit Ausbeutung und Sklaverei führten.
+
+Bezüglich der späteren Verfälschung der Schreibweise JHFH in JHVH tritt
+keine erweiterte Bedeutung mehr auf, denn im alten lyranischen Alphabet
+existierte der Buchstabe ‹V› nicht. Interessant ist bei der alten Schreibweise
+nur, dass der ursprüngliche Name des hobranoschen JSCHFESCH von den
+Hobranos nicht ausgesprochen und streng gefürchtet wurde, weshalb die
+alten Hobranos ihren JSCHFESCH (Falschheitskönig) JAHWE nannten, was
+insoweit wieder von Bedeutung ist, dass auch dies ursprünglich ein altly ranisches Wort und eine Benennung ist, die in irdische Sprachen übersetzt
+GEWALTHERRSCHER bedeutet. Die alten Hobranos fürchteten diesen
+Gewaltherrscher JAHWE und getrauten sich nicht, seinen wirklichen Titel
+JSCHFESCH auszusprechen. Irrlehren folgend dachten sie, dass der neun
+Buchstaben umfassende Name JSCHFESCH und allein die Kenntnis der
+richtigen Aussprache Wunderkräfte freisetzen würde, die ihnen Tod und
+Verderben brächten. Demzufolge blieb die Aussprache allein den Priestern
+vorbehalten – aus welchen Gründen auch immer.
+
+Ähnliches geschah auch bei praktisch allen andern irdischen Menschen geschlechtern, die von den Gewaltherrschern terrorisiert und irregeleitet
+wurden, wodurch die Benennung und Bezeichnung GEWALTHERRSCHER
+in alle irdischen Sprachen Einlass fand, auch in die später veränderten und
+neuen Sprachen. Gesamthaft bedeuten dabei die Namen in den verschieden sten Sprachen einheitlich GEWALTHERRSCHER, wobei dieser Sinn dem
+Erdenmenschen im Verlaufe der verflossenen Jahrtausende jedoch schon
+längst verlorengegangen ist. Durch das Aufkommen der Religionen nämlich
+wurde der Sinn nach und nach derart verfälscht, dass dem Menschen der
+Erde bewusst, hinterhältig und intrigenvoll irre weise gemacht wurde, dass
+der Sinn des Wortes die Schöpfungskraft, den Schöpfer, das Heil, das Leben
+und die Allmacht sowie alles Positive in sich berge. All das wider besseres
+Wissen, weil nämlich der Name Tod, Versklavung, Ausbeutung und Irrlehre
+in sich birgt; und dieser Name des Todes ist GOTT, der in den irdischen
+Sprachen als Ersatz und Abänderung der Benennung GEWALTHERRSCHER
+verwendet wird.
+
+
+-----
+

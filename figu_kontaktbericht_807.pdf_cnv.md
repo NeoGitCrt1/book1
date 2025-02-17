@@ -1,0 +1,209 @@
+# Gespräch zwischen Bermunda von der plejarischen Föderation und ‹Billy› Eduard Albert Meier, BEAM
+
+## Achthundertsiebenter Kontakt Pfingstmontag, 6. Juni 2022 15.41 h
+
+**Billy** Hallo, Bermunda. – Dich hätte ich heute am wenigsten erwartet. Sei aber willkommen und gegrüsst.
+
+**Bermunda** Sei auch gegrüsst, doch ich kann nicht lange bleiben. Mein Herkommen handelt sich hauptsächlich darum,
+weil ich dich über verschiedene Dinge unterrichten will, die wohl wichtig sind, dass du darüber orientiert bist.
+
+**Billy** Wenn du meinst, dass es wichtig ist?
+
+**Bermunda** Ja, das denke ich.
+
+**Billy** Dann schiess nur gleich los. Was gibt es denn so Dringendes zu berichten?
+
+**Bermunda** Erst will ich das ansprechen, was du schon vor längerer Zeit Ptaah ersucht hast herauszufinden, was tatsächlich die Wahrheit bezüglich des Giftanschlages auf den Russen Nawalny ist. Das haben wir nun erst vor 2 Tagen ergründen
+können. Dazu ist folglich zu sagen, dass die Giftdarreichung aus den internen Reihen des Mannes erfolgte, und zwar …
+
+**Billy** Aha, anderseitig wäre er meines Erachtens nämlich einfach erschossen worden, wenn …
+
+**Bermunda** Das ist anzunehmen, denn dies wäre effizienter gewesen und zudem … Das ist aber nicht so wichtig, dass wir
+darüber mehr sprechen müssen, denn es fällt Wichtiges zu erwähnen an, nämlich der Mann Selensky und die Amerikaner
+– mit ihrer im Hintergrund tätigen …, was du aus bestimmten Gründen diesmal nicht offen nennen sollst – spielen effectiv
+mit dem Feuer. Darüber wird dir Ptaah weiteres erklären, wenn er nächsten Mittwoch zu dir kommen wird.
+Wir haben uns bemüht, die genauen Gründe und Hintergründe des ganzen sehr unerfreulichen Geschehens in der Ukraine
+zu ergründen, wobei wir auch die hauptsächlichen Akteure genauestens analysiert und bei ihnen ihr wahres Wesen erkundet haben, das leider bei allen sehr verworfene Aspekte aufweist. Es hat zwar 3 Monate gedauert, doch es ist nach unseren
+sehr genauen Erkenntnissen zweifellos so, dass keine der von uns analysierten Personen sich jemals bemühte, wahrliche
+Menschlichkeit in sich zu erschaffen. Allesamt sind sie machtbesessen und dem Bösen und Verbrecherischen sowie allem
+Unrecht und damit auch dem Töten ergeben, sobald etwas wider ihr Begehr aufkommt und nicht das getan wird, was sie
+grundsätzlich wollen. Dies ist bei den Hauptakteuren auf russischer Seite ebenso, wie auch auf ukrainischer Seite, folglich
+diesbezüglich nur in der Art und Weise der Handlungsweise und der persönlichen Aufwallung der Gefühle und Emotionen
+usw. sowie des allgemeinen Verhaltens ein Unterschied festzustellen ist.
+Beim Ganzen, was in der Ukraine kriegsmässig geschieht, wirken gesamthaft nichtdenkend alle Verantwortungslosen jener
+Staaten mit, die Waffen an diesen Kriegshetzer und Kriegsverbrecher Selensky liefern; – – – er ist wirklich der wahre Kriegsverbrecher in diesem Krieg. Und an diesen liefern die verantwortungslosen Staatsführenden vieler Staaten Waffen und
+machen sich mitschuldig am Krieg in der Ukraine, der nie begonnen hätte, wenn dieser Verbrecher nicht die Ukraine an die
+NATO-Organisation und die Europäische Union hätte verraten wollen. Zusammen ergab sich mit den Amerikanern und ihrer
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+…, die hinterhältig auf das Anliegen von Selensky eingingen, dass es so weit kommen konnte, dass sich letztendlich der Krieg
+ergab. Das Ganze der Verhandlungen wurde bewusst von Amerika in die Länge gezogen, weil erwartet wurde, dass Russland
+resp. Putin die Geduld verlieren und den Krieg beginnen würde, der heimlich von Amerika und … angestrebt wurde. Dies,
+weil dadurch ihr hintergründiges Gebaren sich erfüllte, nämlich auf diesem Weg die Weltherrschaft mit der Zeit und durch
+den Krieg leichter zu erlangen und ihre diesbezüglichen Pläne schnell umsetzen zu können. Dies, wenn sie durch den Krieg
+Russland schwer schädigen, demütigen und niederzwingen können, der unweigerlich kommen musste, weil Putin nicht
+warten und warten und warten wollte, worauf sogar gewisse Personen in Amerika untereinander Wetten tätigten.
+Durch die verantwortungslosen Waffenlieferungen an Selensky kann nun der Krieg erst recht weitergeführt und in die Länge
+gezogen und verlängert werden, was durchaus im Interesse der Amerikaner und deren Kriegswirtschaft, wie aber auch in
+dem des Kriegsverbrechers Selensky ist, der bedenkenlos und gewissenlos das ukrainische Militär opfert, um seine Machtgier und Gelüste und seinen Drang des Tötens zu befriedigen.
+Alles geschieht einerseits nach ihrem und dem des ebenso gewissenlosen ukrainischen Staatsführers Willen, dieses gewissenlosen Übeltäters, der Freude am Krieg und Töten hat und sich als Führer dessen mehr als nur wohl fühlt, was er an
+Unheil anrichtet und den Tod vieler Menschen herbeiführt. Andererseits ist er in seiner Dummheit nichts anderes als nur
+eine dem Ganzen vorgesetzte Figur der ihn dirigierenden Amerikaner, die danach streben, Russland unter ihre Kontrolle
+und dadurch die Welt um so leichter unter ihre Herrschaft zu bringen.
+Krieg ist immer sehr übel und zudem ein Verbrechen an der jeweiligen gesamten Menschheit, so also nicht nur jene Menschen zu Schaden kommen oder getötet werden, sondern auch die in jenen Gegenden vielfältig vorkommenden Lebewesen
+verbrecherisch betroffen, getötet oder gar endgültig ausgerottet werden, weil sie zwangsläufig in die Folgen der Kriegshandlungen verwickelt werden.
+
+**Billy** Das ist mir selbst klar, doch die Dummen und Dämlichen all der waffenliefernden Regierungen erkennen das
+
+ebensowenig, wie auch diejenigen aus deren Bevölkerungen nicht, die gleicherart nur die Russen und Putin als Bösewichte
+sehen und nicht realisieren, was wirklich los ist und dass die USA mit der NATO, zusammen mit Selensky, hinter allem
+stecken.
+Krieg ist immer ein Verbrechen, egal wer einen beginnt und führt, also ist es beim Krieg in der Ukraine auch egal, ob Putin
+die Geduld verloren hat und die Mächtigen der USA und die sie heimlich Beeinflussenden der Schattenregierung ihr dreckiges Spiel treiben. Krieg ist Krieg, und der Krieg bringt das Töten und Morden von Menschen mit sich, wie auch Zerstörungen
+von vielen mühsam erstellten menschlichen Errungenschaften, die Vernichtung viel der Natur, wie auch das Töten und
+eventuelle Ausrotten von Naturleben aller Gattung und Art. Krieg ist so oder so immer ein Verbrechen, und zwar ist es ganz
+egal, wer einen auslöst und führt. So ist es auch auf seiten der Verteidiger in einem Krieg, denn es wird von diesen genau
+das gleiche getan, wie es die Angreifer tun, nämlich töten, morden, vergewaltigen und zerstören. Und dass dabei der Feind
+und die Verteidiger Kriegsverbrechen begehen und die eigenen Leute noch massakrieren, um dann die Schuld den Feinden
+zuzuschieben, das gehört zur Tagesordnung und ist altherkömmlich immer das gleiche schmutzige Spiel, wie auch laufend
+Falschmeldungen verbreitet werden, um die Gegenpartei zur Sau zu machen und sich selbst zu lobhudeln. Doch dass die
+Menschheit der Erde durch ihr kriminelles Tun und die ständig wachsende Überbevölkerung sowie mit den Kriegen, dem
+Hass, der Rache und Vergeltung und der immer moderneren Technik das Leben auf diesem Planeten immer unmöglicher
+und letztendlich völlig unmöglich macht, daran denkt das Gros der Menschheit nicht, denn es sind wahrlich nur wenige
+einzelne, die sich ernstlich verantwortungsbewusst Gedanken darum machen. Bereits sind die Erdlinge in jungen Jahren
+der ‹modernen› Technik derart verfallen, dass sie nicht mehr ohne diese auskommen und existierten können, eben in die
+Zukunft existieren, denn es kann bereits nicht mehr davon gesprochen werden, dass sie bewusst in die Zukunft leben, denn
+das wird schon lange nicht mehr getan. Die jungen Menschen von heute existieren nur noch. In ihrem Wahn, jung und
+dynamisch zu sein, merken sie nicht, dass ihre sogenannte Dynamik früher oder später dazu führt, dass sie sich selbst den
+Boden unter den Füssen wegziehen und in den Abgrund fallen werden. Dies eben darum, weil ihre Dynamik nichts anderes
+als eine Illusion ist, die nicht verwirklicht werden kann. Schon ist es soweit, dass viele Jugendliche, Halbwüchsige und junge
+‹erwachsene› Menschen Flausen im Kopf haben und denken, dass sie nicht mehr, wie altherkömmlich, arbeiten, sondern
+selbst Herr und Meister mit eigenen Firmen und Erfindungen usw. und selbst Chef sein müssten. Viele versuchen dies schon
+in der heutigen Zeit – in der Schweiz gegenwärtig ca. 50’000 pro Jahr –, um kläglich zu scheitern und sich in Schulden zu
+stürzen, deren Ende dann die Kriminalität, das Verbrechen, die Verlotterung oder das Psyche-Elend ist – oder Selbstmord.
+Viele der Jungen orientieren sich an den ‹Grössen›, die sehr oft in den Zeitungen oder im Fernsehen von sich viel Reden
+machen, Prominente, Schauspieler/innen, Sportler/innen, Fussballer/innen, Musikmachende, Sänger und Sängerinnen,
+Moderierende und viele andere. Viele dieser genannten ‹Grössen› paaren sich zusammen und heiraten, um sich kurz darauf
+unter Ach und Krach mit Gerichtswetter wieder zu trennen, wobei Geldbeträge von Dutzenden und womöglich Hunderten
+von Millionen ‹Schadenersatz› oder ‹Reuegeld› und ‹Abfindung› in das schmutzige Spiel gebracht werden. Andere verfallen
+einfach des Mammons wegen der Prostitution, junge Frauen wie Männer, denn es ist ihnen leichter auf diese Art zu Geld
+zu kommen, als sich mit ehrlicher Arbeit das zu verdienen, was zum Leben gebraucht wird. Viele junge Menschen sind des
+dummen Glaubens, sie müssten es den Prominenten gleichtun, folglich sie es versuchen und kläglich scheitern, um zu psychischen Ruinen und den Mitmenschen zur Last zu werden, in der Klapsmühle zu landen – oder 180 Zentimeter unter der
+Erde, weil sie als Lebensunfähige elend krepieren oder sich selbst umbringen.
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+Jedoch darüber und auch über den Krieg usw. noch zu reden bringt wirklich nichts, denn die Dummheit, Dämlichkeit, Parteilichkeit und den Unverstand kann man nicht einfach aus den Schädeln jener der Regierenden und der mit diesen heulenden Bevölkerungen schütteln, die eben nicht des Denkens und Überlegens fähig sind. Meines Erachtens sollten wir darüber nicht mehr reden, denn es nutzt alles nichts, was gesagt wird, denn die Dummen und Dämlichen, und also jene, die
+nicht selbst denken können, lassen sich nicht belehren und sind weiterhin parteiisch und derart blöde, dass sie dies erst
+dann erkennen, wenn es bereits …
+
+**Bermunda** … zu spät ist, das Feuer noch einzudämmen, das droht auszubrechen, wie ich schon sagte. Es …, doch das
+
+sollst du nicht erwähnen, weder privaterseits noch öffentlich, denn … Du weisst …, und das ist wohl … Das soll ich explizit
+noch erwähnen, wie Ptaah mir aufgetragen hat, denn …. Und daran …
+
+**Billy** Ja, das weiss ich, was mich auch zu sagen veranlasst, dass wir nicht weiter darüber reden sollen. Letztendlich
+
+heisst es noch, dass ich parteiisch Russland und Putin in dem Himmel heben würde, weil ich eben das sage, was die USA
+mit ihrer heimlichen … und Selensky wirklich machen und weiter im Schilde führen. Es wird wohl das Beste sein, wenn wir
+künftighin auch nicht mehr offen über alles sprechen, dann wird mir hoffentlich auch nicht mehr telephoniert und nicht
+mehr geschrieben. Überhaupt ist es seltsam, dass man an mich gelangt, denn ich habe mit dem ganzen Theater ja nichts zu
+tun, das in der Ukraine abgeht. Es ist mir alles sowieso unangenehm, dass man an mich gelangt ist, denn ich will mich weder
+in das Geplänkel einmischen, noch betätige ich mich irgendwie in politischer Weise. Dies auch dann nicht, wenn ich für dies
+und das jeweils das sage, was der Wirklichkeit und deren Wahrheit entspricht und eben gesagt werden muss. Aber ich
+finde, dass wir wirklich nicht mehr darüber reden sollten, was Amerika wirklich will, was hinter allem steckt, was mit Selensky wirklich los ist und was …, und das schon gar nicht. Die …, und sie die den USA …, laufen letztendlich ins eigene
+Messer, und damit habe ich nichts zu tun und will auch später nichts damit zu tun haben. Allein das und verschiedenes
+andere, wie …, veranlasst mich dazu, dass ich nicht mehr offen darüber reden will. Was kommen wird, ist nicht mein Bier,
+sondern das jener, die blöd genug sind, auf das Begehren von Selensky einzugehen, das sowieso von den USA gesteuert
+wird.
+
+**Bermunda** Das verstehe ich und bemühe mich, dass veranlasst wird, dass niemand von uns dieses Thema nochmals
+
+anspricht in der Weise, dass es in den Gesprächsberichten aufgeführt werden soll.
+
+**Billy** Das zumindest.
+
+**Bermunda** Das soll so sein, darum werde ich mich bemühen.
+
+**Billy** Danke. – Das Ganze ist mir wirklich zuwider und ich brauche das Theater nicht. Sollen sich doch jene damit
+
+beschäftigen, die blöde genug sind, dass sie die Wahrheit nicht zu erkennen vermögen und alles schlimmer und noch schlimmer machen. Verstand und Vernunft sind leider ganz offensichtlich nicht die Stärken jener Regierenden, die dumm sind,
+geschweige denn jenes Teils der Bevölkerung, der an den Lippen der Dummen hängt.
+
+**Bermunda** Dann will ich das weitere erklären, was mir Ptaah aufgetragen hat, dir zu sagen: Ihr sollt euch nicht und unter
+
+keinerlei Umständen beirren lassen bezüglich der wirklich verantwortungslosen und unbedachten staatsführenden Anweisungen des Nichtragens von Atemschutzmasken, wie auch nicht von dem zu nahen Berührungsumgang mit euch fremden
+Personen. Die Corona-Seuche ist noch keineswegs derart unter Kontrolle mit Impfstoffen, die beim Wiederaufkommen
+wirklich hochwirksam wären, wobei die Seuche vermehrt in jenen Gegenden auftreten wird, die bisher schwächer befallen
+wurden.
+
+**Billy** Die Ratgebung von Ptaah werden wir wohl beachten, auch wenn es uns manchmal nicht gerade leichtfällt,
+
+eben gerade dann, wenn Besucher auftauchen, die keine Masken mit sich tragen, obwohl wir im Schaukasten beim Biotop
+darauf hinweisen, dass eben Masken notwendig sind.
+
+**Bermunda** Es wird eben nicht selbst gedacht, wie du immer wieder sagst, folglich auch nicht die Eigenverantwortung
+
+wahrgenommen wird.
+
+**Billy** Das ist leider so, und das kann wohl nicht geändert werden. Aber da fällt etwas an: Wildtiere werden beden
+kenlos gejagt und getötet, und nur selten kümmert das jemand. Wird aber z.B. ein Haustier, und da meine ich speziell
+Hunde und Katzen, von Autos überfahren, von Füchsen oder Greifvögeln geholt, oder verschwinden sie sonstwie, wie z.B.
+indem sie einfach weglaufen, verwildern oder in der freien Natur irgendwie durch irgendwelche Umstände umkommen,
+dann wird ein Riesengeschrei deswegen gemacht.
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Bermunda** Die Menschen sehen leider nicht, dass die Wildtiere bei der Jagd abgeschossen werden, folglich sie das nicht
+
+kümmert, ebensowenig, wenn sie das Fleisch der Wildtiere essen, denn für sie ist es ja nur Nahrung, deren Herkunft sie
+nicht kennen und der sie auch nicht nachforschen. Gleichermassen gilt das für Fleisch jeder Art, worum sich die Menschen
+nicht bemühen, um herauszufinden, woher es kommt, wie die Tiere gehalten und getötet worden sind.
+
+**Billy** Ja, oft werden sie – trotz Tierschutzgesetz – miserabel behandelt, gequält und geschunden, ehe sie totgeprü
+gelt oder sonstwie brutal getötet werden. Oft verdursten sie, werden totgetrampelt von ihresgleichen, weil sie derart zusammengepfercht werden, dass sie sich kaum mehr bewegen können.
+
+**Bermunda** Ja, das haben wir schon oft gesehen, auch bei Transporten, bei denen keinerlei Rücksicht auf sie genommen
+
+wird.
+
+**Billy** Ja, und da sind die Tiertransporteure derart abgebrüht, dass es sie überhaupt nicht berührt, dass dabei Tiere
+
+elend krepieren. Aber die Menschen untereinander sind schon derart verkommen, dass sie sich daran begeilen, wenn sie
+jemanden sterben sehen, der z.B. bei einem Unfall auf der Strasse sein Leben aushaucht. Vielfach kommt es vor, dass sich
+sofort viele Gaffer ansammeln, wenn ein Autounglück oder sonstwie ein Unglück usw. geschieht, doch diese Gaffer leisten
+in der Regel keine Nothilfe, sondern schauen gefühllos zu, wie andere elend sterben. Und wenn ich weiter meine Gedanken
+laufen lasse, dann komme ich wieder darauf, das gemeinerweise sehr viel getan wird, z.B. dass bewusst Übles getan wird,
+wie z.B., dass bewusst alles getan wird, dass jemand zuschlägt, um dann selbst als Retter zu erscheinen, wie das vielfach
+getan wird bei Krieg und Terrorakten, um sich besser zu geben als der Feind, dem dann alles Böse in die Schuhe geschoben
+werden kann. Eben gerade so, wie es jetzt geschieht in der Ukraine, da am eigenen Volk Verbrechen begangen werden, die
+dem Feind untergeschoben werden.
+
+**Bermunda** Jetzt muss ich aber leider gehen, denn ich habe meine Zeit schon überschritten. Leb wohl, aber ich werde
+
+schon bald wiederkommen. Auf Wiedersehn.
+
+**Billy** Dann eben. Tschüss, und auf bald wieder.
+
+COPYRIGHT und URHEBERRECHT 2022 bei ‹Billy› Eduard Albert Meier, ‹Freie Interessengemeinschaft Universell›, Semjase Silver Star
+Center, 8495 Schmidrüti, Schweiz. Kein Teil dieses Werkes, keine Photos und sonstige Bildvorlagen, keine Dias, Filme, Videos und keine
+anderen Schriften oder sonstige Materialien usw. dürfen ohne schriftliche Einwilligung des Copyrightinhabers in irgendeiner Form (Photokopie, Mikrofilm oder ein anderes Verfahren), auch nicht für Zwecke der Unterrichtsgestaltung usw., reproduziert oder unter Verwendung elektronischer Systeme verarbeitet, vervielfältigt oder verbreitet werden.
+
+Veröffentlicht auf www.FIGU.org durch:
+‹Freie Interessengemeinschaft Universell›, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+

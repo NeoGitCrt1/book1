@@ -1,0 +1,146 @@
+# Gespräch zwischen Bermunda von der plejarischen Föderation und ‹Billy› Eduard Albert Meier, BEAM
+
+## Achthundertfünfter Kontakt Donnerstag, 26. Mai 2022 (Auffahrt) 17.33 h
+
+**Bermunda** Du hast gerufen, und da ich im Moment frei bin, komme ich hierher. Was hast du denn, dass es so eilig ist?
+
+**Billy** Sei erstmal gegrüsst, Bermunda, denn normalerweise grüsst man erst, ehe man nach dem Grund fragt, warum man gerufen hat. Sei aber trotzdem erstmal herzlich willkommen. Der Grund aber, warum ich gerufen habe, der liegt
+darin, dass ich per Telephon angerufen wurde, und zwar …
+
+**Bermunda** … entschuldige, aber in der Eile habe ich vergessen, dich zu begrüssen, lieber Freund. Sei also ebenfalls gegrüsst un…
+
+**Billy** … da läutet mein Geheimtelephon schon wieder – ja, – blöde, es ist wieder die gleiche Nummer, wie vor etwa
+30 Minuten, da man mich angerufen und den Anruf wieder abgeklemmt hat. – Ja, bei Billy – – hallo, – – ja ich bin es. – –
+_(Leise zu Bermunda: Kannst du das, was gesagt wird, irgendwie registrieren) – Ja bitte, – ja ich höre (leise zu Bermunda: Es_
+_sind eine Frau und ein Mann.)._
+
+**Bermunda:** _(Auch leise gesprochen) Ja, ich höre und kann alles auf meinem Gerät hier aufzeichnen._
+
+_(Nach dem Telephongespräch: Folgendes Gespräch aus Bermundas Gerät wiedergegeben und in Deutsch zurechtgeschrie-_
+_ben:)_
+
+**Billy** – Ja, ich höre. – Reden sie bitte nicht so schnell, und bitte, reden sie nicht gleichzeitig zusammen, denn ich
+kann sie so nicht richtig verstehen. – – Danke, was haben sie denn zu sagen?
+
+**Frau:** Ich kann nicht gut Deutsch sprechen. Ich bin Frau … …, und der Mann bei mir ist Herr … … Wir danken ihnen,
+dass sie uns in ihrem Brief die Anrufnummer geschrieben haben, wir wissen aber nicht, wie er zu uns gekommen ist und
+plötzlich wie durch die Luft geflogen vor Herrn … … auf den Tisch kam. Es ist aber gut, dass wir jetzt mit ihnen sprechen
+können. Wir haben sie schon vorhin angerufen, aber die Verbindung war sehr schlecht, und wir kennen sie nur aus dem
+Internet, in dem sie die Sachen der FIGU verbreiten. Wir sind 5 Personen, die wir rund um unseren Präsidenten Selensky
+arbeiten, leider aber nicht wissen, was wir tun können, um diesen irren Mann in seiner Kriegshetzerei zu stoppen. Er schickt
+unsere Menschen gewissenlos in den Tod und hat Freude daran, weil er sich stark und mächtig fühlen kann. Er ist auch ein
+Sadist und züchtet schon Kinder zum Kriegen heran. Seine Lügen werden auf der ganzen Welt geglaubt, und darum geben
+auch viele ihr Wort für ihn und auch Waffen und andere Hilfe, womit er sein verbrecherisches Tun machen kann. Wir danken
+ihnen aber für alles, was sie tun und auch das ausgebreitet haben, was wir ihnen in den Briefen geschrieben haben. 2 von
+uns kennen Brunhilde, und sie haben mit ihr geredet, und es wäre uns genehm, wenn sie mit uns telephonisch in Verbindung tr…
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Billy** … entschuldigen sie bitte, Bruni resp. Brunhilde kann dies nicht mehr tun, denn sie ist leider schon vor länge
+rer Zeit gestorben. Es muss also schon Jahre her sein, seit sie hier waren und mit ihr gesprochen haben.
+
+**Mann:** Oh, das wussten wir leider nicht. – – Es ist tatsächlich schon einige Jahre her, seit wir bei der FIGU waren.
+
+Wir waren zu jener Zeit noch nicht bei der Regierung der Ukraine beschäftigt, und auch der Kriegshetzer und verlogene
+Selensky war noch nicht hier. Aber wir danken ihnen, Billy, dafür, dass sie Teile unserer Briefe in ihren Gesprächen mit den
+Plejaren erwähnt und im Internet aufgeführt haben. Auch sind wir ihnen besonders dankbar dafür, dass sie unsere Namen
+verschweigen, weil wir wirklich in Gefahr wären, wenn sie …
+
+**Billy** … ja, ich weiss, was sie sagen wollen. Sie müssen sich keine Sorgen deswegen machen, denn ich habe ihre
+
+Namen schnell und schon wieder vergessen, und zudem habe ich umgehend alle ihre Briefe vernichtet. Das wollten auch
+meine Kontaktleute von den Plejaren so.
+
+**Frau:** Wir wussten wirklich nicht, dass Brunhilde gestorben ist. Das ist sehr leidig, und …
+
+**Mann:** … ja, das ist es. Aber danke, dass sie uns das sagen. Brunhilde sagte uns damals, als wir sie besuchten, dass
+
+wir ihnen absolut vertrauen können, und darum wandten wir uns an sie. Und jetzt wissen wir auch, dass wir ihnen wirklich
+voll und ganz vertrauen dürfen, was tatsächlich eine Seltenheit auf dieser Welt ist. Wir wissen sehr wohl, dass wir ein
+grosses Risiko mit den Briefen eingegangen sind, doch was uns Brunhilde alles über sie gesagt hat, liess uns so handeln,
+dass wir mit den Briefen an sie gelangten und auch unsere Namen und Positionen nannten. Wir alle danken ihnen sehr. Es
+sind uns leider die Hände gebunden, weshalb wir nichts gegen unseren kriegslüsternen Präsidenten Selensky tun können,
+der den Krieg in unserem Land weiter und weiter führen will und kann, weil ihm viele Regierende und Einwohner vieler
+Länder hörig sind und ihm Kriegswaffen liefern. Er ist wirklich ein NAZI und so schlimm wie Hitler es war. Er könnte seine
+Wiedergeburt sein, er ist wirklich ein Verbrecher und sehr schlimm in seinem lügnerischen Tun, aber wir können ihn nicht
+aufhalten, weil wir nicht morden wollen, wie er sinnlos um seine Macht zu demonstrieren mit Lügen ukrainische und landesfremde Soldaten morden und in den Krieg ziehen lässt. Er ist der wirkliche Kriegsverbrecher, weil er derjenige ist, der
+diesen Krieg vorantreibt und nicht beenden will. Wenn er und Amerika nicht wären und sie nicht das tun würden, was sie
+tun, um ihre Macht zu behalten und die damit verbundenen Wünsche zu verwirklichen, dann wäre der Krieg nie zustande
+gekommen oder schon vor langer Zeit beendet worden. Er aber, Selensky, hetzt immer weiter und schickt unsere Soldaten
+in den Tod, weil er sie gewissenlos belügt und sie ihm glauben, wie viele auf der Welt das auch tun, weil sie sich von ihm
+und den Amerikanern belügen lassen. Auch steht Selensky dabei also noch Amerika zur Seite, wie auch viele Bevölkerungen
+der Welt, die er feindlich und kriegerisch aufhetzt und die durch Lügen gegen die Russen belogen werden und so Unwahrheiten verbreiten. Amerika will alles so weit bringen, dass es offiziell selbst in den Krieg eingreifen und gegen Russland mit
+Waffeneinsatz vorgehen kann, weshalb schon Schritte unternommen werden, um sich in anliegenden Ländern zu etablieren.
+Viele Vorsteher verschiedener Länder liefern nicht nur Waffen und ermöglichen so das Begehren von Selensky, das im Fortfahren des Krieges und des Tötens besteht, sondern sie nehmen in ihrem Unverstand nicht wahr, dass Amerika Russland
+zu Boden zwingen und beherrschen will, wie es auch ganz Europa und die ganze Welt beherrschen will, was vielfach schon
+gelungen ist, aber von den Vasallenländern resp. von den Staatsverantwortlichen und den Völkern nicht wahrgenommen
+wird oder nicht wahrgenommen werden will. Europa liegt Amerika besonders nahe am baldigen Beherrschen, denn die
+Verantwortlichen der Regierungen von ganz Europa merken nicht, dass Amerika schon auf dem besten Weg ist, alle Länder
+zu beherrschen, auch die Europäische Union. Zur Verwirklichung des Planes von Amerika ist die Ukraine, unser Land, geradezu ideal, das zu erreichen, was der Plan der Amerikaner verwirklichen soll.
+
+**Frau:** Ja, und dabei helfen alle jene Verantwortungslosen und Dummen an den Regierungen vieler Länder mit, weil
+
+sie Selensky Waffen liefern, womit er den Krieg weiterführen und viele Menschen töten lassen kann. Die Verantwortungslosen der vielen Regierungen der Länder verstehen aber nicht, dass sie durch Waffenlieferungen am Weiterführen des Krieges Mittäter und Schuldige am Töten und Zerstören sind und sehr viel für das ganze Elend in unserem Land beitragen. Alle,
+die Waffen an Selensky liefern, sind Beteiligte und Mitschuldige am Krieg. Nach dem Willen des Kriegsverbrechers Selensky,
+und auch den ebenfalls kriegsverbrecherischen Amerikanern, soll alles so weitergehen, bis Russland auch überfallen und
+besiegt werden kann. Sie, Billy – wir bitten sie –, dass sie das verhindern und den Verantwortungslosen der Regierungen
+jener Länder sagen, dass sie mit den Waffenlieferungen und jeder anderen Hilfe an Selensky sehr Böses in der Ukraine anrichten. Mit jeder Patrone und jeder Waffe wird die Töterei und das Morden und alles Elend sich endlos steigern, und zudem öffnet es immer mehr den Weg für die Amerikaner und der von ihnen abhängigen NATO, direkt in den Krieg einzugreifen und den bereits bestehenden Weltkrieg offiziell werden zu lassen, der bereits dadurch stattfindet, dass andere Länder
+Waffen und sonstige Kriegshilfe an Selensky liefern und sich am Ganzen mitschuldig machen, nämlich an dem, was sich
+durch Waffenlieferungen ergibt. Soweit denken aber offensichtlich die Verantwortlichen der waffenliefernden Regierungen
+nicht, wie auch die Befürwortenden aus den Bevölkerungen nicht, die nicht erkennen, was Selensky wirklich anrichtet und
+zudem Amerika will. Sie, Billy, müssen etwas dagegen tun, denn …
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
+**Billy** … was ich aber nicht kann, denn ich habe weder die Macht, etwas in diesem Rahmen zu tun, noch will oder
+
+kann ich mich einmischen, denn ich kann und will mich einerseits weder politisch betätigen, noch kann ich sonstwie am
+Ganzen etwas tun, denn mein Gewissen und meine Neutralität lassen das nicht zu. So kann ich nicht der einen Seite zustimmen und der anderen die Rote Fahne zeigen. Meinerseits kann ich nur feststellen, was abläuft resp. was Wirklichkeit und
+deren Wahrheit ist, und diese Wahrnehmung und Erkenntnis bekanntmachen. Mehr kann ich aus meiner Sicht leider nicht
+tun, sondern eben im Höchstfall sagen, was richtig und was falsch ist. Folglich kann ich auch nur bemüht sein, das mit ihnen,
+Frau …, und mit ihnen, Herr …, geführte Gespräch durch die FIGU im Internet zu veröffentlichen, wodurch weitum bekannt
+wird, was sie zu sagen haben. Mehr kann ich leider nicht tun, denn schon damit, dass ich …, setze ich mich bei Antagonisten
+in die Nesseln. Daher will ich das Gespräch auch beenden und ihnen nochmals sagen, dass ich wirklich nicht mehr als das
+tun kann, was ich gesagt habe. Damit denke ich, dass jedes weitere Wort diesbezüglich überflüssig ist, weshalb ich nicht
+mehr weiterreden will und ich ihnen wünsche, dass sie weiterhin in Sicherheit sein können. Meinerseits kann ich nur hoffen,
+dass bei allen jenen doch noch irgendwie Verstand und Vernunft durchdringt, die Selensky mit Waffen und sonstigen Hilfsgütern versorgen und dass sie ihr unbedachtes Tun stoppen und beenden und damit auch den Amerikanern nicht weiterhelfen, ihre hinterhältigen Pläne mit der NATO zusammen zu verwirklichen, unter deren Regie bereits viele Staaten der
+Erde stehen, in denen die USA sich mit ihrem Militär und ihrer Wirtschaft bereits gewaltig festgesetzt haben. Dies, ohne
+dass die grossmäuligen Regierenden dieser Staaten bisher gemerkt haben, was eigentlich gespielt wird und was Amerika
+eigentlich zusammen mit der NATO bezweckt. Also wünsche ich ihnen viel Glück und Gesundheit, bedanke mich für ihr Vertrauen und möchte ihnen nahebringen, dass sie mich weder nochmals telephonisch anrufen noch mir schreiben, denn ich
+kann wirklich nichts tun.
+
+_(Den Rest des Gespräches lasse ich aus, denn es sind nur noch Worte des Dankes und des Anstandes.)_
+
+**Bermunda** Das Gespräch habe ich dermassen beim Aufzeichnen gestört, dass es nicht mitgehört und anderweitig auch
+
+nicht aufgezeichnet werden konnte, denn wenn deine Telephonate unter Umständen abgehört werden, wie es mir erscheint, dann wäre das gefährlich für dich und die Anrufenden. Mein Gerät weist tatsächlich eine fremde Manipulation auf,
+die auf ein Abhören des Telephonates hinweist.
+
+**Billy** Das ist gut, denn du hast wohl recht, denn manchen wird es wohl nicht in ihren Kram passen, dass … was
+
+denkst du dazu?
+
+**Bermunda** Das wird so sein. Doch jetzt muss ich wieder gehen, denn meine Abwesenheit kann nur von kurzer Dauer
+
+sein, und diese ist nahezu überschritten. Daher, auf Wiedersehn, lieber Freund.
+
+**Billy** Was eben sein muss, das muss sein. Auf Wiedersehn.
+
+COPYRIGHT und URHEBERRECHT 2022 bei ‹Billy› Eduard Albert Meier, ‹Freie Interessengemeinschaft Universell›, Semjase Silver Star
+Center, 8495 Schmidrüti, Schweiz. Kein Teil dieses Werkes, keine Photos und sonstige Bildvorlagen, keine Dias, Filme, Videos und keine
+anderen Schriften oder sonstige Materialien usw. dürfen ohne schriftliche Einwilligung des Copyrightinhabers in irgendeiner Form (Photokopie, Mikrofilm oder ein anderes Verfahren), auch nicht für Zwecke der Unterrichtsgestaltung usw., reproduziert oder unter Verwendung elektronischer Systeme verarbeitet, vervielfältigt oder verbreitet werden.
+
+Veröffentlicht auf www.FIGU.org durch:
+‹Freie Interessengemeinschaft Universell›, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+Copyright 2022 bei ‹Billy› Eduard Albert Meier, Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+
+
+-----
+
