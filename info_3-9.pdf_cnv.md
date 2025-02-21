@@ -1,0 +1,747 @@
+# INFO 3–9
+
+FIGU – SSSC
+Freie Interessengemeinschaft
+Hinterschmidrüti 1225
+CH-8495 Schmidrüti ZH
+Schweiz
+
+
+-----
+
+**© FIGU 1983/1991/1997/2012**
+Einige Rechte vorbehalten.
+
+Dieses Werk ist, wo nicht anders angegeben, lizenziert unter
+www.figu.org/licenses/by-nc-nd/2.5/ch/
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung**
+**des Urhebers ausdrücklich erlaubt.**
+
+Erschienen im Wassermannzeit-Verlag:
+FIGU, ‹Freie Interessengemeinschaft›,
+Semjase-Silver-Star-Center, Hinterschmidrüti 1225, CH-8495 Schmidrüti ZH
+
+
+-----
+
+**INFO  3**
+
+## Aktionen der FIGU
+
+Wir zeigen dem Menschen auf, welche katastrophale Wirkung die Trockenlegung von Feuchtwiesen, Sümpfen, Naturbächen, Tümpeln, Kiesgruben,
+Teichen und Mooren usw. hat, sowie die Auswirkung von Pflanzenschutzmitteln und phosphathaltigen Reinigungsmitteln, wie aber auch die vielfältigen
+Abgase, die Fauna und Flora durch Vergiftungen und sauren Regen ebenso
+zerstören wie auch das menschliche Leben.
+Wir zeigen dem Menschen auch auf, welcher Wahnsinn und welche Katastrophen durch unverantwortliche wissenschaftliche und politische Machenschaften, Macht und Intrigen sowie Verantwortungslosigkeiten die Erde und
+ihr gesamtes Leben menschlicher, faunaischer und florischer Natur an den
+Rand des Ruins und des Verderbens getrieben haben.
+Und wir zeigen dem Menschen auf, wie der Wahnsinn von Irrlehren zu
+falschen und mörderischen Gesetzen und deren Handhabung geführt hat,
+durch die Kriege, Todesstrafe, Revolutionen, Sektierertum, Machtgier, Lieblosigkeit, Materialismus und Laster usw. bereits Milliarden von Menschen
+und unzählbares Leben in Fauna und Flora und ein Teil des Planeten selbst
+ermordet wurden – furchtbar und bestialisch.
+Und wir zeigen dem Menschen auch auf, welche Tode und Katastrophen
+bereits durch sein eigenes falsches Denken und Handeln über ihn selbst,
+über den Planeten und über Fauna und Flora hereingebrochen sind in Millionenzahl und so mannigfacher Form, dass die Tode und Katastrophen nicht
+mehr zählbar sind und nicht mehr erfassbar in irgendeiner Form.
+
+Wir zeigen dem Menschen aber auch auf, dass nur noch eine solidarische Behebung all des durch Menschenhand und Menschendenken hervorgerufenen
+Wahnsinns den Planeten Erde und seine darauf existierenden Lebensformen
+menschlicher sowie faunaischer und florischer Form retten kann.
+Wir kämpfen darum, möglichst viele verantwortungsbewusste Menschen aufzurütteln, sie zu motivieren, an diesem Kampf gegen die totale Zerstörung
+und gegen den bereits schrecklich sichtbar gewordenen, heranschleichenden
+Tod der Vernichtung tatkräftig teilzunehmen, zum Schutz, Erhalt und Weiterleben des Planeten, der Natur, der Gattung Mensch, der Pflanzen und Tiere –
+die alle voneinander abhängig sind und die ohne die anderen Mitlebens formen und deren Leben nicht existieren können.
+
+
+-----
+
+Wir sagen dem Menschen, was er konkret tun kann, was er tun oder unter lassen soll, wie er allein gegen den Wahnsinn des Materialismus, der Profit gier, der Zerstörung und des Verderbens angehen kann.
+
+Wir sagen dem Menschen, dass wir mit allen verfügbaren und verantwortbaren Mitteln Menschen, Behörden, Regierungen, Schulen, Vereine, Firmen
+und Organisationen usw. mit aktiven und konkreten Aktionen auf die Seite
+des Lebens bringen müssen, um das Weiterleben des Menschen, des Planeten sowie der gesamten Natur in Fauna und Flora gewährleisten zu können. Eben hat die Uhr nämlich gerade zwölf geschlagen – auch wenn dies
+durch verantwortungslose Verbrecher noch immer bestritten wird, die hinter
+grossen Bürotischen, Reagenzgläsern oder dicken Bankkonten hocken, um
+skrupellos und verbrecherisch ihrer Gier des Profitkrallens zu frönen, als gefühlskalte, bedenkenlose und über die Leichen ihrer eigenen Angehörigen
+gehenden grössten Massenmörder aller Zeiten, die gleichgestellt werden
+können mit Menschheitsverbrechern wie Hitler, Husain, Ceausescu, Khomeini, Eichmann, Bormann und Mengele usw.
+
+Wir wollen und kämpfen darum, dass der Planet Erde, der Mensch und alle
+auf der Erde existierenden Lebensformen aller Art überleben können, nicht
+in einer verteufelten, versauten und durch Mord und Totschlag sowie durch
+Chemie und Radioaktivität lebensfeindlich gemachten Welt, sondern dass
+alles, Planet Erde, Menschen, Pflanzen, Tiere, Gewässer und alles, was
+kreucht und fleucht, weiterleben kann – ohne Vergiftungserscheinungen,
+Seuchen, qualvolle und unnatürliche Tode, Verbrechen, Hab- und Machtgier
+sowie Profitgier, Laster, falsche Politik, Sektierertum, Angst und Furcht
+sowie Irrlehren usw.
+Billy
+
+
+-----
+
+**INFO  4**
+
+## Die Zukunft des Planeten Erde und allen Lebens steht auf dem Spiel … denn die Uhr schlug eben zwölf!
+
+Eine Erdenwelt ohne Leben?
+Leer, ausgebrannt und verseucht durch Chemie und Radioaktivität?
+Beherrscht von tödlichen Seuchen, ausgelaugt, ausgebeutet, ruiniert und zerstört – bar jeglichen Lebens?
+
+Wahrlich, wenn wir uns nicht jetzt endlich entscheiden und handeln, um weitere Zerstörung aller Art zu verhindern und bereits Zerstörtes wieder aufzubauen und dem Leben zurückzugeben, dann kann diese Horrorvision einer
+leblosen Erde in kurzer Zeit Wirklichkeit werden. Nichts vermag dann mehr
+den Wahnsinn der machtgierigen, kriegshetzerischen sowie laster-, vergnügungs-, profitsüchtigen und verantwortungslosen Menschen aufzuhalten,
+die allein eigener Vorteile wegen Planet und Leben dem Tode und der totalen
+Zerstörung und Vernichtung überantworten. Der Prozess des Wahnsinns
+und der Totalzerstörung von Planet und Leben läuft dann ungehemmt weiter
+– schnell, erbarmungslos und bis zum bitteren Ende.
+
+Es geht dabei nicht nur um den Menschen und das Leben von heute, und es
+geht nicht nur um die bereits zu Tausenden Hektar zerstörten Wälder durch
+sauren Regen.
+Es geht um das gesamte Leben überhaupt,
+
+um den Planeten selbst,
+
+um den Menschen,
+
+um die gesamte Flora,
+
+um die gesamte Fauna,
+
+um alles, was kreucht und fleucht,
+
+und es geht vor allem auch um die Zukunft, in der unsere
+Nachkommen leben müssen und leben sollen, ohne dass sie
+durch chemische und atomare Verseuchung monstergleiche,
+grauenvolle Kreaturen sind, die einer dämonischen Satansgestalt ähnlicher sind als einem menschlichen Wesen.
+
+
+-----
+
+Genau dazu aber führen Kriege, Revolutionen, Sektierertum, Chemie, Machtund Profitgier, Land-, Fauna-, Flora- und Planetenzerstörung, wobei aufkommende Neu-Krankheiten zu Siechtum und Epidemien führen, ohne Möglichkeiten einer Heilungschance, wie bei AIDS und neuen bösartigen
+Seuchen, bei denen ein unausweichlicher Tod voller Schmerzen die Folge
+ist. Nicht nur der Lebensraum von Menschen, Pflanzen und Tieren wird von
+den verbrecherischen Verantwortungslosen und mörderischen Elementen
+zerstört, denn auch der Planet selbst sowie alles Kleinstleben und gar die
+Atemluft werden durch Gifte und Radioaktivität dermassen übersättigt, dass
+bereits in allem auf der Erde und durch unverantwortliche Menschenschuld
+grauenvoller und mit Qualen angereicherter Tod in mannigfacher Form lauert,
+bereit, eine jegliche Lebensform anzugreifen und zu zerstören – egal, ob
+Mensch, Pflanze, Tier oder gar den Planeten selbst.
+
+**Bereits erlebt der Mensch die Hölle,**
+**den Himmel versteht er aber noch nicht.**
+Billy
+
+
+-----
+
+**INFO  5**
+
+## ÜBERBEVÖLKERUNG
+#### Lösung der Probleme: HUNGER ENERGIEKNAPPHEIT UMWELTVERSCHMUTZUNG KRIMINALITÄT SEUCHEN ÜBERBEVÖLKERUNG LUFTVERSCHMUTZUNG TIERAUSROTTUNG KRIEG MISSWIRTSCHAFT WASSERVERSEUCHUNG PFLANZENSTERBEN usw. usf.
+
+Ein Übel kann niemals durch ein neuerdachtes und neu eingeführtes weiteres
+Übel bekämpft und behoben werden, wie dies völlig unlogisch durch den
+Menschen der Erde praktiziert wird.
+Wird Energie knapp, werden ganz einfach neue und kapazitätsreiche Atom-,
+Wasser-, Oil- und Kohlekraftwerke geplant und erbaut, die selbstredend
+nach der 3- bis 5jährigen Bauzeit die inzwischen durch den weiteren Bevölkerungszuwachs gestiegene Energieknappheit niemals zu decken vermögen.
+Durch das unaufhaltsame Weitersteigen der Erdbevölkerung nämlich steigt
+auch der Energiebedarf (und alle anderen Probleme überhaupt), der viele
+Prozente von jenem Bedarf mehr ausmacht, als zu der Zeit, als das Kraftwerk
+geplant wurde.
+Der Mensch der Erde handelt jedoch nicht nur im Bezuge auf die Deckung
+und die Lösung des Energieproblemes hin völlig falsch und unlogisch, sondern
+in jeder Beziehung. Geht er so z.B. das Problem des Hungers in der Welt
+an, dann ruft er unzählige Hilfsorganisationen ins Leben, die Gelder und Lebensmittel sowie andere Hilfsgüter sammeln, um einerseits gesetzlich gerechtfertigt 40% in die eigene Tasche zu wirtschaften, und um andererseits
+Hunderttausende und Millionen von hungernden Menschen mit all dem einzudecken, was sie dann am Leben erhält. Dadurch jedoch wird das Leid
+des Menschen nicht gemildert, so also von keiner Problemlösung gesprochen werden kann. Die falsch verstandene Nächstenliebe, Menschlichkeit
+(sprich Humanität) und angebliche Hilfe, hauptsächlich erzeugt durch sek
+
+-----
+
+tiererisch-religiösen Einfluss und Irrlehren, entsprechen allem anderen als
+Liebe und Humanität; und statt dass wahrliche Hilfe in Liebe geleistet wird,
+entstehen durch die falsche Humanität und falsche Nächstenliebe noch
+grössere Probleme als zuvor. Verantwortungslos aber, ohne wahrliche Überlegung der Wahrheit und ohne wahrliche Pflichterkennung und Pflichterfüllung
+sowie ohne Ehrfurcht vor dem wahrheitlichen Leben, sind Menschen in riesenhafter Zahl vorhanden, die in falscher Nächstenliebe und falscher Humanität leben und dieses Falsche mit allen Mitteln unterstützen. Wo überall
+möglich, spenden sie Gut und Gelder für ‹Brot für Brüder›, ‹Hunger in der Welt›
+und für sonstige Hilfsorganisationen aller Art, die in der Regel nichts anderes
+tun, als der Natur ins Handwerk zu pfuschen und natürlich todgeweihtes
+Leben am Leben zu er halten.
+Hungernde Todgeweihte werden zu Hunderten von Millionen durch falsche
+Nächstenliebe und falsche Humanität am Leben erhalten. Die vom Hungertode Erretteten werden gross und kräftig – und schon zeugen auch sie wieder Nachkommen, deren Zahl jährlich mit zigmillionen zu errechnen ist; Nachkommen in vielmillionenfacher Zahl, die schon in verdammt kurzer Zeit ebenfalls wieder Nachkommen zeugen, die die Welt noch schneller überbevölkern
+und alle Probleme ins Unermessliche steigern. Probleme, die so vielfältiger
+Art sind, dass sie rein gar nichts auslassen, was das Leben des Planeten Erde,
+dessen Fauna und Flora und das menschliche Leben selbst betrifft.
+Zur gegenwärtigen Zeit, 1983, trägt die Erde bereits 5,9 Milliarden (2012:
+8,2 Milliarden) Menschen. Eine Anzahl, die bereits sehr weit dem übersetzt
+ist, was die Erde grundsätzlich naturmässig in normalem und gesundem
+Rahmen ernähren kann, ohne dass eine menschliche Lebensform Hunger
+leiden müsste. Die Erde ist ein Planet, der mit allem Drum und Dran sorgenlos und ohne Probleme 529 Millionen Menschen ernähren kann. Der
+Mensch jedoch (und insbesondere Wissenschaftler und Religionen) trieb
+durch Chemie und sonstige Gifte usw. alles zu übernatürlichen Höchstleistungen in der Erdausbeutung aller Art, so dass trotz Bodenzerstörung mit
+Giften der riesenhafte Teil der Menschen durch chemiegeschwängerte Lebensmittel usw. am Leben erhalten werden kann.
+Ursprünglich lebten in jedem einzelnen Landstrich der Erde nur gerade so
+viele Menschen, wie das betreffende Gebiet zu ernähren vermochte – ohne
+Chemie und sonstige Gifte, die ja nur durch den Menschen in die Böden und
+Pflanzen usw. eingebracht werden. Dies war noch so bis zum Mittelalter,
+insbesondere bis zur Zeit der grossen Französischen Revolution, als noch
+eine Zahl von rund 500 Millionen Menschen die Erde bevölkerte. Doch dann
+waren verschiedene Religionen (wie z.B. der Katholizismus) derart mächtig,
+dass sie die Irr- und Wahnsinnslehre «Gehet hin und vermehret euch» derart
+
+
+-----
+
+in alle Länder der Erde zu verbreiten vermochten, dass in allen Herren Ländern eine meerschweinchenartige Vermehrung des Menschen erfolgte, die
+zwangsläufig mehr und mehr Nahrung und vieles andere forderte – bis hin zur
+totalen chemischen Nahrungsmittelherstellung. Jedoch nicht nur das Problem der Nahrungsmittelbeschaffung stieg unaufhaltsam an, sondern auch
+das Problem der Energieknappheit, das der völligen Weltverpestung und Weltzerstörung, und viele andere Übel, die ellenlange Listen ergeben, wenn sie
+aufgezählt werden. Und nun ist der Mensch der Erde, der Planet und alles
+Leben überhaupt an dem Punkt angelangt, wo alles aus dem letzten Loch
+pfeift – und alles durch die Schuld jener, welche falscher Nächstenliebe und
+falscher Humanität anhängig sind und die dadurch genauso verbrecherisch
+handeln, schalten und walten wie jene, welche an verantwortlichen Posten
+in Verwaltungen und Regierungen und in Hilfsorganisationen hocken und alles
+erdenklich Mögliche dazu tun, um den Rest des Lebens und den Planeten
+Erde noch völlig zur Sau zu machen; hin bis zur endgültigen und unwiderruflichen Zerstörung. Schuld daran sind aber auch alle jene, welche verantwortungslos und initiativelos allen Beginn einer Änderung zum Besseren auf den
+Nächsten abschieben, mit der primitiven Schwachsinnsrede «Was soll ich
+denn als einzelner tun?» oder «Wenn andere mitmachen, dann mache ich
+selbstverständlich auch mit», usw. usf. Wer aber so denkt, der ist seines
+Lebens ebensowenig würdig und nicht fähig, wie auch jene nicht, welche
+durch falsche Humanität und falsche Nächstenliebe usw. allen Wahnsinn
+der Weiter-Überbevölkerung noch voran treiben und alle übrigen noch schlimmeren und kommenden Probleme der irdischen Menschheit ins Unermessliche steigern.
+Alle brüllenden Übel der irdischen Menschheit finden ihren Ursprung und ihr
+Bestehen in der Tatsache der Überbevölkerung und deren unaufhaltsamen
+weiteren unverantwortlichen Steigerung. Also kann das Übel nur dadurch
+bekämpft und behoben werden, wenn dasselbe an den Wurzeln erfasst,
+ausgerissen und vernichtet wird: Die irdische Menschheit muss drastisch
+reduziert werden. Die einzige humane Basis einer Menschheitsreduzierung
+jedoch kann nur durch eine Geburtenregelung erfolgen, die erst in einem
+bestimmten Alter der Eheleute und auch nur eine strengstens bestimmte
+Anzahl Nach kommen erlaubt; dies wider alle Ausflüchte, Widerreden, Ängste und Blöd- sinnskommentare jener Schwachsinnigen, die aus militärischen, witschaftlichen, religiösen oder falschen Humanitäts- und
+Nächstenliebegründen behaupten, dass Nachkommen in grosser Zahl erforderlich seien oder dass Geburtenkontrolle religionswidrig oder unmenschlich usw. sei. Solchen Schwachsinn vermögen nur grenzenlose
+Egoisten, Sektierer und sonstige Lebensunfähige vorzubringen, die weder
+
+
+-----
+
+von natürlichen Gesetzen und Geboten, geschweige denn von wahrheitlicher
+Logik auch nur einen Dunst eines Ahnungsschimmers haben.
+Alle bestehenden Grossprobleme der irdischen Menschheit können nur
+durch eine gezielte Geburtenkontrolle gelöst werden, wodurch die Menschheit auf ein dem Planeten angepasstes normales Mass reduziert wird. Alle
+anderen Massnahmen zur Problemlösung stellen einzig und allein jämmerlich-klägliche und nutzlose Versuche dar, die nicht einmal einem Tropfen
+Wasser auf einen heissen Stein gleichkommen und die im Gegenteil alle
+Übel und Probleme noch immer mehr steigern.
+Barbarisch und unhuman sowie nächstenliebelos soll das sein? Ganz im Gegenteil: Wenn du selbst einmal logisch über diese Tatsachen nachdenkst
+(wenn du das nicht schon längst getan hast und daraus die gleiche Wahrheit
+gefunden hast), dann findest du auch die Wahrheit in logischer Form, die dem
+Vorgenannten entspricht. Nur unlogisch denkende und einer falschen Nächstenliebe und falschen Humanität anhängende Menschen können die Wahrheit verleugnen, weil sie durch sektiererische Machenschaften und Irrlehren
+in Bahnen gezwängt sind, die hündisch kriechend machen und die jedes
+gesunde, vernünftige, normale und wahrheitliche Denken, Fühlen und Handeln rauben, wodurch statt Mitgefühl mit allen Lebensformen nur Mitleid,
+Selbstmitleid, Schwachsinn und Unlogik entstehen. Alle Ehrfurcht und Liebe
+in uns zum wahrlichen Leben werden dadurch zerstört, wodurch falsche Humanität und falsche Nächstenliebe weiter wie eiternde Geschwüre entstehen und sich seuchenmässig ausbreiten können.
+Seit jeher war die Wahrheit im Bezuge auf Fehler- und Schuldklarstellung
+verdammt hart, und nur selten wird die harte Wahrheit von einem Menschen
+ohne Murren und Knurren aufgenommen. Stets fühlt sich der Mensch der
+Erde in seiner Person angegriffen, wenn ihm die Wahrheit gesagt und erklärt
+wird. Er setzt sich ganz einfach über alles und jedes und wähnt sich dadurch
+fehler- und schuldlos, wodurch er die Wahrheit nicht erträgt und dagegen
+rebelliert, weil diese Wahrheit nicht seiner eigenen Meinung entspricht.
+Wahrlich, dieses Tun und Handeln des Menschen ist nichts mehr denn eine
+stinkende Feigheit, die kotzende Übelkeit in jedem erregt, der nur halbwegs
+normal zu denken vermag.
+Die Wahrheit klang schon immer hart, und die wahrliche Wahrheit um
+Liebe, Nächstenliebe und Humanität ebenso, denn allesamt in einem fordern
+sie vom Menschen logisches Denken und Handeln. So auch im Sinne der
+Problembehebung bei der irdischen Menschheit, die besagt, dass einzig
+und allein eine Reduzierung durch harte Geburtenkontrolle alle bestehenden
+Grossübel beheben kann und dass keine unhumane Hilfen geleistet werden
+an natürlich dem Tode Geweihte, wie jene, welche durch Wahnwitz und
+
+
+-----
+
+Unvernunft gezeugt und zu Hungernden in der Welt werden, in der sie des
+Todes sterben sollen, weil die Gesetze der Natur dies fordern.
+Auch für den Menschen der Erde gelten die Gesetze der Natur, die ein jeder
+Sehende mit Leichtigkeit zu erkennen vermag: Ist da und dort ein Gebiet, wo
+eine Tierart plötzlich in ihrer Population ansteigt und Gefahr besteht, dass
+das betreffende Gebiet die ansteigende Population nicht mehr ernähren kann,
+dann treten Seuchen in Erscheinung, die die steigende und übermässige
+Population der Tiere wieder dezimieren. Weiter tritt es in solchen Fällen auch
+immer in Erscheinung, dass die zu grosse Population einfach des Hungers
+stirbt oder durch Hungerschwäche ihren natürlichen Feinden zum Frasse
+wird. So erhält die Natur ihre natürliche Population, wodurch in einem Landstrich stets nur gerade so viele Lebensformen faunaischer Form leben, wie
+dieses Gebiet eben zu ernähren vermag. Nur der Mensch als denkendes
+Wesen widerhandelt diesem natürlichen Gesetz und tritt es mit Füssen. Im
+Gegensatz zu den faunaischen Lebensformen zeugt er Nachkommen in
+überbordendem Masse, und schon längst sind die nahrungsspendenden
+Gebiete dermassen von Menschen überbevölkert, dass die Menschen nicht
+mehr genügend Nahrung anbauen und finden können. Andererseits haben
+sich die Menschen auch in Millionenherden in Städten zusammengerottet,
+die auf einstmals fruchtbarem Nahrungsmittelboden erbaut wurden und die
+nun von allüberall dort Nahrungsmittel beziehen (ohne selbst dafür einen
+Handstreich bei der Anpflanzung, Hegung und Ernte zu tun), wo noch Ländereien für Gartenbau und Landwirtschaft frei geblieben sind.
+Der Mensch wähnt sich als Krone der Schöpfung und nimmt sich deshalb
+das Recht des Wahnsinns, dass er infolge seines Denkvermögens allem
+übersetzt und berechtigt sei, eine planetare Menschen-Überbevölkerung zu
+haben und alle natürlichen Gesetze und Gebote missachten und mit Füssen
+treten zu dürfen. In diesem Grössenwahnsinns-Sinnen ist er bereits so unhuman, nächstenliebelos und schwachsinnig geworden, dass alles zur grenzenlosen Feigheit ausgeartet ist: Das reale und vernünftige Denken sowie
+wahrliche Liebe, Nächstenliebe, Humanität und Wahrheitsliebe sind völlig
+abgestumpft, wodurch nicht mehr erkannt werden kann, dass z.B. die
+Schuld der Überbevölkerung alle Grossprobleme der irdischen Menschheit
+hervorruft, die nur durch Reduzierung in Form einer harten Geburtenkontrolle behoben werden können. Doch anstatt diese Wahrheit zu erkennen,
+werden verbrecherisch Hilfsorganisationen unterstützt, die widernaturgesetzlich gezeugte Menschen in aller Welt ernähren und aufpäppeln, die wiederum dann zigmillionen Nachkommen zeugen und alle Grossprobleme ins
+Unermessliche treiben. Wohlhabendere unterstützen diese Machenschaften mit Milliardenbeträgen, jedoch nur, um ihr schlechtes Gewissen zu be
+
+-----
+
+ruhigen, das aus ihrer falschen Humanität und falschen Nächstenliebe resultiert. Diese Helfenden belügen feige ihr eigenes Gewissen, weil sie unfähig sind, die wahrheitliche Wahrheit zu erkennen und gemäss dieser zu
+handeln. So helfen sie am falschen Ort und für falsche Dinge und laden die
+Schuld auf sich, direkt selbst an der Entwicklung des weiter kommenden
+Elendes und der vielen Katastrophen und der Nöte beteiligt und verantwortlich zu sein.
+
+Brutal und unhuman, wenn die natürlichen Gesetze und Gebote befolgt
+werden? Nein, brutal und unhuman und nächstenliebelos ist es, wenn der
+Mensch seine Überbevölkerung mit allen Mitteln weiter beibehält und noch
+fördert – wenn er natürlich dem Tode Geweihte durch falsche Humanitätsduselei aufpäppelt, so sie weitere zigmillionen Nachkommen zeugen können, wenn er aus Sektierertum und schwachsinniger Gefühlsduselei keine
+harten Geburtenkontrollen durchführt, denn dadurch wird alles Elend und
+alles an Problemen noch grösser und unbekämpfbarer, wodurch schliesslich
+keine Lösung und keine Rettung mehr möglich sein wird.
+
+### Erforderliche Massnahmen weltweiter Form:
+_(Besitzen nur Ungültigkeit für kleine Busch-Naturvölker, die seit alters her_
+_eigene harte Geburtenregelungsmassnahmen durchführen.)_
+
+**Erlaubtes Heiratsalter:    weiblich:      männlich:**
+25 Jahre      30 Jahre
+
+**Nachkommenszeugungs-Alter:**
+28 Jahre      33 Jahre
+
+**Nachkommenszeugungs-Voraussetzungen:**
+A) bestehende Ehe von mind. 3 Jahren.
+B) Nachweis einer harmonischen und gesunden
+Ehe.
+C) Nachweis eines einwandfreien Lebenswandels
+der Ehepartner.
+D) Nachweis der Kinder-Erziehungsfähigkeit.
+E) Gesundheitsnachweis: Keine vererbbare und ansteckende Krankheiten, keine Drogen-, Medikamente- oder Alkoholsucht usw.
+
+
+-----
+
+**Maximale Nachkommensanzahl:**
+3 Nachkommen pro Ehe.
+
+**Geburtenstopp-Intervall:**
+7 Jahre: Völliger Geburtenstopp weltweit.
+
+1 Jahr:  Zeugungserlaubnis gemäss Erlaubnisvorlage.
+
+7 Jahre: Völliger Geburtenstopp weltweit.
+
+1 Jahr:  Zeugungserlaubnis gemäss Erlaubnisvorlage.
+
+usw.    Durchführbar so lange, bis die Reduzierung der
+irdischen Menschheit den Normalstand erlangt
+hat.
+
+Danach: Erlaubnisvorlagen zur Ehe und zur Zeugung von
+Nachkommen bleiben in Kraft, wobei jedoch
+der Siebenjahreszyklus des Geburtenstopps
+ausfällt.
+
+**Weiter bestehen beibt:    3 Nachkommen pro Ehe.**
+
+**Strafmassnahmen bei Zuwiderhandlungen:**
+
+A) Geldstrafe in Höhe von 10 Jahres-Gehältern
+beider Fehlbaren.
+
+B) Sterilisierung beider Fehlbaren.
+
+C) Kastrierung der Fehlbaren bei Notzucht und
+Vergewaltigung usw. sowie deren lebenslänglicher und geschlechtlich getrennter Ausschluss
+aus der Gesellschaft.
+
+D) Staatliche Entziehung und Erziehung aller
+Kinder der Fehlbaren.
+
+
+-----
+
+**Brutal und unhuman?     Was ist wohl brutaler, unhumaner und näch-**
+stenfeindlicher sowie lebensfeindlicher als
+
+1) eine durch Menschen überbevölkerte Welt, in
+der Hunger, Elend und Not und grauenvolle
+Tode herrschen, in der Kriege, Mord und Totschlag, Betrug, Hass, Seuchen und Zerstö rung, Laster und Süchte usw. zur
+Tagesordnung gehören, wodurch täglich Millionen von Menschen elend krepieren unter
+furchtbaren Schmerzen, oder Zigtausende
+jämmerlich verrecken unter den Folterqualen
+ihrer Peiniger und Henker
+
+**ODER**
+
+2) eine durch Menschen normal bevölkerte Welt,
+in der alle Übel, Probleme und Nöte klein und
+normal geworden sind und in der kein Hunger
+und kein Elend herrschen sowie die Angst vor
+Krieg und allem Bösen so reduziert ist, dass
+tatsächlich die Möglichkeit eines vereinenden
+Friedens gegeben wird, der die stetige Angst
+vor der Zukunft verschwinden lässt und ein
+Leben in Liebe, Logik und Vernunft usw. ermöglicht?
+
+### Denke einmal darüber nach, in welcher Welt Du leben möchtest, und ob echte, wahrliche Humanität, Liebe, Nächstenliebe und die Wahrheit nicht doch alles an fal- scher Humanität, falscher Nächstenliebe und alle Lügen übertrifft – und frage Dich dabei auch, in welcher Welt Deine und wiederum deren Nachkommen leben möchten.
+
+Billy
+
+(Weitere Informationen zum Thema ‹Geburtenstopp-Massnahmen› sind zu
+finden in der Überbevölkerungsschrift Nr. 3 der FIGU.)
+
+
+-----
+
+**INFO  6**
+
+## AKTION: Gegen Kriminalität
+
+Menschen, die anderen Menschen nur noch mit Misstrauen begegnen
+können?
+
+Menschen, die sich verbarrikadieren müssen und ihre Häuser und Wohnungen nicht mehr verlassen können, ohne bewaffnet zu sein?
+
+Erpressung, Mord, Notzucht, Vergewaltigung, Diebstahl und Raubüberfälle,
+die unsere Gesellschaft und ihr Zusammenleben prägen?
+
+Kriminalität, an die wir uns gewöhnen müssen wie an unser täglich Brot?
+
+**NEIN, NEIN und nochmals NEIN! Wer möchte und könnte unter solchen**
+Umständen und Voraussetzungen noch leben?
+
+Auch im Bezuge auf die überhandnehmende Kriminalität müssen wir aktiv
+und tatkräftig handeln, um eine völlige Demoralisierung und eine allgemeine
+Verderbnis der Gesellschaft und der Menschen zu verhindern.
+
+Bezüglich der Kriminalität müssen ebenso radikale und tiefgreifende Massnahmen ergriffen werden wie auch im Strafvollzug. Ausser den bereits gesetzlich anerkannten und verankerten kriminellen Handlungen sind auch alle
+anderen Handlungen, die sich gegen die Natur, gegen Fauna und Flora und
+somit gegen das Leben schlechthin wenden, als solche zu verfolgen und zu
+bestrafen.
+
+Menschen, die infolge krimineller Handlungen dem Strafvollzug einzuordnen sind, haben von der Gesellschaft ausgesondert zu werden; nicht in
+Strafanstalten, die sich in Städten oder in Dörfern befinden und wo Polizei
+oder Strafvollzugsbeamte und Gefängniswärter mit den Kriminellen aller Art
+in Berüh- rung kommen und mit ihnen konfrontiert werden, wodurch eine
+Verrohung der betreffenden Menschen droht und bei langjähriger Berufsausübung nicht zu umgehen ist, sondern abgesondert von der Gesellschaft
+und von jeglichen Menschen, die nicht durch kriminelle Art und Weise straffällig geworden sind.
+
+Kriminellen und in schwerer Form straffällig gewordenen Menschen ist die
+Gelegenheit zur Sühne zu bieten. Sühnen aber setzt voraus, dass der fehlbare
+Mensch die Möglichkeit zum Nachdenken hat. Nachdenken aber wird dadurch
+
+
+-----
+
+gefördert, dass der Fehlbare eine spürbare und empfindbare Strafe auf sich
+zu nehmen hat. Sühnen beinhaltet die Erkenntnis der eigenen fehlbaren Handlung und das Erkennen und Bewusstwerden des begangenen Unrechts und
+des angerichteten Schadens. Ebenso liegt in der Sühne der Wunsch nach
+Wiedergutmachung und das Durchschauen der negativen Auswirkungen und
+der Gesamtzusammenhänge der vorgenommenen kriminellen Handlung und
+deren Auswirkung auf den geschädigten Mitmenschen und seine gesamte
+Umgebung sowie auf die gesamte Gesellschaft. Zum Nachdenken aber benötigt der Mensch einerseits Zeit und Abgeschiedenheit sowie eine gewisse
+Ruhe, und andererseits die Möglichkeit des Erlernens der Wahrheit, um zu
+den erforderlichen Erkenntnissen zu gelangen.
+
+Um die notwendigen Voraussetzungen für eine Sühne zu schaffen und andererseits zu gewährleisten, dass Kriminelle mit der Gesellschaft nicht in
+Berührung kommen, bietet sich die Möglichkeit an, Verurteilte an Orten zu
+isolieren, die frei von menschlichen Besiedlungen sind, was also auf Inseln
+sein kann, in abgeschiedenen Berggebieten oder sonstigen abgelegenen und
+unbewohnten Orten. Dies hätte den Vorteil, dass sich die Strafverbüssenden
+frei bewegen und selbst ihren Lebensunterhalt bestreiten könnten, ohne der
+Gesellschaft einerseits zur Last zu fallen, und andererseits ohne diese negativ
+beeinflussen zu können. Dass dabei alle straffälligen Männer und Weiber je
+nach Art der Kriminalität an getrennten Orten zu internieren sind, das dürfte
+selbstverständlich sein. Die Gesellschaft hätte unter diesen Voraussetzungen nur noch dafür zu sorgen, dass die Strafverbüssenden ihre Internierungsorte nicht verlassen können, was durch die heutige Technik und
+Elektronik ohne grossen Aufwand und relativ kostengünstig zu bewerkstelligen wäre. Auf jeden Fall wäre diese Art von Strafvollzug wesentlich billiger
+und vernünftiger als das Unterhalten von Strafvollzugsanstalten, die unhuman und menschenverachtend sind und den steuerzahlenden Bürger erst
+noch eine grosse Menge Geld kosten, das anderweitig besser und sinnvoller
+eingesetzt werden könnte.
+
+Wir sind bereit, die gesetzlichen Möglichkeiten auszuschöpfen und durch
+Initiativen und durch die Aufklärung der Bevölkerung dafür zu sorgen, dass
+einem menschenwürdigen Strafvollzug Nachdruck verschafft werden kann.
+Ebenso kämpfen wir aber auch durch Vorbeugungsmassnahmen und durch
+unsere anderen Aktionen dafür, der vorhandenen ausartenden Kriminalität entgegenzuwirken und ihr den Riegel zu schieben.
+Durch eine aktive Initiative wollen wir die entsprechende Änderung der vorhandenen Gesetze und ihre Handhabung herbeiführen. Nämlich nicht nur die
+
+
+-----
+
+Gesetze bezüglich des Strafvollzuges müssen geändert werden. In erster
+Linie haben alle Handlungen und Taten, die gegen den Planeten Erde, gegen
+Fauna und Flora und gegen jegliches Leben schlechthin gerichtet sind, durch
+die entsprechenden Gesetze zu kriminellen und somit auch zu strafbaren
+Handlungen erklärt zu werden.
+Ebenso kriminell wie alle Handlungen gegen den Planeten Erde, gegen
+Fauna, Flora und den Menschen, sind aber auch jene Gesetzeshandhabungen, die ermöglichen, dass Menschen durch Todesurteile ihres Lebens beraubt und Profitgierige, Mächtige, Staatsführer, Direktoren, Manager,
+Behörden usw. usf. für ihre verantwortungslosen, ausbeuterischen, profitheischenden und oft todbringenden Machenschaften weder zur Rechenschaft gezogen noch bestraft werden. Jeder Mensch, der auch nur in der
+geringsten Form unverantwortlich, ausbeuterisch oder schänderisch handelt, muss ohne Ansehen der Person und ihrer Stellung den Gerichten und
+somit auch einer gerechten Strafe überantwortet werden.
+
+Wir kämpfen zusammen mit allen verantwortungsbewussten Menschen
+dafür, dass nicht weiterhin nur die ‹kleinen Fische› in strenger Form bestraft
+werden, sondern auch die Verantwortlichen für Ausbeutung, Vergiftung der
+Atmosphäre, die Kriegshetzer, die Profit- und Machtgierigen und die in die
+eigene Tasche wirtschaftenden scheinheiligen Politiker usw. Auch die Grossen müssen zur Rechenschaft gezogen und der gerechten Bestrafung zugeführt werden.
+
+### Massnahmen gegen die Kriminalität
+
+Es versteht sich von selbst, dass den zu ergreifenden Massnahmen zur
+Ausrottung und Eliminierung der Kriminalität weltweit und gleichzeitig Nachdruck verschafft werden muss. Solange die erforderlichen Massnahmen
+nur in einzelnen Ländern Ergreifung und Durchführung finden, muss man
+damit rechnen, dass die kriminellen Elemente einfach in Staaten abwandern, in denen die notwendigen Gesetze noch nicht massgebend sind. Dies
+kann dazu führen, dass diese Staaten von Verbrechern und sonstigen Kriminellen überflutet und von ihnen eingenommen werden. Dies kann zur
+Folge haben, dass die übrige Gesellschaft und die die notwendigen Massnahmen ergreifenden Staaten einer grossen und nicht zu unterschätzenden
+Gefahr und Bedrohung ausgesetzt werden.
+
+Im weiteren müssen zu gegebener Zeit Gesetze ausgearbeitet werden, die
+
+
+-----
+
+einerseits in wahrheitlichem Sinne human sind, was bedeutet, dass diese
+auf natürlichen, schöpferischen Gesetzen und Geboten fundiert sein müssen;
+andererseits aber sind die Strafen so zu bemessen, dass der sühnende Mensch
+auch tatsächlich zu einem Umdenken und zu einer Umkehr bewegt wird.
+
+Handlungen, die gegen Menschenleben, gegen die Natur, gegen Fauna und
+Flora und gegen jegliches Leben gerichtet sind, haben logischerweise anders
+geahndet zu werden als einfacher Diebstahl, der dazu unter Umständen
+noch aus einer Notlage heraus verübt wird. Arbeitsscheue, Diebe und Gauner können und sollen in Arbeitslagern ihr Fehlhandeln verbüssen, wo sie
+einerseits lernen können, was Arbeit überhaupt bedeutet, und andererseits
+auch lernen, dass Arbeit den Menschen dazu befähigt, an jedem Ort dieser
+Welt seinen Unterhalt zu verdienen, ohne das Besitztum anderer Menschen
+zu beschädigen oder anzugreifen oder der Gesellschaft auf der Tasche zu
+liegen. Im weiteren hat die kürzer- oder längerfristige Internierung in einem
+Arbeitscamp den Vorteil, dass den jeweiligen Staaten Gratis-Arbeitskräfte
+zur Verfügung stehen, die für die Wiedergutmachung der allgemeinen Schäden an der Natur eingesetzt werden können. Durch diese Form der Bestrafung wird ebenfalls gewährleistet, dass die zur Zeit bestehenden Schäden
+und Zerstörungen in der Natur in kürzester Frist behoben werden und dass
+innerhalb weniger Jahre dem Menschen wieder eine gesunde und lebensfreundliche Umgebung und Natur als Lebensraum zur Verfügung stehen.
+
+Jegliche Verfehlungen aber, die tiefgreifender Natur sind und die gegen den
+Menschen, sein Leben, sein Denken und Fühlen, gegen die Umwelt und die
+Natur und gegen Fauna und Flora gerichtet sind, wie z.B. Notzucht und Vergewaltigung, Abtreibungen aus nichtigen Gründen, Kindsmisshandlungen
+und Kindsschändungen, Mord und Totschlag, schwerer Raub und Raubmord, Ehebruch, Folterungen und Körperverletzungen in böswilliger und
+fahrlässiger Form, Prostitution, Drogenhandel und Verführung zu Drogenmissbrauch, unlizenzierter oder sonstiger illegaler Anbau von Pflanzen, die
+der Drogenherstellung dienen; Herstellung, Vertrieb und Anwendung von
+Chemikalien, Gasen, Antriebsstoffen usw., die die Umwelt, die Lebensformen und die Atmosphäre belasten und zerstören; Machenschaften zur Zerstörung oder Schädigung des Wassers, Verschmutzung der Bäche, Flüsse,
+Seen und Meere durch Einbringung von Abwässern und Giftstoffen; Überfischung von Meeren, Seen und Flüssen, übertriebener Schutz von Pflanzen
+und Tieren, der zum Ungleichgewicht der Natur führt, usw. usf., haben durch
+die Isolierung der Fehlbaren an abgelegenen Internierungsorten resozialisierend einer Massnahme eingeordnet zu werden.
+
+
+-----
+
+Es ist dabei zu beachten, dass die ‹Sträflinge› einerseits vergehensmässig
+nach Gruppen getrennt werden, und andererseits nach ihrem Geschlecht.
+Es kann nicht angehen, dass z.B. Vergewaltiger zusammen mit Drogenhändlern, Mörder zusammen mit Prostituierten oder Diebe mit Notzüchtlern
+am gleichen Ort interniert werden, ohne dass eine strenge Trennung vorgenommen wird. Dass eine Fortpflanzung und Vermehrung der Verbrecher
+verhindert werden muss, liegt auf der Hand, weshalb Frauen und Männer
+an verschiedenen Orten isoliert sein sollen. Ausserdem sind Menschen, die
+in schwerster Form straffällig geworden sind, zusätzlich zu sterilisieren, so
+dass mit Sicherheit gewährleistet wird, dass sich solche Menschen nicht
+mehr fortpflanzen können.
+
+An den Strafverbüssungsorten haben die Straffälligen von Grund auf ihren
+gesamten Lebensunterhalt selbst durch ihrer Hände Arbeit zu erarbeiten
+ohne maschinelle oder sonstige technische Hilfen. Auch die erforderlichen
+Wohnräumlichkeiten haben von den Straffälligen selbst erstellt und eingerichtet zu werden. Die Ordnung an den jeweiligen Strafinternierungsorten ist
+durch die Straffälligen selbst zu erhalten, und was ganz besonders wichtig
+ist: Die Massnahmeerfüllungsorte sind von der Aussenwelt völlig abgeschnitten, und es kann keinerlei Verbindung in irgendwelcher Form zur Aussenwelt bestehen. Die Bewachung durch die erforderlichen Aufsichtsorgane
+erfolgt nur von Aussenwachten aus, jedoch in zweckmässig bestimmtem
+Abstand zum Internierungsort, ohne dass jemals ein Aufsichtsorgan den Ort
+der Massnahmeerfüllung betritt, wodurch ein Fluchtversuch via Aufsichtsorgane ausgeschlossen wird.
+
+Alle leichteren Verfehlungen wie z.B. Mundraub, leichter Diebstahl, Arbeitsverweigerung, das Leben auf Kosten anderer Menschen, Lügen usw. usf.
+haben mit Arbeitsstrafen belegt zu werden, wobei gewährleistet sein muss,
+dass die betreffenden Straffälligen zwar zur Arbeit erzogen und dazu angehalten werden, dass sie aber in keiner Form versklavt oder in psychischer
+oder körperlicher Form gezüchtigt oder misshandelt werden dürfen. Abgesehen davon ist dafür zu sorgen, dass jegliche angerichtete Schäden vom
+jeweiligen Fehlbaren selbst wieder in Ordnung gebracht werden und ein
+vollumfänglicher Schadenersatz an den Geschädigten geleistet werden
+muss.
+
+Die Internierten sind mit allem Notwendigen zum Überleben auszustatten,
+wie z.B. Sämereien usw. sowie mit dem notwendigen Lernstoff, der ihnen
+zur Einsicht und zur Erkennung ihrer Schuldhaftigkeit verhelfen kann. Auch
+
+
+-----
+
+Arbeitsgeräte aller Art dürfen ihnen nicht ausgehändigt werden, denn diese
+sind von den Straffälligen selbst anzufertigen.
+Während sich in schwerer Form straffällig gewordene Menschen noch in der
+Obhut der Strafvollzugsbehörden befinden, dürfen die Kriminellen und Verbrecher in keiner Form misshandelt oder geschädigt werden. Sie sind in neutraler Form als Menschen zu behandeln, wobei aber äusserste Achtsamkeit
+darauf verwendet werden muss, dass sie sich der notwendigen und gerechten Strafe nicht entziehen können. Sobald die Verurteilten auf ihren Inseln oder
+an sonstigen unzugänglichen Orten interniert sind, sind sie in jeder Hinsicht
+sich selbst überlassen, was bedeutet, dass sie in keiner Form mehr von der
+Gesellschaft oder von den Strafvollzugsbehörden kontaktiert werden dürfen.
+Durch technische Überwachungsanlagen ist darüber zu wachen, dass die
+Strafverbüssenden ihre Massnahmeerfüllungsorte nicht verlassen können.
+
+### Reihenfolge der zu treffenden Massnahmen:
+
+**1. Ausarbeiten natürlich-schöpferisch richtiger und humaner Gesetze.**
+
+**2. Ausarbeiten der jeweiligen angemessenen Strafen für jede Verbre-**
+**chenskategorie und jede kriminelle Verfehlung.**
+
+**3. Weltweites, aktives Ergreifen der Initiative zur Änderung der be -**
+**stehenden ungenügenden und unhumanen Gesetze.**
+
+**4. Weltweites Bereitstellen der Internierungsorte wie Inseln usw.**
+
+**5. Rekrutierung neutraler und unabhängiger Strafvollzugsbehörden**
+**und Ausbildung der Wachbeamten im Sinne natürlich-schöpferischer**
+**Gesetze und Gebote.**
+
+**6. Weltweite Durchsetzung der Strafreform nach natürlich-schöpferi-**
+**schen Gesetzen in allen Staaten der Erde.**
+
+Bernadette Brand
+
+
+-----
+
+**INFO  7**
+
+## AKTION: Gegen Massenhaltung von Nutztieren
+
+Leib an Leib eingezwängte Tiere in engsten Käfigen und Stallungen sowie
+Zwangsmästung von Tieren aller Art. – Ein Bild, das sich dem Beobachter
+in jedem Zuchthof oder in jeder Zuchtfabrik bietet, in denen Kälber, Schweine,
+andere Säugetiere und Geflügel um des Menschen Nutzen willen in unwürdigsten Verhältnissen ihr Leben fristen, gar qualvoll nach Wasser und nach
+frischer Luft schnappen und keuchend die Hälse recken. Hat der Mensch das
+Recht, um seiner Fressgier willen die Tiere in einer Hölle darben zu lassen?
+
+Hühner, Truthühner, Gänse und Enten, in den seltensten Fällen mit vollständigem Federkleid, hacken einander kannibalisch bis in den blutigen Tod,
+damit der Mensch sich an nährstoffarmen Eiern und hormonaufgepumptem,
+aromalosem Geflügel und Leberpasteten sattschlemmen kann.
+Dem miserablen Dahinsiechen dieser Tiere muss endlich Einhalt geboten
+werden. Um dies zu erreichen, sollte durchgesetzt werden, dass sich der
+Mensch mehr von Gemüse und Früchten ernährt als von Fleisch.
+Wenn sich der Mensch auf einen vernünftigen Konsum von Fleisch beschränken würde, müssten weltweit mehr als [2]/3 weniger Nutztiere gehalten werden. Übermässiger Fleischkonsum führt zu einer Verrohung des
+Menschen, der mehr und mehr zum zerstörenden Element für die gesamte
+Umwelt und allen Lebens wird.
+Durch eine massive Einschränkung des Konsums würde sich der Fleischverbrauch etwa auf das reduzieren, was natürlich an Tieren auf freier Wildbahn lebt oder artgerecht in Freigehegen gehalten werden kann.
+Ausserdem muss die Freilandhaltung von Hühnern angestrebt werden. Sogenannte Freilandeier finden zwar starken Zuspruch, doch es bedarf einer
+viel konsequenteren Haltung diesbezüglich, denn wenn keine Fabrik- resp.
+Legebatterien-Eier mehr gekauft werden, wird es auch keine Eierfabriken
+mehr geben.
+Durch eine vernünftige Agrarpolitik (Landwirtschaftpolitik) kann sehr viel erreicht werden, wenn z.B. nur noch so viel Milch, Käse, Butter, Joghurt usw.
+produziert wird, wie gesamthaft benötigt wird. Auch eine ökonomischere
+Politik ist für die Zukunft der Tiere unerlässlich.
+So sind auch hier Massnahmen auf politischem Wege erforderlich, die mit
+der Mitarbeit jedes einzelnen zum Erfolg führen können.
+
+Thomas Keller
+
+
+-----
+
+**INFO  8**
+
+## AKTION: Gegen Wildtierschlächtereien
+
+Delphin- und Walmorde, Raubtierjagden, Elefanten-, Nashorn-, Robben- und
+Krokodilschlächtereien usw. sind Alltagsthemen geworden, und längst
+weiss jeder bestens Bescheid darüber. Trotzdem jedoch werden fleissig jene
+Erzeugnisse gekauft, die als Endprodukt aus solchen Schlächtereien hervorgehen und rechtfertigend ‹Lebensmittelbeschaffung› genannt werden.
+Viele Menschen sind immer noch nicht gescheiter geworden und schauen
+diesen hinterhältigen, gemeinen und bestialischen Schlächtereien tatenlos
+zu. Schon lange haben sie die Grundregeln von Ehrfurcht und Respekt vor
+jeglichem tierischen Leben verloren. Für ihren Grössenwahnsinn, ihre Extravaganzen und weil sie immer nur das Beste sein und haben wollen, kümmert
+sie die elende Qual der massakrierten Tiere einen Dreck.
+Alle jene, welche noch vernünftig geblieben sind, könnten einen beträcht lichen Einfluss auf Landesregierungen ausüben, die solche Schlächtereien
+tolerieren, damit sie verboten werden. Ausserdem wäre oft die Möglichkeit
+gegeben, Ländereien und Meeresgebiete zu Schutzzonen zu erklären und
+wehrlose Tiere unter staatlichen Schutz zu stellen, um Verbrechen an ihnen
+zu verhindern. Dadurch könnte am wirkungsvollsten Einfluss genommen
+werden, um solche Verbrechen im Keime zu ersticken.
+Das benötigt aber Unmengen von Geld. Wer jedoch ein echtes Interesse
+am Überleben bedrohter Tiere, an unserer Welt und allem Leben zeigt, der
+sollte bereit sein, alles zu tun, um solche Schandtaten zu verhindern.
+Zusätzlich ist der Boykott von Produkten aus solchen Machenschaften von
+grossem Nutzen, wenn sich viele Menschen daran halten. Ein Paradebeispiel
+ist der Absatz von Jungrobbenpelzen in Europa.
+Es ist von unabdingbarer Erfordernis, dass jeder verantwortungsbewusste
+Mensch bei solchen Aktionen mitmacht, weil nur durch den Einsatz jedes
+einzelnen eine tiefgreifende Wirkung erzielt werden kann.
+
+Wie lange sollen noch Produkte aus verabscheuungswürdigen Schlächtereien und aus grausamen Tier-Mastbetrieben usw. verkauft werden dürfen,
+bis durch die Verantwortung des Menschen solche Machenschaften ver boten werden?
+
+Dies ist auch DEIN Belang, darum handle.
+
+Thomas Keller
+
+
+-----
+
+**INFO  9**
+
+## AKTION: Für Flurland-Ankauf
+
+‹Magerwiesen› begegnet man heute wieder öfter, auch wenn schon fast
+alle Wiesenflächen ‹bewirtschaftet› und mit Chemie und Kunstdünger übersättigt und durch intensive Nutzung degeneriert sind. Viele Blumen, Gräser
+und sonstige Pflanzen sind schon völlig aus den Wiesen verschwunden. –
+Das darf auf keinen Fall so weitergehen.
+Die einzig mögliche Gegenmassnahme ist die naturrichtige Bewirtschaftung
+von Flurland, das gehegt und gepflegt werden muss. Auf Wiesen müssen
+je nach Standort passende Blumen und Gräser gesät werden und sie sollen
+erst nach dem Aussamen der Pflanzen gemäht werden. Mit dieser Form
+der Landbewirtschaftung hat die FIGU bereits beste Erfahrungen gemacht
+und in kurzer Zeit Erfolge erzielt, von denen z.B. die ETH (Eidgenössische
+Technische Hochschule, Zürich) frühestens in 50 Jahren erwartete, dass
+die erworbenen Wiesenflächen entgiftet und selbst regeneriert sein würden. Nach nur 6 (sechs) Jahren waren jedoch die Wiesen durch diese Methode wieder gesund und kräftig. So simpel einfach ist es, wenn man ein
+bisschen Vernunft walten lässt.
+Gesunde Wiesen haben weitreichende Folgen, wie z.B. gesundes Vieh,
+gesunde aromatische, kräftige Milch, reine Butter, reiner Käse und Rahm
+usw. wie auch chemiefreien Honig und gesunde Bienen.
+Das Samengut soll so gut wie möglich von gesunden Wiesen entnommen
+werden. Wachsen unliebsame Fremdlinge, wie z.B. Blacken im Flurland, dann
+werden diese mit Blackengewehren getilgt, weil sie nur dadurch wirklich
+wirksam bekämpft werden können, ohne auch andere Pflanzen zu vernichten. Das Rohr des Gewehres wird immer nur auf das Herz der zu tilgenden
+Pflanze gesetzt und je nach Grösse 2-5 mal abgezogen. Das Gift verteilt sich
+dann in der ganzen Pflanze bis in die letzten Wurzelspitzen, die bis zu 9
+Meter tief liegen können. (Das ist zwar im Biolandbau verpönt, doch tatsächlich das einzig wirksame Mittel gegen die Blackenplage. Das Ausstechen
+der Wurzeln nutzt nämlich nichts, weil diese eben sehr tief gründen und
+innert kurzer Zeit wieder nachwachsen.)
+Weder dürfen widernatürliche Düngemittel Anwendung finden noch die
+Wiesen ausser mit Blackengranulat irgendwie chemisch behandelt werden.
+Als Düngemittel kommen nur Sägemehl, Mist, Kompost, Jauche etc. in vernünftigem Masse in Frage. Es muss auch dafür gesorgt sein, dass kein verunreinigtes Wasser oder Industrieabfälle etc. ins Land eindringen können.
+
+
+-----
+
+Wenn alles so gehandhabt wird, kann man schon nach kurzer Zeit beobachten, wie sich auch tierisches Leben zu entwickeln beginnt. Viele Käferarten,
+Mücken, Spinnen, Insekten aller Art, Reptilien und viele andere Kleintiere
+werden in solchen Wiesen wieder eine Heimat finden und sich wohl fühlen,
+wie dies auch früher so war.
+Nimmt eine Tiergattung in zerstörendem Masse überhand, so gibt man in
+angemessenem Rahmen natürliche Feinde in die betreffenden Gebiete, die
+dann die Schädlinge auf ebenfalls natürliche Weise dezimieren. Langsam
+pendelt sich dann das Gleichgewicht auf solchem Flurland wieder ein, wodurch mit jedem Landfleck ein neuer Schritt in eine bessere und gesündere
+Zukunft getan wird.
+Thomas Keller
+
+
+-----
+

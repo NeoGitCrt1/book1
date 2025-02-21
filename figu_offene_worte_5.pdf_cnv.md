@@ -1,0 +1,349 @@
+# FIGU WESEN FREMDER WELTENL
+
+**BESUCHEN DIE ERDE**
+
+## Offene Worte
+
+**Freie**
+
+**Interessengemeinschaft**
+**FIGU**
+
+## der Wahrheit und Zeit
+### Scriptum veritas r Schrift der Wahrheit
+
+**Erscheinungsweise:** **Internetz: www.figu.org** **3. Jahrgang**
+**Sporadisch** **E-Brief: info@figu.org** **Nr. 5, Dezember 2017**
+
+##### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+Laut ‹Allgemeine Erklärung der Menschenrechte› vom 10. Dezember 1948, Artikel 19, ‹Meinungs- und Informationsfreiheit›:
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die**
+**Freiheit, Meinungen unangefochten anzuhängen und Informationen und Ideen mit allen**
+**Verständigungsmitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Aussagen und Meinungen müssen nicht zwingend identisch sein mit Gedanken, Interessen, Lehre und Missionsgut der FIGU.
+
+#### Steht die persönliche Befindlichkeit über dem Anstand?
+Vor einiger Zeit bekam ich einen Anruf eines ehemaligen Kollegen der Sekundarschule, der seine Mitschülerinnen
+und Mitschüler nach über 50 Jahren für ein Klassentreffen im wahrsten Sinne des Wortes zusammensuchte. Wir
+freuten uns beide, nach so langer Zeit etwas voneinander zu hören und plauderten ganz unbekümmert, so als
+hätten wir uns erst gestern gesprochen. Wie das so üblich ist, erkundigten wir uns auch nach dem allgemeinen
+Wohlbefinden und was wir jetzt – nach der regulären Berufszeit – noch so unternehmen und tun. Natürlich erzählte ich ihm über meine langjährige Mitgliedschaft beim Verein FIGU und auch, dass ich korrigiere und Artikel
+schreibe – zumal ich gerade am Korrigieren war, als er anrief. Wir tauschten daraufhin einige E-Briefe aus. In einem
+dieser E-Briefe schickte ich ihm einen meiner Artikel, in dem ich über zwei Schulkollegen und einen Lehrer schrieb,
+die er auch kannte. Er meinte, ich hätte Talent zum Schreiben, und dass es sicher interessant wäre, mit mir einmal
+über meine Gedanken und Ansichten zu diskutieren. Dazu erwähnte er zwei Zeitschriften, die ‹ähnliche und
+identische Themen behandeln›. Obwohl für meine Ohren die Namen der Zeitschriften religiös tönten, wollte ich
+doch sichergehen und setzte bei google eine Suchanfrage ab. Tatsächlich, es war wie befürchtet. Da ich grundsätzlich mit niemandem über seinen Glauben diskutiere, schrieb ich ihm zwar freundlich, aber vielleicht doch etwas
+gar zu direkt, dass ‹die FIGU nichts mit den diversen Glauben am Hut› habe, selbst wenn scheinbar einiges ähnlich
+töne etc. Dazu schickte ich ihm neben einigen freundlich-kollegialen Zeilen ein Photo von meinem E-Bike-Ausflug
+Richtung Walensee. Als Antwort kam – nichts, nur Funkstille. Es ist kaum möglich, dass ihn der E-Brief nicht erreicht hat, weshalb ich annehmen muss, ihn mit meinen Worten unangenehm getroffen zu haben, und da er – wie
+es scheint – nicht zu dem stehen kann, was er glaubt, zog er ein Schweigen vor, was in bezug auf meine kollegialen
+Zeilen etwas anstandslos ist. Das aufgeführte Ereignis ist lediglich ein harmloses Beispiel, bei dem die persönliche
+Befindlichkeit eine höhere Priorität einnimmt als der Anstand, wobei natürlich auch aus einem harmlosen Fall
+eine ausgeartete Sache entstehen kann, je nach Emotionalität der Beteiligten. Oft geht es auch nur um eine ausbleibende Antwort auf eine Frage usw. oder ein paar Minuten Zeit, die offenbar fehlen, um sich für ein Geschenk
+oder sonst etwas zu bedanken. Es gäbe eine ganze Palette viel gravierenderer Vorfälle, die jedoch hier nicht zur
+Sprache kommen sollen. Leider gibt es manchmal auch Antworten auf E-Briefe ohne böse
+Absicht, die einem beim Lesen zum Schutz vor der entgegengeschleuderten Kraft der Worte
+instinktiv den Kopf einziehen lassen. Selbstverständlich sind es nicht immer nur die andern,
+denen gelegentlich die anstandfördernden Attribute fehlen, die meisten von uns könnten ebenfalls nicht den ersten Stein werfen.
+
+
+**L**
+
+**WESEN FREMDER WELTEN**
+**BESUCHEN DIE ERDE**
+
+
+-----
+
+-----
+
+Da ich nicht fündig wurde, blieb mir nichts anderes übrig, als bei BEAM nachzufragen, denn ich will Ihnen ja nicht
+einfach eine Vermutung von mir erklären, selbst wenn sie einiges an Wahrem enthalten hätte. Zwar ahnte ich, dass,
+würde der ‹Deckel› über dem Begriff Anstand gelüftet, vieles hervorkäme, das ich selbst dachte, aber so klar und
+richtig, wie die Antwort von BEAM kam, hätte ich alles nicht formulieren können. Er schrieb mir nämlich: «Unter
+_den Begriff ‹Anstand› fallen viele Wort- und Sprachwerte, die allgemein von den Erdlingen nicht berücksichtigt werden,_
+_weil sie einfach keine Ahnung davon haben, was im ‹Anstand› alles enthalten ist. Dabei muss ‹Anstand› in zweierlei_
+_Form betrachtet werden, und zwar in erster Linie in bezug auf sich selbst resp. sich selbst gegenüber, und in zweiter_
+_Linie gegenüber dem und den Mitmenschen.» Dazu notierte er einige Faktoren, die geisteslehremässig unter dem_
+Begriff Anstand verstanden und vom Menschen umgesetzt werden sollen. Wie Sie sehen, ist auch der Anstand ein
+sogenanntes ‹Hauptding resp. ein Block, der in sich vielerlei Faktoren trägt, die je einzeln für sich ergründet, verstanden und verarbeitet werden müssen› wie ich dies in meinem Artikel ‹Im täglichen Leben ist darauf zu achten,
+dass man stets sein Ziel festlegt, dieses sieht und wahrlich anstrebt mit besten Kräften› (FIGU Bulletin Nr. 93, Seite
+3) beschrieben habe. Nichts steht alleine für sich, alles ist miteinander verbunden und voneinander abhängig. Aufgrund der nachfolgenden Ausführungen von BEAM wird klar, dass wer zum Beispiel gegenüber einem andern
+Menschen oder Tier, Getier etc. – oder auch einer Pflanze – lieblos handelt, auch gleichzeitig die Kriterien von ‹Anstand› und vielen anderen Tugenden ausser acht lässt. Wird auch nur ein Faktor, der bis ins Kleinste aufgebrochen
+werden muss, nicht berücksichtigt, wird das ‹Hauptding resp. der Block› in seiner Gesamtheit nicht erfüllt. Anstand
+als Ganzes umfasst all die nachfolgenden Werte und noch viele mehr – wie BEAM sagte –, und auch sie müssen
+wieder aufgebrochen, ergründet, verstanden und verarbeitet werden – eine jahrmillionenlange Bewusstseinsarbeit
+für uns Menschen.
+
+Die natürlich-schöpferischen Gesetze pflegen und wahren
+Rechtschaffene Gedanken und Gefühle pflegen und wahren
+Schickliches Benehmen pflegen und wahren
+Sittlichkeit pflegen und wahren
+Guten Geschmack pflegen und wahren
+Schicklichkeit in Verhaltensweisen wahren
+Äusseren Anstand wahren
+Mitgefühl pflegen und wahren
+Leben schützen und wahren
+Gerechte Meinung wahren
+Das Recht pflegen und bewahren
+Wahrheit pflegen und bewahren
+Ehrlichkeit pflegen und bewahren
+Ehre pflegen und wahren
+Würde pflegen und wahren
+Fairness pflegen und wahren
+Ordnung pflegen und wahren
+Guten Ruf pflegen und wahren
+Gute Sprache pflegen und wahren
+Erklärende Sprache pflegen und wahren
+Gebührende Distanz pflegen und wahren
+Das eigene Gesicht wahren
+Die Wahrheit anerkennen und wahren
+Die wahren Werte pflegen, würdigen und wahren
+Unverletzbarkeit anderer pflegen und wahren
+Gute Manieren pflegen und wahren
+Vernunft pflegen und wahren
+Verstand pflegen und wahren
+Entschuldigung pflegen und wahren
+Güte pflegen und wahren
+Hilfsbereitschaft pflegen und wahren
+Beschimpfungen vermeiden
+
+
+-----
+
+Um auf den Titel ‹Steht die persönliche Befindlichkeit über dem Anstand?› zurückzukommen, ist die Antwort
+ganz eindeutig: Nein! Es ist umgekehrt, der Anstand steht über aller persönlichen Befindlichkeit. Und eines muss
+Ihnen ganz gewiss sein, dass wenn Sie sich im kleinsten Detail anstandslos benehmen, dann leiden in erster Linie
+Sie selbst resp. Ihre bewusstseinsmässige Entwicklung darunter, erst in zweiter Linie der ‹Empfänger› der Anstandslosigkeit – es sei denn, dieser/diese reagiert infolge der Überbewertung des eigenen Egos selbst postwendend
+anstandslos.
+
+Anstand ist des Bürgers Zierde
+und Segen ist seiner Mühe Preis.
+SSSC 13.1.2017, 19.38 h, Billy
+
+**Gewissheit ist …**
+Wenn erbärmliche Menschen
+böse über andere sprechen,
+dann beweisen sie damit nur,
+dass sie mit Gewissheit nicht
+zu den Anständigen gehören.
+SSSC, 12. Februar 2017,
+22.13 h, Billy
+Mariann Uehlinger, Schweiz
+
+#### Auszug aus VDS-Infobrief 3. Woche
+_1. Presseschau vom 13. bis 19. Januar 2017_
+**2. Mehr und besseres Deutsch**
+Der stellvertretende Chefredakteur des ‹Hamburger Abendblattes›, Matthias Iken, wundert sich, dass Kunden
+in einem Hamburger Kaufhaus am Jungfernstieg «offenbar als Zugangsvoraussetzung fliessendes Englisch oder
+ein Wörterbuch im Handtäschchen» mitbringen müssen. Iken sieht die Stellung der deutschen Sprache jedoch
+nicht durch das Kaufhaus-Denglisch gefährdet. Es drohe «die sprachliche Entkernung durch eine Abwendung
+vom Deutschen», wenn Zuwanderer selbst nach Jahrzehnten noch nicht die Sprache der Wahlheimat sprächen,
+aber auch, wenn der Nachwuchs der Bildungselite insbesondere mit dem Englischen aufwachse. Iken stellt fest:
+«Ein Plädoyer für mehr und besseres Deutsch ist keine Deutschtümelei – eher ist es das Gegenteil.» (abendblatt.de)
+
+**Die schwersten Sprachen der Welt**
+Die deutsche Sprache gilt bei vielen Ausländern als schwer erlernbar. Tatsächlich befindet sich laut einer von
+der UNESCO veröffentlichten Liste der weltweit schwierigsten Sprachen die deutsche unter den ersten Zehn.
+Wie lange es dauert, eine Fremdsprache zu erlernen, hängt von der eigenen Sprachfamilie ab. Während ein
+Engländer durchschnittlich nur 30 Wochen zum Erlernen des Deutschen benötigt, bräuchte beispielsweise ein
+Russe 14 Wochen länger. Als schwierigste Sprache gilt jedoch Chinesisch. Personen mit germanischen Muttersprachen benötigen eine Lernzeit von ungefähr 88 Wochen. Denn neben anderen Schriftzeichen – rund 50000 –
+ist vor allem die Betonung ungewohnt. Kleinste Varianten in der Aussprache können einem Wort eine völlig
+neue Bedeutung geben. Da stossen sogar professionelle Übersetzer häufig an ihre Grenzen. So kam es in den
+1920er-Jahren beim amerikanischen Getränkeriesen Coca-Cola zu einem schweren Übersetzungsfehler. Denn
+der anfangs gewählte chinesische Name ‹Kou-ke-kou-la› bedeutet ‹Kaulquappe beisst in Wachs›, das Kaufinteresse
+hielt sich dementsprechend zurück. Inzwischen heisst das Erfrischungsgetränk in China ‹Ke-kou-ke-le› – das
+bedeutet ‹köstlich und erfreuend›. (giga.de, albanianz.de, interculturecapital.de, books.google.de)
+
+#### Zerrissene Jeans und das Ende des gesunden Menschenverstandes
+_Luke; Sott.net; Do, 12 Jan 2017 11:21 UTC_
+Jetzt, da wir die Feiertage überstanden und 2017 gerade begonnen hat, macht man sich ja verstärkt Gedanken
+über den Zustand der Welt und unsere Zukunft. Wer regelmässig Sott.net liest, wird sicher bestätigen, dass in
+
+
+-----
+
+allen Bereichen unserer Gesellschaft – Politik, Wirtschaft, Medizin, Familie etc. – einiges im Argen liegt, um es
+vorsichtig zu formulieren.
+Auslöser für meine Gedanken waren aber diesmal nicht die grosse Weltpolitik oder der neueste Skandal, sondern
+ein Gespräch mit einer älteren Frau während der Weihnachtszeit. Dabei ging es um etwas scheinbar ganz
+Banales: Sie beklagte sich, wie bescheuert heute doch gerade junge Frauen seien, die sich für teures Geld zer rissene Jeans kaufen! Richtig, haben sich Jugendliche früher ihre Jeans absichtlich aus Protest zerrissen, so kann
+man diese heutzutage schon fertig für teures Geld von entsprechenden Designer-Marken kaufen. Das scheint
+ein grosser Trend in der aktuellen Mode zu sein.
+Nun könnte man sagen, ok, gemessen an den gigantischen Problemen auf dieser Welt ist das ja wohl nicht so
+schlimm. Es ist ja nur ein Modetrend – das muss man ja nicht mögen. Das geht sicher wieder vorbei. Ich glaube
+aber, dieses Phänomen ist Ausdruck eines tieferen Problems und wir tun gut daran, genau hinzuschauen.
+Man muss sich das einmal auf der Zunge zergehen lassen: Hier zahlen Menschen mehr Geld für ein kaputtes
+Produkt! Nochmal langsam und anders formuliert: Für viele Menschen ist ein kaputtes Produkt mehr wert als
+ein heiles!
+Denken wir mal darüber nach. Erst einmal hätten sich selbst die betrügerischsten und skrupellosesten Händler
+früher wohl nie erträumen lassen, dass sie offensichtlich defekte Produkte teurer verkaufen können als hochwertige, heile Produkte. Das wäre ja der reinste Jackpot! Zweitens ist es interessant, dass die ältere Frau, mit der
+ich sprach, die Absurdität des Ganzen so klar sehen konnte und regelrecht beleidigt war ob der Dummheit, die
+sich im Kauf von zerrissenen Jeans ausdrückt. Schliesslich hat sie die Nachkriegszeit erlebt, in der man noch
+über jede heile Hose froh war und diese selbstverständlich hegte und pflegte.
+
+Das Buch Politische Ponerologie beschreibt die Zyklen der Hysterisierung unserer Gesellschaft:
+
+Dies ist auch ein gutes Beispiel dafür, was Dr. Andrzej Łobaczewski mit seiner Theorie der Hysterisierung beschreibt: Schwierige Zeiten führen zu einem besseren psychologischen Wissen und mehr gesundem Menschenverstand, während Zeiten des scheinbar grenzenlosen Wohlstands eine Hysterisierung der Gesellschaft nach sich
+ziehen. Er schreibt:
+**«Der Kreislauf der glücklichen, friedvollen Zeiten begünstigt eine Einengung der Weltsicht und einen Anstieg**
+**des Egotismus. Gesellschaften unterliegen einer fortschreitenden Hysterie, bis hin zum letzten Stadium, das**
+**Historikern aus Beschreibungen bekannt ist und das schliesslich Zeiten von Verzweiflung und Verwirrung**
+**hervorbringt. Dies war seit Jahrtausenden so und wird auch weiterhin so sein. Die Rückbildung des Verstandes**
+und der Persönlichkeit, eine Eigenschaft aus vorgeblich glücklichen Zeiten, variiert von Nation zu Nation. Deshalb schaffen es manche Länder, die Auswirkungen solcher Krisen mit nur geringen Verlusten zu überstehen,
+wohingegen andere Nationen und Reiche völlig ausgelöscht werden. Auch spielen hier geopolitische Faktoren
+eine entscheidende Rolle.»
+Zeiten der Verzweiflung und Verwirrung – das kommt einem doch bekannt vor. Anders kann man Zeiten nicht
+beschreiben, die jeglichen gesunden Menschenverstand erstickt zu haben scheinen.
+
+**Schleichende Programmierung**
+Ein weiterer interessanter Aspekt des scheinbar harmlosen Themas der teuren zerrissenen Jeans ist, wie es überhaupt so weit kommen konnte. Würde man Menschen aus den 50er-Jahren in die heutige Zeit katapultieren,
+und wahrscheinlich trifft das auch auf die späteren Revoluzzer und Punks zu, die selbst mit zerrissenen Jeans
+herumliefen, dann wären diese wohl völlig fassungslos darüber, dass Menschen für teures Geld kaputte Hosen
+von Designer-Labels kaufen. Sie würden es wahrscheinlich gar nicht glauben! Und natürlich hätten sie Recht:
+Die Absurdität ist wirklich unglaublich, wenn man einmal darüber nachdenkt.
+Wieso fällt das den heutigen Menschen nicht auf? Oder wenn doch, dann eher beiläufig, nach dem Motto ‹schon
+verrückt, aber naja› – wenn es sich doch offensichtlich um nichts anderes als kompletten Wahnsinn handelt?
+
+
+-----
+
+Die völlige Aufgabe des gesunden Menschenverstands und die totale Unterordnung unter das Diktat von Medien und Mode?
+Und hier sind wir, wie ich finde, beim Kern des Problems angelangt. Eine Indoktrinierung durch die Medien
+**und Modemaschinerie findet nämlich nicht von heute auf morgen statt – dann würde es wohl den meisten**
+**Menschen auffallen. Nein, eine solche Indoktrinierung und ‹kulturelle Umerziehung› ist ein schleichender**
+**Prozess, so wie beim sprichwörtlichen Frosch, der nicht merkt, wenn man ihn langsam anfängt im Wasser auf-**
+zukochen. Macht man das Wasser hingegen plötzlich heiss, springt er sofort heraus. Was ihn davon abhält, die
+Gefahr zu erkennen, ist der schleichende Prozess, bei dem er nichts merkt, bis es zu spät ist.
+Dieses Grundmuster können wir auch in vielen anderen Bereichen beobachten. Viele Veränderungen durch
+**unsere westliche ‹Kulturrevolution›, wenn man das so nennen will, kommen schleichend und scheinen am**
+**Anfang sogar Sinn zu machen. Aber irgendwann kommt immer der Punkt, bei dem diese Prozesse in eine**
+**extrem gefährliche Richtung laufen, und wenn wir es dann merken, ist es fast schon zu spät. Ein gutes Beispiel**
+ist der Genderpronomen-Wahnsinn – zunächst kam er auf leisen Füssen in Form von legitimen Forderungen,
+keine Gewalt gegen Minderheiten zuzulassen. Inzwischen hat er sich zu einer völlig absurden und autoritären
+Ideologie gewandelt, die selbst vor der Einrichtung von ‹aussergerichtlichen Tribunalen› nicht zurückschreckt.
+Und wir haben es nicht bemerkt – es klang doch alles so harmlos!
+Was heisst das nun für uns? Ich denke, die scheinbar harmlose Geschichte mit den zerrissenen Jeans sollte uns
+lehren, wachsam zu bleiben und den Anfängen zu wehren. Wann immer die neueste totalitäre Entwicklung
+eingeleitet wird, auch wenn dies oftmals am Anfang sogar sinnvoll erscheint, sollten wir uns nicht scheuen, die
+Gefahren und Probleme dieser Veränderungen aufzuzeigen. Ja, die meisten Menschen schauen uns ungläubig
+an – wie kannst Du so was sagen? Das ist doch sinnvoll! Das ist doch nicht so schlimm! Genau wie der Frosch
+im Wasser, der die steigende Wärme zunächst als angenehm empfindet. Lassen wir uns nicht täuschen und
+**springen wir aus dem Glas, bevor wir gekocht werden.**
+_Quelle: https://de.sott.net/article/27699-Zerrissene-Jeans-und-das-Ende-des-gesunden-Menschenverstandes_
+
+#### Zweisprachig aufwachsende Kinder eher fähig, Missverständnisse aufzuklären
+_Manuel Schmidt; Extrem News; Di, 14 Feb 2017 19:48 UTC_
+_Zweisprachig aufwachsende Kinder sind eher in der Lage, sprachliche Missverständnisse richtig zu stellen als ein-_
+_sprachig aufwachsende Kinder. Sie profitieren dabei von ihren Erfahrungen mit schwierigen Kommunikationssitua-_
+_tionen. Das zeigen Psychologen in einer Studie mit 111 Kindern im Alter von zwei bis drei Jahren. Die Ergebnisse_
+_sind aktuell in der Fachzeitschrift ‹Journal of Experimental Child Psychology› veröffentlicht worden._
+«Kinder, die zweisprachig aufwachsen, sind hinsichtlich ihrer kommunikativen Fähigkeiten gegenüber ein sprachigen Kindern im Vorteil. Dies ist möglicherweise darauf zurückzuführen, dass zweisprachige Kinder im
+Alltag häufiger mit kommunikativen Missverständnissen konfrontiert sind, die einsprachige Kinder in dieser
+Form nicht erfahren. Dadurch können sie ihre kommunikativen Fähigkeiten vermutlich stärker üben», erklärt
+Stephanie Wermelinger, Entwicklungspsychologin von der Universität Zürich.
+
+**Spielerischer Versuch mit 111 Kleinkindern**
+Gemeinsam mit ihrer Kollegin Anja Gampe und ihrem Kollegen Moritz Daum untersuchte Wermelinger diese
+Annahme in einem spielerischen Versuch mit 111 Kindern aus der Gegend um Zürich im Alter von zwei bis
+drei Jahren. Die Kinder wuchsen entweder einsprachig (mit Schweizerdeutsch als Muttersprache), mit zwei
+deutschen Dialekten (Hochdeutsch und Schweizerdeutsch) oder zweisprachig auf (Schweizerdeutsch und eine
+nichtdeutsche Sprache). Die Kinder wurden gebeten, einem grauen Stoffelefanten (‹Otto›) vier rote Schuhe anzuziehen. Die Versuchsleiterin tat, als suche sie den vierten Schuh, obwohl sich dieser für die Kinder gut sichtbar
+in ihrer Hand befand. Wenn die Kinder sie darauf aufmerksam machten, gab die Versuchsleiterin vor, die Kinder
+falsch verstanden zu haben und zeigte auf ein farbenfrohes Bild hinter sich. In dieser Situation hatten die Kinder
+die Gelegenheit, das Missverständnis richtigzustellen, zum Beispiel indem sie die Versuchsleiterin erneut auf
+den Schuh in ihrer Hand aufmerksam machten. Besonderes Augenmerk legte die Forschergruppe darauf, wie
+die Kinder reagierten, wenn sie falsch verstanden wurden.
+
+
+-----
+
+**Zweisprachige Kinder räumen häufiger mit Missverständnissen auf**
+Es zeigte sich, dass zweisprachige Kinder häufiger versuchten, dieses Missverständnis richtigzustellen als ihre
+Altersgenossen, die einsprachig oder mit zwei Dialekten aufwuchsen. Das Forscherteam erklärt diesen Befund
+damit, dass zweisprachige Kinder mehr Erfahrung mit schwierigen Kommunikationssituationen haben. Da sie
+pro Sprache über weniger Vokabeln verfügen, benutzen sie häufiger unpassende Wörter, verwenden falsche
+Satzkonstruktionen oder wechseln während der Konversation in eine andere Sprache. «Durch diese alltäglichen
+Erfahrungen sind zweisprachige Kinder geübter darin, sprachliche Missverständnisse zu entdecken und dann
+auch zu korrigieren» erklärt Stephanie Wermelinger.
+
+**Zweisprachige Kinder nicht grundsätzlich kommunikativer**
+Im ersten Teil der Aufgabe zeigten sich keine Unterschiede: Als die Versuchsleiterin vorgab, den vierten Schuh
+nicht zu finden, machte eine Mehrheit der Kinder sie auf den Verbleib des Schuhs aufmerksam – unabhängig
+von ihrem sprachlichen Hintergrund. «Daraus schliessen wir, dass die zweisprachigen Kinder nicht grundsätzlich kommunikativer waren. Vielmehr scheinen sie ihr Kommunikationsverhalten besser an besondere Situationen anpassen zu können», sagt Stephanie Wermelinger.
+Die Studie ist den Autoren zufolge ein weiterer wichtiger Schritt zu einem besseren Verständnis der kognitiven
+und kommunikativen Prozesse, die der sprachlichen Entwicklung zugrunde liegen. «Unsere Forschung zeigt,
+dass Zweisprachigkeit nicht nur bedeutet, mehr Wörter zu lernen und das Gleiche auf unterschiedliche Art und
+Weise sagen zu können», erklärt Moritz Daum, Professor für Entwicklungspsychologie an der Universität
+Zürich. «Sie weisen vielmehr nach, dass Zweisprachigkeit auch einen Einfluss darauf hat, wie Kinder komplexe
+Situationen verstehen und mit ihnen umgehen. Das wiederum zeigt: Sprachliche und soziale Kompetenzen
+hängen sehr eng miteinander zusammen.»  Quelle: Deutsche Gesellschaft für Psychologie (DGPs) (idw)
+_Quelle: https://de.sott.net/article/28242-Zweisprachig-aufwachsende-Kinder-eher-fahig-Missverstandnisse-aufzuklaren_
+
+#### … sieht, riecht, schmeckt, fühlt, hört man nicht!
+_Veröffentlicht am 14. Februar 2017 von Wolfgang Arnold_
+«Potenzielle globale Katastrophe» von Fukushima Einheit 2 hochradioaktiver Treibstoff … Reaktor könnte
+zerstört werden, was Tokio unbewohnbar machen würde … Dies ist das ‹am meisten gefürchtete› Szenario –
+die ‹teilweise Verflüssigung› unter Reaktoren.
+Alles paletti … Es kommt ohnehin nicht mehr drauf an, bei dem babylonischen Scherbenhaufen auf dieser
+Erde. Die Handvoll wahrer Mächtiger und ihre ‹Truppe von verachtenswerten Hanseln›, unsere sogenannte
+Elite, haben es wahrhaft ‹bestens gemacht› die letzten 200 Jahre. Der Mensch als der gierigste, gewissenloseste
+und nach unendlicher Macht über andere und grenzenlosem Reichtum gierende ‹nackte Affe›, das mit Abstand
+schlimmste Raubtier dieser Erde, wird seine Spezies schon in nächster Zeit selbst zerstören.
+ENENEWS berichtet am 12. Februar 2017 über neueste, bedrohliche Erkenntnisse über den Zustand der
+Reaktorruinen von Fukushima.
+Akio Matsumura, japanischer Diplomat, am 11. Februar 2017: Die potentielle Katastrophe des Reaktors 2 bei
+Fukushima Daiichi für den Pazifik und die USA! … Es ist jetzt klar, dass die Strahlungshöhe im Sicherheitsbehälter des zerstörten Reaktor 2 viel höher ist als die Experten glaubten … Die Gefahren zwingen uns, zu vielen
+neuen Fragen.
+Dr. Shuzo Takemoto, Professor für Geophysik an der Graduate School of Science, Universität Kyoto, antwortete
+auf Matsumura Frage: Die potenzielle globale Katastrophe des Reaktors Nr. 2 in Fukushima Daiichi belegen die
+von Professor Shuzo Takemoto am 28. Juli 2016 [Tepco] veröffentlichten Bilder des Reaktor 2 … Sie zeigen die
+Ansammlung von Materialien von 180 bis 210 Tonnen im unteren Teil des Druckbehälters … Damit kann kaum
+gesagt werden, dass es für den Fukushima-Unfall eine Lösung gibt. Das Problem des grossen Volumens an Kernbrennstoffen ist besonders wichtig.
+Der mehr als 40-jährige Einsatz des Druckbehälters muss zu einer Schwächung durch Bestrahlung geführt
+haben. Bei einem künftigen Beben wird er zerstört und der verbliebene Kernbrennstoff tritt aus, so dass die
+Metropolregion Tokio unbewohnbar wird. Die Olympischen Spiele in Tokio im Jahr 2020 werden dann völlig
+ausgeschlossen sein … Im Bereich von Fukushima müssen wir eine Reihe von Erdbeben der Stärke 7 vorher sehen. Folglich können wir die Wahrscheinlichkeit nicht ausschliessen, dass es ein weiteres Beben der Intensität
+6 und 7 nahe Fukushima Daiichi geben wird. Was am meisten gefürchtet wird ist, was der Einheit 2 passieren
+
+
+-----
+
+könnte, deren Druckbehälter ein grosses Volumen an Kernbrennstoffschutt enthält. Dieser Druckbehälter hat
+die plötzliche Temperatur- und Druckveränderung beim Unfall vom März 2011 aushalten können, aber angesichts der möglichen Schwächung durch Bestrahlung könnte er ernsthaft beschädigt werden, wenn ein neues
+grosses Erdbeben in der Nähe auftritt.
+Dr. Helen Caldicott, am 13. Februar 2017: Was die vom Roboter aufgenommenen Fotos zeigen ist, dass einige
+der strukturellen Stützen von Einheit 2 beschädigt wurden … alle vier Gebäude wurden durch das ursprüng liche Erdbeben … und durch die nachfolgenden Wasserstoffexplosionen strukturell beschädigt. Sollte es ein
+weiteres Erdbeben von mehr als sieben auf der Richter-Skala geben, ist es sehr gut möglich, dass eine oder
+mehrere dieser Strukturen zusammenbrechen, was zu einer massiven Freisetzung von Strahlung führt, während
+das Gebäude auf den geschmolzenen Kern stürzt … nahe einem Berg, aus dem Millionen von Gallonen Wasser
+tagtäglich unter dem Reaktorkomplex strömen, wodurch das Erdreich unter dem Reaktor-Gebäude teilweise
+weggespült wird …
+NHK World am 3. Februar 2017: Experten spekulieren, dass der Brennstoffschutt – eine Mischung aus Kernbrennstoff und geschmolzenen Teilen der Anlage des Reaktors – die Strahlung im Inneren des Gebäudes weiter
+erhöht … Mittels einer Sonde wurde vergangene Woche festgestellt, dass ein Teil eines Metallgitters gerade unter
+dem Reaktor fehlt. Ein Roboter zur Strahlenmessung sollte sich auf dem Gitter bewegen. Der Einsatz ist damit
+nicht möglich. Die Bildanalyse ergab auch, dass etwa ein Quadratmeter in der Nähe des fehlenden Segments
+kurz vor dem Zusammenbruch steht.
+«(Tepco) steht vor weiteren Rückschlägen. Tepco hat ein instabiles Gitter in der Nähe eines Reaktors gefunden,
+wodurch es schwierig wird, eine weitere Überwachung durchzuführen … Sie haben bereits Löcher in anderen
+Abschnitten gefunden …»
+Asahi, 3. Februar 2017: TEPCO sagte, dass es einen anderen Weg für den Roboter in Betracht ziehen wird …
+Fumiya Tanabe, ein Experte für nukleare Sicherheit … sagte, dass die Ergebnisse zeigen, dass sowohl die Vorbereitung als auch der eigentliche Stilllegungsprozess der Anlage wahrscheinlich viel schwieriger als erwartet
+werden wird. «Wir haben nur wenige Hinweise auf die genauen Standorte, die Grössen und die Formen des
+Kernbrennstoffschuttes», sagte er. «Die geplante Untersuchung durch den Roboter muss neu durchdacht
+werden. Die Arbeit zur Stilllegung der Anlage erfordert noch mehr Zeit.»
+Die Tokyo Electric Power Company Holding (Tepco) stoppte am Donnerstag einen Roboter im FukushimaReaktor Nr. 2, nachdem dessen Kameras kein Bild mehr zeigten. Die Kamera war für eine kumulative Belastung
+von 1000 Sievert konzipiert und fiel innerhalb von zwei Stunden aus.
+CNET, 3. Februar 2017: Reisen an die Ostküste von Japan sind generell zu überdenken. Ein Containerschiff hat
+nahe dem zerstörten Kraftwerk Fukushima Nr. 1 off-the-Chart-Strahlung erreicht, berichtete die Japan Times
+… Experten glauben, dass dies die Folge frei gewordenen geschmolzenen Kernbrennstoffs sein könnte.
+Also alles paletti … Nichts, was die Party stören könnte. Und es ist ja auch nur eines der unendlich vielen wahnsinnigen Dinge, die auch wir auf dieser Erde zugelassen haben.
+_Quelle: http://krisenfrei.de/sieht-riecht-schmeckt-fuehlt-hoert-man-nicht/_
+
+
+-----
+
+-----
+

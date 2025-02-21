@@ -1,0 +1,75 @@
+## Contact Report 746
+Siebenhundertsechsundvierzigster Kontakt
+Dienstag, 21. Juli 2020, 9.46 Uhr
+**Quetzal:**
+1. Grüss dich, mein Freund.
+**Billy:**
+Ah, Quetzal, du bist schon da, gut, dass du schon kommst, auch wenn ich dich erst am Abend oder in der Nacht erwartet habe. Ist aber gut so, sei auch gegrüsst.
+**Quetzal:**
+2. Florena liess mich vor 2 Tagen wissen, dass mein schnelles Herkommen sehr erwünscht und wichtig sei, folglich ich dachte, dass es dir zu dieser Zeit genehm sei.
+3. Was fällt denn Dringendes an?
+**Billy:**
+Du bist gut, mein Freund, denn wir warten darauf, was du darüber zu sagen hast, was nun hinsichtlich der Beweidung der Wiesen sein soll, denn du hast doch gesagt, dass ab sofort keine Schafe mehr auf die Wiesen getrieben werden sollen, wobei ihr, resp. du und das Gremium, jedoch diesbezüglich noch eine Begehung des Geländes durchführen und erst danach entscheiden wolltet, was getan werden soll. Bei uns hat der Vorstand am Samstag mit dem Mann und seiner Frau gesprochen, die das Wiesland nutzen, doch war eben die Sache mit dem Beweiden nicht klar, weil du ja gesagt hast, dass dies ab sofort nicht mehr sein soll.
+**Quetzal:**
+4. Dass die Angelegenheit vom Vorstand so schnell behandelt wurde, das war richtig, doch wäre die Notwendigkeit einzuhalten gewesen, auf meine weitere Erklärung zu warten, die ich dir übermorgen mitteilen wollte.
+5. Da du Florena jedoch aufgetragen hast, dass ich umgehend herkommen soll, so bin ich eben jetzt hier, um zu erfahren, was denn Wichtiges und Dringendes anfällt, wonach ich wieder gehen muss, weil ich sehr zeitgebunden bin.
+**Billy:**
+Gut, dann die Frage, ob ihr vom Gremium die Begehung gemacht habt und wenn ja, was sich daraus ergeben hat in bezug auf die Beweidung, wozu du ja gesagt hast, wie ich schon erwähnte, dass eine solche ab sofort nicht mehr sein soll. Dazu wurde nun gefragt, ob denn auch die hintere Kanzel davon betroffen sei und nicht mehr beweidet werden soll, weil zumindest diese dringend gebraucht würde für Lämmer oder so.
+**Quetzal:**
+6. Das verstehe ich nicht.
+**Billy:**
+Du hast doch gesagt, dass ab sofort keine Beweidung der Wiesen mehr sein soll, folglich haben wir verstanden, dass das für sämtliche Wiesen gilt, also auch für die hintere Kanzelwiese. Also wurde das auch in dieser Weise zur Sprache gebracht und damit klargelegt, dass auf allen Wiesen keine Beweidung mehr erfolgen soll. Dazu hast du aber auch gesagt, dass du und die Gremiummitglieder nochmals eine Begehung macht wollt, um noch einiges abzuklären, wonach du uns sagen würdest, was dann letztendlich sein soll.
+**Quetzal:**
+7. Das entspricht der Richtigkeit, doch offenbar wurden von dir und euerm Vorstand meine Erklärungen missverstanden, was ich bei dir eigentlich als etwas eigenartig empfinde, weil ich weiss, dass du ein sehr aufmerksamer und logisch denkender Zuhörer bist.
+8. Ausserdem hast du meine Anweisungen auch abgerufen und niedergeschrieben und hast verstehen müssen, wovon ich gesprochen habe.
+**Billy:**
+Das habe ich doch auch, aber offenbar habe ich doch nicht alles mitbekommen. Du hast gesagt, dass die Naturwiesen nicht mehr beweidet werden sollen, worunter ich verstanden habe, dass ab Mitte März bis Ende Juli keine Tiere mehr in die Wiesen getrieben resp. in diesen keine mehr geweidet werden sollen.
+**Quetzal:**
+9. Exakt, das war der Sinn meiner Erklärung, also hast du meine Anweisung richtig verstanden, wie ich diese am 4. Juli mit folgenden Worten nannte, wie ich hier ablesen kann:
+10.a)Weiter ist geboten, dass Naturwiesen nicht beweidet werden dürfen, folglich das künftighin unterlassen werden soll, folglich weder Schafe noch Rindtiere die Wiesen beweiden sollen.
+11. Das war der Sinn meiner Erklärung, wozu ich aber am 16. Juni auch folgendes erwähnte, wie ich hier sehe:
+12.Nun will ich aber doch noch kurz das ansprechen, was ich vorhin erwähnt habe bezüglich des Schafkotes, der durch das Treiben der Tiere auf Strassen und Wegen Ärgernis erregt.
+13.Dies ist nämlich immer dann der Fall, wenn wir auf den Wegen des Centergeländes umherschlendern, um uns Entspannung und Erholung zu gönnen, denn beim Dahingehen bleibt der durch die Schafe ausgeworfene Kot am Schuhwerk anhaften und ist einerseits lästig beim Dahingehen, anderseits auch äusserst unangenehm, wenn er wieder entfernt werden und das Schuhwerk gereinigt werden muss.
+14. Nebst dem, dass während der Zeit des Wachstums die Naturwiesen nicht mehr beweidet werden dürfen, soll es auch sein, dass vor und nach der Zeit des Nichtbeweidens der Naturwiesen vor und nach deren Wachstum, also vor dem 15. März und nach Ende Juli, nach der Abräumung, die Wiesen nur mit Schafen beweidet werden sollen, wenn gewährleistet wird, dass die Wege und Strassen auf dem Centergelände vom Schafkot gereinigt werden, der durch das Treiben der Tiere zum Weidegelände entsteht.
+15. Nur dadurch, dass die Strassen und Wege des Centergeländes frei von Schafkot und gereinigt sind, können sie problemlos und ohne Beschmutzung der Schuhe begangen werden.
+16. Wird dies und das Einhalten der Schonzeit des Naturwiesenwachstums in dieser Weise veranlasst, wie auch das Nichtausbringen von Jauche oder Chemie irgendwelcher Art eingehalten, dann besteht keinerlei anderer Grund, um eine Beweidung der Wiesen zu untersagen.
+17. Wenn die Weideflächen durch die Beweidung durch die Weidetiere bekotet werden, dann entspricht das einer bedenkenlosen Natürlichkeit, wie auch der Vorgang, dass durch die Weidetiere die aus den Pflanzen in natürlicher Weise ausgefallenen Samen ins Erdreich getreten werden und dadurch im Boden eine Keim- und Wachstumsmöglichkeit finden.
+**Billy:**
+Das ist mir alles klar, das habe ich schon in meiner Jugend von Sfath und in der freien Natur gelernt. Was du aber mit deiner Erklärung gemeint hast, eben dass keine Beweidung sein soll während der Wachstumszeit der Naturwiesen, das war mir wirklich klar. Das mit dem Nicht-beweiden-Dürfen, wenn die Center-Wege nicht vom Kot der Tiere gereinigt werden, das habe ich nicht bedacht, erscheint mir jetzt aber logisch. Manchmal denkt man eben nicht an alles, doch geht ja die Welt deshalb nicht unter. Aber geklärt werden muss die Sache ja trotzdem, eben besonders, dass alles Wiesengelände für eine Beweidung genutzt werden kann, jedoch einerseits nur zu den richtigen Zeiten und anderseits bei Einhaltung der Sauberkeit auf den Centerwegen. Was ausserhalb dieser Wege nicht gereinigt wird, das soll also nicht unsere Sache sein.
+**Quetzal:**
+18. Das ist von Richtigkeit, doch ist zu verstehen, dass auch die im Centergelände verlaufenden öffentlichen Strassen und Wege zu dieser Reinlichkeit gehören.
+**Billy:**
+Du meinst die Gemeindestrasse von Schmidrüti bis zum Center und von diesem der Flurweg bis zum Wald nach Hamberg.
+**Quetzal:**
+19. Das ist der Sinn meiner Erklärung, denn diese Strasse und dieser Weg werden von uns benutzt, und wir wollen darauf einhergehen können, ohne dass wir unser Schuhwerk mit Schafkot beschmutzen.
+20. Und dies wird so auch der Fall sein für alle Centerbewohnenden und für Passanten, die diese Strassen und Wege beschreiten.
+**Billy:**
+Natürlich. Jetzt aber, Quetzal, möchte ich wissen, ob du bereits eine Antwort und Erklärung von euren Sprach- und Schriftkundigen zu meiner Frage erhalten hast in bezug auf den Begriff ‹fenerativ›, den mir Sfath als ‹wuchern› erklärt hat, und zwar als effectiv richtiger Begriff für das wuchernde Verbreiten von gebietsfremden Pflanzen, wie z.B. Ambrosia, das indische oder drüsige Riesen-Springkraut und die Herkulesstaude. Auch steht hier auf diesem Zettel der Japanische Staudenknöterich, die kanadische Goldrute, die Lupine und Robinie und die Späte Traubenkirsche usw., wobei diverse dieser Pflanzen von der ‹info Flora› idiotischerweise als ‹wuchernd› beschimpft werden, obwohl das ebenso nicht der Fall ist wie auch bei verschiedenen anderen Pflanzen, die teils schon vor Jahrhunderten aus fremden Ländern nach Europa gebracht und hier – auch in der Schweiz – heimisch wurden und sich eben akklimatisieren konnten.
+Nun, eigentlich geht es ja darum, dass mich Sfath belehrte, der Begriff ‹invasiv› werde völlig falsch verstanden und falsch verwendet, denn invasiv dürfe in bezug auf Gewächse resp. Pflanzen nicht mit ‹wuchern› gleichgesetzt werden, sondern invasiv bedeute diesbezüglich einzig ein ‹Einfallen› resp. ‹Eindringen›, ‹Einwachsen› oder ‹sich anpassen› resp. ‹Akklimatisieren› von etwas Fremden, wie eben Gewächse resp. Pflanzen, in einem fremden Gebiet. Das Heimischwerden resp. Akklimatisieren und Wachsen gebietsfremder Pflanzen und fremdartiger Gewächse in fremden Gebieten sei also nicht ‹invasiv› und habe rein nichts mit einem Wuchern resp. Auswuchern zu tun, folglich der Begriff ‹invasiv› völlig falsch gebraucht werde. Ein Wuchern resp. Auswuchern von Gewächsen resp. Pflanzen sei richtigerweise als ‹Feneration› resp. ‹fenerativ› zu nennen, denn nur dieser Begriff bedeute ein breitflächiges und unter Umständen unaufhaltsames Wuchern und Auswuchern von Gewächsen resp. Pflanzen.
+**Quetzal:**
+21. Interessant, denn exakt das haben unsere der Sprachen und Schriften kundigen Wissenschaftler ebenso erklärt, die Kenntnisse und ein Wissen über die Ursprünge und die Nutzungen sowie den Gebrauch aller irdischen Sprachen pflegen, die allen irdischen Sprachenwissenschaften völlig fremd und unbekannt sind.
+22. Dies bezieht sich auch auf die alten lateinischen Begriffe und auf ‹proliferate›, die bereits zur Zeit der Latiner begriffsverdrehend und in dieser Weise bis in die heutige Zeit in falscher Weise überliefert, genutzt und völlig falsch interpretiert werden.
+23. Der lateinische Begriff ‹proliferate›, der heute falsch für das ‹Wuchern› von Gewächsen benutzt wird, hatte ursprünglich den Wert von ‹Wucherei› im Sinn von z.B. weit überforderten Rückgaben von aus-geliehenen Gütern und Münzwerten usw.
+24. Der Begriff ‹invadere› resp. die heutige Nutzung ‹invasiv›, bedeutet in ursprünglicher Form ‹angleichen›, ‹anpassen›, ‹eingliedern›, ‹einbetten›, ‹einbinden› und ‹einfügen›, was in den heutigen ‹modernen› irdischen Sprachen als ‹integrieren› bezeichnet wird.
+25. Dazu jedoch erklären unsere Sprachen- und Schriftenkundigen besonders in bezug auf die deutsche Sprache das ‹Moderne› der neuen Rechtschreibung als gedankenlose Dummheit unfähiger und überheblich-selbstherrlicher Sprachkundiger, die weder Sprachen noch Schriften zu beurteilen vermögen.
+26. Nach den Erklärungen unserer Sprachen- und Schriftenwissenschaftler wird in den irdischen Sprachen der heute verwendete lateinische Begriff ‹invasiv› völlig falsch und irrig als ‹einfallen› und ‹eindringen› sowie ‹wuchernd› definiert, und zwar in einer sehr negativen Form, wie auch der alte lateinische Begriff ‹proliferate› fälschlich als ‹Proliferation› resp. ‹Nachwuchs›, ‹Nachkommen› und ‹Sprössling› definiert wird, und damit ein schnelles Wachstum und eine Vermehrung bedeuten soll, als ein Wuchern von Pflanzen, Gehölz und allerlei Gewächsen.
+27. Der eigentliche Ursprung der beiden Begriffe führt sehr viel weiter in die Vergangenheit zurück, als die irdischen Wissenschaftler fähig wären und die Möglichkeit dazu hätten, um den eigentlichen Beginn derselben zu ergründen, wie unsere Wissenschaftler erklären.
+28. Die Begriffe wurden nach sehr genauen Erkundungen und Abklärungen durch Zeitbeschauungen bereits vor Jahrtausenden in Gebieten erschaffen, die in der heutigen Zeit als balkanindigen zu bezeichnen sind.
+29. Die schon zu frühen Zeiten sprachgewandten avestischen Völker nutzen in ihrem Sprachgebrauch die drei Begriffe ‹fenerara›, der zu späterer Zeit im Lateinischen ‹fēnerāre› genannt wurde, wie auch ‹prolivera›, später ‹proliferate›, und ‹invadra› später ‹invadere›, in einer völlig anderen Ausdrucksform, die zudem nie in irgendeiner Schriftweise der alten Schriftsprachen festgehalten wurde, sondern nur mündlich überliefert wurde und folglich auch zu späterer Zeit in keinen avestischen oder indoiranischen Schriften Einlass fand.
+30. In rein mündlicher und nie in schriftlicher Weise fanden diese beiden Begriffe sowie ‹fenerara› und ‹fenera› Einlass in Sprachen balkanindigener Völker, die heute als ‹Eingeborene›, ‹Naturvölker› und ‹Ureinwohner› und eben als ‹indigen› bezeichnet werden.
+31. Der Begriff ‹fenerara› resp. ‹fēnerāre› stand für unkontrollierte ‹Ausbreitung›, ‹Verbreitung› und ‹Wuchern› von Gewächsen, wonach die wohl richtige Benennung für das Wuchern und Auswuchern sowie unkontrollierbare Sich-Verbreiten und Ausbreiten von Gewächsen resp. Pflanzen mit dem Begriff **‹fenerativ›** genannt werden muss, **nicht jedoch als ‹invasiv› resp. wuchernd.**
+32. Auch die Völker, die avestische Sprachen nutzten, waren sprachlich weit entwickelt und prägten ihre Sprachen schon früh mit sachdienlichen Begriffen, die sie teils auch aus ihnen bekannten anderen Sprachen übernahmen, veränderten und die auch in viele andere Sprachen übernommen wurden, die aber teils alle Zeiten überdauerten und gar bis heute erhalten blieben, und zwar auch in der deutschen und schweizerdeutschen Sprache.
+33. Der Begriff ‹indigen› bedeutet soviel wie ‹im Land geboren›, jedoch auch den besonderen Bezug der Völker zu ihrer natürlichen Umwelt.
+34. Die 3 Begriffe nun, ‹fenerara›, ‹invadere› und ‹proliferate›, entstammen also ursprünglich einer avestischen Sprache, die dann in balkanindigene Sprachen übernommen und später in andere Sprachen übertragen wurde, wie z.B. ins Altgriechische, das wiederum den Weg zu den Latinern fand, die ebenfalls bestimmte Begriffe übernahmen, folglich in mehrfach verändernder Weise die Begriffe vertauscht und für falsche Werte benutzt wurden, was sich bis heute so erhalten hat.
+35. Wie mir unsere Sprachen- und Schriftkundigen erklärten, wurden auch von den Latinern die Begriffe aus griechischen Dialekten übernommen, wobei auch in diesen die falsche Bedeutungsfolge bestand, folglich also dem Begriff ‹fēnerāre› ebenso falscherweise eine andere Bedeutung zugeschoben wurde, wie auch dem Begriff ‹proliferate›.
+36. Und das geschah derart, indem die beiden Begriffe irrig gegeneinander ausgetauscht und also verdreht wurden.
+37. Das entspricht der sachbezogenen Auskunft, die ich dir nach den Erklärungen unserer Sprachen- und Schriftenkoryphäen geben kann.
+**Billy:**
+Was ich von Sfath lernte, dass also ‹fenerativ› der richtige Begriff für das Wuchern und unkontrollierte Ausbreiten von Pflanzen und Gewächsen aller Gattungen und Arten sei, und zwar im Gegensatz zum Begriff ‹proliferate›, ‹prolikrativ› und ‹invasiv›, ist also richtig.
+**Quetzal:**
+38. Das ist absolut richtig, und zwar nach den Aussagen und Erklärungen unserer Sprachen- und Schriftenwissenschaftler ist das ohne jeden Zweifel so.
+39. Dann muss ich jetzt aber wieder meinen Verpflichtungen nachgehen, doch soll ich dich noch informieren, dass dich Florena und Enjana in wenigen Minuten noch besuchen und dir dein Begehr erfüllen werden, das du ihnen vorgetragen hast.
+40. Doch nun muss ich gehen, mein Freund.
+41. Auf Wiedersehn.
+**Billy:**
+Tschüss, und lieben Dank, dass du nochmals hergekommen bist und alles geklärt hast. Es war wirklich notwendig. Danke, und auf Wiedersehn.

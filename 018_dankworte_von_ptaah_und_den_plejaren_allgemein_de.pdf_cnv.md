@@ -1,0 +1,83 @@
+# Dankworte von Ptaah und den Plejaren allgemein
+ an alle Menschen, die vernünftig und verantwortungsvoll handeln
+
+## Auszug aus dem 739. Kontakt vom Freitag, 22. Mai 2020
+
+**Ptaah** Was richtig ist. Wozu ich auch sagen kann, dass alle jene ihrem Verstand und ihrer Vernunft folgenden
+
+Mitglieder eurer Kerngruppe und Passiv-Gruppe in globaler Weite eure umfangreichen Website-Veröffentlichungen und die darin enthaltenen Ratgebungen zu Sicherheitsmassnahmen befolgt haben und bis anhin wohlbehalten vor der Corona-Seuche geblieben sind. Auch sehr viele der FIGU fremde Personen haben diese veröffentlichten Ratgebungen gelesen, befolgt und in ihren Kreisen verbreitet, wodurch viele Erdenmenschen vor Infizierungen und dem Tod durch das Corona-Virus verschont blieben.
+Als äusserst interessante Feststellungen hat sich bei unseren Kontrollen schon seit Beginn eurer ersten WebsiteVeröffentlichungen ergeben, dass euren FIGU-Website-Corona-Informationen ungewöhnlich viel Aufmerksamkeit zukam, wie das Ganze häufig und immer wieder aus diversen Ländern auch von einer grösseren Anzahl
+spezialisierter Fachkräfte verschiedener Wissenschaften genutzt wurde. Sehr interessant war festzustellen, dass
+eure FIGU-Website-Informationen kopiert und anderweitig sehr oft in Fachkreisen weiterverbreitet wurden, und
+zwar besonders in unterschiedlichen europäischen wissenschaftlichen Kreisen, wie der Mikrobiologie, Virologie
+und Infektionsepidemiologie. Dies ergab sich aber auch hinsichtlich spezialisierter Fachärzte, Fachärztinnen, wie
+in bezug auf Fachkräfte der Bakteriologie, Parasitologie, Immunologie sowie der Serologie, wie aber auch der
+Mykologie, Mykobakteriologie, Mikrobiologie und Molekularbiologie und Symptomatologie, sowie Spezialisten
+der Laboratoriumsdiagnostik und Stufendiagnostik usw. Diese Tatsachen …
+
+**Billy** Entschuldige bitte, wenn ich dich unterbreche, doch kommt mir das sehr seltsam vor, denn was sollen
+
+diese von unserer Website abgerufenen Informationen durch diese Leute bezwecken? Dann frage ich mich auch,
+warum das ausgerechnet von Leuten solcher verschiedener Wissenschaftsgebiete getan wird, weil ja eigentlich
+in bezug auf das Corona-Virus nur die Fachleute der Virologie jene sind, die mit der Sache umgehen müssen,
+oder? Das ist mal das eine, das mir so seltsam erscheint, während das andere die Tatsache ist, dass ich seit jeher
+ausgerechnet auch von gewissen Wissenschaftlern diverser Arten als Betrüger, Lügner und Schwindler beschimpft werde, wenn ich z.B. von dir erhaltene Ratschläge oder Fakten bezüglich bestimmten Tatsachen nenne.
+Wie kommt es da also, dass ausgerechnet solche Leute in unserer Website herumwühlen – und eben wozu? Und
+würde man diese Leute darauf ansprechen, dann bin ich mir sicher, dass sie ihr Tun sowieso bestreiten würden.
+
+**Ptaah** Das würde wohl der Fall sein, wozu diese Personen für sich selbst mancherlei Begründungen haben, die
+
+aber wohl alle dem Zweck dienen, ihr vermeintlich hochintelligentes Angesicht und ihr Image zu schützen und zu
+wahren, wie auch nicht als Gläubige eines Phantasten zu gelten, wie sie dich beschimpfen und lächerlich machen
+wollen, wie das auch viele der Dummheit verfallene Besserwisser, Neider und Widersacher aller Art tun. Anderseits entspricht es einem natürlichen Vorgang, dass sich auch Fachkräfte anderer Wissenschaftsgebiete ausserhalb der Virologie für vielerlei Faktoren aufscheinender Leiden, Krankheiten und Seuchen usw. interessieren,
+weil gesamthaft alle auftretenden Erscheinungsformen solcherart aufkommender Momente Zusammenhänge
+aufweisen oder aufweisen können, die es zu erforschen gilt.
+
+**Billy** Wenn du es sagst.
+
+**Ptaah** Ja. – Dann wollte ich vorhin sagen, dass die von uns festgestellten Tatsachen, wie ich sie genannt habe,
+
+uns veranlassen – mich besonders, wie aber auch alle die dir Bekannten aus unseren Reihen sowie auch alle
+unseres Gremiums –, eine ganz besondere Dankentsprechung an alle Erdenmenschen auf dem ganzen Planeten
+entgegenzubringen, die aufmerksam, achtsam, vertrauensvoll und verstand- sowie vernunftgeprägt eure
+umfangreichen Website-Corona-Richtlinien-Veröffentlichungen ernst genommen und befolgt haben.
+Unser Dank geht besonders an alle, so an alle nahen und weltweiten FIGU-Mitglieder, an alle der FIGU fremden
+Personen, wie auch an jene verantwortungsbewussten diversen Politiker und Wissenschaftskräfte, die sich in
+richtiger Weise verhalten und viel Nützliches getan haben, die aber leider, wie wir feststellten, nur wenige an der
+Zahl sind und zudem von ihren Kreisen nicht hilfreich unterstützt werden.
+Unser Dank sei also damit auch ganz besonderes an alle Personen gerichtet und ausgesprochen, die aus den
+durch die FIGU verbreiteten Informationen Erkenntnisse und Nutzen gewonnen und zum Wohl vieler Menschen
+entsprechende Aktivitäten daraus hervorgebracht, wie auch hinsichtlich ihrer eigenen Person Lebenssicherheit
+gewonnen haben. Das betrifft umfänglich alle, die unsere und eure Ratgebungen befolgt haben, die auf der FIGUWebsite veröffentlich wurden.
+
+
+-----
+
+Durch die verantwortungsbewusste Befolgung der Genannten in bezug auf die genannten Richtlinien, wie auch
+durch die Befolgung notwendiger Anordnungen sowie durch gewonnene Erkenntnisse, ausgeführtes richtiges
+und notwendiges Handeln und Tun in naher und weiterer Umgebung oder in landesumfassender Weite, wurde
+viel Unheil verhütet, wie auch sehr viele Infizierungen und Tode vermieden wurden, was auch zukünftig
+weiterhin so sein könnte, wenn gleicherart gehandelt würde. Das wird wohl möglich sein von den genannten
+Personen, während gegenteilig durch die Unvernunft der Unbelehrbaren leider in der kommenden Zeit weiteres
+Unheil nicht vermeidbar sein wird, obwohl ein vernünftiges Handeln und Verhalten notwendig sein wird, weil
+die Corona-Seuche kein schnelles Ende finden, sondern momentan in Europa zwar etwas rückläufig ist, jedoch
+wieder aufflammen wird, wie unsere Berechnungen ergeben.
+Leider sind genaue und exakte Vorausberechnungen und Vorausschauen aus dreierlei Gründen nicht möglich,
+und zwar erstens darum, weil das Corona-Virus selbst in mancherlei Hinsicht unberechenbar ist, zweitens, weil
+dies in gleicher Weise auch auf die Staatsführenden zutrifft, die in ihren Handlungsweisen unbeständig und
+unzuverlässig sind. Drittens trifft diese Tatsache gleichermassen auch in bezug auf die Bevölkerungen aller Länder
+in Erscheinung, weil diese in Wankelmut und Beeinflussung einhergehen und sich zudem durch Corona-Lügner
+sowie Corona-Verschwörungstheoretiker einem konträren Sicherheitsverhalten und deren Wahnideen anschliessen und dementsprechend vernunftwidrig handelnd sind.
+Rund auf dem Planeten wird die Corona-Seuche weiter stark grassieren und viele Tote fordern, folglich sie auch
+in Europa wieder ansteigen und viele Opfer fordern kann, und zwar durch jenen Teil der Bevölkerungen, der
+wider allen Verstand und alle Vernunft unbedacht, nachlässig, leichtsinnig und verantwortungslos oder infolge
+Dummheit die notwendigen Vorsichtsmassnahmen missachtet und folglich infiziert werden und u.U. dem Tod
+verfallen wird. Dies, wie es auch durch die Schuld der Corona-Leugner und Verschwörungstheoretiker sowie
+deren Gläubige und durch die Staatsführenden kommen kann und wahrscheinlich auch kommen wird. Schaden
+werden auch grosse Massen der Bevölkerungen davontragen, weil sie sich durch die Wirtschaftskrise und die
+Wirtschaftsmächtigen irreführen lassen, die sich zu unsachgemässen und nicht den Verhältnissen angeglichenen
+falschen Lockdown-Massnahmen verführen oder gar bestechen lassen.
+
+
+-----
+

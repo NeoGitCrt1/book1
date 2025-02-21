@@ -1,0 +1,589 @@
+# FIGU
+**Freie**
+
+**Interessengemeinschaft**
+**F.I.G.U.**
+
+**r**
+
+# SONDER-BULLETIN
+
+### Erscheinungsweise: Internet: http://www.figu.org 9. Jahrgang Sporadisch E-Mail:  info@figu.org Nr. 7, Juni 2003
+
+## Leserbriefe zum FIGU-Bulletin Nr. 43 und zum Thema Kritik und Zweifel an der FIGU
+
+Zunächst einmal möchte ich mich den Lesern der FIGU-Bulletins vorstellen: Meine Name ist Horst D.
+Sennholz, und ich lebe in Deutschland.
+
+Vor ein paar Monaten bin ich über das Internet auf die FIGU.ORG gestossen und setze mich seitdem mit
+den Botschaften und Lehren der FIGU.ORG und Billy Meier auseinander. Allen Kritikern zum Trotz muss
+ich leider sagen, dass Billy Meier mitsamt der FIGU.ORG als absolut integer und glaubwürdig anzusehen
+ist. Wie komme ich zu dieser Feststellung?
+
+Bei genauer Betrachtung kann ich von mir behaupten, dass ich über mehr als 30 Jahre nach der Wahrheit suche. Ob ich sie gefunden habe, wollen wir einmal dahingestellt sein lassen. Tatsache ist jedoch,
+dass ich auf diesem Pfad durch die vielen Wege und Irrwege des spirituellen Dschungels mit allen Höhen
+und Tiefen sowie persönlichen Angriffen gegangen bin. ‹Felsenfeste› Überzeugungen habe ich immer
+wieder über den Haufen werfen und korrigieren müssen, sobald mir die Einsicht höhere Erkenntnisse
+vermittelt hat.
+
+Evolutionsbedingt kann ich heute mit absoluter Gewissheit sagen, dass Billy Meiers Aussagen, Botschaften
+und sein fundamentales unübertreffliches Wissen durch niemanden und nichts überboten werden kann.
+Es gibt nichts, worauf er keine Antwort hat! Noch etwas müsst ihr Kritiker und Zweifler an dieser Stelle
+wissen: Selbst die Fragen der Leser an Billy dienen eurem geistigen (bewusstseinsmässigen) Fortschritt. Sie
+sind mit ein Teil eurer persönlichen Entwicklung. Versucht zu erkennen, ob es nicht eure Fragen hätten sein
+können, die dort gestellt worden sind und gestellt werden. Als Suchende seid ihr als Bewusstseins-Kollektiv
+oder als Individuum bei ihm angekommen, weil ihr ‹wisst› – besser: unterbewusst ahnt, dass nur er euch
+antworten und helfen kann. Trotzdem feixt ihr ihn ganz oder teilweise an.
+
+Ihr unseligen Kritiker, Zweifler und Verbal-Mörder, ihr habt überhaupt keine Ahnung, auf welchem Terrain
+ihr euch befindet, wenn ihr unwissend besserwissend jemand angriffig-kritisch in den Rücken fallt. Ihr
+selbst seid zu unwissend, dass ihr nicht einmal ansatzweise erkennt, dass euer persönlicher Evolutionsprozess bei Billy Meier mündet. Legt eure Widerstände ab und hört doch einfach einmal zu und überdenkt das Geschriebene bzw. Gesagte. Sucht nicht das Haar in der Suppe, das für euch der Beweis ist,
+dass er ein Scharlatan oder sonst etwas ist. «Use your brain!» Nehmt eine abwartende Haltung ein und
+beobachtet eure im Innern ablaufenden Prozesse. Vergesst dabei nie: Ihr seid gespaltene Subjekte, die
+von einem negativen und einem positiven Ego beherrscht werden. Diese Polarität in euch verursacht
+
+
+**Freie**
+
+
+-----
+
+innere Konflikte, die ihr nach aussenhin projiziert, indem ihr einen Sündenbock für eure innere Machtlosigkeit und Schwäche zu erkennen sucht. Euer Unterbewusstsein ist es, das euer bewusstes Denken und
+Handeln steuert. Und solange ihr die Muster eurer Unterbewusstheit nicht erforscht und nicht ergründet,
+werdet ihr immer wieder in die gleiche Situation kommen, die dergestalt aussieht, dass jemand auf irgendeine Art und Weise in euer Leben eintritt, euch etwas vermitteln will, von dem ihr nicht einmal ansatzweise
+eine Vorstellung habt, dass es so etwas überhaupt gibt.
+
+Warum verhaltet ihr euch so ‹egoyttenbachhaft›? Dafür gibt es mehrere Gründe. Ein Hauptgrund ist der
+der Egomanie. Die Menschen sind über Jahrtausende hinweg zu egobehafteten Wesen degeneriert. Die
+Ursachen wollen wir an dieser Stelle nicht weiter ergründen. Über dieses Thema gibt es sehr gute Lektüren,
+die jeder einlesen kann. Das Ego-Denksystem hat ein wesentliches Problem: das der Hierarchie. Der unwissende Mensch glaubt in seinem weltorientierten und somit wahnbefangenen Denken, Reden und
+Handeln – soweit das konfusionsbedingt in dieser Reihenfolge noch erfolgt –, dass es nichts über ihm gibt.
+Das ist ein sehr merkwürdiges Glaubenssystem, zumal sein eigentliches Verhalten dieser vorgeschobenen
+Denkform diametral gegenübersteht. Denn was macht er in Wirklichkeit? Er betet Politiker, Idole (Fussballstars, Popstars, Filmstars usw. usf.) und Götter so lange an, wie sie es schaffen, ihn Glauben zu machen,
+dass sie respekt-, anbetungs- und verehrungswürdig sind. Aber was passiert jedesmal, wenn jemand
+kommt und euch sagt, dass sich alle irren und ihr eure Überzeugungsmuster überprüfen müsst? Hysterie
+und Angst, mit der Folge von Angriffsgedanken lassen euch völlig verwirrt aus den Fugen geraten. Es
+fällt – historisch betrachtet und somit für jedermann leicht erkennbar – auf, dass immer dann, wenn eine
+Situation wie diese eintritt, das unwissende Individuum mental und emotional kollabiert. Was will es in
+seiner aufgesetzten Arroganz nämlich niemals zugeben? Dass es eigentlich nichts weiss! Damit müsste es
+sich einer Hierarchie des Wissens unterwerfen; und genau das will es nicht, denn es kann nicht sein, was
+nicht sein darf. Und schon geht die Angriffsmaschinerie los: Verleumdungen, Lügen, Hetzjagden, Diffamierungen, Mobbing, Ausgrenzungen, üble Nachrede, Mord und Totschlag.
+
+Vergesst nie, dass man vor 2000 Jahren einen Andersdenkenden und Wahrheitswissenden ans Kreuz
+genagelt hat, weil er sich von der Masse Kraft seines Wissens abhob. Die Kirche hat Andersdenkende
+und Wissende mit ihrem Inquisitionsapparat als Hexen und Hexer verhaftet, gedemütigt, gefoltert, angeprangert und ermordet – weil sie wissend waren.
+
+Mir kann keiner erzählen, dass die Inquisition abgeschafft sei. Heutzutage spielt sie sich auf einer sehr
+subtilen Ebene ab. Da gibt es redegewandte Kardinäle, die mit sanfter, einlullender Stimme der Bevölkerung ‹göttliches› Wissen vorgaukeln, woraus die Kirche einen Alleinvertretungsanspruch ableitet und alle
+übrigen Glaubensrichtungen verdammt. Nur, die anderen Glaubensrichtungen praktizieren den gleichen
+Unsinn. Da gibt es auch noch sogenannte Sektenbeauftragte in öffentlichen Ämtern, die beurteilen sollen,
+wann eine Sekte ‹schädlich› und wann eine ‹unschädlich› einzuordnen ist. Seltsamerweise stammen diese
+Sektenbeauftragten aus den Reihen der etablierten Religionsgemeinschaften. Das Lächerliche an der
+ganzen Sache ist, dass diese Unwissenden in einer Art ‹Subsummation› feststellen sollen und wollen, was
+der Wahrheit zugeordnet werden kann und was nicht. Man macht hier den Bock zum Gärtner. Dann gibt
+es noch die selbsternannten Wissenden, die einem wahrlich Wissenden ein Bein stellen, nur um zu beweisen, dass der Wissende eine zu meidende und irrende Person darstellt. Das ist der öffentlich gewollte
+Effekt, der dahinter steht. Der persönliche Effekt ist der, sich nicht einer, sagen wir mal ‹Wissenshierarchie› unterordnen zu müssen, was für die meisten den bitteren Beigeschmack der Selbstüberprüfung beinhaltet. Oftmals steckt auch ein Gefühl der Unzulänglichkeit dahinter, die geheimgehalten werden soll,
+um der persönlichen Eitelkeit gerecht zu bleiben. Das gilt es vorrangig für das unwissende Individuum zu
+vermeiden. Ist das persönliche Evolution? Wohl kaum! Alles was diese Individuen tatsächlich perfekt beherrschen, ist ihre Evolution zu verhindern, und somit garantieren sie ihre Stagnation. Und darin liegt
+
+
+-----
+
+auch wahrlich ihre ‹Königsmacht›, die auf einem fehlgeleiteten und somit fehlentwickeltem Ego-Denksystem beruht. Sie sind somit ‹Könige der Unwissenheit›.
+
+Ein weiteres Problem einiger Leser scheint Billys Sprache zu sein. Diese Haltung entspricht dem gegenwärtigen Zeitgeist. Diese Leser, Zuhörer oder Betrachter achten nicht auf Inhalte, sondern auf Verpackungen. Sie frohlocken über ein in Goldpapier und mit rotem Schleifchen verpacktes Weihnachtsgeschenk
+schon in dem Moment, wenn es derart verpackt überreicht wird. Die Verpackung nimmt einen höheren
+Stellenwert ein als der Inhalt. Was wollt ihr lieben Leser: Verpackungen oder Inhalte? Tagtäglich fresst ihr
+die schmusebackenen Aussagen der Politiker, Stars, Medien und Werbeindustrie in euch hinein und
+akzeptiert diesen Wahnsinn bedingungslos. Beschwert euch dort, denn diese Methode hält euch allesamt
+in Begrenztheit und mentaler Versklavung. Nur habt ihr das noch nicht erkannt. Masse ist nicht Klasse, so
+heisst es zu Recht. Solange ihr von jemandem erwartet, dass dieser euch nach euren Regeln unterrichtet,
+unterrichtet ihr euch nach ‹altbewährter› Methode selbst und beschränkt dabei euren Evolutionsprozess.
+«Bis hier hin und nicht weiter», so lautet eure Devise; besser noch: «Suche, aber finde nicht.» Den Grad
+eurer Entwicklung will das egobehaftete Denksystem immer selbst bestimmen. Nur null Grad sind keine
+Entwicklung, trotzdem ist das das Ziel eines Ego-Denksystems.
+
+Ein Lehrer und Wahrheitsträger wie Billy gleicht einem Leuchtturm. Seine Strahlen wirken sich bei denen
+am besten aus, die sich in seiner unmittelbaren mentalen Nähe der Akzeptanz aufhalten. Seht euch doch
+nur einmal die Auslassungen von Hans Georg Lanzendorfer an, die beweisen, dass dieser ihm nahestehende Mensch sich sehr weit entwickelt hat. Gewiss hatte er die Voraussetzungen dafür in dieses Leben
+mit eingebracht, aber die habt ihr auch, sonst wärt ihr nicht hier gelandet. Und wenn ihr wüsstet wie
+schwer es ist, im europäischen und deutschsprachigen Raum auf so eine Koryphäe zu stossen, würdet ihr
+euch besinnen und eine andere Haltung ihm gegenüber einnehmen. Ich weiss, wovon ich rede. Die
+wahren Meister sind sehr, sehr selten; sie sind die Ausnahme! Dort, wo die Wahrheitsträger herkommen,
+rollt man ihnen den ‹Roten Teppich› aus; hier ziehen die Menschen ihnen den Boden unter den Füssen
+weg.
+
+Billy Eduard Albert Meier weiss es besser als wir alle zusammen, das ist das, was ich mit Sicherheit weiss.
+
+Meine Empfehlung an alle Zweifler, Kritiker und Verfolger ist folgende:
+
+– Ergründet die originäre Absicht eurer Denkweise im Unterbewusstsein. Fragt euch, warum
+ihr dieses oder jenes denkt; fragt euch nach euren ureigensten Motiven.
+– Stellt euch immer wieder folgende Frage, bevor ihr etwas nach aussen hin zum Ausdruck
+bringen wollt: Welchen Sinn macht es und wozu dient es?
+
+Diese Vorgehensweise ist der Anfang, um aus der Dunkelheit zum Licht zu kommen – vom Unwissen zum
+Wissen.
+Horst D. Sennholz, Deutschland
+
+**Dear Mr. Eduard Meier and Staff:**
+«With all respect, We send a greeting respectiful and big congratulations, for your very fine and more
+complet, website and work. These are terrific and wise, in part principal, the very big and beautiful cosmic
+civilization and fine people, the pleiadians, in special part, Ptaah, The high commander, and your
+relatives, Semjase, Asket, Nera, Pleija, Florena and all people, they are very fantastic! Thanks for read
+my message! Good Luck! In advance thanks a lot!
+
+
+-----
+
+† p.d. Would you like to send big hugs to everybody?
+† Cordiality: Martin Trujillo Mariel and Family. Boca del Rio,Veracruz/Mexico.
+
+Lieber Herr Eduard Meier und Mitarbeiter
+Mit aller Wertschätzung senden wir unseren ehrerbietigen Gruss und grosse Gratulation für Ihre ausgezeichnete und in hohem Masse vollkommene Website und Arbeit. Sie sind grossartig und weise, ja auch
+fürstlich, die grosse und prächtige kosmische Zivilisation und ihre edlen Menschen, die Plejadier/Plejaren –
+insbesondere Ptaah, der hohe Kommandant und seine Verwandten, Semjase, Asket, Nera, Pleja, Florena und die ganze Bevölkerung, sie sind phantastisch!
+Danke fürs Lesen meiner Nachricht. Viel Glück! Vielen Dank im voraus.
+P.S.: Würden Sie bitte an alle unsere Glückwünsche übermitteln?
+Herzlichst:
+Martin Trujillo Mariel und Familie, Mexico.
+
+**Gedanken und Gefühle zum Thema Übersetzungen**
+«Die kürzlich erfolgte Bildung/Gründung der FIGU-Society-USA (FSUSA) als ein Zweig der FIGU in den
+USA ist von grosser Wichtigkeit für den Fortschritt der Mission und es ist auch ein Grund, über die Rolle
+von Übersetzungen nachzudenken.
+Es ist wesentlich, dass es jeder Person, die an FIGU-Texten interessiert ist, ermöglicht werden sollte,
+direkten Zugang zu ihnen zu haben, um sie zu lesen und zu studieren und sie dann – nach je eigenem
+Verstehen – entweder abzulehnen oder zu befürworten und dann gegebenenfalls über die Wahrheit, das
+Leben und die Schöpfungsgesetze zu lernen.
+Die für die Erschliessung dieses Zugangs für englischsprechende Menschen notwendigen Bedingungen
+sind schon von Personen geschaffen worden, die die Notwendigkeit von Übersetzungen, in diesem Fall
+ins Englische, erkannt haben, indem sie selbst Übersetzungen anfertigten oder anfertigen liessen und so
+eine solide Grundlage für das schufen, was heute FSUSA ist.
+Bei dieser Gelegenheit ist es auch wichtig, sich ins Gedächtnis zu rufen, dass die ufologischen Beweisstücke, Photos, Filme, Klangaufnahmen und andere physische Beweise, nur eine äusserliche Ansichtsseite
+eines riesigen Pakets geistigen bzw. bewusstseinsbezogenen Inhalts ist; ohne jeden Zweifel eine faszinierende äusserliche Ansichtsseite, an der wir wahrscheinlich alle einmal eines Tages in Form einer selbst
+erlebten Sichtung teilnehmen möchten.
+Nichtsdestoweniger jedoch, bei all dieser Faszination sollten wir auch immer daran denken, auch wenn
+dies manchmal schwerfallen mag, dass ein Strahlschiff ein Transportmittel ist, welches die Plejaren zu dem
+Zweck benutzen, ihre Botschaften an Billy zu übergeben, der diese dann an uns weitergibt. Was hier also
+zählt, sind die Botschaften und nicht so sehr die Transportmittel, in denen sie uns hier zur Erde überbracht
+werden.
+Was zum Beispiel meine Person betrifft, geht der erste Kontakt zur FIGU auf das Jahr 1996 zurück, aber
+schon 1985 hatte ich zum ersten Mal von Billys Kontakten gehört.
+Zu jener Zeit lebte ich schon in einem spanischsprachigen Land; also inzwischen Zeit genug, um diese
+Sprache in einem funktionell zufriedenstellenden Masse zu lernen. Bald nachdem ich den ersten Text gelesen hatte, erfuhr ich auch von spanischsprechenden Leuten, die es sich wünschten, Zugang zu diesen
+Texten zu haben, aber kein Deutsch verstanden. Und so dachte ich, dass es notwendig sei, damit anzufangen, einige Texte ins Spanische zu übersetzen. Gleichzeitig fühlte ich auch, dass es ein grossartiger
+Vorteil war, Deutsch verstehen zu können, weil dieser Umstand mir direkten Zugang zu den Schriften gab,
+die wir als einen wahren Schatz betrachten können, dessen würdiger Hüter Billy ist; ganz wie sein Name
+Eduard = ‹Hüter des Schatzes› besagt. Dies ist auch ein Umstand, sich daran zu erinnern, dass Billy von
+Anfang an eine gewaltige Menge Arbeit getan hat und auch weiterhin tut, indem er seine und der Plejaren
+Botschaften niederschreibt und sie an uns weitergibt, woraus wir evolutionsmässig Nutzen ziehen. Dafür
+
+
+-----
+
+verdient er den Dank von uns allen, den ich ihm hier von Herzen dafür aussprechen möchte. Eine gute
+Art und Weise des Dankes ist es aber sicherlich auch, ihm bei seiner Arbeit zu helfen, jeder nach seinen
+Möglichkeiten.
+
+Übersetzungen anzufertigen bedeutet, die Texte vor dem Übersetzen zu verstehen versuchen. Also ist
+Übersetzen auch ein Vorgang des Lernens; und die Erfahrung des Lernens bringt auch Evolution und die
+Evolution eine Erfüllung des Sinns des Lebens. Ein weiterer Teil dieser Erfüllung liegt in der Tatsache, dass
+durch die vorhandenen Übersetzungen die daran interessierten Menschen diesen Vorgang des Lernens
+durchleben werden, so dass wir in diesem Moment auf dem Weg zum Bewusstsein des Teilens sind. Das
+bedeutet, dass wir in dem Augenblick die Gewissheit der Tatsache fühlen und erkennen und dass wir
+mitleben und mitexistieren mit allem und jedem im gesamten Universum; und dieses Gefühl wird als Liebe
+bezeichnet, als das höchste Prinzip des Lebens.
+Da diese Übersetzungen eine freiwillige Aktivität sind, ist es auch notwendig, einiges an Freizeit dafür
+aufzuwenden, gute Wörterbücher zu haben, den übersetzten Text mehrere Male durchzusehen, im besten
+Falle in Zusammenarbeit mehrerer Leute, die sowohl Deutsch als auch die jeweilige Fremdsprache
+sprechen.
+Andererseits, was denken Sie darüber, liebe Leser/innen, selbst Deutsch zu lernen? Schliesslich ist es für
+Ihren eigenen Fortschritt, und es ist nur eine Frage dessen, diese Nützlichkeit zu erkennen und einen
+Entschluss zu fassen sowie von gleichbleibendem üben und arbeiten, und vor allem von Konzentration,
+meinen Sie nicht auch?
+Wolfram Heine, Mexiko
+
+**Thoughts and feelings about translations**
+The recent constitution of FIGU Society USA – FSUSA – as a branch of FIGU in the USA is of great
+importance for the progress of the mission, and this is also a reason to reflect about the role of translations.
+Basically it is essential that every person interested in FIGU’s texts should have the possibility to access
+them directly, read and study them, and, according to her/his own understanding, either to reject them
+or to learn for her/himself about life, existence and the laws of Creation.
+The conditions necessary for opening this access to English-speaking people have already been set up by
+persons who realized this necessity of translations, in this case, into English, either translating by themselves or by sponsoring translations, thus laying a solid base for what is now FSUSA.
+On this occasion it is also important to remember that the ufological evidence – photographs, film, sound
+recordings, and other physical proof – is just an external aspect of a gigantic package of spiritual/consciousness-related contents, in which we would probably all like to participate some day by experiencing
+a sighting by ourselves.
+However, with all this fascination, we should always keep in mind, too, – even if this may be difficult
+sometimes – that a beamship is a means of transportation used by the Plejarians for the purpose of delivering their message to Billy, who gives them to us. So, what counts here in the first place, is the message and not so much the vehicle by which it was brought to us here on Earth.
+As for my person, for example, the first contact with FIGU goes back to 1996, but it was already in 1985
+that I had heard for the first time about Billy’s contacts. At that time I was already living in a Spanishspeaking country, by now time enough to learn this language to a functionally satisfying level.
+Soon after reading the first texts, I also knew of many Spanish-speaking people who wished to have
+access to the texts but who did not speak German, so I felt it made sense to start translating into Spanish.
+At that time I also felt that the ability to speak German was a great advantage, because this circumstance
+gave me direct access to the original scripts. Because of their contents we may consider these scripts to be
+
+
+-----
+
+a true treasure for all of us, with Billy being a worthy keeper, as his first name says: ‹Eduard = keeper of
+the treasure›. This is also a proper moment to remember that since the beginning Billy has done and keeps
+still doing a tremendous amount of work, writing down all the messages and giving them to us. For doing
+so, he deserves all our gratitude, and so here I want to thank him deeply.
+A good way to thank him is probably also to help him with his work.
+
+Making translations means trying to understand the text before translating it, so this is also an attempt for
+learning, and the experience of learning is also evolution, and evolution is a fulfillment of the purpose of
+life. Another part of this fulfillment lies in the fact that by the existing translations, more people will have
+access to the texts and will likewise experience this process of learning, so at this moment we are on the
+way to be aware of sharing something; this means we feel to be aware of the certainty of the fact that we
+live with and coexist with everybody and everything in the Universe, and this feeling is named love as the
+supreme principle of life.
+Since the translations are a voluntary activity, it is also necessary to spend quite some free time with this
+work, and to have good dictionaries, to revise the translated text several times, in best case with the cooperation of other persons who also speak both German and the other language.
+
+On the other hand, what do you think about learning German yourself? After all, it’s for your own
+progress, and it’s just a matter of realizing this utility, of making a decision, of constant work and practice,
+and above all, concentration, don’t you think?
+Wolfram Heine, Mexiko
+
+## Krieg und Terror, die neue irdische Religion der Mächtigen
+
+US-Amerika und Britannien haben den ungerechtfertigten und mörderischen Krieg im Irak geführt, jedoch
+nicht gewonnen, wie sie behaupten, denn das irakische Volk wünscht die beiden Mächte nicht in ihrem
+Land. Wie eh und je in vielen anderen Staaten schreien auch die Iraki: «Amis, go home», und sie
+schreien, dass sie nicht die alte Saddam-Diktatur mit einer neuen und eben einer US-Amerika-Diktatur
+vertauschen wollen. Das aber kümmert den dummen US-amerikanischen Möchtegerngross-Präsidenten,
+Möchtegern-Kriegshelden und Möchtegern-Irakbefreier George W. Bush samt all seinen ihm hörigen
+Gläubigen ebensowenig, wie auch nicht den dummen britischen Mitschleicher Tony Blair und sein unzurechnungsfähiges Gefolge. Und gleichermassen wie all diese, sind auch sehr viele ihrer mörderischen
+‹Krieger› einzustufen, die brandschatzend, zerstörend und mordend den Irak ‹erobert› haben und aus
+den Museen klauten, was nicht niet- und nagelfest war. Wie irakische Leute berichteten, die beobachteten,
+was wirklich geschah bei den Museen usw., sollen die Kriegstruppen erst die Museen von deren wertvollsten Stücken ‹befreit› und diese nach den USA und nach Britannien verschickt haben, ehe sie die plündernden Irakis einliessen, die den Rest dann noch zerstörten und zusammenklauten.
+Bush und Blair, zwei selbstherrliche, verantwortungslose, unberechenbare und bohnenstrohdumme
+Elemente, denen mit ihrem Gefolge ebenso Verantwortungsloser die Macht gegeben ist, in aller Welt über
+Leben und Tod von Menschen und über das Sein oder Nichtsein eines Landes zu bestimmten. Und das
+Volk brüllt dazu noch pro und hurra und glaubt den Schwachsinn dieser beiden Staatsgewaltigen, wenn
+sie sich auf Gott beziehen. Wie sagte doch der wahnsinnige Mächtige der USA, der sogenannte USamerikanische Staatsführer, zur Rechtfertigung seiner Rachsucht und feigen Angst vor Saddam: Er handle
+im direkten Auftrage Gottes, wenn er Saddam Husains Volk mit Krieg, Zerstörung, Terror und Mord belege. Und Blair, des US-Präsidenten Statthalter und Schleichgenosse in Britannien, heulte gemäss der
+Londoner Zeitung ‹Times› zur Rechtfertigung: «Ich bin bereit, vor meinen Schöpfer zu treten und mich für
+
+
+-----
+
+all diejenigen zu verantworten, die als Ergebnis meiner Entscheidungen gestorben sind.» Doch gäbe es
+tatsächlich einen Schöpfer-Gott, dann würde dieses Bush nachschleichende Würstchen Blair wohl ganz
+verdammt schwarz aussehen, wie auch sein grössenwahnsinniger und verantwortungsloser Herr und
+Meister George W. Bush, seines Zeichens USA-Präsident, und seit Blairs Machenschaften und Zusammenschluss mit dem USA-Dumm-Präsidenten wohl auch noch Gouverneur des soundsovielten US-amerikanischen Bundesstaates Grossbritannien.
+Da es nun aber keinen Gott-Schöpfer oder Schöpfer-Gott gibt, der zum Jüngsten Gerichtstag aufrufen und
+Rechenschaft fordern könnte – sondern nur eine neutrale universelle Schöpfung, das Universal-Bewusstsein –, so werden sich weder das Bush-hörige Grossmaul Tony Blair noch der Gott-Heuchler George W.
+Bush jemals dafür verantworten müssen. Bush und Blair wissen wohl sehr genau, dass ihre Flucht zu ihrem
+imaginären Gott-Schöpfer nur eine wohldurchdachte sektiererische Übertreibung ist, um ihre Gläubigen
+bei der Stange zu halten. Ihre mörderischen Kriegsmachenschaften aber bleiben ungesühnt – denn Sieger,
+auch wenn es sich um zweifelhafte, mörderische, terroristische und kriegsverbrecherische handelt, werden
+seit alters her als Helden gelobt und in den Himmel gehoben, anstatt dass sie zur Rechenschaft gezogen
+und bestraft werden, was auch für ihre Mitläufer, Befürworter, Befehlshaber und Befehlsausführenden der
+Fall sein müsste. Aber derartig verbrecherische Elemente werden auf der Erde durch kein Tribunal zur
+Rechenschaft gezogen. Und tatsächlich, so wird es sein, dass sich weder Bush noch Blair jemals vor
+irdischem oder vor einem ‹göttlichen› Gericht für ihren völkerrechtswidrigen und menschenverbrecherischen Krieg verantworten müssen – auch nicht vor dem UNO-Tribunal. Einerseits wird dieses von der
+USA nicht für sich selbst, sondern nur für andere Staaten anerkannt, und andererseits nimmt – allein schon
+aus genanntem Grund – das UNO-Tribunal eine Position der Lächerlichkeit ein. Und da also von Rechts
+und Gesetzes wegen nichts gegen Bush, Blair und ihre Kohorten unternommen wird, und weil die USA
+mit ihren Truppen nicht endlich aus allen Ländern der Erde in ihr eigenes Land zurückverschwinden und
+dort verbleiben sowie ihre Weltherrschaftspläne nicht aufgeben, werden andere und sehr schlimme Dinge
+geschehen. Dafür aber werden sich die islamischen und sonstigen Terror-Organisationen für den Krieg
+im Irak rächen und auch ihrerseits viel unschuldiges Menschenblut vergiessen und unzählige Morde begehen, wie bereits der Terrorakt in Riad, Saudi Arabien, und die zwei Terroranschläge in Casablanca,
+Marokko, bewiesen haben, durch die bereits viele unschuldige Menschenleben zu beklagen sind. Und
+solche Akte rufen wiederum die verbrecherischen Staatsmächtigen auf die Palette, die sich ihrerseits in
+ihrem Grössenwahn, Sektierismus und in ihrer Selbstherrlichkeit von Gott berufen und aufgefordert fühlen,
+ebenfalls Mord, Zerstörung und Terror durch ihre regulären Armeen zu verbreiten. So ergibt zwangsläufig
+in unaufhaltsamer Folge das eine das andere, weil Gewalt unweigerlich wieder Gewalt erzeugt. Und so
+geht es weiter, bis eines Tages alles zerstört und vernichtet ist und der Mensch sich durch dieses mörderische und verbrecherische Tun selbst ausrottet – wenn dies nicht schon allein durch das unaufhaltsame
+Heranzüchten der Überbevölkerung geschieht.
+Es ist wohl kaum anzunehmen, dass George W. Bush und Blair an ihr dummes Geschwätz ihres religiösen
+Unsinns glauben, den sie verzapfen. Alles ist wohl ebenso nur eine sektiererische Mache, um das dumme,
+gläubige Volk einzulullen und auf ihre Seite zu bringen, wie das auch beim absolut ungläubigen Mordbuben Saddam Husain der Fall war, was er mir, Billy, in den Sechzigerjahren selbst eingestand. Bezüglich
+Dumm-Bush: Der Typ hielt ja auch eine schleimige Rede an die Nation, die derart verlogen war, dass die
+Firstbalken in den Häusern krachten, log er doch daher, dass er, George Walker Bush, im Auftrage Gottes
+‹das Böse› im Irak zerstören und als Hüter der Erde die Welt besser machen müsse. Er rief auch lauthals
+aus: «Die Freiheit, die wir schätzen, ist nicht Amerikas Geschenk an die Welt, sondern Gottes Geschenk an
+die Menschheit.» Aber allein schon dadurch, dass der miese Kerl von Amerika und nicht von US-Amerika
+spricht, zeigt auf, wessen ‹Geistes› Kind er ist, denn Amerika ist nicht die Vereinigten Staaten von Amerika,
+sondern Amerika ist der gesamte Kontinent Nord-, Mittel- und Südamerika, wovon die USA nur ein Teil
+sind. Offensichtlich aber betrachten Bush und Kohorten sowie viele unrechtschaffene US-Amerikaner bereits den ganzen Kontinent als ihr Staatsgebiet, was aber ganz dem US-Amerikagebaren in bezug der
+
+
+-----
+
+Weltherrschaftspläne entspricht. Doch was brachte die Bush-Rede an Intelligentem? Nicht sehr viel, wenn
+man folgenden Auszug betrachtet, der am 31. Januar 2003 im Tages-Anzeiger veröffentlicht wurde:
+
+Nun, wie es auch sei, ob es stimmt oder nicht; es ging das Gerücht, dass Bush seine dämliche und verlogene Rede auch an die erhofften US-Bürger seiner US-Amerika vorgelagerten Insel und des Möchtegernstaates Britannien halten und das Ganze mit dem Schlusswort «God bless you!» beenden wollte. Was
+er dann jedoch für die britischen Bürger vom Stapel liess, ging dahin, dass er letztlich nur ein billiges
+«Thank you» hervorbrachte – angeblich, weil seine Berater ihn mit all ihrer Überzeugungskraft davon ab
+
+-----
+
+halten konnten, zum Schluss nochmals den lieben Gott ins Spiel zu bringen, womit er wohl sich selbst
+meinte.
+Nun, ob Krieg oder eigentlicher Terror – beides ist letztendlich das gleiche –, mit der Religion und dem
+lieben Gott im Rücken lässt sich alles Morden und Zerstören leichter bewerkstelligen. Wird nämlich im
+Namen der Religion zerstört, gestohlen, geplündert, vernichtet, gefoltert, massakriert, getötet und gemordet, dann lässt sich das sehr viel leichter und gewissenloser bewerkstelligen als im Namen von USAmerika-Oil oder British-Oil usw. Allgemein ist auf der Welt und eben beim Gros der Erdenmenschen der
+Irrglaube und Wahnsinn verbreitet, dass es sich sehr viel leichter sterbe, wenn für die Religion und Gott
+sowie für die Heiligen gekämpft, das Blut vergossen, Schmerzen ertragen und der Tod in Kauf genommen
+werde. Und wenn dabei noch Hass und Rache sowie grenzenloser Fanatismus mitspielen, dann ist der
+Ungerechtigkeit, dem Unheil und Schwachsinn nichts mehr entgegenzusetzen. In Gottes Hand berufen,
+lässt sich bedenkenlos und gnadenlos töten, morden, stehlen, foltern und plündern, vergewaltigen und
+uferlos Macht ausüben. Doch auch mit Gott ist jeder ermordete Mensch letztendlich mausetot, brutal, unmenschlich und böse ins Jenseits befördert. Doch was ist mit all den Mördern, die im Auftrag und Namen
+ihres mörderisch-machtgierigen Staats- oder Terrorchefs, Befehlshabers oder Gottes unzählige Menschen
+foltern und abschlachten? Sie reiben sich hinterher die Hände, brillieren mit ihren mörderischen Taten,
+ihren Diebstählen, Plünderungen und Vergewaltigungen und können mit einem völlig unbelasteten Gewissen ruhig und in Frieden weiterleben und einen guten Schlaf ohne Alpträume haben. Und wenn Unbedarfte den ganzen sektiererischen Schmus des US-Präsidenten Bush und des britischen Premiers Blair
+und deren Lügen glauben, dass Gott der Herr Krieg befehle und dass diese beiden Verantwortlichen und
+ihre Kohorten bereit seien, vor einen ‹göttlichen Richter› zu treten, um sich der Rechenschaft zu stellen –
+egal, welcher Idiot und Schwachsinnige dieser ‹göttliche Richter› auch immer sein soll –, dann sind diese
+wohl nicht mehr ganz bei Trost oder noch in einem Stadium, in dem sie mit den Primaten auf den Bäumen
+von Ast zu Ast hangelten.
+Beide, Bush wie Blair, brillieren gerne und stellen sich ins strahlende Licht, und zwar derart sektiererische
+Reden schwingend, dass selbst dem ungläubigen Papst die Tränen kommen und über die Wangen kollern
+müssten. Der US-Amerika-Imperator George W. Bush, wie aber auch sein Imperiums-Statthalter Tony Blair
+in Britannien, hocken wie weiland Dschingis Khan auf einem Kampfross und dirigieren ihre dummen
+Soldaten in Krieg, Terror, Tod und Verderben. Und ist die Schlacht geschlagen, sind viele Menschen ermordet und alles zerstört, dann hocken sie an der Spitze ihrer Streitmacht und werden von den Dummen
+ihres Volkes bejubelt. Und dies, obwohl z.B. Bush ein elender Säufer war und den Wehrdienst verweigerte, während andere in Vietnam den Kopf für ihn hinhalten mussten. Doch auch bei Bush und Blair ist
+es wie seit alters her: Die grössten Nieten, Nichtsnutze und Versager haben die grösste Schnauze und erheben ihre Stimmen derart mächtig über die Menschen, wenn sie an die Macht gelangen, dass sie damit
+all ihre Feigheit, ihr Nichtskönnen und ihre gesamte Unfähigkeit in allen Dingen zu übertönen vermögen.
+Doch dieserart können sie nur tun bei den Unbedarften, die ihnen wie Exkrementkugeln am Hintern
+hängen und von deren Gestank betört werden, wodurch sie nicht erkennen, dass sie Kreaturen anhängen,
+die Zeit ihres Lebens nichts anderes waren als Versager.
+Tony Blair liess als Marionette des sektiererischen Fieslings Bush seine ihm hörigen Soldaten im Irak
+morden, zerstören und Museen ausräubern. Und Bush selbst, der als bekehrter Alkoholiker und Wehrdienstverweigerer bigott vor einem imaginären Gott niederkniet und schleimig seine eigensüchtigen
+Gebete verrichtet – wenn nicht alles nur Schauspiel, leeres Gehabe und Maske ist, wie bei weiland
+Saddam Husain und Blair, um vor seinem ihn anhimmelnden dumm-gläubigen Volk zu scheinen –, badete
+lüstern in einem wahren Blutrausch. Doch Bush und Blair waren nicht die einzigen und werden auch in
+Zukunft nicht die einzigen bleiben, denn auch Ariel Sharon und seine Kohorten in Israel sowie Jassir Arafat
+in Palästina waren und sind um kein Haar besser. Und alle werden weiterhin Menschenblut vergiessen
+lassen, wie sie als Mächtige selbst Menschenblut vergossen haben; George W. Bush als Gouverneur und
+für Todesstrafe-Morde verantwortlicher Todestrafe-Befürworter, Ariel Sharon als Militärboss und Jassir
+
+
+-----
+
+Arafat als Boss von Terroristen und sonstigen Mördern in Form von Selbstmord-Attentätern. Denn wer
+Befehle zum Töten von Menschen gibt, ist gleichermassen ein Mörder wie jene, welche die Befehle und
+Morde ausführen. Dies ganz gleich, ob die Götter der verschiedenen Religionen und Sekten ins Spiel gebracht werden und ob ein angeblicher Auftrag eines Gottes angeführt wird. Wer solches behauptet, führt
+die Menschen irre und ist der Lüge verfallen, und zwar ganz gleich, ob es sich um Christen, Moslems,
+Hindus, Juden, Buddhisten oder um irgendwelche Sektierer handelt. Nichtsdestotrotz wird jedoch von allen
+Religionen und Sekten skrupellos, fanatisch und gewissenlos gemordet; und so bringen alle menschlich
+Ausgearteten und Verbrecherischen der Christen, Juden und Islamisten sowie Hindus alle um, die ihnen
+irgendwie nicht in den Kram passen. Natürlich sind es dabei in der Regel militärische oder paramilitärische
+sowie fanatische terroristische Kräfte und Selbstmord-Kommandos – als ob Krieg nicht auch Terror sei –,
+die brandschatzend, zerstörend und mordend durch die Lande ziehen. Dies, während die Staatsoberhaupt-Halunken in Sicherheit hocken, sich ihre schmutzigen Händchen reiben und darüber feixen, wie
+dumm und dämlich all ihre Befürworter, ihre ihnen Hörigen und jene sind, welche ihren dämlichen
+Schädel hinhalten und wegschiessen lassen.
+Noch ist nicht genug gesagt, denn in Rom ist auch der Heilige Stuhl, und auf dem hockt – oh Schande –
+der scheinheilige und längst abgesetzt gehörte, senile Papst, der in seiner unwürdigen Gebrechlichkeit mit
+dummen und primitiven Sprüchen um sich klopft, zerrütteten Eheleuten das Scheiden verbietet, pädophile
+Priester schützt, die in aller Welt Kinder und Jugendliche sexuell missbrauchen, und der ein Zusammenarbeiten der Protestanten und Katholiken in glaubensmässigen Dingen verbietet. Und dies als angeblicher
+Stellvertreter eines imaginären Gottes, wie er behauptet. Und wer nicht für ihn ist, der ist gegen ihn, genau
+wie bei Bush und Blair und allen sonstig fehlbaren Staatsmächtigen. – Wahrlich ein prachtvoller Gott, der
+solches zulässt, wenn man auch noch bedenkt, dass Priester Waffen für den Krieg segnen und von ihrem
+Gott flehentlich den Sieg erbitten. Und man bedenke auch, dass frühere Päpste selbst Kriege angeordnet
+und Menschen haben umbringen lassen – einmal ganz abgesehen von der Inquisition.
+Ob fehlbare Staatsgewaltige oder der Papst und alle ihre schleichenden Kohorten; wie schön wäre es,
+wenn alle diese Bigotten nicht an der Macht wären, sondern von ihrem angerufenen Gott zur Rechenschaft
+gezogen und aus dem Angesicht der Gesellschaft vertilgt und in lebenszeitige Verbannung geschickt
+würden. Wäre dem so, dann sässe die irdische Menschheit nicht in einer stinkenden politischen, militärischen, sektiererischen, religiösen und terroristischen Kloake. Müssten nämlich die verbrecherischen Staatsund Religionsverantwortlichen tatsächlich zur Rechenschaftsablegung vor einen Schöpfer treten, dann
+würden sie – religionsmässig gesehen – in die Hölle verbannt, und zwar sowohl der Papst mit dem Gros
+seines Anhangs, wie auch all die Terroristen und jene Staatsgewaltigen, die verbrecherisch, kriminell,
+menschenverachtend und mörderisch sind.
+Da ist nun aber auch noch die UNO – eine Weltorganisation, die für Frieden sorgen und diesen erhalten
+sollte. Eine Organisation, der auch US-Amerika angehört, das sich aber einen Dreck um die UNOBeschlüsse schert und allein darüber entscheidet, irgendwo – wie eben im Irak – einen mörderischen und
+zerstörerischen Krieg vom Zaun zu brechen. UNO, eine Organisation, die für Frieden sorgen und diesen
+erhalten sollte, jedoch darüber bestimmt, ob Krieg oder Frieden sein wird, wenn durch irgendwelche Umstände darüber abgestimmt wird. Eine solche Organisation aber, die darüber bestimmen kann, dass
+irgendwo ein Krieg geführt werden soll, ist fehl am Platze und dürfte nicht existieren.
+Wahrheitlich ist mit der UNO alles verworren, wie auch mit der Rolle der USA in diesem weltumspannenden Klub. Und kommt man dabei wieder auf den Krieg im Irak zu sprechen, dann muss man feststellen,
+dass selbst äusserst konservative Verteidiger der USA schon längst einräumen, dass es zwischen den Kriegszielen US-Amerikas und dem Irak sowie dem Auftrag der UNO-Inspekteure keinerlei Verbindung gibt.
+Schon George Herbert Walker Bush, der 41. Präsident der USA und Dümmling-Sohn George Walker
+Baby-Bushs Daddy war erpicht und darauf aus, den Ölweltmarkt in Gang zu bringen, wozu Saddam
+Husain gerade gut genug war, um dessen Volk mörderisch zu bekriegen und mittels einer multinationalen
+Kriegstruppe viele unschuldige Menschen – Frauen, Kinder und Männer – umbringen zu lassen und
+
+
+-----
+
+grosse Zerstörungen anzurichten. Und da ihm 1991 der grosse Coup nicht gelang und US-Amerika die
+irakischen Oilquellen nicht für sich einheimsen konnte, erfand Bush junior die Mär dessen, dass Saddam
+Husain resp. Irak eine Gefahr für US-Amerika und gar für die ganze Welt sei, über Massenvernichtungswaffen verfüge und entwaffnet werden müsse, und zwar auf Teufel komm raus. Nebenbei, als im Irak
+keine Massenvernichtungswaffen gefunden wurden, weil tatsächlich keine existierten – ausser solche, die
+die US-Truppen selbst ins Land brachten –, spielten sich Bush junior und seine Armee im Irak als Befreier
+von Saddam Husains Diktatur auf, was aber selbst den durch Saddam jahrzehntelang drangsalierten
+Irakis auffiel, dass alles nur ein grossangelegter US-amerikanischer Schwindel war, weil die Wirklichkeit
+auf Oil und Annektierung ausgerichtet war und ist. Tatsächlich war die Absicht der USA schon zu Daddy
+Bushs Zeiten bekannt, Saddam Husain zu vertreiben und eine militärische Besetzung des Iraks durchzuführen, um eine Neuordnung der Region unter US-amerikanischem Kommando zu bewerkstelligen und
+sich der enormen Oilreserven habhaft zu machen. Bereits 1998 bestand dazu ein USA-Konzept und eine
+entsprechende Analyse der Situation im Irak (nachzulesen unter dem Titel «Vor dem dritten Golfkrieg
+nachlesbar», von Siegwart-Horst Günther und Burchard Brentjes, editioniert in Ost-Berlin; als erweiterte
+Ausgabe 2002).
+Gleichermassen klar war aber auch das Verdikt der UNO, mit dem der Irak für die kuwaitische Okkupation verurteilt wurde. Als dann die Iraki aus dem besetzten Kuwait ausgetrieben waren, wurde als Ergebnis ein Embargo festgelegt sowie Exportbeschränkungen, nebst dem, dass Waffeninspektoren eingesetzt
+wurden. Dass dabei mit dem UNO-Embargo und den Exportbeschränkungen die ganze irakische Bevölkerung in Not und Elend geraten ist, das kümmerte US-Amerika und die UNO überhaupt nicht. Dies
+ebensowenig, wie dass Hundertausende von Menschen – hauptsächlich Islam-Angehörige der Schiiten –
+durch irakische Schergen auf Befehl Saddam Husains an Händen und Füssen gebunden und in mit
+Bulldozern ausgehobenen Gräben lebendig verscharrt, durch tödliche Gase oder sonstwie umgebracht
+wurden, weil sich viele des Volkes auf Antreiben der USA hin rebellisch gegen Saddam stellten, doch dann
+von den US-Amerikanern jämmerlich und schändlich im Stich gelassen wurden. Und dass auch beim Einmarsch der Iraki in Kuwait alles mit unrechten Dingen zuging und damit Saddam Husain in eine von den
+USA gestellte Falle tappte, das ist wohl der gesamten Weltöffentlichkeit verborgen geblieben. Zwar bleibt
+auch ein gestürzter Eroberer ein zu verurteilender Eroberer, doch sollten auch die Umstände gesehen und
+offenbart werden, wie, auf welche geheime amerikanische Machenschaften hin und warum der IrakDiktator Saddam Husain in Kuwait eingefallen ist. Man denke einmal darüber nach, dass auch Kuwait
+ein Oilland ist, zwar nur ein kleines – doch immerhin. Wie naheliegend ist es da, dass sich US-Amerika
+in diesem Land etablieren wollte – ganz egal wie und auf welche gemeine Art und Weise. Und aus diesem
+Grund schuf US-Amerika eine neue Religion: Die des Krieges und des Terrors, wie diese allen unrechtschaffenen, kriminellen, verbrecherischen, selbstherrlichen, verantwortungslosen und mörderischen Staatsmächtigen und sonstigen Lumpen von volksausbeutenden, volksbetrügenden und volksmordenden Herrschern seit alters her eigen war und neuerdings wieder vermehrt und ausgearteter ‹modern› geworden
+ist.
+Schon seit dem ersten Golf-Krieg anno 1991, als die multinationalen Kampftruppen – natürlich angeführt
+von den weltherrschaftssüchtigen US-Amis – unzählige Irakis ermordeten und vieles in Schutt und Asche
+legten, wurde durch die Waffeninspektoren bereits nach der ersten Kontrolle bekannt, dass der Irak und
+damit natürlich Saddam Husain ebensowenig in der Lage war, den Weltfrieden oder die Anliegerstaaten
+des Iraks zu bedrohen, wie das auch jetzt, beim Zweiten Irak-Krieg, nicht der Fall war. Tatsächlich führte
+das Grossmaul Saddam Husain nur eine grosse Schnauze mit seinen Drohungen, denn wahrheitlich
+steckte dahinter nur eine Strategie der Abschreckung, die aber keine Werte in sich barg. Und genau das
+wusste auch der rachsüchtige und herrschsüchtige Lümmel George W. Bush, weshalb er darin auch eine
+gute Chance sah, ohne grosse Verluste den Irak anzugreifen, um ihn zu annektieren und eine neue Machtposition im Mittleren Osten zu haben, nebst dem, sich der Erdpetroleum-Quellen habhaft zu machen. Und
+die Araberstaaten rund um den Irak taten das Restliche, damit sich die USA in ihren Ländern installieren
+
+
+-----
+
+und breitmachen konnten, indem sie die ‹Freundschaft› der US-Amis suchten und sie ins Land liessen, wo
+sich diese dann wie seit jeher üblich festsetzten. Tatsächlich haben sich diese arabischen Staaten mit
+diesem ‹Freundschaftsdienst› mit der USA einen Bärendienst erwiesen, denn wo sich die US-Amis einmal
+einnisten, sind sie nur noch schwerlich wieder loszuwerden, wie sich seit alters her bewiesen hat.
+Betrachtet man die letzten gelaufenen Waffeninspektionen im Irak und den verbrecherischen Krieg der
+USA und der US-Kolonie Britannien, dann wird verdammt klar und deutlich, welches Unrecht dem Irak
+und dessen Volk durch die kriegerische Machtgier US-Amerikas angetan wurde. Ganz eindeutig hat sich
+nämlich erwiesen, dass Saddam Husain mitsamt seiner ganzen Armee und deren billigen Waffen weder
+die Welt bedrohen, geschweige denn in der Region militärisch agieren konnte. Nichtsdestotrotz wurde
+von den USA lügnerisch und betrügerisch die Fiktion aufrechterhalten, dass «im Interesse der Sicherheit
+US-Amerikas, des Weltfriedens und der internationalen Sicherheit» die militärische Abrüstung des Iraks mit
+Gewalt und Krieg erzwungen werden müsse. Und ins gleiche Horn stiessen alle jene Idioten Britanniens,
+Spaniens und verschiedener anderer Länder, die den USA hörig waren und vor brüllender Angst ihre
+Hosen voll hatten. Und die Nebenbei-Behauptung der USA, natürlich im Schlepptau die Briten, dass sie
+speziell das irakische Volk von ihrem mörderischen Diktator befreien wollten, war auch nicht mehr als eine
+Lüge und ein Betrug, denn wahrheitlich hatte die USA viel weitreichendere Ziele, die durch diese Kriegsbegründung in keiner Weise gedeckt waren, nämlich die Annektierung des Iraks, die Habhaftwerdung
+der Erdoil-Quellen und die Sich-Ausbreitung im arabischen Raum. Da fragt sich, ob die den USA handreichenden arabischen Staaten und deren Mächtige tatsächlich so dumm und dämlich sind, dass sie nicht
+sehen, was US-Amerika eigentlich will, oder ob sie sich dadurch in die Finger schneiden, weil sie sich von
+den USA Profit und Sicherheit erhoffen, was sowieso einer höllischen Illusion entspricht, weil Amerika den
+Arabern weder das eine noch das andere bietet, sondern nur auf Herrschaft und eigenen Profit aus ist.
+Wie US-Amerika seine Lügen verbreitete, so bliesen auch die europäischen Mächte und die ‹Friedensorganisation› UNO ins gleiche Horn. Auch wenn sich verschiedene erst einmal gegen einen Krieg aussprachen, so waren sie doch bereit, notfalls kriegerische Hilfsdienste zu leisten und umfassendere Vorsorgungen zu treffen. Der ideologische Hintergrund dafür stand schon bereit, nämlich der des ‹bedingten
+Pazifismus›, der bedingt fordert, dass jeder Krieg als Mittel der Auseinandersetzung abzulehnen und ein
+Verzicht auf Rüstung und militärische Ausbildung durchzusetzen sei. Das Ganze ist aber nur bedingt, weil
+eben doch zur Waffe gegriffen werden soll, wenn Schwachsinnige und Idioten meinen, dass das notwendig
+sei. So ist der ‹bedingte Pazifismus› nicht mehr als eine Farce, denn beim ersten besten Zwischenfall wird
+bedenkenlos und verantwortungslos zu den Waffen gegriffen, um zu töten, zu morden und zu zerstören.
+Und was heisst es dann von den verantwortlichen Unverantwortlichen und ihren Stiefelleckern? Nichts
+anders als: «Da kann und darf man doch nicht einfach tatenlos zusehen»; oder «Es blieb einfach keine
+andere Wahl»; oder «Da muss man doch eingreifen»; oder «Man muss mitmachen beim Krieg, sonst
+kommt es noch schlimmer» usw.
+Idiotische und verantwortungslose Ausflüchte Verantwortungsloser, denen ein Menschenleben keinen
+Pfifferling wert ist. Und jene, welche sich gegen den Krieg sträuben – wie das Deutschland, Russland und
+Frankreich usw. taten –, kehren ihre Handschuhe dann wieder um, wenn die ‹siegreichen› Mächte ihr Zerstörungswerk und ihr Mordmassaker durchgeführt haben. Dann nämlich schliessen sich die ‹Standhaften›,
+die Kriegsverweigerer und Friedensbrüller wieder den ‹Siegermächten› an, machen Bravkind und spielen
+Gutmensch.
+Nun, die US-Amis in ihrer Selbstherrlichkeit und Gottgesandtheit erklärten vor dem mörderischen und zerstörerischen Einmarsch in den Irak, dass sie als UNO-Mitglied für eine Kriegsführung im Irak keine Rechtfertigung durch die UNO benötigen, während sich andere an einen Beschluss des UNO-Sicherheitsrates
+klammerten. Will man dabei aber die Lage klären, dann muss man in die entsprechenden Dokumente Einsicht nehmen. Da kommt erst einmal die Charta der UNO, die im Kapitel VII ausführlich die Massnahmen
+festlegt, die bei der Bedrohung oder beim Bruch des Friedens und bei Angriffshandlungen zu ergreifen
+sind. Daran hätte sich auch US-Amerika halten müssen, denn mit dem Angriff auf Irak wurde durch die
+
+
+-----
+
+USA eindeutig der Frieden gebrochen, wofür Bushli und Kohorten und alle mitheulenden US-Amis vor ein
+internationales Tribunal und mit saftigen Freiheitsstrafen abgeurteilt gehören.
+Nun, alle im Kapitel VII aufgeführten Resolutionen sind immer im Kontext dieses Kapitels der Charta verankert. Artikel 41 befasst sich mit Blockademassnahmen, wie sie nach dem ersten Golf-Krieg durch die
+UNO gegen den Irak auch ausgesprochen wurden. Artikel 42 behandelt all das, was wider alle Friedensschaffung und Friedenserhaltung spricht; nämlich: Wenn der UNO-Sicherheitsrat der Auffassung ist, die
+im Artikel 41 ‹festgelegten› Massnahmen seien unzulänglich, dann kann er zur «Wahrung oder Wiederherstellung des Weltfriedens und der internationalen Sicherheit» Massnahmen mit Luft-, See- und Landstreitkräften anordnen und durchführen lassen. Darin eingeschlossen sind auch Blockaden, Demonstrationen oder sonstige Einsätze der Land-, Luft- und Seestreitkräfte der Organisation der Vereinten
+Nationen. In einem solchen Fall – man höre und staune über die ‹Friedensliebe›, ‹Friedensschaffung› und
+‹Friedenserhaltung› dieser verkappten Weltmacht und Lächerlichkeitsorganisation – agiert die UNO dann
+selbst als Kriegsherr, wobei sie laut UNO-Charta in ihre eigenen Massnahmen auch militärische Aktionen
+der Mitgliedstaaten einbeziehen kann. Und dass dabei auch die ‹neutrale› Schweiz diesem äusserst
+zweifelhaften Verein beigetreten ist, der unneutral über Krieg und Frieden sowie über Leben und Tod bestimmt – wie die US-Amis mit Krieg, Terror und Todesstrafe –, schlägt wohl dem Fass den Boden aus und
+zeigt auf, wessen ‹Geistes› Kind gewisse Schweizer sind, die dafür pro und hurra schrien, während die
+wirklichen Schweizer dafür ihr Herzblut lassen mussten. Allerdings ist dabei zu beachten, dass die Vereinten Nationen wenigstens nicht solche Aktionen an die Mitgliedstaaten dirigieren können, denn die
+Charta-Artikel regeln, wie Staaten durch Sonderabkommen mit dem UNO-Sicherheitsrat diesem ihre
+Streitkräfte zur Verfügung stellen, die dann unter dem Kommando eines speziellen Generalstabsausschusses stehen. In bezug der Gewaltanwendung regelt dann der Artikel 42 das Ganze wie folgt: «Die
+Pläne für die Anwendung von Waffengewalt werden vom Sicherheitsrat mit Unterstützung des Generalstabsausschusses aufgestellt.»
+Wahrheitlich war der Sicherheitsrat seit seinem Bestehen noch niemals in der Lage, einen Generalstabsausschuss zu formieren resp. zu bilden und folgedessen auch nicht in der Lage, Militäraktionen in eigener
+Regie durchzuführen. Das war auch im Irak-Krieg des Dümmlings-Präsidenten Bush junior so, denn die
+US-Amis kümmerten sich als UNO-Mitglied einen Dreck um die UNO-Charta und alle ihre Artikel und
+legten folgedessen selbstherrlich eigenmächtig Irak in Schutt und Asche und verbreiteten böse Schrecken,
+Tode, Verstümmelungen, Not, Elend, Entsetzen, Angst und ungeheure Zerstörungen.
+Die vielbesprochene Resolution 1441 der UNO vom 8. November 2002 beschloss also keine Militäraktion
+im Irak, sondern ein ‹verstärktes Regime der Waffeninspektoren›. Damit wurde dem Irak und natürlich
+speziell Saddam Husain eine letzte Chance eingeräumt, die er dazu benutzen sollte, seinen Abrüstungsverpflichtungen nachzukommen; was er natürlich nicht tat, weil es nichts abzurüsten galt, was den USAmis sehr wohl bekannt war. Die genannte Resolution erinnerte auch daran, dass der UNO-Sicherheitsrat wiederholt Saddam Husain gewarnt hatte, wenn er den von den Vereinten Nationen geforderten
+Abrüstungsverpflichtungen nicht nachkomme. Dass aber alles verlogenerweise in bezug von angeblichen
+Massenvernichtungswaffen und einer Bedrohung der USA und der Sicherheit der Welt nur darin fusste,
+dass US-Amerika falsche Geheimdienstberichte und sonstige Lügen verfasste und der UNO sowie der
+ganzen Welt vortrug, um profitgierig und annektierungsmässig in den Irak einfallen zu können, darüber
+wurde wohlweislich nie ein Wort verloren – oder sollte es so sein, dass die UNO-Fritzen derart blöd sind,
+dass sie US-Amerikas Lügen und Betrug nicht erkannt haben? Wenn ja, dann kann die Welt von der UNO
+und von den USA ja noch allerhand erwarten.
+Nun, die Warnung an Saddam Husain – seines Zeichens unzweifelhaft erbarmungsloser Diktator und
+Despot sowie viel-hunderttausendfacher Massenmörder, der wirklich vertrieben werden musste, jedoch
+nicht durch den Krieg der US-Amis und der mitschleichenden Briten – war ohne Zweifel eine ernste
+Warnung, jedoch unter falschen und verlogenen Behauptungen und Geheimdienstberichten der weltmachtsüchtigen USA. Diese Warnung war aber in keiner Weise eine durch den US-Sicherheitsrat be
+
+-----
+
+stimmte militärische Aktion, wie aber auch nicht eine Generalvollmacht an die USA und deren BushKolonie Britannien, den Irak kriegerisch überfallen und annektieren zu dürfen.
+Da sind nun aber auch noch jene, welche auf die Präambel der Resolution 1441 pochen, und zwar auf
+eine etwa folgendermassen lautende Redewendung: «Daran erinnernd, dass die UNO-Mitgliedstaaten
+durch die Resolution 678 (1990) des Sicherheitsrates ermächtigt wurden, alle notwendigen Mittel einzusetzen, um des Sicherheitsrates Resolution 660 vom 2. August 1990 und sämtlichen nach dieser Resolution
+verabschiedeten einschlägigen Resolutionen Geltung zu verschaffen sowie sie durchzuführen, um den
+Weltfrieden und die internationale Sicherheit in dem Gebiet wiederherzustellen …» usw. Dazu muss klar
+und deutlich gesagt werden, dass diese, sagen wir ‹Ermächtigung›, in keiner Weise gewährt wurde, um
+Abrüstungsverpflichtungen durchzusetzen. Wahrheitlich diente das Ganze nur dazu, die den US-Amis in
+Kuwait in die Falle gegangenen Iraker wieder zu vertreiben – wobei die UNO die wahren Hintergründe
+der US-Falle wohl nicht kannte. Also dienten die UNO-Massnahmen zur Befreiung Kuwaits dafür, die irakischen Eroberer wieder zu vertreiben. Also ist das Ganze auch nicht auf den Charta-Artikel 42 zu beziehen, sondern auf den Artikel 51, der besagt, dass, wenn der Fall eines bewaffneten Angriffs gegeben
+ist, das «naturgegebene Recht zur individuellen oder kollektiven Selbstverteidigung» gegeben ist. Dabei
+darf aber auch in keiner Weise übersehen werden, dass gemäss UNO-Charta selbst diese Selbstverteidigungsmassnahmen nur dann Rechtens sind, «bis der UNO-Sicherheitsrat die zur Wahrung des Weltfriedens und der internationalen Sicherheit erforderlichen Massnahmen» erarbeitet und getroffen hat.
+Letztendlich muss noch festgehalten werden, dass für militärische Aktionen von UNO-Mitgliedstaaten durch
+den Sicherheitsrat keine Erteilung einer Ermächtigung vorgesehen ist. Selbst wenn man nach der Okkupation Kuwaits das Verhalten des Sicherheitsrates realistisch unter dem Gesichtspunkt dessen betrachtet,
+dass er infolge der internationalen Umstände keinerlei Fähigkeit sich eigen machen kann, um einen
+Generalstabsausschuss ins Leben zu rufen und gemäss der UNO-Charta selbst Militäraktionen durchzuführen, so ist bezüglich dieser Lächerlichkeitsorganisation doch zu sagen, dass sie so oder so über Krieg
+und Frieden auf der Welt zu bestimmen hat und also derartige Macht ausüben kann, dass Menschenleben
+gemordet und menschliche Errungenschaften zerstört werden, wenn die UNO die Order dazu erlässt. Und
+eine solche Organisation ist nicht nur von grossem Übel und auf der Erde unangebracht, sondern sie hat
+keinerlei Existenzberechtigung. Krieg, Terror sowie Mord, Totschlag und Zerstörung bleiben sich immer das
+gleiche, und zwar auch dann, wenn alles diesbezügliche durch die UNO beschlossen und diktiert wird.
+Betrachtet man aber nun abschliessend nochmals den US-amerikanischen Militärschlag gegen den Irak
+und dessen durch Saddam Husain unterdrückte und in vielen Fälle drangsalierte, gefolterte und gemordete Bevölkerung, dann muss man wenigstens diesbezüglich der UNO zugutehalten, dass sie an die
+USA und an Britannien und alle anderen verbrecherischen Mitzieher keinerlei Ermächtigung und kein
+Mandat des UNO-Sicherheitsrates zu einer kriegsmässigen Erzwingung einer Irak-Abrüstung erteilt hat.
+Wenigstens hierin hat diese lächerliche Organisation gut gehandelt – dafür aber die USA und Britannien
+sowie deren Mitschleicher tatenlos handeln und einen Krieg über Irak ausbrechen liessen. Ob da Feigheit
+oder Machtlosigkeit im Spiel war, das bleibe dahingestellt. Jedenfalls aber sollte es für alle Staaten, rein
+völkerrechtlich gesehen, kein Problem darstellen, sich endlich von den USA resp. von deren schuldigen
+Staatsmächtigen und ihren dämlichen Anhängern und Befürworten zu distanzieren. Und alle Staaten der
+Erde sollten bedenken, dass sie im weltherrschaftsheischenden, mörderischen Spiel US-Amerikas die
+nächsten sein können, die von den gierigen und bluttriefenden Klauen der USA angegriffen, annektiert
+und ausgebeutet werden, wie das in Afghanistan und im Fall Irak ebenso Wirklichkeit geworden ist wie
+in diversen anderen Staaten auf der Welt. Das Recht kümmert dabei die USA nicht, denn bekanntlich
+macht sich US-Amerika stets die eigenen Rechte, und zwar stets derart zurechtgebogen, wie sie gerade
+benötigt werden – und Menschenleben, die durch dieses Recht gemordet werden, spielen dabei keinerlei
+Rolle.
+Billy
+
+
+-----
+
+**IMPRESSUM**
+**FIGU Sonder-Bulletin**
+**Druck und Verlag: Wassermannzeit-Verlag, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+**Redaktion: ‹Billy› Eduard Albert Meier, Semjase-Silver-Star-Center, CH-8495 Hinterschmidrüti ZH**
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+**Abonnemente:**
+Erscheint unregelmässig; Preis pro Einzelnummer: CHF 2.– (Zusammen mit einem Abonnement der ‹Stimme der Wassermannzeit› oder der ‹Geisteslehre-Briefe› als Gratis-Beilage.)
+**Postcheck-Konto: FIGU-CH-8495 Schmidrüti, PC 80-13703-3**
+**E-Mail: info@figu.org**
+**Internet: www.figu.org**
+
+
+-----
+

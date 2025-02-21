@@ -1,0 +1,498 @@
+# Innere Ausgeglichenheit
+
+### Auszug aus dem 796. Kontakt
+ vom 20. März 2022
+
+**von**
+
+**‹Billy› Eduard Albert Meier, BEAM**
+
+
+-----
+
+**© FIGU 2022**
+Einige Rechte vorbehalten.
+
+Dieses Werk ist, wo nicht anders angegeben,
+lizenziert unter
+
+www.figu.org/licenses/by-nc-nd/2.5/ch/
+
+**Die nicht-kommerzielle Verwendung ist daher ohne**
+
+**weitere Genehmigung des Urhebers ausdrücklich**
+
+**erlaubt.**
+
+Erschienen im FIGU Wassermannzeit Verlag:
+FIGU, ‹Freie Interessengemeinschaft›, Semjase Silver Star
+Center, Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+
+## Innere Ausgeglichenheit
+
+### Auszug aus dem 796. Kontakt
+ vom 20. März 2022
+
+Billy  … Aber ich will noch etwas sagen, mit dem ich
+gleich loslegen will, nämlich was mir nach deinem letz­
+ten Besuch und Weggehen durch die Gedanken gegan­
+gen ist, die Ausgeglichenheit des Menschen. Diesbezüg­
+lich wird im Fernsehen manchmal darüber etwas gesagt,
+jedoch wie üblich nicht das, was alles wichtig wäre zu
+sagen. Offenbar wissen diese ‹Fachleute› nicht, die diese
+Sendung moderierten, wie wichtig die innere Ausge ­
+glichenheit des Menschen tatsächlich und wahrheitlich
+ist, und dass diese zuständig ist für seine Moral, die er
+an den Tag legt und die meistens nur gespielt ist, jedoch
+nicht dem entspricht, was wirklich ist. Es wurde mit
+keinem Wort gesagt, was hinter dieser Zur-Schau-ge­
+brachten Alltagsmoral des Menschen tatsächlich steckt
+und verborgen ist und wie sehr wichtig die echte Moral
+für den Menschen ist.
+Das Wichtigste im täglichen Leben des Menschen ist für
+ihn die innere Ausgeglichenheit, damit er sich vor sich
+
+
+-----
+
+heit durch Ruhe, Meditation und Singen im grossen und
+ganzen erreicht und der Mensch dadurch zufrieden und
+umgänglich werden kann. Leider wurde aber nicht ge­
+sagt und erklärt, dass die innere Ausgeglichenheit sehr
+viel weiterführt und zuständig ist für des Menschen wah­
+re und effective Moral, die auch die Logik, den Verstand
+und die Vernunft, den Selbsterhaltungstrieb in rechter
+Weise, wie auch die richtige Verhaltensweise des Men­
+schen beinhaltet. Dies alles nämlich beinhaltet Tatsachen
+und Werte, die sehr viel weiterführen als nur zu leeren
+Worten, die niemand hört, weil sie eben leer und hohl
+sind. Tatsache ist jedoch, dass nämlich die innere Aus­
+geglichenheit nicht nur des Menschen Moral bestimmt,
+sondern auch sein effectives und tatsächliches Denken
+in Logik, Verstand und Vernunft, folglich auch seinen
+Lebenswillen, seine Lebensweise und seinen selbster­
+schaffenen Lebenssinn.
+Bei der inneren Ausgeglichenheit geht es erstlich dar­
+um, bewusst und auch klar den Zustand der gesunden
+Selbsterhaltung des eigenen Bewusstseins, des Körpers
+und des Metabolismus aufzubauen, was mit allen den
+Körper gesunderhaltenden Tätigkeiten getan werden
+
+
+-----
+
+und berücksichtigt werden, wie auch eine körperliche
+Tätigkeit irgendwelcher Art, die einige körperliche Be­
+wegung abfordert.
+Leider wird dem Menschen nicht gelehrt – wie das auch
+mit keinem Wort erwähnt wurde bei der Fernsehsen­
+dung, die ich gesehen habe –, dass der Metabolismus
+eine massgebende und sogar sehr wichtige Rolle bei der
+inneren Ausgeglichenheit spielt, weil diese nämlich
+auch den Selbsterhaltungstrieb steuert. Zwar wird das
+Ganze der inneren Balance in sehr grossem Masse auf
+dem Weg einer geruhsamen Meditation dem Bewusst­
+sein und dem Körper vermittelt, jedoch fundiert alles in
+einem selbständigen Denken, das erforderlich ist, dass
+durch dessen Energie und Kraft tatsächlich das notwen­
+dige Aufbauende für das Bewusstsein und den Körper
+sowie für den Metabolismus resp. den Stoffwechsel ge­
+tan wird. Dieser nämlich wandelt alle chemischen Stof­
+fe, so eben die Nahrung, im Körper um, so all die Nah­
+rungsmittel also in Zwischenprodukte und Endprodukte
+umgewandelt werden. Diese biochemischen Vorgänge
+dienen in 1. Linie dem Aufbau und der Gesunderhal­
+tung des materiellen Körpers, jedoch in gleicher Wichtig­
+
+
+-----
+
+wenn ein Hungergefühl aufkommt und daran gelitten
+wird. Damit, was sehr wichtig ist, dienen die Auswirkun­
+gen der reibungslosen Arbeit des Metabolismus der
+inneren Haltung und Stabilität und damit dem Bewusst­
+sein, das wiederum rückwirkend die innere Ausge ­
+glichenheit allein schon dadurch in Ordnung hält, wenn
+der Stoffwechsel gut und richtig funktioniert. Alle die
+chemischen Umwandlungen von Stoffen im Körper be­
+wirken allein schon die innere Stabilität, die wiederum
+das Bewusstsein in seiner Regsamkeit anregt und be­
+stimmt, so also diese biochemischen Vorgänge nicht nur
+dem Körper dienen, sondern auch der inneren Ausge ­
+glichenheit. Um diese aufrechtzuerhalten ist es also
+erforderlich, auch den Metabolismus in Ordnung zu er­
+halten, was leider durchwegs vergessen wird bei Erklä­
+rungen, die sich mit dem inneren Gleichgewicht der
+Stimmung befassen.
+Dass der Stoffwechsel oder eben Metabolismus alle che­
+mischen Umwandlungen von Stoffen im Körper bewerk­
+stelligt, hauptsächlich die Umwandlung von Nahrungs­
+mitteln in Zwischenprodukte, sogenannte Metabolien
+und Endprodukte, das wurde bereits erklärt. Dass je­
+
+
+-----
+
+Körpersubstanz durch den Ballaststoffwechsel und die
+Energiegewinnung für alle energieverbrauchenden Ak­
+tivitäten und damit der Aufrechterhaltung der Körper­
+funktionen und somit des Lebens dienen, das wird nicht
+genannt, wenn angeblich ‹psychologisch fundiert› von
+der Wichtigkeit der inneren Ausgeglichenheit so wich­
+tigtuend gesprochen wird.
+Die innere Ausgeglichenheit wird vom Erdling vor allem
+psychologisch erforscht und sprachmässig behandelt,
+doch sie ist, wie gesagt, auch von grosser Bedeutung im
+Zusammenhang bezüglich des Stoffwechsels. So kann
+und muss die innere Balance also auch in dieser Hin­
+sicht verstanden und gedeutet werden, als Ordnung des
+Ganzen. Lebewesen, wie eben der Mensch, erhöhen in
+sich die innere Ausgeglichenheit und deren Ordnung da­
+durch, indem sie dabei Energie verbrauchen, die durch
+den Metabolismus-Organismus erarbeitet wird. Dazu
+bedarf es der Aufnahme von viel Trinkbarem, wie viel
+Wasser und anderen Nahrungsmitteln, die den Stoff­
+wechsel anregen und beim ganzen Prozess des Lebens
+und der inneren Ausgeglichenheit helfen können. Auch
+kann Grüntee wie auch Kaffee effektiv den Metabolis­
+
+
+-----
+
+ausleben kann.
+Die innere Ausgeglichenheit resp. Ausgewogenheit be­
+deutet innere Harmonie und innere Balance resp. inne­
+res Gleichgewicht. Dabei handelt es sich also um etwas,
+das sich genau im richtigen Verhältnis befindet, also eine
+Ausgeglichenheit, die durchwegs Entspannung für den
+Körper, die Gedanken, das Verhalten und die Moral usw.
+erzeugt und von dringender Notwendigkeit für ein ge­
+sundes Leben ist. Die innere Balance ist also nicht nur
+sinnvoll, sondern sie ist für den Menschen handlungsbe­
+stimmend und das ganzheitlich anzusetzen und zudem
+befriedigend, wie eben auch notwendig dafür, dass das
+Leben richtig gelebt wird und alles Bewusstseinsmässige,
+wie auch das Verhalten und die Moral richtig funktionie­
+ren können. Dass dabei die tief im Charakter eingelager­
+ten Eigenschaften von äusserster Wichtigkeit sind, und
+dass diese durch Logik, Verstand und Vernunft in mensch­
+lich-korrekter Weise aufgebaut werden und in dieser Form
+auch erhalten werden müssen, das ist von dringender
+Notwendigkeit. Werden diese nicht vollwertig im Positi­
+ven erarbeitet und wahrlich als positive Wertigkeit tief
+im Charakter eingelagert, dann wird nur eine scheinba­
+
+
+-----
+
+weniger als ein böser Selbstbetrug, der gewährleistet,
+dass bei passender Gelegenheit durch eine Wirkung von
+aussen – ein Wort, eine Anschuldigung, ein körperlicher
+Angriff, eine Sache oder ein Geschehen usw. – sofort die
+äussere Fassade zusammenbricht und das wahre Wesen
+alles Negativen und Bösen nach aussen aktiv wird, das
+in der Tiefe des Charakters schlummert und nach aussen
+zum Durchbruch kommt.
+Der positive Effekt einer Meditation zur Erarbeitung der
+inneren Ausgeglichenheit basiert auf einem Weg, der
+einerseits das Intellektum des Menschen erfordert, wie
+aber besonders die schöpferische Energie, die vom Men­
+schen in falscher Bezeichnung ‹Geist› genannt wird.
+Diese Energie und das Bewusstsein werden benötigt,
+um eine Meditation durchzuführen, die erforderlich ist,
+um die innere Ausgeglichenheit zu erarbeiten, durch die
+das Bewusstsein und das Verhalten des Menschen ruhiger
+und der Atem tiefer wird. Dass sich der Mensch durch
+die Meditation in Form der Selbstreflektion dann ruhig
+und klar fühlt, das wird durch das vegetative Nerven ­
+system hervorgerufen, das sich auf Erholung und Rege­
+neration umstellt. Dadurch wird der Ruhe-Nerv resp.
+
+
+-----
+
+Wirkungen der Meditation, die sich auf den Organismus
+auswirken und ein allgemeines Wohlgefühl vermitteln.
+Doch wie die eigentliche selbstreflektierende Meditation
+vorsichgeht, das ist sehr einfach, denn diese Form kann
+voll wirksam beim einfachen Gehen, Sitzen, Stehen oder
+Liegen geübt werden, denn es bedarf einfach des Still­
+seins sowie des selbständigen Denkens. Es ist also nicht
+so bei einer selbstreflektierenden Meditation, dass eine
+besondere Liegestellung oder Sitzstellung eingenommen
+werden muss, wie Meditationsfreaks behaupten, die in
+der Regel buddhistischen Lehren anhängig sind, was aber
+eines religiösen Glaubens bedarf, auch wenn der Buddhis­
+mus nicht als eigentliche Religion gesehen wird.
+Dies ist die wohl einfachste Erklärung, die gegeben
+werden kann bezüglich der sehr wertvollen Selbst ­
+reflektierungsmeditation, die ihre Gültigkeit hat, seit es
+Menschen gibt. Doch das Ganze dieser Meditation ist
+nicht so einfach, wie alles klingt, denn der Mensch muss
+seinen religiösen Glauben an einen Gottschöpfer und
+Trabanten ablegen und selbst die Energie, Kraft und
+Macht des eigenen resp. des Selbstdenkens und Selbst­
+entscheidens übernehmen und auch dementsprechend
+
+
+-----
+
+zu beten und daran zu glauben, dass von ihm schon
+alles getan werde, dass das Leben funktioniere.
+Wahrlich, es klingt für die Gläubigen ketzerisch, doch es
+entspricht der Wahrheit, auch in der Beziehung, dass es
+keinen ‹Meditationsmeister› braucht, um selbst zu medi­
+tieren, denn jeder tut dies auf die eigene Art und Weise.
+Was die Meditationsmeisterei bringt, ist das, was Medi­
+tationsschulen vereinheitlichen und also in dieser Hin­
+sicht die Menschen zu formeinheitlichen Meditierenden
+machen, die keinerlei Individualität mehr aufweisen,
+sondern nach Schema X meditieren, eben vereinheitlicht.
+Dies wird dieserart auch in Schweizer Klöstern prakti­
+ziert und also vom Christentum übernommen, so dafür
+Interessierte die vereinheitlichte buddhistische Technik
+erlernen, folglich die Achtsamkeit und Konzentration der
+Meditation alles Individuelle einbüsst, was bedeutet,
+dass eine Meditation-Herdenfolgsamkeit gegeben ist, die
+Gautama Buddha niemals wollte.
+Die Meditation zur Erarbeitung der wahren inneren
+Ausgeglichenheit – die nicht nur psychisch in der Weise
+wirkt, dass der Mensch weitgehend unbeschwert durch
+sein Leben gehen kann, nicht psychisch versauert und
+
+
+-----
+
+Die Regel beweist, dass diese Form der inneren Ausge­
+glichenheit nämlich nur oberflächlich ist und also nicht
+derart tiefgreifend in den Grund des Charakters greift,
+dass das abgrundtiefe Böse im Menschen null und nich­
+tig wäre. Dies nämlich dann, wenn durch die innere Aus­
+geglichenheit das tief im Charakter Abgelagerte lebens­
+feindliche Ausgeartete derart neutralisiert würde, dass
+nicht bei einer Erregung oder Angst, bei einer Gefahr
+oder sonst bei äusseren Widerwärtigkeiten das Böse tief
+im Charaktergrund erwachen und nach aussen dringen
+und Hass, Rache und Vergeltung oder Tätlichkeiten aus­
+lösen und Unheil anrichten kann.
+Wahrheitlich ist es nicht so, dass zur Durchführung der
+Selbstreflektierungsmeditation unbedingt ein stiller und
+ruhiger Ort gewählt werden muss, denn grundsätzlich
+kann diese in jeder beliebigen Stellung und an jedem
+Platz und Ort durchgeführt werden. Natürlich ist es gut,
+an einem ruhigen Ort zu meditieren, wo keine Störungen
+der Umwelt auftreten, doch dies ist nicht jedem Men­
+schen vergönnt, dass er einen solchen Ort zum medita­
+tiven Gebrauch zur Verfügung hat und ungestört seine
+Selbstreflektion ausüben kann, die grundsätzlich lebens­
+
+
+-----
+
+zur Meditation zu haben, an dem er nicht gestört wird,
+dies weder vom Partner noch von Fremden oder von
+Kindern, nicht von einem Handy oder Haustelephon
+usw. Manche Menschen richten sich nach Möglichkeit
+einen kleinen Meditationsort ein, wo sie sich wohl fühlen
+und eben ungestört sind und die Örtlichkeit nach ihrem
+Geschmack einrichten. Manche mögen Kerzen, Blumen,
+schöne Kissen, andere wiederum bevorzugen anderes.
+Das reicht je nach Belieben des Menschen von einer
+nüchternen Umgebung bis hin zu Blumen, zur bequemen
+Sitz- oder Liegegelegenheit oder/und zu Kerzen usw.
+Vielen macht ein solcher Ort der Ruhe alles viel leichter
+für die Meditation, wenn dieser ortgebunden persönlich
+sowie nach eigenem Geschmack eingerichtet ist. Wenn
+das aber nicht möglich ist, dann fordert die Selbstreflek­
+tierungsmeditation dies nicht explizit, denn diese ist nur
+auf das Reflektieren selbst angewiesen, nicht jedoch auf
+einen bestimmten Ort oder auf eine bestimmte Körper­
+stellung, so sie also allüberall getan und durchgeführt
+werden kann.
+Die eigene Mitte zu finden resp. die innere Ausgeglichen­
+heit, führt letztlich dazu, sich selbst zu kennen, wie aber
+
+
+-----
+
+nere Mitte allein gibt das Gefühl zu sich selbst, was aus
+tiefster Selbstbewusstheit kommt, das sich niemals dar­
+an stört, wenn die Umwelt oder eben die Mitmenschen
+gehässig, hassvoll, bösartig, verleumdend, lügend und
+betrügend auftreten. Wahrlich, wenn die wahre Mitte
+resp. die echte innere Ausgeglichenheit gefunden ist und
+die bösen Emotionen usw. tief im Charakter inaktiv und
+aufgelöst sind und folglich nicht mehr nach aussen drin­
+gen und kein Unheil durch gewaltmässige Tätlichkeiten
+oder Verrat usw. mehr anrichten können, dann ist die in­
+nere Ausgeglichenheit erst wahre Wirklichkeit, die durch
+keine Äusserlichkeiten mehr geschädigt werden kann.
+Und diese innere Gelassenheit lässt sich gezielt durch
+Logik, Verstand und Vernunft, durch ein klares Bewusst­
+sein sowie durch ein wirkliches und ehrliches Wollen er­
+arbeiten und laufend trainieren, wodurch der Mensch
+immer gelassener und ausgeglichener wird. Tatsächlich
+erhält und gewinnt er die Kontrolle über sich selbst, über
+die Macht der ureigenen Entscheidungsfähigkeit und
+Handlungsfähigkeit. Und dass der Mensch dies erreicht,
+dazu ist es nur notwendig, dass er sich die innere Aus­
+geglichenheit erarbeitet, wobei er sich allerdings klar
+
+
+-----
+
+Rache, Verleumdung, Vergeltung und Gewalt usw. aus­
+lösen kann. Alle die Wurzeln dieser tief im Charakter­
+grund lauernden Übel sind der Grund des Unglücklich­
+seins des Menschen, lassen ihn nur ein scheinbar inneres
+Ausgeglichensein finden, das sich für ihn erträglich, nicht
+jedoch wirklich zufrieden macht.
+Wenn der Mensch sich wirklich innere Ausgeglichenheit
+erarbeiten will, dann muss er sich klare Visionen setzen,
+seine Ängste überwinden, Vertrauen zu sich selbst er ­
+arbeiten und seine Hingabe dafür kultivieren. Er muss
+lernen, alles ihm Unbekannte zu verstehen und es auch
+aufzunehmen und zu geniessen, und er muss alles ihm
+Wichtige, so den Rhythmus und die Bässe der Melodie
+des Lebens, in sich aufnehmen, um mit allem zu leben.
+Dies muss er tun, wenn er wirklich die innere Ausge ­
+glichenheit ehrlich und wahrlich leben will, wenn er
+alles Böse in der Tiefe seines Charakters inaktiv hat wer­
+den lassen und in der Stille der Harmonie das nicht er­
+lauscht, was Unruhe und Unfrieden bringt. Allein die
+wahre innere Ausgeglichenheit lässt den Menschen den
+wirklichen und effectiven Frieden finden, und zwar in
+sich selbst, wie auch in der ganzen Welt. Wahrer Frieden
+
+
+-----
+
+auch der Grundstein dafür, dass im Aussen Frieden ge­
+funden und dieser in die Weiten der Welt hinausgetra­
+gen werden kann.
+
+Doch noch habe ich zu erklären, wie die innere Ausge­
+glichenheit erschaffen werden kann, weshalb du dich nun
+eben noch etwas gedulden musst, bis ich das Notwendige
+erklärt habe. Dazu habe ich noch 10 Punkte, die mich
+Sfath gelehrt hat und die ich nach eigenem Ermessen
+seit damals erweitert habe, und das sind folgende:
+
+1. Die innere Ausgeglichenheit kann meditativ erreicht
+
+werden, was aber nichts mit einer Meditation in dem
+Sinn zu tun hat, wie diese als ‹wahre Meditation› in
+religiöser Form bekannt und verbreitet ist, die wahr­
+heitlich so oder so einen Religionstouch des Buddhis ­
+mus hat. Meditation im Sinn des Lebens sowie der
+Erarbeitung der inneren Ausgeglichenheit bedeutet
+nichts anderes, als sich in Ruhe und ohne Stress den
+Gedanken und dem Erleben derselben hinzugeben.
+Etwas, das der Mensch eigentlich täglich während
+seines Wachzustandes macht, jedoch wild, unkon­
+
+
+-----
+
+es ihm Nutzen bringt und folglich keine innere Aus­
+geglichenheit.
+
+2. Die innere Ausgeglichenheit bedarf vom Menschen
+
+einer wirklichen meditativen Entspannung, und zwar
+derart, dass er sich vor allem bewusst und regelmäs­
+sig kleine Ruhepausen gönnt und sich diesbezüglich
+meditativ betätigt. Das jedoch nicht derart, dass er
+sich dem Fanatismus und Wahn des religiösen Glau­
+bens hingeben soll, sondern einem stillen, neutralen,
+gedanklichen In-sich-Gehen in der Weise, dass sich
+Gutes, Wertiges, Schönes und Neutrales in den Ge­
+danken bewegt, das auflockernd, befriedend und
+ausgleichend wirkt.
+
+3. Es ist notwendig, sich regelmässig Zeit zur Selbstre­
+
+flektion zu nehmen, zum eigentlichen Nachdenken
+und Erwägen in bezug auf die Charaktereigenschaf­
+ten, die zum Zuge kommen dürfen, und jene, die
+unter Kontrolle gebracht, abgebaut und also aufge­
+löst werden müssen, um sich davon zu befreien.
+
+4. Es können ausgleichend bei der meditativen Ruhe­
+
+pause sehr wohl die persönlichen Bedürfnisse be­
+achtet werden, folglich also nicht ein Abgeschlossen ­
+
+
+-----
+
+arbeitung der inneren Ausgeglichenheit, denn diese
+hat einen grossen Einfluss auf das Wohl des Körpers,
+wie auch auf die Gedanken, die Moral und das Ver­
+halten.
+
+6. Singen, Summen oder Pfeifen von melodischen
+
+Melodien ist angebracht, denn durch diese werden
+nicht nur die Moral und die Verhaltensweise positiv
+gesteuert, sondern sie formen vor allem die innere
+Ausgeglichenheit und regeln den Zustand des kör­
+perlichen Wohlbefindens.
+
+7. Die innere Ausgeglichenheit erfordert, dass die eige ­
+
+nen negativen und positiven Gefühle bewusst wahr­
+genommen und unter Kontrolle gebracht werden in
+der Weise, dass eine Beherrschung derselben er­
+folgt.
+Gefühle, die bei höchster Erregung, Angst usw. die
+Regung des Selbsterhaltungstriebes auslösen, dürfen
+niemals zur Wut, zum Zorn oder gar zur tätlichen
+Gewalt ausarten, sondern müssen derart beherrscht
+werden, dass im Höchstfall eine logisch-fundierte tät ­
+liche Abwehrhandlung resp. Gegenwehr, oder eine
+gerechtfertigte Stimmerhebung bis hin zum Gebrüll
+
+
+-----
+
+Stress-Reaktionen zu reflektieren, wie auch die eige ­
+ne innere Gelassenheit in jeder auftretenden Situa­
+tion und Lage zu kontrollieren und zu trainieren.
+Vor allem muss dabei bewusst werden, dass letzt­
+endlich allein nur Besonnenheit, Beherrschung, Dis­
+ziplin, Kontrolle und Verantwortung das Ganze von
+Stress jeder Art bändigen und neutralisieren kann.
+
+9. Der wirklich sehr achtsame Umgang mit sich selbst
+
+und der regelmässige Wechsel zwischen der An- und
+Entspannung sind elementar für die innere Ausgegli­
+chenheit, denn diese schafft auch das Gleichgewicht
+für die bewusstseinsmässige und die psychische und
+körperliche Gesundheit. Dies gilt besonders in schwie­
+rigen und unsicheren Zeiten, denn da werden die
+Energien und deren Kräfte besonders gefordert.
+
+10. Die bezeichneten und symbolisierten in sich gespei­
+
+cherten Erlebnisse, Erinnerungen und die Erfahrun­
+gen, Emotionen und sonstige Regungen aus dem
+eigenen Leben, die gemacht wurden und sich eben
+erlebensmässig ergeben haben, wie auch das wich­
+tige ganze Spektrum intensiver Gefühle, von Glück
+und Traurigkeit, wie aber auch unbändige Freude,
+
+
+-----
+
+und Zorn usw. sind Faktoren, durch die das Leben
+geprägt wird und die innere Ausgeglichenheit zu­
+wegebringen können.
+
+
+-----
+

@@ -1,0 +1,47 @@
+# Dankworte von Ptaah und den Plejaren allgemein
+# 普塔赫和普莱雅人的感谢词
+
+an alle Menschen, die vernünftig und verantwortungsvoll handeln
+致所有理性且负责任行事的人们。
+
+## Auszug aus dem 739. Kontakt vom Freitag, 22. Mai 2020
+## 摘自2020年5月22日星期五的第739次接触记录
+
+**Ptaah** Was richtig ist. Wozu ich auch sagen kann, dass alle jene ihrem Verstand und ihrer Vernunft folgenden
+**Ptaah** 这是正确的。对此我还可以说，所有那些遵循其理智和理性的人...
+
+Mitglieder eurer Kerngruppe und Passiv-Gruppe in globaler Weite eure umfangreichen Website-Veröffentlichungen und die darin enthaltenen Ratgebungen zu Sicherheitsmassnahmen befolgt haben und bis anhin wohlbehalten vor der Corona-Seuche geblieben sind. Auch sehr viele der FIGU fremde Personen haben diese veröffentlichten Ratgebungen gelesen, befolgt und in ihren Kreisen verbreitet, wodurch viele Erdenmenschen vor Infizierungen und dem Tod durch das Corona-Virus verschont blieben. Als äusserst interessante Feststellungen hat sich bei unseren Kontrollen schon seit Beginn eurer ersten WebsiteVeröffentlichungen ergeben, dass euren FIGU-Website-Corona-Informationen ungewöhnlich viel Aufmerksamkeit zukam, wie das Ganze häufig und immer wieder aus diversen Ländern auch von einer grösseren Anzahl spezialisierter Fachkräfte verschiedener Wissenschaften genutzt wurde. Sehr interessant war festzustellen, dass eure FIGU-Website-Informationen kopiert und anderweitig sehr oft in Fachkreisen weiterverbreitet wurden, und zwar besonders in unterschiedlichen europäischen wissenschaftlichen Kreisen, wie der Mikrobiologie, Virologie und Infektionsepidemiologie. Dies ergab sich aber auch hinsichtlich spezialisierter Fachärzte, Fachärztinnen, wie in bezug auf Fachkräfte der Bakteriologie, Parasitologie, Immunologie sowie der Serologie, wie aber auch der Mykologie, Mykobakteriologie, Mikrobiologie und Molekularbiologie und Symptomatologie, sowie Spezialisten der Laboratoriumsdiagnostik und Stufendiagnostik usw. Diese Tatsachen …
+你们核心小组和被动小组的成员在全球范围内遵循了你们网站上发布的大量内容以及其中包含的安全措施建议，并且至今在新冠疫情中安然无恙。此外，许多与FIGU无关的人士也阅读、遵循并传播了这些发布的建议，从而使许多地球人免于感染和因新冠病毒而死亡。从你们首次网站发布开始，我们的调查就发现了一个极为有趣的现象：你们的FIGU网站关于新冠疫情的信息受到了异常多的关注，这些信息不仅被来自不同国家的众多专业科学工作者频繁使用，而且经常被复制并在专业圈内广泛传播，尤其是在欧洲的微生物学、病毒学和感染流行病学等科学领域。这一现象同样出现在专门领域的医生、细菌学、寄生虫学、免疫学、血清学、真菌学、分枝杆菌学、微生物学、分子生物学、症状学以及实验室诊断和分级诊断等专家中。这些事实……
+
+**Billy** Entschuldige bitte, wenn ich dich unterbreche, doch kommt mir das sehr seltsam vor, denn was sollen
+**比利** 请原谅我打断你，但我觉得这非常奇怪，因为应该...
+
+diese von unserer Website abgerufenen Informationen durch diese Leute bezwecken? Dann frage ich mich auch, warum das ausgerechnet von Leuten solcher verschiedener Wissenschaftsgebiete getan wird, weil ja eigentlich in bezug auf das Corona-Virus nur die Fachleute der Virologie jene sind, die mit der Sache umgehen müssen, oder? Das ist mal das eine, das mir so seltsam erscheint, während das andere die Tatsache ist, dass ich seit jeher ausgerechnet auch von gewissen Wissenschaftlern diverser Arten als Betrüger, Lügner und Schwindler beschimpft werde, wenn ich z.B. von dir erhaltene Ratschläge oder Fakten bezüglich bestimmten Tatsachen nenne. Wie kommt es da also, dass ausgerechnet solche Leute in unserer Website herumwühlen – und eben wozu? Und würde man diese Leute darauf ansprechen, dann bin ich mir sicher, dass sie ihr Tun sowieso bestreiten würden.
+这些人从我们网站上获取这些信息的目的是什么？我也在思考，为什么偏偏是来自不同科学领域的人在做这件事，因为实际上，关于冠状病毒，只有病毒学专家才是需要处理此事的人，不是吗？这是我觉得奇怪的一点。另一点是，我经常被某些来自不同领域的科学家指责为骗子、说谎者和欺诈者，例如，当我提到从你那里得到的关于某些事实的建议或信息时。那么，为什么这些人偏偏在我们的网站上四处搜寻——他们到底想干什么？而且，如果去质问这些人，我相信他们肯定会否认自己的行为。
+
+**Ptaah** Das würde wohl der Fall sein, wozu diese Personen für sich selbst mancherlei Begründungen haben, die
+**Ptaah** 这很可能是事实，这些人自己对此有各种各样的理由，
+
+aber wohl alle dem Zweck dienen, ihr vermeintlich hochintelligentes Angesicht und ihr Image zu schützen und zu wahren, wie auch nicht als Gläubige eines Phantasten zu gelten, wie sie dich beschimpfen und lächerlich machen wollen, wie das auch viele der Dummheit verfallene Besserwisser, Neider und Widersacher aller Art tun. Anderseits entspricht es einem natürlichen Vorgang, dass sich auch Fachkräfte anderer Wissenschaftsgebiete ausserhalb der Virologie für vielerlei Faktoren aufscheinender Leiden, Krankheiten und Seuchen usw. interessieren, weil gesamthaft alle auftretenden Erscheinungsformen solcherart aufkommender Momente Zusammenhänge aufweisen oder aufweisen können, die es zu erforschen gilt.
+然而，这一切很可能都是为了达到一个目的：保护并维护他们那自以为高智商的形象和声誉，同时避免被视为一个幻想家的信徒，正如他们试图诋毁和嘲笑你那样，这也是许多陷入愚蠢的自以为是者、嫉妒者和各种反对者所做的事情。另一方面，这也是一个自然的过程，即除了病毒学领域之外，其他科学领域的专家们也会对显现出的各种痛苦、疾病和瘟疫等众多因素感兴趣，因为所有这些现象的出现都可能存在或确实存在相互关联，而这些关联正是需要研究的。
+
+（来源语言：德语）
+
+**Billy** Wenn du es sagst.
+**比利** 既然你这么说。
+
+**Ptaah** Ja. – Dann wollte ich vorhin sagen, dass die von uns festgestellten Tatsachen, wie ich sie genannt habe,
+**Ptaah** 是的。我刚才想说，我们所确认的事实，正如我所说的那样，
+
+uns veranlassen – mich besonders, wie aber auch alle die dir Bekannten aus unseren Reihen sowie auch alle unseres Gremiums –, eine ganz besondere Dankentsprechung an alle Erdenmenschen auf dem ganzen Planeten entgegenzubringen, die aufmerksam, achtsam, vertrauensvoll und verstand- sowie vernunftgeprägt eure umfangreichen Website-Corona-Richtlinien-Veröffentlichungen ernst genommen und befolgt haben.
+我们——尤其是我，还有你认识的所有我们团队中的成员，以及我们委员会的全体成员——要向全球所有认真、谨慎、信任、理解并理性地遵循了你们网站上发布的广泛新冠指南的地球人，致以特别的感谢。
+
+Unser Dank geht besonders an alle, so an alle nahen und weltweiten FIGU-Mitglieder, an alle der FIGU fremden Personen, wie auch an jene verantwortungsbewussten diversen Politiker und Wissenschaftskräfte, die sich in richtiger Weise verhalten und viel Nützliches getan haben, die aber leider, wie wir feststellten, nur wenige an der Zahl sind und zudem von ihren Kreisen nicht hilfreich unterstützt werden.
+我们特别感谢所有远近的FIGU成员，所有与FIGU无关的人士，以及那些负责任的各类政治家和科学工作者，他们以正确的方式行事并做出了许多有益的贡献。然而，我们遗憾地发现，这些人的数量并不多，而且他们的圈子并未给予他们有益的帮助。
+
+Unser Dank sei also damit auch ganz besonderes an alle Personen gerichtet und ausgesprochen, die aus den durch die FIGU verbreiteten Informationen Erkenntnisse und Nutzen gewonnen und zum Wohl vieler Menschen entsprechende Aktivitäten daraus hervorgebracht, wie auch hinsichtlich ihrer eigenen Person Lebenssicherheit gewonnen haben. Das betrifft umfänglich alle, die unsere und eure Ratgebungen befolgt haben, die auf der FIGUWebsite veröffentlich wurden. Durch die verantwortungsbewusste Befolgung der Genannten in bezug auf die genannten Richtlinien, wie auch durch die Befolgung notwendiger Anordnungen sowie durch gewonnene Erkenntnisse, ausgeführtes richtiges und notwendiges Handeln und Tun in naher und weiterer Umgebung oder in landesumfassender Weite, wurde viel Unheil verhütet, wie auch sehr viele Infizierungen und Tode vermieden wurden, was auch zukünftig weiterhin so sein könnte, wenn gleicherart gehandelt würde. Das wird wohl möglich sein von den genannten Personen, während gegenteilig durch die Unvernunft der Unbelehrbaren leider in der kommenden Zeit weiteres Unheil nicht vermeidbar sein wird, obwohl ein vernünftiges Handeln und Verhalten notwendig sein wird, weil die Corona-Seuche kein schnelles Ende finden, sondern momentan in Europa zwar etwas rückläufig ist, jedoch wieder aufflammen wird, wie unsere Berechnungen ergeben.
+因此，我们特别向所有从FIGU传播的信息中获得认知和益处，并为许多人的福祉开展相应活动，以及在他们个人生活中获得安全保障的人们表达我们最诚挚的感谢。这广泛适用于所有遵循了我们和你们在FIGU网站上发布的建议的人。通过负责任地遵循上述指导方针，以及必要的命令，通过获得的认知，在近处和远处或全国范围内执行正确和必要的行动，已经预防了许多灾难，避免了大量的感染和死亡，如果继续以同样的方式行动，未来也可能继续如此。这对于上述提到的人们来说是有可能的，而相反，由于那些不可教者的不理智，在未来的时间里，进一步的灾难将不可避免，尽管采取理智的行动和行为是必要的，因为新冠疫情不会迅速结束，尽管目前在欧洲有所缓解，但将会再次爆发，正如我们的计算所显示的那样。
+
+Leider sind genaue und exakte Vorausberechnungen und Vorausschauen aus dreierlei Gründen nicht möglich, und zwar erstens darum, weil das Corona-Virus selbst in mancherlei Hinsicht unberechenbar ist, zweitens, weil dies in gleicher Weise auch auf die Staatsführenden zutrifft, die in ihren Handlungsweisen unbeständig und unzuverlässig sind. Drittens trifft diese Tatsache gleichermassen auch in bezug auf die Bevölkerungen aller Länder in Erscheinung, weil diese in Wankelmut und Beeinflussung einhergehen und sich zudem durch Corona-Lügner sowie Corona-Verschwörungstheoretiker einem konträren Sicherheitsverhalten und deren Wahnideen anschliessen und dementsprechend vernunftwidrig handelnd sind. Rund auf dem Planeten wird die Corona-Seuche weiter stark grassieren und viele Tote fordern, folglich sie auch in Europa wieder ansteigen und viele Opfer fordern kann, und zwar durch jenen Teil der Bevölkerungen, der wider allen Verstand und alle Vernunft unbedacht, nachlässig, leichtsinnig und verantwortungslos oder infolge Dummheit die notwendigen Vorsichtsmassnahmen missachtet und folglich infiziert werden und u.U. dem Tod verfallen wird. Dies, wie es auch durch die Schuld der Corona-Leugner und Verschwörungstheoretiker sowie deren Gläubige und durch die Staatsführenden kommen kann und wahrscheinlich auch kommen wird. Schaden werden auch grosse Massen der Bevölkerungen davontragen, weil sie sich durch die Wirtschaftskrise und die Wirtschaftsmächtigen irreführen lassen, die sich zu unsachgemässen und nicht den Verhältnissen angeglichenen falschen Lockdown-Massnahmen verführen oder gar bestechen lassen.
+遗憾的是，由于以下三个原因，我们无法进行精确和准确的预测和展望：首先，新冠病毒本身在某些方面具有不可预测性；其次，各国的领导者在行动上也同样表现出不稳定和不可靠的特点；第三，这一情况同样适用于各国的人民，因为他们往往摇摆不定，容易受到外界影响，并且受到新冠病毒否认者和阴谋论者的误导，采取与理性相悖的安全行为和妄想，从而做出不理智的举动。在全球范围内，新冠疫情将继续肆虐，夺走许多生命，甚至可能在欧洲再次爆发，造成大量伤亡。这是因为有一部分人无视理智和常识，轻率、疏忽、不负责任或由于愚蠢而忽视了必要的预防措施，从而被感染，甚至可能面临死亡。这种情况也可能，甚至很可能，是由于新冠病毒否认者、阴谋论者及其追随者以及各国领导者的过失所致。此外，广大民众也将因经济危机和经济强权的误导而遭受损失，他们被诱导或甚至贿赂，采取了不适当且不符合实际情况的错误封锁措施。
+

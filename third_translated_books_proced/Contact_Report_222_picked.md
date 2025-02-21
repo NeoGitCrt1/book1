@@ -1,0 +1,135 @@
+## Contact Report 222
+Zweihundertzweiundzwanzigster Kontakt
+Mittwoch, 3. Februar 1988, 04.10 Uhr
+Billy:
+Lieber Freund, gestern wurde ich bezüglich der Fürstin von Monte Carlo resp. von Monaco etwas gefragt, eben hinsichtlich der amerikanischen Ex-Schauspielerin Gracia Patricia Kelly, die ja durch die Heirat mit dem Fürsten Rainier III. von Monaco den Fürstentitel und den Namen Grimaldi erhielt. Die Fürstin verunglückte am 13. September 1982 während einer Rückfahrt von der fürstlichen Sommerresidenz “La Turbie” nach Monaco mit ihrem Auto, zusammen mit ihrer 17 Jahre alten Tochter Stephanie. Am andern Tag, am 14. September, erlag sie ihren schweren Verletzungen. Die Fürstin war mit ihrem Wagen in einer Haarnadelkurve von der Strasse abgekommen, der einen Abhang hinunterstürzte und sich dabei mehrmals überschlug. Tochter Stephanie hatte nur leichte Verletzungen davongetragen, und es hiess, dass sie unberechtigt das Auto gesteuert habe. Und genau dazu wurde ich nun gefragt, ob das tatsächlich der Fall gewesen sei. Du hast dich doch meines Wissens damals um die Abklärung der Sache bemüht – aus welchen Gründen auch immer.
+Quetzal:
+1. Das ist von Richtigkeit.
+2. Meine Abklärung erfolgte infolge meiner eigenen Interessen.
+3. Was ich dabei ergründet habe, hat allerdings keinerlei Relevanz zur Behauptung, dass die Fürstentochter Stephanie das verunglückte Fahrzeug gesteuert habe.
+4. Die Wahrheit und Wirklichkeit ist die, dass die Fürstin Gracia Patricia Kelly resp. Grimaldi eine plötzliche starke Gehirnblutung erlitt, die wie ein plötzlicher schwerer Schlaganfall wirkte und eine sofortige Bewusstlosigkeit auslöste, wodurch natürlich auch die Kontrolle über ihr Fahrzeug ausser Kraft gesetzt wurde und es unvermeidlich zum schweren Unfall kam.
+Billy:
+Das klingt logisch. Es ist mir auch unlogisch erschienen, dass Frau Kelly ihre noch unmündige Tochter ans Steuer gelassen haben soll. Wenn wir aber schon bei solchen Dingen sind, dann möchte ich dich wieder einmal bezüglich einer Frage angehen, die deine Arzt- und Psychiatriekenntnisse anspricht: Kurzlich habe ich mich ein andermal mit den sogenannten ‹Stimmen› befassen müssen, und zwar in bezug eines Mannes aus New Zealand. Sein Name ist Kiwi, wie eben auch die chinesische Stachelbeere genannt wird, eben die Frucht des Strauches ‹Chinesischer Stachelgriffel›, oder in der Maori-Sprache der neuseeländische Schnepfenstrauss, ein nachtaktiver, flugunfähiger Laufvogel. Der langen Rede kurzer Sinn: Meines Wissens handelt es sich beim ‹Stimmenhören› doch um eine Form der Schizophrenie, durch die die davon Befallenen eine Stimme oder deren mehrere Stimmen in ihrem Kopf oder so hören.
+Quetzal:
+5. Das ist ebenfalls von Richtigkeit.
+6. Beim ‹Stimmenhören› handelt es sich um eine Form der Schizophrenie, durch die akustische Halluzinationen in Form einer Stimme oder gar mehrerer menschlicher Stimmen, tierischer Laute oder dingmässiger Töne hervorgerufen werden, die von den von dieser Schizophrenieform befallenen Menschen in ihrem Bewusstsein gehört werden, da dieses ja der schizophrenen Störung verfallen ist.
+7. Die von dieser Schizophrenieform Befallenen vermeinen Mithörer von Gesprächen zu sein oder irgendwelche andere Laute, Geräusche, Töne oder auch Musik in vermeintlich realer Form wahrzunehmen.
+8. In schweren Fällen dieser Schizophrenieart erfolgen sogar vermeintliche Zwiegespräche zwischen den Halluzinationsstimmen und den schizophrenen Menschen, was oft auch dazu führt, dass die von dieser Bewusstseinskrankheit Befallenen vermeintlichen Befehlen der halluzinativen Stimmen Folge leisten und Handlungen und Taten ausführen und begehen, die für einen normalgesunden Menschen nicht nachvollziehbar sind.
+9. So treten in dieser Form nicht selten Tötungsdelikte in einfacher oder serienmässiger Form in Erscheinung, weil durch die vermeintliche Halluzinations-Kommunikation von den putativen Halluzinationsstimmen die Ermordung oder Tötung an Menschen und Tieren oder Zerstörungen an Bildern und Gegenständen usw. befohlen werden.
+10. Ein Vorgang, der bei dieser Schizophrenieform durch das verwirrte, kranke, gestörte und unlogische sowie vernunftsarme Denkvermögen in gewissen Beziehungen hervorgerufen wird.
+11. Ein Zustand, der nicht permanent vorhanden sein muss, sondern auch nur sporadisch in Erscheinung treten kann.
+12. Befallen davon können so auch Menschen von guter Bildung sein, denn die Schizophrenie stellt eine Bewusstseinsspaltung dar, die nicht durch die Intelligenz, sondern durch Halluzinationen und damit durch eine Bewusstseinsbeeinträchtigung resp. durch eine krankhafte Veränderung des Bewusstseinszustandes bestimmt wird.
+13. In harmlosen Fällen tritt die Schizophrenieform des ‹Stimmenhörens› bei den sogenannten ‹Totensprechern›, ‹Geistersprechern›, ‹Jenseitssprechern› und Ausserirdischensprechern› in Erscheinung, die von Zeit zu Zeit durch innere Stimmen, eben durch das Stimmenhören, vermeintlich annehmen, dass sie Stimmen von Toten, Geistern, Dämonen, Jenseitigen und Ausserirdischen hören und gar mit diesen kommunizieren würden.
+14. Auf der Erde nennt ihr solche Menschen Medien, Totenbeschwörer und Channeler usw., die jedoch, wie erklärt, wahrheitlich nur innere Stimmen haben und glauben, dass sie von diesen Befehle oder Botschaften erhalten und gar mit ihnen kommunizieren würden.
+15. Eine weitere Form dieser Bewusstseinskrankheit ruft durch unrealistische Gedanken- und Glaubensformen auch putative ‹Telepathie-Stimmen› hervor, wodurch die von dieser Krankheit Befallenen glauben, dass sie mit irgendwelchen Wesen diesseitiger, jenseitiger, andersdimensionierter oder ausserirdischer Form in telepathischer Verbindung stünden.
+16. Die von dieser Wahnform Befallenen glauben selbst, ihre Wahngebilde seien Wirklichkeit.
+17. Ausserdem erscheinen sie nach aussen für die Mitmenschen völlig normal, die die falschen Aussagen der Schizophrenen als gegeben erachten und so die Bewusstseinskranken auch als völlig normal einstufen, was in der Regel auch den Fachkräften wie Psychologen und Psychiatern eigen ist, die sich ebenso täuschen lassen wie die Laien.
+Billy:
+Danke. Deine fachliche Erklärung wird sicher so manchem Menschen die Augen öffnen. Aber wenn du schon von Totensprechern redest resp. von Totenbeschwörern, dann möchte ich auch noch eine Frage in bezug eines bestimmten Verstorbenen stellen, wenn du etwas über ihn weisst. Es handelt sich dabei um Leonardo da Vinci, der dir sicher ein Begriff ist. Man hat mich gefragt, ob ich wüsste, wer dessen Vater und Mutter waren. Ptaah erklärte mir zwar auf meiner Grossen Reise, dass Leonardo als unehelicher Spross aus einer Verbindung seines Vaters Piero da Vinci mit einer hübschen Sklavin aus dem Orient hervorgegangen sei, doch wollte ich die Frage nicht in dieser Weise beantworten, ehe ich mich nochmals bei dir erkundigt habe, und zwar weil ich mir nicht mehr ganz sicher bin, ob ich Ptaahs Erklärung richtig in Erinnerung habe. Du weisst doch, durch meinen gesundheitlichen Zusammenbruch im Jahre 1982 hat mein Gedächtnis gewaltig gelitten, so ich manchmal einige Dinge durcheinanderbringe.
+Quetzal:
+18. Deine Erinnerung entspricht der Richtigkeit, so du also eine dienliche Erklärung weitergeben kannst.
+Billy:
+Da wird sich aber Frau Suter freuen.
+Quetzal:
+19. Du sprichst von Frau Mariann Suter, die durch deine Hilfe ihr Leben wieder fand?
+Billy:
+Ja, diese Frau Suter meine ich. Sie hat mich angerufen und die Frage gestellt. Sie hat mir finanziell leihweise sehr viel geholfen, um das Center überhaupt aufbauen zu können. Sie lebt heute zeitweise in Indien, Pakistan, Nepal und in Europa.
+Quetzal:
+20. Sie verdankt dir ihr Leben und wird das niemals vergessen.
+21. Das weiss ich, weil ich die Geschichte um sie und dich kenne und ich mich mit ihrem Charakter befasst habe.
+Billy:
+Semjase sprach einmal davon, dass irgendwo in den Bergen des Rheintales in fernerer Zukunft ein Vulkan ausbrechen werde, der zur Zeit inaktiv, jedoch ebenso im Untergrund tätig sei wie auch verschiedene Vulkane irgendwo in Deutschland, die auch in fernerer Zeit wieder aktiv würden. Auch danach hat man mich gefragt, doch weiss ich leider nicht mehr, welcher Ort in Deutschland gemeint war.
+Quetzal:
+22. Es handelt sich nicht um einen Ort, sondern um ein ganzes Gebiet, das als Eifel bezeichnet wird.
+23. Dort herrscht ein grosser schlummernder unterirdischer Vulkanismus, der in fernerer Zukunft wieder gewaltige oberirdische Ausbrüche erzeugen und ganze Landschaften zerstören wird.
+Billy:
+Ja, genau, so war der Name. Dann noch eine andere Frage: Gilgamesh entstammte einer Rasse, die aus einer auf der Erde noch unbekannten Galaxie kam. Ausserdem war er um die drei Meter gross. Wie kann es da sein, dass er noch heute auf der Erde unerkannt lebt? Verhältnismässig zum Erdenmenschen gesehen altert er ja auch nicht, da er, wie ihr erklärt habt, 50'000 Jahre oder mehr alt wird. Und da ihr ihn ja kennt und auch die Möglichkeit habt, ihn zurück auf seine Welt zu bringen, warum tut ihr das nicht?
+Quetzal:
+24. Du irrst dich in bezug dessen, dass die Heimatgalaxie des Gilgamesh auf der Erde unbekannt sei, denn bereits im Jahre 1781 wurde sie von einem Astronomen namens Méchain entdeckt.
+25. Es handelt sich um eine etwas ovale Spiralgalaxie, die von den irdischen Astrowissenschaftlern schlicht M 94 – NGC 4736 genannt wird und die sich in rund 20 Millionen Lichtjahren Entfernung von der Erde aus gesehen befindet.
+Billy:
+In unserem Raum-Zeit-Gefüge?
+Quetzal:
+26. Das ist von Richtigkeit.
+27. Doch höre weiter:
+28. Bei Gilgameshs Volk handelte es sich um eine Rasse von Morphogenesen, deren spezielle Fähigkeit darin bestand, ihre Gestalt und Grösse zu verändern.
+29. Ein Prozess, der allerdings für jeden Vorgang mehrere Monate in Anspruch nahm.
+Billy:
+Erstens: Warum sprichst du von handelte und bestand. Und zweitens: Bedeutet deine Erklärung in bezug auf Morphogenesen, dass es sich um eine Morphogenese handelt, eben in bezug der biologischen Morphologie? Die Morphogenese bezieht sich doch auf die Ausformung eines Lebewesens resp. einer Lebensform während seiner resp. ihrer Entwicklung, wobei alles von der Erbveranlagung und von der Umwelt abhängig ist. Meinst du das damit?
+Quetzal:
+30. Nein, das ist nicht der Sinn meiner Worte, sondern ich spreche von einer Gestaltwandlung, die beliebig während der normalen Existenz vorgenommen werden kann.
+Billy:
+Du meinst wohl z.B. dann, wenn die Entwicklung des physischen Körpers bereits abgeschlossen ist? Damit meine ich, dass eine Gestaltwandlung durchgeführt werden kann, wenn ...
+Quetzal:
+31. Das ist der Sinn meiner Worte, ja.
+Billy:
+Gestaltenwandlung – dann könnte man diese Menschen wohl auch Gestaltenwandler nennen. Können sie dann ausser der Gestalt auch äusserliche und innere Merkmale verändern?
+Quetzal:
+32. Das ist von Richtigkeit.
+Billy:
+Du hast mir aber die Frage dessen noch nicht beantwortet, warum du bestand und handelte sagtest.
+Quetzal:
+33. Gilgameshs Volk existiert nicht mehr, denn eine plötzliche und unvorhersehbare planetare Katastrophe liess die ganze Rasse innerhalb weniger Minuten aussterben.
+34. Überlebende gab es keine, denn auch ausserhalb des Planeten hielten sich keine Menschen dieses Volkes auf.
+35. Gilgamesh ist so der einzige Überlebende, der seine Gestalt jedoch der irdisch-menschlichen angepasst und morphogenisch umgewandelt und auf dieser Welt eine neue Heimat gefunden hat, die er nicht mehr verlassen will.
+Billy:
+Ach so ist das. Dann noch etwas anderes: Du sagtest kürzlich etwas über eine Wasserknappheit, die in kommender Zeit auf der Erde sein werde.
+Quetzal:
+36. Ja.
+37. Das Trinkwasser auf der Erde wird in bestimmten Ländern schon in den kommenden Neunzigerjahren zu einem raren Gut werden.
+38. Also wird es ein grosses Trinkwasserproblem geben, das ganz besonders in den sogenannten Entwicklungsländern zu sehr grossen Problemen und gar zu Katastrophen führen wird.
+39. Im Gegensatz dazu wird sich aber die erfreuliche Tatsache ergeben, dass gewisse durch die Erdenmenschen zerstörte und unfruchtbar gemachte Gebiete sich rein naturmässig wieder langsam erholen und grünen werden.
+40. Dieser Prozess wird jedoch nur langsam verlaufen und Erfolg bringen – immer vorausgesetzt, dass durch die Menschen nicht alles neuerlich zerstört und vernichtet wird, was leider zu befürchten ist, wenn man ihr unlogisches und profitheischendes Denken und Gebaren in Betracht zieht.
+Billy:
+Diese Befürchtung besteht wohl zu recht. Dann habe ich wieder einmal eine Frage bezüglich der ägyptischen Pyramiden, da ich auch danach gefragt wurde. Leider erinnere ich mich nicht mehr genau daran, was Ptaah, Semjase und Asket mir erklärten, doch irgendwie ist mir, dass gesagt wurde, die ersten Pyramiden seien vor rund 73'300 Jahren oder so erbaut, jedoch später wieder abgerissen worden, weil sie dem Verfall anheimfielen, eben durch Modern im Innern sowie durch die Witterung. Dies bezieht sich besonders auf die Pyramiden von Gizeh, so aber auch auf viele andere Pyramiden rund um die Welt. Danach wurde alles wieder aufgebaut, was etwa vor 10'800 oder 11'000 Jahren geschehen sein soll. Zu dieser Zeit, etwa 300 Jahre vor der grossen Sintflut, war ein gewisser König Sahluk die Machtperson, die den Abbau und die Änderung der grossen Pyramide von Gizeh anordnete und durchführen liess. Wieder moderte aber alles im Verlaufe der nächsten Jahrtausende und fiel dem Verfall anheim, so vor rund 4500 Jahren abermals eine gewaltige Pyramidenarbeit anfiel, indem alles Modernde und Verfallende weggerissen, abtransportiert und ersetzt wurde, demgemäss also neue Steinquader geschnitten und durch Menschenkräfte herangeschleppt und aufgebaut wurden. Dabei verlor die Hauptpyramide völlig ihren inneren Aufbau und die Gestaltung, die unter der strengen Macht Cheops neu erbaut und völlig umgestaltet wurde. Also kann man wohl sagen, dass die heutige Pyramide von Gizeh tatsächlich auch Cheops-Pyramide genannt werden kann, auch wenn deren eigentlicher Ursprung auf andere und teils erdfremde Erbauer aus dem Sternbild Orion zurückführt, und zwar in eine Zeit vor zwei Sternenaltern, die mit rund 36'650 Jahren gerechnet werden und so also in zweimaliger Form eine Zeit von 73'300 Jahren ergeben, wobei diese Zeit aber vor die islamische Hedschra gesetzt werden muss. Und wenn wir von der Gizeh-Pyramide reden, dann reden wir ja immer von der Pyramide, die als Ursprungspyramide gesehen werden muss, auch wenn heute die Neuanfertigung angesprochen wird, die ja auch bereits wieder rund 4500 Jahre alt und dem Modern und Verfallen preisgegeben ist, und die auch nicht mehr das ursprünglichen Mass von 152,5 Metern Höhe aufweist, sondern nur noch deren 146 oder 148 Meter. Diese grosse Pyramide ist mit den andern zusammen auf das Sternbild Orion ausgerichtet in seiner Formatierung, während das Chefren-Gebilde, ich meine das Sphinx-Gebilde, auf das Sternbild des Löwen ausgerichtet wurde. Sowohl die neue Pyramide wie auch alle anderen und das Sphinx-Gebilde sind in der neueren Zeit, also vor rund 4500 Jahren, einzig und allein durch Erdenmenschen erbaut worden, durch deren eigene Kräfte. Dabei waren die Erbauer frühe Ägypter, wie auch der grösste Teil der Arbeiter, die zu einem gewissen Teil freie Menschen und Handwerker waren, während viele andere, die in geringer Zahl als Sklaven aus anderen Ländern stammten, zusammen mit einer kleinen Zahl einheimischer Sklaven ihre harte Arbeit verrichten mussten. Dass Gros der Arbeiter beruhte aber auf freien Ägyptern. Zum Zwecke der Ernährung aller Arbeitskräfte wurde eine richtiggehende industrielle Ernährungsstadt unweit der Pyramide erbaut, wie aber auch Massenlagerstätten zum Ruhen und Schlafen erstellt wurden sowie Grabstätten für die vielen Toten, die es bei der Arbeit gab. So erinnere ich mich an das mir von euch Erklärte. Ist das nun richtig, oder bin ich einer Irrung verfallen?
+Quetzal:
+41. Alles ist von Richtigkeit, folglich also keine weitere Erklärung erforderlich ist.
+Billy:
+Schon verschiedentlich sprachen wir über die Gentechnik und Genmanipulation usw., um die in kommender Zeit viel unsinniges Aufhebens gemacht werden wird, und zwar insbesondere durch sogenannte Fortschrittsgegner und in diesem Fall eben Gengegner, die mit unsinnigen Behauptungen und Angstmacherei Tod und Teufel heraufbeschwören werden, um die Genforschung und Gentechnik zu hintertreiben, zu stoppen und zu verunglimpfen. Dies in Unkenntnis dessen, dass bereits seit Jahren gentechnisch veränderte Gemüse, Früchte und sonstige Nahrungsmittel hergestellt werden und auf dem Markt sind und auch von den Gengegnern unwissentlich und bedenkenlos sowie schadlos gegessen werden. Dazu nun die Frage, ob diese Tatsache eigentlich noch lange verheimlicht werden wird?
+Quetzal:
+42. Darüber wird wohl für immer Schweigen herrschen, weil sonst ein Aufruhr durch die Gengegner entstünde.
+Billy:
+Verstehe, Irre haben schon seit alters her immer die Tendenz gehabt, bei jeder möglichen und unmöglichen Gelegenheit einen Amoklauf zu starten oder sonst ausfällig zu werden. Das habe ich auch eben erst wieder erlebt bezüglich dessen, was ich in einem meiner Märchen im Märchenbuch geschrieben habe, dass es in der Atmosphäre feinster Staubpartikel bedarf, an denen sich der natürliche Wasserdampf kondensieren kann, damit Regentropfen entstehen können und es also regnen kann. Man hat mich am Telephon deswegen recht böse beschimpft und herumgebrüllt, dass ich nicht einen derartigen Mist schreiben und damit bereits die Kinder in die Irre führen soll usw. Bereits Sfath hat mich aber belehrt, dass es tatsächlich so ist, wie ich geschrieben habe. Und wenn ich mich richtig erinnere, nannte er die atmosphärischen Staubpartikel Aerosole.
+Quetzal:
+43. Du hast keine Falschheiten geschrieben, denn tatsächlich findet der Vorgang der Regenbildung in der Weise statt, wie du alles dargestellt hast.
+44. Und der Begriff Aerosole entspricht auch der Richtigkeit.
+Billy:
+Dann möchte ich nochmals auf den Treibhauseffekt und auf die Klimaveränderung zu sprechen kommen. Ein Thema, das wir ja schon mehrmals behandelt haben. Eines ist mir dabei aber entfallen, nämlich was die Sonne durch ihre Energien auf der Erde produziert, das zum Treibhauseffekt und zur Klimaveränderung beiträgt. Der erdenmenschliche zerstörerische Einfluss auf die Natur des Planeten resp. auf die Atmosphäre erfolgt ja durch das Freisetzen von Kohlendioxid und Bromgasen sowie durch den eigentlichen Fluorchlorkohlenwasserstoff, kurz FCKW genannt. Durch diese Stoffe, so habt ihr erklärt, bildet sich sozusagen ein Mantel oder eine Schicht um die Erde, wodurch die Sonnenwärme, die von der Erde reflektiert wird, nicht mehr in den Weltenraum entweichen kann. Es entsteht dadurch also ein Wärmestau, wodurch eben der Treibhauseffekt entsteht, der aber nicht allein durch des Menschen Schuld hervorgerufen wird, sondern zum gleichen Masse auch durch die Sonne. Das aber soll nicht bedeuten, dass des Erdenmenschen Schuld am Treibhauseffekt und an der Klimaveränderung bagatellisiert werden und die Ursache dafür allein der Sonne zugeschoben werden soll, wie dies in kommender Zeit verantwortungslose Wissenschaftler tun werden, wie ihr erklärt habt. Eure Erklärung war zwar, dass die Sonne das Erdklima in sehr grossem Masse beeinflusst und also auch an der Klimaveränderung und am Treibhauseffekt gewaltig mitwirkt, doch dass dabei auch sehr viel vom Menschen dazu getan wird, eben z.B. durch den weltweit ungeheuren Ausstoss von Kohlenwasserstoff, Bromgasen und FCKW, nebst vielen anderen Emissionen klimaschädlicher Natur. Von Zeit zu Zeit nun, damit meine ich in grossen zeitlichen Abständen, entstehen auf der Sonne besonders starke und äusserst grosse und umfangreiche Aktivitäten, durch die ungeheure Strahlungsmengen freigesetzt und in den Weltenraum hinausgeschleudert werden, die dann zwangsläufig auch auf die Erde treffen und auf dieser das gesamte planetare Klima beeinflussen. Und genau darum geht es nun, nämlich um welchen Stoff es sich dabei grundlegend handelt, der so gewaltig wirkt, dass ein Treibhauseffekt und eine Klimaveränderung entsteht, was ja zu anderen Zeiten als zur heutigen, da grosse Ursachen dafür auch beim Menschen liegen, ebenfalls in Erscheinung trat und auch in Zukunft in Erscheinung treten kann. Dies ganz im Gegensatz dazu, wenn Perioden sehr geringer Sonnenaktivität auftreten, durch die auf der Erde sehr kalte Zeiten oder gar Glaziale hervorgerufen werden können.
+Quetzal:
+45. Du hast eine umfangreiche Erklärung gegeben, die von einer grossen Kenntnis der angesprochenen Materie zeugt.
+46. Tatsächlich erstaunst du mich immer wieder.
+Billy:
+Alles ist halb so schlimm, denn einerseits hat mir Sfath in dieser Beziehung viel Wissen beigebracht, andererseits habe ich aber auch in der Schule viel gelernt – auch wenn ich ein grosser Schulschwänzer war –, und ausserdem lerne ich auch laufend dazu durch Fachbücher, Fachartikel in Zeitungen und Zeitschriften sowie durch fachliche Fernsehsendungen. Was ist nun aber mit dem speziellen Stoff von der Sonne, durch den das Treibhausklima und die Klimaveränderung auf der Erde gefördert werden?
+Quetzal:
+47. Es gibt deren verschiedene, wobei jedoch der wichtigste Faktor durch den Kohlenstoff 14 gebildet wird, wie er als Bezeichnung Eingang in die irdische Klimaforschung findet.
+Billy:
+Hatte also meine lange Rede doch einen Sinn, denn dies zu wissen dürfte wohl von Bedeutung sein. Dann aber jetzt etwas anderes: Professor Sander – von ihm habe ich dir ja schon mal erzählt – hat mich gefragt, da du dich ja mit der prähistorischen Erdgeologie beschäftigst, ob du etwas über die sogenannte ozeanische Nazca-Platte resp. das Nazca-Plateau wüsstest resp. wo deren Ursprung zu suchen sei?
+Quetzal:
+48. Der Ursprung des Nazca-Plateaus lag an einem ganz andern Ort, als es heute gelegen ist.
+49. Vor rund 33 Millionen Jahren befand es sich rund 2000 Kilometer weiter westlich im Ozean.
+50. Das Plateau war eine Vulkan-Unterwasserwelt, auf der sich ganz enorme Vulkanberge befanden, deren oberste Gipfel weit über die Meeresoberfläche hinausragten, wodurch ein grosser Insel-Archipel gegeben war, der von schönen, paradiesischen Riffen umschlossen War.
+51. Im Verlaufe der Jahrmillionen versank die Unterwasserwelt jedoch rund 1500 Meter in die Tiefe des Ozeans.
+52. Interessieren würde mich meinerseits das Wissen des Professors in bezug seiner Kenntnis um die Nazca-Platte.
+Billy:
+Eine entsprechende Frage werde ich bei ihm vorbringen. Dann eine letzte Frage, wonach wir uns über andere Dinge unterhalten können, die nicht offiziell genannt sein sollen. Die Erde, so habe ich verschiedentlich schon aus dem Weltenraum heraus gesehen, verändert sich irgendwie dauernd in ihrer Form und sieht manchmal recht unrund und verbeult aus. Das habe ich durch eure phantastischen Geräte gesehen, die mir Semjase vorführte, wodurch mir dieses Phänomen bekannt wurde. Kannst du mir den Grund dafür nennen, warum unser Planet sich dauernd verformt und Ausbuchtungen sowie Dellen aufweist? Wissen das überhaupt unsere Wissenschaftler schon?
+Quetzal:
+53. Diese Tatsache ist meines Wissens bei den Erdenmenschen noch unbekannt.
+54. Der Grund für die sich täglich ändernde Unebenmässigkeit des Planeten, der eine gewisse elliptische Form aufweist, ist darin zu finden, dass sich je nach Dichte der Materie und der Wassermassen eine wechselnde Schwerkraft resp. Gravitationskraft ergibt.
+55. Das bedeutet, dass sich die Dichte der Wassermassen und der festen Materie dauernd verändert, und zwar ununterbrochen.
+56. Dadurch schwellen z.B. grosse Gebiete mit hoher Materie- oder Wasserdichte beulenförmig an resp. aus, wodurch eben Ausbuchtungen entstehen.
+57. Gegensätzlich dazu fallen die Gebiete in sich zusammen und bilden Dellen resp. Krater, wenn eine geringe Dichte der Materie oder der Wassermassen gegeben ist, wie mir von Ptaah erklärt wurde.
+58. Eine zusätzliche Rolle spielt auch der Erdmond, der in diese Vorgänge miteinbezogen werden muss.
+Billy:
+Da kommen mir aber jetzt doch noch einige Dinge in den Sinn, die ich dich fragen möchte: Wie aus euren Erklärungen hervorgeht, ist das Leben auf der Erde im Wasser entstanden, wobei es sich dann im Ufersand der Gewässer entwickelte. Dies ganz im Gegensatz zu den Behauptungen der irdischen Wissenschaftler, deren Erklärungen besagen, dass das Leben aus der sogenannten Ursuppe entstanden sei. Wenn ich mich noch richtig erinnere – ganz euren Angaben gemäss –, soll das Leben in den Süssgewässern der Erde entstanden sein. Meere aber sind – zumindest hier auf der Erde – stark salzhaltig, wodurch die sehr empfindlichen Erbsubstanzen und Aussenhüllen der ersten Lebewesen wohl vernichtet worden wären, weil Salzwasser ja äusserst aggressiv ist und die erstentstandenen Lebensformen noch äusserst anfällig für solche Einflüsse waren. So frage ich mich, welche Art Gewässer denn gegeben waren, in denen sich das Leben entwickeln konnte, ehe es sich zu späterer Zeit auch im Salzwasser zurechtfinden konnte?
+Quetzal:
+59. Das Salzwasser der Erstzeit war tatsächlich in den Urmeeren sehr aggressiv und enthielt Werte, die doppelt und dreifach so hoch waren wie die der heutigen Salzkonzentrationen in den irdischen Meeren.
+60. So entstand auch das Leben nicht in diesen salzigen und teils auch stark kalihaltigen Urmeeren, sondern in kleineren und grösseren Landgewässern, in kleinen und grossen Tümpeln sowie in kleinen oder grösseren Seen, die aus Süsswasser bestanden, das sich aus flutartigen Regenmassen ergab.
+Billy:
+Dann noch das: Auf meiner Grossen Reise mit Semjase und Ptaah in dessen Riesenraumer flogen wir ja auch zum sogenannten Andromeda-Nebel, wie das riesige Gebilde von den irdischen Astronomen irrtümlich genannt wird, weil sie eben annehmen, dass es sich um einen galaktischen Nebel handle. Wie ich aber mit eigenen Augen sehen konnte, handelt es sich bei diesem Gebilde nicht um einen Nebel, sondern um eine riesige Galaxie, in der viele Sonnensysteme mit eigenen Planeten existieren, von denen auch eine grössere Anzahl vielfältiges und auch menschliches Leben trägt. Meine Frage: Warum behaupten denn die irdischen Astronomen dauernd, dass Adromeda ein Nebel sei? Wissen die denn tatsächlich nicht, dass es sich um eine Galaxie mit Sonnen und Planeten und allem Drum und Dran handelt, was eben eine richtige Galaxie ausmacht?
+Quetzal:
+61. Diese Tatsache ist ihnen noch unbekannt, daher sprechen sie auch von einem Andromeda-Nebel.
+62. Das nicht zuletzt deswegen, weil ihre astronomischen Instrumente noch nicht dazu ausreichen, die Wirklichkeit der Andromeda-Galaxie sehen zu können.
+63. Ihre Instrumente sind noch äusserst unzureichend, um auf die Distanz von rund zwei Millionen Lichtjahren, in der Entfernung von der Erde sich die Andromeda-Galaxie befindet, mehr als nur einen Nebel erkennen zu können.
+64. In neuerer Zeit wird sich das aber ändern, und zwar spätestens in den kommenden Neunzigerjahren oder zu Beginn des neuen Jahrtausends, wenn das Hubble-Weltraumteleskop seine Funktion erfüllt.
+Billy:
+Das war meine letzte Frage. Dann können wir uns jetzt den anderen Dingen zuwenden …

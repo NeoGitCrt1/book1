@@ -1,0 +1,375 @@
+# Geist resp. Geistform und Bewusstsein des Menschen
+
+### Von ‹Billy› Eduard Albert Meier
+
+SSSC, 25. August 2016, 00.15 h
+
+
+-----
+
+**© FIGU 2017**
+Einige Rechte vorbehalten.
+
+Dieses Werk ist, wo nicht anders angegeben,
+lizenziert unter
+www.figu.org/licenses/by-nc-nd/2.5/ch/
+
+**Die nicht-kommerzielle Verwendung ist daher ohne**
+**weitere Genehmigung des Urhebers ausdrücklich**
+**erlaubt.**
+
+Erschienen im Wassermannzeit-Verlag:
+FIGU, ‹Freie Interessengemeinschaft›, Semjase-Silver-StarCenter, Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+
+## p und Bewusstsein des Menschen
+
+Der Geist ist eine rein schöpferische Energie mit ungeheurer Kraft, durch die der Mensch belebt wird – wie jede
+Lebensform überhaupt. Der Geist, der nichts zu tun hat
+mit dem Bewusstsein des Menschen oder anderer Lebens formen, entspricht einer reinen schöpferischen Energie und
+Kraft, die direkt mit der Schöpfung Universalbewusstsein
+und mit ihrer gesamten Energie und Kraft verbunden ist.
+Der Geist ist im Gegensatz zum Bewusstsein und dessen
+Energie und Kraft unsterblich und dem Weiterbestehen
+eingeordnet, und zwar bis in ferner Zeit eine Rückverschmelzung mit der Schöpfung Universalbewusstsein resp.
+mit der Schöpfungsenergie erfolgt. Im Gegensatz zum Bewusstsein, dessen Aktivität und Energie technisch-elektronisch gemessen werden kann, sind die Geistenergie und
+Geisteskraft nicht messbar. Der Geist resp. die Geistform
+des Menschen (und anderer Lebensformen) ist der Re inkarnation resp. der Wiedergeburt eingeordnet, was
+nicht der Fall ist für das Bewusstsein und dessen Energie
+und Kraft. Der Geist des Menschen resp. die Geistenergie
+sammelt aus dem Bewusstsein des Menschen impulsmässig Wissen und kumuliert es zur Weisheit resp. impulsgeschwängerter Energie. Also geschieht alles rein impulsenergiemässig und hat nichts mit Gedanken resp. mit einem
+Denken zu tun, wie das allein dem Bewusstsein eigen ist.
+
+
+-----
+
+Menschen in bezug auf vielerlei Begriffe, wie z.B. ‹Bewusstsein›, wurde damals dafür der altherkömmliche und weitverbreitete Begriff ‹Geist› benutzt, der sich bis heute erhalten hat und ein ungeheures Missverständnis und
+Verwirrung schafft. Jmmanuel war sich dessen bewusst,
+dass der Begriff ‹Geist› nicht der Richtigkeit entsprach,
+doch konnte er infolge des Unverstehens der Menschen
+der damaligen Zeit nicht den richtigen Begriff ‹Bewusstsein› benutzen. Also blieb ihm nichts anderes übrig, als dass
+er, um die Werte der ‹Lehre der Propheten› resp. ‹Lehre
+der Wahrheit, Lehre des Geistes, Lehre des Lebens› und
+den Sinn und Wert der Gebete zu erklären, den Begriff
+‹Geist› benutzte. Und indem von den Menschen damals
+der Begriff ‹Geist› als das verstanden wurde und noch heute
+verstanden wird, was durch das Bewusstsein geschieht
+und getan wird, eben dass Gedanken gepflegt, Handlungen erdacht und Ideen durch das Unterbewusstsein erschaffen und ausgeführt werden, Erfindungen gemacht,
+Gedichte gereimt und Schriftwerke ersonnen und erstellt
+werden usw., so ergab es sich mit dem Wort ‹Geist›, dass
+verstanden wurde, was eben verstanden werden musste.
+Und genau das ist auch heute bei den unwissenden Menschen der Erde noch immer der Fall, folgedem daher noch
+immer im alten Sinn der Begriff ‹Geist› als das verstanden
+wird, was in jeder Beziehung allein auf das Bewusstsein
+zutrifft. Tatsächlich ist aber nicht der Geist der springende
+Faktor für alles, wie Gedanken, Ideen, Erfindungen usw.,
+
+
+-----
+
+zu sein. Dass jedoch in alter Zeit anstatt des Begriffs ‹Bewusstsein› der Begriff ‹Geist› verwendet wurde, das stellte
+an und für sich kein Hindernis dar, denn wenn der schöpferische Geist im Menschen resp. die schöpferisch-menschliche Geistform durch den Menschen selbst angesprochen
+wird, sei es in einer einfachen selbstkommunikativen Prägung oder in Hinsicht auf ein Gebet in ausdruckgebender
+Andacht, dann wird in erdenmenschlichem Sinn das angesprochen, was grundsätzlich und richtigerweise das Bewusstsein ist, wodurch eine Richtlinie erteilt wird, durch
+die etwas Bestimmtes zustande kommen oder vom Menschen selbst getan werden soll. Also funktioniert das Ganze
+auch in dieser Weise, und zwar obwohl unter dem falschen
+Begriff ‹Geist› etwas völlig Falsches verstanden wird und
+eben grundsätzlich das Bewusstsein verstanden werden
+muss, was aber in der Regel den Menschen der Erde nicht
+bekannt und nicht bewusst ist. Es ist aber infolge des
+Missverstehens doch so, dass, ohne dass es der Mensch
+weiss, durch das Ansprechen des Geistes nämlich automatisch das Bewusstsein angesprochen wird, weil eine
+direkte energiemässige Verbindung zwischen der Geistform und dem Bewusstsein besteht, denn nur durch die
+geistige Energie, die einer feinststofflichen geistelektromagnetischen Energie entspricht, ist das menschliche Bewusstsein funktionsfähig.
+Der Sitz des schöpferisch-menschlichen Geistes resp. der
+Geistform befindet sich im ‹Dach des Mittelhirns› = paari
+
+-----
+
+wusstseins mit seinem gesamten Persönlichkeitsblock, jedoch filigranhaft auch im und über den gesamten Körper
+und damit auch jedes Organ verteilt ist. Als solcher Faktor
+übt der Geist keine Ideen- und Gedankengänge usw. aus,
+sondern nur Impulse, denn die Funktion des Denkens,
+der Ideen und Vorstellungen usw. ist allein dem Bewusstsein und Unterbewusstsein vorbehalten. Demzufolge entspricht es einer Irrlehre, wenn von ‹geistigem Eigentum›
+usw. gesprochen wird, denn da der Geist weder Ideen
+noch Gedanken und Gefühle entwickelt, weil einzig und
+allein nur das Bewusstsein dazu fähig und dies allein diesem vorbehalten ist, kann also kein ‹geistiges Eigentum›,
+sondern nur ein ‹Bewusstseinseigentum› gegeben sein.
+Gleichermassen können also auch keine ‹Geisteskrankheit›
+und keine ‹Geistesverwirrung› usw. in Erscheinung treten,
+weil der schöpferisch-menschliche Geist resp. die Geistform als winziges Teilstück Schöpfungsgeistenergie aus der
+Schöpfung Universalbewusstsein heraus gegeben und
+vom Menschen in jeder erdenklichen Art und Weise absolut unantastbar ist. Das Bewusstsein des Menschen kann
+jedoch gegensätzlich von ihm oder durch andere manipuliert und auch durch irgendwelche Schäden wie Unfall
+oder Krankheit, verstandesmässige resp. hintersinnende
+Überlastung oder durch Alkohol, Drogen, Gase oder Umwelteinflüsse usw. geschädigt und krank werden, folgedem sich also Bewusstseinsschäden und Bewusstseinskrankheiten usw. ergeben können. Niemals ist es aber
+
+
+-----
+
+Menschen, wie der jeder anderen Lebensform, durch den
+Menschen weder irgendwie beeinflusst noch geschädigt
+werden kann. Der Geist, der die eigentliche Lebensenergie und Lebenskraft für den Menschen liefert, ist in keiner
+Art und Weise in schädlicher resp. in für ihn schadenbringender Weise beeinflussbar, denn er ist für den Menschen
+und auch für alle anderen Lebensformen absolut tabu
+resp. unbeherrschbar, unlenkbar, unmanipulierbar und unsteuerbar, eben ganz im Gegensatz zum Bewusstsein, das
+kontrollierbar, beherrschbar, lenkbar, manipulierbar und
+steuerbar ist.
+
+Nun, als erstes soll der Begriff ‹Geist› resp. dessen Urbegriff
+‹Ghiest› erklärt werden, der ursprünglich auf den Universalkünder Nokodemion zurückführt und in den Speicherbänken zu finden ist, wobei in diesen auch die Bedeutung
+‹Erwecken› gefunden werden kann. Wenn daher z.B. von
+schöpferischer Geistenergie die Rede ist, dann bedeutet
+dies ‹schöpferische Erweckungs-Energie›. Daraus ist zu
+verstehen, dass die Schöpfung resp. der Schöpfungsgeist –
+auch Schöpfungs-Universum-Geistenergie genannt, weil
+die Schöpfung gleichsam das Universum und damit die gesamthafte Energie und Kraft ist – ein Faktor des Erweckens
+resp. des Kreierens ist, und zwar durch die Kraft, Schwingungen und Impulse ihrer resp. seiner eigenen Energie.
+Allein in diesem Sinn ist der Begriff Geist und Geistenergie
+zu verstehen.
+
+
+-----
+
+griff seit alters her gleichbleibend bis in die alte Sprache
+‹German› überliefert ist, aus der ja letztendlich die deutsche
+Sprache entstand. Als dann der Sprachstamm ‹German›
+in den Hintergrund gedrängt wurde, erfuhr der Urbegriff
+‹Ghiest› verschiedene Veränderungen, wobei letztendlich
+der Begriff zum Wort ‹Geist› geformt wurde. Beim ganzen
+Veränderungsprozess ging dabei auch der Begriffssinn
+verloren und wurde mit ‹schaudern›, ‹erschrecken› und
+‹erregen› usw. erklärt, um dann letztlich in der neueren
+Zeit mit religiösen und sektiererischen Vorstellungen eines
+Gott-Geistes vermischt zu werden, was auch im Griechischen mit ‹pneuma› und im Lateinischen mit ‹spiritus› usw.
+Einlass gefunden hat. Der Geist wurde z.B. auch mit einer
+Seele bis hin zu Jenseitserwartungen verknüpft und umfasst bis in die heutige Zeit auch oft spirituelle Annahmen
+in bezug auf eine nicht an den leiblichen Körper gebundene, jedoch auf ihn einwirkende reine oder absolute, trans personale oder gar transzendente Geistigkeit, die von
+einem Gott geschaffen oder ihm gleich oder wesensgleich,
+wenn nicht gar mit ihm identisch sei. In der christlichen
+Vorstellungswelt dagegen wird sogar ein ‹Heiliger Geist›
+als Person verstanden, in symbolischer Weise als Taube
+oder als Auge dargestellter ‹Geist Gottes›.
+Der Begriff ‹Geist› allgemein hat auch anderweitig Einlass
+in den Sprachgebrauch des Menschen der Erde gefunden,
+wobei damit sehr seltsame Blüten getrieben werden. So
+wird z.B. seit alters her und bis in die heutige Zeit das Be
+
+-----
+
+chen wird, wie z.B. bei einem Gebet. Das kann an und für
+sich so akzeptiert und gelassen werden, weil ja damit
+richtigerweise in jedem Fall immer das eigene Bewusstsein angesprochen wird und es zu wertvoller Aktivität animiert, auch wenn der Mensch dies in seiner Unkenntnis
+nicht weiss und er das Ganze des effektiven Unterschiedes
+und Wertes in bezug auf Geist und Bewusstsein weder
+kennt noch versteht. Falsch ist es jedoch, wenn dabei der
+Begriff ‹Geist› mit einer Gottheit und mit einem Gotteswahnglauben verbunden ist, weil nämlich in diesem Fall
+der Mensch dümmlich versucht, mit etwas Imaginärem
+und also Nichtexistentem in Verbindung zu treten, anstatt
+durch seine Gedanken und seinen Willen sein eigenes
+Bewusstsein anzusprechen und es in bezug auf seine Bedürfnisse, Begehren, Vorstellungen und Wünsche usw.
+selbst bewusst zu beeinflussen und zu steuern, um das zu
+tun und zu erreichen, was er will.
+Weiter nutzt der Mensch der Erde in falscher Weise den
+Begriff ‹Geist› auch für seine Denkkraft und für seinen
+Verstand, wie auch irrig in sprachlichen Weisen wie: ‹Sein
+Geist hat sich verwirrt; sein Geist ist gestört; er ist geisteskrank; grosse Geister; er ist kein grosser Geist; ein Mensch
+mit wachem, regem oder langsamem Geist; er hat Geist;
+ein geistreiches Buch› usw. Weiter wird damit auch die
+Gesamtheit der Gedanken und Vorstellungen bezeichnet,
+wie auch, dass im ‹Geist› ein Ereignis noch einmal erlebt
+oder im ‹Geist› vor sich gesehen wird. Auch eine Einstel
+
+-----
+
+‹Geist der Neuzeit› oder sonst einer Zeit usw. wird fälschlich verwendet, obwohl der Geist mit all diesen Dingen
+und Faktoren rein nichts zu tun hat, weil dafür in jedem Fall
+einzig und allein das Bewusstsein zuständig ist. Weitere
+völlig falsche Formen finden sich auch in den Reden in bezug auf Branntwein aus vergorenen Früchten und Beeren
+usw., wie Erdbeergeist usw. Auch in bezug auf Menschen
+im Hinblick auf bestimmte Eigenschaften und Fähigkeiten,
+auf die Wirkung, die sie ausüben, wird fälschlich der Begriff ‹Geist› verwendet; wie auch ‹sie ist der gute Geist des
+Hauses›; ‹du bist ein unruhiger Geist›; ein ‹dienstbarer
+Geist› usw.
+Letztendlich wird der Begriff ‹Geist› fälschlich auch noch
+verwendet für (angeblich) wiederkehrende Verstorbene
+(Wiedergänger, Vampire) sowie für gestaltmässige geisterhafte Erscheinungsbilder von Toten. Mancherorts und im
+Volksglauben werden auch Naturwesen in Menschen gestalt als Erdgeist oder Luftgeist bezeichnet, wie aber
+auch angebliche überirdische Wesen, Gespenster und, wie
+bereits erwähnt, der ‹Heilige Geist›; der ‹Geist der Finsternis› mit dem ‹teuflischen Geist›. Weiter geht es auch mit
+dem Glauben an Geister; an einen bösen oder guten Geist,
+wie auch mit der Redeweise «Bist du von allen guten
+Geistern verlassen?» Als ‹Geist› oder ‹geistbedingt› usw.
+werden fälschlicherweise auch Dinge, Sachen und Zustände usw. bezeichnet, die damit nicht das Geringste zu
+tun haben, wie: Auffassungsgabe, Auserwähltheit, Begna
+
+-----
+
+vermögen, Fachmann, Fähigkeit, Gefühl, Gelehrtheit,
+Gescheitheit, Geistesgrösse, Geisteskraft, Geistesstärke,
+Gemüt, Genialität, Genie, Genius, Gesinnung, Humor,
+Ideenreichtum, Individualität, Inneres, Innenleben, Innenwelt, Innerlichkeit, Instinkt, Intelligenz, Klugheit, Koryphäe, Kreativität, Lebensfreude, Leuchte, Mutterwitz,
+Natur, Naturell, Phänomen, Persönlichkeit, Produktivität,
+Psyche, Talent, Scharfblick, Scharfsinn, Schlauheit, Schlagfertigkeit, Schöpfergeist, Schöpfertum, schöpferische
+Persönlichkeit, Seele, Spezialist, Urteilsfähigkeit, Urteilskraft, Veranlagung, Vision, Wahn, Weisheit, Weitblick,
+Weitsichtigkeit, Wesen, Witz, Wesensart usw.
+Manche Menschen der Erde denken, dass der Geist das
+Gehirn sei, während andere annehmen, dass irgendein
+anderer Teil oder eine Funktion des Körpers, wie z.B. das
+Bewusstsein, als Geist zu benennen sei. Das ist jedoch
+grundfalsch, denn das Gehirn ist rein körperlich-materieller Natur, und in diesem ist das Bewusstsein verankert.
+Das Gehirn selbst ist etwas, das mit den Augen gesehen
+werden kann, wenn es freigelegt wird, wie es aber auch
+von aussen apparaturell betrachtet oder mit elektromagnetischen Sonden in seiner Tätigkeit gemessen werden
+kann. Also kann es photographiert, analysiert und operiert
+werden. Dies, während das Bewusstsein in dieser Weise
+nicht eruierbar ist, weil es eine feinstoffliche Funktion des
+Gehirns darstellt und unter Umständen nur elektronisch
+in seiner Tätigkeit gemessen werden kann. Gegensätzlich
+
+
+-----
+
+feinststofflicher als das feinstoffliche Bewusstsein, das eine
+Teilfunktion im Gehirn ausübt. Und da der Geist feinststofflicher Natur ist, kann er weder durch irgendwelche
+Apparaturen noch Geräte, noch mit den Augen beobachtet resp. gesehen oder sonstwie registriert werden. Also
+kann er auch weder photographiert oder gar durch körperlich innere oder äussere Umstände, noch durch Gedanken, Gefühle, Krankheit, Unfall, Drogen, Gifte oder
+Medikamente usw. angegriffen, geschädigt oder durch
+eine Operation behandelt werden. Das Gehirn ist also
+nicht der Geist, sondern dieses ist einfach nur ein Teil des
+Körpers, und innerhalb dessen gibt es nichts, was als Geist
+identifiziert werden kann, ausser der Geist selbst, der als
+winzigstes Teilstück Schöpfungsgeist im Dach des Mittelhirns (= paariger Knotenpunkt = Colliculus superior) angesiedelt ist, jedoch apparaturell usw. effectiv nicht festgestellt werden kann. So sind der gesamte Körper und
+das Gehirn sowie das Bewusstsein des Menschen und der
+Geist grundverschiedene Wesenheiten, die sowohl in
+ihrer grobstofflichen als auch in ihrer feinststofflichen Art
+grundverschiedener Natur sind. Und wird das Bewusstsein
+betrachtet, das eine Funktion des Gehirns ist, dann kann
+dieses z.B. durch Gedanken äusserst beschäftigt und regsam sein und von einem Objekt zum anderen springen,
+während der Körper völlig entspannt und regungslos
+bleibt. Der Geist selbst ist dabei in keiner Art und Weise
+betroffen, denn er ist nicht identisch mit dem Bewusst
+
+-----
+
+seine Funktionen angetrieben werden. Dies sagt klar und
+deutlich aus, dass das Bewusstsein, der Körper und das Gehirn absolut nicht von gleicher Natur sind wie der Geist.
+In den Speicherbänken von Nokodemion habe ich in bezug auf den Unterschied zwischen dem Geist und dem
+Menschen ein Wort gelernt, das anschaulich darstellt,
+dass der Geist des Menschen ein winziges Teilstück des
+Schöpfungsgeistes im Menschen ist. So kann dieser mit
+dem Menschen z.B. in der Weise verglichen werden, indem der menschliche Körper mit einem Gasthaus und
+Gastraum verglichen wird, in dem der Geist als Gast verweilt, daselbst er sich auch ernährt und dafür ein Entgelt
+leistet. Wird das Gasthaus und damit auch der Gastraum
+jedoch abgerissen oder sonstwie zerstört, dann verlässt
+der Geist, der ja Gast ist, die Stätte der Zerstörung. Auf den
+Menschen umgesetzt bedeutet das, dass der Geist in ihm
+als Gast wohnt und lernt (Kost und Logis bezieht) und
+zugleich den gesamten Körper belebt (Kost und Logis bezahlt); und wenn der Mensch stirbt, dann entweicht der
+Geist umgehend dem Körper und geht in seinen Jenseitsbereich über, um dann bei der nächsten neuen Persönlichkeit im nächsten Leben wieder an sie gebunden zu
+werden und ein neuerlicher Gast im neuen menschlichen
+Körper zu sein.
+
+Der Geist ist also nicht das Gehirn, wie er auch nicht
+irgendein anderer Teil des menschlichen Körpers ist. Er
+
+
+-----
+
+Menschen verstanden werden. Und weil der Geist von
+Natur aus formlos oder immateriell ist, kann er auch nicht
+ertastet oder geharmt, nicht krank und auch nicht durch
+irgendwelche materielle Objekte oder durch Eingriffe des
+Menschen behindert oder geschädigt werden. Es ist also
+sehr wichtig zu verstehen, dass es keine unfriedliche oder
+friedvolle Geisteszustände gibt, denn solche Zustände sind
+allein dem menschlichen Bewusstsein vorbehalten. Einzig
+können unfriedliche oder friedvolle oder krankhafte Zustände nur im Bewusstsein in Erscheinung treten, die den
+inneren Frieden stören oder hochheben können, denn einzig das Bewusstsein ist durch die Gedanken und Gefühle
+fähig, Wut, Neid und begehrende Anhaftung, Verblendungen oder wertvolle, friedvolle Zustände zu schaffen,
+denn der Geist selbst verhält sich in jeder Art und Weise
+absolut neutral und mischt sich nicht in Bewusstseinsbelange ein. Der Mensch allein ist also in jeder Beziehung
+zuständig für das Wohl und Wehe seines Bewusstseins,
+folglich er für all seine Regungen und gedanken-gefühlspsychemässigen Leiden stets selbst verantwortlich ist,
+nicht jedoch sein Geist, wie auch nicht andere Menschen
+oder schlechte gesellschaftliche, materielle oder soziale
+Umstände usw. Wahrheitlich entstehen alle diesartigen
+Leiden durch verblendete und krankhafte sowie falsche
+Bewusstseinszustände, wobei die Gedanken und Gefühle
+eine sehr massgebende Rolle spielen.
+Der wichtigste Punkt beim Verstehen des Bewusstseins
+
+
+-----
+
+den Gedanken und Gefühlen gefunden werden kann. Eine
+beständige Befreiung kann also nicht durch den Geist,
+sondern nur durch die Reinigung des Bewusstseins sowie
+der Gedanken und Gefühle gefunden werden. Wenn daher
+der Mensch frei von bewusstseins-gedanken-gefühlspsychemässigen Leiden sowie von Problemen und Sorgen
+sein will, und wenn er anhaltenden Frieden, Freiheit und
+Harmonie und ein immerwährendes inneres Glücklichsein finden will, dann muss er sein Wissen und Verständnis des Bewusstseins vertiefen.
+Den menschlichen Geist zu lokalisieren und aufzuspüren –
+zumindest zur gegenwärtigen Zeit – ist für den Menschen
+unmöglich, weil er weder über die notwendigen Apparaturen noch über Fähigkeiten dafür, noch über irgend welche sonstige Mittel verfügt, um die Geistenergie aufspüren und diese messen zu können. Der menschliche
+Geist resp. die Geistform kann vom Menschen nicht gesehen werden, denn die reine schöpferische Geistenergie
+kann vom menschlichen Auge nicht wahrgenommen wie
+auch nicht gespürt werden. Auch gibt es noch keine Apparaturen oder Analysegeräte usw., auch nicht auf dem
+Gebiet des Ultraviolett oder Infrarot, durch die es möglich
+wäre, den Geist resp. die Geistform oder die schöpferische
+Geistenergie überhaupt sichtbar oder messbar zu machen.
+Es ist auch keinem speziellen Bewusstseinszustand des
+Menschen möglich, den Geist resp. die Geistform zu
+sehen, denn die geistige Energie ist so unsichtbar wie die
+
+
+-----
+
+schöpferisch-energetischer Natur und hat nichts mit dem
+Bewusstsein zu tun, wie auch nicht mit den Gehirnströmen, die wahrgenommen und gemessen werden können.
+Irrtümlich wird seit alters her das Bewusstsein als ‹Geist›
+des Menschen bezeichnet, wobei der Geist jedoch völlig
+anderer Natur als das Bewusstsein ist. Der Geist resp. die
+Geistform des Menschen ist rein schöpferisch, während
+das Bewusstsein ein Faktor des Menschen, dessen Gehirn
+und dafür zuständig ist, dass daraus Gedanken geschaffen
+werden können, wobei auch die ganze Ratio daraus hervorgeht, so also auch Verstand und Vernunft. Der Geist
+resp. die Geistform hingegen ist einzig die schöpferischnaturmässig vorgegebene Energie, die das Bewusstsein
+und den menschlichen Körper belebt.
+Wenn der Geist den menschlichen Körper verlässt, dann
+entweicht er in seine Jenseitsebene, die im selben Raum
+existiert wie die Gegenwarts-Wirklichkeit des Planeten,
+wobei die sogenannte Jenseitsebene gegensätzlich zum
+realen materiellen Wirklichkeitsraum anders dimensioniert
+ist, und zwar in feinststofflich-geistenergetischer Natur.
+In bezug auf den Planeten ist die Jenseitsebene also um
+diesen herum angeordnet, wie diese Ebene weiter aber
+auch universumweit gegeben ist, jedoch gegenüber der
+materiellen Wirklichkeitsebene in einer feinststofflichen
+Ebene, zu der der Mensch als materielle Lebensform in
+keiner Weise Zugang hat und folglich er auch nichts sehen
+und nichts wahrnehmen und auch nicht mit Jenseitigen
+
+
+-----
+
+wichenen Geist resp. die Geistform zu sehen oder sonstwie wahrzunehmen oder irgendwie mit ihm resp. ihr in
+kommunikative Verbindung zu treten.
+Dass der Jenseitsbereich des Planeten in andersdimen sionierter Form als der reale materielle Wirklichkeitsraum
+nicht nur in diesem angeordnet ist, sondern auch im
+gesamten Universum, das hat seine Begründung. So geht
+aus der Geisteslehre hervor, dass wenn ein Planet zerstört
+oder einfach lebensunfähig wird, dass dann die darauf
+existierenden Geistformen und die sonstigen brachliegenden Geistenergien nicht vernichtet werden, sondern dass
+diese ‹abwandern›, um so lange durch den Weltenraum
+zu ‹ziehen›, bis ein neuer Planet gefunden wird, auf dem
+menschliches Leben existiert. Auf diesem Planeten ‹siedeln›
+sich die Geistformen resp. Geistenergien dann wieder an,
+vermischen sich mit bereits dort existierenden und gelangen so wieder resp. weiter in einen Zyklus der Reinkarnation resp. der Wiedergeburt.
+SSSC, 21. August 2016, 00.15 h, Billy
+
+
+-----
+

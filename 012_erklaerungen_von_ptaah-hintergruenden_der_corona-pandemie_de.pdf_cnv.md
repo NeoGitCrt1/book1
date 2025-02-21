@@ -1,0 +1,122 @@
+# Erklärungen von Ptaah zu den Hintergründen der Corona-Pandemie
+ und zu deren wirklichem Ursprung
+
+## Auszug aus dem 728. Kontaktbericht vom 30. November 2019
+
+ Ptaah: Also sind alle US-Staats-Verantwortlichen in gleicher Weise als Staats
+Menschheitsverbrecher zu nennen und diesbezüglich auf dieselbe Stufe zu stellen, wie das NAZIReich im 20. Jahrhundert. Auch in China herrscht seit jeher das gleiche Prinzip, und das bleibt
+weiterhin so, … (Anm. FIGU: Der Ursprung für die kriminellen geheimen Forschungen am CoronaVirus war ein Beschluss, der auf die 1970er Jahre zurückführt. Damals traf sich der Führer Chinas,
+Mao Zedong, mit einem rachsüchtigen amerikanischen Bürger, der dem chinesischen
+Parteivorsitzenden die Idee zur Entwicklung einer virösen Biowaffe unterbreitete, die Mao Zedong
+dann aufgriff und als Geheimsache auch umsetzen liess, woran noch bis heute gearbeitet wird
+und woraus nun das Corona-Virus hervorgegangen ist. **Dies jedoch, ohne dass die aktuelle**
+**chinesische Regierung irgendwie in das Projekt miteinbezogen wäre oder auch nur die geringste**
+**Kenntnis davon hat.) In den 1970er Jahren wurde ein Beschluss für heimliche Forschungen in**
+Laboren zwischen dem chinesischen Staatsgewaltigen Mao und einem Amerikaner umgesetzt, der
+sich bis heute so erhalten hat und noch weitergeführt wird, weil Hass sprichwörtlich Generationen
+überdauert. Darüber ist aber Schweigen zu wahren, was auch heute und zukünftig so bleiben
+muss, wie du weisst, weil … … …
+## …
+Doch jetzt habe ich nochmals einiges anzusprechen, was sich im Zusammenhang mit den
+geheimen Laborversuchen ergab und dazu führte, dass Mao des Amerikaners Beweggründe
+aufgriff, obwohl er ihn nicht leiden mochte und ihn als rachsüchtigen gǒuzázhǒng beschimpfte,
+wobei er ihm aber doch beipflichtete, folglich er die Laborforschungen in geheimer Weise
+veranlasste. Durch beidseitig einige Gleichgesinnte konnte mit deren Hilfe letztendlich alles
+erfolgen, dass die geheimen Laborarbeiten entstehen und die Forschungen aufgenommen und
+durchgeführt werden. Mao starb dann jedoch, wonach aber die heimlichen Laborarbeiten
+trotzdem weiterbetrieben wurden, und zwar bis heute.
+
+**Billy** Wenn die Amis und die heutigen Chinaregierenden das wüssten, Mann oh Mann. Es ist
+
+aber jetzt recht heiss, wenn wir zwei so darüber reden, weshalb ich beim Berichtreinholen nichts
+niederschreibe und alles auslasse, was von besonderer Bedeutung ist. Dies auch schon deswegen,
+weil ich ja sowieso das Grundlegende nicht nennen darf und daher auch keine Namen. Also werde
+ich zumindest die grundlegenden Fakten weglassen und …
+
+**Ptaah Das musst du natürlich, denn was sich in allem verbirgt, muss verborgen bleiben, folglich**
+muss es sein, dass du die exakten Ausführungen weglässt, wobei das aber doch an den Tatsachen
+nichts ändert. Wenn wir alles darüber preisgeben würden, was den eigentlichen Zusammenhängen
+entspricht, dann würde das Ganze sehr ernst und recht gefährlich. Dass der Ursprung dieser
+entstandenen verwerflichen Forschungen auf eine Idee eines Amerikaners zurückführt, das, so
+denke ich, kann wohl gesagt werden, mehr jedoch nicht. Und wenn sich nun eben alles ereignet
+und von gewissen Leuten in den USA zu behaupten versucht werden wird, die Seuche sei
+natürlichen Ursprungs, dann werden solche Versuche von seiten kommen, die um die Sache
+Kenntnis haben, einiges oder alles wissen, jedoch wie üblich alles zu vertuschen suchen werden,
+wie das ja üblich ist.
+## …
+China wird nicht tun, was es tun müsste, nämlich allen internationalen Verkehr verbieten und die
+infizierten Orte, Bezirke, Fabriken und Geschäfte usw. blockieren, wie auch das öffentliche Leben
+stillzulegen sowie alle notwendigen Quarantänen zu veranlassen. Und da dies nicht getan wird,
+macht sich China der Entstehung der Pandemie schuldig, die ja grundlegend aus einem Pakt
+zweier wirrer Rachsüchtiger hervorgeht, der eine voller politischem Hass, der andere persönlich
+voller Hass gegen die USA, weil … … …
+Wie aber China sich schuldig macht, weil es die Seuche verheimlicht, die bis heute bereits seit
+geraumer Zeit als Epidemie viele Menschenleben kostet, was aber erst in den nächsten Tagen des
+kommenden Monats öffentlich werden wird, so wird dies restlos auch auf alle übrigen Staaten der
+
+
+-----
+
+Erde zutreffen, weil sie fahrlässig und kriminell in gleichem Rahmen handeln und dadurch der
+Pandemie alle Wege öffnen werden, was mehreren hunderttausend Menschen das Leben kosten
+wird. Nebst all dem werden auch diverse neuartige Erkrankungen mit der Verbreitung der Seuche
+entstehen, bis hin zu schweren Leiden bei Neugeborenen, wodurch sich noch nicht absehbare
+Folgen zeitigen können. Und dies, weil alle verantwortlichen Staatsführenden aller Länder
+verantwortungslos und uneinsichtig sowie unfähig zur Weitsicht sind, folglich sie alle ebenfalls
+grosse Schuld am Tod Tausender Menschen im eigenen Land und Hunderttausender weltweit
+haben werden.
+
+## …
+**Ptaah Das ist wirklich so, damit hast du recht, doch das erfordert, dass die laufenden und folgend**
+kommenden weltweiten Geschehen und Vorkommnisse genau zu beobachten und
+
+wahrzunehmen sein werden, was sich eben erdenweit ergibt und wonach auch zu handeln sein
+wird, wobei dies besonders gesundheitliche Faktoren betrifft. In dieser Hinsicht wird zu beachten
+sein, dass sich das Geschehen um die SARS-Krankheit in schlimmerer Weise wiederholt, wovon
+ich bereits am 3. Februar 1995 gesprochen hatte, nämlich dass sich diese in China von der
+südchinesischen Provinz Guangdong aus weit verbreiten werde, wie sich das dann auch
+tatsächlich so ergab. Dass dieser SARS- resp. Lungen-Krankheit-Erreger als sogenanntes CoronaVirus im Jahr 2002 in einem Geheimlabor künstlich erschaffen wurde, und zwar als besonderer
+Keim zum Zweck einer … … …, was natürlich von China ebenso bestritten und mit allen Mitteln
+unterdrückt und verheimlicht wurde, wie das auch gegenwärtig der Fall ist, da seit dem Monat
+Juni sich eine weitere und neu mutierte Form des SARS-Virus ausbreitet, woran schon eine
+grössere Anzahl Menschen gestorben ist. Dass diese Todesfälle jedoch auf den neuen
+Krankheitserreger zurückführen, und zwar auch einem Beschluss aus den 1970er Jahren, … …
+…, **das alles ist der heutigen China-Staatsführung nicht bekannt. Und sie wird es auch nicht**
+wissen, wenn in sechs bis acht Tagen erstmals erkannt werden wird, dass das neue Virus einer
+tödlichen Seuche entspricht, die sich weltweit verbreitet und eine Pandemie hervorrufen wird,
+wobei jedoch in der Öffentlichkeit Chinas und der Welt keine Kenntnis darüber existieren wird,
+dass das Virus bereits seit Juni Todesopfer fordert. Und es wird auch nicht die Rede davon sein,
+dass das Virus unvorsichtigerweise aus einem Labor nach aussen entwichen ist und sich schon
+seit 5 Monaten ausbreitet und auf Menschen und diverse Wildtiere überträgt, weil diese Tatsache
+**eben noch nicht bekannt ist, und zwar auch der chinesischen Regierung nicht, die keinerlei**
+**Wissen vom Ganzen hat und daher auch keine Schuld für die Pandemie zu tragen hat. Das Ent-**
+weichen war unbeabsichtigt, wie schon bei SARS, doch trotzdem wurde die geheime Laborarbeit
+mit diesem mutierten Corona-Virus weitergeführt, folglich nun abermals die gleiche Unvorsichtigkeit geschehen konnte und dadurch im neuen Jahr 2020 viel Unheil mit vielen Toten in einer
+Jahrhunderttausendzahl angerichtet werden und die Seuche auch in diverse andere Staaten verschleppt wird, und zwar insbesondere durch Flugreisende und Schiffstouristen sowie Wirtschaftsbeauftragte usw. Also ergibt sich eine Fortsetzung des mutierenden SARS-Corona-Virus, was
+jedoch nicht mehr in Guangdong erfolgt, weil die Geheimlaborarbeit in ein anderes geheimes
+Labor in einer Stadt namens Wuhan verlegt wurde, wo eben abermals eine Epidemie durch ein
+neues Corona-Virus entsteht, das weit in der Welt verbreitet und viele Tote fordern wird, wenn
+nunmehr in einem Monat das Unheil offiziell seinen Anfang findet, was nicht vermieden werden
+kann. Das unheilvolle neuerlich veränderte resp. mutierte Virus, das … … …, wird aber noch nicht
+dem entsprechen was … … …, folglich es noch nicht … … Grundsätzlich ist mit der bisherig
+entstandenen Mutation des Virus bereits … … … Was sich jedoch zukünftig daraus in
+letztendlicher Weise hinsichtlich der … … noch ereignet, das ist noch nicht genau ersichtlich.
+Vorerst werden zahlreiche Menschen sterben, die geschwächte primäre und sekundäre
+Immunsysteme aufweisen, und das ist unabänderlich, dies, während das Virus mehrfach mutieren
+und gefährliche Veränderungen hervorbringen wird. Diese neuen Genvariationen werden einerseits eine neuartige Krankheit aufbringen, wovon Kinder befallen werden, wie auch andere neue
+Krankheiten entstehen werden, wie z.B. Gefässentzündungen usw., von denen besonders ebenfalls
+Kinder und Jugendliche mit stärker geprägten primären, jedoch noch unterentwickelten sekundären Immunsystemen befallen werden, wie anderseits jedoch auch Menschen jeden Alters von
+neuen Krankheitsaufkommen nicht verschont bleiben, wie weltweit auch mehrere hunderttausend
+Menschen der Pandemie zum Opfer fallen werden. Tatsache ist und bleibt, dass der eigentliche
+Ursprung des SARS-Virus, wie aber auch das neue Corona-Virus auf die geheimen Experimente
+und Forschungen mit chinesischen Hufeisennasen-Flugsäugern (Anm. Billy/Wikipedia: lat. Rhino
+
+-----
+
+lophus ferrumequinum) zurückführen, wie wir zweifellos erforschen konnten. Diese Flugsäuger
+tragen das Corona-Virus in sich, sind jedoch selbst immun dagegen. Gemäss unseren Nachforschungen wird noch heute in China heimlich daran gearbeitet – geheim in Laboren, und zwar …
+**ohne Wissen der Chinaregierung.**
+
+
+-----
+

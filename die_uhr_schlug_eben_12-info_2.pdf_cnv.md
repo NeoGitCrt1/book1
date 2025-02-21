@@ -1,0 +1,2202 @@
+# Die Uhr schlug eben zwölf …
+
+## Daher auch lebensnotwendig für DICH:
+
+#### Info 2
+
+
+-----
+
+**© FIGU 1983/1994/2013**
+Einige Rechte vorbehalten.
+
+Dieses Werk ist, wo nicht anders angegeben, lizenziert unter
+www.figu.org/licenses/by-nc-nd/2.5/ch/
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung**
+**des Urhebers ausdrücklich erlaubt.**
+
+Erschienen im Wassermannzeit-Verlag:
+FIGU, ‹Freie Interessengemeinschaft›, Semjase-Silver-Star-Center, Hinterschmidrüti
+1225, CH-8495 Schmidrüti ZH
+
+
+-----
+
+### EINLEITUNG
+
+ Es ist nicht mehr kurz vor zwölf, sondern …
+
+**die Uhr schlug längst zwölf. Es geht um das Überleben und um die Zu-**
+kunft. Diese sieht jedoch schwarz aus; entweder wird nun tatsächlich etwas
+getan in vernünftiger Form, wodurch der Mensch eine gesunde und bessere
+Zukunft erlebt, oder die Welt und das Leben werden zerstört.
+
+**Die Uhr schlug längst zwölf, und es geht ums Überleben. Den seit vielen**
+Jahren vom Menschen geführten grossen Worten müssen nun endlich die
+Taten folgen.
+Der Erdenmensch hat in seinem Profitsinn und in seiner Eigensucht seinen
+Planeten und alles Leben von Fauna und Flora und von sich selbst an den
+Rand der Existenzzerstörung getrieben. Ganze Landschaften veröden und
+verwüsten oder werden verödet und verwüstet. Ganze Wälder sterben dahin
+durch sauren Regen und Totalrodung; viele Tierarten werden ausgerottet, die
+Menschen, Tiere und Pflanzen vergiftet durch gefährliche, krankheitserregende Gifte und Gase, die auch die Atmosphäre verpesten. Mord, Totschlag
+und Zerstörung herrschen, und wahrheitlich wird nichts oder nur äusserst
+wenig dagegen unternommen.
+Es geht für den Erdenmenschen und für den Planeten sowie für Fauna und
+Flora ums Überleben; und es geht nicht mehr weiter an, dass die vielfach
+schon aufgetretenen Zerstörungen am Planeten Erde, am Leben aller Art in
+Fauna und Flora und beim Menschen weiter durch Lügen und aus Profitgier
+bagatellisiert werden.
+Wir von der FIGU, wir sind fürs Weiterleben, und wir führen den Kampf um
+eine gesündere und dereinst wieder gesunde Erde und Zukunft, und wir
+führen den Kampf, um auch gesundes Leben zu schaffen, so uns dereinst
+unsere Nachkommen nicht mit gutem Grund verfluchen und verdammen,
+weil sie dereinst in uns die Schuld aller Zerstörung und grauenvoller Mutationen sehen würden, die die Zukunft für sie bringen müsste, wenn wir
+weiterhin tatenlos bleiben und nicht alles in gesunde Bahnen lenken.
+Die Schicksalsuhr des Planeten Erde und aller seiner Lebensformen steht
+nicht mehr auf 5 Minuten vor oder auf zwölf, sondern die Zwölfuhrschläge
+verhallten schon längst, dumpf, drohend und die endgültige Zerstörung vorankündend. Wollen wir aber weiterleben und die Zerstörung aufhalten, dann
+müssen wir jetzt tatkräftig und zweckdienlich sehr schnell handeln, und
+zwar so, wie es sicher noch keine Organisation und Regierung getan haben,
+
+
+-----
+
+und bei denen bisher nur viel geredet und sehr wenig und dazu noch unzweckmässig und unlogisch gehandelt wurde.
+Wir von der FIGU wollen für die Erde und ihre Lebensformen ein gesundes
+und kraftvolles WEITERLEBEN – nicht aber nur ein Überleben durch chemische und technische Hilfsmittel in einer sterbenden Welt.
+
+Wir müssen das ganze Übel so deutlich sehen und erkennen, wie dieses tatsächlich ist, und dieses ganze Übel müssen wir direkt an den Wurzeln ergreifen und es ausrotten. Dies jedoch können wir nur mit der tatkräftigen Hilfe
+und Mitarbeit aller verantwortungsbewussten Menschen, die gewillt sind,
+sich und auch ihren und deren Nachkommen eine saubere, gesunde und freie
+Welt zu schaffen, die, recht geführt und bewirtschaftet, ein Paradies ist.
+
+Die Erde war ein Paradies, doch der Mensch zerstörte dieses in Profitgier
+und überbordendem Materialismus. Die Erde kann aber wieder ein Paradies
+sein und das Leben lebenswert für jeden einzelnen Menschen machen,
+wenn wir endlich das in Ordnung bringen, was seit vielen Jahrzehnten vom
+Menschen missachtet und zerstört worden ist. Greifen wir das Übel daher an
+der Wurzel, reissen wir es aus und vernichten es, so uns und unseren Nachkommen ein sauberes, gesundes Leben und ein blühender Planet erhalten
+werde. Noch haben wir Zeit dazu, jedoch nicht mehr lange, denn wird dem
+Zerstörungswahnsinn nicht jetzt wirklich tatkräftig Einhalt geboten, dann ist
+in kurzer Zeit nichts mehr zu retten. Um dem Wahnsinn der bewussten und
+verantwortungslosen Zerstörung des gesamten Lebens des Planeten – der
+Fauna und Flora und des Homo sapiens – Einhalt zu gebieten, dazu bedarf es
+jeglicher erdenklichen, tatkräftigen Hilfe, Mithilfe und Mitarbeit eines JEDEN
+verantwortungsbewussten Menschen.
+
+Viele Politiker und Organisationen befassen sich seit jeher mit
+dem Beheben aller möglichen und von Menschen angerichteten Schäden und Zerstörungen an der Natur und am Wildleben. Luftverpestung, Tierschlächterei, Menschenmassaker,
+Umwelt- und Naturzerstörung, radioaktive Verseuchung, Gewässerverschmutzung und Gewässersterben, chemische Verseuchung von Boden, Pflanzen, Lebensformen und
+Mikroorganismen, Kriege, Revolutionen, Folterungen, Mutationen, Ozonschichtzerstörung und viele andere grauenvolle
+Wahnsinnsübel stehen auf der langen Liste der erdenmenschlichen Unvernunft, Machtgier und Verstandeslosigkeit. Alle
+diese endlosen und tödlichen Übel stehen auch auf den Listen
+
+
+-----
+
+jener Politiker, Organisationen und Grup pen, die sich mit diesen Belangen befassen und endlose Gespräche führen, die
+keine gesunde Frucht und keine Behebung der Übel bringen.
+
+Schon seit Jahrhunderten wird sinnlos und tatenlos geredet, und wenn einmal etwas unternommen wird, dann ist es widersinnig, unlogisch oder nur
+gerade ein Tropfen auf einen glühend heissen Stein. Alles wird diplomatisch
+zu regeln versucht, und jeder fürchtet, dass er bei den Schuldigen ins Fettnäpfchen tritt, wenn er gegen ein Übel angeht. So aber kann es nicht mehr
+weitergehen, denn es reicht die Zeit nicht mehr für endlose und sinnlose
+Palaver sowie unzureichende Gegenmassnahmen zur Behebung der bereits
+angerichteten und noch weiter drohenden Zerstörungen am Planeten Erde
+und an allen seinen Lebensformen sowie an der Atmosphäre und der Gesamtnatur.
+
+**Nur unnachgiebiges und intentionales sowie internationales**
+**sofortiges Handeln in reinster logischer und alles Übel**
+**eindämmender Form bringt Erfolg.**
+
+Dies aber bedeutet, dass nun endlich in richtiger Form gehandelt und vorgegangen werden muss gegen alle vom Menschen erzeugten Übel und
+Zerstörungen, die bereits heraufbeschworen sind oder die noch wie ein tödliches Damoklesschwert drohend über der Zukunft hängen.
+
+**Nur unnachgiebiges und sofortiges Handeln bringt Erfolg!**
+
+Diplomatie und Euphemismus sind dabei so fehl am Platze wie auch sonstige
+heuchlerische Worte und wie unausreichende Aktionen.
+
+**Es geht ums Weiterleben –**
+**nicht ums Überleben mit chemischen und technischen Hilfsmitteln**
+**in einer vom Menschen zerstörten und sterbenden Welt!**
+
+**Wir müssen handeln, und zwar jetzt,**
+**denn bereits morgen kann es zu spät sein,**
+**weil die Schläge der irdischen Schicksalsuhr schon verhallten,**
+**die längst die zwölfte Stunde schlug!**
+
+
+-----
+
+### WER UND WAS IST DIE FIGU?
+
+Die FIGU ist ein Verein mit konsequenten Richtlinien und Satzungen.
+Die FIGU (Freie Interessengemeinschaft für Grenz- und Geisteswissenschaften und Ufologiestudien) ist nach dem schweizerischen Gesetz eine
+NICHTGEWINNBRINGENDE Gemeinschaft, die es sich zur Aufgabe gemacht
+hat, weltweit für den Frieden und das Wissen tätig zu sein. Diese kleine, sehr
+aktive Gemeinschaft, die bereits über ausgezeichnete Verbindungen in die
+ganze Welt verfügt, hat es sich zur Aufgabe gemacht, hinsichtlich aller Grenzund Geisteswissenschaften und aller Lebensbelange sowie der Ufologie
+aufklärend, helfend und belehrend tätig zu sein, um der irdischen Menschheit die Wahrheit hinsichtlich der vorgenannten Wissensgebiete und des
+Lebens nahezubringen.
+Verschiedene der Schriften und sonstigen Lehrmaterialien, die durch die
+FIGU vertrieben werden, sind in Zusammenarbeit mit höheren Geistformen
+und mit extraterrestrischen Lebensformen aus dem System der Plejaren
+entstanden.
+Photos, Filme und andere Materialien wurden namhaften Wissenschaftlern
+zugänglich gemacht und von ihnen untersucht. Alle Untersuchungen haben
+eindeutig ergeben, dass sämtliches von der FIGU als authentisch bezeichnetes Material auch tatsächlich echt und völlig unverfälscht ist.
+Es handelt sich also bei der FIGU um eine durchaus seriöse Gruppe, die
+ihre Studien, Forschungen und Belehrungen auf allen Gebieten mit der
+grössten Gewissenhaftigkeit und Genauigkeit betreibt.
+
+
+-----
+
+### KRISENZEITEN
+
+Schon seit jeher war es so, schon seit allen Zeiten:
+
+Krisen trieben und treiben den Menschen der Erde in die Fänge von Scharlatanen, Channelern, Hellsehern, Kartenlegern, Wahrsagern, Handlinienlesern, Astrologen, Sekten- und Weltuntergangs-Propheten; und leider nur die
+allerwenigsten von diesen von Hilfesuchenden in Anspruch-Genommenen
+handeln integer und ehrenwert oder besitzen überhaupt auch nur die geringsten wahrheitlichen Kenntnisse dessen, was sie gegen gutes Entgelt
+an den sie konsultierenden Gläubigen betreiben. Wahnglaubenserhaltung
+und Wahnglaubensverbreitung ist ihr Handwerk, und daraus profitieren sie
+und schlagen immenses Kapital.
+
+Krisenzeiten sind und waren seit jeher die Wucherzeiten der WahnglaubenProfitierenden, denn Krisenzeiten trieben und treiben die Menschen in Angst
+und Schrecken, und zwar nicht nur jene, die chronisch dem Wahnglauben
+verfallen sind, sondern auch viele jener, die sonst ihre Sinne beisammen
+haben und auf festem, realem Boden stehen.
+
+Krisenzeiten sind Hochburgen der Jenseits-Hochkonjunktur und des Übersinnlichen. Die Parapsychologie und Esoterik treiben den höchsten Blütenstand und verbreiten ihren gefährlichen, betörenden Duft, der sich verwirrend
+und tödlich auf alle jene legt und sie betäubt, die dem Wahnglauben verfallen
+sind und von gewissenlosen Profithaien gnadenlos ausgebeutet werden.
+
+Krisenzeiten: Hochburgen des Wahnglauben-Wahnsinns, vor dem sich leider
+niemand zu genieren braucht, wenn er heute auf dieser verrückten, okkulten Welle mitschwimmt, weil es zu viele gibt, die in der erdenmenschlichen
+Gesellschaft ihr Heil im Irrationalen suchen und nicht in der wahrheitlichen
+Wahrheit, weil viele gewissenlose Profitbesessene mit ihnen selbst unverständ- lichen Fachworten und Kürzeln, wie Esoteriker (= Eingeweihter) und
+PSI (= griechischer Buchstabe; irrationales Schlüsselwort für alles Übersinnliche, das nicht verstanden wird, obwohl es diesbezüglich nichts Unverständliches gibt), ganz locker, profitgierig und gar verbrecherisch sowie
+wahngläubig umgehen, um damit nur ihre eigenen Interessen der Profitgier
+und Macht zu stillen.
+
+Krisen und Krisenzeiten sind die Hochburgen von angeblich ‹Medialbegabten›, die durch eine verrückte Art alternativen Glaubens Abhängiger und Hil
+
+-----
+
+fesuchender zum unlogischen und nicht als falsch erkannten Zuge kommen,
+so der mit Wahnglauben gepflasterte Weg der Gläubigkeit des Menschen
+zum Irrationalen diesem erst recht Vorschub leistet. Der Weg, der so nicht
+zur Wahrheit führt, wird durch diesen Wahnglauben erst recht aufgebaut
+und begangen. Die effective Wahrheit wird übersehen und missachtet.
+Wahrheitliche Prophetien werden weder erkannt noch beachtet, sondern
+achtlos in den Wind geschlagen, denn viel lieber schenkt der Mensch der Erde
+irgendwelchen Scharlatanen, Channelern, Hellsehern, Wahrsagern, Kartenlegern, Weltuntergangs-Verkündern und Sekten Glauben, als die Wahrheit
+jener wissend anzunehmen, die seit alters her die Wahrheit verkündeten
+und künden und die mit logischem Verstande Frieden, Liebe und Wahrheit
+unter die Erdenmenschheit zu verbreiten versuchten und versuchen, wie
+z.B. einst JMMANUEL, genannt Jesus, oder NOSTRADAMUS und wie sie
+alle ihre Namen trugen und tragen.
+
+Besonders Krisenzeiten sind die Hochburgen des Suchens der Erdenmenschen nach der Wahrheit, denn die Wahrheit allein bietet und gewährleistet
+den Menschen Hilfe; und wer also die Wahrheit findet, der findet auch die
+Hilfe, nach der er sucht. Hilfe bedeutet aber für den Menschen, dass er
+selbst tatkräftig für diese und für sich selbst mitarbeiten muss, sowohl als
+einzelner Mensch wie auch als Masse Menschheit. Jeder nämlich bedarf der
+Hilfe des Nächsten, so einer für alle und alle für einen einstehen müssen.
+Dies ist die Wahrheit, denn nur solidarische Einheit macht stark, und nur
+solidarische Einheit bringt Frieden, Fortschritt und Liebe und damit Hilfe für
+jeden, der der Hilfe bedarf. Dadurch aber wird der Mensch wahrheitsträchtig und mächtig in sich selbst, wodurch sich das Wort bewahrheitet:
+
+**Nicht der Mächtige ist mächtig,**
+**sondern der Wissende ist mächtig.**
+
+Ist der Mensch wahrheitsträchtig und also mächtig in sich selbst, dann
+meistert er jede Krise mit spielerischer Hand, ohne durch Wahngläubigkeit
+im Irrationalen bei Channelern, Magiern, Wahrsagern und Kartenschlägern
+usw. sich belügen lassen zu müssen. So hilft also auch in Krisenzeiten nur
+der Weg der Wahrheit, die reine Logik, die Vernunft und der Verstand sowie
+wahrheitliche Liebe und Tatkraft des einzelnen, um den Weg der Hilfe zu
+finden und diesen also auch zu gehen.
+
+
+-----
+
+### ZU ERGREIFENDE UND DURCHZUFÜHRENDE MASSNAHMEN
+
+In der heutigen Zeit erweist es sich mehr denn je, dass den lange leer und
+phrasenhaft dahingesprochenen Worten endlich wirkungsvolle Taten zu folgen haben, wenn der Mensch den drohenden Gefahren noch begegnen will.
+Taten, die koordiniert und logisch gesteuert sind; nicht wilde, unkontrollierte
+Handlungen und Demonstrationen, die keinerlei tatsächliche Änderung herbeizuführen vermögen.
+«Wer Wind sät, wird Sturm ernten» sagt ein altes Sprichwort. Daher will also
+gut überlegt sein, was zu tun ist. Die Massnahmen, die heute ergriffen werden müssen, dürfen nicht mehr nur die Interessen einzelner politischer Gruppen oder Minderheiten berücksichtigen; sie müssen nun derart sein, eine
+globale Zerstörung und Vernichtung zu verhindern!
+Nicht nur einzelne kleinere und grössere Gruppen, nicht nur einzelne Völker
+und einzelne Gebiete und Landstriche sind bedroht, sondern alle Menschen
+dieser Erde sowie die ganze Fauna und Flora und die gesamte Natur. In diesen Tagen hat jeder Mensch für sich zu entscheiden, ob er die Erde wieder
+ihrer eigentlichen Funktion als Trägerin florischen, faunaischen und menschlichen Lebens zuführen will, oder ob er arrogant und verantwortungslos der
+Ansicht sein will: «Nach mir die Sintflut.»
+
+Da die zu treffenden Massnahmen globaler Weite sind, müssen die Eingriffe der FIGU zwangsläufig auch auf allen Lebensgebieten durchgesetzt
+werden, denn eine einseitige Hilfe ist nicht nur ein ‹Tropfen auf einen heissen Stein›, sondern absolut wirkungslos. Da wir aber wirkungslose Unternehmungen für Kraft- und Zeitverschwendung halten, setzen wir unsere
+Aktivitäten sehr umfangreich an:
+
+
+-----
+
+### 1. DER MENSCH:
+
+**a)** **Den Menschen seiner eigenen Verantwortung belehren sowie sei-**
+**ner Verpflichtung zu eigenem verantwortungsbewussten Denken**
+**und ebensolchem selbständigen Handeln:**
+Der Mensch ist ein in jeder Beziehung selbstverantwortliches Wesen.
+Diese Eigenverantwortung bezieht sich vor allen Dingen auf sein Denken
+und Handeln. Für jeden einzelnen Gedanken und jede einzelne Handlung oder Tat ist nur eine einzige Person verantwortlich, nämlich der den
+Gedanken denkende oder die Handlung ausführende Mensch.
+Aus dieser Selbstverantwortung resultiert in logischer Folge auch die Verpflichtung des Menschen, in unbeeinflusster Weise völlig neutral und
+gewissenhaft seine eigene Verantwortung zu tragen und ihr gerecht zu
+werden.
+
+**b) Weltweiter Frieden unter den Menschen**
+Die Schlagzeilen der Presse berichten seit Jahren beinahe täglich über
+Kriege und Revolutionen, Umstürze und Putsche. Diese Meldungen haben
+sich in den letzten Jahrzehnten derart gehäuft, dass sie dem Menschen
+bereits zur Gewohnheit geworden sind und ihn nicht mehr weiter stören
+und nicht nachdenklich machen.
+Frieden ist nicht nur ein Wort, sondern ein Begriff von immensem Wert.
+Wie schön könnte es daher sein, wenn auf der ganzen Welt Frieden
+herrschen würde, und wie lebenswert wäre dann unser Leben! Der Weltfrieden aber beginnt im kleinen. Niemals kann der Mensch auf der Erde
+Frieden schaffen, wenn er im eigenen Hause und in seiner persönlichen
+Umwelt ‹Krieg› führt. Zuerst muss er dort und in sich selbst Frieden
+schaffen, dann mit seinen Freunden, Verwandten und Bekannten und in
+der alltäglichen Begegnung im Beruf und in der Freizeit. Die Bemühung
+um einen Weltfrieden muss im kleinen beginnen und dann sich erweiternd
+fortsetzen. Das verlangt ein Zusammenschliessen im kleinen, ohne Rücksicht auf die Weltlage und niederträchtige Geschehnisse.
+Immer wieder treten ‹Staatsmänner› und ‹Führer› auf, die ihre Völker aufzuwiegeln versuchen gegen andere Völker und Rassen und die den Menschen die Sinne verdrehen. In dieser Beziehung muss sich der Mensch
+selbst am nächsten stehen und seine Ohren vor den Sirenengesängen
+der Kriegshetzer verschliessen; denn: Ohne Menschen, die sich aufhetzen
+lassen, gibt es keine Hetzerei und also auch keine Kriege. Erst wenn
+jeder Mensch in sich selbst diese Hürden genommen hat, kann er beginnen, den Frieden in die Welt zu tragen.
+
+
+-----
+
+Von uns wird eine übernationale, weltweite und intentionale Vereinigung
+angestrebt, eine multinationale Friedens-Kampf-Truppe, die über alle
+Geschehnisse auf der Erde wacht und deren Aufgabe es sein soll, Frieden zu schaffen und das Bestehen des Friedens zu kontrollieren und zu
+sichern. Dadurch, und nur dadurch, kann es einmal Frieden auf unserer
+Welt geben, der dann beständig sein wird.
+
+**c)** **Liebe unter den Menschen**
+Jegliche Art von Liebe unter den Menschen ist getragen von Ehrfurcht
+gegenüber dem Nächsten und gegenüber sich selbst; getragen von gesundem Verantwortungsbewusstsein und Verständnis, von Ehrlichkeit
+und vom Bewusstsein dessen, dass alles Lebendige mit ein Teil der eigenen Existenz ist.
+Mit anderen Worten:
+Liebe ist die absolute Gewissheit dessen, selbst in allem mitzuleben und
+mitzuexistieren, so in allem Existenten: In Flora und Fauna, im Mitmenschen, in jeglicher materiellen und geistigen Lebensform gleich welcher
+Art, und im Bestehen des gesamten Universums und darüber hinaus.
+
+**d) Selbständigkeit**
+Der Mensch,will er wirklich Mensch sein, darf seine Selbständigkeit niemals aufgeben. Er muss von allen Modeströmungen und Trends unabhängig bleiben und selbständig das ausführen, was er und nur er vor sich
+selbst und vor dem Leben als solchem verantworten kann. Nur neutrales
+und ausgeglichenes Denken und Handeln befähigen den Menschen dazu,
+sich eine wirkliche Selbständigkeit zu erarbeiten und zu erhalten.
+
+**e)** **Ehrfurcht vor allem Leben**
+Alles Leben, auch das kleinste und unscheinbarste, obliegt seinem Zweck
+und seiner Aufgabe. Überdenkt der Mensch diese Tatsache gewissenhaft,
+wird er verlernen, sich leichtfertig und rücksichtslos über andere Lebensformen hinwegzusetzen und seinem Profit die erste Stelle in seinem
+Denken einzuräumen. Wird sich der Mensch klar, dass er mitverantwortlich ist für alles Leben, dass alles Leben von jedem einzelnen abhängig
+ist, dann kann es nicht ausbleiben, dass er sich auf die Ehrfurcht vor
+dem Leben zurückbesinnt.
+
+**f)** **Verhütung von Kriegen und Revolutionen**
+Kriege und Revolutionen können nur durch eine übernationale Vereinigung
+verhindert werden, die ermächtigt ist, einerseits durch breit angelegte
+
+
+-----
+
+Aufklärungen und andererseits durch direkte Eingriffe auf internationaler
+Basis einen bleibenden Frieden zu erbringen.
+
+**g) Vernünftiges und gesundes Leben**
+Vernünftiges und gesundes Leben, Leben, das den Menschen psychisch
+und physisch gesund und kraftvoll erhält, kann nur durch die Belehrung
+neutraler und ausgeglichener Denk- und Lebensweisen gewährleistet
+werden. Der Mensch muss lernen, dass sein Egoismus absolut unwichtig
+ist gegenüber dem Bestehenmüssen der gesunden Gemeinschaft aller
+Menschen auf dieser Erde. Funktioniert die Gemeinschaft aller Menschen
+in gegenseitigem Frieden und in Solidarität auf der ganzen Welt, dann
+können auch gesunde und vernünftige Lebensweisen für jeden einzelnen Menschen gewährleistet werden.
+
+**h) Todesstrafe**
+Todesstrafe für Lebensformen, die ein Vergehen oder Verbrechen begangen haben – ja oder nein? Eine Frage, die für einen gesund und verantwortungsbewusst denkenden Menschen überhaupt keine Frage ist,
+weil ein gesundes und verantwortungsbewusstes Denken von vornherein
+einen solchen Gedanken ausschliesst.
+Geschieht ein Verbrechen, dann erfolgen Geschrei und Zorn der Betroffenen und auch der Unbeteiligten. Schreie und Stimmen nach der Todesstrafe werden laut, denen gemäss jener Mensch mit dem Tode bestraft
+und vom Leben ins Jenseits befördert werden soll, der sich des Vergehens
+oder Verbrechens schuldig gemacht hat. ‹Abgemurkst› sollen die Schuldbaren werden, ‹gevierteilt, aufgehängt, erschossen, ersäuft, geköpft, lebendig gebraten, gesteinigt, in Öl gesotten und in Streifen geschnitten›.
+So fallen die Reaktionen beim einzelnen und im Volke aus, wenn Empörung, Hilflosigkeit, Angst und Zorn sich ob eines Vergehens oder eines
+Verbrechens eines Menschen der Mitmenschen bemächtigt. Ein Schrei
+nach Rache und bösartiger Vergeltung, hervorgestossen von Menschen,
+die besser sein wollen als jener, welcher sich des Vergehens oder Verbrechens schuldig gemacht hat. Doch sind diese Todesstrafeschreier und Todesstrafevertreter tatsächlich besser als jene, die sich eines Vergehens
+schuldig machen? Nein, im Gegenteil; jene nämlich, welche die Todesstrafe befürworten, fordern oder gar durchführen, sind nicht besser als die
+Delinquenten. Sie sind sogar noch schlimmer und verbrecherischer als
+jene, welche ihres Vergehens oder Verbrechens wegen des Todes sterben
+sollen. Menschen, die die Todesstrafe fordern, befürworten oder durchführen, sind im Grunde ihres Herzens feige, überheblich, selbstherrlich,
+
+
+-----
+
+voller Angst und zudem profitgierig. Ihr Denken ist krankhaft verantwortungslos und vernunftsabgängig, wodurch Zorn, Angst, Empörung und
+Hilflosigkeit von ihnen Besitz ergreifen können, sobald ein Geschehen ihre
+Gedanken beschäftigt, das ihre Kräfte übersteigt, weil ihr Denken und dessen Kraft noch zu primitiv sind, um sich verantwortungs- bewusst damit
+auseinandersetzen zu können.
+Die Todesstrafe stellt niemals eine Sühne dar, sondern einzig und allein
+die primitivste und verbrecherischste Art von Rache und Genugtuung
+primitiver, verbrecherischer, vernunfts- und verantwortungsloser Menschen, deren Intelligenzquotient und Menschlichkeit weit unter derjenigen des Delinquenten liegen, der für seine ruchlose Tat vom Leben zum
+Tode befördert werden soll oder wird. Ob nun der Befürworter oder
+Ausführende der Todesstrafe ein Henker, ein Richter oder Rechtsanwalt, eine Hausfrau, ein simpler Arbeiter oder ein Bettler ist, in jedem Fall
+zeugt die Befürwortung, Forderung oder Ausführung der Todesstrafe
+von grenzenloser Primitivität, Dummheit, Profitgier, Sektierertum, Bösartigkeit, Blutrünstigkeit, Verantwortungslosigkeit, vom Unvermögen
+vernunfts- und verstandesmässigen Denkens und von primitivster emotionaler Unzulänglichkeit.
+Befürworter und Ausübende der Todesstrafe sind Menschen, deren eigene
+Primitivität noch soweit abgründig ist, dass sie weder mit sich selbst
+noch mit der Umwelt in Harmonie und Zufriedenheit zu leben vermögen.
+Ihr egoistisches Denken ist noch derart primitiv ausgeprägt, dass sie von
+hosenvollmachender Angst, Empörung, Zorn und Hilflosigkeit und von
+Rachsucht und Hass befallen werden, wenn ein Unrecht geschieht, das
+sie selbst oder ihnen auch Unbekannte betrifft. Schlagartig kommt ihre
+stets unterdrückte Primitivität und Blutlüsternheit in solchen Momenten
+zum Ausdruck, der sie selbst freien Lauf liessen, wenn sie nur könnten
+und wenn ihnen die Gesetze des Staates dies erlauben würden. Nur ihre
+(auch in dieser Beziehung) vorherrschende Angst und Feigheit vor dem
+Gesetz und vor sich selbst bewahrt sie vor der Befriedigung ihrer eigenen
+und in ihnen schlummernden Blutrünstigkeit, der sie bedenkenlos frönen
+würden, wäre ihnen die Angst und Feigheit genommen und der Weg
+dazu geebnet. In ihnen schlummert bösartigere und grausamere Mordlust und Blutrünstigkeit in potentieller Form, als dies der Fall sein kann
+in einem krankhaft veranlagten Mörder, der als Triebtäter handelt.
+Ein Triebtäter als Mörder ist krank, und ein Affekttäter als Mörder ist
+seiner Sinne nicht mehr mächtig bei der Ausführung einer Tat. Ein Mörder
+aus Gewinnsucht oder Eifersucht usw. ist ebenfalls krank; und alle bedürfen sie humaner Hilfe, die angemessen und mit einer entsprechen
+
+-----
+
+den Sühne verbunden sein muss. Ein Verbrecher jeder Art ist stets irregeleitet und zumindest krank in seinem Denken, wobei nicht zuletzt die
+Gesellschaft und der ganze Staat selbst Schuld tragen und mitverantwortlich sind. Schuld und mitverantwortlich darum, weil nicht die erforderlichen Vorbeugungsmassnahmen getroffen werden und weil nicht
+die massgebende Lehre unterrichtet und Gesetze und Überwachung
+geschaffen werden, die ein Verbrechertum unterbinden und im Keime
+ersticken würden. Schuld und mitverantwortlich auch darum, weil die
+Gleichgültigkeit zum Nächsten von derartiger Kaltschnäuzigkeit und
+Ausgeprägtheit ist, dass bereits der Gedanke an Nächstenliebe eisig erfrostet und gefriert, ehe er auch nur aufkommen kann.
+Ein Verbrecher handelt stets als Kranker, der Dieb genauso wie der Mörder oder Selbstmörder. In jedem Fall beruht nämlich eine verbrecherische
+Handlung stets und einzig und allein auf einem falschen und somit kranken Gedankengang, auch wenn ein Verbrechen zum voraus minutiös
+geplant wird. Das Denken des verbrecherisch handelnden Menschen
+ist anormal und logikfremd, so also nur von einer Krankheit diesbezüglich
+gesprochen werden kann, auch wenn noch soviel Schlauheit und Intelligenz hinter einem Verbrechen stecken. Krankheit jedoch ist heilbar,
+auch wenn es sich um eine Verbrechenskrankheit handelt. Der Schwerpunkt der Heilbarkeit einer Verbrechenskrankheit liegt dabei in der Sühne,
+der ein fehlbarer Mensch zu obliegen hat, wenn er sich eines Verbrechens schuldig machte. Sühne aber bedeutet, dass ein sich einer strafbaren Tat schuldig gemachter Mensch der Unlogik und Schuldbarkeit
+seiner Tat bewusst wird und sich in gesunde Denkbahnen bewegen
+kann, und zwar dadurch, dass ihm das Fehlbare seiner Tat und seines
+kranken Denkens bewusst gemacht wird. Durch Belehrung und Lernen
+hat ein Fehlbarer seine Schuld und sein Falschdenken zu erkennen und
+sich zu wandeln zur wahrheitlichen und gesetzerfüllenden Lebensform
+Mensch. Dass dabei und bei diesem Vorgang ein fehlbarer Mensch für
+eine angemessene Zeit aus der Gesellschaft ausgesondert zu sein hat,
+versteht sich als Selbstverständlichkeit, denn eine Sühne könnte nicht
+zustande kommen, wären einem Fehlbaren alle Freiheiten gewährt, die
+jenen zugesprochen sind, die sich eines Fehls nicht schuldig machen.
+Ein Verbrecher jeder Art ist also stets ein Kranker, der aus einem Denkvorgang heraus handelt, der unlogischer und irrealer Natur ist. Also bedarf
+er der Hilfe der Mitmenschen, der Hilfe des gesamten Staates, so er
+Sühne erdulden und Sühne begehen kann. Also ist ein Verbrecher ein
+hilfsbedürftiger Mensch, dem als Hilfe die Möglichkeit der Sühne geboten
+werden muss, wie dies die Gesetze eines jeden Staates fordern. Sühne
+
+
+-----
+
+aber kann in jedem Fall nur dann sein und durchgeführt werden, wenn
+einem fehlbaren Menschen die Möglichkeit zur Sühne gegeben wird, in dem er aus der Gesellschaft und aus deren Freiheiten ausgesondert und
+der wahrlichen Wahrheit und damit auch des richtigen und gesunden und
+gesetzerfüllenden Denkens belehrt wird. Wird ein Fehlbarer aber für seine
+Tat mit dem Tode bestraft, dann erfolgt damit eine rachefordernde Strafmassnahme, die jeglicher Sühne entbehrt und die auch jegliche Möglichkeit einer Sühne von vornherein zerstört. Und solche Todesstrafen
+werden von Menschen gefordert, bestimmt und durchgeführt, die in der
+Regel völlig unbeteiligt sind an einer begangenen verbrecherischen Tat.
+Ihr Sinnen, Bestimmen und Fordern einer Todesstrafe und auch deren
+Durchführung beruhen in diesen Menschen auf Gedanken blutlüsterner
+und blutgieriger Rache, auf Angst und Feigheit sowie Profitgier, weil auch
+sie vielleicht durch ein ähnliches Verbrechen zu Schaden kommen könnten. So fordern und geben Menschen für andere den Tod um ihrer eigenen Feigheit, Angst und Profitgier willen und um ihre eigene
+Unzulänglichkeit, Fehlerhaftigkeit und Blutgier sowie die Machtambitionen zu verdecken. Dass aber gerade durch die Forderung und Befürwortung und gar durch die Durchführung der Todesstrafe all diese primitiven
+Eigenschaften der Todesstrafeschreier erst recht zum Ausdruck kommen
+und erkennbar werden, das vermögen sie in ihrer grenzenlosen Dummheit nicht zu erkennen. Während Verbrecher oft recht grosse Intelligenz
+aufweisen, trotz ihres krankhaften Denkens, das für ihr Verbrechen ja ausschlaggebend ist, leiden die Todesstrafeschreier an rettungsloser Dummheit, Primitivität und Selbstherrlichkeit, was sie des irren Glaubens macht,
+dass sie besser seien als die fehlbaren Verbrecher. Niemals geht ihnen
+aber das Licht auf, dass sie in ihrer primitiven Dummheit, Angst, Feigheit
+und Profitgier bewusst rachsüchtig und blutgierig handeln, denken und
+reden, wodurch sie zu sehr viel fehlbareren Verbrechern werden als jene
+es sind, welche in krankem Denken ein Verbrechen begehen.
+Jeder Staat lebt unter der Existenz von ordnungserhaltenden Gesetzen.
+Darunter sind auch Gesetze, die für strafbare Handlungen Sühne fordern,
+damit auch diesbezüglich Ordnung erhalten oder erbracht werde, und
+damit Fehlbare einem Sühneverfahren eingeordnet werden können, das
+sie dereinst zum gesunden und richtigen Denken, Handeln und Leben
+führt. Je primitiver ein Volk oder ein Mensch nun ist, desto unlogischer
+und unmenschlicher und unwahrheitlicher sind seine Gesetze und das
+Verständnis der Sühne für ein Verbrechen. Und nachweisbar ist auch: Je
+sektiererischer und religiöser ein Volk oder ein Mensch ist, desto primitiver und unwahrheitlicher ist er in seinem Denken, Handeln und Leben
+
+
+-----
+
+und desto primitiver ist er im Verstehen und in der Anwendung einer
+Sühne für ein be gangenes Verbrechen.
+Nur der religiös-sektiererische Mensch, dessen Primitivität ein Verstehen
+des Denkens, Handelns und Lebens in gesetzmässiger Form noch nicht
+zulassen, vermag statt zweckmässiger Sühne für ein Vergehen oder
+Verbrechen eines Menschen rachsüchtig und blutgierig dessen Leben
+zu fordern.
+Wie die Todesstrafe vor vielen Jahrtausenden blutrünstig als OpferungsZeremoniell und danach als rächende Strafe eines religiös-sektiererischen
+Kultes erfunden und ausgeübt wurde, hat sie seither in allen Religionen
+und Sekten sowie Staatsgefügen Einlass gefunden; seither stets vertreten, gefordert und durchgeführt von verantwortunglosen Elementen
+primitivster Entwicklungsstufen. Elemente, die sich grössenwahnsinnig
+Mensch nennen, die wahrheitlich diese Bezeichnung noch nicht verdienen; denn wie könnte ein wahrlicher Mensch sich jemals über alle schöpferischen und natürlichen Gesetze hinwegsetzen und sich erdreisten,
+über Leben und Tod einer anderen Lebensform zu Gericht zu sitzen und
+zu urteilen? Primitive Dumme, die zudem sektiererisch angehaucht und
+eines vernunftträchtigen Denkens noch nicht fähig sind, können allein
+dies tun, ganz egal, ob es sich dabei um einen Bettler, um eine Hausfrau,
+um einen Richter oder um einen Rechtsanwalt oder Bundespräsidenten
+oder Diktator handelt. Wären sie wahrliche und gesetzestreue Menschen
+nach den schöpferischen Gesetzen, dann würden sie weder Rache fordern
+noch über Fehlbare urteilen, sie verurteilen und Strafe fordern, sondern
+sie würden über Fehlbare nur zu Rate sitzen und die erforderliche Sühne
+und deren Zeit und Weg bestimmen. Die primitiven Dummen jedoch sitzen über Fehlbare zu Gericht und bestimmen, sinnen und fordern rächen de Strafe und deren Durchführung, obwohl ihnen seit alten Zeiten
+bekannt ist, dass gesagt wurde:
+
+«Richtet nicht, damit ihr nicht gerichtet werdet.»
+
+und
+
+«Mit welchem Masse ihr richtet, mit demselben Masse
+werdet auch ihr gerichtet werden.»
+
+Das Handeln und Denken der primitiven Dummen gibt ebenso zu denken
+wie auch die altgesagten Worte über das Richten. Doch um dieses Denken und Handeln kümmern sich nur wenige Rechtschaffene. Das Gros
+
+
+-----
+
+der Völker glaubt besser zu sein als die Fehlbaren, die rächender Strafe
+zugeführt werden; und solches Denken herrscht nicht nur vor in Staaten,
+wo Unrecht vor Recht ergeht, sondern auch in Staaten, wo Recht vor Unrecht ergehen sollte, wie z.B. in sogenannten Rechtsstaaten, in denen
+Gesetze herrschen, die, durch das Volk gegeben, Sühne statt rächende
+Strafe fordern und propagieren. Wie käme es denn sonst, dass z.B. in
+Rechtsstaaten, wie in der Schweiz und in Deutschland, Stimmen von Bürgern aller Professionen wie Hausfrauen, Arbeitern, Ingenieuren, Rechtsanwälten, Richtern, Polizisten usw. usf. laut werden, dass Verbrecher mit
+dem Tode bestraft werden sollen! Leider nur zu schnell und zu oft werden
+nach einem Verbrechen Stimmen und primitive Phrasen laut, wie: «Wenn
+man den Verbrecher umlegt, dann muss man ihn nicht noch lange füttern» oder: «Solche Schweine muss man foltern und vierteilen» usw. Ist
+da die Frage nicht berechtigt, wenn man sich als denkender Mensch
+überlegt: «Wer ist da nun besser: Der Verbrecher oder derjenige, welcher
+rächende und blutrünstige Strafe fordert?»
+In erster Linie ist die Todesstrafe genau das, was sie besagt, nämlich
+eine Strafe in rächender Absicht und Form. Eine rächende Strafe; erdacht,
+gefordert und durchgeführt von reissenden und blutrünstigen Bestien,
+die in ihrem Denken und Handeln schlimmer sind als ein Raubtier, das
+nicht mehr aus Selbsterhaltungstrieb tötet, sondern das zum ‹Maneater›
+wurde, weil es die Leichtigkeit des Reissens der menschlichen Beute erkannte. Die Härte der Todesstrafe rechtfertigt niemals deren Anwendung,
+geschweige denn auch nur einen Gedanken an eine solche Rache. Durch
+die Todesstrafe wird einem Delinquenten jegliche Möglichkeit einer
+Sühne genommen, denn nach der Vollstreckung des Todesurteiles ist
+für ihn alles, aber auch wirklich alles einfach vorbei. Er ist tot, durch die
+primitiven Dummen und Rachsüchtigen und Sektierer, die sich an einem
+offiziellen Mord durch ein gerichtliches Todesurteil erfreuen und ergötzen,
+sich stark und gross fühlen und schreien: «So, jetzt ist mir wohler, denn
+diesem Schwein haben wir es gegeben», frei nach dem Prinzip kleiner,
+unmündiger Kinder, deren Verstand noch nicht weit reicht, die da dem
+Nachbarn mit einem Stein die Scheibe einwerfen und rufen: «Dem habe
+ich es aber gegeben, der beschimpft mich nicht mehr, nur weil ich ihm
+einen Apfel vom Baum geklaut habe.»
+Wenn der Mensch von einem fehlbaren Mitmenschen schon Sühne verlangt für eine gesetzwidrig begangene Tat, dann kann er dafür niemals
+eine rächende und zudem noch blutrünstige Strafe fordern und erteilen,
+sondern es muss dem Fehlbaren gemäss dem natürlich-schöpferischen
+Gesetz die Möglichkeit der Sühne und der Sühneerfüllung eingeräumt
+
+
+-----
+
+werden. Sühne aber bedeutet, wie auch die menschlichen Gesetzgebungen dies besagen, dass ein fehlbarer Mensch für ein Verbrechen Busse
+tun soll. Dies aber besagt wiederum, dass einem fehlbaren Menschen jahrelang die Möglichkeit eingeräumt werden muss, dass er diese Busse tatsächlich auf sich nehmen und tun kann, dasser nämlich während Monaten
+oder Jahren oder gar während eines ganzen Lebens darüber nachdenken
+kann, was er Falsches oder Verbrecherisches getan hat, um daraus zu lernen und seine Gedanken, sein Handeln und Leben in gesunde Bahnen
+auszurichten, um ein wahrlicher Mensch zu werden. An einsame Orte verbannt oder in einer kleinen Zelle eingeschlossen, zwanzig oder fünfundzwanzig Jahre, oder gar für das restliche Leben, mit sich und seinen
+Gedanken allein, hat der Fehlbare Tag für Tag an seiner schrecklichen Last
+zu tragen, die er auf sich geladen hat, bis zu dem Tag, da er durch die Möglichkeit der ihm gewährten Sühne sagen kann: «Ja, ich habe über meine
+Tat nachgedacht und erkannt, dass mein Tun verbrecherisch gegen das
+Leben und die Mitmenschen und wider alle Gesetze war. Ich habe die
+Wahrheit erkannt und bereue meine einstige Tat bitter. Ich bitte darum,
+dass man mir mein damaliges Handeln vergeben möge.»
+
+Der Strafvollzug ist vom Menschen nicht erschaffen und ausgedacht worden, um rächende Strafe an einem Fehlbaren zu nehmen
+und um rächende Strafe zu üben, sondern um den Straftätern zu
+helfen, sie der wahrlichen Gesetze des Lebens und der menschliche Ordnung zu belehren und sie eines gesunden Denkens zu
+machen, damit sie Mensch werden.
+
+Die Todesstrafe hat noch niemals vor Verbrechen abgeschreckt, auch
+nicht vor Mord. Dies ist eine Tatsache, die weltweit seit Menschengedenken ihre Bestätigung findet. Tatsache ist aber auch, was ebenfalls
+beweisbar ist, dass in Ländern, in denen die Todesstrafe abgeschafft
+wurde, bis zum heutigen Tage die Kriminalität nicht weiter angestiegen
+ist. Dies jedoch muss verhältnismässig gesehen werden, berechnet je
+nach Zunahme der weltweit anhaltenden Bevölkerung. Sind so z.B. 3%
+Kriminelle unter 100 Personen, dann sind dies 3 Kriminelle. Bei 10 000
+Personen treten dann 300 Kriminelle in Erscheinung und bei 100 000
+Personen deren 3000. Die Kriminalität steigt also nur scheinbar, denn
+wahrheitlich bleibt sich der Prozentsatz praktisch unverändert gleich.
+Allein die stetige und rapide Bevölkerungszunahme bringt es mit sich,
+dass scheinbar mehr Kriminelle auftreten, ohne dass damit aber die
+Kriminalität prozentual wirklich ansteigt.
+
+
+-----
+
+Die Todesstrafe hat keine abschreckende Wirkung, denn wohl kaum ein
+Verbrecher denkt in seinen kranken Gedanken daran, was wohl mit ihm
+geschehen wird, wenn er in den Gewahrsam der Justiz gerät. Tatsache
+ist nämlich, dass ein Verbrecher in seinem kranken Denken stets damit
+rechnet, dass er schlauer sei als die Ordnungshüter und die Obrigkeit
+und dass er deshalb sowieso niemals erwischt würde. Wieso aber soll
+ein Verbrecher durch eine drohende Todesstrafe abgeschreckt werden,
+wenn er in seinem kranken Denken davon überzeugt ist, dass er niemals
+erwischt würde?
+Denkt ein Verbrecher aber schon einmal an die Möglichkeit, dass er für
+seine ungesetzliche Tat die Rache der Mitmenschen, die Todesstrafe
+zu gewärtigen hat, dann ist seine Einstellung die (und auch das ist nachweisbar), «… dann ist eben für mich alles zu Ende und ich habe meine
+Ruhe. Sollen die mich doch ruhig umlegen und meinen Dreck noch unter
+die Erde bringen. Wichtig ist mir nur, dass ich noch diese und jene in die
+Hölle schicken konnte. Die Idioten, sollen sie mich umlegen, dann muss
+ich nicht ein Leben lang hinter Gittern verbringen.» Und tatsächlich, die
+primitiven Dummen leisten solchen Verbrechern ebenso Vorschub,
+einer Sühne für Mord und Totschlag usw. nicht eingeordnet werden zu
+müssen, wie sie ihnen zu einem Freipass zur Nichttragung der Verantwortung und Nichtertragung der Sühne für die ruchlose Tat verhelfen,
+wobei sie auch im andern Falle jenen die Möglichkeit der Sühne nehmen, die einer solchen zugänglich wären.
+
+Des Menschen Pflicht ist, seinen Nächsten zu lieben, ihm beizustehen und zu helfen, ganz egal wer und was der Nächste auch
+ist und wessen er sich schuldig oder nicht schuldig gemacht hat.
+So besitzt niemals ein Mensch das Recht, über den Nächsten zu
+Gericht zu sitzen und über ihn zu urteilen. Recht ist nur, über einen
+fehlbaren Nächsten ratend zur Beurteilung zu sitzen, um für ihn
+alle Möglichkeiten der menschlich erdenklichen Hilfe zu ergründen
+und ihm diese angedeihen zu lassen.
+
+Ein jeder Befürworter oder Ausübender/ Vollstrecker einer Todesstrafe
+ist ein heimlicher oder offenkundiger faktischer Mörder, schlimmer ausgeartet als der kranke Verbrecher, der sich ebenfalls des Mordes schuldig macht. Faktischer Mord, heimlicher oder offenkundiger Art, ist eine
+jegliche Befürwortung oder Vollstreckung eines Todesurteiles, ganz egal,
+ob ein staatlich-gerichtliches Urteil dahinter steht oder nicht. Faktischer
+Mord ist und bleibt auch die Befürwortung und Vollstreckung des Tö
+
+-----
+
+tens exekutiver Art bei Kriegshandlungen, Revolutionen, Demonstrationen, Terror- und Anarchistenhandlungen, so aber auch das Hilfeverweigern bei gefährdetem Leben im Privatbereich. Und nicht zuletzt fallen
+auchTötungen von Menschen unter faktischen Mord, die aus religiös-sektiererischen Gründen aller Art begangen werden.
+Einzig und allein das Gesetz der absoluten Notwehr erlaubt das Töten
+eines Menschen, und also nur dann, wenn ein solches Töten in einem
+reinen Verteidigungsakt geschieht. Nur reine Notwehr in einer Verteidigung spricht von Schuld frei bei einer Tötung eines Menschen.
+Tötet der Mensch seinen Nächsten exekutiv in Kriegs- oder Revolutions handlungen usw., oder er befürwortet auch nur ein solches Töten oder
+weiht Waffen dafür, wie dies verschiedene Religionen tun, dann ist auch
+dies eindeutiger faktischer Mord. Kriegs- und Revolutionshandlungen
+aller Art stellen niemals Notwehr und Verteidigung dar, denn wenn sich
+schon Menschen zu Militärs und Revolutionären zusammenrotten, dann
+tun sie dies bereits in vollumfänglicher faktischer Mordabsicht, mit dem
+Gedanken zum Töten der Nächsten, wenn ein Angriff eigener oder fremder Initiative erfolgen sollte. Nicht denkt ein Militär oder Revolutionär wahrheitlich daran, den eventuellen Feind gefangenzunehmen oder sonstwie
+auf menschliche und untöd liche Weise auszuschalten, sondern es wird
+der Gedanke des Tötens gepflegt und gezüchtet. Militärs und Revolutionäre arbeiten wissentlich auf die Feindtötung hin, niemals jedoch auf
+eine menschliche und nicht lebensgefährliche Ausschaltung des Feindes.
+Aus diesem Grunde werden auch nur Waffen erzeugt und verwendet,
+die den Nächsten zu töten vermögen, wodurch die Absicht ganz eindeutig klar wird, dass getötet werden will und dass damit auch faktische
+Mordabsicht besteht. Insbesondere zur heutigen Zeit sind die Technik
+und Chemie und sonstige Wissenschaften aber bereits soweit, dass eine
+sogenannte Verteidigungsarmee keine mörderische Tötungswaffen
+mehr benötigen würde, die nur Tod und Zerstörung bringen, sondern dass
+sie sich mit reinen Verteidigungswaffen eindecken und nur diese zur
+Anwendung bringen könnten, wodurch keine Menschenleben gefährdet und tatsächlich nur reine Verteidigungshandlungen bei einem Angriff
+durchgeführt würden. Dies wird aber nicht getan, folglich nur das Töten
+des Feindes zur Sprache, Ausbildung und Anwendung kommt, wodurch
+faktischer Mord gegeben ist; und wer dies noch mit seinem Gewissen
+verein baren kann, der verdient wohl auch den Namen Mensch nicht.
+Nachweisbar lassen tötungswillige Menschen bei jeder Gelegenheit ihren
+Ausartungen freien Lauf, und wo liesse sich das besser tun als bei Kriegsund Revolutionshandlungen! In Kriegs- und Revolutionszeiten lassen ganz
+
+
+-----
+
+besonders jene Menschen ihren Ausartungen freien Lauf, die die Todesstrafe befürworten; eine nachweisbare Tatsache. Ihre Ausartungen kennen keine Grenzen mehr, wenn sie die Möglichkeit der Freilassung ihrer
+Triebe und des legalen Mordes erhalten; und die grausamen Ausartungen
+und Massenmorde dieser Elemente sind weltweit ausreichend bekannt,
+weshalb darüber wohl nicht mehr gesagt werden muss.
+Nun muss aber nochmals ein kurzes Wort zur bereits angesprochenen
+angeblichen Kriminalitätssteigerung gesprochen werden: Auch wenn
+gesagt und nachweisbar ist, dass die Kriminalität nicht steigend ist, sondern sich nur gemäss der Bevölkerungszunahme erweitert, so ist doch
+zu beachten, dass zu gewissen Zeiten doch eine Kriminalitätssteigerung
+stattfindet, nämlich immer dann, wenn Krisen die Staaten bedrohen und
+einengen und die Bürger Not zu leiden beginnen. Zu diesen Zeiten wird
+zur kriminellen Selbsthilfe gegriffen und wiederum in der Regel von jenen,
+welche Befürworter der Todesstrafe sind. Jene, die andere für Schandtaten mit dem Tode bestrafen oder dies tun wollen, sie sind es dann in
+Notzeiten, die nur ihren eigenen Profit sehen und kriminelle Handlungen
+begehen – vom Diebstahl bis zum Mord, vom Mundraub bis zur Plünderung, und von der Verleumdung bis zur Leichenfledderei. Eine Tatsache,
+die nicht von der Hand zu weisen und bestätigt ist und die ganz verdammt
+zu denken gibt.
+
+**i)** **Abtreibung**
+Von Geburtenregelung ist die Rede, von der Verantwortung des Menschen, nicht zu viele und vor allen Dingen keine unerwünschte Kinder
+mehr ins Leben zu setzen. Es ist auch die Rede davon, dass die Frau
+‹Herrin sein will über ihren eigenen Bauch›. Muss man dazu aber wirklich
+gleich zum verantwortungslosen Mörder und zur Mörderin werden?
+Jede Abtreibung einer Frucht nach der dritten Schwangerschaftswoche
+ist Mord, wenn nicht massgebende Gründe vorliegen, die einen
+Schwangerschaftsabbruch rechtfertigen, wie z.B. Gesundheitsgefährdung der Mutter, Trunk-, Drogen- oder Medikamentensucht eines Elternteiles, soziale Missstände oder Unfähigkeit der Eltern oder eines
+Elternteiles, Kindererziehungsunfähigkeit, Rassismus, Fremdenhass
+oder Krimina lität der Eltern oder eines Elternteiles, Betrunkenheit der
+Eltern oder eines Elternteiles beim Zeugungsakt, Nikotinsucht der Mutter, Erbkrankheiten der Eltern oder eines Elternteiles, Krankheiten der
+Frucht mit zu erwartenden Folgeschäden, Bewusstseinsbehinderung
+(= Geisteskrankheit) oder Körper- resp. Organschädigungen = Körperbehinderungen usw. der Frucht usw. usf. Werden Abtreibungen vorge
+
+-----
+
+nommen nur um der Abtreibung willen usw., dann kommt dies einem
+Mord gleich, wie z.B. im Falle dessen, wenn bewusst ohne Verhütungsmittel ein Beischlaf ausgeübt wird mit dem Sinn, dass die gezeugte
+Frucht einfach abgetrieben werden könne, wenn eine Schwangerschaft
+zustande käme usw.
+21 Tage nach der Zeugung, nämlich in der Regel am 21.Tag, wird die neugebildete Lebensfrucht mit geistigem Leben ausgestattet, wodurch die
+Frucht augenblicklich zum menschlichen Wesen wird. Menschliches
+Leben aber soll und darf nicht vernichtet und getötet werden; wer dies
+aber immer tut oder befürwortet, der macht sich der Zerstörung, der
+Tötung und des Mordes an menschlichem Leben schuldig.
+Der Wissenschaft ist heute absolut bekannt, dass sich drei Wochen
+nach der Zeugung in der neuen Frucht Vorgänge und Prozesse abspielen,
+die eindeutig Aufschluss darüber geben, dass das menschliche Leben
+als solches ausgeprägt zu leben beginnt. Eine Tatsache, die heute nicht
+mehr von der Hand zu weisen ist, auch wenn der Wissenschaft noch
+unbekannt ist, dass das von ihr Festgestellte und Erforschte nicht ein
+nur rein biologischer Vorgang, sondern die Befruchtung des neuen Menschen durch die Geisteskraft ist, die vom neuen Körper Besitz ergreift
+und in ihm zu wohnen beginnt.
+Sind von der Zeugung an drei Wochen, 21 Tage, zu rechnen, während
+denen das neugezeugte Leben sich nur rein informations-impulsmässig
+und materiell entwickelt, so ändert sich dies schlagartig nach der genannten Zeit, wenn nämlich die neu gezeugte Lebensform mit geistigem
+Leben ausgestattet wird. Leben, das unter keinen Umständen mehr getötet und vernichtet werden darf, wenn dies nicht wirklich gerechtfertigt
+ist – sozusagen durch einen Notwehrakt.
+Als Menschen können wir nicht für eine sinnlose und ungerechtfertigte
+Abtreibung sein, also für die Ermordung eines lebenden Menschen, sondern wir müssen für eine vernünftige Geburtenregelung sorgen! Eine vernünftige Geburtenregelung aber beginnt fürs erste mit einer weltweiten
+Aufklärung der Menschen und mit sachdienlichen Massnahmen zur
+Schwangerschaftsverhütung. Im weiteren muss die Wissenschaft einen
+guten Teil ihrer Forschungen dazu verwenden, Mittel zu schaffen, die die
+Frau ohne Gefahr für ihre Gesundheit und ohne Gefahr für die Gesundheit
+späterer Nachkommen zur Geburtenregelung anwenden kann. Im weiteren ist es erforderlich, dass die Forschung so weit getrieben werden
+muss, dass eine Schwangerschaft bereits vor der dritten Woche nachgewiesen werden kann. Eine Abtreibung in diesem frühen Stadium des
+keimenden Lebens wäre durchaus zu verantworten, und sie würde auch
+
+
+-----
+
+einer vernünftigen Lösung entsprechen, da das Leben geistiger Form vor
+Ablauf der 21 Tage noch keinen Besitz vom neuen Körper ergreift!
+
+**j)** **Drogen-, Medikamenten- und Alkoholmissbrauch**
+Durch die zu schaffende Möglichkeit eines gesunden und ausgefüllten
+Lebens für unsere Jugend kann bereits ein gewisser Teil dieses Übels
+behoben werden. Im weiteren ist mit allen Mitteln dafür zu sorgen, dass
+Verstösse gegen ein Handelsverbot mit Drogen usw. strengstens geahndet und die Verantwortlichen resp. die unverantwortlich Handelnden den
+Behörden zur unnachsichtigen Rechenschaftsziehung ausgeliefert werden.
+Weltweite Aufklärungskampagnen und eine realistische und tatkräftige
+Hilfe für die Betroffenen dürften ein weiteres zur Behebung der angeprangerten Missstände tun.
+
+**k) Überbevölkerung**
+Alle menschlichen Probleme beginnen dort, wo ein Mangel an Existenzmöglichkeit besteht, also ein Überschuss an Menschen vorhanden ist,
+heute (1994) rund 6 Milliarden (2012: 8,2 Milliarden)!
+Unser grösstes Problem ist die Überbevölkerung auf der Erde, gegen
+die mit aller Entschiedenheit angegangen werden muss. Die grösste
+Zahl von Menschen, die für unseren Planeten tragbar wäre, sind rund
+530 Millionen. Daraus ist ersichtlich, dass wir uns 1994 einem Bevölkerungsstand nähern, der rund 11mal zu hoch ist (2012 rund 15mal).
+Daraus geht klar hervor, dass Hungersnöte, Energieprobleme, viele Kriege,
+Umweltbelastungen und soziale Missstände usw. aus ein und derselben
+Ursache entspringen, nämlich aus der Überbevölkerung.
+Daher ist es unsere dringlichste Aufgabe, auf der ganzen Welt einen
+sofortigen, mehrjährigen Geburtenstopp durchzusetzen und durchzuführen, der fürs erste allein garantieren kann, dass sich die schlimmsten
+Übel auf unserer Erde langsam beheben lassen.
+Semjase, eine Plejarin, sagte dazu 1975: «Auf mehrere Jahre hinaus
+müsste ein absoluter Geburtenstopp durchgeführt werden, um die Masse
+der Erdenmenschheit unter eine Milliarde Einheiten zu vermindern.»
+
+**l)** **Abschussprämien für Indianer**
+In seinem Profitdenken und in seiner Machtgier kennt der Mensch keine
+Grenzen. Er belässt es nicht dabei, Eingeborenenvölkern ihr Land und
+ihren Lebensraum zu rauben und zu zerstören, wie das z.B. in Amerika
+mit den Indianerstämmen gemacht wurde und weiterhin gemacht wird.
+Nein, er geht auch heute noch so weit, dass er Abschussprämien für
+
+
+-----
+
+Eingeborene aussetzt. Und diese werden dann von professionellen
+Mördern gejagt wie gefährliche reissende Raubtiere. Nur um des Profites und der Machtgier willen werden friedfertige Menschen gemetzelt
+und hinterlistig abgeschossen wie Vieh!
+Im weiteren werden schon seit mehreren Jahren Abschusslizenzen an
+‹Jäger› verkauft, die diese in Südamerika dazu berechtigen, wildlebende
+Indianer abzuknallen, wie dies in ähnlicher Form bei der Grosswildjagd
+der Fall ist. Dies alles zum Nervenkitzel und zur Selbstbefriedigung faktischer Mörder, die ihren Urlaub mit Morden verbringen, wovon auch
+noch die lizenzvergebenden Regierungen und Reisebüros Profit machen, wie dies in Argentinien und Bolivien der Fall ist.
+Solchen Machenschaften ist ein für allemal Einhalt zu gebieten. Naturund Eingeborenenvölkern ist dort ihr Leben und ihr Lebensraum zu belassen, wo er seit jeher war und ist. Wo alles aber bereits durch Profithaie und sonstige Verantwortungslose angegriffen ist und die Eingeborenen vertrieben und gemordet wurden, ist ihnen ihr ursprünglich bewohntes Gebiet wieder zugänglich zu machen, und sie sind ihrer eigenen
+friedvollen Lebensweise und Lebensart zu überlassen, wenn überhaupt
+noch Überlebende da sind.
+
+**m) Dezimierung und Vernichtung von Eingeborenen aller Arten und**
+**Rassen**
+Was bereits am Beispiel der Indianer aufgezeigt wurde, das geschieht
+auch in vielen anderen Ländern und auf anderen Kontinenten dieser Erde
+mit unzähligen Eingeborenen-Rassen. Nicht nur die direkte Ausrottung
+und Zerstörung von Eingeborenenkulturen spielt eine Rolle, sondern
+auch die indirekte Zerstörung und Ausrottung, die dadurch betrieben wird,
+dass Eingeborenenstämme auf niederträchtigste Art und Weise mit der
+Kultur der Weissen konfrontiert werden. Dies geschieht in einer Art, die
+die unerfahrenen und unwissenden Eingeborenen in ihren Anpassungsbemühungen zum vornherein zum Scheitern verurteilt.
+Menschen, die verantwortungs-, gewissenlos und arrogant Eingeborenenstämme aus ihren angestammten Lebensräumen reissen und ihre Kulturen
+zerstören, sind unnachsichtig und streng zu bestrafen, da sie gegen die Interessen der Natur, des Lebens und der gesamten Menschheit handeln.
+
+**n) Alters-, Kinder-, Jugend- und Waisenhilfe**
+Für Alte, Kinder, Jugendliche und Waisen sind Einrichtungen zu schaffen,
+in denen den betroffenen Hilfsbedürftigen wirksame und menschenfreundliche Hilfe zuteil wird.
+
+
+-----
+
+Waisen sind, wo immer möglich, in intakten und verantwortungsbewussten Familien unterzubringen, wo sie geliebt und zu brauchbaren und
+respektablen, selbständigen Menschen erzogen werden.
+Alte Menschen sind aus ihren Ghettos herauszuholen. Ihnen soll die
+Möglichkeit geboten werden, ihren Lebensabend mit einer sinnvollen
+Aufgabe auszufüllen und da noch Verantwortung zu tragen, wo sie sich
+selbst dafür interessieren.
+Unsere Alten sind nicht der Schrott unserer Konsum- und Wegwerfgesellschaft, sondern sie sind Menschen wie jeder andere auch, wie dies
+auch junge Menschen sind. Sie sind Menschen, die ihren Lebensabend
+im Schosse der Familie und in der Gesellschaft ihrer Freunde verbringen
+wollen. Menschen, die gerade durch ihre Lebenserfahrung und ihr Wissen
+noch viele Aufgaben bewältigen können, für die junge Menschen ungeeignet sind.
+Die Jugendlichen müssen von der Strasse geholt werden. Sie sind unsere
+Zukunft, und sie werden einst unsere Erde übernehmen. Sorgen wir also
+dafür, dass sie das auch können. Bieten wir ihnen die Gelegenheit, ganze
+und selbständige Menschen zu werden und in aller Zukunft ‹ihr Menschsein zu stehen›. Gerade Jugendliche haben oft einen feinen Blick für Lügen
+und Betrügereien, und sie sind von Natur aus bestrebt, ihrem Leben
+einen Sinn zu geben. Helfen wir ihnen also, dass sie diesen Sinn auch
+in einer lebenswerten Welt finden können.
+
+**o) Sterbehilfe**
+Die FIGU hat sich zum Ziel gesetzt, den Menschen die Würde des Sterbens zu erhalten. Dabei ist vor allen Dingen anzustreben, dass Menschen nicht einsam, hilflos und von ihren Angehörigen verlassen elend
+krepieren, sondern, wenn ihre Zeit gekommen ist, anständig und im Beisein ihrer Lieben sowie in hilfreichem Gespräch den Wechsel vom
+Leben zum Tod vollziehen, um ohne Angst und in Frieden sterben zu
+können – ohne aktive Sterbehilfe (Euthanasie) und ohne Selbstmord.
+
+**p) Natürliche Geburt**
+Die Geburt ist im Leben einer Frau ein völlig natürlicher Vorgang. Die Natur
+hat sie mit allen Mitteln und Fähigkeiten ausgestattet, um ein Kind völlig
+natürlich und ohne die Hilfe von Medikamenten zur Welt zu bringen. Medizinische Hilfe ist nur dort angebracht, wo die Organe der Frau mangelhaft ausgebildet sind oder wo andere Schäden oder Probleme beim natürlichen Geburtsablauf eine natürliche Geburt verunmöglichen. In jedem
+anderen Fall soll und darf eine Geburt weder künstlich eingeleitet noch
+
+
+-----
+
+künstlich forciert oder zurückgehalten werden. Die durch die künstliche
+Einleitung oder die künstliche Hinausschiebung einer Geburt drohenden
+Schäden an Kindern und Müttern sind nicht zu verantworten und mit dem
+Gesetz der Nächstenliebe und mit echter Humanität nicht zu vereinbaren.
+
+**q) Kampf gegen Folterungen**
+Menschen, die mit Gesetzen in Konflikt geraten sind, bleiben trotzdem
+Menschen! Nichts und niemand ist berechtigt, Menschen zu foltern, zu
+peinigen und langsam und qualvoll hinzumorden.
+Menschen, die andere foltern und quälen, sind schlimmer als reissende
+Bestien, und sie verdienen nicht den Namen Mensch zu tragen. Solche
+negative, menschliche Ausgeburten sind den Gesetzen zu überantworten
+und ihrer gerechten Bestrafung zuzuführen.
+
+**r)** **Lebenshilfe und Ratgebung aller Art**
+Jeder Mensch soll sich in allen Situationen, in denen er einer Hilfe und
+Ratgebung bedarf, an seriöse Ratgeber und Freunde wenden können,
+durch die jedem eine wirksame ratgebende Unterstützung zuteil wird.
+
+**s)** **Ernährungsprobleme lösen**
+Die weltweiten Ernährungsprobleme können einzig und allein nur durch
+einen wirksamen Geburtenstopp für die nächsten Jahrzehnte gelöst
+werden. Dieser kontrollierte Geburtenstopp muss unter allen Umständen weltweit durchgesetzt werden.
+
+**t)** **Energieprobleme lösen**
+Das Energieproblem kann niemals dadurch gelöst werden, dass fortlaufend neue Energie-Erzeugungsanlagen (A-Kraftwerke usw.) erstellt und
+in Betrieb genommen werden.
+Das Übel der Energieknappheit muss dort an der Wurzel angepackt werden, wo es zu wachsen beginnt:
+Das Energieproblem liegt in der üblen Wurzel der Überbevölkerung, denn
+stetig steigend, fordert sie unaufhaltsam mehr Energie. Der Energiebedarf
+7serwisser, nur normalisiert werden, wenn der Überbevölkerung durch
+einen kontrollierten Geburtenstopp Einhalt geboten wird.
+
+**u) Förderung der allgemeinen Moral**
+Durch den sich immer stärker abzeichnenden Verfall aller Sitten und der
+Moral werden neue und bis anhin noch unbekannte und nicht behandelbare Seuchen und Krankheiten ‹gezüchtet›.
+Dem moralischen und sittlichen Verfall, der hauptsächlich in den zivilisier
+
+-----
+
+ten Staaten um sich greift, ist durch breite Aufklärungskampagnen und
+durch wirksame Belehrung der Menschen Einhalt zu gebieten.
+
+**v)** **Allgemeine Sozialarbeit, Sozialeinrichtungen und Sozialhilfe**
+Um allen Menschen eine wirksame und tiefgreifende soziale Ratgebung
+und Hilfe anbieten zu können, müssen dementsprechende Einrichtungen geschaffen werden.
+
+**w) Belehrung über natürliche Gesetze und Gebote**
+Will der Mensch der weltweiten Übel und Probleme bleibend Herr werden, dann hat er nach den natürlich gegebenen Gesetzen und Geboten
+zu leben und zu handeln. Nur die bewusste und gewissenhafte Befolgung
+der natürlich gegebenen Gesetze und Gebote vermag eine Gewährleistung für bleibenden Frieden auf der Erde und für die Lösung aller Probleme zu geben.
+Die Belehrung des Menschen über die natürlichen Gesetze und Gebote
+muss in breitester Massenschulung weltweit durch geführt werden.
+
+**x)** **Das Wesen des Menschen**
+Der Mensch ist nicht die Ausartung und die Ausgeburt der Hölle und Satans, sondern er ist eine kraftneutrale Lebensform, versehen mit der
+Möglichkeit negativer und positiver Gestaltung seiner Gedanken, Ideen und
+Handlungen. Negativ und Positiv halten sich im menschlichen Leben in
+etwa die Waage, auch wenn er, der Mensch, infolge seiner Erfahrungen
+und seines Denkens oft mehr Negatives sieht als wirklich vorhanden ist.
+Die vom Menschen aufgenommenen Kräfte, die ihn durchpulsen, sind
+immer und ohne Ausnahme von völlig ausgeglichener und neutraler Beschaffenheit. Erst durch sein eigenes Denken bestimmt der Mensch
+darüber, ob er diese Kräfte positiv oder negativ auswertet. Entscheidend
+für die Auswertungsart der Kräfte des Menschen ist alleine seine
+Selbstkontrolle, mit der er alles in sich steuert. Negatives und Positives
+vermag der Mensch zu verarbeiten und zu neutralen Werten umzugestalten, die in sich den eigentlichen Wert der Evolution und des geistigen und bewusstseinsmässigen Fortschrittes tragen.
+Durch die Verarbeitung aller negativen und positiven Geschehen, Regungen, Gedanken, Empfindungen und Ideen usw. vermag sich der Mensch
+ein bewusstseinsmässiges Wissen zu bilden, das fundiert ist in Wahrheit
+und Liebe und aus dem dann schliesslich die Weisheit resultiert, die wiederum den Grundstock zu vermehrter Liebe und tieferem Verständnis
+alles Existierenden bildet. Nie und nie wird der Mensch so in seinem
+
+
+-----
+
+Wesen das sein oder zu dem gemacht werden können, was Religionen
+und Sekten anstreben. Sein Bewusstsein ist und bleibt frei, und früher
+oder später wird in jedem Menschen die Wahrheit den negativen Bann
+zu brechen wissen, auch wenn der Mensch noch so sehr in Lügen, Irrwegen, Irrlehren, Betrügereien und in allen denkbaren Ausartungen verfangen und gefangen ist. Da der Mensch in seinem Grundwesen kraftneutral
+und somit auch positiv ist, kann und wird sich dieses Positive seinen
+Weg bahnen, ob er das nun bewusst anstrebt oder nicht.
+
+**y)** **Mehr freier und natürlicher Lebensraum für die Menschen**
+Damit sich der Mensch stets seiner Zugehörigkeit zur Natur bewusst
+bleiben kann, braucht er dringendst einen engen und niemals abreissenden Kontakt mit der gesunden Natur. Durch die Beobachtung der Natur
+und durch ein nahes und intensives Zusammenleben mit der unberührten und unverfälschten Fauna und Flora wird sich der Mensch erst seiner
+Verpflichtungen gegenüber dem Planeten Erde völlig bewusst.
+Um diesen dringendst notwendigen Prozess zu fördern, sind in der
+ganzen Welt Schutzgebiete zu schaffen, die wieder ihrem ursprünglichen
+und natürlichen Zustand zugeführt werden.
+
+### 2. TIERSCHUTZ
+
+**a)** **Verhinderung von Wal-, Tiger-, Gorilla-, Elephanten- und Robben-**
+**schlächtereien usw.**
+Gedanken- und bedenkenlos setzt sich der Mensch um seines Profites
+willen über alle seine Verpflichtungen zum Schutz und zum Erhalt der
+Tierwelt hinweg. Einseitig auf seinen Profit ausgerichtet und nur diesen
+im Auge, schlachtet er jährlich Tausende hilfloser Robbenbabys, Wale,
+Tiger, Elephanten und Gorillas usw. auf grausame und bestialische Weise
+ab, nur um an ein weisses, weiches Fell heranzukommen oder an Elfenbein, Schädel, Fett, Fleisch, Knochen, Füsse und Pranken usw., dessen
+und deren der Mensch gar nicht bedarf.
+Alle bisherigen Unternehmungen zum Schutze der Robben und Wale,
+der Tiger, Gorillas und Elephanten usw. haben sich als wirkungslos erwiesen. Ausser grossen Palavern ist kaum etwas geschehen. Unternehmungen und Gegenmassnahmen, die mit grossen Worten
+angekündigt wurden, haben sich als reine Farce erwiesen. Der Schlächterei muss ein für alle Male ein Riegel geschoben werden. Das kann
+
+
+-----
+
+aber nicht durch einseitige und ungenügende Massnahmen geschehen,
+sondern alleine nur dadurch, dass die betreffenden Gebiete von einer
+übernationalen Organisation geschützt und verwaltet oder aufgekauft
+und zu Privatgrund gemacht werden. Die Verletzung von Privatgrund ist
+in den betreffenden Staaten genauso strafbar wie bei uns, und damit ist
+auch die Handhabe gegeben, ein für alle Male gegen die Wal-, Tiger-, Gorilla-, Elephanten- und Robbenjägerei usw. vorzugehen und die Schlächtereien zu unterbinden.
+
+**b) Geflügel-Batterien und sonstige Massenhaltung von Nutztieren**
+Geflügelbatterien und die sonstige Massenhaltung von Nutztieren unter
+unverantwortlichen Umständen müssen unterbunden werden. Jede
+Massenhaltung von Tieren, ohne einen angemessenen Bewegungsraum
+für die Tiere, ist strikte zu verbieten und das Verbot zu überwachen.
+Zuwiderhandelnde sind zur Rechenschaft zu ziehen, und ihnen ist die
+Berechtigung zur Tierhaltung ein für alle Male zu entziehen.
+
+**c)** **Tierversuche für kosmetische und militärische Zwecke**
+Tierversuche für kosmetische und militärische Zwecke sind zu verbieten.
+Über die dringendst notwendigen medizinischen Tierversuche ist eine
+strenge übernationale Kontrolle auszuüben, durch eine unabhängige, neutrale Organisation. Die für die medizinischen Tierversuche zugelassenen
+Tiere haben lebenswürdig und artgerecht behandelt und demgemäss
+untergebracht zu sein.
+
+**d) Tiere in menschlichen Wohnräumlichkeiten**
+Tiere sind dazu geschaffen, die freie Natur zu beleben. Kein Tier ist geeignet, menschliche Wohnräume zu teilen. Jedes Tier trägt, wie auch unsere
+Wissenschaft weiss, krankheitserregende und für den Menschen oftmals
+tödliche Keime auf und in sich, die sich auch bei bester und sauberster
+Tierhaltung nicht vermeiden lassen. Tiere gehören deshalb niemals in
+menschliche Wohnräumlichkeiten.
+Die private Tierhaltung in menschlichen Wohnräumlichkeiten ist strengstens zu unterbinden, um der menschlichen Gesundheit willen.
+Quetzal, ein Plejare, sagte dazu folgendes: «Der Erdenmensch ist schon
+vor Jahrtausenden dazu übergegangen, sich Haustiere zu halten, wobei
+er zu Beginn jedoch vernünftig genug war, diese in dafür geeigneten und
+nur für die Tiere bestimmten Räumlichkeiten unterzubringen. In der Zeit
+der fortschreitenden Zivilisation aber kümmerte sich der Erdenmensch
+je länger je weniger darum, seine Haustiere von den menschlichen Wohn
+
+-----
+
+räumlichkeiten abzusondern, und so liess er schliesslich die Tiere sogar
+im direkten menschlichen Wohnbereich Unterschlupf finden. In ganz besonderem Masse veränderte der Erdenmensch die Haustiere Katze und
+Hund zu Wohnräumlichkeitstieren, was bedeutet, dass er diese Tiere daran gewöhnte, nicht mehr in den Wohngebäuden angeordneten speziellen Tierräumlichkeiten zu wohnen, sondern in direkten Wohnräumlichkeiten des Menschen selbst. Dies aber ist nicht nur äusserst unhygienisch,
+sondern auch äusserst dumm und verantwortungslos, denn ausgerechnet Katzen und Hunde sind die schmutzigsten und krankheitserregendsten Haustiere, die vom Menschen gehalten werden.
+Katzen und Hunde gehören niemals in Wohnräume des Menschen, denn
+diese Räumlichkeiten müssen dem Menschen allein vorbehalten bleiben.
+Katzen sind noch sehr viel schlimmer als Hunde, denn Katzen sind die
+grössten Krankheitsträger und Krankheitsverschlepper. Diese Tiere treiben sich im Gegensatz zu Hunden sehr viel mehr in für den Menschen
+äusserst giftigen und teils sogar verseuchten Gebieten herum und kommen auch sehr viel mehr mit kranken Tieren aller Art in Berührung, die
+für den Menschen gefährliche Mikroben (z.B. Bakterien, Viren, Protozoen [= Einzeller], Myceten [kleine Pilze] und Bazillen usw.) tragen. Dies
+soll nun aber nicht bedeuten, dass nicht auch die Tierform Hund für den
+Menschen diesbezüglich nicht gefährlich ist, denn wahrheitlich treibt
+sich auch dieses Tier in für den Menschen und dessen Gesundheit gefährlichen Gebieten herum und kommt mit anderen Tieren in Berührung,
+die für den Menschen Gefahren auf sich tragen. Nur, beim Hund ist dies
+in etwa zu 17 Prozent weniger der Fall als bei der Katze, was aber tatsächlich keinen grossen Unterschied ausmacht. Der grösste Krankheits- und
+Seuchenträger unter den Nichthaustieren ist die Ratte, die bereits millionenfachen Tod über die Erde gebracht hat, wie z.B. die Pest, der die
+Bevölkerungen halber Länder zum Opfer gefallen sind. Unter den Haustieren aber nimmt die Katze in erster Linie und der Hund in zweiter Linie
+dieselbe Rolle ein, und wie durch unsere Forschungen bekannt ist, hätte
+z.B. die Pest niemals derart todbringend grassieren können, wenn sich
+die Erdenmenschen nicht Katzen und Hunde als Haustiere gehalten hätten. Rund 50% aller Pesttoten aller Zeiten fanden ihr Ende nur darum,
+weil sie durch Katzen und Hunde infiziert worden sind. Trotzdem aber
+ist der Erdenmensch nicht klüger geworden, obwohl namhafte Wissenschaftler der Erde immer wieder davor warnen, Hunde und Katzen als
+Haustiere in die Wohnräume der Menschen zu lassen, weil diese unsauberen Tiere für sehr viele Krankheiten am Menschen verantwortlich
+sind. Verschiedenste Grippekrankheiten z.B., die jährlich immer wieder
+
+
+-----
+
+neu und in verschiedensten Variationen in Erscheinung treten, werden
+zu einem sehr grossen Prozentsatz durch Katzen und Hunde beim Menschen eingeschleppt, weil diese Tiere die besten Träger der Erregerstoffe
+dieser Krankheiten und zudem in der Regel selbst dagegen immun sind.
+Es sind aber dies Krankheiten, die dem Erdenmenschen vielfach den Tod
+bringen. Andererseits aber grassieren beim Menschen auch Krankheiten,
+die bisher noch nicht als Infektionskrankheiten erkannt worden sind, wie
+z.B. bestimmte Arten des Rheumatismus. Diese Krankheit, die auf der
+Erde wie keine zweite Krankheit verbreitet ist, beruht nicht nur auf Erkältungen und Überanstrengungen usw., sondern vielfach entsteht sie
+nur durch Katzen und Hunde, durch die Unmengen von Rheumaerregern
+auf den Menschen übertragen werden, der dann unter dieser sehr
+schmerzhaften Krankheit zu leiden und zu siechen beginnt. Nach unseren
+Feststellungen treten rund 56% aller Rheumaerkrankungen allein durch
+das Verschleppen auf, das durch Katzen und Hunde entsteht. Dies nur
+als Beispiel, denn noch viele andere und oft sehr bösartige Krankheiten
+werden durch Katzen und Hunde auf den Menschen übertragen. Und die
+Haltung dieser Tiere in Wohnräumlichkeiten des Menschen ist für diesen
+auch dann von äusserster Gefährlichkeit, wenn die diese Tiere haltenden Menschen der dummen und irrigen Ansicht sind, dass ihre Tiere
+sauber seien in jeder Hinsicht. Dies entspricht nämlich nicht der Wahrheit, weil ausgerechnet diese Tiere niemals so rein und sauber gehalten
+werden können, dass sie für den Menschen keine Gefahr mehr bedeuten
+würden. Wir kennen sehr wohl den erdenmenschlichen Ausspruch:
+‹Unser Tier ist sauber und desinfiziert›, doch zeugt dieser Ausspruch nur
+von der wahrheitlichen Dummheit und Unverständigkeit des betreffenden Menschen im Bezuge auf diese Tiere, die nämlich bereits rund 24
+Minuten nach einer chemischen Desinfizierung für den Menschen wieder tödliche Krankheits erreger auf sich tragen. Dies ist auch der Grund
+dafür, dass unsere eigene Tierhaltung auf Erra einheitlich so gehandhabt
+wird, dass Hunde und Katzen nur auf freier Wildbahn leben dürfen oder
+aber in speziellen und sehr grossen Gehegen, zu denen die Menschen
+keinen direkten Zutritt haben. Welche tödlichen Krankheitserreger für
+den Menschen diese Tiere auf sich tragen, das haben unsere Wissenschaftler der Vergangenheit schon sehr früh erkannt, weshalb sie die
+entsprechenden Massnahmen anordneten für deren Haltung.
+Auch auf der Erde hätten diese Massnahmen ergriffen werden sollen,
+denn damit hätte sehr viel Unheil mit Krankheiten vermieden werden
+können. Unsere bisherigen Forschungen ergaben, dass auf der Erde sehr
+viele Krankheiten beim Menschen nur in Erscheinung treten konnten,
+
+
+-----
+
+weil er durch seine Unvernunft und völlig falsch verstandene Tierliebe
+verschiedene Tiere direkt in seinen eigenen Wohnräumlichkeiten ansiedelte und von diesen infiziert wurde. So gehen gesamte 63% aller beim
+Erdenmenschen in Erscheinung tretenden Krankheiten darauf zurück,
+dass der Mensch zu enge Kontakte mit Tieren schloss, die dem Menschen
+gegenüber völlig anders geartete Lebensformen sind und andere Lebensbereiche sowie auch andere Nahrungsstoffe benötigen. Das Bösartigste
+aber, was ein Mensch zusätzlich zur falschen Tierliebe und zur falschen
+Tierhaltung noch tun kann, ist das, dass die Tiere sehr oft wie Menschen
+behandelt werden, wobei auch falsche und Tod und Krankheit fördernde
+Körperkontakte stattfinden. Hierbei werden Tiere mit den Händen berührt,
+ohne dass diese Hände danach schnellstens mit Wasser usw. gereinigt
+werden, ehe damit an das Gesicht, an Nase, Mund und Ohren oder an
+die Augen und an Nahrungsmittel usw. gerührt wird. Im weiteren aber
+haben wir festgestellt, dass bei Erdenmenschen sogar im Bezuge auf
+Tierberührungen Formen in Erscheinung treten, die bereits ekelerregend sind, wenn nämlich der Mensch die Tiere an seinen Mund führt
+und sie sogar küsst, wodurch toxigene Krankheiten und speziell Infektionskrankheiten in Erscheinung treten, wobei die Halbinfektionskrankheit Rheumatismus die häufigste Folge ist, wonach dann an nächster
+Stelle die Tuberkulose in Erscheinung tritt.
+Haustiere sollen niemals in menschlichen Wohnräumlichkeiten gehalten
+werden, so aber dürfen Tiere auch niemals wie menschliche Lebensformen behandelt, berührt und liebkost werden. Dies gilt in allererster Linie
+für Katzen und Hunde, die die bösartigsten Krankheitsüberträger sind; sowohl gilt dies aber auch für Vögel, die unter den Haustieren, die in Käfigen
+gehalten werden in Wohnräumlichkeiten, an dritter Stelle der Gefährlichkeit figurieren. Und sowohl gilt dies auch für Kaninchen, Schildkröten,
+Wiesel und alle übrigen Tiere, die vom Menschen als Haustiere gehalten
+werden in menschlichen Wohnräumlichkeiten.»
+
+**e)** **Massenvergiftungen von wildlebenden Klein- und Grosstieren**
+**durch Pestizide und Insektizide**
+Völlig bedenkenlos und gewissenlos versprüht der Mensch, um seines
+Profites willen, in der freien Natur seine Gifte, denen dann zwangsläufig
+unzählige Tiere zum Opfer fallen.
+Tiere haben in einer gesunden Natur eine wichtige Funktion. Jedes
+sorgt auf seine Art für das Gleichgewicht der Natur. Werden nun aber
+die Tiere durch unsere chemischen Gifte vernichtet, wird auf lange Sicht
+das Netz des Gleichgewichtes der Natur zerrissen und zerstört. Jeder
+
+
+-----
+
+zwanghafte Eingriff in die Natur ist aber auch ein weiterer Schritt zur
+Zerstörung des Menschen und seines Lebensraumes.
+
+**f)** **Abschlachtung wildlebender Tiere zu Profitzwecken**
+Aus allen möglichen und unmöglichen Gründen werden wildlebende Tiere
+abgeschlachtet, sei es zur Gewinnung von Fellen, Federn oder Häuten
+für Modezwecke, oder für die Gewinnung von Rohstoffen für Kosmetika,
+oder sei es aus reinen Prestigegründen. Grössenwahnsinnige Jäger schiessen Elephanten und anderes Grosswild bei Safaris, nur damit sie ihre Wände mit Füssen, Zähnen und Fellen schmücken können, damit ihr Abfall in
+einem Elephantenfuss Platz findet und sie mit Trophäen brillieren können.
+Solche Auswüchse sind zu verhindern; das Übel dieser Art von Grössenwahnsinn muss, wie auch jedes andere Übel, an der Wurzel ergriffen
+und vernichtet werden.
+
+**g) Ausrottung von bedrohten Tierarten**
+Jegliche Prestige- und Hobbyjägerei und jegliche Einengung oder Vernichtung von Lebensräumen bedrohter Tierarten ist zu verhindern. Tierarten, von denen nur noch wenige Exemplare existieren, sind unter geeigneten Voraussetzungen so weit zu züchten, bis sie in angemessener
+Stückzahl wieder in ihre angestammten Lebensräume ausgesetzt werden können, wo sie vom Menschen ungestört und ungehindert durch
+irgendwelche menschliche Eingriffe sich wieder vermehren können.
+
+**h) Vermenschlichung von Tieren**
+Tiere haben ihren eigenen Lebenszweck und ihre eigene Lebensaufgabe. Ein Tier kann und darf niemals vermenschlicht werden. Alle Auswüchse in dieser Richtung sind strengstens zu unterbinden.
+Kein Tier kann jemals einem Menschen die Gesellschaft und den Kontakt
+zu anderen Menschen ersetzen, ohne zutiefst entwürdigt zu werden.
+
+**i)** **Gewaltsame Eingriffe in natürliche Lebensweisen der Tiere**
+Tiere sind immer und in jedem Fall ihrer natürlichen Lebensart zu überlassen. Tiere leben die Gesetze der Natur vollkommen, wenn sich der Mensch
+nicht erdreistet, in seiner Unwissenheit und Gewissenlosigkeit ihre Lebensräume zu zerstören und in ihre Lebensart zwanghaft einzugreifen.
+
+**j)** **Pelztierhaltung**
+Herzlos werden Tiere in viel zu kleine Käfige gesperrt –Tiere, die niemals
+so beengt leben können, ohne tiefgründige Schäden davonzutragen. Dem
+
+
+-----
+
+profitgierigen Menschen macht das aber nichts aus; er sieht nur das
+schöne Fell am Körper der Tiere und beachtet und bedenkt nicht, wie
+qualvoll solche Kreaturen leben müssen. Viele dieser Tiere sind blind oder
+sie haben andere Gebrechen, und oft sehen sie nicht mehr aus wie Tiere,
+wenn nicht noch die schönen Felle wären.
+Es genügt offenbar nicht, dass schöne, edle Pelztiere eingesperrt werden,
+nein, sie werden von gewissenlosen, profitgierigen Tierhaltern und Züchtern auch noch gequält. In ihren engen Käfigen laufen sie unermüdlich
+hin und her und suchen gequält und verzweifelt nach einem Ausweg in
+die Freiheit.
+Es ist entwürdigend und herzzerreissend, solche Tiere sehen zu müssen.
+Der Anblick dieser gequälten und verwirrten Kreaturen lässt deutlich erkennen, dass ihre Züchter und Halter gewissenlose und herzlose Profithaie sind, denen nichts heilig ist, auch nicht das Leben einer Kreatur.
+Aus diesem Grunde sind Auswüchse dieser Art unnachsichtig streng
+zu ahnden, und die Massenhaltung von Tieren in dieser Form hat weltweit
+verboten zu werden. Allen Verboten und Gesetzen bezüglich des Tierschutzes ist von neutralen Kontrollorganen nachdrücklich Geltung zu
+verschaffen. Zuwiderhandelnde sind der staatlichen Gerechtigkeit zu
+überantworten.
+
+### 3. UMWELTSCHUTZ UND NATURSCHUTZ
+
+**ENERGIE Mehr Energie erzeugen bedeutet:**
+Vermehrte und stetige Steigerung der Verschmutzung und
+Zerstörung der Umwelt, der Atmosphäre, der Pflanzen, der
+Tier- und Menschenwelt sowie der Schutzschichten der
+Erde, wie z.B. der Ozonschicht.
+
+Das Energieproblem kann niemals dadurch gelöst werden, dass fort laufend neue Energie-Erzeugungsanlagen (A-Kraftwerke usw. usf.) erstellt und in Betrieb genommen werden.
+Das Übel der Energieknappheit muss dort an der Wurzel angepackt werden, wo es zu wachsen beginnt: Das Energieproblem liegt in der üblen
+Wurzel der Überbevölkerung, denn stetig steigend fordert sie unaufhaltsam mehr Energie. Der Energiebedarf kann, wider andere Behauptungen Machtgieriger und profit gieriger Besserwisser, nur normalisiert
+werden, wenn der Überbevölkerung durch einen kontrollierten Geburtenstopp Einhalt geboten wird.
+
+
+-----
+
+**HUNGER Millionen Menschen sterben in der Welt an Hunger, der, ge-**
+nauso wie das Energieproblem, nur durch einen kontrollierten
+Geburtenstopp unter Kontrolle gebracht und eingedämmt
+werden kann.
+
+**a)** **Boden (Erdreich)**
+Erhaltung und Wiederaufbau des erdbiologischen Kreislaufes = Mikro organismen
+Einstellung chemischer Dünge- und Bekämpfungsmittel = Pestizide und
+Insektizide usw.
+Das widersinnige Anwenden von schweren Bodenbearbeitungsmaschinen
+führt zu einer nachhaltigen Zerstörung des Erdreiches und seiner Mikro organismen. Hervorgerufen wird diese Zerstörung durch eine zu grosse
+Verdichtung des Erdreiches durch die Erdbearbeitungsmaschinen.
+
+**b) Wälder**
+Die Wälder sind für unseren Planeten lebenswichtige Wasserspeicher und
+Sauerstoffproduzenten. Sie spielen klimatisch eine ungeheuer wichtige
+Rolle.
+Die einseitige Bewirtschaftung unserer Wälder, die bald nur noch der Produktion von schnellwachsenden Fichtenhölzern dient, darf nicht weitergetrieben werden. In unseren Breitengraden sind Mischwälder von grösster Bedeutung. Der Mensch muss daher alles daransetzen, dass unsere
+Wälder wieder in ihren ursprünglichen Zustand zurückgeführt werden und
+dass überall, wo dies notwendig ist, neu aufgeforstet wird.
+Genauso wichtig wie die Wälder selbst sind auch die Wald ränder, die
+Unterhölzer und die grünen Feldhecken. Sie alle dienen vielen Kleintieren
+als Lebensraum; Kleintiere, die für die Erhaltung und das Gleichgewicht
+unserer Natur von grösster Wichtigkeit sind.
+Auf die Aufforstung von Mischwäldern, die Erhaltung und Förderung von
+Unterhölzern, natürlich gewachsenen Waldrändern und grünen Feldhekken zur natürlichen Begrenzung von Feldern und Äckern und als Windschutz sowie als Unterschlupf und Nistplätze für Tiere und Vögel ist
+grösster Wert zu legen.
+
+**c)** **Umwelt schonen**
+Alles, was an unserer Umwelt noch intakt ist, muss unbedingt erhalten
+werden. Es geht nicht weiter an, dass die noch halbwegs intakten Teile unserer Umwelt weiterhin zerstört werden durch Chemikalien, Wegwerfund Einwegartikel, die zur Schaffung ungeheurer Abfalldeponien verleiten.
+
+
+-----
+
+Menschen, die sich an der Natur erfreuen und sich in ihr ergehen wollen,
+seien es nun Wanderer oder Ausflügler, sind verantwortlich dafür, dass
+die Natur nicht verschmutzt und verunstaltet wird. Picknicks, die den
+Menschen sehr wohl gegönnt sein sollen, haben so abgehalten zu werden, dass der Natur daraus kein Schaden erwächst und dass sie nicht
+bleibend verunstaltet wird. Zu diesem Zweck müssen vermehrt Rastund Ruheplätze angelegt werden, die eine gebührende Ordnung in der
+freien Natur gewährleisten.
+Weiterhin wird durch mangelhafte Vorkehrungen gegen die Anwendung
+von Treibgasen und anderen Schadstoffen eine tiefgreifende und für
+alles Leben auf der Erde äusserst gefährliche Zerstörung der irdischen
+Ozonschicht hervorgerufen. Im weiteren sind auch alle Atomversuche
+und alle kommerziellen Atomkraftnutzungen einzustellen, da diese tiefgreifende zerstörende Wirkungen ausüben auf unsere gesamte Umwelt.
+Es wird durch die zurückbleibende Radioaktivität nicht nur die Umwelt
+sehr stark belastet, sondern die freigesetzte Radioaktivität zerstört auch
+weltweit unser Klima und erregt bei Mensch und Tier Krebsgeschwüre
+aller Art. Gerade die klimatischen Einwirkungen und die seit 1947zu beobachtenden klimatischen Veränderungen, die durch gewissenlose Atombombenversuche usw. hervorgerufen wurden, sprechen eine sehr deutliche Sprache dessen,was uns droht, wenn nicht schnellstens weltweit
+gegen den Frevel an unserer Welt und Natur vorgegangen wird.
+Zur Umweltschonung gehört aber auch, dass Konzerne und Fabriken aus
+bewohnten und belebten Gebieten evakuiert werden. Umweltbelastende
+Industrien können in Wüsten und verödete Gebiete usw. verlegt werden,
+wo sie dann durchaus eine Existenzberechtigung finden, wenn sie im
+Bezug auf Abgase sowie Rauch- und Dampfentwicklung usw. über dermassen schützende Reinigungsanlagen verfügen, dass die Umwelt und
+die Natur usf. nicht mehr belastet werden.
+
+**d) Biotope**
+Der weltweiten Anlegung von Biotopen aller Art ist grösste Wichtigkeit
+beizumessen. Sehr viel geschädigtes Land, das für andere Zwecke nicht
+mehr brauchbar erscheint, kann wieder urbar gemacht und in einen natürlichen und sinnvollen Zustand zurückgeführt werden. Dazu müssen anfänglich die Grundbedingungen geschaffen werden: Anlegen von
+Bächen und kleinen Gewässern usw. sowie Anpflanzungen; den Rest
+macht die Natur dann selbst.
+Dort, wo die Natur sich selbst überlassen wird, dort, wo der Mensch nicht
+sinnentfremdet selbst und unlogisch eingreift, schliesst die Natur ihre
+
+
+-----
+
+Narben selbst, auch wenn dies oft lange dauert (ein einmal vergifteter
+Boden benötigt rund 52 Jahre, um sich selbst zu entgiften, wenn ihm
+keine weitere Gifte mehr zugeführt werden).
+
+**e)** **Gewässerschutz**
+Das Absterben unserer Gewässer, der Bäche, Flüsse, Seen und der
+Meere hat ein alarmierendes Ausmass angenommen.
+Durch das übermässige Einsetzen von Kunstdünger und anderen Chemikalien kommt es zu einer Sauerstoffarmut der Gewässer, die zu einem
+schnellen Absterben der Wassertiere und zu Faulschlammbildung führt.
+Jedoch nicht nur diese Vorgänge sind gefährlich und lebenszerstörend,
+denn genauso gefährlich und lebenszerstörend ist die unnatürliche Aufheizung von Gewässern durch Atom-Kraftwerke.
+Unsere grössten Gewässer, die Meere, werden nicht nur rücksichtslos
+ausgebeutet, sondern in sehr schneller Folge auch völlig verseucht. Verseucht durch Öl, Säuren, durch Chemikalien, durch radioaktive Abfälle
+usw., die gewissenlos und verantwortungslos in den Meeren abgelagert
+werden und dort, in den Meerestiefen, ihr heimtückisches und zerstörerisches Werk vollbringen!
+
+**f)** **Umweltschonende Energieformen und neue Formen der Rohmate-**
+**rialgewinnung**
+Durch breite Aufklärungskampagnen sollen unsereWissenschaftler dazu
+veranlasst werden, ihre Bemühungen auf der Suche nach umweltschonenden und naturgerechten Energieformen wie Sonnen- und Windenergie usw. zu forcieren, anstatt ihre Bemühungen auf die Gebiete der
+Waffen- und Kriegsmaterialforschung zu konzentrieren.
+Alle neu erarbeiteten Energie- und Rohstoffquellen müssen umwelt-,
+lebensfreundlich und naturgerecht sein. Sie dürfen weder für die Erde
+noch für die Natur und die Lebensformen auf der Erde auch nur die
+kleinsten Nachteile bringen.
+Damit diese Bemühungen und Forschungen um neue und umweltfreundliche Energien und Rohstoffe aber von Erfolg gekrönt werden können,
+ist ein sofortiger kontrollierter Geburtenstopp auf der ganzen Erde durchzuführen, weil nämlich die stets unkontrolliert wachsende Überbevölkerung immer mehr Energien usw. fordert.
+
+**g) Rückführung gebrauchter Materialien (Recycling)**
+Ebenso wichtig wie die Schaffung neuer und umweltschonender Energie- und Rohstoff-Formen, ist die konsequente und ausnahmslose Rück
+
+-----
+
+führung gebrauchter Materialien in neue Grundstoffe. Auch auf diesem
+Gebiet sind Forschungen zu betreiben und mit allen Mitteln voranzubringen. Materialien, die nicht rückgeführt werden können, haben bis zu dem
+Zeitpunkt, wo sie ersetzt werden können durch umweltfreundliche Stoffe,
+in Verbrennungsanlagen, deren Abgase und Rauchentwicklung unschädlich sind, vernichtet zu werden; Abfalldeponien sind weltweit zu verbieten.
+
+**h) Vorgehen zur Verhinderung atomarer Versuche**
+Atomare Versuche dürfen nicht nur mit unzureichenden Verträgen zwischen den Staaten eingedämmt, sondern sie müssen dringendst und
+absolut verboten werden. Dieses Verbot muss für alle Arten von atomaren Versuchen durchgesetzt werden. Auch für solche, die scheinbar
+keine Radioaktivität mehr freisetzen, wenn sie nicht nachweisbar rein
+medizinischen, lebenserhaltenden Zwecken dienen.
+
+**i)** **Stopp der Vergiftung der Atmosphäre**
+Seit einigen Jahren macht das sogenannte Baumsterben in der ganzen
+Welt Schlagzeilen.
+Infolge der Anreicherung der Luft mit künstlichen elektromagnetischen
+Schwingungen und Schwefeldioxyd usw. erreichen diese und der niederfallende Regen tödliche, zerstörende und vernichtende Werte. Der sogenannte ‹saure Regen› und der Elektrosmog haben gerade für die Nadelbäume und Laubbäume, aber auch für das Leben aller übrigen Arten,
+katastrophale Wirkungen, die durch nichts wieder gutgemacht werden
+können.
+
+**j)** **Einschränkung des privaten und kommerziellen Verkehrs**
+Der Privatverkehr hat dort, wo er nicht absolut lebensnotwendig und
+arbeitsbedingt nicht anders möglich ist, eingeschränkt und, wo immer
+möglich, verboten zu werden. Statt dessen müssen die öffentlichen Verkehrs- mittel noch besser und vor allen Dingen umweltschonend ausgebaut und benutzt werden. Der Verseuchung der Atmosphäre ist überall
+Einhalt zu gebieten. Verbote für Sonntagsfahrten ohne zwingende
+Gründe mit Motorfahrzeugen sowie Vergnügungsfahrten und Sauftouren usw. müssen selbstverständlich sein.
+
+**k)** **Einschränkung des Flugverkehrs**
+Die Verwendung von Grossraum-Flugzeugen ist umgehend zu verbieten.
+Die durch sie entstehende Luftverpestung und Umweltbelastung ist
+durch nichts zu verantworten.
+
+
+-----
+
+Während des Fluges erzeugt ein Grossraum-Flugzeug mit 350 Sitzplätzen – die meistens nur wenig besetzt sind – pro Stunde alleine gleich viele
+Abgase wie 800 VW-Käfer. Dies allein für den Flug; nicht eingerechnet
+bei dieser Zahl ist der Verbrauch beim Start und bei der Landung.
+Das gleiche gilt auch für sinnlose Raketenstarts usw., nur dass dort der
+Startverbrauch noch immens höher und somit die unverantwortliche
+Umweltbelastung noch grösser ist (Durchschnittsverbrauch an Treibstoff
+einer Mondrakete = 29 Tonnen pro Sekunde).
+
+**l)** **Schutzgebiete**
+Nicht nur für bedrohte Tierarten, sondern auch für bedrohte Pflanzenarten
+müssen vermehrt zweckmässige Schutzgebiete erstellt werden. In solchen Schutzgebieten, die über den ganzen Planeten verteilt sein müssen,
+ist die Natur völlig sich selbst zu überlassen.
+
+**m) Radioaktive und chemische Abfallprodukte**
+Radioaktive Abfallprodukte und chemische Abfälle, die nur schwer wiederverwertet werden können (z.B. Cadmium), sind so auszulaugen und
+zu vernichten, dass sie der Umwelt, dem Leben und der Natur nicht gefährlich werden können.
+Radioaktive und chemische Abfälle gehören weder in Bunker, unter- oder
+oberirdische Deponien, noch in Meere oder sonstige Gewässer, noch dürfen sie vergraben oder anderswie isoliert und gelagert werden. Für radioaktive und chemische Abfälle sind Beseitigungsmöglichkeiten zu schaffen,
+die weder die Umwelt noch die Menschen und übrigen Lebensformen
+gefährden können.
+
+**n) Ölverseuchungen und Verbrennung von Gummi und Kunststoffen**
+**usw.**
+Die Umwelt hat freigehalten zu werden von Belastungen, die durch Öltransporte mit ungeeigneten Mitteln und durch Kunststoff- und Gummiverbrennungen usw. entstehen.
+Wo immer möglich, muss der Transport von Öl, solange dieses nicht durch
+umweltschonende Energien ersetzt ist, ungefährlich gemacht werden.
+Es ist unverantwortlich und gewissenlos, Öl in Schiffen zu transportieren, die für solche Transporte weder geeignet noch sicher genug sind.
+Öle, Gummi, Kunststoffe und andere die Umwelt stark belastende Materialien dürfen nicht verbrannt werden, sondern sie müssen auf zweckdienlichen Wegen wieder regeneriert resp. wiederverwertet und der
+Produktion und Verwertung zurückgeführt werden.
+
+
+-----
+
+**o) Ausbeutung von Rohstoffen**
+Rohstoffe wie Erdöl, Gesteine und Kristalle sowie natürliche chemische
+Stoffe und Metalle usw. sind wertvolle und unerlässliche Bestandteile
+unserer Erde, die oft 50 oder Hunderte Millionen Jahre Entstehungszeit
+benötigen. Sie dürfen unter keinen Umständen ausgebeutet und sinnlos
+und gewissenlos durch profit- und machtgierige Elemente gehandelt
+werden.
+Alle erdgewonnenen Rohstoffe sind durch andere geeignete Rohmaterialien wie z.B. Silikate usw. zu ersetzen, und das schnellstens.
+
+**p) Private Massnahmen**
+Viele unserer Vorschläge lassen sich nur durch eine neutrale Organisation verwirklichen, die unpolitisch und international tätig ist.
+Ganz besonders wichtig sind aber auch alle privaten Massnahmen, und
+hier lässt sich eine ganze Menge erreichen!
+Generell sollten alle die für Natur, Umwelt und Leben schädlichen Reinigungs- und Waschmittel boykottiert werden. Diese können durch heute
+auf dem Markt angebotene natürliche sowie synthetische und umweltfreundliche Reinigungsmittel ohne weiteres ersetzt werden.
+Jeder Gartenbesitzer kann statt seines künstlich ‹gepflegten› Rasens
+eine Naturwiese in seinem Garten wachsen lassen. Diese Naturwiese
+ist nicht nur sehr schnell ein hauseigenes Paradies, sondern sie macht
+auch wenig Arbeit, da sie weitgehend sich selbst überlassen werden kann.
+Wo der einzelne verantwortungsbewusste Bürger noch mehr für seine
+Umwelt und für die Natur und das Leben tun will, kann er einen kleinen
+Tümpel, ein Weiherchen oder ein Bächlein anlegen, das er dem natür lichen Lauf überlässt. Zu seiner nicht geringen Freude werden sich bald
+seltene Tiere und Pflanzen in seinem Garten einfinden und dort einen
+neuen und ungestörten Lebensraum ihr eigen nennen.
+
+### 4. BELEHRUNG UND ANLEITUNG DER MENSCHEN ZUR SELBSTVERSORGUNG
+
+**a)** **Biologischer Nahrungsmittelanbau**
+Nicht nur im kleinen Rahmen für private Gärten und für Schrebergärten
+sollen die Menschen dazu angeleitet werden, ihre Nahrungsmittel selbst
+wieder biologisch anzubauen, sondern auch dort, wo der Nahrungsmittelanbau in grossem Rahmen betrieben wird.
+
+
+-----
+
+**b) Zweckmässige Nutzung allen fruchtbaren Bodens**
+Der fruchtbare Boden muss zweckmässig genutzt werden. Er darf weder
+ausgebeutet noch ausgelaugt werden.
+
+**c)** **Unabhängigkeit von Lebensmitteleinfuhren aus dem Ausland**
+In erster Linie sind landeseigene Produkte zu verwenden. Es geht nicht
+mehr weiter an, dass unsere Bauern um der Subventionen willen grosse
+Teile ihrer Ernten vernichten. Solche Vorgehensweisen zeugen von äusserster Gewissenlosigkeit und Verantwortungslosigkeit. Es ist in der
+Schweiz ein durchschnittliches Jahreseinkommen von Fr. 50000.– (Stand
+1983; Stand 2010: Fr. 55200.– pro Betrieb) bei den Bauern errechnet,
+was wahrhaft genug sein sollte, auch ohne zusätzliche Subventionen.
+Landwirte, die ihre Ernten ganz oder auch nur zu geringen Teilen vernichten, sollen künftighin den Behörden zur Straferteilung überantwortet werden.
+Lebensmittel aus dem Ausland sollen und dürfen nur noch eingeführt werden, wenn dies nicht anders möglich ist, wenn die betreffenden Lebensmittel im eigenen Land nicht angepflanzt oder sonstwie erzeugt werden
+können (klimatische Bedingungen) oder nicht in ausreichender Menge.
+Die Unabhängigkeit vom Ausland auf dem Nahrungsmittelsektor kann
+auch ganz wesentlich dadurch beeinflusst werden, dass der einzelne
+Bürger, der über ein Stück Land verfügt, dieses selbst bebaut und seine
+eigenen Nahrungsmittel anpflanzt.
+
+**d) Eigene Landesnahrungsmittel verwenden und die Einfuhr stoppen**
+Statt immer exotischeren Früchten und Gemüsen müssen vermehrt
+wieder unsere eigenen Landesprodukte verwendet werden, aus denen
+sich oft die schmackhafteren und gesünderen Speisen herrichten lassen
+als aus den eingeführten Nahrungsmitteln. Durch die bevorzugte Verwendung von landeseigenen Produkten kann aber auch den Bauern ein
+Riegel vorgeschoben werden, die ihre Ernten vernichten, weil ihnen eine
+geeignete Absatzmöglichkeit fehlt.
+
+**e)** **Vermehrte Schaffung von privaten Energieanlagen**
+Grosse Teile der Privatbevölkerung können durch die Einrichtung von
+Wind- und Sonnenenergieanlagen vom öffentlichen Energienetz unabhängig werden. Allen Bemühungen in dieser Richtung ist Priorität einzuräumen und alle Bestrebungen in diesen Be langen haben die grösstmögliche Unterstützung zu finden, und zwar auch durch entsprechende
+Gesetze usw.
+
+
+-----
+
+### 5. BESONDERES
+
+**a)** **Prophetien und Frieden**
+Seit vielen Jahrhunderten, genaugenommen seit rund 2000 Jahren,
+haben Seher und Propheten immer wieder auf einen Dritten Weltkrieg
+hingewiesen und auf die Tatsache, dass die Erde durch ihre Bewohner
+nahezu vollständig vernichtet werde.
+Die Voraussagen von Jmmanuel (fälschlich Jesus Christus genannt) und
+Nostra damus usw. sprechen alle die gleiche und unmissverständliche
+Sprache. Alle ernstzunehmenden Seher und Propheten weisen einmütig
+auf einen Dritten Weltkrieg und auf eine vorhergehende Ausbeutung
+und Zerstörung der Natur hin, und je weiter die Zeit voranschreitet, um
+so offensichtlicher wird die Richtigkeit der Prophetien.
+Prophetien, die in dieser Deutlichkeit genannt werden, verlangen von jedem ernsthaft denkenden Menschen, gewissenhaft und gründlich seine
+eigene Haltung und seine eigenen Friedensbestrebungen zu überdenken.
+Ein Weltfrieden kann nicht und wird nie mehr auf politischer Ebene erreicht werden können, sondern er muss ganz zwangsläufig vom einzelnen
+Menschen ausgehen. Nur der Mensch, der in sich selbst Frieden zu
+schaffen weiss, kann diesen Frieden auch in seine Umwelt tragen und
+in seiner Umwelt wirksam machen. Friedlich gesinnte Menschen aber
+führen auch keine Kriege, die zu einer gesamthaften Zerstörung unseres
+Planeten und allen Lebens führen.
+Das Zukunftsgeschehen interessiert den heutigen Menschen in der Regel
+sehr. Bessert sich die Krise? Kommt der nächste Weltkrieg, wie die üblichen Unkenrufer ständig prophezeien, oder bleibt er aus, wie das manche Wissenschaftler und fehldenkende Optimisten oder Besserwisser
+gerne wahrhaben wollen? Was ist denn daran, an den Voraussagen von
+Nostradamus oder Irlmaier, und haben vielleicht die Astrologen recht,
+die in jeder Zeitschrift ihre Artikel plazieren? Oder sind gar jene Intellektuellen auf dem richtigen Weg, die sagen, dass Voraussagen von Zeitgeschehen reiner Zufall sind und sonst nichts weiter?
+Mit der Zukunft beschäftigt sich der heutige Mensch mit dem gleichen
+Gefühl, wie er es für Science-fiction- und Horrorfilme empfindet. Ein Gemisch von Angst, Bedenken und der Frage nach einer reellen Möglichkeit der Bewahrheitung; im Hintergrund immer den leisen Trost, dass
+alles ja doch nur Spekulation sei und am Schluss doch immer alles anders komme, als man dies gedacht habe. Alles nach dem Motto: Denn
+erstens kommt es anders, und zweitens als man denkt!
+
+
+-----
+
+Reell und vorurteilslos gesehen müssen wir zugeben, dass immer wieder
+Ereignisse in Erscheinung treten und sich erfüllen, die irgendein ‹Spinner›
+schon lange vorausgesagt hat. Ist das nun einfach das sogenannte
+‹Glück des Dummen›, oder hat die Sache wirklich einen gefestigten Hintergrund? Wie sind denn nun eigentlich die Fakten?
+Nehmen wir als Beispiel Nostradamus, den wohl bekanntesten und berühmtesten Seher unserer Breitengrade. Hunderte von Esoterikern und
+sogenannten Geisteswissenschaftlern haben versucht, seinen geheimnisvollen und undurchsichtigen Versen zu Leibe zu rücken. Und jeder für
+sich nahm zum vornherein den Ruhm in Anspruch, dass es ihm als einzigem gelungen sei, das Geheimnis um Nostradamus Hinterlassenschaft
+zu lüften. Aber alle Interpretationen widersprechen sich, wenn man sich
+die Mühe nimmt, diese zu vergleichen. Woher kommt das nun?
+Lassen wir den Seher einmal selbst zu Wort kommen. In seinen Sprüchen,
+die er niedergelegt hat, sagt er über seine Voraussagen, dass sie erst
+rund 500 Jahre nach seinem Tod zuverlässig entschlüsselt werden würden und dass erst dann ein Mensch auf der Erde leben werde, der sein
+Geheimnis zu enthüllen vermöge.
+Diese Aussage aber wird einfach nicht beachtet, sondern glattweg
+unter den Tisch gewischt. Wenn nun aber Nostradamus, wie zu beweisen ist, bisher mit allen seinen Voraussagen recht hatte, warum dann
+nicht auch mit dieser?
+Die Tatsachen sprechen eine deutliche Sprache für jeden, der sich die
+kleine Mühe nimmt, sich offen und vorurteilslos mit dem interessanten
+Gebiet von Voraussagen und Prophetien zu beschäftigen. Die Realität
+beweist, dass Voraussagen nicht nur möglich, sondern eine offene Tatsache sind, mit der wir uns auseinandersetzen müssen wie mit unserem täglichen Leben. Seriöse Prophetien sind eine absolute Realität und
+ein sehr wichtiges Mittel in unseren Händen. Die Beachtung von Voraussagen und deren positive Anwendung wäre imstande, uns eine
+Menge Probleme vom Halse zu schaffen; Probleme, an denen die ganze
+Welt krankt und die uns an den Rand der Selbstzerstörung führen.
+
+**b) Verantwortung zum Erhalt und zur Gesundung des Lebens und des**
+**Planeten für die Nachkommen**
+Jahrtausendelang wurde die Erde von vielen Menschengenerationen
+bewohnt, die ihren Nachkommen jeweils immer den unzerstörten und
+gesunden Planeten hinterliessen.
+Obwohl schon Karl der Grosse gegen die Umweltverschmutzung anging,
+indem er das Waschen schmutziger Wäsche in öffent lichen Gewässern
+
+
+-----
+
+anprangerte, sind tiefgreifende Ausbeutungen und irreparable Schäden
+erst in den letzten Jahrzehnten aktuell geworden.
+Wohl hat es verhältnismässig lange gedauert, ehe der Mensch sich erdreistete, seinen Planeten und seinen Lebensraum sowie die Natur und
+deren Lebensformen hemmungslos zu zerstören und zu vernichten; als
+er aber damit begann, hat er auch gleich innerhalb weniger Jahre ganze
+Arbeit geleistet.
+Wo das Auge heute hinblickt, wird es Zeuge der grenzenlosen Verantwortungslosigkeit des heutigen Menschen. Es sieht die Hinterlassenschaften seiner Gewissenlosigkeit, seiner Achtungs- und Ehrfurchtslosigkeit gegenüber allem Leben, und es sieht die grenzenlose Schuld
+einer arroganten, profitgierigen und machtgierigen sowie pflichtvergessenen Gesellschaft, die nur sich selbst sieht, ohne auch nur den geringsten Gedanken an ihre Nachkommen und deren Nachkommen zu verschwenden.
+‹Nach uns die Sintflut› und ‹Wenn wir gelebt haben, haben alle gelebt›,
+das ist die Devise vieler Menschen von heute; und die heutige Gesellschaft interessiert sich für die Menschen, die unser Erbe übernehmen
+müssen, nicht oder nur sehr wenig. Hauptsache ist, man verdient genug
+Geld, das sinnlos aus dem Fenster geworfen und verjubelt oder gehortet
+werden kann. Alles andere lässt uns kühl. Höchstens noch, dass wir uns
+zu Mitleidsbezeugungen hinreissen lassen für die armen Hungernden.
+Die Arbeitslosen hingegen sind schon selbst schuld.
+Die Verbrechen der Gesellschaft, ihre Arroganz und ihre Gewissenlosigkeit, ihr Egoismus und ihre Macht- und Profitgier kennen keine Grenzen mehr. Eine ausgeartete Gesellschaft braucht der heutige Mensch
+sich nicht mehr vorzustellen und zusammenzuphantasieren, denn er gehört bereits selbst dazu. Er lebt in einer solchen ausgearteten Gesellschaft, und er ist Teil von ihr.
+Der Mensch aber, will er nicht von seinen Nachkommen bis ins unzähligste Glied der Zukunft verdammt und verflucht werden, muss Verantwortung tragen lernen und sie zu leben verstehen. Verantwortung für
+Fauna und Flora, für seine Umwelt, die Natur, für seinen Nächsten und
+für sich selbst. Die erste, wichtigste und heiligste Aufgabe des heutigen
+Menschen ist es, die von ihm angerichteten Schäden und Zerstörungen
+tatkräftig zu beheben, auszumerzen und all das, was er kaputtgemacht
+hat, wieder instand zu stellen. Die vom Menschen geschlagenen Wunden
+und Narben in der Natur hat er selbst wieder mit liebevoller Hand zu
+schliessen, wenn ihm nicht dereinst in der Zukunft ein böses Erwachen
+werden soll.
+
+
+-----
+
+Weder der imaginäre liebe Gott noch Regierungen, Nachbarn, andere Mitmenschen oder gar Ausserirdische und Geister sowie Heilige vermögen
+den Menschen von seiner Verantwortung zu entbinden und für ihn und
+in seinem Auftrag zu handeln, um das wiedergutzumachen, was er selbst
+verdorben und zerstört hat. Die Gesetze der Natur und des Lebens verlangen, dass jeder Mensch und jede Generation sowie jede Gesellschaft
+selbst ihre Fehler erkennt und behebt und die angerichteten Schäden und
+Zerstörungen wiedergutmacht.
+Mit Wiedergutmachung allein ist es aber nicht getan!Der Mensch muss
+seine Lebenseinstellung und seine Lebensweise ändern. Er hat sich zurückzubesinnen auf jene Werte, die bleibend und ewig gültig sind. Geld
+und sonstige materielle Werte sind vergänglich, das kann wohl jeder
+bezeugen, der einmal in Not geraten ist oder in einem Krieg sein gesamtes Hab und Gut verlieren musste. Unvergänglich und bestehend aber
+sind die Werte, die eine gesunde und intakte Umwelt und Natur uns zu
+geben vermögen. Unvergänglich ist jener Reichtum, den der Mensch sich
+in immaterieller Form zu erarbeiten und zu gewinnen vermag, wenn er
+als wahrheitlicher Mensch sein Leben lebt.
+Menschsein bedeutete und bedeutet zu keinerZeit,egoistisch nur an sich
+selbst zu denken und einseitig nur das eigene Wohl im Auge zu haben.
+Das Menschsein erfüllt sich auch nicht in der Anschaffung von Palästen
+und anderen materiellen Werten, und es erfüllt sich schon gar nicht in
+einer grenzenlosen Rücksichtslosigkeit gegenüber Mitmenschen und
+der Fauna und Flora.
+Das Menschsein erfüllt sich allein und absolut nur in der Erfüllung der
+natürlich gegebenen Gesetze und Gebote, im Erhalt und in der Pflege der
+Natur und in Liebe und Frieden zu den Mitmenschen. Nur der Mensch,
+der sein Leben friedvoll und ausgeglichen, liebevoll und gütig zu leben
+versteht, kann seine Aufgabe und sein Lebensziel als Mensch erfüllen
+und erreichen.
+
+**c)** **Von Organisationen bereits getroffene Massnahmen sind un-**
+**brauchbar**
+Die Übel und die Zerstörungen in unserer Welt dürfen nicht nur gemildert
+und gelindert werden, denn eine Milderung oder eine Linderung verschärfen die Übel und die Zerstörungen, wie alle bisherigen Bemühungen
+von bereits bestehenden Organisationen beweisen.
+Zögernde, lasche und unlogische Teillösungen der weltweit akuten Probleme und Zerstörungen sind weniger als ein Wassertropfen auf einen
+glühenden Stein, denn sie verschlimmern nur alles.
+
+
+-----
+
+Das einzige,was zu diesem Zeitpunkt noch unternommen werden kann,
+muss mit einem eisernen Besen unternommen werden. Die Übel
+haben nicht nur gemildert, sondern behoben und ausgemerzt zu werden. Dazu aber sind Mut, Tatkraft, Logik und Furchtlosigkeit vor den Folgen eine Grundvoraussetzung.
+Alle bekannten Organisationen zeichnen sich durch grösste Diplomatie
+und grössten Euphemismus aus. Statt gehandelt wird nur schön geredet.
+Grosse Worte ersetzen grosse Taten, und letztendlich bleibt nichts von
+Nutzen und Erfolg übrig.
+Keine der bekannten und eingebürgerten Hilfsorganisationen war und ist
+imstande, wirksame Hilfe zu leisten. Gleichgültig mit welchen Hilfeleistungen sie sich hauptsächlich beschäftigen: Ihre Hilfe ist keine echte
+Hilfe, denn sie legen nur wirkungslose Pflaster auf schwelende und schwärende Wunden, in der ungerechtfertigten Hoffnung, das Messer umgehen zu können. Damit aber, mit ihrem Zögern, ihrer Diplomatie und ihrer
+unwirksamen Hilfe, verschlimmern sie nur alle Übel und alle Zerstörungen.Statt auszumerzen, legen sie die Keime für weiteres schleichendes
+Siechtum unseres Planeten und aller seiner Lebensformen.
+Der heutige Zustand unserer Erde verlangt extreme, rigorose und radikale
+Lösungen und extreme, rigorose und radikale Eingriffe, wenn noch etwas
+gerettet werden soll. Rücksichten können und dürfen keine mehr genommen werden, weder auf Regierungen noch auf einzelne Finanzgruppen
+und deren Interessen, noch auf Industrien und deren Interessen. Vorrang
+hat alleine noch das Interesse der Gesamtmenschheit, der Natur, der
+Umwelt und der Fauna und Flora. Alles andere hat sich anzupassen und
+den Erfordernissen der Übelbekämpfung und der Zerstörungsbehebung
+zu unterwerfen. Die jetzige und spätere Freiheit des Menschen kann nur
+gewährleistet und erreicht werden, wenn Natur und Mensch gesund
+und in jeder Beziehung wieder lebensfähig gemacht und dann so er halten werden. Dazu aber ist es unumgänglich, die Zerstörungen und
+Schäden, die wir angerichtet haben, mit Nachdruck, Kraft und grosser
+Eile wieder zu beheben.
+
+**d) Schriften der FIGU**
+Die FIGU befasst sich in erster Linie mit dem Menschen; mit seinem
+Ziel und dem Zweck seines Daseins; mit der Aufgabe des Menschen als
+Mensch sowie mit seiner geistigen und bewusstseinsmässigen Entwicklung und Evolution.
+Dazu hat die FIGU eine Reihe von Schriften herausgegeben, die für jeden
+verantwortungsbewussten und suchenden Menschen von grösstem
+
+
+-----
+
+Wert und Interesse sind. Die Schriften und Lehrgänge der FIGU befassen sich mit allen möglichen Lebensgebieten und sind imstande, dem
+Menschen zu einer besseren Zukunft zu verhelfen, wenn er anhand
+dieser ihm angebotenen Literatur an sich selbst zu arbeiten bereit ist.
+
+**e)** **Tatsachen**
+Auf allen Gebieten der Hilfe für Mensch, Fauna, Flora, Natur und dem
+Planeten müssen völlig neue und endlich wirksame Wege beschritten
+werden.
+
+Alle gegenwärtig bestehenden Probleme und Übel müssen erfolgreich bekämpft und behoben werden, um sie bis zur Wurzel
+zu ersticken und nicht wieder neu wuchern zu lassen.
+
+Die altherkömmlichen Mittel der Übel- und Schadensbekämpfung sowie
+der Notlinderung usw. sind entweder veraltet oder völlig sinnlos und
+wirkungslos. Sie müssen ersetzt werden durch Methoden und Taten, die
+der Riesenhaftigkeit der Übel, Notstände und Zerstörungen angepasst
+sind und diesen Herr zu werden vermögen.
+
+
+_Beispiele:_
+Hunger-Lebensmittelnot;
+Verseuchung der Natur
+durch Chemikalien und
+Radioaktivität; Tierausrottung usw. usf.
+
+
+Die seit Jahrhunderten von verschiedenen
+Organisationen durchgeführten Hilfen entsprechen nicht dem erforderlichen Umfang,
+nicht den zweckmässigen Gegebenheiten
+und nicht einer Behebung aller Übel.
+
+
+Organisationen und Politiker finden und treffen nur unwirksame MinimalstTeillösungen, die einer Hilfe und Behebung von Notständen gleichkommen, die nur einem winzigen Tropfen auf einen glühenden Stein entsprechen, was einer Wirkung von fast Null entspricht, wenn überhaupt.
+
+Täglich sterben auf der Erde nachweislich Tausende Menschen
+(2008: 25000 gem. UNO, Food and Agriculture Organization [engl.
+für ‹Ernährungs- und Landwirtschaftsorganisation›]) des Hungers,
+wobei die Dunkelziffer der nichtzählbaren Verhungernden nicht
+miteingerechnet ist, die nochmals viele Tausende umfasst.
+
+Eine unter der Federführung der International Union for Conservation
+of Nature (IUCN) stehende Kommission aus rund 1700 Wissenschaft
+
+-----
+
+lern aus 130 Ländern kam zum erschreckenden Ergebnis, dass (2012)
+heute mindestens 20–25 % – unter Umständen aber bis zu 36 % – aller
+Land- und Meeressäugetierarten vom Aussterben bedroht sind. Die
+IUCN listet 514 Arten, also rund 10%, als stark bedroht oder bedroht,
+insgesamt sind mindestens 1141 der derzeit 5487 rezenten Säugetierarten akut bedroht.
+
+Robben können vor Massenschlächtereien nicht durch ein kindisches Getue der Farbenbesprayung gerettet werden, sondern einzig
+und allein durch wirksame Massnahmen und überlegtes Denken
+und Handeln.
+
+Energieprobleme und Hungerprobleme können weder durch stetig neue
+Energiequellen noch durch Lebensmittelhinschaffung in die Hungerzonen
+gelöst werden. Im stetigen Steigen der Überbevölkerung können diese
+Übel und Probleme niemals behoben werden, wenn dem Wahnsinn der
+überbevölkerungsproduzierenden Nachkommenschaftszeugung nicht
+Einhalt geboten wird. Jede neu erstellte Energiequelle verausgabt sich
+in ihrer Leistungslieferung, sobald die Zahl der Überbevölkerung wieder
+weiter angestiegen ist und weiterer Energie bedarf. Genauso verhält es
+sich mit der erforderlichen Nahrung für die Hungernden. Je mehr Nahrung erzeugt wird, desto mehr wird sie benötigt und verbraucht durch
+unzählige Nachkommen, deren Münder zu stopfen so niemals möglich
+sein wird. So liegt die einzige Möglichkeit der Behebung dieser Übel in
+einem vieljährigen kontrollierten Geburtenstopp weltweiter Form, berechnet je nach fruchtbarem Land und Bevölkerungszahl der jeweiligen
+Staaten.
+
+**Tierschlächtereien und Tierausrottungen von Robben, Grosswild,**
+**Vögeln, Fischen, Insekten, Reptilien, Bodenorganismen und Pelz-**
+**tieren usw. usf. können nur verhindert werden durch folgende Mass-**
+**nahmen:**
+
+1) Solidarischer Streik; Boykott und Abstandnehmung der Menschen, Produkte von solchen gemordeten Tieren zu erstehen und zu benutzen.
+
+2) Mord-, Schlacht- und Jagdverbote erweitern und bedingungslos durchsetzen.
+
+3) Störung aller Mord-, Schlacht- und Jagdaktionen (ausgenommen
+Hege jagd).
+
+
+-----
+
+4) Aufkauf und Privatisierung (Organisation/Privat) sowie massive Beschützung aller Gebiete und Inseln etc., wo Tiermord, Menschenmord, Sportjägerei und Schlächtereien stattfinden.
+
+5) Hege, Pflege und nötigenfalls Neuzucht der aussterbenden Tierarten.
+
+6) Harte Zurrechenschaftziehung aller jener, die aus profitgierigen Gründen oder als Hobby, Urlaubsspass oder Freude am Töten usw. mörderisch Tiere oder Menschen töten und abschlachten.
+
+7) Verbot und Gegenmassnahmen zur Verwendung von Kunstdünger und
+Treibmitteln in der Bodenbearbeitung und für den Nahrungsmittelanbau usw.
+
+**f)** **Die massgebendsten Zerstörer des Lebens, der Erde, der Natur,**
+**Fauna, Flora und des Menschen sind:**
+
+1) Industrie, Chemie, Kriegsforschung (Abgase = saurer Regen usw.,
+Gewässerverschmutzung, Gewässerzerstörung, radioaktive Verseuchung, Luftverschmutzung etc.).
+
+2) Landwirtschaft (Vernichtung der Tier- und Vogelwelt sowie der Insekten und der Mikroorganismenwelt durch Kunst düngung, Giftversprühung, Bearbeitung des Bodens mit schweren Maschinen, Waldund Feldheckenrodung usw.).
+
+3) Autos, Flugzeuge, Motorräder, Militär (= Abgase; 1 Grossraumflugzeug für 350 Passagiere erzeugt pro Stunde so viel Abgase wie
+800 mittlere Pkws; Giftstoffverwendung, Atomwaffenverwendung,
+Abgaserzeugung, Gase, Seuchenerzeugung durch Leichen, kommerzielle Atomnutzung usw.).
+
+4) Haushalte, Wäschereien etc. (= Verwendung chemischer Waschmittel aller Art, Gewässerverschmutzung und Gewässerzerstörung!).
+
+5) Atomkraftwerke (= Gewässererwärmung und -zerstörung, radioaktive Abfälle und Vergiftung und Verstrahlung der Umwelt und Atmosphäre.).
+
+Jede Hilfsorganisation kassiert von den ihr anvertrauten Spendengeldern gesetzmässig bis zu 40% für eigene Unkosten usw.
+
+
+-----
+
+**g) Arbeitslosigkeit**
+Das Übel der Arbeitslosigkeit ist weltweit; Millionen von Menschen sind
+davon betroffen. Familien haben ihr Auskommen nicht mehr, und als
+Selbsthilfe werden deswegen immer öfter sogar kriminelle Handlungen
+begangen.
+Besonders Krisenzeiten treiben die Arbeitslosigkeit und somit auch Not
+und Elend hoch. Solchen Vorkommnissen muss ent gegengetreten werden, von Staates wegen ebenso wie auch von seiten der Arbeitslosen.
+Viele der Arbeitslosen könnten sehr wohl Arbeit und ein familienversorgendes Auskommen haben, würden sie sich wie vernünftige Menschen
+benehmen und auch Arbeiten annehmen und verrichten, die nicht gerade im und auf dem Gebiet ihres erlernten Berufes liegen und die vielleicht deswegen etwas minder entlöhnt werden. Andererseits wäre es
+für den Staat selbst sehr wohl möglich und jederzeit durchführbar, für
+wirklich Arbeitslose eine Form von Einheit zusammenzustellen, die sich
+z.B. mit Wald-, Flur- und Landwirtschafts- sowie Gartenarbeiten beschäftigt und in die alle wirklichen Arbeitslosen zur Gesamt- und Gemeinsamsarbeit eingefügt werden, um so auf diese Weise so lange ihr
+Auskommen zu finden, bis sie in ihren Berufen wieder eine Betätigung
+finden können. Zur Entlöhnung wäre es dabei sehr wohl angebracht,
+dass hierzu die vielen Milliarden an Finanzbeträgen verwendet werden,
+die sinn- und zwecklos für militärische Aufrüstung und Subventionen
+usw. verpulvert und verdonnert werden. Dadurch aber hätten wirklich
+Arbeitslose und ihre Familien ein annehmbares Auskommen, so weder
+Arbeitslosigkeit noch Not herrschen würden. Eine solche Lösung muss
+mit allen erlaubten Mitteln angestrebt werden, und zwar wider alle Hindernisse jener, die gerne ‹Kriegerlis› spielen, Angst vor imaginären Feinden haben oder einfach auf der Arbeitsamen Kosten Urlaub machen und
+sich dabei noch erwachsen fühlen.
+
+**h) Arbeitsscheue Elemente und leichte Kriminelle**
+Anstatt dass solche Elemente ohne nutzvolle Betätigung eingesperrt
+und auf Kosten der Steuerzahler für viele Monate oder Jahre sinnlos und
+auf diese Weise unbelehrbar hinter Zuchthaus- und Gefängnismauern
+verköstigt werden, sollen sie in sozialem Einsatz arbeiten in Wald, Feld
+und Flur, zusammen mit Arbeitslosen-Einheiten, unter deren Aufsicht und
+Belehrung sie zu wahrlichen und nutzvollen Bürgern und Menschen heranwachsen können.
+Hat der Staat die richtige Einstellung zur Natur und zum Leben überhaupt,
+dann erkennt er rundum in der Umwelt so viel Arbeit und Möglichkeiten,
+
+
+-----
+
+wo Arbeitskräfte zur Waldpflege, Bepflanzung, zum Nahrungsmittelanbau
+und zur Pflege und Hegung der Natur und aller Lebensformen eingesetzt werden können, um alle nötigenfalls über viele Jahrzehnte und
+Jahrhunderte hinweg zu beschäftigen, die für diese Aufgaben infolge
+anderweitigem Arbeitsmangel usw. herangezogen werden können – inklusive jenen, die als Armeen militärisch sehr oft nur Sinnloses tun.
+Eine solche Lösung bringt einzig und allein nur Vorteile, denn erstens
+gibt es so niemals mehr das Problem der Arbeitslosigkeit und auch nicht
+das sinnlose Spielen von ‹Kriegerlis›, und zweitenswerdendadurch arbeitsscheue und leicht kriminelle Elemente unter der Obhut und Anleitung
+rechtschaffener Bürger zu ebenfalls rechtschaffenen Gesellschaftsmitgliedern erzogen, wobei sie ihre Verköstigung selbst erarbeiten müssen.
+Nicht zuletzt fällt bei einem solchen Projekt noch massgebend und gar
+ausschlaggebend ins Gewicht, dass sehr viel an Nahrungsmitteln und
+sonstigen Produkten im eigenen Land erzeugt werden können, wodurch eine weniger grosse Abhängigkeit vom Ausland entsteht und
+wobei zudem die einheimischen Erzeuger von Nahrungsmitteln und anderen Produkten tatsächlich diese auch veräussern können, ohne diese
+aus Protest vernichten zu müssen,weil die zuständige Organisation billigere Güter aus dem Ausland in eigen-infrastruktur-zerstörender Weise
+unverantwortlich einführen lässt.
+
+### 6. NOCH EINIGE GEDANKEN …
+
+**Für alle Menschen dieser Welt**
+Wissen ist Wahrheit;
+Wahrheit ist Liebe;
+Liebe ist die wahrliche
+Grundlage allen Seins.
+Darum lerne, lieber Mitmensch,
+die Gesetze und Gebote
+der Schöpfung in Logik.
+
+Wahrlich, dem ist so und
+so wird es auch immer sein
+für alle Zeit.
+
+Lerne und schweige –
+rede, wenn du weisst!
+_Freddy, Gilgamesha, Silvano_
+
+
+-----
+
+**Besondere anzugehende und zu erfüllende Aufgaben**
+
+1. Renovation oder Sanierung alter oder baufälliger Gebäulichkeiten für
+minderbemittelte Familien.
+
+2. Aufbau, Renovation oder Ausbau von Kinderhorten, Alters-Wohngemeinschaften und Pflegeheimen, Krankenstationen und sozialen Beratungsstellen. Aufbau von Schulen, Werkstätten usw.
+
+3. Aufbau von Gruppen im Rahmen der FIGU zwecks globaler Forschung,
+Schulung und Verbreitung fundamentaler Wahrheiten des Wissens und
+der natürlichen Gesetze und Gebote (= Grenz- und Geisteswissenschaften, Lebenshilfe, Lebensgesetze usw.).
+
+4. Naturschutz; globale Behebung von durch den Menschen verursachten
+Schäden aller Art in Wald, Feld, Flur und Gewässern (= Wiederbepflanzung, Erstellung von Biotopen, Aufforstungen etc.).
+_‹Billy› Eduard A. Meier_
+
+5. Aufbau eines vollwirksamen Tier- und Vogelschutzes, dessen Aufgaben
+insbesondere in der Zusammenarbeit mit Behörden und Privaten vor
+allem in der Überwachung – nicht nur in der kultivierten, sondern auch in
+der wildlebenden Tierwelt in allen Ländern und Staaten unseres Planeten
+– gesehen werden muss.
+
+6. Als führende Gruppe und Vereinigung in der bewusstseinsmässigen
+Evolutionshilfe und der Lebenshilfe im allgemeinen rufen wir charakterlich einwandfreie Menschen auf, sich an unserer zusätzlichen Aufgabe
+zu beteiligen, die sich in verschiedenste Gebiete aufgliedert und die als
+Beginn zu einem wirklichen und wahrhaftigen Frieden in Ehrlichkeit und
+Ehrfurcht vor dem Nächsten und zur wahrlichen Liebe führen soll.
+_Engelbert Wächter_
+
+7. Der Natur nicht in ihre natürliche, logische Ordnung pfuschen; jede Missachtung dessen wirkt in negativer Form auf den Menschen selbst zurück.
+Jedes Lebewesen benötigt die Grundelemente des Lebens:
+Luft – Wasser – Licht und Wärme – Erde
+_Elisabeth und Josef Gruber_
+
+
+-----
+
+8. Die Menschen, die in ausgesiedelten Konzernen arbeiten und sie betriebsfähig erhalten, müssten schichtweise eingesetzt werden an Ort und
+Stelle. Dies bedeutet, dass ein Einsatz in einem solchen Konzern nicht
+länger als 3–4 Wochen andauern sollte, damit den dort tätigen Menschen
+ein ständiger Kontakt zur Umwelt, zur Familie, zu Freunden und Bekannten etc. erhalten bleibt.
+Selbst hier, inWüsten und Einöden, könnte man dank der fortschrittlichen
+Technik naturbezogene Unterkünfte errichten (Pflanzen, künstliche
+Seen usw.), damit den dort arbeitenden Menschen die Möglichkeit gegeben ist, wenigstens in der Freizeit Erholung in einer natürlichen Umgebung zu finden.
+_Silvano Lehmann_
+
+9. Eine WIEDERGUTMACHUNG wird angestrebt durch:
+– Erstellen von Schutzgebieten.
+– Verhinderung von Spritzeinsätzen mit Schädlingsbekämpfungsmitteln.
+– Abbau der Kunstdüngerverwendung.
+– Aufforstung aller Art.
+– Erstellen von Biotopen.
+– Verschönerung des Hausgartens (Wildwuchs).
+– Im gesamten wieder die Natur an sich selbst arbeiten lassen.
+– Anstreben des Kontaktes zu Behörden, um Missstände aller Art durch
+das Gesetz zu beseitigen.
+– und vieles andere mehr.
+
+Diese Leistungen zu verwirklichen bedingt, dass auch Sie Missstände erkennen und nach Möglichkeit selbst beheben, also dass auch Sie ihre
+persönliche und tatkräftige Mitarbeit vor Ort zu leisten bereit sind.
+_Thomas Keller_
+
+10. Massnahmen zum bestmöglichen Schutz der Umwelt:
+
+**Der Gewässer: Die durch giftige und verschmutzte Abwässer, Chemi-**
+kalien, Tankerunfälle, Atommüllablagerungen usw. in
+ärgste Mitleidenschaft gezogen wurden.
+
+**Der Luft:** Die als Träger giftiger Dämpfe und Abgase, Treibgase
+und partikelfeiner Schadstoffe usw. bereits heute zu
+Milliardenschäden und gefährlichen lebensbeeinträchtigenden Zerstörungen geführt hat.
+
+
+-----
+
+**Des Bodens:** Der sich als Folge von Rohstoffausbeutungen, Stauseenbauten, Rodungen, Erdbewegungen, Atombombenversuchen und Raubbau aller Art, Erosionen, Unfruchtbarkeit, Mutationshervorbringung und Bildung von Einöden
+schon absterbend bemerkbar macht.
+
+**Der Erde:** Die durch die vergangenen atomaren Explosionen arg
+aus ihrem natürlichen Klima gerissen wurde (was die
+Forschung bis heute bestreitet) und die durch die Zerstörung der Ozonschicht in Zukunft tödlichen Strahlen
+ausgesetzt sein wird, wobei auch Erdbeben und Vulkanausbrüche (vielfach durch die Schuld des Menschen) Tod und Zerstörung bringen.
+
+**Um diesen Missständen entgegenzuwirken, schlägt die FIGU folgen-**
+**de Aktionen vor:**
+
+– Umweltschonende Energieformen (geeignete, umweltfreundliche
+und nicht lebenszerstörende Antriebsmittel) entwickeln.
+– Neue Formen von Rohmaterialgewinnung (ohne Nachteile für die
+Erde, die Natur und die Lebensformen).
+– Recycling (Wiederverwertung) zur Anwendung bringen (neue Verfahren suchen und anwenden).
+– Oekologiebewusstes Denken den Menschen lehren und es fördern.
+– Naturschutz und Tierschutz in zweckdienlicher Form und erfolgbringend zur Anwendung bringen und durchführen.
+– Ländereien aufkaufen zur Wiederinstandstellung der natürlichen
+Formen.
+– Vorgehen gegen atomare Versuche.
+– Vorgehen gegen Rodungen, Kriege, Revolutionen, Tierschlächtereien,
+Gewässerverschmutzung, Landschaftsverschandelung und -zerstörung usw. usf.
+_Thomas Keller_
+
+11. Mensch der Erde, wenn du über deinen blauen Planeten wandelst, dann
+ist dir bestimmt schon aufgefallen, dass sich in unserer Natur und in ganzen Landschaftsabschnitten und überall dort, wo der Mensch seine Finger nur um des materiellen Vorteils willen im Spiel hat, die Zerstörung
+ausgeprägt bemerkbar macht. Das Ziel der Zerstörung wird mit allen
+Mitteln verfolgt, vom Normalbürger bis hin zu den Verantwortlichen! –
+
+
+-----
+
+Wer nun aber ist verantwortlich? Dies ist jeder einzelne Mensch, auch
+wenn er sich noch so passiv verhält und sich diesbezüglich keine Gedanken macht.
+In der Natur sieht es nämlich deshalb so trostlos aus, weil, wenn der
+Mensch denkt, er in der Regel FALSCH und unlogisch denkt, sei es aus
+Gleichgültigkeit oder Verantwortungslosigkeit.
+Der Mensch MUSS sich endlich bewusst werden, dass jede Auswirkung
+und Wirkung ihre Ursache hat, was absolut logisch ist.
+Diese Auswirkungen sind aber katastrophal. Der Mensch hat in den letzten
+Jahrzehnten die Natur und die Erde ausgebeutet, ja sogar vergewaltigt –
+kaputt gemacht!
+Die Folge davon ist, dass Jahrhunderte, Jahrtausende, ja Jahrmillionen
+werden vergehen müssen, um die durch Denk- und Handlungsfehler
+verursachten Schäden der letzten Jahrzehnte an der gesamten Natur,
+an der Erde und an allen Lebewesen wieder zu beheben.
+Die Verantwortlichen können sicher sein, dass sie selbst die Auswirkungen noch deutlich zu spüren bekommen werden, auch wenn sie
+selbst noch des irren Glaubens sind, sie lebten ja nur einmal, ihnen
+könne daher nichts mehr zustossen. Darin irren sie sich gewaltig!
+Wenn der Mensch im Einklang mit der Natur leben will, darf er sie nicht
+zerstören, sondern es ist Pflicht und Aufgabe jedes einzelnen, im Sinne
+der natürlichen Gesetze mit der Natur zusammenzuarbeiten. Die Natur
+ist eine fixe Schöpfungsrichtung und ein Wegweiser für den Menschen;
+es ist dies ein Schöpfungsgesetz!
+_Jacobus Bertschinger_
+
+12. Mensch, verstehe und bedenke und suche die Verbindung zur Natur.
+Mensch, bedenke und komme wieder mit der Natur in Verbindung.
+Schaue wieder auf die Vogelwelt und die Tierwelt, damit diese zu ihrer
+ursprünglichen Lebensart und Umgebung zurückfinden können.
+Sümpfe und Waldbestände müssen wieder in den Urzustand zurückgebildet werden.
+Wir finden weltweiten wirklichen Frieden, indem wir die richtigen Menschen als Führungskräfte wählen! Nur damit kann die ganze Welt erreichen, dass alle Menschen an die wahrliche Wahrheit herangeführt werden.
+_Hans Benz_
+
+13. Warum müssen wir z.B. unbedingt darauf bestehen, alles daran zu
+setzen, dass unsere Luft wieder sauber wird?
+
+
+-----
+
+Antwort darauf gibt Semjase: «EIN Grund dafür ist z.B., dass Sauerstoffmangel und das Fehlen von verschiedenen durchsetzenden Gasen zu
+Irreparabilität mit völliger Bewegungshemmung führt. Durch das Fehlen
+von Sauerstoff und der in der Atmosphäre enthaltenen Gase erfolgt im
+Gehirn eine Paralysierung gewisser Sektoren, die den Selbsterhaltungstrieb in sich bergen. Das Gehirn wird also in gewissen Sektoren lahmgelegt und funktionsuntüchtig gemacht, das heisst also, dass man
+lebendig tot sein würde.»
+«Die Naturgesetze erscheinen dem noch unwissenden Erdenmenschen
+sehr hart und unhuman – sie sind aber in ihrer Art absolut perfekt und
+logisch und sie bedürfen niemals einer Revision!»
+_Brunhilde Koye_
+
+14. Generelles Verbot nicht notwendiger Tierversuche!
+Öffentliche und private Förderung aller Forschungsmethoden, die keine
+Tierversuche anwenden und geeignet sind, Tiere zu ersetzen!
+In einem Zeitungsartikel stand zu lesen, dass jährlich 300 Millionen Tiere
+auf der Welt ‹im Namen der Wissenschaft› gequält werden. In jeder
+Sekunde sterben 20, oft grausam zugerichtete Tiere!
+Mit Albert Schweitzer können wir sagen: «Nur die Beachtung des Gesetzes der Ehrfurcht vor dem Leben, die tätige grenzenlose LIEBE zu
+allem was lebt, kann den Kulturzerfall aufhalten.»
+_Elsi Moser_
+
+15. Seine Mitmenschen lieben wie sich selbst. In sich die universelle Liebe
+aufbauen, indem man zu allen Menschen, Tieren, Pflanzen und dem
+ganzen Universum Achtung und Ehrfurcht empfindet, da ja alles miteinander verbunden ist.
+Wenn Meinungsverschiedenheiten auftreten, immer zuerst den Fehler
+bei sich selbst suchen und nicht bei den andern.
+Zuerst bei sich selbst, in der eigenen Familie, im Verwandten- und Bekanntenkreis für Frieden, Liebe, Harmonie und Ausgeglichenheit besorgt
+sein, damit sich diese harmonische Schwingung auf die Nächsten und
+universell ausbreitet.
+_Hanni Bieri_
+
+16. Beachte das Gebot der Nächstenliebe, nimm dir z.B. Zeit für die Jugend
+in deiner Umgebung, anstatt noch in Nebenbeschäftigung dir das Geld
+für den Erwerb des zehnten Hutes, der zwanzigsten Handtasche oder
+
+
+-----
+
+dem dreissigsten Paar Schuhe zu beschaffen!
+Kann der Jugendliche sich bei dir Antwort holen auf die schwierigen Fragen
+des Lebens, die er nur ungenügend und unlogisch erhält, dann hältst du
+ihn womöglich vielleicht ab von Drogensucht und von Streit, dem er vielleicht anheimfällt, bloss weil er suchend ist. Die Jugend ist wach, sie droht
+den Begriffen ‹Selbstverwirklichung› und ‹Psychologie› und Irrationalem
+zu verfallen, sucht in alten Religionen, doch auch diese geben nicht unverfälschte Auskunft!
+Bestätige der Jugend, dass ‹Glaube› heute nicht mehr ausreicht, nicht
+ausreichen kann, denn WISSEN in LOGIK allein hilft ihr!
+Brunhilde Koye
+
+17. Hinweis auf verschiedene Grundwerte im Menschen:
+
+1) Zunächst sich selbst beachten und kennenlernen.
+2) Bereitschaft zum Lernen auf jedem Gebiet.
+3) Den Menschen vorzeigen und vorleben was WAHRHEIT ist.
+
+**WICHTIG:** Nicht denkfaul und nicht lernfaul sein.
+Selbstkritik üben!
+
+Man kann nur das weitergeben und lehren, was man selbst als Wahrheit
+und Wissen erkannt und erlernt hat, jedoch nicht nur in der Theorie!
+Im praktischen Leben beweisen, was Wahrheit ist, nicht nur mit dem
+Mund!
+
+Billy sagt: «Schweigen ist diamanten, Reden ist Blech.»
+_Eva Bieri_
+
+18. Auszug aus ‹Leben und Tod› von Billy:
+Im apostolischen Glaubensbekenntnis, Mensch der Erde, musst du bezeugen, dass Jmmanuel (fälschlich Jesus Christus genannt) nach der
+Kreuzigung in die Hölle gefahren und am dritten Tage von den Toten
+auferstanden sei. Doch schon einmal fragte ich dich, Mensch der Erde:
+
+«Wo ist denn diese Hölle?»,
+
+und ich antwortete dir in aller Ehrlichkeit mit der Wahrheit, dass diese
+nicht ein Ort, sondern ein Zustand ist, Mensch der Erde, der in dir selbst
+bösartig lodert und dich stetig mehr verbrennt, wenn du nicht endlich
+der Wahrheit trächtig wirst!
+
+
+-----
+
+**FRAGE: Wieviel mehr Not, Elend und Leid willst du, Mensch, noch**
+durchleben, um endlich noch intensiver nach der Wahrheit zu
+suchen?
+
+Gedichte aus ‹Leben und Tod› von Billy:
+
+«Der Mensch muss die Hölle erleben,
+um den Himmel verstehen zu können.»
+
+«Doch willst du wissend nun endlich sein,
+musst du dir lassen die Wahrheit künden,
+weil nur sie stetig und fürwahr allein
+alle Liebe des Lebens kann begründen.»
+
+«Der springende Punkt der wahrlichen Wahrheit
+ist der Bestand und die Beständigkeit des
+WISSENS, der LIEBE und der WEISHEIT.»
+_Karin Scheil-Proff_
+
+19. Es ist herzzerreissend, Tiere als Pelz- und Fleischlieferanten in ihren verdammt engen Käfigen betrachten zu müssen, wie sie unermüdlich hinund herlaufen. Oft können sie auch nur gerade einen Schritt tun, um sich
+im nächsten Moment wieder kehren zu müssen, wenn sie das überhaupt können!
+Mensch der Erde, hast du denn kein Gewissen?
+Mir scheint es nicht, denn sonst würdest du vernünftiger sein und dir
+so keine Tiere halten, um an Fleisch und Pelze usw. zu gelangen. Hättest
+du keine Tiere, dann würdest du dir auch ein Kunstfell anschaffen, wenn
+du gerade einen Mantel oder eine Jacke benötigst.
+Schuldiger Mensch, weisst du, wie sich ein gequältes Tier fühlt? Wenn
+nicht, dann ziehe ich dir einmal das Fell über die Ohren, vorher aber
+sperre ich dich in einen viel zu kleinen Käfig, dann kannst du mir sagen,
+wie man sich fühlt! Na, wie denn?!
+_Cornelia Wächter_
+
+20. Leider bedeutet noch zur Jetztzeit für sehr viele Menschen erst der Tod
+ihres physischen Leibes den Beginn des eigentlichen Lebens und damit
+das allmähliche Wiederaufstrahlen des inneren Sohars.
+21. Die Jetztzeit der Wassermannära fordert das Denken des Menschen
+der Erde und die Geistes-Evolution.
+_Plejadisch-plejarische Kontaktberichte_
+
+
+-----
+
+22. WAS ist Wahrheit?
+**WAHR ist,**
+dass überall im Universum sich vielartige Lebensformen offenbaren,
+denen allen ein ganz bestimmtes Gesetz zugrunde liegt. Es ist jenes
+grosse und unsichtbare Wirken der Schöpfung, das als unlösbares
+Geheimnis die endlose Dauer und endlose Wandlung bewirkt.
+Alles, was im Universum Leben atmet, ist durch dieses unlösbare
+und geheimnisvolle Gesetz räumlich und zeitlich gebunden.
+Nicht so die geistigen Formen, die in demselben Gesetz ihr Bestehen
+finden, aber weder zeitlichen noch räumlichen Begrenzungen unterliegen; die geistige Form ist schöpferisch aus der Schöpfung, so
+das Gesetz des Vergänglichen sie nicht beeinträchtigt im SEIN –
+
+dass alles, was auf der Erde lebt, dem Zeitlichen und Räumlichen unterworfen ist, und so auch dem Gesetz des zeitlichen und räumlichen
+Bestehens. Es ist dies eine Bindung der materiellen Raum- und
+Zeitverhältnisse, die in ihrem Bestehen eine Regelmässigkeit eherner Ordnung darstellen (= Wandel von Raum und Zeit in materieller
+Form, das Entstehen und Vergehen der grobstofflichen Materie) –
+
+dass mit dem Sich-Entfremden von der Wahrheit, der Schöpfung und ihren
+Gesetzen und Geboten durch in Kultreligionen ausartende Irrlehren
+Hass, Unfrieden, Sklaverei, Blutvergiessen, Neid, Gier, Egoismus,
+Streit und viele unwürdige Erscheinungen heran- und grossgezüchtet werden –
+
+dass die Menschheit in sich selbst mittlerweile verworren und uneins
+geworden ist und dadurch mit rasender Geschwindigkeit in den
+Abgrund ihres eigenen Verderbens eilt –
+
+dass das Mass des Bösen und Ausgearteten in der Jetztzeit erreicht
+ist; dass eine tödliche, blinde Zerstörungswut die Menschheit in
+ihre Fänge gerissen hat und Tod, Verderben und Vernichtung über
+diese Welt bringt –
+
+dass der Grundstein dazu bereits vor Hunderten von Jahren gelegt wurde,
+wobei dieser auch wiederum in die davor verflossenen Jahrhunderte zurückreicht und dort seine Entstehung bildete –
+
+dass so wie damals, sich noch heute die grössten Zerstörer und Tyrannen
+als Helden und rechte Hand eines imaginären Gottes finden, die
+sich als rächende und ordnende Fuchtel über die Völker setzten,
+
+
+-----
+
+wobei das von ihnen abhängige Volk sie mit oder wider ihren eigenen Willen als Heroen ehrt und preist –
+
+dass wenn eine Einheit aufgeteilt wird, sie bekanntlich kein Ganzes
+mehr bildet und der Wert der Vollkommenheit verlorengeht. Dies
+ist das Gesetz allen Bestehens, und es ist das Gesetz des Lebens;
+durch dieses Gesetz wird die Entwicklung und Sicherheit gewährleistet, hervorgehend aus eherner, schöpferischer Ordnung. Dieses
+Gesetz hat auch seine Gültigkeit für den Erden menschen, dessen
+Einheit im Zusammenleben in der ganzen Masse und im einzelnen
+EINTRACHT bildet –
+
+dass diese EINTRACHT aber dem Menschen verlustig gegangen ist und
+ZWIESPALT sein ganzes Leben durchzieht; ZWIESPALT in sich selbst;
+ZWIESPALT in seinen Denkformen; ZWIESPALT in seinem Handeln;
+ZWIESPALT mit dem Nächsten und ZWIESPALT mit der ganzen Welt.
+Selbst vor der gleissenden Allmacht der Schöpfung macht der
+Erdenmensch mit seinem ZWIESPALT nicht halt –
+
+dass die Benennung SEELE in der Jetztzeit in Wahrheit PSYCHE bedeutet. Da zu früheren Zeiten der unverständige und unwissende Erdenmensch psychische Regungen nicht zu analysieren und zu erfassen
+vermochte (insbesondere darum, weil die Psyche der eigentliche
+Sender und Ausstrahler der Gefühle ist), wurde der Bewusstseinsversklavung und der Ausbeutung Vorschub damit geleistet, dass man
+noch eine menschliche Seele erfand. Es war also nicht genug damit,
+dass man wissenschaftlich hochgebildete Menschen (in früheren
+Zeiten in alter Sprache JSCHWJSCH = GOTT) zur Allmacht und so mit zur Schöpfung selbst erhoben hatte –
+
+dass die Bezeichnung SEELE zu Urbeginn eine völlig andere Bedeutung
+hatte, als dies seit einigen Jahrtausenden beim Erdenmenschen
+ausgelegt wird. Ursprünglich, also vor den irren Verfälschungen durch
+unverständige Menschen, wurde jener Teil des Erdenmenschen
+SEELE genannt, der zur Jetztzeit als PSYCHE bezeichnet wird –
+
+dass wenn man mit kultisch-religiösem Masse misst, Geist und Seele ein
+und dasselbe verkörpern, was, wie unter den beiden vorangehenden Abschnitten beschrieben, unwahr ist!
+
+**WELCHE Wahrheit muss neu gekündet und verkündet werden?**
+
+
+-----
+
+**Die Wahrheit des Geistes;**
+
+des Geistes, der hineinragt in die Sphären des Schöpferischen, die mit
+den materiellen Sinnen nicht wahrzunehmen sind. Die Schöpfung ist aber
+die eigentliche Heimat jeder Geistform!
+Die Wahrheit des Geistes wurde durch die bisherige Lebensauffassung,
+die in rein materialistischen (Materie = nicht nur Geld!) und irrealen
+Glaubensbahnen verlief, in böse Verdammnis getrieben.
+Der Mensch muss lernen, dass er durch die Existenz eines schöpferischen Geistes einen für alle Dauer unsterblichen Teil besitzt. Einen Teil
+nämlich, der mit dem Schöpferischen zusammenwirkt und nicht eine
+knechtische Rolle spielt!
+
+**WARUM muss die Wahrheit neu gekündet und verkündet werden ?**
+
+Weil es gilt, den Menschen aus seiner bewusstseinsmässigen Verödung herauszuführen –
+
+weil es gilt, den Weg zu erschliessen, dass der Mensch den Ursinn des
+Lebens wieder erkennt, warum der Mensch in seiner Form überhaupt lebt –
+
+weil es gilt, die im Menschen verankerten, tragenden und zerstörenden
+negativ-ausgearteten Kräfte zu analysieren und aufzuzeigen –
+
+weil es gilt, den Weg der Wahrheit und Freiheit und der Weisheit zu offenbaren –
+
+weil es unter den Menschen kein Verstehen mehr gibt –
+
+weil jeder Mensch abgekapselt für sich allein lebt, sich selbst betrügend und verdammend, dem Nächsten nicht die Atemluft gönnend; sinnentfremdet in verkommener Heuchelei einherlebt –
+
+weil bei diesem Menschengeschlecht krassester Egoismus die stärkste
+Triebfeder allen Denkens, Tuns und Waltens ist –
+
+weil der Erdenmensch belehrt werden muss, sich klar darüber werden
+muss, dass sein menschlicher Verstand und seine menschliche
+Vernunft NICHT den Geist verkörpern –
+
+weil die gegenwärtigen Menschengeschlechter in bösen Überschwenglichkeiten leben –
+
+
+-----
+
+weil ihre Sinngebung eines unbeschwerten Lebens allein in einer materiellen Welt ruht, in der gute Kleidung, eine vornehme Wohnung,
+bestes Essen und Trinken, gute finanzielle Erfolge und Profite so wie Stillung von Lüsten und Lastern die massgebendsten Rollen
+spielen –
+
+weil in der Jetztzeit das Ansehen des Menschen nur noch nach seinem
+finanziellen Wertbestand und nach seinem Rang und Titel eingeschätzt wird –
+
+weil er seine ‹geistigen› Werte als dumm bezeichnet, mit Füssen tritt
+und belächelt, die doch in Wahrheit die einzigen wahrlichen
+**Werte sind –**
+
+weil des Menschen geruhsamer und sorgloser Lebensabend ihm die
+Erfüllung seiner Sehnsüchte bedeutet –
+
+weil der Mensch in seiner irrigen, unweisen Denkform, die in den vorgehenden vier Absätzen beschriebenen ‹Werte› als zufriedenes Erdendasein bezeichnet –
+
+**DAHER muss die WAHRHEIT neu verkündet und gekündet werden!**
+
+WAS nützen dem Erdenmenschen all die grossen Erfindungen und Entdeckungen, wenn dadurch der wahre Sinn des Lebens zerstört
+und vernichtet wird und die noch restlich vorhandenen bewusstseinsmässigen Werte endgültig ver lorengehen?
+
+WAS nützt das Forschen und Finden der Gelehrtenwelt, wenn dabei
+das Bewusstsein in böse Versklavung verfällt – wenn der Mensch
+durch diese, seine materiellen Erfindungen und Errungenschaften,
+dem Grössenwahn verfällt, sich dazu zwingt, dass er in der Annahme zu leben beginnt, ER sei die SCHÖPFUNG selbst?
+
+IST dieses Menschengeschlecht zu feige, sich die Tatsachen bewusst
+zu machen, dass der Stolz der Erdenmenschheit auf ihre Kulturhöhe sich auf minimalste Werte materieller Errungenschaften
+stützt? Alle Werte kultureller Art bleiben ihr versagt, wenn die be**wusstseinsmässige Entwicklung in Betracht gezogen wird!**
+
+**FAZIT dieser kurzen und unvollständigen Aufzählung:**
+Jeder Mensch muss sich selbst den Nachweis erbringen, dass
+sein Bewusstsein und Geist in schöpferischer Funktion arbeiten
+
+
+-----
+
+und in sich selbst ihre Vervollkommnung finden müssen, um in der
+Schöpfung selbst die Vervollkommnung zu gewähr leisten.
+Es ist daher von grösstem Interesse für jeden Menschen, eine geistige und bewusstseinsmässige Erweiterung und Vertiefung anzustreben, das heisst, seine bisherige Le bens auffassung zu revidieren. Der Mensch muss in seinem Sinnen und Denken Umkehr
+halten, sich wieder der schöpferisch-geistigen, bewusstseins mässigen
+
+**WAHRHEIT**
+
+zuwenden, den eigentlichen Werten, also seinem geistigen und
+bewusstseinsmässigen Leben.
+Daraus ergibt sich dann die Verpflichtung, das eigene materielle
+Leben in den Hintergrund zu stellen und sein geistiges und bewusstseinsmässiges Dasein zu den grossen
+
+**GESICHTSPUNKTEN DER SCHÖPFUNG**
+
+zu führen.
+
+Der Erdenmensch muss sich klar darüber werden, dass sein
+menschlicher Verstand und seine menschliche Vernunft nicht den
+Geist verkörpern – und dass dem Geiste und dem Bewusstsein
+ebenso die notwendige Nahrung zugeführt werden muss wie dem
+Leibe selbst. Auch dies ist ein ehernes Gesetz der Schöpfung!
+
+Geistige und bewusstseinsmässige Nahrung und geistiger sowie
+bewusstseinsmässiger Trank sind:
+
+**ERKENNUNG, WISSEN, WAHRHEIT, WEISHEIT,**
+**LOGIK, LIEBE und EVOLUTION**
+_Billy nach einer Idee von Brunhilde Koye_
+
+23. Wir müssen nicht nur unsere Erde schützen und erhalten, sondern auch
+das All. Hunderte von Satelliten, Empfangs- und Wiedergabesatelliten
+werden auf eine Umlaufbahn, weit hinaus ins All geschossen, und kein
+Mensch kümmert sich darum, wie und wann diese Schrotthaufen wieder herunterkommen.
+_Eva Bieri_
+
+
+-----
+
+24. Noch immer sieht sich der Mensch als das, was ihm die Religionen vorgegaukelt haben, was er sein soll:
+Nämlich als Krone der Schöpfung!
+Sehe ich mir aber die Natur und mit ihr den Menschen an, dann komme
+ich zum Schluss, dass der Mensch etwas ganz anderes ist:
+Teil der geschaffenen Natur; Teilstück aller Kreationen; Teilstück der
+Schöpfung!
+Als einzige aller geschaffenen Kreationen im Universum ist er sich seiner
+selbst bewusst und bewusst eigenevolutiv. Was er mit diesem Gut beginnt, ist allein seine Entscheidung und obliegt seiner eigenen Verantwortung.
+Der Mensch hat zweierlei Möglichkeiten:
+Zum Verderber der Natur und seiner selbst zu werden oder sich selbst
+in Befolgung und Einordnung in die natürlichen Gesetze tatsächlich zur
+Krone der Schöpfung zu machen!
+
+25. Das gesamte Universum präsentiert sich auch dem oberflächlichen Betrachter als ein perfektes Zusammenspiel von System und Ordnung.
+Selbst der Mensch in seiner natürlichen Funktion fügt sich nahtlos in
+diesen überwältigenden Eindruck ein. Dort aber, wo er sich selbst seine
+eigene, erfundene und vermeintlich vernünftige Ordnung geschaffen
+hat, herrscht Unordnung und Leid!
+Wäre der Mensch nicht glücklicher und unbelastet, wenn er sich in die
+natürliche Ordnung und Harmonie aller Dinge einfügen würde?
+_Bernadette Brand_
+
+
+-----
+

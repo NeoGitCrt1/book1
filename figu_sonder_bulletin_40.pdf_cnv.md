@@ -1,0 +1,1485 @@
+# FIGU
+**Freie**
+
+**Interessengemeinschaft**
+**F.I.G.U.**
+
+**r**
+
+# SONDER-BULLETIN
+
+##### Erscheinungsweise: Internet: http://www.figu.org 13. Jahrgang Sporadisch E-Mail:  info@figu.org Nr.40, Okt. 2007
+
+_Diese wichtige Mitteilung ist gerichtet an die gesamte Menschheit!_
+
+## Die Erd-Charta
+
+_www.earthcharter.org_
+_www.figu.org/ch/uberbevolkerung_
+**Präambel**
+_Wir stehen an einem kritischen Punkt der Erdgeschichte, an dem die Menschheit den Weg in ihre Zukunft_
+_wählen muss. Da die Welt zunehmend miteinander verflochten ist und ökologisch zerbrechlicher wird,_
+_birgt die Zukunft gleichzeitig grosse Gefahren und grosse Chancen. Wollen wir vorankommen, müssen_
+_wir anerkennen, dass wir trotz und gerade in der grossartigen Vielfalt von Kulturen und Lebensformen_
+_eine einzige menschliche Familie sind, eine globale Gemeinschaft mit einem gemeinsamen Schicksal. Wir_
+_müssen uns zusammentun, um eine nachhaltige Weltgesellschaft zu schaffen, die sich auf Achtung[1]_
+_gegenüber der Natur, die allgemeinen Menschenrechte, wirtschaftliche Gerechtigkeit und eine Kultur des_
+_Friedens gründet. Auf dem Weg dorthin ist es unabdingbar, dass wir, die Völker der Erde, Verantwortung_
+_übernehmen füreinander, für die grössere Gemeinschaft allen Lebens und für zukünftige Generationen._
+
+**Die Erde, unsere Heimat**
+_Die Menschheit ist Teil eines sich ständig fortentwickelnden Universums. Unsere Heimat Erde bietet Lebens-_
+_raum für eine einzigartige und vielfältige Gemeinschaft von Lebewesen. Naturgewalten machen das Dasein_
+_zu einem herausfordernden und ungewissen Ereignis, doch die Erde bietet gleichzeitig alle wesentlichen_
+_Voraussetzungen für die Entwicklung des Lebens. Die Selbstheilungskräfte[2] der Gemeinschaft allen Lebens_
+_und das Wohlergehen der Menschheit hängen davon ab, ob es uns gelingt, eine gesunde Biosphäre zu_
+_bewahren mit all ihren ökologischen Systemen, dem Artenreichtum ihrer Pflanzen und Tiere, fruchtbaren_
+_Böden, reinen Gewässern und sauberer Luft. Die globale Umwelt mit ihren endlichen Ressourcen ist der_
+_gemeinsamen Sorge aller Völker anvertraut. Die Lebensfähigkeit, Vielfalt und Schönheit der Erde zu_
+_schützen, ist eine heilige Pflicht._
+
+**Die globale Situation**
+_Die vorherrschenden Muster von Produktion und Konsum verursachen Verwüstungen der Umwelt, Raubbau_
+_an den Ressourcen und ein massives Artensterben. Sie untergraben unsere Gemeinwesen. Die Erträge der_
+_wirtschaftlichen Entwicklung werden nicht gerecht verteilt und die Kluft zwischen Reichen und Armen vertieft_
+_sich. Ungerechtigkeit, Armut, Unwissenheit und gewalttätige Konflikte sind weit verbreitet und verursachen_
+_grosse Leiden. Ein beispielloses Bevölkerungswachstum hat die ökologischen und sozialen Systeme über-_
+_lastet. Die Grundlagen globaler Sicherheit sind bedroht. Dies sind gefährliche Entwicklungen, aber sie sind_
+_nicht unabwendbar._
+
+**Die Herausforderungen**
+_Wir haben die Wahl: Entweder bilden wir eine globale Partnerschaft, um für die Erde und füreinander zu_
+_sorgen, oder wir riskieren, uns selbst und die Vielfalt des Lebens zugrunde zu richten. Notwendig sind grund-_
+
+
+**Freie**
+
+
+-----
+
+_legende Änderungen unserer Werte, Institutionen und Lebensweise. Wir müssen uns klar machen: Sind die_
+_Grundbedürfnisse erst einmal befriedigt, dann bedeutet menschliche Entwicklung vorrangig ‹mehr Sein›_
+_und nicht ‹mehr Haben›. Wir verfügen über das Wissen und die Technik, alle zu versorgen und schädliche_
+_Eingriffe in die Umwelt zu vermindern. Das Entstehen einer weltweiten Zivilgesellschaft schafft neue Möglich-_
+_keiten, eine demokratische und humane Weltordnung aufzubauen. Unsere ökologischen, sozialen und_
+_spirituellen Herausforderungen sind miteinander verknüpft, und nur zusammen können wir umfassende_
+_Lösungen entwickeln._
+
+**Weltweite Verantwortung**
+_Um diese Wünsche zu verwirklichen, müssen wir uns entschliessen, in weltweiter Verantwortung zu leben_
+_und uns mit der ganzen Weltgemeinschaft genauso zu identifizieren wie mit unseren Gemeinschaften vor_
+_Ort. Wir sind zugleich Bürgerinnen und Bürger verschiedener Nationen und der Einen Welt, in der Lokales_
+_und Globales miteinander verknüpft ist. Jeder Mensch ist mitverantwortlich für das gegenwärtige und_
+_zukünftige Wohlergehen der Menschheitsfamilie und für das Leben auf der Erde. Der Geist menschlicher_
+_Solidarität und die Einsicht in die Verwandtschaft alles Lebendigen werden gestärkt, wenn wir in Ehrfurcht_
+_vor dem Geheimnis des Seins, in Dankbarkeit für das Geschenk des Lebens und in Bescheidenheit hinsicht-_
+_lich des Platzes der Menschen in der Natur leben._
+
+_Für das ethische Fundament der entstehenden Weltgemeinschaft brauchen wir dringend eine gemeinsame_
+_Vision von Grundwerten. Darum formulieren wir in gemeinsamer Hoffnung die folgenden eng zusammen-_
+_hängenden Grundsätze für einen nachhaltigen Lebensstil. Es sind Leitlinien für das Verhalten jedes einzelnen,_
+_von Organisationen, Unternehmen, Regierungen und übernationalen Einrichtungen._
+
+##### Grundsätze I. Achtung vor dem Leben und Sorge für die Gemeinschaft des Lebens
+
+**1. Achtung haben vor der Erde und dem Leben in seiner ganzen Vielfalt.**
+_a. Erkennen, dass alles, was ist, voneinander abhängig ist und alles, was lebt, einen Wert in sich hat,_
+_unabhängig von seinem Nutzwert für die Menschen._
+_b. Das Vertrauen bekräftigen in die unveräusserliche Würde eines jeden Menschen und in die intellek-_
+_tuellen, künstlerischen, ethischen und spirituellen Fähigkeiten der Menschheit._
+
+**2. Für die Gemeinschaft des Lebens in Verständnis, Mitgefühl und Liebe sorgen.**
+_a. Anerkennen, dass mit dem Recht auf Aneignung, Verwaltung und Gebrauch der natürlichen Ressour-_
+_cen die Pflicht verbunden ist, Umweltschäden zu vermeiden und die Rechte der Menschen zu schützen._
+_b. Bekräftigen, dass mit mehr Freiheit, Wissen und Macht auch die Verantwortung für die Förderung_
+_des Gemeinwohls wächst._
+
+**3. Gerechte, partizipatorische, nachhaltige und friedliche demokratische Gesellschaften aufbauen.**
+_a. Sicherstellen, dass die Menschenrechte und Grundfreiheiten überall gewährleistet werden und jeder_
+_Mensch die Chance bekommt, seine Begabungen voll zu entfalten._
+_b. Soziale und wirtschaftliche Gerechtigkeit fördern, die es allen ermöglicht, ein materiell gesichertes_
+_und erfülltes Leben zu führen, ohne dabei ökologische Grenzen zu verletzen._
+
+**4. Die Fülle und Schönheit der Erde für heutige und zukünftige Generationen sichern.**
+_a. Erkennen, dass die Handlungsfreiheit jeder Generation durch die Bedürfnisse zukünftiger Genera-_
+_tionen begrenzt ist._
+_b. Künftigen Generationen Werte, Traditionen und Institutionen weitergeben, die ein langfristiges_
+_Gedeihen der Erde und der Menschheit fördern._
+
+_Um diese vier weitreichenden Selbstverpflichtungen zu erfüllen, ist folgendes notwendig:_
+
+
+-----
+
+##### II. Ökologische Ganzheit[3]
+
+**5. Die Ganzheit der Ökosysteme der Erde schützen und wiederherstellen, vor allem die biologische**
+**Vielfalt und die natürlichen Prozesse, die das Leben erhalten.**
+_a. Auf allen Ebenen Pläne und Regeln für eine nachhaltige Entwicklung annehmen, damit Schutz und_
+_Wiederherstellung der Umwelt integraler Bestandteil aller Entwicklungsinitiativen werden._
+_b. Den Bestand und die Neueinrichtung von Naturschutzgebieten und Biosphären-Reservaten fördern,_
+_auch von Wildnisgebieten und geschützten Ozeanen, um die Lebensgrundlagen der Erde zu schützen,_
+_biologische Vielfalt zu erhalten und unser Naturerbe zu bewahren._
+_c. Die Erholung gefährdeter Artenbestände und Ökosysteme fördern._
+_d. Standortfremde oder genetisch manipulierte Organismen kontrollieren und entfernen, wenn sie ein-_
+_heimischen Arten oder der Umwelt schaden; die Ansiedlung derartiger schädlicher Organismen_
+_verhindern._
+_e. Erneuerbare Ressourcen wie Wasser, Boden, Wald, Lebewesen der Meere so sorgsam nutzen, dass_
+_die Erneuerungsraten nicht überschritten werden und die ökologischen Systeme stabil bleiben._
+_f. Nicht erneuerbare Ressourcen wie Mineralien und fossile Brennstoffe so fördern und verbrauchen,_
+_dass sie nur langsam erschöpft werden und dabei keine ernsthaften Umweltschäden entstehen._
+
+**6. Schäden vermeiden, bevor sie entstehen, ist die beste Umweltschutzpolitik. Bei begrenztem Wis-**
+**sen gilt es, das Vorsorgeprinzip anzuwenden.**
+_a. Aktiv werden, um die Möglichkeit schwerer oder gar irreversibler Umweltschäden zu verhindern,_
+_auch wo wissenschaftliche Kenntnisse fehlen oder keine abschliessende Risikoanalyse zulassen._
+_b. Die Beweislast denen auferlegen, die behaupten, ein beabsichtigter Eingriff verursache keine signifi-_
+_kanten Schäden. Die Verursacher von Umweltschäden sind als Verantwortliche haftbar zu machen._
+_c. Sicherstellen, dass vor allen Entscheidungen die kumulativen, langfristigen, indirekten, weiträumigen_
+_und globalen Folgen menschlichen Handelns gründlich erwogen werden._
+_d. Jede Art von Umweltverschmutzung verhindern und keine Anreicherung von radioaktiven, giftigen_
+_oder anderen gefährlichen Stoffen hinnehmen._
+_e. Alle militärischen Aktivitäten, die die Umwelt schädigen, vermeiden._
+
+**7. Produktion, Konsum und Reproduktion so gestalten, dass sie die Erneuerungskräfte der Erde, die**
+**Menschenrechte und das Gemeinwohl sichern.**
+_a. Bei Produktion und Konsum Materialverbrauch reduzieren, Mehrwegsysteme und Recycling be-_
+_vorzugen und sicherstellen, dass Restabfälle vom ökologischen System unbeschadet aufgenommen_
+_werden können._
+_b. Energie sparsam und effizient nutzen und sich zunehmend auf erneuerbare Energiequellen wie_
+_Sonne und Wind stützen._
+_c. Die Entwicklung, Anwendung und gerechte globale Verbreitung umweltschonender Techniken fördern._
+_d. Die vollen ökologischen und sozialen Kosten von Gütern und Dienstleistungen in den Verkaufspreis_
+_einbeziehen. Den Verbrauchern dadurch ermöglichen, die Produkte mit den höchsten ökologischen_
+_und sozialen Standards zu erkennen._
+_e. Allen Menschen Zugang zu einem Gesundheitswesen sichern, das gesunde und verantwortliche_
+_Fortpflanzung fördert._
+_f. Einen Lebensstil praktizieren, der die Lebensqualität und materielle Suffizienz in einer begrenzten_
+_Welt betont._
+**8. Das Studium ökologischer Nachhaltigkeit vorantreiben und den offenen Austausch der erworbenen**
+**Erkenntnisse und deren weltweite Anwendung fördern.**
+_a. Die internationale wissenschaftliche und technische Zusammenarbeit zu nachhaltiger Entwicklung_
+
+
+-----
+
+_unterstützen und dabei die Bedürfnisse der Entwicklungsländer besonders berücksichtigen._
+_b. Das überlieferte Wissen und die spirituelle Weisheit aller Kulturen, die zu Umweltschutz und_
+_menschlichem Wohlergehen beitragen, anerkennen und bewahren._
+_c. Sicherstellen, dass alle Informationen, die wesentlich und wichtig für die menschliche Gesundheit_
+_und den Umweltschutz sind, öffentlich verfügbar bleiben, auch die genetischen Informationen._
+
+##### III. Soziale und wirtschaftliche Gerechtigkeit
+
+**9. Armut beseitigen als ethisches, soziales und ökologisches Gebot.**
+_a. Das Recht aller Menschen auf Trinkwasser, saubere Luft, ausreichende und sichere Ernährung, un-_
+_vergiftete Böden, Obdach und sichere sanitäre Einrichtungen garantieren und die Bereitstellung_
+_der dafür erforderlichen nationalen und internationalen Ressourcen sicherstellen._
+_b. Allen Menschen den Zugang zu Bildung und den Ressourcen für einen nachhaltigen Lebensunter-_
+_halt verschaffen. Für Menschen, die ihren Lebensunterhalt nicht selbst bestreiten können, ein Netz_
+_sozialer Sicherung bereithalten._
+_c. Die Unbeachteten achten, die Verwundbaren schützen, den Leidenden dienen und ihnen ermög-_
+_lichen, ihre Fähigkeiten zu entwickeln und ihre Wünsche zu befriedigen._
+
+**10. Sicherstellen, dass wirtschaftliche Tätigkeiten und Einrichtungen auf allen Ebenen die gerechte und**
+**nachhaltige Entwicklung voranbringen.**
+_a. Die gerechte Verteilung von Reichtum innerhalb und zwischen den Nationen fördern._
+_b. Die intellektuellen, finanziellen, technischen und sozialen Ressourcen der Entwicklungsländer steigern_
+_und sie von drückender Schuldenlast befreien._
+_c. Sicherstellen, dass der gesamte Handel zum nachhaltigen Gebrauch der Ressourcen, zum Umwelt-_
+_schutz und zu fortschrittlichen Arbeitsbedingungen beiträgt._
+_d. Von multinationalen Unternehmen und internationalen Finanzorganisationen verlangen, transparent_
+_im Sinne des Gemeinwohls zu handeln und sie gleichzeitig für die Folgen ihres Handelns verantwort-_
+_lich machen._
+
+**11. Die Gleichberechtigung der Geschlechter als Voraussetzung für nachhaltige Entwicklung bejahen und**
+**den universellen Zugang zu Bildung, Gesundheitswesen und Wirtschaftsmöglichkeiten gewährleisten.**
+_a. Die Menschenrechte von Frauen und Mädchen sichern und jede Gewalt gegen sie beenden._
+_b. Die aktive Teilhabe der Frauen an allen Bereichen des wirtschaftlichen, politischen, gesellschaftlichen,_
+_sozialen und kulturellen Lebens als gleichberechtigte Partnerinnen, Entscheidungsträgerinnen und_
+_Führungskräfte fördern._
+_c. Familien stärken und die Sicherheit und liebevolle Entfaltung aller Familienmitglieder gewährleisten._
+
+**12. Am Recht aller – ohne Ausnahme – auf eine natürliche und soziale Umwelt festhalten, welche**
+**Menschenwürde, körperliche Gesundheit und spirituelles Wohlergehen unterstützt. Besondere Auf-**
+**merksamkeit gilt dabei den Rechten von indigenen Völkern und Minderheiten.**
+_a. Jede Art von Diskriminierung unterbinden, sei es aufgrund von Rasse, Hautfarbe, Geschlecht, sexu-_
+_eller Orientierung, Religion, Sprache, sozialer Herkunft, nationaler oder ethnischer Zugehörigkeit._
+_b. Das Recht indigener Völker auf eigene Spiritualität, Kenntnisse, Ländereien und Ressourcen und ihren_
+_damit verbundenen nachhaltigen Lebensunterhalt bestätigen._
+_c. Die jungen Menschen in unseren Gemeinschaften achten und unterstützen, damit sie ihre unver-_
+_zichtbare Rolle beim Aufbau nachhaltiger Gesellschaften erfüllen können._
+_d. Stätten von herausragender kultureller und spiritueller Bedeutung schützen und wiederherstellen._
+##### IV. Demokratie, Gewaltfreiheit und Frieden
+
+**13. Demokratische Einrichtungen auf allen Ebenen stärken, für Transparenz und Rechenschaftspflicht**
+
+
+-----
+
+**bei der Ausübung von Macht[4] sorgen, einschliesslich Mitbestimmung und rechtlichem Gehör.**
+_a. Am Recht eines jeden Menschen auf klare und rechtzeitige Information in Umweltbelangen und allen_
+_Entwicklungsplänen und -tätigkeiten, die ihn berühren können oder an denen er interessiert ist, festhalten._
+_b. Die lokale, regionale und globale Zivilgesellschaft unterstützen und die sinnvolle Mitwirkung aller_
+_interessierten Personen und Institutionen bei der Entscheidungsfindung fördern._
+_c. Das Recht auf Meinungsfreiheit, Pressefreiheit, Versammlungsfreiheit, Organisationsfreiheit und die_
+_Freiheit, abweichende Meinungen zu vertreten, schützen._
+_d. Effektiven und effizienten Zugang zu Verwaltungsverfahren und unabhängigen Gerichtsverfahren_
+_vorsehen, die drohende oder tatsächliche Umweltschäden unterbinden und wiedergutmachen._
+_e. Korruption in allen öffentlichen und privaten Einrichtungen bekämpfen._
+_f. Lokale Gemeinschaften stärken und ihnen ermöglichen, ihre Umwelt zu schützen. Die Verantwortung_
+_für den Umweltschutz auf die Verwaltungsebenen übertragen, auf denen sie am effektivsten wahr-_
+_genommen werden kann._
+
+**14. In die formale Bildung und in das lebenslange Lernen das Wissen, die Werte und Fähigkeiten inte-**
+**grieren, die für eine nachhaltige Lebensweise nötig sind.**
+_a. Für alle, insbesondere für Kinder und Jugendliche, Bildungsmöglichkeiten bereitstellen, die sie zur_
+_Mitarbeit an nachhaltiger Entwicklung befähigen._
+_b. Das Mitwirken von Kunst und Kultur sowie der Geistes-, Sozial- und Naturwissenschaften bei der_
+_Bildung für eine nachhaltige Entwicklung fördern._
+_c. Die Funktion der Massenmedien stärken, Bewusstsein für die bevorstehenden ökologischen und_
+_sozialen Herausforderungen zu wecken._
+_d. Die Bedeutung der moralischen und spirituellen Bildung für einen nachhaltigen Lebensstil anerkennen._
+
+**15. Alle Lebewesen rücksichtsvoll und mit Achtung behandeln.**
+_a. Tiere, die von Menschen gehalten werden, vor Grausamkeit und Leiden schützen._
+_b. Frei lebende Tiere vor solchen Methoden der Jagd, Fallenstellerei und des Fischfanges schützen,_
+_die extremes, unnötig langes oder vermeidbares Leiden verursachen._
+_c. Beifang oder Töten von nicht gewünschten Spezies vermeiden oder weitest möglich beenden._
+
+**16. Eine Kultur der Toleranz, der Gewaltlosigkeit und des Friedens fördern.**
+_a. Gegenseitiges Verstehen, Solidarität und Zusammenarbeit unter allen Völkern und innerhalb und_
+_zwischen den Nationen ermutigen und unterstützen._
+_b. Umfassende Strategien zur Vermeidung gewaltsamer Konflikte umsetzen und kollektive Wege zur_
+_Problembewältigung nutzen, um ökologische und andere Konflikte anzugehen und zu lösen._
+_c. Nationale Sicherheitssysteme auf ein nicht bedrohliches Verteidigungsniveau abrüsten und die Um-_
+_wandlung militärischer Einrichtungen für friedliche Zwecke, einschliesslich ökologischer Wieder-_
+_herstellung, fördern._
+_d. Nukleare, biologische und chemische Waffen sowie andere Massenvernichtungswaffen vollständig_
+_beseitigen._
+_e. Sicherstellen, dass die Nutzung des erdnahen und auch des übrigen Weltraumes Umweltschutz_
+_und Frieden fördern._
+_f. Anerkennen, dass Frieden die Gesamtheit dessen ist, das geschaffen wird durch rechte Beziehungen_
+_zu sich selbst, zu anderen Personen, anderen Kulturen, anderen Lebewesen, der Erde und dem_
+_grösseren Ganzen, zu dem alles gehört._
+
+**Der Weg, der vor uns liegt**
+_Wie nie zuvor in der Geschichte der Menschheit fordert uns unser gemeinsames Schicksal dazu auf, einen_
+_neuen Anfang zu wagen. Die Grundsätze der Erd-Charta versprechen die notwendige Erneuerung. Um_
+_dieses Versprechen zu erfüllen, müssen wir uns selbst verpflichten, uns die Werte und Ziele der Charta zu_
+
+
+-----
+
+_eigen zu machen und diese zu fördern._
+_Das erfordert einen Wandel unseres Bewusstseins wie in unseren Herzen. Es geht darum, weltweite gegen-_
+_seitige Abhängigkeit und universale Verantwortung neu zu begreifen. Wir müssen die Vision eines nach-_
+_haltigen Lebensstils mit viel Fantasie entwickeln und anwenden, und zwar auf lokaler, nationaler, regionaler_
+_und globaler Ebene. Unsere kulturelle Vielfalt ist ein unschätzbares Erbe und die verschiedenen Kulturen_
+_werden auf eigenen, unterschiedlichen Wegen diese Vision verwirklichen. Wir müssen den globalen Dialog,_
+_aus dem die Erd-Charta entstanden ist, vertiefen und ausdehnen; denn wir können bei der andauernden_
+_gemeinsamen Suche nach Wahrheit und Weisheit viel voneinander lernen._
+
+_Leben beinhaltet häufig Widersprüche zwischen wichtigen Werten. Das kann schwierige Entscheidungen_
+_bedeuten. Aber wir müssen Wege finden, um Vielfalt mit Einheit zu versöhnen, Freiheit mit Gemeinwohl und_
+_kurzfristige Anliegen mit langfristigen Zielen. Jeder einzelne, jede Familie, Organisationen oder Gemein-_
+_schaften haben eine wichtige Rolle zu spielen. Kunst und Kultur, Wissenschaften, Religionen, Bildungs-_
+_einrichtungen, Medien, Wirtschaft, Nichtregierungsorganisationen und Regierungen sind alle aufgerufen,_
+_bei diesem Prozess kreativ voranzugehen. Eine Partnerschaft von Regierungen, Zivilgesellschaft und Wirt-_
+_schaft ist unabdingbar für eine wirkungsvolle Lenkung und Gestaltung unserer Geschicke.[5]_
+
+_Um eine nachhaltige globale Gemeinschaft aufzubauen, müssen die Nationen der Welt ihre Bindung an_
+_die UNO erneuern, ihre Verpflichtungen aufgrund bestehender internationaler Übereinkommen erfüllen, und_
+_die Umsetzung der Erd-Charta-Grundsätze zu einem internationalen, rechtlich verbindlichen Instrument für_
+_Umwelt und Entwicklung annehmen._
+
+_Lasst uns unsere Zeit so gestalten, dass man sich an sie erinnern wird als eine Zeit, in der eine neue Ehr-_
+_furcht vor dem Leben erstarkte, als eine Zeit, in der nachhaltige Entwicklung entschlossen auf den Weg_
+_gebracht wurde, als eine Zeit, in der das Streben nach Gerechtigkeit und Frieden neuen Auftrieb bekam_
+_und als eine Zeit der freudigen Feier des Lebens._
+
+**‹Earth Charter› – Final Version vom 24.03.2000 herausgegeben vom Earth Council**
+
+**Internationales Erd-Charta Sekretariat:**
+_Earth Charter International Secretariat_
+_c/o Earth Council_
+_P.O. Box 319-6100 San José, Costa Rica_
+_Phone: (506) 205-1600/ Fax: (506) 249-3500_
+_E-mail: info@earthcharter.org_
+_Website: http://www.earthcharter.org_
+
+**Deutsche Übersetzung vom 08.05.2001**
+_Die deutsche Übersetzung ist ein Gemeinschaftsprodukt der Ökumenischen Initiative Eine Welt e.V., unter_
+_besonderer Mitwirkung der Hamburger Gruppe, und des BUND. Hilfreiche Hinweise kamen von Prof._
+_Klaus Bosselmann, Auckland/Neuseeland, Daniel Mittler (BUND) und Christine von Weizsäcker._
+
+**Redaktion: Hermann Garritzmann, Dr. Frank Meyberg, Daniel Mittler**
+_Ökumenische Initiative Eine Welt e.V._ _BUND_
+_Mittelstr. 4_ _Am Köllnischen Park 1_
+_D–34474 Diemelstadt–Wethen_ _D–10179 Berlin_
+_Telefon: 05694–1417_ _Telefon: 030 27586–40_
+_Fax:   05694–1532_ _Fax:   030 27586–440_
+_E-mail: erdcharta@oeiew.de_ _E-mail: bund@bund.net_
+_URL: www.oeiew.de_ _URL: www.bund.net_
+
+
+-----
+
+**Abdruck mit Quellenangaben, Kopieren und Weitergabe gerne gestattet.**
+**Hinweise zur Übersetzung und Fussnoten:**
+
+_[1] Das engl. ‹respect› haben wir fast durchgehend mit ‹Achtung› übersetzt; dabei kann es im einzelnen_
+_durchaus auch die Bedeutung von ‹Respekt› oder ‹Ehrfurcht› haben. Beides klingt aber auch in ‹Achtung›_
+_mit an. Der Begriff ‹Respekt› allein wäre uns in der Übersetzung zu wenig gewesen. Die anderen Kon-_
+_notationen sind also jeweils mitzuhören._
+
+_[2] Englisch: ‹resilience›_
+
+_[3] engl. ‹ecological integrity› = Unversehrtheit, Ganzheit, Vollständigkeit; wäre nur unvollständig mit_
+_‹ökologisches Gleichgewicht› zu übersetzen_
+
+_[4] engl. ‹in governance‹_
+
+_[5] engl. ‹governance›_
+
+## The Earth Charter
+
+_www.earthcharter.org_
+_READ ALSO: http://www.gaiaguys.net/MEIERPROPHECIES1964.htm_
+**Quo vadis humanitas? – Where are you going humanity?**
+**THE 1951 SFATH PROPHECIES**
+_http://www.gaiaguys.net/SFATH.PROPHECIES.1951.htm_
+**THE 1958 MEIER PROPHECIES**
+_This is a translation of a 37 page long .pdf file originally entitled,_
+_http://www.gaiaguys.net/MEIER.PROPHECIES.1958.htm_
+_http://www.figu.org/de/download/sendfile.php?Product=warnung_an_alle_regierungen_europas.pdf_
+**(Warning to all the governments of Europe! Prophecies and Predictions by Eduard A. Meier 1958)**
+_http://www.us.figu.org_
+**Preamble**
+_We stand at a critical moment in Earth's history, a time when humanity must choose its future. As the world_
+_becomes increasingly interdependent and fragile, the future at once holds great peril and great promise._
+_To move forward we must recognize that in the midst of a magnificent diversity of cultures and life forms_
+_we are one human family and one Earth community with a common destiny. We must join together to_
+_bring forth a sustainable global society founded on respect for nature, universal human rights, economic_
+_justice, and a culture of peace. Towards this end, it is imperative that we, the peoples of Earth, declare_
+_our responsibility to one another, to the greater community of life, and to future generations._
+
+**Earth, Our Home**
+_Humanity is part of a vast evolving universe. Earth, our home, is alive with a unique community of life._
+_The forces of nature make existence a demanding and uncertain adventure, but Earth has provided the_
+_conditions essential to life's evolution. The resilience of the community of life and the well-being of humanity_
+_depend upon preserving a healthy biosphere with all its ecological systems, a rich variety of plants and_
+_animals, fertile soils, pure waters, and clean air. The global environment with its finite resources is a common_
+_concern of all peoples. The protection of Earth's vitality, diversity, and beauty is a sacred trust._
+
+**The Global Situation**
+_The dominant patterns of production and consumption are causing environmental devastation, the deple-_
+_tion of resources, and a massive extinction of species. Communities are being undermined. The benefits of_
+_development are not shared equitably and the gap between rich and poor is widening. Injustice, poverty,_
+_ignorance, and violent conflicts are widespread and the cause of great suffering. An unprecedented rise_
+_in human population has overburdened ecological and social systems. The foundations of global security_
+
+
+-----
+
+_are threatened. These trends are perilous—but not inevitable._
+**The Challenges Ahead**
+_The choice is ours: form a global partnership to care for Earth and one another or risk the destruction of_
+_ourselves and the diversity of life. Fundamental changes are needed in our values, institutions, and ways_
+_of living. We must realize that when basic needs have been met, human development is primarily about_
+_being more, not having more. We have the knowledge and technology to provide for all and to reduce_
+_our impacts on the environment. The emergence of a global civil society is creating new opportunities to_
+_build a democratic and humane world. Our environmental, economic, political, social, and spiritual chal-_
+_lenges are interconnected, and together we can forge inclusive solutions._
+
+**Universal Responsibility**
+_To realize these aspirations, we must decide to live with a sense of universal responsibility, identifying our-_
+_selves with the whole Earth community as well as our local communities. We are at once citizens of different_
+_nations and of one world in which the local and global are linked._
+_Everyone shares responsibility for the present and future well-being of the human family and the larger living_
+_world. The spirit of human solidarity and kinship with all life is strengthened when we live with reverence_
+_for the mystery of being, gratitude for the gift of life, and humility regarding the human place in nature._
+_We urgently need a shared vision of basic values to provide an ethical foundation for the emerging world_
+_community. Therefore, together in hope we affirm the following interdependent principles for a sustainable_
+_way of life as a common standard by which the conduct of all individuals, organizations, businesses,_
+_governments, and transnational institutions is to be guided and assessed._
+
+##### PRINCIPLES I. RESPECT AND CARE FOR THE COMMUNITY OF LIFE
+
+**1. Respect Earth and life in all its diversity.**
+_a. Recognize that all beings are interdependent and every form of life has value regardless of its_
+_worth to human beings._
+_b. Affirm faith in the inherent dignity of all human beings and in the intellectual, artistic, ethical, and_
+_spiritual potential of humanity._
+
+**2. Care for the community of life with understanding, compassion, and love.**
+_a. Accept that with the right to own, manage, and use natural resources comes the duty to prevent_
+_environmental harm and to protect the rights of people._
+_b. Affirm that with increased freedom, knowledge, and power comes increased responsibility to_
+_promote the common good._
+
+**3. Build democratic societies that are just, participatory, sustainable, and peaceful.**
+_a. Ensure that communities at all levels guarantee human rights and fundamental freedoms and_
+_provide everyone an opportunity to realize his or her full potential._
+_b. Promote social and economic justice, enabling all to achieve a secure and meaningful livelihood_
+_that is ecologically responsible._
+
+**4. Secure Earth's bounty and beauty for present and future generations.**
+_a. Recognize that the freedom of action of each generation is qualified by the needs of future gene-_
+_rations._
+_b. Transmit to future generations values, traditions, and institutions that support the longterm flourishing_
+_of Earth's human and ecological communities._
+
+_In order to fulfill these four broad commitments, it is necessary to:_
+
+
+-----
+
+##### II. ECOLOGICAL INTEGRITY
+
+**5. Protect and restore the integrity of Earth's ecological systems, with special concern for biological**
+**diversity and the natural processes that sustain life.**
+_a. Adopt at all levels sustainable development plans and regulations that make environmental conser-_
+_vation and rehabilitation integral to all development initiatives._
+_b. Establish and safeguard viable nature and biosphere reserves, including wild lands and marine areas,_
+_to protect Earth's life support systems, maintain biodiversity, and preserve our natural heritage._
+_c. Promote the recovery of endangered species and ecosystems._
+_d. Control and eradicate non-native or genetically modified organisms harmful to native species and_
+_the environment, and prevent introduction of such harmful organisms._
+_e. Manage the use of renewable resources such as water, soil, forest products, and marine life in_
+_ways that do not exceed rates of regeneration and that protect the health of ecosystems._
+_f. Manage the extraction and use of non-renewable resources such as minerals and fossil fuels in_
+_ways that minimize depletion and cause no serious environmental damage._
+
+**6. Prevent harm as the best method of environmental protection and, when knowledge is limited, apply**
+**a precautionary approach.**
+_a. Take action to avoid the possibility of serious or irreversible environmental harm even when scientific_
+_knowledge is incomplete or inconclusive._
+_b. Place the burden of proof on those who argue that a proposed activity will not cause significant harm,_
+_and make the responsible parties liable for environmental harm._
+_c. Ensure that decision making addresses the cumulative, long-term, indirect, long distance, and glo-_
+_bal consequences of human activities._
+_d. Prevent pollution of any part of the environment and allow no build-up of radioactive, toxic, or other_
+_hazardous substances._
+_e. Avoid military activities damaging to the environment._
+
+**7. Adopt patterns of production, consumption, and reproduction that safeguard Earth's regenerative**
+**capacities, human rights, and community well-being.**
+_a. Reduce, reuse, and recycle the materials used in production and consumption systems, and ensure_
+_that residual waste can be assimilated by ecological systems._
+_b. Act with restraint and efficiency when using energy, and rely increasingly on renewable energy_
+_sources such as solar and wind._
+_c. Promote the development, adoption, and equitable transfer of environmentally sound technologies._
+_d. Internalize the full environmental and social costs of goods and services in the selling price, and_
+_enable consumers to identify products that meet the highest social and environmental standards._
+_e. Ensure universal access to health care that fosters reproductive health and responsible reproduction._
+_f. Adopt lifestyles that emphasize the quality of life and material sufficiency in a finite world._
+
+**8. Advance the study of ecological sustainability and promote the open exchange and wide application**
+**of the knowledge acquired.**
+_a. Support international scientific and technical cooperation on sustainability, with special attention_
+_to the needs of developing nations._
+_b. Recognize and preserve the traditional knowledge and spiritual wisdom in all cultures that contribute_
+_to environmental protection and human well-being._
+_c. Ensure that information of vital importance to human health and environmental protection, including_
+_genetic information, remains available in the public domain._
+
+
+-----
+
+**III. SOCIAL AND ECONOMIC JUSTICE**
+
+**9. Eradicate poverty as an ethical, social, and environmental imperative.**
+_a. Guarantee the right to potable water, clean air, food security, uncontaminated soil, shelter, and_
+_safe sanitation, allocating the national and international resources required._
+_b. Empower every human being with the education and resources to secure a sustainable livelihood,_
+_and provide social security and safety nets for those who are unable to support themselves._
+_c. Recognize the ignored, protect the vulnerable, serve those who suffer, and enable them to develop_
+_their capacities and to pursue their aspirations._
+
+**10. Ensure that economic activities and institutions at all levels promote human development in an equitable**
+**and sustainable manner.**
+_a. Promote the equitable distribution of wealth within nations and among nations._
+_b. Enhance the intellectual, financial, technical, and social resources of developing nations, and re-_
+_lieve them of onerous international debt._
+_c. Ensure that all trade supports sustainable resource use, environmental protection, and progressive_
+_labor standards._
+_d. Require multinational corporations and international financial organizations to act transparently_
+_in the public good, and hold them accountable for the consequences of their activities._
+
+**11. Affirm gender equality and equity as prerequisites to sustainable development and ensure universal**
+**access to education, health care, and economic opportunity.**
+_a. Secure the human rights of women and girls and end all violence against them._
+_b. Promote the active participation of women in all aspects of economic, political, civil, social, and_
+_cultural life as full and equal partners, decision makers, leaders, and beneficiaries._
+_c. Strengthen families and ensure the safety and loving nurture of all family members._
+
+**12. Uphold the right of all, without discrimination, to a natural and social environment supportive of**
+**human dignity, bodily health, and spiritual well-being, with special attention to the rights of**
+**indigenous peoples and minorities.**
+_a. Eliminate discrimination in all its forms, such as that based on race, color, sex, sexual orientation,_
+_religion, language, and national, ethnic or social origin._
+_b. Affirm the right of indigenous peoples to their spirituality, knowledge, lands and resources and to_
+_their related practice of sustainable livelihoods._
+_c. Honor and support the young people of our communities, enabling them to fulfill their essential_
+_role in creating sustainable societies._
+_d. Protect and restore outstanding places of cultural and spiritual significance._
+
+**IV. DEMOCRACY, NONVIOLENCE, AND PEACE**
+
+**13. Strengthen democratic institutions at all levels, and provide transparency and accountability in go-**
+**vernance, inclusive participation in decision making, and access to justice.**
+_a. Uphold the right of everyone to receive clear and timely information on environmental matters and_
+_all development plans and activities which are likely to affect them or in which they have an interest._
+_b. Support local, regional and global civil society, and promote the meaningful participation of all_
+_interested individuals and organizations in decision making._
+_c. Protect the rights to freedom of opinion, expression, peaceful assembly, association, and dissent._
+_d. Institute effective and efficient access to administrative and independent judicial procedures, includ-_
+_ing remedies and redress for environmental harm and the threat of such harm._
+_e. Eliminate corruption in all public and private institutions._
+
+
+-----
+
+_f. Strengthen local communities, enabling them to care for their environments, and assign environmental_
+_responsibilities to the levels of government where they can be carried out most effectively._
+
+**14. Integrate into formal education and life-long learning the knowledge, values, and skills needed for**
+**a sustainable way of life.**
+_a. Provide all, especially children and youth, with educational opportunities that empower them to_
+_contribute actively to sustainable development._
+_b. Promote the contribution of the arts and humanities as well as the sciences in sustainability education._
+_c. Enhance the role of the mass media in raising awareness of ecological and social challenges._
+_d. Recognize the importance of moral and spiritual education for sustainable living._
+
+**15. Treat all living beings with respect and consideration.**
+_a. Prevent cruelty to animals kept in human societies and protect them from suffering._
+_b. Protect wild animals from methods of hunting, trapping, and fishing that cause extreme, prolonged,_
+_or avoidable suffering._
+_c. Avoid or eliminate to the full extent possible the taking or destruction of non-targeted species._
+
+**16. Promote a culture of tolerance, nonviolence, and peace.**
+_a. Encourage and support mutual understanding, solidarity, and cooperation among all peoples and_
+_within and among nations._
+_b. Implement comprehensive strategies to prevent violent conflict and use collaborative problem solving_
+_to manage and resolve environmental conflicts and other disputes._
+_c. Demilitarize national security systems to the level of a non-provocative defense posture, and convert_
+_military reources to peaceful purposes, including ecological restoration._
+_d. Eliminate nuclear, biological, and toxic weapons and other weapons of mass destruction._
+_e. Ensure that the use of orbital and outer space supports environmental protection and peace._
+_f. Recognize that peace is the wholeness created by right relationships with oneself, other persons,_
+_other cultures, other life, Earth, and the larger whole of which all are a part._
+
+**THE WAY FORWARD**
+_As never before in history, common destiny beckons us to seek a new beginning. Such renewal is the promise_
+_of these Earth Charter principles. To fulfill this promise, we must commit ourselves to adopt and promote_
+_the values and objectives of the Charter. This requires a change of mind and heart. It requires a new sense_
+_of global interdependence and universal responsibility. We must imaginatively develop and apply the vision_
+_of a sustainable way of life locally, nationally, regionally, and globally. Our cultural diversity is a precious_
+_heritage and different cultures will find their own distinctive ways to realize the vision._
+_We must deepen and expand the global dialogue that generated the Earth Charter, for we have much to learn_
+_from the ongoing collaborative search for truth and wisdom. Life often involves tensions between important_
+_values. This can mean difficult choices. However, we must find ways to harmonize diversity with unity, the_
+_exercise of freedom with the common good, shortterm objectives with longterm goals. Every individual,_
+_family, organization, and community has a vital role to play. The arts, sciences, religions, educational insti-_
+_tutions, media, businesses, nongovernmental organizations, and governments are all called to offer creative_
+_leadership. The partnership of government, civil society, and business is essential for effective governance._
+
+_In order to build a sustainable global community, the nations of the world must renew their commitment_
+_to the United Nations, fulfill their obligations under existing international agreements, and support the im-_
+_plementation of Earth Charter principles with an international legally binding instrument on environment_
+_and development. Let ours be a time remembered for the awakening of a new reverence for life, the firm_
+_resolve to achieve sustainability, the quickening of the struggle for justice and peace, and the joyful cele-_
+_bration of life._
+
+
+-----
+
+## La Carta de la Tierra
+
+_www.cartadelatierra.org_
+
+**PREÁMBULO**
+_Estamos en un momento crítico de la historia de la Tierra, en el cual la humanidad debe elegir su futuro. A_
+_medida que el mundo se vuelve cada vez más interdependiente y frágil, el futuro depara, a la vez, grandes_
+_riesgos y grandes promesas. Para seguir adelante, debemos reconocer que en medio de la magnífica_
+_diversidad de culturas y formas de vida, somos una sola familia humana y una sola comunidad terrestre_
+_conun destino común. Debemos unirnos para crear una sociedad global sostenible fundada en el respeto_
+_hacia la naturaleza, los derechos humanos universales, la justicia económica y una cultura de paz. En_
+_torno a este fin, es imperativo que nosotros, los pueblos de la Tierra, declaremos nuestra responsabilidad_
+_unos hacia otros, hacia la gran comunidad de la vida y hacia las generaciones futuras._
+
+**La Tierra, nuestro hogar**
+_La humanidad es parte de un vasto universo evolutivo. La Tierra, nuestro hogar, está viva con una comunidad_
+_singular de vida. Las fuerzas de la naturaleza promueven a que la existencia sea una aventura exigente_
+_e incierta, pero la Tierra ha brindado las condiciones esenciales para la evolución de la vida. La capacidad_
+_de recuperación de la comunidad de vida y el bienestar de la humanidad dependen de la preservación_
+_de una biosfera saludable, con todos sus sistemas ecológicos, una rica variedad de plantas y animales, tierras_
+_fértiles, aguas puras y aire limpio. El medio ambiente global, con sus recursos finitos, es una preocupación_
+_común para todos los pueblos. La protección de la vitalidad, la diversidad y la belleza de la Tierra es un_
+_deber sagrado._
+
+**La situación global**
+_Los patrones dominantes de producción y consumo están causando devastación ambiental, agotamiento_
+_de recursos y una extinción masiva de especies. Las comunidades están siendo destruidas. Los beneficios_
+_del desarrollo no se comparten equitativamente y la brecha entre ricos y pobres se está ensanchando. La_
+_injusticia, la pobreza, la ignorancia y los conflictos violentos se manifiestan por doquier y son la causa de_
+_grandes sufrimientos. Un aumento sin precedentes de la población humana ha sobrecargado los sistemas_
+_ecológicos y sociales. Los fundamentos de la seguridad global están siendo amenazados. Estas tendencias_
+_son peligrosas, pero no inevitables._
+
+**Los retos venideros**
+_La elección es nuestra: formar una sociedad global para cuidar la Tierra y cuidarnos unos a otros o_
+_arriesgarnos a la destrucción de nosotros mismos y de la diversidad de la vida. Se necesitan cambios_
+_fundamentales en nuestros valores, instituciones y formas de vida. Debemos darnos cuenta de que, una_
+_vez satisfechas las necesidades básicas, el desarrollo humano se refiere primordialmente a ser más, no_
+_a tener más. Poseemos el conocimiento y la tecnología necesarios para proveer a todos y para reducir_
+_nuestros impactos sobre el medio ambiente. El surgimento de una sociedad civil global, está creando nuevas_
+_oportunidades para construir un mundo democrático y humanitario. Nuestros retos ambientales, económicos,_
+_políticos, sociales y espirituales, están interrelacionados y juntos podemos proponer y concretar soluciones_
+_comprensivas._
+
+**Responsabilidad Universal**
+_Para llevar a cabo estas aspiraciones, debemos tomar la decisión de vivir de acuerdo con un sentido de_
+_responsabilidad universal, identificándonos con toda la comunidad terrestre, al igual que con nuestras_
+_comunidades locales. Somos ciudadanos de diferentes naciones y de un solo mundo al mismo tiempo,_
+_en donde los ámbitos local y global, se encuentran estrechamente vinculados. Todos compartimos una_
+_responsabilidad hacia el bienestar presente y futuro de la familia humana y del mundo viviente en su_
+_amplitud. El espíritu de solidaridad humana y de afinidad con toda la vida se fortalece cuando vivimos_
+
+
+-----
+
+_con reverencia ante el misterio del ser, con gratitud por el regalo de la vida y con humildad con respecto_
+_al lugar que ocupa el ser humano en la naturaleza._
+_Necesitamos urgentemente una visión compartida sobre los valores básicos que brinden un fundamento_
+_ético para la comunidad mundial emergente. Por lo tanto, juntos y con una gran esperanza, afirmamos_
+_los siguientes principios interdependientes, para una forma de vida sostenible, como un fundamento_
+_común mediante el cual se deberá guiar y valorar la conducta de las personas, organizaciones, empresas,_
+_gobiernos e instituciones transnacionales._
+
+#### PRINCIPIOS
+
+##### I. RESPETO Y CUIDADO DE LA COMUNIDAD DE LA VIDA
+
+**1. Respetar la Tierra y la vida en toda su diversidad**
+_a. Reconocer que todos los seres son interdependientes y que toda forma de vida independientemen-_
+_te de su utilidad, tiene valor para los seres humanos._
+_b. Afirmar la fe en la dignidad inherente a todos los seres humanos y en el potencial intelectual, artístico,_
+_ético y espiritual de la humanidad._
+
+**2. Cuidar la comunidad de la vida con entendimiento, compasión y amor.**
+_a. Aceptar que el derecho a poseer, administrar y utilizar los recursos naturales conduce hacia el_
+_deber de prevenir daños ambientales y proteger los derechos de las personas._
+_b. Afirmar, que a mayor libertad, conocimiento y poder, se presenta una correspondiente responsabili-_
+_dad por promover el bien común._
+
+**3. Construir sociedades democráticas que sean justas, participativas, sostenibles y pacíficas**
+_a. Asegurar que las comunidades, a todo nivel, garanticen los derechos humanos y las libertades_
+_fundamentales y brinden a todos la oportunidad de desarrollar su pleno potencial._
+_b. Promover la justicia social y económica, posibilitando que todos alcancen un modo de vida seguro_
+_y digno, pero ecológicamente responsable._
+**4. Asegurar que los frutos y la belleza de la Tierra se preserven para las generaciones presentes y**
+**futuras.**
+_a. Reconocer que la libertad de acción de cada generación se encuentra condicionada por las_
+_necesidades de las generaciones futuras._
+_b. Transmitir a las futuras generaciones valores, tradiciones e instituciones, que apoyen la prosperidad_
+_a largo plazo, de las comunidades humanas y ecológicas de la Tierra. Para poder realizar estos_
+_cuatro compromisos generales, es necesario:_
+
+##### II. INTEGRIDAD ECOLÓGICA
+
+**5.** **Proteger y restaurar la integridad de los sistemas ecológicos de la Tierra, con especial preocupa-**
+**ción por la diversidad biológica y los procesos naturales que sustentan la vida.**
+_a. Adoptar, a todo nivel, planes de desarrollo sostenible y regulaciones que permitan incluir la conser-_
+_vación y la rehabilitación ambientales, como parte integral de todas las iniciativas de desarrollo._
+_b. Establecer y salvaguardar reservas viables para la naturaleza y la biosfera, incluyendo tierras_
+_silvestres y áreas marinas, de modo que tiendan a proteger los sistemas de soporte a la vida de_
+_la Tierra, para mantener la biodiversidad y preservar nuestra herencia natural._
+_c. Promover la recuperación de especies y ecosistemas en peligro._
+_d. Controlar y erradicar los organismos exógenos o genéticamente modificados, que sean dañinos_
+_para las especies autóctonas y el medio ambiente; y además, prevenir la introducción de tales_
+_organismos dañinos._
+
+
+-----
+
+_e. Manejar el uso de recursos renovables como el agua, la tierra, los productos forestales y la vida_
+_marina, de manera que no se excedan las posibilidades de regeneración y se proteja la salud de_
+_los ecosistemas._
+_f. Manejar la extracción y el uso de los recursos no renovables, tales como minerales y combustibles_
+_fósiles, de forma que se minimice su agotamiento y no se causen serios daños ambientales._
+
+**6. Evitar dañar como el mejor método de protección ambiental y cuando el conocimiento sea limita-**
+**do, proceder con precaución.**
+_a. Tomar medidas para evitar la posibilidad de daños ambientales graves o irreversibles, aun cuando_
+_el conocimiento científico sea incompleto o inconcluso._
+_b. Imponer las pruebas respectivas y hacer que las partes responsables asuman las consecuencias_
+_de reparar el daño ambiental, principalmente para quienes argumenten que una actividad_
+_propuesta no causará ningún daño significativo._
+_c. Asegurar que la toma de decisiones contemple las consecuencias acumulativas, a largo término,_
+_indirectas, de larga distancia y globales de las actividades humanas. d. Prevenir la contaminación_
+_de cualquier parte del medio ambiente y no permitir la acumulación de sustancias radioactivas,_
+_tóxicas u otras sustancias peligrosas._
+_e. Evitar actividades militares que dañen el medio ambiente._
+
+**7. Adoptar patrones de producción, consumo y reproducción que salvaguarden las capacidades**
+**regenerativas de la Tierra, los derechos humanos y el bienestar comunitario.**
+_a. Reducir, reutilizar y reciclar los materiales usados en los sistemas de producción y consumo y_
+_asegurar que los desechos residuales puedan ser asimilados por los sistemas ecológicos._
+_b. Actuar con moderación y eficiencia al utilizar energía y tratar de depender cada vez más de los_
+_recursos de energía renovables, tales como la solar y eólica._
+_c. Promover el desarrollo, la adopción y la transferencia equitativa de tecnologías ambientalmente_
+_sanas._
+_d. Internalizar los costos ambientales y sociales totales de bienes y servicios en su precio de venta y_
+_posibilitar que los consumidores puedan identificar productos que cumplan con las más altas normas_
+_sociales y ambientales._
+_e. Asegurar el acceso universal al cuidado de la salud que fomente la salud reproductiva y la_
+_reproducción responsable._
+_f. Adoptar formas de vida que pongan énfasis en la calidad de vida y en la suficiencia material en_
+_un mundo finito._
+
+**8. Impulsar el estudio de la sostenibilidad ecológica y promover el intercambio abierto y la extensa**
+**aplicación del conocimiento adquirido.**
+_a. Apoyar la cooperación internacional científica y técnica sobre sostenibilidad, con especial atención_
+_a las necesidades de las naciones en desarrollo._
+_b. Reconocer y preservar el conocimiento tradicional y la sabiduría espiritual en todas las culturas_
+_que contribuyen a la protección ambiental y al bienestar humano._
+_c. Asegurar que la información de vital importancia para la salud humana y la protección ambiental,_
+_incluyendo la información genética, esté disponible en el dominio público._
+
+##### III. JUSTICIA SOCIAL Y ECONÓMICA
+
+**9. Erradicar la pobreza como un imperativo ético, social y ambiental**
+_a. Garantizar el derecho al agua potable, al aire limpio, a la seguridad alimenticia, a la tierra no_
+_contaminada, a una vivienda y a un saneamiento seguro, asignando los recursos nacionales e_
+_internacionales requeridos._
+
+
+-----
+
+_b. Habilitar a todos los seres humanos con la educación y con los recursos requeridos para que_
+_alcancen un modo de vida sostenible y proveer la seguridad social y las redes de apoyo requeridos_
+_para quienes no puedan mantenerse por sí mismos._
+_c. Reconocer a los ignorados, proteger a los vulnerables, servir a aquellos que sufren y posibilitar_
+_el desarrollo de sus capacidades y perseguir sus aspiraciones._
+
+**10. Asegurar que las actividades e instituciones económicas, a todo nivel, promuevan el desarrollo**
+**humano de forma equitativa y sostenible.**
+_a. Promover la distribución equitativa de la riqueza dentro de las naciones y entre ellas._
+_b. Intensificar los recursos intelectuales, financieros, técnicos y sociales de las naciones en desarrollo_
+_y liberarlas de onerosas deudas internacionales._
+_c. Asegurar que todo comercio apoye el uso sostenible de los recursos, la protección ambiental y las_
+_normas laborales progresivas._
+_d. Involucrar e informar a las corporaciones multinacionales y a los organismos financieros inter-_
+_nacionales para que actúen transparentemente por el bien público y exigirles responsabilidad por_
+_las consecuencias de sus actividades._
+
+**11. Afirmar la igualdad y equidad de género como prerrequisitos para el desarrollo sostenible y**
+**asegurar el acceso universal a la educación, el cuidado de la salud y la oportunidad económica.**
+_a. Asegurar los derechos humanos de las mujeres y las niñas y terminar con toda la violencia contra_
+_ellas._
+_b. Promover la participación activa de las mujeres en todos los aspectos de la vida económica, política,_
+_cívica, social y cultural, como socias plenas e iguales en la toma de decisiones, como líderes y_
+_como beneficiarias._
+_c. Fortalecer las familias y garantizar la seguridad y la crianza amorosa de todos sus miembros._
+
+**12. Defender el derecho de todos, sin discriminación, a un entorno natural y social que apoye la dignidad**
+**humana, la salud física y el bienestar espiritual, con especial atención a los derechos de los pueblos**
+**indígenas y las minorías.**
+_a. Eliminar la discriminación en todas sus formas, tales como aquellas basadas en la raza, el color,_
+_el género, la orientación sexual, la religión, el idioma y el origen nacional, étnico o social._
+_b. Afirmar el derecho de los pueblos indígenas a su espiritualidad, conocimientos, tierras y recursos_
+_y a sus prácticas vinculadas a un modo de vida sostenible._
+_c. Honrar y apoyar a los jóvenes de nuestras comunidades, habilitándolos para que ejerzan su papel_
+_esencial en la creación de sociedades sostenibles._
+_d. Proteger y restaurar lugares de importancia que tengan un significado cultural y espiritual._
+
+##### IV. DEMOCRACIA, NO VIOLENCIA Y PAZ
+
+**13. Fortalecer las instituciones democráticas en todos los niveles y brindar transparencia y rendimiento**
+**de cuentas en la gobernabilidad, participación inclusiva en la toma de decisiones y acceso a la**
+**justicia.**
+_a. Sostener el derecho de todos a recibir información clara y oportuna sobre asuntos ambientales,_
+_al igual que sobre todos los planes y actividades de desarrollo que los pueda afectar o en los que_
+_tengan interés._
+_b. Apoyar la sociedad civil local, regional y global y promover la participación significativa de todos_
+_los individuos y organizaciones interesados en la toma de decisiones._
+_c. Proteger los derechos a la libertad de opinión, expresión, reunión pacífica, asociación y disensión._
+_d. Instituir el acceso efectivo y eficiente de procedimientos administrativos y judiciales independientes,_
+_incluyendo las soluciones y compensaciones por daños ambientales y por la amenaza de tales daños._
+
+
+-----
+
+_e. Eliminar la corrupción en todas las instituciones públicas y privadas._
+_f. Fortalecer las comunidades locales, habilitándolas para que puedan cuidar sus propios ambientes_
+_y asignar la responsabilidad ambiental en aquellos niveles de gobierno en donde puedan llevarse_
+_a cabo de manera más efectiva._
+
+**14. Integrar en la educación formal y en el aprendizaje a lo largo de la vida, las habilidades, el**
+**conocimiento y los valores necesarios para un modo de vida sostenible.**
+_a. Brindar a todos, especialmente a los niños y los jóvenes, oportunidades educativas que les capaciten_
+_para contribuir activamente al desarrollo sostenible._
+_b. Promover la contribución de las artes y de las humanidades, al igual que de las ciencias, para la_
+_educación sobre la sostenibilidad._
+_c. Intensificar el papel de los medios masivos de comunicación en la toma de conciencia sobre los_
+_retos ecológicos y sociales._
+_d. Reconocer la importancia de la educación moral y espiritual para una vida sostenible._
+
+**15. Tratar a todos los seres vivientes con respeto y consideración a. Prevenir la crueldad contra los**
+**animales que se mantengan en las sociedades humanas y protegerlos del sufrimiento.**
+_b. Proteger a los animales salvajes de métodos de caza, trampa y pesca, que les causen un sufrimiento_
+_extremo, prolongado o evitable._
+_c. Evitar o eliminar, hasta donde sea posible, la toma o destrucción de especies por simple diversión,_
+_negligencia o desconocimiento._
+
+**16. Promover una cultura de tolerancia, no violencia y paz.**
+_a. Alentar y apoyar la comprensión mutua, la solidaridad y la cooperación entre todos los pueblos_
+_tanto dentro como entre las naciones._
+_b. Implementar estrategias amplias y comprensivas para prevenir los conflictos violentos y utilizar la_
+_colaboración en la resolución de problemas para gestionar y resolver conflictos ambientales y otras_
+_disputas._
+_c. Desmilitarizar los sistemas nacionales de seguridad al nivel de una postura de defensa no provoca-_
+_tiva y emplear los recursos militares para fines pacíficos, incluyendo la restauración ecológica._
+_d. Eliminar las armas nucleares, biológicas y tóxicas y otras armas de destrucción masiva._
+_e. Asegurar que el uso del espacio orbital y exterior apoye y se comprometa con la protección_
+_ambiental y la paz._
+_f. Reconocer que la paz es la integridad creada por relaciones correctas con uno mismo, otras personas,_
+_otras culturas, otras formas de vida, la Tierra y con el todo más grande, del cual somos parte._
+
+**EL CAMINO HACIA ADELANTE**
+_Como nunca antes en la historia, el destino común nos hace un llamado a buscar un nuevo comienzo._
+_Tal renovación es la promesa de estos principios de la Carta de la Tierra. Para cumplir esta promesa,_
+_debemos comprometernos a adoptar y promover los valores y objetivos en ella expuestos._
+_El proceso requerirá un cambio de mentalidad y de corazón; requiere también de un nuevo sentido de_
+_interdependencia global y responsabilidad universal. Debemos desarrollar y aplicar imaginativamente_
+_la visión de un modo de vida sostenible a nivel local, nacional, regional y global._
+_Nuestra diversidad cultural es una herencia preciosa y las diferentes culturas encontrarán sus propias_
+_formas para concretar lo establecido. Debemos profundizar y ampliar el diálogo global que generó la_
+_Carta de la Tierra, puesto que tenemos mucho que aprender en la búsqueda colaboradora de la verdad_
+_y la sabiduría._
+_La vida a menudo conduce a tensiones entre valores importantes. Ello puede implicar decisiones difíciles;_
+_sin embargo, se debe buscar la manera de armonizar la diversidad con la unidad; el ejercicio de la_
+
+
+-----
+
+_libertad con el bien común; los objetivos de corto plazo con las metas a largo plazo. Todo individuo, familia,_
+_organización y comunidad, tiene un papel vital que cumplir. Las artes, las ciencias, las religiones, las_
+_instituciones educativas, los medios de comunicación, las empresas, las organizaciones no gubernamentales y_
+_los gobiernos, están llamados a ofrecer un liderazgo creativo. La alianza entre gobiernos, sociedad civil_
+_y empresas, es esencial para la gobernabilidad efectiva._
+_Con el objeto de construir una comunidad global sostenible, las naciones del mundo deben renovar su_
+_compromiso con las Naciones Unidas, cumplir con sus obligaciones bajo los acuerdos internacionales_
+_existentes y apoyar la implementación de los principios de la Carta de la Tierra, por medio de un_
+_instrumento internacional legalmente vinculante sobre medio ambiente y desarrollo. Que el nuestro sea un_
+_tiempo que se recuerde por el despertar de una nueva reverencia ante la vida; por la firme resolución de_
+_alcanzar la sostenibilidad; por el aceleramiento en la lucha por la justicia y la paz y por la alegre_
+_celebración de la vida._
+
+## CARTA DELLA TERRA
+
+**PREAMBOLO**
+_Ci troviamo in un momento critico della storia della Terra, un momento in cui l’umanità dovrà scegliere il_
+_suo futuro. Man mano che il mondo diventa sempre più interdipendente e fragile il futuro riserva grossi_
+_pericoli e, nello stesso tempo, grandi promesse. Per andare avanti dobbiamo riconoscere che nel mezzo_
+_di una straordinaria diversità di culture e stili di vita siamo un’unica famiglia umana e un’unica comunità_
+_terrestre con un destino comune. Dobbiamo unirci per portare avanti un società globale sostenibile_
+_fondata sul rispetto per la natura, i diritti umani universali, la giustizia economica e una cultura della_
+_pace. Per raggiungere questo obiettivo è imperativo che noi popoli della Terra dichiariamo le nostre_
+_responsabilità reciproche e nei confronti della comunità più grande della vita e delle generazioni future._
+
+**La Terra, la nostra casa**
+_L’umanità è parte di un universo in rapida evoluzione. La Terra, la nostra casa, è viva e ospita una comunità_
+_di vita unica. Le forze della natura rendono l’esistenza un’avventura impegnativa e incerta, ma la Terra_
+_fornisce le condizioni essenziali per l’evoluzione della vita. La capacità di ripresa della comunità della_
+_vita e il benessere dell’umanità dipendono dalla conservazione di una biosfera sana, insieme a tutti i suoi_
+_sistemi ecologici, una grande varietà di piante e animali, suolo fertile, acque e aria pulite. L’ambiente_
+_globale, con le sue risorse finite, è oggetto di preoccupazione per tutti i popoli. La tutela della vitalità,_
+_della diversità e della bellezza della Terra è un impegno sacro._
+
+**La situazione globale**
+_I sistemi di produzione e consumo prevalenti stanno causando devastazioni ambientali, l’impoverimento_
+_delle risorse e una massiccia estinzione delle specie. Le comunità vengono minate alla base. I benefici_
+_dello sviluppo non vengono distribuiti equamente e il divario tra ricchi e poveri diventa sempre più grande._
+_L’ingiustizia, la povertà, l’ignoranza e i conflitti violenti sono diffusi e causa di grande sofferenza._
+_L’aumento senza precedenti della popolazione mondiale sta sovraccaricando i sistemi ecologici e sociali._
+_Le fondazioni stesse della sicurezza globale sono minacciate. Queste tendenze sono pericolose, ma non_
+_inevitabili._
+
+**Le sfide che ci attendono**
+_La scelta è nostra: da una partnership globale all’attenzione per la Terra e gli uni per gli altri, oppure_
+_rischiamo la distruzione di noi stessi e della diversità della vita. Occorrono modifiche radicali ai nostri_
+_valori, alle istituzioni e ai modi di vivere. Dobbiamo renderci conto che una volta soddisfatti i bisogni_
+
+
+-----
+
+_primari lo sviluppo umano riguarda soprattutto l’essere di più e non l’avere di più. Possediamo le conos-_
+_cenze e le tecnologie per provvedere a tutti gli abitanti della Terra e per ridurre il nostro impatto sull’am-_
+_biente. L’emergere di una società civile globale sta creando nuove opportunità per costruire un mondo_
+_più umano e democratico. Le nostre sfide ambientali, economiche, politiche, sociali e spirituali sono inter-_
+_connesse e insieme possiamo costruire soluzioni inclusive._
+
+**La responsabilità universale**
+_Per realizzare queste aspirazioni dobbiamo decidere di vivere secondo un senso di responsabilità uni-_
+_versale, identificandoci con l’intera comunità terrestre, oltre che con le nostre comunità locali. Noi siamo,_
+_nel contempo, cittadini di nazioni diverse e di un unico mondo, in cui il locale e il globale sono collegati._
+_Tutti condividiamo la responsabilità per il benessere presente e il futuro della famiglia umana e per il_
+_mondo più ampio della vita. Lo spirito di solidarietà umana e di affinità con tutta la vita sarà rafforzato_
+_se noi viviamo con riverenza verso le fonti del nostro essere, con gratitudine per il dono della vita, e con_
+_umiltà riguardo al posto che occupa l’essere umano nello schema complessivo delle cose._
+_Avendo riflettuto su queste considerazioni, riconosciamo il bisogno urgente di una visione condivisa di_
+_valori basici che provvederà a una fondazione etica per la comunità mondiale emergente. Noi, pertanto,_
+_affermiamo i seguenti principi interdipendenti per lo sviluppo sostenibile in base ai quali guidare e valu-_
+_tare le condotta di individui, organizzazioni, imprese economiche, governi e istituzioni transnazionali._
+
+#### PRINCIPI
+
+##### I. RISPETTO E ATTENZIONE PER LA COMUNITÁ DELLA VITA
+
+**1. Rispetta la Terra e la vita, in tutta la sua diversità.**
+_a. Riconoscendo che tutti gli esseri viventi sono interdipendenti e che ogni forma di vita è preziosa,_
+_indipendentemente dal suo valore per gli esseri umani._
+_b. Affermando la fede nell’intrinseca dignità di tutti gli esseri umani, relativamente alle potenzialità_
+_intellettuali, artistiche, etiche e spirituali dell’umanità._
+
+**2. Prendi cura della comunità della vita con comprensione, compassione e amore.**
+_a. Accettando che il diritto di possedere, gestire, e utilizzare le risorse naturali si accompagna al_
+_dovere di impedire il danneggiamento dell’ambiente e di tutelare i diritti dei popoli._
+_b. Affermando che l’aumento della libertà, delle conoscenze e del potere si accompagna all’aumento_
+_della responsabilità di promuovere il bene comune._
+
+**3. Costruisci società democratiche che siano giuste, partecipate, sostenibili e pacifiche.**
+_a. Facendo in modo che le comunità a tutti i livelli garantiscano i diritti umani e le libertà fonda-_
+_mentali e forniscano a tutti l’opportunità di realizzare appieno il proprio potenziale._
+_b. Promuovendo la giustizia sociale e economica permettendo a tutti uno standard di vita sicuro e_
+_dignitoso che sia ecologicamente sostenibile._
+
+**4. Tutela l’abbondanza e la bellezza della Terra per le generazioni presenti e future**
+_a. Riconoscendo che la libertà di azione di ciascuna generazione è soggetta alle esigenze delle_
+_generazioni future._
+_b. Trasmettendo alle generazioni future valori, tradizioni e istituzioni capaci di sostenere lo sviluppo_
+_a lungo termine delle comunità umane e ecologiche della Terra._
+
+_Per potere realizzare questi quattro impegni generali occorre:_
+
+
+-----
+
+##### II. INTEGRITA´ ECOLOGICA
+
+**5. Proteggi e restaura l’integrità dei sistemi ecologici terrestri, soprattutto per quanto riguarda la**
+**diversità biologica e i processi naturali a sostegno della vita.**
+_a. Adottando a tutti i livelli piani di sviluppo sostenibile e norme capaci di rendere la conservazione_
+_e la riabilitazione ambientale compatibili con ogni iniziativa di sviluppo._
+_b. Istituendo e tutelando riserve naturali e della biosfera, compreso parchi e aree marine protette, in_
+_modo da salvaguardare i sistemi di sostegno alla vita sulla Terra, mantenendo le biodiversità e_
+_preservando il nostro patrimonio naturalistico._
+_c. Promuovendo il recupero delle specie e degli ecosistemi in via di estinzione._
+_d. Controllando e sradicando gli organismi non autoctoni o geneticamente modificati che siano_
+_dannosi per le specie autoctone e per l’ambiente e impedendo l’introduzione di questi organismi_
+_dannosi._
+_e. Gestendo l’utilizzo delle risorse rinnovabili come l’acqua, il suolo, i prodotti forestali e la vita marina_
+_in modo da non superare la loro velocità di rigenerazione e compatibilmente con la salute degli_
+_ecosistemi._
+_f. Gestendo l’estrazione e l’uso delle risorse non rinnovabili, come i combustibili minerali e fossili,_
+_in modo da ridurne al minimo l’impoverimento e impedire danni ambientali seri._
+
+**6. Impedisci il danno come modo migliore di tutela ambientale e, quando le conoscenze siano limitate,**
+**adotta un approccio cautelativo.**
+_a. Prendendo provvedimenti per impedire la possibilità di danneggiamento grave o irreversibile_
+_dell’ambiente, anche quando le conoscenze scientifiche fossero incomplete o non conclusive._
+_b. Assegnando l’onere della prova a coloro che sostengono che una certa attività non provocherà_
+_danni significativi e chiamando i responsabili a rispondere di eventuali danni ambientali._
+_c. Assicurandosi che nel processo decisionale vengano affrontate le conseguenze cumulative, a lungo_
+_termine, indirette, remote e globali delle attività antropiche._
+_d. Impedendo l’inquinamento di ogni parte dell’ambiente e non permettendo l’accumulo di sostanze_
+_radioattive, tossiche o comunque pericolose._
+_e. Impedendo le attività militari che siano dannose per l’ambiente._
+
+**7. Adotta sistemi di produzione, consumo e riproduzione capaci di salvaguardare le capacità regenera-**
+**tive della Terra, i diritti umani e il benessere delle comunità.**
+_a. Riducendo l’uso, riutilizzando e riciclando i materiali usati nei processi di produzione e consumo_
+_e assicurandosi che i rifiuti residui siano assimilabili dai sistemi ecologici._
+_b. Imponendo limitazioni e efficienza nell’utilizzo dell’energia e affidandosi sempre più spesso alle_
+_fonti di energia rinnovabile, come l’energia solare e eolica._
+_c. Promuovendo lo sviluppo, l’adozione e il trasferimento equo delle tecnologie ecologicamente_
+_efficaci._
+_d. Includendo nel prezzo di vendita i costi ambientali e sociali dei beni e dei servizi e permettendo_
+_ai consumatori di riconoscere i prodotti conformi alle normative sociali e ambientali più stringenti._
+_e. Garantendo l’accesso universale all’assistenza medica di sostegno alla salute riproduttiva e ad_
+_una riproduzione responsabile._
+_f. Adottando stili di vita capaci di sottolineare la qualità della vita e la sufficienza dei materiali in_
+_un modo di risorse finite._
+
+**8. Sviluppa lo studio della sostenibilità ecologica e promuovi lo scambio libero e l´applicazione diffusa**
+**delle conoscenze così acquisite.**
+_a. Promuovendo la cooperazione scientifica e tecnologica internazionale sulla sostenibilità, soprattutto_
+_per quanto riguarda le esigenze dei paesi in via di sviluppo._
+
+
+-----
+
+_b. Riconoscendo e preservando le conoscenze tradizionali e la saggezza spirituale presenti in ogni_
+_culture e capaci di contribuire alla tutela dell’ambiente e al benessere dell’uomo._
+_c. Garantendo che le informazioni di importanza vitale per la salute umana e la tutela dell’ambiente,_
+_compreso le informazioni genetiche, restino di pubblico dominio e a disposizione di tutti._
+
+##### III. GIUSTIZIA ECONOMICA E SOCIALE
+
+**9. Sradica la povertà come imperativo etico, sociale e ambientale.**
+_a. Garantendo il diritto all’acqua potabile, all’aria pulita, alla sicurezza alimentare, al suolo inconta-_
+_minato, alla casa e alla sicurezza igienica, assegnando le risorse nazionali e internazionali_
+_richieste._
+_b. Dando a ogni essere umano l’istruzione e le risorse necessarie per garantire uno standard di vita_
+_sostenibile e fornendo una rete previdenziale e di sicurezza per coloro che sono incapaci di_
+_sostenersi da soli._
+_c. Assistendo gli esclusi, proteggendo le persone vulnerabili, servendo coloro che soffrono e per-_
+_mettendogli di sviluppare le loro capacità e di perseguire le proprie aspirazioni._
+
+**10. Assicurati che le attività economiche e le istituzioni a tutti i livelli promuovano lo sviluppo umano**
+**in modo equo e sostenibile.**
+_a. Promuovendo l’equa distribuzione della ricchezza all’interno delle nazioni e tra le nazioni._
+_b. Incrementando le risorse intellettuali, finanziarie, tecniche e sociali a disposizione dei paesi in via_
+_di sviluppo, liberandoli dell’oneroso debito internazionale._
+_c. Assicurandosi che il commercio promuova un uso sostenibile delle risorse, la tutela dell’ambiente_
+_e standard di lavoro progressisti._
+_d. Richiedendo alle società multinazionali e alle organizzazioni finanziarie internazionali di agire_
+_in modo trasparente per il bene comune e chiamandole a rispondere delle conseguenze delle loro_
+_attività._
+
+**11. Afferma l’uguaglianza dei generi e l’equità come prerequisiti per lo sviluppo sostenibile e garan-**
+**tisci l’accesso universale all’istruzione, all’assistenza sanitaria e alle opportunità economiche.**
+_a. Garantendo i diritti umani delle donne e ponendo fine a ogni forma di violenza nei loro confronti._
+_b. Promuovendo la partecipazione attiva delle donne in tutti i campi della vita economica, politica,_
+_civile, sociale e culturale in qualità di interlocutori, decisori, leader e beneficiari con parità di diritti._
+_c. Rafforzando le famiglie e garantendo la sicurezza e la cura amorevole di tutti i membri della_
+_famiglia._
+
+**12. Sostieni i diritti di tutti, senza alcuna discriminazione, ad un ambiente naturale e sociale capace di**
+**sostenere la dignità umana, la salute dei corpi e il benessere dello spirito, soprattutto per quanto**
+**riguarda i diritti degli indigeni e delle minoranze.**
+_a. Eliminando le discriminazioni in ogni loro forma, come quelle basate su razza, colore della pelle,_
+_sesso, orientamento sessuale, religione, lingua e origine nazionale, etnica o sociale._
+_b. Affermando i diritti dei popoli indigeni alle proprie forme di spiritualità, conoscenze, terre e risorse_
+_e alle relative pratiche di vita sostenibili._
+_c. Onorando e aiutando i giovani delle nostre comunità permettendogli di ottemperare al loro ruolo_
+_fondamentale di creare società sostenibili._
+_d. Tutelando e restaurando i luoghi di notevole significato culturale e spirituale._
+
+##### IV. DEMOCRAZIA, NON VIOLENZA E PACE.
+
+**13. Rafforza le istituzioni democratiche a tutti i livelli e garantisci trasparenza e responsabilità a livello**
+**amministrativo, compresa la partecipazione nei processi decisionali e l’accesso alla giustizia.**
+
+
+-----
+
+_a. Sostenendo il diritto di tutti a ricevere informazioni chiare e tempestive sulle questioni ambientali_
+_e sui piani e attività di sviluppo che possano riguardarli o in cui abbiano un interesse._
+_b. Sostenendo la società civile a livello locale, regionale e globale e promuovendo la partecipazione_
+_significativa di tutti gli individui e delle organizzazioni interessate nel processo decisionale._
+_c. Proteggendo la libertà di opinione, espressione, riunione pacifica, associazione e dissenso._
+_d. Istituendo l’accesso efficace e efficiente alle procedure amministrative e giudiziarie indipendenti,_
+_compreso i rimedi legali connessi ai danni ambientali e alla minaccia di danneggiamento._
+_e. Eliminando la corruzione da ogni istituzione pubblica e privata._
+_f. Rafforzando le comunità locali permettendogli di prendersi cura dell’ambiente e assegnando la_
+_responsabilità per la tutela dell’ambiente a quei livelli amministrativi capaci di ottemperarvi nel_
+_modo più efficace._
+
+**14. Integra nell’istruzione formale e nella formazione permanente le conoscenze, i valori e le capacità**
+**necessarie per un modo di vivere sostenibile.**
+_a. Fornendo a tutti, soprattutto ai bambini e ai giovani, opportunità educative tali da permettergli di_
+_contribuire attivamente allo sviluppo sostenibile._
+_b. Promuovendo il contributo delle arti e delle materie umanistiche, oltre che di quelle scientifiche,_
+_all’educazione alla sostenibilità._
+_c. Incrementando il ruolo dei mass media nell’accrescere la consapevolezza delle sfide ecologiche_
+_e sociali._
+_d. Riconoscendo l’importanza dell’educazione morale e spirituale per un modo di vita sostenibile._
+
+**15. Tratta ogni essere vivente con rispetto e considerazione.**
+_a. Impedendo il trattamento crudele degli animali allevati nelle società umane e proteggendoli dalla_
+_sofferenza._
+_b. Proteggendo gli animali selvatici dalle tecniche di caccia, intrappolamento e pesca capaci di_
+_causare sofferenze estreme, prolungate o evitabili._
+_c. Evitando o riducendo il più possibile la cattura o distruzione indiscriminata delle specie animali._
+
+**16. Promuovi una cultura della tolleranza, della non violenza e della pace.**
+_a. Incoraggiando e sostenendo la comprensione reciproca, la solidarietà e la cooperazione tra i_
+_popoli, all’interno delle nazioni e tra i paesi._
+_b. Realizzando strategie per evitare i conflitti violenti, risolvendo i conflitti ambientali e altre dispute_
+_mediante la collaborazione._
+_c. Smilitarizzando i sistemi di sicurezza nazionale riducendoli al livello di semplice difesa e conver-_
+_tendo le risorse militari a scopi di pace, compresa la bonifica ambientale._
+_d. Eliminando gli armamenti nucleari, biologici e tossici e le altre armi di distruzione di massa._
+_e. Assicurandosi che i supporti orbitali e spaziali vengano utilizzati soltanto ai fini della tutela dell’_
+_ambiente e della pace._
+_f. Riconoscendo che la pace è l’insieme creato da relazioni equilibrate ed armoniose con se stessi,_
+_con le altre persone, con le altre culture, con le altre vite, con la Terra e con quell’insieme più ampio_
+_di cui siamo tutti parte._
+
+**UN NUOVO INIZIO**
+_Mai prima d’ora nella storia dell’umanità, il destino comune ci obbliga a cercare un nuovo inizio. Tale_
+_rinnovamento è la promessa di questi prinicipi della Carta della Terra. Per adempiere a questa promessa_
+_dobbiamo impegnarci ad adottare e promuovere i valori e gli obiettivi della Carta._
+_Ciò richiede un cambio interiore, un cambio del cuore e della mente. Richiede un rinnovato senso dell’_
+_interdipendenza globale e della responsabilità universale. Dobbiamo sviluppare in modo immaginativo_
+_e applicare la visione di un modo di vivere sostenibile a livello locale, regionale, nazionale e globale. La_
+
+
+-----
+
+_nostra diversità culturale è un’eredità preziosa e le diverse culture troveranno percorsi specifici e distinti per_
+_realizzare questa visione. Dobbiamo approfondire e ampliare il dialogo globale che ha generato la Carta_
+_della Terra perché abbiamo molto da imparare dalla ricerca comune per la verità e la saggezza._
+_La vita spesso implica tensioni tra valori importanti. Questo può significare scelte difficili. Tuttavia, dob-_
+_biamo trovare il modo di armonizzare la diversità con l’unità, l’esercizio della libertà con il bene comune,_
+_gli obiettivi di breve termine con quelli di lungo termine. Ogni individuo, famiglia, organizzazione e_
+_comunità ha un ruolo vitale da svolgere. Le arti, le scienze, le religioni, le istituzioni scolastiche, i media,_
+_le imprese, le organizzazioni non governative e i governi sono chiamati a offrire una leadership creativa._
+_L’azione congiunta dei governi, della società civile e delle imprese è fondamentale per una gestione_
+_efficace._
+_Per poter costruire una comunità globale sostenibile le nazioni della Terra devono rinnovare l’impegno_
+_fatto alle Nazioni Unite, adempiere ai propri obblighi in base agli accordi internazionali in vigore e_
+_sostenere l’implementazione dei principi della Carta della Terra per mezzo di uno strumento sull’ambiente_
+_e lo sviluppo vincolante a livello internazionale._
+_Facciamo in modo che la nostra epoca venga ricordata per il risvegliarsi di un nuovo rispetto per la vita,_
+_per la risolutezza nel raggiungere la sostenibilità, per un rinnovato impegno nella lotta per la giustizia e_
+_la pace e per la gioiosa celebrazione della vita._
+
+_Une Message très important à toute l'humanité_
+
+## La Charte de la Terre
+
+**Les Prédictions des Prophètes Jérémie et Elie sont maintenant aussi disponibles dans la langue**
+**française. S'il vous plaît cliquez ici.**
+_www.chartedelaterre.org_
+
+**PRÉAMBULE**
+_Nous nous trouvons à un moment déterminant de l’histoire de la Terre, le moment où l’humanité doit_
+_décider de son avenir. Dans un monde de plus en plus interdépendant et fragile, le futur est à la fois très_
+_inquiétant et très prometteur. Pour évoluer, nous devons reconnaître qu’au milieu d’une grande diversité_
+_de cultures et de formes de vie nous formons une seule humanité et une seule communauté sur Terre partageant_
+_une destinée commune. Nous devons unir nos efforts pour donner naissance à une société mondiale_
+_durable, fondée sur le respect de la nature, les droits universels de l’être humain, la justice économique_
+_et une culture de la paix. Dans ce but, il est impératif que nous, les Peuples de la Terre, déclarions notre_
+_responsabilité les uns envers les autres, envers la communauté de la vie ainsi qu’envers les générations_
+_futures._
+
+**La Terre, Notre Foyer**
+_L’humanité fait partie d’un vaste univers en évolution. La Terre, notre foyer, est elle-même vivante et abrite_
+_une communauté unique d’êtres vivants. Les forces de la nature font de l’existence une aventure exigeante_
+_et incertaine, mais la Terre a fourni les conditions essentielles à l’évolution de la vie. La capacité de_
+_récupération de la communauté de la vie et le bien-être de l’humanité dépendent de la préservation d’une_
+_biosphère saine comprenant tous ses systèmes écologiques – une riche variété de plantes et d’animaux,_
+_la fertilité de la terre, la pureté de l’air et de l’eau. L’environnement de notre planète, y compris ses ressources_
+_limitées, est une préoccupation commune à tous les peuples de la terre. La protection de la vitalité, de la_
+_diversité ainsi que de la beauté de la Terre est une responsabilité sacrée._
+
+
+-----
+
+**La Situation Globale**
+_Les modes de production et de consommation qui prévalent actuellement causent des dommages consi-_
+_dérables à l’environnement, l’épuisement des ressources et la disparition massive de nombreuses espèces._
+_Les communautés locales sont affaiblies. Les bénéfices du développement ne sont pas partagés d’une_
+_manière équitable et l’écart entre les riches et les pauvres est de plus en plus grand. L’injustice, la pauvreté,_
+_l’ignorance et les conflits violents sont généralisés et causent de grandes souffrances. Une augmentation_
+_sans précédent de la population a surchargé les systèmes écologiques et sociaux. Les fondements de la_
+_sécurité planétaire sont menacés. Ces tendances sont dangereuses – mais non inévitables._
+
+**Les Défis de l’Avenir**
+_C’est à nous de choisir: former un partenariat à l’échelle globale pour prendre soin de la Terre et de nos_
+_prochains ou bien participer à notre propre destruction ainsi qu’à celle de la diversité de la vie. Des_
+_changements fondamentaux dans nos valeurs, nos institutions et notre façon de vivre sont indispensables._
+_Nous devons admettre qu’une fois les besoins de base satisfaits, l’évolution de l’humanité n’est pas une_
+_question d’avoir plus, mais plutôt d’être plus. Nous possédons la connaissance et la technologie suffisantes_
+_pour subvenir aux besoins de tous et pour réduire les répercussions sur l’environnement. L’émergence_
+_d’une société civile mondiale offre l’opportunité de bâtir un monde démocratique et humain. Nos enjeux_
+_environnementaux, économiques, politiques, sociaux et spirituels sont étroitement liés et ensemble nous_
+_pouvons trouver des solutions intégrées._
+
+**La Responsabilité Universelle**
+_Pour réaliser ces aspirations, nous devons choisir d’intégrer dans notre vie le principe de la responsabilité_
+_universelle, nous identifiant autant à la communauté de la Terre qu’à nos communautés locales. Nous sommes_
+_à la fois citoyens de différentes nations et d’un seul monde où le local et le mondial sont interdépendants._
+_Nous partageons tous la responsabilité de garantir le bien-être présent et futur de la grande famille_
+_humaine et de toutes les autres formes de vie. L’esprit de solidarité et de fraternité à l’égard de toute forme_
+_de vie est renforcé par le respect du mystère de la création, par la reconnaissance du don de la vie et par_
+_l’humilité devant la place que nous occupons en tant qu’êtres humains dans l’univers. Nous reconnaissons_
+_la nécessité urgente d’une vision commune des valeurs fondamentales qui fournira la base de principes_
+_éthiques pour la communauté mondiale émergente. Par conséquent, dans un esprit de solidarité, nous_
+_affirmons les principes interdépendants suivants, qui visent un mode de vie durable comme norme universelle_
+_et selon lesquels seront guidés et évalués les comportements des personnes, des organisations, des entreprises_
+_commerciales, des gouvernements et des institutions transnationales._
+
+#### PRINCIPES
+
+##### I. RESPECT ET PROTECTION DE LA COMMUNAUTÉ DE LA VIE
+
+**1. Respecter la Terre et toute forme de vie.**
+_a. Reconnaître le lien d’interdépendance entre tous les êtres vivants ainsi que la valeur de toute forme_
+_de vie, quelle qu’en soit son utilité pour l’être humain._
+_b. Reconnaître la dignité propre à chaque personne et le potentiel intellectuel, artistique, éthique et_
+_spirituel de tout être humain._
+
+**2. Prendre soin de la communauté de la vie avec compréhension, compassion et amour.**
+_a. Accepter que le droit de posséder, de diriger et d’utiliser les ressources naturelles implique le devoir_
+_d’empêcher les dommages environnementaux et de protéger les droits de l’être humain._
+_b. Affirmer que l’accroissement de la liberté, de la connaissance et du pouvoir implique la responsabi-_
+_lité de promouvoir le bien commun._
+
+
+-----
+
+**3. Bâtir des sociétés démocratiques, justes, participatives, durables et pacifiques.**
+_a. S’assurer que les communautés, à tous les niveaux, garantissent les droits de l’homme et les libertés_
+_fondamentales et donnent à chacun la possibilité de développer pleinement son potentiel._
+_b. Promouvoir la justice sociale et économique, en donnant à chacun les moyens d’assurer sa_
+_subsistance d’une manière à la fois sûre, utile et écologiquement durable._
+
+**4. Préserver la richesse et la beauté de la Terre pour les générations présentes et futures.**
+_a. Reconnaître que la liberté d’action de chaque génération est déterminée par les besoins des_
+_générations futures._
+_b. Transmettre aux générations futures les valeurs, traditions et institutions qui encouragent la prospérité_
+_à long terme des communautés humaines et écologiques de la Terre._
+
+_Pour réaliser les quatre engagements généraux précédents, il est nécessaire d’adopter les principes suivants:_
+
+##### II. INTÉGRITÉ ÉCOLOGIQUE
+
+**5. Protéger et rétablir l’intégrité des systèmes écologiques de la Terre, en particulier la diversité bio-**
+**logique et les processus naturels qui assurent le maintien de la vie.**
+_a. Adopter, à tous les niveaux, une planification et une réglementation en matière de développement_
+_durable qui intègrent à tout projet de développement la conservation et la restauration de_
+_l’environnement._
+_b. Créer et sauvegarder des réserves naturelles et biologiques viables, incluant des territoires sauvages_
+_et des zones marines, pour protéger le système de soutien de la vie sur la Terre, maintenir la_
+_biodiversité et conserver notre héritage naturel._
+_c. Promouvoir la régénération des espèces et des écosystèmes en voie d’extinction._
+_d. Restreindre et éliminer les organismes génétiquement modifiés ou exogènes nuisibles aux espèces_
+_indigènes et à l’environnement et empêcher l’introduction de ces organismes nuisibles._
+_e. Gérer l’utilisation des ressources renouvelables telles que l’eau, la terre, les produits forestiers et_
+_la vie marine en utilisant des procédés qui respectent les cycles de régénération et qui protègent_
+_la santé des écosystèmes._
+_f. Gérer l’extraction et l’utilisation des ressources non renouvelables telles que les minéraux et les_
+_combustibles fossiles en utilisant des procédés qui minimisent l’épuisement et qui ne causent pas_
+_de dommages importants à l’environnement._
+
+**6. Empêcher tout dommage causé à l’environnement comme meilleure méthode pour le préserver et**
+**appliquer le principe de précaution là où les connaissances sont insuffisantes.**
+_a. Prendre les mesures en vue d’éviter tout dommage grave ou irréversible à l’environnement, même_
+_si les informations scientifiques sont incomplètes ou non concluantes._
+_b. Faire porter le poids de la preuve par ceux qui soutiennent qu’une activité proposée ne causera_
+_pas de dommages significatifs, et obliger la partie responsable à assumer entièrement les dommages_
+_causés à l’environnement._
+_c. S’assurer que la prise de décision tient compte des conséquences cumulatives, à long terme, indirectes,_
+_internationales et mondiales des activités humaines._
+_d. Empêcher la pollution de tout élément de l’environnement et ne permettre aucune accumulation de_
+_substances radioactives et toxiques, ni de toutes autres substances nocives._
+_e. Éviter les activités militaires qui nuisent à l’environnement._
+
+**7. Adopter des modes de production, de consommation et de reproduction qui préservent les**
+**capacités régénératrices de la Terre, les droits de l’homme et le bien-être commun.**
+_a. Réduire, réutiliser et recycler les matériaux utilisés dans les systèmes de production et de consomma-_
+_tion, et s’assurer que les déchets résiduels peuvent être assimilés par les systèmes écologiques._
+
+
+-----
+
+_b. Agir avec modération et efficacité en utilisant les sources d’énergie et recourir de plus en plus aux_
+_sources d’énergie renouvelables telles que l’énergie solaire et éolienne._
+_c. Promouvoir le développement, l’adoption et le transfert équitable de technologies sans danger pour_
+_l’environnement._
+_d. Intégrer tous les coûts environnementaux et sociaux dans les prix de vente des biens et services et_
+_offrir aux consommateurs la possibilité d’identifier les produits qui répondent aux normes sociales_
+_et environnementales les plus élevées._
+_e. Assurer l’accès universel aux soins de santé qui favorisent une reproduction saine et responsable._
+_f. Adopter des modes de vie qui mettent l’accent sur la qualité de vie et la modération matérielle_
+_dans un monde aux ressources limitées._
+
+**8. Faire progresser l’étude de l’écologie durable et promouvoir le libre l’échange et l’application**
+**élargie des connaissances acquises.**
+_a. Soutenir la coopération scientifique et technique internationale sur le développement durable, en_
+_portant une attention particulière aux besoins des pays en voie de développement._
+_b. Reconnaître et préserver les connaissances traditionnelles et la sagesse de toutes les cultures,_
+_lorsqu’elles contribuent à la protection de l’environnement et au bien-être de l’être humain._
+_c. S’assurer que toute information d’une importance vitale pour la santé humaine et la protection de_
+_l’environnement, y compris l’information génétique, est accessible au public._
+
+##### III. JUSTICE SOCIALE ET ÉCONOMIQUE
+
+**9. Éradiquer la pauvreté en tant qu’impératif éthique, social et environnemental.**
+_a. Garantir l’accès à l’eau potable, à l’air pur, à l’approvisionnement de nourriture, à des terres non_
+_contaminées, à un abri et à des installations sanitaires hygiéniques en attribuant les ressources_
+_nationales et internationales nécessaires._
+_b. Permettre à chaque personne d’accéder à l’éducation et aux ressources nécessaires pour assurer_
+_un mode de vie durable, et offrir la sécurité sociale et des mesures de protection à toute personne_
+_qui ne peut subvenir à ses propres besoins._
+_c. Reconnaître les ignorés, protéger les plus faibles, aider ceux qui souffrent et leur donner la possibilité_
+_de développer leurs capacités et de lutter pour atteindre leurs aspirations._
+
+**10. S’assurer que les activités et les institutions économiques à tous les niveaux favorisent le développement**
+**humain de manière juste et durable.**
+_a. Promouvoir la répartition équitable des richesses à l’intérieur de chaque pays et entre les pays._
+_b. Améliorer les ressources intellectuelles, financières, techniques et sociales des pays en voie de_
+_développement et les soulager de leur importante dette internationale._
+_c. S’assurer que toutes les industries favorisent l’utilisation durable des ressources, la protection de_
+_l’environnement et des normes de travail progressives._
+_d. Exiger que les entreprises multinationales et les institutions financières internationales fassent preuve_
+_de transparence dans l’intérêt public et les tenir responsables des conséquences de leurs activités._
+
+**11. Affirmer l’égalité et l’équité des genres comme condition préalable au développement durable et**
+**assurer l’accès universel à l’éducation, aux soins de santé et aux possibilités économiques.**
+_a. Garantir les droits humains des femmes et des jeunes filles et cesser toute violence à leur endroit._
+_b. Encourager la participation active des femmes dans les différents aspects de la vie économique,_
+_politique, civile, sociale et culturelle en tant que partenaires égales et à part entière, décideuses,_
+_dirigeantes et bénéficiaires._
+_c. Renforcer la cellule familiale et assurer à chacun de ses membres la sécurité, l’affection et les soins_
+_appropriés._
+
+
+-----
+
+**12. Défendre le droit de tous les êtres humains, sans discrimination, à un environnement naturel et social**
+**favorisant la dignité humaine, la santé physique et le bien-être spirituel, en portant une attention**
+**particulière aux droits des peuples indigènes et des minorités.**
+_a. Éliminer toute forme de discrimination, notamment la discrimination basée sur la race, couleur,_
+_sexe, orientation sexuelle, religion, langue et les origines nationales, ethniques ou sociales._
+_b. Affirmer le droit des peuples indigènes à leur spiritualité, leurs connaissances, leurs terres et leurs_
+_ressources, ainsi qu’à leurs propres moyens d’existence traditionnels et durables._
+_c. Honorer et soutenir les jeunes de nos communautés en leur permettant de remplir leur rôle essentiel_
+_pour la création de sociétés durables._
+_d. Protéger et restaurer les lieux d’une grande importance du point de vue culturel et spirituel._
+
+##### IV. DÉMOCRATIE NON-VIOLENCE ET PAIX
+
+**13. Renforcer les institutions démocratiques à tous les niveaux et promouvoir une gouvernance qui**
+**obéisse aux principes de transparence et justiciabilité, ainsi que la participation de tous dans la**
+**prise de décision, et l’accès à la justice.**
+_a. Assurer à toute personne le droit de recevoir des informations claires et récentes sur les questions_
+_environnementales et sur tous les plans et activités de développement qui l’intéressent ou qui sont_
+_susceptibles de l’affecter._
+_b. Soutenir la société civile locale, régionale et mondiale et promouvoir une réelle participation de_
+_toutes les personnes et organisations intéressées dans la prise de décision._
+_c. Protéger le droit à la liberté d’opinion, d’expression, de réunion pacifique, d’association et à la_
+_dissidence._
+_d. Établir l’accès effectif et efficace à des procédures judiciaires administratives et indépendantes, incluant_
+_les compensations et les réparations des dommages infligés à l’environnement ainsi que la menace_
+_de tels dommages._
+_e. Éliminer la corruption de toutes les institutions publiques et privées._
+_f. Renforcer les communautés locales en leur donnant les moyens nécessaires pour sauvegarder leur_
+_environnement, et confier les responsabilités environnementales aux niveaux de gouvernements_
+_les plus aptes à les assumer efficacement._
+
+**14. Intégrer au système d’éducation et à la formation continue les connaissances, les valeurs et les**
+**compétences nécessaires à un mode de vie durable.**
+_a. Assurer à tous, particulièrement aux enfants et aux jeunes, l’accès à l’éducation leur donnant les_
+_moyens de contribuer activement au développement durable._
+_b. Favoriser la contribution des arts, des sciences humaines ainsi que les sciences, à l’éducation en_
+_matière de développement durable._
+_c. Renforcer le rôle des grands médias dans la sensibilisation aux enjeux écologiques et sociaux._
+_d. Reconnaître l’importance de l’éducation morale et spirituelle pour une existence durable._
+
+**15. Traiter tous les êtres vivants avec respect et considération.**
+_a. Empêcher la cruauté envers les animaux domestiques et d’élevage, et atténuer leurs souffrances._
+_b. Protéger les animaux sauvages des techniques de chasse, de trappe et de pêche qui causent des_
+_souffrances extrêmes, prolongées ou inutiles._
+_c. Éviter ou éliminer dans la mesure du possible la capture ou la destruction d’espèces non ciblées._
+
+**16. Promouvoir une culture de tolérance, de non-violence et de paix.**
+_a. Encourager et soutenir la compréhension, la solidarité et la coopération mutuelles entre tous les_
+_peuples et tous les pays ainsi qu’à l’intérieur de chaque pays._
+
+
+-----
+
+_b. Mettre en place des stratégies complètes pour prévenir les conflits violents et utiliser des méthodes_
+_de résolution de problèmes fondées sur la collaboration pour gérer et résoudre les conflits environne-_
+_mentaux et tout autre désaccord._
+_c. Démilitariser les systèmes de sécurité nationale, les amener à une position défensive non provocatrice_
+_et convertir les ressources militaires à des projets pacifiques, notamment à la restauration écologique._
+_d. Éliminer les armes nucléaires, biologiques et toxiques, ainsi que toutes autres armes de destruction_
+_massive._
+_e. S’assurer que l’espace orbital extra-atmosphérique, est utilisé dans le respect de la paix et de la_
+_protection de l’environnement._
+_f. Reconnaître que la paix est l’entité crée à partir de relations équilibrées avec soi-même, avec les_
+_autres, avec d’autres cultures et d’autres formes de vie, avec la Terre et l’ensemble de l’univers dont_
+_nous faisons tous partie._
+
+**LA VOIE DE L’AVENIR**
+_Comme jamais auparavant dans l’histoire, notre destin commun nous invite à chercher un nouveau com-_
+_mencement. Un tel renouvellement est la promesse des principes de la Charte de la Terre. La tenue de cette_
+_promesse repose sur notre engagement à adopter et promouvoir les valeurs et objectifs de la Charte._
+_Cet engagement requiert un changement dans nos cœurs et dans nos esprits. Il requiert également un sens_
+_nouveau d’interdépendance mondiale et de responsabilité universelle. Nous devons développer et mettre_
+_en pratique de façon imaginative la vision d’un mode de vie durable sur le plan local, national, régional,_
+_et international. Notre diversité culturelle est un héritage précieux et les diverses communautés trouveront_
+_leur propre façon de réaliser cette vision. Nous devons approfondir et élargir le dialogue mondial à l’origine_
+_de la Charte de la Terre, car nous avons beaucoup à apprendre de la quête commune et perpétuelle de_
+_la vérité et de la sagesse._
+_Dans la vie, il existe souvent des tensions entre les valeurs les plus importantes. Cela peut impliquer des_
+_choix difficiles. Néanmoins, nous devons trouver des manières d’harmoniser la diversité avec l’unité, l’exercice_
+_de la liberté avec le bien commun, les objectifs à court terme avec les buts à long terme. Chaque personne,_
+_famille, organisation et communauté a un rôle primordial à jouer. Les arts, les sciences, les religions, les_
+_établissements d’enseignement, les médias, le monde des affaires, les organisations non gouvernementales_
+_et les gouvernements sont appelés à faire preuve d’initiative créatrice. Le partenariat entre le gouvernement,_
+_la société civile et les entreprises est essentiel à une bonne gouvernance._
+_Pour bâtir une communauté universelle durable, les nations du monde doivent renouveler leur engagement_
+_envers les Nations Unies, honorer leurs obligations dans le cadre des accords internationaux existants et_
+_soutenir l’application des principes de la Charte de la Terre par moyen d’un instrument ayant force de loi_
+_à l’échelle internationale sur les questions d’environnement et de développement._
+_Faisons en sorte que notre époque passe à l’histoire comme l’éveil d’une nouvelle forme d’hommage à la_
+_vie, la ferme résolution d’atteindre la durabilité, l’accélération de la lutte pour la justice et la paix et l’heureuse_
+_célébration de la vie._
+
+_Pour plus d’information :_
+
+_Initiative de la Charte de la terre_
+_Secrétariat International_
+_PO Box 319-6100, San José, Costa Rica_
+_Tél: + 506 205 1600_
+_Fax: + 506 249 3500_
+_Email: info@earthcharter.org_
+_www.chartedelaterre.org_
+
+
+-----
+
+### VORTRÄGE 2007
+_Auch im Jahr 2007 halten Referenten der FIGU wieder Geisteslehre-Vorträge usw. Nachfolgend die Daten_
+_für die stattfindenden Vorträge:_
+
+### Achtung: Wichtige Änderung!
+Die Vorträge werden ab Juni 2007 im Saal des Centers durchgeführt.
+
+**27. Oktober 2007**
+Guido Moosbrugger **Menschliche Geistform II**
+**Was sind Elementarteilchen?**
+
+Pius Keller **Schön, wie die Natur arbeitet**
+
+_Pünktlicher Vortragsbeginn um 14.00 Uhr._
+
+_Eintritt: CHF 7.– (Eintritts-Ermässigung für FIGU-Mitglieder bei Vorweisen eines gültigen Ausweises.)_
+
+_An den Vortrags-Samstagen trifft sich im Semjase-Silver-Star-Center um 19.00 Uhr eine Studiengruppe,_
+_zu der alle interessierten Passiv-Mitglieder herzlich eingeladen sind._
+
+**IMPRESSUM**
+**FIGU-Bulletin**
+**Druck und Verlag: Wassermannzeit-Verlag, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+**Redaktion: ‹Billy› Eduard Albert Meier, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+**Abonnemente:**
+Erscheint unregelmässig; Preis pro Einzelnummer: CHF 2.– (Zusammen mit einem Abonnement der ‹Stimme der Wassermannzeit› oder der ‹Geisteslehre-Briefe› als Gratis-Beilage.)
+**Postcheck-Konto: FIGU-CH-8495 Schmidrüti, PC 80-13703-3**
+**E-Mail: info@figu.org**
+**Internet: www.figu.org**
+**FIGU-Shop: http://shop.figu.org**
+
+
+-----
+

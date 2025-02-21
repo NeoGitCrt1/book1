@@ -1,0 +1,68 @@
+1. Jahrgang Nr. 1, Sept. 2020 Erscheinungsweise: Sporadisch
+# FIGU-Ökologie
+## Natur, Fauna, Flora, Astronomie
+Internetz: http://www.figu.org E-Brief: info@figu.org
+### Organ für Ökologie, Natur, Fauna, Flora und Astronomie
+Aussagen und Meinungen in Artikeln und Leserbriefen usw. müssen nicht zwingend identisch sein mit den Gedanken, Interessen, der ‹Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens› sowie mit dem Missionsgut der FIGU oder mit Wissenschafts-Behauptungen und dergleichen.
+==================================================================================
+**Für alle im FIGU-Organ <Ökologie, Natur, Fauna und Flora> publizierten Beiträge und Artikel verfügt die FIGU**
+**über die Erlaubnis der betr. Medien; Leserzuschriften und Leserfragen werden mit Namenangabe veröffentlicht.**
+==================================================================================
+### ********************************************************************************** **********************************************************************************
+## Pflanzen können unter Stress „schreien“ – Wissenschaftlerregungen
+Wissenschaftler der Tel Aviv University in Israel wollen herausgefunden haben, dass Tomaten- und Tabakpflanzen, wenn sie wegen Trockenheit oder beim Abschneiden der Stengel in Stress geraten, im Ultraschallbereich „schreien“. Darüber schreibt die Zeitschrift „New Scientist“.
+Obwohl in den letzten Jahren Wissenschaftler entdeckt hatten, dass Pflanzen in der Tat sehen, hören und riechen können, wurde bisher angenommen, dass sie eigentlich stumm seien. Doch nun stellten die Forscher unter Itzhak Khait fest, dass das „Gekreische“ der Pflanzen eine zu hohe Frequenz hat, um vom menschlichen Ohr wahrgenommen werden zu können.
+Aufgezeichnet haben die Wissenschaftler die „Schreie“ mit Hilfe von Mikrofonen, die in einem Abstand von zehn Zentimetern von den Pflanzen positioniert worden waren. Nach den Beobachtungen der Wissenschaftler rangierte die Frequenz der Töne zwischen 20 und 100 Kilohertz, was sie vermuten liess, dass andere Insekten und einige Säugetiere die „Schreie“ von den Pflanzen aus bis zu fünf Metern Entfernung wahrnehmen könnten. Eine weitere Vermutung der Wissenschaftler war, dass Tiere und Pflanzen nicht nur die „Schreie“ hören, sondern auch auf sie reagieren. Zum Beispiel könnte eine Motte sich entscheiden, ihre Eier nicht auf einer Pflanze zu hinterlassen, die Wasser braucht und dadurch sterben könnte.
+**Forscher nennen Antistress-Pflanzen**
+Dabei ist auch die Anzahl der „Geschreie“, die die Pflanzen von sich geben, wichtig. So gaben wegen Trockenheit gestresste Tomatenpflanzen durchschnittlich 35 Ultraschall-„Schreie“ pro Stunde ab, während angeschnittene Pflanzen vergleichsweise nur 25 Mal pro Stunde „schrien“. Ausgetrocknete Tabakpflanzen „kreischten“ rund elf Mal pro Stunde und jene, deren Stengel angeschnitten wurden, gaben 15 „Schreie“ pro Stunde von sich. Zum Vergleich „schrien“ Pflanzen ohne Stress weniger als einmal pro Stunde.
+Den israelischen Forschern gelang es sogar, zur Bestimmung der Stressursache bei den Pflanzen verschiedene „Geschrei“-Arten herauszufiltern. Dazu schufen die Forscher ein Modell, das mit Hilfe von maschinellem Lernen die Geräusche der Pflanzen korrekt unterscheiden und identifizieren kann. Auf diese Weise konnten sie erfolgreich feststellen, welche Geräusche Tomaten- und Tabakpflanzen bei welcher Art von Stress von sich geben.
+„Diese Entdeckung könnte unsere Denkweise über das Königreich der Pflanzen ändern. Bis jetzt dachten wir, dass Pflanzen fast immer stumm sind“, schrieben die Forscher in ihrer Studie.
+**Effektivere Wassernutzung durch Abhören von Pflanzen**
+Obwohl Khait und seine Kollegen nur Tomaten- und Tabakpflanzen unter die Lupe nahmen, sind sie der Ansicht, dass auch andere Pflanzen Geräusche von sich geben, wenn sie Stress unterliegen. Diese Erkenntnis könnte den Landwirten sehr helfen, denn die Bauern könnten mit technischer Hilfe entsprechende Bedürfnisse (zum Beispiel „zu trocken“ oder „satt“) ihrer Pflanzen ablesen und Wasser effektiver nutzen, schrieben die Forscher.
+dg/ae Quelle: https://de.sputniknews.com/wissen/20191209326079331-pflanzen-koennen-unter-stress-schreien-wissenschaftler/
+**Auszug aus dem 728. offiziellen Gesprächsbericht vom 30. November 2019**
+**Billy** Was ich nun noch sagen will, das bezieht sich darauf, was ich von Sfath gelernt habe, dass
+nämlich auch die Naturwissenschaftler irgendwie hinter dem Mond herumwühlen und sich nicht mit dem beschäftigen, was eigentlich grundsätzlich wichtig wäre. Zwar haben sie Wissenschaftsgebiete wie Entomologie resp. Insektenkunde, Pflanzenbiologie, Haustiere, Wildtiere sowie der Vögel, Geflügel usw., jedoch geht ihnen einerseits die Kenntnis ab, dass alles ihrer Gattung und Art gemäss zu spezifizieren ist und so z.B. Tiere nur Säugerlebewesen sind, die nichts mit Vögeln, Getier oder Insekten zu tun haben, wie diese wiederum nichts mit Bienen usw. Also einmal dies, während anderseits bisher noch immer nicht begriffen und auch nicht danach geforscht wurde, dass sämtliche Lebensformen empfindungsfähig sind und damit auch psychische Regungen haben, wie eben der Mensch als sich selbst bewusstes Individuum. Zwar wird heute davon ausgegangen, dass höhere Tiere, also Säuger, psychische Regungen haben, was aber gerademal die ganze Weisheit der Natur- und Biologiewissenschaften ist. Dass jedoch gesamthaft alle Lebewesen eine Psycheform aufweisen, so z.B. eine Instinkt-Psyche, Empfindungs- oder EnergiePsyche, die auch niederen Lebewesen wie Käfern und Insekten, Getier aller Art, Werren, Echsen, Schlangen, Fischen und Schmetterlingen und Nachtfaltern usw. eigen ist – die zudem weder Tiere noch Getier, sondern eigene Gattungen und Arten und also als solche zu bezeichnen sind –, davon haben die Wissenschaftler keinerlei Ahnung. Auch wissen sie nicht, dass selbst die niedrigsten Lebewesen intensiv miteinander kommunizieren. Gleichermassen gilt diese wissenschaftliche Unwissenheit auch in bezug auf die gesamte Biodiversität resp. auf die vielfältige Breite und Weite der gesamten Pflanzenwelt, denn auch diesbezüglich haben die entsprechenden Wissenschaftler keinerlei Ahnung davon, dass auch jede einzelne Pflanze – und zwar vom winzigsten Moosfaden bis zum riesenhaften Baum – einerseits eine Psycheform haben, eine Energie-Psyche usw. wie Sfath sie beschrieben und erklärt hat. Anderseits kommunizieren die Pflanzen und Lebewesen aller Gattungen und Arten untereinander sehr intensiv, und zwar in einer Impuls-Schwingungsform in bestimmten Rhythmen, aus denen ich sinngemäss bestimmte kommunikative Werte verstehen konnte. Auch konnte ich heraushören, dass sie alle auch ein Schmerzempfinden haben, und zwar jede einzelne Pflanze und jedes selbständige Lebewesen von der winzigsten bis zur grössten Gattung und Art. Das konnte ich an mancherlei ortgebundenen Pflanzen, an kleinen und grossen sich-selbstbewegenden Lebensformen verschiedener Gattungen und Arten, bis hin zu Insekten und noch kleineren Lebewesen, selbst beobachten, miterleben und so auch miterfahren, als mich Sfath experimentell auf Geräten und auf Monitoren sowohl Schmerzschwingungen von Pflanzen und kleinsten Lebewesen sehen und durch einen an meinem Kopf angeschlossenen Apparat diese nervlich und empfindungsmässig sowie akustisch auch wahrnehmen und effectiv mitfühlen und mithören liess.
+**Ptaah** Damit wirst du recht haben, denn deine Worte werden schallos bleiben. … … …
+Dummköpfe Wäre die Welt nicht so voll von Dummköpfen, die wider jeden Verstand und entgegen aller Vernunft Kriege, Terror, Unfrieden, Überbevölkerung, Unfreiheit, Disharmonie, wie aber auch Lieblosigkeit und bösen Hass erschaffen, dann wäre des Menschen Leben ein Paradies auf Erden. SSSC, 21. Februar 2012 17.32 h, Billy
+## Verbreitung des richtigen Friedenssymbols
+Das falsche Friedenssymbol – die heute weltweit verbreitete sogenannte <Todesrune>, die
+**Es soll FRIEDEN sein auf Erden** aus den keltischen Futhark-Runen resp. der umgedrehten Algiz-Rune fabriziert wurde – ist
+**And there shall be PEACE on Earth** der eigentliche Inbegriff negativer Einflüsse und schafft zerstörerische Schwingungen
+hinsichtlich Unfrieden, Fehden und Hass, Rache, Laster, Süchte und Hörigkeit, denn die
+**AMANI** **ΕΙΡΗΝΗ** <Todesrune> bedeutet für viele Menschen Reminiszenzen an die NAZI-Zeit, an Tod und
+**BARIŞ** **VREDE** Verderben, wie aber auch Ambitionen in bezug auf Kriege, Terror, Zerstörungen vieler
+**PAQE** **��** menschlicher Errungenschaften und allen notwendigen Lebensgrundlagen jeder Art und
+**PACE** **שרום** weltweit Unfrieden.
+**МИР** शांित Es ist wirklich dringlichst notwendig, dass die <Todesrune> als falsches Friedenssymbol,
+**PAIX** **���** das Unfrieden und Unruhe schafft, völlig aus der Erdenwelt verschwindet und dadurch das
+**PAZ** **��** uralte sowie richtige Peacesymbol auf der ganzen Erde verbreitet und weltbekannt
+gemacht wird, dessen zentrale Elemente Frieden, Freiheit, Harmonie, Stärkung der
+**FIGU.ORG** Lebenskraft, Schutz, Wachstum und Weisheit reflektieren, aufbauend wirken und sehr
+**FIGU, Semjase-Silver-Star-Center, 8495 Schmidrüti**
+**Schweiz/Switzerland  Tel. + 41 (0)52 385 13 10** besänftigend und friedlich-positiven Schwingungen zum Durchbruch verhelfen, die effectiv
+Frieden, Freiheit und Harmonie vermitteln können! Wir wenden uns deshalb an alle vernünftigen Menschen der Erde, an alle FIGU-Interessengruppen, FIGU-Studiengruppen und FIGU-Landesgruppen und damit an alle vernünftigen und ehrlich nach Frieden, Freiheit, Harmonie, Gerechtigkeit, Wissen und Evolution strebenden Menschen, ihr Bestes zu tun und zu geben, um das richtige Friedenssymbol weltweit zu verbreiten und Aufklärung zu schaffen über die gefährliche und destruktive Verwendung der <Todesrune>, die in Erinnerung an die NAZI-Verbrechen kollektiv im Sinnen und Trachten der Menschen Charakterverlotterung, Ausartung und Unheil fördert, wie das leider auch nach dem Ende des letzten Weltkrieges 1939–1945 extrem bis in die heutige Zeit hineingetragen wird.
+## Spreading of the Correct Peace Symbol
+The wrong peace symbol – the globally widespread “death rune” which has been fabricated from the Celtic Futhark runes or inverted Algiz rune – is the actual embodiment/quintessence of negative influences and evokes destructive swinging-waves regarding unpeace and hatred, revenge, vice, addictions and bondage, because for many human beings the “death rune” means reminiscence (memories) of the Nazi era, of death and ruin as well as ambitions concerning war, terror, destruction of human achievements, livelihoods as well as global evil unpeace.
+Therefore it is of the utmost necessity that the wrong peace symbol, the “death rune”, disappears from the world and that the urancient and correct peace symbol is spread and made known all-over the world, because its central elements reflect peace, freedom, harmony, strengthening of the life power, protection, growth and wisdom, have a constructive and strongly soothing effect, and help peaceful-positive swinging-waves to break through.
+Therefore we appeal to all FIGU members, all FIGU-Interessengruppen, Studien- and Landesgruppen as well to all reasonable human beings, who are honestly striving for peace, freedom, harmony, fairness, knowledge and evolution, to do, and give, their best to spread the correct peace symbol worldwide and to bring forth clarification about the dangerous and destructive use of the “death rune”, which in memory of the Nazi crimes collectively furthers deterioration and neglect of character-"ausartung" and terribleness in the reflecting and striving of the human being, as this is still being extremely carried on after the end of the last world war 1939– 1945 until the current time.
+**Autokleber** **Bestellen gegen Vorauszahlung:** **E-Mail, WEB, Tel.:**
+**Grössen der Kleber:** **FIGU** info@figu.org
+120x120 mm = CHF 3.– Hinterschmidrüti 1225 www.figu.org 250x250 mm = CHF 6.– 8495 Schmidrüti Tel. 052 385 13 10 300X300 mm = CHF 12.– Schweiz Fax 052 385 42 89
+**IMPRESSUM** **///    Für CHF/EURO 10.– in einem Couvert, senden**
+**FIGU-Ökologie, Natur, Natur Fauna, Flora, Astronomie** **///     wir Ihnen/Dir 3 Stück farbige Friedenskleber**
+**///    oder Überbevölkerungskleber 3 Sück der**
+**///** **Grösse 120x120 mm = am Auto aufkleben**
+**Druck und Verlag: FIGU** Wassermannzeit-Verlag,
+Semjase-Silver-Star-Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+**FIGU-Offener Brief erscheint sporadisch;**
+FIGU-Offener Brief wird auch im Internetz veröffentlicht, auf der FIGU-Webseite: www.figu.org/ch
+**Redaktion: BEAM** ‹Billy› Eduard Albert Meier /././ Telephon +41(0)52 385 13 10 (7.00 h – 19.00 h) / Fax +41(0)52 385 42 89
+**Postcheck-Konto: PC 80-13703 3 / IBAN: CH06 0900 0000 8001** **3703** **3**
+FIGU Freie Interessengemeinschaft, 8495 Schmidrüti, Schweiz
+**FIGU-Shop: shop.figu.org**
+**© FIGU 2020**
+Einige Rechte vorbehalten. Dieses Werk ist, wo nicht anders Geisteslehre Friedenssymbol angegeben, lizenziert unter : **Frieden** www.figu.org/licenses/by- nc-nd/2.5/ch/ Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden, wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten Tritt dazu macht, um dann
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung des** nachfolgend in Friedsamkeit jeden weiteren Schritt bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun.
+**Urhebers ausdrücklich erlaubt. / Erschienen im Wassermannzeit-Verlag:** SSSC, 10. September 2018, 16.43 h, Billy
+FIGU, ‹Freie Interessengemeinschaft Universell›, Semjase-Silver-Star-Center, Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz

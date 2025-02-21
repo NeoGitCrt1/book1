@@ -1,0 +1,33 @@
+## Contact Report 399
+Dreihundertneunundneunzigster Kontakt
+Samstag, 24. September 2005, 10.11 Uhr
+**Ptaah:**
+1. Be greeted, Eduard.
+2. Heute komme ich schon zu dieser Zeit, weil ich wieder zurück muss, um die Geschehen des Hurrikans in den USA zu beobachten.
+3. Am Nachmittag werden wir aber trotzdem dann die gemeinsamen Korrekturen zusammen mit Bernadette durchführen.
+4. Die Arbeiten bezüglich Hans-Georg werden wir später erledigen.
+**Billy:**
+Grüss dich, mein Freund. Mir ist es auch recht so. Wann kannst du denn kommen, um die anderen Arbeiten zu erledigen?
+**Ptaah:**
+5. Das wird morgen sein.
+**Billy:**
+Hast du jetzt aber genügend Zeit, um ein kurzes Gespräch zu führen?
+**Ptaah:**
+6. So sehr eilt es mir nicht.
+**Billy:**
+Dann möchte ich folgendes aufgreifen: Erich von Däniken sowie Krassa und diverse andere, die über historische Ereignisse schreiben, behaupten in unzähligen Fällen, dass auf der ganzen Welt bei vielen Völkern Beweise dafür zu finden seien resp. dass sie solche dafür gefunden hätten, dass Ausserirdische in die Entwicklung der Erdenmenschen eingegriffen haben sollen. Sie legen dafür auch allerlei Photos und Materialien vor, die sie als Beweisstücke erachten und deklarieren. Meines Erachtens und euren Aussagen gemäss ist der grösste Teil dieser Beweise aber wertlos, weil sehr viele der Dinge keinerlei Bewandtnis zu Ausserirdischen aufweisen, sondern einzig und allein nur zu Machwerken von Erdenmenschen. Semjase, du und Quetzal, ihr habt einmal erklärt, dass es z.B. nur etwa 4 Prozent von allem sei, was Erich von Däniken in bezug auf Dinge ausserirdischer Herkunft bezeichne. Ist das immer noch so, oder hat sich seine Trefferquote seit damals gesteigert?
+**Ptaah:**
+7. Damals, als Erich von Dänikens Nachforschungen in bezug auf Dinge ausserirdischer Herkunft von uns mit 4 Prozent angegeben wurde, da bezog es sich auf gesamthaft alle seine damaligen Nachforschungen.
+8. Was er aber seither weiterhin gebracht hat und als ausserirdischer Herkunft bezeichnet resp. was Beweise dafür sein sollen, dass Dinge auf ausserirdische Götter und Raumfahrer hinweisen würden, beruht schlichtwegs nur auf unzutreffenden Vermutungen, Hoffnungen und Illusionen.
+9. So ist seither, seit unserer Aussage, mit all dem weiter von ihm zusammengetragenen Material der Prozentsatz der Richtigkeit seiner Aussagen auf unter 0,6 Prozent gesunken.
+**Billy:**
+Was beweist, dass Ausserirdische zur Zeit der Antike usw. nur äusserst spärlich auf der Erde in Erscheinung getreten sind, wie das auch der Fall gewesen ist bei gewissen Göttern, die Ausserirdische waren, während jedoch die meisten Gottheiten reine Erfindungen der Erdenmenschen und also imaginäre Gestalten waren. So sind ungeheuer viele Dinge der alten Zeiten reinen erdenmenschlichen Ursprungs, so in bezug auf die Technik und also auf die Mechanik, die Medizin, Architektur, Mathematik, die Geometrie und alles Wissen und Können in jeder Hinsicht. Und wenn ich dabei an den Griechen Archimedes denke, der schon vor über 2200 Jahren als Mechaniker, Erfinder und Mathematiker die Darstellung be-liebig grosser Zahlen sowie die Bestimmung der Quadratwurzel und die Pi-Zahl – 3,14159 – gelehrt hat, nebst dem, dass er die Lösung kubischer Gleichungen brachte und die Berechnung von krummlinig begrenzten Flächen und Rotationskörpern, dann muss man sagen, dass das heutige Wissen und die gesamte Entwicklung auf Menschen der alten Zeit beruht. Sie waren es grundsätzlich, die den eigentlichen Fortschritt der Erdenmenschen einläuteten, auch wenn ihr gesamtes Wissen und Können wieder verlorenging und in der Neuzeit erst wieder gefunden werden musste. Was also heute existiert, wurde vielfach schon vor Jahrtausenden von Erdenmenschen erdacht, errechnet, herausgefunden, erarbeitet und hergestellt, wenn auch in altertümlicher Art und Weise und gemäss den damaligen technischen und medizinischen sowie anderen Möglichkeiten. Und all die Dinge, Ideen und Erfindungen usw. führten nicht auf das Wissen und nicht auf die Hilfe von Ausserirdischen zurück, sondern einzig und allein auf die Ideen, Gedanken und Überlegungen sowie Forschungen usw. der Erdenmenschen. Ausserirdische hatten wirklich nur in äusserst wenigen Fällen ihre Hände im Spiel. Doch zurück zu Archimedes: Er entdeckte ja auch den Schwerpunkt und das Hebelgewicht, wie aber auch die geneigte Ebene und den Lehrsatz vom statischen Auftrieb. Als Mechaniker baute er auch hydraulische Maschinen und Kriegs-maschinen, wie z.B. Hebelwerke und Schleudern usw. Nebst Zahnradgetrieben und einem Distanzmesser resp. Kilometerzähler erfand er auch eine Zahnrad-Zeituhr sowie eine Zahnrad-Sonne-Mond- Uhr und vieles andere an technischen und mechanischen sowie mathematischen Dingen. Das ist heute im Jahr 2005 zwar erst einiges über 2200 Jahre her – Archimedes wurde, wenn ich mich nicht irre, im Jahr 285 v. Chr. in Syrakus geboren und auch da im Jahr 212 v. Chr. getötet, als die Römer Syrakus eroberten –, doch auch schon zu früheren Jahrtausenden wurden durch Erdenmenschen ohne Einflüsse Ausserirdischer sehr viele Erfindungen gemacht, Erkenntnisse gewonnen, und es wurde Unzähliges zustande gebracht, das jedoch verlorenging und erst in der Neuzeit wieder entdeckt, neu erfunden und neu aufgebracht wurde und weiterhin wird. Wäre damals zu den alten Zeiten die Entwicklung aus mancherlei Gründen nicht stagniert und wäre all das bereits erarbeitete Wissen und Können nicht verlorengegangen, dann hätten die Erdenmenschen schon damals die Autos usw. erfunden, nebst den Raketen und dem Erbauen von Weltraumteleskopen und Raumstationen. Und wahrscheinlich wäre es so, dass der Erdenmensch schon lange den Raumflug beherrschen würde, in die Weiten des Universums hinausgeflogen, fremde Planeten und Menschheiten gefunden und sich auf anderen Welten angesiedelt hätte. Das alles aber nicht durch die Hilfe von Ausserirdischen, sondern einzig und allein durch den eigenen erdenmenschlichen Genius. So sehe ich das Ganze gemäss all dem, was die irdisch-menschliche Entwicklungs- und Fortschrittsgeschichte gebracht hat, nebst dem, was mir bereits dein Vater, Sfath, Asket sowie deine Tochter Semjase und auch Quetzal erklärt haben, wobei ich natürlich auch all das berücksichtige, was ich von dir weiss.
+**Ptaah:**
+10. Was soll ich dazu noch sagen?
+11. Deine Erklärungen entsprechen vollumfänglich der Wahrheit.
+12. Nun aber, mein Freund, muss ich wieder zurück.
+13. Wir werden uns morgen wieder sehen und unsere Arbeit tun.
+14. Leb wohl bis dahin.
+15. Auf Wiedersehn.
+**Billy:**
+Salome.

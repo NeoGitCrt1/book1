@@ -1,0 +1,1083 @@
+# FIGU
+**Freie**
+
+**Interessengemeinschaft**
+**F.I.G.U.**
+
+**r**
+
+# SONDER-BULLETIN
+
+#### Erscheinungsweise: Internet: http://www.figu.org 14. Jahrgang Sporadisch E-Mail:  info@figu.org Nr. 41, Feb. 2008
+
+## Machos, Feinde der Menschheit
+
+Männer sind gewalttätiger als Frauen. Werden sie als Schläger geboren oder dazu erzogen?
+Weltweit bekämpfen Frauen die Vorherrschaft der Männer vor allem mit juristischen Argumenten. Sie beklagen, wie ungerecht die Macht verteilt sei, und setzen primär auf die Durchschlagskraft der Forderung,
+dass niemand wegen seines Geschlechts benachteiligt oder bevorzugt werden darf. Doch geht es wirklich nur um ein Gerechtigkeitsproblem? Oder sollten wir die Vorherrschaft der Männer auch aus einem
+anderen Grund beenden; weil ihre Dominanz das Überleben der Menschheit gefährdet?
+Diese Frage lässt sich nur beantworten, wenn wir uns die zentralen Bedrohungen vor Augen führen. Ich
+möchte mich auf drei Aspekte konzentrieren:
+
+Die Reihenfolge soll dabei keine Rangordnung ausdrücken. Erstens: 1950 lebten auf der Erde circa 2,5
+Milliarden Menschen, 1975 waren es bereits 4 Milliarden. Inzwischen, so die Schätzungen, ist die Weltbevölkerung bereits auf über 6 Milliarden angewachsen – und dies, obwohl die Politik weltweit seit mehr
+als 30 Jahren versucht, dieses Wachstum zu bremsen. Die fatalen Folgen liegen auf der Hand: Die
+Nahrungsmittelproduktion hält in vielen Regionen der Erde nicht mehr Schritt mit der Zahl der Menschen.
+Es drohen gewaltige Hungerkatastrophen und grosse Wanderungsbewegungen, die wiederum das Risiko
+von Kriegen erhöhen. Vor allem aber gefährdet ein ungezügeltes Bevölkerungswachstum unsere natürlichen Lebensgrundlagen. So werden immer mehr Wälder abgeholzt, um Siedlungs- und Anbauflächen
+zu schaffen; die wachsende Industrialisierung erzeugt zudem eine steigende Belastung der Natur mit Giftstoffen. Man denke nur an den CO2-Ausstoss durch die weltweite Zunahme von Kraftfahrzeugen.
+
+Zweitens: Die Bevölkerungsexplosion führt zu wachsender Umweltverschmutzung.
+So vergiften die zur Steigerung der Nahrungsmittelproduktion eingesetzten Düngemittel das Grundwasser,
+die Flüsse und die Meere. Der zunehmende CO2-Ausstoss trägt zur Klimaveränderung bei, die das Eis
+am Nordpol schon im Laufe der letzten zwanzig Jahre auf weniger als die Hälfte seiner ursprünglichen
+Dicke hat abschmelzen lassen. Wissenschaftler befürchten, dass sich deswegen der Golfstrom abkühlt beziehungsweise seinen Lauf verändert, was wiederum für das Klima verhängnisvolle Auswirkungen hätte.
+
+Drittens: Eine grosse Gefahr für die Menschheit geht von Gewalt, Terror und Krieg aus. Solange man noch
+mit Äxten, Speeren oder später mit Gewehren und Panzern aufeinander losging, war das für die Menschheit insgesamt nicht bedrohlich. Aber seit Hiroshima sieht alles anders aus. Dabei hat es einen Grosseinsatz von biologischen und chemischen Waffen moderner Prägung bisher noch gar nicht gegeben, ganz
+zu schweigen davon, was die neuen Atombomben an Vernichtungspotential entfalten können. Die Tatsache, dass derartige Massenvernichtungsmittel einer wachsenden Zahl von Staaten, darunter auch
+Militärdiktaturen wie etwa Pakistan, zur Verfügung stehen, muss uns mit Sorge erfüllen.
+
+
+**Freie**
+
+
+-----
+
+Was haben diese Bedrohungen mit der Dominanz der Männer zu tun? Beginnen wir mit der Überbevölkerung. Ansprechpartner für Massnahmen der Geburtenkontrolle waren früher allein die Frauen. Dann
+aber wurde Organisationen wie der Uno und der WHO klar, dass diese Politik zu kurz greift. Geburtenkontrolle heisst auch Zeugungsverhütung. Gegen den Widerstand der Männer hat sie keine Chance.
+Doch gerade in den Entwicklungsländern wünschen sich die verheirateten Männer erheblich mehr Kinder
+als ihre Frauen. Nach den Untersuchungen der Deutschen Stiftung Weltbevölkerung sind hierfür zwei
+Aspekte bedeutsam: Die althergebrachte Auffassung, die männliche Potenz liesse sich durch die Zeugung
+von vielen Kindern unter Beweis stellen. Und die Angst der Männer, dass Frauen, die sich gegen ungewollte Schwangerschaften schützen, eher in Versuchung seien, untreu zu werden.
+
+Und noch etwas haben die Bevölkerungswissenschaftler herausgefunden: Je stärker Frauen Bildungschancen offen stehen, je mehr sie die Möglichkeit erhalten, Berufe zu erlernen und diese auch auszuüben,
+je deutlicher sie sich in der Männerwelt selbst behaupten, umso stärker sinkt die Geburtenrate. Ein Beispiel ist der Bundesstaat Kerala in Indien, in dem Frauen seit Jahrzehnten Zugang zu Bildung und Berufstätigkeit haben. Die Geburtenrate beträgt dort nur 2,1 Kinder pro Frau. In den Regionen Indiens dagegen,
+in denen die Dominanz der Männer ungebrochen ist, liegen die Geburtenraten zwischen drei und fünf
+Kindern pro Frau.
+
+Lassen sich im Hinblick auf die Umweltpolitik ähnliche Beobachtungen machen?
+Eines gilt jedenfalls weltweit: Es waren primär Frauen, die Öffentlichkeit und Politik für die Gefahren von
+Umweltverschmutzung und den Raubbau an der Erde sensibilisiert haben. Zwei Drittel bis drei Viertel der
+Mitglieder von Umweltschutzorganisationen sind Frauen. Das wird deswegen gerne übersehen, weil an
+der Spitze nach wie vor Männer stehen und das Wort schwingen.
+Frauen sind offenbar durch ihre Tätigkeit für Familie und Haushalt von den Folgen der Umweltverschmutzung viel unmittelbarer betroffen als Männer. Die Beispiele hierfür sind zahlreich: die Allergien von Kindern, die Vergiftung der Muttermilch, die Probleme mit Verpackungsmüll oder der Trinkwasserversorgung.
+«In den Ländern der Dritten Welt gäbe es keine Wasserkrise, wenn die Männer das Wasser aus dem
+Brunnen holen müssten», sagte ein afrikanischer Delegierter kürzlich bei einer Umweltschutzkonferenz.
+
+Und wer ist schliesslich dafür verantwortlich, dass uns immer wieder Gewalt, Terror und Krieg bedrohen?
+Die Kriminologie gibt zu jener Gewalt, die wir als Kriminalität definieren, interessante Antworten. So ist
+der seit Mitte der achtziger Jahre zu beobachtende Anstieg der Gewaltkriminalität sowohl in Deutschland
+als auch in den anderen europäischen Ländern zu 80 bis 90 Prozent den Männern zuzurechnen. Zwar
+hat sich auch der Anteil der Frauen erhöht, die von der Polizei wegen einer Gewalttat registriert wurden.
+Der Anteil der Männer ist aber weit rasanter gestiegen und liegt inzwischen bei den 18- bis 21-Jährigen
+um das 13fache über dem der Frauen. Das überrascht angesichts der Tatsache, dass Frauen inzwischen
+auch Berufsfelder erobern, die früher eindeutige Männerbastionen waren. Viele hatten erwartet, dass sich
+deshalb auch das Kriminalitätsverhalten der Frauen ändern würde. Das war falsch. Nach wie vor sind
+nur vier bis fünf Prozent aller Strafgefangenen Frauen – und dies seit mehr als zwanzig Jahren.
+
+Diese Fakten sind Ausdruck einer Krise der Männlichkeit. Eine der Ursachen scheint die wachsende
+Diskrepanz zu sein zwischen den Tagträumen der jungen Männer und der Wirklichkeit. Die Medien
+zelebrieren den Typ des Rambo-Kämpfers, der sich mit Gewalt durchsetzt, und schaffen damit suggestiv
+wirkende Identifikationsbilder. Im Alltag der Schule, der Ausbildung und des Berufes ist dagegen ein ganz
+anderer Typ Mann gefragt; einer, der teamfähig ist, der über kommunikative Kompetenz und Empathie
+verfügt und mit einer Frau als Vorgesetzter keine Schwierigkeiten hat.
+Hinzu kommt insbesondere in den Städten ein wachsender Kulturkonflikt. Ein beachtlicher Teil der jungen
+Männer in unserem Land stammt aus Einwandererfamilien, in denen ein traditionelles Männerbild vor
+
+-----
+
+herrscht. Es dominiert vielfach noch der Familienvater, der von Frau und Kindern Gehorsam verlangt und
+es gewohnt ist, sich notfalls mit Gewalt Respekt zu verschaffen.
+Eine repräsentative Schülerbefragung des Kriminologischen Forschungsinstituts Niedersachsen hat gezeigt, dass Gewalt in jugoslawischen und türkischen Familien zwei- bis dreimal so häufig vorkommt wie
+in einheimischen deutschen Familien. Und sie hat ferner bewiesen, dass dieses Aufwachsen in einer
+Macho-Kultur sehr dazu beiträgt, dass im Vergleich männliche türkische und jugoslawische Jugendliche
+wesentlich häufiger gewalttätig werden als deutsche.
+Augenfällig ist auch die so unterschiedliche Entwicklung krimineller Karrieren von Männern und Frauen.
+Frauen zeigen grössere soziale Lernfähigkeit. Ihre Rückfallquote liegt in allen Deliktsbereichen erheblich
+unter der von Männern. Die Folge: Unter jenen Menschen, die mindestens zehnmal wegen einer Straftat
+verurteilt wurden, befinden sich fast nur noch Männer.
+Ebenso interessant sind Erkenntnisse darüber, wie sich ein steigender Frauenanteil in bestimmten Berufen
+auswirkt. So stellte man in England fest, dass dort, wo die Frauenquote in der Polizei oder unter den Strafvollzugsbediensteten stieg, die Beschwerden über illegale Polizeigewalt und Disziplinarvorfälle mit Gefangenen deutlich sanken.
+Zu dieser Beobachtung passt die vom Hamburger Kriminologen Klaus Sessar gewonnene Erkenntnis, dass
+weibliche Richter und Staatsanwälte dem Konzept der Wiedergutmachung und des Täter-Opfer-Ausgleichs wesentlich aufgeschlossener gegenüberstehen als männliche. Männer wiederum sprechen sich
+öfter für harte Strafen aus und plädieren erheblich häufiger als Frauen für die Wiedereinführung der
+Todesstrafe.
+
+Die Erkenntnisse zur Gewaltkriminalität und zum Umgang mit ihr lassen sich durchaus auf Terror und
+Krieg übertragen. Ein Blick in die Gegenwart: Die Eta-Bomben in Spanien, der Konflikt an der Grenze
+von Albanien und Mazedonien, der alltägliche Kampf zwischen Palästinensern und Israelis oder die
+Terrorangriffe der von Bin Laden befehligten radikalen Muslime – dies alles sind von Männern beherrschte
+Gewaltakte. Und auch die Kriege der letzten zehn Jahre sind Macho-Kulturen und ihren machtgierigen
+Herrschern zuzurechnen. Man denke nur an Saddam Hussein, Milosevic oder Kabila.
+Die Protestkundgebungen gegen Terror und Krieg hingegen werden meist von Frauen organisiert und
+dominiert. Zum Frieden in Nordirland riefen zuerst die Frauen auf und erhielten hierfür den Friedensnobelpreis. Die beharrlichen Demonstrationen der Mütter von getöteten Gegnern der argentinischen
+Militärjunta sind uns immer noch im Gedächtnis. Auch in Jugoslawien waren es Frauen, die als erste
+öffentlich gegen den Wahnsinn des Bürgerkrieges aufstanden.
+Angesichts der deutlichen Unterschiede, die sich in Einstellungen und Verhaltensweisen von Männern und
+Frauen zeigen, stellt sich die Frage, ob sie das Ergebnis unterschiedlicher Erziehungsmuster sind oder ob
+man sie als Ausdruck genetischer Prägungen interpretiert. Der Streit über diese Frage bewegt die Wissenschaft seit vielen Jahrzehnten. Den aktuellen Stand der Debatte hat Ende 1998 der amerikanische Sozialwissenschaftler Francis Fukuyama in seiner brillant geschriebenen Studie ‹Frauen und die Evolution in der
+Weltpolitik› analysiert. Unter Berufung auf eine Reihe neuer Foschungsbefunde gelangt er zu der Einschätzung, dass der biologisch-genetische Erklärungsansatz sehr an Boden gewonnen hat. Die empirisch
+ebenfalls gut belegte Gegenthese, wonach das Verhalten von Männern und Frauen stark durch geschlechtsspezifische Erziehungs- und Rollenmuster geprägt ist, behält für ihn aber ebenfalls Gültigkeit –
+nur nicht mehr in der Ausschliesslichkeit, mit der sie vielfach vertreten wird.
+
+Damit bleibt die Frage politisch relevant, an welchem Punkt sich die Sozialisation und das Verhalten von
+Jungen verändern lässt. Ein Beispiel liefert die oben erwähnte Studie des Kriminologischen Forschungsinstituts Niedersachsens. Die Jugendlichen wurden im Jahr 1998 gefragt, wie wohl ihre Eltern, Freunde
+und Bekannten reagieren würden, erführen sie, dass die Befragten auf dem Schulhof einen Mitschüler
+nach einem Streit zusammengeschlagen hätten. Die Mädchen prognostizierten fast durchwegs heftigen
+
+
+-----
+
+Tadel ihrer Eltern und ganz überwiegend starke Ablehnung durch Gleichaltrige. Hingegen erwartete fast
+ein Viertel der Jungen Akzeptanz oder gar Lob vom Vater; mehr als die Hälfte rechnete zudem mit einer
+positiven Reaktion der Mitschüler.
+Und noch etwas ist durch die Schülerbefragung deutlich geworden: Selbst unter den heutigen Rahmenbedingungen der Koedukation und weitgehenden Chancengleichheit im Bildungswesen bleiben starke
+Verhaltensunterschiede. So wollten die Forscher wissen, welche Sportarten die Schüler am liebsten ausübten und was ihnen daran gefalle. Die meisten Jungen bevorzugten Sport, bei dem sie Mann gegen
+Mann kämpfen können (Fussball, Rugby, Handball), und haben vor allem Spass daran, den Gegner zu
+besiegen. Diese Antwort geben zwar auch einige Mädchen, doch überwiegen stark jene, die Sportarten
+über das Netz und ohne direkten Kampf vorziehen (Volleyball oder Tanzen im Team), die schlicht den
+Gruppenspass und das Austoben suchen.
+Dies verdeutlicht, was Wissenschaftler immer wieder belegt haben: Die im Laufe der Menschheitsgeschichte entstandenen Einstellungs- und Verhaltensunterschiede von Jungen und Mädchen werden sich
+auch bei fortschreitender Emanzipation der Frauen nur langsam ändern.
+
+Was lässt sich daraus ableiten? Angesichts der ausgeprägten Risiken, die eine Kultur männlicher Dominanz mit sich bringt, erscheint eine konsequente Politik der Frauenemanzipation weltweit dringend geboten. Dabei sollten wir uns bewusst sein, dass vereinzelte Frauen in Führungspositionen wenig Chancen
+haben, die Gesellschaft durchgreifend zu verändern. Zu sehr stehen sie unter Druck, als Maggie-ThatcherTyp beweisen zu müssen, dass sie den Männern an Härte und Durchsetzungskraft keineswegs unterlegen
+sind.
+Auf der anderen Seite sind Männer gefragt, die den verunsicherten Jungen eine attraktive und glaubhafte
+Alternative zum Macho-Ideal vorleben können. Männer also, die sich ihrer Gefühle nicht schämen und
+auch das Weinen nicht unterdrücken, wenn ihnen danach zumute ist (wie Hans Eichel im Bundestag).
+Männer, die zuhören und, wenn sie im Unrecht sind, auch nachgeben können. Männer, die locker und
+engagiert sogenannte Frauenrollen ausüben, etwa als Lehrer in der Grundschule oder als Hausmann im
+‹Babyjahr›.
+Feministinnen könnten aus diesen Thesen die Folgerung ableiten, dass wir angesichts der eingangs beschriebenen Gefahren sogar eine Dominanz der Frauen anstreben sollten. Dem widerspricht Fukuyama:
+Man müsse im Auge behalten, dass es auf unserem Erdball noch lange gefährliche Macho-Kulturen geben
+werde. Die westlichen Demokratien müssten sich gegen Angriffe notfalls auch mit kriegerischer Gewalt
+wehren können. Bei einer von Frauen beherrschten Politik sei dies nicht gewährleistet.
+Wie dem auch sei: Am sichersten leben wir, wenn Frauen und Männer gleichberechtigt sind.
+Christian Pfeiffer, Deutschland
+
+Quelle: http://www.zeit.de/2001/16/Machos_Feinde_der_Menschheit
+Infos über Herrn Pfeiffer: http://www.kfn.de/MitarbeiterInnen/WissenschaftlerInnen/Christian_Pfeiffer.htm
+© DIE ZEIT, 16/2001, Von: Ruth Viebrock ‹viebrock@zeit.de›
+An: achiwo@gmx.net / Betreff: FW: Copyright-Anfrage / Datum: Fri, 04. Jan 2008 10:42:20 +0100
+
+Sehr geehrter Herr Wolf,
+vielen Dank für Ihre Anfrage, die ich an den Rechteinhaber und Autor Prof. Pfeiffer weitergeleitet habe.
+Prof. Pfeiffer ist mit einer Neuveröffentlichung seines Artikels ‹Machos, Feinde der Menschheit›, DIE ZEIT
+16/2001, im Bulletin von FIGU und im Internet einverstanden. Es gelten die folgenden Bedingungen:
+– Sie haben nur die Textrechte erworben.
+– Sie sind verpflichtet, Autor, Quelle und Erscheinungsdatum anzugeben.
+Herzliche Grüsse
+Ruth Viebrock, DIE ZEIT, Nachdrucke, Speersort 1, 20095 Hamburg
+
+
+-----
+
+### Der Prophet im eigenen Lande
+#### oder … nirgendwo findet der Prophet so wenig Beachtung wie auf dem eigenen Planeten
+Unsere wunderbare Mutter Erde stöhnt unter der Last der masslosen Vermehrung der Menschenwesen,
+die sich um ihre Brüste streiten. Rücksichtslos wird sie von ihnen ausgesaugt und ihrer natürlichen Ressourcen, Kräfte und Schätze beraubt. Bereits vor Jahrhunderten begann die Bevölkerung dieser Erde in einem
+unverantwortlichen Masse zu wachsen und sich zu mehren, was jeglichem natürlichen und harmonischen
+Wachstum widerspricht. Vom Wahn des wirtschaftlichen Aufschwungs sowie von politischen, ideologischen
+und kultreligiösen Motiven getrieben, wurden der Umwelt- und Naturschutz missachtet und zu einem Absurdum erklärt. Die Achtung und Ehrwürdigkeit sowie der Respekt vor der majestätischen Schönheit und
+Anmut der schöpferischen Natur und ihrer Gesetze und Gebote wurde durch die bodenlose Gier der
+irdischen Menschheit in den Schmutz und Boden getreten. Die Lunge unseres Planeten ist mittlerweile masslos von den Schadstoffen des zivilisierten Wachstums und des vermeintlichen Fortschritts überlastet und
+geschwächt. Die irdische Artenvielfalt wird vom Aussterben bedroht, die Gewässer und deren Lebensformen sind vergiftet sowie die Böden um ihre natürliche Fruchtbarkeit betrogen. Längst ist das Mass der
+Machbarkeit einer harmonischen und natürlichen Nutzung des Planeten erreicht und überschritten. Die
+schöpferische Natur beginnt als Folge mit logischen Konsequenzen und Reaktionen um ihr Überleben zu
+ringen. Sie ist nicht mehr gewillt, weiterhin den menschlichen Ausartungen, dem Raubbau und der Ausbeutung ihrer Schätze durch den Menschen tatenlos und geduldig zuzusehen. Die Auswirkungen sind
+mittlerweile weltweit bekannt und auch der massgebende Anteil des menschlichen Verschuldens als Folge
+der Überbevölkerung in weiten Kreisen ein offenes, jedoch kaum erwähntes Geheimnis.
+Bis zu dieser allmählich wachsenden Einsicht war es ein langer und steiniger Weg, der mit Falschreden,
+Heuchelei und Beschönigungen gepflastert wurde. Dennoch wird die Überbevölkerung dieses Planeten als
+die eigentliche Mutter und Ursache allen Übels selbst in wissenschaftlichen und politischen Kreisen noch
+immer dümmlichst bestritten. Hierin widerspiegelt sich die sehr profitorientierte, renommiersüchtige und
+bequeme Haltung sowie die selbstsüchtige und egoistische Gesinnung der Grosszahl der Erdenmenschen.
+Die Vernunft, der Verstand und ein weises Handeln wurden längst zugunsten des schnöden Mammons geschlachtet.
+
+Seit den 1950er Jahren hat ‹Billy› Eduard Albert Meier immer wieder mit Rundschreiben an Regierungen
+und namhafte Zeitungen und Radiostationen erfolglos vor der fortschreitenden Zerstörung des Planeten
+gewarnt. Zahlreiche Politiker und Regierungskreise wurden also von ihm auf diese Tatsache hingewiesen
+und in umfassenden Briefen darauf aufmerksam gemacht. Niemals hat er sich davor gescheut, die Überbevölkerung als Ursache aller Übel beim Namen zu nennen. Dies bereits zu einer Zeit, als allein schon
+der Begriff ‹Überbevölkerung› für die irdische Menschheit noch weithin ein Fremdwort war.
+Seit der Publikation von BEAMs ersten diesbezüglichen Schriften sind mittlerweile rund 60 Jahre vergangen. Seine Warnungen und Hinweise wurden jedoch bis heute nicht in gebührendem Masse offiziell
+beachtet, obwohl er seit 1951 bis heute immer wieder weltweit Regierungen und Zeitungen usw. angeschrieben und Beschreibungen des durch die Erdenmenschen herbeigeführten Klimawandels und die
+daraus entstandenen und weiterhin entstehenden Naturkatastrophen klar und unmissverständlich zum
+Ausdruck gebracht hat. Vielmehr wurden die Lorbeeren, die Billy für seine unbeschreiblichen und grossen
+Leistungen zum Wohl dieses Planeten zu Recht zustehen würden, von zahlreichen unlauteren Elementen
+in Tausende Stücke gerissen. Aus diesem Grund werden heute alle jene, welche sich endlich offen mit
+diesem Thema befassen, als Helden und Vordenker gefeiert sowie mit Ehrungen und Nobelpreisen überhäuft. Mediengerecht wird der Eindruck erweckt, als seien deren Einsichten, Erkenntnisse und Publikationen das Produkt eigener Überlegungen, wie auch ihr Tun, Handeln und Wirken. Dennoch hüten sich
+namhafte Politiker, Prominente, Wissenschaftler und Nobelpreisträger noch immer davor, des Übels Ursache dieser Welt beim Namen zu nennen: Überbevölkerung.
+
+
+-----
+
+Natürlich ist es durchaus in gebührendem Masse zu würdigen, dass sich einige wenige Politiker/innen und
+Akademiker an dieses Thema wagen, jedoch ihre eigentliche Motivation verbergen. Wahrheitlich wagen
+es nur wenige Akademiker, offen und umfänglich die Wahrheit zu nennen. Es ist zweifellos eine Tatsache,
+dass Billy in seiner prophetischen Mission und Aufgabe nicht nur die sogenannte UFO-Kontroverse ins
+Leben gerufen hat, sondern auch bereits anfangs der 1950er Jahre die ersten warnenden Impulse zum
+Thema Überbevölkerung, Klimawandel und horrende Naturkatastrophen setzte und diesbezügliche
+Publikationen verbreitete. Die folgenden Worte von Channa Eldar aus Peru verdeutlichen jedoch eine
+tragische Tatsache klar und bestimmt: Nirgends findet der Prophet so wenig Beachtung und Anerkennung
+wie auf seinem eigenen Planeten.
+Hans-Georg Lanzendorfer, Schweiz
+
+### Nächtlicher Telephonanruf aus Peru
+Guten Tag, Herr Billy Meier. Wie versprochen, rufe ich Sie nochmals an, damit sie alles mitschreiben
+können, was ich zu sagen habe. Schreiben Sie nun bitte mit und formulieren Sie es nach Ihrem Gutdünken,
+denn meine deutschen Sprachkenntnisse sind nicht perfekt, doch möchte ich, dass Sie das, was ich jetzt
+sage, in einem ihrer Bulletins in guter deutscher Sprache veröffentlichen …
+
+… Gut. Mein Name ist Channa Eldar. Ich bin Journalistin, schreibe unter einem Pseudonym und rufe Sie
+aus Peru an, wo ich für einige Tage im Urlaub bin. Schon seit Jahren verfolge ich alles auf Ihrer Website,
+auch lese ich ihre Schriften und Bücher, die ich von meiner Freundin aus Deutschland erhalte. Was ich zu
+sagen habe ist folgendes: Der Amerikaner Al Gore hat letztes Jahr für seinen Film und seine Bemühungen um den Klimawandel einen Nobelpreis erhalten und wird weitherum geehrt, wie auch diverse andere,
+die Rang und Namen haben. Wohl finde ich es gut, dass sich dieser Mann ebenso um die Sache bemüht,
+wie das auch andere tun, ungerecht finde ich es aber, dass Sie, Herr Billy Meier, nirgendswo öffentlich
+erwähnt werden im Zusammenhang mit der Umweltzerstörung und dem Klimawandel, da Sie doch bereits in den 1950er Jahren auf unserer Welt als erster überhaupt vor der Zerstörung des Klimas durch uns
+Menschen warnten und also schon damals aufzeigten, welch ungeheure Katastrophen durch den Klimawandel hervorgerufen werden. Sie haben schon damals, wie auch in der neueren Zeit und bis heute,
+Prophezeiungen und Voraussagen gegeben, die mit präziser Genauigkeit eingetroffen sind. Sie haben
+weltweit viele massgebende Stellen, Regierungen und Medien gewarnt, doch wurde das nicht beachtet,
+bis heute nicht. Jetzt aber, da Leute mit Rang und Namen an die Öffentlichkeit treten mit dem Problem,
+da wird diesen Gehör geschenkt und sie werden öffentlich geehrt und mit Preisen bedacht, die eigentlich
+Ihnen zustehen würden. Darin sehe ich eine Schande ohnegleichen, denn Sie werden schmählich missachtet, der Sie doch schon seit 50 Jahren immer wieder mit Warnungen an die Welt gelangen und alles
+klarlegen und auch aufzeigen, dass das grundsätzliche Übel bei der verantwortungslos ansteigenden
+Überbevölkerung liegt. Mir, wie sicher auch vielen anderen, ist klar, dass das Grundübel tatsächlich die
+gewaltig angestiegene irdische Bevölkerung ist, durch die sich unlösbare Probleme in mancherlei Hinsicht
+ergeben haben, wie ohne Zweifel in bezug auf die Klimazerstörung, das Verbrechenswesen, die Seuchen,
+vermehrte Kriege und weltumfassender Terrorismus und religiöser Sektierismus, nebst der Gleichgültigkeit
+der Menschen gegeneinander und fehlende zwischenmenschliche Beziehungen usw.
+
+Das, Herr Billy Meier, sind die Dinge, die ich zu sagen habe und die Sie bitte in einem ihrer nächsten
+Bulletins veröffentlichen wollen, denn ich denke, dass es einmal der Notwendigkeit entspricht, diese Tatsachen der Öffentlichkeit zu unterbreiten. Dazu sind wohl nur Sie und der Verein FIGU in der Lage, denn
+die öffentlichen Medien sind zu feige, um die Wahrheit zu nennen, weshalb von Zeitungen und Journalen
+in verschiedenen Ländern schon mehrere meiner Artikel abgelehnt wurden, in denen ich Ihre Arbeit sowie
+Ihre Prophetien und Voraussagen aufgeführt habe.
+
+
+-----
+
+Konnten Sie alles gut mitschreiben? … Gut, dann danke ich Ihnen, dass Sie sich Zeit genommen haben,
+mir zuzuhören und alles mitzuschreiben. Auch danke ich Ihnen dafür, wenn Sie meinem Anliegen entsprechen. Danke, und vielleicht rufe ich Sie wieder einmal an.
+Channa Eldar, Peru
+
+### Bevölkerungswachstum ohne Ende? – Schluss mit dem Tabu!
+Seit mehr als 30 Jahren bemühen sich die Mitglieder der FIGU, der Menschheit und insbesondere den
+Regierenden bewusst zu machen, dass die rasante Bevölkerungszunahme auf der Erde eine ungeheure
+Gefahr darstellt und umgehend gestoppt werden muss, und dass danach eine Reduktion auf ein planetenverträgliches Mass zu erfolgen hat. (Dieses erträgliche Mass wurde damals gemäss unseren Berechnungen
+auf 529 Millionen Menschen festgelegt, weil dadurch sichergestellt werden kann, dass für diese Bevölkerungszahl die Ressourcen im Überfluss vorhanden sind, dass die Regenerationsfähigkeit der Natur erhalten bleibt und der Tier- und Pflanzenwelt grosse Gebiete verbleiben, wo sich diese ungestört entwickeln
+kann.) Wir fühlen uns zu dieser Aufklärung verpflichtet, weil wir erkannt haben, dass sich das Schicksal
+der Menschheit an der Lösung bzw. Nichtlösung dieses grössten aller drängenden Probleme unserer Zeit
+entscheidet. Die Überbevölkerung ist tatsächlich der massgebende Problemfaktor, denn je mehr Menschen
+auf der Erde leben, desto grösser werden alle anderen Probleme, und desto mehr steigt der Bedarf an
+Energieträgern wie Erdöl, Erdgas und Uran, aber auch an Süsswasser, Wohnraum und Nahrung usw. Im
+Gleichmass mit dem Bevölkerungswachstum und der zunehmenden Kaufkraft wachsen Abfälle, Abgase,
+Abwärme und Lärm, und riesige, ehemals fruchtbare Bodenflächen verschwinden unter Asphalt und Beton
+oder versalzen und trocknen aus. Apropos Ressourcen: Es ist doch wohl ein massgeblicher Unterschied,
+ob auf der Erde täglich 7500 Millionen statt 500 Millionen Mittagessen zubereitet werden (mit Holz, Gas
+oder Strom), ob statt 2 Milliarden (= 2000 Millionen) treibstoffverbrauchende und abgasproduzierende
+Fahrzeuge, Flugzeuge und Heizungen ‹nur› deren 50 Millionen im Einsatz sind, oder ob 2000 Millionen
+oder lediglich ein paar Dutzend Millionen Menschen in Trockengebieten Wasser verbrauchen. Die Sachlage ist derart leicht verständlich, dass man sich fragen muss, warum das Thema nicht täglich in den
+Medien prominent behandelt wird, und man kommt nicht um den Eindruck herum, dass das Überbevölkerungsproblem verdrängt wird. Diese Schlussfolgerung ist naheliegend, und tatsächlich kommt dieses
+Ignorieren in Anbetracht der Wichtigkeit dieses Problems und der Dringlichkeit einer entsprechenden
+Lösung schlicht einer sträflichen Vernachlässigung der Informationspflicht gleich.
+
+Der Umgang mit dem Thema Überbevölkerung kann verglichen werden mit einem Ozeandampfer, der
+mit voller Kraft geradewegs auf eine Gruppe Eisberge zusteuert, derweil
+– die Besatzung mit den Passagieren darüber streitet, dass der Preis der Fahrkarten sinken und die Löhne
+der Angestellten steigen sollen;
+– kritisiert wird, dass der Motor eine falsche Farbe aufweist oder dass zuwenig Treibstoff getankt wurde
+und vor dem Erreichen der nächsten Tankstelle ausgehen werde, worauf die Beschwichtigung folgt,
+dass sich das Problem mit etwas Gottvertrauen von selbst lösen wird, denn sicher werde unterwegs
+jemand eine neue Energiequelle finden oder entwickeln;
+– in der Steuerkabine diskutiert wird, ob die Mannschaft paritätisch aus Vertretern verschiedener Länder
+zusammengesetzt werden muss, wobei eine Fraktion darauf beharrt, dass sie bei sämtlichen Entscheiden über ein Vetorecht verfügen muss;
+– die Journalisten an Bord Berichte über die Liebschaften einzelner Passagiere verfassen, wobei einige
+unter ihnen sich immerhin besorgt darüber zeigen, dass die Zahl der Eisberge in Sichtweite ungewöhnlich ansteigt.
+Und derweil fährt der Dampfer mit unverminderter Geschwindigkeit geradeaus.
+
+
+-----
+
+In etwa entspricht diese absurde Situation dem Zustand der Länder und Regierungen unserer Erde, aber
+auch jenem des Grossteils der Massenmedien.
+Beschäftigt man sich etwas genauer mit dieser Misere, dann taucht unweigerlich die Frage auf, warum
+jene Kreise, Organisationen und Parteien, die sich den Schutz der Umwelt auf die Fahne geschrieben
+haben und lautstark und mit teilweise theatralischen Aktionen für Nachhaltigkeit im Umgang mit den
+natürlichen Ressourcen plädieren und die vehement nach Massnahmen gegen den Klimawandel und
+dessen Auswirkungen schreien, sich wie der Teufel vor dem Weihwasser scheuen, das Grundübel aller
+grossen Probleme unserer Zeit endlich offen anzusprechen! Im grossen Massstab wird Geld gesammelt
+für den Schutz von Delphinen und Haien beim industriellen Fischfang, für den Schutz von Mooren, Magerwiesen, Regenwäldern und Vogelarten, für den Bau von Trinkwasser-Brunnen in Afrika, aber auch für
+Lebensmittelhilfe bei regelmässig auftretenden Dürren sowie für das Aufpäppeln von streunenden Hunden
+und Katzen, usw. usf. Und werden dann all die vielen Prospekte und Sammelaufrufe, die in unseren Briefkästen landen, genauer unter die Lupe genommen, stellt man fest, dass darin kaum jemals auch nur ein
+kleiner Hinweis zu finden ist, dass die meisten dieser Probleme überhaupt nur deshalb derart akut werden
+konnten und sich diesbezüglich Gegenmassnahmen aufdrängen, weil auf unserem Planeten seit 300
+Jahren die menschliche Populationszahl richtiggehend explodiert ist und noch immer unvermindert rasant
+weiterwächst. Und tritt der seltene Fall ein, dass die Überbevölkerung thematisiert wird, fehlt praktisch
+immer der Hinweis auf praktikable und konkrete Massnahmen gegen diese ungeheure Bedrohung unserer
+Zivilisation!
+Der Mensch hat leider die Tendenz, vor dem realen Elend der Mitmenschen, das in den nicht selten gestellten, manipulierten und häppchenweise servierten TV-Bildern nur ansatzweise aufblitzt, die ‹inneren
+Augen› zu verschliessen, und er zieht es häufig vor, den Kopf in den Sand zu stecken, in der Hoffnung,
+dass sich alle Probleme von selbst lösen werden. Vergeblich! Was im Privatbereich nämlich vorkommen
+kann, dass nach dem Schlaf ein Kopfschmerz verschwunden oder ein Ärger abgeflaut ist, funktioniert
+leider auf globaler Ebene nicht im gleichen Rahmen. Wenn eine Erdölquelle versiegt ist, ist es unrealistisch
+zu erwarten, dass diese nach einem Jahr wieder gefüllt ist, und die offenbar zunehmende Zahl von durch
+schwere Unwetter ausgelösten Katastrophen wird nicht kleiner, nur weil sich die in potentiellen Überschwemmungsgebieten lebenden Menschen dies so wünschen oder erhoffen.
+Die Weigerung vieler Menschen, auf das Erkennen von Missständen ein entsprechendes verantwortliches
+Handeln folgen zu lassen, führt dazu, dass entweder mit Scheuklappen durchs Leben gerast oder in die
+Scheinwelt der Wohnzimmer-Altäre (= Fernsehgeräte) eingetaucht wird, wo sich die Menschen durch die
+altbekannte ‹Brot und Spiele›-Beruhigungsmethode einlullen lassen und vielfach entweder in körperliche
+und bewusstseinsmässige Trägheit oder zerstörende Aggressivität verfallen. Dies ist nicht nur in den industrialisierten Gesellschaften der Fall, sondern gleichermassen in grossen Gebieten der sogenannten
+Schwellenländer, wo die Welt vielfach durch die ‹Brille› realitätsferner TV-Serien wahrgenommen wird;
+verbunden mit entsprechender Frustration, wenn die Diskrepanz zwischen der ‹Traumwelt› und dem realen
+Alltag ins Bewusstsein dringt.
+Einer der Hauptgründe dafür, dass das heisse Eisen «Stopp dem Bevölkerungswachstum» in allen Ländern –
+vielleicht mit Ausnahme von China sowie Indien vor ein paar Jahrzehnten (jedoch mit unbefriedigenden
+Resultaten) – nicht angefasst wird, liegt darin, dass effektive und konkrete Massnahmen mit einem Tabuthema eng verknüpft sind, nämlich mit der Sexualität und, damit verbunden, dem berechtigten Schutz der
+menschlichen Intimsphäre. Jede Massnahme gegen die Überbevölkerung tangiert nämlich zwangsläufig
+den Gebrauch der primären Geschlechtsteile, und kaum jemand ist willig, sich bei seinen sexuellen Aktivitäten von irgendwem, geschweige denn vom Staat, dreinreden zu lassen! Und so läuft die Produktion von
+menschlichen Nachkommen in sehr vielen Ländern noch immer auf Hochtouren. Natur und Umwelt gehen
+zur Sau, während der Grossteil der Personen an den Schaltstellen der Macht (in Politik, Wirtschaft und
+Medien), die sogenannten Eliten, noch Öl ins Feuer der Unvernunft giessen mit ihrem gebetsmühlenartigen
+Ruf nach «Wachstum, Wachstum, Wachstum». Nichts gegen Wachstum, wenn es um Lebensqualität geht,
+
+
+-----
+
+oder um innere Werte wie Liebe, Frieden, Harmonie und Weisheit. Und nichts gegen Wachstum in dem
+Sinne, dass Ernten besser ausfallen, weil die Pflanzen robuster gegen Schädlinge sind (und wenn dabei
+erst noch Geschmack und Mineraliengehalt steigen würden). Nur, in der Regel ist nicht diese Art Wachstum
+gemeint, sondern das stetige Ansteigen der Börsenkurse (Stichwort Quartalsergebnisse mit ihrer damit
+verbundenen kurzfristigen Sichtweise), die Mehrung von Reichtum sowie das Anwachsen der Konsumentenschar (Märkte), damit letztere immer mehr zweifelhafte und eigentlich unnütze Produkte kauft, was
+wiederum den Verbrauch kostbarer Ressourcen unnützerweise noch mehr beschleunigt. Das Resultat:
+Immer günstigere Produkte in immer schlechterer Qualität und mit geringerer Lebensdauer. Gewinnmaximierung, hohe Boni und überrissene Lohnzahlungen, die in keinem Verhältnis zur Leistung stehen,
+Lottogewinne, Zweit- und Drittwohnungen, Luxus, ein Leben in Saus und Braus: Reines materielles Wachstum, wohin man schaut, selbst in den sogenannten Drittweltländern, wo eine kleine Bevölkerungsschicht
+wie die Maden im Speck auf Kosten des armen Volkes parasitiert. Möglichst hoher Ertrag mit möglichst
+wenig Einsatz.
+Es ist eine Schande, dass die Regierungen der Länder, aber auch die politischen Gremien allgemein sowie
+die Wirtschaft ‹das Zeichen an der Wand›, nämlich das Überbevölkerungsproblem, nicht erkennen oder
+nicht erkennen wollen und deshalb die damit verbundene Bedrohung unserer Zukunft nicht endlich an der
+Wurzel anpacken. Und gleichermassen schändlich handelt jener Teil der Wählerschaft, der diese unfähigen Politiker in ihre Ämter wählt. Die wenigen Ausnahmen von der Regel sind wirklich Ausnahmen und
+müssen beinahe mit der Lupe gesucht werden. Und dass die allermeisten sogenannten Umweltschutzorganisationen, aber auch die Hauptreligionen und deren Sekten ebenso davor zurückscheuen, die Überbevölkerung als Hauptproblem und Multiplikator für die anderen grossen Probleme wie Hunger, Klimaveränderung, Migration, Kriege, Seuchen, Kriminalität, usw. usf. anzuerkennen und klar und deutlich zu
+benennen, schlägt dem Fass den Boden heraus.
+
+Wir FIGU-Mitglieder scheuen uns jedoch nicht, das Tabuthema ‹Bevölkerungsreduktion› aufzugreifen und
+konkrete Gegenmassnahmen der ganzen Menschheit solange unter die Nase zu reiben und ihr um die
+Ohren zu schlagen, bis sämtliche Regierungen aufgewacht sind und konkret zu handeln begonnen haben
+und bis die Bevölkerungszahl auf ein planetenverträgliches Mass gesunken ist. Und dieses verträgliche
+Mass für den Planeten Erde bewegt sich irgendwo zwischen einer halben und einer ganzen Milliarde
+Menschen, weil die optimale Bevölkerungszahl abhängig ist vom Klima, den verfügbaren Ressourcen und
+der fruchtbaren Bodenfläche usw., wobei dies zu gegebener Zeit definitiv ermittelt werden muss. Wir verfügen über grosse Ausdauer und sind uns bewusst, dass dies eine Aufgabe ist, die uns über Jahrhunderte
+hinweg fordern wird.
+Doch bevor ich nun die konkreten Massnahmen erläutere, noch eine wichtige Vorbemerkung: Der Kampf
+gegen die Überbevölkerung ist nur eines unter vielen wichtigen Themen, die von der FIGU bzw. deren Mitgliedern bearbeitet und den Menschen unterbreitet werden. Im Zentrum unserer Tätigkeit steht einerseits
+die Erfüllung der eigenen Selbstverantwortung im Zusammenhang mit der Erarbeitung und Entwicklung
+eigener innerer Werte und Erkenntnisse (Tugenden, Charakter, Streben nach Wahrheit usw.), und andererseits die Verbreitung von Schriften und Informationen (die sogenannte ‹Geisteslehre›), die es dem
+Menschen ermöglichen, den durch die Religionen verschleierten und verfälschten wahren Sinn des Lebens
+zu erkennen und sich von Glaubensannahmen zu lösen. Obwohl wir mit Religionen und Sekten nichts am
+Hut haben, respektieren wir jedoch das Recht jedes Menschen, nach seinem eigenen Glauben selig zu
+werden, zumindest dann, wenn dadurch keine Mitmenschen geharmt werden und beispielsweise nicht
+irregeleitete Selbstmordattentäter versuchen, Andersgläubige ins Jenseits zu befördern, weil sie selbst im
+idiotischen Glaubenswahn leben, dass im Himmel massenweise Jungfrauen auf sie warten. (Dass das Vorhandensein von Jungfrauen im Himmel, die ja dann bald keine Jungfrauen mehr sein werden, allerhand
+Erklärungsnotstände nach sich ziehen würde, sei nur am Rande erwähnt und ist nicht Gegenstand dieses
+Artikels, und dies fällt in die gleiche Kategorie wie die Vorstellung von ewigem Harfenspiel auf den himm
+
+-----
+
+lischen Wolken, oder jener, dass Milliarden verstorbener Seelen zu Füssen des Herrgottes sitzen werden.)
+Für uns selbst nehmen wir in Anspruch, die Gefilde von Glauben, Illusion und Wahn zu vermeiden und
+stets nach der Wahrheit hinter allen Dingen zu forschen. Ausserdem lassen wir die Menschen teilhaben
+an den wertvollen Informationen, die uns von hochentwickelten Menschen anderer Welten (Ausserirdische)
+via ihren Schweizer Mittelsmann ‹Billy› Eduard A. Meier übermittelt werden und die uns ungemein helfen,
+unsere Stellung im Universum zu verstehen, unnötige Fehler zu vermeiden und irgendwann Frieden auf
+Erden erreichen zu können. Und nicht zuletzt und ganz besonders ist es äusserst wichtig, darauf hinzuweisen, dass es eine Tatsache ist, dass der Mensch nicht nur einmal lebt, um dann für alle Ewigkeit in
+einen Himmel oder eine Hölle zu entschwinden. Die Erkenntnis, dass wir alle während Millionen Jahren
+immer wieder in einen neuen Körper inkarnieren (Siehe Billy Meiers Buch «Wiedergeburt, Leben, Sterben, Tod und Trauer», ISBN 3-909154-31-X, erhältlich unter http://shop.figu.org), und zwar auf jenem
+Planeten, auf dem wir gestorben sind, ist äusserst wichtig für das Verständnis der Gerechtigkeit der von
+uns vorgeschlagenen und nachfolgend erklärten Massnahmen. Wird nämlich erkannt, dass wir Menschen
+nach unserem Tod mit einer neuen Persönlichkeit in einen neuen Körper inkarnieren und dann jene Welt
+und jene Zustände vorfinden werden, die wir unseren Kindern und Kindeskindern überlassen haben, dann
+sieht die Dringlichkeit von Massnahmen wohl unverhofft etwas anders aus. Und die Tatsache, dass das
+Geschlecht des Menschen über verschiedene Inkarnationen hinweg nicht immer gleich bleibt, sondern
+dass ein früherer Mann auch mal als weibliches Wesen zur Welt kommen wird und umgekehrt, lässt möglicherweise den einen oder andern nachdenklich stimmen, wenn es um das Zusammenleben von Mann
+und Frau und die damit verbundenen Erwartungen, Denkhaltungen und (Miss-)Handlungen geht. Wer
+sich interessiert, kann Informationen über uns und über die vorgenannten Themen in einer grossen Zahl
+von Schriften und im Internet nachlesen (www.figu.org).
+Anfangs der 90er Jahre des 20. Jahrhunderts schlug Billy Meier in der FIGU-Broschüre Nr. 1 zum Thema
+Überbevölkerung radikale, jedoch nichtsdestotrotz humane Massnahmen vor, um der grassierenden Überbevölkerung und den daraus entstandenen und noch entstehenden üblen Folgen möglichst rasch Herr zu
+werden. Diese Massnahmen, deren Anwendung vor Zehntausenden Jahren auf anderen Welten die
+dortigen Überbevölkerungsprobleme erfolgreich und endgültig lösen liess, führen auf die alten Propheten
+Nokodemion und Henok zurück. Billy Meiers radikale Vorschläge mögen in ihrer Kompaktheit wohl viele
+Menschen vor den Kopf gestossen und bei dem einen oder andern einen ‹denkerischen Systemabsturz›
+samt ‹innerem Schreikrampf› ausgelöst haben, was jedoch nur bei jenen Menschen der Fall sein kann,
+deren Vernunft und Verantwortungsbewusstsein noch ungenügend ausgebildet sind, oder bei jenen, die
+keine Kenntnisse haben von den tiefgreifenden, verborgenen Werten. Um diese Wissenslücke zu füllen ist
+es notwendig, dass das System erklärt bzw. die damit verbundenen vielen Massnahmen eingehend erläutert werden. Dabei ist zu bedenken, dass uns die Zeit davonläuft und dass während dem Lesen dieses
+Artikels bis zu dieser Textstelle bereits wieder Tausende von Kindern geboren wurden. Man bedenke:
+Lebten Ende 1975 exakt 3 889 992 910 Menschen auf unserem Planeten, hat sich diese Zahl inzwischen
+verdoppelt (Stand 11. Dezember 2007 = 7 Milliarden, 684 Millionen, 227 Tausend und 416 Menschen).
+Diese uns von den ausserirdischen Wissenschaftlern vom Planeten Erra gelieferten Zahlen zeigen auf, dass
+die Schätzungen der irdischen ‹Bevölkerungsexperten›, die gegenwärtig von rund 6,5 Mia. Menschen
+ausgehen, um gut eine Milliarde zu tief ausfallen und dass die Überbevölkerungskatastrophe noch viel
+massiver ist, als offiziell angenommen wird. Und wenn gemäss einer Studie der UNO, die im Frühjahr
+2005 veröffentlicht wurde, im Jahr 2050 mit 9,1 Milliarden Menschen zu rechnen sei, dann wird es
+offensichtlich, dass der Zeithorizont bis zum Erreichen dieser Zahl beträchtlich gekürzt werden muss.
+Wenn ich nun nachstehend Billys Vorschläge erweiternd erläutere, ist es wichtig zu wissen und zu bedenken, dass seine vorgeschlagenen Massnahmen darauf ausgelegt sind, dass sie weltweit gleichzeitig
+eingeführt werden und für alle Länder gleichermassen gelten müssen (allenfalls mit Ausnahme von primitiv
+lebenden Naturvölkern – sofern es diese noch gibt –, die autark in weit abgelegenen Gebieten leben).
+Nebst dieser weltweiten Einführung ist es ein absolut zwingendes Erfordernis, dass die Oberen der Länder –
+
+
+-----
+
+die Politiker, Wissenschaftler, Adeligen, Milliardäre und Angehörigen des Klerus usw. – keinerlei Sonderrechte geniessen dürfen, sondern ausnahmslos allen anderen Menschen rechtlich absolut gleichgestellt
+sind. Und was natürlich ebenfalls völlig selbstverständlich ist: Nebst den von Billy geforderten zentralen
+Massnahmen ist noch eine Vielzahl weiterer notwendig, um all die grossen Probleme und Übel unserer
+Zeit lösen zu können. Doch dazu später mehr.
+
+#### Erklärungen zum System
+Oberstes Ziel aller Massnahmen ist es, dass das Bevölkerungswachstum sofort und effektiv gebremst wird
+und umgehend zum Stillstand kommt, denn jedes weitere Zuwarten verschlimmert die Situation für riesige
+Menschenmassen und verlängert das Wirksamwerden der Massnahmen, die so oder so irgendwann
+einmal ergriffen werden müssen, wenn nicht die Hände weiterhin in den Schoss gelegt und alle Auswirkungen fatalistisch hingenommen werden. Die durch die Überbevölkerung ausgelösten Wirkungen sind
+bereits seit langem im Gange und werden sich noch verstärken, denn gemäss dem Gesetz von Ursache
+und Wirkung folgt auf stetigen Raubbau früher oder später zwingend Siechtum und Tod. (Als Vergleich
+diene die Tatsache, dass ein Mensch, der in einem luftdicht abgedichteten Raum, der mit Lebensmitteln
+und Wasser im Überfluss bestückt ist, eingesperrt wurde, früher oder später an Sauerstoffmangel sterben
+wird.) Nach einer Übergangsphase und dem Verharren der Bevölkerungszahl auf hohem Niveau, ausgelöst durch das Älterwerden der jungen Generationen und durch die gestiegene Lebenserwartung in
+vielen Ländern, soll dann die Zahl der Geburten unter das Niveau der Todesfälle sinken, wodurch die
+Schrumpfung der Bevölkerungszahl beginnt. Die Zeugung von Nachkommen wird an bestimmte und
+zwingend zu erfüllende Bedingungen geknüpft. Ein gestaffeltes System mit siebenjährigen Phasen von
+Zeugungserlaubnis und Geburtenstopp sorgt für einen relativ raschen Bremseffekt, wobei wichtigen Faktoren wie Generationenerhalt und Aufrechterhaltung von Wirtschaftszweigen und Schulsystemen Rechnung
+getragen wird. Durch eine weltweite Bildungsoffensive wächst in allen Bevölkerungsschichten aller Länder
+einerseits die Einsicht für die Notwendigkeit der Massnahmen, und andererseits die Kraft für das Durchstehen der mehrhundertjährigen Übergangsphase in eine friedliche Zukunft.
+
+#### Die Massnahmen
+Wie in der Einleitung erwähnt, beginnen wirksame Massnahmen gegen die Überbevölkerung nicht bei
+den Symptomen, sondern ganz ursächlich, nämlich in der menschlichen Intimsphäre, beim Geschlechtsverkehr zwischen Mann und Frau. Da die Sexualität im menschlichen Leben einer Natürlichkeit entspricht,
+hat niemand das Recht, einen anderen Menschen in deren Ausübung einzuschränken, so wie dies auch
+nicht bezüglich Essenseinnahme oder Bewegungsdrang usw. geschehen darf. Dieses Nichteinmischen gilt
+auch in bezug auf die Ausübung der geschlechtlichen Selbstbefriedigung und hinsichtlich jener Menschen,
+die sich zum gleichen Geschlecht hingezogen fühlen. Eine Einschränkung bezüglich des Auslebens der
+Sexualität hat jedoch dort zu erfolgen, wo der freie Willensentscheid eines anderen Menschen eingeschränkt
+wird, wenn die Gesundheit und Freiheit der Mitmenschen direkt oder indirekt bedroht ist und wenn die
+gesunde psychische Entwicklung der Kinder tangiert wird. Im Zusammenhang mit der Einführung von
+Bevölkerungsstopp-Massnahmen bedeutet dies, dass es den Menschen nach wie vor freisteht, Freundschaften und Bekanntschaften zu pflegen, die sexuelle Handlungen einschliessen, sofern diese Beziehungen von den involvierten Partnern freiwillig eingegangen werden und wenn daraus keine unerlaubten
+Schwangerschaften entstehen.
+Hat sich nun ein Paar (ein Mann und eine Frau) in Liebe zueinander gefunden (ob auf Anhieb oder nach
+gescheiterten Versuchen, ist nicht relevant) und haben beide den Wunsch nach einem eigenen Kind, dann
+haben sie sich in das folgende Prozedere einzufügen: Sie richten ein Gesuch an die Behörden und lassen
+ihr Bündnis staatlich registrieren. Dabei ist es erforderlich, dass beide Eheleute in ihrem Entscheid absolut
+frei sind und unbeeinflusst von Drittpersonen, irgendwelchen externen Traditionen und (Re-)Pressionen.
+Das Mindestalter für die Einreichung des Registrierungsgesuchs beträgt 25 Jahre für die Frau und 30 Jahre
+
+
+-----
+
+für den Mann. (Massgebend ist das Jahr, in dem man geboren wurde. Für eine Frau, die am 31. Dezember 2000 zur Welt kam, gilt der 1. Januar 2025 als frühester möglicher Termin zur Einreichung eines
+Registrierungsgesuches. Wenn sie einen Tag später geboren wurde, am 1. Januar 2001, gilt als frühester
+Termin der 1. Januar 2026.) Der Altersunterschied zwischen Mann und Frau ergibt sich aus der Tatsache,
+dass ihr Reifeprozess in psychischer Hinsicht unterschiedlich rasch verläuft. (Es ist interessant festzustellen,
+dass sich die Menschen in der Schweiz bei der Heirat inzwischen durchschnittlich in diesem Altersbereich
+bewegen.) Ausserdem sind die Altersgrenzen bewusst auf dieser Höhe angesetzt, damit die Menschen
+genügend Zeit haben, um einen oder mehrere Berufe zu erlernen, um sich klar zu werden über die Richtung ihres weiteren Lebensweges und um allgemein den Prozess des Erwachsenwerdens abzuschliessen.
+Zudem haben so die beiden Partner mehrere Jahre Zeit, um erwerbstätig zu sein und genügend Geld
+anzusparen, damit für eine zu gründende Familie gute materielle Startbedingungen gegeben sind. Ob
+dieser Bund dann auch noch kirchlich-kultisch bestätigt werden will, ist dem freien Ermessen der beiden
+Partner überlassen, wobei aber sichergestellt sein muss, dass auch hier keinerlei Zwang oder Bedrängnis
+ausgeübt wird. In den auf die Heirat folgenden drei Jahren hat das Ehepaar die Pflicht, sich intensiv der
+Entwicklung seiner Partnerschaft zu widmen, sich auf die anspruchsvolle Rolle als Eltern vorzubereiten und
+sich ein Zuhause aufzubauen (= gemeinsame Wohnung), alles Erfordernisse, um dem geplanten Kind die
+höchstmögliche Chance einzuräumen, in materieller Sicherheit und in liebevoller Umgebung aufwachsen
+zu können. Nach Ablauf dieser drei Jahre erreichen die beiden Partner das sogenannte Nachkommenszeugungsalter (weiblich = 28 Jahre, männlich = 33 Jahre) und haben das Recht, an den Staat ein Gesuch
+um Bewilligung zur Zeugung eines Kindes einzureichen. Dabei haben sie die nachfolgend erläuterten
+Nachkommenszeugungs-Voraussetzungen zu erfüllen:
+– Die beiden Ehepartner haben die Zeit genutzt und sind zur gegenseitigen Erkenntnis gelangt, dass sie
+wirklich zueinander passen, dass sie sich lieben und ihr weiteres Leben gemeinsam führen wollen.
+– Beide verfügen über einen guten Leumund, was beispielsweise heisst, arbeitsam zu sein, keine Schuldenwirtschaft und keine Hurerei zu betreiben, keine kriminellen Handlungen zu begehen und auch keinem
+Parasitentum (= den Mitmenschen oder dem Staat auf der Tasche liegen) zu frönen.
+– Das Ehepaar beweist seine Selbständigkeit dadurch, dass es sich spätestens bei der Heirat von den
+beiden Elternhäusern loslöst, was heisst, dass das Ehepaar einen eigenen Hausstand bzw. Haushalt
+gründet und unter einem Dach zusammenlebt. Die Eheleute müssen lernen, alle Entscheidungen selbständig bzw. gemeinsam zu fällen, und sie sind aufgefordert, jegliche Einmischung von seiten der Verwandten inkl. Eltern zurückzuweisen. Diese Selbständigkeit und Abgelöstheit vom Elternhaus ist eine
+Grundvoraussetzung, dass sich eine echte, gesunde und langlebige Ehe entwickeln kann. Selbstverständlich bedeutet dies jedoch nicht, dass Kontakte zu den Eltern, Grosseltern und Geschwistern usw.
+nicht gepflegt werden oder dass keine Ratschläge eingeholt werden dürfen.
+
+Die allgemein anerkannte Tatsache, dass die Erfahrungen der ersten Lebensjahre für einen Menschen
+prägend sind und Unterlassungen bzw. Fehlbehandlungen in späteren Jahren kaum mehr oder nur noch
+schwer korrigiert werden können, mit schlimmen Auswirkungen auf Kinder und Kindeskinder, macht es
+dem verantwortungsbewussten Menschen zur Pflicht, sich vor dem Zeugen eines Kindes auf die kommende
+anspruchsvolle Aufgabe gut vorzubereiten. Dies bedeutet unter anderem, dass sich die angehenden Eltern
+noch vor der Zeugung intensiv mit den Grundlagen der Kindererziehung befassen müssen, was auch bedeutet, sich in Eigenerziehung zu üben. Dies kann z.B. bedeuten, dass eine Neigung zum Jähzorn bearbeitet wird, oder dass Wehleidigkeit bekämpft wird, usw. Ausserdem muss zwischen den angehenden
+Eltern zumindest im Ansatz echte Liebe bestehen, weil diese eine hohe Wahrscheinlichkeit schafft, dass
+die Familie Bestand haben und dem zukünftigen neuen Erdenmenschen Geborgenheit und Sicherheit
+bieten wird.
+
+Ein weiterer wichtiger Aspekt der Kinder-Erziehungsfähigkeit besteht darin, dass beide Partner über eine
+
+
+-----
+
+minimale Schulbildung von mindestens sechs Jahren verfügen und mindestens einer der beiden Partner
+gut lesen und schreiben kann. Beide Partner müssen die Hauptsprache jenes Landes beherrschen, in dem
+sie wohnen oder wohnen werden. Dies ist absolut erforderlich zur guten Integration sowie für das Verständnis der kulturellen, gesellschaftspolitischen und sozialen Gegebenheiten des Wohnsitz- bzw. Heimatlandes. Mit Ausnahme der weiter oben erwähnten Urvölker darf es heutzutage nicht mehr erlaubt sein,
+dass Analphabeten Kinder zeugen, was – nebenbei gesagt – in vielen Ländern das Los der Frauen markant
+zum Positiven verändern wird!
+Da jeder Mensch ein schöpferisches Geburtsrecht auf Gesundheit an Körper, Psyche und Bewusstsein besitzt, bedeutet dies, dass das Kind Anrecht hat auf Eltern, die vor und nach der Zeugung alles vermeiden,
+was den heranwachsenden Menschen im Mutterleib und danach schädigen könnte. Die Erfüllung dieses
+grundlegenden Geburtsrechts bedeutet folgerichtig, dass ein Mensch im fortpflanzungsfähigen Alter kein
+uneingeschränktes Recht auf eigene Kinder hat, und zwar unabhängig davon, ob eine Überbevölkerung
+herrscht oder nicht. Daraus folgt, dass zur Nachkommenszeugung gewisse konkrete Bedingungen erfüllt
+werden müssen, wovon nachstehend die sechs wichtigsten Voraussetzungen aufgeführt sind:
+1) Nachweis einer hohen Wahrscheinlichkeit hinsichtlich Sicherstellung von Ernährung, Finanzen, Wohnung und Arbeit usw., damit die Familie nicht darben wird, weil sich ein Elternteil dem Kind zumindest
+in den ersten Jahren vollzeitig widmen muss (wozu in erster Linie aus biologisch-psychologischen
+Gründen die Mutter geeignet ist).
+2) Nachweis beider Partner, dass sie weder an einer psychischen Krankheit (z.B. Depression und/oder
+Manie = sogenannt bipolare Störung), einer sogenannten ‹Geisteskrankheit› (Bewusstseinskrankheit
+z.B. Schizophrenie) oder gar an einer degenerativen Krankheit (z.B. beginnende Demenz) leiden.
+3) Nachweis, dass beide Partner bezüglich Intellekt und Bewusstsein usw. nicht derart eingeschränkt sind,
+dass sie nur mit erheblicher Hilfe von Mitmenschen in der Lage sind, ein selbständiges Leben zu führen
+(was leider unter anderem auf jene vielen Menschen zutrifft, die unter dem Begriff ‹geistige Behinderung› (resp. Bewusstseinsbehinderung) ihr Schicksal zu tragen haben).
+4) Nachweis, dass kein Partner an einer Erbkrankheit leidet, die an das Kind vererbt werden kann, wie
+z.B. Hämophilie (Bluterkrankheit), Zystische Fibrose, Muskeldystrophie, usw. Zu diesem Zwecke ist die
+medizinische und gentechnologische Forschung stetig zu fördern, einerseits um dadurch immer bessere
+und verfeinerte Diagnosen stellen zu können, und andererseits um immer bessere Heilmittel zu entwickeln sowie Methoden, um schadhafte/kranke Gene unwirksam zu machen oder zu korrigieren.
+5) Nachweis, dass innerhalb der letzten drei (besser sieben) Jahre keine den Fötus schädigende Sucht
+vorhanden war, was in den drei Jahren nach der Heirat durch regelmässige Blutproben nachgeprüft
+werden muss. Zu diesen Suchtmitteln gehören Alkohol, Heroin, Marihuana und Synthetikdrogen, aber
+auch Nikotin, gewisse Medikamente sowie Anabolika und Dopingmittel. Die Eheleute müssen sich
+bewusst sein, dass Mann und Frau vor der Zeugung, und die Frau auch während der Schwangerschaft,
+auf Alkoholgenuss vollständig verzichten müssen, weil Alkohol nachweislich die Erbsubstanz und den
+Embryo bzw. Fötus mehr oder minder schädigt.
+6) Nachweis, dass die Ehepartner keinen extremistischen oder staatsfeindlichen Gruppen angehören,
+denn Angehörige solcher Gruppen sind von ihrem Gedankengut her nicht in der Lage, ihren Kindern
+eine neutrale Erziehung angedeihen zu lassen. Sie sind nicht fähig, den Sinn und die Notwendigkeit
+von Gesetz und Ordnung zu erkennen bzw. anzuerkennen und ihre Kinder zu frei-, neutral- und selbständig-denkenden Menschen und Staatsbürgern heranwachsen zu lassen.
+Dasselbe gilt für Menschen, die Sekten usw. angehören, welche das Leben bzw. den Wert anderer
+Menschen wegen deren Hautfarbe, Glauben, Rasse usw. als niedriger bezeichnen bzw. sich selbst über
+den Rest der Masse erheben (‹auserwählt sein›), sich einen Sonderstatus einräumen und/oder Gewalt
+gegen Mitmenschen propagieren.
+
+Alle diese obgenannten Bedingungen müssen durch staatliche Organe (durch geschulte und charakter
+
+-----
+
+lich einwandfreie Behördenvertreter mit eigener Elternschafts- bzw. Kindererziehungserfahrung) gewissenhaft überprüft werden, und zwar in neutraler Form und ohne Bestechung/Korruption, ohne Vetternwirtschaft
+und ohne Rassendiskriminierung usw., wonach dann bei deren vollständiger Erfüllung die Zeugungserlaubnis bewilligt werden muss. Das Ehepaar erhält dadurch die Erlaubnis, maximal drei Nachkommen
+zu zeugen, wobei diese Erlaubnis an das Bestehen der aktuellen Ehe geknüpft ist. Eine Zahl von maximal
+drei Nachkommen (und/oder Adoptiv- bzw. Pflegekinder) gewährleistet, dass alle Kinder einer Familie
+genügend Zuwendung erhalten, wobei natürlich darauf geachtet werden muss, dass keine Überbetreuung
+und Verwöhnung entsteht. Ausserdem ist es für die psychische Entwicklung von Kindern von Vorteil, wenn
+sie mit Gleichaltrigen aufwachsen können, sei dies in der eigenen Familie oder im näheren Umfeld. Der
+Ansicht, dass nur eine Ein- oder Zweikind-Ehe zu einer Bevölkerungsreduktion führen könne und die
+Gewährung von drei Kindern pro Ehe in Konflikt stehe mit der Erreichung des angestrebten Ziels, muss
+entgegengehalten werden, dass die Zahl von drei Kindern pro Ehe nur in relativ seltenen Fällen ausgenützt
+werden wird, weil viele Menschen nicht mehr als eines oder zwei Kinder haben wollen bzw. weil viele die
+Bedingungen schlichtweg nicht erfüllen. Ausserdem ist es erwünscht, dass Eltern, die über sehr gute Fähigkeiten und Kapazitäten in der Kindererziehung verfügen, mehr als einem Kind die Chance geben können
+sollen, in Liebe und Geborgenheit aufzuwachsen.
+Da auf der Erde bis auf weiteres mit einer gewissen Ehescheidungsrate gerechnet werden muss, trotz der
+obgenannten eingehenden Abklärungen, oder weil Ehepartner nach wie vor auch sterben werden, wird
+es der Fall sein, dass geschiedene bzw. verwitwete Partner eine neue Ehe eingehen wollen, verbunden
+mit einem Kinderwunsch. Deshalb bleibt die Limite von drei Nachkommen nicht auf eine Ehe beschränkt,
+sondern gilt auf eine Frau bezogen. Dabei ist es klar, dass Zwillinge oder gar Drillinge einzeln gerechnet
+werden, weshalb eine Frau bei Drillingen die endgültige Nachkommenszahl erreicht hat und keine
+weiteren Kinder empfangen darf. Und ebenfalls klar ist, dass beim Schliessen einer neuen Ehe eine neue
+dreijährige Probezeit mit sämtlichen damit verbundenen Erfordernissen zu erfüllen ist, bevor eine weitere
+Nachkommenszeugung erfolgen darf.
+Womit ebenfalls gerechnet werden muss – und was immer mehr Ehepaaren Kummer bereitet –, ist die zunehmende Unfruchtbarkeit von Mann und Frau. Man kann tatsächlich davon sprechen, dass die Natur
+begonnen hat, sich auch im menschlichen Fortpflanzungsbereich gegen die Überbevölkerung und die
+damit verbundenen Zerstörungen zu wehren. Natürlich geschieht dies nicht dadurch, dass sich unser
+Planet in personifizierter Form symbolisch am Körper kratzt, weil die Menschenansammlungen (Städte)
+und Industriegebiete sich wie Hautgeschwüre über den Planeten ausbreiten; und ebenso geschieht dies
+nicht durch den Befehl irgendeines Gottes. Diese Gegenwehr ist vielmehr eine natürliche Folge des Gesetzes von Ursache und Wirkung, hauptsächlich ausgelöst durch die zunehmende Vergiftung von Umwelt
+und Nahrung durch Chemikalien, Elektrowellen/Elektrosmog und Radioaktivität, usw.
+
+Selbstverständlich wäre es widersinnig, eine weltweite Geburtenkontrolle einzuführen und gleichzeitig mit
+grossem medizinischem Aufwand und unter grossen psychischen Strapazen Unfruchtbarkeitsprobleme zu
+überwinden versuchen, wie z.B. durch die Zeugung im Reagenzglas. Künstliche Befruchtungen sind zu
+verbieten, und fruchtbarkeitsfördernde Massnahmen haben sich auf natürliche Methoden wie z.B. gesunde Ernährung, Vermeidung von Stress, Senkung der Hodentemperatur und Verminderung der Strahlenbelastung usw. zu beschränken. Paare, bei denen sich keine Schwangerschaft einstellt, haben dies mit
+Fassung zu tragen, denn das Leben ist auch ohne eigene Kinder absolut lebenswert. Ausserdem haben
+unfruchtbare Paare, die über eine Bewilligung zur Nachkommenszeugung verfügen, die Möglichkeit, ein
+fremdes Kind in Pflege zu nehmen bzw. zu adoptieren. Vor allem in der Anfangs- und Übergangszeit der
+Einführung solcher Geburtenstopp-Massnahmen und wegen der damit verbundenen Strafmassnahmen
+(siehe weiter unten) wird es sicher viele Kinder geben, die auf liebevolle Aufnahme durch Zieheltern angewiesen sind. Dass die schändliche Leihmutterschaft, die das Kind zur Ware degradiert, verboten bleiben
+muss, versteht sich von selbst. Bezüglich Adoption und Pflegeplatz gilt es noch zu erwähnen, dass zu
+
+
+-----
+
+adoptierende Kinder wenn immer möglich in ihrem eigenen Land/Kulturkreis verbleiben sollen, wo sie
+von Menschen gleicher Rasse und Mentalität betreut werden.
+Damit kommen wir nun zum bereits erwähnten Geburtenstopp-System. Die Limite von drei Kindern pro
+Frau wird kombiniert mit Phasen von siebenjähriger Dauer, in denen eine Nachkommenszeugung erlaubt
+bzw. nicht erlaubt ist. Abgesehen davon, dass bereits die Bedingungen zur Nachkommenszeugung einen
+grossen Wandel im bisherigen Freiheitsverständnis darstellen, verbunden mit grossen psychologischen
+Problemen und Lernleistungen, können diese 7-Jahres-Zyklen zumindest in der ersten Phase der Einführung nicht gleichzeitig stattfinden, sondern müssen gestaffelt werden, weil die sozialen und wirtschaftlichen Probleme sonst zu gross wären. Würden nämlich weltweit während sieben Jahren keine Kinder
+mehr geboren, dann gingen ganze Wirtschaftszweige ein und viel Know-how verloren (Lehrerberufe, Ausbildungen, Produkte für Kleinkinder, Geburtsabteilungen/Hebammen, usw.). Aus diesem Grund sollte die
+Einführung bzw. Durchführung der Geburtenstopp-Phasen gestaffelt erfolgen. Die in der FIGU-Überbevölkerungsbroschüre Nr. 3 vorgeschlagene Variante, dass die Nachkommenszeugungs-Erlaubnis an
+den ersten Buchstaben des Familiennamens gebunden werden könnte, dürfte mit viel zu grossem administrativem Aufwand und zu grossen Unsicherheiten verbunden sein. Viel einfacher und administrativ
+rationeller zu handhaben wäre die folgende Staffelung bzw. Anwendung:
+Massgebend für die Zeugungserlaubnis ist das Geburtsdatum der Frau. Dabei werden die Frauen in zwei
+Kategorien eingeteilt, nämlich in jene, die an einem ungeraden Tag geboren sind, z.B. am 1., 17. oder
+31. eines Monats, oder an einem geraden Tag, z.B. am 2., 18. oder 30. eines Monats. (Eine kabbalistische Berechnung wäre aber auch möglich, nämlich die Quersumme der Geburtszahl und Reduktion auf
+eine Zahl. Beispiel: 31 = 3 + 1 = 4.) Dieses System bedingt, dass sämtliche Geburten auf dem Planeten
+korrekt registriert und jedem Kind ein genaues Geburtsdatum zugeordnet wird.
+Ab der Einführung der weltweiten Geburtenstopp-Massnahmen wechseln sich nun 7jährige Phasen von
+Zeugungserlaubnis und Zeugungsverbot ab. Beispiel: Per 1. Januar 2015 erhalten jene Ehepaare, in
+denen die Ehefrau über eine gerade Geburtszahl verfügt, während sieben Jahren die Erlaubnis, eines bis
+drei Kinder zu zeugen. Am 31. Dezember 2021 erlischt dieses Recht, wonach nun die Ehefrauen mit einer
+ungeraden Geburtszahl während den nächsten sieben Jahren an der Reihe sind. (Natürlich reduziert sich
+die Nutzungsdauer einer Siebenjahresperiode je nach Heiratsdatum und Datum der Zeugungserlaubnis.)
+Diese Siebenjahreszyklen wiederholen sich so lange, bis die irdische Bevölkerungszahl auf den Zielwert
+gesunken ist. Danach bleiben die Nachkommenszeugungs-Bedingungen in Kraft, wobei aber der Siebenjahreszyklus entfällt.
+Dadurch, dass das System auf der Geburtszahl aufbaut, ist die Gerechtigkeit für alle Menschen gewährleistet, auch wenn die Auswirkungen wegen der Staffelung natürlich verschieden sind. In jedem Fall ist es
+aber einer Frau möglich, spätestens ab dem 35. Altersjahr schwanger zu werden, vorausgesetzt, dass
+Heirat und Zeugungserlaubnis genügend früh erfolgt sind. Kommt es dann zur Geburt eines Kindes, dann
+gilt der Kinderwunsch als erfüllt, sofern der Säugling nicht innerhalb von sechs Monaten nach der Geburt
+eines natürlichen Todes stirbt. (Bei dieser Gelegenheit sei erwähnt, dass es für die Frau von gesundheitlichem Nutzen ist, wenn sie zwischen den Geburten rund drei Jahre Regenerationszeit einhält.) Dadurch,
+dass einem Ehepaar im ‹günstigsten› Fall sieben volle Jahre zur Verfügung stehen, um eines oder mehrere
+Kinder zu zeugen, entfällt viel Stress, der sowohl auf die Empfängnisfähigkeit als auch auf die Lebensqualität einen negativen Einfluss hat.
+Die Einführung der Geburtenstopp-Massnahmen wird verständlicherweise nicht überall eitel Freude auslösen, bedeutet dies doch für sehr viele Menschen, dass sie zeitlebens kinderlos bleiben werden. Die Zahl
+jener, die sich dagegen auflehnen werden, wird gross sein, denn noch lange kann nicht vorausgesetzt
+werden, dass Verantwortungsbewusstsein, Mitgefühl, logisches Denken, Weitsicht, Losgelöstheit von religiössektiererischen Zwängen sowie Friedfertigkeit sich in erheblichem Masse in den Erdenmenschen festgesetzt haben werden. Auch wird die Zahl jener gross sein, die der Meinung sind, aufgrund ihrer gesellschaftlichen oder politischen Position, ihren grossen Vermögenswerten, der adeligen Abstammung oder
+
+
+-----
+
+aufgrund religiösen Auserkorenseins usw. ein Recht auf Ausnahmeregelungen zu haben, und sie werden
+dieses vermeintliche Recht auch in Anspruch zu nehmen versuchen. Dieser abzusehenden Ungerechtigkeit
+muss von Beginn an rigoros ein Riegel geschoben werden. Deshalb muss die Einführung von Geburtenstopp-Massnahmen von entsprechenden harten, aber gerechten Strafbestimmungen begleitet sein, die
+allen Menschen bekanntzugeben und konsequent anzuwenden sind.
+Doch bevor ich zu den Strafmassnahmen komme, möchte ich noch zwei Erkenntnisse und eine Forderung
+zu bedenken geben:
+– Nach der erfolgreichen Einführung der Nachkommenszeugungs-Bestimmungen wird es keine unerwünschten Kinder und keine sogenannten ‹Unfälle› mehr geben.
+– Jedes Kind wird die Gewähr haben, dass es zumindest zu Beginn seines Lebens erwünscht war.
+– Jedes Kind hat das Recht zu wissen, wer sein biologischer Vater ist. Dieses Wissen darf ihm von der
+Mutter nicht vorenthalten werden, und deshalb ist das Erbgut eines jeden Neugeborenen mit jenem
+seiner Eltern zu vergleichen.
+
+#### Lenkungs- bzw. Strafmassnahmen
+Eine Nichteinhaltung der weltweit eingeführten Geburtenstopp-Massnahmen zeigt auf, dass sich die Fehlbaren um das langfristige Wohl von Kindern und Kindeskindern einen Dreck scheren und nach dem
+dummen Spruch leben: «Nach mir die Sintflut.» Solche Menschen beweisen mit ihrer Uneinsichtigkeit,
+dass sie nicht über das notwendige Verantwortungsbewusstsein verfügen, das zur gesunden Erziehung
+von Nachwuchs erforderlich ist.
+Tritt nun der Fall ein, dass eine Frau ohne die notwendige Bewilligung ein Kind gebärt, dann ist ihr dieses
+Kind nach der Geburt wegzunehmen und in die Obhut von Zieheltern bzw. zur Adoption freizugeben.
+Die schuldbare Frau und der Erzeuger des Kindes werden sterilisiert und je nach Situation verpflichtet,
+eine Busse von bis zu 10 Jahreslöhnen zu leisten, wofür sie viele Jahre hart zu arbeiten haben. Das Bussgeld wird einerseits dazu verwendet, die Zieheltern finanziell zu unterstützen bzw. für das illegal gezeugte
+Kind ein Sparkapital anzulegen, und andererseits dient es zur Äufnung eines staatlichen Fonds, aus dem
+Zahlungen geleistet werden, um allgemein Härtefälle im Zusammenhang mit den Geburtenstopp-Massnahmen zu mildern. Selbstverständlich sind solche Verstösse gegen die Massnahmen im Detail zu untersuchen, um Ungerechtigkeiten zu vermeiden. So ist es denn auch die Pflicht jeder Frau, sich sofort und
+frühzeitig bei den Behörden zu melden, wenn sie eine unerlaubte Schwangerschaft feststellt, damit diese
+im Frühstadium abgebrochen werden kann. Sofern sie glaubhaft nachweisen kann, dass Verhütungsmittel
+versagten oder eine Vergewaltigung vorlag (was unverzüglich gemeldet werden muss), entfallen schwerwiegende Massnahmen (allerdings nur beim erstmaligen Verstoss).
+Dass die Frau bezüglich der Geburtenstopp-Massnahmen besonders in die Pflicht genommen wird, liegt
+darin begründet, dass sie schwanger wird und nicht der Mann. Gleichzeitig aber bedeutet dies für die
+Frau, dass es allein und ausschliesslich in ihrem Ermessen und ihrer Entscheidung liegt, ob sie schwanger
+werden will oder nicht, oder ob sie eine Abtreibung vornehmen lassen will oder nicht. Ist keine gesetzliche Volljährigkeit gegeben, dann liegt der Entscheid bei den Erziehungsberechtigten, wobei die Jugendliche angemessen angehört werden muss.
+Bei Vergewaltigung (gleich ob durch Mann oder Frau) und Notzucht (worunter der sexuelle Missbrauch
+von Kindern fällt sowie der Missbrauch von Menschen als Sexsklaven) sind die Schuldbaren zu sterilisieren
+und aus der Gesellschaft auszusondern. Die gleiche Massnahme gilt für Sodomisten (Zoophilie), und zwar
+für jene Männer und Frauen, die zur Befriedigung ihres Geschlechtstriebes Tiere missbrauchen.
+Da eine Zuwiderhandlung gegen die Bestimmungen der Geburtenstopp-Massnahmen mit drakonischen
+Strafen verbunden ist, ist es Pflicht aller Staaten, den Menschen ausreichend zuverlässig wirkende Verhütungsmittel zur Verfügung zu stellen und die Menschen in deren Anwendung korrekt zu schulen. Zur
+Kontrolle der Einhaltung der Massnahmen ist zudem jedes Mädchen und jede Frau im gebärfähigen Alter
+
+
+-----
+
+verpflichtet, sich mindestens alle drei Monate einem Schwangerschaftstest zu unterziehen. Dies gilt auch
+für jene Frauen, die wohl über eine Nachkommenszeugungs-Erlaubnis verfügen, sich aber in jener 7Jahres-Phase befinden, in der für sie eine Schwangerschaft nicht erlaubt ist. Wenn ein Schwangerschaftstest positiv ausfällt, ist entweder unverzüglich eine Abtreibung vorzunehmen, oder wie erwähnt, das Kind
+in fremde Obhut zu geben. Im Rahmen von Massnahmen gegen die Überbevölkerung stellt eine Abtreibung einen Notwehrakt dar und gilt nicht als Mord, was gegenteilig dann der Fall wäre, wenn z.B. ein
+Fötus abgetrieben wird, weil er ein unerwünschtes (= in der Regel weibliches!) Geschlecht aufweist.
+
+#### Wie weiter?
+Wie im Falle einer ungeheuren Verschuldung eines Staates (was leider auf der Erde vielerorts der Fall ist),
+wenn nebst den jährlich anfallenden riesigen Schuldzinsen kaum mehr Geld übrigbleibt, um den Schuldenberg am Wachstum zu hindern, geschweige denn, diesen langsam abzutragen, so ist dies gleichermassen
+der Fall mit der Überbevölkerung. Je höher die Anzahl Menschen nämlich ist, desto länger dauert es, bis
+die Reduktion auf ein gesundes, erträgliches Mass durchgeführt ist. Auch bei einer weltweiten Einführung
+von Bevölkerungsstopp-Massnahmen gemäss der FIGU-Methode, die eine ‹Express-Methode› darstellt,
+würden noch immer mehrere Jahrhunderte vergehen, bis sich die irdische Bevölkerung auf die für den
+Planeten optimale halbe Milliarde reduziert hätte. Und wenn von ‹Einführung› die Rede ist: Die Chance,
+dass Geburtenstopp-Massnahmen überhaupt weltweit eingeführt und umgesetzt werden, liegt leider bis
+auf weiteres praktisch bei null. Es gibt überhaupt keine Anzeichen dafür, dass die Regierungen der Erde
+oder der Grossteil der Völker in nächster Zeit die Einsicht und den Mut aufbringen werden, das Problem
+Überbevölkerung an der Wurzel anzupacken und einen wirksamen Geburtenstopp durchzuführen (unabhängig davon, ob dies durch die FIGU-Methode oder ein anderes System erfolgt). Dass solche Massnahmen isoliert eingeführt werden können, ist sowieso undenkbar, denn es ist eine grosse Anahl flankierender Massnahmen notwendig, die ergriffen und durchgeführt werden müssen. Diese alle aufzuführen
+und im Detail zu erklären, sprengt den Rahmen dieses Artikels, was aber nicht bedeutet, dass dies zu
+späterem Zeitpunkt nicht nachgeholt werden könnte. Nichtsdestotrotz sollen aber doch einige Punkte und
+Aufgaben erwähnt werden, um aufzuzeigen, dass noch ungeheuer viel Gedanken- und Aufklärungsarbeit
+geleistet werden muss und uns eine Aufgabe bevorsteht, die den sogenannten Marshallplan nach dem
+Zweiten Weltkrieg wie eine Bagatelle erscheinen lässt.
+Die nachfolgende Aufzählung ist weder vollständig noch nach Priorität geordnet. Alle Punkte sind gleichermassen wichtig und erfolgreich umzusetzen.
+1. Die Organisation der Vereinigten Nationen (UNO) muss durch eine neue Organisation ersetzt
+werden, in der alle Länder die gleichen Rechte und Pflichten haben und deren Vertreter direkt vom
+jeweiligen Volk gewählt werden.
+2. Der Sicherheitsrat, in dem einige Grossmächte das Vetorecht haben, muss abgeschafft werden.
+3. Es muss eine Multinationale Friedenskampftruppe geschaffen werden, die aus Soldaten aller Länder
+gebildet wird. Diese Kampftruppen verfügen (nebst den Polizeikräften in den einzelnen Ländern) über
+ein Waffenmonopol und bestehen ausschliesslich aus Menschen, die hohen ethischen Werten verpflichtet sind. Sie unterstehen einem Kommando, das von der Nachfolgeorganisation der UNO gewählt wurde und über klar umrissene Befugnisse und Aufgaben verfügt. (Weitere Information dazu
+finden sich in verschiedenen Artikeln von FIGU-Mitgliedern.)
+4. Im Gegenzug müssen sämtliche Armeen aller Länder aufgelöst werden. In den einzelnen Ländern verbleiben nur Polizeikräfte zur Sicherstellung der lokalen Ordnung und Gesetze.
+5. Alle Massenvernichtungswaffen müssen umgehend zerstört werden.
+6. Bei der Entwicklung von Waffen ist zukünftig darauf zu achten, dass diese einerseits nur vom Eigentümer bedient werden können (Codierung bzw. Abstimmung auf die individuelle Persönlichkeitsschwingung), und die andererseits über die Zusatzfunktion verfügen, Personen ausser Gefecht zu
+setzen, ohne sie zu töten.
+
+
+-----
+
+7. Die irdischen Strafsysteme müssen vereinheitlicht und von den Religionen entkoppelt werden. Die
+Todesstrafe ist abzuschaffen, und es müssen Zonen (z.B. Inseln, abgelegene Gebiete) ausgeschieden
+werden, auf welche die Straffälligen, abgestuft nach dem Schweregrad ihres Verbrechens und nach
+Geschlecht getrennt, deportiert werden, und wo sie je nachdem für den Rest des Lebens verbleiben
+müssen, ohne die Möglichkeit eines erfolgreichen Fluchtversuchs. Die Straffälligen müssen mit
+Schulungsmaterial versorgt werden, und sie müssen über Gerätschaften usw. verfügen, damit sie ihren
+Lebensunterhalt selbst bestreiten können. Die Möglichkeit eines Zusammentreffens von Straffälligen
+und Bewachern sowie Nichtschuldbaren usw. ist zu verunmöglichen.
+8. Alle politischen und religiösen Parteien sind aufzulösen, und es dürfen nur noch charakterlich einwandfreie und fähige Personen in die Regierungen gewählt werden. Es sollen Menschen sein, die das
+Wohl des Landes und der Gesamtheit der Bürgerinnen und Bürger im Auge haben und die nicht nach
+Macht und Reichtum gieren.
+9. Die Regierungsmitglieder werden direkt vom Volk für eine Amtsdauer von mindestens 20 Jahren gewählt, mit der Option einer Wiederwahl. Auf diese Weise wird es möglich, eine langfristige Politik
+zu betreiben und nicht alle vier Jahre unnötige Energien zu verschwenden mit Wahlkämpfen bzw.
+Wahlgängen.
+10. Staat und Kirche/Religion sind in allen Ländern strikte zu trennen. Religionsbezogene Ausgaben
+(Unterhalt von Kirchen, Synagogen, Tempeln und Moscheen sowie Pfarrerlöhne usw.) sind ausschliesslich von den jeweiligen Gläubigen selbst zu berappen.
+11. Es müssen Fachkräfte ausgebildet und Gremien gebildet werden, die sich das notwendige Fachwissen
+in praktischer Psychologie, Geisteslehre, Erziehungswissenschaften, Ethik, Gesundheitspflege, usw.
+aneignen, um dann die angehenden Eltern, die Kinder und das ganze Volk zu belehren sowie die
+Beurteilungen im Zusammenhang mit der Nachkommenszeugungs-Erlaubnis durchführen zu können.
+12. Die Anstrengungen zur Erforschung alternativer Energiequellen, z.B. das Anzapfen und die Nutzbarmachung der unerschöpflichen Elektronenenergie, sind mit hoher Priorität zu fördern.
+13. Die Genforschung muss gefördert werden, insbesondere in der Hinsicht der pränatalen Diagnostik,
+damit es möglich wird, Krankheiten und Schädigungen im Embryo bzw. Fötus immer früher zu erkennen bzw. zu behandeln, damit in einem hohen Masse sichergestellt werden kann, dass nur noch
+gesunde Kinder das Licht der Welt erblicken.
+14. Gentechnik ist auch im Gesundheits- und Lebensmittelbereich zu fördern, damit es z.B. möglich wird,
+tieridentisches Fleisch zu züchten, damit die Massentierhaltungen irgendwann der Vergangenheit
+angehören und die Menschen doch mit dem zur gesunden Entwicklung notwendigen tierischen Eiweiss versorgt werden.
+15. Suchtkranken Menschen muss von Staates wegen geholfen werden. Dies bedingt auch, dass die Sitten
+und Gebräuche ganzer Völker bezüglich Missbrauch von Alkohol und Drogen (Opium, Cocablätter
+usw.), wie z.B. in Russland oder Ländern Südamerikas, in positive Bahnen umgepolt werden müssen.
+16. Für sicherheitsrelevante Tätigkeiten wie die Bedienung von Fortbewegungsmitteln usw. gilt eine Nulltoleranz für die Konsumation von Drogen und Alkohol. Straftaten, die unter Alkohol- und/oder
+Drogeneinfluss begangen wurden, dürfen nicht als strafmildernd beurteilt werden, sondern als strafverschärfend.
+17. Die Beschneidung von Mädchen und Frauen ist unverzüglich abzuschaffen.
+18. Wegen der zunehmenden Überalterung und dem verbreiteten Ausbleiben von verwandtschaftlichem
+Nachwuchs geraten die bisherigen Systeme der Altersvorsorge in Schwierigkeiten, ja gar ins Wanken.
+Deshalb ist es Aufgabe des Staates und insbesondere der Gesellschafts-Gemeinschaft, den betagten
+Menschen ein würdiges Leben zu garantieren. Dies erfolgt unter anderem durch die ‹Pflicht zur Freiwilligenhilfe›, wenn das staatliche System mangels prämienzahlenden Lohnempfängern usw. überfordert ist.
+
+
+-----
+
+19. Die Einwanderung von jungen Arbeitskräften aus armen Ländern in höherentwickelte Länder mit einer
+überalterten Bevölkerungsstruktur zum Zwecke der Erhöhung von Rentenprämienzahlungen muss gestoppt werden.
+20. Kommen Menschen aus Schwellenländern zur Ausbildung in Industrienationen (Universitäten usw.),
+dann müssen diese Menschen nach Abschluss ihrer Ausbildung in ihre Heimatländer zurückkehren,
+um dort ihren Beitrag zur Entwicklung ihres Vaterlandes zu leisten. Dies gilt ebenfalls für Flüchtlinge,
+die im Falle einer persönlichen (= individuell auf die betreffende Person bezogen) Lebensbedrohung
+wohl in einem anderen Land Zuflucht finden dürfen, jedoch sofort zurückkehren müssen, wenn die
+persönliche Bedrohung entfallen ist.
+21. Hungerhilfe, also Lieferung von Nahrungsmitteln in Gebiete, die überbevölkert sind, muss unterbleiben.
+22. Internationale Hilfe, oder Hilfe ganz allgemein, muss stets nach dem Motto ‹Hilfe zur Selbsthilfe› ausgerichtet sein.
+23. Es müssen absolut sichere Verhütungsmittel produziert werden, die einerseits keine gesundheitlichen
+Nachteile aufweisen und andererseits leicht anwendbar und kontrollierbar sind.
+24. Kinder müssen bereits vor Erreichen der Zeugungs- bzw. Empfängnisfähigkeit über die Anwendung
+von Verhütungsmitteln aufgeklärt und über die Nachkommenszeugungserfordernisse informiert
+werden.
+25. Gebiete und Staaten, in denen der Gebrauch von Verhütungsmitteln nicht massiv gefördert wird und
+diesbezüglich keine wirksame Aufklärungskampagnen stattfinden, erhalten weder finanzielle noch
+wirtschaftliche Hilfe durch Drittländer.
+26. Die Vermischung von Völkerschaften und Rassen im grossen Ausmass ist zu vermeiden. Der unwürdige ‹Import› von Ehepartnern aus fremden Kulturen ist zu unterbinden.
+27. Jedes Land ist verpflichtet, auf seinem Gebiet selbst für Ordnung zu sorgen und, wenn dies nicht getan
+wird, die entsprechenden Folgen zu tragen.
+28. Der Abbau von Ressourcen (Metalle, Erze, Erdöl, usw.) muss so umweltschonend wie möglich geschehen, und es ist dafür zu sorgen, dass ein gerechter Preis dafür bezahlt wird, der im Verhältnis
+zur Kaufkraft des Käufers (Landes) steht. Der Erlös muss direkt der jeweiligen Bevölkerung zugute
+kommen, z.B. zugunsten des Ausbaus des Bildungswesens.
+29. Korrupte Regimes sind zu isolieren und zu entmachten.
+30. Alle Einwohner der Länder haben einer Erwerbsarbeit nachzugehen (mit Ausnahme der Mütter unmündiger Kinder sowie von Kranken bzw. Behinderten) und müssen sich ihren Lebensunterhalt selbst
+verdienen. Wenn dies wegen Arbeitslosigkeit (Fehlen einer bezahlten Arbeit) nicht möglich ist, haben
+die Betroffenen einen Dienst an der Gemeinschaft zu leisten (z.B. Altenpflege, Reinigungsarbeiten in
+Stadt und Land, Unterstützung jener Mitmenschen, die aufgrund von Gebrechen und Krankheit usw.
+nicht in der Lage sind, für den eigenen Lebensunterhalt aufzukommen, usw.). Wer sich weigert, obwohl er dazu in der Lage wäre, erhält vom Staat kein Geld ausbezahlt, sondern lediglich Naturalgaben, damit die Ernährung und einfachste Unterkunft sichergestellt ist (sogenannte Überlebenshilfe).
+31. Das Lohnwesen muss gerecht werden; das Lohnniveau ist nach oben zu begrenzen. Es muss jedem
+Menschen möglich sein, seinen Lebensunterhalt selbständig bestreiten zu können, wenn er einen vollen
+Arbeitseinsatz leistet und gutes Bemühen zeigt.
+32. Die Menschen sind darüber aufzuklären, dass häufige Wechsel der Sexualpartner schwere gesundheitliche Risiken bergen, wie sich am Beispiel der Verbreitung von Aids klar zeigt. Zu einem grossen Teil
+sind Kinder die Leidtragenden, entweder weil sie selbst krank sind oder krank geboren werden, oder
+weil sie zu Waisen werden. Der Wunsch nach Dezimierung der Menschheit durch die Verbreitung tödlicher Krankheiten mag wohl dem Zweck dienen, ist jedoch aus menschlicher Sicht absolut verwerflich. Die Reduktion der menschlichen Population darf einzig und allein auf der Basis von Einsicht und
+Vernunft erfolgen.
+
+
+-----
+
+33. Die Belehrung der Menschheit über die Werte der Geisteslehre und die damit verbundenen Erkenntnisse ist von grundlegender Wichtigkeit, denn solange die Menschen den Irrlehren der Religionen verfallen sind, wird es kaum möglich sein, dass in den einzelnen Ländern die richtigen und nachhaltigen
+Massnahmen ergriffen werden. Auch Frieden unter den Menschen und den Völkern wird nicht möglich sein, solange die Religionen die Menschen unselbständig und von sich bzw. ihren Göttern abhängig behalten.
+34. Da die Geisteslehre-Schriften bewusst in deutscher Sprache verfasst sind, weil in keiner anderen irdischen Sprache alle Feinheiten derart präzise erklärt werden können, soll die deutsche Sprache zur allgemeingültigen Weltsprache erhoben werden, nebst der natürlich alle anderen bisherigen Sprachen
+weiterhin erhalten bleiben und gepflegt werden sollen.
+
+Soweit eine kurze Auflistung von Massnahmen, die alle notwendig sind, um den Kampf gegen die Überbevölkerung erfolgreich und human durchführen zu können. Eine sehr konzentrierte Liste, hinter der sich
+eine grosse Zahl von Denk- und Handlungsschritten verbirgt, was unweigerlich zur Frage führt: «Und wo
+bzw. womit sollen wir beginnen?» – Nun, wie seit alters her und bis in alle Zukunft ist und bleibt es die
+Aufgabe jedes einzelnen vernünftigen und verantwortungsbewussten Menschen, mit jeder Art von Veränderung und Verbesserung bei sich selbst zu beginnen. Jeder Mensch, der die Dringlichkeit und Gefahr
+des Überbevölkerungsproblems erkannt hat, ist aufgerufen, nach bestem Können und Vermögen die von
+uns vorgeschlagenen Massnahmen einzuhalten (mit Ausnahme des 7-Jahres-Zyklus). Dieser Aufruf richtet
+sich insbesondere auch an alle in verantwortlichen und massgebenden Positionen stehenden Menschen,
+auf dass sie sich ihrer Verantwortung bewusst werden und darauf hinwirken, dass das Verständnis für
+Bevölkerungsstopp-Massnahmen stetig wächst.
+Man bedenke: Mit jeder Milliarde Menschen weniger steigt die Lebensqualität, und durch die Einsicht in
+die Notwendigkeit der weltweiten und langfristigen Massnahmen steigt auch die Chance, dass sich in der
+Weltgemeinschaft ein ‹Wir-Gefühl› entwickelt. In einer Welt ohne Überbevölkerung werden sich die
+Menschen wieder freuen, Mitmenschen anzutreffen, weil diese nicht mehr in Massen wie in Bienenstöcken
+über- und nebeneinander leben und gegenüber den Nöten und Sorgen der Nächsten gleichgültig geworden sind.
+
+Die Menschen der Erde haben es in der Hand, welchen Weg sie wählen wollen, ob einen aufgezwungenen
+(durch Hunger, Elend, Katastrophen, usw.), oder einen selbst gewählten (durch den Gebrauch von Vernunft, Einsicht und Selbstverantwortung). Es gilt nun, sich nicht einschüchtern zu lassen durch den Aufschrei all jener Kurzdenkenden und Vernunftlosen, die den Ernst der Lage nicht erkennen oder erkennen
+wollen und einem Egoismus oder Falschhumanismus frönen, der zwangsläufig zu Not und Elend führt.
+Solche Menschen erkennen nicht, dass die von uns vorgeschlagenen Massnahmen wirklich human sind,
+– weil sie für alle Menschen einheitlich Gültigkeit haben;
+– weil sie ein Ziel, das im Interesse aller auf der Erde lebenden zukünftigen Generationen liegt, in der
+kürzest möglichen Zeit erreichbar machen;
+– weil damit eine gigantische Bildungskampagne verbunden ist, die alle Menschen der Erde zu mündigen
+und freien Bürgerinnen und Bürgern machen will;
+– weil nicht einfach fatalistisch akzeptiert wird, dass Milliarden Menschen weiterhin in völlig menschenunwürdigen Umständen (Slums, extreme Armut, Vergiftung, usw.) dahinvegetieren sollen;
+– weil niemandem, der geboren wurde, seine Daseinsberechtigung streitig gemacht wird.
+Sie erkennen nicht, dass, wenn wir jetzt nicht handeln, uns in der näheren Zukunft unhumane Massnahmen
+drohen, weil – aufgrund der stetig anwachsenden Auswirkungen der Überbevölkerung – das Klima immer
+verrückter spielt und die Versorgung der Menschen mit den Gütern des täglichen Lebens immer schwieriger
+wird, und weil wegen dem Kampf ums nackte Überleben vielerorts das soziale Gefüge ausser Rand und
+Band gerät. Wie eine Prophezeiung besagt, ist es leider nicht auszuschliessen, dass Regierungen begin
+
+-----
+
+nen werden, radikale und unhumane Massnahmen zu verhängen und mit Gewalt durchzusetzen. Solche
+Massnahmen könnten sogar die Verhängung der Todesstrafe bei unerlaubter Nachkommenszeugung
+umfassen – eine furchtbare Perspektive. Deshalb sollten wir wirklich alles daransetzen, dass es nie zu
+solchen schrecklichen Ausartungen kommen wird.
+
+Jeder Mensch ist aufgerufen, sich eigene Gedanken zu machen über das Obgenannte und mit wachem
+Kopf die schleichenden Veränderungen im Zusammenhang mit dem Bevölkerungswachstum wahrzunehmen. Bilder von Megastädten oder verqualmten Industriegebieten usw. sind als das zu erkennen, was
+sie wirklich zeigen: Geschwüre und Krankheitsbilder unserer Zivilisation, wo die Menschen im Gehetze
+des Alltags die Pflege des inneren Wachstums aus den Augen verloren haben.
+Wir müssen uns bewusst werden, dass uns harte und entbehrungsreiche Jahre bevorstehen, denn in vielen
+Dingen werden wir umdenken und Einschränkungen auf uns nehmen müssen. Aber wenn wir uns immer
+wieder vergegenwärtigen, dass wir zum Wohle des Planeten, der Fauna und Flora handeln, und daraus
+abgeleitet auch zum Wohle unserer Kinder und Kindeskinder, dann wird alles erträglich. Und somit
+schliesst sich der Kreis, denn erinnern wir uns: Wir werden dereinst als unsere Kindeskinder wieder über
+Mutter Erde wandeln und die Früchte unserer heutigen Anstrengungen ernten – hoffentlich im Positiven!
+Christian Frehner, Schweiz
+
+### Leserfrage
+Folgende Leserfrage aus Deutschland ist bewusst ohne Namenangabe, da die Urheberperson offenbar
+Repressalien von Fanatikern zu befürchten hat, wie sie per E-Mail schreibt. Doch da die Frage von Bedeutung ist, soll sie ausnahmsweise ohne Namen der Frageperson beantwortet werden:
+
+Wir erleben zur Zeit eine extreme Polarisierung zwischen den Hauptreligionen Christentum und Islam,
+dabei ist uns doch längst klar, dass sich die jetztigen jeweiligen Religionsführer auf die im Verlauf der
+Jahrhunderte verfälschten Dokumente Bibel und Koran beziehen. Meines Erachtens ist es in unserer Zeit
+besonders wichtig, sich auf die Urdokumente zu besinnen, doch dazu muss man sie kennen. Daher mein
+Wunsch, lieber Billy, bei Deinem nächsten Kontakt die beiden Urfassungen der Bibel und des Korans anzufordern (in Form der Akasha-Chronik sind beide Fassungen auf jeden Fall noch vorhanden) und diese
+dann der Menschheit vorzulegen.
+Mit vielen herzlichen Grüssen und den besten Wünschen für Eure weitere Aufklärungsarbeit
+E., Deutschland
+
+### Antwort:
+Hallo E., da Du uns die Frage mit Deinem vollständigen Namen und mit Anschrift und also nicht anonym
+hast zukommen lassen, werde ich Deinem Wunsch entsprechen, Deinen Namen nicht zu nennen. Wäre
+Deine Zuschrift anonym, dann würde ich nicht darauf eingehen, denn namen- und anschriftlose Anfragen
+wandern bei mir ungelesen in den Papierkorb.
+Was bezüglich der Akasha-Chronik zu sagen ist: Dieser Begriff wurde von uns einige Jahre lang nur deshalb verwendet, um der Leserschaft unserer Schriften und Bücher usw. einen Anhaltspunkt zu geben, dass
+alles und jedes Ding in einer Weltchronik gespeichert wird. Grundsätzlich hat die Akasha-Chronik jedoch
+nichts damit zu tun, denn diese ist eine reine Erfindung von Rudolf Steiner, der damit ein sogenanntes
+‹Weltgewissen› gemeint, was nichts mit den Speicherbänken zu tun hat, in denen effectiv alles gespeichert wird. Und diese Speicherbänke sind es, in denen auch die effective ‹Lehre der Propheten› in vollem
+Umfang gespeichert ist.
+
+
+-----
+
+Die ‹Lehre der Propheten› umfasst die gesamte Prophetenreihe, wobei diese Lehre einheitlich ist, jedoch
+von jedem Propheten gemäss dem Verständnis der Erdenmenschen zu seiner Zeit in verschiedener Weise
+erklärt und dargebracht, jedoch niemals verfälscht wurde. Die ungeheuren Verfälschungen der Lehre entstanden erstens durch jene, welche sie erstlich als Schriftkundige festhielten, wonach sie dann nach und
+nach über Jahrhunderte und Jahrtausende immer weiter verfälscht wurde, woraus letztlich verschiedene
+verfälschte Lehren und daraus auch verschiedene Religionen entstanden, wie eben auch das Judentum,
+Christentum und der Islam.
+In bezug auf Deinen Wunsch nun, bei meinem nächsten Kontakt die beiden Urfassungen der Bibel und des
+Korans anzufordern, muss ich Dir erklären, dass es diesbezüglich also nur eine ‹Lehre der Propheten› als
+Urfassung gibt, die gleichermassen von Jmmanuel (fälschlich Jesus Christus genannt) und Muhammad
+(Mohammed) gelehrt, jedoch durch die schriftkundigen Schreiberlinge gründlich verfälscht wurde. Diese
+Urfassung-Lehre, die bereits vor Jahrmillionen durch Nokodemion ausgearbeitet wurde, ist in den Speicherbänken abgelagert und trägt die Bezeichnung ‹Kelch der Wahrheit›. Als endgültiges Werk umfasst
+sie die gesamte Lehre der siebenfachen irdischen Prophetenreihe, beginnend bei Henoch bis heute. Bereits
+seit dem 19. August 2007 bin ich daran, den ‹Kelch der Wahrheit›, der die Lehre der Wahrheit, Lehre
+des Geistes, Lehre des Lebens ist, aus den Speicherbänken abzurufen und wortgetreu niederzuschreiben,
+was einer gewaltigen Arbeit entspricht. Das Buch ‹Kelch der Wahrheit›, wenn es fertiggestellt ist, wird
+wahrscheinlich 2009 oder 2010 erscheinen, denn ab es dieses Jahr noch fertig wird, das vermag ich
+leider jetzt noch nicht zu sagen, da es recht umfangreich ist und ich als letzter Künder der Siebnerreihe
+selbst noch viel dazu beitragen muss.
+Billy
+
+### Leserfrage
+Liebe Freunde, vielen Dank für das Bulletin 62 mit sehr verschiedenen guten Beiträgen. Ich habe es im
+Internet gelesen. Ganz besonders hat mich die klare Darstellung der Gnade angesprochen, aber auch die
+Einstellungen zum Fasten.
+Zur Frage über die deutsch-jüdischen Beziehungen haben Sie über die Vernichtung der Juden durch HitlerDeutschland berichtet und dabei 4,5 Millionen jüdische Opfer erwähnt. Allgemein wird ja immer von 6
+Millionen gesprochen. Warum sagen Sie 4,5 Millionen? Dazu möchte ich Ihnen mitteilen, dass ich in ein
+Dokument des Schweizer Roten Kreuzes vom Jahre 1946 Einblick erhalten habe und dort steht: Die Gesamtsumme jüdischer Bürger in ALLEN von Hitler-Deutschland besetzten Gebieten betrug nach diesen
+Forschungen ca. 3,7 Millionen. Hier scheint es noch eine Ungereimtheit über die wahre Anzahl der
+jüdischen Bürger sowie deren Opfer zu geben, zumal an anderer Stelle mitgeteilt wird, dass von den Gesamtmassen in allen Lagern des Dritten Reiches 20% Juden waren, also ein Fünftel. Gerne erwarte ich
+dazu Ihre Aussage. Mit freundlichen Grüssen
+Rudolf Schneider, Deutschland
+
+### Antwort:
+Die Angaben von 4,5 Millionen jüdischer Opfer durch das Deutsche Nazireich stammen von den Plejaren,
+und diese entsprechen wohl der Richtigkeit, denn deren Abklärungen waren und sind immer sehr genau.
+Das gegensätzlich zu den erdenmenschlichen ‹Abklärungen›, die immer mit sehr, sehr viel Vorsicht und
+Misstrauen zur Kenntnis genommen werden müssen, weil stets geschummelt wird. Wenn z.B. das Schweizerische Rote Kreuz eine Zahl von nur 3,7 Millionen Opfern behauptet, dann sollte dabei der Rolle bedacht werden, die das Rote Kreuz damals in den deutschen Kriegsgebieten in bezug auf Spionage für die
+Schweiz gespielt hat, was der breiten Öffentlichkeit völlig unbekannt ist. Und wie die Redlichkeit des
+Schweizerischen Roten Kreuzes in dieser Hinsicht unter dem Deckmantel der Hilfeleistung damals ausgesehen hat, so ist auch an der Redlichkeit in bezug auf deren Opferangaben zu zweifeln. Ausserdem ist
+zu sagen, dass die Plejaren bei ihren Abklärungen stets äusserst genau sind und keine Fehler machen.
+
+
+-----
+
+Das Mehr an Opfern an die 6 Millionen setzt sich zusammen aus Menschen, die infolge ihrer Bewusstseinsbehinderung (Geisteskrankheit), Psycheprobleme, Asozialität, Kriminalität, ihres Verbrechertums,
+ihrer Diktaturgegnerschaft, Attentate auf Hitler sowie als medizinische Versuchsobjekte durch die Nazis
+ermordet wurden.
+Billy
+
+### Leserfrage
+Im deutschen TV-Sender Pro 7 läuft eine Castingshow hinsichtlich Menschen mit übersinnlichen, mentalen
+Fähigkeiten, dabei trat nebst anderen auch ein Schweizer namens Vincent Raven mit einem Raben auf,
+der auch bei einer Aeschbacher-Sendung zu sehen war. Was ist von all dem zu halten? Früher war häufig
+der Israeli Uri Geller im Fernsehen, der ja auch solche Fähigkeiten haben soll.
+U. Zimmermann, Schweiz
+
+### Antwort
+Vom Ganzen ist gar nichts zu halten, jedenfalls nicht in bezug auf etwas Wahres und Reales, denn das
+ganze Theater, das veranstaltet wird von denen, die sich als ‹übersinnliche Fachkräfte› ausgeben, inklusive
+Uri Geller, beruht nur auf Taschenspielerei, Tricks und sonstigen Illusionen und Täuschungsmanövern. Und
+dass das so ist, kann auch bewiesen werden, wie das z.B. auch bei den Täuschungen von Uri Geller schon
+vor Jahren der Fall war.
+Nun, meinerseits kenne ich zwar die von Ihnen angesprochene Castingshow des Pro 7-Senders nicht,
+doch habe ich bei einer Kurt Aeschbacher-Sendung den Berner Vincent Raven mit seinem Raben ‹Corax›
+gesehen, wozu ich sagen muss, dass das Ganze einem absoluten Quatsch entspricht, denn mit Verstorbenen können weder Menschen noch Rabenvögel oder sonstiges Getier kommunizieren. Wenn der Mensch
+verstorben ist, dann ist er tot und damit auch sein Bewusstsein in Sekundenschnelle erloschen.
+Werden die sogenannten übersinnlichen, paranormalen Fähigkeiten und Vorkommnisse näher betrachtet,
+dann wird mit erschreckender Deutlichkeit klar, dass Menschen, die vorgeben, solche Fähigkeiten zu besitzen und ausüben zu können, entweder durch Schizophrenie Selbsttäuschungen und einem Selbstbetrug
+unterliegen, oder sie täuschen ganz bewusst ihre Gläubigen und Zuschauer durch Taschenspielertricks
+und sonstige Illusionen. Nur leichtgläubige Menschen, die in der Regel auch gläubig in bezug auf eine
+Religion, Sekte, Ideologie oder Philosophie sind, sehen in diesen Illusionen Beweise für eine Übersinnlichkeit, die es in Wirklichkeit nicht gibt. Das darum, weil mit klaren Sinnen sowie durch den klaren Verstand
+und die wache Vernunft sinnlich alles wahrgenommen werden kann, und zwar auch Dinge, die in den
+feinstofflichen Bereich des Menschen belangen, der ebenfalls nicht mit Übersinnlichem oder Überirdischem
+und derartigem Unsinn in Zusammenhang gebracht werden kann.
+Gläubige Menschen in bezug auf Übersinnliches und Überirdisches sind infolge unlogischer Denkweisen
+dem Wahn eines ‹Magierglaubens› und dessen verfallen, dass Magier, Hellseher, Channeler, Spiritisten
+usw. ‹übersinnliche› und ‹überirdische› Dinge tun könnten, wie z.B. mit Toten, Engeln, Dämonen, einem
+Teufel, Heiligen, Gott, Jesus Christus und mit Ausserirdischen reden, sei es nun durch Rabenvögel, diverse
+Karten, Glaskugeln, Telepathie oder durch sonstige Dinge. Doch all das ist blanker Unsinn, entweder tiefgreifende Schizophrenie und also Wahnvorstellungen, oder bewusste Täuschung, Illusion und Trickserei
+und hat mit der eigentlichen Parapsychologie und mit den sogenannten paranormalen Fähigkeiten nichts
+zu tun. Die nämlich beruhen in den Auswirkungen bewusster oder unterbewusster Gedanken und Gefühle, die als Schwingungen paranormale Dinge hervorrufen, die jedoch nichts mit dem zu tun haben,
+was z.B. Uri Geller oder Vincent Raven und unzählige andere Mauscheler praktizieren und mit ihren
+angeblichen ‹übersinnlichen› Fähigkeiten ihre Gläubigen und Zuschauer in ihren Bann schlagen und
+denen ein kaltes Schaudern über den Rücken fährt.
+Durch die ganze Magiertrickserei, das Channeling und Reden mit Toten, Geistern, dem Teufel, mit Engeln,
+Heiligen, Dämonen sowie mit Gott, Jesus, Josef und Maria usw. entsteht in denen, welche an den Unsinn
+
+
+-----
+
+glauben, eine Welt des Wahnglaubens, der in ihnen Ängste hervorruft, wie aber auch Sehnsüchte nach
+göttlichen, übersinnlichen und überirdischen Wundern. Dadurch aber verliert der Mensch den Boden zur
+Wirklichkeit und damit den Sinn zur Logik, zu Verstand und Vernunft, weil er durch die Machenschaften
+der unlauteren Magier sowie der wahnkranken oder bewusst betrügerischen Channeler und Spiritisten
+usw. irregeführt wird. Auf diese Weise wird dem bereits einer schizophrenen Form entsprechenden
+Wahnglauben der Gläubigen aller Art gewaltig Vorschub geleistet, wobei dieser zur einfressenden Abhängigkeit wird, woraus nicht selten psychische Schäden und ein Kontaktwahn oder Verfolgungswahn in
+bezug auf magische Energien und Kräfte sowie ‹übersinnliche› und ‹überirdische› Gestalten usw. entstehen.
+Billy
+
+### Leserfrage
+Was ist davon zu halten, was die österreichische Politikerin Susanne Winter in bezug auf den Propheten
+Mohammed und dessen Heirat mit einem 6jährigen Mädchen lauthals verkündete, ihn sowie die Muslime
+allgemein als Kinderschänder beschimpfte und behauptete, dass Mohammed den Quran in epileptischen
+Anfällen verfasst habe?
+Patric Chenaux, Schweiz
+
+### Antwort
+Was diese Politikerin in ihrer Dummheit und in ihrem Rassen- und Religionshass gegen den Propheten
+Mohammed resp. Muhammad und gegen die muslimische Männerwelt vom Stapel gelassen hat, ist rundweg blanke Verleumdung und zeugt von ihrer Würdelosigkeit in bezug auf die Achtung der Menschen
+allgemein sowie besonders auf die Muslime. Die normalen muslimischen Männer sind genausowenig
+Kinderschänder wie auch nicht die Männer anderer Völker, Rassen und Religionen. Was einzelne in dieser
+Beziehung tun, kann nicht verallgemeinert werden, ausserdem kann wohl mit gutem Gewissen gesagt
+werden, dass global in der christlichen Welt sehr viel mehr pädophile Elemente zu finden sind als in der
+muslimischen.
+Aus den Speicherbänken ergeben sich folgende Aufzeichnungen von Tatsachen, die sehr genau und wahrheitsgemäss sind und in keinem Vergleich stehen zu den oft bis zur Unkenntlichkeit verfälschten menschlichen Aufzeichnungen und Überlieferungen: Bezüglich des 6jährigen Mädchens, das als Mohammeds Frau
+gehandelt wird, ergibt sich aus den Speicherbänken, dass das Ganze einer bösartigen Lüge entspricht,
+die von mohammedfeindlichen Elementen erfunden und ins Leben gerufen wurde, denn Mohammed hat
+niemals irgendwelche Kinder geheiratet. In Wahrheit hat er sich darum bemüht, zwei Kinder an Vaterstatt
+anzunehmen, ohne das jedoch nach heutigem Sinn amtlich und also auch nicht öffentlich zu machen, wobei diese Tatsache aber leider nicht überliefert ist, sondern verschwiegen wurde, weil Mohammed seine
+Güte gegenüber den Kindern nicht an die grosse Glocke hängen wollte. Folgedem ist diese Tatsache auch
+in der Islamwelt nicht bekannt, jedoch offensichtlich dazu benutzt worden, um ihn zu verleumden.
+Mohammed war verheiratet mit einer 15 Jahre älteren vornehmen, reichen und klugen Kaufmannsfrau
+namens Khadidja (Chadidscha), die ihm mütterliche Liebe entgegenbrachte und ihn später auch unerschütterlich in bezug auf seine prophetische Mission ermunterte. Aus der Ehe gingen sechs Kinder hervor,
+wobei jedoch nur die Tochter Fatima seinen Stamm fortpflanzte. Mit Khadidja führte er eine glückliche
+Ehe bis zu ihrem Tod, und im Gegensatz zu anderen Behauptungen nahm er sich niemals eine zweite
+Frau während der Ehe mit Khadidja. Erst nach ihrem Tod heiratete er wieder, so er während seines Lebens
+gesamthaft neun Frauen hatte, wobei seine Lieblingsfrau dann Aysha wurde. Mohammed nahm also zwei
+Kinder an Vaterstatt, deren Eltern verstarben.
+Wie die Lebensgeschichten, das Handeln und die Integrität aller wahren Propheten durch Feinde und
+Verleumder bis ins Unkenntliche verfälscht wurden, so wurde auch deren altherkömmliche Lehre des
+Nokodemion, der ‹Kelch der Wahrheit›, verfälscht und verstümmelt, wodurch kaum mehr ein wahres Wort
+
+
+-----
+
+in den Überlieferungen der Lehre und der wirklichen Lebensgeschichte der Propheten zu finden ist. Kaum
+ein Mensch unter den Gläubigen der Religionen weiss heute, was der Wahrheit und was der reinen Erfindung, Lüge und Verleumdung entspricht. Die Schreiber und Überlieferer der religiösen Schriften haben
+alles derart nach ihrem eigenen Gutdünken zurechtgeschustert, dass nur noch von einer brüllenden
+Schändlichkeit gesprochen werden kann, durch die alle Gläubigen betrogen und in die Irre geführt
+werden. Und was die österreichische politische Schreckschraube behauptet hat, dass Mohammed den
+Quran in Anfällen von Epilepsie geschrieben habe, ist Lüge und Verleumdung zugleich, denn nur in kleinen
+Teilen wurden von ihm wenige Dinge festgehalten, während im Hauptsächlichen der Quran von anderen
+geschrieben wurde. Dabei konnte es natürlich nicht ausbleiben, dass alles, auch Mohammeds Aufzeichnungen, bis ins Unendliche verfälscht wurde, wie auch seine wirkliche Lebensgeschichte usw.
+Billy
+
+
+-----
+
+### VORTRÄGE 2008
+Auch im Jahr 2008 halten Referenten der FIGU im Saal des Centers wieder Geisteslehre-Vorträge usw.
+Nachfolgend die Daten für die stattfindenden Vorträge:
+
+**22. März 2008** **Geschichte der Mission** Stephan A. Rickauer
+**Menschlichkeit II** Patric Chenaux
+
+**28. Juni 2008** **Ehrfurcht, Gleichheit und Gleichwertigkeit** Hans-Georg Lanzendorfer
+**Lebensqualität im Alter** Pius Keller
+
+**23. August 2008** **Unser Universum I** Guido Moosbrugger
+**Assoziationen** Simone H. Rickauer
+
+**25. Oktober 2008** **Erziehung I** Natan Brand
+**Erziehung II** Christian Frehner
+
+Pünktlicher Vortragsbeginn um 14.00 Uhr.
+
+Eintritt: CHF 7.– (Eintritts-Ermässigung für FIGU-Mitglieder bei Vorweisen eines gültigen Ausweises.)
+An den Vortrags-Samstagen trifft sich im Semjase-Silver-Star-Center um 19.00 Uhr eine Studiengruppe,
+zu der alle interessierten Passiv-Mitglieder herzlich eingeladen sind.
+
+### VORSCHAU PASSIV-GRUPPE-ZUSAMMENKUNFT 2008
+
+Die nächste Passiv-Gruppe-Zusammenkunft findet am 24. Mai 2008 statt, in der Turnhalle der Volksschule, Sonnenhofstrasse 2, 8374 Oberwangen/TG. Reserviert Euch dieses Datum heute schon!
+Die persönlichen Einladungen mit näheren Hinweisen folgen zu gegebener Zeit.
+Die Kerngruppe der 49
+
+**IMPRESSUM**
+**FIGU-Bulletin**
+**Druck und Verlag: Wassermannzeit-Verlag, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+**Redaktion: ‹Billy› Eduard Albert Meier, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+**Abonnemente:**
+Erscheint unregelmässig; Preis pro Einzelnummer: CHF 2.– (Zusammen mit einem Abonnement der ‹Stimme der Wassermannzeit› oder der ‹Geisteslehre-Briefe› als Gratis-Beilage.)
+**Postcheck-Konto: FIGU-CH-8495 Schmidrüti, PC 80-13703-3**
+**E-Mail: info@figu.org**
+**Internet: www.figu.org**
+**FIGU-Shop: http://shop.figu.org**
+
+
+-----
+

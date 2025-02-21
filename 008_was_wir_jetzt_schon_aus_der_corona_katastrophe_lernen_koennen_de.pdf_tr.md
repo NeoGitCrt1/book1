@@ -1,0 +1,42 @@
+# Was wir jetzt schon aus der Corona-Katastrophe lernen können
+# 我们现在就能从新冠灾难中学到什么
+
+In diesen Tagen ist es für mich traumhaft, durch Kaiserslautern (mein Wohnort) zu gehen. Die Strassen haben weniger als 50% des üblichen Verkehrs, es sind weniger als 50% der üblichen Menschen auf den Strassen und in den Geschäften – sofern sie offen sind –; die Menschen und Verkehrsteilnehmer sind wesentlich entspannter, und auf den Strassen fahren keine Raser und Trödler, wie sich auch die Luft sauberer und frischer anfühlt. Die Angebote der Läden, die der Wahrheit widersprechen, wie z.B. in Körperbemalungsläden, Tätowierungs- und Tattoostudios, Drogenkonsumläden (Shisha-Bars) sowie in Sportstudios etc., sind verschwunden. So müsste es sein, wenn unser Planet nicht überbevölkert wäre. Niemals hätte ich gedacht, einmal einen Zustand zu erleben, wie er sein müsste, wenn unser Planet nicht überbevölkert wäre. Leider ist es aber nicht so, denn diese angenehmen Zustände sind nicht auf den Zustand einer mehr oder weniger planetengerechten Bevölkerung zurückzuführen, sondern auf eine Seuche, die auf die Menschen zwingend wirkt, sich in eine (freiwillige?) Quarantäne, einen Hausarrest zu begeben und/oder dies auf staatliche Anordnungen hin tun zu müssen. Das ist jetzt so, zwar erst seit circa vier Wochen, doch bereits jetzt können wir einiges aus der CoronaKatastrophe lernen.
+近日，漫步于凯泽斯劳滕（我的居住地）对我来说如同梦境一般。街道上的车流量不到平常的一半，行人和商店里的顾客也少于往常——如果商店还开着的话；行人和交通参与者都显得格外放松，街道上不再有飙车者和慢吞吞的司机，空气也感觉更加清新洁净。那些与真实需求不符的店铺，如人体彩绘店、纹身和刺青工作室、毒品消费场所（水烟吧）以及健身房等，都已消失无踪。如果我们的星球没有人口过剩，情况本该如此。我从未想过会体验到一种仿佛星球没有人口过剩的状态。然而，遗憾的是，这种舒适的状态并非源于人口与星球承载能力的平衡，而是由于一场瘟疫迫使人们进入（自愿的？）隔离或居家隔离，或是根据政府命令不得不这样做。这种情况已经持续了大约四周，但我们已经可以从这场新冠灾难中学到不少东西。
+
+## Was also können wir aus der Corona-Katastrophe lernen?
+## 我们能从新冠灾难中学到什么？
+
+Die Überbevölkerung ist sofort mit humanen Mitteln zu beseitigen (dauerhafte Geburtenkontrolle/7-Jahre-Geburtstenstop-Zyklus gemäss Vorschlag der FIGU). Alle Länder müssen ihre Grenzen dauerhaft so lange schliessen und Grenzkontrollen einführen, bis die Seuche besiegt ist. Das bedeutet nicht, dass sich die einzelnen Völker abschotten sollen, sondern dass der Austausch der Länder auf ein vernünftiges Niveau gebracht und die Seuchengefahr eingedämmt wird. Gegen Handel, diplomatische Beziehungen, Arbeiten, wissenschaftlichen Austausch oder ähnliches ist nichts einzuwenden, doch nur solange es auf einem vernünftigen Niveau geschieht. Erst die unkontrollierten offenen Grenzen ermöglichten die Ausbreitung des Corona-Virus zu einer Pandemie, die laut offizieller Statistik zum gegenwärtigen Zeitpunkt bereits weltweit über 100 000 Menschenleben gefordert hat, wobei jedoch die Dunkelziffer weit höher sein wird.
+根据FIGU的建议，应立即采取人道手段解决人口过剩问题（永久性生育控制/七年生育停止周期）。所有国家必须永久关闭边界并实施边境管制，直至疫情被彻底战胜。这并不意味着各国应完全封闭，而是应将国家间的交流调整到一个合理的水平，并遏制疫情风险。对于贸易、外交关系、工作、科学交流或类似活动并无异议，但前提是这些活动保持在合理范围内。正是由于边境的无序开放，才使得新冠病毒扩散成为一场大流行病，根据官方统计，截至目前已在全球造成超过10万人死亡，而实际数字可能远高于此。
+
+Auch der Handel muss auf ein vernünftiges Niveau gebracht werden. Jedes Land sollte zur Selbstversorgung zurückkehren und der Austausch von Waren nur dort erfolgen, wo ein Land gewisse Produkte nicht selbst produzieren/anbauen kann.
+贸易也必须回归到一个合理的水平。每个国家都应回归自给自足的状态，只有在某些产品无法自行生产或种植的情况下，才进行商品交换。
+
+Die Gesundheitssysteme der einzelnen Länder sind so zu finanzieren, dass sie in der Lage sind, ihre Bevölkerungen zu versorgen. Das heisst, die Produktion von Medikamenten, medizintechnischen Geräten, wie auch notwendige Desinfektionsmittel etc. muss im eigenen Land erfolgen, wie auch Nahrungsmittelvorräte angelegt werden müssen. Die Menschen sind anzuhalten und aufgeklärt zu werden gesund zu leben, um so nach Möglichkeit gegen Krankheiten immun zu werden und sich eine gute Konstitution aufzubauen. Dies ist unabdingbar für eine Abwehr von Krankheiten. Es gibt noch viel mehr zu tun. Aber viele Probleme erledigen sich von selbst, besonders wenn das erste Problem – eben das Übermass der Überbevölkerung – gelöst wird. Mit meinen Vorschlägen sollen ein paar Probleme und deren Lösungen angesprochen werden, zukünftig Pandemien zu verhindern. Und dazu ist zuallererst das Problem Überbevölkerung aus der Welt zu schaffen.
+各国的医疗体系需要得到充足的资金支持，以确保能够为其人口提供医疗服务。这意味着药品、医疗技术设备以及必要的消毒剂等的生产必须在本国进行，同时还需要储备粮食。人们应被鼓励和教导如何健康生活，从而尽可能增强对疾病的免疫力，并建立良好的体质。这对于抵御疾病是必不可少的。还有许多工作要做。但许多问题会自行解决，特别是当第一个问题——即人口过剩的问题——得到解决时。我的建议旨在提出一些问题和解决方案，以预防未来的流行病。为此，首先必须解决人口过剩的问题。
+
+Viele Menschen erleben jetzt trotz ihren Ängsten, Unsicherheiten und gedanken-psyche-gefühlsmässigen Belastungen die positiven Seiten eines Zustandes, als ob der Planet nicht überbevölkert wäre, weil der gesamte Motorverkehr so gut wie stillgelegt ist und die grossen Massen der Menschen nicht mehr auf den Strassen und Plätzen sind. Aber es fragt sich trotzdem, ob die Menschen dieses Planeten das alles realisieren und aus allem auch die richtigen Schlüsse ziehen resp.
+尽管许多人现在正经历着恐惧、不确定性和心理情感上的压力，但他们也体验到了一种仿佛地球并未人口过剩的积极状态，因为整个机动车交通几乎停滞，街道和广场上不再有大量人群。然而，问题依然存在：这个星球上的人们是否能够意识到这一切，并从中得出正确的结论。
+
+ob sie daraus lernen, dass sie die Überbevölkerung endlich durch einen humanen Sieben-Jahres-Geburtenstop-Zyklus und eine dauerhafte Geburtenkontrolle bekämpfen müssen? Es wäre allen Menschen zu wünschen.
+他们是否会从中吸取教训，最终通过一个为期七年的人道主义生育暂停周期和永久性的生育控制来应对人口过剩问题？这是所有人所期望的。
+
+Was können wir wohl noch alles aus der Corona-Pandemie lernen? Das sehen wir freilich erst, wenn die Corona-Pandemie beendet ist, wenn es sich zeigt, wie die Welt dann aussieht. Und hoffentlich denken die Menschen dann zum Positiven um und handeln dementsprechend – doch ehrlich gesagt, dafür besteht wohl kaum Hoffnung.
+我们还能从新冠大流行中学到什么？这当然只有在大流行结束后，当世界展现出新的面貌时，我们才能看清。但愿那时人们能够积极思考并相应地采取行动——但老实说，对此我们恐怕很难抱有希望。
+
+Kai Amos, Deutschland
+凯·阿莫斯，德国
+
+## Einschub einer Erklärung des Plejaren Ptaah, vom 14.4.2020:
+## 普塔赫（Ptaah）的普莱亚人解释插入，2020年4月14日：
+（注：普塔赫是普莱亚星人的代表，普莱亚人是某些UFO和地外文明相关文献中提到的一个外星种族。）
+
+«Diese Pandemie konnte nur durch das Nichtbeachten der frühen Warnungen, der Unfähigkeit der Staatsführenden und der WHO sowie infolge der Masse Überbevölkerung entstehen. Wäre die Warnung beachtet und schon in China frühzeitig und verantwortungsbewusst das Richtige und Notwendige getan worden, dann würde heute keine Pandemie bestehen, weil das Corona-Virus eingedämmt worden wäre, ehe es sich unkontrolliert und so schnell über den Planeten ausbreiten konnte. Die an der Corona-Seuche verstorbenen Menschen könnten noch leben und die Menschheit ihrem Alltag nachgehen.
+“这场大流行之所以发生，仅仅是因为忽视了早期的警告、国家领导人和世界卫生组织的无能，以及全球人口过剩的结果。如果这些警告被重视，并且在中国早期就采取了正确和必要的负责任行动，那么今天就不会有大流行，因为新冠病毒在失控并迅速传播到全球之前就已经被遏制了。那些因新冠病毒而去世的人可能还活着，人类也能继续他们的日常生活。”
+
+Angeblich wurde das Corona-Virus gemäss einer offiziellen Lügenbehauptung erst am 7.1.2020 bekannt, wie auch erst dann der erste Fall der WHO gemeldet worden sei, die jedoch zu jenem Zeitpunkt nicht reagierte, wie auch danach nicht, als es viel zu spät war und alles wirklich bekannt wurde. Tatsache ist, dass die Seuche schon früher ausbrach und viele Tote forderte, was jedoch nicht bekannt wurde. Erst am 8. Dezember 2019 entdeckte dann in der Stadt Wuhan in China ein Arzt das Virus doch, und als er seine Entdeckung bekanntmachte, wurde er als Volksverhetzer verhaftet, wonach er dann anfangs Februar 2020 selbst infolge der Seuche verstarb, durch die er infiziert worden war. Also erfolgten die ersten Infizierungen in Wuhan schon viel früher, und zwar ab Ende Monat Juli 2019, woran dann auch viele Erdenmenschen starben.
+根据官方的虚假声明，新冠病毒据称在2020年1月7日才被公开，同时世界卫生组织（WHO）也在那时报告了首例病例，但当时并未作出反应，甚至在之后一切都为时已晚、真相大白时也未有行动。事实上，疫情早已爆发并导致多人死亡，但这些并未被公开。直到2019年12月8日，中国武汉市的一位医生发现了该病毒，当他公开这一发现时，却被作为煽动民众的罪名逮捕，随后在2020年2月初因感染该病毒而去世。因此，武汉的首批感染实际上发生得更早，从2019年7月底开始，并导致了许多人死亡。
+
+Tatsache ist weiter auch, dass Billy, und zwar schriftlich nachweisbar, diese Corona-Virus-Seuche schon am 3. Februar 1995 in einem Gespräch mit mir vorausgesagt hatte und auch im November 2019 darüber mit mir gesprochen und alles schriftlich veröffentlich hat, was jedoch wie üblich, nur von den FIGU-Mitgliedern, jedoch sonst weder von den Staatsverantwortlichen noch von den Bevölkerungen ernst genommen wurde. Was nun die Folgen sind, das ist grosses Leid rund um die Welt, weil allein bis heute weit über 100 000 Menschen der Seuche erlegen sind – und was diesbezüglich die Zukunft noch bringen wird, das wird ebenfalls noch viel Leid und auch Elend sowie Unruhen bringen.»事实进一步表明，比利在与我的谈话中，早在1995年2月3日就已经预言了这场冠状病毒疫情，并且在2019年11月再次与我谈及此事，并将所有内容书面公开。然而，这些信息一如既往地只被FIGU成员所重视，而国家负责人和大众却并未认真对待。现在的结果是，全世界都陷入了巨大的苦难之中，因为截至目前，已有超过10万人死于这场疫情——而未来在这方面还将带来更多的痛苦、贫困和动荡。
+

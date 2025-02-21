@@ -1,0 +1,93 @@
+## Contact Report 145
+Einhundertfünfundvierzigster Kontakt
+Montag, 1. Juni 1981, 1.10 h
+Billy:
+Du bist etwas unvorsichtig, Quetzal. Vom Parkplatz droben sieht man nämlich dein Schiff hier drunten am Waldrand. Besonders das Licht ist gut sichtbar.
+Quetzal:
+1. Ausser Eva ist ja niemand dort, und sollte sich jemand Fremder nähern, dann werde ich das frühzeitig genug feststellen.
+Billy:
+Gewiss, aber du hast den schalldämmenden Schutzschirm zu früh geöffnet. Ich habe eben noch recht laut das Sirren gehört.
+Quetzal:
+2. Sehr weit ist das nicht gedrungen, doch aus welchem Grund hast du mich gerufen?
+3. Du wusstest doch, dass ich heute nacht herkommen werde.
+Billy:
+Ach nee, ich dachte, dass du mich vergessen hättest, denn ich war der Ansicht, dass du mich am letzten Montag zu dir rufen wolltest.
+Quetzal:
+4. Du irrst dich.
+Billy:
+Dann ist es ja gut. Ich dachte nämlich bereits, dass wieder etwas angefallen sei in negativem Sinn. Seit unserem letzten Zusammentreffen habe ich nämlich allerhand erfahren, das recht unerfreulich war, trotz der Freude, die ich andererseits ebenfalls hatte.
+Quetzal:
+5. Du sprichst von Meriam und Anatol.
+Billy:
+Genau. Bisher sprachen wir darüber ja stets nur sozusagen unter Ausschluss der Öffentlichkeit, weil diese Belange nicht zu einem früheren Zeitpunkt bekanntwerden sollten. Dies führt nun aber dazu, dass die Gruppemitglieder darüber nicht orientiert sind.
+Quetzal:
+6. Das wurde bewusst so gehalten, wie du weisst.
+7. Andererseits haben wir aber auch dich selbst nicht über alle Dinge gänzlich aufgeklärt, weil wir nicht Hoffnungen in dir erwecken wollten, die sich dann vielleicht doch nicht erfüllen würden.
+Billy:
+Das weiss ich inzwischen auch. Meriam hat es mir erklärt. Du warst mit einigen deiner Leute in Amerika bei eurer dortigen Gruppe. Mit der zusammen habt ihr euch bemüht, einige Amerikaner durch starke Impulse für unsere Sache zu gewinnen, wobei ihr euch auch lange Zeit bemüht habt, Elsi entsprechende Impulse zukommen zu lassen, denen sie hätte Folge leisten und die von euch Beeinflussten hätte aufsuchen sollen.
+Quetzal:
+8. Darüber bist du richtig informiert worden.
+9. Leider jedoch hat Elsi hoffnungslos versagt, denn wie bei ihrer ersten Amerikareise hat sie sich von Land und Leuten überrollen lassen, so sie für unsere Impulse unfähig war, diese zu empfangen.
+10. Ihr Sinn war im grossen und ganzen nur darauf ausgerichtet, einen rein privaten Urlaub zu geniessen und die fremden Eindrücke von Land und Menschen ungehemmt, unkontrolliert und widerspruchslos in sich wirken zu lassen.
+11. Wie bei ihrer ersten Reise führte das dazu, dass sie völlig unobjektiv dahinlebte und ihre ihr aufgetragene Aufgabe missachtete und nicht erfüllte.
+12. Im Gegenteil, sie zerstörte sehr viel und verunmöglichte, dass sie euch einen Betrag von 68'000.– US-Dollar überbringen konnte, den verschiedene Personen gewillt waren ihr auszuhändigen, wenn sie ihre Mission getreulich den Anweisungen erfüllt hätte.
+13. In ihrer Herrschsucht, Eigenwilligkeit, Sturheit, Selbstherrlichkeit, Widerspenstigkeit und Rechthaberei brachte sie es sogar zuwege, Streit mit massgebenden Personen zu erzeugen, wobei sie wie eh und je uneinsichtig und stur das Fehlerhafte der anderen Partei zuschiebt und selbst ohne Fehler sein will, wie sie es seit geraumer Zeit in vermehrtem Masse auch gegenüber den Gruppengliedern auf die Spitze treibt.
+14. Dadurch wirkt sie auch in eurer Gruppe äusserst zerstörerisch, weshalb es dringend erscheint, dass sie aus der internen Gruppe vorderhand ausgeschlossen wird, wie dir das in unserem Auftrage von Meriam mitgeteilt wurde.
+Billy:
+Das ist ein verdammt harter Kurs, Quetzal. Ich finde, dass es noch einen andern Weg gibt, nämlich dass sie ein letztes Mal verwarnt wird, und zwar schriftlich, weil sie ja stets dazu neigt, alles zu bestreiten, was ihr erklärt oder was sonst besprochen wurde. Damit geht sie stets so weit, dass Streitereien daraus entstehen, denn stets bleibt sie stur bei ihren bestreitenden Behauptungen, bis Streit aufkommt. Sie ist dabei ebenso stur wie mit dem Nichteinsehenwollen ihrer Fehler, die sie mit präzisionshafter Bestimmtheit immer anderen in die Schuhe schiebt. Die Gruppe ist sich nun nach dem neuerlichen Querschlagen von Elsi in Amerika einig darüber, dass ihr erst einmal eine allerletzte und schriftliche Verwarnung gegeben werden soll. Wenn sie diese jedoch nicht beachtet, dann soll sie für zwei Jahre aus der Kerngruppe ausgeschlossen werden, jedoch mit der Auflage, dass sie ihre Kerngruppepflichten trotzdem und weiterhin zu erfüllen hat. Sollte auch dies nicht die erforderliche Wandlung in ihr bringen, dann erst würden wir sie ganz aus der Kerngruppe ausschliessen. Was meinst du dazu?
+Quetzal:
+15. Eine gute Lösung, und sie entspricht eher den Erfordernissen in eurer Gruppe als unser Vorschlag eines sofortigen Ausschlusses.
+Billy:
+Finde ich auch, doch nun zu Anatol und Meriam, wobei ich einige Dinge repetieren möchte, auch zum besseren Verständnis jener, welche später unser Gespräch nachlesen werden: Anatol ist ein Mann, der von einer Gruppe Ausserirdischer als Kontaktperson herangezogen wurde, um auf der Erde eine ganz bestimmte Aufklärungsarbeit zu betreiben. Er steht oder stand dabei in Kontakt mit Menschen jener Gruppe, die unter der Führung eines gewissen ASHTAR SHERAN stehen. Diese Ashtar Sheran-Leute arbeiteten früher mit den Gizeh-Intelligenzen zusammen und wurden deshalb von den Plejadiern vom Planeten Erde vertrieben und deportiert. Die genauen Daten darüber müssten in unseren früheren Kontaktberichten (Siehe: Block 1, 36. Kontakt, Montag, 20.10.1975, S. 460 ff. und 38. Kontakt, Donnerstag, 13.11.1975, S. 488 ff. und Block 2, 44. Kontakt, Montag, 16.2.1976, S. 81 ff.) zu finden sein, denn meines Wissens wurden diese Dinge zwischen euch und mir offiziell besprochen. Im Verlaufe der letzten Jahrzehnte jedoch haben sich Ashtar Sheran und seine Leute einsichtig so zum Positiven und zur wahrlichen Wahrheit gewandelt, dass ihnen erlaubt wurde, auf der Erde praktisch in einem Wiedergutmachungsprozess oder in einer Wiedergutmachungsmission tätig zu sein, wobei ihnen die Plejadier verschiedene ihrer eigenen älteren Schiffe zur Verfügung stellten. So kamen vor schon geraumer Zeit Leute der Ashtar Sheran-Gruppe wieder zur Erde, suchten hier neuerlich Kontakt und arbeiteten oder arbeiten für eine bestimmte Wahrheitsmission, die unter anderem darin besteht, eure Existenz und meine Mission zu bekräftigen. Meriam hingegen, ein junges Mädchen von noch nicht ganz 17 Jahren, ist eine jener Telepathie-Kontaktpersonen von euch Plejadiern, von denen ihr mir öfters erzählt habt. Das Mädchen kennt Anatol persönlich und ist ausserdem äusserst kraftvoll gebildet in Geisttelepathie und verschiedenen anderen Kräften, die sie zum Zwecke unserer ganzen Mission einsetzen soll. In der vorletzten Maiwoche hat sie mich gerufen, wobei ich ihre ungeheure Stärke der Geisttelepathie feststellen konnte. Durch sie erfuhr ich dann auch die näheren Zusammenhänge ihrer und euerer Gemeinschaftsarbeit und die unerfreulichen Tatsachen in Amerika um Elsi. Sie sprach aber auch von Anatol, der ihren Angaben gemäss seine öffentliche Aufklärungsarbeit etwa zum selben Zeitpunkt begonnen hat, zu dem sie mit mir Kontakt aufnahm.
+Quetzal:
+16. Deine Ausführungen sind korrekt.
+Billy:
+Gut, dann liegt aber immer noch das Problem der Auslandmissionsaufnahme an. Meinerseits finde ich, dass dieses Projekt unmöglich ist, denn mit Menschen wie Elsi kann man keine solche Unternehmungen durchführen. Auch haben wir in unserer Gruppe Leute, denen das Arbeiten in keiner Weise liegt. Nichtarbeitsame können wir für ein solches Unternehmen aber ebensowenig gebrauchen wie auch nicht Querschläger und Querulanten. Eine einzige solche Person bei einem solchen Projekt könnte alles innert Tagen zusammenbrechen lassen oder gar das Vermögen aller kosten. Meriam sagte mir dazu, als ich ihr diese Argumente vortrug, dass dies richtig von mir gedacht sei, dass es aber bedeute, dass 47 bis 48% unserer Gruppemitglieder bei einem Misslingen viel ihres Hab und Gutes verlieren könnten. Soll dies nicht der Fall sein, dann müsste sich die gesamte Gesinnung aller Gruppemitglieder noch um vieles und sehr gründlich zum Besseren ändern, wonach dann doch noch das Geplante und Erfordervieles und sehr gründlich zum Besseren ändern, wonach dann doch noch das Geplante und Erforderliche durch alle Mitglieder getan und geschaffen werden könnte. Nur so könnte der einst vorgesehene Prozentsatz wieder aufgebracht oder zumindest auf ein grosses Prozentvolumen aufgestockt werden.
+Quetzal:
+17. Das ist von Richtigkeit, und die einzelnen Gruppenglieder sollen darüber gründlich nachdenken.
+18. Bezüglich der negativen Machenschaften gegen dich, insbesondere ausgehend von den Brüdern H. und K., bemühen wir uns schon seit Wochen um Linderung.
+19. Auch Meriam ist dabei in unserem Arbeitsverband, weshalb du dich nicht zu sehr um diese intrigen zu sorgen brauchst.
+20. Die Gefahren haben sich bereits in dieser Hinsicht verflacht, wobei jedoch anderweitig eine neuerliche Gefahr in Erscheinung getreten ist.
+21. Unseren Berechnungen gemäss drohen dir wieder Anschläge gegen dein Leben, weshalb du wieder vermehrt Vorsicht walten lassen solltest.
+Billy:
+Okay, ich merke mir das. Hab nur keine Angst. Was ich anderweitig noch sagen wollte: Es steht ja jetzt fest, dass die Amerikaner einen grossen Film über uns und unsere Mission drehen wollen. Dazu kann ich mich nach den neuerlichen Querschlägereien von Elsi nicht mehr bereit erklären. Ich kann die Verantwortung dafür nicht übernehmen, dass verschiedene Gruppemitglieder einfach für den Film schöne, liebe und nette Worte und Gesichter machen und dass dies dann so Millionen von Menschen vorge führt wird in Kinos und im Fernsehen, während dann danach, wenn viele dieser Menschen zu uns ins Center kommen, diese sehen und erleben müssen, dass alles nur Mache und Theater war, dass nämlich die angepriesene Liebe, die Erkenntnis und das <nach den Gesetzen und Geboten leben> usw. von verschiedenen Gruppemitgliedern nicht eingehalten und nicht ausgeübt wird, sondern dass es eben nur Theater für den Film war.
+Quetzal:
+22. Das ist ein sehr logisches Argument, doch es sollte trotzdem eine Lösung gefunden werden.
+23. Ein solcher Film bietet eine einmalige Chance, die unbedingt genutzt werden sollte und die ein zweites Mal nicht so schnell wieder in Erscheinung treten wird.
+24. Andererseits drängt die Zeit sehr, denn die Ereignisse beginnen sich langsam zu erweitern.
+25. Du solltest dir diese Angelegenheit also nochmals überlegen, wobei ich dir aber keinerlei Vorschriften machen will, weil ich die Gründe und deine Ehrlichkeit verstehe.
+26. Im Hauptsächlichen aber ruht deine vorderhändige Entscheidung im unmöglichen Benehmen und Verhalten von Elsi und in ihrem Versagen.
+27. Wäre es da nicht für dich möglich, sie vom Film auszuschliessen?
+28. Mit den übrigen Gruppengliedern, das hat sich im Verlaufe der Zeit erwiesen, kannst du vernünftiger reden, wonach eine neuerliche Vorhaltung der Tatsachen und der erforderlichen Änderung zum Positiven nun vielleicht doch endlich den lang herbeigesehnten und schon längst fälligen Erfolg bringen würde.
+29. Du müsstetst den Fehlbaren nochmals sehr genau alles erklären, die erforderlichen Verhaltensweisen, die sprachlichen Ausdrucksformen, die Erforderlichkeit des Lernens, des Zusammenlebens usw.
+30. Ausser Elsi haben wahrheitlich alle Gruppenglieder sehr grosse Fortschritte gemacht, wonach eine nochmalige Darlegung und Erklärung aller Fakten nun eigentlich den Wandel erbringen müssten.
+Billy:
+Du denkst, dass Elsi also einfach aus dem Film ausgeschlossen werden könnte?
+Quetzal:
+31. Es liegt in deinem und in der Gruppe Ermessen, und es wäre die einzige Lösung.
+32. Zudem dürfte es eine eingreifende Lehre für sie sein, hinsichtlich ihres Fehlverhaltens und der Missions-missachtung.
+33. Zugleich sollte ihr auch klargelegt werden, dass weitere auszuführende Missionen in kommender Zeit nicht mehr an sie herangetragen werden können und in jedem Fall anderen Gruppengliedern übertragen werden müssen.
+34. Ihr Versagen ist unentschuldbar, denn sie hatte sehr genaue Kenntnisse davon, was von ihrer Mission abhängig war, trotzdem hat sie diese aber missachtet.
+Billy:
+Ich denke darüber nach. Erst danach unterbreite ich der Gruppe diesen Vorschlag. Wenn ich mich dafür entscheide, dann ist es trotzdem fraglich, ob Elsi ihre Gesinnung ändern und ihren Querulantenkopf brechen wird. Ich weiss nur zu gut, wie rechthaberisch, herrschsüchtig, eigensüchtig, widerspenstig und selbstschuldabschiebend sie ist und ihre eigenen Fehler nie bekennen will. Wie schon bei Ptaah, der ihr einmal Vorhaltungen gemacht hat, wird sie auch bei dir ein andermal ausrufen, dass du ungerecht seiest und alles falsch sehen würdest, eben gerade darum, weil sie alle Schuld immer anderen zuschiebt und die eigenen Fehler dadurch zu verdecken können glaubt. Dabei kann sie dann recht ausfällig werden.
+Quetzal:
+35. Das ist mir bekannt.
+36. Überlege dir alles gründlich, und wenn du zu einem positiven Resultat kommen solltest, dann wäre ich gerne bereit, alles bezüglich der Arbeiten im Center usw. gefälligkeitshalber neu zu organisieren.
+37. Dies würde aber bedingen, dass jedes einzelne Gruppenglied seinen Verpflichtungen nachkommt.
+38. Es wäre auch die letzte diesbezügliche Bemühung meinerseits.
+Billy:
+Ich trage das den Gruppemitgliedern vor, danach gebe ich dir dann Bescheid.
+Quetzal:
+39. Gut, ich erwarte deine Antwort baldmöglichst.
+40. Jetzt möchte ich dir mitteilen, dass wir uns entschlossen haben, dir in nächster Zeit neuerliche Voraussagen zu nennen, wie dies versprochen war.
+41. Ausserdem wirst du in den nächsten Monaten etwas Zeit erübrigen müssen, um einige neue Dinge zu erlernen, die für dich und unsere Mission erforderlich sind.
+42. Du wirst auch vermehrt mit Meriam zusammentreffen, die du in gewissen Dingen unterrichten sollst.
+43. Auch Anatol wird dabei öfters mit von der Partie sein.
+44. Doch nun genug für heute.
+45. Auf Wiedersehn – und liebe Grussworte an die Gruppenglieder, auch von Semjase, die noch immer auf Erra weilt.
+Billy:
+Vielen Dank, dann tschüss und auf Wiedersehn.
+Billys Kontakt vom 1. Juni 1981
+von Eva Bieri, Schweiz
+Es war Sonntagabend und wir hatten annähernd bis 24.00 Uhr noch die Gartenanlagen besprüht, weil es schon seit Tagen sehr heiss war und kein Regen fiel. Meinerseits hatte ich diese Nacht von 24.00 Uhr bis 03.00 Uhr Nachtwache und sass vor dem Hause auf dem Sofa. Billy spazierte noch ein bisschen herum und besah sich alles. Auch Rolf Wächter war noch wach und sass auf dem Sitzplatz. Als Billy am Sofa, auf dem ich sass, vorbeikam, sagte er zu mir, er habe so das Gefühl, als ob er heute Nacht noch zu einem Kontakt müsste. Als er dann dem nahen Wald zu spazierte, dachte ich natürlich, dass er zu Fuss an seinen Kontaktort ginge. So schaute ich ihm nach, bis er verschwunden war und guckte dann in den wunderschönen, sternenübersäten Himmel. Nach etwa 10 Minuten hörte ich ganz leise, doch deutlich ein Geräusch vom Wald herüber, in dem Billy verschwunden war. Rolf hörte es ebenfalls, stand auf, kam zu mir herüber und fragte, wo Billy sei. Meine Antwort war, dass ich es nicht wüsste und er solle doch endlich ins Bett gehen. Er meinte nur, ob ich die Geräusche auch gehört hätte? «Natürlich», antwortete ich ihm, und das Geräusch hatte ich inzwischen als Sirren von Semjases oder Quetzals Raumschiff erkannt, etwas, das ich sehr wohl kannte, weil ich im Jahr zuvor bei Tonbandaufnahmen dabei war, als Billy und einige andere Personen das Geräusch von Semjases Strahlschiff aufnehmen konnten, als es gegen die austretenden Schallgeräusche nicht abgeschirmt war. Das aber wollte ich Rolf nicht unbedingt auf die Nase binden. Also ging er ins Haus, und ich dachte, er sei nun tatsächlich ins Bett gegangen. Da täuschte ich mich aber, denn nach weiteren 20 Minuten kam Billy retour und fragte mich, wer denn das kleine Weglein in der Sirrwies entlang gegangen sei, denn er habe jemanden gesehen, als er am Waldrand gesessen habe. Das konnte natürlich nur Rolf gewesen sein, der durch die Hintertüre wieder hinausgegangen war und nachschauen ging, was wohl so verdächtig geklungen hatte. Der Kontakt kam also noch nicht zustande. Statt dessen weckte Billy seine Frau Popi auf. Sie musste die Wache fortsetzen, weil ich Billy jetzt mit dem Auto zum Kontaktort bringen musste.
+Wir fuhren los, doch die Fahrt dauerte nicht lange, denn es ging nur bis zur Sädelegg, wo Billy schon mehrmals Kontakt gehabt hatte. Wir stiegen zusammen aus und schauten in die Runde, als Billy auf einmal sagte: «Schau mal, siehst du etwas am Waldrand dort?» Ich guckte und entdeckte tatsächlich in etwa 300 Metern Entfernung ein hell schimmerndes und grosses Licht, das einmal mehr und einmal weniger intensiv leuchtete. Es war Quetzals Schiff. Billy sagte noch, ich solle mich auf die Bank unter dem Baum am Parkplatz setzen – und dann bewegte ich mich nicht vom Fleck, als Billy auf das Licht zumarschierte. Nach etwa zwei Minuten hörte ich wieder das wohlbekannte Sirren von Quetzels Schiff, und ich Blödmann dachte noch, er mache das extra, damit ich etwas zum Grinsen hätte. Das war natürlich nicht der Fall – logisch nicht. Billy erklärte mir später, dass, wenn er jeweils einsteige, manchmal die Geräusch-Abschirmung des Schiffes zu früh geöffnet werde, wodurch dann das Sirren gehört werden könne. Item, ich blieb wie angewurzelt auf meinem Platz stehen und getraute mich nicht einen Schritt vorwärts zu tun, weil ich wusste, dass die Plejadier es ganz und gar nicht gerne sahen, wenn man sich ihnen näherte. Ab und zu schaute ich in die Runde, ob sich auch niemand nähere und ob auch alles ruhig bliebe, doch es war alles ganz friedlich; man hörte nichts, ausser dem Röhren eines Rehbockes, der anscheinend durch etwas aufgeschreckt worden war. Trotz allem musste ich einige Male herzhaft gähnen, ehe Billy nach 20 Minuten zurückkam. Als ich seine Schritte hörte, beobachtete ich gespannt Quetzals Schiff, das während der vergangenen 20 Minuten andauernd geleuchtet hatte, aber ich sah weiter nichts mehr, ausser dass das intensive Leuchten des Schiffes auf einmal einfach erlosch. Als Billy zurück war, stiegen wir wieder ins Auto und fuhren heim, wo ich meine Nachtwache fortsetzte, die ich bis 4.00 Uhr ausdehnte, weil ich auch noch allerhand Büroarbeiten zu erledigen hatte.

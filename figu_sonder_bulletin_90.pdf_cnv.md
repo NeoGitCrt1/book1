@@ -1,0 +1,915 @@
+## FIGU- SONDER-BULLETIN
+
+###### Erscheinungsweise: Internetz: www.figu.org 21. Jahrgang Sporadisch                 E-Brief: info@figu.org Nr. 90, Juni 2015
+
+### An alle Mächtigen der EU und der USA: Beendet eure Sanktionen gegen Russland, sonst droht durch eure grenzenlose Macht- und Expansionsgier ein neuer Weltkrieg!
+Infolge der unwürdigen und feindseligen Drohungen und Sanktionen durch die EU zusammen mit den USA
+gegen Russland hat sich zur Zeit alles zu einem neuen ‹Kalten Krieg› entwickelt und läuft bedrohlich auf
+eine weltweite Katastrophe hinaus. Das bereits bestehende internationale Debakel droht zu einem Weltkrieg zwischen der EU – zusammen mit dem Verbündeten USA – und Russland hinauszulaufen. Schuld
+daran sind allein die EU, die USA und die Nato, die sich die Ukraine als Bollwerk gegen Russland einverleiben wollen, was leider von den naiven Ukrainern noch befürwortet und angestrebt wird.
+Ihr Mächtigen der EU und der USA: Beendet sofort alle Sanktionen, Feindseligkeiten und Repressalien gegen
+Russland sowie restlos alle Einmischungen und reicht Russland die Hand für einen wahren FRIEDEN!
+
+###### Symbol ‹FRIEDEN› mit dem darin enthaltenen Symbol ‹LEBENSBAUM›
+
+Anmerkung: Leider wird immer wieder irrtümlich das falsche Symbol, nämlich
+der umgekehrte Lebensbaum, das der Todesrune entspricht, als Friedenssymbol
+verwendet. Diese Todesrune löst in den Gedanken und Gefühlen – also in der
+Psyche des Menschen – Impulse und Regungen von Gewalt, Zerstörung, Gier,
+Vernichtung, Krieg, Tod und allem Negativen in ausgearteter Form aus.
+
+
+-----
+
+### Schon wieder Voraussagen und/oder Prophezeiungen, die sich erfüllen
+
+FIGU-Mitglieder sind sich gewöhnt, immer wieder Dinge in den Nachrichten zu hören, die schon Monate
+oder Jahre vorher in Kontaktberichten oder in Bulletins veröffentlicht wurden und die jetzt eingetreten
+sind. Manchmal ist es dann schwer, sich solche Gedanken zu verkneifen wie: «Hättet ihr doch nur den
+Kontaktbericht oder das Bulletin von damals gelesen, dann wäret ihr jetzt nicht so überrascht.» Michael
+Horn machte über diese Thematik einen Film mit dem Titel ‹As the time fulfills› (erhältlich im WZ-Verlag,
+FIGU).
+Es gibt unzählige solcher Beispiele. Damit es nicht zu ausschweifend wird, sollen hier nur zwei davon
+aufgeführt werden:
+
+1. Im Kontaktbericht Nr. 251 vom 3.2.1995 (‹Plejadisch-plejarische Kontaktberichte›, Block 7; Seite 335)
+sprachen Billy und Ptaah über die Vergangenheit und die Zukunft der Erdenmenschen; dabei erklärte
+Billy: «Zu dieser Zeit wird für den Erdenmenschen die Venus von besonderem Interesse, weshalb auch
+in Betracht gezogen wird, eine bemannte Raumkapsel auf den Vulkanplaneten zu entsenden.»
+Die NASA hat jetzt, also 20 Jahre, nachdem der 251. Kontaktbericht veröffentlicht wurde, tatsächlich die Absicht, eine bemannte Raumkapsel zur Venus zu schicken, und sie will sogar eine ‹fliegende
+Stadt› in der Venus-Atmosphäre einrichten, um Forschung betreiben oder sogar Ressourcen, wie
+Minerale, Gase, etc., fördern zu können. Hierzu ein kurzer Ausschnitt aus einem Artikel, der das
+Thema behandelt:
+
+**_Raumfahrt: NASA will Venus mit Luftschiffen erforschen_**
+_Solarbetriebene Luftschiffe, Städte in den Wolken: Das Konzept von zwei Forschern der US-Raum-_
+_fahrtbehörde NASA für bemannte Missionen zur Venus klingt nach Science-fiction. Doch die Technik_
+_dafür ist weitgehend verfügbar._
+_Pläne für einen bemannten Flug zum Mars gibt es zwar – Realität sind sie aber noch lange nicht._
+_Doch die US-Raumfahrtbehörde National Aeronautics and Space Administration (NASA) plant schon_
+_Missionen zu anderen Planeten, der Venus beispielsweise, wie das US-Wissenschaftsmagazin IEEE_
+_Spectrum berichtet._
+_(Quelle: golem.de)_
+
+Quellen/Internetzseiten zu diesem Thema:
+http://www.golem.de/news/raumfahrt-nasa-will-venus-mit-luftschiffen-erforschen-1412-111237.html
+http://edition.cnn.com/2014/12/23/tech/innovation/tomorrow-transformed-venus-blimp-city/
+
+2. Im FIGU-Sonder-Bulletin Nr. 32 vom Januar 2007 sowie im Kontaktbericht Nr. 7 vom 25. Februar
+1975 ist die Rede von der geschichtlichen Entwicklung und Evolution des Menschen, worin die
+Plejaren erklären, dass der Mensch nicht vom Affen abstamme, wie von Darwin theoretisiert wurde,
+sondern dass der Mensch eine eigene Entwicklungslinie hat und dass die Affen vom Menschen abstammen. Die erste Bestätigung dieser interessanten Erklärungen erfuhr ich durch die französische
+Wissenschaftszeitschrift ‹Science et Vie›, N° 113 (Ausgabe: Juni 2010), die sich in meinem Besitz
+befindet, also gut 35 Jahre, nachdem dies von Billy und Semjase erwähnt, und drei Jahre, nachdem
+dieses Thema im Sonder-Bulletin Nr. 32 nochmals aufgegriffen wurde.
+
+Zusammengefasst steht im Artikel folgendes: «Vor zwanzig Jahren waren nur drei grosse Menschen_familien bekannt, der Austrahlopitecus (4,4 bis 2 Millionen Jahre alt), der Paranthropocus (2,4 bis_
+_1 Millionen Jahre alt) und der Homo sapiens (2 Millionen Jahre alt); mittlerweile sind noch weitere_
+_hinzugekommen, wobei der älteste, Sahelanthropus Tchadensis, 7 Millionen Jahre alt ist. (Tournai,_
+_2001, im Tschad)_
+
+
+-----
+
+_Genetisch und anthropologisch wurde nachgewiesen, dass der Schimpanse und der Mensch vom_
+_gleichen Vorfahren abstammen. Die Anthropologen und Genetiker drücken es so aus: «Der Mensch_
+_stammt nicht vom Affen ab, sondern er ist selbst einer.»_
+_Sie gehen jetzt davon aus, dass der Affe nicht unser Vorfahre ist, sondern ein Cousin, der sich vor_
+_8 Millionen Jahren von unserer Linie abgetrennt hat. Um noch genauer zu sein, haben sich vor_
+_zwischen 12 und 10 Millionen Jahren zuerst der Orang-Utan, vor 8 Millionen Jahren dann zuerst_
+_der Gorilla und danach der Schimpanse von der menschlichen Linie abgespaltet, wobei sich unsere_
+_Art dann auf der eigenen Linie weiterentwickelt hat.»_
+
+Somit ist der Wissenschaft offiziell bekannt, dass die Affen und der Mensch gemeinsame Vorfahren
+haben, die Zweibeiner waren. Die weiteren Forschungen laufen darauf hinaus, dies auch genetisch zu
+beweisen, was teilweise schon Erfolg hatte. Das ist mittlerweile keine Theorie mehr, sondern es wurde
+bewiesen, dass Mensch und Menschenaffen gemeinsame Vorfahren haben, von denen sich die Menschen affen abgespaltet haben.
+
+Weitere Quellen:
+http://www.redorbit.com/news/science/1763298/study_man_did_not_evolve_from_apes/
+http://www.welt.de/wissenschaft/article106414178/Vorfahren-von-Affe-und-Mensch-in-Asien-aufgespuert.html
+
+Das sind nur zwei Beispiele aus einer riesengrossen Reihe von Voraussagen, die schon ab den 1950er
+Jahren von Billy/BEAM, wie auch ab den 1970er Jahren immer wieder von den Plejaren und von Billy
+gemacht wurden und die eigentlich die Menschen nachdenklich stimmen sollten. Leider gibt es aber
+immer noch Menschen, die sich weigern, beim ‹Billy Meier›-Fall das Ganze zu sehen, folglich sie sich
+Bilder oder Kontaktberichte herauspicken, in denen sie entweder vermeintliche Fehler erkennen, oder
+wenn doch Fehler vorhanden sind (die Plejaren, die Mitglieder der FIGU und Billy sind eben auch nur
+Menschen, die Fehler machen können), diese nutzen wollen, um Billy der Lüge bezichtigen zu können.
+Diese ‹armen Würstchen› benehmen sich wie ‹typische Wissenschaftler›, die unbedingt und auf Biegen
+und Brechen einfach ihre Agenda durchbringen wollen – egal ob diese der Richtigkeit entspricht oder
+nicht –, die nur auf Geld oder einen anderen Vorteil abzielt, oder wodurch das Durchbringen der
+Sache von ‹Oben› gefordert wird. Ein solches Handeln hat nicht viel mit wirklich neutraler Wissenschaft um der Wissenschaft willen zu tun. Die Zukunft wird – gemäss den Voraussagen von BEAM, wie
+auch hinsichtlich der Aussagen und Erklärungen in den Kontaktgesprächen mit den Plejaren – Billy
+immer wieder recht geben.
+Nicolas Weiss, Luxemburg
+
+### Leserfrage
+Frage: In Ihren Büchern und Schriften schreiben Sie, dass der Geist eine separate Kraft im Menschen
+sei, der/die nichts mit dem Bewusstsein zu tun habe. Und sie schreiben auch, dass es keine Geisteskrankheit und kein ‹Geistiges Eigentum› gebe usw. Was muss man denn unter Geist und Bewusstsein
+verstehen?
+Frau N. Bösch, Schweiz
+
+#### Antwort:
+Ihre Frage ist nicht mit wenigen Worten zu beantworten, denn das Ganze bedarf einer längeren Ausführung, weshalb ich einen von mir verfassten Artikel als Antwort zur Sprache stelle:
+
+
+-----
+
+#### Was ist Geist und was Bewusstsein?
+###### Was unter diesen Begriffen zu verstehen ist, woher der Betriff ‹Geist› stammt und was er im Wortsinn bedeutet
+Nun, als erstes soll der Begriff ‹Geist› resp. dessen Urbegriff ‹Ghiest› erklärt werden, der tatsächlich auf
+Nokodemion zurückführt und in den Speicherbänken zu finden ist, wobei in diesen auch die Bedeutung
+‹Erwecken› gefunden werden kann. Wenn daher z.B. von schöpferischer Geistenergie die Rede ist,
+dann bedeutet dies ‹schöpferische Erweckungs-Energie›. Daraus ist zu verstehen, dass die Schöpfung
+resp. der Schöpfungsgeist ein Faktor des Erweckens resp. des Kreierens ist, und zwar durch die Kraft,
+Schwingungen und Impulse ihrer/seiner eigenen Energie. Allein in diesem Sinn ist der Begriff Geist zu
+verstehen.
+Eine Zugabe in den Speicherbänken erklärt, dass der Begriff seit alters her gleichbleibend bis in die
+alte Sprache ‹German› überliefert ist, aus der ja letztendlich die deutsche Sprache entstand. Als dann
+der Sprachstamm ‹German› in den Hintergrund gedrängt wurde, erfuhr der Urbegriff ‹Ghiest› verschiedene Veränderungen, wobei letztendlich der Begriff zum Wort ‹Geist› geformt wurde. Beim
+ganzen Veränderungsprozess ging dabei auch der Begriffssinn verloren und wurde mit ‹schaudern›,
+‹erschrecken› und ‹erregen› usw. erklärt, um dann letztlich in der neueren Zeit mit religiösen und sektiererischen Vorstellungen eines Gott-Geistes vermischt zu werden, was auch im Griechischen mit ‹pneuma›
+und im Lateinischen mit ‹spiritus› usw. Einlass gefunden hat. Der Geist wurde z.B. auch mit einer Seele
+bis hin zu Jenseitserwartungen verknüpft und umfasst bis in die heutige Zeit auch oft spirituelle Annahmen
+in bezug auf eine nicht an den leiblichen Körper gebundene, jedoch auf ihn einwirkende reine oder
+absolute, transpersonale oder gar transzendente Geistigkeit, die von einem Gott geschaffen oder ihm
+gleich oder wesensgleich, wenn nicht gar mit ihm identisch sei. In der christlichen Vorstellungswelt
+dagegen wird sogar ein ‹Heiliger Geist› als Person verstanden, in symbolischer Weise als Taube oder
+als Auge dargestellter ‹Geist Gottes›.
+Der Begriff ‹Geist› allgemein hat auch anderweitig Einlass in den Sprachgebrauch des Menschen der
+Erde gefunden, wobei damit sehr seltsame Blüten getrieben werden. So wird z.B. seit alters her und bis
+in die heutige Zeit das Bewusstsein des Menschen als Geist verstanden, folglich dieses von ihm angesprochen wird, wenn er den Begriff ‹Geist› benutzt, wie z.B. bei einem Gebet. Das kann an und für sich
+so akzeptiert und gelassen werden, weil ja in jedem Fall immer das eigene Bewusstsein angesprochen
+werden muss, um es zu wertvoller Aktivität zu animieren. Falsch ist es jedoch, wenn dabei der Begriff
+‹Geist› mit einer Gottheit und mit einem Gotteswahnglauben verbunden ist, weil nämlich in diesem Fall
+dümmlich versucht wird, mit etwas Imaginärem und Nichtexistentem in Verbindung zu treten.
+Weiter nutzt der Mensch der Erde in falscher Weise den Begriff ‹Geist› auch für seine Denkkraft und
+für seinen Verstand, wie auch in Weisen wie: Sein Geist hat sich verwirrt; sein Geist ist gestört; er ist
+geisteskrank; grosse Geister; er ist kein grosser Geist; ein Mensch mit wachem, regem oder langsamem
+Geist; er hat Geist; ein geistreiches Buch usw. Weiter wird damit auch die Gesamtheit der Gedanken
+und Vorstellungen bezeichnet; wie auch, dass im Geist ein Ereignis noch einmal erlebt oder im Geist
+vor sich gesehen wird. Auch eine Einstellung oder Gesinnung wird mit dem Geist in Zusammenhang
+gebracht. Auch die Lebensäusserungen und der Geist der oder einer Zeit usw. wird fälschlich verwendet,
+obwohl der Geist mit all diesen Dingen und Faktoren rein nichts zu tun hat, weil dafür in jedem Fall
+einzig und allein das Bewusstsein zuständig ist. Weitere völlig falsche Formen finden sich auch mit den
+Reden in bezug auf Branntwein aus vergorenen Früchten und Beeren usw., wie Erdbeergeist usw. Auch
+in bezug auf Menschen im Hinblick auf bestimmte Eigenschaften und Fähigkeiten, auf die Wirkung,
+die sie ausüben, wird fälschlich der Begriff Geist verwendet; wie auch ‹sie ist der gute Geist des Hauses›;
+‹du bist ein unruhiger Geist›; ein ‹dienstbarer Geist› usw.
+Letztendlich wird der Begriff ‹Geist› fälschlich auch noch verwendet für (angeblich) wiederkehrende
+Verstorbene sowie für gestaltmässige Erscheinungsbilder von Toten. Mancherorts und im Volksglauben
+werden auch Naturwesen in Menschengestalt als Erdgeist oder Luftgeist bezeichnet, wie aber auch
+angebliche überirdische Wesen, Gespenster und, wie bereits erwähnt, der Heilige Geist; der Geist
+
+
+-----
+
+der Finsternis mit dem teuflischen Geist. Weiter geht es auch mit dem Glauben an Geister; an einen
+bösen oder guten Geist, wie auch mit der Redensweise «Bist du von allen guten Geistern verlassen?».
+Als Geist oder geistbedingt usw. werden fälschlicherweise auch Dinge, Sachen und Zustände usw. bezeichnet, die damit nicht das Geringste zu tun haben, wie: Auffassungsgabe, Auserwähltheit, Begnadung,
+Begriffsvermögen, Charakter, Einbildung, Einfallsreichtum, Empfindung, Einsicht, Erfahrung, Erkenntnisvermögen, Fachmann, Fähigkeit, Gefühl, Gelehrtheit, Gescheitheit, Geistesgrösse, Geisteskraft, Geistes stärke, Gemüt, Genialität, Genie, Genius, Gesinnung, Humor, Ideenreichtum, Individualität, Inneres,
+Innenleben, Innenwelt, Innerlichkeit, Instinkt, Intelligenz, Klugheit, Koryphäe, Kreativität, Lebensfreude,
+Leuchte, Mutterwitz, Natur, Naturell, Phänomen, Persönlichkeit, Produktivität, Psyche, Talent, Scharfblick, Scharfsinn, Schlauheit, Schlagfertigkeit, Schöpfergeist, Schöpfertum, schöpferische Persönlichkeit,
+Seele, Spezialist, Urteilsfähigkeit, Urteilskraft, Veranlagung, Vision, Wahn, Weisheit, Weitblick, Weitsichtigkeit, Wesen, Witz, Wesensart usw.
+Manche Menschen der Erde denken, dass der Geist das Gehirn sei, während andere annehmen, dass
+irgendein anderer Teil oder eine Funktion des Körpers, wie z.B. das Bewusstsein, als Geist zu benennen
+sei. Das ist jedoch grundfalsch, denn das Gehirn ist rein körperlich-materieller Natur, und in diesem
+ist das Bewusstsein verankert. Das Gehirn selbst ist etwas, das mit den Augen gesehen werden kann,
+wenn es freigelegt wird, wie es aber auch von aussen apparaturell betrachtet oder mit elektromagnetischen Sonden in seiner Tätigkeit gemessen werden kann. Also kann es photographiert, analysiert und
+operiert werden. Dies, während das Bewusstsein in dieser Weise nicht eruierbar ist, weil es eine feinstoffliche Funktion des Gehirns darstellt und unter Umständen nur elektronisch in seiner Tätigkeit gemessen werden kann. Gegensätzlich zum Gehirn ist der Geist nicht materieller, sondern feinststofflicher
+Natur und demgemäss also noch sehr viel feinstofflicher als das feinstoffliche Bewusstsein, das eine
+Teilfunktion im Gehirn ausübt. Und da der Geist feinststofflicher Natur ist, kann er weder durch irgendwelche Apparaturen noch Geräte, noch mit den Augen beobachtet, gesehen oder sonstwie registriert
+werden. Also kann er auch weder photographiert oder gar durch körperlich innere oder äussere Umstände, noch durch Gedanken, Gefühle, Krankheit, Unfall, Drogen, Gifte oder Medikamente usw. angegriffen, geschädigt oder durch eine Operation behandelt werden. Das Gehirn ist also nicht der Geist,
+sondern dieses ist einfach nur ein Teil des Körpers, und innerhalb dieses gibt es nichts, was als Geist
+identifiziert werden kann, ausser dem Geist selbst, der als winzigstes Teilstück Schöpfungsgeist im Dach
+des Mittelhirns (= paariger Knotenpunkt = Colliculus superior) angesiedelt ist. So sind der gesamte
+Körper und das Gehirn des Menschen sowie der Geist zwei grundverschiedene Wesenheiten, die sowohl in ihrer grobstofflichen als auch in ihrer feinststofflichen Art grundverschiedener Natur sind. Und
+wird das Bewusstsein betrachtet, das eine Funktion des Gehirns ist, so kann dieses durch Gedanken
+z.B. äusserst beschäftigt und regsam sein und von einem Objekt zum anderen springen, während der
+Körper völlig entspannt und regungslos bleibt. Der Geist selbst ist dabei in keiner Art und Weise betroffen, denn er ist nicht identisch mit dem Bewusstsein, sondern er ist jener schöpferische Energiefaktor,
+der das Bewusstsein belebt, wodurch auch der Körper und alle seine Funktionen angetrieben werden.
+Dies sagt klar und deutlich aus, dass das Bewusstsein, der Körper und das Gehirn absolut nicht von
+gleicher Natur sind wie der Geist.
+In den Speicherbänken von Nokodemion habe ich in bezug auf den Unterschied zwischen dem Geist und
+dem Menschen ein Wort gelernt, das anschaulich darstellt, dass der Geist des Menschen ein winziges
+Teilstück des Schöpfungsgeistes im Menschen ist. So kann dieser mit dem Menschen z.B. in der Weise
+verglichen werden, indem der menschliche Körper mit einem Gasthaus verglichen wird, in dem der
+Geist als Gast verweilt, daselbst er sich auch ernährt und dafür ein Entgelt leistet. Wird das Gasthaus
+jedoch abgerissen oder sonstwie zerstört, dann verlässt der Geist, der ja Gast ist, die Stätte der Zerstörung. Auf den Menschen umgesetzt bedeutet das, dass der Geist in ihm als Gast wohnt und lernt
+(Kost und Logis bezieht) und zugleich den gesamten Körper belebt (Kost und Logis bezahlt); und wenn
+der Mensch stirbt, dann entweicht der Geist umgehend dem Körper und geht in seinen Jenseitsbereich
+über, um dann bei der nächsten neuen Persönlichkeit im nächsten Leben wieder an sie gebunden zu
+werden und ein neuerlicher Gast im neuen menschlichen Körper zu sein.
+
+
+-----
+
+Der Geist ist also nicht das Gehirn, wie er auch nicht irgendein anderer Teil des menschlichen Körpers
+ist. Er muss als ein formloses Kontinuum im Dach des Mittelhirns (= paariger Knotenpunkt = Colliculus
+superior) des Menschen verstanden werden. Und weil der Geist von Natur aus formlos oder immateriell
+ist, kann er auch nicht ertastet oder geharmt, nicht krank und auch nicht durch irgendwelche materielle
+Objekte oder durch Eingriffe des Menschen behindert oder geschädigt werden. Es ist also sehr wichtig
+zu verstehen, dass es keine unfriedliche oder friedvolle Geisteszustände gibt, denn solche Zustände
+sind allein dem menschlichen Bewusstsein vorbehalten. Einzig können unfriedliche oder friedvolle oder
+krankhafte Zustände nur im Bewusstsein in Erscheinung treten, die den inneren Frieden stören oder
+hochheben können, denn einzig das Bewusstsein ist durch die Gedanken und Gefühle fähig, Wut, Neid
+und begehrende Anhaftung, Verblendungen oder wertvolle, friedvolle Zustände zu schaffen, denn der
+Geist selbst verhält sich in jeder Art und Weise absolut neutral und mischt sich nicht in Bewusstseinsbelange ein. Der Mensch allein ist also in jeder Beziehung zuständig für das Wohl und Wehe seines
+Bewusstseins, folglich er für all seine Regungen und gedanklich-gefühls-psychemässigen Leiden stets
+selbst verantwortlich ist, nicht jedoch sein Geist, wie auch nicht andere Menschen oder schlechte gesellschaftliche, materielle oder soziale Umstände usw. Wahrheitlich entstehen alle diesartigen Leiden
+durch verblendete und krankhafte sowie falsche Bewusstseinszustände, wobei die Gedanken und
+Gefühle eine sehr massgebende Rolle spielen.
+Der wichtigste Punkt beim Verstehen des Bewusstseins ist, dass die Befreiung von den genannten Leiden
+nicht ausserhalb desselben, sondern nur in ihm selbst sowie in den Gedanken und Gefühlen gefunden
+werden kann. Eine beständige Befreiung kann also nicht durch den Geist, sondern nur durch die Reinigung des Bewusstseins sowie der Gedanken und Gefühle gefunden werden. Wenn daher der Mensch
+frei von bewusstseins-gedanken-gefühls-psychemässigen Leiden sowie von Problemen und Sorgen sein
+will, und wenn er anhaltenden Frieden, Freiheit und Harmonie und ein immerwährendes inneres
+Glücklichsein finden will, dann muss er sein Wissen und Verständnis des Bewusstseins vertiefen.
+Den menschlichen Geist zu lokalisieren und aufzuspüren – zumindest zur gegenwärtigen Zeit – ist für den
+Menschen unmöglich, weil er weder über die notwendigen Apparaturen noch über sonstige Mittel verfügt,
+um die Geistenergie aufspüren und diese messen zu können. Der menschliche Geist resp. die Geistform
+kann vom Menschen nicht gesehen werden, denn die reine schöpferische Geistenergie kann vom mensch lichen Auge nicht wahrgenommen wie auch nicht gespürt werden. Auch gibt es noch keine Apparaturen
+oder Analysegeräte usw., auch nicht auf dem Gebiet des Ultraviolett oder Infrarot, durch die es möglich wäre, den Geist resp. die Geistform oder die schöpferische Geistenergie überhaupt sichtbar oder
+messbar zu machen. Es ist auch keinem speziellen Bewusstseinszustand des Menschen möglich, den
+Geist resp. die Geistform zu sehen, denn die geistige Energie ist so unsichtbar wie die reine Luft.
+Der Geist resp. die Geistform des Menschen ist rein schöpferisch-energetischer Natur und hat nichts
+mit dem Bewusstsein zu tun, wie auch nicht mit den Gehirnströmen, die wahrgenommen und gemessen
+werden können. Irrtümlich wird seit alters her das Bewusstsein als ‹Geist› des Menschen bezeichnet,
+wobei der Geist jedoch völlig anderer Natur als das Bewusstsein ist. Der Geist resp. die Geistform des
+Menschen ist rein schöpferisch, während das Bewusstsein ein Faktor des Menschen und dafür zuständig
+ist, dass daraus Gedanken geschaffen werden können, wobei auch die ganze Ratio daraus hervorgeht,
+so also auch Verstand und Vernunft. Der Geist resp. die Geistform hingegen ist einzig die schöpferischnaturmässig vorgegebene Energie, die den menschlichen Körper belebt.
+Wenn der Geist den menschlichen Körper verlässt, dann entweicht er in seine Jenseitsebene, die im
+selben Raum existiert wie die Gegenwarts-Wirklichkeit des Planeten, wobei die sogenannte Jenseits ebene gegensätzlich zum realen materiellen Wirklichkeitsraum anders dimensioniert ist, und zwar in
+feinststofflich-geistenergetischer Natur. In bezug auf den Planeten ist die Jenseitsebene also um diesen
+herum angeordnet, wie diese Ebene weiter aber auch universumweit gegeben ist, jedoch gegenüber
+der materiellen Wirklichkeitsebene in einer feinststofflichen, zu der der Mensch als materielle Lebensform in keiner Weise Zugang hat und folglich auch nichts sehen und nichts wahrnehmen kann. Also
+ist es in dieser Ebene für den Menschen unmöglich, den dem materiellen Körper entwichenen Geist
+resp. die Geistform zu sehen oder sonstwie wahrzunehmen.
+
+
+-----
+
+Dass der Jenseitsbereich des Planeten in andersdimensionierter Form als der reale materielle Wirklichkeitsraum nicht nur in diesem angeordnet ist, sondern auch im gesamten Universum, das hat seine
+Begründung. So geht aus der Geisteslehre hervor, dass wenn ein Planet zerstört oder einfach lebens unfähig wird, dass dann die darauf existierenden Geistformen und die sonstigen brachliegenden Geist energien nicht vernichtet werden, sondern dass diese ‹abwandern›, um so lange durch den Weltenraum
+zu ‹ziehen›, bis ein neuer Planet gefunden wird, auf dem menschliches Leben existiert. Auf diesem Planeten
+‹siedeln› sich die Geistformen dann wieder an, vermischen sich mit bereits dort existierenden und gelangen so wieder resp. weiter in einen Zyklus der Reinkarnation resp. der Wiedergeburt.
+SSSC, 16. Januar 2014, 15.03 h
+Billy
+
+### Hassverbreiter sollten aus der Gesellschaft ausgeschlossen werden
+Vor kurzem wurde das ‹Charlie Hebdo›-Magazin in Paris wieder einmal Teil gewalttätiger Ereignisse,
+die dieses Mal tödlich endeten. Das Magazin selbst hat bereits eine lange Geschichte, in der es soziale
+Unruhen generierte, und es ist eine von vielen ähnlichen Zeitschriften, die ein für allemal gestoppt werden
+sollten. Bereits seit den Anfängen seines Bestehens veröffentlichte es Cartoons, Reportagen, Polemiken
+und Witze, die die Frage nach der psychischen Gesundheit der jeweiligen Autoren stark aufkommen
+lässt. Die Texte und Zeichnungen sind meist geschmacklos oder völlig asozial, ganz zu schweigen von
+den kranken und verdrehten Perspektiven der beteiligten Autoren, Zeichner, Illustratoren und ‹Künstler›.
+Die Texte und Zeichnungen können absolut nicht mit Satire verglichen werden – obwohl sie von denen,
+die zu blind oder zu feige sind, um die wirkliche Gefahr für eine friedliebende Gesellschaft und den
+Frieden in der Welt anzuerkennen, als solche beschrieben wird. Die realen Fakten über ‹Charlie Hebdo›
+und andere kranke Zeitschriften ähnlicher Art werden irrtümlicherweise und sehr verantwortungslos
+unter den Teppich gekehrt und als ‹freie Meinungsäusserung› falsch eingeschätzt. Das allein lässt den
+Missbrauch und einen brennenden Grund für die Propaganda des Magazins aus Hass, Ungerechtigkeit und Grausamkeit zu. 1970 zum Beispiel wurde ‹Charlie Hebdo› (das damals eine Wochenschrift
+war und ‹Hara-Kiri Hebdo› hiess) wegen den Karikaturen zum Tod des ehemaligen französischen
+Staatspräsidenten und Nationalhelden Charles de Gaulle dauerhaft verboten – aber die Mitarbeiter
+der Zeitschrift beschlossen, das ausgestellte Verbot des wöchentlich erscheinenden ‹Hara-Kiri› zu umgehen, indem sie einfach seinen Namen änderten und ihre bösartigen ‹Arbeiten› fortsetzten, statt ihre
+idiotischen Handlungen und die negativen Reaktionen und Warnungen der Leute zu reflektieren. Der
+neue Name war dann ‹Charlie Hebdo›, abgeleitet von: Charlie (nach dem angeblichen ‹letzten Lacher›
+der Insider über Charles de Gaulle, «der das Verbot und den Absturz für ‹Hara-Kiri› verursachte») und
+Hebdo (von franz. hebdomadaire, d.h. wöchentlich). Offiziell wurde der Name ‹Charlie› aber aus
+anderen Gründen gewählt. ‹Hara-Kiri› erschien ab 1960 ursprünglich hauptsächlich monatlich. Sein Inhalt
+wurde (nicht ohne Vergnügen und die kranke Freude seiner Urheber) von der betroffenen Öffentlichkeit
+schon sehr früh von einem der ersten Leser als ‹dumm und böse› erkannt und beschrieben, was dann
+von der Zeitschrift auch in jedem Detail ausgelebt wurde. Die französischen Behörden anerkannten
+die wachsenden Bedenken bezüglich ‹Hara-Kiri› und verwarnten sie 1961 daher ein erstes Mal in
+Form eines Verbots der Auslage und des Verkaufs an Minderjährige (wegen bösartigen, sexistischen
+und gewalttätigen Titelbildern). Das Verbot wurde leider nur für sechs Monate bestätigt, währendem
+die Titelbilder tatsächlich verbessert, aber kein bisschen weniger pervertiert wurden. 1963 führte das
+Magazin provozierende Photographien und Collagen ein (die ab 1964 besonders bösartig wurden,
+als ob die Leute, die sie machten, völlig ausflippen würden), die im Jahr 1966 in einem weiteren gleichartigen Verbot resultierten. Aber das Verbot wurde aufgrund einer Briefkampagne an Minister Georges
+Pompidou (der später zum Präsidenten von Frankreich gewählt wurde) nach sechs Monaten aufgehoben
+und das Magazin konnte wieder gezeigt und an Minderjährige, Jugendliche, Studenten sowie an Eltern,
+
+
+-----
+
+Soldaten und die Lehrerschaft etc. verkauft werden. Und es durfte offen in Zeitungs- und Zeitschriftenauslagen in Frankreich aufgelegt werden. Es ist nicht klar, warum G. Pompidou das Verbot aufhob,
+aber er spielte wegen seinem bevorstehenden Präsidentschaftswahlkampf bestimmt ‹auf sicher›.
+G. Pompidou und die französischen Behörden ignorierten frühzeitig die Ernsthaftigkeit des Problems
+der Hassverbreitung durch ‹Hara-Kiri› und liessen sich durch einen sehr schwachen und rein politischen
+Ansatz beeinflussen, alle glücklich zu machen. Also wurde – absolut unverantwortlich – beiden das
+gleiche Recht gegeben; denjenigen, die mit ihrem Wahnsinn die Gewalt anheizten, und denjenigen,
+welche sie loswerden und in Frieden leben wollten! Diese dumme politische ‹Gleichheit› ist eine grosse
+Schwäche Frankreichs und wird bedauerlicherweise weiterhin von allen Franzosen erlaubt, während
+das mangelnde Verständnis der Realität offensichtlich ist. Die französischen Wähler wählten Pompidou
+auf den Präsidentensitz und waren blind für seine erschreckende Unwissenheit über die wirkliche
+Gefahr, die von hassverbreitenden Publikationen ausging und die dann seinen Nachfolgern auch ein
+schreckliches Beispiel gab. Jemand, der eine glorreiche Karriere im Sinn hat, anstatt an Wahrheit, Frieden
+und Harmonie interessiert zu sein, hätte nie gewählt werden sollen. Das Böse zieht immer Böses an, solange jene Menschen, die verdorbene Herrscher/innen wählen, nicht besser sind und nur ihre eigene Gier
+nach Auszeichnungen, Trophäen und Preisen verdecken, anstatt endlich gemeinsam zusammenzuarbeiten und Massnahmen zu ergreifen, um Kriegshetzer zu stoppen, bevor noch mehr Blut vergossen wird.
+
+Während egoistische und bedeutungslose politische Träger/innen aufgebaut werden, bleiben die gravierendsten Probleme (wie angst- und hassverbreitende Publikationen) ungeprüft und können skrupellos
+die Denk- und Handlungsweise einer wachsenden Zahl von Menschen infizieren.
+
+**_Hinweis: Der Titel ‹Hara-Kiri› stammt von der japanischen Bezeichnung ‹Seppuku› und steht für eine_**
+_Form rituellen japanischen Selbstmords, der in Amerika und Europa ‹Harakiri› genannt wird und ‹Bauch_
+_schneiden› bedeutet. Diese Zeremonie war für diejenigen reserviert, welche in einem ‹Ehrenkodex›_
+_lebten und die durch suizidale Handlungen sowohl der Verhaftung durch Feinde zu entgehen versuchten,_
+_als auch im Hinblick auf Demütigungen oder Folter._
+
+
+Angesichts der Wahl des Titels und einiger der ersten Titelseiten des Magazins scheint es, dass seltsamer weise und selbstzerstörerisch ein suizidales Verlangen inspiriert und zu einer treibenden Kraft für ‹HaraKiri› (später ‹Charlie Hebdo›) wurde, zielstrebig, gegen jede Vernunft, ein solches brutales Ritual im täglichen Leben anderer zu akzeptieren, es zu normalisieren und Tatsachen der Wahrheit durch Diktieren
+eines eigenen Kodex und eigener Regeln weiter zu verdrehen. Dies ist und war seit Jahrzehnten nichts
+anderes als Gehirnwäsche, die gegen die grundlegenden Menschenrechte von Freiheit und Frieden steht.
+
+Die Monatsschrift ‹Hara-Kiri› wurde viele Male verboten, endete in pornographischem Material und
+wurde im Jahr 1989 eingestellt, während die Beteiligten ihre ‹Arbeit› in ähnlich krankem Sinne weiter führten, aber unter anderen Titeln.
+
+Die wöchentliche Publikation von Charlie Hebdo wurde 1981 wegen mangelnder Finanzierung eingestellt, wurde aber im Jahr 1992 von einigen Mitwirkenden wiederbelebt, die an verschiedenen
+Orten arbeiteten und beschlossen, wieder zusammenzukommen und die Definitionen von ‹Satire› und
+‹Humor› durch Obszönität, Ekel, Provokation, Liebäugeln mit extremen menschlichen Emotionen, Folter,
+Krieg, Mord und Leid, etc. zu missbrauchen. Und für ein, zwei Jahrzehnte schien es, dass die Perversität
+und der schädliche Gehirnwäsche-Einfluss von ‹Hebdo› nur von einigen bemerkt wurde, die Recht
+forderten. Aber die herrschende Unwissenheit, Gleichgültigkeit und Verantwortungslosigkeit sowie die
+schlechten Beispiele, die frühere Machthaber festgelegt und immer noch nicht korrigiert hatten, dauerten
+zwei Jahrzehnte an. Zudem schienen Sicherheitswarnungen und Drohungen den pathologischen Kreuz zug von ‹Charlie Hebdo› nicht stoppen zu können, wen auch immer sie damit wütend machen wollten.
+Und es sind keine Ehre, Würde und kein Mut in einer solchen Entschlossenheit zu finden, sondern
+schierer Wahn und kranke Gesinnung.
+
+
+-----
+
+Am Tag des jüngsten tödlichen Anschlags auf das Personal von ‹Charlie Hebdo› waren die Büros des
+Magazins der französischen Polizei für provokante Probleme für die lokale Gemeinde bereits gut bekannt. Nur vier Jahre zuvor wurden die Büros in einer heftigen Reaktion auf die Diffamierung der
+Religion und die Verleumdung des Propheten Mohammed durch das Magazin mit Benzinbomben angezündet und verbrannt. ‹Hebdo› wurde durch die muslimische Gemeinschaft, die endlich genug hatte,
+als Rechtsfall vor Gericht gebracht. Die Mitarbeiter/innen der Zeitschrift ignorierten diese Tatsache
+völlig und bezeichneten sie als angebliche ‹Hexenjagd›, während ihre weit hergeholte Auslegung von
+‹Meinungsfreiheit› gleichzeitig vor Gericht – das dann gegen jene entschied, welche zu Recht Ge rechtigkeit forderten – von niemand anderem als dem aktuellen Präsidenten Frankreichs, François
+Hollande – der damals Minister war – erneut enttäuschend verteidigt wurde.
+
+Nach der Studie von 2011 und grossen Interventionen der Anwohner, die keine weitere Verbindung
+zu ‹Charlie Hebdo› wollten, wurde angeordnet, das Magazin in ein anderes Büro zu verlegen, wo sich
+am 7. Januar 2015 erwies, dass es wieder einmal einen Angriff provoziert hatte, aber diesmal mit
+automatischen Waffen, mit denen Mitarbeiter/innen und Gäste von ‹Charlie Hebdo› getötet wurden.
+
+
+Nach dem seit langem provozierten Attentat versank Frankreich plötzlich in Qual und Sympathie für
+‹Charlie Hebdo›; Unterstützung zeigte auch Präsident Hollande, der Solidarität mit den ‹Opfern›
+ankündigte. Er konnte auch nicht anders, weil er die angriffige Plattheit, die gefährliche Verleumdung
+und den missbräuchlichen Spott bereits genehmigt und dummerweise vor Gericht als ‹Meinungsfreiheit›
+verteidigt hatte. Und Millionen von Franzosen wurden leider wieder einmal durch seine Politik irre geführt und nahmen blind an Protestmärschen teil, nicht ahnend, dass diese und andere Zeitschriften
+und deren ähnliche Tragödien nicht geschehen wären, wenn nur jemand den Mut gehabt hätte, die
+Wahrheit zu sagen, wodurch die Mannschaft von ‹Hebdo› bereits vor langer Zeit von der Gesellschaft
+hätte getrennt werden können, basierend auf dem schöpferischen Recht der Selbstverteidigung jedes
+Menschen für sein Recht auf Frieden und Freiheit.
+
+Bezüglich des aggressiven Materials, das in ‹Charlie Hebdo› verbreitet wurde, könnte erwähnt werden,
+dass einiges davon Unfrieden, Unfreiheit und destruktive Schwingungen in einem derartigen Ausmass
+ausüben, dass sie bei den Menschen Selbstverteidigungsreaktionen oder eine Abtrennung von der
+Realität hervorrufen. Selbstverteidigung wird bei einer Konfrontation mit tödlicher Bedrohung oder Gefährdung der Gesundheit einer Person instinktiv ausgelöst, während die Realität und die Schöpfungsgesetze abstrakt erscheinen und ausser acht gelassen werden. Unter der Belastung eines zerstörerischen
+Einflusses (der sich im Fall einer Bedrohung der Bewusstseinsgesundheit erst nach Tagen, Monaten
+oder gar Jahren entfalten kann) kann die missbrauchte Person – im Extremfall – wahnsinnig werden
+oder in bewusstseinsmässige Primitivität zurückfallen und radikalisiert werden, weshalb sie Unreales
+in das Leben einbezieht und in Wahnvorstellungen vibriert oder mit total unlogisch destruktiven Kräften
+reagiert, bis die Bedrohung nicht mehr vorhanden ist. In jedem Fall sind an den daraus resultierenden
+Zerstörungen oder Morden nur jene schuldig, welche Konflikte entzünden und Hass verbreiten. Solchen
+kranken Personen sollte nicht erlaubt werden, Teil der Gesellschaft zu sein, weil Hass auf unzählige
+Weisen verbreitet werden kann, wie durch Sprechen, Handeln, Aktivitäten, Hobbys, Haltung, Kleidung,
+usw., usf., daher wäre zur Bewältigung dieser Probleme nur ihre komplette Isolation effizient.
+
+Es ist ein Irrtum anzunehmen, dass ein Mensch einerseits regelmässig brutale, sexistische, gewalttätige,
+verstörende, kranke und stumpfsinnige Bilder oder Texte veröffentlichen, lesen oder ansehen und sich
+andererseits einfach abwenden und sich von diesen Bildern oder Texten trennen und ein ‹normales Leben›
+führen könnte. Nur krank gesinnte Einzelpersonen werden von dieser Art von Material angezogen.
+Und es sollte in einer ordnungsgemäss funktionierenden und eigenverantwortlichen Gesellschaft von
+jedem einzelnen berücksichtigt werden, dass wenn nur das geringste Verlangen nach Brutalität, Förderung von Hass oder Anziehung durch solch negative Aspekte gezeigt wird oder besteht, diese Kranken
+
+
+-----
+
+individueller psychologischer Hilfe bedürfen und in bezug auf genetische oder anderweitig begründete
+psychische Probleme beurteilt werden sollten. Entscheidende Schritte sollten von jeder Person auch
+selbst ergriffen werden, wenn bereits geringste Symptome pathologischer Gedanken oder unkontrolliertes destruktives Verhalten auftritt, weil das unter keinen Umständen toleriert und vor allem nicht als
+persönliche ‹Freiheit› – zu tun und zu lassen, was sie will – oder als individuelle ‹Meinungsfreiheit› erklärt werden darf. Krankes und störendes Verlangen manifestiert sich bei kranken Einzelpersonen, von
+denen Hass und Gewalt ausgeht, was ihre eigene persönliche Tragödie ist. Es ist völlig untolerierbar,
+dass die Gesellschaft solche Personen z.B. durch den Kauf ihrer ‹Arbeiten› unterstützt oder ihren
+Wahnsinn mit unwirksamer Kritik anheizt.
+
+Paradoxerweise können oder wollen die Unterstützer/innen des Magazins und die Weltführer/innen
+die Dinge nicht klar sehen, dass ‹Charlie Hebdo› stillzulegen für alles die einzig vernünftige Lösung ist
+und wäre, nur um sicherzustellen, dass ein sauberes Exempel statuiert wird und dass Hass und Zwietracht verbreitende Zeitschriften dieser Art nicht verkauft oder gedruckt werden dürfen. Stattdessen wird
+Kritik und politische Spielerei oder Manipulation geübt, während die üblichen 60 000 Kopien von
+‹Hebdo› (das die Tragödie natürlich in erster Linie selbst verschuldet hatte) rasch auf eine Million Exemplare anwuchs und eine Woche nach der Schiesserei 7 Millionen Exemplare verkauft waren. Unnötig
+zu sagen, dass dieser unverantwortliche, ignorante und selbstzerstörerische Anspruch und die Zurschaustellung von sadistischen Inhalten vor der Öffentlichkeit bereits seit Jahrzehnten andauert und feige
+hinter ‹Satire› oder ‹Meinungsfreiheit› erklärt und versteckt wird, und aus diesem Grund wird der Zerfall
+sozialer Strukturen weltweit exponentiell beschleunigt und Handlungen von Brutalität und Hass ge fördert – ganz zu schweigen vom Eskalieren schrecklicher Terrorakte. Das Problem mit ‹Charlie Hebdo›
+ist bereits gewachsen und hat jetzt globale Ausmasse erreicht. Viele kranke Menschen, terroristische
+Organisationen und despotische, radikalen Krieg propagierende Regierungen haben begonnen, im
+gleichen Stil und mit Methoden der Manipulation, Gehirnwäsche und gewalttätiger Verleumdung ihre
+idiotischen Ziele und Regierungsprogramme durchzusetzen.
+Krzysztof Filip, Polen
+Übersetzung aus dem Englischen: Bernadette Brand und Patric Chenaux
+
+
+### Aus dem VDS-Infobrief vom 12. März 2015
+#### Zitat der Woche
+«Ich finde, dass Deutsch eine wirklich schöne Sprache ist. Und vor allem so einzigartig.» Das sagte
+die Schauspielerin Sigourney Weaver im Gespräch mit der ‹Stuttgarter Zeitung› über ihre Vorliebe
+für die deutsche Sprache.
+Sie erläuterte: «Die Worte und Sätze erscheinen mir, wenn ich sie sehe, so vollkommen anders
+zusammen gesetzt als in jeder anderen Sprache.» Weaver sei beeindruckt von der Ausdruckskraft
+des Deutschen und bedauere, die deutsche Sprache nicht zu beherrschen.
+(Der Verein Deutsche Sprache im Internet: vds-ev.de)
+Gefunden von Achim Wolf, Deutschland
+
+
+-----
+
+# Stimme
+
+
+auafuf „Chaeilra Hebdo“
+
+
+**!**
+
+
+-----
+
+**wwwwwwwwww.sasek.sasek.vt**
+
+
+-----
+
+### Auszüge aus dem offiziellen 616. Kontaktbericht vom 12. März 2015
+
+**Billy** … du bist ja schon beim Lesen des Artikels, den ich aus dem Internetz kopiert habe und
+den ich dir zeigen wollte, weil ich interessant finde, was in bezug auf die deutsche Bundeskanzlerin
+Merkel geschrieben wird. Zwar habe ich schon am 16. Februar etwas über diese Frau in den 613.
+Kontaktbericht eingefügt, doch finde ich, dass das, was du gerade liest, für viele Menschen, die sich
+für die Inhalte der Kontaktgesprächsberichte interessieren und kein Internetz haben, wissenswert sein
+könnte.
+
+**Ptaah** Richtig, und zwar, dass es sicher angebracht ist, diesen Internetz-Auszug unserem Gespräch
+beizufügen, eben gerade an dieser Stelle meiner Äusserung:
+
+#### DAS MERKEL-REGIME 01: ZIONISTIN MIT IL-PASS ZERSTÖRT DEUTSCHLAND 2008-2014
+###### Die zionistische Jüdin Angela Merkel hat als Bundeskanzlerin mit jüdischem Pass von 2008 bis 2014 Deutschland verschenkt – sie ist eine Agentin
+
+**Filmprotokoll von Michael Palomino (2014)**
+
+Die zionistische Jüdin Angela Merkel hat 2008 bis 2014 Deutschland verschenkt – sie zerstört
+Deutschland
+
+Zionistin Merkel hat einen Israel-Pass und hat von 2008 bis 2014 Deutschland verschenkt – streng
+nach dem zionistischen Programm, die Nationalstaaten Europas zu vernichten. Hierfür wurde der
+Euro geschaffen, damit die Abhängigkeiten dermassen schlimm werden, so dass die Bevölkerungen dann eine Brüssel-Diktatur akzeptieren würden und sich selbst als nationale Identität
+vernichten würden. Das ist der Sinn des Euro, geschildert im Buch von Udo Ulfkotte ‹Gekaufte
+Journalisten› im Kapitel 5.
+
+Frau Merkel macht bei dieser Zerstörung der Nation Deutschland willig mit. Bis 2012 war kaum
+bekannt, dass Frau Merkel nicht nur Deutschland an Brüssel verschenkt, sondern dass sie sogar
+einen jüdischen Pass besitzt und sich mit den hohen Zionisten in Jerusalem herumtreibt. Dies
+zeigt das folgende Video.
+
+Jüdin sein ist normal, aber Zionistin sein und sich mit den hohen Zionisten in Jerusalem herumtreiben und eine zionistische Politik in Deutschland gegen Deutsche betreiben, das geht nun
+wahrlich zu weit. Frau Merkel geht so weit, dass sie die deutsche Fahne ablehnt. Das geht so nicht.
+Da wäre sie als Regierungschefin in Jerusalem doch sicher besser am Platz.
+
+Das folgende Video zeigt die Einstellung von Bundeskanzlerin Merkel. Sie ist nachweislich Jüdin,
+aber leider auch Zionistin mit einem zionistischen Orden der Geheimloge ‹Bnei Brith›. Und Frau
+Merkel steht nachweislich nicht für Deutschland ein, was schon mit den Sanktionen gegen Russ land von 2014 bewiesen ist, die einen Einbruch bei der Industrie von 25% bewirkt haben. Und
+Frau Merkel macht antirussische Politik, setzt den Frieden mit Russland aufs Spiel und lässt sich
+von Obama vorschreiben, wie sie handeln soll. Auch dies kann von der deutschen Bevölkerung
+nicht mehr akzeptiert werden. Es braucht eine Änderung.
+
+Darüber diskutieren müssen wir wohl nicht, denn ich denke, dass du das Ganze derart siehst, dass es
+nur eine Information in bezug darauf sein soll, was über diese Frau Angela Merkel im Internetz zu finden
+ist.
+
+
+-----
+
+**Billy** Exakt, denn ich sehe keinen Grund, dass wir darüber unsere Meinung äussern und also
+auch nicht diskutieren müssen. Es soll ja nur diesbezüglich eine Information sein, was über die Bundes kanzlerin im Internetz geschrieben steht, und inwieweit das Ganze der Richtigkeit entspricht, darüber
+müssen wir wirklich nicht befinden.
+
+**Ptaah** Es wäre unsinnig dies zu tun.
+
+**Billy** … Also etwas anderes: Wir haben doch vor einiger Zeit darüber gesprochen und auch
+eine Wahrscheinlichkeitsberechnung gemacht, dass in der EU-Diktatur schon bald Stimmen laut werden
+würden, dass eine Europäische-Union-Armee auf die Beine gestellt werden soll, was ich kürzlich auch
+in der Gruppe weitergesagt habe. Nun wollte ich in den Gesprächsberichten nachschauen, was und
+wann du und ich darüber gesprochen haben, wobei ich aber nichts in bezug auf dieses Gespräch finden
+konnte. Vermagst du dich daran zu erinnern, wann das war, damit ich es heraussuchen kann. Dies
+eben darum, weil nun in den Zeitungen und in den Fernseh-Nachrichten berichtet wurde, dass dieses
+Begehr nun tatsächlich gefordert wurde, und zwar vom EU-Diktatur Kommissionspräsidenten JeanClaude Juncker und der deutschen Bundesverteidigungsministerin Ursula von der Leyen. Dazu steht im
+Internetz bei SPIEGEL ONLINE – Nachrichten:
+
+#### Die Ukraine-Krise bringt Europa an den Rand des Krieges. Reicht die Nato aus, um mit solchen Konflikten fertig zu werden? Oder muss eine europäische Armee her?
+Mit seinen Aussagen stärkt Juncker eine Position von Bundesverteidigungsministerin Ursula von
+der Leyen: Auch sie wirbt für die Zukunftsvision einer europäischen Armee. Die Idee sei allerdings
+nicht kurzfristig zu erreichen, hatte die CDU-Politikerin im Februar betont. Aber so wie sie überzeugt davon sei, dass «vielleicht nicht meine Kinder, aber dann meine Enkelkinder die Vereinigten
+Staaten von Europa haben werden», so sei sie vom Ziel der europäischen Streitkräfte überzeugt.
+
+Nebst diesen Notizen sind noch diverse andere, die sich mit der Sache befassen, die ich jedoch nicht
+aus dem Internetz kopieren will, denn das von SPIEGEL ONLINE – Nachrichten genügt vollauf, um das
+zu bestätigen, was wir zwei zusammen vor einiger Zeit gesprochen und vorausgesagt haben. Als ich
+diesbezüglich mit Bernadette ins Gespräch kam, weil eben in Zeitungen die Rede von einer EuropaArmee war, da dachte ich, dass du und ich erst kürzlich darüber gesprochen hätten. Inzwischen
+dämmerte mir aber, dass es schon länger her gewesen sein muss, vielleicht ein oder zwei Jahre.
+
+**Ptaah** Daran vermag ich mich zu erinnern – warte …, ja hier, es war schon im Jahr 2010, und
+zwar am 22. März nach unserem offiziellen Teil des 491. Gespräches, das wir noch in privater Weise
+fortführten, folglich dieser Teil nicht im Gesprächsbericht enthalten ist. Wir sprachen unter anderem
+zusammen über Wahrscheinlichkeiten der kommenden Weltgeschehen, wobei wir in mancherlei Beziehungen auch Möglichkeitsberechnungen erstellten, und zwar auch in bezug darauf, wie sich die
+Europäische Union in Zukunft gestalten werde. Dabei sind wir gemeinsam zum Berechnungsresultat
+gelangt, dass die EU früher oder später eine Europa-Armee stellen werde. Und tatsächlich ist nun die
+Zeit gegeben, da sich unsere Wahrscheinlichkeitsberechnungen zu erfüllen beginnen. Es war ja wirklich nur eine Frage der Zeit.
+
+**Billy** Genau, ja. Jetzt erinnere ich mich wieder daran, auch dass wir damals die EU-Diktatur mit
+den Anfängen der NAZI-Diktatur verglichen. Dabei hast du dann auch aus euren Aufzeichnungen
+abgerufen, was mir dein Vater Sfath in bezug auf Adolf Hitler gesagt hat, als er mir verschiedene
+zerstörte Städte in Deutschland zeigte, die von den US-Amerikanern durch Bombenabwürfe oder in
+anderen Ländern Europas durch die NAZI-Truppen zerstört wurden. Das Ganze war mir damals als
+
+
+-----
+
+kleiner Junge ungeheuer in die Knie und in meine Gedanken- und Gefühlswelt gefahren, folglich ich
+es bis zum heutigen Tag nicht vergessen konnte. Noch heute höre ich deines Vaters Stimme in meiner
+Erinnerung, als er mir sagte, dass Hitler ein Lügner, Menschheitsverbrecher und ein Psychopath sowie
+ein perfekter Schauspieler sei, der auch an Grössenwahn leide, den er von allem Anfang seiner Macht
+an diktatorisch durch seinen ausgearteten zerstörerischen Trieb umsetze, und zwar ganz egal, dass er
+über Millionen von Leichen und ungeheure Zerstörungen gehen müsse. Ausserdem, so sagte Sfath, sei
+Hitler äusserst feige und «schiesse sich selbst aus dem Leben», wenn die Zeit komme, dass er sich der
+Rechenschaftsablegung stellen müsse. Dass er damit den Selbstmord von Hitler meinte, das habe ich
+eigentlich verstanden, jedoch erst später richtig realisiert, als er sich dann tatsächlich erschossen hat.
+In Erinnerung denke ich daran, dass dein Vater auch sagte, Hitler sei einem ausgearteten Menschenvernichtungs- und Zerstörungswahn verfallen, der in ihm zur Zeit des Beginns seiner Pubertät entstanden
+sei, so also im Alter zwischen zehn oder zwölf Jahren. Der Grund dafür sei gewesen, weil ihn sein
+Vater misshandelt und körperlich traktiert, wie aber auch psychisch demoliert habe. Auch seine Mutter
+trage dabei Schuld, denn diese sei psychisch krank gewesen und habe daher Adolf Hitler auch von
+ihrer Seite aus falsch erzogen. Sich selbst liess Hitler einfach gehen, und er bemühte sich nicht, sich eigens
+eine gute Erziehung angedeihen zu lassen, sagte Sfath, denn wahrheitlich habe er sich von seinen
+Eltern entfremdet, und in bezug auf alle auf ihn eingewirkten Dinge habe er die Schuld niemals bei
+sich selbst, sondern immer nur bei anderen gesucht. Also, so sagte dein Vater, sah sich Adolf Hitler
+schon in seiner Kinder- und Jugendzeit immer nur als Opfer der anderen und seiner Umwelt, womit er
+auch sein dauerndes Versagen entschuldigte, sich jedoch dabei schwor, dass er sich an allen Menschen
+rächen werde, wenn er einmal Macht erlangen sollte. Als Psychopath sei Hitler anderseits gegensätzlich zu dem, dass er sich dauernd als Opfer der andern sah, völlig bewusst gewesen, dass er durch
+seine suggestiven Reden die Mitmenschen verführen und auf seine Seite bringen konnte, was er auch
+reichlich ausnutzte, um Vorteile und Macht über andere zu gewinnen, was letztendlich dazu führte,
+dass er in Deutschland das NAZI-Wesen etablieren konnte und zum Führer erhoben wurde. Wahrheitlich hatte Hitler auch einen Todestrieb, wie Sfath sagte, der nicht nur auf ihn selbst bezogen war, sondern aus dem heraus auch der Todeswahn in bezug auf unzählige andere Menschen sowie die grenzenlose Zerstörungswut resultierten. Und diesen weitumfassenden Wahn konnte er auch dem deutschen
+Volk und allen jenen Menschen voll Hass einbleuen, die ihm und seinen fanatischen und radikalen Reden
+angehangen haben, nach seinem Wahn redeten und alles in übelster Weise in die Tat umsetzten. Er war
+derart suggestiv in seinem Reden, wie dies auch viele andere Menschen sind, die ihre Mitmenschen
+suggestiv mit fanatischen und radikalen Äusserungen, Behauptungen, Lügen, Reden und Verleumdungen
+beharken und sie dazu bringen, Morde zu begehen, Hass gegen ganze Gruppierungen und Völker
+sowie Rassen, Religionen und Sekten zu entwickeln. Und all jene Menschen – die solchen Fanatismus
+und Radikalismus sowie Hass, Mord, Rache und Vergeltung predigenden Kreaturen zuhören und alles
+akzeptieren, was ihnen gesagt wird und auch das tun, was von ihnen gefordert wird – sind in ihren
+Gedanken und Gefühlen sowie in ihren Ansichten, Meinungen und Einstellungen gegenüber der Wirklichkeit und deren Wahrheit fremd und also unrealistisch. Und diese Verhaltensweise der Menschen gegen über der Realität und deren Wahrheit zeugt eindeutig davon, dass in ihnen eine kalte Gleichgültigkeit
+gegenüber allem und jedem vorherrscht, ausser wenn es bösartig egoistisch um ihr eigenes Wohl und
+um ihre Vorteile geht. Tatsache ist dabei, dass diese Menschen eigens nicht für die Mitmenschen, sondern
+einzig und allein nur für sich selbst denken, folglich sie in allen anderweitigen Beziehungen und Dingen
+andere für sich denken lassen, eben willenlos und beeinflussbar durch suggestive Reden, Behauptungen,
+Lügen und Verleumdungen von Kreaturen, die um ihre suggestive Kraft wissen und die Menschen
+dadurch ins Elend und in Not treiben. Und zu sagen ist, dass diese sehr stark suggestiv Vorgehenden
+in der Regel und ohne Ausnahme Machtmenschen sind, die ihre Zuhörer betören und zu Dingen,
+Handlungen und Taten treiben, die wider jede Menschlichkeit und wider jede menschliche Ehre und
+Würde sind. Und haben sie unter ihren Zuhörern Opfer gefunden, dann sind es auch diese, die sofort
+und ohne Zeitverlust andere belästigen und beharken, sie beschimpfen und unter Umständen gar tätlich
+gegen sie werden, und das nur darum, weil sie durch suggestive Aufhetzung dazu getrieben werden
+
+
+-----
+
+und selbst nicht denken, sondern gleichgültig einfach alles annehmen, was ihnen andere suggestiv vorkauen. Aber zurück zu dem, wovon ich eigentlich gesprochen habe, eben davon, was mir dein Vater
+Sfath gesagt hat, als er mich in seinem Strahlschiff im zerstörten Europa umherflog und er mir Dinge
+zeigte, die mir effectiv in die Knochen eingefahren sind. An alles erinnere ich mich sehr gut, als er
+mich als kleiner Junge in seinem birnenförmigen Strahlschiff in diverse Länder Europas brachte und
+mich die ungeheuren Greuel des Krieges sehen liess, die sich als böse Erinnerungen in mir einbrannten
+und mir aufzeigten, wozu die Menschen der Erde fähig sind. Alles war sehr erschütternd, insbesondere
+das grosse Elend und die vielen Nöte der Menschen, die ich vom Strahlschiff aus beobachten konnte,
+wie auch die jeweiligen Erklärungen von Sfath, die er mir immer wieder gab, wobei mich alles dazu
+brachte, meine Lebenseinstellung aufzubauen, wie ich sie bis heute erhalten habe. Durch all meine
+diesbezüglichen Beobachtungen lernte ich das wirkliche Mitgefühl für die Mitmenschen, wie auch ehrliche Liebe für alles und jedes, was Leben in sich birgt. Auch die Würde des Menschen wurde mir zu
+einem grossen Begriff, wie mir auch der Schutz in bezug auf jedes Menschenleben und alle Kreatur
+zum Bedürfnis wurde. Auch der unermessliche Wert von jedem Menschenleben und jeder Kreatur
+prägte sich unauslöschbar in mir ein, wie auch der grosse Wert von Frieden, Freiheit und Harmonie.
+Doch noch viele andere grosse Werte habe ich für mich und mein Leben kennengelernt durch die mir
+von Sfath ermöglichten Flüge in ganz Europa, wo überall ungeheure Zerstörungen waren. Das Ganze
+hat mich eindrücklich für mein Leben geprägt und mir den Weg gewiesen, den ich zu gehen hatte.
+Alles war eine sehr wertvolle Lebenslehre für mich, wofür ich Sfath unendlich dankbar bin. Ohne deinen
+Vater Sfath wäre es mir nicht möglich gewesen, als junger Bub all das zu sehen, was ich durch seine
+Hilfe sehen und erfahren durfte. All diese Dinge sind aber nicht in einem offiziellen Kontaktgesprächsbericht festgehalten, wie du sagst, weil wir sie in privater Weise besprochen haben.
+
+**Ptaah** Das war tatsächlich so, doch war es nicht so einfach für meinen Vater, die Entscheidung
+dafür zu treffen, denn du warst ja noch sehr jung, folglich er zuerst abklären musste, ob du das Ganze
+verkraften konntest, was dann aber doch der Fall war, wie sich erwiesen hat.
+
+**Billy** Das wusste ich nicht, denn Sfath sagte damals nichts dergleichen, nicht einmal mit einer
+kleinen Bemerkung, wenn ich mich richtig erinnere. Aber ganz offensichtlich hat er zu jener Zeit meine
+Auffassungsgabe und meine Verhaltensweisen sowie meine Verarbeitungsfähigkeit für diese Dinge
+richtig eingeschätzt. Aber Mann oh Mann, wie schnell doch die Zeit vergeht, dann ist das nun also
+schon fünf Jahre her, seit wir die Wahrscheinlichkeitsberechnungen machten und unser umfangreiches
+Gespräch führten. Und nun ist es also soweit, dass offiziell eine Europa-Union-Armee resp. eine EUDiktatur-Armee zur Sprache gebracht wird. Dabei denke ich, dass aus der Ukraine-Krise – die ja durch
+die Unvernunft der EU-Mächtigen, und zwar allen voran die deutsche Bundeskanzlerin Angela Merkel, erst
+richtig zum Laufen gebracht wurde – nun unter Umständen tatsächlich noch ein Krieg zwischen Europa
+und Russland hervorgehen kann. Und dem Ganzen wird diesbezüglich nun noch der Zylinder aufgesetzt,
+indem die USA Truppen in die an Russland angrenzenden NATO-Staaten einmarschieren lassen, um über
+längere Zeit militärische Manöver durchzuführen, deren wahrheitlicher Grund jedoch völlig anderer
+Natur ist. Für Russland stellt das Ganze nämlich eine schwere militärische Provokation dar, wodurch
+weiter Unheil geschürt wird und letztendlich aus allem doch noch ein bösartiger Krieg daraus hervorgehen kann. Und wie ich die ganze Sache sehe, steckt hinter allem als Rädelsführerin die Bundeskanzlerin
+Angela Merkel, die alle Machthabenden in ihrem Einflussbereich suggestiv beeinflusst – wie einst Adolf
+Hitler – und eine Hetzerei gegen Russland führt, und zwar auch in den USA, was zu einem sehr bösen
+Ende führen kann. Alle von Merkel Beeinflussten sind jedoch derart bohnenstrohdumm, dass sie nicht
+realisieren, was sie im Schilde führt und was wirklich vor sich geht, was daraus entstehen kann und
+wie diese Frau alle Dummen und ihr Hörigen an der Nase herumführt, damit sie ihre hinterhältigen
+Pläne verwirklichen kann. Und wegen dem, was die EU-Diktatur und Merkel mit ihren Machenschaften
+gegen Russland schüren, dazu meldet sich auch der Altkanzler Helmut Schmidt zu Wort, und zwar
+sagt er im Internetz dazu im CONTRA MAGAZIN folgendes, das ich hier rauskopiert habe:
+
+
+-----
+
+#### Ukraine-Krise: Helmut Schmidt befürchtet einen ‹heissen Krieg› mit Russland
+in Politik, Politik D/A/CH
+
+**Altkanzler Helmut Schmidt warnt vor einem ‹heissen Krieg› mit Russland. Das Mitglied der**
+**Atlantik-Brücke sprach sich dafür aus, dass der Westen mehr Verständnis für die russische Politik**
+**haben müsse. Doch in der deutschen Politik haben eben andere Kräfte das Sagen.**
+Von Marco Maier
+
+Gegenüber der ‹Bild› zeigte sich Altkanzler Helmut Schmidt wieder einmal als Ex-Politiker, der
+trotz seiner Mitgliedschaft bei der Atlantik-Brücke ein gewisses Verständnis für die Lage Russlands
+besitzt. Er weist darauf hin, dass der Westen seine Russland-Politik ändern müsse, andernfalls sei
+«nicht völlig ausgeschlossen», dass aus dem Konflikt um die Ukraine «sogar ein heisser Krieg
+wird.»
+Schmidts Ansicht nach gälten die grossen Sorgen Putins nicht Ländern wie der Ukraine, Polen
+oder den baltischen Staaten, sondern vielmehr Staaten wie China, Pakistan und den zentralasiatischen ehemaligen Sowjetrepubliken. Russland sei von den Beschlüssen der EU zur Ost-Erweiterung Anfang der 1990er Jahre in einer ‹Wild-West-Periode› unter dem damaligen Präsidenten
+Boris Jelzin überrascht worden. «Das rächt sich heute», sagte Schmidt, denn Jelzins Nachfolger
+Putin habe Russland wieder internationale Beachtung verschafft. «Putins Politik muss uns nicht
+gefallen. Aber wir müssen sie aus der Geschichte verstehen und ernst nehmen.»
+Es zeigt sich, dass einige deutsche Ex-Politiker im Alter jene Vernunft erlangen, die sie in ihrer
+aktiven Zeit – wohl aus politischen Gründen hinsichtlich des Besatzungsstatuts – vermissen
+liessen. Diese Anbiederung an die US-Politik, die auch heute noch stattfindet, verhindert eine
+eigenständige politische Linie. Gerade deshalb ist die Kriegsgefahr heute so gross wie schon seit
+sehr langer Zeit nicht mehr. Dies hat Helmut Schmidt erkannt.
+
+
+Und wenn nun noch eine EU-Diktatur-Armee resp. Europa-Union-Armee zustande kommt, gemäss der
+Forderung von Juncker und von der Leyen, was natürlich auch die Bundeskanzlerin Merkel befürwortet,
+wie vorgestern im Fernsehen auf den Lesebalken berichtet wurde, dann verschwindet abermals jede
+Hoffnung dafür, dass schliesslich nach dem Henok-Muster endlich eine internationale resp. Multinationale-Friedenskampf-Truppe ins Leben gerufen wird, durch die dann letztendlich doch noch früher oder
+später alle Kriege und der ganze Terrorismus usw. auf der Erde beendet und wirklicher Weltfrieden
+geschaffen werden könnte. Aber offenbar ist es so, wie schon seit alters her, dass die Machtgierigen
+in den Regierungen, eben im angesprochenen Fall speziell die der EU-Diktatur, eine eigene Armee
+aufbauen wollen, anstatt die notwendigen Schritte zur Anstrebung und Bildung einer Multinationalen
+Friedenskampf-Truppe zu unternehmen resp. eine Multinationale-Friedenskampf-Armee aufzubauen,
+um mit deren Eingreifen und Macht allen Kriegs- und Terrorherden auf der Erde ein endgültiges Ende
+zu bereiten. Die Macht müsste allen Machtgierigen in jenen Regierungen aus den Händen genommen
+und dem Volk übergeben werden, die undemokratisch und fern jedem Volkswillen handeln, wie dies
+eben in Europa in der EU-Diktatur ebenso der Fall ist wie in vielen anderen Ländern der Erde. Die
+Macht müsste zumindest jenem Teil des Volkes übergeben werden, der sich bemüht, in Frieden, Freiheit
+und Harmonie und völlig demokratisch zu leben. Den Machtgierigen aller Regierungen gehört einfach
+keine Macht in die Hände gelegt. So lange aber, wie diese Machtbesessenen in den Regierungen das
+Sagen in bezug auf das politische Staats- und Weltgeschehen haben, so lange wird es Unfrieden,
+Unfreiheit und Disharmonie und also Kriege und Terrorismus auf der Welt geben. Gleichermassen gilt
+das auch hinsichtlich der Religionen und deren Sekten, denn so lange, wie diese noch existieren und
+sich die Gläubigen nicht bemühen, sich den schöpferisch-natürlichen Gesetzen und Geboten zuzu wenden, um nach diesen zu leben, zu denken und zu handeln, so lange gibt es religiösen und sektiererischen Fanatismus und Radikalismus, wie auch daraus hervorgehende Mördermilizen wie der IS resp.
+‹Islamistische Staat› im Irak und in Syrien, die ‹Taliban› in Afghanistan, die ‹Al-Qaida›, die in vielen
+
+
+-----
+
+Ländern verbreitet ist, wie auch die ‹Boko Haram› in Nigeria usw. usf., wie aber auch die reinen und
+weltweit verbreiteten Verbrecherorganisationen.
+
+**Ptaah** Was du sagst, ist richtig, und in bezug auf staatliche Macht ist zu sagen, dass diese nicht
+in die Hände eines einzelnen machtbesessenen oder mehrerer machtbesessener Regierenden gehört,
+sondern in die Hände des überwiegend demokratisch und damit auch friedlich und freiheitlich denkenden Volkes. Und Tatsache ist, seit auf der Erde Politik und Religionen existieren, wie auch Sekten, die
+sowohl religiös wie auch anderer Art sind, dass seither politische, religiöse und sektiererische Ausartungen zu Morden, Kriegen und Terrorismus führten, und zwar infolge der Fanatisierung und Radikalisierung
+der Politik-, Religions- und Sektengläubigen. Also gilt hier, dass, so lange wie auf der Erde noch falsche
+Politikformen, Religionen und Sekten aller Art existieren, daraus Kriege, Terrorismus sowie Morde, Zerstörung und viele menschenverachtende Ausartungen in bezug auf die bösartigen menschlichen Verhaltensweisen hervorgehen werden.
+
+**Billy** Wobei Staatsgebilde wie Republiken und Monarchien sowie Diktaturen keinerlei Demokratie
+kennen, denn in solchen Ländern wird nur dahergelogen, dass Demokratie herrsche, obwohl keine gegeben ist. Effectiv sollte sich die ganze Welt und also die gesamte irdische Bevölkerung aller Staaten
+ein Beispiel an der Schweiz nehmen, die wirklich sehr weitgehend demokratisch ist. Dies, wenn von
+gewissen Beeinflussungen durch Parteien abgesehen wird, die auf einzelne Teile ihrer Parteimitglieder
+eine gewisse diktierende Strenge ausüben, was besonders eben bei jenen der Fall ist, welche nicht
+selbst denken und entscheiden, sondern die Parteivorsitzenden usw. für sich denken lassen. Im grossen
+und ganzen ist jedoch zu sagen, dass in der Regel in der Schweiz das Volk das Sagen hat und dass
+diesbezüglich nur wenige Ausnahmen in Erscheinung treten. Leider gibt es aber auch in der Schweiz
+Menschen, die undemokratisch sind und sich deshalb der EU-Diktatur unterordnen und damit ihre demokratische Heimat verraten wollen. Unsere Vorväter würden sich wohl im Grabe umdrehen, wenn sie sich
+dieses Heimatverrates dieser Pro-EU-Diktatur-Schreier gewahr würden, weil sie nicht verstehen könnten,
+dass sie in schweren Kämpfen gegen Vögte und Eindringlinge völlig nutzlos ihr teures Blut und Leben
+geopfert haben, um die Schweiz frei von fremder und diktatorischer Herrschaft zu machen.
+
+**Ptaah** Dazu muss ich wohl keinen Kommentar anfügen.
+
+_Mannheimer Morgen, Mannheim,_
+_Samstag, 28. Februar 2015_
+
+
+-----
+
+_Mannheimer Morgen, Mannheim,_
+_Samstag, 28. Februar 2015_
+
+
+_Mannheimer Morgen, Mannheim,_
+_Freitag, 13. März 2015_
+
+
+_Mannheimer Morgen, Mannheim,_
+_Freitag, 13. März 2015_
+
+
+-----
+
+_Mannheimer Morgen, Mannheim, Freitag, 20. März 2015_
+
+
+-----
+
+### Leserfragen
+Was ist anzunehmen, wie hoch der Prozentsatz von Psychopathen gesamthaft in allen Weltregierungen
+ist, durch die alle Völker zu deren Unwohl und Unfrieden in Krieg und Terror gestürzt, und wie hoch
+muss in etwa der Prozentsatz hinsichtlich Psychopathen bei allen Völkern gerechnet werden?
+U. Herget, Deutschland
+
+Gemäss einem Interview von ZEIT ONLINE vom 26. Mai 2014 mit dem Psychologen Jens Hoffmann
+gelangen auffällig viele Psychopathen ins höchste Management. Neueren Untersuchungen zufolge sind
+Menschen mit einer narzisstischen oder psychopathischen Persönlichkeit etwas drei- bis viermal häufiger
+in Machtpositionen vertreten als im Bevölkerungsdurchschnitt. Man geht davon aus, dass etwa vier
+Prozent der Bevölkerung Narzissten sind und etwa ein bis zwei Prozent Psychopathen. Deren Anteil in
+Führungspositionen betrage etwa sechs Prozent. (Quelle: http://www.zeit.de/karriere/beruf/201405/psychopathen-interview-psychologie-jens-hoffmann)
+
+Meine Frage dazu:
+1. Ist dir bzw. den Plejaren bekannt, wie hoch der Anteil von Psychopathen unter den Führungskräften
+in der Politik, in der Wirtschaft und in anderen Bereichen der Gesellschaft weltweit ist? Meiner
+Ansicht nach müsste er sogar erheblich höher sein als die erwähnten 6 Prozent.
+2. Wie wirkt sich diese Tatsache auf das Wohl und Wehe der Menschheit aus?
+3. Was kann dagegen getan werden, dass sich die Psychopathen in Machtpositionen immer mehr ausbreiten?
+Achim Wolf, Deutschland
+
+
+#### Antwort
+Gemäss plejarischen Angaben (diverse private Gespräche und 618. offizielles Kontaktgespräch vom
+21. März 2015) stimmen die gemachten Angaben aus dem Interview nicht mit den Forschungen der
+Plejaren überein, und zwar in sehr grossem Masse nicht. Die Plejaren erklären, dass die irdischen Psychologen und Psychiater zur heutigen Zeit noch nicht in der Lage seien, effectiv alle Psychopathen zu erkennen, die zudem auch Narzissten seien, weil Narzissmus in der Regel mit Psychopathie einhergehe.
+Die irdischen psychologisch-psychiatrischen Wissenschaften seien noch äusserst mangelhaft, folglich
+durch Psychologen und Psychiater nur ein geringer Teil aller Psychopathen erkannt und richtig beurteilt
+werden könne, folgedem der Grossteil aller Psychopathen nicht erkannt werde, und zwar auch deshalb
+nicht, weil sich die irdischen Psychologen und Psychiater von den Psychopathen täuschen lassen und
+folglich deren psychopathische Formen nicht erkennen würden. Dies hänge auch damit zusammen,
+weil Psychopathen sozusagen perfekte Schauspieler seien, die jeden Psychologen und Psychiater mit
+Leichtigkeit zu täuschen vermögen. Gemäss den plejarischen Forschungen aus dem Jahr 2012 sind
+weltweit ca. 72–78 Prozent aller in Führungspositionen von Regierungen, Wirtschaft und hohen Politik ämtern psychopathisch belastete Personen, folglich durchschnittlich ¾ aller Führungs- und Machtführenden
+Psychopathen seien. Die meisten von ihnen vermögen jedoch durch ihre perfekte Schauspielfähigkeit ihre
+psychopathisch-narzisstischen Formen gegenüber der Umwelt und somit auch gegenüber sogenannten
+Fachleuten, wie Psychologen und Psychiatern, zu verschleiern resp. zu verdecken und zu verbergen. Das
+führt dazu, dass nur ein kleiner Teil der 72–78 Prozent, also nur deren ca. 22–25 Prozent der eigentlichen Psychopathen-Narzissten, in den Führungs- und Machtpositionen der Regierungen, Wirtschaft
+und in den Politikämtern erkannt wird. Und besonders dieser Prozentsatz von Psychopathen-Narzissten
+ist unter allen Umständen gewillt, offen und in jedem Fall selbstherrlich ihre Führung und Macht auszuleben. Auch bei den ca. 24–27 Prozent Psychopathen-Narzissten in der Erdbevölkerung werden natürlich nur ein niedrigerer Prozentsatz als solche erkannt, weil auch hier deren Schauspielfähigkeit vieles
+verdeckt und die Psychopathie nicht offen erkennen lässt, folglich nur etwa 50 Prozent der Psychopathen
+als solche erkannt werden.
+
+
+-----
+
+#### Und dazu auch noch ein Auszug aus dem 618. offiziellen Kontaktgespräch von 21. März 2015
+**Billy** … Aber ich habe hier eine Frage, die ich in einem privaten Gespräch schon einmal vorbrachte, weil ich mich dafür interessierte. Dabei ging es darum, wie viele Psychopathen in den Regierungen, Politikämtern und in der Bevölkerung seien. Nun hat jedoch auch ein Mann aus Deutschland
+die Frage aufgebracht, der sagte, dass er etwas über Psychopathen und Narzissten gelesen habe,
+wobei er sich nun interessiere, wie häufig solche Menschen, eben Psychopathen und Narzissten, in den
+irdischen Regierungen und in der Erdbevölkerung gegeben seien resp. mit wie vielen Prozenten bei den
+einen und andern gerechnet werden müsse.
+
+**Ptaah** Psychopathen sind in der Regel auch narzisstisch befallen, denn Narzissmus ist immer mit
+Psychopathie verbunden, was aber den irdischen Psychologen und Psychiatern Mühe bereitet, dies
+anzuerkennen oder überhaupt nur feststellen zu können. Aber zur Angabe einer Zahl in bezug auf
+Psychopathen und somit auch Narzissten in irdischen Regierungen und in der Erdbevölkerung bin ich
+nicht in der Lage, weil sich diesbezüglich die Zahlen durch Sterbe- und Geburtenvorgänge dauernd
+ändern. Ausserdem habe ich die Daten nicht in Erinnerung und muss sie abrufen … Ja hier …, unsere
+letzten diesbezüglichen Forschungen liegen bereits vier Jahre zurück, bei der die Werte in bezug auf
+Psychopathen-Narzissten in allen Amtsbereichen der irdischen Machthabenden, der Regierungen und
+Verwaltungen usw. einen wechselnden Durchschnitt von ca. 72–78 Prozent aufweisen, und zwar gerechnet anhand der gesamten Anzahl aller Machthabenden aller Regierungen, Amts- und Verwaltungspersonen usw. In bezug auf Psychopathen-Narzissten in der gesamten irdischen Bevölkerung ergaben
+unsere Forschungen einen durchschnittlichen Wert von 14–17 Prozent.
+
+**Billy** Das ist happig, weshalb man sich nicht wundern muss, dass alle Völker der Erde von
+Verrückten und Wahnsinnigen regiert und weshalb dauernd Aufstände, Revolutionen, Terrorakte und
+Kriege vom Stapel gelassen werden. Also ist es auch nicht verwunderlich, dass die Mächtigen der EUDiktatur und der USA drauf und dran sind, einen neuen grossen Krieg anzuzetteln, indem sie Russland
+mit Sanktionen usw. sowie mit bösartigen Forderungen drangsalieren und herausfordern, wobei die
+deutsche Bundeskanzlerin Angela Merkel eine besonders fiese Rolle spielt, und zwar einerseits aus
+eigenem fiesen Antrieb und anderseits, weil sie von den USA als willige und willkommene Marionette
+missbraucht wird. Tatsächlich steht bereits wieder einmal ein ‹heisser Krieg› vor der Türe, der sehr
+schnell zu einem Weltkrieg ausarten kann, weil ja nicht nur die EU-Diktatur, sondern auch die USA hinterhältig gegen Russland werkeln, dem effectiv mehr Verständnis für dessen Politik entgegengebracht
+werden müsste, anstatt es mit Sanktionen und Forderungen zu drangsalieren, die einzig und allein nur
+auf einen gewaltigen Nutzen für die EU-Diktatur, die USA und die NATO ausgerichtet sind. Zwar wird
+rundum immer Deutschland als das böse Kind in bezug auf das Drangsalieren von Russland dargestellt, doch es ist wahrheitlich nicht Deutschland resp. nicht das deutsche Volk, sondern an vorderster
+Front die Bundeskanzlerin Merkel mit ihren gleichgearteten Kohorten, und zwar in Zusammenarbeit mit
+all den Mächtigen der EU-Diktatur und den USA. Wahrheit ist, dass nicht das deutsche Volk in Deutschland das Sagen hat, sondern die Bundeskanzlerin mit ihren Trabanten sowie die EU-Diktatur und die
+USA. Diese Mächte allesamt haben kein Verständnis für die Lage Russlands, und genau das ist der
+springende Punkt, denn der gesamte Westen, allen voran eben die EU-Diktatur, die USA und Angela
+Merkel müssen schnell ihre Russland-Politik ändern, andernfalls kann nicht mehr ausgeschlossen werden,
+dass aus dem Ukraine-Konflikt ein ‹heisser Krieg› wird, der in einem neuerlichen Weltkrieg enden
+kann, und zwar im vierten, weil ja drei Weltkriege bereits gewesen sind, wobei jedoch der erste von
+1756–1763 verschwiegen und wider besseres Wissen als ‹nur› siebenjähriger Krieg bezeichnet wird.
+Und wenn ich die Interessen von Putin ansprechen will, dann denke ich, dass er diese, ganz gemäss
+seinen Bemühungen, wie diese in den politischen Nachrichten verbreitet werden, auf China, Pakistan
+und die zentralasiatischen ehemaligen Sowjetrepubliken ausrichtet. Für die Ukraine hat er wohl kein
+
+
+-----
+
+grosses Interesse, denn dieses dürfte sich meiner Ansicht nach nur auf die Krim und die Ost-Ukraine
+beschränken, weil dort viele Russischsprachige und Russlandabkömmlinge leben. Was die EU-Diktatur
+und die USA jedoch gegen Russland werkeln, die eine Ost-Erweiterung anstreben und ein Raketen abwehr- und sonstiges Bollwerk gegen Russland fabrizieren, und zwar mit Lügen, dass alles nur gegen
+mögliche Angriffe – insbesondere Atomangriffe – aus dem Iran gerichtet sei, das entspricht einerseits
+wahrheitlich nichts anderem als feiger Angst, und anderseits einer versteckten Machterweiterung, die
+allen voran durch die USA betrieben wird, weil diese nichts mehr und nichts weniger als die Rolle der
+Weltpolizei und der Weltherrschaft anstreben. Also ist es so, dass einerseits die EU-Diktatur ihre Krallen
+nach Europa und darüber hinaus ausstreckt, wobei sie sich an die US-Politik und diese sich wiederum an
+die EU-Diktatur-Politik anbiedert, wobei verhindert wird, dass Deutschland eine wirklich eigenständige
+politische Linie findet. Diese aber kann nur ohne die Bundeskanzlerin Merkel und ihre ihr anhängenden
+Trabanten gefunden werden, denn so lange, wie diese am Ruder sind und die USA die deutsche
+Regierung dirigieren, so lange kann sich nichts zum Besseren und Guten wenden, sondern gegenteilig
+nur zum Böseren und Schlechteren. Und da dies tatsächlich so ist, steht heute, wie schon seit sehr langer
+Zeit nicht mehr, sehr gross die Gefahr vor der Tür, dass mindestens ein europaweiter kriegerischer
+Brand ausbricht, wenn nicht gar ein Krieg, der ein andermal die ganze Welt erfasst. Alle Regierenden
+der EU-Diktatur, Deutschlands und der USA sind sich ganz offensichtlich dieser Gefahr nicht bewusst
+und sehen nicht die Parallelen, wie sich diese auch früher ergeben haben, die 1914 und 1939 zu bösartigen Weltkriegen geführt haben. In erschreckender Weise wiederholen sich die alten Geschehen in
+der heutigen Zeit, und wenn diesen Wiederholungen nicht schnell Einhalt geboten und der Vernunft
+Platz eingeräumt wird, dann ist die Katastrophe nicht mehr zu vermeiden.
+
+**Ptaah** Was leider tatsächlich der Wahrheit entspricht.
+
+#### Auszug aus dem 619. offiziellen Kontaktgespräch von 2. April 2015
+**Ptaah** Deine Ausführung ist soweit in Ordnung, …
+
+**Billy** … Also repetiere ich: Hinsichtlich der klar erkennbaren Psychopathen-Narzissten sind
+22–25 Prozent von allen 72–78 Prozent in den Regierungen sowie in der Privat- und Staatswirtschaft und
+in den Politikämtern zu nennen. Also sind mit 72–78 Prozent in etwa ¾ aller Führungskräfte in Regierungen, Politikämtern und in der Privat- und Staatswirtschaft psychopathisch-narzisstische Figuren,
+wobei von diesen ¾ der Gesamt-Führungskräfte, also 100 Prozent, in etwa [1]/3 resp. 22–25 klar und
+deutlich als effective Psychopathen-Narzissten erkennbar sind. Und weiter sind bei 100 Prozent Erdbe völkerung 24–27 Prozent resp. ca. ¼ psychopathisch-narzisstisch befallen, von denen wiederum ca. 57
+Prozent resp. etwa die Hälfte, also ca. 12–15 Prozent, klar erkennbare Psychopathen-Narzissten sind.
+
+**Ptaah** Das ist richtig und entspricht mit anderen Worten dem, was ich erklärt habe. …
+Billy
+
+
+-----
+
+#### VORTRÄGE 2015
+Auch im Jahr 2015 halten Referenten der FIGU wieder Geisteslehre-Vorträge usw. im Saal des Centers:
+
+**27. Juni 2015:**
+Silvano Lehmann **Partnerschaft**
+_Geisteslehre leben._
+
+Andreas Schubiger **Hokuspokus – die Fluidalkräfte kommen**
+_Sind Fluidalkräfte eine abgehobene Sache, oder haben sie einen realen Platz?_
+
+**22. August 2015:**
+Michael Brügger **Selbstwahrnehmung und Selbsterkenntnis**
+_Über die Wichtigkeit, sich selbst zu kennen._
+
+Bernadette Brand **Leitplanken**
+_Geisteslehre umsetzen._
+
+**24. Oktober 2015:**
+Christian Frehner **Geisteslehre im Alltag**
+_Anwendung und praktische Beispiele._
+
+Patric Chenaux **Über den Glauben und die Verblendung**
+_Über die verschiedenen und negativen Einflüsse des Glaubens und der Verblendung_
+_in den Gedanken, Gefühlen und Handlungen des Menschen und in dessen Lebens -_
+_umständen, und was gegen diese Einflüsse unternommen werden kann._
+
+Pünktlicher Vortragsbeginn um 14.00 Uhr.
+
+Eintritt: CHF 7.– (Eintritts-Ermässigung für FIGU-Mitglieder bei Vorweisen eines
+gültigen Ausweises.)
+
+An den Vortrags-Samstagen trifft sich im Semjase-Silver-Star-Center um 19.00 Uhr
+eine Studiengruppe, zu der alle interessierten Vortragsbesucher herzlich eingeladen
+sind.
+Die Kerngruppe der 49
+
+### VORSCHAU 2016
+
+Die nächste Passiv-Gruppe-Zusammenkunft findet am 28. Mai 2016 statt (Achtung: 4. Wochenende).
+Reserviert Euch dieses Datum heute schon! Die persönlichen Einladungen mit näheren Hinweisen erfolgen
+zu gegebener Zeit.
+
+**Hinweis:**
+Kinder unter 14 Jahren ohne Passivmitgliedschaft haben zwecks Vermeidung einer Infiltrierung durch die
+FIGU keinen Zutritt zur Passiv-GV.
+Die Kerngruppe der 49
+
+
+-----
+
+-----
+

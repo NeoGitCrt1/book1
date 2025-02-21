@@ -1,0 +1,2061 @@
+-----
+
+-----
+
+#### Warum braucht der Mensch die Geisteslehre?
+_Der Mensch bedurfte der Geisteslehre schon seit alters her, doch in der_
+_Neuzeit, da der Fortschritt in der Technik und in allen Wissenschaften_
+_sowie in bezug der Religionen und Sekten keine Grenzen kennt, braucht_
+_der Mensch die Lehre des Geistes noch viel mehr, um nicht vollends vom_
+_Weg der schöpferischen Gesetze und Gebote abzukommen. Das ist eine_
+_Tat sache, die manchen Menschen überraschen mag, doch effectiv be trach -_
+_tet, sind gegenüber der Technik und allen Wissenschaften in mensch licher_
+_Hinsicht erst relativ kleine Fortschritte gemacht worden hinsichtlich der be-_
+_wusstseinsmässigen Evolution. Zwar hat der Mensch vieler lei Verbesserun -_
+_gen gemacht bezüglich des Lebensstandards und der Lebens bedingun gen_
+_in materieller Hinsicht, doch in der Erklärung der inneren Welt des Menschen_
+_sind die Fortschritte wahrheitlich nur gering. So ist wohl im Laufe der Jahr-_
+_hunderte und Jahrtausende in allen materiellen Bereichen ein grosser Fort-_
+_schritt entstanden, wohingegen jedoch das Bewusstseinsmässige unterlegen_
+_ist, was dazu führte, dass die wahrheitlichen inneren Werte des Menschen_
+_und seine ganze innere Welt zu kurz kamen und teilweise verheerend ver-_
+_kümmerten. Das wahre Leben und die wahren Lebens werte gingen dem_
+
+
+-----
+
+_Menschen ebenso verloren wie auch die Kenntnis um die schöpferischen_
+_Gesetzmässigkeiten, die das ganze Leben jeder einzelnen Lebensform be-_
+_stimmen, und zwar von der Fauna und Flora bis hin zum Menschen._
+_Natürlich hat der Erdenmensch sehr viele Krankheiten und mancherlei_
+_Übel besiegt, durch die viele Leben dem Tod zugeführt wurden, doch das_
+_darf nicht darüber hinwegtäuschen, dass noch immer viele Krankheiten_
+_und Übel grassieren, die Tod, Not und Elend über die Welt bringen. Dies -_
+_bezüg lich seien die Gedanken nur einmal auf die diversen Seuchen so-_
+_wie auf die Kriege und den Terrorismus gerichtet, die so viel Leid, Trauer_
+_und Unheil über unzählige Menschen bringen, über Frauen, Kinder und_
+_Männer. Also ist es so, dass obwohl hohe Wissenschaften geschaffen und_
+_eine sehr hohe Technik entwickelt wurde, die gar in den Weltenraum hin-_
+_ausführt, Not, Elend, Schmerz, Angst und Leiden noch immer kein Ende_
+_gefunden haben. Sind nämlich das eine Unheil, die einen Übel und die eine_
+_Unbill vorbei, dann werden diese schon von den nächsten gleichartigen_
+_und noch schlimmeren Geschehen abgelöst. Bestimmte Krankheiten sind_
+_aus der westlichen Welt verschwunden, doch drohen sie durch die Unver -_
+_nunft des Erden menschen wieder zurückzukehren, während gleichzeitig_
+_in grossem Masse weltweit Krebs krankheiten, AIDS, Psychekrankheiten und_
+_Bewusst seins krank heiten um sich greifen und sich rapid verbreiten._
+_Es wurden grosstrabende Sozialwissenschaften geschaffen, durch die wohl_
+_viele für die Gründe der Schwächen der Gesellschaft genannt werden_
+_können, doch die allerwichtigsten Tatsachen blieben ihnen verborgen, und_
+_zwar dar um, weil die Lösungen allein in materiellen Belangen gesucht_
+_wurden und weiterhin werden, und weil alles nur in einem oberflächlichen_
+_Möchte gernwissen und Möchtegernverstehen der wahrheitlichen Faktoren_
+_beruht. Dadurch aber können die Schwächen des einzelnen Menschen_
+_und der ganzen Gesellschaft nicht behoben werden, ganz im Gegenteil,_
+_denn alles wird immer noch schlim mer und schwieriger. Tatsache ist aber_
+_dabei, dass viele Menschen diese Un stim migkeiten wahrnehmen, diese_
+_jedoch nicht zu definieren und nicht zu verstehen vermögen, was in ihnen_
+_den Wunsch weckt und wachsen lässt, als einzelner Mensch etwas da-_
+_gegen zu tun und die Gesellschaft oder auch nur einzelne zum Besseren_
+_zu verändern. Doch das scheitert einerseits daran, dass keine persön liche_
+_Erfah rung besteht und die eigenen Grenzen nicht erkannt werden, und_
+
+
+-----
+
+_anderer seits darum, weil weder ein einzelner Mensch noch die ganze_
+_Gesellschaft verändert werden kann, und zwar aus dem Grunde nicht,_
+_weil sowohl der einzelne Mensch als auch die Gesellschaft sich durch_
+_Eigeninitiative selbst zum Besse ren verändern muss. So bleibt dem einzel -_
+_nen, der den Wunsch hat, selbst eine Veränderung des einzelnen oder_
+_der Gesell schaft herbeizuführen, nur ein Wunschtraum, der letztendlich in_
+_einem Gefühl der Ohnmacht endet._
+_Die Geisteslehre, die auf die schöpferischen Gesetzmässigkeiten zurück -_
+_führt und von den ur-ersten Propheten Nokodemion, Henok und Henoch_
+_schriftlich festgehalten wurde, lehrt, dass alle grundlegenden Ursachen und_
+_Wirkungen, die durch den Menschen hervorgerufen werden, auf falschen_
+_Vorstellungen fundieren, auf denen das Leben, die Gedanken, Gefühle und_
+_Emotionen sowie das Wort, das Wirken, die Taten und die Handlungen_
+_beruhen. Die Geisteslehre führt aus diesen falschen Vorstellungen hinaus,_
+_denn sie bietet den Weg der Selbsterkenntnis und der Selbstverwirklichung_
+_sowie die dazu erforderlichen Fähigkeiten und Möglichkeiten, wobei ins-_
+_besondere zweck dienliche Meditationen das Ganze zum Erfolg und Ziel_
+_führen. In all dem liegt ein ungeheures und unbegrenztes Potenzial – statt_
+_Begrenzungen und Ver sa gen. Gesamthaft schafft die Geisteslehre positive_
+_Erfahrungen und deren Erleben, wodurch ein Umgang mit Schwierigkeiten_
+_im Leben und in jeder Situation ermöglicht wird, der zum Erfolg führt._
+_Diese Erfahrungen und deren Erleben geben auch Kraft und Energie zur_
+_Hand habung des Lebens, wie sie auch Hoffnung, Mut und Motivation so-_
+_wie den Willen bringen, sich sowohl für den einzelnen Menschen wie auch_
+_für die Gesellschaft zu engagieren und einen Weg zu weisen, der, wenn_
+_er vom einzelnen selbständig motiviert und willent lich beschritten wird,_
+_tatsächlich zum Erfolg führt._
+
+
+-----
+
+#### Wer praktiziert die Geisteslehre? Wie wird die Lehre praktiziert? Welcher Glaube und welche Kulthandlungen sind damit verbunden? Was erklärt die Geisteslehre? Wie steht die Geisteslehre zur Gewalt?
+_Die Geisteslehre, die, wie bereits erklärt, auf die ur-ersten Propheten_
+_Nokodemion, Henok und Henoch zurückführt, wird von allen die Schöp -_
+_fungs gesetze befolgenden und folglich auch vernunftsträchtigen Menschen_
+_ausgeübt, wobei dies sowohl bewusst als auch unbewusst geschieht. Be-_
+_wusst geschieht es infolge der Kenntnis und des Lernens in bezug der Lehre_
+_des Geistes, während es unbewussterweise in der Form geschieht, dass_
+_der Mensch ganz bestimmte wertvolle und würdige sowie ehrfürchtige_
+_Vorstellungen der Moral und der Ethik sowie in bezug des Lebens hat, die_
+_er ohne das Wissen dessen befolgt, dass diese mit der Geisteslehre und_
+_damit mit den schöpferischen Gesetzmässigkeiten konform laufen. Beide_
+_Formen der Befolgung der Geistes lehre werden von Menschen mit unter-_
+_schiedlichstem sozialem und kulturellem Stand sowie mit unterschiedlichsten_
+_Anschauungen ausgeübt, so diese also sowohl religiös als auch rein welt-_
+_lich ausgerichtet sein können. Bestimmte Vorschriften gibt es dabei keine,_
+_denn die Befolgung und deren Art und Weise der Geisteslehre, wie auch_
+_wie, wann, wo, unter welchen Umständen und Voraussetzungen, ist in_
+_jedem Fall dem Menschen freigestellt._
+_Die Geisteslehre macht keine Vorschriften, die das Leben einschränken_
+_sollen, sondern sie lehrt nur Gebote und damit Empfehlungen, durch die_
+_der Mensch, wenn er sie befolgt, zu einem wahren Menschen wird, der_
+_in Würde und Ehrfurcht in bezug des Lebens seine Pflicht erfüllt und sich_
+_bewusst um seine be wusstseinsmässige Evolution bemüht. Zu diesen Ge-_
+_boten gehören auch die Richtlinien dessen, wie sich der Mensch durch_
+_Meditation und wertvolle Gedanken und Gefühle, wahre Liebe für alle_
+_Lebensformen und das Leben selbst sowie innere Ruhe, Freiheit, Harmonie,_
+_Freude, Wohlbefinden, Ausgeglichen heit und inneren Frieden erschaffen_
+_kann. Das Ganze ist dabei mit keinerlei Kulthandlungen und mit keinem_
+
+
+-----
+
+_Glauben verbunden, wie das bei Religionen, Sekten und Orden usw. der_
+_Fall ist, denn kultische Riten, Zeremo nien, Liturgien und glaubensmässige_
+_Gebete sind vollkommen überflüssig und bilden in ihrer Ausübung nur Rituale,_
+_um den Menschen davon befangen und vom entsprechenden Glauben_
+_abhängig zu machen. Das entspricht einer altbekannten Tatsache, denn_
+_der Zweck kultischer Rituale, des Glaubens und der kultischen Gebete ist,_
+_den Menschen in eine Gläubigkeit und Unterwerfung zu schlagen, ihm_
+_Knechtschaft und Unterordnung sowie Unfreiheit aufzuzwin gen, ihm also_
+_seine persönliche Freiheit, Eigenständigkeit und Souveränität zu nehmen_
+_und ihn in Dienstbarkeit zu zwingen._
+_Praktiziert der Mensch die Geisteslehre, indem er die schöpferisch-natür-_
+_lichen Gesetzmässigkeiten und Gebote befolgt, dann praktiziert er die_
+_Philosophie des Lebens, die ihn einerseits und in erster Linie zu sich selbst,_
+_zu seinem wahren innersten Wesen führt, und zweitens zur Grundlage des_
+_grössten Wertes, näm lich dem Leben selbst. Die Geisteslehre als Philosophie_
+_des Lebens führt aber den Menschen auch zur respektvollen Haltung gegen -_
+_über den Mitmenschen und zur ehrfürchtigen Achtung jeglichen Lebens,_
+_und zwar ganz gleich, ob es sich dabei um Formen der Flora und Fauna_
+_oder des Menschen handelt. So lehrt die Geisteslehre, dass alle Menschen_
+_gleich sind, egal welcher Rasse, Kultur, welchem sozialen und gesellschaft -_
+_lichen Stand und welchem Glauben oder welcher sonstigen Anschauung_
+_sie angehören. Die Hautfarbe spielt dabei ebenso keine Rolle, wie auch_
+_nicht, ob der Nächste ein Fremder, ein Familienmitglied, ein Freund, ein Ein -_
+_heimischer, ein Ausländer oder ein Bekannter ist. Rassenhass und Fremden -_
+_hass, Hass an und für sich, Rache und Vergeltung, Gier und Laster sowie_
+_Sucht, Habgier, Mord, Folter, Totschlag, Raub, Prostitution, Vergewaltigung,_
+_Zwang, Gewalt, Betrug, Diebstahl, Misshandlung und Verleumdung usw._
+_sind gemäss der Geisteslehre profane, stumpfsinnige und auf einem ge -_
+_wissen Fanatis mus beruhende Ausartungen, die jeder menschlichen Würde_
+_entbehren._
+_Die zentrale Erläuterung der Geisteslehre erklärt, dass gesamthaft alles_
+_auf dem Gesetz der Kausalität beruht, auf Ursache und Wirkung. Etwas_
+_Ursäch liches hängt mit einer bestimmten daraus hervorgehenden Wirkung_
+_zusammen. Jedes Ereignis hat eine eigene Ursache, die wiederum eine_
+_eigene Ursache für andere Ereignisse bildet resp. Wirkungen erzeugt._
+
+
+-----
+
+_Spezifisch gleiche Ursachen können also folgerichtig auch gleiche Wir-_
+_kungen erzeugen. So ist es ge geben, dass durch Gedanken, Gefühle, Wor te_
+_und Handlungen, die durch den Menschen gesetzt werden, entsprechen-_
+_de Wirkungen in seinem Leben und in dessen Umgebung hervorgerufen_
+_werden._
+_Die Lehre des Geistes leitet dazu an, dass der Mensch in seinem Leben_
+_die besten Ursachen setzen kann, um wertvollste Wirkungen zu erzielen._
+_Die Ursachen können dabei äusserst vielfältig und ganz individuell sein,_
+_wobei sie jedoch auch in Gemeinsamkeit mit Mitmenschen geschaffen_
+_werden können. Sie können sowohl meditativ wie auch einfach konzentriert_
+_erzeugt werden, was dem Ganzen keinen Abbruch tut. Beste Ursachen_
+_zu setzten bedeutet auch, eigens Ursachen für den Frieden in sich selbst_
+_zu schaffen, wie aber auch etwas dazu zu tun, gute Gedanken, Gefühle_
+_und Worte für die ganze Welt und Menschheit sowie für alle Geschöpfe_
+_zu pflegen, denn: «Wie in den Wald ge rufen wird, so schallt daraus das_
+_Echo zurück.» Und um solches zu tun, eignet sich die Rezitation des ur -_
+_alten Geistes lehresatzes: «Salome gam nan ben urda, gan njber asala_
+_hesporona», was übersetzt bedeutet: «Frieden und Weisheit sei auf der_
+_Erde und unter allen Geschöpfen.»_
+_Die Geisteslehre lehnt jede unlogische Gewalt ab und lehrt die ‹ Gewalt -_
+_same Gewaltlosigkeit›, die sich folgendermassen erklären lässt:_
+_Gewaltsame Gewaltlosigkeit ist der Weg der passiven, logischen Gewalt,_
+_denn gewaltsame Gewaltlosigkeit bedeutet mit anderen Worten_ **aktive**
+**Gewalt losigkeit, bei der gewaltsam resp. aktiv die Gewaltlosigkeit geübt**
+_und durchgesetzt wird. Bei der gewaltsamen Gewaltlosigkeit als aktive_
+_Gewaltlosigkeit wird gewaltsam resp. aktiv die Gewaltlosigkeit geübt und_
+_durchge setzt. Gewaltsame Gewaltlosigkeit bedeutet aber auch passiver_
+**Widerstand, wobei Passivität in diesem Sinn eine Kraft resp. eine Macht**
+_oder eben passive_ **Gewalt darstellt, denn Kraft, Macht und Gewalt auch in**
+_gewaltloser, passiver Form als Widerstand stellt eine Form der Gewaltsam-_
+**keit dar, die jedoch in gewaltsamer Gewaltlosigkeit ausgeübt wird. Da bei**
+_jedoch darf diese gewalt lose resp. passive Gewaltsamkeit nicht im Sinne_
+_des üblichen erdenmenschlichen Verstehens von negativer Gewalt verstan -_
+_den werden, sondern nur im Sinne von einem positiven, befriedenden,_
+_harmonisierenden, ausglei chenden, erhebenden und ordnungsschaffenden_
+
+
+-----
+
+_Einsatz in Form von passiv Widerstand bietender Kraft, Macht und Beein -_
+_flussung usw. in logischer Weise._
+
+#### Was ist die Geisteslehre?
+_Viele Menschen haben ein völlig falsches Bild von der Geisteslehre, weil_
+_sie sich darunter etwas Religiöses oder Sektiererisches vorstellen. Damit_
+_aber hat die Lehre des Geistes in keinster Weise etwas zu tun, auch wenn_
+_Antagonisten und Böswillige, Sektenbeauftragte der christlichen Kirchen_
+_und sonstigen Religionen und verleumderische Elemente sowie Medien_
+_das Gegenteil behaupten. Durch diese Böswilligkeiten, durch völlig falsche_
+_Vorstellungen, durch Unverstehen und religiös und sektiererisch geprägte_
+_Glaubensformen sowie durch Sensationsmache der Medien usw. wird ein_
+_Bild der Geisteslehre und der Betreibenden der Geisteslehre geschaffen,_
+_das jeder Wirklichkeit und Wahrheit Hohn spottet. Weltverbesserer, Esoteri -_
+_ker, Entrückte, Mystiker und Sektie rer werden die Menschen beschimpft,_
+_die sich der Lehre des Geistes zugewandt haben, und es wird ihnen Besser -_
+_wisserei, Hörigkeit, Überheblichkeit, Vegetarismus und Veganismus vor -_
+_ge worfen, ohne dass die Antagonisten die wahre Lehre des Geistes über-_
+_haupt kennen und verstehen. Dass die Geistes lehre aber einen wahren_
+_Pazifismus, wahre Liebe, Menschlichkeit, Ausgeglichenheit, Frieden, Liebe_
+_und innere Freiheit sowie wahren Frieden, das wahre Menschsein, Har-_
+_monie und eine positive Lebensweise mit positiven Gedanken und Gefühlen_
+_lehrt sowie Wissen und Weisheit, davon haben die Antagonisten keiner-_
+_lei Ahnung. So kommt es, dass die Religionen, Sekten sowie Philosophien_
+_und sonstigen Weltanschauungen und deren Praxis und falschen pazi fisti -_
+_schen Machenschaften gelobt und bewundert werden, während die Lebens -_
+_weisen derjenigen, welche der Geisteslehre zugetan sind, als entrückt_
+_und ohne Bezug zur Gesellschaft und Realität bezeichnet werden. Doch_
+_die Wahrheit ist die, dass nicht die der Geisteslehre Zugetanen, sondern_
+_jene entrückt sind und sich mit Unwirklichkeiten befassen, die Gläubige_
+_von falschen Lehren der Religionen, Sekten, Philosophien und sonstigen_
+_Welt anschau un gen sind._
+_Trotz der Vorurteile und Verurteilungen, die gegen die Geisteslehre weitum_
+_er hoben werden und stattfinden, gibt es Menschen, deren Vernunft bereits_
+
+
+-----
+
+_derart weit fortgeschritten ist, dass sie sich der Lehre der Geistes zuwenden,_
+_sich um deren Studium bemühen und sich nach den darin gelehrten schöp -_
+_ferischen Gesetzmässigkeiten ausrichten, um danach zu leben._
+_Die Geisteslehre, das muss klar gesagt sein, ist weder eine esoterische,_
+_religiöse, sektiererische noch eine ordensmässige oder sonstige kultische_
+_Rich tung. Auch ist sie kein spirituelles Allheilmittel, keine Lehre, die irgend-_
+_welche Wunder vollbringt, sondern eine Lehre, die lehrt, dass alles hart_
+_erarbeitet werden muss, wenn Erfolge erzielt werden sollen. Sie lehrt auch,_
+_dass keine Meister vom Himmel fallen und keinem Menschen gebratene_
+_Tauben in den Mund fliegen. Die Lehre macht aber auch offenbar, dass_
+_es keine Entrückung und keine Göttlichkeit gibt, wie aber auch keine Er-_
+_hebung eines Menschen über den andern, weil alle Menschen gleich sind_
+_und keiner einen grösseren oder minderen Wert hat als der andere._
+_Die Geisteslehre liefert dem Menschen einen praktischen Bezug zu seinen_
+_Gedanken, Gefühlen, Emotionen sowie zu seinem Wirken und zu seinen_
+_Handlungen des täglichen Lebens. Dafür bestehen Gebote resp. Empfehlun -_
+_gen, die sich im Hauptsächlichen in folgenden 49 Grundregeln darlegen:_
+
+_1) Jeder Mensch muss selbst nach dem eigenen Sinn des Lebens fragen,_
+_diesen suchen und finden und ihn für die Verbesserung seines Lebens_
+_und Wirkens einsetzen wollen._
+
+_2) Jeder Mensch muss sich selbst sein und daher auch seine eigene_
+_Führungspersönlichkeit, die ihre eigenen durchschlagenden Ideen_
+_entwickelt, diese verfolgt und verwirklicht._
+
+_3) Jeder Mensch muss derart die eigene Vernunft und den eigenen Ver-_
+_stand walten lassen, dass er von sich selbst das Beste und Heilsame_
+_abverlangt, sich nach eigenem Willen formt und seinen eigenen Be-_
+_dürfnissen in eigener freier Weise Gehorsam leistet._
+
+_4) Jeder Mensch muss sich derart formen, dass er immer sich selbst ist,_
+_ureigene intensive Erlebnisse hat, sich niemals versklaven oder sonst-_
+_wie unterjochen lässt und folglich in jeder Beziehung seine persön -_
+_liche innere und äussere Freiheit wahrt, und zwar sowohl in seinen_
+
+
+-----
+
+_Gedanken und Gefühlen wie auch in seinen Entscheidungen, Ansich-_
+_ten, Meinungen, Emotionen und Handlungen usw._
+
+_5) Jeder Mensch muss gegenüber sich selbst die für ihn notwendige_
+_Freund lichkeit und Liebe erweisen und sich in sich selbst geborgen_
+_fühlen sowie derartig ehrlich zu sich selbst sein, dass er seine eigenen_
+_Gedanken, Gefühle, Emotionen, Handlungen und Meinungen usw._
+_zu verstehen vermag._
+
+_6) Jeder Mensch muss seine Gedanken, Gefühle, Ideen, Wünsche,_
+_Bedürf nisse und Handlungen usw. derart ausrichten, dass er sich zu_
+_hohen Zielen befähigt fühlt, die jedoch immer der Art seiner Fähig-_
+_keiten und Möglichkeiten entsprechen und also nicht überspannt und_
+_nicht zu hoch erhoben sein sollen._
+
+_7) Jeder Mensch soll sich so sehen und kennen, wie er wirklich ist, also_
+_er sich nicht als heile Welt wähnt, weil dies keinem Menschen möglich_
+_ist, in folgedessen jeder lernen muss und folglich Fehlern und der_
+_Unvoll kommenheit eingeordnet ist. Also ist es nicht möglich, dass im_
+_Menschen alles klar ist, alles stimmt und er besser ist als die Mit-_
+_menschen._
+
+_8) Jeder Mensch muss sich immer vollauf bewusst sein, dass be wusst -_
+_seins mässige Unterschiede vom einen zum andern Menschen bestehen,_
+_folglich nicht jeder genau gleich intelligent sein kann wie der andere._
+_Das be rechtigt aber nicht, die Mitmenschen als verblendet zu sehen_
+_und sie auf ein niedriges Niveau als Mensch einzustufen. Eine solche_
+_Berechtigung besteht auch nicht in bezug dessen, wenn die Mitmen-_
+_schen religiös oder gar sektiererisch befangen sind, denn dessen zum_
+_Trotz sind auch sie Menschen, die genau wie alle andern den schöpfe -_
+_risch-natürlichen Gesetzmässigkeiten des Lebens und des evolutiven_
+_Lernens eingeordnet sind._
+
+_9) Jeder Mensch soll sich durch eigene Anstrengungen bemühen, sein_
+_Dasein und seine existentiellen Pflichten in jeder Form des Gerechten,_
+
+
+-----
+
+_Redlichen, Vernünftigen und Intentionalen usw. selbst zu gestalten und_
+_zu erfüllen, und zwar sowohl im materiellen wie auch im bewusst seins -_
+_mässi gen, charakterlichen, tugendhaften und gedanklich-gefühls mäs -_
+_si gen und psychischen Bereich. Dadurch soll der Mensch auch eine_
+_ausgeprägte Motivation erschaffen, um in sich selbst aufzusteigen, und_
+_zwar ohne sich irgendwie zu erniedrigen – auch nicht in religiöser_
+_oder sektiererischer Form._
+
+_10) Jeder Mensch soll seinen Idealismus nicht für unwürdige sowie un-_
+_beweisbare und fragwürdige Dinge einsetzen, sondern seinen Idealis -_
+_mus speziell darauf ausrichten, sich in seinem wahren Wesen selbst_
+_zu erkennen und dieses zu verbessern, zu vervollständigen und auch_
+_nach aussen zu verwirklichen, denn das wahre Wesen ist die eigent -_
+_liche Natur dessen, das nach Fortschritt und Erfolg ausgerichtet und_
+_folglich der Ursprung der Gestaltung des Lebens ist._
+
+_11) Jeder Mensch soll nicht irgendwelchen Dingen Glauben schenken, son-_
+_dern stets die grundsätzliche Wahrheit suchen, die er nur in sich selbst_
+_zu finden vermag, wenn er alles durchforscht und überdenkt, seine_
+_Vernunft, seinen Verstand und seine gesunde Logik walten lässt. So_
+_vermag der Mensch die Wahrheit nur in sich selbst zu finden, doch_
+_das auch nur, wenn er frei ist von irgendwelchem Glauben an Dinge,_
+_die er niemals in sich selbst zu beweisen vermag. Glaube nämlich_
+_ist kein Beweis, sondern nur etwas, das als lieb, begehrenswert und_
+_als richtig angenommen wird, ohne dass dafür ein Wahrheitsgehalt_
+_angeführt werden kann, folglich also ein Glaube niemals beweis -_
+_kräftig sein kann, weil eben die Tatsache der beweisbaren Wahrheit_
+_fehlt._
+
+_12) Jeder Mensch kann niemals das an wirklicher Wahrheit finden, nach_
+_dem er jahrelang oder ein ganzes Leben lang sucht, wenn er sich_
+_einfach einem Glauben hingibt und nicht die Tatsächlichkeit der_
+_Wahrheit durch Logik, Verstand und Vernunft in sich selbst erforscht_
+_und erkennt, um diese dann auch durch sein Leben und seinen Lebens -_
+_stil umzusetzen und zu befolgen._
+
+
+-----
+
+_13) Jeder Mensch sollte sein höchstes Ziel darin sehen, sein Wissen, sein_
+_Können, seine wahre Liebe, sein wirkliches Glück, seine Fähigkeiten_
+_und Möglichkeiten sowie seine Weisheit und Menschlichkeit derart_
+_fortschritt lich zu gestalten und umzusetzen, dass er dadurch ein wahr -_
+_lich evolutives und menschgerechtes Leben führen und auch den_
+_Mitmenschen in dieser Weise beistehen kann._
+
+_14) Jeder Mensch achte in erster Linie auf sich selbst, so auf seine Per-_
+_sönlichkeit, auf seinen Charakter, auf seine Tugenden, Gedanken,_
+_Gefühle und Handlungen, damit er alles derart ausrichte, dass alles_
+_des Rechtens ist und dass nicht irreführenden Zielen nachgejagt_
+_wird, die in Gläubig keit unwirklicher Dinge enden._
+
+_15) Jeder Mensch verwalte sein Einkommen und Vermögen in vernünftiger_
+_Art und Weise und vergeude es nicht an Unwirklichkeiten glaubens-_
+_mässiger Dinge, denn jeder soll des Rechtens sein und für sich selbst_
+_sorgen, wenn ihm die Möglichkeit und das Dasein dazu geboten sind,_
+_damit er nicht den Mitmenschen ungerechterweise zur Last falle und_
+_sich nicht als Parasit benehme._
+
+_16) Jeder Mensch lebe stets gegenwärtig, doch schaue er in die Zukunft_
+_und sorge sich um deren Gestaltung, während er jedoch auch die_
+_Vergangen heit in Betracht ziehe und daraus lerne, um Erfolge, Er-_
+_kenntnisse und Fortschritte zu erzielen._
+
+_17) Jeder Mensch bedarf der Ruhe und des Friedens, folglich er auch_
+_seiner stillen Stunden bedarf und nicht dauernd beschäftigt sein soll,_
+_und zwar sowohl nicht in seinem Alleinsein wie auch nicht in der Ge-_
+_sellschaft der Mitmenschen, nicht in der Familie und nicht in Ge-_
+_meinschaften. Jeder Mensch bedarf der Müssigkeit, denn nur durch_
+_diese vermag er sich zu sammeln und zu erholen. Sie soll aber_
+_immer angemessen und nicht über trieben sein, damit sie nicht zur_
+_Last und nicht zum Ärger der eigenen Ge danken und Gefühle und_
+_auch nicht zum Ärger der Mitmenschen werde._
+
+
+-----
+
+_18) Jeder Mensch achte immer darauf, dass er stets nur nach der Wahr-_
+_heit und niemals nach einer Heilslehre sucht, denn wahrheitlich gibt_
+_es eine solche nicht, so nicht in einer philosophischen, religiösen,_
+_weltlichen, sektiererischen oder sonstigen ideologischen Richtung, wie_
+_aber auch nicht in einer wissenschaftlichen. Eine Heilslehre entspricht_
+_in jedem Fall immer einem glaubensmässigen Betrug oder zumindest_
+_einer Scharlata nerie oder kriminellen Profitmacherei. Wahrheitlich_
+_zählt immer nur die Realität, die Wirklichkeit, die auf der Nutzung des_
+_gesunden Verstandes und der Vernunft sowie auf wirklicher Logik_
+_aufgebaut ist._
+
+_19) Jeder Mensch sei stets offen und ehrlich zu seinen Mitmenschen, und_
+_nie mals masse er sich an – aus welchen Gründen auch immer –, seine_
+_Mit menschen in der Art zu kontrollieren, dass ihnen Schaden daraus_
+_entsteht. Das sei so sowohl in der Familie sowie auch in jeder Gemein -_
+_schaft, damit weder Hechelei noch Benachteiligung oder sonstig Un-_
+_rechtes geschehe._
+
+_20) Jeder Mensch achte auf seine innere und äussere Freiheit und binde_
+_sich niemals an irgendwelche Dinge, von denen er sich nicht mehr zu_
+_befreien vermag oder die ihn vor dem Schritt der Befreiung ängstigen,_
+_sei dies nun in bezug auf rein materielle Dinge und Werte bezogen_
+_oder auf eine menschliche Beziehung, hinsichtlich einer Familie oder_
+_in bezug auf eine Gemeinschaft irgendwelcher Art._
+
+_21) Jeder Mensch soll dessen bedacht sein, niemals irgendwelche Lehren_
+_politischer, philosophischer, sektiererischer, weltlicher, wissenschaft-_
+_licher, religiöser oder sonstig ideologischer Form als ‹wahre Wahr-_
+_heit› oder als ‹wirkliches, wahres Wissen› usw. anzunehmen und zu_
+_verstehen, denn wahrheitlich soll jede Lehre bis ins letzte Detail hinter-_
+_fragt werden, weil nur dadurch die effective Wahrheit ergründet und_
+_die Wirklichkeit in Erfahrung gebracht werden kann._
+
+_22) Jeder Mensch muss sich stets klar sein, dass sein gelebtes Leben,_
+_ganz gleich wieviele Jahre es sein mögen, niemals zweck- und sinnlos_
+
+
+-----
+
+_gewesen ist. Demzufolge hat das gelebte Leben auch nichts Verlore-_
+_nes an oder in sich, denn jede gelebte Sekunde hat mit Sicherheit ihre_
+_Intentionalität erfüllt und evolutiven Erfolg gebracht, und zwar auch_
+_dann, wenn das Ergebnis vielleicht nur gering gewesen sein mag._
+
+_23) Jeder Mensch soll immer klaren und vernünftigen Sinnes sein und sich_
+_nicht durch irgendwelche Lehren einer dauernden Beeinflussung aus -_
+_setzen, durch die ihm die Möglichkeit des eigenen Nachdenkens,_
+_Grübelns, Ergründens, Erkennens und Verstehens genommen wird._
+_Will sich der Mensch mit irgendwelchen Dingen oder mit einer Lehre_
+_be fassen, dann muss er stets auf die Möglichkeit bedacht sein, genü -_
+_gend Zeit aufbringen zu können, um seine Gedanken und Gefühle,_
+_seine Überlegungen und Ideen usw. spielen lassen zu können, damit_
+_er alles ergründen und die Schlüsse sowie die Wahrheit in sich selbst_
+_finden kann._
+
+_24) Jeder Mensch muss darauf bedacht sein, zwischenmenschliche Bezie -_
+_hun gen zu pflegen, sich familiären Bindungen zu widmen sowie Freund -_
+_schaften, Kameradschaften und Bekanntschaften. Eltern, Geschwister,_
+_Freunde, Bekannte und die Mitmenschen allgemein müssen immer ein_
+_Born der Freude und des Friedens sein, und zwar in einer Form der_
+_Freiheit, die in jeder Weise verbindend und ausweitend wirkt._
+
+_25) Jeder Mensch muss stets darauf bedacht sein, dass ihm das Leben_
+_einen Sinn geben und ihm ein Gefühl der Sicherheit und des Be-_
+_schütztseins zu vermitteln vermag. Dies muss sich sowohl in der_
+_Gesellschaft von Mitmenschen zum Ausdruck bringen, wie auch im_
+_eigenen Alleinsein._
+
+_26) Jeder Mensch muss sein Leben derart ereignisreich gestalten, dass er_
+_darin Liebe, Glück, Freude, Frieden, Harmonie, Ausgeglichenheit_
+_und Freiheit findet._
+
+_27) Jeder Mensch, der wirklichkeitsgemäss leben will, muss sich ein gesun -_
+_des Selbstwertgefühl und Selbstvertrauen geben und erhalten, weil nur_
+
+
+-----
+
+_dadurch in bezug auf sich selbst gesunde, selbsterhaltende und fort -_
+_schrittliche Gedanken, Gefühle und Handlungen zur Geltung kommen_
+_können._
+
+_28) Jeder Mensch soll sich immer und jederzeit so benehmen in Anstand_
+_und Tugendhaftigkeit sowie in Hinsicht seiner Arbeit und Meinung,_
+_seines Wissens und seiner Bildung, dass er sowohl in seiner näheren_
+_wie auch in seiner weiteren Umgebung als wirklicher Mensch wahr-_
+_genommen und respektiert wird._
+
+_29) Jeder Mensch lebe sein Leben in der Weise, dass sich nach seinem_
+_Dahinscheiden aus dem Leben noch gute Erinnerungen an ihn er -_
+_geben, die ihn posthum in guten Gedanken weiterleben lassen._
+
+_30) Jeder Mensch lebe so, dass die Mitmenschen an seinem Leben An-_
+_teil nehmen und ihn in ihren Gedanken und Gefühlen ehren. Wohl_
+_mag es dabei auch Feinde geben, die in böser Weise Anteil nehmen,_
+_doch ihnen sei vergeben, denn nicht soll Hass, sondern Frieden und_
+_Vergebung das Werk der Liebe sein._
+
+_31) Jeder Mensch soll sich in die gute Gemeinschaft der Mitmenschen_
+_eingebettet fühlen, damit ein gemeinschaftliches Erlebnis des Lebens_
+_Liebe, Frieden und Freiheit sowie Harmonie und des einzelnen Glück_
+_fördern möge._
+
+_32) Jeder Mensch sei derart beflissen, dass sich in seinem Leben sowohl_
+_Gedanklich-Gefühlvolles wie auch Spontanes und empfindungsmässig_
+_Liebevolles zu entwickeln vermögen. So sei es gegeben, dass jedes_
+_Menschen Leben immer wieder neue, gute, freudige und positive_
+_Rich tun gen findet, und zwar sowohl spontan wie auch in mancher_
+_Hinsicht wohlbedacht._
+
+_33) Jeder Mensch bemühe sich Zeit seines Lebens, dieses zu erfüllen in_
+_jeder Hinsicht, so im Lernen und Wissensammeln, im Erarbeiten der_
+_Weisheit, im Ausüben befriedigender Arbeit, in der wahren Liebe_
+
+
+-----
+
+_und Harmonie sowie im Daraufbedachtsein, Frieden und Freiheit zu_
+_wahren._
+
+_34) Jeder Mensch soll immer für alle Dinge offen sein, so er in seinem Leben_
+_immer sowohl viel Geheimnisvolles und Spannendes finden kann als_
+_auch das, was ihn zu überraschen und in Staunen zu versetzen vermag,_
+_das ihm viel leicht vor freudigem Schreck den Atem raubt und ihn stets_
+_jung sein lässt._
+
+
+_35) Jeder Mensch soll immer ein offenes, gutes, liebevolles, friedliches,_
+_harmonisches und freiheitliches Verhältnis mit allen Menschen pflegen,_
+_und zwar auch, wenn sie ihm feindlich gesinnt sind. Hass schadet in_
+_der Regel nicht dem Nächsten, sondern dem Hassenden selbst, weil_
+_die eigene Hassbefriedigung zur eigenen Schande wird._
+
+_36) Jeder Mensch muss gegenüber Fragen zum Sinn des Lebens und des_
+_Menschendaseins immer offen und diese ihm ein Bedürfnis sein, um_
+_nach zudenken und auch um mit den Mitmenschen darüber zu sprechen,_
+_um die Erkenntnis der Wahrheit daraus zu gewinnen._
+
+_37) Jeder Mensch muss das Gefühl und die Gewissheit haben, dass er_
+_das, was ihm wichtig ist, auch den Mitmenschen mitteilen und er-_
+_klären kann und dass ihm dafür Verständnis entgegengebracht wird._
+
+_38) Jeder Mensch muss das Gefühl und die Gewissheit haben, dass das, was_
+_ihn bedrückt und belastet, von den Mitmenschen verstanden wird und dass_
+_er dafür einen brauchbaren Ratschlag oder sonstige Hilfe er warten darf._
+
+_39) Jeder Mensch soll sein Leben derart offen führen, dass es sowohl für_
+_ihn selbst als auch für seine Familie, für seine Beziehung und für die_
+_Gemeinschaft von Vorteil und Nutzen in jeder positiven Form ist._
+
+_40) Jeder Mensch soll darauf bedacht sein, Problemen und Konflikten nicht_
+_einfach aus dem Weg zu gehen, sondern dafür Lösungen zu suchen_
+_und sie zu bewältigen._
+
+
+-----
+
+_41) Jeder Mensch ist der Verpflichtung eingeordnet, genügend Selbst-_
+_vertrauen und ein gesundes Selbstwertgefühl aufzubauen, um allen_
+_Aufgaben und Schwierigkeiten, die im Leben in Erscheinung treten,_
+_begegnen und sie beherrschen zu können._
+
+_42) Jeder Mensch soll immer darum bemüht sein, sich durch irgendwelche_
+_Spannungen, die bei ihm selbst oder bei Mitmenschen in Erscheinung_
+_treten, nicht aus der Fassung bringen zu lassen, sich nicht unwohl zu_
+_fühlen und nicht unsicher zu werden._
+
+_43) Jeder Mensch soll sich darum bemühen, alle Situationen des Lebens_
+_selbst bewusst und bedacht zu gestalten, wenn ihm diese Möglich-_
+_keit gegeben ist._
+
+_44) Jeder Mensch soll sich derart formen, dass er selbst durch unklare,_
+_verworrene und unerfreuliche Situationen nicht in ihn niederschlagende_
+_Gedanken und Gefühle verfällt._
+
+_45) Jeder Mensch muss stets gewappnet sein, um Gedanken und Gefühlen_
+_der Unlust auflockernd zu begegnen, um richtig mit ihnen umzugehen_
+_und ihnen nicht ausgeliefert zu sein._
+
+_46) Jeder Mensch bemühe sich, mit den Mitmenschen Kommunikation_
+_zu betreiben, um dadurch der eigenen Haltung Ausdruck zu ver -_
+_leihen und die eigene Meinung oder die Lerninteressen zu ver-_
+_treten._
+
+_47) Jeder Mensch soll sich in seinem Leben Ziele bestimmen, die er mit_
+_Bedacht, Aufmerksamkeit, Interesse, Motivation und Selbstvertrauen_
+_anstrebt und erreicht._
+
+_48) Jeder Mensch muss sein Leben in jeder Situation lebenswert finden._
+
+
+_49) Jeder Mensch muss sein Verhalten immer durch sich selbst bestimmen,_
+_nicht jedoch durch äussere Umstände, durch Mitmenschen oder durch_
+
+
+-----
+
+_Religionen, Sekten, Philosophien, Wissenschaften oder irgendwelche_
+_Ideologien._
+
+**Grundregeln sind der Grundstock für Tugenden.**
+_‹Billy› Eduard A. Meier_ _18.14 h_
+_Semjase-Silver-Star-Center_ _15. November 2001_
+
+**Wahres Menschsein ruht in den Grundregeln der gerechten Lebensführung.**
+_‹Billy› Eduard A. Meier_ _18.16 h_
+_Semjase-Silver-Star-Center_ _15. November 2001_
+
+#### Was ist der Zustand der Geisteslehrebefolgung? Was lehrt die Geisteslehre?
+_Der Zustand der Geisteslehrebefolgung ist mit absoluter Sicherheit nicht_
+_der einer Entrückung und der einer Erfahrung jenseits des Gegenständ-_
+_lichen Liegenden. Also handelt es sich nicht um einen Zustand des Über-_
+_schreitens der Grenzen von Erfahrung und Bewusstsein des realen Dies-_
+_seits resp. nicht um ein Überschreiten der Grenzen der Erfahrung und der_
+_sinnlich erkenn baren Welt. Es handelt sich also nicht um einen Zustand_
+_des sogenannten Über natürlichen oder Übersinnlichen. Die Geisteslehre-_
+_befolgung bedeutet auch nicht eine Erleuchtung im Sinne von einem reli-_
+_giösen oder sektiererischen Erleuchtetsein, das auf einer blossen Ein -_
+_bildungskraft beruht und auch dem entsprechende Visionen und sonstige_
+_Einbildungserscheinungen hervorruft, sondern sie beruht auf einer Erkennt-_
+_nis der wahren Natur und des grenzenlosen Potentials des Lebens. Öffnet_
+_sich der Menschen in sich selbst diesem Lebenszustand, dann gewinnt er_
+_sehr viel mehr Entschlossenheit, Liebe, innere Freiheit, Freude, Ausge-_
+_glichenheit und Harmonie sowie viel mehr Lebensmut, Lebenskraft, inneren_
+_Frieden, Wissen und Weisheit, wobei er auch sehr viel mehr ehrliches und_
+_effectives Mitgefühl für die Mitmenschen sowie für alle Lebensformen der_
+_Fauna und Flora gewinnt. Auch das allgemeine Wohlbefinden hebt sich_
+_in höhere Ebenen, wie auch das Verständnis für das Wohl der Natur und_
+_des Planeten wächst._
+
+
+-----
+
+_Wie bereits erwähnt, gibt es in der Geisteslehre keinerlei Vorschriften,_
+_sondern sie lehrt, dass der Mensch eigenständig und aus eigener Motiva -_
+_tion sowie aus eigenem Verlangen und nach eigenem Willen sich seinem_
+_höchsten Lebens zustand widmen soll. Im gleichen Sinn soll er auch eigen -_
+_ständig in bezug der Moral und der Ethik alles beurteilen und sich nicht_
+_irgendwelche fremde und unrichtige Regeln usw. aufzwingen lassen. Die_
+_eigene Beurteilung aller Dinge gründet vor allem auf der Ehrfurcht und_
+_dem Respekt vor der Würde gesamt haft allen Lebens sowie darauf, dass_
+_der Mensch in bezug dessen sich sehr viel bewusster werden muss, dass_
+_die Wirklichkeit des Gesetzes der Kausalität und damit also das Gesetz_
+_von Ursache und Wirkung gesamtuniverselle Gültigkeit hat und in jeder_
+_Form strikt und unausweichlich ist._
+_Die Geisteslehre beruht nicht auf einem Glauben und züchtet auch keinen_
+_solchen heran, folglich also auch kein Glaube an ein Paradies nach dem_
+_Sterben gegeben ist. So spricht sie auch nicht von einem Gott, der Liebe_
+_predigt und zugleich rachsüchtig und vergeltungssüchtig nach Strafe schreit._
+_Die Lehre des Geistes legt dar, dass der Mensch sein aktuelles, materielles_
+_Leben lebt, einem Zeugungs-, Entwicklungs-, Lebens- und Sterbensvorgang_
+_eingeordnet ist und nach dem Ableben nicht mehr existiert. Die mensch-_
+_liche Geistform resp. das menschliche Teilstück Schöpfungsgeist wechselt_
+_dabei in seinen Jen seitsbereich hinüber und verweilt dort im sogenannten_
+_Todesleben bis zur Wiedergeburt. Das Bewusstsein und die Persönlichkeit_
+_entweichen in den Jen seits bereich des durch die Geistform geschaffenen_
+_Gesamtbewusstseinblocks, in dem sie enthalten sind, und werden durch_
+_diesen aufgelöst zu neutra len Energien, aus denen durch den Gesamt -_
+_bewusstseinblock ein neues Bewusst sein und eine neue Persönlichkeit ge-_
+_schaffen werden, die dann zusammen mit der reinkarnierenden Geistform_
+_geboren werden._
+_Grundlegend legt die Geisteslehre dar, dass durch die Wiedergeburt_
+_resp. Reinkarnation der Geistform und das jeweilige Neuentstehen neuer_
+_Formen des Bewusstseins und der Persönlichkeit sozusagen die Ewigkeit_
+_des Lebens gegeben ist. Das jedoch ist zu verstehen im Sinne der Ewig-_
+_keit des Lebens in bezug des Geistes resp. der Geistform, die allgrosszeit -_
+_lich und also ewig existent bleibt, während die Formen des Bewusstseins_
+_und der Persönlichkeit jeweils nur während eines aktuellen, materiellen_
+
+
+-----
+
+_Lebens bestehen, nach dem Ableben des Körpers aufgelöst werden und_
+_also vergehen, um einer neuen Form des Bewusstseins und einer neuen_
+_Persönlichkeit Platz zu machen. So lebt die Essenz des Lebens, der Geist_
+_resp. die Geistform weiter, während der physische Körper irgendwann_
+_stirbt und für die Wiedergeburt der Geistform sowie für das neue Bewusst -_
+_sein und die neue Persönlichkeit irgendwann in der Zukunft ersetzt werden_
+_muss. Das legt klar, dass die irrige altherkömmliche Lehre keine Gültigkeit_
+_hat, die behauptet, dass eine Wiedergeburt des gleichen Bewusstseins_
+_und der gleichen Persönlichkeit stattfinde, weil wahrheitlich nur der Geist_
+_des Menschen resp. dessen Geistform schöpferischer Natur reinkar na tions -_
+_fähig ist, nicht aber das Bewusstsein und die Persönlichkeit. Und gleicher -_
+_massen legt die Lehre das auch klar dar, dass die schöpferisch-mensch -_
+_liche Geistform einzig und allein wieder in einem menschlich-materiellen_
+_Körper wiedergeboren werden kann, niemals aber in Körpern irgend-_
+_welcher anderer Lebensformen, wie z.B. in tierischen._
+_Die Geisteslehre offenkundet, dass der Mensch sein Leben zum Nutzen_
+_seiner Evolution und des allgemeinen Fortschritts leben und sich allen Aus-_
+_artungen enthalten soll. Die Lehre geht aber auch dahin, dass der Mensch_
+_sein Leben in gesundem und rechtschaffenem Rahmen geniessen, jedoch_
+_nicht seine Leiden und das Negative verneinen soll, weil sowohl das Nega -_
+_tive wie auch das Positive zur Evolution und zum Fortschritt notwendig_
+_sind. Die Lehre legt dar, dass sich der Mensch ermutigen soll, sich bewusst_
+_seinen Leiden und Freuden und auch allem Negativen und Positiven zu_
+_stellen, weil er allein dadurch in sich wachsen und evolutiv und fortschritt -_
+_lich voranschreiten kann. So gehören sowohl Fehler als auch Erkenntnis_
+_und Fehlerbehebung, wie aber auch Freude, Glück, Leid und Schmerz zum_
+_Leben, denn auch sie sind Bestandteile des Lernens und des Fortschritts so-_
+_wie der Evolution, weil ohne sie keine Erfolge zustande kämen. Das ist_
+_der Weg des Lebens, und an all diesen Dingen wächst der Mensch in_
+_seinem Bewusstsein, in seiner Persönlichkeit, in seinem Charakter sowie in_
+_seiner Liebe, im Wissen und der Weisheit, im inneren Frieden, in innerer_
+_Freiheit, Freude, Harmonie und Ausgeglichenheit. Und er wird dadurch_
+_stark, dass er all diese hohen Werte in sich aktiviert und stetig verbessert,_
+_was sich auch auf die persönlichen Lebensumstände wie auch auf die_
+_Situation der Familie, des Freundes- und Bekanntenkreises sowie auf die_
+
+
+-----
+
+_nähere und weitere Umgebung und letztendlich auch auf die Gesellschaft_
+_auswirkt._
+
+#### Wie sieht die Praxis der Geisteslehre aus?
+_Das Praktizieren der Geisteslehre ist grundlegend eine sehr einfache_
+_Sache, die nicht irgendwelche Rituale oder sonstige Kulthandlungen usw._
+_erfordert. Das ganze Prozedere besteht im ersten Schritt darin, in einem_
+_einfachen Lernen/Studium des schriftlichen Geisteslehrematerials, das in_
+_Lehrbriefen, Kleinschriften und Büchern enthalten und dargebracht ist, in_
+_leichtverständlicher und zweckmässig ausführlicher Form nachzuvollziehen._
+_Der zweite Schritt ist der, dass der erlernte Stoff in seinem Sinn im Gedächt-_
+_nis behalten und zum Wissen wird, was jedoch in keiner Weise ein Auswen -_
+_diglernen bedeutet, sondern lediglich ein sinngemässes Aufarbeiten und_
+_gedächtnismässiges Registrieren. Als dritter Schritt folgt dann die Ausübung_
+_resp. Umsetzung des Gelernten in die Tat, und zwar in der Form, dass nach_
+_bestmöglichem Vermögen die erlernten Gesetze, Gebote und Richtlinien_
+_usw. im Alltag und durch die Lebensführung verwirklicht werden._
+
+#### Werden bei der Geisteslehre auch Gebete gesprochen?
+_Die Geisteslehre ist nicht darauf ausgerichtet, unterwürfige Bittgebete zu_
+_ver richten, denn die Lehre kennt keine Gottheit, Engel oder Heilige usw.,_
+_an die demütige und unterwürfige Gebete gerichtet werden sollen. Der_
+_Mensch ist in jeder Beziehung allein für sich sowie für seine Gedanken,_
+_Gefühle, Emotionen, Handlungen und für sein Wirken in jeder Beziehung_
+_verantwortlich. Wenn er daher durch Gebete etwas erbitten will, dann_
+_können und dürfen diese nur an sich selbst, an das eigene Bewusstsein_
+_oder an die eigene Geistform, den eigenen Geist, gerichtet sein, denn es_
+_gilt das altbekannte Prinzip: «Hilf dir selbst, dann hilft dir Gott.» Will_
+_daher der Mensch in diesem Sinn ein Gebet sprechen, dann ist das durch_
+_die Geisteslehre nicht verboten und kann nach eigenem Ermessen jeder-_
+_zeit verrichtet werden. Zu beachten ist dabei jedoch, dass das Gebet nicht_
+
+
+-----
+
+_zu einem Ritual und nicht zu einer Kulthandlung aus artet, wie es auch_
+_nicht unterwürfig sein soll. Ein solches nutzvolles Gebet ist z.B. folgende_
+_altherkömmliche Urform:_
+
+**1)** _Mein Geist, der du allwissend, allkönnend, allweise, allwahrheitlich_
+_und all-liebend in mir bist, deine Name sei geheiligt*._
+**2)** _Deine Allmacht breite sich aus in mir zur Bewusstheit meiner_
+_Gedanken, so ich die mir gegebenen und ersammelten Wissen,_
+_Kräfte, Weisheiten, Wahrheiten und die Liebe im Universellen,_
+_den Frieden und die Freiheit in bewusstem Können zur Nutzung,_
+_Entfaltung und zur Anwendung bringe._
+**3)** _Deine Allmacht werde zur bewussten Bestimmtheit in mir, in meinem_
+_Körper und in allen geistigen Bereichen._
+**4)** _Lasse deine Allmacht täglich in mir wirksam sein und sich entfalten_
+_und nähre mein Unwissen mit Wissen und Weisheit,_
+**5)** _wodurch ich die begangenen Fehler zu erkennen und zu beheben_
+_vermag, die mich auf dem Weg meiner Entwicklung befallen._
+**6)** _Lasse mich nicht durch materielle und weltliche Dinge und falsche_
+_Denkweisen irre Wege gehen und durch Irrlehren in_
+_Glaubensabhängigkeit verfallen;_
+**7)** _denn deine Allmacht soll bewusst in mir sein,_
+_die Kraft deines Könnens und des Wissens im Absolutum für die_
+_Dauer aller Zeiten._
+
+
+
+*** In der Geisteslehre bedeutet ‹heiligen› = kontrollieren, das im Gegen-**
+_satz zum religiösen Begriff ‹Heilig/Heiligen›, der in dieser Beziehung_
+_folgend ausgelegt wird: «Durch eine völlige Hingabe an Gott sittlich_
+_vollkommen sein» resp. einen Menschen «infolge seiner völligen_
+_Hingabe an Gott als sittlich vollkommen erklären», resp. «einen Kult-_
+_gegenstand Gott weihen, wodurch er heilig gesprochen wird.»_
+
+
+-----
+
+_Diese altherkömmliche Form kann, wenn sie einem Menschen zu schwierig_
+_ist, auch in verkürzter Form benutzt werden, die grundsätzlich denselben_
+_Wert hat und das gleiche mit kurzen Worten bedeutet. Die fett numerierten_
+_Sätze der ursprünglichen ersten und längeren Version sind die exakten_
+_Auslegungen der Sätze der zweiten und verkürzten Version, die folgen der -_
+_massen lautet:_
+
+**1)** _Mein Geist, der du bist in Allmacht._
+**2)** _Dein Name sei geheiligt._
+**3)** _Dein Reich inkarniere sich in mir._
+**4)** _Deine Kraft entfalte sich in mir,_
+_auf Erden und in den Himmeln._
+**5)** _Mein tägliches Brot gib mir heute,_
+_so ich erkenne meine Schuld, und ich_
+_erkenne die Wahrheit._
+**6)** _Und führe mich nicht in Versuchung_
+_und Verwirrung, sondern erlöse mich_
+_vom Irrtum._
+**7)** _Denn dein ist das Reich in mir und die_
+_Kraft und das Wissen in Ewigkeit._
+
+
+_Bei der zweiten und kurzen Form des Gebetes handelt es sich um jene,_
+_die von Jmmanuel benutzt und später durch die Jünger und die christliche_
+_Kirche zum ‹Vater unser› resp. ‹Unser Vater› verändert und verfälscht wurde_
+_und so eine weltweite Verbreitung fand._
+_Ein Gebet ist grundlegend eine spezielle Form von Meditation und kann_
+_laut, leise oder in Gedanken gepflegt werden, wobei das Ganze rein_
+_indi viduell geformt und praktiziert werden kann, doch soll es niemals zur_
+_rituellen oder kultischen Form ausarten. Grundsätzlich muss ein Gebet,_
+_wenn schon der Wunsch nach einer Gebetsverrichtung steht, immer auf_
+_den eigenen Geist oder auf das eigene Bewusstsein ausgerichtet sein und_
+_niemals auf eine Gottheit oder dergleichen, denn auch ein Gebet soll in_
+_erster Linie einzig und allein der Selbstentwicklung, der Selbsterkennung_
+_und der Selbstverwirklichung dienen. Weiter gibt es aber auch noch das_
+_sogenannte Positive-Gedanken-Gebet, das darauf ausgerichtet ist, gebets -_
+
+
+-----
+
+_weise gute, liebevolle und positive Gedanken und Gefühle für beliebige_
+_Mitmenschen oder für die ganze Menschheit zu pflegen. Diese Art Gebet_
+_wird in der einfachen Weise ausgeübt, dass entsprechende Gedanken_
+_gehegt und Gefühle erzeugt werden, die beliebig auf bestimmte Personen_
+_ausgerichtet werden._
+
+#### Was ist Lernen/Studium der Geisteslehre?
+_Das Lernen/Studium der Geisteslehre ist ein Erarbeiten des Wissens der_
+_schöpferischen Gesetz- und Gebotsmässigkeiten. Das Lernen/Studium fordert_
+_keinen Glauben, sondern gegenteilig eine offene Neutralität, Unvoreinge -_
+_nommenheit, eigene Motivation und eigenen Willen sowie eigene Freiheit_
+_und Selbstentscheidung. Die Gesetzmässigkeiten sind bestehende schöp -_
+_ferisch-natürliche Gesetze, die eine universelle und unumstössliche Gültig -_
+_keit haben, während die Gebotsmässigkeiten Empfehlungen und Richtlinien_
+_sind, die – wie bei den Gesetzen – bei deren Befolgung dem Menschen_
+_grossen Nutzen bringen._
+
+#### Was ist die Ausübung der Geisteslehre – Was bewirkt die Geisteslehre?
+_Die Ausübung der Geisteslehre zeigt sich darin, wie der Mensch seinen_
+_Alltag gestaltet und wie er mit sich selbst sowie mit den Mitmenschen, den_
+_Tieren und Pflanzen umgeht. Das grosse Ziel des würdigen und korrekten_
+_Umgangs wird jedoch nur erreicht, wenn in den Gedanken und Gefühlen_
+_sowie im Wirken und Handeln eine Revolution stattfindet, die auf der per-_
+_sönlichen Ebene und im Lebenswandel zu einer Reformation führt. Revolu -_
+_tionierend zu sein bedeutet für den Menschen in keiner Weise, dass er sich_
+_einer Selbstverleugnung hingeben, sondern sich selbst verwirklichen soll,_
+_und zwar indem er all seinen guten und positiven Werten durch eine Selbst -_
+_erkenntnis gewahr wird und diese zum Erblühen und zur Ausübung bringt._
+_Ausübung der Geistes lehre bedeutet auch, dass durch das Lernen/Studium_
+_der Lehre und damit auch durch das erschaffene Wissen eine allmähliche_
+_Veränderung der Gedanken und Gefühle sowie der Persönlichkeit und_
+
+
+-----
+
+_des Charakters entsteht. Es werden jene Aspekte des eigenen Lebens, der_
+_eigenen Lebensführung sowie des Lebens wandels, des Charakters und_
+_der Persönlichkeit entdeckt, die verändert werden müssen, weil sie eigens_
+_und anderen Menschen Leid, Schmerzen, Not, Nachteile oder gar Unheil_
+_und Trauer usw. bereiten._
+_Das Ausüben der Geisteslehre führt zur Revolution des Inneren, Gedank-_
+_lichen, Gefühlsmässigen, Charakterlichen und der Persönlichkeit. Für man -_
+_chen Menschen bedeutet das, dass er seiner eigenen Faulheit Herr wird_
+_und diese überwindet, die ihn bis anhin davon abgehalten hat, etwas_
+_Wertvolles in bezug seiner Gesamtentwicklung zu tun. Andere lernen sich_
+_zu entspannen, sich zu freuen, glücklich zu sein und das Leben zu genies -_
+_sen, während andere durch das Ausüben der Geisteslehre ihre Herrsch-_
+_sucht ablegen, die sie über andere dominieren lässt. Das Ausüben der Lehre_
+_des Geistes führt andere dazu, ihr mangelndes Selbstvertrauen aufzubauen_
+_oder einen Minderwertig keitskomplex im Keime auszurotten._
+_Natürlich kann der Mensch für sich allein glücklich sein, wenn er in sich die_
+_notwendige Glücklichkeit dafür erschaffen kann, jedoch ein wahres Glück -_
+_lich sein unter den Menschen kann nur dann sein, wenn auch alle andern_
+_glück lich sind. Dafür aber muss etwas getan werden, was durch die Aus-_
+_übung der Geisteslehre geschehen kann, und zwar dadurch, dass der_
+_einzelne für den Nächsten gute und positive Gedanken und Gefühle pflegt,_
+_wie z.B. durch das Positive-Gedanken-Gebet. Das Ausüben der Geistes-_
+_lehre zum eigenen und des Nächsten Wohl und Glücklichsein beruht aber_
+_auch darin, dass sowohl der eigenen als auch jeder anderen Person mit_
+_offenen guten und positiven Gedanken begegnet wird. Und für die Mit-_
+_menschen kann zudem auch das getan werden, dass mit ihnen nicht einfach_
+_über irgendwelchen Unsinn, über Krieg, Krankheit und Verbrechen, über_
+_Ärger, Hass, Lieblosigkeit und Rache sowie Vergeltung und andere Aus-_
+_artungen gesprochen wird, sondern über innere und äussere Werte, wie_
+_wahre Liebe, Frieden, Freiheit, Harmonie, Freude, Freundschaft und Glück_
+_usw. Auch das ist Ausübung der Geistes lehre, und zwar eine sehr wertvolle_
+_Ausübung, denn durch ein solches Handeln und Verhalten werden die_
+_Mitmenschen ermutigt, ihr eigenes Leben zu betrachten und danach zu_
+_streben – ohne Zwang und Missionierung –, selbst Frieden, Freude, Liebe,_
+_Freiheit, Glück, Frieden und Wohlbefinden in sich zu erarbeiten, um alles_
+
+
+-----
+
+_dann selbst auch wieder hinauszutragen in die Welt – zu anderen Men-_
+_schen, die nach Gleichem streben, jedoch alleine auf sich gestellt ohne_
+_Hilfe den Weg dazu nicht finden._
+_Das Ausüben der Geisteslehre und die Lehre selbst verkörpern das wahre_
+_Wesen des menschlichen Lebens, wobei das Ausüben des Gelernten selbst_
+_ein Forum zu sich selbst sowie zu den Mitmenschen eröffnet, durch das_
+_ein freier Austausch von Gedanken, Gefühlen, Worten und Sichtweisen_
+_erfolgt. Das schafft eigene sowie gegenseitige Ermutigungen, durch die_
+_zwischenmenschliche Beziehungen und Verbindungen entstehen, aus denen_
+_grosse fortschrittliche Werte hervorgehen, die in wahrer Liebe, wahrer_
+_Freiheit, wahrem Frieden und in Harmonie gründen. Und selbst dann, wenn_
+_der Mensch nur ein geringes Interesse an der Geisteslehre hat und sie nur_
+_in minimaler Form ausübt, ergeben sich nach und nach immer mehr posi tive_
+_und wertvolle Auswirkungen, die den Wunsch und den Drang erwecken,_
+_sich immer weiter und tiefer in die Lehre des Geistes zu vertiefen._
+_In richtiger Form der Lehre zugetan, wirkt das Lernen/Studium als sehr_
+_wichtiges Mittel zur Erlangung von Wissen und Weisheit, wie aber auch_
+_von wahrer Liebe, Harmonie, Ausgeglichenheit und innerem Frieden, ver-_
+_bunden mit Freude und Wohlbefinden. Durch das Lernen/Studium der_
+_Geisteslehre wächst aber auch das Verständnis für alle Dinge des Lebens,_
+_so auch in bezug der Menschen und der zwischenmenschlichen Beziehun -_
+_gen. Weiter ist das Lernen/Studium der Lehre auch ein wertvoller Weg,_
+_um Erfolge zu erringen sowie Lösungen für allerlei Probleme zu finden,_
+_nebst dem, dass die Anwendung des Gelernten zum allgemeinen Wohl-_
+_befinden des Bewusstseins, der Gedan ken und Gefühle und damit der_
+_Psyche und des Körpers beiträgt._
+
+_Das Ausüben der Geisteslehre in bezug des Lernens kann morgendlich_
+_und abendlich oder sonst zu jeder beliebigen Tages- oder Nachtzeit prak-_
+_tiziert werden. Die Ausübung hinsichtlich der Anwendung des Gelernten_
+_allgemein gesehen bedeutet, dass diese durchgehend 24 Stunden im Alltag_
+_einnehmen soll, und zwar in der Form, dass das Erlernte allgemein zur_
+_Anwendung gebracht wird. Das bedeutet, dass die erlernten hohen Werte_
+_wahre Liebe, Frieden, Freiheit, Freude, Harmonie, Ausgeglichenheit, Wohl -_
+_befinden, Mensch sein und Menschlichkeit sowie Würde, Achtung, Respekt,_
+
+
+-----
+
+_Ehrfurcht und die Tugenden usw. sowohl bewusst eigens wie auch nach_
+_aussen in bezug auf die Mitmenschen und die Fauna und Flora allzeitlich_
+_verwirklicht und gepflegt werden. Die Örtlichkeit spielt dabei keine Rolle,_
+_denn der Ort ist von absoluter Bedeutungslosigkeit, weil einzig und allein_
+_nur das Wirken in der genannten Form zählt sowie die guten und positiven_
+_Wirkungen, die daraus entstehen. Das Ganze bildet an sich eine Widmung_
+_des Lebens an die univer sellen Gesetzmässigkeiten und deren Befolgung,_
+_nebst dem, dass das damit verbundene Bemühen das Leben und die_
+_Lebensführung mit dem Lebensrhythmus des Universalbewusstseins, mit_
+_der Schöpfung und damit mit dem Universum und allem Existenten in_
+_Einklang bringt._
+_Tatsächlich, vielen Menschen fällt es schwer, sich in die schöpferisch-_
+_natürlichen Gesetze einzufügen, denn das korrekte Handeln als Mensch_
+_in bezug der schöpferisch-natürlichen Gesetzmässigkeiten erfordert Mut,_
+_Achtung vor dem Leben, Motivation, Willen, Kraft und Anstrengung. Das_
+_sollte nicht leicht genommen werden, denn eine der Wirkungen der Aus-_
+_übung und Befolgung der schöpferisch-natürlichen Gesetzmässigkeiten_
+_und Gebote liegt darin, dass der Mensch sich selbst von seinen negativen_
+_Tendenzen befreit und wahrlicher Mensch wird, wenn er sein Bewusstsein,_
+_seine Gedanken und Gefühle sowie seine Handlungen auf die wesent -_
+_liche Ausübung der Befolgung der Gesetze, Gebote und Richt linien aus-_
+_richtet, wie sie durch die Geisteslehre gegeben sind._
+_Das Ausüben der Geisteslehre in jeder Form ist kein Akt des Glaubens,_
+_sondern ein Akt des Handelns. Das bedeutet, dass prinzipiell kein Glaube_
+_in bezug der Lehre des Geistes bestehen darf, sondern nur das Interesse_
+_und die Motivation sowie der Wille, sich mit der Lehre zu konfrontieren_
+_in Form des Lernens und Verarbeitens, sich mit ihr auseinanderzusetzen,_
+_das Erlernte zu überdenken und zu überarbeiten, um eigens in sich selbst_
+_als Erfolg die Wahrheit zu finden. So bedeutet das Lernen/Studium der_
+_Geisteslehre, selbst zu suchen und zu finden, selbst zu denken und zu ent-_
+_scheiden und keinem Glauben an die Geisteslehre zu verfallen. Werden_
+_so durch das Ausüben jeder Form der Geisteslehre Erfolge, Wissen, Liebe_
+_und Weisheit errungen sowie innerer Frieden, innere Freiheit, Ausgeglichen -_
+_heit, Wohlbefinden, Freude, Glücklichkeit und Harmonie, dann wird eigens_
+_für die eigene Person ein Vertrauen aufgebaut. Dieses Vertrauen schafft_
+
+
+-----
+
+_gute und positive Gedanken und Gefühle und die Ermutigung, das gesamte_
+_Erlernte als Auswirkungen auf das eigene Leben auszuprobieren, wodurch_
+_Wissen, Erfahrung, Erleben und Weisheit mit der Kraft der Praxis allmäh-_
+_lich wachsen und alles zu einem lebensbejahenden Faktor wird. Also ist_
+_es nicht notwendig und zudem nicht angebracht und falsch, mit einem_
+_Glauben an die Geisteslehre heranzugehen, wenn mit deren Ausübung_
+_begonnen wird._
+_Tatsache ist, dass manche Menschen zwar ernsthaft die Praxis der Aus -_
+_übung der Geisteslehre befürworten, jedoch irrig der Ansicht sind, dass_
+_sie selbst diese Ausübung nicht nötig hätten, darauf verzichten könnten,_
+_oder dass sie dafür ungeeignet seien. Das ist jedoch gegenüber der Wahr-_
+_heit und Realität widersinnig, denn die Lehre des Geistes und die Praxis_
+_in deren Ausübung ist für jeden einzelnen Menschen bestimmt, der des_
+_Verstandes und der Vernunft trächtig ist._
+
+#### Was bedeuten Lernen, Fehler, Wissen und Weisheit in der Geisteslehre?
+_Wissen in bezug der Geisteslehre bedeutet, dass alles Erlernte in einem_
+_inne ren Prozess gründlich verarbeitet wird und daraus effective Erkennt-_
+_nisse gewonnen werden, die zur Erfahrung und zum Erleben geführt_
+_werden müssen. Das bedeutet mit anderen Worten, dass die gewonnenen_
+_Erkenntnisse eigens erfahren und erlebt werden müssen, woraus sich dann_
+_die Essenz des Wissens bildet, die als Weisheit bezeichnet wird. So ist_
+_also Weisheit die Essenz des Wissens, das wiederum auf Wahrnehmungen,_
+_Erkennen und Kenntnis beruht, die als Werte aus dem Lernen hervorgehen._
+_Lernen aber ist mit einem Fehler begehen verbunden, denn durch die_
+_natürliche Regel der Entwicklung ist bestimmt, dass ein Erfolg nur durch_
+_Erkenntnis beschieden sein kann, was aber grundsätzlich bedeutet, dass_
+_erst Fehler begangen werden müssen, ehe daraus gelernt werden kann._
+_Folgedem ist die ganze Entwicklung darauf aufgebaut, Fehler zu begehen,_
+_diese zu erkennen und zu beheben, um erst dann alles richtig zu hand-_
+_haben. Wird aber durch das Fehlerbegehen und Fehlerbeheben eine Sache_
+_richtig gemacht, dann bildet diese Sache nur einen einzigen winzigen_
+
+
+-----
+
+_Fakt im gesamten zu erlernenden Faktenbereich des Lebens, der unendlich_
+_gross und vielfältig ist. Daraus ergibt sich, dass fortlaufend immer wieder_
+_neue Fehler in Erscheinung treten, die erkannt und behoben werden_
+_müssen, wodurch sich erst die Evolution ergibt, weil nur dadurch Wissen_
+_und Weisheit gesteigert werden können. Zu beachten ist dabei auch,_
+_dass ein einzelner Gesamtfehler allein aus vielen verschiedenen Teilen be-_
+_steht, folglich es geschieht und scheint, dass wenn ein Fehler erkannt und_
+_behoben wurde, dass der gleiche Fehler abermals gemacht werde und_
+_also eine Wiederholung desselben stattfände. Das jedoch ist wahrheitlich_
+_nicht der Fall, denn der behobene Fehler bleibt behoben und tritt nicht_
+_wieder in Erscheinung, weil nämlich in Wirklichkeit ein anderer Teil des_
+_behobenen Fehlers zur Wirkung gelangt, der bis anhin noch nicht erkannt,_
+_bearbeitet und behoben wurde. Besteht ein Gesamtfehler z.B. aus 100_
+_verschiedenen Teilen, dann muss jeder einzelne Teil des Gesamtfehlers bei_
+_seinem Akutwerden erkannt, bearbeitet und behoben werden. Und da der_
+_Gesamtfehler in seinen 100 Teilen immer nahezu, jedoch wahrheitlich nur_
+_jotahaft, mit allen einzelnen Teilen identisch ist, so erscheint es, als ob der_
+_gleiche Fehler immer wieder oder zumindest mehrmals gemacht werde,_
+_was jedoch tatsächlich einer Täuschung entspricht, weil die Kenntnis dessen_
+_fehlt, dass ein Gesamtfehler aus vielen einzelnen resp. verschiedenen Teilen_
+_besteht._
+
+#### Wird die Geisteslehre unmöglich, wenn jemand einem Glauben angehört?
+_Da die Geisteslehre absolut unabhängig von jedem religiösen, sektiererischen,_
+_philosophischen oder weltlichen Glauben, so also völlig neutral ist, spielt_
+_die Abhängigkeit oder Zugehörigkeit eines Menschen zu einem Glauben_
+_irgendwelcher Art kein Rolle. Die Geisteslehre kann folglich von jedem_
+_Men schen, egal welchem Glaubensbekenntnis er angehört und ob er ober -_
+_flächlich oder tief gläubig ist, gelernt, studiert und ausgeübt werden._
+_Grundlegend ist in bezug des Glauben, egal ob religiös, sektiererisch,_
+_philo so phisch oder weltlich usw., zu sagen, dass er niemals die mass -_
+_gebende Rolle dessen spielt, ob der Mensch ein wahrer Mensch oder ein_
+
+
+-----
+
+_menschliches Ungeheuer ist. So kann der tiefstgläubigste religiös oder_
+_sektiererisch geprägte Mensch in seinen Gedanken, Gefühlen und Hand-_
+_lungen ein sehr bösartiges menschliches Monster und Ungeheuer sein,_
+_das nach Rache und Vergeltung schreit und voller Hass gegen einen_
+_Menschen ist, wenn dieser sich eines Vergehens oder Verbrechens schuldig_
+_gemacht hat. Das gleichermassen, wie die so ‹liebevollen Gottheiten›,_
+_von denen die ‹grosse Liebe› gepredigt wird, die jedoch sofort nach Blut,_
+_Rache, Tod und Vergeltung schreien, sobald von deren Gläubigen etwas_
+_getan wird, das wider ihre ‹göttlichen Anordnungen› gerichtet ist. Da sind_
+_aber auch oberflächlich gläubige Menschen, die sich um überhaupt nichts_
+_kümmern, alles einfach gottergeben hinnehmen und sich nicht bemühen,_
+_aus ihrem Alltagstrott auszusteigen, nicht selten darum, weil sie die Strafe_
+_Gottes fürchten. Da sind aber auch jene, welche im Glauben fanatisch_
+_und radikal sind, alles verfluchen und verdammen, was nicht ihresgleichen_
+_ist oder nicht ihresgleichen werden will, wenn sie dementsprechend die_
+_Mitmenschen missionierend beharken. All diesen und weiteren im Glauben_
+_Ausgearteten sind aber auch jene Menschen entgegengesetzt, die keinem_
+_Glauben angehören oder die einem religiösen, sektiererischen, philo sophi -_
+_schen oder weltlichen Glaubensbekenntnis folgen, die aber versuchen,_
+_wahrlich Mensch zu sein, sich diesbezüglich bemühen und die Tugenden_
+_leben. Es sind dies Menschen mit einem Glauben irgendwelcher Form, die_
+_die schöpferisch-natürlichen Gesetzmässigkeiten sowie die gleich gerich te -_
+_ten Gebote resp. Empfehlungen und Richtlinien befolgen, ohne in der Regel_
+_dabei zu wissen, dass sie im Rahmen dieser Gesetze, Gebote und Richt-_
+_linien handeln und damit die Geisteslehre ausüben und be folgen._
+_Das Gesagte lehrt, dass also auch ein gläubiger Mensch religiöser, sektie -_
+_rerischer, philosophischer oder weltlicher Form durchaus im Rahmen der_
+_schöpferisch-natürlichen Gesetze, Gebote und Richtlinien sein Leben führen_
+_kann, die wahre Liebe pflegt, wie auch den inneren und äusseren Frieden,_
+_die Freiheit, Harmonie und Ausgeglichenheit, die Freude und das Glück._
+_Und das kann also auch dann der Fall sein, wenn eben ein Glaube ge-_
+_pflegt wird, der in jedem Fall grundsätzlich falsch ist. Wichtig ist nicht der_
+_Glaube, sondern die innere Einstellung des Menschen zum Leben, zu den_
+_Mitmenschen sowie zur Fauna und Flora, wie aber auch das innere eigene_
+_und das äussere Wirken in jeder Beziehung. So kann auch durch die Ein-_
+
+
+-----
+
+_stellung und durch die Handlungen aus einem falschen Glauben heraus_
+_Gutes, Positives und Wertvolles hervorgerufen und geschaffen werden,_
+_was ganz sicher nicht zu verurteilen ist, denn wie etwas Gutes, Wertvolles_
+_und Positives auch immer entsteht, ist es doch etwas Aufbauendes, Fortschritt -_
+_liches und Lohnendes sowie Schätzenswertes usw. Von Leidigkeit kann_
+_dabei nur gesprochen werden, dass der Mensch durch einen Glauben_
+_irgendwelcher Art von der effectiven Wahrheit und von den schöpferisch-_
+_natürlichen Gesetzmässigkeiten sowie von deren Geboten und Richtlinien_
+_keine Kenntnis erlangen kann und folge dessen in bezug der effectiven_
+_nachvollziehbaren Wahrheit abgehalten und in die Irre geführt wird. Tat-_
+_sache ist aber, dass auch ein Mensch mit einem Glauben rechtens leben,_
+_wirken und evolutionieren kann, auch wenn er keine bewussten Kenntnis se_
+_der Geisteslehre sowie von der Schöpfung und ihren Gesetzen, Geboten_
+_und Richtlinien hat._
+
+#### Was ist die Wirkung der Ausübung der Geisteslehre? Was bedeutet der Zufall in der Geisteslehre? Was bedeutet die Schöpfung in der Geisteslehre?
+_Die Wirkung der Ausübung der Geisteslehre ist nicht darauf ausgerichtet,_
+_Begierden, Gier, Laster, Süchte und sonstige Ausartungen sowie Bedürfnisse,_
+_Hoffnungen, Notwendigkeiten und Wünsche zu verneinen, denn gegen-_
+_teilig werden sie als grosse Triebkräfte im Leben des Menschen anerkannt._
+_Dabei jedoch wird alles Negative und Ungute in der Weise realisiert, über -_
+_dacht, bearbeitet und verarbeitet, dass eine Neutralisierung und Auflösung_
+_entsteht, wobei gegensätzlich alles Gute und Positive derart aufgearbeitet_
+_wird, dass es sich verwirklicht._
+_Beginnt der Mensch mit der Ausübung der Geisteslehre in der vorgenann -_
+_ten Form, dann ermutigt er sich nach und nach selbst, eigens für die Er-_
+_füllung seiner Bedürfnisse, Notwendigkeiten, Freuden und Wünsche ein-_
+_zustehen, um alles der Verwirklichung zuzuführen. Das aber will gelernt_
+_sein, denn leider ist die Regel, dass das notwendige Wissen fehlt, weil in_
+_bezug der fehlenden Erziehungs- und Belehrungsfaktoren alle notwendigen_
+_Anleitungen nicht gegeben wurden oder zumindest nur in mangelhafter_
+
+
+-----
+
+_Weise, folglich das Er lernen der Verwirklichungswerte ausblieb und alles_
+_nachträglich erlernt werden muss. So bewegen sich viele Menschen nicht_
+_im richtigen Rhythmus, um die eigenen positiven Werte oder negativen_
+_Unwerte zu erkennen, richtig zu handhaben und entweder zum Guten_
+_auszuwerten oder um sie zum Besseren und Guten zu beeinflussen und zu_
+_ändern. So ergibt sich im Negativen leider, dass viele Menschen, um ihre_
+_eigenen positiven Bedürfnisse und Wünsche zu erfüllen, zur falschen Zeit_
+_unrichtig handeln und in der Regel auch zur falschen Zeit am falschen Ort_
+_sind. So begehen viele im falschen Moment falsche Handlungen oder_
+_sagen im falschen Moment das Falsche. Das aber vermag sich durch die_
+_Ausübung der Geisteslehre und damit der schöpferisch-natürlichen Gesetz -_
+_mässigkeiten zu beheben. Wer daher mit der Geisteslehre beginnt, sie lernt_
+_und ausübt und daraus folgerichtig sein Leben fristet, wird recht schnell_
+_Beweise für die Wirksamkeit seiner Ausübung der Geisteslehre resp. der_
+_Befolgung der schöpferisch-natürlichen Gesetze erfahren. Damit ergibt_
+_sich dann schon die erste Wunscherfüllung, nämlich dass ein erster Beweis_
+_der Richtigkeit der Geisteslehre erfahrbar und erlebbar wird und sich der_
+_erste Erfolg einstellt. Die ersten Beweise und Erfolge sind dabei keine so-_
+_genannten Zufallserscheinungen, den es überhaupt nicht gibt, wenn er in_
+_dem Sinn betrachtet wird, dass der Zufall etwas ist, das nicht als notwendig_
+_oder beabsichtigt erscheint und für dessen unvermutetes Eintreten kein_
+_Grund angegeben werden kann. Dementsprechend weist der Begriff Zufall_
+_drei Bedeutungen auf, nämlich das Nichtwesentliche, das Nichtnotwendige_
+_und das Nicht beabsichtigte. Wird so unter Zufall das Nichtnotwendige_
+_verstanden, dann ist damit der sogenannte absolute Zufall gemeint, was_
+_bedeutet, dass der Zufall eine Durchbrechung des Kausalgesetzes resp._
+_der Ursache und Wirkung darstellt und die Möglichkeit eines teilweise_
+_freien, willkürlichen Geschehens voraussetzt. Das im Unterschied zum_
+_rela tiven Zufall, der nur die Unvoraussagbarkeit und Unberechenbarkeit_
+_eines Geschehens im einzelnen meint, wobei die Berechnung des soge-_
+_nannten durchschnittlichen Eintreffens solcher Zufallsereignisse und ihrer_
+_Wahrscheinlichkeit bei einer enormen Zahl Gegenstand der Wahrschein -_
+_lichkeitsrechnung ist._
+_Die Erfolge, Erfahrungen und das Erleben durch die Ausübung der Geistes -_
+_lehre sind ein ganz natürliches Ergebnis davon, dass das Leben in Einklang_
+
+
+-----
+
+_mit dem Rhythmus der Schöpfung resp. des Schöpferischen, mit dem Uni -_
+_versal bewusstsein resp. mit dem Universum gebracht wird. Die Schöpfung_
+_ist dabei keine Gottheit, sondern die Urkraft alles Existenten im gesamten_
+_Universum; also ist sie das Schöpferische und das Universalbewusstsein,_
+_was gesamthaft auch das Universum verkörpert. Die Schöpfung ist die ge-_
+_waltigste und mächtigste geistige Energie, die über aller grobmateriellen,_
+_feinstofflichen und feinst stofflichen Materie waltet und die höchstevolu -_
+_tionierte Form des Universums ist, jedoch trotz ihrer höchsten Evolution_
+_nur eine relative Vollkommenheit aufweist und daher wie alles und jedes_
+_Existente der Evolution eingeordnet ist. Was fälschlich aus religiöser und_
+_sektiererischer Sicht als Welterschaffer resp. als Gott, Gottvater oder Gott-_
+_heit usw. gelehrt wird, entspricht wahrheitlich nur einer Imagination resp._
+_einer erdachten Gottheit als Welterbauer und Weltbeherrscher usw., was_
+_aber mit der effectiven Wahrheit nicht in Einklang zu bringen ist. Wahrheit -_
+_lich existiert nur das Universalbewusstsein resp. die Schöp fung, die als_
+_einzige Urkraft aller Kreationen alles Leben, alle Existenz und das Univer-_
+_sum verkörpert._
+_Sind die ersten Beweise und Erfolge durch die Ausübung der Geistes lehre_
+_Wahrheit und Realität geworden, dann folgen viele weitere, wodurch die_
+_tiefe Bedeutung der gründlichen und allumfassenden Philosophie des Lebens,_
+_der Lehre des Geistes, für das eigene Leben entdeckt wird._
+_Der Nutzen der Ausübung der Geisteslehre ist in Sichtbares und Unsicht -_
+_bares einzuteilen. Ein sichtbarer Nutzen und eine sichtbare Wohltat ist_
+_z.B., dass sich die gesamten Lebensumstände und die zwischenmensch-_
+_lichen Beziehun gen usw. verbessern, während dauerhafte Nutzen und_
+_Wohltaten sich im Unsichtbaren ergeben. Dabei handelt es sich um ent-_
+_stehende Werte, die sich durch Veränderungen der Persönlichkeit und des_
+_Charakters zum Besseren ergeben, die als Resultat der Ausübung der_
+_Geisteslehre wie reinigender und wohltuender Balsam auf das Bewusst-_
+_sein sowie auf die Gedanken und Gefühle, auf die Psyche und auf das_
+_ganze Leben wirken. Durch diese innere Verwandlung wird grosse Kraft_
+_gewonnen, durch die auch die äusseren Gegebenheiten und damit auch_
+_das persönliche Schicksal zum Besseren und Besten verändert werden._
+_Und tatsächlich gibt es nichts, wofür keine Ausübung der Geisteslehre_
+_und damit der Befolgung schöpferisch-natürlicher Gesetze, Gebote und_
+
+
+-----
+
+_Richtlinien praktiziert werden kann oder darf. Indem die eigenen Bedürf-_
+_nisse und Wünsche usw. zu deren Erfüllung sowie die Begierden und das_
+_Niedrige zu deren Behebung als Motivation für jede Form der Ausübung_
+_der Geistesehre genutzt werden, wird das Leben geläutert und aufgebaut,_
+_wodurch das erschaffen und erhalten wird, was für das menschliche Glück_
+_am wichtigsten und wertvollsten ist, nämlich wahre Liebe, innerer und_
+_äusse rer Frieden, innere Freiheit, Freude, Ausgeglichenheit und Harmonie._
+_Und werden all diese Werte eigens in sich erschaffen, dann weitet sich_
+_das Ganze auch auf die Umwelt aus, auf die Mitmenschen wie aber auch_
+_auf die Fauna und Flora. Damit, durch diese menschliche Revolution, wird_
+_Freude, Wohlbefinden und Glück in der näheren und weiteren Umge-_
+_bung geschaffen._
+
+#### Welche Einstellung ist notwendig zur Ausübung der Geisteslehre?
+_Zur Ausübung der Geisteslehre in jeder Form, so also sowohl zum_
+_Lernen/Studium als auch in bezug der Anwendung und Verwirklichung,_
+_ist es notwendig, eine völlig neutrale Einstellung einzunehmen. Vorurteile,_
+_Euphorie oder irgendwelcher Glaube, wie auch Wünsche und Hoff -_
+_nungen usw., beein trächti gen in jedem Fall ein tolerantes und sachliches_
+_Verhalten in bezug des Lernens/Studiums und verunmöglichen Erfolge._
+_Also darf auch nicht erwartet werden, dass sich durch das Lernen/_
+_Studium sowie durch das gesamte Ausüben, die Anwendung und das_
+_Verwirklichen der Lehre des Geistes das Bewusstsein leert und urplötzlich_
+_alle Erkenntnis des Universums offenbar wird und diese das Bewusstsein_
+_ausfüllt._
+_Geisteslehre, deren Ausübung, Anwendung und Verwirklichung in allen_
+_Formen, basiert nicht auf einer Selbsthypnose, sondern einzig und allein_
+_auf dem Lernen derselben, um Wahrnehmungen, Erkenntnisse, Kenntnisse,_
+_Wissen, Erfahrun gen, Erleben und Weisheit zu gewinnen. So ist es derart,_
+_dass wenn der Mensch das erste Mal sich der Geisteslehre und damit den_
+_schöpferisch-natürlichen Gesetzen zuwendet, er von sehr vielen Eindrücken_
+_getroffen wird, die er in der ersten Zeit gar nicht zu überdenken vermag,_
+
+
+-----
+
+_denn tatsächlich wird das nur allmählich geschehen. Im ganzen gesehen_
+_dauert der Prozess des Lernens sehr lange Zeit und nimmt Jahre und gar_
+_das ganze Leben in Anspruch, denn im Gegensatz zu religiösen, sektie-_
+_rerischen, weltlichen und philosophischen Floskeln und Falschlehren, die_
+_einen fertigen und nicht weiter führbaren Block und also eine Lehre dar-_
+_stellen, die nicht weitergeführt werden kann, führt die Geisteslehre un-_
+_endlich weiter und findet praktisch kein Ende. Die Fakten der Geisteslehre_
+_umfassen tatsächlich alles, was grobmateriell, feinstofflich und feinststoff-_
+_lich existent ist, so auch die Belange um die Schöpfung selbst, wie auch_
+_die aller sieben Absolutumformen, die über der Schöpfung stehen und_
+_deren höchste das SEIN-Absolutum ist, aus dem grundsätzlich alle Existenz_
+_hervorgegangen ist._
+_Die Geisteslehre ist nicht einfach eine Übung zur Konzentration der Ge-_
+_danken, sondern ein Wert, um das ganze Leben auf einen kreativeren und_
+_erfüllteren Weg zu führen. Allein schon aus diesem Grunde ist es völlig_
+_falsch, eine vorgeformte Einstellung in die Lehre und damit in das Lernen/_
+_Studium sowie in die Ausübung, Anwendung und Verwirklichung einzu-_
+_bringen. Also sollen und dürfen keine fixierten Gedanken und Gefühle in_
+_bezug einer Einstellung, wie z.B. eines Glaubens, Hoffnungen, Wünsche_
+_und Euphorien usw., mit dem Ganzen der Geisteslehre verbunden sein,_
+_sondern nur ein absolut neutraler Zustand. So sind auch Gedanken und_
+_Gefühle völlig fehl angebracht, wie z.B.: «Ich muss unbedingt das beste-_
+_hende Problem lösen usw.» Wichtig ist allein die neutrale Form, mit der an_
+_die Geisteslehre und deren Ausübung sowie an deren Anwendung und_
+_Verwirklichung herangegangen wird. Und wird in dieser neutralen Form_
+_das Ganze gehandhabt, dann entsteht eine Entspannung, durch die ein_
+_richtiggehendes Geniessen der Lehre des Geistes zustande kommt, denn_
+_letztendlich verwirklicht sich das wahre Wesen durch das Lernen und_
+_Praktizieren der Lehre selbst, auch wenn das Bewusstseins dies nicht in_
+_bewusster Weise weiss, sondern erst langsam aber sicher wahrnimmt. Also_
+_muss der Mensch das Erlernte aus der Geisteslehre einzig und allein auf_
+_sich wirken lassen und soll und darf sich nicht irgendwelche Lösungen für_
+_seine Probleme ausdenken. Wird das aber trotzdem getan und nicht die_
+_ganze Aufmerksamkeit auf das Lernen/Studium und auf das Ausüben, auf_
+_die Anwendung und Verwirklichung der Geisteslehre und damit der schöp -_
+
+
+-----
+
+_ferisch- natürlichen Gesetzmässigkeiten, der Gebote und Richtlinien aus-_
+_gerichtet, dann wird damit verhindert, dass die Wahrnehmung, Erkenntnis,_
+_Kenntnis, das Wissen, die Erfahrung und das Erleben sowie die Weisheit_
+_Fuss fassen und im Bewusstsein bewusst werden. Klar muss diesbezüglich_
+_sein, dass diese Werte erlernt werden müssen und nicht jedem Menschen_
+_gleichermassen gegeben sind, folglich also evolutive Unterschiede von_
+_Mensch zu Mensch bestehen, die tatsächlich Welten voneinander trennen_
+_können._
+_Wahres Lernen/Studium der Geisteslehre ist auch eine Form der Medita-_
+_tion, durch die sich dem Menschen Tür und Tor zum Verstehen, zur Liebe,_
+_inneren Freiheit, zum Frieden, zur Ausgeglichenheit, Freude und Harmonie_
+_öffnen. Und durch das Praktizieren weiterer Meditationen, die auch aus der_
+_Geistes lehre hervorgehen und ausgeübt werden können, öffnet sich dem_
+_Menschen das Leben und lässt ihn in Kooperation mit den schöpferisch-_
+_natürlichen Gesetzen, Geboten und Richtlinien sein Dasein führen._
+_Die Einstellung dessen, dass sich die Geisteslehre resp. deren Lernen/_
+_Studium nur um die Erfüllung der eigenen Hoffnungen und Wünsche_
+_drehen soll, ist grund legend falsch, denn der eigentliche Sinn liegt darin,_
+_dass die schöpferisch-natürlichen Gesetzmässigkeiten, Gebote und Richt-_
+_linien erlernt und in Ausübung verwirklicht werden, wodurch auch das_
+_Leben und all seine Situationen und Variationen usw. tiefer verstanden_
+_werden. Dadurch wird es ermöglicht, auch die grundlegenden Quellen_
+_des Glücks und des Unglücks zu entdecken und diese richtig zu hand -_
+_haben, um das Glück noch höherwertig werden zu lassen, während die_
+_Ursachen des Unglücks derart verändert werden, dass sie zum Glück führen._
+_Das aber geschieht nicht nur in bezug der eigenen Person, sondern das_
+_Ganze wird auch hinausgetragen zu den Mitmenschen, für die das erlangte_
+_Glück, die Liebe und Harmonie, der innere Frieden, die innere Freiheit und_
+_Ausgeglichenheit eingesetzt werden._
+_Durch die Werte Erfahrung, Erleben und Vertrauen, die durch das Praktizie -_
+_ren der Lehre des Geistes entstehen, wird eigens das Leben erweitert und_
+_entwickelt, was zum Wunsch führt, in jeder möglichen Form auch für die_
+_Mitmenschen hilfreich tätig zu sein. Das Ausüben dieser Hilfe führt auch_
+_zur Erkenntnis, dass diese wiederum ein sehr hilfreiches Mittel ist, um im_
+_eigenen Leben sehr gute und positive Veränderungen hervorzurufen, wo-_
+
+
+-----
+
+_durch sich der Kreis dessen schliesst, dass das, was in Ehrlichkeit gegeben_
+_wird, auch wieder ehrliche und positive Werte zurückbringt. Nimmt der_
+_Mensch Anteilnahme und zeigt Mitgefühl am Mitmenschen, dann beginnt_
+_er die Kraft seines wirklichen Wesens und seines höheren Selbst zu nutzen,_
+_die eins sind mit der unbegrenzten Kraft des Universalbewusstseins, der_
+_Schöpfung selbst sowie mit ihren natürlichen Gesetzmässigkeiten._
+
+#### Was bedeuten Bewusstsein und Geist in der Geisteslehre?
+_Irgendwann in älterer Zeit wurde von unverständigen Menschen in bezug_
+_der Wahrheit der Begriff ‹Geist› in eine Verwendung gebracht, die etwas_
+_völlig Falsches bezeichnet, so nämlich in den Bezug auf das Bewusstsein._
+_Irrig wird seit damals vom Erdenmenschen angenommen und gelehrt,_
+_dass der Geist der Faktor dessen sei, der für die Ideen und Gedanken-_
+_produktionen usw. des Men schen stehe. In daraus hervorgehendem Sinn_
+_wird auch von ‹Geisteskrankheit› gesprochen, was jedoch ebenso grund-_
+_sätzlich falsch ist wie die Behauptung, dass durch den ‹Geist› Ideen er-_
+_schaffen – von denen unter anderem fälschlich auch von ‹geistigem Eigen -_
+_tum› gesprochen wird – und Gedanken stattfinden würden. Tatsächlich ist_
+_das gesamthaft jedoch eine Irrlehre sondergleichen, denn der ‹Geist› kann_
+_und darf in keinerlei Weise damit in Zusammenhang gebracht werden._
+_Der Geist des Menschen ist ein winziges Teilstück Schöpfungsgeist, durch_
+_den das menschliche Bewusstsein und aus diesem heraus der physische_
+_Körper belebt wird. Der Geist ist also die eigentliche ‹Wurzel des Lebens›_
+_resp. die schöpfungsgegebene Energie, durch die das Leben erst möglich_
+_wird. Also ist der Geist ein Hauch der Schöpfungsenergie, die als unsicht -_
+_bare Substanz den ‹Odem des Lebens› bildet und tatsächlich ‹Träger des_
+_Lebens› ist._
+_In seiner schöpferischen Form ist er in jeder Beziehung tabu, kann vom_
+_Menschen nicht beeinflusst werden, keiner Krankheit verfallen und also_
+_auch in keiner Weise angegriffen und nicht geharmt werden. In seiner Art_
+_ist er neutral, in der Neutralität jedoch evolutionsfähig, folglich er aus dem_
+_Be wusst seinsbereich des Menschen alle ausgeglichenen und positiven_
+
+
+-----
+
+_Weisen in Form von Impulsen aufnimmt, speichert und dadurch evolutioniert._
+_Ausser dem, dass der Geist durch seine Kraft und Energien das materielle_
+_Bewusst sein und den materiellen Körper belebt, nimmt er sonst darauf_
+_keiner lei Einfluss. Der Geist ist das eigentliche Lebensprinzip selbst, das_
+_in allem Leben di gen existiert, jedoch keinen Einfluss auf die Gedanken,_
+_Gefühle und Hand lungen der Lebensformen und so also auch nicht auf den_
+_Menschen ausübt. Also ist der Geist das belebende Prinzip alles Existen ten,_
+_das einzig und allein als Belebungsfaktor mit einer Evolutionsmöglichkeit_
+_geschaffen ist, oder mit anderen Worten: Der Geist ist in allem Lebendigen_
+_als dessen eigentliches tiefstes Wesen belebend neutral waltend, ohne_
+_Einflussnahme auf das instink tive oder bewusste Schalten und Walten der_
+_Lebensform, so also auch be zogen auf den Menschen. Geist ist die leben -_
+_dige Einheit des Mannigfaltigen und das Leben des Lebens, das wahre_
+_Liebe ist._
+_Im Gegensatz zum Geist – auch Geistform genannt – steht das Bewusst-_
+_sein, in dem die Persönlichkeit verankert ist, der Charakter und die Tugen -_
+_den oder Untugenden usw. erschaffen werden. Aus dem Bewusstsein her-_
+_aus werden Gedanken und Ideen, Erfindungen, Hoffnungen, Wünsche,_
+_Ansichten, Bedürf nisse, Begierden und Glauben usw. erschaffen, folglich_
+_allein vom Bewusstsein davon gesprochen werden kann, dass aus ihm_
+_etwas erschaffen wird. Folglich kann es auch nur ein ‹bewusstseinsmässi-_
+_ges Eigentum› und nicht ein ‹geistiges Eigentum› geben, wie es auch keine_
+_‹Geisteskrankheit›, sondern nur eine ‹Bewusstseinskrankheit› gibt. Der_
+_Geist kann weder der Schizophrenie noch dem Wahnsinn oder einfach_
+_einer Verwirrung verfallen, was gegensätz lich aber in jeder Beziehung_
+_auf das Bewusstsein zutrifft, da dieses auf das materielle Gehirn be-_
+_schränkt und also als materieller Faktor für Angriffe, Verletzungen, Krank-_
+_heiten und Überlastungen aller Art anfällig ist und damit geschädigt_
+_werden kann. Das Bewusstsein ist also nicht tabu, obwohl es das höchste_
+_materielle und halbmaterielle Steuerungsorgan des gesamten mensch-_
+_lichen Körpers sowie der Ideen, Gedanken und der Faktor all dessen ist,_
+_was den Menschen in seinen Gedanken und Gefühlen sowie in seinem_
+_Handeln und Wirken ausmacht._
+
+
+-----
+
+#### Warum hat so mancher Mensch noch nichts von der Geisteslehre gehört?
+_Obwohl die Geisteslehre schon vor Jahrmilliarden von Jahren von_
+_Nokodemion sowie vor Jahrmillionen weiter von Henok und Henoch aus_
+_den Erkenntnissen um die schöpferisch-natürlichen Gesetze, Gebote und_
+_Richtlinien erschaffen wurde, fand auf der Erde deren Verbreitung nur_
+_durch einzelne Propheten statt. Die dargebrachte Lehre des Geistes der_
+_Propheten resp. Künder anderer seits wurde nie schriftlich festgehalten,_
+_folglich sie durch Priester, Besserwisser und Chronisten sowie Jünger der_
+_Künder sowohl in allen Grundzügen, wie aber auch gesamthaft im Inhalt_
+_bis zur Unkenntlichkeit verfälscht wurde. Es waren aber auch die Macht-_
+_haber aller vergangenen Zeiten, die sich gegen die revo lutionäre Lehre_
+_auflehnten, weil sie von wahrer Liebe, von wahrer Freiheit, wahrem Frieden,_
+_vom Wohlergehen des Menschen allgemein sowie von Harmonie, Hass-_
+_und Vergeltungslosigkeit und davon sprach, dass keine Sklaverei, keine_
+_Knechtschaft, keine Todesstrafe, keine Rache, keine Aus beutung der_
+_Menschen und keine böse Gewalt über das Volk ausgeübt und keine_
+_Kriege geführt werden sollen. Die Lehre machte seit alters her aber auch_
+_klar, dass alle Menschen die gleichen Rechte haben müssen, dass jeder_
+_Mensch gleichwertig und keiner mehr oder minder als der andere ist. Das_
+_aber war zu allen Zeiten für die Mächtigen der Welt sowie für die Reichen_
+_und Hochgejubelten undenkbar – wie das auch heute noch der Fall ist._
+_Ausser dem wurde von den Staatsführenden verlangt, dass alle Menschen_
+_des Volkes sowie der Armeen und der Bediensteten den staatsmächtig_
+_ausgerufenen Glauben übernahmen und befolgten. Daher wurde die_
+_Lehre von den Machthabern verboten und jene schweren Verfolgungen_
+_ausgesetzt und ermordet, welche trotz des Verbotes die Lehre lehrten oder_
+_auch nur nach ihr lebten. All das, während die Lehre des Geistes auch_
+_bewusst im Auftrage der Staatsmächtigen sowie deren Priestern bis zur_
+_Unkenntlichkeit verfälscht wurde, wodurch ungeheure religiöse und sektie -_
+_rerische Irrlehren entstanden. Letztend lich war alles derart verfälscht, dass_
+_die eigentliche Wahrheit der Lehre nicht mehr erkenntlich war und vollends_
+_verlorenging. Nur im Talmud Jmmanuel wurden gewisse Werte durch die_
+_Lehre Jmmanuels bis in die heutige Zeit überliefert, wobei der Talmud_
+
+
+-----
+
+_fügungsweise im Jahr 1964 in der wirklichen Grabhöhle Jmmanuels aus -_
+_serhalb Jerusalems gefunden, von einem katholischen Priester aus dem_
+_Aramäischen in die deutsche Sprache übersetzt und durch die FIGU ver-_
+_öffentlicht wurde._
+_Die Geisteslehre selbst ist in der Neuzeit – im 20. Jahrhundert – wieder_
+_aus der Versenkung aufgetaucht, und zwar dadurch, dass bestimmte Ur-_
+_sachen gesetzt wurden, um auf der Erde und unter deren Menschen die_
+_Lehre wieder aufblühen zu lassen. Der Dank dafür gebührt dabei der FIGU_
+_(Freie Interessengemeinschaft für Grenz- und Geisteswissenschaften und_
+_Ufologiestudien) resp. all ihren Mitgliedern, die die grossen Bemühungen_
+_unternahmen, um das Wiederaufleben der Geisteslehre zu verwirklichen._
+_Die Lehre umfasst gesamt annähernd vierhundert Lehrbriefe sowie Klein-_
+_schriften, Kleinstschriften und Bücher, die frei erwerblich und allgemein-_
+_verständlich geschrieben sind._
+_Sehr interessant ist, dass sich die Aussagen der Geisteslehre vielfach mit_
+_den Erkenntnissen vieler Wissenschaften decken resp. diesen Erklärungen_
+_vorwegnehmen, ehe diese von den Wissenschaftlern gefunden werden._
+_Nichtsdesto weniger jedoch findet die Lehre nur einen sehr langsamen_
+_Durchbruch, denn noch immer sind die Menschen in glaubensmässigen,_
+_religiösen, sektiererischen, weltlichen und philosophischen Dogmen der-_
+_art befangen und ge fangen, dass sie sich aus reiner Angst vor Strafe und_
+_Vergeltung nicht getrauen, sich der Wahrheit der Geisteslehre zuzuwenden._
+_So finden leider erstlich nur vereinzelt nach der Wahrheit und nach dem_
+_wahren Leben suchende Menschen zur Lehre, jedoch ist es so, dass das_
+_Interesse immer mehr zunimmt. Es sind dabei auch die Probleme der heuti -_
+_gen Zeit, die dazu beitragen, weil sich nur Wahnsinnige, Verantwortungs -_
+_lose und sonstige Ausgeartete Krieg, Tod, Mord, Zerstörung, Leid, Schmerz_
+_und Verderben, Gier, Laster, Hass, Vergeltung und Rache usw. zu eigen_
+_machen, während rechtschaffene Menschen, die Frieden und Freiheit_
+_sowie die Harmonie lieben, nach der Wahrheit des Lebens suchen._
+
+
+-----
+
+#### Wann und wie kann die Geisteslehre praktiziert werden, und von wem?
+_Jeder Mensch, der des Verstandes und der Vernunft trächtig ist, kann die_
+_Geistes lehre bewusst praktizieren. Menschen, die des Verstandes und der_
+_Vernunft je doch nicht zugetan sind, wie z.B. durch mangelnde Evolution,_
+_können sich in unbewusster Weise schöpfungsgesetzmässig in gewissen_
+_Dingen richtig aufführen und ein durchaus menschlich würdiges Verhalten_
+_an den Tag legen. Zwar wird das Ganze von den entsprechenden Menschen_
+_nicht vernunftsmässig realisiert und verstanden, doch zeugt es davon, dass_
+_selbst Unbedarfte und einfach solche Menschen, denen die Geisteslehre_
+_und die darin dargebrachten schöpferisch-natürlichen Gesetze, Gebote_
+_und Richtlinien unbekannt und fremd sind, in richtiger, würdevoller, ehr-_
+_fürchtiger und menschlich wertvoller Weise leben können._
+_Bewusst die Geisteslehre zu praktizieren bedarf keiner besonderen Haltung,_
+_keiner Rituale und keiner kultischen Handlungen, wie auch keiner bestimm -_
+_ten Örtlichkeit, wie das bereits an früherer Stelle eingehend erklärt wurde._
+_Es kann jedoch bei den ersten Schritten der Praktizierung der Lehre des_
+_Geistes sehr hilfreich sein, eine harmonische Umgebung zu wählen, in der_
+_ein angenehmes, wohliges Klima und Ruhe herrschen, wobei ein Unge-_
+_störtsein von enormem Nutzen ist. Hilfreich ist auch eine aufrechte Sitz-_
+_haltung sowie eine gewisse Kon zentration auf den zu erlernenden Stoff_
+_auszurichten, um das bewusst wahrzu nehmen und aufzunehmen, was ge-_
+_lernt wird. Es soll dabei darauf geachtet werden, dass der Blick sowie die_
+_Gedanken und Gefühle nicht durch irgendwelche andere und nicht sach-_
+_bezogene Dinge abgelenkt werden und dass der zu erlernende Stoff nicht_
+_nur einmal aufgenommen, sondern mehrmals wieder holt wird, um wirk-_
+_lich unauslöschbar ins Gedächtnis zu gelangen und von diesem regi striert_
+_zu werden. Tatsache ist, dass ein zu erlernender Stoff erst mehr mals laut_
+_oder leise rezitiert werden muss, um bleibend im Gedächtnis aufge -_
+_nommen zu werden, wie das gleichermassen der Fall ist mit Redewendun -_
+_gen und Gedichten usw., die auswendig gelernt werden. Ein gewisser_
+_Rhythmus bei den Rezitationen kann hilfreiche Dienste leisten, wie auch_
+_die Aufrichtigkeit zur Sache und die Aussprache dessen, was gesprochen_
+_wird. Das mag anfänglich manchen Menschen seltsam erscheinen, weshalb_
+
+
+-----
+
+_es zu einer Hemmung kommen kann in bezug dessen, selbst laut oder_
+_leise vor sich hinzusprechen. Durch das Vorgehen des Vorsich hinsprechens_
+_aber wird langsam die Bedeutung der gesprochenen Silben verstanden,_
+_aufgenommen und auch gefühlsmässig aus gewertet. Dadurch verschwinden_
+_die Hemmungen und die Verlegenheit mehr oder weniger schnell, wodurch_
+_eine innere Sicherheit gewährleistet wird._
+_Bei der Rezitation des Geisteslehrestoffes ist nicht die Lautstärke der ent -_
+_schei dende Faktor, sondern die Wichtigkeit besteht in einer sicheren, klaren_
+_und kraftvollen Stimme. Wie lange dabei gesprochen und gelernt wird,_
+_ist nicht bestimmend für den Erfolg, sondern es hängt alles einzig und allein_
+_davon ab, ob die Geisteslehre überhaupt praktiziert wird. Also handelt_
+_es sich um ein ganz persönliches Belang, das jeder Mensch selbst ent-_
+_scheiden muss, weil alles von ihm selbst abhängt. Wichtig ist also das_
+_Praktizieren, und zwar bis zum Punkt der eigenen Zufriedenheit, was auch_
+_besagt, dass das Ausüben der Praktik sowohl von Mensch zu Mensch, als_
+_auch eigens, unterschiedlich lang sein kann. Diesbezüglich besteht nämlich_
+_keine effective Regel, wobei eine solche jedoch eigens aufgestellt werden_
+_kann, um sich einem Rhythmus des lernenden Praktizierens hinzugeben._
+_Das Praktizieren des Lernens/Studiums kann ebenso rein individuell ge-_
+_staltet werden wie auch die Auswahl des Ortes und die Zeit, folglich alles_
+_auch je nach den momentanen Lebensumständen, nach den eigenen Mög -_
+_lichkeiten sowie Bedürfnissen und Wünschen gestaltet werden kann. Geach -_
+_tet sollte dabei zumindest darauf werden, dass keine zu grosse Müdigkeit_
+_gegeben ist und dass die ersten Schritte nicht zu lange Zeit in Anspruch_
+_nehmen. Wird die Praktik des Lernens/Studiums der Geisteslehre z.B._
+_zweimal täglich durchgeführt, so am Morgen und Abend, dann entspricht_
+_das dem normalen Rhythmus, der durch Tag und Nacht gegeben ist, was_
+_manchem Menschen besser zusagt, als irgendwelche Zeiten während des_
+_Tages oder der Nacht._
+_Für das Praktizieren des Lernens/Studiums der Lehre des Geistes ist es_
+_besser, dies zweimal täglich während nur kurzer Zeit zu tun, als sich erst_
+_nach mehre ren Tagen Ausstand wieder zu bemühen, sich praktizierend der_
+_Lehre zuzuwenden. Werden längere Unterbrüche gemacht, dann versandet_
+_jeweils alles Erlernte wieder, weil es in die Vergangenheit flieht und ver-_
+_gessen wird. Daher ist eine tägliche Zuwendung zur Geisteslehre notwendig,_
+
+
+-----
+
+_auch wenn es jeweils nur wenige Minuten sind. Die stetige Übung des Ge-_
+_lernten ist wichtig und von ganz enormer Bedeutung, denn durch die fort-_
+_schreitende Ausübung entsteht das Bedürfnis, immer nach weiteren Wer-_
+_ten zu suchen und sich eigens immer mehr aufzubauen und die_
+_bestmögliche relative Vervollkommnung zu erreichen._
+_Das Praktizieren des Lernens, Ausübens, der Anwendung und der Ver -_
+_wirk lichung der Geisteslehre bedarf keinerlei persönlicher Hilfe irgend-_
+_welcher Lehrer, denn grundlegend ist das Selbsterlernen der Faktor dessen,_
+_der auch durch die schöpferisch-natürlichen Gesetze gegeben ist. Für_
+_Men schen jedoch, die nicht aus eigenem Wahrnehmen und Erkennen der_
+_schöpferisch-natürlichen Gesetze, Gebote und Richtlinien zu diesen finden,_
+_sind die niedergeschrieben Fakten der Lehre des Geistes gegeben, die frei_
+_nach eigener Bemühung und ohne spezielle persönliche Anleitung eines_
+_Lehrers oder einer Lehrerin prakti zierbar sind._
+_Manchem Menschen mag es erstlich erscheinen, dass er nichts kapiere_
+_und es nicht schaffen könne, doch dann, oft ganz plötzlich, wird alles be-_
+_griffen und der sich bemühende Mensch ist von einem Moment zum andern_
+_mitten drin, gewinnt Freude, Erkenntnis, Erfahrung, Erleben und Wissen –_
+_und alles ist urplötzlich ganz leicht._
+
+#### Was ist der Mittelpunkt der Geisteslehre?
+_Als Mittelpunkt der Geisteslehre stehen gleichermassen das Lernen/Stu di um_
+_sowie das Ausüben, Praktizieren und Verwirklichen des Erlernten. Insbe-_
+_sondere ist dabei die praktische Umsetzung der schöpferisch-natürlichen_
+_Gesetze, Gebote und Richtlinien auf die Lebensweise wichtig. Das bedeutet,_
+_dass alles umgesetzt werden muss auf das Menschsein, die Menschlichkeit_
+_sowie auf die wahre Liebe, Harmonie und Freiheit, wie aber auch auf den_
+_Frieden, das allgemeine Wohlbefinden, die Freude und das Glücklichsein,_
+_und zwar sowohl eigens in bezug des eigenen Inneren, wie aber auch nach_
+_aussen in die nähere und weitere Umgebung. Diese Umgebung bezieht_
+_sowohl alle Familien mit glie der sowie die Verwandtschaft, wie aber auch_
+_den Bekannten- und Freundes kreis mit ein, jedoch auch alle Mitmenschen_
+_jeden Glaubens oder sonstiger Anschauung, jeden gesellschaftlichen_
+_Standes und jeder Rasse, als auch die gesamte Fauna und Flora._
+
+
+-----
+
+_Durch das Praktizieren des Gelernten aus der Lehre des Geistes ergibt_
+_sich auch der Mittelpunkt, dass alles zutiefst ehrwürdig und ehrenswert_
+_geachtet und zum wahren Lebensinhalt und Lebensprinzip wird. Es gibt_
+_dabei keine Anbetung und Verehrung in bezug irgendwelcher Gegenstän-_
+_de, Rituale, Kulte oder Gottheiten, sondern nur eine ehrwürdige und ehren-_
+_werte Achtung der Schöpfung und ihrer natürlichen Gesetze, Gebote und_
+_Richtlinien. Das ganz abgesehen davon, dass Anbetung und Verehrung_
+_Unwerten entsprechen, die in Unterwerfung und Hörigkeit fundieren, denn_
+_einerseits bedeutet eine Anbetung eine völlige Selbstaufgabe und Demuts -_
+_haltung, während andererseits die Verehrung in bezug einer Lehre, einer_
+_Gottheit oder eines Idols – wozu auch Menschen gehören – auf einer_
+_Umwerbung beruht, die mit einem gewissen Fanatismus verbunden ist._
+_Richtigerweise kann nur die Ehre oder Ehrung resp. ein Geehrtwerden_
+_Verwendung finden, wozu auch der gehörige Respekt und die Würde_
+_gehören._
+_Jeder Mensch – ob bewusst oder unbewusst – trägt in seinem Innern den_
+_Wunsch, anderen Menschen, irgendwelchen Lebensformen oder sonstigen_
+_Dingen ehrfürchtig Respekt und Wertschätzung, Ehre und Würde ent -_
+_gegenzu bringen. Wie der Mensch auch immer geartet sein mag, gut oder_
+_böse, negativ oder positiv, jeder hat in irgendwelcher Weise diesen Wunsch_
+_in sich; und tatsächlich hat auch jeder Mensch etwas – ganz gleich, was_
+_es auch immer ist und ob er sich dessen bewusst ist oder nicht –, dem er_
+_die Werte Ehre, Respekt, Wertschätzung und Würde entgegenbringt._
+_Auch das ist ein Mittelpunkt, dem der Mensch durch das Lernen/Studium_
+_der Geisteslehre gewahr wird._
+_Ehre, Würde, Respekt und Wertschätzung stellen einen Brennpunkt für die_
+_Hoffnungen und Wünsche, die Bedürfnisse und für die Bestrebungen und_
+_das Leben des Menschen dar. Für die einen mag es dies sein, für die_
+_andern jenes, immer jedoch sind es Dinge, nach denen der Mensch strebt,_
+_sich darum bemüht und sich daraus Erfolge erhofft und erarbeitet. Ein_
+_ganz besonderes Objekt der Ehre, Würde, Ehrfurcht, des Respekts und_
+_der Wertschätzung ist der Lebenszweck des Menschen, der in seiner Evo-_
+_lution beruht sowie in all den Werten, die damit verbunden sind, wie wahre_
+_Liebe, innerer und äusserer Frieden, innere und äussere Freiheit, Freude_
+_und Harmonie sowie psychische und bewusstseinsmässige Ausgeglichen -_
+
+
+-----
+
+_heit und allgemeines Wohlbefinden. Gesamt haft ist dies der eigentliche_
+_grund legende Mittelpunkt der Lehre des Geistes, der ganzheitlich Einfluss_
+_nimmt auf jeden einzelnen Aspekt des Lebens des Menschen._
+_Der Mittelpunkt der Geisteslehre ist weder ein Gott, ein Meister, ein Guru_
+_oder ‹Erhabener›, weder ein ‹Göttlicher› noch eine Art Geist, der dem_
+_Menschen irgendwelche Wünsche und Hoffnungen erfüllen kann oder_
+_erfüllt. Statt dessen ist der Mittelpunkt der Lehre das Objekt, durch das des_
+_Menschen innerste geistige Natur offenbar wird, die es zu erfassen, zu_
+_lernen und zu leben gilt. Also bedeutet das auch, dass der Mensch seinen_
+_Mittelpunkt niemals ausserhalb seiner selbst suchen kann, sondern nur in_
+_sich selbst, in seinem innersten, tiefsten Wesen, das schöpfungsmässig_
+_durch die den Menschen belebende Geistform vorgegeben ist. Alles Un-_
+_sichtbare des mensch lichen Wesens existiert nur innerhalb des sterblichen_
+_Körpers, während sich ausserhalb von ihm nur das rein grobstofflich_
+_Materielle abspielt._
+_Der Mensch ist geboren, um zu evolutionieren, und die Geisteslehre mit_
+_ihrem Mittelpunkt ist ihm gegeben, um ihm zu zeigen, dass er ein Ge-_
+_schöpf der Schöpfung ist, dass er die Gesetze, Gebote und Richtlinien der_
+_Schöpfung befolgt, bewusst evolutiv voranschreitet und felsenfest das_
+_Wissen besitzt, dass tatsächlich alles so ist. Das bedeutet, dass keine Über -_
+_zeugung, sondern ein wahres Wissen gegeben sein soll, denn Überzeu-_
+_gung bedeutet, dass etwas anderes Bestehendes durch etwas Neues über -_
+_trumpft, abgedeckt und dazu gebracht wird, einfach etwas anderes ohne_
+_wahrheitliches Wissen als richtig, beweisend und notwendig anzuerkennen._
+_So ist eine Überzeugung also niemals eine Wahrheitsführung, weil sie_
+_nur auf einer Annahme, jedoch nicht auf effectivem und wahrheitlichem_
+_Wissen beruht._
+
+#### Was ist in bezug der Geisteslehre eine Wohltat und ein Wohlbefinden?
+_Grundsätzlich ist das Wohlbefinden ein innerer und äusserer Zustand des_
+_Menschen; äusserlich und innerlich einmal in bezug seines Körpers und_
+_dessen Organen, wobei jedoch auch noch ein innerliches Wohlbefinden_
+
+
+-----
+
+_in bezug der Gedanken, Gefühle, Emotionen sowie der Psyche, des Be-_
+_wusstseins und des Charakters, der allgemeinen und besonderen Einstel -_
+_lung, der Freude und Liebe, der inneren Freiheit und Harmonie gegeben_
+_ist._
+_Auch Wohltaten sind zu unterscheiden in sichtbare und unsichtbare, wo-_
+_bei sich die sichtbaren in der äusseren näheren und weiteren Umgebung_
+_manifestieren, wie z.B. dadurch, dass sichtbare, greifbare und spürbare_
+_Verbesse rungen vorgenommen werden. Verbesserungen können unter an-_
+_derem auch bessere zwischenmenschliche Beziehungen sein, allgemein_
+_bessere Lebensbedingungen oder bessere finanzielle und hab- und gut-_
+_mässige Zustände. Menschen haben nebst diesen Dingen aber auch ander -_
+_weitige Bedürfnisse, wie z.B. in bezug des Körpers, dessen Ertüchtigung_
+_und Aussehen. So treten also auch in bezug der Wohltat Nutzen auf, durch_
+_die sich der Mensch wohl fühlt, sich glücklich schätzt und Freude in seinen_
+_Gedanken und Gefühlen produziert._
+_Die inneren Veränderungen, die durch das Ausüben des Lernens und_
+_effec tiven Praktizierens der Geisteslehre erfahren werden, entsprechen_
+_den unsicht baren Wohltaten, weil diese mit blossem Auge nicht sichtbar_
+_und diesem also verborgen sind. Sie äussern sich aber durch wirkliche_
+_Freude, Liebe und innere Freiheit sowie durch Harmonie und inneren_
+_Frieden, wie aber auch durch einen besseren Lebenszustand, einen An-_
+_stieg der Lebenskraft und das motivierte und willige Befolgen der schöp-_
+_ferischen Gesetzmässigkeiten._
+
+#### Was ist ein wahrer Mensch?
+_Nimmt ein Mensch die wahre Natur des Lebens wahr und lebt gemäss_
+_dieser, dann entspricht er dem wahren Menschsein und ist also ein wahrer_
+_Mensch. Ein wahrer Mensch zu sein bedeutet, dass die schöpferisch-_
+_natürlichen Gesetze, Gebote und Richtlinien erkannt, gelernt und befolgt_
+_werden. Dazu gehört grundlegend das Beherrschen und Ausüben aller_
+_Tugenden, das Pflegen wahrer Liebe für alle Menschen sowie für die ge-_
+_samte Fauna und Flora, das gepflegte Mitgefühl für die Mitmenschen und_
+_alle Kreatur, wie aber auch die Hilfsbereitschaft für alle und alles, das der_
+
+
+-----
+
+_Hilfe bedarf. Ein wahrer Mensch zu sein bedeutet aber auch, dem wahren_
+_Frieden und der wahren Freiheit zugetan zu sein und alles innerlich wie_
+_äusserlich zu pflegen. Psychische und bewusstseinsmässige Ausgeglichen -_
+_heit sowie Harmonie, Wohlbefinden, Freude, Freundlichkeit, Ehrlichkeit,_
+_Ehrfurcht, Würde und Menschlichkeit sind weitere wichtige Faktoren, die_
+_gegeben sein müssen, gehegt und gepflegt sowie zeitlos verwirklicht_
+_werden müssen._
+
+#### Was wird in der Geisteslehre als Gott ausgelegt?
+_Ein Gott oder der Gott der Religionen und Sekten ist ein ganz gewöhn-_
+_licher Mensch, eine ganz normale Person, die nur mit dem Titel Gott belegt_
+_ist, wobei der altherkömmliche Begriff Gott nichts anderes als Weisheits-_
+_könig bedeutet. So hat ein Gott in keiner Weise etwas mit der Erschaffung_
+_des Universums und allen Lebens zu tun, denn diese Mächtig keit und Ehre_
+_gebührt allein der Schöpfung resp. dem Universalbewusstsein resp. der rein_
+_geistigen universellen Energie, durch die alles Leben und Existente ge-_
+_worden resp. kreiert worden ist. Gottheiten gibt es unzählige, denn sie sind_
+_nicht die Schöpfung, sondern Geschöpfe derselben, wie jeder andere_
+_Mensch auch, nur dass sie durch die menschliche Fortpflanzungsmöglich -_
+_keit auf materiellem Wege gezeugt und geboren werden, während die_
+_Schöpfung selbst resp. das Universal bewusstsein aus einer geist-energeti-_
+_schen Idee einer Urschöpfung heraus entstanden ist. So lehrt also die_
+_Geisteslehre keinen Gott-Vater und keinen Gott- Schöpfer, sondern einzig_
+_und allein die Schöpfung resp. das Universalbewusst sein als Schöpfungs -_
+_kraft allen Lebens und alles Existenten._
+
+#### Was sagt die Geisteslehre in bezug auf Begierden?
+_Begierden sind Neigungen, die den Körper, die Gedanken und Gefühle_
+_sowie das Bewusstsein leiden lassen, insbesondere eine Befriedigung zu_
+_finden durch Laster, Lüsternheit, Habsucht, Gelüste, Begeisterung, Schmach-_
+_ten, Zügellosig keit, Ehrsucht, Masslosigkeit und Gier, nebst Geilheit, Unge -_
+_nüg samkeit, Übermass, Liebeswut, Kitzel, Extremismus, Rausch, Taumel,_
+_Berau schung, Ver mes sen heit, Unbescheidenheit, Eindringlichkeit, Leiden-_
+
+
+-----
+
+_schaft, Macht, Herrschsucht, Wollust, Begehrlichkeit und Ausgelassenheit,_
+_nebst vielen anderen Dingen._
+_Begierden beruhen in einer Tugendlosigkeit sowie in einer Selbstherrlich-_
+_keit und Selbstüberschätzung, dementsprechend daraus Leiden resultieren,_
+_die tausendfältiger Art sein können. Begierden sind unbeständig und also_
+_instabil und können daher früher oder später vorübergehend sein, weil auch_
+_sie vergänglich sind._
+_Die Geisteslehre lehrt, dass Begierden erkannt, behoben und neutralisiert_
+_werden sollen, denn durch das Auslöschen derselben sowie der damit_
+_verbundenen Illusionen werden Leiden aufgelöst, die bewusstseinsmässig_
+_und psychisch sehr schadhaft sein können. Gegensätzlich zur Aufhebung_
+_der Begierden müssen dabei die Bedürfnisse treten, die in der Verwirk -_
+_lichung aller Tugenden fundie ren sowie in allen Werten dessen, wie sie ge -_
+_geben sein müssen als wahrer Mensch. Dadurch bedeutet die Auslöschung_
+_aller Begierden nicht die Verneinung des Lebens, sondern eine grund -_
+_legende Lebensbejahung._
+_Niemals ist die Begierde grundlegender Wert aller Lebensformen, um zu_
+_leben, denn der wahre Wert der diesbezüglichen Beziehung ist einzig_
+_und allein das Bedürfnis zu leben. So sind niemals die Begierden die Trieb -_
+_kraft für das Überleben des Menschen, sondern die Bedürfnisse, nach_
+_denen der Mensch strebt. Begierden führen stets ins Böse, ins Negative und_
+_in den Untergang, weil sie immer mit negativen Kräften, mit Ausartungen_
+_und Un tugenden verbunden sind, während die Bedürfnisse in jeder Form_
+_die Tugenden befürworten, ehren und würdig umsetzen sowie zu gesundem_
+_und positi vem Nutzen und Erfolg führen. Also müssen Begierden grund-_
+_legend erkannt und ausgelöscht werden, wenn das Leben fortschrittlich_
+_und evolutiv umgestaltet werden soll, und zwar ganz entgegen der alt-_
+_herkömmlichen Irrlehre, dass eine Erkenntnis nicht das Auslöschen der Be-_
+_gierden voraussetze. Bleiben Begierden bestehen, dann kann effectiv keine_
+_Änderung zur Besserung er folgen, weil die Negativität der Begierden_
+_mächtig bleibt und keinen Wandel zum Fortschritt und Besseren zulässt._
+
+
+-----
+
+#### Was ist die Umgebung und wie wird diese verändert?
+
+
+_Alles Existente, auch das Leben, besteht aus Negativ und Positiv, aus Licht_
+_und Dunkelheit sowie aus grobstofflicher und feinstofflicher Materie. Beide_
+_Formen sind immer miteinander verbunden und bedingen sich gegen -_
+_seitig. Ohne etwas Feinstoffliches kann nichts Grobstoffliches bestehen,_
+_wie es auch umgekehrt der Fall ist. Wird so unter anderem auch das Leben_
+_des Menschen betrachtet resp. das, was er aus sich heraus nach aussen_
+_gibt und wirkt, dann wirft das seine Schatten in Form seiner Werke. Das_
+_besagt auch, dass es ohne Licht keinen Schatten gibt, woraus im weiteren_
+_resultiert, dass eine Umgebung das Leben braucht und dieses auch nur_
+_existieren kann, wenn eine entsprechende Umgebung gegenwärtig ist._
+_Daraus wiederum geht in weiterer Folge hervor, dass im Leben des_
+_Menschen sowohl Negativ wie auch Positiv gegeben sein müssen, weil_
+_nur dadurch Fortschritt erschaffen werden und Evolution entstehen kann._
+_So muss sich der Mensch sowohl mit dem Guten wie mit dem Schlechten_
+_auseinandersetzen und zurechtfinden, muss beides handhaben und sich_
+_zum besten Fortschritt sowie zur Evolution führen. Also ist es völlig sinnlos,_
+_dass er sich über die eigenen schlechten Umstände beklagt, denn dadurch_
+_ändert er sie nicht. Statt sich zu beklagen ist es notwendig, die schlechten_
+_Umstände zu besseren zu wandeln, was jedoch nur dadurch geschehen_
+_kann, dass eigens jene persönlichen Faktoren geändert werden, aus denen_
+_die Situation der schlechten Umstände entstanden sind. Und erst dadurch,_
+_dass sich der Mensch selbst zum Besseren und Fortschrittlichen verändert,_
+_kann sich auch eine Änderung in der Umgebung ergeben._
+_Ist der Mensch gewillt, eine Änderung in sich selbst zum Besseren durch-_
+_zuführen, dann muss er sich stets bewusst sein, dass dabei zwei Dinge_
+_von Bedeutung sind, und zwar, dass Körper und Bewusstsein nur zwei_
+_verschiedene Faktoren des materiellen Lebens sind, die einzig und allein_
+_durch die Kraft des dem Menschen innewohnenden Geistes resp. dem_
+_Geistkörper schöpferi scher Herkunft belebt werden. Bewusstsein und_
+_Körper sind untrennbar miteinander verknüpft und beeinflussen sich_
+_gegenseitig, während der Geist als neutrale Energie tabu und also un -_
+_beeinflussbar ist. Dadurch ergibt sich, dass wenn der Mensch z.B. krank_
+
+
+-----
+
+_oder deprimiert ist, sich alles auf das Bewusstsein niederschlägt, wodurch_
+_dann auch das Immunsystem in Mitleidenschaft gezogen wird. Daraus_
+_entsteht dann gedanklich-gefühlsmässiges und daraus resultierendes_
+_psychisches Unwohlsein, wodurch letztendlich ein Teil der Lebens kraft_
+_schwindet, was sich wiederum auf die Abwehrkräfte auswirkt. Auch in be-_
+_zug rein psychosomatischer Faktoren ergibt sich das gleiche Bild, wobei_
+_der Ursprung ebenfalls bei Krankheiten und Depressionen liegen kann._
+_Sehr oft kann dabei die Schulmedizin nicht helfen und die Leiden nicht_
+_bessern oder heilen, wobei gegensätzlich jedoch die Bewusstseinskräfte_
+_oft grosse und grösste Wirkungen zeitigen, wenn diese dort zur_
+_Anwendung gebracht werden, wo alle ärztliche Schulmedizin versagt._
+
+#### Was ist das Fazit des Erklärten?
+_Der einzige wahre Weg, der dem Menschen zur Verwirklichung seines_
+_Lebens bleibt, ist der, die natürlichen Gesetze, Gebote und Richtlinien_
+_schöpferischen Ursprungs zu lernen und diese im Leben zu verwirklichen,_
+_und zwar derart, wie die Geisteslehre alles lehrt. Das bedeutet zwar eine_
+_zähe und lebenslange, harte Arbeit, wobei jeder Mensch selbst über das_
+_Für oder Wider bestimmen muss, denn kein Mensch kann oder darf zu_
+_seinem Glück gezwungen werden._
+
+_Billy_
+
+
+-----
+
+#### Bücher und Schriften der Geisteslehre
+**GEISTESLEHRE-BÜCHER:**
+**Genesis**
+_Die Lehre der Schöpfungsentstehung sowie der schöpfungsgesetz mäs -_
+_sigen Entwicklung des Universums, der Gestirne, der Flora und Fauna_
+_und der menschlichen Lebensformen, mit den daraus resultierenden_
+_Evolutionsrichtlinien für den Menschen._
+
+**Arahat Athersata**
+_Botschaft an die irdische Menschheit von einer hohen Geistform; er-_
+_klärende Sachverhalte des menschlichen Verhaltens in Religion, Politik_
+_und Wissenschaften usw._
+
+**Dekalog**
+_Die ZEHN GEBOTE in ihrer Urform, inkl. zwei weiteren, der Menschheit_
+_bis anhin unterschlagenen Geboten._
+
+
+**Talmud Jmmanuel**
+_Originalübersetzung einer 1963 in Jerusalem aufgefun de nen zweitau -_
+_sendjährigen Schrift, die das Leben und Wirken Jmmanuels (alias Jesus_
+_Christus) beschreibt. Zur damaligen Zeit in Order Jmmanuels durch_
+_einen seiner Jünger  niedergeschrieben._
+
+**Gesetz der Liebe**
+_Über die Liebe als Grundlage aller Existenz. Die Gesetz mässig keiten_
+_der Liebe, ihre Definition und ihre Bedeutung im mensch lichen Leben._
+
+**Leben und Tod**
+_Vom Weiterexistieren des den Menschen belebenden Geistes im Jen-_
+_seitsbereich nach dem Tode des physischen Körpers, und vom Leben_
+_des Menschen als solches und der Mensch als solcher mit allen seinen_
+_Belangen im inneren und äusseren Bereich._
+
+**Wiedergeburt, Leben, Sterben, Tod und Trauer**
+_Das detailreiche und weise Verständnis aller menschlichen Regungen_
+_und Gefühle im Zusammenhang mit Leben, Sterben, Tod und Trauer,_
+
+
+-----
+
+_das Wissen um die existentielle Angst der meisten Menschen vor dem_
+_Tod und die tiefgreifende Kenntnis um die Wahrheit vereint Billy in_
+_eingängiger Einfachheit zu einem äusserst lebensbejahenden Werk._
+
+**Einführung in die Meditation**
+_Einführung in die wahrheitliche Meditation, ihre Anwendung und ihre_
+_Wirksamkeit im menschlichen Leben._
+
+**Die Psyche**
+_Lebenshilfe für den Menschen._
+
+**Direktiven**
+_Richtlinien und Verhaltensregeln zur Erarbeitung, Erlangung und Erhal -_
+_tung der psychischen, physischen und bewusstseins mässi gen Reinheit_
+_und Gesundheit; ausgearbeitet im Rahmen der zu be folgen den Gesetze_
+_und Gebote der hygieni schen Körper-, Psyche-, Geist- und Bewusst seins -_
+_pflege, die verankert sind in der Lehre des Geistes._
+
+**OM**
+_Die wichtigsten schöpferischen Gesetze und Gebote, Ordnungs regeln_
+_und Richtlinien; Ziel und Aufgabe des Menschen im mate riellen und_
+_geistigen Leben, ausgelegt und erklärt durch den JHWH Ptaah und_
+_seinen Propheten Billy._
+
+**Die Art zu leben**
+_In 500 Versen, in Abschnitten und Erklärungen wird dem Leser der_
+_Mensch in seinem Leben und Streben nahegebracht. Es wird ihm erklärt,_
+_wie er sein Leben ge stalten kann und soll, wenn er willens ist, sich_
+_nach der schöpferischen Wahr heit aus zu rich ten, und er erfährt auch,_
+_woran er die Lebens- und Denk weise anderer Menschen und ihren_
+_Charakter erkennen kann._
+
+**Macht der Gedanken**
+_Die Wurzel und die Früchte aller menschlichen Phänomene sind das_
+_eigene Bewusstsein und dessen Gedanken, durch deren Macht alles_
+_in die Wirklichkeit umgesetzt wird …_
+
+
+-----
+
+**Ein Quentchen Wissen, Sinn und Weisheit**
+_Der lange Weg zum Verständnis und zur Einsicht der  Trag weite des_
+_schöpferischen Prinzips von Ursache und Wirkung in unserem Leben_
+_und unserer Entwicklung; und was notwendig ist, um unser Evolutions -_
+_ziel zu erreichen._
+
+**Mensch der Erde, ich wünsche dir …**
+Billy legt uns mit seinem Vermächtnis ein einzigartiges Ge schenk in
+die Hände, das unser Leben reich und lebenswert macht, wenn wir das
+überreichte Gut mit Sorgfalt und Umsicht verwalten, es sinnvoll und
+verantwortungsvoll nutzen und in unserem Leben mehren.
+
+**Sinnvolles, Würdevolles, Wertvolles**
+_Wird alles Gute und Liebevolle, die wahre Liebe selbst sowie das Ehr-_
+_liche, Friedliche, Freiheitliche, Verantwortliche, Ehrfürchtige und das_
+_Harmonische auf der Welt und bei den Menschen betrachtet, dann wird_
+_erkannt, dass allein in diesen Werten die wahre Würde des Menschen_
+_gegeben ist, zum Ausdruck kommt und was wahres Leben bewirkt._
+
+**Geisteslehre-Symbole**
+_Eine Auswahl von 500 Geisteslehre-Symbolen aus einem Speicher -_
+_bank-Bestand von mehreren Millionen Symbolen._
+
+**Plejadisch-plejarische Kontaktberichte**
+_Billys Kontaktberichte, Geisteslehre, Erklärungen und Erlebnisse mit ausser -_
+_irdischen, plejadischen/plejarischen Lebensformen (mit bisher unveröffent -_
+_lichten s/w-Bildern von Billys Reisen mit den Plejadiern/Plejaren)._
+
+
+**GEISTESLEHRE-SCHRIFTEN:**
+**Philosophie des Lebens**
+_Eine kleine Einführung in die Geisteslehre._
+
+
+**Wissenswertes**
+_Heft 2: Bermuda-Dreieck, Wissen und Glauben, Selb stän dig keit, Tele-_
+_pathie, Aura, Geistheilung._
+
+
+-----
+
+_Heft 3: Prophetien; Die Schöpfung; Über den Umgang mit sich selbst;_
+_Die sieben Mächte der Psychebildung; Fluidalkräfte; Haupt- und Neben -_
+_zielsetzungen._
+_Heft 4: Gehirn, Geist, Inkarnation, Rückerinnerungen._
+_Heft 5: Die Wahrheit um ‹Billy› Meier, Interview mit Billy; Antwort auf_
+_eine ungestellte Frage; Weg und Ziel der menschlichen Evolution_
+_Heft 9: Auszüge aus den ‹Küchengesprächen› zum Thema Eigen- und_
+_Selbstverantwortung, Eigen- und Selbstpflicht._
+_Heft 10: AURA: Auszüge aus den ‹Küchengesprächen› und anderen_
+_Schriften._
+_Heft 11 :GEMÜT: Auszüge aus den ‹Küchengesprächen› und anderen_
+_Schriften._
+
+**Folter, Todesstrafe und Überbevölkerung**
+
+**Überbevölkerungs-Bombe, Erdezerstörung, Frauendiskriminierung**
+
+**Kampf der Überbevölkerung**
+_Ein vielumfassendes Thema, über das niemand zu sprechen wagt._
+
+**Schleichende Umweltkatastrophe – die Wüste wird siegen**
+
+**Die missachtete und unterdrückte Gleichwertigkeit und Gleichberechtigung**
+**von Mann und Frau**
+
+**Okkulte Kräfte**
+
+
+**‹Billy› Eduard Albert Meier: Interviews zu den Themen Geisteslehre und**
+**Mission**
+
+**Gewichtige Worte**
+_Billy spricht ein Wort in eigener Sache; ein Wort zum Menschen; ein_
+_Wort zu Eigenpflichten/Selbstpflichten und ein Wort zur Schweiz und_
+_ihren Menschen._
+
+
+**Geist und Bewusstsein**
+
+
+-----
+
+**Henochs Prophezeiungen**
+
+**Jugendwerke von Billy 1946–1951**
+
+**Voraussagen der Propheten Jeremia und Elia**
+
+**Annahme oder Glaube**
+_Küchengespräch zu Zielsetzungen/Nebenzielsetzungen_
+
+**Leben im Geistigen und Physischen**
+
+**Zeugung, Schwangerschaft und Geburt**
+
+**Bewusst evolutionieren (Semjase)**
+
+**Erklärung: Willkür, willkürlich – Unwillkür, unwillkürlich (Billy);**
+**Willkür und Unwillkür (Ptaah))**
+
+**Religion und Relegeon (Ptaah)**
+
+**Homosexualität und wie kommt es dazu?**
+
+**Aggression, Gewalt und Terrorismus**
+
+**Partnerschaft**
+
+**Was die Plejaren den Erdenmenschen wünschen**
+
+**GEISTESLEHRE-GRATISSCHRIFTEN:**
+**Desiderata**
+**Mensch und Menschsein**
+**Unterschiede zwischen Mann und Frau**
+**Gedanken zu Sorgen im Gestern, Heute und Morgen**
+**Sapere aude …**
+**Leben und Tod sind untrennbar miteinander verbunden**
+**Ein Wort zu Mann und Frau**
+**Grundregeln des Menschen**
+
+
+-----
+
+#### Inhaltsverzeichnis
+_Warum braucht der Mensch die Geisteslehre_ _1_
+_Wer praktiziert die Geisteslehre? Wie wird die Lehre praktiziert?_
+_Welcher Glaube und welche Kulthandlungen sind damit verbunden?_
+_Was erklärt die Geisteslehre? Wie steht die Geisteslehre zur Gewalt?  4_
+_Was ist die Geisteslehre_ _7_
+_Was ist der Zustand der Geisteslehrebefolgung?_
+_Was lehrt die Geisteslehre?_ _17_
+_Wie sieht die Praxis der Geisteslehre aus?_ _20_
+_Werden bei der Geisteslehre auch Gebete gesprochen?_ _20_
+_Was ist Lernen/Studium der Geisteslehre?_ _23_
+_Was ist die Ausübung der Geisteslehre –_
+_Was bewirkt die Geisteslehre?_ _23_
+_Was bedeuten Lernen, Fehler, Wissen und_
+_Weisheit in der Geisteslehre?_ _27_
+_Wird die Geisteslehre unmöglich, wenn jemand_
+_einem Glauben angehört?_ _28_
+_Was ist die Wirkung der Ausübung der Geisteslehre?_
+_Was bedeutet der Zufall in der Geisteslehre?_
+_Was bedeutet die Schöpfung in der Geisteslehre?_ _30_
+_Welche Einstellung ist notwendig zur Ausübung der Geisteslehre?  33_
+_Was bedeuten Bewusstsein und Geist in der Geisteslehre?_ _36_
+_Warum hat so mancher Mensch noch nichts von der Geisteslehre gehört?_ _38_
+_Wann und wie kann die Geisteslehre praktiziert werden,_
+_und vom wem?_ _40_
+_Was ist der Mittelpunkt der Geisteslehre?_ _42_
+_Was ist in bezug der Geisteslehre eine_
+_Wohltat und ein Wohlbefinden?_ _44_
+_Was ist ein wahrer Mensch?_ _45_
+_Was wird in der Geisteslehre als Gott ausgelegt?_ _46_
+_Was sagt die Geisteslehre in bezug auf Begierden?_ _46_
+_Was ist die Umgebung und wie wird diese verändert?_ _48_
+_Was ist das Fazit des Erklärten?_ _49_
+_Bücher und Schriften der Geisteslehre_ _50_
+
+
+-----
+

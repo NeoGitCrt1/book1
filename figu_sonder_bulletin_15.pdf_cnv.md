@@ -1,0 +1,1061 @@
+# FIGU
+**Freie**
+
+**Interessengemeinschaft**
+**F.I.G.U.**
+
+**r**
+
+# SONDER-BULLETIN
+
+### Erscheinungsweise: Internet: http://www.figu.org 10. Jahrgang Sporadisch E-Mail:  info@figu.org Nr.15, Nov. 2004
+
+## Katastrophenwahl in den USA – und Terror rundum
+Auf vielfachen Wunsch vieler geschockter Menschen rund um die Welt, und zwar auch aus den USA, soll
+ein Sonder-Bulletin aussagen, was die Plejaren sowie ich, Billy, von der Wiederwahl des George Walker
+Bush als Präsident der USA halten. Dazu soll aus klarer Sicht folgendes gesagt sein:
+
+Rund um die Welt sind unzählige Menschen darüber geschockt, dass in den USA George Walker Bush
+zum zweiten Mal zum Präsidenten der Vereinigten Staaten von Amerika gewählt wurde, jener Mann, der
+sich als Gottes Stellvertreter und Racheengel auf Erden wähnt und in diesem Wahn gewaltigen Terror
+sowie unendlich viel Leid, Trauer und Zerstörung über die Welt und die Erdenmenschheit gebracht hat und
+folglich nun weiter bringen wird. Allein was dieser Mann mit seinem Truppeneinmarsch in Afghanistan
+und den mörderischen Kämpfen dort unter der Zivilbevölkerung an Tod, Leid und Trauer angerichtet hat,
+schlägt dem Fass den Boden aus. Doch was er im Irak angerichtet hat und noch weiter anrichtet, ist gleichermassen dem, was die Kriegs- und Menschheitsverbrecher Adolf Hitler, Josef Stalin und andere gleicher
+verbrecherischer Grösse an Unheil über die Erde und deren Menschheit brachten. George Walker Bush,
+43. und 44. Präsident der Vereinigten Staaten von Amerika, wird in die Annalen der Menschheitsgeschichte eingehen – unrühmlich, gehasst und verachtet.
+Allein dass sich G. W. Bush in die Angelegenheiten Afghanistans und Iraks einmischte und durch seine
+Militärs tausendfachen Tod verbreiten liess oder hervorrief, genügte schon, dass dieser Kriegspräsident
+vor ein Kriegsgericht gestellt, verurteilt und lebenslänglich von der menschlichen Gesellschaft ausgesondert und in eine völlig abgeschottete Verbannung geschickt werden müsste. Zwar ist nicht zu bezweifeln,
+dass in bezug Afghanistans die entmenschten Taliban zum Verschwinden gebracht und im Irak der zigtausendfache Massenmörder und Diktator Saddam Husain abgesetzt werden mussten. Dass sich aber dabei
+der Sektierer Bush zum Rache- und Vergeltungsengel Gottes erhob und die beiden Länder kriegerischmörderisch und zerstörend überfiel, das hätte nicht sein dürfen. Zuständig dafür, die Taliban und Saddam
+Husain zu vertreiben und ihnen die Macht zu entziehen, wären die Völker Afghanistans und Iraks gewesen, nicht jedoch ein selbsternannter Rächer und Richter fremder Herkunft, der in keinem der Länder
+etwas zu suchen und zu regeln hatte; Länder, die er selbstherrlich mit Krieg, Mord, Tod, Leid, Verderben,
+Trauer und Zerstörung überzog. Wird das Ganze richtig gesehen, dann handelt es sich bei allem um nicht
+mehr und nicht weniger als um Völkermord. Wie es aber auf der Erde leider üblich ist, werden staatsmächtige Terroristen in Form von Präsidenten und ihren Verbündeten, wenn sie mächtig genug sind und
+angezettelte Kriege gewinnen, niemals zur Rechenschaft gezogen. Genau das trifft natürlich ebenso auf
+den USA-Präsidenten George W. Bush zu, wie das auch der Fall war bei anderen kriegsführenden oder
+terrorführenden Präsidenten der USA sowie bei präsidialen Massenmördern in anderen Ländern. Man
+denke dabei nur einmal an Pinochet, Josef Stalin und viele andere miese und menschheitsverbrecherische
+Kreaturen, die tausend- oder millionenfach eigenhändig Menschenleben mordeten oder durch ihre
+
+
+**Freie**
+
+
+-----
+
+gewissenlosen Schergen morden liessen. Eine Tatsache, die schon seit alters her so ist und auch so lange
+weiter sein wird, bis sich die Völker endlich besinnen, sich gegen ihre verantwortungslosen Staatsmächtigen erheben und diese durch wahrheitliche Vertreter der Volksmeinung und des Volkswillens ersetzen. Das
+von verantwortungslosen Staatsmächtigen und deren suggestiven Beschwörungsformeln unbeeindruckte
+normale, vernünftige und rechtschaffene Volk nämlich will weder Hass noch Kriege oder irgendwelche
+Vergeltungsschläge, sondern einzig und allein wahren Frieden, wahre Freiheit und Harmonie unter allen
+Menschen. Und diese Art des Volkes will keine Despoten, Diktatoren und keine Gewaltherrscher, keine
+Autokraten und keine Terrorkraten. Solchem Gesindel hängen nur jene an, die in gleichem kriminellem
+und verbrecherischem Rahmen denken, oder weil sie blöd, dumm und dämlich sind und die Wahrheit
+dessen nicht kennen, was auf der Welt weiterhin Hass, Rache, Todesstrafe, Vergeltung, Rassismus, Krieg,
+Unfrieden, Unfreiheit, Not, Elend, Zerstörung, Leid, Vernichtung und Trauer hervorruft. Menschen aber, die
+all das ganz bewusst befürworten, wenn sie wirklich verstehen, welcher Unmenschlichkeit und Würdelosigkeit sie sich verschrieben haben, verdienen den Namen Mensch in keiner Weise, und mit gutem Gewissen kann man sie sehr wohl als Abschaum des Bösen bezeichnen.
+Das Handeln des selbsternannten Racheengels Gottes, George W. Bush, seines Zeichens schon zum zweiten
+Mal durch einen Wahlbetrug gewisser seiner Anhänger an die Macht gekommener Präsident der USA,
+brachte nicht Frieden auf die Welt und unter die Menschen der Erde, sondern ganz im Gegenteil: es entstand noch grösserer Unfrieden. Das aber wird wohl so weitergehen während der laufenden Zeit der
+neuen Präsidentschaft, denn es ist nicht anzunehmen, dass Bush seinen sektiererischen, politischen und
+kriegshetzerischen Kurs ändert, wodurch ein wirklicher Frieden auf der Welt noch weiter in die Ferne rückt,
+wie auch ein Ende des internationalen Terrorismus. Und dass George Walker Bush den grössten und umfangreichsten Terrorismus auf der Welt betreibt, das dürfte wohl jedem vernünftig denkenden Menschen
+absolut klar sein. Klar in dieser Sache sehen nur jene nicht, welche blöd, dumm und dämlich sind, oder
+die sich einfach hörig an die Lippen Bushs hängen, ohne zu erkennen und zu verstehen, welches teuflische
+Kind dieser Mann ist.
+Die durch die amerikanischen Kriegstruppen und deren Verbündete drangsalierten Völker, vor allem die
+Afghanistans und Iraks, sind in gewissen freiheitsliebenden Kreisen in unglaublichen Unfrieden und Hass
+verfallen. Dadurch werden alle Besatzertruppen und alle deren Helfer, und zwar auch friedliche Menschen
+von Hilfsorganisationen, Ausländer und Irakis, durch mörderische Handlungen von aufständischen Terrorgruppen mit Mordattentaten, Geiselnahmen und deren Ermordung drangsaliert. Und ganz besonders
+richtet sich der Hass gegen die US-Amerikaner, die weltherrschaftssüchtig die Macht über die ganze Welt
+an sich reissen wollen und durch die Dummheit, Dämlichkeit und Blödheit aller jener Pro- und Hurraschreier für die USA in Form von Staatsmächtigen aus aller Welt sowie allen jenen aus den Bevölkerungen
+auf dem besten Wege dazu sind, tatsächlich in jeder Beziehung die Weltherrschaft zu gewinnen.
+Natürlich, das muss klar und deutlich gesagt sein, reiten nicht alle US-Amerikaner auf dieser Welle, denn
+gesamthaft ist es nur rund die Hälfte der US-amerikanischen Bevölkerung, die dumm, blöd und dämlich
+ist und nicht bemerkt, was ihre grössenwahnsinnigen Kriegspräsidenten und ihre ihnen hörigen Berater,
+Generäle und sonstigen Stiefellecker wirklich an schmutzigen Machenschaften und Üblem sowie an
+bösem Unheil im Schild führen. Die andere Hälfte der rechtschaffenen US-Bürger hingegen, die wahrheitlich nach wahrem Frieden in aller Welt streben, die keine Todesstrafe im Staat wollen, die bemüht sind,
+wirkliche Liebe, Frieden, Freiheit und Gerechtigkeit zu verbreiten, die werden vom Mob der krankhaft
+Blöden, Dummen und Dämlichen, die ihren verantwortungslosen Staatsmächtigen und deren Schergen und
+Mitläufern hörig sind und ihnen in den stinkenden Hintern kriechen, einfach niedergeschrien und in jeder
+möglichen Form geharmt und womöglich verfolgt und aus dem Verkehr gezogen. In dieser Form ist in USAmerika dieser Mob zur Zeit das Gros der Republikaner. Und dieses Gros ist schuld daran, dass der Staatsterror, der von US-Amerika in Form von fiesen Geheimdienstmachenschaften, von Folter, Todesstrafe und
+Kriegsterror ausgeht, weiterexistieren, weitergehen und unendlich viel Leid, Tod, Trauer, Zerstörung und
+Vernichtung über die Welt und die irdische Menschheit bringen kann. Eine diesbezüglich ganz besondere
+
+
+-----
+
+Rolle spielt dabei der 44. USA-Präsident, dieser George W. Bush, denn er ist wahrlich der übelste Kerl,
+der jemals in US-Amerika die Präsidentschaft innehatte. Besonders schlimm ist dabei zu bewerten, dass
+er verantwortungslos und heuchlerisch in sektiererischer Art und Weise seine ihm Hörigen beharkt und
+sie mit seinem Sektierismus und seinen heuchlerischen Gebeten glauben macht, dass er einer guten, göttlichen Sache diene. Genau das ist eine derart gemeine und berechnende Handlungsweise, die tatsächlich zum Himmel stinkt.
+Bei G. W. Bush kommt nebst der sektiererischen Mache noch dazu, dass er dadurch blinde und gläubige
+Anhänger und Anhängerinnen gewinnt, indem er heuchlerisch ‹Frieden durch Terrorbekämpfung› predigt,
+vom Schutz der Bevölkerung durch Terrorbekämpfung redet und schleimig behauptet, dass durch seine
+terrorgeschwängerten angeblichen Anti-Terrormachenschaften die Familien, Männer, Frauen und Kinder
+in US-Amerika und in allen Staaten der Welt ein sicheres Leben hätten oder zumindest durch seine Kriegs-,
+Hass-, Verfolgungs- und Rachemachenschaften ein sichereres Leben haben werden. Eine Behauptung der
+Unwahrheit ohnegleichen, denn durch seine Machenschaften fördert er den internationalen Terror erst
+recht, wie auch den unbändigen Hass unzähliger Menschen gegen US-Amerika und allgemein gegen dessen
+gesamte Bevölkerung, und zwar auch gegen jene Unschuldigen, die nicht auf Bushs Seite stehen und die
+keinen Krieg irgendwo in der Welt wollen. G. W. Bush ist verdammt gerissen in seiner Art, und zudem
+ein Suggestor, wie es auch Adolf Hitler gleichermassen war. Auch Bush versteht es in seinem Grössenwahn
+und Machtwahn, die Unbedarften, Dummen und Dämlichen des Volkes auf seine Seite zu ziehen und ihnen
+weiszumachen, dass er der Auserkorene Gottes sei, der die Order habe, mit Krieg, Tod, Leid, Trauer, Verderben, Zerstörung und Vernichtung auf der Erde Ruhe und Ordnung sowie Frieden zu schaffen. Und dass
+er dabei effective über unzählige Leichen von Frauen, Kindern und Männern geht, das scheint ihm und
+seinen fanatischen, feigen und angstvollen Anhängern nur des Rechtens zu sein. Das ungeachtet all des
+vergossenen Blutes, des Weinens und der nichtversiegenden Tränenströme von Frauen, Kindern und
+Männern, die durch des Wahnsinnigen Schuld ihre Liebsten und ihr ganzes Hab und Gut sowie ihre Heimstätte verloren haben. Die dämlichen Hammel der ihm Gläubigen merken nicht, dass dieser Mann völlig
+krank im Gehirn und dem Wahnsinn verfallen ist und in seinem Wahn tatsächlich glaubt, dass Gott ihn
+als Rache-, Vergeltungs- und Friedensengel und als Retter der Welt und der irdischen Menschheit auserkoren habe. Man stelle sich G. W. Bush nicht als liebevollen Mann vor, der um das Wohl, die Freiheit,
+die Harmonie und den Frieden seines Volkes, der Welt und deren Völker besorgt ist, sondern er ist ein
+verantwortungsloser Kriegshetzer und fühlt sich als Herr über Krieg, Todesstrafe, Folter, Mord, Totschlag,
+Zerstörung, Leben und Tod und Vernichtung. Und wenn er als Friedensengel gesehen werden will, dann
+nur als solcher mit bluttriefenden Händen, in der einen Hand ein blutendes und flammendes Schwert und
+eine Bibel haltend, und in der andern Raketen, Atombomben, allerlei Folter- und Kriegswerkzeug und des
+Teufels Dreizack. Es gibt für Bush nur zwei Seiten, entweder ist ein Mensch für oder gegen ihn. Wer jedoch
+für ihn ist, der spielt mit dem Leben. Das gilt auch für die Menschen in Europa, wenn sie sich ihm nicht
+offen entgegenstellen und seine Politik nicht ablehnen. Geschieht das nicht, dann hat auch Europa bald
+den Terrorismus auf dem Hals, wie das US-Amerika hat. Die Anschläge in Spanien und Holland bilden
+dabei nur den Anfang. Sagt Europa US-Amerika und dessen Politik der Zerstörung und Vernichtung sowie
+der Ermordung von Menschenleben durch miese Geheimdienstmachenschaften und terroristische Kriege
+nicht ab, dann werden letztendlich alle Menschen Europas in den nächsten Jahren und auch in den Zeiten
+nach Bush die Konsequenzen tragen müssen, die dieser sektiererische Kriegspräsident mit zum heuchlerischen
+Gebet gefalteten Händen heraufbeschwört. Gelingt es Europa nicht, in nächster Zeit, sich dieser US-Terrorpolitik wirkungsvoll entgegenzustellen und dagegen anzukämpfen, dann kommen Terror sowie Tod und
+Vernichtung unweigerlich endgültig nach Europa. Das darum, weil das verantwortungslose, ausgeartete,
+sektiererische, selbstherrliche, machtgierige und terrorkratische Handeln und Wirken seine Schatten auch
+bis weit in die Zukunft wirft und weitere US-Präsidentenkreaturen gleichen Kalibers nach sich zieht, und
+zwar nicht nur in Form von schlechten und bösen männlichen, sondern auch gleichermassen von weiblichen
+Personen, wovon von einer Machtinhaberin prophetisch gesagt wird, dass sie sehr viel kriegerisches
+
+
+-----
+
+Unheil über die Welt bringen wird – natürlich immer vorausgesetzt, dass der bisher blöde, dumme und
+dämliche Teil der USA-Bevölkerung, der G.W. Bush zum zweitenmal wählte, weiterhin in Blödheit, Dummheit und Dämlichkeit für Krieg, Mord, Totschlag, Zerstörung und Vernichtung agiert.
+George Walker Bush, seines Zeichens 44. Präsident der Vereinigten Staaten von Amerika: Ein Mann der
+Selbstherrlichkeit, Verantwortungslosigkeit, sektiererischen Heuchelei, der Selbstgerechtigkeit und – des
+Wahnsinns. Eine Tatsache, die bei dem Mann nicht nur mit grenzenlosem Grössenwahn, sondern irgendwie auch mit einem chronischen Delirium tremens zusammenhängt, mit dem Säuferwahnsinn, den er sich
+mit seinen früheren Sauforgien eingehandelt hat.
+Was die Plejaren und ich noch weiter zu sagen haben in bezug des US-Präsidenten und dessen Wahl
+sowie zur gesamten irdischen Weltlage in mancherlei Beziehungen sowie zu anderen Dingen, geht aus
+folgendem Gesprächsauszug des 367. offiziellen Kontaktes vom 9. September 2004 hervor:
+
+**Billy** Das allergrösste Übel, woraus alles entsteht, ist dabei die gewaltige Überbevölkerung, die
+durch die gesamte Natur nicht mehr verkraftet werden kann, denn diese bildet den Faktor dafür, dass die
+Natur und die ganze Umwelt sowie der Planet selbst immer mehr zerstört werden und immer mehr Lebensformen aus der Natur verschwinden – weil sie durch Gifte und Profitjagd usw. ausgerottet werden. Die
+gigantische Masse Menschheit von gegenwärtig 7,5 Milliarden, wie du die Bevölkerungszahl kürzlich
+nanntest, beutet alle Ressourcen der Erde aus, und zwar sehr viel schlimmer, als bisher behauptet wurde.
+So sind die Ressourcen bereits derart sehr viel gewaltiger geschwunden, dass bald nichts mehr vorhanden
+ist. Auch die Verschmutzung der Atmosphäre und der Pflanzen aller Art durch Emissionen durch das Verbrennen von fossilen und nichtwiedererneuerbaren Energieträgern hat derart überhandgenommen, dass
+der angerichtete Schaden an der gesamten Natur nicht mehr in zweckdienlicher Zeit behoben werden
+kann. Teilweise bedürfte die Natur für die Behebung der Schäden vieler Hunderter und teilweise gar
+Tausender von Jahren, wobei auch der Mensch mit greifenden Massnahmen mithelfen müsste. Am ganzen
+Übel ist einzig und allein die gewaltige und stetig weiterwachsende Überbevölkerung schuld, für die
+immer mehr Land zerstört, Häuser und Fabriken gebaut, fruchtbarer Boden vermauert, zugeteert und zubetoniert wird. Davon aber reden die Verantwortlichen der Regierungen ebensowenig, wie auch nicht die
+Wissenschaftler und das Volk, denn erstens wird bewusst alles totgeschwiegen, zweitens sind viele gleichgültig oder nur auf Profit ausgerichtet, und drittens sind ungeheuer viele Menschen zu dumm und dämlich,
+um die effective Wahrheit zu erkennen. Das aber führt dazu, dass die gesamte Zerstörung der Erde und
+des Lebens durch den Menschen verantwortungslos weitergetrieben wird. Das bedeutet auch, dass das
+Trinkwasser und die Nahrungsmittel in den Drittweltländern immer knapper werden, neue Krankheiten und
+Seuchen in Erscheinung treten, die Erde sich mit Unwettern, Vulkanausbrüchen und Erdbeben aufbäumt,
+die Kriminalität und das Verbrechen weiter überhandnehmen und weiter Kriege geführt werden. Es bedeutet aber auch, dass das Gros der irdischen Menschheit immer mehr verdummt und verdämlicht, was
+wiederum dazu führt, dass immer mehr und immer häufiger unfähige Kreaturen in die Regierungen gewählt und an die Macht gesetzt werden, die das Volk betrügen, das Land verraten, böse Macht und bösen
+Zwang ausüben und durch immense und immer neue Steuern das Volk ausbeuten, insbesondere jenen Teil
+des Volkes, der hart und im Schweisse des Angesichtes sauer den Lebensunterhalt verdienen muss. Meinerseits sehe ich es leider so, dass dieser ganze Irrwitz der Erdenmenschen nicht gestoppt werden kann und
+dass alles Rufen gegen den Wahnsinn in der Wüste verhallt. Es wird wohl gehört, doch es geht beim einen
+Ohr hinein und beim andern wieder hinaus. Es ist exakt so, wie wenn man durch eine Röhre hindurchspricht. Ein Ende wird es wohl erst dann geben, wenn überhaupt nichts mehr zu retten und der Untergang
+nicht mehr aufzuhalten ist. Meines Erachtens ist der dritte Weltenbrand schon seit langer Zeit in vollem
+Gange, nur dass dieser eben anders aussieht als ein eigentlicher Weltkrieg, den wahnsinnige Staatsmächtige unter Umständen früher oder später doch noch auslösen können, wenn die Völker aller Länder
+nicht endlich zur Vernunft kommen und die Wahnsinnigen ihrer Staatsmacht entheben und Frieden schaffen.
+Noch drohen ja die Jahre 2006, 2010, 2011 und 2012, in deren Verlauf weltweite Kriegshandlungen
+
+
+-----
+
+ausgelöst werden könnten, doch hege ich immer den Gedanken, dass durch irgendwelche Umstände sich
+das Ganze doch noch einrenken und solche Kriegsgeschehen vermieden werden können. Bisher hat es
+diesbezüglich über die verflossenen Jahrzehnte hinweg erfreulicherweise ja geklappt, wenn davon abgesehen wird, dass einzelne Kriegsherde rund um die Welt viel Leid, Not und Zerstörung brachten, weil
+machtgierige und verrückte Staatsmächtige ihre Gewalt wirken liessen, wie z.B. besonders die Mächtigen
+der USA, Israels, Palästinas und des Sudan. Vielleicht gibt es ja zumindest in Palästina eine etwas gemässigtere Politik, wenn im kommenden November Jassir Arafat das Zeitliche segnet, wie Quetzal in den Achtzigerjahren sagte. Danebst sind aber noch viele kleinere Herde rund um die Welt, wo Bürgerkriege usw.
+toben und herrschen und Tod, Not, Verderben und Zerstörung verbreitet wird. Auch darf dabei der weltweite Terrorismus nicht vergessen werden, der genauso schlimm ist wie die Kriege und Bürgerkriege, die
+geführt werden, die letztlich auch nichts anderes als blanker Terror sind. Wenn ich an den US-Präsidenten
+George W. Bush denke, der ein Terrorkrat ist, dann kann einem speiübel werden. Wenn der, wie schon
+Quetzal vor mehr als 15 Jahren sagte, im November wirklich wieder und also zum zweitenmal an die
+Macht kommt, dann steht der irdischen Bevölkerung tatsächlich noch einiges an Bösem und an grossen
+Übeln sowie an Unheil bevor, wobei es dann eventuell 2006 doch noch zu weltweiten kriegerischen Auseinandersetzungen kommen könnte. Dazu ist aber zu hoffen, dass sich doch noch alles einrenkt und die
+US-amerikanische Terrorkratie eine derartig gewaltige Schlappe erleidet, dass sich alles etwas mässigt.
+Solange das aber nicht der Fall ist, wird der ganze Terror rund um die Welt weitergehen und die irdische
+Menschheit noch in sehr üble Geschehen führen.
+
+**Ptaah** Deine Worte in des Erdenmenschen Ohr, denn sie legen die Schrecklichkeit dessen dar, was
+durch die Überbevölkerung und durch die USA tatsächlich gegeben ist und sich weiter ergeben wird.
+Vorderhand besteht leider keine grosse Aussicht, dass eine schnelle Änderung zum Besseren erfolgt, denn
+das Gros der republikanischen Bevölkerung der USA lässt sich durch Machenschaften, den Sektierismus
+und durch die Lügen und leeren Versprechungen betören, wie diese von Bush gemacht werden. Diese
+Menschen sind nicht fähig, sich eigene logische Gedanken um alles zu machen, folglich sie auch keine
+eigenen logischen Entschlüsse fassen können. Dazu gehören aber auch alle Staatsmächtigen und die
+Befürworter aller Länder der Erde, die George W. Bush hochjubeln. Sie alle sind wie eine Herde irregeführter Schafe, die ihrem Leithammel folgen, der sie in einen tödlichen Abgrund stürzen lässt. Das
+gleiche ergibt sich bei den Mächtigen in Israel, denen die Hörigen folgen und die ihre Hände für Mord
+und Zerstörung reichen. Gleichermassen gilt das aber auch für Palästina, wo bisher alle Verirrten bedenkenlos und gewissenlos den mörderischen Machenschaften Jassir Arafats folgten, dessen Leben
+tatsächlich im November sein Ende finden wird. Es werden nur kleine Schritte in dieser Richtung sein, von
+denen jedoch zu erhoffen sein muss, dass sie alles zum Besseren führen und die grössten Übel an Geschehen doch noch verhindern können. Und zu deiner Wortbildung Terrorkrat und Terrorkratie in bezug
+des amerikanischen Präsidenten George Walker Bush und der USA möchte ich sagen, dass du damit zwei
+Begriffe geschaffen hast, die treffender nicht sein könnten. Und dass der Mann abermals an die Macht
+kommt und der Kandidat John F. Kerry verliert, der die Wahl absolut ehrlich betreiben wird, das steht fest.
+Es wird wiederum ein Wahlbetrug stattfinden, und zwar in einer derart umfassenden Form, wie er noch
+niemals zuvor auf der Erde stattgefunden hat. Bereits bei der ersten betrügerischen Wahl vor vier Jahren
+wurde dafür gesorgt, dass in diversen bushfreundlichen Staaten Amerikas rund 400 000 gefälschte Wahlstimmen in den Computern erhalten geblieben sind, die bei der neuen Wahl, die einer Farce entsprechen
+wird, zugunsten Bushs Verwendung finden werden, und zwar unter den Augen der internationalen Wahlbeobachter, die genarrt werden. Insbesondere werden in diesen Wahlbetrug die Staaten Florida und
+Ohio verwickelt sein.
+
+**Billy** Es ist zu hoffen, dass sich alles doch noch zum Besseren wendet. Was aber die USA resp.
+deren Bevölkerung betrifft, da möchte ich nicht das Gros als terrorkratisch, dumm, blöd und dämlich be
+
+-----
+
+zeichnen, sondern nur all jene, welche in dieser Richtung krank in ihrem Gehirn sind, und das ist in der
+Regel das Gros der Republikaner.
+
+…
+
+**Billy** Wenn wir schon bei Bestattungen sind: Was geschieht eigentlich mit Arafats Leichnam im
+November? Meines Wissens will er doch in Jerusalem begraben werden.
+
+**Ptaah** Das wird durch Israel resp. durch Ariel Sharon damit verhindert werden, indem er die Worte
+prägen wird, dass in Jerusalem nur Könige begraben würden und keine tausendfachen mörderischen
+Terroristen.
+
+**Billy** Aha, und dass auch er, Ariel Sharon, ein tausendfacher Mörder und Terrorist ist, davon wird
+natürlich keine Rede sein. Und sicher wird es auch so sein, dass Arafat dann von der ganzen Welt der
+Dummen, Hörigen und Dämlichen und besonders von den Staatsmächtigen noch verantwortungslos in
+den Himmel gejubelt wird, wie es immer ist, wenn staatliche Terroristen, wie eben mörderische Staatspräsidenten und dergleichen Gesindel, das Zeitliche segnen. So ist es seit alters her, und so wird es wohl
+noch lange bleiben.
+
+**Ptaah** Das wird leider tatsächlich der Fall sein, wie es auch sein wird, dass durch Arafats Ableben
+der Hass der Palästineser durch radikale, terroristische, fanatische und extreme Elemente weiter angestachelt
+wird. Auch der israelische Staatsterrorist Ariel Sharon wird viel dazutun, damit der sinnlose Hass der
+Palästineser nicht zum Erliegen kommt, weil er seine ganze mörderische Macht weiterhin zur Wirkung
+bringen will. Gleichermassen verantwortungslos wird George. W. Bush handeln.
+
+**Billy** Davon war ja schon die Rede, und wenn ich den US-Präsidenten G. W. Bush mit Adolf Hitler,
+Josef Stalin und Ariel Sharon, Jassir Arafat, Saddam Husain, Nicolae Ceausescu, Slobodan Milosevic und
+allerlei anderen gleichartigen mörderischen Kreaturen vergleiche, dann liege ich sicher nicht daneben.
+Was meinst du dazu?
+
+**Ptaah** Der Vergleich trifft wirklich zu, wenn man bedenkt, dass Präsident Bush einzig und allein auf
+seine mörderische Macht bedacht ist, um weltweit über alle Länder das Ruder in die Hand zu gewinnen
+und damit die US-amerikanischen Weltherrschaftspläne Wirklichkeit werden zu lassen. Seine Worte
+‹Kampf dem Terrorismus› sind wahrheitlich nur ein Mittel zum Zweck, um über die ganze Welt herrschen
+zu können. In Wahrheit ist Bush der ganze weltweite Terrorismus gleichgültig in dem Sinn, dass er ihn
+wirklich bekämpfen will, denn wahrheitlich nutzt er ihn nur dazu, weltweit seine Macht spielen lassen zu
+können und immer mehr Länder anzugreifen, um sich mit Militärs in diesen festzusetzen. Ein Faktor, der
+von vielen Menschen erkannt wird, weshalb sie auch einen unbändigen Hass gegen US-Amerika entwickeln, was sich immer mehr und weltweit in den Kreisen der Völker ausbreiten wird, und zwar auch
+dann, wenn sich die entsprechenden Regierungen und die Dummen des Volkes mit US-Amerika solidarisch
+erklären. In Wahrheit fürchtet sich das Gros der irdischen Menschheit vor US-Amerika und dessen Innenund Aussenpolitik, und zwar schon seit Jahrzehnten, denn ähnlich wie der Präsident George Walker Bush,
+funktionierten auch andere US-Präsidenten herum. Dabei ist der gegenwärtige US-Präsident jedoch der
+schlimmste, der jemals über die Vereinigten Staaten von Amerika herrschte, zudem noch in autokratischer
+Weise, was jedoch all die Dummen nicht zu bemerken vermögen, die sich um ihn scharen. Das trifft sowohl auf jene zu, die im direkten Umfeld seiner Regierung mit ihm konform gehen, wie auch auf den Senat
+und auf jene Schichten der Bevölkerung, die diesem völlig verantwortungslosen Mann blindlings vertrauen
+und seine religiösen Machenschaften, wie Aussprüche und Gebete usw., als bare Münze nehmen und
+
+
+-----
+
+dadurch glauben, dass er es ehrlich meine. Ganz besonders seit dieser völlig Verantwortungslose und
+Grössenwahnsinnige an der Macht ist und die Welt mit seinem vom Stapel gelassenen Krieg in Aufruhr
+versetzt, haben sehr viele Menschen erkannt, dass Bush und dessen Politik nicht nur eine Gefahr für die
+Menschen jener Länder sowie für deren Ressourcen ist, sondern auch allgemein eine bösartige Bedrohung
+für die ganze Welt und die ganze irdische Menschheit. Er hebt sowohl das Gleichgewicht der gesamten
+Wirtschaft aus den Fugen, wie aber auch das Gleichgewicht der ganzen Welt überhaupt. US-Amerika
+hat sich schon seit langer Zeit ein für die ganze Welt gefährliches, böses und tödliches Militärsystem
+geschaffen, das früher oder später die ganze Welt unter US-amerikanische Oberherrschaft zu bringen
+vermag, wenn die Menschen der Erde sich nicht endlich besinnen und das vereiteln. Noch ist Zeit dazu,
+doch läuft diese Zeit immer mehr davon, weil all jene Elemente US-Amerikas nicht ruhen werden, das geheime Ziel der absoluten Weltherrschaft zu erlangen, die in jeder Beziehung mit ihren Kriegshandlungen
+überall sowie mit ihren Geheimdienstmachenschaften und der angeblichen Terrorbekämpfung nur darauf
+bedacht sind, eigene Interessen wahrzunehmen. Jene US-Amerikaner, die diese Wahrheit schon längstens
+erkannt haben, distanzieren sich von diesen geheimen Plänen und von all den kriegerischen Machenschaften, denn sie wollen Frieden und keinen Krieg. Ihr Sinn ist danach ausgerichtet, nur dann defensive
+und also verteidigungsmässige kriegerische Aktionen in Betracht zu ziehen, wenn ihr Land effectiv und
+direkt angegriffen wird. Sie wollen jedoch keinen Krieg in fremden Ländern, denen von der Regierung
+lügnerisch Angriffe gegen die USA angedichtet werden, nur um kriegerisch in das fremde Land einzufallen,
+dieses unter die US-Gewalt zu bringen und es also zu besetzen, nach Möglichkeit zu annektieren und dessen
+Ressourcen ausbeuten zu können usw. Diesbezüglich spreche ich von etwa der Hälfte der US-Amerikaner,
+die jedoch von den Kriegswilligen und Weltherrschaftssüchtigen niedergeschrien und nach Möglichkeit
+niedergeknüppelt werden. Wer nicht für die kriminellen und verbrecherischen Handlungen der jeweiligen
+US-amerikanischen Regierung und deren jeweiligen schurkischen Präsidenten ist, ist einfach hilflos den
+ungeheuerlichen Machenschaften derselben ausgesetzt und wird diskriminiert oder gar an Leib und Leben
+geharmt, trotzdem dass in den USA eine Meinungs- und Redefreiheit ist. Wer aber zuviel sagt, nimmt
+automatisch Schaden, eben dann, wenn der Wahrheit zuviel gesagt wird und damit das Volk auf die
+effective Wahrheit stösst und dann nicht mehr gleicher Meinung ist wie die Regierung.
+
+**Billy** Das sind klare Worte. Und wenn du schon die Meinungs- und Redefreiheit ansprichst, dann
+möchte ich dazu sagen, dass auch in der Schweiz nicht offen die Wahrheit über Kriminelle, Halunken,
+Sektierer, Verbrecher und Regierende gesagt werden darf, weil sonst umgehend eine gerichtliche Ahndung
+erfolgt, wobei dann nicht derjenige zu seinem Recht kommt, der die Wahrheit offenbarte, sondern derjenige, welcher sich schuldig gemacht hat. Das habe ich am eigenen Leibe erfahren. Aus diesem Grunde
+getraut sich in der Schweiz auch kaum jemand, jemals öffentlich die Wahrheit zu sagen und die Meinungsfreiheit und Redefreiheit zu verfechten und zu verteidigen. Auch herrscht in der Schweiz der Umstand vor,
+dass gewisse unbedarfte Journalisten und Zeitungsredaktoren so dumm und dämlich sind, dass sie keine
+Ahnung davon haben was eigentlich Meinungsfreiheit und Redefreiheit wirklich bedeuten. Demzufolge
+geschieht es – wie das auch mir an den Kopf geworfen wurde von Unbedarften, die sich zudem noch
+gross meinen –, wenn man offen und frei die Wahrheit sagt, dass man dann damit beschimpft wird, man
+mische sich nun auch noch in die Politik ein. Völlig schwachsinnig, denn das Beurteilen und das Aufbringen der Wahrheit in bezug politischer Belange und verantwortungsloser Staatsmächtiger hat nichts
+mit Politisieren zu tun, sondern einzig und allein damit, dass offen die Meinung und Wahrheit gesagt und
+die Redefreiheit wahrgenommen wird. Das Recht der freien Meinung und der Redefreiheit ist in der
+Schweiz gesetzlich verankert, wie auch in den Internationalen Menschenrechten, doch ganz besonders in
+der Schweiz hat das Ganze nur auf dem Papier Gültigkeit, jedoch vielfach nicht in Wirklichkeit. Das ist
+ganz besonders dann der Fall, wenn die Wahrheit über Sektierer, Kriminelle und Lügner sowie Betrüger
+offen kundgetan wird, denn dann dürfen diese oder deren krankhaft dumme und dämliche Anhänger jene
+gerichtlich verklagen, welche die Wahrheit ans Licht des Tages bringen. Die Ankläger sind dann in der
+
+
+-----
+
+Regel auch die Sieger, während jene, welche die Wahrheit offenlegen und öffentlich machen, die Verlierer
+sind. Das ist das Schweizerische Recht in bezug der freien Meinungsäusserung und der Redefreiheit,
+wodurch die Wahrheit nicht öffentlich geäussert und die Lügner, Betrüger, Kriminellen und Sektierer nicht
+offen bei diesen Benennungen genannt werden dürfen. Dazu, zu diesem Unrecht, reicht das Gesetz noch
+die Hand und fördert damit die Kriminalität, Betrügerei, den Sektierismus und die Lügerei. Und dass dabei
+Gläubige und allerlei andere Menschen ausgebeutet, in den Selbstmord getrieben, psychisch krankgemacht und verblödet werden, das wird durch die Gesetzgebung und Richterschaft einfach zugelassen.
+Aber was rede ich davon, denn diese zu beanstandenden Dinge könnte nur das Volk zum Besseren
+ändern, wenn es endlich der Vernunft trächtig, falsche Gesetze abbauen und durch bessere Gesetze ersetzen würde. …
+
+Was grundsätzlich noch zu sagen ist, bezieht sich darauf, dass der US-Präsident George W. Bush dadurch, dass er sektiererisch seine Hörigen an sich kettet, auch eine umfassende autokratische Haltung ausüben kann, die von seinen hörigen Anhängern bedenkenlos willentlich akzeptiert wird. Daraus heraus wird
+gegenüber ihm auch kein Wort, keine Anordnung, kein Befehl und überhaupt nichts hinterfragt, wodurch
+er schalten und walten kann, wie er immer will, und zwar auch in kriegs-terroristischer Hinsicht, wie die
+kriegsverbrecherischen Machenschaften durch Bushs Kriegshandlanger in Afghanistan und im Irak zur
+Genüge beweisen, seit dort das US-Militär wirkt – auch foltermässig, was ja weltbekannt wurde. Dass er
+praktisch allein herrscht und die Hilfsregierenden rund um ihn suggestiv zu betören vermag, so sie ihn
+und seine Befehle bedenkenlos befürworten, zeigt auf, dass sie nur bejahende Hampelmänner sind. Das
+aber bedeutet Autokratie, weil Bush eine autokratische Macht hat, nebst dem, dass er terrorkratisch wirkt,
+folglich er also als autokratischer Terrorkrat bezeichnet werden kann.
+Was bedeutet nun aber eigentlich Terrorismus? Dazu kommen leider viele Fakten zusammen, die den
+blinden Bürgern und Bürgerinnen praktisch aller Staaten unbekannt sind, in der Regel darum, weil sie sich
+nicht dafür interessieren und sich einfach dumm, dämlich und blöd von gewissen misswirtschaftenden
+Staatsmächtigen und ihnen frönenden Behörden sowie von Organisationen, öffentlichen Medien, wie
+Zeitungen, Radio, Fernsehen und Journalen usw., von allerlei Volksgruppierungen und Parteien usw. täuschen
+und durch Falschinformationen und irre oder verlogene Behauptungen an der Nase herumführen lassen.
+Das geschieht auch in bezug des Islam, der rund um die Welt nach Strich und Faden ungeheuer verteufelt
+und allgemein mit Terror in Zusammenhang gebracht wird. Der Islam aber hat mit dem ganzen Terror
+nichts zu tun, denn er ist nichts anderes als eine Religion, wie das jede andere auch ist. Und die Islamangehörigen, die Muslime und Muslima, sie sind genauso Menschen, die nach Liebe, Frieden und Freiheit und nach einem einigermassen erträglichen Leben sowie nach Harmonie trachten wie die Christen,
+Buddhisten, die Hindus und die Juden. Die Gläubigen des Islam sind keine Monster, keine Abartigen,
+keine Ausgearteten, keine Verbrecher und Mörder oder Terroristen, sondern einfach Menschen, die ihren
+ihnen eigenen religiösen Glauben, ihre eigenen Kulthandlungen sowie ihre eigenen Sitten und Gebräuche
+haben. Sie sind keine Ungeheuer und keine Unmenschen, sondern denkende und fühlende Wesen – eben
+Menschen.
+Wenn ausgeartete und politische oder religiöse islamistische Fanatiker und sonstige in diesem Rahmen
+verrückte Extremisten Terror ausüben, dann hat das nichts mit den eigentlichen Lehren des Koran zu tun
+und damit auch nicht mit dem Islam. Solche verrückte Extremisten und Fanatiker schieben nur den Koran
+und die Islamlehren sowie den Islamglauben vor, um ihrem Wahnsinnstun einen Anstrich der Rechtfertigung
+zu geben. Wahrheitlich jedoch kann diese Rechtfertigung kein Recht finden, denn die Koranlehren, die
+von den Fanatikern und sonstigen Extremisten sowie Terroristen völlig falsch ausgelegt werden, kennen
+weder Terror noch Extremismus oder Fanatismus. Solche Ausartungen sind einzig und allein eine bewusste
+Mache jener kriminellen und verbrecherischen Elemente, die blutlüstern und zerstörungswütig und auf
+Extremismus, Fanatismus und Terror aus sind. Ins gleiche Boot gehören aber auch alle jene, welche gegen
+
+
+-----
+
+den Islam wettern, fluchen und ihn verdammen, denn auch sie alle sind nur auf Terror, Fanatismus und
+Extremismus aus, was sie gesamthaft durch ihren Hass schüren, den sie dadurch aufbauen, weil sie alles
+missverstehen und sich von jenen verlumpten, schmutzigen und kriminellen Elementen und miesen
+Kreaturen einlullen lassen, die am Morden und Zerstören sowie am Hass-Säen ihre helle Freude haben
+und sich daran begeilen.
+Das Hetzen gegen den Islam wird schon damit bewiesen, indem dauernd in den Medien von einem islamistischen Terror die Rede ist, wodurch der Hass gegen die Muslima und Muslime immer mehr gesteigert
+wird. Ganz egal, welche Zeitungen und Journale oder welche Radio- und TV-Sender es sind, ihre verantwortungslosen terrorgleichen Hetzkampagnen schüren den Hass gegen den Islam und alles Islamistische
+ins Unermessliche. Und all das nur, weil die Medienfritzen einerseits selbst völlig missgebildet sind in bezug
+des Islam und andererseits weil Hetzartikel gegen den Islam die Leserzahl und damit den Profit steigern.
+Dass aber mit dem ganzen Schwachsinn unter den Menschen nicht nur das Unverständnis für den Islam,
+die Muslima und Muslime und ihre Religion sowie Kultur, sondern auch der Hass ebenso ungeheuer
+gefördert wird, wie auch die immer tiefere Wurzeln schlagende Angst, das kümmert die verdammten
+Schreiberlinge und Radio- sowie Fersehschnorrer überhaupt nicht. Und was tun die Staatsmächtigen und
+die Behörden dagegen? Rein gar nichts, denn in der Regel sind sie im gleichen Spital krank – auch wenn
+sie nach aussenhin auf gut Kind machen. Statt dass die Hetzkampagnen gegen den Islam offiziell verboten
+werden, werden Schliche und Wege gefunden, um die Hetzerei noch zu fördern, und zwar ganz entgegen
+dem Antirassismusgesetz, das jedoch auch nicht mehr als eine Farce ist. Wenn nämlich diesbezüglich die
+Hetzereien und der Terror gegen den Islam und dessen Gläubige betrachtet werden, die durch Zeitungen,
+Radio, Journale und Fernsehen betrieben werden, dann fragt es sich wirklich, was unter Rassismus eigentlich verstanden wird, wenn die Schreiberlinge der Zeitungen und Journale und Schnorrer von Radio und
+Fernsehen ungestraft davonkommen. Wenn aber ein anständiger Bürger einmal rechtens etwas öffentlich
+an einem Ausländer bemängelt, weil wirklich etwas zu beanstanden ist, dann schlagen die Behörden, Gerichte und Richter mit harten Strafen zu. Da fragt es sich, wie unmündig, dumm und unbedarft das Volk
+eigentlich gewesen sein muss, dass es ein solches Gesetz überhaupt befürwortet und angenommen hat.
+Aber eben, auch in diesem Sinne trifft es zu, dass die Kleinen gehängt und die Grossen laufengelassen
+werden, denn wie käme es sonst, dass die Schreiberlinge der Zeitungen und Journale sowie die Schnorrer
+von Radio und Fernsehen ungestraft ihre fein säuberlich versteckten rassistischen und terroristischen
+Machenschaften öffentlich betreiben und verbreiten dürfen.
+Terrorismus ist nicht islamisch bedingt, sondern international, und zwar derart, dass er überall in Erscheinung tritt, so in jeder Religion und Sekte, in den Staatsführungen und Behörden, in der Wirtschaft, in Familien,
+Schulen und in der Wirtschaft. Auch sogenannte Atomgegner, Friedensdemonstranten und Friedensorganisationen, wie aber auch Greenpeace, ausflippende und ausartende Sportfans, Weltforumgegner
+und sonstige Demonstranten aller Art betreiben mit ihren Aktionen Terror, wobei oft grosse Schäden entstehen oder gar Menschenleben zu beklagen sind. Terror wird von Menschen betrieben, nicht von den
+Religionen selbst. Immer stehen Menschen hinter jedem Terrorismus, und diese Menschen gehören allen
+Religionen und Sekten an, folglich es unter dem Terrorpack auch Christen, Juden, Hindus und also nicht
+nur Islamgläubige hat. Sogar der gemässigte Buddhismus kennt in seinen Reihen der Gläubigen terroristische Aktivitäten, wie in den letzten zwei Jahrzehnten bewiesen worden ist. Terror betreiben auch die
+Neonazis, die Rassen- und Fremdenhasser und sonstige Links- und Rechtsextreme. Terror wird aber auch
+gegen die Natur betrieben, durch das Leerfischen der Gewässer, das Abholzen der Regenwälder, das
+vernunftlose Ausbeuten der Erdressourcen. Der grösste Terror für die gesamte Welt, die Natur und die
+Menschheit wird durch die unaufhaltsam wachsende Überbevölkerung betrieben. Staaten und Behörden
+terrorisieren das Volk damit, indem die Staatsverschuldungen in immer immensere Höhen getrieben und
+immer mehr neue Gesetze und neue Steuern erfunden werden, um die Bürger zu züchtigen und auszubeuten. Und anstatt dass die erwachsenen Menschen ein gutes Auge auf die Jugend haben, um dieser
+einen guten, rechten und wertvollen Weg für die Zukunft und für das Leben zu weisen, werden die jungen
+
+
+-----
+
+Menschen einfach missachtet und im Salze liegengelassen. Auch das ist Terrorismus; wie auch eine Misserziehung der Kinder und Jugendlichen oder das Misshandeln in der ehelichen Partnerschaft oder das
+Missachten der Gleichberechtigung zwischen Mann und Frau nichts anderem als einem Terrorismus
+gleichkommt.
+Zwangsläufig führt das Ganze des umfassenden Terrorismus auf allen möglichen Gebieten mehr und
+mehr in eine staatliche Anarchie sowie zur bösen Gewalt und zu stetig weiterem Terror. Dass daher schon
+sehr viele Kinder und Jugendliche zu Gewalt und Terrorismus tendieren, ist wirklich kein Wunder, sondern
+eine verständliche Folge des ganzen Terrors, der durch die Unvernunft und Machtgier usw. aller jener ausgeübt wird, welche verantwortlich dafür wären, dass sich alles in einem richtigen, gesunden und lebensbejahenden Rahmen bewegt und entwickelt. Das sind sowohl alle jene verantwortlichen Staatsmächtigen
+und die Behörden, wie auch grundlegend jene Eltern und sonstigen Erziehenden, die ihre Verpflichtung
+gegenüber den Kindern nicht zur Genüge und nicht in verantwortungsvollem Rahmen wahrnehmen. Diese
+Verantwortung wird aber von sehr vielen Verantwortlichen, von vielen Staatsmächtigen, von vielen Behörden und von allerlei Organisationen usw. sowie von unzähligen Eltern nicht wahrgenommen, weshalb
+es auch immer mehr in Erscheinung tritt, dass sich drangsaliert fühlende Menschen ausflippen und andere
+Menschen umbringen, ganz gleich, ob es sich dabei um Erwachsene handelt, die andere oft in ganzen
+Gruppen abschlachten, oder ob es unmündige Kinder sind, die ihre Geschwister und Eltern oder ihre
+Gespänlein und Schulkameraden umbringen, weil sie selbst mit dem Leben nicht zurechtkommen. Und
+gerade bei den Kindern und Jugendlichen ist zu bedenken, dass zur heutigen Zeit bereits jeder sechste
+Jugendliche eine tödliche Waffe auf sich trägt, die er auch gewillt ist anzuwenden, wenn sich ihm die
+Gelegenheit und Situation dazu bieten.
+Was in bezug des Islams und der Religionen allgemein zu sagen ist: Beim Islam handelt es sich um eine
+Religion wie jede andere das auch ist. Jede hat zwar ihre eigenen Lehren, ihre eigenen Grundsätze, Kulthandlungen, Ordnungen, Gesetze sowie Gebräuche usw., doch hinter allen steht immer eine höhere
+Macht, eine Gottheit, die die Geschicke bestimmen und lenken soll. Das gilt sowohl für den Islam, das
+Christentum, den Hinduismus, alle Sekten jeglicher Art, das Judentum und den Buddhismus, wobei allerdings
+beim Buddhismus andere Glaubensmomente vorherrschen als bei den eigentlichen Gottreligionen, weil
+in der buddhistischen Religion die Buddhaschaft von Bedeutung ist.
+Der Buddhismus lehrt, dass Erfahrung und Wort in den grossen Weltreligionen miteinander verknüpft seien
+und dass die religiöse Erfahrung ihren Ausdruck im ‹heiligen Wort› finde und dass das ‹heilige Wort› die
+Authentizität der Erfahrung verbürge. Daraus wird abgeleitet, dass der Buddhismus seinem Wesen nach
+die Religion der Erfahrung sei, gründend in der Existenzerfahrung, durch die allen Lebewesen der Weg
+zur befreienden Erfahrung bis zur endgültigen Erlösung gezeigt werde.
+Nun, es wird überhaupt keine Frage laut, was in den Religionen richtig und was falsch ist, welche Wahrheits- und welche Irrlehren in den Religionen enthalten sind, denn jede Religion ist auf richtigen und
+falschen sowie auf rein glaubensbedingten Lehren aufgebaut, die sich Menschen zu eigen machen und
+die ihnen einen gewissen Halt und Lebensinhalt geben. Für sehr viele religionsgläubige Menschen ist ihr
+Glaubensbekenntnis und damit ihr Glaube die einzige Hoffnung, das Leben und den Alltag bestehen und
+schlecht und recht existieren zu können. Das allein ist von Bedeutung, und das sollte allen jenen klar sein,
+welche die Gläubigen der Religionen beschimpfen. Und das gilt auch für jene, welche auf den Muslima
+und den Muslimen herumhacken. Sie sind Gläubige ihrer Religion, des Islams – nichts mehr und nichts
+weniger. Und wenn die Welt durch terroristische Machenschaften islam-religiöser Fundamentalisten und
+sonstiger Irren beunruhigt wird oder gar in Angst und Schrecken verfällt, dann hat das überhaupt nichts
+mit den normalen Gläubigen des Islams zu tun, sondern einzig mit ausgearteten Fanatikern und Irregeführten. Und solche religiöse Fanatiker, Fundamentalisten, Irregeführte, Extremisten, Wahnverfallene und
+Ausgeartete finden sich zur Genüge auch im Christentum, im Hinduismus, in allen Sekten aller Art sowie
+auch im Buddhismus, wie die letzten Jahrzehnte bewiesen. Terrorismus ist also nicht islambedingt, sondern
+ein weltweit bedingtes Phänomen der Ausartung, Unzufriedenheit und des Hasses, der Rachsucht und der
+
+
+-----
+
+wachsenden Anarchie der Menschen, wobei das Ganze sämtliche Sekten und Religionen ebenso durchzieht wie auch alle politischen Richtungen, die Wirtschaft, die Organisationen und das Privatleben.
+In der Schweiz ist das wichtige Grundrecht der Glaubensfreiheit gegeben, und zur Aufrechterhaltung und
+zum Schutz dieses Rechtes ist es dringend notwendig, dass der Religionsfrieden erhalten wird. Das bedeutet, dass jedem Menschen sein religiöser Glaube gelassen werden muss und er deshalb dafür nicht
+verurteilt werden darf. Das gilt auch für die Gläubigen des Islams, für die Muslima und Muslime. Das gilt
+jedoch nur so lange, wie der Gläubige seinen Glauben nicht verbrecherisch dazu benutzt, Terror zu verbreiten, Menschen zu ermorden oder ermorden zu lassen sowie Leid, Elend, Not, Zerstörung, Trauer und
+Vernichtung über die Welt zu bringen, wie das George W. Bush, US-Amerikas 43. resp. 44. Präsident,
+eigen ist.
+Muslima und Muslime sind ganz normale Menschen wie alle Religionsangehörigen anderer Religionen
+auch. Wenn religiös verirrte Extremisten und Radikale, Fundamentalisten, Fanatiker und Terroristen in Erscheinung treten, dann können die Normalgläubigen nichts dafür, wenn sie das ausgeartete Handeln und
+die unmenschlichen und menschenunwürdigen Straf- und Bestrafungsmassnahmen der religiös Verirrten,
+Verrückten und Schwachsinnigen nicht befürworten und verfechten. Eine Radikalisierung von religiösen
+Straf- und Bestrafungsmassnahmen ist niemals gerechtfertigt, weil ausgeartete Straf- und Bestrafungsmachenschaften nicht nur nicht des Rechtens, sondern auch menschenunwürdig, leibverletzend und lebenverletzend, schöpfungswidrig, bösartig, rachsüchtig und unmenschlich usw. sind. Die Schöpfung fordert
+durch ihre Gesetzmässigkeiten, dass Leib und Leben in jeder Beziehung geschützt sein und geschützt
+werden müssen. So hat kein Mensch das Recht, einen andern Menschen an Leib und Leben zu bestrafen,
+sondern die Pflicht und Schuldigkeit, Leib und Leben des Nächsten zu schützen und dafür die notwendige
+Sicherheit zu gewähren. Aus dieser schöpferischen Gesetzgebung heraus ist das Harmen von Leib und
+Leben in jeder Beziehung schöpfungsgesetzwidrig, und das bezieht sich sowohl auf die Folter, die Todesstrafe jeder Art, wie durch das Steinigen, Erwürgen, Ertränken, Erschiessen, Hängen und Köpfen, wie auf
+das Töten durch den elektrischen Stuhl, durch Gift und Erschlagen, durch Erstechen oder sonst jegliche
+Art, durch die der Tod herbeigeführt wird. Dieses Gesetz hat für alle Menschen Gültigkeit, so also sowohl
+für Frauen und Kinder als auch für Männer. Frauen und Kinder dürfen genausowenig an Leib und Leben
+geharmt werden, wie auch nicht Männer. Wenn folgedem aber religiöse Fanatiker, Verrückte, Wahnsinnige und Ausgeartete einem Radikalismus in bezug der Strafe und Bestrafung verfallen sind und
+Menschen steinigen, köpfen, hängen oder sonstwie töten, dann ist das unbestreitbar blanker Mord, der
+niemals akzeptiert werden kann und in jeder Art und Weise schöpfungsgesetzwidrig ist.
+In bezug der staatlichen Gesetzgebungen ist zu sagen, dass sich die Menschen in diese einfügen müssen,
+weil nur dadurch die Ordnung und die Sicherheit der Bürger erhalten werden kann. An diese jeweiligen
+Landesgesetze müssen sich alle halten, folglich also auch die fremdländischen Menschen, die sich ein
+Gastland für ihren Aufenthalt aussuchen oder die sich ein neues Heimatland erwählen. So können nicht
+staatliche oder religiöse Strafgesetze und Bestrafungsmethoden aus dem Ursprungsland ins Gastland
+oder neue Heimatland eingebracht und genutzt werden, denn das ist staatlich-gesetzmässig wider Recht
+und Ordnung. Es widerspricht aber auch den rein schöpferischen Gesetzmässigkeiten, wenn ein Mensch,
+eine Religion, eine Sekte, eine Gruppierung oder ein Staat die Folter oder Todesstrafe oder sonst eine
+Harmung von Leib oder Leben in irgendeiner Form toleriert oder praktiziert, denn die Schöpfung aller
+Existenz kennt weder irgendwelche Bestrafung, noch hat sie in irgendwelchen ihrer Gesetze einen Paragraphen, der eine Bestrafung in der Form befürworten würde, dass Leib und Leben geharmt werden
+dürften. Leib, Psyche und Leben harmende resp. strafende und bestrafende Massnahmen sind einzig und
+allein Menschenmache, und zwar in jeder Ausartung.
+Die Welt ist dadurch, dass viele Menschen aus ihren Heimatländern fliehen mussten oder weil sie einfach
+in andere Länder auswanderten – aus welchen Gründen auch immer –, zu einer Welt der multinationalen
+Staaten geworden, wodurch selbstredend in allen Ländern auch neue und fremdländische kulturelle,
+politische und religiöse Wertvorstellungen eingebracht wurden. Diese Werte sollten die Fremdländischen
+
+
+-----
+
+uneingeschränkt behalten dürfen, solange sie nur als Gäste und Besucher zu betrachten sind. Werden sie
+jedoch Landesbürger, dann muss das bedingen, dass sie sich für ihr neues Heimatland einsetzen und
+dessen politische Richtung zumindest akzeptieren. Das aber bedeutet nicht, dass sie ihre Kultur, ihre Sitten
+und Gebräuche und ihre Religion aufgeben müssten, denn das ist ihre Privatsache, in die sich der Staat
+und die Bevölkerung nicht einzumischen haben. Die heimische Kultur usw. des neuen Heimatlandes darf
+nicht fordern, dass die Fremdländischen ihre ihnen anerzogene Kultur und Religion aufgeben müssen,
+denn das wäre nicht des Rechtens. Es muss diesbezüglich eine Freiwilligkeit für eine anpassende Kultur
+und Religion in bezug dessen bestehen, wie diese im neuen Heimatland gegeben sind. Wird aber keine
+Anpassung gewünscht, dann muss es den Fremdländischen – wie auch den Integrierten – freigestellt sein,
+im privaten Bereich ihre Herkunftskultur und ihre Religion zu pflegen. Das muss respektiert und gesetzlich
+geschützt sein, denn nur dadurch kann eine wirkliche Integration oder auch nur ein gastmässiges Zusammenleben gewährleistet werden. Die Fremdländischen sollten andererseits keine Bemühungen machen,
+im neuen Heimatland ihre Kultur und Religion zu verbreiten, sondern die dem neuen Heimatland oder
+Gastland eigene Kultur und Religion zu akzeptieren und nicht zu beeinflussen, um sie lebendig zu erhalten. In diesem Rahmen ist auch nichts dagegen einzuwenden, dass die traditionelle Kleidung des
+Herkunftslandes der Fremdländischen in der Öffentlichkeit getragen wird, weil das auch ein Belang der
+entsprechenden Kultur ist. Was in der Öffentlichkeit von den fremdländischen Menschen vermieden werden
+sollte – was leider auch durch diverse einheimische Sekten und die Religionen missachtet und sektiererisch
+auf die Spitze getrieben wird – ist die Tatsache, dass offen auf den Strassen sowie mit Plakaten, in
+Zeitungen und Zeitschriften, mit Radio und Fernsehen missioniert wird, um Andersgläubige in bezug des
+religiösen Glaubens zu einem anderen religiösen oder sektiererischen Glauben umzupolen. Das entspricht
+einer schändlichen Art der Verunsicherung, Glaubensaufzwingung, Angstmacherei und der Zwiespältigkeit, schlimmer als es zu allen Zeiten die Missionare handhabten. Und all das nur, um mehr Schäflein zu
+gewinnen, die finanziell ausgebeutet werden können.
+Billy
+
+## Lesermeinungen
+Ich weiss, dass Menschen aus der ganzen Welt bei Dir Rat suchen und dass Du allein eine wirklich klare
+Vorstellung darüber hast, was der Menschheit infolge der jüngsten Präsidentenwahl in den USA bevorsteht.
+Aus dem Grund hast Du sicherlich schon eine Menge Fragen aus der ganzen Welt erhalten. … Unsere
+Bemühungen gegen den Wahnsinn der jetzigen US-Regierung und die daraus resultierende Gefahr eines
+weltweiten zerstörerischen Krieges sind viel wichtiger zur Zeit … Von Tag zu Tag wird mir klarer, dass die
+Probleme dieser Welt sich dramatisch zuspitzen. Der schlimmste Kriegstreiber der bisherigen Weltgeschichte
+hat nun mehr Macht als je zuvor. Durch die unglaubliche Misswirtschaft unserer Regierungen sowie die
+unethischen Geschäftspraktiken vieler Firmen, die sich auf Kosten anderer bereichern, und vor allem die
+Verlagerung von immer mehr Arbeitsplätzen ins Ausland, werden die hart arbeitenden Menschen dieser
+Welt immer mehr versklavt, unterdrückt und in die Verarmung getrieben. Zudem wird das tägliche Leben
+immer teurer …
+Rebecca Walkiw, Deutschland
+
+Grosser Schrecken hat die ganze Welt ergriffen, weil der Amerika-Präsident Bush nochmals durch alle
+Verrückten der USA für eine zweite Amtsperiode gewählt wurde. Da kann sich die ganze Menschheit nur
+freuen, denn dieser wahnsinnige Sektierer wird sicherlich noch sehr viel mehr Unheil über die Welt
+bringen, als er es bisher schon getan hat. Wie schwachsinnig müssen alle jene Amerikaner sein, die diesen
+offensichtlich schizophrenen Typen nochmals ans Ruder gebracht haben.
+U. Frohner, Deutschland
+
+
+-----
+
+Zu meiner Schande muss ich gestehen, dass ich Amerikanerin bin, denn ich schäme mich dafür, dass wir
+in unserem Land so viele verantwortungslose Menschen haben, die ein weiteres Mal den Kriegsmacher
+Bush zu unserem obersten Landesführer gewählt haben – ein Führer, wie einer schon im 20. Jahrhundert
+die Menschheit in einen weltweiten Krieg getrieben hat. Dadurch, dass dieser Volksverdummer und
+Betheuchler nun weiterhin unumschränkt seine Macht ausüben kann, ist wohl zu befürchten, dass sich
+bestimmte Prophetien doch noch erfüllen und die Menschheit in einem dritten Anlauf in weltumfassende
+Kriegshandlungen getrieben wird …
+A. Clarke, USA
+
+## Das Land der unbegrenzten Unmöglichkeiten
+Während die Welt gespannt (und ein bisschen peinlich berührt) darauf schaute, ob die US-Wahlen 2004
+ähnlich chaotisch, ja skandalös abliefen wie vier Jahre zuvor, bastelten die Hintermänner der republikanischen Partei längst am perfekten Plan. George W. Bush sollte wieder Präsident werden. Diesmal nicht
+per oberstem Gerichtshof, der das Ende der Wahl 2000 kurzerhand per Urteil entschied und George W.
+Bush damit den unverdienten und illegalen Sieg bescherte. Viel zu knapp war damals das Ergebnis –
+täuschend echt zwar, aber wie eine Lunte am Pulverfass – und wenig repräsentativ. Zu offensichtlich war
+damals der Betrug. Mit Eiern und Tomaten wurde Bush beworfen, so dass er – erstmalig in der Geschichte
+der USA – überstürzt und wenig staatsmännisch in seine Staatslimousine sprang und davonbrausen musste,
+noch bevor er die Ehren der Präsidentschaft vor dem Volk offiziell empfangen konnte.
+Nein, 2004 musste perfekt werden: ‹The Perfect Show›. Umfragen deuteten bereits – oh Wunder – eine
+knappe Entscheidung an. So ist das nun mal im Gründerland der Demokratie, in dem sich die Meinung
+des Volkes in zwei Parteien kanalisiert. Das hat nichts mit Schwarz-Weiss-Malerei zu tun, sondern mit
+blankem Pragmatismus: Entweder ist man ‹für› oder ‹gegen› etwas. Schliesslich ist die Welt von heute viel
+zu kompliziert, als dass man sich ihr mit differenzierter Sicht nähern sollte.
+Differenziert sollte die Meinung des Volkes ohnehin nicht sein, das führt nur zu Komplikationen – schliesslich könnte davon das englische Wort ‹difficult› (schwierig) abstammen –, und Schwierigkeiten wollte man
+zur Wahl 2004 wirklich keine haben. Und Amerika wäre nicht Amerika, wenn dort nicht die findigsten
+und cleversten Leute der Welt sässen, die gleichzeitig geniale wie einfache Ideen ausbrüten.
+Warum das Ergebnis der Wahl 2000, das wenigstens zu knapp 50% im Sinne der Republikaner ausfiel,
+nicht teilweise wiederverwenden? Recycling im Sinne des Wählers! «Deine Stimme von gestern ist deine
+Stimme von heute» (gut, eigentlich sind es dann zum Teil zwei, aber das weiss ja keiner).
+Klingt einleuchtend und zum Scheitern einfach – hat sich aber in der Realität, man höre und staune, als
+überaus erfolgreich erwiesen. Ca. 400 000 (vierhunderttausend) Wählerstimmen wurden elektronisch
+‹recycelt›. Statt ‹Grünem Punkt› ein roter eben, naja – 400 000 rote republikanische Punkte. Die einfachsten Lösungen sind eben immer die besten. Kerry hat die Wahl zwar gewonnen, aber solange das niemand weiss, kann weiterhin erfolgreiche Bush-Politik betrieben werden – mindestens vier Jahre lang.
+Nun bekommt die Welt endlich den verdienten Frieden; Demokratie und Freiheit werden sich weiterhin
+seuchenartig ausbreiten, und hoffentlich kommt ein findiger Amerikaner bald auf die Idee, die Verfassung
+der USA zu ändern und eine dritte Amtszeit für den Präsidenten zu ermöglichen. Würde man dann die
+Stimmen beider Wahljahre, 2000 und 2004, wiederverwenden, dann könnten – in Anbetracht des noch
+eindeutigeren Wahlausgangs 2008 – vielleicht sogar Wahlkampfgelder eingespart werden, die dann
+sinnvolle Kriege für den Frieden finanzieren könnten. Und wenn die ganze Welt in Frieden brennt, könnte
+man endlich die Wahlen ganz abschaffen – zumindest im Land der unbegrenzten Unmöglichkeiten.
+Stephan A. Rickauer, Schweiz
+
+
+-----
+
+## Wo die Unwahrheit regiert, da wächst kein Gras!
+Es ist der 2. November 2004, ein denkwürdiges und geschichtsträchtiges Datum. Die ganze Welt sitzt gebannt
+vor den TV-Bildschirmen. Das Ereignis ist aussergewöhnlich und von grosser Tragweite. Der Republikaner
+George W. Bush verteidigt sein Amt gegen den demokratischen Gegner John Kerry. Viele Bürgerinnen
+und Bürger in den USA sind sich der Wichtigkeit dieser Wahl bewusst, denn gemäss Presseangaben
+haben sich gegenüber den letzten Präsidentschaftswahlen rund 15 Millionen Wähler/innen mehr in die
+Listen eingetragen. Die Mehrheit wünscht sich einen neuen Präsidenten. Nach offiziellen Angaben wurden
+gesamthaft über 600 Millionen US-Dollar in den Wahlkampf investiert. In unzähligen Interviews werden
+Analysen und Hochrechnungen erstellt. Hochrangige Fachkräfte aus Wissenschaft, Wirtschaft, Politik und
+der Medienwelt spekulieren rund um die Welt mit dem Ausgang dieser fragwürdigen Präsidentenwahl.
+Ein möglicher Wahlbetrug seitens des amtierenden Präsidenten liegt in aller Munde und die Menschen
+sprechen offen über ihre Befürchtungen und Ängste. Ihr Misstrauen ist auch gemäss plejarischer Angaben
+durchaus berechtigt.
+Millionen Menschen hatten ihre Aufmerksamkeit mit gemischten Gefühlen auf die Präsidentschaftswahlen
+in den USA gerichtet. Sie hofften dennoch darauf, dass dieses Mal alles mit rechten Dingen verlaufe. Schliesslich hatten die beiden Anwärter, John F. Kerry und George Walker Bush vordergründig über 10 000
+Anwälte für Aufsichts- und Überwachungsaufgaben eingesetzt. Die Menschen vertrauten den Kontrollorganen und harrten der Dinge. Machtlos wurden sie jedoch Zeugen einer weiteren unrühmlichen, selbstsüchtigen und egoistischen Farce amerikanischer Politik. Das US-System der Einmischung, Verheimlichung
+und Wahl-Inszenierung blieb sich für ein weiteres Mal treu. Für viele amerikanische Bürger/innen war
+klar, dass auch die Wahl 2004 als Fake in der erwünschten Richtung enden würde. Mit ihren Anklagen
+und Vorwürfen sollten die kritischen Stimmen auch diesmal Recht behalten, wie dies von den plejarischen
+Besucher/innen bestätigt wurde.
+Bereits während den Wahlen wurde laut TV-Berichten in Beschwerden und Einsprachen mehrfach darauf
+hingewiesen, dass sich noch immer über 300 000 Wählerstimmen zugunsten von G. W. Bush in den
+Wahlmaschinen befänden, die nicht gelöscht wurden. Doch die kritischen Stimmen verstummten plötzlich,
+und eine der grössten Wahlmanipulationen der Geschichte konnte Wirklichkeit werden.
+George Walker Bush ist kein unbeschriebenes Blatt und war bereits im Jahr 2000 nur mit Hilfe einer Manipulation unbeschreiblichen Umfanges an die Macht gelangt. Das ist kein Geheimnis und mittlerweile selbst
+den einfachsten Menschen des amerikanischen Volkes bekannt.
+In den Augen von Millionen US-Bürger/innen wird die USA seit vier Jahren von einem Mann regiert, der
+in Tat und Wahrheit niemals vom Volk gewählt, sondern nach einer offensichtlichen Wahlmanipulation
+durch richterlichen Beschluss in sein Amt gehoben wurde.
+Die Mutter aller Demokratie‚ wie die USA von ihren Führungskräften gerne genannt wird, hat sich in
+Wirklichkeit zu einer Diktatur finanzkräftiger Regierender gemausert – und die Welt schaut zu und lässt
+sie gewähren. Jene, welche sich auf unserem Planeten als Weltpolizei, Weltverbesserer, Ordnungshüter,
+Terrorismusbekämpfer und Wahlbeobachter in fremden Ländern aufspielen, verschliessen im eigenen
+Land die Augen und lassen Nachlässigkeit, Gleichgültigkeit und Mauschelei gedeihen. Ein Affront gegen
+jegliche Menschlichkeit, gegen allen Respekt und gegen die Ehrfurcht und Menschenwürde.
+Bereits vor vier Jahren haben die Plejaren davor gewarnt, dem ehemaligen Trinker George Walker Bush die
+grösste Macht auf diesem Planeten in die Hand zu geben. Dennoch konnten und durften auch die Plejaren
+dem Wahlbetrug und der Hinterlist nichts entgegenstellen. Sie sind leider nur passive Beobachter/innen,
+Ratgeber/innen und Lehrer/innen und als erdfremde Menschen an ihre oberste Direktive gebunden, dass
+sie sich nicht einmischen dürfen. Diese Erdenwelt Terra gehört dem Erdenmenschen und ihr Schicksal liegt
+allein in des Erdenmenschen Händen. Lügen, Arglist, Unehrlichkeit und Betrug sind im Bewusstsein der
+Plejaren unvorstellbar. In Anbetracht der Verdrehungen, Fälscherei und Betrügereien irdisch politischer
+Machenschaften, lernen auch sie unangenehme Gefühle der besonderen Art und Weise kennen; so
+
+
+-----
+
+nämlich Wut, Erregung und Enttäuschung, aber auch Trauer über die Vielfalt der übelsten irdischen
+Machenschaften.
+
+Gemäss Presseberichten hat George Walker Bush in den USA bis zum 25. März 2004 einen Schuldenberg von 7 136 680 628 064,27 US-Dollar ‹erwirtschaftet›. Angesichts dieser Tatsache war es für jeden
+vernünftig denken Menschen unvorstellbar, dass dieser Kriegs-Präsident am 2. November 2004 ein weiteres
+Mal gewählt werden würde. Doch am Mittwoch, den 3. November 2004 gegen 20.00 h war klar, welche
+Auswirkungen es für ein Land und seine Bewohner/innen zeitigt, wenn Schiebung und Mauschelei vier
+Jahre Zeit finden, um perfektioniert zu werden. Schockiert beobachtete die Bevölkerung dieses Planeten,
+wie ein einzelner Mann, ganz offensichtlich durch fragwürdige Machenschaften, Gesetzesverdreher und
+verblendete, wahngläubige Helfer/innen unterstützt, für weitere vier Jahre die Macht an sich zu reissen
+vermochte. Die Werte von Ehrlichkeit, Freiheit, Respekt, Brüderlichkeit und Nächstenliebe wurden vom selbsternannten christlichen US-Kreuzritter George Walker Bush von eigenen Gnaden kläglich in den Schmutz
+getreten und hinter einem hämischen und siegesbewussten Grinsen begraben. Sein vermeintlicher Wahlsieg ist das Öl in die Flammen des lodernden Weltenbrandes. Doch es ist ein höchst zweifelhafter Sieg,
+der gemäss plejarischen Informationen auch im Jahre 2004 zum zweiten Mal bereits im Vorfeld der
+eigentlichen Wahlen von hinterhältiger Hand organisiert wurde.
+Einmal mehr hat sich gezeigt, was die irdische Politik in ihrer Ausartung ist. Basierend auf persönlichem
+Machtstreben und wirtschaftlicher Gier nach Ruhm und Profit, ermöglicht sie es einzelnen Menschen oder
+Parteien, die über die nötigen finanziellen Mitteln verfügen, die Menschen durch Verdrehung der Tatsachen
+in Knechtschaft und Unterdrückung zu schlagen. Eigene und selbstsüchtige Interessen werden vertreten
+und, wie im Falle der USA, mit dem Leben unzähliger Soldaten und unschuldiger Frauen, Kinder und
+Männer bezahlt.
+Wähler/innen werden und wurden um ihre wertvolle Stimme betrogen und lediglich vordergründig und
+zum Schein um ihre Meinung befragt. Skrupellos werden die Menschen verlacht und ihr Vertrauen
+missachtet, sie werden bedroht oder eingeschüchtert – vor allem dann, wenn ihre Haut die falsche Farbe
+trägt.
+Das Land der unbegrenzten Möglichkeiten und die ‹Mutter aller Demokratie› ist sehr darauf bedacht, die
+falschen Wähler/innen in ihre Grenzen und Schranken zu verweisen, denn die Demokratie ‹Made in
+USA› hat ihre Gräben. Ganz besonders eine US-Demokratie nach dem Vorbild von George W. Bush, die
+ganz offensichtlich nicht auf dem Wohl und dem Willen des Volkes, sondern auf US-Dollars und dem Erdpetroleum basiert. Die Saat ist ausgebracht und muss eines Tages von der ganzen Welt geerntet werden.
+Doch wo die Unwahrheit regiert, fällt die Frucht auf kargen Boden und lässt selbst das Gras verkümmern.
+Hans-Georg Lanzendorfer, Schweiz
+
+## Wenn ein US-Präsident zum Mörder wird
+Seit mehr als 60 Jahren hat es Europa geschafft, sich von den Kriegen und Toten vergangener Jahrhunderte zu befreien. Stets wurden die Länder durch Revolutionen, blutigste religiöse Konflikte und militärischpolitischen Grössenwahn erschüttert, was dazu führte, dass Millionen toter Soldaten und Abermillionen
+Zivilisten mit ihren toten Leibern die Schlachtfelder und Länder übersäten und mit ihrem Blut die Erde
+tränkten. Seuchen, Hungersnöte, die Verelendung und der Tod waren alltägliche Begleiter und gehörten zum
+Leben. Diese Zerrissenheit der Menschen und Völker und ständige Konflikte jeglicher Art schienen den
+europäischen Kontinent auf ewig zu spalten und zu zerreissen. Eine friedvolle Ära schien unmöglich, nicht
+zuletzt auch durch die Zerstörungsgewalt der Religionen und der Ausartung religiösen Glaubens.
+Blickt man auf diese vergangenen Epochen und geschichtlichen Ereignisse zurück, scheint ein Frieden aus
+heutiger Sicht unvorstellbar und in weiter Ferne. Dennoch haben alle Länder und Menschen dazu beige
+
+-----
+
+tragen, diese Ära der Zerstörung und Vernichtung zu überwinden. Europa hat den Schritt in eine friedvolle Zukunft begonnen, auch wenn es noch viele Hindernisse gibt und zahlreiche Probleme gelöst werden
+müssen. Häufig stehen immer noch ein falsch verstandenes Nationalbewusstsein und religiöse Hintergründe
+im Wege. Unfähige Politiker tun ihr übriges, um den Prozess des Zusammenwachsens aus eigennützigen
+Motiven zu verzögern und zu behindern; nicht zuletzt deshalb, weil Brüssel eine reine Diktatur ist und mit
+vielfach völlig kriminellen und unlogischen Gesetzen versucht, die Wirtschaft und Menschen aller europäischen Länder zu unterdrücken. Europa ist nicht perfekt, aber es hat sich bei der Vielfalt seiner Länder und
+den unterschiedlichen Völkern und Menschen, aus denen es sich zusammensetzt, die Fähigkeit erarbeitet,
+friedvoll miteinander umzugehen. Es hat aus der Vergangenheit gelernt und setzt dies in eine gemeinsame
+Zukunft um. Betrachtet man jedoch ausserhalb dieses Kontinents das Weltgeschehen, mit all seinen gegenwärtigen globalen Konflikten, Kriegen, dem Terror sowie den religiösen Auseinandersetzungen usw.,
+dann wird es höchste Zeit, diesen Ereignissen und negativen Kräften endlich in vernünftiger Art und Weise
+entgegenzuwirken und sich den zerstörerischen Tendenzen aktiv entgegenzustellen. Dazu müssen sich die
+europäischen Länder neue Strategien und Konzepte einfallen lassen und endlich auch einmal konsequent
+umsetzen. Bei diesen Konzepten darf es nicht darum gehen, andere zu unterdrücken und ihnen aus eigennützigen Motiven ihre Menschenwürde und Freiheit zu rauben und sie wirtschaftlich auszubeuten. Vielmehr geht es darum, menschliche Grundwerte und Ideale nach aussen zu tragen. Der erste Schritt dazu
+ist getan, Europa hat sich von der Todesstrafe als staatlich anerkanntem Mord am Täter befreit. Weitere
+Schritte, bei denen nicht mehr nur Geld und Macht sowie die Wirtschaft im Vordergrund stehen, sondern
+bei denen es um die persönliche Freiheit des Menschen geht, müssen folgen. Ein globaler Frieden, wie ihn
+sich die Menschen wünschen, ist zur Zeit nicht möglich. Durch einige wenige Politiker, Diktatoren, Terroristen,
+religiöse Führer und Fanatiker ist dieser Prozess unterbrochen, und es wird immer unwahrscheinlicher,
+dass unser Planet menschlich näher zusammenrückt.
+Wenn man auf die gemeinsame jüngere europäische Geschichte zurückblickt, als die Zeit des Zweiten
+Weltkrieges im Mittelpunkt des Weltgeschehens stand und Tod und Vernichtung in einem bis dahin nie
+erreichten Ausmass über den Planeten brachte, dann stellt sich der Mensch immer wieder die Frage: «Wie
+konnte all dies geschehen? Was waren die Auslöser und Mechanismen, die zu einem globalen Massaker
+an menschlichen Lebensformen ausarten konnte? Wie können Menschen so manipuliert, ausgetrickst und
+auf die Seite eines Staatsterroristen gezogen werden, dass sie diesem blind folgen, um andere Kulturen,
+Rassen und Andersgläubige in einem Sturm der Begeisterung zu vernichten? Wo bleiben in solchen
+Momenten die Moral, der Anstand und das Wertesystem, an denen der Mensch andere misst und nach
+denen er sein eigenes Leben ausrichtet?» Diese Szenarien schienen der Vergangenheit anzugehören und
+weit in der Vergangenheit zu liegen. Die Menschen nahmen in Anspruch, aus den Fehlern und Ereignissen
+dieser Zeit gelernt zu haben, um endlich verantwortungsbewusst und mit menschlichen Grundwerten an
+der zukünftigen Geschichte und Entwicklung des Planeten positiv teilnehmen zu können.
+Der Mensch kann nicht mehr einfach wegschauen, wenn wieder einmal ein Diktator aus religiösen oder
+sonstigen Gründen meint, eine Minderheit in seinem Land niedermetzeln zu können oder einen Krieg
+gegen seine Nachbarn vom Zaun zu brechen, nur weil es wieder um Bodenschätze geht. Wenn selbstherrliche Politiker ausarten und sich über die globale Allgemeinheit stellen, um ihren eigenen Interessen
+nachzugehen, dann wird es für alle Menschen Zeit, dagegen etwas zu unternehmen. Die Menschen aller
+Völker haben solche ausgearteten Politiker auch in den eigenen Reihen, selbst dann, wenn sie demokratisch
+gewählt wurden. Auch sie tragen durch ihre Politik, Ansichten und verantwortungslosen Handlungen dazu
+bei, dass andere Menschen ermordet und fremde Länder besetzt werden. Nur weil es vielen Menschen
+relativ gut geht und die Problemländer oftmals weit weg sind, gibt es keinen Grund wegzuschauen. Es ist
+auch ein Trugschluss zu glauben, dass dies nur ein Problem sei, das ausserhalb Europas existiere. Auch
+die Entfernung zu einem Problemland spielt dabei keine Rolle. Noch immer wird nicht erkannt, dass die
+Probleme und Kriege, der Terror, die Gewalt und die Unterdrückung der Bevölkerung eines Landes auch
+Auswirkungen auf das so sicher wirkende Europa haben. So wie der Schmetterling in Südamerika das
+
+
+-----
+
+Klima hier in Europa beeinflussen kann, wirken sich auch die Zerstörung und der Tod zweier Parteien auf
+uns aus, die sich irgendwo auf dem Planeten Erde hasserfüllt gegenüberstehen und vor keinerlei Gewalt
+zurückschrecken.
+Aufgrund dieser Tatsachen hat das Alte die jüngste Geschichte Europas wieder eingeholt. Die Menschen
+werden von einer neuerlichen Welle der Gewalt und Vernichtung erfasst, die unweigerlich immer grösser
+wird und scheinbar durch nichts mehr aufgehalten werden kann. Sie rollt mit all ihren Konsequenzen unweigerlich auf die ganze Menschheit zu, bereit, alles zu vernichten, was sich ihr in den Weg stellt. Zukünftige
+Generationen werden einst fragen, warum dies zugelassen und nicht beherzt, mutig und konsequent das
+Menschenmöglichste gegen diese Bedrohung unternommen wurde, die so offensichtlich die Welt erfasst
+hat. Zukünftige Generationen werden über die Menschen von heute, die die politischen Ereignisse zulassen,
+die jetzt über die Menschheit hereinbrechen, genauso die Köpfe schütteln, wie die Menschen von heute
+noch immer ihr Unverständnis über die Ereignisse des Zweiten Weltkriegs zum Ausdruck bringen.
+Alle Menschen sind Betroffene und werden vom globalen Inferno schlimmsten Ausmasses erfasst, das alles
+Leben und die Existenz aller irdischen Völker bedroht. Amerika hat gewählt, und ein grössenwahnsinniger
+Präsident hat sich mit Lug und Betrug sowie durch Manipulation erneut an die Macht putschen lassen. Die
+angeblich älteste Demokratie der Welt hat erneut einen religiösen Fanatiker zum Präsidenten bestimmt,
+der schon in seiner ersten Amtszeit schlimme negative Auswirkungen für das Leben aller Menschen
+heraufbeschworen hat. George W. Bush, die unberechenbarste, tödlichste und ausgeartetste menschliche
+Lebensform der letzten Jahrzehnte, hat durch seine Politik direkt und indirekt mehr Menschen umgebracht,
+als alle jene zusammen, welche er angeblich bekämpft. In noch nicht einmal vier Jahren seiner katastrophalen Amtszeit hat er das Vertrauen der Menschheit in moralische Grundwerte und die Demokratie zerstört.
+Der Schaden, ob politisch, wirtschaftlich, ökologisch, menschlich usw., scheint irreparabel zu sein. Er hat
+eine Spur der Verwüstung und verbrannte Erde hinterlassen. Alles, wofür Menschenrechtsgruppen,
+Regierungen und der einzelne Mensch einstehen und wofür alle leben, wurde von diesem Präsidenten und
+seiner Führungsclique bis heute mit Füssen getreten. George W. Bush hat wie ein riesiger Komet auf dem
+Planeten Erde eingeschlagen und damit eine neue Eiszeit heraufbeschworen. Welche Dimensionen werden
+sein unüberlegtes Handeln und Tun, sein Vorgehen und die daraus entstehenden Konsequenzen in den
+nächsten Jahren annehmen? 62 Millionen Amerikaner haben ihn angeblich gewählt und damit über das
+Schicksal des gesamten Planeten entschieden. Seine religiös-politischen Ambitionen sind genauso fanatisch
+wie der Fanatismus eines Selbstmörders, der sich in einem Kaufhaus in die Luft sprengt und damit Unschuldige ermordet. Er ist einer der gefährlichsten menschlichen Cocktails, die sich die Menschen momentan vorstellen können. Grössenwahnsinnig, machtbesessen, unbelehrbar, verantwortungslos und noch um
+vieles schlimmer als manch anderer Despot, schreckt er vor nichts zurück. Seine Ziele erreicht er nur mit
+Gewalt und durch Terror, Lug und Betrug. Für seine eigenen Ziele und die US-Interessen zettelt er Kriege
+an, manipuliert ganze Völker und deren Politiker und treibt alle in ein globales menschliches Desaster,
+dessen Auswirkungen in einem Dritten Weltkrieg enden können.
+Wie können ein einzelner Mensch und sein kriminelles Kabinett – angeblich demokratisch gewählt – den
+gesamten Planeten und dessen Menschheit in ein solches Desaster stürzen und auch noch ungeschoren
+davonkommen? Und hat sich Europa bereits so weit von seiner jüngsten Geschichte entfernt, dass es bereit
+ist, sich wieder durch einen verantwortungslosen und machtbesessenen, sektiererischen Politiker in den
+Abgrund reissen zu lassen? Warum schlagen die Menschen – wie einst im ‹Dritten Reich› – vor den
+Ereignissen die Hände vors Gesicht und lassen George W. Bush für den Völkermord, den er an den
+Afghanen und Irakern anrichtete und weiterhin anrichtet, ungeschoren davonkommen? George W. Bush
+hebelt Gesetze aus, um Gefangene systematisch foltern lassen zu können. Er erstellt skrupellos ein
+militärisches Angstszenario, um andere Länder überfallen und Andersdenkende bekämpfen zu lassen. Es
+spielt dabei auch keine Rolle, ob er direkte oder indirekte Befehle zu solchen Handlungen gegeben hat,
+weil er als Präsident die generelle Verantwortung für alles trägt. Seine Politik bewirkt bestimmte Ereignisse,
+die die Zerstörung und Vernichtung menschlichen Lebens initiieren, und dafür ist er genauso verantwort
+
+-----
+
+lich, als hätte er selbst Hand angelegt. Er erlässt Gesetze in seinem Land, um die Menschen immer mehr
+zu kontrollieren. Mit Lügen und Betrug hat George W. Bush Zwietracht, Hass, Angst und Neid unter den
+Menschen des Erdenglobus geschürt, also nicht nur in seinem eigenen Land, sondern auf der ganzen
+Welt. Immer mehr verschwimmen die Grenzen dessen, was richtig und falsch und was positiv und negativ
+sowie was gut und böse ist. Wer sich in einer solchen Zeit innerlich keine menschlichen Grundwerte erarbeitet hat und sich einer solchen Terrorpolitik nicht entgegenstellt, wird unweigerlich von ihr mitgezogen.
+Schlimmer noch, alle jene, welche Bushs Politik unterstützen, machen sich ebenfalls zu Mördern. Amerika
+befindet sich in einem starren Zustand von Angst und Sorge. Mit geeigneten Propagandafeldzügen der
+US-Regierung wird immer wieder gezielt die Angst vor einer ständigen Bedrohung durch Terroristen erzeugt und aufrechterhalten. Je nach Notwendigkeit wird diese scheinbare Bedrohung mal mehr und mal
+weniger in den Mittelpunkt der Öffentlichkeit gerückt. Gestützt auf Verdächtigungen, Behauptungen, Mutmassungen und ohne jegliche wirkliche Beweise, wird die Bevölkerung durch einen sehr gut funktionierenden Propagandaapparat immer wieder daran erinnert, dass Gefahr von aussen droht. Angst regiert die
+Menschen vor allem in Amerika, und sie ist dabei, sich auch innerhalb Europas immer mehr auszubreiten.
+In dieser Atmosphäre spielt sich Bush nicht nur zum Retter der US-amerikanischen Gesellschaft, sondern
+der ganzen Welt auf – als religiöser Kreuzritter des 21. Jahrhunderts. Dabei ist er Verursacher, Auslöser
+und Hauptverantwortlicher eines zunehmenden globalen Terrorismus, den die Menschheit jetzt noch in
+einer Anfangsphase erlebt, der jedoch noch ganz andere Dimensionen erreichen kann. Schlimmer noch,
+die über Jahrzehnte betriebene US-Aussenpolitik hat diese Situation ausgelöst und gefördert. Die USPolitiker haben Diktaturen aufgebaut, Terroristen unterstützt und immer dann, wenn es ihnen zweckmässig
+erschien, Kriege und Revolutionen ins Leben gerufen. So viel zum Verständnis der US-Administrationen
+von Demokratie, mit der sie die ganze Welt beglücken möchten. Dies ist die eigentliche Tragödie, die die
+Menschheit momentan erlebt.
+Noch nie haben Kriege, Gewalt und Terror irgendwelche Probleme gelöst. Im Gegenteil, sie brachten und
+bringen nur Tod und Verderben über die Menschen. Die Vorstellung, einen religiösen Fanatiker mit einer
+Waffe in der Hand und Sprengstoff um den Bauch, der zu allem bereit ist, mit Waffengewalt aufhalten zu
+können, ist ebenso absurd wie der Glaube, solche Menschen seien damit in den Griff zu bekommen.
+US-Amerika hat weder den Sprung in die Realität des menschlichen Lebens und die Verpflichtung, die der
+Mensch dem Menschen gegenüber trägt, geschafft, noch wird es mit seinem jetzigen Kurs irgend etwas
+Positives bewegen. Das völlig unterentwickelte Bewusstsein des ‹American Way of Life›, der Materialismus
+und die geringe Schulbildung usw. tun ihr übriges dazu. Einem Menschen, der nur sich selbst sieht und
+sich selbst in den Mittelpunkt stellt, kann über seine Mitmenschen nichts vermittelt werden, wodurch er sie
+anständig behandelte. Es ist nicht möglich, jemandem ein Fehlverhalten aufzuzeigen, der sich nie selbst
+in Frage stellt und der immer meint, er mache alles richtig und das eigentliche Problem seien immer die
+anderen. Genauso aber ist die Denk- und Lebensweise der meisten US-Amerikaner geartet. Ihre Sichtund Denkweise sehen sie als Mittelpunkt des Universums, nach der sich alle anderen ausrichten müssen.
+Ihre Unfähigkeit, sich in andere Menschen, Kulturen und Länder hineinzuversetzen und nicht immer nur
+ihre eigenen Massstäbe als wertvoll und richtig zu betrachten, beflügelt die zerstörerischen Tendenzen,
+die sie auf andere übertragen.
+62 Millionen verantwortungslose US-Amerikaner haben einen Präsidenten gewählt, der schlimmer nicht
+sein könnte. Dies sagt eigentlich schon genug über den Bewusstseinszustand jenes Teiles des US-amerikanischen Volkes aus, das einem Kriegshetzer ohnegleichen hörig ist. Statt Frieden wird es mit Bush an
+der US-Spitze mehr militärische Konflikte geben, als überhaupt zu erahnen ist. Statt ‹Kampf gegen den
+Terror› wird eine Welle der Gewalt, des Hasses und des Todes erzeugt werden, die die Menschen und
+Länder des Nahen Ostens über Jahrzehnte vom Westen abspalten und das Verhältnis zu westlichen
+Menschen vergiften wird.
+Europa hat eine Verpflichtung gegenüber jenen Menschen des Planeten Erde, die diese Rechte nicht einfordern können, weil diese durch sie selbst nicht wahrgenommen werden. Es muss offenbar wohl oder
+
+
+-----
+
+übel zuerst an die jüngere Vergangenheit Europas und besonders an das ‹Dritte Reich› und die damit verbundenen Konsequenzen erinnert werden, damit begriffen wird, welche Folgen die US-Politik für alle
+Menschen in Europa und weltweit haben wird. Europa muss sich von den USA komplett loslösen, sowohl
+politisch, militärisch als auch wirtschaftlich und religiös. Es gibt keinen anderen Weg und schon gar keinen
+Kompromiss. George W. Bush und seine Wähler haben bewiesen, dass die USA nicht fähig, nicht willens
+und nicht bereit sind, in der Weltgemeinschaft eine menschenwürdige und verantwortungsvolle Rolle zu
+spielen. Niemand auf dem Planeten Erde ist ein Mensch zweiter Klasse, nur weil er einem anderen Glauben,
+einer anderen Religion sowie einem anderen Kulturkreis angehört. Niemand hat das Recht, ein Land anzugreifen und dessen Menschen zu terrorisieren und dies auch noch als richtig und gerecht zu deklarieren.
+Ein solches Handeln und Recht steht auch dem weltherrschaftssüchtigen US-Amerika nicht zu.
+All jene, welche solch ein Vorgehen befürworten, unterstützen oder es gleichgültig hinnehmen, sind nicht
+besser als jene, welche anderen vor laufender Kamera die Kehle durchschneiden oder den Kopf abhacken. Alle Ereignisse vor und nach dem 11. September 2001 sind direkt oder indirekt durch die Politik
+der Durchsetzung US-amerikanischer Interessen herbeigeführt worden (Kausalitätsgesetz: Ursache und
+Wirkung). Die Betrachtung der Politik US-Amerikas der letzten Jahrzehnte lässt erkennen, dass das Muster
+von Zerstörung, Mord, Intrigen, Zwietracht und Kriegen weltweit um sich gegriffen hat und das Endresultat
+der internationale Terrorismus ist. Die USA haben in den letzten Jahrzehnten den gesamten Planeten
+immer mehr destabilisiert, indem sie sich überall dort einmischten, wo sie nichts zu suchen hatten. Stelle
+sich jeder nur einmal vor, der Nachbar sage, wie jeder seine Wiese zu mähen und wie er sein Leben zu
+gestalten habe, was er dürfe und was nicht! Es ist zu bedenken, der Nächste mache seinem Nächsten Vorschriften, und wenn er sich nicht daran hält, sanktioniere er dessen Leben. Ein solcher Nachbar hetzt seine
+Nachbarn mit falschen Anschuldigungen und dergleichen gegen alle auf, und so vertraut bald keiner
+mehr dem Nächsten. Früher oder später werden sich zwar alle zu wehren beginnen, wobei sie aber nicht
+mehr gewinnen können, weil sie zu spät reagiert haben. Das ist die Realität, in der sich die Menschen
+heute befinden. Was sich im Kleinen ereignet, findet auch im Grossen statt. George W. Bush ist ein solcher
+Nachbar, der andere terrorisiert und ihnen seinen Willen aufzwingt. Es gibt nur zwei Seiten für ihn – ein
+Mensch ist für oder gegen ihn. Gelingt es Europa nicht, sich ihm offen entgegenzustellen und zu seiner
+Politik der Zerstörung und Vernichtung von Menschenleben Nein zu sagen, dann werden in den nächsten
+Jahren und auch in den Zeiten nach Bush letztendlich alle Menschen die Konsequenzen tragen müssen.
+Das darum, weil sein verantwortungsloses Handeln seine Schatten bis weit in die Zukunft hineinwirft und
+weitere US-Präsidenten gleicher Prägung nach sich zieht.
+Es wird Zeit für Europa, erwachsen zu werden, um dem Terror und dem Mord, den andere verursachen,
+entgegenzutreten. Erst wenn es den demokratischen Ländern gelingt, in ihren Reihen als erste einen dauerhaften Frieden und ein menschenwürdiges Dasein im Zusammensein mit anderen zu errichten, erst dann
+besteht das Recht, die Zustände in anderen Ländern zu kritisieren. Solange sich aber in den eigenen Reihen
+Feiglinge und deren Mitläufer der völlig verantwortungslosen, sektiererischen und machtgierigen Politik eines
+George W. Bush unterwerfen, sollten lieber alle den Mund halten und erst einmal vor der eigenen Haustür
+kehren. Gelingt es Europa in nächster Zeit nicht, sich der US-Terrorpolitik wirkungsvoll entgegenzustellen
+und dagegen anzukämpfen, dann kommen Terror, Tod und Vernichtung unweigerlich auch nach Europa.
+Günter Neugebauer, Schweiz
+
+
+Die folgende Meldung wurde uns am 13. Oktober 2004 zugeschickt. Beim Durchlesen erinnere man sich
+an die Prophezeiungen.
+
+**FDA Approves Use of Chip in Patients**
+WASHINGTON – The Food and Drug Administration on Wednesday approved an implantable computer
+chip that can pass a patient’s medical details to doctors, speeding care.
+
+
+-----
+
+VeriChips, radio frequency microchips the size of a grain of rice, have already been used to identify
+wayward pets and livestock. And nearly 200 people working in Mexico’s attorney general’s office have
+been implanted with chips to access secure areas containing sensitive documents.
+Delray Beach, Fla. – based Applied Digital Solutions in July asked the FDA for approval to use the implantable chip for medical uses in the United States. The agency had 60 days to reply to the ‹de novo›
+application.
+It’s the first time the FDA has approved the use of the device, though in Mexico, more than 1,000 scannable chips have been implanted in patients. The chip’s serial number pulls up the patients’ blood type
+and other medical information. With the pinch of a syringe, the microchip is inserted under the skin in a
+procedure that takes less than 20 minutes and leaves no stitches. Silently and invisibly, the dormant chip
+stores a code – similar to the identifying UPC code on products sold in retail stores – that releases patientspecific information when a scanner passes over the chip. At the doctor’s office those codes stamped onto
+chips, once scanned, would reveal such information as a patient’s allergies and prior treatments. The FDA
+in October 2002 said that the agency would regulate health care applications possible through VeriChip.
+Meanwhile, the chip has been used for a number of security-related tasks as well as for pure whimsy: Club
+hoppers in Barcelona, Spain, now use the microchip much like a smartcard to speed drink orders and
+payment.
+On the Net: http://www.4verichip.com/index.htm
+
+**FDA genehmigt die Nutzung von Chips in Patienten**
+WASHINGTON – Die Food and Drug Administration (= Lebens- und Arzneimittelbehörde) hat am Mittwoch einen implantierbaren Chip bewilligt, der dem Arzt medizinische Details liefert und dadurch die Behandlung beschleunigt.
+VeriChips, Hochfrequenz-Mikrochips in der Grösse eines Reiskorns, wurden bereits genutzt, um streunende Haustiere und Vieh zu identifizieren. Und beinahe 200 Leute, die im Büro von Mexikos Justizminister
+arbeiten, erhielten Chips implantiert, die ihnen den Zugang zu gesicherten und vertrauliche Dokumente
+enthaltenden Räumen ermöglichen.
+Die Firma Applied Digital Solutions mit Sitz in Delray Beach, Florida, ersuchte im Juli die FDA um
+Genehmigung für den Gebrauch des implantierbaren Chips zur medizinischen Nutzung in den Vereinigten
+Staaten. Die Agentur hatte 60 Tage Zeit, um auf die ‹de novo›-Anwendung zu antworten.
+Zum ersten Mal hat die FDA die Nutzung des Geräts genehmigt, obwohl in Mexiko mehr als 1000 scanbare Chips in Patienten bereits implantiert wurden. Die Seriennummer des Chips holt des Patienten Blutgruppe sowie andere medizinische Informationen aus dem Computer. Mit einer Spritze wird der Chip
+unter die Haut eingeführt, eine Prozedur, die weniger als 20 Minuten dauert und keine Narbe zurücklässt.
+Geräuschlos und unsichtbar speichert der verborgene Chip einen Code, der – ähnlich dem Strichcode auf
+in Läden verkauften Produkten – patientenspezifische Daten freigibt, wenn ein Scanner über den Chip
+fährt. In der Arztpraxis würden nach dem Scannen die auf diese Chips eingestanzten Codes Informationen
+freigegeben, wie z.B. des Patienten Allergien oder frühere Behandlungen. Im Oktober 2002 sagte die FDA,
+dass die Agentur durch VeriChip ermöglichte Gesundheits-Anwendungen regulieren werde. Zwischenzeitlich wurde der Chip für eine gewisse Anzahl von sicherheitsbezogenen Aufgaben verwendet, wie
+auch für reine Spleens: In Barcelona, in Spanien, benutzen ‹Club-Hüpfer› (Clubmitglieder) den Mikrochip
+wie eine Smartcard, um Getränkebestellungen und die Bezahlung zu beschleunigen.
+Internet: http://www.4verichip.com/index.htm
+Eingesandt von Michael Horn, USA
+Übersetzung Christian Frehner, Schweiz
+
+
+-----
+
+## Sichtungsbericht vom 28.10.2004
+Hochverehrter Billy!
+Da ich an Deine Kontakte mit Ausserirdischen glaube, bzw. ich davon überzeugt bin, möchte ich Dir über
+eine UFO-Sichtung berichten, die mir heute meine Schwester am Telefon erzählt hat. Die Nachbarn meiner
+Schwester, sie wohnen in Wittgensdorf bei Chemnitz (Deutschland), haben ihr folgende Sichtung berichtet:
+Letzten Donnerstag, den 28.10.2004 gegen 22.30 Uhr, waren die Nachbarn gerade dabei, zu Bett zu
+gehen, als sie in ca. 2 km Entfernung über einem grossen Kuhstall eine hell-leuchtende Kugel sahen. Der
+Nachbar hat diese mit einer Polaroid-Kamera photographiert. Weitere Photos durfte der Nachbar nicht
+machen, da dessen Ehefrau Angst hatte, dass etwas passieren könne. Das Bild zeigte aber nichts. Nach
+einigen Minuten flog die Kugel plötzlich im rechten Winkel Richtung Norden (Ortschaft Taura). Plötzlich
+kam diese Kugel im Tiefflug extrem schnell, hell und grell leuchtend genau über das Grundstück meiner
+Schwester und deren Nachbarn zurückgeflogen. Die Helligkeit war so stark, dass die Nachbarn stark
+geblendet waren. Die Sichtung dauerte ca. 10 Minuten. Beim Überflug war ein Geräusch zu hören, das
+einem Düsenflugzeug ähnelte, aber nicht so laut.
+Die Nachbarin konnte vor Aufregung nicht mehr einschlafen.
+Ihr Ehemann hatte vor Jahren schon einmal ein ähnliches Erlebnis. Da damals keine weiteren Zeugen da
+waren, hat er nicht darüber gesprochen, weil er nicht verspottet werden wollte. Da er aber jetzt seine
+Ehefrau als Zeuge hatte, haben sie meiner Schwester von dem unglaublichen Erlebnis berichtet.
+Ich habe meiner Schwester schon oft von UFOs erzählt, aber jetzt glaubt sie auch, dass etwas dran sein
+muss. Ich möchte Dich fragen, ob diese Sichtung etwas mit den Plejaren zu tun hat oder ob es sich um
+andere Intelligenzen handelt.
+Mit freundlichen Grüssen
+Wolfgang Froese, Deutschland
+
+
+-----
+
+Lieber Wolfgang,
+da ich wieder einmal viel anfallende Arbeit und keine Zeit zum Briefeschreiben habe, möchte ich Dir auf
+diesem Wege kurz folgendes sagen und erklären:
+Recht herzlichen Dank für Deine Zuschrift, worüber ich mit Ptaah gesprochen habe. Wie er sagte, ist ihm
+nichts bekannt in bezug irgendwelcher Aktivitäten aus den Reihen der Plejaren in jenem Gebiet und zu
+jener Zeit, wie Du sie in Deinem Schreiben genannt hast. Also weiss leider auch ich nicht, worum es sich
+bei dem beobachteten Objekt gehandelt haben könnte.
+Bezüglich der Dinge um Florena möchte ich Dich nicht im Ungewissen lassen: Leider hat nur ein Ding den
+Weg in die Weiten des Weltenalls gefunden, wofür Du einen sehr lieben Dank empfangen sollst. Das Restliche habe ich Eva gegeben, weil sie es sehr gut für unser Töchterchen Selina gebrauchen kann. Auch von
+ihr recht herzlichen Dank.
+Hinsichtlich der Bücherpost wird Wolfgang auf Deine Anregung eingehen.
+Mit herzlichen Grüssen
+Billy
+
+## Persönliche Meinung zu Glauben und Religion
+Am 2. November 2004 wurde der 47jährige Filmregisseur und Publizist Theo van Gogh in Amsterdam
+auf der Strasse erstochen bzw. erschossen. Seitdem fragt sich die Welt warum, weshalb und wieso das
+geschehen konnte.
+Dass van Gogh ein Islamkritiker war, war kein Geheimnis, und er hat es in über zwei Dutzend sogenannten Low-Budget-Filmen immer wieder gezeigt. Das Drehbuch für den letzten Film ‹0605› hatte die
+niederländische Abgeordnete und aus Somalia stammende Ayaan Hirsi Ali geschrieben, die offensichtlich eigene Erfahrungen einbringen konnte. Die Parlamentarierin der rechtsliberalen VVD hat wegen islamkritischer Äusserungen besondere Aufmerksamkeit erlangt.
+Da ich nicht jeden Film und jede Aussage von Theo van Gogh kenne, kann ich auch nur eine allgemeingültige Aussage zu diesem Thema machen.
+Van Gogh und Hirsi Ali werden also beschuldigt, den Glauben der Moslems durch Aussagen gedemütigt
+zu haben, was dazu führte, dass van Gogh durch einen Marokkaner erschossen wurde.
+
+**Meine persönliche Meinung dazu ist folgende:**
+Selbst wenn van Gogh islamfeindliche Bemerkungen, Aussagen und Filme gemacht hat, so ist zumindest
+ein Teil der Aussagen insofern richtig, dass es z.B. immer wieder vorkommt, dass Frauen misshandelt
+werden, was auch Hirse Ali in ihrem Drehbuch beschrieb und im Film ‹0605› zum Ausdruck gebracht
+werden sollte.
+Es ist kein Geheimnis, dass Extremmoslems Andersgläubigen oftmals sehr feindselig gegenüberstehen und,
+obwohl im Koran das Töten nicht erlaubt ist, in extremen Kreisen vom Heiligen Krieg gesprochen und
+dazu aufgestachelt wird.
+Möglicherweise lassen sich diese ersten beiden Punkte schlecht gegeneinander aufwiegen und stellen
+meiner Meinung nach ohnehin ein Ungleichgewicht dar.
+Jeder soll seine Religion leben, wenn er oder sie das will.
+Ausnahme: Wenn die Gesetze des jeweiligen Landes missachtet werden, in dem man sich als gläubiger
+Mensch befindet oder sogar lebt. Das Landesrecht geht über das Glaubensrecht, zumindest was die
+Ordnung und das Recht der Gesellschaft betrifft, wodurch alle Menschen geschützt werden.
+Kein Gläubiger und keine Religion haben das Recht, andere Menschen wegen einer anderen Religion
+oder Meinung zu diskriminieren oder sogar zu töten.
+
+
+-----
+
+Jede Religion ist der ewige Versuch, den Menschen, dem Volk und den Gläubigen klarzumachen, dass
+genau ihre Religion die einzig richtige und wahre sei, die es gibt.
+Wenn man das schon weiss, warum macht man sich dann nicht die Mühe nachzufragen, zu hinterfragen
+und nachzudenken, was denn daran wirklich wahr ist und welcher Inhalt der religiösen Aussagen den
+Fragen der Suchenden standhalten kann? Das würde so manchen wahrlich und kritisch Suchenden auf
+völlig neue Wege bringen. Dazu ein paar Gedankenhilfen.
+
+**Was sind sichere Merkmale zum Erkennen von Falsch- und Irrlehren?**
+1) Kult = Verherrlichung von Gegenständen aller Art – auch Bilder – Heiligen, Gebäuden, Statuen und
+Bücher usw.; Unlogik in den Aussagen, Predigten, Dogmen, Gesetzen, Regeln, Vorschriften etc.
+2) Das Verbot, kritisch über eine Religion/Sekte nachdenken zu dürfen, z.B. darf man Gott, Allah usw.
+nicht anzweifeln.
+3) Verherrlichung von lebenden und toten Personen, so in allen Religionen, Sekten, Ideologien, aber
+auch in der Politik und Kunst, wie auch im Privatleben.
+4) Die Unfähigkeit, Ordnung und Gleichheit zu schaffen für alle Menschen in allen Bereichen des Lebens.
+5) Erstellen von dogmatischen Lehrsätzen, die nur ein Ziel haben, Menschen in die Demut zu zwingen,
+sie hörig und fügsam zu machen etc.
+6) Bewusstseinsmässige Versklavung und materielle Ausbeutung der Menschen.
+7) Das Unrecht, im Namen der eigenen Religion/Sekte Kriege zu führen und Menschen zu ermorden.
+8) Verlogenheit, Missachtung des Menschen, Neid, Missgunst, Lieblosigkeit, Rassenhass, Besserwisserei,
+Materialismus, Machthunger, Herrschsucht und vieles andere mehr.
+9) Erbitterter Kampf, die jahrmilliardenalte natürliche schöpferische universelle Wahrheit zu unterdrücken, diese zu verfälschen und zu diskriminieren.
+
+**Resümee:**
+Egal welchem Glauben oder welcher Religion, Sekte, Ideologie der einzelne Mensch seine Zuneigung
+schenkt, es darf nie so weit kommen, dass Menschen dadurch diskriminiert oder sogar getötet werden.
+Jeder versucht auf seine Weise eine ehrliche Haltung zu sich und seinem Leben einzunehmen und danach
+zu leben.
+Herbert Rickauer, Deutschland
+
+**(Anm. Billy: Es muss klargestellt sein, dass nicht nur im Islam Glaubensfanatiker, Fundamentalisten und**
+**sonstige Glaubensextreme ihr terroristisches Unwesen treiben, sondern gleichermassen auch im**
+**Christentum, im Judentum, Hinduismus und im Buddhismus sowie in allen daraus hervorgegangenen**
+**Sekten. Wenn daher nur von ausgearteten Terroristen usw. des Islams gesprochen wird, dann entspricht**
+**das einer einseitigen und unrichtigen Ansicht und kommt einer Verurteilung des Islams und dessen**
+**Gläubigen gleich. Es darf also nicht nur von Extremmoslems gesprochen, sondern es müssen die ganzen**
+**Fakten genannt werden, die darauf beruhen, dass Terroristen, Fanatiker, Extremisten und Fundamen-**
+**talisten in allen religiösen und sektiererischen Lagern existieren, die alle gleichermassen zu nennen und**
+**in bezug ihrer terroristischen Handlungen und Ausartungen zu verurteilen sind. Von diesen distanzieren**
+**sich auch alle die rechtschaffenen Gläubigen aller Religionen, so also sowohl die Muslima und Muslime,**
+**die Christen und Christinnen, die Juden und Jüdinnen sowie die Angehörigen der hinduistischen und**
+**buddhistischen Religionen. Sie sind es, die rechtschaffenen Gläubigen aller Religionen, die das Morden,**
+**Zerstören, Foltern und Vernichten jeder Art verabscheuen und mit den Terroristen nicht im gleichen**
+**Schritt gehen. Und sie sind es, die wirklich nur Frieden, Freiheit und Liebe wollen, was sie auf mensch-**
+**liche und menschenwürdige Art und Weise anstreben und verfechten.)**
+
+
+-----
+
+## VORTRÄGE 2005
+Auch im Jahr 2005 halten Referenten der FIGU wieder Geisteslehre-Vorträge usw. (Ufologie nebensächlich). Nachfolgend die Daten für die stattfindenden Vorträge:
+
+**12. März 2005** Patric Chenaux: **Innere Werte II**
+Pius Keller: **Über den freien Willen des Menschen**
+
+**25. Juni 2005** Hans Georg Lanzendorfer: **Sterben, Tod und Todesleben**
+Natan Brand: **Hilfe zur Selbsthilfe**
+
+**27. August 2005** Karin Wallèn: **Gedanken über ‹Todesbewusstsein›**
+Christian Krukowski: **Menschheitsgeschickte VI**
+
+**23. Oktober 2005 Guido Moosbrugger:** **Siebenheit des Materieaufbaues III**
+Rita Oberholzer: **Irdische und plejarische medizinische Informationen für**
+**eine ganzheitliche Gesundheit**
+
+Pünktlicher Vortragsbeginn um 14.00 Uhr.
+
+Eintritt: CHF 7.– (Eintritts-Ermässigung für FIGU-Mitglieder bei Vorweisen eines gültigen Ausweises.)
+
+Wir freuen uns auf Ihr Erscheinen und begrüssen gerne auch Ihre Freunde, Kollegen und andere Interessierte.
+
+Wir erinnern Sie daran, dass im Restaurant Freihof in Schmidrüti Konsumationspflicht besteht.
+
+An den Vortrags-Samstagen trifft sich im Semjase-Silver-Star-Center um 19.00 Uhr eine Studiengruppe,
+zu der alle interessierten Passiv-Mitglieder herzlich eingeladen sind.
+
+## Vorschau 2005
+Die nächste Passivgruppe-Zusammenkunft findet am 14. Mai 2005 statt. Reservieren Sie sich dieses Datum
+schon heute!
+Persönliche Einladungen mit genauen Hinweisen folgen rechtzeitig.
+_Die Kerngruppe der 49_
+
+**IMPRESSUM**
+**FIGU-Bulletin**
+**Druck und Verlag: Wassermannzeit-Verlag, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+**Redaktion: ‹Billy› Eduard Albert Meier, Semjase-Silver-Star-Center, CH-8495 Hinterschmidrüti ZH**
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+**Abonnemente:**
+Erscheint unregelmässig; Preis pro Einzelnummer: CHF 2.– (Zusammen mit einem Abonnement der ‹Stimme der Wassermannzeit› oder der ‹Geisteslehre-Briefe› als Gratis-Beilage.)
+**Postcheck-Konto: FIGU-CH-8495 Schmidrüti, PC 80-13703-3**
+**E-Mail: info@figu.org**
+**Internet: www.figu.org**
+**FIGU-Shop: htttp://shop.figu.org**
+
+
+-----
+

@@ -1,0 +1,428 @@
+# Interessantes und Wissenswertes zu Viren und Bakterien
+
+ Siebenhundertfünfunddreissigster Kontakt  Freitag, 3. April 2020, 23.48 h
+
+**Ptaah** Da bin ich, Eduard, grüss Dich. Du hast mich durch Florena rufen lassen, lieber Freund, was fällt denn Dringendes
+
+an?
+
+**Billy** Erst mal; sei gegrüsst und willkommen, Ptaah, mein Freund. Sieh hier, dieses Fax habe ich von Elisabeth erhalten,
+
+wozu ich denke, dass darauf wohl eine dringende Antwort notwendig sein könnte, weil, wenn solche Gedanken gehegt
+werden, wie diese in diesem Fax geschrieben stehen und u.U. verbreitet werden, üble Missverständnisse und daraus
+Angst entstehen. Das aber müssen wir verhindern, wozu es notwendig sein wird, dass du das Ganze näher erklärst, was
+du bei unseren letzten Gesprächen bezüglich dem erklärt hast, was in diesem Fax angesprochen wird. Leider ist es immer
+so, dass, wenn etwas erklärt wird, es nie genug sein kann, weil aus allem und jedem unbedachte Vermutungen, krumme
+Gedanken und falsche Interpretationen gemacht werden. Und dies geschieht in der Regel immer, weil effectives und
+reelles tiefgründendes Nachdenken und Überlegen sowie Ergründen von etwas Erklärtem nicht die Stärke vieler
+Menschen der Erde ist.
+Das Ganze des Fax, das Elisabeth per E-mail erhalten hat, bezieht sich darauf, was du am 3. Februar unter Punkt 17)
+erklärt hast:
+
+_17) Unsere Feststellungen und Erkenntnisse zeigen auch auf, dass der sich zweitweise genverändernde Corona-Virus im Organismus des_
+_Menschen je nach dem entsprechenden Immunzustand sehr aggressiv bis tödlich verhält, wie anderseits aber auch zurückhaltend,_
+_wodurch sich eine Genesung ausbildet, wobei diese jedoch nicht einer vollständigen Vernichtung des Virus entspricht. Unsere_
+_Erkenntnisse zeigen auf, dass gewisse genetische Varianten auch bei einer Genesung nicht absterben, sondern latent vorhanden_
+_bleiben, aber nicht unmittelbar erkennbar und auch nicht nachweisbar sind, wie das auch bei diversen anderen Krankheiten der Fall ist._
+_Bei dieser heimtückischen Corona-Seuche jedoch kann es irgendwann nach Jahren oder Jahrzehnten unverhofft geschehen, z.B. durch_
+_Intimkontakte, dass das latente, schlummernde Übel übertragen werden kann, wobei sich dann jedoch ein ungewöhnliches Phänomen_
+_derart ergibt, dass infolge der sich gewandelten Genvariationen des bekannten Virus eine Erkrankungsreaktion in völlig anderer Form_
+_erfolgt. Diese Tatsache zu erfassen ist jedoch durch die irdische Forschung mit der medizinischen und virologischen apparaturellen und_
+_sonstigen Technik nicht möglich, weil das hierzu benötigte Instrumentarium nach unseren Vorausschauungen im gegenwärtigen 3._
+_Jahrtausend noch nicht entwickelt und nicht konstruiert werden kann. Zwar wähnen die Erdenmenschen, dass ihnen eine_
+_hochentwickelte Technik mit sehr hochentwickelten technischen Werten zur Verfügung stehe, doch was die Wahrheit ist, so ist dazu zu_
+_sagen, dass die gesamte irdische Technik jeder Art nicht mehr als einem ersten Schritt aus tiefster Dunkelheit in einen schwachen_
+_Schimmer eines noch sehr fernen Lichtes gleichkommt._
+
+Das, lieber Freund, ist meines Erachtens der Grund für das Fax, das du bitte lesen solltest …
+
+**Ptaah** … (liest)
+
+Anfang der weitergeleiteten Nachricht:
+**Von: FIGU <info@figu.org>**
+**Betreff: Wtr: Formulareingabe von: Kontaktformular**
+**Datum: 2. April 2020 um 18:48:07 MESZ**
+**An: Elisabeth Gruber …**
+
+------ Original Message -------Subject: Formulareingabe von: Kontaktformular
+Date: Thu, 2 Apr 2020 09:31:21 +0200 (CEST)
+From: "A.B.
+To: info@figu.org
+
+Übermittelt am Donnerstag, 2. April 2020 - 9:31 von
+
+Diese Werte wurden eingegeben:
+Vor- und Nachname: A. B.
+bevorzugte Sprache: deutsch
+
+Ihre Mitteilung an uns:
+Ich möchte einige Fragen bezüglich der neuen lebenswichtigen die Seuche betreffenden Informationen stellen, die auf der FIGU
+Webseite veröffentlicht worden sind:
+
+
+-----
+
+1) Da aufgrund solcher neulich publizierten Informationen das Virus rapide mutiert und angriffiger wird und es sich ausserdem
+unterschiedlich je nach dem Immunsystem der jeweiligen Völker verhält, könnte man davon ausgehen, dass falls irgendwann
+eine Impfung herausgefunden werden sollte diese nicht oder nur teilweise wirksam sein wird, das heisst, dass sie die gesunden
+Menschen entweder nicht oder nur zum Teil vor der Virus-Ansteckung schützen wird, weil in der Zwischenzeit das Virus bereits
+derart mutiert ist, dass die Impfung keinen effektiven Schutz darstellt. Wenn dem so wäre, würde das bedeuten, dass eventuell
+nur irgendwelche pharmazeutische Mittel bzw. Medikamente die Virus-Krankheit behandeln und heilen könnten.
+
+2) Wie sieht es diesbezüglich tatsächlich aus?
+
+3) Laut einer Angabe, die ich vor kurzem auf dem englischen FIGU-FORUM bei einem Post des Moderators, der eine telefonische
+Information aus einem FIGU KG-Mitglied zitiert hat, gibt es z.Z. weltweit mehrere Millionen Infizierte. Und aufgrund der oben
+genannten plejarischen Informationsquelle ist es so, dass im Körper der vom Virus angesteckten Menschen bei der Genstruktur
+dauernd Spuren des Virus bleiben und deshalb die Krankheit nach Jahren wieder auftauchen kann und die Infizierten auch nach
+der Genesung andere anstecken können, obwohl sie keine Symptome mehr haben, beim Virus-Test negativ resultieren und
+deshalb für die irdische Medizin als geheilt gelten. Also sieht es so aus, dass diese Seuche nicht zu stoppen oder sehr schwer zu
+bekämpfen ist. Denn eine eventuelle Impfung könnte nur den gesunden Menschen verabreicht werden und nicht den von der
+Virus Krankheit Genesenen, welche nach wie vor ansteckungsfähig sind und deshalb die Seuche weiter verschleppen und zwar für
+lange Zeit in der Zukunft. Das scheint eine ausweglose Situation zu sein, es sei denn irgendein Arzneimittel wird entdeckt und
+angewendet, das in der Lage ist, jede Spur des Virus im Körper genetisch vom Grund auf zu vernichten. Entspricht das der
+Richtigkeit?
+
+Mit freundlichen Grüssen
+
+A.B.
+
+Das ist tatsächlich unbedacht, unerfreulich und ärgerlich und entspricht dem, was du gesagt hast, dass Vermutungen,
+falsche Gedanken und ebensolche Interpretationen ersonnen werden, die Angst und Unheil hervorrufen können, weshalb
+offensichtlich eine weitere und umfassendere Erklärung unumgänglich sein wird.
+
+**Billy** Eben.
+
+**Ptaah** Das werde ich tun, und in…
+
+**Billy** Dachte ich ja, dass du nicht nein sagen wirst, weil es eben wirklich nötig ist. Doch muss ich dich bitten, dass du
+
+es, wie es ja immer notwendig ist, in einer für die Erdlinge verständlichen Sprache und ausführlich genug erklären solltest.
+Zwar werden mit Sicherheit auch dann wieder Fragen aufkommen, wenn nichts mehr misszuverstehen sein wird, weil
+einerseits eben das eine oder andere doch wieder nicht verstanden wird.
+
+**Ptaah** Das wird so sein, wie aber auch, dass Elemente alles dumm-dreist hinterfragen werden, um sich damit wichtig
+
+machen zu wollen. Anderseits wird es aber noch weiterführen, nämlich, dass Elemente, die einem Besserwisserdrang
+verfallen sind, eben falsche Theorien erdenken und als Falschinformationen verbreiten werden. Leider wird es aber auch
+sein, dass ebenso Fachpersonen die Wahrheit nicht annehmen werden, weil sie für sie unverständliche Belehrungen
+unzugänglich sind, ihnen nahegebrachte unbekannte, fremde Erkenntnisse und ein höheres Wissen in ihrer Überheblichkeit nicht zu bedenken vermögen und folglich auch nicht anerkennen können.
+
+**Billy** Das wird so sein, wie sie in ihrer Borniertheit wohl auch behaupten werden, dass alles Unsinn und nur ein Werk
+
+meiner Phantasie sei usw., wie das ja auch in dieser und jener Weise behauptet wird in bezug auf unsere Kontakte, die als
+Schwindel, Einbildung, Phantasie, Wahn, Lug und Betrug verschrien werden. Und wie du ja weisst, geschieht dies noch
+heute, und zwar obwohl für unsere Kontakte nicht nur Beweisphotos und Erlebnisberichte vieler Personen existieren, die
+im Zusammenhang mit unseren Kontakten Verschiedenes erlebt haben, was effectiv mehr als nur aussergewöhnlich war.
+Auch Zeugenberichte, und zwar nicht nur von FIGU-Mitgliedern der Kern- und Passivgruppe aus aller Welt, sondern auch
+von FIGU-unabhängigen Personen beweisen, dass alles hinsichtlich unserer Kontakte der Wirklichkeit entspricht. Das alles
+und noch viel mehr, wird aber trotzdem nichts nützen, dass nicht versucht werden wird, mich in der Luft zu zerreissen
+bezüglich dem, was nun in bezug auf die Corona-Pandemie an Erklärungen von dir weltweit in Umlauf ist.
+
+**Ptaah** Was du sagst, das ist leider bereits schon heute infolge der doppelten Bohnenstrohdummheit jener die Wahrheit
+
+Negierenden so, die im Internetz eure Webpräsenz durchsuchen und Kenntnisse daraus gewinnen, während andere euch,
+und zwar besonders dich, beschimpfen, wie das eine grössere Anzahl Politiker und Staatsoberhäupter tun, wie wir schon
+seit Jahrzehnten durch unsere Beobachtungen immer wieder feststellen. Dies ergibt sich auch so in sogenannten UFOGruppen, die dich und unsere Kontakte einerseits deshalb verleugnen, weil du durch deine frühere Frau und ehemalige
+mit ihr befreundete und ihr verfallene Mitglieder verleumdet wurdest, wie auch durch Neidende und aus irgendwelchen
+pathologisch bedingten, jedoch unerfüllbaren Wünschen, an deiner Stelle stehen zu können usw.
+
+**Billy** Gut, das hast du jetzt gesagt, und das mit der <doppelten Bohnenstrohdummheit>, das gefällt dir offenbar, doch
+
+sollten wir wirklich nicht immer wieder darauf zu reden kommen, und zwar auch dann nicht, wenn ich kurz etwas
+anschneide, in bezug auf die Tatsache, dass unsere Kontakte bezweifelt werden. Es ist einfach nicht gut, wenn immer
+
+
+-----
+
+wieder meine Ex und die Antagonisten, die einhellig mit ihr gleichziehen, wie auch die sonstigen Widerpartigen und die
+ihr glaubenden christ-religiösen Mephistophelen, die sich Theosophen und Sektenbekämpfer usw. nennen, ins Feld
+geführt werden. Es … nun, ich denke, dass du …
+
+**Ptaah** Entschuldige, es war nicht mein Sinn, dich zu treffen. Du hast dich doch schon mehrfach dagegen aufgelehnt,
+
+doch drängt es mich manchmal einfach dazu, die Wahrheit verlauten zu lassen, weil du dich selbst nicht gegen die
+Beschimpfungen, Lügen und Verleumdungen offen zur Wehr setzt und die gegen dich gerichteten Feindlichkeiten nicht
+beachtest, die immer und jeder Zeit ausarten können, wie das bereits 23mal geschehen ist. Das solltest du bedenken,
+mein Freund.
+
+**Billy** Tue ich schon, doch was jetzt gesagt wurde, sollte genug sein, bitte.
+
+**Ptaah** Ich …, ja du hast recht. Dann will ich mich bemühen das von mir bei unserem Gespräch am 3. Februar in
+
+ausführlicheren Erklärungen und in einem Wortgebrauch auszulegen, dass ich annehmen kann, dass es verstanden wird.
+Beginnen will ich damit, dass ich nochmals einiges Wissenswerte hinsichtlich Viren und Bakterien erkläre, wobei ich für
+bestimmte Ausführungen auch die üblichen irdischen Begriffe verwenden werde:
+Zu den Viren ist zu sagen, wie ich das bereits am 3. Februar erklärt habe, dass diese einfachen infektiösen organischen
+Strukturen entsprechen und damit völlig anders geartet sind als Bazillen resp. Bakterien. Viren entsprechen leblosen
+Strukturen, die in sich eines oder mehrere Moleküle aufweisen, die bei bestimmten der rund 2,7 Millionen umfassenden
+Arten und verschiedenen Formen – wie z.B. Kugel, Stäbchen oder Schwanzträger usw. – auch von einer Eiweisshülle
+umgeben, jedoch auch Träger der DNA oder RNA und damit der Informationen des Erbgutes ihrer Vermehrung sind, Die
+in der Struktur vorgegebenen Moleküle sind Träger des deoxyribonucleic acid, der Desoxyribonukleinsäure resp. die DNA,
+die einem Doppelstrang entspricht, sowie des Ribonucleic acid, der Ribonukleinsäure resp. die RNA, die in der Regel nur
+einen Strang besitzt, wobei jedoch beide die Basen Adenin, Cytosin und Guanin in sich tragen.
+Zwischen den Viren und Bakterien besteht ein grosser Unterschied, denn im Gegensatz zu Bakterien – die Lebewesen
+sind, aus einer eigenen Zelle bestehen, über einen eigenen Stoffwechsel und damit über eine eigene Energiegewinnung
+und damit fähig zur Proteinsynthese sind – weisen die Viren, die nur bis 300 Nanometer gross sind, als organische
+Strukturen keinerlei solche Fähigkeiten und auch keinerlei Leben auf.
+Viren existieren allüberall, doch werden die Menschen nur von einer bestimmten kleinen Anzahl der rund 2,7 Millionen
+Arten befallen, machen sie wirklich krank oder sterben daran. Und erfolgt eine Genesung von einer Virus-Erkrankung,
+dann gewährleistet diese nicht unbedingt ein völliges Ende der Krankheitserreger, denn oft werden solche noch durch
+infizierende Stoffe ausgeschieden, wie infolge Ausscheidungen durch Exkremente, den Atem, Speichel und Spucke,
+Exspirationströpfchen, wie aber auch durch Blut infolge Wunden sowie durch Intimhandlungen oder eine feuchte Aussprache usw., was auch noch einige Zeit nach einem Krankheitsanschluss erfolgen kann.
+Viren rufen Infektionen hervor, wie z.B. HIV/AIDS, schlimme Magen-Darm-Infektionen, auch Hepatitis, Masern, Röteln,
+banale Lippenherpes, Erkältungen und Windpocken, wie aber auch tödliche Krankheiten und Seuchen.
+Viren sind nicht einfach mit Medikamenten zu bekämpfen, auch nicht mit Antibiotika, denn Medikamente sind bei VirusErkrankungen wirkungslos. Zwar können gewisse antivirale Medikamente gegen einzelne Virusarten eingesetzt werden,
+jedoch wirklich nur gegen einzelne, die in der Regel jedoch <Wandler> sind. Das bedeutet, dass die Viren sich genvariativ
+laufend verändern, wie z.B. das Influenzavirus, das sehr wandlungsflexibel ist, folglich immer wieder neue Grippeformen
+entstehen, die das Immunsystem stets von neuem herausfordern. Und das ist auch der Grund dafür, dass jeder InfluenzaImpfstoff auch nur für eine einzige Influenza-Welle und damit nur für eine gewisse Anzahl Monate wirkt, dann jedoch für
+eine nächste Influenzageneration völlig unwirksam ist. Also bedingt das sich stetig wandelnde Influenzavirus, dass es
+jährlich erforscht und der Impfstoff an dessen neue genveränderte Eigenschaften angepasst werden muss.
+Influenza ist nicht so harmlos, wie infolge Unkenntnis der Erdenmenschen angenommen wird, denn wenn in der Regel
+auch nicht an die Öffentlichkeit dringt, dass diese tödlich enden kann, so sterben jedes Jahr viele Tausende Menschen
+beim Aufkommen von Influenza-Wellen. Impfungen schützen vor Influenza also nur gegen ein einmaliges Aufkommen der
+Krankheit, also nicht wie gegensätzlich in bezug auf andere Krankheiten, bei denen Impfungen jahrelang Schutz bieten.
+Weiter ist dazu zu sagen, dass sich auch das Immunsystem nicht einfach und schnell auf eine neue Influenza-Welle
+einstellen kann und folglich geraume Zeit benötigt, um mit dem Virus fertigzuwerden. Bei anderen Erkrankungen, bei
+denen die körpereigene Abwehr einen Keim resp. Krankheitserreger abtöten kann, wird der Organismus in vielen Fällen
+gegen das entsprechende Virus immun. Das bedeutet, dass mit dem gleichen Erreger kein zweites Mal eine Ansteckung
+erfolgen kann.
+Wenn die Menschen gesund und sind also über ein energiestarkes, gesundes Immunsystem verfügen, dann reagiert
+dieses normalerweise sehr schnell und bekämpft in den Organismus eindringende Viren recht erfolgreich. Nichtsdestotrotz können jedoch durch Viren bedeutende und lebensgefährliche Krankheiten ausgelöst oder hervorgerufen werden.
+Darunter ist zu verstehen – was den irdischen medizinischen, immunologischen sowie virologischen Fachkräften unbekannt ist –, dass <ausgelöst> und <hervorgerufen> zweierlei absolut verschiedenen Faktoren entsprechen. <Ausgelöst>
+bedeutet nämlich, dass eine im menschlichen Organismus angelagerte und ruhende Krankheit eben aktiviert wird und
+zum Ausbruch kommt, während im andern Fall das <Hervorgerufen> bedeutet, dass durch einen neuen und aktiv in den
+Organismus eingedrungenen Krankheitserreger eine Krankheit erzeugt resp <hervorgerufen> wird und als Krankheit aktiv
+
+
+-----
+
+zum Ausbruch kommt. Dabei kommt die Tatsache zum Zug, dass eine einmal akut gewesene Krankheit, die eine Genesung
+erfahren, sich jedoch als medizinisch nicht nachweisbares Impuls-Symptom im gesamten Organismus abgelagert hat,
+abermals als solche oder infolge einer Impuls-Symptom-Wandlung genetisch verändert hat, als neue veränderte Krankheit ausgelöst wird. Das ist jedoch den gesamten irdischen medizinischen, immunologischen und virologischen Wissenschaften unbekannt, worauf ich jedoch später im Zusammenhang mit dem Corona-Virus noch näher eingehen werde.
+Viren dringen nicht nur in die Organismen und damit in die Zellen der Menschen ein, sondern auch in alle Gattungen und
+Arten von Säugetieren, Getier und zahllose andere Lebensformen, wie auch Pflanzen aller Art. Finden Viren in ihrer
+Umgebung keine Wirtszellen, überall wo sie existieren oder in irgendwelchen Lebewesen, dann verfallen sie lähmend
+einer Verkümmerung und lösen sich in ihrer organischen Struktur auf, denn absterben und sterben können sie nicht, weil
+sie effectiv leblos und keine Lebewesen sind. Also entsprechen alle diesbezüglichen Erklärungen irdischer <Fachkräfte>
+völligen Unsinnigkeiten, dass Viren beim Fehlen von Wirtszellen absterben und sterben würden, denn was nicht im
+wahren Sinn von Leben existiert, kann nicht leblos werden und auch nicht sterben, sondern nur verkümmern und
+dissoziieren, sich zersetzen und auflösen.
+Auch wenn Virus leblose Strukturen sind, benötigen diese zu ihrer Vermehrung lebendige Wirtszellen irgendwelcher
+Lebewesen. Wenn Viren in einen Körper eindringen und diese an Wirtszellen andocken, dann erfolgt eine Infizierung des
+gesamten Organismus, wie auch eine sehr schnell um sich greifende Vermehrung, sowie durch die Zellen eine rasante
+Produktion von Gliederungselementen, die von den Viren benötigt werden. Haben die Viren ihr Erbgut in den Wirtszellen
+freigesetzt, dann müssen diese unhemmbar zahlreiche Viruspartikel produzieren und diese zu neuen Viren zusammenfügen, wonach die Wirtszelle abstirbt und Tausende von neuen Viren ausscheidet. Diese suchen sich umgehend neue
+Wirtszellen, wie z.B. Muskelzellen, Leberzellen oder andere, wie auch rote und weisse Blutkörperchen usw. Erkranken
+Menschen durch Viren, dann werden sie in der Regel infizierend und übertragen die Krankheitserreger direkt oder
+indirekt auf andere Menschen oder u.U. auch auf andere Lebewesen.
+Eine Genesung von einer Virus-Erkrankung gewährleistet nicht unbedingt ein völliges Ende der Krankheitserreger, denn
+oft werden solche noch durch infizierende Stoffe ausgeschieden, wie infolge Ausscheidungen durch Exkremente, den
+Atem, Speichel und Spucke, Exspirationströpfchen, wie aber auch durch Blut infolge Wunden sowie durch Intimhandlungen oder eine feuchte Aussprache usw., was auch noch einige Zeit nach einem Krankheitsabschluss erfolgen kann.
+Wenn ein Mensch vom Corona-Virus – oder einem anderen Virus – befallen wird und zur Genesung kommt resp. die
+Seuche überlebt, dann ergibt sich das nicht durch irgendwelche direkt gegen das Virus gerichtete, heilsame und zur
+Anwendung gebrachte Medikamente, die das Virus abtöten würden. Solcherart medizinischer Heilmittel gibt es nicht,
+weil ein Virus kein Lebewesen ist, sondern einer infektiösen organischen Struktur entspricht, die im Gegensatz zu
+Bakterien selbst keine Nahrung und folglich auch keine Medikamente aufnehmen kann sowie auch keinen Stoffwechselt
+hat. Also kann eine Genesung nur erfolgen, indem das Ganze einer bestehenden Virusaktivität durch das Immunsystem
+bekämpft wird, wenn es die entsprechende Energie und Kraft aufbringt, um das Virus in seiner Funktion derart zu
+unterbinden, dass es im Organismus des Menschen in einen Lähmungs-Zustand verfällt. Nur diesbezüglich können
+Medikamente mit Abwehrstoffen nutzvoll sein, wenn durch diese das Immunsystem gestärkt und auch abwehrkräftig
+gemacht wird, wodurch das Immunsystem eine Viruslähmung hervorrufen kann. In einer völligen Lahmlegung vermag ein
+Virus keinerlei Effekt mehr auszuführen, weil ein absoluter Funktionsnegativzustand jede Regung verhindert und sich
+dieses in seiner gesamten Struktur auflöst und also nicht mehr weiterexistiert. Folglich ergibt sich im gesamten
+Organismus des Menschen – wie auch bei anderen Lebewesen –, dass wenn diese Strukturauflösung erfolgt, das Virus in
+keiner Weise mehr nachgewiesen werden kann, ausser wenn sich bei bestimmten der rund 2,7 Millionen umfassenden
+Viren-Arten bei deren Bekämpfung Antikörper bilden.
+Bei einer Genesung ergibt sich, wie ich bereits angeführt habe, dass bei einer solchen die Tatsache zum Zug kommt, dass
+eine einmal akut gewesene Krankheit, die eine Genesung erfahren hat, sich diese medizinisch nicht mehr nachweisen
+lässt, und zwar obwohl sich Impuls-Symptome des Virus im gesamten Organismus abgelagert haben. Diesartige Ablagerungen, die als Impuls-Symptom-Wandlung zu bezeichnen sind, erzeigen sich nicht als Krankheitserreger, sondern wie die
+Erklärung sagt, lediglich als schwingungsbedingte Impuls-Symptome, die superfeine Frequenzen aufweisen und einzig
+durch entsprechende Apparaturen eruiert werden können. Solcherart Apparaturen sind jedoch den entsprechenden
+irdischen Techniken und Wissenschaften weder bekannt noch bestehen Ansätze zum Wissen dafür.
+Auch die Ablagerungen der Impuls-Symptome und deren Wandlung mit genetischen Veränderungen ist den irdischen
+medizinischen, virologischen und immunologischen Wissenschaften völlig unbekannt, folglich also auch, dass diese
+Impuls-Symptome lebenslang andauern und neue, jedoch veränderte Krankheiten auslösen können, zwar nicht die ursprüngliche, aus der diese Impuls-Symptome hervorgegangen sind, sondern infolge der durch die Wandlung veränderten
+Genvariationen, die bei einem schwachen Immunsystem den Organismus angreifen können. Das ist jedoch, wie bereits
+erwähnt, den gesamten irdischen medizinischen, immunologischen und virologischen Wissenschaften völlig und absolut
+unbekannt.
+Das Erklärte bedeutet nun jedoch in keiner Weise, dass deshalb der Mensch durch das Virus gezeichnet wäre, denn das
+Ganze bleibt nur Virus-Genveränderungsabbild resp. als schwingungsbedingtes Impuls-Symptom weiterhin im Organismus des Menschen bestehen, und zwar ohne Gefahr, dass es in seiner Ursprungsform wieder aktiv werden könnte.
+
+
+-----
+
+Dies kann jedoch medizinisch und virologisch usw. nicht mehr festgestellt resp. nicht mehr nachgewiesen werden, weil es
+sich effectiv um ein Virus-Abbild-Symptom handelt, das nur infolge seiner hochfeinen Schwingung durch Frequenzerfassungsapparaturen festgestellt werden kann. Hierzu sind jedoch z.Z. die gesamten Wissenschaften der irdischen
+elektromagnetischen Technik, Medizin, Virologie und Immunologie sowie Chemie usw. noch nicht fähig und werden noch
+über Jahrhunderte nicht dazu fähig sein.
+Einzig das schwingungsbedingte Impuls-Symptom setzt sich im gesamten Organismus fest, wie das bei jeglicher Viruserkrankung unweigerlich der Fall ist, jedoch bleiben diese Impuls-Symptome erhalten, und zwar, ohne dass sie einen
+Schaden anrichten. Das bedeutet jedoch u.U., dass diese Impulse bei passender Gelegenheit infolge ihrer Genvariationenmutation andere und neue Krankheiten begünstigen und zu deren aktivem Ausbruch verhelfen können. Davon haben
+jedoch, was ich wiederholend erklären muss, die gesamten irdischen medizinischen, virologischen und immunologischen
+Wissenschaften keinerlei Kenntnis, wie auch davon nicht, dass die vom Virus ausgehenden Mutationen und neu
+entstehenden Genvariationen sich als Impuls-Symptom im menschlichen Organismus einlagern, und zwar zeitlebens des
+Menschen. Also muss klargelegt sein, dass es sich bei dieser Einlagerung nicht um Krankheitserreger selbst handelt,
+sondern einzig um eine Impuls-Symptom-Schwingung, die sich in den gesamten Organismus integriert. Wie erklärt,
+handelt es sich dabei jedoch nicht um einen weiterbestehenden direkten Krankheitserreger, sondern einzig um einen
+schlummernden Faktor von Impuls-Schwingungen, der u.U. als Indikator für ein Auslösen von untergründig vorhandenen
+oder durch neue in den Organismus eindringende Keimen dienen kann. Das Ganze kann jedoch auch derart sein, dass die
+ursprüngliche Krankheit, die aus einem Virenbefall hervorgegangen war und Impuls-Symptom-Schwingungen erschaffen
+hat, durch eine Neuinfizierung abermals hervorgerufen werden kann, wenn keine sachwertige Medikation und damit
+keine zweckbedingte Impfung gegeben ist, folglich eine abermalige gleichartige Erkrankung erfolgen kann. Allein in dieser
+Weise kann also eine Anfälligkeit für eine weitere gleichartige Infizierung oder für ähnliche oder eine völlig neue
+Krankheit vorgegeben sein, wenn nicht vorbeugend durch eine zweckbedingte Impfung eine Infizierung verhindert wird,
+wobei u.U. keimentsprechende Impfungen von Zeit zu Zeit wiederholt werden müssen. Dies, weil bei gewissen Impfungen
+deren Wirksamkeit nach einer gewissen Zeit nachlässt und eine Routine-Auffrischung erfolgen muss, wie z.B. eine
+Tetanus-Impfung, die je nach Zustand des Immunsystems nach 8 bis 10 Jahren die Schutzwirkung verliert. Eine TetanusGrundimmunisierung bedeutet also nicht, dass sie lebenslang einen Schutz vor Starrkrampfbakterien bieten würde. Das
+alles, mein Freund, war meines Erachtens noch zu erklären, womit nun wohl alles Notwendige dargelegt sein sollte, um
+weitere Auswucherungen unvernünftiger Interpretationen, Ängste und Theorien zu unterbinden.
+
+**Billy** Was du alles erklärt hast, das sollte nun wirklich genügen. Anderseits wird es aber so sein, dass das Gros der
+
+sogenannten Fachleute – wie Ärzte und andere Mediziner, Virologen, Immunologen, Chemiker und allerlei Besserwisser
+sowie Weisheits-Knallfrösche usw. – in ihrer Borniertheit besserwisserisch alles bestreiten und ins Reich der Phantasie
+und Illusion verdammen werden.
+
+**Ptaah** Das wird so sein, denn die Besserwisserei, wie du das Verhalten solcher Erdenmenschen richtigerweise nennst,
+
+entspricht einem Wahn der Überheblichkeit und einer Rechthaberei und in Anspruch nehmen im Besitz eines
+Alleswissend zu sein.
+
+**Billy** Das ist gut gesagt, was ich aber damit noch erweitern möchte, dass sich solcherart Erdlinge als Neunmalkluge
+
+und Neunmalschlaue einschätzen, die in Wahrheit jedoch nur dumme Sprücheklopfer, Naseweise sowie Wortklauber,
+Haarspalter, Pedanten und Silbenstecher sind, wie auch Paragraphenreiter und eben Rechthaber, wie du gesagt hast.
+Grundsätzlich sind sie jedoch nichts anderes als Wortverdreher, Kritikaster, Prinzipienreiter und Nörgler. Und damit ist
+dazu wohl alles gesagt.
+Was ich nun hier noch habe, ist dieses Werbedoppel <Corona-Virus: Bakterien sind Virenfänger> – Interview mit Dr. Anne
+Katharina Zschocke. Wenn du dieses Werbezeug bitte lesen und deine Meinung dazu sagen willst?
+
+**Ptaah** Das kann ich tun …
+
+… … …
+Unverständlich, dass solcherlei Halbwahrheiten und teils Unsinnigkeiten verbreitet werden dürfen. Allein schon der
+Unsinn: <Es gibt keine guten, und keine schlechten Bakterienstämme, keine die krank machen, oder die gesund machen,
+und schon gar keine, die irgendwen angreifen. Mikroben bekämpfen sich auch nicht gegenseitig.> usw. ist derart abwegig
+unsinnig, dass der Prospekt nicht nur bösartig irreführend ist, sondern verboten sein müsste. Dazu sehe ich mich veranlasst einiges zu erklären:
+Allein die Behauptung, dass es keine guten, und keine schlechten Bakterienstämme gebe, entspricht einer dreisten Lüge,
+denn manche Bakterien sind gute und nützliche, andere hingegen schlechte, schädliche, sogar gefährliche und tödliche.
+Grundlegend jedoch nützen die guten Bakterien sehr viel mehr für die Gesundheit und das Wohlergehen aller Lebewesen,
+als dass die schlechten eben schaden!
+Allein in bezug auf den Menschen sind Bakterien sowohl nützliche Helfer als auch Krankmacher, die in einer Zahl von weit
+über 100 Billionen pro Mensch als winzig kleine, fiese und schädliche Krankheitserreger oder als gute und sogar sehr
+notwendige und lebenswichtige Lebewesen seinen gesamten Organismus bevölkern, begonnen von der Haut bis hinein
+ins Herz und gesamthaft alle Organe wobei die allerwichtigsten Bazillenträgerfaktoren der Darm und der Magen sind
+
+
+-----
+
+Auch auf der Körperhaut befinden sich zahlreiche Bakterien, und zwar Billionen, die einen schützenden Film bilden und
+normalerweise Krankheitserreger abwehren, wie ich bereits am 3. Februar im Zusammenhang mit Desinfektionsmitteln
+erklärt habe, die bei Händedesinfizierungen mit Desinfektionsmitteln die lebenswichtigen Hautbakterien abtöten. Die
+meisten Bakterien sind jedoch überwiegend im Dickdarm angesiedelt, wobei sie in diesem die Nahrungsreste abbauen
+und dadurch die Verdauung unterstützen.
+Gute und nützliche Darmbakterien, wie Milchsäurebakterien und Bifidobakterien, sind darauf ausgerichtet, schlechte und
+krankmachende Bakterien zu verdrängen, und zudem helfen sie beim Abbau der Nahrung und bilden kurzkettige Fettsäuren, durch die wiederum die Darmschleimhaut mit Energie versorgt wird.
+Bakterien sind einerseits Krankheitserreger, wie Salmonellen, besonders in bezug auf Erkältungen und andere Infektionskrankheiten. Die meisten Bakterienstämme sind harmlos oder tun sogar Gutes und Lebensnotwendiges, folglich der
+Mensch – wie auch alle sonstigen Lebewesen – ohne Bakterien kaum oder überhaupt nicht leben könnten. Allein schon
+die Haut, die den gesamten Körper bedeckt, wird durch einen dichten und Billionen Einheiten umfassenden Bakterienfilm
+geschützt. Dies, während andere Billionen von Bakterien im Magen und Darm die Nahrung verdauen. Alle Bakterien
+weisen verschiedene Besonderheiten auf, die ich folgendermassen aufführen will:
+
+1) Bakterien sind mikroskopisch kleinste Lebewesen.
+
+2) Bakterien sind entweder gut, nützlich und lebenswichtig, oder schlecht, gefährlich und tödlich.
+
+3) Bakterien sind Einzeller.
+
+4) Bakterien haben einen Stoffwechsel.
+
+5) Bakterien können sich selbst reproduzieren resp. fortpflanzen.
+
+6) Bakterien können bis zu hundert Mal grösser sein als Viren.
+
+7) Bakterien vermehren sich durch Zellteilung.
+
+8) Bakterien haben vielfältige Formen, z.B. Kokken, Stäbchen oder Spiralen.
+
+9) Bakterien bestehen aus einer einzigen lebendigen Zelle.
+
+10) Bakterien vermehren sich bei richtigen Bedingungen ungeheuer schnell.
+11) Bakterien vermehren sich durch Zellteilung.
+12) Bakterien sind extrem anpassungsfähig und fügen sich schnell jeder Situation an.
+13) Bakterien sind Aerobier, die Sauerstoff benötigen.
+14) Bakterien sind Anaerobier, die keinen Sauerstoff benötigen; einige können beides.
+15) Bakterien können entweder extrem niedrige oder hohe Temperaturen ertragen
+
+Bakterienarten sind deren sehr viele, wobei der Grossteil jedoch in keinerlei Zusammenhang mit dem Menschen steht
+und also keine Bewandtnis mit seiner Gesundheit und Existenz, wie auch nicht hinsichtlich seines Lebens hat.
+Das Gros aller Bakterienarten entspricht natürlichen <friedlichen> und nützlichen Formen, während nur eine geringe
+Anzahl von ihnen Krankheiten, Leiden und Tode verursacht, die diesbezüglich jedoch sehr heftig sein können. Viele
+andere Bakterien sind Zwitterzellen zwischen Gut oder Böse, wobei sie nur unter bestimmten Bedingungen Probleme
+verursachen, wie z.B., wenn sie sich zu stark vermehren, wenn irgendwelche Veränderungen auftreten, ihre Umgebung
+sich verändert, oder wenn ein Wirtsorganismus einer Schwäche verfällt usw.
+Tatsache ist, dass der Mensch – wie alle Lebewesen – nicht ohne Bakterien leben kann, denn allein ohne Magen- und
+Darmbakterien gäbe es für ihn keine Verdauung und damit also keinen Stoffwechsel. Schon zu Beginn des Lebens, das im
+Ursprung grundsätzlich durch Wandlungen von Viren hervorgegangen ist, haben viele Arten von Bakterienstämmen das
+Entstehen der sich aus den ersten Lebens-Urformen entwickelten Lebewesen erst ermöglicht. Auch auf der Erde ist das
+geschehen, und alle Bakterien haben gesamthaft alles überlebt, und zwar bis heute, und trotz allen widrigen Umständen,
+die einerseits durch die Evolution, anderseits besonders während den letzten zwei Jahrhunderten sehr katastrophal durch
+die Erdenmenschheit hervorgerufen wurden.
+Zu den schlechten und bösen Bakterien gehören natürlich die Krankheitserreger, und zwar besonders der Keim
+Escherichia coli, der im Magen-Darm-Bereich sowie in anderen Körperregionen schwere Infektionen verursacht. Dann
+auch die Salmonellen, die infolge Vergiftung schwere Erkrankungen verursachen, wie Typhus, Paratyphus und Enteritis
+resp. Darmentzündung, die in schweren Fällen nur mit Antibiotika bekämpft werden kann. Auch Karies wird durch
+schlechte Bakterien verursacht, wobei aber auch verschiedene Staphylokokken und Streptokokken zu nennen sind, die
+Haut- und Schleimhautinfektionen hervorrufen, und zwar sowohl bei Kindern als auch bei Erwachsenen. Dabei rufen z.B.
+die schlechten grampositiven Bakterien auch bei immunkompetenten Menschen Infektionen und schwere sowie
+gefährliche Entzündungen hervor. Das sind die Erklärungen, die ich noch geben wollte.
+
+**Billy** Danke für deine Ausführungen und Erklärungen. Dann habe ich noch eine Frage bezüglich des Tragens von
+
+Schutzmasken against, Entschuldigung ich meine gegen das Corona-Virus. Du hast zwar in letzter Zeit schon viel dazu
+erklärt, doch möchte ich wissen, inwieweit und wo es in nächster Zeit sinnvoll ist, solche Masken zu tragen.
+
+**Ptaah** Was diesbezüglich sinnvoll sein wird, das habe ich bereits erklärt, was ich aber gern wiederholen und nochmals
+
+erklären will:
+
+
+-----
+
+Wenn Schutzmasken gegen Infizierungen von Krankheitserreger getragen werden sollen, dann ist es nur sinnvoll, wenn
+diese besonders dafür gefertigt und dementsprechend in ihrer Ausführung, Dichte und zweckdienlichen Filterung den
+Zweck einer Infizierungs-Verhinderung erfüllen. Grundsätzlich entsprechen solche Produkte eigentlich nur Medizinalmasken, doch können geeignete wertige Masken auch als Schutz genutzt werden, um eigene Aussonderungen durch
+Mund und Atemorgan auf nähere Distanz und bezüglich des Übertragens zu anderen Personen zu verhindern, wie durch
+geeignete wertige Masken auch Aussonderungen aus Mund und Atemorgan von fremden Personen abgewehrt werden.
+Solcherart einfache Masken schützen jedoch nicht vor Viren und Bakterien, denn wenn dieser Zweck angestrebt wird,
+dann bedarf dieser entsprechenden Medizinalmasken.
+Einfache Schutzmasken, wie ich sie genannt habe, können natürlich überall getragen werden, wobei es jedoch sinnlos und
+zwecklos ist, wenn sie allüberall im Freien getragen werden und nicht andere Personen oder solche nur weit verstreut
+und in mehreren Metern Abständen gegenwärtig sind.
+Einen effectiven Sinn ergibt das Tragen von wertigen Schutzmasken nur dann, wenn diese auch sinnvoll genutzt werden,
+was aber in eben gesagter Weise nicht sein kann, wenn sie im Tagesgebrauch dieserart benutzt werden.
+Eine Notwendigkeit besteht nur bei regem Passantenverkehr auf der Strasse und in zahlreich von Personen benutzten
+Gebäuden usw., eben dort, wo es erforderlich ist, wie z.B. Kliniken, Versorgungsorte wie Nahrungseinkauforte aller Art,
+bei unerlässlichen Gemeinschaft-Tätigkeiten mit mehreren Mitarbeitenden, wie auch bei Unterhaltungen in kleinem Kreis
+oder sonstig kleinen Personengruppen, bei Menschenansammlungen, oder im nahen oder engen Bereich von Krankheitsoder Seuchenbefallenen, sei es in Räumen oder im Freien.
+Jetzt jedoch, Eduard, muss ich gehen, wenn du nicht noch etwas zu besprechen hast?
+
+**Billy** Nein habe ich nicht, doch vielen Dank, und was du alles erklärt hast, wird Bernadette aufarbeiten und an alle
+
+FIGU-Mitglieder weitergeben, wonach es dann auch ins Internetz gesetzt wird.
+
+**Ptaah** Dann sollte es unser gesamtes Gespräch ohne irgendwelche Wegnahme sein.
+
+**Billy** Du meinst, dass der gesamte Kontaktbericht …?
+
+**Ptaah** Das ist der Sinn meiner Äusserung. Doch jetzt, Eduard, mein Freund, jetzt muss ich wirklich gehen. Auf
+
+Wiedersehn.
+
+**Billy** OK, dann eben so. Tschüss, danke und auf Wiedersehn.
+
+******************************
+
+
+-----
+

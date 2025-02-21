@@ -1,0 +1,717 @@
+# FIGU OFFENER BRIEF
+
+
+**L**
+
+**�**
+**WESEN FREMDER WELTEN�**
+**BESUCHEN DIE ERDE**
+
+
+**�** **Freie**
+
+
+### Erscheinungsweise: Internetz: http://www.figu.org 5. Jahrgang Sporadisch E-Briefe:  info@figu.org Nr.11, Juni 2013
+
+## An den Vatikan, den Papst, seine Knechte und an deren gotteswahnbesessenes Fussvolk
+
+ Der katholische Zölibat und seine klerikalen ‹Missionarren›
+### oder Gedanken über männliche Bigotterie und Frauenfeindlichkeit
+
+Es ist kein Geheimnis, dass die katholische Kirche in ihrem Missionierungswahn und zur Erhaltung ihrer
+Machtposition im Laufe der rund 18 Jahrhunderte ihrer Existenz sehr viele menschenverachtende und
+wider natürliche Richtlinien, Verfügungen, Ukassen (Erlasse, Verordnungen), Enzykliken und Dekrete erlassen hat. Die kultreligiösen und wahngläubigen Menschen sollten mit aller Gewalt und mit allen mög lichen Mitteln der psychologischen Einschüchterung auf die christliche katholische Lehre eingeschworen
+werden. Die römisch-katholische Kirche verlangte und fordert von ihren Gläubigen bis heute die bedingungslose Hörigkeit und ein selbstverleugnendes Glaubensbekenntnis an eine vermeintlich ‹göttliche› und
+allzeit gültige Heils-Lehre. In Tat und Wahrheit handelt es sich jedoch um die sinn- und zwecklose Anbetung eines imaginären ‹Schöpfergottes› und um die Verehrung und Aufrechterhaltung eines horrenden
+Irrtums.
+Zahlreiche gotteswahnkranke Christenmenschen sowie eine kleine Mitgliederzahl der klerikalen und
+‹geistlichen› Führerschaft der römisch-katholischen Kirche glauben in ihrer blinden Wahngläubigkeit noch
+immer, dass die vermeintlich ‹heiligen› 10 Gebote ihres angeblichen himmlischen ‹Herrn› und ‹GottVaters› Jehova vor rund 3200 Jahren von diesem persönlich an Moses übergeben worden seien. Obschon
+wir mittlerweile im Dritten Jahrtausend leben, existieren noch immer rund zwei Milliarden kultreligiöse
+und blindgläubige Christenmenschen, die in ihrem Bewusstsein und in ihrem Unverständnis gegenüber
+der natürlich-schöpferischen Logik weiterhin im tiefsten und dunklen Mittelalter verharren und das katholische Dogma in keiner Weise bezweifeln. Dies, obschon sich darunter vermeintlich ‹hoch studierte› Profes soren, Wissenschaftler/innen, Ärzte und Ärztinnen, Philosophen und Philosophinnen und Physiker/innen
+etc. befinden.
+Der blinde Wahn-Glaube und eine jahrhundertealte Tradition der Unterdrückung, der Knechtschaft und
+der Hörigkeit durch die katholische Kirche haben im wahngläubigen Menschen zahllose Spuren und blutige Furchen psychisch-bewusstseinsmässiger Verletzungen und Pressionen hinterlassen.
+Während rund 1800 Jahren haben die Menschen dieser Erde unter der gewalttätigen Unterdrückung
+durch die katholische Kultreligion und ihrer Kirche sowie deren mordenden Inquisition gelitten. Es existierte keine Handlung und kaum ein Wort oder Gedanke bei deren Anwendung, Erwähnung oder
+Gebrauch, wenn die katholische Kirche in ihrem Fanatismus mit irgendeiner göttlichen Strafe oder mit
+
+
+**Freie**
+
+
+-----
+
+Repressalien durch ihre Stellvertreter drohte. Alles war von der katholischen Kirche geregelt und überwacht; selbst die Benutzung einer Gabel als Essbesteck, eine falsche Bewegung oder auffallende Mimik,
+ein falsches Wort usw. bis hin zu den ureigensten Gedanken. Ja selbst die intimste Privatsphäre war ganz
+und gar unter die gnadenlose Kontrolle und schonungslose Überwachung der katholischen Geistlichen
+und deren Oberhaupt geraten. Für mittelalterliche Verhältnisse wurden die Menschen bis in ihre Privat sphäre hinein durch ein ausgeklügeltes und höchst perfektioniertes Überwachungs- und Bespitzelungs system der katholischen Kirche kontrolliert.
+Wie uns die Geschichte lehrt, entsprechen diese strengen und anklagenden Worte weder einer bösartigen
+Verleumdung noch einer Schmährede oder einer Ehrverletzung, sondern sie nennen die wahrliche Wahrheit beim Namen. Das tödliche Feuer der Aufwiegelung, zahlreiche Denunziationen, der brennende Scheiterhaufen und die Enteignung des gesamten Hab und Gutes bedrohte die Menschen selbst innerhalb ihrer
+eigenen Verwandtschaft und in den eigenen Familien. Diese, die Psyche terrorisierende Taktik war wäh rend vielen Jahrhunderten das Wesen und die Basis für das Bestehen der päpstlichen Gewaltherrschaft.
+Selbst in den eigenen katholischen Reihen wurden die kultreligiösen Fesseln enger und enger gezogen;
+auch die Mönche, Prediger, Pfarrherren und Kuttenträger wurden von den päpstlichen Dogmatikern an
+der kurzen Leine der Überwachung gehalten. Im Jahre 1022 ordnete Papst Benedikt VIII. auf der Synode
+zu Pavia gemeinsam mit Kaiser Heinrich II. an, dass Geistliche künftig nicht mehr heiraten durften. Um
+diesem Elend noch einen weiteren Höhepunkt hinzuzufügen, wurde von Papst Gregor VII. (1073–1085)
+als Folge einer fanatischen Auslegung der Bibel und Eigeninterpretation des sogenannten ‹Neuen Testamentes›, der Zölibat, bzw. die Ehelosigkeit und eine sexuelle Enthaltsamkeit der Pfarrherren gefordert. In
+Tat und Wahrheit handelt es sich hierbei um eine menschenverachtende Regelung, die ob ihrer besessenen Bigotterie und üblen Persönlichkeitsverletzung nicht zu überbieten ist. Als Folge derartiger Repressalien wurden von zahlreichen ‹Geistlichen› höchst skurrile und ausgeartete Verhaltensweisen entwickelt,
+unter denen bis in die heutige Zeit unzählige ihrer Schutzbefohlenen, namentlich Frauen, Jugendliche und
+Kinder zu leiden hatten und haben.
+In einer schriftlichen Erklärung gab zum Beispiel Kardinal Keith O’Brien, der Erzbischof von St. Andrews
+in Edinburgh im Februar 2013 als ranghöchster Vertreter der Katholiken in Grossbritannien ein homo sexuelles Fehlverhalten zu. Sein sexuelles Verhalten habe zeitweilig nicht den Standards entsprochen, die
+von einem Priester, Erzbischof und Kardinal erwartet würden, schrieb O’Brien und legte das Amt am 25.
+Februar 2013 nieder.
+
+In MEYERS KLEINES LEXIKON wird der Begriff Zölibat wie folgt definiert:
+_Zölibat (von lateinisch coelibatus ‹Ehelosigkeit›) Ehelosigkeit und sexuelle Abstinenz, asketische Forderung_
+_vornehmlich in typischen Mönchsreligionen wie Buddhismus und Dschainismus. In der katholischen Kirche_
+_wurde das Verbot der Priesterehe seit Papst Gregor VII. aufs strengste gefordert und vom Konzil von Trient_
+_1545–1563 bestätigt. In der Ostkirche ist der Zölibat nur für Mönche und Bischöfe vorgeschrieben. Der_
+_Zölibat ist in neuester Zeit wieder in der allgemeinen Diskussion._
+
+In jenen mittelalterlichen Zeiten war eine gute akademische Ausbildung nur sehr schwer zu erhalten. Das
+Leben der einfachen Menschen wurde von der harten Feldarbeit, dem bäuerlichen Leben oder der lebenslänglichen Ausübung eines Handwerks geprägt. Der nackte Überlebenskampf prägte den Alltag und
+das Leben der von Klöstern ausgebeuteten und von deren Mönchen und Pfaffen kultreligiös verführten und
+unterjochten Menschen. Für einen suchenden und forschenden Menschen war es daher äusserst schwierig, an Wissen und an eine gute Bildung zu gelangen. Aus diesem Grunde wählten viele junge Männer
+den Weg über ein Studium der Theologie. Sie verliessen ihre elterlichen Familien und zogen in Klöster,
+Abteien oder an theologische Universitäten.
+Den Frauen und Mädchen war der Zugang an eine höhere Schule oder an die Akademien grundsätzlich
+verboten. Eines der bekanntesten Beispiele in der europäischen Geschichte war die junge Kölnerin
+
+
+-----
+
+Johanna Jutta Gilberta Anglicus. (Siehe die Broschüren: Päpstin Johanna Jutta Gilberta Anglicus, genannt
+_Papst JOHANNES VIII. oder BENEDIKT III. Regierungszeit 855 bis 857 während 2 Jahren 5 Monaten und_
+_4 Tagen, ‹Wissenswertes aus der Geschichte zur Päpstin Johanna›. Zum Lehrbrief Nr. 80, erschienen im_
+_Verlag ‹Wassermannzeit›, in der Ausgabe ‹Wissenswertes Nr. 7›, zusammengetragen vom 11. Juli 1990_
+_bis 23. Juli 1990, von Hans-Georg Lanzendorfer.)_
+
+In ihrem Wissensstreben war die jugendliche Johanna Jutta Gilberta Anglicus in Begleitung eines Jugendfreundes aus ihrer Heimat ausgezogen, um sich, in Männerkleidung gehüllt, eine gute Ausbildung
+und ein Studium der Theologie zu verschaffen. Den Abschluss ihres Werdeganges bildete im Jahre 855
+ihre ‹versehentliche› Wahl in das Amt des katholischen Pontifex. Diese aussergewöhnliche Leistung sollte
+sie jedoch letztendlich über zwei Jahre später mit dem Leben bezahlen.
+Also waren zahlreiche junge Menschen auf der Suche nach dem Sinn des Lebens, nach Wissen und Wahrheit, nach Einsicht und Erkenntnis, die sie in der Kultreligion und bei der Kirche zu finden glaubten. Ihre
+Motivation war von einer kultreligiös-gläubigen, wissenschaftlichen, künstlerischen oder von einer anderweitigen persönlichen Ursache geprägt. Viele von ihnen schafften den Sprung in die höchsten klerikalen
+Führungsebenen. Andere wiederum blieben in ihrer Unwissenheit in bezug auf die schöpferisch-natür lichen Gesetze und Gebote sowie in Unkenntnis der wahrlichen Geisteslehre oder aus dem Wunsch zur
+Bescheidenheit einfache Priester oder Mönche. Viele von ihnen suchten in ehrlicher Weise die Nähe des
+Volkes, und ebenso viele versanken im katholischen Fanatismus und im papstergebenen Gotteswahn.
+Die Verbreitung der wahrlichen Philosophie des Lebens und der Beginn der ‹Stille Revolution der Wahrheit› durch die FIGU lagen noch sehr weit in entfernter Zukunft. So trieb der kultreligiöse Glaubenswahn
+unaufhörlich seine zweifelhaften Blüten, und die Kirchenbonzen, Bischöfe und katholischen Ordinarien
+zeigten im Laufe der Jahrhunderte grosse negative Kreativität, wenn sie dadurch ihre Macht und ihren
+Einfluss vergrössern konnten. Ihr Erfindungsreichtum machte auch vor den eigenen Reihen nicht Halt, und
+so versuchten auch die Päpste, sich gegenseitig mit frömmlerischen Beschlüssen und doppelzüngigen
+Glaubensbeweisen zu überbieten.
+
+Mitte des 11. Jahrhunderts wurde – wie bereits erwähnt – den katholischen Pfarrherren, Priestern, Mönchen und Predigern vom eigenen Pontifex und in dessen unbeschreiblicher Arroganz und Überheblichkeit plötzlich eine sehr umstrittene, schöpfungswidrige und unnatürliche Lebensweise vorgeschrieben und
+aufgezwungen. So nämlich die Verpflichtung zur Ehelosigkeit, und in erweiterter Form zur absoluten sexu ellen Enthaltsamkeit (Keuschheit). Formal wird von der römisch-katholischen Theologie behauptet, dass es
+sich dabei nicht um eine von der Kirche auferlegte Verpflichtung handle, sondern vielmehr um einen freiwilligen und selbstverpflichtenden Entschluss der Priesterschaft.
+Mit absoluter Sicherheit waren unter den ‹Geistlichen› diesem zweifelhaften Beschluss zahlreiche intensive
+Diskussionen und Dispute vorausgegangen. Das Weib galt in klerikalen und theologischen Kreisen vorder gründig als unreif und lasterhaft sowie zu jeglicher Intelligenz unfähig. Es wurde als eine unausgereifte,
+unvollendete und unvollkommene männliche Gestalt betrachtet, die angeblich ohne die weitsichtige
+Führung des Mannes nicht existieren konnte. Verschiedenste Kirchenbonzen hatten jedoch sicherlich in Tat
+und Wahrheit das intellektuelle Potential, das Wissen und Können sowie die überragenden kognitiven
+Fähigkeiten der Frauen erkannt und deshalb daraus eine Gefahr für ihre eigenen Machtpositionen abgeleitet.
+Eine andere Bedrohung wurde klar und deutlich auch in bezug auf die finanziellen Aspekte befürchtet.
+Bei verheirateten Priestern und Pfarrherren war es üblich, bei ihrem Ableben das materielle Erbe ihren
+Frauen und Kindern zu hinterlassen. Dadurch entglitt der römisch-katholischen Kirche aus deren Vermögen eine Unsumme an materiellen Gütern, denn das mitunter umfangreiche Erbe des verstorbenen Kirchenmannes floss nicht mehr oder nur teilweise zurück in die Kassen der Kirche. Diese Umstände haben
+unzweifelhaft bei den Überlegungen zur Stärkung der Machtposition der römisch-katholischen Kirche eine
+
+
+-----
+
+tragende und massgebende Rolle gespielt. Mit der Einführung des Zölibats konnte daher gleich mehreren
+Bedrohungen entgegengetreten werden. Vordergründig als Notwendigkeit im Dienste des ‹Glaubens› und
+der ‹demütigen Ergebenheit in Gottes Gnaden› deklariert, wurde dieser Einfall gewiss im geheimen als
+genialer Schachzug gefeiert.
+Die zölibatäre Lebensweise ist daher bis heute eine grundsätzliche Voraussetzung für eine katholische
+Priesterweihe geblieben. (Der Zölibat wird heute im Gesetzbuch der röm.-kath. Kirche, dem Codex luris
+Canonici, in Canon 277 geregelt.) Dadurch wurde auch der Grundstein für zahlreiche Verfehlungen und
+Ausartungen gelegt, wie diese vom Plejaren Quetzal im 219. offiziellen Kontaktgespräch vom 16. Juni
+1987, Verse 136–138, Block Nr. 5, erwähnt wurden:
+
+_Quetzal_
+_136. Aber eines solltest du dir bewusst sein hinsichtlich der pädophilen sexuellen Übergriffe des Priesters,_
+_dass dies kein Einzelfall ist, denn unter den katholischen Priestern ist die Pädophilie sehr stark ver-_
+_breitet, was nicht zuletzt auch auf den Zölibat zurückzuführen ist._
+_137. In hauptsächlicher Form treten in dieser Beziehung homosexuelle Machenschaften in Erscheinung._
+_138. Und tatsächlich sind es Tausende katholische Priester auf der ganzen Welt, die sich in pädophiler_
+_Weise an Kindern und Jugendlichen vergehen._
+
+Besonders einfallsreiche Religionsbonzen und eifrige Würdenträger der damaligen Zeit, die ihren Glaubenswahn und ihre verblendete Gottesfürchtigkeit noch zu vertiefen suchten, wurden zur Untermauerung
+ihrer unnatürlichen Forderungen der Enthaltsamkeit und der widernatürlichen Einengung ihrer Untergebenen in den vermeintlich ‹Heiligen Schriften› fündig:
+
+Neues Testament (NT) Mat. 10;37 f.:
+_37. Wer Vater oder Mutter mehr liebt als mich, ist meiner nicht würdig; und wer Sohn oder Tochter mehr_
+_liebt als mich, ist meiner nicht wert;_
+_38. und wer nicht sein Kreuz nimmt und mir nachfolgt, ist meiner nicht wert._
+_39. Wer sein Leben findet, der wird es verlieren; und wer sein Leben verliert um meinetwillen, der wird_
+_es finden._
+
+Einmal mehr zeigt sich in diesen tragischen Versen die wahrliche Gesinnung des vermeintlichen ‹Christen gottes›. In der Erfüllung ihres Wahn-Glaubens werden die Menschen bis heute gezwungen, ihren vermeint lichen ‹Schöpfer-Gott› weit über das Wohl der eigenen Familie und über sich selbst zu stellen. Wer dieser
+christlichen und katholischen Aufforderung nicht Folge leistete, konnte sich der ‹Gnade Gottes› nicht mehr
+sicher sein. Es musste und muss angeblich mit den höllischen Qualen des Fegefeuers gerechnet werden.
+Es ist kaum mehr nachvollziehbar, wie viele Millionen Menschen im Verlauf der vergangenen Jahr hunderte
+als direkt Betroffene oder als Menschen in deren Umfeld alleine durch diese menschenverachtende und
+bewusstseinszerstörende Interpretation in grösste gedanklich-gefühlmässige und psychische Not und Verzweiflung gestürzt wurden. Es müssen sich unbeschreibliche Tragödien abgespielt haben. Zweifellos beschrieben die Erfinder und Fälscher dieser katholischen Schriften mit ihrer Aussage eine nicht zu überbietende Form der demütigen Hörigkeit und selbstauferlegten Knechtschaft. Es ist dies die kirchliche
+Forderung nach einer unbedingten Dienstbarkeit, Ergebenheit und Selbstverleugnung.
+Durch diesen blinden und schonungslosen Gehorsam sollte gezielt das persönliche Wohl, das eigene Leben und selbst die Liebe zur eigenen Familie oder zu einem geliebten Menschen in den Hintergrund verdrängt werden. Das ist mittlerweile eine bald 1000jährige kultreligiöse Zwangs-Forderung und eine die
+Psyche verletzende Vorgehensweise, die von der Geisteslehre und von vernünftigen Menschen aufs
+schärfste kritisiert und verurteilt wird, weil die Kirche dadurch jegliche Menschlichkeit missachtet und weil
+das Ganze jeglicher Menschenwürde entbehrt. Das Versagen und der an den Menschen entstandene
+
+
+-----
+
+Schaden als Folge dieser kirchlichen Doktrin und deren psychische Vergewaltigung zeigt sich gegenwärtig
+auch an einer sehr hohen Anzahl Pfarrherren und Klostermönchen, die sich, von der Öffentlichkeit verborgen, in psychiatrischen Kliniken oder in psychologischer Behandlung befinden. Dieses Dekret zum
+Zölibat ist der Inbegriff für Unterdrückung und Zwang sowie von psychischer und bewusstseinsmässiger
+Gewalt und von Terrorismus. Diese Forderung raubt dem Menschen jegliche Würde, das Selbstvertrauen,
+den Respekt und die Achtung vor sich selbst.
+Um diesem blinden Hörigkeitswahnsinn die Krone aufzusetzen, wurde von den Kirchenverantwortlichen
+als eine ihrer Begründungen für den Zölibat nachfolgender Vers aus dem ‹Neuen Testament› herangezogen und damit den zahlreichen Predigern und Priestern suggeriert, dass die Ehelosigkeit tatsächlich dem
+Willen des vermeintlichen ‹Gott-Vaters› entsprechen solle:
+
+Mat. 19,11 ff. (Zwingli Bibel 1962):
+_11. Er aber sprach zu ihnen: Nicht alle fassen dieses Wort, sondern (nur) die, denen es gegeben ist._
+_12. Denn es gibt Verschnittene, die vom Mutterleib so geboren sind, und es gibt Verschnittene, die von_
+_den Menschen verschnitten worden sind, und es gibt Verschnittene, die sich selbst verschnitten ha-_
+_ben um des Reiches der Himmel willen. Wer es fassen kann, fass es._
+
+Je nach Bibelausgabe sind die oben genannten Verse auch in der folgenden Version zu lesen worin sich
+aber auch deutlich die verschiedenen Interpretationen und kirchlichen Auslegungen zeigen:
+
+_Mat. 19,11 ff._
+_Er aber sprach zu ihnen: Dies Wort fasset nicht jedermann, sondern denen es gegeben ist. Denn_
+_etliche enthalten sich der Ehe, weil sie von Geburt zur Ehe unfähig sind; etliche enthalten sich, weil_
+_sie von Menschen zur Ehe untauglich gemacht sind; und etliche enthalten sich, weil sie um des_
+_Himmelreichs willen auf die Ehe verzichten._
+
+Mit diesen Versen besiegelte die römisch-katholische Kirche im 11. Jahrhundert den Beschluss, dass sich
+ihre elitären Pfarrherren weder sexuell zu betätigen hatten noch für den Ehebund mit einem Weibe geschaffen waren. Durch die Interpretation der Verse wurde erklärt, dass der christliche ‹Gott› ganz bestimmte und verständige Menschen für eine aussergewöhnliche Mission des Himmels erkoren hatte. So
+nämlich jene Priester und Pfarrherren, die sich willens zeigten, ihr eigenes Leben, die persönlichen Wünsche, Bedürfnisse und Neigungen zum Wohle ihres ‹Gottes› aufzugeben, um sich für diesen vollumfänglich aufzuopfern. Angeblich können aber die besagten neutestamentarischen Worte nicht von jedermann
+verstanden werden. Die Voraussetzung hierzu sei die Besonderheit der Auserwählten, die ihr Leben durch
+die Ehelosigkeit in den Dienst des Himmels stellten. Das ‹Neue Testament› besagt, es gebe Menschen, die
+von Geburt an nicht zu einer Ehe fähig seien, andere wiederum nur, weil es ihnen von den Mitmenschen
+eingeredet werde. Drittens werden alle jene Menschen genannt, die angeblich in der Erfüllung von ‹ Gottes
+Wort› ihre Lebensaufgabe und den Sinn des Lebens erkannt haben sollen und sich daher jeglicher sexueller Berührungen oder dem Ehebund mit einem Weib entziehen. Namentlich soll es sich hierbei um die
+männliche römisch-katholische Priesterschaft und ‹Geistlichkeit› handeln, die sich dadurch klar und deutlich von der Masse der Gläubigen distanzieren und auf den Sockel der Erhabenheit stellen dürfen.
+Als einer der ersten Fürsprecher für die asketische und zölibatäre Tendenz der aufkommenden römischkatholischen Kirche gilt der sogenannte Apostel Paulus. Gemäss den ihm zugeschriebenen Schriften und
+altertümlichen Auslegungen stehen sich der ‹Geist› und das Fleisch gegenüber.
+
+_Römer 8,5 ff. (Verlag Zwingli-Bibel 1962):_
+_5. Denn die fleischlich Gesinnten trachten nach dem, was des Fleisches ist, die geistlich Gesinnten aber_
+_nach dem, was des Geistes ist._
+
+
+-----
+
+_6. Denn das Trachten des Fleisches bedeutet Tod, das Trachten des Geistes aber Leben und Frieden._
+_7. Darum, weil das Trachten des Fleisches Feindschaft wider Gott ist; denn es unterwirft sich dem Gesetz_
+_Gottes nicht; es vermag das ja auch nicht._
+_8. Die aber im Fleische sind, können Gott nicht gefallen._
+_9. Ihr jedoch seid nicht im Fleische, sondern im Geiste, wenn anders Gottes Geist in euch wohnt. Wenn_
+_aber jemand Christi Geist nicht hat, der ist nicht sein._
+
+Im engen Denken der kultreligiös geblendeten Bibelschreiberlinge existieren keine Kompromisse. In ihrer
+Auslegung existierten die gewöhnlichen Menschen als fleischlich orientiert und die Priester und ‹Geistlichen› als ‹geistig Gesinnte›. Ohne jegliche Kenntnisse über die wahrlichen natürlich-schöpferischen, bewusstseinsmässigen, psychischen und gefühlsmässigen Unterschiede der menschlichen Evolution wurden
+der Status der ‹klerikalen Geistlichkeit› und der ‹demütige Glaube› als höchste Formen der menschlichen
+Lebensführung betrachtet. Nur wer den Status höchster ‹kultreligiöser Geistlichkeit› erreichte, wurde im
+Sinne des christlichen und römisch-katholischen Denkens als wissend und würdig genug für ‹Gottes
+Gnade› betrachtet. Der Genuss der weiblichen Sinnlichkeit, die Hingebung, der sexuelle Beischlaf mit
+einem Weib sowie die Freude an den zahlreichen Würzen des Lebens wurden als Widerspruch zum
+‹Geistigen› verschrien. In Tat und Wahrheit wurde jedoch von den Klerikern das ‹Geistige› mit ‹Geistlich keit› verwechselt. Das wahrlich ‹Geistige›, bzw. die Schöpfung Universalbewusstsein ist den Kultreligionen
+und der römisch-katholischen Kirche in ihrer Unwissenheit bis heute ein Rätsel geblieben.
+In ihrem Falschverständnis und ihrer Unwissenheit zur menschlichen Sexualität als einem Grundbedürfnis,
+konnte und darf auch heute von den zölibatären Kirchenführern jene Tatsache nicht offiziell in Betracht
+gezogen werden, dass sich schöpfungsbewusste Menschen einerseits der Meditation, Kontemplation und
+der Versenkung, andererseits aber auch einem erfüllten Sexualleben zu widmen vermögen.
+
+Block 1, Kontakt Nr. 23, vom 3. Juni 1975, Verse 73–76
+_Semjase_
+_73. Fanatische oder auch nur irregeleitete Sektierer, Wahnverfallene, Religionsanhänger und Religions-_
+_verfechter neigen leider sehr zur Tendenz, alles ihnen Unverständliche in phantasievolle und krank-_
+_hafte Wunschbilder zu kleiden._
+_74. So stellen sie sich in ihrem Wahn auch vor, dass die von der Schöpfung bestimmte und kreierte Fort-_
+_pflanzungsart in sexueller Form etwas Abartiges sei._
+_75. Ihr krankhafter Wahn lässt sie nicht die Wahrheit erkennen, dass die Schöpfung selbst diese Fort-_
+_pflanzungsart so bestimmt und als gut befunden hat._
+_76. Diese diesem Wahn verfallenen Lebensformen glauben daher, dass sexuelle Fortpflanzung ungeistig_
+_und unrein sei._
+
+Angeblich hat der ‹christliche Gott› keine Freude an der menschlichen Ehe und am Sexualleben. Anderer seits handelt es sich bei der apostolischen Auslegung zum Zölibat um einen gewaltigen Irrtum, der da besagt:
+
+_7. Darum, weil das Trachten des Fleisches Feindschaft wider Gott ist; denn es unterwirft sich dem Gesetz_
+_Gottes nicht; es vermag das ja auch nicht._
+_8. Die aber im Fleische sind, können Gott nicht gefallen._
+
+Warum aber, so fragt es sich einmal mehr, hat der angebliche ‹christliche Schöpfer-Gott› auch dem katholischen Menschen einen Körper aus Fleisch und Blut sowie dessen Fortpflanzungsorgane gegeben,
+wenn er die von ‹Gott› erhaltenen Fähigkeiten brachliegen lassen und sich nicht aktiv sexuell betätigen
+soll? Klar und deutlich wird gemäss NT von Paulus auch erwähnt, dass die Christenmenschen die alleinige
+
+
+-----
+
+und verständliche Elite seien. Wer also nicht ‹Christi Geist› in sich habe und vielmehr den fleischlichen
+Lüsten fröne, der werde von ‹Gott› nicht akzeptiert.
+Da fragt es sich, wie das mit ‹Gottes› angeblicher Aussage in der Genesis harmoniert, die da sagt:
+
+1. Mose, 1;28:
+_Und Gott segnete sie und sprach zu ihnen: Seid fruchtbar und mehret euch und füllet die Erde …_
+
+Wie bereits erwähnt, macht jedoch das wahrliche schöpferische Universalbewusstsein bei den Menschen
+keinerlei Unterschiede in wertender Form. Einmal mehr wird jedoch die Frau bzw. das Weib hinter vorgehaltener Hand von Paulus auch dahingehend beschuldigt, die Sünde in die Welt gebracht zu haben.
+Schliesslich wurde angeblich Adam von Eva verführt und nicht umgekehrt. Wehrlos ausgeliefert, wurde
+er von ihren weiblichen Reizen eingefangen und missbraucht, wodurch der schutzlose Adam ungerechterweise seine Unsterblichkeit verlor und somit auch das ganze männliche Geschlecht – wohl nach dem
+Prinzip: Mitgegangen, Mitgehangen. Durch die arglistige Verführung von Adam und dessen durch Eva
+erzeugte Schwäche für das weibliche Geschlecht, sind gemäss christlicher Vorstellung und Überlieferung
+die Sünde und der Tod auf die Menschen übergegangen.
+
+_Röm. 5;12–13:_
+_12. Deshalb, gleichwie durch einen Menschen die Sünde in die Welt gekommen ist und durch die Sünde_
+_der Tod und so der Tod auf alle Menschen übergegangen ist, weil sie alle gesündigt haben._
+_13. Denn bis das Gesetz kam, war schon Sünde in der Welt; Sünde wird aber nicht zugerechnet, wenn_
+_kein Gesetz da ist._
+
+
+Im 1. Korintherbrief wird der sogenannte ‹Apostel› Paulus noch ausführlicher in seinen Ausführungen, den
+Menschen seine persönlichen Ansichten und Meinung bezüglich einer Ehe und der Frauen zu verkünden.
+
+
+1. Kor. 7,1–5/8–9/27–29/34:
+_1. Was aber das betrifft, wovon ihr mir geschrieben habt, so ist es für den Menschen gut, kein Weib_
+_zu berühren._
+_2. Aber um der Verhütung von Unzuchtsünden willen soll jeder seine eigene Frau und jede ihren_
+_eigenen Mann haben._
+_3. Der Frau leiste der Mann die schuldige Pflicht, ebenso aber auch die Frau dem Manne._
+_4. Die Frau hat über ihren eigenen Leib nicht die Verfügung, sondern der Mann; ebenso aber hat auch_
+_der Mann über seinen eigenen Leib nicht die Verfügung, sondern die Frau._
+_5. Entzieht euch einander nicht, es sei denn etwa nach Übereinkunft eine Zeitlang, um Musse zum Gebet_
+_zu haben und nachher wieder zusammenzukommen, damit euch nicht der Satan wegen eurer Unent -_
+_haltsamkeit versuche._
+_…_
+_8. Ich sage aber den Unverheirateten und den Witwen: Es ist gut für sie, wenn sie bleiben wie ich._
+_9. Wenn sie sich jedoch nicht enthalten können, so mögen sie heiraten; denn es ist besser zu heiraten_
+_als sich in Begierde zu verzehren._
+_…_
+_27. Bist du an eine Frau gebunden, so suche keine Lösung; bist du frei von einer Frau, so suche keine_
+_Frau._
+_28. Wenn du aber heiratest, so sündigst du nicht, und wenn die Jungfrau heiratet, so sündigt sie nicht._
+_Jedoch Bedrängnis für das Fleisch werden die Betreffenden haben._
+_29. Das aber sage ich, ihr Brüder: Die Zeit ist kurz; damit fortan auch die, welche Frauen haben, so_
+_seien, als hätten sie keine …_
+
+
+-----
+
+_…_
+_34. Die Unverheiratete sorgt sich um die Dinge des Herrn, damit sie heilig sei an Leib und Geist; die Ver-_
+_heiratete dagegen sorgt sich um die Dinge der Welt, wie sie ihrem Manne gefallen möge._
+
+Mit einer derartig einseitigen und blinden Reflexion der Ehe und des sexuellen Beischlafs wird den Menschen von Paulus klar und deutlich ein unberechtigtes Schuldgefühl und den Eheleuten eine Selbstanklage
+vermittelt. Wer also die Sexualität aktiv lebt, der verschreibt sich dadurch automatisch auch einer weltlichen
+Sündhaftigkeit, die es im Sinne der göttlichen Gnade zu unterlassen gilt. Dennoch lässt Paulus ein kleines
+Hintertürchen offen für alle diejenigen, welche der menschlichen Schwäche verfallen und nicht ohne eine
+sexuelle Betätigung zu leben vermögen; nicht jedoch, ohne darauf hinzuweisen, dass die Ehelosigkeit einer
+Ehe mit einem Weib angeblich weit überlegen sei. Dennoch lässt sich in diesen Versen bezüglich des
+Zölibats gegenüber der päpstlichen Forderung eine Gegenargumentation erkennen.
+In der schöpfungsphilosophischen Schrift OM, Kanon 32, Verse 1511–1514 von ‹Billy› Eduard Albert
+Meier, sind gegenüber der Kultreligion adversive (entgegengesetzte) Weisheiten zu finden, die besagen:
+
+_1511. Je länger der Mensch ledig bleibt, je liederlicher wird er._
+_1512. Ledig sein heisst feige sein._
+_1513. Wer ledig bleibt verfehlt die Zeit._
+_1514. Wer sich bestimmt ledig zu sein, der wird zum Eremiten._
+
+Das Weltliche zu lieben oder sich nebst der Zeugung von Nachkommenschaft aus reiner Freude und Entspannung der geschlechtsbeischlafenden Sexualität zu widmen, wird von zahlreichen Christenmenschen
+als Missachtung der ‹göttlichen› Gesetze und Gebote abgelehnt. Der menschlich-sexuelle Trieb ist für viele
+kultreligiöse Menschen – vor allem für die Begründer und fanatischen Befürworter des Zölibats – ein beispielhaftes und teuflisches Medium zur Sünde. Diese verhängnisvolle christliche und katholische Argumen tation und blindgläubige Auslegung hat ihre Gültigkeit in der Ehe, wie aber auch in der vorehelichen Zeit,
+denn ein sinnliches und die Psyche erquickendes Sexualleben behindert angeblich den Menschen in seiner
+stetigen Verbindung mit ‹Gott›. Daher soll der ‹Geistliche› bzw. der katholische Pfarrer – gemäss der kirchlichen Auffassung – seine Zeit nicht für das Sinnliche und Genussvolle der Sexualität mit einem Weib (oder
+der Gleichgeschlechtlichkeit) verschwenden, wenn er sich stattdessen während dieser Zeit dem Studium
+der göttlichen Gesetze und Gebote oder dem Lesen der Evangelien und der Bibel widmen könnte. Nur
+der lasterhaft verlorene und gewöhnliche Mensch bzw. Mann widmet sich gemäss den Erfindern des
+Zölibats der ‹schmutzigen› Sinneslust, der Onanie resp. Masturbation, der homosexuellen Praxis oder dem
+geschlechtlichen Beischlaf mit einem sündigen Weib.
+Die gleichgeschlechtliche Liebe, bzw. die Homosexualität in bezug auf beide Geschlechter, wird den
+katholischen ‹Geistlichen› und ebenso allen Normalsterblichen in offizieller Form vom Papst verboten. Folglich habe sich die sexuelle Aktivität der sich nicht im kirchlichen Dienst befindlichen Männer ausschliesslich auf die Verbindung mit dem weiblichen Geschlecht auszurichten. Auf jenes menschliche Wesen also,
+das angeblich für die Sünden, die Laster und das Böse in der Welt verantwortlich ist. Diese Tatsache bringt
+jeden gläubigen römisch-katholischen ‹Geistlichen›, wie Bischöfe, Pfarrherren oder Mönche usw., mitunter
+in eine arge Bedrängnis und in Gewissenskonflikte. In ihrem Verlangen nach dem Beischlaf mit einem
+‹sündigen› Weib erheben sie dieses nämlich in ihrem Stellenwert höher als die Allmacht Gottes. Dadurch
+würden der sogenannte Sündenfall und die Verführung von Adam durch Eva im Elysium einerseits mit
+dem Pfarrherren zum Wiederholungsfall, und andererseits durch das menschliche Bedürfnis des ‹Geist lichen› noch gerechtfertigt. Der Rauswurf von Adam und Eva aus dem Paradies wird dadurch zu einem
+Fehlentscheid ‹Gottes› degradiert. Einen derartigen Fauxpas kann und will sich die römisch-katholische
+Kirche natürlich nicht leisten. Ganz abgesehen davon, dass sie derartige Überlegungen einer möglichen
+Unvollkommenheit ‹Gottes› in der Öffentlichkeit vermeidet.
+
+
+-----
+
+Was kann es also für einen eingefleischten, fundamentalen und katholischen Christenmenschen wie den
+Papst Verwerflicheres geben als die Missachtung und Degradierung der vermeintlichen Weisungen und
+Gebote, die sein angeblicher Chef und ‹allmächtiger Gott› gegeben haben soll. Dies gleicht einem Verrat innerhalb der eigenen Reihen, und es schürt letztendlich einen gefährlichen Zweifel an der Unfehlbar keit, die ‹Gott› zugesprochen wird, dies vor allem dann, wenn es sich dabei um die etwaigen sexuellen
+und unkontrollierten Bedürfnisse seiner katholischen Pfarrherren, Priester und Kleriker handelt, die sich
+zudem erdreisten, von ihrem Oberhirten das freie Recht auf eine gelebte Sinnlichkeit, ein freies Sexualleben
+oder um eine eheliche Verbindung mit einem ‹sündhaften› Weib einzufordern. In der römisch-katholischen
+Kirche ist der Zölibat auch gegenwärtig ein aktuelles Thema und gegenüber der Öffentlichkeit ein höchst
+verschwiegener Anlass für kircheninterne Auseinandersetzungen.
+In den Jahren 1990 sowie 1993 hat Papst Johannes Paul II. noch einmal in stärkster Form auf die Beibehaltung des Zölibats hingewiesen. In einem apostolischen Schreiben hat er das Gebot zur Ehelosigkeit der
+katholischen Priester einmal mehr bekräftigt. In einem Dokument, das die Ergebnisse der Bischofsynode
+über die Priesterausbildung im Herbst 1990 zusammenfasste, wurde der Zölibat einmal mehr als ‹unschätzbares Geschenk Gottes› bezeichnet. Die Kirche habe trotz der bekannten Schwierigkeiten an ihrer
+Entscheidung festgehalten, die Priesterweihe weiterhin nur Männern zu erteilen, und zwar vor allem jenen
+Männern, die zu einer bedingungslosen und dauerhaften Ehelosigkeit berufen seien. Einmal mehr wurde
+vom Papst auch betont, dass es nicht den geringsten Zweifel an der festen Entschlossenheit der Kirche
+geben könne, das Gesetz des Zölibats beizubehalten. Das päpstliche Dokument bekräftigt ausführlich die
+‹evangelischen› Prinzipien des Gehorsams, der Keuschheit und der Armut. Dieser Gehorsam erfordere
+von den Priestern eine beachtliche Askese. Diese heuchlerische Bekräftigung erfolgte im Angesicht des
+unbeschreiblichen und milliardenschweren Reichtums der römisch-katholischen Kirche sowie vor der horrenden Armut von Millionen Menschen und der von der Kirche geschürten Überbevölkerung auf diesem
+Planeten.
+Es wird darauf hingewiesen, dass der angehende Priester seine eigenen Vorlieben und Standpunkte nicht
+zu sehr vertreten und ihnen nicht anhängen dürfe, damit er frei von jeder Eifersucht, Missgunst und Rivalität
+seine Talente und Fähigkeiten zur Geltung bringen könne. Zwei Jahre später prangerte Papst Johannes
+Paul II. auf Jamaika erneut jede aussereheliche Sexualität als Verletzung der menschlichen Würde und als
+Wurzel gesellschaftlicher Fehlentwicklung an. Die Folgen der ausserehelichen Sexualität seien schmerzlich
+für viele Kinder, die ohne Liebe und Unterstützung von Eltern aufwachsen und kein gesundes Familienleben
+kennen würden, betonte der Papst. Wohlweislich hat er hierbei die Erwähnung von Tausenden von Kindern
+unterlassen, die in den Reihen seiner eigenen klerikalen Genossen gezeugt und mitsamt ihren Müttern im
+Stich gelassen oder vor der Weltöffentlichkeit versteckt gehalten wurden und werden. Ganz abgesehen
+von den Tausenden geschundenen und sexuell missbrauchten Kindern beiderlei Geschlechts, die während
+Jahrhunderten mit traumatischen Folgen unter der gnadenlosen und bestialisch menschenverachtenden
+‹christlichen Barmherzigkeit› der römisch-katholischen Kirche gelitten haben.
+Die ‹christliche Ehe› im Sinne des römisch-katholischen Glaubens bezeichnete der Papst als Fundament
+einer Gesellschaft. Zur gleichen Zeit veröffentlichte die deutsche Zeitschrift ‹Stern› (Nr. 44/92) einen inter essanten Artikel zum Thema ‹Homosexualität innerhalb der katholischen Priesterschaft›. Ein ehemaliger
+Rektor der deutschen ‹Franziskaner-Hochschule› in Münster und angesehener Professor für Pastoraltheologie verliess nach rund 32 Jahren den Orden. Er konnte gemäss Presseberichten die massive Unterdrückung und Diffamierung von homosexuellen Priestern nicht mehr ertragen. Laut seinen Angaben sind
+rund 50% der katholischen Pfarrherren homosexuell. Seit mehr als zehn Jahren arbeitet der designierte
+Priester darum mit der bundesweit ökumenischen Initiative ‹Homosexuelle und Kirche› (HuK) als Berater
+zusammen. In der HuK haben sich mehr als 500 betroffene Frauen und Männer zu Selbsthilfegruppen zusammengeschlossen.
+Eine weitere negative Auswirkung des katholischen Zölibats zeigt sich auch darin, dass der Mensch für
+seine bewusstseins-, gedanklich-gefühls- und psychemässige Entwicklung auf die körperliche Nähe und
+
+
+-----
+
+die zärtlichen Berührung seiner liebevollen Partner und Gefährtinnen angewiesen ist. Die ausgeglichene
+psychische Befindlichkeit und die allgemeine Gesundheit des Menschen basieren zu einem grossen Teil
+auf einem gesunden gleich- oder gegengeschlechtlichen Sexualleben sowie auf den sanften und zärtlichen Berührungen und der intimen Nähe zu einem geliebten Menschen.
+In der Geisteslehre sind im Lehrbrief Nr. 31, unter dem Kapitel ‹Die 7 Hauptfaktoren im menschlichen
+Leben›, auch ‹die 7 Mächte der Psychebildung› aufgeführt. Es sind dies 1. Liebe, 2. Musik – Gesang, 3.
+Dichtung, 4. Natur, 5. Zufriedenheit, 6. Licht, 7. Frieden.
+Eines der wesentlichen Merkmale der Psychebildung, die auch im ‹Wissenswertes Nr. 3›, in einem Artikel von Barbara Harnisch aufgelistet werden, ist die Liebe. Darin enthalten sind auch die körperliche Nähe
+und zärtliche Berührungen mit einer liebevollen Lebenspartnerin oder mit einem Lebenspartner.
+Selbst in der soziologischen Wissenschaft bzw. in der Psychiatrie und in der Psychologie ist diese Tat sache
+längst kein Geheimnis mehr, wie die Lehre der sogenannten ‹Entwicklungspsychologie› belegt. Diese lehrt,
+wie auch die Geisteslehre, dass bereits das Gehirn des Kleinkindes durch die sogenannte ‹basale Stimulation› und ‹basale Förderung› (Aktivierung der Wahrnehmungsbereiche und die Anregung primärer
+Körper- und Bewegungserfahrungen) gebildet und aufgebaut wird. Ehe es auf beiden Beinen zu stehen
+vermag, beginnt das Kleinkind alles zu erforschen. Mit Berührungen und taktilen Erfahrungen (Wahrnehmungen über Haut und Sinne) beginnt es, seine Umwelt zu ergründen und sich äussere Reize zuzuführen. Dadurch werden in seinem Gehirn wichtige Synapsen und Verbindungen gebildet und aufgebaut.
+Das Kleinkind sucht den Kontakt und die Berührung zu seiner Mutter und verschafft sich dadurch eine
+Sicherheit, was sich durch die gefühlsmässige Zuneigung der Mutter äusserst entwicklungsfördernd auf
+das Bewusstsein, die Psyche und das Gefühlsleben des Kindes auszuwirken beginnt. Berührungen eines
+Mitmenschen bzw. von einem Lebenspartner oder von einer Lebenspartnerin erzeugen im Menschen
+Glücksgefühle und eine harmonische Geborgenheit. Diese vermitteln ihm Frieden, Harmonie und Liebe in
+einer erfühlbaren und erlebbaren Art und Weise, die durch nichts zu ersetzen ist.
+Irrtümlich glaubt der kultreligiöse und wahngläubige Christenmensch, in einer persönlichen Verbindung
+mit seinem ‹lieben Gott› oder mit ‹Jesus Christus› zu stehen und dabei jegliche zwischenmenschliche Defizite zu kompensieren. Letztendlich werden jedoch dem kultreligiös manipulierten und glaubenswahnkranken Menschen in seiner vermeintlichen und eingebildeten Beziehungsform zu imaginären Wesenheiten laufend wichtige Belange der Zwischenmenschlichkeit vorenthalten. Dabei ist aber auch zu beachten,
+dass der christgläubige Mensch nach Strich und Faden betrogen und veräppelt wird, und zwar von Gott
+selbst, der vom Menschen verlangt, dass er nicht ehebrechen soll, während aber er, Gott selbst, widersinnigerweise selbst einen Ehebruch begeht, indem er durch den ‹Heiligen Geist› Maria schwängert und
+‹Jesus› zeugt. Und da ja gemäss der Christenlehre der ‹Heilige Geist und Gott› eins sind, ist er also des
+Ehebruchs schuldig. Also darf an dieser Stelle bezüglich der Zeugung von ‹Jesus Christus› ein interessanter Aspekt ebenfalls nicht ausser acht gelassen werden, so nämlich die Tatsache eines vom christlichen
+Gott persönlich befohlenen Ehebruchs gegenüber Joseph dem Zimmermann und künftigen Ehemann von
+Maria.
+Der christliche Gott Jehova verkündete den Menschen seine ‹heiligen› 10 Gebote.
+Im 2. Moses 20,14 verlangt er: Du sollst nicht ehebrechen. (Bereits hier sind sich die theologischen Kreise nicht einig, ob es sich um das 6. oder 7. Gebot handelt. Es finden sich die verschiedensten Interpre tationen.)
+Mit dem ‹göttlichen› Befehl an den ‹Heiligen Geist›, mit der bereits verlobten Frau Maria ein Kind namens
+‹Jesus Christus› zu zeugen, erteilt sich ‹Gott› persönlich und unbestritten das alleinige Recht, gegen seine
+eigenen und für den gläubigen Menschen unumstösslichen Gesetze und Gebote verstossen zu dürfen.
+_NT 1. Lukas 18: Als seine Mutter Maria mit Joseph verlobt war, fand es sich, ehe sie zusammengekommen_
+_waren, dass sie vom Heiligen Geiste schwanger war._
+Die theologische Auslegung, es habe sich zwischen Joseph und Maria noch nicht um eine Ehe, sondern
+lediglich um ein Verlöbnis gehandelt, gleicht einer schändlichen und ratlosen Ausflucht. Das Verlöbnis ist
+
+
+-----
+
+auch in der christlichen Auffassung ein Eheversprechen. Kein rechtschaffener Mann schwängert die Verlobte eines anderen Mannes. Offensichtlich beging also Gott mit der Aufforderung zum Ehebruch und zur
+beabsichtigten Schwängerung einer Verlobten eine unrechtschaffene Handlung. Dadurch stellt er zweifel los seine eigene Glaubwürdigkeit und seine Vertrauenswürdigkeit in Frage. Die glaubwürdige Vorbildfunktion der Erziehenden ist jedoch eine grundlegende pädagogische Notwendigkeit, um einem Kind die
+wahrliche Wahrheit zu lehren, denn Lügen haben kurze Beine.
+Im Falle desselben Vergehens, so nämlich dem Bruch einer Verlobung und Schwängerung durch einen
+anderen Mann, hat derselbe allgnädige Gott im 5. Buch Moses 22, 23–25 ff. für die Gläubigen drakonische Massnahmen vorgesehen:
+
+_23. Wenn ein Mädchen, eine Jungfrau, einem Manne verlobt ist, und es findet sie ein Mann in der Stadt_
+_und liegt bei ihr,_
+_24. so sollt ihr sie beide zum Tore selbiger Stadt hinausführen und sie steinigen, dass sie sterben: das_
+_Mädchen deshalb, weil sie nicht in der Stadt geschrien hat, und den Mann deshalb, weil er das Weib_
+_seines Nächsten geschwächt hat. Und du sollst das Böse aus deiner Mitte hinwegschaffen._
+_25. Wenn aber der Mann das verlobte Mädchen auf dem Felde findet, und der Mann ergreift sie und_
+_liegt bei ihr, so soll der Mann, der bei ihr gelegen hat, allein sterben._
+
+Fazit: Gott selbst hat sich also des Ehebruchs bzw. des Verlöbnisbruchs mit der Jungfrau Maria schuldig
+gemacht und als ‹das Böse› überführt. Gemäss seiner eigenen Gesetze und Gebote hat er sich dadurch
+auch selbst zum Tode durch Steinigung verurteilt.
+Wie rechtfertigt also Gott gegenüber seinen zum Gehorsam verpflichteten Gläubigen die von ihm persönlich beabsichtigten bewusstseinsmässigen, gedanklich-gefühlsmässigen und psychischen Verletzungen, die er dem gehörnten Joseph zufügte, um seine egoistischen Pläne eines angeblich eingeborenen
+Sohnes mit dessen Verlobter zu verwirklichen?
+Selbstredend stellt sich auch die Frage: Warum hat er keine wahrlich unverlobte und unbemannte Jungfrau für seine Planung auserwählt, sondern in voller Absicht – und entgegen der eigenen Weisungen an
+die Gläubigen – seine Lehren auf einem betrügerischen Ehebruch begründet? Joseph reagierte nämlich
+äusserst menschlich und dachte erstlich daran, Maria wegen dieser Schande zu verlassen. Einmal mehr
+offenbart sich an diesem göttlichen Verhalten beispielhaft ein höchst zweifelhafter und mitunter egoistischer
+und liederlich-menschlicher Charakter Gottes.
+
+In der Regel ist der Mensch kein gefühlloser Eisblock, der gewisse menschliche Bedürfnisse ohne Konsequenzen einfach auszuschalten oder dauerhaft zu verdrängen vermag. Eines Tages werden sich früher
+oder später diese tiefgreifenden und unterdrückten Bedürfnisse nach Nähe und Geborgenheit mit einem
+geliebten Menschen in irgendeiner Art und Weise wieder in den Vordergrund drängen. Und dies ist auch
+so bei jenen unbelehrbaren und fanatisch wahnkranken Kuttenträgern, die in ihrer Hörigkeit über Jahre
+hinweg den Würgegriff der Kirche erduldeten, sich dadurch am Körper und an der eigenen Psyche folter ten und ihr Gefühlsleben zertrümmert haben.
+In Tat und Wahrheit sind die zahlreichen in der Gegenwart publik gewordenen Fälle von Verfehlungen der
+‹Geistlichkeit› lediglich die Spitze des Eisberges. Wahrheitlich brodelt in jedem einzelnen römisch-katholischen Mönch, Pfarrherrn und Priester, bis hinauf zu den Bischöfen, Kardinälen und gar dem Papst selbst
+der tosende Vulkan des Widerstandes gegen den widernatürlichen Zölibat. Dies vor allem auch darum,
+weil in kirchlich-katholischen Kreisen die zahlreichen und offensichtlichen Widersprüche und die eigenen
+Verfehlungen der klerikalen Machthaber bis zu den untersten Ebenen und in die Ohren eines jeden kleinen
+Dorfpfarrers gelangen. Zweifellos werden diese ihre blindgläubige Loyalität mit der römisch-katholischen
+Kirche und ihrem vermeintlich ‹unfehlbaren› Pontifex doppelt und mehrfach überdenken müssen, um als
+Folge ihrer Erkenntnisse und Einsichten bei der eigenen Liederlichkeit beide Augen zuzudrücken.
+
+
+-----
+
+Für seine ganzheitliche Entwicklung benötigt der Mensch ein gewisses Mass an Nähe, Berührungen und
+die Wärme eines anderen Menschen – denn er ist nicht zum evolutiven Einzelgänger geboren. Das selbstgefällige Verbot des natürlich-schöpferischen Ehebündnisses durch die katholischen Päpste entspricht einer
+ungeheuerlichen und unbeschreiblich menschenverachtenden Einmischung, Anmassung und Überheblich keit.
+In einer selbstherrlichen schöpfungs- und menschenrechtsverachtenden Form verbietet der Papst den betroffenen Mönchen, Nonnen, Pfarrherren, Dekanen, Bischöfen und Kardinälen usw. ein archaisches Bedürfnis nach einer zwischenmenschlichen Bindung sowie die Möglichkeit zur Führung einer geordneten,
+liebevollen, sexuellen und zärtlichen Beziehungsform. Das aber hat unweigerlich Auswirkungen, denn
+wenn nicht dem Sexualtrieb zusammen mit einer Frau nachgekommen werden kann, dann wird dieser in
+homosexueller oder in pädophiler Weise erfüllt, und wenn es gar nicht anders geht, dann bestimmt in
+Form der Onanie/Masturbation.
+Zweifellos werden die katholischen Priester und Ordensfrauen usw. durch den zölibatären Wahn entmündigt und gewaltsam in die Enthaltsamkeit gezwungen, um jederzeit als blindgläubige Instrumente des
+päpstlichen Gottwahnes, dessen angeblichem und vermeintlichem ‹Gott-Vater› zur Verfügung zu stehen.
+Es ist jedoch eine unwiderlegbare Tatsache, dass die betroffenen Menschen an ihrer Situation allmählich
+und gedanklich-gefühlsmässig sowie psychisch zugrunde gehen. Dies aus dem Grunde, weil ihnen schlicht
+und einfach die notwendige Erfahrung und das Erleben einer wahrlich liebevollen An- und Ausgleichung
+der gedanklich-gefühls-psychemässigen Potenzen in Form einer sogenannten basalen Stimulation, bzw.
+die körperliche Nähe und die sexuelle Erfahrung zu einem anderen Menschen fehlen. Dem Gotteswahnglauben verfallen viele Menschen in der Weise, sich selbst dem ‹Herrn› als Opfer darzubringen, und
+zwar in der Hoffnung, eines Tages eine ‹göttliche› Belohnung für diesen ‹Kelch der Entsagung› zu erhalten.
+Einer derart unmenschlichen ‹Selbstopferung› und Selbstkasteiung verfallen jedoch in der Regel nur jene
+Menschen kritiklos, die sich über Jahre hinweg fanatisch in einem krankhaften Wahnglauben ereifern und
+sich dadurch im höchsten Masse selbst vernachlässigen und die eigenen Bedürfnisse missachten. Oftmals
+leben diese blindgläubigen Menschen in der krankhaften Einbildung, dass ihnen die Kraft für diese Selbstentwertung als hohe Tugend von ‹Gott› persönlich gegeben werde. In Wirklichkeit sind sie jedoch blind
+gegenüber der Tatsache der Wirklichkeit und deren Wahrheit, dass all ihre Geschicke und Handlungen
+auf der von ihnen bis anhin unentdeckten Macht ihrer eigenen Gedanken und Gefühle beruhen, die von
+ihnen fälschlich als Fremdbeeinflussung interpretiert wird. Dieser Umstand führt nicht selten zu einer Verbitterung, Bärbeissigkeit und tiefgründigen Unzufriedenheit des Menschen. Eine schändliche Kompensierung dieser Defizite finden, wie bereits von Quetzal erwähnt, Tausende Pfarrherren und übelste ‹Scheinheiligkeiten› im sexuellen Missbrauch von Minderjährigen, in sadomasochistischen Praktiken, in heimlich
+gepflegten homosexuellen Beziehungen, in versteckt geführten Verbindungen mit einer Lebenspartnerin
+oder in der geschlechtlichen Selbstbefriedigung. Diese Tatsachen können längst nicht mehr in Abrede
+gestellt werden.
+
+Gemäss der biblischen und christlich-neutestamentarischen Irr-Lehre fungiert ein angeblich ‹himmlischer
+Gott› als vermeintlicher Schöpfer aller Kreationen. Den männlichen Menschen (ADAM) schuf er angeblich
+nach seinem Ebenbilde. Gemäss sprachwissenschaftlicher Auslegung und der genauen Definition dieses
+Begriffes ‹Ebenbild›, trägt dieser in sich die Bedeutung ‹vollkommene Gleichheit mit jemand anderem›,
+genau betrachtet mit Gott.
+Wird also von dieser biblischen Aussage ausgegangen, dann hatte ‹Gott› einen männlichen Körperbau,
+inklusive aller maskulinen Attribute und auffälligen Manifestationen eines testosterongeprägten fleischlichmännlichen Menschen-Körpers. (Testosteron ist ein Sexualhormon [Androgen], das bei beiden Geschlech tern vorkommt, sich dabei aber in Konzentration und Wirkungsweise bei Mann und Frau unterscheidet.
+Testosteron hat verschiedene Wirkungen auf diverse Organe. Es bewirkt z.B. die Entstehung des männ lichen Phänotyps, ist für das Wachstum mitverantwortlich und sorgt für die Spermienproduktion.) Dem
+
+-----
+
+zufolge müsste also auch ‹Gott› in der Umkehr zu ADAM als ein ‹Ebenbild› des Mannes die ‹männlichen›
+Bedürfnisse kennen. Offensichtlich ist diesem vermeintlichen ‹christlichen Gott› das männliche Bedürfnis
+nach Nähe und Geborgenheit sowie der sexuelle Beischlaf mit einem Weib aus eigener Erfahrung bewusst und bekannt. Andernfalls wären dem Mann, bzw. ADAM als Ebenbild von Gott, wohl kaum dessen männliche und geschlechtsspezifischen Attribute beigegeben worden.
+Klar ersichtlich hat diese Männlichkeit aber ihre Berechtigung, und sie fällt von einem angehenden Pfarrherrn nicht einfach ab, wenn er sich für das Studium der Theologie, bzw. für einen Karriereweg durch die
+römisch-katholische Kirchen-Hierarchie, entschieden hat. Als Antwort auf eine entsprechende Frage
+würde der amtierende Papst wohl auf eine angebliche göttliche Prüfung im Umgang mit der Fleischeslust
+verweisen. Andererseits stellt sich dann wiederum die interessante Frage nach der Eigenprüfung Gottes,
+wenn sich zwischen dessen Lenden das männliche Ebenbild zu regen pflegt.
+
+Gottes Wille sei Gesetz. Diese Aussage gehört zum Standard-Repertoire eines jeden gläubigen Katholiken
+und eines jeden Christenmenschen. Das Bedürfnis nach körperlicher Nähe und dem geschlechtlich-sexuellen Beischlaf bzw. nach einer zwischenmenschlichen, platonischen und/oder sexuellen Beziehungsform
+gehört zum Menschen, denn dieses Prinzip ist Teil der körperlich-natürlichen Konstitution des Menschen.
+Dem Menschen angeblich ein Ebenbild, muss es folglich in des himmlischen ‹Gott-Vater› Interesse gelegen
+haben, seine eigenen männlichen Bedürfnisse an seine männlichen Kreationen weiterzuvererben. Demzufolge muss dieses ‹göttliche› Prinzip auch seine ‹würdige› Erfüllung finden. Schliesslich war es doch angeblich von ‹Gott› selbst erdacht und geschaffen worden. Abgesehen davon kennt der ‹liebe Gott› im
+Himmel bei der Umsetzung seiner Gesetze und Gebote keine Nachsicht. In seiner endlosen Gnade, Güte
+und grenzenlosen Menschenliebe hat er immer einen sehr umfangreichen Strafen-Katalog zur Hand, mit
+dem er seinen geliebten Menschen das Fürchten und blinden Gehorsam lehrt und mit drastischen Mass nahmen einbleut – sogar mit Totschlag, Krieg und Mord, wenn dabei nur einmal an den Auszug der
+Hebräer aus Ägypten und an die Ermordung der Erstgeborenen der Ägypter durch Gott gedacht wird.
+Eine genaue Betrachtung und ketzerische Überlegung zu den genannten Fakten bringt den römischkatholischen Christenmenschen in eine Zwickmühle. Bei der Missachtung seiner ‹göttlichen› Gesetze und
+Gebote droht der ‹biblische Gott› seinen Schäfchen mit Höllenqualen oder mit der Verbannung aus dem
+himmlischen Paradies. Sträubt sich also der katholische Mensch, bzw. der katholische Priester, gegen die
+ihm von ‹Gott› ‹eingebauten› männlichen Bedürfnisse in bezug auf sexuellen Beischlaf mit einem Weib,
+dann verstösst er zweifellos gegen den Willen ‹Gottes›, hatte dieser ‹Allgütige› doch schon im Kapitel 38
+des Buches Genesis Rache an seinem Schützling Onan genommen, wie es an der besagten Bibel-Stelle
+nachzulesen ist:
+
+_8. Da sprach Juda zu Onan: Gehe zu deines Bruders Weib und nimm sie zur Ehe, dass du deinem_
+_Bruder Samen erweckest._
+_9. Aber da Onan wusste, dass der Same nicht sein eigen sein sollte, wenn er einging zu seines Bruders_
+_Weib, liess er’s auf die Erde fallen und verderbte es, auf dass er seinem Bruder nicht Samen gäbe._
+_10. Da gefiel dem Herrn übel, was er tat, und er tötete ihn auch._
+
+
+Nutzt der katholische Christenmensch, bzw. der sogenannt katholische ‹Geistliche›, dieselbe ‹göttliche›
+Erfindung der Männlichkeit zu seinem Vergnügen oder zur Erbauung der Psyche und seines Bewusstseins,
+dann widerfährt ihm gemäss der römisch-katholischen Doktrin des Zölibats ein ähnliches Schicksal durch
+‹Gottes› Stellvertreter auf der Erde. Einmal mehr sind sich ‹Gott› und sein irdischer Pontifex in gewissen
+Glaubensfragen offensichtlich nicht ganz einig. Einerseits versucht natürlich die römisch-katholische Kirche
+jegliche Vorwürfe gegen den Zölibat mit dem Hinweis auf die notwendige Entsagung der fleischlichen Lust
+und der Wichtigkeit des Gebetes und des Glaubens zu entkräften. Andererseits wird es jedoch für die
+Kirchenoberen schwierig, die angebliche Gleichwertigkeit aller Menschen vor Gott zu rechtfertigen, wenn
+
+
+-----
+
+doch jene römisch-katholischen Priester und Pfarrherren besser bewertet werden, die sich dem Zwang des
+Zölibats demütig fügen (wenigstens zum Schein oder so lange, wie sie es aushalten, und bis sie ihrem
+Sexualtrieb nachgeben), als jene, welche sich auf eine intime Beziehungsform mit einem Weib eingelassen
+haben.
+Ganz offensichtlich spiegelt sich im Diktat des Zölibats eine eigenmächtige Entwertung der göttlichen Prinzipien durch den vermeintlich irdischen Stellvertreter ‹Gottes› selbst. An diesem Ungehorsam ihres vermeintlich ‹gottgesandten› Stellvertreters auf der Erde werden sich aber ‹Gott-Vater›, der ‹Heilige Geist›
+und der eingeborene Gottes-Sohn ‹Jesus Christus› nicht sonderlich erfreuen. Dies, zumal es sich hierbei
+um ein Verbot zur Nutzung der von ‹Gott› persönlich verliehenen Möglichkeiten zur Fortpflanzung seiner
+menschlichen Schöpfung handelt, die auf dem Prinzip der fleischlichen Sinnlichkeit und der Lustbefriedigung beruht. Schliesslich hat der vermeintliche ‹liebe Gott› nicht grundlos an die Erschaffung des kleinen
+aber intensiven orgastischen Nebeneffekts während der männlichen Ejakulation und des weiblichen Orgasmus bzw. an das Liebesfeuer ihrer Liebesknospe gedacht. Andernfalls drängt sich natürlich die Frage
+auf, ob der ‹liebe Gott› sinn- und zwecklos handelt und den Menschen lediglich als kleine und unbedeutende Bastelarbeit erschaffen hat, um sich mit diesem Versuchsobjekt etwas die ‹himmlische› Langeweile
+zu vertreiben. Die zweckmässige Umsetzung der von ‹Gott› erdachten, menschlichen Fortpflanzung durch
+den Akt des sexuellen Beischlafs zwischen Mann und Weib kann letztendlich nur durch die Anwendung
+derselben gewürdigt werden. Dies setzt ein Ehebündnis voraus. Zumindest dieser Tatsache ist sich der
+Papst bewusst, wenn er verkündet, die Folgen der ausserehelichen Sexualität seien schmerzlich für viele
+Kinder, die ohne Liebe und Unterstützung von Eltern aufwüchsen und kein gesundes Familienleben kennen.
+Mit der Einsicht in die Wichtigkeit einer ehelichen Verbindung zwischen Mann und Weib zur Nachkommenschaftszeugung wird im Grunde genommen von ihm selbst die eigene Doktrin des Zölibats der ‹Geistlichkeit› in Frage gestellt. Hatte ‹Gott-Vater› am Ende mit der Anweisung zur Einführung des Zölibats geplant, die römisch-katholische Priesterschaft bzw. die katholische Kirche und ihre Männerdominanz
+allmählich aussterben zu lassen oder ihr lediglich eine temporäre Existenz zu gewähren? Andererseits
+bleibt die Frage offen, ob dieser Entscheid zum Zwang des Zölibats eigenmächtig und ohne ‹Gottes Einwilligung› aus reiner Machtgier von dessen irdischem Statthalter in Rom geschaffen wurde. Aus Sicht der
+‹göttlichen Bestimmung› verfügen der menschliche Papst und sein Gefolge theoretisch nicht über das Recht,
+sich über die Gesetzmässigkeiten und Weisungen ihres ‹Chefs› hinwegzusetzen. Hierin ist sich auch die
+Gegnerschaft des Papstes einig. Angesichts der Widersprüchlichkeit und der horrenden Unlogik der christlichen Religionslehren und der römisch-katholischen Kirche ist es verständlich, dass die wahngläubigen
+Anhänger bis zum Ende aller Tage niemals zu einem gemeinsamen Konsens finden werden. Es ist jedoch
+eine unbeschreibliche Vermessenheit des Papstes, sich selbst die nötige Qualifizierung anzudichten, um
+zu Gunsten der christlichen Irr- und Falschlehre die schöpferisch-natürlichen Gesetzmässigkeiten der
+Schöpfung Universalbewusstsein ad absurdum zu führen. Keine einzige Kult-Religion und ebenso nicht
+deren Vertreter haben in irgendeiner Form das selbstgefällige Recht, die Menschen in ihrem selbstbestimmten und freiheitlichen Bedürfnis nach zwischenmenschlicher Nähe oder in den Belangen eines aktiven
+Sexuallebens zu bevormunden. Eine diesbezügliche Einmischung dient in der Regel lediglich der selbstsüchtigen und niederträchtigen Befriedigung der eigenen Gier nach Befehlsgewalt und Macht. Das Diktat
+zum Zölibat innerhalb der katholischen Kirche entspricht daher aus menschlicher Sicht betrachtet einem
+unbeschreiblich arroganten und menschenverachtenden psychischen Terrorismus gegenüber der römischkatholischen Priesterschaft und den Ordensgemeinschaften. In keiner Art und Weise lässt sich der Zölibat
+mit den schöpferisch-natürlichen Gesetzen begründen, sondern er basiert einzig und allein auf einer zutiefst verworrenen Auslegung und Interpretation einer ohnehin höchst zweifelhaften und von irrenden
+Menschen erdachten Lehre des Widerspruchs und der Widernatürlichkeit.
+Ebenso könnte die römisch-katholische Kirche der ‹Geistlichkeit› das Atmen, das Essen, die Verrichtung
+der Notdurft oder den Schlaf verbieten. Dies darum, weil die körperlich bedingte Erfüllung dieser vermeint lich ebenfalls als ‹Gottes› Ebenbild geschaffenen, menschlichen Bedürfnisse in der paradoxen römisch
+
+-----
+
+katholischen Auslegung ebenso als reine Zeitverschwendung betrachtet werden müssten. Wer – gleichsam dem menschlichen Bedürfnis nach einer zwischenmenschlichen Verbindung – das Essen, den Gang
+zum Lokus oder das Atmen unterlässt, hat während dieser Zeit im Dienste ‹Gottes› mehr Raum für Gebete
+oder andere Aktivitäten der ‹Gottfindung›. Warum sollen also die römisch-katholischen Priester oder sonstigen Kuttenträger und die Nonnen noch atmen oder essen wollen, wenn sie doch ohne diese lästigen
+menschlichen Bedürfnisse auf dem direkten Weg ‹Gott› begegnen und diesem uneingeschränkt dienlich
+sein können? Zweifellos kommen jedoch so manchem römisch-katholischen Pfarrherren hierbei gewisse
+Zweifel, denn er hört nicht auf zu atmen, geniesst das feine Essen und den edlen Wein, und selbst den
+Weg zum Abort wird er sich nicht ersparen. Einzig bei der Erfüllung seiner verbotenen Bedürfnisse nach
+der intimen Zwischenmenschlichkeit zu seinesgleichen, oder dem Beischlaf mit dem weiblichen Geschlecht,
+hat sich die holde ‹Geistlichkeit› zumindest vordergründig den päpstlichen Gehorsam auf die Stirn geschrieben. In Tat und Wahrheit haben die ‹Kleriker› einen dunklen Schleier des Verbergens über ein tausendfaches Weiberheer gelegt, das der gnädigen ‹Geistlichkeit› seit jeher mit intimen Affären als Freundinnen, Gefährtinnen, Mätressen, Geliebte oder als geheime Lebenspartnerinnen usw. beiseitesteht. Dies
+nebst dem, dass andere ‹Geistliche› homosexuellen Freuden frönen, pädophilen Ausartungen erliegen
+oder ihre sexuelle Not in der Selbstbefriedigung praktizieren.
+Zwischenmenschliche und intime Bindungsformen, Partnerschaften, Freundschaften oder der Ehebund mit
+einem Weib werden von der römisch-katholischen Kirche, bzw. vom Klerus, faktisch als Zeitverschwendung entwertet. Zumindest der römisch-katholische ‹Geistliche› in seiner vermeintlich höheren Wertigkeit
+soll seine wertvolle Lebenszeit nicht für den Ehebund mit einem sündhaften Weib verschwenden, sondern
+seine Zeit ausschliesslich für eine Beziehung mit ‹Gott› nutzen. Bezüglich des Ebenbildes ‹Mensch› werden
+jedoch vom Klerus massgebende Fakten ausser acht gelassen. ‹Gott› erschuf den Menschen angeblich
+nach seinem eigenen Vorbild mit allen seinen eigenen Attributen. Offensichtlich geniesst aber dieser ‹liebe
+Gott› gewisse Privilegien. So hat er keinerlei Repressalien oder Rügen zu befürchten, wenn ihn, dem ErdenManne gleich, der Hafer in der Hose sticht. Warum soll sich also der römisch-katholische ‹Geistliche›
+während der Ausübung des sexuellen Beischlafs mit seinem Weib nicht auch noch seinem ‹himmlischen
+Vater› widmen können? Schliesslich hat er doch dem vermeintlichen ‹Schöpfer-Vater› die Fähigkeit des
+Beischlafs zu verdanken. Ein freundliches Lächeln oder ein verzückter Blick zum Himmel sollte genügen,
+um ‹Gott den Allmächtigen› gnädig zu stimmen. Entgegen dem klerikalen Verbot dieser Handlung müsste
+sich doch zumindest Väterchen ‹Gott› zufriedengeben mit den männlichen Früchten seiner eigenen Schaffenskraft. Warum, so stellt sich dem glaubenskritischen Menschen die berechtigte Frage, erteilt sich allein
+der angebliche ‹Schöpfer-Gott› das Recht auf egoistische, eigennützige und selbstsüchtige Forderungen?
+Jegliche Zuwiderhandlungen gegen seine blutrünstigen und unlogischen Gesetze und Gebote werden von
+ihm willkürlich geahndet, die verwehrte Anbetung seiner selbst mit Strafgerichten, Ersäufen, Erschlagung
+oder mit Steinigen bedroht.
+
+Jeder in seinem Denken und im Bewusstsein gesunde Vater und jede ebensolche Mutter freuen sich auf
+den Tag, an dem ihre Kinder die Selbständigkeit erlangen, um in eigener Verantwortung das eigene Leben
+in die Hand zu nehmen. Der Nachwuchs kann und darf weder mit Zwang oder Erpressung noch mit Druck
+oder Unterdrückung ans Elternhaus gefesselt werden. Dieser Tatsache sollten sich verantwortungsvolle
+Eltern stets bewusst sein. Warum soll also der vermeintlich ‹liebe Gott› diesbezüglich eine Ausnahme
+bilden, um bei jeglicher Verfehlung seine angeblichen Erden-Kinder mit drakonischen Massnahmen zu
+misshandeln und zu massakrieren?
+Einmal mehr wird deutlich, dass es sich bei der christlichen Kultreligion und besonders bei der römischkatholischen Kirche um eine krasse Zwangsorganisation handelt, bei der entweder von ‹Gott› persönlich
+oder von dessen vermeintlicher Stellvertretung auf diesem Planeten eine Unzahl von widersprüchlichen
+Verboten und Verhaltenszwängen erlassen wurden. Jeglichen Antagonisten der Geisteslehre sei hier entgegengebracht, dass die Menschen von der Schöpfung Universalbewusstsein weder ihrer Freiheit beraubt,
+
+
+-----
+
+zur demütigen Hörigkeit gezwungen, noch zu irgendeiner Rechenschaft verpflichtet werden, denn die freiheitliche Evolution des Menschen ist eine schöpferisch-natürliche Gesetz- und Gebotsgebung – und der
+katholische Zölibat eine widernatürliche, menschliche Erfindung. Letztendlich wird der katholische ‹Geistliche› jeglicher persönlichen Freiheit beraubt, selbst über die Belange seines ‹Glaubens› und seiner Privat sphäre zu entscheiden. Diese äussere Gewalt zwingt ihn wiederum zur Hintergehung der eigenen
+Glaubens kongregation. Heuchelei und Scheinheiligkeit gegenüber der Öffentlichkeit sind die logische
+Folge, denn von seinem ‹Oberhirten› wird er an der kurzen Leine gehalten und mit Dogmen, Direktiven,
+Weisungen, Verboten und Verhaltensregeln in seine Schranken verwiesen.
+Der römisch-katholische ‹Geistliche› hat sich konsequent und ohne jegliche Ausnahme für eine bedingungslose Loyalität mit ‹Gott› und mit der katholischen Kirche zu entscheiden. Die Entmündigung bezüglich seiner persönlichen bzw. psychischen und gefühlsmässigen Bedürfnisse folgt hierbei einzig dem strate gischen Ziel der hierarchischen Unterdrückung des einzelnen zum Konformismus für die Machterhaltung
+der römisch-katholischen Kirche. Widerstand gegen die päpstliche Führung oder offene Zweifel und Kritik
+an derselben werden in der römisch-katholischen Kirche nicht geduldet und im Extremfall mit einer Exkommunikation geahndet. Andernfalls besteht für die Betroffenen nur die Möglichkeit, einen anderen Weg
+zu wählen und sich von der Kirche zu trennen. Vielen alteingesessenen römisch-katholischen ‹Geistlichen›
+ist diese letzte Konsequenz eine starke psychische Belastung und eine existentielle Bedrohung ihrer Lebens situation und des Lebensinhaltes.
+Die Missachtung des Zölibats wird offiziell als Kritik und Zweifel an der Allmacht ‹Gottes› gleichgesetzt.
+Das Unvermögen, diese strenge und päpstlich angeordnete Doktrin der Ehelosigkeit zu befolgen, steht für
+das Gros der gescheiterten und zweifelnden katholischen Pfarrherren an vorderster Stelle.
+
+Abschliessend betrachtet, spielt bei der Verfechtung des Zölibats innerhalb der römisch-katholischen
+Kirche auch die homosexuelle oder frauenfeindliche Ausrichtung von zahlreichen Mitgliedern des Klerus
+eine nicht unerhebliche Rolle – obwohl deren viele homosexuell, pädophil oder heimlich mit Frauen liiert
+sind. Zweifellos ist die katholische Kirche ein Quell der Homosexualität und der ‹heiligen› Anonymität.
+Hinter hohen klösterlichen Mauern und in den verborgenen Verliessen unter kirchlichen Hallen und Gewölben hat unter diesem Schutz so manche Abscheulichkeit, mancher Missbrauch und manche Ungerechtigkeit gegen das Weib und gegen Kinder ihren Ursprung gefunden.
+Aus der Sicht der neutestamentarischen Interpretationen und mit den Augen des hinterfragenden Betrachters durchleuchtet, zwängt sich angesichts der strikten und kompromisslosen Forderung nach dem
+Zölibat unweigerlich die Frage nach einer fanatisch homosexuellen Neigung des ‹lieben Gottes› auf. Bereits in der Bibel wie auch im sogenannten ‹Neuen Testament› ist in zahlreichen Versen eine klare Tendenz zur Unterdrückung und Entwertung des Weibes offensichtlich. (Siehe auch: Kampf- und Aktionsschrift
+_‹Gleichberechtigung für die Frau 3› mit dem Titel: Gleichberechtigung ... die Frau aber ist Abglanz des_
+_Mannes (1. Kor. 11, 7) ... denn, der Mann wurde nicht um der Frau willen erschaffen, sondern die Frau_
+_um des Mannes willen (1. Kor. 11, 9) oder die missachtete und unterdrückte Gleichwertigkeit und Gleich-_
+_berechtigung von Mann und Frau (Konzept: von Hans-Georg Lanzendorfer, Schweiz; Ausarbeitung: Billy,_
+_Schweiz.)_
+Die interessante Frage nach der ersteren Existenz des Huhns oder des Eies ist durch die Logik der schöpferischen Natur mit dem Ei beantwortet. Bei der Erschaffung der Eizelle als Basis der Lebensformen hat
+sich der angebliche ‹Schöpfer-Gott› – sehr grosszügig betrachtet – nur halbwegs an die evolutive Logik
+der Naturgesetze gehalten. Warum also hat er sich bei der Erschaffung des Menschen von dieser Logik
+entfernt und entgegen jeglicher Folgerichtigkeit zuerst den Mann als zeugende Kraft geschaffen. Dies, obschon von ‹Gott himself› noch kein ‹Leben gebärendes› Menschenwesen geschaffen war, denn die Idee
+zur Kreierung von Eva wurde erst später aus einer Not Adams geboren. Hatte also auch der himmlische
+‹Vater› eine besondere Vorliebe oder gar eine ‹Schwäche› für ‹männliche› Ebenbilder, auf der die katho lische Kirche letztendlich den Zölibat beruft?
+
+
+-----
+
+Gemäss der paradoxen Auslegung und Formulierung der römisch-katholischen Kirche zur natürlichen
+Logik müsste die angebliche Unveränderbarkeit der Bibel und des NT neuzeitlich in diesem Sinne etwas
+umgeschrieben werden: «Am Anfang erschuf ‹Gott› das Ei. Dennoch hat er beim Menschen erst das
+‹zeugende› Prinzip in Form von ADAM erschaffen. ‹Gott› stellte jedoch plötzlich fest, etwas Wesentliches
+vergessen zu haben.»
+Spätestens hier wird mit grosser Sicherheit ein gellender Aufschrei mit der wahngeblendeten Argumentation der fehlerfreien Planung der göttlichen Schöpfung durch die Reihen der Wahngläubigen erschallen.
+Es ist jedoch unbestritten, dass ‹der liebe Herrgott› bei der Entwicklung des Projekts ‹Erden-Mensch› den
+Pfad der natürlich-schöpferischen Logik verlassen hat, um offensichtlich aus niederen Gründen der schnöden Eitelkeit zu seinem Ebenbilde und in absoluter Widernatürlichkeit erstlich den männlichen Menschen
+zu erschaffen, und nicht das Weib als Wurzel des menschlichen Lebens.
+Genau betrachtet war das Weib in ‹Gottes› ursprünglicher Planung für seine Schöpfung wahrscheinlich
+nicht einmal vorgesehen. Vielmehr war es letztendlich eine göttliche Ersatzkomposition aus einer männlichen Rippe, weil sich Adam darüber beklagte, im Paradies alleine zu sein, wie es in der Bibel im 1. Moses,
+Kapitel 2, in den verschiedensten Versionen und Auslegungen nachgelesen und individuell gedeutet werden kann. Gezwungenermassen folgte also im Anschluss an die Erschaffung von Adam das Weib, wobei sich jetzt natürlich einmal mehr darüber disputieren lässt, ob ‹Gott› das gebärfähige Weib nur widerwillig und unter einem gewissen Erwartungsdruck erschaffen hat. Doch es war ihm wunderschön
+geraten. Zumindest liess er es aber noch seine Rache spüren, indem er verkündet:
+
+_1. Mose 3.16:_
+_Und zum Weibe sprach er: Ich will dir viel Schmerzen schaffen, wenn du schwanger wirst; du sollst_
+_mit Schmerzen Kinder gebären; und dein Verlangen soll nach deinem Manne sein, und er soll dein_
+_Herr sein._
+
+Dies wiederum könnte ein Hinweis darauf sein, dass der vermeintlich ‹liebe Gott› mit dem weiblichen Geschlecht seine Mühe hatte. Die sündhafte Rolle des Weibes wurde jedoch bereits frühzeitig von ihm klar
+und deutlich festgelegt, was ‹Gott› in seiner angeblichen Heilslehre der ‹Bibel› und im ‹Neuen Testament›
+in zahllosen Textstellen regelmässig verkünden lässt. Mit der Erschaffung von EVA ändert ‹Gott› aber in
+gewisser Weise auch gegenüber Adam seine Strategie. Eva soll ihm von nun an seine Kinder gebären.
+Dennoch hat sie jedoch stets im Schatten ihres Mannes zu verharren, denn schliesslich war sie aus seiner
+Rippe entsprungen und nicht umgekehrt.
+Mit dem Erscheinen des weiblichen Menschen bekam auch die Homosexualität plötzlich einen neuen Stellenwert, denn sie hatte an Gewichtigkeit verloren. Adams männliche Dominanz mit ‹Gott› alleine war gebrochen. Schliesslich stand jetzt der gegengeschlechtliche Beischlaf von Weib und Mann im Mittelpunkt
+zur Zeugung der menschlichen Nachkommenschaft.
+Das Thema Homosexualität/Lesbierismus in der christlichen Kultreligion würde Bücher füllen und ist nicht
+Thema dieser Arbeit. Dennoch stellt sich dem kritischen ‹Ketzer› die Frage, warum sich die offizielle römischkatholische Kirche so vehement gegen die Homosexualität verwehrt. Grundsätzlich sind sich das Christen tum und die römisch-katholische Kirche in dieser Frage ja in keiner Art und Weise einig. Dies auf Grund
+der sehr widersprüchlichen Bibelstellen und deren Interpretationsspielraum. Als kleines Beispiel folgende
+Bibelverse:
+
+_(2. Buch Samuel, Kap. 1, Vers 26) Es ist mir Leid um dich, mein Bruder Jonathan: ich habe grosse Freude_
+_und Wonne an dir gehabt; deine Liebe ist mir sonderlicher gewesen, denn Frauenliebe ist._
+
+_(Lev. 20.13) Und ein Mann, der einen Mann beschläft, wie man bei der Frau liegt, ein Greuel haben sie_
+_getan, beide. Des Todes sollen sie sterben, ihr Blut über sie._
+
+
+-----
+
+-----
+

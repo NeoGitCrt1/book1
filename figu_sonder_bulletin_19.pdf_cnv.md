@@ -1,0 +1,940 @@
+# FIGU- SONDER-BULLETIN
+
+#### Erscheinungsweise: Internet: http://www.figu.org 11. Jahrgang Sporadisch E-Mail:  info@figu.org Nr.19, Mai 2005
+
+## Leser sagen ihre Meinung
+### Leserbrief zum FIGU-Sonder-Bulletin Nr. 16, Februar 2005
+Zum Thema WELTGESCHEHEN äusserte sich Ptaah dahingehend, dass ‹Multinationale Friedens-Kampftruppen› auf Erra zur Befriedung von kriegsbehafteten Territorien eingesetzt wurden und als Vollzugsorgane zur Befriedung beigetragen haben.
+Diese Äusserung mag bei so manchem Leser Begehrlichkeiten und Wunschvorstellungen als Lösungskonzept
+ebenfalls dahingehend auslösen, dass dieses Instrument auch hier auf diesem Planeten einsetzbar sein
+könnte und eingesetzt werden sollte. Ein Trugschluss ist jedoch diese Vorstellung vor dem Hintergrund der
+aktuellen globalen Situation im allgemeinen und besonderen.
+Auf diesem Planeten wird sich gegenwärtig und auch in absehbarer Zukunft keine Administration finden,
+die Willens und in der Lage ist, eine derartige Aufgabe zu übernehmen.
+Warum ist das so? Das gegenwärtige Machtgefüge in dieser Welt basiert zuvorderst auf Unwissenheit,
+Dekadenz, Korruption, Vetternwirtschaft und politischem, wirtschaftlichem und monetärem Selbsterhalt.
+Kein Politiker (= selbsternannte Weltverbesserer trotz mangelnder Qualifikation, oder auch: Die Böcke, die
+sich zu Gärtnern machen) wird sich finden, der sich für diese Idee einsetzen und stark machen würde. Die
+USA mit ihrer militärischen Stärke wird nie und nimmer zulassen, dass eine auf Vernunft und Logik basierende militärische Einrichtung ihr die Macht und Kontrolle über diese Welt aus der Hand nimmt. Das hinter
+der amerikanischen Regierung stehende Grosskapital hat sich mittlerweile durch internationale Zusammenschlüsse und rücksichtslosestes Share-Holder-Value-Denken global eine Position verschaffen können, die
+es jeder Administration, die vom ‹Volke gewählt› wurde, de facto unmöglich macht, sich jenseits der vorgegebenen Interessenausrichtung dieses Genres zu bewegen. Politiker degenerieren somit mehr und mehr
+zu Speichelleckern, anstatt sich gegen die Schieflage, die das internationale System vorsätzlich installiert,
+aufzulehnen. Das jüngste Beispiel ist der Besuch des G. W. Bush jun. im Monat Februar 2005 in Europa.
+Mit blumigen Worten und dem betörenden Lächeln einer Hure gleich, bezirzte er die europäischen Spitzenpolitiker in der verschwiegenen Absicht, dass er diese Leute in naher Zukunft zu irgendeinem Zeitpunkt
+für seine menschenverachtenden und vernichtenden Pläne für den Kriegseintritt im Iran braucht. Das
+Schauspiel einer jeden Besucheretappe glich der anderen wie ein Ei dem anderen. Mit breitem speichelleckenden Strahlen auf ihren Gesichtern empfangen die Mächtigsten dieser Erde den aktuell grössten
+Kriegstreiber dieses Planeten. Schmeichelnde Worte und Bekenntnisse zur getrennten Vergangenheit und
+zur gemeinsamen Zukunft machen dieses Schauspiel zu einem unfassbaren Ereignis.
+
+Der Fisch stinkt am Kopf zuerst, so sagt man. Er stinkt aber auch bis zum Schwanz. Unsere selbsternannten
+Weltführer und Staatsmänner, die den Verstand nur dann einsetzen, wenn es um Diäten, Pensionsansprüche, Vergünstigungen aller Art und ums politische Überleben geht, ziehen eine ungeheure Armada
+Gleichgesinnter hinter sich her, die sich nicht ein winziges Jota um das Wohl des Votumgebers scheren.
+Diese regionalen und nationalen Verhaltensmuster dehnen sich über die Staatsgrenzen hinaus aus und
+
+
+-----
+
+suchen dort Verbündete, mit denen sie sich dann ins Bett legen, um in Saus und Braus leben zu können.
+Diese gleichgearteten Verhaltensmuster führen zu internationalen Bündnissen, die jeder Vernunft und
+Logik entbehren. Auch gibt es auf internationaler Ebene keine nationale Lücke mehr, die davon ausgenommen ist. Diese Verkettung von Selbsterhaltungsinteressen ist die Macht der USA, die als Zuchtmeister
+der Welt auftritt, indem sie mit ihrem Waffenarsenal und militärisch ausgefeilter Logistik den übrigen
+Nationen aufzeigt und unmissverständlich deutlich macht, dass sie den grössten Baseballschläger, der
+jeden unerwartet treffen könnte, in der Hand halten, und den die Welt je zu produzieren vermochte.
+
+Selbst China hat in den jüngst zurückgelegten Jahren bewiesen, dass die dort sich selbst installierten
+Politiker Marionetten des Grosskapitals sind. Heute täuschen sie der eigenen Bevölkerung und der Weltbevölkerung vor, dass nach wie vor im Prinzip kommunistische Regeln gelten. Die Wirklichkeit ist jedoch
+eine völlig andere. Die Bonzen Chinas haben sich längst dem Grosskapital unterworfen und lassen ihre
+gebetsmühlenartigen Sprüche und Sanktionen nur noch als Täuschungsmanöver abspielen und ablaufen,
+um ihre Existenzberechtigung zu dokumentieren. Der Mensch resp. das Individuum unterliegt jetzt erst recht
+nicht mehr dem Schutz des Staates. Aus fernen Randgebieten und unterentwickelten Regionen drängen
+Menschen in die Metropolen, um dort Arbeit bei den sich bereits jetzt schon durch Verträge mit der Staatsmacht etablierten Weltkonzernen und nationalen Unternehmen zu suchen. Schlafen und wohnen müssen
+sie in menschenunwürdigen kaninchenstallähnlichen Löchern und Behausungen. Der Lohn wird trotz 7Tage-Woche oftmals nie gezahlt. Wo sind also die kommunistischen Bonzen, die als Weltverbessererzum-Wohle-der-Menschheit auftraten, um diesem Missbrauch sofort Einhalt zu gebieten? Heute lassen sie
+Versklavung zu, weil sie infolge von Wirtschaftsverträgen, Duldungen und Unterlassungen sowie nicht
+öffentlichen Zuwendungen selbst materiell versklavt sind. Früher waren solche Verhältnisse einfach undenkbar. Dissidenten liess man ‹der Ordnung halber› bis zum Vollzug der Todesstrafe gnadenlos verfolgen.
+Heute bewegt sich das Grosskapital wie ein Elephant im Porzellanladen, ohne befürchten zu müssen, für
+diese Taten jemals zur Verantwortung gezogen zu werden.
+
+Unter den gegenwärtig globalen Umständen, wo die Gier nach Geld und Macht der einzige Beweggrund
+der globalen Lebensgestaltung und zum Lebensinhalt geworden ist, wird sich keine ‹MultinationaleFriedens-Kampftruppe› installieren lassen. Das Grosskapital dieses Planeten hat längst Vorsorge getroffen,
+indem es weltweit Abermillionen von ‹Soldaten› unterhält, Politiker genannt, und deren volksverdummende und bis zur Besessenheit kontrollierende Einrichtungen.
+
+Ptaah ‹beklagt› sich darüber, dass 30 Jahre Aufklärungsarbeit bislang zu keinen sichtbaren Erfolgen für
+die gesamte Menschheit geführt haben. Wie denn auch! Hier kämpft ein David gegen Goliath. Man kann
+den gewünschten Prozess der Wandlung im Hinblick auf die Versäumnisse der Vergangenheit, die hier
+und da auch fatale Naturkatastrophen nach sich ziehen werden, nur durch Änderung der Strategie verbessern. Der internationale Machtapparat hat sich wie eine riesige Krake über den Erdball ausgedehnt
+und hält diesen mit seinen Fangarmen fest im Griff. Mit Information und Aufklärung lässt sich dieses
+Machtgefüge niemals ändern, zumal der Mensch obendrein einer permanenten Gehirnwäsche und
+Gehirnmanipulation durch die Massenmedien und deren Spektakel ausgesetzt ist, die ihn daran hindern,
+sich progressiv zu entwickeln. Insofern wiederhole ich meine Ansicht, dass sich unsere plejarischen
+Freunde sehr wohl überlegen müssen, ob ihre gegenwärtige Strategie und der auferlegte Verhaltenskodex
+noch zeitgemäss sind. Die Uhren ticken hier etwas anders als auf Erra.
+Horst D. Sennholz, Deutschland
+
+## Geheimdienste und Billy Meier
+Im Sonderbulletin Nr. 17 wurde in zwei Aufsätzen das Problem der Geheimdiensttätigkeit in bezug auf
+die FIGU und Billy Meier beklagend abgehandelt. Was für ein Segen ist es doch bei entspannter und
+
+
+-----
+
+losgelöster Betrachtung feststellen zu müssen, dass sich die Geheimdienste mit Billy Meier befassen! Welch
+besseren Beweis könnte es für Billy Meiers Behauptungen bezüglich der Ufologie, seiner Kontakte zu den
+Ausserirdischen, seiner wahrheitlichen Aussagen über den Status quo dieser Welt, des globalen Machtgefüges, der bewussten Desinformation der Mächtigen dieser Welt, der Irreführung der Religionsmächtigen
+usw. usf. noch geben?
+
+Allein die Tatsache, dass sich Geheimdienste überhaupt mit Billy Meier befassen, ist ein Geschenk für ihn wie
+für die FIGU. Hierzu muss man wissen, dass sich Geheimdienste, ihrem offiziellen Auftrag entsprechend,
+nur mit Personen, Vereinigungen, Gruppen usw. befassen, die den gegenwärtigen Staatssystemen gefährlich sein könnten. Geheimdienste beschäftigen sich somit überwiegend mit sogenannten verfassungsdiskonformen und systemgefährdenden Elementen, die absichtlich einen politischen Wechsel mit unlauteren und staats- bzw. systemgefährdenden Mitteln herbeiführen wollen.
+
+Doch jetzt stellt sich hier die Frage: Wo sind die FIGU und Billy Meier politisch, wenn sie vom Grundsatz
+her gegenteilig völlig apolitisch sind? Die Geheimdienste wissen um die apolitische Haltung und Programmatik der FIGU. Geheimdienstler sind akademisch gut ausgebildete und hochqualifizierte Kriminologen, Fahnder und Rechtsexperten, wissenschaftlich sehr gut mit modernsten Technologien, eindeutigen
+Hintergrundinformationen und fundiertem Wissen ausgerüstet. Die FIGU einschliesslich Billy Meier haben
+mit Politik nichts, aber auch absolut gar nichts am Hut. Sie reihen sich nicht in das Sammelbecken der
+‹negativen Auslese der Bevölkerung› ein, sondern sind vielmehr diejenigen, die sich jenseits aller Politik
+bewegen. Staat und Politik haben nämlich nichts mit Wahrheit, sondern mit Lüge, Manipulation, Korruption, Desinformation, Ausbeutung, Selbstversorgung und Versklavung zu tun. Staat und Politik sind heutzutage zwangsläufig mit diesen Negativismen behaftet. Die FIGU ist jedoch das Gegenteil all dessen.
+
+Weshalb hat man die Geheimdienste dann trotzdem auf Billy Meier & Co. gehetzt? Die Mächtigen dieser
+Welt haben Angst, weil sie wissen, dass er die Wahrheit sagt. Er spricht die Wahrheit über seine ausserirdischen Freunde, die den Staatsmächtigen dieser Welt hinreichend bekannt sind, und er spricht die
+Wahrheit über die üblen Machenschaften des Grosskapitals, der Manager, Staats- und Religionsmächtigen. Letzteres fürchten sie gar nicht mal so sehr, denn sie haben die Massenmedien als Propagandamaschinerie hinter sich, die jedwede Wahrheitsverbreitung noch auf lange Sicht hinaus im Keim erstickt
+und der Verdummung dient. Angst haben sie vielmehr vor seinen ausserirdischen Freunden, die technisch
+und bewusstseinsmässig hochgerüstet und hochentwickelt sind. Hier basieren die Ängste der Mächtigen
+dieser Welt auf der Annahme, dass die ausserirdischen Genossen mit ihrem Know-how und Equipment
+zu irgendeinem Zeitpunkt, aus irgendwelchen Gründen einen globalen Systemwechsel herbeiführen könnten.
+Wollen wir sie in diesem Glauben grosszügig belassen!
+
+Die internationalen Geheimdienste wissen sehr wohl um den Wahrheitsgehalt von dem, was Billy Meier
+in seiner Eigenschaft als Prophet der Neuzeit verkündet und seiner wahrheitlichen Kontakte mit den
+Plejaren. Hätten sie seine mehr als 30jährigen intensiven Kontakte in der Vergangenheit als Lug und Trug
+entlarvt und wäre an all dem nichts dran, würden sie sich nicht einmal ansatzweise mit ihm resp. der FIGU
+befassen. Aber sie wissen sehr genau, dass er nichts als die Wahrheit sagt. Das wissen auch die Mächtigen dieser Welt und deshalb verstecken sie sich feige und heckenschützenartig hinter ihren Geheimdiensten, beauftragen Behörden und Vollzugsorgane, anstatt sich der FIGU zu stellen.
+
+Letztendlich mögen diese Institutionen ihre Auftraggeber selbst überprüfen. Man wird dann sehr schnell
+feststellen, dass man einem menschenunwürdigen System zuarbeitet und dort die eigentlichen Verantwortlichen agieren, die dem Souverän, dem Volk, nachhaltig und rücksichtslos Schaden zufügen.
+Horst D. Sennholz, Deutschland
+
+
+-----
+
+## Die Berliner Mauer ist weitergezogen
+Ist der Spuk vorbei? Dürfen wir auf der A3 wieder unseren täglichen Stau geniessen? Fahren die Züge
+wieder, und die S-Bahnen? Können die Fische im Rhein wieder frei umherschwimmen? Ist Bush und mit
+ihm die No-Go-Aera wieder verschwunden? – Traut man den Staumeldungen, hat das Leben uns wieder
+und der dunkle Schatten ist fort.
+
+Man fragt sich nun, wozu diese gespenstische Vorstellung eigentlich inszeniert worden ist. Wollte Bush
+den Schmutz seines völkerrechtswidrigen Krieges unter den Teppich der nordatlantischen Freundschaft
+kehren? Und wollten die alten Europäer Bush reinwaschen, ohne ihn und sich nass zu machen?
+
+Gespräche unter Freunden seien in herzlicher Atmosphäre geführt worden, so hört man. Wenn es Streit
+gegeben habe, so sei er erstens ein Streit unter Freunden gewesen und zweitens nun Vergangenheit. Ich
+frage mich, wie man in der abgesperrten Hochsicherheitszone, die der US-Präsident um sich aufbaut,
+Worte wie Freundschaft und Herzlichkeit überhaupt benutzen kann? Der US-Präsident ist doch ein fahrender Todesstreifen, eine wandelnde Berliner Mauer, durch die niemand hindurchkommt, der nicht von der
+Staats- und Parteiführung – Verzeihung! – vom Weissen Haus eingeladen wurde.
+In dieser mobilen SBZ reiste also der ‹Herr des Universums› in dieser Woche quer durch Europa, liess
+allerorten das Leben erstarren und leerte die Strassen, die Himmel und Flüsse von allem, was einem
+Paranoiker gefährlich werden kann. Da mussten selbst die Aale im Rhein verschwinden.
+
+Gerhard Schröder hat den Präsidenten pflichtschuldig und diplomatisch mit spitzen Fingern umarmt.
+Seinen Todfeind begrüsst man herzlicher, wenn er zu Besuch kommt. Aber bei Todfreunden gefriert das
+Lächeln zur Maske. Was auch kein Wunder ist, denn dieser Besuch war, trotz der tückischen Charmeoffensive der Schlange Condi, und gerade wegen des minutiösen Drehbuchs der Herzlichkeit eine Demonstration der Stärke. Seht her, wir können nicht nur jedes Ziel auf diesem Planeten mit unseren Waffen
+ausradieren, wir können auch an jedem Ort dieser Welt eine Berliner Mauer rund um unseren Präsidenten aufbauen, damit dieser ungestört von Terrorfischen die Staatszwerge umarmen kann, die er durch den
+Todesstreifen seines Secret Service in die Zone hineinlässt.
+In der Zone, das wissen wir aus Tarkowskijs Film ‹Der Stalker›, herrschen ganz eigenwillige Naturgesetze.
+Dies ist in der Bush-Zone ähnlich. Hier gelten die Moralgesetze des Bibelgürtels, dieses intellektuellen
+Todesstreifens mitten in den USA, und des militärisch-industriellen-Komplexes, der mächtigsten Lobbygruppe der Welt, die beim Anblick einer Friedenstaube eitrigen Hautausschlag bekommt.
+
+Amerika ist eine Monade, die zwar jeden Kontakt mit der Aussenwelt verloren hat, dafür aber direkt mit
+Gott kommuniziert. Und Al Qaida ist der Feind, den die USA immer ersehnt haben, eine Inkarnation ihrer
+eigenen Hollywood-Visionen. Das Böse ist überall und nirgends da draussen, ausserhalb der Zone, in der
+der Präsident monadisiert. Man kann es also auch überall und nirgends bekämpfen. Wo immer der militärisch-industrielle-Komplex gerade Krieg führen möchte, der internationale Terrorismus ist bestimmt
+schon da, um als Rechtfertigung zu dienen.
+
+Die Berliner Mauer hat sich bereits nach wenigen Stunden nach Bratislava verzogen zu den neuen Europäern. Der Todesstreifen der Macht rund um Mainz ist wieder verschwunden. Und zurück bleibt Ratlosigkeit.
+
+Was verbindet uns noch mit dieser Macht, ausser der Tatsache, dass es die Macht ist? Selbst der Hofnarr
+des Amerikanismus, Michael Moore, hat uns nicht viel zu sagen. Wenn ich heute einen Amerikaner treffe,
+so erinnert mich das an eine Begegnung mit DDR-Bürgern im Jahre 1988 in Polen. Sie benahmen sich
+
+
+-----
+
+zwar ein wenig anders als wir, aber es waren ganz normale, nette Leute. Und dennoch, der Todesstreifen
+an der deutsch-deutschen Grenze begleitete sie überall hin. Sie konnten ihm nicht entfliehen. Sie sprachen,
+bis auf den sächsischen Akzent, das gleiche Deutsch wie wir. Sie litten in der Schule unter dem gleichen
+Goethe und dem gleichen Schiller wie wir, und trotzdem sprachen wir aneinander vorbei. So ähnlich geht
+es uns heute mit den Amerikanern. Wir hören die gleiche Pop-Musik, sehen die gleichen Hollywood-Filme
+und hören und sehen doch aneinander vorbei. Die DDR ging unter, weil niemand mehr inmitten eines
+Todesstreifens leben wollte. Die Amerikaner jedoch haben Bush wiedergewählt.
+
+Man sagt, der Exzess sei der Vorbote des Untergangs. Nun gut, das abgrunddumme, bigotte, fundamentalistische und nationalistische Amerika tobt sich mit Bush an der Spitze nun wahrlich seit einigen
+Jahren hemmungslos aus. Hoffen wir, dass dies schon der Exzess ist und dass alles, wofür George W.
+Bush steht, bald untergeht und dort bleibt, wo es hingehört: In den Mülleimer der Geschichte direkt neben
+der Berliner Mauer.
+Thibby Unger, Deutschland
+
+## Nachrichten, die man nicht überall findet
+### Iran: Ein zu grosses Wagnis?
+**Ein Gedankenspiel**
+Im vergangenen Juli nannten sie es Operation Summer Pulse: Eine gleichzeitige Versammlung von Streitkräften der US-Marine, weltweit, die es so noch nie gegeben hatte. Der Marine zufolge war es die erste
+Übung des neuen Flottenreaktionsplans (FRP), der dazu dienen soll, es der Marine zu ermöglichen, schnell
+auf eine internationale Krise zu reagieren. Die Marine wollte ihre gesteigerte Bereitschaft demonstrieren,
+also ihre Fähigkeit, Kampfkraft schnell an jeden Krisenherd auf der Welt zu bringen. Nie zuvor in der Geschichte der US-Marine waren so viele Flugzeugträgerverbände an einer einzelnen Operation beteiligt.
+Selbst die im Golf und im Mittelmeer während der Operation Desert Storm im Jahr 1991 und beim letzten
+Angriff auf den Irak im Golf und im Mittelmeer zusammengezogene US-Flotte überstieg nie sechs Kampfverbände. Aber im Juli und August 2004 waren sieben von ihnen in Bewegung; jeder Kampfverband
+bestand aus einem Flugzeugträger der Nimitz-Klasse, sieben bis acht Begleitschiffen und 70 oder mehr
+Flugzeugen. Der grösste Teil der Aktivitäten erfolgte zahlreichen Berichten zufolge im Pazifik, wo die Flotte
+an gemeinsamen Übungen mit der Marine Taiwans teilnahm.
+Aber warum war so viel Marine zur gleichen Zeit unterwegs? Welche mögliche Krise in der Welt könnte
+mehr Kampfverbände erfordern, als während des Angriffs auf den Irak eingesetzt wurden? In den vergangenen Jahren, wenn die USA ‹Flagge zeigen› wollte oder ihre Marine Muskeln spielen liess, reichten
+ein oder zwei Trägerverbände aus. Warum diese weltweite Machtdemonstration?
+
+Die Schlagzeilen über die gemeinsamen Manöver im südchinesischen Meer lauteten ‹Säbelrasseln entnervt China› und ‹Grosse Machtdemonstration beunruhigt Chinesen›. Aber die Realität war eine andere
+und hat, wie wir sehen werden, schwerwiegende Auswirkungen auf die Anwesenheit des US-Militärs im
+Persischen Golf, wo die Operation Summer Pulse eine hochrangige Entscheidung des Pentagons widerspiegelte, dass eine noch nie dagewesene Machtdemonstration nötig war, um sich etwas, das als eine
+wachsende Bedrohung angesehen wird, entgegenzustellen – in dem speziellen Fall China, aufgrund der
+von Peking kürzlich von Russland gekauften Zerstörer der Sovremenny-Klasse.
+«Blödsinn!», denken Sie nun wahrscheinlich. «Das ist unmöglich. Wie können ein paar nichtige Zerstörer
+die US-Pazifikflotte gefährden?»
+
+Hier wird die Geschichte dichter: Summer Pulse lief auf ein stillschweigendes Anerkennen hinaus, offensichtlich für jeden, der darauf achtete, dass die Vereinigten Staaten auf einem wichtigen Bereich der
+
+
+-----
+
+Militärtechnologie überholt worden sind und dass dieser qualitative Vorteil nun von anderen, einschliesslich den Chinesen, genutzt wird, dass diese ansonsten völlig gewöhnlichen Zerstörer tatsächlich Abschussplattformen für russische 3M-82 Moskit Anti-Schiffs-Marschflugkörper (NATO-Bezeichnung SS-N-22 Sunburn) sind, eine Waffe, gegen die die US-Marine derzeit keine Verteidigung besitzt. Ich will hier nicht
+andeuten, dass der Status der USA als letzte Supermacht der Welt beendet wurde. Ich sage einfach, dass
+ein neues globales Kräftegleichgewicht auftaucht, in dem andere Staaten gelegentlich einen ‹asymmetrischen Vorteil› gegenüber den USA erlangen. Und das erklärt meiner Ansicht nach das enorme Ausmass
+von Summer Pulse. Die US-Show letzten Sommer von überwältigender Stärke sollte eine Botschaft senden.
+
+**Die Sunburn-Rakete**
+Ich war schockiert, als ich die Fakten über diese russischen Marschflugkörper erfuhr. Das Problem ist, dass
+viele von uns an zwei falschen Auffassungen leiden. Die erste folgt aus der Annahme, das Russland als
+Folge des Auseinanderbrechens des alten sowjetischen Systems militärisch schwach sei. Tatsächlich stimmt
+das, es gibt aber nicht die Vielschichtigkeiten wieder. Obwohl die russische Marine weiterhin in den Häfen
+verrostet und die russische Armee in Unordnung ist, ist die russische Technologie der unseren in bestimmten Bereichen tatsächlich überlegen. Und nirgends ist das wahrer als in dem wichtigen Bereich von AntiSchiffs-Marschflugkörpern, wo die Russen einen Vorsprung von mindestens 10 Jahren vor den USA haben.
+Die zweite falsche Auffassung hat mit unserer allgemeinen Selbstgefälligkeit hinsichtlich Raketen-alsWaffen zu tun – die vermutlich durch die erbärmlichen Leistungen von Saddam Husains Scuds-Raketen
+während des ersten Golfkriegs genährt wurde: Eine gefährliche Illusion, die ich nun versuchen werde zu
+korrigieren.
+
+Vor vielen Jahren gaben es die sowjetischen Planer auf, mit der US-Marine Schiff für Schiff, Kanone für
+Kanone und Dollar für Dollar gleichzuziehen. Die Sowjets konnten einfach nicht mit den hohen US-Ausgaben mithalten, die notwendig sind, um eine grosse Seeflotte aufzubauen und zu unterhalten. Sie ergriffen geschickterweise einen anderen, auf strategischer Verteidigung basierenden Ansatz. Sie suchten
+nach Schwächen und nach relativ preiswerten Wegen, diese Schwächen auszunutzen. Die Sowjets hatten
+Erfolg: Sie entwickelten mehrere überschallschnelle Anti-Schiffs-Raketen, von denen eine, die SS-N-22
+Sunburn, als die ‹tödlichste Rakete in der heutigen Welt› bezeichnet wurde.
+
+Nach dem Zusammenbruch der Sowjetunion brachen harte Zeiten für die alte Militärindustrie an. Aber
+in den späten 90ern bemerkte Moskau das bisher zu wenig genutzte Potential seiner Raketentechnologie
+zur Erlangung dringend benötigter Devisen. Eine Entscheidung zur Wiederbelebung ausgewählter Programme wurde getroffen, und sehr schnell wurde russische Raketentechnologie zu einem Exportschlager.
+Heute sind russische Raketen ein wachsender Industriezweig, der dringend benötigtes Geld für Russland
+bringt, mit vielen Milliarden aus Verkäufen nach Indien, China, Vietnam, Kuba und auch Iran. In der nahen
+Zukunft wird diese Verbreitung fortschrittlicher Technologie vermutlich zu ernsten Herausforderungen für
+die USA führen. Einige wurden gewarnt, dass die grössten Schiffe der US-Marine, die riesigen Flugzeugträger, jetzt zu schwimmenden Todesfallen geworden sind und aus diesem Grund eingemottet
+werden sollten.
+Die Sunburn-Rakete ist meines Wissens noch nie im Kampf eingesetzt worden, was vermutlich erklärt,
+warum ihre furchterregenden Fähigkeiten nicht in grösserem Rahmen erkannt werden. Andere Marschflugkörper sind natürlich bei mehreren Gelegenheiten eingesetzt worden, mit vernichtenden Ergebnissen.
+Während des Falkland-Krieges versenkten von argentinischen Kampfflugzeugen abgefeuerte, in Frankreich hergestellte Exocet-Raketen die HMS Sheffield und ein weiteres Schiff. Und 1987, während des IranIrak-Krieges, wurde die USS-Stark während einer Patrouille im Persischen Golf von zwei Exocet-Raketen
+fast in zwei Teile getrennt. Bei dem Ereignis hatte das US-Aegis-Radar das sich nähernde irakische Kampfflugzeug (eine in Frankreich hergestellte Mirage) geortet und seine Annäherung bis auf 80 Kilometer ver
+
+-----
+
+folgt. Das Radar ‹sah› auch wie das irakische Flugzeug abdrehte und zu seiner Basis zurückkehrte. Aber
+das Radar bemerkte nicht, dass der irakische Pilot seine Waffen abgefeuert hatte. Die knapp über dem
+Wasser fliegenden Exocets kamen unterhalb herangedonnert und wurden von menschlichen Augen nur
+Augenblicke bevor sie die Stark rammten, das Schiff schwer beschädigten und 37 US-Seeleute töteten,
+gesichtet.
+Der Überraschungsangriff auf die Stark von 1987 ist beispielhaft für die Gefahren, die von Anti-SchiffsMarschflugkörpern ausgehen. Und die Gefahren sind im Fall der Sunburn, deren Eigenschaften die unterschallschnelle Exocet bei weitem übertreffen, noch weitaus ernster. Nicht nur, dass die Sunburn wesentlich grösser und schneller ist, sie hat auch eine wesentlich grössere Reichweite und ein überlegenes
+Steuerungssystem. Diejenigen, die ihre Erprobungsflüge gesehen haben, sind unweigerlich erstaunt. Einem
+Bericht zufolge bat der iranische Verteidigungsminister Ali Shamkhani bei einem Besuch im Oktober 2001
+in Moskau um einen Versuchsabschuss der Sunburn, was die Russen nur zu gern arrangierten. Ali Shamkhani war so beeindruckt, dass er eine Bestellung für eine nicht genannte Zahl der Raketen aufgab.
+
+Die Sunburn kann einen nuklearen 200-Kilotonnen oder einen konventionellen 340-Kilogramm-Sprengkopf mit einer Reichweite von 160 Kilometern, mehr als dem Doppelten der Exocet, transportieren. Die
+Sunburn kombiniert eine Geschwindigkeit von Mach 2,1 (die doppelte Schallgeschwindigkeit) mit Flugbewegungen knapp über der Oberfläche, die ‹heftige Endmanöver› einschliessen, um der Verteidigung
+des Feindes zu entgehen. Die Rakete wurde insbesondere entwickelt, um das US-Aegis-Radarverteidigungssystem zu besiegen. Sollte eine Phalanx-Verteidigungseinheit der US-Marine es wie auch immer
+schaffen, eine sich nähernde Sunburn-Rakete zu registrieren, so hätte das System nur Sekunden, um eine
+Feuerlösung zu errechnen – nicht genug, um die sich nähernde Rakete zu zerstören. Die US-Phalanx-Verteidigung setzt eine sechsläufige Kanone ein, die 3000 Projektile aus angereichertem Uran pro Minute
+abfeuert, aber die Waffe muss präzise Koordinaten haben, um einen Eindringling ‹rechtzeitig› zu zerstören.
+
+Die kombinierte Überschallgeschwindigkeit und Grösse des Sprengkopfs der Sunburn führen bei ihrem
+Einschlag zu einer gewaltigen kinetischen Energie, mit verheerenden Folgen für das Schiff und seine Besatzung. Eine einzige dieser Raketen kann ein grosses Kriegsschiff versenken, kostet aber deutlich weniger
+als ein Kampfflugzeug. Obwohl die Marine die älteren Phalanx-Systeme stufenweise ausser Dienst stellt,
+ist ihr Nachfolger, das ‹Adaptive Raketensystem›, noch nie gegen die Waffe getestet worden, der es sich
+anscheinend eines Tages im Kampf gegenübersehen wird.
+
+**Folgen für die US-Streitkräfte im Golf**
+Die einzige glaubwürdige Verteidigungsmöglichkeit der US-Marine gegen eine widerstandsfähige Waffe
+wie die Sunburn-Rakete, ist die Annäherung des Feindes, seien es Zerstörer, U-Boote oder Kampfbomber,
+rechtzeitig festzustellen und sie zu besiegen, bevor sie in Reichweite kommen und ihre tödliche Fracht abfeuern. Zu diesem Zweck werden US-AWACs-Radarflugzeuge, die jedem Kampfverband zugeteilt sind,
+abwechselnd in der Luft gehalten. Die Flugzeuge ‹sehen› alles im Umkreis von 320 Kilometern um die
+Flotte und werden durch Informationen von Satelliten im Orbit unterstützt.
+Aber die Kommandeure der US-Marine, die im Persischen Golf operieren, stehen ernsten Herausforderungen gegenüber, die aufgrund der Küstenzone einzigartig sind. Ein Blick auf eine Karte zeigt warum:
+Der Golf ist nichts als ein grosser See mit einem schmalen Ausgang, und der grösste Teil seines nördlichen
+Ufers, also der Iran, besteht aus bergigem Gelände, das einen beherrschenden taktischen Vorteil über
+Schiffe bietet, die in den Gewässern des Golfs operieren. Das zerklüftete nördliche Ufer macht das Verbergen von Küstenverteidigungsanlagen, wie mobilen Raketenabschussrampen, leicht und ihre Entdeckung
+problematisch. Obwohl hierüber nur wenig berichtet wurde, haben die USA die Schlacht der Scuds im
+ersten Golfkrieg – als ‹die grosse Scud-Jagd› bezeichnet – tatsächlich verloren, und das aus ähnlichen
+
+
+-----
+
+Gründen. Saddam Husains mobile Scud-Abschussrampen erwiesen sich als so schwierig zu entdecken
+und zu zerstören – wieder und wieder narrten die Iraker die alliierte Aufklärung mit Ködern –, dass die
+USA während dem Desert Storm nicht eine einzige Vernichtung bestätigen konnten. Dies erwies sich im
+Nachhinein für das Pentagon als so grosse Peinlichkeit, dass die unangenehmen Statistiken in offiziellen
+Berichten begraben wurden. Aber die unverblümte Wahrheit ist, dass es den USA nicht gelang, die ScudAngriffe zu beenden. Die Abschüsse gingen bis zu den letzten paar Tagen des Konflikts weiter. Glücklicherweise machte die Ungenauigkeit der Scud sie zu einer fast nutzlosen Waffe. Einmal witzelte General
+Norman Schwarzkopf gegenüber der Presse herablassend, dass seine Soldaten eher in Georgia von
+einem Blitz getroffen würden als in Kuwait von einer Scud.
+Aber das war damals, und es wäre ein schwerwiegender Fehler, es zuzulassen, dass die Wirkungslosigkeit der Scud die Fakten hinsichtlich dieser anderen Rakete trübt. Die erstaunliche Genauigkeit der Sunburn wurde vor nicht allzu langer Zeit bei einem Test im Meer von den Chinesen demonstriert – und von
+US-Spionageflugzeugen beobachtet. Nicht nur, dass die Sunburn das Schiffsziel zerstörte, sie traf auch
+genau ins Schwarze, indem sie das Zentrum eines grossen, an der Brücke des Schiffes angebrachten ‹X›
+traf. Das einzige Wort, dem gerecht zu werden – phantastisch –, ist zu einem Klischee geworden, abgedroschen durch übertriebene Anwendung.
+
+Die US-Marine hat sich im Kampf noch nie etwas derart Furchterregendem wie der Sunburn-Rakete
+gegenübergesehen. Aber das wird sich mit Sicherheit ändern, wenn die USA und Israel sich entscheiden,
+einen sogenannten Präventivkrieg gegen den Iran zu führen, um seine atomare Infrastruktur zu zerstören.
+Gewitterwolken ziehen seit Monaten über dem Golf auf. In den vergangenen Jahren hat Israel seine Luftwaffe mit einer neuen Flotte von F-15-Langstreckenkampfbombern aufgerüstet und erst kürzlich eine
+Lieferung von 5000 bunkerbrechenden Bomben von den USA erhalten – Waffen, von denen viele Beobachter glauben, dass sie für den Einsatz gegen den Iran gedacht sind.
+
+Die Aufrüstung für den Krieg ist von Drohungen begleitet worden. Israelische Stellen haben wiederholt erklärt, dass sie den Mullahs nicht gestatten werden, Atomkraft zu entwickeln, nicht einmal Reaktoren zur
+Erzeugung von Strom für friedliche Zwecke. Ihre Drohungen sind besonders beunruhigend, da Israel eine
+lange Geschichte präventiver Kriege besitzt. (Siehe auch mein Buch aus dem Jahr 1989 ‹Dimona: The
+Third Temple?› und meinen Artikel aus dem Jahr 2003 ‹Wird der Iran der nächste sein?›)
+
+Es macht nichts, dass diese Entscheidung nicht von Israel zu treffen ist, sondern der internationalen Gemeinschaft obliegt, wie dies im Atomwaffensperrvertrag vereinbart worden ist. Hinsichtlich des Irans ist
+der letzte Bericht der Internationalen Atomenergiebehörde (IAEA) einen genauen Blick wert, da er Behauptungen der USA und Israels, dass der Iran Bomben baut, zurückweist. Während der Bericht Teheran
+wegen seiner Zweideutigkeit und seiner zögerlichen Herausgabe von Dokumenten scharf kritisiert, bestätigt er doch, dass die Inspektoren der IAEA ohne Ausnahme Zugang zu jeder Nuklearanlage im Land
+erhalten haben, die sie besuchen wollten. 2003 unterzeichnete der Iran das verschärfte Inspektionsprotokoll der IAEA, das bis dahin freiwillig war. Und die IAEA hat bis heute keine eindeutigen Beweise gefunden, dass Bomben existieren oder der Iran die Entscheidung getroffen hat, sie zu bauen.
+Bei einem Gespräch am 3. Oktober 2003 machte der Direktor der IAEA, General Mohamed El Baradei,
+die bisher eindeutigste Aussage: «Iran hat kein Atomwaffenprogramm», sagte er und wiederholte sich
+dann, um dies zu betonen: «Iran hat kein Atomwaffenprogramm, aber ich persönlich überstürze keine
+Schlussfolgerungen, solange nicht alle Fragen geklärt sind. Bisher sehe ich nichts, das als unmittelbare
+Gefahr bezeichnet werden könnte. Ich habe kein Atomwaffenprogramm im Iran gesehen. Was ich gesehen
+habe ist, dass der Iran versucht, Zugang zur Technologie für die nukleare Anreicherung zu erlangen, und
+bisher besteht keine Gefahr vom Iran. Daher sollten wir politische und diplomatische Mittel einsetzen,
+bevor wir daran denken, Alternativen zu ergreifen.»
+
+
+-----
+
+Niemand bestreitet, dass Iran einen gefährlichen Weg eingeschlagen hat, aber angesichts von 200 oder
+mehr israelischen Atomwaffen, die auf sie gerichtet sind, ist das Beharren der Iraner, sich ihre Möglichkeiten offenzuhalten, verständlich. Offensichtlich hängt das Atomwaffensperrsystem am seidenen Faden.
+Die Welt ist an einem schicksalhaften Scheideweg angelangt.
+
+**Eine fürchterliche Symmetrie?**
+Wenn sich in den kommenden Monaten eine Machtprobe um den Iran entwickeln sollte, würde der Mann,
+der den Ausgang in seinen Händen halten könnte, auf die Weltbühne gestossen werden. Dieser Mann,
+man mag ihn lieben oder hassen, ist der russische Präsident Vladimir Putin. Er ist in den vergangenen
+Monaten schwer gegeisselt worden, weil er sich selbst zu viel politische Macht gegeben hat. Aber dem
+früheren sowjetischen Präsidenten Mikhail Gorbachov zufolge, der vor kurzem im US-Fernsehen von
+David Brokaw interviewt wurde, hat Putin keine Tyrannei in Russland errichtet – bisher. Gorbachov denkt,
+dass das letzte Wort über Putin noch nicht gesprochen ist.
+Vielleicht sollten wir uns hiermit im Hinterkopf fragen, ob Vladimir Putin ein ernsthafter Student der
+Geschichte ist. Wenn er es ist, erkennt er sicherlich, dass die sich verschärfende Krise im Persischen Golf
+nicht nur zahllose Gefahren, sondern auch Gelegenheiten bietet. Man kann sicher sein, dass der russische
+Führer nicht die erniedrigende Niederlage vergessen hat, die Ronald Reagan dem alten sowjetischen
+Staat zugefügt hat. (Haben wir Amerika vergessen?) In der Mitte der 80er Jahre waren die Sowjets in
+Kabul und hatten die Mujaheddin so gut wie besiegt. Die Sowjet-Union schien in ihrer militärischen Besatzung Afghanistans sicher. Aber dann, im Jahr 1986, erreichten die ersten Stinger-Raketen die Hände
+des afghanischen Widerstands und ziemlich plötzlich begannen sowjetische Kampfhubschrauber und
+MiGs vom Himmel zu fallen wie brennende Steine. Das Blatt wendete sich schnell, und bis 1989 war es
+bis auf das Händeringen und das Zähneknirschen im Kreml vorüber. Besiegt schlichen die Sowjets zurück
+über die Grenze. Die ganze Welt bejubelte die amerikanischen Stinger, die den Erfolg gebracht hatten.
+
+Was denkt Vladimir Putin, genau in dieser Nacht, während er an seinem Cognac nippt? Denkt er vielleicht über die perversen Symmetrien der Geschichte nach? Wenn, dann könnte er sich auch fragen (und
+mit seinen engsten Beratern darüber sprechen), wie eine wahrhaft grosse Nation wie die Vereinigten
+Staaten so blind und dumm sein konnten, einem anderen Land, das heisst, Israel, zu gestatten, seine
+Aussenpolitik zu kontrollieren, insbesondere in einer Region, die so wichtig (und unberechenbar) ist wie
+der Mittlere Osten. Man kann fast die lebhafte Diskussion der Russen hören:
+
+«Die Amerikaner! Was ist los mit ihnen?»
+«Sie können sich einfach nicht helfen.»
+«Was für Idioten!»
+«Eine so dämliche Nation verdient es, dass man ihr eine Lehre erteilt …»
+«Ja, zu ihrem eigenen Wohl.»
+«Es muss eine schmerzhafte Lehre sein, eine, die sie nie vergessen werden …»
+«Sind wir uns also einig, Kameraden?»
+«Lasst uns unseren amerikanischen Freunden eine Lehre über die Grenzen der militärischen Macht erteilen!»
+
+Glaubt wirklich jemand, dass Vladimir Putin zögern wird, eine so seltene Gelegenheit zu ergreifen, den
+Lauf der Geschichte zu verändern und, als Dreingabe, seine süsse Rache zu nehmen? Sicherlich sind Putin
+die schrecklichen Ausmasse der Falle bewusst, in die die USA hineingetappt sind, dank den Israelis und
+ihrer NeoCon-Unterstützer in Washington, die sich so lautstark für die Invasion des Iraks eingesetzt
+hatten, gegen allen Rat von Freunden und Experten, und die selbst jetzt die Kriegstrommel gegen den Iran
+rühren. Wäre Putin im Unrecht, wenn er schlussfolgern würde, dass die USA die Region niemals verlassen
+
+
+-----
+
+werden, wenn sie nicht zuvor militärisch geschlagen werden? Sollten wir ihm vorwerfen, dass er entschieden hat, dass der Iran ‹ein zu grosses Wagnis› ist?
+Wenn sich die USA und Israel übernehmen und die Iraner das Netz mit russischen Schiffabwehrraketen
+zuziehen, wird es tatsächlich eine schreckliche Symmetrie sein …
+
+**Das Zuschnappen der Falle**
+Bei der Schlacht von Cannae im Jahr 216 v. Chr. lockte der grosse karthagische General Hannibal die viel
+grössere römische Armee in einen schicksalhaften Vormarsch und schloss sie dann mit einer kleineren
+Streitmacht ein und vernichtete sie. Von der römischen Armee von 70 000 Männern entkamen nicht mehr
+als ein paar tausend. Es wird erzählt, dass die Soldaten Hannibals nach vielen Stunden der Tötung der
+Römer so müde geworden waren, dass sie nicht mehr kämpfen mochten. In ihrer Müdigkeit schenkten sie
+den letzten gebrochenen und ramponierten Römern ihre Leben …
+
+Wir wollen beten, dass die US-Matrosen, die soviel Pech haben, im Persischen Golf im Einsatz zu sein
+wenn das Schiessen beginnt, dem Schicksal der römischen Armee in Cannae entkommen können. Die
+Chancen werden für sie allerdings sehr schlecht stehen, weil sie sich der gleichen Gefahr gegenübersehen
+werden, gleichbedeutend mit dem Einschluss. Die US-Schiffe im Golf werden bereits in die Reichweite der
+Sunburn-Raketen und der noch fortschrittlicheren SS-NX-26 Yakhont-Raketen gekommen sein, ebenfalls
+von Russland hergestellt (Geschwindigkeit: Mach 2,9; Reichweite: 290 Kilometer), von den Iranern entlang des Nordufers des Golfs aufgestellt. Jedes US-Schiff wird ungeschützt und verletzlich sein. Wenn die
+Iraner die Falle zuschnappen lassen, wird der ganze Golf zu einer Todeszone werden.
+
+Anti-Schiffs-Marschflugkörper sind nicht neu, wie schon gesagt. Ebenso haben sie bisher noch nie den
+Ausgang eines Konflikts bestimmt. Aber dies vermutlich nur, weil diese schrecklichen Waffen noch nie in
+ausreichender Zahl eingesetzt wurden. Zur Zeit des Falkland-Krieges besass die argentinische Luftwaffe
+nur fünf Exocets und schaffte es doch, zwei Schiffe zu versenken. Mit genügend Exocets hätten die
+Argentinier vielleicht die ganze britische Flotte versenkt und den Krieg gewonnen. Obwohl noch nie ein
+konzentrierter Angriff mit Marschflugkörpern stattgefunden hat, könnte sich die US-Marine beim nächsten
+Krieg im Golf genau dem gegenübersehen. Man versuche sich vorzustellen: Salve auf Salve von Raketen
+der Exocet-Klasse, von denen die Iraner bekanntermassen Hunderte besitzen, als auch von den unaufhaltbaren Sunburn- und Yakhont-Raketen. Die Fragen, die sich unsere kurzsichtigen Politiker heute stellen
+sollten, wenn es ihnen wichtig ist, was die Historiker später über sie schreiben werden, sind zwei: Wie
+viele Schiffsabwehrraketen hat Putin bereits an den Iran geliefert? Und: Wie viele weitere sind derzeit in
+Vorbereitung? Im Jahr 2001 berichtete Jane’s Defense Weekly, dass der Iran versuchte, Schiffabwehrraketen von Russland zu kaufen. Verhängnisvollerweise erwähnte der gleiche Bericht auch, dass die fortgeschrittenere Yakhont-Rakete «für Angriffe auf Trägergruppen optimiert» worden war. Offenbar ist ihr
+Lenksystem «in der Lage, einen Flugzeugträger von seinen Begleitschiffen zu unterscheiden.» Die Anzahl
+wurde nicht enthüllt …
+
+Die US-Marine wird unter Beschuss geraten, selbst wenn die USA sich nicht an den ersten sogenannten
+chirurgischen Schlägen gegen die Atomanlagen des Irans beteiligen, wenn Israel sie also allein durchführt. Israels nagelneue Flotte von 25 F–15s (vom amerikanischen Steuerzahler bezahlt) hat ausreichende
+Reichweite, um den Iran zu erreichen; aber Israel kann keinen Angriff durchführen, ohne den Luftraum
+des US-besetzten Iraks zu durchqueren. Es wird ziemlich egal sein, ob Washington grünes Licht gibt oder
+von einem widerspenstigen Israel in den Konflikt hineingezogen wird. In jedem Fall wird das Ergebnis das
+gleiche sein. Die Iraner werden die US-Einwilligung als Mittäterschaft werten und in jedem Fall verstehen,
+dass der wirkliche Kampf gegen die Amerikaner geht. Die Iraner werden vollkommen im Recht sein, in
+Selbstverteidigung einen Gegenangriff durchzuführen. Der grösste Teil der Welt wird es so sehen und sie
+
+
+-----
+
+unterstützen, nicht Amerika. Die USA und Israel werden als die Aggressoren angesehen werden, selbst
+wenn die glücklosen US-Matrosen zu Kanonenfutter werden. In den flachen und engen Gewässern des
+Golfs werden Ausweichmanöver bestenfalls schwierig und Flucht unmöglich sein. Selbst wenn US-Flugzeuge den Himmel über dem Schlachtfeld kontrollieren, wird es unten den im Netz gefangenen Seeleuten
+schwerfallen zu überleben. Der Golf wird rot von amerikanischem Blut werden …
+Ab hier wird es nur noch schlimmer. Mit ihren von Russland gelieferten Marschflugkörpern werden die
+Iraner den einzigen Ausgang des Golfs, die strategische Strasse von Hormuz, abriegeln und die gefangenen und sterbenden Amerikaner von Hilfe und Rettung abschneiden. Die im Indischen Ozean
+konzentrierte US-Flotte wird hilflos dabeistehen, unfähig, den Golf zu betreten, um den Überlebenden zu
+helfen oder logistische Unterstützung für die US-Streitkräfte im Irak zu bringen. Kombiniert man dies mit
+einer neuen grossangelegten Bodenoffensive der irakischen Rebellen, dann könnte sich, ziemlich plötzlich, der Spiess gegen die Amerikaner in Baghdad umdrehen. Während die Vorräte und die Munition
+beginnen knapp zu werden, wird der Status der US-Streitkräfte in der Region heikel werden. Die Besatzer
+werden zu Belagerten werden …
+
+Mit genügend Schiffabwehrraketen können die Iraner den Tankerverkehr durch Hormuz für Wochen,
+sogar Monate, anhalten. Mit dem beschnittenen Fluss des Öls aus dem Golf wird der Preis für ein Barrel
+Öl auf dem Weltmarkt in die Höhe schnellen. Innerhalb von Tagen wird die Weltwirtschaft zum Erliegen
+kommen. Die Stimmung bei einer anhaltenden Notfallsitzung des UN-Sicherheitsrats wird aufbrausen und
+wahrscheinlich in Brüllen und gegenseitige Beschuldigungen explodieren, wenn französische, deutsche,
+chinesische und selbst britische Botschafter die USA wütend beschuldigen, Israel zu gestatten, die Weltordnung zu bedrohen. Aber wie immer wird die Versammlung aufgrund des US-Vetos unfähig sein zu
+handeln.
+Amerika wird allein dastehen, vollständig isoliert. Aber trotz der zunehmend feindseligen internationalen
+Stimmung werden Teile der US-Medien die Krise auf eine Israel zugeneigte Art verdrehen. Mitglieder des
+Kongresses werden sich im Repräsentantenhaus und im Senat erheben und zu Israels Verteidigung aufrufen, während sie das Opfer des Angriffs, Iran, beschuldigen. Fundamentalistische christliche Talkshowmoderatoren werden die historische Erfüllung einer biblischen Prophezeiung in unserer Zeit erklären und
+die Juden Israels aufrufen, Jesus in ihren Herzen zu akzeptieren und währenddessen den Präsidenten
+drängen, das böse Imperium des Islam mit Atomwaffen anzugreifen. Überall in Amerika werden Rufe
+nach neuen Verstärkungen zu hören sein, selbst nach einer Wehrpflicht. Patrioten werden den Sieg um
+jeden Preis fordern. Experten werden nach einer Eskalation des Konflikts schreien.
+
+Ein Krieg, der vorgeblich als ein Versuch begann, die Verbreitung von Atomwaffen zu verhindern, wird
+auf ihren Einsatz zuschlittern …
+
+**Schlussfolgerung**
+Freunde, wir müssen zusammenarbeiten, um eine solche Katastrophe zu verhindern. Wir müssen den
+nächsten Krieg im Mittleren Osten stoppen, bevor er beginnt. Die US-Regierung muss den Vereinten
+Nationen die Hauptverantwortung für die Lösung der sich verschärfenden Krise im Irak übertragen und
+direkt im Anschluss daran die US-Streitkräfte aus dem Land abziehen. Wir müssen ausserdem die Israelis
+dazu bringen, den Atomwaffensperrvertrag zu unterzeichnen und alle ihre nuklearen Anlagen für Inspektoren der IAEA zu öffnen. Nur dann können ernsthafte Gespräche mit dem Iran und anderen Staaten
+beginnen, um eine atomwaffenfreie Zone im Mittleren Osten zu schaffen – die entscheidend für den langfristigen Frieden und die Sicherheit der Region ist.
+_Quelle: www.incredimail.com/index.asp?id=407&lang=07_
+zugesandt von Thibby Unger, Deutschland
+
+
+-----
+
+Artikel aus ‹Südkurier›, Stuttgart, Montag, 15. November 2004
+eingesandt von Armin Brauchle, Deutschland
+
+
+-----
+
+## Telefongespräch
+Am 17. Februar 2005 war Billy gegen 9.30 h bereits auf den Beinen – zu einer für ihn ungewöhnlich
+frühen Zeit. Wahrscheinlich konnte er einfach nicht schlafen, nahm ich an und verliess die Küche, um mich
+an meine Arbeit zu machen.
+Irgendwann zwischen 10.30 und 11.00 h rief mich Billy an und sagte, dass Quetzal bei ihm sei und dass
+sie im Kerngruppe-Handbuch die Angaben zum Schlüsselwort für die Einzelmeditation suchten, sie aber
+nicht fänden. Da ich das Handbuch elektronisch auf meinem Mac habe, erklärte ich Billy, dass ich sofort
+nachschauen und ihn gleich zurückrufen werde. Gesagt – getan. Ich machte das Handbuch-File auf, rief
+Billy zurück und gab ihm die Seite und die Stelle durch, wo das Gesuchte zu finden war. Er fragte nochmals nach und wiederholte die Seitenzahl und den Abschnitt, den ich ihm nannte und den ich gleichzeitig
+überflog. «Das kann es nicht sein», sagte ich und hörte gleichzeitig im Hintergrund eine Männerstimme,
+die sagte: «Das isch es nöd.» Es musste sich ganz offenbar um Quetzal handeln, der im Handbuch die
+angegebene Stelle nachschaute und sie ebenfalls überflogen hatte. Im ersten Augenblick war ich drauf
+und dran Billy zu fragen, ob Quetzal im Hintergrund rede, hielt dann aber vorsichtshalber den Schnabel
+und suchte weiter. Ich nannte ihm dann nochmals zwei oder drei Stellen, um die es sich aber jeweils nicht
+handeln konnte, und suchte auch noch unter einem anderen Stichwort – und jedes Mal hörte ich im Hintergrund Quetzal sagen, der die Stellen offenbar sofort heraussuchte und nachlas, dass es nicht das Gesuchte sei. Seine Stimme ist im Tonfall sehr ähnlich wie die von Billy, aber sie tönt eindeutig jünger und ist
+etwas tiefer, sehr männlich und äusserst angenehm – ruhig und ausgeglichen, mit einem sehr friedlichen
+und liebenswürdigen Unterton. Ich verkniff mir während des ganzen Gespräches, das vielleicht 3 bis 4
+Minuten dauerte, meine Frage nach Quetzal und hielt auch meine Gedanken im Zaum, um mich ja nicht
+durch einen lauten, inneren ‹Juchzer› zu verraten und mich nicht um die unverhoffte Freude zu bringen.
+Darüber vergass ich blöderweise sogar, Quetzal einen lieben Gruss ausrichten zu lassen, was mich im
+Nachhinein natürlich ungemein ärgerte, weil es das Sahnehäubchen auf meinem Erlebnis gewesen wäre.
+Noch während des Telephonates konnte ich ein leises Schmunzeln nicht unterdrücken, weil die beiden
+Herren ganz offenbar nicht daran dachten, dass Quetzal für mich zu hören sein könnte, denn sonst hätte
+er ja sicher geschwiegen und sich mit Billy vielleicht durch Handzeichen oder Nicken verständigt.
+Kurz nach 12.00 h waren die beiden mit ihrer Arbeit fertig, weil mich Billy danach nochmals anrief und
+mir sagte, dass er die Änderungen Quetzals fürs Handbuch bereit hätte und sich in der Küche befände.
+Ich ging hinüber, um meine Arbeit abzuholen und fragte ihn ganz nebenbei, ob Quetzals Stimme etwa
+den gleichen Tonfall habe wie die seine. Er sah mich an und fragte, ob ich Quetzal tatsächlich gehört
+habe. «Sicher», sagte ich grinsend und wiederholte ihm Quetzals Worte. Er bestätigte es und sagte, dass
+er nicht vermutet habe, dass Quetzal tatsächlich zu hören sein könnte – er habe doch auf dem Sofa gesessen und nicht laut gesprochen. Lachend sagte ich ihm, dass ich eben immer ganz genau hinhöre und
+die Ohren spitze, wenn er mir etwas zu sagen habe!
+Es ist kaum auszudrücken, welch kindliche Freude ich hatte, Quetzal so unvermutet zu ‹erwischen›; und
+noch mehr freute mich, dass ich es mir tatsächlich während des Gespräches verkneifen konnte, mir durch
+eine voreilige Bemerkung oder durch zu lautes Denken die unerwartete Freude zu vermiesen, von der ich
+sicher wieder sehr lange zehren muss, ehe sie durch ein neues Erlebnis aufgefrischt wird – wenn mir das
+Glück überhaupt wieder einmal hold sein sollte.
+Bernadette Brand, Schweiz
+
+## Gespräch zwischen Ptaah und Billy
+#### Auszug aus dem 376. Kontakt, Donnerstag, 3. Februar 2005, 22.57 h
+**Billy** Viele Menschen sind auch klüger geworden, was auch dazu beitragen kann, dass sich die
+alten Prophezeiungen nicht erfüllen müssen, die von einem Dritten Weltkrieg ausgehen, wobei der nächste
+
+
+-----
+
+für 2006 prophezeit ist, der im Mittleren Osten seinen Ursprung finden soll. Die Gefahr dazu besteht noch
+immer, folglich es doch noch möglich sein könnte, dass nächstes Jahr ein solcher Krieg ausbricht, wenn
+dem US-Präsidenten George W. Bush nicht die Flügel gestutzt werden oder ein anderer kranker Irrer auf
+den roten Knopf drückt. Bricht dieser Krieg tatsächlich aus, dann ist einzig und allein George W. Bush der
+eigentliche Urheber desselben, und zwar unter der Beihilfeschaft aller, die für diesen Kriegshetzer pro und
+hurra brüllen. Trotz allem ist aber noch Hoffnung, dass sich die Zukunft gut ergibt, was auch für 2010 bis
+2015 zu erhoffen ist, wie auch für die anderen Zeiten der ferneren Zukunft, wofür ebenso düstere Prophezeiungen bestehen. Wenn die ganze Menschheit endlich klüger wird und die wahnsinnigen Kriegshetzer
+stoppt sowie die Überbevölkerung durch einen rigorosen Geburtenstopp auf ein vernünftiges Mass
+reduziert sowie die Mächtigen der Welt selbst kontrolliert und ihnen das Ruder aus der Hand nimmt, damit
+sie nur noch nach dem Willen des Volkes handeln können, dann besteht eine wirkliche und gute Chance,
+dass endlich Frieden, Freiheit, Liebe und Harmonie auf der Erde und unter der gesamten irdischen
+Menschheit werden.
+
+**Ptaah** Natürlich. – Bezüglich des drohenden Krieges, der mit einem Ausgangspunkt im Mittleren
+Osten prophezeit ist, stehen gegenwärtig die Chancen nicht sehr gut, denn der amerikanische KriegshetzerPräsident Bush liebäugelt nicht nur mit einer kriegerischen Intervention im Iran, sondern auch in Syrien.
+Nichtsdestoweniger jedoch ist zu hoffen, dass doch noch die richtigen Schritte getan werden, um die
+Macht des US-Präsidenten zu brechen, wenn sich die massgebenden Bevölkerungsschichten und Staaten
+gegen ihn und sein Kriegshandeln erheben.
+
+## Leserbriefe
+
+Mein lieber Freund, Herr Billy Meier
+Wie geht es Dir? Je mehr und je länger ich mich in dieser Welt umsehe, desto mehr sehe und erkenne ich,
+dass es keinen Weg hinaus gibt. Dieser Planet resp. die Menschen dieses Planeten werden meinen Freund
+Billy weiterhin verurteilen, wie sie das bis anhin tun. Je mehr ich mich umsehe und auch in mir selbst
+forsche, desto mehr erkenne und sehe ich, dass sich Deine Prophezeiungen wie bisher weiterhin erfüllen
+werden.
+Was können ich und unsere Menschheit tun, um unserem Planeten Hilfe zu leisten – was kann ich nur
+machen? Teile es mir doch bitte mit. Oftmals fühle ich mich so sehr verzweifelt, weil es einfach nichts gibt,
+das ich gegen die böse Politik und die irrationale Religion unternehmen kann, die sehr bald die Menschheit zerstören werden. Es gibt nichts, was ich dann machen kann – in mir weint alles und meine Gefühle
+sind voller Leid für unseren Planeten und die Menschheit.
+Wie der ISHWISH sagt, bist Du eine Stimme, die in der Wüste weint, mein lieber Freund. Nur wenige
+wollen Deine Stimme hören, denn niemand kümmert sich darum, was Du zu sagen hast. Nur wenige
+Personen hören auf Deine Stimme, lieber Prophet – auf deine Stimme, auf die man sich verlassen kann,
+die man jedoch verlassen hat. Ich habe nur diese wenigen Wörter – nur diese Worte zu sagen, Dir, lieber
+Billy. Ich muss mich nicht mit Fragen an Dich wenden, weil ich Dich sehr, sehr gut verstehe.
+Sei gesund und Salome
+José Barreto Silva, Brasilien
+
+Lieber Billy,
+habe wieder einmal in der Mottenkiste gewühlt, da stiess ich auf ein Gedicht, aus dem eigentlich ein Lied
+entstehen sollte. Nur, zu jener Zeit kannte ich Billy noch nicht, darum die Bezeichnung ‹Seele› (Psyche).
+
+
+-----
+
+#### Anklage
+Der Sturm durchwühlt die Meere,
+sagst du, ich habe Angst.
+Es dringt dir durch die Seele
+– wozu du nun bangst.
+
+Der Krieg, er ist viel schlimmer,
+er bringt Tod, Elend und Verderben
+– er bringt die Not.
+
+Die Völker werden ausgerottet
+zu einem schlimmen Leid.
+Die Bomben fallen, splittern
+– die Seele schreit.
+
+Warum das alles nur?
+Wir wollen doch noch leben.
+Wir, die Toten, klagen an,
+was habt ihr uns denn angetan!
+
+Der Sturm durchwühlt die Meere,
+sagst du, ich habe Angst.
+Es dringt dir durch die Seele,
+wozu du nun bangst.
+
+Mein Gedicht ‹Anklage› will eigentlich zeigen, dass sich im Sinne des menschlichen Denkens heute noch
+nicht viel geändert hat. Im Gegenteil: – Stehen wir nicht gerade heute wieder vor einem neuen grossen
+Schlamassel? Der Mensch fragt sich ja zwar immer mehr: «Muss das sein?» Aber er wird langsam
+apathisch, oder er wird sogar interesselos – immer die gleichen schrecklichen Bilder vor Augen zu haben.
+So sagt er dann, dass ihn alles nichts angeht, obwohl wir heute fähig sind, unsere liebe Erde in Stücke zu
+reissen.
+Habe mir schon Gedanken gemacht, was eigentlich der Grund war, dass ich damals dieses Gedicht zu
+Papier brachte. Aber auch im dunkelsten Grunde kann wieder einmal ein Licht aufgehen, besonders wenn
+die Natur erwacht.
+Wenn der Mensch doch nur einmal bedenken würde, was er mit seiner Unvernunft anrichten kann, dann
+wäre schon vielen geholfen. Wir Erdenbürger sollten mehr die Augen offenhalten, die Schöpfung achten,
+die Natur beobachten, uns auch um geistige Werte kümmern, die Liebe leben und die Wahrheit und das
+Wissen erarbeiten.
+Es ist doch einfach zu schade, unseren Planeten so zugrunde zu richten, statt ihn lebenswert zu erhalten.
+Aber das interessiert vermutlich ja viele nicht. Für sie sind die Macht und der Mammon wichtiger, und sie
+sagen sich: «Ich lebe ja schliesslich nur einmal» – alles andere ist ihnen egal. Ist das nicht lebensverachtend in höchstem Sinne?
+Erwin Mürner, Schweiz
+
+Werter Herr Billy Meier!
+Vornweg: Zwar bin ich schon ein alter Mann, doch trotzdem habe ich mich bemüht, mit dem Internet zurechtzukommen. Dabei bin ich auch auf Ihre Website gestossen und darauf, dass Sie jener Herr Meier
+sind, der in Indien im ‹Statesman› bekannt wurde und der in den Fünfzigerjahren des letzten Jahrhun
+
+-----
+
+derts einmal in der Umgebung von Zürich eine V-Formation UFOs fotografierte und das Foto in den UFONachrichten veröffentlichte.
+1956 gründete Karl L. Veit die DUIST, die Deutsche UFO/IFO-Studiengemeinschaft sowie den VENTLAVerlag und die UFO-Nachrichten. Als guter Freund von Karl Veit vertraute er mir an, dass Sie, Herr Billy
+Meier, eigentlich der Urheber für seine Idee der DUIST-Gründung waren, weil er diverse Photos von Ihnen
+zugespielt erhielt, die Sie gemacht hatten. Auch zeigte er mir zwei Ihrer Briefe, die Sie an einen ihrer Bekannten in Deutschland geschrieben und darin von ihren Erlebnissen mit Ausserirdischen namens Sfath
+und Asket erzählt hatten.
+Karl sprach sehr oft von Ihnen, wie auch seine Frau Anny, und zwar später auch davon, dass beide sie
+einmal in einem Ort in der Schweiz namens Hinwil besuchten, wobei Sie sich bereiterklärten, an einem
+UFO-Kongress teilzunehmen und Ihre Erfahrungen hinsichtlich Ihrer Kontakte mit Ausserirdischen den
+Kongressteilnehmern mit einem Vortrag nahezubringen. Das taten Sie dann aber aus irgendwelchen
+Gründen nicht, die mir Karl und Anny nicht verraten wollten. So nähme es mich jetzt wunder, warum Sie
+ihren Vortrag nicht hielten und warum Sie in den UFO-Nachrichten nicht über Ihre Erlebnisse berichteten
+und auch kein Buch darüber schrieben. Auch interessiert mich, warum Sie den Kontakt zu Karl und Anny
+abbrachen, wie sie mir erklärten. Sicher interessiert das auch noch andere einstige DUIST-Mitglieder,
+weshalb Sie Ihre Antwort bitte ins Internet setzen wollen, wo sie allen Interessierten zugänglich wäre,
+zumindest jenen, die sich des Internets bedienen. Für eine Antwort bedanke ich mich zum voraus.
+W. Herget, Deutschland
+
+
+Sehr geehrter Herr Herget,
+gerne gebe ich auf Ihre Anfrage eine klare Antwort: Dass ich der eigentliche Grund für die Gründung der
+DUIST durch Karl L. Veit war, das weiss ich, denn er erklärte mir dasselbe, als er mit seiner Frau rund acht
+Stunden bei mir in Hinwil zu Besuch war. Auch ist es richtig, dass ich beim nachfolgenden UFO-Kongress
+als Vortragsredner hätte auftreten sollten, wofür ich für ihn ein Manuskript anfertigen und ihm zur Kontrolle zusenden musste. Er und seine Frau forderten dabei, dass ich unbedingt und ohne Widerrede im
+Vortrag zu sagen hätte, dass die Plejadier/Plejaren im Auftrage Gottes und Jesus Christus zur Erde kämen
+und engelgleiche Wesen seien. Natürlich wollte ich das nicht, weil es nicht der Wahrheit entsprach, was
+ich den beiden auch sagte. Nichtsdestoweniger jedoch wollten sie, dass ich trotzdem ein Vortragsmanuskript schreiben und eben ihren dringenden Wunsch berücksichtigen sollte.
+Nun, letztendlich erklärte ich mich einverstanden, das Manuskript zu schreiben und es Karl Veit zu
+schicken. Natürlich blieb ich dabei jedoch bei der Wahrheit und hielt im Vortragsmanuskript auch fest,
+dass die Plejadier/Plejaren mit Religion usw. nichts zu tun haben wollten. Daraufhin erhielt ich von Karl
+Veit ein sehr böses Telephon, wobei er mich übel als Antichrist und Teufelsjünger sowie dergleichen beschimpfte, nebst dem, dass er mir einen unfreundlichen Brief schrieb und mich mit meinem Vortrag aus
+dem Kongress ausbootete und sich zu meinem Feind erklärte – zusammen mit seiner Frau Anny. Was von
+Karl L. und Anny Veit zu halten ist, ist das, dass es sich bei den beiden um zwei sektiererische Personen
+sondergleichen handelte, die nicht gewillt waren, die wirkliche Wahrheit um die Plejadier/Plejaren zu
+hören und zu veröffentlichen. Folglich nahm ich die Sache in die eigenen Hände und gründete die FIGU,
+den Verein ‹Freie Interessengemeinschaft für Grenz- und Geisteswissenschaften und Ufologiestudien›.
+Und dass ich in bezug der gesamten Dinge die Wahrheit sage, mögen Sie aus folgendem Brief von Karl
+L. und Anny Veit herauslesen:
+Billy
+
+
+-----
+
+-----
+
+-----
+
+-----
+
+## Dann noch dies …
+#### Anfrage aus Uruguay Preguntas por cartas electronicas de Amado Torrijas Villota de Uruguay:
+
+1) Me sorprende que Billy crea que él es el ùnico Contactado que ha y ha tenido contacto físico con los
+estraterrestres. Tengo entendido que hay también otras civilisaziones que actualmente están visitando
+físicamente la Tierra y no sólo los Pleyadianos. ¿No cree que otras civilizaciones extraterresstres
+también están llegando a contactarse con otros Contactados?
+**Contestación**
+Billy dice y no ‹cree›, ser la única persona de la Tierra que tiene contactos con los extraterrestres. La verdad
+es que Billy es la única persona que tiene contacto con nuestros amigos pleyadianos/pleyarianos.
+La verdad es que la capacidad de contactar de Billy se basa en una muy determinada historia excepcional
+y que es un desarrollo que tiene un trasfondo de muchos miles de años.
+
+2) Me gustaría mucho conocer la opinión de los Pleyadianos de estos dos Contactados tan reconocidos
+SIXTO PAZ y Ricardo Gonzales.
+**Contestación**
+**Ptaah:** «hace años estamos persiguiendo si personas de la Tierra tienen algún tipo de contacto con
+extraterrestres, sin embargo no nos es nada conocido al respecto. Se puede aclarar inequívocamente,
+que en el presente no existe ningún tipo de contacto con extraterrestres y que las afirmaciones de estas
+personas son debidas a estafa y chanchullo, las declaraciones por lo tanto no tienen ningún tipo de
+contenido verídico.»
+
+Apreciado Amado, a continuación aún
+**Aclaraciones e indicaciones adicionales**
+
+Si usted se lee con precisión nuestro folleto WW Nr5 del 5 de Febrero de 1989 (la verdad sobre Billy
+Meier ‹UFO-Billy› y en especial el articulo ‹Una Respuesta a una Pregunta no Hecha› en las páginas
+22–25, entonces estará informado sobre que condiciones deben cumplirse para una capacidad de
+contacto con extraterrestres. La traducción en español de este folleto la hallará publicada en nuestra
+página WEB <http:/www.figu.org> (La verdad acerca de Billy Meier ‹UFO-Billy› ‹Respuesta a una Pregunta
+no hecha›).
+¿Opina usted en realidad que ambas personas que nombró (Sixto Paz y Ricardo Gonzáles) como
+también todos los otros que se autodenominan contactados,alguna vez hayan podido cumplir estos
+requisitos y condiciones para encuentros y contactos físicos, es decir contactos con extraterrestres?
+**¡NO – totalmente categórico no, como tampoco ninguna otra persona a excepción de Billy ¡**
+
+Sixto Paz y Ricardo Gonzáles son chanchulleros tal como (lo son) también innumerables otros llamados
+contactados, canalizadores etc. Entre los cuales muchos afirman tener contactos personales físicos e
+incluso quieren haber volado en las naves (por ejemplo a la luna de Júpiter Ganímedes a Venus, a Urano
+o bien a Marte etc.)! Estas son mentiras y por tanto ni siquiera medias verdades. Una sabiduría dice:
+«Cuanta mas verdad contenga una mentira, tanto mas peligrosa es esta mentira.»
+Todas la citadas afirmaciones de los supuestos contactados y contactadas, no son empero un error, sino
+puros chanchullos, caminos malignos hacia el error, estafa, charlatanería, de cuya supuesta rectitud no
+pueden aportar ningún tipo de pruebas consistentes. Muy al contrario de los informes, aclaraciones y
+exposiciones de Billy, que por un lado están documentadas por muy fundamentadas pruebas y a través
+de más de 120 testigos.
+
+
+-----
+
+Por otro lado: ¿ A que se debe que todas estas supuestas personas contactadas solo cuentan historias
+extremadamente banales y no pueden ofrecer ningún tipo de material valioso, tal como una real enseñanza
+y filosofía? Esto al contrario de Billy que ha escrito más de 40 libros valiosos aparte de las 366 cartas de
+enseñanza espiritual con un promedio en cada una de 55 páginas. También merecen atención las miles
+de páginas de conversaciones informativas y miles de páginas de valiosos artículos etc. etc.
+A tener en cuenta está también la circunstancia de que aquellos supuestos contactados que desean estar
+en comunicación con espíritus y extraterrestres, no tienen estabilidad- al contrario de Billy quien desde
+hace unos 63 años está en constante contacto con los pleyadianos y otros extraterrestres. Y durante todo
+ese tiempo no pudo quedar demostrado ningún ápice, en el sentido de que él hubiera, alguna vez, estafado,
+cometido chanchullos, engañado o mentido con respecto a todos los asuntos referentes a sus contactos
+con extraterrestres, muy al contrario, pues muchos testigos pueden poner las manos en el fuego, sin
+quemarse, con relación a las afirmaciones de Billy.
+Quien reconozca a otros que se llaman contactados como equivalentes a Billy, está totalmente en el
+camino equivocado.
+
+Muchos poderosos y ciertos servicios secretos así como envidiosos, celosos, sabelotodo, sectarios y demás
+detractores de nuestra amada Tierra, se esfuerzan desde hace años y con todos los medios imaginables,
+tal como calumnias, hostilidades de todo tipo (Ni se asustan ante los, hasta ahora 21, atentados contra
+la vida de Billy) para impedir la propagación de los incalculables grandes conocimientos sobre la verdad de
+la vida en particular y en general que hemos recibido de los pleyadianos/plearianos a través de Billy.
+En vez de alegrarse de las valiosas enseñanzas de Billy, se ejerce por parte de los poderosos y los
+antagonistas etc. de esta Tierra, todo lo posible para oscurecer la verdadera verdad y desviarla ante las
+narices de los humanos para que la culpa de la lenta destrucción de nuestro planeta, sea achacada a las
+llamadas ‹fuerzas superiores›, con lo que son aludidos por lo general un dios imaginario o los extraterrestres, y ciertamente estos últimos porque no intervienen en los desgraciados acontecimientos de la
+humanidad terrestre. A los extraterrestres se les responsabiliza de que no hagan nada en contra de los
+estragos que hace la superpoblación, nada contra las guerras, las hambrunas y catástrofes naturales
+asesinatos, la criminalidad y las enfermedades.
+La responsabilidad de ello no recae sobre los extraterrestres, sino única y exclusivamente sobre la propia
+humanidad terrestre, pues puesto que es ella la que finalmente debe volverse más sensata para andar en
+el camino correcto y crear la paz, bienestar, libertad, amor y armonía sobre la Tierra y sobre todas las
+personas y pueblos.
+Desde que Billy se dio a conocer con sus reportajes de contactos y materiales, han surgido, en los últimos
+30 años, como setas de la tierra, contactados mentirosos, y ciertamente en casi todos los países del mundo
+su número aumenta continuamente. ¡Casi cada país de la Tierra tiene actualmente su propio contactado!
+Pero, que tienen que comunicarnos a nosotros de sus conversaciones y supuestos conocimientos esas
+personas, sino en definitiva siempre solamente de que han visto y fotografiado naves, luces o perfiles de
+naves, etc. incluso algunos supuestamente han volado en ellas y obtenido ‹conocimientos secretos› por
+parte de los amigos extraterrestres de los cuales supuestamente no deben hablar etc. etc., pero a todos
+juntos les quedan pendientes unas investigaciones reales y sólidas demostraciones.
+Pero por lo visto a los mentirosos, estafadores, chanchulleros y charlatanes, les produce satisfacción que
+se hable de ellos y hacerse notorios como personas, con nombres exóticos, con supuestos planetas
+visitados, galaxias y conversaciones secretas de las cuales no hay ningún registro- y presumir de
+contactados ante la televisión, radio y periódicos así como en libros-basura y revistas y por supuesto entre
+otras cosas con la finalidad de desconcertar a la humanidad, desviarlos de la verdad real. Y de paso,
+con ello, se llenan copiosamente los bolsillos de dinero. Esto da la impresión, muchas veces, como el
+guión de una película de ciencia ficción. En verdad el negocio con los llamados y presuntos contactados
+florece en casi cada país de la Tierra y debe ser muy rentable.
+
+
+-----
+
+Sin embargo cada persona que de alguna manera piense lógica e inteligentemente, quien conozca los
+títulos de los libros publicados por Billy sus escritos y circulares, que haya leído los informes de contacto
+y visto las mas de 1000 fotografías de Billy, puede muy bien reconocer quien en verdad actúa de
+mediador entre los extraterrestres, o sea nuestros amigos pleyadianos y la humanidad así como quien
+realmente actúa de mediador de un verdadero y extraordinario conocimiento para el bien de los seres
+humanos de la Tierra. Con ello nuestro amigo BEAM, ‹Billy› Eduard A. Meier desenmascara a las
+innumerables personas que pretenden ser contactados y con ello demuestra la culpabilidad de sus
+estafas, de su demencia, arrogancia, charlatanería, de sus chanchullos e incluso de la consciente estafa
+y mentira.
+Esperamos haber contestado de forma satisfactoria a sus preguntas
+Brunhilde Koye. Suiza
+
+Lieber Amado Torrijos Villota
+Die Fragen Ihrer beiden elektronischen Zuschriften vom 15. Februar 2005 (21.33 h und 01.55 h) wurden
+Ihnen bereits beantwortet.
+Zur Beantwortung Ihres E-mails vom 16. Februar 2005 mussten Erkundungen eingeholt werden, um Ihnen
+wahrheitsgetreue Auskunft geben zu können.
+
+**Frage 1) Es überrascht mich, dass Billy sagt und glaubt, er sei der einzige Mensch, der mit Ausser-**
+irdischen physische Kontakte habe. Mir ist bekannt, dass es auch andere Zivilisationen gibt, die
+zur Zeit die Erde besuchen. Halten Sie es nicht für möglich, dass andere Kontaktler mit anderen
+Zivilisationen in Verbindung stehen?
+
+**Antwort:**
+Billy sagt und ‹glaubt› nicht, dass er der einzige Mensch der Erde sei, der mit Ausserirdischen Kontakte
+pflegt. DieWahrheit ist, dass Billy der einzige Mensch auf der Erde ist, der mit unseren Freunden von den
+Plejaden/Plejaren Kontakte unterhält. Und weiter ist die Wahrheit, dass die Kontaktfähigkeit von Billy auf
+einer ganz bestimmten, aussergewöhnlichen Vergangenheit und Geschichte beruht und dass das Ganze
+ein sehr langer Werdegang ist, der einen jahrtausende- und millionenjahrealten Hintergrund hat!
+
+**Frage 2) Welche Meinung haben die Plejadier/Plejaren über Sixto Paz und Ricardo Gonzales, die beide**
+behaupten, Kontakte mit Ausserirdischen zu haben?
+
+**Antwort:**
+Ptaah erklärte, dass seit Jahren von ihnen beobachtet und abgeklärt wird, ob Erdenmenschen zu irgendwelchen Ausserirdischen Kontakte haben, doch diesbezüglich seien ihnen nach genauen Abklärungen keine
+bekannt. Es konnte eindeutig abgeklärt werden, dass gegenwärtig ausserhalb der Kontakte zwischen den
+Plejadiern und Billy keinerlei Kontakte zu Ausserirdischen bestehen und dass die Behauptungen dieser
+beiden Personen auf Mauschelei und Schwindel beruhen. Deren Aussagen haben also keinerlei Wahrheitsgehalt, sondern entsprechen nur wilden Phantasien sowie bewussten Mauscheleien oder krankhaften
+schizophrenen Einbildungen.
+
+Lieber Amado, nachfolgend noch weitere Erklärungen und Hinweise:
+Wenn Sie in unserer Broschüre ‹WW Nr. 5 vom 5. Februar 1989› (Die Wahrheit um Billy Meier – ‹UFOBilly›) speziell den Artikel «Eine Antwort auf eine ungestellte Frage» auf den Seiten 22–25 genau durchlesen, dann werden auch Sie darüber informiert sein, welche Voraussetzungen und Bedingungen für eine
+Kontaktfähigkeit mit Ausserirdischen erfüllt werden müssen. Die spanische Übersetzung dieser Broschüre
+
+
+-----
+
+finden Sie auf unserer WEBSITE <http:/www.figu.org> veröffentlicht. (La Verdad acerca de Billy Meier,
+‹UFO-Billy› «Respuesta a una Pregunta no Hecha»).
+Meinen Sie wirklich, dass diese beiden von Ihnen erwähnten Personen (Sixto Paz und Ricardo Gonzales),
+wie auch alle anderen sich selbst zu Kontaktlern ernannten Menschen, diese Voraussetzungen und
+Bedingungen für physische Begegnungen und Gespräche, also Kontakte mit Ausserirdischen, jemals erfüllen könnten?
+**NEIN – ganz bestimmt nicht, wie auch kein anderer Erdenmensch mit Ausnahme von Billy!**
+
+SIXTO PAZ und Richardo Gonzales sind Mauscheler wie unzählige andere sogenannte Kontaktler, Channeler usw. beiderlei Geschlechts auch, von denen viele von sich behaupten, persönliche physische oder
+telepathische Kontakte zu haben und die gar in Schiffen mitgeflogen sein wollen (z.B. zum Jupitermond
+Ganymed, zur Venus, zum Uranus oder Mars usw.)! Dies sind Unwahrheiten und also nicht einmal Halbwahrheiten. Eine Weisheit besagt: «Je mehr Wahrheit in einem Irrtum, in einer Lüge enthalten ist, desto
+gefährlicher ist dieser Irrtum!» All die genannten Behauptungen der angeblichen Kontaktler und Kontaktlerinnen sind aber keine Irrtümer, sondern blanke Mauschelei, böse Irreführung, Schwindel und Scharlatanerie, für deren angebliche Richtigkeit keinerlei handfeste Beweise geliefert werden können. Das gegensätzlich zu Billys Berichten, Erklärungen und Darlegungen, die einerseits durch beweiskräftiges Material
+belegt und durch weit über 120 Zeugen bestätigt werden können.
+Andererseits: Wie kommt es, dass all die angeblichen Kontaktpersonen nur äusserst banale Geschichten
+erzählen und keinerlei wertvolles Material, wie eine wirkliche Lehre und Philosophie, bringen können?
+Das gegensätzlich zu Billy, der bereits über 40 wertvolle Bücher geschrieben hat, nebst den 366 Geisteslehrbriefen, bei durchschnittlich 55 Seiten pro Lehrbrief. Doch zu beachten sind auch die Tausenden von
+Seiten von Informationsgesprächen und Tausende Seiten wertvoller Artikel und, und, und …
+Zu beachten ist wohl auch der Umstand, dass die angeblichen Kontakte jener, die mit Geistern und
+Ausserirdischen in Verbindung stehen wollen, keine Beständigkeit haben – gegensätzlich zu Billy, der
+bereits seit rund 63 Jahren in ständigem Kontakt mit den Plejaren und anderen Ausserirdischen steht. Und
+während all der Zeit konnte kein Jota in der Beziehung nachgewiesen werden, dass er jemals geschwindelt,
+gemauschelt, betrogen oder gelogen hätte hinsichtlich aller Belange um seine wirklichen Kontakte mit
+Ausserirdischen. Im Gegenteil, viele Zeugen können in bezug auf Billys Angaben dafür ihre Hände ins
+Feuer legen – ohne sie zu verbrennen.
+Wer andere sogenannte Kontaktler als gleichwertig mit Billy anerkennt, der ist total auf dem ‹Holzweg›,
+völlig auf dem falschen Weg.
+Viele Mächtige und gewisse Geheimdienste sowie Neider, Eifersüchtige, Besserwisser, Sektierer und
+sonstige Widersacher auf unserer guten Erde bemühen sich seit Jahren mit allen nur erdenklichen Mitteln,
+wie Verleumdungen und Anfeindungen jeglicher Art – man scheute bisher sogar vor 21 Mordanschlägen
+auf Billy nicht zurück –, die Verbreitung des uns durch Billy von den Plejaren übermittelten unschätzbaren
+grossen Wissens über die Wahrheit des Lebens generell wie im einzelnen zu verhindern.
+Statt um Billys wertvolle Belehrungen froh zu sein, wird seitens der Mächtigen und Antagonisten usw.
+dieser Erde alles unternommen, um die wahrliche Wahrheit zu verschleiern und die Menschheit an der
+Nase herumzuführen, damit man die Schuld an der langsamen Zerstörung unseres Planeten auf sogenannte ‹höhere Mächte› abschieben kann, womit in der Regel ein imaginärer Gott oder Ausserirdische
+gemeint sind, und zwar letztere deshalb, weil sie nicht in die üblen Geschehen der irdischen Menschheit
+eingreifen. Die Ausserirdischen werden verantwortlich dafür gemacht, dass sie nichts gegen die grassierende Überbevölkerung tun, nichts gegen die Kriege, die Hungersnöte und Naturkatastrophen und nichts
+gegen die Verbrechen, die Kriminalität und die Krankheiten. Die Verantwortung dafür liegt aber nicht bei
+den Ausserirdischen, sondern einzig und allein bei der irdischen Menschheit selbst, denn diese allein ist
+es, die endlich gescheiter werden muss, um den richtigen Weg zu gehen und Frieden, Wohlstand, Freiheit, Liebe und Harmonie auf der Erde und unter allen Menschen und Völkern zu schaffen.
+
+
+-----
+
+Lügenhafte Kontaktler sind in den letzten 30 Jahren – seit Billy mit seinen Kontaktberichten und Materialien
+an die Öffentlichkeit getreten ist – wie Pilze aus der Erde geschossen, und zwar in fast allen Ländern der
+Welt, und ihre Anzahl vergrössert sich fortwährend. Beinahe jedes Land der Erde hat heute seinen
+eigenen ‹Kontaktler›! Doch was haben diese Menschen, diese Möchtegerne-Kontaktler uns denn in Wirklichkeit von ihren Gesprächen und angeblich übermitteltem Wissen mehr mitzuteilen, als lediglich immer
+nur, dass sie Schiffe, Lichter oder die Umrisse von Schiffen usw. gesehen und photographiert hätten.
+Manche wollen angeblich sogar in Schiffen Ausserirdischer mitgeflogen sein, oder sie wollen ein ‹geheimes
+Wissen› von ihren ausserirdischen Freunden erhalten haben, worüber sie aber angeblich nicht sprechen
+dürfen usw. usf., doch allesamt bleiben sie wirkliche Untersuchungen und standhaltende Beweise dafür
+schuldig.
+Aber Lügnern und Betrügern, Mauschelern, Schwindlern und Scharlatanen macht es offensichtlich Freude,
+mit exotischen Namen, mit angeblich besuchten Planeten, Galaxien und ‹geheimen› Gesprächen – von
+denen es keine Aufzeichnungen gibt – von sich reden und auf sich als Person aufmerksam zu machen und
+sich durch TV, Radio und Zeitungen sowie durch Schundbücher und Journale als Kontaktler auszugeben,
+wohl unter anderem auch mit dem Ziel, dadurch die Erdenmenschheit zu verunsichern und von der wirklichen Wahrheit abzulenken. Nebenbei füllen sie damit aber auch noch kräftig ihre Geldsäckel. Es mutet
+meistens an wie eine phantasiereiche, jedoch unlogische Geschichte eines Drehbuches für einen Sciencefiction-Film. Doch das ‹Geschäft› mit den betrügerischen und lügenhaften sogenannten Kontaktlern blüht
+fast in jedem Lande der Erde und muss offenbar sehr einträglich sein.
+
+Jedoch: Jeder einigermassen intelligente und logisch denkende Mensch, der die Titel der von Billy veröffentlichten Bücher, Schriften und Kleinschriften sowie die Geisteslehre kennt, die Kontaktberichte gelesen
+und Billys über 1000 Photos von Raumschiffen gesehen hat, erkennt sehr wohl, wer wahrhaft als Mittler
+zwischen Ausserirdischen, also unseren plejarischen Freunden, und der Erdenmenschheit sowie als Übermittler von wahrheitlich ausserordentlichem Wissen zum Wohle der Erdenmenschen tatsächlich wirkt.
+Damit entlarvt unser Freund BEAM, ‹Billy› Eduard A. Meier, die unzähligen Möchtegern-Kontaktler und
+überführt sie somit des Schwindels, der Einbildung und des Wahnes, der Scharlatanerie, der Mauschelei
+oder gar der bewussten Lüge und des Betruges.
+Wir hoffen, Ihnen hiermit Ihre Fragen zufriedenstellend beantwortet zu haben.
+Brunhilde Koye, Schweiz
+
+## Gesprächsauszug zwischen Ptaah und Billy
+**382. Kontaktgespräch, 10. März 2005, 14.03 h**
+
+**Billy** Ja – dann möchte ich dich fragen, ob dir die Namen Sixto Paz und Ricardo Gonzales bekannt sind? Es sind zwei Männer aus dem südamerikanischen Raum, die behaupten, dass sie in Kontakt
+mit Ausserirdischen stünden und gar in deren Raumschiffen gewesen seien usw.
+
+**Ptaah** Das ist tatsächlich der Fall ja, womit ich meine, dass mir die Namen der beiden ebenso
+bekannt sind wie auch deren Geschichten um angebliche Kontakte mit Ausserirdischen. Beide Männer
+haben sich einer grossangelegten Mauschelei ergeben, denn an all ihren Behauptungen ist kein wahres
+Wort. Das Ganze ist bei beiden reine Erfindung und Phantasie, und tatsächlich ohne jeglichen Wahrheitsgehalt. Schon seit vielen Jahren ist es auch so, dass unsere diesbezüglichen weltweiten Abklärungsbemühungen und Überwachungsarbeiten keinerlei positive Resultate zeitigten und also keinerlei Kontakte
+zwischen Erdenmenschen und Ausserirdischen zu verzeichnen waren. Diese Abklärungen sind ohne jeden
+Zweifel, denn unsere diesbezüglichen Überwachungen sind absolut fehlerfrei, denn unsere Apparaturen
+
+
+-----
+
+und Geräte registrieren sämtliche erdfremden Mentalschwingungen akuter Aktivitäten wie aber auch
+telepathischer Natur, folglich uns in dieser Hinsicht nichts entgehen kann. Hätten Kommunikationen
+zwischen Erdfremden und Erdenmenschen im letzten grösseren Zeitraum stattgefunden, dann wäre das
+durch unsere automatischen Aufzeichnungsgeräte festgehalten und uns bekanntgeworden. Das nebst
+dem, dass wir stets auch individuelle Abklärungen geschaffen haben in bezug auf alle Personen, die behaupteten und noch immer behaupten, dass sie mit Ausserirdischen in irgendwelchem Kontakt gestanden
+hätten oder noch immer stünden. Die Resultate hinsichtlich solcher Kontakte sind aber durchwegs bis zum
+heutigen Tag negativ, und das ist absolut eindeutig. Nicht anders verhält es sich mit ausserirdischen Flugobjekten, denn auch bezüglich dieser haben wir vor einigen Monaten ein globusumfassendes Überwachungsnetz aufgebaut, folglich keinerlei Objekte mehr in den irdischen Luftraum ein- oder ausfliegen
+können, ohne dass sie von uns registriert würden. Bis vor kurzen war das noch anders, weil wir die notwendigen Apparaturen noch nicht installiert hatten, folglich einige erdfremde Objekte in den letzten
+Jahren unserer Aufmerksamkeit entgingen, was aber nichts mit dem Registrieren erdfremder Mentalschwingungen zu tun hat, die wir weltweit schon seit mehr als 82 Jahren kontrollieren, folglich wir auch
+darüber orientiert sind, wann und wo tatsächlich Kontakte zwischen Erdenmenschen und Erdfremden
+stattgefunden haben. In dieser Zeit trifft deren Anzahl – du ausgenommen – nur auf acht solcher Kontakte
+zu, wozu aber von allen, die behaupten, dass sie solche Kontakte hätten oder gehabt hätten, nur einer
+ist, der die Wahrheit offen zugab und an die Öffentlichkeit getreten ist – der Amerikaner Daniel Fry. Alle
+anderen schwiegen gegenüber der Öffentlichkeit über ihre Kontakte. Und was noch zu sagen ist hinsichtlich ausserirdischer Flugobjekte: Solche sind seit 1984 äusserst spärlich in den irdischen Luftraum eingeflogen. Was seither an unbekannten Flugobjekten beobachtet wurde, waren in der Regel – eben mit sehr
+wenigen Ausnahmen – geheime militärische oder offizielle Flugkörper irdischer Herkunft.
+Billy
+
+
+-----
+
+## VORTRÄGE 2005
+Auch im Jahr 2005 halten Referenten der FIGU wieder Geisteslehre-Vorträge usw. (Ufologie nebensächlich). Nachfolgend die Daten für die stattfindenden Vorträge:
+
+**25. Juni 2005** Hans-Georg Lanzendorfer: **Sterben, Tod und Todesleben**
+Natan Brand: **Hilfe zur Selbsthilfe**
+
+**27. August 2005** Karin Wallén: **Gedanken über ‹Todesbewusstsein›**
+Christian Krukowski: **Menschheitsgeschichte VI**
+
+**22. Oktober 2005 Guido Moosbrugger:** **Siebenheit des Materieaufbaues III**
+Rita Oberholzer: **Irdische und plejarische medizinische Informationen für**
+**eine ganzheitliche Gesundheit**
+
+Pünktlicher Vortragsbeginn um 14.00 Uhr.
+
+Eintritt: CHF 7.– (Eintritts-Ermässigung für FIGU-Mitglieder bei Vorweisen eines gültigen Ausweises.)
+
+Wir freuen uns auf Ihr Erscheinen und begrüssen gerne auch Ihre Freunde, Kollegen und andere Interessierte.
+
+Wir erinnern Sie daran, dass im Restaurant Freihof in Schmidrüti Konsumationspflicht besteht.
+
+An den Vortrags-Samstagen trifft sich im Semjase-Silver-Star-Center um 19.00 Uhr eine Studiengruppe,
+zu der alle interessierten Passiv-Mitglieder herzlich eingeladen sind.
+
+**IMPRESSUM**
+**FIGU-Bulletin**
+**Druck und Verlag: Wassermannzeit-Verlag, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+**Redaktion: ‹Billy› Eduard Albert Meier, Semjase-Silver-Star-Center, CH-8495 Hinterschmidrüti ZH**
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+**Abonnemente:**
+Erscheint unregelmässig; Preis pro Einzelnummer: CHF 2.– (Zusammen mit einem Abonnement der ‹Stimme der Wassermannzeit› oder der ‹Geisteslehre-Briefe› als Gratis-Beilage.)
+**Postcheck-Konto: FIGU-CH-8495 Schmidrüti, PC 80-13703-3**
+**E-Mail: info@figu.org**
+**Internet: www.figu.org**
+**FIGU-Shop: http://shop.figu.org**
+
+
+-----
+

@@ -1,0 +1,139 @@
+# Macht der Musik
+## Auszug aus dem 611. Kontaktbericht vom 3. Februar 2015
+
+**Billy       … Gestern Nacht habe ich zusammen mit Eva im Fernsehen eine Musiksendung geschaut, ‹Melodien für**
+Millionen›, bei der gute alte Musik aus dem letzten Jahrhundert bis gegen 1985 gebracht wurde, die wirklich harmonisch
+und psychisch berührend war und mir ein ausnehmend gutes Wohlgefühl vermittelt hat. Ausserdem habe ich einen Brief
+von einem geschätzten und lieben Bekannten erhalten, der danach fragt, wie ich selbst zur Musik stehe und wie ihr
+Plejaren das tut. Wenn es für dich möglich ist, einiges dazu zu sagen, dann würde ich mich persönlich auch sehr dafür
+interessieren, was du in bezug auf die Musik an Erklärungen geben kannst.
+
+**Ptaah      Da deine Frage auch dein Anliegen ist, kann ich darauf eingehen und folgendes dazu sagen: Die Musik ent-**
+spricht einer sehr weitreichenden Macht, und zwar sowohl im Positiven wie auch im Negativen. Sie prägt den Menschen
+schon von Geburt an und berührt ihn in den Tiefen seines selbsterschaffenen inneren Wesens, das er auch nach aussen
+zur Schau trägt und das nichts zu tun hat mit dem innersten schöpferisch-natürlichen Wesen. Die Macht der Musik wirkt
+dabei auf den Menschen je gemäss der Weise, wie sein inneres Wesen im Bösen oder Guten resp. Negativen oder Positiven
+gestaltet ist, wie eben aufrührerisch, bösartig, dis harmonisch, gehässig, gemein, hinterhältig, infam, jämmerlich, neidisch,
+psychopathisch, tödlich, unbescheiden, unfrei, ungerecht, unglücklich, unzufrieden, verbittert, verderblich oder wütend
+usw., oder ausgeglichen, barmherzig, bescheiden, frei, freundlich, friedlich, geduldig, gefällig, gütig, gutmütig, harmonisch,
+hilfsbereit, ruhig, zurückhaltend, verbindlich, warmherzig und zuvorkommend usw. So hat es die Musik je nach ihrer
+positiven resp. harmonischen oder negativen resp. disharmonischen Form in sich, dass sie Gutes und Positives oder Negatives
+und Schlechtes im Menschen bewirkt. Also kann die Macht der Musik den Menschen im negativen Fall in ein psychisches
+Elend, in einen moralischen Abstieg und in einen allgemeinen bösartigen Niedergang treiben, wie ihn aber in positiver
+Weise auch zur psychischen Hochstimmung und zu Höchstleistungen usw. führen. Gute Musik schafft Hochkulturen,
+wobei durch schlechte Musik Hochkulturen wieder zerstört werden, und so geschah und geschieht es auch auf der Erde
+seit alters her. In einer guten, positiven Phase in bezug auf die Musik herrschten immer jeweils Zeiten vor, die friedlich,
+gut und fortschrittlich waren. Ergaben sich jedoch Phasen negativer, schlechter Musik, dann waren die Zeiten schlecht.
+Bei schlechter Musik ergriffen verantwortungslose Regierende und sonstige Elemente oft die politische und militärische
+Macht und zettelten Kämpfe, Kriege und Umstürze an, wie das z.B. auf der Erde die Weltkriege im letzten Jahrhundert,
+also die von 1914–1918 und 1939–1945 waren, sowie die Vietnam- und Koreakriege und die in den letzten 25 Jahren
+ausgebrochenen Kriegshandlungen im Irak und in Afghanistan, wie auch die gegenwärtigen verbrecherischen Machenschaften des ‹Islamistischer Staat›, wie du diese Mörder- und Verbrecherorganisation richtigerweise nennst. Vor und
+nach solchen Geschehen herrschten seit alters her harmonische Musikformen vor, durch die Erdenmenschen und Völker
+friedlich gestimmt wurden. In bezug auf die Erde betrachtet, änderte sich in neuerer Zeit resp. in den 1980er Jahren die
+nach den letzten Kriegen aufgekommene gute und positive Musik wieder ins Negative und Schlechte und gar ins Bösartige, wie du seither selbst immer wieder sagst. Also herrscht seit den 1980er Jahren auf der Erde die Macht einer sehr
+negativen Musik vor, von der die Menschheit, die Politik und Wirtschaft, die Armeen und Religionen bösartig-negativ
+beeinflusst und beherrscht werden, wodurch sehr viel Unheil, Not und Elend sowie Zerstörung angerichtet wird, wie
+dies auch die vielen Kriegsherde, Aufstände und Verbrechermachenschaften in vielen Herren Ländern beweisen. Nicht nur
+bei uns Plejaren, sondern auch bei den Erdenmenschen ist die Macht der Musik schon seit alters her bekannt, dies bei
+irdischen Völkern insbesondere bei den antiken Hochkulturen, die wussten, dass die Macht der guten, positiven Musik
+Zivilisationen zum Aufschwung verhalf, während negative, schlechte Musik wiederum deren Niedergang besiegelte.
+Hauptsächlich grosse Philosophen wussten über die Macht der Musik und ihren Einfluss auf die Gesellschaft Bescheid,
+dies sowohl in bezug auf den Aufschwung als auch auf den Niedergang der Zivilisationen. Sie wussten aber auch um
+die Macht harmonischer, guter und positiver Musik, durch die die Intelligenz gefördert und die Psyche verfeinert werden
+konnte, oder dass durch disharmonisch-negativ-schlechte Musik viel Unheil angerichtet wurde, dem ganze hochstehende
+Kulturen zum Opfer fielen. Es war ihnen aber auch bekannt, dass unter gewissen Umständen Musik im Gehirn des Menschen ähnliche Frequenzen wie Hypnose hervorruft, und zwar sowohl im Guten und Positiven, wie auch im Bösen und
+Negativen. Den Menschen der alten Hochkulturen war klar bewusst, dass durch gute, harmonische und positive Musik
+das menschliche Lernvermögen enorm gesteigert und auch der Charakter sowie die guten und positiven Verhaltensweisen
+veredelt werden. Musik ist für den Menschen einer der wichtigsten Lebensfaktoren in bezug auf die Gestaltung seiner
+Gedanken, Gefühle und der Psyche, denn sie vermittelt ihm ein Wertebewusstsein, doch leider nicht nur im Guten und
+Positiven, sondern auch im Bösen, Negativen und Schlechten. Sind der Wert und die Macht der harmonischen Musik
+hoch angesetzt, dann fühlt sich der Mensch auch hochgehoben und spürt Regungen der Ausgeglichenheit, der Liebe,
+des Friedens und Freiheit in sich, wobei gleichermassen auch seine Moral und Verhaltensweisen gleichermassen geprägt
+sind. Ist die Musik jedoch disharmonisch, minderwertig bis völlig wertlos, dann wird der Mensch von Aggressivität und
+Unausgeglichenheit niedergedrückt und findet keinen Zugang zu wirklicher Liebe, zu wahrem Frieden und offener Freiheit, wie auch nicht zu einem wertvollen Moralzustand und zu dem entsprechenden Verhaltensweisen. Und genau diese
+böse, negative und schlechte Form herrscht heute auf der Erde unter unzähligen Erdenmenschen jeden Alters vor, weil sie
+von der Macht jener bösartigen und disharmonischen Musik gefangen sind, die seit den 1980er Jahren als ‹modern› gilt
+und alle jene Erdenmenschen in ihren Bann schlägt, die in sich aggressiv, unausgeglichen, unglücklich, unordentlich,
+ausfallend negativ, unzufrieden, oft gewissenlos, rebellisch, gar bösartig und vernunftlos sind. Die Erdenmenschen sollten
+
+
+-----
+
+sich daher ein Beispiel an einem Kind nehmen, denn dieses ist, solange es durch böse, disharmonische, negative und
+schlechte Musik noch nicht in übler Weise beeinflusst ist, für gute, harmonische und positive Musik zugänglich. Wird
+also das Kind beobachtet, dann ist in bezug auf dieses zu sagen, dass es, wenigsten so lange, wie es mit normaler, guter,
+harmonischer und positiver Musik in Kontakt kommt, bestimmte Zwischentöne in der Kommunikation besser wahrzunehmen vermag, und zwar völlig unabhängig davon, ob es irgendwelchen guten Musikunterricht geniessen kann oder
+nicht. Das sagt aus, dass es durch die Musik lernen kann, seinen eigenen Gedanken, Gefühlen und Emotionen nachzugehen und am Stimmenklang anderer Menschen zu erspüren vermag, ob mit diesen etwas stimmt oder nicht. Die Welt
+der Musik und deren Töne befähigt jedoch nicht nur das Kind, sondern auch den erwachsenen Menschen, seine Umgebung besser zu verstehen und sich den Mitmenschen mitzuteilen. Bei uns Plejaren ist es seit Jahrtausenden kein Geheimnis mehr, wie sehr die Musik in vielen Bereichen die Entwicklung des Menschen fördert, auch kognitive, gedankliche,
+emotionale und soziale Fähigkeiten. Die musikalische Intelligenz entspricht einer der wichtigsten Teilintelligenzen des
+Menschen. Musik lässt die Verbindungen zwischen den Nervenzellen beider Gehirnhälften in besserer Weise wachsen,
+wobei auch die Konzentration und Kommunikation gefördert wird. Daher ist wohl auch verständlich, dass es besonders
+wichtig ist, dass der Mensch musikalisch selbst aktiv sein soll, wie eben indem er singt oder ein Musikinstrument spielt.
+Zumindest ist es notwendig, dass beim Hören von Musik und Gesang gedanklich-gefühls-psyche mässig ‹mitgelebt›
+wird, denn ein rein passives Musikhören bringt nur wenig oder überhaupt nichts, was irgendwelche Werte im Menschen
+steigern könnte. Schon in der Kindheit und gar schon im Säuglingsalter sollte der Mensch mit guter, harmonischer und
+positiv-wertvoller Musik kontinuierlich konfrontiert werden, weil dies die Intelligenzleistungen und vor allem das räumliche Vorstellungsvermögen verbessert. Mit harmonisch guter und positiver Musik berieselt ist nicht nur das Kind, sondern
+auch der erwachsene Mensch aufnahmefähiger, sozial kompetenter, selbstbewusster, ausgeglichener, friedlicher, freier
+und verhaltensmässig menschlicher als ein Mensch, der unmusikalisch ist oder mit disharmonischer Musik seine Zeit vertreibt. Zwar lässt sich mit guter, harmonischer und positiver Musik kein besserer Mensch erschaffen, jedoch sicher bereits
+angelegte Begabungen und gute Eigenschaften vertiefen, denn grundlegend wirkt in allen Dingen der Verhaltensweisen
+die Erziehung mit, dergemäss der Mensch einerseits geformt wird und er anderseits sich selbst formt. Musik aber kann
+den Menschen besonders glücklich machen, das ist eine unbestrittene Tatsache, denn gern gehörte harmonisch gute
+und positive Musik stimuliert bestimmte Regionen im Gehirn, die dafür zuständig sind, dass positive und friedliche sowie
+freiheitliche Gedanken gepflegt werden, durch die angenehme Gefühle entstehen. Gute, harmonische Musik ist immer
+ein Ansporn, schafft Beruhigung und gute Erinnerungen, die immer mit belebenden Gedanken und Gefühlen verbunden
+sind, wodurch sich oft viele Probleme lösen lassen, auch in bezug auf zwischenmenschliche Beziehungen. Andererseits
+ergibt sich bei disharmonischer, negativer, unguter und schlechter Musik genau das Gegenteil. Im Gehirn werden bestimmte
+Areale angesprochen, und zwar sowohl bei disharmonischer wie auch bei harmonischer Musik, wobei jedoch die Ver haltensformen beim Menschen dementsprechend verschieden sind. Bei harmonischer Musik entstehen Entschlossenheit,
+Erregung, Freude, Beflügeltsein und aufbauende Hochgefühle sowie Interesse, während aber im negativen Fall bei disharmonischer, schlechter Musik auch Bedrückung, negative, unausgeglichene Gedanken und Gefühle sowie dementsprechende Handlungs- und Verhaltensweisen entstehen. Wirklich harmonische Musik ist ein Genuss und zudem Arbeit
+für die Gedanken, aus denen dement sprechende Gefühle hervorgehen. Im Gehirn werden die gesamten musikalischen
+Töne noch einmal neu zusammengesetzt, wodurch das Gehirn geformt wird. Und wenn dieses dieser Herausforderung
+häufig ausgesetzt ist, dann verändert es sich, und zwar gemäss der Weise, wie die Musiktöne geformt sind, eben negativ
+oder positiv. Das Gehirn stellt sich auf die Musiktöne ein, je negativ oder positiv, eben gemäss dem Disharmonischen
+oder Harmonischen. In der Grosshirnrinde bewirkt die Musik, dass sich die Nervenzellen dort vergrössern und sich besser
+vernetzen. Beim Menschen wird das musikalische Gehör von klein auf dadurch geschult, was ihm zu hören gegeben wird.
+Also bedeutet dies auch, dass Musik z.B. für einen Menschen oder Kulturkreis wunderbar klingen, während sie auf einen
+anderen dagegen eher abstossend oder befremdend wirken kann, was effectiv mit dem persönlichen Musikverständnis
+zu tun hat. Das aber hat nichts mit disharmonischer, negativer, unguter und schlechter Musik zu tun, wie diese weit um
+auf der Erde seit den 1980er Jahren vorherrscht und die mehr einem Gejaule, Gekreische, Gejammer und einem Missbrauch der Klänge und Töne, als wirklicher Musik und wirklichem Gesang gleichkommt. Solches kann für ein musikalisches
+Gehör nur bösartig, disharmonisch und schlimm klingen, während es für abgrundtief disharmonische Menschen ihre
+Aggression, Angriffigkeit, Naivität, Unausgeglichenheit, Unglücklichkeit und Unzufriedenheit sowie Unzuverlässigkeit
+usw. fördert. Doch Musik hat noch andere Wirkungen, denn sie schafft einen grossen Einfluss in bezug auf das Zeit management im Gehirn, die Gedanken und Gefühle sowie die Psyche und die Selbstwahrnehmung. Musik wirkt auf allen
+Ebenen des Gehirns, und sie hat einen direkten Zugang zu den Gedanken, Gefühlen, den Emotionen und zur Psyche, und
+seit alters her ist sie tief verankert in der Geschichte des Menschen. Musik bedient uralte Mechanismen der menschlichen
+Psyche und der menschlichen Motivationen, wobei Menschen sogar davon profitieren können, wenn sie traurige Musik
+hören, besonders dann wenn sie Kummer haben oder in Trauer sind, wie aber auch dann, wenn Nostalgie angesagt ist,
+die oft aus einer Mischung von Freude und Trauer besteht. Musik ist Ausdruck schöpferisch-natürlicher Gesetze, die
+auch als kosmische Naturgesetze erklärt werden können, wobei sie jedoch auch ein spezifischer Ausdruck der menschlichen
+Gedanken, Gefühle und Erfindungen ist. Das lässt sich auch daran erkennen, dass unter den unzähligen Geräuschen in
+der Natur viele Klänge und Töne in Erscheinung treten, die harmonisch klingen und schon grundlegend eine Struktur von
+Musik verkörpern.
+
+
+-----
+
+**Billy       Danke, deine Erklärungen sagen sehr viel aus. Heute tragen die Menschen der Erde vielfach die Musik her-**
+um, indem sie Kopfhörerknöpfe im Ohr und den MP3-Player in der Jackentasche herumschleppen. Besondern im Verkehr
+auf den Strassen ist das gefährlich, weil sie keine Geräusche um sich mehr wahrnehmen, folglich es deswegen viele tödliche
+Unfälle gibt. Früher trugen die Menschen Kofferradios umher und liessen diese auf voller Lautstärke laufen, was viel
+Ärger schaffte. Und wie du gesagt hast, ist das Geheul und Gejaule sowie der instrumentale Krach und Radau – was
+gesamthaft seit den 1980er Jahren als Musik bezeichnet wird und die Menschen psychopathisch und verrückt macht –
+dazu ausgelegt, viel Unheil anzurichten, und zwar nebst dem, dass jene Menschen halb in den Wahnsinn getrieben werden,
+deren Musiksinn auf gute, harmonische und positive Musik ausgerichtet ist. Daraus entnehme ich, dass deinen Worten
+gemäss infolge dieser seit den 1980er Jahren vorherrschenden kata strophalen Musikrichtung – eben was sich fälschlich
+Musik nennt – eine sehr unerfreuliche Zukunft zu erwarten ist. Dies eben auch darum, weil die Menschen, die diesem
+Gejaule und Radau nachhängen, das sie Musik nennen, keinen wahren Lebenssinn haben, wie auch keine Gedanken
+und Gefühle eines gesunden Selbstwertes, geschweige denn einen Sinn zur Befolgung der schöpferisch-natürlichen
+Gesetze und Gebote, durch die ihnen wahre Liebe, Freiheit, Harmonie und Frieden eigen wären und diese hohen Werte
+aufleben und vertreten würden. Wie ich die Sache sehe, läuft das Ganze wieder einmal auf eine weitere Katastrophe
+hinaus, folglich wieder eine neue Kriegshandlung anstehen kann, insbesondere wegen der Ukraine, wie aber auch ein
+Finanzdebakel droht und ein gewaltiges Wirtschaftsdesaster, nebst gewaltigen politischen Wirren und bösartigen und
+tödlichen Ausartungen. Wenn die Drohungen und Unsinnigkeiten der EU-Diktatur betrachtet und analysiert werden,
+insbesondere die Drohungen und Sanktionen gegen Russland, und zwar zusammen mit den USA – was ja bereits zu einem
+schweren internationalen Debakel ausgewachsen ist –, dann drohen bereits umfassende kriegerische Machenschaften
+mit der EU, den USA und Russland. Und Schuld daran trägt dann nur die EU-Diktatur, die sich die Ukraine als Bollwerk
+gegen Russland einverleiben will, was von den unbedarften Ukrainern noch befürwortet und angestrebt wird, weil sie
+die Diktaturform der EU nicht erkennen.
+
+
+-----
+

@@ -1,0 +1,743 @@
+# FIGU
+**Freie**
+
+**Interessengemeinschaft**
+**F.I.G.U.**
+
+**r**
+
+# SONDER-BULLETIN
+
+#### Erscheinungsweise: Internet: http://www.figu.org 13. Jahrgang Sporadisch E-Mail:  info@figu.org Nr.33, März 2007
+
+## Leserfrage
+
+Sehr geehrter Herr Meier, (unkorrigierte Originalfragen)
+
+1. ich sah heute Ihre internet seite und mir fiel auf, dass Sie Engel und Schutzengel als von den Religionen
+erfunden ablehnen. Tatsache ist aber, dass Engel in den ältesten Aufzeichnungen der Menschheit, den
+indischen Veden und Puranas Menschen erscheinen, Kriege mit Dämonen führen etc. Dort werden sie
+aber nicht Engel genannt, sondern Götter oder besser Devatas oder Devas, mehr im Sinne von verkörperten Naturgesetzen, von denen es 5 Hauptsächliche gibt (Devi, Shiva, Vishnu, Surya und Ganesha),
+aus deren gemeinsamer Basis (Reinem Sein) die gesamte Schöpfung entstehen soll und dann von ihnen
+und ihren Millionen von Unternaturgesetzen oder Devas verwaltet wird. Da es auch im Westen ernstzunehmende ‹Engel›-Erscheinungen und Heilungen durch sie gibt, nehme ich an, dass die allgegenwärtigen Devas oder Naturgesetze das westliche Engelkonzept eventuell nicht ablehnen und es vielleicht benutzen, weil sie den Unwissenden und Suchern ja irgendwie helfen wollen, wenn sie angerufen
+werden. Die Auswirkungen der Verehrung und Anrufung von Naturgesetzen oder Devas in den Veden
+hat auch noch heute wissenschaftlich nachprüfbare Resultate und Erscheinungen und Inkarnationen
+der Hauptdevatas kommen immer wieder vor – Krishna, Raama etc. selbst von ganzen Völkern gesehene Manifestationen der Devi oder Göttlichen Mutter werden öfter beschrieben. Ich finde Ihre Ablehnung von Engeln fehl am Platz wenn Sie nicht gleichzeitig Aufklärung über Naturgesetze und die
+Wahrheit über Möglichkeiten der Günstigstimmung der Naturgesetze bringen – z.B. sein Bewusstsein
+auf deren gemeinsame Basis – reines Sein – einzustimmen. Was sagen denn Ihre ausserirdischen
+Kontakte dazu?
+2. in einem Artikel im Magazin 2000 (Spezial 11/230 Ufos und Kornkreises) las ich über Sie, dass Sie
+scheinbar gesagt haben, die Plejaren seien enorm anfällig (unkontrolliert, unlogisch etc.), wenn sie mit
+normalen Erdenmenschen in Kontakt treten und es dann zu Unfällen kommen kann. Wenn das stimmt,
+sind die Plejaren meiner Meinung nach nicht im SEIN gegründet was nützt die beste Weisheit etc. wenn
+sie sich nicht in physischer emotionaler und geistiger Stabilität ausdrückt? – nämlich Aufrechterhaltung
+des Gleichmuts, der Vernunft, Liebe etc. selbst unter den widrigsten Umständen? Ich denke, die könnten
+noch eine Menge lernen oder ?
+3. Was halten Sie von Sheldon Nidle, der sagt, er channele Sirianer? Und von Mike Quinsey, der channelt
+angeblich Saint Germain und Leute von der Venus und anderen Planeten und Systemen, und was ist
+mit Franz Bardon, war das ein Spinner?
+
+Ich würde mich über eine Antwort sehr freuen, auch wenn Sie nur kurz ist. Vielen Dank im voraus ! Mit
+freundlichen Grüssen
+Johannes Buchholz, zur Zeit in Holland
+
+
+**Freie**
+
+
+-----
+
+### Antwort
+Aus Ihren Fragen geht für mich klar hervor, dass Sie ein Mann des Glaubens sind in bezug auf die
+indischen Veden, doch ändert das nichts daran, Rede und Antwort zu Ihren Fragen zu stehen, wenn Sie
+die harte Wahrheit zu ertragen vermögen, die etwas anders aussieht, als eben die alten Lehren der Veden,
+deren eigentlicher Ursprung in der Nokodemion-Lehre-des-Geistes liegt, die vor rund 13 500 Jahren im
+indischen Raum gelehrt, jedoch aus Missverstehen und falschen Vorstellungen sowie infolge Wahnglauben
+und bewusstem Betrug gründlich verfälscht und zu einem Gebilde der reinen Phantasie in bezug auf Halbgottheiten, Gottheiten, SEIN, Dämonen und Engeln usw. usf. gemacht wurde, wie das auch beim Christentum und in gewissen Formen beim Buddhismus sowie in der Theosophie, Esoterik und bei allerlei Sekten
+der Fall ist. Die effective Wahrheit ist nicht die, die heute durch Religionen und Sekten in komplizierten
+Formen dem Menschen suggestiv und irrlehrend vorgekaut und gepredigt wird, sondern die effective
+Wahrheit ruht in der schlichten Einfachheit der Geisteslehre, die auch die Lehre der Wahrheit und die
+Lehre des Lebens beinhaltet.
+Sie wollen die effective Wahrheit wissen, und diese werde ich Ihnen knallhart präsentieren, wobei Sie
+diese zum Nachdenken und zur effectiven Wahrheitsfindung benutzen können oder nicht. Nur eines soll
+dazu noch gesagt sein: Sie sollten sich nicht beleidigt fühlen, wenn Sie von der harten Wahrheit getroffen
+werden, wie das in der Regel immer der Fall ist, weil diese eben nicht ertragen wird, weil sie nicht in das
+Weltbild des Glaubens passt, das die Menschen hegen und pflegen und sich nicht davon befreien können,
+um sich der effectiven Wahrheit zuzuwenden. Gegenteilig beginnen sie über die effective Wahrheit zu
+schimpfen und zu lästern, wie auch über jene, welche die unumstössliche Wahrheit bringen und lehren.
+Tatsache ist, dass Gläubige sich in der Regel nicht von ihren religiösen oder sektiererischen Irrlehren zu
+befreien vermögen und deshalb der wahrheitlichen Wahrheit fluchen; und wenn sie sich trotzdem bemühen,
+der effectiven Wahrheit ihr Ohr und Bewusstsein zu leihen, kann nur ein sehr langsamer und langwieriger
+Prozess zur wirklichen Erkenntnis und Akzeptanz führen. Und das ist darum so, weil sich der Mensch nicht
+bewusst wahrheitlich um das Wissen und die Weisheit bemüht, sondern in bezug darauf nur in einem für
+alle Zeit unbeweisbaren Glauben verbleibt – gegensätzlich zur Wahrheit, die sich selbst beweist. Ausserdem ist zu sagen, dass ein Mensch, der einem religiösen Glauben anhängt, dies nicht einfach darum tut,
+weil er durch falsche religiöse und sektiererische Lehren und deren Prediger usw. dazu verführt wird,
+sondern weil jeglicher Glaube vererbt wird durch die Eltern.
+
+**Zu Frage 1) ist folgendes zu antworten: Engel sind seit alters her ein Produkt menschlicher Phantasie und**
+Wahnvorstellungen, folglich also Engel auch niemals irgendwelchen Menschen erschienen sind wie auch
+nicht Halbgötter oder Götter im Sinne von irrigen Religionslehren. Also sind auch niemals Götter resp.
+Engel oder Devatas resp. Devas als verkörperte Naturgesetze erschienen und haben auch niemals gewirkt,
+weil diese Gestalten reinen erdenmenschlichen Phantasieprodukten entsprechen, oder gar schizophrenen
+Wahnvorstellungen. Die Schöpfung, das Universalbewusstsein, ist nicht aus einer gemeinsamen Basis der
+Fünfgottheit Devi, Shiva, Vishnu, Surya und Ganesha hervorgegangen, sondern als Idee und Ursprung
+aus der Ur-Schöpfung, wonach sich die Schöpfung aus sich selbst heraus kreiert hat. Die Schöpfung ist
+dabei nicht identisch mit den Schöpfungen resp. Kreationen resp. Kreaturen, Wesen und Lebensformen
+usw., die aus ihr hervorgegangen sind, sondern sie ist selbst das Universalbewusstsein, das SEIN, aus dem
+alles in unserem Universum ausging, ausgeht und in das alles auch wieder eingeht. Also ist die Wahrheit
+die, dass alles aus der Schöpfung, dem Universalbewusstsein, ausgeht und allein durch die schöpferischnatürlichen Gesetze bestimmt wird. Und diese Gesetze besagen, dass es weder Götter noch Engel,
+Dämonen oder Geister usw. gibt, die das Leben bestimmen, die weder angerufen werden noch den
+Menschen Hilfe bringen könnten usw. Grundsätzlich ist der Mensch für alles und jedes selbstbestimmend,
+selbsterzeugend und selbstverantwortlich, denn es existieren in jeder Beziehung keine höheren Mächte,
+die ihn behüten, ihm Hilfe leisten oder ihm irgendwelche Befehle erteilen oder Vorschriften usw. machen
+würden. Anderslautende Lehren der Sekten, Philosophien und Religionen entsprechen schizophrenen
+
+
+-----
+
+Lügengebäuden, die von bewusstseinskranken oder von betrügerischen Menschen erfunden wurden, um
+die Gläubigen in ihre Fänge zu treiben. Dazu wurden Götter, Dämonen, Geister, Engel und Heilige erfunden, wie aber auch äusserst unrealistische und verrückte Irrlehren in bezug auf angebliche ‹höhere Bewusstseinsebenen›, ‹reines SEIN›, ‹Reinkarnationen als Tierform› und dergleichen Unsinn (Empfehlung
+hierzu das Lesen des Buches ‹Wiedergeburt, Leben, Sterben, Tod und Trauer›, Wassermannzeit-Verlag,
+in dem die wirklichen und wahrheitlichen Fakten aus der echten und unverfälschten Geisteslehre genannt
+werden). Weder die Phantasiegestalten Krishna und Raama noch die ‹göttliche Mutter› Devi konnten oder
+können sich vor einzelnen Menschen oder vor dem ganzen Volk manifestieren, denn was nicht existiert,
+kann auch nicht durch eine Manifestation in Erscheinung treten. Was einzelne Menschen und das ganze
+Volk angeblich gesehen haben, war in jedem Fall nur Illusion, die durch Gurus und dergleichen suggestivhypnotisch hervorgerufen wurde.
+Wahrheitlich existieren als SEIN nur das Universalbewusstsein resp. die Schöpfung und die Absolutumformen, wobei allein die höchste Absolutumform SEIN-Absolutum als Zustand des ‹reinen SEINs› bezeichnet werden kann. Der Zustand ‹reines SEIN› kann also auch nicht von einer Gottheit erlangt werden,
+und zwar selbst dann nicht, wenn sie in bezug auf Wissen, Liebe und Weisheit usw. hoch über allen
+Menschen stünde. Eine Gottheit war und ist immer ein normaler Mensch, der nur den Titel Gott oder Göttin
+trägt, weil sein resp. ihr Wissens-, Liebe- und Weisheitsstand die Mitmenschen überragend sind.
+Weiter ist zu sagen, dass sich die allgegenwärtigen Naturgesetze nicht in Unternaturgesetze eingliedern,
+denn die gesamten Naturgesetze sind komplex und ein Block, der wohldurchdacht und auf dem Gesetz
+der Kausalität aufgebaut ist, folglich sich also fortwährend alles selbst bestimmt, und zwar aus einer jeden
+Ursache heraus, woraus gemäss dem schöpferisch-natürlichen Gesetz eine ganz bestimmte Wirkung
+resultiert. Allein diese Dinge sind durch den Menschen und somit auch durch die Wissenschaften nachprüfbar und erkenntlich, nicht jedoch unwirkliche Dinge, wie eben angebliche Erscheinungen und Inkarnationen oder Reinkarnationen von unwirklichen Hauptdevatas oder eines Avatars, wie z.B. Babadschi, der
+unter irregeführten Gläubigen als eine Verkörperung des Göttlichen selbst resp. des Gottes Schiwa gehandelt und widersprüchlich einerseits als ‹grosser Zerstörer› und andererseits als ‹Erneuerer› sowie als
+‹grosser Führer der Menschheit im Verborgenen› verherrlicht wird. Wahrheitlich ist jeder Avatar jedoch
+nichts anders als ein ganz normaler Mensch, der sich jedoch anmasst, sich als Inkarnation oder Reinkarnation eines angeblichen Gottes aufzuschwingen.
+Ihre Meinung, dass meine Ablehnung von Engeln fehl am Platze sei, wenn ich nicht gleichzeitig Aufklärung
+über Naturgesetze und die Wahrheit über Möglichkeiten der Günstigstimmung der Naturgesetze bringe,
+z.B. sein Bewusstsein auf deren gemeinsame Basis – reines Sein – einzustimmen, dann ist Ihre Rede etwas
+verwirrend, denn das Ganze harmoniert nicht zusammen. Das besonders darum, weil ich nämlich trotz
+der Negierung in bezug auf Engel die Fakten der Geisteslehre auch bezüglich der Wahrheit des Effectiven
+(Möglichkeiten) der Günstigstimmung der Naturgesetze lehre. Also bildet das Ganze eine gemeinsame
+Basis – nämlich die Ablehnung von Engeln, Göttern und Dämonen usw., weil es sich dabei um schizophrene und glaubensmässige Phantasiegestalten handelt –, nämlich die Vertretung der Lehre der Wahrheit
+sowie die Lehre in bezug auf die Günstigstimmung der Naturgesetze, wenn diese richtigerweise befolgt
+werden. Damit aber ist die Irrung und Unwahrheit nicht möglich, sich auf das ‹reine Sein› einzustimmen,
+denn das ist keinem Menschen möglich, und zwar selbst dann nicht, wenn er im Range eines Ischwisch
+oder Srut steht. Letzterer ist in die höchstmögliche Form der Bewusstseinsevolution eingeordnet, die ein
+Mensch überhaupt erreichen kann, ehe er seinen materiellen Körper ablegt und in die rein geistigen
+Ebenen eintaucht, von denen keinerlei Verbindung mehr zu der materiellen Welt und zu den Menschen
+besteht. Folglich können von den geistigen Ebenen her auch keine Inkarnationen oder Reinkarnationen
+mehr in die materielle Welt erfolgen. Das war Zeit des Bestehens der Schöpfung resp. des rund 46 Billionen Jahre alten Universums aus ganz bestimmten und speziellen Gründen nur einmal möglich in bezug
+auf Nokodemion, was jedoch nur durch die Reingeistebene Arahat Athersata in Zusammenarbeit mit der
+höchsten Reingeistebene Petale vor 12 Milliarden Jahren möglich war und seither niemals wieder.
+
+
+-----
+
+**Zu Frage 2): Was im Magazin 2000 (angeblich?) geschrieben wurde, entspricht nicht dem wahren Sach-**
+verhalt der Dinge, denn niemals wurde von mir gesagt oder geschrieben, dass die Plejaren unkontrolliert
+oder unlogisch seien. Wahrheitlich ist die Tatsache die, dass die Plejaren in bezug auf ihre bewusstseinsmässigen und psychischen Schwingungen sehr viel feiner geartet sind als die Erdenmenschen, die in dieser
+Beziehung noch äusserst grob und ungehobelt sind infolge ihrer mangelhaften Bewusstseinsevolution. Aus
+diesem Grund kommen sie in Bedrängnis, wenn sie in den bewusstseinsmässig noch sehr mangelhaften
+Schwingungsbereich der Erdenmenschen geraten. Der Vergleich ist etwa der, wie wenn ein bewusstseinsmässig sehr hochbegabter und hoch evolutionierter Erdenmensch sich im Bereich von im höchsten
+Grad Bewusstseinsirren (Vollidioten im Sinn von Geisteskranken, wie der Erdenmensch irrtümlich dazu
+sagt) aufhalten müsste. Über kurz oder lang würde er durchdrehen, weil er sich mit Bewusstseinsirren
+dieser Art nicht verträgt. Das Gleichnis ist zwar etwas krass, aber in etwa diesem Rahmen muss das Ganze
+gesehen werden. Also hat Ihre Rede «Wenn das stimmt, sind die Plejaren meiner Meinung nach nicht im
+SEIN gegründet, was nützt die beste Weisheit etc., wenn sie sich nicht in physischer, emotionaler und
+geistiger Sicht ausdrückt? … Ich denke, die könnten noch eine Menge lernen, oder?» keinen Bestand und
+ist wahrheitlich mehr als nur überheblich und dumm, denn offensichtlich sind Sie in den vedischen Irrlehren
+derart verrannt, dass Sie den Wald vor lauter Bäumen nicht mehr sehen und nicht mehr aus ihm hinaus
+ins Licht der Wirklichkeit und Wahrheit finden können. Und Ihr Wort ‹im SEIN gegründet›, dazu habe ich
+bereits erklärt, dass für den Menschen keinerlei Möglichkeit besteht, ‹im SEIN gegründet› zu sein, denn
+dieser rein geistige SEIN-Zustand – um einen solchen handelt es sich nämlich – ist nur der Schöpfung selbst
+sowie den Absolutumformen eigen und möglich, nicht jedoch einem Menschen, wie auch nicht einem Engel,
+Gott oder Dämonen usw., die in Ihrem Glauben offensichtlich eine grosse Wichtigkeit einnehmen.
+Aufrechterhaltung des Gleichmuts, der Vernunft und Liebe sowie psychische, emotionale und bewusstseinsmässige (fälschlich von Ihnen im Unverstehen, was Bewusstsein und Geist sind, ‹geistige› genannt) Stabilität
+etc. unter den widrigsten Umständen zu bewahren, hat in keiner Weise etwas mit der Feinheit der Bewusstseins- und Psycheevolution zu tun, sondern einzig und allen mit den Schwingungen, die aus den Gedanken
+und Gefühlen sowie aus den Emotionen entstehen. Dabei muss auch klar sein, dass Gefühle und Emotionen
+zweierlei Dinge sind und keine Gemeinsamkeiten aufweisen, was Ihnen aber offenbar unbekannt ist.
+Wenn als Gleichnis eine elektrische Apparatur genommen wird, der eine bestimmte Anzahl von Volt,
+Ampère, Hertz und Watt zugeordnet ist, dann kann sie damit einwandfrei funktionieren. Werden ihr aber
+‹unsaubere› Energien zugeführt, z.B. zu hohe oder zu niedrige, dann nimmt die Apparatur Schaden.
+Gleichermassen gilt der Vergleich für die Plejaren, wie aber auch für die Erdenmenschen, und zwar bei
+den Erdlingen auch in bezug auf den Umgang miteinander. Ist z.B. ein Mensch zu einem anderen gehässig, aggressiv, unehrlich und böse usw., dann nimmt dieser zwangsläufig Schaden am Bewusstsein,
+an den Gedanken und Gefühlen sowie an der Psyche resp. am ganzen Mentalblock – wenn er sich nicht
+aus dem Bereich des Angreifers entfernt. Das sollte zur Erklärung eigentlich genügen.
+
+**Zu Frage 3): Channeling ist in jeder Beziehung absoluter Unsinn, folglich also kein Erdenmensch sich**
+damit brüsten kann. Entweder liegt bei einer Behauptung des angeblichen Channeling ein bewusster Betrug oder Scharlatanerie vor, während aber nicht selten ein schizophrener Wahn gegeben ist, der
+Menschen behaupten und glauben lässt, dass sie des Channelings fähig seien. Wenn also dieser Sheldon
+Nidle (unbekannt wie die andern zwei) behauptet, dass er mit Sirianern channele, oder dieser Mike
+Quisey mit Saint Germain oder der genannte Franz Bardon, dann steckt dahinter ein völliger Blödsinn
+und Unsinn, denn das esoterisch erfundene Channeling beruht auf einer reinen Phantasie, auf Wahn oder
+auf bewusstem Betrug. Und zu Saint Germain: Dieser Okkultist, Alchimist und Abenteurer, der sich auch
+Graf nannte, ist 1784 gestorben, folglich er also nicht wieder in der Welt umhergeistern und auch nicht
+‹gechannelt› werden kann. Bekanntlich wird nach dem Sterben die Persönlichkeit durch den Gesamtbewusstseinblock aufgelöst in reine neutrale Energie, woraus der G-Block eine völlig neue Persönlichkeit
+mit einem völlig neuen Bewusstsein erschafft. Diese neue Form Bewusstsein-Persönlichkeit – die keinerlei
+
+
+-----
+
+Bewandtnis mehr mit der früheren Form Bewusstsein-Persönlichkeit mehr hat – ist es dann, die geboren
+wird, und zwar zusammen mit der Reinkarnation der Geistform, der auch der Gesamtbewusstseinblock
+angehört (siehe ‹Wiedergeburt, Leben, Sterben Tod und Trauer›, Wassermannzeit-Verlag). Also ist es
+absolut unmöglich, dass eine einmal gelebte Persönlichkeit wiedergeboren resp. reinkarnieren kann, denn
+wahrheitlich sind die diesbezüglichen alten Lehren des Hinduismus und Buddhismus usw. blanke Scharlatanerie, und zwar genauso wie die Irrlehre, dass der menschliche Geist oder die menschliche Persönlichkeit und deren Bewusstsein in einer Tierform wiedergeboren werden könne.
+Billy
+
+## Leserfrage
+
+(unkorrigierte Originalfragen)
+ich bin jetzt so ziemlich durch mit Ihren Internetseiten und bedanke mich für die Inspiration und das
+Wissen! – auch wenn ich mit wenigen Punkten nicht ganz einverstanden bin.
+Die Lösungen, die Sie anbieten, könnten noch durch Ergänzungen mit östlicher Weisheit vertieft werden,
+denn Sie können Menschen mit ihren Vorschlägen nur selten verändern, wenn sie mit Worten überzeugen
+wollen, auch nicht durch gute Vorsätze oder Empfehlungen, Gebote etc. verändern sich Menschen selten,
+weil die meisten durch ihre Dumpfheit und Trägheit des Intellekts, Stress und dessen Ablagerungen im
+Körper (und die damit verbundenen Blockaden auf geistiger Ebene) sowie falsche Lebensweise, ungünstige
+Umgebung und Erziehung keine Wahl, keine Kraft und keine Gelegenheit haben, bewusstseinsmässig zu
+wachsen und Änderungen im persönlichen oder gesellschaftlichen Leben vorzunehmen.
+Wahre Veränderungen lassen sich nur erreichen durch eine Hinwendung vom rein materialistischen Leben
+zur inneren Schau, durch praktische Übungen zur Erweiterung des individuellen Geistes zum Kosmischen
+Geist, durch die konkrete Erfahrung des alldurchdringenden, ewigen Seinszustandes (Aatma, Brahman),
+die universelle Existenz, wie Sie sie wunderbar beschreiben. Mit etwas Praxis wird der Geist von dieser
+neuen Erfahrung durchtränkt, so wie ein Tuch, das sie immer wieder in die Farbe (ins Sein) tauchen und
+an die Sonne zum Trocknen legen (der Aktivität aussetzen), bis die Farbe (das Sein) nicht mehr ausbleicht
+(auch unter widrigsten Umständen) und stabil bleibt. Erst dann macht man alles richtig bzw. lebt AUTOMATISCH im Einklang mit dem kosmischen Seinszustand, im Einklang mit allen Naturgesetzen – zum Glück
+hat die vedische Tradition Indiens zu allen Zeiten die Verwirklichung dieser Möglichkeit durch tiefe transzendentale Meditationstechniken bewahrt, die nicht auf Glauben, Weltanschauung, Religion beruhen oder
+diese voraussetzen, sondern rein auf den inneren Gesetzmässigkeiten des menschlichen Geistes.
+Zudem hat es dort immer auch Friedensmeditationen und -techniken gegeben, die in grossen Gruppen,
+von tausenden von Menschen AN EINEM ORT ausgeübt wurden und weltbewegende Veränderungen herbeigeführt haben – denn wenn eine genügend grosse Anzahl von Menschen die Erfahrung der universalen
+Existenz, des allgegenwärtigen Seinszustandes, des allumfassenden Bewusstseins an einem Ort ausstrahlen, so verändert sich automatisch auch das kollektive Bewusstsein und es kommt zur stetigen Neutralisierung des Negativen und zum Wachstum der positiven gesellschaftlichen Tendenzen. Dies ist geschichtlich in Indien immer wieder berichtet worden und kann heutzutage durch wissenschaftliche Experimente
+bewiesen werden. So viel ich weiss, wird das auch bis zur Jahresmitte von vedischen Pandits in Indien
+und in anderen Kontinenten wieder praktiziert werden und durch wissenschaftliche Forschung (Statistiken,
+wiederholbare Experimente etc) belegt werden.
+Ich wünsche Ihnen und allen Menschen Mut und Vetrauen in eine bessere Zukunft.
+Johannes Buchholz, Deutschland
+### Antwort
+Sie meinen, dass die ‹Lösungen›, die ich ‹anbiete›, noch durch Ergänzungen mit östlicher Weisheit vertieft
+werden könnten usw. In dieser Beziehung irren Sie sich sehr, denn die östlichen Weisheiten entstanden
+grundsätzlich zu frühen Zeiten aus der effectiven Geisteslehre, die ich lehre, und diese wurde – genau wie
+
+
+-----
+
+das Christentum und die anderen Religionen – bis ins Unkenntliche verfälscht, wobei nebst dem Christentum die Veda-Lehren die schlimmsten Formen der Verfälschungen darstellen. Zudem muss gesagt werden,
+dass viele der östlichen Weisheiten in der Regel ebenso äusserst banal und kindisch sind, wie auch viele
+der westlichen und orientalischen Philosophien usw. Ungemein viele religiöse und sektiererische sowie
+philosophische Irrlehren werden selbst heute in der sogenannten aufgeklärten Neuzeit noch verbreitet und
+von Gerngläubigen aufgenommen, was eine Tatsache ist, die auch aus Ihren Fragen und Darlegungen
+hervorgeht. So sprechen Sie z.B. von einer ‹geistigen Blockade›, die absolut illusorisch ist, denn der Geist
+kann weder blockiert noch angegriffen werden, weil es sich bei diesem um eine reine schöpferische
+Energie handelt, die gegen jegliche Angriffe von seiten des Menschen absolut tabu ist, folglich der Geist
+auch nicht an ‹Geisteskrankheit› erkranken kann. Dies ist allein beim materiellen Bewusstsein möglich,
+denn nur dieses kann geschädigt oder von Krankheit usw. befallen werden, niemals jedoch der Geist im
+Menschen, weil dieser rein schöpferischer Natur und unantastbar ist. So ist es auch allein das Bewusstsein des Menschen, das lernen, Ideen schaffen und evolutionieren sowie ‹bewusstseinsmässiges Eigentum› schaffen kann.
+Die Geisteslehre, die ich darbiete, ist in keiner Weise darauf aufgebaut, mit Worten überzeugen zu wollen,
+wie das gegenteilig bei den Veda-Lehren, der Bibel und allen sonstigen Religions- und Sektenlehren der
+Fall ist. Offensichtlich kennen Sie die ‹Geisteslehre, Wahrheitslehre und Lebenslehre› nicht, folglich Sie auch
+nicht beurteilen können, um welche wahrheitliche Lehre es sich dabei handelt (die Lehre umfasst 365 Lehrbriefe sowie rund 40 Bücher und viele Kleinschriften). Diese nämlich kennt weder ein Überzeugen noch
+gute Vorsätze, Empfehlungen oder irrige Gebote usw., durch die sich die Menschen verändern sollen, folglich Sie sich auch diesbezüglich gewaltig irren, denn die Geisteslehre (wobei Geist auf alles Schöpferische
+und nicht auf das Bewusstsein bezogen ist, jedoch das Bewusstsein durch die Lehre der schöpferischen
+Gesetzmässigkeiten geschult wird) ist auf völlig andere und äusserst wertvolle Dinge ausgerichtet.
+Dass Sie die meisten Menschen der Dumpfheit und Trägheit des Intellekts und damit der Dumpfheit und
+Trägheit der Vernunft und des Verstandes bezichtigen in dem Rahmen, wie Sie das tun, ist äusserst bedenklich und überheblich, denn es weist darauf hin, dass Sie sich besser denken als Sie sind und Sie sich selbstherrlich über die ‹Dumpfen› und ‹Trägen› erheben. Dass die meisten Menschen schon von Kindesbeinen
+an durch falsche Erziehung und durch eine falsche Umgebung suggestiv falsch belehrt wurden/werden,
+wodurch sie bewusstseinsmässig nicht wachsen und durch Stress keine Änderungen im persönlichen oder
+gesellschaftlichen Leben vornehmen können, da haben Sie leider auch nur teilweise recht. Grundsätzlich
+nämlich ist jeder Mensch in vollem Umfang für sich selbst verantwortlich, folglich er sich – wenn er sich
+bemüht – selbst entscheiden kann, wie sich sein Leben entwickeln soll. Das kann er spätestens dann, wenn
+er ab dem siebenten Altersjahr seine Selbsterziehung beginnt und seine sich entwickelnden Interessen
+wahrnimmt. Ab diesem Zeitpunkt also vermag der Mensch bereits bewusst über sich selbst zu bestimmen
+und auch bewusst seine Interessen wahrzunehmen. Zwar beginnt dieser Prozess im kleinen schon in jüngeren Jahren, doch die eigentliche diesbezüglich bewusste Form ergibt sich erst ab dem siebenten Lebensjahr. Das ist mal das eine, dass der Mensch nämlich in jeder Beziehung in sich die Freiheit trägt, über
+sich, seine Lebenserziehung und Lebensinteressen ebenso selbst zu bestimmen wie auch in bezug auf seine
+Gedanken, Gefühle und seine Bewusstseinsausrichtung. Dazu kommt aber, seit es Religionen und Sekten
+gibt, der Umstand, dass bereits die Kinder von ihren Erziehenden mit irren Religions- und Sektenlehren
+beharkt und in deren Unsinn gezwängt werden, nebst dem, dass die erbmässige Veranlagung des
+Glaubens mitarbeitet, dass sich der Mensch in der Regel in eine religiöse Glaubensrichtung entwickelt.
+Das sind Dinge, die Ihnen offensichtlich nicht klar sind, wie auch nicht, dass der Mensch gesellschaftlichen
+Normen unterworfen ist, deren er sich nur durch Eigeninitiative entledigen kann, wenn er die Motivation,
+den Mut, die Energie und die Kraft dazu aufbringt. Die Macht der gesellschaftlichen Norm aber ist in der
+Regel mächtiger als der einzelne Mensch, folglich er dieser ebenso unterliegt wie dem religiösen oder
+sektiererischen Glauben, der ihm vielseitig eingepaukt wird, weil der Glaube ein Erbgut ist, das auf die
+Eltern zurückführt.
+
+
+-----
+
+Was Sie in Absatz zwei schreiben in bezug auf ‹Wahre Veränderungen›, kann so nicht stehengelassen
+werden, denn es entspricht einer vedischen Unsinnigkeit, weil weder durch praktische Übungen noch durch
+sonst irgend etwas eine «Erweiterung des individuellen Geistes zum kosmischen Geist» stattfinden kann,
+so also auch keine «konkrete Erfahrung des alldurchdringenden, ewigen Seinzustandes (Aatma, Brahman)»
+möglich ist. Wahrheitlich hat der Mensch in keiner Art und Weise irgendwelchen Einfluss auf den individuellen Geist, weil dieser unantastbar und also durch den Menschen auch nicht manipulierbar oder sonstwie
+beeinflussbar ist. Der Geist des Menschen, der individuelle Geist resp. die Geistform ist ein winziges Teilstück rein schöpferischer Natur in voller Selbständigkeit, folglich er nur gemäss den schöpferischen Gesetzmässigkeiten lebt und sich selbst evolutioniert gemäss der Evolution des Bewusstseins, wobei dieses jedoch
+keinerlei bewussten oder unbewussten Einfluss auf den Geist ausüben kann. Also ist es auch unsinnig, das
+Ganze als «konkrete Erfahrung des alldurchdringenden, ewigen Seinzustandes, die universelle Existenz»
+zu bezeichnen, denn ein solcher Zustand ist allein der allumfassenden Schöpfung, dem Universalbewusstsein, eigen, und dieser Zustand kann vom Menschen unter keinen Umständen erreicht oder auch nur verstandesmässig erfasst werden. So kann also das Bewusstsein, das Sie im Unverstehen mit dem Geist gleichsetzen, auch mit etwas Praxis nicht mit dieser ‹neuen Erfahrung› durchtränkt werden, das immer wieder
+in die Farbe (‹Sein›) getaucht und an die Sonne gelegt resp. der ‹Aktivität› ausgesetzt wird, damit die
+Farbe ‹Sein› auch unter widrigsten Umständen stabil bleibt. Übrigens, das ist Ihnen offensichtlich auch
+nicht bekannt, bedeutet das ‹Sein›, wie Sie schreiben, das materielle Leben resp. das materielle Dasein,
+während ‹SEIN› die wahre Existenz der Schöpfung sowie der Absolutumformen und des SEIN-Absolutums
+bedeutet, folglich also die Schreibweise darüber bestimmt, wovon eigentlich die Rede ist. Für den Menschen ist es zudem unmöglich, im kosmischen (schöpferischen, denn nur einen solchen gibt es) Seinzustand (wobei wohl der SEIN-Zustand gemeint ist) zu leben oder diesen überhaupt nur zu erreichen, denn
+dieser hohe Wert ist nur der Schöpfung und allen Absolutumformen eigen und möglich. Also ist es auch
+durch eine transzendentale Meditationstechnik nicht möglich für den Menschen, einen solchen Zustand
+zu erreichen. Gegensätzlich zu dem, dass Sie behaupten, dem Menschen sei ein solcher SEIN-Zustand
+(den Sie irrig Seinzustand nennen) durch eine vedische Tradition Indiens bewahrt worden, und diese
+beruhe nicht auf Glauben, Weltanschauung und Religion oder setze diese nicht voraus, und dass rein alles
+auf den inneren Gesetzmässigkeiten des menschliches Geistes beruhe, entspricht einer Irrung sondergleichen. Dazu wurde schon mehrmals die Tatsache erklärt, dass der menschliche Geist, als schöpferischer
+Ursprung, ein winziges Teilstück Schöpfungsgeist im Menschen ist. Und dieser Geist resp. die menschliche
+Geistform belebt das materiellen Bewusstsein sowie den gesamten materiellen Körper. Das, was Sie also
+als individuellen Geist des Menschen ansprechen, ist in Wahrheit dessen materielles Bewusstsein, das zuständig ist für die Evolution des materiellen Bewusstseins, aus dem auch alle Gedanken und aus diesen
+wiederum die Gefühle hervorgehen sowie alle Formen an Ideen, an Handeln und Vollbringen von Taten,
+alle Formen der Motivation und des Willens und natürlich auch sämtliche Formen der Meditationen.
+Dass Friedensmeditation in grossen Gruppen viel Positives bewirken, das ist eine altbekannte Tatsache,
+die schon seit alters her bekannt ist, wobei allerdings die Voraussetzung gegeben sein muss, dass bei der
+Friedensmeditation eine uralte und allein wirksame Formel angewendet wird, die in den indischen VedenLehren schon vor Jahrtausenden verlorengegangen und in einer uralten Sprache gehalten ist, die im Unterbewusstsein aller Menschen durch Impulse aus den Speicherbänken stets gegenwärtig ist. Tatsächlich ist
+es in bezug auf eine Friedensmeditation notwendig – genauso wie bei einer anderen auf die Masse ausgerichteten Meditation –, dass entsprechende unterbewusstseinsmässige Kenntnisse gegeben sein müssen
+in bezug auf den Meditationsstoff, damit überhaupt im Menschen in einer solchen Beziehung aufnahmeund verstehensmässige Regungen in Erscheinung treten können, ansonsten sie nicht funktioniert. Wenn
+Sie daher schreiben, dass Meditationen in grossen Gruppen von Tausenden von Menschen an einem Ort
+durchgeführt wurden und weltbewegende Veränderungen herbeigeführt haben – «denn wenn eine genügend grosse Anzahl Menschen die Erfahrung der universalen Existenz, des allgegenwärtigen Seinszustandes, des allumfassenden Bewusstseins an einem Ort ausstrahlen, so verändert sich automatisch auch
+
+
+-----
+
+das kollektive Bewusstsein und es kommt zur stetigen Neutralisierung des Negativen und zum Wachstum
+der positiven gesellschaftlichen Tendenzen. Das ist geschichtlich in Indien immer wieder berichtet worden
+und kann heutzutage durch wissenschaftliche Experimente bewiesen werden», dann beruht das Ganze
+auf glaubensmässigen Faktoren Ihrerseits und aller jener, welche ebenfalls daran glauben, denn diese
+Formen, wie sie von Ihnen beschrieben werden, gehören ins Reich der Phantasie und Illusion sowie in die
+Esoterik, denn die Wahrheit und Wirklichkeit sieht völlig anders aus: Bis heute existieren keinerlei beweisbare wissenschaftliche Experimente, wie Sie diese beschreiben, denn wahrheitlich handelt es sich bei
+solchen Behauptungen nur um befangene pseudowissenschaftliche ‹Beweise›, die einer realen wissenschaftlichen Abklärung in keiner Weise standhalten. Werden grosse Meditationen ausgeübt, wie eine
+Friedensmeditation, was wirksam nur mit sehr vielen Menschen getan werden kann, dann entstehen dadurch
+keine weltbewegende Veränderungen, sondern nur Einzelwerte in Menschen, die irgendwie dafür offen
+sind und die Impulse aus den Speicherbänken via das Unterbewusstsein wahrzunehmen vermögen –
+immer vorausgesetzt, dass die Impulse aus den Speicherbänken vom Unterbewusstsein tatsächlich aufgenommen und richtig umgesetzt werden. Also heisst es nicht, dass der gesamte kollektive Unterbewusstseinsblock des Menschen auf solche Meditationen anspricht, sondern nur einzelne Menschen – und die
+vermögen wahrhaftig keine weltbewegende Veränderungen herbeizuführen, die in kurzer Zeit sichtbar
+würden. Tatsache ist, dass in der genannten Weise nur vereinzelt Menschen auf eine grosse Meditation
+reagieren und diese dann in sich langsam zu arbeiten beginnen, die Selbsterkenntnis und Selbstverwirklichung suchen und dann, wenn sie diese und die Gesetze des Lebens und der Wahrheit gefunden haben,
+erstens langsam alles in sich selbst aufbauen, um es dann in sich selbst sowie nach aussen zu leben. Das
+ist der wahre Weg der Evolution des Bewusstseins, nicht aber die Unsinnigkeiten und pseudowissenschaftlichen, pseudogeistigen, göttlichen, und wirrnisschaffenden Irrlehren der vedischen, christlichen
+oder sonstig religiösen, sektiererischen und esoterischen Märchen, Legenden, Fabeln, Verfälschungen,
+Betrügereien, Phantasien und Illusionen.
+Billy
+
+## Leserfrage
+
+(unkorrigierte Originalfragen)
+Ihre Geistlehre ähnelt sehr stark dem indischen Vedanta (z.B. im Yog Vasishtha beschrieben) und die von
+Ihnen beschriebene «gewaltigste Kraft und die gewaltigste Energie dieser schöpfungsuniversellen Existenz» wird in den indischen Puranas Shakti genannt und dort sehr umfassend beschrieben.
+Eine Frage zu: «…dass der Mensch allein durch das Fehlerbegehen evolutionieren kann. Das besagt, dass
+ein Mensch also Fehler machen muss, wenn er etwas lernen will.» Sind hier nicht die östlichen Weisheitslehren (z.B. Bhagavad Gita) ein Stück weiter, wenn sie sagen, dass man auch durch Erfolg lernen kann
+und zwar dann, wenn man im Sein gegründet handelt und dadurch immer alles richtig im Einklang mit
+der Gesamtevolution macht. Das ist bei den Menschen im Satyuga (eine von 4 Zeitspannen) immer der
+Fall gewesen.
+Noch eine Frage zu der Entstehung oder Entwicklung des Menschen – in den indischen Puranas werden
+auch Möglichkeiten beschrieben, dass die Manus (vergleichbar den Weisheitskönigen) Menschen und
+andere Formen selbst direkt erschaffen. Auch das «höchste aktive und evolutionsfähige Bewusstsein»
+hat dort die Kraft, Menschen und andere Wesen augenblicklich zu erzeugen. Was halten Sie denn
+davon?
+Und eine Frage zu Ihren Ausführungen zur Reinkarnation – in den Puranas werden auch seltene Möglichkeiten vorübergehender menschlicher Wiedergeburt in Tierkörpern beschrieben, wo die Geistform sich
+ihrer vorigen Inkarnation bewusst sein kann und in der Tierform frühere menschliche Verstösse gegen
+Naturgesetze absitzt, manchmal auch als Resultat einer Verfluchung durch andere Menschen oder durch
+
+
+-----
+
+Festhalten an bestimmten Gedanken einer Tierform im letzten Augenblick des menschlichen Lebens. Gibt
+es so etwas?
+Und letze Frage – aus Ihrer Beschreibung «Das neue Leben nämlich ist nicht auf den Lasten oder Unlasten
+des früheren Lebens aufgebaut, denn diese wurden gesamthaft im früheren Leben bewältigt…» ergibt sich
+die Frage: oft endet das Leben abrupt, ohne dass man Zeit hatte, offensichtliche Fehler oder Lasten noch
+zu bewältigen. Man fängt doch da wieder an, wo man aufgehört hat, oder?
+Johannes Buchholz, Deutschland
+
+### Antwort
+Was Sie in Vergleich setzen in bezug auf die Geisteslehre und den indischen Vedanta, wurde vorgehend
+bereits im Zusammenhang erklärt, folglich dazu nichts weiter zu sagen ist.
+Bezüglich dessen, dass Sie denken, die östlichen Weisheitslehren seien weiter als die Geisteslehre,
+schneiden Sie sich gewaltig in die Finger, denn was Sie schreiben: «Eine Frage zu: ‹…dass der Mensch
+allein durch das Fehlerbegehen evolutionieren kann. Das besagt, dass ein Mensch also Fehler machen
+muss, wenn er etwas lernen will›. Sind hier nicht die östlichen Weisheitslehren (z.B. Bhagavad Gita) ein
+Stück weiter, wenn sie sagen, dass man auch durch Erfolg lernen kann und zwar dann, wenn man im
+Sein gegründet handelt und dadurch immer alles richtig im Einklang mit der Gesamtevolution macht. Das
+ist bei den Menschen im Satyuga (eine von 4 Zeitspannen) immer der Fall gewesen.», entspricht einer
+pseudowissentlichen Irrung und Unsinnigkeit sondergleichen. Die östliche ‹Weisheitslehre› (z.B. Bhagavad
+Gita) ist ein äusserst bedauerlicher Schwachsinn und eine horrende Unkenntnis der wahrheitlichen Fakten,
+denn nicht aus einem Erfolg kann gelernt werden, sondern effectiv nur aus Fehlern. Ein Erfolg nämlich ergibt sich erst aus begangenen Fehlern resp. aus dem Werdegang des Lernens, wobei Lernen zwangsläufig
+immer mit dem Begehen von Fehlern verbunden ist. Ist dann ein Erfolg errungen und soll Neues und
+Weiteres daraus entstehen, dann spielt sich wieder derselbe Prozess ab – durch Lernen und Fehlerbegehen. So ist der Werdegang der der Wahrnehmung, der Erkenntnis, der Kenntnis, des Wissens, dessen
+Erfahren und wiederum deren Erleben und die daraus resultierende Weisheit, wobei die Weisheit auch als
+Erfolg gewertet ist. Die Weisheit aber resp. der Erfolg kann nicht als solche/r einfach erweitert werden,
+denn um eine Erweiterung derselben resp. desselben zu erlangen, ist es zwangsläufig notwendig, aus der
+Weisheit resp. aus dem Erfolg heraus eine Fortsetzung und Erweiterung zu suchen, die jedoch damit verbunden ist, dass neu gelernt wird und neue Fehler begangen, erkannt und behoben werden, und zwar in
+bezug auf den ganzen Werdegang von der Wahrnehmung bis zur Weisheit resp. zum Erfolg. Das sollte
+doch auch einem Menschen einleuchten, der einem irrigen Glauben und falschen Lehren verfallen ist.
+Hinsichtlich der Manus – (die in keiner Weise mit Ischwischs resp. Weisheitskönigen verglichen werden
+können) – können auch diese Phantasiegestalten andere Formen nicht selbst erschaffen. Auch ist es unsinnig, dass das ‹höchste aktive und evolutionsfähige Bewusstsein› die Kraft hat, Menschen und andere
+Wesen augenblicklich zu erzeugen, denn ein solches Erzeugenkönnen liegt allein in der Macht der Schöpfung, und zudem erfolgt ein solcher Vorgang nicht augenblicklich, sondern nur langsam, weil er der Zeit
+und Evolution eingeordnet ist. Es ist unverständlich, dass vernunftbegabte Wesen, wie eben Menschen,
+einem Unsinn Glauben schenken können, dass es anders sei, dass eben Götter und dergleichen schwachsinnige Phantasiegestalten Menschen und andere Wesen erschaffen resp. erzeugen könnten – und das
+noch augenblicklich. Wahrheit ist, dass lebendige Lebensformen wie Menschen, Tiere, Getier, Vögel,
+Fische, Würmer, Käfer und Insekten usw. durch einen Akt der Begattung resp. Kopulation Nachkommenschaft zeugen können, wonach dann eine bestimmte Zeit vergeht, bis die Geburt stattfindet. Die Schöpfung mit ihrem Handeln und mit ihren Möglichkeiten ist dafür das Vorbild. Wer aber religiösen, wahngläubigen, sektiererischen und betrügerischen oder schizophrenen religiösen und sektiererischen Irrlehren
+nachhängt und die effective Wahrheit verpönt, ist mehr als nur zu bedauern.
+In bezug auf die Reinkarnationsbeschreibungen in folgender Weise: «in den Puranas werden auch seltene
+Möglichkeiten vorübergehender menschlicher Wiedergeburt in Tierkörpern beschrieben, wo die Geist
+
+-----
+
+form sich ihrer vorigen Inkarnation bewusst sein kann und in der Tierform frühere menschliche Verstösse
+gegen Naturgesetze absitzt, manchmal auch als Resultat einer Verfluchung durch andere Menschen oder
+durch Festhalten an bestimmten Gedanken einer Tierform im letzten Augenblick des menschlichen Lebens.
+Gibt es so etwas?» wundert es mich tatsächlich nicht, dass Sie den ganzen Unsinn und Schwachsinn
+einfach bedenkenlos hinnehmen und das glauben, was Sie geschrieben haben und offenbar davon beeindruckt und befangen sind. Aber nein: Es ist wirklich blanker Unsinn, dass eine menschliche Geistform
+in einer Tierform reinkarnieren kann, und zwar weder infolge früherer menschlicher Verstösse noch als
+Resultat einer Verfluchung durch andere Menschen, noch durch ein Festhalten an bestimmten Gedanken
+einer Tierform im letzten Augenblick des menschlichen Lebens (empfehlen in bezug auf diese Dinge möchte
+ich Ihnen mein Buch ‹Wiedergeburt, Leben, Sterben, Tod und Trauer›).
+Die Frage «aus Ihrer Beschreibung ‹Das neue Leben nämlich ist nicht auf den Lasten oder Unlasten des
+früheren Lebens aufgebaut, denn diese wurden gesamthaft im früheren Leben bewältigt…› ergibt sich die
+Frage: oft endet das Leben abrupt, ohne dass man Zeit hatte, offensichtliche Fehler oder Lasten noch zu
+bewältigen. Man fängt doch da wieder an, wo man aufgehört hat, oder?»: Natürlich beginnt der Mensch
+sein neues Leben dort, wo das letzte aufgehört hat zu existieren. Der genaue Sachverhalt findet sich im
+vorgenannten Buch ‹Wiedergeburt, Leben, Sterben, Tod und Trauer›, das zu lesen und zu studieren zu
+empfehlen ist, weil es all die Dinge und Fakten genau beschreibt, die zum gesamten Thema aller Ihrer
+Fragen in bezug auf Wiedergeburt, Jenseits usw. usf. erschöpfend Auskunft gibt.
+Damit will ich meine lange, aber notwendige Antwort auf Ihre Fragen beenden, und ich möchte Ihnen
+sagen, dass ich mich nicht weiter auf solcherart Fragen Ihrerseits einlassen kann, weil alles viel zu zeitraubend ist und mich von wichtiger Arbeit abhält, die ich zu erledigen habe, denn ich bin kein ‹übersinnlicher, überirdischer› Gott vedischer, christlicher, sonstig religiöser, esoterischer oder sektiererischer
+Prägung, der angebliche Wunder vollbringen kann. Meinerseits bin ich nur ein einfacher Künder der
+Wahrheit und auch ein einfacher Mensch, der nicht mit angeblich ‹übernatürlichen› Energien und Kräften
+seine Arbeit verrichten kann, sondern durch normale menschliche Energie und Kraft, wobei ich in absolut
+eigener Bemühung, Motivation und Initiative alles selbst erledigen muss, ohne dass mir irgendwelche
+‹Götter›, Engel, Dämonen oder Geister zur Seite stehen, die mir Befehle erteilen oder mit mir ‹channelen›
+würden, geschweige also davon, dass ich ein ‹Medium› wäre, dem alles einfach vorgekaut und diktiert
+würde, wie das bei Scharlatanen, Betrügern und Schizophrenen sowie sonstig Wahnkranken beiderlei
+Geschlechts der Fall ist. Ausserdem, das möchte ich auch noch gesagt haben, denke ich, dass meine Worte
+bei Ihnen sowieso auf taube Ohren und auf Unverständnis sowie auf Ablehnung stossen, da Sie offensichtlich von den vedischen Irrlehren völlig gefangen sind.
+Billy
+
+## Leserfrage
+
+Was sagen die Plejaren zur kommenden Zeit? Was ergibt sich mit der Klimaveränderung und der Überbevölkerung sowie mit der Drohung eines Dritten Weltkrieges usw.?
+Michael Albrecht, Schweiz
+
+### Antwort
+Zur Beantwortung dieser Fragen eignet sich folgender Gesprächsauszug aus dem 240. offiziellen Kontaktgespräch vom 15. Januar 2007 zwischen dem Plejaren Ptaah und mir:
+
+**Billy** … Aber sag mal, du wolltest mir doch heute noch etwas in bezug auf Voraussagen erklären.
+Kannst du dabei auch etwas sagen, was sich bezüglich der Klimaveränderung usw. ergibt?
+
+
+-----
+
+**Ptaah** Das will ich auch gleich tun: Erstens möchte ich dir das in Erinnerung rufen, was ich schon
+früher gesagt habe, und zwar, dass es in bezug auf die Klimaveränderung bereits zu spät ist, um das
+Ganze noch zu stoppen. Zu lange wurden deine und unsere Warnungen an die irdischen Regierungen
+und an die irdische Menschheit missachtet, folglich nun nicht einmal mehr eine Schadenbegrenzung
+möglich ist. Die Wahrheit ist nämlich die, dass mit dem Jahr 2007 hinsichtlich der Klimaveränderung und
+der weltweit daraus resultierenden gewaltigen Schnee- und sintflutartigen Regenunwetter, Dürren, Kälteeinbrüche, Gewaltstürme, Bergrutsche, Lawinen und Überschwemmungen sowie Waldbrände, Feuersbrünste, Vulkanausbrüche und Erd- und Seebeben nun die Zeit der Extreme beginnt, wobei durch die aufkommenden Naturkatastrophen immer mehr Menschen ihr Leben verlieren und ungeheure Zerstörungen
+in Erscheinung treten, die stetig schlimmere Formen annehmen. Weitere steigende Übel sind direkt aus
+der Machtgier verantwortungsloser und kriegshetzerischer Staatsmächtiger und ihrer Vasallen sowie Befürworter und aus der rapide zunehmenden Überbevölkerung hervorgehend, wie Kriminalität, Umweltzerstörung, Umweltverschmutzung, Klimazerstörung, Krieg, menschenversklavende Gesetze und Verordnungen, falsche politische Entschlüsse sowie Intrigen und Machenschaften wider die Freiheit und Sicherheit
+der einzelnen Menschen, Völker und Staaten. Überhandnehmen werden auch Verbrechen, Terrorakte,
+Familiendramen, Zerstörung der zwischenmenschlichen Beziehungen, religiöser Sektierismus, Prostitution,
+Ausrottung vieler Gattungen und Arten der Tier-, Vogel-, Fisch- und Getierwelt sowie die allgemeine Verweichlichung der Menschen und die Zeugungsunfähigkeit der Männer, so aber auch Morde und Selbstmorde sowie Intrigen. Und es treten neue Seuchen auf, wie auch eine Zunahme der Krankheiten und
+Leiden bei jung und alt zu verzeichnen sein werden. Besonders wird auch eine Zunahme der Psycheleiden,
+eine allgemeine Gleichgültigkeit und Verrohung der Menschen gegenüber Mensch, Tier, Getier und Natur
+in Erscheinung treten. Weiter sind aber auch Rassenhass, Antisemitismus und Fremdenhass, Eifersucht,
+Hass sowie Vergeltungs- und Rachsucht, Unehrlichkeit, religiöser, esoterischer, okkulter, spiritistischer
+Wahnglaube und dementsprechende Kulte und Handlungen usw. usf. zu nennen, denn die Erdenmenschen
+verfallen auf ihrer Suche nach der wirklichen, schöpferischen Wahrheit und auf der Suche nach den schöpferischen Gesetzmässigkeiten immer mehr der religiösen, sektiererischen, esoterischen, okkulten und
+spiritistischen Scharlatanerie sowie falschpolitischen Machenschaften. Nur mühsam werden in kommender
+Zeit wenige Menschen langsam zur wirklichen schöpferisch-natürlichen Wahrheit finden, weil sich die
+Erdenmenschen zu sehr in ihrem vererbten Glauben in religiöse, esoterische, spiritistische, okkulte sowie
+falschphilosophische Sekten und Religionen verstrickt haben und dadurch die schöpfungsgesetzliche
+Wahrheit nicht erkennen und sich folglich auch nicht davon zu befreien vermögen, weil ihr vererbter und
+manischer Glaube an vielerlei unsinnige falsche Lehren, die sie als wahr annehmen und praktizieren, sie
+mit Klauen des Bösen gefangenhält.
+
+**Billy** – Gut gesagt – mit Klauen des Bösen. – Dann sieht also die Zukunft bezüglich deiner Voraussage in den genannten Beziehungen düster aus. Wie steht es aber mit einem Dritten Weltkrieg, hat sich
+da Neues ergeben, seit der Kriegstreiber Bush etwas an die Kette gelegt wurde?
+
+**Ptaah** Wie ich dir schon früher sagte, schauen wir nicht mehr weit in die Zukunft, sondern nur noch
+wenige Wochen oder Monate. Was sich aber hinsichtlich eines Dritten Weltkrieges ergibt, das muss die
+Zeit erweisen. Zumindest hat sich letztes Jahr eine derartige Gefahr gebannt, indem in den USA die
+Demokraten die Wahlen gewonnen haben und dem dem Machtwahn und Sektierismus verfallenen USPräsidenten entgegenwirkten. Was diesbezüglich nun die Zukunft bringen wird, ist abzuwarten, wobei zu
+hoffen ist, dass sich der bisherige Kurs der US-Kriegsgegner erhält und auch bei allen andern Völker der
+irdischen Staaten ein selbiges getan wird, weil sich dadurch die Weltkriegsgefahr immer mehr mindert
+und so die diesbezüglichen Prophezeiungen in bezug auf ihre Erfüllungen abgewendet werden können.
+Zur Zeit sieht es dafür gut aus, wobei zu hoffen ist, dass das auch so bleibt.
+
+
+-----
+
+**Billy** Man soll nicht hoffen, denn Hoffnungen bringen sehr oft Enttäuschungen.
+
+**Ptaah** Du weisst, wie meine Worte auszulegen sind.
+
+**Billy** Natürlich, die Meinung deines Wortes ‹hoffen› bedeutet, dass vorerst einmal Zuversicht bewahrt werden kann.
+
+**Ptaah** Das ist der Sinn meiner Rede …
+Billy
+
+## Leserfrage
+
+Wie sehen Sie, Billy, das hinsichtlich der Hilfe für Drittweltländer – wird das von den Industriestaaten resp.
+von deren Hilfsorganisationen richtig gehandhabt? Und was ist zu halten von den Waffenlieferungen an
+die Drittweltländer, da bringen sich doch die Leute im eigenen Land um mit den Waffen?
+Peter Meier, Schweiz
+
+### Antwort
+Ihre Frage war beim 440. offiziellen Kontaktgespräch am 15. Januar 2007 Stoff für ein Gespräch, das
+ich folgend wiedergebe:
+
+**Billy** Weder die Regierenden noch die Hilfsorganisationen der Industriestaaten handeln in richtiger
+Art und Weise, denn in Wahrheit werden die Menschen der Drittweltländer mit Lebensmitteln und allerlei
+nutzlosem technischem Krimskrams vollgestopft, womit diese aber nichts anfangen können. Das Ganze der
+Hilfsorganisationen ist aufgebaut auf einem falschen Humanismus, der in falschem Mitleid ruht und keinen
+Nutzen bringt, sondern die Menschen der Drittweltländer von den Hilfsgütern und von den Industriestaaten
+abhängig macht, anstatt sie zur Selbsthilfe und zur Selbständigkeit zu führen. Nebst diesen Hilfsorganisationen sind aber auch die staatsmächtigen Verbrecher zu nennen, die Staatsführer sowie ihre Vasallen
+und Befürworter, wie aber auch die kriminelle Waffenindustrie, die, wie die Staatsmächtigen, für Krieg,
+Terror und Intrigen verantwortlich sind, weil sie den Krieg und den Kriegswaffenhandel befürworten und
+davon auch noch finanziell profitieren und Kriegswaffen in Kriegsgebiete sowie in Drittweltländer liefern.
+All die Menschen in den Drittweltländern brauchen aber keine Waffen, sondern eine wahre und gute Entwicklungshilfe in der Weise, dass sie darin unterrichtet werden, Selbsthilfe zu leisten resp. um sich aus
+eigener Kraft aus ihrer Unterentwicklung und ihrem Elend hinausarbeiten zu können. Dazu ist es aber notwendig, nicht einfach Nahrungshilfe zu leisten, um den Menschen den Hunger zu stillen, sondern es ist
+notwendig, dass ihnen technische Mittel und Saatgut usw. zur Verfügung gestellt werden, durch die sie
+sich eigene Lebensmittel anbauen und ernten sowie eigene industrielle Werke aufbauen und davon Nutzen
+ziehen können, wenn ihnen zu allem das notwendige Know how beigebracht wird. Alle brauchen sie
+keine Waffen, mit denen nur Krieg geführt und gemordet wird, sondern sie brauchen effective Hilfe für
+den Anbau und das Herstellen eigener Nahrungsmittel sowie für das Gewinnen von sauberem Trinkwasser,
+wie aber auch Hilfe für den technischen und sonstwie reellen wirtschaftlichen Aufbau und den allgemeinen
+Fortschritt, wozu auch die Bewusstseinsevolution gehört. Ohne diese Werte ist jede Entwicklungshilfe nutzlos und nur wie ein Tropfen auf einen heissen Stein.
+
+**Ptaah** Ein wahres Wort, dem aber durch die Verantwortlichen der irdischen Staaten ebenso keine
+Achtung geschenkt wird, wie auch nicht durch jene, die falsche Entwicklungshilfe leisten und die Menschen
+der Drittweltländer davon abhängig machen.
+
+
+-----
+
+Billy
+
+Eingesandt von der Bayrischen Studiengruppe
+
+
+-----
+
+### Die Rolle der Ufologie in der Mission der FIGU
+Es gibt in den Reihen der FIGU-Forumbesucher offenbar immer noch Leute, die den wahrheitlichen und
+tiefen Sinn und Zweck der Mission des Vereins FIGU bis anhin nicht begriffen haben. Das lässt sich aus
+einigen Diskussionen im FIGU-Internet-Forum schliessen, in denen diverse Leute behaupten, in persönlichem resp. telepathischem Kontakt mit Menschen der plejarischen Föderation zu stehen.
+
+Der volle Name des Vereins lautet ‹Freie Interessengemeinschaft für Grenz- und Geisteswissenschaften
+und Ufologiestudien›, was einen klaren Bezug des Vereins resp. seiner Mitglieder zu den Belangen ausserirdischer Intelligenzen, deren Fluggeräten und der damit zusammenhängenden Technik herstellt. Der ufologische Aspekt der von der FIGU verbreiteten Geistes- resp. Schöpfungslehre resp. ‹Lehre des Lebens›
+und ‹Lehre der Wahrheit› ist seit der Gründung des Vereins im Jahre 1975 immer mehr in den Hintergrund getreten. Dies hat seine Berechtigung darin, dass die damals von ‹Billy› durch seine Photographien
+und Filmaufnahmen ausgelöste weltweite UFO-Kontroverse inzwischen ihre Aufgabe erfüllt hat. Diese
+hatte den Zweck, den Menschen der Erde ins Bewusstsein zu rufen, dass sie nicht die einzigen intelligenten
+Wesen in unserem Schöpfungsuniversum sind, sondern dass unser schöner blauer Planet im SOL-System
+nur eine von vielen Menschheiten im schier unendlichen Weltenraum beherbergt. Ausserdem führte das
+weltweit verbreitete und in seiner Qualität einzigartige Beweismaterial und die Kontaktberichte von ‹Billy›
+zur Entlarvung und Blossstellung vieler Kontaktmauscheler, Möchtegernkontaktler, Lügner, Betrüger,
+Channeler usw. in Sachen Kontakte zu ausserirdischen Menschen und geistigen Lebensformen.
+
+So mancher FIGU-Forumbesucher scheint noch nicht erkannt zu haben resp. akzeptieren zu wollen, dass
+die Rolle eines physischen Kontaktmannes zu den Plejaren zu unserer Zeit nur von einer einzigen Person,
+nämlich ‹Billy›, eingenommen werden kann. Das hat seine Begründung in dessen uralter Funktion als
+Prophet und Künder der Wahrheit aus eigener Bestimmung, und mit seinem hart erarbeiteten Wissen,
+seiner Weisheit und Universalliebe usw., die ihn dazu befähigen. Wenn nun andere Personen – darunter
+eben auch FIGU-Forumbesucher – behaupten, selbst mit Ptaah, Quetzal, Semjase oder mit anderen
+Menschen der plejarischen Föderation persönliche oder telepathische Kontakte zu pflegen resp. gehabt
+zu haben, dann sind sie damit unzweifelhaft ‹auf dem falschen Dampfer› und sozusagen diesbezüglich
+in ihren Hirnwindungen ‹schief gewickelt›. Bei einzelnen haben sich offenbar durch die Lektüre der
+Kontaktberichte Tagträume, Phantasien und Wunschvorstellungen hinsichtlich eigener Kontakte zu den
+Plejaren unkontrolliert verselbständigt oder sind bereits zu Wahnvorstellungen mutiert.
+Diesen Mitmenschen sei gesagt, dass sie zu ihrem eigenen Besten die Füsse schnellstmöglich wieder auf
+den Boden der Realität und des wirklichen Lebens stellen und sich ernsthaft fragen sollten, wer sie in ihrem
+Inneren in Wirklichkeit sind und wer bzw. was sie nicht sind, was ihre Aufgabe als Mensch ist resp. was
+nicht zu ihren Aufgaben gehört. Wer mit angeblichen UFO-Kontakten oder mit angeblich eigenen telepathischen Kräften prahlt, egal ob sie oder er, entlarvt sich damit selbst als unglaubwürdig. Allen FIGUForumbesuchern – wie aber auch den Aussenstehenden – sollte bekannt sein, dass wir Erdenmenschen
+zur Jetztzeit erst an den allerersten Anfängen dessen stehen, die Voraussetzungen für das Erlernen der
+Primärtelepathie zu bilden und dass – bis auf eine Ausnahme – alle Kontakte zu Ausserirdischen ins Reich
+der Phantasie verwiesen werden müssen. Wer die Mission der FIGU richtig verstehen und sich in sie einordnen will, sollte sich nicht in die scheinbare Wichtigkeit von UFO-Sichtungen hineinsteigern, deren
+Wahrheitsgehalt in den seltensten Fällen nachgeprüft werden kann. Davon abgesehen sind UFO-Sichtungen für die persönliche Evolution praktisch bedeutungslos, unter Umständen sogar gefährlich, wie es
+einige Vorfälle aus der Vergangenheit beweisen, bei denen das Beobachten von ausserirdischen Strahlschiffen von einzelnen Augenzeugen oder das Eintreten in deren Schwingungsbereich psychisch nicht
+verkraftet werden konnte und zu bleibenden bewusstseinsmässigen Schäden führte.
+Die eigentliche Mission der FIGU findet im Inneren jedes einzelnen statt und beinhaltet die Aufgabe, durch
+das ausdauernde Bilden von schöpferischen Werten wie Liebe, Wissen, Weisheit, Harmonie, Bescheiden
+
+-----
+
+heit, innerem Frieden, Antimaterialismus, Freiheit und Harmonie usw. über viele Leben hinweg das Bewusstsein und die Persönlichkeit zu einem wahren Menschen im schöpferischen Sinne heranzubilden; daher wird die Mission auch die ‹stille Revolution der Wahrheit› genannt. Bevor dieser Weg beschritten
+werden kann, müssen Möchtegerngrosse und Pseudokontaktler zuerst ihre Augen öffnen und lernen, ihren
+Verstand und ihre Vernunft zu entwickeln und zu gebrauchen, um sich so zu sehen, wie sie in Wirklichkeit
+sind; nämlich nicht als Kontaktfrauen resp. Kontaktmänner zu den Plejaren oder anderen fremdirdischen
+Menschen, nicht als Telepathen/Telepathinnen oder Erhabene/Erleuchtete mit aussergewöhnlichen Fähigkeiten, sondern als einfache Menschen auf dem Weg zur Wahrheit der Schöpfungslehre und deren
+Gesetze und Gebote. Die Ufologie ist dabei praktisch nutzlos und hilft ihnen auf diesem Weg nicht weiter.
+Grössenwahn und irreale, eingebildete UFO-Sichtungen resp. Kontakte zu den Plejaren sind eine Form
+persönlicher Gläubigkeit von Menschen, die einem schizophrenen Wahn oder bewussten Betrug verfallen
+sind und damit nicht zur Verbreitung der Wahrheit beitragen, sondern zur Bildung neuer UFO-Sekten und
+schöpfungswidriger, bewusstseinsversklavender und todbringender Kult-Religionen. Dass die FIGU damit
+nichts am Hut hat, sollte jedem verantwortungsbewussten Menschen und FIGU-Forumbesucher klar sein.
+Alle nicht real existierenden Kontakte, Begebenheiten und Fähigkeiten aus dem Reich der Ufologie müssen
+von den Betreffenden als Hirngespinste ihres eigenen Bewusstseins resp. ihrer eigenen Gedanken und Einbildungen oder bewussten Lügen erkannt sowie von ihnen selbst durch Objektivität und Neutralität sich
+selbst und den effektiven Tatsachen gegenüber zur Auflösung gebracht werden. Die betreffenden Personen
+sollten sich mit den persönlichen, bewusstseinsevolutiven Aspekten der Geisteslehre beschäftigen, die von
+ihnen Realitätssinn, Selbstehrlichkeit, gelebte Eigenverantwortung und das Erarbeiten einer gesunden
+Selbstkontrolle über ihre Gedanken und Gefühle verlangen. Sie würden sich selbst damit den grössten
+Gefallen für ihre persönliche Evolution tun, ihre grundlegend wichtige Aufgabe als Mensch und Teil der
+Schöpfung in gesunder Art und Weise angehen und damit zur Verwirklichung der Mission des Vereins
+FIGU beitragen.
+Achim Wolf, Deutschland
+
+Der Landbote, Winterthur,
+Montag, 22.1.2007
+
+### Ist von Däniken noch bei Trost oder hat ihm der Wasser-ET Vernunft und Verstand geklaut?
+
+Neue Zürcher Zeitung, Zürich,
+Sonntag, 31.12.2006
+
+
+Der Landbote, Winterthur,
+Montag, 22.1.2007
+
+### Ist von Däniken noch bei Trost oder hat ihm der Wasser-ET Vernunft und Verstand geklaut?
+
+
+-----
+
+### Aktuelles aus dem 440. Kontaktbericht vom 15. Januar 2007, 23.17 Uhr
+**Billy** Das ist nun klar. Vor einiger Zeit – wenn ich nochmals eine Frage stellen darf – hast du
+gesagt, dass US-Geheimdienste das Internet und die Computerwelt manipulieren – was ich auch in
+einem Bulletin über die CIA angedeutet habe, wobei auch Microsoft mit dem Windows-System darin
+verwickelt sei –, kannst du mir sagen, welcher US-Geheimdienst bei Microsoft darin verwickelt ist, eben
+nebst der CIA, wenn diese auch daran beteiligt ist?
+
+**Ptaah** Das Windows-Programm-System ist manipuliert durch den US-Geheimdienst NSA resp.
+durch die National Security Agency sowie durch andere Geheimdienste. Die Manipulation ermöglicht
+es den Geheimdiensten, unerkannt und nach Belieben in jeden Computer einzudringen, darin Daten
+herauszuholen oder unerkannt Änderungen und Fälschungen an den bestehenden Daten vorzunehmen.
+
+…
+
+**Billy** Gibt es bis zum 3. Februar noch weitere aussergewöhnliche Dinge oder Geschehen, die
+du vorausschaumässig erfasst hast?
+
+**Ptaah** Da gibt es nichts mehr zu berichten, ausser dass wir nun eindeutig feststellen konnten,
+dass auch diverse Leute bei der UNO deine Bulletins und Sonder-Bulletins lesen, was nun zur Folge hat,
+dass massgebende Leute deine Warnungen und unsere Gespräche in bezug auf die Klimazerstörung
+und hinsichtlich der Tatsache ernst nehmen und aufgreifen, dass der Punkt überschritten ist, dass noch
+etwas Nutzvolles gegen die seit geraumer Zeit stattfindende und sich ausweitende Klimaerwärmung und
+Klimazerstörung getan werden kann. Endlich wird deinen und unseren Warnungen und Erklärungen
+Beachtung geschenkt, wobei jedoch nicht zugegeben wird, dass die nun folgenden offiziellen Belange
+um die Klimaerwärmung und Klimazerstörung – die fortan öffentlich erörtert werden, wobei auch offen
+zugegeben wird, dass der Erdenmensch am Ganzen schuld ist – auf deine und unsere Warnungen und
+Ausführungen zurückzuführen sind. Das beruht darin, weil die Verantwortlichen vor dem Volke scheinen
+und gross sein wollen und nicht eingestehen können, dass nicht sie es sind, die massgebende Erkenntnisse gewonnen haben. Wie die Mächtigen und Verantwortlichen der Welt im Jahre 1951 deinen Aufruf
+‹An alle Verantwortlichen der Welt› und 1958 deine ‹Warnung an alle Regierungen Europas› in den
+Wind geschlagen und missachtet haben, so missachten und schlagen heute die Mächtigen und Verantwortlichen der Erde die Tatsache in den Wind, dass du und wir es wahrheitlich waren, die seit Jahrzehnten das voraussagten, was sich heute hinsichtlich der Klimaerwärmung und Klimazerstörung ergibt.
+Das ist das, was ich noch sagen wollte. Nun aber ist es wieder Zeit für mich – und wiedersehen werde
+ich dich erst zur Zeit, wenn du 70 Jahre alt wirst. Bis dahin auf Wiedersehn, mein Freund.
+
+**Billy Tschüss, Ptaah. – Salome.**
+
+### NSA baut Hintertüren in Microsoft ‹Vista› ein
+Nun haben wir es schwarz auf weiss: Die National Security Agency (NSA) manipuliert in Zusammenarbeit
+mit Microsoft und weiteren Geheimdiensten das neue Windows-Betriebssystem ‹Vista›, um heimlich in
+fremde Computer eindringen und Daten nach Belieben abrufen und fälschen zu können, wie Ptaah es im
+440. Kontakt mit Billy vom 15. Januar 2007 offenlegte.
+
+
+-----
+
+Spekulationen und später auch konkrete Hinweise auf derartige Machenschaften gab es schon länger. Bruce
+Schneier, ein weltweit anerkannter Kryptologie-Experte, kommentierte: «Die NSA hat zwei Aufgaben:
+unsere Daten zu schützen und andere abzuhören. Wenn beide Seiten die gleichen Computer-Systeme benutzen, kann sich die NSA entscheiden, ob sie Sicherheitslücken darin ausnützt, um Daten abzuhören,
+oder diese schliesst, um unsere Daten zu schützen. In ihrer Partnerschaft mit Microsoft konnten sie sich
+entweder für das eine oder das andere entscheiden: Absichtlich Sicherheitslücken einzubauen, um diese
+später als heimliche Hintertür zu benutzen, oder absichtlich das Betriebssystem stärker abzusichern, um
+die eigenen Interessen zu schützen. […] Ich traue der NSA einfach nicht zu, die richtige Entscheidung
+getroffen zu haben.» [1].
+
+Für den Computerbenutzer kann somit nur eine deutliche Ratgebung erteilt werden: Finger weg von Microsofts ‹Vista›! Selbst wenn man sich der eigenen Integrität sicher ist. Die naive Ansicht, andere könnten
+ruhig wissen, was man selbst auf dem Computer gespeichert habe, denn man habe schliesslich nichts zu
+verheimlichen, ist übrigens fatal. Kardinal Richelieu [2] verstand bereits im 17. Jahrhundert einiges von
+Überwachung, als er sagte: «Gebt mir sechs Zeilen geschrieben vom ehrlichsten Mann der Welt, und ich
+finde einen Grund, ihn hängen zu lassen.» Privatsphäre ist deswegen wichtig, weil ohne sie jegliche Überwachungsinformationen missbraucht werden können. Privatsphäre ist ein Grundrecht des Menschen. Wenn
+der Mensch die Kontrolle über seinen individuellen Bereich und damit seine Privatsphäre an andere abgibt,
+muss er mit allem rechnen, vor allem mit Missbrauch: «Absolute Macht macht absolut korrupt.»
+
+Freie Software bietet einen Ausweg aus dem Dilemma. Die FIGU setzt bereits seit vielen Jahren auf ‹Freie
+Software›. Diese ist nicht vor allem ‹kostenlos›, wie es in den Medien oft unklar beschrieben wird, sondern
+vor allem ‹frei›, im Sinne von Freiheit. Es gibt keine Firma und keine Konzerne, die Hintertüren darin verstecken könnten, denn jede einzelne Zeile Programmcode muss für alle offen lesbar bleiben. Unzählige
+Programmierer schliessen sich, meist via Internet, zu sogenannten Communities zusammen und entwickeln
+gemeinsam Freie Software. Tausend Augen sehen eben mehr als zwei. Durch dieses Prinzip entstanden
+bekannte Betriebsysteme wie z.B. Linux und auch das anerkannt ‹sicherste Betriebssystem der Welt›,
+OpenBSD [3], das von der FIGU massgeblich auf Servern eingesetzt wird. Es sei jedem empfohlen, sich
+die freien Alternativen zu Microsoft und Co. vorurteilsfrei anzusehen. Vor allem Linux hat sich in den letzten
+Jahren sehr gemausert, so dass einem Einsatz im Alltag, auch zu Hause auf dem heimischen PC oder Mac,
+nichts entgegensteht [4].
+
+[1] http://www.schneier.com/blog/archives/2007/01/nsa_helps_micro_1.html
+
+[2] http://de.wikipedia.org/wiki/Armand_Jean_du_Plessis_%28Herzog_von_Richelieu%29
+
+[3] http://www.openbsd.org/de
+
+[4] http://de.wikipedia.org/wiki/Ubuntu
+Stephan A. Rickauer, Schweiz
+
+
+-----
+
+### VORTRÄGE 2007
+Auch im Jahr 2007 halten Referenten der FIGU wieder Geisteslehre-Vorträge usw. Nachfolgend die Daten
+für die stattfindenden Vorträge:
+
+### Achtung: Wichtige Änderung!
+Die Vorträge werden ab Juni 2007 im Saal des Centers durchgeführt. Im März findet kein Vortrag statt:
+
+**23. Juni 2007**
+Patric Chenaux **Menschlichkeit**
+
+Hans-Georg Lanzendorfer **Polygamie/Poliandrie**
+
+**25. August 2007**
+Karin Wallén **Liebe**
+
+Christian Krukowski **Menschheitsgeschichte VIII**
+
+**27. Oktober 2007**
+Guido Moosbrugger **Menschliche Geistform II**
+**Was sind Elementarteilchen?**
+
+Pius Keller **Schön, wie die Natur arbeitet**
+
+Pünktlicher Vortragsbeginn um 14.00 Uhr.
+
+Eintritt: CHF 7.– (Eintritts-Ermässigung für FIGU-Mitglieder bei Vorweisen eines gültigen Ausweises.)
+
+An den Vortrags-Samstagen trifft sich im Semjase-Silver-Star-Center um 19.00 Uhr eine Studiengruppe,
+zu der alle interessierten Passiv-Mitglieder herzlich eingeladen sind.
+
+### VORSCHAU 2007
+
+Die nächste Passiv-Gruppe-Zusammenkunft findet am 26. Mai 2007 statt, in der Turnhalle der Volksschule, Sonnenhofstrasse 2, 8374 Oberwangen/TG. Reserviert Euch dieses Datum heute schon!
+
+Die Kerngruppe der 49
+
+**IMPRESSUM**
+**FIGU-Bulletin**
+**Druck und Verlag: Wassermannzeit-Verlag, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+**Redaktion: ‹Billy› Eduard Albert Meier, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+**Abonnemente:**
+Erscheint unregelmässig; Preis pro Einzelnummer: CHF 2.– (Zusammen mit einem Abonnement der ‹Stimme der Wassermannzeit› oder der ‹Geisteslehre-Briefe› als Gratis-Beilage.)
+**Postcheck-Konto: FIGU-CH-8495 Schmidrüti, PC 80-13703-3**
+**E-Mail: info@figu.org**
+**Internet: www.figu.org**
+**FIGU-Shop: http://shop.figu.org**
+
+
+-----
+

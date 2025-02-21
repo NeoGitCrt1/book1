@@ -1,0 +1,168 @@
+# FIGU- SONDER-BULLETIN
+
+### Erscheinungsweise: Internet: http://www.figu.org 10. Jahrgang Sporadisch E-Mail:  info@figu.org Nr. 11, Feb.2004
+
+## Anhang zum Sonder-Bulletin Nr. 10, Januar 2004
+Wie es die Fügung will, hat es sich ergeben, dass sich die Aussagen im Sonder-Bulletin Nr. 10 (wie auch in
+den andern Sonder-Bulletins) in bezug auf US-Amerika und des USA-Präsidenten George Walker Bush in
+diversen Internet-Artikeln bestätigt finden. Grosse Kommentare zu den nachfolgend aufgeführten Artikeln sind
+wohl überflüssig, denn diese sprechen für sich selbst. Ausser dem vielleicht, dass natürlich Präsident Bush, das
+Weisse Haus und alle Bush-Kohorten prinzipiell und grundsätzlich die Wahrheit bestreiten werden, weil
+gesamthaft alle eine weisse Weste behalten wollen.
+Billy
+
+
+_Quelle: Spiegel-online (www.spiegel.de), Montag, 12. Januar 2004_
+
+
+-----
+
+-----
+
+_Quelle: Spiegel-online (www.spiegel.de), Montag, 12. Januar 2004_
+
+
+_Quelle: www.yahoo.de, Sonntag, 18. Januar 2004, 18.53 Uhr_
+
+
+-----
+
+_Quelle: AG Friedensforschung an der Uni GH Kassel in Kooperation_
+_mit dem Bundesausschuss Friedensratschlag_
+
+
+-----
+
+## PEACE, Tod und Verderben
+### oder die fälschliche Verwendung eines uralten Symbols
+Weltweit ist das Jahr 1968 als ein Jahr der Friedens- und Studentenbewegung in die Geschichte eingegangen.
+In der Schweiz nahm diese Bewegung ihren Anfang mit dem sogenannten Globuskrawall, der am Samstag,
+den 29. Juni 1968 vor dem Globus-Provisorium in Zürich/Schweiz mit einer Demonstration seinen Anfang
+nahm. Zu dieser politischen Demonstration wurde im Vorfeld mittels eines blauen und regierungskritischen
+Flugblattes aufgerufen.
+Während der Nacht vom 29. auf den 30. Juni 1968 lieferten sich Jugendliche und die Polizei in Zürich Strassenschlachten, wie sie seit Jahrzehnten nicht mehr stattgefunden hatten.
+Ein Höhepunkt der Studenten- und Friedensbewegung der 60er Jahre war das legendäre amerikanische
+Woodstock-Festival im Jahr 1969, das von rund 500 000 Menschen, den sogenannten Hippies, besucht
+wurde. Ein Hauptanliegen der Festival-Besucher/innen war die Demonstration gegen gesellschaftliche Normen
+und den Krieg, der zu jener Zeit in Vietnam wütete. Nebst den Idealen von Frieden, Freiheit und Autonomie
+usw. spielten auch Drogen eine grosse Rolle. Der Drogenkonsum war zwar illegal, jedoch durch die Ordnungskräfte nicht mehr zu kontrollieren. Tabus und gesellschaftliche Vorschriften wurden aufgelöst. Viele der OpenAir-Festival-Besucher/innen tanzten unbekleidet und mit möglichst schillernden Farben auf den blossen Körper
+gemalt durch die Massen. Sexualität war ebenfalls kein Tabuthema, weil sich die Jugendkultur auch mit diesem
+Mittel gegen gesellschaftliche Normen auflehnte. Ein weiteres Hauptmotiv der Teilnehmer/innen in Woodstock
+war, sich zur Natur des Menschen zu bekennen. Schlagwörter wie Peace, Harmony, Flowerpower, Rebellion und
+Friedensdemonstrationen gingen durch die Welt. Die sogenannten Blumenkinder verbreiteten und proklamierten ihren Frieden und die freie Liebe. Die Musik wurde politisch und von Protestsängern wie Bob Dylan oder
+Joan Baez usw. geprägt. Die Geschichte hat aber leider gezeigt, dass die Welt auch durch Friedensfestivals
+und Friedensdemonstrationen nicht wesentlich zum Positiven und Evolutiven verändert wurde. Unser Planet
+wurde dadurch nicht befriedet – und viele Kriege sowie Mord und Terrorismus blühen auf unserem Planeten
+rund 35 Jahre später in einem kaum mehr überblickbaren Mass.
+Viele Helden aus der Friedens-Bewegung wurden von ihrer politischen Karriere, von Macht und Dollars verschluckt. Namen wie Jerry Rubin sind gänzlich verschwunden. Rubin war erst radikaler Hippie-Sprecher,
+wurde dann ein angepasster Vitaminpillenkonsument und ist, gemäss Presseberichten, früh verstorben. Die
+Kultur und Musik der 68er-Jahre bleibt von ihren Enkeln ungesehen und ungehört und ist bei der neuen Generation weitgehend in Vergessenheit geraten.
+Die sogenannte Friedens- und Hippie-Bewegung wurde von einem markanten Symbol begleitet. Einem Symbol,
+das angeblich für Frieden, Liebe und Harmonie stehen sollte. Es ist das Zeichen, das als PEACE-Symbol weltweite Bekanntheit erlangte. Millionenfach war es in allen möglichen Farben auf Transparenten, Fahnen,
+Schmuck, Kleidung, als Tatoos oder auf Plattenhüllen usw. zu sehen. Im Laufe der Jahre und mit dem Abklingen
+der Hippie- und Friedens-Bewegung verschwand allmählich auch wieder das Peace-Symbol. In neuerer Zeit
+wurde und wird es aber wieder aus der Versenkung hervorgeholt und ist vermehrt anzutreffen. Auf der Webseite HYPERLINK ‹http://www.hippie.ch› wird es unverkennbar mit den Hippies in Verbindung gebracht. Zur
+Zeit ist es auch allgegenwärtig auf den Gesichtern von Antikriegsdemonstranten/innen. Im TV ist es auch als
+Ersatz für das ‹Viva›-Logo aktuell.
+
+**_Todessymbol_**
+**_als falsches Friedenszeichen_**
+
+Um den Ursprung und die wahrliche Bedeutung dieses Symbols oder PEACE-Zeichens ranken sich viele Interpretationen und Spekulationen. Die Erklärungsversuche reichen bis in das Traditionsgut der Satanisten, wo das
+
+
+-----
+
+Eine weitere Entstehungsgeschichte des PEACE-Symbols verweist darauf, dass es sich um eine verwirrende
+Doppelbedeutung aus dem angelsächsischen Runenalphabet handle. Dabei soll die sogenannte 2. yr-Rune
+verwendet und vielfach zum ‹Nero-Kreuz› verniedlicht worden sein. (Ein eigentliches Nero-Kreuz ist nur in den
+Speicherbänken abrufbar und wird als umgekehrtes Schächer-Kreuz gezeichnet. Schächer = Räuber, Mörder.)
+
+
+-----
+
+Gemäss gängiger Zeitrechnung regierte zwischen den Jahren 54–68 n. Ch. Kaiser Nero das römische CaesarenReich. Diese Jahreszahlen sind jedoch in den verschiedenen Chroniken mit gewissen Schwankungen zu finden.
+In den Jahren 54–59 soll der Philosoph Seneca einen grossen Einfluss auf den römischen Kaiser Nero ausgeübt haben. Nero gilt in der irdischen Geschichtsschreibung als unberechenbar, grössenwahnsinnig, pyromanisch und psychopathisch. Im Jahre 59 soll er unter anderem seine Mutter Agrippina ermordet haben. Nero
+selbst wurde von Kaiser Claudius adoptiert. Als Claudius im Jahre 53 starb, heiratete Nero dessen Tochter
+Octavia. Nach der Ermordung seines Stiefbruders Britannicus zerstritt sich Nero mit seinem Erzieher, dem
+Philosophen Seneca. Um das Jahr 62 soll Nero angeblich auch seine Frau Octavia ermordet haben.
+In der Nacht vom 18. zum 19. Juli 64 n. Ch. kommt es zum vernichtenden Stadtbrand in Rom. Das Feuer dauerte
+mehr als sieben Tage. Die Geschichtsschreibung spricht von einem Testfeuer, das aber durch den Wind ausser
+Kontrolle geraten war. Gemäss anderer Überlieferung sollen Tigellinus und weitere Prätorianer die Brände in
+Neros Auftrag gelegt haben. Der Kaiser wollte angeblich Platz für die Domus Aurea schaffen.
+Der zerstörerische Brand von Rom wurde allgemein des Kaisers Grössenwahn zugeschrieben. Deswegen wurde
+Kaiser Nero für den Brandstifter gehalten. Zu jener Zeit begannen sich die ersten Christenmenschen zu organisieren. Sie glaubten an die Reden und Berichte von Petrus und Paulus, die bereits als sogenannte Apostel mit
+Jesus Christus bzw. Jmmanuel umhergewandert waren. Abgesehen von der Tatsache, dass Jmmanuel niemals
+irgendwelche Apostel berief und kein Apostulat verteilte, war die ursprüngliche Lehre Jmmanuels zu jener Zeit
+bereits durch Petrus und Paulus verfälscht worden. Die Gemeinschaft dieser Urchristen galt bei den Römern
+und Herrschenden bereits früh als gefährliche Sekte. Ihre Mitglieder wurden daher verfolgt. Die Christenverfolgung durch Kaiser Nero war keine grundsätzliche Verfolgung der Christen aus religiösen Gründen, vielmehr
+versuchte Nero gemäss Geschichtsschreibung den Verdacht der Brandstiftung von sich abzuwenden.
+Zu diesem Zweck kam den Verantwortlichen die unbeliebte christ-religiöse Minderheit wie gerufen. Viele Christen
+wurden der Verschwörung angeklagt und gekreuzigt, in Säcke eingenäht und den Hunden vorgeworfen oder
+als lebende Fackeln verbrannt. Die beiden christlichen Rädelsführer Petrus und Paulus wurden gemäss den verschiedenen Kirchenvätern in Rom hingerichtet. Paulus wurde als römischer Bürger durch das Schwert enthauptet und Petrus ans Kreuz geschlagen. Nero selbst entsprach jedoch gemäss plejarischen Angaben nicht jenem
+blutrünstigen und pyromanischem Monster‚ als das ihn die Geschichte erscheinen lässt. Vielmehr war auch er
+Opfer meuchlerischer Intrigen und hinterhältiger Attacken. Nero selbst starb einige Jahre darauf durch eigene
+Hand.
+Nun muss man aber wissen, dass zur römischen Zeit das Hinrichtungskreuz eine ganz andere Form hatte. Entgegen theologischer Meinung und Lehre hatte das römische Kreuz jedoch nicht die bekannte Form, wie dies
+fälschlicherweise auch bei der Kreuzigung von Jmmanuel dargestellt wird. Die Verurteilten wurden auf ein
+Kreuz geschlagen, dessen Querstreben in einem schrägen, V-förmigen Winkel nach oben gerichtet waren. In
+Anlehnung an das uralte Symbol des Lebensbaumes wurde diese Form verwendet. Als Symbol eines Baumes,
+dessen Äste in den Himmel ragen. Die heute bekannte christliche Form des Kreuzes mit einem Winkel von 90°
+fand erst später ihre Verwendung. In der Regel wurden die Verurteilten mit dem Kopf nach oben ans Kreuz
+genagelt. Im weiteren wurden den Verurteilten die Nägel nicht durch die Handfläche, sondern durch den
+Unterarm beim Handgelenk durch das Fleisch getrieben. Auf diese Art und Weise wurde Jahre zuvor auch
+Jmmanuel ans Kreuz geschlagen.
+Im Falle der Kreuzigung von Petrus verhielt sich der Fall jedoch etwas anders. Er wurde aus ganz bestimmten
+Gründen umgekehrt und mit dem Kopf nach unten ans Kreuz geschlagen, so dass seine Arme V-förmig nach
+unten gegen den Boden gerichtet waren. Dies ist auch die Form, wie sie im sogenannten PEACE-Zeichen abgebildet ist.
+Die Legende spricht davon, dass Nero durch die Ermordung und Kreuzigung des Rädelsführers Petrus auf den
+Frieden verwiesen habe. Durch den Tod des christlichen Sektenführers sollte wieder Ruhe und Ordnung und so
+also der Frieden wiederhergestellt werden. In diesem Zusammenhang wird auch noch heute vom sogenannten
+Nero-Kreuz gesprochen. In Wahrheit handelt es sich bezüglich dieser Aussage um eine Zuschreibung, die
+wohl nicht mehr zu beweisen ist.
+Den Lateinern des alten römischen Reiches war die Bedeutung vieler alter Symbole durchaus bekannt. So auch
+die Bedeutung der Form des nach oben gerichteten Hinrichtungskreuzes, das den Lebensbaum darstellt, wie
+
+
+-----
+
+-----
+
+## VORTRÄGE 2004
+#### Auch im Jahr 2004 halten Referenten der FIGU wieder Ufologie- und Geisteslehre-Vorträge. Nachfolgend die Daten für die stattfindenden Vorträge:
+
+ 27. März 2004 Patric Chenaux: Die Würde des Menschen Bernadette Brand (mit einem Text von Billy): Über den Tod meditieren
+
+ 26. Juni 2004 Christian Krukowski: Menschheitsgeschichte V Karin Wallén: Individuation
+
+ 28. August 2004 Patric Chenaux: Innere Werte Stephan A. Rickauer: Neurowissenschaft und Meditation – ein Widerspruch?
+
+ 23. Oktober 2004 Guido Moosbrugger: Siebenheit des Materieaufbaues II Rita Oberholzer: Ganzheitliche Gesundheit
+
+ Pünktlicher Vortragsbeginn um 14.00 Uhr.
+
+ Eintritt: CHF 7.– (Eintritts-Ermässigung für FIGU-Mitglieder bei Vorweisen eines gültigen Ausweises.)
+
+ Wir freuen uns auf Ihr Erscheinen und begrüssen gerne auch Ihre Freunde, Kollegen und andere Inter- essierte.
+
+ Wir erinnern Sie daran, dass im Restaurant Freihof in Schmidrüti Konsumationspflicht besteht.
+
+ An den Vortrags-Samstagen trifft sich im Semjase-Silver-Star-Center um 19.00 Uhr eine Studiengruppe, zu der alle interessierten Passiv-Mitglieder herzlich eingeladen sind.
+
+## VORSCHAU 2004
+#### Die nächste Passiv-Gruppe-Zusammenkunft findet am 8. Mai 2004 statt. Reserviert Euch dieses Datum heute schon! Die persönlichen Einladungen mit näheren Hinweisen folgen zu gegebener Zeit. Die Kerngruppe der 49
+
+**IMPRESSUM**
+**FIGU Sonder-Bulletin**
+**Druck und Verlag: Wassermannzeit-Verlag, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+**Redaktion: ‹Billy› Eduard Albert Meier, Semjase-Silver-Star-Center, CH-8495 Hinterschmidrüti ZH**
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+**Abonnemente:**
+Erscheint unregelmässig; Preis pro Einzelnummer: CHF 2.– (Zusammen mit einem Abonnement der ‹Stimme der Wassermannzeit› oder der ‹Geisteslehre-Briefe› als Gratis-Beilage.)
+**Postcheck-Konto: FIGU-CH-8495 Schmidrüti, PC 80-13703-3**
+**E-Mail: info@figu.org**
+**Internet: www.figu.org**
+
+
+-----
+

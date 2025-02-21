@@ -1,0 +1,114 @@
+# Verhalten in bezug auf Corona
+
+## Auszug aus dem 790. Kontakt vom Dienstag, 4. Januar 2022
+
+**Zafenatpaneach** Dann will ich dich, wenn du erlaubst, mein Freund, danach fragen, wie ihr
+
+von der FIGU euch gegenwärtig verhaltet gegenüber der Seuche, die sich auf der Erde immer
+mehr verbreitet? Bei uns wird darüber gegenwärtig nichts verlautbar, weil Ptaah für längere Zeit
+abwesend ist und keine Informationen durch ihn bei uns verbreitet werden. Wir fragen uns aber,
+wie ihr euch zu allem verhaltet, denn wir wissen ja, dass sich die Seuche auf dem ganzen Planeten
+rasant verbreitet.
+
+**Billy** Unser Verhalten bleibt neutral, so soll sich also impfen lassen, wer das will, denn das Wol
+len ist und bleibt eine reine Privatsache – der eine Mensch kann dies unbeschadet tun, andere
+spielen dabei mit der Gesundheit oder mit dem Leben. Also liegt die Entscheidung bei jedem
+Menschen selbst, eben ob er sich für das Für oder Wider entschliesst, denn es geht einfach nicht
+an, dass in dieser Beziehung jemand die Verantwortung und das Für oder Wider für einen andern
+Menschen übernehmen und entscheiden kann. Die diesbezügliche Verantwortung liegt bei jedem
+einzelnen Menschen allein, ausser er ist infolge einer Bewusstseinsbehinderung dazu nicht fähig,
+folglich für ihn verantwortungsvoll zu entscheiden ist. Dies ist aber beim normalen Menschen nicht
+der Fall, folglich er in jeder Beziehung selbst verantwortungsvoll denken und entscheiden muss.
+Also dürfen wir von der FIGU keinerlei Ratschläge erteilen – das mache ich persönlich auch nicht,
+nicht einmal bei meinen Familienmitgliedern, wie auch nicht bei den FIGU Mitgliedern oder im
+Bekannten- und Freundeskreis – und müssen es jedem einzelnen Menschen überlassen, sich
+selbst für ein Für oder Wider resp. für ein Ja oder Nein zu entscheiden. Etwas anderes darf unter
+keinen Umständen sein, und wenn etwas anders angeordnet wird, wenn z.B. eine vorgeschriebene
+Impfung von einer Regierung in Betracht gezogen wird, dann ist das nicht des Rechtens, sondern
+diktatorisch und gewaltmässig, woraus unweigerlich volksmässige Gewalt und Zerstörung entsteht
+und letztendlich Tote fordert. Was zu tun wäre ist folgendes, was jedoch von jeder einzelnen und
+ihres Amtes unfähigen Regierung auf der Erde nicht getan wurde:
+
+1. Allein schon die amtlichen resp. regierungsmässigen Verhütungsmassnahmen müssen zu al
+lem Beginn einer Epidemie oder Pandemie ergriffen, verordnet und durchgeführt werden. Dies
+ist die absolute und unumgängliche Pflicht jeder Regierung, die absolut für das Wohlergehen
+und die Gesundheit des Volkes stellvertretend zuständig und verantwortlich ist. Diese Pflicht
+aber wurde nur teilweise und verantwortungslos und zudem für zu kurze Zeit wahrgenommen,
+folglich sich die Corona-Seuche schnell weltweit ausbreiten und bisher weit über 6 Millionen
+Tote fordern konnte.
+Es wurde von den offensichtlich unfähigen Regierenden, die nur ein grosses Mundwerk führen
+und regierungsunfähig sind, einzig teilweise das angeordnet, was hätte sein müssen, um die
+erst auftretende Epidemie zu stoppen und zu beenden. Da dies aber nicht in der Weise getan
+wurde, was hätte getan werden müssen – was auch die Völker ohne Murren und Knurren und
+ohne Demonstrationen und Zerstörungen mitgemacht hätten, weil eben die Angst und anderseits genügend Vernunft noch gegenwärtig waren –, so hat sich ergeben, dass das Ganze zur
+Pandemie ausarten und letztendlich zum Aufstand durch Demonstrationen, Gewalt und Zerstörungen menschlicher Errungenschaften der Völker ausarten konnte. Dadurch, dass nicht
+strikte das Richtige und Notwendige und nicht lange genug – was etwa 4–6 Monate gedauert
+und natürlich grosse Teile der beinahe gesamten Wirtschaft lahmgelegt hätte – durch die Regierungen angeordnet und durchgeführt wurde, konnte alles zur Pandemie ausarten. Doch anstatt dass alles durchgezogen wurde, wurde ein Auf und Ab des Ganzen angeordnet, das heisst,
+dass das Maskentragen und das Abstandhalten sowie der Lockdown und die Massnahmen
+allgemein nur kurzfristig angeordnet, dann wieder aufgehoben wurde, um sie anderseits wieder
+in Kraft zu setzen, wieder aufzuheben und wieder anzuordnen. Das führte zwangsläufig grosse
+Massen der Völker in die Irre und zur Rebellion, denn es wurde erkannt, dass die Regierenden
+unfähig ihres Amtes waren und Unsinnigkeiten erdachten und anordneten. Das hat automatisch Querdenker, Verschwörungstheoretiker und Seuche-Negierende resp. Seuche-Leugner
+auf den Plan gerufen. insbesondere durch das aufgekommene Impfen mit Impfstoffen, die von
+allem Anfang an ungenügend geprüft sowie ungetestet einfach eingesetzt wurden und heute
+noch an Menschen in dieser Weise werden. Dass auf diese Weise seither ‹gratis› an der Menschheit getestet wird und diese als willkommenes ‹Versuchskarnickel› missbraucht wird, das stört
+
+
+-----
+
+offenbar niemanden. Tatsache ist jedoch, dass seither – eben seit dem Einsatz ungeprüfter
+Impfstoffe – viele Tausende von Impftoten in aller Welt zu beklagen sind. Diverse Menschen
+weisen eben gesundheitliche Konstitutionen auf, die in keiner Weise den Anforderungen der
+Impfstoffe entsprechen, während andere dagegen immun sind, oder in späteren Jahren mit
+bösen Spätfolgen geschlagen werden, wobei nicht erkannt werden wird, dass diese auf die
+Corona-Impfung mit gesundheitsschädlichen Impfstoffen zurückführen.
+Was nun aber richtigerweise getan werden sollte, als die Corona-Seuche zu grassieren begann,
+was aber die unfähigen Regierenden aller Staaten nicht getan, sondern verantwortungsvoll in
+keiner Art und Weise bedacht, sondern verschlafen haben, ist folgendes:
+
+1. Ein allgemeiner und volksumfassender und absolut unumgänglicher Lockdown.
+2. Das obligatorische Tragen geeigneter Atemschutzmasken der Güte FFP2.
+3. Die unumgängliche Abstandhaltung zwischen den Menschen.
+4. Die notwendige Zeitdauer dieser Massnahmen von mindestens 3–6 Monaten.
+5. Völlige Isolierung bekannter seuchenbefallener Personen, mit angemessener Pflege.
+6. Notwendige staatliche Lebensmittel-Versorgung seuchenisolierter Personen.
+7. Staatliche Kontrolle bezüglich der Einhaltung der verordneten Sicherheitsmassnahmen.
+
+2. Es muss schon zu allem Anfang einer Seuche an – egal ob Epidemie oder Pandemie – regie
+rungsamtlich die Verbreitung derselben mit entsprechenden und langfristigen sichernden Massnahmen zu bestimmen und durchzuführen sein, da zu diesem Zeitpunkt die Völker noch auf
+vernünftiges Verhalten und Handeln ansprechbar sind, was sich im Lauf der Zeit aber legt,
+wenn Misserfolge sichtbar werden. Auch werden Skeptiker, Verschwörungstheoretiker, Negierende und Bestreitende mit der Zeit in Erscheinung treten, wenn die Regierenden aus Unvermögen und Unfähigkeit nicht schon bei Beginn einer Seuche in der Weise alles anordnen und
+durchführen lassen, was zur Eindämmung einer Seuche bestimmt ist und den Völkern vernünftig verordnet werden muss. Die Freiheit des einzelnen ist dabei unter allen Umständen zu berücksichtigen und zu achten, insbesondere in bezug auf die Freiwilligkeit einer Impfung, die so
+oder so in den Bereich einer Selbstentscheidung fällt, die nicht durch Gewalt einer staatlichen
+Verordnung oder durch eine falsche Rechtfertigung, Einstellung, Angst oder die Verhaltensweise anderer Menschen tangiert werden darf.
+Was des Rechtens und die Pflicht einer fähigen Regierung wäre, das bezieht sich darauf, dass
+diese in jeder Beziehung das Richtige für das jeweilige Volk entscheidet und durchführen lässt,
+um ihm ohne Gewalt, Diktaturallüren und in Freiheit das bestmögliche Wohl und die Sicherheit
+der Gesundheit und des Lebens zu gewährleisten.
+
+Das ist das, was ich zum Ganzen zu sagen und Zeit meines Lebens gelernt habe, was ich auch
+unter Freiheit und Verantwortung für die Menschheit wirklich verstehe, wie dies für alle Menschen
+gleichermassen gilt und auch durch die Machtgier, die Dummheit oder Unfähigkeit der Regierenden nicht geändert werden darf.
+
+**Zafenatpaneach** Das was du gesagt hast, das ist meine und unser aller Ansicht. Und was du
+
+ausführst, was zu allem Beginn der Corona-Seuche hätte getan werden müssen, das entspricht
+dem, was wirklich die Notwendigkeit gewesen wäre.
+
+**Bermunda** Das ist auch das, was Ptaah sagte, nämlich dass dieserart gehandelt werden
+
+müsste, um das zu verhindern, was eben sich in verheerender Weise ergeben hat. Und wie ich von
+ihm weiss, wird die Corona-Seuche weiterhin das Tagesgeschehen der irdischen Völker beherrschen. Zwar ist die gegenwärtig sich stark im Verbreiten begriffene Variante der letzten Mutation
+in ihrem Verlauf und in der Wirkung nicht derart aggressiv wie die Mutationen zuvor, doch wird
+sie in den kommenden Wochen überwiegend werden und sich sehr stark verbreiten. Ausserdem
+wird es sein, dass die Impfungen grossteils nutzlos sein werden, denn das ständig mutierende
+Virus der Seuche hat sich bereits derart verändert, dass die Impfungen je länger, je mehr nutzlos
+gegen eine Neuinfektion werden, folglich also Geimpfte trotzdem einer Infektion verfallen, wie auch
+Genesene davon nicht verschont bleiben. Dies nicht zuletzt eben deswegen, weil die Impfstoffe
+von der Bedenklichkeit der ungenügenden Erprobung und den Tests nicht dem entsprechen, was
+sie bewirken sollten, anderseits weil gewisse Präparate für bestimmte Gesundheitskonstellationen
+völlig untauglich sind.
+
+
+-----
+

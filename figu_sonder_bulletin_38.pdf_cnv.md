@@ -1,0 +1,1452 @@
+# FIGU
+**Freie**
+
+**Interessengemeinschaft**
+**F.I.G.U.**
+
+**r**
+
+# SONDER-BULLETIN
+
+##### Erscheinungsweise: Internet: http://www.figu.org 13. Jahrgang Sporadisch E-Mail:  info@figu.org Nr.38, Aug. 2007
+
+## Wer ist die im Islam erwähnte Person, die Mahdi/Mehdi genannt wird?
+
+Der Begriff ‹MAHDI› ist ein Titel und bedeutet ‹Der Geführte/Geleitete›, ist aber in der arabischen Welt
+auch ein gewöhnlicher Name. Der Titel wurde in vielen Aussprüchen/Aussagen (Hadith) des Propheten
+Mohammed verwendet und bezieht sich auf eine messianische Gestalt innerhalb des Islams, die Frieden,
+Gerechtigkeit und Ehrlichkeit usw. bringen wird …
+Wie bei vielen anderen Ideen und Theorien gibt es auch im Islam zwischen den verschiedenen Sekten Unterschiede oder mindestens geringe Unterschiede. Die Mehrheit der Moslems, die Sunniten, einigen sich
+jedoch auf dem Niveau, dass es eine Person geben wird, die vor dem Ende der Tage auf der Erde erscheinen wird, um eine positive Änderung zu bringen, obwohl diese Änderungen in den Aussprüchen/
+Aussagen des Propheten hauptsächlich mit den Gesichtspunkten des Islams verbunden sind. Die Schiiten
+haben eine andere Ansicht. Der grösste Prozentsatz der Schiiten, die auch als Imamiten oder ZwölferSchiiten bekannt sind, behauptet, dass Mohammed Al-Mahdi, auch bekannt als Muhammad ibn Hasan
+ibn Ali, geboren im Jahr 868 unserer Zeitrechnung, der zwölfte Imam war. Aber der Fokus dieses Artikels
+ist aus der Sicht der Sunniten auf diese Person gerichtet.
+Seitdem wir von unseren Plejaren-Freunden Informationen darüber erhalten haben, dass der Islam schon
+vor dem Tod des Propheten Mohammed verfälscht wurde, sind viele Aussprüche (Hadith) des Propheten
+ziemlich unzuverlässig. Selbst wissenschaftlich gesehen, gibt es nicht viele Möglichkeiten, auch nur einige
+der Hadith wahrheitsgemäss zu bestätigen. Wenn sie aber mit den von Billy gegebenen Informationen
+gelesen werden, scheint es, dass einige der Hadith ihre ursprüngliche Form behalten haben könnten und
+deshalb mit den Informationen der Plejaren und Billys übereinstimmen.
+Trotz der modernen Beliebtheit wird der Mahdi/Mehdi im Koran nicht erwähnt, weshalb in den meisten
+Artikeln und Büchern, die von dieser Person handeln oder in denen diese Person erwähnt ist, nur der
+Hadith als Referenz erwähnt wird, was auch in diesem Artikel der Fall ist. Hier sind einige Beispiele:
+
+Zitat von Ahmad Ibn Hanbal:
+Der Prophet Mohammed sagte: «Allah wird kurz vor dem Tag des Urteils al-Mahdi von meiner Abstammung aus dem Versteck bringen; selbst wenn nur ein Tag im Leben der Welt bleiben sollte, und er
+wird auf dieser Erde Gerechtigkeit und Billigkeit ausbreiten und Tyrannei und Unterdrückung ausrotten
+wird.»
+
+Zitat von (Tirmidhi) Hadhrat Ali:
+Der Prophet Mohammed sagte: «Selbst wenn nur ein Tag für die Qiyamah (Endtage) übrig bleiben
+sollte, wird Allah bestimmt einen Mann von meiner Abstammung senden, der diese Welt mit solcher
+Gerechtigkeit und Schönheit füllen wird, wie es am Anfang mit der Unterdrückung verbreitet wurde.»
+(Abu Dawood)
+
+
+**Freie**
+
+
+-----
+
+Zitat von (Tirmidhi) Hadhrat Abdullah Ibn Mas'ood:
+Der Prophet Mohammed sagte: «Diese Welt wird nicht enden, bis ein Mann (sich auf Mahdi beziehend)
+von meiner Nachkommenschaft kommt, der nicht über die Araber herrscht, und sein Name derselbe
+wie mein Name sein wird.»
+
+Obwohl einige Menschen behauptet haben, dass es klare Zeichen seiner Ankunft gäbe, wie in verschiedenen anderen Hadith erwähnt wird, hat eine nähere Überprüfung jedoch gezeigt, dass die Vorhersagen
+nicht wirklich exakt sind, da viele Daten der Ereignisse nicht genau zusammenpassen oder die Prophetien
+so allgemein gehalten waren, dass leicht angenommen werden könnte, dass etwas wie das Vorausgesagte in Zukunft geschehen würde. Es ist deshalb nicht nötig, diese hier zu erwähnen. Zwischen den
+islamischen Gelehrten gibt es viele Debatten, ob diese Person wirklich existierte oder tatsächlich jemals
+existieren wird, da der Hadith nicht authentisch ist und nicht den inspirierten Gottesworten des Propheten
+Mohammed entsprechen könnte.
+
+Wie das Christentum die Auferstehung von Jesus sieht der Islam den Mahdi/Mehdi auf ähnliche Weise,
+jedoch nicht als eine Wiederauferstehung des Propheten Mohammed, sondern als eine messianische Gestalt, die die Menschen dem Licht des Islams usw. usf. zurückbringen wird. In der Vergangenheit gab es
+einige Menschen, die behaupteten, der Mahdi/Mehdi zu sein, wie es auch bei Christen ist, bei denen
+viele Leute behaupten, Jesus zu sein.
+
+Und jetzt ein kurzer Hinweis auf die frühen Reisen Billys: 1967 reiste Billy mit seiner jetzigen Ex-Frau,
+Kalliope, in den Fernen Osten, nämlich nach Karachi in West Pakistan. Während ihrem Aufenthalt in
+West-Pakistan wurden sie in den Lehren des Islam unterrichtet. Billys Grund, den Islam zu studieren, lag
+in seiner Aufgabe, die Weltreligionen kennenzulernen und sie gründlich zu erlernen. Wenn jemand zum
+Islam übertritt, wird ihm/ihr gewöhnlich ein arabischer Name gegeben, wenn sie nicht bereits einen solchen haben. So erhielt Billy den moslemischen Namen Mohammed Abdullah und Kalliope (seine Ex-Frau)
+den Namen Ayesha Abdullah.
+
+In den ursprünglichen Lehren Jmmanuels im Talmud Jmmanuel wird der Neuzeit-Prophet erwähnt. Erwähnte Prophet Mohammed diesen Neuzeit-Propheten auch in seinen Lehren? Wie im Christentum, nach
+vielen Jahrhunderten von Fälschungen, ist es auch im Islam schwer, sicher zu wissen, ob der Prophet
+Mohammed wirklich vom Neuzeit-Propheten sprach oder ob seine Aussagen gefälscht wurden, weil das
+Erwähnen eines Neuzeit-Propheten einen Widerspruch zum weithin bekannten islamischen Unterricht
+schaffen würde, der Mohammed als letzten Propheten betrachtet. Trotzdem ist der Name des Propheten
+des Islams als Mohammed Abdullah bekannt, und der Mahdi/Mehdi wird, wie in einem obengenannten
+Hadith erwähnt, den gleichen Namen tragen, also: Mohammed Abdullah.
+
+Kann es wirklich so sein? Welchen Grund gibt es, dass Billy jene zwei Namen aus Tausenden arabischer
+Namen gegeben wurden? Einerseits können wir uns als Grund vorstellen, dass dieses Geschehen vor langer
+Zeit in Bewegung gesetzt worden sein könnte und dass es das Ergebnis einer Bestimmung aus ferner Vergangenheit ist, wodurch der Neuzeit-Prophet auch diesen Namen trägt, weil er in den Schriften des Islams
+nicht lange überlebt hätte, hätte er nicht einen arabischen Namen getragen. Andererseits kann man auch
+behaupten, dass das Ganze nur eine Lüge sei und dass Billy sich diesen Namen selbst gegeben habe,
+weil er wusste, was er verursachen konnte. Weil die Person, die ihm diesen Namen gab, nicht interviewt
+wurde und weil niemand behauptet, ihm diesen Namen gegeben zu haben, kann es nicht sicher nachgeprüft werden (als Beweis der Richtigkeit von Billys Angaben siehe entsprechendes Zertifikat vom 26.
+Juni 1967/Karachi, Pakistan, als Photoabdruck).
+
+Was getan werden kann, ist zu versuchen, die Stellung Billys und seine Gründe zu hinterfragen, die ihn
+veranlasst haben könnten, eine solche Lüge zu fabrizieren. Billy hat niemals über irgend etwas absicht
+
+-----
+
+lich gelogen. Er könnte, wenn er falsch informiert war, in der Vergangenheit falsche Dinge erzählt haben,
+was aber nicht absichtliche Lügen wären. In all den Jahren konnte niemand beweisen, noch ist es irgendwo dokumentiert, dass Billy absichtlich gelogen hätte, um zu täuschen oder um jemanden zu betrügen.
+Ein sehr wichtiger Punkt ist auch, dass er nie behauptete, ein Prophet zu sein. Menschen um Billy herum
+haben ihn aber als weisen Lehrer erkannt, der sein ganzes Leben dem Unterrichten von uns Menschen gewidmet hat und nie irgend etwas dafür verlangte. Er zeigte auch nie irgendwelche Zeichen eines Wunsches,
+sich über irgend jemanden zu erheben. Nach meiner persönlichen Erfahrung ist er eine der bescheidensten
+und freundlichsten Personen, die ich je getroffen habe.
+
+Nehmen Sie bitte zur Kenntnis, dass die in diesem Artikel vertretenen Ansichten weder die von Billy noch
+jene der FIGU sind. Ich übernehme die volle Verantwortung für alle Informationen in diesem Artikel und
+hoffe, dass es aus anderen Perspektiven mehr zum Fall geben wird. Als Endnotiz möchte ich anführen, dass
+dies mein erster Artikel ist, weshalb ich mich gerne dafür bedanken möchte, dass die Schöpfung und die
+Plejaren-Freunde unserer Entwicklung durch Billy helfen. Bei Billy bedanke ich mich dafür, dass er uns nie
+aufgegeben hat. Da ich schon als kleiner Junge über den Mahdi/Mehdi erfuhr, konnte ich damals nur
+träumen, dass ich diese Person jemals treffen und hören könnte, was sie zu sagen hat. Ich wusste damals
+schon, dass es etwas Falsches gab und brauchte einige Erläuterungen. Ungefähr zwei Jahre, nachdem
+ich von Billy erfahren hatte, las ich sein Buch ‹Einführung in die Meditation› und fand heraus, dass ihm
+der Name Sheik Mohammed Abdullah gegeben worden war. Meine Augen füllten sich mit Tränen, als ich
+wusste, dass ich ihn tatsächlich in
+dieser Lebenszeit gefunden habe.
+Seither habe ich sehr viel von
+dieser weisen Person erfahren
+und gelernt. Ich hoffe imstande
+zu sein, den suchenden Menschen seine Weisheiten aufzeigen
+zu können, in der Hoffnung,
+dass sich eines Tages durch seine
+Weisheiten der wahre Frieden
+und die Freiheit der ganzen Erde
+und dem Rest des Weltalls offenbaren werden.
+Salome,
+H. al-Bakr, Irak
+
+PS: Der Autor spricht Deutsch,
+Englisch und Arabisch.
+
+Original-Zertifikat der Ernennung
+Eduard Albert Meiers zu Mohammed Abdullah von 1967; unten die
+türkische Übersetzung des Zertifikats.
+
+
+-----
+
+## Who is the person named the Mahdi/Mehdi mentioned in Islam?
+
+The term ‹MAHDI› is a title meaning ‹The Guided/Directed one›, but is also a common name in the Arabic
+world. This title has been used in many of Prophet Mohammed’s sayings (Hadith) referring to a messianic figure within Islam who will bring peace, justice and honesty etc. …
+Like many ideas and theories in Islam there are usually differences or at least slight differences that exist
+between the various sects. However, the majority of Muslims, the Sunni, agree on the level that that there
+is a person who will be appearing on Earth before the End of Days to bring a positive change. Although
+in the sayings of the prophet, these changes are mostly related to positive changes in the Islam’s points of
+view. On the other hand the Shi’a have a different view. If we take the highest percentage of Shi’a which
+are known as Imamites or the Twelvers, they claim that this person was Mohammed Al-Mahdi (also known
+as Muhammad ibn Hasan ibn Ali) born in 868, and was the twelfth Imam. But the focus of this article will
+be on the Sunni’s view of this person.
+Since we have been given information from our Plejaren friends that Islam was falsified even before the
+death of the Prophet Mohammed, a lot of the prophet’s sayings (Hadith) are rather unreliable. Even if
+scientifically viewed, there are not many ways to truly authenticate any of the Hadith, but if they are read
+taking into consideration the information given to us by Billy, it seems that a few Hadith may have retained their original form, and therefore correspond to information given to us by the Plejarens or Billy.
+Despite modern popularity, the Mahdi/Mehdi is not mentioned in the Qu'ran. Therefore in most articles
+and books where this person is mentioned or dealth with, only the Hadith are mentioned as a reference,
+which is also the case with this article. Here are a few examples …
+
+Ahmad Ibn Hanbal is quoted as saying: The Prophet Mohammed said «Allah will bring out from
+concealment al-Mahdi from my lineage and just before the Day of Judgment; even if only one day were
+to remain in the life of the world, and he will spread on this earth justice and equity and will eradicate
+tyranny and oppression.»
+
+(Tirmidhi) Hadhrat Ali is quoted as saying: The Prophet Mohammed said «Even if only a day remains
+for Qiyamah (means, the End of Days) to come, yet Allah will surely send a man from my lineage who will
+fill this world with such justice and fairness, just as it initially was filled with oppression.» (Abu Dawood)
+
+(Tirmidhi) Hadhrat Abdullah bin Mas'ood is quoted as saying: The Prophet Mohammed said, «This
+world will not come to an end until one man (referring to Mahdi) from my progeny does not rule over
+the Arabs, and his name will be the same as my name.»
+
+
+Although some people have claimed that there are clear signs of his coming mentioned in various other
+Hadith, a closer examination of the prophecies/predictions shows that they are not really accurate, since
+a lot of the dates do not exactly correspond to the occurrences of the events, or the prophecies/predictions were so general that it could have been an easy guess that something like that would happen in the
+future. Therefore it is not worthwhile including them in this article. Among the Islamic scholars there is
+much debate as to whether this person does exist or will actually ever exist, since the Hadith might not be
+authentic, and might not correspond to the inspired divine words of the Prophet Muhammed.
+As with Christianity and the resurrection of Jesus, Islam sees the Mahdi/Mehdi in a similar way, not as
+the resurrection of the Prophet Mohammed, but as a messianic figure that will bring the people back to
+the light of Islam and so on and so forth. There have been a few people in the past who have claimed to
+be the Mahdi/Mehdi, as is the case with Christians where a lot of people claimed to be Jesus.
+
+And now a short reminder of the early travels of Billy: In 1967 Billy and his now ex-wife, Kalliope continued their travels towards the Far East, namely to Karachi, West Pakistan. During their stay they were
+
+
+-----
+
+both taught about Islam. Billy’s reason to study Islam was because of his task to get to know the world
+religions and to learn them thoroughly. When somebody converts to Islam, he/she is usually given an
+Arabic name(s) if he/she doesn’t already have one, and so Billy was given the Muslim name Mohammed
+Abdullah and Kalliope (his ex-wife) the name Ayesha Abdullah.
+
+As we have seen in the original teachings of Jmmanuel in the TJ, the prophet of the new time is mentioned. Did the Prophet Mohammed also mention this the prophet of the new time in his teachings? Like
+Christianity after many years of falsifications it is hard to know for sure if the Prophet Mohammed did
+speak of the prophet of the new time or if it was falsified, because mentioning the prophet of the new time
+would create a paradox to the well known Islamic teaching where the Prophet Mohammed is considered
+to be the final prophet. Nevertheless the name of the prophet of Islam is known as Mohammed Abdullah,
+and therefore the Mahdi/Mehdi, as Stated in one of the above Hadith, would have the same name, i.e.
+Mohammed Abdullah.
+
+Can it really be so? What are the chances that Billy was given the combination of those two names out of
+thousands of Arabic names? On one hand we can imagine that the reason is that such a thing could have
+been set in motion a long time ago, and is a result of a direction taken in the distant past whereby the
+prophet of the new time would carry this name as well, because in most cases this person would not have
+survived in Islam’s writings for so long if the name was not an Arabic one. On the other hand one can
+also claim that it was all a lie and that Billy gave himself this name knowing what it might cause. As the
+person that gave him this name has not been interviewed and nobody has claimed to have given him this
+name, it cannot be verified for sure (as proof of the genuineness of Billy’s statements, see the photocopy
+of the corresponding certificate of June 26, 1967/Karachi, West Pakistan, which is included in the German
+version of this article).
+What can be done, is to try to analyze Billy’s position and what could have prompted him to fabricate
+such a lie. Billy has never intentionally lied about anything; he might have told incorrect things in the past
+but that was a result of being misinformed and was therefore not an intentional lie; but after all these years
+no one has proved nor has it been documented anywhere that he had deliberately lied to deceive or cheat
+someone. And a very important point is that he has never claimed to be a prophet, but people around
+Billy have recognized him as a wise teacher, dedicating his whole life to teaching us human beings, and
+never asking for anything in return. He has never shown any signs of wanting to promote himself over
+anyone, and from my personal experience he is one of the humblest and kindest persons I have ever met.
+
+Please note that the views expressed in this article are neither of Billy nor that of FIGU. I take full responsibility for all the information written down in this article, and hope that it might give more light towards the
+case from a different perspective. And as a final note, since this is my first article, I would like to thank the
+Creation and the Plejarens for helping our development through Billy, and thank you ‹Billy› for not giving
+up on us. Since I was very young when I first heard about the Mahdi/Mehdi, I could only dream about
+the day when I could meet this person and hear what he has to say, because I knew already then that
+there was something wrong which needed some clarifications. About two years after finding out about
+Billy, I found out while reading the book ‹Einführung in die Meditation› that he had been given the name
+Mohammed Abdullah. My eyes filled with tears when I realised that I had actually found him in this lifetime. And since then, I have learned a lot from this wise person, and I hope I will be able to reflect the
+wisdom I have learned from him to the people that seek it, in the hope that one day his wisdom will bring
+true peace and freedom to the whole earth and the rest of the universe.
+Salome,
+H. al-Bakr, Irak
+PS: The autor speaks German, English and Arabic.
+
+
+-----
+
+## Bevölkerungswachstum und Wirtschaftswachstum aus der Sicht eines Biologen
+
+von Hennig Stieve, Deutschland
+#### Wir haben nicht zu wenige Kinder, sondern wir sind zu viele Menschen!
+In der Natur haben Lebewesen normalerweise mehr Nachkommen als überleben können. Trotz der natürlichen Überproduktion nehmen die Individuenzahlen der meisten Arten nicht laufend zu, weil viele Individuen durch Feinde, Krankheiten, Stress und andere Ursachen frühzeitig sterben. Überproduktion an
+Nachkommen ist ein wesentliches, aber teures Erfolgsrezept in der Evolution. Da die Nachkommen untereinander erblich verschieden sind, werden dabei viele zufällig verschiedene Möglichkeiten ausprobiert,
+um in der Umwelt zurechtzukommen. Da es Feinde und Konkurrenten und nicht genügend Lebensraum und
+Ressourcen für alle Nachkommen gibt, können nicht alle überleben. Viele von ihnen sterben (bevorzugt
+solche, die für die gerade herrschende Situation weniger geeignet sind) ohne sich fortzupflanzen (Selektion). Daher wachsen in der Natur Populationen nicht beliebig; die Populations-Dichte ist beschränkt. Die
+Wege, auf denen die Bevölkerungszunahme reguliert wird, sind bei verschiedenen Tier- und Pflanzenarten recht verschieden. Zwei Extreme:
+Ungebremstes Bevölkerungswachstum führt in eine Katastrophe. Viele Arten leben nach einer Katastrophenstrategie: Blattläuse, Wanderheuschrecken, Lemminge und Pionierpflanzen (z.B. Ackerunkräuter)
+vermehren sich explosionsartig, wenn die Bedingungen günstig sind; später sterben die meisten von ihnen
+in Massensterben. Nahrungs- und Platzmangel, Infektionskrankheiten, Stress und Zunahme der Feinde
+sind häufige Ursachen. Anschliessend kann das Wachstum wieder von wenigen Individuen von neuem
+ausgehen. Bei manchen Arten mit langlebigen Individuen sterben die allermeisten Nachkommen in den
+frühesten Stadien. Eichen und Buchen produzieren eine riesige Zahl an Nachkommen, von denen die meisten
+als Sämlinge aus Lichtmangel zugrunde gehen. Nur ein winziger Bruchteil von ihnen wächst zu stattlichen
+Bäumen heran. Andere Arten, z.B. viele langlebige grössere Säugetiere (Elefanten, Hirsche und Menschenaffen), haben eine geringere Überproduktion an Nachkommen, doch auch ihre Populationsdichte wird
+durch Selektion begrenzt, wobei es nicht zu katastrophalen Massensterben kommen muss.
+Einige Tierarten haben im Laufe der Evolution gelernt, ihre Vermehrung bei Bedarf selbst zu begrenzen.
+So gibt es Mäusearten, bei denen bei hoher Populationsdichte unter anderem durch Stress die Ei- und
+Samenreifung (selbst bei noch ausreichender Ernährung) eingeschränkt wird, schliesslich sogar aufhört,
+und Embryonen absterben. Manche Arten pflanzen sich unter schlechten Bedingungen weniger oder nicht
+fort (Beispiele: Mäusebussard und Eulen bei Mäuseknappheit). Ein besonderer Regulationsmechanismus
+ist z.B. von Krallenäffchen bekannt: Sie leben im tropischen Regenwald in Familienverbänden, in denen
+nur ein Weibchen Junge bekommt. Dieses ‹Alpha-Weibchen› sondert einen Duftstoff (ein Pheromon) ab,
+der bei den anderen Weibchen die Eireifung verhindert.
+Arten können neue Lebensräume erschliessen, wodurch mehr Nachkommen überleben können. So hat
+der Mensch die ganze Erde besiedelt, auch indem er die Umwelt gewaltig verändert hat. Die Umweltbedingungen in der Nähe der Menschen sind auch für viele andere Arten attraktiv. Solche ‹Kulturfolger›
+können sich mit dem Menschen über die ganze Erde ausbreiten. Beispiele sind unter anderen Hausmaus,
+Haussperling, Wanderratte und Stadttaube. Manche von ihnen können sich in Menschennähe, wo sie kaum
+Feinde haben, so stark vermehren, dass sie zur Plage werden können und Menschen ihre Vermehrung
+einschränken. Hirsche und Rehe, die bei uns kaum noch Feinde haben, würden sich noch mehr vermehren,
+wenn nicht viele von ihnen durch Jäger getötet würden.
+Die Menschen vermehren sich gewaltig; und sie haben heute ausser Krankheiten kaum noch artfremde
+Bedrohungen. Als Kulturschaffende und Kulturfolger erobern und beanspruchen sie immer mehr Raum
+der Erde, wobei dieser Raum für viele andere Arten verlorengeht. Die Menschheit ist dabei, die Lebensgrundlage für viele Tier- und Pflanzenarten und damit auch für kommende Menschengenerationen zu zer
+
+-----
+
+stören, zu verbrauchen. Seit vielen Jahrzehnten ist das Wachstum der Menschheit exponentiell. Wenn das
+so weiter geht, führt es zwangsläufig in Katastrophen. Viele Probleme werden durch Überbevölkerung
+verursacht. Krankheiten und Stress, Nahrungsmangel, Konkurrenz und schliesslich Kriege um Ressourcen
+und Raum sind drohende Gefahren von zu hohen Populationsdichten.
+Überbevölkerung gibt es auch in Deutschland – nicht nur in Ländern wie Indien, China und Brasilien. Seit
+es Menschen gibt, haben in Deutschland noch nie so viele Menschen gelebt wie heute. Eigentlich sollten
+Menschen mit Vernunft in der Lage sein, ihre Populationsdichte auf ein erträgliches Mass zu regulieren.
+Dies geschieht aber bisher leider nicht genügend. Fortpflanzungstrieb, Tradition und religiöse Überzeugungen sind zu stark. Auch mangelndes Wissen und politischer Opportunismus verhindern wirksame
+Geburtenbeschränkung. In vielen westlichen Ländern hat die Geburtenrate mit steigendem Wohlstand und
+der Erhöhung der Lebenserwartung abgenommen. Dies ist möglicherweise eine vielleicht unbewusste
+Reaktion auf die Überbevölkerung. Die Abnahme der Geburten könnte darauf hinwirken, dass sich die
+Bevölkerungsdichte auf ein niedrigeres Mass einpendelt. Eine solche regulierende Reaktion greift allerdings in vielen vor allem wirtschaftlich schwachen Ländern noch nicht.
+Seit einigen Jahren ist es auch vielen Politikern aufgefallen, dass in Deutschland und anderen westlichen
+Ländern der Anteil der Älteren erheblich zugenommen hat. Das gesellschaftliche Fürsorgemodell, nach
+dem die nachwachsenden Jungen die Alten mitversorgen, ist für die menschliche Gesellschaft bei nicht zu
+hohen Populationsdichten naheliegend. Bei einem grossen Übergewicht an Älteren passt dies aber nicht
+mehr. Und da fällt vielen nichts anderes ein, als zu fordern, es müssten bei uns mehr Kinder geboren
+werden. Aber das würde weitere Überbevölkerung bedeuten. Es sind stattdessen neue Lösungswege gefragt. Wir müssen nach intelligenten anderen Lösungen als den gewohnten suchen. Arbeit muss anders
+verteilt werden. Wenn es weniger junge Menschen gibt, um die vielen Alten zu versorgen, sollten arbeitsfähige Alte mithelfen, für andere Alte zu sorgen.
+Oft wird hier noch eine Wartehaltung verteidigt: «Wir müssen erst dann etwas gegen die Überbevölkerung
+unternehmen, wenn dies auch viele andere Länder tun.» Aber auch die viel grössere Überbevölkerung in
+ärmeren Ländern ist kein Grund, jetzt in Deutschland noch nichts zu unternehmen. Wäre es nicht besser,
+einen vorbildlichen Weg zu suchen, bei dem wir mit kleineren Nachwuchszahlen eine ausgewogene gesellschaftliche Fürsorge zustande bringen?
+
+#### Permanentes Wirtschaftswachstum auf Kosten anderer?
+Es scheint so, als sei es heute ein von fast allen Wirtschaftlern, Politikern und Medien kritiklos akzeptiertes
+Credo, dass wir ein jährliches Wirtschaftswachstum von einigen Prozent brauchen. Ein stetiges Wachstum
+um beispielsweise 2% bedeutet aber ein exponentielles Wachstum – ins Grenzenlose; das sollten wir trotz
+unseres Pisa-Defizits einsehen können. (Viele Politiker wissen vielleicht nicht, was exponentielles Wachstum bedeutet, aber Frau Merkel, als Physikerin, sollte es wissen.) Wachstum – und schon gar exponentielles – darf es auf der begrenzten Erde heute nur in vorübergehenden Entwicklungsphasen geben, wenn
+es nicht in Katastrophen führen soll. Fortlaufendes Wirtschaftswachstum kann bei uns im wesentlichen nur
+auf Kosten anderer (schwächerer Länder und zukünftiger Generationen) erfolgen.
+Die Weltwirtschaft scheint nach naturgegebenen Gesetzen zu verlaufen. Bisweilen führt sie zu Fehlentwicklungen: So wird unter anderem Milch und Schlachtvieh in ganz Europa über weite Strecken hin- und
+her gekarrt, weil es ‹ökonomischer› ist, als sie dort zu verarbeiten, wo sie erzeugt oder gebraucht werden.
+(Das hat auch ein bisschen von ‹Herren-Moral›: Die Armen können die Drecksarbeit leisten.) In Bielefeld
+und Halle werden Steine für Strassenpflaster aus China geholt, weil das so billig ist. Es scheint auch ‹ökonomischer›, defekte wertvolle Produkte wegzuwerfen, als sie zu reparieren. Für all das gibt es im Rahmen
+einer kurzfristigen Wirtschaftslogik plausible Gründe. Weil Energie bei uns verhältnismässig billig ist und
+Arbeit teuer, scheint es ‹ökonomisch›, unsere Ressourcen rücksichtsarm zu verbrauchen. Nach unserem
+fast einhellig akklamierten Wirtschaftssystem sollten wir sogar ein schlechtes Gewissen haben, wenn wir
+nicht mehr einkaufen, als wir brauchen.
+
+
+-----
+
+Unser gegenwärtiges Wirtschaftssystem läuft langfristig in eine für die grössere Zahl der Menschen ungünstige Richtung. Wir sind dabei, durch unsere Wirtschaftspolitik unseren Kindeskindern die Lebensbedingungen zu verderben, aber kaum jemand ist ernsthaft daran interessiert, wie es unseren Urenkeln
+gehen wird. Viele Politiker und Wirtschaftler haben nicht die Einsicht oder den Mut zuzugeben, dass
+«Weitermachen mit immer mehr Wachstum» ein falscher Weg ist; andere meinen vielleicht, dass wir
+wenigstens noch ein paar Jahre so weitermachen können. Es fehlt an Entschlossenheit, zielstrebig zu versuchen, bessere, auch zunächst unpopuläre Wege zu gehen und es nicht späteren Generationen zu überlassen, mit dem Schaden, der heute angerichtet wird, zurechtzukommen. Vieles, was zu tun nötig ist, ist
+heute unpopulär und deshalb politisch kaum durchsetzbar. Aber sollten nicht die Medien eine Plattform
+bieten, auf der wir nach besseren Lösungen suchen? Sie könnten mehr dabei helfen, gute Wege zu bereiten, indem sie verschiedene Wirtschaftsmodelle kritisch diskutieren anstatt immer wieder nachzubeten:
+«Wir brauchen Wachstum, Wachstum, Wachstum!»
+Wir müssen endlich lernen, mit dem Vorhandenen auszukommen – ohne ständiges Wirtschaftswachstum.
+Das sollte möglich sein. Die Biologie macht es uns vor: Organismen sind in mancher Hinsicht Modelle für
+Wirtschaftssysteme. Und der Mensch wächst nach seinem 20. Lebensjahr nicht mehr nennenswert; trotzdem kann er danach ohne Wachstum ein langes gesundes Leben führen. Da wirkt unser Geschrei nach
+Wachstum ein wenig pubertär: «Ich bin jetzt 18 Jahre alt und wachse kaum noch!» Da wir zur Zeit so auf
+Wachstum fixiert sind, nehmen wir überhaupt nicht wahr, wie gut es uns in Deutschland geht – im Vergleich zu den meisten Menschen auf der Welt.
+
+Herr Stieve hat dem FIGU-Mitglied Achim Wolf am 26.6.07 die Erlaubnis erteilt, den Artikel dem WZVerlag zur Veröffentlichung zur Verfügung zu stellen. Prof. Dr. Hennig Stieve ist Biologe am Institut für
+Biologie II, Lehrstuhl für Zoologie/ Tierphysiologie an der RWTH Aachen gie/
+(http://www.bio2.rwth-aachen.de/users/stieve/html/hennig.htm
+E-Mail: STIEVE@RWTH-AACHEN.DE).
+
+
+Hennig Stieve (2006): Bevölkerungswachstum und Wirtschaftswachstum aus der Sicht eines Biologen,
+Naturwissenschaftliche Rundschau 59(3), 80-83
+
+Am selben Tag hat Herr Dr. Klaus Rehfeld von der Redaktion ‹Naturwissenschaftliche Rundschau›, Birkenwaldstrasse 44, 70191 Stuttgart (http://www.naturwissenschaftliche-rundschau.de) die gleichlautende
+Erlaubnis erteilt. Der Artikel ist im Februar 2006 in der Zeitschrift ‹Naturwissenschaftliche Rundschau›,
+59. Jahrgang, Seite 80–83 erschienen.
+
+Herr Dr. Rehfeld hat gleichzeitig nachgefragt, ob bei einer Veröffentlichung in einem FIGU-Bulletin der
+WZ-Verlag damit einverstanden wäre, dass die ‹Naturwissenschaftliche Rundschau› den Artikeltext auf
+ihre Homepage setzt. Im Gegenzug würde er darum bitten, dass der WZ-Verlag einen Link dorthin setzt,
+also z.B. in einem Bulletin. Bei einem Abdruck des Artikels möchte er um die genaue Quellenangabe und
+um Zusendung eines Belegheftes bitten (E-Mail: krehfeld@wissenschaftliche-verlagsgesellschaft.de).
+
+Dem Ersuchen von Herrn Dr. Rehfeld wird natürlich entsprochen.
+
+
+-----
+
+## In Erinnerung an Premier Tony Blair
+
+Aus ‹DIE ZEIT›, vom 14.06.2007, Nr. 25
+
+## Die Lüge als höhere Wahrheit
+#### Eine Erinnerung an die überwältigende Schauspielkunst des Tony Blair.
+Von Raymond Geuss
+**Tony Blair schuf sich eine moralische Phantasielandschaft, die er mit der Wirklichkeit verwechselte.**
+Im öffentlichen Leben wird häufig und auf vielfältige Weise gelogen. Finanzminister, die im Privatumgang
+vollkommen ehrlich sind, müssen sich gelegentlich gegen die Wahrheit versündigen, um notwendige
+währungspolitische Massnahmen durchzuführen, und Diplomaten sind gehalten, die Politik ihrer Regierung
+ins rechte Licht zu stellen, auch wenn sie wissen, dass sich gewisse lichtscheue Subtilitäten dieser Politik
+keiner allgemeinen Zustimmung erfreuen würden und daher besser unerwähnt blieben. Es gibt kleine
+verschämte Lügner, wie die meisten Opfer der besonders in Grossbritannien beliebten Sexskandale, und
+grosse, unverschämte Lügner, die genau wissen, was sie tun. Tony Blair gilt als einer der erfolgreichsten
+Labour-Politiker der letzten fünfzig Jahre und auch als einer der grössten Lügner. Wie reimt sich das zusammen?
+**Der Schlüssel zum Verständnis des Politikers Blair ist seine einzigartige Verbindung von extremer schau-**
+spielerischer Begabung und religiösem Eifer. Ein besonders hartes, aber treffendes Urteil über ihn hat
+seine ehemalige Kabinettskollegin Claire Short gefällt: «Blair ist es eigentlich ganz gleich, welches Stück
+gespielt wird, solange er die Hauptrolle hat.» Da es in einem Theaterstück gar nicht um Wahrheit geht,
+sondern lediglich um überzeugende Darstellung, wäre Tony Blair demnach ein gesinnungsloser Opportunist, der überzeugend wirkt, weil er in der Lage ist, zuerst sich selbst von der Wahrheit dessen, was er
+sagt, und von seiner eigenen Wahrhaftigkeit zu überzeugen.
+Damit ist allerdings nicht das letzte Wort über den Fall Blair gesprochen, denn er ist auch ein gläubiger
+Christ, der in gewissem Sinne eine Moralisierung der Politik anstrebt. ‹Moralität› heisst im Westen überwiegend ein auf monotheistischen Restvorstellungen beruhender grosser Simplifikationsapparat: Es gibt
+einen strengen Unterschied zwischen einem unbedingt Guten und einem teuflisch Bösen, ohne Zwischenstufen. Der Mensch muss das Gute wählen und das Böse vermeiden beziehungsweise bekämpfen. Hier die
+richtige Wahl zu treffen ist von so unendlicher Wichtigkeit, dass alle anderen menschlichen Zwecke kaum
+ins Gewicht fallen. Angesichts der in diesem Weltbild enthaltenen Möglichkeiten zur Selbstinszenierung
+als Vorkämpfer des unbezweifelt Guten nimmt es nicht wunder, dass ein ehrgeiziger christlicher Politiker,
+zumal einer, der sowieso zum Schauspielen neigt, leicht in die Rolle des Gottesritters schlüpft.
+Die grosse Stärke einer derart moralisierten Politik besteht darin, dass sie die Struktur gewisser dringlicher
+Entscheidungssituationen widerspiegelt. Manchmal kann man in der Tat nicht umhin, unter Zeitdruck
+zwischen gegebenen, schwerwiegenden Alternativen zu wählen. Als politische Grundeinstellung hat aber
+diese Denkweise massive Schwächen, verleitet sie doch dazu, blosse Interessenskonflikte als moralische
+Auseinandersetzungen zu missdeuten und ein vereinfachtes Gut-Böse-Schema auch auf andere Situationen
+zu projizieren. Sie entwertet das Verstehen, die Toleranz und Kompromissbereitschaft und die Suche nach
+neuen Möglichkeiten des entschärften Zusammenlebens zwischen Gegnern. Wer weiss, dass er die Weltsituation in Umrissen richtig überblickt und moralisch korrekt beurteilt, kann sich die Mühe einer genauen
+Kenntnisnahme der vielen Details sparen. Wenn die Aufgabe unendlich wichtig ist, sind kleine oder auch
+grössere Unwahrheiten lässliche Sünden. Was zählt schliesslich eine kleine Lüge verglichen mit der
+Bekämpfung des Terrors? Es hat vielleicht sogar etwas Heldenhaftes an sich, die eigene Seele um des
+Sieges der guten und gerechten Ordnung willen moralisch zu belasten.
+**Vor der Invasion des Iraks hat eine Gruppe führender Nahostexperten bei Tony Blair vorgesprochen, um**
+ihn vor den Folgen einer unüberlegten Entscheidung zu warnen. Die Situation im Irak sei sehr komplex,
+
+
+-----
+
+man könne das Gleichgewicht der politischen, religiösen, und nationalen Kräfte leicht stören, man müsse
+vorher genau wissen, was man vorhabe, wie man die Besetzung des Landes zu organisieren gedenke und
+so weiter. Blair soll nur widerwillig und gelangweilt zugehört haben, die Reden der Akademiker aber
+immer wieder mit derselben Frage unterbrochen haben: «Saddam ist aber ein Bösewicht, nicht wahr?»
+(«But Saddam is evil, isn’t he?»).
+Selbstverständlich hat Blair eine Reihe ganz normaler, dicker Lügen erzählt und ist ein Meister im gezielten
+Gebrauch von Halbwahrheiten. So hat er das britische Parlament wiederholt über die Zielsetzung seiner
+Irakpolitik belogen. Dass Saddam Hussein einen Krieg verhindern und unbehelligt an der Macht bleiben
+könne, wenn er sich nur dem Willen der UN beuge, hat Blair monatelang verkündet, obwohl er schon mit
+George W. Bush beschlossen hatte, Saddam in jedem Fall, gegebenenfalls mit militärischer Gewalt, zu
+stürzen. Er hat vertrauliche, von den britischen Sicherheitsdiensten vorgelegte Analysen, die zum Schluss
+kamen, Hussein stelle keine Gefährdung des Friedens im Nahen Osten dar, in ihr Gegenteil verkehrt und
+in dieser gefälschten Form veröffentlicht. Die französische Position in der Frage der sogenannten ‹zweiten
+Irak-Resolution› hat er zielbewusst falsch dargestellt, um die ‹Schuld› für das Nichtzustandekommen dieser
+Resolution den Franzosen anzulasten. Von solchen Beispielen liessen sich noch weitere anführen.
+Plumpe Lügen und systematisch irreführende Behauptungen unterminieren die demokratische Willensbildung und sind für den Lügner selbst nicht ungefährlich, da er ertappt werden kann. Verderblicher noch
+als die mit vollem Bewusstsein vorgetragene falsche Aussage ist aber die für Blair charakteristische Form
+der Unwahrheit: Die auf Wunschdenken, Selbsttäuschung und einem unendlichen Selbststilisierungsbedürfnis beruhende ‹Zurechtmachung› der Welt durch Unterdrückung unliebsamer und Erfindung falscher
+Tatsachen. Wer gewohnt ist, auf diese Weise vorzugehen, weiss am Ende selber nicht, woran er ist. Die
+kurzfristige argumentative Überlegenheit, die aus dem absoluten Vertrauen in die Richtigkeit des eigenen
+moralischen Urteils entsteht, paart sich mit der eventuellen Unfähigkeit, die Welt so zur Kenntnis zu nehmen,
+wie sie ist. Längerfristig können sich freilich die verachteten kleinen grauen Tatsachen auf eine ganz grausame Weise rächen.
+Der ‹Modernisierer› Blair hat durch die Institutionalisierung neoliberaler Dogmen und durch eingreifende
+Privatisierungen im Gesundheits-, Bildungs-, Transport- und Sicherheitssektor eifrig den Abbau der Sozialdemokratie betrieben. Ausserdem hat er wesentliche Stützen der parlamentarischen Demokratie zerstört,
+individuelle Bürgerrechte beschränkt oder abgeschafft und als Erbschaft eine geschwächte, ideologisch
+ausgehöhlte Labour-Party hinterlassen. Die ursprüngliche aussenpolitische Hoffnung Blairs, als Pontifex
+Maximus eine Brücke zwischen den USA und der EU zu schlagen, scheiterte zum Teil an der sturen Inkompetenz und dem Herrschaftsanspruch der Bush-Regierung, zum Teil an der von Blair sicherlich als
+moralische Blindheit interpretierten Widerspenstigkeit der Europäer. Wenn seine Nachfolger überhaupt
+auf die Stimme des britischen Volkes hören, werden sie versuchen, auf Abstand zum ‹imperium
+americanum› zu gehen, ohne sich der EU näher anzuschliessen. Ob eine kohärente Politik unter solchen
+Vorzeichen überhaupt möglich ist und wie sie aussehen könnte, bleibt dahingestellt.
+Tony Blair schuf sich seit September 2001 eine moralische Phantasielandschaft, die er zunehmend mit der
+Wirklichkeit verwechselte. Seine historische Bedeutung besteht darin, dass er der erste britische Politiker
+war, der seine ganze Politik den Erfordernissen des Scheins untergeordnet hat. Er hat die Möglichkeiten
+einer systematischen politischen Beherrschung des Informationsflusses klar gesehen und genutzt. Seine
+positiven politischen Bestrebungen führten zu nichts, aber der Apparat, den er ins Leben rief, hat überraschend gut funktioniert. Die bleibende Lehre, die Politiker nach Blair daraus ziehen werden, ist die Notwendigkeit, selbst so einen Apparat zu besitzen.
+
+Der Amerikaner Raymond Geuss, Jahrgang 1946, lehrte Philosophie in Heidelberg, Chicago, Princeton
+und Hamburg, war Fellow am Wissenschaftskolleg in Berlin und ist «Reader in Philosophy» an der Universität von Cambridge in England. Auf Deutsch erschien von ihm zuletzt die Studie «Privatheit. Eine
+Genealogie» (Suhrkamp Verlag)
+
+
+-----
+
+(Per E-Mail am 29.06.2007
+Von: Margrit Edwards me10005@cam.ac.uk
+An: Achim Wolf)
+
+Achim Wolf
+
+Sehr geehrter Herr Wolf,
+
+
+118 Tenison Road
+Cambridge CB1 2DW
+Grossbritannien
+d. 29. June 2007
+
+
+Frau Viebrock (Die Zeit) hat Ihre Anfrage über die Möglichkeit einer Wiederveröffentlichung meines
+Artikels «Lüge als Höhere Wahrheit» an mich weitergeleitet. Als Autor des Artikels verfüge ich, glaube
+ich, über diese Rechte. Ich bin damit einverstanden, dass Sie den Artikel im Bulletin der FIGU (und auf
+deren Homepage) jetzt kostenlos veröffentlichen, unter der Bedingung, dass Sie mir ein Freiexemplar des
+betreffenden Bulletins zukommen lassen. Es freut mich, dass Ihnen der Artikel gefallen hat,
+
+mit freundlichen Grüssen,
+
+Ihr
+
+Raymond Geuss
+
+## Demokratie wie sie ist und wie sie sein sollte
+
+Das Wort ‹Demokratie› stammt aus dem Griechischen und bedeutet ‹Volksherrschaft› resp. ‹Herrschaft
+des Volkes›. Irrigerweise ist die Mehrheit der Erdenmenschen der Ansicht, die auf unserem Planeten nach
+den Prinzipien und Spielregeln der irdischen Politik praktizierten Formen der ‹Demokratie› seien echte
+Demokratieformen im wörtlichen Sinne. Das ist aber nicht der Fall, denn eine wahrheitsgemässe, direkte
+Demokratie ist nur dann gegeben, wenn tatsächlich alle Macht, Entscheidungsbefugnis und Gewalt direkt
+beim Volk liegt. Die führenden Kräfte müssen dabei vom Volk direkt bestimmt werden und dessen Beschlüsse getreu durchsetzen. Ausnahmslos alle Entscheidungen des Volkes müssen durch Mehrheitsbeschlüsse direkt und völlig unbeeinflusst von jeder Propaganda und ohne vorherige Absprachen zustande
+kommen. Andere Formen, wie die auf der Erde üblichen ‹Demokratien›, sind dies nur dem Namen nach.
+In Tat und Wahrheit sind sie nämlich nichts anderes als Parteien- und Regierungsdiktaturen, die sich betrügerisch das Etikett ‹Demokratie› ans Revers geheftet haben, selbst wenn sie sich hochtrabende Bezeichnungen
+wie ‹Repräsentative (nationale) Demokratie›, ‹Mehrheitsdemokratie›, ‹Konsens-/Konkordanzdemokratie›,
+‹Delegative Demokratie› oder ‹Deliberative Demokratie› nennen.
+Wirkliche Demokratie ist nur möglich, wenn das Volk in Einigkeit zusammensteht und sich dessen bewusst
+wird, dass es die Verantwortung in die eigene Hand nehmen muss, weil es allein der wirkliche und wahre
+Souverän des Staates ist. Doch leider hapert es bei den Menschen der Erde ganz gewaltig an diesem Bewusstsein sowie an der Verantwortung, dem Zusammengehörigkeitsgefühl und an der Einigkeit, weshalb
+
+
+-----
+
+auch keine wahren Demokratien zustande kommen können, die diesen Namen auch verdienen. Die
+Gründe dafür können im grossen und ganzen wie folgt zusammengefasst werden:
+
+**1. Bewusstsein/Charakter der Menschen:**
+Mangelnde Verantwortungsbereitschaft für das eigene Leben und für das Wohl der Gemeinschaft; Gleichgültigkeit; Dummheit; Obrigkeitshörigkeit; kultreligiöse und sektiererische Verblendung; Unterdrückung
+der Selbständigkeit resp. Erziehung zur Unselbständigkeit; mangelnde Selbsterziehung; fehlendes Wissen
+bezüglich der eigenen Möglichkeiten und Pflichten; fehlende resp. mangelnde Kenntnis der schöpferischnatürlichen Gesetze und Gebote, wodurch im Denken der Menschen Unlogik, Desorientierung und Ziellosigkeit regieren, was sie manipulierbar macht.
+
+**2. Politik- und Parteiensysteme:**
+Undemokratische Strukturen des Politik- und Parteiensystems; mangelnde menschliche Qualifikation der
+Politiker und Verantwortlichen; Bestechung und Käuflichkeit; rechtliche Immunität von Politikern, Wirtschaftsführern und Verantwortlichen; Lobbyistentum; zügelloses Machtstreben; überbordender Materialismus; Manipulation des Volkes durch Propaganda; Wahlfälschungen und Wahlbetrug; unzureichend
+organisierte und überwachte Wahlsysteme; Vetternwirtschaft; Desinformation durch Medien usw.
+
+**3. Globale Überbevölkerung:**
+Armut, Gewalt, körperliche, bewusstseinsmässige und psychische Degeneration der Menschen werden
+durch die Überbevölkerung regelrecht herangezüchtet. Folgen davon: Störungen in der Persönlichkeitsentwicklung und im zwischenmenschlichen Bereich; Sitten- und Moralzerfall; auseinanderfallende Familienund Gesellschaftsstrukturen; Chaos und Anarchie; Überhandnahme von rigiden Machtstrukturen; Werteverlust und Zusammenbruch von Gesetz und Ordnung.
+
+Die freie Enzyklopädie Wikipedia definiert den Begriff ‹Politik› wie folgt:
+«Der Begriff Politik wird aus dem griechischen Begriff ‹Polis› für Stadt oder Gemeinschaft abgeleitet. Er
+bezeichnet ganz allgemein ein vorausberechnendes, innerhalb der Gesellschaft auf ein bestimmtes Ziel
+gerichtetes Verhalten. Allerdings gibt es letztlich bis heute keine Einigkeit darüber, ob Macht, Konflikt,
+Herrschaft, Ordnung oder Frieden die Hauptkategorie von Politik ausmachen.»
+(http://de.wikipedia.org/wiki/Politik)
+
+
+Schon in dieser Definition kommt klar zum Vorschein, wovon die Formen der irdischen Politik geprägt
+sind: Von verfilzten Parteiensystemen, in denen sich die Meinungen und Interessen der Parteien, ihrer Anhänger und Nutzniesser unvereinbar gegenüberstehen. Uneinigkeit und Streit sind die Folge davon, was
+wiederum verhindert, dass die erforderlichen logischen Massnahmen ergriffen werden. Das ‹vorausberechnende Verhalten› zielt dabei nicht auf das Gemeinwohl ab, sondern in erster Linie auf die Machterhaltung zu rein egoistischen Zwecken. In den Parteien herrscht nicht das demokratische Prinzip der freien Meinungsfindung, sondern ein terroristischer Meinungs- und Fraktionszwang, der Parteimitglieder und
+Abgeordnete zwingt, sich dem Willen der Parteibosse unterzuordnen und die eigene Meinung dem Diktat
+der Mächtigen zu opfern. Dass Abgeordnete bezüglich ihrer Entscheidungen nur dem eigenen Gewissen
+verpflichtet seien, wie es das Gesetz vorsieht, davon kann keine Rede sein. Die Parteiideologie/-philosophie resp. das Parteiprogramm entspricht einem Wunschbild, das nicht mit der Realität des menschlichen
+und gesellschaftlichen Lebens übereinstimmt.
+Ein aktuelles Beispiel für das Versagen der Politik ist der G8-Gipfel der acht mächtigsten und wirtschaftskräftigsten Nationen (Deutschland, Frankreich, England, Italien, Japan, Kanada, Russland, USA und die
+Europäische Kommission) im Juni 2007 in Heiligendamm/Deutschland, wo unter anderem über Massnahmen zur Bekämpfung des Klimawandels verhandelt wurde. Einmal mehr blockierte der unfähige US
+
+-----
+
+Präsident Bush alle Bemühungen um das Zustandekommen effektiver Beschlüsse und Massnahmen. Anstatt schnell und effektiv zu handeln, werden von den Regierenden stets eigene wirtschaftliche, militärische
+und sektiererische Interessen verfolgt. Der eigentliche Grund des Klimawandels und vieler anderer Missstände auf der Erde wird dabei verbrecherisch und feige verschwiegen, nämlich das explodierende
+Wachstum der Erdbevölkerung mit allen schlimmen Folgen für Mensch, Umwelt und Planet (siehe FIGUBulletin Nr. 36, 37 und FIGU Offener Brief Nr. 1).
+
+Das Hauptübel der irdischen Regierungsformen liegt darin, dass die Regierenden vom Volk nicht direkt
+gewählt und in ihre Ämter eingesetzt werden. In der Regel wird die Führung des Staates indirekt durch
+die gewählten Parteien und deren Bosse bestimmt. Die Bevölkerung erfüllt dabei im Grunde genommen nur
+den Zweck, die an die Macht strebenden Parteivertreter in bestimmten Zeitabständen mit ihren Stimmen
+zu unterstützen und ihnen damit alle Entscheidungsgewalt und Handlungsbefugnis zu übertragen, was
+von den Politikern heuchlerisch ‹Ausübung freier, demokratischer Wahlen› genannt wird. Dem Volk wird
+dadurch verunmöglicht, wirklich verantwortungsbewusste, wissende und weise Menschen und geeignete
+Führungskräfte durch direkte Wahlen einzusetzen. (Die aber, wie gerechterweise festgehalten werden
+muss, in der Regel auch nicht vorhanden sind, weil sie in den Parteien kaum oder keine Aufstiegsmöglichkeiten erhalten.) Vielmehr bestimmt ein korrupter Parteienapparat, der sich auf diktatorische Machtund Hierarchiestrukturen stützt, wer die Regierung bildet und die Staatsgeschäfte ‹im Namen des Volkes›
+führt. Nach den Wahlen fühlen sich die Regierenden nur noch selten dem Volk und dem Allgemeinwohl
+verpflichtet, sondern nur noch dem Erhalt der eigenen Macht. Kritiker und Rivalen werden nach Möglichkeit ausgeschaltet und mit allen Mitteln mundtot gemacht, wozu auch Rufmord gehört. Um das Volk
+gefügig zu machen, bedienen sich die Parteien grossangelegter Propagandamaschinerien, die durch
+Staatsgelder, Steuern, Spenden und verdeckte Bestechungsgelder finanziert werden. Wird das Volk im
+Rahmen von Abstimmungen nach seinem Willen befragt, dann wird es vorher durch ‹meinungsbildende
+Massnahmen› derart verwirrt und verunsichert, dass ein Mehrheitsbeschluss in der Regel genau ins
+Konzept der Politiker passt. Unerwünschte Abstimmungsergebnisse werden von den Politikbonzen mit
+geheuchelter Toleranz zur Kenntnis genommen und sofort unterlaufen, wenn das Volk alles vergessen hat
+und in die gewünschte Gleichgültigkeit und Lethargie zurückgefallen ist. Notfalls lässt man das dumme
+Volk mit immer ‹neuen Vorlagen› solange über denselben Punkt abstimmen, bis das gewünschte Ergebnis vorliegt.
+Betrachtet man neutral und unvoreingenommen die Art und Weise, wie in ‹demokratisch› regierten
+Staaten Entscheidungen zustande kommen, ist festzustellen, dass die Parteien – wie auch das bösartige
+EU-Krebsgeschwür – in Wahrheit diktatorische Machthaber sind, die das Volk suggestiv beeinflussen,
+wodurch dieses nicht mehr nach freiem Willen zu entscheiden vermag. Der Volkswille wird einfach verbrecherisch übergangen und ignoriert, wenn es der Politikmafia nicht ins Konzept passt. Das Volk ist
+allerdings zu grossen Teilen selbst an diesem Missstand schuld, weil ein einheitlicher, nach schöpferischnatürlichen Gesetzen und Geboten ausgerichteter Volkswille nicht existiert.
+Gäbe es diesbezüglich Einigkeit unter den Völkern, dann wäre die logische Folge, dass
+Politiker, Regierende und sonstige Verantwortliche einen Nachweis über ihre Befähigungen
+erbringen müssten;
+das Volk einen Amtsinhaber sofort absetzen könnte, wenn dieser nachweislich unfähig oder
+nicht willens wäre, sein Amt nach Gesetz und Ordnung auszufüllen.
+
+**«Politik ist durch beständig verjüngte Illusion beseeltes Pendeln zwischen Anarchie und Tyrannei.»**
+Albert Einstein
+Dieser Satz beschreibt die der Politik innewohnende Unfähigkeit, eine wirkliche Ordnung nach schöpferisch-natürlichen Gesetzmässigkeiten zu schaffen. Solange die überwiegende Masse der Menschen sich
+nicht der Geisteslehre/Lehre des Lebens nach Nokodemjon/Henok zuwendet und in sich selbst und im
+
+
+-----
+
+äusseren nicht wirklichen Frieden, Freiheit, Harmonie und Liebe erschafft, und die Politik nur danach strebt,
+das Volk für dumm zu verkaufen, es zu entmündigen, total zu überwachen, materiell auszubeuten und
+auf seine Kosten zu leben, kann es keinen wirklichen Frieden auf der Erde geben.
+
+**«Der Geist der Demokratie kann nicht von aussen aufgepfropft werden. Er muss von innen heraus**
+**kommen.»**
+Mahatma Ghandi
+Um die Parteiensysteme zu überwinden, wäre es notwendig, den verbrecherischen Machenschaften der
+Parteien, Wirtschaftsbosse, Religionen, Sekten und Profiteure Widerstand entgegenzusetzen und durch
+eine wahrheitliche Demokratie zu ersetzen, in der das falsche Alte durch richtiges Neues abgelöst und ersetzt wird. Auch Mahatma Ghandi schaffte das nicht, weil er zwar durch eine ausgeartete Gewaltlosigkeit die Bevölkerung Indiens von der kolonialen Herrschaft des britischen Empire befreien konnte, sonst
+jedoch nichts erreichte. Hätte er Gewaltsame Gewaltlosigkeit zur Wirkung gebracht, hätte er nicht nur
+eine wirkliche Demokratie aufbauen, sondern auch das Kastenwesen sowie die ausgearteten religiösen
+und gesellschaftlichen Bräuche und alle anderen Falschheiten beseitigen und eine funktionierende
+Regierung nach den Gesichtspunkten des Volkswohles einsetzen müssen.
+Erst wenn die Völker sich dessen bewusst werden, dass sie der eigentliche Souverän ihres Staates sind
+und dass die Regierenden und Führenden ausschliesslich zum Wohle ihrer Völker zu beschliessen und zu
+handeln haben, werden sie sich von ihren Tyrannen befreien und wahre Demokratien verwirklichen können.
+Diese Einsicht und Erkenntnis müsste sich im ganzen Volk verbreiten, damit es in Einigkeit den richten Weg
+zur Demokratie einschlagen und gehen kann. Das wird aber erst dann möglich, wenn ein grosser Teil der
+Menschen in bewusster Selbstverantwortung lebt und nach besten Möglichkeiten im Sinne der schöpferischnatürlichen Gesetze und Gebote denkt, fühlt und handelt. Heute ist das leider erst nur in kleinen Gruppen
+möglich, die sich nach den schöpferischen Gesetzmässigkeiten ausrichten. Solange die grosse Masse der
+Menschen nicht über die schöpferische Wahrheit belehrt wird und ihre Obrigkeitshörigkeit nicht ablegt,
+lässt sie sich weiterhin willenlos von verantwortungslosen Regierungen und von den Irr- und Wahnsinnslehren der sie versklavenden Religionen und Sekten gängeln und opfert ihre Freiheit und Selbständigkeit
+auf dem blutigen Altar von Gläubigkeit und Materialismus.
+
+**«Politik ist die Summe der Mittel, die nötig sind, um zur Macht zu kommen und sich an der Macht zu**
+**halten und um von der Macht den nützlichsten Gebrauch zu machen.»**
+Machiavelli, um 1515
+Die Motivation der meisten Politiker wird nicht durch den Willen bestimmt, dem Volk selbstlos zu dienen
+und den Volkswillen als ausführendes Organ umzusetzen, ohne eigenmächtig und ohne Volksmandat zu
+handeln – wie es gut und wünschenswert wäre. Vielmehr geht es ihnen meist um die Befriedigung ihrer
+Machtgier, das Streben nach materiellem Reichtum und ein luxuriöses Leben, das Erpressen sexueller
+Dienste und Ausschweifungen von den von ihnen Abhängigen usw. Oft werden sie angetrieben durch
+einen übermässigen Geltungstrieb, Selbstsucht und Egoismus sowie fehlende Menschlichkeit und die Unfähigkeit, Verantwortung zu tragen. Stattdessen klopfen sie lieber selbstherrlich grosse Sprüche, boxen
+sich durch Rücksichtslosigkeit, Mobbing und Kriecherei nach oben und gehen manchmal sogar im wörtlichen Sinn über Leichen. All dies verkörpert die ausgeartete Form der irdischen Politik. Eine neutral-postivausgeglichene Form der Politik, wie sie auf der Erde sehr wohl möglich und dringend nötig wäre,
+bezeichnet der folgende Leitsatz:
+
+**«Politik ist die Gesamtheit aller Aktivitäten zur Vorbereitung und Herstellung gesamtgesellschaftlich**
+**verbindlicher und/oder am Gemeinwohl orientierter und der ganzen Gesellschaft zugute kommender**
+**Entscheidungen.»**
+Thomas Meyer
+
+
+-----
+
+Wer eine Gemeinschaft wahrheitlich zu deren Wohl leiten und führen will, muss in vielerlei Hinsicht als
+wahrer Mensch gebildet sein und wissen, wovon er spricht und wie er gemäss der jeweiligen Situation und
+den jeweiligen Erfordernissen zu handeln hat, um vorausschauend, aufbauend und fortschrittlich zu wirken.
+Ein solcher Mensch erteilt seinen Mitmenschen stets nur wohldurchdachte und nach den schöpferischnatürlichen Gesetzen und Geboten ausgerichtete Ratschläge und arbeitet dementsprechende Richtlinien
+aus, wonach dann die Menschen nach eigenem Ermessen und in freier Entscheidung alles annehmen oder
+von sich weisen können. Dazu gehören auch Massnahmen, die dem Unbedarften hart erscheinen mögen,
+die jedoch zur Abwendung schlimmer Folgen notwendig sind, wie z.B. ein sofortiger Geburtenstopp resp.
+Geburtenkontrollen nach harten, aber humanen Richtlinien im Falle der Überbevölkerung. Aus dem Annehmen oder Verwerfen der Ratgebungen entstehen bestimmte Folgen, die entsprechend der vorausgehenden Ursache zur Wirkung kommen. Handelt der Mensch richtig, dann erntet er Gutes resp. Ausgeglichenes. Handelt er falsch resp. schöpfungswidrig, wird er die negativen Früchte seines Tuns resp.
+seiner Versäumnisse ernten. Ein wahrer Weiser erteilt nur dann Befehle zum Wohle der gesamten Menschheit, wenn die Menschen noch nicht in der Lage sind, die Folgerichtigkeit dieser Anweisungen zu erkennen.
+Dies im Gegensatz zu Politikern, dem Militär, Papst und Gurus usw., die nach eigenem Gutdünken und
+zu ihrem eigenen Nutzen Befehle erteilen.
+Richtiges Führen und Leiten setzt ein grosses Mass an Bescheidenheit, Neutralität, Antimaterialismus,
+Geduld, Frieden, Liebe und Verstehen voraus, zudem ein grosses Wissen sowie eigens erarbeitete und
+durch Lebenserfahrung aufgebaute Weisheit. Diese Art von Lebensweisheit war und ist in hochentwickelter
+Form den wahren Propheten eigen, die von Zeit zu Zeit in Erscheinung getreten sind. Die Menschheit sollte
+sich glücklich schätzen, dass dies jetzt wieder der Fall ist, und zwar in der Person von ‹Billy› Eduard Albert
+Meier, dem Propheten der Neuzeit. Menschen wie er sollten es sein, denen die Völker vertrauen, nämlich
+tugendvollen Menschen, die weise, selbstlos und von Liebe geleitet handeln. Würden die Ratgebungen
+und Richtlinien dieser Weisen konsequent befolgt, dann könnte das Paradies auf Erden verwirklicht
+werden. Die Menschen sollten daher auf die Ratgebungen der Wissenden und Weisen hören, sie durch
+eigene Gedankenarbeit ergründen und ihre Logik und Gerechtigkeit nachvollziehen, wodurch sie ihre
+hohen Werte erkennen könnten. Sie würden sich dadurch nach und nach zu selbstdenkenden, eigenverantwortlichen Menschen entwickeln und ihrer Evolution genüge tun.
+
+**«Das Verhängnis unserer Kultur ist, dass sie sich materiell viel stärker entwickelt hat als geistig (be-**
+**wusstseinsmässig).»**
+Albert Schweitzer
+Eine wahre Demokratie setzt voraus, dass die Menschen einander alle als absolut gleichwertig anerkennen
+und sich bewusst werden, dass jeder Mensch seine eigenen Aufgaben nach besten Kräften im Dienste und
+zum Wohle aller auszuüben hat. Die Tugenden des Menschseins wie wahrer innerer Frieden, Respekt vor
+dem Leben, Toleranz, Güte, Geduld, Liebe und Nächstenliebe sind dabei äusserst hilfreich. Der Mensch
+muss lernen, seine Emotionen, seinen Egoismus, seine Triebe und seine Gier nach allem Materiellen zu
+zügeln und zu kontrollieren, was er durch das Studium der Geisteslehre resp. die Lehre des Lebens und
+das regelmässige Üben einer zweckmässigen Meditation erlernen kann.
+Das Verwirklichen einer wahren Demokratie setzt aber auch voraus, dass die wichtigsten schöpferischnatürlichen Grundsätze und Richtlinien gelernt, erkannt und befolgt werden. Dazu gehört die Einsicht,
+dass jeder Mensch in alleiniger und vollumfänglicher Verantwortung die Folgen seines Tuns tragen muss.
+Mit ihrem Denken setzen die Menschen ursächliche Kräfte ihres Bewusstseins und ihrer Psyche in Bewegung, die schöpfungsgesetzmässig zu ganz bestimmten Wirkungen führen und wiederum die ursächlichen Kräfte für neue Wirkungen sind. Jeder einzelne ist also mitverantwortlich, um nach und nach wahre
+Demokratien zu verwirklichen, denn jeder Mensch kann und soll immer bei sich selbst beginnen, wenn er
+etwas Gutes und Fortschrittliches erreichen will.
+
+
+-----
+
+Zitat aus FIGU-Bulletin Nr. 60:
+**Demokratie bedeutet, dass das Volk in Einigkeit über das Wohl des Staates und der**
+**Bevölkerung bestimmt – doch was als Demokratie tatsächlich vom Volk und von den**
+**Regierenden verstanden, gehandhabt sowie ausgeübt wird, ist eine Politform, die von den**
+**Staatsmächtigen und von einer sehr dummen Mehrheit des Volkes unheilvoll und dem Wohl**
+**feindlich regiert wird.**
+Semjase-Silver-Star-Center, Billy, Freitag, 4. Februar 2005, 00.55 Uhr
+Achim Wolf, Deutschland
+
+## Wer Wind sät, wird Sturm ernten
+
+Betrachten wir die geschichtlichen und die damit verbundenen militärischen Ereignisse der letzten Jahre,
+so wird deutlich, dass mit grosser Wahrscheinlichkeit ein neuer Militärschlag vor der Türe steht. Unter der
+Federführung der USA und in Zusammenarbeit mit Israel – wie könnte es auch anders sein – ist man dabei,
+den sogenannten ‹Präventivschlag› gegen den Iran und seine Atomanlagen nicht mehr nur vorzubereiten,
+sondern in absehbarer Zeit auch umzusetzen. Die Propagandamaschinerie ist, wie damals in Afghanistan und im Irak, schon angelaufen. «Kampf gegen den Terror», «Schutz der Demokratie», «für Frieden
+und Freiheit» usw. – die üblichen Standardargumente und Kriegsparolen sind bereits im Umlauf, so
+formuliert, als gäbe es keine Alternative mehr zu einem militärischen Vorgehen. Natürlich ist immer die
+andere Seite schuld daran, dass es zu einem Konflikt kommt, während man selbst nur um den Frieden
+und den Schutz der eigenen Freiheit bemüht ist. Der neue Angstgegner ist bereits ausgemacht und die
+Bevölkerung der sogenannten ‹zivilisierten Welt› wird, wie schon im Falle des Iraks und Afghanistans,
+verbal auf einen Militärschlag vorbereitet. Es ist sicherlich nur noch eine Frage der Zeit, bis der Angriff
+ausgeführt und versucht wird, die iranische Atomanlage mit neuesten und modernsten Waffen dem Erdboden gleichzumachen.
+Jeder, der Bush und seine Verbündeten kennt und ihre Handlungsweise erlebt hat, weiss, dass sie nur die
+Sprache der Gewalt, des Terrors und des Krieges kennen. Friedliche, politische Lösungen haben da keinen
+Platz. Abgesehen davon, dass weder der Terrorkrat Bush noch der israelische Terrorministerpräsident
+Olmert ein wirkliches Interesse daran haben, Probleme auf friedliche Weise, also durch Vernunft und Verstand, zu lösen. Beide sehen im Krieg ein legitimes Mittel, um die eigenen Interessen mit Gewalt durchzusetzen. Der Terrorkrat, Massenmörder, Kriegshetzer und Terrorist Bush hat sich zum Ziel gesetzt, während
+seiner Amtszeit im Nahen Osten den ‹American Way of Life› mit Krieg, Gewalt und Terror durchzusetzen.
+Dieses Ziel wird zwar schon seit Jahrzehnten von der US-amerikanischen Aussenpolitik angestrebt, jedoch
+von keinem anderen Präsidenten vor Bush so hemmungslos, ausgeartet, gleichgültig, unbelehrbar und
+gnadenlos verfolgt und umgesetzt. Der religiöse Fanatismus dieses US-Präsidenten und die Folgen seiner
+Kriegs- und Terrorpolitik haben zigtausende Menschen das Leben gekostet, wodurch er sich einen Namen
+als politischer Massenmörder gemacht hat. Zusammen mit anderen Machthabern steht er auf der gleichen
+Stufe mit Hitler, Stalin und zahlreichen Diktatoren und Fanatikern, die durch Massenmord, Terror, Krieg
+und die Unterdrückung der Menschenrechte in die Menschheitsgeschichte eingegangen sind. Die Unverfrorenheit, mit der George W. Bush die Menschenrechte und Menschenpflichten mit Füssen tritt, ist durch
+nichts zu überbieten.
+Auch der israelische Terror-Ministerpräsident Olmert hat mit dem Überfall auf den Libanon bewiesen, dass
+er, wie schon zahlreiche andere Ministerpräsidenten vor ihm, vor nichts zurückschreckt und dass Menschlichkeit, Vernunft und Verstand etc. keinerlei Bedeutung und keinen Wert für ihn haben. Andersdenkende
+Menschen und Kulturen haben für Olmert und Bush keinerlei Existenzberechtigung, wenn sie nicht bereit
+und willens sind, sich ihren Vorstellungen anzupassen. Für diese beiden Politiker sind andersdenkende
+
+
+-----
+
+Menschen minderwertig, weshalb sie sich – egal was sie unternehmen – immer im Recht fühlen und
+deshalb vor nichts zurückschrecken, um die nach ihrer Ansicht Minderwertigen zu bekämpfen.
+Betrachtet man diese beiden Politiker und ihre Anhänger, neben den zahlreichen anderen Terroristen,
+Fanatikern, Warlords und Kriegstreibern, die auf unserem Planeten wüten, fühlt man sich an die Zeiten
+des Zweiten Weltkrieges erinnert, als die ‹Deutsche Herrenrasse› mit ihrem Führer die Welt in Brand steckte
+und sich über alles, was mit Menschenwürde und Menschenrechten zu tun hatte, hinwegsetzte und diese
+mit Füssen trat. Die Methoden, mit denen Bush und Olmert die menschlichen Grundrechte und moralischen
+Werte mit Füssen treten und über Bord werfen, sind im modernen Informationszeitalter einzigartig und
+zeigen, in welchem Sumpf und Abgrund wir wirklich stecken. Andersdenkende sind sofort verdächtig und
+werden weltweit abgefangen, entführt und an Orte gebracht, an denen es keinerlei Menschenrechte und
+keinen juristischen Beistand gibt, wo ihnen unter übelster Folter Geständnisse und Informationen abgezwungen werden. Guantánamo existiert als modernes Konzentrationslager noch immer unter den Augen
+der Öffentlichkeit, und die westlichen Demokratien und ihre Politiker sind unfähig, zu feige, zu inkompetent
+und zu machtlos, um für die sofortige Auflösung dieses Terrorlagers zu sorgen. Niemand wird für die Existenz
+dieses Lagers zur Verantwortung gezogen. Kein westlicher Politiker protestiert effizient und nachdrücklich
+dagegen, und niemand fordert unmissverständlich die Schliessung dieses Gulags des 21. Jahrhunderts.
+In welcher Zeit leben wir, dass solches heute noch möglich ist?
+Haben uns die irdische Geschichte und vor allem die Diktatur des Nationalsozialismus in Europa vor 60
+Jahren nicht deutlich genug gezeigt, wohin die grenzenlose Ausartung eines Regimes und seiner Mitläufer
+und Mittäter führen kann, wenn man ihnen freie Hand lässt? Bush und seine Anhänger und Mitläufer wiederholen die geschichtlichen Ereignisse dieser Zeit so selbstverständlich und ungeschoren, dass man vor lauter
+Ohnmacht und Verzweiflung nur noch die Hände über dem Kopf zusammenschlagen kann.
+Hat uns der Stalinismus nicht gezeigt, wohin die Geschichte führt, wenn die Herrscherclique das eigene
+Volk in seinen Grundrechten einschränkt, bevormundet, bespitzelt, ermordet, deportiert und tyrannisiert?
+George W. Bush hat auch diesen Weg bereits eingeschlagen und setzt ihn konsequent um. Die Pressefreiheit
+in den USA ist bereits massiv eingeschränkt und wird durch Bush-Mitläufer und Helfershelfer unterwandert
+und manipuliert. Menschen werden eingeschüchtert und die Angst geht um, denn wer sich öffentlich frei
+gegen die Regierung und ihre Machenschaften äussert, verliert unter Umständen seinen Job und seine
+Existenz. Noch nie wurden durch den NSA und sonstige Geheimdienste über die eigene Bevölkerung so
+viele Daten, Informationen usw. gesammelt wie zur Zeit von Bush. Dass wir die Wiederholung der Geschichte der letzten 60 Jahre wieder so hautnah miterleben können, als sei es gestern gewesen, mit all
+ihren negativen und zerstörerischen Auswirkungen, schien früher unmöglich. Es schien, als hätten wir die
+Zeiten des Kalten Krieges, der Gewalt und des Terrors überwunden. George W. Bush hat mit seiner Politik
+dafür gesorgt, dass 60 Jahre überwunden geglaubter irdischer Geschichte mit all ihrer Propaganda, ihrem
+Hass und der Kreuzzug-Mentalität wieder neu aufleben konnte und nun unseren Planeten zu zerreissen
+droht.
+Es gibt wieder eine einfache Unterteilung der Menschen und der verschiedenen Kulturen in gut und böse,
+weiss und schwarz, richtig und falsch. Geschichtliche Realität und wissenschaftliche Fakten werden so
+lange zerredet und verdreht, bis am Ende Gott den Menschen geschaffen hat. Alle wissenschaftlichen
+Erkenntnisse werden negiert, ausradiert oder manipuliert, weil sie nicht in das religiös-fanatische Weltbild der Bush-Clique passen. Am Ende steht die Bibel als Beweis für die menschliche Entstehungsgeschichte
+und alle wissenschaftlichen Erkenntnisse werden einfach beiseite geschoben.
+Wichtige Ämter sind von Bush-Gefolgsleuten besetzt, die auch nach seiner Amtszeit den eingeschlagenen
+Weg weitergehen sollen, denn selbst nach dem Ende der terroristischen Bush-Ära fühlen sich verschiedene
+Politiker seiner Partei bestärkt, in seine Fussstapfen zu treten und seine Zerstörungspolitik weiterhin zu
+betreiben. Die Büchse der Pandora wurde geöffnet, und sie wird sich nicht automatisch mit dem Ende der
+Ära Bush schliessen, weil die Auswirkungen seiner Kriegspolitik noch bis weit in die Zukunft anhalten
+werden.
+
+
+-----
+
+Tragisch daran ist in erster Linie der Umstand, dass Bush für seine Kriegs- und Terrorpolitik nur auf geringen
+Widerstand trifft und man den demokratischen Staaten im Westen und in Europa vollkommenes Versagen
+vorwerfen muss, weil ihm niemand wirklich die Stirn bietet und ihn stoppt. Im Gegenteil, betrachtet man
+die Mitläufer und Mittäter, vor allem der gegenwärtigen deutschen Regierung um die Bundeskanzlerin Angela Merkel, die mit ihrer Partei bereits den Irak-Krieg unterstützte und die nichts unterlässt, um sich Bush
+vor die Füsse zu werfen und ihn speichelleckend zu unterstützen, dann muss man sich schämen, ein Mensch
+zu sein. Diese Frau und ihre politischen Anhänger sind das Schlimmste, was Deutschland widerfahren
+konnte, und sie öffnen der US-amerikanischen Terrorpolitik Tür und Tor. Schlimmer noch, sie machen die
+US-Politik salonfähig, indem sie Partnerschaft, Freundschaft und Verbundenheit demonstrieren.
+Was haben unsere Eltern und Grosseltern nicht alles unternommen, um mit ihrer Hände Arbeit nach dem
+Zweiten Weltkrieg Europa wieder aufzubauen und wirtschaftlich sowie politisch zu festigen, und sie haben
+alles darangesetzt, moralische, menschliche und ethische Grundwerte zu erarbeiten, an denen wir uns
+ausrichten können, auf dass sich die Zeiten des Zweiten Weltkrieges nicht mehr wiederholen. Wir haben
+alle dabei versagt, die hart erarbeiteten Werte unserer Väter weiterzuvermitteln und aufrechtzuhalten.
+Wir haben alle nichts getan und sind unfähig, feige und willenlos und bauen wie schon immer im blinden
+Vertrauen auf unsere unfähigen politischen Führer, gleich welcher Partei, von denen wir uns erhoffen, dass
+sie im Interesse ihres Landes und Volkes das Richtige unternehmen. Solange die Völker der Welt ihre
+Politiker nicht zum Teufel jagen und endlich die Verantwortung in Form einer direkten Demokratie selbst
+übernehmen, so lange werden die Politiker auch weiterhin verantwortlich sein für die globalen und landesspezifischen Probleme, deren Verursacher sie sind. Die Politik handelt in jeder Hinsicht verweichlicht und
+inkonsequent, weshalb der totale moralische, globale und gesellschaftliche Zusammenbruch, der bereits
+begonnen hat, nur noch eine Frage der Zeit ist. Statt den rapiden Zerfall zu stoppen, wird stattdessen mit
+der US-Administration eine terroristische Scheindemokratie unterstützt, deren einziges Bestreben es ist,
+die Weltherrschaft zu erlangen. Wie kein anderer westlicher Politiker, ausser dem ehemaligen englischen
+Ministerpräsidenten und Speichellecker Blair, unterstützt Angela Merkel die Kriegspolitik der USA und hat
+bis heute nichts unternommen, um die US-Gewaltpolitik aufzuhalten. Einige wenige verantwortungsbewusste Staaten innerhalb Europas unter deutscher, französischer und russischer Federführung sprachen
+sich seinerzeit gegen den Krieg im Irak aus und waren sich ihrer menschlich-moralischen Verantwortung
+bewusst, als sie sich dem Terrorkrieg verweigerten. Diesen Widerstand und Gegenpol zur US-Politik gibt
+es nicht mehr, und so kann Bush walten und schalten wie er will.
+George W. Bush hält die gesamte Welt zum Narren, und wir rauschen alle immer weiter ungebremst in
+eine globale Katastrophe hinein, die durch diesen Mann und all jene, welche ihn unterstützen, ausgelöst
+wird. Egal wie viele unschuldige zivile und sonstige Opfer es kostet, seine Durchhalteparolen ändern nichts
+an der katastrophalen Realität. Schon als Gouverneur von Texas war ihm Menschlichkeit ein Fremdwort,
+weshalb unter seinem Regime alle Todeskandidaten hingerichtet wurden. Die technologisch hochgerüsteten US-Militärs dürften ihm bei seiner Terrorpolitik auch in Zukunft hilfreiche Dienste erweisen, wenn im
+Namen von Demokratie und Kampf gegen den Terror usw. wieder einmal die Bomben fallen und Familien
+und unschuldige Menschen die Opfer seiner Terrorpolitik werden. Unterstützt durch seine Anhänger, Mitläufer und Mittäter, den Blairs, Merkels und Co., suchte er sich diesmal den Iran als neuen Angstgegner
+und Bedrohung der sogenannten westlichen Freiheit aus. Die US-amerikanische Propagandamaschinerie
+ist bereits angelaufen, und die deutschen Politiker übernehmen wie in der Vergangenheit beim Überfall
+auf Afghanistan und den Irak allzu gerne den gleichen Wortlaut und die gleichen Parolen, und erneut
+haben Lügen, falsche Behauptungen, Angst, Hass und Drohgebärden Hochkonjunktur.
+Das iranische Atomprogramm und verschiedene iranische politische und religiöse Oberhäupter und
+Fanatiker, die in ihrem kranken Wahn, Machtgehabe und religiösen Fanatismus keine Gelegenheit auslassen, z.B. den Holocaust zu leugnen und sich Israel von der Landkarte weggeweht zu wünschen, tragen
+ein übriges dazu bei, den Konflikt anzuheizen. Auch wenn der Bau von Atombomben im Vordergrund
+steht und der Westen wirklich Probleme bekommt, wenn dieses Land erst einmal über Atomwaffen ver
+
+-----
+
+fügt, gibt es keinerlei Rechtfertigung, den Iran in Form eines militärischen Erstschlages auf die Atomanlagen
+anzugreifen. Vielmehr wäre es die Aufgabe der Weltgemeinschaft gewesen, den Zugang zum Know-how
+für die Produktion solcher Waffen zu verhindern und es dem Iran zu verunmöglichen, an dieses Wissen
+zu gelangen. Dieses Recht bestünde aber auch nur dann, wenn alle Länder, allen voran die USA, Israel
+und Russland, die eigenen Atomwaffen abbauen und total vernichten würden. Vergessen wir auch nicht,
+dass es bisher nur ein einziges Land gab, das über diese Waffen verfügte und auch skrupellos genug war,
+diese einzusetzen, nämlich die USA. Dass damals zigtausende Zivilisten umkamen und man dies mit den
+gleichen Propaganda-Feldzügen zu rechtfertigen suchte, wie sie heute wieder gebraucht werden, zeigt,
+wie sich die Geschichte wiederholt und wie wenig wir aus ihr gelernt haben. Es gab keine Rechtfertigung
+für den Einsatz dieser beiden Atombomben, und es klingt unglaublich, wenn das Land, das diese Waffen
+entwickelte, sie einsetzte und dadurch seine Skrupellosigkeit, Unmenschlichkeit und moralische Primitivität
+bewies, sich heute das Recht herausnimmt, anderen diese Waffen zu verweigern und darüber zu entscheiden, wer sie haben darf und wer nicht.
+Im Westen ist durch die US-Propaganda das Bild entstanden, jeder orientalisch wirkende Bartträger mit
+einem anderen Glauben als dem Christentum sei ein potentieller Terrorist. Schlimmer noch, glaubt man
+der US-Propaganda, handelt es sich bei den Taliban und ihren Anhängern um minderwertigere Lebensformen, die es auszuradieren gilt. Fragt man einen Taliban nach seinen Beweggründen gegen den Westen
+zu kämpfen, ist als Triebfeder überwiegend religiöser Fanatismus im Spiel. Fragt man einen US-Soldaten,
+warum er gegen die Taliban kämpft, finden wir in seinen Argumenten den gleichen Fanatismus, auch
+wenn dieser nicht immer religiös motiviert ist. Den gleichen Fanatismus legen mit Ausnahmen auch viele
+US-Bürger und US-Politiker an den Tag. Es geht um die eigene Freiheit, Demokratie und Frieden usw., die
+zu verteidigen sind, und deshalb gilt es, den Feind, also den Andersdenkenden und kulturell anders Ausgerichteten, zu vernichten, weil er als Bedrohung betrachtet wird.
+Beide Seiten sehen den anderen immer nur als Bedrohung und finden in ihren Argumenten die Berechtigung, um diesen anzugreifen, zu töten und zu vernichten. Die Argumente sind teilweise zwar unterschiedlich, aber der Fanatismus ist auf beiden Seiten stets der gleiche. Man unterstellt der anderen Seite
+Unmenschlichkeit und betrachtet sich selbst als den Bewahrer von Menschenrechten und Frieden. Es bleibt
+dabei immer bei einfachen und oberflächlichen Argumenten, die den jeweiligen Beteiligten, egal welcher
+Seite sie angehören, als Rechtfertigung für ihre Aktionen gelten. Dabei sind diese Argumente so oberflächlich und primitiv, dass es ein Leichtes ist, Mitläufer und Anhänger zu finden, die sich für den jeweiligen
+Standpunkt stark machen – und selbst unternimmt man keinerlei Anstrengungen, um diese Parolen zu hinterfragen und sich in Eigenverantwortung damit auseinanderzusetzen. Menschenrechte und Menschenpflichten, der Schutz und Erhalt menschlichen Lebens und das Verständnis für den andern haben dabei
+keinen Platz, weshalb auch niemand versucht, sich einmal in den Gegner hineinzuversetzen.
+Es ist einfach, Hass und Gewalt zu säen, und sehr schwer, Frieden zu schaffen und ihn zu bewahren. Es
+ist sehr einfach, Leben zu vernichten oder ihm Schaden zuzufügen, und äusserst mühevoll, es zu bewahren
+und zu beschützen. Es ist so einfach, dem anderen die Schuld für alles in die Schuhe zu schieben, und es
+braucht so unglaublich viel Selbstdisziplin, Eigenverantwortung und Menschlichkeit, sein eigenes Denken
+und Verhalten zu hinterfragen und sich Fehler einzugestehen.
+Wie lange braucht doch das menschliche Leben von der Zeugung bis zur Geburt, von der Kindheit bis
+zum Erwachsenwerden. – Jahrzehnte der Erziehung, Erfahrungen, Freude und Leid, Liebe und Tod, alles
+wird beendet, wenn wir erschossen oder von einer Bombe zerrissen und getötet werden. Es ist eben sehr
+einfach, menschliches Leben zu vernichten – es ist nur eine Frage der Argumente und der Betrachtungsweise, und schon gilt das menschliche Leben nichts mehr und es wird weggeworfen, weil eine Handvoll
+Politiker, religiöse Fanatiker, Mörder und sonstiges Gesindel sich dazu entschlossen haben, die Menschen
+gegeneinander aufzuhetzen.
+Wohin uns diese Mentalität und Ausrichtung führt, sehen wir am israelisch-palästinesischen Konflikt. Keine
+der beiden Seiten, oder vielmehr keiner der politischen Führer, ist in der Lage, endlich für Frieden zu
+
+
+-----
+
+sorgen. Seit Jahrzehnten bekämpft man sich bis aufs Blut mit zigtausend Toten auf beiden Seiten. Dadurch
+wurde dieser Konflikt nicht gelöst, und scheinbar ist die Mehrheit auf beiden Seiten nicht wirklich
+interessiert an einer Lösung. Im Gegenteil, es wird alles unternommen, um der anderen Seite die Schuld
+am Konflikt unterzujubeln, und man macht weiter wie bisher – was für ein Irrsinn menschlicher Inkompetenz und moralischer Ausartung!
+Die propagandistischen Meldungen westlicher Geheimdienste und Mutmassungen usw., die in regelmässigen Abständen an die Öffentlichkeit dringen, damit wir uns ja nicht zu sicher fühlen und uns immer wieder
+in Erinnerung gerufen wird, dass wir bedroht und dem Terror ausgeliefert sind, verfehlen ihre Wirkung
+zumindest bei unseren Politikern nicht. Wie zu alten Stasi-Zeiten wird immer mehr auf Einschränkung der
+Bürgerrechte und Bespitzelung gesetzt. Diese lautlose und subtile Bedrohung ermöglicht es den Geheimdiensten, in ganz neuen Dimensionen zu arbeiten, zu bespitzeln und – wie Guantánamo zeigt – auch
+hemmungslos und legal zu foltern. Die elementarsten menschlichen Grundwerte werden ausgehebelt,
+indem man Menschen abfängt, sie entführt und an Plätze bringt, wo sie gefoltert werden dürfen. So weit
+ist es also mit unserer westlichen Demokratie gekommen, dass wir in Europa solches zulassen und billigen,
+indem wir nichts, aber auch gar nichts Wirkungsvolles gegen den religiös-fanatischen US-Präsidenten
+unternehmen, der moralisch Amok läuft und dem jedes Mittel recht ist, um andere Länder zu kriminalisieren, zu überfallen und zu terrorisieren, nur weil sie nicht seinem eigenen Weltbild entsprechen.
+Als Nebenprodukt der sogenannten Terrorbekämpfung werden die Rechte des einzelnen immer weiter
+eingeschränkt, angeblich nur zum Schutz der Allgemeinheit. Sogar in Deutschland gibt es Politiker, die so
+ausgeartet sind, dass sie die Meinung vertreten, dass solche Foltergeständnisse von ihnen ebenfalls genutzt
+werden sollten, statt sie nur den US-Amerikanern zu überlassen. Um es richtig zu verstehen: Man schlägt
+Menschen, tritt sie, fesselt sie, treibt sie durch Schlafentzug fast in den Wahnsinn, setzt sie in die glühende
+Sonne bis sie bewusstlos werden, verabreicht ihnen Elektroschocks, uriniert auf sie und hetzt Hunde auf sie,
+hält ihren Kopf unter Wasser, um sie fast zu ertränken, unternimmt alles, um sie als Menschen zu zerstören,
+zu brechen und zu erniedrigen, und meint dann, man solle die unter solchen Umständen erpressten Aussagen für die eigenen Interessen nutzen. Solches politisches Gesindel regiert mittlerweile Deutschland.
+Seit Menschengedenken ist es immer das gleiche Bild: Eine kleine Gruppe ausgearteter Fanatiker und Unbelehrbarer hält die breite Masse eines Volkes in Schach, um mit ihrem degenerierten Denken und Handeln
+anders denkende und anders lebende Menschen zu unterdrücken, zu bedrohen oder anzugreifen. Ob
+Kommunismus, Nazismus, Bushismus etc., die Liste all jener Gruppierungen und Ideologien, die unseren
+Planeten gefährden und seine Menschen gegeneinander ausspielen und aufhetzen, ist endlos und wird
+immer länger, und sie geben keine Ruhe, bis sie unseren Planeten in einen Trümmerhaufen verwandelt
+haben. Dass sich solche Unmenschen ohne jede Moral mittlerweile erfolgreich in demokratisch wirkende
+Staaten eingeschlichen und etabliert haben, die alle menschlichen Grundwerte mit Füssen treten, zeigt
+sich bei George W. Bush, seinen Anhängern, Mitläufern und Mittätern. Sie sind die grösste und tödlichste
+Bedrohung für den globalen Frieden und werden die Initiatoren eines Dritten Weltkrieges, wenn sie mit
+ihrer Terrorpolitik unter dem Deckmantel von Frieden und Freiheit weiterhin ungehemmt und ungebremst
+weitermachen können.
+Auch Terroristen sind natürlich menschenverachtend und kriminell, und auch sie haben keinerlei Respekt
+vor dem Leben, wenn sie in ihrem ausgearteten Denken unschuldige Menschen ermorden und mit Gewalt
+jedes Mittel für ihren religiösen Fanatismus einsetzen. Sie müssen bekämpft werden, aber nicht dadurch,
+dass man Länder überfällt und Zivilisten ermordet, oder ganze Regionen zerbombt und unschuldige Menschen die Opfer sind. Was im Westen als ‹Kampf gegen den Terror› bezeichnet wird, ist nichts anderes,
+als den Terror, vor dem wir uns schützen wollen, zu jenen Menschen zu bringen, in denen eine Bedrohung
+gesehen wird, wobei jedoch nicht die Verantwortlichen bekämpft werden, sondern in der Regel Unschuldige. Die einzelnen Verantwortlichen herauszuziehen und dingfest zu machen, sollte das Ziel sein, statt
+durch ‹chirurgisch-militärische Einsätze› ganze Landstriche zu zerbomben und Zivilisten zu ermorden,
+wenn die eigentlichen Verantwortlichen wirkungsvoll bekämpft werden sollen. Solche Kriege im moralisch
+
+
+-----
+
+und juristisch rechtsfreien Raum können weder gewonnen werden noch zu einer Lösung der Probleme beitragen, wie die aktuelle Lage im Irak und in Afghanistan zeigt. Im Gegenteil, solche Kriege und Konflikte
+sind mit militärischen Mitteln niemals zu gewinnen, denn sie nähren nur den wachsenden Hass gegen den
+Westen. In der Regel sind die eigentlichen Opfer Unschuldige, und wer heute noch von einer Friedensmission in Afghanistan und im Irak redet, hat absolut nichts verstanden, denn schon längst haben die ausländischen Truppen dort mehr Schaden angerichtet als Nutzen gebracht. Indem den Menschen dieser
+Länder die westliche Denk- und Lebensweise aufgezwungen wird, werden sie immer aufgebrachter gegen
+den Westen. Es gibt nur eine Lösung: Raus aus Afghanistan und dem Irak, denn der Westen hat dort nichts,
+aber auch gar nichts verloren. Indem verbrecherische Regimes aufgebaut und unterstützt und ihnen der
+Titel ‹demokratisch gewählt› verliehen wird, wie dies in Afghanistan und dem Irak geschehen ist, wird es
+den Menschen dort niemals besser gehen.
+Die schlimmsten Terroristen, die die westliche Gesellschaft wirklich bedrohen, sitzen als Politiker und Wirtschaftsbosse usw. in den westlichen Demokratien und sorgen mit ihrem kriminellen Handeln dafür, dass
+die Gesellschaft immer mehr verarmt, sich verschuldet und auseinanderbricht, weil sie in ihrer Habgier,
+ihrem Machstreben und ihrer Einflussnahme keinerlei Grenzen mehr kennen. Schlimmer noch, im westlichen Gesellschaftssystem wird ein Wert gesehen, den man jedem Land und jeder Kultur mit allen Mitteln
+unterjubeln möchte, und es wird nicht verstanden, dass andere Länder und Kulturen an diesem System
+vielleicht nicht interessiert sind. Die Demokratie hat zwar den Kampf gegen den Kommunismus gewonnen,
+den für Menschlichkeit, Nächstenliebe usw. aber bereits verloren, weil kriminelle Politiker und Wirtschaftsführer an die Macht berufen wurden, die zu nichts taugen und nur darum bemüht sind, immer reicher und
+mächtiger zu werden. Längst hat die Wirtschaft eigene Wege eingeschlagen und ungehemmt ihre eigenen
+Gesetze und Regeln geschaffen, die nicht mehr zu kontrollieren sind. Der einzelne Bürger und das Volk
+haben längst resigniert, weil sie scheinbar nichts mehr ändern können und Politiker sowieso machen, was
+sie für richtig halten, auch wenn es in der Regel falsch ist. Die klassischen Politiker, egal aus welcher Partei
+und aus welchem Land sie kommen, sind einzigartig darin, Probleme zu schaffen, sie zu verschleppen
+und niemals zu lösen.
+Mit vielen beschönigenden Worten wird in Washington versucht, im Atomkonflikt mit dem Iran einen scheinbaren Kompromiss zu suchen, bei dem kein Versuch einer politischen Lösung ausser acht gelassen werden
+soll und so den Eindruck erweckt, dass man um eine politische Lösung bemüht sei. Dabei ist die Entscheidung für einen Militärschlag schon längst gefallen. Im Gegensatz zur Vergangenheit, in der man durch
+eine unbedachte Wortwahl sehr viele Europäer und sonstige Verbündete vor den Kopf gestossen hat, geht
+man diesmal wesentlich gerissener und durchdachter vor. Man hat aus den verbalen Fehlern, die bei den
+Konflikten in Afghanistan und Irak gemacht wurden, gelernt und macht nicht noch einmal den Fehler, Verbündete gegen sich aufzubringen. Auf der einen Seite zeigen die Bushisten immer wieder, wie gleichgültig
+ihnen ihre Methoden sind, indem sie so weitermachen wie bisher, und auf der anderen Seite finden die
+Anhänger von Bin Laden und Co. immer mehr Anhänger, weil die USA und ihre Sympathisanten zu Mitteln
+und Massnahmen greifen, die alle anderen Staaten gegen sie aufbringen.
+In zahlreichen Ländern Europas wurde bereits erkannt, dass Atomwaffen nicht das Mass aller Dinge sind,
+weshalb die Waffen dieser Art vollkommen abgelehnt werden. Wenige Unbelehrbare und Unverbesserliche wie Frankreich und England sehen darin jedoch immer noch ein notwendiges Friedenswerkzeug und
+bestehen darauf, sie zu besitzen. Dadurch zeigen diese beiden Ländern aber nur, dass sie in der Vergangenheit leben und an ihrem völlig verkorksten Nationalstolz festhalten, der vollkommen fehl am Platz ist
+und nichts mehr mit der aktuellen politischen und geschichtlichen Situation zu tun hat. Es geht ihnen nur
+um falsch verstandenes Prestige und Macht, denn Atomwaffen haben in unserer Zeit nichts mehr zu suchen
+und tragen auch keineswegs zur Lösung von Konflikten gleich welcher Art bei, wie sie das auch zu Zeiten
+des Kalten Krieges nicht getan haben. In der heutigen Zeit gibt es für solche Waffen keinen Platz, keine
+Berechtigung mehr.
+
+
+-----
+
+Wenn der Westen jedoch über Atomwaffen verfügen will, kann er diese anderen Nationen nicht verweigern, deshalb wird der Iran auch weiterhin an seinem Atomprogramm festhalten, und so kann es auch
+zu einem militärischen Schlag gegen das Land kommen, denn weder Israel noch die USA werden zuschauen, wie dort die Bombe entsteht und hinnehmen, dass sie wer-weiss-wem in die Hände fällt. Wenn
+es zu diesem Schlag gekommen ist, wird sich auch hier die Frage stellen, wie es dazu kommen konnte
+und was Russland und China machen werden. Diese beiden Länder werden sich nicht ewig zurückhalten
+und die Weltherrschaftspläne der USA so stillschweigend über sich ergehen lassen wie bisher, und generell
+stellt sich auch die Frage, wie sich China weiterentwickeln wird, denn sein Weg zur Weltmacht ist nicht
+mehr aufzuhalten. Sobald wirklich russische und chinesische Interessen berührt werden, wird man sich
+von den USA kaum mehr einschüchtern und bevormunden lassen, denn dazu wurde bisher zu lange stillgehalten.
+In Zukunft wird sich dies ändern und die chinesische Politik, die keinerlei Menschenrechte und Menschenpflichten kennt und noch skrupelloser und rücksichtsloser ist als die USA, wird das Weltgeschehen
+massgebend mitprägen. Europa weiss im Moment noch wenig von der chinesischen Politik und ihrem
+Hunger nach Ressourcen, Macht und Einfluss, der vom gigantischen Reich der Mitte ausgeht. Wenn sich
+dieses Land mit seinen über eine Milliarde zählenden Menschen jedoch erst einmal in Bewegung setzt und
+zum Sprung in das 21. Jahrhundert ansetzt, um technologisch, militärisch und politisch seine Dominanz
+zu stärken, wird die ganze Erde ins Wanken geraten. Dann wird dieses Land nicht mehr still vor sich hin
+brodeln, sondern wie ein gigantischer Vulkanausbruch unseren Planeten überziehen. Der chinesische Lavastrom wird sich unaufhaltsam und unkontrollierbar über den Planeten ergiessen und seine Bedürfnisse und
+Interessen durchsetzen. Ein Angriff auf den Iran könnte chinesische Interessen durchaus berühren und zu
+einem Flächenbrand im Nahen und Mittleren Osten führen – und China wird dort mit Sicherheit nicht
+mehr einfach stillschweigend zuschauen. Ein solcher Flächenbrand könnte auf Europa und schliesslich auf
+den ganzen Globus übergreifen, und das nur wegen dem verantwortungslosen, sektiererischen und
+grössenwahnsinnigen US-Präsidenten George Walker Bush.
+Günter Neugebauer, Schweiz
+
+## Leserfrage
+
+Ich finde, es ist kaum möglich, den Wert Deiner Arbeit und Mission in Worte zu fassen, darum sende ich
+Dir stattdessen lieber ganz ganz herzliche Grüsse aus dem nahen Deutschland, verbunden mit dem
+innigen Wunsch, dass Du gesund bleibst und noch lange leben mögest … und dass Du auch weiterhin so
+authentisch-menschlich schreibst, wie bisher!!
+Sofern es Deine vorhandene Zeit überhaupt gestattet, möchte ich Dir gerne zwei kurze Fragen stellen, vielleicht auch Stoff für ein Bulletin:
+1. Seit wenigen Wochen wird hier in Deutschland die Impfung gegen Gebärmutterhalskrebs (also zum
+Schutz vor Papillomaviren) von den gesetzlichen Krankenkassen übernommen. Der Erfolg ist noch nicht
+bekannt, doch kostet eine Impfung ca. 460 Euro. Dient das der Bereicherung der Pharmakonzerne,
+oder ist es sinnvoller Schutz für Frauen?
+2. Habe einen sehr spannenden Patientenvortrag über DNA-Analysen der österreich. Firma www.genosense.com besucht. Dort kann man verschiedene Analysen in Auftrag geben, die z.B. Rückschlüsse
+über Medikamentverträglichkeiten, die Nahrungsverstoffwechselung oder Zugehörigkeit zu speziellen
+Risikogruppen zulassen. Geschulte Ärzte können so Therapien individueller gestalten; zentraler Schwerpunkt dabei ist: die An- und Abschaltung von Risikogenen durch eine gezielte Ernährungssteuerung.
+Das ist sehr interessant, ich musste sogleich an die Genmanipulation unserer Vorfahren denken … Über
+eine Antwort oder spätere Verwendung in einem Bulletin würde ich mich sehr freuen!
+Franziskus Koslar, Deutschland
+
+
+-----
+
+### Antwort
+Erstens recht lieben Dank für das E-Mail und die guten Worte. Frage 1 kann damit beantwortet werden,
+dass Impfungen der Gesundheit des Menschen dienen, wenn diese ausgereift und absolut erprobt sind.
+Ist das der Fall, dann dienen sie nicht einfach der Bereicherung der Pharmakonzerne – obwohl diese natürlich ihre Profite damit machen, weil sie ja kommerziell arbeiten und folglich darauf angewiesen sind, mit
+ihren Produkten auch Geld zu verdienen, um ihre Unkosten zu decken und weitere Forschungen betreiben
+zu können. Wird aber ein Medikament oder in diesem Fall eine Impfsubstanz vom Gesundheitsamt zugelassen und auch von der Krankenkasse bezahlt, dann darf angenommen werden, dass der Impfstoff
+bereits weitestgehend erforscht und erprobt und zu erwarten ist, dass er für die Frauen einen sinnvollen
+Schutz bietet. Natürlich bedeutet das nicht, dass der neue Impfstoff bei allen Anwendungen den gewünschten Erfolg bringt, folglich dieser erst abzuwarten ist. Doch wenn ein Medikament oder Impfstoff
+bereits offiziell vom Gesundheitsamt zur Behandlung von Menschen freigegeben wird, dann ist das Ganze
+in der Regel weitestgehend erforscht und erprobt.
+Frage 2 ist für mich leider ein Böhmischer Wald, denn dazu kann ich infolge meiner Unkenntnis in dieser
+Beziehung keine Antwort geben.
+Billy
+
+## Leserfrage
+
+Was muss eigentlich unter dem Begriff ‹Übersinnliches› verstanden werden, was ist das genau und wie
+funktioniert es genau? Man hört immer so viel über dieses Übersinnliche, besonders dass man dadurch
+Geister sehen und Tote reden hören oder von Sterbenden gerufen werden könne usw., was muss man
+davon halten? Selbst ist mir noch nie etwas Derartiges zugestossen, doch haben mir Bekannte gesagt,
+dass es bei ihnen schon der Fall gewesen sei. Können Sie mir darüber etwas Genaueres sagen?
+R. Strässler, Schweiz
+
+### Antwort
+Die Beantwortung dieser Frage fällt ziemlich weitumfassend aus, denn das Ganze kann nicht einfach mit
+wenigen Worten klargelegt werden. Also will ich Ihr Interesse mit einem Lehrbriefteil der Geisteslehre befriedigen, durch die folgendes klargelegt wird:
+
+### Übersinnliches resp. Feinstoffsinnliches resp. Fluidalkräfte
+Der Begriff Übersinnliches ist ein falsches Wort, das dafür verwendet wird, um etwas Wahrnehmbares zu
+beschreiben, das für den Menschen ausserhalb des normalen, materiellen resp. des Grobstoffsinnlichen
+liegt und damit ausserhalb des materiellen Wahrnehmungsvermögens, sondern also im Bereich des Feinstofflichen. Das Feinstoffliche, das Fluidale als Übersinnliches zu bezeichnen, ist grundfalsch, denn wahrheitlich gibt es für den Menschen nichts, das ausserhalb der Wahrnehmung seiner Sinne liegen würde,
+sondern nur etwas, das ausserhalb der Grobstoffsinnlichkeit in den Bereich des Feinstoffsinnlichen gehört.
+Insbesondere ist dabei die Rede in bezug auf die Wirkung der feinststofflichen Gedankenschwingungen,
+die in ihrer Form der Feinstofflichkeit als Fluidalenergien und Fluidalkräfte bezeichnet werden und die,
+erzeugt durch die Gedanken und Gefühle, auch ausserhalb des Gehirns verschiedenste Wirkungen
+zeitigen, die auch von anderen Menschen wahrgenommen werden können. Diese fluidalen Energien und
+deren Kräfte sind nicht nur die Energien in bezug auf die Telepathie, Levitation und Teleportation, sondern
+auch die der Hellsichtigkeit und Fernwahrnehmung, wobei für jeden einzelnen Faktor menschlich-individuell verschiedene Erscheinungsformen gegeben sind. Beim Gedankenlesen und der effectiven Telepathie
+und allen sonstig neurophysiologischen Faktoren spielen, wie bei der Meditation, die Alphawellen eine
+grosse Rolle, denn diese fliessen im Gedankenstrom synchron durch beide Hirnhälften, wobei sie auch
+
+
+-----
+
+beim Verarbeiten von Bildern und bildlichen Vorstellungen aktiv sind, wie das auch unter Hypnose und in
+Trance der Fall ist, wenn das Gehirn in den sogenannten Alphamodus schaltet.
+Gedanken und Gefühle spielen sich nicht nur im Gehirn ab, sondern sie wirken auch ausserhalb desselben und können in Form von Telepathie drei Lichtsekunden (rund 900 000 Kilometer) ‹gesendet› und
+von einem geeigneten anderen Gehirn aufgenommen und verstanden werden. Und weil aus den Gedanken auch Gefühle entstehen, können aus diesem Grunde Menschen auch fühlen, wenn sie plötzlich
+jemanden, den sie lieben, verlieren oder verloren haben, wie sie aber auch auf gleiche Weise plötzlich
+wissen, dass sie von einem weit entfernten oder in der Nähe lebenden Menschen gebraucht werden. Auch
+ein ‹bohrender› Blick im Rücken, das unerklärliche Zerbrechen eines Glases oder das grundlose Herunterfallen eines Gegenstandes gehören dazu. Der Grund dafür sind in der Regel die starken Gedankenströme und die daraus entstehenden feinstofflich-elektromagnetischen lichtschnellen Schwingungen resp.
+Fluidalenergien eines bestimmten Menschen, der seine starken Gedanken in einem Augenblick auf eine
+bestimmte Person (oder Personen) richtet, die diese Schwingungen dann wahrnimmt und erkennt, was
+damit übermittelt wird. So werden von einem Menschen durch starke Gedankenströme fluidale Energien
+frei, die von bestimmten verbundenen Menschen wahrgenommen und als Ahnung erfasst oder richtig
+gedeutet werden. Und dazu ist jeder Mensch fähig, und zwar durch die richtige Funktion der Zirbeldrüse
+(die am oberen Abschnitt des Zwischenhirns liegende Drüse; Epiphyse), die im Zentrum des Gehirns
+visuelle Reize usw. wahrnimmt, wobei jedoch immer vorausgesetzt sein muss, dass der Mensch die Fähigkeit dieses Faktors nicht hat verkümmern lassen. Tatsache ist, dass die Zirbeldrüse in einem völlig anderen
+Frequenzbereich feinstoffliche elektromagnetische Felder zu detektieren resp. wie ein Sensor aufzuspüren
+und festzustellen und damit Informationen zu empfangen vermag. Gleichermassen funktioniert das in bezug auf den ‹bohrenden› Blick im Rücken oder Nacken, wenn infolge der Gedankenschwingungen der
+Beobachtungsperson durch die Zirbeldrüse die Tatsache des auf den Rücken oder den Nacken gerichteten
+Blickes erkannt wird und diese Information ins Bewusstsein gelangt.
+Die Fluidalschwingungen der Gedankenwelt haben nichts mit Übersinnlichem zu tun, denn Übersinnliches
+gibt es nicht. Die fluidalen Schwingungen der Gedanken beruhen auf einem Faktor, der als ‹Feinstoffsinnliches› bezeichnet wird, nicht jedoch als übersinnlich, weil Übersinnliches nicht existiert, und zwar
+darum, weil das Feinstoffsinnliche mit dem siebten Sinn resp. mit der Empfindung wahrgenommen werden
+kann, folglich es also weit über dem liegt, was grobstoffsinnlich wahrgenommen werden kann. Leider geht
+der Mensch von nur fünf Sinnen aus (Hören, Sehen, Tasten, Schmecken, Riechen), obwohl deren sieben
+existieren, wobei die beiden weiteren das Empfinden und das Gefühl sind, wobei letzteres im Zusammenhang mit dem Instinkt steht und grundlegend mit der Gedankenwelt verbunden ist.
+Die Fluidalschwingungen der Gedankenwelt sind gekoppelt mit den fluidalen Schwingungen der Gefühlswelt, und in dieser Form gehen die Gedanken und Gefühle dauernd ‹auf Reisen›, und zwar als Faktor
+der Feinstoffsinnlichkeit. Noch ist zwar die heutige irdische Technik in den ersten Jahren des Dritten Jahrtausends nicht in der Lage, diese Feinstoffschwingungen resp. diese fluidmässigen Schwingungen apparaturell und somit grobstofflich nachzuweisen, doch dass der Nachweis eines Tages doch gelingen wird,
+ist nur eine Frage der technischen Entwicklung und der Zeit. Dann wird auch erkannt, dass die Feinstoffsinnlichkeit auf der Form von Feinstoffschwingungen resp. auf Fluidalschwingungen basiert, wie aber
+auch, dass diese fluidalen Energien und deren Kräfte der grundlegende Faktor der Telepathie, der Levitation und der Hellsichtigkeit sowie der Teleportation usw. sind. Und Tatsache ist: Das Feinstoffsinnliche –
+eben vom Menschen in Unkenntnis irrtümlich als Übersinnliches bezeichnet – ist tatsächlich ein Produkt
+des menschlichen Gehirns resp. dessen Gedanken und den daraus resultierenden Gefühlen. Es handelt
+sich dabei also um eine ganze normale, jedoch nicht ‹übernatürliche› Energie und Kraft, wobei das Ganze
+auch nicht unheimlich und nicht unwirklich, sondern absolut geheuer und real ist. Und wenn Gedanken
+und die daraus resultierenden Gefühle ‹auf Reisen› gehen als Feinstoffenergie, die empfindungsmässig
+auch in irgendeiner Form von anderen Menschen wahrgenommen werden kann, dann handelt es sich
+dabei um eine Form der Telepathie. Dabei muss aber klar sein, dass einzig und allein die Feinstoffenergie
+
+
+-----
+
+der Gedanken- und Gefühlswelt, jedoch nicht das Bewusstsein ‹auf Reisen› geht, und zwar erfolgt die
+‹Reise› ausserhalb des Körpers in Form eines ‹Bewusstseinfühlers› resp. in Form eines ‹Bewusstseinssensors›, das darum, weil die Gedanken und Gefühle die entsprechenden fluidalen Schwingungen aufbauen und aussenden, wobei das Bewusstsein die Energie dazu liefert, jedoch selbst nicht den Körper
+verlässt. So ist es gegeben, dass es immer die Gedanken und deren Gefühle sind, die als Telepathieform
+aus dem Gehirn ausstrahlen und ‹auf Reisen› gehen. So können also sensitive Menschen ‹spüren› resp.
+durch den siebten Sinn empfinden, wenn sie durch andere beobachtet werden, wie sie aber auch wahrnehmen können, wenn ein Mensch in Not ist oder stirbt, wenn dieser seine Gedanken und Gefühle an die
+sensitive Person aussendet, die dann den ‹Ruf› usw. feinstoffsinnlich resp. empfindungsmässig wahrnimmt.
+So tritt es sehr oft in Erscheinung, dass, wenn ein Mensch in Not kommt oder an der Schwelle des Todes
+steht, seine Gedanken und Gefühle dann ‹auf Reisen› gehen, irgendwohin zu einem Menschen, der ihm
+viel bedeutet hat. Gedanken und Gefühle durchbrechen alle Grenzen von Raum und Zeit und dringen in
+die Gehirne jener ein, welche ‹angesprochen› werden und die empfindungsmässig das ‹Rufen› wahrnehmen. Das Ganze ist dabei eine Form der Telepathie resp. des Gedankenlesens auf weite Distanzen,
+die im primären Zustand bis zu 900 000 Kilometer erreicht, die jedoch durch die sogenannte sekundäre
+resp. höhere Telepathie sowie durch die Geisttelepathie sehr weit überbrückt werden kann und praktisch
+eine unendliche Reichweite hat.
+Die Feinstoffsinnlichkeit birgt noch andere Energien als die Telepathie usw. in sich, denn auch das Aussenden der Bewusstseinsenergie durch die Gedanken und Gefühle gehört dazu, wobei dann von einer
+‹Bewusstseinsreise› gesprochen wird. Dabei wird jedoch nicht das Bewusstsein ausgesandt, sondern die
+Möglichkeit der Hellsichtigkeit der Bewusstseinsenergie im Zusammenhang mit den Gedanken und Gefühlen. In diesem Zustand der Hellsichtigkeit vermag der Mensch durch seine aus der Bewusstseinsenergie
+erzeugten Energien und Kräfte seine Gedanken und Gefühle derart zu steuern, dass er in die Zukunft oder
+Vergangenheit zu blicken vermag, oder dass er scheinbar über dem Boden schwebend und sich fortbewegend alles sieht und erkennt, was sich unter ihm abspielt und ergibt. Solches ist z.B. bekannt von
+Menschen, die im Bett lagen und sich plötzlich scheinbar schwebend über dieses erhoben und sich unter
+sich selbst im Bett liegen sahen – oder auf einem Operationstisch. Gleichermassen kann es aber sein, dass
+in solchen bewusstseinsmässigen Schwebezuständen andere Menschen und deren Schicksal gesehen wird
+oder Geschehen beobachtet werden, die sich unten am Boden usw. abspielen. So können Abläufe, die in
+solchen Momenten erlebt werden, Jota für Jota genau wiedergegeben werden.
+Grundlegend ist die Zirbeldrüse der springende Faktor, der durch die Gedanken und Gefühle das Reich
+und die Zentrale des Feinstoffsinnlichen bildet. Auf dieses Reich resp. Zentrum hatten die frühen und auch
+noch spätere Vorfahren des Menschen einen intensiveren Zugriff, und sie vermochten gar das Feinstoffsinnliche resp. die fluidalen Gedanken- und Gefühlsschwingungen zu einem gewissen Teil noch bewusst
+zu steuern und diese Bewusstseinsenergien mit deren Kräften zu nutzen. Durch die laufende Veränderung
+des Menschen in bezug auf seinen Körper und Organismus sowie seine gedanklich-gefühlsmässige Ausrichtung auf das rein Materielle, hat sich die Zirbeldrüse und ihre feinstoffsinnliche Fähigkeit zurückgebildet, folglich zur heutigen Zeit nur noch mehr oder weniger sensitiv veranlagte Menschen in der Lage
+sind, die feinstoffsinnliche Wirksamkeit der Zirbeldrüse zu nutzen. Ursprünglich wies dieses Organ wenig
+mehr als drei Zentimeter Durchmesser auf, wogegen durch die Schrumpfung heute durchschnittlich nur
+noch eine Grösse von drei Millimetern gegeben ist. Der Grund dafür liegt in der Tatsache, dass der Mensch
+seine Innenwelt mehr und mehr dem rationalen Verstand unterworfen und das Sensitive des Feinstoffsinnlichen der Zirbeldrüse vernachlässigt hat, wodurch das Ganze verkümmert ist.
+Die Zirbeldrüse ist das Organ der empfindungsmässigen Wahrnehmung resp. der siebte Sinn des
+Menschen, der jedoch nicht mehr von vielen genutzt werden kann, weil unbewusst eine Schranke dagegen
+aufgebaut wird, wodurch das sogenannte Dritte Auge, wie die Zirbeldrüse auch genannt wird, in der
+Funktion unterdrückt und abgewürgt wird. Aus diesem Grunde können nicht alle, sondern nur wenige
+Menschen deren Funktion und Wirksamkeit nutzen. Und für diese Blockade ist der Mensch selbst schuld,
+
+
+-----
+
+denn würde er sich bemühen, dann vermöchte er trotz seiner Zirbeldrüsedegeneration dieses Organ in
+gewissem Rahmen wieder zur Funktion zu bringen. Natürlich ist der Weg dazu lang und mühevoll, denn
+es muss durch stete meditative Übung gelernt werden, genug Energie durch den Hirnbereich der Zirbeldrüse und durch diese selbst fliessen zu lassen, denn nur dadurch ist es möglich, dass die den Menschen
+umgebenden feinstoffsinnlichen elektromagnetischen Felder bewusst wahrgenommen werden. Anstatt dass
+dies jedoch getan wird, blockiert der Mensch diese fluidale Energie und lenkt sie ab, ehe sie ihn auch nur
+treffen kann. Das aber ist ein gehöriger Mangel in bezug auf die Wahrnehmung der Realität, denn zu
+dieser gehört nicht nur das Grobmaterielle, dessen Energien, Kräfte und Schwingungen, sondern auch
+das Feinstoffliche, das Fluidale an Energien, Kräften und Schwingungen, die aus den Bereichen der
+Gedanken und Gefühle sowie der Psyche als fluidale elektromagnetische Felder entstehen, wie sich das
+bei sämtlichen Lebensformen ergibt, und zwar auch bei jenen, welche nur Instinktimpulse und Instinktgefühle sowie eine Instinktpsyche erzeugen. Durch die Blockade und Ablenkung der ihn umgebenden feinstofflichen resp. fluidalen elektromagnetischen Energiefelder nimmt der Mensch die effective Realität nur
+sehr begrenzt wahr, und das ist der Fall beim Gros der gesamten Menschheit. Wahrheitlich sind es nur
+wenige und sehr vereinzelte Menschen, die ihrem Energiefluss zur und in die Zirbeldrüse freien Lauf lassen
+und so seherisch oder hörend Dinge wahrnehmen können, die ausschliesslich in den Bereich des Feinstoffsinnlichen gehören. Und diese Menschen sind es auch, denen es bei genügender meditativer Übung
+möglich ist, auch das Superfeinstoffsinnliche empfindungsmässig wahrzunehmen, das in den Bereich des
+Geistigen belangt und also weit über alle Bewusstseinsenergien und Bewusstseinskräfte hinaus. Diesbezüglich ist jedoch zu sagen, dass die Form des Superfeinstoffsinnlichen beim Erdenmenschen hinsichtlich
+seiner noch ungenügend entwickelten Bewusstseinsevolution nicht möglich ist, was noch lange so bleiben
+wird. Nichtsdestoweniger jedoch ist jeder vernunfts- und verstandesträchtige Erdenmensch bei entsprechender meditativer Bemühung fähig, das Feinstoffsinnliche in sich zu wecken, zu entwickeln und
+nutzbar zu machen.
+In bezug auf das Feinstoffsinnliche ist Tatsache, dass nicht nur sehende Menschen, sondern auch Blinde
+einem Tag-und-Nacht-Rhythmus eingeordnet sind (wie auch alle blinden Tiere und alles Getier), dem auch
+alle Körperfunktionen und sogar die Pupillen angepasst sind. Also geht daraus auch hervor, dass Blinde –
+und besonders diese – Wahrnehmungen des Feinstoffsinnlichen machen und also empfindungsmässig
+besonders aktiv sind. Natürlich nehmen sie auch das Grobstoffsinnliche wahr, doch sind ihre Empfindungsfähigkeiten ausgeprägter als bei den Sehenden, und zwar darum, weil sie sich ihre Energien auf
+das ‹innere Auge› resp. auf die Zirbeldrüse ausrichten. Ausserdem ist auch bei Blinden die Netzhaut von
+speziellen Nervenzellen durchzogen, durch die Signale an die Zirbeldrüse abgegeben werden. Dadurch
+wird die Produktion des Hormons Melatonin angeregt, das die ‹innere Uhr› steuert und so den Lebensrhythmus des Körpers bestimmt.
+Das menschliche Gehirn verfügt nebst der Zirbeldrüse auch noch über andere bemerkenswerte wichtige
+Faktoren, wie z.B. das ‹Frühwarnsystem›, das sich nahe beim vorderen Stirnhirnlappen befindet, in der
+Hirnregion ‹Anterior Cingulaze Cortex›, kurz ACC genannt. Diese Hirnregion ist es, die dann aktiv wird,
+wenn z.B. eine schwierige Entscheidung zu treffen ist, wie unter anderem, wenn zwischen zwei sich einander widersprechenden Alternativen entschieden werden muss. ACC warnt den Menschen aber auch
+vor drohenden oder auftretenden Gefahren, die nur empfindungsmässig wahrgenommen werden und
+folglich nicht als direkter Warnfaktor ins Bewusstsein dringen. Ein weiterer Faktor ist der in bezug auf die
+empfindungsmässige Wahrnehmung von Geräuschen, die nicht als grobstoffsinnliche Wirkung in Erscheinung treten und vom Menschen also auch nicht grobstoffsinnlich wahrgenommen werden können,
+sondern als Infraschall, wie diese z.B. von grossen Tieren oder von Erdbeben usw. ausgehen. Infraschall
+ist tatsächlich auch der Ursprung für manchen unerklärlichen ‹Spuk›, der z.B. dadurch entsteht, indem der
+Wind durch Löcher, Gesteinsritzen, durch Kamine oder Spalten usw. pfeift und extrem tiefe Töne erzeugt,
+die das Gehör des Menschen nicht wahrnehmen kann, deren Schwingungen jedoch auf den Körper des
+Menschen und natürlich auch auf die Zirbeldrüse wirken und bestimmte Wirkungen feinstoffsinnlicher
+
+
+-----
+
+Form auslösen, die empfindungsmässig wahrgenommen werden.
+Der strahlende Abdruck der Persönlichkeit ist der Faktor Ausstrahlung, die auch als Aura bezeichnet wird,
+und diese ist es, die empfindungsmässig von anderen Menschen wahrgenommen werden kann, wenn
+diese sensitiv genug sind resp. wenn sie die Energien und Kräfte der Zirbeldrüse und damit die Empfindungen in bewusster Weise nutzen können. Tatsache ist, dass jeder Mensch von einem feinstoffsinnlichen resp. fluidalen elektromagnetischen Feld umgeben ist, das die Persönlichkeitsinformationen enthält,
+weshalb der Abdruck resp. die Ausstrahlung der Persönlichkeit auch Informationsfeld genannt wird (das
+Ganze hat aber nichts mit den esoterischen Unsinnigkeiten zu tun, wie auch nicht mit den angeblichen
+und betrügerischen Medien, die sich fälschlich aus Imagesucht und Profithascherei rühmen, Auren sehen
+zu können). Und dieses fluidale elektromagnetische Feld wirkt auch auf den Mitmenschen und kann von
+diesem bei genügender Sensitivität wahrgenommen und definiert werden. Dieses Fluidalfeld der Persönlichkeit des Menschen vermag also den Mitmenschen zu treffen und diesen zu beeinflussen. Eine solche
+Beeinflussung geschieht aber auch durch die Gedanken und Gefühle, wenn diese auf einen anderen
+Menschen – oder ein Tier – konzentriert werden, denn durch diese Konzentration entsteht durch die feinstofflichen Schwingungen der Gedanken und Gefühle ein verstärktes Fluidalfeld, das sich als Wirkungsfeld erweitert und verstärkt, wodurch der ‹angepeilte› Mitmensch die ‹Botschaft› empfangen und definieren kann. Tatsache ist, dass die Persönlichkeit und der ganze Körper des Menschen ununterbrochen
+feinstofflich-elektromagnetische Schwingungen resp. Signale aussendet, die von anderen Menschen wahrgenommen werden, leider in der Regel jedoch nur unbewussterweise, weil sich der Mensch infolge der
+Hinwendung seiner inneren Welt zum reinen rationalen Verstand seiner Verkümmerung der Zirbeldrüse
+zugewandt hat.
+Eine weitere Tatsache ist die, dass jeder lebende und tote Körper resp. jedes organische Material eine
+eigene und zellvielfältige Lichtquelle hat, die ihr feinstoffsinnliches resp. fluidales Licht zusammen mit den
+Fluidalenergien ausstrahlt, denn jede lebende Zelle strahlt in winziger Menge Lichtquanten resp. Biophotonen im UV-Bereich ab. Diese Ausstrahlungen, Abstrahlungen resp. Auren können von jedem
+Menschen empfindungsmässig wahrgenommen und bei einer gewissen Sensitivität gar gesehen werden.
+Leider wird jedoch in der Regel von Esoterikbefangenen und durch betrügerische ‹Hellsichtige› usw. damit
+Schindluder getrieben, wenn sie behaupten, dass sie die menschlichen Auren usw. sehen könnten, denn
+wahrheitlich ist das nur Menschen möglich, deren Zirbeldrüse in grossem Umfang funktioniert. Menschen
+mit solchen Fähigkeiten sind jedoch selten, folglich leicht zu erkennen ist, dass das Gros der ‹Fähigen› auf
+lügnerischen, betrügerischen und schwindlerischen oder einfach scharlatanischen und profitgierigen
+Wegen läuft, sein Unwesen treibt und die Mitmenschen in die Irre führt.
+In der heutigen Zeit entstehen Hellsichtigkeit und Gedankenlesen vielfach durch prägnante Ereignisse resp.
+traumatische Erlebnisse und Ereignisse, durch die der Mensch sich wieder seiner inneren Welt zuwendet,
+wie z.B. wenn er durch eine schwere Krankheit getroffen wird, durch den Verlust eines geliebten
+Menschen, durch eine körperliche Behinderung, durch eine Katastrophe, ein schreckliches Erlebnis oder
+durch ein schweres Unglück usw. Leider lebt der Mensch von heute mehr gedankenlos in den Tag hinein,
+anstatt dass er sich dem effectiven eigenen inneren und äusseren Leben zuwendet, wodurch er auch seine
+Zirbeldrüsetätigkeit und Zirbeldrüsefähigkeit in bezug auf die empfindungsmässigen resp. feinstoffsinnlichen Wahrnehmungen anregen und diese nutzen könnte, wie z.B. hinsichtlich der Hellsichtigkeit und des
+Gedankenlesens oder gar der eigentlichen Telepathie resp. der bewussten, gewollten und gesteuerten
+Gedankenübertragung und des bewussten Gedankenempfangs. Dazu gehört auch das empfindungsmässige Wahrnehmen von Freude, Hass, Liebe, Krankheit, Ehrlichkeit, Unehrlichkeit, Trauer und Lüge
+usw., doch im vorgenannten Sinn der prägnanten Ereignisse beruht das immer auf einem Schaden der
+Persönlichkeit. Normalerweise ist das aber nicht der Fall, denn all die Fähigkeiten der Hellsichtigkeit, des
+Gedankenlesens, der Hellhörigkeit, der eigentlichen Telepathie sowie der Teleportation, der Levitation und
+der Telekinese usw. können vom Menschen, und zwar von jedem vernunfts- und verstandesträchtigen
+Menschen, ohne prägnante Ereignisse durch zweckdienliche und dauernde Meditationsübungen er
+
+-----
+
+arbeitet werden. Also können sowohl das einfache Gedankenlesen als auch die eigentliche Telepathie und
+alle anderen bewusstseinsenergiemässigen resp. gedanken-gefühlsmässigen und zirbeldrüsenbedingten
+Formen für den Menschen bewusst greifbar gemacht werden. Das aber bedingt eine kontrollierte Psychohygiene und eine Unermüdlichkeit bezüglich der notwendigen meditativen Bemühungen.
+Auch in bezug auf die Nahtod-Erfahrung spielt die Feinstoffsinnlichkeit eine sehr wichtige Rolle, denn
+dadurch, dass die reine rationale Vernunft durch den Sterbevorgang ausgeschaltet und dem siebten Sinn,
+der Empfindungsfähigkeit, der ihr gebührende Platz eingeräumt wird, erweitert sich hinsichtlich des Feinstoffsinnlichen die Wahrnehmungsfähigkeit, die üblicherweise im aktuellen Leben durch den Zustand der
+rationalen Vernunft unterdrückt wird. Dadurch öffnet sich dem Menschen eine Grenze zu einem Fenster
+zu jener feinstoffsinnlichen Welt, die sehr weit über all das hinausgeht, was mit den reinen Grobstoffsinnen wahrgenommen werden kann, mit den Augen, dem Tasten, Riechen, Hören und Schmecken. Durch
+diese erhöhte Wahrnehmungsfähigkeit durch den Empfindungssinn in bezug auf das Feinstoffsinnliche,
+tritt als Nahtod-Erfahrung z.B. eine Hellsichtigkeit in der Weise auf, dass der sterbende Mensch sich aus
+einer höheren Warte (über dem eigenen Körper oder durch Räume schwebend) aus betrachten und auch
+sehen kann, was um ihn herum geschieht, was gesprochen wird und welche Gegenstände Menschen bei
+sich tragen oder im Sterberaum oder in angrenzenden Räumen usw. vorhanden sind. Die Nahtod-Erfahrung ist auch ein Schlüssel zum Gedankenlesen, wobei auf feinstoffsinnlicher Basis die Gedanken
+umstehender oder weit entfernter Personen wahrgenommen werden. Insbesondere geschieht das im Tiefresp. Tiefstagoniezustand, der einer Beschaffenheit geringster Hirntätigkeit entspricht. Dieser Status ist der
+des Eintritts des Todes, und in diesem öffnet das Gehirn dem Menschen seine verborgenen und im aktuellen Leben unterdrückten Fähigkeiten.
+Jedes Gehirn, also sowohl des Menschen als auch der Tiere und allen Getiers, kann verglichen werden
+mit technischen Sende- und Empfangsgeräten, denn jedes organische Gehirn ist ein Sender und Empfänger für feinstoffsinnliche Energien und deren Kräfte sowie Wirkungen. Diese feinstoffsinnlichen elektromagnetischen Schwingungen mit ihren Energien und deren Kräften sind – nebst denen von Tieren und
+vom Getier – milliardenfach von Menschen vorhanden und schwingen durch jeden Raum und durch den
+Äther. Richtet der Mensch seine Wahrnehmung bewusst auf diese fluidalen Schwingungen aus, dann kann
+er sehr viele Informationen empfangen, doch wendet er seine Wahrnehmung davon ab, dann kann er
+nicht mehr wahrnehmen, was im Raum des siebten Sinnes resp. des Empfindungsvermögens an Informationen unbemerkt an ihm vorbeiflitzt, obwohl diese rundum in unendlicher Zahl dauernd vorhanden sind.
+Es sind unzählbare Informationen menschlicher Gehirne (auch tierischer und getierischer), die laufend
+rundum ihre Wirkung tun, was jedoch vom Menschen in seiner zirbeldrüsemässigen Verkümmerung nicht
+wahrgenommen wird, weil er vom rein rationalen Verstand beherrscht wird und das Feinstoffsinnliche verdrängt. Tatsächlich ist im gesamten Universum alles auf Informationen schöpferischer Natur aufgebaut,
+folglich nichts dem sogenannten und nichtexistierenden Zufall und auch keinem Chaos ausgeliefert,
+sondern alles informationsmässig aufgebaut ist, und zwar auch jede Materie. Wahrheitlich hat also alles
+seine durch Informationen bestimmte Ordnung, die sich durch das Gesetz der Kausalität resp. der Ursache
+und Wirkung manifestiert. Gleichermassen tun das auch die Gedanken und Gefühle des Menschen (usw.),
+die sich wie Atome frei in Raum und Zeit bewegen. Aus diesem Grund ist es auch gegeben, dass wenn
+das Gehirn gewisse Teile seiner Wahrnehmungsfähigkeit in bezug auf das Grobstoffsinnliche abschaltet,
+wie z.B. durch Schock, infolge Krankheit, Sterben, Unfall oder schrecklicher Geschehen usw., dann öffnet
+sich die Möglichkeit, dass das Gehirn nunmehr Informationen im feinstoffsinnlichen Bereich wahrnimmt,
+die dann auch ins Bewusstsein dringen und die sonst durch das Grobstoffsinnliche überlagert sind. Es ist
+nicht so, dass zuerst der Faktor ‹Bewusstseinsensor› resp. ‹Bewusstseinfühler› das Gehirn verlassen muss,
+um feinstoffsinnlich aktiv zu werden, denn erst durch das Ausschalten des rationalen Verstandes und das
+Oberhandgewinnen des Feinstoffsinnlichen wird das Bewusstsein aktiv und kann seinen Fühler resp.
+Sensor aussenden, der ausserhalb des Körpers feinstoffsinnliche Wahrnehmungen zu machen vermag.
+Dieser Fühler resp. Sensor des Bewusstseins wird seit alters her als silberner Faden beschrieben, der vom
+
+
+-----
+
+Bewusstsein ausgeht.
+Es müssen ganz bestimmte Voraussetzungen gegeben sein, um das menschliche Gehirn wie einen Sender
+und Empfänger wirken zu lassen. Natürlich ist die materielle Welt unbestreitbar grobstofflich existent und
+real, doch für das Bewusstsein des Menschen stellt sie trotzdem irgendwie eine eigens erschaffene Illusion
+dar. Betrachtet daher ein Mensch eine bestimmte Farbe oder hört er einen bestimmten Ton usw., was er
+gemäss seinen Sinnen als etwas speziell für ihn Definiertes wahrnimmt resp. erachtet, dann kann die
+gleiche Farbe und der gleiche Ton usw. von einem anderen Menschen, von einem Tier oder Getier völlig
+anders wahrgenommen und definiert werden. Was, krass gesagt, für den einen harmonisch wirkt, übt auf
+den anderen eine abstossende Wirkung aus. Gesamthaft gesehen, gilt das auch für jedes einzelne Atom
+und alle Formen, die als subatomare Formen noch bis weit unter der obersten Atomebene existieren.
+Tatsächlich ist nämlich das Atom nicht die kleinste Einheit fester Materie, obwohl es aus 99,9999 Prozent
+Vakuum besteht und der Atomkern selbst im Sinn der Physik nichts mehr ist als ein reines Nichts. Wäre
+es möglich, sämtliche Atomkerne unserer Welt zu einer festen Materie ohne Vakuum zu komprimieren,
+dann wäre die Erde nicht mehr grösser als eine Murmel von etwa der Grösse eines Sperlingeies. Wie dabei die Physik beweist, ändert sich der Zustand des Atoms ständig, weil dieses keine beständige Substanz
+aufweist, denn die Elektronen und Protonen sind in dauerndem Wandel begriffen, folglich sie einmal Teilchen und dann wieder Welle sind. Das aber entspricht keiner festen Materie, sondern nur Informationen,
+Energien und Kraft. Das ist auch der Grund dafür, dass z.B. Quanten gleichzeitig an verschiedenen Orten
+sein können, auch wenn das als unmöglich erscheint. Und Tatsache ist (siehe ‹Existentes Leben im Universum›, erschienen 1978, Seite 189 ff: «Jedes Leben weiss um das Leben des Nächsten», Billy, Wassermannzeit-Verlag, FIGU), dass die unsichtbaren Grundelemente des Universums und alles Leben um die
+Existenz aller anderen weiss und dass diese jenseits von Raum- und Zeitgrenzen untereinander Informationen austauschen. In diesem Sinn steht in ‹Existentes Leben im Universum› folgendes: «Der Mensch
+weiss um die Existenz des Lebens des Nächsten. Er weiss um das Leben des Mitmenschen und der gesamten
+Masse der Menschheit. Also aber weiss er auch um das Leben aller Fauna und Flora und also um das
+Leben der Schöpfung, des Universalbewusstseins selbst. Er weiss aber auch um das Leben der Planeten
+und der Gestirne, der Galaxien und des gesamten Universums sowie um das Leben des Feinstofflichen und
+Grobstofflichen. Dies ist auch dann so, wenn die Begriffsvermögen der verschiedenen Menschen sehr weit
+auseinandergehen und das Verstehen aller Dinge äusserst differiert ist. Nichtsdestoweniger jedoch besteht
+ein Einklang der Menschen im Anerkennen der Existenz des Lebens und aller Dinge überhaupt.
+Wie der Mensch nun jedoch um die Existenz allen Lebens und aller Dinge weiss, so ist dies auch jeglicher
+anderen Lebensform gegeben, und also auch einer jeglichen Zelle einer existierenden Lebensform. Dies
+ist jedoch nicht das Ende des Wissens der Materie um die andere Materie, denn das nämliche Wissen
+um die Existenz und das Leben der anderen Materie und allen Lebens überhaupt ist auch vorhanden in
+jedem kleinsten Elektron und Neutron, in jedem Molekül und in jedem Atom und also in jedem Quark,
+ganz egal, ob es noch grobstofflich oder bereits feinstofflich und sehr weit unter der Quarkebene existent
+ist.
+Wie die Schöpfung selbst als Universum und Universalbewusstsein um die Existenz des Lebens aller Dinge,
+Lebensformen, Elemente, Atome und Moleküle und sonstigen Formen des Lebens in grobstofflicher und
+feinstofflicher Form weiss und sich der Verbundenheit mit allem bewusst ist, so existiert dieses Wissen auch
+in jeglichem Ding, in jeder Lebensform, in jedem Element, in jedem Insekt, Virus und Bazillus, in jedem
+Atom und in jedem Molekül und in allem, was noch viel kleiner ist, sowohl im materiellen als auch im feinstofflichen Bereich.» usw. usf.
+Auch die Gedanken und Gefühle des Menschen bestehen aus Energie und darin enthaltenen Kräften, die
+durch elektromagnetische Schwingungen als Produkt des Bewusstseins ausstrahlen. Die Schwingungsenergien und deren Kräfte bestehen aus winzigen feinstoffsinnlichen resp. fluidalen Informationseinheiten,
+die einzeln und gesamthaft eine Einheit bilden und die – wie der elektrische Strom durch Leitungen – in
+unsichtbarer Form durch das Gehirn und durch den Körper fliessen, um letztlich diesen zu verlassen und
+
+
+-----
+
+in die Umwelt und in den Äther zu gelangen, von wo sie dann von Sensitiven resp. von Menschen aufgenommen werden, die über die Fähigkeit der feinstoffsinnlichen Wahrnehmung verfügen. Stirbt nun ein
+Mensch, dann verliert er im Agoniezustand die Verbindung zum rationalen Verstand, wodurch das Feinstoffsinnliche die Macht gewinnt und elektromagnetisch-energetische Entladungen produziert, die aus
+feinstoffsinnlichen Gedanken und Gefühlen resultieren, die explosionsartig ausstrahlen und von anderen
+Menschen selbst auf grosse Distanz wahrgenommen werden können. In der Regel sind es dabei Menschen,
+die mit der sterbenden Person in enger mentaler Verbindung stehen. Die betreffenden Personen empfangen die Informationseinheiten des sterbenden Menschen durch fluidale resp. feinstoffsinnliche elektromagnetische Schwingungen, die stark feinstofflich energiegeladen sind und als Kraft die Informationen in
+sich bergen. Natürlich spielt dabei die Wellenfrequenz der feinstoffsinnlichen Schwingungen eine massgebende Rolle, wodurch also nicht jeder Mensch die gleiche Wellenfrequenz empfangen kann und nicht
+jeder seine Feinstoffsinne in gleichem Mass auf nahe oder weit entfernte Impulse und Informationen einstellen kann, die auf ihn gerichtet sind. Also muss durch die mentale Verbindung eine gewisse Gleichheit
+der Wellenfrequenz gegeben sein, dass Botschaften von Sterbenden oder sonst von Mitmenschen empfangen werden können, seien es nun Geräusche, Gedanken und Gefühle oder visionäre Bilder usw. Wäre
+dem nicht so, dann würden alle Menschen weltweit gleichzeitig und einheitlich die gleichen Impulse und
+Informationen in unendlicher Zahl aller feinstoffsinnlichen Austrahlungen der ganzen Menschheit auffangen. Das aber würde nicht nur zum Chaos führen, sondern die ganze Menschheit würde irre und verrückt, weil der gesamte Schwall aller Impulse und Informationen nicht zu verkraften wäre. Gleichermassen
+würde es sein, wenn die gesamte Menschheit umfänglich des Gedankenlesens oder gar der reinen Telepathie fähig wäre und keine differenzierten Wellenfrequenzen bestünden, durch die bei einem bestimmten
+Menschen die Gedanken gelesen werden können, oder dass mit einem bestimmten Menschen telepathische
+Kommunikation gepflegt werden kann. Also stellt das einfache Gedankenlesen ebensowenig eine einfache Sache dar, wie auch nicht die eigentliche Telepathie, und zwar ganz gleich, ob letztere in der einfachen Primärtelepathie ruht, die nur 900 000 Kilometer weit reicht, oder ob es sich um die höhere,
+sekundäre oder gar um die Geisttelepathie handelt, durch die grenzenlose Weiten überbrückt werden
+können. Einheitlich stellen alle diese Formen für den sie beherrschenden Menschen oft eine sehr grosse
+Herausforderung dar, und zwar sowohl für das Gehirn und das Bewusstsein als auch für den ganzen
+Körper. Für Menschen, denen die Fähigkeiten des auch nur einfachen Gedankenlesens, der Hellhörigkeit
+oder der Hellsichtigkeit und des Visionssehens, das auch Hellsehen genannt wird, durch extreme Erlebnisse
+und sonstige Ereignisse eigen werden, laufen oft grosse Gefahr für ihren Verstand und die Gesundheit
+des Bewusstseins. Das aber beruht darin, dass daraus sehr oft Angstzustände aller Art und Schattierungen
+entstehen, die nicht mehr bewältigt werden können und folglich zu psychischen sowie zu bewusstseinsmässigen Schäden führen, die bis zur Schizophrenie reichen. Und von Wahnvorstellungen sind sehr viele
+betroffen, die durch prägnante Ereignisse zu Fähigkeiten der Feinstoffsinnlichkeit gelangen, und zwar
+darum, weil sie durch die plötzlich auftretenden feinstoffsinnlichen Fertigkeiten überfordert sind und nicht
+damit umgehen können, wie das gegenteilig der Fall ist, wenn die Fähigkeiten bewusst erlernt werden,
+was am einfachsten über ständige meditative Übungen bewirkt werden kann. Durch prägnante Ereignisse
+enstehen ungewollt auftretende Begabungen feinstoffsinnlicher Art und bringen also oft eine grosse Tragik
+mit sich, denn die fremden Gedanken und Gefühle, wie aber auch die fremden Empfindungen – die nichts
+mit Gefühlen zu tun haben, wie leider irrtümlich allgemein angenommen wird – anderer Menschen,
+bringen für die Betroffenen, die alles feinstoffsinnlich wahrnehmen können, in der Regel schwere bewusstseinsmässige sowie psychische und körperliche Belastungen, denen sie nicht gewachsen sind und durch
+die im wahrsten Sinne des Wortes ihr Leben zur Hölle entbrennt oder dieses gar zerstört wird.
+In bezug auf prägnante Ereignisse kann nicht nur eine Wahrnehmungsfähigkeit der Feinstoffsinnlichkeit
+auftreten, denn nicht selten tritt es auch in Erscheinung, dass durch prägnante Ereignisse, wie schwerer
+Unfall, schwere Krankheit oder Schockerlebnisse usw., statt Feinstoffsinnlichkeit schizophrene Formen auftreten, die oft in religiös-sektiererischen Zuständen fundieren. Tritt ein solcher Zustand auf, dann sind die
+
+
+-----
+
+daraus resultierenden Wahnvorstellungen in der Regel darauf ausgerichtet, dass die Betroffenen imaginäre
+Stimmen hören, Wahnvisionen haben und wahnfühlbar werden und dem Wahnglauben des Erhaltens
+von angeblichen Botschaften von Gott, Jesus, Engeln, Heiligen, Ausserirdischen, Geistern, Toten oder
+Dämonen verfallen.
+Die Feinstoffsinnlichkeit kann für den Laien lebensgefährlich sein oder den Verstand gefährden, weshalb
+auch beim bewussten Erlernen derselben Vorsicht geboten ist und nicht etwas erzwungen werden darf,
+das durch das Bewusstsein sowie durch Verstand und Vernunft nicht verkraftet wird. Und tatsächlich kann
+das Ganze bei unsachgemässer Erarbeitung und Anwendung – oder durch ein prägnantes Ereignis –
+auch dazu führen, dass der Mensch durch seine erarbeitete Fähigkeit zu einer speziell ausgeprägten
+Genialität auf irgendeinem Gebiet gelangt und zum ‹Fachidioten› wird. Solche Menschen sind dann in
+der Regel im täglichen Leben nicht mehr lebensfähig, weil sie sich nicht mehr in das soziale Gefüge einordnen können und sich in diesem endlos verlieren. Sie werden durch die auf sie extrem wirkende Begabung vom alltäglichen Leben überfordert und vermögen es nicht mehr zu meistern.
+Durch entsprechende Meditationsübungen kann bewusst auch die Fähigkeit höchster Empathie resp. die
+feinstoffsinnliche Fähigkeit des Sich-Einempfindens und des Sich-Einfühlens in die Einstellung und in die
+Gefühlswelt sowie in die Empfindungen anderer Menschen erlernt werden. Alles ist nur eine Frage der
+Entwicklung der Feinstoffsinnlichkeit und deren Anwendung und Nutzung. Bei der Empathie spielen die
+über das ganze Gehirn vernetzten Neuronen – von den Neurologen auch Spiegelneuronen genannt –
+eine sehr wichtige Rolle, denn sie sind die massgebenden Faktoren.
+Die feinstoffsinnlichen Schwingungen sowie deren Energien und Kräfte, die vom menschlichen Gehirn ausgestrahlt werden, beeinflussen die Gehirne anderer Menschen, wobei das über Tausende von Kilometern
+Distanz erfolgen kann. Bei der reinen Telepathie kann das bis zu 900 000 Kilometer sein, wie bereits erklärt wurde. Diese Beeinflussung erfolgt aber nicht nur dann, wenn Gedanken und Gefühle – wie z.B.
+beim Sterben, bei Krankheit, Unglück oder schrecklichen Geschehen usw. – in starkem Masse auf eine
+bestimmte Person abgestrahlt werden, sondern es erfolgt eine dauernde Abstrahlung auf die gesamte
+Menschheit, von der unter Umständen welche profitieren können, wenn sie sensitiv genug sind und die
+richtige Wellenfrequenz empfangen können. Im Sinn des Profitierens kann es so z.B. sein, dass ein Mensch
+eine Erfindung macht oder etwas Bestimmtes sagt oder schreibt usw., das dann irgendwo auf der Welt
+von einem anderen Menschen feinstoffsinnlich aufgefangen wird – was jedoch auch durch das kollektive
+Unterbewusstsein möglich ist –, wonach dieser dann dieselbe Erfindung macht oder dasselbe sagt oder
+schreibt usw. Das Ganze in diesem Sinn zustande kommend, beruht auf einer Synchronisation, weshalb
+diesbezüglich von einer sinnvollen Übereinstimmung zwischen Ahnung und Erlebnis gesprochen wird,
+was auch als synchronistisches Ereignis bezeichnet wird. Tatsächlich schlummern aber noch viele andere
+Möglichkeiten und Neigungen im Menschen, die er sich nutzbar machen kann, wenn er sich nur bewusst
+und meditativ darum bemüht. Manche dieser Optionen ruft der Mensch bewusst oder unbewusst ab,
+während andere jedoch brachliegen und nicht genutzt werden. Beim einen Menschen treten diese Möglichkeiten und Neigungen sehr stark in Erscheinung, während sie beim anderen unterdrückt werden oder
+für ihn einfach nicht wahrnehmbar sind. Das gilt auch für die Möglichkeit und Neigung, für das Feinstoffsinnliche empfänglich zu sein.
+Erst wenn das Grobstoffsinnliche abgeschaltet wird und damit jene bestimmten Hirnareale einfach für eine
+gewisse Spanne ausser Funktion gesetzt werden, die für die grobstoffsinnliche Wahrnehmung zuständig
+sind, kann auf die Bereiche des Feinstoffsinnlichen gegriffen werden, um diese bewusst zu nutzen. Klar
+muss dabei aber auch sein, dass spezielle Partien des Gehirns alle grob- und feinstoffsinnlichen Sinneseindrücke speichern, während in bezug auf das Kleinhirn, das unter anderem auch die Motorik des
+Körpers steuert, eine Art Zensur zwischen dem Bewusstsein und dem Unterbewusstsein durchführt, was
+bedeutet, dass das Kleinhirn nur bestimmte und zensurierte Informationen aus dem Unterbewusstsein ins
+Bewusstsein durchlässt, wodurch eine Überforderung desselben sowie des Gehirns allgemein verhindert
+wird. Dadurch wird einerseits das willkürliche Handeln des Menschen eingeschränkt, weil der Zensor des
+
+
+-----
+
+Kleinhirns dies verhindert, wenn es Informationen aus dem Unterbewusstsein aufarbeitet und ans Bewusstsein weiterleitet. Andererseits wird dadurch der Prozess gewährleistet, dass der Mensch durch seine Intuition Nutzen ziehen und also intuitiv handeln kann.
+Tritt die Feinstoffsinnlichkeit durch prägnante Ereignisse in Erscheinung, dann geschieht das auf einem
+nicht normal zu nennenden Vorgang und Weg, denn es erfolgt eine neuronale Schaltung, die ‹künstlich›
+herbeigeführt wird, z.B. durch einen schweren Unfall oder durch schwere Krankheit oder Schockwirkung
+usw.
+Bezüglich des einfachen Gedankenlesens ist zu verstehen, dass dieses noch nichts mit der reinen primären
+oder sekundären resp. höheren Telepathie oder gar mit der Geisttelepathie zu tun hat, wobei letztere nur
+bei einer hohen Bewusstseinsevolution möglich ist. Selbst das einfache Gedankenlesen ist durch die Verkümmerung der Wahrnehmungsfähigkeit in bezug auf die Feinstoffsinnlichkeit für den Menschen der Erde
+keine Selbstverständlichkeit mehr, sondern nur noch eine Ausnahme von der Regel, folglich nur wenige
+in einfacher und primärer Form die Gedanken anderer lesen resp. wahrnehmen können. Die mit den
+Gedanken verbundenen Gefühle werden dabei beim einfachen Gedankenlesen völlig ausser acht gelassen
+resp. überhaupt nicht wahrgenommen, denn um auch diese wahrnehmen zu können, bedarf es auch der
+Fähigkeit der feinstoffsinnlichen Empathie. Tatsache ist aber, dass, wenn die Fähigkeit des einfachen
+Gedankenlesens zustande gekommen ist, der Mensch auf ihn gerichtete gedankliche Informationen über
+grosse Entfernungen hinweg auffangen resp. wahrnehmen kann. Da aber nicht alle Menschen der feinstoffsinnlichen Wahrnehmung fähig sind, spüren nicht alle, wenn z.B. ein Mensch stirbt, in Gefahr ist oder
+sich selbst in Gefahr begibt. Tatsächlich aber liegt es in der Natur des menschlichen Gehirns, Gedanken
+auszusenden und Gedanken zu empfangen, und so also die Fähigkeit des Gedankenlesens zu haben,
+wenn sie entwickelt wird. Gleichermassen gilt das für die primäre und die reine sekundäre Telepathie.
+Dass nun aber nicht alle Menschen gleichsam die Fähigkeit des Gedankenlesens haben – die Telepathieformen sind dabei ausgeschlossen, denn für diese reine Fähigkeit ist der Mensch der Erde noch nicht
+fähig –, liegt daran, weil durch den ausgeprägten rationalen Verstand das Gehirn gegen diese Fähigkeit
+arbeitet. In dieser rationalen Verstandeshaltung ist aber auch ein Selbstschutz eingebaut, wie bereits in
+anderer Form erklärt wurde. Wäre dieser Selbstschutz nicht gegeben, der das unkontrollierte Eindringen
+von fremden Empfindungen, Gedanken- und Gefühlsschwingungen verhindert und der bei genügender
+Beherrschung des feinstoffsinnlichen Bereiches und damit auch des Gedankenlesens nach Bedarf gesteuert
+und geöffnet werden kann, dann wäre das Gehirn ununterbrochen einer ungeheuren Flut von fremden
+empfindungs-, gedanken- und gefühlsmässigen Reizen ausgesetzt, die nicht verkraftet werden könnten
+und zwangsläufig zum Wahnsinn führen würden. Um das jedoch zu verhindern, weil sich der Mensch
+der Erde eben dem reinen rationalen Verstand zugewandt hat, hat das Gehirn in Laufe der Evolution
+gelernt, alles zu organisieren und zu selektieren. Grundsätzlich ist dazu zu sagen, dass das Ganze des
+Ganzen das Bewusstsein ist, das nach einem strukturierten System und gemäss einer bestimmten Rangordnung arbeitet. Das Bewusstsein und dessen Evolutionsstand ist also der Hauptfaktor des Gesamten,
+und dieses würde in all seinen Funktionen gestört, wenn es sich bewusst in bezug auf seine Funktion,
+Fähigkeiten und Möglichkeiten dem vermeintlich Unlogischen zuwenden und sich permanenten Reizen
+resp. fluidalen, feinstoffsinnlichen Schwingungen fremder Empfindungen, Gedanken und Gefühle aussetzen würde. Dadurch würden sowohl das Bewusstsein selbst als auch all seine Formen, Strukturen und
+die ganze Rangordnung geschwächt. Dass das aber nicht geschehen kann, hat das Gehirn im Laufe der
+Evolution ein Schutzsystem entwickelt, durch das das Gehirn von unkontrollierbaren äussern Reizen resp.
+feinstoffsinnlichen Einflüssen geschützt wird. Wäre dieses Schutzsystem nicht gegeben, dann würde der
+Mensch in einen endlosen Abgrund widersprüchlicher Informationen stürzen und, wie gesagt, dem Wahnsinn verfallen.
+
+Letztlich kommt noch das Träumen ins Spiel, das Einlass in das Feinstoffsinnliche gewährt, wenn irgendwelche Informationen aus diesem Bereich ins Bewusstsein gelangen. Dadurch öffnet der Traum dem
+
+
+-----
+
+Menschen eine Welt, die er in seinem rationalen Verstand nicht wahrnehmen kann, wenn er sich nicht die
+Fähigkeit erschafft, in die Gefilde seiner Feinstoffsinnlichkeit einzudringen und sich deren Fähigkeiten
+bewusst und kontrolliert nutzbar zu machen. Durch die Welt des Träumens werden alle physikalischen
+sowie räumlich-zeitlichen Gesetze ausser Kraft gesetzt, wodurch Dinge wahrgenommen und verstanden
+werden können, die der Wahrnehmung des rein rationalen Verstandes zumindest im Wachzustand verborgen bleiben. Und Tatsache ist, je gefestigter die Identität eines Menschen ist, desto stabiler wird sein
+Psychezustand, folglich er sich von anderen Psychezuständen abgrenzt und diesbezüglich praktisch unangreifbar wird. Genau das ist aber eine Bedingung, wenn ganz bewusst die Fähigkeiten des Feinstoffsinnlichen erarbeitet werden sollen, denn eine psychische Belastung hätte verheerende Folgen. Also
+bedingen die bewusst erarbeiteten Fähigkeiten des Feinstoffsinnlichen eine gesunde und starke Psyche,
+was genau bei jenen Menschen nicht gegeben ist, die durch prägnante Ereignisse zur Wahrnehmung des
+Feinstoffsinnlichen gelangen, denn durch ihre verunglückt erworbenen Fähigkeiten des Feinstoffsinnlichen
+werden sie in der Regel gedanklich-gefühlsmässig und damit auch psychisch labil, weil sie das Ganze
+nicht zu verkraften vermögen. Das aber führt dazu, dass die feinstoffsinnlichen Fähigkeiten, wie Gedankenlesen und Empathie, stärker werden und letztlich überhandnehmen können, wodurch oft schizophrene
+Auswirkungen und Aussonderungen aus dem gesellschaftlichen Gefüge entstehen. Und zu sagen ist noch,
+dass natürlich nicht alle prägnanten Ereignisse dazu führen, dass die Betroffenen der Wahrnehmung feinstoffsinnlicher Fähigkeiten trächtig werden, denn nicht das traumatische Erlebnis oder Ereignis selbst bildet
+den eigentlichen Faktor dafür, sondern grundlegend der Zustand der Psyche, der durch das Bewusstsein
+via die Gedanken- und Gefühlswelt geformt wird. Je stabiler der Psychezustand geformt ist, desto weniger
+besteht die Gefahr, dass eine schadhafte Fähigkeit der feinstoffsinnlichen Wahrnehmung erfolgen kann,
+und zwar ganz gleich, welcher Art ein traumatisches Erlebnis oder Ereignis auch immer sein mag. Also
+ist es beim bewussten und willentlichen Erlernen der Wahrnehmung des Feinstoffsinnlichen und der
+Nutzung desselben unabdingbar notwendig, dass sowohl die gesamte Bewusstseinswelt als auch die Welt
+der Gedanken und Gefühle sowie der Psyche in einwandfreiem Zustand sind, ansonsten Gefahren in
+bezug auf Verwirrung usw. heraufbeschworen werden, die nicht übersehen und nicht verhütet werden
+können.
+Billy
+
+
+-----
+
+### VORTRÄGE 2007
+Auch im Jahr 2007 halten Referenten der FIGU wieder Geisteslehre-Vorträge usw. Nachfolgend die Daten
+für die stattfindenden Vorträge:
+
+### Achtung: Wichtige Änderung!
+Die Vorträge werden ab Juni 2007 im Saal des Centers durchgeführt.
+
+**25. August 2007**
+Karin Wallén **Liebe**
+
+Christian Krukowski **Menschheitsgeschichte VIII**
+
+**27. Oktober 2007**
+Guido Moosbrugger **Menschliche Geistform II**
+**Was sind Elementarteilchen?**
+
+Pius Keller **Schön, wie die Natur arbeitet**
+
+Pünktlicher Vortragsbeginn um 14.00 Uhr.
+
+Eintritt: CHF 7.– (Eintritts-Ermässigung für FIGU-Mitglieder bei Vorweisen eines gültigen Ausweises.)
+
+An den Vortrags-Samstagen trifft sich im Semjase-Silver-Star-Center um 19.00 Uhr eine Studiengruppe,
+zu der alle interessierten Passiv-Mitglieder herzlich eingeladen sind.
+
+**IMPRESSUM**
+**FIGU-Bulletin**
+**Druck und Verlag: Wassermannzeit-Verlag, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+**Redaktion: ‹Billy› Eduard Albert Meier, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+**Abonnemente:**
+Erscheint unregelmässig; Preis pro Einzelnummer: CHF 2.– (Zusammen mit einem Abonnement der ‹Stimme der Wassermannzeit› oder der ‹Geisteslehre-Briefe› als Gratis-Beilage.)
+**Postcheck-Konto: FIGU-CH-8495 Schmidrüti, PC 80-13703-3**
+**E-Mail: info@figu.org**
+**Internet: www.figu.org**
+**FIGU-Shop: http://shop.figu.org**
+
+
+-----
+

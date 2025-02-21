@@ -1,0 +1,199 @@
+# Die angesagten Lockerungen weltweit führen zu einer neuen Welle von
+ Corona-Virus-Infektionen sowie zu vielen Corona-Toten.
+
+## Auszug aus dem 742. Kontakt vom 13. Juni 2020
+
+**Ptaah** Was ich zu sagen habe ist folgendes: Wir haben bezüglich der Corona-Seuche für die nächsten Monate
+
+verschiedene Vorausschauen durchgeführt und dabei Erschreckendes erkannt, worüber ich noch einiges zu
+erklären habe, was auch für euch alle von Bedeutung und Wichtigkeit ist. Wie ich schon vor drei Wochen erklärte,
+so sollt ihr weiterhin in der Weise an den Sicherheitmassnahmen festhalten wie ich sie euch empfohlen habe,
+denn die kommenden Monate erfordern dies ganz besonders. Also sollt ihr alle – womit ich alle FIGU-Mitglieder,
+KG-Mitglieder und Passiv-Mitglieder, FIGU-Freundschaftlichen und alle jene Personen weltweit anspreche, die
+ausserhalb der FIGU stehen, jedoch unsere Ratgebungen auf eurer Webseite lesen und sie willig befolgen – in
+den kommenden Monaten nicht von den von uns genannten Sicherheitsmassnahmen abweichen. Dies betrifft
+einerseits besonders das Tragen von geeigneten Schutzmasken der Form FFP2, die das Atmungsorgan und den
+Mund bedecken müssen, wenn ein <in den näheren Bereich kommen> von hausfremden Personen unvermeidlich ist. Anderseits soll die Notpflicht beachtet werden, dass unbedingt ein Abstand von mindestens 2 Metern zu
+hausfremden Personen eingehalten und eine Schutzmaske getragen wird, und zwar insbesondere dann, wenn
+Gespräche geführt werden.
+
+**Billy** Das ist das, was du uns ja bereits empfohlen hast und was wir auch einhalten, und zwar so lange, wie
+
+du uns auch immer empfiehlst. Dass du nun aber deine diesbezüglichen Ratgebungen nochmals unterbreitest,
+das muss wohl einen besonderen Grund haben, denke ich. Wenn du …
+
+…
+
+**Ptaah** … Doch jetzt, Eduard, will ich trotz unseres letzthin Gesagten, dass wir nicht weiter über die Corona
+Seuche reden wollen, nochmals abschliessend einiges erwähnen, was meines Erachtens notwendig zu erklären
+ist. Danach soll es dann so sein, dass wir uns wirklich nicht mehr mit diesem leidigen Thema befassen, denn wie
+wir immer wieder feststellen, herrscht beim Gros der Staatsführenden und Kommunalverwaltenden sowie
+ebenfalls beim Gros der vermeintlichen medizinischen Fachkräfte eine derartige Borniertheit und Dummheit
+gegenüber Verstand und Vernunft vor, dass ein wirklich sachgemässes verantwortungsvolles Handeln nicht
+zustande kommen kann. Gleichermassen gilt das für das Gros aller Bevölkerungen aller Länder weltweit, wie dies
+die verantwortungslosen Demonstrationen sowie das leichtsinnige allgemeine sicherheitsgegenteilige Benehmen beweist. Besonders geht dies aus dem Nichteinhalten des Maskentragens und des Abstandhalten hervor,
+wie auch aus der Reisetätigkeit und dem Urlaubsverhalten, der kümmerungslosen Festlichkeiten mit überbordendem Alkoholgenuss, wie auch der haltlosen schändlichen Prostitution.
+
+**Billy** Okay, ich kann dein Aufgebrachtsein verstehen, weshalb es auch aus dieser Sicht wohl richtig ist, wenn
+
+du nochmals einiges sagst, eben was du findest, dass es notwendig sei.
+
+**Ptaah** Die Meinung meiner Bemerkung ist die: … Was ich nun aber zu erklären habe, das bezieht sich darauf,
+
+dass die durch die Staatsführenden, Kommunalämter, Virologen und sonstigen Befürworter der schon seit
+Wochen angesagten Lockerungen der Ausgangssperren und des Aufhebens der Pflicht des Schutzmaskentragens
+weltweit zu einer neuen Welle von Corona-Virus-Infektionen sowie zu vielen Corona-Toten führen wird. Wie ich
+aber schon früher erklärte, handelt es sich nicht um eine zweite Welle, wie irrtümlich angenommen wird,
+sondern um eine weitere Steigerung des immer noch laufenden Ausbruchs und Aufkommens der Corona-Seuche.
+Und dies geschieht infolge der unverzeihlichen Dummheit der Staatsführenden und Kommunalämter, die in
+unverantwortlicher Weise propagieren und zulassen, dass die auch nur halbwegs guten und wirksamen Verordnungen und Vorkehrungen zur Sicherheit der Menschen wieder aufgehoben werden. Auch ist es unverzeihlich, dass die Bevölkerungen nicht über die öffentlichen Informationsorgane nach bestem Wissen und Verstehen
+hinsichtlich der Corona-Seuche über alles aufgeklärt werden, wie z.B. über die Wichtigkeit, dass das Corona-Virus
+vor allem über Exspirationströpfchen resp. Aerosole verbreitet wird und eine Infizierung verursacht, und zwar in
+der Regel durch Anhusten oder einen Körperkontakt. In dieser Weise kann sich das Virus sehr schnell ausbreiten,
+und zwar insbesondere dann, wenn sich Personen in Gruppen oder Massen zusammenfinden. Bei solchen
+Gruppierungen werden üblicherweise auch vielerlei Gegenstände ins gefährliche Spiel gebracht, an deren Oberflächen sich Speichel-, Nasenschleim-, Schmier- und Handschweissablagerungen usw. festsetzen, die dann mit
+Corona-Viren kontaminiert werden, wenn die Ablagerungen von Corona-Infizierten stammen. Über diese Ab
+
+-----
+
+lagerungen auf den Oberflächen solcher Gegenstände werden dann die Corona-Viren weiterverbreitet, folglich
+neue Infizierungen daraus hervorgehen, wenn Berührungen mit den Corona-Erregern stattfinden.
+Ist es der Fall, dass solche Ablagerungen auf den Oberflächen von Gegenständen stattfinden, dann vermögen die
+Corona-Viren, wie unsere Forschungen ausweisen, je nach Material und Oberfläche der Gegenstände sowie der
+Umgebung, Witterung und Temperatur bis zu 3 Tagen und gar bis zu 96 Stunden zu überstehen, ehe sie erlahmen, ihre Aktivität verlieren und wirkungslos werden. Absterben können Viren nicht, weil sie keinen Lebewesen entsprechen, sondern organischen Strukturen, die nicht getötet werden können. Dass dabei die Intensität
+bezüglich der Infektiösität schon nach wenigen Stunden sich abschwächt und stetig schwächer wird, das ändert
+nichts an der Gefahr einer Infizierungsaktivität, denn diese geht auch bei einer laufenden Schwächung des Virus
+weiter.
+
+Das Corona-Virus ist höchst gefährlich und lässt keine Nachlässigkeit zu, denn es ist höchst ansteckend, wodurch
+viele Menschen auch an Infizierungen sterben, und zwar auch dann, wenn die meisten, die daran erkranken,
+nicht schwer betroffen werden, sondern wieder genesen. Viele weisen nur milde und grippeähnliche Symptome
+auf, während andere überhaupt keine Anzeichen einer Infektion aufzeigen, jedoch trotzdem vom Virus befallen
+sind und u.U. die Seuche auch weitertragen können.
+Was durch das Virus im menschlichen Organismus hinterlassen werden kann, sei es nach einer Genesung oder
+bei einem Infektionszustand, bei dem keine Infizierung festgestellt werden kann, so können sich dadurch unbemerkbare Langzeitschäden bilden und erhalten, die sich im Lauf der Zeit zu langwierigen und neuartigen Leiden
+und Krankheiten ausbilden können, auch diverse Krebsarten, Körper- und Genitaldeformationen, deren Ursache
+nicht eruierbar sein wird.
+Jeder durch das Corona-Virus infizierte Mensch ist in der Regel ein Überträger der Seuche, wobei es infolge der
+Verschiedenheit der Immunsysteme zwischen dem männlichen und weiblichen Geschlecht besonders auf
+dasjenige der männlichen Spezies übergreift. Dies entspricht einem Faktor, der den irdischen Medizinern und
+dementsprechenden Wissenschaften noch völlig unbekannt ist, wie auch die Tatsache, die ich schon bei einem
+früheren Gespräch nannte, dass Immununterschiede zwischen verschiedenen Völkern vorherrschen.
+Nebst der Verschiedenheit der Immunsysteme zwischen dem männlichen und weiblichen Geschlecht sowie den
+verschiedenen Völkern, ist auch der Energie- und Kraftzustand resp. die Stärke des Immunsystemzustands und
+damit auch dessen Rekonvaleszenzfähigkeit von Wichtigkeit. Diese Werte bestimmen über die Möglichkeit einer
+Infizierung oder nicht, wie auch über deren Verlauf und die Rehabilitation oder das Versagen des Organismus.
+
+Das Corona-Virus greift besonders auf vorbelastete und energiegeschwächte Immunsysteme zu und damit auf
+Menschen, die in irgendeiner Weise mehr oder weniger gesundheitsgeschädigt sind und deshalb eine besonders
+aktuelle Angriffsfläche und Infizierungsmöglichkeit für das Corona-Virus bilden. Solche Menschen sind also
+besonders gefährdet und weisen ein deutlich höheres Risiko auf als gesundheitlich unbelastete Personen, folglich
+sie auch schwer erkranken und u.U. sterben. Es ist dabei jedoch irrig anzunehmen, dass nur ältere Menschen
+oder solche mit Vorerkrankungen oder einer Immunschwäche vom Corona-Virus befallen würden, denn grundlegend können auch Kinder, wie ich schon mehrfach bei Gesprächen erwähnte, durch das Virus infiziert und krank
+werden und gar daran sterben. Dies nebst dem, dass auch Menschen jeden Alters aus verschiedenen Gründen
+befallen werden können, wie z.B. infolge Erschöpfung, Mangel an Vitaminen, Mineralstoffen und Spurenelementen. Auch die verminderte Selbstregulationskompetenz, wie auch effective psychische Störungen und Ängste
+führen zur Anfälligkeit durch das Corona-Virus, wie auch eine Eisenmangelanämie infolge Vegetarismus und
+Veganismus, weil Fleischprodukte gemieden werden, vor allem dunkles Fleisch, Blutwurst, Rinderfilet und Leber,
+wobei deren Eisenstoffe besser vom Körper aufgenommen werden als von eisenhaltigem Gemüse.
+
+Vorsicht bezüglich Infektionsgefahr ist bei längeren Aufenthalten in geschlossenen Räumen geboten, wenn sich
+u.U. Infizierte darin aufhalten. Auch der Umgang mit Personen im Freien kann Infektionsgefahr bedeuten, wenn
+die notwendige Abstandhaltung von 2 Metern und u.U. die Notwendigkeit des Tragens einer Schutzmaske nicht
+eingehalten wird. Auch bei Freizeitsport jeder Art sollen grössere Abstände zu anderen Personen eingehalten
+werden.
+
+Bereits ein Abstand von mindestens 1,5 Meter kann das Ansteckungsrisiko verringern, wobei jedoch auch auf
+diese Distanz je nach Fall eine Ansteckung durch infizierte Personen möglich ist, folglich ein guter Sicherheitsabstand von 2 Metern zuverlässiger ist. Dieser Abstand ist jedoch nicht nur in Räumlichkeiten, sondern auch im
+Freien wichtig, wenn nicht eine gewisse Sicherheit besteht, dass Gegenüber-Personen nicht infiziert sind. Im
+Freien ist auch die Windrichtung zu beachten, denn durch den Wind werden die Exspirationströpfchen resp.
+Aerosole von infizierten Personen bis zu 10 oder 15 und mehr Meter weit getragen und können daher auch auf
+grössere Distanz von anderen Menschen eingeatmet und diese angesteckt werden. Wenn jedoch auch im Freien
+
+
+-----
+
+oder in luftigen Räumen Atemschutzmasken getragen werden, dann kann eine Ansteckung weitgehend bis vollständig verhindert werden.
+
+Wie ich schon früher erklärte, können auch Klima- und Umluftanlagen die Viruspartikel weiträumig verteilen, wie
+auch diverse offene resp. aufgeschnittene Nahrungsmittel Virusherde sein können, insbesondere aufgeschnittenes Fleisch, wodurch das Virus weiterverbreitet werden kann.
+Wenn Masken getragen werden, dann verteilen sich die Aerosole in der Regel meist nicht weit weg, doch bei
+Wind werden sie mehr verteilt, wodurch auch das Ansteckungsrisiko steigt, folglich dieses also auch dann nicht
+sinkt, wenn Schutzmasken getragen werden.
+
+Auch ein regelmässiges Händewaschen und die Körperhygiene zählen zu den persönlichen Schutzmassnahmen,
+wie ich schon früher erklärt habe, wie auch bei Zweckmässigkeit das Tragen geeigneter Handschuhe sehr nützlich
+sein kann.
+
+Wenn typische Corona-Symptome auftreten, dann sollte ein Corona-Test und ein eigens verhängter Hausarrest
+erfolgen, dies insbesondere dann, wenn sich stärkere Beschwerden wie Atemnot usw. ergeben. Zu Beginn der
+Infektion ergibt sich, dass sich das Virus im Mund- und Nasenrachenraum vervielfältigt, und wenn davon ein Abstrich gemacht wird und im Labor eine Untersuchung erfolgt, indem in der Probe nach dem genetischen Material
+des Virus gesucht und dieses festgestellt wird, dann ergibt sich auch ein sicheres Resultat, denn ein solcher Test
+weist in der Regel eine hohe Treffsicherheit in bezug auf das neue Corona-Virus auf. Auch Antikörpertests sind
+notwendig, um nachweisen zu können, ob ein Mensch bereits von der Corona-Seuche befallen war oder nicht,
+wie auch, ob er eine gewisse Immunität gegen das Virus entwickelt hat oder nicht, wobei diese je nach Fall jedoch
+nur kurzzeitig, wie aber auch längerfristig sein kann, wobei keine sogenannte Herdenimmunität zu erwarten sein
+wird. Auch ein Antikörpernachweis bedeutet nicht eine endgültige Heilung oder Immunität, denn die Antikörper
+dieses Virus können schnell wieder absinken, sich abschwächen und sich u.U. wieder völlig auflösen.
+
+Menschen, die vom Corona-Virus befallen werden, fühlen sich einige Zeit unpässlich und schlapp, während
+andere keine Symptome spüren, jedoch trotzdem andere Personen anstecken können, wobei sich auch bei diesen Personen nach ca. 10 Tagen in ihrem Blut Antikörper nachweisen lassen. Eine gewisse Gruppe von Menschen
+kann je nachdem jedoch auf unbestimmte Zeit hin infektiös bleiben, während andere infektiöslos bleiben.
+
+Eine Corona-Virus-Infektion erzeugt, wenn sie akut ausbricht, grippeähnliche Symptome, weshalb oft irrtümlich
+eine Erkältung und Grippeerkrankung angenommen wird, was aber unheilvolle Folgen mit sich bringen kann.
+Etwa die Hälfte infizierter Menschen verfallen dem Husten, andere starken oder weniger starken Fieberschüben
+oder auch Schnupfen, wobei aber das Gros infizierter Menschen die Corona-Virus-Seuche gut übersteht und
+ohne grosse Komplikationen genesen kann. Das bedeutet und gewährleistet jedoch nicht, dass sich nicht diverse
+Formen von Langzeitschäden ergeben, die lebenszeitig anhalten und unerwartete Übel mit sich bringen können,
+wie auch der irdischen Medizinwissenschaft bisher noch unbekannte, nicht feststellbare und aktivbleibende
+Corona-Impuls-Ablagerungen, die jederzeit ihre beständige Aktivität wieder hochtreiben und die Seuche weiterführen können. Dabei handelt es sich jedoch nicht um eine Reaktivierung der Infektion, sondern um eine bisher
+für die irdische Medizinwissenschaft noch nicht bekannte und nicht feststellbare akute Impuls-Weiterbestehung
+der Corona-Infektion.
+
+Hat ein Kontakt mit einer infizierten Person stattgefunden, dann sollte umgehend ein Corona-Test gemacht und
+für sich selbst für mindestens 30 Tage eine freiwillige Absonderung von anderen Menschen erfolgen, weil die
+Inkubationszeit resp. die Zeit zwischen der Ansteckung und dem Ausbrechen der Seuche u.U. länger dauern kann,
+als infolge Unwissenheit der Fachkräfte allgemein angenommen wird. Zwar kann, wie schon erklärt, kurz nach
+einer Infizierung das Virus bereits weitergetragen werden, doch die Inkubationszeit des Virus kann viel länger
+andauern, ehe die ersten Symptome auftreten.
+
+Das ist einmal das, was ich noch zu sagen hatte bezüglich der Corona-Seuche, doch gehört dazu noch einiges
+andere. So dumm, wie die Staatsführenden und Kommunalbeamten bestimmen und handeln und dadurch den
+Bevölkerungen ein böses und todbringendes Vorbild vormachen, so übernimmt deren Gros diese falschen
+Bestimmungen und Handlungsweisen gleichermassen für sich selbst, wodurch nunmehr das kommende Unheil
+nicht mehr aufgehalten werden kann. Und davon werden auch jene Länder und Bevölkerungen betroffen
+werden, die infolge des bisherigen halbwegs Einhaltens der Sicherheitsvorkehrungen noch weitgehend glimpflich
+davongekommen sind, wie die Schweiz und Deutschland. Das jedoch wird sich schon bald ändern, weil das Unheil
+
+
+-----
+
+seinen Lauf nehmen und nur stoppen wird, wenn wieder hart durchgreifende Massnahmen ergriffen und strikte
+eingehalten werden.
+Die Infizierungen und Todesfälle hinsichtlich der weiterhin grassierenden Corona-Seuche werden weltweit ungehemmt weitergehen und sich nun auch schnell wieder steigern und damit den noch nicht beendeten und immer
+noch fortlaufenden Erstausbruch der Seuche fortsetzen. Auch Länder, in denen sich hinsichtlich der Seuche alles
+etwas normalisiert und gelegt hat, werden wieder neu davon befallen werden, wobei der internationale Handel
+und Warentransport ebenso dazu beiträgt, wie auch der vernunftlose und verantwortungslose Tourismus und
+die Urlaubsunvernunft der Erdenmenschen. Dabei ist auch zu bedenken, dass dazu auch die unsinnige Tatsache
+des verantwortungslosen Aufhebens und Beendens der Sicherheitsvorkehrungen beiträgt.
+Auf den nun zulaufenden Höhepunkt der Corona-Seuche, der sich nun anbahnt und sich dann zweifellos auch
+erfüllt, wird dann, was die Regel bei solchen oder anderen Seuchen ist, eine zweite Welle folgen, wie ich bereits
+sagte, die zeitgenau noch nicht zu bestimmen ist, jedoch schon zur Herbstzeit oder Winterzeit oder gar erst
+nächstes Jahr ausbrechen kann.
+
+Unsere früheren Berechnungen, dass sich bis Mitte Jahr eine Anzahl von 8 Millionen Infizierungen durch das
+Virus ergeben würden, ändern sich bereits zum zweiten Mal, und zwar infolge der Dummheit und Unvernunft
+der Staats- und Kommunalverantwortlichen, die nunmehr nahezu weltweit grossteils die Schutzverordnungen
+in bezug auf Ausgehverbote und das Schutzmaskentragen aufheben und ebenso als beendet erklären, wie
+auch andere Verordnungen. Dies entspricht nicht nur einer Unbedachtheit, Dummheit und Unlogik, sondern
+einer absoluten Verantwortungslosigkeit, die abermals Hunderttausende von Infizierungen fordern wird, die
+nunmehr bis Ende Monat Juni hoch über die Anzahl von 10 Millionen ansteigen werden. Dementsprechend
+werden sich weltweit auch die Corona-Todesfälle stark mehren, wie auch Infizierungen von Neugeburten und
+Kindern, weil die Frucht bereits im Mutterleib infiziert werden wird. Auch werden vermehrt Infektionen
+entstehen, besonders auch bei Kindern, ohne dass diese medizinisch-virologisch nachgewiesen werden
+können, wobei aber trotzdem ein Infekt weitergetragen werden kann, und zwar schon Sekunden nach einer
+neuen Infizierung.
+
+
+-----
+

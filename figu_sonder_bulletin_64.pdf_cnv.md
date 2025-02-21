@@ -1,0 +1,832 @@
+# FIGU- SONDER-BULLETIN
+
+##### Erscheinungsweise: Internet: http://www.figu.org 17. Jahrgang Sporadisch E-Mail: info@figu.org Nr.64, Nov. 2011
+
+### FIGU Society USA aufgelöst
+
+An der Generalversammlung vom 6. August 2011 beschloss die Kerngruppe der 49 im Semjase-SilverStar-Center, die FIGU-Landesgruppe USA bzw. FIGU Society USA aufzulösen. Ausschlaggebend war die
+Tatsache, dass die Mitglieder der Landesgruppe in den letzten neun Jahren nicht fähig waren, eine gemäss
+FIGU-Standard funktionierende Gemeinschaft aufzubauen. Es ist sehr bedauerlich festzustellen, dass es
+den Menschen in den USA in den vergangenen 35 Jahren nicht gelungen ist, in Erkennung der eigenen
+Verantwortung erfolgreich kleinere oder grössere Gruppen aufzubauen, um dadurch in der Verbreitung
+der Geisteslehre Fortschritte zu erzielen.
+
+Dieser Beschluss beinhaltet, dass in den USA bis auf weiteres kein Zusammenschluss von FIGU-Passiv mitgliedern den offiziellen Status als FIGU-Studien- oder Landesgruppe erhalten wird.
+Es liegt nun an den Passivmitgliedern und weiteren an der Verbreitung der Wahrheit interessierten Personen,
+ob sie ihre Selbstverantwortung und Eigenpflicht usw. wahrnehmen und sich in den USA zu Gruppen zusammenschliessen und aktiv werden wollen. Klar ist, dass sie dabei von der Kerngruppe der 49 keine
+Unterstützung erhalten werden und sich alles ohne externe Hilfe zu erarbeiten haben.
+Sollte sich in einigen Jahren herausstellen, dass in den USA eine oder mehrere Gruppen bestehen, in denen
+FIGU-Passivmitglieder beharrlich, motiviert, verlässlich, zivilisiert und in gegenseitiger Achtung und Wertschätzung usw. zusammenarbeiten und echte Fortschritte erzielen, dann besteht die Möglichkeit einer
+erneuten Gewährung des Status als offizielle FIGU-Landes- oder Studiengruppe.
+
+Selbstverständlich bleiben die US-amerikanischen FIGU-Passivmitglieder allen anderen FIGU-Passivmitgliedern in den übrigen Ländern bezüglich Rechte und Pflichten gleichgestellt und geschätzt.
+Christian Frehner, Schweiz
+
+### FIGU Society USA dissolved
+
+On August 6, 2011, during its General Meeting, the Kerngruppe der 49 (Core group of 49) at the SemjaseSilver-Star-Center has decided to dissolve FIGU-Landesgruppe USA or FIGU Society USA, respectively. The
+decisive factor was the fact that the members of the national group were not capable to build – during the
+last nine years – a community functioning according to FIGU's standards. It is very unfortunate to realize
+that the people in the USA – during the last 35 years – have not recognized their own responsibility to
+build smaller or larger groups, in order to achieve good progress in spreading the spiritual teaching.
+The decision also means that for the time being no group of FIGU Passive Members will receive the status
+of an official FIGU-Studiengruppe or Landesgruppe (Study or National Group) in the USA.
+
+
+-----
+
+It's now entirely up to the Passive Members – and further persons interested in spreading the truth – whether
+they want to accept their self-responsibility and self-duty etc. and unite as groups in the USA and become
+active. And they will have to achieve everything without the external assistence of the Kerngruppe der 49.
+
+If it should turn out in a few years that – in the USA – one or more groups exist in which FIGU Passive
+Members are persistently working together in a motivated, reliable, civilized way and in mutual esteem
+and respect etc. and are achieving real progress, then there remains the possibility that the official status
+of a FIGU-Landesgruppe or Studiengruppe may be granted again.
+
+It goes without saying that all U.S. American FIGU Passive Members will continue to have equal rights and
+duties as all other FIGU Passive Members in other countries, and they will be held in equal esteem, too.
+Christian Frehner, Switzerland
+
+## Auszug aus dem 526. offiziellen Kontaktbericht vom Samstag, den 27. August 2011
+
+Billy Dann will ich darauf zu sprechen kommen, wonach du mich schon mehrmals gefragt hast,
+seit in einem Schmierenjournal ein verleumderischer Schmierenartikel über meine Asket-Nera-Photos erschienen ist. Deine Fragen waren ja, ob ich vielleicht von Phobol Cheng etwas finden könnte, das sie
+explizit ausgesagt hat in bezug auf ihre Beobachtung meiner Kontakte mit Asket im Ashoka Ashram in
+Mahrauli. Diesbezüglich haben wir zwar in den FIGU-Bulletins Nr. 21 vom Februar 1999 und Nr. 23 vom
+Juli 1999 Stellungnahme-Artikel vom Chefredakteur des MAGAZIN 2000plus, von Michael Hesemann
+veröffentlicht, die dir ja bekannt sind, doch du wolltest einiges mehr erfahren. Aus diesem Grunde hat mir
+Patric einiges im Internet aufgezeigt, das ich dir zeigen will. Patric sagt, dass bezüglich Phobols Aussagen noch mehr zu finden sei, doch denke ich, dass das, was er mir heruntergeladen hat und das dann
+von Willem ins Deutsche übersetzt wurde, eigentlich genau das ist, was du wissen willst. Dabei ist auch
+noch etwas bezüglich der Asket-Nera-Photos, die ich mit meiner defekten Olympus 35 ECR- Kamera gemacht hatte. Auch sind noch diesbezüglich Auszüge aus Kontakberichten, die mir Bernadette ebenfalls in
+den Computer gestellt hat. Wenn du lesen willst, was hier in Deutsch und Englisch geschrieben ist …
+
+Ptaah Gerne, ja. …
+
+#### «Warum der Billy Meier Fall kein Schwindel ist» 1) – Phobol Cheng und Frau Sashi
+Phobol Cheng – ehemalige United Nations Diplomatin für Kambodscha – wohnte als Kind im Ashoka
+Ashram, Mahrauli, New Delhi, Indien. Ihr Grossvater war Leiter (Anm. buddhistischer Mönch) des Ashram.
+Sie sah Asket mit eigenen Augen, d.h., sie sah Meier und Asket mehrmals zusammen, und Askets Strahlschiff mehr als einmal über den Ashram schweben.
+
+Einmal betrat sie den Ashram ihres Grossvaters und sah zwei in weisse Roben gekleidete fremde Männer,
+die zu beiden Seiten ihres Grossvaters sassen und mit ihm redeten. Sie bekam einen Teil des Gesprächs
+mit, und als das Gespräch zu Ende war, verschwanden die Männer plötzlich, anscheinend in der gleichen
+Weise, wie Meier es zu Beginn eines Kontakts oft selbst getan hat. So wusste Phobol dann, dass diese
+Männer nicht von der Erde waren.
+Vor einigen Jahren (1999) gab die hoch angesehene Beamtin ihre Anonymität auf und äusserte sich vor
+Menschenmengen, um ihre Geschichte zu erzählen; und was, bitte schön, würde sie dadurch gewinnen,
+ausser möglicherweise denselben Spott zu ernten wie Meier?
+
+
+-----
+
+Frau Sashi, eine Inderin, hat Phobol in Hindi unterrichtet. Da Phobol und ihr Bruder aus Kambodscha
+kamen, mussten sie diese Sprache lernen. Sie sah nicht viel älter aus als Phobol und war vielleicht nicht
+mehr als 20 Jahre alt, als Phobol 10 Jahre alt war und Meier 1963 zusammen mit Asket gesehen hatte
+(damals hatte Meier seinen linken Arm noch).
+
+Frau Sashi ist auch eine Zeugin Phobols, weil sie mit ihr mehrmals kurz über die Frau (Asket), die andere
+als Göttin oder so bezeichneten, und über ihr Schiff am Himmel gesprochen hat. Auch Frau Sashi selbst
+sah Strahlschiffe über dem Ashram. Aus diesem Grund ist Frau Sashi eine wichtige Zeugin und bestätigt
+Phobols Aussage.
+
+Mehr zu diesem Thema auf der DVD; «Reopening of the Meier Case – International UFO Congress 1999» …
+
+#### 2) – SABA TV
+Billy kaufte seinen ersten Farbfernseher der Marke SABA erst im Juli 1976 im Geschäft von Herrn Bär in
+Bauma, wohingegen die Photos von Asket und Nera ein Jahr früher aufgenommen wurden, nämlich am
+26. Juni 1975.
+
+#### 3) – farbiger Raster der Fernsehröhre
+Seine ersten Photos nahm er mit einer alten Olympus 35 ECR-Kamera auf, die er als einarmiger Mann
+mit einer Hand problemlos benutzen konnte. Er hatte die nicht ganz einwandfreie Kamera (der Blendenstellring war in einer Position steckengeblieben) im Januar 1975 seinem Bruder Gottlieb Meier für 50
+Franken abgekauft. Wenn er, wie behauptet wurde, die Photos in den Siebzigerjahren von einem Farbfern seher abphoto graphiert hätte, dann würden irgendwelche Vergrösserungen der Photos ausnahmslos auch
+den 3-Farben-Raster der Fernsehröhre zeigen, d.h. die Farben Blau, Grün und Rot in drei angelegten
+Punkten. Dieser Fakt wurde durch einen Schweizer Phototechniker untersucht, einen Druckspezialisten, der
+mit zehnfachen Vergrösserungen und anderen Vergrösserungsaufgaben gearbeitet hat.
+Billy müsste, um Aufnahmen in der Grösse eines Photos von einem Fernseher anzufertigen, die Kamera
+direkt vor den Fernseher gestellt haben, weil diese einfache Kamera keinen Belichtungsmesser und kein
+Zoom-Objektiv hatte.
+Ein solcher farbiger Punktraster des Fernsehers, der auf den Photos schon bei nur minimaler Vergrösserung sichtbar würde, ist auf den Asket-Nera-Photos nicht festzustellen.
+
+#### A 1) – Phobol Cheng & Frau Sashi
+Phobol Cheng, Ex-United Nations diplomat for Cambodia as a child stayed at the Ashoka Ashram,
+Mahrauli, New Delhi. Her grandfather was the head (remark = Buddhist monk) of the Ashram. She has
+a first-hand contact with Asket, her having seen Meier and Asket together on numerous occasions, her
+having witnessed Asket's UFO craft hovering over the Ashram on more than one occasion.
+
+She once entered her grandfather's Ashram, saw two strange men in white robes sitting one on each side
+of him, speaking to him. She overheard part of the conversation, and when it was over, the ‹men› just
+suddenly vanished in the same manner, apparently, as Meier himself has done many times at the beginn ing of a contact. So Phobol then knew that these men were not from Earth.
+A highly respected official breaks her anonymity a few years ago (1999) and speaks out in front of crowds
+to recount her stories on this, and what, pray tell, does she gain by doing this except possibly drawing
+ridicule similar to Meier?
+Mrs. Sashi, an Indian woman, who had tutored Phobol in the Hindi language, since coming from Cambodia she and her brother had had to learn Hindi. She didn't look much older than Phobol, and so perhaps
+had been no older than 20 when Phobol was 10 when she had seen Meier and Asket in 1963 (when
+Meier still had his left arm).
+
+
+-----
+
+Sashi was a witness to Phobol having spoken to her briefly several tims about the woman (Asket) who
+others at the Ashram referred to as ‹the goddess› or some such, and about her ship in the sky. Also Sashi
+herself saw space-crafts above the Ashram. So Sashi is an important witness and corroborator of Phobol's
+Testimony.
+
+More about this in ‹Reopening of the Meier Case – International UFO Congress 1999› DVD. …
+
+#### A 2) – SABA TV
+Not until July 1976 did Billy purchase his first color TV unit (brand SABA) from Mr. Baer's store in Bauma.
+Whereas the photos of Asket and Nera were taken a year earlier, on June 26, 1975.
+
+#### A 3) – Colour Grid of the Cathode Ray Tube
+His first photos were taken with an old Olympus 35 ECR camera, which he, as a one-armed man, was
+able to utilise problem-free with only one hand. He bought this somewhat dilapidated camera (its aperture ring was stuck in one position) from his brother, Gottlieb Meier, in January 1975 for CHF 50.00. If,
+as claimed, the photos had been taken from a colour TV monitor in the 1970s, any enlargements of the
+picture would invariably also show the 3-colour grid of the cathode ray tube, which would show the colours
+blue, green and red arranged in three dots. This fact was previously investigated by a SWISS photo technician, a printing specialist who worked with tenfold enlargements and other enlargement tasks.
+
+In order to produce photo-sized pictures from a TV unit, Billy would have had to place his Olympus camera
+directly in front of the TV, since this simple camera possessed neither an automatic light meter nor a zoom
+lens.
+
+On the Asket/Nera pictures no such colour dot grid of the television monitor is detectable that would distort
+the photos from even a minimal enlargement.
+
+## Kontaktbericht-Auszüge in bezug auf die Asket-Nera-Photos
+#### 1 – 39. Kontakt, 3. Dezember 1975, 1.37 h
+Im 39. Kontaktbericht, der am Mittwoch, 3. Dezember 1975, 1.37 h stattfand (siehe Semjase-Kontaktberichte Block 4, Seite 623 oder Plejadisch-plejarische Kontaktberichte, Block 2, Seite 40), erwähnte Ptaah,
+dass in den USA zwei Frauen wohnen, die Asket und Nera sehr ähnlich sehen.
+
+Ptaah
+229. Es war schon eine grosse Ausnahme, dass du von Asket und Nera Photos anfertigen durftest, wobei
+wir übrigens inzwischen in Amerika weibliche Erdenmenschen ausfindig gemacht haben, die ihnen
+täuschend ähnlich sehen und die interessanterweise ebenfalls in Gemeinschaftlichkeit zusammenarbeiten.
+
+Billy Männeken, das ist schade. Aber die Frauen, die Doppelgängerinnen von Asket und Nera, wo sind
+sie?
+
+Ptaah
+230. Im Lande Amerika.
+231. Das sagte ich aber schon.
+
+
+-----
+
+Billy Kannst du mir ihre Anschriften geben und nähere Einzelheiten über sie nennen?
+
+Ptaah
+232. Das möchte ich aus bestimmten Gründen nicht.
+
+_Billy wusste schon 1975 – also 23 Jahre bevor die Skeptiker das 1998 herausfanden –, dass es in den USA_
+_zwei Doppelgängerinnen von Asket und Nera gibt. Warum hätte er diese Doppelgängerinnen in seinen_
+_frühesten Kontaktberichten bewusst erwähnen sollen, wenn – angenommen er hätte die Photos gefälscht –_
+_diese möglicherweise später als Sängerinnen/Tänzerinnen eines beliebten amerikanischen Fernsehpro-_
+_gramms hätten entdeckt werden können? Meines Erachtens ist das unwahrscheinlicher als das MiB (Men_
+_in Black) Fiasko, dem, in Anbetracht der Menge von Augenzeugenberichten, etwas mehr Beachtung ge-_
+_schenkt werden sollte._
+
+#### 1 – 39th Contact, 1:37 a.m. on December 3, 1975
+In the 39th Contact Report, which was recorded at 1.37 a.m. on December 3, 1975 (see Semjase Contact
+Report Block No. 4, page 623 of the German edition with the brown cover, Message from the Pleiaren,
+Vol-2, copyrights 1990), Ptaah pointed out that two women who look much like Asket/Nera live in the
+USA:
+
+Ptaah
+It was rather extraordinary that you were given permission to take photos of Asket and Nera, since
+we have discovered terrestrial females who resemble them very closely and who, interestingly
+enough, also work together in a community of interests.
+
+Billy Boy, that's a shame. But the women, the doubles of Asket and Nera, where are they?
+
+Ptaah
+In Americaland, as I just said before.
+
+Billy Can you tell me their address and other details about them?
+
+Ptaah
+I would rather not do so for various reasons.
+
+_Billy was aware that there were look-alikes of Asket and Nera in the USA in 1975, some 23 years before_
+_the skeptics found out in 1998. Why would Billy knowingly make mention of these ‹doubles› in America_
+_in his earliest published contact reports if, assuming he hoaxed those photos, they would possibly be_
+_detected later on as the back-up singers/dancers in a popular American TV show? That is actually more_
+_improbable to me than the whole MIB fiasco, which, based on the amount of eyewitness testimony, should_
+_actually be given a bit more consideration._
+
+Ptaah
+Das ist für mich befriedigend, wozu ich aber wünschen will, dass du das Ganze auch in einem der nächsten
+Bulletins veröffentlich sollst, weil ich denke, dass viele Menschen diese Tatsachen noch nicht kennen und
+für diese Informationen dankbar sind, weil noch immer viele den Lügnern und Verleumdern in dieser Sache
+Glauben schenken und der Unwahrheit verfallen sind.
+
+
+-----
+
+Billy Deinem Wunsch werde ich natürlich entsprechen. Es ist wohl gut, wenn ich daraus wieder ein
+Sonder-Bulletin mache, denn dieses hat rundum besonderen Anklang gefunden, wie mir mehrmals verschiedentlich telephonisch mitgeteilt wurde. Es wird die Nummer 64 sein, die ich für November vorge sehen habe.
+
+Ptaah Das ist erfreulich. Danke. Was ich dir nun sagen will, das will ich ohne Namennennungen
+tun, denn wie du mir kürzlich wieder einmal gesagt hast, darfst du nicht offen die Wahrheit nennen, weil
+dies die schweizerische Gesetzgebung nicht erlaubt, folglich du gerichtlich belangt werden könntest, wenn
+du oder ich Namen von Personen nennen, die Lügner, Betrüger, Schwindler, Kriminelle, Diebe und Verleumder usw. sind. Dass solche Personen nicht offiziell beim Namen genannt werden dürfen, ist äusserst
+bedauerlich, denn dadurch fühlen sie sich in ihrem Handeln und Tun bestärkt und tun erst recht alles Mögliche, um Lügen und Verleumdungen zu verbreiten und der Dieberei und Betrügerei sowie dem Kriminellen
+und Schwindlerischen nachzugehen. Eine solche falsche Gesetzgebung dürfte es nicht geben, die solchen
+Personen in ihrem unwürdigen Handeln und Tun Vorschub leisten und jene bestrafen, welche sich gegen
+sie wehren und die Wahrheit ans Licht bringen. Da es aber doch so ist, beweist das Ganze dieser Gesetz gebung, dass diese nicht nur äusserst unlogisch und ungerecht ist, sondern dass auch in Anwendung
+dieser Gesetze einer logischen und gerechten Gesetzgebung Hohn gespottet wird. Doch nun will und kann
+ich dir auch eine Antwort darauf geben, was wir beim offiziellen Gespräch am Donnerstag, den 18.
+Novem ber 2010, festgelegt haben, nämlich dass wir sehr genau abklären werden, ob es sich bei den
+Bildern von Asket und Nera in Guidos Buch um echte oder gefälschte handelt. Schon damals sagte ich
+dir, dass es lange dauern wird, und leider dauerte es tatsächlich einige Zeit, um alles abzuklären, weil
+wir in der Vergangenheit langwierige Nachforschungen unternehmen mussten, um alles klären zu können.
+Alle unsere unternommenen Bemühungen und die zusammenhängenden Fakten explizit aufzuführen und
+aufzuklären ist wohl nicht nötig, denn wichtig ist ja nur, ob die Asket-Nera-Bilder in Guidos Buch deinen
+Originalaufnahmen entsprechen und ob diese manipuliert sind, oder ob es sich um Bilder handelt, bei
+denen es sich um die amerikanischen Doppelgängerinnen handelt. Tatsache ist, dass damals von einer
+böswilligen Gruppierung, die infolge diverser Mordanschläge auf dich dir auch dem Namen nach bekannt
+ist, dem Mann Schmid, eben jenem Photographen, der bereits 1975 deine Bilder verfälschte, Original bilder der beiden amerikanischen Doppelgängerinnen, die in einer Revue auftraten, zugespielt wurden.
+Schmid erhielt von der Gruppierung unter schweren Drohungen den Auftrag aufgezwungen, die ihm zugespielten Bilder mit deinen Aufnahmen zusammenzufügen, sie miteinander zu verbinden und zu ver fälschen, um dich damit später weltweit diskriminieren und unglaubwürdig machen zu können, wofür die
+Gründe ja bekannt sind. Bei diesen Machenschaften wurde auch bereits darauf hingearbeitet, dass
+mehrere dir widersächlich gesinnte labile und sich selbstüberschätzende und selbstherrliche Personen, die
+dir namentlich bekannt sind, in den 1990er Jahren auf die amerikanischen Revuetänzerinnen resp. auf
+die Doppelgängerinnen von Asket und Nera aufmerksam werden mussten. Der Zeitraum bis dahin wurde
+derart berechnet, dass du und deine Mission in diesen Jahren dann bereits derart weltweit bekannt sein
+mussten, dass eine neuerliche und umfassende Intrige und Verleumdung einen Sturm der Entrüstung und
+dadurch einen Zusammenbruch der Mission herbeiführen sollte. Die diesbezügliche Berechnung basierte
+auf bereits von Anfang deiner Mission an perfide hervorgerufenen Verleumdungen, dass du die Bilder
+von unseren Strahlschiffen sowie die Bilder von deiner Grossen Reise böswillig und betrügerisch gefälscht
+hättest. Auch diese schon zu allem Anfang aufgekommenen Verleumdungen basierten auf Machenschaften der genannten böswilligen Gruppierung, denn auch hierzu wurden sehr labile und sich krankhaft
+selbstüberschätzende, selbstherrliche sowie notorische Neider und Widersacher gegen die Wahrheit
+derart beeinflusst, dass sie nichts ausser acht liessen, um mit Lügen, Betrug, Beschimpfungen und Verleumdungen dir und der Mission zu schaden. Und infolge der Drohungen gegen den Photographen
+Schmid durch die genannte Gruppierung wurde auch er selbst zum Widersacher gegen dich und die
+Mission, wobei ihm die Lügen und die Mitarbeit eines bestimmten ehemaligen FIGU-Mitgliedes sehr ge
+
+-----
+
+legen kamen. Es war jene Person, die dich auch bestohlen hat und mit Gleichgesinnten durch ungeheure
+Verleumdungen Schaden anzurichten versuchte, was jedoch gründlich misslang, weil all die rechtschaffe nen Menschen, die der wirklichen Wahrheit und damit deiner Mission und der Kontakte mit uns Plejaren
+zugetan blieben deren je länger je mehr wurden. Schmid, der Photograph, fügte also gemäss der auf ihn
+ausgeübten Drohung und dem Zwang deine Originalbilder mit Originalbildern der Revue-Tänzerinnen
+resp. der amerikanischen Doppelgängerinnen zusammen und nahm daran entsprechend verfälschende
+Manipulationen vor. Von diesen Fälschungen fertigte er neue Diapositive an, die er dir als angeblich deine
+eigenen Originale der Asket-Nera-Dias zurückgab. Da du aber in bezug auf die Photographietechnik
+usw. nicht gebildet bist, hast du den böswilligen Betrug nicht bemerkt, sondern erst danach, als der Betrug des Photographen Schmid resp. seine Fälschung publik wurde. So hast du die gefälschten Bilder, die
+sowohl Asket und Nera, wie aber auch die beiden amerikanischen Doppelgängerinnen zeigen, als echt
+betrachtet, folglich sie auch in Guidos Buch Einlass fanden.
+
+Billy Dann sind also auf den Photos vier verschiedene Personen zu zwei Personen zusammenmani puliert worden, wobei je zwei der Frauen einander praktisch derart gleichen, dass sie nicht voneinander
+unterschieden werden können.
+
+Ptaah Das ist richtig, und damit ist die Sache endgültig geklärt.
+
+Billy Was aber die Widersacher wohl nicht verstummen lässt. Eigentlich finde ich das Ganze dieser
+Manipulationen und Machenschaften ebenso lächerlich wie auch die Widersacher, die durch Schmieren artikel, Lügen, Betrügereien, Beschimpfungen, Schwindeleien, Photo- und Filmfälschungen sowie durch
+Verleumdungen usw. in bezug auf mich, meine Photos und die Kontaktberichte sowie meine Bücher,
+Schriften, Materialien und meine Mission Profit herausschlagen wollen.
+
+Ptaah Mit Sicherheit wird es der Fall sein, dass die Widersacher mit ihren Lügen und Verleumdungen usw. weitermachen werden, denn Dummheit, Bewusstseinsarmut, Narrheit, Unverstand und Verwerf lichkeit lassen sich nicht heilen. Und dass alles wirklich lächerlich ist und dass sich auch die Widersacher
+lächerlich machen, das ist eine Tatsache, die unbestreitbar ist.
+
+## Sichtungsbericht = Hasenjagd
+
+
+Am 22. April 2011 spazierte ich mit meiner Lebensgefährtin Christina über die Wiesen in der Nähe ihres
+ehemaligen Wohnortes in Löffingen. Die Wiese befindet sich ca. 300 Meter oberhalb des Anwesens
+Ockhof in Richtung Wildpark, einem Tiergehege. Die Blickrichtung war westlich. Nachdem ich die ganze
+Gegend mit meiner HP 5,3 Megapixel Digitalkamera dokumentiert hatte, zur Erinnerung und zwecks Vergleich zu früheren Besuchen, bemerkte ich einen Hasen, auf den ich sofort meine Kamera ausrichtete und
+dann auf den Auslöser drückte. Dabei fiel mir nichts weiter auf, folglich wir unseren Spaziergang in Richtung Wildpark fortsetzten.
+Am Abend übertrug ich dann die gemachten Photos direkt auf meinen Computer. Nach mehrmaligem Betrachten der Bilder fiel mir auf dem ‹Hasenphoto›, links der Mitte des Bildes und oberhalb des im Hinter grund sichtbaren Zaunpfostens ein ungewöhnliches Objekt auf. Die Vergrösserungen am PC zeigten ein
+strahlschifförmiges Objekt, das bei genauerer Betrachtung Spektralfarben aufwies. Folgedem erstellte ich
+verschiedene Ausschnitt-Vergrösserungen, bis hin zur Auflösung von wenigen Pixeln. Der Aufnahmezeitpunkt war, wie erwähnt, der 22. April 2011, zwischen 11.30–12.00 Uhr. (Ein exakterer Zeitpunkt ist mir
+nicht bekannt, da ich beim Aufnehmen des Photos nicht auf die Zeit achtete, weil mir ja nichts Besonderes
+aufgefallen war.)
+
+
+-----
+
+Natürlich bin ich ganz begeistert, dass mir ein solcher Schnappschuss gelungen ist. Ob es sich wirklich
+um ein plejarisches Schiff handelte, kann natürlich nur Billy beantworten – wenn überhaupt. Wenn ja,
+dann darf er es natürlich auch in der nächsten Auflage des Zeugenbuches etc. veröffentlichen.
+Wolf-Dieter Frontalski, Deutschland
+
+
+-----
+
+## Erlebnisbericht vom 18. August 2011 im SSSC
+
+Ich hatte in Australien einen zweiwöchigen Besuch im SSSC geplant. Am 7. August kam ich im Center an
+und konnte in einem kleinen Wohnwagen unten am Abhang wohnen. In der Nacht vom 17. August machte
+ich mich auf den Weg hinunter zum kleinen Wohnwagen und legte mich ca. um Mitternacht schlafen. Irgendwann, vielleicht ein paar Stunden später, wachte ich erschrocken auf, weil ich das dringende Gefühl
+hatte, dass mir schlecht wurde; also sprang ich auf und dachte, dass ich zur Wohnwagentüre rennen
+müsse, um rechtzeitig hinauszugelangen. Das war für mich ungewöhnlich, weil ich mich nicht erinnern
+kann, dass ich ein solches Gefühl der Übelkeit in meinem Leben je schon erlebt hätte. Bevor ich jedoch zur
+Türe gelangte, liess diese überwältigende Übelkeit sofort nach. Also ging ich ins Bett zurück und driftete
+zurück in den Schlaf.
+
+Und wieder erwachte ich plötzlich. Diesmal hörte ich ausserhalb des kleinen Wohnwagens deutliche
+Schritte. Allein dort unten war dies etwas, das ich in diesen frühen Morgenstunden nicht zu hören erwartete. Ich setzte mich auf, und in diesem Moment wehte ein erstaunlich starker Duft durch die Fenster des
+Wohnwagens. Es war ein wirklich angenehmer Duft, der mich an Blumen und auch an andere Elemente
+denken liess. Ich sog ein paar tiefe Atemzüge ein, um diesen Duft aufzunehmen. Ich hörte mich laut «wie
+schön» sagen, und «was ist das für ein herrlicher Duft?». Ich guckte zu einem der Wohnwagenfenster
+hinaus, um zu schauen, ob ich dort jemanden sehen könnte, der mit den Schritten in Verbindung stand,
+jedoch konnte ich niemanden sehen.
+
+Der Duft wehte weiterhin in den Wohnwagen, bis dieser ganz von diesem gloriosen Parfüm erfüllt war.
+Ich aalte mich im Aroma und fragte mich, ob dies irgendwelche Baumblüten sein könnten, die ihren Duft
+verströmten. Aber, dachte ich, wenn das so wäre, hätte ich ihn schon am Tag zuvor bemerkt. Dann ging
+ich wieder schlafen.
+Beim Aufwachen am Morgen war noch immer ein schwacher Duft im Wohnwagen vorhanden, und ich
+ging den Hang hinauf, um zu duschen und das Frühstück einzunehmen. Ich traf Eva aus Deutschland beim
+Kaffee und erzählte ihr von meinem Erlebnis, weil es so ungewöhnlich war und ich das Bedürfnis hatte,
+es mit anderen zu teilen. Wir gingen dann fürs Frühstück in die Küche, wo Atlantis und Karin (aus Deutschland) sassen. Ich sprach mit Atlantis über mein Erlebnis und fragte ihn, ob es irgendwelche Bäume gebe,
+die diesen Duft von sich geben. Er hörte sich meine ganze Geschichte an, und dann entschied er sich,
+Billy darüber zu befragen und ging in dessen Büro.
+
+Einige Minuten später kam Atlantis zurück und sagte, dass Florena Billy in den frühen Morgenstunden besucht hatte und dass mein Erlebnis wohl mit Florena zu tun habe, die durch das Center spaziert war, was
+sie öfters zu tun beliebte. Billy wollte, dass ich mein Erlebnis niederschreibe.
+
+
+Ich war hoch erfreut, für meinen ersten Besuch im Center den ganzen Weg von Australien hergekommen
+zu sein und dann auch noch diese erfreuliche Erfahrung mit Florena machen zu können.
+Robyn Foley, Passivmitglied, Sunshine Coast, Australien
+Übersetzung: Christian Frehner, Schweiz
+
+
+## Account of ‹experience› at the SSSC on Thursday 18th August 2011
+
+I had planned a visit from Australia to the SSSC for a two week period. I arrived on 7th August, and was
+given a small caravan to stay in, on the hillside. On the night of the 17th I made my way down the track
+to the small caravan, and went to sleep around midnight or so. At some point, maybe a few hours later,
+
+
+-----
+
+I awoke with a start as I felt urgently that I was going to be sick and jumped up thinking I would have to
+run to the door of the van to get out in time. This was unusual for me, as I don't recall feeling nausea like
+this very often in my life. However, before I could get to the door, this overpowering nausea subsided
+completely. I went back to the bed and drifted back into sleep.
+
+Once again, I awoke with a start. This time I heard clear footsteps outside the little caravan. Being alone
+down there, it is not something I would have expected to hear in those early hours of the morning. I sat
+up and at that moment the most amazingly strong perfume came wafting in through the windows of the
+caravan. It was a really beautiful perfume, that made me think of flowers and some other elements as
+well. I took deep deep breaths, to take in this perfume. I heard myself saying out loud «how beautiful»,
+and «What is this beautiful smell?». I peered out of one of the windows of the caravan to see if I could see
+anyone there associated with the footsteps, however, I could not see anyone.
+
+The perfume continued to waft into the caravan until the van was just filled with this glorious aroma. I
+basked in the aroma, wondering if it could have been the flowers from some tree, releasing their perfume.
+But I thought that if this was so, I would have noticed it before tonight. I then went back to sleep.
+
+On waking in the morning there was still a faint perfume in the van and I went up the hillside to the show ers and to have breakfast. I met Eva from Germany having her coffee. I told her of my experience, as it
+was so unusual and I felt the need to share it. We then went in to have breakfast. In the kitchen at that time
+were Atlantis and Karin (from Germany). I spoke to Atlantis about the experience asking him if there were
+any trees that give off that kind of perfume. He listened to my whole story, and then he decided to ask Billy
+about it and went into his office.
+
+Atlantis came back some minutes later, saying that Florena had visited Billy in the early hours of the
+morning, and that my experience was likely Florena going for a walk through the Centre, as she often
+likes to do. Billy wanted me to write this experience down.
+
+I was delighted to have come all this way from Australia, for my first visit to the Centre, and to have had
+this pleasant experience, with Florena.
+Robyn Foley, Passive Member, Sunshine Coast, Australia
+
+## Bemerkenswerter Leserbrief
+
+Lieber Herr Meier
+Nachdem ich den ‹Talmud Jmmanuel› fertig gelesen hatte letzte Woche, fehlen mir die Worte, um meine
+Gedanken und Gefühle zu beschreiben. Sicher aber ist: Dankbar.
+
+Wenn man bedenkt, wie viele Kriegsverbrechen im Namen von Religionen begangen worden sind, und
+wie viele Leute sich Christen nennen, obwohl das ein unwahrer Name ist.
+
+Es war mir neu zu erfahren, dass Muhammad ein Prophet war und dass der Koran gemäss dem Buch gefälschte Lehren enthält, gleich wie auch die westlichen Religionsbücher gefälschte Inhalte haben.
+
+Nachdem der Pfarrer der katholischen Kirche mir Unterricht gab in meiner ersten und zweiten Klasse, war
+ich sehr bedrückt und traurig, weil ich glaubte, dass meine Mutter in die Hölle komme, weil sie meinen
+Vater, einen Protestanten, geheiratet hatte. Dies bedrückte mich um so mehr, da ich als Kleinkind niemanden hatte, mit dem ich darüber reden konnte.
+
+
+-----
+
+Als ich meinen ersten Mann heiratete, wurde ich aus der Kirche ‹entlassen›, nicht weil er Jude war oder
+geschieden, sondern weil er von einer getauften Frau geschieden war. Wäre seine Gattin Jüdin gewesen,
+dann wäre das der Kirche akzeptabel gewesen und ich hätte somit nicht in Sünde gelebt. Das ist alles
+schwer zu verstehen (Quatsch).
+
+Die Lehre von Jmmanuel schein mir korrekt beim ersten Durchlesen. Ich habe auch das Gefühl, dass er
+seine Entourage (Anm. Entourage = Umfeld usw.) ständig gefährdete während seines Lebens.
+
+Das menschliche Verhalten kann sich rasch ins Böse wenden, wenn ein paar Gleichgesinnte vereint sind;
+und Grausamkeit kommt in einer Meute eher vor und weniger beim einzelnen, ausser er dementiert (Anm.
+dementiert = widerruft).
+
+Ich bin sehr froh, das Buch gelesen zu haben und möchte nochmals meinen Dank ausdrücken und auch
+meine Bewunderung für das Auffinden der Rolle, deren Übersetzung und jetzt Neu-Übersetzung.
+Skylar Khan, USA
+
+PS: In ‹Philosophie des Lebens› gefällt mir besonders Nr. 34:
+«Jeder Mensch soll immer für alle Dinge offen sein, so er in seinem Leben immer sowohl viel Geheimnisvolles und Spannendes finden kann als auch das, was ihn zu überraschen und in Staunen zu versetzen
+vermag, das ihm vielleicht vor freudigem Schreck den Atem raubt und ihn stets jung sein lässt.»
+
+## Auszug aus dem 527. offiziellen Kontaktgespräch vom Samstag, den 10. September 2011
+
+Billy Dann möchte ich dich fragen, ob du irgendwelche Kenntnis darüber hast, wieviele Tote das
+Seebeben, der Tsunami und die Reaktorzerstörung in Fukushima gefordert hat? Durch die Medien ist nichts
+zu erfahren, was sich diesbezüglich wirklich ergeben hat. Da ihr ja auch keine Voraussagen mehr macht,
+bekommen wir bezüglich solcher Dinge auch keine Informationen mehr, die der Wahrheit entsprechen.
+Vielleicht aber habt ihr ja doch Aufzeichnungen resp. Abklärungen von der Fukushima-Katastrophe gemacht?
+
+Ptaah Das haben wir tatsächlich, weil uns das Geschehen von Fukushima schon durch Vorausschauungen vor mehr als 80 Jahren bekannt war. In bezug auf solche von uns gemachten frühzeitlichen
+Vorausschauungen betreiben wir unsere Beobachtungen, Abklärungen, Aufzeichnungen und Vorausschau ungen weiterhin. Es waren rund 22 000 Tote.
+
+Billy Und ich dachte, dass das nicht mehr getan wird, denn du hast mir ja gesagt, dass ihr solche
+Vorausschauen nicht mehr macht.
+
+Ptaah Das ist absolut richtig, doch bezieht sich das ausschliesslich auf solche, die wir nur für dich
+durchführten, um mittelnd über dich einerseits die Erdenmenschen zu warnen, und andererseits um interessante Dinge kundzutun, ehe sie eintrafen und die auch in unser Interesse gefallen sind. Diese Vorausschauungen tun wir nicht mehr, sondern wir begrenzen uns nur noch darauf, anfallende Geschehen usw.
+abzuklären, die wir bereits vor mehr als sieben Jahrzehnten vorausschauungsmässig ergründet haben.
+
+Billy Es ist aber doch schade, dass ihr keine Voraussagen mehr gebt, denn es gab immer
+Menschen, die dafür interessiert waren und sich auch bemühten, andere zu warnen oder bestimmte Dinge
+und Reisen nicht zu tun.
+
+
+-----
+
+Ptaah Das ist mir bekannt, doch es ändert nichts an unserem Beschluss, denn die irdischen Regierun gen, Wissenschaftler und das Gros der Erdenmenschen kümmern sich nicht um deine und unsere Warnun gen. Du selbst hast dich seit den 1950er Jahren immer und immer wieder sehr bemüht, die irdischen
+Regierungen, die Wissenschaftler und die Erdenmenschen zu warnen. Du hast sie auf das ungeheure zerstörerische Übel der Überbevölkerung aufmerksam gemacht und auch die schweren Naturkatstrophen der
+heutigen und noch kommenden Zeit vorausgesagt, wie auch die Völkerflucht, den Terrorismus usw. usf.,
+doch blieb alles erfolglos. Du wurdest nur mitleidig als Spinner und Weltverbesserer verlacht, wie auch
+verleumdet und als Lügner, Betrüger, Fälscher, Schwindler und Scharlatan beschimpft. Doch alles hat sich
+so zugetragen, wie du vorausgesagt und bekanntgegeben hast, und also werden sich deine Voraussagen
+auch weiterhin erfüllen, wie auch die unseren. Du und wir, wir haben uns umsonst Mühe gegeben, denn
+es wurde nicht auf uns gehört, weshalb die Erdenmenschen nun die Folgen ihres Fehlhandelns hinsichtlich
+der Überbevölkerung und der daraus resultierenden Zerstörung der Natur und der nachteiligen Klimabeeinflussung, der Übernutzung der Erdressourcen und alle immer mehr auftretenden Ausartungen tragen
+müssen.
+
+Billy Leider. Aber eine andere Frage: Unsere Kerngruppe weist noch immer nicht die volle Zahl
+von 49 auf, denn diverse, die unserer Gruppe hätten beitreten sollen, sind nicht in Erscheinung getreten,
+nicht selten auch darum, weil sie von meiner Exfrau vergrault wurden. Andere sind, wie du einmal erklärt
+hast, durch Krankheit oder Alter gestorben, weitere kamen durch Unglücksfälle ums Leben, während die
+restlichen dem reinen Materialismus und allem Weltlichen verfallen sind. Ob diese den Weg zur Mission
+nochmals finden, ist zwar fraglich, aber eben doch nicht ausgeschlossen, wie du gesagt hast. So frage ich,
+wie viele es denn noch sind, die in direkter Beziehung zur Mission stehen? Hast du dich meinem Wunsch
+gemäss bei den ‹Beschauern der Zeit› resp. bei Arahat Athersata erkundigt?
+
+Ptaah Das habe ich getan, wobei ich belehrt wurde, dass noch einige ausstehende Personen sind,
+die eine direkte und altherkömmliche Beziehung zur Mission haben in dem Sinn, dass sie zur Kerngruppe
+stossen sollten, doch sind diese derart stark dem Weltlichen und rein Materiellen verfallen, wie du ja selbst
+gesagt hast, dass kaum noch erwartet werden kann, dass sie sich umbesinnen. So wie die Erklärung der
+Ebene Arahat Athersata aussagt, lagert alles bezüglich einer Kerngruppemitgliedschaft fortan darin, dass
+unbestimmte Personen der Kerngruppe beitreten und mitarbeitend bei der Mission werden. Gemäss
+Arahat Athersata können neue Kerngruppemitglieder in der Regel der Mission altverbundene Personen
+sein ohne frühere Bestimmung, wie aber auch andere, die bis anhin keine Beziehung dazu hatten, jedoch
+sich damit verbunden fühlen.
+
+Billy Sehr viele scheuen aber die Pflichten, die bei einer KG-Mitgliedschaft zu erfüllen sind. Dazu
+gehört das Lernen der Geisteslehre und das persönliche Umsetzen derselben nach Möglichkeit. Auch die
+Nachtwacheverpflichtung, der Sonntagsdienst, der finanzielle Monatsbeitrag, die Standaktionen und die
+monatliche GV-Zusammenkunft am ersten Wochenende sowie die Samstagabend-Sonntagabend-Zusammenkunft am dritten Wochenende und die Mitarbeitspflicht von acht Stunden am ersten WochenendeSamstag sind Dinge, die nicht gern in Kauf genommen werden.
+
+Ptaah Das ist tatsächlich so, doch wer sich wirklich für die Lehre der Wahrheit, Lehre des Geistes,
+Lehre des Lebens und damit umfassend für die Geisteslehre interessiert, sie lernen und das Leben danach
+ausrichten will, wird sich nicht scheuen, die Pflichten auf sich zu nehmen, wenn das durch die eigenen
+Möglichkeiten gegeben ist. Leider haben aber nur Menschen diese Möglichkeiten, wenn sie über sich, ihr
+Tun und ihre Freizeit sowie Aufgaben usw. selbst bestimmen können und diesbezüglich eben ungebunden
+sind.
+
+
+-----
+
+Billy Aber es ist leider so, dass viele Erdenmenschen nicht verstehen können, dass wenn eine
+Organisation oder eben ein Verein wie die FIGU wirklich funktionieren soll, dass das dann auch mit dem
+Erfüllen von bestimmten Pflichten verbunden ist.
+
+Ptaah Das muss tatsächlich erst verstanden werden, doch wäre es sehr wünschenswert, wenn sich
+in kommender Zeit genügend Personen für die Mission und eine bleibende Mitgliedschaft in der Kerngruppe besinnen und entscheiden würden.
+
+Billy Deine Worte in der Besinnenden und Entscheidenden Ohr. Doch sag mal, ob dir die Zahl der
+Menschen bekannt ist, die jemals auf der Erde lebten? Habe da eine Anzahl von 110 Milliarden in einem
+Heft gelesen. Das kann aber nicht stimmen, denn gemäss den Speicherbänken waren es 121 Milliarden
+Menschen die jemals die Erde belebten.
+
+Ptaah Die Anzahl von 121 Milliarden ist mir auch bekannt. 110 Milliarden ist also eine Fehlzahl,
+die wohl durch falsche Berechnungen zustande kam.
+
+Billy Dann ist die Sache ja klar. Eigentlich wollte ich schon lange fragen, aber ich habe es immer
+wieder vergessen. Sag mal, lieber Freund, wird bei euch Plejaren für die Speisen der Geschmacksver stärker Glutamat gebraucht? Immer wieder einmal kommt es bei uns vor, dass darüber geredet wird, wie
+gut oder schädlich dieser Stoff eigentlich sei, doch weiss man einfach nichts Genaues. Es wäre daher gut,
+wenn du etwas darüber erklären könntest.
+
+Ptaah Das kann ich. Zu sagen ist vornweg, dass wir Plejaren weder Glutamat noch sonstige Geschmacksverstärker für unsere Speisen benutzen. Glutamat ist ein gehirneigener Botenstoff, der für die
+menschlichen Nervenzellen sehr gefährlich sein kann, weil diese absterben, wenn ihnen zu viel des Stoffes
+zukommt. Er sollte grundsätzlich keinen Lebensmitteln beigemengt und auch nicht sonstwie vom Menschen
+zu sich genommen werden. Da dies bei den Erdenmenschen jedoch missachtet und Glutamat immer
+wieder Speisen beigemischt wird, entsteht einerseits der Faktor Gewichtszunahme, und zwar darum, weil
+das Sättigungsgefühl betrogen und viel mehr gegessen wird, als der Hunger dies fordert. Und andererseits ergibt sich, wie gesagt, dass Glutamat die Nervenzellen abtötet und dadurch im Gehirn kleine Hohl räume schafft, wobei auch neurodegenerative Schädigungen in Erscheinung treten, wie z.B. in bezug auf
+Krankheiten, die als Alzheimer, Parkinson und Multiple Sklerose usw. bekannt sind. So ist leider zu sagen,
+dass bei vielen Erdenmenschen der genannte Geschmacksverstärker vielfach an den genannten Krankheiten Schuld trägt, auch wenn dies von den Medizinern nicht erkannt und von Glutamatherstellern bestritten wird. Auch Lebensmittelvergiftungen werden durch das Glutamat erzeugt, wenn daran gebundene
+Bakterien ungehindert die Magensäure passieren und im Darm Entzündungen und Vergiftungen hervorrufen.
+
+Billy Wie üblich geht es eben immer um Profit, und der wird in der Regel gewissenlos angestrebt,
+indem über Leichen gegangen wird.
+
+Ptaah Das ist treffend gesagt.
+
+Billy Seit letzten Donnerstag, es war der 8. September, werden in den Zeitungen mit Titeln wie ‹Auf
+den Spuren der US-Astronauten› Bilder veröffentlicht, die ein Gebiet des Erdmondes darstellen. Dazu
+wurde geschrieben, dass vor zwei Wochen durch eine NASA-Sonde, mit der Bezeichnung LRO, Bilder auf
+dem Mond gemacht wurden, die Fuss-Spuren der Astronauten und diverse Fahrspuren der Mondautos
+sowie die gelandete Mondfähre Challenger usw. aufzeigen würden, und zwar von der Mondlandung der
+
+
+-----
+
+Apollo 17 am 14. Dezember 1972. Sieh hier dieses Bild im ‹Tages-Anzeiger›. Ist es möglich, dass diese
+Bilder und die Geschichte mit der LRO-Sonde echt sind? Auch wenn die angeblich erste Mondlandung
+vom 20. Juli 1969 getürkt war, so wurden ja tatsächlich von der NASA doch nachträglich noch verschiedene Mondflüge durchgeführt, wobei Apollo 17 das bis anhin letzte Unternehmen gewesen sein soll, wie
+gesagt wird.
+
+_‹Tages-Anzeiger›, Donnerstag, 8. September 2011_
+
+_‹Limmattaler Zeitung›, Donnerstag, 8. September 2011_
+
+
+-----
+
+Ptaah Ob dieses Bild hier mit dem zusätzlichen Beschrieb dazu der Wirklichkeit entspricht, kann ich
+nicht entscheiden. Es kann sich sowohl um ein echtes Bild handeln wie auch um eine Fälschung, doch darüber will ich auch nicht bestimmen, weil es für mich nicht von Interesse ist und ich mich mit diesen Dingen
+auch nicht mehr auseinandersetzen will.
+
+Billy Aber dass nach dem Betrug der angeblichen Mondlandung am 20. Juli 1969 durch die NASA
+doch noch fünf Mondflüge und auch Mondlandungen stattgefunden haben, das stimmt doch, oder?
+
+Ptaah Ja, und zwar mit den Raumfahrzeugen 12, 13, 14, 15, 16 und 17.
+
+Billy Du nennst jetzt aber sechs, da kann doch etwas nicht stimmen.
+
+Ptaah Du merkst auch alles, und so kann ich jetzt nicht mehr schweigen, und zwar auch darum, weil
+für dich heute eine grössere Sicherheit gegeben ist. Es waren tatsächlich sechs Mondflüge und sechs Mondlandungen, …
+
+Anmerkung: Es folgt eine ausführliche Beschreibung der Vorgänge und deren Fakten, die jedoch zumindest
+vorerst noch nicht veröffentlicht werden sollen. Erst die Zeit wird erweisen, wann eine Veröffentlichung
+möglich sein wird.
+
+## Leserfrage
+
+Werden eigentlich Kriege immer länger? Wenn ich die nun jahrelang andauernden ungeheuren KriegsSchlamassel der USA im Irak und in Afghanistan betrachte sowie speziell die mörderischen Machenschaften in Israel und Palästina, dann scheint mir, dass die Kriegereien immer länger dauern. Wie kam
+eigentlich alles zustande zwischen Israel und Palästina, und wie viel Militär haben eigentlich die GrossStaaten?
+A. Zbinden, Schweiz
+
+### Antwort
+Dass die mörderischen Handlungen im Irak und in Afghanistan schon seit Jahren anhalten, ist absolut
+fraglos, doch ist dabei zu verstehen, dass die eigentlichen Kriegshandlungen schon lange vorbei sind. Was
+seit deren Ende bis heute geschieht, betrifft nicht mehr den eigentlichen Krieg, sondern deren mörderische,
+widerständische Auswirkungen und Nachwehen. Das bedeutet, dass einerseits durch einheimische Gruppierungen die Bekämpfung der Besatzer resp. Invasoren erfolgt, die wiederum todbringend gegen die sie
+bekämpfenden einheimischen Widersacher vorgehen. Dabei wird beidseits auf Menschenleben keine
+Rücksicht genommen, und zwar auch nicht auf das Leben von unbeteiligten Zivilisten, unter denen in der
+Regel hilflose Kinder und Frauen sind. Dies erklärt in bezug auf Irak und Afghanistan, wo die USA mit anderen ihnen hörigen Staaten und deren Militärs zusammen kriegerisch in die beiden Länder eindrangen.
+
+Israel und Palästina ist ein besonderer Fall, denn schon früh entstanden unerfreuliche Differenzen mit den
+Arabern, als am 2. November 1917 mit der sogenannten Balfour-Deklaration nach der Eroberung durch
+die kolonialbegierigen Briten, die immer mehr Länder unter ihre Herrschaft reissen wollten, 1917/18 eine
+intensive zionistische Aufbauphase eingeleitet wurde. Bereits bei dieser Aufbauphase machte sich unter
+der arabischen Bevölkerung grosser Widerstand bemerkbar, was die gesamte Welt aber nicht kümmerte.
+Daraus gingen mörderische und zerstörerische Folgen hervor und letztlich 1948/49 der 1. Israelisch-Arabische Krieg. 1920/22 erhielt Grossbritannien das sogenannte Völkerbundsmandat für Palästina und
+trennte das Ostjordanland als Emirat Transjordanien ab. Dies führte erst recht zu wachsenden Konflikten
+zwischen den Arabern und den Juden. Die Araber forderten einen unabhängigen arabischen Staat Palä
+
+-----
+
+stina, was 1936–39 in einen arabischen Palästina-Aufstand mündete. Besonders in den 1940er Jahren
+führte alles auch zu Auseinandersetzungen zwischen der jüdischen und der britischen Verwaltung. Letztendlich brachte Grossbritannien die Palästinafrage vor die Vereinten Nationen, wonach deren Vollversammlung am 29. November 1947 empfahl, dass Palästina in einen jüdischen und arabischen Staat zweigeteilt werden soll. Natürlich wurde diese Empfehlung von den Arabern mit Recht abgelehnt, und daraus
+ging hervor, dass das britische Mandat erlosch und der Abzug der britischen Truppen sowie am 14. Mai
+1948 die Ausrufung des Staates Israel erfolgte. Als dann am 15. Mai 1948 bis 1949 der Nahostkonflikt
+resp. der 1. Palästina-Krieg anfing, bei dem rund 850 000 arabische Palästineser vertrieben wurden, fiel
+das für den arabisch-palästinesischen Staat vorgesehene Gebiet an mehrere kriegführende Mächte (ge mäss den plejarischen Sprachgelehrten heisst es nicht ‹Palästinenser›, sondern richtigerweise ‹Palästineser› und ‹palästinesischer› usw., denn das Land heisst nicht ‹Palästinena›, sondern ‹Palästina›). So wurde
+1950 Ost-Palästina Jordanien angegliedert und damit zum Westjordanland, während der Gazastreifen
+unter die ägyptische Treuhandverwaltung kam. Der 2. Krieg war der Sueskrieg im Jahr 1956. Später folgte
+der Sechstagekrieg resp. der 3. Israelisch-Arabische Krieg im Jahr 1967. Israel besetzte die Halbinsel
+Sinai und damit den Gazastreifen sowie das Westjordanland und die Golanhöhen. Im Oktober 1973 erfolgte ein ägyptisch-syrischer Angriff resp. der ‹Jom-Kippur-Krieg›, wodurch Israel in arge Bedrängnis
+kam. Ende Juli 1980 erklärte die Knesset ganz Jerusalem zur Hauptstadt Israels. Der im Dezember 1987
+ausgebrochene Palästineseraufstand (‹Intifada›) wurde im Januar 1991 durch den vom US-Präsidenten
+Bush sen. ausgelösten 2. Golfkrieg überdeckt (der 1. Golfkrieg war zwischen Irak und Iran 1980–88), wobei auf beiden Seiten mehr als eine Million Tote zu beklagen waren. Der 3. Golfkrieg wurde wiederum
+durch die USA ausgelöst, diesmal durch den US-Präsidenten G. W. Bush jun.
+1974 wurde die im Jahr 1964 gegründete PLO resp. Palästinesische Befreiungsfront als alleinige Vertrete rin
+der Palästineser anerkannt. Trotz des Abschlusses eines israelisch-ägyptischen Friedensvertrages im März
+1979 änderte sich praktisch nichts in bezug auf die schweren Differenzen zwischen Israel und den Palästinesern, folglich das Gebiet bis heute eine der brisantesten Krisenregionen der Welt geblieben ist. 1987 brach
+in den Gebieten, die von Israel besetzt waren, die ‹erste› Intifada aus, und ab Mitte Dezember 1987 gewann
+dann die palästinesische Organisation ‹Hamas› an politischer Bedeutung. Im Juli 1988 hat Jordanien die
+administrativen und rechtlichen Bindungen zum Westjordanland abgebrochen und sie faktisch an die PLO
+abgetreten, die dann im Monat November des gleichen Jahres den Staat Palästina ausrief. 1989 wurde dann
+Jassir Arafat zum provisorischen Staatsoberhaupt ernannt. Was sich seither weiter ergeben hat, dürfte in der
+heutigen Zeit allgemein bekannt sein, folglich darüber wohl keine weitere Erklärungen notwendig sind.
+Was nun die Dauer der Kriege anbelangt, so ist zu sagen, dass diese zu früheren Zeiten oft sehr viel länger
+dauerten, als dies heute der Fall ist. Man denke dabei allein einmal an zwei lange Kriege, wie z.B. den
+100jährigen Krieg, der ausgelöst wurde, als der englische König Edward III. Ansprüche auf den Thron
+Frankreichs erhob, wonach dann erst im Jahr 1453 die schon damals kriegsfreudigen und koloniebesesse nen Engländer wieder vollständig aus Frankreich vertrieben werden konnten. Andererseits ist auch der
+Dreissigjährige Krieg zu nennen, der 1618 inszeniert und auf deutschem Boden ausgetragen wurde. Der
+eigentliche Ursprung war, weil in Prag drei katholische Statthalter von Protestanten aus einem Fenster eines
+Gebäudes geworfen wurden, folglich sie 16 Meter in die Tiefe fielen, was natürlich nicht gerade zu ihrem
+Wohl beitrug. Aus diesem Fenstersturz entwickelte sich grundsätzlich ein Religions- und Staatenkonflikt und
+letztendlich der Dreissigjährige Krieg, bei dem sich die Katholiken und Protestanten grausam massakrierten.
+Zwar hätte der Krieg nicht so lange gedauert, wenn nicht die europäischen Könige gewesen wären, die
+immense Machtansprüche stellten und sich dadurch die kriegerischen Metzeleien bis zu 30 Jahren in die
+Länge zogen.
+
+Werden die Kriege heutzutage in Augenschein genommen, dann ist erkenntlich, dass diese seit dem 20.
+Jahrhundert in der Regel kürzer werden. Zwar gab es im Ersten Weltkrieg 1914–18 gemäss plejarischen
+Angaben noch gegen 12,6 Millionen Tote und etwa 23,2 Millionen Verwundete und Invalide, und im Zwei
+
+-----
+
+ten Weltkrieg 1939–45 rund 63,7 Millionen Tote, dementsprechend gross war auch die Zahl der Verwundeten und Invaliden. Die Kriege, die in der heutigen Zeit geführt werden, sind nicht mehr darauf ausgerichtet, so viele Menschen wie möglich zu töten, und so wird auch für die Zukunft dieses Ziel weiterverfolgt. So sind schon seit 1988 bei grösseren Kriegen die Zahlen der Toten rückläufig und erreichen nicht
+mehr viele Millionen. Eine Statistik sagt aus, dass grössere Kriegskonflikte mit mehr als 1000 Toten seit
+rund 23 Jahren rückläufig sind. Auch werden weltweit verhältnismässig zur Zeit vor dem 20. Jahrhundert
+weniger Kriege geführt. Das aber darf nicht darüber hinwegtäuschen, dass weltweit immer mehr Staaten
+in Kriegshandlungen verwickelt sind, weil in der heutigen Zeit Kriege multinational geführt werden. Das
+bedeutet, dass sich immer mehr Nationen zu einer multinationalen Armee zusammen schliessen und so
+gemeinsam einen Krieg gegen einen oder mehrere Kontrahenten führen, wie z.B. im Irak und in Afghanistan.
+Gemäss plejarischen Angaben wurden auf der Erde seit alters her bis in die heutige Zeit rund 15 000 Kriege
+geführt, wobei rund 4 Milliarden Menschen oft furchtbare Tode gestorben sind. Und wenn die effective
+Friedenszeit betrachtet wird, die in den vergangenen Jahrtausenden auf der Erde herrschte, dann sieht diese
+äusserst erbärmlich aus, sind es doch gerademal nur rund 250 Jahre, und zwar spärlich verteilt auf die
+letzten 10 000 Jahre.
+Kriege kosten immer viel Geld, weshalb die Staaten auch horrende Militärbudgets haben, die um so grösser
+sind, desto grössere Armeen existieren. China hat die grösste Armee der Welt, denn es hat z.B. 2,25 Millionen Mann unter Waffen, die USA 1,4 Millionen und Russland 1 Million. Den grössten Militärhaushalt
+hat jedoch nicht China mit 85 Milliarden US-Dollar, sondern den belegen die USA mit 636 Milliarden USDollar. Russland weist einen Militärhaushalt von 56 Milliarden aus, während Deutschland einen 31,5 Milliarden Euro schweren Militäretat aufzuweisen hat.
+Billy
+
+## Ein tödliches Krokodil
+#### Krok – Krokodil – Desomorphin
+Immer wieder werden wir durch die Medien über neue Drogen informiert und damit konfrontiert. Als eine
+der schrecklichsten Drogen der letzten Jahre wurde Crystal Meth bekannt (siehe Bulletin Nr. 23/2). Eine
+synthetische Droge, die die Süchtigen innerhalb kürzester Zeit entstellt. Nun wurde Crystal Meth durch
+eine neue Horrordroge um ein Vielfaches übertroffen.
+Diese Droge tauchte erstmals 2002 in Russland auf und breitet sich seit damals epidemieartig aus. Ihr
+Name ‹Desomorphin› ist in der Drogenszene besser bekannt als Krokodil oder Krok. Desomorphin ist
+eigentlich keine neue Droge, denn es wurde erstmals 1932 in den USA synthetisiert. Es ist ein hochpotentes
+Opioid (früher Opiat). Desomorphin ist ein schmerzlinderndes und euphorisierendes Morphinderivat aus
+der Gruppe der Opioide und wird synthetisch hergestellt. In den USA wurden Anfang des 20. Jahrhunderts Versuche auf der Grundlage von Morphin durchgeführt, um neue Arzneistoffe zu erhalten, die einen starken schmerzlindernden Effekt haben sollten, jedoch keine chemische Abhängigkeit hervorrufen.
+Mehrere pharmakologische Stoffe wurden entwickelt. Die besten Perspektiven boten sich für Deso morphin
+und Metopon. Bei Tierversuchen wurde festgestellt, dass der Stoff stärker und schneller schmerzlindernd
+ist als Morphin. Jedoch später stellte sich heraus, dass diese Wirkung durchschnittlich nur rund vier Stunden dauert und dass die Abhängigkeit zu schnell einsetzt. Aus diesem Grund fand Desomorphin keine
+Anwendung als Schmerzmittel. Im Ausland wurde Desomorphin nach Operationen kurze Zeit als Schmerzmittel verwendet und unter dem Namen ‹Permonid› (Roche) verkauft.
+
+**Struktur und Eigenschaften**
+Desomorphin (C17H21NO2, Mr = 271.4 g/mol) ist Des-O-Morphin, d.h. Morphin, dem ein Sauerstoffatom
+fehlt. Es entspricht Morphin bis auf die sekundäre Hydroxygruppe und die Doppelbindung und wird auch
+
+
+-----
+
+als 7,8-Dihydro-6-desoxymorphin bezeichnet. Desomorphin wurde in den 1930er Jahren synthetisiert und
+1934 patentiert. Es wurde ursprünglich als Nachfolger für Morphin entwickelt und sollte auch beim Drogen entzug eingesetzt werden. Desomorphin kann zum Beispiel durch eine katalytische Hydrierung aus Vorläuferchemikalien gewonnen werden.
+
+Das Interesse an Betäubungsmitteln stieg in den letzten Jahren enorm. Desophormin ist Heroin sehr ähnlich, da beide Stoffe eine starke Abhängigkeit hervorrufen. In Russland sind bereits mehrere hundert tausend bis zu einer Million meist junge Menschen desomorphinabhängig. Der wichtigste Grund für die
+Erscheinung und Verbreitung von Desomorphin ist seine einfache Herstellung. Es ist ziemlich billig, weil
+die nichtindustrielle Herstellung verhältnismässig preiswert, schnell und simpel ist. Ein Schuss Heroin kostet
+im Schnitt 60–120 Franken. Ein Schuss Krok nur etwa 6 Franken.
+Die Pharmaindustrie produziert kein Desomorphin mehr. Es kann in den eigenen vier Wänden aus codein haltigen Arzneimitteln und Haushaltschemie hergestellt werden. In Russland sind die meisten codeinhaltigen
+Arzneimittel rezeptfrei, was die Herstellung von Desomorphin vereinfacht.
+
+**Codein (aus Wikipedia, freie Enziklopädie)**
+Codein ist eine natürlich vorkommende chemische
+Verbindung aus den Gruppen der Alkaloide und
+Opiate. In der Medizin wird Codein als Arzneistoff
+eingesetzt. Es wird als Schmerzmittel meist in Kom bination mit Paracetamol sowie als Hustenstiller verwendet. Das erste Patent zum Einsatz als Arzneimittel
+hatte im Jahr 1912 das Pharmaunternehmen Boehrin ger Ingelheim.
+Der Anteil von Codein in Opium, der natürlichen
+Quelle dieser Substanz, liegt bei 1–2%.
+
+Auf diese Weise erhält man eine ‹schmutzige›, also besonders gefährliche Droge. Bei der privaten Herstellung von Desomorphin werden eine Reihe chemischer Stoffe verwendet: Industriesäuren, Alkali, organische
+Lösungsmittel (Benzin u.a.m.). Grösstenteils werden die genannten chemischen Verbindungen in der Form
+verwendet, in der sie in der Industrie eingesetzt werden, und nicht als reine Reagenzmittel.
+Zu den beigemischten Stoffen, die während der Drogengewinnung nicht herausgefiltert werden, gehört
+Jod in hoher Konzentration, das Probleme mit der Schilddrüse und Muskelstörungen verursacht, sowie
+roter Phosphor (der von der Seite von Streichholzschachteln abgeschabt wird), der das Knochengewebe
+zerstört. Ebenso enthält der Stoff gefährliche Zusätze von Schwermetallen, nämlich Eisen, Zink, Blei und
+Antimon, die zu Problemen mit dem zentralen Nervensystem führen, den Mineralhaushalt stören und Entzündungen in Leber und Nieren auslösen.
+Die Abhängigkeit der Droge setzt häufig sofort nach dem ersten Schuss ein. Gleich nach der ersten Einnahme verschlechtert sich die Gesundheit rapide: Das Immunsystem, die Leber und die Blutgefässe werden
+zerstört, die Gliedmassen sterben ab. Geschwüre, die nicht heilen, treten auf, so dass der Mensch buchstäblich bei lebendigem Leibe verfault. Die Venen, die sich neben der Einspritzstelle befinden, ‹verbrennen›.
+
+
+-----
+
+An der Injektionsstelle platzen Blutgefässe, und die um die Einstichstelle liegende Haut wird grün und
+schuppig – ähnlich wie die eines Krokodils. Deswegen der Spitzname ‹Krokodil› oder ‹Krok›.
+Desomorphinabhängige leben höchstens ein Jahr lang. Ausserdem sind nach Angaben der Gesundheits fürsorge über 33 Prozent der Desomorphinabhängigen mit Hepatitis C infiziert. Wegen den chemischen
+Eigenschaften von Desomorphin kommen die Abhängigen nie von diesem Stoff los. Die Hälfte der Kranken
+greift früher oder später wieder zur Droge oder zu Codeintabletten.
+Früher waren es Heroinabhängige, die auf Desomorphin umstiegen. In der letzten Zeit gibt es immer mehr
+Menschen, die mit Desomorphin einsteigen.
+
+In Deutschland wurden in jüngster Zeit in der Heroinszene erste Meldungen über das Erscheinen der neuen
+Horrordroge Desomorphin bekannt. Offenbar vergifteten sich schon vier Heroinabhängige mit Krok und
+zogen sich dabei schwere Gewebeschäden zu.
+
+_Nach dem ersten Stich wird die Haut schuppig und der Körper fängt an zu faulen._
+_(Das Foto links wurde von ‹Gorod bez Narkotikov› zur Verfügung gestellt.)_
+
+_Bilderquellen im Uhrzeigersinn v.o.l.:_
+_www.pselbst.de_
+_www.Dangerousminds.net_
+_http://de.sott.net_
+_http://thecargoculte.com_
+
+Es ist nur eine Frage der Zeit, bis Krokodil den europäischen Drogenmarkt überschwemmt und sich die
+Droge bei uns epidemieartig ausbreiten wird. Deswegen ist es unumgänglich, das Thema Desomorphin
+durch die Medien zu verbreiten und die Heroinabhängigen in bestmöglicher Weise zu informieren, aufzuklären und zu sensibilisieren.
+
+
+-----
+
+Ein Aufruf an alle Süchtigen: Meldet jeden Desomorphin-Fall, der Euch zu Ohren kommt! Schont keinen
+Dealer, der mit dem Dreckzeug handelt! Wenn es Euch widerstrebt, mit der Polizei zu kommunizieren,
+meldet es den Drogenberatungsstellen! Es geht hier wirklich einzig und allein um Euer Überleben.
+Der Artikel basiert auf Informationen offener Quellen.
+Anneliese (Liesel) Thoma und Silvano Lehmann, Schweiz
+
+## Ein weiterer bemerkenswerter Leserbrief:
+
+
+-----
+
+### VORTRÄGE 2012
+Auch im Jahr 2012 halten Referenten der FIGU wieder Geisteslehre-Vorträge usw. im Saal des Centers:
+
+**28. April 2012:**
+Bernadette Brand **Die Macht der Religionen, Sekten, der falschen Philosophien und des Glaubens,**
+**die Macht der Gedanken und Gefühle, und die Macht der Ehrlichkeit in bezug**
+**auf eine Selbstbeurteilung.**
+_Erklärungen Billys zum Vortrag ‹Jungfräulichkeit›_
+
+Stephan Rickauer **Einführung in die Meditation**
+_Meditation führt zur Entfaltung aller physischen, psychischen und bewusstseinsmässi -_
+_gen Faktoren des Menschen. Meditieren lernen sollte daher jeder, der sich aktiv für_
+_die eigene Evolution und für das eigene Weiterkommen in bezug auf das Leben und_
+_dessen Sinn einsetzen will. Sie ist ein Teil der ursprünglichen Lebensaufgabe des_
+_Menschen, nämlich wahre Erkenntnis des eigenen Selbst zu finden._
+
+**23. Juni 2012:**
+Philia Stauber **Individualitätsblock**
+_Der Charakter – seine Bildung, Funktion und Abhängigkeit_
+
+Hans-Georg Lanzendorfer:
+**Selbstdisziplin und Toleranz**
+_Über den Umgang mit der eigenen Liederlichkeit._
+
+**25. August 2012:**
+Pius Keller **Sich selbst erkennen und kennenlernen**
+_Sich und die natürlich-schöpferische Wirklichkeit erkennen, erfassen und begreifen lernen._
+
+Natan Brand: **Erziehung ist alles!**
+_Wie Beziehungs- und Bindungsstörungen entstehen. Was Beziehung ist und wie der_
+_adäquate Umgang damit gelernt werden kann._
+
+**27. Oktober 2012:**
+Patric Chenaux **Zwischenmenschlichkeit …**
+_Die Grundlagen für ein friedliches und harmonisches Zusammenleben._
+
+Christian Frehner **Gesundheit und Krankheit**
+_Schicksal? Zufall? Chance? Pflicht?_
+
+Pünktlicher Vortragsbeginn um 14.00 Uhr.
+
+Eintritt: CHF 7.– (Eintritts-Ermässigung für FIGU-Mitglieder bei Vor weisen eines gültigen Ausweises.)
+
+An den Vortrags-Samstagen trifft sich im Semjase-Silver-Star-Center um 19.00 Uhr eine Studiengruppe,
+zu der alle interessierten Passiv-Mitglieder herzlich eingeladen sind.
+Die Kerngruppe der 49
+
+## VORSCHAU 2012
+
+Die nächste Passiv-Gruppe-Zusammenkunft findet am 26. Mai 2012 statt. Reserviert Euch dieses Datum
+heute schon! Die persönlichen Einladungen mit näheren Hinweisen folgen zu gegebener Zeit.
+**Hinweis:**
+Kinder unter 14 Jahren ohne Passivmitgliedschaft haben zwecks Vermeidung einer Infiltrierung durch die
+FIGU keinen Zutritt zur Passiv-GV.
+Die Kerngruppe der 49
+
+
+-----
+
+**IMPRESSUM**
+**FIGU-Bulletin**
+**Druck und Verlag: Wassermannzeit-Verlag, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+**Redaktion: ‹Billy› Eduard Albert Meier, Semjase-Silver-Star-Center, CH-8495 Schmidrüti ZH**
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+**Abonnemente:**
+Erscheint unregelmässig; Preis pro Einzelnummer: CHF 2.–
+(Zusammen mit einem Abonnement der ‹Stimme der Wassermannzeit› oder der ‹Geisteslehre-Briefe› als Gratis-Beilage.)
+**Postcheck-Konto: FIGU-CH-8495 Schmidrüti, PC 80-13703-3**
+**E-Mail: info@figu.org**
+**Internet: www.figu.org**
+**FIGU-Shop: http://shop.figu.org**
+
+
+-----
+
