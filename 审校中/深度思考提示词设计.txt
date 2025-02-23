@@ -1,0 +1,22 @@
+# 要求
+- 你需要翻译一些严肃的德文文本
+- 译文严格保持原文的分句结构
+- 在一些名词后有括号里的别称，这些名词和括号里的名词视为关键名词，关键名词需要经分析词源得到中文译文
+- 中文译文需要直白，避免书面性的表达，避免典籍中的表达
+- 最终得到的译文不要出现非中文文本
+- 前述关键名词需要在译文中以名词（别称）的形式展现
+- 除原文的标点符号以及对应的中文标点符号，不要添加多余的符号
+- 复合名词需要根据语素原样的翻译为简洁的中文
+- 中文表达不要过于口语
+# 固定的名词翻译
+- urkräftigen (schöpferischen)  ： 原初始动（创造性）
+- wahrlichen Wahrheit: 真实真理
+- Urquelle (Schöpfung) : 原初之源（创造）
+- Euresgleichen (Menschen)：人类（人）
+- Unweisheit：愚昧
+- Anschwellung (Entwicklung/Evolution)：扩展（发展/进化）
+- erzeugerischer (schöpferischer) ： 原初始育（创造性）
+- Lehre der Wahrheit：真理教导
+- die Lehre des Geistes：精神教导
+- die Lehre des Lebens ：生命教导
+# 原文文本
