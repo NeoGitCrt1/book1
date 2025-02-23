@@ -1241,40 +1241,40 @@ Semjase银星中心，2008年7月13日，3:21，比利
 190) 要知晓原初之源（创造）的真实真理（本真）——这真理是唯一的存在，并通过宣告者、先知向你们揭示其法则与诫命；不要认为不同宣告者、先知之间的教导有差别，因为他们所传的真理教导是一贯的，只是根据你们的理解不断以新形式呈现，以便在每个新时代持续扩展（发展）、重新解释与应用；而来自先知一脉的最后一位先知，将以最详尽的阐述方式解释真理教导、精神教导与生命教导，最终以一种独特的方式完成这一过程，此后先知一脉将永久终结且不再延续。
 
 191) Und wenn ihr wissend seid, dann seid ihr wahrlich geleitet; kehrt ihr jedoch um, dann ruft ihr in euch Spaltung hervor, wodurch ihr der Billigkeit (Gerechtigkeit) und dem Dasein sicherlich nicht mehr genügen werdet, denn dann seid ihr Allvertiefende (Allhörige) eines Glaubens und wider besseres Wissen.
-191) 当你们成为知晓者（认知主体）时，便真正获得指引；但如果你们转身背离，那么你们就会在自身中引起分裂，从而你们将不再满足公正和存在的要求，因为那时你们已成为信仰的全信者（全听者），背弃了更好的知识。
+191) 当你们知道这些教导时，便真正获得指引；但如果你们转身背离，那么你们就会在自身中引起分裂，从而你们必然不再满足公正和存在的要求，因为那时你们已成为信仰的全信者（全听者），背弃了更好的知识。
 
 192) Nehmt die Lehre der Wahrheit an, die Lehre der Gesetze und Gebote der Gestaltung (Schöpfung); und wer ist ein besserer Lehrer der Wahrheitslehre als die wahren Propheten, denen die urkräftigen (schöpferischen) Gesetze und Gebote geläufig sind, die sie seit alters her erlernten!
-192) 接受真理的教导，接受创造（Schöpfung）的法则和诫命的教导；谁是比真正的先知更好的真理教师呢？他们自古以来就熟悉这些原始的（创造性的）法则和诫命，并学会了它们！
+192) 接受真理教导，接受构造（创造）的法则和诫命的教导；还有谁比真正的先知更适合担任真理教导的教师呢？他们自古以来就通晓这些原初始动（创造性）的法则和诫命！
 
 193) Streitet nicht unter euch über die wahrliche Wahrheit, denn die Wahrheit ist gegeben durch die Gesetze der Kraft der Entstehung (Schöpfung) und unabänderlich; und die Kraft der Entstehung (Schöpfung) allein ist die grosse Macht und das unmessbare Geheimnis, der ihr keine Götter und Götzen zur Seite stellen sollt; allein die Kraft der Entstehung (Schöpfung) ist das Höchste über euch, und sie hat ihre grossen Werke getan, aus denen alle Himmel (Universum) und alles Leben hervorgegangen sind, also tut auch eure Werke, damit auch aus ihnen Grosses als Grosses und Gutes als Gutes hervorgehe; und seid aufrichtig in eurem Tun, damit ihr nicht Frevler seid; daher haltet den Namen der Erschaffung (Schöpfung) heilig, damit ihr ihn nicht missbraucht.
-193) 你们不要彼此争论关于真实真理的事，因为真理是由创造（Schöpfung）的法则所赋予的，且不可改变；唯有创造的力量是伟大的力量和无法测量的奥秘，你们不应将任何神明或偶像与之并列；唯有创造的力量在你们之上至高无上，它已经完成了它伟大的工作，所有的天宇（宇宙）和一切生命都由此而来，因此你们也要做你们的工作，使其中也能产生伟大和美好；你们的行为要真诚，以免成为罪人；因此，你们要尊崇创造（Schöpfung）之名，以免滥用它。
+193) 你们不要彼此争论关于真实真理的事，因为真理是通过起源（创造）的法则被赋予且不可更改的；起源（创造）本身就是伟大的力量和不可测度的奥秘，你们不应将任何神明或偶像与之相提并论；唯有起源（创造）是你们之上的至高存在，它已完成自己伟大的造物工程，诸天（宇宙）万象与森罗众生都由它而生，因此你们也要完成自己的作为，使其中也能产生伟大和美好；并在你们的行为中保持正直（诚实），避免犯下罪恶；因此，你们应尊崇创造之名，勿要滥用。
 
 194) Wisst ihr, dass alle Euresgleichen (Menschen) immer Euresgleichen (Menschen) waren, sowohl die Gläubigen in Gottheiten und Götzen wie auch die Wissenden der Wahrheit um die Erschaffung (Schöpfung)?; oder glaubt ihr, es besser zu wissen als die Propheten, die nur der Wahrheit zugetan sind?; und bedenkt, dass ihr Billigkeitslose (Ungerechte/Verantwortungslose/Gerechtigkeitslose) seid, wenn ihr der Propheten Zeugnis der Wahrheit verhehlt und dass euer falsches Tun nicht achtlos bleiben wird.
-你们知道吗，所有你们人类（人）始终是你们人类（人），无论是信仰神祇和偶像的人，还是知晓创造（创世）真理的人？或者你们认为自己比那些只忠于真理的先知更懂？请记住，如果你们隐瞒先知对真理的见证，你们就是不公平的（不公正的/不负责任的/不正义的），而你们的错误行为不会无动于衷。
+194) 你们可知，，无论是信仰神祇和偶像的人，还是知晓创造（创世）真理的人，所有人类（人）始终都是人类（人）？或者你们自以为比只遵循真理的先知更明理？且要明白：当你们隐瞒先知对真理的见证（证言）时，便是不义的（不公正的/不负责任的/不正义的），你们的错误行为也不会被忽视。
 
 195) Es ist gelehrt, dass die alten Völker dahingefahren sind nach ihrem Verdienst, der im Unwert war, weil sie die Wahrheitslehre verhehlten und missachteten; tut ihnen nicht gleich, so ihr nicht befragt werdet nach deren Taten und ihnen nicht gleichgestellt werdet.
-195) 据教诲，古时的人们因其行为而离去，这些行为本无价值，因为他们隐瞒并轻视了真理的教义；若你们未被问及他们的行为，也不被与他们相提并论，那么不要效仿他们。
+195) 据教诲，古时的人们因其毫无价值的行为而导致消亡，因为他们隐瞒并轻视了真理的教义；所以不要效仿他们，这样你们就不会被问起他们的所作所为且不会被视为与他们等同。
 
 196) Tut ihr gleich den alten Völkern, die nach ihrem Verdienst dahingegangen sind, indem sie von der Wahrheit abgefallen sind, dann werdet ihr danach gefragt, warum ihr von der wahrlichen Wahrheitslehre abwendig geworden seid, die ihr doch befolgt habt; also seid ihr gewiss wohlgeleitet auf dem rechten Pfad, im Osten, Westen, Süden und Norden, wenn ihr der Wahrheit euren Tribut leistet.
 196) 如果你们像那些古老的民族一样，因背离真理而灭亡，那么你们将会被质问，为何背离了你们曾经遵循的真正真理教导；因此，如果你们向真理致敬，你们必定在东方、西方、南方和北方的正道上得到良好引导。
 
 197) Die Gesetze der Urquelle (Schöpfungsgesetze) bestimmen, dass ihr euch zu Völkern erheben und in Frieden, Liebe, Freiheit und in Eintracht (Harmonie) miteinander leben sollt, und ihr sollt Wächter dieser Werte sein; und es sollen keine Gesetze eingesetzt sein, durch die Frevler (Gesetzesbrüchige), Übeltäter und Unrechtschaffene (Gewissenlose) Strafen ausgesetzt werden, die ihnen Schaden an Leib und Leben bringen, also weder Folter noch Todesdrohung noch deren Vollendung sein soll, denn des Euresgleichen (Menschen) inneres Befinden (Psyche) und Leib und Leben müssen unantastbar sein; es ist nicht der Urquelle (Schöpfung) Art und nicht deren Gesetze und Gebote, dass der Mensch im inneren Befinden (Psyche) oder an Leib und Leben geharmt werde, denn Strafe soll nur sein dadurch, indem Massnahmen der Aussonderung aus dem Volk (Gesellschaft) für eine bestimmte Dauer gegeben sei; ihr sollt in der Welt eurer Gedanken und eurer Eindrücke (Gefühle) barmherzig und gnädig gegenüber allem Leben und in eurem Wissen um die Wahrheit der urkräftigen (schöpferischen) Gesetze und Gebote furchtlos sein.
-197) 本源法则（创世法则）规定，你们应当崛起为民族，在和平、爱与自由中和谐共处，并成为这些价值的守护者；且不应设立任何法律，使违法者、作恶者及无良之人受到伤害其身体与生命的惩罚，即不应有酷刑、死刑威胁或执行，因为你们人类（人）的内心（心理）与身体及生命皆不可侵犯；本源（创世）之本性及其法则与诫命，并非使人在内心（心理）或身体及生命上受伤害，故惩罚仅应通过将之从民族（社会）中隔离一段时间的措施来实现；你们应在思想与感受（情感）的世界中对一切生命仁慈与宽厚，并在对本源力量（创世）法则与诫命真理的认知中无畏无惧。
+197) 原初之源（创造）的法则规定：你们应在同类中被抚养，在和平、爱、自由与协和（和谐）中共存，并成为这些理念的守护者；且不应设立任何法律使悖逆者（违法者）、恶行者（作恶者）与不义者（无良知者）遭受身体与生命上的惩罚，即不应有拷问（酷刑）、死亡威胁（死刑恐吓）的规定和实施，因为人类（人）的内在状态（心理）及身体与生命皆不可侵犯；原初之源（创造）的本性与法则诫命并非要让人类在内在状态（心理）或身体与生命（人身安全）上受折磨，故惩罚只能通过从族群（社会）中隔离一段特定时间的措施来实现；你们应当在思想与感受（情感）的世界中，对一切生命保持怜悯与宽容，并在对原初始动（创造性）法则与诫命的真实真理的认知中无所畏惧。
 
 198) Oft wendet ihr euer Antlitz gen Himmel und schaut hinauf zu den Sternen, wo ihr eure Götter und Götzen sucht, doch sind diese nicht dort, weil sie nur Gespinste eurer Gehirne sind; wahrhaftig jedoch, wenn ihr in den Himmel schaut und auf die Erde und auf alles, was darauf kreucht und fleucht, dann seht ihr das grosse und unermessliche Werk der Urquelle (Schöpfung), der alleinigen; also wendet euer Gesicht (Augen) zu all dem, was die Urquelle (Schöpfung) erschaffen hat und seit alter Zeit bewahrt, denn allein das ist die Wahrheit und die Wirklichkeit; und wo immer ihr seid, wendet euer Antlitz zu den Wundern (Überragendem) der Urquelle (Schöpfung) hin, damit ihr die Wahrheit erkennt und auch die Schrift der Wahrheit erkennt, die euch gegeben ist und die euch dereinst ausführend als wertvolles Buch gegeben wird, wenn es der letzte Prophet der einen Linie in aller Ausführlichkeit hervorbringt und euch überreicht; und er wird euch die Wahrheitslehre lehren wie kein anderer zuvor, und so wird die Lehre der Wahrheit, die Lehre des Geistes, die Lehre des Lebens künftighin nicht achtlos bleiben, denn das Tun des letzten Propheten wird beispiellos überragend sein.
-198) 你们常常仰望天空，凝视星辰，寻找你们的神和偶像，但它们并不在那里，因为它们只是你们脑海中的幻象；然而，如果你们仰望天空，俯视大地，以及一切在其上爬行和飞翔的生物，那么你们将看到那伟大而无限的造物（创世之源）的杰作，它是唯一的；因此，将你们的目光转向造物（创物之源）所创造的一切，这些自古以来就被保存下来，因为只有这才是真理和现实；无论你们身处何地，都要将你们的面容转向造物（创世之源）的奇迹（卓越之物），以便你们认识真理，也认识那赐予你们的真理之书，这本书将在最后一位先知详尽地呈现并交予你们时，成为一本珍贵的书；他将教导你们真理的教义，如同无人能及，因此，真理的教义、精神的教义、生命的教义在未来将不再被忽视，因为最后一位先知的行为将是无与伦比的卓越。
+198) 你们常常仰望天空，凝视星辰，寻找你们的神和偶像，但它们并不在那里，因为它们只是你们脑海中的幻象；然而，当你们望向天空、大地及爬行与飞翔的万物时，你们看到的是那原初之源（创造）独一无二伟大而无限的的杰作；因此，应将你们的目光转向原初之源（创造）所创造的一切，这些自古以来就被保存下来的一切，因为唯独这些才是真理与存在；无论你们身处何地，都应将目光转向原初之源（创造）的非凡之作（卓越创造），以便你们认知真理，也认知那已赐予你们的真理之书，当先知一脉最后的先知以最详尽方式编纂并交付你们时，将以珍贵典籍的形式最终赋予你们；他将以空前的方式指引你们认知真理教导，从此真理教导、精神教导与生命教导在未来将不再被忽视，因为最后一位先知的作为将是无与伦比的卓越。
 
 199) Der letzte Prophet bringt die Schrift der Wahrheitslehre, wie auch jegliche Zeichen (Wundersamkeiten/Beweise) seiner Kraft und der wahrlichen Wahrheit, und dieser sollt ihr folgen; folgt ihr nicht der wahrlichen Wahrheit, dann folgt ihr irren Lehren, deren falschen Kenntnissen und Wünschen; dann seid ihr wahrlich Billigkeitslose (Ungerechte/Verantwortungslose/Gerechtigkeitslose).
-199) 最后的先知带来了真理教义的经典，以及他力量和真实真理的一切迹象（奇迹/证明），你们应当追随他；若你们不追随真实的真理，那么你们就是在追随错误的教义，那些虚假的知识和欲望；那么你们确实是不公正的（不义的/不负责任的/无正义的）。
+199) 最后的先知带来了真理教义的经典，以及他力量和真实真理的一切迹象（奇迹/证明），你们应当追随他；若你们不追随真实的真理，那么你们就是在追随错误的教义，那些虚假的知识和欲望；那么你们确实就是不义的（不公正的/不负责任的/不正义的）。
 
 200) Den Vernünftigen unter euch, denen die Schrift der Lehre der Wahrheit gegeben wird, sie erkennen sie als Wahrheit, so wie sie ihre eigenen Kinder erkennen; andere jedoch sind Unvernünftige, denn sie verhehlen wissentlich (bewusst) die Wahrheit.
-对于你们中有理智的人，他们被赐予真理教导的经文，他们认识这真理，如同认识自己的孩子一样；然而其他人则是不理智的，因为他们故意隐藏真理。
+200) 对于你们中有理智的人，他们被赐予真理教导的经文，他们认识这真理，如同认识自己的孩子一样；然而其他人则是不理智的，因为他们故意隐藏真理。
 
 201) Alle Wahrheit ist bei der Erzeugung (Schöpfung) und in ihren Gesetzen und Geboten, darum erschafft nicht in euch eine eigene und falsche Wahrheit, sonst macht ihr euch zu Billigkeitslosen (Ungerechten/Verantwortungslosen/Gerechtigkeitslosen) und zu Zweiflern.
-201) 所有的真理都存在于创造（创世）及其法则和诫命之中，因此不要在你们内心创造出一种自我且虚假的真理，否则你们将使自己成为不公正者（无责任感者/缺乏正义者）和怀疑者。
+201) 所有的真理都存在于创世（创造）及其法则和诫命之中，因此不要在你们内心虚构出自我且虚假的真理，否则你们将使自己成为不公正者（无责任感者/缺乏正义者）和怀疑者。
 
 202) Jeder hat ein Ziel, nach dem er strebt, daher wetteifert miteinander in guten Werken, damit ihr grosse Dinge vollbringt, wo immer ihr seid; findet einander zusammen zu grossen Werken, dann habt ihr die Macht, alles zu tun und zu erreichen, was ihr auch anstrebt; nutzt und tut jedoch immer alles im Guten, damit ihr nicht als Billigkeitslose (Ungerechte/Verantwortungslose/Gerechtigkeitslose) endet.
-每个人都有追求的目标，因此要在善行中相互竞争，无论身处何地，都要成就伟大的事业；如果你们能够团结一致，共同完成伟大的工作，那么你们就有能力实现和达成所追求的一切；然而，务必始终以善为出发点行事，以免最终成为不公正、不负责任或缺乏正义感的人。
+202) 每个人都有追求的目标，因此要在善行中相互竞争，无论身处何地，都要成就伟大的事业；如果你们能够团结一致，共同完成伟大的工作，那么你们就有能力实现和达成所追求的一切；然而，务必始终以善为出发点行事，以免最终成为不公正、不负责任或缺乏正义感的人。
 
 203) Und woher immer ihr kommt, kehrt euer Gesicht (Augen) zur Wahrheit hin, damit nicht sonder (abartig) Zweifel gegen sie in euch erregt und euer Tun nicht achtlos wird.
 203) 无论你们来自何方，都要将你们的视线（目光）转向真理，以免在你们心中激起异常的怀疑，使你们的行为变得漫不经心。
