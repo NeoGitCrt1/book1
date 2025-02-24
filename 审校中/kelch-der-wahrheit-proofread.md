@@ -1367,6 +1367,20 @@ Semjase银星中心，2008年7月13日，3:21，比利
 232) 因你们信仰那些要求血祭、复仇与惩罚的神灵与偶像，你们便认为报复是正当的规则，并认为应为被杀者（谋杀受害者）、通奸、偷盗与欺诈等行为流血甚至夺命——正如你们虚构的神灵偶像所命令的那样——只会要你们通过自创的复仇与报复手段对待犯错之人；然而真实的是：造物（创造）从未颁布过这样的法则，即恶行（犯罪行为）应通过复仇报复、肉体伤害或终结生命来惩罚，因为造物（创造）早已颁布诫命：你们不可因堕落而杀戮；不可出于复仇、惩罚、仇恨或嫉妒而杀戮，亦不可因掠夺、暴怒、贪婪等劣性而杀戮，因这些皆属偏离正途，既违背创世赋予（创造赋予）的法则，亦不配人类（人）的身份。
 
 233) Doch ihr glaubt an Gottheiten und Götzen, denen durch euch falsche und irre Mächte und Forderungen und das Bestimmen und Heischen von Rache und Vergeltung und Strafe zugesprochen wird, so Vergeltung in rechtem Mass geübt werden soll, durch Freie für die Freien, durch Sklaven für die Sklaven, durch das Weib für das Weib und durch den Mann für den Mann, doch das ist Lug und Trug, denn kein Gesetz und kein Gebot der Erbauung (Schöpfung) fordert gleich dem, sondern gegenteilig; Ahndung für Missetaten und Untaten sollen immer nur gegeben sein im Masse der urkräftigen (schöpferischen) Gesetze und Gebote, die derart gegeben sind, dass kein noch so Fehlbarer an Leib und Leben geharmt werde, so jede Missetat, Fehlhaftigkeit und Un tat jeder Art in Liebe und Menschlichkeit geahndet werde, so jeder Fehlbare, jedes Kind, jedes Weib und jeder Mann daraus eine gute Lehre ziehe und sich wandle zum Besseren und Guten, damit eine Eingliederung unter das Volk (Gesellschaft) wieder möglich werde, wenn die Voraussetzungen dazu gut stehen; ist eine Eingliederung in das Volk (Gesellschaft) nicht möglich, weil der verbrecherische oder mörderische Sinn der Fehlbaren sich nicht ändert und keine Vernunft und keine Liebe zutage gebracht wird, wie auch kein Frieden und keine Einigkeit (Harmonie), dann sollen die Fehlbaren auf Lebenszeit ausgesondert und an einen Massnahmeerfüllungsort (Ahndungs-Vollzugsort = Insel, abgelegenes Gebiet usw.) gebracht werden, wo sie in gefangener Freiheit sind und lernen, ausgesetzt mit allem Notwendigen, das sie für ihr Dasein brauchen; Massnahmeerfüllungsorte sollen abgelegene Gegenden und Inseln sein, von denen die Fehlbaren nicht zurück in die freie Freiheit gelangen können, sondern verbleiben müssen, wo sie sind.
+233) 然而你们信仰那些被你们赋予虚假与错乱权能、索求复仇、报复与制裁的神灵与偶像，主张应当实施等量报复：自由人向自由人、奴隶向奴隶、女性向女性、男性向男性；但这皆是谎言与欺诈，因为原初之源（创造）的法则与诫命从未要求此类行为，而是相反；对犯罪行为的惩戒应始终遵循原初始动（创造性）法则与诫命的尺度，这些法则被赋予时便确保：任何犯错者都不应遭受肉体伤害，每种恶行、过失与各类违法行为都应在仁爱与人道中被裁决，使得每位犯错者、孩童、女性与男性能从中汲取良性教导并向善转化，若相关前提条件良好，便可重归社会；若因犯错者的犯罪意识或谋杀倾向
+无法改变且未展现理性（理智）与仁爱（人道），
+亦无和平（安宁）与协和（和谐），
+则应将犯错者终身隔离（排除）
+并送至措施执行地（惩处实施地）——
+即岛屿、偏远区域等——
+使其在**受控自由（受限自由）**中生活，
+配备生存所需物资并接受教化；
+措施执行地（惩处实施地）应为偏远地域与岛屿，
+犯错者无法从此返回自由之境（无约束社会），
+而须永久居留该处。
+
+
+
 然而，你们却信仰那些神祇和偶像，这些神祇和偶像通过你们赋予了虚假和误导的力量和要求，以及复仇、报应和惩罚的命令，而这些报应应当以适当的方式进行，由自由人对应自由人，奴隶对应奴隶，女性对应女性，男性对应男性。然而，这些都是谎言和欺骗，因为没有任何律法和创造（创世）的诫命要求如此，相反；对罪行和恶行的惩罚应始终按照原始（创造性）的律法和诫命的尺度进行，这些律法和诫命是如此制定的，以至于无论多么有错的人都不会在身体和生命上受到伤害，而是每一种罪行、过失和恶行都应通过爱和人性来惩罚，以便每一个有错的人、每一个孩子、每一个女性和每一个男性都能从中吸取良好的教训，并转变为更好和善良的人，从而在社会（社会）中重新融入成为可能，如果前提条件良好；如果由于有错的人的犯罪或谋杀意图没有改变，没有表现出理性和爱，也没有和平与和谐，那么有错的人应终身隔离，并被带到一个措施执行地（惩罚执行地=岛屿、偏远地区等），在那里他们处于被囚禁的自由中，并学习，配备他们生存所需的一切必需品；措施执行地应是偏远的地区和岛屿，有错的人无法从那里返回到自由的自由，而必须留在他们所在的地方。
 
 234) Seid allzeit gemäss der Billigkeit (Gerechtigkeit/Verantwortung/massvoll) nachsichtig und vergebend; so sei es, wenn einem etwas erlassen wird von seinem Nächsten oder von der Obrigkeit oder vom Gericht, dann soll die Sühneforderung mit Berechtigung erhoben werden, und der Fehlbare soll durch einen billigenden (gerechten/angemessenen) Schuldspruch zur Ahndung gezogen werden, wobei jedoch weder Leib noch Leben geschädigt werden dürfen; die Gesetze und Gebote der Erbauung (Schöpfung) sind ausgelegt, dass ein jeder aus allem lerne und sein Wissen und seine Weisheit fördere, damit er gut werde und die Gesetze und Gebote der Liebe und der Erbauung (Schöpfung) zum eigenen Nutzen und zum Wohle aller befolge und alles zum Besten in sich erschaffe; allein, wer sich gegen diese Gesetze und Gebote der Erbauung (Schöpfung) vergeht, frevelt an ihnen und an der Wahrheit des Lebens und an allem, was des Rechtens ist; und wer sich ins Unrecht setzt und an der Wahrheit frevelt, den trifft schmerzliche Strafe in sich selbst – durch Lieblosigkeit, Hader, Unfreiheit, Unfrieden und Ungleichmass (Disharmonie) und viele Unwertigkeiten.
