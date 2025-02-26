@@ -9,35 +9,38 @@
 - 复合名词需要根据语素原样的翻译为简洁的中文
 - 中文表达不要过于口语
 # 固定的名词翻译
-- urkräftigen (schöpferischen)  ： 原初始动（创造性）
+- urkräftigen (schöpferischen)  :  原初始动（创造性）
 - wahrlichen Wahrheit: 真实真理
 - Urquelle (Schöpfung) : 原初之源（创造）
-- Entstehung (Schöpfung) ：起源（创造）
-- Euresgleichen (Menschen)：人类（人）
-- Unweisheit：愚昧
-- Anschwellung (Entwicklung/Evolution)：扩展（发展/进化）
-- erzeugerischer (schöpferischer) ： 原初始育（创造性）
-- Lehre der Wahrheit：真理教导
-- die Lehre des Geistes：精神教导
-- die Lehre des Lebens ：生命教导
-- Gestaltung (Schöpfung)：构造（创造）
-- Billigkeitslose ：不义的
-- Verantwortungslose：不负责任的
-- Ungerechte：不公正的
-- Gerechtigkeitslose： 不正义的
-- Erzeugung (Schöpfung) ：创世（创造）
+- Entstehung (Schöpfung) : 起源（创造）
+- Euresgleichen (Menschen): 人类（人）
+- Unweisheit: 愚昧
+- Anschwellung (Entwicklung/Evolution): 扩展（发展/进化）
+- erzeugerischer (schöpferischer) :  原初始育（创造性）
+- Lehre der Wahrheit: 真理教导
+- die Lehre des Geistes: 精神教导
+- die Lehre des Lebens : 生命教导
+- Gestaltung (Schöpfung): 构造（创造）
+- Billigkeitslose : 不义的
+- Verantwortungslose: 不负责任的
+- Ungerechte: 不公正的
+- Gerechtigkeitslose:  不正义的
+- Erzeugung (Schöpfung) : 创世（创造）
 - Erschaffenden 造物
-- Erschaffung：塑造
-- Künder：谕师
-- Propheten：先知
+- Erschaffung: 塑世始源
+- Künder: 谕师
+- Propheten: 先知
 - Aussehen (Natur) : 形貌（自然）
-- Urhebung：原初动力
-- Gesicht (Augen)：面容（视线）
+- Urhebung: 原初动力
+- Gesicht (Augen): 面容（视线）
 - Erbauung: 始筑
 - Urkraft (Schöpfung): 原初力量（创造）
 - Weisheit: 智慧本源
-- Einklang：协调
-- Harmonie：和谐
-- Formung：造物
+- Einklang: 协调
+- Harmonie: 和谐
+- Formung: 造物
+- Nokodemion: 诺科德米翁
+- Daseins (Schöpfung) : 存在（创造）
+- Fruchtbarkeit (Schöpfung): 育世（创造）
 # 原文文本
-320) Bescheidenheit ist das wahre Wesen des wahrlichen Euresgleichen (Menschen), der ehrlich und in Billigkeit (Gerechtigkeit/Verantwortung) einhergeht und der seine Worte und Taten danach bestimmt; und nicht dem kann vertraut werden, der sich selbst erhebt und sich in irgendeiner Weise über die anderen setzt, sondern wahrliches Vertrauen kann nur dem gegeben sein, der sein Dasein in Bescheidenheit führt und auch den Umgang mit euch in Bescheidenheit pflegt.
+363) Eure Innenwelt (Bewusstsein) ist wissend in vielen Dingen, doch wollt ihr nichts begreifen von ihrem Wissen, ausser das, was euch gefällt und euch Frohsinn bringt in Festlichkeiten, Genüssen und Lustbarkeiten.
