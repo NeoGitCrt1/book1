@@ -1,0 +1,16 @@
+Mensch der Erde, betrachte niemals die Dinge der Materie so, als wäre sie leblos und tot. Betrachte sie nicht so, nur weil sie dir kein Bewusstsein äussert oder du noch nicht fähig geworden bist, dieses zu erfassen. In Wahrheit aber ist die Materie nicht tot, und in ihr walten gar mächtige Kräfte. Als tot kannst du wahrlich nur das betrachten, was von einem Bewusstsein befreit und verlassen ist.
+地球之人啊，切勿将物质视为无生命与死亡之物。不要仅仅因为它们未向你展现意识，或你尚未能领悟其意识，便如此看待它们。事实上，物质并非死亡，其中蕴藏着强大的力量。唯有那些被意识所抛弃与脱离的，你方可视为真正死亡之物。
+
+Deine Furcht vor dem Tode, Mensch, als vor einer möglichen Vernichtung des Daseins, vermag dich nur so lange zu beherrschen, als du deinem Bewusstsein in dir noch nicht die Möglichkeit gegeben hast, zu erwachen.
+你对死亡的恐惧，人啊，作为对存在可能毁灭的恐惧，只有在你尚未赋予自己意识觉醒的可能性时，才能如此长久地支配你。
+
+Mensch der Erde, niemals war es dir möglich, und niemals wird es dir möglich sein, irgendwohin in einen Himmel oder irgendwohin in eine Hölle zu kommen. Als Mensch bereitest du dir Himmel und Hölle selbst, und so du also in einen Himmel gelangen willst, musst du dir diesen selbst bereiten. Der Keim zum Himmel aber liegt im Samen der Lehre des Geistes, in der Wahrheit, der Liebe, des Wissens, der Ausgeglichenheit und der Weisheit, die allesamt in Logik fundieren. Für dich, Mensch, ist es nur von Wichtigkeit, dass du und wie du diese Dinge in dir aufnimmst und damit du danach tätig wirst. Du in allen Dingen nämlich bist es selbst, der du den Samen zum Himmel in dich legst, und aus dir selbst wird so **DER und** **DEIN** Himmel erwachsen.
+地球人啊，你从未能够，也永远无法到达任何天堂或地狱。作为人，你自己创造了天堂和地狱，因此，若你想进入天堂，你必须自己创造它。然而，天堂的种子存在于精神教义的种子中，存在于真理、爱、知识、平衡和智慧之中，这些都建立在逻辑的基础上。对你来说，重要的是你如何将这些事物吸收进自己，并据此行动。因为，在一切事物中，正是你自己将天堂的种子植入内心，而从你自己身上，**那个**和**你的**天堂将会成长。
+
+In der wahrlichen Welt des Geistes ist das Materielle von unbedeutendem Wert. Was im Bezuge auf Materielles in der materiellen Welt gross geschrieben wird, das wird im Reiche und in der Sphäre des Geistes von nichtigem Wert sein. In keiner Form ist es aber so, wie die Kult-Religionen behaupten, dass wer auf und in der Welt gross ist, dass der im Reiche des Geistes klein sein wird, und es ist nicht so, dass wer auf und in der Welt klein ist, dass der im Reiche des Geistes gross sein wird. Im wahrlichen Reiche des Geistes nämlich herrscht in jeder Beziehung einige Harmonie und Frieden in absoluter Gleichheit. Keine in den Jenseitsbereich hinübergewechselte Geistform gilt dort mehr oder minder, so es nicht ist, dass wer auf der materiellen Welt der Erste ist, dort der Kleinste ist, und dass wer auf der materiellen Welt der Kleinste ist, dort der Grösste ist. Dort im Reiche des Geistes, im Jenseitsbereiche, ist jegliche Lebensform eingeordnet in die ausgeglichene Harmonie der Gleichstellung und der Gleichheit – ohne Unterschied von geistiger Grösse, und ohne Unterschied im Bezuge auf Titel, Armut, Reichtum usw. im zuvorigen materiellen Lebensbereich.
+在真正的精神世界中，物质的价值微不足道。在物质世界中备受推崇的物质财富，在精神领域和境界中却显得毫无价值。然而，这并非如某些宗教所宣称的那样，即在这个世界上伟大的人，在精神王国中将会变得渺小；也不是说在这个世界上渺小的人，在精神王国中将会变得伟大。在真正的精神王国中，各方面都存在着绝对的和谐与和平，人人平等。任何进入来世的精神形态，其价值并无高低之分，并非在物质世界中位居首位的人，在精神世界中就会变得最渺小；也并非在物质世界中最为渺小的人，在精神世界中就会变得最伟大。在精神王国中，在来世领域里，所有的生命形式都被纳入到平等和谐的秩序中——无论精神上的伟大与否，也无论在前世物质生活领域中的头衔、贫穷、财富等方面的差异。
+
+…翻译：……（省略号，表示未完成或省略的内容）
+
+说明：在德文中，省略号同样用“…”表示，与中文相同。这里直接保留了原文的省略号，未进行额外翻译或解释。
+

@@ -230,40 +230,40 @@ Billy:
 比利 (Billy)
 
 Ich werde darüber einmal gründlich nachdenken. Es bleibt bei dem eben Besprochenen nun aber noch die Frage bezüglich den Kristallen und Mineralien offen; wie vermagst du diese von ihren Strahlungen zu befreien? Wie ist der Vorgang, und wie funktioniert alles?
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+我会对此进行彻底的思考。但关于刚才讨论的内容，现在还有一个关于晶体和矿物的问题尚未解答；你如何将它们从它们的辐射中解放出来？这个过程是怎样的，以及一切是如何运作的？
 
 Semjase:
 赛姆雅斯 (Semjase)
 
 33. Wieder eine deiner Fragen, die ich nicht für die Erdenmenschen beantworten darf.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+33 又是你的一个问题，我不能为地球人解答。
 
 34. Eure Wissenschaftler kennen bereits in kleinen Werten die Absorbierung gewisser Strahlen aus gewissen Stoffen, doch aber erst in recht minimen Werten.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+34 你们的科学家已经了解到某些物质对某些射线的吸收情况，但还只是非常微小的数值。
 
 35. Unsere Arbeitsweise wird durch Apparaturen in regenerierender Arbeitsform gerechtfertigt, wogegen die eure auf zerstörerischer Basis aufgebaut wird.
 35. 我们的工作方式通过再生型设备得到验证，而你们的则建立在破坏性基础之上。
 
 36. Unsere Apparaturen entziehen den Dingen ihre Strahlung und setzen sie umgewandelt in guter Form wieder frei, so sie von den betreffenden Planeten wieder absorbiert werden kann.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+36 我们的设备会吸收物体的辐射并以良好的形式转换后重新释放，以便相关行星能够重新吸收
 
 37. Beim ganzen Vorgang handelt es sich um einen Regenerierungsprozess von natürlicher Ordnung.
 37. 整个过程涉及自然秩序的再生过程。
 
 38. Die Apparatur könnte daher nach euren Begriffen Neutralisator genannt werden.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+38 按照你们的概念这个装置可以被称为中和器
 
 Billy:
 比利（Billy）
 
 Aha, das leuchtet mir ein, doch für meine Mitmenschen dürfte deine Erklärung wohl etwas zu mager sein. Doch, wenn du nicht darüber sprechen darfst, dann will ich dich nicht drängen.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+啊哈，这对我来说很清楚，但对于我的同胞来说，你的解释可能有点太简单了。不过，如果你不能谈论这个，那我也不想强迫你。
 
 Semjase:
 Semjase: 瑟姆雅瑟（Semjase）是一个在瑞士接触者比利·迈尔（Billy Meier）的接触报告中提到的外星人名字。根据迈尔的说法，瑟姆雅瑟来自昴宿星团（Pleiades），并与地球人类进行了多次接触和对话。这些对话涉及了广泛的宇宙哲学、科学技术、以及地球未来的发展等话题。
 
 39. Dein Verständnis ist intuitiv, und es besagt mir viel mehr als deine Worte dies tun.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+你的理解是直觉的它比你的言语更能说明问题
 
 Billy:
 "Billy" 翻译成中文是 "比利"。
@@ -271,80 +271,80 @@ Billy:
 如果你有其他需要翻译的内容，请随时告诉我！
 
 Natürlich, doch eben noch hast du gesagt, dass ich mir nicht den Kopf zerbrechen soll über gewisse unzutreffende Beurteilungen hinsichtlich meiner Person, wogegen du nun selbst eine Anspielung bezüglich des Intuitiven anbringst.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+当然，可是你刚才还说我不要为某些关于我的不实评价费脑筋，现在你自己却提到了直觉方面的问题。
 
 Semjase:
 塞姆贾斯（Semjase）
 
 40. Du täuschst dich, denn daran habe ich im Augenblick nicht gedacht.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+40 你弄错了，因为我此刻并没有想到那件事。
 
 41. Meine Worte entsprangen dem reinen Verstehen deiner Äusserungen und deren Erkenntnis für mich.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+我的话语源于对你表达的纯粹理解及其对我的认知
 
 42. Sie stehen in keiner Weise in Verbindung mit der über dich abgegebenen falschen Beurteilung.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+42 它们与你所受到的错误评价毫无关联
 
 Billy:
 中文翻译：比利 (来源语言：英文)
 
 Dann nehme ich das Gesagte zurück.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+那我收回刚才说的话
 
 Semjase:
 塞姆雅瑟 (Semjase) 是德语中的名字，通常用于女性。在中文中，这个名字可以音译为“塞姆雅瑟”或“塞姆雅斯”。如果你有更多的上下文或需要进一步的翻译或解释，请提供详细信息。
 
 43. Das sollst du nicht, denn wir vermögen untereinander nur Klarheit zu schaffen, wenn wir stets offen miteinander sprechen.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+43 你不该这样，因为只有我们一直坦诚相对，才能彼此明白。
 
 Billy:
 "比利" (中文翻译)
 
 Das sind sehr gute Worte, die mich erfreuen. Doch möchte ich jetzt nochmals auf mein Problem zu sprechen kommen, das ich mir während unseres Gesprächs nochmals überlegt habe: Ich weiss zwar nicht, welche Aufgabenbereiche du vorläufig zurückstellen möchtest, doch frage ich mich, ob das gut und zweckdienlich ist?
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+这些都是让我非常高兴的好话。不过我现在想再次谈谈我的问题，在我们交谈的过程中我又重新考虑了一下：虽然我不知道你暂时想搁置哪些任务领域，但我自问，这样是否妥当和有效？
 
 Semjase:
 塞姆亚瑟（Semjase）
 
 44. Es wäre weder das eine noch das andere, und es wäre uns in jeder Hinsicht undienlich.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+这既不是前者也不是后者，而且在各方面对我们都没有好处。
 
 45. So es aber nicht anders zu gehen scheint, müssen wir diesen Schritt tun.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+既然似乎别无他法，我们只能采取这一步。
 
 46. Darüber werde ich mir eingehend Gedanken machen und mich auch mit den andern beraten.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+46. 我会深入思考这个问题并与其他同事商量。
 
 Billy:
 "比利" (翻译自英文)
 
 Es ist mir wirklich sehr leid, Semjase, doch ich bin effective nicht mit derartig grossen finanziellen Mitteln ausgestattet, dass ich ohne weitere finanzielle Einnahmen leben könnte. Du hast jedoch abermals die Rede auf die Kristalle und Mineralien gebracht und mich wieder an diese Dinge erinnert. Vielleicht kann ich doch durch irgendwelche Hilfe etwas in dieser Richtung unternehmen. Für dreissig bis vierzig Tage vermag ich andererseits mit meiner Familie noch mit Ach und Krach zu leben, ehe ich völlig am Ende bin. Wenn ich bis dahin etwas arrangieren kann, dann müssen wir an den bisherigen Formen nichts ändern, andernfalls dann aber alles auf ein Minimum einschränken, was auch mir äusserst leid wäre. Daher möchte ich die verbleibende Zeit noch nutzen und sehen, ob sich etwas tun lässt. Tut sich nichts, dann müsste ich meine eisernen Reserven angreifen.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+我真的非常抱歉，赛姆雅瑟，但我实际上并没有那么充裕的财力，能够不依赖其他收入生活。不过，你又提到了水晶和矿物，这让我再次想起了这些事。也许通过某种帮助，我可以在这一方面做些什么。另一方面，我和我的家人还能勉强支撑三十到四十天，之后就会彻底陷入困境。如果在此之前我能安排一些事情，那么我们就不必改变现有的生活方式，否则就不得不将一切缩减到最低限度，这也会让我感到非常遗憾。因此，我想利用剩余的时间，看看是否能够做些事情。如果没有任何进展，那我就不得不动用我的铁储备了。
 
 Semjase:
 Semjase（塞姆贾斯）是一个在德语文化中广为人知的名字，尤其是在UFO研究和接触者文献中。Semjase据说是来自昴宿星团的外星生物，与地球上的接触者Billy Meier有多次交流。这个名字在德语中没有直接的中文翻译，通常保留原文。在中文中，可以音译为“塞姆贾斯”或直接使用“Semjase”。
 
 47. Es freut mich sehr, deine Worte zu hören.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+47 我很高兴听到你的话。
 
 Billy:
 比莉 (中文翻译，源语言为英文)
 
 Es liegt mir selbst genausoviel an allem wie dir selbst, daher möchte ich noch das Letzte versuchen.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+我和你一样对一切都同样在意，因此我还想最后试一次。
 
 Semjase:
 塞姆雅斯 (Semjase) 是瑞士作家比利·迈尔（Billy Meier）在20世纪70年代所描述的与外星人接触的故事中的一位主要角色。在她的故事中，她被认为是来自昴宿星团（Pleiades）的外星人，与迈尔进行了多次接触，并分享了关于宇宙、地球和人类未来的信息。这些接触故事在UFO研究和新纪元运动中颇具影响力，但也受到了广泛的怀疑和批评。
 
 48. Du bist sehr gross in dir selbst, denn letztendlich geht es ja nicht um deinen Nutzen, sondern um den eurer Menschheit.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+48你在自我中非常伟大因为最终这不仅仅关乎你的利益而是关乎你们人类的利益
 
 Billy:
 Billy:
 比利（中文翻译，源语言：英语）
 
 Sie ist es aber meines Erachtens auch wert, wenn ich bedenke, was ihre Zukunft sein kann.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+在我看来，她也值得如此，当我考虑到她的未来会是什么样子时。
 
 Semjase:
 中文翻译：塞姆贾斯 (Semjase)
@@ -356,22 +356,22 @@ Billy:
 中文翻译：比利
 
 Papperlapapp, dann wäre ich nicht um den Lebensunterhalt usw. besorgt.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+胡言乱语，那我就不会为生计发愁了。
 
 Semjase:
 塞姆雅瑟
 
 50. Du bist unehrlich zu dir selbst, denn du weisst genau, dass meine Worte der Wahrheit entsprechen.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+50. 你对自己不诚实，因为你很清楚我的话是真实的。
 
 51. Ich habe dich bereits vorhin darauf hingewiesen, dass du zu deinen Fähigkeiten stehen musst.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+51 我已经提前提醒过你，你必须坚持自己的能力。
 
 Billy:
 比利 (Billy)
 
 Schon gut, ich habe ja nicht versprochen, dass ich meinen Sinn so schnell ändern werde, sondern dass ich mir erst einmal über all diese Dinge Gedanken machen muss. Jetzt aber habe ich noch einige Dinge, die wir unter uns zu besprechen haben, wenn du noch einige Minuten Zeit hast.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+好吧，我确实没有承诺过我会这么快改变我的想法，而是我需要首先仔细考虑所有这些事情。但现在我还有一些私下里需要和你讨论的事情，如果你还有几分钟时间的话。
 
 Semjase:
 中文翻译：塞姆雅瑟（Semjase）
@@ -379,7 +379,7 @@ Semjase:
 （说明：这是一个名字，直接音译成中文。）
 
 52. Natürlich.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+当然。
 
 Billy:
 比利 (Billy) 是英文名字，通常用作男性名字。在中文中，我们通常直接音译为“比利”。如果需要将其翻译成德文，也是 "Billy"，因为在很多语言中，这个名字保持不变。如果你需要将其翻译成中文，可以简单地说：“比利”。

@@ -4,55 +4,55 @@
 说明：此标题为德文“Contact Report 2”的直接翻译，保持了原文的简洁性和正式感。
 
 Zweiter Kontakt
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+第二次接触
 
 Montag, 3. Februar 1975, 22.10 h
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+1975年2月3日星期一22点10分
 
 Semjase:
 Semjase（塞姆雅斯）是一个在瑞士人比利·迈尔（Billy Meier）的接触者故事中出现的外星人名字。在迈尔的叙述中，Semjase 是来自昴宿星团（Pleiades）的外星人之一，她与迈尔进行了多次接触，并传递了大量的信息和教导。这些接触故事和相关信息在 UFO 和新纪元运动圈子里有相当的影响力。
 
 1. Du hast mich in Erstaunen versetzt nach meinem ersten Versuch, denn deine Aufnahmebereitschaft für meine Gedanken war viel grösser, als wir dies errechnet hatten.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+你对我的思想的接受程度超出了我们的预期 我第一次尝试就让我感到惊讶
 
 2. Eigentlich sollten wir bei dir schon längst an Überraschungen gewohnt sein, weil du im Laufe der Jahre immer wieder bewiesen hast, dass du sehr weit denkst.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+2 其实我们早该习惯你的惊喜了因为多年来你一再证明了你考虑得非常长远
 
 3. Auch wenn deine Gedankengänge oft sehr extrem sind, treffen sie doch den Kern der Sache und finden Lösungen für Probleme, die deinen Zeitgenossen verschlossen bleiben.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+3 即便你的思路常常非常极端它们却能切中要害并找到你同时代人无法触及的解决方案
 
 4. Eigentlich hast du mich bei meinem ersten Besuch schon in Verwunderung gesetzt darum, dass du geschwiegen und nicht gefragt hast, als ich dir die verschiedenen Erklärungen gab.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+4.其实你在我第一次拜访时就已经让我感到惊讶，因为当我向你解释各种情况时，你保持沉默并且没有提问。
 
 5. Dabei denke ich an die Erklärung über Raum, Zeit und Nullzeit.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+在此我想到关于空间、时间和零时间的解释。
 
 6. Zumindest hier dachte ich, dass du eine Frage hättest.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+6. 至少在这里我以为你会有一个问题。
 
 7. Dann aber erlaubte ich mir, in deinen Gedanken zu forschen und fand, dass du wirklich keine Frage hattest, weil du meine Auslegung verstandest – sogar mehr als ich dir sagte.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+7. 但我允许自己探究你的思想发现你确实没有问题因为你理解我的解读甚至比我对你说的更多
 
 8. Selbst für mich ist deine Denkweise in bezug der geistigen und materiellen Richtungen ungeheuer und phänomenal, was ich noch bei keinem Erdenmenschen festgestellt habe.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+8 即使对我来说 你在精神和物质方面的思维方式也是不可思议和非凡的 这在我所认识的任何地球人中都未曾发现
 
 9. Alle waren sie bisher nur in einer oder in maximal drei Richtungen wissend und denkfähig, während du jedoch in allen beliebigen Formen zu denken vermagst.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+9 迄今为止，他们只在一种或最多三种方向上拥有知识和思考能力，然而你却能以任意形式进行思考。
 
 10. Du stehst uns wirklich kaum in etwas nach, wenn man von dem Wissen absieht, das du Bücher- oder Schulwissen nennst.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+10. 如果不考虑你所谓的书本或学校知识，你几乎不逊色于我们。
 
 11. Wie du selbst immer sagst, ist diese Art Wissen aber nicht von sehr grosser Bedeutung, sondern nur das geistige Wissen und die geistige Weisheit sind ausschlaggebend, wie du schon lange erkannt hast.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+11. 正如你一直所说的那样，这种知识并不十分重要，只有精神知识和精神智慧才是决定性的，正如你早已认识到的那样。
 
 12. Und du bist in deinem Wissen wahrhaftig gross; worin du uns nicht nachstehst – ganz im Gegenteil.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+12 你在知识上确实伟大 毫不逊色于我们 恰恰相反
 
 Billy:
 比利 (Billy 是英文名字，翻译成中文为“比利”)
 
 Du bringst mich in Verlegenheit, Semjase. Alles scheint heute bei dir nur auf Lob und Schmeichelei ausgerichtet zu sein. Das liebe ich nicht, denn es erscheint mir primitiv. Lass das also bitte.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+你让我感到尴尬 Semjase 今天你似乎只专注于赞美和奉承 我不喜欢这样 因为这在我看来很粗俗 所以请停止吧
 
 Semjase:
 Semjase: 赛姆雅斯
@@ -60,25 +60,25 @@ Semjase: 赛姆雅斯
 （注：Semjase 是一个在德语科幻作品中出现的名字，这里按照音译原则翻译为“赛姆雅斯”。）
 
 13. Du bist sehr offen, wie wir es von dir gewohnt sind.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+13. 你非常坦诚，正如我们一直以来所了解的。
 
 14. Doch will ich dich nicht loben und dir nicht schmeicheln, denn auch wir sind längst über diese Dinge hinaus.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+14 但我不想赞美你也不想奉承你 因为我们也早已超越了这些事情
 
 15. Ich mache nur klare Feststellungen, die den Tatsachen entsprechen, gerade so, wie du es selbst zu machen beliebst.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+15 我只是作出符合事实的明确陈述，正如你自己也喜欢做的那样
 
 Billy:
 "比利" (英文)
 
 Dann bin ich beruhigt und zufrieden.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+那我就安心了。
 
 Semjase:
 塞姆雅斯 (Semjase) 是一个源自德文的名字，通常用于女性。在中文中，这个名字可以音译为“塞姆雅斯”或“塞姆雅瑟”。如果你有具体的上下文或句子需要翻译，请提供更多信息，以便我能更准确地翻译。
 
 16. Denkst du nun nicht mehr, dass ich primitiv bin?
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+16 你现在不再觉得我原始了吗？
 
 Billy:
 比利。
@@ -86,7 +86,7 @@ Billy:
 （中文翻译自英文）
 
 Sicher nicht – doch warum forschst du denn nicht in meinen Gedanken danach? Oder soll ich mich vielleicht entschuldigen?
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+当然不是——但你为什么不直接在我的思想里寻找答案呢？还是说，我应该为此道歉？
 
 Semjase:
 Semjase:
@@ -95,83 +95,83 @@ Semjase:
 （注：Semjase 是一个名字，源自瑞士接触者 Billy Meier 的故事中提到的外星人。）
 
 17. Ich glaube dir doch, und eine Entschuldigung erwarte ich nicht von dir.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+17. 我确实相信你，而且我没期待你道歉。
 
 18. Entschuldigungen sind sowieso nur leere Worte und legen selten die wahre Gesinnung dar.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+18 道歉本来就是空话 很少能体现真实想法
 
 19. Andererseits empfinde ich deine Worte nicht als Beleidigung, weil ich ganz genau weiss, dass du nur das sagst, was du empfindest oder fühlst.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+另一方面我并不觉得你的话是侮辱因为我非常清楚你只是说出你所感受或感觉到的
 
 20. Für deine Mitmenschen mögen deine Worte beleidigend wirken, doch nur darum, weil sie nicht wissen und also nicht zu erkennen vermögen, dass du genau nach deinen Gefühlen sprichst, die aus deinem Wissen und deiner Weisheit heraus geführt werden.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+20. 对于你周围的人而言，你的话可能显得冒犯，但那只是因为他们不了解，也无法认识到你说的话完全源自你的感受，而这些感受又是从你的知识与智慧中流淌而出的。
 
 21. Daher muss dir vieles auch sehr primitiv erscheinen und sogar dumm.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+21. 因此，很多事情在你看来一定很原始，甚至很愚蠢。
 
 22. Bedenke jedoch immer, dass das Gros deiner Mitmenschen nicht geistig zu denken und in dieser Form nicht zu handeln vermag, weil es dies nie erlernt hat und noch zu sehr in den Geflechten der rein menschlichen Triebe, Wünsche und Hoffnungen usw. gefangen liegt.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+22 然而始终要记住，你的大多数同胞在精神上无法这样思考，也无法以这种方式行动，因为他们从未学习过这些，仍然太深陷于纯粹人类冲动、愿望和希望等纠结之中。
 
 23. Wenn ich in deinen Gedanken forschen will, dann tue ich das nur dann, wenn es mir wichtig erscheint.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+23 如果我想研究你的想法那是因为它对我很重要
 
 24. Es ist nicht die Art und das Verlangen von uns, einfach in die Gedanken anderer zu dringen, wenn dies wirklich nicht wichtig ist.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+24. 我们并不倾向于也不渴望轻易侵入他人的思想，如果这真的不重要。
 
 25. Ausserdem haben wir alle kein Recht, in die persönlichen Geheimnisse anderer einzudringen.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+25 此外我们都没有权利侵入他人的个人隐私
 
 26. Dringt man nämlich in die Gedanken anderer ein, dann besteht immer die Gefahr, dass man mehr daraus erfährt, als eigentlich vorgesehen war.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+26. 如果你试图侵入他人的思想，那么你总是面临着一种危险，即你可能会了解到比原本预期更多的信息。
 
 27. Würden daher auch wir dieses Gebot missachten, dann wüssten wir selbst deine allerletzten Gedankengänge und Geheimnisse zu deuten, und du vermöchtest uns nicht immer und immer wieder in Erstaunen und Verwunderung zu versetzen.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+27. 因此，即使我们也忽视这一戒律，我们也会了解你最深的思想和秘密，而你便无法一次又一次地让我们感到惊奇和疑惑。
 
 Billy:
 Billy 的中文翻译是 "比利"。
 
 Was hat es denn damit auf sich, wenn sogenannte UFO-Kontaktler behaupten, dass ihre Sternenfreunde unter sich selbst nur telepathische Kommunikation betreiben würden?
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+所谓的UFO接触者声称他们的外星朋友之间仅使用心灵感应进行交流，这到底是怎么回事？
 
 Semjase:
 塞姆雅斯(Semjase)
 
 28. Sicher gibt es derartige Geschöpfe, die sich nur telepathisch verständigen.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+28. 确实存在这样一些生物，它们只能通过心灵感应进行交流。
 
 29. Ihre Verständigung war jedoch von Urbeginn an telepathisch oder sie liessen ihre Sprache ganz einfach verkümmern.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+然而他们的交流从一开始就是心灵感应或者他们干脆让自己的语言退化
 
 30. Unseres Wissens jedoch wurde der irdische Raum niemals von Wesen angesteuert, deren Kommunikationsmittel rein telepathisch waren.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+然而据我们所知，地球空间从未被以纯粹心灵感应为交流手段的生物造访过
 
 31. Andererseits ist zu beachten, dass diese sogenannten UFO-Kontaktler, die derartiges behaupten, mit Sicherheit niemals mit Menschen oder anderen Wesen aus dem Weltenraum in Verbindung gestanden haben.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+另一方面需要注意的是那些所谓的UFO接触者他们声称的这类事情肯定从未与人类或太空中的其他生命有过联系
 
 32. Sie sind einfach Betrüger und Scharlatane.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+他们就是骗子加江湖郎中
 
 Billy:
 Billy:
 比利：（中文翻译，源自英文名称）
 
 Ich habe mir Gedanken darüber gemacht, dass die grosse Masse dieser sogenannten UFO-Kontaktler nur Betrüger und Scharlatane sein sollen. Auf welche Tatsache stützt sich diese deine Behauptung?
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+我一直在思考这些所谓的UFO接触者中大部分都是骗子和江湖术士的说法你的这种说法是基于什么事实
 
 Semjase:
 塞姆佳斯 (Semjase)
 
 33. Auf reine Tatsachen, die jederzeit zu beweisen sind:
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+33. 关于可以随时证明的纯粹事实：
 
 34. Alle die Möchtegern-Kontaktler spielen darauf an, dass wir in einer Mission zu Gott und der christlichen Religion stehen würden; eine bösartige Lüge, die jeder Wahrheit entbehrt.
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+34 所有那些自诩的接触者都在暗示我们处于一项与上帝和基督教相关的使命中；这是一个恶毒的谎言，毫无真实性可言。
 
 Billy:
 比利 (来源语言: 英文)
 
 Wie verhält es sich denn mit anderen Kontaktlern?
-抱歉，这个功能暂未开放上线。您也可以用中文或英文问我一些其他的问题，我会尽力为您解答。
+其他接触学习者的情况如何呢
 
 Semjase:
 Semjase:
