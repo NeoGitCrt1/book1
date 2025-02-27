@@ -1757,7 +1757,7 @@ Semjase银星中心，2008年7月13日，3:21，比利
 362) 创世（创造）——除了从创世（创造）中产生的法则和诫命之外，没有其他真理，这些法则和诫命源于其存在的活力，源于自我存在、维系一切的力量；创造（创世）是真正的生命，并且在它存在之前，它也像所有生命一样被沉睡所笼罩，因此，在极长的时间（311040 000 000 000年）之后，它将再次陷入沉睡，以便在重生（轮回）中以新的形态（形式=创造形态）成为真理；地球上（世界/行星）和天空中（宇宙）的一切存在都是创世（创造）的产物，其存在是精神的原初力量，这种力量也作为微小的存在存在于你的内心世界（意识）中；你可以通过恳求你的内心世界（意识）来促进自己在所有纯洁（美德）、个性（性格）以及个体（人格）和行为（行为方式）方面的努力；然而，内心世界（意识）无法提供世俗的帮助、价值等，正如任何想象中的神或偶像也无法提供这些；你可以向你的内在精神呼吁、恳求和祈祷（向自己的精神或直接向意识祈祷），但你的呼吁和祈祷将由你的内心世界（意识）所回应，通过它，你的成长（发展/进化）得以实现，前提是你明智而智慧地为此努力。
 
 363) Eure Innenwelt (Bewusstsein) ist wissend in vielen Dingen, doch wollt ihr nichts begreifen von ihrem Wissen, ausser das, was euch gefällt und euch Frohsinn bringt in Festlichkeiten, Genüssen und Lustbarkeiten.
-363) 你们的内在世界（意识）知晓诸多事物，然而你们却不愿理解其知识，除了那些让你们节庆（庆典活动）、欢愉（享乐）与消遣（娱乐）中带来愉悦（欢快情绪）。
+363) 你们的内在世界（意识）知晓诸多事物，然而你们却不愿理解其知识，除了那些让你们节庆（庆典活动）、欢愉（享乐）与消遣（娱乐）中带来愉悦（欢快情绪）的内容。
 
 364) Es soll kein Zwang im Wissen um die Wahrheit und die Wahrheitslehre sein, doch sei trotzdem deutlich unterscheidbar in allen Dingen im Sinn des Rechts und des Unrechts, so sich also niemand leiten (führen) lässt durch die Frevler (Gesetzesbrüchigen), die der Wahrheit fluchen und sie missachten; also möge jeder Wahrheitssuchende einen starken Kopf (Vernunft) haben, der kein Brechen kennt, um wissend und willentlich zu entscheiden zwischen dem Zwang zu einem Glauben oder der Freiheit des Wissens zur Wahrheit und der Wahrheitslehre.
 364) 在追求真理和真理教义的过程中，不应有任何强迫，但在所有事物中，应清晰地区分正义与非正义的意义，因此，不要让任何人被那些亵渎真理、藐视真理的违法者所引导；因此，愿每一位寻求真理的人都有一个坚强的头脑（理性），它不会屈服，以便在信仰的强迫与追求真理和真理教义的知识自由之间，明智且自愿地做出决定。
