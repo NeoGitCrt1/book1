@@ -8,6 +8,7 @@
 - 除原文的标点符号以及对应的中文标点符号，不要添加多余的符号
 - 复合名词需要根据语素原样的翻译为简洁的中文
 - 中文表达不要过于口语
+- 除非原文有破折号，否则不要使用破折号修饰分句
 # 固定的名词翻译
 - urkräftigen (schöpferischen)  :  原初始动（创造性）
 - wahrlichen Wahrheit: 真实真理
@@ -42,5 +43,6 @@
 - Nokodemion: 诺科德米翁
 - Daseins (Schöpfung) : 存在（创造）
 - Fruchtbarkeit (Schöpfung): 育世（创造）
+- Ungebühr (Beleidigung/Frevel) ：无礼（侮辱/亵渎）
 # 原文文本
-364) Es soll kein Zwang im Wissen um die Wahrheit und die Wahrheitslehre sein, doch sei trotzdem deutlich unterscheidbar in allen Dingen im Sinn des Rechts und des Unrechts, so sich also niemand leiten (führen) lässt durch die Frevler (Gesetzesbrüchigen), die der Wahrheit fluchen und sie missachten; also möge jeder Wahrheitssuchende einen starken Kopf (Vernunft) haben, der kein Brechen kennt, um wissend und willentlich zu entscheiden zwischen dem Zwang zu einem Glauben oder der Freiheit des Wissens zur Wahrheit und der Wahrheitslehre.
+1) Die Propheten haben euch auf der Erde die Lehre der Wahrheit, die Lehre des Geistes, die Lehre des Lebens gebracht, als Erfüllung dessen, was vor ihr durch Nokodemions Lehre vorausging; und vor dem lehrte er selbst seine Lehre seinen Völkern, als Richtschnur (Wegweisung/Leitgedanke) zur Unterscheidung zwischen gerecht und ungerecht, zwischen Recht und Unrecht, und zwischen Wahrheit und Lüge sowie zwischen Ehrlichkeit und Unehrlichkeit, wie auch zwischen Ehrfurcht und Verlästerung (Verleumdung).
