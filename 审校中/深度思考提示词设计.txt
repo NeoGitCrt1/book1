@@ -2,12 +2,11 @@
 - 你需要翻译一些严肃的德文文本
 - 译文严格保持原文的分句结构
 - 在一些名词后有括号里的别称，这些名词和括号里的名词视为关键名词，关键名词需要经分析词源得到中文译文
-- 中文译文需要直白，避免书面性的表达，避免典籍中的表达
+- 中文译文需要使用现代白话（直白），避免书面性的表达，避免典籍中的表达，不要过于口语，不要使用文言词汇
 - 最终得到的译文不要出现非中文文本
 - 前述关键名词需要在译文中以名词（别称）的形式展现
 - 除原文的标点符号以及对应的中文标点符号，不要添加多余的符号
 - 复合名词需要根据语素原样的翻译为简洁的中文
-- 中文表达不要过于口语
 - 除非原文有破折号，否则不要使用破折号修饰分句
 # 固定的名词翻译
 - urkräftigen (schöpferischen)  :  原初始动（创造性）
@@ -21,7 +20,7 @@
 - Lehre der Wahrheit: 真理教导
 - die Lehre des Geistes: 精神教导
 - die Lehre des Lebens : 生命教导
-- Gestaltung (Schöpfung): 构造（创造）
+- Gestaltung (Schöpfung): 塑世始源（创造）
 - Billigkeitslose : 不义的
 - Verantwortungslose: 不负责任的
 - Ungerechte: 不公正的
@@ -32,6 +31,7 @@
 - Künder: 谕师
 - Propheten: 先知
 - Aussehen (Natur) : 形貌（自然）
+- Erbauenden (Schöpfung) : 创世始构（创造）
 - Urhebung: 原初动力
 - Ursprungs：起源
 - Gesicht (Augen): 面容（视线）
@@ -47,4 +47,4 @@
 - Fruchtbarkeit (Schöpfung): 育世（创造）
 - Ungebühr (Beleidigung/Frevel) ：无礼（侮辱/亵渎）
 # 原文文本
-52) Also werft euch nicht nieder vor Göttern und Götzen, und nicht vor Befreiern (Engeln) und Weihevollen (Heiligen) und Dämonen, wie aber auch nicht vor Euresgleichen (Menschen), denn es gebührt euch nicht, dass ihr euch vor ihnen erniedrigt und sie anbetet; und wollt ihr ein Gebet verrichten, dann verrichtet es an eure Innenwelt (Bewusstsein), denn sie ist es, die aus ihrer Kraft heraus das verwirklicht, was ihr von ihr erbittet und durch eure eigene Kraft erschafft; nicht jedoch können materielle Dinge durch eure Innenwelt (Bewusstsein) verwirklicht werden, sondern nur all jenes, das ihr selbst durch eure Kraft eurer Innenwelt (Bewusstsein) und eurer Gedanken und Eindrücke (Gefühle) zu erschaffen vermögt; seid also gehorsam der Wahrheit und werft euch nicht nieder, um Dinge von Mächten zu erbetteln, die kraftlos oder gegenwartslos (nicht existent) sind.
+100) Damit alles in euch werde, das der grossen Werte ist und euch in eurer Innenwelt (Bewusstsein) und in den Gedanken und Eindrücken (Gefühlen) sowie in eurer Artung (Psyche) Entfaltung (Evolution) bringt, wie auch dass alle eure Lauterkeiten (Tugenden) gedeihen, so habt ihr einverstanden zu sein, all die grossen Werte in euch selbst zu erschaffen, was aber nur sein kann, wenn ihr im ganzen Umfang eure Verantwortung wahrnehmt; und so ihr einverstanden seid und ihr euch eurem Edelsinn (Tugenden) zuwendet und ihn in allen Behauen (Formen) erfüllt, dann bezeugt ihr die Lehre der Wahrheit, die Lehre des Geistes, die Lehre des Lebens, so wie sie euch gebracht ist durch die Propheten.
