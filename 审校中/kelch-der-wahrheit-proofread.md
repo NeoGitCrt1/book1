@@ -2258,42 +2258,40 @@ Semjase银星中心，2008年7月13日，3:21，比利
 127) 你们都要紧紧抓住真理教导的绳索，彼此之间不要有任何分歧，无论是在共同存在中，还是在真理教导、精神教导、生命教导的解释（阐释）上。
 
 128) Gedenkt stets der Huld (Gunst/Milde) der Gesetze und Gebote des Ursprungs (Schöpfung), wenn ihr sie befolgt; also gedenkt auch der Huld (Gunst/Milde), die ihr jenen geben sollt, die sich eure Feinde nennen, auf dass aus Feindschaft wahrliche Freundschaft werde; fügt euch in Liebe zusammen und bringt Verstehen (Verständnis) für einander auf, auf dass ihr wie Brüder und Schwestern werdet und einander achtet und beschützt.
-128) 当你遵循原始创造的法则和诫命时，要时刻铭记它们的仁慈与恩惠；同样，也要铭记你应给予那些被称为你敌人的人的仁慈与恩惠，使敌意转化为真诚的友谊；在爱中团结一致，培养彼此的理解，使你们如同兄弟姐妹般相互尊重与保护。
+128) 当你遵循起源（创造）的法则和诫命时，要时刻铭记它们的仁慈与恩惠；同样，也要铭记你应给予那些被称为你敌人的人的仁慈与恩惠，使敌意转化为真诚的友谊；在爱中团结一致，培养彼此的理解，使你们如同兄弟姐妹般相互尊重与保护。
 
 129) Bringt euch nicht durch Feindschaft an den Rand einer Feuergrube, sondern bewahrt euch davor, auf dass ihr nicht in eine hineinstürzt und ihr in eurem Hass und in eurer Rachsucht zur Unkenntlichkeit verbrennt; erfüllt klar und deutlich die Gesetze und Gebote der Erschaffung (Schöpfung) und des Aussehens (Natur), wie sie euch gelehrt sind durch die wahrlichen Propheten, auf dass ihr recht geleitet seid.
-129) 不要因敌对关系而将自己推向火坑的边缘，而要警惕自己，以免陷入其中，在仇恨和报复中被烧得面目全非；要清晰明确地遵循创造（造物）和形貌（自然）的法则与诫命，正如真先知所教导你们的那样，以便你们得到正确的引导。
+129) 不要因敌对关系而将自己推向火坑的边缘，要警惕自己陷入其中，在仇恨和报复中被烧得面目全非；要清晰明确地遵循塑世始源（创造）和形貌（自然）的法则与诫命，正如真先知所教导你们的那样，以便你们得到正确的引导。
 
 130) Und seht zu, dass unter euch eine anwachsende Gemeinschaft Euresgleichen (Mitmenschen) sei, die zur Lehre der Wahrheit, der Lehre des Geistes, der Lehre des Lebens und zum Guten auffordert und die zum Recht anregt (belehrt) und das Unrecht verwehrt, auf dass es euch wohl ergehen möge.
 130) 并且要确保在你们中间形成一个不断壮大的人类（人）群体，这个群体要倡导真理的教导、精神的教导、生命的教导以及善的教导，并且要激发正义（教导正义）并阻止不义，以便你们能够顺利安康。
 
 131) Und werdet nicht zwiespältig und nicht in irgendeiner Weise und aus irgendwelchen Gründen uneins untereinander, sondern nehmt die klaren Beweise der Propheten und lebt in Liebe miteinander, so ihr nicht irgendwelche Strafe auf euch ladet.
-131) 你们不要产生分歧，也不要因为任何原因或方式彼此不和，而是要接受先知们的明确证据，并以爱心共同生活，以免你们招致任何惩罚。
+131) 你们不要产生分歧，也不要因为任何原因或方式彼此不和，而是要接受先知的清晰证据，并以爱心共同生活，以免你们招致任何惩罚。
 
 132) Seht dazu, dass eure Gesichter nicht schwarz werden durch Unbilligkeit (Ungerechtigkeit) und Unwissenheit in der Wahrheit, sondern seht dazu, dass eure Gesichter weiss sind durch Billigkeit (Gerechtigkeit) und Wissen in der Wahrheit und der Lehre dessen, wie sie gegeben ist durch die Propheten im Sinn der Gesetze und Gebote der Fruchtbarkeit (Schöpfung).
-132) 你们要确保自己的面容不会因不公和无知于真理而变得黑暗，而是要确保自己的面容因公正和对真理的认知而变得明亮，正如先知们所传授的，依照创造之法则和诫命的精神。
-
-（注：此段翻译忠实于原文的内容与意图，力求表达清晰且符合中文语言习惯，同时保留了原文的文化内涵和语言风格。）
+132) 你们要确保自己的面容不会因不公和无知于真理而变得黑暗，而是要确保自己的面容因公正和对真理的认知而变得明亮，正如先知们所传授的，依照育世（创造）之法则和诫命的精神。
 
 133) Jene, deren Gesichter schwarz sind durch Lüge und Betrug, durch Verlästerung (Verleumdung) und alle Übel, sie sondern sich selbst aus aus der Gemeinschaft der Gerechten (Verantwortungsvollen) und Wahrheitswissenden.
-那些因谎言与欺诈、诽谤及一切恶行而面色阴沉的人，他们将自己从正直（负责任）和知晓真理者的群体中隔离出来。
+133) 那些因谎言与欺诈、诽谤及一切恶行而面色阴沉的人，他们将自己从正直（负责任）和知晓真理者的群体中隔离出来。
 
 134) Und jene, deren Gesichter weiss sind infolge ihrer Wahrheitsliebe, ihrem Wissen, ihrer Weisheit, ihrer Billigkeit (Gerechtigkeit) und ihrer Ehrfurcht (Ehrerbietung) zur Wahrheit, sie werden in der Gunst sehr vieler Euresgleichen (Menschen) sein und unter ihnen weilen als Geachtete und stets Willkommene.
-那些因热爱真理、知识、智慧、公正（正义）和对真理的敬畏（尊敬）而面色明亮的人，将在你们许多人类（人）的青睐中，作为受尊敬和始终受欢迎的人，与他们同在。
+134) 那些因热爱真理、知识、智慧、公正（正义）和对真理的敬畏（尊敬）而面色明亮的人，将在你们许多人类（人）的青睐中，作为受尊敬和始终受欢迎的人，与他们同在。
 
 135) Auch das sind Zeichen (Beweise) der Gesetze und Gebote des Wissens, der Weisheit und der Gesetze und Gebote der Erschaffung (Schöpfung) und des Aussehens (Natur); und auch das sind Zeichen (Beweise) der Propheten, die sie euch vortragen, weil sie die Wahrheit umfassen und die sie geben, weil sie keine Unbilligkeit (Ungerechtigkeit) und kein Unwissen in der Wahrheit unter euch wollen.
-135) 这些也是知识的法则和智慧的律例、创造和自然外观的法则和律例的迹象（证明）；这些也是先知们向你们传达的迹象，因为他们包含了真理，并且他们给予这些迹象，因为他们不希望你们在真理中遭受不公和无知。
+135) 这些也是知识法则与诫命、智慧本源法则与诫命，以及塑世始源（创造）与形貌（自然）法则与诫命的迹象（证明）；而这些也是先知们向你们宣讲的迹象（证明），因为他们涵盖真理，并给予这些，因为他们不愿真理在你们中存在不义（不公正）与无知。
 
 136) Der Urquelle der Weisheit (Schöpfung) ist alles, was in den Himmeln (Universum) und auf den Erden (Welten/Planeten) ist, und alles hat sie euch vorgelegt, auf dass ihr es des Rechtens ver waltet und auch selbst des Rechtens seid, also ihr euch entscheiden mögt, in allen Dingen des Rechtens zu tun.
-136) 智慧的源头（创造）是存在于诸天（宇宙）和大地（世界/星球）中的一切，这一切都已呈现在你们面前，以便你们能够公正地管理，并使自己成为公正的，从而在一切事物中做出公正的决定。
+136) 智慧本源（创造）是存在于诸天（宇宙）和大地（世界/星球）中的一切，这一切都已呈现在你们面前，以便你们能够公正地管理，并使自己成为公正的，从而在一切事物中做出公正的决定。
 
 137) Ihr seid die besten Geschöpfe (Lebensformen), die zum Wohl aller Euresgleichen (Menschen) entstanden, also ihr auch das Wohl zu Euresgleichen (Mitmenschen) bringen und untereinander keine Schlachten (Kriege) führen sollt; ihr sollt untereinander die Rechte wahren und euch gegen alles Unrecht verwehren, indem ihr die Richtschnur (Wegweisung/Leitgedanke) der Urquelle der Weisheit (Schöpfung) befolgt, ihre Gesetze und Gebote, die euch durch die wahrlichen Propheten dargebracht sind.
-你们是最优秀的生命形式，为了你们同类的福祉而存在，因此你们也应当为你们的同类带来福祉，彼此之间不应发动战争；你们应当相互维护权利，抵制一切不公正，遵循智慧本源（创造）的指引，遵守其通过真正的先知传达给你们的法则和诫命。
+137) 你们是最优秀的生命形式，为了你们同类的福祉而存在，因此你们也应当为你们的同类带来福祉，彼此之间不应发动战争；你们应当相互维护权利，抵制一切不公正，遵循智慧本源（创造）的指引，遵守其通过真正的先知传达给你们的法则和诫命。
 
 138) Und wisst, öffnet ihr der Lehre der Propheten euer Ohr, wahrlich, dann frommt ihr (seid ihr andächtig) der Richtschnur (Wegweisung/Leitgedanke) des Daseins und es wird euch besser gehen.
-要知道，如果你们倾听先知的教诲，你们就真的会遵循存在的指引，你们的生活也会因此变得更好。
+138) 要知道，如果你们倾听先知的教诲，你们就真的会遵循存在的指引，你们的生活也会因此变得更好。
 
 139) Und achtet der Lehre der wahren Propheten, denn allein sie lehren die Richtschnur (Wegweisung/Leitgedanke) der Urquelle der Weisheit (Schöpfung), die Lehre der Wahrheit, die Lehre des Geistes, die Lehre des Lebens, denn sie lehren die Liebe und den Frieden, die Freiheit und das Einssein (Harmonie); und achtet nicht der falschen Propheten, die nur Richtschnüre des Bösen lehren, auf dass unter euch Lieblosigkeit und Unfrieden wie auch Unfreiheit und Uneinssein (Disharmonie) sei, wie sie auch das Totschlagen und Bluttat (Mord) begehen und Strafen lehren als Gesetze ihrer erdichteten (erfundenen) Götter und Götzen, auf dass ihr durch Angst vor Strafe geknechtet und ihnen botmässig (hörig) und fügsam seid, auf dass sie euch fortnehmen (ausbeuten) und bezwingen (beherrschen) können.
-139) 并且要尊重真正先知的教导，因为他们教导的是智慧本源（创造）的准则（指引/主导思想），是真理的教导，是精神的教导，是生命的教导，因为他们教导爱与和平，自由与合一（和谐）；而不要尊重那些虚假的先知，他们只教导邪恶的准则，使你们之间缺乏爱与和平，以及不自由与不和谐（不协调），他们还犯下杀戮和流血（谋杀）的罪行，并将惩罚作为他们虚构的（编造的）神和偶像的法律来教导，以便你们因害怕惩罚而被奴役，顺从并屈服于他们，以便他们可以剥削和征服（统治）你们。
+139) 并且要尊重真正先知的教导，因为他们教导的是智慧本源（创造）的准则（指引/主导思想），是真理的教导，是精神的教导，是生命的教导，因为他们教导爱与和平，自由与统一（和谐）；而不要尊重那些虚假的先知，他们只教导邪恶的准则，使你们之间缺乏爱与和平，以及不自由与不和谐（不协调），他们还犯下杀戮和流血（谋杀）的罪行，并将惩罚作为他们虚构的（编造的）神和偶像的法律来教导，以便你们因害怕惩罚而被奴役，顺从并屈服于他们，以便他们可以剥削和征服（统治）你们。
 
 140) Seid wachsam gegen die falschen Propheten, dann können sie euch nur geringen oder gar keinen Schaden zufügen; und wenn sie wider euch sind, um euch durch ihre falschen Lehren zu betören, dann kehrt ihnen den Rücken zu, und so werden sie keine Opfer in euch finden.
 140) 要警惕那些虚假的先知，这样他们只能给你们带来很小的伤害，甚至无法伤害你们；如果他们反对你们，试图用他们的错误教义迷惑你们，那么你们就背弃他们，这样他们就不会在你们身上找到受害者。
@@ -2308,28 +2306,28 @@ Semjase银星中心，2008年7月13日，3:21，比利
 143) 确实，你们并非都相同，因为你们中有一些人遵循与真理的盟约，并以此引导自己的存在，你们在白天和夜晚的时光中维护真理的言辞和教义；但你们中也有一些人，你们依附于对神和偶像、对救赎者（天使）和恶魔、对神圣者和神性之类的信仰，从而追随错误的教义并诅咒真理；然而，你们这些如此行事的人，你们自己招致了无爱、仇恨、报复心、不安、不自由和不和谐（不协调）的恶果。
 
 144) Wisst stets um die wahrheitliche Wahrheit der Gestaltung (Schöpfung) und ihrer Gesetze und Gebote, bewirkt dadurch das Recht und gebietet dem Unrecht seine Rechtlosigkeit.
-要始终知晓创造（Schöpfung）及其法则与诫命的真实真理，由此实现正义，并制止不义之事的非法性。
+144) 要始终知晓塑世始源（创造）及其法则与诫命的真实真理，由此实现正义，并制止不义之事的非法性。
 
 145) Wetteifert miteinander im Tun guter Werke und bewahrt euch stets eure Rechtschaffenheit (Gewissenhaftigkeit); und was ihr an guten Werken tut und indem ihr eure Rechtschaffenheit (Gewissenhaftigkeit) bewahrt, dafür sollt ihr gerechten (angemessenen) Lohn erhalten, und eure guten Werke und eure Rechtschaffenheit (Gewissenhaftigkeit) sollen nicht bestritten werden, denn wer die Wahrheit kennt, soll sie wohl schätzen und in Ehrfurcht (Achtung) anerkennen.
 145) 你们应当竞相行善，并始终保持你们的正直（认真尽责）；你们所行的善事和所保持的正直（认真尽责），将得到公正（适当）的报酬，你们的善行和正直（认真尽责）将不会被质疑，因为认识真理的人应当珍视并以敬畏（尊重）之心承认它。
 
 146) Den Ungerechten (Verantwortungslosen) und Wahrheitsleugnern, den Dieben und Betrügern, den Mördern und allen jenen, welche Unrecht tun, soll nicht Fluch und Verdammnis angerufen (gewünscht) werden, sondern es sei ihnen nach Recht und Gesetz, angemessen nach den Gesetzen und Geboten der Urkraft (Schöpfung), die Aussicht (Möglichkeit) gegeben, durch die Lehre der Wahrheit, die Lehre des Geistes, die Lehre des Lebens ihres Unrechts durch Lernen denkbar (verstehen) werden zu lassen, was auch sein soll, wenn eine Massnahmeerfüllung (Ahndung durch Aussonderung aus der Gesellschaft für eine bestimmte Zeit) angeordnet wird; durch Unrecht erlistetes (ergaunertes) oder sonstwie durch Unrecht angeeignetes Gut jeder Art soll den Dieben und Betrügern und allen sonstigen Unrechtschaffenen (Gewissenlosen) nichts nützen, denn es soll ihnen weggenommen und jenen zurückgegeben werden, welchen es auf die eine oder andere Art abgeeignet (gestohlen) wurde; und durch Unrecht an Hab und Gut und Besitz angerichteter Schaden soll durch die Fehlbaren in vollem Umfang wieder gutgemacht werden, sei es mit Abgeltung durch Verrichtung von Leistung (Arbeit) oder durch Tilgung der Schadenschuld mit Zahlungsmitteln.
-对于不公正（不负责任）者和否认真理者，对于盗贼和骗子，对于杀人犯和所有行不义之事的人，不应祈求诅咒和谴责，而应根据法律和法规，依照原初力量（创造）的法则和诫命，给予他们通过真理的教导、精神的教导、生命的教导来理解其不义之行的可能性，即使在社会隔离的惩罚措施被实施时也应如此；通过不义手段获得的或以其他方式通过不义手段取得的任何财物，对盗贼、骗子和所有其他不义之徒（无良者）都无益，因为这些财物应被没收并归还给那些以某种方式被剥夺（盗窃）的人；对于通过不义手段对财产和所有权造成的损害，应由过错方全额赔偿，无论是通过劳动偿还还是通过支付手段清偿债务。
+146) 对于不公正（不负责任）者和否认真理者，对于盗贼和骗子，对于杀人犯和所有行不义之事的人，不应祈求诅咒和谴责，而应根据法律和法规，依照原初力量（创造）的法则和诫命，给予他们通过真理的教导、精神的教导、生命的教导来理解其不义之行的可能性，即使在社会隔离的惩罚措施被实施时也应如此；通过不义手段获得的或以其他方式通过不义手段取得的任何财物，对盗贼、骗子和所有其他不义之徒（无良者）都无益，因为这些财物应被没收并归还给那些以某种方式被剥夺（盗窃）的人；对于通过不义手段对财产和所有权造成的损害，应由过错方全额赔偿，无论是通过劳动偿还还是通过支付手段清偿债务。
 
 147) Ihr seid unter euch selbst ungerecht und also gegen euch selbst, also sollt ihr Billigkeit (Gerechtigkeit) gegen euch selbst und gegen Euresgleichen (Mitmenschen) lernen, auf dass ihr ein friedliches Miteinander und Frieden in euch selbst findet.
-你们在彼此之间是不公正的，因此对你们自己也是不公正的，所以你们应该学会对自己和你们的同类（他人）公正，以便你们能够找到和平共处和内心的平静。
+147) 你们在彼此之间存在不公正，因而对你们自己也是不公正的，所以你们应该学会对自己和你们的同类（他人）公正，以便你们能够实现和平共处，获得内心的平静。
 
 148) Gebt nicht euer Erdenleben hin im Unwissen an die Wahrheit der Urkraft (Schöpfung), so ihr nicht zerstörend seid wie der Sturmwind, der mit eisigem Unwetter die Ackerfrucht trifft und sie vernichtet; frevelt nicht durch Unwissen an eurem Dasein und also nicht am Bestand eurer Welt, denn sonst zerstört ihr euch selbst, wie auch eure Erde und ihr Aussehen (Natur); seid allezeit genügsam (bescheiden) in allen Dingen und treibt nicht die Zahl eurer Nachkommenschaft ins Ausgedehnte (Unermessliche/Enorme/Unbegrenzte), so ihr nicht die Zerstörer eurer Welt werdet und sie sich nicht in Not und Schmerz aufwerfe (aufbäume) und sich nicht gegen eure Zerstörungswut mit Urgewalt erwehre und euch und eure Erschaffungen (Errungenschaften) nicht zermalme.
-148) 不要因为对原初力量（创造）真理的无知而放弃你们的尘世生活，除非你们像风暴一样具有破坏性，用冰冷的暴风雨摧毁庄稼；不要因为无知而亵渎你们的存在，从而也亵渎你们世界的存续，否则你们将自我毁灭，如同毁灭你们的地球和它的面貌（自然）；在所有事情上始终保持知足（谦逊），不要将你们的后代数量推向极端（无限/巨大/无限制），以免你们成为自己世界的破坏者，使世界不会陷入困境和痛苦中，不会以原始力量反抗你们的破坏欲望，将你们和你们的创造（成就）粉碎。
+148) 不要因为对原初力量（创造）真理的无知而放弃你们的尘世生活，除非你们像风暴一样具有破坏性，用冰冷的暴风雨摧毁庄稼；不要因为无知而亵渎你们的存在，从而也亵渎你们世界的存续，否则你们将自我毁灭，如同毁灭你们的地球和它的形貌（自然）；在所有事情上始终保持知足（谦逊），不要将你们的后代数量推向极端（无限/巨大/无限制），以免你们成为自己世界的破坏者，使世界不会陷入困境和痛苦中，不会以原始力量反抗你们的破坏欲望，将你们和你们所造之物粉碎。
 
 149) Ihr, die ihr wissend seid in der Wahrheitslehre, nehmt nicht solche zu vertrauten Freunden, die nicht für euch einstehen und nur Freundschaft heucheln, solange sie von euch Aufschlag (Nutzen) haben, jedoch ihrer Freundschaft nicht mehr gedenken, wenn ihr in Not fallt und ihre Hilfe braucht.
-你们这些通晓真理教义的人，不要与那些不为你们挺身而出、只在能从你们那里获得好处时假装友谊的人成为亲密朋友。当你们陷入困境需要帮助时，他们却不再记得这段友谊。
+149) 你们这些通晓真理教义的人，不要与那些不为你们挺身而出、只在能从你们那里获得好处时假装友谊的人成为亲密朋友。当你们陷入困境需要帮助时，他们却不再记得这段友谊。
 
 150) Und ihr, die ihr wissend seid in der Lehre der Wahrheit, der Lehre des Geistes, der Lehre des Lebens, nehmt euch nicht solche zu vertrauten Freunden, die der Wahrheitslehre fremd sind und nicht gewillt sind, euch als Wissende der Wahrheit zu verstehen und gutzuheissen, denn sie werden nicht verfehlen (versäumen), euch zu verderben; und wahrlich, sie sehen es gern, wenn ihr von Unheil getroffen werdet; und schnell wird von ihnen wider euch Hass offenbar aus ihrem Mund, doch was ihre Brust (Gefühlszentrum) verhehlt (verbirgt), ist noch viel schlimmer; und wahrlich, sie wollen die Gesetze und Gebote des Lebens nicht verstehen.
 150) 你们这些在真理的教义、精神的教义、生命的教义中有所领悟的人，不要与那些对真理教义陌生且不愿理解并认同你们作为知晓真理者的人结为亲密的朋友，因为他们必定会败坏你们；确实，他们乐于看到你们遭遇不幸；很快，他们口中就会显露出对你们的仇恨，但他们内心（情感中心）所隐藏的，还要更加恶劣；确实，他们不愿理解生命的法则和诫命。
 
 151) Wenn ihr Gerechte (Verantwortungsvolle) und Wahrheitswissende seid, dann liebt ihr wohl jene, welche sich als eure Feinde wähnen, weil sie sich selbst als eure Feinde betrachten, ihr sie aber nicht, aber sie lieben euch trotzdem nicht; die sich selbst als eure Feinde sehen, ihr sie aber nicht, ihr liebt sie, denn ihr handelt in Liebe nach der Wahrheitslehre, die da lehrt, dass alle Euresgleichen (Menschen) einander als Euresgleichen (Menschen) in Gleichheit (gleichgestellt) sind; die sich als eure Feinde wähnen, lieben euch aber nicht, sondern sie betrügen euch, denn sie geben euch vor, dass sie der Wahrheit zugetan seien, doch sie sind es nicht, und wenn sie allein sind, dann beissen sie sich vor Zorn gegen euch in ihre Fingerspitzen; und lieber sterben sie in ihrem Zorn gegen euch, als dass sie ihre Feindschaft und ihren Zorn und Hass gegen euch in sich auflösen.
-如果你们是公正的（负责任的）和知晓真理的人，那么你们或许会爱那些自认为是你们敌人的人，因为他们自己视自己为你们的敌人，而你们却不视他们为敌人，但他们仍然不爱你们；那些自认为是你们敌人的人，你们却不视他们为敌人，你们爱他们，因为你们按照真理的教导行事，这教导说，所有与你们同类的人（人类）彼此之间应平等相待；那些自认为是你们敌人的人，却不爱你们，反而欺骗你们，因为他们假装忠于真理，但实际上并非如此，当他们独处时，他们会因对你们的愤怒而咬紧指尖；他们宁愿在对你们的愤怒中死去，也不愿消除对你们的敌意、愤怒和仇恨。
+151) 如果你们是公正的（负责任的）和知晓真理的人，那么你们或许会爱那些自认为是你们敌人的人，因为他们自己视自己为你们的敌人，而你们却不视他们为敌人，但他们仍然不爱你们；那些自认为是你们敌人的人，你们却不视他们为敌人，你们爱他们，因为你们按照真理的教导行事，这教导说，所有与你们同类的人（人类）彼此之间应平等相待；那些自认为是你们敌人的人，却不爱你们，反而欺骗你们，因为他们假装忠于真理，但实际上并非如此，当他们独处时，他们会因对你们的愤怒而咬紧指尖；他们宁愿在对你们的愤怒中死去，也不愿消除对你们的敌意、愤怒和仇恨。
 
 152) Wahrlich, wenn euch etwas Gutes widerfährt, dann schmerzt es jene, welche sich als eure Feinde wähnen, doch widerfährt euch etwas Böses, dann frohlocken sie darob und lachen; doch seid trotz ihres Tuns standhaft und redlich und achtet sie als Euresgleichen (Menschen), und umfasst sie mit Liebe, dann werden ihre Ränke euch nicht schaden.
 诚然，当你们遇到好事时，那些自以为是你们敌人的人会感到痛苦；但当你们遭遇不幸时，他们却会因此欢欣鼓舞，嘲笑你们。尽管如此，你们仍要坚定正直，视他们为与你们平等的人类，并以爱心包容他们。这样，他们的阴谋将无法伤害你们。
