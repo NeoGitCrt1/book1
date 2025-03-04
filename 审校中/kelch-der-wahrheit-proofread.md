@@ -647,7 +647,7 @@ Semjase银星中心，2008年7月13日，3:21，比利
 ##### 第一部分
 
 1) Das ist der ‹Kelch der Wahrheit›, die Worte und Richtlinien, wodurch ihr der Gesetze und Gebote der Erzeugung (Schöpfung) und im Aussehen (Natur) wissend sein sollt, um die Regeln und Werte des Lebens zu erfüllen, auf dass ihr das Dasein zur Liebe, zum Frieden und zur Freiheit, wie auch zur Gleichstimmung (Harmonie) und Weisheit führen mögt; gegeben seit Nokodemion durch die Künder, die Propheten, die bis hin zur Neuzeit in gesamter Zahl sieben sein werden.
-1) 这是“真理之杯”，通过这些语录和指导你们将知晓创世（创造）的法则和形貌（自然），以实现生命的规则和价值，从而使你们的存在导向爱、和平与自由，以及和谐与智慧；自诺科德米翁(Nokodemion)以来这些语录和指导通过预言者所给予，直到新时代，他们总共将有七位。
+1) 这是“真理之杯”，通过这些语录和指导你们将知晓创世（创造）的法则和显相（自然），以实现生命的规则和价值，从而使你们的存在导向爱、和平与自由，以及和谐与智慧；自诺科德米翁(Nokodemion)以来这些语录和指导通过预言者所给予，直到新时代，他们总共将有七位。
 
 2) Der Gebärung allen Lebens (Schöpfung) und deren Gesetze und Gebote sei euch (Menschen) Pflichterfüllung zugetan, denn allein dadurch wird Wissen der Wahrheit zur Weisheit, wodurch sich der Balsam (Essenz) aller Anschwellung (Entwicklung/Evolution) der Innenwelt (Bewusstsein) ergibt.
 2) 众生（人类）啊，你们当将一切生命的创生（创造）及其法则与诫命视为必须履行的责任，因为唯有如此，真理的知识才能成为智慧，由此方能涌现那滋养所有内在世界（意识）发展（进化）的精华（本质）。
@@ -767,10 +767,10 @@ Semjase银星中心，2008年7月13日，3:21，比利
 32) 然而在你们中间，有些人自称认识真理并对其忠诚，却在不知不觉中陷入了谎言，仅仅是信徒而已。这些人正是试图欺骗真理的人。
 
 33) Ihr habt kein Wissen ausser dem, was ihr durch die urkräftigen (schöpferischen) Gesetze und Gebote und durch die Gesetze des Aussehens (Natur) zu erlernen imstande seid, denn auch eure Gedanken und Gefühle bedingen daraus.
-33) 你们所拥有的知识，除了通过原初始动（创造性）法则和诫命以及通过形貌（自然）的法则所能学习到的之外，别无其他，因为你们的思维和情感也由此决定。
+33) 你们所拥有的知识，除了通过原初始动（创造性）法则和诫命以及通过显相（自然）的法则所能学习到的之外，别无其他，因为你们的思维和情感也由此决定。
 
 34) Der wahrliche Künder, der wahrliche Prophet, er kennt viele Geheimnisse des Himmels (Universum) und der Erden (Welten), und er weiss, was die Gesetze und Gebote der Erzeugung (Schöpfung) und die Gesetze des Aussehens (Natur) offenbaren, doch das auch für ihn unmessbare Geheimnis ist die Entstehung (Schöpfung) selbst.
-34) 真正的先知，真正的预言家，他知晓天（宇宙）与地（世界）的许多秘密，他明白生成（创造）的法则与诫命以及形貌（自然）的法则所揭示的内容，然而，对于他来说，起源（创造）本身仍是一个无可估量的奥秘。
+34) 真正的先知，真正的预言家，他知晓天（宇宙）与地（世界）的许多秘密，他明白生成（创造）的法则与诫命以及显相（自然）的法则所揭示的内容，然而，对于他来说，起源（创造）本身仍是一个无可估量的奥秘。
 
 35) Jene unter euch, welche durch ihren Glauben die Wahrheit betrügen, betrügen nur sich selbst, doch das geht über euren Verstand, denn ihr begreift es nicht.
 35) 你们中那些因自己的信仰而欺骗真理的人，只是在欺骗自己，但这超出了你们的理解能力，因为你们无法领悟它。
@@ -872,10 +872,10 @@ Semjase银星中心，2008年7月13日，3:21，比利
 67) 真理教导公平（正义），以便你们每个人在有理时都能站在他人面前。
 
 68) Euer Wissen muss kontrolliert sein, und ihr sollt das Wissen, das ihr durch die Gesetze des Aussehens (Natur) und die urkräftigen (schöpferischen) Gesetzmässigkeiten lernt, durch eigene Bemühungen des Ergründens zur Liebe, Freiheit sowie zu Frieden, Wohlklang (Harmonie) und Weisheit erweitern, damit ihr bedingterweise (relativ) allwissend und weise werdet.
-68) 你们的学识必须受到约束，你们应当通过自身努力探究，将你们通过形貌（自然）的法则和原初始动（创造性）的规律所学到的知识，扩展为爱、自由以及和平、和谐和智慧，从而使你们在某种程度上（相对地）变得全知和智慧。
+68) 你们的学识必须受到约束，你们应当通过自身努力探究，将你们通过显相（自然）的法则和原初始动（创造性）的规律所学到的知识，扩展为爱、自由以及和平、和谐和智慧，从而使你们在某种程度上（相对地）变得全知和智慧。
 
 69) Ihr Euresgleichen (Menschen) der Erde, im Namen der Wahrheit sei euch gesagt, dass ihr die Geheimnisse der Gesetze des Aussehens (Natur) und der urkräftigen (schöpferischen) Gesetzmässigkeiten zu ergründen vermögt, denn wenn ihr euch darum bemüht, offenbaren sie euch, was ihr euch infolge eurer Überheblichkeit verhehlt.
-69) 你们，地球上的同胞（人类），以真理的名义告诉你们，你们能够探究形貌（自然）的法则和原初始动（创造性）的规律的秘密，因为如果你们努力去探索，它们就会向你们揭示那些因你们的傲慢而被隐藏的东西。
+69) 你们，地球上的同胞（人类），以真理的名义告诉你们，你们能够探究显相（自然）的法则和原初始动（创造性）的规律的秘密，因为如果你们努力去探索，它们就会向你们揭示那些因你们的傲慢而被隐藏的东西。
 
 70) Ihr Euresgleichen (Menschen) der Erde, gedenkt der Zeit, da ihr noch ohne Glauben der wahrlichen Wahrheit zugetan und nicht der Wahrheit fremd wart; setzt euch daher in jenen Zustand zurück, als ihr noch nicht durch einen irren Glauben euch durch die Wahrheit der Ausführung (Schöpfung) zugetan und keine Gottheit angebetet habt.
 70) 你们，地球上的同胞（人类），请回忆那个时代吧，那时你们还没有信仰，还联结于真正的真理，且尚未与真理疏远；还请你们回到那个状态，回到联结于造物（创造）真理的时候，那个还未把自己依附于错误的信仰的时候，那个还未崇拜任何神明的时候。
@@ -905,7 +905,7 @@ Semjase银星中心，2008年7月13日，3:21，比利
 78) 所有人都有必要走出去，来到大世界（自然）里，以认识其规律并遵循其指示，从而消除对死亡的恐惧，这样当生命结束时，没有人会因无知（愚昧）而哀悼。
 
 79) Wird jedoch im Unwissen verharrt und werden die Zeichen (Wundervolles) des Aussehens (Natur) und deren sowie die gestaltungsgegebenen (schöpfungsgegebenen) und natürlichen Gesetze missachtet und als Lüge bezichtigt, dann bestraft ihr euch selbst, denn euer Leben wird voll sein von falschem Frieden, falscher Freiheit und Liebe, voll Unwissen, Unweisheit, Freudlosigkeit und Missklang (Disharmonie), wodurch ihr in eurer Anschwellung (Entwicklung/Evolution) eurer Innenwelt (Bewusstsein) gestört werdet und stockt (stagniert).
-79) 然而，如果你们固执于无知，忽视并诋毁形貌（自然）的迹象（奇迹）以及创世和自然的法则，将其视为谎言，那么你们将得到的是自我惩罚。因为你们的生活将充满虚假的和平、虚假的自由和爱，充满无知、愚昧、无喜乐和失调（不和谐），这将干扰并停滞你们内心世界（意识）的膨胀（发展/进化）。
+79) 然而，如果你们固执于无知，忽视并诋毁显相（自然）的迹象（奇迹）以及创世和自然的法则，将其视为谎言，那么你们将得到的是自我惩罚。因为你们的生活将充满虚假的和平、虚假的自由和爱，充满无知、愚昧、无喜乐和失调（不和谐），这将干扰并停滞你们内心世界（意识）的膨胀（发展/进化）。
 
 80) Euresgleichen (Menschen) der Erde, gedenkt der unendlichen Güte des Lebens und der Wohltaten, die euch seit alters her erwiesen und geschaffen wurden für alle jene von euch, welche den natürlichen und den gestaltungsmässig (schöpfungsmässig) gegebenen Gesetzen und Richtlinien Folge leisteten.
 80) 地球的人类（人），请铭记生命的无限仁慈以及自古以来为你们所施与和创造的恩惠，这些恩惠是赐予那些遵循自然和创造（造化）所赋予的法则与指引的人们。
@@ -950,7 +950,7 @@ Semjase银星中心，2008年7月13日，3:21，比利
 93) 曾有先知带着明显的迹象（奇迹和真理的教义）来到你们中间，通过这些迹象，许多原初（创造性的）的法则和诫命被阐明。然而，在他们不在的时候，你们却转而制造偶像并崇拜它们，以至于你们成了真理的亵渎者（不负责任的人）。
 
 94) Für das urquellgegebene (schöpfungsgegebene) Leben und das Aussehen (Natur) mit allen seinen Lebensformen vergab die Innenwelt der Himmel (Universalbewusstsein), dass dafür Dankbarkeit in Liebe, Frieden, Freiheit, Gleichstimmung (Harmonie) und Wahrheit gepflegt werden soll.
-94) 对于源自源头（造物赐予）的生命及其形貌（自然）以及所有的生命形式，天界的内在世界（宇宙意识）宽恕了它们，并因此应以爱、和平、自由、和谐和真理的方式培养感恩之情。
+94) 对于源自源头（造物赐予）的生命及其显相（自然）以及所有的生命形式，天界的内在世界（宇宙意识）宽恕了它们，并因此应以爱、和平、自由、和谐和真理的方式培养感恩之情。
 
 95) Dankbarkeit soll vorherrschen für die Unterscheidung von Recht und Unrecht sowie von Wahrheit und Unwahrheit, damit jeder recht geleitet sein möge.
 95) 感恩之心应主导对正误、真伪的辨别，以便每个人都能得到正确的引导。
@@ -1172,7 +1172,7 @@ Semjase银星中心，2008年7月13日，3:21，比利
 167) 信仰神和偶像的人说，那些不信仰他们宗教的异教徒不能进入天堂的乐园（神和偶像的国度），然而这些言论只是那些在信仰中迷失并错误地希望神或偶像居住在天堂乐园（神和偶像的国度）中的人的错误教义和虚妄愿望；这确实是邪恶的错误教义，那些在信仰中犯错的人永远无法提供真正的证据来证明这一点。
 
 168) Wer gänzlich sich in die urkräftigen (schöpferischen) Gesetze und Gebote und in die Gesetze des Aussehens (Natur) einordnet, der wird allzeit in Billigkeit (Gerechtigkeit) angemessenen Lohn empfangen; und es wird keine Angst und keine Furcht auf ihn kommen, noch wird er in falsche Trauer verfallen.
-168) 凡完全遵循原初始动（创造性）的法则和诫命，以及形貌（自然）法则的人，将始终在公正中获得适当的报酬；他不会有任何焦虑和恐惧，也不会陷入虚假的悲伤。
+168) 凡完全遵循原初始动（创造性）的法则和诫命，以及显相（自然）法则的人，将始终在公正中获得适当的报酬；他不会有任何焦虑和恐惧，也不会陷入虚假的悲伤。
 
 169) Die einen Gottgläubigen und Götzengläubigen sagen, dass die Andersgläubigen mit ihrem Glauben auf nichts fussen, und die Andersgläubigen sagen, dass die andern mit ihrem Glauben auf nichts fussen, obwohl sie beide die Schriften ihres Glaubens lesen, die allesamt besagen, dass sie auch im Glauben gleichwertig und tolerant sein sollen; und gleich ihrer Rede sprachen schon jene, welche keine Kenntnis von den Schriften hatten, so schon sie fehlbar untereinander richteten, weil sie untereinander uneinig waren.
 169) 一些信仰上帝的人和信仰偶像的人说，那些信仰不同的人，他们的信仰没有基础；而那些信仰不同的人则说，其他人的信仰也没有基础，尽管他们双方都阅读自己信仰的经典，这些经典都表明他们应该在信仰上平等和宽容；那些对经典一无所知的人，也同样如此说话，他们彼此评判错误，因为他们彼此之间意见不一。
@@ -1469,10 +1469,10 @@ Semjase银星中心，2008年7月13日，3:21，比利
 266) 女性不应被视为男性满足性欲的工具，他可以随心所欲地接近她。因为在发生性行为时，必须考虑到女性的意愿和需求，也就是说，应该存在一种自愿的互惠关系，这样女性和男性才能在同一意愿下行动，不受任何强迫。如果女性和男性自愿发生性关系，那么应该确保有爱和善意作为前提，这样双方才能在尊严和感情中相遇，从而完成他们的爱的行为。
 
 267) Und es sei auch ein Bündnis der reinen gleichgeschlechtlichen Einträchtigkeit (Partnerschaft) erlaubt, so zwischen Weib und Weib und zwischen Mann und Mann, so sie in Gemeinschaft zusammenleben in gleicher Berechtigung in allen Dingen; das Bündnis zwischen Mann und Mann sei jedoch derart, dass sie nicht durch Wandlung ihres Aussehens (Natur) zu gebären vermögen, auf dass sie nicht Verstoss wider die Gesetze und die Ordnung der Urkraft (Schöpfung) betreiben; und es sei in der gleichgeschlechtlichen Einträchtigkeit den Gefährten und Gefährtinnen die Sinnlichkeit (sexuelles Tun) erlaubt, wie in der zweigeschlechtlichen Einträchtigkeit.
-267) 并且，纯同性间的和谐（伴侣关系）也是被允许的，无论是在女性与女性之间，还是在男性与男性之间，只要他们在所有事物中以平等的权利共同生活；然而，男性与男性之间的结合应当如此，即他们不能通过改变形貌（自然）来生育，以免他们违背法则和原初力量（创造）的秩序；在同性间的和谐中，伴侣之间的感官享受（性行为）是被允许的，就像在异性间的和谐中一样。
+267) 并且，纯同性间的和谐（伴侣关系）也是被允许的，无论是在女性与女性之间，还是在男性与男性之间，只要他们在所有事物中以平等的权利共同生活；然而，男性与男性之间的结合应当如此，即他们不能通过改变显相（自然）来生育，以免他们违背法则和原初力量（创造）的秩序；在同性间的和谐中，伴侣之间的感官享受（性行为）是被允许的，就像在异性间的和谐中一样。
 
 268) Und also sei es dem Weib wie auch dem Mann erlaubt, Gefallen (Befriedigung resp. Selbstbefriedigung) am eigenen Geschlechtsorgan zu tun, denn es liegt im Aussehen (Natur) der beiden, und es verstösst nicht wider die Gesetze der Urkraft (Schöpfung), solches zu tun.
-268) 因此，无论男女，在自身性器官上获得愉悦（满足/自我满足），因这属于两者的形貌（自然），只要不违背原初力量（创造）的法则，这样做并无不妥。
+268) 因此，无论男女，在自身性器官上获得愉悦（满足/自我满足），因这属于两者的显相（自然），只要不违背原初力量（创造）的法则，这样做并无不妥。
 
 269) Und es sei der Eingang (sexueller Missbrauch) zu Kindern ein schwerer Frevel und eine Schändlichkeit wider die Kinder und die Gesetze der Urkraft (Schöpfung), also solches Tun mit harter Ahndung einer Massnahmevollziehung, einer Entmannung oder Entweibung (Verbannung und Ausschluss aus dem Volk/Gesellschaft nach Geschlecht getrennt) und mit einer Entehrung auf notwendige Zeit geächtet werde.
 269) 对儿童的性侵犯行为是一种严重的罪行，是对儿童和原初力量（创造）法则的亵渎。因此，这种行为应受到严厉的惩罚，包括实施相应的措施、阉割或剥夺性别身份（根据性别分别驱逐和排除出社会），并在必要的时间内予以羞辱和谴责。
@@ -1622,7 +1622,7 @@ Semjase银星中心，2008年7月13日，3:21，比利
 317) 你们在世上的生活是为了学习和实现生命的意义，这意义体现在知识和智慧的不断增长（发展/进化）中，体现在爱与和平的实践，以及自由与和谐（协调）的追求中。这些真理和现实应在你们所有人中得到认可和遵循。
 
 318) Die Schönheit aller Dinge und Zeichen (Unübertrefflichkeiten) der Quelle des Daseins (Schöpfung) und ihr Aussehen (Natur) sollen euch anziehend erscheinen und euch die Wahrheit und Huld der Quelle des Daseins (Schöpfung) und ihrer Gesetze und Gebote offenbaren, doch sehr viele sind unter euch, die ihr die wahrliche Wahrheit und die Wissenden der Wahrheit verhöhnt, doch sowohl die Quelle des Daseins (Schöpfung) selbst als auch die Propheten und die Wissenden der Wahrheit stehen mit ihrer Liebe und Freiheit sowie mit ihrem Frieden und ihrem Ebenmass (Harmonie) mit euch und sind gütig zu euch, denn ihr wisst nicht, was ihr in eurem Unwissen Schändliches wider die Quelle des Daseins (Schöpfung), die Wahrheit, die Wissenden und wider die Künder der Wahrheit tut; es sei euch euer Unwissen und euer schändliches Tun verziehen, denn ihr seid irregeleitet worden und müsst lernen.
-318) 万物之美、存在之源（创造）的种种迹象（卓越造物）及其形貌（自然）应当吸引你们，并向你们揭示存在之源（创造）及其法则和诫命的真理与恩泽。然而，你们中有许多人嘲笑了真正的真理和真理的知者。但无论是存在之源（创造）本身，还是先知和真理的知者，都以他们的爱与自由、和平与和谐（平衡）与你们同在，并对你们仁慈，因为你们不知道自己在无知中对存在之源（创造）、真理、知者以及真理的谕师所做的可耻之事。愿你们的无知和可耻行为得到宽恕，因为你们曾被误导，需要继续学习。
+318) 万物之美、存在之源（创造）的种种迹象（卓越造物）及其显相（自然）应当吸引你们，并向你们揭示存在之源（创造）及其法则和诫命的真理与恩泽。然而，你们中有许多人嘲笑了真正的真理和真理的知者。但无论是存在之源（创造）本身，还是先知和真理的知者，都以他们的爱与自由、和平与和谐（平衡）与你们同在，并对你们仁慈，因为你们不知道自己在无知中对存在之源（创造）、真理、知者以及真理的谕师所做的可耻之事。愿你们的无知和可耻行为得到宽恕，因为你们曾被误导，需要继续学习。
 
 319) Und viele sind unter euch, die ihr euch im Grössenwahn und in Selbstsucht brüstet und euch ins Licht der Aufmerksamkeit der Euresgleichen (Menschen) stellt, um vor ihnen zu scheinen, doch euer Wesen ist verkommen und eure Artung (Psyche) und Innenwelt (Bewusstsein) sind krank durch Glänzenwollen vor den anderen; und wahrlich, eure Bemühungen fussen in Unbescheidenheit und in der Gier nach dem Erregen von Aufsehen um eure Person, doch euer Dasein ist dadurch Freudlosigkeit und Unbilligkeit (Ungerechtigkeit), und euer Glück ist zerbrechlich wie modriges Holz, und eure Lebensführung ist gleichsam nichtsnutzig wie eine faulende Frucht.
 319) 你们中有许多人，在自大和自私中自夸，将自己置于人类（人）的注意之光下，以在他们面前闪耀，然而你们的本质已经堕落，你们的心性（心理）和内心世界（意识）因渴望在他人面前发光而病态；确实，你们的努力建立在不知谦逊和渴望引起对你们个人的关注之上，然而你们的存在因此是无趣和不公正的，你们的幸福如同腐朽的木头般脆弱，你们的生活方式就像腐烂的果实一样无用。
@@ -1634,7 +1634,7 @@ Semjase银星中心，2008年7月13日，3:21，比利
 321) 那些畏惧傲慢而真正谦逊行事，并以此方式生活的人，将永远高于那些傲慢的人，因为谦逊者通过荣誉和尊严赢得真正的朋友，而傲慢和虚荣（渴望关注与崇拜）的人，他们的行为只会招致虚假的友谊和那些被他们迷惑的人（追随者）的盲目崇拜，这些人在虚假的热忱，因思想和情感的迷惑而盲目信仰，被痛苦地束缚。
 
 322) Die Geschlechter Euresgleichen (Menschengeschlechter) waren zu frühesten Zeiten friedliche Gemeinschaften, doch durch die Zeit hinweg entfremdeten sie sich und wurden uneins gegeneinander und aufsässig und zu Feinden, weil sie sich den Gesetzen und Geboten der Urquelle (Schöpfung) und den Gesetzen des Aussehens (Natur) entfremdeten; also waren aber Weise unter den Völkern, die ihr Dasein in guter Weise nach den Gesetzen und Geboten der Urquelle (Schöpfung) und nach den Gesetzen des Aussehens (Natur) pflegten, also sie sich als Lehrer erhoben, um die in den Gesetzen und Geboten der Urquelle (Schöpfung) und in den Gesetzen des Aussehens (Natur) aufs Ärgste abtrünnig und fehlbar gewordenen Völker zu unterweisen in allen rechten Dingen und in der Befolgung der Wahrheit und der Gesetze und Gebote der Urquelle (Schöpfung) und der Gesetze des Aussehens (Natur); und unter allen Weisen ging ein besonderer Weiser hervor, Nokodemion, der als Bringer der Botschaft der Gesetze und Gebote der Urquelle (Schöpfung) und der Gesetze des Aussehens (Natur) und als deren Lehrer und Warner waltete und die Linie der Reihe der Propheten erweckte; und also blieben alle Nachfolger seiner Person in Geburt für Geburt in dieser Aufgabe, so sie sich diese zur Berufung machten, weil der weise Lehrer sich zum Künder, zum Propheten, wandelte und im stetigen Wiederkommen in neuer Person Äonen überdauerte, um in ferner Zukunft auf eurer Erde zu erscheinen als Henoch, als erster Prophet auf der Erdenrundheit in der fernen Linie des Nokodemion; und es wird sein, dass die Linie des Nokodemion in der gleichen Form des Geistes, doch in immer neuer Person mit einer neuen Innenwelt (Bewusstsein) weitergeführt wird, in siebenfacher Folge von Henoch bis in die Neuzeit, wenn der letzte Prophet der Reihe das Werk der Lehre der Wahrheit, der Lehre des Geistes, der Lehre des Lebens vollenden wird.
-322) 人类（人）在最早的时代是和平的群体，但随着时间的推移，他们逐渐疏远，彼此不和，变得叛逆，并成为敌人，因为他们背离了原初之源（创造）的法则和诫命，以及形貌（自然）的法则；然而，在众民族中，也有智者，他们按照原初之源（创造）的法则和诫命，以及形貌（自然）的法则，以良好的方式维护自己的存在，因此他们作为教师崛起，以教导那些在原初之源（创造）的法则和诫命，以及形貌（自然）的法则中严重背离和犯错的民族，教导他们所有正确的事情，并遵循真理、原初之源（创造）的法则和诫命，以及形貌（自然）的法则；在所有的智者中，有一位特别的智者，诺科德米翁(Nokodemion)，他作为原初之源（创造）的法则和诫命，以及形貌（自然）的法则的使者、教师和警告者而行事，并唤醒了先知一脉的传承；因此，他的所有转世代代相传，都将这一任务作为自己的使命，因为这位智者教师变成了谕师、先知，并在新的身体中不断重生，跨越了无数的时代，以便在遥远的未来出现在你们的地球上，作为以诺，作为诺科德米翁(Nokodemion)遥远传承中的第一位先知；并且，诺科德米翁(Nokodemion)的传承将以相同的精神形式，但以永远新的身体和新的内心世界（意识）继续下去，从以诺到现代，以七重的传承，直到最后一位先知完成真理的教导、精神的教导、生命的教导的工作。
+322) 人类（人）在最早的时代是和平的群体，但随着时间的推移，他们逐渐疏远，彼此不和，变得叛逆，并成为敌人，因为他们背离了原初之源（创造）的法则和诫命，以及显相（自然）的法则；然而，在众民族中，也有智者，他们按照原初之源（创造）的法则和诫命，以及显相（自然）的法则，以良好的方式维护自己的存在，因此他们作为教师崛起，以教导那些在原初之源（创造）的法则和诫命，以及显相（自然）的法则中严重背离和犯错的民族，教导他们所有正确的事情，并遵循真理、原初之源（创造）的法则和诫命，以及显相（自然）的法则；在所有的智者中，有一位特别的智者，诺科德米翁(Nokodemion)，他作为原初之源（创造）的法则和诫命，以及显相（自然）的法则的使者、教师和警告者而行事，并唤醒了先知一脉的传承；因此，他的所有转世代代相传，都将这一任务作为自己的使命，因为这位智者教师变成了谕师、先知，并在新的身体中不断重生，跨越了无数的时代，以便在遥远的未来出现在你们的地球上，作为以诺，作为诺科德米翁(Nokodemion)遥远传承中的第一位先知；并且，诺科德米翁(Nokodemion)的传承将以相同的精神形式，但以永远新的身体和新的内心世界（意识）继续下去，从以诺到现代，以七重的传承，直到最后一位先知完成真理的教导、精神的教导、生命的教导的工作。
 
 323) Das Wort und die Schrift der Wahrheitslehre ist gegeben durch die Künder, die Propheten, eine Lehre in einheitlicher Weise, so sie nicht zwiespältig und nicht im Widerspruch ist, jedoch gegeben von Künder, Prophet, zu Künder, Prophet, in immer weiterer Form der Auslegung, gegeben je nach eurem neuen und besseren Verstehen; und die Lehre der Wahrheit, die Lehre des Geistes, die Lehre des Lebens ist euch gegeben durch Nokodemion und durch alle Künder, Propheten, seiner Linie als Richtschnur (Wegweisung/Leitgedanke) des Lebens und der Anschwellung (Entwicklung/Evolution) eurer Innenwelt (Bewusstsein), auf dass ihr entscheiden mögt zwischen Recht und Unrecht, so ihr die Gesetze und Gebote der Urquelle (Schöpfung) erfüllt.
 323) 真理教义的话语和文字是由谕师、先知所传授的，这种教义是统一的，不矛盾且不分裂的，然而，它是由一位谕师、先知传给另一位谕师、先知，以越来越广泛的形式进行解释，根据你们新的和更好的理解而传授；真理的教义、精神的教义、生命的教义是通过诺科德米翁(Nokodemion)以及他这一脉的所有谕师、先知传授给你们的，作为你们生命和内心世界（意识）膨胀（发展/进化）的准则（指引/主导思想），以便你们能够在遵守原初之源（创造）的法则和诫命的基础上，决定对与错。
@@ -1694,7 +1694,7 @@ Semjase银星中心，2008年7月13日，3:21，比利
 340) 如果有人问及施舍之事，你们应当说，应当给予那些多余的，无论是财物、储蓄，还是良好的建议或善行。
 
 342) Gegeben sind euch die Gesetze und Gebote der Erschaffung (Schöpfung) und die Gesetze des Aussehens (Natur), dargebracht und ausgelegt in wahrlicher Wahrheit durch die Propheten, auf dass euch umfänglich die Wahrheitslehre klar und verständlich sei, auf dass ihr darüber nachdenkt und die Lehre befolgt.
-342) 你们被赋予了塑世始源（创造）的法则和形貌（自然）的法则，这些法则通过先知们以真实的真理被呈现和解释，以便使你们全面理解真理的教义，使其清晰易懂，以便你们能够思考并遵循这一教义。
+342) 你们被赋予了塑世始源（创造）的法则和显相（自然）的法则，这些法则通过先知们以真实的真理被呈现和解释，以便使你们全面理解真理的教义，使其清晰易懂，以便你们能够思考并遵循这一教义。
 
 343) Bedenkt, unrecht Gut gedeihet nicht, also ihr stets wachsam sein sollt und nur des Guten und Wahrlichen bedenkt, auf dass ihr nur das Gute und Wahrheitliche tut und die Gesetze und Gebote der Erschaffung (Schöpfung) beachtet und sie befolgt.
 343) 要记住，不义之财不会长久，因此你们应当时刻保持警觉，只思考善与真，以便你们只做善事和真实的事，遵守并遵循塑世始源（创造）的法则和诫命。
@@ -2261,7 +2261,7 @@ Semjase银星中心，2008年7月13日，3:21，比利
 128) 当你遵循起源（创造）的法则和诫命时，要时刻铭记它们的仁慈与恩惠；同样，也要铭记你应给予那些被称为你敌人的人的仁慈与恩惠，使敌意转化为真诚的友谊；在爱中团结一致，培养彼此的理解，使你们如同兄弟姐妹般相互尊重与保护。
 
 129) Bringt euch nicht durch Feindschaft an den Rand einer Feuergrube, sondern bewahrt euch davor, auf dass ihr nicht in eine hineinstürzt und ihr in eurem Hass und in eurer Rachsucht zur Unkenntlichkeit verbrennt; erfüllt klar und deutlich die Gesetze und Gebote der Erschaffung (Schöpfung) und des Aussehens (Natur), wie sie euch gelehrt sind durch die wahrlichen Propheten, auf dass ihr recht geleitet seid.
-129) 不要因敌对关系而将自己推向火坑的边缘，要警惕自己陷入其中，在仇恨和报复中被烧得面目全非；要清晰明确地遵循塑世始源（创造）和形貌（自然）的法则与诫命，正如真先知所教导你们的那样，以便你们得到正确的引导。
+129) 不要因敌对关系而将自己推向火坑的边缘，要警惕自己陷入其中，在仇恨和报复中被烧得面目全非；要清晰明确地遵循塑世始源（创造）和显相（自然）的法则与诫命，正如真先知所教导你们的那样，以便你们得到正确的引导。
 
 130) Und seht zu, dass unter euch eine anwachsende Gemeinschaft Euresgleichen (Mitmenschen) sei, die zur Lehre der Wahrheit, der Lehre des Geistes, der Lehre des Lebens und zum Guten auffordert und die zum Recht anregt (belehrt) und das Unrecht verwehrt, auf dass es euch wohl ergehen möge.
 130) 并且要确保在你们中间形成一个不断壮大的人类（人）群体，这个群体要倡导真理的教导、精神的教导、生命的教导以及善的教导，并且要激发正义（教导正义）并阻止不义，以便你们能够顺利安康。
@@ -2279,7 +2279,7 @@ Semjase银星中心，2008年7月13日，3:21，比利
 134) 那些因热爱真理、知识、智慧、公正（正义）和对真理的敬畏（尊敬）而面色明亮的人，将在你们许多人类（人）的青睐中，作为受尊敬和始终受欢迎的人，与他们同在。
 
 135) Auch das sind Zeichen (Beweise) der Gesetze und Gebote des Wissens, der Weisheit und der Gesetze und Gebote der Erschaffung (Schöpfung) und des Aussehens (Natur); und auch das sind Zeichen (Beweise) der Propheten, die sie euch vortragen, weil sie die Wahrheit umfassen und die sie geben, weil sie keine Unbilligkeit (Ungerechtigkeit) und kein Unwissen in der Wahrheit unter euch wollen.
-135) 这些也是知识法则与诫命、智慧本源法则与诫命，以及塑世始源（创造）与形貌（自然）法则与诫命的迹象（证明）；而这些也是先知们向你们宣讲的迹象（证明），因为他们涵盖真理，并给予这些，因为他们不愿真理在你们中存在不义（不公正）与无知。
+135) 这些也是知识法则与诫命、智慧本源法则与诫命，以及塑世始源（创造）与显相（自然）法则与诫命的迹象（证明）；而这些也是先知们向你们宣讲的迹象（证明），因为他们涵盖真理，并给予这些，因为他们不愿真理在你们中存在不义（不公正）与无知。
 
 136) Der Urquelle der Weisheit (Schöpfung) ist alles, was in den Himmeln (Universum) und auf den Erden (Welten/Planeten) ist, und alles hat sie euch vorgelegt, auf dass ihr es des Rechtens ver waltet und auch selbst des Rechtens seid, also ihr euch entscheiden mögt, in allen Dingen des Rechtens zu tun.
 136) 智慧本源（创造）是存在于诸天（宇宙）和大地（世界/星球）中的一切，这一切都已呈现在你们面前，以便你们能够公正地管理，并使自己成为公正的，从而在一切事物中做出公正的决定。
@@ -2318,19 +2318,19 @@ Semjase银星中心，2008年7月13日，3:21，比利
 147) 你们在彼此之间存在不公正，因而对你们自己也是不公正的，所以你们应该学会对自己和你们的同类（他人）公正，以便你们能够实现和平共处，获得内心的平静。
 
 148) Gebt nicht euer Erdenleben hin im Unwissen an die Wahrheit der Urkraft (Schöpfung), so ihr nicht zerstörend seid wie der Sturmwind, der mit eisigem Unwetter die Ackerfrucht trifft und sie vernichtet; frevelt nicht durch Unwissen an eurem Dasein und also nicht am Bestand eurer Welt, denn sonst zerstört ihr euch selbst, wie auch eure Erde und ihr Aussehen (Natur); seid allezeit genügsam (bescheiden) in allen Dingen und treibt nicht die Zahl eurer Nachkommenschaft ins Ausgedehnte (Unermessliche/Enorme/Unbegrenzte), so ihr nicht die Zerstörer eurer Welt werdet und sie sich nicht in Not und Schmerz aufwerfe (aufbäume) und sich nicht gegen eure Zerstörungswut mit Urgewalt erwehre und euch und eure Erschaffungen (Errungenschaften) nicht zermalme.
-148) 不要因为对原初力量（创造）真理的无知而放弃你们的尘世生活，除非你们像风暴一样具有破坏性，用冰冷的暴风雨摧毁庄稼；不要因为无知而亵渎你们的存在，从而也亵渎你们世界的存续，否则你们将自我毁灭，如同毁灭你们的地球和它的形貌（自然）；在所有事情上始终保持知足（谦逊），不要将你们的后代数量推向极端（无限/巨大/无限制），以免你们成为自己世界的破坏者，使世界不会陷入困境和痛苦中，不会以原始力量反抗你们的破坏欲望，将你们和你们所造之物粉碎。
+148) 不要因为对原初力量（创造）真理的无知而放弃你们的尘世生活，除非你们像风暴一样具有破坏性，用冰冷的暴风雨摧毁庄稼；不要因为无知而亵渎你们的存在，从而也亵渎你们世界的存续，否则你们将自我毁灭，如同毁灭你们的地球和它的显相（自然）；在所有事情上始终保持知足（谦逊），不要将你们的后代数量推向极端（无限/巨大/无限制），以免你们成为自己世界的破坏者，使世界不会陷入困境和痛苦中，不会以原始力量反抗你们的破坏欲望，将你们和你们所造之物粉碎。
 
 149) Ihr, die ihr wissend seid in der Wahrheitslehre, nehmt nicht solche zu vertrauten Freunden, die nicht für euch einstehen und nur Freundschaft heucheln, solange sie von euch Aufschlag (Nutzen) haben, jedoch ihrer Freundschaft nicht mehr gedenken, wenn ihr in Not fallt und ihre Hilfe braucht.
-149) 你们这些通晓真理教义的人，不要与那些不为你们挺身而出、只在能从你们那里获得好处时假装友谊的人成为亲密朋友。当你们陷入困境需要帮助时，他们却不再记得这段友谊。
+149) 你们这些知晓真理教义的人，不要与那些不为你们挺身而出、只在能从你们那里获得好处时假装友谊的人成为亲密朋友。当你们陷入困境需要帮助时，他们却不再记得这段友谊。
 
 150) Und ihr, die ihr wissend seid in der Lehre der Wahrheit, der Lehre des Geistes, der Lehre des Lebens, nehmt euch nicht solche zu vertrauten Freunden, die der Wahrheitslehre fremd sind und nicht gewillt sind, euch als Wissende der Wahrheit zu verstehen und gutzuheissen, denn sie werden nicht verfehlen (versäumen), euch zu verderben; und wahrlich, sie sehen es gern, wenn ihr von Unheil getroffen werdet; und schnell wird von ihnen wider euch Hass offenbar aus ihrem Mund, doch was ihre Brust (Gefühlszentrum) verhehlt (verbirgt), ist noch viel schlimmer; und wahrlich, sie wollen die Gesetze und Gebote des Lebens nicht verstehen.
 150) 你们这些在真理的教义、精神的教义、生命的教义中有所领悟的人，不要与那些对真理教义陌生且不愿理解并认同你们作为知晓真理者的人结为亲密的朋友，因为他们必定会败坏你们；确实，他们乐于看到你们遭遇不幸；很快，他们口中就会显露出对你们的仇恨，但他们内心（情感中心）所隐藏的，还要更加恶劣；确实，他们不愿理解生命的法则和诫命。
 
 151) Wenn ihr Gerechte (Verantwortungsvolle) und Wahrheitswissende seid, dann liebt ihr wohl jene, welche sich als eure Feinde wähnen, weil sie sich selbst als eure Feinde betrachten, ihr sie aber nicht, aber sie lieben euch trotzdem nicht; die sich selbst als eure Feinde sehen, ihr sie aber nicht, ihr liebt sie, denn ihr handelt in Liebe nach der Wahrheitslehre, die da lehrt, dass alle Euresgleichen (Menschen) einander als Euresgleichen (Menschen) in Gleichheit (gleichgestellt) sind; die sich als eure Feinde wähnen, lieben euch aber nicht, sondern sie betrügen euch, denn sie geben euch vor, dass sie der Wahrheit zugetan seien, doch sie sind es nicht, und wenn sie allein sind, dann beissen sie sich vor Zorn gegen euch in ihre Fingerspitzen; und lieber sterben sie in ihrem Zorn gegen euch, als dass sie ihre Feindschaft und ihren Zorn und Hass gegen euch in sich auflösen.
-151) 如果你们是公正的（负责任的）和知晓真理的人，那么你们或许会爱那些自认为是你们敌人的人，因为他们自己视自己为你们的敌人，而你们却不视他们为敌人，但他们仍然不爱你们；那些自认为是你们敌人的人，你们却不视他们为敌人，你们爱他们，因为你们按照真理的教导行事，这教导说，所有与你们同类的人（人类）彼此之间应平等相待；那些自认为是你们敌人的人，却不爱你们，反而欺骗你们，因为他们假装忠于真理，但实际上并非如此，当他们独处时，他们会因对你们的愤怒而咬紧指尖；他们宁愿在对你们的愤怒中死去，也不愿消除对你们的敌意、愤怒和仇恨。
+151) 如果你们是公正的（负责任的）和知晓真理的人，仍应关爱那些自视为你们敌人者，因为他们单方面视自己为你们的敌人，而你们却不视他们为敌人，尽管他们仍不关爱你们；那些自视为你们敌人的人，你们却仍给予关爱，因为你们按照真理的教导行事，这教导说，所有与你们同类的人（人类）彼此之间应平等相待；那些自视为你们敌人的人，非但不关爱你们，反而欺骗你们，因为他们假装忠于真理，但实际上并非如此，当他们独处时，他们会因对你们的愤怒而啃咬指尖；他们宁愿在对你们的愤怒中死去，也不愿消解对你们的敌意、愤怒和仇恨。
 
 152) Wahrlich, wenn euch etwas Gutes widerfährt, dann schmerzt es jene, welche sich als eure Feinde wähnen, doch widerfährt euch etwas Böses, dann frohlocken sie darob und lachen; doch seid trotz ihres Tuns standhaft und redlich und achtet sie als Euresgleichen (Menschen), und umfasst sie mit Liebe, dann werden ihre Ränke euch nicht schaden.
-诚然，当你们遇到好事时，那些自以为是你们敌人的人会感到痛苦；但当你们遭遇不幸时，他们却会因此欢欣鼓舞，嘲笑你们。尽管如此，你们仍要坚定正直，视他们为与你们平等的人类，并以爱心包容他们。这样，他们的阴谋将无法伤害你们。
+152) 诚然，当你们遇到好事时，那些自视为你们敌人的人会感到痛苦；当你们遭遇不幸时，他们却会因此欢欣鼓舞，嘲笑你们。尽管如此，你们仍要坚定正直，视他们为与你们平等的人类，并以爱心包容他们。这样，他们的阴谋将无法伤害你们。
 
 153) Bedenkt, wenn ihr des Morgens früh aufsteht und aus eurem Haus geht, dass ihr stets freundlich und gut zu euch selbst seid, wie auch zu all jenen, denen ihr begegnet und mit denen ihr zu tun habt, auf dass weder ihr noch sonst jemand sich über euch errege.
 153) 请记住，当你们清晨早起，走出家门时，要始终对自己友善和善待，就像对待所有你们遇到和打交道的人一样，这样你们自己和他人就不会对你们感到不满。
@@ -2342,34 +2342,34 @@ Semjase银星中心，2008年7月13日，3:21，比利
 155) 切勿沉溺于怯懦（懦弱），而应时刻以巨大的勇气支持自己，以确保在任何事情上都不会变得软弱，并在所有事情中将自己视为保护者，如此你才能对自己心存感激。
 
 156) Es genügt euch nicht, dass die Propheten euch Zeichen (Beweise) und die Lehre der Wahrheit bringen, da ihr doch euren erdichteten (erfundenen) Göttern und Götzen mit falschen Lehren nacheifert und ihr euch von deren Priestern und sonstigen Dienern (Handlangern) verbissen irreführen lasst und glaubt, dass euer Gott oder Götze euch Befreier (Engel) herabsende, die euch zu Hilfe kommen sollen, wenn ihr mit jenen in einer Schlacht (Krieg) fechtet, die ihr zu euren Feinden erhoben habt.
-156) 你们不满足于先知带给你们的迹象（证据）和真理的教诲，反而追随你们虚构的（发明的）神明和偶像，接受他们虚假的教导，并且被他们的祭司和其他仆从（帮凶）顽固地误导，相信你们的神或偶像会派遣救世者（天使）在你们与那些被你们视为敌人的战斗中前来相助。
+156) 你们不满足于先知带给你们的迹象（证据）和真理的教诲，反而追随你们虚构的（发明的）神明和偶像，接受他们虚假的教导，并且被他们的祭司和其他仆从（帮凶）顽固地误导，让你们相信神或偶像会派遣救世者（天使）在你们与那些被你们视为敌人的战斗中前来相助。
 
 157) Und so ihr euch Feinde schafft, so kommen sie über euch in wilder Hast, doch es werden von keinem eurer Götter und Götzen aus den Wolken (vom Himmel) stürmende Befreier (Engel) kommen, die euch zu Hilfe eilen, denn Befreier (Engel) von Göttern und Götzen sind ebenso von Euresgleichen (Menschen) erdichtete (erfundene) wesenlose Gestalten wie die Götter und Götzen selbst.
 157) 如果你们树敌，他们会迅速向你们袭来，但你们的任何神祇和偶像都不会从云端（天上）派出救援的天使来帮助你们，因为神祇和偶像的救援者（天使）与神祇和偶像本身一样，都是你们人类（人）虚构的、无实体的形象。
 
 158) Also sollt ihr euch auf die wahrliche Wahrheit einrichten, wie sie euch durch die Lehre der Propheten gegeben ist, so ihr deren frohe Botschaft in euch aufnehmen mögt, damit ihr euch in eurer Absicht und Betrachtung (Sinnen und Trachten) in eurer Innenwelt (Bewusstsein) beruhigt; und wahrlich, wenn euch Hilfe in irgendwelchen Dingen zuteil wird, dann kommt sie von euch allein, denn was euch selbst anbetrifft, seid ihr die Mächtigen und die, die ihr Wissen und Weisheit in euch erschaffen müsst.
-因此，你们应当以真正的真理为准则，正如先知们的教导所赋予你们的那样，只要你们愿意在心中接纳他们的喜讯，以便你们在内心的意图和思考（思索与追求）中得以平静；确实，如果你们在任何事情上得到帮助，那么这帮助只来自于你们自己，因为关于你们自身，你们是强大的，是那些必须在自身中创造知识和智慧的人。
+158) 因此，你们应当以真正的真理为准则，正如先知们的教导所赋予你们的那样，只要你们愿意在心中接纳他们的喜讯，以便你们在内心的意图和思考（思索与追求）中得以平静；确实，如果你们在任何事情上得到帮助，那么这帮助只来自于你们自己，因为关于你们自身，你们是强大的，是那些必须在自身中创造知识和智慧的人。
 
 159) Aber so viele unter euch sind wankelmütig, weshalb ihr als Unwissende Teile der Wahrheit abschneidet und euch dadurch niederwerft, wodurch ihr oft unverrichteter Dinge vom Bösen umkehren müsst, wenn ihr von der Wahrheit eingeholt werdet.
-然而，你们中有许多人摇摆不定，正因为你们无知地割裂了真理的部分，并因此自我贬低，常常在未完成之事上被迫从邪恶中回转，当你们被真理追上时。
+159) 然而，你们中有许多人摇摆不定，因而愚昧（无知）地割裂部分真理，并因此自我贬低，这就是为何你们常常因被真理追及而不得不从恶行（邪恶）中无功折返。
 
 160) Es ist allein eure Obliegenheit, euch selbst in Schonung (Güte) zuzuwenden und euch zu Wahrheitswissenden zu machen, wie es auch eure Bedeutung (Belang/Sache) ist, ob ihr euch selbst bestraft, indem ihr Frevler (Verantwortungslose) an der Wahrheit seid.
-160) 你们的责任是向自己展现仁慈，并使自己成为知晓真理的人，这也是你们的意义所在，无论你们是否通过成为真理的背弃者而惩罚自己。
+160) 你们的责任是向自己展现仁慈，并使自己成为知晓真理的人；是否因背弃真理而惩罚自己，也是你们的意義（观点／责任）。
 
 161) Der Urkraft der Liebe (Schöpfung) ist alles, was in den Himmeln (Universum) und auf den Erden (Welten/Planeten) ist, doch ihr seid es, denen es gegeben ist, euch zu vergeben oder zu ahnden nach Billigkeit (Gerechtigkeit).
-161) 爱的原初力量（创造）是天上（宇宙）和地上（世界/星球）的一切，但你们是被赋予权力的人，可以根据公平（正义）来宽恕或惩罚。
+161) 爱的原初力量（创造）是天上（宇宙）和地上（世界/星球）的一切，但你们自己才是被赋予权力去根据公平（正义）来宽恕或惩罚自己的人。
 
 162) Alle unter euch, die ihr Wissende der Wahrheit und Gerechte (Verantwortungsvolle) und Rechtschaffene (Gewissenhafte) seid, verschlingt nicht Aufschlag (Zins) und Aufschlag auf Aufschlag (Zinseszins), wenn ihr Dargaben (Darlehen) oder Borgen (Leihgeld) oder Beleihung (Pfandgeld/ Bürgschaftsgeld) gebt, sondern verlangt nur Aufschlag (Zins) und Ausgleich in gerechter (statthafter) Weise, auf dass ihr keine Schacherer (Habsüchtige/Wucherer) seid und auf dass es euch wohl ergehen möge.
-在你们中间，凡是知晓真理、正义（负责任）和正直（有良知）的人，当你们提供贷款、借款或抵押（担保金）时，不要吞噬利息和复利，而应以公正（合理）的方式要求利息和补偿，这样你们就不会成为贪婪者（贪得无厌者/高利贷者），并且你们将会得到福祉。
+162) 在你们中间，凡是知晓真理、正义（负责任）和正直（有良知）的人，当你们提供贷款、借款或抵押（担保金）时，不要吞噬利息和复利，而应以公正（合理）的方式要求利息和补偿，这样你们就不会成为贪婪者（贪得无厌者/高利贷者），并且你们将会得到福祉。
 
 163) Fürchtet das Schachern (Wuchertreiberei) und das Feuer des Unwissens, wenn ihr euch von der Lehre der Wahrheit, der Lehre des Geistes, der Lehre des Lebens abwendet und in euch selbst verkommt, indem ihr in euch Lieblosigkeit und Unfrieden sowie Unfreiheit und Ungleichstimmung (Disharmonie) erschafft.
-163) 当你们背离真理的教导、精神的教导、生命的教导，并在自身中滋生无情与不安、不自由与不和谐（失调）时，你们应畏惧贪婪（高利贷）与无知之火。
+163) 应畏惧不当牟利（放高利贷）与无知之火，当你们背离真理的教导、精神的教导、生命的教导，堕落，在内心制造无爱（冷漠）、纷争（不睦）、束缚（不自由）与失调（不和谐）时。
 
 164) Hört auf die Lehre der Propheten und auf deren Worte der Wahrheitslehre, auf dass ihr in eurem Dasein Huld (Güte) und Milde finden mögt.
 164) 聆听先知们的教诲和他们的真理教导之言，愿你们在你们的存在中找到恩慈（善意）和温和。
 
 165) Und wetteifert miteinander in Beflissenheit (Trachten) nach wahrlicher Liebe und nach Frieden, wie auch nach Freiheit und Gleichstimmung (Harmonie), so ihr allen jenen vergeben mögt, die sich als eure Feinde wähnen, auf dass ihr auf eurer Welt ein Paradies erschafft und euch Ehre und Würde zu eigen sei, wie es durch die Gesetze und Gebote der Urkraft (Schöpfung) vorgesehen ist für euch alle, die ihr wahrheitswissend sein sollt und erhaben über alle Unwahrheit, über alles Unrecht und alles Böse, wie auch über Feindschaft und Schlacht (Krieg), über Hass und Eifersucht, ungerechte (verantwortungslose) Strafe und Marter (Folter), über Rache und Vergeltung und alles, was wider die Richtschnur (Wegweisung/Leitgedanke) der Urkraft (Schöpfung) ist.
-165) 你们要彼此竞争，努力追求真爱与和平，以及自由与和谐，原谅那些视你们为敌的人，以便在你们的世界中创造一个天堂，并拥有荣誉和尊严，正如原初力量（创造）的法则和诫命为你们所预备的那样，你们应当成为知晓真理的人，超越一切虚假、不公和邪恶，超越敌意和战争，仇恨和嫉妒，不公正的（不负责任的）惩罚和折磨，复仇和报复，以及一切违背原初力量（创造）的准则（指引/主导思想）的事物。
+165) 你们要争相努力追求真爱与和平，以及自由与和谐，原谅那些视你们为敌的人，以便在你们的世界中创造一个乐园，并拥有荣誉和尊严，正如原初力量（创造）的法则和诫命为你们所预备的那样，你们应当成为知晓真理的人，超越一切虚假、不公和邪恶，超越敌意和战争，仇恨和嫉妒，不公正的（不负责任的）惩罚和折磨，复仇和报复，以及一切违背原初力量（创造）的准则（指引/主导思想）的事物。
 
 166) Gerechte (Verantwortungsvolle) und Rechtschaffene (Gewissenhafte) seid ihr des Rechtens, wenn ihr den Armen und Bedürftigen Darbringungen (Almosen/Spenden) gebt, ob ihr im Glück oder Unglück seid; und Gerechte (Verantwortungsvolle) und Rechtschaffene (Gewissenhafte) seid ihr auch, wenn ihr keinen Zorn und Hass wie auch keine Rache und keine Eifersucht und auch sonst nichts des Unrechtes in euch aufkommen lasst; und Gerechte (Verantwortungsvolle) und Rechtschaffene (Gewissenhafte) seid ihr auch, wenn ihr Euresgleichen (Mitmenschen) Vergebung bekundet (zollt/entgegenbringt) und ihnen Gutes entgegenbringt.
 166) 你们是公正（负责任）和正直（有良知）的，当你们无论处于顺境还是逆境时，都向穷人和需要帮助的人施舍（捐赠）；你们是公正（负责任）和正直（有良知）的，当你们不让愤怒、仇恨、报复、嫉妒以及任何不义之情在心中滋生；你们是公正（负责任）和正直（有良知）的，当你们向同类（他人）表示宽恕并善待他们。
@@ -2381,88 +2381,88 @@ Semjase银星中心，2008年7月13日，3:21，比利
 168) 并且你们要宽恕自己以及所有你们曾对其不公的人，那么你们的奖赏将是一个幸福与喜悦的花园，其中流淌着真实的爱与和平之河，以及真正的自由与和谐；你们将在这幸福与喜悦的花园中停留，作为你们行为的奖赏。
 
 169) Schon vor euch sind durch die wahrlichen Propheten viele Gesetze und Gebote der Erschaffenden (Schöpfung) und dem aus ihr hervorgegangenen Aussehen (Natur) dargebracht und ausgelegt worden, auf dass euch eine Richtschnur (Wegweisung/Leitgedanke) gegeben sei für euer Dasein und die Führung eures Lebens; also sollt ihr die Lehre der wahrlichen Propheten aufgreifen, so ihr die Erde durchwandert und schaut, dass euer Ende gut sein wird, nicht jedoch wie jene, welche die Wahrheit verlästern (verleumden) und die wahren Propheten der Lüge zeihen (beschuldigen).
-在你们之前，真实的先知们已经提出了许多关于创造（创造）及其所产生的形貌（自然）的法则和诫命，以便为你们的存在和生活的指引提供一条准则（指引/主导思想）；因此，当你们在地球上漫游并观察时，应当采纳真实先知的教诲，以确保你们的结局是美好的，而不是像那些诽谤真理并指责真实先知为谎言的人那样。
+169) 在你们之前，真正的先知们已经阐释了许多关于造物（创造）及其所产显相（自然）的法则和诫命，为你们的存在和生命引导提供准则（指引/主导思想）；因此，当你们在地球上游历并观察时，应当采纳真实先知的教诲，以确保你们有一个美好的结局，而不是陷入同那些诽谤真理并诬告真正先知撒谎的人那样的境遇。
 
 170) Die Lehre der Propheten ist eine klare Darlegung für euch Euresgleichen (Menschen) und eine Richtschnur (Wegweisung/Leitgedanke) und Ermahnung, auf dass ihr gerecht (verantwortungsvoll) und rechtschaffen (gewissenhaft) und wahrheitswissend sein mögt und auf dass ihr alles Unrecht schmäht (ächtet) und nur des Rechtens tut.
-170) 先知的教导是对你们（人类）的明确阐述，是指引和劝诫，以使你们能够公正（负责任）、正直（有良知）并知晓真理，以便你们谴责一切不义，只行正义之事。
+170) 先知的教导是对你们（人类）的明确阐述，是指引和劝诫，以使你们能够公正（负责任）、正直（有良知）并知晓真理，以使你们排斥一切不义，只行正义之事。
 
 171) Ermattet nicht im Tun des Gerechten (Verantwortungsvollen) und Rechtschaffenen (Gewissenhaften), und trauert nicht um dahingegangenes Übel und Unglück, wie auch nicht um euch angetane Unbilligkeit (Ungerechtigkeit) und alles, was des Unrechtes auf euch gelastet (angetan) wurde; tut allzeitlich des Rechtens und lasst das Vergangene dem Vergessen angehören, auf dass ihr über alles der Vergangenheit obsiegt (Oberhand gewinnt) und keine Wehklagende über das Hingefallene (Vergangene) und Unbeständige (Vergängliche) seid.
-在行正义（负责任）和正直（有良心）之事时，不要感到疲惫，也不要为过去的邪恶和不幸，或是你们所遭受的不公（不正义）和所有不公正的行为而悲伤；要始终行正义之事，让过去归于遗忘，这样你们就能超越过去的一切，不再为已逝的（过去的）和短暂的（易逝的）事物而哀悼。
+171) 在行正义（负责任）和正直（有良心）之事时，不要感到疲惫，也不要为过去的邪恶和不幸，或是你们所遭受的不公（不正义）和所有不公正的行为而悲伤；要始终行正义之事，让过去归于遗忘，这样你们就能超越过去的一切，不再为已逝的（过去的）和短暂的（易逝的）事物而哀悼。
 
 172) Ist euch als Wahrheitswissende eine Wunde entstanden, dann seid gewiss (wissend), dass auch den der Wahrheit Unwissenden ähnliche Wunden entstehen, denn alles wechselt sich ab unter den Euresgleichen (Menschen), auf dass sie daraus ermahnt werden, in Besinnung (bewusst) zu lernen und sich zu unterscheiden vom Getier, das dem Lernen in Besinnung (bewusst) nicht tüchtig (fähig) ist; wahrlich, der Euresgleichen (Mensch) unterscheidet sich von den Tieren und von allem Getier durch seine Fähigkeit des Lernens in Besinnung (bewusst), derweil die Tiere und alles Getier nur lernen durch ihren Trieb (Instinkt) und keiner Gedanken anstellig (fähig) sind.
 172) 如果你们这些知晓真理的人受了伤，那么要知道，那些不知真理的人也会受到类似的伤害，因为在你们人类（人）之间，一切都会交替发生，以便他们从中得到警示，从而有意识地学习，并与那些无法有意识地学习的野兽区分开来；确实，你们人类（人）通过有意识学习的能力与动物和所有野兽区分开来，而动物和所有野兽只能通过本能学习，无法进行任何思考。
 
 173) Seid allzeit treu der Wahrheitslehre und reinigt euch täglich von allen Dingen des Unbilligen (Fehler/Unrechte), das ihr nicht umhinkommt zu tun, um eurer Entfaltung (Evolution) Fülle (Genüge) zu tun, auf dass ihr andauernd gerechter (verantwortungsvoller) und wissender und also weiser werdet, auf dass ihr Zeugen der Wahrheit seid; also sollt ihr alles Unbillige in euch austilgen, indem ihr euch Reinigung davon gewährt.
-173) 要始终忠于真理的教导，并每天净化自己，摆脱所有不公正的事物（错误/不义），这是你们无法避免的，以满足你们发展的需要（进化），从而使你们不断变得更加公正（负责）、更有知识，因此也更加智慧，使你们成为真理的见证者；因此，你们应通过自我净化，消除内心所有的不公正。
+173) 要始终忠于真理的教导，并每天净化自己，摆脱所有不公正的事物（错误/不义），这是你们应尽的，以满足你们发展的需要（进化），从而使你们不断变得更加公正（负责）、更有知识，因此也更加智慧，使你们成为真理的见证者；因此，你们应通过自我净化，消除内心所有的不公正。
 
 174) Wähnt (glaubt) nicht, dass ihr in das Reich der Wahrheit eingehen werdet, dieweil ihr euch noch nicht für sie entschieden habt und ihr euch noch nicht unterscheidet von denen, die offen der Unwahrheit und dem Unwissen zugetan sind; wähnt (glaubt) erst, dass ihr ins Reich der Wahrheit und der Liebe, des Friedens und der Freiheit wie auch der Wohlmut (Harmonie) eingeht, wenn ihr Standhafte in der Befolgung der Wahrheit und deren Gesetzen und Geboten seid.
-不要以为你们尚未决定进入真理的王国，尚未与那些公开倾向于虚假和无知的人区别开来，就能进入真理的王国；只有当你们坚定不移地遵循真理及其法则和诫命时，才能相信你们会进入真理与爱、和平与自由以及和谐的王国。
+174) 不要以为你们尚未决定拥抱真理，尚未与那些公开倾向于虚假和无知的人区分开来时，就能进入真理的国度；只有当你们坚定不移地遵循真理及其法则和诫命时，才能确信你们自己正在进入真理与爱、和平与自由以及和谐的王国。
 
 175) Manche unter euch pflegen sich den Tod zu wünschen, bevor ihr ihm in natürlicher Weise begegnet, doch bedenkt, wenn ihr nach ihm ausschaut, ohne dass er aus eigenem Ermessen zu euch kommt, dann seid ihr Frevler (Gesetzesbrüchige) am Leben und an den Gesetzen und Geboten der Erschaffenden (Schöpfung) und an ihrem Aussehen (Natur); wahrlich, sich selbst den Tod zu bringen und in Jämmerlichherzigkeit (Feigheit) der eigene Mörder zu sein, ist töten in Ausartung und wider die Gesetze des Lebens.
-175) 你们中有些人习惯于在自然遇到死亡之前就希望死去，但请思考，如果你们在没有死亡自愿来到的情况下寻求它，那么你们就是对生命、对造物（创造）的法则和诫命、以及对其形貌（自然）的亵渎者（违法者）；确实，自我了结并以怯懦（懦弱）成为自己的凶手，是堕落中的杀戮，违背了生命的法则。
+175) 你们中有些人在自然死亡之前就希望提前死去，但请思考，如果你们在没有死亡自愿来到的情况下就寻求它，这就是对生命、对造物（创造）的法则和诫命、以及对其显相（自然）的背离；确实，自我了结并以怯懦（懦弱）成为自己的凶手，是堕落的杀戮，违背了生命的法则。
 
 176) Wähnt nicht, dass ihr sterben könnt nach einer vorbestimmten Frist, denn es gibt keinen Beschluss erdichteter (erfundener) Götter und Götzen, wie lange euer Dasein währen soll; wahrlich, der Tod kommt zu jedem zu seiner Zeit, die bestimmt wird durch die innere und äussere Schickung (Schicksal), wie Alter oder Krankheit, durch Unglück oder Gewalt und anderes, das dem Leben ein Ende bereitet.
-不要以为你们会在一个预定的期限后死去，因为并不存在虚构的神明或偶像所决定的存在期限；确实，死亡会在每个人特定的时刻到来，这个时刻由内在和外在的命运所决定，如年老或疾病、不幸或暴力以及其他终结生命的事情。
+176) 不要以为你们会在一个预知的期限死去，因为并不存在虚构的神明或偶像所决定的存在期限；确实，死亡会在每个人特定的时刻到来，这个时刻由内在和外在的命运所决定，如年老或疾病、不幸或暴力以及其他终结生命的事情。
 
 177) Und wer den Lohn der Welt begehrt, dem wird er gegeben nach seinem Anteil (Verdienst), und wer den Lohn des Lebens begehrt, der da ist das Erlangen eines friedvollen Sterbens, der wird ihn erhalten angemessen (gemäss) der Entfaltung (Evolution) seiner Innenwelt (Bewusstsein).
-177) 凡渴望世间报偿者，将按其功绩获得相应的份额；而渴望生命报偿者，即得平静离世之境遇者，将依据其内在世界（意识）的展开（进化）而适得其报。
+177) 凡渴望世俗奖赏的人，将按其功绩获得相应的份额；而追求生命报偿的人，也就是最终获得平和的逝去，将依据其内在世界（意识）的展开（进化）而适得其报。
 
 178) Und jedem wird sein Lohn gegeben, wie er ihn verdient, so auch das Sterben als Umwandlung (Übergang/Wechsel) zum Tod derart gebildet wird, wie es dem Lohn des Lebens entspricht.
-178) 每个人都将按照他所应得的得到报酬，死亡作为向死亡的转变（过渡/转换）也将如此形成，正如它符合生命的报酬一样。
+178) 每个人都将按照他所应得的得到报偿，死亡作为向终结的转化（过渡/转变）也将如此形成，正如它符合生命的报偿。
 
 179) Die wahrlichen Propheten erwählen sich selbst zu ihrer Berufung (Mission), indem sie die Gesetze und Gebote der Erschaffenden (Schöpfung) und des Aussehens (Natur) erlernen, um sie euch in Liebe und Hingabe zu lehren, auf dass ihr ein gutes Dasein führen und die Wahrheit erkennen mögt, auf dass ihr in euch und um euch wahre Liebe und wahren Frieden erschafft, woraus wahre Freiheit und Wohlmut (Harmonie) entstehen möge.
-真正的先知们自己选择了他们的使命，他们学习造物（创造）和自然（大自然）的法则和诫命，以爱和奉献来教导你们，使你们能够过上好生活并认识真理，使你们在内心和周围创造出真正的爱和真正的和平，从而产生真正的自由和和谐。
+179) 真正的先知们自己选择了他们的使命，他们学习造物（创造）和显相（自然）的法则和诫命，以爱和奉献来教导你们，使你们能够过上好生活并认识真理，使你们在内心和周围创造出真正的爱和真正的和平，从而产生真正的自由和和谐。
 
 180) Wahrlich, auch die alten wahrlichen Propheten sind vor euch hergegangen, um euch zu belehren und zu lenken, doch ihr habt sie verfolgt und ihr habt ihnen nach dem Leben getrachtet, denn ihr seid nicht umgekehrt und folgt ihnen nicht auf den Fersen (ihr wendet euch nicht der Wahrheitslehre zu); wie ihr aber nicht umkehrt zur Wahrheit und den Ungerechten (Verantwortungslosen) und Unwissenden auf den Fersen (deren Glauben) folgt, so verfolgt ihr weiterhin die wahrlichen Propheten und trachtet ihnen nach dem Leben; bedenkt jedoch, auch wenn ihr die wahrlichen Propheten verfolgt und sie zu töten sucht, so könnt ihr ihrer Lehre der Wahrheit, der Lehre des Geistes, der Lehre des Lebens doch nicht den mindesten Schaden zufügen, da sie allzeitlich von Beständigkeit und also unzerstörbar ist, weil sie als Belehrung hervorgeht aus der Wahrheit der Erschaffenden (Schöpfung) und aus ihren Gesetzen und Geboten; und wahrlich, wendet ihr euch der Belehrung zu, dann werdet ihr euch selbst Dankbarkeit bekunden (zollen) können.
 180) 确实，古老的真正先知们已经走在了你们前面，以教导和引导你们，但你们却迫害他们，甚至企图夺取他们的生命，因为你们没有回头，也没有紧随他们的脚步（你们没有转向真理的教义）；正如你们没有转向真理，反而追随不义（不负责任）和无知者的脚步（他们的信仰），你们继续迫害真正的先知，并企图夺取他们的生命；然而，请记住，即使你们迫害真正的先知并试图杀害他们，你们也无法对他们的真理教义、精神教义、生命教义造成丝毫的损害，因为它们是永恒不变的，因而无法被摧毁，因为这些教义源自造物（创造）的真理及其法则和诫命；确实，如果你们转向这些教义，你们将能够对自己表示感激（感谢）。
 
 181) Und so manche falsche Propheten hat es gegeben, an deren Seite zahlreiche Scharen für falsche Lehren erdichteter (erfundener) Götter und Götzen und deren Priester und Götterdiener und Götzendiener kämpften, so mit böser Gewalt und im Blutrausch unzählbare Euresgleichen (Menschen) getötet (gemordet) und die anderen in eine Knechtschaft (Hörigkeit) des Glaubens der Schlachtscharen (Kriegsscharen) gezwängt wurden; und wie dies war zu alten Zeiten vor euch, also ist es auch weiterhin so, weil ihr Überzeugte eures falschen Götterglaubens und Götzenglaubens wie auch Gläubige eures Dämonenglaubens seid; und nicht achtet ihr darauf, dass eure erdichteten (erfundenen) Götter und Götzen wie auch deren Priester und sonstigen Götterdiener und Götzendiener, Liebe und Frieden sowie Freiheit und Ebenmass (Harmonie) verkünden, jedoch Rache und Strafe sowie Schlacht (Krieg) und Gewalt und Vergeltung fordern, indem sie die Strafe des Todes und das Töten (Morden) in Schlachten (Kriegen) befürworten und dafür im Namen ihrer Götter und Götzen mörderische Waffen und das Richtschwert zum Vergiessen von Blut Euresgleichen (Menschenblut) salben (weihen).
-从前有许多假先知，他们身边有众多追随者，为虚构的神祇和偶像及其祭司、侍者和崇拜者而战。这些人以邪恶的暴力和嗜血的狂热，杀害了无数你们的同类，并将其他人逼迫到战争信徒的奴役之中。正如在你们之前的古老时代一样，这种情况至今依然存在，因为你们坚信虚假的神祇和偶像信仰，以及恶魔信仰。你们没有注意到，你们所虚构的神祇和偶像及其祭司和其他侍者、崇拜者，虽然宣扬爱与和平、自由与和谐，却要求复仇与惩罚、战争与暴力与报复，他们主张在战争中以死亡和杀戮作为惩罚，并以他们的神祇和偶像之名，为凶器和对人类流血的利剑祝福。
+181) 从前有许多假先知，他们身边有众多追随者，为虚构的神祇和偶像及其祭司、侍者和崇拜者而战。这些人以邪恶的暴力和嗜血的狂热，杀害了无数你们的同类，并将其他人逼迫到战争信徒的奴役之中。正如在你们之前的古老时代一样，这种情况至今依然存在，因为你们坚信虚假的神祇和偶像信仰，以及恶魔信仰。你们没有注意到，你们所虚构的神祇和偶像及其祭司和其他侍者、崇拜者，虽然宣扬爱与和平、自由与和谐，却要求复仇与惩罚、战争与暴力与报复，他们主张在战争中以死亡和杀戮作为惩罚，并以他们的神祇和偶像之名，为凶器和淌血的利剑祝福。
 
 182) Wahrlich, wahrliche Propheten sind aufgestanden (in Erscheinung getreten) und haben die Lehre der Wahrheit, die Lehre des Geistes, die Lehre des Lebens gebracht, doch alle jene, welche beauftragt waren, der Propheten Wahrheitslehre niederzuschreiben, entstellten sie mit Fälschungen und Täuschungen und Lügen und also mit erdichteten (erfundenen) Beifügungen und mit falschen Auslegungen und Deutungen (Ausführungen/Erklärungen), so sie Lügenlehren erschufen; und jene, welche als Obere die Lügenlehren lehrten und befolgten, haben im Namen der wahrlichen Propheten Betrug betrieben und Schlachten (Kriege) zur Verbreitung eines erdichteten (erfundenen) Glaubens heraufbeschworen; und sie haben die Bittschaft (Fürbitte) der Wahrheit und die Überlieferung (Chronik/Geschichtsschreibung) verfälscht und ihr falsches Tun den wahrlichen Propheten untergeschoben, auf dass diese für Schlachten (Kriege) und Tode sowie für Gewalt und Zwang und für alle Übel der Schuldigkeit (Verantwortung) pflichtig seien, obwohl sie keinen Anteil an Schlacht (Krieg) und Bluttat (Mord) und Zerstörung und an allen Ausartungen hatten; also aber wird es sein, dass der letzte Prophet aus der Linie des Nokodemion in der Neuzeit mit allen Dingen der Notwendigkeit ausgestattet und in gutem Masse der Schrift kundig sein wird, auf dass er keiner Schreibkundigen mehr bedarf, also er die Lehre der Wahrheit, die Lehre des Geistes, die Lehre des Lebens als Niederschrift im ‹Kelch der Wahrheit› festzuhalten verstehen wird und sie in eigenen Worten der Beständigkeit zuführt.
-确实，真正的先知已经出现，他们带来了真理的教义、精神的教义和生命的教义。然而，所有那些被委托记录先知真理教义的人，却用伪造、欺骗和谎言来歪曲它，用虚构的附加内容和错误的解释和诠释来篡改它，从而创造了虚假的教义；而那些作为上级教导和遵循虚假教义的人，以真正先知的名义进行欺诈，并挑起战争以传播虚构的信仰；他们篡改了真理的恳求和历史的传承，并将他们的错误行为归咎于真正的先知，使这些先知对战争、死亡、暴力、强制以及所有罪恶的责任负有义务，尽管他们与战争、谋杀、破坏和所有堕落行为毫无关联；因此，新时代来自诺科德米翁(Nokodemion)家族的最后一位先知将具备一切必要的条件，并精通书写，不再需要任何书写者，他将理解如何在《真理之杯》中记录真理的教义、精神的教义和生命的教义，并以自己的话语使其永存。
+182) 确实，真正的先知已经出现，他们带来了真理的教义、精神的教义和生命的教义。然而，所有那些被委托记录先知真理教义的人，却用伪造、欺骗和谎言来歪曲它，用虚构的附加内容和错误的解释和诠释来篡改它，从而创造了虚假的教义；而那些作为上级教导和遵循虚假教义的人，以真正先知的名义进行欺诈，并挑起战争以传播虚构的信仰；他们篡改了真理的恳求和历史的传承，并将他们的错误行为归咎于真正的先知，使这些先知对战争、死亡、暴力、强制以及所有罪恶的责任负有义务，尽管他们与战争、谋杀、破坏和所有堕落行为毫无关联；因此，新时代来自诺科德米翁（先知）一脉最后的先知将具备一切必要的条件，并精通书写，不再需要任何书写者，他了解如何在《真理之杯》中记录真理的教义、精神的教义和生命的教义，并以自己的话语使其永存。
 
 183) Zagt nicht, denn was immer euch geschehen und was euch treffen mag, so habt ihr also seit alters her und jetzt und auch in fernster kommender Zeit die Lehre der wahrlichen Propheten, auf dass ihr nicht demütig und nicht schwach werdet vor euch selbst und auch nicht vor denen, die sich als eure Feinde wähnen.
-不要害怕，因为无论发生什么，无论什么可能降临到你们身上，你们自古以来，现在以及遥远的未来，都拥有真正先知的教导，这样你们就不会在自己面前，也不会在那些自认为是你们敌人的人面前变得谦卑和软弱。
+183) 不要害怕，因为无论发生什么，无论什么降临到你们身上，你们自古以来，现在以及遥远的未来，都拥有真正先知的教导，这样你们就不会在自己面前，也不会在那些自认为是你们敌人的人面前变得卑微和软弱。
 
 184) Und sagt immer die Wahrheit und seid die Standhaften, auf dass ihr nicht der Lüge und nicht der Verlästerung (Verleumdung) bezichtigt werden könnt; und vergebt den Euresgleichen (Menschen) ihre Irrtümer (Fehler), wie aber auch ihre Vergehen in ihrem Betragen, so ihr eure und ihre Schritte festigt, auf dass Frieden und Eintracht (Harmonie) unter euch herrsche.
-并且永远说真话，坚定不移，这样你们就不会被指控为说谎和诽谤；并且要原谅你们的同类（人们）的错误，也要原谅他们在行为上的过失，这样你们就能巩固自己和他们的步伐，以便和平与和谐（和睦）在你们中间盛行。
+184) 并且永远说真话，坚定不移，这样你们就不会被指控为说谎和诽谤；并且要原谅你们的同类（人们）的错误，也要原谅他们在行为上的过失，这样你们就能巩固自己和他们的步伐，以便和平与和谐（和睦）在你们中间盛行。
 
 185) Bedenkt, ihr erhaltet den Lohn dieser Welt je nachdem, wie ihr euch untereinander zusammenfügt (miteinander lebt) und wie ihr untereinander Gutes tut und wahrliche Liebe pflegt.
 185) 要知道，你们在这个世界上的回报取决于你们如何相互融合（共同生活），如何彼此行善并培养真挚的爱。
 
 186) Bedenkt, wenn ihr denen, welche der Unwahrheit und der Unwissenheit frönen, euer Ohr leiht und ihnen gehorcht, dann werden sie bewirken, dass ihr auf euren Fersen umgeht (die Wahrheit verleugnet), auf dass ihr Verlierende werdet.
-186) 你们要深思，如果你们倾听那些沉溺于虚伪与无知之人，并顺从他们，他们将导致你们背弃真理（否认真理），使你们成为失败者。
+186) 要深思，如果你们倾听那些沉溺于虚伪与无知之人，并顺从他们，他们将导致你们背弃真理（否认真理），使你们成为失败者。
 
 187) Die Propheten sind die Beschützer der Wahrheitslehre, und ihr sollt sowohl die Beschützer der wahrlichen Propheten sein wie auch die Beschützer der Wahrheitslehre, sowohl zu Lebzeiten der Propheten als auch danach, auf dass die Lehre der Wahrheit, die Lehre des Geistes, die Lehre des Lebens für alle Geschlechter Euresgleichen (Menschengeschlechter) zur Richtschnur (Wegweisung/Leitgedanke) der Befolgung der Gesetze und Gebote der Urhebung (Schöpfung) werden möge.
-187) 先知是真理学说的守护者，你们应当既是真实先知的守护者，也是真理学说的守护者，无论是在先知在世时还是之后，都应当如此，以便真理的学说、精神的学说、生命的学说，对于你们所有世代（人类世代）而言，成为遵循起源（创造）法则和诫命的准则（指引/主导思想）。
+187) 先知是真理学说的守护者，你们应当既是真正先知的守护者，也是真理学说的守护者，无论是在先知在世时还是往生之后，都应当如此，以使真理的教导、精神的教导、生命的教导作为你们所有世代（人类世代）遵循起源（创造）法则和诫命的准则（指引/主导思想）。
 
 188) Tragt nicht Schrecken in euch, wenn ihr euch von der Unwahrheit und vom Unwissen um die Wahrheit abwendet und euch der Richtschnur (Wegweisung/Leitgedanke) des Lebens und der wahrlichen Wahrheit zukehrt und ihr euch bedingt (verpflichtet) und wenn ihr der Wahrheit keine erdichtete (erfundene) falsche Lehren unbegründeter (erfundener) Götter und Götzen als Nebenbuhler zur Seite stellt; die Wahrheit erteilt keine Ermächtigung zur Falschheit und Lüge, deren Wohnstatt das Feuer des Bösen ist und die Herberge der Frevler an der Wahrheit.
-188) 当你们远离虚妄和无知，转向生活的准则和真正的真理，并承担起责任时，不要在心中滋生恐惧；当你们不将真理与虚构的、无根据的神祇和偶像的虚假教义并列时，真理不会授权于虚假和谎言，它们的居所是邪恶之火，是真理亵渎者的栖息地。
+188) 当你们远离虚妄和无知，转向生命的指导准则（指引/核心思想）和真正的真理，并承担起责任，不将真理与虚构的、无根据的神祇和偶像的虚假教义并列时，不必心生恐惧；真理不会授权于虚假和谎言，虚假和谎言的居所遍布邪恶之火，是背弃真理之辈苟存之地。
 
 189) Wahrlich, die wahrlichen Propheten haben immer ihre Versprechen gehalten, auch wenn etwelche unter euch waren, die sie geschlagen und ihnen mit dem Tod gedräut (gedroht) und sie verfolgt haben, weil ihr im Erkennen und Annehmen der Wahrheit geschwankt und es geliebt habt, der Lüge statt der Wahrheit zugetan zu sein.
-确实，那些真正的先知们始终履行了他们的诺言，即使你们中有些人曾打击他们，以死亡威胁他们，并迫害他们，因为你们在认识和接受真理时摇摆不定，并且喜欢追随谎言而非真理。
+189) 确实，那些真正的先知们始终履行了他们的诺言，即使你们中有些人曾打击他们，以死亡威胁他们，并迫害他们，因为你们在认识和接受真理时摇摆不定，并且喜欢追随谎言而非真理。
 
 190) Und es waren seit jeher viele unter euch und sind es auch heute, die ihr nach dieser Welt des Sichtbaren verlangt, die ihr aber auch nach der Welt des Unsichtbaren verlangt, um die Propheten zu prüfen, weil ihr die Wahrheit nicht wahrhaben wollt; doch die Propheten verzeihen euch, denn sie sind gütig gegen euch, die ihr unwissend seid und die ihr doch den Weg zur Wahrheit finden wollt.
-自古以来，你们中有许多人，至今也是如此，渴望这可见的世界，同时也渴望那不可见的世界，为的是考验先知，因为你们不愿接受真理；然而先知们会原谅你们，因为他们对你们这些无知却又渴望找到真理之路的人是仁慈的。
+190) 从古至今，因为你们不愿接受真理，你们中多有寻求可见的世界，同时也有为了考验先知而要求那不可见的世界；然而先知们会原谅你们，因为他们对你们这些无知却又渴望找到真理之路的人是仁慈的。
 
 191) Lauft nicht fort und blickt euch um, wenn die Propheten ihre Lehre hinter euch herrufen, auf dass ihr keinen Kummer leidet und nicht trauern mögt um das, was euch an Bösem und Üblem entgeht, das euch schon vor langer Zeit befallen hat und euch zur Abtrünnigkeit von der Lehre der Wahrheit trieb.
-191) 不要逃跑，也不要回头张望，当先知们在你们身后呼唤他们的教义时，以免你们遭受悲伤，也不要为那些早已降临于你们、并曾驱使你们背离真理教义的邪恶与不幸之事而哀伤。
+191) 当先知们在你们身后宣告他们的教义时，不要逃跑回望，以免你们遭受苦痛，也不要为那些早已降临于你们、并曾驱使你们背离真理教义的邪恶与不幸之事而哀伤。
 
 192) Lasst in euch und um euch durch die Lehre der Propheten arglose Liebe und Frieden wie auch Freiheit und Gleichstimmung (Harmonie) finden, auf dass ihr euer Euresgleichen Würde (Menschsein) pflegt und keinen Anlass gebt zu Groll und Zorn.
-192) 让先知们的教导在你们内心和周围培育出无邪的爱与和平，以及自由与和谐，这样你们便能培养出作为同类的尊严（人性），并且不给怨恨和愤怒以可乘之机。
+192) 让先知们的教导在你们内心和周围培育出无邪的爱与和平，以及自由与和谐，这样你们便能培养出作为人的尊严（人性），并且不给怨恨和愤怒以可乘之机。
 
 193) Seit alters her brachten euch die wahrlichen Propheten die Lehre zum Frieden und zur Liebe, nicht jedoch falsche Lehren des Bösen, auf dass ihr Schlachten (Kriege) führen und Bluttat (Mord) begehen und zerstören sollt; wahrlich, viele von euch führen ein Leben, als ob ihr in einem unruhigen Schlummer liegen würdet, in dem ihr durch Angstträume (Albträume/Albdruck) gepeinigt werdet, weil ihr wider die Wahrheit und nur für euch selbst lebt und weil ihr nicht eure Innenwelt (Bewusstsein) zur Entfaltung (Evolution) bringt.
-自古以来，真正的先知们带给你们的教诲是和平与爱，而非邪恶的虚假教义，使你们不应发动战争、行凶或破坏；确实，你们中的许多人过着仿佛在不安的昏睡中的生活，被噩梦所折磨，因为你们违背真理，只为自我而活，且未能使内心世界（意识）得到发展（进化）。
+193) 自古以来，真正的先知们带给你们的教诲是和平与爱，而非邪恶的虚假教义，不会去教唆你们发动战争、行凶或破坏；确实，你们中的许多人过着仿佛在不安的昏睡中的生活，被噩梦所折磨，因为你们违背真理，只为自我而活，且未能使内心世界（意识）得到发展（进化）。
 
 194) Wahrlich, ihr denkt fälschlich Gedanken der Unwissenheit und der Unwahrheit, und also habt ihr keinen Anteil an der Ordnung der Dinge, wie sie gegeben sind durch die Gesetze und Gebote der Ausführung (Schöpfung); und auch euch soll die Ordnung aller Dinge eure Obliegenheit (Angelegenheit) sein; und also sollt ihr in der Ordnung aller Dinge das ergründen, was in ihrem Sinn für euch verborgen ist, auf dass ihr verstehen mögt, was die Richtschnur (Wegweisung/Leitgedanke) des Lebens ist.
-194) 诚然，你们怀着无知与虚妄的念头，因而你们无法分享由创造法则和诫命所赋予的事物的秩序；并且，万物的秩序也应成为你们的职责；因此，你们应在万物的秩序中探寻其中隐藏的、对你们有意义的真谛，以便你们理解何为生活的准则（指引/主导思想）。
+194) 诚然，你们怀着无知与虚妄的念头，因此你们无法参与事物秩序的运作，正如万物通过执行（创造）的法则与诫命所赋予的秩序而运行那样；并且，万物的秩序也应成为你们的职责；因此你们应在所有事物的秩序中探寻对你们隐藏在其意义中的内容，以便你们理解何为生活的准则（指引/主导思想）。
 
 195) Hättet ihr einen Anteil an der Ordnung aller Dinge für euch genutzt, dann würdet ihr nicht Euresgleichen (Mitmenschen) töten, und also würdet ihr nicht stehlen und nicht betrügen, nicht hassen und weder Rache noch Vergeltung üben, wie auch nicht der Eifersucht, nicht den Schlachten (Kriegen) und nicht aller Ausartung verfallen sein.
 195) 如果你们利用了对万物秩序的份额，那么你们就不会杀害人类（人），因此你们也不会偷窃和欺骗，不会仇恨，既不会报复也不会施行报复，同样不会陷入嫉妒、战争和一切堕落之中。
 
 196) Wärt ihr von alters her bei der Wahrheitslehre geblieben, wie sie euch durch die wahrlichen Künder, die Propheten, gebracht ward, dann hättet ihr euch selbst nicht dazu niedergelassen (erniedrigt), euch durch die Herrscher und Obrigkeiten wie auch durch falsche Propheten und erdichtete (erfundene) Götter und Götzen und durch deren Priester und sonstigen Götterdiener und Götzendiener in Hass und Rachsucht und in Schlachten (Kriege) und in alle Ausartungen treiben zu lassen; wärt ihr von alters her bei der Wahrheitslehre geblieben, dann hättet ihr euch nicht anbefehlen lassen auszuziehen, um Verderben, Totschlag und Bluttat (Mord) und Brandschatzung durch Schlachten (Kriege) und Übertretung (Ungesetzlichkeit) und Frevel (Verbrechen) zu verbreiten und damit den bösen und falschen Ratschlüssen der Antreiber (Anstifter/Aufwiegler) und Rädelsführer Ausführung zu geben (Folge zu leisten); allzeitlich hättet ihr euch selbst prüfen müssen, um euch den Gewalthabern und sonstigen Gebietern und deren Anführern entgegenzustellen, auf dass ihr sie von ihrem Thron gehoben und sie durch wahrliche Führer eingetauscht hättet; wahrlich, allzeitlich soll das Volk seine eigene Führung sein, wenn es des Rechtens tut, auf dass die Oberen nur des Volkes Beauftragte (Stellvertreter) und ohne Macht über das Volk sind, sondern nur die Ausführenden nach dem Willen des Volkes, denn es soll über sein Wohl und Wehe selbst bestimmen und es nicht durch Herrscher und Gebieter und Obere wie durch falsche Propheten oder durch Priester und Götterdiener und Götzendiener zwingen lassen; also soll jede Obrigkeit durch das Volk berufen sein, so diese in des Volkes Gunst steht und nur als dessen Ermächtigte (Bevollmächtigte) die Bestimmungen (Anordnungen) ausführt.
-196) 如果你们自古以来就坚持那通过真实的使者——先知们带给你们的真理教义，那么你们就不会自甘堕落，被统治者、权贵以及虚假的先知、虚构的神祇和偶像，还有他们的祭司和其他神仆和偶像崇拜者驱使，陷入仇恨和报复、战争和各种堕落之中；如果你们自古以来就坚持真理教义，那么你们就不会被命令出征，去通过战争、违法和犯罪来传播毁灭、杀戮和掠夺，从而执行那些邪恶和虚假的煽动者和头目的计划；你们本应时刻自省，以对抗那些掌权者和其他统治者及其领袖，从而将他们从宝座上赶下，并以真正的领导者取而代之；确实，人民应始终成为自己的领导者，只要他们行事正义，那么上层人士只是人民的代表，而非对人民拥有权力，他们只是按照人民的意愿执行事务，因为人民应自行决定自己的福祉和苦难，而不应被统治者、权贵、上层人士、虚假的先知、祭司、神仆和偶像崇拜者所强迫；因此，每个权贵都应由人民任命，只要他们得到人民的支持，并且仅作为人民的授权者执行命令。
+196) 如果你们自古以来就坚持那通过真正的谕师、先知们带给你们的真理教义，那么你们就不会自甘堕落，被统治者、权贵以及虚假的先知、虚构的神祇和偶像，还有他们的祭司和其他神仆和偶像崇拜者驱使，陷入仇恨和报复、战争和各种堕落之中；如果你们自古以来就坚持真理教义，那么你们就不会被命令出征，去通过战争、违法和犯罪来传播毁灭、杀戮和掠夺，从而执行那些邪恶和虚假的煽动者和头目的计划；你们本应时刻自省，以对抗那些掌权者和其他统治者及其领袖，从而将他们从宝座上赶下，并以真正的领导者取而代之；确实，人民应始终成为自己的领导者，只要他们行事正义，那么上层人士只是人民的代表，而非对人民拥有权力，他们只是按照人民的意愿执行事务，因为人民应自行决定自己的福祉和苦难，而不应被统治者、权贵、上层人士、虚假的先知、祭司、神仆和偶像崇拜者所强迫；因此，每个权贵都应由人民任命，只要他们得到人民的支持，并且仅作为人民的授权者执行命令。
 
 197) Möge in euch der Ratschluss ergehen, alles zu prüfen, auf dass ihr alles läutern (klären) mögt, was zu tun ist, auf dass ihr Obrigkeiten nach des Volkes Willen habt, auf dass nicht ihr nach dem Willen der Obrigkeiten seid; als Volk sollt ihr über euer Wohl und Wehe bestimmend sein, unter guter Führung der Lehre der Wahrheit, der Lehre des Geistes, der Lehre des Lebens, die gegeben ist als ‹Kelch der Wahrheit› durch die wahrlichen Propheten aus der Linie des Nokodemion, dem Urvater aller wahrlichen Propheten seiner Linie, die wahre Liebe und wahren Frieden wie auch wahre Freiheit und Wohlmut (Harmonie) lehrten.
 愿在你们心中生出这样的决议：审查一切，以澄清该做之事，使你们拥有符合民意的权威，而不是被权威的意志所左右；作为人民，你们应在真理教导、精神教导、生命教导的良好引导下，决定自己的福祉与不幸，这些教诲是由诺科德米翁(Nokodemion)血脉中的真正先知们所赐予的“真理之杯”，诺科德米翁(Nokodemion)是所有真正先知的始祖，他们教导真正的爱、真正的和平，以及真正的自由与和谐。
@@ -4111,7 +4111,7 @@ The translation aims to be faithful to the original text while maintaining clari
 确实，一切生命之源（创造）是天上（宇宙）、所有地球（世界/星球）和天上星辰（天体）以及她所守护的一切事物的唯一力量（存在）。
 
 112) Blicke von Euresgleichen (Menschen) können die Urquelle aller Lebendigkeiten (Schöpfung) in ihrer Geltung (Vermögen) ihres unsichtbaren Geistgehaltes (unsichtbare Geistigkeit/Geistenergie) nicht erreichen, doch könnt ihr ihre Erbauung (Schöpfung/Kreation) im Aussehen (Natur) und in den Himmeln (Universum) wie auch auf den Erden (Welten/Planeten) und in den Lichtern (Gestirnen) des Himmels sehen, so sie, die euch unbegreiflich ist, euch mit ihrem Blick erreicht.
-112) 像你们这样的人类的目光，无法触及那一切生命之源（创造）在其无形的精神内涵（无形的精神性/精神能量）中的效力（能力）。然而，你们可以在其形貌（自然）和天空中（宇宙），以及在地球上（世界/行星）和天空的光辉（星辰）中看到它的创造（创造/创作）。虽然它对你们来说是不可理解的，但它以它的目光触及了你们。
+112) 像你们这样的人类的目光，无法触及那一切生命之源（创造）在其无形的精神内涵（无形的精神性/精神能量）中的效力（能力）。然而，你们可以在其显相（自然）和天空中（宇宙），以及在地球上（世界/行星）和天空的光辉（星辰）中看到它的创造（创造/创作）。虽然它对你们来说是不可理解的，但它以它的目光触及了你们。
 
 113) Durch die Himmel (Universum) und durch die Erden (Welten/Planeten), wie auch durch das Aussehen (Natur), durch alle Geschöpfe (Lebensformen) und alle Dinge sind euch sichtbare Beweise der Gegenwart (Existenz) der Urquelle aller Lebendigkeiten (Schöpfung) gegeben; und wer sie von euch also sieht und erfasst (erkennt), dem ist es zu seinem eigenen Besten; doch wer blind ist (die Beweise nicht sieht resp. nicht anerkennt), dem ist es zu seinem eigenen Schaden, denn er erkennt sich nicht als Wächter darüber, was ihm durch die Urquelle aller Lebendigkeiten (Schöpfung) gegeben und zum Schutz und Erhalt anvertraut ist.
 通过天空（宇宙）和大地（世界/星球），以及通过自然的外貌，通过所有的生物（生命形式）和所有的事物，你们被赋予了所有生命之源（创造）存在的可见证据；你们中那些看到并理解（认识）这些证据的人，将因此受益；而那些视而不见（不看到或不承认这些证据）的人，将因此受损，因为他们没有认识到自己是所有生命之源（创造）所赋予和保护的一切的守护者。
@@ -4327,7 +4327,7 @@ The translation aims to be faithful to the original text while maintaining clari
 ##### 第七部分
 
 1) Hier ist der ‹Kelch der Wahrheit›, der da ist die Lehre der Wahrheit, die Lehre des Geistes, die Lehre des Lebens, gegeben durch die Gesetze und Gebote des Aussehens (Natur) und der Quelle der Liebe (Schöpfung); lasst euch durch die Lehre leiten (führen), die auch die Lehre der Propheten ist, die sie euch lehren, auf dass in eurer Brust (Gefühle) keine Bangigkeit aufkomme und damit ihr gewarnt sein mögt als Mahnung, dass ihr nicht des Unrechtens tut.
-1) 这里是“真理之杯”，它承载着真理的教义，精神的教义，生命的教义，这些教义通过形貌（自然）和爱的源泉（创造）的法则和诫命给予；让这些教义引导你们，这些也是先知们教导你们的教义，以使你们心中（情感）不产生恐惧，并以此作为警告，使你们不致行不义之事。
+1) 这里是“真理之杯”，它承载着真理的教义，精神的教义，生命的教义，这些教义通过显相（自然）和爱的源泉（创造）的法则和诫命给予；让这些教义引导你们，这些也是先知们教导你们的教义，以使你们心中（情感）不产生恐惧，并以此作为警告，使你们不致行不义之事。
 
 2) Folgt dem, was euch durch die Wahrheitslehre gegeben ist, und folgt keinem anderen Beschützer als der wahrlichen Wahrheit; wie wenig seid ihr dessen eingedenk (wie wenig denkt ihr daran).
 2) 遵循真理教义所赋予你们的指引，除了真实的真理之外，不要追随任何其他的保护者；你们对此是多么的少思虑啊（你们对此是多么的少思考啊）。
@@ -4501,7 +4501,7 @@ The translation aims to be faithful to the original text while maintaining clari
 54) 不要等待真正先知的警告在未来应验，当他们向你们预言未来的事情时，因为当先知的警告应验之日，为时已晚；不要像那样，当预言应验时，你们才说，你们之前忘记了真正先知的警告，却对假先知敞开了耳朵，尽管事实上只有真正的先知说了真理；确实，如果你们不听从真正先知的预言，当这些预言应验时，你们将找不到任何为你们招致灾难的辩护者；确实，当预言的事件发生时，你们无法将时间倒转，使一切未发生，因为你们所持的愚昧（无知），你们不仅自毁，也毁了世界，而你们所幻想的那些神祇、偶像及其他无意义之物，都将抛弃你们。
 
 55) Seht, über euch steht allein die Quelle der Liebe (Schöpfung), die alle Himmel (Universum), alle Lichter am Himmel (Gestirne) und alle Erden (Welten/Planeten) erschuf, und euch Euresgleichen (Menschen) setzte sie auf den Thron (über alles), auf dass ihr Bewahrer (Behüter) über das Aussehen (Natur), über alle Himmel (Universum) und über alle Erden (Welten/Planeten) wie auch über alle Lebensarten (Lebensformen) sein sollt, sowohl wenn die Nacht den Tag verhüllt, wie auch wenn der Tag die Dunkelheit der Nacht verdrängt; und wahrlich, wie der Quelle der Liebe (Schöpfung) alles eingeordnet ist, die Sonne, der Mond und alle Erden (Welten/Planeten), die Lichter am Firmament (Gestirne am Himmel) und alle Lebensarten (Lebensformen), so ist euch alles unterstellt, auf dass ihr Sorge dazu tragt und alles beschützt nach Recht, Gesetz und Gebot, weil ihr die Lehnsherrschaft (geliehene Herrschaft) darüber habt.
-看哪，在你们之上唯有爱的源泉（创造），它创造了所有的天（宇宙）、天上所有的光（星辰）和所有的地（世界/星球），并将人类（人）置于宝座（超越一切）之上，使你们成为形貌（自然）、所有天（宇宙）和所有地（世界/星球）以及所有生命形态的守护者，无论是当黑夜遮蔽白昼，还是白昼驱散黑夜的黑暗；确实，正如爱的源泉（创造）安排了一切，太阳、月亮和所有的地（世界/星球）、天上的光（星辰）和所有的生命形态，这一切都归你们管理，使你们按照法律、法则和诫命来照料和保护一切，因为你们对这一切拥有借来的统治权。
+看哪，在你们之上唯有爱的源泉（创造），它创造了所有的天（宇宙）、天上所有的光（星辰）和所有的地（世界/星球），并将人类（人）置于宝座（超越一切）之上，使你们成为显相（自然）、所有天（宇宙）和所有地（世界/星球）以及所有生命形态的守护者，无论是当黑夜遮蔽白昼，还是白昼驱散黑夜的黑暗；确实，正如爱的源泉（创造）安排了一切，太阳、月亮和所有的地（世界/星球）、天上的光（星辰）和所有的生命形态，这一切都归你们管理，使你们按照法律、法则和诫命来照料和保护一切，因为你们对这一切拥有借来的统治权。
 
 56) Und wahrlich, ihr seid eure eigene Beeinflussung (Herrschaft) über euch selbst, also ihr sie auch bewahren und ehren und nicht in Demut verfallen und nicht Götter und nicht Götzen anbeten sollt, weder offen (ersichtlich) noch im Verborgenen, denn sonst seid ihr Übeltäter an der Wahrheit, die keine Demut und keine Anbetung heischt (verlangt).
 56) 诚然，你们是自己的主宰（统治）者，因此你们应当维护和尊重自己，不应陷入谦卑，也不应崇拜神明和偶像，无论是公开的（明显的）还是隐秘的，否则你们便是真理的罪人，因为真理既不要求谦卑也不要求崇拜。
@@ -4642,7 +4642,7 @@ The translation aims to be faithful to the original text while maintaining clari
 101) 爱与创造之源的法则和诫命是对你们的指引，你们作为地球的继承者和居民，应当以对地球有益的方式行事，并为其做出最好的贡献，不玷污地球及其自然面貌，保护所有生命形式，使你们的世界成为一个充满欢乐的天堂。
 
 102) Die wahrlichen Propheten kommen in der Tat auch zu euch, um deutliche Zeichen (Beweise) anzuführen, dass auch die Erde eine Lebensart (Lebensform) ist, die eures Schutzes und eurer Hege (Pflege) bedarf, also ihr für sie Achtsamkeit tragen und ihr wohlgesonnen sein sollt; erklärt ihr aber diese Botschaft der Propheten als Lüge und versiegelt (verschliesst) ihr eure Einstellung zum Schaden (Nachteil) eurer Erde, dann erkrankt sie an ihrem Aussehen (Natur), wodurch Sturmwinde und Ungewitter und Umwälzungen und Erschütterungen (Katastrophen) über eure Welt und über euch kommen, derer ihr nicht mehr Herr zu werden vermögt.
-真正的先知们确实会来到你们中间，带来明确的迹象（证据），表明地球也是一种生命形式，需要你们的保护和关怀。因此，你们应当对地球保持警惕，并对其怀有善意；但如果你们将这些先知的讯息视为谎言，并封闭你们的态度，损害你们的地球，那么它将在其形貌（自然）上生病，从而在你们的世界和你们身上引发风暴、恶劣天气、动荡和灾难（灾难），你们将无法再掌控这些。
+真正的先知们确实会来到你们中间，带来明确的迹象（证据），表明地球也是一种生命形式，需要你们的保护和关怀。因此，你们应当对地球保持警惕，并对其怀有善意；但如果你们将这些先知的讯息视为谎言，并封闭你们的态度，损害你们的地球，那么它将在其显相（自然）上生病，从而在你们的世界和你们身上引发风暴、恶劣天气、动荡和灾难（灾难），你们将无法再掌控这些。
 
 103) Seht daher, dass ihr zur Wahrheit findet und die Lehre der Propheten befolgt, auf dass euch ein Festhalten am Bund (Vertrag) mit der Wahrheit der Gesetze und Gebote der Quelle der Liebe (Schöpfung) eigen wird, so ihr euch nicht als Frevler (Zerstörer) am Aussehen (Natur) und an der Erde findet.
 103) 因此，你们要寻求真理，遵循先知的教导，以便你们能够坚守与真理的契约，即遵守源自爱（创造）之源的法则和诫命。这样，你们就不会成为在自然和地球上的破坏者（罪人）。
@@ -4948,7 +4948,7 @@ The translation aims to be faithful to the original text while maintaining clari
 因此，无论在任何事情上，都要始终尊重真理，以便你们能够从中获得帮助，而不会陷入错误或继续在错误中前行；如果你们远离错误，那么错误就无法追随你们，也无法将你们引入歧途。
 
 204) Und wenn ihr im Aussehen (Natur) und in den Gesetzen und Geboten der Quelle der Liebe (Schöpfung) die Zeichen (Beweise) der Wahrheit der urkräftigen (schöpferischen) Wirklichkeit (Existenz) seht, dann erfindet darüber nicht falsche Wahrheiten (Lügen) und Verlästerungen (Verleumdungen), sondern folgt den Zeichen (Beweisen) nach, die euch offenbart werden; wahrlich, es sind klare Zeichen (Beweise) von der Quelle der Liebe (Schöpfung), und sie sind eine klare Leitung (Führung) für alle Völker aller Euresgleichen (Menschheit).
-204) 当你们在形貌（自然）以及爱与创造的源泉的法则和诫命中看到那强有力的现实（存在）的真实迹象（证据）时，不要编造虚假的真理（谎言）和诽谤（诬蔑），而应追随那些向你们揭示的迹象（证据）；确实，这些都是爱与创造的源泉的清晰迹象（证据），它们是对所有民族、所有人类的一种明确指引（引导）。
+204) 当你们在显相（自然）以及爱与创造的源泉的法则和诫命中看到那强有力的现实（存在）的真实迹象（证据）时，不要编造虚假的真理（谎言）和诽谤（诬蔑），而应追随那些向你们揭示的迹象（证据）；确实，这些都是爱与创造的源泉的清晰迹象（证据），它们是对所有民族、所有人类的一种明确指引（引导）。
 
 205) Und wenn euch die wahrliche Lehre der Propheten vorgetragen wird, die erschaffen ist aus den Gesetzen und Geboten der Quelle der Liebe (Schöpfung) und ihrem Aussehen (Natur), dann leiht ihr euer Ohr, auf dass ihr Erkenntnis und Klugheit (Verstand) und Klarsicht (Verstehen) gewinnt, so ihr in euch selbst Erbarmen findet und ihr Gerechte (Verantwortungsvolle) und Rechtschaffene (Gewissenhafte) werdet.
 205) 当那出自爱与创造之源（即造物）的法则和诫命，以及其显现（即自然）的真先知教诲被传给你们时，你们要侧耳倾听，以便获得知识和智慧（理解力）以及洞察力（领悟力），这样你们就能在内心找到怜悯，成为公正（负责任）和正直（有良知）的人。
@@ -5514,7 +5514,7 @@ The translation aims to be faithful to the original text while maintaining clari
 107) 如果你们是无知真理者和伪造者（伪善者），并为传播真理而建造庙宇（神殿和偶像庙宇），但在其中却推行违背真理的神祇习俗（神祇崇拜）和偶像习俗（偶像崇拜），这些习俗违背了原初始动（创造性）的法则和诫命的真实真理，并试图损害这些真理，以促进对真理的无知，并在知晓真理者中制造分裂，同时也为那些寻求真理的人设下陷阱；那么，即使你们发誓建造这些庙宇（神殿和偶像庙宇）只是为了行善，真理也会反对你们，并揭示你们只是说谎者，因为在你们的庙宇（神殿和偶像庙宇）以及你们为你们的神祇和偶像建造的其他房屋中，你们并不教导关于生命孕育（创造）的真实法则和诫命的教义，而是教导你们虚假先知和虚构（发明）的神祇和偶像的错误教义。
 
 108) Und euch Aufrechten und Wahrheitsgetreuen, euch Wahrheitswissenden unter Euresgleichen (Menschen) sei gesagt, dass ihr nie in solchen Tempeln (Gotteshäusern und Götzenhäusern) und Häusern der Götter und Götzen stehen und nicht darin beten sollt, denn sie sind auf Frömmigkeiten (Religionen) und auf Unterfrömmigkeiten (Sekten/Kulte) gegründet und dienen nur dafür, Euresgleichen (Menschen) in grossen Irrtum und in die Fänge der Götterdiener und Götzendiener und deren erdichtete (erfundene) Götter und Götzen zu führen, auf dass ihr von ihnen dienstbar (abhängig) werdet, auf dass ihr ausgebeutet werden könnt an eurem Gut und Reichtum; und wahrlich ist es allein würdig, ausserhalb solcher Stätten euer Wissen der Wahrheitslehre zu pflegen, als dass ihr in solchen Stätten steht oder sitzt und ihr euch von den Priestern und Götteranbetern und Götzenanbetern belügen lasst; Mann, Weib und Kind, seid würdig in eurem Wissen der Wahrheitslehre, wie sie gegeben ist durch die wahrlichen Propheten, die sie erarbeitet haben aus den wahrheitlichen Gesetzen und Geboten des Aussehens (Natur) der Befruchtung des Lebens (Schöpfung).
-108) 你们这些正直和忠于真理的人，你们这些在人类（人）中知晓真理的人，要告诉你们，你们永远不应站在这样的庙宇（教堂和偶像庙宇）和神祇与偶像的房屋中，也不应在其中祈祷，因为这些庙宇建立在虔诚（宗教）和伪虔诚（教派/邪教）之上，它们仅用于将人类（人）引入巨大的谬误和神祇侍奉者与偶像侍奉者的陷阱，以及他们虚构的神祇与偶像，目的是使你们成为他们的奴仆（依赖者），以便他们可以剥削你们的财产和财富；确实，唯一值得的是在这些场所之外培养你们对真理教义的知识，而不是站在或坐在这样的场所中，任由祭司和神祇崇拜者与偶像崇拜者欺骗你们；男人、女人和孩子，你们在真理教义的知识中是值得的，正如这些教义是通过真正的先知所传授的，他们从生命受孕（创造）的形貌（自然）的真实法则和诫命中发展出来的。
+108) 你们这些正直和忠于真理的人，你们这些在人类（人）中知晓真理的人，要告诉你们，你们永远不应站在这样的庙宇（教堂和偶像庙宇）和神祇与偶像的房屋中，也不应在其中祈祷，因为这些庙宇建立在虔诚（宗教）和伪虔诚（教派/邪教）之上，它们仅用于将人类（人）引入巨大的谬误和神祇侍奉者与偶像侍奉者的陷阱，以及他们虚构的神祇与偶像，目的是使你们成为他们的奴仆（依赖者），以便他们可以剥削你们的财产和财富；确实，唯一值得的是在这些场所之外培养你们对真理教义的知识，而不是站在或坐在这样的场所中，任由祭司和神祇崇拜者与偶像崇拜者欺骗你们；男人、女人和孩子，你们在真理教义的知识中是值得的，正如这些教义是通过真正的先知所传授的，他们从生命受孕（创造）的显相（自然）的真实法则和诫命中发展出来的。
 
 109) Denkt nicht, dass jene besser seien als Wahrheitswissende, welche einem Glauben (Vermutungen) der Furcht vor Göttern und Götzen verfallen sind, denn wahrlich ist frömmiger (religiöser) Glaube niemals auf Wohlgefallen an der Wahrheit gegründet, sondern der frömmige (religiöse) Glaube gleicht einem Haus, das auf den Rand einer wankenden, unterspülten Sandbank gebaut ist und niemals Festigkeit (Sicherheit) haben kann wie ein Haus, das auf Fels gebaut ist und dessen Grundmauern im Fels verankert sind.
 不要以为那些陷入对神灵和偶像的恐惧之中、信奉信仰（猜测）的人比那些了解真理的人更好，因为虔诚的（宗教的）信仰从来不是建立在喜爱真理的基础上的，而是像一座建在摇摇欲坠、被侵蚀的沙岸边缘的房子，永远无法像建在岩石上、地基深埋在岩石中的房子那样稳固（安全）。
@@ -5550,7 +5550,7 @@ The translation aims to be faithful to the original text while maintaining clari
 119) 所有那些富有智慧（理性）和洞察力（理解力）的人们，请记住，你们应当对你们世界的外貌（自然）表示尊重（重视）和荣誉（尊敬），并以关怀（健康/善意）来维护它，以免你们的世界因你们而毁灭（不被破坏）。
 
 120) Es ziemt euch nicht als Bewohner der Erde, dass ihr euch gegen sie vergeht und sie durch eure Macht und Unklugheit (Unvernunft) in ihr selbst und in ihrem Aussehen (Natur) zerstört; tut ihr es doch, dann macht ihr euch selbst zu Feinden eurer Welt, die eure Heimat ist, woraus euch Not, Leid und Elend entstehen, was euch als schmählich (abscheulich) verdienstliches Werk angelastet werden muss; und wahrlich ist euer Lohn dafür schreckliche Umwälzung (Katastrophen) mit gewaltigen Zerstörungen und bannigen (massenweisen) Toden Euresgleichen (Menschen).
-作为地球的居民，你们不应该通过自己的权力和愚昧（不理智）来违背地球，并破坏其本质和形貌（自然）；如果你们这样做，那么你们就将自己变成了自己世界的敌人，这个世界是你们的家园，由此将产生困苦、悲伤和苦难，这些都将作为可耻（可恶）的应得之业被归咎于你们；而你们的报应将是以巨大的破坏和大规模的死亡（人类）为特征的可怕灾难（灾难）。
+作为地球的居民，你们不应该通过自己的权力和愚昧（不理智）来违背地球，并破坏其本质和显相（自然）；如果你们这样做，那么你们就将自己变成了自己世界的敌人，这个世界是你们的家园，由此将产生困苦、悲伤和苦难，这些都将作为可耻（可恶）的应得之业被归咎于你们；而你们的报应将是以巨大的破坏和大规模的死亡（人类）为特征的可怕灾难（灾难）。
 
 121) Und martert (foltert) ihr eure Welt, dann könnt ihr keine Menge (Summe/Geld) geben, sei sie gross oder klein, um das entstehende Unheil zu bannen, denn alles an Umwälzungen (Katastro phen) wird so gross sein, dass ihr sie nicht mehr beheben könnt, so die Schuld daran euch angeschrieben werden muss, wofür euer Lohn Übel über Übel und Unheil über Unheil sein wird.
 121) 如果你们折磨（折磨）你们的世界，那么无论金额（总和/金钱）是大是小，你们都无法用它来驱散即将到来的灾难，因为所有的剧变（灾难）都将如此巨大，以至于你们无法再修复，因此你们必须为此负责，你们的报应将是祸上加祸，灾难上加灾难。
@@ -5565,7 +5565,7 @@ The translation aims to be faithful to the original text while maintaining clari
 每当真理向你们揭示时，你们却将其置之不理，你们不愿通过先知的教诲来巩固你们那浅薄的知识和智慧，因为你们自以为聪明、理智、洞察力强，并以此为乐，这使你们屡屡遭受损失，引发战争，传播死亡、苦难、贫困和破坏。
 
 125) Und bedenkt, wenn ihr das Aussehen (Natur) eurer Welt martert (foltert), dann werdet ihr und eure Tiere und viel Getier auch von neuen Krankheiten und Geisseln (Seuchen) befallen, und die eine Krankheit und Geissel (Seuche) wird die nächste nach sich ziehen, weil ihr selbst durch eure eigne Schuld einem Übel und Unheil das nächste folgen lasst, wie wenn ihr dem einen Schmutz weiteren Schmutz hinzufügt und er überhandnimmt.
-请记住，如果你们折磨（摧残）你们世界的形貌（自然），那么你们和你们的动物以及许多生物也将遭受新的疾病和瘟疫的侵袭，一种疾病和瘟疫会引发另一种，因为你们自己通过自己的过错让一个灾难和祸害接着另一个，就像你们在一个污秽上添加更多的污秽，最终使其失控。
+请记住，如果你们折磨（摧残）你们世界的显相（自然），那么你们和你们的动物以及许多生物也将遭受新的疾病和瘟疫的侵袭，一种疾病和瘟疫会引发另一种，因为你们自己通过自己的过错让一个灾难和祸害接着另一个，就像你们在一个污秽上添加更多的污秽，最终使其失控。
 
 126) Hütet euch davor und seht, dass euch die Übel und das Unheil nicht ereilen, sonst werdet ihr hart geprüft werden, wenn ihr nicht euer falsches Tun bereut und ihr euch nicht mahnen lasst.
 126) 你们要当心，警惕那些邪恶和灾祸，若不悔改自己的错误行为，不听劝诫，你们将面临严峻的考验。
