@@ -11,6 +11,7 @@
 # 固定的名词翻译
 - urkräftigen (schöpferischen)  :  原初始动（创造性）
 - wahrlichen Wahrheit: 真实真理
+- Unwahrheit：伪理
 - Urquelle (Schöpfung) : 原初之源（创造）
 - Entstehung (Schöpfung) : 起源（创造）
 - Euresgleichen (Menschen): 人类（人）
