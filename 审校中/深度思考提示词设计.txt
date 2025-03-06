@@ -37,6 +37,7 @@
 - Ursprungs：起源
 - Gesicht (Augen): 面容（视线）
 - Erbauung: 始筑
+- Erzeugenden：创生
 - Urkraft (Schöpfung): 原初力量（创造）
 - Ursprünglichen：原初
 - Weisheit: 智慧本源
@@ -44,7 +45,7 @@
 - Harmonie: 和谐
 - Formung: 造物
 - Nokodemion: 诺科德米翁
-- Daseins (Schöpfung) : 存在（创造）
+- Daseins: 存在
 - Fruchtbarkeit (Schöpfung): 育世（创造）
 - Ungebühr (Beleidigung/Frevel) ：无礼（侮辱/亵渎）
 - Ausführung：执行
