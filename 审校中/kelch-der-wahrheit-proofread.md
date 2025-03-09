@@ -2654,16 +2654,16 @@ Semjase银星中心，2008年7月13日，3:21，比利
 11) 如果你们中间有理智不清（神志混乱/智力低下）的人，你们不应让他们结婚，也不应自己与他们结成婚姻关系；如果你们是理智不清者的保护者（守护者），那么不要将你们的财产和财富交给他们以维持他们的生活，而是要用这些来供养他们，给他们穿衣，并以友善的言辞与他们交谈，正如你们也应在建议和行动上帮助他们一样。
 
 12) Sowohl dem Mann wie auch dem Weib gebührt ein bestimmter Anteil von dem, was Eltern und nahe Anverwandte hinterlassen, ob es wenig sei oder viel, ausgerichtet nach dem, wie es durch die Hinterlassenden (Erblasser) in einer Schrift der Überlassung (Testament) zugewiesen wurde; die gerechte (statthafte) Regel zur Aufteilung der Hinterlassenschaft sei die, dass bei einem Bündnis (Ehe) das hinterlassene Weib oder der hinterlassene Mann zwei Teile ([2]/3) von allem Hab und Gut und vom gesamten Vermögen und Reichtum erhalte, während der andere Teil ([1]/3) zu gleichen Anteilen den hinterlassenen Kindern zukommen soll; scheiden Vater und Mutter aus dem Leben, dann soll deren gesamte Hinterlassenschaft zu gleichen Anteilen den Nachkommen zufallen, und sind Nachkommen aus vorgegangenen Bündnissen (erster Ehe, zweiter Ehe usw.), dann sollen sie zu gleichen Anteilen mit den Nachkommen aus dem letzten Bündnis (Ehe) an der Hinterlassenschaft von jenem Bündnisteil (Ehepartner) berechtigt sein, der ihr Elternteil (Mutter oder Vater) ist.
-12) 无论遗产是多是少，男女都应享有父母和近亲所遗留的一定份额，这一份额应根据遗嘱中继承人的分配来确定；遗产分配的公正规则是，在婚姻关系中，遗孀或鳏夫应获得所有财产和财富的三分之二，而剩余的三分之一则应平均分配给遗留下的子女；若父母去世，则其全部遗产应平均分配给他们的后代，如果存在前段婚姻（如第一次婚姻、第二次婚姻等）的子女，他们应与最后一段婚姻的子女平等享有其父或母那一方的遗产份额。
+12) 无论遗产是多是少，男女都应享有父母和近亲所遗留的一定份额，这一份额应根据遗嘱中继承人的分配来确定；遗产分配的公正规则是，在婚姻关系中，未亡方应获得所有财产和财富的三分之二，而剩余的三分之一则应平均分配给遗留下的子女；若父母去世，则其全部遗产应平均分配给他们的后代，如果存在前段婚姻（如第一次婚姻、第二次婚姻等）的子女，他们应与最后一段婚姻的子女平等享有其父或母那一方的遗产份额。
 
 13) Ist eine Hinterlassenschaft (Erbe) zu verteilen, dann sei es des Rechtens, dass aus dieser, wenn Schulden und anderes bestehen, zuerst diese abgegolten werden, ehe eine Verteilung der Hinterlassenschaft erfolgt; und wisst, dass euer Weib oder euer Mann, wie auch eure Väter, Mütter und Kinder euch immer am nächsten stehen, weshalb diese Festsetzung der Hinterlassenschaft in dieser Weise gegeben sei, auf dass Billigkeit (Gerechtigkeit) und Gleichheit bewahrt werde unter allen.
-13) 若有遗产（继承）需要分配，那么按照法律，若存在债务和其他事项，应首先清偿这些债务，然后再进行遗产的分配；你们要知道，你们的妻子或丈夫，以及你们的父母和子女，总是与你们最为亲近，因此遗产的分配应如此规定，以确保公平与平等在所有人中得到维护。
+13) 若有遗产（继承）需要分配，那么按照法则，若存在债务和其他事项，应首先清偿这些债务，然后再进行遗产的分配；你们要知道，你们的妻子或丈夫，以及你们的父母和子女，总是与你们最为亲近，因此遗产的分配应如此规定，以确保公平与平等在所有人中得到维护。
 
 14) Stehen aber ein Mann und ein Weib in einem Bündnis (Ehe) und haben keine Kinder, und stirbt das Weib oder der Mann, dann gehöre die ganze Hinterlassenschaft dem hinterbleibenden Teil (Mann oder Weib); und sterben Bündnislose (Ehelose) oder Hinterbliebene (Familie), und haben sie keine Kinder, dann falle ihre gesamte Hinterlassenschaft zu je gleichen Anteilen ihren Geschwistern zu; und sind auch keine solchen, dann treten die nächsten Anverwandten an ihre Stelle; und sterben Kinder, Söhne und Töchter, die keine eigene Familie haben, dann falle deren gesamte Hinterlassenschaft ihren Eltern zu, oder in jedem Fall die Hälfte der gesamten Hinterlassenschaft, wenn eine Schrift der Überlassung (Testament) eine andere Verwendung für die andere Hälfte bestimmt.
-若一男一女结成婚姻关系（婚姻关系）且无子女，若女方或男方去世，则所有遗产归存活的配偶（男方或女方）所有；若未婚者或丧偶者（家庭）去世且无子女，则其全部遗产将按同等份额分配给其兄弟姐妹；若亦无兄弟姐妹，则由最近的亲属继承；若去世的子女、儿子和女儿无自己的家庭，则其全部遗产归其父母所有，或在任何情况下，若遗嘱对另一半遗产另有规定，则遗产的一半按遗嘱处理。
+14) 若一男一女结成婚姻关系（婚姻关系）且无子女，若女方或男方去世，则所有遗产归未亡方（男方或女方）所有；若未婚者或丧偶者（家庭）去世且无子女，则其全部遗产将按同等份额分配给其兄弟姐妹；若亦无兄弟姐妹，则由最近的亲属继承；若去世的子女、儿子和女儿无自己的家庭，则其全部遗产归其父母所有，或在任何情况下，若遗嘱对另一半遗产另有规定，则遗产的一半按遗嘱处理。
 
 15) Und sterben Geschwister, wenn beide Elternteile schon gestorben sind, und stehen keine der Geschwister in einem Bündnis (Ehe), und haben sie alle keine Nachkommen, dann erhalten alle zu gleichen Anteilen die gesamte Hinterlassenschaft der Verstorbenen, jedoch mindestens die Hälfte der gesamten Hinterlassenschaft, wenn eine Schrift der Überlassung (Testament) über die andere Hälfte etwas anderes bestimmt.
-如果兄弟姐妹在父母均已去世后相继去世，且这些兄弟姐妹中无人处于婚姻关系中，并且他们均无后代，那么他们将平等地继承已故者的全部遗产。但是，如果有一份转让书（遗嘱）对另一半遗产作出了不同的规定，则他们至少应继承全部遗产的一半。
+15) 如果兄弟姐妹在父母均已去世后相继去世，且这些兄弟姐妹中无人处于婚姻关系中，并且他们均无后代，那么他们将平等地继承已故者的全部遗产。但是，如果有一份转让书（遗嘱）对另一半遗产作出了不同的规定，则他们至少应继承全部遗产的一半。
 
 16) Und es sei um der Gleichheit und um der Billigkeit (Gerechtigkeit) willen nicht erlaubt, aus irgendwelchen Gründen, wie sie auch immer sein mögen, Berechtigte (Erbberechtigte) von Hinterlassenschaften durch eine Schrift der Überlassung (Testament) zu benachteiligen oder von der Hinterlassenschaft auszuschliessen.
 16) 为了平等和公正（正义），不允许以任何理由，无论这些理由是什么，通过遗嘱剥夺合法继承人（法定继承人）的继承权或将其排除在遗产之外。
@@ -2678,13 +2678,13 @@ Semjase银星中心，2008年7月13日，3:21，比利
 19) 你们中那些在离世时未能留下遗产的人，不必因此感到恐惧或忧虑，因为这并不构成耻辱，反而能避免许多争端。
 
 20) Dies sind aus den Geboten der Gleichheit und Billigkeit (Gerechtigkeit) erstandene Richtschnüre (Richtlinien) und gesetzte Schranken, auf dass rundum Gleichheit und Billigkeit (Gerechtigkeit), jedoch keine Benachteiligung herrsche, und dass kein Streit und kein Groll wie auch keine Eifersucht und keine Rachehandlungen unter Berechtigten (Erbberechtigten) von Hinterbliebenen (Familie) entstehen.
-这是从平等与公平（公正）的原则中产生的指导方针和设定的界限，以确保全面实现平等与公平（公正），而不存在任何歧视，同时避免在合法继承人（遗属家庭）之间产生争执、怨恨、嫉妒以及报复行为。
+20) 这是从平等与公平（公正）的原则中产生的指导方针和设定的界限，以确保全面实现平等与公平（公正），而不存在任何歧视，同时避免在合法继承人（遗属家庭）之间产生争执、怨恨、嫉妒以及报复行为。
 
 21) Wer jedoch diese Gebote der Ordnung und Rechenschaft übertritt, schafft sowohl in sich Unheil wie auch rundum bei all denen, welche daran beteiligt sind, also Schmählichkeiten (Verächtlichkeit/Schande/Erniedrigung /Entehrung) nicht ausbleiben werden.
-然而，凡是违背这些秩序与责任诫命的人，不仅会在自身招致灾祸，也会殃及所有相关之人，因此，轻蔑、耻辱、贬低与玷污等不光彩之事将无可避免。
+21) 然而，凡是违背这些秩序与责任诫命的人，不仅会在自身招致灾祸，也会殃及所有相关之人，因此，轻蔑、耻辱、贬低与玷污等不光彩之事将无可避免。
 
 22) Und wenn ein Mann oder ein Weib von euch Züchtigung (Vergewaltigung) begeht, indem Kinder oder ein Weib oder ein Mann am Geschlechtsorgan geschändet (missbraucht/vergewaltigt) wird, dann ruft Zeugen auf und bietet die Gerichtsbarkeit auf, auf dass die Fehlbaren durch eine Ahndung einer Massnahmevollziehung eingeordnet und entmannt oder entweibt (aus der Gesellschaft und vom anderen Geschlecht ausgeschlossen) werden für eine angemessene Zeit.
-22) 如果一个男人或女人对儿童、女性或男性实施性侵犯（强奸），则应召集证人并诉诸司法，以使通过惩罚措施将犯罪者进行适当处理，并在一定时间内对其进行阉割或隔离（从社会和异性中排除）。
+22) 如果一个男人或女人对儿童、女性或男性实施性侵犯（强奸），则应召集证人并诉诸司法，以使通过惩罚措施将犯罪者进行适当处理，并在一定时间内对隔离（从社会和异性中排除）甚或对其进行阉割。
 
 23) Und wenn zwei Weiber unter euch oder ein Mann und ein Mann zueinander eingehen (sich geschlechtlich vereinen), dann seien sie nicht zu bestrafen, denn ein Weib und ein Weib in geschlechtlichem Eingehen (geschlechtliche Vereinigung) ist gegeben durch die Gesetze des Aussehens (Natur), auf dass sie sich selbst begatten können, wenn die Not es fordert; wenn Mann und Mann jedoch zueinander geschlechtlich eingehen, dann ist es wider das Gesetz des Aussehens (Natur) in der Weise (widernatürlich), dass sie sich nicht fruchtbar zur Nachkommenschaftszeugung begatten können, doch liegt es im Gesetz des Aussehens (Natur), dass das geschlechtliche Eingehen (geschlechtliche Vereinigung) von Mann und Mann natürlich ist (widernatürliche Natürlichkeit) und nur der Liebe und der geschlechtlichen Genügsamkeit (Befriedigung) dienlich ist; also begehen weder Mann und Mann noch Weib und Weib ein Unrecht, wenn sie geschlechtlich zueinander eingehen (sich geschlechtlich vereinen), so sie nicht Strafe auf sich laden, nicht bereuen und sich nicht bessern müssen, also ihnen auch nicht ein Ausweg aus ihrer Neigung (Veranlagung) eröffnet werden muss, so sie in Frieden leben sollen als Andersgeartete im Geschlechtlichen (Lesben/Homosexuelle) unter denen, die ihre Geschlechtlichkeit zwischen Mann und Weib ausüben.
 23) 若你们中有两个女人或两个男人彼此结合（发生性关系），则不应受罚，因为女人与女人之间的性结合是自然法则所赋予的，以使她们在必要时可以自我繁衍；然而，若男人与男人之间发生性关系，则违背了自然法则（反自然），因为他们无法通过这种方式繁衍后代，但根据自然法则，男人与男人之间的性结合虽然违背自然，却也是自然的一部分（反自然的自然性），仅服务于爱与性满足；因此，无论男人与男人还是女人与女人之间的性结合都不构成过错，只要他们不因此招致惩罚，无需悔改或改正，也无需为他们提供摆脱其倾向（性取向）的出路，他们应作为性取向不同者（女同性恋者/男同性恋者）在异性恋者中和平生活。
@@ -2696,7 +2696,7 @@ Semjase银星中心，2008年7月13日，3:21，比利
 25) 那些继续作恶的人不能接受悔改，因为他们只是表面上表示悔改，并不打算停止他们的恶行。因此，他们应当被安排在一个措施执行地（偏远的地方或偏远的岛屿）接受一段时间的严厉惩罚，以促使他们真正悔改，并停止他们的恶行。
 
 26) Ihr unter euch, Mann und Weib, die ihr der Wahrheit, der Billigkeit (Gerechtigkeit) und der Rechenschaft einander im Bündnis (Ehe) zugetan seid, es ist euch nicht erlaubt, gegen den Willen des anderen euch dessen Hab und Gut und Reichtum anzueignen, noch sollt ihr die Güter und den Reichtum des anderen widerrechtlich zurückhalten oder einen Teil davon wegnehmen; und was ihr einander gegeben habt, das sollt ihr nicht zurückfordern, auch dann nicht, wenn ihr durch Schändlichkeit (Schlechtigkeit) geharmt werdet oder wenn ihr euer Bündnis auflöst, denn ein Angebinde (Geschenk) wird gegeben in gutem Gedenken, das, zu seiner Zeit gegeben, seinen Wert hat und nicht zurückgenommen werden kann, also ein Zurückfordern gleichsam einer Dieberei ist.
-在你们中间，无论是男是女，在婚姻的盟约中，你们都应致力于真理、公正和相互的责任。你们不允许在对方不同意的情况下，占有对方的财产和财富，也不应非法扣留或剥夺对方的财产和财富；你们给予彼此的东西，不应再要求归还，即使你们因恶行而受到伤害，或你们的盟约被解除，因为礼物是在美好的记忆中给予的，适时给予的礼物有其价值，不应被收回，因此要求归还礼物就如同盗窃。
+26) 在你们中间，无论是男是女，在婚姻的盟约中，你们都应致力于真理、公正和相互的责任。你们不允许在对方不同意的情况下，占有对方的财产和财富，也不应非法扣留或剥夺对方的财产和财富；你们给予彼此的东西，不应再要求归还，即使你们因恶行而受到伤害，或你们的盟约被解除，因为礼物是在美好的记忆中给予的，适时给予的礼物有其价值，不应被收回，因此要求归还礼物就如同盗窃。
 
 27) Fühlt ihr in euch Unmut oder Widerwillen (Abneigung) gegen den Bündnisgefährten, gegen Mann oder Weib, dann bedenkt auch dessen, was Gutes vom andern gegeben und was von eurer Seite im Guten und Schlechten gegeben ist, auf dass ihr beide Seiten zur Beurteilung legt (betrachtet/bedenkt), um einen wahrlich gerechten (angemessenen) Schiedsspruch (Entscheidung) zu treffen und in anständiger Weise zu handeln.
 27) 如果你们心中对盟友、对男人或女人感到不满或厌恶（反感），那么也请考虑对方所给予的好处，以及你们自己在善与恶方面所给予的东西，以使你们双方都能进行评判（考虑/深思），从而做出真正公正（适当）的裁决（决定），并以得体的方式行事。
@@ -2705,19 +2705,19 @@ Semjase银星中心，2008年7月13日，3:21，比利
 28) 如果你们，男女双方，已经彼此承诺结成盟约（婚姻），但后来又各自走自己的路（分离/解除婚约），并且你们已经互赠了珍宝（首饰/财产/礼物），那么请不要收回任何东西，因为礼物是怀着美好的回忆赠予的，它在适当的时候赠予，具有其价值，不可收回，因此索回礼物无异于盗窃。
 
 29) Gegebene Angebinde (Geschenke) sollen allzeit und in jedem Fall Angebinde (Geschenk) bleiben und nie zurückgefordert werden, es sei denn, dass der, der Angebinde (Geschenke) zurückfordert, sich selbst der Lüge zeiht (beschuldigt).
-29) 所赠予的礼物（Geschenke）在任何时候和任何情况下都应始终被视为礼物，并且永远不应被要求归还，除非要求归还礼物的人自证其谎言（beschuldigt）。
+29) 已赠予的赠礼（礼物）应始终且在一切情况下保持为赠礼（礼物），且不得索回，除非索回赠礼（礼物）之人主动指控（指控）自己撒谎。
 
 30) Wahrlich, ihr könnt auch dann nicht voneinander Angebinde (Geschenke) zurücknehmen, wenn ihr miteinander allein (im Beischlaf vereint) gewesen seid; ob ihr nun in einem festen Bund (Ehe) oder nur in vertraulicher Einigkeit (Sympathie) einander beigewohnt (beigeschlafen) habt.
 30) 诚然，即便你们已经亲密无间（在性交中结合），你们也不能从彼此那里收回赠礼（礼物）；无论你们是处于稳固的盟约（婚姻）中，还是仅仅在亲密的和谐（好感）中相互陪伴（发生性关系）。
 
 31) Und es ist des Rechtens, wenn ihr nicht in einem Bündnis (Ehe) seid, dass ihr in vertraulicher Einigkeit (Sympathie) einander beiwohnt (beischlaft), wenn ihr noch unbeweibt und unbemannt (alleinstehend) und ihr der Jugend entwachsen (erwachsen) seid, doch sei es dabei gegeben, dass eine berührbare Gefährtenschaft (offene Freundschaft) besteht, nicht jedoch eine wilde Ungeordnetheit (wildes Durcheinander) mit abwechselnden Beiwohnenden (Beischlafenden); steht ihr aber in einem Gelöbnis (Verlobung) für ein zu schliessendes Bündnis (Ehe) mit einem anderen Mann oder Weib, dann sei es des Unrechtens, wenn ihr anderen beiwohnt (beischlaft); und es ist nicht des Rechtens, wenn ihr einander beiwohnt (beischlaft), wenn ihr zueinander in unberührbarer Gefährtenschaft (platonische Freundschaft) steht.
-31) 如果你们尚未缔结婚姻关系，且双方都是单身且已成年，那么在彼此之间保持一种公开的友好关系下，进行亲密的交往是合乎情理的。然而，这种交往应建立在明确的友谊基础上，而非混乱无序的频繁更换伴侣。如果你们已经与他人订下婚约，准备缔结婚姻，那么与其他人的亲密交往则是不被允许的。此外，如果你们之间仅是柏拉图式的纯友谊关系，那么进行亲密交往也是不合适的。
+31) 如果你们尚未缔结婚姻关系，且双方都是单身且已成年，那么在彼此之间保持一种公开的友好关系下，进行亲密的交往是合乎情理的。然而，这种交往应建立在明确的友谊基础上，而非混乱无序的频繁更换伴侣。如果你们已经与他人订下婚约，准备缔结婚姻，那么与其他人的亲密交往则是不被允许的。此外，如果你们之间仅是陪伴（柏拉图式的纯友谊）关系，那么进行亲密交往也是不合适的。
 
 32) Und es ist des Rechtens, dass das Weib nur einen Mann habe, denn es kann nur durch einen allein einer Zeugung (Befruchtung) für Nachkommenschaft zugeordnet sein; ein Mann aber möge drei Weiber haben, denn er vermag mehrere Zeugungen (Befruchtungen) bei mehreren Weibern vorzunehmen, doch ist gegeben, dass er allen Weibern in allen Dingen und in der Versorgung und in der Gleichstellung gerecht zu werden vermag; und hat ein Mann mehrere Weiber, dann gelte mit jeder ein Bündnis (Ehe), in das die anderen Weiber auch eingeschlossen seien und daran teilhaben.
 32) 根据法律规定，一个女人只能有一个丈夫，因为她只能通过一个男人来繁衍后代；而一个男人可以有三个妻子，因为他能够在多个女人中进行多次繁衍。然而，前提是他必须能够在所有事务、供养和平等方面公平对待所有妻子；如果一个男人有多个妻子，那么与每个妻子所建立的婚姻契约中，其他妻子也应被包含在内并参与其中。
 
 33) Und es ist nicht des Rechtens, wenn im Bündnis (Ehe) Vereinte, Mann wie Weib, ausserhalb ihres Bündnisses (Ehe) einem anderen Mann oder Weib beiwohnen (beischlafen), die nicht im Bündnis eingeschlossen sind, denn das ist ein Bruch des Bündnisses (Ehe) und soll durch die Gerichtsbarkeit geahndet werden mit einer Massnahmevollziehung an einem Massnahmevollziehungsort (abgelegener Ort/einsame Insel) auf bestimmte Zeit.
-在联盟（婚姻）中结合的男女，若在联盟之外与未被纳入联盟的他人发生关系（同寝），这是不正确的行为，因为这破坏了联盟（婚姻）的契约，应通过司法程序予以惩处，措施将在特定地点（偏远之地/孤岛）执行一段时间。
+33) 在联盟（婚姻）中结合的男女，若在联盟之外与未被纳入联盟的他人发生关系（同寝），这是不正确的行为，因为这破坏了联盟（婚姻）的契约，应通过司法程序予以惩处，措施将在特定地点（偏远之地/孤岛）执行一段时间。
 
 34) Und es ist nicht des Rechtens und bedeutet Blutschande (Inzest/Inzucht), ein Bündnis (Ehe) einzugehen mit einem Weib, das mit eurem Vater oder Vorvater (Grossvater) vertraut (verheiratet) war; also ist es aber nicht des Rechtens und bedeutet Blutschande (Inzest/Inzucht), ein Bündnis (Ehe) einzugehen mit einem Mann, der mit eurer Mutter oder Vormutter (Grossmutter) vertraut (verheiratet) war; und es soll, so solches geschieht, harte Ahndung durch die Gerichtsbarkeit erfolgen.
 34) 与曾与你的父亲或祖父（外祖父）有过亲密关系（婚姻）的女性缔结合约（婚姻）是不合法的，这属于血亲乱伦（近亲繁殖/乱伦）；同样，与曾与你的母亲或祖母（外祖母）有过亲密关系（婚姻）的男性缔结合约（婚姻）也是不合法的，这也属于血亲乱伦（近亲繁殖/乱伦）；若发生此类情况，司法机构将予以严厉惩处。
