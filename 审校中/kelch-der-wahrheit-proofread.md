@@ -2921,31 +2921,31 @@ Semjase银星中心，2008年7月13日，3:21，比利
 100) 然而，你们中那些不为真理的事业而奋斗的人，不为那诸般智慧之源（创造）的通过其法则和建议所赋予的真理的教义、精神的教义、生命的教义而奋斗的人，不为弱者、贫者与需者，那些应被带离苦难与悲惨、远离其压迫者（暴君/专制者）的妇女、男子与儿童而奋斗的人，当如何？诚然，你们不保护，不帮助他们，任其在恶境中颤抖（衰萎），你们自身也将为此收获恶果。
 
 101) Jene unter euch, welche ihr um die Wahrheit der Quelle allen Ursprungs (Schöpfung) wisst, ihr kämpft mit den Waffen der Wahrheit, der Liebe und Gleichstimmung (Harmonie) und in Frieden und Freiheit für deren Sache; die ihr aber Unwissende und Ungerechte (Verantwortungslose) seid, ihr kämpft für die Sache des Bösen, für die Lüge und Unwahrheit mit dem Schwert und also mit allen Waffen des Todes; ihr aber kämpft einen aussichtslosen Kampf als Freunde des Bösen, dessen Feldherrnkunst Tod und Verderben und Zerstörung ist.
-101) 你们中那些知晓一切真理起源之源（创造）的人，你们用真理、爱和和谐（和平）的武器，为和平与自由的事业而奋斗；而你们这些无知和不义（不负责任）的人，你们为邪恶的事业而战，用剑和一切死亡的武器为谎言和不真实而战；但你们作为邪恶的朋友，进行着一场无望的战斗，其统帅之术是死亡、毁灭和破坏。
+101) 你们中那些知晓一切真理起源之源（创造）的人，你们用真理、爱和和谐（和平）的武器，为和平与自由的事业而奋斗；而你们这些无知和不义（不负责任）的人，你们为邪恶的事业而搏，用剑和一切死亡的武器为谎言和伪理而搏；但你们与邪恶为伍，进行着一场无望的战斗，其统帅之术是死亡、毁灭和破坏。
 
 102) Zügelt eure Hände mit dem Schwert, das ihr wider die Wahrheit führt, um euch kämpfend gegen sie zu stellen, weil ihr sie fürchtet und eure Furcht immer grösser wird; wahrlich, durch die Gesetze und Gebote des Urquells (Schöpfung) ist kein Kampf mit Waffengewalt verordnet, auf dass getötet (gemordet) werde, sondern sie fordern Liebe und Frieden, auf dass ihr in Freiheit und Wohlmut (Harmonie) leben mögt.
-102) 你们用剑来束缚自己的双手，以对抗真理，因为你们害怕它，并且你们的恐惧日益增长；然而，根据原初之源（创造）的法则和建议，并没有规定要用武力进行战斗，以致杀害（谋杀），而是要求爱与和平，以使你们能够在自由与和谐中生活。
+102) 你们手束以剑，来对抗真理，因为你们害怕它，并且你们的恐惧日益俱增；然而，根据原初之源（创造）的法则和建议，并没有规定要用武力进行战斗，以致杀害（谋杀），而是要求爱与和平，以使你们能够在自由与和谐中生活。
 
 103) Gebt euch Aufschub (beendet) in eurem Kampf wider die Wahrheit, denn ihr unter euch, welche ihr die Wahrheit mit dem Schwert und anderen Waffen des Todes bekämpft, wahrlich, euer Vorteil (Nutzen) wird nur gering und von kurzer Dauer sein, also es euch besser ist, wenn ihr euch in Ehrfurcht (Ehrerbietung) der Wahrheit und ihrer Lehre zuwendet, auf dass ihr kein Quentchen Unrecht mehr verbreitet.
 103) 在你们对抗真理的战斗中，请暂且止步（结束），因为你们中那些用剑和其他致命武器与真理抗争的人，真的，你们的利益（益处）将是微不足道且短暂的，所以你们最好怀着敬畏（敬意）转向真理及其教导，这样你们就不会再散布一丝不义。
 
 104) Seid euch gewiss (wissend), wo ihr auch sein mögt, so könnt ihr dem Tod nicht ausweichen, denn er ereilt euch doch und wärt ihr im festest gebauten Turm, daher achtet des Todes, wo immer ihr seid, auf dass er euch in rechtem und nicht in unrechtem Tun ergreift; und gedenkt alle Zeit des Todes und lernt, dass er unausweichlich ist und dass ihr ihm eingeordnet seid wie alles, was lebt und kreucht und fleucht, auf dass ihr nicht erschreckt, wenn ihr ihm gegenübersteht und euer Leben verlassen müsst.
-你们要确信，无论身处何地，都无法逃避死亡，因为它终将降临，即使你们身处最坚固的高塔之中。因此，无论你们在哪里，都要谨记死亡，以使它在你们行善而非作恶时抓住你们；要时刻铭记死亡，并认识到它是不可避免的，你们与所有生命、爬行和飞行的生物一样，都被归入其中，这样当你们面对死亡并必须离开生命时，才不会感到恐惧。
+104) 你们要确信，无论身处何地，即使你们身处最坚固的高塔之中，都无法逃避死亡，因为它终将降临。因此，无论你们在哪里，都要谨记死亡，以使它在你们行善而非作恶时抓住你们；要时刻铭记死亡，并认识到它是不可避免的，你们与所有生命、爬行和飞行的生物一样，都被归入其中，这样当你们面对死亡并必须离开生命时，才不会感到恐惧。
 
 105) Und bedenkt, wenn euch im Leben oder Sterben Gutes begegnet, worüber ihr euch freut, dass es, wenn es nicht von aussen kommt, von eurem Wandel (Lebensführung) herrührt, wie es auch ist, wenn ihr im Leben oder Sterben Schlimmem begegnet und ihr euch fürchtet; wahrlich, allen Euresgleichen (Menschen) und also allem Volk wird immer das widerfahren, was ihnen zusteht durch das, was sie verdienen, sei es des Guten oder des Bösen, wenn ihr das doch nur begreifen wollt.
-105) 要记住，无论在你生命或死亡时遇到的好事，让你感到高兴的事，如果不是来自外界，那就是源自你的生活方式；同样，当你在生命或死亡时遇到坏事，感到恐惧时也是如此。确实，所有像你这样的人，也就是所有的人，都会根据他们的行为得到他们应得的结果，无论是好事还是坏事，只要你们能够理解这一点。
+105) 且要意识到，当你们在生命或死亡中遇到令你们喜悦的善事时，若这并非来自外部，便源自你们的生活之道，正如当你们在生命或死亡中遭遇令你们恐惧的恶事时也是如此。事实上，所有人类（人）乃至全体族群，-都会根据他们的行为得到他们应得的结果，无论是善或恶，你们要能理解这一点。
 
 106) Was euch an Gutem trifft, kommt alles aus eurer guten Beständigkeit (Gesinnung), wie auch alles Schlimme, das euch trifft, aus euch selbst (aus eigener Denkweise/Gesinnung) kommt; wahrlich, ihr seid euch eure eigenen Propheten, die ihr euch in allen Dingen eures Lebens selbst aufteilt (bestimmt) und kundtut, was euch zum Wohl oder zum Schaden gereichen wird, und dafür seid ihr eure eigenen Zeugen.
-106) 所有降临于你们的善事，皆源于你们坚定的善念（态度），同样，所有降临于你们的恶事，也源自你们自身（源于自己的思维方式/态度）；确实，你们是自身的预言者，你们在自己生活的各个方面自行分配（决定）并宣告，什么将有益于你们，什么将损害你们，为此，你们是自己的见证人。
+106) 所有降临于你们的善事，皆源于你们坚定的善念（态度），同样，所有降临于你们的恶事，也源自你们自身（源于自己的思维方式/态度）；确实，你们是自身的先知，你们在自己生活的各个方面自行分配（决定）并宣告，什么将有益于你们，什么将损害你们，为此，你们是自己的见证人。
 
 107) Lenkt ihr euch in freier Bestimmung (Entscheidung) willig und wissend (bewusst) in die Lehre der Propheten, in deren Lehre der Wahrheit, deren Lehre des Geistes, deren Lehre des Lebens ein, dann lenkt ihr euch in der Tat in die Lehre der Gesetze und Gebote der Urquelle allen Daseins (Schöpfung) ein; lenkt ihr euch alle in freier Bestimmung (Entscheidung) willig und wissend (bewusst) von der Wahrheitslehre ab, dann macht ihr euch selbst zum Hüter der Unwahrheit und des Bösen.
-107) 如果你们在自由意志（决定）下，自愿且明智地（有意识地）接受先知的教导，即真理的教导、精神的教导、生命的教导，那么你们实际上就接受了万物之源（创造）的法则和建议的教导；如果你们在自由意志（决定）下，自愿且明智地（有意识地）背离真理的教导，那么你们就使自己成为虚假与邪恶的守护者。
+107) 如果你们在自由意志（决定）下，自愿且明智地（有意识地）接受先知的教导，即真理的教导、精神的教导、生命的教导，那么你们实际上就接受了万物之源（创造）的法则和建议的教导；如果你们在自由意志（决定）下，自愿且有意地（有意识地）背离真理的教导，那么你们就是在拥护虚假与邪恶。
 
 108) Nicht erzwungener Gehorsam ist die Richtschnur (Leitgedanke) der Lehre der Wahrheit, der Lehre des Geistes, der Lehre des Lebens, sondern die Freiheit des Willens, um in dessen Freiheit die Wahrheit zu ergründen und zu erfassen (verstehen), auf dass sie in Freiheit des Willens angenommen und mit ihr das Leben geführt und bewältigt werde.
-108) 真理教导、精神教导、生命教导的指导原则（核心思想）并非强制的服从，而是意志的自由，以使在其自由中探寻并理解真理，从而使真理在意志的自由中被接纳，并与之共同引导和驾驭生活。
+108) 真理教导、精神教导、生命教导的指导原则（核心思想）并非强制的服从，而是意志的自由，以使在其自由中探寻并理解真理，从而使真理在自由的意志中被接纳，并与之共同引导和完满生命。
 
 109) Seid euch gewiss (wissend), jene unter euch, welche ihr die Richtschnur (Leitgedanke) der Wahrheitslehre als Zwang erachtet, ihr verstellt (heuchelt) euch und schwört am Tag falsch, dass ihr der Wahrheit und ihrer Lehre erkenntlich (zugetan) seid, doch des Nachts kehrt ihr euch gegen sie und trachtet danach, sie zu verlästern (verleumden) und zu zerstören, doch euer Lohn dafür wird voller Übel sein; es ist euch besser, wenn ihr nicht Anschläge wider die Wahrheitslehre ersinnt, sondern ihr ehrlich zugetan seid und auf sie baut, auf dass ihr für die Wahrheit Träger des Vertrauens werdet.
-109) 你们当确信（知道），你们中那些将真理教义的准则视为强迫的人，你们是在伪装（虚伪），并在白天虚假地发誓，声称你们对真理及其教义是认可的（忠诚的），然而在夜晚，你们却转而反对它，并图谋诽谤（中伤）和摧毁它，但你们的报酬将充满邪恶；对你们来说，若不策划反对真理教义，而是真诚地忠诚于它，并建立在其上，使你们成为真理的信任承载者，那将是更好的。
+109) 你们当确信（知道），你们中那些将真理教义的准则视为强迫的人，你们是在伪装（虚伪），并在白天虚假地发誓，声称你们对真理及其教义是认可的（忠诚的），然而在夜晚，你们却转而反对它，并图谋诽谤（中伤）和摧毁它，但你们的报偿将充满邪恶；对你们来说，若不策划反对真理教义，而是真诚地忠诚于它，并建立在其上，使你们成为真理的信任承载者，那将是更好的。
 
 110) Wahrlich, wollt ihr nicht über die Lehre der Propheten und über die Gesetze und Gebote der Urkraft (Schöpfung) nachsinnen, sondern weiterhin mit der Unwahrheit buhlen (hofieren), obwohl sich in ihr zahllose Widersprüche finden?; seid jedoch gewiss (wissend) darin, dass sich die Widersprüche in der Unwahrheit stets zu eurem Schaden wandeln und euch in eurem Innern (Wesen) und in eurer Ermahnung (Gewissen) ein Feuer entfachen, an dem ihr euch verbrennt.
 诚然，你们不愿思考先知的教诲和原初力量（创造）的法则和建议，却继续与虚妄为伍，尽管其中充斥着无数的矛盾；然而你们要明白，虚妄中的矛盾终将转化为对你们的损害，并在你们的内在本性（本质）和良知中点燃一把火，使你们自焚其中。
