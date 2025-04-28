@@ -3105,48 +3105,38 @@ Semjase银星中心，2008年7月13日，3:21，比利
 161) 还能有谁拥有比你们更大的知识和智慧呢？你们是真理教导、精神教导、生命教导的追随者，你们行善，在正直（尽责）和纯洁（美德）中坚定不移，并遵循爱之源（创造）的法则和建议；事实上，那些公正（负责任）并勇敢履行自己职责和义务（责任）的人，生命已将你们视为特别的朋友。
 
 162) Wahrlich, die Urquelle aller Anmut (Schöpfung) allein ist die Wahrheit aller Wirklichkeit (SEIN) und die Wahrheit aller Wirkung (Existenz) in den Himmeln (Universum), auf den Erden (Welten/ Planeten) und was dazwischen (Weltenraum) ist, und sie allein umfasst auch alle Dinge des Lebens aller Kreatur, der Wasser, der Lüfte, der Härte (Gestein/Fels) und alles, was da kreucht und fleucht.
-162) 诚然，一切优雅（创造）的源头，唯有是万有实在（存在）的真理与万有作用（存在）的真理，在诸天（宇宙）中，在诸地（世界/星球）上，以及其间（宇宙空间）的一切，并且它独自囊括了所有生命之物，所有水、所有空气、所有坚硬之物（岩石/石头）以及一切爬行与飞翔的生物。
+162) 诚然，唯有一切优雅的原初之源（创造）是所有现实性（存在）的真理，也是诸天（宇宙）、大地（诸世界/行星）以及其间（星际空间）所有效用（存在）的真理，而唯有它涵盖一切有生命之物、水体、气流、坚硬物（岩石/山体）以及所有爬行与飞行之物。
+- 优雅：源自内在精神的美感；由内在精神自然流露的优雅气质
 
 163) Sucht ihr einen Entscheid in den Gesetzen und Geboten der Urquelle aller Anmut (Schöpfung) über Mann und Weib und Kind, dann findet ihr ihn, wenn ihr in offener Bereitwilligkeit (offenen Sinnes) seid; ist eure Bereitwilligkeit (offener Sinn) nicht anstellig (gebildet) genug, dann verlasst euch auf die Lehre der Propheten, die da ist die Lehre der Wahrheit, die Lehre des Geistes, die Lehre des Lebens, die Lehre der Gesetze und Gebote der Urquelle aller Anmut (Schöpfung), worin ihr den kostbaren Entscheid findet; und also handelt danach ebenso, was euch vorgetragen und gelehrt ist durch die Wahrheitslehre der Propheten, wenn ihr entscheiden müsst über die Waisen, wenn sie ein Bündnis eingehen wollen (heiraten wollen), auf dass ihr ihnen eure Hilfe gebt für alles, wessen sie bedürfen; und handelt ebenso in guter Entscheidung nach Recht, Gesetz und Gebot, wenn ihr Schwache (Behinderte) unter den Kindern habt, auf dass auch ihnen Billigkeit (Gerechtigkeit) und Hilfe in allen Dingen gegeben sei, so sie ein gutes Leben haben mögen; übt auch Billigkeit (Gutheissen/Gerechtigkeit) in allen Dingen des Rechtes und Gesetzes und der Gebote für die Waisen, auf dass auch sie ein Dasein im Masse alles Notwendigen führen mögen; und achtet der Rechte von Mann und Frau und den Kindern, auf dass ihnen nicht Unrecht und nicht Gewalt angetan wird und sie alle des Rechtens ihr Dasein in Freiheit und Frieden und also in Gleichstimmung (Harmonie) führen mögen und nicht darben an Speise und Trank noch Mangel leiden an der Versorgung aller Dinge des Bedarfs.
-163) 如果你们在寻求关于男女和子女的判决，在一切优雅之源（创造）的法则和建议中寻找，那么如果你们以开放的心态（开放的思维）去寻找，你们将会找到它；如果你们的开放心态（开放的思维）不够成熟（不够培养），那么你们可以依赖先知的教导，那是真理的教导，是精神的教导，是生命的教导，是一切优雅之源（创造）的法则和建议的教导，在其中你们将找到宝贵的判决；因此，当你们需要决定关于孤儿的婚姻时，应当按照先知真理教导所传授和教导的去做，给予他们所需的一切帮助；当你们面对儿童中的弱者（残疾人）时，也应当按照正义、法则和建议作出良好的决定，给予他们公正和帮助，使他们能够拥有美好的生活；在处理孤儿的权利、法则和建议时，也要实践公正（赞同/正义），使他们能够过上所需的生活；并且要尊重男女和儿童的权利，使他们不受不公正和暴力的侵害，使他们都能在自由与和平中，以及和谐中生活，不缺乏食物和饮料，也不缺乏任何生活必需品的供应。
+163) 当你们在关于男女与孩童之事上寻求一切优雅的原初之源（创造）的法则和建议中的一项裁决时，若你们处于开放的意愿（开放心灵）时则会寻得它；若你们的意愿（开放心灵）不够成熟（受教化），则当信赖先知的教导，即真理教导、精神教导、生命教导、一切优雅的原初之源（创造）的法则和建议教导，你们将在其中找到珍贵裁决；因此，当你们必须对欲缔结盟约（结婚）的孤儿作出裁决时，也当依照真理教导通过先知所宣讲与教授的内容行事，以便你们为他们提供所需一切的帮助；若你们面对孩童中的弱者（残障者），也当依照权利、法则和建议作出良好裁决，使他们在所有事物中获得公允（公正）与帮助，得以享有良善生活；对于孤儿的权利、法则及建议相关事务，也当践行公允（认可/公正），使他们能按一切必要之度量存在；并尊重男女与孩童的权利，使他们免遭不公与暴力，且所有人在自由、和平及均衡协调（和谐）中行正当之事而存在，既不匮乏饮食，也不短缺所需之物的供给。
 
 164) Und wenn in einem Bündnis (Ehe) ein Weib oder ein Mann vom andern rohe Behandlung oder Gleichgültigkeit befürchtet, dann soll es der Richtigkeit für beide sein, dass sie auf geziemende Weise miteinander die Schwierigkeit (Problem) bereden und sich miteinander versöhnen, denn Versöhnung in Rechtschaffenheit (Gewissenhaftigkeit) und Fehlerlosigkeit (Ehrlichkeit) ist wahrlich das Beste, auf dass Frieden herbeigeführt sein möge.
-164) 如果在婚姻关系中，妻子或丈夫担心对方会粗暴对待或冷漠相待，那么双方应当以适当的方式共同商讨并解决这一问题，彼此和解。因为在正直和诚实基础上的和解确实是最好的，这样和平才能得以实现。
+164) 如果在婚姻关系中，妻子或丈夫担心对方会粗暴对待或冷漠相待，那么双方应当以适当的方式共同商讨并解决这一问题，彼此和解。因为在正直和诚实基础上的和解才是最好的，这样和平才能得以实现。
 
 165) Und achtet, auf dass ihr nicht voller Gier und Habsucht seid, weder dann, wenn ihr in einem Bündnis (Ehe) verbunden, noch wenn ihr unverbündet (ledig) seid, denn solches Tun bringt Unfrieden und Unfreiheit in euch selbst wie auch Ungleichstimmung (Disharmonie) und Streit mit Euresgleichen (Mitmenschen); also ist es euch besser, wenn ihr wahrlich kundig in den Gesetzen und Geboten der Urkraft allen Lebens (Schöpfung) seid und sie befolgt, auf dass ihr euch der Rechtschaffenheit (Gewissenhaftigkeit) und dem Guten zuwendet.
-165) 并且注意，无论是在婚姻中还是单身时，都不要充满贪婪和贪欲，因为这样的行为会给你们自身带来不安和不自由，也会与你们的同类（他人）产生不和谐和争执；因此，如果你们真正了解并遵循万物本源（造物）的法则和建议，那对你们更好，这样你们就能转向正直（良知）和善良。
+165) 并且注意，无论是在婚姻中还是单身时，都不要充满贪婪和贪欲，因为这样的行为会给你们自身带来不安和不自由，也会与你们的同类（他人）产生不和谐和争执；因此，如果你们真正了解并遵循生命的原初力量（造物）的法则和建议，那对你们更好，这样你们就能转向正直（良知）和善良。
 
 166) Wahrlich, es mag sein, so sehr ihr es euch auch wünschen mögt, dass ihr keine umfassende Gleichmässigkeit (Gleichgewicht) zwischen euch findet, wenn ihr in einem Bündnis (Ehe) verbunden seid als Mann und Weib, oder wenn ihr verbunden seid in einem reinen Bündnis der Zuneigung (lesbisches/homosexuelles Bündnis/Zusammenschluss) zwischen Mann und Mann oder Weib und Weib, denn wahrlich kann eine Vollkommenheit in Gleichmässigkeit (Gleichgewicht) nicht gegeben sein, sondern nur eine Vergleichung (Relativität/Verhältnismässigkeit); also könnt ihr nur eine beschränkte (bedingte) Gleichmässigkeit (Gleichgewicht) zwischen euch schaffen, doch allein auch nur dann, wenn ihr euch einander zuneigt und euch nicht in der Schwebe (Unsicherheit) lasst; und handelt ihr zusammen gleichsam, dann wird eure Gleichmässigkeit (Gleichgewicht) zwischen euch von Vortrefflichkeit (das Beste) sein; und wenn ihr euch nicht trennt und ihr um eine Gleichmässigkeit (Gleichgewicht) zwischen euch bemüht seid, dann wird euch eure Fülle der Liebe und Gleichstimmung (Harmonie) unabhängig von nutzlosen Bemühungen umeinander machen; und bedenkt, so ihr einander in wahrlicher Liebe zugetan seid, dass ihr doch (trotzdem) eure Unbedingtheit (Willensfreiheit) bewahren müsst, auf dass ihr nicht in Unfreiheit (Hörigkeit) dem andern verfallt; wahrlich, es ist sowohl in einem Bündnis wie auch in Bündnislosigkeit des Rechtens, dass Mann und Weib ihren eigenen Ausdruck (Meinung) haben und ihn auch ohne Lähmung (Angst) kundtun dürfen, und also gelte das auch für Kinder, ohne dass die Darlegung (das Gesagte) geahndet wird, wenn sie nicht des Unrechtens ist.
-166) 诚然，尽管你们多么希望如此，但你们在作为男女结合的联盟（婚姻）中，或在纯粹的情感联盟（同性恋结合）中，可能无法找到完全的均衡（平衡），因为完全的均衡（平衡）是无法实现的，只能是一种相对的比较（相对性/比例性）；因此，你们只能在彼此之间创造一种有限的（有条件的）均衡（平衡），但这也只有在你们彼此倾心且不让自己处于不确定状态时才能实现；如果你们共同行动，那么你们之间的均衡（平衡）将会是最优的；如果你们不分离并努力在彼此之间寻求均衡（平衡），那么你们的爱和和谐将会使你们不再需要无谓的相互努力；请记住，如果你们彼此真心相爱，你们仍然必须保持自己的无拘无束（自由意志），以免陷入对对方的不自由（奴役）中；诚然，无论是在联盟中还是无联盟状态下，男女都有权表达自己的意见，并且可以毫无畏惧地表达，这也适用于孩子，只要他们所说的不是错误的，就不应受到惩罚。
+166) 诚然，当你们作为男女缔结盟约（婚姻），或当你们以纯然情感盟约（女同性恋/同性恋盟约/结合）彼此结合时，即男性与男性或女性与女性相联结时，无论你们多么渴望拥有完美的关系，你们之间无法找到全面的均衡均等（平衡），因为事实上，完美的均衡均等（平衡）是不存在的，唯有相对性（相对/比例性）；因此你们只能在彼此之间创造有限的（有条件）均衡均等（平衡），但仅当你们相互倾慕且不使自己处于不确定（不确定）状态时方可实现；若你们共同行动如一，则你们之间的均衡均等（平衡）将具备卓越性（最佳）；而若你们不分离且努力维系彼此间的均衡均等（平衡），则你们爱的丰沛与均衡协调（和谐）将使你们免于徒劳的相互纠缠；请记住，如果你们彼此真心相爱，仍须保持无条件的自主性（意志自由），以免陷入对另一方的不自由（依附）；事实上，无论处于盟约或非盟约状态，男女均有权利自由表达观点并可毫无拘束（恐惧）地宣示之，此权利亦适用于孩童，只要其陈述（所言）不属不义便不应受到惩罚。
 
 167) Wahrlich, alles was in den Himmeln (Universum) und auf den Erden (Welten/Planeten) erschaffen ist, ist die Verrichtung (Werk) der Erzeugung (Schöpfung), so auch ihre Gesetze und Gebote, durch die ihr im Dasein beschützt seid, wenn ihr ihnen Hinlänglichkeit (Genüge) gebt; und ihr empfangt die Lehre der Wahrheit, die Lehre des Geistes, die Lehre des Lebens durch die wahren Propheten, wodurch ihr die Lehre der Gesetze und Gebote der Erzeugung (Schöpfung) erfahrt, auf dass ihr euch ihr zuwendet und in der Wahrheit wissend (bewusst) seid, so ihr euch selbst genügt.
-确实，所有在天上（宇宙中）和地上（世界/行星上）被创造的一切，都是生成（创造）的作为，同样也是它们的法则和建议，通过它们，你们在存在中得到保护，只要你们给予它们足够的重视；并且你们通过真正的先知接受真理的教导，灵性的教导，生命的教导，通过这些教导，你们了解生成（创造）的法则和建议，以使你们转向它们并在真理中成为有知（自觉）的，只要你们自我满足。
+167) 诚然，诸天（宇宙）与大地（众世/行星）间一切被创造的存在，皆是创世（创造）的作为（造物），其法则和建议亦也是如此，当你们充分遵循时，便能在存在中受其护佑；你们通过真正先知领受真理教导、精神教导与生命教导，由此体悟创世（创造）之法则与建议的教诲，以使你们转向它们，并在真正真理中觉知，如此你们便能自我圆满。
 
 168) Durch die Wahrheit der Gesetze und Gebote der Urkraft (Schöpfung) sind die Himmel (Universum) und die Erden (Welten/Planeten) und alles Dasein erschaffen, auf dass ihr gegenwärtig (existent) seid und ihr euch der Pflicht der Entfaltung (Evolution) eurer Innenwelt (Bewusstsein) darbringen (widmen) mögt.
-通过原初力量（创造）的法则和建议的真理，天（宇宙）与地（世界/星球）以及一切存在被创造出来，使你们现在得以存在，并让你们致力于发展（进化）你们内心世界（意识）的责任。
-
-Translation Explanation:
-- "Urkraft" is translated as "原初力量（创造）" to convey the sense of a primal or fundamental force, often associated with creation.
-- "Schöpfung" is translated as "创造" to accurately reflect the act of creation.
-- "Himmel" and "Erden" are translated as "天" and "地" respectively, which are traditional Chinese terms for heaven and earth, often used to denote the universe and the world.
-- "Dasein" is translated as "存在" to mean existence or being.
-- "Innenwelt" is translated as "内心世界" to refer to the inner world or consciousness.
-- "Entfaltung" is translated as "发展" to mean development or evolution.
-- "Pflicht" is translated as "责任" to mean duty or responsibility.
-
-The translation aims to be faithful to the original text while maintaining clarity and cultural resonance in Chinese.
+168) 通过原初力量（创造）的法则和建议的真理，天（宇宙）与地（世界/星球）以及一切存在被创造出来，使你们现在得以存在，并让你们致力于履行展开（进化）你们内心世界（意识）的责任。
 
 169) So ihr wollt, könnt ihr euch selbst fortnehmen (fernhalten) vom Lernen der Wahrheitslehre, doch vermögt ihr nicht andere an eure Stelle zu setzen, die für euch dem Lernen der Wahrheitslehre und der Entfaltung (Evolution) eurer Innenwelt (Bewusstsein) Fülle (Genüge) geben (für euch lernen) könnten.
-如果你们愿意，你们可以自己远离真理教义的学习，但你们无法找到他人代替你们，为你们学习真理教义并发展你们的内在意识（意识）以满足你们的需求（为你们学习）。
+169) 如果你们愿意，你们可以自己远离真理教义的学习，但你们无法找到他人代替你们学习真理教义并发展你们的内在意识（意识）以满足你们的需求（替你们学习）。
 
 170) Wer unter euch den Lohn dieser Welt begehrt, der möge bedenken, dass der Lohn hienieden immer nach dem gemessen ist, wie eure Aufführung (Verhalten) und wie eure Taten und Worte gewertet werden.
-170) 你们中若有人渴望今世的报酬，应当知道，这报酬总是根据你们的行为、言行举止来衡量的。
+170) 你们中若有人渴望今世的报酬，应当知道，这报酬是根据你们的言行举止来衡量评估的。
 
 171) Und die unter euch, die ihr fest seid in der Wahrung (Bewahren) der Billigkeit (Gerechtigkeit), in der Rechtschaffenheit (Gewissenhaftigkeit) und in den Lauterkeiten (Tugenden), ihr seid Zeugen der Wahrheit selbst dann, wenn sie gegen euch selbst oder gegen eure Eltern und Geschwister oder gegen eure Kinder und Verwandten gerichtet ist.
-在你们中间，那些坚定维护公正、正直和纯洁的人，你们就是真理的见证者，即使这真理针对你们自己，或是针对你们的父母和兄弟姐妹，或是针对你们的子女和亲属。
+171) 你们中那些坚定守护（维护）公正（正义）、持守正直（尽责）与纯洁（美德）之人，你们就是真理的见证者，即使真理是针对你们自己，或针对你们的父母与兄弟姐妹，或针对你们的子女与亲属。
 
 172) Ob ihr Reiche seid oder Arme, wahrlich, ihr habt alle die gleichen Rechte und Pflichten und die Schuldigkeit (Verantwortung) in allen Dingen, die ihr immer tut; darum folgt nicht niederen Begierden (Lastern/Lüsternheiten/Süchten/Trieben), auf dass ihr imstande sein mögt, jederzeit und in allen Dingen nach Billigkeit (geziemend/angemessen/massvoll/gerecht) zu handeln; und wenn ihr die Wahrheit in irgendwelchen Dingen verhehlt (verheimlicht), sie verfälscht oder ihr ausweicht, dann bedenkt, dass sie zu ihrer Zeit ans Licht des Tages drängt und euch als Lügner und Verlästerer (Verleumder) oder als sich der Wahrheit Entziehende (Ausweichende) anklagt.
-无论是富人还是穷人，你们确实都拥有相同的权利和义务，在你们所做的一切事情中都有责任；因此，不要追随低级的欲望，以使你们能够随时以公正的方式行事；如果你们在任何事情中隐瞒、歪曲或逃避真相，那么请记住，真相终将在适当的时候显露出来，并指责你们为撒谎者、诽谤者或逃避真相的人。
+172) 无论你们是富足或贫困，在所有你们常行的事中都具有平等的权利与义务以及责任（义务）；因此不要屈从于低级欲望（恶习/贪欲/瘾癖/冲动），以使你们能够所有事务中始终在依循公正（得体/适当/适度/公正）行事；若你们在任何事务中隐瞒（隐匿）真理、歪曲真理或回避真理，须知，真理必将在适当的时候展露出来，指控你们撒谎与诽谤（诬蔑）或逃避（回避）真理的行径。
 
 173) Ihr alle, wendet euch den Gesetzen und Geboten der Urquelle aller Dinge (Schöpfung) zu, die euch gegeben sind durch die Lehre der wahrlichen Propheten, die sie euch offenbaren und die sie auch schon euren Vorvätern und Vormüttern (Ahnen/Vorfahren) offenbarten, auf dass ihr nicht in eurem Dasein irregeht und nicht Unrecht tut.
 你们所有人，都应当遵循那万物的原初之源（创造）所赐予的法则和建议，这些是通过真实的先知们的教义所启示给你们的，这些先知们也曾向你们的先祖们揭示过这些真理，以使你们在生存的道路上不会迷失，也不会行不义之事。
