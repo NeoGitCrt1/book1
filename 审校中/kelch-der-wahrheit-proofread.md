@@ -3062,7 +3062,6 @@ Semjase银星中心，2008年7月13日，3:21，比利
 147) 你们中若有人抗拒真理教导、精神教导、生命教导，尽管通向真正存在的正确道路已清晰显现，却仍追随真理之外的其他道路，这样的人必将踏上极为艰难的旅程，因其将在自身决定（抉择）中坠入自我创造的阴影世界（地狱），被其中火焰灼烧，而重返真理之路对其而言将比初次寻得真理时艰难七倍。
 
 148) Dereinst werden eure fernen Nachkommen euch nicht vergeben können, dass ihr die Lehre der Propheten und diese selbst missachtet und verlästert (verleumdet) und ihnen nach dem Leben trachtet; und also werden euch eure fernen Nachfahren (Kindeskinder usw.) nicht vergeben können, weil ihr sie durch eure falschen Lehren, eure falschen Propheten und eure Priester und sonstigen Götterdiener und Götzendiener in die Irre und fern der Wahrheit führt, weil eure falschen Lehren in fernste Zukunft greifen (gelangen/sich weitertragen) und dort Verleitung (Beeinflussung) schaffen für eure Gläubigkeit eurer Frömmigkeit (Religion), weil ihr nicht die Lehre der Gesetze und Gebote der Quelle allen Lebens (Schöpfung) befolgt, sondern fern davon dahinbebt (dahinsiecht) und der Quelle allen Lebens (Schöpfung) wesenlose (imaginäre) Götter und Götzen zur Seite stellt.
-终有一日，你们遥远的后代将无法原谅你们，因为你们蔑视并诽谤了先知的教诲及其本人，甚至企图加害于他们；因此，你们遥远的子孙将无法宽恕你们，因为你们通过错误的教义、虚假的先知、祭司以及其他侍奉和崇拜偶像之人将他们引入歧途，远离真理，因为你们的错误教义将深远地影响未来，在那里对你们的信仰和虔诚产生误导，因为你们并未遵循生命之源（创造）的法则和建议的教诲，反而远离其道，日益衰败，并在生命之源（创造）旁设立了虚幻的神祇和偶像。
 148) 终有一日，你们遥远的后裔将无法原谅你们轻视先知教导及先知本身、诽谤（诬蔑）他们并图谋其性命；也因此，你们遥远的子孙后代（子子孙孙等）将无法宽恕你们，因为你们通过错误教导、虚假先知、祭司及其他神仆与偶像崇拜者将他们引入歧途并远离真理，因为你们将错误教导延伸（传播/延续）至遥远未来并继续为你们的信仰与虔信（宗教）制造误导（影响），因为你们未遵循众生之源（创造）的法则与建议的教导，反而远离其道，日益衰败，且将虚无（想象）的神明与偶像与众生之源（创造）相提并论。
 
 149) Wahrlich, wer der Urquelle aller Weisheit (Schöpfung) erdichtete (erfundene) Götter oder Götzen oder erdichtete (erfundene) Beauftragte (Stellvertreter) oder andere zur Seite stellt, der geht fürwahr sehr weit irre; und wahrlich gibt es keine Götter oder Götzen, die Erschaffer (Schöpfer) der Himmel (Universum) und der Erden (Welten/Planeten) und Himmelslichter (Gestirne/Kometen/Planeten/Monde/Meteore/Sternschnuppen/Nebel) sein könnten, denn das Erschaffen aller Dinge in allen Himmeln (im Universum) und auf allen Erden (Welten/Planeten) gebührt allein der Urquelle aller Weisheit (Schöpfung), denn wahrlich, sie allein ist die Schaffenskraft (Energie) aller Dinge und das unmessbare Geheimnis.
@@ -3139,52 +3138,52 @@ Semjase银星中心，2008年7月13日，3:21，比利
 172) 无论你们是富足或贫困，在所有你们常行的事中都具有平等的权利与义务以及责任（义务）；因此不要屈从于低级欲望（恶习/贪欲/瘾癖/冲动），以使你们能够所有事务中始终在依循公正（得体/适当/适度/公正）行事；若你们在任何事务中隐瞒（隐匿）真理、歪曲真理或回避真理，须知，真理必将在适当的时候展露出来，指控你们撒谎与诽谤（诬蔑）或逃避（回避）真理的行径。
 
 173) Ihr alle, wendet euch den Gesetzen und Geboten der Urquelle aller Dinge (Schöpfung) zu, die euch gegeben sind durch die Lehre der wahrlichen Propheten, die sie euch offenbaren und die sie auch schon euren Vorvätern und Vormüttern (Ahnen/Vorfahren) offenbarten, auf dass ihr nicht in eurem Dasein irregeht und nicht Unrecht tut.
-你们所有人，都应当遵循那万物的原初之源（创造）所赐予的法则和建议，这些是通过真实的先知们的教义所启示给你们的，这些先知们也曾向你们的先祖们揭示过这些真理，以使你们在生存的道路上不会迷失，也不会行不义之事。
+173) 你们所有人，转向所有事物的原初之源（创造）的法则与建议，这些是通过真正先知的教导赋予你们的，先知们向你们启示这些法则，也早已向你们的先父与先母（祖先/先辈）启示过这些法则，以使你们在生存的道路上不会迷失，免行不义之事。
 
 174) Bedenkt, wenn ihr in der Wahrheit wissend (bewusst) werdet und hernach wieder davon abfallt, ihr dann aber ein zweites Mal wieder zur Wahrheit und ihrer Lehre findet und dann abermals von ihr abfallt, dann wird sich eure Unwissenheit derart über euch ergiessen, dass ihr nicht wieder zur Wahrheit zurückfindet, so ihr ohne Vergebung auf dem Weg des Verderbens einherwandelt, geleitet durch eure falschen Absichten (Gedanken) und Eindrücke (Gefühle).
-174) 要记住，如果你们在真理中变得有意识（觉醒），然后再次背离它，但第二次又找到真理及其教导，然后再次背离它，那么你们的无知将会如此泛滥，以至于你们将无法再次回到真理，如果你们在没有宽恕的情况下走在毁灭的道路上，被你们错误的意图（思想）和印象（情感）所引导。
+174) 当你们在真理中变得有知（觉知）而后背离真理，但又再次寻回真理及其教导却又背离真理时，若你们任由自己在没有宽恕的情况下行走在毁灭之路上，任由你们错误的意图（思想）与印象（感受）引导你们那泛滥的无知，那将使你们无法再回归真理。
 
 175) Wahrlich, jene unter euch, welche ihr Heuchler seid, ihr bestimmt euch selbst schmerzliche Strafe in eurem Innern (Wesen) und in eurer Artung (Psyche), denn Verstellung (Heuchelei) macht euch zu Verfemten (Geächteten/Ausgestossenen) unter Euresgleichen (Mitmenschen).
-175) 确实，你们中那些虚伪之人，你们在内心深处和心灵本质上为自己决定了痛苦的惩罚，因为虚伪使你们在同类（同胞）中成为被排斥和放逐之人。
+175) 诚然，你们中那些伪善之人，你们在自己内在（本质）与特性（心理）中为自己招致痛苦的惩罚，因为伪装（虚伪）使你们被同类（同胞）唾弃（被剥夺权利/被驱逐）。
 
 176) Und ihr unter euch, welche ihr Ungerechte (Verantwortungslose) und Unrechtschaffene (Gewissenlose) und Verdorbene (Tugendlose) zu euren Freunden nehmt, sucht ihr etwa Ehre unter ihren Händen (bei ihnen)?; doch bedenkt, wahrliche Ehre ist stets nur bei den Gerechten (Verantwortungsvollen) und Rechtschaffenen (Gewissenhaften) und bei den Unverdorbenen (Tugendhaften).
-在你们当中，那些与不公正（不负责任）、不正派（无良心）和堕落（无德）的人为友的，你们是否寻求在他们手中（在他们那里）获得荣誉？然而，你们要明白，真正的荣誉始终只存在于公正（负责任）、正派（有良心）和纯洁（有德）的人之中。
+176) 你们中那些将不公正的（不负责任的）与不正直的（无良知的）以及堕落者（无德者）当作友人之人，难道要在他们那里寻求荣誉吗？须知真正的荣誉永远只存于公正（负责任的）与正直（尽责的）且未堕落（有道德）的人之中。
 
 177) Ihr hört, dass euch die Lehre der Propheten gegeben ist, die Lehre der Gesetze und Gebote der Urkraft (Schöpfung), offenbart durch die wahrlichen Propheten, wie ihr es hört, doch ihr unter euch, welche ihr die Wahrheit nicht lernen wollt, sondern sie leugnet und verspottet, wahrlich, ihr wollt die Wahrheitslehre nicht hören, sondern ihr sitzt mit anderen Wahrheitslügnern und Spöttern zusammen und wollt mit ihnen nicht in eine Beratung (Gespräch) der Wahrheit übergehen, auf dass ihr der Wahrheit nicht kundig werden mögt.
-177) 你们听到，先知的教导已经赐予你们，那是原初力量（创造）的法则和建议的教导，通过真正的先知启示出来，正如你们所听到的。然而，你们中间那些不愿学习真理，反而否认和嘲笑真理的人，确实，你们不愿聆听真理的教导，而是与其他谎称真理的人和嘲笑者坐在一起，不愿与他们进行关于真理的商讨（对话），以免你们对真理有所了解。
+177) 你们通过真正先知的启示听闻了原初力量（创造）的法则与建议的教导；但你们中那些不愿学习真理、反而否认并嘲弄真理之人，你们中那些不愿聆听真理教导，而是与其他篡伪真理及嘲弄真理之人同坐，不愿与他们进行关于真理的商议（对话）之人，你们无法通晓真理。
 
 178) Die unter euch, welche ihr auf gute Nachrichten (Beurteilung) über euch selbst harrt, es wird euch kein Erfolg beschieden sein, wenn ihr nicht mit der Wahrheit einhergeht und euch nicht um sie bemüht, denn wahrlich, auch wenn ihr euch als Stärkere erweist im Dasein, ihr euch jedoch vor der Wahrheit schützt und sie nicht euch eigen werden lasst, so werdet ihr Verlierer sein und nur schlechte Nachrichten (Beurteilungen) über euch erhalten; wahrlich, ihr richtet über euch selbst und ihr werdet euch niemals die Möglichkeit geben, über euch selbst zu obsiegen, wenn ihr euch nicht einfügt (einordnet) in die wahrliche Wahrheit, wie diese gegeben ist durch die Gesetze und Gebote der Urquelle aller Billigkeit (Schöpfung).
-178) 你们中那些渴望得到关于自己的好消息（评价）的人，如果不与真理同行并不努力追求真理，你们将不会获得成功。因为，即使你们在存在中表现出更强大的力量，但如果你们保护自己远离真理，不让真理成为你们的一部分，那么你们将成为失败者，只会得到关于自己的坏消息（评价）。确实，你们在评判自己，如果你们不融入那真正的真理，如由一切公正的源头（创造）的法则和建议所给予的那样，你们将永远无法给予自己战胜自己的机会。
+178) 你们中那些渴望得到关于自己的好消息（评价）的人，如果不与真理同行并不努力追求真理，你们将不会获得成功。因为，即使你们在存在中表现出更强大的力量，但如果你们继续让自己远离真理，抗拒真理成为你们的一部分，那么你们终将失败，只会得到关于自己的坏消息（评价）。事实上，是你们自己决定了自己的命运，如果你们不融入（归入）那由一切公正的终极来源（创造）的法则和建议所给予的真正的真理，你们将永远无法给予自己战胜自己的机会。
 
 179) Die Heuchler unter euch, ihr sucht zusammen mit euren falschen Propheten und Priestern und mit sonstigen Gottesanbetern und Götzenanbetern Euresgleichen (Mitmenschen) zu täuschen und zu betrügen, so ihr sie zum Gebet an erdichtete (erfundene) Götter und Götzen und an Euresgleichen (Menschen) hinführt, die als Gottgleiche und Erhöhte (Erhabene) und als Beauftragte (Stellvertreter) der Götter und Götzen auftreten, doch mit eurer Täuschung und mit eurem Betrug und mit euren Gebeten (Anrufungen/Andachten) steht ihr nur da, auf dass euch die Euresgleichen (Menschen) sehen und ihr vor ihnen scheinen könnt, um sie zu verführen zur Unwahrheit, wobei ihr selbst der Wahrheit mit keinem Stäubchen Gewicht gedenkt.
-179) 你们中的伪善者，你们与你们的假先知和祭司以及其他敬拜神和偶像的人一同寻求欺骗和欺诈你们的同类（同胞），你们引导他们向虚构的（发明的）神和偶像以及人类（人）祈祷，这些同类以神的形象和崇高者（至高者）以及神和偶像的使者（代表）出现，然而你们的欺骗和欺诈以及你们的祈祷（呼唤/崇拜）只是为了让人看到你们，以使在他们面前显得光鲜，引诱他们走向虚假，而你们自己对真理却丝毫不加考虑。
+179) 你们中的伪善者，你们与你们的假先知和祭司以及其他敬拜神和偶像的人一同寻求欺骗和欺诈你们的同类（同胞），你们引导他们向虚构的（发明的）神和偶像以及人类（人）祈祷，这些同类以神的形象和崇高者（至高者）以及神和偶像的使者（代表）出现，然而你们的欺骗和欺诈以及你们的祈祷（呼唤/崇拜）只是为了让人看到你们，以使你们在他们面前显得光鲜，引诱他们走向虚假，而你们自己对真理却丝毫不加思考。
 
 180) Wahrlich, viele sind unter euch, die ihr hin und her schwankt zwischen der Wahrheit und der Unwahrheit und zwischen dem und jenem, und weder zur Wahrheit noch zur Unwahrheit ge hörend, so euch immer droht, dass ihr euch selbst ins Verderben gehen lasst, weil ihr nicht den Weg zur Wahrheit und zur Dinglichkeit (Wirklichkeit/Realität) findet.
-180) 确实，你们当中有许多人，在真理与谬误之间、在此与彼之间摇摆不定，既不归属于真理，也不归属于谬误，你们总是面临着自我毁灭的危险，因为你们找不到通往真理和现实（Wirklichkeit/Realität）的道路。
+180) 确实，你们当中有许多人，在真理与伪理之间、在此与彼之间摇摆不定，既不归属于真理，也不归属于伪理，以致你们始终面临放任自身陷入沉沦的威胁，因为你们找不到通往真理与实在（现实/真实）的道路。
 
 181) Alle unter euch, ihr könnt euch einen offenkundigen Beweis der Wahrheit nur vor euch selbst geben, aus eurem Innern (Wesen) heraus, wenn ihr die Wahrheit durch eure eigene Ausfragerei (Suchen/ Forschen) in euch selbst findet, was jedoch nur von Richtigkeit sein wird, wenn ihr euch fernhaltet vom Glauben (Vermutungen) an Götter und Götzen, wie er euch durch die Frömmigkeit (Religion) und deren Priester und sonstigen Diener im Irrtum und in Verführung berufen (eingeredet) wird.
-181) 你们所有人，只有通过你们自己，从你们的内心（本质）出发，才能给予自己一个显而易见的真理证明，如果你们通过自己的探询（寻找/研究）在自身中找到真理，然而，这只有在你们远离对神明和偶像的信仰（假设）时才是正确的，这种信仰是通过虔诚（宗教）及其祭司和其他仆人在错误和误导中被灌输给你们的。
+181) 你们所有人，唯有通过自身的自问自探（寻求/探究）在自我内在（本质）中找到真理时，才能向自身提供一个真理的显明证据；但唯有当你们远离对神祇与偶像的信仰（臆测）时，远离那些通过虔诚（宗教）及其祭司与其他沉溺在谬误与诱骗中的仆从所灌输（植入）于你们的信仰时，才能探寻到正确的真理。
 
 182) Wahrlich, die ihr Heuchler unter euch seid, ihr schafft sonder (ohne) Zweifel in euch einen tiefen Feuergrund, in dem ihr euch verbrennt, wobei ihr keine Helfer findet, die euch aus der Glut erretten.
-确实，你们这些在你们中间伪善的人，无疑在你们自己心中创造了一个深深的火坑，在那里你们将被焚烧，却找不到任何帮助者来将你们从烈火中拯救出来。
+182) 事实上，你们中那些伪善者之人，无疑在自己心中制造出了深深的火坑，你们在其中焚烧自身，却找不到任何救助者将你们从炽焰中拯救。
 
 183) Doch ihr unter euch, die ihr bereut und euch bessert und ihr euch von eurer Verstellung (Heuchelei) abwendet und lernt, euch aufrichtig an der Wahrheit und ihrer Lehre festzuhalten, ihr gehört zu jenen, welche in sich selbst einen guten Lohn erhalten, weil in ihnen Freude und Glück und also Liebe, Gleichstimmung (Harmonie) derzeitlich (gegenwärtig) ist; und ihr unter euch, welche ihr aufrichtig und wissend (bewusst) in der Wahrheit seid, ihr verbreitet (gebt) euren guten Lohn der Liebe und Gleichstimmung (Harmonie), der Freiheit und des Friedens auch Euresgleichen (Mitmenschen), wodurch euch neuer guter Lohn gewährt wird.
-然而你们中间那些悔改并改进自己、摒弃虚伪（伪善）并学会真诚地坚持真理及其教导的人，你们属于那些在自身中获得善报的人，因为在他们心中有喜乐和幸福，也就是爱与和谐的存在；而你们中间那些真诚且自觉地在真理中的人，你们将爱与和谐、自由与和平的善报也传播给你们的同类（他人），从而获得新的善报。
+183) 然而你们中那些悔过并改正自身、摒弃虚伪（伪善）并诚挚学习坚守真理及其教导的人，你们内在就拥有了善果，因为你们内心在当下（现时）存在着喜悦与幸福，拥有着爱与协调（和谐）；你们中那些真诚并有知（觉知）于真理之人，你们也将自身关于爱与协调（和谐）、自由及和平的善果传播（给予）向他人，由此新的善果又会回向于你们。
 
 184) Und bedenkt der Wahrheit der Gesetze und Gebote der Urkraft (Schöpfung) und dass von ihr aus keine Strafen hervorgehen, so ihr dankbar sein und selbst auch keine Strafen erheben sollt, so weder wider euch selbst noch wider Euresgleichen (Mitmenschen); also anerkennt die Gesetze und Gebote der Urkraft (Schöpfung), denn allein sie sind der Billigkeit (Gerechtigkeit) und der wahrlichen Liebe eingeordnet, entgegen den Gesetzen und Geboten, die ihr euch selbst macht und dadurch Gewalttätigkeit (Folter) und Töten (Todesstrafe), wie aber auch Rache und Vergeltung und Schlacht (Krieg) fordert, was umfassend des Unrechtens ist.
-184) 要思考原初力量（创造）的法则和建议的真理，并认识到它不会产生惩罚，因此你们应当感恩，并且自己也不应施加惩罚，无论是针对自己还是同类（他人）；因此，承认原初力量（创造）的法则和建议，因为只有它们符合公平（正义）和真正的爱，与你们自己制定的法则和建议相反，这些法则和建议要求暴力（酷刑）和杀戮（死刑），以及复仇、报复和战争（战争），这些都是广泛的不义行为。
+184) 要思考原初力量（创造）的法则和建议的真理，并认识到其中不会产生任何惩罚，因而你们应当心怀感恩，并且你们也不应向自己或者他人施加惩罚；因此要承认原初力量（创造）的法则和建议，唯独它符合正义（公正）和真实之爱，你们自行制定那些的法则和建议因为要求诉诸暴力（酷刑）与杀戮（死刑），以及复仇与报复与厮杀（战争），这些都是彻底的不义之举。
 
 185) Es widerspricht der Wahrheit der Gesetze und Gebote der Quelle allen Daseins (Schöpfung) und also der wahrlichen Lehre der Propheten, wenn ihr Unrecht tut, wenn ihr stehlt und raubt, wenn ihr plündert und lügt und betrügt, wenn ihr verlästert und verleumdet, wenn ihr Gewalttätigkeit (Folter) oder andere Gewalt und das Töten als Strafe und in Schlachten (Kriegen) oder sonstwie unter euch betreibt.
-185) 如果你们行不义之事，如果你们偷窃和抢劫，如果你们掠夺和撒谎欺骗，如果你们诽谤和中伤，如果你们在你们中间施行暴力（酷刑）或其他暴力，以及将杀戮作为惩罚或在战斗（战争）或其他情况下进行，那么这就违背了所有存在之源（创造）的法则和建议的真理，也违背了先知们的真实教导。
+185) 如果你们行不义之事，如果你们偷窃和抢劫，如果你们掠夺和撒谎欺骗，如果你们诽谤和中伤，如果你们在你们中间施行暴力（酷刑）或其他暴力，以及将杀戮作为惩罚或在战斗（战争）或其他情况下进行，那么这就违背了所有存在之源（创造）的法则和建议的真理，也违背了真正先知们的教导。
 
 186) Und es ist des Unrechtens, wenn ihr offen (öffentlich) oder im geheimen unziemliche Reden führt, ob ihr nun im Recht oder im Unrecht seid, denn dem Wort und der Rede gebührt nur Würde angemessener Ziemlichkeit (Schicklichkeit/Angemessenheit).
-186) 无论是公开还是私下，若你们进行不当的言论，无论你们是对是错，这都是不公正的。因为言辞和言语应当体现适当的尊严和得体（适当性/得体性）。
+186) 无论你们处于正义或非正义的立场，若公开或私下发表不当言论，都是不义之举，因为言语和谈吐理应保持合乎尊严的得体（恰当/适度）。
 
 187) Geschieht unter euch einem Unrecht, dann erhebt das Wort für ihn in Wahrheit und Billigkeit (Gerechtigkeit), doch lasst euch nicht nieder zu unziemlichen Worten und Reden für ihn, denn sie sind nicht nur der Würde ungebührlich (unangebracht/unangemessen), sondern sie bringen auch Schaden für den, dem Unrecht getan wird.
-187) 如果你们中有人遭受不公，那么请以真理和公正为他发声，但不要沉溺于不适当的言辞和言论，因为这些不仅损害尊严，还会给受不公的人带来伤害。
+187) 如果你们中有人遭受不公，那么请以真理和公正为他发声，但不要沉溺于不适当的言辞和言论，因为这些不仅损害尊严，还会给遭受不公的人带来伤害。
 
 188) Ob ihr eine gute Tat kundtut oder sie verbergt, das sei eure Haltung; doch besser ist, gute Taten im geheimen zu tun, um euch nicht vor Euresgleichen (Mitmenschen) zu dünken (zu scheinen/ sich zu erheben), denn wahrlich, gute Taten im geheimen zu tun ist voll der Güte und Würde, doch das Kundtun der guten Tat nimmt deren Wert und die Ernsthaftigkeit.
-188) 无论你们公开善行还是隐藏它，这都是你们的态度；但最好在暗中行善，以免在同类面前显得自大，因为确实，暗中行善充满了善良和尊严，而公开善行则减少了其价值和严肃性。
+188) 无论你们公开善行还是隐藏它，这都是你们的态度；但最好在暗中行善，以免在同类面前显得自大，因为实际上，暗中行善充满了善良和尊严，而公开善行则减少了其价值和严肃性。
 
 189) Werdet ihr durch eine böse Tat oder durch Nachrede (Verleumdung) zu Schaden gebracht, dann vergebt dem Übeltäter, auf dass in euch weder Hass noch Sucht nach Rache oder Vergeltung lebendig werden; so seid wahrlich die Tilger der Schandtaten (Verbrechen) jener, welche euch Schaden zufügen, euch belügen und betrügen oder euch verlästern (verleumden); seid nicht wie die Ungerechten (Verantwortungslosen), so ihr nicht Böses mit Bösem und Schaden mit Schaden vergeltet, auf dass ihr stets guter Ermahnung (Gewissen) seid und in Aufrichtigkeit euer Frohsein geniessen könnt.
 如果有人因恶行或诽谤而伤害了你们，你们要宽恕作恶者，以免心中滋生仇恨或复仇的欲望。这样，你们实际上就是那些伤害你们、欺骗你们或诽谤你们的人的罪行的消除者。不要像那些不负责任的人一样，以恶报恶，以伤害还伤害，这样你们才能始终保持良好的良知，并在真诚中享受你们的快乐。
