@@ -3186,53 +3186,38 @@ Semjase银星中心，2008年7月13日，3:21，比利
 188) 无论你们公开善行还是隐藏它，这都是你们的态度；但最好在暗中行善，以免在同类面前显得自大，因为实际上，暗中行善充满了善良和尊严，而公开善行则减少了其价值和严肃性。
 
 189) Werdet ihr durch eine böse Tat oder durch Nachrede (Verleumdung) zu Schaden gebracht, dann vergebt dem Übeltäter, auf dass in euch weder Hass noch Sucht nach Rache oder Vergeltung lebendig werden; so seid wahrlich die Tilger der Schandtaten (Verbrechen) jener, welche euch Schaden zufügen, euch belügen und betrügen oder euch verlästern (verleumden); seid nicht wie die Ungerechten (Verantwortungslosen), so ihr nicht Böses mit Bösem und Schaden mit Schaden vergeltet, auf dass ihr stets guter Ermahnung (Gewissen) seid und in Aufrichtigkeit euer Frohsein geniessen könnt.
-如果有人因恶行或诽谤而伤害了你们，你们要宽恕作恶者，以免心中滋生仇恨或复仇的欲望。这样，你们实际上就是那些伤害你们、欺骗你们或诽谤你们的人的罪行的消除者。不要像那些不负责任的人一样，以恶报恶，以伤害还伤害，这样你们才能始终保持良好的良知，并在真诚中享受你们的快乐。
+189) 若你们因恶行或诽谤（诬陷）遭受损害，当宽恕作恶者，以免心中滋生仇恨或报复之念；如此你们才能真正消除那些伤害你们、欺骗你们或诋毁（诽谤）你们之人的恶行（罪行）；勿效仿不公正者（不负责任者），勿以恶报恶、以损还损，方能常存善念（良知），并能在正直中享受你们的喜乐。
 
 190) Und wahrlich, jene unter euch, welche ihr einen Unterschied macht zwischen der wahrlichen Lehre der Propheten, die da ist die Lehre der Gesetze und Gebote der Urquelle (Schöpfung) und dem Dasein (Leben), ihr begreift nicht die Wahrheit und findet nicht den Weg zu ihr, weil ihr einen Weg zwischendurch (Mittelweg) einschlagen möchtet.
-190) 确实，你们中那些在真正先知教导（即源自创造源头的法则和建议的教导）与存在（生命）之间做出区分的人，你们未能理解真理，也找不到通往真理的道路，因为你们试图走一条中间道路（折中之道）。
+190) 事实上，你们中那些将先知们的真实教导——即原初之源（创造）的法则和建议的教导——与存在（生命）割裂对待的人，你们并未领悟真理，也无法找到通往真理的道路，因为你们试图走一条折中之路（中间路线）。
 
 191) Doch wahrlich, die ihr einen Weg zwischendurch (Mittelweg) gehen möchtet, ihr bereitet in euch selbst schmählich Freudlosigkeit, denn es gibt keinen Weg zwischendurch (Mittelweg), zwischen der wahrlichen Wahrheit und der unwahrlichen Unwahrheit.
-然而，确实如此，你们若想走一条中间道路，你们在自身中便预备了可悲的无喜乐，因为在真实之真理与非真实之非真理之间，并无中间道路可走。
-
-（注：这段文字强调了在真理与非真理之间不存在妥协的中间道路，任何试图走中间道路的行为都只会导致内心的无喜乐。）
+191) 然而事实上，那些试图走折中之路（中间路线）的人，你们在自己内心种下了可悲的苦闷，因为在真实真理与虚假伪理之间，根本不存在什么折中之路（中间路线）。
 
 192) Die unter euch, welche ihr wissend (bewusst) seid um die Wahrlichkeit der Urquelle (Schöpfung) und um die Wahrlichkeit der Propheten und ihre Lehre, ihr strebt der Wahrheit und der Billigkeit (Gerechtigkeit) nach; und also macht ihr unter Euresgleichen (Menschen) keinen Unterschied als Geschöpf (Mensch), sondern nur in deren Gebaren (Verhalten).
-192) 你们中那些知晓真相原初之源（创造）和先知及其教导真相的人，你们追求真理和公正（正义）；因此，你们在人类（人）中不以造物（人）区分，而仅以他们的行为（行为）来区分。
-
-这段翻译力求忠实于原文的内容与意图（信），同时确保译文通顺易懂，表达清晰（达），并追求译文的文化审美和语言的优美（雅）。
+192) 你们中那些知晓（自觉）原初之源（创造）之真实真理以及先知之真实真理及其教导者，你们追求真理与公正（正义）；因此你们同为被造之物（人），不应有高下之分，而仅可依据其行为（举止）来评判一个人。
 
 193) Und wahrlich, die ihr gerecht seid zu Euresgleichen (Menschen) als Geschöpfe (Menschen), ihr erhaltet dafür in euch selbst guten Lohn der Liebe Euresgleichen (Menschenliebe/Nächstenliebe).
-193) 诚然，你们若以公正对待人类（人）作为造物（人类），你们将因此在自己内心获得同类之爱（人类之爱/邻人之爱）的善报。
+193) 诚然，你们若以公正对待同为造物（人类）的他人，你们将因此在自己内心获得同类之爱（人类之爱/邻人之爱）的良善回报。
 
 194) Schon lange vor eurer Zeit haben viele eurer Vorväter und Vormütter (Ahnen/Vorfahren) von den wahrlichen Propheten gefordert, dass sie euch die Schrift ihrer Lehre der Wahrheit, der Lehre des Geistes, der Lehre des Lebens geben sollen, auf dass sie diese immer wieder vor Augen hätten; und wahrlich, mehrere der wahrlichen Propheten aus der Linie des Nokodemion, dem Urvater der Wahrheitslehre, auserlesen (suchen) unter euch Schreibkundige, auf dass diese die Lehre der Wahrheit, die Lehre des Geistes, die Lehre des Lebens in einer Niederschrift für alle kommende Zeit und für alle Nachfahren (Kindeskinder usw.) ordnen (festhalten) sollen; doch wahrlich, über alle Zeit hinweg verfälschen und verlästern (verleumden) alle beauftragten Schreibkundigen die Wahrheitslehre der Propheten, auf dass alle Worte umgebogen (entstellt) und verschleiert (unkenntlich gemacht) werden; also war das aber schon früh vorhergesehen, so die beauftragten Schreibkundigen angeregt werden, die Lehre der Propheten getreulich zu berichten (niederzuschreiben), dem sie aber niemals Hingebung (Beachtung) bekunden (zollen); doch die Zuversicht wird erhalten, dass die Lehre doch noch von Gebarenstüchtigen (Gesinnungstüchtigen/Verantwortungsbewussten) unverschleiert (kenntlich/richtig) belassen (festgehalten) wird, obwohl derbezüglich nicht grosse Zuversicht gegeben ist, weil die Schreibkundigen steten Sinnes sind, ihre eigenen Ausdeutungen (Interpretationen) in die Schrift einzubringen und sie nach ihrem Gutbefinden zu gestalten; wahrlich, daher erging die Erwählung (Beschluss), dass die Niederschrift der Lehre der Propheten zur Neuzeit durch den wohl schreibkundigsten und letzten Propheten der Linie des Nokodemion geordnet (festgehalten) werde, in eigener Schrift und in einer Sprache des Durchschauens (Verstehens) für alle jene, welche den Weg zur Wahrheit suchen, auf dass sie ihn auch finden mögen.
-在你们时代之前很久，你们的许多祖先（祖先/先辈）就曾要求真正的先知们将他们的真理教导、精神教导、生命教导的文献交给你们，以使他们能够时常回顾这些教导；确实，从真理教导的始祖诺科德米翁(Nokodemion)（Nokodemion）的谱系中，许多真正的先知在你们中挑选了有书写能力的人，以使他们将真理教导、精神教导、生命教导整理成文，为所有未来时代和所有后代（子孙等）记录下来；然而，确实，随着时间的推移，所有被委任的书写者都篡改和诽谤了先知的真理教导，使得所有的话语都被扭曲和掩盖；因此，这早已被预见，即这些被委任的书写者会被激励去忠实地记录先知的教导，但他们从未真正奉献（关注）于这些教导；然而，信心依然存在，即这些教导仍会被行为端正（思想端正/有责任感）的人保持清晰（正确）地保存，尽管在这方面并没有太大的信心，因为书写者总是倾向于将自己的解释（诠释）加入文献中，并按照自己的意愿来塑造它；确实，因此，做出了选择（决定），即先知的教导将在新时代由诺科德米翁(Nokodemion)谱系中最有书写能力的最后一位先知亲自整理（记录），以他自己的文字和一种能够被所有人理解的洞察（理解）语言，以使那些寻求真理之路的人能够找到它。
+194) 在你们的时代很久之前，你们的祖先（前人）便要求真正先知们将真理教导、精神教导、生命教导的文书交给你们，以便他们能时常回顾这些教导；确实，来自真理教导始祖诺科德米翁世系的数位真实先知，在你们中拣选（寻找）有书写能力的人，委托他们为所有未来时代与后裔（子孙等）将真理教导、精神教导、生命教导编纂（记录）成文；然而，所有受委托的书写专家始终歪曲并诋毁（诽谤）先知的真理教导，致使所有话语被篡改（扭曲）和掩盖（面目全非）；此事早已被预见，即这些被委任的书写者会被激励去忠实地记录先知的教导，但他们从未真正奉献（关注）于这些教导；虽然因书写专家总意图将自身诠释（解释）植入文书，并按其偏好篡改先知的教导，先知们仍然相信真理的教导终将由品行端正者（有责任感者）清晰（正确）地保留（记录）下来；因此先知的真正教导最终由诺科德米翁先知一脉在新时代中最善书写的最后一位先知以他自己的母语和能够被所有人洞察（理解）的语言编纂（记录），以使那些寻求真理之路的人能够找到它。
 
 195) Bedenkt allezeit, dass keiner unter dem Volk ist, weder Mann noch Weib, wenn ihm eine Schrift aufgetragen (zum Niederschreiben gegeben) wird, im gegebenen Wort die Wahrheitslehre getreulich wiedergibt, weil es jeden drängt, seine eigenen Betrachtungen (Gedanken/Vorstellungen) und Ausdeutungen (Interpretationen) überdauern (verewigen) zu lassen, weshalb sie das ihnen angesagte (diktierte) Wort entweihen (verfälschen) und so nur Verlästerungen (Verleumdungen) und Lügen sowie Täuschungen und Entstellungen (Verfälschungen) als Herkommen (Überlieferung/Chronik) erhalten bleiben; das jedoch wird nicht so sein in der Neuzeit, denn der letzte Prophet aus der Linie des Nokodemion wird in umfassender Erfüllung seiner Ermahnungssache (Gewissenssache/Ehrensache/Pflicht) in eigener Schrift und ohne Entweihung (Verfälschung) die Lehre der Wahrheit der Gesetze und Gebote der Urquelle aller Liebe (Schöpfung) und also die Lehre der Wahrheit, die Lehre des Geistes, die Lehre des Lebens in vielen Niederschriften belassen (festhalten), auf dass alles von Beständigkeit sei.
-195) 永远记住，在民众中，无论是男人还是女人，当被赋予书写任务时，没有人能在所给予的言辞中忠实地再现真理的教义，因为每个人都渴望让自己的思考（思想/观念）和解释（诠释）永存，因此他们亵渎（歪曲）了被告知的（口述的）言辞，从而只留下诽谤（诬蔑）、谎言以及欺骗和歪曲（篡改）作为传统（传承/编年史）；然而，在新时代，这不会如此，因为来自诺科德米翁(Nokodemion)家族的最后一位先知将全面履行他的劝诫（良心/荣誉/职责），在自己的书写中，且无亵渎（歪曲），留下许多关于真理教义、精神教义、生命教义的书写，以确保一切持久不变。
+195) 总能想起那些过往，当有人受托（被赋予书写任务）将真理教导如实再现于所授之词时，民众中却无一人能做到，无论男女，因为每个人都渴望让自己的思考（思想/设想）及诠释（解释）永存（不朽），因此他们亵渎（歪曲）了告知所授（口述），只流传下了诋毁（诽谤）、谎言及欺骗与歪曲（篡改）；然而，在新时代，不会再有这样的事情发生，因诺科德米翁先知一脉最后的先知将以其母语，毫无偏差地，全面履行其劝诫（良心/荣誉/责任）的任务，将众爱始源（创造）的法则与建议的真理教导，以及真理教导、精神教导、生命教导以文稿的形式留存（记录），以确保这一切的教导恒久稳固。
 
 196) Und wahrlich, der letzte Prophet aus der Linie Nokodemions, er wird euch in ferner Zeit (ferne Nachfahren) die Lehre der Wahrheit, die Lehre des Geistes, die Lehre des Lebens offensichtlich (verständlich) machen, auf dass im Begreifen keine Zweifel mehr sein werden und ihr keine Götter und Götzen mehr zur Anbetung nehmt; die Zeichen (Wundersamkeiten/Beweise) des wahrlichen Propheten der Neuzeit werden von seinen Getreuen gesehen und erkannt (verstanden), so sie seine Zeichen (Beweise) und die Lehre in die Nachzeit (Zukunft) tragen werden, auf dass in ferner Zeit unter den Völkern (Menschheit) der Erde wahrliche Liebe und Freiheit wie auch Frieden und Gleichstimmung (Harmonie) werde.
-196) 确实，诺科德米翁(Nokodemion)家族的末代先知，他将在遥远的时代（遥远的后代）向你们显明（解释）真理的教义、精神的教义、生命的教义，以使在理解中不再有疑惑，你们也不再崇拜任何神祇和偶像；新时代真正先知的迹象（奇迹/证据）将被他的忠实信徒看到并认识（理解），他们将把这些迹象（证据）和教义传递到未来，以使在遥远的时代，地球上的各民族（人类）中能够实现真正的爱与自由，以及和平与和谐。
+196) 确实，诺科德米翁一脉最后的先知，他将在遥远时代（后世）使真理教导、精神教导、生命教导明晰呈现（易懂），使理解中再无怀疑，使你们不再崇拜诸神与偶像；新时代真正先知的迹象（奇迹/证据）将被其忠实追随者看见并辨识（理解），他们将携其迹象（证据）与教导进入未来（未来），以使地球诸民族（人类）在遥远时代得获真正的爱与自由，以及和平与协调（和谐）。
 
 197) Und der wahrliche Prophet der Neuzeit, er wird hoch oben auf dem Berg wohnen, der dem Schuh eines Pferdes (Huf) gleichen wird, und er wird die Zeichen (Beweise) des Friedens, der Freiheit, der Liebe und Gleichstimmung (Harmonie) und die Lehre der Wahrheit, die Lehre des Geistes, die Lehre des Lebens über die ganze Erde hinaustragen, auf dass seine Zeichen (Beweise/ Wundersamkeiten) und die Lehre allen Euresgleichen (Menschheit) deutlich werden und sie einen Bund (Vertrag) mit der Wahrheit der Gesetze und Gebote der Urquelle aller Weisheit (Schöpfung) herleiten (schliessen).
 197) 而新时代的真正先知，他将居住在高山之巅，那座山形似马掌（马蹄），他将把和平、自由、爱与和谐（协调）的征兆（证据）以及真理的教义、精神的教义、生命的教义传遍整个地球，使他的征兆（证据/奇迹）和教义对你们所有人（人类）都变得清晰明了，并与一切智慧的源头（创造）的法则和建议的真理缔结契约（协议）。
-
-翻译说明：
-1. "wahrliche Prophet der Neuzeit" 译为 "新时代的真正先知"，力求准确传达原文的宗教和预言色彩。
-2. "Huf" 译为 "马蹄"，保持了原文的比喻形象。
-3. "Zeichen (Beweise)" 译为 "征兆（证据）"，根据上下文选择了更合适的翻译。
-4. "Gleichstimmung (Harmonie)" 译为 "和谐（协调）"，根据上下文选择了更合适的翻译。
-5. "Lehre der Wahrheit, die Lehre des Geistes, die Lehre des Lebens" 译为 "真理的教义、精神的教义、生命的教义"，保持了原文的宗教和哲学色彩。
-6. "Euresgleichen (Menschheit)" 译为 "你们所有人（人类）"，根据上下文选择了更合适的翻译。
-7. "Bund (Vertrag)" 译为 "契约（协议）"，根据上下文选择了更合适的翻译。
-8. "Urquelle aller Weisheit (Schöpfung)" 译为 "一切智慧的源头（创造）"，根据上下文选择了更合适的翻译。
-
-整体翻译力求忠实于原文的内容与意图，同时保持译文的通顺易懂和语言优美。
+197) 确实，新时代的真正先知，他将居于形似马掌（马蹄）的高山之上，并将和平、自由、爱与协调（和谐）的迹象（证据）以及真理教导、精神教导、生命教导传遍整个地球，使他的迹象（证据/奇迹）与教导为所有人类（人类）所明了，并与诸智之源（创造）的法则及建议之真理缔结契约（协定）。
 
 198) Tretet ein zur Wahrheitslehre durch das Tor der Erkenntnis, auf dass ihr nicht weiterhin die Gesetze und Gebote der Urquelle allen Daseins (Schöpfung) missachtet und übertretet; also sollt ihr einen Bund (Vertrag) mit der Wahrheit schliessen und in allen Dingen des Rechtens tun.
-198) 通过知识之门进入真理的教义，以免你们继续无视和违背一切存在之源（创造）的法则和建议；因此，你们应与真理立约（合同），并在所有事情中行正义。
+198) 通过认知之门步入真理教导，使你们不再轻视与违背众生之源（创造）的法则及建议；因此你们当与真理缔结契约（协定），在一切正当之事中践行。
 
 199) Geht einen Bund (Vertrag) ein mit der Wahrheit und brecht ihn nicht, wie es eure Vorväter und Vormütter (Ahnen/Vorfahren) getan und die Zeichen (Beweise) der Wahrheit der Urquelle allen Daseins (Schöpfung) verleugnet haben, wobei sie widerrechtlich die Lehre der Propheten verlästerten (verleumdeten) und sie zu töten suchten; wahrlich, seid nicht wie sie, welche ihr Wohlwollen in Hüllen gewickelt (verkommen liessen) und ihren Bedacht (Verständnis) versiegelt hatten.
-199) 与真理订立契约，不要像你们的祖先那样背弃它，他们否认了万物之源（创造）的真理迹象，非法诽谤先知的教导，并试图杀害他们；诚然，不要像他们那样，将善意包裹在腐朽中，并将他们的理解封闭起来。
+199) 与真理订立契约（协定），不要再像你们祖先（先人）那样背弃它，不要再像你们祖先（先人）那样否认众生之源（创造）真理的迹象（证据），不要再像你们祖先（先人）那样诋毁（诽谤）先知的教导并图谋杀害先知；切勿再效仿他们，将善意与仁慈草率地忽视掉（任其腐坏），并将自己对真理的思考与理解封闭起来。
 
 200) Brecht nicht den Bund (Vertrag) mit der Wahrheit der Gesetze und Gebote der Urquelle allen Daseins (Schöpfung), wenn ihr ihn geschlossen habt, auf dass ihr nicht wieder die Zeichen (Beweise) der Wahrheit falsch zu deuten beginnt und ihr wieder des Unwissens werdet und ihr euch nicht wieder Göttern und Götzen zuwendet.
 不要破坏与万物之源（创造）的法则和建议的真理所立的约（契约），一旦你们立下此约，以免你们再次开始错误地解读真理的迹象（证据），再次陷入无知，再次转向诸神和偶像。
