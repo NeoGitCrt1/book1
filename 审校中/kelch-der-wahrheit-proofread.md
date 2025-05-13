@@ -3217,31 +3217,31 @@ Semjase银星中心，2008年7月13日，3:21，比利
 198) 通过认知之门步入真理教导，使你们不再轻视与违背众生之源（创造）的法则及建议；因此你们当与真理缔结契约（协定），在一切正当之事中践行。
 
 199) Geht einen Bund (Vertrag) ein mit der Wahrheit und brecht ihn nicht, wie es eure Vorväter und Vormütter (Ahnen/Vorfahren) getan und die Zeichen (Beweise) der Wahrheit der Urquelle allen Daseins (Schöpfung) verleugnet haben, wobei sie widerrechtlich die Lehre der Propheten verlästerten (verleumdeten) und sie zu töten suchten; wahrlich, seid nicht wie sie, welche ihr Wohlwollen in Hüllen gewickelt (verkommen liessen) und ihren Bedacht (Verständnis) versiegelt hatten.
-199) 与真理订立契约（协定），不要再像你们祖先（先人）那样背弃它，不要再像你们祖先（先人）那样否认众生之源（创造）真理的迹象（证据），不要再像你们祖先（先人）那样诋毁（诽谤）先知的教导并图谋杀害先知；切勿再效仿他们，将善意与仁慈草率地忽视掉（任其腐坏），并将自己对真理的思考与理解封闭起来。
+199) 与真理订立契约（协定），不要再像你们祖先（先人）那样背弃它，不要再像你们祖先（先人）那样否认众生之源（创造）真理的迹象（证据），不要再像你们祖先（先人）那样诋毁（诽谤）先知的教导并图谋杀害先知；切勿再效仿他们，草率地将善意与仁慈忽视掉（任其腐坏），并封闭起自己对真理的思考与理解。
 
 200) Brecht nicht den Bund (Vertrag) mit der Wahrheit der Gesetze und Gebote der Urquelle allen Daseins (Schöpfung), wenn ihr ihn geschlossen habt, auf dass ihr nicht wieder die Zeichen (Beweise) der Wahrheit falsch zu deuten beginnt und ihr wieder des Unwissens werdet und ihr euch nicht wieder Göttern und Götzen zuwendet.
-不要破坏与万物之源（创造）的法则和建议的真理所立的约（契约），一旦你们立下此约，以免你们再次开始错误地解读真理的迹象（证据），再次陷入无知，再次转向诸神和偶像。
+200) 同众生之源（创造）法则与建议之真理的契约（协定）若已缔结，切勿背弃，以免你们再次错误解读真理的迹象（证据），再次陷入无知，并再次转向诸神与偶像。
 
 201) Auf dass ihr wissend (bewusst) in der Wahrheit sein mögt, sollt ihr euch abwenden von euren Göttern und Götzen und von euren Priestern und sonstigen Götzendienern und Götterdienern, die allesamt wider die Wahrheit der Gesetze und Gebote der Urkraft (Schöpfung) und wider die wahrlichen Propheten und ihre Lehre Verlästerungen (Verleumdungen) aussprechen.
-为了使你们能够在真理中觉醒，你们应当远离你们的众神和偶像，以及你们的祭司和其他拜偶像者和神仆，他们全都违背了原初力量（创造）的法则和建议的真理，并对真正的先知及其教义进行诽谤。
+201) 为了使你们能够在真理中觉醒，你们应当远离你们的众神和偶像，以及你们的祭司和其他拜偶像者与神仆，他们全都违背了原初力量（创造）的法则和建议的真理，并对真正的先知及其教义进行诽谤。
 
 202) Wahrlich, jene unter euch, welche ihr betreffend der wahrlichen Wahrheit und ihrer Lehre uneins und im Zweifel seid, ihr habt keine wahrhaftige (unverfälschte) Kunde von der Wahrheitslehre, sondern ihr folgt bloss einer Denkbarkeit (Vermutung), und diese könnt ihr nicht in Gewissheit begeben (umsetzen).
-202) 诚然，你们中那些对于真实真理及其教义存在分歧和疑虑的人，你们并没有关于真理教义的真实（未经篡改）消息，而仅仅是跟随一种可想象性（推测），而这种推测你们无法转化为确定性。
+202) 诚然，那些对于真实真理及其教义存在分歧和疑虑的人，他们并没有掌握关于真理教义的真实（未经篡改）消息，而仅仅是跟随着一种臆测（猜测），且永远无法将其落实为确信之事。
 
 203) Ihr unter euch, welche ihr im Unrecht lebt und Böses tut und wider die Gesetze und Gebote der Urquelle (Schöpfung) lästert und verstösst, untersagt (verbietet) euch selbst euer falsches Tun und erlaubt euch nur das, was des Rechtens ist, auf dass ihr nicht weiterhin Abtrünnige von der Wahrheit bleibt und nur die reinen Dinge tut.
-在你们中间，那些生活在不义之中、行恶事、亵渎并违背原初之源（创造）之法则和建议的人，你们要自行禁止自己的错误行为，只允许自己行正义之事，以免继续背离真理，只做纯洁之事。
+203) 你们中那些行不义作恶事、诋毁并违背原初之源（创造）法则与建议的人，当自我禁止（戒除）错误行径，仅行正义之事，以免继续背离真理，而行纯粹之事。
 
 204) Und wenn ihr über die Wahrheit sprecht und sie lehrt, dann nehmt nicht Abgeltung (Bezahlung) dafür, denn es soll euch nicht erlaubt sein, die Wahrheitslehre zum Handel zu machen, wenn ihr sie den Unwissenden in der Wahrheit und also den Wahrheitssuchenden belehrt (unterrichtet); nehmt nur Abgeltung (Bezahlung) dafür, wenn sie euch aus Liebe und Güte in freier Gabe als Angebinde (Geschenk) gegeben wird, ohne dass ihr danach fordert; und also sollt ihr nur Abgeltung (Bezahlung) nehmen, um eure Belastung (Kosten) zu tilgen (begleichen), die euch anfallen, wenn ihr Schriften bereitet (anfertigt), wofür ihr selbst Abgeltung (Bezahlung) geben müsst; und die Abgeltung (Bezahlung) sei in dieser Weise des Rechtens, auf dass ihr nicht zu Schaden kommt und auf dass ihr die Lehre der Wahrheit, die Lehre des Geistes, die Lehre des Lebens weiter verbreiten mögt.
-204) 当你们谈论并教授真理时，不要为此收取报酬，因为当你们向那些在真理中无知、即寻求真理的人传授真理时，不应将真理教导变为交易；只有当报酬是出于爱和善意，作为无偿的礼物赠予你们，而你们并未索取时，你们才可接受；并且，你们只应接受报酬以抵消你们在准备（制作）文献时所产生的负担（费用），而这些文献本身需要你们支付报酬；报酬应以这种方式合理收取，以免你们受损，并为了使你们能够继续传播真理的教导、精神的教导、生命的教导。
+204) 当你们谈论并教授真理时，不要为此收取报酬，因为当你们向那些不明真理而寻求真理的人传授真理时，不应将真理的教导变为交易；只有当报酬是出于爱和善意，作为无偿的礼物赠予你们，而非你们索取时，你们才可接受；并且，你们只应接受报酬以抵消你们在准备（制作）文献时所产生的负担（费用），而这些文献本身需要你们支付报酬；报酬应以这种方式合理收取，以使你们免受损失，并为了使你们能够继续传播真理的教导、精神的教导、生命的教导。
 
 205) Und es sei nicht erlaubt, dass Wahrheitswissende als Lehrer zur Belehrung des Volkes für die Wahrheitslehre von ihrer Ansiedlung (Gemeinde) oder vom Volk (Staat) entlohnt werden, es sei denn, dass die nach Wahrheit Dürstenden freie Gaben als Angebinde (Geschenke) zuteilen (geben), auf dass die Belehrenden (Lehrkräfte) ihre Versorgung (Lebensunterhalt) behaupten (gerecht werden) mögen.
-205) 不允许真理的知晓者作为教师向民众传授真理时，由他们的定居地（社区）或人民（国家）支付报酬，除非那些渴望真理的人自愿赠送礼物，以使教导者（教师）能够维持他们的生计。
+205) 且知晓真理之人作为教师为民众传授真理教导之事，不可由其定居地（社群）或民众（国家）支付酬劳，除非渴求真理的人自愿馈赠礼品（礼物），以使传授者（教师）能维持生计（获得保障）。
 
 206) Und es sei des Rechtens, dass ihr falsche Propheten und Priester und sonstige Götterdiener und Götzendiener nicht entlohnt und ihnen auch keine Tempel (Gotteshäuser und Götzenhäuser) und keine Gebetshäuser baut, auf dass sie nicht mächtig über die Völker (Menschheit) werden und sie mit ihren falschen Lehren irreführen und ausplündern (ausbeuten); wahrlich, entlohnt ihr die falschen Propheten, die Priester und sonstigen Götteranbeter und Götzenanbeter, und baut ihr ihnen Tempel (Gotteshäuser/Götzenhäuser), dann greifen sie euch und machen euch zu ihren Glaubensknechten und stehlen euch euren Besitz und euren Wohlstand (Vermögen), denn ihre Arglist ist ohne Schranken (grenzenlos).
-206) 你们不应酬谢那些虚假的先知、祭司以及其他侍奉神和偶像的人，也不应为他们建造庙宇（神的居所和偶像的居所）和祈祷的场所，以免他们变得强大，误导并剥削人民（人类）通过他们的错误教义；确实，如果你们酬谢那些虚假的先知、祭司以及其他侍奉神和偶像的人，并为他们建造庙宇（神的居所/偶像的居所），那么他们将控制你们，使你们成为他们的信仰奴隶，并窃取你们的财产和财富（资产），因为他们的诡计是无止境的（无限的）。
+206) 你们不应酬谢那些虚假的先知、祭司以及其他侍奉神和偶像的人，也不应为他们建造庙宇（神的居所和偶像的居所）和祈祷的场所，以免他们变得强大，并通过他们的错误教义误导并剥削更多人民（人类）；实际上，如果你们酬谢那些虚假的先知、祭司以及其他侍奉神和偶像的人，并为他们建造庙宇（神的居所/偶像的居所），那么他们将控制你们，使你们成为他们的信仰奴隶，并窃取你们的财产和财富（资产），因为他们的诡计是无止境的（无限的）。
 
 207) Und belehrt (unterrichtet) unter euch eure Nachkommen in der Lehre der Gesetze und Gebote der Quelle aller Liebe (Schöpfung), der Lehre der Wahrheit, der Lehre des Geistes, der Lehre des Lebens, nachdem sie der Mutterbrust (dem Säugen) entwachsen sind, auf dass sie schon in jungem Alter wissend (bewusst) seien im Umgang mit den Gesetzen und Geboten der Quelle aller Liebe (Schöpfung) und mit den Gesetzen des Aussehens (Natur); aber es sei die Belehrung nur eine Belehrung, nicht jedoch ein Zwang, auf dass die Nachkommen in späterem Alter selbst entscheiden mögen, ob sie der Wahrheitslehre folgen mögen oder nicht.
-207) 当你们的后代断奶后，你们要在他们中间教导关于一切爱之源泉（创造）的法则和建议的教义，真理的教义，灵性的教义，生命的教义，使他们从幼年起就能在与一切爱之源泉（创造）的法则和建议以及外在（自然）法则的交往中有所认知（觉醒）；但教导应仅是教导，而非强迫，以使后代在成年后能够自行决定是否遵循真理的教义。
+207) 当你们的子女在断奶后，你们就可以教导他们关于众爱之源（创造）的法则和建议的教导，真理的教义，灵性的教义，生命的教义，使他们自幼便可以对众爱之源（创造）的法则与建议及显相（自然）的法则有所认知（觉醒）；但此教导仅为引导，而非强制，以使后代在成年后能自行决定是否追随真理教导。
 
 208) Und es sei des Rechtens, dass an besonderen Stätten des Lernens (Schulen) die Kinder nach freier Bestimmung (Entscheid) in der Lehre der Wahrheit, der Lehre des Geistes, der Lehre des Lebens belehrt (unterrichtet) werden; also sollen aber auch alle Anleitenden und Vorbereitenden (Erziehenden) darauf bedacht sein, die Kinder in der Wahrheitslehre anzuleiten (unterweisen), auf dass diese den wahren Weg zum Dasein (Leben) finden und ihn in Billigkeit (Gerechtigkeit) und Rechtschaffenheit (Gewissenhaftigkeit) wie auch im Wahrheitswissen und in allen Lauterkeiten (Tugenden) beschreiten und erfüllen (bewältigen) mögen.
 208) 并且法律规定，在特殊的学习场所（学校）中，孩子们应根据自由的决定（选择）在真理的教导、精神的教导、生命的教导中受到教育（指导）；因此，所有的引导者和预备者（教育者）都应致力于在真理教导中引导孩子们，以使他们找到存在的真正道路（生活），并在公平（正义）和正直（良知）中，以及在真理知识和一切纯洁（美德）中，行走并完成（掌握）这条道路。
