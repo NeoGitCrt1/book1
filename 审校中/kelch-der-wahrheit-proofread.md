@@ -3244,34 +3244,34 @@ Semjase银星中心，2008年7月13日，3:21，比利
 207) 当你们的子女在断奶后，你们就可以教导他们关于众爱之源（创造）的法则和建议的教导，真理的教义，灵性的教义，生命的教义，使他们自幼便可以对众爱之源（创造）的法则与建议及显相（自然）的法则有所认知（觉醒）；但此教导仅为引导，而非强制，以使后代在成年后能自行决定是否追随真理教导。
 
 208) Und es sei des Rechtens, dass an besonderen Stätten des Lernens (Schulen) die Kinder nach freier Bestimmung (Entscheid) in der Lehre der Wahrheit, der Lehre des Geistes, der Lehre des Lebens belehrt (unterrichtet) werden; also sollen aber auch alle Anleitenden und Vorbereitenden (Erziehenden) darauf bedacht sein, die Kinder in der Wahrheitslehre anzuleiten (unterweisen), auf dass diese den wahren Weg zum Dasein (Leben) finden und ihn in Billigkeit (Gerechtigkeit) und Rechtschaffenheit (Gewissenhaftigkeit) wie auch im Wahrheitswissen und in allen Lauterkeiten (Tugenden) beschreiten und erfüllen (bewältigen) mögen.
-208) 并且法律规定，在特殊的学习场所（学校）中，孩子们应根据自由的决定（选择）在真理的教导、精神的教导、生命的教导中受到教育（指导）；因此，所有的引导者和预备者（教育者）都应致力于在真理教导中引导孩子们，以使他们找到存在的真正道路（生活），并在公平（正义）和正直（良知）中，以及在真理知识和一切纯洁（美德）中，行走并完成（掌握）这条道路。
+208) 而且应当依法允许孩童在特殊学习场所（学校）依自由意愿（决定）接受真理教导、精神教导、生命教导的教诲（教学）；故所有指导者与教育筹备者（教育工作者）应专注于在真理教导中引导（教导）孩童，使其寻得真正通往存在（生命）的道路，并以公正（正义）与正直（尽责）的态度，在真理认知与一切纯粹品质（美德）中践行并实现（达成）。
 
 209) Ihr sollt eure Kinder belehren, auf dass sie im Wissen in allen Dingen des Daseins (Lebens) und in der Lehre der Wahrheit, der Lehre des Geistes, der Lehre des Lebens fest gegründet (gelehrt) sind, so also auch in den Dingen des Lebens, des Sterbens und des Todes, auf dass sie nicht am Leben zerbrechen und nicht ein Stäubchen Gewicht an Unsicherheit haben und ihnen grösster Lohn des Lebens gewährt sein möge.
-你们应当教导你们的孩子，使他们立足于所有存在（生命）事物的知识中，立足于真理的教导、精神的教导、生命的教导中，同样也立足于生活、死亡和死亡的事物中，使他们不会因生活而崩溃，不会有丝毫的不安，并希望他们能获得生命最大的奖赏。
+209) 你们应该教导你们的子女，从而使他们的成长是扎根（被教导）自存在（生命）的所有事物的知识中，真理教导、精神教导、生命教导的知识中，同样也在生命、垂暮与死亡的事物的知识中，使他们不会因生活崩溃，不会有一丝一毫的不安全感，并使他们在未来获得被授予生命最崇高的回报的可能性。
 
 210) Wahrlich, die Lehre der Wahrheit, die Lehre des Geistes, die Lehre des Lebens gründet (fundiert) in den Gesetzen und Geboten der Urquelle allen Lebens (Schöpfung), und sie ist erschaffen von Nokodemion, dem Urvater der Wahrheitslehre, und also offenbarten nach seinem Vergehen (Dahinscheiden) die wahrlichen Propheten aus seiner Linie über grosse Zeiten hinweg die Lehre stets neuerlich, auf dass unter allen Euresgleichen (Menschheit) wahrliche Liebe und Gleichstimmung (Harmonie), wie aber auch Frieden und Freiheit werde.
-210) 诚然，真理的教义、精神的教义、生命的教义皆基于一切生命之源（创造）的法则和建议，它由真理教义的始祖诺科德米翁(Nokodemion)所创立，因此在他逝世后，他的血统中的真正先知们跨越漫长时光，不断重新揭示这一教义，以使在你们人类（人）中实现真正的爱与和谐，以及和平与自由。
+210) 诚然，真理教导、精神教导、生命教导皆建立（奠基）于众生之源（创造）的法则和建议中，由真理教导的始祖诺科德米翁所创立，因此在他离世（逝去）后，继承他世系的真正先知们在漫长的岁月里不断重新开示这些教导，以使在所有人类（人）中实现真正的爱与协调（和谐），以及和平与自由。
 
 211) Die wahrlichen Propheten kamen seit längst vergangenen Zeiten zu euch, nebst anderen, die sich als falsche Propheten erhoben, Lehren der Unbegebenheit (Wirklichkeitsfremde) brachten und viele Frömmigkeiten (Religionen) begründeten, durch die vielerlei Ausübungen (Kulte) entstanden, die allesamt fern der Wahrheit der Gesetze und Gebote der Urkraft aller Dinge (Schöpfung) sind.
-211) 自古以来，真正的先知们就来到你们中间，同时也有其他自称是假先知的人，他们带来了与现实脱节的教义，并创立了许多虔诚的宗教，由此产生了各种远离万物原初之源（创造）的法则和建议真理的仪式。
+211) 真正先知们自远古时代就在你们中间，但同时还有其他“自封”为先知的人，他们带来无实性（脱离现实）的教导并建立众多信仰（宗教），通过这些形成各种仪轨（祭仪），如此种种皆远离了所有事物的原初力量（创造）的法则和建议的真理。
 
 212) Die wahrlichen Propheten sind seit alters her Bringer froher Botschaften durch die Lehre der Wahrheit, die Lehre des Geistes, die Lehre des Lebens, und also sind sie aber auch Warner und offenbaren Plagen (Elend/Not/Krieg/Kampf/Unglück usw.) und Verhängnis (Katastrophen/Zerstörung usw.) der kommenden Zeit, auf dass ihr deren bedenkt und euer Handeln und Wirken und euer Gebaren (Gesinnung) ändert und zum Guten führt, so die Dinge nicht eintreffen, die als drohende Plagen (Elend/Not/Krieg/Kampf/Unglück usw.) und Ungeschicke (böse Geschehen) und Verhängnis (Katastrophen/Zerstörung usw.) durch die wahrlichen Propheten als Warnung kundgetan (verkündet) werden.
-自古以来，真正的先知们通过真理的教导、精神的教导、生命的教导，带来喜讯，因此他们也是警告者，揭示未来的灾祸（苦难/困境/战争/斗争/不幸等）和厄运（灾难/毁灭等），以使你们能思考这些，并改变你们的行为、作为和态度（思想），导向善的方向，从而使那些作为威胁的灾祸（苦难/困境/战争/斗争/不幸等）、不幸事件（恶事）和厄运（灾难/毁灭等）不会发生，这些是通过真正的先知们作为警告所宣告的。
+212) 自古以来，真正的先知们通过真理的教导、精神的教导、生命的教导，带来善言，也为人们发出警告，揭示出未来的灾祸（苦难/困境/战争/斗争/不幸等）和厄运（灾难/毁灭等），以引发你们的思考并改变自己的行为与作为及举止（心性）并导向良善，这样那些被真正先知作为警示而宣告（预言）的威胁性灾祸（苦难/困厄/战争/争斗/灾祸等）、厄运（邪恶事件）与劫数（灾难/毁灭等）才不会发生。
 
 213) Die wahrlichen Propheten bezeugen durch ihre Offenbarungen, durch ihre Lehre, die sie euch bringen, und durch ihre Zeichen (Wundersamkeiten), die sie euch sehen lassen, dass allein die Wahrheit der Gesetze und Gebote der Erzeugung (Schöpfung) in Mächtigkeit (machtvoll) alles zu lenken vermag in allen Himmeln (Universum) und auf allen Erden (Welten/Planeten) und den Himmelslichtern (Gestirnen/Sonnen/Galaxien).
-真正的先知们通过他们的启示、他们带给你们的教义以及他们展示给你们的迹象（奇迹）来证明，唯有创造（宇宙）的法则和建议的真理拥有强大的力量，能够引导一切在所有的天界（宇宙）和所有的地球（世界/行星）以及天体（星辰/太阳/星系）中运行。
+213) 真正的先知们通过他们的启示、通过他们带给你们的教导以及通过他们展示的征兆（奇迹），证明唯有创世（创造）的法则和建议的真理拥有的伟力能够引导一切诸天（宇宙）与众地（世界/行星）及天体光辉（星辰/恒星/星系）。
 
 214) Ihr aber unter euch, welche ihr unwissend seid in allen Dingen der Wahrheitslehre, fürwahr, ihr seid weit abgeirrt, so ihr im Unwissen um die Wahrheit verharrt und Unrecht verübt, so ihr euch selbst nicht vergeben könnt noch auf den rechten Weg geleiten mögt.
-然而，在你们中间，那些对真理教导一无所知的人，确实，你们已经远远偏离了正道。如果你们在无知中坚持错误，行不义之事，如果你们既不能原谅自己，也不愿引导自己走上正确的道路，那么你们真的迷失了方向。
+214) 然而，在你们中间，那些对真理教导一无所知的人，实际上，你们已经远远偏离了正道。你们将继续无知地坚持错误，行不义之事，你们既不能原谅自己，也不愿引导自己走上正确的道路。
 
 215) Wahrlich, seid ihr Ungerechte (Verantwortungslose) und Unrechtschaffene (Gewissenlose) und Lauterkeitslose (Tugendlose), dann wandelt ihr auf dem Weg der Schattenwelt (Hölle), die in eurem Innern euch zerstört und euch in dessen Flammen verbrennt.
-诚然，若你们是不公正的（不负责任的）、不正直的（无良知的）以及不纯洁的（无德行的），那么你们将行走于阴影世界（地狱）之路，它将在你们内心摧毁你们，并在其火焰中焚烧你们。
+215) 诚然，若你们是不公正的（不负责任的）、不正直的（无良知的）以及不纯粹的（无德行的），那么你们将行走的路是阴影世界（地狱）之路，它将在你们内心摧毁你们，其火焰焚烧你们。
 
 216) Seid wissend (bewusst), dass die wahrlichen Propheten zu euch kommen, auf dass ihr der Wahrheit zugängig werdet und ihr zu unterscheiden vermögt, was des Guten und was des Bösen ist, und auf dass ihr euch selbst und Euresgleichen (Mitmenschen) nur Gutes tut und ihr euch fernhaltet von allem Übel, das ihr durch Hass und Rachsucht, durch Vergeltung und Eifersucht in Bösem zu tun vermögt.
-要知道，真正的先知来到你们中间，是为了使你们能够接触到真理，并能够分辨善恶，从而使你们自己和你们的同类（他人）只做善事，远离一切因仇恨、报复、嫉妒而可能做出的恶行。
+216) 要知道，真正的先知来到你们中间，是为了使你们能够接触到真理，并能够分辨善恶，从而使你们自己和你们的同类（他人）只做善事，远离一切因仇恨、报复、嫉妒而可能做出的恶行。
 
 217) Bedenkt allezeit der Wahrheit und der Gesetze und Gebote der Kraft aller Wirklichkeit (Schöpfung), und öffnet euer Ohr für die Lehre der Propheten, wie ihr auch ihren Zeichen (Wundersamkeiten) achten sollt, die sie tun, auf dass ihr die Wahrheit aller Wahrheit erkennt und nur ihr zugetan seid.
-217) 要时刻思考真理和所有现实（创造）力量的法则和建议，并敞开你们的耳朵聆听先知的教导，正如你们也应关注他们所行的奇迹，以使你们能认识一切真理中的真理，并唯独忠于它。
+217) 要始终谨记真实真理与所有现实力量（创造）的法则和建议，并要聆听先知们的教导，正如你们也应重视他们所示的征兆（奇迹），以使你们能认识所有真理中的真实真理，并只与真理保持联结。
 
 218) Und wenn ihr der Propheten gedenkt, dann achtet darauf, dass ihr sie nicht beleidigt, indem ihr sie den falschen Propheten und den Priestern von Göttern und Götzen gleichsetzt, denen ihr huldigt (Lobpreisung zollt), denn die wahrlichen Propheten dulden keine Huldigung (Lobpreisung/ Verherrlichung) und weisen solches Tun von sich; bedenkt, allesamt sind Götter und Götzen erdichtete (erfundene) Wesenlosigkeiten ohne Gepräge (Gehalt/Beschaffenheit/Inhalt), denen ebenso nicht gehuldigt werden soll wie auch nicht deren Priestern und sonstigen Dienern (Handlangern) irgendwelcher Götter und Götzen, also aber auch keinen anderen Euresgleichen (Menschen), wer und was und wie diese auch immer sein mögen.
 218) 当你们纪念先知时，请注意不要侮辱他们，将他们与你们所崇拜的假先知和神祇及偶像的祭司等同起来，因为真正的先知不容忍崇拜（赞美/颂扬），并拒绝这种行为；请记住，所有神祇和偶像都是虚构的虚无之物，没有实质（内容/内涵），因此不应向它们或它们的祭司及其他任何神祇和偶像的仆人表示崇拜，同样也不应向任何其他人表示崇拜，无论他们是谁、是什么、如何表现。
