@@ -2,7 +2,7 @@
 - 你需要翻译一些严肃的德文文本
 - 译文严格保持原文的分句结构
 - 在一些名词后有括号里的别称，这些名词和括号里的名词视为关键名词，关键名词需要经分析词源得到中文译文
-- 中文译文需要使用现代白话（直白），避免书面性的表达，避免典籍中的表达，不要过于口语，不要使用文言词汇
+- 中文译文需要使用现代白话（直白），避免书面性的表达，避免典籍中的表达，不要过于口语，不要使用文言词汇和语法，不要使用宗教化的用词
 - 最终得到的译文不要出现非中文文本
 - 前述关键名词需要在译文中以名词（别称）的形式展现
 - 除原文的标点符号以及对应的中文标点符号，不要添加多余的符号
@@ -11,6 +11,7 @@
 # 固定的名词翻译
 - urkräftigen (schöpferischen)  :  原初始动（创造性）
 - wahrlichen Wahrheit: 真实真理
+- Unwahrheit：伪理
 - Urquelle (Schöpfung) : 原初之源（创造）
 - Entstehung (Schöpfung) : 起源（创造）
 - Euresgleichen (Menschen): 人类（人）
@@ -36,16 +37,27 @@
 - Ursprungs：起源
 - Gesicht (Augen): 面容（视线）
 - Erbauung: 始筑
+- Erzeugenden：创生
 - Urkraft (Schöpfung): 原初力量（创造）
 - Ursprünglichen：原初
-- Weisheit: 智慧本源
+- Weisheit: 智慧
 - Einklang: 协调
 - Harmonie: 和谐
 - Formung: 造物
 - Nokodemion: 诺科德米翁
-- Daseins (Schöpfung) : 存在（创造）
+- Daseins: 存在
 - Fruchtbarkeit (Schöpfung): 育世（创造）
 - Ungebühr (Beleidigung/Frevel) ：无礼（侮辱/亵渎）
 - Ausführung：执行
+- entmannt oder entweibt：剥夺繁衍权利
+- Gesetze und Gebote：法则和建议
+- der Quelle allen Lebens (Schöpfung) ：众生之源（创造）
+- der Quelle der Schönheit (Schöpfung)：玄美之源（创造）
+- der Urquelle aller Wahrheit (Schöpfung) ：所有真理的终极来源（创造）
+- der Quelle aller Liebe (Schöpfung)：众爱之源（创造）
+- die Quelle aller Weisheit (Schöpfung) ：诸智之源（创造）
+- der Quelle der Weisheit (Schöpfung) ：智慧本源（创造）
+- der Fülle des Lebens (Schöpfung) ：丰盈生命（创造）
+- der Urkraft aller Dinge (Schöpfung) ： 所有事物的原初力量（创造）
 # 原文文本
-194) Wahrlich, ihr denkt fälschlich Gedanken der Unwissenheit und der Unwahrheit, und also habt ihr keinen Anteil an der Ordnung der Dinge, wie sie gegeben sind durch die Gesetze und Gebote der Ausführung (Schöpfung); und auch euch soll die Ordnung aller Dinge eure Obliegenheit (Angelegenheit) sein; und also sollt ihr in der Ordnung aller Dinge das ergründen, was in ihrem Sinn für euch verborgen ist, auf dass ihr verstehen mögt, was die Richtschnur (Wegweisung/Leitgedanke) des Lebens ist.
+217) Bedenkt allezeit der Wahrheit und der Gesetze und Gebote der Kraft aller Wirklichkeit (Schöpfung), und öffnet euer Ohr für die Lehre der Propheten, wie ihr auch ihren Zeichen (Wundersamkeiten) achten sollt, die sie tun, auf dass ihr die Wahrheit aller Wahrheit erkennt und nur ihr zugetan seid.
