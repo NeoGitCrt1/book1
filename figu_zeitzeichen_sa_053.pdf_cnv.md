@@ -1,0 +1,1413 @@
+9. Jahrgang
+Nr. 53 März/3 2023
+
+
+Erscheinungsweise:
+sporadisch
+
+
+### Sonderausgabe
+# FIGU ZEITZEICHEN
+
+######  Aktuelles • Einsichten • Erkenntnisse
+
+Internetz: http://www.figu.org
+
+E-Brief:  info@figu.org
+
+
+###### Organ für freie, politisch unabhängige Berichterstattungen zum Weltgeschehen, kommentarlose, neutrale und meinungslose Weitergabe von Zeitungsberichten.
+##### ***************************************************************************
+Laut ‹Allgemeine Erklärung der Menschenrechte›, verkündet von der Generalversammlung der Vereinten Nationen am 10. Dezember 1948,
+herrscht eine allgemeine ‹Meinungs- und Informationsfreiheit› vor, und dieses unumschränkte Recht gilt weltweit und absolut für jeden
+einzelnen Menschen weiblichen oder männlichen Geschlechts jeden Alters und Volkes, jedes gesellschaftlichen Standes wie auch in
+bezug auf rechtschaffene Ansichten, Ideen und jeglichen Glauben jeder Philosophie, Religion, Ideologie und Weltanschauung:
+
+**Art. 19 Menschenrechte**
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit, Meinungen**
+**unangefochten anzuhängen und Informationen und Ideen mit allen Verständigungs-**
+**mitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Ansichten, Aussagen, Darstellungen, Glaubensgut, Ideen, Meinungen sowie Ideologien jeder Art in Abhandlungen, Artikeln
+und in Leserzuschriften usw. müssen in keiner Art und Weise zwingend identisch mit dem Gedankengut und den
+Interessen, mit der ‹Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens›, wie auch nicht in
+irgendeiner Sachweise oder Sichtweise mit dem Missionsgut und dem Habitus der FIGU verbindend sein.
+==================================================================================
+==================================================================================
+Für alle in den FIGU-Zeitzeichen und anderen FIGU-Periodika publizierten Beiträge und Artikel verfügt die
+FIGU über die notwendigen schriftlichen Genehmigungen der Autoren bzw. der betreffenden Medien!
+###### ****************************************************************************************
+
+**Auf vielfach geäusserten Wunsch aus der Zeitzeichen-Leserschaft sollen in den Zeitzeichen zur Orientierung der**
+**Rezipienten laufend Auszüge diverser wichtiger Belange aus neuest geführten Kontaktgesprächsberichten**
+**veröffentlicht werden, wie nach Möglichkeit auch alte sowie neue Fakten betreffs weltweit bösartig mit**
+**Lügen, Betrug, Verleumdung und Mordanschlägen gegen BEAM geführte Kontroversen.**
+
+###### **********************************************************************************
+
+##### Rocklegende Roger Waters wettert in einer Videobotschaft gegen die Anstifter des Krieges in der Ukraine
+_uncut-news.ch, März 2, 2023_
+
+Rocklegende Roger Waters wischt in einer Videobotschaft den Boden mit denjenigen auf, die seiner Meinung nach für den Krieg in der Ukraine verantwortlich sind.
+
+US-Präsident Joe Biden, Aussenminister Anthony Blinken, die stellvertretende Aussenministerin Victoria
+Nuland und andere kriegstreiberische Neokonservative in Washington sowie die Vasallenstaaten in der
+NATO hätten diesen Krieg provoziert, argumentiert Waters.
+
+Roger Waters von Pink Floyd beschuldigt Joe Biden, Anthony Blinken und Victoria Nuland, den Krieg in der
+Ukraine geplant zu haben: «Ihr hättet das Versprechen von Aussenminister Baker halten können, die NATO
+nicht voranzutreiben … Sie hätten davon absehen können, den illegalen Maidan-Staatsstreich anzuzetteln
+… Sie hätten die Minsker Vereinbarungen unterstützen können.» «Jetzt sagt uns Angela Merkel, dass sie
+nur ein Trick waren, um Zeit zu gewinnen und die Ukraine für den Krieg zu bewaffnen, den Sie geplant
+haben.»
+
+
+-----
+
+US-Aussenminister James Baker erklärte 1990 gegenüber dem sowjetischen Staatschef Gorbatschow, die
+NATO werde sich keinen Zentimeter nach Osten bewegen. Damals galt dies vorwiegend für Ostdeutschland.
+Die NATO hielt sich nicht an dieses Versprechen und dehnte sich dennoch nach Osten aus.
+
+Waters verweist auch auf die Rede von Präsident Putin auf der Münchner Sicherheitskonferenz im Jahr
+2007, in der er deutlich machte, dass ihn die Tendenz der USA stört, sich ständig in die Angelegenheiten
+aller möglichen Länder einzumischen, auch in solche, die Russland nahestehen.
+«2008 hätte man sich dafür entscheiden können, die NATO nicht weiter nach Osten zu erweitern», so der
+ehemalige Pink-Floyd-Sänger. «2014 hättet ihr euch entscheiden können, keinen illegalen Putsch in der
+Ukraine zu inszenieren. Im Jahr 2019 hättet ihr die Minsker Vereinbarungen unterstützen können.»
+In der Zwischenzeit hat Angela Merkel angedeutet, dass es ein Trick war, um Zeit zu schinden und die
+Ukraine aufzurüsten, um sich auf den Krieg vorzubereiten, den Sie angezettelt haben, sagt Waters.
+_Quelle: https://uncutnews.ch/rocklegende-roger-waters-wettert-in-einer-videobotschaft-gegen-die-anstifter-des-krieges-in-_
+_der-ukraine/_
+
+##### Kriegsjournalistin wirft Wahrheitsbombe auf die Ukraine
+
+_uncut-news.ch, März 2, 2023_
+
+
+-----
+
+Wir sollten Wladimir Putin hassen und all die bösen Dinge glauben, die über ihn gesagt werden, und die
+Ukraine lieben. Wenn man das nicht tut, ist man ein Faschist, Reichsbürger, Nazi, Putin-Apologet, Verschwörungstheoretiker und Weichei.
+Sie haben über Corona gelogen, sie haben über geheime Absprachen mit den Russen gelogen und es gibt
+so viel mehr, was in der Ukraine vor sich geht, worüber niemand spricht, sagt die Kriegsjournalistin Lara
+Logan.
+«Ich mag es nicht, wenn man mich anlügt, und wir werden in epischem Ausmass belogen», betont sie. «Sie
+haben nur eine Wahl: Sie müssen zu 100 Prozent hinter Selensky stehen. Und das, obwohl er eine Marionette ist. Er wurde ausgewählt wie so viele andere Führer», argumentiert die Journalistin.
+«Es ist eine Lüge, dass es in diesem Krieg um Russland und die Ukraine geht», sagt sie. «Putin hat seit 15
+Jahren gewarnt, dass er nicht tatenlos zusehen wird, wie die Globalisten die Welt übernehmen und Labore
+für biologische Waffen bauen.»
+«Die Ukraine ist das Zentrum einer grossen Geldwäscheoperation. Milliarden von Dollar wurden über die
+Ukraine gewaschen und wir sagen nichts dazu», so Logan.
+Auf Twitter schreibt die Kriegsjournalistin, dies sei der erste Krieg gegen die gesamte Menschheit. Sie
+spricht von einer ‹biblischen Schlacht›. «Gebt niemals auf.»
+
+_Quelle: https://uncutnews.ch/kriegsjournalist-wirft-wahrheitsbombe-auf-die-ukraine/_
+
+##### Die totalitären Verhältnisse in Frankreich – 
+ Appell und Hilferuf eines jungen Arztes
+
+_Hwludwig, Veröffentlicht am 2. März 2023_
+
+Die totalitären Kräfte, die sich besonders in der Corona-Krise weltweit geltend gemacht und die demokratischen Fassaden weitgehend wie Kartenhäuser haben zusammenfallen lassen, sind im zentralstaatlich
+organisierten Frankreich noch viel ausgeprägter wirksam als in Deutschland. Wir übernehmen nachfolgend
+den Appell und Hilferuf eines jungen französischen Arztes, dem wie vielen anderen Ärzten, Krankenschwestern, Pflegern, Feuerwehrleuten und weiteren Mitarbeitern im Gesundheitswesen, welche die Anti-CovidInjektion abgelehnt haben, seit über einem Jahr das Recht entzogen wurde, in ihrem Beruf tätig zu sein.
+(hl)
+
+
+-----
+
+**Appell und Aufruf eines französischen Arztes**
+**MWGFD möchte auf einen bewegenden Aufruf eines jungen Arztes und Familienvaters aus Frankreich**
+**aufmerksam machen. Dem 33-jährigen Allgemeinmediziner ist es ein drängendes Anliegen, die medizini-**
+**schen und politischen Zustände in Frankreich mit der Öffentlichkeit zu teilen.**
+
+«Wir wollen, dass die öffentliche Meinung sich an unserer Seite empört!» So der französische Arzt. Vor dem
+Hintergrund, dass die gleichen totalitären Kräfte am Werk sind, ist es wichtiger denn je, sich mit dem in der
+Protestbewegung vorhandenen Gemeinsinn der Nachbarsländer zu verbinden. Sein Appell lautet:
+«Wenn wir wollen, dass unser Anliegen gehört wird, müssen wir die Grenzen unseres Landes überschreiten,
+informieren und international öffentliche Aufmerksamkeit erregen.»
+Für jene, die der französischen Sprache nicht mächtig sind, stellen wir die deutsche Übersetzung zur Verfügung.
+
+**Hilferuf aus Frankreich**
+
+«Ich bin Dr. Gregory Pamart, Ich bin 33 Jahre alt, verheiratet und Familienvater. Seit einem Jahr, vier Monaten und 13 Tagen habe ich nicht mehr das Recht, meinen Beruf als Allgemeinmediziner in meinem Land,
+in Frankreich, auszuüben. Vor 500 Tagen hat man mich gezwungen, meine Patienten aufzugeben und sie
+allein und ohne medizinischen Rat zu lassen. Vor 500 Tagen hat die Regierung Ärzte, Krankenschwestern,
+Pfleger, Feuerwehrleute und Personal im Gesundheitswesen entlassen, die die Anti-Covid-Injektion abgelehnt haben. Wir haben den Beruf verloren, den wir lieben. Die Regierung hat einen neuen Status erfunden:
+
+**Wir sind die ‹Suspendierten› ohne Lohn, ohne Entschädigung, ohne jede Hilfe.**
+
+Seit 500 Tagen haben wir auf unsere Versicherung, unseren Comfort verzichtet, manche betteln, etliche
+Familien geben ihr Haus auf, andere verlassen ihr Land. Unser einziges Verbrechen besteht darin, vorsichtig
+gewesen zu sein. Eine neuartige Behandlung abgelehnt zu haben.
+Wir lehnten ab, dass die Medizin das Verbrechen begeht, Menschen, die ignoriert, von den Medien verspottet und von der öffentlichen Meinung diskreditiert werden, zu zwingen. Im letzten Sommer wurde Frankreich von Grossbränden heimgesucht und hat um Hilfe von Feuerwehrleuten aus ganz Europa gebeten.
+5000 suspendierte Feuerwehrleute blieben zu Hause ohne helfen zu dürfen.
+Viele Kranke haben keinen Arzt mehr. Sie verzichten darauf, sich behandeln zu lassen oder sich an den
+Notdienst zu wenden. Aber die Ärzte dürfen immer noch nicht behandeln. Ein Notdienst nach dem anderen
+schliesst. Die Wartezeiten sind so lang, dass Patienten auf den Tragbahren sterben, bevor sie untersucht
+worden sind. Aber die Ungeimpften dürfen immer noch nicht an ihren Arbeitsplatz zurückkehren. Das ist
+die Realität in Frankreich, das einst prahlte, das beste Gesundheitssystem der Welt zu haben. Heute gibt
+die ganze Welt zu, dass die Impfung die Übertragung des Virus nicht verhindert. Das ‹Wissenschaftsargument› hält nicht mehr. Alle Länder haben die Impfpflicht abgeschafft. Aber nein … Nicht alle! Frankreich ist das letzte Land, das die Impfpflicht beibehält. Diese ‹französische Ausnahme› verdanken wir dem
+Präsidenten Macron, der verkündet:
+
+**«Die Ungeimpften, ich habe Lust, ihnen das Leben schwer zu machen, sie zu nerven.**
+
+**Also werden wir weitermachen bis zum Schluss. Das ist sie, die Strategie.»**
+
+Er macht daraus eine persönliche Angelegenheit, er stellt sich in den Dienst der Pharmaindustrie, gegen
+sein Volk. Die Regierung verschliesst die Augen vor dieser Situation. Schlimmer noch, in letzter Zeit verfolgt
+sie eine Verschleppungstaktik, um das Parlament daran zu hindern, dieses ungerechte Gesetz wieder aufzuheben.
+
+500 Tage schon, 500 Tage! Werde ich meinen Beruf als Arzt in diesem Land wieder ausüben dürfen? Ich
+weiss es nicht. Ehrlich, ich habe Angst, was aus der Medizin wird. Ich habe Angst, was aus meinem Land
+wird. Der ‹Suspendierungsstatus› erlaubt dem Staat, jeden für seine Meinung zu entlassen und ins soziale
+Abseits zu stellen. Heute sind es die Pflegekräfte und morgen? Die aufmüpfigen Lehrer? Die Polizisten? Die
+Richter? Das ist der Grund, warum ich mich an euch wende.
+
+**Die Regierung blockiert unsere Handlungsfähigkeit.**
+
+Wenn wir wollen, dass unser Anliegen gehört wird, müssen wir die Grenzen unseres Landes überschreiten,
+informieren und international öffentliche Aufmerksamkeit erregen. Die Welt soll Macron und der Regierung
+sagen: «Ihr dürft eure Demokratie nicht mit Füssen treten.» Diejenigen, die ihr Leben der Pflege anderer
+widmen, verdienen mehr als das. Die Gesundheit und die Freiheit der Franzosen verdienen mehr als das.
+Frankreich darf kein totalitärer Staat werden. Das Land der Menschenrechte (droits de l`Homme ) verdient
+mehr als das.
+Es ist notwendig, dass die internationale Öffentlichkeit versteht und weiss, was in Frankreich passiert. Der
+Zustand unserer Gesundheit und der Zustand unserer Politik ist alarmierend.
+
+
+-----
+
+«Das hier ist ein SOS! Verbreitet diesen Appell in der Welt, in eurer Sprache. Sendet ihn euren Freunden,
+eurer Familie und euren Bekannten. Verbreitet ihn in den sozialen Netzen und Medien. Wir wollen, dass die
+öffentliche Meinung sich an unserer Seite empört. Wir bitten euch um Unterstützung. Danke.»
+_Übersetzung: Marion Schmidt_
+_(Minimale grammatische Anpassungen wurden durch das MWGFD-Presseteam vorgenommen)_
+_Quelle: https://www.mwgfd.org/2023/02/ueber-den-zustand-in-frankreich/_
+_Quelle: https://fassadenkratzer.wordpress.com/2023/03/02/die-totalitaren-verhaltnisse-in-frankreich-appell-und-hilferuf-_
+_eines-jungen-arztes/_
+
+##### Die Hegemonie der USA ist der Hauptwiderspruch auf der Welt. 
+ Sie zu besiegen, ist entscheidend für die Arbeiterrevolution.
+
+_uncut-news.ch, März 2, 2023_
+
+Wer sich für den totalen Sieg der Arbeiter der Welt einsetzt, wird den Kampf gegen die US-Hegemonie unterstützen. Das bedeutet, die Geopolitik ernst zu nehmen. Das bedeutet, zu erkennen, dass wir Amerikaner
+als Bewohner des imperialen Zentrums die Möglichkeit haben, unsere Regierung daran zu hindern, Gewalt
+gegen die Völker auszuüben, die im Visier des Imperialismus stehen. Wenn wir uns gegen die Sanktionen
+gegen Kuba, die Unterstützung des kolonialen Krieges Israels gegen die Palästinenser oder die Hilfe für den
+Krieg der faschistischen Ukraine gegen den Donbass einsetzen, schwächen wir die Kriegsmaschinerie. Denn
+die Kriegsmaschinerie ist darauf angewiesen, dass die Sicht des Aussenministeriums auf das Weltgeschehen von den Menschen geteilt wird. Und je stärker die Anti-Kriegs-Bewegung ist, desto weniger wirksam
+wird diese narrative Kontrolle. In dieser Phase des Niedergangs der US-Hegemonie besteht der Zweck der
+amerikanischen Antikriegsbewegung darin, diesen geopolitischen Wandel zu beschleunigen, indem sie die
+Funktionsweise des amerikanischen Militarismus sabotiert.
+
+Die einzige Möglichkeit, dies zu tun, zumindest bis zum Sturz des bürgerlichen Staates, von dem der amerikanische Militarismus abhängt, besteht darin, die Erzählungen des Imperialismus zu entlarven. Um herauszufinden, aus welchen Lügen diese Narrative genau bestehen, schauen Sie sich an, welche Ideen Sie derzeit
+nicht in Frage stellen dürfen: Die NATO-Darstellung der Handlungen Serbiens im Jugoslawien-Krieg, Assads
+angebliche chemische Angriffe, der ‹Völkermord an den Uiguren›, die Vorstellung, dass Nordkorea ein undemokratisches Regime ist, die Vorstellung, dass Russland ein faschistischer Staat ist, der unprovoziert gegen
+die Ukraine vorgegangen ist. Auch wenn diese Dinge leicht zu widerlegen sind, kann man sie nicht wie die
+Irak-Psyop als falsch bezeichnen. Denn im Gegensatz zum Irak sind der Balkan, Syrien, China, die Demokratische Volksrepublik Korea und Russland für die Imperialisten immer noch von entscheidender Bedeutung,
+um die Wahrnehmung zu prägen. Der Irak wird seit langem als erzählerischer Vorteil genutzt, und das Imperium hat ihn zu einem der vielen Orte gemacht, gegen die Washington unhinterfragt Krieg führt. Bei den
+anderen genannten Ländern und Gebieten ist die Lage unklarer.
+Das Imperium muss immer noch seine jahrzehntealte Mythologie der Gräuelpropaganda gegen Serbien
+aufrechterhalten, damit es seine Kampagne zur Assimilierung ganz Osteuropas an das neoliberale Modell
+der EU fortsetzen kann. Sie muss die grössten geopolitischen Rivalen Washingtons als neue ‹Achse des
+Bösen› darstellen, um ihre Bemühungen zur Destabilisierung Eurasiens zu rechtfertigen. Diese Bemühungen erstrecken sich nicht nur auf den Stellvertreterkrieg in der Ukraine oder die Provokationen in Taiwan,
+sondern auch auf die Versuche einer farbigen Revolution im Iran. Zu dieser Mission, Eurasien zum Zusammenbruch zu treiben gehören auch die Syrien Sanktionen die dazu gedacht sind Notfälle wie das Erd
+
+
+-----
+
+beben in diesem Monat zu verschärfen. Sollte die DVRK den Erzählkrieg gewinnen, werden Washingtons
+anhaltende Bemühungen, sie mit Militärübungen zu bedrohen, zu einer internationalen Belastung. Die
+Imperialisten müssen also weiterhin das Opfer spielen und die Raketentests des Landes als unprovozierte
+Drohungen eines ‹verrückten Diktators› darstellen.
+In dem Masse, wie sich Washingtons neuer kalter Krieg entwickelt, werden weitere Fronten eröffnet, die sich
+vielfach mit anderen überschneiden. Die Vorstellung, dass Äthiopiens Regierung einen Völkermord an den
+Tigrayern begeht, was den Kontext verschleiert, dass das Volk von Tigray von den von den USA unterstützten
+TPLF-Terroristen als Geisel gehalten wird, ist wesentlich für die Rechtfertigung der Kampagne zur Destabilisierung Äthiopiens und Eritreas. Eine Kampagne, die durch den Wunsch motiviert ist, die weitere Entwicklung von Chinas BRI-Projekt zu verhindern, indem die Staaten zerstört werden, die das grösste Potenzial
+haben, die Initiative voranzubringen. Washingtons Operationen zur Destabilisierung Afghanistans und
+Myanmars haben dasselbe Ziel, auch wenn die gegen sie gerichtete Gräuelpropaganda nicht so extrem sein
+muss, da sie von einem theokratischen Regime bzw. einer Militärjunta regiert werden. Der Umstand, dass
+beide Länder aufgrund der Politik Washingtons in eine solche Situation geraten sind, wird in den Analysen
+unserer Medien nicht berücksichtigt. Das zentrale Ziel unserer aussenpolitischen Denker besteht derzeit
+darin, den Aufstieg Chinas und den damit einhergehenden wirtschaftlichen Aufschwung der Länder in der
+Peripherie zu behindern.
+In diesem Grossmächte-Wettbewerb konzentrieren sich die Bemühungen des Imperialismus heute. Lateinamerika ist nicht mehr das primäre Ziel, denn angesichts der wirtschaftlich verzweifelten Situation, die der
+Stellvertreterkrieg in der Ukraine für die imperialistischen Mächte geschaffen hat, sieht Washington ein,
+dass es zumindest lernen muss, mit den antiimperialistischen Regierungen der Hemisphäre zu koexistieren.
+Washington führt immer noch Putsche durch, wo es kann, wie im vergangenen Dezember in Peru, aber
+diese Regimewechseloperationen werden immer weniger durchführbar, je mehr die antiimperialistische
+Bewegung in der Region an Stärke gewinnt. Selbst in Peru hat die Gegenreaktion der Bevölkerung das
+Überleben des neuen Putschregimes bereits unsicher gemacht. Ein schnell schwindendes Imperium wie
+Washington muss Kompromisse eingehen und in diesem Fall den Verlust mehrerer seiner Neokolonien
+hinnehmen, damit es seine Bemühungen um die Destabilisierung Eurasiens fortsetzen kann.
+Das eigentliche Problem ist, dass sich die Russland-Sanktionen als nicht wirksam genug erwiesen haben,
+um das Land zum Einsturz zu bringen, so dass sich das Ziel der Zerstörung Eurasiens als unerreichbar erwiesen hat. Wären die Sanktionen so wirksam, könnte Washington mit gutem Gewissen einen Regimewechsel gegen Lula durchführen, weil er enge Beziehungen zur VR China aufgebaut hat. Da es dem Imperium
+jedoch nicht gelungen ist, mehr als 20% der Länder der Welt für seinen Krieg gegen Russland zu gewinnen,
+und es folglich den amerikanischen und europäischen Lebensstandard opfern musste, um die Sanktionen
+zu unterstützen, verliert Washington den Wirtschaftskrieg. Es hat also keine andere Wahl, als Wirtschaftsbeziehungen zu Ländern wie Venezuela und Brasilien aufzubauen oder aufrechtzuerhalten und hilflos zuzusehen, wie diese Länder den Übergang zur Multipolarität beschleunigen.
+Die Ermutigung des Imperiums zu neuen Spannungen auf dem Balkan, die Bewaffnung der Ukraine und
+Aserbaidschans gegen andere ehemalige Sowjetstaaten und der Einsatz Israels als regionaler terroristischer
+Stellvertreter haben dem Imperium keinen Sieg auf dem eurasischen geopolitischen Schachbrett gebracht.
+Das liegt daran, dass die BRIC-Länder, die viel grösser und wirtschaftlich wichtiger sind als Washingtons
+destabilisierende Stellvertreter, ihre Beziehungen verstärkt haben. Selbst das ultranationalistische Indien
+hat seine Beziehungen zu Russland weiter gestärkt und gleichzeitig seinen Grenzstreit mit China deeskaliert, weil es weiss, welcher Weg in seinem Interesse ist.
+In dieser Zeitlinie, in der die Multipolarität noch schneller gekommen ist, als das Pentagon erwartet hat,
+und diese plötzliche Beschleunigung des Fortschritts der Geschichte gerade wegen der rücksichtslosen
+Handlungen Washingtons eingetreten ist, kann sich unsere herrschende Klasse nur der gleichen Option
+zuwenden, die die deutsche Bourgeoisie nach der Niederlage im Ersten Weltkrieg ergriffen hat: Die Kontrolle des kapitalistischen Staates zu konsolidieren und sich mit den reaktionärsten Elementen zu verbünden,
+um eine Kraft für konterrevolutionären Terror zu schaffen.
+Die Wiederbelebung der Industrie, damit sich das Land auf einen neuen grossen Krieg vorbereiten kann,
+ist ebenfalls Teil dieses faschistischen Plans, was ein weiterer Grund ist, warum wir uns der Kriegsmaschinerie widersetzen müssen. Die logische Schlussfolgerung des Weges, den die imperialen Mächte eingeschlagen haben, ist ein Szenario, in dem sie sich in einen Nazi-Staat verwandeln, wie es die Ukraine getan hat.
+Man weiss nicht, welchen Teil der Welt sie sich für die Wiederholung von Hitlers Invasionen aussuchen werden, aber angesichts des Erfolgs der Operation Z bei der Entnazifizierung ist es möglich, dass diese neue
+Militärkampagne auch auf Osteuropa ausgerichtet sein wird. Wir müssen diese verkommene Version der
+NATO davon abhalten, den Dritten Weltkrieg auszulösen, dem sie allein durch ihren liberalen Stellvertreterkrieg schon so nahe gekommen ist wie nie zuvor. Stellen Sie sich vor, wie diese Länder handeln werden,
+wenn sie sich in einem Zustand befinden, der dem Deutschlands vor einem Jahrhundert entspricht, und
+ihre faschistischen Bewegungen keine ausreichende interne Opposition haben.
+
+
+-----
+
+Mit der Explosion der Inflation haben wir eine weitere historische Voraussetzung für eine solche faschistische Machtübernahme erfüllt. So implodieren die kolonialen Länder während der imperialistischen Phase
+des Kapitalismus: Wenn sie mit den Krisen konfrontiert werden, die der Imperialismus für sie schafft, reagieren ihre herrschenden Klassen, indem sie versuchen, das System mit enormer Gewalt aufrechtzuerhalten.
+Wenn die USA erst einmal in vollem Umfang aus Asien vertrieben sind, wird die Situation im Kernland noch
+beängstigender werden, als sie ohnehin schon ist. Die Terrorkampagne gegen Transgender-Menschen ist
+eine Manifestation dieses Faschismus des 21. Jahrhunderts, und sie hat einen Präzedenzfall dafür geschaffen, was die Kräfte der Reaktion mit jeder anderen Gruppe machen werden, die sie zu unterwerfen versuchen. Wir Kommunisten im Kern können gegen diesen Feind nur gewinnen, indem wir eine Bewegung aufbauen, die in ihrem Fokus global ist. Indem wir uns mit den antiimperialistischen Regierungen der Welt
+verbünden, sowohl um den Liberalismus zu bekämpfen als auch um Freunde zu haben, an die wir uns
+wenden können, wenn der Klassenkonflikt eskaliert.
+Wir müssen verstehen, dass der Liberalismus nur die erste Schicht des Widerstands ist, mit dem wir konfrontiert sein werden, und dass die Liberalen, wenn wir zu mächtig geworden sind, um uns aufzuhalten, die
+Faschisten schicken werden, um uns physisch zu vernichten. Das Gleiche gilt für die Hegemonie der USA,
+denn je erfolgreicher wir ihren Niedergang unterstützen, desto aggressiver wird die Aufstandsbekämpfung
+innerhalb des Imperiums. Liberalismus und Unipolarität sind auf dem Rückzug und machen den Weg frei
+für die endgültige Konfrontation zwischen den Feinden des Kapitals und dem kämpfenden Flügel des
+Kapitals. Jeden Tag rückt dieser entscheidende Moment des Konflikts näher.
+_QUELLE: U.S. HEGEMONY IS THE GLOBE’S PRIMARY CONTRADICTION. DEFEATING IT IS VITAL FOR WORKERS_
+_REVOLUTION._
+_ÜBERSETZUNG: LZ_
+_Quelle: https://uncutnews.ch/die-hegemonie-der-usa-ist-der-hauptwiderspruch-auf-der-welt-sie-zu-besiegen-ist-entschei-_
+_dend-fuer-die-arbeiterrevolution/_
+
+##### Anstieg der Gesamtzahl der Todesfälle in Japan um 8,9% im Jahr 2022!
+ Regierung empfiehlt noch mehr zu impfen!
+
+_uncut-news.ch, März 2, 2023_
+
+Unsere Freunde vom Ministerium für Gesundheit, Arbeit und Soziales (MHLW) haben endlich die
+demografischen Daten für Dezember veröffentlicht, eine Woche später als geplant. Und nachdem ich
+gesehen habe, dass die Zahl der Todesfälle im Dezember im Vergleich zum Vorjahr um 18,2 % gestiegen
+ist, kann ich verstehen, warum sie es nicht eilig hatten.
+
+_Todesfälle aller Ursachen. Blau: 2021. Rot: 2022 (natürlich)_
+
+Im Gegensatz zu den täglichen Covid-Fallzahlen machen sich die Medien nicht die Mühe, monatliche Mortalitätszahlen zu melden. Die Nikkei hat jedoch berichtet, dass die jährliche Zahl der Todesfälle im Jahr 2022
+um 8,9% (129’744) höher war als 2021 (1'582’033 gegenüber 1'452’289).
+
+
+-----
+
+**‹Todesfälle durch alle Ursachen im Jahr 2022 stark gestiegen›**
+
+Im Jahr 2022 meldete Japan nur etwa 39’000 Covid-Tote. Abgesehen von der liberalen Art und Weise, wie
+diese Todesfälle gezählt werden, stellt sich die Frage, woran die Japaner im vergangenen Jahr sonst noch
+in grösserer Zahl gestorben sind. Zurück zum Nikkei.
+Im Vergleich zum Vorjahr stieg die vom MHLW veröffentlichte Zahl der Todesfälle aus allen Ursachen von
+Januar bis September 2022 um insgesamt 81’000 Personen. Davon starben etwa 15’000 am Coronavirus,
+etwa 17’000 an Herz-Kreislauf-Erkrankungen und etwa 18’000 an Altersschwäche. Nach Altersgruppen betrachtet waren die meisten Menschen, die an Herz-Kreislauf-Erkrankungen oder an Altersschwäche starben,
+80 Jahre oder älter.
+Warum also versagen bei immer mehr älteren Menschen die Herzen und der Alterungsprozess beschleunigt
+sich? Fragen wir die Experten!
+Experten für Infektionskrankheiten äusserten sich am 22. Februar über die Zunahme der Todesfälle. Sie
+vermuten, dass «die Zahl der Patienten, die an anderen Ursachen als Covid-19 starben, aufgrund der Verschlechterung ihres Allgemeinzustands nach der Infektion mit dem Coronavirus gestiegen sein könnte»“.
+Mit anderen Worten: Die Experten gehen davon aus, dass es in Japan im vergangenen Jahr Zehntausende
+von kryptischen Covid-Todesfällen gegeben haben könnte. Was wird die japanische Regierung also tun, um
+solche Todesfälle im Jahr 2023 zu verhindern? Sie wird den älteren Menschen zwei weitere Covid-Impfungen anbieten!
+
+Für die Mehrheit der über 65-Jährigen werden das die 6. und 7. Spritze sein. Mal sehen, wie lange sie das
+durchhalten können.
+_QUELLE: ALL-CAUSE DEATHS BOOSTED BY IN JAPAN IN20228.9%_
+_Quelle: https://uncutnews.ch/anstieg-der-gesamtzahl-der-todesfaelle-in-japan-um-89-im-jahr-2022-regierung-empfiehlt-_
+_noch-mehr-zu-impfen/_
+
+
+-----
+
+##### Selensky und nicht Putin, 
+ wird zunehmend von der Aussicht auf einen Putsch bedroht
+
+_uncut-news.ch, März 1, 2023. Jordan Schachtel_
+
+Der autoritäre ukrainische Präsident setzt seine grosse Säuberungsaktion gegen Spitzenbeamte fort und
+hat immer weniger Verbündete, wenn es darauf ankommt.
+Wolodomyr Selensky hat viele mächtige Unterstützer in der ganzen Welt, und aus der Ferne scheint der
+ukrainische Präsident politisch unbesiegbar zu sein. Er hat die Unipartei in Washington D.C. auf seiner Seite, gepaart mit den internationalen Globalisten im robusten Netzwerk des Weltwirtschaftsforums, zusammen mit den öffentlich-privaten Vermögensverwaltungs-riesen von BlackRock und Co. und einer weiteren
+grossen Kreditlinie durch die IWF-Weltbankgruppe.
+Innenpolitisch sieht die Sache ganz anders aus. Die ukrainische Bevölkerung leidet sehr unter Selensky,
+der Wehrpflicht und der Tatsache, dass die Hälfte des Landes nun den Schrecken und dem Bombardement
+eines Krieges auf unbestimmte Zeit ausgesetzt ist. Einst verfolgte Kiew die Neutralität und betrachtete seine
+Rolle als Pufferstaat als den funktionierenden Goldstandard für geopolitische Beziehungen. Jetzt hat die
+Ukraine auf Drängen der westlichen herrschenden Klasse realpolitisches Seppuku begangen und ist zu
+einem erbitterten Feind ihres mächtigeren Nachbarn geworden.
+Die Konzernpresse und die Institutionen in Washington haben darauf bestanden, dass die Stellung des
+russischen Präsidenten Wladimir Putin am stärksten durch einen Staatsstreich oder einen Sturz des Volkes
+gefährdet ist, aber es gibt keine Beweise für eine solche Behauptung. Tatsächlich zeigen Umfragen des
+unabhängigen Levada-Zentrums, dass Putins Zustimmungsrate seit dem Beginn des Krieges in der Ukraine
+auf über 80 Prozent gestiegen ist. Selensky hingegen entwickelt sich in die entgegengesetzte Richtung und
+wird immer unbeliebter, je länger der Krieg andauert.
+
+Die Selensky-Regierung führt einen Zweifrontenkrieg und betreibt ethnische Säuberungen gegen grosse
+Teile der eigenen Bevölkerung, insbesondere gegen das Drittel des Landes, das aufgrund seines russischen
+ethnischen und sprachlichen Hintergrunds nun als Staatsfeind eingestuft wird.
+
+
+-----
+
+Darüber hinaus verliert die Ukraine trotz der scheinbar endlosen Lieferungen und Geldzahlungen aus dem
+Westen, die zu den Kriegsanstrengungen beitragen, diesen Konflikt, und ihre Bürger zahlen den höchsten
+Preis dafür.
+Um seine Regierung und seine persönliche Stellung im Amt zu schützen, hat Selensky in den vergangenen
+Wochen und Monaten eine grosse Säuberungsaktion in der Ukraine durchgeführt.
+Zahllose hochrangige Minister, Gouverneure und andere ukrainische Bürokraten wurden ihrer Ämter enthoben, natürlich ohne ein ordentliches Verfahren. In den vergangenen Wochen wurden unter anderem
+Selenskys stellvertretender Verteidigungsminister, der stellvertretende Leiter des Präsidialamtes und der
+stellvertretende Generalstaatsanwalt aufgrund von ‹Korruptionsvorwürfen› abgesetzt. Bei einem solchen
+Vorfall wurden die drei ranghöchsten Beamten in Selenskys Innenministerium bei einem ‹Hubschrauberunfall› über Kiew getötet.
+An den Korruptionsvorwürfen ist sicherlich ein Körnchen Wahrheit dran, denn die Ukraine wird regelmässig
+als das korrupteste Land Europas eingestuft. Doch scheint dies nicht die treibende Kraft hinter der systematischen und blitzschnellen Beseitigung der Führungsspitze zu sein.
+Trotz des andauernden Krieges ist Selensky dafür bekannt, dass er sich die Zeit nimmt, sich mit seinen
+politischen Rivalen – nur mit denen, die nach der aussergerichtlichen Ausschaltung der politischen Opposition durch die Regierung Selensky noch in der Regierung tätig sein dürfen – über triviale Themen öffentlich zu streiten. Dennoch hat er sich öffentlich mit einem politischen Rivalen des Bürgermeisters von Kiew,
+dem populären ehemaligen Boxchampion Vitali Klitschko, angelegt, der schon früher als Präsidentschaftskandidat gehandelt wurde.
+Präsident Selensky entlässt einen hochrangigen ukrainischen Militärbefehlshaber (Generalmajor Eduard
+Moskalyov, Befehlshaber der gemeinsamen Streitkräfte der Ukraine) ohne Angabe von Gründen.
+
+Am Wochenende musste die Ukraine eine weitere Reihe verheerender Verluste auf dem Schlachtfeld hinnehmen. Am Sonntag entliess Selensky mit Eduard Mykhailovich Moskalov einen hochrangigen General,
+der die gemeinsamen Streitkräfte der Ukraine leitete und im März 2022 in dieses Amt berufen wurde. Ein
+Grund für die abrupte Entlassung wurde nicht genannt, hat aber höchstwahrscheinlich mit dem Kampf der
+Ukraine um die Rückeroberung von Bachmut, der vom Krieg zerrütteten Stadt im Osten des Landes, zu
+tun.
+Der ukrainische Präsident Selensky ist ein korrupter Autoritarist, der durch die Invasion nur knapp seinem
+Sturz entgangen ist. Die Wahrheit kommt allmählich ans Licht – er ist sogar noch skrupelloser und gefährlicher als Putin. Die USA leisten zwei Monstern Vorschub – einem in Russland und einem in der Ukraine.
+Die Presse hat endlich damit begonnen, sich mit der Möglichkeit zu befassen, dass es sich bei Selenskys
+grosser Säuberung nicht um eine Korruptionsbekämpfung, sondern um eine Initiative zur Erhaltung der
+Macht handelt. Es ist viel wahrscheinlicher, dass diese Beamten entfernt werden, weil sie die Integrität des
+Regimes bedrohen. Während Selenskys ausländische Unterstützer ihn weiterhin stützen können, müssen
+
+
+-----
+
+sich auch die Menschen, die ihm am nächsten stehen, an der Mission beteiligen. Wenn sich der Nebel des
+Krieges lichtet, könnten auch die Flitterwochen für Selenskys unangefochtene Stellung als Führer der
+Ukraine vorbei sein.
+_QUELLE: ZELENSKY, NOT PUTIN, IS INCREASINGLY THREATENED BY THE PROSPECT OF A PALACE COUP_
+_Quelle: https://uncutnews.ch/zelensky-und-nicht-putin-wird-zunehmend-von-der-aussicht-auf-einen-putsch-bedroht/_
+
+##### Westlicher Journalist macht bemerkenswerte Entdeckung auf der Krim
+ (und steht jetzt auf der ‹Tötungsliste›)
+_uncut-news.ch, März 3, 2023, The Kremlin, Moscow CC BY 4.0_
+
+**Nach Ansicht Kiews, seiner westlichen Verbündeten und der Vereinten Nationen gehört die Krim nicht**
+**zu Russland. Der ukrainische Präsident Selensky hat erklärt, er werde die Krim ‹zurückerobern›. Die**
+**Anwohner warten nicht darauf, wie ein Journalist von NBC News berichtet. Die meisten Menschen auf**
+**der Krim sind pro-russisch. Jetzt hat die Ukraine ihn auf eine ‹Todesliste› gesetzt. Praskovya Baranova**
+**(73) spricht Russisch, fühlt sich als Russin und lebt auf der Krim. «Dies ist unser Land», sagte sie. «Wir**
+**werden unsere Uniform anziehen und zur Grenze gehen, um uns zu verteidigen.» Der NBC-Nachrich-**
+**tenjournalist Keir Simmons reiste kürzlich auf die Krim und berichtete, dass die meisten Krimbewohner**
+**für Russland sind. Jetzt hat die Ukraine ihn auf ihre Abschussliste gesetzt, weil er über diese Tatsache**
+**berichtet hat. Was hält die US-Regierung davon, dass die Ukraine einen NBC-Journalisten auf ihre**
+**Abschusslisten gesetzt hat?**
+
+
+-----
+
+**Andere Personen, mit denen NBC News sprach, äusserten sich ähnlich. Laut dem 36-jährigen Ruslan**
+**Nalgiev wird Selensky die Krim nicht erobern. «Wenn es auch hier zum Krieg kommt, werden wir Sewa-**
+**stopol verteidigen. Denn wenn wir unser Mutterland nicht verteidigen, werden wir zu Sklaven. Und nie-**
+**mand will ein Sklave werden.»**
+**NBC News reiste mit dem Zug von Moskau auf die Krim über die Krim-Brücke, die im vergangenen**
+**Herbst gesprengt wurde, inzwischen aber wieder vollständig repariert ist.**
+
+**Es wird oft behauptet, dass die russischen Behörden die Einheimischen einschüchtern. Nach Angaben**
+**von Diana Galastjan (26) ist dies nicht der Fall. Sie bestritt, dass die russischen Behörden den Menschen**
+**Angst machen.**
+**Olga, die ihren Nachnamen nicht nennen wollte, brach in Tränen aus, als sie über den Krieg sprach. «Alle**
+**Mütter weinen. Sowohl russische als auch ukrainische Mütter weinen», sagte sie. «Warum hat der Krieg**
+**begonnen? Können wir nicht in Frieden miteinander leben?»**
+
+
+-----
+
+**Der Journalist Keir Simmons wurde nach seinem Bericht auf die ‹Todesliste› von Myrotvorets gesetzt.**
+**Mehrere Journalisten auf dieser Liste haben bereits Drohungen erhalten. Der ukrainische Journalist Oles**
+**Boezina starb wenige Tage, nachdem sein Name auf der Liste erschienen war. Er wurde in Kiew erschos-**
+**sen.**
+
+_Quelle: https://uncutnews.ch/westlicher-journalist-macht-bemerkenswerte-entdeckung-auf-der-krim-und-steht-jetzt-auf-_
+_der-toetungsliste/_
+
+##### Der Getriebene – 
+ «Noch nie wollte ein eigener Gedanke in seinem Kopf vorstellig werden»
+
+_Hwludwig, Veröffentlicht am 3. März 2023_
+
+**Woher kommen die anderen Gedanken? Dumme Frage, werden viele denken, das ist doch klar, dass wir**
+**alle Gedanken selber in unserem Bewusstsein bilden. – Das mag manchmal der Fall sein. Aber wieviel**
+**Gedanken übernehmen wir unbemerkt von den Medien, der öffentlichen Meinung, und halten sie schliess**
+**lich für eigene? Und wie viele Gedanken tauchen einfach so in unserem Bewusstsein auf, fallen uns, wie**
+**man so sagt, plötzlich ein, ohne dass unsere Anstrengung und Kontrolle dahinterstünde, und veranlassen**
+**uns zu einer Handlung, die wir vielleicht hinterher bereuen, weil wir ihre Folgen nicht bedacht haben?**
+**Von woher fallen uns die Gedanken der Lüge, der Täuschung, des Hasses, des Krieges, der Zerstörung**
+**und Vernichtung anderer Menschen ein? Die Antwort entscheidet über Krieg oder Frieden.**
+
+Mitte Februar 2023 meldeten die Regierungs-Medien anerkennend, dass Vize-Bundeskanzler Robert
+Habeck von den Grünen am 11. Juni in der Frankfurter Paulskirche den diesjährigen Ludwig-Börne-Preis
+für Essayistik verliehen werde. – So kann man auch Imagepflege für die gegenwärtigen Hasardeure in der
+Politik betreiben.
+Der Essayist Michael Klonovsky bemerkte dazu am 19.2.2023 auf seinem Blog ‹Acta diurna›: «Die Bundeskanzlerin Merkel wurde ja im März 2021 auch als ‹Beste Bloggerin Deutschlands› nominiert, obwohl sie
+‹im eigentlichen Sinne keinen Blog betreibt›, wie die Jury des ‹Golden-Blogger-Award› damals einräumte;
+warum soll Robert der Dreitagebärtige nicht eine Auszeichnung für Essayistik bekommen, obwohl er keine
+Essays schreibt und niemals, auch bei grosszügiger Auslegung des Begriffs, ein Essayist – ein Homme de
+lettres – war.» …
+Er könne ja «keinen einzigen literarischen Satz schreiben. Der kann überhaupt nicht schreiben. Ich habe
+mir vor zwei Jahren den Tort angetan, sein Vorwort zur Neuausgabe von Orwells ‹1984› zu lesen und zu
+kommentieren. Dieser späte Bub kann lediglich auf einer Welle des Zeitgeistes mitschwimmen, wobei er
+sich bei den Grünen immerhin jenen solid durchfinanzierten Lebensabend ergaunert hat, der ihm, müsste
+er von seiner Schreiberei leben, niemals vergönnt gewesen wäre.»
+Nominiert und als alleiniger Preisrichter entschieden hat der FAZ-Herausgeber Jürgen Kaube, ‹jeder Zoll
+eine Charakternatur, im Felde der Opportunität unbesiegt›, so Klonovsky ironisch. Der Spiegel notiere, nach
+Kaube seien die Äusserungen des Vize-Bundeskanzlers von gesellschaftswissenschaftlich informierter und
+lebensweltlich grundierter Reflexion geprägt. «In den Zwängen der Politik erkämpft er sich auf beeindrukkende Weise Freiräume durch Nachdenklichkeit.»
+
+
+-----
+
+Robert Habeck erhalte den Preis also für seine Nachdenklichkeit, bemerkt Michael Klonovsky und kommt
+nun auf den zentralen Punkt. Dies sei ‹ein etwas vergiftetes Lob› schreibt er, denn Friedrich Nietzsche habe
+erkannt «dass ein Gedanke kommt, wenn ‹er› will, und nicht, wenn ‹ich› will».
+Und M. Klonovsky fügt sarkastisch seine Beobachtung an: «Was kann unser Grüner dafür, wenn nie, ich
+wiederhole: nie ein eigener Gedanke in seinem nachdenklichen Kopf vorstellig werden wollte?» 1
+
+**Von der Schwierigkeit des Denkens**
+
+Nietzsche, der gewiss die Anstrengung des Denkens nicht scheute, bemerkte, wie schwer es ist, zu Gedanken zu kommen, die aus der eigenen logischen Denkbewegung von Begriff zu Begriff errungen werden, wie
+sich vielfach Gedanken einstellen, die man sozusagen gar nicht gerufen hat. Jeder kann das bei einiger Aufmerksamkeit bei sich selber feststellen. Nur die wenigsten Gedanken entstammen im allgemeinen eigener
+kontrollierter Denkanstrengung. Die meisten Gedanken werden von anderen Menschen übernommen oder
+sind uns eben ohne unser Zutun so ‹eingefallen›
+Doch wenn Nietzsche formuliert: «Der Gedanke kommt, wenn er will, und nicht, wenn ich will», muss man
+das doch noch genauer fassen. Der Gedanke selbst hat ja keinen Willen. Er ist kein Wesen, das sich willentlich entschliessen könnte, in unser Bewusstsein zu kommen. Er muss immer von einem Wesen gedacht
+sein, von dessen Willen er geführt wird. Das hat die logische Konsequenz, dass jeder uns so ‹eingefallene›
+Gedanke von einem Wesen stammen muss, das ihn in unser Bewusstsein ‹ein-fallen› lässt. Und das müssen
+Wesen sein, die nicht physisch wahrnehmbar sind, die aber uns seelisch wahrnehmen können.
+In früheren Zeiten sprach man von Inspirationen durch geistige Wesen, die uns umgeben. Das können verstorbene Menschen sein, Engel, Christus oder eben auch menschenfeindliche Wesen des Bösen, die uns
+unaufhörlich beeinflussen und unsere Gesinnungen und Handlungen in ihrem Sinne lenken wollen.
+
+_(Pixabay)_
+
+Im Volksbewusstsein war das noch in vergangenen Jahrhunderten lebendig und kam in alten Volksschauspielen wie den ‹Oberuferer Weihnachtsspielen› zum Ausdruck. Im ‹Dreikönigsspiel› z.B., in dem die Heiligen
+Dreikönige bei König Herodes in Jerusalem vorstellig werden, um ihn nach dem Weg nach Bethlehem zu
+dem neu geborenen König zu fragen, tritt auch der Satan als lebendige Gestalt auf. Da Herodes nicht der
+rechte König war, sondern durch Gewalt König wurde, erschrickt er in höchstem Masse und beschliesst,
+das Kind umbringen zu lassen. Als er allein ist, und die Schwierigkeit sieht, das ihm gefährliche Kind unter
+den vielen kleinen Kindern der Stadt herauszufinden, tritt der Satan hinter ihn und flüstert ihm ins Ohr:
+«Dass di weder weib no kind erboarm / Und gleich sei reich oder oarm, / Da musst du’s wagn an solchn
+zorn, / Dass d’nit schonst selbst, was ungeborn. / Du musst umbringa alle Knäbelein / Die zwajärig und
+darunter sein!»
+Gedanken, die von anderen Menschen stammen oder – vielfach noch emotional aufputschend – in unserem
+Bewusstsein aufsteigen, ohne dass sie aus eigenem kontrolliertem Denkprozess hervorgegangen sind, dürfen niemals naiv übernommen, sie müssen stets auf ihre Qualität und ihre Konsequenzen im Leben überprüft werden. Alles andere ist verantwortungslos. Denn man ist dann nur Ich-loser Vervielfältiger und Getriebener fremder Motive.
+
+**Krieg oder Frieden**
+
+Diese Verantwortungslosigkeit können wir jedoch in der Gegenwart in weitestem Masse beobachten. Man
+kann sich doch nicht einbilden, dass die medial verbreitete widersinnige Forderung, in der Ukraine Frieden
+durch sich steigernde Waffenlieferungen, also die Fortsetzung des Krieges, zu erreichen, ein menschlicher
+Gedanke sei, dass er nicht von menschenfeindlichen Wesen inspiriert wird, die eben grösstmögliche Vernichtung alles Menschlichen und unendliches Leid beabsichtigen. Wer von Frieden spricht und gleichzeitig
+für die Fortsetzung des Krieges mit immer schwereren Waffen plädiert, ist schizophren umnebelt und in
+seinem Denken und Wollen von Wesen des Bösen getrieben.
+So hat Robert Habeck in einem ARD-Brennpunkt die von Sarah Wagenknecht und Alice Schwarzer initiierte
+Friedensdemonstration scharf kritisiert, meldete die ‹Welt›:
+
+
+-----
+
+**«Jeder, der bei Sinnen und Verstand ist, wünscht sich Frieden», sagte er.**
+
+**Aber Wagenknecht und die ihr folgenden Leute wollten etwas als Frieden verkaufen,**
+
+**was ein ‹imperialistischer Diktator› Europa aufzwinge.**
+
+Auch Habeck, der sich bei Sinnen und Verstand wähnt, will angeblich Frieden. Doch um die Friedensbemühungen von Wagenknecht und Schwarzer ablehnen zu können, schiebt er ihnen wahrheitswidrig unter, sie
+wollten einen Frieden im Sinne der Ziele Putins. Dabei plädieren sie in ihrem ‹Manifest für Frieden› für
+einen ‹baldmöglichen Waffenstillstand und Verhandlungen›. Daraus kann ja erst hervorgehen, ob und unter
+welchen Bedingungen es zu einem Frieden kommt. Habeck lügt also, um die Friedensbemühungen abzulehnen und den Krieg fortzusetzen. Er ist, nach seinen eigenen Worten, ‹nicht bei Sinnen und Verstand›.
+Ausserdem behauptet er, Putin sei ein ‹imperialistischer Diktator›, der seinen Willen Europa aufzwingen
+wolle, und setzt fort: Wenn sich das durchsetze, wäre das eine Einladung an den russischen Präsidenten
+Wladimir Putin und alle ‹Irren in dieser Welt›, die nächsten Länder zu überfallen. «Das ist kein Frieden, das
+ist eine Chimäre, die da aufgebaut wird, das ist eine politische Irreführung der Bevölkerung.»2
+Woher weiss er das? Diese Gedanken sind nicht Ergebnisse eines eigenen Erkenntnisprozesses, die auf
+nachgewiesenen Begründungen beruhen. Er hat sie von Vorflüsterern übernommen, oder sie sind ihm aus
+dem genannten Hintergrund in den Kopf geschossen. Schon geringe zeitgeschichtliche Nachforschungen
+führen zu der Erkenntnis, dass gerade die USA die globalen Imperialisten sind, die Russland schwächen,
+einen Regime-Change herbeiführen und in ihren politischen, wirtschaftlichen und kulturellen Einflussbereich bringen wollen. Was haben die USA in der Ukraine zu tun – die eine enge kulturelle Vergangenheit
+und Verwandtschaft mit Russland hat –, wo sie einen antirussischen Regime-Chance herbeigeführt, die
+Armee aufgerüstet haben und diese in Wahrheit einen US-Stellvertreterkrieg gegen Russland führen lassen.
+Was würden die USA für ein Geschrei erheben und kurzen Prozess machen, wenn die Russen Mexiko gegen
+die USA mobilisierten und Raketen installierten, die in 5 oder 10 Minuten Washington erreichen und zerstören können?
+Wer hier eine ‹politische Irreführung der Bevölkerung› in grösstem Stile betreibt, ist Robert Habeck und das
+gesamte deutsche Parteien-Regime in ergebenem Vasallen-Dienste des Welt-Imperialisten.
+Sie reden vom Frieden und betreiben den Krieg ‹bis zum Sieg der Ukraine›, ‹Putin dürfe nicht gewinnen›.
+Sie streben in Wahrheit keinen Frieden an, wollen das gegenseitige barbarische Abschlachten nicht beenden, um Verhandlungslösungen Platz zu machen, sondern verfolgen Kriegsziele der USA auf Kosten weiterer unendlicher Zerstörungen und Tötung von Menschenleben.
+Das sind keine menschlichen, sondern diabolische Menschen-Vernichtungs-Gedanken, die in ihre Ich-leeren Köpfe eindringen, sie geradezu von sich besessen machen und zu ihren Vernichtungs-Taten vorwärtstreiben.
+Ob wir erkennen und dafür aufwachen, dass unser Bewusstsein der Schauplatz nicht nur unserer eigenen
+mühsam errungenen Gedanken, sondern auch der Gedanken anderer, insbesondere böser Wesen ist, die
+um und gegen den Menschen kämpfen, entscheidet über Krieg oder Frieden und die Zukunft der Menschheit. Wir sind für das verantwortlich, was wir denken. Die Konsequenzen werden auf uns zurückkommen.
+Der Krieg muss im Inneren des Menschen, in seinem Bewusstsein ausgefochten werden. Sowie er herausgesetzt wird und in der äusseren Realität stattfindet, haben ihn die Menschen in ihrem Inneren bereits
+verloren.
+_1  https://www.klonovsky.de/2023/02/19-februar-2023/_
+_2  welt.de 25.2.2023_
+_Siehe vertiefend: https://fassadenkratzer.wordpress.com/2020/10/14/ihr-wisst-wie-wir-in-tief-verruchten-stunden-_
+_vernichtung-sannen-menschlichem-geschlecht/_
+_Quelle: https://fassadenkratzer.wordpress.com/2023/03/03/der-getriebene-noch-nie-wollte-ein-eigener-gedanke-in-_
+_seinem-kopf-vorstellig-werden/_
+
+##### Damals war es noch möglich:
+ So berichteten die Medien im 2014 über die Ukraine
+
+_uncut-news.ch, März 3, 2023, European Commission/Dati Bendo_
+
+
+-----
+
+Noch 2014 berichtete CNN, dass Bewohner der Stadt Donezk in der Ostukraine sagten, sie würden von
+ihrem eigenen Präsidenten getötet.
+Alexander Omeljavenko, ein Einwohner von Donezk, sagte gegenüber CNN: «Wir sind Ukrainer, aber sie
+bringen uns um, also sollten wir uns wohl abspalten und selbst ein Land gründen. Denn diese Leute in Kiew
+sind nicht unsere Brüder.»
+Eine andere Bewohnerin, Victoria Khrushova, wischte sich die Augen trocken, als sie erzählte, dass ihre
+Familie wegen der Bombardierungen in Kellern Schutz suchen musste.
+
+Bei diesen Bombardierungen in und um Donezk wurden viele Zivilisten getötet. CNN sprach von einer
+‹humanitären Katastrophe›. Das UN-Flüchtlingshilfswerk UNHCR gab an, dass bis zum 1. September 2014
+rund 260’000 Menschen vertrieben worden seien.
+«Es gab einen Krieg und dies ist der zweite Krieg. Ich wurde 1940 während des Zweiten Weltkriegs geboren
+und werde wahrscheinlich sterben, bevor dieser Krieg vorbei ist», sagte Valentina Sergeevna aus Donezk.
+Walentina Popowa, die bei Bombenangriffen einen Arm und ein Bein verloren hat, flehte den damaligen
+Präsidenten Poroschenko an, den Krieg zu beenden. «Seien Sie ein Mann. Seien Sie menschlich. Bitte stoppen Sie Ihre Aggression.»
+Der russische Aussenminister Lawrow sagte, Washington und Brüssel sollten die Behörden in Kiew auffordern, die Bombardierung von Häusern, Schulen und Krankenhäusern einzustellen.
+Die ukrainische Armee bombardiert heute im 2023 immer noch Häuser, Schulen und Krankenhäuser im
+Osten des Landes.
+Ukrainische Soldaten leben übrigens nicht sehr lang. Die meisten Ukrainer, die in Bachmut eingesetzt werden, sind innerhalb von vier Stunden tot.
+Ein pensionierter US-Marine, der in der Ukraine kämpft, sagte gegenüber ABC News, dass die Frontlinie ein
+‹Fleischwolf› ist, bei dem die Soldaten im Durchschnitt ‹vier Stunden› überleben.
+_Quelle: https://uncutnews.ch/damals-war-es-noch-moeglich-so-berichteten-die-medien-im-2014-ueber-die-ukraine/_
+
+##### Viktor Orban: «In einem Krieg, der in Europa stattfindet,
+ haben die Amerikaner das letzte Wort!»
+
+_uncut-news.ch, März 6, 2023, Getty Images_
+
+
+-----
+
+Der ungarische Ministerpräsident Viktor Orbán hat in einem neuen Interview mit der Schweizer Wochenzeitung ‹Weltwoche› gesagt, dass die Führung seines Landes ‹stark genug ist, um den Krieg von unserem
+Land fernzuhalten›. Gleichzeitig betonte er, dass Washington im Ukraine-Konflikt das letzte Wort hat.
+Er sprach auch den Stellvertreterkriegscharakter des Konflikts an: «Es gibt einige, die Ungarn in den Krieg
+zwingen wollen, und sie sind nicht wählerisch, mit welchen Mitteln sie dieses Ziel erreichen wollen.»
+«Die Ukraine ist unser Nachbar, in dem auch Ungarn leben», fuhr er fort. «Sie werden eingezogen und sterben zu Hunderten an der Front.» Die ungarische Regierung protestiert seit Langem gegen diese Praxis und
+hat ihre Beschwerden in Kiew vorgetragen.
+«Europa hat sich aus der Debatte zurückgezogen», beklagte Orban, dass die EU-Länder von Washington in
+die Konfrontation mit Moskau hineingezogen werden. «In den Entscheidungen, die in Brüssel getroffen werden, erkenne ich häufiger amerikanische Interessen als europäische.»
+«In einem Krieg, der sich in Europa abspielt, haben die Amerikaner das letzte Wort», betonte er in dem
+Interview.
+In jüngster Zeit hat Ungarn seine mangelnde Bereitschaft gezeigt, sich dem Rest der NATO anzuschliessen,
+indem es eine Abstimmung über die Ratifizierung der Beitrittsanträge Schwedens und Finnlands verzögerte.
+In einem Bericht der Associated Press vom Donnerstag heisst es: «Die Verzögerung, die die Abstimmung
+um zwei Wochen auf die am 20. März beginnende Parlamentssitzung verschiebt, kommt daher, dass Ungarn neben der Türkei das einzige NATO-Mitgliedsland ist, das die Beitrittsgesuche der beiden nordischen
+Länder zum westlichen Militärbündnis noch nicht genehmigt hat. Der Bericht zeigt:
+Der populistische ungarische Ministerpräsident Viktor Orban hat erklärt, dass er persönlich für einen NATOBeitritt der beiden Länder ist, wirft den Regierungen in Stockholm und Helsinki jedoch vor, ‹eklatante Lügen›
+über Ungarn zu verbreiten, die bei den Abgeordneten seiner Partei Zweifel an der Zustimmung zu den
+Bewerbungen aufkommen liessen.
+«Es ist nicht richtig, dass sie uns auffordern, sie an Bord zu nehmen, während sie eklatante Lügen über
+Ungarn, über die Rechtsstaatlichkeit in Ungarn, über unsere Demokratie und über das Leben hier verbreiten», beschwerte sich Orban. «(Wie) kann jemand unser Verbündeter in einem militärischen System sein
+wollen, während sie schamlos Lügen über Ungarn verbreiten? Lassen Sie uns also auf ein freundliches Wort
+innehalten und sie fragen, wie das sein kann.» Aber selbst wenn Budapest bereit wäre, seine Zustimmung
+zu erteilen, ist der Widerstand der Türkei noch grösser, so dass Schweden und Finnland dem Bündnis
+wahrscheinlich nicht so bald beitreten werden.
+Orban hat sich kürzlich auch mit anderen europäischen Staats- und Regierungschefs über den 10-PunkteFriedensplan Chinas zur Beilegung des Ukraine-Krieges zerstritten. Er war die einzige westliche Stimme,
+die ihre Zustimmung zum Ausdruck brachte. «Auch wir halten Chinas Friedensplan für wichtig und unterstützen ihn», sagte der ungarische Regierungschef am vergangenen Montag vor dem Parlament. Er bekräftigte auch Ungarns Position, dass es keine Waffen an Kiew liefern werde.
+_QUELLE: VIKTOR ORBAN: "IN A WAR TAKING PLACE IN EUROPE THE AMERICANS HAVE THE FINAL WORD"_
+_Quelle: https://uncutnews.ch/viktor-orban-in-einem-krieg-der-in-europa-stattfindet-haben-die-amerikaner-das-letzte-wort/_
+
+##### Von Fachleuten geprüfte wissenschaftliche Literatur wurde veröffentlicht:
+ «Die mRNA-Impfstoffe sind weder sicher noch wirksam, 
+ sondern geradezu gefährlich!»
+
+_T.H.G., März 6, 2023, Steve Kirsch_
+
+_Symbolbild von verschiedenen medizinischen Fachzeitschriften_
+
+
+-----
+
+Falls Sie es verpasst haben. Jede Gesundheitsbehörde auf der Welt sollte die Öffentlichkeit vor diesem Problem warnen. Das Papier wurde am 21. September 2022 veröffentlicht.
+
+###### Zusammenfassung
+
+COVID-19-Impfstoffe – Ein australischer Bericht wurde am 21. September 2022 in der wissenschaftlichen
+Fachliteratur mit Peer-Review veröffentlicht.
+
+**Hier sind die zwei Sätze aus dem Papier, die jeder lesen sollte:**
+
+**Eine weltweite Bayes’sche Kausalanalyse legt nahe, dass die COVID-19-Gentherapie (mRNA-Impfstoff)**
+**mehr COVID-19-Fälle pro Million und mehr Nicht-Covid-Todesfälle pro Million verursacht, als mit COVID-**
+**19 in Verbindung gebracht werden [43].**
+**Eine Fülle von Studien hat gezeigt, dass die mRNA-Impfstoffe weder sicher noch wirksam, sondern**
+**schlichtweg gefährlich sind.**
+
+**Weitere wichtige Erkenntnisse aus dem Papier**
+
+Wenn Sie keine Zeit haben, das gesamte Papier zu lesen, hier einige der wichtigsten Punkte. Hier sind einige
+weitere direkte Zitate aus dem Papier:
+COVID-19-Impfstoffe verursachen mehr Nebenwirkungen als alle anderen Impfstoffe.
+Nicht nur Spike-Proteine verursachen unerwünschte Nebenwirkungen, sondern auch mRNA und Nanopartikel.
+Noch nie in der Geschichte der Impfstoffe gab es 1011 Fallstudien, in denen Nebenwirkungen eines Impfstoffs beschrieben wurden (https://www.saveusnow.org.uk/covid-vaccine-scientific-proof-lethal).
+Auch hier ist es unvorstellbar, warum es unmöglich sein soll, die Studiendaten in ein paar Monaten durchzugehen, wo doch die CDC weniger als vier Wochen benötigte, um die Injektionen für den Notfall zuzulassen
+– es sei denn, man möchte sich auf die Idee einlassen, dass die Studiendaten nie wirklich gelesen und geprüft wurden, eine erschreckende Perspektive.
+Die offizielle öffentliche Botschaft lautet, dass die mRNA-Impfstoffe sicher sind. Die Therapeutic Goods
+Administration (TGA), die Arzneimittel- und Therapieregulierungsbehörde der australischen Regierung,
+weist jedoch auf ihrer Website ganz klar darauf hin, dass die grossangelegten Studien noch nicht abgeschlossen sind und von keinem Unternehmen ein vollständiges Datenpaket eingegangen ist.
+Es wurde angenommen, dass die mRNA-Impfstoffe an der Injektionsstelle verbleiben und vom Lymphsystem aufgenommen werden. Diese Annahme hat sich als falsch erwiesen. Bei der Autopsie einer geimpften Person, die nach einer mRNA-Impfung gestorben war, wurde festgestellt, dass sich der Impfstoff schnell
+von der Injektionsstelle ausbreitet und in fast allen Teilen des Körpers zu finden ist [1]. … Die Forschung
+hat gezeigt, dass solche Nanopartikel die Blut-Hirn-Schranke und die Blut-Plazenta-Schranke überwinden
+können.
+Obwohl sie nicht in der Lage waren, einen kausalen Zusammenhang mit Impfstoffen nachzuweisen, da
+keine Autopsien durchgeführt wurden, sind sie dennoch der Meinung, dass ein Zusammenhang mit Impfungen möglich ist und weitere Analysen gerechtfertigt sind.
+Zusammenfassend lässt sich sagen, dass nicht bekannt ist, wohin genau der Impfstoff nach der Injektion
+wandert und wie viel Spike-Protein in welchen (und wie vielen) Zellen produziert wird.
+Die S1-Untereinheit des SARS-CoV-2-Spike-Proteins löste nach Injektion in transgene Mäuse, die menschliches ACE-2 überexprimieren, eine COVID-19-ähnliche Reaktion aus. Ferner wurde gezeigt, dass die S1Untereinheit des Spike-Proteins, wenn sie roten Blutkörperchen in vitro zugesetzt wird, die Gerinnung auslösen kann.
+Die Autoren fanden eine konsistente Veränderung der Genexpression nach der Impfung in vielen verschiedenen Arten von Immunzellen.
+Seneff et al. (2022) beschreiben einen weiteren Mechanismus, durch den die mRNA-Impfstoffe die DNAReparatur beeinträchtigen könnten.
+Es ist eine erstaunliche Tatsache, dass die natürliche Immunität von den Gesundheitsbehörden in aller Welt
+völlig ausser Acht gelassen wird. Von SARSCoV-1 wissen wir, dass die natürliche Immunität dauerhaft ist
+und mindestens 12–17 Jahre anhält [17]. Immunologen vermuten, dass die Immunität gegen SARS-Cov-2
+nicht anders ist
+Die durch eine COVID-Infektion induzierte Immunität ist robust und lang anhaltend.
+mRNA-Impfstoffe scheinen Interferon-Reaktionen zu unterdrücken. Eine Literaturübersicht von Cardozo
+und Veazev [26] kam zu dem Schluss, dass COVID-19-Impfstoffe die COVID-19-Krankheit möglicherweise
+verschlimmern könnten.
+Die natürliche Immunität wird in Australien immer noch nicht als Beweis für die Immunität anerkannt.
+In einer Studie an der Universität von Kalifornien wurden die Infektionen in der Belegschaft nachverfolgt,
+nachdem bis März 2021 76% und bis Juli 2021 86,7% vollständig mit mRNA-Impfstoffen geimpft worden
+waren Im Juli 2021 hatten 75 2% der vollständig geimpften Belegschaft symptomatische COVID
+
+
+-----
+
+Sowohl Acharya et al. (2021) als auch Riemersma et al. (2021) zeigten, dass die Geimpften eine ähnlich
+hohe Viruslast aufweisen wie die Ungeimpften und daher genauso infektiös sind.
+Brown et al. (2021) und Servelitta et al. (2021) wiesen darauf hin, dass geimpfte Personen mit symptomatischen Infektionen durch Varianten wie Delta genauso infektiös sind wie symptomatische ungeimpfte Fälle
+und zur Ausbreitung von COVID selbst in stark geimpften Gemeinschaften beitragen.
+Länder mit höheren Impfraten haben auch höhere Fallzahlen. Es hat sich gezeigt, dass der Median der
+neuen COVID-19-Fälle pro 100’000 Menschen weitgehend dem Prozentsatz der vollständig geimpften
+Bevölkerung entspricht.
+Mehrere neuere Studien deuten darauf hin, dass Geimpfte mit grösserer Wahrscheinlichkeit mit Omicron
+infiziert sind als Ungeimpfte. Eine Studie von Kirsch (2021) aus Dänemark deutet darauf hin, dass Personen, die die mRNA-Impfstoffe erhalten haben, ein bis achtmal höheres Risiko haben, an Omicron zu erkranken, als Personen, die nicht geimpft wurden [40]. Diese und eine spätere Studie von Kirsch (2022a) kommen zu dem Schluss, dass man umso anfälliger für eine COVID-19-Infektion wird, je mehr man sich impfen
+lässt [41].
+Dies muss im Zusammenhang mit dem geringen Risiko gesehen werden, an COVID-19 zu sterben… Die
+Wahrscheinlichkeit, dass jemand unter 18 Jahren an COVID stirbt, liegt bei 0%. Diejenigen, die sterben,
+haben in der Regel eine schwere Grunderkrankung. Schätzungen zufolge ist das Risiko für Kinder, an einer
+Grippe zu sterben, siebenmal höher als an COVID-19. (Anmerkung des Herausgebers: Warum schreiben
+die Hochschulen dann den COVID-Impfstoff und nicht den Grippeimpfstoff vor?]
+OK, das Papier ist 18 Seiten lang und das waren nur Auszüge aus den ersten drei Seiten. Sehen Sie das
+Bild?
+
+**Auszüge aus der Schlussfolgerung**
+
+Noch nie in der Geschichte der Impfstoffe haben 57 führende Wissenschaftler und politische Experten
+einen Bericht veröffentlicht, der die Sicherheit und Wirksamkeit eines Impfstoffs infrage stellt. Sie stellten
+nicht nur die Sicherheit der derzeitigen Covid-19-Injektionen infrage, sondern forderten ein sofortiges Ende
+aller Impfungen. Viele Ärzte und Wissenschaftler auf der ganzen Welt haben ähnliche Bedenken geäussert
+und vor den Folgen von Langzeitnebenwirkungen gewarnt. Dennoch werden Studien, die der Darstellung
+über die Sicherheit und Wirksamkeit der Covid-19-Impfung widersprechen, nicht diskutiert oder gar erwähnt.
+Medizinische Experten, die die Sicherheit dieser Impfstoffe in Frage gestellt haben, wurden angegriffen und
+dämonisiert, als Verschwörungstheoretiker bezeichnet und mit der Streichung aus dem Register bedroht,
+wenn sie sich gegen das Narrativ stellen. Alternative Behandlungsmethoden wurden verboten, und Menschen, die nie als Mediziner tätig waren, schreiben erfahrenen Ärzten vor, wie sie ihre Arbeit zu tun haben.
+Die AHPRA tut das Gleiche hier in Australien, zum Schaden und in Unkenntnis der Wissenschaft.
+
+**Der letzte Absatz bringt es auf den Punkt**
+
+Als Wissenschaftler stellen wir Hypothesen auf und prüfen sie durch Experimente. Auch wenn sich eine
+Hypothese nach dem derzeitigen Wissensstand als wahr erweist, kann sie sich im Laufe der Zeit ändern,
+wenn neue Erkenntnisse ans Licht kommen. Die Weitergabe und Anhäufung von Wissen ist daher der wichtigste Teil der Wissenschaft. Es stellt sich die Frage, wann und warum dieser Prozess der Wissenschaft verändert wurde. Eine Diskussion über neue Erkenntnisse, die die Sicherheit der COVID-19-Impfstoffe infrage
+stellen, ist nicht zulässig. Wer hat den Bürokraten die Mittel in die Hand gegeben, die Grundlagen der Wissenschaft zu zerstören und den Wissenschaftlern zu verbieten, über die Wissenschaft zu diskutieren?
+
+**Ist das Papier glaubhaft?**
+
+Ich war sehr überrascht von dieser Arbeit. Die Autoren waren sehr gründlich.
+Das Papier ist seit dem 21. September 2022 öffentlich zugänglich, was mehr als genug Zeit für Wissenschaftler ist, es zu hinterfragen. Soweit mir bekannt ist, wurden keine Fehler festgestellt, die die Aussagen
+oder Schlussfolgerungen des Papiers ändern würden.
+Wie löst man Konflikte in wissenschaftlichen Arbeiten?
+Natürlich gibt es viele Veröffentlichungen, die besagen, dass die COVID-Impfstoffe lebensrettend sind. Die
+veröffentlichten Papiere sind oft völlig falsch.
+Einer meiner absoluten Favoriten ist die im NEJM veröffentlichte Arbeit von Barda, weil sie auf einer ACIPTagung verwendet wurde, auf der sie Abbildung 3 zeigte. Als ich sah, dass sie zeigte, dass der Impfstoff das
+Risiko einer Lungenembolie drastisch senkt, konnte ich nicht glauben, dass irgendjemand diese Arbeit ernst
+genommen hat.
+Um es klar zu sagen: Es gibt keinen möglichen Wirkmechanismus, der das Risiko einer Lungenembolie verringern kann.
+
+
+-----
+
+In der X-Faktor-Analyse, die ich vor langer Zeit veröffentlicht habe, war die Melderate für Lungenembolien
+954-mal höher als der Ausgangswert. Das kann nicht passieren, wenn die Impfstoffe die Lungenembolierate
+senken.
+Die CDC selbst weiss, dass ‹Lungenembolie› ein ‹Sicherheitssignal› in VAERS ausgelöst hat, aber sie hat es
+nie untersucht. Die Raten von Lungenembolien bei den COVID-Impfstoffen sind im Vergleich zu allen anderen Impfstoffen unübertroffen.
+Die Lungenembolie war nur eines von über 700 Sicherheitssignalen in VAERS, die von der CDC in einem
+FOIA-Antrag gemeldet wurden. Die CDC hat sich nie die Mühe gemacht, die Öffentlichkeit vor einem dieser
+Sicherheitssignale (einschliesslich ‹Tod›) zu warnen, weil sie keine Bedenken gegen den Impfstoff wecken
+wollte.
+Im Allgemeinen gelten Übersichtsartikel als die aussagekräftigsten Arbeiten. Wenn es also zu Meinungsverschiedenheiten kommt, können wir uns oft an den Übersichtsartikeln orientieren, da diese Artikel versuchen, widersprüchliche Beweise zu klären.
+
+**Die vorliegende Arbeit war eine Übersichtsarbeit!**
+
+Es stellt sich also die Frage, ob es eine umfassendere Arbeit gibt, die denselben Literaturbestand untersucht
+und zu einem gegenteiligen Ergebnis kommt.
+Es gab einen Cochrane-Review, der nach dieser Arbeit (im Dezember 2022) unter dem Titel Efficacy and
+safety of COVID-19 vaccines erschien. Dabei handelte es sich jedoch lediglich um eine Überprüfung der
+randomisierten Studien, und im Gegensatz zu der vorliegenden Arbeit wurden darin keine Daten zu unerwünschten Ereignissen ausserhalb der Hauptstudien untersucht. Auch die Qualität der Studien wurde nicht
+infrage gestellt.
+Wenn man sich nur auf die Studiendaten beschränkt und alle Hinweise auf Manipulationen ausser Acht
+lässt, sehen die Impfstoffe gut aus. Es ist absolut verblüffend, wie der Cochrane-Review all die Anomalien
+bei den Studien völlig übersehen hat, nicht wahr? Siehe diese beiden Artikel: Adverse events in Pfizer trial
+may have been underreported by 8X or more und Pfizer Phase 3 clinical trial fraud allegations that should
+be immediately investigated by the FDA. In den Abschnitten über die Einschränkungen wird nicht einmal
+erwähnt, dass sie im Grunde davon ausgingen, dass die Arzneimittelhersteller ehrlich sind und beschlossen
+haben, all die offensichtlichen Daten zu ignorieren, dass die Studien manipuliert wurden. Die Beweise für
+die Manipulationen sind schon seit langem öffentlich zugänglich. Cochrane hat sie ignoriert.
+In der Cochrane-Studie heisst es jedoch: «Es gibt keine ausreichenden Belege für Todesfälle im Vergleich
+zwischen Impfstoffen und Placebo (vor allem, weil die Zahl der Todesfälle gering war).»
+Kurz gesagt, selbst nach Ansicht des positivsten Dokuments gibt es keine Beweise dafür, dass die Impfstoffe
+die Sterblichkeit verringert haben.
+Ausserdem gab es in der Pfizer-Studie mehr Todesfälle in der Impfstoffgruppe als in der Placebogruppe.
+In der Behandlungsgruppe gab es 4mal so viele Herztodfälle. Woher wissen wir mit Sicherheit, dass keiner
+dieser Todesfälle durch den Impfstoff verursacht wurde? Hat irgendein Gesundheitsbehörde irgendwo auf
+der Welt Pfizer gebeten, uns die histopathologischen Befunde zu zeigen, die an den Menschen durchgeführt
+wurden, die in ihrer Studie gestorben sind, und die beweisen, dass der Impfstoff niemanden in der Behandlungsgruppe getötet hat? Nein, natürlich nicht. Als ich Pfizer um diese Daten bat, wies man mich ab.
+Da es keine aktuellere, umfassendere Übersichtsarbeit gibt, legt das Vorsorgeprinzip der Medizin nahe,
+dass diese Arbeit so lange kontrolliert werden sollte, bis sie sich als falsch erweist.
+So sollte die Wissenschaft funktionieren. Jede Gesundheitsbehörde der Welt sollte die Öffentlichkeit JETZT
+über diese Studie informieren. Wenn sie nicht eine neuere, umfassendere Übersichtsarbeit zitieren können,
+die zu einem gegenteiligen Ergebnis kommt, sollte jede Gesundheitsbehörde (einschliesslich der CDC)
+jeden über diese Arbeit informieren.
+Ich bin sicher, dass sie das sofort tun werden, oder? Genauso wie sie die Öffentlichkeit über die Vorteile der
+Aufrechterhaltung eines normalen Vitamin-D-Spiegels informieren.
+Wenn Sie einen unzureichenden Vitamin-D-Spiegel haben, können Sie Ihr Risiko, an COVID zu erkranken,
+erheblich senken, indem Sie den Mangel beheben.
+
+
+-----
+
+Die Gesundheitsbehörden haben in diesem Fall hervorragende Arbeit geleistet, um die Nachricht zu verbreiten, nicht wahr? Ich habe keine einzige öffentliche Bekanntmachung gesehen. Und Sie?
+Dr. Joe Mercola spricht schon seit Jahren über Vitamin D für COVID. Deshalb steht er auf der Liste der
+Desinformationsverbreiter des Weissen Hauses auf Platz 1.
+Ich kenne eine Top-Wissenschaftlerin bei der CDC (die auch MD und MPH ist), die wollte, dass die CDC
+Vitamin D untersucht. Sie schickte über 750 E-Mails zu diesem Thema. Sie wurde jedes Mal von ihren
+Vorgesetzten ignoriert. Nach 10 Jahren bei der Behörde hat sie die Nase voll; sie verlässt die CDC nächsten
+Monat.
+Mein Tweet über das Papier
+
+**Hier ist mein Tweet dazu**
+
+Die Mainstream-Medien haben keine Verantwortung, darüber zu berichten. Im Gegensatz zu den Vertretern
+des öffentlichen Gesundheitswesens haben die Mainstream-Medien nicht die Pflicht, darüber zu berichten.
+In der Tat werden die Mainstream-Medien dafür sorgen, dass NIEMAND etwas über diese Studie erfährt.
+Sie werden weiterhin die falschen Darstellungen der Regierung verbreiten, egal wie viele Menschen getötet
+werden und egal, was die von Fachleuten überprüfte Wissenschaft sagt. Niemand will wegen dieser Sache
+seinen Job verlieren!
+
+**Über das Journal**
+
+Clinical & Experimental Immunology ist eine von Experten begutachtete medizinische Fachzeitschrift für
+klinische und translationale Immunologie. Die Chefredakteurin ist Leonie Taams. Sie wird von Oxford
+University Press im Auftrag der British Society for Immunology herausgegeben, deren offizielle Zeitschrift
+sie ist.
+
+**Andere Kritiken zu diesem Papier**
+
+Siehe Peters Tweet:
+
+
+-----
+
+Wird sich irgendjemand entschuldigen? Es wird keine Entschuldigungen geben, weil die Wissenschaft einfach keine Rolle mehr spielt. Was meinen Sie dazu?
+
+**Zusammenfassung**
+
+Sie ist jetzt in der wissenschaftlichen Fachliteratur zu finden:
+Die mRNA-Impfstoffe sind weder sicher noch wirksam, sondern schlichtweg gefährlich.
+Wir alle, die wir Fehlinformationen verbreiteten, hatten also doch recht. Was für eine Überraschung.
+Erwarten Sie aber keine Entschuldigung. Sie werden die Impfstoffe weiterhin verteidigen, weil sie sonst
+schlecht dastehen würden, weil sie sie überhaupt empfohlen haben.
+Die Gesundheitsbehörden, die medizinische Fachwelt und die Mainstream-Medien werden diese Studie
+also ignorieren. Deshalb ist es so wichtig, dass Sie diesen Artikel verbreiten. Bitte!
+_QUELLE: NOW PUBLISHED IN THE PEER-REVIEWED SCIENTIFIC LITERATURE: "THE MRNA VACCINES ARE_
+_NEITHER SAFE NOR EFFECTIVE, BUT OUTRIGHT DANGEROUS"_
+_Quelle: https://uncutnews.ch/von-fachleuten-gepruefte-wissenschaftliche-literatur-wurde-veroeffentlicht-die-mrna-impf-_
+_stoffe-sind-weder-sicher-noch-wirksam-sondern-geradezu-gefaehrlich/_
+
+##### Benjamin Abelow: 
+ Wie der Westen den Krieg in die Ukraine brachte
+
+_Hwludwig, Veröffentlicht am 6. März 2023_
+
+**Neben dem militärischen Krieg in der Ukraine herrscht auch ein Informationskrieg. Die Vorgeschichte**
+**des russischen Einmarsches in die Ukraine wird von den verantwortlichen deutschen Politikern und den**
+**Mainstream-Medien systematisch ausgeblendet und Putin als der allein Schuldige angeprangert. Umso**
+**wichtiger ist es, Fakten dazu zu veröffentlichen, die erst ein ganzes Bild ergeben, aufgrund dessen allein**
+**ein fundiertes Urteil gefällt werden kann. Wir bringen daher einen weiteren wichtigen Artikel über die**
+**verschwiegenen Hintergründe, der zuerst im Februar-Heft der Schweizer Zeitschrift ‹Der Europäer› er-**
+**schienen ist, mit freundlicher Zustimmung von Autor und Redaktion. (hl)**
+Von Dr. Gerald Brei, Zürich
+
+Am 24. Februar 2023 jährt sich ein weltpolitisch einschneidendes Ereignis, das seitdem die Schlagzeilen
+beherrscht und die hauptsächliche Ursache aller möglichen Krisen sein soll: Der Einmarsch Russlands in
+die Ukraine, im Westen als verabscheuenswerter Angriffskrieg verteufelt, von Russland hingegen als spezielle Militäroperation zum Schutz der russisch-sprachigen Menschen im Osten der Ukraine gerechtfertigt. Der
+US-amerikanische Historiker und Mediziner Benjamin Abelow, ausgebildet an den Elite-Universitäten Pennsylvania und Yale in den USA, hat wegen des steigenden Risikos eines Atomkriegs ein schmales Buch verfasst mit dem Titel: ‹Wie der Westen den Krieg in die Ukraine brachte›. Die ‹Weltwoche› hat es in höchst
+verdienstvoller Weise als Sonderdruck ungekürzt veröffentlicht.1
+Die sachlichen und ausgewogenen Überlegungen sind ein wohltuendes Gegengewicht zu den überwiegend
+negativen und einseitigen Darstellungen in den Massenmedien, für die ausschliesslich der russische Präsident Putin die Schuld am Krieg trägt. Wer der Ansicht ist, die russische Sicht bewusst ignorieren zu dürfen
+(und etwa die Zensur von ‹Russia Today› für richtig hält, weil das nur unglaubwürdige Propaganda sei, trotz
+des alten Grundsatzes, man möge auch die andere Seite hören: «Et audiatur altera pars»), lese zumindest
+diesen Sonderdruck, um eine breitere und objektivere Urteilsgrundlage für das Geschehen in der Ukraine
+zu haben. Der Inhalt gehört zum Besten, was zur Vorgeschichte und den Hintergründen des tragischen Geschehens im Osten Europas zu finden ist.
+Das Besondere an Abelows Darstellung ist, dass er die Tatsachen für sich selber sprechen lässt und seine
+Beurteilung auf eine vorsichtige und sorgfältige Abwägung stützt. Er vertritt die Auffassung, dass das westliche Narrativ falsch ist. In wesentlichen Punkten sei es das Gegenteil der Wahrheit. Die eigentliche Ursache
+des Krieges finde sich nicht in einem ungezügelten Expansionismus Putins oder in paranoiden Wahnvorstellungen der Militärstrategen im Kreml, sondern in einer dreissigjährigen Geschichte westlicher Provokationen gegen Russland, die mit der Auflösung der Sowjetunion begannen und bis zum Beginn des Krieges
+andauerten. Diese Provokationen hätten Russland in eine untragbare Situation gebracht, für die nach Ansicht Putins und seines Militärstabs Krieg die einzige praktikable Lösung darstellte. In seiner Argumentation
+legt Abelow besonderes Augenmerk auf die USA und kritisiert sie sehr scharf, da sie bei der Gestaltung der
+westlichen Politik die entscheidende Rolle gespielt hätten. Seine Kritik am Westen ziele nicht darauf ab,
+Moskaus Invasion zu rechtfertigen oder die russische Führung von Schuld freizusprechen. Er sei kein Fürsprecher von Putin. Dieser hätte seiner Ansicht nach Alternativen zum Krieg gehabt. Aber er möchte ihn
+verstehen, indem er rational zu beurteilen versuche, welche kausale Abfolge ihn dazu bewogen habe, einen
+Krieg vom Zaun zu brechen. Nachstehend seien einige wesentliche Aspekte seiner Analyse mitgeteilt.
+
+
+-----
+
+**Westliche Provokationen**
+
+Oft werde behauptet, dass die Nato-Osterweiterung zu den Spannungen beigetragen habe. Diese Behauptung sei zwar richtig, aber eine unvollständige Sichtweise. Wenn man sich nur auf die Nato konzentriere,
+entgehe einem das ganze Ausmass und der Ernst der Zwangslage, in welche der Westen Russland gebracht
+habe. Im einleitenden Überblick fasst Abelow die wichtigsten westlichen Provokationen zusammen, die er
+im weiteren Verlauf des Buches näher erläutert und kommentiert. In den letzten drei Jahrzehnten hätten
+die USA allein oder manchmal gemeinsam mit ihren europäischen Verbündeten Folgendes getan:
+– Sie haben die Nato mehr als 1500 Kilometer nach Osten erweitert und sie unter Missachtung von Zusicherungen, welche Moskau zuvor gegeben wurden, bis an die Grenzen Russlands ausgedehnt.
+– Sie haben den ABM-Vertrag über die Begrenzung von antiballistischen Raketenabwehrsystemen einseitig
+gekündigt und antiballistische Trägersysteme in den neuen Nato-Staaten aufgestellt. Diese können auch
+offensive Nuklearwaffen, wie zum Beispiel mit Nuklearsprengköpfen bestückte Tomahawk-Marschflugkörper, aufnehmen und auf Russland abfeuern.
+– Sie haben dazu beigetragen, den Weg für einen bewaffneten, rechtsextremen Staatsstreich in der Ukraine
+zu bereiten und ihn möglicherweise sogar direkt angezettelt. Durch diesen Coup wurde eine demokratisch
+gewählte prorussische Regierung durch eine nicht gewählte prowestliche Regierung ersetzt.
+– Sie haben zahlreiche Nato-Manöver nahe der russischen Grenze durchgeführt. Dazu gehörten zum Beispiel Übungen mit scharfen Raketen, welche Angriffe auf Luftabwehrsysteme in Russland simulieren sollten.
+– Sie haben ohne zwingende strategische Notwendigkeit und unter Missachtung der Bedrohung, welche
+ein solcher Schritt für Russland bedeuten würde, der Ukraine die Aufnahme in die Nato versprochen. Die
+Nato weigerte sich später, diese Politik aufzugeben, selbst wenn dadurch ein Krieg hätte verhindert werden
+können.
+– Sie haben sich einseitig aus dem Mittelstrecken-Nuklearstreitkräfte-Vertrag zurückgezogen, was Russland
+noch anfälliger für einen Erstschlag der USA macht.
+– Sie haben im Rahmen bilateraler Abkommen das ukrainische Militär mit Waffen ausgerüstet und ausgebildet und dafür regelmässig gemeinsame Manöver in der Ukraine abgehalten. Dies hatte zum Ziel, eine
+militärische Zusammenarbeit auf Nato-Ebene (die sogenannte Interoperabilität) herzustellen, und zwar
+schon vor einer formellen Aufnahme der Ukraine in das Militärbündnis.
+– Sie haben die ukrainische Führung zu einer kompromisslosen Haltung gegenüber Russland veranlasst
+und dadurch einerseits die Bedrohung für Russland weiter verschärft und andererseits die Ukraine der Gefahr einer militärischen Reaktion Russlands ausgesetzt.
+
+**Nato-Osterweiterung entgegen westlichen Zusicherungen gegenüber Russland**
+
+Laut einer Analyse des National Security Archive an der George Washington University, wo entsprechende
+freigegebene Dokumente aufbewahrt würden, haben westliche Staatschefs während des deutschen Wiedervereinigungs-Prozesses im Jahr 1990 und bis ins Jahr 1991 hinein Gorbatschow und anderen sowjetischen
+Funktionären eine Fülle von Zusicherungen hinsichtlich der sowjetischen Sicherheit gemacht. Diese Zusicherungen betrafen nicht nur die Frage der Nato-Erweiterung auf das Gebiet der ehemaligen DDR, wie
+manchmal behauptet werde, sondern auch die Ausweitung der Nato auf die osteuropäischen Länder. Dennoch hätte die Nato innerhalb weniger Jahre begonnen, sich in Richtung der russischen Grenze auszudehnen.
+Auch wenn diese Zusicherungen nicht in formelle Verträge gegossen worden seien, wären spätere sowjetische und russische Beschwerden, hinsichtlich der Nato-Erweiterung in die Irre geführt worden zu sein, nicht
+einfach nur russische Propaganda, sondern stützten sich vielmehr auf zeitgleiche schriftliche Memoranden
+auf höchster Ebene der westlichen Regierungen. Abelow will durch die Schilderung dieses Vorfalls nicht behaupten, dass die westlichen Zusicherungen rechtsverbindlich gewesen seien oder deren Nichteinhaltung
+den Einmarsch Russlands in die Ukraine vollständig erkläre. Er möchte lediglich darauf hinweisen, dass der
+Westen versuchte, Moskau bewusst zu täuschen, und dass durch diese Situation auf russischer Seite das
+Gefühl entstand, man könne der Nato und insbesondere den USA nicht trauen.
+
+**Der Maidan-Putsch**
+
+Ende 2013 und Anfang 2014 fanden auf dem Kiewer Maidan (‹Unabhängigkeitsplatz›) regierungsfeindliche
+Proteste statt. Diese von den USA unterstützten Proteste wurden von gewalttätigen Provokateuren untergraben. Die Gewalt kulminierte schliesslich in einem Staatsstreich.
+Bei diesem übernahmen bewaffnete, rechtsextreme ukrainische Ultranationalisten Regierungsgebäude und
+zwangen den demokratisch gewählten prorussischen Präsidenten zur Flucht ins Ausland.
+Die USA spielten bei diesen Ereignissen laut Abelow eine Rolle, auch wenn das volle Ausmass ihrer Beteiligung und die Frage, ob sie die Gewalt direkt geschürt hätten, möglicherweise nie vollständig öffentlich geklärt werde. Fest stehe jedenfalls, dass die USA seit 1991 fünf Milliarden US-Dollar in von ihnen ausgewählte
+pro-demokratische Organisationen in der Ukraine gesteckt hätten, und dass sie schon einen Monat vor dem
+Staatsstreich hinter den Kulissen nach einem Nachfolger für den amtierenden Präsidenten gesucht hätten.
+
+
+-----
+
+Letzteres wurde bekannt, als ein Telefongespräch zwischen der stellvertretenden US-Aussenministerin
+Victoria Nuland und dem US-Botschafter in der Ukraine, Geoffrey Pyatt, abgehört oder geleakt und anschliessend online veröffentlicht wurde.
+Im Laufe des Gesprächs verwendete Nuland einen derben Ausdruck in Bezug auf die EU, was zu Spannungen zwischen Washington und europäischen Hauptstädten führte. Egal, welche Rolle die USA dabei gespielt
+hätten, sei Russland zu Recht davon ausgegangen, dass die Amerikaner tief verstrickt waren – auf jeden
+Fall dabei, die Grundlage für den Staatsstreich vorzubereiten, und möglicherweise auch dabei, Gewalt zu
+schüren. Russland annektierte die Krim als Gegenantwort darauf – und zum Teil aus der begründeten Sorge, dass die nach dem Staatsstreich eingesetzte Regierung beziehungsweise ihre westlichen Partner Russland den Zugang zu seinem wichtigen eisfreien Flottenstützpunkt in Sewastopol auf der Krim verwehren
+könnten, über dessen Nutzung Russland zuvor verhandelt hatte.
+
+**Zuspitzung der Provokationen 2021**
+
+Schon im Jahr 2017 hatte die Regierung von Präsident Donald J. Trump begonnen, tödliche Waffen an die
+Ukraine zu verkaufen. Das stellte eine Abkehr von der Politik der Jahre 2014–2017 dar, in denen nur nichttödliche Produkte verkauft wurden (zum Beispiel Schutzwesten und verschiedene technische Ausrüstungen). Andere Nato-Länder schlossen sich an und lieferten Waffen an die Ukraine, bildeten ihre Streitkräfte
+aus und erlaubten ihr die Teilnahme an gemeinsamen Luft- und Seemanövern.
+Im Juli 2021 veranstalteten die Ukraine und die USA gemeinsam ein grosses Marinemanöver in der
+Schwarzmeerregion, an dem Seestreitkräfte aus 32 Ländern teilnahmen. Während sie diese militärischen
+Aktivitäten aktiv fortsetzte, erklärte die Nato weiterhin, dass die Ukraine der Nato beitreten werde. Bei ihrem
+Gipfel im Juni 2021 in Brüssel bekräftigte die Nato den 2008 auf dem Gipfel in Bukarest gefassten Entschluss, dass die Ukraine ein Mitglied des Bündnisses werde. Zwei Monate später, im August 2021, unterzeichneten die Verteidigungsminister der USA und der Ukraine einen strategischen Verteidigungsrahmen
+zwischen ihren beiden Ländern. Dieser Rahmen überführte die Erklärung der Nato in eine bilaterale (amerikanisch-ukrainische) politische Entscheidung, die militärischen Verhältnisse vor Ort unverzüglich zu ändern,
+unabhängig davon, ob die Ukraine Mitglied der Nato sei oder nicht. Neun Wochen danach unterzeichneten
+die Aussenminister der beiden Staaten ein ähnliches Dokument, die Charta der strategischen Partnerschaft
+zwischen den USA und der Ukraine.
+Im Zeitraum von 2017– 2021 gab es daher nahe der russischen Grenze ein Zusammentreffen zweier Arten
+von militärischen Aktivitäten. Die eine Art bezog sich auf die bilateralen militärischen Beziehungen und beinhaltete umfangreiche Lieferungen tödlicher Waffen sowie gemeinsame Ausbildungs- und Interoperabilitätsübungen der Ukraine und des Westens, welche in der Ukraine stattfanden. Zudem wurden offensivfähige
+Raketenabschussrampen in Rumänien in Betrieb genommen – Polen sollte bald folgen. Die andere betraf
+militärische Aktivitäten der Nato selbst und umfasste Abschussübungen mit scharfen Raketen. Diese sollten
+Angriffe auf Ziele in Russland simulieren. Dass die simulierten Angriffe von einem an Russland angrenzenden Nato-Land ausgingen, das entgegen früheren Zusicherungen gegenüber Moskau in die Nato aufgenommen worden war, machte die Sache noch schlimmer. All das geschah vor dem Hintergrund einer erneuten
+Zusicherung, dass die Ukraine in die Nato aufgenommen werden würde.
+Russland empfand dieses Zusammentreffen militärischer Aktivitäten als direkte Bedrohung seiner Sicherheit. Abelow zitiert dazu Professor John J. Mearsheimer (University of Chicago):
+«Wenig überraschend empfand Moskau diese Entwicklung als untragbar und begann, seine Armee an der
+ukrainischen Grenze zu mobilisieren, um Washington gegenüber seiner Entschlossenheit zu verdeutlichen.
+Das zeigte jedoch keine Wirkung, und die Biden-Regierung näherte sich der Ukraine weiter an. Dies brachte
+Russland dazu, im Dezember [2021] eine diplomatische Pattsituation herbeizuführen. Oder wie es der
+russische Aussenminister Sergei Lawrow formulierte: ‹Wir haben unseren Siedepunkt erreicht.›» 2
+Im Dezember 2021 wies zudem der russische Botschafter Anatoly Antonov in den USA in der Zeitschrift
+Foreign Policy darauf hin, dass die Nato jährlich etwa vierzig grosse Übungen in der Region um Russland
+durchführe. Er warnte: «Die Situation ist äusserst gefährlich. Niemand sollte an unserer Entschlossenheit
+zweifeln, unsere Sicherheit zu verteidigen.» Er bekräftigte damit erneut, was 13 Jahre zuvor William Burns
+in seinem ‹Nyet means Nyet›-Telegramm deutlich gemacht hatte. Im Jahr 2008 hatte der heutige CIADirektor William J. Burns, damals US-Botschafter in Russland, ein Telegramm nach Washington geschickt,
+in dem er ein Treffen mit dem russischen Aussenminister beschrieb. Er merkte darin an, dass der NatoBeitritt der Ukraine und Georgiens für Russland eine rote Linie darstelle, die nicht überschritten werden
+dürfe. Diese Einschätzung schlug sich auch in der Überschrift des Telegramms nieder: ‹Nyet means Nyet
+
+[Nein heisst Nein]: Russlands rote Linien bei der Nato-Erweiterung.› Antonov wies eindringlich darauf hin:
+«Alles hat seine Grenzen. Wenn unsere Partner [die USA und die Nato-Länder] weiterhin militärisch-strategische Tatsachen schaffen, welche die Existenz unseres Landes gefährden, sehen wir uns dazu gezwungen,
+bei ihnen ähnliche Gefährdungen herzustellen. Wir befinden uns jetzt an einem Punkt, an dem kein Rückzug
+mehr möglich ist. Die militärische Erschliessung der Ukraine durch Nato-Mitgliedstaaten ist eine existenzielle Bedrohung für Russland.» 3
+
+
+-----
+
+Mearsheimer beschreibt, was danach geschah: «Russland verlangte eine schriftliche Garantie, dass die
+Ukraine niemals Teil der Nato werden wird, und dass das Bündnis die militärischen Ressourcen, die es seit
+1997 in Osteuropa stationiert hat, wieder abzieht. Die anschliessenden Verhandlungen scheiterten, als [USAussenminister] Blinken klarstellte: ‹Es sind keine Änderungen eingetreten. Es wird keine Änderungen geben.› Einen Monat später befahl Putin die Invasion der Ukraine, um die seiner Meinung nach von der Nato
+ausgehende Bedrohung zu beseitigen.» 2
+
+**Aus umgekehrter Perspektive betrachtet**
+
+Betrachte man die von ihm beschriebene dreissigjährige Geschichte, muss man sich laut Abelow Folgendes
+fragen: Wie würde die Führung der USA in der umgekehrten Situation reagieren – wenn zum Beispiel Russland oder China in der Nähe des amerikanischen Territoriums ähnliche Schritte durchführen würden? Wie
+würde Washington reagieren, wenn Russland ein Militärbündnis mit Kanada eingeht und dann knapp mehr
+als hundert Kilometer von der US-Grenze entfernt Raketenbasen errichtet? Was würde geschehen, wenn
+Russland diese Raketenbasen für Übungen mit scharfen Waffen nutzt, um die Zerstörung von militärischen
+Zielen in Amerika zu proben? Würde die US-Regierung die mündlichen Zusicherungen Russlands akzeptieren, dass seine Absichten friedlich sind? Natürlich nicht.
+Wahrscheinlich würde die Reaktion folgendermassen aussehen: Die Militärstrategen und Politiker der USA
+würden sich mit dem offensiven Potenzial der Waffen und Trainingsübungen befassen. Sie würden den erklärten Absichten keine Beachtung schenken und sich ernsthaft bedroht fühlen. Sie könnten die Übungen
+mit scharfen Waffen als Zeichen eines bevorstehenden russischen Angriffs deuten. Die USA würden den
+Abzug der Raketen verlangen. Wenn diese Forderung nicht umgehend erfüllt wird, könnten die USA mit
+einem Präventivschlag auf die Raketenbasen reagieren. Das könnte wiederum einen allgemeinen Krieg und
+womöglich eine Eskalation bis hin zu einem thermonuklearen Schlagabtausch auslösen. Die US-Führung
+und sicherlich auch die meisten US-Bürger würden dann Russland die moralische Schuld für Amerikas
+Präventivschlag zuschreiben und diesen als Selbstverteidigung bezeichnen.
+Abelow zieht das Fazit, dass es letztlich nicht ausschlaggebend sei, ob 1990/1991 Russland Zusicherungen
+gemacht wurden. Es sei auch nicht ausschlaggebend, ob die militärische Bedrohung durch bilaterale oder
+multilaterale Aktionen zwischen der Ukraine und den westlichen Staaten von der Nato ausgegangen sei
+oder von ausserhalb der Nato. Drohungen seien Drohungen, unabhängig von den Worten oder Taten, die
+diesen vorausgehen, und unabhängig vom administrativen Weg, auf dem sie zustande kämen. Wichtig sei
+vielmehr die Antwort auf diese Frage: Wie ist die Situation vor Ort, und wie können eine Nation, deren Interesse ihr eigener Weiterbestand ist, und eine umsichtige Führung, die diesen Weiterbestand sicherstellen
+soll, auf eine solche Bedrohung reagieren? Das gelte es zu verstehen, wenn man die Frage der westlichen
+Aktionen und Provokationen betrachtet.
+
+**Sich selbst erfüllende Prophezeiungen**
+
+In Kapitel 4 beschreibt Abelow, wie sich der amerikanische Ausstieg aus dem Washingtoner Vertrag über
+nukleare Mittelstreckensysteme von 1987 auf die Sicherheit Russlands auswirkte. Kapitel 5 erläutert, wie
+Aussenpolitik-Experten der USA öffentlich davor warnten, dass die Nato-Erweiterung zu einer Katastrophe
+führen würde. Kapitel 6 beschreibt, wie die Verantwortlichen der gescheiterten Erweiterungspolitik der Nato
+ihre Fehler nun wiederholen. Kapitel 7 erläutert, wie allzu pessimistische Einschätzungen der Absichten
+potenzieller Gegner oftmals zu sich selbst erfüllenden Prophezeiungen werden.
+Die Geschichte von einem bösen, irrationalen, von Natur aus expansionistischem Russland mit einem paranoiden Führer an seiner Spitze, dem die tugendhaften USA und Europa gegenüberstehen, sei verwirrt und
+fehlgeleitet. Sie sei mit mehreren in die gleiche Richtung gehenden Ereignissen der letzten dreissig Jahre
+unvereinbar – Ereignisse, deren Bedeutung und Sinn sich eigentlich von selbst hätten erschliessen müssen.
+Tatsächlich könne man das vorherrschende westliche Narrativ selbst als eine Art Paranoia betrachten. Die
+Provokationen der USA und ihrer Verbündeten gegen Russland seien derart schwerwiegende politische
+Fehler, dass die US-Führung im umgekehrten Fall schon längst einen Atomkrieg mit Russland riskiert hätte.
+Dass die US-Führung nun das Gegenteil tue, sei eine gefährliche Missachtung der Realität.
+Die grossen Medienkonzerne tragen nach Ansicht von Abelow dafür auch Verantwortung. Anstatt sich zu
+bemühen, die Ereignisse für ihr Publikum angemessen zu kontextualisieren, hätten sie einfach das bevorzugte Narrativ der Regierung propagiert. Aus welchen Beweggründen auch immer hätten die MainstreamMedien ein Propagandaprogramm eingeführt, mit dem sie die Öffentlichkeit fehlinformieren. Russland könne das nur als Affront gegen den nationalen Charakter seines Volkes empfinden. Online-Anbieter von Informationen machten nichts anderes. Wie der mit dem Pulitzer-Preis ausgezeichnete Journalist und Anwalt
+für das Grundrecht auf freie Meinungsäusserung, Glenn Greenwald, aufgezeigt habe, findet auf vielen Ebenen der Gesellschaft sowohl in den USA als auch in Europa eine massive Zensur abweichender Meinungen
+statt.4
+Das Hauptziel seines Buches ist laut Abelow, ein falsches Narrativ zu korrigieren, und das aus einem sehr
+praktischen Grund: Weil falsche Narrative zu schlechten Ergebnissen führten. Narrative schlügen sich un
+
+-----
+
+weigerlich in Verhaltensweisen nieder; einerseits beschrieben sie eine Situation, andererseits gestalteten
+sie diese auch. Indem sie als Modelle der Realität fungierten, dienten Narrative als Handlungsanleitungen.
+Durch die Dynamik von Aktion und Reaktion, Vorstoss und Rückstoss könnten sie dann die Ergebnisse bewirken, die laut ihrer Darstellung angeblich bereits existieren. Auf diese Weise könne ein Narrativ, welches
+die Absichten eines potenziellen Gegners übertrieben pessimistisch einschätze – was er ein ‹Narrativ des
+Misstrauens› nenne –, genau die Bedrohungen verstärken, die es zu entschärfen vorgibt. Wie im Ersten
+Weltkrieg befürchte jede Seite von der anderen das Schlimmste und versuche sich durch eine militärische
+Strategie, die notwendigerweise auch offensives Potenzial hat – ein zweischneidiges strategisches Schwert,
+das politische Analysten als ‹Sicherheitsdilemma› bezeichnen –, unverwundbar zu machen.
+
+**Hauptverantwortung für den Krieg bei den USA**
+
+Das abschliessende Kapitel 8 enthält eine kontrafaktische Geschichte unter der Prämisse, was hätte sein
+können, wenn der Westen anders gehandelt hätte. Die Beurteilung der relativen Verantwortung Moskaus,
+Washingtons und der verschiedenen europäischen Regierungen wird nach Abelow unterschiedlich ausfallen, je nachdem, wie man bestimmte historische Ereignisse, das Vorgehen der einzelnen Beteiligten sowie
+die relative Wichtigkeit, die man der inneren und äusseren Kausalität beimisst, gegeneinander abwäge.
+Dennoch wage er zu behaupten, dass, wenn man alles berücksichtigt, die Hauptverantwortung beim Westen
+und insbesondere bei den USA liegt. Er kenne keinen völlig zufriedenstellenden Weg, um diese Behauptung
+zu begründen. Es gebe keine validierte Methodik der Zumessung von Schuld auf die verschiedenen Akteure,
+die alle zumindest eine gewisse Handlungsfähigkeit und Entscheidungsfreiheit haben. Er glaube jedoch,
+dass wir Einblicke gewinnen können, indem wir eine kontrafaktische Geschichte mit folgender Fragestellung
+entwerfen: Wo stünden wir nun, wenn die USA anders gehandelt hätten?
+Hätten die USA nicht auf die Erweiterung der Nato bis an die Grenze Russlands gedrängt; hätten sie nicht
+nuklearfähige Raketenabschussvorrichtungen in Rumänien stationiert und in Polen und vielleicht auch anderswo geplant; hätten sie 2014 nicht zum Sturz der demokratisch gewählten ukrainischen Regierung
+beigetragen; hätten sie nicht den ABM-Vertrag und dann den Vertrag über nukleare Mittelstreckenraketen
+abgeschafft und anschliessend die russischen Versuche, ein bilaterales Moratorium für die Stationierung
+auszuhandeln, ignoriert; hätten sie keine Übungen mit scharfen Raketen in Estland durchgeführt, um das
+Anvisieren von Zielen innerhalb Russlands zu üben; hätten sie kein umfangreiches Militärmanöver mit 32
+Nationen in der Nähe des russischen Territoriums organisiert; hätten sie die Streitkräfte der USA nicht mit
+denen der Ukraine verknüpft; und so weiter und so fort – hätten die USA und ihre Nato-Verbündeten diese
+Dinge nicht getan, wäre der Krieg in der Ukraine wahrscheinlich nicht ausgebrochen. Das ist nach Abelows
+Meinung eine vernünftige Behauptung.
+Selbst aus einer eindimensionalen amerikanischen Perspektive sei der gesamte westliche Plan ein gefährlicher Bluff gewesen, der aus kaum nachvollziehbaren Gründen durchgeführt wurde. Die Ukraine stelle
+beim besten Willen kein wesentliches Sicherheitsinteresse der USA dar. Tatsächlich spiele die Ukraine kaum
+eine Rolle. Aus amerikanischer Sicht – und er sage das, ohne das ukrainische Volk beleidigen zu wollen –
+sei die Ukraine irrelevant. Die Ukraine sei für die Bürger der USA nicht wichtiger als irgendeines der fünfzig
+anderen Länder, welche die meisten Amerikaner aus völlig verständlichen Gründen erst nach langem Suchen auf einer Landkarte finden würden. Und wenn sich die Führer der USA und der Nato diese offensichtliche Tatsache eingestanden hätten, wäre all das nicht passiert.
+Russland teile hingegen mit der Ukraine eine beinahe 2000 Kilometer lange Grenze und eine Geschichte,
+in deren Verlauf der Westen dreimal auf dem Landweg einmarschiert sei. Die letzte westliche Invasion während des Zweiten Weltkriegs hätte den Tod von etwa 13 Prozent der gesamten russischen Bevölkerung zur
+Folge gehabt. Deshalb sei die Ukraine für Russland von allerhöchstem Interesse. Dass sich Russland durch
+eine vom Westen bewaffnete, ausgebildete und militärisch integrierte Ukraine in seiner Existenz bedroht
+fühlt, hätte Washington von Anfang an klar sein müssen. Welcher vernünftig denkende Mensch konnte glauben, dass die Präsenz eines westlichen Waffenarsenals an Russlands Grenze keine starke Reaktion hervorrufen würde? Welcher vernünftige Mensch konnte davon ausgehen, dass die Stationierung eines solchen
+Arsenals die Sicherheit der USA erhöhen würde? Und falls das nicht klar gewesen sein sollte, hätten spätestens 2008 sämtliche Unklarheiten darüber beseitigt sein sollen. Damals telegrafierte der US-Botschafter
+in Russland, William Burns, der jetzt Bidens CIA leitet, nach Washington, dass die Ukraine für Russland die
+roteste aller roten Linien sei. Man müsse kein Genie sein, um die Gründe dafür zu verstehen.
+Dennoch scheine diese offensichtliche Realität für viele im Aussen- und im Verteidigungsministerium der
+USA, in der Nato und in den Medien sowie für den amtierenden US-Präsidenten undurchschaubar zu sein.
+Was bedeute das also für die Bürger der USA und ihre europäischen Verbündeten? Offen gesagt, so Abelow,
+sind sie – wir – in einer sehr misslichen Lage. Es sei eine Lage, die nicht nur äusserst gefährlich ist und die
+ganze Welt dem Risiko eines Atomkriegs aussetzt: Diese Situation hätte nur durch ein Ausmass an Dummheit und Blindheit der US-Regierung und ein Mass an Ehrfurcht und Feigheit der europäischen Politiker erreicht werden können, das beinahe unvorstellbar sei.
+
+
+-----
+
+Abelows Fazit am Ende lautet: Die Politiker in Washington und die europäischen Regierungen – mitsamt
+den gefügigen, feigen Medien, die deren Unsinn kritiklos nachplapperten – stünden jetzt bis zur Hüfte im
+Sumpf. Es sei schwer vorstellbar, dass diejenigen, die dumm genug waren, diesen Sumpf zu betreten, nun
+die Klugheit aufbrächten, sich selbst zu befreien, bevor sie vollends versinken und uns alle mitreissen.
+_Anmerkungen:_
+_1  Benjamin Abelow: «Wie der Westen den Krieg in die Ukraine brachte. Die Rolle der USA und der NATO im Ukraine-_
+_Konflikt», Spezial-Ausgabe DIE WELTWOCHE vom 27. Oktober 2022, kostenl. PDF (https://weltwoche.ch/wp-_
+_content/uploads/wewo2022_43_UKRA-1.pdf)_
+_2  «John Mearsheimer on why the West is principally responsible for the Ukrainian crisis», The Economist, 11. März 2022_
+_3  Anatoly Antonov: «An Existential Threat to Europe’s Security Architecture? What happens next in Ukraine depends on_
+_the West’s readiness for dialogue, says Russia’s ambassador to the United States», in: Foreign Policy vom 30. Dezember_
+_2021 (https://foreignpolicy.com/2021/12/30/russia-ukraine-nato-threat-security/)_
+_4  Glenn Greenwald: Western Dissent from US/NATO Policy on Ukraine is Small, Yet the Censorship Campaign is_
+_Extreme, https://greenwald.substack.com/p/western-dissent-from-usnato-policy_
+_Quelle: https://fassadenkratzer.wordpress.com/2023/03/06/benjamin-abelow-wie-der-westen-den-krieg-in-die-ukraine-_
+_brachte/_
+
+##### Wenn das so weitergeht ...
+
+_Von Willy Wimmer, 3. März 2023_
+
+Vor dem Abflug nach Washington gab der Bundeskanzler im Deutschen Bundestag noch schnell eine Regierungserklärung zum Krieg in der Ukraine. Solche Ereignisse im Plenum des Bundestages sind wichtig, weil
+sie den roten Faden in der Politik einer Bundesregierung darstellen. Jedenfalls vor dem Hintergrund der
+deutschen parlamentarischen Erfahrung und dann, wenn es einen roten Faden und einen politischen Kompass geben sollte. Das unterscheidet sich erheblich von den Gepflogenheiten in anderen europäischen
+Staaten, mit denen wir verbunden sind. Bei uns muss die Bundesregierung in besonderer Weise Rechenschaft ablegen. Rein administratives Handeln ist um Deutschland herum wesentlich ausgeprägter. Das
+bringt unser Land in Zwangläufigkeiten, die uns nicht bekommen, weil dieser Umstand uns gegenüber
+masslos ausgenutzt wird. Es bekommt uns allerdings auch nicht, wenn diese Bundesregierung sich von
+den preussischen Gründungspfeilern des modernen Verfassungsstaates derart krachend verabschiedet, wie
+das seit ihrem Amtsantritt geschieht. Die Zeitenwende ist nichts anderes als ein ‹Räumungsverkauf der
+Grundregeln›, nach denen Deutschland gestaltet war. Seit Preussen in Deutschland, war staatliches Handeln
+geradezu daran geknüpft, das für eine Entscheidung an Fakten heranzuziehen, die für die Entscheidungsfindung erforderlich sein würden. Die Kriegs-Regierungserklärung von Bundeskanzler Olaf Scholz machte
+deutlich, dass die Fakten keine Rolle mehr spielen. Man blendet aus, was das eigene Gedankengebäude
+
+
+-----
+
+zum Einsturz bringen könnte. Die Bürgerinnen und Bürger werden gleichzeitig dadurch in Schach gehalten,
+dass bei Nacht und Nebel Knebelgesetze für freie Meinungsäusserung durch den Deutschen Bundestag
+gefingert werden. Die Rechtsordnung wird dadurch torpediert, dass eine Rechtsvertretung vor Behörden
+und Gerichten mit einem Bann strafbewehrt untersagt wird. Besonders die EU hat sich offenbar dem Ziel
+verschrieben, Politik über die Rechtsordnung obsiegen zu lassen. Das völlige Ausblenden aller Fakten, die
+nun einmal gegeben sind, ist nicht nur verhängnisvoll in der Bewertung der Kriegsursachen und entsprechender Abläufe. Es ist offenkundig, wie gerade die Suche nach einem Ende des Blutvergiessens und einer
+Beendigung der Feindseligkeiten von dieser Unfähigkeit der Bundesregierung und der anderen Regierungen in NATO und EU bestimmt ist. Wie es mit dem Bundeskanzler Helmut Kohl nicht zu einer deutschen
+Beteiligung am völkerrechtswidrigen Angriffskrieg gegen Jugoslawien gekommen wäre, dürfte eine ‹preussisch-korrekte› Bewertung aller europäischen Umstände seitens der jeweiligen Bundesregierung in den
+letzten Jahrzehnten eher zu einer Lage in Europa mit dauerhafter Friedensperspektive beigetragen haben,
+als der Verrat an den eigenen Werten ‹über Nacht›. Davon hängt der Friede in Europa ab und nicht vom
+Rapport in Washington.
+
+_Quelle: https://www.world-economy.eu/nachrichten/detail/wenn-das-so-weitergeht/_
+
+##### Das Land der Ahnungslosen –
+ der chinesische Friedensplan und seine mediale Reflektion
+
+_Veröffentlicht am 3. März 2023 von Maren Müller Beitrag von Bernd Liske_
+
+###### Die Natur der Demokratie: 
+ Die Dialektik aus Pressefreiheit
+ – die Freiheit der Journalisten, zu schreiben, was sie wollen,
+ doch alle schreiben das gleiche – und freier Meinungsäusserung
+ – jeder kann sich äussern, aber nicht alle dürfen es hören.
+
+Schon seit März vergangenen Jahres betrachte ich die Medien als sechste Teilstreitkraft des gegenwärtigen
+Krieges zwischen den USA und Russland. Sie bereiten mit ihren medialen Flächenbombardements den Boden für die Sanktionen, die Waffenlieferungen und generell die politische Ausrichtung Deutschlands, indem
+sie den Journalismus durch eine russophob geprägte Propaganda ersetzen, die durchaus erfolgreich zu
+einer monokulturellen Verblödung der Bevölkerung führt. Wenn man zu DDR-Zeiten Gebiete wie Sachsen
+als Tal der Ahnungslosen bezeichnete, weil man dort kein Westfernsehen empfangen konnte, so können
+wir inzwischen von Deutschland als Land der Ahnungslosen sprechen, denn die mediale Ausrichtung geht
+einher mit vielfältigen Bemühungen, noch vorhandenes Unkraut aus der medialen Landschaft zu tilgen
+oder deren Inhalte als giftig zu diskreditieren.
+Nicht wenigen mag eine solche Lagebeschreibung suspekt erscheinen, gehört doch die in ihr verankerte
+Pressefreiheit zu den Narrativen der Demokratie. In einer Welt, in der zunehmend der Schein das Sein be
+
+###### doch alle schreiben das gleiche – und freier Meinungsäusserung
+ – jeder kann sich äussern, aber nicht alle dürfen es hören.
+
+Schon seit März vergangenen Jahres betrachte ich die Medien als sechste Teilstreitkraft des gegenwärtigen
+Krieges zwischen den USA und Russland. Sie bereiten mit ihren medialen Flächenbombardements den Bo-
+
+
+-----
+
+stimmt, macht es jedoch Sinn, sich immer wieder aus nächster Nähe anzuschauen, wie postulierte Werte
+gelebt werden. Eine aktuelle Möglichkeit dafür bietet die Friedensinitiative Chinas vom 24. Februar – also
+dem Tag, an dem vor einem Jahr die Bemühungen, Russland vor die Wahl zwischen Pest und Cholera zu
+stellen, dahingehend erfolgreich waren, dass Russland sich leider für die Pest entschied.
+Schauen wir uns das mediale Echo auf die chinesische Initiative in den deutschen Medien an. Die Tagesschau meint, dass es ‹Keinesfalls ein umfassender Friedensplan› sei und China würde die Position Russlands unterstützen. Im ZDF heute journal liefert Marietta Slomka Aussenministerin Annalena Baerbock die
+Vorlage für deren einseitige Interpretation des Konflikts, indem sie von einem ‹sogenannten Friedensplan›
+spricht, der aber im Westen und der Ukraine auf grosse Skepsis stossen würde. DER SPIEGEL spricht von
+einem ‹nutzlosen Plan› und einem ‹mauen Dokument›, das zeigt, «dass die chinesische Regierung als Vermittler im Ukraine-Konflikt völlig unbrauchbar ist». ZEIT ONLINE betrachtet China als Komplizen des Aggressors und meint, es sei ‹kein glaubwürdiger Friedensstifter›. Die Süddeutsche Zeitung lässt ihre Leser
+wissen, dass es Peking nicht um den Frieden in der Ukraine geht, «sondern um die angestrebte eigene
+Vorherrschaft» – wobei man in Sorge ist, dass manche auf den Plan reinfallen könnten. Die FAZ sieht ein
+‹dürres Friedenspapier›, dass der Imagepflege dient und «Chinas bekannte Positionen und Allgemeinplätze
+enthält». Allen Beiträgen ist eigen, dass sie gegen die Initiative polemisieren, ohne sich mit den konkreten
+Vorschlägen journalistisch zu beschäftigen – also objektiv, knapp und präzise. Eine Ausnahme stellt die
+WELT dar. Sie verlinkt zu dem Friedensplan, suggeriert dem Leser aber schon mit der Überschrift ‹Chinas
+Zwölf-Punkte-Plan für die Ukraine im Detail›, man könne sich eine Auseinandersetzung mit ihm ersparen,
+weil man ihn ja im Detail diskutieren würde – um dann mit einigen dem Papier entnommenen Phrasen die
+Behauptung zu stützen, China würde nur die Position Russlands vertreten: Was, wenn man als solche in
+Betracht zieht, dass Russland um eine umfassende Lagebeurteilung bemüht ist, sicher nicht ganz falsch
+wäre.
+Wenden wir uns nun den wesentlichen Aspekten des 12-Punkte-Papiers zu und ich rege an, sich das Papier
+danebenzulegen. Wenn im ersten Punkt gefordert wird, die Souveränität und territoriale Integrität aller
+Länder müsse wirksam gewahrt werden, kann das nicht als einseitige Botschaft an Russland verstanden
+werden, denn die sich seit Jahren vollziehende ungehemmte Aufrüstung der Ukraine sowie ihre angedachte
+Mitgliedschaft in der Nato stellen eine Gefahr für Russland dar. Nicht zuletzt wird das durch die Einbeziehung des zweiten Punktes deutlich, in dem zum Ausdruck gebracht wird, dass die Sicherheit eines Landes
+nicht auf Kosten eines anderen gewährleistet und eine Konfrontation zwischen den verschiedenen Blöcken
+vermieden werden sollte.
+Wenn im dritten Punkt empfohlen wird, alles zu vermeiden, mit dem die Spannungen weiter verschärft werden können, so kann sich der Westen mit seinen Waffenlieferungen direkt angesprochen fühlen. Der Hinweis, man müsse verhindern, dass die Krise sogar ausser Kontrolle gerät, lässt durchaus den Schluss zu,
+China würde sich vorbehalten, Russland mit Waffenlieferungen zu unterstützen, weil ansonsten die Gefahr
+besteht, es könnte sich ab einem bestimmten Punkt gezwungen sehen, Atomwaffen einzusetzen. Generell
+kann von der Sorge Chinas vor einer nachhaltigen Schwächung im Konflikt mit den USA ausgegangen werden, wenn die im Westen kolportierte Absicht, die Ukraine müsse diesen Krieg gewinnen, erfolgreich ist.
+Schon in meinen Neujahrswünschen von Anfang 2022 führte ich aus: Während sich die Welt in der grössten
+Herausforderung seit dem zweiten Weltkrieg befindet – mit inzwischen über 5,3 Millionen Toten – werden
+die westlichen Demokratien durch die USA darauf fokussiert, Russland in der Ukraine ein Bein zu stellen.
+Betrachtet man das als Schachspiel, in dem der Gewinn des schwarzen Königs die Herrschaft über die Welt
+bedeutet und alle Beobachter davon ausgehen, dass die schwarze Dame (China) angegriffen wird, konzentriert sich Weiss asymmetrisch darauf, einen schwarzen Läufer (Russland) zu schwächen, indem es dessen
+– schon schwache – Verteidigung durch einen Bauern (Ukraine) durchbricht. Durch die Schwächung dieses
+Läufers möchte Weiss im Vorbeigehen auch noch die beiden Springer schwächen: Deutschland und
+Europa.
+Weiss hat diese Spielentwicklung schon lange vorbereitet, so dass es mit dem Angriff auf die schwarze
+Dame noch eine Weile dauern könnte – zumal ein Bauer neutralisiert erscheint (Hongkong) und ein weiterer
+als chinesisches Kuba erst entwickelt werden muss. Es führt an dieser Stelle zu weit, auszuführen, welcher
+Aufwand allein für die Stärkung eines weissen Bauern betrieben wurde (@Die_Gruenen), und wichtig ist
+natürlich, die Entwicklung eines anderen Bauern zu sehen (Ukraine): Vom – vermeintlich – ersten Zug, hin
+zu dessen weiterer Entwicklung durch Waffen, Manöver und Sanktionen. Letztere dienen der Legitimierung
+des eigenen und der Blockierung des gegnerischen Spiels. Passend dazu das Bild von Theo Sommer in
+@ZEITonline am 7. Dezember: Die Ukraine als unsinkbarer Flugzeugträger der Amerikaner – wenige hundert Meilen vor Moskau. Die Ukraine als das Kuba Russlands.
+Der fünfte Punkt widmet sich humanitären Einsätzen, die den Grundsätzen der Neutralität und Unparteilichkeit zu folgen hätten. Humanitäre Fragen sollten nicht politisiert werden – was auf Erfahrungen schliessen lässt, für die mir die Kompetenz fehlt. Der Hinweis im sechsten Punkt, die Konfliktparteien mögen sich
+an das humanitäre Völkerrecht halten und die Grundrechte der Kriegsgefangenen achten, kann als Verarbeitung von Meldungen über die Misshandlung und Erschiessung von Kriegsgefangenen durch die Ukraine
+
+
+-----
+
+betrachtet werden. In ähnlicher Weise dürfte die Ukraine im siebenten Punkt gemeint sein, wenn China
+zum Ausdruck bringt, es würde Angriffe auf Atomkraftwerke ablehnen. Die massenhaften Meldungen über
+den Beschuss des von Russland seit März 2022 besetzten Atomkraftwerkes in Saporischschja durch die
+Russen war für mich Veranlassung zu einigen Tweets, die ich unter @BerndLiske blöde Russen veröffentlichte.
+Im achten Punkt dürften sich insbesondere die USA angesprochen fühlen, denn der Hinweis auf die Verhinderung der Verbreitung von Kernwaffen kann als Reaktion auf die Rede von Präsident Selensky auf der
+Münchner Sicherheitskonferenz im vergangenen Jahr gewertet werden, in der er über den Ausstieg aus
+dem Budapester Moratorium sinnierte und der Hinweis, China würde die Erforschung, die Entwicklung und
+den Einsatz chemischer und biologischer Waffen ablehnen, führt geradewegs zu den Biowaffenlaboren der
+USA in der Ukraine.
+Auch die nächsten beiden Punkte weisen darauf hin, dass China den Konflikt sehr aufmerksam verfolgt. Im
+neunten Punkt geht es um das von Russland, der Türkei, der Ukraine und den Vereinten Nationen unterzeichnete Getreideabkommen. Hinsichtlich dessen fordert es eine ‹vollständige› Umsetzung des Abkommens. Die vollmundigen Behauptungen, Russland würde den Hunger als Waffe einsetzen und mit dem
+Abkommen würde ein bedeutender Beitrag zur Bekämpfung des Hungers in der Welt geleistet werden, sind
+inzwischen nicht nur dadurch ad absurdum geführt, dass der grösste Teil der Lieferungen nach Europa
+geht: Gravierend ist die Torpedierung von Aspekten des Abkommens durch den Westen – mit der Folge,
+dass der sehr viel grössere Getreideexporteur Russland bei der Bekämpfung des Hungers überwiegend
+ausfällt. Im zehnten Punkt fordert China eine generelle Beendigung einseitiger Sanktionen, weil sie nur
+neue Probleme schaffen würden. Insbesondere lehnt es Sanktionen ab, die nicht durch den UN-Sicherheitsrat genehmigt wurden.
+Fassen wir zusammen: Der Friedensplan Chinas berücksichtigt die Natur dieses Krieges und seine konkreten Ausprägungen. Er ist durchaus geeignet, entlang der Vorstellungen von Albert Schweitzer und Papst
+Franziskus auf den Frieden hinzuarbeiten und ich könnte mir vorstellen, dass sich Länder wie Indien und
+Brasilien mit ihren Vorstellungen in dem Papier wiederfinden. Doch ohne Zweifel gibt es zwei wesentliche
+Probleme: Der Westen hat sich durch seine mediale und politische Interpretation dieses Krieges derart in
+ein Abseits manövriert, dass es schwer wird, ihn dort ohne bedeutenden Gesichtsverlust herauszuholen
+und noch dazu sicherzustellen, dass er nicht mit weiteren Abenteuern den Weltfrieden gefährdet und sogar
+den Untergang der Menschheit herbeiführt. Hinzu kommt gerade im Zusammenhang mit letzterem ein
+spätestens mit diesem Krieg auch vernichtetes Vertrauen Russlands in Abstimmungen mit dem Westen –
+dem Altbundeskanzlerin Angela Merkel einen geradezu finalen Stoss versetzt hat.
+Widmen wir uns noch der inhaltlichen Unterschiede zwischen meiner Interpretation des 12-Punkte-Papiers
+und dem medialen Echo. Ich meine, sie dürften auffällig sein, doch zeichnet sich der vorliegende Artikel
+noch in einem weiteren Punkt aus – ausgenommen hier die WELT: Im Gegensatz zu den genannten Beiträgen gibt es hier einen Link zu dem Originalpapier – oft zum Ausdruck gebracht: ich liebe Links – und jedem
+Leser ist es möglich, Sinn und Unsinn meiner Interpretation kritisch zu prüfen. Das ist auch empfehlenswert,
+da sich die Frage, wie objektiv und substanziell ich auf dieses Papier schaue, erst durch die konkrete Prüfung klärt und der ergänzende Blick auf das Original zusätzliches Futter für die grauen Zellen ist.
+Pressefreiheit ist also spätestens seit der ‹Zeitenwende› als intellektuelle Freiheit zu sehen, sich nur entlang
+der propagandistischen Ziele austoben zu können und quasi eine Unfreiheit ist. Dafür hat sich aber inzwischen ein eigener Markt gebildet, in dem die Schlauheit in Gestalt ungezählter Russland-Experten ihre Intelligenz missbraucht, um den vorgegebenen russophoben Grundton in grosser Varianz zu interpretieren, so
+dass dem normalen Bürger in einem der bildungsstärksten Länder der Welt überwiegend nicht auffällt,
+welchen Einheitsbreit er serviert bekommt. Folge dessen ist ein zunehmender Mangel an kognitiver Diversität, die sich für den Wirtschafts- und Technologiestandort Deutschland sicher auch auf andere Bereiche
+auswirkt und so ist der vorliegende Beitrag ein weiteres Bemühen, das Unkraut in Deutschland trotz der
+zunehmend klimatisch schlechter werdenden Bedingungen zu stärken, so dass es seine heilende Wirkung
+auf das Land hoffentlich noch entfalten kann und ich nicht irgendwann formulieren muss: Deutschland
+seine Tragik.
+_Bernd Liske (Jg. 1956/studierter Mathematiker) ist Inhaber von Liske Informationsmanagementsysteme. In seinen Büchern_
+_und Artikeln setzt er sich mit sozialen, politischen und wirtschaftlichen Problemen unserer Gesellschaft auseinander, um so_
+_Beiträge für die Erhaltung des Wirtschaftsstandortes Deutschland zu leisten. Die in seinem Buch Aphorismen für die Mensch-_
+_werdung des Affen – Wie der Mensch zum Menschen und wie die Demokratie ihrem Anspruch gerecht werden kann veröf-_
+_fentlichten Aphorismen betrachtet er als Open-Source-Betriebssystem zur Analyse und Gestaltung individueller, unterneh-_
+_merischer und gesellschaftlicher Prozesse. Das den Aphorismen vorangestellte Essay über die ‹Auseinandersetzung als Bei-_
+_trag für die Menschwerdung des Affen› beschäftigt sich insbesondere mit der Natur der Demokratie und stellt Wege zur_
+_Diskussion, wie die westlichen Demokratien eine nachhaltige Zukunft gestalten können_
+_Quelle:_ _https://publikumskonferenz.de/blog/2023/03/03/das-land-der-ahnungslosen-der-chinesische-friedensplan-und-_
+
+_seine-mediale-reflektion/_
+
+
+-----
+
+## Verbreitung des richtigen Friedenssymbols
+
+Das falsche Friedenssymbol – die heute weltweit verbreitete sogenannte
+
+**Es soll FRIEDEN sein auf Erden** <Todesrune>, die aus den keltischen Futhark-Runen resp. der umgedrehten Algiz
+**And there shall be PEACE on Earth** Rune fabriziert wurde – ist der eigentliche Inbegriff negativer Einflüsse und schafft
+
+zerstörerische Schwingungen hinsichtlich Unfrieden, Fehden und Hass, Rache,
+
+**AMANI** **ΕΙΡΗΝΗ** Laster, Süchte und Hörigkeit, denn die <Todesrune> bedeutet für viele Menschen
+
+Reminiszenzen an die NAZI-Zeit, an Tod und Verderben, wie aber auch Ambitionen
+
+**BARIŞ** **VREDE**
+
+in bezug auf Kriege, Terror, Zerstörungen vieler menschlicher Errungenschaften und
+
+**PAQE** **��** allen notwendigen Lebensgrundlagen jeder Art und weltweit Unfrieden.
+
+**PACE** **שרום**
+
+**МИР** शांित Es Ist wirklich dringlichst notwendig, dass die <Todesrune> als falsches
+**PAIX** **���** Friedenssymbol, das Unfrieden und Unruhe schafft, völlig aus der Erdenwelt
+
+**PAZ** **��** verschwindet und dadurch das uralte sowie richtige Peacesymbol auf der ganzen
+
+Erde verbreitet und weltbekanntgemacht wird, dessen zentrale Elemente
+
+Frieden, Freiheit, Harmonie, Stärkung der Lebenskraft, Schutz,
+
+**FIGU.ORG**
+
+Wachstum und Weisheit reflektieren, aufbauend wirken und
+
+**FIGU, Semjase-Silver-Star-Center, 8495 Schmidrüti**
+
+**Schweiz/Switzerland  Tel. + 41 (0)52 385 13 10** sehr besänftigend und friedlich-positiven Schwingungen
+
+zum Durchbruch verhelfen, die effectiv Frieden,
+
+Freiheit und Harmonie vermitteln können!
+
+Wir wenden uns deshalb an alle FIGU-Mitglieder, an alle FIGU-Interessengruppen, Studien- und Landesgruppen
+
+sowie an alle vernünftigen und ehrlich nach Frieden, Freiheit, Harmonie, Gerechtigkeit, Wissen und Evolution
+
+strebenden Menschen, ihr Bestes zu tun und zu geben, um das richtige Friedenssymbol weltweit zu
+
+verbreiten und Aufklärung zu schaffen über die gefährliche und destruktive Verwendung
+
+der <Todesrune>, die in Erinnerung an die NAZI-Verbrechen kollektiv im Sinnen und
+
+Trachten der Menschen Charakterverlotterung, Ausartung und Unheil fördert.
+
+**Autokleber** **Bestellen gegen Vorauszahlung:** **E-Mail, WEB, Tel.:**
+
+**Grössen der Kleber:** **FIGU** info@figu.org
+
+120x120 mm = CHF 3.– Hinterschmidrüti 1225 www.figu.org
+
+250x250 mm = CHF 6.– 8495 Schmidrüti Tel. 052 385 13 10
+
+300X300 mm = CHF 12.– Schweiz Fax 052 385 42 89
+
+IMPRESSUM Für CHF/EURO 10.– in einem Couvert senden
+
+FIGU-SONDER-ZEITZEICHEN wir Dir/Ihnen 3 Stück farbige Friedenskleber
+
+Druck und Verlag: FIGU Wassermannzeit-Verlag, ------der Grösse 120x120 mm. = Am Auto aufkleben.
+
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+
+Redaktion: BEAM ‹Billy› Eduard Albert Meier,
+
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+
+Wird auch im Internetz veröffentlicht
+
+**Erscheint sporadisch auf der FIGU-Webseite**
+
+
+Postcheck-Konto: FIGU Freie Interessengemeinschaft,
+
+8495 Schmidrüti, PC 80-13703-3
+
+IBAN: CH06 0900 0000 8001 3703 3
+
+**E-Brief: info@figu.org**
+
+**Internetz: www.figu.org**
+
+**FIGU-Shop: http://shop.figu.org**
+
+**© FIGU 2023**
+
+Einige Rechte vorbehalten.
+
+Dieses Werk ist, wo nicht anders
+
+angegeben, lizenziert unter :
+
+www.figu.org/licenses/by-ncnd/2.5/ch/
+
+
+Geisteslehre Friedenssymbol
+
+**Frieden**
+
+Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten
+Tritt dazu macht, um dann nachfolgend in Friedsamkeit jeden weiteren Schritt
+bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun.
+
+SSSC, 10. September 2018, 16.43 h, Billy
+
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung des Urhebers ausdrücklich erlaubt.**
+Erschienen im Wassermannzeit-Verlag: FIGU, ‹Freie Interessengemeinschaft Universell›, Semjase-Silver-Star-Center,
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+

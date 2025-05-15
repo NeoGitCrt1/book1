@@ -1,0 +1,1563 @@
+10. Jahrgang
+Nr. 124 Sept./3 2024
+
+
+Erscheinungsweise:
+sporadisch
+
+
+### Sonderausgabe
+# FIGU ZEITZEICHEN
+
+###### Aktuelles • Einsichten • Erkenntnisse
+
+Internetz: http://www.figu.org
+E-Brief:  info@figu.org
+
+
+###### Organ für freie, politisch unabhängige Berichterstattungen zum Weltgeschehen, kommentarlose, neutrale und meinungslose Weitergabe von Zeitungsberichten.
+##### ***************************************************************************
+Laut ‹Allgemeine Erklärung der Menschenrechte›, verkündet von der Generalversammlung der Vereinten Nationen am 10. Dezember 1948,
+herrscht eine allgemeine ‹Meinungs- und Informationsfreiheit› vor, und dieses unumschränkte Recht gilt weltweit und absolut für jeden
+einzelnen Menschen weiblichen oder männlichen Geschlechts jeden Alters und Volkes, jedes gesellschaftlichen Standes wie auch in
+bezug auf rechtschaffene Ansichten, Ideen und jeglichen Glauben jeder Philosophie, Religion, Ideologie und Weltanschauung:
+
+**Art. 19 Menschenrechte**
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit, Meinungen**
+**unangefochten anzuhängen und Informationen und Ideen mit allen Verständigungs-**
+**mitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Ansichten, Aussagen, Darstellungen, Glaubensgut, Ideen, Meinungen sowie Ideologien jeder Art in Abhandlungen, Artikeln
+und in Leserzuschriften usw. müssen in keiner Art und Weise zwingend identisch mit dem Gedankengut und den
+Interessen, mit der ‹Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens›, wie auch nicht in
+irgendeiner Sachweise oder Sichtweise mit dem Missionsgut und dem Habitus der FIGU verbindend sein.
+==================================================================================
+==================================================================================
+Für alle in den FIGU-Zeitzeichen und anderen FIGU-Periodika publizierten Beiträge und Artikel verfügt die
+FIGU über die notwendigen schriftlichen Genehmigungen der Autoren bzw. der betreffenden Medien!
+###### ****************************************************************************************
+
+**Auf vielfach geäusserten Wunsch aus der Zeitzeichen-Leserschaft sollen in den Zeitzeichen zur Orientierung der**
+**Rezipienten laufend Auszüge diverser wichtiger Belange aus neuest geführten Kontaktgesprächsberichten**
+**veröffentlicht werden, wie nach Möglichkeit auch alte sowie neue Fakten betreffs weltweit bösartig mit**
+**Lügen, Betrug, Verleumdung und Mordanschlägen gegen BEAM geführte Kontroversen.**
+###### ****************************************************************************************
+
+**Auf vielfach geäusserten Wunsch aus der Zeitzeichen-Leserschaft sollen in den Zeitzeichen zur Orientierung der**
+**Rezipienten laufend Auszüge diverser wichtiger Belange aus neuest geführten Kontaktgesprächsberichten**
+**veröffentlicht werden, wie nach Möglichkeit auch alte sowie neue Fakten betreffs weltweit bösartig mit**
+**Lügen, Betrug, Verleumdung und Mordanschlägen gegen BEAM geführte Kontroversen.**
+
+###### **********************************************************************************
+
+### Wissen, nicht glauben
+###### Der Mensch soll stets wissen, dass er die Wirklichkeit und auch deren Wahrheit kennen soll und  sich einzig darauf, jedoch niemals  in irgendeiner wirren Weise auf einen Glauben verlassen soll.
+SSSC, 13. September 2014,
+22.57 h, Billy
+
+
+-----
+
+Donnerstag, 12.9.2024
+
+##### Artenvielfalt – wie sie Albert Rösti versteht
+
+Fluglärmgegner wollen das Nachtflugverbot in Zürich und Genf ausdehnen. Rösti schlägt sich auf die
+Seite der Flughafen-Betreiber. Bénédicte
+
+##### Politiklügen und Medienlügen im en gros
+ Die Verlogenheitsgeschichte der Medien und Politik
+
+###### Wie in der Politik dahergelogen und die Öffentlichkeit von dieser nach Strich und Faden belogen wird, das weisen folgende Artikel auf, die INFOsperber richtigstellt. Bereits 2023 wurde folgendermassen in den Zeitungen gemeldet!
+
+##### Entgegen allem dem wird nun aber die Nord-Stream-Story dadurch  als falsch ‹revidiert›, weil nun die Medien folgende weitere ‹Meldung› verbreiten, während in der Television berichtet wird, dass die Nord-Stream-Delinquenten vor Gericht gestellt würden.
+
+
+-----
+
+Montag, 3.10.2022
+
+Austretendes Gas an der Oberfläche des Meeres. © Danish Defence Command
+
+##### Wer steckt hinter dem Anschlag auf die Nord-Stream-Pipelines?
+
+###### Motive dafür haben zahlreiche Staaten und internationale Akteure, die technischen Mittel allerdings nur wenige.
+Alexander Männer
+
+_Red. Alexander Männer versucht, die verschiedenen Interessenlagen und Motive darzustellen. Männer schreibt_
+_u.a. für das ‹Overton Magazin› des deutschen Westend Verlags. Wir stellen diesen von der Agentur pressenza_
+_verbreiteten Artikel zur Diskussion._
+
+Die Ostsee-Gaspipelines Nord Stream 1 und 2, die aus Russland nach Deutschland verlaufen, wurden nahe
+der Insel Bornholm ernsthaft beschädigt. Die Täter der Anschläge sind nach wie vor nicht geklärt und es
+wird wahrscheinlich noch einige Zeit dauern, bis man eindeutig sagen kann, wer dafür verantwortlich ist.
+Allerdings gibt es Anzeichen dafür, dass die Pipelines explodiert sind oder gesprengt wurden.
+Seismologen erklärten, dass es sich um Unterwasser-Explosionen handeln soll. Zum Beispiel teilte der auf
+Erdbeben spezialisierte Geophysiker Björn Lund vom Schwedischen Seismologischen Netzwerk (SNSN)
+nach Angaben der Nachrichtenagentur Reuters mit, dass man zwei deutliche Detonationen in dem Gebiet
+registriert habe – die erste in der Nacht vom 26. auf den 27. September und eine zweite am Abend des 27.
+Septembers.
+Die Gasleitung Nord Stream 1 war in den vergangenen Wochen zwar aufgrund von Reparaturschwierigkeiten nicht in Betrieb, aber trotzdem mit Gas gefüllt. Die Leitung Nord Stream 2 hingegen wurde nach ihrer
+Fertigstellung vor knapp einem Jahr nicht in Betrieb genommen, was direkte Auswirkungen auf die Gaspreise in Deutschland hatte. Und wenn man jetzt sogar von einem langfristigen Ausfall der russischen Pipelines
+ausgeht, dann ist dies für die europäische Gasversorgung höchst problematisch, weil dadurch die Energiesicherheit Deutschlands und diverser anderer EU-Staaten in der kommenden Winterperiode wegen möglicher Gasknappheit enorm gefährdet wird.
+
+**Nur wenige Staaten haben die technischen Mittel**
+Eine der wichtigsten Fragen angesichts dessen lautet nun: Wer steckt hinter dem Nord-Stream-Zwischenfall? Motive für eine solche Tat haben viele Staaten und internationale Akteure, die technischen Mittel sowie
+andere dazu notwendige Voraussetzungen jedoch nur wenige.
+Es kommt nur ein staatlicher Akteur infrage. Es sind sowohl die USA und ihre Verbündeten als Urheber des
+Zwischenfalls in Betracht zu ziehen, da sie mehrfach betont haben, den europäischen Gasimport aus Russland unterbinden zu wollen, als auch die Russen selbst, die ihre eigenen Interessen in der Energiekrise
+verfolgen.
+
+**Ist Russland für die Anschläge verantwortlich?**
+Zahlreiche westliche Medien haben die Schuld für die Anschläge der Führung in Moskau zuschoben. In
+einigen britischen Zeitungen etwa hiess es gleich am 27. September, dass es ein russischer Angriff gewesen
+sei. Aber auch deutsche Medien vertraten diese These. [Die ‹Sonntags-Zeitung› in der Schweiz berief sich
+
+
+-----
+
+am 2. Oktober auf den ehemaligen Chef des deutschen Nachrichtendienstes BND sowie auf die Denkfabrik
+Rand Corporation, welche das Militär in den USA berät, um die These zu unterstützen, dass wahrscheinlich
+Russland die Anschläge verübte. Anm. d. Red.]
+Der ‹Tagesspiegel› warf die Frage auf, wem der ‹Energieterror nützen könnte›, und stellte gleich die dazu
+passende Theorie auf, die Russen hätten in einer ‹False-Flag-Operation› ihre eigenen Gasleitungen gesprengt. Denn die daraus entstehende Verunsicherung würde ja grundsätzlich dem Kreml in die Karten
+spielen. Demnach könnte sein Motiv sein, Unsicherheit auf dem europäischen Gasmarkt zu schüren und
+möglicherweise den Gaspreis wieder nach oben zu treiben.
+Aber auch deutsche Politiker wollen Russland als den Hauptverantwortlichen für den Zwischenfall ausgemacht haben. So etwa der CDU-Abgeordnete und stellvertretende Vorsitzende des Geheimdienstausschusses im Bundestag, Roderich Kiesewetter. Gegenüber dem Handelsblatt erklärte er, dass dies ein gezielter Sabotageakt sei, der «durchaus in die von Staatsterrorismus geprägte und hybride Vorgehensweise
+Russlands passen würde». Es könnte ein Versuch gewesen sein, so der Christdemokrat, Europa zu spalten,
+die Bevölkerung zu verunsichern und auf diesem Wege die Unterstützung der Ukraine zu schwächen.
+Als Gegenargument für die Behauptung Kiesewetters könnte man anführen, dass Russland durch die Beschädigung der eigenen Infrastruktur sich eben auch selbst die Möglichkeit genommen hat, die Gasversorgung als Druckmittel zu verwenden.
+Darüber hinaus verliert Moskau mittel- bis langfristig die Möglichkeit, die Pipelines in Betrieb zu nehmen,
+um die Einnahmen aus dem Gasexport in Milliardenhöhe zu generieren. Der Verlust dieser Gelder ist in
+Anbetracht der westlichen Sanktionspolitik besonders schmerzhaft für die Russen, weil der Export von
+Rohstoffen für die russische Wirtschaft eine zentrale Rolle spielt.
+Was die ‹Verunsicherung des europäischen Gasmarktes› angeht, so ist erneut darauf hinzuweisen, dass
+über die beiden Nord-Stream-Leitungen zum Zeitpunkt des Zwischenfalls kein Gas transportiert wurde und
+die Gasmärkte auch nicht damit gerechnet haben, dass sich dies in naher Zukunft ändert. Dementsprechend stieg der Gaspreis auf dem Spotmarkt nach den Anschlägen auch nur auf 212 Euro je Megawattstunde. Dieses Preisniveau ist bei weitem nicht mit den Gaspreisen zu vergleichen, die man in den vergangenen Monaten in Europa sonst erlebt hatte.
+Aber es gibt da auch noch andere Vermutungen: Zum Beispiel soll der Zeitpunkt günstig gewählt worden
+sein, um den Anschlag den USA unterzuschieben. Schliesslich bewegen sich derzeit viele Kriegsschiffe der
+NATO in der Ostsee und östlich von Bornholm sammelt sich ein grosser US-Kampfverband. U-Boote und
+Marinetaucher sollen auch an diversen Übungen teilgenommen haben.
+Ausserdem könnte Russland Europa deutlich machen wollen, dass die westliche Sanktionspolitik nicht greift
+und dass man definitiv bereit sei, das Erdgas aus Westsibirien, das für den Export via Nord Stream in die
+EU bestimmt ist, in den kommenden Jahren nach China umzuleiten. Zumal Russland auch über andere
+Routen verfügt, um Gas nach Europa zu transportieren: die Pipeline ‹Turkish Stream› in Südeuropa, die
+Gasleitungen, die durch Weissrussland und die Ukraine gehen sowie den LNG-Transport.
+
+**Sind die USA für den Anschlag verantwortlich?**
+Trotz der Tendenz des Westens, immer zuerst die Russen zu verdächtigen, halten sich die europäischen
+Regierungen in diesem Zusammenhang mit Schuldzuweisungen derzeit zurück. Nicht aber die grossen
+europäischen Medien wie etwa der ‹Tagesspiegel›, die sich nach dem Pipeline-Zwischenfall umgehend daran gemacht haben, die Schuld Moskau zuzuschieben.
+Angesichts der politischen Spannungen um Nord Stream sind vor allem die Vereinigten Staaten als Urheber
+der vermeintlichen Sabotage in Betracht zu ziehen, da sie nicht nur mehrfach betont haben, den europäischen Gasimport aus dem Osten unterbinden zu wollen, sondern auch ganz klar den grössten wirtschaftlichen und geopolitischen Nutzen davon hätten, die Energiepartnerschaft zwischen Russland und Deutschland durch die Ausschaltung der Ostsee-Pipelines entscheidend zu schwächen.
+
+**Seit 2017 wollen die USA die Nord Stream-Pipelines verhindern**
+**und eigenes Fracking-Gas nach Europa exportieren**
+_Red. Der US-Kongress hat die US-Regierung mit einem Sanktionierungsgesetz dazu verpflich-_
+tet, den Bau einer zweiten deutsch-russischen Gasleitung in der Nordsee zu verhindern, um ihr
+eigenes Gas nach Europa exportieren zu können. Unternehmen und Banken, welche die Gasleitung Nord Stream 2 unterstützen, konnten seither mit Sanktionen belegt werden. Im Gesetz,
+das der US-Kongress im Jahr 2017 verabschiedete und Sanktionen gegen Investoren von Nord
+Stream 2 vorsieht, heisst es wörtlich:
+«Die US-Regierung legt grössten Wert auf den Export amerikanischer Energieträger und auf die
+Schaffung amerikanischer Jobs.»
+
+
+-----
+
+US-Sanktionsgesetz von 2017 © congress
+
+Von einer ‹bemerkenswerten Offenheit› in diesem Gesetz sprach der Geschäftsführer des OstAusschusses der Deutschen Wirtschaft, Michael Harms, 2018 im ARD-Magazin Panorama. Es
+werde eine «aussen- und sicherheitspolitische Zielsetzung mit dem Verfolgen eigener Wirtschaftsinteressen verknüpft».
+
+Die US-Juniorpartner Ukraine und Polen können nach einem definitiven Ausfall der Nord Stream-Pipelines
+als Transitländer bei der Energieversorgung Deutschlands nun eine herausragende Rolle spielen. Beide
+Staaten hatten immer wieder die Demontage von Nord Stream 2 gefordert und verlangen heute von der
+Europäischen Union, auf den Import von russischem Erdöl und Gas komplett zu verzichten.
+Die USA haben diese Position stets unterstützt und kündigten ihrerseits im vergangenen Februar sogar an,
+Nord Stream 2 im Fall eines russischen Einmarsches in die Ukraine unbenutzbar zu machen.
+Ausgehend von den technischen Möglichkeiten für die Durchführung eines Anschlags auf die Pipeline in
+70 Metern Tiefe sind die US-Militärs ihren ukrainischen und polnischen Kollegen allerdings weit voraus.
+Zudem befanden sich zu dem Zeitpunkt der Sabotage viele amerikanische Kriegsschiffe in der Ostsee und
+östlich von Bornholm, wo ein grosser US-Kampfverband im Rahmen der NATO operierte.
+Aus ökonomischer Sicht steht es ausser Frage, dass die USA ein grosses Interesse daran haben, preiswerte
+russische Rohstofflieferungen nach Deutschland, das zu den wichtigsten Konkurrenten der USA auf dem
+Weltmarkt zählt, langfristig zu verhindern. [Das ist auch der Inhalt eines Sanktionsgesetzes von 2017. Siehe
+Kasten oben.] Die Biden-Regierung brachte im vergangenen Jahr Nord Stream 2 mit Fragen der nationalen
+Sicherheit und der amerikanischen Aussenpolitik in Verbindung und unternahm zudem entsprechende
+Schritte, um Berlin dazu zu bringen, seine Sicht auf diese Pipeline zu ändern. Dazu gehören Sanktionen
+gegen diejenigen westlichen Unternehmen, die in das russische-europäische Energieprojekt involviert
+waren.
+
+**US-Interessen richten sich gegen die deutsche Wirtschaft**
+Kritiker hatten damals schon betont, dass die Amerikaner damit in erster Linie ihre eigenen Ziele verfolgen,
+die mit den fundamentalen Wirtschaftsinteressen der Bundesrepublik nicht nur nicht konvergieren,
+sondern sich offenbar gegen diese richten. Der Führung in Washington geht es schlicht darum, die eigenen
+Fracking-Produzenten und damit die US-Industrie zu stärken, indem man die deutschen Konkurrenten
+ihrer billigen Energieträger aus Russland «beraubt» und so die Beeinträchtigung der deutschen Wirtschaft
+forciert.
+Es liegt nicht im Interesse der USA, Konkurrenten auf dem Weltmarkt künftig Produktionsvorteile gegenüber
+US-Wettbewerbern zu überlassen. Darum versucht das Weisse Haus, alles in seiner Macht Stehende zu tun,
+um die Deutschen langfristig an das viel teurere Flüssiggas zu binden und die deutsche Industrie damit vor
+eine kostspielige Produktion zu stellen. Dadurch müssten die deutschen Unternehmen mehr Ressourcen
+in die Herstellung investieren, was ihre Erzeugnisse bestenfalls weniger konkurrenzfähig machen würde. So
+gesehen kann man die US-Strategie in Bezug auf Nord Stream 2 durchaus auch als einen Wirtschaftskrieg
+gegen Deutschland auffassen.
+In diesem Sinne sind die USA auch auf bessere Absatzchancen für ihr Flüssiggas (LNG) auf den europäischen Märkten aus, das mit dem deutlich billigeren russischen Pipeline-Gas bisher nicht konkurrieren
+konnte. Da der russische Gasimport nun extrem begrenzt wurde und es auch keine preiswerteren Alternativen zum US-amerikanischen Treibstoff gibt, stehen die Amerikaner dem Magazin ‹Spiegel› zufolge kurz
+davor, Europas grösster LNG-Lieferant zu werden. Die Milliarden Euro, die zuvor für Energielieferungen
+nach Russland gingen, gehen jetzt zu einem grossen Teil in die Vereinigten Staaten.
+Nicht zuletzt hat die Gasversorgung Deutschlands in der Ukraine auch eine wichtige politische Komponente,
+die den USA schon immer ein Dorn im Auge war. Der zentrale Aspekt dabei ist die Unersetzbarkeit der
+russischen Gaslieferungen, die Berlin immer dazu bewegt haben soll, auf russische Interessen Rücksicht
+
+
+-----
+
+zu nehmen, wie etwa im Ukraine-Krieg. Berlin weigerte sich bisher nicht nur vehement, schweres Kriegsgerät an die ukrainische Armee zu übergeben, sondern könnte die Ukrainer auch auf eine Beendigung des
+Konflikts mit Russland drängen. Jetzt, wo ein grosser Teil der Gaslieferungen für einen langen Zeitraum
+wegfallen dürfte, hat Deutschland nur wenig Nutzen davon, russische Interessen zu berücksichtigen und
+Moskau eine partielle Aufhebung der Sanktionen in Aussicht zu stellen.
+
+_So viel über die Interessenlagen der USA und von Russland. Wer wirklich für die Anschläge auf die Pipelines_
+_Nord Stream 1 und 2 verantwortlich ist, bleibt eine offene Frage._
+
+Samstag, 14.1.2023
+
+Lage der vier bekannten Lecks, die an den Nord-Stream-Pipelines am 26. September 2022
+verursacht wurden. © FactsWithoutBias1/Wikimedia Commons/CC BY-SA 4.0
+
+##### Nord-Stream-Anschlag: Keinerlei Hinweise auf russische Täter
+###### Führende US-Medien und Regierungsbeamte aus Europa äussern erstmals öffentlich Zweifel, dass Russland hinter dem Anschlag steckt.
+German Foreign Policy
+
+Drei Monate nach den Anschlägen auf die Erdgas-Pipelines Nord Stream 1 und 2 weisen zum ersten Mal
+Mitarbeiter westlicher Regierungen die Behauptung, Russland könne für den Sabotageakt verantwortlich
+sein, öffentlich zurück. Schon kurz vor den Weihachtsfeiertagen hatte die ‹Washington Post› berichtet, ‹zahlreiche› Regierungsmitarbeiter vermuteten ‹privat›, Moskau habe mit den Anschlägen nichts zu tun. Die Zeitung zitierte einen Beamten aus Europa mit der Einschätzung, es gebe ‹zum gegenwärtigen Zeitpunkt›
+keinerlei Hinweis auf eine russische Täterschaft. Diese Einschätzung gründe sich, hiess es, auf Gespräche
+mit 23 Quellen aus Diplomatie und Geheimdiensten.[1]
+Ein Beamter aus Westeuropa wird sogar mit der Aussage zitiert: «Die Überlegung, dass Russland es war,
+hat für mich nie Sinn ergeben.» Wie die ‹Washington Post› berichtet, beruht die Skepsis nicht bloss darauf,
+dass an den Tatorten keinerlei Hinweise auf russische Täter gefunden worden seien, sondern auch darauf,
+dass die gewöhnlich umfassende US-Spionage beim Abhören russischer Stellen bis heute keinerlei Hinweise auf eine Mitwisserschaft aufgespürt habe. Das sei recht ungewöhnlich.
+
+**Hohe Reparaturkosten**
+Wenige Tage später legte die ‹New York Times› nach. Die Zeitung schrieb, die Nord Stream AG, die die Pipeline Nord Stream 1 betreibe, habe begonnen, die Reparatur der Leitungen in den Blick zu nehmen. Dies
+habe eine Person mit detaillierter Kenntnis über die Vorgänge berichtet.[2] Zuvor hatte Moskau entsprechende Pläne zwar nicht bestätigt, sie jedoch auch nicht dementiert. Der stellvertretende russische Ministerpräsident Alexander Nowak hatte im Interview mit der russischen Nachrichtenagentur TASS mitgeteilt, Spezialisten stuften die Reparatur als «technisch machbar» ein; unklar sei aber, wie viel sie kosten würde.[3]
+Der ‹New York Times› zufolge beläuft sich eine Schätzung auf rund eine halbe Milliarde US-Dollar. Die Zeitung weist darauf hin, es leuchte nicht wirklich ein, dass Russland eine Erdgasleitung zerstöre, nur um sie
+anschliessend für hohe Summen wieder instand zu setzen. Dies gelte umso mehr, als Moskau weiterhin
+Transitgebühren für die noch getätigten Erdgaslieferungen durch Pipelines an Land zahlen müsse – und
+
+
+-----
+
+zwar an den Kriegsgegner, die Ukraine.[4] Hinzu komme, dass Moskau mögliche Gaslieferungen durch die
+Nord-Stream-Pipelines nun nicht mehr als Lockmittel nutzen könne.
+
+**Europas Erdgaslücke**
+Tatsächlich läge eine solche Nutzung im russischen Interesse. Laut jüngsten Prognosen der Internationalen
+Energieagentur (IEA) stehen die Staaten Europas im nächsten Jahr bzw. im nächsten Winter vor einer Versorgungslücke von rund 30 bis 60 Milliarden Kubikmetern Erdgas; wo diese herkommen sollen, ist völlig
+unklar.[5] Gedeckt werden könnten sie durch die Pipeline Nord Stream 1, deren Durchleitungsvolumen
+rund 55 Milliarden Kubikmeter jährlich erreicht. Die ‹New York Times› zitiert nun einen leitenden Mitarbeiter
+von Gazprom mit der Äusserung: «Warte bloss einen einzigen kalten Winter ab, und sie werden um unser
+Gas betteln.»[6] Die Möglichkeit, in einer akuten Notlage doch noch auf die Nord-Stream-Pipelines zurückzugreifen, ist durch die Anschläge zunichte gemacht worden.
+Hinzu kommt, dass Branchenexperten es durchaus für möglich halten, dass die Staaten Europas in Zukunft
+wieder russisches Pipeline-Gas in grösserem Umfang importieren. Wie die Nachrichtenagentur Bloomberg
+berichtet, gingen bei einem Fachtreffen, das das Oxford Institute for Energy Studies Anfang Dezember organisiert hatte, nur 40 Prozent aller Anwesenden davon aus, der Ausstieg Europas aus russischem Erdgas
+werde auf Dauer Bestand haben. 40 Prozent waren vom Gegenteil überzeugt.[7] Der Grund: Ohne kostengünstiges Erdgas könnten zentrale Branchen der europäischen Industrie nicht überleben.
+
+**Kanadas Sanktionen erschweren Reparatur**
+Würde eine Reparatur der Pipeline Nord Stream 1 die Wiederaufnahme der Lieferungen zumindest theoretisch ermöglichen, so hat Kanada entsprechenden Überlegungen Ende 2022 einen weiteren Schlag versetzt: Es hat Sanktionen wieder aktiviert, die es speziell verhindern, eine im kanadischen Montreal überholte
+Siemens-Turbine, die für den Betrieb von Nord Stream 1 benötigt wird, nach Russland zurückzubringen.[8]
+Das erhöht den Aufwand für eine Instandsetzung der Erdgasleitung zusätzlich. Hätte Ottawa eine etwaige
+Reparatur der Pipeline nicht im Blick, ergäbe die Aktivierung der Sanktionen zum Nachteil einer zerstörten
+Erdgasleitung wenig Sinn.
+
+**«Eine plausible Erzählung vorlegen»**
+Nicht nur in führenden US-Medien wird eine russische Täterschaft mittlerweile als recht unwahrscheinlich
+eingestuft. Auch ‹Leute im Berliner Regierungsbetrieb›, so wird berichtet, stellten «unter der Hand Fragen
+…, die für Unruhe in der Nato sorgen könnten»: Hätten nicht «die Ukraine und Polen mit grösstem Nachdruck von Deutschland den Verzicht auf die Nord-Stream-Leitungen gefordert?»[9] Ein nicht namentlich
+genannter hochrangiger Militärexperte wiederum wird mit der Aussage zitiert, man möge «sich gar nicht
+vorstellen, was passieren würde, wenn irgendwann mitten im Krieg herauskäme, dass ein Nato-Staat bei
+der Bombardierung der umstrittenen Pipeline geholfen oder von entsprechenden Plänen gewusst habe,
+ohne sie zu verhindern».[10]
+Der Druck auf die deutsche Regierung steigt, erste Ergebnisse der Ermittlungen zu den Nord Stream-Anschlägen bekanntzugeben, «weil die wilden Spekulationen in dieser unklaren Situation nicht ungefährlich
+sind», sagte der Bundestagsabgeordnete Roderich Kiesewetter (CDU), stellvertretender Vorsitzender des
+Parlamentarischen Kontrollgremiums.[11] Auch der Vorsitzende des Parlamentarischen Kontrollgremiums,
+Konstantin von Notz (Bündnis 90/Die Grünen), verlangt, die Bundesregierung müsse «Transparenz schaffen oder wenigstens eine plausible Erzählung der Ereignisse vom 26. September vorlegen».
+
+**Schiffe mit ausgeschaltetem Transponder**
+Erschwert wird die Angelegenheit durch die exzessive Geheimhaltungspraxis Schwedens, dessen Behörden
+laut Berichten nicht einmal die verbündeten NATO-Staaten über Resultate ihrer Ermittlungen informieren.
+Zu den Rätseln um die Anschläge auf die Pipelines gehört nicht zuletzt, woher die beiden grossen Schiffe
+kamen, die laut Recherchen des Magazins ‹Wired› in den Tagen unmittelbar vor den Anschlägen nicht weit
+von den Tatorten kreuzten und dabei ihre Transponder ausgeschaltet hatten.[12] Bemerkenswert ist, dass
+noch niemand Belege für die Behauptung präsentiert hat, es seien russische Schiffe gewesen. Die Grösse
+der Schiffe und die Dichte der NATO-Aufklärung in der Ostsee lässt Unkenntnis über das maritime Geschehen unweit der strategisch wichtigen Insel Bornholm als nicht besonders wahrscheinlich erscheinen. Bekannt ist jedoch, dass sich Kriegsschiffe der schwedischen Marine kurz vor dem Tatzeitpunkt gleichfalls in
+der Nähe der Tatorte aufgehalten hatten. Die schwedische Marine hat dies sogar eingeräumt und als Ursache nicht näher bestimmte Massnahmen der Seeraumüberwachung angegeben.[13] Ob dabei üblicherweise die Transponder ausgeschaltet werden, ist nicht bekannt.
+
+**FUSSNOTEN:**
+
+[1] Shane Harris, John Hudson, Missy Ryan, Michael Birnbaum: «No conclusive evidence Russia is behind Nord Stream attack».
+washingtonpost.com, 21.12.2022.
+
+
+-----
+
+[2] Rebecca R. Ruiz, Justin Scheck: «In Nord Stream Mystery, Baltic Seabed Provides a Nearly Ideal Crime Scene». nytimes.com,
+26.12.2022.
+
+[3] Michael Maier: «Nord Stream: Repariert Russland heimlich die Pipeline?» berliner-zeitung.de, 02.01.2023.
+
+[4] Rebecca R. Ruiz, Justin Scheck: «In Nord Stream Mystery, Baltic Seabed Provides a Nearly Ideal Crime Scene». nytimes.com,
+26.12.2022.
+
+[5] S. dazu Die Erdgaslücke.
+
+[6] Rebecca R. Ruiz, Justin Scheck: «In Nord Stream Mystery, Baltic Seabed Provides a Nearly Ideal Crime Scene». nytimes.com,
+26.12.2022.
+
+[7] Javier Blas: «Can Europe’s Energy Bridge to Russia Ever Be Rebuilt?» bloomberg.com, 12.12.2022.
+
+[8] Darren Major: «Ottawa revokes sanctions waiver on Nord Stream gas turbines». cbc.ca, 14.12.2022.
+
+[9], [10] Daniel Goffart: «Erst bombardieren, dann reparieren?» wiwo.de, 01.01.2023.
+
+[11] Christopher Ziedler: «100 Tage nach den Gaslecks: Rätselraten um die Nord-Stream-Sabotage geht weiter». tagesspiegel.de,
+03.01.2023.
+
+[12] «’Dark Ships› Emerge From the Shadows of the Nord Stream Mystery». wired.co.uk, 11.11.2022.
+
+[13] Svenska marinens fartygsrörelser I området: «Inte en slump». svt.se, 03.10.2022.
+
+Montag, 27.2.2023
+
+##### «USA zerstörten Nord-Stream, damit Scholz keine Wahl mehr hat»
+###### Laut US-Journalist Seymour Hersh wollten die USA verhindern, dass Deutschland im kalten Winter die Pipeline nutzt. Eine Nachlese.
+Urs. P. Gasche
+
+Dieser Artikel legt nahe, dass die USA und Norwegen den Terrorakt in der Ostsee ausführten und nicht
+Russland. Damit stellt sich Infosperber nicht auf die Seite des Kriegsführers Putin, sondern versucht, im
+Fall Nord-Stream den Tatsachen so nahe wie möglich zu kommen. Das Schweigen der deutschen Regierung
+darf die Öffentlichkeit nicht akzeptieren.
+
+Pipelines Nord-Stream 1 und 2 mit Orten des Terror-Anschlags © DW
+
+© U v d L
+
+
+-----
+
+Am Tag nach dem Anschlag twitterte EU-Kommissionspräsidentin Ursula von der Leyen: «Jede vorsätzliche
+Störung der aktiven europäischen Energieinfrastruktur ist inakzeptabel und wird zu den schärfstmöglichen
+Reaktionen führen.» Seither herrscht Schweigen. Von ‹scharfen Reaktionen› ist keine Rede mehr.
+
+Bereits vor der Sabotage floss kein Erdgas mehr durch die alte Ostsee-Pipeline Nord-Stream 1. Und die
+neue Pipeline Nord-Stream 2 war noch nicht in Betrieb. Seymour Hersh erklärte am 14. Februar in einem
+Interview mit der Berliner Zeitung[1]:
+
+«Nord Stream 2 wurde von Deutschland selbst auf Eis gelegt, nicht durch Sanktionen […] Das
+Weisse Haus befürchtete, dass Deutschland und Westeuropa die gewünschten Waffen nicht
+mehr liefern würden und dass der deutsche Bundeskanzler die Pipeline wieder in Betrieb nehmen könnte – das war eine grosse Sorge in Washington.»
+
+Die USA hatten die Sabotage der Erdgasleitungen bereits einige Zeit vorher angekündigt. Nach dem erfolgreichen Terrorakt äusserten sich die USA offiziell sehr erfreut.
+
+**Seymour Hersh: «von langer Hand geplante Sabotage-Aktion»**
+Die USA hätten mit Hilfe Norwegens in einer verdeckten und von langer Hand geplanten Sabotage-Aktion
+die beiden Leitungen am 26. September 2022 gesprengt. Sie hätten verhindern wollen, dass Deutschland
+bei einer Gas-Knappheit im Winter 2022/23 doch wieder günstiges russisches Gas aus Russland importiert.
+Zu diesem Schluss kam der US-Investigativjournalist Seymour Hersh, der seit Jahrzehnten Machenschaften
+der US-Administrationen aufdeckt. Unter dem Titel «How America Took Out The Nord Stream Pipeline» beschreibt er, wie die USA die Geheimaktion von langer Hand vorbereiteten und dann zusammen mit norwegischen Spezialeinheiten durchführten. Bereits im Juni 2022 hätten US-Marinetaucher im Rahmen einer
+NATO-Sommerübung namens BALTOPS 22 die fernauslösbaren Sprengsätze an den Pipelines angebracht,
+die drei Monate später ferngesteuert drei der vier Nord-Stream-Pipelines zerstörten.
+Hersh stützt sich nach eigenen Angaben auf eine Quelle, welche über direkte Kenntnisse der Einsatzplanung
+verfügt. Es ist nachvollziehbar, dass die Auskunftsperson geheim bleiben möchte. Denn wer in den USA
+Staatsgeheimnisse verrät, riskiert das Schicksal eines Edward Snowden oder eines Julian Assange.
+
+**«Behauptung ist komplett falsch»**
+Nach Veröffentlichung von Hershs Recherchen dementierte Adrienne Watson, eine Sprecherin des Weissen
+Hauses, umgehend: «Das ist falsch und frei erfunden.» CIA-Sprecherin Tammy Thorp doppelte nach: «Diese
+Behauptung ist komplett falsch.»
+In der Schweiz übernahmen grosse Medien wie die NZZ oder die Tamedia-Zeitungen die Dementis der USA
+und informierten nur spärlich über die Vorbereitungen und den Ablauf der Sprengungen, wie sie Hersh
+recherchierte und darstellt.
+Medien, die von Hersh die Offenlegung der Quelle und Dokumente verlangen, verdächtigten handkehrum
+Russland als Urheber, ohne selbst dazu auch nur Indizien zu haben.
+Einige britische Zeitungen verbreiteten bereits am 27. September, einen Tag nach dem Terrorakt, es sei ein
+russischer Angriff gewesen. Auch deutsche Medien vertraten diese These. Am gleichen Tag titelte die NZZ
+auf der Frontseite: «Dänische Regierung geht bei Ostseepipelines von Sabotage aus Russland aus.» Die
+Zeitung fragte weder nach der Quelle noch nach Beweis-Dokumenten.
+Der CDU-Abgeordnete und stellvertretende Vorsitzende des Geheimdienstausschusses im Bundestag,
+Roderich Kiesewetter, erklärte gegenüber dem Handelsblatt, es handle sich um einen gezielten Sabotageakt, der «durchaus in die von Staatsterrorismus geprägte und hybride Vorgehensweise Russlands passen
+würde».
+Am 1. Oktober schrieb Stephan Israel, Redaktor des Tages-Anzeigers, in einem Leitartikel für die TamediaZeitungen, Wladimir Putin sei der ‹Hauptverdächtige›. Eine Quelle oder einen Beleg nannte Israel nicht. Es
+gehöre zur russischen Desinformationspolitik, dies abzustreiten. Der Leitartikel hob als Schlagzeile heraus:
+«Der Angriff auf die Nord-Stream-Pipelines ist auch eine indirekte Kriegserklärung an den Westen.»
+
+Am 2. Oktober schrieb Auslandredaktor Markus Bernath in der NZZ am Sonntag:
+«Der offenkundige Sprengstoffanschlag auf die Nord-Stream-Pipelines in der Ostsee könnte
+von einer Spezialeinheit des russischen Militärs ausgeführt worden sein […] Der Anschlag auf
+die Nord-Stream-Pipelines – schreibt man ihn den Russen zu – hat noch eine andere, gefährlichere Botschaft: Moskau droht dem Westen damit indirekt weitere Sabotageakte gegen essenzielle Bereiche der Infrastruktur an. Datenleitungen oder andere Pipelines am Meeresboden,
+Bohrinseln im Meer, Cyberangriffe auf Windenergieanlagen. Vieles ist vorstellbar, vieles sehr
+verwundbar.»
+
+
+-----
+
+Ebenfalls am 2. Oktober berief sich die Sonntags-Zeitung auf den ehemaligen Chef des deutschen Nachrichtendienstes BND sowie auf die Denkfabrik Rand Corporation, um die These zu unterstützen, dass wahrscheinlich Russland die Anschläge verübte. Die Rand Corporation arbeitet in den USA für das Militär.
+Bereits am 28. September zitierten die Tamedia-Zeitungen wie Tages-Anzeiger, Der Bund usw. einen nicht
+genannten ‹norwegischen Militärexperten› und titelten auf den Frontseiten in der halben Schweiz:
+
+**«Der Westen wirft Russland Sabotage vor.»**
+Weiter im Artikel: «Der Westen hat Russland für die Lecks in den Nord-Stream-Pipelines in der
+Ostsee verantwortlich gemacht. ‹Lecks an drei Orten, die so weit voneinander entfernt liegen,
+können nur die Folge von Sabotage sein›, erklärte ein norwegischer Militärexperte.»
+
+Am 5. Oktober stützte sich die NZZ offensichtlich auf den gleichen ‹norwegischen Militärexperten› und
+schrieb: «Der Westen hat Russland für die Lecks in den Nord-Stream-Pipelines in der Ostsee verantwortlich
+gemacht.»
+
+Und der Tages-Anzeiger, ebenfalls am 5. Oktober:
+
+Tages-Anzeiger vom 5. Oktober 2022 © tamedia
+
+**Fast alle Indizien sprechen für einen Terrorakt der USA**
+Eigentlich läuteten von Beginn weg alle Alarmglocken und wiesen darauf hin, dass nicht Russland, sondern
+die USA oder nordische NATO-Verbündete die Sprengungen durchführten. Folgende starke Indizien und
+Argumente zeigten in diese Richtung.
+
+**1. Präsident Joe Biden hat eine Sabotage angekündigt**
+Am 7. Februar 2022, knapp drei Wochen vor der russischen Invasion in der Ukraine, traf Biden in seinem
+Büro im Weissen Haus mit Bundeskanzler Olaf Scholz zusammen. Bei der anschliessenden Pressekonferenz sagte Biden wörtlich:
+
+«Wenn Russland einmarschiert, wird es kein Nord Stream 2 mehr geben, wir werden dem Projekt ein Ende setzen.» Und als eine Reporterin fragte, wie genau er das zu tun gedenke, da das
+Projekt vor allem unter deutscher Kontrolle stehe, sagte Biden nur: «Ich verspreche, dass wir
+in der Lage sein werden, es zu tun.»
+
+CNBC berichtete am 7. Februar darüber unter dem Titel «Biden says Nord Stream 2 won’t go forward if
+Russia invades Ukraine, but German Chancellor demurs» («Biden sagt, Nord Stream 2 werde nicht gebaut,
+wenn Russland in die Ukraine einmarschiert, aber der deutsche Bundeskanzler widerspricht»).
+Unabhängig vom russischen Einmarsch in die Ukraine hatten sich die USA wiederholt und deutlich gegen
+den Bau von Nord-Stream 2 ausgesprochen. Drei Wochen vor Bidens Pressekonferenz verkündete Staatssekretärin Victoria Nuland bei einem Briefing des Aussenministeriums im Wesentlichen dieselbe Botschaft:
+
+«Ich möchte Ihnen heute ganz klar sagen: Wenn Russland in die Ukraine einmarschiert, wird
+Nord Stream 2 so oder so nicht vorankommen.»
+
+Und schliesslich erklärte US-Aussenminister Antony Blinken an einer Pressekonferenz im September zu
+einer möglichen Energiekrise in Westeuropa:
+
+«Es ist eine enorme Chance, die Abhängigkeit von russischer Energie ein für alle Mal zu beenden und damit Wladimir Putin das Erdgas als Mittel zur Durchsetzung seiner imperialen Pläne
+
+
+-----
+
+zu entziehen. Das ist sehr bedeutsam und bietet eine enorme strategische Chance für die kommenden Jahre.»
+
+**2. Motive und Nutzen**
+Wie in jedem Kriminalfall gilt es zu fragen, wem die Zerstörung der Pipelines nützt und welche Motive hinter
+dem Anschlag stehen könnten.
+Russland hätte sich durch die Beschädigung der eigenen Infrastruktur selbst der Möglichkeit beraubt, die
+Gasversorgung als Druckmittel zu verwenden. Zudem verliert Moskau mittelfristig die Möglichkeit, die
+Pipelines in Betrieb zu nehmen, um Einnahmen aus dem Gasexport in Milliardenhöhe zu generieren.
+Klar den grössten wirtschaftlichen und geopolitischen Nutzen von der Zerstörung der Pipelines haben die
+USA. Denn die Energiepartnerschaft zwischen Russland und Deutschland wird entscheidend geschwächt.
+Bereits seit 2017 wollten die USA die Nord Stream-Pipelines verhindern und eigenes Fracking-Gas nach
+Europa exportieren. Mit einem ‹Sanktionsgesetz› verpflichtete der US-Kongress die US-Regierung sogar, den
+Bau einer zweiten deutsch-russischen Gasleitung in der Nordsee zu verhindern, um ihr teureres USFracking-Gas nach Europa exportieren zu können. Unternehmen und Banken, welche die Gasleitung NordStream 2 unterstützen, konnten seither mit Sanktionen belegt werden. Im Gesetz, das der US-Kongress im
+Jahr 2017 verabschiedete und das Sanktionen gegen Investoren von Nord-Stream 2 vorsieht, heisst es
+wörtlich: «Die US-Regierung legt grössten Wert auf den Export amerikanischer Energieträger und auf die
+Schaffung amerikanischer Jobs.»
+Es ist im Interesse der US-Wirtschaft, Konkurrenten auf dem Weltmarkt keine billige Energie zu überlassen,
+wenn das einheimische Fracking-Gas viel teurer ist. Falls die deutsche Wirtschaft von dem viel teureren
+Flüssiggas abhängig wird, werden deutsche Erzeugnisse weniger konkurrenzfähig. Und Milliarden Euro, die
+zuvor für Energielieferungen nach Russland gingen, gehen jetzt zu einem grossen Teil in die USA.
+
+**3. Eine ‹False-Flag-Operation›**
+Weil Russland an einer Zerstörung der Pipelines offensichtlich kein Interesse haben konnte, verbreiteten
+westliche Think-Tanks, Russland habe mit dem Sabotage-Akt eine ‹False-Flag-Operation› beabsichtigt. Damit ist ein in den 50er-Jahren von der CIA entwickeltes Täuschungsmanöver des Militärs oder des Geheimdienstes gemeint, den Gegner (hier die USA oder die NATO) fälschlicherweise als Urheber darzustellen, um
+dies als Vorwand für eigene Militärschläge zu nutzen.
+Russland habe also den Sabotage-Akt ausgeführt, um ihn der NATO in die Schuhe zu schieben und ihn als
+Anlass für Vergeltungsmassnahmen zu nutzen. Russlands Militär war jedoch längst in der Ukraine und
+brauchte keinen ‹Vorwand›, um weiter vorzustossen, um einen Luftkrieg anzufangen oder eine taktische
+Atomwaffe zu zünden, was Russland bisher nicht tat.
+Bereits unmittelbar nach der Sprengung der Pipelines erklärte die polnische Regierung als erste, es handle
+sich möglicherweise um eine russische Provokation. Es folgte der ukrainische Präsidentenberater Mychailo
+Podoljak auf Twitter: «Das grossflächige ‹Gasleck› an Nord Stream 1 ist nichts anderes als ein von Russland
+geplanter Terroranschlag und ein Akt der Aggression gegenüber der EU.»
+Am 28. September zitierte der ‹Tagesspiegel› Podoljak: Er halte eine ‹False Flag-Aktion› Russlands für
+‹denkbar›.
+Am 1. Oktober zitierte die NZZ am Sonntag eine neue Quelle, um die Vermutungen auf Russland zu richten:
+
+«Für Sascha Dov Bachmann, einen Theoretiker des hybriden Krieges, ist klar, dass dies eine
+Operation ‹unter falscher Flagge› war, eine Tat ganz in der Tradition militärischen Denkens der
+Sowjetunion und Stalins, um die Öffentlichkeit im Westen wie im eigenen Land in die Irre zu
+führen…»
+
+**4. Weitere Indizien in Richtung USA als Akteur**
+
+- Zum Zeitpunkt der Sabotage befanden sich viele US-Kriegsschiffe in der Ostsee und östlich von Bornholm, wo ein grosser US-Kampfverband im Rahmen der NATO operierte. Er könnte dafür gesorgt haben,
+dass die Sabotage ausgelöst wurde und die Urheber verdeckt blieben.
+
+- Anstatt sofort Ermittlungen zu beginnen, teilte die deutsche Bundesregierung am 11. Oktober 2022 mit,
+die Untersuchungen der Vorfälle vor Ort würden ‹gerade erst beginnen». Diese Verzögerung ist erklärungsbedürftig, denn es handelt sich um einen Terrorakt. Und es geht auch um Haftungsansprüche.
+
+- Russische Experten wurden daran gehindert, bei den Untersuchungen vor Ort dabei zu sein.
+
+- Norwegen und Schweden weigern sich bis heute, die Ergebnisse ihrer Untersuchungen bekannt zu
+geben. Die deutsche Bundesregierung weigert sich ihrerseits zu sagen, welche Schiffe der NATO und
+Russlands sich in der Nähe des Tatorts aufhielten.
+
+- Politiker und Medien setzen sich mit den Recherchen von Seymour Hersh nicht auseinander, sondern
+zielen auf die Person (was nach gängiger PR-Regel bedeutet, dass man sich mit Argumenten und Fakten
+nicht auseinandersetzen will): Es handle sich um einen 85-jährigen Mann, der die Täterschaft Assads
+
+
+-----
+
+für ein Giftgasattentat verneint habe. Hersh stütze sich bei seiner Nord-Stream-Recherche auf eine
+einzige Quelle, würde seinen Informanten nicht nennen und keine Dokumente als Beweis vorlegen,
+lauten die Gründe für die Skepsis. In ihren Online-Ausgaben verlinkten viele Medien nicht einmal den
+Bericht von Hersh.
+
+- ‹Ein Starjournalist auf Abwegen› titelte die NZZ. Hersh vermische ‹Phantasie mit Fakten›. Und als schlagenden Beweis für die Unseriosität von Hersh meinte Korrespondentin Katja Müller, die These von Hersh
+werde «vor allem von regierungsnahen russischen Medien verbreitet». In den USA würde diese These
+kaum aufgenommen.
+Die Tamedia-Zeitungen wie beispielsweise Tages-Anzeiger, Der Bund oder Zürcher Oberländer übernahmen einen Kommentar von Stefan Kornelius, Redaktor der ‹Süddeutschen Zeitung›: Hersh verbreite eine
+‹spektakuläre, aber unplausible These› und betreibe ‹ein Geschäft mit der Konspiration›.
+Auf die konkrete Darstellung von Hersh ging Kornelius nicht ein.
+Kornelius ist Mitglied der ‹Atlantik-Brücke›, die unter anderem eine militärpolitische Brücke zwischen
+den USA und Deutschland schlagen will, und sass einige Jahre – wie heute die in den Medien präsenten
+Professor Carlo Masala und Marie-Agnes Strack-Zimmermann – im Beirat der ‹Bundesakademie für
+Sicherheitspolitik›, die organisatorisch zum Geschäftsbereich des Bundesministeriums der Verteidigung
+gehört und laut Statuten die Bundesregierung berät, also die selbe Bundesregierung, deren Politik die
+Medien kritisch hinterfragen sollten. Es fällt auf, dass die ‹Süddeutsche Zeitung› Hersh noch im Januar
+2019 als den ‹wichtigsten US-Investigativjournalisten› lobte. Nun verbreitet sie, Hersh ‹drohe die Spur
+zu verlieren› und verbreite ‹Konspiration›.
+Noch am 3. Mai 2022 leitete der ‹Bayrische Rundfunk› eine Sendung über Hersh mit den Worten ein:
+«Reporterlegende Seymour Hersh – Stachel im Fleisch der Mächtigen. Er bringt ans Tageslicht, was die
+Mächtigen verbergen: Kriegsverbrechen, Korruption, Umweltfrevel. Die Enthüllungen der Reporterlegende zeigen der Weltöffentlichkeit das hässliche Gesicht der USA.»
+
+**5. Offizielle Reaktionen**
+Medien, welche als Hauptverdächtigen für die Sabotage vorschnell Russland ausmachten, sollte etwas später wenigstens stutzig machen, dass westliche Exponenten die Zerstörung der Pipelines begrüssten.
+Sogar schon wenige Tage nach der Sprengung der Pipelines erklärte US-Aussenminister Antony Blinken
+an einer Pressekonferenz, Putin sei jetzt ein wichtiges Machtmittel genommen worden. Die Zerstörung der
+Pipelines sei eine ungeheure Chance – eine Chance, Russland die Möglichkeit zu nehmen, die Pipelines als
+Waffe einzusetzen.
+Am 30. September, nur vier Tage nach dem Pipeline-Anschlag, twitterte der ukrainische Finanzmarktspezialist Bohdan Kucheriavyi[2] erfreut: «Die Sabotage der Nord-Stream verschafft neue Möglichkeiten.»
+
+Tweet von Bohdan Kucheriavyi vom 30.9.2022 © Exxon Mobil
+
+Am 26. Januar 2023 zeigte sich auch Victoria Nuland erfreut, bekannt durch ihren Ausspruch ‹Fuck the
+EU›. Während einer Anhörung des Ausschusses für auswärtige Beziehungen des Senats sagte sie zu Senator
+Ted Cruz: «Wie Sie bin auch ich, und ich glaube auch die Regierung, sehr erfreut zu wissen, dass Nord
+Stream 2 jetzt, wie Sie sagen, ein Haufen Metall auf dem Meeresgrund ist.»
+Am 27. Januar 2022 bedankte sich der frühere polnische Verteidigungs- und Aussenminister Radoslaw
+Sikorski in einem Tweet bei den USA: «Thank you, USA.»
+
+**Peinlicher Faktencheck der ARD**
+Unter dem Titel ‹Sprengstoff in Pflanzenform unwahrscheinlich› dementierten die Faktenchecker der ARD
+Seymours Hershs Beschreibung des Attentats. Hersh habe behauptet, die Taucher hätten den plastischen
+Sprengstoff C4 «in Form von Pflanzen auf den vier Pipelines mit Betonschutzhüllen» platziert. Laut Experten
+sei «die These, der Sprengstoff sei in Pflanzenform angebracht worden, ‹abenteuerlich›», verbreiteten die
+Faktenchecker.
+
+
+-----
+
+Der später korrigierte «Faktencheck» der ARD © ARD
+
+«Sprengstoff in Pflanzenform unwahrscheinlich»:
+Wohl wahr, aber das hat Seymour Hersh nicht behauptet. © ard
+
+Später mussten die ARD-Faktenchecker zurückkrebsen: In Hersh Originaltext heisst es: «…plant shaped C4
+charges». Die Faktenchecker übersetzten dies mit «Sprengstoff C4 in Form von Pflanzen». Nur: ‹Plant› bedeutet in diesem Fall ‹platzieren› und nicht ‹Pflanze›.
+
+**Olaf Scholz: «Man kann es nur vermuten»**
+
+© phoenix
+
+Während eines TV-Bürgerdialogs Anfang Februar nahm der deutsche Bundeskanzler das Wort ‹USA› nicht
+in den Mund:
+
+
+**Olaf Scholz: «Man kann es nur vermuten»**
+
+© phoenix
+
+
+-----
+
+«Wer die Pipeline gesprengt hat, kann man vermuten, aber weil wir ein Rechtsstaat sind, vermuten wir nicht, sondern sagen nur dann etwas ganz Präzises, wenn wir das beweisen können.
+Auch wenn hier fast alle denken, wie das ist, darf man sich nicht in Spekulationen ergehen.»
+
+Hinter dieser Maxime versteckt sich Scholz wohl deshalb, weil es um Vorwürfe an die Adresse der USA geht.
+Bei Vorwürfen gegen Russland oder China, geschweige denn gegen die Oppositionsparteien gilt dieser
+hehre Grundsatz der endgültigen Beweisbarkeit, um eine fast sichere Vermutung auszusprechen, offensichtlich nicht.
+1 Das Zitat wurde am 27.2.2023 ergänzt
+2 Hier wurde der Tweet anfänglich irrtümlicherweise Exxon Mobil zugeordnet
+
+**NACHTRAG vom 28.2.2023**
+Im obigen Artikel kritisierte ich die zitierten Zeitungen, weil diese Seymour Hersh als unglaubwürdig darstellten, ohne dass sie überhaupt darüber informierten, was denn Hersh herausgefunden zu haben glaubt.
+Unterdessen melden einige Medien Zweifel, ob Details des von Hersh beschriebenen Ablaufs des terroristischen Anschlags zutreffen. Es kann sein, dass Hersh den genauen Ablauf absichtlich mit Fehlern darstellte,
+damit seine Quelle schwieriger identifiziert werden kann. Es kann auch sein, dass Hersh über den Ablauf
+falsch informiert ist. Bei ihren Zweifeln stützten sich beispielsweise die Faktenchecker der ARD auf den
+Pressesprecher der norwegischen Streitkräfte und auf einen dänischem Datenanalysten.
+Die taz macht es sich einfach, wenn sie aufgrund von fehlerhaften Details die Kernaussagen von Hersh als
+‹unplausibel› disqualifiziert. Weder die taz noch die ARD-Faktenchecker haben Hersh Gelegenheit gegeben,
+zu den Vorwürfen Stellung zu nehmen.
+Der deutsche Wirtschaftsminister Robert Habeck stufte die Ermittlungen als ‹geheimdienstlich› ein. Weder
+die deutschen noch die dänischen noch die schwedischen oder norwegischen Ermittler geben ihre Ergebnisse bekannt. Gäbe es auch nur Hinweise dafür, dass Russland für den Terrorakt verantwortlich ist, wären
+entsprechende Ergebnisse wohl längst bekannt gemacht worden.
+Im obigen Artikel sind eine ganze Reihe deutlicher Indizien aufgezeigt, welche nahelegen, dass die USA
+beim Anschlag federführend waren.
+
+Donnerstag, 9.3.2023
+
+Die ARD berichtet über den Verdacht © ard
+
+##### Einige Medien glauben der Jacht-Story mehr als Seymour Hersh
+###### Die sechsköpfige Besatzung einer gemieteten Jacht soll die drei Nord-Stream- Pipelines gesprengt haben: Das ist eher unglaubwürdig. 
+Urs P. Gasche
+
+‹Laut Medienberichten› gebe es im Fall Nord-Stream ‹eine neue Spur› meldete die ‹NZZ› am 8. März[1] und
+titelte vorsichtig mit Fragezeichen: ‹Stecken Ukrainer hinter Anschlag auf Pipelines?›
+Ohne Fragezeichen titelte der ‹Blick›: ‹Spuren der Täter führen in die Ukraine ›
+
+
+-----
+
+‹SRF-online› hat am 8. März[1] ebenfalls als sichere Erkenntnis getitelt: ‹Spuren der Nord-Stream-Ermittlungen führen in die Ukraine.›
+SRF weiter: Deutsche Ermittlungsbehörden hätten ‹einen Durchbruch erzielt›. Es handle sich um eine ‹gross
+angelegte Recherche› von ARD, SWR und der ‹Zeit›. Die Ermittler hätten das Boot identifiziert, «das mutmasslich für diese Operation verwendet wurde». Es fällt auf, dass SRF den Terrorakt verharmlosend eine
+‹Operation› nennt.
+SRF zitierte dann den früheren Russland-Korrespondenten David Nauer: Es sei theoretisch auch denkbar,
+dass jemand absichtlich eine falsche Fährte legte, um in Richtung Ukraine zu zeigen. ‹Denkbar› und ‹nicht
+auszuschliessen› ist vieles.
+Man könnte auch sagen: «Es ist durchaus möglich, dass jemand absichtlich eine falsche Fährte legte, um
+von den USA und Norwegen abzulenken.»
+Es ist auch ‹nicht auszuschliessen› oder ‹denkbar›, dass ein Geheimdienst für Sprengstoffspuren sorgte, die
+man in der Jacht gefunden habe.
+SRF meint denn auch, – nicht genannte – ‹internationale Sicherheitskreise› würden ‹nicht ausschliessen› (!),
+dass es sich «um eine sogenannte Fals-Flag-Operation handeln könnte. Dabei würden bewusst Spuren
+gelegt, die auf einen [falschen] Verursacher deuten sollen.»
+Weiter zitiert SRF den «hochrangigen Berater des ukrainischen Präsidenten Wolodimir Selensky, Mikhailo
+Podoliak, wonach es ‹denkbar› (!) sei, dass Russland dahinterstecke.
+
+Einen Tag später, am 9. März[1], liess auch die ‹NZZ› keinen Zweifel mehr offen und titelte: ‹Die Spuren der
+Nord-Stream-Sabotage führen in die Ukraine.›
+Die Tamedia-Zeitungen wie der ‹Tages-Anzeiger› titelten immer noch etwas vorsichtiger: ‹Ein ukrainisches
+Kommando könnte es gewesen sein.›
+Doch, schreiben die Tamedia-Zeitungen, «die Indizien sind recht handfester Natur». Als Quelle nennt der
+‹Tages-Anzeiger› ‹amerikanische Nachrichtendienste› und ‹US-Geheimdienste› und meint dann: «Sollten
+pro-ukrainische Kräfte für die Sabotage verantwortlich sein, hat die Ukraine jedes Interesse, die Schuld weit
+von sich zu weisen.»
+Man könnte auch sagen: Falls die USA zusammen mit Norwegen die Sabotage organisierten, haben die
+US-Geheimdienste jedes Interesse daran, falsche Fährten zu legen.
+Die ‹NZZ› macht darauf aufmerksam, dass es für die Zerstörung der Pipelines, teilweise auf einer Länge
+von bis zu 250 Metern, 200 bis 400 Kilogramm Sprengstoff und spezielle Geräte brauchte. Es müsse –
+auch wegen der immensen Kosten – ein ‹staatlicher Akteur› dahinterstecken. Die sechs Besatzungsmitglieder hätten die gemietete Jacht dann zurückgegeben, ‹ohne sie gründlich zu reinigen›. Deshalb hätten die
+Ermittler später Spuren von Sprengstoff nachweisen können. Hat der ‹staatliche Akteur› also Amateure eingesetzt?
+
+**Anderer Massstab als bei Seymour Hersh**
+Es fällt auf, dass vor allem deutsche Medien das jetzt verbreitete Jacht-Narrativ anders bewerten als die
+Recherchen des US-Investigativjournalisten Seymour Hersh, der die USA und Norwegen als Urheber des
+Sabotage-Akts ausgemacht hat. Über den Ablauf der Sabotage, wie Hersh ihn beschrieb, wurde kaum informiert (anders als jetzt bei der Jacht), sondern man versuchte, Hersh als unglaubwürdig hinzustellen. Es
+handle sich um einen 85-jährigen Mann, der auch schon falsch gelegen habe. Er nenne weder den Namen
+seiner Quelle, die über die Vorbereitung und den Ablauf der Sabotage Kenntnis habe, noch lege er Beweisdokumente vor.
+Das tun auch ARD, SWR und die ‹Zeit› nicht. Sie nennen nur den Generalbundesanwalt, der die Jacht
+identifiziert habe.
+Stefan Kornelius, Redaktor der ‹Süddeutschen Zeitung› und Mitglied der ‹Atlantik-Brücke›[2], hatte Hersh vorgeworfen, er verbreite eine ‹spektakuläre, aber unplausible These›. Ob er die Jacht-Story für plausibler hält?
+
+**Fast alle Indizien sprechen für einen Terrorakt der USA**
+Wie bereits im Artikel über Seymour Hersh dargelegt, sprechen nicht nur Hershs Recherchen, sondern viele
+Indizien für einen Terrorakt der USA:
+Präsident Joe Biden sagte schon am 7.2.2022: «Wenn Russland einmarschiert, wird es kein Nord Stream
+2 mehr geben, wir werden dem Projekt ein Ende setzen.» Staatssekretärin Victoria Nuland wiederholte diese
+Aussage.
+2017 verabschiedete der US-Kongress ein Gesetz, das Sanktionen gegen alle westlichen Firmen vorsah, die
+an der Pipeline Nord-Stream-2 weiterarbeiteten. Im Gesetz heisst es wörtlich: «Die US-Regierung legt grössten Wert auf den Export amerikanischer Energieträger und auf die Schaffung amerikanischer Jobs.»
+Russische Experten wurden daran gehindert, bei den Untersuchungen vor Ort dabei zu sein.
+
+
+-----
+
+Norwegen und Schweden weigern sich bis heute, die Ergebnisse ihrer Untersuchungen bekannt zu geben.
+Die deutsche Bundesregierung weigert sich ihrerseits zu sagen, welche Schiffe der NATO und Russlands
+sich in der Nähe des Tatorts aufhielten.
+Nach dem erfolgreichen Sabotageakt erklärten sich US-Aussenminister Antony Blinken und Victoria Nuland
+sehr erfreut.
+Während eines TV-Bürgerdialogs Anfang Februar nahm der deutsche Bundeskanzler das Wort ‹USA› nicht
+in den Mund, doch er erklärte: «Wer die Pipeline gesprengt hat, kann man vermuten, aber weil wir ein
+Rechtsstaat sind, vermuten wir nicht, sondern sagen nur dann etwas ganz Präzises, wenn wir das beweisen
+können. Auch wenn hier fast alle denken, wie das ist, darf man sich nicht in Spekulationen ergehen.»
+Bei Vorwürfen gegen Russland oder China, geschweige denn gegen die Oppositionsparteien gilt dieser
+hehre Grundsatz der endgültigen Beweisbarkeit, um eine fast sichere Vermutung auszusprechen, offensichtlich nicht.
+Scholz geht kein grosses Risiko ein: Ein eindeutiger Beweis dafür, wer die Sabotage ausübte und wie er
+durchgeführt wurde, wird in absehbarer Zeit nicht auf den Tisch kommen.
+1 Hier stand irrtümlicherweise Februar
+2 Über die Nähe von Medienschaffenden zu den Mächtigen, darunter transatlantische Organisationen, berichtete im
+Jahr 2017 ausführlich Uwe Krüger im ‹Schweizer Monat›.
+
+Donnerstag, 23.3.2023
+
+##### «Biden gab der CIA eine Cover-Up-Story in Auftrag»
+###### Laut Seymour Hersh versorgten US- und deutsche Geheimdienste Medien  mit alternativer Version zur Zerstörung von Nord-Stream-2. Red.
+
+_upg. Die Biden-Administration tue alles, um von der Verantwortung der USA abzulenken, schreibt Investi-_
+gativjournalist Seymour Hersh in einer Stellungnahme vom 22. März. Er beruft sich auf eine Quelle, die Zugang zu diplomatischen Geheimdienstinformationen habe. Nach dem Besuch von Kanzler Olaf Scholz am
+3. März im Weissen Haus seien Leute des Geheimdienstes CIA gebeten worden, «in Zusammenarbeit mit
+dem deutschen Geheimdienst eine Titelgeschichte vorzubereiten, welche die amerikanische und deutsche
+Presse mit einer alternativen Version für die Zerstörung von Nord Stream 2 versorgen soll». Die CIA sollte
+die Darstellung widerlegen, Biden habe die Zerstörung der Pipelines angeordnet.
+
+Kanzler Scholz besuchte am 3. März 2023 Präsident Biden im Weissen Haus.
+Es waren keine Fragen erlaubt. © Official White House Photo by Adam Schultz
+
+Ein paar Tage später machte die wenig glaubwürdige Story die Runde, eine sechsköpfige Besatzung einer
+gemieteten Jacht habe die drei Nord-Stream-Pipelines gesprengt. «Spuren der Täter führen in die Ukraine»,
+titelten Medien.
+
+
+-----
+
+Kritische Medien vermuteten schon damals, es könnte sich um ein ‹False Flag›-Narrativ handeln. Ein solches
+legt bewusst Spuren, die auf einen [falschen] Verursacher deuten. Infosperber stellte am 9. März fest: «Falls
+die USA zusammen mit Norwegen die Sabotage organisierten, haben die US-Geheimdienste jedes Interesse
+daran, falsche Fährten zu legen.»
+
+**Scholz und Biden schweigen**
+Als Präsident Biden am 3. März den deutschen Bundeskanzler Olaf Scholz in Washington empfing, gab es
+nur zwei öffentliche Auftritte: erstens einen kurzen Austausch von Komplimenten zwischen Biden und
+Scholz vor dem Pressekorps des Weissen Hauses. Fragen waren keine erlaubt. Und zweitens ein CNN-Interview mit Scholz, während dem keine Fragen zu den Pipeline-Vorwürfen gestellt wurden.
+Der Bundeskanzler war ohne Pressebegleitung nach Washington geflogen. Und dort wollten die beiden
+Staats- und Regierungschefs keine Pressekonferenz abhalten, wie es bei solchen Treffen üblich ist.
+Gemäss Hersh sei später berichtet worden, dass Biden und Scholz ein 80-minütiges Treffen hatten, die
+meiste Zeit ohne Berater.
+
+**Biden gab keinen Auftrag zur Abklärung des Terrorakts bekannt**
+Die Medien in Washington hätten sich mit den ‹Pro-forma-Dementis› des Weissen Hauses zufriedengegeben. Kein Journalist habe den Pressesprecher je gefragt, «ob Biden das getan hat, was jeder ernstzunehmende Regierungschef tun würde: Den US-Geheimdienst formell beauftragen, eine gründliche Untersuchung mit allen seinen Mitteln durchzuführen und herauszufinden, wer die Tat in der Ostsee begangen
+hat». Hersh zitiert eine Quelle innerhalb der Geheimdienstgemeinschaft, wonach der Präsident dies nicht
+tat und auch nicht tun werde. «Warum nicht?», fragt Hersh. «Weil er die Antwort kennt.»
+Unter dem Titel ‹How America Took Out The Nord Stream Pipeline› hatte Hersh am 8. Februar beschrieben,
+wie die USA die Geheimaktion von langer Hand vorbereitet und dann zusammen mit norwegischen Spezialeinheiten durchgeführt haben sollen.
+Es sei Präsident Biden gewesen, der die mysteriöse Zerstörung der neuen 11-Milliarden-Dollar-Pipeline anordnete.
+Die Medien in den USA hätten seine Recherchen nahezu totgeschwiegen, sagt Hersh. Nach dem Besuch
+von Olaf Scholz in Washington hätten Geheimdienste der USA und Deutschlands dafür gesorgt, dass eine
+falsche Verdachtsstory zur ‹New York Times› und zur deutschen Wochenzeitung ‹Die Zeit› gelangt, um den
+Verdacht zu entkräften, dass Biden und US-Agenten für die Zerstörung der Pipelines verantwortlich waren.
+
+**Deutschland und Europa mit hohen Gaspreisen konfrontiert**
+Sarah Miller, eine Energieexpertin und Redaktorin bei ‹Energy Intelligence› erklärte Hersh in einem Interview,
+warum seine Recherchen in Deutschland und Westeuropa für Schlagzeilen sorgten: «Die Zerstörung der
+Nord Stream-Pipelines erhöhte die Erdgaspreise, die das Sechs- oder Mehrfache des Vorkrisenniveaus erreichten.» Einen Monat nach dem Sabotageakt hätten die Preise das Zehnfache des Vorkrisenniveaus erreicht, mit Folgen für die Strompreise. Regierungen hätten schätzungsweise bis zu 800 Milliarden Euro ausgegeben, um Haushalte und Unternehmen vor den Auswirkungen zu schützen.
+Aufgrund des milden Winters in Europa seien die Gaspreise zwar etwa auf einen Viertel des Höchststandes
+vom Oktober zurückgegangen, lägen aber immer noch zwei- bis dreimal so hoch wie vor der Krise. Und sie
+seien mehr als dreimal so hoch wie die aktuellen Preise in den USA. Europa bemühe sich um den Aufbau
+von Solar- und Windenergiekapazitäten, aber es könne sein, dass diese nicht schnell genug realisiert seien,
+um grosse Teile der deutschen Industrie zu retten.
+Die Vermutung von Seymour Hersh: Die USA hätten die Nord-Stream-Pipelines zerstört, damit Kanzler
+Scholz keine Wahl mehr habe und über die Pipelines endgültig kein Gas mehr von Russland beziehen
+könne.
+
+Freitag, 9.6.2023
+
+##### Über Nord-Stream-Anschlag sei Biden vorher informiert gewesen
+###### Auch die deutsche Regierung habe wissend tatenlos zugeschaut, wie die Pipeline gesprengt wurde. Das berichtete die Washington Post.
+Diego Ramos
+
+
+-----
+
+_upg. Alle Regierungen, die an der Aufklärung des Sabotage-Akts beteiligt sind, halten sich bedeckt. Um Verwir-_
+_rung zu stiften, werden via Medien auch falsche Fährten verbreitet. Auch die neuen «Enthüllungen» der Washing-_
+_ton Post beruhen auf Geheimdienstinformationen und sind nicht nachzuprüfen. Wir übernehmen eine Auswer-_
+_tung der ‹Scheerpost›._
+
+Sichtbares Leck nach der Sabotage der Nord-Stream-Pipeline © Armed Forces of Denmark
+
+Die Biden-Regierung wurde schon drei Monate vor dem Anschlag über die geplante Sabotage der NordStream-Pipeline informiert. Das berichtete die ‹Washington Post› am 6. Juni. Ein europäischer Geheimdienst habe die entsprechenden Informationen bereits im Juni 2022 an den US-Geheimdienst CIA weitergegeben. Am 26. September wurde die Pipeline durch Explosionen zerstört.
+
+Schlagzeile der ‹Washington Post› vom 6. Juni 2023 © Washington Post
+
+**CIA habe die deutsche Regierung** **informiert**
+Der Report besagt, dass der ranghöchste Militäroffizier der Ukraine, General Valery Zaluzhny, ein Team von
+sechs Tauchern zusammenstellte, um die Erdgaspipeline zu zerstören. «Die CIA gab den Bericht im selben
+Monat an Deutschland und andere europäische Länder weiter», heisst es: «Deutsche Geheimdienstmitarbeiter informierten die Regierung in Berlin, bevor diese in die Sommerpause ging… ».
+Die Washington Post erhielt den Geheimdienstbericht von einem Freund des inzwischen wegen Geheimnisverrats angeklagten Nationalgardisten Jack Teixeira. Der ehemalige Mitarbeiter des US-Militärs zeichnet
+mutmasslich verantwortlich für die Pentagon-Leaks und habe das Nord-Stream-Dokument auf der ChatPlattform Discord weitergegeben.
+Die Unterlagen wurden laut Post von offiziellen Stellen in mehreren Ländern überprüft.
+Auch der europäische Geheimdienst EU-INTCEN sei von einer weiteren Person, deren Namen die Post nicht
+nennen wollte, über wichtige Details der Aktion zum Voraus unterrichtet worden, wie zum Beispiel über
+«die Anzahl der Agenten und die Art des Angriffs…».
+
+**Selensky wusste angeblich nichts**
+Die Washington Post fuhr fort: «Offizielle Stellen teilten mehreren europäischen Ländern vorsichtig mit,
+dass die Ukraine hinter dem Angriff stecke, haben aber nicht gewagt, dies öffentlich zu sagen. Sie befürchteten, dass eine Beschuldigung gegen Kiew das Bündnis gegen Russland spalten könnte.»
+Laut Bericht hätten die Saboteure Präsident Selensky absichtlich übergangen, um die Unterstützung des
+Westens nicht zu gefährden: So hätte Selensky die Beteiligung an dem Angriff auf die zivile Infrastruktur
+
+
+-----
+
+leugnen können, falls die Urheberschaft aufgedeckt würde. Speziell Deutschland, so hätten die Attentäter
+befürchtet, hätte seine Unterstützung für die Ukraine hinterfragen können. Immerhin bezog das Land die
+Hälfte seines Gases aus Russland und hatte das Nord-Stream-Projekt gegen den Widerstand anderer europäischer Verbündeter (und der USA) lange Zeit gefördert.
+
+**Deutsche Regierung bleibt untätig**
+Obwohl die deutsche Regierung von der CIA über das Komplott informiert worden sei, unternahm sie nichts,
+um das Land auf einen Winter ohne günstiges russisches Gas vorzubereiten. Journalist Seymour Hersh, der
+schon vorher geleakte Informationen über die Nord-Stream-Sabotage veröffentlichte, sprach zu diesem
+Thema mit der Energieexpertin Sarah Miller. Sie erklärte, was das Ende von Nord-Stream für Deutschland
+bedeutet: «Nord Stream wurde Ende September in die Luft gesprengt. Die deutschen Gasimporte erreichten einen Monat später, im Oktober, das Zehnfache des Vorkrisenniveaus. Die Strompreise wurden in ganz
+Europa in die Höhe getrieben. Schätzungen zufolge gaben mehrere Regierungen bis zu 800 Milliarden Euro
+aus, um Haushalte und Unternehmen vor den Auswirkungen der Energiekrise zu schützen.»
+
+**Russland wider besseres Wissen beschuldigt**
+Obwohl die Biden-Regierung es besser gewusst habe, beschuldigte sie nach dem Anschlag zusammen mit
+Mainstream-Medien sofort Russland. Matt Orfalea von Racket News erstellte ein siebenminütiges YoutubeVideo, in dem westliche Medienexperten und US-Politiker Russland beschuldigen. Obwohl sogar Beamte
+der Biden-Regierung privat zugeben, dass es keine Beweise gibt, die darauf hindeuten, dass Russland für
+den Bombenanschlag verantwortlich ist.
+Die USA haben der Ukraine bisher fast 40 Milliarden Dollar an Hilfen zur Verfügung gestellt – legen aber
+nicht offen, wie dieses Geld verwendet wird, beispielsweise für eine Armee, die Terroranschläge verübt und
+wichtige zivile Infrastruktur zerstört.
+
+Freitag, 23.6.2023
+
+Am Schluss einer Eskalation des Krieges steht der Einsatz von Atomwaffen. © Montage Canova
+
+##### Kräfte in der Ukraine wollen die USA in den Krieg verwickeln
+###### Das geht aus dem neusten Narrativ der CIA zur Nord-Stream hervor – wieder fehlen harte Beweise, aber Indizien verdichten sich.
+Urs P. Gasche
+
+Hohe US-Beamte befürchten, die USA könnten die Ukraine von einer rücksichtslosen Eskalation nicht abhalten. Das schrieb ‹The Nation› am 20. Juni und stützte sich auf Angaben der CIA, auf Dokumente, die von
+Jack Teixeira geleakt wurden sowie auf Informationen verschiedener Zeitungen. Schon Mitte Juni berichtete
+das ‹Wall Street Journal› (WSJ) unter dem Titel «Die USA haben die Ukraine vor einem Angriff auf NordStream gewarnt», die CIA habe die Regierung Selensky davor gewarnt, die Pipelines anzugreifen.
+
+‹Die Zeit› berichtete am 13. Juni:
+«Bereits im Sommer 2022 warnte die US-Regierung die Ukraine davor, die Gas-Pipeline zu
+sprengen Kannte [auch] die deutsche Regierung den schwerwiegenden Verdacht?»
+
+
+-----
+
+Weiter berichtete die Zeitung:
+«Recherchen der ZEIT, des ARD-Magazins Kontraste, des SWR, des ARD-Hauptstadtbüros sowie
+des niederländischen Fernsehens NOS/Nieuwsuur zufolge warnte der US-Geheimdienst CIA die
+ukrainischen Behörden im Juni 2022 […] vor einer militärischen Operation gegen die auf dem
+Grund der Ostsee verlaufenden Gasröhren. Die Botschaft, welche die CIA auf Arbeitsebene
+überbrachte, habe sinngemäss gelautet: Don’t do it, tut es nicht. So schildern es mehrere Beteiligte aus verschiedenen Ländern mit Kenntnis des Vorgangs. Die CIA wollte sich auf Anfrage
+der ZEIT nicht äussern.»
+
+Bereits vier Tage vor der ‹Zeit› informierte Infosperber über einen Bericht der ‹Washington Post›, wonach
+Präsident Biden über den Anschlag auf die Nord-Stream-Pipeline informiert gewesen sei.
+Laut neuen Angaben des ‹Wall Street Journal› hätten Akteure der Ukraine geplant, «den Angriff nach der
+Übung der NATO-Militärübung namens ‹Baltic Ops› durchzuführen, die in dem Gebiet oberhalb der Pipelines stattfand und am 17. Juni endete». Laut ‹The Nation› wollte die Ukraine den Angriff der NATO in die
+Schuhe schieben, «was leicht zu einem grösseren Konflikt hätte führen können». Und weiter:
+«Sollte das neue CIA-Narrativ stimmen, so ergibt sich ein Schreckensszenario, in dem die USA
+mit der Ukraine einen Verbündeten haben, der zu einer rücksichtslosen, eskalierenden bewaffneten Aggression bereit ist. Wenn die CIA die Wahrheit sagt, könnten die USA verantwortlich
+werden für einen Krieg mit einem nuklearen Rivalen, der nicht mehr kontrolliert oder eingedämmt werden kann. Denn falls die USA oder die NATO eine Politik der Deeskalation verfolgen
+wollen, könnten sie leicht von ihrem Verbündeten ausgebremst werden.»
+
+**Präzedenzfälle in russischem Hoheitsgebiet**
+Die Sabotage von Nord-Stream-II wäre nicht das erste Mal, dass die Ukraine militärisch weiter geht, als es
+die USA für klug halten. US-Geheimdienste sorgten sich schon seit längerem «über aggressive Operationen
+der Ukraine, die den Krieg zu einem direkten Konflikt zwischen Russland und den USA und ihren NATOVerbündeten eskalieren könnte», schrieb die ‹Washington Post› und erinnerte an einige Provokationen, die
+ein anderes Mal zu einer von den USA ungewollten Eskalation führen könnten:
+
+«Nachdem im August in der Nähe von Moskau eine Autobombe Daria Dugina getötet hatte, ein
+Anschlag, der offenbar ihrem Vater galt – einem prominenten russischen Nationalisten, dessen
+Schriften dazu beigetragen hatten, das Narrativ des Kremls über die Ukraine zu prägen –, erklärten westliche Beamte, sie hätten Selensky deutlich gemacht, Agenten seiner Regierung
+seien dafür verantwortlich […] Doch die Ukraine führte weitere Angriffe innerhalb Russlands
+durch, darunter Drohnenangriffe auf einen Flugplatz sowie auf Ziele in Moskau, die von USBeamten mit Kiew in Verbindung gebracht wurden.»
+
+‹The Nation› zitiert ‹National Review›-Kolumnist Michael Brendan Dougherty, wonach Berichte grosser
+Medien darauf hindeuten, dass Selensky möglicherweise nicht die volle Kontrolle über diese ukrainischen
+Operationen habe: «Das würde bedeuten, dass in der Ukraine kriminelle militärische Akteure die Politik bestimmen.» Diese Aussagen seien zwar spekulativ, doch sie beruhten auf Darstellungen von US-Regierungsvertretern gegenüber seriösen Presseorganen.
+Schlusskommentar von ‹The Nation›: «Kein vernünftiger Mensch kann den Ukrainern verübeln, dass sie
+einen existenziellen Krieg mit allen Mitteln führen. Aber die USA und die NATO-Länder haben ihre eigenen
+Interessen, zu denen das Interesse gehört, eine Eskalation zu vermeiden.»
+
+Donnerstag, 6.7.2023
+
+##### Nord-Stream-Sprengung: Neue Indizien aus privater Forschung
+###### Für den Pipeline-Anschlag genügte wenig Sprengstoff, sagt ein Ex-Boeing-Ingenieur. Ein Schweizer Physikprofessor widerspricht. Red.
+
+Am 26. September 2022 zerstörten mehrere Explosionen in der Nähe der Ostseeinsel Bornholm die zwei
+Stränge der Gaspipeline Nord Stream 1 und einen Strang von Nord Stream 2. Noch immer ist unklar, wer
+dahintersteckt. Mehrere Nationen haben die Sprengung untersucht, darunter Schweden, Dänemark und
+Deutschland Detaillierte veröffentlichte Erkenntnisse gibt es aber seit Monaten nicht
+
+
+-----
+
+Videos des dänischen Militärs zeigten kurz nach dem Anschlag die durch die Gasmassen
+aufgewühlte See über den zerstörten Nord-Stream-Pipelines. © Danish Defence Command
+
+Der Schwede Erik Andersson verfolgte die der Sprengung folgenden Veröffentlichungen genau. Die Frage,
+wie genau der Anschlag sich abgespielt hatte, liess dem ehemaligen Boeing-Ingenieur keine Ruhe.
+Mit den veröffentlichten Daten waren die Explosionen auch Monate später kaum zu rekonstruieren. Bilder
+zeigten oft lediglich die aufsteigenden Gasmassen. Der 62-Jährige trug jede Information zusammen, die er
+finden konnte, und tauschte sich mit Experten aus.
+
+**Entgegengesetzte Forschung:**
+**«Die USA haben einen thermonuklearen Sprengstoff verwendet»**
+_upg. Der Schweizer Physikprofessor Hans-Benjamin Braun hat aufgrund der veröffentlichten_
+Messdaten der Explosionen an den Pipelines nachgewiesen, dass es sich um eine enorm starke
+Sprengkraft handeln musste. Das lasse darauf schliessen, dass nur die USA in der Lage waren,
+den Anschlag anzuordnen.
+
+**Schwedischer Ingenieur schaute einfach selbst nach**
+Am Ende ging Andersson der Sache wortwörtlich selbst auf den Grund. Er mietete ein Schiff und lernte, mit
+einer Unterwasserdrohne umzugehen.
+Von der Baltic Explorer aus scannte er im Mai den Meeresboden bei der Insel Bornholm per Sonar. Er filmte die Sprengstellen und fertigte eine 3-D-Karte der Tatorte an. Seine Daten und Theorien legte er mehreren
+Experten vor. Das berichtete der ‹Intercept›, der Anderssons Expedition in Zusammenarbeit mit der ARD
+und der ‹Zeit› verfolgt hat. Anderssons wichtigste Schlussfolgerungen im Einzelnen:
+1. Zur Sprengung der Nord Stream-Pipelines sei nicht wie bisher angenommen sehr viel Sprengstoff notwendig gewesen, sondern relativ wenig.
+2. Deshalb brauchten die Saboteure keine spezielle Ausrüstung und nur wenig Personal. Die Anbringung
+der Sprengsätze könnte eine eher hastige und unprofessionelle Operation gewesen sein.
+3. Die doppelte Sprengung des ersten Strangs der Nord Stream 2-Pipeline könnte ein Versehen gewesen
+sein. Der vierte Sprengsatz sei möglicherweise für die zweite Röhre vorgesehen gewesen.
+
+Der ‹Intercept› beschreibt den Schweden als hartnäckig und von scharfem Verstand, aber auch als widersprüchlich. Er wünsche sich beispielsweise Donald Trump als Staatsoberhaupt Schwedens und hänge einigen zweifelhaften Covid-Theorien an, skizziert der Journalist Jeremy Scahill. Andersson sei «ein Schwede
+von 62 Jahren mit verwuschelten eisgrauen Haaren und einer sperrigen Sicht auf die Welt, der einem StiegLarsson-Roman entsprungen sein könnte», schreibt ‹Die Zeit›.
+Andersson selbst betont, weniger an der Schuldfrage, sondern am Tathergang interessiert zu sein und vor
+allem daran, dass die Wahrheit endlich an die Öffentlichkeit gelange. Seine Indizien und Schlussfolgerungen
+werden das Nord-Stream-Rätsel zwar nicht lösen, aber womöglich zur Lösung beitragen.
+
+**Die zweite Bombe könnte der Schlüssel sein**
+Die Argumente Anderssons stützen sich im Wesentlichen auf die Scans, die er vom ersten Pipelinestrang
+von Nord Stream 2 (Line A) gemacht hat. Der erste dort angebrachte Sprengsatz explodierte am 26. September 2022 um 2:03, der zweite 17 Stunden später um 19:04 Uhr. Eine Geokonferenz in Wien stellte im
+März Zeitpunkt und Ort der vier Explosionen fest.
+Weil Strang A bereits viel Gas verloren hatte und weniger unter Druck stand, verursachte die zweite Explosion vergleichsweise wenig Schaden.
+Anders als die beiden Sprengungen an beiden Pipelineröhren von Nord Stream 1 und die erste Sprengladung an Röhre A von Nord Stream 2. Das plötzlich austretende Gas richtete grosse Zerstörungen an.
+
+
+-----
+
+Ort und Zeitpunkt der drei Explosionen
+an den beiden doppelsträngigen Nord-Stream-Pipelines.
+© The Intercept
+
+Durch den vergleichsweise guten Zustand des Tatorts an Röhre A der Nord Stream 2-Pipeline konnte Andersson Details erkennen, die das austretende Gas an den anderen Orten zerstört hatte. Nach Anderssons
+Beobachtung war der Sprengsatz an einer Verbindungsstelle der Pipeline-Röhren angebracht worden.
+Es habe sich dabei um eine gezielt, aber nicht um eine hochprofessionell angebrachte Sprengladung gehandelt, die oberflächlich im Schlick vergraben worden war, sagt er. Experten halten diese Theorie für plausibel,
+schliessen eine professionell angebrachte Sprengladung aber weiter nicht aus.
+
+**Theorie 1: Viel weniger Sprengstoff als bisher angenommen**
+Bisher gehen die Experten davon aus, dass zur Sprengung einer Pipeline 500 bis 900 Kilogramm Sprengstoff verwendet wurden. Ihre Einschätzung stützt sich auf die Auswertung seismischer Daten zur Zeit der
+Explosionen.
+Nach Andersson wurde viel weniger Sprengstoff eingesetzt. Das austretende Gas könnte den eigentlichen
+Knall bei weitem übertönt und zu falschen Schlussfolgerungen geführt haben, sagt er. Mit seinem Sohn,
+der an seismischen Berechnungen in der Ölindustrie arbeitet, erstellte er Simulationen, die diese Theorie
+stützen.
+Um ein Loch in die Pipelinewand zu sprengen, seien demnach nur etwa 50 Kilogramm Sprengstoff an der
+richtigen Stelle nötig gewesen. Möglicherweise auch nur 10 Kilogramm, sagte ein deutscher Marinetaucher,
+dem ‹Die Zeit› Anderssons Videos vorlegte, und ein ehemaliger Spezialist des US-Militärs, den der ‹Intercept›
+fragte. Das schnell expandierende Gas besorgte dann den Rest.
+
+**Theorie 2: Zur Anbringung der Bomben war kein hochprofessionelles Personal nötig**
+Eine so kleine Menge Sprengstoff könne von einem einzelnen Taucher in wenigen Stunden angebracht
+werden, sagt der erfahrene Taucher Peter Andersson (nicht verwandt mit Eric Andersson) zum ‹Intercept›.
+Um Sprengstoffplatten hastig im Schlick des Meeresbodens zu vergraben, brauche es auch kein grosses
+Geschick. In 80 Metern Tiefe könne jeder gute Taucher eine solche Aufgabe ausführen. Einen militärischen
+Spezialisten brauche es dazu nicht.
+
+**Theorie 3: Die doppelte Verminung eines Strangs war ein Versehen**
+Wer im Schlick wühlt, findet sich in einer Art Schlammwolke wieder. Er sieht so gut wie nichts und verlässt
+sich auf seine Instrumente. Gerade diese führten den Taucher aber möglicherweise in die Irre.
+Eric Andersson erlebte an der Sprengstelle bei Röhre A, wie der Kompass seiner Drohne verrücktspielte
+und in die entgegengesetzte Richtung zeigte. Der Kapitän der Baltic Explorer hatte ihn zuvor gewarnt. Auch
+Journalisten der BBC, die vor Ort waren, berichteten von dieser magnetischen Anomalie.
+Wer den ersten Strang von Nord Stream 2 an dieser Stelle verminte, sei wahrscheinlich einfach am falschen
+Ort gewesen, vermutet Eric Andersson. Deshalb sei der erste Strang zweimal gesprengt worden, der zweite
+gar nicht. Die beiden Pipelinestränge sind an dieser Stelle nur 50 Meter voneinander entfernt. Der Taucher
+Peter Andersson hält diese Theorie für plausibel.
+
+**Kleines Team mit wenig Ausrüstung**
+Anderssons Theorie ist, zusammengefasst, dass ein kleines Team mit wenigen Tauchern beide Stränge von
+Nord Stream 1 und einen Strang von Nord Stream 2 mit Sprengstoff versehen hat.
+Das passt auf die Segeljacht Andromeda, die zwei Ukrainern gehört und von einer polnischen Firma in Warnemünde gemietet wurde Die Jacht war nur wenige Tage vor der Explosion am Tatort gewesen Deutsche
+
+
+-----
+
+Ermittler fanden verschiedene Indizien wie Sprengstoffspuren an Bord. Mehrere der sechs Insassen nutzten
+zudem falsche Pässe.
+«Ein Segelschiff ist die perfekte Tarnung», sagt der Taucher Peter Andersson. Niemand erwarte, dass
+jemand von einem Segelschiff aus tauche. Er hält es für möglich, dass sechs Personen die Sabotage allein
+durchgeführt haben. Manche Beobachter halten die Andromeda-Ermittlungen allerdings für eine falsche
+Fährte, einige sogar für absichtlich gelegte Fehlinformation.
+Der Geologe Jens Greinert vom Helmholtz-Zentrum für Ozeanforschung in Kiel macht gegenüber dem
+‹Intercept› darauf aufmerksam, dass Anderssons Scans acht Monate nach der Tat stattfanden. Bis dahin
+seien mehrere Gruppen vor Ort gewesen, um den Vorfall zu untersuchen. Der Tatort sei nicht mehr in dem
+Zustand, in dem er nach der Explosion war.
+Damit zur Frage: «Wer hat die Pipelines gesprengt oder ihre Sprengung veranlasst?» Es gibt mehrere Parteien, die von der Sprengung profitiert hätten. Russland wird verdächtigt, der Ukraine oder Polen hätte die
+Sprengung womöglich Vorteile gebracht. Beweise gibt es bisher keine. Der Journalist Seymour Hersh sah
+in einem am 8. Februar veröffentlichten Artikel die USA als Täter. Joe Biden persönlich habe die Sprengung
+angeordnet, schrieb er, nannte aber keine Quellen.
+Deutsche Ermittler fanden auf einem Segelboot Spuren, die auf Ukrainer hindeuten. Die Ukraine dementiert
+jede Beteiligung. Polen, wo das Boot zumindest länger anlegte, ebenso. Laut der ‹Washington Post› vom
+Juni wussten die USA davon, dass die Ukraine die Zerstörung der Pipeline plante. Eine kleine Crew ohne
+schwere Ausrüstung, die nur wenige Kilo Sprengstoff transportiert, weitet den Kreis der Verdächtigen eher
+aus. Auch nicht-staatliche Akteure kämen in Frage.
+
+**Wie viel Information zurückgehalten wird, ist unklar**
+Mehr Licht ins Dunkel bringen könnten die umfangreichen Daten der Ostseeanrainer. Dänemark, Deutschland, Schweden, die USA und Russland wissen mit Sicherheit mehr, als bisher öffentlich wurde. Die Ostsee
+ist eines der am stärksten überwachten Meeresgebiete weltweit. Sie sei gespickt mit Elektronik wie Mikrofonen und wird per Satellit intensiv überwacht, bestätigten ein anonymer Wissenschaftler und ein US-Experte
+für Überwachungssysteme.
+Davon ist auch Andersson überzeugt. Er geht davon aus, dass die USA von dem bevorstehenden Anschlag
+zumindest wussten. Warum so wenig an die Öffentlichkeit dringt, kann er nur vermuten. Das Schweigen
+jedenfalls habe ihn misstrauisch gemacht, sagt er. Viele grosse Enthüllungen seien in der Vergangenheit
+erst durch private Nachforschungen öffentlich geworden. «Er glaubt daran, dass normale Bürger kritische
+Fragen stellen sollten, um zu verhindern, dass die Behörden Dinge vertuschen», schreibt «Die Zeit». Weiter
+aktiv werden will der ehemalige Unternehmer und Ingenieur nicht. Seine Daten will er öffentlich zur Verfügung stellen. Proben vom Tatort werden derzeit noch auf Sprengstoffreste untersucht.
+
+Donnerstag, 17.8.2023
+
+Erdgas-Leitung © Wikimedia
+
+##### Russland ist und war immer ein zuverlässiger Energielieferant
+###### Entgegen gängiger Behauptungen hat Russland die Ausfuhr  von Erdgas kaum je zu politischen Zwecken genutzt.
+Jaques Baud
+
+
+-----
+
+**Zwei Sichtweisen**
+_«Putins Russland ist imperialistisch. Es wollte sich die Ukraine schon immer einverleiben. Als Näch-_
+_stes wären die baltischen Staaten und Polen dran, wenn die NATO sie nicht verteidigen würde.»_
+Das ist die eine Sichtweise. Über diese werden wir fast täglich informiert.
+
+_«Die USA wollten Russland schon lange schwächen und von Westeuropa abkoppeln. Seit dem russi-_
+_schen Angriff ziehen es die USA vor, Russland mit einem andauernden Krieg zu schwächen, als_
+_eine neutrale Ukraine zu akzeptieren. Die NATO will sich an den Grenzen Russlands ausdehnen_
+_und dort Raketen stationieren.»_
+Das ist die andere Sichtweise.
+
+Diese beiden gegensätzlichen Sichtweisen sind Teile des Informationskriegs und beeinflussen
+selektiv die Informationen, die über den Maidan, die Krim, den Donbas, die Minsker Abkommen,
+die Getreideausfuhren und den Verlauf des Krieges verbreitet wurden und werden.
+Über Fakten und Argumente der zweiten Sichtweise, die nahelegt, dass der Krieg vermeidbar
+gewesen wäre, informieren grosse Medien wenig. Als Ergänzung dazu veröffentlicht Infosperber
+Auszüge aus dem Buch ‹Putin – Herr des Geschehens?›.
+Der Autor Jacques Baud arbeitete als Analyst für den Schweizerischen Strategischen Nachrichtendienst und war beteiligt an den NATO-Missionen in der Ukraine. Der russisch sprechende
+und von amerikanischen und britischen Nachrichtendiensten ausgebildete Baud analysierte
+auch die militärische Stärke des Warschauer Paktes und war Experte für russische Kriegsführung in Afghanistan.
+Grosse Medien und Politiker disqualifizieren Baud als ‹Putin-Verteidiger› und gehen auf Fakten
+und Argumente seines Buches kaum ein. Baud legt dort dar, dass der Krieg vermeidbar gewesen wäre und warum Russland sich bedroht fühlte.
+Doch selbst wenn der Krieg vermeidbar gewesen wäre: Der Angriffskrieg Russlands und die
+Kriegsverbrechen sind ein krasser Verstoss gegen das Völkerrecht. Sie sind mit nichts zu rechtfertigen. Das UNO-Recht auf Selbstverteidigung gemäss Artikel 51 der UNO-Charta setzt einen
+bewaffneten Angriff voraus. Von einem solchen war Russland nicht betroffen.
+Ebenso völkerrechtswidrig wäre deshalb ein präventives militärisches Eingreifen der USA, falls
+Kuba oder Mexiko es den Chinesen oder Russen erlauben würden, Raketen nahe der US-Grenze
+zu stationieren.
+_Urs P. Gasche._
+_Im Folgenden die gekürzte Fassung eines Kapitels aus dem Buch ‹Putin – Herr des Geschehens?›*._
+_Zwischentitel von der Redaktion._
+
+**Die Befürchtung der CIA**
+In den 1960er-Jahren ist jedermann klar, dass in einem Konflikt der USA mit der UdSSR der Einsatz von
+Atomwaffen zuerst in den europäischen Ländern stattfinden wird. Die Amerikaner befürchten deshalb, dass
+die öffentliche Meinung in Europa eine solche Strategie der gegenseitigen Abschreckung ablehnen könnte
+(was mit der deutschen Friedensbewegung in den 1980er-Jahren auch geschieht). Seit dieser Zeit versuchen die Amerikaner, jede Annäherung zwischen Europa und Russland zu verhindern. Russland werfen sie
+vor, den Westen «spalten» zu wollen.
+Um Russland unglaubwürdig zu machen, versucht man, uns davon zu überzeugen, Russland sei kein verlässlicher Partner. Aber die Wirklichkeit ist eine andere: Selbst während des Kalten Kriegs haben die Sowjets
+ihre Lieferverträge peinlich genau eingehalten und nie versucht, sie als politisches Einflussmittel zu nutzen.
+Russland beliefert Westeuropa seit den 1960er-Jahren mit Erdgas. Zwischen 1968 und 1975 hat die
+Sowjetunion nicht weniger als acht Gasvereinbarungen mit Österreich, Frankreich, Italien und Westdeutschland abgeschlossen. Alle diese Vereinbarungen wurden eingehalten, selbst auf dem Höhepunkt des Kalten
+Kriegs.
+Im Jahr 1982 beginnt die UdSSR mit der Konstruktion einer Gaspipeline zwischen Urengoi (Sibirien) und
+Uschgorod (Ukraine), um die Lieferungen nach Europa zu erhöhen. Eine grössere Abhängigkeit Europas
+von Russland könnte die europäische Unterstützung für die amerikanische Politik beeinträchtigen. Das befürchtet die CIA:[1]
+«In der Vergangenheit nutzten die Sowjets das westeuropäische Interesse, den Ost-West-Handel auszubauen, dazu aus, um US-Sanktionen zu unterlaufen. Und sie glauben, dass erfolgreiche Pipeline-Verträge
+Europas Bereitschaft verringern werden, zukünftige amerikanische Wirtschaftsaktionen gegen die UdSSR
+zu unterstützen.»
+
+
+-----
+
+**USA sabotieren russische Erdgas-Pipeline**
+Ab Juli 1981 mehren sich in Europa die Demonstrationen gegen die Stationierung von Pershing-II-Raketen.
+Die Amerikaner fürchten, dass eine Annäherung an die UdSSR die Stationierung verhindern könnte und
+stellen Russland deshalb als einen unzuverlässigen Gaslieferanten dar. Zudem beschliessen die USA, die
+Pipeline ausser Funktion zu setzen. Im Januar 1982 stimmt Präsident Ronald Reagan einem Plan der CIA
+zu, Gaspipelines in Russland zu sabotieren.[2]
+Thomas Reed war ziviler Leiter der US-Luftwaffe und Mitglied des Nationalen Sicherheitsrats. Er beschreibt
+diese CIA-Operation in seinen Erinnerungen:[3 ]
+
+«Um die Versorgung mit sowjetischem Gas zu stören, welche Russland grosse Deviseneinnahmen aus dem Westen bescherte, und um der russischen Binnenwirtschaft zu schaden, war die
+Software der Pipeline, die das Funktionieren der Pumpen, Turbinen und Ventile sicherstellte,
+so programmiert, dass sie nach einer bestimmten Zeitspanne automatisch verrückt spielte und
+die Pumpgeschwindigkeit und die Regelung der Ventile neu einstellte. Dadurch wurde ein
+Druck erzeugt, dem die Verbindungen und Schweissnähte des Rohrs nicht standhalten konnten. Das Ergebnis war die grösste nicht atomare Explosion und der grösste Brand, die man jemals aus dem All beobachten konnte.»
+
+Durch diese Sabotage werden die Sowjets allerdings nicht entmutigt. Sie stellen die Gaspipeline fertig. Die
+Vereinigten Staaten verkünden daraufhin ein Embargo für sowjetisches Gas, um die Europäer zu zwingen,
+keines mehr zu kaufen. Sie bieten an, die Europäer zu entlasten, indem sie ihnen mehr Steinkohle liefern.
+Aber ihre Kapazitäten reichen nicht aus. Sie können ihre Versprechen nicht einhalten. Im November 1982
+sind sie gezwungen, ihr Embargo aufzuheben, und die sowjetischen Gaslieferungen nach Europa werden
+wieder aufgenommen. (Quelle: Center on Global Energy Policy)
+Man kann vernünftigerweise die Annahme vertreten, die UdSSR hätte die Lieferung von fossilen Energieträgern eingestellt, wenn es zu jener Zeit zu einem bewaffneten Konflikt gekommen wäre. Aber während des
+gesamten Kalten Kriegs hat Russland seine Gaslieferungen nie als Druckmittel benutzt.
+Im Gegensatz dazu haben die Vereinigten Staaten alles getan, um zu verhindern, dass zwischen Europa
+und Russland dauerhafte Verbindungen geknüpft werden. Es handelt sich um das Prinzip «Ihr seid für uns
+oder gegen uns», welches die US-Aussenpolitik beherrscht (egal ob demokratisch oder republikanisch).
+
+**Neue US-Sanktionen im Jahr 2014**
+Im September 2014, nach der Ukraine-Krise, verhängen die Amerikaner Sanktionen gegen westliche Unternehmen. Es wird ihnen verboten, Material zu liefern, das der Nutzung von fossilen Energieträgern dient:
+Ausgehend von der Vorstellung, Russland hänge wirtschaftlich von westlicher Technologie ab, wollen sie
+ihm die Luft abschnüren und es zu Verhandlungen zwingen. Der Effekt ist ein Ende der Zusammenarbeit
+von Exxon und Shell mit den russischen Ölunternehmen Gazprom, Gazprom Neft, Rosneft, LukOil und Surgutneftegas. Die Folge: Nach einer kurzfristigen Verzögerung der Ölproduktion haben die Russen begonnen,
+die nötigen Technologien selbst zu entwickeln. Heute benötigt Russland die westliche Technologie nicht
+mehr.
+Dies erklärt, weshalb Amerika in der Folge Sanktionen gegen seine Verbündeten verabschiedet, wie etwa
+gegen Deutschland bezüglich der Gaspipeline Nord Stream 2. Man wirft Russland vor, die Energie als ein
+Druckmittel auf die westlichen Länder zu benutzen. Nicht nur, dass diese Anschuldigungen nie durch
+Beweise untermauert werden: Es sind vielmehr die Amerikaner, gefolgt von der Europäischen Union, die
+versucht haben, die Wirtschaft für politische Zwecke zu instrumentalisieren. In diesem Zusammenhang
+stellt das _‹Wall Street_ Journal› Ende Oktober 2021 fest, dass diese Instrumentalisierung der Energie für
+aussenpolitische Zwecke durch die Europäische Union nur zu einem Misserfolg führte.[4]
+Dem Autor liegt kein Fall vor, in dem Russland seine Gaslieferungen als Druckmittel benutzt hätte, um
+politische, wirtschaftliche oder sonstige Zugeständnisse von den westlichen Ländern zu bekommen. [Der
+österreichische Öl- und Gaskonzern OMV hat mit dem russischen Staatskonzern Gazprom Erdgas-Lieferungen bis zum Jahr 2040 vereinbart. Russland hält diese Lieferverpflichtungen wie auch diejenigen nach
+Ungarn ein.]
+Bezüglich Nord Stream 2 geht es den Amerikanern weniger um eine europäische Abhängigkeit von Russland als um das ‹Risiko› einer Annäherung zwischen Europa und seinem mächtigen Nachbarn. Das ist der
+Grund, weshalb die USA die Bedrohung von der Abhängigkeit Europas heraufbeschwören, aber gleichzeitig
+ihre eigenen Rohölimporte aus Russland erhöhen.[5] Im August 2021 erreichen diese Importe einen elfjährigen Höchststand und übertreffen diejenigen aus Saudi-Arabien.[6] Russland wird somit zum zweitwichtigsten
+Erdöllieferanten der Vereinigten Staaten nach Kanada und vor Mexiko.[7]
+In Wirklichkeit sind es die Europäer, die sich als wenig verlässliche Käufer erweisen. Russland wird weiter
+seine Verpflichtungen erfüllen, aber wahrscheinlich nur widerwillig neue Verpflichtungen eingehen. Denn
+
+
+-----
+
+die Art und Weise, wie man mit Russland verhandelt, indem man nach Gutdünken Sanktionen verhängt,
+führt dazu, dass der westliche Markt für Russland immer mehr an Attraktivität verliert.
+
+**Medien verbreiten die Behauptung, Russland benutze die Energie als Druckmittel**
+In einer Fernsehsendung behauptet beispielsweise eine ‹Spezialistin für Russland›, Energie sei eines der
+wichtigsten Instrumente der russischen Aussenpolitik.[9] Sie bringt keinen Beleg und verbreitet lediglich die
+amerikanische, im Kalten Krieg entwickelte Behauptung.
+Eine Reportage im Jahr 2021 behauptet: «Mit Beginn des Winters, wenn die Speicherstände am niedrigsten
+sind, erhöht Wladimir Putin den Druck.»[10] In Wirklichkeit informierte Reuters schon zwei Wochen zuvor in
+einer ‹Faktenbox›, dass von Januar bis September 2021 die russischen Erdgasexporte sogar gestiegen
+sind.[11]
+Wie zur Bestätigung dieser Zahlen berichtet Bloomberg am 6. Oktober, dass Angela Merkel der These widerspreche, Russland sei die Ursache der Krise und würde am Lieferhahn drehen:[12]
+«Nach meiner Erkenntnis gibt es keine Aufträge, bei denen Russland gesagt hätte: Wir beliefern
+euch nicht. Insbesondere nicht, was die ukrainische Pipeline angeht.»
+
+Am 15. Oktober erklärt der Vizepräsident der EU-Kommission Frans Timmermans auf dem bulgarischen
+Fernsehkanal bTV:[13]
+«Wir haben keinen Grund zu der Annahme, [Russland] würde Druck auf den Markt ausüben
+oder ihn manipulieren.»
+
+In einem ‹Faktencheck› zählt der Sender BBC News die Faktoren auf, die für den Preisauftrieb verantwortlich sind.[14]
+In Wirklichkeit verfolgt der Westen eine völlig chaotische Politik, die nur von dem Ziel geleitet ist, Russland
+zu schwächen. Wir befinden uns in einer absurd-grotesken Situation, in der das amerikanische Aussenministerium von Russland fordert, mehr Erdgas an Europa zu liefern[15], und gleichzeitig neue Sanktionen gegen
+_Nord Stream 2 verhängt!_
+
+**Der Fall der Ukraine**
+Um das Risiko einer Abhängigkeit von Russland glaubhaft zu machen, zitieren ‹Experten› die Unterbrechung der Gaslieferungen an die Ukraine im Jahr 2006. Auf seinem YouTube-Kanal beschreibt Pascal Boniface, ein Experte für Geopolitik, die Unterbrechung der Gaslieferung als ein Mittel, um Druck auf den ukrainischen Präsidenten Juschtschenko auszuüben und seine Annäherung an Europa zu verhindern.[16] Auf France
+5 beschreibt Laure Mandeville von der Zeitung Figaro eine ähnliche Geschichte.[17] Es genügt, bei Wikipedia
+nachzuschauen, um festzustellen, dass dies unwahr ist.[18]
+Die Geschichte ist komplexer und einfacher zugleich. Nach der Aufspaltung der UdSSR hat Russland Europa mithilfe von Gasleitungen weiterhin versorgt. Die Pipelines durchqueren das Staatsgebiet der Ex-Sowjetrepubliken und Satellitenstaaten. Letztere erhalten Transitgebühren und profitieren von Sondertarifen für
+ihr Gas.
+Das Netz von Gaspipelines in der Ukraine ist eines der ältesten, das noch von den Sowjets gebaut wurde.
+Es wird von dem einheimischen Unternehmen Naftogaz betrieben. In den 1990er-Jahren merken die Russen, dass die ‹Lecks› entlang des ukrainischen Pipeline-Netzes ungewöhnlich gross sind. Gazprom (welches
+für das Gas innerhalb der Röhren verantwortlich ist) will die Gas-Infrastruktur inspizieren und die Pipeline
+kaufen, um sie auszubessern und auf den neuesten Stand zu bringen. Doch das ukrainische Parlament
+verabschiedet umgehend ein Gesetz, das den Verkauf der Infrastruktur für fossile Brennstoffe an ausländische Betreiber verbietet.
+Aus gutem Grund: Seit den 1990er-Jahren haben gewisse rücksichtslose ukrainische Oligarchen die Überalterung des Pipeline-Netzes für ihren Vorteil missbraucht. Im Schatten dieser ‹Lecks› veruntreuten sie
+grosse Mengen an Gas, um es zu hohen Preisen an wenig wählerische europäische Länder zu verkaufen.[19]
+
+**Nord Stream 2**
+Das Projekt Nord Stream 2 wurde auf die Bitte Deutschlands ins Leben gerufen, um Deutschland zu ermöglichen, seine Klimaziele zu erreichen. Putin wollte auf den Bau neuer Gaspipelines nach Europa verzichten[20],
+weil er befürchtete, dass sich die Lecks in den Gaspipelines, die durch die Ukraine führen, häufen würden.
+Doch um die Energiewende einzuleiten und aus der Kohle auszusteigen, konnte Angela Merkel 2016
+Wladimir Putin davon überzeugen, Nord Stream 2 auf der Route von Nord Stream 1 (NS1) zu bauen, um
+die Unwägbarkeiten einer Versorgung durch die Ukraine zu vermeiden.[21] Deshalb widersetzt sich Merkel
+dem Druck, das Projekt einzustellen, nur weil es den USA missfällt.
+In Wirklichkeit speist sich der Widerstand gegen das Projekt aus zwei Quellen. Die erste ist die TrumpRegierung (später diejenige von Biden), die versucht, Russland auf der internationalen Bühne zu isolieren.
+Gleichzeitig soll eine Konkurrenz für das amerikanische Gas beseitigt werden, das durch Fracking gewonnen
+
+
+-----
+
+wird. Diese Technologie greift stark in die Umwelt ein, und ihr Produkt ist wesentlich teurer als russisches
+Gas. Als nächste Quelle haben wir Länder wie die Ukraine und Polen, die nicht grundsätzlich gegen das
+russische Projekt sind, die es aber vorgezogen hätten, dass die Pipeline über ihr Staatsgebiet verlaufen
+wäre, um Mautgebühren zu kassieren.
+Es sind die USA, welche die Energie instrumentalisieren, um Druck auf die Europäer auszuüben und den
+Bau von Nord Stream 2 zu verzögern.[22] Am 8.2.2022 erklärt Joe Biden bei seinem Treffen mit dem deutschen Bundeskanzler Olaf Scholz:[23]
+«Falls Russland in die Ukraine einmarschiert – soll heissen, falls erneut Panzer oder Soldaten die Grenze
+überschreiten –, dann wird es kein Nord Stream 2 mehr geben.»
+
+**Jacques Baud: ‹Putin – Herr des Geschehens?›**
+Westend-Verlag, 2023
+«Das Sterben in der Ukraine schreitet voran. Obwohl dieser Krieg täglich in den Medien präsent
+ist, bleibt vieles unterbelichtet, denn seine Vorgeschichte wird lediglich unvollständig dargestellt
+oder sogar ignoriert. Für Jacques Baud ist es höchste Zeit, zurück zu den Fakten und zum
+Dialog zu kommen.»
+
+**FUSSNOTEN**
+1 «The Soviet Gas Pipeline in Perspective», Special National Intelligence Estimate, Central Intelligence Agency, 21.9.1982 (SNIE 311/2-82)
+2 Roman Kupchinsky, «Analysis: The Recurring Fear Of Russian Gas Dependency», Radio Free Europe/Radio Liberty, 11.5.2006
+3 Thomas C. Reed, «At The Abyss: An Insider’s History of the Cold War», Presidio (2005)
+4 James Marson & Joe Wallace, «Europe’s Push to Loosen Russian Influence on Gas Prices Bites Back», The Wall Street Journal,
+27.10.2021
+5 «Analysis: US reliance on Russian oil hits record high despite souring ties», spglobal.com, 16.4.2021; Lucia Kassai, «Russian Oil
+Shipments to the U.S. Set to Surge in Ida’s Wake», Bloomberg, 8.9.2021 (aktualisiert am 9.9.2021) ; Tsvetana Paraskova, «U.S.
+Imports Of Russian Oil Expected To Soar After Hurricane Ida», oilprice.com, 9.9.2021
+6 Rosemary Griffin & Eklavya Gupte, «Russian crude exports to US highlight risks to Ukraine talks for Biden», S&P Global, 21.1.2022
+7 Sheela Tobben & Jeffrey Bair, «Russia Captures No. 2 Rank Among Foreign Oil Suppliers to U. S.», Bloomberg, 4.8.2021
+(aktualisiert am 5.8.2021)
+9 Clémentine Fauconnier in der Sendung «C dans l’air» vom 17.10.2021 («Poutine, maître du jeu #cdanslair 17.10.2021», France
+_5/YouTube, 18.10.2021) (1h41’07’’) 10 Sendung «C dans l’air» vom 17.10.2021 («Poutine, maître du jeu #cdanslair_
+17.10.2021», France 5/YouTube, 18.10.2021) (1h44’40’’)
+11 «FACTBOX-Russian gas pipeline exports to Europe», Reuters, 4.10.2021
+12 Arne Delfs, «Merkel Dismisses Russian Role in Europe’s Energy Price Crisis», Bloomberg, 6.10.2021
+13 «Тимерманс ексклузивно пред bTV: Въглищата нямат бъдеще», btvnovinite. bg, 15.10.2021 (https://btvnovinite.bg/predavania/tazisutrin/timermans-ekskluzivno-pred-btv-njama-badeshte-v-izpolzvaneto-na-vaglishta.html)
+14 Jake Horton, «Europe gas prices: How far is Russia responsible?», BBC, 18.10.2021
+15 David McHugh, «US official: Russia should send more gas to Europe ›quickly‹», Associated Press, 25.11.2021
+16 Pascal Boniface in «Expliquez-moi … La situation en Ukraine», YouTube, 31.10.2019
+17 Laure Mandeville in der Sendung «C dans l’air» vom 17.10.2021 («Poutine, maître du jeu #cdanslair 17.10.2021», France
+_5/YouTube, 18.10.2021) (1h49’00’’)_
+18 Artikel «2005–2006 Russia-Ukraine gas dispute», Wikipedia (auf Englisch) (eingesehen am 5.2.2022)
+19 «Ukraine ‹stealing Europe’s gas›», BBCNews, 2.1.2006
+20 Michael Birnbaum, «Putin cancels new natural gas pipeline to Europe in a surprise move», The Washington Post, 1er décembre
+2014 (https://www.washingtonpost.com/world/europe/putin-cancels-new-natural-gas-pipeline to-europe-in-a-surprisemove/2014/12/01/c1955c90-73ee-11e4-95a8-fe0b 46e8751a_story.html)
+21 Anka Gurzu, «Nord Stream 2 fight set to heat up as countries show their cards», Politico, 9 avril 2017,
+(https://www.politico.eu/article/nord-stream-2-fight-set-to-heat-up-as-countries-show-their-cards/)
+22 Johanna Luyssen, «Le pipeline Nord Stream 2 compromis par les sanctions américaines», Libération, 12.12.2019
+23 «Biden vows to ›end‹ Nord Stream 2 pipeline if Russia invades Ukraine», France 24, 8.2.2022
+
+### Und so ging es mit den Medienlügen und Politiklügen weiter, die von INFOspeber und Urs P. Gasche offensichtlich mit Recht angezweifelt und als fragwürdig beurteilt wurden, wie aus seinen Artikeln klar erkenntlich und zweifellos absolut richtig war und ist:
+
+
+-----
+
+Freitag, 26.4.2024
+
+Videos des dänischen Militärs zeigten kurz nach dem Anschlag die durch die Gasmassen
+aufgewühlte See über den zerstörten Nord-Stream-Pipelines. © Danish Defence Command
+
+##### Lloyd’s: Regierung steckt hinter Nord-Stream-Sabotage
+###### Zwei Londoner Versicherungen wollen für die Schäden nicht aufkommen.  Die Sprengung könne ‹nur von einer Regierung› verursacht sein.
+Martina Frei
+
+Vor rund einem Monat reichte die in Zug ansässige ‹Nord Stream AG› Klage gegen ihre Versicherer ein. Die
+‹Nord Stream AG› wollte den Schaden der versicherten Pipeline entschädigt erhalten. Es geht um eine
+Streitsumme von über 400 Millionen US-Dollar.
+Doch die Versicherer ‹Lloyd’s› und ‹Arch› wollen nicht zahlen. Ihre Begründung: Hinter der Sprengung von
+Nord Stream 2 im September 2022 stehe eine Regierung.
+«Die Beklagten berufen sich unter anderem auf die Tatsache, dass der Explosionsschaden nur von einer
+Regierung oder auf deren Befehl hin verursacht werden konnte (oder zumindest mit hoher Wahrscheinlichkeit verursacht wurde)», berichtet ‹Scheer Post›.
+
+**Schäden durch militärische Konflikte sind nicht versichert**
+Die Sabotage hänge folglich direkt oder indirekt mit dem militärischen Konflikt zwischen Russland und der
+Ukraine zusammen. Die Folgen kriegerischer Auseinandersetzungen seien aber von der Versicherungshaftung ausgeschlossen, argumentieren Lloyd’s und Arch.
+Damit widersprechen die Versicherer der Version, welche die ‹Washington Post› und weitere Medien kolportierten: Dass es sich bei dem Anschlag auf die Pipeline um ein privates ukrainisches Sprengkommando
+gehandelt habe.
+
+**‹Verzweifelter Versuch›, um sich herauszuwinden**
+‹Scheer Post› zitiert den schwedischen Ingenieur Erik Anderson, der die erste private Ermittlungsexpedition
+zu den Explosionsorten leitete. Er meint, die Begründung der Versicherer sei ihr «verzweifelter Versuch,
+einen Vorwand zu finden, um ihren Entschädigungsverpflichtungen nicht nachkommen zu müssen».
+Die Schäden an den Nord-Stream-Pipelines, die durch die Sprengung von Nord Stream 2 entstanden seien,
+würden sich laut ‹Scheer Post› auf schätzungsweise 1,2 bis 1,35 Milliarden US-Dollar belaufen. Selbst wenn
+die Versicherer für einen Teil davon aufkommen müssten, dürften sie dies gar nicht, argumentieren Lloyd’s
+und Arch weiter. Denn die westlichen Sanktionen gegen Russland würde ihnen das verbieten.
+
+**Vor der US-Regierung gekuscht – und den Ruf aufs Spiel gesetzt**
+Nachdem die US-Regierung den Versicherern Lloyds und Arch mit Sanktionen gedroht habe, hätten die
+beiden ihre Zusagen, Schäden an Nord-Stream-2 zu versichern, zurückgenommen. Doch die Schäden an
+der Pipeline Nord-Stream-1 müssten sie weiterhin decken. Nord-Stream-1 sei zwar von den Sanktionsdrohungen nicht betroffen gewesen, «aber offensichtlich könnten Sanktionen nun rückwirkend zum Vorteil der
+Versicherer wirken», so Andersson gegenüber ‹Scheer Post›.
+
+
+-----
+
+Aus Sicht dieser unabhängigen US-Online-Zeitung wäre eine gerichtliche Entscheidung zugunsten der Versicherer wohl ‹ein zweischneidiges Schwert›. Indem sich Lloyd’s den US-Sanktionen unterwarf und Schiffe
+mit iranischem Öl nicht mehr versicherte, «laufen westliche Versicherer (wie ihre Kollegen im Bankensektor)
+zunehmend Gefahr, ihren weltweiten Ruf der relativen Unabhängigkeit vom Staat zu verlieren. Sollte der
+Westen letztlich seinen Einfluss auf den globalen Versicherungsmarkt – oder seinen Ruf als sicherer Hafen
+für ausländische Vermögenswerte – verlieren, werden 400 Millionen Euro diesen Ruf wohl kaum zurückkaufen können.»
+
+Montag, 6.9.2024
+
+Sichtbares Leck nach der Sabotage der Nord-Stream-Pipeline © Armed Forces of Denmark
+
+##### Nord-Stream-Sabotage:  Polen und Tschechien behindern Aufklärung
+###### Deutsche Ermittler haben ukrainische Taucher als Täter im Visier.  Doch der Hauptverdächtige entwischte kurz vor der Verhaftung.
+_German Foreign Policy_
+
+Enge Verbündete Deutschlands blockieren die Aufklärung des Anschlags auf die Nord Stream-Pipelines
+und nennen die Erdgasleitungen ein ‹legitimes Ziel›. Wenn der Anschlag mit der klaren Absicht begangen
+worden sei, den Verkauf von russischem Erdgas an Westeuropa zu unterbinden, dann sei er vollkommen
+gerechtfertigt. Das erklärte Mitte August Tschechiens Präsident Petr Pavel. Zuvor hatte Polens Ministerpräsident Donald Tusk verlangt, alle, die jemals den Bau einer der zwei Nord-Stream-Pipelines begünstigt hätten,
+sollten sich jetzt ‹entschuldigen und … schweigen›.
+Polen sabotiert seit einiger Zeit Ermittlungen deutscher Behörden, die den Anschlag einer Gruppe von Privatpersonen zuschreiben, darunter mehrere Ukrainer. Laut Medienberichten hatten der ukrainische Präsident Wolodymyr Selensky sowie möglicherweise auch polnische Stellen Kenntnis von den Anschlagplänen.
+Bei alledem gibt es weiterhin ernsthafte Zweifel an der deutschen Ermittlungsthese. Gewichtige Argumente
+sprechen unverändert für einen staatlichen Täter – nach Lage der Dinge die Vereinigten Staaten. Ermittlungen, die in diese Richtung zielen, werden in Deutschland nicht geführt.
+
+**Staatliche Täterschaft plausibel**
+Auch rund zwei Jahre nach den Anschlägen auf die Nord-Stream-Pipelines ist die Darstellung des investigativen US-Journalisten Seymour Hersh plausibel (Infosperber berichtete). Er hatte – basierend auf Informationen von Insidern – rekonstruiert, die Erdgasleitungen seien im Auftrag der US-Regierung von US-Stellen
+gesprengt worden. Insbesondere entsprach das der Auffassung von Experten, eine Aktion mit so grossen
+Mengen an Sprengstoff in so grosser Wassertiefe könne nur von Personen mit Zugriff auf staatliche Kapazitäten durchgeführt werden. Die Sprengsätze seien im Juni 2022 während des NATO-Grossmanövers Baltops an den Pipelines angebracht und im September 2022 ferngesteuert gezündet worden.
+Politiker und Leitmedien in Deutschland wiesen Hershs Recherchen umgehend zurück. Ein sogenannter
+Faktenfinder der öffentlich-rechtlichen ARD diffamierte den renommierten US-Journalisten als ‹Meister …
+der Fantasien›. Die Begründung: Hersh habe die ‹unwahrscheinlich[e]› Behauptung getätigt, es sei ‹Spreng
+
+-----
+
+stoff in Pflanzenform› eingesetzt worden.[1] Der ‹Faktenfinder› war offenkundig unfähig, Hershs Formulierung «[to] plant shaped C4 charges» korrekt zu übersetzen als ‹C4-Hohlladungen anbringen›.[2]
+
+**Die Version mit der gemieteten Jacht**
+Kurz nach der Publikation von Hershs Recherchen legten deutsche und US-amerikanische Medien eine
+alternative Theorie vor, die sich erklärtermassen auf ungenannte Mitarbeiter der US-Regierung und auf Ermittlungen deutscher Behörden stützte. Demnach sei der Anschlag von der sechsköpfige Besatzung einer
+gemieteten Jacht durchgeführt worden – von «einer Gruppe aus einem Kapitän, zwei Tauchern, zwei Tauchassistenten und einer Ärztin», hiess es. Die Gruppe habe am 6. September 2022 in Rostock eine kleine
+Jacht mit Sprengstoff beladen und sei von dort aus zu einer kleinen Rundreise in der Ostsee aufgebrochen.
+Nach Stationen auf Wieck auf der Halbinsel Darss, auf der dänischen Insel Christiansø, im schwedischen
+Sandhamn sowie im polnischen Kołobrzeg sei sie letzten Endes nach Rostock zurückgekehrt. Zwischendurch hätten die Taucher die Sprengsätze angebracht.[3]
+Experten äusserten sich in ersten Stellungnahmen skeptisch; so hiess es etwa, der Umgang mit Sprengstoff
+sowie das Tauchen in extremen Tiefen erforderten eine oft «jahrelange Ausbildung, insbesondere im Militär».[4] Unklar blieb auch, wieso hochprofessionell operierende Täter Sprengstoffspuren und Fingerabdrücke in der Jacht nicht beseitigt haben. Zudem begann die Durchsuchung der Jacht erst am 18. Januar
+2023 – Zeit genug, das Boot zwischendurch zu präparieren.
+
+**Mitwisser, Mittäter?**
+Während rasch die Vermutung geäussert wurde, es könne sich bei der offiziösen Tatversion um eine gezielt
+gelegte und genährte falsche Fährte handeln, setzten die deutschen Behörden ihre Ermittlungen gegen die
+Gruppe, die auf der Jacht in die Ostsee gestochen war, fort.
+Mitte August erweiterte ein Bericht des ‹Wall Street Journal› die Version um weitere Elemente. Demnach
+sei der Gedanke, die Nord-Stream-Pipelines zu sprengen, im Mai 2022 entstanden, als einige ukrainische
+Militärs und Geschäftsleute die Erfolge der damaligen ukrainischen Gegenoffensive mit grösseren Mengen
+alkoholischer Getränke feierten. Präsident Wolodymyr Selensky habe dem Plan zunächst zugestimmt, die
+Genehmigung aber auf eine Intervention aus Washington zurückgezogen. Daraufhin habe der damalige
+Oberbefehlshaber der ukrainischen Streitkräfte, Walerij Saluschnyj, die Planungen auf eigene Faust fortgesetzt.[5]
+Saluschnyj streitet dies selbstverständlich ebenso ab, wie Selensky in Abrede stellt, er sei ursprünglich in
+die Anschlagpläne involviert gewesen. Auch Polens Regierung weist jede Form einer Mitwisserschaft oder
+gar Tatbeteiligung zurück. Dass es eine «Verabredung zwischen den höchsten Spitzen in der Ukraine und
+in Polen» gegeben habe, den Anschlag auszuführen, hatte zuvor Ex-BND-Präsident August Hanning geäussert.[6]
+
+**Ermittlungen sabotiert**
+Nicht nur der Anschlag auf die Nord-Stream-Pipelines selbst, auch seine Nachwehen bringen die deutsche
+Regierung in eine heikle Situation. Schon unmittelbar nach dem Anschlag hatte die Tatsache Aufsehen
+erregt, dass Bundeskanzler Olaf Scholz es umstandslos hinnahm, dass US-Präsident Joe Biden auf einer
+gemeinsamen Pressekonferenz am 7. Februar 2022 ankündigte, im Fall eines russischen Einmarschs in
+die Ukraine werde es «kein Nordstream 2 mehr geben».[7]
+Aktuell ruft Erstaunen hervor, dass ein von den deutschen Behörden verdächtigtes und mit europäischem
+Haftbefehl gesuchtes Mitglied der Jacht-Crew offenkundig in der Lage war, sich aus seinem Wohnort
+westlich von Warschau in die Ukraine abzusetzen. In Warschau heisst es dazu, man habe den Mann nicht
+aufhalten können, da die deutsche Seite es versäumt habe, ihn in das Schengen-Register einzutragen, auf
+das an der Grenze bei Kontrollen zugegriffen werde.[8]
+Sollte dies zutreffen, dann würden sich neue Fragen stellen. Interessant ist nicht zuletzt, dass der Mann,
+wie auch zwei weitere Verdächtige, von deutschen Journalisten ohne weiteres kontaktiert werden konnten
+– vermutlich in der Ukraine –, dass sie aber von Kiew nicht an die deutschen Behörden überstellt werden.
+Demnach sabotiert Kiew Berlins Versuche, einen Anschlag auf die Energieinfrastruktur der Bundesrepublik
+aufzuklären.
+
+**«Entschuldigen und schweigen»**
+Ähnliches gilt für Polen, das unter anderem nicht bereit ist, Videoaufnahmen aus dem Hafen von Kołobrzeg,
+die zur Aufklärung des Geschehens um die erwähnte Jacht beitragen könnten, an die deutschen Behörden
+weiterzugeben. Im Hinblick auf vorsichtige Kritik an der polnischen Verhinderungstaktik erklärte Ministerpräsident Donald Tusk kürzlich auf dem Kurznachrichtendienst X: «An alle Initiatoren und Schirmherren
+von Nord Stream 1 und 2: Das Einzige, was ihr jetzt tun solltet, ist, euch zu entschuldigen und zu schweigen.»[9]
+
+
+-----
+
+Tschechiens Präsident Petr Pavel hat jüngst die Nord-Stream-Pipelines zu einem legitimen Angriffsziel erklärt. Sollte der Anschlag mit der Absicht begangen worden sein, die Erdgasflüsse aus Russland nach Europa und die folgende Bezahlung des Gases an die liefernden russischen Unternehmen zu verhindern, dann
+sei dies «ein legitimes Ziel», äusserte Pavel.[10]
+Dass enge Verbündete Anschläge auf die deutsche Energieinfrastruktur für zulässig erklären und Kritik daran komplett zum Schweigen bringen wollen, zeigt, dass die weitreichende Kontrolle über die EU, die Berlin
+einst besass, mit hohem Tempo schwindet.
+
+**FUSSNOTEN:**
+
+[1] ARD blamiert sich mit Übersetzungsfehler. t-online.de24.02.2023.
+
+[2] S. dazu Tatort Ostsee (III).
+
+[3] S. dazu Tatort Ostsee (IV).
+
+[4] Wie plausibel sind die Nord-Stream-Berichte? zdf.de 07.03.2023.
+
+[5] Bojan Pancevski: A Drunken Evening, a Rented Yacht: The Real Story of the Stream Pipeline Sabotage.
+wsj.com 14.08.2024.
+
+[6] «Es gab Verabredungen zwischen Selensky und Duda, den Anschlag auszuführen», behauptet der ExBND-Chef. welt.de 20.08.2024.
+
+[7] Biden nach Gespräch mit Scholz: «Wenn Russland einmarschiert, wird es kein Nord Stream 2 mehr
+geben». rnd.de 08.02.2024.
+
+[8] Erster Haftbefehl wegen Nord-Stream-Anschlägen. tagesschau.de14.08.2024.
+
+[9] «Sich entschuldigen und schweigen». Donald Tusk kritisiert Nord-Stream-Befürworter. Tagesspiegel.de 17.08.2024.
+
+[10] Ketrin Jochecová: If Ukrainians did destroy Nord Stream, they may have been justified, Czech president argues. politico.eu
+21.08.2024.
+
+**Facebook-Nutzer George Kwong: Reproduction is no longer exclusively a personal matter – Die**
+**Fortpflanzung ist nicht mehr ausschließlich eine persönliche Angelegenheit!**
+
+Die Fortpflanzung ist nicht mehr ausschliesslich eine persönliche Angelegenheit. Die Gesellschaft muss bei
+der Regulierung dieser lebenswichtigen Funktion ein Mitspracherecht und eine gewisse Weisungsbefugnis
+haben. Die Wünsche der menschlichen Paare sind sehr wichtig, aber sie dürfen die Gesellschaft als Ganzes
+nicht ausser Acht lassen. Das allgemeine Wohlergehen dieser und künftiger Generationen muss bei der
+Entwicklung von Plänen für eine vernünftige Steuerung unserer Fortpflanzung verstärkt berücksichtigt werden. Kein Mensch sollte ungewollt und unbedarft auf die Welt gebracht werden. Kein Kind sollte durch Unachtsamkeit gezeugt werden. Wenn jedes Leben einen Wert haben soll, muss jede Zeugung Teil eines geordneten Plans von zwei Eltern sein, die sich ihrer Verantwortung für das Kind und die Gesellschaft bewusst
+sind.
+George Kwong
+Quelle:https://www.facebook.com/groups/136507913150251/posts/3119961688138177/?comment_id=31215545
+04645562&notif_id=1710329001813654&notif_t=group_comment
+
+
+-----
+
+##### Über die Symbole der Schöpfungsenergielehre
+_Von Bernadette Brand, Schweiz_
+
+Grundsätzlich gilt: Jedes einzelne Symbol der Schöpfungsenergielehre ist absolut und völlig neutral, was
+auch für das Friedenssymbol gilt.
+Ebenso grundsätzlich ist jedoch festzuhalten, dass jedes einzelne Symbol über eine eigene unverwechselbare und typische Formensprache verfügt, die es einzigartig macht. Zu dieser Formensprache gehören
+nicht nur die effektiven linearen Formen, sondern auch die Stellung des Symbols innerhalb des breiten
+schwarzen Rahmens, der für jedes Symbol unverzichtbar ist, sowie die Proportionen der Linienstärken und
+– wenn vorhanden, auch für die Farben – folglich also insgesamt für das individuelle Gesamterscheinungsbild jedes Symboles, was nicht nur von Bedeutung, sondern sehr wichtig ist.
+Bei der Formensprache handelt es sich um eine Art der archetypischen visuellen Kommunikation, durch
+die die unbewusste und bewusste Wahrnehmung des Betrachters angesprochen wird. Aufgrund des archetypischen jahrhunderttausende alten Wissens, das jedem Menschen aufgrund der in der ‹eigenen› Schöpfungsenergielinie gespeicherten Informationen zur Verfügung steht, nimmt sein Unbewusstes die ‹Botschaften› der Formensprache auf und beginnt sie aufgrund des in der Schöpfungsenergieform eingelagerten
+Wissens impulsmässig zu interpretieren und richtig zu verstehen, wodurch dies dann entsprechende Impulse auslöst und diese an den alles überlagernden Bewusstseinskomplex weiterleitet und freigibt, der dann
+dem Symbol entsprechend zu reagieren beginnt und Assoziationen, Ideen und Reaktionen erzeugt, die im
+bewussten Bewusstsein aufgenommen und der Formensprache entsprechend verarbeitet sowie nach aus
+sen als Handlung umgesetzt werden.
+Jedes Symbol ist komplex und in sich absolut und in jeder Weise streng neutral und passiv. Es veranlasst
+also absolut nichts Negatives oder Positives im Bewusstsein des Menschen, sondern es ist explizit lediglich
+Ausdruck bzw. Träger bestimmter negativer, ausgeglichener oder positiver Informationen, deren Interpretationen durch den Menschen selbst erfolgen und geformt werden. Dies ergibt sich durch sein Denken, das
+durch die Einflüsse der Umwelt, wie Erziehung und gar Indoktrination aufkommt, das dann durch seinen
+gesamten Bewusstseinskomplex umgesetzt und gesteuert wird, und zwar präzise und entsprechend den
+Informationswerten des jeweiligen Symbols.
+
+Das existierende und weltweit kursierende falsche ‹Friedenssymbol› mit der Todesrune,
+das wahrheitlich einem ‹Todessymbol› und ‹Hasssymbol› entspricht, wurde im Jahr 1958
+vom britischen Grafiker Gerald Holtom im Auftrag der britischen Kampagne zur nuklearen
+Abrüstung erdacht und erstellt, und zwar ohne Vorauskenntnis, dass sein Werk Böses,
+Krieg, Verbrechen, Leid, Elend, Tod und Zerstörung fordern wird.
+So wurde es also absolut unausweichlich, dass das falsche ‹Friedenssymbol› – das keltische ‹Todesrunesymbol› – bis heute Spaltung, Unfrieden und Zerstörung hervorruft, wie
+das täglich festzustellen ist, seit dieses Symbol fälschlich und unverantwortlich als ‹Friedenssymbol› interpretiert und dieserart weltweit fälschlich genutzt wird und damit Unfrieden, Streit, Krieg, Terror und Tod
+verbreitet. Nur schon bei oberflächlicher Betrachtung des Symbols wird klar, dass es nicht das Geringste
+mit Frieden, sondern mit Gewalt, Aggression, Zerstörung und Vernichtung zu tun hat.
+
+
+-----
+
+Das Symbol ‹Tod, Todesexistenz›, auf dem die Todesrune fusst – assoziiert Spaltung, Unfrieden, Hass, Krieg,
+Terror, Mord und Zerstörung, wie das täglich in immer krasserer Form festzustellen ist, seit dieses Symbol
+fälschlich und unverantwortlich als ‹Friedenssymbol› interpretiert wird und weltweit Verbreitung gefunden
+hat. Was sich seit der Entstehung dieses 1958 erfundenen ‹Todessymbols› mit der Todesrune an bewaffneten Konflikten auf der Erde ergeben hat ist derart gravierend, wie es auf diesem Planeten zuvor niemals
+der Fall war. Es waren nämlich bis zum Monat Mai des Jahres 2024 deren 91 Aufstandskämpfe, Befreiungskriege, Besetzungskriege, Bürgerkriege, Grenzkriege, Invasionskriege, Religionskämpfe, Staatenkriege, Sezessionskriege, Terrorhandlungen und sonstige Waffenkonflikte zu verzeichnen, die viele Millionen Tote
+gefordert haben.
+Nur schon bei oberflächlicher Betrachtung des Symbols wird klar, dass es nicht das Geringste mit Wachstum, Fortschritt und Friedlichkeit zu tun haben kann, denn ein gestürzter Baum, dessen Krone zur Erde
+weist, ist der Inbegriff der Gewalt, des Endes, der Verrottung und des Sterbens. Da die meisten Menschen
+unkontrolliert denken, verarbeiten sie die archetypischen Informationen des Symbols auch in genau der
+Weise der Inhalte, die dieses Symbol umfänglich ‹umschreibt›, weshalb sie dann unbewusst bzw. unkontrolliert und unbedacht alles dazu beisteuern, um den Sinn des Symboles umzusetzen und Tatsache werden
+zu lassen, ohne dem Verderben und dem Ende von dem das Symbol ‹spricht› auch nur das Geringste entgegenzusetzen. Dadurch, dass sich jene gläubigen Menschen, die das Todessymbol als Friedenssymbol
+missinterpretieren, ihre eigenen Gedanken und Regungen nicht bewusst machen und diese nicht kontrollieren, machen sie sich zu Sklaven des Inhaltes des Symbols – das grundsätzlich völlig neutral einfach einen
+bestimmten Zustand oder Umstand ‹beschreibt›, den sie ungewollt und gläubig umsetzen und Wirklichkeit
+und Tatsache werden lassen.
+
+Gegensätzlich zum Symbol ‹Tod, Todesexistenz› beinhaltet das Symbol ‹Frieden› eine
+reiche und auf Wachstum hinweisende Formensprache, die genau wie alle anderen Symbole völlig neutrale archetypische Informationen beinhaltet, die jedoch auf ein friedliches
+und reiches Wachstum, wie auch auf Ruhe und Fortschritt bzw. Evolution hinweisen und
+diese Aussage abschliessend beinhalten. Der lebenspralle Baum, dessen Krone in den
+Himmel weist und der auf einer sprudelnden Quelle thront, verspricht blühendes Wachstum sowie Gedeihen – was durch die stilisierte Lotosblume versinnbildlicht wird, die der
+Krone des Baumes entspringt – wodurch dieser zum eigentlichen Lebensbaum wird.
+Die Betrachtung des Symboles weckt im Menschen friedliche und fortschrittliche Assoziationen und lässt
+diese hochkommen, wobei sie auf Gedeihen, Wachstum und eine reiche Ernte hinweisen, wodurch der
+Mensch wertvolle Regungen, Ahnungen und Ideen sowie Gedanken und ein Streben nach Friedlichkeit,
+Wachstum, Aufblühen und Fortschritt in sich auslöst und aufbaut, weil er sein eigenes untergründiges Wissen seiner Schöpfungslebensenergie anzapft und bestrebt wird, dieses laufend auf- und auszubauen und
+es also evolutiv zu erweitern, dies einfach deshalb, weil der Mensch durch das Wahrnehmen des Symbols
+bewusst seinem klaren Verstand und seiner Vernunft mächtig wird, infolgedessen er die archetypische
+Information der Formensprache des Symboles aufnimmt und diese evolutiv verwertet, um alles in den Wert
+des diesbezüglich richtigen Handelns, Wirkens und Verhaltens umzusetzen.
+
+## Verbreitung des richtigen Friedenssymbols
+
+Das falsche Friedenssymbol – die heute weltweit verbreitete sogenannte
+
+**Es soll FRIEDEN sein auf Erden** <Todesrune>, die aus den keltischen Futhark-Runen resp. der umgedrehten Algiz
+**And there shall be PEACE on Earth** Rune fabriziert wurde – ist der eigentliche Inbegriff negativer Einflüsse und schafft
+
+zerstörerische Schwingungen hinsichtlich Unfrieden, Fehden und Hass, Rache,
+Laster, Süchte und Hörigkeit, denn die <Todesrune> bedeutet für viele Menschen
+
+**AMANI** **ΕΙΡΗΝΗ**
+
+Reminiszenzen an die NAZI-Zeit, an Tod und Verderben, wie aber auch Ambitionen
+
+**BARIŞ** **VREDE**
+
+in bezug auf Kriege, Terror, Zerstörungen vieler menschlicher Errungenschaften und
+
+**PAQE** **��** allen notwendigen Lebensgrundlagen jeder Art und weltweit Unfrieden.
+**PACE** **שרום**
+**МИР** शांित Es Ist wirklich dringlichst notwendig, dass die <Todesrune> als falsches
+**PAIX** **���** Friedenssymbol, das Unfrieden und Unruhe schafft, völlig aus der Erdenwelt
+**PAZ** **��** verschwindet und dadurch das uralte sowie richtige Peacesymbol auf der ganzen
+
+Erde verbreitet und weltbekanntgemacht wird, dessen zentrale Elemente
+Frieden, Freiheit, Harmonie, Stärkung der Lebenskraft, Schutz,
+
+**FIGU.ORG**
+
+Wachstum und Weisheit reflektieren, aufbauend wirken und
+
+**FIGU, Semjase-Silver-Star-Center, 8495 Schmidrüti**
+**Schweiz/Switzerland  Tel. + 41 (0)52 385 13 10** sehr besänftigend und friedlich-positiven Schwingungen
+
+zum Durchbruch verhelfen, die effectiv Frieden,
+Freiheit und Harmonie vermitteln können!
+
+
+-----
+
+Wir wenden uns deshalb an alle FIGU-Mitglieder, an alle FIGU-Interessengruppen, Studien- und Landesgruppen
+sowie an alle vernünftigen und ehrlich nach Frieden, Freiheit, Harmonie, Gerechtigkeit, Wissen und Evolution
+strebenden Menschen, ihr Bestes zu tun und zu geben, um das richtige Friedenssymbol weltweit zu
+verbreiten und Aufklärung zu schaffen über die gefährliche und destruktive Verwendung
+der <Todesrune>, die in Erinnerung an die NAZI-Verbrechen kollektiv im Sinnen und
+Trachten der Menschen Charakterverlotterung, Ausartung und Unheil fördert.
+
+**Autokleber** **Bestellen gegen Vorauszahlung:** **E-Mail, WEB, Tel.:**
+**Grössen der Kleber:** **FIGU** info@figu.org
+120x120 mm = CHF 3.– Hinterschmidrüti 1225 www.figu.org
+250x250 mm = CHF 6.– 8495 Schmidrüti Tel. 052 385 13 10
+300X300 mm = CHF 12.– Schweiz Fax 052 385 42 89
+
+IMPRESSUM Für CHF/EURO 10.– in einem Couvert senden
+FIGU-SONDER-ZEITZEICHEN wir Dir/Ihnen 3 Stück farbige Friedenskleber
+Druck und Verlag: FIGU-Wassermannzeit-Verlag, ------der Grösse 120x120 mm. = Am Auto aufkleben.
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+Redaktion: BEAM ‹Billy› Eduard Albert Meier,
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+Wird auch im Internetz veröffentlicht
+**Erscheint sporadisch auf der FIGU-Webseite**
+
+Postcheck-Konto: FIGU Freie Interessengemeinschaft,
+8495 Schmidrüti, PC 80-13703-3
+IBAN: CH06 0900 0000 8001 3703 3 Geisteslehre Friedenssymbol
+**E-Brief: info@figu.org**
+**Internetz: www.figu.org** **Frieden**
+**FIGU-Shop: http://shop.figu.org**
+
+Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten
+
+**© FIGU 2024** Tritt dazu macht, um dann nachfolgend in Friedsamkeit jeden weiteren Schritt
+Einige Rechte vorbehalten. bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun. SSSC, 10. September 2018, 16.43 h, Billy
+Dieses Werk ist, wo nicht anders
+angegeben, lizenziert unter :
+www.figu.org/licenses/by-ncnd/2.5/ch/
+
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung des Urhebers ausdrücklich erlaubt.**
+Erschienen im Wassermannzeit-Verlag: FIGU, ‹Freie Interessengemeinschaft Universell›, Semjase-Silver-Star-Center,
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+

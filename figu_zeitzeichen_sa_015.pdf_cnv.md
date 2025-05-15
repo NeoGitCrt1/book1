@@ -1,0 +1,1270 @@
+###                 Sonderausgabe
+# FIGU ZEITZEICHEN
+
+######    Aktuelles • Einsichten • Erkenntnisse
+
+
+Erscheinungsweise:
+sporadisch
+
+
+Internetz: http://www.figu.org
+E-Brief:  info@figu.org
+
+
+8. Jahrgang
+Nr.14 Juni/3 2022
+
+
+###### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+
+Laut ‹Allgemeine Erklärung der Menschenrechte›, verkündet von der Generalversammlung der Vereinten Nationen am 10. Dezember 1948,
+herrscht eine allgemeine ‹Meinungs- und Informationsfreiheit› vor, und dieses unumschränkte Recht gilt weltweit und absolut für jeden
+einzelnen Menschen weiblichen oder männlichen Geschlechts jeden Alters und Volkes, jedes gesellschaftlichen Standes wie auch in
+bezug auf rechtschaffene Ansichten, Ideen und jeglichen Glauben jeder Philosophie, Religion, Ideologie und Weltanschauung:
+
+**Art. 19 Menschenrechte**
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit, Mei-nungen**
+**unangefochten anzuhängen und Informationen und Ideen mit allen Verständigungs-**
+**mitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Ansichten, Aussagen, Darstellungen, Glaubensgut, Ideen, Meinungen sowie Ideologien jeder Art in Abhandlungen, Artikeln
+und in Leserzuschriften usw. müssen in keiner Art und Weise zwingend identisch mit dem Gedankengut und den
+Interessen, mit der ‹Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens›, wie auch nicht in
+irgendeiner Sachweise oder Sichtweise mit dem Missionsgut und dem Habitus der FIGU verbindend sein.
+==================================================================================
+==================================================================================
+Für alle in den FIGU-Zeitzeichen und anderen FIGU-Periodika publizierten Beiträge und Artikel verfügt die
+FIGU über die notwendigen schriftlichen Genehmigungen der Autoren bzw. der betreffenden Medien!
+###### ****************************************************************************************
+
+**Auf vielfach geäusserten Wunsch aus der Zeitzeichen-Leserschaft sollen in den Zeitzeichen zur Orientierung der**
+**Rezipienten laufend Auszüge diverser wichtiger Belange aus neuest geführten Kontaktgesprächsberichten**
+**veröffentlicht werden, wie nach Möglichkeit auch alte sowie neue Fakten betreffs weltweit bösartig mit**
+**Lügen, Betrug, Verleumdung und Mordanschlägen gegen BEAM geführte Kontroversen.**
+
+**Besonderes:**
+**Gemäss den Plejaren sollen künftighin politische Leserzuschriften mit Leseransichten im Sonderbulletin**
+**veröffentlicht werden, jedoch unter keiner Namensnennung der Zuschriftenpersonen und der Kontakt-**
+**personen, sondern in anonymer Weise, zudem neutral ohne jeglichen FIGU-Kommentar, da sich der**
+**Verein FIGU weder zu politischen Zuschriften äusserst und also keine Stellung nimmt, noch sich sonstwie**
+**politisch betätigt und sich durchwegs neutral verhält.**
+**Bitte keine politischen Fragen an die FIGU oder an Billy stellen. Zuschriften werden nur dann unverändert**
+**veröffentlicht, wenn keinerlei unrechtmässig diskminierende, ehrverletzende, drohende oder die Men-**
+**schenwürde erniedrigende Angriffe gegen jene Person/en erhoben werden, die namentlich in den Leser-**
+**zuschriften genannt werden.**
+
+*********************************************************************************************************
+
+
+-----
+
+##### Videobotschaft ukrainischer Kriegsgefangener zeigt, dass der Oberbefehlshaber in den Augen vieler Soldaten sein Gesicht verloren hat
+_uncut-news.ch, Juni 7, 2022_
+
+**Ein Video, das auf der Webseite von southfront.org veröffentlicht wurde, zeigt ukrainische**
+**Kriegsgefangene, die Selensky als Kriegsverbrecher beschreiben.**
+
+**Übersetzung des Videos:**
+Wladimir Selenskyj, wir appellieren an Sie. Wir sind Soldaten und Offiziere der ukrainischen Armee, die Sie
+einsetzten, um sie als Kanonenfutter sterben zu lassen. Mit Lügen haben Sie uns gezwungen ihre verbrecherischen Befehle zu befolgen und gegen unsere eigene Bevölkerung zu kämpfen (Donbas). Sie haben unser
+Heimatland mit Leichen gepflastert, Häuser niedergebrannt, Schulen, Krankenhäuser und Kirchen bombardiert. Sie haben den Ukrainern ihr friedliches Leben genommen. Sie haben uns wie Tiere ausgesetzt. Ohne
+Verpflegung, Kleidung und Kommunikation.
+
+Selenskyj wird kurz eingespielt und fragt: «Wer bin ich?»
+
+Sie erwidern:
+Sie sind ein Killer und Schlächter. Ein Plünderer und Verräter. Ein Mörder und Faschist. Für Sie gibt es keine Vergebung. Sie haben unser Land zerstört und werden sich dafür verantworten müssen.
+Nicht Russland ist unser Feind, Sie sind unser Feind.
+_Quelle: https://uncutnews.ch/videobotschaft-ukrainischer-kriegsgefangener-zeigt-dass-der-oberbefehlshaber-in-den-augen-_
+_vieler-soldaten-sein-gesicht-verloren-hat/_
+
+
+-----
+
+##### Die 13-jährige Faina aus der Ukraine:  «Eure Medien sagen nicht die Wahrheit.»
+uncut-news.ch, Juni 3, 2022
+
+Die deutsche Journalistin Alina Lipp sprach kürzlich mit dem 13-jährigen Kriegskind Faina aus der ukrainischen Stadt Luhansk. Faina wurde in Deutschland bekannt, nachdem sie einen aufschlussreichen Brief an
+die 12-jährige Ella aus Hamburg geschickt hatte, die Putin in den ARD-Nachrichten als Kindermörderin bezeichnete. Faina schrieb unter anderem, dass Russland ihr und anderen Ukrainern hilft und sie beschützt.
+Lipp fragte sie, ob sie wisse, wie die westlichen Medien über die Ereignisse im Donbass berichten. «Sagen
+sie die Wahrheit?», fragte der Journalist. «In den meisten Fällen stimmt das nicht», sagte sie.
+«Sie sagen zum Beispiel, dass der Donbas auf sich selbst geschossen hat oder dass Russland den Donbas
+angegriffen hat», erklärte Faina. Sie sagte, Luhansk befinde sich seit acht Jahren im Krieg mit der Ukraine.
+Das Mädchen musste oft im Keller Schutz suchen. Es war beängstigend, sie haben geschossen, sagte sie.
+Warum tötet die ukrainische Armee Zivilisten? «Wahrscheinlich, weil sie schlechte Menschen sind.»
+Faina sagte auch, dass das Asow-Bataillon ihr einen Brief geschrieben habe, in dem sie ihr vor den Augen
+ihrer ganzen Familie den Tod wünschten. Sie war darüber sehr schockiert. «Wie kann man so etwas schreiben?»
+Obwohl sie erst 13 Jahre alt ist, hat Faina bereits mehrere Bücher und Sammlungen geschrieben. In einem
+ihrer Bücher schreibt sie über die Zukunft von Donezk, in einem anderen darüber, wie sie den Krieg erlebt
+hat. Ihr neuestes Buch handelt von einer Welt ohne Krieg und Krankheit.
+Auf die Frage, was sie von Putins militärischer Sonderaktion halte, antwortete sie: «Das war leider notwendig. Die Russen helfen.»
+Übrigens plant Faina, noch viele weitere Bücher zu schreiben. Ihr nächstes Buch wird wahrscheinlich über
+den Kosmos handeln.
+Worüber genau? «Das ist ein Geheimnis.»
+_QUELLE: NEUES AUS RUSSLAND_
+_Quelle: https://uncutnews.ch/die-13-jaehrige-faina-aus-der-ukraine-eure-medien-sagen-nicht-die-wahrheit/_
+
+##### «Selensky ist ein Kriegsverbrecher» –  Tribunal zu Gräueltaten des ukrainischen Nationalismus
+_de.rt.com Di, 31 Mai 2022 08:14 UTC_
+
+Wenige wissen, dass es bereits ein Tribunal gibt, das sich mit der Aufdeckung der Verbrechen des ukrainischen Nationalismus beschäftigt. RT sprach mit dessen Gründer, dem russischen Politikwissenschaftler
+und Menschenrechtler Maxim Grigorjew.
+
+
+-----
+
+_Wladimir Selensky© AFP Fabrice Koffrini_
+
+Im Westen als Held gefeiert: Wladimir Selensky spricht per Video-Schalte beim Weltwirtschaftsforum in
+Davos am 23. Mai
+Der Absolvent der Moskauer Diplomatenakademie, Politikwissenschaftler und Buchautor Maxim Grigorjew
+leitet seit 2008 die Stiftung zur Erforschung von Demokratieproblemen. Ausserdem ist er Mitglied der
+Gesellschaftskammer der Russischen Föderation. Seit dem Maidan-Putsch im Jahr 2014 sammelt der 46Jährige Daten über Verbrechen des ukrainischen Nationalismus im Donbas. Im Jahr 2016 veröffentlichte
+er das Buch ‹Gewöhnlicher Faschismus: Kriegsverbrechen der ukrainischen Sicherheitskräfte (2014–
+2016)›.
+In Anlehnung an den berühmten Dokumentarfilm ‹Gewöhnlicher Faschismus› (1965) des sowjetischen
+Filmregisseurs Michail Romm hat Grigorjew auf mehr als 400 Seiten Hunderte Fälle von Tötungen, Folter,
+Misshandlungen und Zerstörungen ziviler Infrastruktur und sonstige Menschenrechtsverletzungen dokumentiert. Im Jahr 2020 schrieb er als Co-Autor ein weiteres Buch zum gleichen Thema mit dem Titel ‹Ukrainische Kriegsverbrechen und Menschenrechte› (Auszüge in deutscher Sprache hat vor Kurzem das Internet-Magazin Rubikon veröffentlicht).
+
+Grigorjew steht in Kontakt mit internationalen Gremien wie der OSZE, dem UN-Menschenrechtsrat sowie
+dem Europäischen Gerichtshof für Menschenrechte. Diese Aktivitäten bleiben natürlich von der ukrainischen Seite nicht unbemerkt. So warf ihm am 22. März das englischsprachige Portal neweuropeans.net
+Ukrainophobie und Verbreitung von Propaganda und Fake News vor.
+Seit Beginn der russischen Militäroperation zur Entmilitarisierung und Entnazifizierung der Ukraine und
+zum Schutz des Donbas reiste Grigorjew wieder ins Kriegsgebiet und setzte seine Arbeit als Datensammler
+fort. Die Zwischenergebnisse stellt er auf seinem Telegram-Kanal ins Netz.
+Maxim Grigorjew spricht mit einem Augenzeugen in Mariupol
+Am 11. März riefen Maxim Grigorjew und andere gesellschaftlichen Aktivisten das sogenannte ‹Internationale Gesellschaftliche Tribunal für die Ukraine› ins Leben, dessen Vorsitzender er auch wurde. RT DE sprach
+mit dem Menschenrechtler über die Arbeit des Gremiums.
+**RT: Vertreter welcher Länder beteiligen sich an der Arbeit des Internationalen Gesellschaftlichen Tribunals**
+(IGT)? Handelt es sich dabei um Privatpersonen oder um Mitglieder zum Beispiel einer Menschenrechtsorganisation?
+**Maxim Grigorjew: «Es gibt verschiedene Leute, es gibt sowohl private Personen als auch Leute, die Mitglied**
+in einer Menschenrechtsorganisation sind. Sie kommen aus verschiedenen Ländern und ihre Zahl wächst.
+Es gibt Bürger aus den USA und europäischen Ländern – Frankreich, Deutschland, Belgien, Polen und einer
+Reihe weiterer sowie GUS-Länder. Das ist der Kreis ehrlicher Menschen, die bereit sind darüber zu sprechen, was passiert. Es sind ziemlich viele.»
+**RT: Die Täter werden offenbar nach russischem Recht verurteilt. Wie verhält sich das IGT zum russischen**
+Recht?
+**Maxim Grigorjew: «Möglicherweise werden manche Gerichtsverfahren auf dem Territorium der Donezker**
+und Luhansker Volksrepubliken (DVR und LVR) stattfinden. Ich bin mir ziemlich sicher, dass früher oder
+später das Volk der Ukraine – der Gebiete, die zu verschiedenen Zeiten Teil der Ukraine waren – seinerzeit
+eigene Bewertungen über die verbrecherischen Handlungen derjenigen gibt, die für die Kriegsverbrechen
+verantwortlich sind und dem Kiewer Regime selbst. Was unsere Kooperation mit den Justizsystemen in
+verschiedenen Ländern angeht, man geht davon aus, dass die Mitglieder des Tribunals die Materialien, die
+wir alle bekommen, an ihre nationalen Justizorgane weiterleiten. Wir zum Beispiel übergeben unsere Materialien an das Ermittlungskomitee und die Generalstaatsanwaltschaft der Russischen Föderation.»
+_Quelle:_ _https://de.sott.net/article/35519-Selenskij-ist-ein-Kriegsverbrecher-Tribunal-zu-Graueltaten-des-ukrainischen-_
+_Nationalismus_
+
+
+-----
+
+##### Medienlügen befeuern falsche Ukraine-Erzählung
+_uncut-news.ch, Juni 3, 2022_
+
+Die Vorstellung, dass die Ukraine und Selensky ‹den Krieg gewinnen› werden, ist eine absolute Fantasie. Sie
+ist extrem wahnhaft. Und doch sind so viele im Westen darauf konditioniert worden, das wirklich zu glauben.
+Wenn Sie Ihre Berichte und Informationen aus den Mainstream-Medien eines NATO-Landes beziehen, dann
+tut es mir leid für Sie. Verstehen Sie, dass Ihre externalisierte Realität in Bezug auf diesen Krieg nichts anderes als ein Beweis für die Macht der westlichen Propaganda ist. Wir verfügen über eine hochmoderne
+Konsens-Realitätsmaschine, die Goebbels den Kopf verdrehen würde und die Stalins Prawda wie ein Nickelodeon aussehen lässt.
+Viel näher an der Wahrheit ist dies: Die Ukraine verliert nicht nur, sondern sie bereitet sich auf einen historischen Umsturz vor. Wenn die Tageszeitungen des russischen Verteidigungsministeriums auch nur teilweise
+wahr sind (die meisten davon werden auch durch visuelle Beweise untermauert), dann könnten die Verluste
+der ukrainischen Streitkräfte im Kampf bei der derzeitigen Zahl von 200–300 pro Tag sehr bald die Verluste
+der US-Soldaten in Vietnam erreichen. In nur 6 Monaten. Wohlgemerkt, die USA haben zehn Jahre gebraucht, um 56’000 Soldaten in einem fruchtlosen Zermürbungskrieg zu verlieren.
+Es wird jeden Tag deutlicher, dass die ukrainischen Streitkräfte anscheinend die Politik verfolgen, ihre Toten
+entweder nicht zu zählen oder als unerlaubt abwesend zu verbuchen, um einen Zusammenbruch der militärischen Moral (und noch mehr tatsächliche Deserteure) und die unvermeidlichen internationalen und innenpolitischen Auswirkungen zu vermeiden, wenn sie bekannt geben müssen, dass sie 20’000 oder 30’000
+tote Soldaten haben, von denen viele unausgebildetes, unzureichend ausgerüstetes Frontfutter waren, das
+von einem verzweifelten Selensky-Regime zur Wehrpflicht gezwungen wurde, das seinen neuen Geldgebern
+in Washington und Brüssel gefallen wollte. Was glauben Sie, was mit der Unterstützung der USA, des Vereinigten Königreichs und der EU für Selensky und seine Nazi-Brigaden geschehen würde, wenn ihre wahren
+Zahlen jede Woche öffentlich bekannt gegeben würden? Und wie lange würden die Ukrainer den Stellvertreterkrieg der NATO unterstützen? Überhaupt nicht lange. Er wäre gestern schon vorbei.
+Wie der Schauspieler Selensky verkaufen auch unsere Regierungen der Öffentlichkeit eine verpackte Fantasie. Die Unterstützung für einen aussichtslosen Krieg würde im Handumdrehen enden, wenn der wahre
+Stand der Dinge im Westen zur allgemein anerkannten Realität würde.
+Wenn die Kämpfe schliesslich aufhören, werden die klügsten Männer im Raum vielleicht die schätzungsweise 5000+ ukrainischen Soldaten sein, die sich bereits den russischen und DVR-Kräften ergeben haben.
+Glücklich werden sich diejenigen schätzen, die dem selbstmörderischen Debakel ihrer westlichen Marionette entkommen sind.
+Die wahrscheinlichen Zahlen, die wir hier sehen, sind einfach beispiellos in den jüngsten modernen Konflikten, und jeder einzelne Datenpunkt widerlegt jede phantasievolle, postmodernistische Projektion, die von
+unseren korrupten, selbstreferentiellen westlichen Mainstream-Medien und nachplappernden Politikern
+ausgeht, die sich jetzt ganz klar von ihren eigenen Propagandaeingeweiden ernähren. Das ist mehr als
+ekelhaft. Entschuldigen Sie, dass ich hier so unverblümt bin, aber dies entwickelt sich schnell zur grössten
+Propagandablase in der Geschichte des westlichen militärischen Abenteurertums.
+Und das will schon etwas heissen.
+Und erwarten Sie kein ‹mea culpa› von der Schar der Scharlatane, die die Aussen- und ‹Verteidigungs›Politik der USA, Grossbritanniens, Hammel-Europas und des Rests der rückständigen NATO-Staaten
+bestimmen. Sie werden einfach noch einen draufsetzen und weiterhin jeden angreifen, der ihrer fanatischen
+Parteilinie widerspricht, weil sie glauben, dass die Unterdrückung der freien Meinungsäusserung und der
+Debatte irgendwie dazu beitragen wird, dass ihre Propagandablase nicht noch schneller platzt, als sie es
+ohnehin schon tut.
+Sicher, es ist eine Übung in Vergeblichkeit, aber eine, die wir leider von der Legion inkompetenter globalistischer Bürokraten und Technokraten mit einer Erfolgsbilanz wiederholter Misserfolge erwarten, deren einzi
+
+-----
+
+ge wirkliche Leistung darin besteht, Billionen öffentlicher Gelder für die systematische Zerstörung anderer
+Länder zu verpulvern, immer unter dem Vorwand eines erfundenen moralischen Gebots. Übrigens ist die
+Ukraine, abgesehen davon, dass sie die korrupteste Gesellschaft und Regierung in der westlichen Welt ist,
+in ihrem jetzigen Zustand viel, viel weiter davon entfernt, eine unabhängige, souveräne und freie ‹Demokratie› zu sein, als es Russland ist.
+Je länger die Genies der NATO und unsere Medien ihren Stellvertreterkrieg der Zermürbung weiter anheizen, desto mehr Territorium wird Kiew verlieren. Und was auch immer sie verlieren, sie werden es nie wieder zurückbekommen. Und zwar aus dem einfachen Grund, dass die Menschen in diesen Regionen nicht
+in einem wild korrupten, westlich kontrollierten, von Nazis beherrschten, sektiererischen Irrenhaus eines
+gescheiterten Staates, alias Ukraine, leben wollen.
+Wenn Sie also das nächste Mal jemanden sagen hören: «Ich stehe zur Ukraine», halten Sie ihn einfach an
+und fragen Sie ihn:
+«Wo würdest du die Grenze ziehen, wie viele tote ukrainische Soldaten soll es noch geben, bis wir aufhören?
+Wie viel Territorium muss Kiew noch verlieren, bevor wir sagen, dass es genug ist?»
+Und lassen Sie ihn nicht eher gehen, als bis er Ihnen eine schlüssige Antwort gibt.
+_QUELLE: MEDIA LIES FUEL PHONY UKRAINE NARRATIVE_
+_ÜBERSETZUNG: ANTIKRIEG_
+_Quelle: https://uncutnews.ch/medienluegen-befeuern-falsche-ukraine-erzaehlung/_
+
+_Ein Artikel von: Jens Berger; 30. Mai 2022 um 13:25_
+
+Wer sich immer noch irgendwelche Illusionen über den Charakter der Grünen macht, muss sich nur die
+Meldungen der letzten Woche anschauen. Zunächst verteidigte Robert Habeck in Davos die Sanktionen gegen russische Getreideexporte, selbst wenn dies eine Hungerkrise und einen Verlust von 100’000 Menschenleben bedeuten würde. Dann verkündete Annalena Baerbock Durchhalteparolen und beklagte die
+‹wachsende Kriegsmüdigkeit› im Westen. Und last but not least schoss Toni Hofreiter mal wieder scharf –
+diesmal gegen China. ‹Wir› sollten – so ‹Haubitzen-Toni› – ‹viel enger mit den USA zusammenarbeiten› und
+unser ‹Wirtschaftsmodell hinterfragen›. Es gibt keine Partei, die konflikt- und kriegsgeiler ist als die Grünen.
+Wer sie jetzt noch wählt, ist kein Mitläufer, sondern ein Mittäter. Von Jens Berger.
+Zwischen 576’000 und 1,5 Millionen Todesopfer – das war der berühmt-berüchtigte ‹Preis›, den die von
+den USA durchgesetzten Sanktionen gegen den Irak in den 1990ern gekostet haben. Als die jüngst verstorbene US-Aussenministerin und damals für die Sanktionen mitverantwortliche UN-Botschafterin der USA,
+Madeline Albright, 1997 gefragt wurde, ob der gewaltsame Regime-Change im Irak diesen Preis wert sei,
+antwortete sie knapp: «Wir denken, der Preis war es wert.» Als Albright vor wenigen Wochen verstarb, kondolierte auch die deutsche Aussenministerin Baerbock mit den Worten, auch sie «stehe heute auf ihren [also
+Albrights] Schultern».
+
+
+-----
+
+_Quelle: Annalena Baerbock auf Twitter_
+
+Nun könnte man über ‹Zwerge auf den Schultern von Riesen› scherzen, doch es ist klar, dass dies kein weiterer intellektueller Ausrutscher von Baerbock war. Sie meint das genauso, wie sie es gesagt hat. Wenn es
+um die Durchsetzung der US-Interessen geht, zählen für die modernen Grünen Menschenleben nicht viel.
+Das machte auch Bundeswirtschaftsminister und Vize-Kanzler Robert Habeck auf dem Weltwirtschaftsforum in Davos klar. Kein anderer Bundesminister setzt sich auf EU-Ebene so sehr für eine Verschärfung
+der Russland-Sanktionen ein und kein anderer namhafter deutscher Politiker geht so weit, dafür sogar
+einen ‹Preis› im albrightschen Sinne zu formulieren …
+«Wenn Sie sich vorstellen, dass ein Teil der Menschheit Hunger erleiden wird im Laufe des Jahres oder des
+nächsten Jahres, dann ist das natürlich auch eine Frage, wenn wirklich ein Teil der Bevölkerung wirklich
+den Hungertod stirbt, (…) und deswegen ist es wirklich auch undenkbar, dass wir sagen, okay, 100’000
+Menschenleben sind vielleicht verloren, aber wir gehen jetzt auf Russland einfach zu und heben Sanktionen
+auf, so wie die das auch verlangen, damit die Exporte von Weizen dann wieder beginnen können.»
+– Robert Habeck (im eingebetteten Video ab Minute 2:40)
+Zur Bewertung dieses Zitats ist es wichtig, zu wissen, was ‹die› eigentlich ‹verlangen›. Russlands Präsident
+Putin hatte Deutschland und Frankreich vorgeschlagen, die russische Seeblockade der Ukraine für Getreideexporte zu öffnen, wenn die EU im Gegenzug ihre Sanktionen für russische Getreide- und DüngemittelExporte öffnet. Ginge es Habeck um Menschenleben und die Vermeidung von Hungerkatastrophen, müsste
+er diesen Vorschlag, ohne mit der Wimper zu zucken, annehmen. Doch das Gegenteil ist der Fall. Offenbar
+sind ‹100’000 Menschenleben› ein Preis, den die Grünen zu bezahlen bereit sind, um die US-Interessen in
+der Ukraine und Russland durchzudrücken.
+Ganz in Madeline Albrights Sinn dürfte auch das Agieren ihrer Verehrerin Annalena Baerbock sein. Deren
+grösste Sorge scheint es zurzeit zu sein, dass im Westen die ‹Kriegsmüdigkeit› um sich greift. Dies hänge –
+so Baerbock – wohl damit zusammen, dass der ‹russische Angriffskrieg zu höheren Preisen bei Energie und
+Nahrungsmitteln führe›.
+
+_Screenshot taz de_
+
+
+-----
+
+Dies ist übrigens eine sehr interessante Manipulationsmethode, die schon zu ‹Corona-Zeiten› Karriere gemacht hat. Es war schliesslich nicht das Virus, sondern es waren die politisch gewollten Massnahmen zur
+Eindämmung des Virus, die massive ‹Kollateralschäden› verursachten. Dennoch hiess es stets, ‹Corona›
+führe zu Arbeitslosigkeit, schlechten Wirtschaftskennzahlen, Depressionen usw. Dabei hätte es korrekt heissen müssen, die ‹Corona-Massnahmen› führen zu … Da diese Sprachregelung so erfolgreich war, wird sie
+nun in Sachen Ukraine-Krieg kopiert. Dabei ist es auch hier nicht der Krieg, sondern es sind die politisch
+gewollten Sanktionen, die unter anderem zu höheren Preisen führen. Würde Deutschland keine oder aber
+gezielte Sanktionen verhängen, würden schliesslich auch keine Preise steigen. Dass die massiven Nebenwirkungen der Sanktionen zu Kritik und Widerstand führen, ist gut. Dies als ‹Kriegsmüdigkeit› zu bezeichnen,
+zeigt, wessen Geistes Kind die Aussenministerin ist. Der Begriff ‹Kriegsmüdigkeit› wird schliesslich in der
+Regel in dem Kontext verwendet, dass man einen Krieg immer kritischer sieht, den das eigene Land führt.
+Baerbock ist also der Meinung, Deutschland stünde im Krieg mit Russland? Das würde zumindest ihre auch
+ansonsten dummen Äusserungen zum Thema erklären.
+Nun ist es aber nicht nur das ehemalige Spitzenduo Baerbock/Habeck, das sich vor lauter Kriegsgeilheit
+gar nicht mehr einkriegt. Und es soll an dieser Stelle auch nicht um die ohnehin für progressive Standpunkte verlorenen Bellizisten rund um Ralf Fücks und Marieluise Beck samt ihrer Denkhaubitzen-Fabrik
+Libmod gehen. Nein, selbst ehemals dem ‹linken Flügel› (welch schöner Anachronismus) angehörende
+Grüne wie Toni Hofreiter haben sich in den letzten Monaten zu lupenreinen Falken gemausert. Sprach der
+Verkehrsexperte Hofreiter früher gerne über Umwelt-, Verkehrs- und Agrarpolitik, rasselt er nun mühelos
+die kryptischen Bezeichnungen sämtlicher Waffengattungen herunter und geriert sich in Interviews und
+Talkshows als olivgrüner Sesselgeneral; das geht so weit, dass echte ehemalige Bundeswehrgeneräle den
+Kriegsdienstverweigerer massregeln müssen und seine Standpunkte als ‹verrückt› bezeichnen. Wo sind wir
+hingekommen, wenn Militärs zur Mässigung mahnen und ‹linke› Kriegsdienstverweigerer mit kriegsgeiler
+Rhetorik zum Waffengang blasen wollen?
+
+_Quelle: ZDF_
+
+Aber es ist ja nicht nur Russland, das es dem Hofreiter Toni angetan hat. In der letzten Woche keilte er erst
+einmal im SPIEGEL-Interview in schlimmster US-Vasallen-Rhetorik gegen China aus. Es sei ja jetzt, so
+Hofreiter, «für alle offensichtlich, dass sich nicht nur Russland, sondern auch China zur Diktatur entwickelt
+
+[habe]». Daher müsse Deutschland ‹sein Wirtschaftsmodell hinterfragen›. Der deutsche Wohlstand fusse
+laut Hofreiter darauf, dass «wir in der einen Diktatur, in Russland, billige Rohstoffe einkaufen, dann hier
+Produkte herstellen – um sie dann der anderen Diktatur, China, zu verkaufen». Und das ‹müsse aufhören›,
+so der Grünen-Politiker. Das würde zwar einen hohen Preis – da ist er wieder, der ‹Preis› – fordern, aber es
+sei noch nicht zu spät. Deutschland solle dafür ‹viel enger mit den USA zusammenarbeiten›.
+Hat ‹Haubitzen-Toni› den Verstand verloren? Was geht eigentlich in seinem Kopf so vor sich? Denkt er, er
+müsse – wie sein Parteifreund Cem Özdemir – sich nun prostituieren und den Hardcore-Ami-Versteher
+machen, um auch mal ein Ministeramt zu bekommen? Oder hat er mit den Grünen innerlich schon abgeschlossen und schielt als erster Ungedienter auf das Amt des NATO-Generalsekretärs?
+Die Grünen haben ihren langen Weg von einer pazifistischen Partei zur Kriegstreiber-Partei Nummer Eins
+abgeschlossen. Wer sich die Äusserungen der grünen Spitzenpolitiker anhört, kann zu keinem anderen
+Schluss kommen. Die Transformation von der kleinen, lieben, grünen Raupe ‹Nimmerkrieg› in einen borstigen olivgrünen Panzer-Käfer ist nicht mehr reversibel. Das sollte allerspätestens jetzt allen aktiven und potentiellen Grünen-Wählern klar sein. Wer grün wählt, wählt Krieg und ist kein Mitläufer, sondern ein Mittäter.
+_Titelbild: © SPIEGEL/ Das Bild war Cover des SPIEGEL18/2022_
+_Quelle: https://www.nachdenkseiten.de/?p=84345_
+
+
+-----
+
+##### Wie viele rote Linien können noch überschritten werden, bevor es zum Armageddon kommt?
+_uncut-news.ch, Juni 6, 2022_
+
+Von Paul Craig Roberts: Er ist ein US-amerikanischer Ökonom und Publizist. Er war stellvertretender Finanzminister während der Regierung Reagan und ist als Mitbegründer des wirtschaftspolitischen Programms
+der Regierung Reagans bekannt.
+Die Organisation für Sicherheit und Zusammenarbeit in Europa veröffentlichte am 15. April 2016, also vor
+mehr als sechs Jahren, einen Bericht über die Folterung von Russen im Donbas durch ukrainische Militärund Polizeikräfte. Der Bericht dokumentiert entsetzliche Folterungen, die aus Rassenhass gegen Russen
+durchgeführt wurden. Sie können den Bericht hier lesen:
+
+Nur wenige Westler, die so schlecht ausgebildet sind, wissen, dass die Westukraine im Zweiten Weltkrieg
+für Nazi-Deutschland gekämpft hat. Als Washington 2014 die ukrainische Regierung stürzte, setzte
+Washington eine Nazi-Regierung ein. Die Nazi-Regierung in der Ukraine beschoss die russischen Bewohner
+der beiden abtrünnigen Donbas-Republiken acht Jahre lang, während Washington und die NATO eine ukrainische Armee ausbildeten und ausrüsteten, um die abtrünnigen Republiken zurückzuerobern.
+Die Region Donbas, die schon immer zu Russland gehörte, wurde von der sowjetischen Regierung aus administrativen oder anderen Gründen der ukrainischen Provinz der Sowjetunion zugeschlagen, ebenso wie
+die Krim in den 1950er Jahren von Chruschtschow. Als die USA die ukrainische Regierung stürzten und
+eine antirussische Regierung einsetzten, spalteten sich die Bewohner der Krim und des Donbas, die Russen
+sind, ab und stimmten mit überwältigender Mehrheit für die Wiedervereinigung mit Russland. Der Kreml
+akzeptierte die Krim, machte aber den strategischen Fehler, den Donbas abzulehnen, was dazu führte, dass
+die Russen im Donbas acht Jahre lang ermordet und gefoltert wurden, bevor der Kreml durch die russische
+Öffentlichkeit und das Auftauchen einer 150’000 Mann starken, von den Amerikanern ausgebildeten ukrainischen Armee und von Nazi-Milizen an der Grenze zum Donbas zum Eingreifen gezwungen wurde. Es sind
+diese Armee und die Nazi-Milizen, die die russische Armee in den letzten Monaten im Donbas vernichtet
+hat. Die Berichte der westlichen Medien über die ukrainischen Siege zeigen das völlige Fehlen von Integrität
+und Respekt vor der Wahrheit, das den westlichen Journalismus verdammt.
+Die extreme Folterung der russischen Bewohner des Donbas wurde von drei US-Präsidenten, allen europäischen Staaten und der Gesamtheit der westlichen Hurenmedien, einer Ansammlung von verachtenswertem Abschaum, unterstützt.
+Anstatt die Wahrheit zu berichten, verbreiteten die westlichen Abschaum-Medien Fake News über Vergewaltigungen und Plünderungen durch russische Soldaten, die disziplinierteste Armee der Welt. Die Ukrainer,
+oder vielleicht auch die CIA, haben gefälschte Gefechtsszenen gefilmt, in denen angeblich russische Truppen gezeigt werden, die vor dem Kampf fliehen. Das Filmen ist so schlampig, dass die Anweisungen des
+Regisseurs für die Inszenierung mitgeliefert werden und die Filmcrew selbst gefilmt wird, was darauf hindeutet, dass es sich um eine Filmproduktion handelt und die Situation nicht gefährlich ist.
+So schrecklich es auch ist, dass der ‹freie Westen› die Folterung von Russen durch Ukrainer billigt und
+diplomatisch unterstützt, während die verabscheuungswürdigen westlichen Medien dies vertuschen, so verblasst dieser Schrecken doch im Vergleich zu der aussergewöhnlichen Entscheidung des Idioten im Weissen Haus, der Ukraine Raketen in die Hand zu geben, die Ziele auf der Krim, dem traditionellen Sitz des
+russischen Marinestützpunkts im Schwarzen Meer, treffen können.
+Washington hat erklärt, dass es die Raketen nicht betreiben wird und sich auf die Zusicherung der Ukraine
+verlässt, dass sie nicht für Angriffe auf russisches Territorium eingesetzt werden. Doch die Ukraine betrach
+
+-----
+
+tet die Krim nicht als russisches Territorium. Ebenso wenig wie Washingtons ‹Weltgemeinschaft›. Die ‹Weltgemeinschaft› erkennt das Votum der Krim für eine Wiedervereinigung mit Russland nicht an. Für den
+Westen ist die Krim offiziell ein Teil der Ukraine. Die Ukraine kann also Bidens Raketen benutzen, um den
+russischen Marinestützpunkt auf der Krim anzugreifen.
+Wie Eric Zuesse, ein ungewöhnlicher Linker, der im Allgemeinen die Wahrheit respektiert, soweit er sie
+sehen kann, was die Linke selten tut, feststellt, haben der Biden-Idiot und seine neokonservativen Kontrolleure die Entscheidung, ob es ein Armageddon geben wird, an Selensky, einen mit den Nazis verbündeten
+Juden, übergeben.
+Hier ist Zuesse, der für sich selbst spricht: Die Ukraine will mit US-Waffen in Russland eindringen.
+
+Um diese Angelegenheit zu verstehen, müssen zunächst einige grundlegende Hintergründe dargelegt werden, und zwar folgende (der Rest dieses Absatzes): Die ukrainische Regierung hat immer wieder versprochen, die Krim zurückzuerobern, die von 1783 bis 1954 zu Russland gehörte, als der sowjetische Staatschef
+Chruschtschow sie an die Ukraine abtrat, und die sich dann 2014 von der Ukraine löste, um sich wieder
+Russland anzuschliessen. Russland hat dort seine Souveränität wiederhergestellt, nachdem sich die Wähler
+2014 in einem Referendum auf der Krim zu über 90% für Russland ausgesprochen hatten. Das ist der
+Hintergrund.
+Am 1. Juni kündigte das Weisse Haus an, der Ukraine Waffen zu liefern, die für eine Invasion Russlands
+verwendet werden könnten. Jonathan Finer, stellvertretender nationaler Sicherheitsberater des Weissen
+Hauses, sagte, Washington habe die Ukraine um Zusicherungen gebeten, dass die Raketen nicht innerhalb
+Russlands einschlagen würden. Am 3. Juni lehnte die ukrainische Regierung diese Bitte ab.
+Als Biden diese Ankündigung am 1. Juni machte, schrieb Reuters: «Biden kündigte den Plan an, der Ukraine
+HIMARS-Präzisionsraketensysteme zu liefern, nachdem er von Kiew die Zusicherung erhalten hatte, dass
+sie diese nicht zum Beschuss von Zielen auf russischem Territorium einsetzen würde.»
+Entweder lügt die US-Regierung, oder die ukrainische Regierung lügt in dieser Angelegenheit. Wenn die
+Ukraine Biden ‹Zusicherungen› gegeben hat, dass diese Waffen nicht für eine Invasion Russlands eingesetzt
+werden, dann beweist die Ankündigung der Ukraine vom 3. Juni, dass die Ukraine gelogen hat, als sie diese
+‹Zusicherungen› gab.
+Wenn die Ukraine Biden keine solchen ‹Zusicherungen› gegeben hat, dann hat Biden gelogen.
+Wenn die Ukraine am 3. Juni gelogen hat, um zu sagen, dass sie Bidens Forderung nicht nachkommen
+wird, dann war das eine Lüge der Ukraine.
+Hier ist die Art und Weise, wie der russische Nachrichtensender RT News am 3. Juni über die Ablehnung
+der Bitte Bidens durch die Ukraine berichtete (unter der Annahme, dass Biden eine solche Bitte geäussert
+und nicht gelogen hat):
+«Ukraine weist ihr Versprechen an die USA zurück»
+Kiew könnte die Krim angreifen, sagt ein ukrainischer Berater des Präsidenten, trotz der Zusicherung, dass
+US-Waffen nicht gegen russisches Territorium eingesetzt würden.
+Die Ukraine werde von den USA gelieferte Raketensysteme einsetzen, um russisches Territorium
+anzugreifen, falls sie solche Angriffe für notwendig halte, sagte der ukrainische Präsidentenberater Alexej
+Arestowitsch am Donnerstag. …
+«Die Krim gehört uns. Sie gehört zur Ukraine. Und sie [Russland] wissen das.» …
+Arestowitschs Kommentar kommt, obwohl US-Aussenminister Antony Blinken am Mittwoch sagte, Kiew
+habe Washington ‹Zusicherungen› gegeben, dass es keine amerikanischen Raketen einsetzen werde, um
+Ziele in Russland anzugreifen. …
+Arestowitschs Aussage spiegelt die Behauptung eines anderen ukrainischen Politikers wider. Egor Chernev,
+ein ukrainischer Abgeordneter, sagte am Mittwoch, dass russische Flugzeuge und Militär, die auf russischem Territorium stationiert sind, ‹legitime Ziele› seien.
+Wenn die Ukraine US-Waffen einsetzt, um in Russland einzumarschieren, dann sind die USA nach geltendem Völkerrecht an dieser Invasion beteiligt. Russland hätte gute Argumente, dass (angesichts der hier dokumentierten Fakten) diese Beteiligung entweder vorsätzlich oder fahrlässig wäre. Sie wäre von amerikanischer Seite nicht unbeabsichtigt gewesen. Russland würde dann zumindest Amerika fragen, ob diese Beteiligung vorsätzlich oder fahrlässig war. Wenn Amerika sagt ‹fahrlässig›, dann würde Russland fragen, was
+Amerika tun wird, um diese Angelegenheit zu berichtigen. Wenn Amerika stattdessen ‹vorsätzlich› sagt,
+dann wird es von diesem Moment an einen heissen Krieg zwischen Russland und Amerika geben. Der Verlierer eines jeden heissen Krieges zwischen Russland und Amerika wird den Konflikt zu einem Atomkrieg
+ausweiten, um nicht von der anderen Seite besiegt zu werden. Das wäre nicht nur ein dritter Weltkrieg,
+sondern ein nuklearer dritter Weltkrieg, der alle Verbündeten beider Seiten vernichten und selbst neutrale
+Länder schwer verseuchen würde und weltweit in einem nuklearen Winter enden würde, der möglicherweise
+alles Leben, wie es auf diesem Planeten existiert hat, beenden würde.
+Kommentar von Roberts:
+
+
+-----
+
+Ich habe von Anfang an gesagt, dass der Kreml reaktiv ist, nicht proaktiv, und nur langsam reaktiv. Das hat
+zur Folge, dass die roten Linien des Kremls für den Westen keine Bedeutung haben. Selbst unter extremem
+Druck erlaubte sich der Kreml nur eine begrenzte militärische Intervention in der Ostukraine, wo die Bewohner ethnisch russisch sind. Den Neokonservativen, die die westliche Aussenpolitik kontrollieren, erscheint
+dies als Unentschlossenheit, also macht der Westen weiter. Eine rote Linie nach der anderen wird überschritten, und der Kreml unternimmt nichts. Es hat ACHT JAHRE gedauert, bis der Kreml auf das Abschlachten der Russen im Donbas reagiert hat, und zwar erst, nachdem der Westen die Sicherheitsbedenken des
+Kremls verlacht und einfach abgetan hat. Russlands aussenpolitisches Verhalten zeugt von Unentschlossenheit, und das lädt zu weiteren Provokationen ein. Der Kreml zeigt, dass er nicht in der Lage ist, das Dilemma
+zu begreifen, das er sich selbst schafft.
+Gehen wir davon aus, dass die jahrelange Unterwerfung des Kremls unter den Westen unter Jelzin und das
+jahrelange Zögern des Kremls unter Putin den Westen davon überzeugt haben, dass in Russland keine
+Stärke liegt und Washington mit der Wolfowitz-Doktrin der Hegemonie Washingtons weitermachen kann?
+Vielleicht ist dies eine sichere Vermutung. Immerhin hat Washington drei Jahrzehnte lang im Kreml geduldet, dass von Washington finanzierte NRO, Medien und subversive Organisationen in Russland operieren
+und die Jugend und die Unzufriedenen korrumpieren. Elemente dieser Art sind sogar in der russischen
+Regierung vertreten.
+Im Westen ist das russische Militär eine Lachnummer. Die Medien berichten, dass die russischen Streitkräfte demnächst von demokratischen Ukrainern mit amerikanischen Waffen aufgerieben werden sollen. Die
+Unwirklichkeit dieses Hirngespinstes bedeutet, dass weitere rote Linien überschritten werden.
+Werden die atlantischen Integrationisten Putin absetzen? Wird Russland einen neuen Führer einsetzen, der
+sich bei der Ukraine entschuldigen und Reparationen zahlen wird?
+Wenn nicht, was wird dann passieren, wenn die an die Ukraine gelieferten US-Raketen Ziele auf der Krim
+treffen?
+Putins Menschlichkeit, seine Duldung von Provokationen und seine Zurückhaltung bei der Anwendung von
+Gewalt haben den Westen ermutigt, mehr Druck auszuüben. Früher oder später wird eine rote Linie überschritten werden, von der es kein Zurück mehr gibt.
+Diese Erklärungen der russischen Führung zeigen, dass der idiotische Westen die tödliche rote Linie überschritten hat:
+«Der Westen versteht die extreme Gefahr nicht, die von seiner Aufrüstung der Ukraine ausgeht.»
+Das idiotische Biden-Regime und die wahnsinnigen Neokonservativen haben die Welt auf den Weg zum
+Armageddon gebracht.
+In einem Fernsehinterview mit ‹Al Jazeera Television› sagte Dmitri Medwedew, stellvertretender Vorsitzender des russischen Sicherheitsrates: «Dies ist keine Vorhersage, sondern das, was bereits im Spiel ist. Die
+Reiter der Apokalypse galoppieren voraus, und wir können nur auf Gott schauen.»
+Im russischen Fernsehen wird ständig darüber diskutiert, dass der Konflikt in der Ukraine in Wirklichkeit
+ein Stellvertreterkrieg zwischen den Vereinigten Staaten und Russland ist.
+In der staatlichen Fernsehsendung ‹60 Minuten› verkündete die Moderatorin Olga Skabeeva: «Ich habe eine
+unangenehme Nachricht: … Obwohl wir die Waffen, die [an die Ukraine] geliefert werden, methodisch zerstören, zwingen uns die Mengen, in denen die Vereinigten Staaten sie schicken, zu einigen globalen Schlussfolgerungen. Vielleicht ist es an der Zeit, anzuerkennen, dass Russlands Sondereinsatz in der Ukraine vielleicht zu einem Ende gekommen ist, in dem Sinne, dass ein echter Krieg begonnen hat: DER DRITTE WELTKRIEG. Wir sind gezwungen, die Entmilitarisierung nicht nur der Ukraine, sondern des gesamten NATOBündnisses durchzuführen.»
+Wladimir Awatkow von der Diplomatischen Akademie des Aussenministeriums sagte: «Sie haben den Dritten Weltkrieg erwähnt und die Art und Weise, wie die Amerikaner und Polen auf dem Territorium der Ukraine agieren – wir müssen uns an die Worte von Wladimir Wladimirowitsch Putin erinnern, der sagte, dass
+jeder, der versucht, sich in die spezielle Militäroperation einzumischen, einen hohen Preis zahlen wird.»
+Skabeeva unterbrach: «Wir vergessen diese Worte von Wladimir Wladimirowitsch Putin nie, aber eine grosse
+Zahl von Menschen steht bereits Schlange und versucht, sich in die russische Sonderoperation auf dem
+Gebiet der Ukraine einzumischen. Es hat sich herausgestellt, dass wir handeln müssen – aber wir müssen
+noch herausfinden, wie wir handeln können, ohne einen Atomschlag durchzuführen.»
+Erst neulich hat ein prominenter russischer Politiker offen davon gesprochen, beide Küsten der Vereinigten
+Staaten mit Sarmat-Interkontinentalraketen zu zerstören…
+Der Politiker, Alexie Schurawlew, wurde in der Talkshow von seinem Parlamentskollegen und Sprachrohr
+des russischen Staates, Jewgeni Popow, dem Moderator des Senders Rossija 1, unterstützt.
+Der Gesetzgeber behauptete, dass zwei russische Sarmat-Raketen die gesamte amerikanische Ostküste
+zerstören könnten, bevor er hinzufügte, dass auch für die Westküste nur ‹zwei Raketen› nötig wären.
+«Vier Raketen und es wird nichts mehr übrig sein.»
+_QUELLE: HOW MANY MORE RED LINES CAN BE CROSSED BEFORE ARMAGEDDON ARRIVES?_
+
+
+-----
+
+_Quelle:_ _https://uncutnews.ch/wie-viele-rote-linien-koennen-noch-ueberschritten-werden-bevor-es-zum-armageddon-_
+_kommt/_
+
+##### Ein isländischer Journalist besuchte ukrainische Armeestützpunkte und fand Folgendes vor:  «Die Heuchelei des Westens ist schockierend.»
+_uncut-news.ch, Juni 2, 2022_
+
+Der isländische Journalist Haukur Hauksson besuchte befreite Gebiete im Donbas in der Ukraine. Er hat
+mit eigenen Augen gesehen, was dort passiert ist.
+Hauksson besuchte unter anderem Donezk, Debaltseve, Wolnowacha und Luhansk. Nach dem vom Westen
+organisierten Putsch im Jahr 2014 habe die ukrainische Armee begonnen, Terror zu verbreiten, so der
+Journalist. Vor allem die russischsprachigen Ukrainer im Osten des Landes hatten zu leiden, weshalb sie
+die Militäroperation unterstützten.
+Der isländische Journalist ist froh über die Ankunft der russischen Armee. In einem Gespräch mit RIA FAN
+sagte er, die Menschen seien der Plünderungen und der Arroganz überdrüssig. «In der Ukraine gibt es viele
+Nazis, die das russische Volk hassen. Die Menschen hoffen, dass der Terror im Donbas ein Ende hat. Die
+Heuchelei des Westens ist schockierend.»
+
+_Foto: Haukur Hauksson (Haukur Hauksson)_
+
+In mehreren ukrainischen Militärstützpunkten stiess Hauksson auf Nazi-Fahnen, Nazi-Literatur, Hakenkreuze sowie Alkohol und Drogen. Die Soldaten behandelten die lokale Bevölkerung sehr schlecht. Sie beschlagnahmten Häuser und warfen die Menschen hinaus. Hauksson besuchte eines dieser Häuser.
+Der Journalist sagte, die westlichen Medien verbreiteten falsche Informationen über die russischen Truppen
+in der Ukraine. Am Sonntagabend erklärte der russische Aussenminister Sergej Lawrow in einem Interview
+mit dem französischen Fernsehsender TF1, dass die Befreiung der Donbas-Region im Rahmen der militärischen Sonderoperation unbedingte Priorität habe.
+Lawrow sagte, er gehe davon aus, dass auch viele andere Regionen nicht bereit seien, zur Autorität der
+ukrainischen Regierung in Kiew zurückzukehren, die er als ein Regime von Neonazis bezeichnete.
+_QUELLE: ГЛАВА_ _МИД_ _ИТАЛИИ_ _ДИ_ _МАЙО: ПОСЛА_ _РОССИИ_ _УВЕДОМИЛИ_ _О_ _ВЫСЫЛКЕ 30 ДИПЛОМАТОВ_
+_Quelle:_ _https://uncutnews.ch/ein-islaendischer-journalist-besuchte-ukrainische-armeestuetzpunkte-und-fand-folgendes-_
+_vor-die-heuchelei-des-westens-ist-schockierend/_
+
+##### Strack-Zimmermann im hippen Wallfahrtsort Kiew
+_8. Juni 2022 Peter A. Weber Fäuleton, Hintergrund_
+
+Vorsichtshalber deklariere ich diesen Beitrag mal als Satire, obwohl er kaum Übertreibungen enthält. Als
+Aufhänger bietet sich Marie-Agnes Strack-Zimmermann von der FDP geradezu an. Die schützende Betonfrisur, die jeden Helm überflüssig macht, hat sie offenbar von Flintenuschi übernommen. Wenn es um das
+Thema Krieg und Waffen geht gibt es natürlich selbstverständlich keine Parteigrenzen mehr da treffen
+
+
+-----
+
+sich einfach alle in derselben Lobby. Der Strack-Zimmermann hat sich Christoph Sieber in einem ernsthaften kabarettistischen Beitrag angenommen und sie nach allen Regeln der Kunst gut aussehen lassen.
+
+_Marie-Agnes Strack-Zimmermann_
+
+Die (auf-)rüstige Oma, mit Haaren auf den Zähnen, hat sich zur Promoterin der Rüstungsindustrie und
+Kriegstreiber gemausert. Unter waffenstarrenden Freunden auch als Schnur-Stracks-Zimmermann bekannt. Sie liefert ihnen als des Teufels Grossmutter verbalen Feuerschutz. Dazu versprüht sie ihr Gift in
+allen Medien, die ihr auch noch servil den roten Teppich ausrollen. Wenn man nach einer lupenreinen Lobbyistin sucht, dann ist sie es. Die personifizierte Panzerhaubitze hat es faustdick hinter den Ohren. Sie ist
+eine Propagandistin folgender ehrenwerter Friedensorgansisationen:
+Vorsitzende des Verteidigungsausschusses des Bundestages.
+Präsidiumsmitglied der deutschen Gesellschaft für Wehrtechnik und nimmt in dieser Position Einfluss auf
+die entsprechenden Gesetzesvorhaben.
+Präsidiumsmitglied im Förderkreis der des deutschen Heeres (Lobbyverein der deutschen Rüstungsindustrie).
+Vorstandsmitglied der deutschen Atlantischen Gesellschaft.
+Beiratsmitglied der Bundesakademie für Sicherheitspolitik.
+Wenn das nicht mal ausnahmslos honorige Positionen sind, für die sich die engagierte Powerfrau aufopfert.
+Selbstverständlich hat diese Zusammenarbeit keinerlei Einfluss auf ihre politische Arbeit sowie die daraus
+resultierenden Entscheidungen.
+
+**Wallfahrtsort der Friedenstifter Kiew**
+
+Habt ihr nicht auch das Gefühl, dass Kiew sich mittlerweile zu einem wahrhaftigen Wallfahrtsort der Friedensstifter entwickelt hat, dem die Pilger der frommen Bomben-Gesinnung ihre Referenz erweisen? Die 50
+weissen US-Sterne leuchten und weisen den Weg, damit niemand stolpern kann. Gemeint sind die heiligen
+NATO-Könige, die jedoch nicht wie ihre Altvorderen mit Weihrauch, und Myrrhe aufwarten. Sie haben kostbarere Geschenke im Gepäck: Panzer, Artillerie, Raketen und satte Kriegsknete. Also alles was es heutzutage
+so braucht um den Weltfrieden in Szene zu setzen.
+
+
+-----
+
+Diese milden Gaben sind für das orthodox-jüdische Christkind Selensky bestimmt, womit die frommen Ankömmlinge ihm huldigen. Wir leben tatsächlich in einer Zeitenwende, wenn der neue Jesus Selensky heisst,
+dem alle die Füsse küssen. Was schert uns da noch der antiquierte Friedensengel, der seinerzeit verlauten
+liess:
+Selig sind die Friedfertigen; denn sie werden Gottes Kinder heissen. (Matthäus 5:9)
+
+_Quelle: https://qpress.de/2022/06/08/strack-zimmermann-im-hippen-wallfahrtsort-kiew/_
+
+_3. Juni 2022 um 8:34; Ein Artikel von Marcus Klöckner; Titelbild: Screenshot ZDF_
+
+Die Sendung Markus Lanz vom 2. Juni muss man gesehen haben. Sie zeigt, was passiert, wenn ein Moderator die Kontrolle verliert und in einer Sendung sich berufen fühlt, zum Krieg zu blasen. Inhaltlich ging es
+an diesem Abend um den Krieg in der Ukraine. Doch nach 15 Minuten stellte sich heraus: Der Moderator
+und zwei seiner Gäste eröffneten während der Diskussion gemeinsam eine eigene Front – gegen die Politikwissenschaftlerin Ulrike Guérot. Guérot vertrat in der Diskussion eine friedenspolitische Position. Das war
+offensichtlich für Lanz, die Politikerin Marie-Agnes Strack-Zimmermann und den Journalisten Frederick
+Pleitgen zu viel. Wenn sie schon nicht den Krieg in der Ukraine gewinnen können, sollte wohl wenigstens
+ihr Krieg gegen eine Stimme des Friedens gewonnen werden. Lanz und Co zeigten, wie es aussieht, wenn
+ideologische Verblendung und gespaltene Zungen auf klaren Verstand und Analysefähigkeit treffen. _Ein_
+_Kommentar von Marcus Klöckner._
+Von deutschen Medien ist man seit geraumer Zeit einiges gewöhnt, was das Schüren von Kriegsstimmung
+angeht, aber die Lanz-Sendung vom Mittwochabend zeigte etwas Neues.
+Wie sieht der Versuch aus, mit viel ideologischer Verblendung, fehlendem Sachverstand, Doppelmoral und
+einer Politik der gespaltenen Zunge eine Stimme des Friedens mundtot zu machen? Markus Lanz, die FDPPolitikerin Marie-Agnes Strack-Zimmermann und der CNN-Journalist Frederick Pleitgen haben diesen Versuch durchgeführt – mit grossem Engagement. Gescheitert sind sie dennoch. Sie wollten, der Eindruck ist
+entstanden, die Politikwissenschaftlerin Ulrike Guérot gemeinsam vorführen. Wieder und wieder attackierten sie Guérot die im Hinblick auf den Ukraine Krieg einen sofortigen Waffenstillstand und Verhandlungen
+
+
+-----
+
+fordert. Der Versuch ist misslungen. Als Zuschauer merkt man, wenn ein Gast auf ungerechtfertigte Weise
+in die Mangel genommen wird. Wenn drei auf einen einschlagen, dann empfinden allenfalls sehr ‹spezielle›
+Charaktere Sympathie für die Prügelnden.
+
+Während Guérot ein ums andere Mal versuchte, ihre Position darzulegen, nämlich dass der Krieg nur am
+Verhandlungstisch zu einem Ende kommen könnte, setzen Lanz und seine Mitstreiter anstelle von Argumenten auf Empörung, Moralisierung, Emotionalisierung und eine verzerrte Realität. Insbesondere StrackZimmermann hat sich dabei als Spezialistin erwiesen. Die FDP-Politikerin, die als Verfechterin von Waffenlieferungen an die Ukraine bekannt ist, verglich allen Ernstes den Krieg in der Ukraine mit einem Überfallopfer in einem Park, das zur Polizei gehe und doch dort selbstverständlich auf Hilfe hoffen dürfe. Dass eine
+Politikerin, die immerhin den Verteidigungsausschuss leitet, mit einem derart realitätsverzerrenden Vergleich versucht, in der Diskussion zu ‹punkten›, ist bezeichnend für die ‹Qualität› der Sendung. Während
+der Überfall im Park sowohl strafrechtlich und moralisch leicht zu erfassen ist, geht es bei dem Krieg in der
+Ukraine um hochkomplexe politische und tiefenpolitische Zusammenhänge, bei denen nicht nur eine Tat
+vorliegt und nur eine Person betroffen ist. Es geht um eine Verkettung von Entscheidungen von zahlreichen
+involvierten (Kriegs-)Parteien, die dazu führen, dass jeden Tag hunderte von Soldaten an der Front sterben
+und ein ganzes Land kriegstraumatisiert ist – ganz zu schweigen von den sekundären Auswirkungen, die
+sich im Hinblick auf eine völlig aus dem Ruder laufende Sanktionspolitik ergeben. In Strack-Zimmermanns
+unterkomplexem Vergleich ist kein Platz für die Tiefenpolitik der USA, für einen Stellvertreterkrieg und die
+Implikationen, die sich daraus für eine Unterstützung der Ukraine ergeben. Sie redet, bewusst Emotionen
+schürend, von ‹Massenvergewaltigungen› und getöteten Ukrainern, ganz so, als sei ihre Kriegspolitik nicht
+mitverantwortlich für die Schrecken des Krieges.
+
+Guérot hingegen spricht das aus, was Lanz förmlich das Erstaunen ins Gesicht meisselt. Die Professorin
+der Universität Bonn fragt ihrer Disziplin als Politikwissenschaftlerin alle Ehre bereitend: «Über welchen
+Krieg sprechen wir denn eigentlich?» Lanz fragt daraufhin völlig verdutzt: «Gibt es denn mehrere Kriege?»
+Und muss sich dann eine Lehrstunde in kritischer Politikwissenschaft erteilen lassen: Es gibt einen ‹ukrainischen Bürgerkrieg›, einen ‹russischen Angriffskrieg›, einen ‹Stellvertreterkrieg der NATO› und einen ‹Informationskrieg›“. Und dann sagt Guérot auch noch: «Der Schlüssel zu diesem Konflikt liegt bei Amerika.» All
+das und noch viel mehr war jener Fraktion, die unbedingt mit Waffen Frieden in der Ukraine schaffen will,
+zu viel.
+
+Guérot sollte nicht mehr ihre Gedanken ausbreiten dürfen. Das ging gar so weit, als Guérot – wohl auch unter dem Druck – ein falsches Datum benannte, Lanz in ihre Ausführungen reingrätschte und immer wieder
+das richtige Datum nannte, ganz so, als ob das irgendetwas zur Sache beitragen würde.
+So wie Lanz vermochte es auch Pleitgen nicht, seinem Beruf als Journalist gerecht zu werden und mit jener
+kritischen Distanzierung in die Diskussion einzusteigen, die für einen Journalisten eine Selbstverständlichkeit sein sollte. Seine Sprache war verräterisch. Immer wieder sprach er aus Sicht der NATO bzw. der Ukraine und gebrauchte die erste Person Plural. «12 Raketen können wir dann schiessen», so Pleitgen im Hinblick auf Langstreckenartilleriesysteme, die die Ukraine erhalten sollte. Bei dieser Sprache ist zu konstatieren: Das klingt verdächtig nach einem Journalisten, der selbst zur Kriegspartei wird.
+Wenn Parteilichkeit dann auch noch auf Unwissenheit trifft, wird es besonders schlimm. Gegen Ende der
+Sendung zeichnete Lanz wieder das Bild von Putin, der als Bock in dem Krieg alleine stösst und sagte zu
+Guérot:
+«In die Ukraine geht ja kein anderer rein ausser Putin.» Davon, dass die CIA seit Jahren in der Ukraine operiert, also in die Ukraine ‹reingegangen› ist, hat Lanz wohl noch nichts gehört.
+Bereits nach 25 Minuten sagte Lanz zu Guérot bei einer Stimmung, die völlig aufgeladen war: «Frau Guérot,
+bevor das hier völlig entgleitet …» Lanz ist an dieser Stelle zu sagen: Die Sendung ist völlig entglitten. Lanz,
+Pleitgen und Strack-Zimmermann standen am Ende nackt da. Von daher noch ein Wort an Lanz: «Herr
+Lanz, bevor Ihnen das nächste Mal die Sendung völlig entgleitet, üben Sie noch mal, wie ein Journalist
+kritische Distanz aufbaut und vor allem informieren Sie sich umfassend und nicht mit einem Blickschutz.
+Und wenn Sie dann noch eine faire Gästebesetzung hinbekommen…, vielleicht wird es ja dann etwas mit
+einem Stück Qualitätsfernsehen und einem ausdifferenzierten Sinn für Frieden.»
+
+Ulrike Guérot ist Gast des 33. Pleisweiler Gesprächs am 10. Juli.
+
+Anmerkung Jens Berger: Wie kaum anders zu erwarten, wird die Sendung auch auf Twitter heiss debattiert.
+Während die ‹üblichen Verdächtigen›, also Hauptstadtjournalisten und User mit den Ukraine-Flaggen – die
+offenbar die Regenbogen-Flaggen und die Spritzen nun abgelöst haben – ihren zu erwartenden Shitstorm
+gegen Ulrike Guérot zwitschern, gibt es bei neutralen Nutzern erstaunlich viel Unterstützung für Guérot.
+
+
+-----
+
+_Marcus Klöckner twittert unter: twitter.com/KlocknerMarcus_
+_Quelle: https://www.nachdenkseiten.de/?p=84493_
+
+##### US-General Stephen Twitty:  «Die Verluste der AFU könnten 200’000 Soldaten erreichen»
+_uncut-news.ch, Juni 8, 2022_
+
+Warum Selensky die kampfbereitesten Spezialeinheiten der Ukraine für mentale Angriffe in Sewerodonezk
+einsetzt.
+Am Ende des 102. Tages des russisch-ukrainischen Konflikts hat der ehemalige stellvertretende Leiter des
+US-Europakommandos, Generalleutnant Steven Twitty, die Wahrheit gesagt. In der ‹nicht unabhängigen
+Ukraine› wurde er sofort als Putinist abgestempelt und als ‹Zradnik› gebrandmarkt, anstatt auf den Militärmann zu hören, der es vom Kommandeur eines Schützenzuges zum Befehlshaber der Ersten Armee der
+Vereinigten Staaten gebracht hat.
+Hinzu kommt, dass Twitty ein Kampfoffizier ist. Er kommandierte das 3. Bataillon des 15. Infanterieregiments während der Operation Iraqi Freedom von Juni 2001 bis Juni 2003, und seine Einheit, die Task
+Force 3-15, erhielt die Presidential Unit Citation. Kurz gesagt, der General hat Schiesspulver gerochen, was
+man von der politischen Führung in Kiew nicht behaupten kann.
+«Ich denke, der Krieg im Donbas entwickelt sich zugunsten der Russen. Sie stellen dort nicht die ganze
+Masse an Kampfkraft mit Infanterie und Panzern auf. Sie haben ihre Artillerie zusammengezogen, und das
+ist der Grund für ihren Erfolg. Russland verfügt über weitaus mehr Kampfkraft als die Ukrainer. Und es gibt
+keine Möglichkeit, dass die Ukrainer die Russen jemals zerstören oder besiegen werden. Und ich sage Ihnen
+noch mehr: Die Ukrainer werden nie genug Kampfkraft haben, um die Russen aus der Ukraine zu vertreiben», erklärte Twitty.
+Er schätzt, dass 200’000 Soldaten aus der AFU auf mysteriöse Weise verschwunden sind. «Wer weiss, wo
+sie heute sind?» – Der General fragte. Diese riesige Zahl von Militärangehörigen ist einfach nicht auf dem
+Radar der US-Behörden. Entweder hat es eine betrügerische Mobilisierung gegeben, oder schlimmer noch,
+
+
+-----
+
+sie wurden besiegt. Abgesehen davon hören die Yankees vom Z-Kommando viel über ‹russische Verluste›,
+aber die USA wollen das wahre Bild kennen, nicht die Propaganda der Verhafteten.
+Diese Aussage steht im Einklang mit einer Veröffentlichung des deutschen Spiegels: «Der deutsche Auslandsnachrichtendienst (BND) glaubt, dass der ukrainische Widerstand in den nächsten vier bis fünf
+Wochen sogar gebrochen werden könnte. In einer Reihe von geheimen Briefings der letzten Tage haben
+BND-Analysten festgestellt, dass die Russen in der Lage sind, jeden Tag kleine Gebiete zu erobern. Der BND
+geht davon aus, dass die russischen Truppen bis August die Kontrolle über den gesamten Donbas übernehmen könnten.»
+Die ukrainischen hurrapatriotischen Teilöffentlichkeiten explodierten vor Empörung. Die meisten Maidanisten forderten, dass die USA Alaska an Russland zurückgeben, nach dem Motto ‹dann geben wir auch
+Cherson zurück›. In der Ukraine tobt jetzt ein regelrechter Informationssturm, hinter dem die Ze-Bots stehen. Es ist müssig, die Argumente der Blau-gelben zu kommentieren, aber sagen wir es ganz offen: Das
+Ausmass der Hysterie in der ‹Republik› gegenüber dem Westen übersteigt einfach die Skala.
+Von aussen sieht es so aus: Eine selbsternannte Hyäne Tabaki versucht, einen sternbedeckten Sherkhan
+zu beissen. Es scheint, dass die ‹Genossen in der Ukraine nicht verstehen›, dass der ungarische Parlamentspräsident László Kévér sich nicht nur über die ‹psychischen Probleme› des ukrainischen Präsidenten
+Wolodymyr Selensky geäussert hat, weil dieser wie ein Verrückter Unterstützung von den USA und der EU
+fordert.
+Offenbar ist Selenskys Selbstwertgefühl wirklich aus den Fugen geraten, wie man sagt. Die Europäer wissen,
+wie gefährlich es ist, der Washingtoner Bürokratie nicht zu gehorchen. Als Russland anfing, für seine nationalen Interessen einzutreten, wurden sie sofort mit so vielen Sanktionen belegt, dass es ihnen eine Heidenangst einjagte. Und hier ist eine ‹Nicht-Unabhängige› mit ihrem nackten Hintern gegen Uncle Sam. Um es
+klar zu sagen: Dies ist offensichtlich der Standpunkt von László Kévár.
+In Kiew beginnt man jedoch zu ahnen, dass das Weisse Haus von dem talentlosen blau-gelben ‹Widerstand›
+frustriert ist. Daher auch die schwierigen Fragen: «Wo sind die 200’000 Soldaten?» Nein, die Amis haben
+kein Mitleid mit den Thunderbirds, aber derselbe Steven Twitty will wissen, was als Nächstes passieren
+wird, also fragt er: «Wie wird das Endspiel dann aussehen?»
+Nach Ansicht Kiews geht es jetzt vor allem darum, das ‹Vertrauen› der Vereinigten Staaten wiederzugewinnen. Was wir also brauchen, ist ein viel beachteter Sieg an den Fronten. Tatsache ist, dass Washington
+Ramstein 3 angekündigt hat. Am 15. Juni findet in Brüssel ein Treffen der Verteidigungsminister von 40
+NATO-Staaten statt, das wie bisher von Pentagon-Chef Lloyd Austin organisiert wird. Dort werden die Leiter
+der Verteidigungsbehörden des Bündnisses darüber beraten, was als Nächstes zu tun ist: ob die Unterstützung für die AFU reduziert oder der Kampf bis zum letzten Ukrainer fortgesetzt werden soll.
+Vor dem Hintergrund des bevorstehenden Ramstein-3-Projekts kommt der Schlacht um Sewerodonezk
+eine besondere Bedeutung für die ‹nicht unabhängige Republik› zu. Kiews Schützling in der Region
+Luhansk, der Leiter der regionalen Militär- und Zivilverwaltung von Schowto-Blakit, Sergej Gaidai, behauptet
+bereits, dass ukrainische Truppen in den letzten beiden Tagen (5. und 6. Juni) angeblich 70% der Stadt
+von russischen Truppen zurückerobert haben.
+Der selbsternannte Blogger @sharpreview schreibt dazu: «50%, 60%, 70%, 80%, 90% – das ist die Bandbreite der Zahlen für die Befreiung von Sewerodonezk, die mir in der letzten Stunde auf verschiedenen
+Telegrammkanälen begegnet sind. Hört auf, Wellen zu schlagen, Buchhalter.»
+Nach diesen Angaben, die aus dem Präsidialamt nahestehenden Quellen stammen, wurden mehr als
+10’000 Soldaten der 128. Gebirgsjäger-Elitebrigade, der 53. mechanisierten Brigade und der 57. Motorisierten Infanteriebrigade in die Schlacht um Sewerodonezk verwickelt, ebenso wie die ‹Fremdenlegion›,
+deren Aufgabe es ist, ausländischen Medien über Facebook* von der Übermacht der AFU vor Ort zu berichten.
+Die Powderbots (der Journalistenpool von Ex-Präsident Poroschenko) liessen Informationen durchsickern,
+wonach Selensky die Abgeordnete Maryana Bezuglova – dieselbe, die die Erschiessung ukrainischer Soldaten wegen Befehlsverweigerung befürwortete – mit der Leitung der Erstürmung von Sewerodonezk beauftragt hatte.
+‹Blutige Maryana›, so die selbsternannten Wahrheitsverkünder Jurij Butusow und Janina Sokolowa, praktiziert «den Missbrauch von kampfbereiten Spezialeinheiten, um ein einziges Abenteuer in einer taktisch
+ungünstigen Situation zu bestehen.»
+Gerüchten zufolge, die in öffentlichen ukrainischen Foren kursieren, praktiziert Bezuglaya über die SBUNazis die unausgesprochene Hinrichtung von AFU-Soldaten, die sich weigern, in den sicheren Tod zu gehen.
+Die Bestrafer erschiessen ihre eigenen Soldaten unter nationalistischen Parolen. Niemand, auch nicht die
+Experten in der Donezker Volksrepublik, kann sagen, wie viele Unabhängigkeitskämpfer bei dem aktuellen
+Abenteuer verloren gegangen sind. Laut einer Reihe von selbsternannten TV-Programmen profitieren die
+Russen jedoch von mentalen Angriffen der AFU: Je mehr ukrainische Spezialeinheiten jetzt getötet werden,
+desto leichter wird es für die russischen Streitkräfte, später anzugreifen.
+
+
+-----
+
+Unterdessen erklärte der ausserordentliche und bevollmächtigte Botschafter der LNR in der Russischen
+Föderation, Rodion Miroshnik: «Sewerodonezk wird fast vollständig von unseren Truppen kontrolliert. In
+der Industriezone von Azot gibt es separate DRGs [Sabotage- und Aufklärungsgruppen]. In den Aussenbezirken von Lyssytschansk kommt es zu Kampfhandlungen. Gestern wurde eine Reihe von Orten angegriffen,
+an denen sich militärisches Gerät der [AFU] konzentrierte. Die gute Nachricht ist, dass die Stützpunkte der
+ukrainischen Militanten in Pryvolye (Pryvolnyanska-Mine) praktisch eliminiert wurden. Daher wird die Intensität des Beschusses ab heute geringer ausfallen.
+Selensky stellt seine Soldaten einfach nur unverblümt in den Schatten, um einen Informationssieg zu erringen, was natürlich Fragen bei den US-Verantwortlichen aufwirft. Früher oder später wird die tatsächliche
+Zahl der Verluste der AFU an die Öffentlichkeit gelangen, was sich schon jetzt äusserst negativ auf das
+Image der Vereinigten Staaten und der amerikanischen Waffen auswirken wird.
+
+- _Meta Platforms Inc. ist ein amerikanischer multinationaler Konzern, dem Facebook, Instagram, WhatsApp und Oculus_
+_gehören und der durch ein Gerichtsurteil als extremistisch eingestuft wurde. Die sozialen Netzwerke Facebook und Instagram_
+_sind von Roskomnadzor gesperrt._
+_QUELLE: КОМАНДАРМ_ _США_ _СТИВЕН_ _ТВИТТИ: «ПОТЕРИ_ _ВСУ_ _МОГУТ_ _СОСТАВИТЬ 200 ТЫСЯЧ_ _СОЛДАТ»_
+_ÜBERSETZUNG: LZ_
+_Quelle: https://uncutnews.ch/us-general-stephen-twitty-die-verluste-der-afu-koennten-200-000-soldaten-erreichen/_
+
+##### Kissinger hat recht
+_uncut-news.ch, Juni 7, 2022_
+
+Wissen Sie, warum Henry Kissingers Rede auf dem Weltwirtschaftsforum so viel Aufsehen erregt hat?
+Kissinger kritisierte nicht die Art und Weise, wie der Krieg in der Ukraine geführt wird, oder den Mangel an
+Fortschritten vor Ort. Nein. Was Kissinger kritisierte, war die Politik an sich, und das war es, was den Feuersturm auslöste. Er schüttete einen Eimer kaltes Wasser auf die Leute, die diese verrückte Politik ausgeheckt
+hatten, indem er ihnen ins Gesicht sagte, dass sie es ‹falsch verstanden› hätten.
+Und sie haben sich geirrt, denn die Politik, die sie derzeit verfolgen, schadet den Verbündeten und den
+Interessen der USA. Das ist der Massstab, den wir verwenden, um festzustellen, ob eine bestimmte Politik
+dumm ist oder nicht, und leider besteht sie den ‹Dummheitstest› mit Bravour.
+Lassen Sie mich das erklären: Unsere grundlegende Strategie besteht darin, Russland zu ‹schwächen› und
+zu ‹isolieren›, indem wir Russlands wirtschaftliche Beziehungen zu Europa kappen und es in einen langen
+und kostspieligen Sumpf in der Ukraine treiben. Das ist der Plan.
+Nun könnte man meinen, dass dies ziemlich vernünftig klingt, aber – laut Kissinger – ist es der falsche Plan.
+Warum?
+Weil die Nationale Sicherheitsstrategie der USA China als Amerikas Rivalen Nummer eins identifiziert (was
+es zweifellos ist), so dass natürlich jede Politik, die China stärker macht, den strategischen Interessen der
+USA zuwiderläuft.
+Ist das klar? Die Frage ist also: Macht unser Stellvertreter-Krieg in der Ukraine China stärker?
+Und die Antwort lautet: Natürlich tut er das. Er macht China viel stärker, weil er Russland zwingt, die Beziehungen zu China zu stärken.
+Was bedeutet das in der Praxis?
+Es bedeutet, dass sich die Beziehungen zwischen der grössten Produktionsmacht der Welt (China) und
+dem zweitgrössten Kohlenwasserstoffproduzenten der Welt (Russland) aufgrund des kontraproduktiven
+Krieges Washingtons in der Ukraine gerade um ein Vielfaches verbessert haben. Das ist die Bedeutung dieses Ereignisses. Es bedeutet auch, dass sich – in dem Masse, wie sich die Beziehungen zwischen den beiden
+
+
+-----
+
+Ländern verbessern – der Niedergang des US-Imperiums beschleunigen wird, da sich die Nicht-Dollar-Zone
+ausdehnt und der bilaterale Handel allmählich das derzeit von den USA dominierte globale Handelssystem
+ersetzt.
+Diese Entwicklung ist bereits zu beobachten. Der Krieg in der Ukraine hat einen schockierenden Zusammenbruch des Welthandels, erhebliche Unterbrechungen wichtiger Versorgungslinien, beispiellose Lebensmittel- und Energieknappheit und die grösste Neuaufteilung der Welt seit dem Zusammenbruch der Sowjetunion ausgelöst. Washington hat beschlossen, seine Zukunft und die Zukunft des amerikanischen Volkes
+auf ein sinnloses geopolitisches Spiel zu setzen, das sich als die grösste strategische Katastrophe in der
+Geschichte der USA erweisen könnte.
+Kissinger ist sich des Ernstes der Lage bewusst, weshalb er sich entschlossen hat, seinen Senf dazuzugeben.
+Aber er kritisierte nicht nur die Politik, sondern sprach auch eine unheilvolle Warnung aus, die von den
+Medien fast vollständig ignoriert wurde. Hier ist, was er sagte:
+«Die Verhandlungen müssen in den nächsten zwei Monaten beginnen, bevor es zu Verwerfungen und Spannungen kommt, die nicht leicht zu überwinden sind. Idealerweise sollte die Trennlinie die Rückkehr zum
+Status quo ante sein (…) Die Fortsetzung des Krieges über diesen Punkt hinaus würde nicht die Freiheit
+der Ukraine, sondern einen neuen Krieg gegen Russland selbst bedeuten.»
+Hier steht es schwarz auf weiss, aber teilen wir es in zwei Teile auf, um ein besseres Gefühl für das zu bekommen, was er sagt:
+Die Politik ist falsch
+Die Politik muss sofort geändert werden, oder der Schaden für die USA und ihre Verbündeten wird schwerwiegend und dauerhaft sein. («Die Verhandlungen müssen in den nächsten zwei Monaten beginnen.»)
+Das mag für einige zu apokalyptisch klingen, aber ich denke, Kissinger hat hier etwas auf dem Kasten.
+Sehen Sie sich doch einmal die massiven Veränderungen an, die die Welt seit Beginn des Konflikts bereits
+erlebt hat: Die Unterbrechung der Versorgungswege, die Nahrungsmittel- und Energieknappheit und die
+Rückabwicklung des Globalisierungsprojekts. Ziemlich grosse Veränderungen, würde ich sagen, aber sie
+sind wahrscheinlich nur die Spitze des Eisbergs. Der wirkliche Schmerz liegt noch vor uns.
+Wie wird dieser Winter aussehen, wenn die Heizkosten für Privathaushalte durch die Decke gehen, die Industrie in ganz Europa den höheren Energiekosten erliegt, die Arbeitslosigkeit auf das Niveau der Grossen Depression ansteigt und Stromausfälle zum Alltag im Westen werden? Das ist die Zukunft Europas und Amerikas, wenn die Politik nicht umgekehrt wird und nicht schnell eine Verhandlungslösung gefunden wird.
+Putin hat bereits erklärt, dass Russland sich nicht wieder in eine wirtschaftliche Abhängigkeit von Europa
+begeben wird. Diese Zeiten sind vorbei. Stattdessen lenkt er die kritischen Energieströme nach China, Indien
+und darüber hinaus um. Europa ist kein vorrangiger Kunde mehr, es hat sich sogar zu einer Bedrohung für
+Russlands Überleben entwickelt, was bedeutet, dass Russland seine Produktion weiter nach Osten verlagern
+wird.
+Wie wird sich das auf Europa auswirken?
+Das ist ganz einfach. Europa wird mehr für seine Energie bezahlen als jedes andere Land der Welt. Das ist
+die Entscheidung, die sie getroffen haben, als sie Russlands legitime Sicherheitsforderungen abgewiesen
+haben, und mit diesem Ergebnis werden sie leben müssen.
+Sie müssen also Folgendes wissen:
+Im Jahr 2021 lieferte Russland 40% des gesamten in der EU verbrauchten Erdgases.
+Im Jahr 2021 lieferte Russland über 25% des in der EU verbrauchten Erdöls.
+Wenn Sie glauben, dass diese Mengen an Kohlenwasserstoffen durch Produzenten in Nigeria, Iran, SaudiArabien oder an einem anderen weit entfernten Ort ersetzt werden können, irren Sie sich gewaltig. Europa
+steuert kopfüber in die grösste Energiekrise seiner Geschichte, und es kann sich nur selbst die Schuld geben. Hier mehr dazu aus einem Artikel bei RT:
+«Die derzeitige Energiekrise könnte eine der schlimmsten und längsten in der Geschichte sein, und die
+europäischen Länder könnten besonders hart getroffen werden, sagte der Leiter der Internationalen Energieagentur, Fatih Birol, am Dienstag. In einem Interview mit dem deutschen Magazin Der Spiegel sagte
+Birol, dass die Auswirkungen der Ereignisse in der Ukraine die aktuelle Energiekrise wahrscheinlich schlimmer machen werden als die Krisen der 1970er Jahre.
+Damals ging es nur um Öl. Jetzt haben wir gleichzeitig eine Öl-, eine Gas- und eine Stromkrise», sagte Birol
+dem Magazin und fügte hinzu, dass Russland vor den aktuellen Ereignissen in der Ukraine «ein Eckpfeiler
+des globalen Energiesystems war: Der grösste Ölexporteur der Welt, der grösste Gasexporteur der Welt, ein
+führender Kohlelieferant.»
+Als Teil ihrer Sanktionen gegen die Ukraine hat die EU Beschränkungen für russische fossile Brennstoffe
+eingeführt und sich verpflichtet, diese schrittweise auslaufen zu lassen. Birol warnte, dass Länder in Europa,
+die stärker von russischem Gas abhängig sind, vor einem ‹schwierigen Winter› stehen, da ‹Gas möglicherweise rationiert werden muss›, auch in Deutschland. Seine Äusserungen erfolgten, nachdem der staatliche
+russische Gasversorger Gazprom die Lieferungen an einige Energieunternehmen in Deutschland, Dänemark den Niederlanden und anderen Ländern unterbrochen hatte nachdem diese den Brennstoff nicht
+
+
+-----
+
+gemäss den neuen Anforderungen in Rubel bezahlt hatten.» (‹Brennstoffrationierung könnte auf Europa
+zukommen – IEA›, RT)
+Ich vermute also, dass es besser ist, im Dunkeln zu erfrieren, als darauf zu bestehen, dass die Ukraine neutral bleibt und aufhört, ethnische Russen im Osten zu töten? Ist das das ‹Prinzip›, das Europa verteidigt?
+Wenn ja, dann ist das eine schlechte Wahl.
+Hier noch etwas zum Nachdenken: Wussten Sie, dass nicht alle ‹Ölmischungen› gleich sind?
+Warum ist das wichtig?
+Weil Deutschland derzeit 34% seines Öls aus Russland einführt. Und bei dem russischen Öl handelt es sich
+um eine bewährte, hochwertige Ural-Mischung, die in riesigen Mengen über die Druschba-Pipeline an
+deutsche Raffinerien geliefert wird, die für die Erfüllung bestimmter Verarbeitungsanforderungen ausgelegt
+sind. Unterschiedliches Öl von verschiedenen Anbietern würde den gesamten Raffinerieprozess durcheinander bringen. Es wären erhebliche ‹Änderungen an neuen Rohstoffleitungen und -infrastrukturen, einer
+atmosphärischen Destillationsanlage, einem Vakuumdestillationssystem, einer Cat-Crack-Anlage, einer Visbreaking-Anlage, einer Alkylierungsanlage, einem katalytischen Reformer, einer Isomerisierungsanlage und
+einer Ethyl-Tertiär-Butyl-Ether (ETBE)-Anlage› erforderlich. Hinzu kommen brandneue Lagereinrichtungen
+und Umschlaganlagen für Rostocker Rohöl, die die 24x7x365 reibungslos funktionierende DruschbaPipeline ersetzen sollen.» (‹Das deutsche Raffinerieproblem›, The Saker)
+Die Ölmischungen sind also nicht alle gleich?
+Nein, nicht einmal annähernd. Darüber hinaus schätzen Branchenexperten, dass der Umbau der Raffinerie
+etwa 6 Jahre dauern würde. In der Zwischenzeit wird das deutsche Wirtschaftswachstum – das eng mit
+dem Energieverbrauch zusammenhängt – drastisch zurückgehen, Unternehmen werden geschlossen, die
+Arbeitslosigkeit wird in die Höhe schnellen und das mächtigste und produktivste Land der EU wird in die
+Knie gezwungen werden.
+Vielleicht hätte jemand in der deutschen Regierung über diese Dinge nachdenken sollen, bevor er beschloss, das russische Öl zu boykottieren?
+Der Punkt, auf den wir hinauswollen, ist einfach: Kissinger hat recht, und die Neocon-Clowns, die die gescheiterte Ukraine-Strategie ausgeheckt haben, liegen falsch, völlig falsch. Und wenn wir keine ‹Verhandlungen … in den nächsten zwei Monaten› einberufen, wie Kissinger rät, dann wird der Bruch mit Russland
+endgültig und unumkehrbar sein, und dann werden Russlands umfangreiche Energieressourcen, Bodenschätze und landwirtschaftliche Produkte für immer nach Osten in freundlichere Länder geleitet. Und das
+wird sowohl den Vereinigten Staaten von Amerika als auch ihren Verbündeten in Europa schreckliches Leid
+zufügen.
+Der einzig vernünftige Weg ist die Forderung nach einem sofortigen Waffenstillstand, damit die Friedensgespräche so schnell wie möglich beginnen können.
+_QUELLE: KISSINGER NAILS IT. FOR ONCE._
+_ÜBERSETZUNG: ANTIKRIEG_
+_Quelle: https://uncutnews.ch/kissinger-hat-recht/_
+
+##### Pressesprecherin der Russischen Föderation Maria Sacharowa –  Die Biolabore der USA sind in den US-Medien zum Thema geworden,  die Sorge bereiten!
+_uncut-news.ch, Juni 3, 2022_
+
+Das Ansehen Amerikas nach der Aufdeckung der Beteiligung des Pentagons an der Entwicklung biologischer Waffen und deren Erprobung an Menschen in Kiew ist für Washington endlich ein Thema geworden,
+das ihm Sorge bereitet. Das Weisse Haus scheint eine Informationskampagne angeordnet zu haben, die es
+amerikanischen Journalisten mit Zustimmung der ukrainischen Regierung ermöglichte, eines der Biowaffenlabors zu besuchen.
+Um zu beweisen, dass die USA nie über zivile Forschungsprojekte in der Ukraine hinausgegangen sind,
+organisierten sie einen Besuch in einem dieser Labors für CBS-Reporter, die eine Geschichte zusammenstellen mussten, die sowohl Amerika als auch die internationale Gemeinschaft beruhigen würde.
+Wie lächerlich, nicht wahr?
+Was haben sie diesen Propagandasprechern gezeigt, das es ihnen ermöglichte, allen zu versichern, dass
+die biologischen Programme des Pentagons sicher sind? Einen veralteten Sterilisator und Rambo, den
+Hund, der den Eingang zum Gebäude bewacht. Was braucht man sonst noch? Der Hund hat überlebt, also
+werden Sie alle auch überleben. Schliesslich war an diesem Hund nichts Ungewöhnliches, ihm ist kein
+zweiter Kopf gewachsen, also werden Sie es auch nicht.
+
+
+-----
+
+Wenn wir schon dabei sind, schlage ich vor, dass wir uns genauer ansehen, wie sie diesen angeblichen
+Bericht geschrieben haben. Mit militärischer Präzision läuft er genau 200 Sekunden. Darin enthalten sind:
+Eine 20-sekündige Einleitung des Moderators über ‹russische Propaganda›, die Amerika aus irgendeinem
+Grund glaubt
+weitere 20 Sekunden, in denen Amerikaner, die ‹russische Propaganda› glauben, lächerlich gemacht werden
+und weitere 5 Sekunden über ‹russische Desinformation›, wahrscheinlich um sicherzustellen, dass jeder
+die Botschaft versteht
+eine 15-Sekunden-Sequenz, die Artillerieangriffe und eine Kolonne russischer Panzer zeigt (was haben die
+in einem Bericht über die biologische Forschung der USA zu suchen?)
+10 Sekunden aus dem Interview von Sergej Lawrow
+eine 5-Sekunden-Aufnahme von der Parade auf dem Roten Platz (was hat eine russische Parade mit den
+Biowaffenprogrammen des Pentagons zu tun, zumal Moskau und Washington ziemlich weit auseinander
+liegen, wenn es um die Definition von Begriffen wie Paraden und Stolz geht?)
+30 Sekunden lang unterhält sich der Journalist mit der leitenden Forscherin des Labors, Dr. Natalia Vydaiko
+10 Sekunden sind einem geschlossenen Kühlschrank gewidmet und weitere 5 einem alten Sterilisator
+3 Sekunden werden Rambo, dem Hund, gewidmet.
+Aber kein Wort über die Beteiligung des Pentagons an diesen Programmen.
+Warum hat CBS nicht den Ausschnitt aus dem Interview mit Sergej Lawrow gezeigt, in dem er sagte, dass
+jede Beteiligung des US-Verteidigungsministeriums an der biologischen Forschung inakzeptabel ist? Das
+ist genau das, was er in dem Interview gesagt hat. Was war die Botschaft dieses Berichts? Und worüber hat
+Russland gelogen?
+Welche Art von Mythos wird in diesem Bericht entlarvt, wenn das Pentagon nicht einmal erwähnt wird?
+Übrigens waren die Englischkenntnisse von Natalia Vydaiko recht beeindruckend. Natürlich sind englische
+Sprachkenntnisse das erste, was bei einem Vorstellungsgespräch für die Einstellung von Virologen in der
+Ukraine zur Sprache kommt, und Frau Vydaiko ist nun schon eine ganze Weile in diesem Geschäft tätig. Im
+Jahr 2010 wurde sie gebeten, sich zur Eröffnung eines neuen Referenzlabors in Odessa durch die USA zu
+äussern.
+Damals scheute sie sich jedoch, etwas zu sagen, wahrscheinlich weil sie ihr Englisch noch nicht auf Vordermann gebracht hatte. Als das Pentagon jedoch 2018 eine Forschungskonferenz in Ternopol sponserte,
+nahm Frau Vydaiko daran teil und präsentierte sogar einen Bericht. Es scheint, dass ihre Sprachlehrer zu
+diesem Zeitpunkt ihre Arbeit getan hatten.
+Kurz gesagt, wenn die US-Medien jemanden brauchen, mit dem sie über biologische Sicherheit in der
+Ukraine sprechen können, ist Frau Vydaiko ihre beste Option. Ich denke, dass dies nicht das letzte Mal sein
+wird, dass Sie von uns über sie hören.
+Nach den verfügbaren Umfragen glaubt ein Viertel der Amerikaner, dass die USA in der Ukraine biologische
+Waffen entwickeln. Ich glaube, diese Zahl ist nach diesem hervorragenden Bericht auf ein Drittel gestiegen.
+Grossartige Arbeit von CBS. Machen Sie weiter so!
+_QUELLE: RUSSIAN MFA_
+_Quelle:_ _https://uncutnews.ch/pressesprecherin-der-russischen-foderation-maria-zakharova-die-biolabore-der-usa-sind-in-_
+_den-us-medien-zum-thema-geworden-die-sorge-bereiten/_
+
+
+-----
+
+##### Leserbriefe zu ‹Markus Lanz und der Krieg gegen Ulrike Guérot›
+_07. Juni 2022 um 10:59; Ein Artikel von: Redaktion_
+_(Anm.: Siehe Artikel auf Seite 14)_
+
+In diesem Beitrag kommentiert Marcus Klöckner die ZDF-Sendung „Markus Lanz“ vom 2. Juni 2022. Zu
+Gast waren u.a. die FDP-Politikerin Marie-Agnes Strack-Zimmermann, der Journalist Frederick Pleitgen und
+die Politikwissenschaftlerin Ulrike Guérot. Während Frau Guérot „ein ums andere Mal versuchte, ihre
+Position darzulegen, nämlich: dass der Krieg nur am Verhandlungstisch zu einem Ende kommen könnte,
+setzen Lanz und seine Mitstreiter anstelle von Argumenten auf Empörung, Moralisierung, Emotionalisierung
+und eine verzerrte Realität“. Bereits nach 25 Minuten sei dem Moderator die Sendung „völlig entglitten“.
+Danke für die interessanten Zuschriften. Hier eine Auswahl der Leserbriefe.
+Zusammengestellt von Christian Reimann.
+
+**1. Leserbrief**
+Liebe NDS,
+Marcus Klöckner hat die gestrige Lanz-Schau sehr gut kommentiert.
+Ich muss gestehen, dass wir keinen Fernseher haben und diese Talkshows aus gutem Grunde nicht sehen.
+Gestern schaltete ich aber den Livestream ein, weil ich Prof. Guérot hören wollte. Was dann geboten wurde,
+hat dann doch meine Vorstellungskraft gesprengt. Es war das Unterirdischste an Gesprächskultur, was man
+sich vorstellen kann. Und das im ZDF! Eine emotional aufgeladene Stimmung, bei der z.B. Haupt-Scharfmacherin Strack-Zimmermann mit der ‹klugen› Feststellung einstieg, dass im Ukraine-Krieg Menschen getötet und Kliniken zerstört würden. Prof. Guérot versuchte zu versachlichen und betonte, wie wichtig es
+gerade deshalb sei, dem ‹Abschlachten› ein Ende zu setzen. Doch wirklich zu Wort kam sie nicht. Das lag
+am Moderator. Denn er war offensichtlich selbst Teilnehmer dieses für Zuschauer unsäglich anstrengenden
+‹Gesprächs›. Herr Lanz ging ein Bündnis ein mit der FDP-Verteidigungs- und Kriegsexpertin und dem selbsterklärten Ukraine-Experten Pleitgen. Sie plärrten unisono gegen die geladene Bonner Politikwissenschaftlerin, die gar nicht dazu kam, einen sachlichen Beitrag zu formulieren, geschweige denn einmal die Historie
+des Konflikts, die verflochtenen Kriege und einen möglichen Ausweg aufzuzeigen. Der Moderator fragte sie
+zwar, sie setzte auch zur Antwort an und schon fuhr er ihr wieder über die Lippen, mit Vorwürfen und
+Unterstellungen.
+Diese ‹Meinungsschau› hat gezeigt, wie geistig verarmt die Öffentlich-Rechtlichen mittlerweile Fernsehen
+machen. Eine sachliche Auseinandersetzung ist nicht mehr gewünscht, sie wird sogar ganz gezielt verhindert. Denn in diesen Talkshows sitzen so oft dieselben besonders aktiven ‹Kriegstreiber›, die mit immer
+gleichen Wortbeiträgen zu Waffenlieferungen aufrufen, bis zum Sieg über Russland. Was für ein Wahnsinn!
+Diese Talkshows haben mit dem Programmauftrag der Öffentlich-Rechtlichen nur noch wenig zu tun. Sie
+verhindern ja ganz klar eine freie Meinungsbildung. Sie lenken die öffentliche Meinung, z.B. durch die Besetzung. 4:1 bei Lanz für die Pro-Krieger. Und in der Sendung bei M. Illner war das Verhältnis nicht wesentlich
+anders. Dort argumentierte Prof. Varwick mit dem Alleinstellungsmerkmal einer vom Kriegskurs der Regierung abweichenden Meinung.
+Ich plädiere nicht nur für Abschaffung dieses kostenintensiven Sendeformats, sondern mittlerweile für eine
+radikale Kürzung der Rundfunkgebühren. 200 Euro pro Haushalt für Verblendung und Manipulation. Nie
+und nimmer.
+Wenn ein hochbezahlter Moderator zum Stammtisch-Geplärr lädt, sollte das in Zukunft auch so benannt
+werden. ‹Mit LANZen hauen im Zweiten› Oder besser: ‹Herr Lanz stellt an den Pranger›. Aber ich muss gestehen: Im Grunde genommen bin ich immer noch sprachlos…
+Dr. Anja Titze
+
+**2. Leserbrief**
+Sehr geehrter Herr Klöckner,
+vielen Dank für ihren Artikel zu Markus Lanz und seine unerträgliche Art und Weise, Andersdenkende zu
+drangsalieren und verbal zu schikanieren.
+Der Katholische Messdiener und Brave Internatsschüler aus Österreich, Markus Lanz, ist seit Jahren für seinen ‹Verdachts- und Gesinnungsjournalismus› bekannt.
+Berüchtigt seine Versuche, Sarah Wagenknecht als ‹unberechenbare Kommunistin› fertigzumachen.
+Wer beim ZDF (‹Zweifel Durch Falschinformationen› oder ‹Mit dem Zweiten sitzt man nicht automatisch in
+der Ersten Reihe …›) – nach dem unsäglich NATO-Papagei Claus Kleber vom ‹ASPEN INSTITUTE› u.a., dessen Nachfolge – angetreten hat, scheint klar.
+Das ‹Alte Prinzip von ARD & ZDF› zu ihrenTalk-Shows oder Polittalks immer Erzkonservative bis Rechte
+Teilnehmer/innen – meist aus CDU/CSU, heute vorwiegend Grüne und FDP – einzuladen, dazu dann angeblich neutral wirkende Politik-Fachleute (meist aus CDU/CSU THINK-TANKS rekrutiert) dazu positionieren,
+hat Tradition
+
+
+-----
+
+Als Gegenpart wird dann ein Teilnehmer/eine Teilnehmerin von Die Linke eingeladen, der/die die ‹angebliche› Ausgewogenheit der TALK-Runde dokumentieren soll.
+Bestens bekannt durch die ‹Fliegende Kohl-Kellnerin der Lüfte› Sabine Christiansen weiland bei der ARD
+beschäftigt.
+So wie diese ‹Kohl-Jungfer› sich für Herrn Kohl und seine Partei einsetze, so wird es weitergeführt durch
+Anna Will, Sandra Maischberger, Maybrit Illner oder Markus Lanz.
+Bei diesen Damen und diesem Herrn kann man getrost sagen, was auch für DER SPIEGEL, DIE ZEIT, FAZ,
+TAZ, SZ und Deutschlandfunk gilt …
+«Sie lügen nicht, sie verschweigen lediglich die Wahrheit!»
+Mit besten Grüssen
+Berthold Schroeder
+
+**3. Leserbrief**
+Sehr geehrte Damen und Herren,
+was Herr Lanz da abgeliefert hat war sehr beschämend. Mit Journalismus hat dies nichts mehr zu tun. Seine Überfordertheit als Moderator war nicht mehr zu übersehen. Herr Lanz und seine beiden Mitstreiter
+wollen die Vorgeschichte, die zu diesem Konflkt führte, unerwähnt lassen. Dies ist aber eine nicht zulässige
+Verkürzung der Geschehnisse. Bei Frau Strack-Zimmermann muss man verstehen, dass sie als Mitglied
+einer Regierungspartei ihr Fähnchen in den Wind hängen muss. Ihr merkwürdiger Vergleich mit dem Überfall im Park muss nicht weiter thematisiert werden um ihre Überfordertheit diesbezüglich zu erläutern.
+Beim CNN Reporter muss man seine sehr amerikanische Sicht der Dinge auch verstehen ohne sie aber zu
+billigen. Er arbeitete zu sehr mit Unterstellungen um die amerikanischen Interessen an diesem Konflikt erst
+gar nicht offenbar werden zu lassen. Hier hätte der Moderator moderierend eingreifen können. Wollte er
+aber nicht. Er ist das geblieben was er immer noch ist – ein Südtiroler Bergbauernbub.
+Mit freundlichen Grüssen
+P. Ehrental
+
+**4. Leserbrief**
+Hallo liebe Nachdenkseiten,
+zu obiger Sendung vom 2. Juni 2022 gesellt in nicht ganz so scharfer Form die Sendung ‹Maybrit Illner›
+mit dem Thema ‹Schwache Sanktionen, fehlende Waffen – bröckelt die Solidarität?› vom 2. Juni 2022, um
+22:10 Uhr im ZDF.
+Auch hier wird die Position von Herrn Varwick, Professor für Internationale Beziehungen und europäische
+Politik an der Universität Halle-Wittenberg, überhaupt nicht verstanden. Sie geht einfach nicht in die Köpfe
+der Beteiligten, allen voran von Herrn Kiesewetter, Frau Eigendorf oder Frau Quadbeck.
+Mit freundlichen Grüssen
+Holger Lüdecke
+
+**5. Leserbrief**
+Glückwunsch für die masochistische Bereitschaft, sich derzeit eine Markus Lanz-Sendung anzuschauen!
+Sich darüber hinaus noch Frau Strack-Zimmermann ‹auszusetzen›, bedeutet für einen Katholiken lebenslanger Ablass!
+W. Müller
+
+**6. Leserbrief**
+Danke Frau Guerot,
+dass mal wieder jemand unter der Käseglocke eine eigene Meinung vertritt.
+Jörg Metzner
+
+**7. Leserbrief**
+Sehr geehrtes NDS-Team,
+spätestens seit Markus Lanz sich den Lautsprecher Jörges in die Sendung geholt hat, damit dieser Sahra
+Wagenknecht niederbrüllt, weil es selbst dafür bei ihm nicht reicht, sollte zweifelsfrei klar sein, mit was für
+einem Charakter man es hier zu tun hat. Einem intellektuellen Würstchen, dass seine inhaltliche Leere mit
+einem penetranten, andressierten Moralchauvinismus übertüncht. Wer zu diesem Herrn in die Sendung
+geht, darf sich hinterher nicht beklagen, wenn ihm vom Verwesungsgeruch des öffenlich-rechtlichen Journalismus übel geworden ist.
+Mit freundlichen Grüssen
+W.P.
+
+
+-----
+
+**8. Leserbrief**
+Selbst wenn man von allem Inhaltlichen absähe, also unabhängig davon, wer in der Sache die schlüssigeren
+Positionen vertreten hat: Wie Markus Lanz mit Frau Guérot umgegangen ist, empfinde ich als schlicht unanständig. Frau Guérot war doch wohl kein ungebetener Eindringling in der Sendung, sondern man kann davon ausgehen, dass sie zur Teilnahme eingeladen worden ist. Einem geladenen Gast gegenüber hat der
+Gastgeber – das ist nun mal Herr Lanz – eine gewisse Fürsorgepflicht. Wenn ein anderer Gast sich danebenbenimmt, indem er Frau Guérot ständig das Wort abschneidet, wäre es für einen anständigen Gastgeber
+doch wohl selbstverständlich, solches Fehlverhalten zu unterbinden und für eine faire Diskussionskultur zu
+sorgen. Herr Lanz hat diese Gastgeberpflicht nicht erfüllt; damit nicht genug, ist er sogar vollkommen aus
+der Gastgeberrolle gefallen, ist selbst zum ‹Kombattanten› geworden, ist seinem Gast Frau Guérot immer
+wieder ins Wort gefallen und hat sie mit inquisitorischen Einwänden und Fragen im Kreuzverhör-Stil in die
+Enge zu treiben versucht. Diesen Eiferer kann man beim besten Willen nicht als einen Moderator bezeichnen.
+Karl Heinz Siber
+
+**9. Leserbrief**
+Plötzlich sterben in der Ukraine ‹Menschen›. Die letzten 8 Jahre waren es wohl keine. Das klingt aber stark
+nach Asow.
+Warum sehen wir uns solche Sendungen an? Es ist sicher ein Verdienst von Frau Guérot gegen die Windmühlen zu kämpfen. Vielleicht wird das vielen dadurch klarer. Aber mir hat sich bei der Betrachtung der
+Aufzeichnung der Magen umgedreht und ich habe es schnell aufgegeben.
+Andreas Hellmann
+
+**10. Leserbrief**
+Dass jeder Euro den Lanz, Plasberg, Illner und Will von meinem sauer verdienten Lohn offiziell durch die
+GEZ Gebühren verdienen, (geht sicher zusammengerechnet in eine 1-stellige Mio im Jahr) schon unerträglich ist, sind diese ‹Journalisten› auch noch die grössten ‹Einflussagenten› im deutschen Fernsehen. Nicht
+nur diese Sendung (das Lanz es immer und immer wieder geradezu zum INHALT seiner ‹Show› macht
+EINEN seiner ‹Gäste› (wer behandelt seine Gäste so?) niederzumachen, ist es bei den anderen Genannten
+nicht so konsequent, aber im Endeffekt das gleiche. Das ist ein Niveau wie bei Barbara Salesch zu Beginn
+des kommerziellen Fernsehens. Schlimmer noch, den das war KEINE politische Sendung bei der es um
+LEBEN und TOD von vielen ging.
+Und jetzt dürfen alle Leser Raten, welche Gruppe sich damals (zu Recht) tierisch über das ‹Salesch›-Format
+aufregte ?
+Na, ist doch klar.
+Joo richtig, die Öffentlich-Rechtlichen.
+Von unserem Leser M.R.
+
+**11. Leserbrief**
+Ein Paar Bemerkungen zum Artikel von Marcus Klöckner
+Die Sendung Markus Lanz vom 2. Juni hab’ ich gesehen, und mir schaudert, wenn ich sehe, wie weit es mit
+dem geistigen Niveau der Politiker und der Medien schon gekommen ist, so dass jede fundierte Meinung
+gegen diesen Meinungsterror zum Scheitern verurteilt scheint.
+«Von deutschen Medien ist man seit geraumer Zeit einiges gewöhnt, was das Schüren von Kriegsstimmung
+angeht, aber die Lanz-Sendung vom Mittwochabend zeigte etwas Neues.»
+So neu kam’s mir nicht vor, hab‘ hab oft schon Ähnliches gesehen, wenn auch nicht immer so grob.
+Was den ‹fehlenden Sachverstand› betrifft, so scheint das nicht nur ein Hauptmerkmal der meisten Politiker
+und deren Sprachrohre zu sein, sondern liegt auch an einen Mangel politischen Wissens der Bürger, egal
+welcher Bildungsschicht diese angehören.
+Ein derartiges Beispiel (Unfallopfer in einem Park) zeugt nur von dem ‹geistigen Niveau› solcher Politiker,
+und ob die sich da wirklich dessen bewusst sind, was sie so vor sich herplappern? Und was Lanz und auch
+Pleitgen da von sich geben, zeugt von ihrem Mangel an Informationen, da sie es ja sonst nicht nötig hätten,
+derart plump zu agieren.
+Herzlichts H.R.
+
+**12. Leserbrief**
+Sehr geehrte Damen und Herren der Nachdenkseiten,
+herzlichen Dank für Ihren Artikel zu Prof. Guerot. Ich frage mich, ob nicht im Falle dieser Skandalsendung
+von Lanz ein Exempel statuiert und in solch klaren Grenzüberschreitungen der Öffentlich-Rechtlichen ein
+juristischer Prozess angestossen werden müsste oder zumindest irgendein Untersuchungsausschuss … Es
+muss doch rechtliche Grenzen geben!
+
+
+-----
+
+Anbei erhalten Sie meine Nachrichten an das ZDF sowie an weitere Akteure.
+Vielen Dank für Ihre Analysen und mit besten Grüssen,
+B. Kahlen
+
+Sehr geehrte Damen und Herren,
+mit der Sendung vom 2.6.2022 hat Herr Lanz eine Grenze überschritten, die juristisch und im öffentlichen
+Diskurs aufgearbeitet werden muss.
+Wie aus den zahlreichen Kommentaren zur Sendung hervorgeht, besteht bei den Zuschauern des ZDF weitestgehend Entsetzen und Unverständnis darüber, warum Herr Lanz seine subjektiv getränkten, emotionalen Eindrücke und Meinungen überdominant in die Sendung einbringt und das in derartigem Umfang, dass
+dem Zuschauer die Position des einzigen Gastes mit abweichender Meinung gar nicht genügend und tiefgreifend dargeboten werden kann.
+Ohne näher auf eine foucaultsche kritische Diskursanalyse einer Denunziationspraxis und ihrem Beitrag
+zur Diffamierung kritischer Meinungen im Öffentlich-Rechtlichen eingehen zu wollen, möchte ich juristische
+Grundlagen heranziehen:
+Es ist zunächst festzustellen, dass Herr Lanz im Akt seiner mehrfachen subjektiven Positionierung nicht nur
+nicht ‹überparteilich› handelte gemäss den Vorgaben des Art. 5 Abs. 1 GG, sondern auch aktive Beeinflussung der öffentlichen Meinung zu Gunsten der Position von Frau Strack-Zimmermann ausübte.
+Zitat aus dem Sachstand des Bundestags 2016 «Die rechtlichen Grundlagen des öffentlich-rechtlichen
+Rundfunks (ARD, ZDF, Deutschlandradio) im Grundgesetz, dem Rundfunkstaatsvertrag der Länder und
+gemäss höchstrichterlicher Rechtsprechung»:
+«Wegen seiner ‹Breitenwirkung, Aktualität und Suggestivkraft› kommt dem Rundfunk hierbei eine herausragende kommunikative Bedeutung zu, weshalb sich das Normziel von Art. 5 Abs. 1 GG schliesslich nur
+dann erreichen lässt, sofern der Rundfunk frei, umfassend und wahrheitsgemäss informiert. Daraus resultiert für den Rundfunk eine besondere Verantwortungsbeziehung gegenüber der Allgemeinheit. Da der
+Rundfunk zugleich aber auch eine Sache der Allgemeinheit ist, muss er ‹in voller Unabhängigkeit überparteilich betrieben und von jeder Beeinflussung freigehalten werden» [BVerfG vom 27.07.1971, BVerfGE
+31, 314 (327) – Mehrwertsteuer (2. Rundfunkentscheidung)]. Insoweit nehmen die Rundfunkanstalten eine
+öffentliche Aufgabe war und üben für das Staatsganze eine integrierende Funktion aus.“
+Im Hinblick auf die von Herrn Lanz etablierte Diskussionskultur ist aus medizinischer sowie soziokultureller
+Sicht fundamentale Kritik zu üben und juristisch zu prüfen, ob durch die kommunikative Gewaltausübung
+auf Frau Prof. Guerot durch aggressiv-verbale Attacken von drei Personen – hiervon zwei Männer – auf eine
+Frau zeitgleich vor einem Millionenpublikum, nicht nur die Grenze des ‹guten Geschmacks› verlassen, sondern Tür und Tor geebnet wurden für den Tatbestand des Cyber-Mobbings.
+Als Arzt ist meines Erachtens ein unzumutbarer Druck in der Sendung aktiv auf Frau Prof. Guerot aufgebaut
+worden, der einem emotional traumatischem Erlebnis gleichkommen und Auslöser gravierender psychosomatischer Beschwerden sein kann.
+Daher sind meines Erachtens auch juristische Schritte zu prüfen, wie das ‹Opfer›, in diesem Fall Frau Prof.
+Guerot, rechtlichen Beistand erheben kann.
+Zum anderen ist doch durch das ZDF sowie durch rechtliche Instanzen zu prüfen, mit welcher Vorbildfunktion die Öffentlich-Rechtlichen eine Diskussionskultur gesellschaftlich propagieren möchten und aktuell
+aktiv zur verbalen Gewaltanwendung und aggressiven Diskussionskultur beitragen.
+Hier gibt es viele Nuancen auch aus feministischer Perspektive, die zu beachten und zu beanstanden sind.
+Mit freundlichen Grüssen,
+B. Kahlen
+
+**Weitere Nachricht an Lanz**
+Sehr geehrter Herr Lanz,
+schockiert über Ihre heutige Sendung möchte ich mich als Zuschauer zu Wort melden:
+Ich schäme mich zutiefst für Sie, Herr Lanz, über die Art und Weise, wie Sie im Öffentlich-Rechtlichen Fernsehen – mit unser aller Steuergeldern finanziert – durch eine ‹Talk›-Sendung führen, in der ein wahrer sachlicher Austausch von Argumenten im Keim erstickt wird und durch Diffamierungsaktionen und Emotionalisierung die Debatte ad absurdum geführt wird.
+Sie haben die einzige Rednerin im Raum, deren Position und Hauptanliegen es war, die Fahne der Diplomatie hochzuhalten und die als Einzige die Notwendigkeit schneller Friedensverhandlungen betonte, komplett
+sanktioniert, stigmatisiert und durchgehend attackiert.
+Sie haben sich mit der Rüstungsfront Strack-Zimmermann sowie dem Militaristen der CNN verbündet und
+einen wahrhaft respektlosen, schamlosen und charakterlosen Feldzug gegen den wissenschaftlich-demokratischen Diskurs geführt.
+Frau Prof. Guerot kam kaum in einer stringenten Art und Weise zu Wort – wie denn auch, wenn von 3 Seiten
+gleichzeitig ‹geschossen› wird
+
+
+-----
+
+Dass Frau Prof. Guerot nicht nur die Gedankengänge Millionen Deutscher repräsentiert und zugleich weltweit – auch in den USA – seitens hochkarätiger Wissenschaftler, Militärs, Journalisten und Politiker ernstzunehmende Bedenken hinsichtlich einer militärischen Eskalationsspirale geäussert werden, schien Sie nicht
+von Ihrer heutigen undemokratischen Darbietung abzuhalten, die einer Bewerbungskampagne um einen
+Posten in der Albright-Stiftung gleich kam.
+Vor 108 Jahren hätte Frau Prof. Guerot noch den Friedensnobelpreis für Ihre Äusserungen ‹Nieder mit den
+Waffen› erhalten, im Jahr 2022 wird der Pazifismus im Öffentlich-Rechtlichen zu Grabe getragen. Was für
+ein intellektueller Fortschritt, Herr Lanz, finden Sie nicht?
+Mir stockte als Arzt der Atem, als Frau Strack-Zimmermann zuletzt auch noch die Lieferung von Waffen in
+absurdester Art und Weise mit der Tätigkeit eines Anästhesisten verglich – und Sie, lieber Herr Lanz, noch
+nicht mal mit der Wimper zuckten.
+Ich erwarte eine weitere Sendung mit Frau Prof. Guerot, bei der Sie eine neutrale Position wahren und Ihrer
+Rolle als Moderator und nicht ‹Meinungs-Eliminator› nachkommen.
+Hochachtungsvoll,
+B. Kahlen
+_Quelle: https://www.nachdenkseiten.de/?p=84607_
+
+_06. Juni 2022 um 14:00; Ein Artikel von Frank Blenz_
+
+Kurt Tucholsky würde heute wieder, wie zu seinen Lebenszeiten, fragen: «Merkt Ihr nischt?» Dieser Frage
+müssen wir uns stellen. Die Antwort muss lauten: Doch, wir merken, was los ist, was der Plan ist, auf alle
+Fälle keiner, der uns vielen Menschen guttut. Die Zeitung aufgeschlagen, den Fernsehsender eingestellt, das
+Radio angeschaltet, schon ist zu vernehmen, überall in diesen Medien herrscht wilder Trommelwirbel, heftig
+wird für Aufrüstung, für Eskalation, gegen Entspannung und gegen Verständigung getrommelt. Schlimmerweise es ist so, dass dementgegen das Wort Frieden nicht inflationär und heftig ausgerufen würde. Aber es
+muss herausgeschrien werden, seiner Umsetzung Nachdruck verliehen werden. Eine Polemik von Frank
+Blenz.
+
+Das Wort Frieden in seiner grandiosen, wunderbaren Natur – es ist alternativlos. Bringen Sie das unter die
+Leute! Lassen Sie sich nicht länger von den grossen Gazetten, von den Tagesschauen, Deutschlandfunkhäusern, von den Baerbocks und Hofreitern, von ehemaligen und amtierenden Bundespräsidenten, von der
+Ampel, von den mainstream-genehmen Talkshowgästen, von den Lobbyisten, Netzwerkern, Transatlantikern, Denkfabrikakteuren aufhetzen und vereinnahmen! Werben Sie in Ihrem Umfeld für Frieden und für
+ein Engagement, Empörung gegenüber den Volksvertretern in den Parlamenten zu äussern! Mindestens
+besteht nun echt Hoffnung, der Frieden, der wird wieder vorgeschlagen, wenn auch nicht aus unserem Land
+kommend – der Ruf hallt aus Italien. Es gibt nicht nur Bedarf um eines Waffenstillstandes wegen. Die Krake
+Krieg hat unser Land und unsere Nachbarländer im Griff, wir spüren es Tag für Tag, die Bedrohungen werden Tatsachen, das Gefühl, arm und unsicher und ausgegrenzt und verachtet zu sein, es wird zunehmend
+l E l b
+
+
+-----
+
+Es besteht Handlungsbedarf, weil unsere Eliten schon handeln und das zu unser aller Schaden. Der deutsche Militärhaushalt wird monströs erweitert. Dafür ist in unserem Bundestag, dem Haus, wo über dem
+Eingang ‹Dem deutschen Volke› steht, eine Einigung über ein 100 Milliarden Euro schweres ‹Sondervermögen› für die Bundeswehr abgesegnet worden. Das bedeutet das Überschreiten der sogenannten ZweiProzent-Schwelle (zwei Prozent des BIP für Rüstung), auf die sich Deutschland im Kreise der NATO schon
+2014 geeinigt hatte. Kanzler Olaf Scholz nimmt derzeit starke, bedrohliche Begriffe in den Mund, ‹Machtkampf gegen Russland›, ‹grosse, nationale Kraftanstrengung›, ‹neue, starke Fähigkeiten für die Bundeswehr›. Die grösste konventionelle Streitmacht auf europäischem Boden – sie werde in Deutschland stationiert sein, schwärmen er und sein Gefolge. Merken Sie was?
+Das und vieles mehr ist empörend bis ins Mark. Es wird gelogen und man kommt damit durch, unsere
+regierenden Volksvertreter stimmen für einen Wahnsinn mit Methode. Die Eliten der Bundesrepublik arbeiten nicht erst seitdem Ukraine-Krieg, sondern lange vorher daran, ihre gewalttätigen Grossmachtsträume
+umzusetzen. Uns, der Bevölkerung, wird das als ehrenwert zu unser aller Nutzen verkauft. Aus unserem
+Land, der Nation, die zwei Weltkriege zu verantworten hat, kommt dagegen kein Friedensangebot der führenden Kräfte. Uns, den Mediennutzern, uns, dem gemeinen Fussvolk, wird von den Nutzniessern der kriegerischen Auseinandersetzung samt deren Seilschaften stur und zielgerichtet eingebläut, dass nur Waffen
+das Erfolgsmittel im Krieg seien, dass man sich vom Feind abwenden muss, dass man den Feind bestrafen
+muss, und das auf viele Jahre, auf dass damit schliesslich der Sieg errungen werde, um welchen zerstörerischen Preis auch immer. Die Zerstörung ist in vollem Gang, nicht nur in der Ukraine, viele Kriegsherde weltweit werden am Brennen gehalten. Die Krise nimmt Fahrt auf. Ursachen werden nicht benannt. Und ja, der
+wirkt (noch), dieser Wahnsinn: Wir, die einfachen Bürger, sind von der Maschinerie der Trommler ziemlich
+beeindruckt und gehen dabei zähneknirschend und ohnmächtig in die Knie, man schaue nur auf Tanksäulenanzeigen, auf den Einkaufsbon vom Supermarkt, auf die Rechnungen für Heizöl. Von der mentalen
+Atmosphäre im Land ganz zu schweigen.
+Hoffnung. Wenn denn nicht aus Deutschland, bahnt eine Spur Vernunft anderswo sich ihren Weg in das
+Geschehen: Sie wissen, es gibt einen Friedensplan aus Italien, Mitte Mai veröffentlicht und nun auf dem
+Weg, in langen Verhandlungen womöglich eine Chance zu bekommen. Die Wortmeldungen, die Zustimmung dafür mehren sich, die kriegslüsternen Falken spüren Gegenwind. Und die Wiederholung eines weiteren Wortes, welches die Kriegstreiber ungern hören, ruft man lauter und lauter: Verhandeln, verhandeln,
+verhandeln. Mit Waffen, mit Pression gegen den Feind, mit Ausgrenzung, Boykotten, Sanktionen, Kontosperrungen wird der Krieg in der Ukraine nicht beendet werden. Dieser Weg sollte eingeschlagen werden, der
+Vorschlag aus Italien kurz beschrieben:
+
+**Der italienische Friedensplan ist eine Chance**
+Am 18. Mai 2022 legte die italienische Regierung zum ersten Mal einen mit dem UN-Generalsekretär und
+den G7-Staaten abgestimmten Friedensplan vor, der vier Stufen enthält, die aufeinander aufbauen.
+Waffenstillstand: Dieser Waffenstillstand soll mit lokalen Kampfpausen beginnen, die von der OSZE oder
+den Vereinten Nationen überwacht werden. Ziel ist die Entmilitarisierung entlang der derzeitigen Frontlinie,
+wobei eine Pufferzone entstehen würde, die frei von Kämpfern beider Konfliktparteien ist.
+Neutralität der Ukraine: Einem Waffenstillstand zeitlich nachgeordnet schlägt das italienische Aussenministerium eine Friedenskonferenz zur Statusfrage der Ukraine vor. Sollte sich die ukrainische Regierung auf
+eine Neutralität des Landes einlassen, bräuchte sie Sicherheitsgarantien verschiedener anderer Staaten.
+Lösung territorialer Fragen: Zeitlich wiederum nach einer Friedenskonferenz zur Frage der Neutralität der
+Ukraine schlägt die italienische Regierung bilaterale Verhandlungen zwischen der Ukraine und Russland
+vor, die von einer neutralen Institution wie der OSZE oder den Vereinten Nationen moderiert werden könnten.
+Inhaltlich würde es dabei um die Autonomie der Separatistengebiete bei Wahrung der territorialen Landesintegrität gehen. Konkret bräuchte es eine Regelung der sprachlichen und kulturellen Rechte sowie des
+freien Personen- und Dienstleistungsverkehrs.
+Europäischer Sicherheitspakt: Als vierte und letzte Stufe des italienischen Friedensplanes ist ein Abkommen
+über Frieden, Sicherheit und Stabilität in Europa vorgesehen. Abrüstung, Rüstungskontrolle, Konfliktverhütung und Vertrauensbildung würden dabei auf der Tagesordnung stehen.
+Das Ziel des italienischen Friedensplanes ist der vollständige Rückzug der russischen Truppen aus der
+Ukraine und der Erhalt der territorialen Integrität der Ukraine. Die schrittweise Aufhebung von Sanktionen
+gegenüber Russland könnte in dem Masse erfolgen, wie die russischen Truppen den Boden der Ukraine
+verlassen. Eine Wiederaufbau-Geberkonferenz könnte der notleidenden Zivilbevölkerung Perspektiven geben und die notwendigen Finanzmittel zur Beseitigung der Kriegsschäden bereitstellen.
+Quelle: Clemens Ronnefeldt, Referent für Friedensfragen beim deutschen Zweig des Internationalen Versöhnungsbundes. Dem Internationalen Versöhnungsbund gehören rund 100’000 Mitglieder in 50 Staaten der
+Erde an. Der Verband hat Beraterstatus bei den Vereinten Nationen.
+
+
+-----
+
+Lange wurden diese im italienischen Plan stehenden Wörter bei uns nicht gehört, umso wichtiger ist es,
+diese weiterzugeben und einzufordern: Waffenstillstand. Neutralität, Autonomie, sprachliche und kulturelle
+Rechte, europäischer Sicherheitspakt. Abkommen über Frieden, Sicherheit und Stabilität. Abrüstung,
+Rüstungskontrolle, Konfliktverhütung und Vertrauensbildung. Man fragt sich, ob unsere Aussenministerin
+den Vorschlag aus Italien vernommen hat. Man könnte annehmen, dass dem nicht so ist, hält sie doch nach
+wie vor nicht inne, weiter den Krieg zu befeuern, indem sie das Wort Waffenstillstand nicht in den Mund
+nimmt. Sie nimmt stattdessen in Kauf, ja fordert gar, dass der von der Ukraine nicht zu gewinnende Konflikt
+gegen Russland andauert. Sie ahnt und beklagt schon Kriegsmüdigkeit bei uns, dem Volk, das sie im Ausland vertritt. Ja, Frau Baerbock, wir sind kriegsmüde, richtigerweise: wir waren nie wach und bereit für einen
+Krieg, für eine Beteiligung, für eine Ausweitung. Russland dürfe nicht gewinnen, sagt Frau Baerbock. Italien
+nimmt das Wort Sieg nicht in den Mund. Der Krieg in der Ukraine – er kennt keine Sieger. Jetzt nicht und
+später nicht. Dieser Krieg, alle Kriege müssen beendet werden. Reden statt Schiessen. Verhandeln statt
+Eskalation.
+Wir Deutschen sind in der Pflicht. Wir müssen denen, die uns regieren, denen, die von unseren Möglichkeiten, Fähigkeiten profitieren, in Deutlichkeit und mit aller Empörung sagen: Schluss mit dem Kriegskurs,
+Schluss mit all dem Kriegshandeln und -denken! Wir brauchen Hoffnung, wir verdienen Hoffnung, die von
+guten Taten, friedvollen Konzepten und von einem Aufeinanderzugehen genährt wird. Stephane Hessel,
+Autor des Buches ‹Empört Euch›, schrieb darin: «Wir müssen begreifen, dass Gewalt von Hoffnung nichts
+wissen will. Die Hoffnung ist ihr vorzuziehen – die Hoffnung auf Gewaltlosigkeit. Das ist der Weg, den wir
+einschlagen müssen.» Die Akteure der Gewalt, die Nutzniesser von Gewalt – wir müssen sie täglich
+entlarven, kritisieren und eine Kehrtwende zum Frieden einfordern.
+Zum Finale der Polemik sei eine Episode von vor vielen, vielen Jahren erzählt. Die Lage ist wieder ernst, und
+es ist zu erahnen, dass Geschichte sich wiederholt. Erinnern Sie sich an den Spruch «Friede den Hütten!
+Krieg den Palästen!»? Dieser Aufruf war Mitte des 19. Jahrhunderts die Überschrift eines Flugblattes, das
+der Student Georg Büchner, heute eine verehrte und geachtete historische Persönlichkeit, verfasste. Damals
+tat der junge Mann das nicht aus Lust an Gewalt, die blanke Existenzangst von Büchner und vieler seiner
+Landsleute waren der Grund und das wütende Benennen der Verursacher (Krieg den Palästen) die Folge.
+‹Der Hessische Landbote› um 1830 wurde von dem 20-jährigen Medizinstudenten Büchner geschrieben,
+heimlich gedruckt und verteilt. Die Aktion war höchst gefährlich, stand doch bei ‹Ertappen› die Anklage
+‹Hochverrat› darauf. Büchner klagte die Oberschicht an, deren Gier, deren Masslosigkeit, deren Verachtung
+des einfachen Volkes, der Untertanen und ihrer Unterdrückung und Ausbeutung, die zügellose Formen
+angenommen hatte. Viele Menschen hungerten, bettelten, verzweifelten. Nicht nur das, das politische Klima
+im Land war eines der Angst, der Zensur, der Spitzel, der politischen Willkür, Mitsprache, demokratische
+Rechte – Pustekuchen. Widerstand, Einspruch wurde drakonisch bekämpft. Der Kampf der einfachen Menschen, er war nicht erfolgreich. Dann, 1848, folgte die Deutsche Revolution, eine von vielen Aufständen in
+Europa. Auch in diesen Auseinandersetzungen wurde nicht erreicht, dass die Welt besser wurde. Viele weitere Kriege über weitere Jahrhunderte folgten. Und stets hatten und haben die Eliten die Oberhand.
+Jetzt im 21. Jahrhundert herrschen wieder Kriege, wieder kommt es zu Aufständen und zu Unruhen. Das
+Wort des Klassenkampfes wird offen und ungeniert ausgesprochen, die Klasse der Reichen hält sich den
+Bauch erfolgstrunken und vor Lachen, gewinnen sie den Kampf doch gerade immerzu und fortlaufend. Der
+US-Investmentbanker Warren Buffett sagte dazu mal lässig: «Es herrscht Klassenkampf und meine Klasse,
+die der Superreichen, gewinnt.» Und wenn der Gewinner sich alles nimmt, ist der Verlierer in grosser Not.
+«Merkt Ihr was?»
+_Titelbild: Ilija Erceg/shutterstock.com_
+_Quelle: https://www.nachdenkseiten.de/?p=84555_
+
+
+-----
+
+## Verbreitung des richtigen Friedenssymbols
+
+Das falsche Friedenssymbol – die heute weltweit verbreitete sogenannte
+
+**Es soll FRIEDEN sein auf Erden** <Todesrune>, die aus den keltischen Futhark-Runen resp. der umgedrehten Algiz
+**And there shall be PEACE on Earth** Rune fabriziert wurde – ist der eigentliche Inbegriff negativer Einflüsse und schafft
+
+zerstörerische Schwingungen hinsichtlich Unfrieden, Fehden und Hass, Rache,
+
+**AMANI** **ΕΙΡΗΝΗ** Laster, Süchte und Hörigkeit, denn die <Todesrune> bedeutet für viele Menschen
+
+Reminiszenzen an die NAZI-Zeit, an Tod und Verderben, wie aber auch Ambitionen
+
+**BARIŞ** **VREDE**
+
+in bezug auf Kriege, Terror, Zerstörungen vieler menschlicher Errungenschaften und
+
+**PAQE** **��** allen notwendigen Lebensgrundlagen jeder Art und weltweit Unfrieden.
+**PACE** **שרום**
+**МИР** शांित Es Ist wirklich dringlichst notwendig, dass die <Todesrune> als falsches
+**PAIX** **���** Friedenssymbol, das Unfrieden und Unruhe schafft, völlig aus der Erdenwelt
+**PAZ** **��** verschwindet und dadurch das uralte sowie richtige Peacesymbol auf der ganzen
+
+Erde verbreitet und weltbekanntgemacht wird, dessen zentrale Elemente
+Frieden, Freiheit, Harmonie, Stärkung der Lebenskraft, Schutz,
+
+**FIGU.ORG**
+
+Wachstum und Weisheit reflektieren, aufbauend wirken und
+
+**FIGU, Semjase-Silver-Star-Center, 8495 Schmidrüti**
+**Schweiz/Switzerland  Tel. + 41 (0)52 385 13 10** sehr besänftigend und friedlich-positiven Schwingungen
+
+zum Durchbruch verhelfen, die effectiv Frieden,
+Freiheit und Harmonie vermitteln können!
+
+Wir wenden uns deshalb an alle FIGU-Mitglieder, an alle FIGU-Interessengruppen, Studien- und Landesgruppen
+sowie an alle vernünftigen und ehrlich nach Frieden, Freiheit, Harmonie, Gerechtigkeit, Wissen und Evolution
+strebenden Menschen, ihr Bestes zu tun und zu geben, um das richtige Friedenssymbol weltweit zu
+verbreiten und Aufklärung zu schaffen über die gefährliche und destruktive Verwendung
+der <Todesrune>, die in Erinnerung an die NAZI-Verbrechen kollektiv im Sinnen und
+Trachten der Menschen Charakterverlotterung, Ausartung und Unheil fördert.
+
+**Autokleber** **Bestellen gegen Vorauszahlung:** **E-Mail, WEB, Tel.:**
+**Grössen der Kleber:** **FIGU** info@figu.org
+120x120 mm = CHF 3.– Hinterschmidrüti 1225 www.figu.org
+250x250 mm = CHF 6.– 8495 Schmidrüti Tel. 052 385 13 10
+300X300 mm = CHF 12.– Schweiz Fax 052 385 42 89
+
+IMPRESSUM Für CHF/EURO 10.– in einem Couvert senden
+FIGU-SONDER-ZEITZEICHEN wir Dir/Ihnen 3 Stück farbige Friedenskleber
+Druck und Verlag: FIGU Wassermannzeit-Verlag, ----der Grösse 120x120 mm. = Am Auto aufkleben.
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+Redaktion: BEAM ‹Billy› Eduard Albert Meier,
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+Wird auch im Internetz veröffentlicht
+**Erscheint sporadisch auf der FIGU-Webseite**
+
+Postcheck-Konto: FIGU Freie Interessengemeinschaft,
+8495 Schmidrüti, PC 80-13703-3
+IBAN: CH06 0900 0000 8001 3703 3 Geisteslehre Friedenssymbol
+**E-Brief: info@figu.org**
+**Internetz: www.figu.org** **Frieden**
+**FIGU-Shop: http://shop.figu.org**
+
+Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten
+
+**© FIGU 2022** Tritt dazu macht, um dann nachfolgend in Friedsamkeit jeden weiteren Schritt
+Einige Rechte vorbehalten. bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun. SSSC, 10. September 2018, 16.43 h, Billy
+Dieses Werk ist, wo nicht anders
+angegeben, lizenziert unter :
+www.figu.org/licenses/by-ncnd/2.5/ch/
+
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung des Urhebers ausdrücklich erlaubt.**
+Erschienen im Wassermannzeit-Verlag: FIGU, ‹Freie Interessengemeinschaft Universell›, Semjase-Silver-Star-Center,
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+

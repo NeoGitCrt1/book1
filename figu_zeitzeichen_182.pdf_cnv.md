@@ -1,0 +1,1734 @@
+8. Jahrgang
+Nr. 182, März 2 2022
+
+
+Erscheinungsweise:
+unregelmässig
+
+
+# FIGU  ZEITZEICHEN
+
+###### Aktuelles • Einsichten • Erkenntnisse
+
+Internetz: http://www.figu.org
+E-Brief:  info@figu.org
+
+
+###### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+
+Laut ‹Allgemeine Erklärung der Menschenrechte›, verkündet von der Generalversammlung der Vereinten Nationen am 10. Dezember 1948, herrscht
+eine allgemeine ‹Meinungs- und Informationsfreiheit› vor, und dieses unumschränkte Recht gilt weltweit und absolut für jeden einzelnen
+Menschen weiblichen oder männlichen Geschlechts jeden Alters und Volkes, jedes gesellschaftlichen Standes wie auch in bezug auf
+rechtschaffene Ansichten, Ideen und jeglichen Glauben jeder Philosophie, Religion, Ideologie und Weltanschauung:
+
+**Art. 19 Menschenrechte**
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit, Meinungen**
+**unangefochten anzuhängen und Informationen und Ideen mit allen Verständigungs-**
+**mitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Ansichten, Aussagen, Darstellungen, Glaubensgut, Ideen, Meinungen sowie Ideologien jeder Art in Abhandlungen, Artikeln
+und in Leserzuschriften usw. müssen in keiner Art und Weise zwingend identisch mit dem Gedankengut und den
+Interessen, mit der ‹Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens›, wie auch nicht in
+irgendeiner Sachweise oder Sichtweise mit dem Missionsgut und dem Habitus der FIGU verbindend sein.
+==============================================================================================================
+==============================================================================================================
+Für alle in den FIGU-Zeitzeichen und anderen FIGU-Periodika publizierten Beiträge und Artikel verfügt die
+FIGU über die notwendigen schriftlichen Genehmigungen der Autoren bzw. der betreffenden Medien!
+###### **********************************************************************************
+
+**Auf vielfach geäusserten Wunsch aus der Zeitzeichen-Leserschaft sollen in den Zeitzeichen zur Orientierung der**
+**Rezipienten laufend Auszüge diverser wichtiger Belange aus neuest geführten Kontaktgesprächsberichten**
+**veröffentlicht werden, wie nach Möglichkeit auch alte sowie neue Fakten betreffs weltweit bösartig mit**
+**Lügen, Betrug, Verleumdung und Mordanschlägen gegen BEAM geführte Kontroversen.**
+
+*******************************************************************************************************
+
+**Eine E-Mail, die mich aus dem Kriegsgebiet der Ukraine über einen Umweg als Fax erreichte, und die**
+**von Bernadette abgeschrieben wurde, dass ich sie im ‹Zeitzeichen›, März 2, veröffentlichen kann. Eine**
+**E-Mail, die aussagt, dass nicht alles der Wahrheit entspreche, was in den täglichen Nachrichten über den**
+**Krieg in der Ukraine und die russischen Greueltaten berichtet wird.**
+**Billy**
+
+Lieber Billy
+Vielen Dank, dass Du zu dem Ukrainekrieg was geschrieben hast, auch Dank an Bermunda. Könntest du
+bitte zu dem Ukrainekrieg auch schreiben, dass es einen Völkermord in der Ukraine gibt. Dass es eine
+grosse Anzahl von Faschisten gibt, die in verschiedenen Städten morden und vergewaltigen. Ein Verbrechen
+und Gräueltaten in Donbass usw. anrichten. Menschen aus den Gebieten berichten, dass sie seit Tagen von
+ihren eigenen Leuten bombardiert werden und nicht, wie die Medien berichten, dass es russische
+Streitkräfte seien. Ein Krieg ist nie eine Rechtfertigung, was Putin macht, aber einerseits musste er handeln
+und den Menschen zur Hilfe kommen, die sonst von den Faschisten systematisch ermordet werden. Dieser
+Zustand geht schon seit 8 Jahren und niemand in der westlichen Welt hat in der Zeit etwas dagegen getan,
+geschweige angeprangert, was wirklich für ein Verbrechen an Minderheiten in der Ukraine geschieht. Wie
+siehst du die weitere Zukunft und Entwicklung in der Ukraine? Wie soll es da weitergehen, falls Russland
+den Krieg gewinnt? Die Menschen dort werden doch nicht eine Marionettenregierung von Russland
+akzeptieren.
+
+
+-----
+
+Dann muss ich sagen, dass Selenskyj Drogen nimmt. Besonders in den letzten Tagen aufgeputscht. Man
+sieht es an seinem verwirrten Blick und den erweiterten Pupillen.
+Mit freundlichen Grüssen B.
+
+## Was in der Welt auch geschieht:
+
+### Aufruf an alle, die wirklich Frieden wollen!
+ FIGU Kerngruppemitglieder – FIGU Passivmitglieder 
+ FIGU Freunde – FIGU Gleichgesinnte
+
+#### Haltet Euch in dauernder Neutralität, in dem was Eure Meinung ist, was Ihr sagt, vertretet und sonstwie äussert.  Politisiert nicht, wenn Ihr Eure Meinung vorbringt, doch sagt in neutraler Weise, was richtig ist und was falsch; doch seid nicht in Form eines persönlichen FÜR oder WIDER bezüglich einer Sache oder eines Geschehens usw., die gedacht oder getan werden, sondern bleibt neutral beim euch äussern, dass es, ohne die Partei von einer oder der anderen Seite  zu ergreifen, richtig oder falsch ist, und zwar egal, ob es  sich dabei um Gedanken oder Taten handelt, denn das macht keinen relevanten Unterschied.
+
+##### Beweise und Angriffe
+###### Warum schreit ihr Widersacher, Kritiker, Besserwisser, Stänkerer nach Beweisen und überseht dabei die Wahrheit und eure eigene Unzulänglichkeit, eure Unbedarftheit und Dummheit und Dämlichkeit? Warum erhebt ihr euch in Feindschaft gegen die Wahrheit und irrt mit euren Angriffen in einer Welt des Bösen und Negativen umher, um euch  selbst grösser zu machen als ihr wirklich seid? Warum, ihr Antagonisten,  ihr Stänkerer und ihr Besserwisser sowie Kritiker, warum ergeht ihr euch  in Feindschaft wider die effective Wahrheit, warum beschmutzt ihr die  Ethik mit falscher Moral? Ihr Widersacher, Besserwisser, Stänkerer und Antagonisten, die ihr euch der Lüge und dem Betrug zuwendet, wenn  ihr euch nur so gross seht, wie ihr wirklich seid! Lasst euch auf die  Ebene des Normalen und Ehrlichen hinab, denn das ist der  Weg der niemals Ärger und Feindschaft erzeugt, jedoch Frieden, Freundschaft, Liebe sowie Harmonie!
+6. März 2022, 19.13 h, Billy
+
+
+-----
+
+‹Billy› Eduard Albert Meier, BEAM
+Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti/ZH Schweiz/Switzerland
+
+Tel. 0041 (0)52 385 13 10 /// E-Brief: info@figu.org • Internet www.figu.org
+
+**FRIEDEN**
+Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten
+
+Tritt dazu macht, um dann nachfolgend in Friedsamkeit jeden weiteren Schritt
+
+bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun.
+
+SSSC, 10. September 2018, 16.43 h, Billy
+
+
+Frieden
+
+
+#### Menschen der Erde
+
+###### Schwelgt nicht in Hass, Rache, Vergeltung und Zerstörung, sondern macht in Euch und Euch selbst zu einem Herd von
+ Liebe, Glück und Frieden.
+ Verbannt in Euch den Hass, die Rache und Vergeltung und stoppt alles was Tod, Trauer, Leid, Elend und Zerstörung bringt.
+ Schafft nicht Unfrieden, Streit, Krieg und Vernichtung sowie Erbärmlichkeit, Düsterheit, Schaden, Bedrängnis, Not, Drangsal und Schmerzen, sondern wachst über Euch selbst hinaus und seid in Euch selbst grösser als Eure Feinde und alle Antagonisten.
+ Nur wer schwach ist, sucht im Hass, in Rache und Vergeltung einen Sieg, sein Recht, Befriedigung und Genugtuung zu erringen,  doch er zerstört damit sein Recht und schafft Unrecht, das ihn  bei den Mitmenschen zum Feind und zur Ausgeburt des Bösen  macht, wie aber auch zum Ausgestossenen der Gesellschaft.
+ Schafft Recht und Frieden in Euch selbst und in der Welt, richtet  nicht und erkennt, dass die Euch harmen, armselig in ihrem Denken,  Entscheiden und Handeln sind, denn sie sind schwach, erbärmlich in ihrer Redensart, wie auch Unfähige und Stümper in ihrem Tun. 
+ Schafft in Euch Liebe, Glück und Frieden, seid gut und tuet recht  in Eurem Denken, Entscheiden und Handeln, so ihr des Rechtens  selbstbewusst und ohne Schuld seid, wenn ihr Euch in gerechter Weise gegen Euch angetanes Unrecht kontrolliert zur Wehr setzt, und zwar ohne Hader, Streit, Krieg, Tod, Gewalt und Zerstörung, denn solches bringt nur neuen Unfrieden, Kriegsgewalt und Tod.
+ Sei wahrer und effectiver Mensch, der das wertvolle Leben jedes einzelnen Menschen vor Unheil und Tod schützt und bewahrt, wie du dir selbst jeden Schutz gewährst und dich vor jedem  Unheil bewahrst, denn dein Nächster ist ein Mensch wie du.
+**SSSC, 10.3.2022, 12.51 h, Billy**
+
+
+-----
+
+##### Über Nebenwirkungen der Impfungen gegen Covid und dass diese oftmals nicht gemeldet werden
+_Patric Chenaux, Schweiz_
+
+Nachweislich verursachen die bekannten Corona-Impfstoffe wie jene von Moderna, Pfizer BioNTech, Johnson & Johnson sowie AstraZeneca usw. in sehr vielen Fällen leichte bis schwere Nebenwirkungen. Jedoch
+wird von den Medien, den verantwortlichen Behörden sowie vom Gros der ‹Ärzteschaft› immer behauptet,
+dass die Nebenwirkungen, sowohl die schweren wie auch die leichten in einem sehr tiefen Prozentbereich
+liegen, was leider nicht der Wirklichkeit entspricht. Die Aussagen, dass sich die Nebenwirkungen, sowohl
+die schweren wie auch die leichten in einem sehr tiefen Prozentbereich bewegen sollen, beruht leider mit
+hoher Wahrscheinlichkeit sowohl auf bewusst gefälschten Daten wie auch auf dummen und verantwortungslosen Falschbehauptungen, die oftmals auf Unwissenheit, Unbedarftheit und auch auf Überheblichkeit
+beruhen.
+Gemäss dem Schweizerischen Bundesamt für Gesundheit (BAG) zum Beispiel treten starke Nebenwirkungen wie z.B. die sogenannte Herzmuskelentzündung (Myokarditis) angeblich lediglich in 2,7 von 100‘000
+Fällen bei mit dem Impfstoff von Pfizer BioNTech geimpften Personen auf, gemäss einer Studie, die im
+‹The New England Journal of Medicine› veröffentlicht wurde (siehe nachfolgender Link). Leider ist aus dieser
+Studie nicht klar ersichtlich, ob diese geimpften Personen (884’828 Personen, denen der Impfstoff sowie
+884’828 Personen, denen ein Placebo verabreicht wurden) eine Einfach-, Zweifach- oder gar DreifachImpfung (Booster-Impfung) verabreicht bekommen haben:
+_https://bag-coronavirus.ch/impfung/nebenwirkungen-fragen/#contents4_
+_https://www.nejm.org/doi/full/10.1056/NEJMoa2110475?query=recirc_curatedRelated_article_
+In dieser wie auch in anderen Studien werden oftmals in oberflächlicher Art und Weise lediglich schwere
+Nebenwirkungen in Augenschein genommen, weil offenbar nicht davon ausgegangen wird, dass leichte
+Nebenwirkungen dieser Impfstoffe über einen längeren Zeitraum zu gesundheitlichen Folgeerkrankungen
+führen könnten. Zudem beruhen sehr viele Studien, wie die vorgenannte, auf ‹klinischen› Untersuchungen
+beinahe schon unter ‹Laborbedingungen›, die folglich nicht die reale Situation unter der geimpften Bevölkerung abbilden kann, die bereits eine zweifache oder gar dreifache Impfung erhalten hat.
+Leider hat sich nun gezeigt, dass viele Nebenwirkungen, speziell nach der Dreifach-Impfung (Booster-Impfung) nicht wie erforderlich den zuständigen Behörden gemeldet werden, weder von den diesbezüglich verantwortungslosen Ärzten noch den betroffenen Personen, die natürlich oftmals nicht wissen, dass sie erlebte und erfahrene Nebenwirkungen in der Regel selbst direkt den zuständigen Behörden melden können.
+Für Aufsehen sorgte diesbezüglich die Krankenkasse BKK ProVita, die sich mit einem Brief an das PaulEhrlich-Institut wandte, in dem berichtet wird, dass gemäss den Erfahrungen dieser Krankenkasse eine viel
+höhere Häufigkeit von Nebenwirkungen nach Covid-Impfungen gegeben ist wie u.a. die Webseite heise.de
+berichtet (siehe nachfolgenden Link) und in dem u.a. folgendes berichtet wird:
+
+**BKK-Vorstand nach Brandbrief über Impfnebenwirkungen fristlos entlassen**
+_3.3.2022 08:00 Uhr. Von Stephan Schleim_
+
+Krankenkasse BKK ProVita wandte sich mit umstrittener Daten-Auswertung an Medien. Jetzt zog Verwaltungsrat die
+Notbremse.
+_Telepolis berichtete am 25. Februar über einen Brandbrief der BKK ProVita an das Paul-Ehrlich-Institut (PEI), das für_
+die Erfassung von Impfnebenwirkungen zuständig ist (Corona-Impfstoffe: Viel mehr Nebenwirkungen als gedacht?).
+Gezeichnet vom Vorstand der Krankenkasse, Andreas Schöfbeck, hiess es: Eine Auswertung von Abrechnungsdaten
+zeige eine viel höhere Häufigkeit von Nebenwirkungen nach Covid-Impfungen, als die offiziellen Zahlen des PEI hergeben.
+Dramatisch klang vor allem das Ende des Briefs: «Da Gefahr für das Leben von Menschen nicht ausgeschlossen werden
+kann, bitten wir Sie um eine Rückäusserung über die veranlassten Massnahmen bis 22.2.2022, 18:00 Uhr.» Das war
+natürlich Wasser auf die Mühlen derjenigen, die Impfungen skeptisch gegenüberstehen oder gar vermuten, dass sie
+zu erhöhten Todesfällen führen (Gibt es einen Zusammenhang zwischen Corona-Impfungen und der Sterblichkeit?).
+Die von der Krankenkasse verbreitete Botschaft hatte aber für die Ärzteschaft noch eine besondere Note: Schwere
+Impfnebenwirkungen müssen nämlich gemeldet werden. Übertreten Ärztinnen und Ärzte also massenweise das
+Gesetz? Das werde damit impliziert, so der Heidelberger Uni-Chefvirologe Hans-Georg Kräusslich in der ‹Ärztezeitung›:
+Das könnte auch Schärfe der Reaktion vom Virchowbund erklären, dem Verband der niedergelassenen Ärztinnen und
+Ärzte Deutschlands. Dessen Vorsitzender, Dirk Heinrich, HNO-Arzt und Leiter des Hamburger Impfzentrums, nannte
+die BKK ProVita am 24. Februar eine ‹Schwurbel-BKK› und diagnostizierte ‹peinliches Unwissen oder hinterlistige
+Täuschungsabsicht›.
+
+
+-----
+
+Zweifel kamen aber auch vom Dachverband der Betriebskrankenkassen selbst: Dieser twitterte ebenfalls am 24.
+Februar, dass die BKK ProVita die fraglichen Versichertendaten gar nicht, wie von ihr behauptet, beim Dachverband
+abgerufen habe.
+_Quelle_ _https://www.heise.de/amp/tp/features/BKK-Vorstand-nach-Brandbrief-ueber-Impfnebenwirkungen-fristlos-entlassen-_
+_6534629.html_
+
+Dass die umstrittenen Informationen dieser Krankenkasse jedoch zumindest teilweise der Wirklichkeit entsprechen, kann meine Wenigkeit aus meinem direkten Umfeld bestätigen!
+Meine langjährige Partnerin hatte knapp 20 Minuten nach der dritten Impfung mit dem Impfstoff von
+Moderna einen leichten Zusammenbruch, der einer anaphylaktischen Reaktion glich (schwere allergische
+Reaktion). Und kurz nach dieser ‹Booster›-Impfung ergaben sich folgende Beschwerden:
+– Stechen in der Herzgegend.
+– Wochenlanger Druck in der Herzgegend, wie wenn jemand mit beiden Händen auf die Brust im Bereich
+des Herzens drücken würde.
+– Hautausschlag im Bereich des Kinns, im oberen Bereich des Halses und auf der Stirn (fühlt sich an wie
+Neurodermitis oder Schuppenflechte).
+– Mittlerweile sind die Druckerscheinungen zwar abgeklungen, jedoch haben sich seit dem Booster die
+Monatsblutungen extrem verstärkt, und zwar so weit, dass Medikamente gegen die starken Blutungen
+eingenommen werden müssen.
+Das Empörende war bei der ‹Booster-Impfung› meiner Partnerin, die bereits an Vorerkrankungen und an
+diversen Mangelerscheinungen leidet (aufgrund der Gefahr von anaphylaktischen Reaktionen darf sie gewisse Präparate gegen ihren schwerem Eisen- und Folsäuremangel nicht einnehmen), dass ihr bei ihrer
+Anfrage beim zuständigen Arzt im Impfzentrum offenbar verantwortungslos erklärt wurde, dass die Impfung überhaupt keine Probleme für sie darstellen würde, was dann jedoch rund 20 Minuten nach der
+verabreichten Impfung zum bereits erwähnten Ergebnis führte.
+Als sich dann meine Partnerin aufgrund der vorgenannten Beschwerden bei ihrem Hausarzt meldete und
+ihn bat, diese Beschwerden entsprechend zu melden, hat dieser die Beschwerden ohne gründliche Untersuchung unwirsch als psychosomatisch eingestuft und meine Partnerin klar und deutlich abgewiesen.
+Meine Schwester Céline C. hatte interessanterweise nach ihrer dritten Impfung (ebenfalls mit Moderna)
+ähnliche Beschwerden:
+– Stechen und Schmerzen in der Herzgegend (etwas, was bei ihr zuvor auch bei starkem Stress in Erscheinung treten konnte, jedoch exakt seit der Booster-Impfung rund 100fach verstärkt beinahe als Dauerzustand in Erscheinung getreten ist).
+– Obwohl die Booster-Impfung vor knapp zwei Monate verabreicht wurde, hat sich ihr Zustand nicht
+gebessert.
+Als meine Schwester dies ihrem Arzt meldete, wurden die Beschwerden ebenfalls nicht ernst genommen
+und auch keine Initiative gezeigt, diese an die zuständige Behörde zu melden, obwohl es eigentlich Pflicht
+wäre, wie dies gemäss folgendem Link der Fall sein müsste und u.a. folgendes erklärt wird:
+
+**Gemäss dem Heilmittelgesetz müssen schwerwiegende, bisher unbekannte oder in der Fachinformation des**
+**betreffenden Impfstoffs ungenügend erwähnte sowie weitere medizinisch wichtige unerwünschte Wirkun-**
+**gen gemeldet werden.**
+Schwerwiegende unerwünschte Wirkungen sind solche, die
+
+- tödlich verlaufen
+
+- lebensbedrohend sind
+
+- zu einer Hospitalisation oder deren Verlängerung führen
+
+- schwere oder bleibende Schäden verursachen
+
+- sonst als medizinisch wichtig zu beurteilen sind (z.B. wenn durch eine rechtzeitige medizinische Intervention eine
+der oben erwähnten Situationen hat vermieden werden können)
+
+- vermutete Qualitätsmängel.
+Todesfälle und lebensbedrohende unerwünschte Arzneimittelwirkungen oder vermutete Qualitätsmängel mit Gefährdungspotenzial müssen unverzüglich, auf keinen Fall aber später als 15 Tage nach Erhalt der Kenntnis gemeldet
+werden. Bei den weiteren schwerwiegenden unerwünschten Arzneimittelwirkungen gilt eine Meldefrist von 15
+Tagen. Alle übrigen meldepflichtigen Ereignisse müssen innerhalb von 60 Tagen gemeldet werden.
+**Der Kausalzusammenhang zwischen dem Ereignis und dem Impfstoff muss nicht nachgewiesen werden: Der**
+**Verdacht alleine reicht, um dieses zu melden.**
+Trotz der heute sehr weitreichenden Untersuchungen, die ein Arzneimittel vor der Zulassung durchlaufen muss,
+können namentlich seltene Risiken erst nach der Markteinführung im Rahmen der breiteren Anwendung und beim
+alltäglichen Gebrauch erkannt werden. Die Erfassung anhand von Spontanmeldungen ist nach wie vor das beste
+Instrument, um derartige Probleme frühzeitig festzustellen.
+_Quelle:_ _https://www.infovac.ch/de/impfungen/meldungen_
+
+
+-----
+
+Zu diesen Aussagen stellen sich nun die folgenden Fragen:
+– Ab wann ist etwas als medizinisch wichtig zu beurteilen?
+– Warum wurden die Beschwerden meiner Partnerin und meiner Schwester nicht gemeldet?
+Beinahe schon als Randnotiz sollte noch erwähnt werden, dass sich in meine Schwester rund einen Monat
+nach der dritten Impfung trotzdem mit Covid-19 infiziert hat (wie dies in meinem Bekanntenkreis bereits
+häufig vorgekommen ist), obwohl immer erwähnt wird, dass dies nur selten der Fall sein dürfte, wie dies
+ebenfalls gemäss dem Schweizerischen Bundesamt für Gesundheit erklärt wird (siehe nachfolgenden Link):
+
+**Die Impfung schützt auch wirksam vor einer Omikron-Infektion**
+Die Covid-19-Impfung schützt auch bei einer Omikron-Infektion sehr gut vor schweren Krankheitsverläufen mit
+Spitaleinweisung. Das zeigt der Vergleich der Spitaleintritte von geimpften und ungeimpften Personen zwischen Ende
+Dezember 2021 bis Ende Januar 2022
+_https://bag-coronavirus.ch/impfung/nebenwirkungen-fragen/#contents4_
+
+Interessanterweise wird im vorgenannten Titel behauptet, dass die Impfung wirksam vor einer OmikronInfektion schützt, wobei im gesamten Text auf der vorgenannten Webseite lediglich in unlogischer Weise
+erklärt wird, dass die Impfung angeblich gegen schwere Verläufe schützt, was logischerweise nichts damit
+zu tun hat, dass die Impfung angeblich vor einer Omikron-Infektion wirksam schützen würde, nebst dem,
+dass unlogisch behauptet wird, dass die Impfungen vor Covid-Langzeitfolgen schützen würden – etwas, das
+in der kurzen Zeit seit die Impfstoffe verfügbar sind, gar noch untersucht werden konnte.
+In dieser gesamten leidigen Situation bezüglich des vorherrschenden Impfwahnes wäre es wünschenswert,
+dass mit der Impfung gegen Corona/Covid-19 verantwortungs- und pflichtbewusst umgegangen würde,
+was auch bedeutet, dass Nebenwirkungen unbedingt an die zuständigen Behörden gemeldet werden müssten, und zwar u.a. auch aus dem Grund, dass hoffentlich dereinst auch wirklich wirksame Impfstoffe gegen
+Corona und dessen vielfältige Mutationen entwickelt werden können, die weder kurzfristig noch langfristig
+mittelschwere oder gar schwere Nebenwirkungen hervorrufen.
+
+##### Warnung vor Verschwörungstheorien
+_Kai Amos, 23.8.2020_
+
+Als Verschwörungstheorie bezeichnet man im allgemeinen den Versuch, ein Ereignis, Zustand, etc. dadurch
+zu erklären, dass diese durch eine meist kleine (elitäre) Gruppe gemacht wurden, mit einem meist illegalen
+oder illegitimen Zweck zum Wohl der Gruppe.
+
+Heutzutage wird das Wort ‹Verschwörungstheorie› inflationär verwendet, wie das Wort ‹Nazi›. Das wird
+insbesondere von linker (kommunistischer, sozialistischer, bolschewistischer) Seite getan. Dabei fällt auf,
+dass besonders jene als Verschwörungstheoretiker bezeichnet werden, die Kritik gegenüber dem Kommunismus (= der linken Ideologie) üben. Beispiel ist die Flüchtlingspolitik der Angela Merkel. Aber auch andere
+Gruppen tun dies.
+Insbesondere seit dem Ausbruch der Corona-Pandemie ist das schlimmer und extremer geworden und
+jeder, der vor Corona warnt, ist gleich ein Verschwörungstheoretiker, Nazi, etc. Demgegenüber wird den
+Corona-Leugnern kritiklos nach dem Mund geredet und deren Postulate werden in den Medien kritiklos
+und verantwortungslos weiterverbreitet.
+Ptaah und Billy haben in ihren Kontaktgesprächen im allgemeinen, aber auch im speziellen (zuletzt zum
+Thema Corona), ausdrücklich erklärt, dass Verschwörungstheorien absoluter Unsinn sind und diesen nicht
+geglaubt werden soll.
+Verschwörungstheoretiker und deren Anhänger behaupten demnach, dass die Verschwörer ihre Verschwörungen öffentlich kundtun, wobei dies von Billy und Ptaah bestätigt würde. Das würde ja auch so in den
+Kontaktgesprächen stehen oder in Artikeln von Billy, etc.
+Ausserdem sei es notwendig, die Medien der Verschwörungstheoretiker zu studieren, um so die Wahrheit
+herauszufinden. Kann man natürlich machen, ist aber unsinnig, denn wegen vielleicht einem richtigen Satz
+der Verschwörungstheoretiker den restlichen Unsinn zu lesen, ist Zeitverschwendung. Genauso gut könnte
+man die FIGU-Schriften studieren, um vielleicht den einen Fehler zu finden. Selbst wenn ein Verschwörungstheoretiker einen Satz sagt, den vielleicht auch Billy oder Ptaah sagen, heisst das nicht, dass Billy und Ptaah
+und die FIGU die Verschwörungstheorie bestätigen oder diese verbreiten.
+Trotzdem wird verantwortungslos und realitätsleugnend der FIGU unterstellt, sie würden Verschwörungstheorien verbreiten oder die FIGU, Billy und Ptaah würden in ihren Gesprächen Verschwörungstheorien
+bestätigen.
+Das ist absoluter Unsinn und eine Verleumdung und Beleidigung für Billy, Ptaah und die FIGU.
+Verschwörungstheorien werden oft von Menschen verbreitet, die entweder bewusstseinsmässig-psychisch
+
+
+-----
+
+krank und ausgeartet sind, die die Realität nicht wahrnehmen können oder wollen oder von Leuten, die einfach Betrüger sind und mit ihren wirr-dummen Pamphleten Leute abzocken wollen.
+Da ich selbst schon mit Verschwörungstheorien zu tun hatte, weiss ich, dass Verschwörungstheorien alle
+Unfug sind.
+Deshalb kann ich jedem nur empfehlen: Haltet euch von Verschwörungstheorien fern. Wenn ihr auf Verschwörungstheorien stosst (Bücher, Artikel, Internetz, etc.), die nicht auf den ersten Blick als Verschwörungstheorien erkennbar sind, legt sie sofort beiseite, sobald ihr merkt, dass es sich um Verschwörungstheorien handelt.
+Verschwörungstheorien sind Zeitverschwendung, die das Papier/Internetz nicht wert sind, auf dem es
+gedruckt wird. Sie machn nur wirr und krank im Kopf und fördern Ängste und Paranoia.
+
+##### Anwalt, der Daten über Impfverletzungen im DoD veröffentlicht hat,  stellt das FBI vor Gericht
+_uncut-news.ch, März 9, 2022_
+
+Präsentiert dem Kongress Beweise dafür, dass Beamte den ‹grössten Betrug› der Geschichte begangen
+haben.
+Der Anwalt aus Ohio, der Daten des Verteidigungsministeriums veröffentlicht hat, die auf eine massive Zunahme von schweren Verletzungen und Erkrankungen bei Militärangehörigen hinweisen, als der Impfstoff
+2021 eingeführt wurde, hat am Montag eine Sondermitteilung mit fast 200 Seiten Beweismaterial veröffentlicht, in der er mögliche Korruption der Regierung im Zusammenhang mit COVID-19 anklagt.
+Thomas Renz, der die Daten des Verteidigungsministeriums in einer von Senator Ron Johnson (R-Wis.) im
+Januar veranstalteten Podiumsdiskussion enthüllte, sagte, er schicke seine Unterlagen an ‹jeden Kongressabgeordneten, Gouverneur, Generalstaatsanwalt und so viele andere gewählte Beamte wie möglich im ganzen Land›.
+Während ein Grossteil seiner Beweise die allgemeine Reaktion auf COVID-19 betrifft, konzentriert er sich
+auf die drei Whistleblower des Verteidigungsministeriums, die Beweise aus der Defense Military Epidemiological Database (DMED) vorgelegt haben, die einen Anstieg von Krankheiten und Verletzungen um fast
+1000% belegen.
+Er fordert die Beamten auf, ‹sich die Fakten anzuschauen und Stellung zu beziehen›, und verlangt die sofortige Aufhebung der Impfpflicht für Militärangehörige.
+Die Dokumente, so Renz, werden auch dazu beitragen, dass ‹wir, das Volk› in der Lage sind, bei Schulausschusssitzungen, Stadtverordnetenversammlungen und anderen Foren mit Fakten zu argumentieren.
+Renz wies darauf hin, dass die DMED-Datenbank «als die führende epidemiologische Datenbank der Welt
+gilt, die von einer ganzen Abteilung des Militärs überwacht wird, Teil der Daten ist, die dem DHHS in Bezug
+auf die Sicherheit von Impfstoffen zur Verfügung gestellt werden, und häufig von Fachleuten des öffentlichen Gesundheitswesens in von Fachleuten geprüften Veröffentlichungen zitiert wird.»
+«Nachdem wir diese Daten Senator Johnson in einer öffentlichen Anhörung vorgelegt haben und er einen
+Brief an den Verteidigungsminister bezüglich dieser Informationen geschrieben hat, war die einzige Antwort
+des Verteidigungsministeriums die einer ‹Faktenüberprüfungs›-Organisation, die besagt, dass eine Störung
+in dieser Datenbank aufgetreten ist, die die Daten von 2016–2020 betrifft», schrieb er.
+Ein Sprecher des Pentagons erklärte gegenüber Politifact, dass der dramatische Unterschied auf eine ‹Störung› in der Datenbank oder eine ‹Datenkorruption› zurückzuführen sei und betonte, dass 2021 keine Anomalie gewesen sei.
+Aber Renz argumentierte, dass, wenn es wirklich eine Panne gab, eine Schlüsseldatenbank, auf die sich Dr.
+Anthony Fauci und das Weisse Haus, das Gesundheitsministerium, das Verteidigungsministerium und Beamte des öffentlichen Gesundheitswesens auf der ganzen Welt verlassen, um ‹die Wissenschaft› zu bestimmen, fünf Jahre lang falsch war, einschliesslich des Pandemiejahres 2020.
+«Der Fehler hat sich dann im Jahr 2021 auf magische Weise selbst repariert, obwohl der Fehler unbemerkt
+blieb, bis wir diese Information im Jahr 2022 weitergaben», schrieb Renz.
+Er bezog sich darauf, dass das Verteidigungsministerium später die Zahlen von 2016 bis 2020 anpasste,
+um den Anschein zu erwecken, dass die Zahlen für 2021 mit denen der Vorjahre übereinstimmten.
+Wie der investigative Reporter Daniel Horowitz von ‹TheBlaze› feststellte, erklärt das Pentagon nicht, warum
+die ‹wahren Zahlen› fünf Jahre lang nicht im System waren, was die Zahlen im System darstellten und
+warum die Zahlen für 2021 korrekt waren.
+Letztendlich sei es egal, ob die vorangegangenen fünf Jahre ähnlich wie 2021 waren oder ob 2021 abnormal war, eines von zwei Dingen sei wahr, schrieb er.
+
+
+-----
+
+«Entweder gab es massenhafte Impfschäden beim Militär, oder unser Militär war sehr ungesund und das
+Pentagon hat die Kontrolle über die epidemiologische Überwachung dieser Gesundheitsprobleme über
+Jahre hinweg völlig verloren. In jedem Fall ist dies die Geschichte des Jahres.»
+Renz sagte, dass das Verteidigungsministerium seines Wissens nach immer noch nicht auf sein Team von
+Whistleblowern und auf einen Brief von Senator Johnson an Verteidigungsminister Lloyd Austin geantwortet
+hat.
+Die DoD-Datenbank, so schrieb Johnson, zeige auch einen Anstieg von 2020 auf 2021 bei den folgenden
+Erkrankungen: Bluthochdruck (2181%), Erkrankungen des Nervensystems (1048%), bösartige Neubildungen der Speiseröhre (894%), Multiple Sklerose (680%), bösartige Neubildungen der Verdauungsorgane
+(624%), Guillain-Barre-Syndrom (551%), Brustkrebs (487%), Demyelinisierung (487%), bösartige Neubildungen der Schilddrüse und anderer endokriner Drüsen (474%), weibliche Unfruchtbarkeit (472%), Lungenembolie (468%), Migräne (452%), Funktionsstörungen der Eierstöcke (437%), Hodenkrebs (369%),
+Tachykardie (302%).
+Renz sagte, die Gesamtheit der verfügbaren Beweise sei viel zu umfangreich, um sie hier aufzuführen, und
+er hat sich auf einige Schlüsseldokumente konzentriert. Jedem Dokument ist eine Zusammenfassung in
+Form von Aufzählungspunkten vorangestellt.
+Die Dokumente umfassen:
+Beweise, die dem Bundesgericht bezüglich der DMED-Daten vorgelegt wurden;
+Ein Dokument des Verteidigungsministeriums, das zeigt, dass Fauci gelogen hat, als er behauptete, es handele sich um eine ‹Krise der Ungeimpften›, und das zeigt, dass die Injektionen bei Minderheiten sogar noch
+weniger wirksam sind;
+Ein Dokument von Pfizer, aus dem hervorgeht, dass die Gefahren dieser Injektionen schon sehr früh bekannt waren und dass mögliche Nebenwirkungen seit der Entwicklung der Injektionen vertuscht wurden;
+Eine FDA-Präsentation, die Kategorien von erwarteten Nebenwirkungen aufzeigt, die der Öffentlichkeit nie
+mitgeteilt wurden, sowie eine Liste von Datenquellen, die der Öffentlichkeit vorenthalten werden;
+Ein DoD Senior Leader Briefing, aus dem hervorgeht, dass ganze 25% der aktiven Soldaten und Reservisten
+den ‹Impfprozess› nicht abgeschlossen haben und daher aus dem Militär entlassen werden können;
+Präsentationen, die die enthaltenen Informationen zusammenfassen und zusätzlichen Kontext liefern; und
+Obwohl nicht enthalten, können wir Unterlagen von Pfizer und Moderna vorlegen, die belegen, dass diese
+Injektionen tatsächlich Gentherapien sind.
+Siehe Renz Aussage vor dem Ausschuss von Senator Ron Johnson am 24. Januar:
+
+_Quelle: https://uncutnews.ch/anwalt-der-daten-ueber-impfverletzungen-i_
+_m-dod-veroeffentlicht-hat-stellt-das-fbi-vor-gericht/_
+
+##### Der Kulturschock: Zurück im Land des Hasses und der Panik
+_Autor Vera Lengsfeld Veröffentlicht am 8. März 2022_
+_Von Gastautor Ramin Peymani_
+
+Nach etlichen Wochen in England ist die Rückkehr nach Deutschland inzwischen ein unerquickliches Erlebnis. Jedenfalls für mich. Ich bin nun eine Woche hier und habe mich immer noch nicht von dem Kulturschock erholt, den die Wiedereinreise ausgelöst hat. Schon bei der Ankunft am Flughafen merkt man, dass
+die beiden Länder viel mehr trennt als der Linksverkehr und eine Stunde Zeitverschiebung. Es handelt sich
+sprichwörtlich um zwei Welten, die nebeneinanderher existieren. Und die Verhältnisse in Deutschland erschüttern mich. Es ist beileibe nicht so, dass mich die Entwicklungen der jüngeren Vergangenheit überraschen. Ich habe weiss Gott oft genug gewarnt. Dass sie sich jedoch in der Zeit meiner recht kurzen Abwesenheit noch einmal derart beschleunigen und verstärken würden, hätte ich kaum für möglich gehalten.
+Ich erkenne viele meiner Mitmenschen nicht mehr wieder, vor allem aber bin ich erschrocken über die
+deutsche Gesellschaft. Hass, Bitterkeit und Panik bestimmen den Alltag in einer Form, die mir regelrecht
+
+
+-----
+
+Angst macht. Ich habe in den fünf Jahrzehnten zuvor niemals eine so gespaltene, sich an vielen Stellen gar
+feindlich gegenüberstehende Bevölkerung erlebt. Assistiert von den Medien, hat die Politik das Land verwüstet, gesellschaftliche Strukturen zerstört und zerrüttete Familien geschaffen. Das Ergebnis sind Millionen
+hemmungsloser Beisswütiger. Das öffentliche Leben macht nur noch wenig Spass. Schon der Lebensmitteleinkauf ist deprimierend: Dort, wo die Maske im Freien kurz abgenommen wird, schaut man in verkniffene,
+unglückliche Gesichter. Ein Volk gedrückter Bücklinge versucht möglichst nicht aufzufallen und schleicht
+geduckt in die vermeintliche Sicherheit der eigenen Wohnung. So sieht das aus, wenn totalitäre Strömungen
+sich des Alltags bemächtigen.
+Die strammen Blockwarte machen mich noch mehr betroffen als die vielen traurigen, desillusionierten
+Gesichter der Hilflosigkeit, in die ich täglich auf der Strasse blicke.
+Natürlich gibt es mindestens so viele Stramme, die erst unter immer strafferer staatlicher Führung so richtig
+aufblühen, sei es, weil sie selbst nun endlich einen Lebensinhalt als Blockwart gefunden haben, oder weil
+sie sich einfach gut dabei fühlen, Vorschriften überzuerfüllen. Das macht mich noch mehr betroffen als die
+vielen traurigen, desillusionierten Gesichter der Hilflosigkeit. Und während rings um Deutschland herum
+zumindest beim Thema Corona inzwischen beinahe alle Staaten lockerlassen, hat sich die Bundesregierung
+offenbar in den Kopf gesetzt, immer neue Gründe zu erfinden, warum die Knechtschaft noch nicht enden
+darf. Gesundheitsminister Karl Lauterbach leidet Höllenqualen, weil ihm ein gewisser Wladimir Putin medial
+den Rang abgelaufen hat. Was macht ein Mann, der seinen einzigen Lebenszweck in möglichst vielen Fernsehauftritten und Interviews zu sehen scheint, wenn er plötzlich nur noch selten gefragt wird? Ich mache
+mir Sorgen um ihn. Hält er das durch? Der Eindruck verdichtet sich zunehmend, dass Lauterbach mit
+immer verrückteren Wortmeldungen den Kopf über der Wahrnehmungsschwelle zu halten versucht, um
+nicht in der Bedeutungslosigkeit unterzugehen. Wer prognostiziert, Covid-19 werde noch Jahrzehnte eine
+so grosse Gefahr darstellen, dass der Staat schützende Massnahmen zu ergreifen habe, muss sich ernsthaft
+die Frage gefallen lassen, was mit ihm nicht stimmt. Und wer eine ‹Corona-Sommerwelle› mit explodierenden Inzidenzzahlen ankündigt, die uns in grösste Gefahr bringen werde, macht sich schlichtweg lächerlich.
+Weltweit ist es etablierter Wissenschaftsstandard, dass spätestens seit Omikron die sogenannten Inzidenzen
+keine Rolle mehr spielen. Das haben sie übrigens nie. Und das weiss auch Lauterbach – hoffentlich.
+Den ganzen Zirkus wieder mitzumachen in dem Wissen, dass es sich dabei um die Muskelspiele einer ausser Kontrolle geratenen Kaste handelt, zerrt an den Nerven.
+Unterdessen kommt anderswo die Aufarbeitung der Fehler, Lügen und Täuschungen der letzten zwei Jahre
+voran, insbesondere in Grossbritannien. Daran kann auch die enorme mediale Fokussierung auf den
+Ukraine-Krieg nichts ändern. Unter dem Druck weiter Teile der Bevölkerung musste die britische Regierung
+nicht nur sämtliche Corona-Gesetze in England abschaffen und ihre Impfpasspläne sowie die Impfpflicht
+einmotten, sondern auch das zweifelhafte und durch eine Agenda des Angstmachens in Verruf geratene
+Beratergremium SAGE aufgeben. So funktioniert das dort, wo die demokratischen Mechanismen noch halbwegs intakt sind. Niemand spricht heute noch von Masken, Abstandsregeln oder Zugangsbeschränkungen.
+Umso schlimmer war es, wieder deutschen Boden zu betreten. Es fällt mir nun schwerer als je zuvor, mich
+den Insignien der Macht zu unterwerfen. In England war ich trotz der Aufhebung fast aller Regeln im Januar
+seither nirgendwo über Omikron-Leichen gestolpert. Nicht einmal die Krankenhäuser meldeten Land unter.
+Und ich selbst bin wie durch ein Wunder immer noch am Leben und erfreue mich allerbester Gesundheit.
+Den ganzen Zirkus wieder mitzumachen in dem Wissen, dass es sich dabei um die Muskelspiele einer ausser Kontrolle geratenen Kaste handelt, zerrt an den Nerven. Allein die Aussicht, schon bald wieder nach
+England zurückzukehren, trägt mich durch den hasserfüllten, panikgeschwängerten Alltag, in dem die Aufgehetzten sich vorübergehend andere Zielscheiben gesucht haben. Schon in wenigen Wochen wird die
+Ukraine nicht mehr die Schlagzeilen bestimmen. Dann wird den Abermillionen panischer Hasser ein neues
+herrschaftsdienliches Thema serviert, das ihnen als Legitimation dazu dient, sich auf Andersdenkende zu
+stürzen.
+_Dieser Beitrag erschien zuerst auf: peymani.de_
+_Quelle: https://vera-lengsfeld.de/2022/03/08/der-kulturschock-zurueck-im-land-des-hasses-und-der-panik/_
+
+##### Warum sind US-Labors nicht verpflichtet, die Öffentlichkeit über hochriskante Experimente mit Coronaviren zu informieren?
+_uncut-news.ch, März 9, 2022_
+
+childrenshealthdefense.org: Es ist höchste Zeit für eine neue globale Architektur für die Steuerung der Biowissenschaften, die einen umfassenden und kohärenten Ansatz für das Biorisikomanagement verfolgt und
+die Art und Weise, wie hochriskante biowissenschaftliche Forschungs-, Finanzierungs- und Veröffentlichungsprozesse durchgeführt werden, überarbeitet.
+_Von Gregory D. Koblentz und Filippa Lentzos_
+
+
+-----
+
+Ende 2021 haben die Centers for Disease Control and Prevention (CDC) in aller Stille ‹chimäre Viren› –
+Viren, die genetisches Material von zwei oder mehr verschiedenen Viren enthalten – in ihre Liste der gefährlichsten Krankheitserreger aufgenommen.
+Die CDC stufte diese Art von Forschung als ‹eingeschränktes Experiment› ein, das vom Sekretär des USGesundheitsministeriums genehmigt werden muss – einer Abteilung der Bundesregierung, die für den
+Schutz der Gesundheit der Amerikaner zuständig ist.
+Die CDC ist der Ansicht, dass eine sofortige behördliche Aufsicht über diese Experimente unerlässlich ist,
+um die Öffentlichkeit vor den möglichen Folgen einer Freisetzung dieser Viren zu schützen.
+Es ist möglich, dass mindestens ein Labor in den USA an der Durchführung von Experimenten zur Herstellung einer gefährlicheren Version von SARS-CoV-2, dem Virus, das COVID verursacht, interessiert ist.
+Bei den Experimenten würde dem SARS-CoV-2-Stamm genetisches Material des ursprünglichen SARSVirus, das 2003 erstmals auftrat, hinzugefügt, um ein aggressives ‹chimäres Virus› zu erzeugen.
+Wir sagen, dass es ‹möglich› ist, dass chimäre Coronaviren hergestellt wurden, weil wir es einfach nicht mit
+Sicherheit wissen. Die US-Labors sind nicht verpflichtet, solche Experimente öffentlich zu melden, zu erklären oder zu rechtfertigen. Und dies wirft ein Schlaglicht auf ein grösseres Problem.
+Der derzeitige Ansatz zur Verhinderung der Erforschung hochriskanter Krankheitserreger ist bruchstückhaft
+und reaktiv. Er fördert keine breitere öffentliche Debatte darüber, ob der potenzielle gesellschaftliche Nutzen solcher Forschung die erheblichen Risiken überwiegt.
+Der Welt fehlt ein umfassender Ansatz für das Biorisikomanagement, der die biologische Sicherheit, die
+Biosicherheit und die Überwachung von Forschung mit doppeltem Verwendungszweck einbezieht, d.h. Forschung, die einen eindeutigen Nutzen bringen soll, aber leicht zum Schaden missbraucht werden kann.
+
+**Nicht die einzige Art von gefährlicher Forschung**
+Die Forschung mit gefährlichen Krankheitserregern ist nur eine von vielen Arten biowissenschaftlicher Forschung mit hochriskanten Folgen.
+In dem Masse, wie wir durch wissenschaftliche Fortschritte mehr über die gesunden Funktionen von Menschen, Tieren und Pflanzen lernen, erfahren wir auch unbeabsichtigt mehr darüber, wie diese gesunden
+Funktionen möglicherweise gestört werden können, um absichtlich Schaden anzurichten.
+In einem kürzlich erschienenen Bericht der Wissenschaftsabteilung der Weltgesundheitsorganisation wurden beispielsweise mehrere Bereiche der Biowissenschaften mit Missbrauchspotenzial genannt.
+Dazu gehören Gentherapie, virale Vektoren, Genom-Editierung, Gene Drives (eine Methode zur Veränderung
+einer ganzen Population einer bestimmten Art durch Veränderung ihres Genoms), synthetische Biologie
+und Neurobiologie.
+Die Risiken der Wiederverwendung von Informationen, Methoden oder Technologien aus diesen Bereichen,
+um absichtlich Schaden anzurichten, werden durch die derzeitigen Governance-Mechanismen und -Verfahren nicht angemessen behandelt. Dies gilt auch für die Herausforderungen, die sich aus der Konvergenz
+der Biowissenschaften mit Technologien wie maschinellem Lernen, künstlicher Intelligenz, Robotik, Nanotechnologie und Datenanalyse ergeben, die nicht nur neue Möglichkeiten zur Verbesserung der Gesundheit
+eröffnen, sondern auch die Möglichkeit bieten, leichter grösseren Schaden anzurichten.
+Eine im Jahr 2021 durchgeführte Erhebung über die Politik des Biorisikomanagements in der ganzen Welt
+ergab, dass die meisten Länder nicht über umfassende nationale Systeme für Biosicherheit und Biosicherheitsmanagement verfügen.
+Selbst Länder wie die USA, die bei Biosicherheit und Biosicherheit sehr gut abschneiden, haben diese Massnahmen in der Praxis nur unzureichend umgesetzt, wie die fragwürdige Aufsicht über die von den National
+Institutes of Health finanzierte Gain-of-Function-Forschung an potenziellen Pandemieerregern zeigt.
+Angesichts der zunehmenden Zahl von Ländern, die hochriskante biowissenschaftliche Forschung betreiben, und der potenziellen globalen Auswirkungen eines versehentlichen oder vorsätzlichen Missbrauchs
+der Wissenschaft sind internationale Standards, die die Erwartungen und Verantwortlichkeiten für eine
+sichere und verantwortungsvolle Forschung festlegen, dringend erforderlich.
+
+**Mit Volldampf voraus**
+Wir befinden uns an einem entscheidenden Punkt: Die risikoreiche biowissenschaftliche Forschung schreitet voran, obwohl es Indikatoren und Warnzeichen dafür gibt, dass Risikobewertungen nicht umfassend
+und transparent durchgeführt werden.
+Wir können uns kein übermässiges Vertrauen in die Sicherheitspraktiken von Biowissenschaftlern, ihren
+Einrichtungen, Geldgebern und Verlagen leisten.
+Wir müssen aufhören, auf einzelne Experimente vorschnell zu reagieren und Sicherheits- und Dual-UseRisiken isoliert zu behandeln.
+Es ist höchste Zeit für eine neue globale Architektur für die Steuerung der Biowissenschaften, die einen
+umfassenden und kohärenten Ansatz für das Biorisikomanagement verfolgt und die Art und Weise über
+
+-----
+
+denkt, wie risikoreiche biowissenschaftliche Forschungs-, Finanzierungs- und Veröffentlichungsprozesse
+durchgeführt werden.
+Die Welt muss sicherstellen, dass grundlegende und angewandte biowissenschaftliche Kenntnisse, Materialien und Fähigkeiten für friedliche Zwecke und zum Wohle der Menschen und der Gesundheit des Planeten genutzt werden.
+_Ursprünglich veröffentlicht in ‹The Conversation›. Gregory D. Koblentz ist ausserordentlicher Professor und Direktor des_
+_Biodefense Graduate Program an der George Mason University. Filippa Lentzos ist Dozentin für Wissenschaft und internatio-_
+_nale Sicherheit und Co-Direktorin des Centre for Science & Security Studies am King’s College London._
+_QUELLE: WHY AREN’T U.S. LABS REQUIRED TO INFORM PUBLIC ABOUT HIGH-RISK EXPERIMENTS ON CORONAVIRUSES?_
+_Quelle: https://uncutnews.ch/warum-sind-us-labors-nicht-verpflichtet-die-oeffentlichkeit-ueber-hochriskante-experimente-_
+_mit-coronaviren-zu-informieren/_
+
+##### Israel: Mehr als 66% leiden jetzt unter unerwünschten Impfstoffnebenwirkungen, viele davon sind schwerwiegend
+_uncut-news.ch, März 9, 2022_
+
+Neuen Berichten zufolge erleidet die überwiegende Mehrheit der ‹vollständig geimpften› Israelis jetzt aufgrund der Injektionen unerwünschte Reaktionen, viele davon schwerwiegend. Die Leichen häufen sich, mit
+anderen Worten.
+Das israelische Gesundheitsministerium hat Daten aus einer kürzlich durchgeführten Umfrage veröffentlicht, aus denen hervorgeht, dass mehr als 66 Prozent der Menschen in Israel, die vollständig geimpft und
+dann ‹geboostet› wurden, irgendeine Art von Reaktion auf die Impfungen erlitten haben, die ein normales
+Leben erheblich erschwert hat.
+Etwa 2049 Bürger wurden drei bis vier Wochen nach der dritten ‹Dosis› der Fauci-Grippeimpfung gefragt,
+wie sie sich jetzt fühlen. Die meisten von ihnen gaben an, dass sie sich schrecklich fühlen, und etwa die
+Hälfte von ihnen sagte, dass es jetzt ausserordentlich schwierig ist, normale, alltägliche Tätigkeiten auszuführen.
+Die Umfrage wurde im September und Oktober 2021 per Telefon durchgeführt. An der Umfrage nahmen
+nur Personen ab 18 Jahren teil, die sich innerhalb von 21 bis 30 Tagen nach der zweiten Injektion eine
+dritte Covid-Nadel gesetzt hatten.
+Die gemeldeten unerwünschten Ereignisse reichten von leicht bis schwerwiegend. Viele der Frauen gaben
+zum Beispiel an, dass sie nun unter Menstruationsstörungen leiden, während einige sogar ins Krankenhaus
+eingeliefert werden mussten. Wie sich herausstellte, waren die am meisten von der Impfung betroffenen
+befragten Frauen und junge Menschen.
+Die häufigsten Nebenwirkungen bei Frauen waren Menstruationsunregelmässigkeiten, berichtet ‹LifeSite
+News›.
+Die am häufigsten berichteten Symptome waren Verzögerungen der Menstruation (37,8%), verstärkte Menstruationsblutungen (31,1%), vorzeitige Menstruation (28,9%), längere Blutungsdauer (26,7%) und starke
+Menstruationsschmerzen (20%).
+
+**COVID-‹Impfstoffe› töteten 260-mal mehr junge Menschen,**
+**als gestorben wären, wenn alle ungeimpft geblieben wären**
+Wie wir letztes Jahr berichteten, hat Israel eines der aggressivsten Impfmandate der Welt eingeführt. Das
+Land gab auch einen ‹grünen Pass› heraus, um den Nachweis der Impfung als Bedingung für den Zutritt
+zu Theatern, Restaurants und anderen öffentlichen Einrichtungen zu überprüfen.
+Den Israelis wurde gesagt, dass sie sich jetzt so gut wie immer impfen lassen müssen, um gegen die WuhanInfektion ‹geschützt› zu sein. Und jetzt kommen die Folgen dieser Politik wie ein Peitschenhieb.
+Israel war eines der ersten Länder der Welt, das eine nationale Auffrischungsimpfungskampagne gestartet
+hat; sie begann im August letzten Jahres, fügte ‹LifeSiteNews› hinzu.
+Dennoch traten weiterhin sogenannte ‹Durchbruchsinfektionen› bei denjenigen auf, die die Auffrischungsimpfungen erhalten hatten.
+Eine andere aktuelle Studie ergab, dass die Sterblichkeitsrate bei älteren Menschen, die sich mit der PfizermRNA-Spritze impfen liessen, 40-mal höher ist, als sie es gewesen wäre, wenn alle ungeimpft geblieben
+wären.
+Derselbe Datensatz ergab, dass die Sterblichkeitsrate unter jungen Menschen sogar noch höher ist, nämlich
+260-mal höher, als sie gewesen wäre, wenn alle jungen Menschen ihr Immunsystem die Arbeit machen
+liessen.
+_QUELLE: ISRAEL: MORE THAN 66% ARE NOW SUFFERING ADVERSE VACCINE REACTIONS, MANY OF THEMSERIO US_
+_Quelle: https://uncutnews.ch/israel-mehr-als-66-leiden-jetzt-unter-unerwuenschten-impfstoffnebenwirkungen-viele-davon-_
+_sind-schwerwiegend/_
+
+
+-----
+
+##### Aufruf an alle in Gesundheits- und Pflegeberufen  Tätigen zum Widerstandgegen ihre Impfpflicht
+_hwludwig Veröffentlicht am 9. März 2022_
+
+**Die Gesellschaft der ‹Mediziner und Wissenschaftler für Gesundheit, Freiheit und Demokratie, e.V.›**
+**(MWGFD), ein Zusammenschluss von in Medizinberufen tätigen Personen und Wissenschaftlern, die sich**
+**in Forschung und Lehre mit den Themen Gesundheit, Freiheit und Demokratie beschäftigen, hat alle**
+**Gesundheits- u. Pflegeberufe aufgerufen, gegen die ab 15. März 2022 geltende Impfpflicht jetzt ent-**
+**schlossenen Widerstand zu leisten. Die ‹Impfung› verhindere keine Ansteckung, die RNA-Stoffe verur-**
+**sachten schwere Organschäden und das in die Zelle eingebrachte ‹Rezept› zur Herstellung von Virus-**
+**bestandteilen werde in das menschliche Erbgut eingebaut und führe so zu vererbbaren Veränderungen**
+**des menschlichen Genoms, wie vermehrte Krebs-Arten zeigten. (hl)**
+**Mediziner und Wissenschaftler für Gesundheit, Freiheit und Demokratie, e.V. (MWGFD)**
+**An alle Menschen, die von der von Karl Lauterbach eingeführten einrichtungsbezogenen Impfpflicht**
+**bedroht sind.**
+
+8. März 2022
+
+Sehr geehrte Damen und Herren,
+zum ersten Mal in der der Geschichte der deutschen Medizin sollen Menschen gezwungen werden, sich ein
+Medikament, welches weder in seinen Wirkungen noch in seinen Nebenwirkungen ausreichend untersucht
+wurde, verabreichen zu lassen.
+Kürzlich veröffentlichte Untersuchungen von Pathologen und Immunologen haben nun wahrlich erschrekkende Befunde über Wirkungsweise und Nebenwirkungen der sog. Corona-RNA-Impfungen ergeben. Sie
+stehen in eindeutigem Widerspruch zu den Versprechungen von Politikern und industriegesponserten Wissenschaftlern.
+
+**Hier die wichtigsten Ergebnisse in Kürze:**
+1. Die Ansteckungsgefahr mit SARS-COV 2 durch Geimpfte wie Ungeimpfte ist absolut identisch. Der verfassungswidrige Ausschluss Ungeimpfter vom sozialen Leben ist durch kein Argument zu rechtfertigen.
+_https://www.thelancet.com/journals/laninf/article/PIIS1473-3099(21)00768-4/fulltext_
+2. Sowohl der gentechnisch hergestellte RNA-Impfstoff wie auch die über diesen hergestellten Virusbestandteile (Spike-Proteine) überleben wesentlich länger im Körper, als uns von Herstellern und der Politik weisgemacht wird.
+Es existieren nun unwiderlegbare pathologisch-anatomische Befunde, welche diese Substanzen bis zu
+mehreren Monaten in den Lymphknoten, Blutgefässen und einer Vielzahl von Organen nachweisen
+konnten. Die jetzt nachgewiesenen pathologischen Befunde von an der Impfung Verstorbenen weisen
+auf mögliche chronische, durch die Impfung verursachte, Organschäden hin.
+_https://www.pathologie-konferenz.de/_
+_https://www.cell.com/cell/fulltext/S0092-8674(22)00076-9?_returnURL=https%3A%2F%2Flinkinghub.elsevier.com_
+_%2Fretrieve%2Fpii%2FS0092867422000769%3Fshowall%3Dtrue_
+3. Die wohl erschreckendste Nachricht erreichte uns Anfang März 2022:
+Das durch die RNA-Impfung in die Zelle eingebrachte ‹Rezept› (RNA) zur Herstellung von Virusbestandteilen wird innerhalb der Zelle in DNA umgeschrieben. Die Möglichkeit besteht, dass diese DNA in das
+menschliche Erbgut eingebaut werden kann und so zu dauerhaften, vererbbaren Veränderungen des
+menschlichen Genoms führt. Die massive Erhöhung des Auftretens bestimmter Krebs-Arten ist ein Indiz
+dafür, dass dies tatsächlich geschieht.
+_https://sciprofiles.com/publication/view/b24eb077d839b08d06f0cb2758781718_
+
+Sie, sehr geehrte Damen und Herren, stehen nun in der ersten Frontlinie gegen den Angriff auf Ihre körperliche Unversehrtheit und die Ihrer Kinder.
+Wenn Sie sich jetzt nicht gegen diese rein macht- und wirtschaftspolitischen Erwägungen entsprungene
+Vergewaltigung Ihrer Gesundheit wehren, ist das letzte Bollwerk gegen die allgemeine Impfpflicht, über die
+bereits im März dieses Jahres entschieden wird, gefallen.
+**Deshalb ist Ihr entschlossener Widerstand JETZT nötig!**
+_Quelle: https://fassadenkratzer.wordpress.com/2022/03/09/aufruf-an-alle-in-gesundheits-und-pflegeberufen-tatigen-zum-_
+_widerstand-gegen-ihre-impfpflicht/_
+
+
+-----
+
+##### Besser ohne Multitasking
+_Von Emma Suttie7. März 2022 Aktualisiert: 4. März 2022 8:21_
+
+Sich nur auf eine Sache zu konzentrieren, ist sowohl aus östlicher als auch aus westlicher Sicht eine gesündere Art zu leben.
+Wie viele von uns wurden mit dem Lobgesang auf das Multitasking gross – diesem strahlenden Leuchtfeuer
+der Produktivität, das wir alle anstreben sollten? Aber die unbequeme Wahrheit ist, dass Multitasking nicht
+nur schlecht für unser Gehirn ist, sondern dass wir einfach nicht dafür geschaffen sind.
+Die meisten von uns verbringen einen grossen Teil des Tages mit Multitasking. Ob wir nun Radio hören,
+während wir Frühstück machen, beim Essen die Zeitung lesen, oder durch unseren Instagram-Feed scrollen,
+während wir arbeiten – wir machen routinemässig mehrere Dinge zur gleichen Zeit.
+
+_Foto: istockphoto_
+
+Multitasking scheint eine grossartige Möglichkeit zu sein, produktiv zu sein, indem man viele Dinge auf
+einmal tut. In Wirklichkeit wechseln wir aber von einer Sache zur anderen, weil unser Gehirn einfach nicht
+mehr als eine Sache auf einmal erledigen kann.
+Untersuchungen haben gezeigt, dass Multitasking unsere Konzentrationsfähigkeit beeinträchtigt, den
+Stresspegel erhöht und dazu führt, dass wir mehr Fehler machen.
+
+**Multitasking und das Gehirn**
+In letzter Zeit wurde viel über die Funktionsweise und die Verarbeitungsgrenzen des Gehirns geforscht. Ein
+Artikel, der 2019 in der Zeitschrift ‹Cerebrum› veröffentlicht wurde, fasst mehrere interessante Erkenntnisse
+zusammen, darunter auch, dass wir dazu neigen, unsere Fähigkeit zum effektiven Multitasking zu überschätzen. Die Forschung hat gezeigt, dass das Gehirn nur für eine Sache zur gleichen Zeit geeignet ist und
+Multitasking mehrere wichtige Systeme belastet. Multitasker erledigen Aufgaben langsamer und weniger
+effizient und lassen sich leichter ablenken.
+Interessant ist auch, dass einige Zusammenhänge zwischen chronischen Multitaskern und bestimmten Persönlichkeitsmerkmalen festgestellt wurden, beispielsweise, dass chronische Multitasker eher impulsiv sind.
+Allerdings ist noch unklar, ob Menschen mit bestimmten Merkmalen eher zum Multitasking neigen oder
+ob starke Multitasker ihr Gehirn tatsächlich neu verdrahten.
+In einer am Massachusetts Institute of Technology (MIT) durchgeführten Studie zeigen Wissenschaftler die
+Gefahren des Multitasking auf, insbesondere im Zusammenhang mit dem Autofahren. Wenn das Gehirn
+von einer Aufgabe zur nächsten wechselt, nutzt es das, was Neurologen als exekutive Funktion bezeichnen.
+Dabei handelt es sich um kognitive Prozesse, die bestimmen, wie, wann und in welcher Reihenfolge Aufgaben ausgeführt werden.
+Dies geschieht in zwei Teilen, nämlich Zielverschiebung und Regelaktivierung.
+Zielverschiebung ist das, was passiert, wenn wir uns entscheiden, etwas anderes zu tun. Regelaktivierung
+bedeutet, dass das Gehirn seinen Fokus von den Informationen, die für die aktuelle Aufgabe benötigt werden, auf die Informationen verlagert, die für die neue Aufgabe erforderlich sind.
+Psychologen bezeichnen dies als ‹Kosten des Aufgabenwechsels›, also die negativen Auswirkungen, die mit
+dem Wechsel von einer Aufgabe zu einer anderen verbunden sind. Sie führen dazu, dass die Genauigkeit
+abnimmt und die Zeit, die für die Erledigung einer Aufgabe benötigt wird, zunimmt. All diese Prozesse
+dauern nur Bruchteile von Sekunden, aber diese Zeit kann sich summieren, wenn wir ständig hin und her
+wechseln. Und sie kann potenziell gefährlich werden, wenn wir etwas tun, bei dem unsere ungeteilte Aufmerksamkeit entscheidend ist, wie etwa beim Autofahren.
+Die Ergebnisse der MIT-Studie erklären, dass unsere Augen nur in der Mitte unseres Blickfeldes klar sehen
+können und das Gehirn den Rest der Informationen im Gesichtsfeld ‹ausfüllt›. Ein durchschnittlicher Erwachsener ist nur in der Lage, drei oder vier Dinge gleichzeitig wahrzunehmen und zu verarbeiten. Und die
+kognitive Leistung nimmt ab, je mehr wir zu verarbeiten versuchen. Multitasking mag harmlos sein, wenn
+wir zum Beispiel beim Fernsehen die Wäsche zusammenlegen. Aber bei Aufgaben wie Autofahren, bei
+denen es auf Sekundenbruchteile ankommt, kann es katastrophale Folgen haben. Die Studie schätzt, dass
+50 Prozent aller Unfälle im Strassenverkehr auf abgelenktes Fahrverhalten zurückzuführen sind.
+
+
+-----
+
+**Die östliche Sicht auf Multitasking**
+In der östlichen Medizin sind die schädlichen Auswirkungen von Multitasking wohlbekannt, aber ihr Ursprung ist vielleicht ungewöhnlich. Man geht davon aus, dass Multitasking nicht das Gehirn an sich, sondern
+die Milz beeinträchtigt. Die Milz findet in der westlichen Medizin wenig Beachtung, ist aber in der östlichen
+Medizin von entscheidender Bedeutung. Sie befindet sich im oberen linken Quadranten des Bauches, ist
+ein wichtiger Teil des Immunsystems und das grösste lymphatische Organ des Körpers.
+In der östlichen Medizin sind die Milz und der Magen die Hauptorgane der Verdauung. Dabei handelt es
+sich jedoch nicht um die Verdauung im herkömmlichen Sinne. Milz und Magen verdauen und verarbeiten
+nicht nur Speisen und Getränke, sondern auch alle Reize, die über unsere Sinnesorgane aufgenommen
+werden.
+Nach dieser Auffassung steht die Milz in direktem Zusammenhang mit unserer Fähigkeit, Informationen zu
+verarbeiten. Wie gut wir unsere Gedanken steuern, uns konzentrieren, Urteilsvermögen besitzen und Entscheidungen treffen können, hängt von der Stärke der Milz ab.
+Dieser Gedanke mag seltsam erscheinen, aber je mehr wir über die unvorstellbare Komplexität des menschlichen Körpers erfahren, desto mehr sehen wir, dass er als ein hochgradig integriertes Ganzes funktioniert.
+Während also die westliche Wissenschaft Multitasking ausschliesslich anhand seiner Auswirkungen auf das
+Gehirn beschreibt, ist es wichtig zu erkennen, dass das, was im Geist geschieht, übergreifende Auswirkungen auf den Körper hat. Aus Sicht der östlichen Medizin spielt die Milz in diesem Prozess eine wichtige
+Rolle.
+Sowohl Sorgen als auch übermässiges Denken werden mit der Milz in Verbindung gebracht. Und wenn
+man beidem zu sehr nachgibt, wird ihre Fähigkeit, wichtige Funktionen im Körper zu erfüllen, beeinträchtigt.
+Dies ähnelt der Entdeckung, dass Stress die Biochemie des Körpers auf tiefgreifende Weise verändert,
+indem er verschiedene Hormone ausschüttet und verschiedene Prozesse aktiviert oder stilllegt. Eine durch
+andere Faktoren geschwächte Milz, etwa durch zu viele äussere Reize, macht einen Menschen anfälliger für
+Sorgen. Diese können sich zu Angstzuständen und Depressionen entwickeln, die in der modernen Welt an
+der Tagesordnung sind.
+So wie Ernährung und Bewegung unsere Emotionen und unsere Neurologie beeinflussen können, ist nach
+östlicher Auffassung Kälte ein wichtiger Faktor, der die Fähigkeit der Milz, ordnungsgemäss zu verdauen
+und zu verarbeiten, beeinträchtigt. Kälte verlangsamt, verhärtet und verengt verschiedene Prozesse im Körper und soll auch ‹das Verdauungsfeuer auslöschen›. Das Zufügen von Eis in Getränke und der Verzehr von
+kalten Speisen, insbesondere von Eiscreme, schwächt die Milz. Die Milz hat auch eine wichtige Aufgabe bei
+der Erzeugung von Qi, der energetischen Kraft, die alle biologischen Prozesse antreibt. Daher ist es für die
+Gesundheit des gesamten Körpers wichtig, dass die Milz optimal funktioniert. Qi wird grösstenteils aus der
+Nahrung, die wir essen, und der Luft, die wir atmen, gebildet.
+Nach östlicher Auffassung besteht eine der besten Möglichkeiten, die Milz zu unterstützen und dafür zu
+sorgen, dass sie verschiedene Reize richtig verarbeiten kann, darin, eine Sache nach der anderen zu tun,
+und zwar mit bewusster Absicht. So kann die Milz ihre gesamte Energie effizient und ohne Verschwendung
+auf die anstehende Aufgabe konzentrieren.
+In diesem Sinne ist die Milz ein sehr überlastetes Organ im Kontext unseres geschäftigen modernen Lebensstils. Unser hektisches Leben, komplexe verarbeitete Lebensmittel, Umweltgifte und die mediale Überflutung überfordern uns. Das belastet nicht nur das Gehirn, sondern auch die begrenzte Verdauungs- und
+Verarbeitungskapazität der Milz. Für einen gesunden Körper und Geist ist es wichtig, eine Sache nach der
+anderen zu erledigen und häufig Pausen einzulegen.
+
+**Mit der Gewohnheit brechen**
+Wissenschaftler schlagen einige Möglichkeiten vor, wie wir uns das Multitasking abgewöhnen können.
+Als Erstes sollten Sie die Dinge, die Sie erledigen wollen, bewerten und nach Prioritäten ordnen. Erledigen
+Sie dann einfach das Wichtigste zuerst und versuchen Sie, dafür eine bestimmte Zeit einzuplanen, zum
+Beispiel eine oder zwei Stunden, bevor Sie zur nächsten Aufgabe auf Ihrer Liste übergehen.
+Planen Sie eine bestimmte Tageszeit ein, um Dinge wie das Lesen von E-Mails, das Besuchen sozialer Medien und alles andere, das Ihre Aufmerksamkeit stark beansprucht, zu erledigen. Auf diese Weise kann sich
+Ihr Gehirn entspannen, da es weiss, dass es diese Dinge erledigen und sich auf die anstehende Aufgabe
+konzentrieren kann.
+Wenn Sie Handys und andere Geräte, die Sie ablenken, in einen anderen Raum legen, können Sie sich auch
+das Multitasking abgewöhnen. Wenn Sie der Versuchung widerstehen, E-Mails zu checken oder auf Benachrichtigungen zu schauen, kann sich Ihr Gehirn konzentrieren, Ihr Körper entspannen und Sie produktiver
+machen.
+Multitasking scheint ein natürliches Nebenprodukt unserer schnelllebigen Zeit zu sein, in der uns eine Fülle
+von Informationen zur Verfügung steht. Dies ist zwar ein wunderbarer Vorteil der Technologie und des
+Lebens im Informationszeitalter, aber es kann sich als schwieriger erweisen, die Menge an Informationen,
+die wir gleichzeitig aufnehmen, zu bewältigen.
+
+
+-----
+
+_Quelle: https://www.epochtimes.de/feuilleton/besser-ohne-multitasking-a3728869.html_
+
+##### Robert Koch-Institut aktualisiert Risikobewertung  zu COVID-19 und Wirksamkeit der Impfung
+7 Mär. 2022 17:29 Uhr
+
+Ohne grössere Kommunikation änderte das RKI wesentliche Abschnitte in seiner COVID-19-Risikobewertung. Die Argumentation eines Übertragungsschutzes von COVID-19 durch eine Impfung wurde durch die
+Formulierung eines Impfschutzes vor ‹schwerer Erkrankung und Hospitalisierung› modifiziert.
+Für die meisten Bürger dieses Landes unbekannt, änderte das Robert Koch-Institut (RKI) am 28. März auf
+seiner Seite entscheidende Aussagen in seiner ‹Risikobewertung zu COVID-19›. In der alten Version hiess
+es als aktuelle Begründung für eine Bewertungsnotwendigkeit, dass die Gültigkeit der vorherigen Aktualisierung und Anpassung «aufgrund der Ausbreitung der Omikronvariante besonders in den Abschnitten Hintergrund, Empfehlungen und Krankheitsschwere» erfolgte. Die nun aktualisierte Textversion lautet: «Kürzungen im Text und Anpassungen in den Abschnitten Hintergrund, Empfehlungen und Krankheitsschwere.»
+
+Die Risikobewertung durch das RKI diente rückwirkend der Bundesregierung für die fortlaufende Argumentationslinie ihrer Massnahmenpolitik. Bezugnehmend der aktuellen Diskussion einer möglichen Impfpflicht
+ab Oktober 2022 dient sie jedoch argumentativ auch der Bundestagsgruppe, die am 3. März ihren ‹Entwurf
+eines Gesetzes zur Aufklärung, Beratung und Impfung aller Volljährigen gegen SARS-CoV-2› veröffentlichte
+(Bundestagsdrucksache 20/899, Seite 3). Bis zum 28. Februar war folgende Formulierung auf der Seite
+des RKI vorzufinden:
+
+**«Damit die Infektionsdynamik zurückgeht, müssen so viele Übertragungen wie möglich vermieden wer-**
+**den. Hierfür sind sowohl Kontaktreduktion und Einhaltung der AHA+L-Regeln sowie die Impfung erfor-**
+**derlich.»**
+
+Seit vergangener Woche lautet die Textpassage unter dem Punkt ‹Risikobewertung zu COVID-19› nun aktualisiert, d.h. ohne den expliziten Verweis auf die potenzielle Chance einer Vermeidung von Infektionen, dem
+sogenannten Fremdschutz durch erhaltene Impfungen, nur noch:
+
+**«Die Impfung bietet grundsätzlich einen guten Schutz vor schwerer Erkrankung und Hospitalisierung**
+**durch COVID-19, dies gilt auch für die Omikronvariante.»**
+
+Unter dem Punkt ‹Übertragbarkeit› erfolgt in der neuen Version nur noch der Hinweis seitens des RKI, dass
+«auch die Impfungen das Risiko von Übertragungen reduzieren, insbesondere in den ersten Wochen nach
+einer Impfung», eine Abschwächung in der Formulierung. In der alten Version hiess es noch:
+
+«... die Schutzwirkung (der Impfung) – insbesondere hinsichtlich mild verlaufender Erkrankungen – lässt
+allerdings nach wenigen Monaten nach.» Des weiteren hiess es in der alten Version, dass:
+
+**«… insbesondere den noch nicht grundimmunisierten Personen dringend empfohlen (wird), sich gegen**
+**COVID-19 impfen zu lassen und hierbei auf einen vollständigen Impfschutz zu achten. Für die Senkung**
+**der Neuinfektionen, den Schutz der Risikogruppen und die Minimierung schwerer Erkrankungen und**
+**Todesfälle ist die Impfung der Bevölkerung von zentraler Bedeutung.»**
+
+Dieser Abschnitt wurde für die Aktualisierung komplett rausgenommen. Bezugnehmend auf eine weiterhin
+vorhandene Notwendigkeit der AHA-Regeln (Abstand einhalten, Hygieneregeln beachten, Alltagsmasken
+tragen) heisst es in der aktuellen Version: «Alle diese Empfehlungen gelten auch für Geimpfte und Genesene
+unabhängig von dem angenommenen individuellen Immunschutz und helfen auch dabei, die Krankheitslast durch weitere akute Atemwegsinfektionen wie die Influenza zu reduzieren.» Hierbei sticht die Formulierung ‹angenommenen individuellen Immunschutz› hervor.
+
+Es wird sich zeitnah zeigen, ob die nun bekanntgewordene Aktualisierung der ‹Risikobewertung zu Covid19› bei der kommenden Bundestagsdebatte am 17. März im Bundestag über eine mögliche Impfpflicht für
+die Bürger dieses Landes Auswirkungen auf die individuelle Entscheidung der Bundestagsabgeordneten
+mit sich bringt.
+_Quelle: https://rtde.site/inland/133360-robert-koch-institut-aktualisiert-risikobewertung/_
+
+
+-----
+
+##### Neue US-Daten zeigen mehr als 8817 COVID-Impfstoff-Schäden  bei Kindern zwischen 5 und 11 Jahren und steigende Todesraten
+_uncut-news.ch, März 6, 2022_
+
+childrenshealthdefense.org: Die am Freitag von den Centers for Disease Control and Prevention veröffentlichten VAERS-Daten umfassen insgesamt 1'151’450 Berichte über unerwünschte Ereignisse aus allen
+Altersgruppen nach COVID-Impfungen, darunter 24’827 Todesfälle und 200’331 schwere Verletzungen die
+zwischen dem 14. Dezember 2020 und dem 25. Februar 2022 gemeldet wurden.
+Die Centers for Disease Control and Prevention (CDC) haben heute neue Daten veröffentlicht, aus denen
+hervorgeht, dass zwischen dem 14. Dezember 2020 und dem 25. Februar 2022 insgesamt 1'151’450 Berichte über unerwünschte Ereignisse im Zusammenhang mit COVID-Impfstoffen an das Vaccine Adverse
+Event Reporting System (VAERS) übermittelt wurden. VAERS ist das wichtigste, von der Regierung finanzierte System zur Meldung von unerwünschten Impfstoffreaktionen in den USA.
+Die Daten umfassten insgesamt 24’827 Meldungen von Todesfällen – ein Anstieg um 425 gegenüber der
+Vorwoche – und 200’331 Meldungen von schweren Verletzungen, einschliesslich Todesfällen, im gleichen
+Zeitraum – ein Anstieg um 4128 gegenüber der Vorwoche.
+Ohne ‹ausländische Meldungen› an VAERS wurden in den USA zwischen dem 14. Dezember 2020 und
+dem 25. Februar 2022 insgesamt 774’373 unerwünschte Ereignisse, darunter 11’312 Todesfälle und
+74’257 schwere Verletzungen, gemeldet.
+Ausländische Berichte sind Berichte, die ausländische Tochtergesellschaften an US-Impfstoffhersteller senden. Gemäss den Vorschriften der US-amerikanischen Food and Drug Administration (FDA) muss ein Hersteller, der über einen ausländischen Fallbericht informiert wird, der ein schwerwiegendes und nicht auf
+dem Etikett des Produkts aufgeführtes Ereignis beschreibt, den Bericht an VAERS übermitteln.
+Von den bis zum 25. Februar gemeldeten 11’312 Todesfällen in den USA traten 18% innerhalb von 12
+Stunden nach der Impfung auf, 22% innerhalb von 24 Stunden nach der Impfung und 60% bei Personen,
+bei denen die Symptome innerhalb von 48 Stunden nach der Impfung auftraten.
+In den USA waren bis zum 25. Februar 552 Millionen COVID-Impfstoffdosen verabreicht worden, davon
+325 Millionen Dosen von Pfizer, 208 Millionen Dosen von Moderna und 18 Millionen Dosen von Johnson
+& Johnson (J&J).
+
+**Aus der Veröffentlichung der VAERS-Daten am 25.2.22.**
+
+
+-----
+
+Jeden Freitag veröffentlicht VAERS die bis zu einem bestimmten Datum eingegangenen Meldungen über
+Impfschäden. Die an VAERS übermittelten Meldungen erfordern weitere Untersuchungen, bevor ein kausaler Zusammenhang bestätigt werden kann. In der Vergangenheit hat sich gezeigt, dass VAERS nur 1% der
+tatsächlichen unerwünschten Impfstoffereignisse meldet.
+Die US-VAERS-Daten vom 14. Dezember 2020 bis zum 25. Februar 2022 für 5- bis 11-Jährige zeigen:
+8817 unerwünschte Ereignisse, darunter 200 als schwerwiegend eingestufte und 4 gemeldete Todesfälle.
+Der jüngste Todesfall betrifft einen 8-jährigen Jungen (VAERS-Identifikationsnummer 2109625) aus Mississippi, der 7 Tage nach seiner zweiten Dosis des Impfstoffs COVID von Pfizer starb, als er blau und leblos
+zu Hause aufgefunden wurde.
+Er wurde ins Krankenhaus gebracht, wo ein vollständiger Code durchgeführt wurde. Mehrmals wurde ein
+Puls festgestellt, aber der Junge starb schliesslich auf der Intensivstation. Dem Arzt, der den Bericht erstellte, wurde mitgeteilt, dass der Junge an einem multisystemischen Entzündungssyndrom gestorben sei. Er
+hatte kein COVID.
+17 Berichte über Myokarditis und Perikarditis (Herzentzündung).
+32 Berichte über Störungen der Blutgerinnung.
+U.S. VAERS-Daten vom 14. Dezember 2020 bis 25. Februar 2022 für 12- bis 17-Jährige zeigen:
+29’797 unerwünschte Ereignisse, darunter 1714 als schwerwiegend eingestufte und 39 gemeldete Todesfälle.
+Der jüngste Todesfall betrifft ein 13-jähriges Mädchen (VAERS-Identifikationsnummer 2115839) aus Wisconsin, das schwer beeinträchtigt war und zwei Dosen des COVID-Impfstoffs von Pfizer erhalten hatte. Obwohl die Todesursache nicht klar war, schien sie erhebliche gesundheitliche Probleme, Atemnot und Herzprobleme zu haben.
+69 Berichte über Anaphylaxie bei 12- bis 17-Jährigen, bei denen die Reaktion lebensbedrohlich war, eine
+Behandlung erforderte oder zum Tod führte – wobei 96% der Fälle auf den Impfstoff von Pfizer zurückgeführt werden.
+648 Berichte über Myokarditis und Perikarditis, wobei 631 Fälle auf den Impfstoff von Pfizer zurückgeführt
+wurden.
+159 Berichte über Blutgerinnungsstörungen, wobei alle Fälle auf Pfizer zurückgeführt wurden.
+U.S. VAERS-Daten vom 14. Dezember 2020 bis zum 25. Februar 2022 für alle Altersgruppen zusammen
+zeigen:
+19% der Todesfälle waren auf Herzerkrankungen zurückzuführen.
+54% der Verstorbenen waren männlich, 41% waren weiblich, und bei den übrigen Todesmeldungen wurde
+das Geschlecht der Verstorbenen nicht angegeben.
+Das Durchschnittsalter der Verstorbenen lag bei 72,6 Jahren.
+Bis zum 25. Februar meldeten 5176 schwangere Frauen unerwünschte Ereignisse im Zusammenhang mit
+COVID-Impfstoffen, darunter 1653 Berichte über Fehl- oder Frühgeburten.
+Von den 3587 gemeldeten Fällen von Belsche Lähmung wurden 51% auf Impfungen von Pfizer, 40% auf
+Moderna und 8% auf J&J zurückgeführt.
+853 Berichte über das Guillain-Barré-Syndrom, wobei 41% der Fälle auf Pfizer, 30% auf Moderna und 28%
+auf J&J zurückgeführt wurden.
+2339 Berichte über Anaphylaxie, wobei die Reaktion lebensbedrohlich war, eine Behandlung erforderte
+oder zum Tod führte.
+1621 Berichte über Myokardinfarkte.
+13’320 Berichte über Blutgerinnungsstörungen in den USA. Davon wurden 5946 Berichte Pfizer, 4744
+Berichte Moderna und 2568 Berichte J&J zugeschrieben.
+4060 Fälle von Myokarditis und Perikarditis, wobei 2505 Fälle auf Pfizer, 373 Fälle auf Moderna und 172
+Fälle auf den COVID-Impfstoff von J&J zurückgeführt wurden.
+Studie zeigt, dass der Pfizer-Impfstoff bei Kindern zwischen 5 und 12 Jahren nur zu 12% wirksam ist.
+Eine am Montag veröffentlichte Studie zeigt, dass die Wirksamkeit des COVID-Impfstoffs von Pfizer bei 5bis 11-Jährigen nach einem siebenwöchigen Beobachtungszeitraum nur 12% betrug. Dennoch empfehlen
+die Autoren der Studie den Impfstoff für diese Altersgruppe, da er vor schweren Erkrankungen schützt.
+Sie schlugen auch vor, dass die empfohlene Dosis für 5- bis 11-Jährige zu gering sei und dass eine höhere
+Dosis das Problem lösen könnte.
+Einige Wissenschaftler der CDC und der FDA drängten darauf, die Daten vor einer für den 15. Februar anberaumten FDA-Sitzung zu veröffentlichen, auf der der Antrag von Pfizer auf eine Notfallzulassung für eine
+Dreifachdosis seines Impfstoffs für Säuglinge und Kinder im Alter von 6 Monaten bis 5 Jahren geprüft werden sollte – doch die Ergebnisse der Studie wurden erst diese Woche veröffentlicht.
+Die FDA verschob am 11. Februar abrupt die Sitzung zur Prüfung des Antrags von Pfizer für Säuglinge und
+Kinder unter 5 Jahren mit der Begründung, Pfizer verfüge nicht über genügend Daten zur Wirksamkeit
+einer dritten Dosis für diese Altersgruppe.
+
+
+-----
+
+In einem am 1. März veröffentlichten Artikel untersuchte Dr. Madhava Setty, leitender Wissenschaftsredakteur bei ‹The Defender›, die Daten der Studie und wies auf zwei Schwachstellen in den Schlussfolgerungen
+der Autoren hin: 1) dass die Impfstoffe schwere Erkrankungen in dieser Altersgruppe verhindern, und 2)
+dass eine Erhöhung der Dosis angemessen sein könnte.
+
+**Richter macht Weg frei für Pfizer-Whistleblower-Klage**
+Die Klage eines Whistleblowers, der Pfizer des Betrugs während der COVID-Impfstoffversuche beschuldigt,
+kommt voran, nachdem ein Bezirksrichter die Klageschrift, einschliesslich 400 Seiten an Beweismitteln,
+entsiegelt hat.
+Brook Jackson verklagte im Januar 2021 Pfizer und zwei Auftragnehmer, die an den klinischen Versuchen
+mit dem Impfstoff COVID beteiligt waren: Ventavia Research Group und ICON PLC.
+Jackson arbeitete 2020 für kurze Zeit für Ventavia, bevor sie entlassen wurde, nachdem sie bei der FDA
+eine Beschwerde über angebliche Indiskretionen eingereicht hatte, die sie während der Impfstoffversuche
+beobachtet hatte.
+Ausserdem übergab sie dem BMJ eine Reihe interner Firmendokumente, Fotos und Aufnahmen, die das
+angebliche Fehlverhalten von Ventavia belegen.
+Jackson reichte die Klage beim U.S. District Court, Eastern District of Texas, Beaumont Division, unter dem
+False Claims Act ein.
+Die Klage enthält mehrere Vorwürfe des Betrugs und der Vergeltung sowohl seitens Ventavia als auch seitens Pfizer. Die Klage blieb bis zum 10. Februar versiegelt, bis Richter Michael Truncale vom US-Bezirksgericht die Entsiegelung anordnete.
+
+**Ehemann einer Frau, die an einer J&J-Spritze starb, meldet sich zu Wort**
+Der Ehemann einer Frau aus Oregon, die letztes Jahr an einer Blutgerinnungsstörung starb – zwei Wochen
+nachdem sie den Impfstoff COVID von J&J erhalten hatte – hat sich diese Woche öffentlich zum Tod seiner
+Frau geäussert.
+Stan Thomas sagte gegenüber NBC News, er kämpfe dafür, dass das Opfer seiner Frau nicht vergessen
+wird.
+Monica Melkonian, 52, erhielt ihre J&J-Impfung in einer Impfklinik am 7. April 2021 – demselben Tag, an
+dem die CDC und die FDA den Impfstoff vorübergehend aussetzten, um Berichten über eine seltene Blutgerinnungsstörung, die sogenannte impfstoffinduzierte thrombotische Thrombozytopenie, nachzugehen.
+Zu Melkonians auffälligsten Symptomen gehörten anhaltende Kopfschmerzen und Schmerzen hinter dem
+linken Auge, bevor sie einen Krampfanfall und einen Schlaganfall erlitt und schliesslich an der Krankheit
+starb.
+Bislang wurden in den USA nur neun Todesfälle aufgrund von VITT durch die J&J-Spritze und 54 Fälle von
+Blutgerinnungsstörungen bei J&J-Empfängern bestätigt, obwohl Tausende von Fällen an VAERS gemeldet
+wurden.
+
+**Auffrischungsimpfungen verursachen in Israel mehr Verletzungen als erwartet**
+Laut einer Umfrage des israelischen Gesundheitsministeriums (MOH) erleiden mehr Israelis Verletzungen
+und Reaktionen nach COVID-Auffrischungsimpfungen, als aus dem passiven Meldesystem des Landes hervorgeht.
+
+Das MOH führte eine aktive Umfrage unter Empfängern von Auffrischungsimpfungen durch, um Daten über
+unerwünschte Ereignisse im Zusammenhang mit Auffrischungsimpfungen zu sammeln, und verglich dann
+die Umfragedaten mit den Daten, die aus dem passiven Meldesystem des Landes verfügbar sind.
+Von 4000 Personen, die an der Umfrage teilnahmen, wurden sechs von 2049 Befragten nach der Auffrischungsimpfung ins Krankenhaus eingeliefert, und eine beträchtliche Anzahl von Personen berichtete
+über eine Verschlechterung ihres Gesundheitszustands.
+Hochgerechnet auf die Millionen von Auffrischungsimpfungen, die verabreicht wurden, sind das 270’000
+Krankenhausaufenthalte pro 92 Millionen verabreichter Auffrischungsimpfungen in den USA und 13’000
+Krankenhausaufenthalte pro 4,5 Millionen verabreichter Auffrischungsimpfungen in Israel.
+Die MOH-Erhebung ergab auch Berichte über allergische Reaktionen, Menstruationsstörungen, neurologische Verletzungen, Reaktionen an der Injektionsstelle und allgemeine unerwünschte Ereignisse.
+_QUELLE: 8,817 COVID VACCINE INJURIES REPORTED TO CDC AMONG KIDS 5 TO 11, AS STUDY SHOWS_
+_PFIZER VACCINE ONLY12% EFFECTIVE IN THAT AGE GROUP_
+_Quelle:_ _https://uncutnews.ch/neue-us-daten-zeigen-mehr-als-8-817-covid-impfstoff-schaeden-bei-kindern-zwischen-5-_
+_und-11-jahren-und-steigende-todesraten/_
+
+
+-----
+
+##### Pathologe: «Auf meinem Tisch liegt ein totes 9-jähriges geimpftes Kind.»
+_uncut-news.ch, März 7, 2022_
+
+Anthony Fauci, wollte nicht, dass die Leichen von Corona-Patienten obduziert werden. Der Pathologe Ryan
+Cole sagte auf einer Sitzung letzte Woche, auf seinem Tisch liege ein Neunjähriger, der nach der Impfung
+gestorben sei.
+«Tot», sagte Cole. Er fügte hinzu, dass er kein weiteres Kind auf seinem Tisch sehen möchte, das nach der
+Impfung gestorben ist. Der Pathologe sagte, dass die Autopsien endlich durchgeführt werden.
+In dem Ort, in dem der Neunjährige lebte, starb auch ein 22-jähriger Wrestler nach seiner dritten Injektion.
+Er wird bald auf Coles Tisch liegen, damit er die Todesursache feststellen kann.
+«Uns wurde gesagt: Keine Autopsien durchführen, nicht nachschauen, keine Fragen stellen, alles ist sicher
+und wirksam, man soll die Kinder mit einem Impfstoff impfen, der nicht gegen ein Virus wirkt, das es nicht
+mehr gibt und von dem sich die meisten bereits erholt haben», so der Pathologe. Und Ärzte, die Fragen
+stellen, sollten um ihre Karriere fürchten.
+Zuvor hatte Dr. Cole davor gewarnt, dass Corona-Impfstoffe für einen Anstieg der Krebsfälle verantwortlich
+seien. Nachdem er sich zu den Risiken der Corona-Impfstoffe geäussert hatte, nahmen ‹unzählige› Onkologen Kontakt mit ihm auf. Sie sahen, dass alle Arten von Krebs, die sie normalerweise kontrollieren und
+behandeln konnten, sich wie ein Lauffeuer ausbreiteten.
+_Quelle: https://uncutnews.ch/pathologe-auf-meinem-tisch-liegt-ein-totes-9-jahriges-geimpftes-kind/_
+
+##### Neue Studie:  Jugendliche in Hongkong haben nach der zweiten Dosis des Covid- Impfstoffs von Pfizer eine siebenmal höherer Wahrscheinlichkeit Myokarditis zu entwickeln!
+_uncut-news.ch, März 7, 2022_
+
+Die Studie wurde am vergangenen 25. Februar im renommierten JAMA Pediatrics Magazine der American
+Medical Association veröffentlicht.
+«Fälle von Myokarditis nach der zweiten Dosis des Boten-RNA (mRNA)-Impfstoffs nehmen weltweit zu, insbesondere bei jüngeren männlichen Erwachsenen und Jugendlichen. Bei der Abwägung des Risikos einer
+Myokarditis gegen den Nutzen der Prävention von schwerem COVID-19 haben Norwegen, das Vereinigte
+Königreich und Taiwan die zweite Dosis des mRNA-Impfstoffs für Jugendliche ausgesetzt. In ähnlicher
+Weise wurde Jugendlichen (im Alter von 12 bis 17 Jahren) in Hongkong empfohlen, seit dem 15. September
+2021 im Abstand von 21 Tagen 1 Dosis BNT162b2 anstelle von 2 Dosen zu erhalten», heisst es in der
+neuen Studie.
+Die Studie ergab, dass 43 Jugendliche nach Erhalt des Pfizer-Impfstoffs einen Krankenhausaufenthalt im
+Zusammenhang mit Myokarditis erlitten hatten und dass 84% der Krankenhausaufenthalte (36 von 43)
+nach der zweiten Dosis erfolgten.
+«Das rohe Risikoverhältnis der zweiten Dosis gegenüber der ersten Dosis betrug 7,11 (95% KI, 3,16–15,97).
+Die kumulative Myokarditis-Inzidenz sank von 43 Fällen bei 202’315 geimpften Jugendlichen (21,25, 95%
+KI, 15,38–28,63) pro 100’000 Personen auf 0 Fälle bei 22.245 geimpften Jugendlichen bei der Umsetzung
+der Einzeldosis-Politik.“
+Die Untersuchung kam zu dem Schluss, dass die beste Möglichkeit zur Verringerung des MyokarditisRisikos bei Jugendlichen ‹die Verwendung von nur einer Dosis, eine niedrigere Dosierung für zwei Dosen,
+wie sie für Kinder im Alter von 5 bis 11 Jahren empfohlen wird, oder ein längerer Abstand zwischen den
+Dosen sein könnte›.
+
+**portugalresident.com berichtet:**
+Diese Studie ergab, dass nach der Verabreichung der zweiten Dosis des Impfstoffs von Pfizer an Jugendliche in Hongkong eine Inzidenz von 39 Fällen von Myokarditis pro 100’000 Einwohner beobachtet wurde.
+
+
+-----
+
+Anders ausgedrückt: Von 2563 Jugendlichen, die mit zwei Dosen geimpft wurden, erkrankte einer an dieser
+schweren Herzinfektion.
+Dies steht im Gegensatz zu einer ‹sehr viel geringeren Inzidenz› (etwa fünf Fälle pro 100’000 Geimpfte),
+wenn den Jugendlichen nur eine Dosis des Impfstoffs angeboten wurde.
+UM bestätigt, worauf bereits hingewiesen wurde: Bei Jungen (und jungen Männern) im Teenageralter ist
+die Wahrscheinlichkeit, nach einer Covid-19-Impfung eine Myokarditis zu entwickeln, statistisch gesehen
+höher als bei Mädchen (jungen Frauen) im Teenageralter.
+Die Kohortenstudie, die in Hongkong durchgeführt wurde, analysierte Daten zwischen dem 10. März und
+dem 18. Oktober letzten Jahres. «Die vorläufigen Ergebnisse werden jedoch das eindeutige und erhöhte
+Risiko einer Myokarditis gezeigt haben, weshalb die chinesischen Behörden am 15. September beschlossen
+haben, Jugendlichen keine zweite Dosis zu verabreichen», so UM.
+_QUELLE: NEW STUDY REVEALS ADOLESCENTS IN HONG KONG SEVEN TIMES MORE LIKELY TO DEVELOP MYOCARDITIS_
+_FOLLOWING SECOND DOSE OF PFIZER COVID-19 VACCINE_
+_Quelle:_ _https://uncutnews.ch/neue-studie-jugendliche-in-hongkong-haben-nach-der-zweiten-dosis-des-covid-impfstoffs-_
+_von-pfizer-eine-siebenmal-hoeherer-wahrscheinlichkeit-myokarditis-zu-entwickeln/_
+
+_7. März 2022 um 9:10 Ein Artikel von Marcus Klöckner Titelbild: Gts#/shutterstock.com_
+
+Schon vor Corona gab es Tendenzen «in den westlichen Demokratien, das Verhältnis von Freiheit zugunsten
+von Sicherheit zu verschieben». Das sagt Ulrike Guérot im Interview mit den NachDenkSeiten. Die Politikwissenschaftlerin hat gerade ein Essay unter dem Titel ‹Wer schweigt, stimmt zu. Über den Zustand unserer
+Zeit. Und darüber, wie wir leben wollen› veröffentlicht. Darin warnt sie vor den Gefahren einer ‹autoritären
+Schliessung› unseres demokratischen Systems und der Gesellschaft. In dem Essay, das als lauter Warnruf
+verstanden werden kann, spannt Guérot einen weiten Rahmen: Freiheit, Macht, Herrschaft, Demokratie,
+Journalismus sind einige der Themen, die die Autorin schonungslos beleuchtet. Guérot warnt vor der
+pauschalen Ausgrenzung von Stimmen, die eine vom ‹Mainstream› abweichende Sicht vertreten. Kritik, das
+sagt Guérot in dem zweiteiligen Interview, ist die ‹Lebensader der Demokratie›. Ein System, das Kritik nicht
+mehr zulasse, werde ‹totalitär›. Ein Interview, unter anderem, über die Erosion der Demokratie, die ‹Krise
+der Repräsentation› und den möglichen ‹Push an basisdemokratischen Elementen›. Von Marcus Klöckner.
+
+**MK: Frau Guérot, Sie haben ein kleines Essay geschrieben, in dem ziemlich viel drinsteht: Es geht um**
+Macht, Herrschaft, Freiheit, Selbstbestimmung, Demokratie, Medien, Journalismus… habe ich etwas vergessen?
+**UG: Vielleicht noch um Propaganda, Verschwörungstheorien, Gesellschaftskritik, Transhumanismus und**
+Utopien?
+**MK: Sie haben Ihr Buch verfasst unter dem Eindruck und den Entwicklungen in der Corona-Krise. Zugleich**
+geht es aber immer wieder um das Grundsätzliche. Was ist das für eine Zeit, wenn über so viel ‹Grundsätzliches› diskutiert und verhandelt werden muss?
+**UG: Das Grundsätzliche ist das Verhältnis zwischen Freiheit und Sicherheit in unseren westlichen Demokra-**
+tien, das wir während der Corona-Krise ziemlich deutlich in Richtung Sicherheit verschoben haben. Ich finde, dieses Verhältnis müssen wir als Gesellschaft neu verhandeln. Demokratie ist keine Vollkasko-Versicherung und Freiheit keine Zugabe für Bürger, die man erst oder nur dann bekommt, wenn alle sicher sind.
+Diese grundsätzliche Freiheit betrifft vor allem die Medienfreiheit, Wahrzeichen einer jeden Demokratie.
+Hier konnte man während der Corona-Pandemie den Eindruck gewinnen, dass diese partiell ausser Kraft
+
+
+-----
+
+gesetzt war: Es durften, vor allem zu Beginn, keine kritischen Fragen gestellt werden, der Raum für legitime
+Kritik an den Massnahmen ging verloren, andere Stimmen wurden aus dem Diskurs verbannt, ja, geschasst
+und es wurde eine Deutungshoheit des pandemischen Geschehens zementiert, in einer Art und Weise, wie
+ich es in der Bundesrepublik noch nie erlebt habe.
+**MK: Gestatten Sie mir ein paar Worte zu Ihrer Person für die Leser, die Sie vielleicht nicht kennen. Sie sind**
+bekannt als glühende Europäerin. Ihr Herz hängt sozusagen an Europa, am europäischen Einigungsprozess.
+Sie waren oft – auch als streitbare – Vertreterin eines gemeinsamen Europas im Fernsehen, Talkshows wie
+‹Maybrit Illner›, aber auch im Radio und anderen Medien vertreten. Verzeihen Sie mir, wenn ich das so
+sage, aber Sie waren sozusagen ‹Mainstream›. Oder ordne ich Sie falsch ein?
+**UG: Also zunächst: Ich mag den Begriff der ‹glühenden Europäerin› eigentlich nicht, obgleich er in der Tat**
+oft mit Blick auf meine Person benutzt wird. Aber ich glühe nicht für Europa, und ich möchte schon gar
+nicht an der EU verglühen. Ich wünsche mir nur einfach – wie viele – ein funktionierendes Europa, weil dieser Kontinent immer wieder einen hohen Preis dafür bezahlt, dass er politisch nicht geeint ist.
+Darüber forsche, schreibe und spreche ich eigentlich in verschiedenen beruflichen Funktionen und Stationen seit dreissig Jahren und versuche darüber nachzudenken, wie man das verbessern könnte.
+Und ja, in vielen dieser Positionen war ich absolut ‹Mainstream›, wie Sie sagen bzw. wie es heute heisst, da
+ich zum Beispiel in sogenannten Think Tanks gearbeitet habe, wie etwa dem German Marshall Fund (GMF)
+oder dem European Council on Foreign Relations (ECFR), die politik- bzw. regierungsnah sind und sogenannte ‹Applied Policy Studies› zu Europa, also konkrete Politikempfehlungen machen. Als Direktorin dieser
+Think Tanks war ich oft zu europäischen Themen in Talkshows eingeladen oder auch auf Foren wie etwa
+der Münchener Sicherheitskonferenz und vielen anderen Konferenzformaten, zum Beispiel von Stiftungen,
+auf denen sich Politiker, Journalisten und Analysten die Klinke in die Hand geben, also diejenigen, die eine
+sogenannte ‹Diskurskoalition› bilden, wie man in den Sozialwissenschaften sagt.
+**MK: Und dann kam Corona. Viele bekannte Gesichter aus den Medien haben sich hinter die Politik gestellt.**
+Viele prominente Persönlichkeiten, aber auch Bürger, haben die Politik mitgetragen. Bei Ihnen war das aber
+anders. Gab es einen Schlüsselmoment?
+**UG: Naja, der Schlüsselmoment, sich aus einer ‹Diskurskoalition› herauszubewegen und ihre Argumente**
+oder Meinungen nicht mehr mitzutragen, war eigentlich gar nicht Corona, sondern schon viel früher, nämlich die Bankenkrise von 2008, die in den Jahren danach dann zur Eurokrise umgedeutet wurde. Das war
+ein Moment, wo man vom System, in diesem Fall dem europäischen Governance System, ganz andere
+Lösungen erwartet hätte und die wurden ja auch alle diskutiert: die Notwendigkeit von Eurobonds zum Beispiel oder einer Finanz-, Haushalts- und politischen Union, wie etwa in dem EU-Ratspapier vom Dezember
+2012 zur GMEU (Genuine Economic & Monetary Union) vorgeschlagen. Aber das kam dann alles nicht
+zustande.
+**MK: Warum?**
+**UG: Weil es politisch nicht gewollt war. Für mich war das wie ein Schlag ins Gesicht, mitanzusehen, dass**
+sich auf einmal ganz viele Bekannte und Freunde und Freundinnen in diesem historischen Moment nicht
+intuitiv auf die Seite weitreichender europäischer Reformideen geschlagen haben. Sondern auf einmal gab
+es eine deutsche Hegemonie in Europa, die im Ausland beklagt, in Deutschland aber gefeiert wurde. Dann
+gab es ‹Austeritätspolitik›, eine verheizte europäische Jugend, PIIGS, also europäische ‹Schweine› und gute
+und schlechte Europäer, ‹fleissige› Deutsche und ‹faule› Griechen.
+**MK: War das noch ‹Ihr› Europa?**
+**UG: Nein, war es nicht. Und auf einmal war ich mit der EU entfremdet, und damit mit einem politischen**
+System, an das ich immer geglaubt und für das ich jahrelang gearbeitet hatte.
+Damit will ich sagen, dass ich schon vor Corona von einer gewissen Diskurskoalition des sogenannten ‹Mainstreams› entfremdet war, als ich Grund zur Annahme hatte bzw. beobachten konnte (oder musste), dass
+viele, die gestern noch von Europa sprachen, es dann nicht verfolgten oder politische Verve dahinter setzten,
+als es ernst wurde. Dieser intellektuelle Bruch mit vielen aus meiner beruflichen Community, de facto meinem Bekanntenkreis, war damals eine wichtige und schwierige Erfahrung. Auf einmal stand ich mehr oder
+weniger allein da. Ich war nicht nur marginalisiert mit meiner Meinung, zum Beispiel meiner Kritik an der
+deutschen Europapolitik. Sondern ich habe zum ersten Mal die Erfahrung gemacht, dass meine Meinung
+einfach nicht mehr gewünscht war. Und musste dann eben auch erleben, was passiert, wenn eine Meinung
+nicht mehr gewünscht ist: nämlich faktischer Ausschluss. Man wird einfach nicht mehr eingeladen oder
+gedruckt.
+Als Reaktion darauf habe ich in meinem Buch ‹Warum Europa eine Republik werden muss. Eine politische
+Utopie› ein Europa entworfen, wie es sein müsste und wie es funktionieren könnte. Damit wollte ich mich
+eigentlich von der Diskurskoalition verabschieden. Aber das Buch wurde zum Bestseller. Und wahrscheinlich weil das so war, wurde ich wieder eingeladen. Das war dann auch merkwürdig.
+**MK: Das ist jetzt eine lange Vorgeschichte.**
+**UG: Ja, aber sie zeigt auf, dass der Schlüsselmoment bei Corona nicht der erste war, indem ich erfahren**
+oder erlebt habe, dass man sich intuitiv in einer gedanklichen oder intellektuellen Position wiederfindet, die
+
+
+-----
+
+konträr zur Mehrheit steht. Oder, wenn Sie wollen: Die konträr zum politischen Establishment oder zum
+‹Mainstream› ist, dessen Teil man kurz zuvor noch war.
+**MK: Aber bei Corona hatte das eine andere Dimension?**
+**UG:** Absolut. Es war viel massiver, weil das Thema eben – im Gegensatz zur Bankenkrise, die ja kaum
+jemanden interessiert hat – einfach alles überlagert hat. Und weil die – nennen wir es mal – ‹mediale Schliessung›, also die Gleichförmigkeit der Presse bei Corona noch viel massiver war. Zu Beginn konnte man ja
+kaum irgendetwas sagen oder kritische Fragen zu den Massnahmen stellen.
+**MK: Erzählen Sie uns bitte: Wie haben Sie dann auf Corona, die Massnahmen usw. geblickt? Was war oder**
+ist Ihre Sorge?
+**UG: Naja, mit Corona war es dann eigentlich ähnlich, also mein Gefühl, dass ein System und seine Werte,**
+als es mal ernst wurde, eben nicht verteidigt, sondern ausser Kraft gesetzt wurden, diesmal Freiheit und
+Demokratie. So wie man Europa de facto während der Bankenkrise ausser Kraft gesetzt hatte – alle europäischen Mechanismen haben damals versagt – so hat man im März 2020, zu Beginn des ersten Lockdowns,
+als die Corona-Gefahr ja noch eine sehr abstrakte war und niemand so richtig gewusst hat, was eigentlich
+los ist, ein politisches System zugedreht wie einen Wasserhahn. Das hat mich gleich zu Beginn sehr irritiert
+und ich fand es falsch. Von Anfang an habe ich gedacht, wir bekämpfen oder reagieren auf ein Virus mit
+unserem freiheitlichen, demokratischen System, und nicht ohne es.
+**MK: Wer kritisch auf die ‹Corona-Politik› der vergangenen zwei Jahre schaut, landet zwangsläufig bei The-**
+men wie Macht, Herrschaft, Freiheit und Medien, oder?
+**UG: Zwangsläufig, ja. Eine so ‹herrschende Meinung›, einen so zementierten Diskurs wie in der Corona-**
+Politik, in der praktisch alles alternativlos gesetzt wurde, hat es wohl in der Bundesrepublik noch nicht gegeben. Aus der – vermeintlichen – Not heraus wurde Grundfesten der Demokratie massgeblich verschoben,
+das politische Geschehen zu Beginn entparlamentarisiert, die Entscheidungsgewalt ausschliesslich auf die
+Exekutive verlagert, zumal, einen Ministerrat, den es so in der Verfassung eigentlich nicht gibt, und vieles
+andere mehr. Auf einmal waren wir in den Worten von Bundeskanzler Scholz in einem Zustand ohne „rote
+Linien“ für die Politik, was ja eigentlich einem Zustand der politischen Willkür – und mithin der absoluten
+Macht – gleichkommt. Ich fand das sehr besorgniserregend.
+Man muss schon viel Macht oder Herrschaft bzw. Souveränität haben, um das einfach so zu machen bzw.
+durchzusetzen, also über den Ausnahmezustand im Wortsinn zu entscheiden. Und es konnte nur geschehen, weil niemand widersprochen hat bzw. widersprechen durfte. Alle kritischen Stimmen zum Beispiel aus
+der Wissenschaft wurden buchstäblich abgeräumt und aus dem Diskurs verjagt. Wissenschaftler, die sich
+der ‹herrschenden Meinung› nicht fügten, wurden aus politischen Beiräten, Expertengremien oder der
+Leopoldina entlassen.
+**MK: Eine surreale Situation.**
+**UG:** Es war geradezu abenteuerlich und man konnte sich nur die Augen reiben, dass so etwas in der
+Bundesrepublik überhaupt passieren konnte – und auch noch widerspruchsfrei ohne grossen Protest von
+Presse oder der Gesellschaft. Was wiederum auch nur gelingen konnte, weil der Protest bzw. die Opposition
+gegen die Corona-Massnahmen erstickt beziehungsweise stigmatisiert wurde. Spätestens seit der grossen
+Demonstration im August 2020, an der Zehntausende teilgenommen haben, die aber mit der ‹Erstürmung›
+der Treppen des Reichstags durch wenige radikalisierte Personen endete, war Protest gegen die Massnahmen verpönt und wurde unisono in die rechte Ecke gestellt. Niemand Vernünftiges aber möchte mit Reichsbürgern etc. in einen Topf geworfen werden. Das ‹Kontaktschuld›-Argument wurde so zu einem sehr mächtigen Argument, um den Protest oder doch zumindest die Unbill der bürgerlichen Mitte zu neutralisieren.
+Besser schweigen, als da dazu gezählt zu werden. Darum heisst mein Essay ja auch: ‹Wer schweigt, stimmt
+zu›.
+**MK: Wie ist Ihre Betrachtung: Reichen die Probleme, die es im Hinblick auf Demokratie, Freiheitsrechte**
+oder Journalismus gibt, über Corona hinaus?
+**UG: Eher würde ich sagen, dass es schon vor Corona Tendenzen gab, in den westlichen Demokratien das**
+Verhältnis von Freiheit zugunsten von Sicherheit zu verschieben. Offenbar ist das Sicherheitsbedürfnis in
+postmodernen Gesellschaften stets gestiegen. Schauen wir zum Beispiel auf die Massnahmen gegen Terrorangriffe, unter denen ganz Europa in den letzten beiden Dekaden gelitten hat. Im Zuge des Schutzes vor
+Terror wurden Kontroll- und Überwachungssysteme ausbaut: ganz London, jede U-Bahn, jeder Zug ist zum
+Beispiel unter CCTV. Mit jedem neuen Terroranschlag kam eine neue Forderung nach noch mehr Massnahmen, ein bisschen wie bei Corona. Oder es kam – auch ähnlich Corona – die Frage nach ‹Schuldigen›, wenn
+etwas passiert ist und dann muss, siehe Breitscheidtplatz, ein ‹Verantwortlicher› gefunden und entlassen
+werden.
+Offenbar ist postmodernen Gesellschaften, denen eine Exposition mit Gefahren praktisch abhandengekommen ist, auch das Gefühl oder das Verständnis dafür abhandengekommen, dass tragische Dinge passieren
+können – und trotzdem niemand individuell dafür verantwortlich ist. Auch wenn es bei Unfällen oder Terrorangriffen z.B. menschliches Versagen gibt, dann ist menschliches Versagen eben keine Schuld. Als es im
+Winter 2020 in Wien die schrecklichen Terrorattentate gab, flackerte kurzfristig in Österreich eine Diskussi
+
+-----
+
+on über Vorbeugehaft auf, also darüber, ob man potentiell gefährlich aussehende Personen nicht präventiv
+inhaftieren solle.
+**MK: Eine gefährliche Entwicklung im Hinblick auf das Recht, oder?**
+**UG: Entscheidungen dieser Art stehen völlig konträr zu einer jahrhundertealten Rechtstradition, nämlich in**
+dubio pro reum: Es kann keine Anklage und mithin keine präventive Festnahme geben, wenn nichts geschehen ist. Auch das erinnert ein bisschen an Corona, indem gesunde, aber ungeimpfte Personen de facto
+grundlos als ‹gefährlich› (also ‹Gefährder›) bezeichnet wurden, und zum Beispiel in Österreich im Winter
+2021 auch einen ‹gesonderten› Lockdown bekamen, de facto auch eine Art Vorbeugehaft.
+**MK: Und Beispiele dieser Art sind es, die bei Ihnen die ‹Warndetektoren› anschlagen lassen?**
+**UG: Es ist doch so: Wir scheinen in jüngerer Zeit in Gefahrensituationen schnell dabei zu sein, Grundfesten**
+unserer politischen und rechtlichen Ordnung über Bord zu werfen. Demokratie aber ist keine Vollkaskoversicherung und Freiheit ein unveräusserliches Prinzip, nicht etwas, das in Tranchen zugeteilt wird wie ein
+Bausparvertrag. Ein anderes Beispiel, wenn ich das noch kurz ausführen kann, ist Frankreich.
+**MK: Gerne. Welches Beispiel meinen Sie?**
+**UG: Dort gab es nach den Anschlägen unter anderem auf das Bataclan im November 2016 eine Notstands-**
+gesetzgebung, die über ein Jahr lang in Kraft blieb und die Dinge wie etwa Hausdurchsuchungen ohne richterlichen Beschluss, präventive Versammlungsverbote und ähnliches möglich machte. Bevor die Notstandsgesetze im Winter 2017 von Emmanuel Macron aufgehoben wurden, wurden massgebliche Bestimmungen
+der Notstandsgesetzgebung in ordinäres, also normales Recht integriert. De facto kann jetzt jede Demonstration in Frankreich mit Verweis auf eine potenzielle Gefährdung der öffentlichen Ordnung und Sicherheit
+präventiv, also im Vorfeld, unterbunden werden. Jeder Präfekt kann damit zum Beispiel eine Demo der
+‹Gelbwesten› unterbinden, wenn er die Sorge artikuliert, es könne Ausschreitungen geben, sozialer Protest
+als Kernbestand jeder Demokratie ist damit praktisch nicht mehr möglich. Man stelle sich mal vor, man
+hätte Jean-Paul Sartre die Proteste vor den Peugeot-Werken untersagt oder die Mai-Proteste der StudentenUnruhen 1968?
+Wenn wir also feststellen, dass all diese Tendenzen weit vor Corona da waren, dann ist die Frage, wie sehr
+sich diese nach Corona verstetigen, jetzt, wo wir weiten Teilen der Bevölkerung beigebracht haben, dass
+Freiheit konditionierbar ist oder gleichsam von gutem Benehmen – ‹Impfen› – abhängig gemacht wird. Es
+ist dringend erforderlich, diese Debatte zu führen. Freiheit ist keine Zugabe oder Kirsche auf dem Kuchen,
+sondern ein Prinzip, dass prinzipiell immer gelten muss, ganz egal wie gross die Gefahr ist. ‹Wer die Freiheit
+für die Sicherheit einschränkt, verliert am Ende beides›, diesen Satz von Benjamin Franklin zitiere ich ja,
+denn er stimmt! Wir haben nachweislich nichts dadurch gewonnen, dass wir für Corona die Freiheit eingeschränkt haben. Die vulnerablen Gruppen wurden durch einen Lockdown nicht besser geschützt. Wir haben
+lediglich riskiert, der Tragödie eines Virus ein System hinterherzuschmeissen – und das sollten wir nicht
+tun!
+Womit wir nochmal beim ‹Grundsätzlichen› wären. Wir haben schon kurz darüber gesprochen, aber lassen
+Sie uns näher darauf eingehen. Wo liegen aus Ihrer Sicht die grössten Probleme und Herausforderungen
+im Hinblick auf grundsätzliche Fragen von Demokratie, Freiheit, Medien in unserer Gesellschaft?
+Die grösste Herausforderung scheint zu sein, dafür zu sorgen, dass das Internet der Demokratie und der
+Medienfreiheit dient und diese nicht zerstört. ‹The Medium is the message›, das sagten die Kommunikationswissenschaftler der 1970er Jahre. Das Internet ist also heute beides, die kybernetische Steuerung der
+Kommunikation und Nachricht zugleich. Die digitale Kommunikation hat – for the worse or for the better –
+durch Corona extrem zugenommen. Zeitgleich konnte beobachtet werden, dass das Internet extrem polarisiert und spaltet, indem kommunikative Blasen gebildet wurden, die für die jeweiligen Empfänger selbstverstärkend wirken: Jeder ist nur noch da, wo er liest, was er lesen will. Diese Blasen – während Corona die
+sogenannten Leitmedien und die alternativen Medien – waren beinah komplett voneinander getrennt.
+**MK: Sie haben sich beide Seiten angeschaut. Was haben Sie festgestellt?**
+**UG: In den einen Medien wurde ein herrschender Diskurs zementiert; in den anderen, also den alternativen**
+Medien, wurde dieser Diskurs angegriffen und demontiert. In dem Moment, wo die legitime Kritik an den
+Massnahmen in den Leitmedien nicht mehr zugelassen war bzw. der mediale Meinungspluralismus nicht
+mehr vorhanden war, musste die Kritik abwandern in die alternativen Medien – wie Wasser, das sich einen
+anderen Weg sucht – und zur Systemkritik werden. Das ist vielleicht die grösste Herausforderung für die
+Demokratie heute, dieses: Wer nicht für die ‹herrschende Meinung› ist, ist gleich gegen das System. Das ist
+hochgradig gefährlich! Es bedeutet nämlich die Gefahr einer ‹autoritären Schliessung›, wie ich es in dem
+Essay nenne. Kritische Elemente werden ausgegrenzt. Die Lebensader der Demokratie aber ist es gerade,
+Kritik zuzulassen und mithin als System korrekturfähig zu bleiben. Wenn das nicht mehr gelingt, wird ein
+System notwendigerweise totalitär, denn nur totalitäre Systeme brauchen Kritik nicht ernst zu nehmen: Sie
+lassen sie nicht zu bzw. beseitigen die Kritiker.
+Auf der anderen Seite – um zum Positiven der Entwicklung zu kommen – haben wir ja möglicherweise gerade durch das Internet die ‹autoritäre Schliessung› unserer Demokratien verhindert. Es gab schon vor Corona
+sogenannte ‹alternative› Online-Medien – die NachDenkSeiten gehören ja selber dazu – und während oder
+
+
+-----
+
+wegen Corona sind zahlreiche solcher Online-Formate hinzugekommen. Ohne das Internet wären weder
+der Blog von Boris Reitschuster, Kaiser TV oder Milosz Matuschek – um nur drei von ganz vielen zu nennen
+– noch die zahlreichen Signal- oder Telegram-Gruppen möglich gewesen, in denen die massnahmenkritischen Argumente ausgetauscht und diskutiert wurden, also jene Arenen bürgerlichen Aktivismus, die jetzt
+so mächtig bzw. raumgreifend wurden, so dass sie – dieser Moment ist genau jetzt – von den Leitmedien
+nicht mehr ignoriert werden können.
+Es gab also die Möglichkeit – und das ist absolut positiv und entscheidend – eine breite Gegenöffentlichkeit
+zum leitmedialen Raum zu organisieren, und zwar ganz demokratisch! Das ist doch ein wichtiger Unterschied z.B. zu den Zeiten – oder auch Mühen – der Charta 77 im Ostblock und der sogenannten SamisdatPresse, wo man einen Kopierer für Flugblätter brauchte, und überhaupt am gleichen Ort wohnen musste,
+um heimlich in einem Wohnzimmer zusammen zu kommen. Während Corona hingegen konnte sich der
+Protest, obwohl wir physisch voneinander getrennt und teilweise in Lockdowns waren, de facto europaweit
+suchen, sammeln und verbinden, und das ist in vielerlei Hinsicht ja auch geschehen. Nach zwei Jahren
+öffnen nun auch die Leitmedien wieder den Raum für legitime Kritik und wir haben eine Chance, die beiden
+Debatten-Räume zu synthetisieren und aus der Polarisierung zu führen.
+**MK: Das Internet war also in diesem Fall eher ein Segen für die Demokratie? Diejenigen, die die Sicht des**
+Mainstreams vertreten, sehen das anders.
+**UG: Wie jede Technik ist das Internet an sich erst einmal kein ‹Segen›, sondern neutral – gesteuert von**
+Algorithmen, die wiederum – die Werbung lässt grüssen – weitgehend von ökonomischen und damit (neuro-)psychologischen Kriterien gesteuert werden. Das Internet kann – wie alles – gebraucht oder missbraucht
+werden, es hat gute und schlechte Seiten. Ähnlich wie bei der Atombombe, wo wir damals unterschieden
+haben zwischen militärischer Nutzung, die wir auf internationaler Ebene rechtlich eingehegt und die wir
+geahndet haben, während wir die sogenannte zivile Nutzung der Kernenergie zumindest bisher zugelassen
+haben. Das war der Versuch, bei einer Technologie zwischen einer guten und einer verwerflichen Nutzung
+zu unterscheiden.
+Das Internet war oder ist also einerseits das Medium bzw. die Technologie – ‹the medium is the message›
+– die das mediale Herrschaftsmonopol durchbrochen und mithin im konkreten Fall den regierungsamtlichen Corona-Diskurs konterkariert hat, weil heute jeder senden kann und nicht nur zuhören muss. Podcasts, YouTube-Clips, neue Online-Zeitschriften, Video-Gesprächsrunden etc. sind während Corona wie Pilze
+aus dem Boden gesprossen. Jeder hatte gleichsam ‹sein› Fernsehen. Die Funktionen von ‹Fokus & Filter›,
+die früher die Zeitungsredaktionen übernommen haben oder diejenigen, die hinter einem Mikrofon in
+einem Funkhaus sassen, konnten von den journalistischen Funktionseliten nicht mehr gewährleistet
+werden.
+Wahrscheinlich hat das leitmediale System auch deswegen teilweise so panisch reagiert, zum Beispiel mit
+‹Faktencheckern› oder Nachzensur, zum Beispiel dem Löschen von YouTube-Clips oder Beiträgen aus
+Mediatheken der öffentlich-rechtlichen Rundfunkanstalten, denn es hatte auf einmal keine Kontrolle mehr.
+Die Leitmedien waren ja nicht gewohnt, mit Widerspruch oder Gegenrede umgehen zu müssen. Was ihnen
+blieb, war eben, unliebsame Informationen aus dem Internet zu ‹säubern›, was indes undemokratisch ist,
+weil es den Meinungspluralismus unterbindet und im Übrigen auf der problematischen Annahme beruht,
+die Bürgerinnen und Bürger könnten nicht selbst beurteilen, was sie lesen und was gut oder glaubhaft ist.
+Institutionen wie etwa das ‹Correctiv›, also NGOs (Non-Governmental Organisation), deren Finanzierungsstrukturen im Übrigen fragwürdig sind und die während Corona in etwa so funktioniert haben wie der
+‹Wächterrat› à la Iran, indem sie ‹unliebsame› Informationen aus dem Internet gefischt, blockiert oder als
+‹fake news› verunglimpft haben, sind ja während Corona zum ersten Mal massiv aufgetreten und ins öffentliche Bewusstsein gerückt. Auch der ‹ARD-Faktenchecker› ist ein Novum der Corona-Krise.
+**MK: Unsere Demokratie scheint mehr von innen unter Druck zu geraten als von aussen. Stimmen Sie dieser**
+Aussage zu? Und wenn ja: Wie ist das zu verstehen?
+**UG: Definitiv haben wir eine Krise der politischen Repräsentation und des Parlamentarismus – also eine**
+Erosion der Form der Demokratie, wie wir sie kannten – mehr denn eine äussere Bedrohung unserer Demokratie, wenn wir jetzt den Ukraine-Russland-Konflikt einmal aussen acht lassen. Deswegen wird in der Politikwissenschaft derzeit viel von partizipativer oder diskursiver Demokratie gesprochen. Beispiele sind die
+vielen Bürgerforen, zum Beispiel die Klimaräte in Frankreich oder Grossbritannien oder die aktuelle ‹Konferenz zur Zukunft Europas› der EU. Die Form der Demokratie ändert sich also. Das macht Sorge, muss aber
+nicht unbedingt schlecht sein. Denn vielleicht – das scheint mir noch nicht ausgemacht – erleben wir gerade
+einen massiven Push von neuen Formen demokratischer Teilhabe, also eine Art Neuorientierung der Demokratie in Richtung bürgerlicher Partizipation. Wenn ja, dann wäre dies wohl durch die oben beschriebene
+‹Demokratisierung› der Medien – jeder kann im Internet ‹senden›, Hierarchien wurden abgeschafft – ausgelöst worden.
+_Quelle: https://www.nachdenkseiten.de/?p=81609_
+
+
+-----
+
+##### Die Verleugnung der gewaltigen Impfnebenwirkungen –  Ist das Paul-Ehrlich-Institut ehrlich oder kriminell?
+_hwludwig Veröffentlicht am 7. März 2022_
+
+Das dem Bundesgesundheitsministerium unterstehende Paul-Ehrlich-Institut (PEI), zuständig für die Zulassung von Impfstoffen und deren Sicherheit, hat auch in seinem 17. Sicherheitsbericht zur Corona-Lage wieder alles getan, um die Nebenwirkungen nach Impfung zu verharmlosen und – bis auf geringe Ausnahmen
+– einen kausalen Zusammenhang abzuleugnen. Dabei ist dieser von erfahrenen Pathologen exemplarisch
+nachgewiesen worden.1 Und das immer mehr zutage tretende Ausmass typischer und zu erheblichen Teilen schwerer und tödlicher Erkrankungen, die in unmittelbarem zeitlichen Zusammenhang mit der Impfung
+auftreten, lässt gar keinen anderen Schluss mehr zu, als dass diese anschwellenden Krankheiten mit dem
+Impfstoff zusammenhängen.
+Nach dem neuen Sicherheitsbericht vom 7.2.2022 wurden im Jahr 2021 insgesamt 244’576 Verdachtsfälle
+von Impfnebenwirkungen gemeldet, davon waren 29’786 schwerwiegend. 2255 Personen starben im zeitlichen Zusammenhang zur Corona Impfung – eine enorme Steigerung von 1919 Todesfällen vom 30.11.
+2021 um 336 = 17,5% innerhalb eines Monats, in dem die Impfzahlen nicht entsprechend gestiegen sind
+– abgesehen davon, dass doch das Impfen zuverlässig vor dem Tod schützen soll.
+Es gibt auch einen starken Anstieg von 20% der Entzündungen am Herzen und Herzbeutel – insgesamt
+2020 Fälle, 18 davon endeten tödlich. Die Anzahl der Fälle des Thrombose-mit-Thrombozytopenie-Syndroms stieg auf 278 an – 53 davon endeten tödlich. Mittlerweile gibt es 730 Fälle einer Thrombozytopenie
+oder Immunthrombozytopenie, 24 davon endeten tödlich. Auch die Fallzahlen beim Guillain-Barré-Syndrom stiegen auf 354 Fälle an, davon endeten 9 tödlich. 2
+«Bei Kindern und Jugendlichen im Alter zwischen 12–17 Jahren traten 3227 Nebenwirkungen auf. 8 Kinder
+in dieser Altersgruppe sind im Zusammenhang mit der Impfung verstorben. Damit haben wir in dieser
+Gruppe nun offiziell mehr ‹Impftote› als ‹Corona-Tote›. Ausserdem erlitten 10 Kinder bleibende Schäden
+durch die Impfung und es traten 147 Entzündungen am Herzen im Zusammenhang mit der Impfung auf.
+Auch vom Guillain-Barré-Syndrom werden die Kleinen nicht verschont – 6 Fälle sprechen hier für sich.»
+Bei Kindern unter 12 Jahren traten 505 Nebenwirkungen auf, in 103 Fällen traten Impfnebenwirkungen
+sogar bei Kindern unter 5 Jahren auf, obwohl es für diese Gruppe noch gar keinen Impfstoff gibt. «Das PEI
+gibt an, dass davon in 20 Fällen der Impfstoff über die Muttermilch transportiert wurde. Die anderen 83
+Fälle werden nicht näher erläutert. Das lässt nur einen Schluss zu» – so corona-blog: «Es handelt sich um
+noch nicht geborene Babys, die im Mutterleib einen Schaden durch die Impfung (der Mutter) genommen
+haben.» 3
+
+**Wann muss man eingreifen?**
+Das PEI setzt die Zahl der Nebenwirkungen ins Verhältnis zu der hohen Zahl der Impfungen und behauptet:
+«Die weltweiten Daten zeigen, dass die ganz überwiegende Mehrzahl der Nebenwirkungen der in Deutschland zugelassenen und bisher eingesetzten Impfstoffe vorübergehende lokale und systemische Reaktionen
+betreffen, wie sie auch schon in den klinischen Prüfungen vor der Zulassung beobachtet wurden.
+Nach derzeitigem Kenntnisstand sind schwerwiegende Nebenwirkungen, die im Folgenden zusammengefasst dargestellt werden, sehr selten und ändern nicht das positive Nutzen-Risiko-Verhältnis der Impfstoffe.»
+4
+Abgesehen davon, dass der ‹positive Nutzen› der Impfstoffe in der Realität längst widerlegt ist, rechnet diese
+statistische Relation eiskalt rein quantitativ Menschenleben wie Hühner gegeneinander auf. – Es ist gleichgültig, in welch hoher Zahl Impfungen erfolgt sind, allein knapp 250’000 im zeitlichen Zusammenhang mit
+der Impfung plötzlich auftretende Nebenwirkungen, 30’000 schwerwiegend, und 2255 Todesfälle betreffen
+viele reale Menschen mit ihrem individuellen Schicksal an Leib und Leben. Das ist keine mathematischstatistische, sondern eine zutiefst menschlich-moralische Frage. Es müsste sofort das Impfen gestoppt, und
+es müssten gründliche Untersuchungen der Fälle in ihrem möglichen kausalen Verhältnis zu den Impfstoffen durchgeführt werden.
+Dies wäre umso mehr geboten, als sämtliche eingesetzte Impfstoffe erst eine vorläufige, bedingte ‹Not›Zulassung erhalten haben, weil essenzielle Studien fehlen, vor allem zu Sicherheit und Wirksamkeit. Die
+Welt schreibt dazu:
+«Bis Juli 2021, so hatte die EMA frühzeitig klar gemacht, seien die Studien nachzureichen. Aber die Frist
+verstrich still und ereignislos. Stattdessen verlängerte die EMA im Oktober 2021 die ‹bedingte Zulassung›
+in aller Diskretion um ein Jahr. Zunächst für Spikevax von Moderna und Anfang November für Comirnaty
+von Biontech. Das brachte in der wissenschaftlichen Fachwelt erste Irritationen auf, es gab Fragezeichen,
+auch den Verdacht der Geheimniskrämerei, inzwischen erweitert um offenes Befremden.»
+Offene Fragen gibt es demnach auch bei den Eigenschaften der mRNA-Präparate, was gerade mit Blick auf
+das nun bekannt gewordene Ausmass an Nebenwirkungen beunruhigend erscheint:
+
+
+-----
+
+«Es sind essenzielle Fragen wie: Lagert sich der Wirkstoff im Gehirn ab? Gibt es Anreicherungen in der
+Niere? In den Lymphknoten? Im Herzen? Wird es bei trächtigen Tieren auf den Embryo übertragen?»
+Fragen, ‹die die Hersteller bisher nicht beantwortet haben›, so eine Expertin gegenüber der WELT, ‹was daran liegen könnte, dass die mRNA-Vakzine als klassische Impfstoffe zugelassen wurden›“, bei denen solche
+Fragen im Zulassungsverfahren keine Rolle spielten. ‹Tatsächlich›, so die WELT, sind Präparate wie das von
+Biontech ‹jedoch gentherapeutische Produkte›. Für ein Zulassungsverfahren müssten daher auch andere
+Regeln angewandt werden. 5
+Gerade wegen der fehlenden Studien zu Sicherheit und Wirksamkeit der ‹Impfstoffe› hätte mit Beginn der
+Impfung ein unabhängiges Gremium eingerichtet werden müssen, welches das gesamte Impfprogramm
+sicherheitstechnisch überwacht, alle relevanten Daten transparent macht und ein Eingriffsrecht hat, einen
+vorläufigen Impfstopp zu verfügen, wenn die Nebenwirkungen und Todesfälle im zeitlichen Zusammenhang mit der Impfung ein Mass überschreiten, das einen kausalen Zusammenhang mit der Impfung besorgen lässt.
+In den USA hat es solche Sicherheits-Gremien bei Impfungen immer gegeben, interessanterweise wurden
+sie beim Corona-Impfprogramm auch nicht eingerichtet. Dr. Peter McCullough, Kardiologe, stellvertretender
+Chefarzt am Baylor University Medical Center in Dallas, Texas, und wissenschaftlicher Berater, der zu den
+fünf meistpublizierenden medizinischen Forschern in den USA gehört, wies in einem Vortrag im Oktober
+2021 empört darauf hin. Er hatte selbst bei mehr als zwei Dutzend therapeutischen Produkten den Vorsitz
+von Gremien zur Überwachung der Datensicherheit geführt.
+«Als Vorsitzender eines Gremiums zur Überwachung der Datensicherheit habe ich einige kritische Entscheidungen getroffen, um ein Programm zu beenden, wenn es nicht sicher war», erklärte er. «Und ich kann
+Ihnen sagen, dass die Schwelle bei einigen wenigen Fällen liegt, die wir uns nicht erklären können. Bei fünf
+ungeklärten Fällen fangen wir an, uns sehr, sehr unwohl zu fühlen. Wenn wir 50 ungeklärte Todesfälle bei
+einer Produktfreigabe erreichen, ist es vorbei. Es ist weg. Wir schalten es ab und finden heraus, was falsch
+gelaufen ist. Bei neuen biologischen Produkten verlangen wir Sicherheit, Sicherheit, Sicherheit».
+Er erwähnte die Impfkampagne gegen die Schweinegrippe im Jahr 1976, in der nach nur 10 Wochen bereits 25% der 220 Millionen Menschen in den USA geimpft worden waren, als plötzlich 25 Todesfälle auftraten und von 550 Fällen mit dem Guillain-Barré-Syndrom berichtet wurde. Da habe die Regierung das Impfen sofort einstellen lassen. «Die Sorge um die Sicherheit war zu gross. Die Zahl der Todesfälle stieg nach
+dem Abbruch des Programms auf 53. Das war der Standard und sollte auch heute noch der Standard
+sein», erklärte McCullough.
+Im Gegensatz dazu sei man mit der aktuellen COVID-19-Gentransfer-Impfkampagne weit darüber hinaus.
+Tatsächlich sei die Zahl der Todesfälle heute 652 Mal höher als 1976, als die Regierung das Impfprogramm
+gegen die Schweinegrippe eingestellt habe.
+Bereits am 22. Januar (2021) ‹hatten wir ein grosses Problem. Wir hatten 182 Todesfälle›, fuhr McCullough
+fort, ‹die erwartete Zahl der Todesfälle, [durch] alle Impfstoffe zusammen, [ist] 158 [von ungefähr] 287 Millionen Impfungen pro Jahr in den Vereinigten Staaten. 182 [Todesfälle bei Verwendung der COIVD-Impfstoffe] lagen über der Grenze. Und wenn wir ein Gremium zur Überwachung der Datensicherheit hätten, wäre
+dieses Programm im Februar wegen übermässiger Sterblichkeit eingestellt und überprüft worden.
+Wir hatten [damals] nur 27 Millionen Menschen in den Vereinigten Staaten geimpft. Und was ist passiert?
+Nichts! Keine Sicherheitsüberprüfung! Das ist Amtsmissbrauch. Ein Fehlverhalten ist ein Fehlverhalten derjenigen, die eine Autoritätsposition innehaben. Und genau das ist passiert“, sagte er. 6
+182 Todesfälle in den USA bei 27 Millionen Impfungen bedeuten einen Prozentsatz von 0,0007% oder 7
+von 10’000. In Deutschland wurden bis zum 24.1.2021 insgesamt 1'783’118 Menschen geimpft. 7
+69 Todesfälle in Deutschland nach 1,8 Millionen Impfungen bedeuten einen Prozentsatz von 0,004% oder
+40 von 10’000. Damit war in Deutschland diese Grenze längst weit höher (fast um das 6-Fache gegenüber
+den USA) überschritten und hätte auch hier erst recht zu einem sofortigen Stopp der Impfungen führen
+müssen.
+Dr. McCullough beschuldigte die CDC, die FDA, die NIH, das Weisse Haus, den Senat und das Repräsentantenhaus, «alle in diese Sache verwickelt zu sein. Keiner von ihnen verlangte im Februar einen wirksamen
+Sicherheitsbericht und einen Stopp. Sie sind alle schuldig».
+Auf Deutschland übertragen bedeutet dies: Das PEI, das RKI, die Bundesregierung, Bundesrat und Bundestag sind alle in diesem Sinne am Leid und Tod Tausender Menschen schuldig, die bis heute nach der Impfung schwer erkrankt oder gestorben sind.
+Um es noch einmal hervorzuheben: Bei diesem vorläufigen Stopp der Impfungen kommt es nicht darauf
+an, ob bereits ein kausaler Zusammenhang der Nebenwirkungen und Todesfälle mit dem Impfstoff nachgewiesen ist. Er wäre eine vorsorgliche Massnahme allein wegen der Anzahl der Todesfälle, um sie in aller
+Ruhe und Gründlichkeit daraufhin zu untersuchen und danach über Fortsetzung oder endgültigen Abbruch
+der Impfaktion zu entscheiden.
+
+
+-----
+
+**Dunkelziffer**
+Dieser sofortige Impfstopp wäre umso dringender notwendig gewesen, als es erfahrungsgemäss und auch
+nach wissenschaftlichen Studien eine grosse Dunkelziffer nicht gemeldeter Nebenwirkungen und Todesfälle
+gibt. Das wissen auch die staatlichen Gesundheitsinstitute und das Bundesgesundheitsministerium. In einer
+neuen internationalen Untersuchung, veröffentlicht auf der Website der ‹United States National Library of
+Medicine›, wurden zur Untererfassung ‹insgesamt 37 Studien mit einer Vielzahl von Überwachungsmethoden aus 12 Ländern ermittelt. Daraus ergaben sich 43 numerische Schätzungen der Untererfassungsrate.
+Der Median der Untererfassungsrate in den 37 Studien lag bei 94%. 8 Nur ca. 6% der Nebenwirkungen
+werden also gemeldet.
+Rechnet man die dem PEI bis 31.12.2022 gemeldeten ca. 240’000 Nebenwirkungen, ca. 30’000 davon
+schwer und 2300 Todesfälle auf jeweils 100% hoch, so ergeben sich ca. 4 Millionen Nebenwirkungen, ca.
+500’000 schwere und ca. 38’000 Todesfälle in Deutschland. –
+Man muss sich diese ungeheuren Zahlen vor Augen halten: Und es gibt keinen Aufschrei und keinen sofortigen Impfstopp! Man impft und impft und nimmt Hunderttausende schwere Krankheiten und Zigtausende
+Tote in Kauf.
+Von Beginn der Impfungen an wurde die Parole ausgegeben: Das habe, ausser in seltenen Ausnahmefällen,
+mit der Impfung – vielfach schrieb das PEI in seinen Sicherheitsberichten ‹vermutlich› – nichts zu tun. –
+Wie kriminell ist das?
+Diese Daten werden durch einen jüngsten Brandbrief des Vorstandes der BKK-Krankenkasse ProVita an
+das PEI und andere bestätigt, der auf Daten von 11 Millionen Versicherten zurückgreifen kann. Der Vorsitzende Andreas Schöfbeck schreibt:
+«Uns liegen bisher die Abrechnungsdaten der Ärzte für das erste Halbjahr 2021 und circa zur Hälfte für
+das dritte Quartal 2021 vor. Unsere Abfrage beinhaltet die gültigen ICD-Codes für Impfnebenwirkungen.
+Diese Auswertung hat ergeben, obwohl uns noch nicht die kompletten Daten für 2021 vorliegen, dass wir
+anhand der vorliegenden Zahlen jetzt schon von 216’695 behandelten Fällen von Impfnebenwirkungen
+nach Corona Impfung aus dieser Stichprobe ausgehen. Wenn diese Zahlen auf das Gesamtjahr und auf die
+Bevölkerung in Deutschland hochgerechnet werden, sind vermutlich 2,5–3 Millionen Menschen in Deutschland wegen Impfnebenwirkungen nach Corona Impfung in ärztlicher Behandlung gewesen. Das sehen wir
+als erhebliches Alarmsignal an, das unbedingt beim weiteren Einsatz der Impfstoffe berücksichtigt werden
+muss.»
+Hochgerechnet auf ganz Deutschland waren demnach ‹circa 4–5% der geimpften Menschen wegen Impfnebenwirkungen in ärztlicher Behandlung. 9
+Der österreichische Blogger Dr. Peter F. Mayer schreibt dazu: «Die Todesfälle stimmen übrigens mit den
+Auswertungen der Übersterblichkeit in Deutschland überein. Verschiedene Quellen und Auswertungen bestätigen eine Übersterblichkeit von 35’000 bis 40’000 Todesfällen gegenüber dem erwarteten Wert nach
+den Vorjahren.» 10
+
+**Die Täuschungen des PEI**
+Wie dagegen das PEI die Impfnebenwirkungen und Todesfälle klein zaubert, hat der Corona-blog aufgedeckt. 11 Der Wirtschaftsjournalist Norbert Häring stellte, darauf Bezug nehmend, dieses ungeheure Täuschungsmanöver am verständlichsten wie folgt dar:
+Das PEI gebe vor, die wissenschaftliche Observed-versus-Expected-Analyse anzuwenden. Diese bedeute
+einen Vergleich der Anzahl der Todesfälle nach Impfung mit der Anzahl der Todesfälle, die im jeweiligen
+Intervall statistisch zu erwarten gewesen wären, einfach weil eben jeden Tag in etwa eine bestimmte Anzahl
+Menschen in Deutschland stirbt. Wenn an einem Tag oder in einer Woche nach Impfung regelmässig mehr
+Menschen stürben, als pro Tag oder pro Woche normal ist, wäre das ein Signal, dass da ein Problem sein
+könnte.
+«Aber das ist nicht der Vergleich, den das PEI anstellt. Es tut nur so. Vielmehr vergleicht die Behörde ‹die
+Anzahl der gemeldeten Verdachtsfälle von Nebenwirkungen mit tödlichem Ausgang im Abstand von einem
+Tag bis sechs Wochen nach einer COVID-19-Impfung mit der im gleichen Zeitraum statistisch zufällig zu
+erwartenden Anzahl der Todesfälle (Daten des Statistischen Bundesamtes)›.
+Wie nicht anders zu erwarten, ergibt dieser Vergleich ‹kein Risikosignal›, weil die erste Anzahl (Verdachtsfälle) viel kleiner ist als die zweite (typische Anzahl aller Todesfälle). Wie könnte es auch, bei so einem absurden Vergleich, anders sein. Das Statistische Bundesamt erfasst alle oder so gut wie alle Todesfälle. Dem
+PEI wird sicherlich nur ein Bruchteil der Todesfälle im Zeitraum von bis zu sechs Wochen nach einer Impfung als Verdachtsfall gemeldet. Wer würde denn Unfalltote als Impf-Verdachtsfälle melden? Und viele Fälle,
+die durch die Impfung verursacht worden sein könnten, aber dem Anschein nach nicht sind, werden nicht
+als Verdachtsfälle gemeldet, weil das Aufwand bedeutet und nicht vergütet wird.
+Stellen Sie sich vor, man wollte erfahren, ob Autounfälle die Todesrate erhöhen und vergleicht deshalb nach
+PEI-Art die Anzahl der gemeldeten Verdachtsfälle von Unfalltoten von einem Tag bis sechs Woche nach
+Autounfällen mit der im gleichen Zeitraum statistisch zufällig zu erwartender Anzahl der Todesfälle. Man
+
+
+-----
+
+käme wie das PEI bei den Impfungen zu dem Ergebnis, dass die erste Anzahl (erfasste mögliche Unfalltote)
+sehr viel niedriger ist als die zweite (alle durchschnittlichen Todesfälle) und schlösse daraus, dass Autounfälle die Todesrate nicht erhöhen.
+Zugegeben, das Beispiel ist noch etwas absurder als das, was das PEI macht, aber nicht viel. Das PEI
+schreibt ganz ungeniert, dass sein Vergleich eine Standardized Morbidity Ratio, (Standardisierte Sterberate;
+SMR) deutlich unter 1 ergibt, nämlich je nach Impfstoff zwischen 0,006-0,033, also sehr nahe bei Null.
+Wollte das PEI diese Werte ernsthaft als Ergebnis einer korrekten Observed-versus-Expected-Analyse interpretieren, dann müsste es behaupten, dass eine Impfung gegen Covid-19 das Risiko, an einer beliebigen
+Ursache zu sterben, für mindestens sechs Wochen auf nahe Null senkt.
+Die SMR wäre nämlich bei einem korrekten Vergleich nahe bei 1, wenn die Impfung keinen nennenswerten
+Einfluss auf die Todesrate hätte. Sie wäre bei 2, wenn die Impfung die Todesrate verdoppeln würde und sie
+wäre bei Null, wenn die Impfungen dafür sorgen würden, dass überhaupt niemand mehr (an irgendeiner
+Ursache) stirbt.
+Ich kann mir keinen Grund vorstellen, aus dem so ein grob irreführender Unsinn versehentlich produziert
+und veröffentlicht werden kann.» 12
+Wie kriminell ist diese ‹Rosstäuscherei›, wie N. Häring es nennt?
+
+**Nachbemerkung**
+Wie sehr der Brandbrief des Vorstandes der BKK- Versicherung ProVita, Andreas Schöfbeck, ins Schwarze
+trifft und die verlogenen Verlautbarungen der staatlichen Organe aufs Höchste gefährdet, zeigte sich am 1.
+März 2022, einen Tag bevor ein Gespräch mit dem PEI stattfinden sollte: Der Verwaltungsrat der gesetzlichen Versicherung kündigte ihm fristlos, nach 21 Jahren erfolgreicher Tätigkeit.
+Dr. Peter F. Mayer meldet: Im Pressebereich wurde die Begründung und Erklärung Schöfbecks, warum
+man den Brief vom 21.2.2021 an das Paul Ehrlich Institut geschickt habe, mittlerweile gelöscht. Stattdessen
+findet sich folgender Text:
+«Auf seiner heutigen Sitzung hat der Verwaltungsrat der BKK ProVita beschlossen, sich mit sofortiger Wirkung vom bisherigen Vorstand Andreas Schöfbeck zu trennen. Die Führung der BKK ProVita geht nahtlos
+in die Hände von Walter Redl über, dem langjährigen Stellvertreter des bisherigen Vorstandes.» 11
+Dies gehorcht dem Muster des neuen Totalitarismus, der sich auf allen Ebenen etabliert hat: Rigorose
+Gedanken- und Meinungszensur mit allen existenziellen Folgen gegen jeden, der den staatlichen Vorgaben
+nicht dient und es wagt, der Wahrheit und seinem eigenen Gewissen zu folgen.
+Wo bleiben eigentlich die Ermittlungsverfahren der Generalbundesanwaltschaft gegen die Verantwortlichen
+des PEI, des Bundesgesundheitsministeriums etc.? – Ach ja, die Staatsanwaltschaften sind in der deutschen
+Parteien-Oligarchie ja den Weisungen der Regierung unterstellt. Und wer lässt schon gegen sich selbst und
+seine untergeordneten Behörden ermitteln!?
+Es gibt nicht nur die Verschwörungstheorie, sondern auch die Verschwörungs-Praxis. Hier zeichnet sich
+etwas Gigantisches ab.
+_Anmerkungen:_
+_1  Siehe: Pathologen: Covid-19-Impfstoffe …_
+_2  Vgl. corona-blog.net 20.2.2022_
+_3  a.a.O._
+_4  pei.de 7.2.2022 S. 4_
+_5  zitiert nach multipolar-magazin 24.2.2022_
+_6  Siehe näher: fassadenkratzer.wordpress.com 21.11.2021_
+_7  pei.de 28.1.2021_
+_8  https://pubmed.ncbi.nlm.nih.gov/16689555/_
+_9  multipolar-magazin/mehr-impfnebenwirkungen 24.2.202_
+_10 tkp.at/von-der-impfplicht-zur-überwachung 26.2.2022_
+_11 Anm. 2_
+_12 norberthaering.de 3.3.2022_
+_13 tkp.at/bkk-provita-entlaesst 1.3.2022_
+_Quelle: https://fassadenkratzer.wordpress.com/2022/03/07/die-verleugnung-der-gewaltigen-impfnebenwirkungen-ist-das-_
+_paul-ehrlich-institut-ehrlich-oder-kriminell/_
+
+##### Daten aus Grossbritannien zeigen, dass die  überwiegende Mehrheit der Toten vollständig geimpft war
+_uncut-news.ch, März 7, 2022_
+
+Aus einem Bericht der UKHSA geht hervor, dass neun von zehn Todesfällen durch Covid vollständig geimpft
+waren. Vier von fünf waren auch dreimal geimpft worden. Booster schützen Sie nicht vor Covid, aber sie
+können Sie töten.
+
+
+-----
+
+Zwischen dem 24. Januar und dem 20. Februar waren etwa 91 % der in England verstorbenen CoronaPatienten vollständig geimpft worden. Sie haben bessere Chancen, nicht zu erkranken, wenn Sie nicht geimpft sind.
+Auch die CDC, das amerikanische Nationale Institut für öffentliche Gesundheit und Umwelt, berichtet, dass
+der Impfstoff bei Kindern im Alter von 5 bis 11 Jahren weit weniger wirksam ist als versprochen.
+Bemerkenswert ist auch, dass die gleiche Anzahl von Kindern, die laut CDC jedes Jahr an Grippe sterben,
+jetzt an Corona sterben. Wo sind die vielen Grippetoten geblieben? Sie wurden auf magische Weise in Covidtote verwandelt, damit Pharmakonzerne Hunderte von Milliarden pro Jahr verdienen und Regierungen eine
+totalitäre Kontrolle ausüben können.
+Noch bemerkenswerter ist, dass die CDC bereits eingeräumt hat, dass der PCR-Test nicht zwischen Covid
+und Grippe unterscheiden kann.
+Der Impfstoff ist völlig unwirksam, hat aber schockierende Nebenwirkungen. Schwedische Forscher haben
+herausgefunden, dass die mRNA des Impfstoffs in der Leber landet, wo sie in DNA umgewandelt wird.
+Warum wird sie zu DNA und was macht sie, wenn sie Teil des genetischen Codes des Körpers geworden
+ist? Das ist nicht normal. Impfstoffe verändern normalerweise nicht die DNA, wenn sie injiziert werden.
+Der Kardiologe und Epidemiologe Peter McCullough warnt, dass die schwedische Studie zeigt, wie gefährlich dieser Impfstoff ist, da er Chromosomen dauerhaft schädigt.
+In der Zwischenzeit werben die Medien, die Regierung und die Medizinmafia weiterhin für diese giftige
+Injektion.
+_Quelle: https://uncutnews.ch/daten-aus-grossbritannien-zeigen-dass-die-ueberwiegende-mehrheit-der-toten-vollstaendig-_
+_geimpft-war/_
+
+##### Die alarmierenden Trends bei den Nebenwirkungen der Covid-Impfungen  – zwei Millionen Kinder müssen geimpft werden, um 1 Aufnahme auf der Intensivstation zu verhindern
+_uncut-news.ch, März 4, 2022_
+
+Eine Kosten-Nutzen-Analyse zeigt, dass die COVID-Impfung das Risiko von Kindern erhöht, an einer COVIDInfektion zu sterben. Bei Kindern unter 18 Jahren ist die Wahrscheinlichkeit, an der Impfung zu sterben,
+51-mal höher als bei ungeimpften Kindern, die an einer COVID-Infektion sterben.
+Vier Millionen Dosen müssen Kindern im Alter von 5 bis 11 Jahren verabreicht werden, um eine einzige
+Einweisung in die Intensivstation in dieser Altersgruppe zu verhindern. Geht man von zwei Dosen pro Kind
+aus, bedeutet dies, dass 2 Millionen Kinder potenziell schwerwiegende Nebenwirkungen in Kauf nehmen
+müssen, um zu verhindern, dass ein einziges Kind aufgrund von COVID-19 eine Intensivbehandlung
+benötigt.
+Das israelische Gesundheitsministerium befragte kürzlich Personen, die eine dritte Auffrischungsimpfung
+erhalten hatten, um die tatsächliche Nebenwirkungsrate zu ermitteln. Von den 2068 befragten Personen
+mussten 0,3% wegen eines unerwünschten Ereignisses ins Krankenhaus eingeliefert werden; dreimal mehr
+Frauen als Männer (6,9% gegenüber 2,1%) hatten neurologische Probleme; 9,6% der Frauen unter 54 Jahren hatten Menstruationsstörungen; 26,4% der Personen mit bereits bestehenden Angststörungen oder
+Depressionen erlebten eine Verschlechterung ihrer Symptome, ebenso wie 24,2% der Personen mit bereits
+bestehenden Autoimmunerkrankungen
+Auch die Daten der deutschen Krankenkassen zeigen einen alarmierenden Trend. Nach der Analyse der
+medizinischen Daten von 10,9 Millionen Versicherten kam eine grosse Krankenkasse zu dem Schluss, dass
+400’000 Arztbesuche realistischerweise auf Impf-Nebenwirkungen zurückgeführt werden können. Hochgerechnet auf die Gesamtbevölkerung Deutschlands läge die Gesamtzahl der Nebenwirkungen der Impfung,
+die eine ärztliche Behandlung erfordern, bei 3 Millionen, also etwa 1000% höher als vom deutschen Gesundheitsministerium zugegeben
+
+
+-----
+
+Zwei Autopsien von Teenagern, die innerhalb weniger Tage nach ihrer COVID-Impfung starben, ergaben,
+dass die Impfung die Ursache für ihren Tod war.
+Mitte Februar 2022 begann das Vereinigte Königreich mit der Einführung der COVID-Impfung für Kinder
+zwischen 5 und 11 Jahren. In den USA wird die Impfung für diese Altersgruppe bereits seit Oktober 2021
+empfohlen.
+In einem Interview von Nick De Bois mit Jamie Jenkins, ehemaliger Leiter der Abteilung für Gesundheitsund Arbeitsmarktanalysen beim britischen Amt für nationale Statistiken (siehe oben), wird die Frage gestellt: Warum sollte man Kinder in diesem Alter impfen? Das Risiko, das COVID-19 für Kinder darstellt, ist
+verschwindend gering.
+Darüber hinaus schätzt das britische Joint Committee on Vaccination and Immunization (JCVI), dass Ende
+Januar 2022 bereits 85% der Kinder im Alter von 5 bis 11 Jahren über eine natürliche Immunität verfügen.
+Hinzukommt, dass die vorherrschende Variante, Omicron, weitaus milder ist als frühere Stämme und bei
+den meisten Menschen, einschliesslich Kindern, nur leichte Erkältungssymptome verursacht.
+Diese drei Fakten zusammengenommen sollten deutlich machen, dass Kinder diese Impfung nicht brauchen. Eine Kosten-Nutzen-Analyse von Dr. Stephanie Seneff und der Forscherin Kathy Dopp zeigt ausserdem, dass die COVID-Impfung das Risiko für Kinder erhöht, an einer COVID-Infektion zu sterben. Bei Kindern unter 18 Jahren ist die Wahrscheinlichkeit, an der Impfung zu sterben, 51-mal höher als bei ungeimpften Kindern, die an COVID sterben.
+
+**Bill Gates traurig über weit verbreitete natürliche Immunität**
+Bill Gates hat sogar zu Protokoll gegeben, dass Omikron eine weit verbreitete Immunität schafft. Das Bemerkenswerte und Aufschlussreiche an seinem Kommentar ist die Art und Weise, wie er es sagte. Er beklagte
+sogar die Wirksamkeit von Omikron, als ob es etwas Schreckliches wäre, und sagte:
+Leider ist das Virus selbst, insbesondere die Omikron-Variante, eine Art Impfstoff, da es sowohl eine T-Zellen- als auch eine B-Zellen-Immunität hervorruft, und es hat die Bevölkerung besser erreicht als unsere
+Impfstoffe.
+Jenkins: «Was ist daran so traurig?»
+
+**Vier Millionen Dosen erforderlich, um eine einzige Aufnahme auf der Intensivstation zu verhindern**
+Eine erstaunliche Statistik, die Jenkins anführt, ist, dass 4 Millionen Dosen an Kinder im Alter von 5 bis 11
+Jahren verabreicht werden müssen, um eine einzige Einweisung auf die Intensivstation in dieser Altersgruppe zu verhindern. Geht man von zwei Dosen pro Kind aus, bedeutet dies, dass 2 Millionen Kinder das Risiko
+schwerwiegender und möglicherweise lebenslanger Nebenwirkungen auf sich nehmen müssen, um zu verhindern, dass ein einziges Kind aufgrund von COVID-19 eine Intensivbehandlung benötigt. Wie ist dies zu
+rechtfertigen? Wie auf der Website von Jenkins erläutert:
+Das JCVI hat erklärt, dass die Impfung von Kindern im Alter von 5 bis 11 Jahren, die nicht zu einer klinischen
+Risikogruppe gehören, eine relativ geringe Anzahl von Krankenhausaufenthalten oder Einweisungen in die
+Intensivpflege verhindern würde. Bei einer Variante wie Omikron wären etwa vier Millionen Impfdosen für
+zwei Millionen Kinder erforderlich, um eine Einweisung in die Intensivstation zu verhindern.
+Bei weniger schweren Erkrankungen würden 58’000 Kinderimpfungen einen Krankenhausaufenthalt eines
+Kindes verhindern. Kinder, die kürzlich mit COVID ins Krankenhaus eingeliefert wurden, hatten eine durchschnittliche Aufenthaltsdauer von 1 bis 2 Tagen. Während der Omikron-Fälle waren nicht mehr Kinder im
+Krankenhaus als vor dem Auftreten von Omikron im Vereinigten Königreich.
+
+**Pfizer zieht Impfungen für Kinder unter 5 Jahren zurück**
+Während Impfstoffhersteller und Gesundheitsbehörden die COVID-Impfung für Säuglinge ab 6 Monaten
+vorantreiben, können Eltern mit Kindern unter 5 Jahren vorerst aufatmen, denn die Pläne zur Einführung
+von Impfungen für die Altersgruppe unter 5 Jahren wurden zumindest vorübergehend ausgesetzt.
+Am 11. Februar 2022 zog Pfizer seinen Antrag auf eine US-Notfallgenehmigung (Emergency Use Authorization, EUA) für Kinder unter 5 Jahren zurück. Nach Angaben der US-Arzneimittelbehörde FDA und von
+Pfizer will man mehr Daten über die Auswirkungen einer dritten Dosis sammeln, da zwei Dosen bei 2- bis
+5-Jährigen nicht die erwartete Immunität erzeugten.
+Drei Tage später erklärte der frühere FDA-Kommissar und jetzige Pfizer-Vorstand Scott Gottlieb gegenüber
+CNBC, dass der EUA-Antrag zurückgezogen wurde, weil die COVID-Fälle bei Kleinkindern so gering sind,
+dass ein grosser Nutzen der Impfung nicht nachgewiesen werden konnte.
+Wenn man bedenkt, dass man die Impfung etwa 2 Millionen Kindern verabreichen muss, um einen einzigen
+Aufenthalt auf der Intensivstation zu verhindern, ist es kein Wunder, dass die Wirksamkeit in Studien mit
+nur ein paar tausend Kindern nicht nachgewiesen werden kann. Die Jugendstudie von Pfizer an 5- bis 11Jährigen hatte gerade einmal 2268 Teilnehmer, und nur zwei Drittel von ihnen erhielten die echte COVIDImpfung.
+
+
+-----
+
+Das OpenVAERS-Team vermutet jedoch, dass hinter dem Rückzug von Pfizer etwas viel Problematischeres
+stecken könnte. In einer E-Mail-Benachrichtigung an die Abonnenten vom 21. Februar 2022 erklärte Open
+VAERS:
+Keine dieser Erklärungen reicht aus, weil alle diese Informationen bekannt waren, bevor Pfizer diese EUA
+am 1. Februar [2022] bei der FDA einreichte. Es stellt sich die Frage, ob unerwünschte Ereignisse in der
+Behandlungsgruppe der Faktor sein könnten, über den weder Pfizer noch die FDA sprechen wollen?
+Deshalb haben wir uns die Berichte über Verletzungen im Zusammenhang mit COVID-19-Impfstoffen bei
+Kindern bis 17 Jahren angesehen. Bedenken Sie, dass diese Impfung erst seit kurzem auf dem Markt ist
+und nur Kinder zwischen 5 und 17 Jahren für die Untersuchung infrage kommen. Wir haben eine separate
+Seite mit dem Titel Child Reports (Kinderberichte) eingerichtet, die automatisch aktualisiert wird, sobald
+neue Berichte eingehen.
+Wir waren schockiert über das, was wir gefunden haben: 34’223 VAERS-Meldungen in den USA in dieser
+Altersgruppe, darunter Kinder, die durch die Übertragung von der Mutter über die Muttermilch geschädigt
+wurden, viele Berichte über Kinder, die zu jung geimpft wurden (entweder haben die Eltern über ihr Alter
+gelogen oder der Arzt/die Apotheke hat einen Fehler beim Screening oder bei der Dosierung gemacht),
+und herzzerreissende Berichte über Herzmuskelentzündung und Todesfälle.
+
+**Schockierende Daten aus Israel zeigen das Ausmass der Nebenwirkungen**
+Während Gesundheitsbehörden und Mainstream-Medien immer noch darauf bestehen, dass die Nebenwirkungen der COVID-Impfung ‹selten› sind, zeigen Daten aus der Praxis etwas anderes. Eine englische Übersetzung des Berichts kann von Galileo Is Back auf Substack heruntergeladen werden. Wie in dem Bericht
+vermerkt:
+Am 20. Dezember 2020 wurde in Israel ein Impfprogramm mit dem Impfstoff von Pfizer für COVID-19
+gestartet. Bis Ende März 2021 war mehr als die Hälfte der Bevölkerung mit zwei Impfstoffdosen geimpft
+worden.
+Der Rückgang der Immunität im Laufe der Zeit und das Auftreten neuer Varianten führten im Sommer
+2021 zu einem erneuten Anstieg der Morbidität in Israel. Ende Juli 2021 wurde eine dritte Impfung (Auffrischungsimpfung) für alle Personen genehmigt, die zwei Impfungen erhalten hatten und bei denen mindestens fünf Monate nach der zweiten Impfung vergangen waren.
+Aus der Datenerhebung durch medizinische Teams oder aus der Selbstauskunft der Bevölkerung über
+Nebenwirkungen in zeitlicher Nähe (passive Überwachung) geht hervor, dass es eine Untererfassung gibt;
+daher ist es wichtig, Nebenwirkungen in zeitlicher Nähe zur Impfung mit der Auffrischungsimpfung durch
+eine spezielle Umfrage aktiv zu ermitteln.
+Allgemeine Ziele: Ermittlung der Häufigkeit von Nebenwirkungen, die innerhalb von 21–30 Tagen nach der
+dritten Pfizer-Impfung (Booster) gegen COVID-19 bei Bürgern über 18 Jahren auftreten.
+Spezifische Ziele: Untersuchung der Prävalenz von Nebenwirkungen in zeitlicher Nähe zur dritten Impfung,
+gruppiert nach Alter und Geschlecht. Untersuchung des Zeitpunkts des Auftretens im Zusammenhang mit
+der Verabreichung des Impfstoffs und dessen Dauer sowie Vergleich mit den Nebenwirkungen früherer
+Impfstoffe.
+Insgesamt wurden 2894 Personen kontaktiert, von denen sich 2068 bereit erklärten, sich befragen zu lassen (Rücklaufquote: 71,4%). Von diesen 2068 geimpften Personen:
+0,3% mussten wegen eines unerwünschten Ereignisses ins Krankenhaus eingeliefert werden.
+4,5% hatten ein oder mehrere neurologische Probleme (2,1% der Männer und 6,9% der Frauen), wie z. B.
+Kribbeln oder Juckreiz, Bellsche Lähmung, Sehstörungen, Gedächtnisstörungen, Hörschäden, Krämpfe, Bewusstseinsverlust und mehr.
+9,6% der Frauen unter 54 Jahren litten unter Menstruationsstörungen. Von diesen Frauen «litten 39% unter
+ähnlichen Nebenwirkungen nach früheren COVID-19-Impfungen; die meisten (67%) gaben jedoch an, dass
+die Nebenwirkungen vor der dritten Impfung nachliessen und nach der Impfung wieder auftraten».
+26,4% der Personen mit vorbestehenden Angststörungen oder Depressionen erlebten eine Verschlimmerung ihrer Symptome.
+24,2% der Personen mit vorbestehenden Autoimmunkrankheiten erlebten eine Verschlimmerung ihrer
+Krankheit.
+Zwischen 6,3% und 9,3% der Personen mit vorbestehendem Bluthochdruck, Lungenkrankheiten, Diabetes
+und Herzkrankheiten berichteten ebenfalls, dass sich ihr Zustand nach der dritten Auffrischungsimpfung
+verschlimmert hatte. Eine kleine Zahl von Frauen, aber keine Männer, meldeten auch Herpesinfektionen
+(0,4% bei Herpes-simplex-Infektionen und 0,3% bei Herpes zoster). Weitere wichtige Erkenntnisse aus diesem israelischen Bericht sind:
+
+**Nebenwirkungen treten häufiger bei Frauen und jüngeren Menschen auf**
+1 von 10 Frauen leidet unter Menstruationsunregelmässigkeiten.
+Neurologische Nebenwirkungen treten in der Regel erst etwa einen Monat nach der Impfung auf.
+
+
+-----
+
+In den meisten Fällen war das Auftreten einer bestimmten Nebenwirkung nach der dritten Impfung nicht
+schwerer als nach den beiden vorangegangenen Dosen. Anders ausgedrückt: Der Schweregrad der Nebenwirkungen ist in der Regel gleich, unabhängig von der Anzahl der Dosen, sodass diese Ergebnisse möglicherweise auch für die Dosen 1 und 2 gelten.
+
+**Deutsche Krankenkassendaten zeigen alarmierende Nebenwirkungsraten**
+Auch die Daten der deutschen Krankenkassen schlagen Alarm. Andreas Schöfbeck, Vorstandsmitglied einer
+grossen Krankenkasse namens BKK ProVita, teilte die Daten mit Die Welt.
+Sie analysierten die medizinischen Daten von 10,9 Millionen Versicherten und suchten nach möglichen
+Nebenwirkungen von COVID-Tabletten. Zu ihrem Entsetzen stellten sie fest, dass 400’000 Arztbesuche
+realistisch auf die Impfung zurückgeführt werden können. Hochgerechnet auf die Gesamtbevölkerung
+Deutschlands läge die Gesamtzahl der Arztbesuche, die auf Nebenwirkungen der Impfung zurückzuführen
+sind, bei 3 Millionen, so Schöfbeck.
+«Die Zahlen, die sich aus unserer Analyse ergeben, sind sehr weit von den öffentlich bekannt gegebenen
+Zahlen [des Gesundheitsministeriums] entfernt. Es wäre unethisch, nicht darüber zu sprechen», sagte
+Schöfbeck der ‹Welt› und fügte hinzu, die Daten seien ‹ein alarmierendes Signal›. Wie Die Welt berichtet:
+Von Januar bis August 2021 … mussten rund 217’000 der knapp 11 Millionen BBK-Versicherten wegen
+Impfnebenwirkungen behandelt werden – während das Paul-Ehrlich-Institut nur 244’576 Nebenwirkungsmeldungen auf der Basis von 61,4 Millionen Geimpften aufbewahrt …
+Damit wäre die Zahl der Impfnebenwirkungen um mehr als 1000 Prozent höher als die PEI-Meldungen …
+Schöfbeck wandte sich mit seiner Analyse an eine Vielzahl von Institutionen – von der Bundesärztekammer
+über die StiKo bis hin zum Paul-Ehrlich-Institut selbst.
+Er bezeichnete die Zahlen als ein ‹starkes Alarmsignal›, das «bei der weiteren Verwendung von Impfstoffen
+unbedingt berücksichtigt werden muss». Seine Zahlen könnten durch die gleichen Datenanalysen anderer
+Krankenkassen validiert werden, sagt er …
+Da ‹eine Gefährdung von Menschenleben nicht ausgeschlossen werden kann›, setzte er eine Frist bis Dienstag [22. Februar 2022] um 18 Uhr, um auf sein Schreiben zu antworten. Als diese Frist verstrich, wandten
+sie sich an die Öffentlichkeit.
+
+**Autopsieergebnisse bei Teenagern offenbaren Herzschäden**
+Um auf das Thema Kinder und die Gefahr zurückzukommen, der wir sie durch die Verabreichung dieser
+Spritze aussetzen, haben zwei Autopsien von Teenagern, die wenige Tage nach ihrer COVID-Impfung gestorben sind, ergeben, dass die Spritze ihren Tod verursacht hat. Wie The Defender berichtet:
+Die drei Pathologen, von denen zwei Gerichtsmediziner sind, veröffentlichten ihre Ergebnisse am 14.
+Februar in einem Artikel mit dem Titel ‹Autopsy Histopathologic Cardiac Findings in Two Adolescents Following the Second COVID-19 Vaccine Dose› in den Archives of Pathology and Laboratory Medicine.
+Die Ergebnisse der Autoren waren schlüssig. Zwei Jungen im Teenageralter wurden drei und vier Tage nach
+der zweiten COVID-19-Dosis von Pfizer-BioNTech zu Hause für tot erklärt. Es gab keine Hinweise auf eine
+aktive oder frühere COVID-19-Infektion. Die toxikologischen Untersuchungen der Jugendlichen waren negativ (d. h. es waren keine Drogen oder Gifte in ihrem Körper vorhanden). Diese Jungen starben an den Folgen
+des Impfstoffs.
+Die histopathologische Untersuchung ergab, dass die Herzen der beiden Jungen keine Anzeichen einer
+typischen Myokarditis aufwiesen. Stattdessen wurden Veränderungen festgestellt, die mit einer Katecholamin-vermittelten Stress-Kardiomyopathie, auch bekannt als toxische Kardiomyopathie, übereinstimmen.
+Dabei handelt es sich um eine vorübergehende Form der Herzschädigung, die sich als Reaktion auf extreme
+körperliche, chemische oder emotionale Stressfaktoren entwickeln kann. Ein anderer gebräuchlicher Begriff
+für diese Art von Schädigung ist ‹Syndrom des gebrochenen Herzens›. Auch hyperinflammatorische Zustände wie eine schwere COVID-19-Infektion können diese Art von Schädigung des Herzens verursachen.
+Weitere Einzelheiten zur medizinischen Vorgeschichte der beiden Jungen und zu den Ergebnissen der
+Autopsie werden von Pam Popper vom Wellness Forum Health in dem obigen Video erläutert. Seltsamerweise hatte keiner der Jungen vor seinem Tod irgendwelche Symptome einer Myokarditis. Einer der beiden
+hatte über Kopfschmerzen und Magenverstimmungen geklagt. Der andere hatte keine Symptome erwähnt.
+Wie ‹The Defender› bemerkt:
+Dies ist äusserst besorgniserregend. Diese Jungen hatten schwelende, katastrophale Herzverletzungen
+ohne Symptome. Wie viele andere haben eine schleichende Herzbeteiligung durch die Impfung, die sich
+erst zeigt, wenn sie einen schweren Fall von COVID-19 oder die Grippe bekommen? Oder vielleicht, wenn
+sie sich den körperlichen Belastungen des Leistungssports aussetzen?
+Diese Ergebnisse legen nahe, dass ein erheblicher Teil der COVID-19-Todesfälle bei Geimpften auf die Impfstoffe selbst zurückzuführen sein könnte. Ausserdem wirft dies die Frage auf: Wie oft tritt diese Krankheit
+in latenter Form bei geimpften Personen auf?
+
+
+-----
+
+**Myokarditis-Risiko bei jungen Männern ist keine Seltenheit**
+Die Daten des U.S. Vaccine Adverse Events Reporting System (VAERS) werfen auch Fragen über das Risiko
+einer potenziell tödlichen Myokarditis auf, insbesondere bei Jungen. Die folgende Folie wurde am 23. Juni
+2021 auf einer Sitzung des Advisory Committee on Immunization Practices (ACIP) der Centers for Disease
+Control and Prevention präsentiert, um das Risiko einer Myoperikarditis zu diskutieren.
+Wie Sie sehen können, sind die beobachteten Raten von Myokarditis und/oder Perikarditis für mehrere
+Altersgruppen und insbesondere bei Männern deutlich höher als die erwartete Hintergrundrate.
+Dies ist ein lautes und deutliches Sicherheitssignal, und dennoch hat der ACIP die Impfung für Kinder und
+Jugendliche empfohlen und in einer öffentlichen Erklärung darauf bestanden, dass Myoperikarditis ‹eine
+extrem seltene Nebenwirkung› sei, die ‹nur bei einer äusserst geringen Anzahl von Menschen nach der Impfung auftritt›. Wie können sie das sagen, wenn ihnen solche Daten direkt vor die Nase gehalten werden?
+
+Auf der Grundlage dieser VAERS-Daten liegt die Myokarditis-Rate bei den 12- bis 17-Jährigen bei etwa 6,5
+pro 100’000 Dosen. Um zum Ausgangspunkt zurückzukehren: Es sind 4 Millionen Dosen erforderlich, um
+zu verhindern, dass ein einziges Kind im Alter von 5 bis 11 Jahren wegen COVID auf die Intensivstation eingeliefert wird.
+Geht man davon aus, dass die Myokarditis-Rate bei 5- bis 11-Jährigen identisch ist mit der bei 12- bis 17Jährigen, so könnten wir für jede Einweisung in die Intensivstation wegen COVID, die wir verhindern, 260
+Fälle von Myokarditis ausschliessen. Im Grossen und Ganzen stellt die COVID-Impfung nur für Kinder unter
+18 Jahren ein Risiko dar, sodass es absolut keine Rechtfertigung dafür gibt.
+_Quelle:_
+_1 Yale Medicine October 25, 2021, Updated February 11, 2022_
+_2, 3 Stats Jamie_
+_4 COVID-19 and All-Cause Mortality Data Analysis by Kathy Dopp and Stephanie Seneff (PDF)_
+_5, 6 Twitter Jamie Jenkins February 18, 2022_
+_7, 8 Stats Jamie February 20, 2022_
+_9 New York Times February 12, 2022_
+_10 USA Today February 11, 2022_
+_11 CNN December 17, 2021_
+_12 CNBC February 14, 2022_
+_13 VOA October 22, 2021_
+_14 Galileo Is Back Substack February 15, 2022_
+_15 WELT Mehr Impf-Nebenwirkungen als bisher bekannt_
+_16 Steve Kirsch Substack February 23, 2022_
+_17, 19, 20 The Defender February 18, 2022_
+_18 Archives of Pathology & Laboratory Medicine February 14, 2022 DOI: 10.5858/arpa.2021-0435-SA_
+_21 HHS.gov June 23, 2021_
+_QUELLE: 2 MILLION CHILDREN MUST BE JABBED TO PREVENT 1 ICU ADMISSION_
+_Quelle: https://uncutnews.ch/die-alarmierenden-trends-bei-den-nebenwirkungen-der-covid-impfungen-zwei-millionen-_
+_kinder-muessen-geimpft-werden-um-1-aufnahme-auf-der-intensivstation-zu-verhindern/_
+
+
+-----
+
+##### Verbreitung des richtigen Friedenssymbols
+Das falsche Friedenssymbol – die heute weltweit verbreitete sogenannte <Todesrune>, die
+
+**Es soll FRIEDEN sein auf Erden** aus den keltischen Futhark-Runen resp. der umgedrehten Algiz-Rune fabriziert wurde – ist
+
+**And there shall be PEACE on Earth** der eigentliche Inbegriff negativer Einflüsse und schafft zerstörerische Schwingungen
+
+hinsichtlich Unfrieden, Fehden und Hass, Rache, Laster, Süchte und Hörigkeit, denn die
+
+**AMANI** **ΕΙΡΗΝΗ** <Todesrune> bedeutet für viele Menschen Reminiszenzen an die NAZI-Zeit, an Tod und
+**BARIŞ** **VREDE** Verderben, wie aber auch Ambitionen in bezug auf Kriege, Terror, Zerstörungen vieler
+**PAQE** **��** menschlicher Errungenschaften und allen notwendigen Lebensgrundlagen jeder Art und
+**PACE** **שרום** weltweit Unfrieden.
+**МИР** शांित Es Ist wirklich dringlichst notwendig, dass die <Todesrune> als falschen Friedenssymbol,
+**PAIX** **���** das Unfrieden und Unruhe schafft, völlig aus der Erdenwelt verschwindet und dadurch das
+**PAZ** **��** uralte sowie richtige Peacesymbol auf der ganzen Erde verbreitet und weltbekannt gemacht
+
+wird, dessen zentrale Elemente Frieden, Freiheit, Harmonie, Stärkung der Lebenskraft,
+
+**FIGU.ORG** Schutz, Wachstum und Weisheit reflektieren, aufbauend wirken und sehr besänftigend und
+
+**FIGU, Semjase-Silver-Star-Center, 8495 Schmidrüti**
+**Schweiz/Switzerland  Tel. + 41 (0)52 385 13 10** friedlich-positiven Schwingungen zum Durchbruch verhelfen, die effectiv Frieden, Freiheit
+
+und Harmonie vermitteln können! Wir wenden uns deshalb an alle vernünftigen Menschen
+der Erde, an alle FIGU Interessengruppen, FIGU Studiengruppen und FIGU-Landesgruppen und damit an alle vernünftigen und ehrlich
+nach Frieden, Freiheit, Harmonie, Gerechtigkeit, Wissen und Evolution strebenden Menschen, ihr Bestes zu tun und zu geben, um das
+richtige Friedenssymbol weltweit zu verbreiten und Aufklärung zu schaffen über die gefährliche und destruktive Verwendung der
+<Todesrune>, die in Erinnerung an die NAZI-Verbrechen kollektiv im Sinnen und Trachten der Menschen Charakterverlotterung,
+Ausartung und Unheil fördert, wie das leider auch nach dem Ende des letzten Weltkrieges 1939–1945 extrem bis in die heutige Zeit
+hineingetragen wird.
+
+##### Spreading of the Correct Peace Symbol
+The wrong peace symbol – the globally widespread “death rune” which has been fabricated from the Celtic Futhark runes or inverted
+Algiz rune – is the actual embodiment/quintessence of negative influences and evokes destructive swinging-waves regarding unpeace
+and hatred, revenge, vice, addictions and bondage, because for many human beings the “death rune” means reminiscence (memories)
+of the Nazi era, of death and ruin as well as ambitions concerning war, terror, destruction of human achievements, livelihoods as well
+as global evil unpeace.
+Therefore it is of the utmost necessity that the wrong peace symbol, the “death rune”, disappears from the world and that the urancient and correct peace symbol is spread and made known all-over the world, because its central elements reflect peace, freedom,
+harmony, strengthening of the life power, protection, growth and wisdom, have a constructive and strongly soothing effect, and help
+peaceful-positive swinging-waves to break through.
+Therefore we appeal to all FIGU members, all FIGU Interessengruppen, Studiengruppe and Landesgruppen as well to all reasonable
+human beings, who are honestly striving for peace, freedom, harmony, fairness, knowledge and evolution, to do, and give, their best
+to spread the correct peace symbol worldwide and to bring forth clarification about the dangerous and destructive use of the “death
+rune”, which in memory of the Nazi crimes collectively furthers deterioration and neglect of character-"ausartung" and terribleness in
+the reflecting and striving of the human being, as this is still being extremely carried on after the end of the last world war 1939–1945
+until the current time.
+
+**Autokleber** **Bestellen gegen Vorauszahlung:** **E-Mail, WEB, Tel.:**
+**Grössen der Kleber:** **FIGU** info@figu.org
+120x120 mm = CHF 3.– Hinterschmidrüti 1225 www.figu.org
+250x250 mm = CHF 6.– 8495 Schmidrüti Tel. 052 385 13 10
+300X300 mm = CHF 12.– Schweiz Fax 052 385 42 89
+
+**IMPRESSUM** **Für CHF/EURO 10.– in einem Couvert, senden**
+**FIGU-ZEITZEICHEN UND FIGU-SONDER-ZEITZEICHEN                   wir Ihnen/Dir 3 Stück farbige Friedenskleber**
+**Druck und Verlag: FIGU** Wassermannzeit Verlag, **der Grösse** **120x120 mm = am Auto aufkleben.**
+Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+**FIGU ZEITZEICHEN erscheint sporadisch**
+**FIGU Sonder ZEITZEICHEN erscheint sporadisch**
+Wird auch im Internetz veröffentlicht, auf der FIGU Webseite: www.figu.org/ch
+**Redaktion: BEAM** ‹Billy› Eduard Albert Meier /././ Telephon +41(0)52 38513 10 (7.00 h – 19.00 h) / Fax +41(0)52 385 42 89
+**Postcheck-Konto: PC 80-13703-3 FIGU Freie Interessengemeinschaft, 8495 Schmidrüti, Schweiz**
+**IBAN: CH06 0900 0000 8001** **3703-3,**
+
+**E-Brief: info@figu.org**
+**Internetz: www.figu.org**
+**FIGU-Shop: http://shop.figu.org**
+
+**© FIGU 2022**
+Einige Rechte vorbehalten.
+Dieses Werk ist, wo nicht anders
+angegeben, lizenziert unter: Geisteslehre Friedenssymbol
+www.figu.org/licenses/by-nc-nd/2.5/ch/
+
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung**
+**des Urhebers ausdrücklich erlaubt.**
+Erschienen im Wassermannzeit-Verlag: FIGU, ‹Freie Interessengemeinschaft
+Universell›, Semjase Silver Star Center,
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+**Frieden**
+Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten
+Tritt dazu macht, um dann nachfolgend in Friedsamkeit jeden weiteren Schritt
+bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun.
+SSSC, 10. September 2018, 16.43 h, Billy
+
+
+-----
+

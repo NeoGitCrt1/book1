@@ -1,0 +1,2467 @@
+5. Jahrgang
+Nr. 125, Sept. /1 2019
+
+
+Erscheinungsweise:
+Zweimal monatlich
+
+
+# FIGU –
+ ZEITZEICHEN
+
+#### Aktuelles • Einsichten • Erkenntnisse
+
+Internetz: http://www.figu.org
+E-Brief:  info@figu.org
+
+
+#### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+
+Laut ‹Allgemeine Erklärung der Menschenrechte›, verkündet von der Generalversammlung der Vereinten Nationen am 10. Dezember 1948, herrscht
+
+eine allgemeine ‹Meinungs- und Informationsfreiheit› vor, und dieses unumschränkte Recht gilt weltweit und absolut für jeden einzelnen
+
+Menschen weiblichen oder männlichen Geschlechts jeden Alters und Volkes, jedes gesellschaftlichen Standes wie auch in bezug
+
+auf rechtschaffene Ansichten, Ideen und jeglichen Glauben jeder Philosophie, Religion, Ideologie und Weltanschauung:
+
+**Art. 19 Menschenrechte**
+
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit, Meinungen**
+
+**unangefochten anzuhängen und Informationen und Ideen mit allen Verständigungsmitteln ohne**
+
+**Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Ansichten, Aussagen, Darstellungen, Glaubensgut, Ideen, Meinungen sowie Ideologien jeder Art in Abhandlungen, Artikeln und in Leserzuschriften usw.,
+
+müssen in keiner Art und Weise zwingend identisch mit der ‹Lehre der Wahrheit, Lehre des Geistes, Lehre des Lebens›, mit dem Gedankengut und
+
+den Interessen, wie auch nicht in irgendeiner Sachweise oder Sichtweise mit dem Missionsgut und dem Habitus der FIGU verbindend sein.
+
+==============================================================================================================
+
+Für alle in den FIGU-Zeitzeichen und anderen FIGU-Periodika publizierten Beiträge und Artikel verfügt die
+
+FIGU über die notwendigen schriftlichen Genehmigungen der Autoren bzw. der betreffenden Medien!
+
+#### **********************************************************************************
+
+**Auf vielfach geäusserten Wunsch aus der Zeitzeichen-Leserschaft sollen in den Zeitzeichen zur Orientierung der**
+
+**Rezipienten laufend Auszüge diverser wichtiger Belange aus neuest geführten Kontaktgesprächsberichten**
+
+**veröffentlicht werden, wie nach Möglichkeit auch alte sowie neue Fakten betreffs weltweit bösartig mit**
+
+**Lügen, Betrug, Verleumdung und Mordanschlägen gegen BEAM geführte Kontroversen.**
+
+**********************************************************************************
+
+### Auszug aus dem 717. Gesprächsbericht vom 4. April 2019
+
+**Ptaah … … Heute habe ich sowieso einiges zu sagen, das unerfreulich ist, denn beim Kontrollieren der**
+Gesprächsberichte, die du nach unserer Unterhaltung jeweils über längere Zeit hinweg abrufst und im
+Computer aufzeichnest, hat sich ergeben, dass im 669. Gesprächsbericht vom 1. Januar 2017
+hinsichtlich der Voraussagen meines Vaters Sfath, diese leider äusserst unvollständig sind. Mir ist
+bewusst, dass dies nicht einer Unaufmerksamkeit oder Schuld deinerseits entspricht, denn ich weiss um
+deine Korrektheit und Beflissenheit aller Dinge, mit denen du dich beschäftigst. Und da uns auch bekannt
+ist, dass durch die auf alle deine Arbeiten einwirkenden sektiererischen Energien und Kräfte bösartig
+Störungen hervorgerufen und auch bereits niedergeschriebene Texte gelöscht oder verfälscht werden, wie
+ich persönlich unter anderem ebenso mehrmals miterleben konnte, wie es aber auch mehrere
+Kerngruppemitglieder selbst erleben konnten, so ist für mich die Sache klar.
+Was du geschrieben hast, das werde ich aus deinem Computer übernehmen, und zudem kannst du es,
+da wir das Ganze ja erwähnt haben, hier an meine Worte anschliessen, womit es dann später auch von
+allen interessierten Personen gelesen werden kann.
+… … …
+
+**Billy** Gut, dann werde ich das tun, doch was ist denn jetzt wieder mit dem 669. Kontaktbericht und den
+
+Voraussagen deines Vaters Sfath?
+
+**Ptaah Dazu benötige ich jetzt einige Zeit, denn ich habe hier alles, was ich aufgezeichnet habe, das du**
+nun von meines Vaters Voraussage aus dem Jahr 1947 einsehen musst. Wie ich im Januar 2017 selbst
+gesehen habe hattest du den gesamten Gesprächsbericht abgerufen und niedergeschrieben wonach er
+
+
+-----
+
+aber offenbar schon kurz darauf durch die perniziösen sektiererisch-energetischen Einflüsse und
+Störungen beeinträchtigt und grossteils verändert und vieles gelöscht wurde. Folglich hast du dann den
+schriftlichen Ausdruck gefertigt und an die KG-Mitglieder verteilt, ohne zu bemerken, dass die
+Voraussagen sektiererisch-energetisch manipuliert worden waren und nicht mehr dem entsprachen, was
+ich dir aus meines Vaters Annalen dargebracht und du es dann auch abgerufen und niedergeschrieben
+hattest, wie ich selbst gesehen habe. Aus diesem Grund nun bedingt die Notwendigkeit, dass ich dir nun
+nochmals alles vorbringe, du meine Aufzeichnung durchsiehst und dann ein andermal das Ganze abrufst
+und schriftlich festhältst, jedoch in einer besonderen Weise, um die nochmalige schriftliche Festhaltung
+bis ins letzte Detail kontrollieren zu können, ehe du es wieder weitergibst.
+
+**Billy** Natürlich werde ich das tun, doch wird es dazu wohl auch notwendig sein – zumindest eben für
+
+die Kontaktbericht-Leserschaft ausserhalb der Kerngruppe –, zu erklären, was es damit auf sich hat, dass
+sektiererisch-energetische Kräfte sehr vielfach meine Arbeit störend und gar teils zerstörend
+beeinträchtigen. Das zu erklären wird aber schwierig sein, weil das Ganze der Leserschaft derart verrückt
+erscheinen wird, dass es wahrscheinlich im geringsten Fall als Flunkerei, oder im schlimmeren Fall als
+Bewusstseinsverwirrung und als ein Verrücktwerden usw. meinerseits erachtet wird. Ausserdem kann es
+auch sein, dass der 669. Kontaktbericht bereits im Block 15 veröffentlich wurde, was nicht gerade
+erfreulich wäre. Dazu muss ich aber Bernadette fragen, denn sie fertigt die Blocks ja aus. Nichtsdestotrotz
+finde ich es aber gut, dass du von Zeit zu Zeit die Gesprächsberichte durchsiehst und kontrollierst, weil
+nur dadurch solche Niederträchtigkeiten erkennbar werden, die durch diese sektiererisch-energetischen
+Schwingungen angerichtet werden, von deren Existenz und Wirken nicht einmal die besten irdischen
+Wissenschaftler eine Ahnung haben.
+
+**Ptaah Das wird noch lange so bleiben, doch sollten wir uns nun mit der leidigen Sache befassen, mit der**
+ich hier beginnen will und wozu deine Aufmerksamkeit gefordert ist. Was wir dabei zu besprechen haben,
+ist später von dir nicht abzurufen und nicht aufzuschreiben, sondern nur nochmals die vollständigen Voraussagen meines Vaters Sfath.
+
+**Billy** Wenn es dir recht ist, dann könntest du mir alles derart arrangieren, dass beim Abrufen des
+
+Gesprächsberichtes alles derart charakterisiert wird, dass ich alle ausgefallenen und neuerlich wieder
+zugefügten Passagen usw. erkennen und diese im Computer mit einer Farbe, am besten rot, markieren
+kann.
+
+**Ptaah** Deine Idee ist greifend, folgedem werde ich tun, was du vorschlägst, damit Zafenatpaneach deine
+Idee aufgreifen kann. Jetzt sollten wir jedoch mit der Arbeit beginnen, denn sie wird einige Zeit und
+zudem deine Aufmerksamkeit in Anspruch nehmen. Und damit beginne ich nun bei deiner gefertigten
+Überschrift für die Voraussagen von meinem Vater: …
+
+### Voraussage von Sfath 
+ beim Kontaktgespräch vom Samstag, den 14. Juni 1947
+
+**Sfath Die Erdenmenschheit wird in zukünftiger Zeit weinen, denn es wird durch ihre eigene Schuld in**
+kommenden Zeiten traurige Dinge, Geschehen, Kriege, Terrorismus und Zerstörungen geben. Ein immer
+mehr und verstärkt aufkommender religiös-sektiererischer Glaubenswahn fördert künftig den Abfall resp.
+die Lossagung vom wahren Wissen um die Wirklichkeit und der daraus hervorgehenden Wahrheit. Damit
+wird auch das Missachten der natürlich-schöpferischen Gesetze einhergehen, wobei diese Lossagung
+zum schlimmsten aller Übel der zukünftigen Zeiten führen wird, wie das schon zu alten Zeiten der Fall
+war durch die blutig-sektiererischen Religionskriege, wobei jedoch in zukünftigen Zeiten alles viel
+unheilvoller sein wird als früher. Insbesondere wird sich noch vor dem Ende dieses 20. Jahrhunderts der
+Glaubenswahn des Islam weltweit verbreiten, wobei durch eine besonders ausgeartete verbrecherische
+und terroristische Form (Anm. Billy: Islamisten/Islamistmus) Hunderttausende Menschen ermordet,
+Frauen vergewaltigt und geschwängert sowie nicht wieder gutzumachende Zerstörungen angerichtet
+werden. Ganz besonders werden in den nordischen Ländern von Europa, allen voran in Deutschland,
+grosse Massen Flüchtlinge aus islamischen Ländern eindringen und sich festsetzen, und zwar ganz
+besonders durch Aufrufe einer verantwortungslosen Machthaberin, die Massenfluchten von Menschen
+speziell aus Afrika, Arabien und Vorderasien veranlassen wird. Dabei wird es sein, dass der Glaubenswahn
+immer mehr fanatischere Auswüchse annehmen und zu einem Problem für die Gläubigen werden wird,
+weil sie in ihrer Glaubenseinbildung den Sinn für die Wirklichkeit und Wahrheit der tatsächlichen Realität
+völlig verlieren werden. Und dies wird zur Folge haben, dass ganz besonders in Europa, und zwar speziell
+im wieder aufgebauten Deutschland und in den Ländern einer in Europa entstehenden Vielstaaten
+
+-----
+
+Diktatur, deren Sitz in Brüssel sein wird, sich der islamische Glaubenswahn machtvoll und gepaart mit
+Religionshass gegen das Christentum und Judentum stetig ausbreiten wird. Dieser Religionshass wird
+zudem im Orient geschürt werden und viel Anhängerschaft finden, ausgehend von einem bösartig
+gesinnten und nach Macht strebenden und durch Verbrechertum gezeichneten Glaubensfanatiker, der
+sich zum Kalifen erheben wird. Durch seine fanatisch bedingte Betrügerei, seine Lügen und seinen Hass
+wider das Judentum und Christentum wird er eine neue ausgeartete Glaubensrichtung verbreiten, die
+völlig auswuchernd auf ein bestialisches Blutvergiessen, auf Folter, Vergewaltigung, Morden und
+Massakertum sowie auf Zerstörung historischer und bewohnter Stätten ausgerichtet sein wird. Dadurch
+wird ein neuer und völlig ausartender Islamistmus entstehen und ein mordlüsternes Terroristenheer, dem
+sich auch viele Christgläubige und auch Judengläubige sowie extrem Ausgeartete aus Europa, Asien, ganz
+Arabien, den USA und Afrika anschliessen und den Islamglauben annehmen werden. Es wird aber auch
+kommen, dass viele aus Europa stammende abenteuerlich veranlagte Jugendliche und Erwachsene
+beiderlei Geschlechts sich diesem Terroristenheer verschreiben und zum ausgearteten Islamistmus
+übertreten werden. Und geschehen wird dies einerseits, weil sie aus der Gesellschaft ausbrechen wollen,
+anderseits weil sie durch Einredungen islamischer Prediger – die voller Hass gegen das Christentum und
+Judentum und gegen alle islamfremden Kulturen sein werden –, zum wirren Islamglauben verführt
+werden. Für viele der Jugendlichen, Erwachsenen und Abenteuerlustigen sowie für viele andere
+Irregeführte wird der Beitritt zum Terroristenheer den Tod bedeuten, worüber von den
+
+Glaubensfanatisierten jedoch nicht nachgedacht werden wird, weil es ihnen allen an Intelligenz mangeln
+wird, weshalb weder Verstand noch Vernunft in genügendem Mass ausgeprägt sein werden.
+Weiter ergibt sich in zukünftiger Zeit, dass sich in allen Ländern die Massen der Menschen der
+unaufhaltsam immer mehr überhandnehmenden Weltbevölkerung in ihrer Mentalität und damit auch in
+ihren Gesinnungen, Ansprüchen und Verhaltensweisen usw. in erschreckend mental-verkommender
+Weise verändern und in Beziehungslosigkeit und Gefühlslosigkeit zu ihresgleichen, zum Planeten Erde,
+zur Natur und zu all deren Lebensformen verfallen werden. Vielfältiger Hass wird unter den Menschen
+ebenso um sich greifen, wie auch Fehden, Rache und Vergeltung, Gier, Habsucht, Menschenhandel,
+Hurerei, kommerzieller Sexhandel, Sexualausartungen durch Religionsvertreter beiderlei Geschlechts,
+sexueller Kindesmissbrauch, Glaubensmorde, Religionshassmorde und das Ermorden von Familien,
+Kindern, Raub- und Überfallsopfern und Vergewaltigungsopfern usw. Und ein Töten von Menschen und
+Tieren durch willkürliche Gewalttätigkeiten aus reiner Lust am Vergnügen wird in den kommenden Zeiten
+sich ebenfalls ausweiten, wie auch der Wahn hinsichtlich der Ausübung der Todesstrafe für alles und
+jedes, wobei dafür selbst völlig natürliche Werte einbezogen werden sollen.
+Die Zukunft wird für die grosse Masse der Menschheit unerfreuliche Gesinnungswandlungen bringen,
+denn schon in den kommenden nächsten Jahren wird sich diesbezüglich in den Vereinigten Staaten von
+Amerika eingreifend vieles zu verändern beginnen, was jedoch schnell auch auf Europa übergreifen wird.
+Bei den Jugendlichen und Erwachsenen entwickelt sich schon jetzt ein neuer Trend, der zu einer
+Subkultur führen und als <Lebensstil der Hipster> bekannt werden und darin bestehen wird, dass die
+Jugendlichen und jungen Erwachsenen sich auffällig und extravagant zu kleiden beginnen, um sich vom
+Durchschnitt der Bevölkerung zu unterscheiden und abzusondern. Dies wird sich über das nächste
+Jahrzehnt erhalten, woraus sich daran anlehnend Mitte des übernächsten Jahrzehnts eine weitere und
+neue Subkultur durch Jugendliche und junge Erwachsene bilden und diese sich sechs Jahre lang als
+<Ansagende> und <Blumenkinder> verbreiten und von offener Liebe, Frieden und Freiheit geprägt sein
+wird. Nach sechs Jahren langsam ausklingend, wird sich auch diese Bewegung wieder auflösen und nach
+einem weiteren Jahrzehnt mit neuen alternativen Szenen verschmelzen und diese beeinflussen. Die
+hauptsächlichste neue Richtung wird auf Protest ausgerichtet sein, gegen die zukünftig durch die USA
+aufkommende neuerliche ständige Hetze gegen die Sowjet-Union, der zufolge über die nächsten 40 Jahre
+eine lauernde Kriegsdrohung bestehen wird. Dies, weil die USA nach ihrem altherkömmlichen
+Weltherrschaftsstreben einen Krieg inszenieren wollen, um die UdSSR zu besiegen und unter ihre
+Herrschsaft zu bringen. Dem aber wird hauptsächlich durch Protestaktionen der Jugendlichen und
+jungen Erwachsenen entgegengewirkt werden, woraus sich ein Musikprotest entwickeln wird, der auf
+völlig neu-harmonische populäre Musik bzw. Unterhaltungsmusik unterschiedlicher Stilrichtungen
+ausgerichtet sein und massenmedial verbreitet werden wird, wie Schlager, Song, Musical und Folklore
+usw. Und dieser Musikprotest wird sich beruhigend auf die ganze Weltbevölkerung auswirken und
+verhindern, dass die Kriegshetze der Staatsführenden der USA zum Zug kommen wird, wie aber auch,
+dass sich die Machthabenden der Sowjet-Union nicht zum Willen und Wollen der USA verleiten lassen
+werden.
+Dass die Zukunft für die grosse Masse der Menschheit unerfreuliche Gesinnungswandlungen bringen
+wird, das wird sich trotz der Proteste und Protestmusik der Jugendlichen und jungen Erwachsenen
+ergeben. Die seit mehreren tausend Jahren heimtückisch gegen die Wahrheit, den Frieden und die Liebe
+wirkende frömmlerische Triebkraft, die in den Menschen Falschheit, Hass, Hader, Kriege und Unheil jeder
+Art hervorruft, drängt bereits in sich verstärkender Weise voran und wird den Gesinnungswandel
+
+
+-----
+
+auslösen, der jedes künftig kommende Unheil ausarten lassen und zur Gemeingefährlichkeit werden
+lassen wird. Der grosse Ausbruch wird in dreieinhalb Jahrzehnten durch verlogene frömmelnde und
+verehrende Wahnhaftigkeit und Katzenfreundlichkeit in abscheulicher Widerwärtigkeit, Unredlichkeit,
+Verschlagenheit, Unwahrheit und Irreführung erfolgen. Es wird die Zeit sein, zu der die bösartig wirkenden
+Energien und Kräfte neuerlich in unheilvoller Weise auf die Menschen einzuwirken und ihr Gros allem
+Abkömmlichen, Jämmerlichen, Verkommenen und Verwerflichen derart verfallen wird wie noch nie zuvor.
+Die mahnenden Proteste und die harmonische Protestmusik der Jugendlichen und jungen Erwachsenen
+werden nach dem Beginn der 1980er Jahre ihre Kraft verlieren und schnell disharmonischem Lärm
+weichen, der schlecht zusammenklingend sein und die Menschen in eine Knechtschaft voller
+Disharmonie schlagen wird, ohne dass sie dies zu erkennen und zu verstehen vermögen werden. Die
+neuen Missklänge werden in den Menschen einen Zustand von Disharmonie und immer mehr
+Zerwürfnisse verursachen und stetig laufend neues Unheil entfesseln, das sich – was sich bereits zur
+heutigen Zeit zu entwickeln beginnt – durch die Aneinanderreihung der übermässig und
+verantwortungslos anwachsenden Weltbevölkerung ergeben wird. Deren ausartende Machinationen
+werden in steigendem Mass zerstörende, vernichtende und ausrottende Folgen an der Erde selbst sowie
+an deren Natur und hinsichtlich aller Gattungen, Arten und Unterarten in allen Lebensräumen zur Folge
+haben.
+Unaufhaltsam werden Streit, Spannungen, Differenzen aller Art, Kontroversen, Duelle, Fehden, Polemik,
+Feindschaften, Uneinigkeiten, Meinungsverschiedenheiten, Gegnerschaften, Zwiespältigkeit, Zwietracht
+und Zerrissenheit und dadurch immer grössere Risse und Kluften zwischen den Menschen und den
+Staaten hervorgerufen. Und diese Ausartungen werden bis weit ins neue Jahrtausend hinein durch
+opportunistisch geprägte Machenschaften nach Regierungsmacht Strebender noch gefördert werden.
+Diese werden durch angeblich volksnahe, jedoch in der Regel demagogische Politikbetreibende das Ziel
+anstreben, durch Dramatisierung der politischen Lage sowie durch Lug, Trug und leere Versprechungen
+die Gunst der Massen und damit durch Wahlen Regierungsämter zu gewinnen.
+Die sich verstärkenden und neuerlich wirksam werdenden frömmlerischen Energien und Kräfte werden
+die Menschen in ihrer Mentalität unterschiedlich verformen und sie derart wider Verstand und Vernunft
+prägen, dass sie für jede Harmonie nicht mehr zugänglich sein können. Dadurch wird das Gros der
+Menschen in seinen Gedanken und Gefühlen verwildern und vom Streben nach Frieden und Freiheit
+ebenso abfallen wie auch von der Gerechtigkeit, Menschlichkeit und der verbindenden Beziehung zu
+seinesgleichen. Die Folgen werden Gleichgültigkeit und moralischer Zerfall sein, wie auch sich sehr
+schnell ausbreitender Egoismus, wobei üble Selbstbezogenheit, Laster, Süchte und Gier nach materiellem
+Reichtum, Hurerei, Herrschsucht und moralische Verkommenheit sowie völlige Verantwortungslosigkeit in
+jeder Beziehung sich im Gros der menschlichen Gesellschaft ausbreiten werden.
+Eine schon lange und auch zur heutigen Zeit bestehende und sich auch zukünftig erhaltende
+Beziehungslosigkeit im zwischenmenschlichen Bereich sowie zur Natur und deren Leben jeder Art wird
+derart ausarten, dass sich daraus in kommender Zeit eine Volkskrankheit herausbilden und diese weit um
+sich greifen wird. In den nächsten Jahrzehnten weitet sich diesbezüglich alles derart aus, dass es zur
+persönlichen inneren Vereinsamung und zu einem schweren Depressionismus für viele Menschen führen
+wird. Besonders wird dies in den Industriestaaten ausartend werden und eine stetig ansteigende Zahl von
+Selbstmorden fordern. Die Depressionen werden sich zu einer in vielen Ländern weit verbreitenden und
+ernst zu nehmenden Seuche ausbilden, die mit sehr viel Leidensdruck der davon Betroffenen verbunden
+sein und zu vielfachen Suiziden auch bei Kindern und Jugendlichen führen wird. Diese schwere
+Erkrankung im Gefühlslebenshauch (Anm. Billy: Psyche) wird besonders ab dem Beginn der 1980er
+Jahre unaufhaltsam in erschreckendem Mass überhandnehmen, jedoch in der Gesellschaft als ein Tabu
+totgeschwiegen werden. Die Ursachen für das Aufkommen dieser Depressionsseuche werden vielfältig
+sein, wie Schikane durch andere Menschen, aufkommende Arbeitslosigkeit, fehlende Entspannung,
+Ängste, religiöser Glaubenswahn und innere Leere, Gefühllosigkeit, Interessenlosigkeit oder Freudeverlust,
+Einengung, Unfrieden, Kriegserlebnisse sowie Aktivitätslosigkeit und Antriebsarmut oder Ermüdbarkeit,
+und viele andere Triebkräfte, die zur untragbaren Last führen, werden zur gefährlichen Überlastung und
+Erkrankung im Gefühlslebenshauch werden.
+
+(Anm. Billy: Mai 2019: Die Psyche wird infolge religiös-gläubiger Verirrung und esoterischem Unsinn als
+<Seele> bezeichnet und wird folglich als solche äusserst irreführend als sogenannter dem menschlichen
+Geist übergeordneter Teil bezeichnet, der – während der begrenzten Dauer des menschlichen Lebens –
+übergeordnete mentale Programme, Entscheidungen und Vorsätze ausübe, die auf das Menschsein
+einwirken würden. Diese Programme, so wird unsinnig missgelehrt, könnten vom begrenzten EgoBewusstsein des lebenden Menschen nicht geändert werden, weil ansonsten deren Erfüllung gefährdet
+würde. Durch die Esoterik wird dazu auch behauptet, dass Programme und Speicherungen, die sich in
+der Aura oder direkt im Körper befinden sollen, nicht zur <Seele> selbst gehören würden, und daher,
+wenn das Leben beendet werde, würden diese mit ins nächste Leben genommen werden.
+
+
+-----
+
+Der Sinn dieser Seelenprogramme soll verhindern, so wird durch die Esoterik misslehrend behauptet –
+entgegen aller Natürlichkeit und schöpferisch-gebotsmässigen Richtigkeit –, dass sich der Mensch, der
+nach esoterischem Sinn immer wieder reinkarniere, im Verlauf seiner vielen Reinkarnationen im Sumpf
+seiner Erfahrungen verlieren soll, folgedem er nicht mehr zurückfinde. Das soll nach esoterischem
+Wahnglauben bedeuten, dass die <Seele> selbst dazu schauen müsse, dass die esoterisch erdachten
+begrenzenden Programme des Menschen, die sein Ego verkörpern sollen, nicht zu gross würden.
+Folgedem misslehrt die Esoterik phantasieverwirrt, dass die <Seele> die Aufgabe habe, die begrenzenden
+Programme des Menschen erst recht zu begrenzen. Hierzu bedient sich die Esoterik angeblicher
+Botschaften, mit denen ebenso angeblich bestimmte Steigerungsstufen durchgesetzt werden sollen. Das
+Ganze wird wie als ein Spiel dargestellt, wobei ein Mensch zu sein so perfekt konzipiert sein soll, dass er
+Gefahr laufe, alles als Realität zu nehmen, und zwar selbst in der heutigen Zeit, da aus der Quantenphysik
+hervorgehe, dass eine eigentliche feste Materie nicht existiere. Also unterliege der Mensch einzig der
+Illusion, in einer realen Welt zu leben. Die <Seele>, so wird esoterisch wirr behauptet, bestehe letztendlich
+also aus einer Art von Schutzprogrammen, die den Menschen immer wieder in die Richtung der
+göttlichen Allmacht und hin zur absoluten Ganzheitlichkeit, zur Harmonie, zum Heil und Glück ziehen
+würden.
+Durch die Esoterik, wie durch jeden anderen religiösen und sektiererischen Wahnglauben, wird einerseits
+die reale Wirklichkeit und deren Wahrheit missachtet und geleugnet, folgedem sich bei jeder
+Glaubensform ergibt, dass Missdeutungen, Falschlehren, Lügen, Phantasien, Wahneinbildungen und
+Missverstehen in bezug auf die effective Realität entstehen. Dadurch wird auch nicht erkannt und nicht
+verstanden, dass der <Geist> einer reinen das Bewusstsein und den gesamten Körper belebenden
+schöpferischen Energie entspricht, die weder die Psyche noch in irgendeiner Art und Weise den Verstand,
+noch die Vernunft und Intelligenz verkörpert, folgedem er auch nicht als Faktor für irgendwelche Ideen,
+<Geistesblitze>, für einen <wachen Verstand> usw. zuständig ist und auch nicht als Teil einer
+nichtexistierenden <Seele> definiert werden kann. Für Ideen, <Geistesblitze>, Verstand, Vernunft und
+Intelligenz ist also nicht der völlig neutrale Geist zuständig, der einer reinen das Bewusstsein belebenden
+schöpferischen Lebens- und Belebungsenergie entspricht, wodurch das Bewusstsein durch die Funktion
+des Überlegens und der Gedanken negative oder positive Ideen und vielerlei andere Gedankenwerte zu
+erschaffen vermag. Also entspringt der Wert einer Idee, Vorstellung oder eines sogenannten
+<Geistesblitzes> usw. nicht dem Geist, der einzig eine schöpfungsmässig bedingte Energie- und
+Kraftlieferung resp. eine Belebungsfunktion für das Bewusstsein und den physischen Körper hat. In
+Wahrheit entspricht jede Idee, Vorstellung und jeder Gedanke und <Geistesblitz> usw. allein einem Werk
+des Bewusstseins, das also nicht dem neutralen Geist resp. dessen Funktion entspringt, der allein als
+Belebungsenergie gegeben ist. Diese Tatsache ist jedoch für die Esoterik ebenso nicht von Interesse, wie
+auch nicht für jeden Religions- und sonstigen Sektenglauben. Was jedoch durch jeden religiösen
+Glaubenswahn als <Seele> zu erklären versucht wird, entspricht in Wahrheit dem Faktor Psyche, die
+durch die Gedanken und die daraus hervorgehenden Gefühle geformt wird. Verfällt dabei die Psyche
+schlechten und nachteiligen Regungen, dann geschieht das durch entsprechende Gedanken- und
+Gefühlsstörungen, die strukturelle Veränderungen in den dafür zuständigen Zellen und Geweben
+hervorrufen. Das hat dann zur Folge – gemäss ihrer Art –, dass wenn die Psyche durch Gedanken und
+Gefühle negativ beeinflusst wird, diese durch ein In-Aufruhr-gebracht-Werden, in ein <Verrückspielen>
+verfällt.)
+
+Allgemein wird – getrieben durch die frömmlichen Energien und Kräfte – in den kommenden Jahrzehnten
+und weit ins nächste Jahrtausend hinein das Menschenleben immer weniger als wertvoll erachtet werden,
+denn zukünftig wird die Menschheit erleben, dass nicht nur die Kriminalität ansteigen wird, sondern in
+erschreckender Weise auch schwere Gewaltverbrechen wie Mord, Raubmord und Totschlag, Überfall und
+Raub, wodurch die Menschen in ihrem sonst schon schwachen Verstand und ihrer mangelnden Vernunft
+und Verantwortungslosigkeit nach der Todesstrafe schreien werden. Dabei wird sich alles in immer
+kürzeren Zeiten stetig wiederholen, denn alle diese Handlungen und Taten werden viele Menschen zur
+Wiederholung gleicher Verbrechen anstacheln, wobei alles auch immer brutaler und zur Abstumpfung
+der Gedanken und Gefühle führen und stetig ausgearteter werden wird.
+Die Häufung der schweren Gewaltverbrechen, die gegen Leib und Leben gerichtet sein werden, werden
+vielfach ausgelöst durch Hass, Glauben, Eifersucht, Besitzgier, Existenzangst, Depressionen, Herrschsucht
+sowie Verlust, Schikane, Intrigen und Habsucht usw., wie aber auch durch die Greueltaten und Massaker,
+die in Kriegen und durch Terrorismus die Weltgeschehen erschüttern werden. Auch Leidenschaften
+werden dabei wie seit eh und je eine grosse Rolle spielen, doch die Menschen werden zukünftig immer
+mehr von Geldgier und vom Materialismus beherrscht und deshalb zu Rechtsbrechern deren höchstes
+
+
+-----
+
+Streben nur noch die nackte Gewinnsucht sein wird, wofür sie auch mordende Gewalt miteinbeziehen
+und, wie das ein altes irdisches Sprichwort zum Ausdruck bringt, <über Leichen gehen>.
+Das ungestüme Streben nach Gewinn ohne Mühsal und Arbeit wird es also einerseits sein, was den
+Menschen zum Verbrechen, anderseits ihn auch zur Missachtung des menschlichen Lebens führt und er
+es bedenkenlos mordet und vernichtet, wenn sich ihm ein Widersacher in den Weg stellt. Jede
+tiefgründige Ehrfurcht vor dem Leben ist schon seit Jahrhunderten immer mehr im Schwinden begriffen
+und wird stetig mehr verlorengehen, obwohl sie grundlegend der Urgrund einer echten
+
+menschenwürdigen und wertvollen Kultur sein müsste. An die Stelle der Ehrfurcht wird beim Gros der
+Menschheit eine Autoritätskrise auftreten, durch die eine ruchlose egoistische Ichbezogenheit und
+Lebensorientierungslosigkeit sowie eine tiefgreifende Vergiftung der Beziehungen von Mensch zu Mensch
+auftreten und damit jegliche wahre Gemeinschaft untergraben wird.
+An der Stelle von Ehrfurcht – so wird es die Zukunft schlimmer bringen, als es schon seit geraumer Zeit
+und auch heute ist – werden die Menschen nicht mehr an Ehre und Würde, sondern mehr denn je daran
+denken, dass diese Werte überflüssig und unsinnig seien. Und so wird es ganz besonders auf dem Gebiet
+des Umgangs mit den Mitmenschen werden, wie auch hinsichtlich der Natur und allem, was in ihr
+gedeiht und kreucht und fleucht. Und dies wird schon durch die Eltern oder sonstige verantwortliche
+Erziehende bei der Erziehung den heranwachsenden Generationen eingebleut, und zwar indem ihnen
+Ehre- und Würdelosigkeit vorgelebt werden, also anstatt Ehrfurcht gegenteilig Verachtung, Heuchelei,
+Geringschätzung, Arroganz und Respektlosigkeit.
+Damit wird das getan, und zwar zukünftig immer mehr, was den Kindern, Halbwüchsigen und älteren
+Jugendlichen schon in jungen Jahren eine umfangreiche Verminderung der Entwicklung ihres Verstandes
+sowie ihrer Vernunft bringt, wodurch aber zukünftig in wachsendem Mass auch die mangelnde
+Erarbeitung und Erweiterung ihrer Intelligenz zu beklagen sein wird. Dadurch wird zukünftig je länger, je
+mehr von den Kindern und Jugendlichen nicht mehr nach höheren Werten Ausschau gehalten, wie ihnen
+auch keine Möglichkeit geboten wird, die ihnen diese Werte vermitteln könnte. Gegenteilig wird allüberall
+auf der Welt weiterhin alles getan, um bereits die Kinder und Jugendlichen politisch und religiös zu
+missbrauchen und sie in einen Wahn einer Gläubigkeit einer Religion und Sekte zu treiben, sei es
+bezüglich des Buddhismus oder bezogen auf das Judentum, den Hinduismus, den Islam und das
+Christentum oder die vielfältigen Sekten. Alle Religions- und Sektenprediger usw. aller Religionen und
+Sekten indoktrinieren – wie auch die Eltern und sonstig Erziehenden – bereits die Kinder und
+Jugendlichen in ihren Gebetshäusern, seien es Tempel, Synagoge, Moschee, Madir, Ashram oder Kirche
+usw. Auch andere Gebäude und Institutionen werden dazu benutzt werden, so z.B. in der christlichen
+Welt nicht nur die Kirche, sondern auch die Allgemeinbildungs-Schulen, wie auch Kinder- und
+Jugendheime und christliche Berufslehranstalten usw.
+In kommender Zeit wird speziell an solchen christlich geführten Stätten eine ganz besonders ausartende
+materialistische Sattheit gelehrt werden, die einerseits auf Bettelei zur Bereicherung der Kirchen,
+anderseits jedoch auf eine neue und intensive Glaubensfängerei ausgerichtet ist, weil im Christentum –
+gegenteilig zum Islam, Buddhismus, Judentum und Hinduismus – die Zahl der Gläubigen bereits heute
+eine abnehmende Tendenz aufweist, die sich im Lauf der kommenden Jahrzehnte und im neuen
+Jahrtausend noch verstärken wird. Daher wird schon heute und in den kommenden Jahrzehnten sowie
+im dritten Jahrtausend in steigendem Mass darauf hingearbeitet werden, lernende Christgläubige, die als
+geeignet erachtet werden, in deren Glaubenseinbildung manipulativ zu indoktrinieren, dass sie zur
+Verbreitung des Christglaubens berufen seien. Dieserart wird ihnen eine Berufungsrolle vorgegaukelt
+werden, die ihnen von Gott zugedacht sein soll, und zwar verbunden mit einer <geistigen> und ethischen
+Führerrolle, zu der sie nach göttlichem Willen aufgerufen sein sollen, deren sie sich aber nicht bewusst
+sein und sich auch nie bewusst werden können, weil es sich nur um eine indoktrinierte Lüge handeln
+wird, wie diese seit alters her benutzt wird. Und damit diese Lügenindoktrination richtig zu greifen
+beginnen wird, wird auf die vor Jahrzehnten in den USA entstandene und gegenwärtige sowie zukünftige
+Epoche der weiterhin wachsenden schweren Kriminalität und immer mehr überhandnehmenden
+Gewaltverbrechen hingewiesen werden.
+Die nutzniessenden verbrecherischen Elemente dieser Organisationen werden durch Morde,
+
+Bestechungen und eigene Regierungstätigkeiten unerhörte materielle Werte gewinnen und sich an diesen
+erfreuen, ohne dass sie für ihre Verbrechen belangt werden können. Diese, wie jede andere Voraussage
+soll offenbaren, dass vielen Regierenden der Völker aller Länder unrechtmässig erworbene Reichtümer
+entstehen, während sich die ehrlich arbeitenden Völker nur eines geringen Wohlstandes erfreuen werden
+können. Diese Voraussage soll ein Warnsignal sein, denn sie ist gedacht, um die Völker aufzuwecken und
+ihnen aufzuzeigen, dass das Gros aller führenden Kreise aller Regierungen, der Wirtschaft und
+Verwaltungen sowie Konzerne usw. finanziell in jeder möglichen Art und Weise die Völker ausnehmen
+und schädigen, weshalb alle Völker zur Selbstbesinnung aufzurufen sind.
+Viele Kriege, Terror, Zerstörung und Vernichtung werden die Zukunft zeichnen, wobei tausendfältige Tode
+und Hunderttausende von Menschen ermordet werden, während durch die Schuld der ungeheuer
+
+
+-----
+
+steigenden Überbevölkerung alle Naturgesetze aus ihrer Ordnung gezwungen werden. Sehr vieles wird
+am Planeten und in der Natur zerstört und unrettbar vernichtet werden, auch die Atmosphäre und das
+Klima werden dadurch derart beeinträchtigt werden, dass sich die gesamte Natur erheben und
+unheilvolle katastrophenauslösende Wirkungen bringen wird. Unwetter wie zur Frühzeit der Erde werden
+sich durch die Schuld des Menschen mehren, und Hagelwetter, Stürme, Regenfluten und ungeheure
+Überschwemmungen werden immer gewaltiger, wie aber auch die planetare Sonnenschutzschicht (Anm.
+Billy: Ozonschicht) sehr gefährlich geschädigt werden und bei den Menschen Hautgeschwüre (Anm. Billy:
+Hautkrebs) auslösen wird. Auch die ewige Gefrörnis (Anm. Billy: Permafrost) wird sich auflösen und
+gefährliche gefrorene giftige Gase (Anm. Billy: Methan) freigeben, wie auch die Berge niederstürzen und
+Lawinen ausgelöst werden.
+Auch die Lungen der Erde, die für alles Leben notwendigen Wälder, werden verantwortungslos abgeholzt
+und das Holz zu Bedarfsmaterialien und der Boden zum Bau für Wohnhäuser der überhandnehmenden
+Weltbevölkerung missbraucht werden. Vermehrt werden Erdbeben und Seebeben und urweltliche Stürme
+sich in ihrer Zahl immer mehr steigern und gewaltigere und zerstörendere Wirkungen bringen, deren
+Ursprung eine unnatürliche Veränderung des Klimas sein wird – hervorgerufen durch die Machinationen
+der immer prekärer ansteigenden Weltbevölkerung, die schon zur heutigen Zeit das tragbare Mass der
+Erde weit überschritten hat, jedoch trotzdem unvernünftig unaufhaltsam weiter in die Höhe getrieben
+werden wird.
+Allein die unermesslichen Massen der Städte und Dörfer, die wuchtig durch ihre Gewichte die inneren
+Strukturen der Erde beeinträchtigen, werden vermehrt die Tektonik beeinträchtigen und zwangsläufig
+immer häufiger innerirdische Verschiebungen und Verwerfungen und dadurch Erdbeben auslösen, was
+auch Einflüsse auf den gesamten irdischen Vulkanismus haben wird, weil die Vulkane durch die
+Vibrationsschwingungen weltweit miteinander verbunden sind und daher verbindend in Tätigkeit treten
+werden. Die stetig wachsende Überbevölkerung wird schon in den ersten zwei Jahrzehnten des neuen
+Jahrtausends 9 Milliarden Menschen aufweisen und dadurch viele ungeheure und unlösbare Probleme
+aufbringen, weil durch die Dummheit und Uneinsichtigkeit der gesamten Menschheit – mit wenigen
+Ausnahmen – die Wirklichkeit nicht erkannt wird, dass das ganze Übel im Wachstum der Weltbevölkerung
+liegt und nichts dagegen getan wird, sondern durch Dummheit nur völlig abwegige Scheinlösungen
+gesucht und unsinnige Beschlüsse gefasst werden, anstatt die Wahrheit zu erkennen, die in der
+wachsenden Weltbevölkerung liegen wird, die gestoppt werden müsste. Und das Übermass der
+Weltbevölkerung wird noch vor dem Ende dieses Jahrhunderts in mehrfacher Weise mit sich bringen,
+dass sich die altherkömmlichen Hungersnöte steigern und zudem alte, ausgerottet geglaubte Krankheiten
+neuerlich auftreten werden, wie auch neue Krankheiten und Seuchen, die durch einen weltweit
+aufkommenden Massentourismus Verbreitung finden werden. Anderweitig werden die Industriestaaten
+mit Wirtschaftsflüchtlingen und Asylanten hauptsächlich aus dem afrikanischen Kontinent
+
+überschwemmt, wodurch alles zu einem unlösbaren Problem werden wird. Und dies wird auch der Fall
+sein, wenn aus dem Nahen Osten aus Kriegsländern und aus einer islamischen Terroristenorganisation
+(Anm. Billy: islamistische = Islamistischer Staat) Flüchtlinge in Europa einbrechen werden, worunter sich
+viele Kriminelle, Gewaltverbrecher und Terroristen befinden werden.
+In den 1980er Jahren wird weltweit die Hochkonjunktur zusammenbrechen und eine weltumfassende
+Arbeitslosigkeit bringen, die über viele Jahrzehnte bis weit ins neue Jahrtausend hinein anhalten wird,
+folglich viele Arbeitslose und Arbeitsscheue der Kriminalität und dem Gewaltverbrechertum verfallen
+werden, wovon besonders die Industriestaaten betroffen sein werden.
+Das Fernsehen, Computer und eine aufkommende und beinahe grenzenlose Digitalisierung werden zu
+den wichtigsten Informations- und Handelsmedien werden, wodurch die Menschen sehr schnell
+beherrscht und absolut davon abhängig werden. Ein Fazit dieser neuen Technik wird aber sein, dass viele
+Ehen, Familien, Freundschaften und Bekanntschaften zerstört und die Gesundheit unzähliger Menschen
+beeinträchtigt und die Völker durch die Regierungen und deren Geheimdienste vollständig überwacht,
+kontrolliert und ihrer persönlichen Freiheit beraubt werden. Dies geschieht auch durch den in den USA
+herrschenden Drogenhandel, denn schon heutzutage herrscht dort weitum eine schlimme Drogensucht,
+besonders bei den jungen Menschen, die jedoch schon gegen Ende des nächsten Jahrzehnts ein Leben
+zu führen beginnen werden, das dann einer gegenkulturellen Jugendbewegung entsprechen wird,
+wodurch sich dann alles Bösartige in der Welt etwas mässigt, wie ich bereits vorgehend gesagt habe.
+(Anm. Billy: Hippiebewegung, Hippie (= englisch hip <angesagt>; Kern der Hippiezeit war 1965 bis
+1971). Die Drogen werden aber schon seit geraumer Zeit durch kriminelle und verbrecherische
+Organisationen von den USA her auch weltweit verbreitet und führen noch vor der Zeit der 1980er Jahre
+auch in Europa zu einem Drogenproblem, das seuchenartig derart überhandnehmen wird, wie auch die
+
+
+-----
+
+Vergnügungssucht, Prostitution und der Massentourismus usw. Alles wird gesamthaft besonders
+ausarten, wenn die harmonische Protestmusik der Jugendlichen und frühen Erwachsenen sowie der
+ihnen musikalisch nacheifernden älteren Menschen durch disharmonischen und zerstörerischen
+Missklänge-Lärm und unsinnigen Scheingesang verdrängt wird, wodurch der Faktor Gefühlslebenshauch
+mental unheilhervorrufend beeinträchtigt wird und das Verhalten der Menschen sich danach ausrichtet.
+Die irdischen Weltgeschehen der nahen und fernen Zukunft werden bis weit ins dritte Jahrtausend hinein
+durch viele Hunderte Kriege und bösartigen Terror gezeichnet werden, wofür ausgeartete und
+verantwortungslose Elemente verantwortlich sein werden. Und diese Subjekte werden Staatsmächtige,
+Diktatoren, die weltherrschaftssüchtigen Vereinigten Staaten von Amerika, blutheischende
+
+Gewaltherrschende, wie auch von religiösem Wahn befallene Religionisten und deren fanatische Gläubige
+sein, wie aber auch mörderische Verbrecherorganisationen, allerlei aufkommende Führer und deren
+Mitläufer politischer Parteien. Es werden aber auch Religionshassende, Fremdenhassende und Revoluzzer
+sowie mancherlei andere bösgesinnte Elemente sein, die zukünftig immer häufiger Kriege, Terror,
+Kriminalität, Mord und andere Verbrechen sowie Unfrieden, Unsicherheit, Hass und Gewalt schüren. Und
+alles Diesbezügliche wird sich in stetig ansteigenden und sich vermehrenden und immer übler und
+schlimmer werdenden Formen und Massen ergeben, und zwar vergleichsweise mit einer unkontrollierten
+Vermehrung von giftigen Insekten, jedoch bezüglich des Gesagten im Zusammenhang mit der sehr
+schnell wachsenden und schon bald überhandnehmenden Weltbevölkerung. Durch deren unaufhaltsame
+Zunahme werden in kommenden Zeiten immer mehr ausartende Machinationen aufkommen, durch die
+einerseits die Erde selbst und anderseits deren Natur mit allem an Lebensformen, mit allem was kreucht,
+fleucht, schwimmt und standortgebunden ist, schwer beeinträchtigt, existenzgefährdet und vielfach
+unwiderruflich zerstört und vollständig vernichtet und ausgerottet wird. Auch die Zerstörung von
+Naturgestein, das aber einem Schwermetall entspricht, ist in dieser Hinsicht anzuführen, denn es wird in
+den kommenden Jahrzehnten bis weit ins nächste Jahrtausend hinein weiterhin missbraucht werden und
+grosses Unheil bringen. Wie es bereits in verbrecherischer Weise genutzt und durch eine gefährliche
+Spaltung zerstört wurde, um dadurch noch unermesslichere weitere Zerstörungen hervorzurufen,
+wodurch im August 1945 in Sekunden Hunderttausende ahnungslose, harmlose und friedliche Menschen
+in Hiroshima und Nagasaki ermordet wurden, so wird die Zerstörung des Naturgesteins weitergehen.
+Durch Kriegsangst und feiges Bangen getrieben, werden die grossen Staaten sehr schnell den
+verbrecherischen Forschungen der USA nacheifern und massenweise Atombomben konstruieren und
+einlagern, um dadurch ein gegenseitiges Drohen und die Gefahr einer Atomkatastrophe zu fördern, durch
+die der Planet in Stücke gerissen und die Menschheit ausgelöscht würde. Und diese Gefahr wird weit ins
+nächste Jahrtausend hinein bestehenbleiben, und zwar durch die Tatsache, dass durch den
+schadenbringenden Forscherwahn der unberechenbaren Wissenschaftler das Naturgestein weiterhin
+missbräuchliche Verwendungen finden und in verschiedenen Hinsichten genutzt werden wird. Nebst der
+massenweisen Produktion von Atombomben und Raketen, die bereits begonnen hat, werden auch andere
+transportierbare und tragbare Waffen mit atomaren Sprengköpfen oder mit atomar-strahlenden
+Geschossen usw. konstruiert und genutzt werden. Weiter wird aber aus dem Naturgestein UranSchwermetall auch Energie und daraus grosse Kraft gewonnen werden, die für vieles Verwendung finden
+wird, wie z.B. in der Medizin, wie auch für Antriebe von Fahrzeugen, Schiffen und Maschinen usw. Diese
+Energiegewinnung wird aber von Grund auf sehr gefährlich sein und zu grossen Schrecken bringenden
+und zum Tod vieler Menschen führenden Katastrophen führen. Darüber jedoch werden sich weder die
+wissenschaftlichen Forscher noch die Staatsvorstehenden, Staatsmachthaber, Politiker, Militärs und die
+weltweit entstehenden Terrororganisationen und Verbrecherorganisationen keinerlei Gedanken machen
+und die drohenden Gefahren nicht erkennen. Alle werden sie unüberlegt, bedenkenlos und
+verantwortungslos handeln, wie das auch der Fall war beim Erforschen des Naturgesteins und bei der
+Konstruktion der Atombombe und deren verbrecherischer Nutzung. Allso wird es werden, dass aus der
+Weiterentwicklung der Atomforschung Katastrophen hervorgerufen und diese schreckliche Folgen haben
+werden, die sich dann als sehr langanhaltendes und über viele Jahrzehnte auswirkendes Unheil erweisen.
+Und dies wird darum sein, weil das Naturgestein Uran durch die Spaltung und Aufbereitung usw. zur
+Atomenergiegewinnung atomare Strahlung freisetzen wird, die zerstörend auf alles Lebendige wirkt und
+durch die unzählige Menschen verseucht werden, schrecklich dahinsiechen und daran sterben, was
+bereits zur heutigen Zeit geschieht, worüber die für das Ganze Verantwortlichen jedoch noch keine
+nennenswerte Erkenntnisse gewonnen haben. So haben sie auch noch kein wesentliches Wissen darüber,
+dass umfänglich alle Gebiete durch atomare Strahlung verseucht sind, in denen unter- und oberirdische
+atomare Explosionen durchgeführt wurden, was zur Folge hat, dass alle Personen, die diese Gebiete auch
+nur kurz betreten oder sich längere Zeit dort aufhalten strahlenkrank und krebskrank jahrelang leidend
+
+
+-----
+
+und letztendlich durch die erlittene Strahlung und deren Folgen sterben werden. Dies wird sich aber auch
+in anderer Weise ergeben, denn zur Energiegewinnung werden bereits untergründig Pläne ersonnen und
+Forschungen betrieben, um das Naturgestein Uran als Primärenergieträger in grossem Stil zu nutzen,
+woraus in absehbarer Zeit Atomkraftwerke ersonnen, konstruiert und in vielen Ländern entstehen werden.
+Doch auch diese Technik wird viele Menschenleben fordern, atomare Katastrophen hervorrufen und
+grosse Gebiete durch atomare Strahlung auf sehr lange Zeit verseuchen, die für alles Leben eine
+gesundheitliche und tödliche Gefahr bleiben wird.
+Kriminalität und Verbrechen werden zukünftig immer ausartender, wobei auch entsprechende Gruppen
+dazu beitragen werden, die sich als Banden formieren, eine Subkultur bilden und deren Mitglieder
+zumeist Strassenbanditen sein werden. Diese werden Passanten belästigen, Geschäftsbetriebe ausrauben,
+morden, gewalttätig sein, Menschenhandel und Zwangsprostitution betreiben und als Motorrad-ClanAnhänger in Erscheinung treten, meist schwarz gekleidet sein und sich in Motorradklubs organisieren. Sie
+werden jedoch kriminelle und verbrecherische Hintergründe aufweisen und dementsprechend aggressive
+und gewalttätige Verhaltenweisen und Tendenzen haben und dauernde, unbelehrbare Gesetzesbrecher
+sein.
+Mehrfach wiederholend muss immer wieder auf dieselben Fakten hingewiesen werden, weil nur durch
+Wiederholungen gelernt wird, deshalb muss auch das irdische Weltgeschehen immer wieder
+angesprochen werden, das zukünftig von vielen Aspekten hinsichtlich Kriegen, Menschheitsverbrechen
+und von organisiertem Terror durch Staatsmächtige sowie durch nichtstaatliche Terrororganisationen
+gezeichnet sein wird. In vielen Ländern werden sich durch die Dummheit, Initiativelosigkeit und religiöse
+Gläubigkeit der Völker gewalttätige und gewissenlose kriminelle und verbrecherische Elemente als
+Staatsmächtige erheben, ihre Völker unterdrücken und ausbeuten und alle ihre Gegner meucheln lassen,
+ohne dass sie dafür zur Rechenschaft gezogen werden. Dadurch werden viele Völker in Angst und
+Schrecken versetzt, besonders auch darum, weil immer ein Teil der Völker in seiner Dummheit und
+Unbedarftheit den Machthabern zu Willen ist, weil dadurch Profit und Vorteile erhofft werden.
+Wiederholend muss auch immer wieder auf andere Geschehen hingewiesen werden, nämlich dass die
+Erde, deren Natur und die gesamte Menschheit durch ihre eigene Schuld in ungeheure
+Naturkatastrophen und dadurch ebenso in Not und Elend gestürzt werden, wie durch Kriegshandlungen
+und einen weltweit aufkommenden Terrorismus sondergleichen im Nahen Osten und in Vorderasien. Als
+Hauptverursacher aller Kriegs- und Terrorhandlungen werden – wie seit eh und je – die Vereinigten
+Staaten von Amerika an erster Stelle sein, die sich rund um die Erde weltherrschaftsstrebend
+unberechtigt weiterhin wie seit alters her mit ihren verbrecherischen Geheimdiensten und mit
+Waffengewalt und Armeen in die Belange fremder Staaten einmischen werden. Schon jetzt bahnen sich
+geheimerweise geheimdienstliche Aktionen im Nahen Osten und in Nordafrika sowie in Vorderasien und
+Zentralasien an, die im Lauf der nächsten Jahrzehnte zu offenen Einmischungen und Konflikten mit
+Militäreinsätzen und Kriegshandlungen führen werden, und zwar bis ins neue Jahrtausend hinein. Die
+USA werden dabei nichts unterlassen, um ihr altherkömmlich-heimtückisches Weltherrschaftsbestreben
+aufrechtzuerhalten, folglich sie auch Länder des Nahen Ostens mit ihrem Herrschaftsstreben infiltrieren
+werden. Besonders werden es arabische Staaten sein, deren Führerschaften infolge ihrer Dummheit und
+Naivität sich im Lauf der nächsten Jahrzehnte bis ins neue Jahrtausend hinein hinterhältig nötigen lassen,
+sich auf die heimtückischen Verführungen, Intrigen und Machenschaften der USA einzulassen und
+dadurch zu deren abhängigen Vasallenstaaten werden. Geschehen wird es durch eingehende
+Verpflichtungen der religionsgläubigen und korrupten Staatsführer im Nahen Osten, die sich
+militärgewaltig aufrüsten werden, um im Nahen Osten mit Hilfe der USA ihre Macht ausbreiten und
+ausüben zu können, jedoch nichtahnend, dass sie durch ihr Handeln mit den Vereinigten Staaten selbst
+in Schwierigkeiten geraten werden, die heimtückisch auch in ganz Arabien Hass und Unfrieden
+provozieren. Und dies wird ihnen durch ihre Geheimdienste und Politik besonders gut gelingen infolge
+der altherkömmlichen religiösen Feindschaft zwischen den streng islamgläubigen Schiiten und Sunniten,
+die seit alters her einander bis zum Mord und Krieg bekämpfen. Und durch die Tücken der
+amerikanischen Geheimdienste und Politik werden in den kommenden Zeiten diese Religionsfehden
+weitergeführt und ständig neu angestachelt, wie auch der interne Unfrieden in den einzelnen arabischen
+Staaten selbst, wie überall auf der Erde in allen Ländern – mit nur sehr wenigen Ausnahmen –, die durch
+verantwortungslose machtbesessene und ihre Völker unterdrückende Alleinherrscher, Diktatoren und
+Tyrannen beherrscht werden. Zwar werden einige dieser arabischen Völker in einigen Jahrzehnten zu
+denken beginnen und sich gegen ihre Blutherrscher erheben, doch wird sich schnell alles wieder in alter
+Weise ergeben, weil keine reelle Führungskräfte aus den Völkern hervorgehen werden, oder weil die
+Militärkräfte die Macht ergreifen werden wie auch anderswo auf der Erde in Ländern auf allen
+
+
+-----
+
+Kontinenten. Doch was sich zukünftig in ganz Arabien durch die Einmischungen und
+
+Geheimdienstaktionen der USA ergeben wird, wird schwerwiegende Folgen für den gesamten Nahen
+Osten und für Vorderasien bringen. Also wird es sein, dass einerseits nebst der Abhängigkeit der
+arabischen Länder, diese zwangsläufig auch Vasallen der US-Regierung, des US-Militärs und der USGeheimdienste werden, wobei weiterhin grossteils auch ihr fanatischer Religionsglaube bis hin zu blutigen
+Fehden und zum Mord an eigenen Familienmitgliedern führen und viel Unheil anrichten wird. Dies,
+während anderseits infolge der Hinterhältigkeit, die durch die USA in den kommenden Zeiten in Arabien
+betrieben werden wird, Terrororganisationen im grossen Stil entstehen und weltweit mit Mord, Attentaten
+und Zerstörungen aktiv werden, und zwar bis hin zu Terrorkriegsverbrechen. Die tatsächlichen Urheber
+dieses aufkommenden Terrorismus werden die USA sein, denn wie es schon seit jeher der Fall war,
+werden in Amerika weiterhin willige Personen verschiedenster Länder militärisch und guerillagleich
+ausgebildet, um dann in den eigenen Heimatländern heimtückisch zu wirken, die Völker aufzuwiegeln
+und amerikafreundlich zu stimmen. Vielfach ergibt sich jedoch seit alters her, was auch zukünftig sein
+wird, dass die Ausgebildeten sich später selbst als machtheischende Führer erheben und blutheischend
+Rache ausüben. Und so wird es auch zukünftig sein, wobei jedoch alles viel mehr unheilgeschwängert
+werden wird als je zuvor, weil durch die gesamte technische Entwicklung jeder Art sowie die
+Machenschaften und intrigenhaften Hilfen der USA alles Notwendige dazu erschaffen wird. Und dass
+dazu die korrupten Machthaber auch alles erdenklich mögliche beitragen werden, das wird tatsächlich
+der Fall sein, denn sie werden von den USA – die sie in ihrer Dummheit und Naivität als Freunde erachten
+– Waffenlieferungen fordern und Handelsverträge mit den Vereinigten Staaten von Amerika abschliessen,
+die darauf eingehen werden, jedoch in der hinterhältigen Weise, dass die betreffenden arabischen Staaten
+und deren Herrscher zwingend auf Gedeih und Verderb an die USA gebunden sein werden. Gleicherart
+werden die USA mit anderen Herrschern und Staaten rund um die Welt umgehen, und zwar auch in
+bezug auf die internationalen Verflechtungen (Anm. Billy: Globalisierung), die zwar schon seit
+Menschengedenken bestehen und üblich sind, jedoch zukünftig von sehr grosser Bedeutung und
+Wichtigkeit werden, woraus jedoch viel Schaden, Nachteile und Unheilvolles hervorgehen werden. Davon
+betroffen werden im Lauf der Zeit und weit ins neue Jahrtausend hinein alle Staaten und deren Völker
+ebenso, wie auch alle Bereiche der Umwelt, Politik, Religionen, Wirtschaft, Kommunikation, Technik und
+Kultur usw. Insbesondere werden die internationalen Verflechtungen durch zwingende Einflüsse der USA
+derart tückisch-manipulativ gesteuert werden, dass diese einerseits – wie seit jeher – die grossen
+Profiteure sein und es auch bleiben werden. Diese grossen Profiteure werden es sein, die durch ihre
+weltweiten Intrigen und Hinterhältigkeiten und bösartigen Manipulationen einen Weltunfrieden schaffen
+werden, wie es einen solchen niemals zuvor gegeben hat. Den USA freundlich und gutgesinnten, wie aber
+auch abhängigen Ländern, deren Regierungsführenden und den Dummen und Unbedarften aus den
+Bevölkerungen werden jedoch die zukünftigen und verborgenen grossen Gefahren nicht erkennbar
+werden, die von den USA ausgehen und Tod, Zerstörung und Verderben in sich bergen und in ihrer
+Unberechenbarkeit äusserst gefährlich sein werden. Letztlich wird es unmöglich werden, die
+verbrecherischen politischen, geheimdienstlichen und weltherrschaftssüchtigen sowie wirtschaftlichen
+Machinationen USA noch kontrollieren zu können, folglich alles immer mehr ausarten und derartig
+katastrophale Formen annehmen wird, wie diese seit Bestehen der Erde noch niemals zuvor durch
+Menschen ausgelöst worden sind.
+Infolge der Blindheit und Dummheit all jener den USA scharwenzelnden Staatsführenden und den die
+USA Hochjubelnden aus den Bevölkerungen in allen Ländern rund um die Welt, werden sie allesamt
+nicht erkennen, was die weltherrschaftssüchtigen, hinterhältigen, raffinierten, listigen,
+
+staatsführungsunfähigen und konflikthervorrufenden sowie ungeheure finanzielle schuldenmachenden
+Herrschaftssüchtigen der USA grundsätzlich vorhaben, bezwecken und im Sinn haben. Alle diese
+Staatsführenden, die sich – wie schon alle ihre Vorgänger als Führungsmächtige gross und gebildet
+geben, jedoch in Wahrheit jeglicher Volksführung und Volksfinanzführung ebenso unfähig sein und
+folglich ihre Staaten in ungeheure horrende Schulden treiben werden – wie schon früher, auch in Zukunft
+auf die USA einlassen werden, werden dadurch in ihren eigenen Ländern und auch welthinausgreifend
+Schaden anrichten, Unfrieden verbreiten, die eigenen Bevölkerungen drangsalieren und Tod und
+Verderben über sie bringen. Und dazu tragen auch die USA in anderer Weise bei, denn zukünftig werden
+auch Machinationen der USA ausgebrütet, durch die Guerillaausbildungen für modernsten
+Waffengebrauch und Kampfausbildungen für fremdstaatliche Elemente durchgeführt werden, die
+einerseits ihre eigenen Heimatländer, jedoch nach der Ausbildung auch die USA verraten und gegen sie
+losziehen werden.
+Die USA resp deren Staatsführende Politiker Geheimdienstler und alle die mit diesen in ihren Ämtern
+
+
+-----
+
+einig gehen – wozu auch immer jener Teil der Bevölkerung gehört, der wie seit alters her mit Pro- und
+Hurrageschrei in Dummheit, Blindheit und Denkunfähigkeit den hinterhältigen politischen,
+
+regierungsamtlichen, geheimdienstlichen und militärischen Machinationen bedenkenlos glaubt und
+zustimmt –, entsprechen miserablen Elementen, die – wie in der Regel auch in andren Ländern – niemals
+in die ihnen zugesprochenen Ämter eingesetzt werden dürften. Und was jenen Teil der USA-Bevölkerung
+betrifft, der rechtschaffen, dem Frieden, der Gerechtigkeit und Menschlichkeit zugetan ist, so wird dieser –
+wie schon seit Bestehen der USA – ins Abseits gedrängt und ihm keine Möglichkeit zur Intervention
+gegeben, wogegen er sich aber nicht zur Wehr setzen kann, denn würde er das tun, dann würden ihm
+gesamthaft alle seine Rechte entzogen, die Freiheit und Sicherheit verlieren und in die Mühlen der
+Gesetze sowie der seltsamen Gesetzeshandhabungen gebracht, bestraft oder ermordet. Das aber hat
+seinen Ursprung bereits vor der Zeit, als die USA gegründet wurden, wozu unumgänglich einiges zu
+erklären und auszuführen ist.
+Werden in den USA besonders die Präsidentschaften betrachtet, speziell auf die Gesamt-USA bezogen –,
+dann entspricht die Tatsache dem, dass bis zur heutigen Zeit kein einziger Präsident in Rechtschaffenheit
+das Präsidentenamt innehatte. Das ist auch gegenwärtig so und wird bis weit ins neue Jahrtausend
+weiterhin so sein. Schon George Washington, der als erster Präsident der Vereinigten Staaten von
+Amerika von 1789 bis 1797 die Präsidentschaft innehatte, war ein Mörder, Kriegsverbrecher und
+Verräter. Und dass der erste Weltkrieg von 1756–1763 ausgelöst wurde, der falscherweise als
+<Siebenjähriger Krieg> bezeichnet wird, führte in Wirklichkeit auf langjährige hinterhältige Intrigen von
+eingewanderten Europäern zurück, die als Frühamerikaner bezeichnet werden können und die so lange
+Unfrieden geschürt haben, bis der Krieg ausgelöst wurde, und zwar 20 Jahre bevor die Vereinigten
+Staaten von Amerika am 4. Juli 1776 gegründet wurden. Durch die Intrigen und Hetzereien der
+Frühamerikaner, die einen eigenen Staat haben wollten und daher unter den Engländern und Franzosen –
+die damals noch in Amerika weilten – Unfrieden stifteten, entwickelte sich im Lauf der Jahre der Krieg.
+Der Streit zwischen Grossbritannien und den amerikanischen Kolonien führte durch die Intrigen und
+Hetzereien der Frühamerikaner also zum Krieg von 1756–1763, später dann zur Amerikanischen
+Revolution, wobei dann 1776 Delegierte der 13 Kolonien die Unabhängigkeitserklärung der Vereinigten
+Staaten verabschiedeten und damit die Gründung der Vereinigten Staaten von Amerika proklamierten.
+Was diesbezüglich an tatsächlicher Wahrheit aller Begebenheiten damals in allen erstellten
+Aufzeichnungen und Chroniken festgehalten wurde, ist nachträglich nach der Gründung der Vereinigten
+Staaten von Amerika gelöscht und vernichtet worden, um das gegründete neue Amerika nicht als
+Kriegshetzer und Kriegsauslöser in Verruf zu bringen. Gleicherart wird dies auch zukünftig in den USA
+geschehen, und zwar von betreffenden Verantwortlichen selbst oder in deren Auftrag von Helfershelfern.
+Akten, Aufzeichnungen, Chronikeinträge, Pläne und Bilder usw. werden in den USA bis in weite Zukunft
+vernichtet werden, wenn diese als Beweise für stattgefundene und gegebene Tatsächlichkeiten,
+Geschehen und reale Fakten, Lügen, Betrügereien und Verschwörungen herangezogen werden könnten.
+Dadurch, dass solche mehr oder weniger schwerwiegende Beweismaterialien vernichtet wurden und bis
+weit in die Zukunft weiterhin vernichtet werden, soll einerseits die Staatssicherheit gewährleistet,
+anderseits auch verhindert werden, dass grossangelegte Lügen und Betrügereien der Regierung, der
+Politik, der Armee, Geheimdienste, gewisser Konzerne, von Organisationen und staatlich-militärischen
+Konstruktionszentren usw. sowie andere staatliche Machinationen publik werden sollen. Deshalb wird
+dieses kriminelle Tun nicht einfach geduldet, sondern gewissenlos und bewusst als Integritätsakt und
+Schutz der Ehre und Würde der USA und allen ihren Machinationen als ungeschriebenes Gesetz zum
+Erhalt der falschen Integrität, Ehre und Würde der USA erachtet. Wie weit diese zweifelhafte Ehre und
+Würde sowie Integrität der USA in Zukunft und bis weit ins 3. Jahrtausend hinein wirksam sein wird, das
+ergibt sich aus allen Vorausschauen, die Bösartiges und Schreckliches sowie äusserst Unheilvolles
+ersehen lassen. Immer mehr, schneller und vehementer werden sich die USA politisch, militärisch und
+geheimdienstlich in fremder Länder Händel einmischen und sich in diesen festsetzen. Dabei werden
+insbesondere die sich in Vorbereitung befindenden verschiedenen Geheimdienste eine besonders
+verbrecherische Rolle einnehmen, und zwar allen voran der USA-Geheimdienst, der im kommenden
+September unter der Bezeichnung <Central Intelligence Agency> als Auslandsgeheimdienst der
+Vereinigten Staaten von Amerika entstehen und dann bis weit ins 3. Jahrtausend hinein rund um die Welt
+für Kriegs- und Revolutionshandlungen sowie für viele andere und vielfältige Gewaltverbrechen
+verantwortlich sein wird. Und all dies wird geschehen, um die Vereinigten Staaten von Amerika in der
+ganzen Welt in andere Staaten einzuschleusen und dadurch immer mehr die Weltherrschaft zu
+gewinnen. Dabei werden unzählbare Morde und andere Gewaltverbrechen durch die amerikanischen
+Geheimdienste und Armee begangen und zwar immer im Rahmen des USA-Wahns allein alle Staaten
+
+
+-----
+
+und damit allein die Welt beherrschen zu können.
+Die Vereinigten Staaten von Amerika haben schon 1941 die ersten Schritte unternommen und über die
+folgenden Jahre aufrechterhalten, um dann im vorletzten Jahr, also 1945, an vorderster Front bei der
+Gründungskonferenz der UNO ihre Forderungen bezüglich ihrer Interessen und Vorstellungen
+durchzusetzen. Die USA stiegen zur stärksten Weltmacht auf, wobei sich bereits 1941 Franklin Roosevelt,
+der Präsident der USA, sowie der britische Premierminister Winston Churchill mit einer <Atlantik Charta>
+darauf einigten, gemeinsame Prinzipien einzuhalten, wobei diese Abmachung schriftlich als <Prinzipien
+zur Erhaltung von Frieden und Sicherheit> festgelegt wurde. Alles war jedoch nur Schein und Betrug,
+denn die USA hielten sich nicht daran, sondern übten seither weiterhin ihre Intrigen in fremden Ländern
+aus, was sie ungehemmt auch weiterhin tun und auch im 3. Jahrtausend weiterführen werden. Durch all
+das und noch sehr vieles mehr, sind und bleiben die Vereinigten Staaten von Amerika der allergrösste
+Gefahrenfaktor für Frieden, Freiheit und Gerechtigkeit in allen Ländern und für alle Völker auf der
+gesamten Erde.
+Dies gelang den USA deshalb gut, weil sie im Dezember 1941 in den letzten Weltkrieg eingetreten waren,
+was jedoch nur durch die langen ständigen und drängenden Bemühungen des britischen
+Premierministers Winston Churchill geschehen war. Durch den Eintritt der USA in den 3. Weltkrieg,
+gelang dann auch der Sieg im April/Mai 1945 über Nazideutschland und dann im August 1945 über
+Japan. Dass dabei in verbrecherischer Weise Hiroshima und Nagasaki durch Atombomben zerstört und
+Hunderttausende unschuldiger Menschen ermordet wurden, die hinsichtlich des Weltkrieges nichts damit
+zu tun hatten, das wurde weltweit einfach unter den Tisch gekehrt. Allein mit der Entwicklung der
+Atombombe haben die USA das jemals grösste Kriegsverbrechen und Menschheitsverbrechen der
+gesamten Menschheitsgeschichte begangen, das um das Vielfache umfassender ist als gesamthaft alle
+Naziverbrechen und alle Kriege und Terrorakte aller Zeiten zusammen. Die Gefahr eines Atomkrieges
+aber wird sich ins 3. Jahrtausend und in die ferne Zukunft ausweiten, wobei sich alles durch die
+fortschreitenden Erkenntnisse und Techniken noch viel gefährlicher ausweiten wird, denn die bisher
+gewonnenen Kenntnisse werden weiterentwickelt und führen zu noch viel gefährlicheren Entwicklungen,
+wodurch letztendlich die atomaren Energien fusioniert werden. Das bedeutet, dass die atomaren Energien
+und Kräfte miteinander verschmelzen und sich vereinen, wodurch die Kräfteintensität resp. deren
+ausgeprägtes vorhandenes Mass noch um das Vielfache verstärkt wird. Diesbezüglich handelt es sich
+jedoch um physikalische Momente, worüber du noch nicht belehrt worden bist, weshalb ich dich später in
+weiterführende Erklärungen einzuweisen habe, damit du alles verstehen wirst, was allerdings hinsichtlich
+deines Alters gesehen, ungewöhnlich sein und Informationen beinhalten wird, die du niemals
+verlautbaren darfst. Die Kenntnisse um die gesamten Zusammenhänge der atomaren Fusion umfassen
+nämlich noch eine andere Energieform, die vielfach gewaltigere Kräfte in sich birgt und bei Missbrauch
+freisetzt, die das Vieltausendfache der Kraft einer atomaren Fusion übersteigt, wodurch nicht nur der
+Planet Erde vollständig zerstört und atomisiert werden könnte, sondern das gesamte SOL-System und
+einiges darüber hinaus. Also hast du verantwortungsbewusst wie du bist, lebenslang Schweigen zu
+wahren, denn noch sehr lange werden die Erdenmenschen fern jeder Verantwortung jegliches Wissen
+irgendwelcher Erkenntnisse missbräuchlich zur Waffenherstellung und Machtausübung nutzen. Das aber
+wird zukünftig auch sein mit der Weiterentwicklung der Atomtechnik und allso der Atombombe, wobei
+einerseits im Lauf der Zeit diverse Staaten einem in ihnen hochsteigenden Wahn verfallen werden,
+ebenfalls zur Atommacht zu werden. Anderseits aber ziehen schon sehr früh und also bereits zu heutigen
+Zeit die Staatsverantwortlichen sowie diverse Physiker der Schweiz in Betracht – und zwar ohne Wissen
+des Volkes –, an Formeln zur Entwicklung von Atombomben zu gelangen. Geheimerweise werden bereits
+Möglichkeiten in Betracht gezogen und geheime erste Pläne für atomare Tests ausgearbeitet, die im
+Gotthardmassiv durchgeführt werden sollen, wenn sich der Wahn der Staatsverantwortlichen und der
+involvierten Physiker durchsetzen würde, was aber nicht sein wird, wie Zukunftsschauen erkennen lassen.
+Zukünftig zeigen Vorausschauen auf, dass weltweit das Gros aller Staatsverantwortlichen und ihre
+Laufhunde wie seit alters her verantwortungslose Elemente und bemüht sein werden, ihre Macht in jeder
+möglichen Art und Weise zu erhalten und über andere Länder auszuweiten, wobei die Vereinigten Staaten
+von Amerika an vorderster Front bleiben werden. Sie werden zum Schein aber auch Gewaltherrschern
+rund um die Welt hilfreich unter die Arme greifen, denn diese werden es sein, die Glaubens werden, mit
+den USA eine selbstsüchtige und betrügerische Freundschaft führen zu können, jedoch nicht ahnend,
+dass sie selbst selbstsüchtig betrogen werden. Und sie werden es sein, die in den kommenden Zeiten bis
+weit ins 3. Jahrtausend hinein durch die weltweit grössten Waffenproduzenten und Waffenlieferanten –
+eben die Vereinigten Staaten von Amerika –, zu deren Gunsten ausgenutzt, betrogen und mit
+Waffenlieferungen überschwemmt werden jedoch nur mit derartigen Produkten die bereits veraltet sind
+
+
+-----
+
+und nicht den neuesten und besseren sowie oft geheimgehaltenen Waffenentwicklungen entsprechen
+werden. Nichtsdestotrotz werden die Staatsgewaltigen, ihre Lakaien und grosse Teile der Bevölkerungen
+infolge ihrer Dummheit und Uneinsichtigkeit bezüglich der Machinationen der USA vor diesen in die Knie
+fallen und sie in ihrem Land sich ausbreiten, vieles kontrollieren und liefern lassen, bis diese letztendlich
+die totale Kontrolle über das ganze Land übernehmen. Dies wird vor allem im Nahen Osten, wie auch im
+Fernen Osten und in Südamerika in dieser Weise geschehen, wie aber auch in Deutschland und dann
+später auch in Eurasien. Gegensätzlich dazu wird sich aber in Europa – das teils bis ins 3. Jahrtausend
+hinein durch die Besatzungsmacht-USA beherrscht werden wird, besonders Deutschland – eine
+europaweite Diktatur erheben, die als Union-Diktatur von Brüssel her alle europäischen Staaten
+beherrschen wird. Und zum Schaden der Schweiz wird es werden – weil durch die Dummheit, Unvernunft
+und mangelnde Intelligenz sowie Denk-, Überlegungs-, Beurteilungs- sowie Staatsführungsunfähigkeit
+gewisser Staatsführender, deren Mitläufer und dem Teil des Volkes, der ungebildet und ebenfalls dumm
+und in bezug auf eine logische Beurteilungsunfähigkeit unfähig zu nennen sein wird –, dass
+Zusammenschlüsse mit der Unions-Diktatur stattfinden, wodurch dein Heimatland stetig mehr unter
+deren Fuchtel fallen wird.
+Trotz aller Kriegsverbrechen und Menschheitsverbrechen der Vereinigten Staaten von Amerika, stiegen
+diese nichtsdestotrotz durch ihre weitreichenden Forderungen in die Mitgliedschaft der UNO ein, folglich
+sie künftighin auch in anderen Weisen in vielen anderen Staaten durch ihre Militärs unangefochten ihre
+Weltherrschaftspläne verwirklichen können. Dadurch sind und werden die USA weiterhin zum
+grösstmöglichen und in Zukunft schlimmsten Faktor für viele weitere neue und hunderte
+Kriegshandlungen in den nächsten Jahrzehnten bis weit ins 3. Jahrtausend hinein. Also werden die
+Vereinigten Staaten von Amerika durch ihren grössten und umfassendsten Geheimdienst sowie ihre sich
+weltweit ausbreitenden und agierenden Militärs für Unfrieden in der ganzen Welt, für Aufstände,
+Revolutionen, heimtückische politische und geheimdienstliche Morde, wie auch für Terrorakte aller Art
+verantwortlich sein, was gesamthaft nachahmend auch auf private Gruppierungen sowie auf politische
+und religiös-fanatische Organisationen rund um die Welt und auch auf Diktatoren übergreifen wird.
+Dadurch werden bis anhin friedlich gehaltene Staaten plötzlich wieder zu Diktaturen machgieriger und
+verlogener sowie hinterhältiger Elemente, die sich lügend und betrügend als gute und fromme
+Staatsführer oder Staatsführerinnen präsentieren usw. und sich von dummen Anhängern feiern lassen.
+Sie alle werden jedoch bevölkerungs- und staatsschädliche Interessen verfolgen und damit viel Schaden,
+Unruhe und Unheil anrichten sowie Unfrieden heraufbeschwören, wie aber auch Unfreiheit und Terror
+erschaffen, wie sich das z.B. schon früh im nächsten Jahrtausend in Deutschland, Frankreich und in
+diversen anderen Union-Diktatur-Vasallenstaaten ergeben wird. Auch die Vereinigten Staaten von Amerika
+selbst werden durch an die oberste Staatsmacht gelangende wirre und staatsführungsunfähige Elemente
+zu Terrorhandlungen und Kriegshandlungen getrieben. Und durch diese pathologisch dummen,
+selbstherrlichen und unzurechnungsfähigen, machtbesessenen amerikanischen Präsidenten werden auch
+neuerliche Feindschaften zwischen den USA und anderen Staaten entstehen. Dies wird z.B. auch wie seit
+alters her in bezug auf die Sowjetunion und das in rund vier Jahrzehnten wieder daraus hervorgehende
+Russland, jedoch auch bezüglich Staaten wie China, Persien und arabische Staaten usw. sein, wie auch
+Nordkorea, das in nun 455 Tagen als Staat ausgerufen und ein Land bösen internen Terrors gegen die
+Bevölkerung werden wird. Gleiches wird sich jedoch in aller Welt ergeben, wobei besonders der DiktaturStaat Syrien ins Interesse der USA geraten und durch einen langjährigen Bürgerkrieg grossteils zerstört
+werden wird, wie auch historische Stätten, die durch eine sektenbezogene, bösartig-ausartende und
+vieltausendfach mordende islamische Terrororganisation (Anm. Billy: IS = islamistischer Staat) alles völlig
+dem Erdboden gleichmachen wird. Und wie sich seit alters her die USA planetenweit als Weltpolizei
+aufspielen und dadurch rund um die Welt sich überall selbstherrlich und unhemmbar einmischen
+konnten, werden sie es auch weiterhin tun. So wird es sein, dass im neuen Jahrtausend gegen Ende des
+zweiten Jahrzehnts auch Persien ein andermal durch die USA und ihren dannzeitigen unberechenbaren,
+herrschsüchtigen, dummen, unsteten und wirren Präsidenten in Bedrängnis gebracht und drangsalieret
+werden wird. Und dies wird auch zukünftig so sein, weil die Völker der Erde infolge ihrer unfähigen
+Führerschaften nichts dagegen unternehmen und anderseits ihre Führer zu feige sein werden, sich gegen
+die USA zu behaupten.
+Das sind die sich ergebenden Tatsachen, folglich alles so bleiben wird wie bisher, nämlich dass die
+Vereinigten Staaten von Amerika unter der Führung ihrer kriminellen selbstherrlichen Präsidentenführer
+rund um die Welt ihren auf einem Weltherrschaftssinn, auf Selbstherrlichkeit und Grössenwahn
+beruhenden Verhaltensweisen sowie erzwungenen Einfluss immer mehr geltend machen können – und es
+auch weiterhin tun werden Und das wird auch im neuen resp im 3 Jahrtausend sein und zur Geltung
+
+
+-----
+
+kommen, wenn ein weiterer, selbstherrlicher und grössenwahnsinniger Präsident der Vereinigten Staaten
+von Amerika sich als mächtiger Führer wähnt. Dieser wird zu jener Zeit ein einem krankhaften
+Grössenwahn verfallener und unberechenbarer Mann sein, der sich ständig mehr erkennbar wie Adolf
+Hitler gebärden und dem Wahn verfallen wird, ein grosser, unbesiegbarer und einmaliger Herrscher zu
+sein – ein Machtherrscher, vor dem die gesamte Erdbevölkerung niederknien und im Staub kriechen
+müsse. Also wird er sich auch gleichermassen drohend aufführen wie Hitler zu seiner Zeit, wodurch er
+aber leicht- und schwachsinnig andere Staatsmächtige und Völker zur Gegenwehr zwingen wird.
+Insbesondere werden im zweiten Jahrzehnt des neuen Jahrtausends von diesem regierungsunfähigen
+und hitlergleichen Führer der USA besonders die Staaten Russland, Nordkorea, China und Persien nicht
+nur verbal angegriffen werden, sondern auch durch militärische Drohungen.
+Und weil dann zudem gleichzeitig auch Stationierungen militärisch-kriegerischer Truppen und
+Schlachtschiffe vor den Grenzen der <Feinde> erfolgen, wie auch dumme, kriminelle und
+schwachsinnsgleiche wirtschaftliche Sanktionen ersonnen und durchgesetzt werden, so wird dann alles
+nicht nur zu einem Handelskrieg führen, sondern zu drohenden Kriegshandlungen. Und dazu wird der
+krank-dumme regierungsunfähige oberste Machthaber der USA resp. der Präsident der Vereinigten
+Staaten von Amerika (Anm. Billy: Donald John Trump), zusammen mit allen seinen ihm Gleichgesinnten
+und den Mitläufern, einen neuerlichen grossen und weitumfassenden sowie sehr gefährlichen und vieles
+völlig vernichtenden Krieg heraufbeschwören, wenn alle anderen Staaten der Erde oder noch vernünftige
+Elemente der USA nichts dagegen unternehmen. Es wird aber unausweichlich werden, dass die USA
+gegen Ende des zweiten Jahrzehnts im 3. Jahrtausend auch allerlei Kriegsgerät nahe an die Grenzen der
+betreffenden und vom wirren und grössenwahnsinnigen sowie als Machthaber absolut unfähigen
+amerikanischen Präsidenten wirr ersonnenen Feindesstaaten stellen werden. Das kann dann aber zu sehr
+bösen und üblen Gegenfolgen der davon betroffenen Staaten durch deren Militärs und Bevölkerungen
+führen, insbesondere bei Persien, China, Russland und Nordkorea, woraus u.U. neuerlich sehr
+weitumfassende Kriegshandlungen hervorgehen können. Dies wird sich besonders im Persischen Golf
+erweisen, in dem die USA drohend mit Kriegsschiffen auffahren werden, um die von einer bösartigwahnbefallenen, das Leben ihrer Bevölkerung verachtenden islamischen Sektenführerschaft von
+Staatsgewaltigen Persiens in eine Glaubensdiktatur zur Erfüllung der Forderungen des
+
+regierungsunfähigen Präsidenten der USA zu zwingen. Im Zusammenhang mit Persien werde ich aber
+später noch einiges zu erklären haben, weil sich im Verlauf deines Lebens in diesem Land auch für dich
+einiges an Bedeutsamkeit ergeben wird.
+Terror, Kriminalität und Verbrechen werden auch durch Führungsmächtige heraufbeschworen werden,
+auch in anderen Ländern, wodurch die Gefüge aller Ordnungen zerstört werden, wie sich dies auch weit
+in die Zukunft hineintragen und ergeben wird, wie es z.B. in der Republik Türkei geschehen wird, die im
+zweiten Jahrzehnt des 3. Jahrtausend unter die Macht eines bösartigen, lügnerischen und betrügerischen
+Präsidialmachthabers fällt, und zwar durch einen Umsturz, den er selbst arrangieren und dadurch an die
+totale Macht gelangen wird. Und solche politische Unregelmässigkeiten usw. werden schon in wenigen
+Jahrzehnten in Europa in der entstehenden Diktatur-Union und in deren Staaten so geschehen, wie auch
+in Vorderasien, Eurasien, Afrika, im Nahen Osten und in Südamerika. Dies wird sich schon ab nächstem
+Jahr, 1948, erweisen, wenn die Gründung eines neuen Staates erfolgt, der Israel genannt und dadurch
+der Beginn von Hass und Vertreibung werden wird, wodurch bösartige Kampfhandlungen ohne Ende
+durch die ursprünglichen Bewohner von Palästina entstehen, die aus ihrer Heimat vertrieben werden.
+Dabei wird aber auch eine israelische und sich brutal verhaltende Armee entstehen, die weit ins 3.
+Jahrtausend hinein erbarmungslos morden und zerstören wird, wie dies auch die Nachfahren der
+früheren Landesbewohner tun werden. Und wie in den USA, wird auch im entstehenden Israel ein
+Geheimdienst hervorgehen, der weltweit Verbrechen ausüben und ebenfalls – wie alle Geheimdienste –
+Kämpfe, Morde und Zerstörungen hervorrufen wird. Dieser entstehende israelische Geheimdienst wird
+weltweit bösartig und hinterhältig agieren, wie er auch nebst vielen menschenverachtenden Handlungen
+begehend, auch viele Forscher und Wissenschaftler ermorden und ihre diesbezüglichen Opfer in Säuren
+auflösen wird, wenn diese nicht mit verschiedensten israelischen Konzepten harmonieren werden, oder
+wenn durch sie u.U. Gefahren für Israel oder deren Mächtige, die Armee oder für den Geheimdienst selbst
+vermutet werden. Und wie es unweigerlich kommen muss, wird auch dieser Staat Israel sich durch
+kriminell verbundene und israelfreundliche Regierungs-Elemente der USA in den Besitz aller notwendigen
+Unterlagen und Pläne usw. zur Entwicklung von Atombomben bringen. Auch wird Israel für sehr lange
+Zeit ein blutiger und terroristischer Konfliktherd bleiben zwischen dem Judentum, Arabien und dem
+bereits sich neu entfalteten Neonaziwesen, das sich schon jetzt durch Nazifanatiker und Judenhasser in
+Deutschland wieder aufbaut und im Lauf der Zeit weit um sich greifen wird wobei besonders grosse
+
+
+-----
+
+Nazigruppierungen in den USA und in der Sowjetunion entstehen, die später im neuen Russland
+weiterexistieren werden.
+In den Vereinigten Staaten von Amerika war bereits der erste Präsident ein unehrenhafter Mann, wie alle
+anderen ihm nachfolgenden Präsidenten, denn alle waren sie keine integre Personen, sondern Kriegsund Weltherrschaftslüsterne, wie das auch zukünftig so bleiben und schon zu Beginn des 3. Jahrtausends
+zu bösartigen Kriegshandlungern im Nahen Osten führen wird, wenn USA-Präsidenten als Vater und
+Sohn ihre Kriegslüsternheit ausleben werden. Und es wird schon in kurzer Zeit sich ergeben, dass sich die
+Militärkräfte der USA in aller Welt in fremden Ländern ausbreiten werden, dies nebst den
+Besatzungsmilitärs, die seit Kriegsende in Europa und in anderen Staaten stationiert sind. Und wie seit
+jeher, werden die USA in ihrem Weltherrschaftsgebaren weiterhin weltweit Unfrieden schaffen und auch
+die arabischen Staaten spalten und damit Feindschaften unter ihnen hervorrufen.
+Davon soll nun aber genug gesagt sein, denn es muss auch noch einiges angesprochen werden, das sich
+auf die Natur und alle ihre Lebewesen bezieht, wie aber auch auf die unaufhaltsam wachsende
+Weltbevölkerung, durch die der Planet, die Natur und alle erdenkbaren Formen, Gattungen und Arten an
+Pflanzen und Lebewesen laufend immer mehr zerstört, vernichtet und ausgerottet werden, wodurch
+bereits im 3. Jahrtausend, und zwar schon früh vor dem Jahr 2020, rund eine Million Lebewesen von den
+ca. 30 Millionen auf der Erde existierenden diversen Gattungen und Arten von Pflanzengewächsen und
+sich selbständig fortbewegenden Lebewesen, bis hinunter zu den winzigsten Mikroben, die mehr als 400
+Millionstel Millimeter klein sind, langsam aber sicher durch die Machinationen der endlos weiter
+anwachsenden Erdenmenschheit unwiderruflich ausgerottet werden. Tiere, allerlei Getier, Amphibien,
+Echsen, Vögel, allerlei Wasserwesen, Schleichwesen und Insekten usw. werden in den kommenden
+Jahrzehnten und weit ins 3. Jahrtausend hinein weitgehend oder total ausgerottet. Es werden in allen
+kommenden Zeiten Wälder gerodet und Moore usw. zerstört, um neues Pflanzland für den immer
+umfangreicher werdenden Bedarf an steigendem Nahrungsmittelanbau zu gewinnen, während anderseits
+wahnwitzig fruchtbares Land für Wohnhäuser, Fabriken und Strassen usw. verbaut und zubetoniert wird.
+Und dies alles nur um des endlosen Wachstums der Erdenmenschheit willen, die in ihrer Unvernunft ihre
+Geburtsraten in immer höhere Höhen treiben und verstandeslos ihre Nachkommenschaft weiterhin in
+Unmengen in die Welt setzen, womit eine gefährliche Überbevölkerung erschaffen wird, durch deren
+Machenschaften die Natur, deren Pflanzenwelt, vielfältige Lebewesen aller Gattungen und Arten zerstört
+und Vielfaches völlig ausgerottet wird. Auch der Sauerstoffgehalt wird durch vielerlei künstliche und auch
+aus der Erde hochsteigende Gase in seiner Konsistenz beeinträchtigt, wie auch die Atmosphäre durch
+vielfältige Giftstoffe geschwängert, die planetare Sonnenschutzschicht weitgehend zerstört und
+gesamthaft klimatische Störungen und sich letztendlich eine weltumfängliche Klimaveränderung und
+daraus ein Klimawandel ergeben und danach ein Klimaumsturz erfolgen wird. Dadurch werden sich
+weitreichende Veränderungen der Lebensbedingungen für gesamthaft alles irdische Leben ergeben, und
+zudem werden letztendlich nicht nur Millionen, sondern letztlich Milliarden von Menschen ihr Leben
+verlieren, wenn ungeheure urweltliche Katastrophen die gesamte Erde und alles Leben in ihren Bann
+schlagen werden.
+In den kommenden Jahrzehnten und weiter im 3. Jahrtausend werden auch alte und ausgerottet
+geglaubte, wie auch neue unbekannte Seuchen unzählige Menschenleben dahinraffen. Diese Seuchen
+werden jedoch nicht durch den natürlichen Naturverlauf aufkommen, sondern durch die Schuld der
+Erdenmenschen. Und dies wird sich zukünftig ergeben infolge der aufkommenden und immer mehr um
+sich greifenden Internationalisierung und also weltweiten Ausdehnung und Verbreitung resp.
+Mondialisierung (Anm. Billy: Globalisierung). Dies darum, weil durch das verantwortungslose und
+unkontrollierte Anwachsen der Erdbevölkerung die Warentransporte aller Art rund um die Erde in
+grossem Übermass zunehmen und dabei jegliche Sicherheitsmassnahmen ausser Acht gelassen werden.
+Das wird dazu führen, dass gefährliche Krankheits- und Seuchenerreger durch Tiere, Insekten und andere
+Lebewesen aller Art in alle Welt verschleppt werden, wodurch dann Krankheiten und Seuchen entstehen,
+die einerseits mutieren und anderseits ursprünglich nur in ihren Herkunftsländern Unheil anrichteten. So
+wird es werden, dass sich in 30 Jahren eine weltweit um sich greifende Immunschwäche-Seuche (Anm.
+Billy: AIDS ) ausbreitet, die bereits vor mehr als 30 Jahren in Afrika entstanden ist, als sich Einheimische
+in sexueller Weise mit Schimpansen zusammentaten und sich dabei mit einem Tod und Verderben
+bringenden Virus infizierten und sich daraus die entstehende Seuche auszubreiten begann. Diese Seuche
+wird sich in den nächsten Jahrzehnten in aller Welt, und zwar besonders in homosexuellen Kreisen
+schleichend ausbreiten, jedoch erst in drei Jahrzehnten erkannt werden, wenn immer mehr Seuchenopfer
+als solche erkannt werden. Fortan werden also Seuchen und Krankheiten usw. als Epidemien und
+Pandemien weltweit immer mehr um sich greifen. Darunter ist zu verstehen, dass eine <normale>
+Epidemie örtlich beschränkt ist, wobei aber unter gewissen Umständen eine endemische Form resp. eine
+
+
+-----
+
+Endemie entstehen kann. Wenn das der Fall wird, dann häuft sich eine Krankheit oder Seuche laufend in
+einer bestimmten Population oder begrenzten Region, wobei sich die Krankheit oder Seuche
+vergleichsweise zu anderen Populationen oder Regionen laufend erhöht, und zwar über einen längeren
+Zeitraum hinweg. Dabei ergibt sich einerseits eine Krankheitshäufigkeit und anderseits auch eine
+Neuerkrankungshäufigkeit der betreffenden Krankheit oder Seuche.
+Zwischen Krankheit und Seuche besteht ein grosser Unterschied, wobei diese Tatsache jedoch in der
+gesamten irdischen Medizinlehre falsch beurteilt, nicht akzeptiert und infolge Borniertheit der
+Medizinwissenschaft noch lange ins 3. Jahrtausend hinein so erhalten bleibt. Eine Krankheit entspricht in
+der Regel einer Erkrankung eines einzelnen Menschen, während eine Seuche ansteckend, um sich
+greifend und weitausbreitend sowie u.U. tödlich ist. Der absolut gegebene Unterschied zwischen
+Krankheit und Seuche wird also noch lange nicht beachtet werden, folglich die aus der Verschiedenheit
+hervorgehende Andersartigkeit von Krankheit und Seuche noch weit ins 3. Jahrtausend hinein weder
+beachtet noch akzeptiert wird. Bei einer Krankheit handelt es sich nämlich nicht um eine Seuche,
+sondern um einen Zustand einer verminderten physischen Leistungsfähigkeit, und zwar infolge einer
+Störung der normalen Funktion eines Organs oder Körperteils, wobei diese Störung in der Regel
+kurzzeitig – wenn sie nicht chronisch ausartet – mit medizinischen Mitteln reguliert, unter Kontrolle
+gebracht und geheilt werden kann. Dies also, wenn bei einem oder mehreren Organen eine
+Funktionsstörung oder deren mehrere hervorgerufen werden. Solche Störungen können aber auch den
+gesamten physischen Organismus betreffen, wie aber auch den psychischen Bereich. Eine Krankheit
+entspricht also einem regelwidrigen Körper-, Psyche- oder Bewusstseinszustand, der einer intentionalen
+medizinischen Behandlung bedarf und in der Regel eine kürzere oder längere Beschäftigungsunfähigkeit
+hervorruft, jedoch in absehbarer Zeit wieder aufgelöst wird und in der Regel auch nicht tödlich ist.
+Im Gegensatz zur Krankheit steht die Seuche, bei der es sich um eine hochansteckende bösartige
+Infektionskrankheit handelt, die sich gefahrvoll auswirkt, sich schnell ausbreitet und evtl. zu einem
+Siechtum führt.
+Seuchen sind z.B. seit alters her die Pest, Cholera, Influenza, Kinderlähmung, Pocken sowie
+Salmonellenerkrankung, Tuberkulose, Fleckfieber, Typhus, Syphilis und Spanische Grippe usw., die teils
+auch in den nächsten Jahrhunderten immer wieder auftreten können. Dies nebst dem Entstehen neuer
+Seuchen in den kommenden Jahrzehnten sowie im Lauf der Jahrhunderte des 3. Jahrtausends. Bereits
+im gegenwärtigen 20. Jahrhundert treten neue Seuchen auf, und wie gesagt auch im nächsten 21.
+Jahrhundert. Verschiedene neue Krankheiten und Seuchen werden zu gesellschaftlichen Bedrohungen
+werden, wobei sich diese dann auchg über die ganze Erde verbreiten. Geschlechtskrankheiten werden
+ebenso wüten und viele Opfer fordern, wie ich schon erwähnt habe bezüglich der ImmunschwächeSeuche (, der sich jedoch andere anschliessen werden, die Bezeichnungen haben werden wie
+<Schweinegrippe> oder <Schweres akutes respiratorisches Syndrom> in Form einer atypischen
+lebensgefährlichen Lungenentzündung (Anm. Billy: SARS), die von China ausgehen wird. Auch mehrere
+Arten von Geflügelpest (Anm. Billy: Vogelgrippe/Hühnergrippe usw.) werden sich als Seuchen von Asien
+her ausbreiten, wie von Afrika her auch das Flussfieber (Anm. Billy: Ebolafieber) und Vielmückenfieber
+(Anm. Billy: West-Nil-Fieber) als Seuche Hirnhaut- und Gehirnentzündung hervorruft, jedoch u.U. auch
+eine Bewusstseinseintrübung, Schluckbeschwerden, Schwindel, Müdigkeit, Abgeschlagenheit und
+dauernde Kopfschmerzen, Appetitlosigkeit, ein Druckgefühl im rechten Oberbauch, wie es aber auch
+Erbrechen und Koordinationsstörungen und Persönlichkeits- sowie Verhaltensänderungen auslöst und –
+wenn es unbehandelt bleibt – eine Vergrösserung der Milz herbeiführt, wie auch eine Entzündung der
+Nieren und der Bauchspeicheldrüse sowie eine Herzmuskelentzündung, Leberentzündung und Gelbsucht
+hervorruft.
+Auch die Kriminalität, Verbrechen und Prostitution usw. müssen immer wieder angesprochen werden,
+weil deren Ursachen – aus denen in den kommenden Zeiten, bis weit ins 3. Jahrtausend hinein, viel
+Unheil hervorgehen wird – einzig und allein auf die Ausartungen der zukünftig überbordenden
+Weltbevölkerung und auf die Verantwortungslosigkeit, Selbstsucht und Selbstherrlichkeit der Menschen
+zurückzuführen sind. An vorderster Front stehen dafür die Verantwortlichen der Behörden und
+Regierungen, die als Hauptschuldige genannt werden müssen, weil sie als den Völkern vorstehende
+Verantwortliche die massgebenden Kräfte sind, die darum bemüht sein müssten, die Bevölkerungen
+richtig zu beraten und alles in richtiger Weise zu tun, um gesamthaft alle Übel zu vermeiden und die Welt
+sowie deren Menschheit in eine gute, friedliche, freiheitliche und lebenswerte Zukunft zu führen. Und
+dazu gehörte, dass die Menschheit das planetengerechte Höchstmass an Menschen einhalten würde, das
+für die Erde berechnet 529 Millionen beträgt, was aber schon bis zum Jahrtausendwechsel um das
+Vielfache überschritten werden und dann weiterhin ansteigen wird. Das aber wird letztendlich zu
+vielfältigen Katastrophen führen, denn durch die Machinationen der überbordenden Weltbevölkerung
+werden grosse Teile des Planeten durch Ressourcenausbeutungen, Vergiftungen sowie durch
+Verbauungen aller Art zerstört, wie auch ungeheure Massen an vielfältigem Unrat die Meere,
+
+
+-----
+
+Landgewässer, Wiesen, Gebirge und Wälder usw. ebenso verseuchen werden, was auch durch atomare
+Strahlungen geschehen wird, die sich auf weite Gebiete ausbreiten und die lebensfeindlich und tödlich
+auch Mutationseinflüsse auf Lebensformen ausüben werden. Die gewaltig anwachsende Masse der
+Erdbevölkerung sowie deren Machinationen werden nicht nur den Planeten selbst, sondern auch dessen
+Klima, Natur, Pflanzen und Lebewesen nicht nur beeinträchtigen, sondern vieles davon auch zerstören,
+und zwar derart, dass teils vieles unwiderruflich völlig ausgerottet wird.
+Es wird zukünftig auch sein, dass viele Religions- und Sektengläubige offiziell ihre Religion oder Sekte
+aufgeben, jedoch einerseits nur, um des mordlüsternen Terroristenheers, ihres neuen Wahnglaubens oder
+um des Abenteuers willen. Doch anderseits werden sie trotz der angenommenen neuen Glaubensrichtung
+ihren alten Wahnglauben behalten und dessen Dogmen und Glaubensformen willfährig verfallen bleiben
+und diesen bewahren. Deshalb werden sie auch weiterhin die natürlich-schöpferischen Gesetze
+missachten, nicht befolgen und dadurch die Finsternis dem Licht vorziehen und sich nicht dem Realen
+und dessen Wahrheit zuwenden. Daraus wird das Befinden hervorgehen, dass der Tod besser als das
+Leben sei, weshalb sie völlig irrwerdend gleichermassen tun werden, wie viele der Erdenmenschheit, die
+nicht mehr auf die Sicherheit des Lebens schauen, sondern das Sterben vorziehen werden, sei es durch
+direkten Selbstmord oder durch die indirekte Selbsttötung im Zusammenhang mit Kriegs- oder
+Terrorismushandlungen.
+Jene Menschen, die sich der Wirklichkeit und der aus dieser hervorgehenden Wahrheit und damit auch
+den natürlich-schöpferischen Gesetzen verschrieben haben, und jene, welche sich dem
+
+Schöpfungsrichtigen auch zukünftig verschreiben und ihr Leben in dieser Weise gerecht, ehrenvoll und
+würdig gestalten und führen, werden für verrückt und ungut gehalten werden, während – wie seit alters
+her – die Gottgläubigen für Gutmenschen und also für gut und weise gehalten werden. Und das wird so
+sein wie seit jeher, weil die religiösen und sektenbefallenen Menschen in ihrem Glauben rasend werden
+und viel Bösartiges, Unrechtes und Kriegs- und Terrorhaftes tun, wofür sie als kühn, tapfer und in ihrer
+Lebens-Niederträchtigkeit für die Besten und Guten gehalten werden, während sie die nach Frieden und
+Freiheit und damit auch nach der Wirklichkeit und Wahrheit sowie nach den natürlich-schöpferischen
+Gesetzen Strebenden beschimpfen und verachten werden. Allso werden die fehlbaren Menschen in
+kommenden Zeiten tun, weil ihre Gedanken und Gefühle, wie auch ihre Psyche, ihr Sinnen und Trachten,
+ihr Gebaren und Verhalten verdorben sein werden, weil sie mit allem, was sie betrifft, unfriedlich, unfrei
+und unzufrieden sein werden, eben gegensätzlich zu den Wirklichkeits- und Wahrheitsdenkenden, denen
+Beschimpfung und Schande entgegengeworfen, Schaden zugefügt, Leid angetan und ihr Leben bedroht
+werden wird. Die Gläubigen aber, die in ihrer wirren Einbildung wähnen, dass sie besser und
+lebensberechtigter seien als die aufrichtig nach Wahrheit, Liebe, Frieden und Freiheit Strebenden, werden
+darauf hoffen, durch ihren Glauben an ihren erlogenen Gott Unsterblichkeit zu erringen, doch werden sie
+sehr bitter enttäuscht werden, weil sie weder aus ihren Lebenszweifeln noch aus ihrer Unzufriedenheit
+und ihrer feigen Angst herausfinden werden. Dadurch werden sie die Rechtschaffenen, die nach
+Wirklichkeit und Wahrheit streben und nach dieser Art leben, mit Häme belegen, mit Hohn, Sarkasmus,
+Spott und Zynismus, wie es aber auch sein wird, dass sie gelästert, des Betrugs, der Lüge und
+Verschwörerei bezichtigt werden. Es wird aber auch sein, dass ihnen zu Unrecht durch Gerichtsbarkeiten
+Strafen zukommen, wenn sie offen die Wahrheit verbreiten und die reale Wirklichkeit als ihre Meinung
+nennen. All das ist die Wahrheit, die sich in Zukunft in immer krasserer Weise ergeben, zutragen und
+erfüllen wird – wie es auch seit alters her geschehen ist –, wobei die Gottgläubigen, die Besserwisser und
+Wissenschaftler, die Philosophen und alle, denen das Wahrnehmen und Erkennen der wirklichen
+natürlichen Realität fremd ist, alle jene Menschen, die sich als Wissende um die Wirklichkeit und um die
+gegebene Wahrheit bemühen, mit dummem Lachen, mit Beschimpfung und Spötterei zu erniedrigen
+versuchen und deren Wissen als Unsinn abwerten und als Betrug verunglimpfen. Es wird sogar sein, dass
+für jene nach der Wahrheit lebenden Menschen Todesgefahr bestehen wird, welche an der Pflege von
+Verstand, Vernunft und Intelligenz, dem Wissen um die Wahrheit und unbeirrt an der Wirklichkeit
+festhalten werden. Es wird auch sein, dass viele neue Rechtsordnungen und neue Gesetze erlassen
+werden, die aber nicht mit einem Wort auf die Wahrheitslehre hinweisen, sondern gegenteilig die falschen
+religiösen Überzeugungen und die Religions- und Sektengläubigen schützen werden, weil dies angeblich
+des Himmels würdig sei und verhindere, dass keine bedauernswerte Scheidung zwischen Gott und den
+Menschen stattfinden könne. Dadurch werden sich erbärmliche Menschen unter die Menschheit mischen,
+die durch Lügen und Verleumdung die Wissenden um die Wahrheit als Verdorbene brandmarken werden.
+Allso werden Gläubige der Religionen und Sekten Hand an die Wahrheitswissenden legen oder dies zu
+tun versuchen, und so werden viele Gläubige in ihrem Wahn sich selbst zu Verbrechen, Krieg und Terror,
+wie auch zu Raub, Lüge, Verleumdung und Verrat führen, wie auch zu all dem, was der Natur ihres
+eigenen Bewusstseins und der eigenen Psyche schweren Schaden bringen wird. Also werden es die
+Gottgläubigen – die sich besser und grösser wähnen als diejenigen, die sie als Ungläubige beschimpfen –
+in ihrem widernatürlichen Glauben sein – wie schon seit alters her –, die in ihrem Wahn alles Böse tun
+und Krieg und Terrorismus fördern, lebensunwürdige Strafen für andere fordern und selbst zu Waffen
+
+
+-----
+
+greifen, um diese verantwortungslos wider Mitmenschen einzusetzen und sie zu töten. Und es werden
+durch die Politik, Religionen und durch den Sektierismus weltweit mordende und zerstörende
+Terrororganisationen entstehen, die gefühl- und gewissenlos massenweise Frauen vergewaltigen und
+unschuldige Menschen bestialisch ermorden, massakrieren und auch lästerlich schänden werden. Alles
+wird aus den Fugen geraten und keine Ordnung mehr haben, die nur schwerlich im kleinen beibehalten,
+jedoch nicht wieder vollends hergestellt werden kann. Auch die Erde selbst wird aus dem Gleichgewicht
+fallen und keinen geregelten Jahreszeitenrhythmus mehr haben, sondern durch die Schuld der
+Menschheit ungeheure Naturkatastrophen und vielfältiges grosses Unheil bringen, weil durch die Masse
+der menschlichen Überbevölkerung zur Befriedigung deren Begierden, Bedürfnisse und unsinnigen
+Forderungen und Wünsche ungeheuer viel der Natur und deren Pflanzen- und Tierwelt zerstört,
+vernichtet und gar viele Lebensformen ausgerottet, wie aber auch fruchtbare Ländereien sinnlos verbaut,
+Wälder völlig abgeholzt und die Erdressourcen restlos ausgebeutet werden. Und dies wird so kommen in
+der nächsten und weiteren Zukunft, wie auch die Ozeane, Bäche, Flüsse und Seen ausgefischt und teils
+unschiffbar werden. Und es wird sein, dass nahezu alles Wildleben vertrieben oder ausgerottet und kaum
+mehr Lebensraum für alles sein wird, weil die völlig verantwortungslos rasend schnell wachsende Masse
+der irdischen Menschheit den Planeten, dessen Natur und deren Fauna und Flora gewissenlos dem
+Untergang entgegentreibt, und zwar immer schneller und radikaler. Auch der regelmässige Lauf der
+Gestirne wird gestört werden, während das Gros der Erdenmenschheit im religiösen Wahn nicht der
+Stimmen jener Menschen achten wird, die als Wissende um die wirkliche Wahrheit der Wirklichkeit
+wissen und dafür belehrend kämpfen; obwohl versucht werden wird, deren Stimmen zum Schweigen zu
+verurteilen, was den wahnbefallenen Gottgläubigen jedoch auf Zeit nicht gelingen wird. Doch die Saat der
+Wahrheit wird oft und noch sehr lange nicht aufgehen, denn die <Lehre der Wahrheit, Lehre des Geistes,
+Lehre des Lebens> wird noch lange ungehört verhallen, ehe die Saat aufgehen und Früchte tragen wird.
+Folglich wird bis dahin noch viel an Gutem verderben und ein Grossteil der Erde aufhören, fruchtbar zu
+sein, wie auch die Luft in düsterer Erschlaffung zum Atmen schwer werden wird. Es wird sich in Fehlen
+jeglicher Ordnung ergeben, wie auch eine Verwirrung aller Regeln und Werte. Und wenn all dies
+eingetroffen sein wird, dann wird der Rest, der von der Erdenmenschheit noch übrigbleibt, die erhabene
+Gesamtheit der Welt in sehr mühsamer Weise über viele Jahrhunderte und Jahrtausende wieder
+herstellen und alles in Frieden, Freiheit und Güte bereinigen müssen, um allen stattgefundenen Vergehen
+und der allgemeinen Verderbtheit der Erdenmenschheit ein Ende zu setzen. Es wird sich aber ergeben,
+dass die Erdenmenschheit durch Seuchen dezimiert wird, und es wird die Welt durch Kriege und
+Terrorismus mit Feuer verzehrt werden. Und gar vieles wird durch die Ausartungen der
+Überbevölkerungsmasse vollends zerstört werden. Und es fragt sich, ob die Menschheit die Erde erhalten
+und ihr die urtümliche Schönheit zurückgeben will und ob sie das dann überhaupt noch kann.
+Werden diese sehr ernst zu nehmenden Voraussagen bedacht, deren Erfüllung unabwendbar ist, dann
+muss erkannt und verstanden werden, dass in den kommenden Zeiten diese bis weit ins 3. Jahrtausend
+hinein grosse Umwälzungen bringen werden, und zwar zunächst einen bis anhin noch nie dagewesenen
+Wohlstand für alle Bevölkerungsschichten, wie auch ungeheuren Reichtum für viele, die zu vielfachen
+Millionären und Milliardären werden. Dadurch werden die Menschen egoistisch, selbstsüchtig und
+habgierig wie noch nie zuvor, wodurch auch die Kriminalität und die Gewaltverbrechen in hohem Masse
+ansteigen werden, wodurch auch alle Regeln des Guten bösartig verdorben und missbraucht werden. Und
+das wird so sein, wie auch unzählige Menschen alle ihre guten Vorsätze aufgeben, wodurch ausartende
+anarchistische Machenschaften aufkommen, wobei besonders Jugendliche und Mittelalterliche davon
+betroffen sein werden. Und es werden unter ihnen auch viele sein, die sich über Jahre oder Jahrzehnte
+bemühen und vieles Mögliche tun, um der Welt und den einzelnen Menschen eine bessere und gute
+Richtung zu weisen und sie zu einer Wertgebung im Leben zu veranlassen. Bei vielen dieser Menschen
+werden jedoch nach einiger Zeit – nach Monaten, Jahren oder Jahrzehnten – die von ihnen nur
+unterdrückten, jedoch nicht bewältigten in ihnen dämmernden alten Gebaren wieder an die Oberfläche
+kommen und nach aussen durchbrechen, wenn sie im Lauf der Zeit ihre eigenen Begehren, Hoffnungen
+und Wünsche nicht verwirklichen und sich folglich nicht selbst bestätigen und sich nicht herrschend in
+den Vordergrund stellen können. Ihr Unmut und Herrschverlangen, ihre Laster, Süchte und
+Unzufriedenheit, ihre Selbstsucht und Selbstherrlichkeit usw. werden sie wieder übermannen und zur
+Aufgabe ihrer für eine gewisse Zeit angestrebten Bemühungen zwingen, folglich sie in ihre alten
+verantwortungslosen Lebensweisen und Verhaltensformen zurückfallen und gar verleumdend und zornig
+gegen vorherige Gleichgesinnte werden.
+Alles Gute und Fortschrittliche, wie auch alles Lebenswerte wird von vielen Menschen vergessen und in
+den Schmutz getreten, wodurch auch ein Abfall von jeder Sittlichkeit und dadurch eine Sittenverderbnis
+bis hin zum staatlich erlaubten offenen und steuerpflichtigen Hurenwesen erfolgen wird, wie das noch nie
+zuvor in Erscheinung getreten sein wird. Und weiter werden aus dem letzten Weltkrieg blutige und
+radikale Extremistengruppierungen in Nazimanier mörderisch und verbrecherisch hervorgehen, und zwar
+sowohl in Europa, Russland, den USA und in anderen Ländern allüberall auf der Erde. Es werden aber
+
+
+-----
+
+auch viele wahnglaubensfundierte und ausgeartete mörderische Terrororganisationen entstehen, und
+zwar besonders in arabischen und vorderasiatischen sowie direkt in asiatischen Staaten resp. im Orient,
+wie ich schon ausführte. Dabei wird aber auch durch Amerika mit geheimdienstlichen und kriegerischen
+Machenschaften viel Unheil durch Kriegsmorderei und Zerstörungen angerichtet werden. Die
+verschiedenen in den nächsten Jahrzehnten entstehenden Terrororganisationen, die durch die
+Geheimdienstverbrechen und Kriegsverbrechen der USA zustande kommen werden, breiten sich ebenso
+rund um die Welt aus, wie auch diverse spätere Terrororganisationen, die gleichfalls durch die Schuld der
+verbrecherischen militärischen und geheimdienstlichen Machenschaften der Vereinigten Staaten von
+Amerika hervorgehen und Hunderttausende von Toten fordern werden. Jedoch auch die USA selbst
+werden durch diesen aufkommenden Terrorismus nicht verschont bleiben, speziell wenn zum Beginn des
+neuen Jahrtausends New York von viel Leid und Zerstörung getroffen und der Terror Tausende von
+Menschenleben fordern wird. (Anm. Billy: World Trade Center = Terroranschläge am 11. September
+2001, wobei zugleich vier koordinierte Flugzeugentführungen stattfanden und diese Flugzeuge durch AlQaida-Terroristen ins World Trade Center, ins Pentagon und in ein Feld bei Shanksville, rund 100
+Kilometer östlich von Pittsburgh in Pennsylvania, gesteuert wurden, wodurch gesamthaft Tausende von
+Menschen starben.) Hervorgerufen wird alles durch die Weltherrschaftsgier der USA selbst, die dumm
+und unbedacht feindlich gesinnte und hinterhältige Revolutionäre verschiedener Länder Südamerikas
+usw., wie auch arabische Glaubensfanatiker usw. militärisch-guerillagleich ausbilden werden, die im
+Hintergrund terroristisch organisiert sein und später gegen die verhassten hegemonischen Vereinigten
+Staaten von Amerika angehen und tausendfachen Tod und Zerstörung in deren Land bringen werden.
+Doch bald darauf bildet sich eine neue ungeheuer gewaltverbrecherische Terrororganisation im
+orientalischen Raum, die ein derart blutiges Handwerk führen wird, wie niemals zuvor ein solches unter
+dem Deckmantel einer Religion stattgefunden hat. Auch das Entstehen dieses Terrorismus wird auf die
+Schuld Amerikas zurückführen und unsagbares Leid selbst in die ganze Welt hinaustragen. Dieser neue
+islamische (Anm. Billy: islamistische) Glaubenswahnterrorismus wird derart gewaltig werden, dass nur
+schwerste militärische Einsätze und Kämpfe diesem über lange Jahre hinweg nur teilweise Herr zu
+werden vermögen, um ihn dann erst gegen das Ende des zweiten Jahrzehnts im nächsten Jahrtausend
+weitestgehend zu besiegen. Dabei wird dann aber von allen beteiligten Armeen und Ländern irrtümlich
+angenommen werden, dass diese islamisch-ausgeartete Terrororganisation ihr Ende gefunden haben
+werde, was jedoch mitnichten der Fall sein wird, denn die Zukunftsschau beweist, dass untergründig und
+in geheimer Weise diese Terrorvereinigung weltweit weiterbestehen bleibt, wobei Tausende von
+geflüchteten Tätern und Täterinnen der ursprünglichen Terrororganisation unbehelligt in ihre
+Heimatländer zurückkehren oder als betrügerische <Flüchtlinge> in irgendwelchen Ländern Unterschlupf
+erhalten und geschützt werden. Besonders werden sich dabei die entstehende Union-Diktatur und eine
+selbstherrliche und machtbesessene, jedoch unfähige und in verschiedenen Beziehungen
+
+unzurechnungsfähige Staatsführende in Deutschland für offene Hände einsetzen, um Rückkehrenden
+und Flüchtenden aus der islamischen Terrororganisation (Anm. Billy: = IS = Islamistischer Staat), wie
+auch Millionen von Flüchtlingen aus Entwicklungsländern und aus Arabien Aufnahme und Schutz zu
+bieten. Das aber wird dazu führen, dass in Europa, jedoch besonders in Deutschland, eine gewisse
+Islamisierung hervorgehen und teils von Kriminalität und schweren Gewaltverbrechen gezeichnet sein
+wird. Speziell wird dies der Fall werden durch kriminelle und verbrecherische Elemente, die als Abgängige
+der islamischen Terrororganisation aus Syrien und dem Irak usw. durch die unberechenbare
+Staatsführende und ihre Dummheit sich in Deutschland als Flüchtlinge einschleusen werden, wodurch
+nicht nur eine friedliche Islamisierung, sondern eine besondere kriminelle und verbrecherische
+Islamisierung (Anm. Billy = Islamistisierung) entstehen wird. Doch daraus werden katastrophale asoziale
+Zustände und eine schnell sich ausbreitende Kriminalität und Verbrechens-Subkultur entstehen, was
+dann selbst durch vielerlei neue Gesetze und Verordnungen sowie Sondereinsatztruppen nicht mehr
+rückgängig gemacht werden kann.
+Besonders die von Dummheit befallenen und zudem verantwortungslosen Verantwortlichen der
+Europaländer – die in den Krallen der Union-Diktatur gefangen sein und nur noch zum Schein etwas
+mitzubestimmen haben werden – werden es dann sein, die von den Rückkehrern und Flüchtenden aus
+der islamistischen Terrororganisation speziell in Betracht gezogen und ausgenutzt werden. Und dies wird
+geschehen, weil in kommenden Zeiten und weit bis ins neue Jahrtausend hinein weltweit das Gros aller
+Staatsmächtigen in ihrer verstand- und vernunftlosen Unbedarftheit und Regierungsunfähigkeit sowie in
+ihrem Machtwahn und Bereicherungsstreben über die Köpfe der Völker hinweg die Länder ins Verderben
+treiben. Die selbstherrlichen Machtbesessenen der entstehenden Union-Diktatur werden in ganz Europa
+bösartige und gegen die Freiheit und den Frieden der Länder und Völker gerichtete neue Gesetze und
+Verordnungen erlassen und im Lauf der Zeit die Union-Diktatur in eine Sklavenbeherrschungs-Diktatur
+umformen.
+Wenn im Orient das nur scheinbare Ende der islamistischen Terrororganisation erfolgt, ergibt sich aber
+währenddem, dass jedoch allen anderen Terror- und Verbrecherorganisationen rund um die Welt selbst
+
+
+-----
+
+durch grosse Polizei-, Sicherheits- und Militärkräfte nicht Einhalt geboten werden kann. Doch lange bevor
+diese weltweit um sich greifende Terrororganisation in Arabien entstehen wird, der sich Hunderte von
+Irregeführten aus ganz Europa, wie auch Zigtausende jugendliche und mittelalterliche, irregeführte,
+arbeitsscheue, abenteuerlustige, glaubenswahnbesessene und kriminelle Menschen aus Arabien und der
+ganzen Welt anschliessen werden, die dann Folter, schreckliche Tode, Vergewaltigung und Verderben
+verbreiten, wird in Europa mit Hauptsitz in Belgien eine Diktatur-Union gegründet, der sich die
+europäischen Länder anschliessen werden. Durch diese Diktatur, die durch machtsüchtige Regierende
+gelenkt und darauf aus sein wird, alle europäischen Länder unter ihre Fuchtel zu bringen, wie aber
+möglicherweise auch aussereuropäische Länder, wird die altherkömmliche Feindschaft des Westens
+gegen Russland neu angefacht und mit Amerika zusammen durch infame Machenschaften böse geschürt
+werden, um u.U. einen Waffengang zu provozieren.
+Im neuen Jahrtausend kommt dann auch die Zeit, da sich ergeben wird, dass Millionen von Flüchtlingen
+aus afrikanischen, asiatischen und arabischen Ländern die europäischen Staaten überschwemmen
+werden, weil eine unberechenbare Machthaberin in Deutschland und Mitwirkende in der Diktatur-Union
+zum Fluchtgebaren in Afrika, Arabien und Asien aufrufen wird. Dadurch werden sich einige Zeit nach der
+Jahrtausendwende Zigtausende Kriminelle, Gewaltverbrecher und Terroristen in die Länder der DiktaturUnion einschleusen, denen niemand mehr umfänglich Herr zu werden vermag. Auch wird ab Beginn der
+1980er Jahre eine grosse weltweite Arbeitslosigkeit um sich greifen, wie auch eine Inflation entstehen und
+viele Staatsverschuldungen überhandnehmen und alle Nahrungsmittel, sonstigen Erwerbsgüter,
+Versicherungen und alle erdenklichen Dinge immer teurer werden. Geldinstitute und Postdienste werden
+die Völker betrügen, damit ungeheure Vermögen anhäufen und die Führungskräfte immens entlohnen,
+was sie dadurch tun werden, indem sie sehr viele Arbeitskräfte entlassen und zudem unzählige Filialen
+schliessen und dadurch die Bevölkerungen dazu zwingen, auf deren eigene Kosten und Mühen die Arbeit
+jener Arbeitsverlustigen zu verrichten, die von Banken und Post entlassen werden, wodurch sie für Bank
+und Post – auf Kosten der Bürgerschaften – und deren obere Eliten immense Vermögen anhäufen
+werden. Gesamthaft wird weltweit der Wert des Geldes für die Bevölkerungen jedoch sinken, was
+besonders in Europa durch die Einführung von Europageld der Fall sein wird. Dies wird besonders die
+Mitgliedsstaaten und die Bevölkerungen der in Europa entstehenden diktatorischen Union in horrende
+Schulden treiben, wie sich durch Misswirtschaft auch finanzielle Verschuldungen der Völker oder gar
+drohende Bankrotte der Geldinstitute ergeben werden, was dann mehrfach nur durch staatliche
+finanzielle Hilfen verhindert werden kann. All das kann nicht ohne Folgen bleiben, denn die Völker werden
+sich erheben und u.U. zur Revolution schreiten, was dann der Punkt sein kann, dass sich gemäss einer
+alten Prophetie Russland gegen den gegen dieses gerichteten Regierungsterror der Europa-Union und
+Amerikas erhebt und über Nacht den Westen angreift, wobei Europa dann seiner Diktatur ledig würde,
+wenn sich die dunkle Prophetie in dieser Weise erfüllen sollte. Dies könnte dann aber auch bedeuten, wie
+die gleiche Prophetie aussagt, dass dann Europa durch Russland befriedet würde, was sich dann auch
+über die Welt ausbreiten könnte.
+
+### Brüssel stoppt 5G Pilotprojekt: 
+ "Unsere Bürger sind keine Versuchskaninchen"
+
+Do, 04 Apr 2019 16:07 UTC
+
+Während der 5G-Wahn immer weitere Kreise zieht und dadurch schon bald an jedem Fleck enorme
+Handystrahlenwellen für jedermann zur Verfügung stehen werden, hat die Region Brüssel in Belgien ein
+Zeichen gesetzt und das Pilotprojekt gestoppt - mit der richtigen Begründung: "Unsere Bürger sind keine
+Versuchskaninchen".
+
+© AFP Yeon-Je Jung
+
+
+-----
+
+**Montage von 5G-Antennen in Südkorea im April 2019**
+
+Schon länger warnen Wissenschaftler vor den Gefahren für die Gesundheit, die vom neuen
+Mobilfunkstandard 5G ausgehen. Nun hat die belgische Hauptstadtregion ein 5G-Pilotprojekt gestoppt.
+Die Brüsseler seien keine Versuchskaninchen, so die Regionalregierung.
+Die Planungen für ein Pilotprojekt zur Schaffung eines 5G-Netzes in Brüssel sind aufgrund von Sorgen
+um die Gesundheit der Bürger eingestellt worden. Das berichtet das flämischsprachige Portal Bruzz.
+~ RT Deutsch
+Mit dem 5G-Upgrade, das auch bald in Deutschland stattfinden soll, werden die ohnehin schon
+vielfältigen Risiken und Nebenwirkungen des Handy-Kosums auf einen neuen Höchstwert
+
+hochgeschraubt.
+Im Juli 2018 sollten die Brüsseler Grenzwerte im Strahlenschutz gelockert werden, um dem Beginn
+dieses irrsinnigen Projektes den Weg zu bahnen.
+Die Regierung der belgischen Region Brüssel-Hauptstadt hatte im Juli 2018 mit drei
+
+Telekommunikationsbetreibern eine Vereinbarung getroffen, nach der die strengen Brüsseler Grenzwerte
+im Strahlenschutz gelockert werden sollten. Nach Auskunft der Regionalregierung ist es allerdings
+unmöglich, die Strahlungsbelastung durch die für den Betrieb von 5G nötigen Antennen abzuschätzen.
+Die christsoziale Brüsseler Umweltministerin Céline Fremault wird von Bruzz mit den Worten zitiert:
+Ich kann eine solche Technologie nicht begrüssen, wenn die Strahlungsstandards, die den Bürger
+schützen müssen, nicht beachtet werden, ob 5G oder nicht. (...) Die Brüsseler sind keine
+Versuchskaninchen, deren Gesundheit ich mit Gewinn verkaufen kann. Wir dürfen da keine Zweifel offen
+lassen.
+Mit den derzeit gültigen Grenzwerten ist das 5G-Pilotprojekt nicht umzusetzen. Die Ministerin erklärte
+auch, keine Ausnahme machen zu wollen. In der Region Brüssel gelten besonders strenge
+Strahlungsgrenzwerte für Telekommunikationsanwendungen. Dies hatte in der Vergangenheit bereits die
+Einführung des 4G-Standards erschwert.
+~ RT Deutsch
+Die Einführung von 5G in Belgien ist bisher noch keine klare Sache:
+Die Einführung von 5G in Belgien verzögert sich unabhängig von den Regelungen der Hauptstadtregion
+voraussichtlich ohnehin um mehrere Jahre. Bund und Länder haben sich bislang noch nicht über die
+Verteilung der zu erwartenden Einnahmen aus der Versteigerung der Lizenzen einigen können.
+Wiederholte Warnungen von Wissenschaftlern vor den von 5G ausgehenden Gefahren für die Gesundheit
+haben den Aufbau dieser Netze in anderen Ländern bislang nicht aufhalten können.
+Mehr zum Thema – Erste 5G-Auktion in Deutschland: Einnahmen von bis zu fünf Milliarden Euro
+erwartet
+~ RT Deutsch
+Nicht nur Belgien wäre jedoch gut darin beraten, diesen Wahnsinn nicht aufzuschieben, sondern ihn gar
+nicht erst einzuführen.
+Quelle: https://de.sott.net/article/33386-Brussel-stoppt-5G-Pilotprojekt-Unsere-Burger-sind-keine-Versuchskaninchen
+
+### Hierzu FIGU-Informationen:
+ Auszug aus dem 649. offiziellen Kontaktgespräch vom 26. März 2016
+
+**Billy:**
+Dann habe ich nochmals eine Frage: Du hast ja schon oft gesagt, wie schädlich die Strahlungen der
+Mobil-Telephone resp. Handys usw. sind und bei häufigem Gebrauch Gehirntumore auslösen, wie aber
+auch andere Leiden. Kannst du noch einmal kurz etwas dazu sagen?
+
+**Ptaah:**
+Ja, die Strahlungen dieser Geräte sind nicht harmlos, wie die Hersteller derselben sowie die Vertreter
+dieser Geräte lügenhaft behaupten. Tatsächlich nämlich sind die Strahlungen dieser
+
+Kommunikationsgeräte sehr gefährlich, und zwar in mehrfacher Hinsicht. Werden die Geräte in aktivem
+Zustand näher als 18 Zentimeter an den Kopf gehalten, dann werden die Strahlungen sehr gefährlich,
+weil, wie du sagst, durch die Schwingungen Gehirntumore entstehen können. In weiterer Folge entstehen
+Schwierigkeiten in bezug auf das Bewusstsein, und zwar bis hin zu schweren Bewusstseins- sowie
+Gedanken-Gefühlsstörungen, wodurch die Psyche beeinträchtigt wird. Weitere Schäden ergeben sich in
+Form von Aggressivität, Gefühlskälte und Gleichgültigkeit, wie auch allgemeiner Interesselosigkeit in bezug
+auf die Umwelt, die Mitmenschen, Fauna und Flora, persönliche Angelegenheiten, Familie, Freundschaften
+und die Weltgeschehen. Weiter ergeben sich daraus Online-Sucht, Kommunikationsarmut in persönlicher
+Form, wie auch eine Abkapselung gegenüber zwischenmenschlichen Beziehungen und der Realität,
+wodurch die Wirklichkeit und deren Wahrheit nicht mehr wahrgenommen und nicht realisiert, wie aber
+auch nicht mehr verstanden werden kann Weiter führt das Ganze auch dazu dass Gewalttätigkeit in
+
+
+-----
+
+Erscheinung tritt und das Leben selbst bedeutungs-, sinn- und wertlos und in all seinen Formen
+missachtet wird, und zwar bis dahin, wo es zum Suizid kommt.
+
+**Billy:**
+Danke. Das Ganze mit diesen Geräten sehe ich als Sucht einer blanken Blödheit und Sinnlosigkeit jener
+Erdlinge, die mit ihrer Zeit und ihrem Leben nichts mehr anzufangen wissen. Und süchtig in dieser Art
+sind. Unzählige, die auf ihren Geräten ‹herumtöggeln›, weil sie einfach zu blöd und krank im Kopf sind,
+um wirklich zu leben und etwas Gescheites zu tun. Das gesamte Denken und Fühlen wird ebenso
+beeinträchtigt wie auch die Wirklichkeitswahrnehmung und die Initiative für eine gesunde, sinnvolle und
+wertvolle Beschäftigung. Daraus ergibt sich eine Beschäftigungsfaulheit, was zur Folge hat, dass nur noch
+herumgehockt, Schwachsinn geredet und die Zeit im Bett verschlafen wird, anstatt sich zu regen und
+einer Tätigkeit nachzugehen.
+
+### Elektrostimulierung von Gehirn führt zu dramatisch verjüngendem Effekt
+
+Sott.net Di, 09 Apr 2019 16:13 UTC
+
+Wissenschaftler haben in einer Studie herausgefunden, dass eine geringfügige Stimulierung des Gehirns
+mit Strom nicht nur das Gedächtnis von älteren Menschen stark verbessert, sondern auch die kognitiven
+Fähigkeiten.
+Wissenschaftler der Boston University (USA) haben festgestellt, dass eine milde Elektrostimulierung des
+Gehirns die kognitiven Funktionen, einschliesslich des Gedächtnisses, bei den Menschen über 60 bis zum
+Grad der 20-Jährigen verbessere. Dies ist einer Pressemitteilung des Portals "MedicalXpress" zu
+entnehmen.
+
+Für die Studie wurden 42 Probanden im Alter von 20 Jahren und 42 Probanden im Alter von 60 Jahren
+herangezogen.
+Sie hatten einen Test zum Arbeitsgedächtnis absolviert, der Folgendes beinhaltete: Die Testpersonen
+mussten sich zwei ähnliche Darstellungen innerhalb von wenigen Sekunden anschauen und Unterschiede
+finden, wenn sie vorhanden waren.
+Beide Altersgruppen wurden sowohl mit als auch ohne Stimulierung dem Test unterzogen. Das
+bemerkenswerte Resultat war eine starke Verbesserung der Hirnaktivität bei den älteren Testpersonen:
+Es stellte sich heraus, dass im Laufe einer mindestens 50-minütigen realen Gehirnstimulierung die
+älteren Teilnehmer die Aufgabe ebenso gut wie die jungen Testpersonen erfüllen konnten. Im Fall einer
+fiktiven Stimulierung sei dagegen kein Unterschied verzeichnet worden. Den Forschern zufolge kann der
+positive Effekt fünf und mehr Stunden dauern.
+Der Strom war durch eine enganliegende Mütze mit Elektroden darauf zugeführt worden, die auch die
+Gehirnwellen eines jeden Teilnehmers verfolgte. Mit ihrer Hilfe hatten die Wissenschaftler die
+Synchronisation der Neuronen-Aktivität zwischen dem präfrontalen Cortex und dem Schläfenlappen der
+linken Gehirnhemisphäre verbessert. Nach Ansicht der Forscher führe gerade die nachlassende
+Synchronisation der Neuronen-Aktivität zur Verschlechterung des Arbeitsgedächtnisses bei älteren
+Leuten.
+Quelle: https://de.sott.net/article/33400-Elektrostimulierung-von-Gehirn-fuhrt-zu-dramatisch-verjungendem-Effekt
+
+**Blödes Lachen**
+
+Man sagt, Esel seien dumm,doch sie lachen nicht
+
+dumm über ihre Art; gegenteilig zuMenschen,
+
+die dumm über ihresgleichen blöde lachen.
+
+SSSC, 7. März 2014, 23.40 h, Billy
+
+
+-----
+
+### Iran reagiert und stuft US-Streitkräfte zu Recht als Terrororganisation ein
+
+Sott.net Di, 09 Apr 2019 15:58 UTC
+
+Nachdem der amerikanische Präsident Donald Trump die iranischen Revolutionsgarden irrsinnigerweise
+als Terrororganisation eingestuft hat, reagiert der Iran jetzt mit der Einstufung der amerikanischen
+Streitkräfte als terroristische Organisation.
+
+© Reuters / Nazanin Tabatabaee Yazdi / TIMA
+
+Die Spannungen zwischen dem Iran und den USA nehmen beispiellose Züge an. Erst stufen die USA die
+Iranischen Revolutionsgarden als Terrororganisation ein, dann setzt der Iran das US-Militär ebenfalls auf
+die schwarze Terrorliste.
+Der Höchste Nationale Sicherheitsrat des Iran hat am Montag dem Vorschlag von Aussenminister
+Mohammed Dschwad Sarif stattgegeben, das für den Nahen Osten zuständige Zentralkommando
+(Centcom) der US-Armee auf die Liste der Terrororganisationen zu setzen. Das teilte die staatliche
+Rundfunkanstalt IRIB des Iran mit.
+Der Iran erklärt als Gegenmassnahme zu der illegitimen Entscheidung der USA das Regime der Vereinten
+Staaten von Amerika zu einem 'Staat, der den Terrorismus unterstützt' und das Zentralkommando der
+USA und jene Kräfte, die mit ihm verbunden sind, zur 'Terrorgruppierung'", zitierte die Rundfunkanstalt
+die Erklärung des Sicherheitsrates.
+Darüber hinaus bezeichnete der Höchste Nationale Sicherheitsrat die Einstufung islamischer
+Revolutionswächter als Terrororganisation seitens der Amerikaner als "gefährlichen und illegitimen
+Schritt".
+Diese unbegründete Massnahme stelle die Hauptgefahr für Frieden und Sicherheit sowohl in der Region
+als auch in der ganzen Welt dar.
+Der Rat machte darauf aufmerksam, dass diese Massnahme der USA "die Hauptgefahr für Frieden und
+Sicherheit sowohl in der Region als auch in der ganzen Welt" darstellt und stellte klar:
+die Iranischen Revolutionsgarden haben stets "an vorderster Linie des Kampfes gegen terroristische und
+extremistische Gruppierungen" im Nahen Osten gestanden, darunter gegen den "Islamischen Staat"
+8Anm. Billy: islamistischer Staat), al-Kaida und die al-Nusra-Front.
+Quelle: https://de.sott.net/article/33399-Iran-reagiert-und-stuft-US-Streitkrafte-zu-Recht-als-Terrororganisation-ein
+
+### Teleskope nehmen erstmals Ereignishorizont eines Schwarzen Loches auf
+
+Andreas Müller Grewi Mi, 10 Apr 2019 17:25 UTC
+
+_Auf mehreren weltweiten Pressekonferenzen hat soeben ein Team internationaler Radioastronomen die ersten_
+_Ergebnisse des Versuchs der direkten Abbildung eines Schwarzen Lochs – bzw. dessen sogenannter_
+_Ereignishorizonts – vorgestellt._
+
+© Twitter / ehtelescope
+
+
+-----
+
+Brüssel (Belgien) - Wie die Wissenschaftler des Projekts "Event Horizon Telescope" (EHT) auf den
+zeitgleich in Brüssel, Chile, Shanghai, Japan, Taipeh und Washington veranstalteten Pressekonferenzen
+berichtet haben, handelt es sich um Aufnahmen der zum EHT zusammengeschalteten Teleskope, die das
+Schwarze Loch im Zentrum der Galaxie "Messier 87" (M87) ins Visier genommen hatten. Zu sehen ist
+zwar nicht das Schwarze Loch selbst, dafür aber den das Objekt umgebenden sogenannten
+Ereignishorizont (engl. Event Horizon).
+Der Ereignishorizont markiert jene letzte beobachtbare Grenze, über die hinaus Licht und Materie
+unausweichlich vom Schwarzen Loch aufgesaugt werden. Immer dann, wenn Materie diese Grenze
+überquert, gibt diese Materie "der Theorie zufolge intensive Strahlung ab, eine Art 'Todesschrei' und
+damit ein letztes Zeugnis ihrer Existenz", erläutern Astronomen des an EHT beteiligten Max-PlanckInstituts für Radioastronomie. "Diese Strahlung lässt sich unter anderem bei Radiowellen im
+Millimeterbereich registrieren."
+Durch den weltweiten Zusammenschluss vieler Teleskope, simuliert das EHT-Projekt ein gewaltiges
+Radioteleskop, das dem Umfang unserer Erde entspricht. Die Auflösung des EHT liegt bei 26 MikroBogensekunden, was der Grösse eines Golfballs auf dem Mond entspricht – oder der Breite eines
+menschlichen Haares, gesehen aus 500 Kilometern Entfernung.
+
+**Hintergrund**
+"Schon Ende des 18. Jahrhunderts spekulierten die Naturforscher John Mitchell und Pierre Simon de
+Laplace über 'dunkle Sterne', deren Schwerkraft so stark ist, dass Licht ihnen nicht entkommen kann." Es
+war diese Idee, die die Grundlage der später dann durch die von Albert Einstein konkretisierte allgemeine
+Relativitätstheorie beschriebene Vorstellung von Schwarzen Löchern legte.
+Schwarze Löcher sind Objekte mit einer derart grossen und extrem komprimierten Masse, dass selbst das
+Licht ihrer Anziehungskraft nicht entkommen kann – weshalb sie auch eigentlich nicht direkt beobachtet
+werden können. Dennoch lassen sie sich eben aufgrund ihrer gewaltigen Schwerkraft indirekt nachweisen.
+Unter anderem durch die Messung der durch die Kollision zweier Schwarzer Löcher ausgelösten
+sogenannten Gravitationswellen (...GreWi berichtete).
+Auch im Zentrum unserer Milchstrasse sollte sich, rund 26 000 Lichtjahre von der Erde entfernt, ein
+solches Schwarzes Loch mit der Bezeichnung Sagittarius A* befinden. Aufgrund seiner Wechselwirkung
+mit seiner kosmischen Umgebung schätzen Astrophysiker seine Masse auf die von rund 4,3-4,5 Millionen
+Sonnen.
+Das jetzt gezeigte Schwarze Loch bildet das Zentrum der Galaxie "Messier 87" im Sternbild Jungfrau.
+Rund 55 Millionen Lichtjahre von der Erde entfernt, birgt dieses "Massemonster" schätzungsweise 6,6
+Milliarden Sonnenmassen und damit die vermutlich tausendfache Masse von Sagittarius A*. Besonders
+interessant an Messier 87 ist der Umstand, dass aus dem zentralen Schwarzen Loch ein Tausende
+Lichtjahre langer Materiestrahl fast genau in Blickrichtung Erde austritt. Das Schwarze Loch im Zentrum
+von M87 ist etwa 2,5 mal kleiner als der knapp 40 Milliarden Kilometer grosse Schatten, den es wirft.
+Zu den heute präsentierten Aufnahmen erläutern der Vorsitzende des EHT-Wissenschaftsrates Heino
+Falcke von der Radboud University: "Wenn wir in eine helle Region eintauchen, wie eine Scheibe aus
+glühendem Gas, erwarten wir, dass ein Schwarzes Loch eine dunkle Region ähnlich einem Schatten
+erzeugt – etwas, das durch Einsteins allgemeine Relativitätstheorie vorhergesagt wird, aber wir noch nie
+zuvor gesehen haben. Dieser Schatten, verursacht durch die Gravitationskrümmung und den Einfang von
+Licht durch den Ereignishorizont, offenbart viel über die Natur dieser faszinierenden Objekte. Er hat es
+uns ermöglicht, die enorme Masse des Schwarzen Lochs von M87 zu messen."
+– Fachartikel zur Abbildung des Schwarzen Lochs wurden in einer Sonderausgabe des Fachjournals The
+_Astrophysical Journal Letters veröffentlicht._
+Quelle: https://de.sott.net/article/33403-Teleskope-nehmen-erstmals-Ereignishorizont-eines-schwarzen
+Loches-auf
+
+
+### Auszüge aus dem Infobrief vom 10.03.2019 
+
+
+### des „Verein Deutsche Sprache“ – Aufruf gegen den Gender-Unfug
+
+
+Aus Sorge um die zunehmenden, durch das Bestreben nach mehr Geschlechtergerechtigkeit motivierten
+zerstörerischen Eingriffe in die deutsche Sprache haben sich Monika Maron, Wolf Schneider, Walter
+Krämer und Josef Kraus mit einem Aufruf zum Widerstand (hier der komplette Text) an die Öffentlichkeit
+gewandt. Er beginnt mit diesen Worten:
+„Die sogenannte gendergerechte Sprache beruht erstens auf einem Generalirrtum, erzeugt zweitens eine
+Fülle lächerlicher Sprachgebilde und ist drittens konsequent gar nicht durchzuhalten. Und viertens ist sie
+auch kein Beitrag zur Besserstellung der Frau in der Gesellschaft “
+
+
+-----
+
+**Hier die Argumente in Kurzfassung:**
+Der Generalirrtum besteht darin, dass ein – weiterhin forsch behaupteter – Zusammenhang zwischen
+dem natürlichen und dem grammatischen Geschlecht bestünde.
+Lächerliche Sprachgebilde wie die Radfahrenden, die Fahrzeugführenden stehen bereits in der
+
+Strassenverkehrsordnung. Der Grosse Duden verzeichnet bereits Luftpiratinnen und Idiotinnen.
+Nicht durchzuhalten ist geschlechtsneutrale Sprache im Alltag, sie gebiert beispielsweise Bürgerinnen_und Bürgermeister und das Einwohnerinnen- und Einwohnermeldeamt._
+Nutzlos für die Frauen sind derlei Verzerrungen der Sprache obendrein. In 13 Artikeln spricht das
+Grundgesetz 20mal vom Bundeskanzler, zusätzlich auch vom „Gewählten“ und vom „Vorgeschlagenen“.
+Den mehrfachen Aufstieg von Angela Merkel zur Bundeskanzlerin hat dies nicht behindert.
+Der Appell richtet sich an Politiker, Behörden, Firmen, Gewerkschaften, Betriebsräte und Journalisten:
+
+„Setzt die deutsche Sprache gegen diesen Gender-Unfug wieder durch!“
+(stuttgarter-zeitung.de, saechsische.de, deutschlandfunkkultur.de, deutschlandfunkkultur.de, eichsfeldernachrichten.de, mdr.de, saarbruecker-zeitung.de, badischezeitung.de, welt.de, deutschlandfunkkultur.de, t-online.de)
+
+**_Anmerkung_**
+_Das ist die bisher erfolgreichste Initiative des VDS. Schon nach zwei Tagen kamen mehr als 12 000_
+_Unterschriften hinzu – wohlgemerkt: per E-Post bestätigte Unterschriften! Viele der Unterzeichner erklärten_
+_gleichzeitig ihren Beitritt zum Verein Deutsche Sprache. Der Server des Vereins geht zeitweilig unter den_
+_hohen Klickzahlen in die Knie, aber weitere Unterzeichner lassen sich davon nicht entmutigen._
+
+**_Kommentar_**
+_Derweil melden sich – neben ernstzunehmenden Kritikern – wieder einmal jene, die kein gutes Haar am VDS_
+_finden, egal was er anstellt, und erteilen den sicherlich gutgemeinten Rat: „Aber man muss aufpassen, dass_
+_man das nicht so deutschtümelnd macht.“ Wir nehmen uns diesen Rat zu Herzen, sobald wir kapiert haben,_
+_wo wir mit dem Aufruf deutsch getümelt hätten. Der geschätzten Frau Professor Helga Kotthoff (Freiburg)_
+_widerspreche ich gleich hier: Bei dem Wort Lehrer denke ich an Frauen, an weibliche Lehrer, wie sie an_
+_deutschen Grundschulen 95 Prozent der Stellen einnehmen. (ob) …_
+
+**Hubs und Loops – Hamburger Masterplan**
+Sogar unter Zuhilfenahme des Anglizismenindex wäre es schwierig, die neuen Pläne für die Entwicklung
+der Hafencity Hamburgs zu verstehen. Weniger Autoverkehr und mehr Grünflächen, besonders in der
+Nähe der öffentlichen Gebäude, die auch einfacher zu finden sein sollen. So lassen sich die Ziele von
+Stadtentwicklungssenator Dorothee Stapelfeldt und Oberbürgermeister Peter Tschentscher für den
+Stadtteil Oberbillwerder zusammenfassen. Wer sich mit den Details vertraut machen möchte, darf sich
+über die Übersetzungen freuen:
+
+  - _Grüner Loop – ein kreisförmiger Grünstreifen; vielleicht so, wie er in vielen Städten zu finden ist,_
+die früher eine Stadtmauer besassen. Öffentliche Gebäude sollen in seiner Nähe liegen. Auf dass
+der Blick ins Grüne die Schüler vom Blaumachen abhalte!
+
+  - _Mobility Loop – eine Ringstrasse, die als Umgehungsstrasse den Verkehr aus dem Stadtteil_
+heraushalten soll. Natürlich in Zusammenarbeit mit dem …
+
+  - _Mobility Hub – die Kombination aus Park-and-Ride-Parkhaus, Carsharing und Fahrradstellplätzen._
+
+  - _Active City – Wer nur noch läuft und Fahrrad fährt, wird automatisch aktiver. Für besonders_
+euphorische Selbstoptimierer oder Freunde des gepflegten sportlichen Wettstreits soll sich der
+Stadtteil aber auch mit Sportstätten brüsten können. Die liegen selbstredend – am Grünen Loop.
+
+(zeit.de, oberbillwerder-hamburg.de)
+Quelle: https://infobrief.vds-ev.de/newsletter_view.php?id=98
+
+### "Beispiellose Zensur" 
+ Facebook löscht Accounts mit Millionen Abos wegen RT-Verbindung
+
+Mo, 18 Feb 2019 16:46 UTC
+
+Nachdem der US-Fernsehsender CNN einen Bericht über "die Verbindungen der Maffick Media zu RT"
+veröffentlicht hat, wurden mehrere Facebook-Konten dieser Medienplattform mit Millionen von
+Abonnenten ohne Vorwarnung gesperrt. Der Leiter des Maffick-Medienunternehmens spricht gegenüber
+RT zu Recht von einer "beispielloser Zensur".
+
+
+-----
+
+Wie aufmerksame Leser von Sott.net bereits festgestellt haben, besteht das eigentliche Problem in den
+Augen der westlichen Machteliten und ihrer Konzerne gegenüber RT in der objektiven und nicht
+propaganda-gefärbten Berichterstattung dieses Senders. Denn die Wahrheit ist der grösste Feind
+Amerikas und vieler anderer Staaten. Deshalb werden mittlerweile auch Plattformen, denen man eine
+"Verbindung" zu diesem Sender unterstellt, zensiert.
+Die russische Regierung hat diese Tatsache schon längst erkannt und unter anderem deswegen die
+Plattform RT vor Jahren gegründet. Die jahrelange Propagandakampagne der westlichen
+
+"Wertegemeinschaft" gegen Russland wird hier als Aufhänger benutzt, um den "bösen Sender" zu
+sabotieren sowie jeden, der ihn unterstützt oder auf ähnliche Weise die Wahrheit ausspricht. Dabei wurde
+über die Jahre hinweg den Menschenmassen im Westen eine Lüge nach der anderen über die russische
+Regierung untergejubelt und auf Basis dessen eine vollkommen falsche Realität entworfen, bei der die
+Russen "die Bösen sind".
+Neben RT berichtet auch Sputnik regelmässig über die Wahrheit und hat deswegen auch schon
+Konsequenzen zu spüren bekommen. Logischerweise passt dies den USA und ihren Marionetten weltweit
+nicht. Mehr Informationen über RT und Sputnik:
+
+  - RT wird 10 - Putin gratuliert: RT hilft Millionen von Menschen auf der Welt mit der Wahrheit
+
+  - "Wir verlieren die Kommunikationsschlacht": US-Denkfabrik warnt vor RT
+
+  - RT Deutsch feiert Geburtstag: "Wir sind gekommen um zu hinterfragen und zu bleiben"
+
+  - Putin schützt die Welt: "Welt ohne RT wäre genau das, was westliche Kriegstreiber wollen"
+
+  - Türkei verbietet Sputnik: Erdogans Feind ist die Wahrheit
+
+  - Lettland reiht sich ein in Medienzensur, erklärt "Sputnik" als Bedrohung für die nationale
+Sicherheit
+
+  - Anhörung im US-Senat: Wie USA die Medienschlacht gegen RT und Sputnik verliert
+
+  - Sendeschluss für RT in Argentinien – Puschkow: "US-Marionette an der Macht, schon muss RT
+weg"
+
+  - England entblösst: Grossbritannien kündigt alle RT Bankkonten – Pressefreiheit!
+
+  - Weltrekord! RT erreicht 4 Milliarden Aufrufe auf YouTube: Viel mehr als westliche
+Propagandasender
+
+  - RT-Chefredakteurin: "Wir stehen alleine der westlichen Medien Kriegs-Armee gegenüber"
+
+  - Weiterer Versuch im US-Kongress: RT droht Aus in den USA
+
+  - Putin über US-Angriff auf RT: "Alles steht Kopf – RT und Sputnik sind bewundernswert: Hut ab!"
+
+  - Ex-US-Botschafter: Westliche Politiker und Medien unterschätzen RT und Sputnik
+
+Quelle: https://de.sott.net/article/33290-Beispiellose-Zensur-Facebook-loscht-Accounts-mit-Millionen-Abos-wegen
+RT-Verbindung
+
+### Die Fehler von 2015 werden jeden Tag wiederholt
+
+Autor Vera Lengsfeld Veröffentlicht am18. Februar 2019
+
+
+**Auszüge aus der Rede von Verfassungsschutzpräsident Maassen vor der Werteunion in Köln:**
+
+
+**“[…] Als Nachrichtendienstler hat man gelernt, mit Prognosen und Szenarien zu arbeiten: Wie sieht die**
+**Lage Ende des Jahres oder in fünf Jahren aus? Was geschieht, wenn wir nichts machen? Die Themen**
+
+
+-----
+
+**Sicherheit und Stabilität der Demokratie besorgen mich deshalb, weil nach meiner festen**
+**Überzeugung, wenn wir nichts verändern, sich die Lage in Deutschland eher zum Schlechteren**
+**verändern wird. Und mit Lage meine ich das Fundament unseres Zusammenlebens als demokratische**
+**Gesellschaft.**
+
+**[1. Sicherheit]**
+Meine sehr geehrten Damen und Herren,
+zum Thema Sicherheit: Ich werde hier eingehen auf aussenpolitische Fragen, Terrorismus und Migration.
+Wilhelm von Humboldt hatte 1792 in seiner Schrift über die „Grenzen der Wirksamkeit des Staates“
+geschrieben:
+„Ohne Sicherheit vermag der Mensch weder seine Kräfte auszubilden noch die Früchte derselben zu
+geniessen; denn ohne Sicherheit ist keine Freiheit.“
+Diese Humboldtsche Formel war seitdem ein tragender Grundsatz der deutschen Innen- und
+Sicherheitspolitik. Zuerst kommt die Sicherheit, die die schützt und sicherstellt, dass der Mensch sich frei
+entfalten kann, und dann kommt das andere. Sicherheit hat insoweit eine dienende Funktion, um Freiheit
+zu gewährleisten. Sicherheit ist aber keine Selbstverständlichkeit. Weder die Sicherheit nach innen, noch
+die nach aussen. Sicherheit muss hart erarbeitet werden.
+Ich persönlich habe allerdings den Eindruck, dass dies gerade in Deutschland vielen nicht bewusst ist.
+Vielleicht liegt es daran, dass nach Ende des Zweiten Weltkrieges wir Deutschen es verlernt hatten, uns
+um unsere eigene Sicherheit und um unsere eigene Souveränität zu kümmern. So kann man erklären,
+dass in Deutschland im Vergleich zu eigentlich allen anderen westlichen Staaten das Militär und die
+Sicherheitsbehörden mit einer gewissen Geringschätzung behandelt werden. Es mag vielleicht auch daran
+liegen, dass mit dem Zusammenbruch des Ostblocks und der deutschen Wiedervereinigung sich in
+Deutschland der Eindruck verfestigt hatte, dass damit alle Gegensätze überwunden, wir nur noch von
+Freunden umgeben sind und wir einer schönen freiheitlichen und demokratischen Zukunft bei
+wirtschaftlichem Wohlstand entgegen schauen. Kurzum im Zeitalter des Ewigen Friedens angelangt sind.
+In dieser wohlig-warmen Stubenatmosphäre haben wir uns ganz gut eingerichtet.
+Als die linksextremistische Terrororganisation RAF sich 1998 auflöste, sah es so aus, dass wir auch
+innenpolitisch keinen Sicherheitsherausforderungen mehr gegenüber stehen. Ich kann mich noch gut
+dar- an erinnern, dass kurze Zeit danach das Referat Terrorismusbekämpfung im Innenministerium
+aufgelöst worden war
+Inzwischen hat sich die Lage grundlegend verändert. Die Sowjetunion bzw. Russland waren einmal unser
+Feind oder Gegner, dann unser Partner und Freund, und nun sieht es so aus, dass im Zeitraffertempo die
+Entwicklung in die entgegengesetzte Richtung geht. Wir erleben regelmässig Cyberangriffe auf den
+Bundestag, deutsche Regierungsstellen und andere Einrichtungen, die wir russischen staatlichen Stellen
+zuordnen.
+Wir haben uns jahrzehntelang auf die USA als Freund und militärischen Partner verlassen können. Das
+können wir heute nicht mehr so sagen, nachdem Präsident Trump die Formel „America First“ zu der für
+ihn massgebenden politischen Richtlinie erklärt hat. Es stellt sich die Frage, wie zuverlässig wird sich der
+militärische Schutzschirm von NATO und den USA für uns öffnen, wenn es zu einer wirklichen Krise
+kommen sollte.
+
+**[China]**
+China ist heute eine wirtschaftliche Supermacht mit globalen machtpolitischen Ansprüchen.
+Aussenwirtschaftliches Handeln Chinas steht unter politischen Vorgaben, darüber dürfen wir uns nichts
+vormachen. Chinesische Unternehmen treten bei uns zwar marktwirtschaftlich auf, doch sie sind auch ein
+Instrument chinesischer Machtpolitik. Das Vorgehen Chinas im südostasiatischen Raum, insbesondere die
+Territorialkonflikte im Chinesischen Meer, die Eröffnung einer chinesischen Militärbasis auf dem
+afrikanischen Kontinent und der Bau der neuen Seidenstrasse machen deutlich, dass China imperiale
+und hegimoniale Ziele verfolgt; und zwar nicht als ein demokratischer Rechtsstaat, sondern als ein
+totalitäres kommunistisches Regierungssystem, das unsere Werte nicht teilt, sondern innerhalb Chinas
+bekämpft.
+Es muss uns deshalb Sorgen bereiten, dass China durch Auslandsinvestitionen und durch Kreditvergaben
+Abhängigkeiten anderer Staaten herstellt, die sich natürlich in einem aussenpolitischen Wohlverhalten
+auszahlen und damit letztlich zur Einschränkung unseres aussen- und sicherheitspolitischen
+Handlungsspielraums führen können. Ich sehe insoweit die hohen Exportzahlen nach China nicht nur
+positiv. Es werden dadurch Abhängigkeitsverhältnisse begründet, die unseren Handlungsspielraum
+gegenüber China und damit unsere nationale Souveränität einengen. Es ist ein zweischneidiges Schwert,
+wenn China für die deutschen Automobilhersteller ein wichtiger, wenn nicht sogar der wichtigste
+Auslandsmarkt ist, weil wir uns damit in die Abhängigkeit von diesem Staat begeben. Als sehr
+problematisch halte ich vor diesem Hintergrund die Überlegung, die chinesische Firma Huawei beim
+
+
+-----
+
+Aufbau des neuen Mobilfunknetzes 5G in Deutschland zu beteiligen. Huawei ist kein unabhängiges
+Unternehmen nach westlichem Verständnis, sondern untersteht den Direktiven des chinesischen Staates,
+eines kommunistischen Regimes. 5G-Netze werden integrale und bedingende Voraussetzung für die
+vernetzte Wirtschaft und Gesellschaft und auch für die fortschreitende Digitalisierung des Staates sein.
+Zukünftiger Wohlstand und Freiheit sind damit eng verknüpft. Eine nicht beherrschbare technologische
+Abhängigkeit gegenüber nicht vertrauenswürdigen Herstellern ist gerade in diesem Bereich nicht
+akzeptabel.
+Meine sehr geehrten Damen und Herren,
+neben diesen drei selbstbewussten global agierenden Spielern Russland, USA und China wäre die EU für
+uns und für viele auf Europa schauende Nationen ein sicherer Hafen. Die EU ist dagegen längst nicht
+mehr der globale Akteur, wie in den 1990er Jahren. Sie ist durch den Brexit geschwächt und nicht zuletzt
+wegen der Migrationspolitik zerstritten. Was wir heute brauchen, ist ein starkes Europa, um gegenüber
+diesen machtbewussten Spielern unsere Interessen zu vertreten und durchzusetzen, damit wir zwischen
+diesen Akteuren nicht zerrieben werden oder zu tributpflichtigen Hintersassen werden. Wenn ich mit
+Kollegen gerade aus kleineren EU-Staaten sprach, erwarteten diese eine starke deutsche Führung in
+Europa auch zum Schutz ihrer nationalen Interessen. Die Herausforderung, die ich sehe, ist es
+sicherzustellen, dass unsere äussere Sicherheit und unsere Souveränität nicht auf der Strecke bleiben.
+
+**[Terrorismus]**
+Ich komme jetzt zum Thema Terrorismus.
+Konflikte in anderen Teilen der Welt hatten wir früher aus der Beobachterperspektive wahrgenommen.
+Heute hat jeder Konflikt auf der Welt auch Auswirkungen auf die Sicherheitslage in Deutschland. Wir
+gehören nicht mehr zu den Zuschauern im Kinosaal, die interessiert Konflikte im Nahen oder Mittleren
+Osten auf der Leinwand verfolgen, sondern diese Konflikte werden infolge der Globalisierung zu uns
+gebracht. Durch den Flugverkehr, das Internet und auch die Migrationsströme. Der islamistische
+Terrorismus in Europa wäre ohne das Internet und den leichten Reiseverkehr nicht vorstellbar.
+Die Anschlagsgefahr durch den islamistischen Terrorismus in Deutschland und in Westeuropa ist immer
+noch hoch. In den letzten Jahren fanden sechs Anschläge in Deutschland statt, wobei der Anschlag auf
+den Weihnachtsmarkt am Berliner Breitscheidplatz im Dezember 2016 uns allen noch in besonderer
+Erinnerung ist. Noch immer ist es möglich, dass aus den ehemaligen Gebieten des sogenannten
+Islamischen Staates Terrorkommandos zu uns kommen, aber die grössere Sorge bereiten den
+Sicherheitsbehörden die in Deutschland bereits lebenden jungen Menschen, die sich durch salafistische
+Gruppierungen oder über das Internet radikalisieren, und als Einzeltäter oder Kleinstgruppen
+Terroranschläge begehen, aus Deutschland stammende Personen, die als ehemalige IS-Kämpfer
+zurückkommen, und andere ehemalige IS-Kämpfer, die bei uns um Asyl nachsuchen kommen.
+Für die Sicherheitsbehörden ist es eine unglaubliche Herausforderung, die Personen zu identifizieren und
+zu lokalisieren, die sich mit Terrorplänen beschäftigen. Das Personenpotenzial der Islamisten in
+Deutschland hatte in den letzten Jahren erheblich zugenommen. Im Jahr 2012 zählten wir rund 3800
+Salafisten in Deutschland, derzeit liegt die Zahl schon bei über 11 500 Personen, das islamistischterroristische Personenpotenzial bei rund 2200 Personen. Dass die Anschlagsgefahr nicht abgenommen
+hat, verdeutlichte der Fall des Sief Allah H., der im Juni letzten Jahres hier in Köln festgenommen worden
+war, weil er einen Anschlag mit dem biologischen Kampfstoff Rizin plante. Die Planungen waren weit
+fortgeschritten, er hatte sämtliche Zutaten über das Internet erworben und den Kampfstoff bereits in
+Mengen hergestellt. Wäre es nicht auf Grund der Erkenntnisse des Verfassungsschutzes zur Festnahme in
+Köln Chorweiler gekommen, hätte aller Voraussicht nach ein schwerer Anschlag mit vermutlich mehreren
+hundert Toten und Verletzten stattgefunden.
+Meine sehr geehrten Damen und Herren,
+diese Sicherheitslage hat sich durch die sogenannte Flüchtlingskrise natürlich weiter verschärft. Unter
+den Flüchtlingen konnten von den Sicherheitsbehörden mehr als zwanzig Personen als IS-Terroristen
+identifiziert werden, die mit dem Ziel nach Europa entsandt worden waren, Terroranschläge zu begehen.
+Es gab Festnahmen, in Salzburg, Schwerin, Isernhagen, Attendorn und anderswo. Darüber hinaus müssen
+wir davon ausgehen, dass eine unbekannte Zahl von IS-Angehörigen mit dem Flüchtlingsstrom nach
+Deutschland kam, auch wenn ie keinen konkreten Anschlagsauftrag hatten, sondern vielleicht vor dem
+Zusammenbruch des IS-Regimes nur Zuflucht suchen wollten. Aber auch diese Personen können
+gefährlich sein.
+Die Migrationslage hatte mir mit Blick auf die Terrorabwehr grosse Kopfschmerzen bereitet. Wir wussten
+nicht, wer zu uns gekommen ist. Die Asylsuchenden werden zwar registriert, aber jedenfalls nach
+Mitteilung der Bundespolizei besitzen rund 70 Prozent von ihnen keinen gültigen Pass, so dass die
+Registrierung aufgrund von eigenen Angaben stattfindet. Sie können sich vorstellen, dass die
+Sicherheitsdienste machtlos sind, wenn sie erfahren, dass namentlich bekannte Terrorverdächtige
+
+
+-----
+
+einreisen wollen oder sich schon in Deutschland aufhalten, diese Personen aber nicht festgestellt werden
+können, weil sie unter einem anderen, einem frei erfundenen Namen bereits eingereist sind.
+
+**[Migration]**
+Damit bin ich beim Thema Migration angekommen. Wenn ich über Sicherheitspolitik spreche, kann ich
+nicht umhin, über die Migrationslage zu sprechen. An dieser Stelle möchte ich noch etwas über meinen
+beruflichen Hintergrund sagen, damit Sie das, was ich im Folgenden sagen werde, besser einordnen
+können, und Sie nicht denken, ich sei ein ausländerrechtlicher Dilettant oder Stümper.
+Als junger Jurist habe ich ab 1991 im Bundesinnenministerium an der Änderung des Artikels 16 Abs. 2
+bzw. Neuschaffung von Art. 16a GG mitgewirkt. Ich hatte weiter mitgewirkt an der darauf fussenden
+Neugestaltung des Asylrechts. Ich war befasst mit dem Dubliner Übereinkommen, hatte Schengen- und
+EU-Ratsarbeitsgruppen geleitet, hatte Rückübernahmeabkommen mit anderen Staaten ausverhandelt,
+war Leiter der Projektgruppe Zuwanderungsrecht unter Otto Schily, die das noch geltende Ausländer- und
+Integrationsrecht formulierte. Hatte das Integrationskonzept bestehend aus Sprach- und
+
+Orientierungskursen Anfang der 2000er Jahre entwickelt. War Referatsleiter Ausländerrecht. Habe in
+Brüssel Asylrichtlinien ausverhandelt. Habe über die Rechtsstellung des Asylbewerbers im Völkerrecht
+promoviert. Bin Kommentator des Asylgrundrechts in einem Grundgesetzkommentar, Mitherausgeber
+und Mitkommentator des Handbuchs zum Zuwanderungsrecht, Mitherausgeber und Kommentator eines
+Kommentars zum Staatsangehörigkeitsrecht, einer der ersten, der Vorlesungen zum Ausländerrecht und
+zum Europäischen Einwanderungsrecht an einer deutschen Universität gehalten hat.
+Sie können also davon ausgehen, dass ich weiss, wovon ich rede.
+Ich vermute, Sie wissen nicht wie die erste Vorschrift des deutschen Ausländerrechts lautet. Ich meine § 1
+Abs. 1 AufenthG. Diese Vorschrift enthält die Zielbestimmung des Ausländerrechts. Ich kann mich sehr
+gut an die Vorschrift erinnern, weil wir seinerzeit lange im Vermittlungsverfahren mit CDU/ CSU, die
+damals in Opposition waren, darüber verhandelten:
+„Das Gesetz dient der Steuerung und Begrenzung des Zuzugs von Ausländern in die Bundesrepublik
+Deutschland. Es ermöglicht und gestaltet Zuwanderung unter Berücksichtigung der Aufnahme- und
+Integrationsfähigkeit sowie der wirtschaftlichen und arbeitsmarktpolitischen Interessen der
+
+Bundesrepublik Deutschland.“
+
+
+**In der Allgemeinen Verwaltungsvorschrift zu dem Gesetz hatten wir unter 1.1.1 geschrieben:**
+
+
+**„Vorrangiges Ziel ist die Steuerung und Begrenzung der Zuwanderung.“**
+
+
+Vielleicht können sie sich vorstellen, wie ich mich als Mitautor des Gesetzes fühlte, als im Herbst 2015
+Tausende Menschen täglich einfach nach Deutschland einreisen durften. Es ist mir eiskalt den Rücken
+heruntergelaufen. Nachdem im Herbst 2015 allen Ernstes bestritten wurde, dass Grenzzurückweisungen
+rechtlich möglich seien, bin ich froh, dass die Politik dies inzwischen nicht mehr so sieht. Im
+Ergebnispapier des Werkstattgespräches der Union vom 11. Februar 2019 heisst es, dass „in der letzten
+Konsequenz, wenn notwendig auch [Entscheidungen] im Hinblick auf Kontrollen und Zurückweisungen
+an den deutschen Grenzen“ möglich sind.
+Ausländerrecht ist Ordnungsrecht. Es dient dem Schutz der deutschen Bevölkerung und der Menschen,
+die in Deutschland leben. In dem dadurch gezogenen Rahmen nehmen wir auch unsere völkerrechtlichen
+Verpflichtungen, insbesondere aus der Genfer Flüchtlingskonvention, wahr. Ich nehme mit Sorge zur
+Kenntnis, dass von Flüchtlingen Straftaten, teilweise sogar schwere und schwerste Straftaten begangen
+werden und dass in der Vergangenheit Terroranschläge in Deutschland von ihnen geplant und
+durchgeführt wurden. Das Ausländerrecht hat die Aufgabe, die Menschen in Deutschland davor zu
+bewahren.
+Ich verstehe die Sichtweise vieler Berufspolitiker auch aus unserer CDU/CSU, die sagen, wir dürfen nicht
+mehr nur nach hinten schauen, auf die Flüchtlingskrise von 2015, sondern wir müssen nach vorne sehen.
+Dies ist prinzipiell richtig, aber die Fehler von 2015 wirken nicht nur fort, sondern sie werden jeden Tag
+wiederholt. Natürlich nicht in dem Umfang. Aber jeden Tag kommen weiterhin 500 bis 700 Asylsuchende
+über Drittstaaten nach Deutschland. In Summe kam im letzten Jahr allein durch die Zahl der
+Asylsuchenden die Bevölkerung einer Grossstadt mit rund 200 000 Einwohnern hinzu. Die Personen, die
+im Rahmen des Familiennachzugs, aus anderen humanitären Gründen oder schlicht illegal einreisten,
+sind davon noch nicht erfasst.
+Ich kann mich noch gut erinnern, als wir mit dem damaligen Innenminister Otto Schily die
+Integrationsregelungen im deutschen Zuwanderungsgesetz geschaffen haben. Erstmalig in der deutschen
+Geschichte gab es derartige Regelungen für Ausländer. Ansprüche auf Teilnahme und moderate
+Verpflichtungen. Ich kann mich noch gut daran erinnern, als wir die Integrationskursverordnung
+vorbereiteten und als ich persönlich in Sprachkurse ging. Uns war damals, Anfang der 2000er Jahre,
+
+
+-----
+
+schon klar, dass wir mit Blick auf die grossen Probleme bei der Integration von Ausländern in die
+deutsche Gesellschaft nur ein kleines Instrument zur Integration geschaffen haben. Das massgebende
+Instrument liegt in den Händen der Zuwanderer: ihre Integrationsbereitschaft. Wenn sie sich nicht
+integrieren wollen, scheitern alle gut gemeinten Rezepte und Bemühungen der deutschen Institutionen.
+Wir sahen damals schon unter Rot-Grün das Problem, dass Asylsuchende nach Deutschland kamen und
+sich nicht in die deutsche Gesellschaft inte-grieren wollten, sondern in eine Parallelgesellschaft. Wir sahen
+damals schon, dass die Integrationssprachkurse dazu führen, dass Ausländer die deutsche Sprache
+sprechen lernen, aber diese Kurse nicht zwingend zu einer Integration in die deutschen
+Lebensverhältnisse führen. Die Terroranschläge in Paris und Brüssel haben gezeigt, dass fliessende
+französische Sprachkenntnisse nicht immer etwas über eine erfolgreiche Integration aussagen. Auf Grund
+meiner Erfahrungen halte ich es für wenig wahrscheinlich (ehrlich gesagt: für abwegig), dass wir die
+grosse Zahl der Menschen, die in den letzten Jahren als Asylsuchende zu uns kamen, vollständig oder zu
+einem überwiegenden Teil werden integrieren können.
+Ich begrüsse, dass sich die CDU in einem Werkstattgespräch mit den Themen Migration, Sicherheit und
+Integration beschäftigt hat. Das Ergebnispapier, das mir vorliegt, enthält eine ganze Reihe von
+Verbesserungsvorschlägen. Sehr gut finde ich z.B., dass das Geflecht der Zuständigkeiten zwischen Bund,
+Ländern und Kommunen im Bereich des Ausländerrechtsvollzuges entwirrt werden soll. Wenn dies
+gelänge, wäre es ein wichtiger Schritt. Auch die Feststellung, dass Zurückweisungen an den deutschen
+Grenzen in letzter Konsequenz möglich sein sollen, ist rechtlich geboten und wichtig. Gleichwohl, und das
+wird sie nicht verwundern, befriedigt mich das Papier nicht. Es beantwortet aus meiner Sicht wichtige
+Fragen nicht. Wie schaffen wir es z. B., dass die rund 230 000 ausreisepflichtigen Ausländer in
+Deutschland abgeschoben werden. Das Ergebnispapier spricht davon, dass Ausweisung straffällig
+gewordener Asylbewerber unter erleichterten Bedingungen möglich sein muss. Aber das eigentliche
+Problem ist nicht die Ausweisung, sondern die Abschiebung.
+
+**[Ausblick]**
+Meine sehr geehrten Damen und Herren,
+das ist aus meiner Sicht in sehr groben Zügen geschildert die Sicherheitslage einschliesslich Migration.
+Wie sieht die Lage z. B. in fünf oder zehn Jahren aus, wenn wir nichts verändern, wenn wir uns nicht
+ändern, wird sich einiges ändern und das nicht zu unserem Vorteil.
+Mit Blick auf die aussenpolitische Sicherheitslage habe ich den Eindruck, dass der europäische und
+deutsche Einfluss in der Welt in den nächsten fünf bis zehn Jahren weiter abnehmen wird, wenn sich die
+EU nicht wieder fängt und wenn die EU nicht in der Lage ist, sich neben den Machtzentren USA, Russland
+und China souverän behaupten zu können. Mit Blick auf die hohe Zahl an jungen muslimischen Männern,
+die nach Deutschland gekommen sind und bei denen jetzt schon festgestellt werden kann, dass sie eine
+Integration in islamistische oder salafistische Gemeinschaften anstreben, muss auch in Zukunft mit
+weiteren schweren Terroranschlägen in Westeuropa und damit auch in Deutschland gerechnet werden.
+Der geplante Rizinanschlag, von dem ich sprach, sollte uns beunruhigen. Der IS ist immer noch aktiv,
+auch wenn er sein Herrschaftsgebiet verloren hat. Er agiert über den Cyberraum und über Menschen, die
+längst schon bei uns sind. Die Migrationslage haben wir aus meiner Sicht noch nicht im Griff, da täglich
+immer noch Hunderte Asylsuchende aus sicheren Drittstaaten zu uns kommen, die EUAussengrenzkontrolle gescheitert ist und wir kein Rezept für die Integration der Menschen haben. Die
+Lage ist nicht gottgegeben, und wir müssen uns nicht einfach schicksalsgläubig in sie fügen. Ich bin der
+Auffassung, dass man gestaltenden Einfluss nehmen kann, sowohl hinsichtlich unserer Lage nach aussen
+als auch mit Blick auf die Fragen im Bereich der inneren Sicherheit und der Migration. Man muss nur
+den Willen aufbringen.
+
+**[Stabilität]**
+Und das führt zu der zweiten Herausforderung, die ich Ihnen heute vorstellen möchte, nämlich die
+Stabilität unserer Demokratie. Die Migrationsfrage ist zwar eine wichtige Frage mit Blick auf die Zukunft
+und die Funktionsfähigkeit unserer Gesellschaft sowie mit Blick auf das Miteinander in der EU. Aber die
+Migrationsfrage ist für mich nicht die Mutter aller Probleme. Sie ist zu lösen, wenn der politische Wille da
+ist. Der fehlende politische Wille ist die Mutter aller Probleme!
+Für mich ist die Stabilität unserer Demokratie die allergrösste Sorge und die allergrösste Hoffnung. Ich
+bin der festen Überzeugung, dass wir die von mir angesprochenen Punkte und noch viele
+Herausforderungen und Probleme mehr bewältigen können, vielleicht sogar leicht lösen können, wenn
+unsere Demokratie stabil ist und wir uns einig sind. Sicherheit und Stabilität sind keine
+Selbstverständlichkeit, das haben wir mit Blick auf Terrorismus und illegale Migration zur Kenntnis
+nehmen müssen. Aber was grundlegende Voraussetzung ist, ist der Wille zum Handeln, ein
+gesellschaftlicher Konsens über die Notwendigkeit des Handelns, ein gesellschaftlicher Konsens über
+demokratisches Handeln und über den demokratischen Umgang miteinander.
+
+
+-----
+
+Hier sehe ich eine langsam fortschreitende Erosion unserer Demokratie. Aber nicht nur in Deutschland,
+sondern in vielen westlichen Demokratien. Vor rund zwanzig Jahren sprach man erstmals von
+Politikverdrossenheit. Das, was ich heute wahrnehme, ist mehr, ist vielleicht die Folge, dass die
+Politikverdrossenheit von damals nicht ernst genug genommen wurde. Ich möchte hierzu sechs Punkte
+ansprechen, die mir aufgefallen sind und uns beunruhigen sollten. Natürlich ist die Aufzählung nicht
+abschliessend, jedem von Ihnen fallen bei diesem Thema vermutlich weitere Punkte ein.
+Die Radikalisierung und Polarisierung der Gesellschaft. Einerseits ein wachsender Extremismus an allen
+Rändern und die Gefahr, dass Menschen aus der Mitte der Gesellschaft sich von der Demokratie
+abwenden und sich radikalisieren. Andererseits eine Rigorosität im politischen Mainstream gegenüber
+anderen Meinungen, die den anderen als Feind behandelt.
+Ich nehme wahr, dass die berechtigten Sorgen vieler Menschen gerade in den ostdeutschen
+Bundesländern von vielen Berufspolitikern nicht wahrgenommen werden oder dass auf sie nicht reagiert
+wird. Es geht nicht nur darum, mit den Menschen zu reden und zu versuchen, sie vom eigenen
+Standpunkt zu überzeugen, sondern es geht in einer Demokratie auch darum, den Willen der Wähler in
+praktische Politik zu verwandeln. Ihr Wille geschehe! Die allermeisten politisch denkenden Menschen sind
+nicht blöde und wollen auch nicht für blöde verkauft werden. Viele haben Angst, ihre Meinung frei zu
+äussern, weil sie nicht in die rechte Ecke gestellt werden wollen. Wenn Bürger – und ich rede nicht von
+Extremisten – den Eindruck haben, sie können in unserer Demokratie nicht mehr ihre Meinung frei
+äussern, weil ihre Meinung tabuiisiert ist, haben wir ein grundlegendes Demokratieproblem.
+
+**Die Medien.**
+Die Medien sind in einer demokratischen Gesellschaft unverzichtbar für die Meinungsbildung. Die
+Menschen müssen eine belastbare Tatsachengrundlage haben, auf Grund der sie ihre politischen
+Entscheidungen treffen können, und sie brauchen eine kompetente Einordnung und Bewertung von
+Sachzusammenhängen. Das ist keine politische Liebeserklärung gegenüber Medien. Es ist einfach die
+Feststellung, dass eine Demokratie nur dann funktionieren kann, wenn der Souverän weiss, worüber er
+entscheidet und was seine Entscheidungen für Folgen haben können. Wir haben in Deutschland ein
+Medien-Problem und eine Medienkrise, aber vor allem haben wir eine Vertrauenskrise in die Medien. Und
+das aus gutem Grund, und das nicht erst seit dem Fall Relotius. Es besteht bei vielen Menschen der
+Eindruck, dass bestimmte Tatsachen von deutschen Medien nicht oder in manipulativer Weise verbreitet
+werden. Ein mit mir befreundeter Professor hatte mir vor kurzem gesagt, er lese nur noch die Neue
+Zürcher Zeitung, das sei für ihn so etwas wie „Westfernsehen“.
+Ich sehe eine darauf auch zurückzuführende Entfremdung von Politik und Medien vom Wahlvolk, dem
+Souverän. Nicht das Wahlvolk hat sich von der Politik entfremdet. Bezeichnend war dafür die Haltung in
+der Flüchtlingskrise 2015/2016 von Politik und Medien einerseits und einem Teil der Bevölkerung
+andererseits, der sich weder im Parlament noch in den Medien repräsentiert sah. Man könnte fast von
+Parallelgesellschaft sprechen.
+Aus meiner Sicht hatten wir Deutschen schon immer ein Problem mit politischem Idealismus und mit
+politischer Weltfremdheit. Christian Kullmann, der Vorstandsvorsitzende des grossen DAX-Unternehmens
+Evonik, hat das mit Blick auf die deutsche Klima- und Energiepolitik in seiner Rede vor dem
+Innovationskongress im Oktober sehr schön auf den Punkt gebracht: „Was wir zurzeit in unserem Land
+erleben, das ist die Wiederkehr der deutschen Romantik. Diese philosophische Strömung, immerhin 200
+Jahre alt, erlebt eine wundervolle Wiederbelebung in Deutschland: in einer modernen global vernetzten
+Gesellschaft des 21. Jahrhunderts. Das Bewusstsein vieler Menschen in unserem Land ist bei den
+Anstrengungen zur Rettung des Klimas gerade davon tief durchdrungen.
+Die deutsche Romantik entstand im 19 Jahrhundert als Gegenbewegung zur Philosophie der Aufklärung.
+Und das Fundament der Aufklärung ist die Vernunft. Auch ich träume von einer gesünderen Welt. Doch
+bei alledem bin ich auch dafür, dass wir vernünftig handeln. Poesie gehört nicht in die Realität der
+Zukunftsgestaltung einer Industrienation – und sei sie noch so romantisch.“
+Romantik, Idealismus, Weltfremdheit finden wir nicht nur bei Klimapolitikern.
+Und ich möchte als letzten Punkt das Problem der Loyalität in der parlamentarischen Demokratie
+ansprechen. Sind wir der Partei oder dem Souverän gegenüber loyal? Ich möchte Ihnen das anhand von
+zwei Beispielen schildern:
+
+**1. Beispiel:**
+Am vergangenen Montag ist ein Buch des früheren Innenministers de Maizière erschienen. Ich möchte
+betonen, ich schätze ihn persönlich ausserordentlich. Wir haben gut zusammen gearbeitet. Ich habe
+natürlich mit grossem Interesse seine Ausführungen zum Herbst 2015 und zur Frage der Zurückweisung
+von Asylsuchenden an deutschen Grenzen gelesen. Er schreibt in dem Buch, dass die Zurückweisung von
+Asylsuchenden rechtlich möglich gewesen wäre. Er wies allerdings darauf hin, dass aus seiner Sicht die
+
+
+-----
+
+Behörden nicht ausreichend darauf eingestellt waren und – jetzt kommt der Punkt, der mich beschäftigt –
+er schreibt: „Diese Bilder hätten wir nicht ausgehalten“.
+Diese Aussage zeigt ein Grundproblem unserer heutigen parlamentarischen Demokratie auf: wir hätten
+diese Bilder nicht ausgehalten und deshalb haben wir es nicht gemacht. Es ist uns allen klar, was dies
+aussagt. Wir als Bundesregierung, wir als CDU halten diese Bilder mit Blick auf Meinungsumfragen und
+die nächsten Wahlen nicht aus.
+Mich hat diese Aussage sehr enttäuscht, weil ich als Beamter ein anderes Loyalitätsempfinden habe. Ich
+musste auch nicht auf Wahlen schauen, wie Berufspolitiker. Ich fühle mich mehr dem Gesetz und dem
+deutschen Volk verpflichtet als der Regierung oder der eigenen Partei. Es ist eine Grundfrage der Loyalität
+und des Loyalitätsverständnis. Wem gegenüber bin ich loyal? Der Partei, dem Wahlvolk, der
+Bundeskanzlerin? Als junger Beamter lernte ich von einem meiner Vorgesetzten (im Übrigen ein
+überzeugter Sozialdemokrat), dass der Beamte eine mehrfache Loyalitätspflicht zu erfüllen hat:
+gegenüber seinem Vorgesetzten und der Bundesregierung, entsprechend seinem Diensteid gegenüber
+der Verfassung und den Gesetzen und sich selbst gegenüber. Das Loyalitätsband gegenüber den
+Vorgesetzten ist das dünnste. Bei vielen der derzeitigen Politiker habe ich dagegen ein
+personenbezogenes und parteibezogenes Loyalitätsempfinden kennengelernt. Bei Politikern, die es
+gewohnt waren, ausschliesslich in persönlichen und parteibezogenen Loyalitäten zu denken, die nicht
+verstehen, dass Beamte, auch wenn sie lange Jahre der CDU angehören, widersprechen, dass Beamte es
+wagen zu sagen: das, was Sie wollen, dürfen sie nicht und sie dürfen es auch nicht wollen. Aus meiner
+Sicht bewährt sich der Rechtsstaat erst dann, wenn es nicht nur um das Ausschütten von Geld geht,
+sondern wenn auch unangenehme Entscheidungen getroffen werden müssen, die schlechte Bilder und
+schlechte Presse mit sich bringen.
+
+**2. Beispiel: Ich hatte in meiner Zeit als Präsident des BfV rund 240 überwiegend bilaterale Gespräche**
+mit Politikern geführt. Zu einem grossen Teil in der Zeit nach dem Herbst 2015. Ich dachte mir, es kann
+doch nicht sein, dass nur wir in der Sicherheitscommunity Bedenken hinsichtlich der massenhaften
+Einreise von Asylsuchenden haben. Ich hatte mit Fraktionsvorsitzenden, hochrangigen Politikern und mit
+einzelnen Ministern darüber gesprochen. Ich fand drei Punkte aus den Gesprächen ausgesprochen
+interessant:
+Sie teilten weitgehend meine Haltung, dass der Zuzug auf Dauer nicht zu bewältigen ist. Der eine oder
+andere fügte zwar an, es sei nur eine temporäre Erscheinung, und er hoffte auf einen politischen
+Kurswechsel.
+Das, was sie mir unter vier Augen oder in ganz kleiner Runde sagten, unterschied sich vollkommen von
+dem, was sie in Interviews, Talk-Shows oder (wie mir später gesagt wurde) in Fraktionssitzungen von sich
+gaben.
+
+**Und das fand ich besonders interessant:**
+Ein sozialdemokratischer Spitzenpolitiker sagte mir sinngemäss: Die SPD habe mit der Agenda 2010 die
+Arbeit der CDU gemacht. Das habe ihr niemand gedankt. Im Gegenteil. Die Agenda 2010 hätte die Partei
+gespalten und seitdem gebe es eine erstarkte Partei Die Linke, die die SPD nicht mehr loswürde. Die
+Migrationspolitik sei ein Problem, das die CDU geschaffen habe und selber lösen müsse. Man könne von
+der SPD nicht noch einmal erwarten, dass sie jetzt die CDU rechts überholt und ihre Arbeit mache.
+Interessant fand ich auch, was mir ein CDU-Bundesminister zwei Jahre nach der Flüchtlingskrise von
+2015 sagte. Es habe im Oktober 2015 massive Unruhe in der Bundestagsfraktion gegeben. Es war klar,
+dass diese politische Entscheidung falsch war. Er hatte damals gleichwohl die Kanzlerin unterstützt, weil
+dies ansonsten dazu geführt hätte, dass die Existenz der Partei auseinandergebrochen wäre. Das wäre
+das Ende der CDU gewesen.
+
+Meine sehr geehrten Damen und Herren,
+ich bin der Meinung, dass die Loyalität gegenüber dem Staat, dem deutschen Volk und gegenüber dem
+Recht weiter gehen sollte, als gegenüber der eigenen Partei.
+
+**[Werteunion]**
+Ich bin im Dezember 1978 der Jungen Union beigetreten. Seit 1987 bin ich Mitglied der CDU. Ich bin
+damals nicht der Partei beigetreten, weil ich für die Abschaffung des Braunkohleabbaus war, ich trat der
+Partei auch nicht bei, weil ich damals für die Abschaffung der Wehrpflicht war, auch bin ich der Partei
+nicht deshalb beigetreten, weil ich in der Flüchtlingspolitik gegen eine Obergrenze bin, ich bin ihr nicht
+beigetreten, weil ich die Energiewende will, auch nicht wegen des Mindestlohns, ich bin ihr aber auch
+nicht wegen Helmut Kohl oder Angela Merkel beigetreten, die vermutlich zu dem Zeitpunkt sich noch
+nicht einmal vorstellen konnte, in die CDU einzutreten. All das, was heute Politik der CDU ist, waren
+damals nicht die Werte der CDU. Ich bin eingetreten wegen bestimmter Werte. Und das waren und sind
+
+
+-----
+
+keine konservativen oder rechten Werte. Und das waren auch die Werte der CDU Deutschlands. Ich habe
+leider in den vergangenen Jahren wahrnehmen müssen, dass viele dieser Werte fallen gelassen wurden
+und – dass SPD und Grüne thematisch von der Parteiführung der CDU weitestgehend enteignet wurden.
+Dies hat zwar dazu geführt, dass die Union immer koalitionsfähig blieb und die SPD wahrscheinlich auf
+absehbare Zeit sich keine Gedanken mehr über den Kanzlerkandidaten, sondern über die
+Fünfprozentklausel machen muss. Ich nehme wahr, dass viele Funktionäre in der CDU eine eigene
+Agenda haben, vielleicht eine Karriere-Agenda, die nicht immer identisch ist mit den Wertvorstellungen
+und Forderungen der Mitglieder und mit den Problemen vieler Menschen in diesem Land. Ich sehe die
+Aufgabe der Werteunion darin, dass sie als Graswurzelbewegung die Funktionäre der Partei immer wieder
+daran erinnert, dass es nicht Ziel der Partei sein darf, dass die Partei um jeden Preis koalitionsfähig ist
+und Teil der Bundesregierung ist, sondern dass eine Politik im Sinne ihrer Mitglieder gestaltet wird. Ein
+Ende der sog. grosse Koalition und Neuwahlen wären für Deutschland und die CDU besser als ein
+weiteres Verschenken von christdemokratischen Werten. Die Partei ist nicht das Eigentum der
+Funktionäre. Gerade deshalb ist die Werteunion wichtig.
+
+**[Abschluss]**
+Meine sehr geehrten Damen und Herren,
+der bekannte Journalist Claus Strunz hat in seinem neuen Buch „Geht’s noch Deutschland?“ einen
+interessanten Vergleich zur aktuellen Lage Deutschlands angestellt. Er hat es mit einem
+Passagierflugzeug verglichen, das auf dem Weg von Deutschland nach Amerika ist. Ich leihe mir seinen
+Vergleich aus und koloriere ihn noch etwas.
+Der Flug von Frankfurt nach New York dauert sechs Stunden, aber man hat nur Treibstoff für vier
+Stunden getankt. Nach einer Stunde spricht sich das bei der Besatzung herum, dann auch bei den
+Passagieren. Einige werden unruhig. Der Pilot sagt, es gibt überhaupt keinen Anlass zur Unruhe. Wir
+fliegen mit einem der modernsten Flugzeuge, es ist besonders treibstoffsparend, wir können mit weniger
+Treibstoff weiter kommen als früher, wir haben ausgezeichneten Rückenwind, wir schaffen es. Und als die
+Unruhe nach drei Stunden lauter wird, sagt er: bleiben Sie entspannt. Es ist doch nichts passiert: Das
+Boardprogramm hat die gleiche Qualität wie immer, auch das Catering ist wie gewohnt hervorragend,
+warum regen sie sich denn eigentlich auf?
+Meine sehr geehrten Damen und Herren,
+die besorgten Passagiere sind weder konservativ noch rechts, noch Verschwörungstheoretiker. Sie wollen
+nur, dass sie gesund am Ziel ankommen.
+Ich habe den Eindruck, Sie haben mir aufmerksam zugehört. Dafür danke ich Ihnen.”
+Quelle: https://vera-lengsfeld.de/2019/02/18/die-fehler-von-2015-werden-jeden-tag-wiederholt/
+
+### München. Stehende Ovationen für Merkel. Für was denn? Von wem denn?
+
+18. Februar 2019 um 10:53 Ein Artikel von: Albrecht Müller
+
+Meine beiden Sonntagszeitungen hatten gestern den identischen Aufmacher: “Merkel rechnet mit Trump
+ab”. Das ist populär und es ist berechtigt. Aber Merkel hat es bei entscheidenden Sachfragen gar nicht
+getan. Sie blieb voll auf NATO-Linie und mit wenigen Ausnahmen auch auf US-Linie. Merkel wurde in
+München gefeiert. Wenn man sich ihre Rede anschaut, dann muss man sich fragen, warum darauf so
+begeistert reagiert wird. Die Erklärung ist relativ einfach: in München waren jene versammelt, die wie
+
+
+-----
+
+Merkel und von der Leyen auf Militär und NATO setzen. Deren Vorlieben ist Merkel gerecht geworden.
+**Albrecht Müller.**
+
+Darüber hinaus erreichte sie ein paar fortschrittlich denkende Kreise mit Bemerkungen zur
+Entwicklungspolitik und zur multilateralen Zusammenarbeit. Aber das waren nicht die Kernbotschaften.
+Das überwältigende Echo in den deutschen Medien ist in der Summe eher ein Armutszeugnis für diese
+Medien als ein Beleg für die Grossartigkeit dieser Rede der deutschen Bundeskanzlerin.
+Es gibt eine Langfassung der Rede, die Sie hier finden können.
+Und es gibt eine Kurzfassung mit Auszügen, die mit dem Absender Bundeskanzlerin ins Netz gestellt
+wurde. Diese Fassung gebe ich unten wieder und versehe einige Passagen mit Ziffern in Klammern. Diese
+Passagen werden im Folgenden kommentiert:
+
+1. Beim Thema “Multilateralismus” fällt der deutschen Bundeskanzlerin die NATO ein. Sie
+
+behauptet, wir lebten in stürmischen Zeiten und bräuchten die NATO als Stabilitätsanker. Meint
+Merkel mit “stürmischen Zeiten” die Attacken von Trump und seinem Umfeld auf die NATO und
+die angebliche Infragestellung der NATO? Das würde zu diesem hochgespielten Thema passen.
+Die USA und selbst ihr Präsident haben die NATO nie infrage gestellt. Das ist ein künstlich
+hochgezogenes Thema. Wenn man mehr Geld für Militär will, wenn man mehr Gefügigkeit der
+Alliierten will, dann tut man halt mal so, als würde man die NATO infrage stellen. Dann jammern
+sie alle und sind bereit zu zahlen.
+
+2. Merkel stilisiert die NATO zur Wertegemeinschaft, wie üblich. Das ist eine ideologische
+
+Überhöhung, die mit der Realität dieses Militärbündnisses und seiner Taten nur wenig gemein
+hat.
+
+3. Interessant bis läppisch ist der Beleg für die “grosse Attraktivität”, über die die NATO angeblich
+
+verfüge: Weil der ursprünglich Mazedonien genannte Teilstaat des ehemaligen Jugoslawien in die
+NATO wollte, war seine Führung bereit, sich um des Friedens mit Griechenland willen in
+Nordmazedonien umbenennen zu lassen. Wenn man weiss, wie die einzelnen Völker Ost- und
+Südosteuropas in die NATO gelockt worden sind, dann kann man über solche Bemerkungen
+wirklich nur schallend lachen.
+
+4. Unter der Überschrift “Verhältnis zu Russland” erzählt Angela Merkel eine tolle Geschichte über
+
+die Zeit nach dem Mauerfall: danach ist Russland der einzige Erbe des früheren “Antagonisten”
+im Kalten Krieg. Wieso eigentlich? Gehörten Polen und Tschechien und Rumänien und die
+anderen Ostblockstaaten nicht auch zum Warschauer Pakt?
+
+5. Dann berichtet Merkel davon, nach dem Mauerfall hätte es die Hoffnung gegeben, dass wir zu
+
+einem besseren Miteinander kommen könnten. Sie beruft sich dabei auf Gespräche zwischen
+Hillary Clinton und Lawrow im Jahre 2011 und tut dann so, als sei die neue Konfrontation eine
+Folge dessen, was „in den letzten Jahren passiert ist”, gemeint ist die Ukraine-Krise und die
+Übernahme der Krim durch Russland im Jahre 2014. – Das ist die übliche Verkürzung einer
+Erzählung. Was nicht in den Kram passt, wird weggelassen, so zum Beispiel die Ausdehnung der
+NATO schon in den neunziger Jahren und danach weiter. Merkel schlappert den JugoslawienKrieg. Sie macht vergessen, dass Russlands Präsident noch 2001 im Deutschen Bundestag die
+grosse Zusammenarbeit angeboten hat und dass er schon im Jahr 2007 (auch) in München
+signalisierte, wie enttäuscht Russland ist, weil der Westen die ausgestreckte Hand nicht ergriffen
+hat. (Siehe dazu meinen Beitrag vom 8. Februar 2019: “In 30 Jahren die Aussen- und
+Sicherheitspolitik von den Beinen auf den Kopf gestellt“)
+
+6. Unter der Überschrift “Internationale Rüstungskontrolle” kommt Merkel auf die Kündigung des
+
+INF-Vertrages zu sprechen. Auch hier macht sie sich die US-Version zu eigen: “Nach jahrelangen
+Verletzungen durch Russland dieser Vertragsbedingungen ist diese Kündigung unabwendbar
+gewesen.” Der ehemalige Generalinspekteur der Bundeswehr und Vorsitzende des NATOMilitärausschusses Harald Kujat hat in einem Interview mit dem Deutschlandfunk am
+vergangenen Samstag beschrieben, wie leichtfertig Deutschland mit dem INF-Vertrag
+umgegangen ist. Es hat, obwohl von Merkel angekündigt, die angeblichen Verletzungen nicht
+geprüft und nicht zum Thema von Verhandlungen gemacht. Er verweist weiter darauf, dass der
+Westen die Möglichkeiten des NATO-Russland-Rates nicht genutzt und sogar hat einschlafen
+lassen.
+
+7. Unter der Überschrift Verteidigungsausgaben “eiert” die Bundeskanzlerin herum, verbunden mit
+
+der immanenten Zustimmung auch zur prozentualen Erhöhung der Militärausgaben. Sie hätte ja
+auch feststellen können, dass wir sinnvollerweise besser abrüsten. Das wäre mutig gewesen. – Die
+enthaltenen Bemerkungen zu Militärausgaben und Rezession sind unverständlich.
+
+
+-----
+
+8. Merkel feiert die Präsenz der Bundeswehr in den baltischen Staaten und ihre Rolle als NATO
+Speerspitze. Sie tut dies ohne jegliche Differenzierung und ohne jegliche Sensibilität für die
+Problematik der Präsenz deutscher Soldaten an der russischen Grenze.
+
+9. Dann begrüsst sie die Tätigkeit Deutschlands auch ausserhalb der NATO. Sie erinnert an den
+
+Einsatz in Mali und nennt die Beteiligung an Militäreinsätzen dieser Art einen “Riesenschritt” –
+auch wenn wir das “kulturell nicht eingeübt” hätten “wie zum Beispiel bei unseren französischen
+Freunden”. Das ist eine kaum verdeckte Drohung, sich an den nach-kolonialen Kriegen der
+Franzosen und Briten beteiligen zu wollen.
+
+10. Unter der Überschrift “Flucht und Migration” machte Merkel den Versuch, das Flüchtlingsthema
+
+und die Flüchtlingsursachen auf die Situation in Syrien, die sie einen Bürgerkrieg nennt,
+einzuengen. Das ist der typische westliche Versuch, von den Flüchtlingsursachen “Kriege des
+Westens” in Libyen, im Irak, in Afghanistan und den Folgen der westlichen Wirtschafts- und AgrarPolitik in Afrika abzulenken. Und in Bezug auf Syrien hat die Bundeskanzlerin natürlich auch nicht
+präsent bzw. will nicht wahrhaben, dass der dortige Konflikt ganz wesentlich vom Westen und
+Freunden des Westens in der arabischen Welt angedreht und genutzt worden ist.
+
+11. Merkel verteidigt das Abkommen mit dem Iran, aber sie übernimmt ansonsten die üblichen
+
+Beschuldigungen des Iran. “Ich sehe den Iran im Jemen … Und in Syrien” meint sie anklagend.
+Die anderen, die westlichen Kriegstreiber, sieht sie nicht.
+
+12. Zu guter Letzt: die Klagen der USA über deutsche Autoexporte kontert die deutsche
+
+Bundeskanzlerin recht clever. Das ist aber auch so ziemlich das Einzige, was einem kritischen
+Menschen jenseits des verbalen Eintretens für den Multilateralismus an dieser Rede in München
+wirklich gefallen kann.
+
+**Hier nun die Rede der Bundeskanzlerin Merkel in München am 16. Februar 2019 (Originalwiedergabe**
+**einer Veröffentlichung der Bundeskanzlerin)**
+KANZLERIN BEI DER 55. MÜNCHNER SICHERHEITSKONFERENZ
+Merkel: “Nur wir alle zusammen.”
+
+**“The Great Puzzle: Who Will Pick Up the Pieces?” – wer setzt die Teile des grossen Puzzle zusammen –**
+**lautet das Leitmotiv der diesjährigen Münchner Sicherheitskonferenz. Für die Kanzlerin ist die Antwort**
+**darauf klar: “Nur wir alle zusammen.” Merkel warb in ihrer Rede für die Weiterentwicklung**
+**multilateraler Strukturen.**
+**Auszüge aus der Rede von Bundeskanzlerin Angela Merkel bei der Münchner Sicherheitskonferenz:**
+**Multilateralismus (1)**
+
+“Ja, wir brauchen die Nato als Stabilitätsanker in stürmischen Zeiten. Wir brauchen sie als
+Wertegemeinschaft (2), denn wir sollten nie vergessen, dass wir die Nato nicht nur als Militärbündnis
+gegründet haben, sondern als eine Wertegemeinschaft, in der Menschenrechte, Demokratie und
+Rechtsstaatlichkeit die Richtschnur für das gemeinsame Handeln sind.
+Dass diese Nato heute immer noch über eine grosse Attraktivität (3) verfügt, haben wir in den letzten
+Monaten gesehen, als darum gerungen wurde, ob auch Nordmazedonien, wie wir es jetzt glücklicherweise
+alle gemeinsam nennen können, Mitglied der Nato werden kann.”
+
+**Verhältnis zu Russland (4)**
+“Russland war ja in Form der Sowjetunion sozusagen der Antagonist in Zeiten des Kalten Krieges. Wir
+hatten ja nach dem Mauerfall durchaus die Hoffnung (5) – in der Zeit ist dann auch die Nato-RusslandGrundakte entstanden –, dass wir zu einem besseren Miteinander kommen könnten.
+Wenn ich mich jetzt noch einmal daran erinnere, dass im Jahr 2011 am Rande dieser
+Sicherheitskonferenz zwischen Hillary Clinton und Sergej Lawrow die Ratifikationsurkunden für den
+Abrüstungsvertrag “New START” ausgetauscht wurden, dann erscheint einem das heute, 2019, ziemlich
+lange her zu sein. Aber damals haben beide von einem Meilenstein in der strategischen Partnerschaft
+gesprochen. Ich sage das, um zu zeigen, was einerseits in den letzten Jahren passiert ist und dass es aber
+andererseits in ein paar Jahren wieder ganz anders aussehen kann, wenn sich Seiten auch miteinander
+auseinandersetzen.”
+
+**Internationale Rüstungskontrolle (6)**
+“Für uns, die Europäer, wenn ich das so sagen darf, war in diesem Jahr die wirklich schlechte Nachricht
+die Kündigung des INF-Vertrags. Nach nicht jahrzehnte-, aber jahrelangen Verletzungen der
+Vertragsbedingungen durch Russland ist diese Kündigung unabwendbar gewesen.
+Wir haben sie als Europäer alle mitgetragen. Trotzdem ist es – das sage ich unseren amerikanischen
+Kollegen – eine ganz interessante Konstellation: Ein Vertrag, der im Grunde für Europa gefunden wurde,
+
+
+-----
+
+ein Abrüstungsvertrag, der unsere Sicherheit betrifft, wird von den Vereinigten Staaten von Amerika und
+Russland in der Rechtsnachfolge der Sowjetunion gekündigt; und wir sitzen da und werden natürlich mit
+unseren elementaren Interessen auch alles versuchen, um weitere Abrüstungsschritte möglich zu
+machen. Denn die Antwort kann jetzt nicht in blindem Aufrüsten liegen.”
+
+**Verteidigungsausgaben (7)**
+“Deutschland steht nun in diesem Zusammenhang [mit der Höhe der Verteidigungsausgaben] in der
+Kritik. Wir haben unsere Verteidigungsausgaben aber von 1,18 Prozent im Jahr 2014 auf immerhin 1,35
+Prozent erhöht. Wir wollen 2024 bei 1,5 Prozent liegen. Vielen reicht das nicht, aber für uns ist das ein
+essenzieller Sprung.
+Natürlich müssen wir auch fragen: Was tun wir denn mit dem Geld? Ich sage es einmal so: Wenn wir alle
+in eine Rezession verfallen und kein Wirtschaftswachstum haben, dann wird es mit den
+Verteidigungsausgaben leichter. Aber dass das dem Bündnis dient, glaube ich nicht. Deshalb ist es
+richtig, dass wir einerseits solche Richtgrössen haben, aber uns andererseits auch überlegen, was die
+Beiträge sind.”
+
+**Internationaler Beitrag Deutschlands (8)**
+“Deutschland leistet seine Beiträge. Wir sind jetzt seit 18 Jahren in Afghanistan und haben dort ungefähr
+1300 deutsche Soldatinnen und Soldaten. […] Wir sind in Litauen Rahmennation. Wir haben zum zweiten
+Mal die Führung der Nato-Speerspitze übernommen. Ich will jetzt nicht alles aufführen. Aber das alles
+sind Dinge, die gerade auch der Bündnisverteidigung sehr nutzen. Insofern sind wir auch bereit, unseren
+Beitrag zu leisten. Wir sind inzwischen auch ausserhalb der Nato aktiv, zum Beispiel in Mali (9). Das ist
+für Deutschland ein Riesenschritt, der kulturell nicht so wie zum Beispiel bei unseren französischen
+Freuden eingeübt ist.”
+
+**Flucht und Migration**
+“Das Flüchtlingsthema ist von der Situation in Syrien getrieben worden (10). Das ist ja sozusagen ein
+Bürgerkrieg, der gleichzeitig noch mit terroristischen Herausforderungen aufgeladen worden ist. Damit
+stand für uns eine Sicherheitsaufgabe ganz anderer Natur an als die, die wir zum Beispiel im
+Zusammenhang mit der Bündnisverteidigung sehen.
+Europa stand nämlich vor der Frage: Sind wir auch bereit, in gewisser Weise bei einem humanitären,
+zivilisatorischen Drama Verantwortung mit zu übernehmen oder sind wir es nicht? Dass so viele
+Flüchtlinge nach Europa kamen, hatte damit zu tun, dass wir uns vorher eben nicht um die Situation der
+Flüchtlinge in Jordanien, im Libanon und in der Türkei gekümmert haben. Dort waren bereits drei
+Millionen oder mehr angekommen. Die Stabilität dieser Länder war wirklich gefährdet. Das hat die
+Flüchtlinge dazu gebracht, sich zum Schluss Schleppern und Schleusern anzuvertrauen und zu sagen:
+Wir suchen uns andere Wege.”
+
+**Entwicklungspolitik**
+“Wir haben in der gleichen Zeit – in der Zeit, in der es die Beschlüsse von Wales gab; das Gehen in
+Richtung zwei Prozent innerhalb der Nato – in ebenso grossem Umfang unsere Entwicklungskosten
+hochgefahren, weil wir der Überzeugung sind: Auch das ist eine Sicherheitsfrage. Wenn wir nicht endlich
+für die humanitäre Hilfe, für die Welthungerhilfe und für den UNHCR hinreichend Zahlungen vornehmen
+– dabei sind wir schon einer der grössten Geber auf der Welt –, damit es den Menschen mit deren Hilfe
+besser geht, dann wird sich das Flüchtlingsdrama perpetuieren.”
+
+**Das iranische Atomprogramm**
+“Dann haben wir das Thema Iran, das uns im Augenblick spaltet. Wir müssen aufpassen, was diese
+Spaltung angeht, die mich sehr bedrückt. Ich habe mich in einer Rede in der Knesset dazu verpflichtet,
+dass das Existenzrecht Israels zur Staatsräson Deutschlands gehört. Und das meine ich auch so, wie ich
+es gesagt habe. Ich sehe das ballistische Raketenprogramm, ich sehe den Iran im Jemen (11)und ich
+sehe vor allen Dingen den Iran in Syrien.
+Die einzige Frage, die in dieser Frage zwischen uns, den Vereinigten Staaten und den Europäern, steht,
+ist: Helfen wir unserer gemeinsamen Sache, unserem gemeinsamen Ziel, nämlich die schädlichen oder
+schwierigen Wirkungen des Iran einzudämmen, indem wir das einzige noch bestehende Abkommen
+kündigen, oder helfen wir der Sache mehr, indem wir den kleinen Anker, den wir haben, halten, um
+dadurch vielleicht auch auf anderen Gebieten Druck machen zu können? Das ist die taktische Frage, über
+die wir streiten. Aber die Ziele sind natürlich die gleichen.”
+
+
+-----
+
+**Wirtschaftliche Beziehungen und Welthandel**
+“Ich unterstütze alle Bemühungen der Fairness und des Handels. Ich spreche von Reziprozität. Darüber
+müssen wir reden. Wir sollten das im Sinne der Partnerschaft und der Tatsache tun, dass wir noch so
+viele andere Probleme auf der Welt zu lösen haben, weshalb es hilfreich wäre, wir könnten uns
+verständigen. Ich setze ja in die Verhandlungen, die jetzt im Handelsbereich mit den Vereinigten Staaten
+von Amerika geführt werden, grosse Hoffnungen.
+Ich sage ganz offen: Wenn es uns mit der transatlantischen Partnerschaft ernst ist, dann ist es für mich
+als deutsche Bundeskanzlerin zumindest nicht ganz einfach, jetzt zu lesen, dass offensichtlich – ich habe
+es noch nicht schriftlich vor Augen gehabt – das amerikanische Handelsministerium sagt, europäische
+Autos seien eine Bedrohung der nationalen Sicherheit der Vereinigten Staaten von Amerika.
+Schauen Sie: (12) Wir sind stolz auf unsere Autos; und das dürfen wir ja auch sein. Diese Autos werden
+auch in den Vereinigten Staaten von Amerika gebaut. In South Carolina ist das grösste BMW-Werk – nicht
+in Bayern, in South Carolina. South Carolina liefert wiederum nach China. Wenn diese Autos, die ja
+dadurch, dass sie in South Carolina gebaut werden, doch nicht weniger bedrohlich werden als dadurch,
+dass sie in Bayern gebaut werden, plötzlich eine Bedrohung der nationalen Sicherheit der Vereinigten
+Staaten von Amerika sind, dann erschreckt uns das.”
+Samstag, 16. Februar 2019. Titelbild: 360b/shutterstock.com.  Quelle: https://www.nachdenkseiten.de/?p=49420
+
+### Wahnsinn: Angela Merkel legt indirekt nahe, dass Putin
+ auch für Klimaproteste in Deutschland verantwortlich ist
+
+Sott.net  Mo, 18 Feb 2019 17:05 UTC
+
+Die Münchener Sicherheitskonferenz ist vorbei, und es bleibt wie immer ein bitterer Nachgeschmack,
+besonders wenn es um die Beziehungsfrage zwischen Europa und Russland geht. Während
+einer Rede unserer Kanzlerin wirft sie indirekt Präsident Putin vor, dass durch die hybride Kriegsführung
+von Russland (das ist schon totaler Schmarrn), deutsche Kinder auf die Strasse gehen, um für den
+Klimaschutz zu protestieren.
+
+Putin hat natürlich nichts Besseres vor, als deutsche Kinder auf die Strasse zu schicken, damit sie sich für
+das Wohl des Klimas einsetzen.
+Die Kanzlerin sagte in München:
+"Diese hybride Kriegsführung im Internet ist sehr schwer zu erkennen, weil sie plötzlich Bewegungen
+haben, von denen sie gedacht haben, dass die nie auftreten – die immer ansetzen an einem Manko.
+In Deutschland protestieren jetzt die Kinder für Klimaschutz. Das ist ein wirklich wichtiges Anliegen. Aber
+dass plötzlich alle deutschen Kinder – nach Jahren ohne sozusagen jeden äusseren Einfluss – auf die Idee
+kommen, dass man diesen Protest machen muss, das kann man sich auch nicht vorstellen."
+Die Kanzlerin macht den Eindruck, also ob sie wirklich die Dinge glaubt, die sie dort äussert. Die
+Äusserung ist fernab jeglicher Realität und gibt einem wirklich zu denken. Wer hier wirklich eine geplante
+"hybride Kriegsführung" durchführt, sind die westlichen Staaten mithilfe ihrer skrupellosen
+Geheimdienste:
+
+  - Neue Dokumente offenbaren verdeckte Einflussnahme von Verleumdungs-Maschinerie des
+britischen Militärgeheimdienstes auf amerikanische Politik
+
+  - "Hybrid Krieg" gegen Russland: Der Informationskrieg der USA
+
+  - Quelle: ? ? ?
+
+
+-----
+
+## Willy Wimmer: „Die USA führen die Nato nur noch mit Nötigung und Erpressung“
+
+©U.S. Air Force/Tech. Sgt. Michael Fuller     16:30 18.02.2019 Armin Siebert
+
+**Die 55. Münchner Sicherheitskonferenz ist Geschichte. Willy Wimmer, ehemaliger Parlamentarischer**
+**Staatssekretär im Verteidigungsministerium, hat selbst viele Jahre an der Konferenz teilgenommen. Er**
+**meint, München war ein Treffen der Anti-Trump-Koalition, bei dem es darum ging, den Druck auf die**
+**Nato und die europäischen Bündnispartner zu erhöhen.**
+
+**Herr Wimmer, wie war Ihr Eindruck von der diesjährigen Sicherheitskonferenz? Was bleibt hängen?**
+
+Ich glaube, dass die deutschen Automobilbauer Auswirkungen von München unmittelbar zu spüren
+bekommen werden. Die Bundeskanzlerin hat ja dort gegen den amerikanischen Präsidenten in einer
+Weise randaliert, dass das nicht ohne Folgen bleiben wird. Man kann nicht jemandem während der
+gesamten Rede gegen das Schienbein treten und dann erwarten, dass Einsicht gezeigt wird bei
+ökonomischen Interessen.
+
+**Ich habe in meinem Fazit von der Sicherheitskonferenz einen Riss im transatlantischen Verhältnis**
+**konstatiert. Mein Kollege hat mich daraufhin korrigiert, dass es keinen Bruch mit den USA, sondern mit**
+**Trump gibt. Wie sehen Sie das?**
+
+Ja, das wurde in München offensichtlich. Das war ja in München ein Treffen der Anti-Trump-Koalition. Es
+haben bei der Rede von Frau Merkel ja auch die gejubelt, die zu den europäischen Gefolgsleuten dieser
+amerikanischen Kriegskoalition gehören. Das hat sich dann auch bei der Rede des Vizepräsidenten Pence
+gezeigt, der auch zu dieser Kriegskoalition gehört und dessen Rede höchst unglaubwürdig war, obwohl er
+sich immer wieder Richtung Trump über den Atlantik verneigt hat. Man konnte auch in seiner Rede
+feststellen: Die USA führen die Nato nicht mehr aus gemeinsamer Interessenlage, sondern nur noch mit
+Nötigung und Erpressung.
+Das konnte man erst vor wenigen Wochen spektakulär in Moskau sehen, als die Russische Föderation die
+westlichen Militär-Attachés eingeladen hatte, sich das fragliche Raketengeschoss an Ort und Stelle
+anzusehen, das den USA als Vorwand diente, den INF-Vertrag aufzukündigen. Die Vereinigten Staaten
+haben die westlichen Militär-Attachés so unter Druck gesetzt, dass, soweit ich weiss, ausser dem
+zypriotischen und griechischen Militär-Attaché niemand es gewagt hat, dieses Raketengeschoss
+in eigenen Augenschein zu nehmen.
+Diese Drohungen haben wir auch bei den Äusserungen von Vizepräsident Pence zu Nord Stream 2
+in München und am Tag zuvor in Warschau gesehen. Wenn man nur noch mit Erpressung und Nötigung
+einen Verein führen kann, dann bricht der über kurz oder lang auseinander.
+
+**Die Amerikaner sind ja offensichtlich nach Europa gekommen, um sich mindestens in zwei Punkten**
+**durchzusetzen: Nord Stream 2 und Iranisches Atomabkommen. In keinem der Punkte scheinen sie sich**
+**durchgesetzt zu haben. Was sagt das über die Weltmacht USA und über das europäisch- und deutsch-**
+**amerikanische Verhältnis aus?**
+
+
+-----
+
+Schlimmer kann es eigentlich nicht sein. Die Sollbruchstellen sind bei dieser Münchner Veranstaltung
+ostentativ wie eine Monstranz um den Bayrischen Hof herumgetragen worden, und jeder hat sie gesehen.
+Wenn man im Zusammenhang mit der durchaus komplizierten Situation im Nahen und Mittleren Osten
+Auschwitz und den Holocaust bemühen muss – wie das übrigens damals auch Joschka Fischer im
+Zusammenhang mit dem völkerrechtswidrigen Angriff auf Jugoslawien getan hat –, dann ist das in so
+hohem Masse abstossend, dass man sich eigentlich erschreckt abwenden müsste. Ist denen denn nichts
+mehr heilig? Wenn man das nutzten muss, um aktuelle Konflikte anzuheizen, dann ist ein Bündnis, das
+das nötig hat, mehr als am Ende.
+
+**Russland war natürlich auch wieder ein beliebtes Feindbild in München, mal mehr, mal weniger. Aber**
+**zumindest für die USA scheint Russland tatsächlich im Moment nicht Staatsfeind Nr. 1 zu sein. Iran,**
+**Venezuela und China scheinen da nach oben gerückt zu sein.**
+
+Das kann aber morgen schon wieder anders sein. Wir haben bei dem Zwischenfall mit der ukrainischen
+Marine im Schwarzen Meer ja gesehen, wie scharf es gegen Russland geht. Wenn man den Berichten
+glauben kann, dann wurden bei dieser Operation Awacs-Maschinen, die unweit von meinem Wohnort
+in Deutschland stationiert sind, eingesetzt, um Radarstellungen der Russischen Föderation in diesem
+Gebiet auszukundschaften. Das erinnert schon sehr an den Kalten Krieg. Wenn also Russland an einem
+Tag mal weniger aus Washington benannt wird, will das noch nichts heissen.
+Es wäre also dringend nötig, dass der amerikanische Präsident Trump endlich einmal den
+Handlungsspielraum bekommt, um seine Politik gestalten zu können. So lange das nicht möglich ist,
+gehe ich davon aus, dass die transatlantische Kriegskoalition in Washington, Berlin, Paris, Brüssel und
+London alles unternimmt, um die Welt eben nicht sicherer zu machen.
+Quelle: https://de.sputniknews.com/politik/20190218324020482-nato-usa-fuehrung-msk/
+
+#### Angst des Menschen
+ Der Mensch ängstigt sich in seinen Gedanken und Gefühlen vor dem Morgen und darüber hinaus vor
+ seiner weiteren Zukunft, weil ihm etwas zustossen
+ könnte, was die Folge zeitigt, dass er seinen Sinn
+ sowie sein Verstehen für die reale Wirklichkeit der
+ Gegenwart verliert und sie in jeder Form verkennt.
+
+Wetzikon, 17. Juni 2005, 14.50, Billy
+
+**IMPRESSUM**
+**FIGU-ZEITZEICHEN**
+**Druck und Verlag: FIGU** Wassermannzeit-Verlag,
+
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+
+**Redaktion: BEAM** ‹Billy› Eduard Albert Meier,
+
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+
+Wird auch im Internetz veröffentlicht
+
+**Erscheint zweimal monatlich auf der FIGU-Webseite**
+
+**Postcheck-Konto: FIGU Freie Interessengemeinschaft,**
+
+8495 Schmidrüti, PC 80-13703-3
+
+Geisteslehre Friedenssymbol
+
+IBAN: CH06 0900 0000 8001 3703 3
+
+**E-Brief: info@figu.org** **Frieden**
+
+**Internetz: www.figu.org**
+
+**FIGU-Shop: http://shop.figu.org** Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+
+wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten
+Tritt dazu macht, um dann nachfolgend in Friedsamkeit jeden weiteren Schritt
+
+**© FIGU 2019** bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun.
+
+Einige Rechte vorbehalten. SSSC, 10. September 2018, 16.43 h, Billy
+
+Dieses Werk ist, wo nicht anders
+
+angegeben, lizenziert unter :
+
+www.figu.org/licenses/by-nc-nd/2.5/ch/
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung des Urhebers ausdrücklich erlaubt.**
+Erschienen im Wassermannzeit-Verlag: FIGU, ‹Freie Interessengemeinschaft Universell›, Semjase-Silver-Star-Center,
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+

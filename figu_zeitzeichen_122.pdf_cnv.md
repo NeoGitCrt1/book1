@@ -1,0 +1,1626 @@
+5. Jahrgang
+Nr. 122, Juli/2 2019
+
+
+Erscheinungsweise:
+Zweimal monatlich
+
+
+# FIGU – ZEITZEICHEN
+
+### Aktuelles • Einsichten • Erkenntnisse
+
+Internetz: http://www.figu.org
+E-Brief:   info@figu.org
+
+
+### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+
+Laut ‹Allgemeine Erklärung der Menschenrechte›, verkündet von der Generalversammlung der Vereinten Nationen am 10. Dezember 1948, herrscht
+eine allgemeine ‹Meinungs- und Informationsfreiheit› vor, und dieses unumschränkte Recht gilt weltweit und absolut für jeden einzelnen
+Menschen weiblichen oder männlichen Geschlechts jeden Alters und Volkes, jedes gesellschaftlichen Standes wie auch in bezug
+auf rechtschaffene Ansichten, Ideen und jeglichen Glauben jeder Philosophie, Religion, Ideologie und Weltanschauung:
+
+**Art. 19 Menschenrechte**
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit, Meinungen unange-**
+**fochten anzuhängen und Informationen und Ideen mit allen Verständigungsmitteln ohne**
+**Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Ansichten, Aussagen, Darstellungen, Glaubensgut, Ideen, Meinungen sowie Ideologien jeder Art in Abhandlungen, Artikeln und in Leserzuschriften usw.,
+müssen in keiner Art und Weise zwingend identisch mit der ‹Lehre der Wahrheit, Lehre des Geistes, Lehre des Lebens›, mit dem Gedankengut und
+den Interessen, wie auch nicht in irgendeiner Sachweise oder Sichtweise mit dem Missionsgut und dem Habitus der FIGU verbindend sein.
+==============================================================================================================
+Für alle in den FIGU-Zeitzeichen und anderen FIGU-Periodika publizierten Beiträge und Artikel verfügt die
+FIGU über die notwendigen schriftlichen Genehmigungen der Autoren bzw. der betreffenden Medien!
+### **********************************************************************************
+
+**Auf vielfach geäusserten Wunsch aus der Zeitzeichen-Leserschaft sollen in den Zeitzeichen zur Orientierung der**
+**Rezipienten laufend Auszüge diverser wichtiger Belange aus neuest geführten Kontaktgesprächsberichten**
+**veröffentlicht werden, wie nach Möglichkeit auch alte sowie neue Fakten betreffs weltweit bösartig mit**
+**Lügen, Betrug, Verleumdung und Mordanschlägen gegen BEAM geführte Kontroversen.**
+
+### **********************************************************************************
+
+## Ein offener Brief an die zukunftsbesorgten Jugendlichen bei www.climatestrike.ch
+**an: contact@climatestrike.ch**
+
+Liebe Aktive der Klimabewegung Schweiz
+Wenn mich mein Eindruck bezüglich der Diskussionen im Zusammenhang mit Klimastreik und Schülerdemos usw. nicht täuscht, liegt der Fokus der Aktivitäten und der berechtigten Forderungen hauptsächlich auf dem Klimawandel. Dass Jugendliche endlich aufbegehren und ihrer Besorgnis bestimmt Ausdruck geben, begrüsse ich sehr. Zu bemängeln ist aber, dass das ‹falsche Pferd gesattelt› wurde und deshalb die Forderungen in den Mühlen von Politik, Wirtschaft und Religion usw. höchstwahrscheinlich ebenso zur Ineffektivität und Unkenntlichkeit zermalmt werden, wie dies nach allen bisherigen Klima- und
+Bevölkerungskonferenzen schon bisher der Fall war. Solange die Hauptursache aller umweltbezogenen
+und gesellschaftlichen Katastrophen weiterhin von Politik und Wirtschaft usw. negiert und offensichtlich
+tabuisiert wird, ist jegliches auf den Klimawandel fokussierte Jammern und Fordern ein Ablenkungsmanöver und selbsttäuschende Gewissensberuhigung. Jedes Jahr kommen auf der begrenzten Landfläche
+unseres Planeten rund 100 Millionen zusätzliche Konsumenten hinzu, wodurch alle lokalen Umweltschutzbemühungen niemals nachhaltigen Erfolg bringen können. Laufend steigen Umsatz und Profit der
+Konzerne – stetiges quantitatives Wachstum gilt als alternativlos! –, derweil die Kosten durch die Natur
+mit Flora und Fauna sowie durch die Menschen mit laufend zunehmenden Krankheiten, mit Elend und
+vorzeitigem Tod zu tragen sind. Die Plünderung der limitierten und schwindenden Ressourcen wie Sauerstoff, Süsswasser, fossile Energieträger, urbares Land usw. nimmt ungebremst zu. Die Auswirkungen von
+an und für sich sinnvollen Massnahmen, wie Gebäudeisolierung, Vermeidung von Flugreisen, Abfallrecy
+
+-----
+
+cling usw., werden global laufend neutralisiert durch die durch Geburt hinzustossenden neuen Verbraucher, oder lokal durch Zuwanderung und Migration (in der Schweiz z.B. steigt dadurch die Bevölkerung
+seit Jahrzehnten jährlich in der Grösse einer Kleinstadt!). Wenn die Jugendlichen – also speziell Sie, die
+ich hier anspreche – gleich wie das Gros der Politiker und Führungspersonen in Wirtschaft, Religion und
+Lehre weiterhin mit selbsterzeugten denkerischen Scheuklappen lediglich an Symptomen herumschrauben, dann ist solches Verhalten ungefähr so intelligent wie jemand, der nach einem Schmerzmittel
+schreit, weil ihn seine grosse Zehe schmerzt, anstatt die von ihm selbst aus Angst vor dem Anblick zugedeckte eiternde und nekrotische Wunde am Knöchel einer ursächlichen Behandlung zuzuführen.
+Selbstverständlich ist es unbequem und anspruchsvoll – und erfordert ideologiefreies Denken sowie Mut
+–, die Themen Bevölkerungswachstum und Zuwanderung als Hauptproblem zuoberst auf die Agenda zu
+setzen, weil diesbezüglich ursächliche und wirksame Massnahmen ganz direkt in den Privat- und Intimbereich der Menschheit reichen und weh tun werden. Aber nur schon die zuvor notwendige breite, tiefgründige und offene Diskussion in allen Gesellschaftsschichten und Ländern der Erde zu starten, damit
+das Gros der Menschheit den Ernst der Lage endlich begreift und zu wirksamen und humanen Massnahmen bereit ist, ist eine Herkulesarbeit sondergleichen. – Ob Ihr, die heutigen Jugendlichen, den Mut
+und die bewusstseinsmässige Offenheit haben werdet, das bislang tabuisierte Grossproblem Bevölkerungswachstum ins Zentrum aller zukünftigen Debatten zu stellen, wird sich zeigen. Vor allem Ihr selbst,
+und noch mehr die nachrückenden Generationen, seid die hauptsächlich Leidtragenden der kommenden
+absehbaren ‹unschönen› Geschehen, wenn aus krimineller Verantwortungslosigkeit und Denkfaulheit die
+dringend notwendige <Wurzelbehandlung> nicht unverzüglich angepackt wird. Der einzig logische, vernünftige, verantwortungsvolle und zweckdienliche Weg führt allein über eine weltweit durchzuführende
+und für alle Menschen einheitlich geltende Geburtenregelung, welche zu einer drastischen Reduktion von
+Geburten (= Zeugungen) führt. (Detaillierte Vorschläge zu einer wirksamen und vor allem humanen Umsetzung existieren bereits und können auf Wunsch geliefert werden.)
+Schliessen will ich meinen Aufrüttelungsversuch mit einem Kommentar zu Greta Thunberg, die sich bekanntlich explizit «Panik» in Politik und Gesellschaft wünscht. Diesbezüglich gebe ich zu bedenken, dass
+eine solche Forderung nicht gerade als nobelpreiswürdig zu bezeichnen ist, denn Panik und rationales
+Handeln vertragen sich ungefähr so gut wie die Faust aufs Auge, also gar nicht!
+
+Freundliche Grüsse
+Christian Frehner (67 Jahre alt)
+Wald AR, 20.3.2019
+christian.frehner@figu.org
+
+## Hat Billy Meier den Talmud Jmmanuel gefälscht?
+von Michael Horn, USA
+
+Lasst uns zwei ähnliche Geschichten betrachten, angeblich ungefähr 1964 Jahre voneinander veröffentlicht. Die bekannteste Geschichte ist das Matthäus-Evangelium aus dem Neuen Testament (NT), und die
+weniger bekannte ist der Talmud Jmmanuel (TJ), von Billy Meier 1978, erstmals auf deutsch veröffentlicht, und in den 1980ern auf englisch.
+Bevor wir uns damit befassen, ob eine der beiden eine ‹wahre Geschichte› ist, lasst uns einige andere
+Aspekte und Fragen in Betracht ziehen. Dadurch wollen wir beide als Geschichten betrachten, die vorgeben, reale historische Geschehnisse einzubeziehen. Dabei muss beachtet werden, dass, obwohl das NT
+eine Person namens Jesus Christus beinhaltet – wohl die bekanntest Figur der letzten 2000 Jahre –, es
+keinen Beweis dafür gibt, dass eine Person _dieses Namens tatsächlich je existiert hat. Es gibt keine Bio-_
+graphien von Jesus Christus durch die zahlreichen Biographen, die in der damaligen Zeitperiode gelebt
+haben, in der Gesamtregion, wo die Geschehnisse stattgefunden haben sollen. Es gibt Hinweise und Beweise, dass andere im NT erwähnte Persönlichkeiten existiert haben, aber es scheint, dass der Name
+Jesus Christus nicht wirklich zur gleichen Zeit vorgekommen ist, sondern erst Jahrzehnte später. Ausserdem enthält das NT, das von vielen Leuten ‹geglaubt› wird, viele übernatürliche, mystische Elemente, die
+der Logik und bekannten wissenschaftlichen Gesetzen usw. nicht standhalten. Während in den verschiedenen Religionen und Sekten solche Freiheiten in bezug auf andere vergöttlichte Persönlichkeiten genommen werden, sind keine angesehene historische Aufzeichnungen bekannt, die solche beinhalten. Natürlich ist Geschichte selbst vielen Fragen unterworfen, und es wird oft darauf hingewiesen, dass <Geschichte durch die Sieger geschrieben> wird. Vielleicht kann auch gesagt werden, dass Religionen ebenso
+von jenen erschaffen werden, die über die Fähigkeit, Kraft und Stellung verfügen, um Geschehnisse – und
+Leute – gemäss ihrem Gefallen zu gestalten, basierend auf realen oder erdichteten Geschehnissen, Personen usw.
+Die Tatsache, dass das NT viel leichter als eine Geschichte, denn als Historie betrachtet werden kann,
+erschafft andere Probleme, da der TJ einfach als eine andere Version der gleichen Geschichte betrachtet
+
+
+-----
+
+werden könnte und also als keine Form einer realen Geschichte. Aber lasst uns daran erinnern, dass die
+Mehrheit der menschlichen Geschichte, wie wir sie kennen, nicht im modernen digitalen Format überliefert wurde, sondern in schriftlicher Form, oft redigiert, überarbeitet und verändert usw., wie auch auf
+mündlichem Weg, was viel Raum lässt für Verfälschungen, wie auch für offensichtliche Erdichtungen.
+Selbst in heutiger Zeit, mit all den Aufnahmegeräten, Kameras usw., sind Unstimmigkeiten bezüglich verschiedener Versionen und Interpretationen von Geschehnissen nicht ungewöhnlich.
+
+**Auftritt James Deardorff**
+Der TJ fand die Aufmerksamkeit von James Deardorff, einem Professor und religiösen Gelehrten, der sich
+entschied, diesen zu entlaven, weil er glaubte, dass es sich um einen Betrug handle. Statt dessen fand er
+heraus, dass der TJ über 300 Widersprüche[1] auflöste, die im Matthäus-Evangelium existieren. Selbst als
+Nicht-Gelehrte können wir beobachten, dass Deardorff vom TJ-Text beeindruckt war und sehr viel Zeit
+und Mühe aufgewendet hat, um die Details sorgfältig zu erforschen und niederzuschreiben.
+Es ist nicht nötig, beispielsweise die weitgehend religiöse Bezeichnung ‹Sünder› zu akzeptieren, um die
+bei weitem weniger verurteilende Beschreibung <unwissend> zu schätzen, was zur Beschreibung einer
+Gesellschaftsschicht in ziemlich primitiven Zeiten wohl genauer und mehr akzeptabel sein mag. Es hätte
+einer sehr sorgfältigen Betrachtung bedurft, um einen negativen religiösen Begriff in einen umzuwandeln,
+der lediglich die Denkfähigkeit beschreibt; nicht gerade etwas, was jemand wahrscheinlich tun würde, der
+eilig ein religiöses Dokument <verfälschen> will. Warum würde jemand so sorgfältig auf Genauigkeit bedacht sein – wenn versucht wird, einen religiösen Betrug fortzusetzen, oder daraus Kapital zu schlagen?
+Wie Deardorff betont: <<Bei der Meinungsbildung, ob der TJ echt ist, ist es wichtig zu beachten, dass
+wenn man mit einem Dokument beginnt, das echt und stimmig ist, dann führen Übersetzungsfehler und
+Bearbeitungen zu Widersprüchen. Eine Fehlerkorrektur eliminiert dann diese Widersprüchlichkeiten oder
+Ungereimtheiten.>>
+
+**Mittel, Motiv und Gelegenheit**
+Um nochmals darauf hinzuweisen, wie leicht die einzigartige Echtheit von Meiers UFO-Belegen bewiesen
+werden kann, gleichermassen wie dies Deardorff in seiner Dokumentation tat, speziell bezüglich aller aufgelösten Widersprüche, spricht dies ebenso für die immense Menge zeitaufwendiger Arbeit, die sich Meier
+hätte aufladen müssen, um ursprünglich viel weniger attraktives Beweismaterial zu ‹fälschen›, was sich
+schlussendlich als viel wichtiger herausstellen mag als die UFOs, Ausserirdischen usw. Weder hat der TJ
+dabei soviel Aufmerksamkeit erlangt wie Meiers UFO-Beweise, noch gab es einen Versuch seitens Meier,
+diesen gleich breit zu veröffentlichen.
+In Anbetracht dessen, dass Meier als ein ausgesprochener Gegner von Religionen usw. bekannt ist, müssen wir uns fragen, ob es vernünftig erscheint, dass er sich soviel notwendige Zeit genommen hätte, um
+die mehreren hundert bekannten und unbekannten Unregelmässigkeiten anzusprechen und dann Texte
+zu erstellen, welche die Widersprüche auflösen – zur Zufriedenheit eines religiösen Bibel-Gelehrten –; danach dann aber nie selbst auf diese (Widersprüche) hinzuweisen, weder nach noch vor einer solch wichtigen Arbeit und, oder nachdem Deardorff darüber berichtete?
+Angenommen, Meier hatte die Gelegenheit, ein solches Unterfangen weiterzuführen, so müssen wir auf
+die Frage nach dem Motiv zurückkommen. Die am ehesten logische Annahme wäre, dass wenn jemand
+mit einer komplett neuen Erzählung in Erscheinung träte, um die Grundelemente einer der Hauptreligionen der Welt zu demontieren, dieser dann motiviert wäre, auf irgendeine Weise zu versuchen, deren
+Macht, Anhänger, Reichtum usw. zu übernehmen – dabei möglicherweise an sein UFO-Beweismaterial
+anknüpfend oder daraus Kapital schlagend zur Erlangung eines Spezialstatus als Kultführer, neue religiöse Figur, usw. Wo aber ist der Lohn für die Entmystifizierung und Entgöttlichung der zentralen Figur, ganz
+abgesehen von den zuvor nie gehörten 17 Jüngerinnen und der Heirat der (angeblich ledigen) zentralen
+Figur (mit einer Inderin, nichts weniger) und der Zeugung von zahlreichen Nachkommen?
+Ein hohes Mass an Wahn ist nicht unbekannt unter den Führern und Anhängern der verschiedenen Religionen, Kulte, Sekten, Ableger-Religionen usw. Aber Meier steht zu diesen in starkem Kontrast, nicht nur
+wegen seinem eigenen zurückgezogenen Leben, sondern wegen dem völligen Fehlen jeglichen Nachweises, dass er je für eine solche Position geworben hätte, für Kult, Anhänger, Reichtum, Macht usw., dies
+trotz den zahlreichen gegenteiligen, völlig unbegründeten und substanzlosen Behauptungen.
+Deshalb: Warum also sollte Billy Meier, der Mann, der gerade eben die wichtigste Geschichte in Wissenschaft und Historie in die Welt gebracht hat – und zwar durch die unabhängig als echt geprüften UFOFilme, Photos, Videos, Metallproben und Tonaufnahmen, usw., was bereits zu vielen Mordversuchen an
+ihm und selbst dem Leben seiner Kinder geführt hat –, solche zusätzliche Behauptungen aufstellen, die
+gleichermassen nur religiöse und nicht-religiöse Leute weiter in Wut versetzen, darin einbezogen jene, die
+sonst die Echtheit seiner Kontakte mit Ausserirdischen unterstützen würden?
+
+
+-----
+
+Was James Deardorff betrifft: Warum würde ein religiöser Gelehrter die Echtheit des TJ über die sogenannte Heilige Schrift gutheissen, an die er glaubt? Indem er sich hinter die Echtheit des TJ stellt und
+behauptet, dass es sich um das Original und reale Dokument handle, auf dem das Matthäus-Evangelium
+basiert, widerruft Deardorff nicht nur den Kern seines eigenen religiösen Glaubens, sondern tut dies zugunsten eines Dokuments, welches die ganze Sache entmystifiziert und als ein historisches Geschehnis
+darstellt, gegensätzlich zum mit sinnlosem, übernatürlichem und mystischem Hokuspokus versehenen
+NT-Märchen.
+Könnte es möglich sein, das der TJ die ursprüngliche, nicht-mystische, nicht-übernatürliche historische
+Erzählung von Geschehnissen und der Lehre um einen realen Menschen aus Fleisch und Blut enthält?
+Wenn wir den TJ als eine solche Erzählung betrachten, ohne alle übernatürlichen Aspekte der NT-Version,
+ist es möglich, dass die Originalgeschichte und der Originaltext in der Tat durch Leute verfälscht und manipuliert wurden, die nach Macht und Kontrolle strebten, indem sie aus dem im TJ erwähnten Menschen
+einen gottgleichen Mann schufen? Wäre dies sogar das erste oder letzte Mal, dass das Leben einer Person, oder verschiedener Geschehnisse, gefälscht wurden, um einen Mythos zu kreieren und Anhängerschaft, usw.?
+Würde der TJ als ‹gotteslästerlich›, umstritten usw. betrachtet, wenn er für sich allein stünde, ohne Existenz des NT bzw. im Vergleich mit diesem?
+Was immer man vom TJ als einem historischen Dokument halten mag, es enthält jedenfalls nichts, was
+um einen Glauben an übernatürliche Geschehnisse bettelt, (z.B.) dem Auferstehen vom Tode, verschiedenen unglaubwürdigen ‹Wundern›, usw.
+Vielleicht können wir jetzt nicht nur die Schlussfolgerungen von James Deardorff verstehen und schätzen,
+sondern auch dessen Ehrlichkeit und Mut, diese zu präsentieren.
+Quelle: https://theyflyblog.com/2019/03/17/did-billy-meier-hoax-the-talmud-jmmanuel/
+Übersetzung: Christian Frehner, Schweiz
+http://www.tjresearch.info/genuine.htm
+
+## Did Billy Meier Hoax the Talmud Jmmanuel?
+
+Let’s take a look at two similar stories, supposedly published about 1,964 years apart. The most familiar
+story is the Book of Matthew, from the New Testament (NT), and the lesser known one is the Talmud
+Jmmanuel (TJ), first published by Billy Meier in German, in 1978, and then in English in the 1980s.
+
+Before we concern ourselves if either one is a true story, let’s consider some other aspects and questions.
+In doing so, we want to view them both as stories that purport to involve real historical events.
+
+It must be noted that while the NT involves a person called Jesus Christ – arguably the most well-known
+figure for the last 2,000 years – there is little to no other evidence that a person with that name actually
+ever existed. There are no actual biographies of Jesus Christ ever written by the numerous biographers
+who existed at the referred to time period, in the overall region where the events were said to have taken
+place. There are references and evidence that other personages mentioned in the NT did exist but it
+seems that the name Jesus Christ doesn’t really appear contemporaneously but only decades later.
+
+Further, the NT, while “believed” by many people, has many supernatural, mystical elements that defy
+logic, known laws of science, etc. While such liberties are taken in terms of other deified personages in
+various religions, etc., respected historical records aren’t known to include them. Of course, history itself is
+subject to many questions and it’s frequently pointed out that “history is written by the victors”. Perhaps
+it can be also said that religions are created by those with the abilities, power and position to fashion
+events – and people – according to their own liking as well, based on real or fictitious events, people, etc.
+
+The fact that the NT can more easily be regarded as a story than a history creates other problems, as the
+TJ could be regarded as simply another version of the same story and also not any kind of reliable history. But let’s also remember that the majority of human history, as we know it, has been handed down not
+in modern digital format but in written form, often redacted, edited, altered, etc., as well in oral tradition,
+leaving a lot of room for distortions, as well as outright fabrications. Even in more modern times, with all
+sorts of recording devices, cameras, etc., disagreements about differing versions and interpretations of
+events are not uncommon.
+
+
+-----
+
+**Enter James Deardorff**
+The TJ caught the attention of James Deardorff, a professor and religious scholar who decided to debunk
+it because he believed it had to be a hoax. Instead, he found that it resolved over 300 inconsistencies that
+existed in the book of Matthew. Even if we are not scholars, we can see that Deardorff was impressed with
+the TJ text and took an immense amount of time and effort to diligently research and note the details.
+
+One isn’t required to accept the largely religious notion of “sinners”, for example, to appreciate the far
+less judgmental description of “ignorant” (http://www.tjresearch.info/mt9.htm), which may well be both
+more accurate and acceptable in describing a stratum of society in what were rather primitive times.
+
+It would have required very thoughtful consideration to change a negative religious term to one that only
+described thinking capacity, something not likely to be done by someone rushing to “falsify” a religious
+document. Why would someone be so diligent and concerned about accuracy…if they were trying to further perpetuate, or capitalize on, a religious hoax?
+
+As Deardorff points out:
+
+“In forming an opinion of how genuine the TJ is, it is important to keep in mind that if one starts with a
+document that is genuine and consistent, the effect of errors in translation and editing is to introduce
+inconsistencies. Correcting the errors then eliminates these inconsistencies or contradictions.”
+
+**Means, Motive and Opportunity**
+Referring again to the ease with which the singular authenticity of Meier’s UFO evidence can be proven,
+the extent to which Deardorff went in his documentation, especially in relation to all the resolved inconsistencies, speaks also to the even more immense amount of time-consuming work that Meier would have
+had to have gone through to “hoax” far less initially attractive evidence, which may prove to ultimately be
+far more important than the UFOs, extraterrestrials, etc. Further, the TJ has in no way garnered anywhere
+near the attention of Meier’s UFO evidence, nor has there been any attempt to publicize it as broadly by
+Meier.
+
+Taking into account that Meier is known to be an outspoken opponent of religions, etc., we’d have to ask if
+it seems reasonable that he would have taken the amount of time necessary to address the several hundred known and not known inconsistencies and then compose texts that would resolve the inconsistencies
+– to the satisfaction of a religious bible scholar – but then never point these out himself, after such a significant labor, before or after Deardorff had commented on them?
+
+Assuming that Meier had the opportunity to proceed with such an undertaking, we come back to the
+question of motivation. The most logical assumption would be that someone coming forward with a completely new narrative dismantling the foundational elements of one of the world’s major religions would
+be motivated in some way to try to assume its power, followers, wealth, etc., quite possibly tying it in with,
+and trying to capitalize on, his UFO evidence as a way to legitimize claiming a special status as a cult
+leader, new religious figure, etc. But where’s the pay-off for demystifying the story and de-deifying the central figure, let alone inserting 17 previously never heard of female disciples and the (supposedly celibate)
+central figure’s marriage (to an Indian woman, no less) and fathering numerous descendants?
+
+High levels of delusion are not unknown among the leaders and members of various religions, cults, sects,
+offshoot religions, etc. But Meier stands in stark contrast to these, not only in his own reclusive life but in
+the complete absence of any evidence that he’s ever courted such a position, cult following, wealth, power, etc., despite the numerous and completely unfounded and unsubstantiated claims to the contrary.
+
+So, why would Billy Meier, the man who has just brought the most important story in all of science and
+human history to the world – with its independently authenticated UFO films, photos, video, metal samples, sound recordings, etc. – and which has already brought many attempts on his life and even on his
+children’s lives, want to make additional claims that would only further infuriate religious _and non-_
+religious people alike, including those who might otherwise support the authenticity of his contacts with
+extraterrestrials?
+
+As for James Deardorff, why would a religious scholar come to endorse the authenticity of the TJ over the
+so-called holy book that he believes in?
+
+
+-----
+
+By standing behind the authenticity of the TJ and claiming that it is the original and real document upon
+which the book of Matthew was based, not only does Deardorff reject his own core religious beliefs but he
+does so in favor of a document that itself demystifies the entire matter and presents it as a historical event
+and not the NT fairytale replete with nonsensical, supernatural, mystical mumbo-jumbo.
+
+Could it be possible that the TJ contains the original, non-mystical, non-supernatural, historical narrative
+of events and teaching surrounding a real flesh and blood human being?
+
+If we view the TJ as such a narrative, absent all of the supernatural aspects of the NT version, is it possible that the original story and text was indeed falsified and manipulated by people who sought power and
+control through creating a god-like man out of the human being referred to in the TJ? Would it even be
+the first, or last, time that the life of a person, or various events, were falsified to create a myth, following,
+etc.?
+
+Would the TJ be considered “heretical”, controversial, etc., if it existed on its own, without the existence of,
+and comparison to, the NT? Whatever one may think of the TJ as a historical document, there’s certainly
+nothing in it that begs belief in supernatural events, the raising of the dead, various unlikely “miracles”,
+etc.
+
+Perhaps now we can not only understand and truly appreciate James Deardorff’s conclusions but also his
+honesty and courage in presenting them.
+
+## Brennpunkt Venezuela
+### Die aktuelle Krise in Caracas ist ein gefährlicher „Stellvertreterkrieg“  zwischen den globalen Mächten.
+von Kai Ehlers
+
+Donnerstag, 31. Januar 2019, 16:00 Uhr
+
+Ein irritierendes Bild entsteht gegenwärtig vor den Augen der Weltöffentlichkeit: Venezuela, vielen Menschen auf Grund seiner reichen Erdölvorkommen noch als Gesellschaft in Erinnerung, die Wohlfahrtsgeschenke an die Bevölkerung verteilen konnte, ist in krasses Elend abgesunken. Mord, Raub, Totschlag,
+Hunger und staatlicher Terror gegen die Opposition bestimmen den Alltag. Ein Bürgerkrieg schwelt schon
+lange und droht jetzt offen auszubrechen. Das Land braucht Hilfe; die bekommt es zurzeit, von allen Seiten sogar — allerdings in Formen, die höchst fragwürdig sind und einer grundsätzlichen Korrektur bedürfen.
+
+### Frontverläufe
+Der Niedergang des Landes sei der Unfähigkeit sozialistischer Illusionen zuzuschreiben, die Hugo Chavez
+geschürt und die sein Nachfolger Nicolás Maduro übernommen habe, meinen die einen. Sie sehen die
+Zeit gekommen, den Resten sozialistischer Utopien den Todesstoss zu versetzen.
+Der Niedergang sei ein Produkt des amerikanischen Imperialismus, der schwächere Staaten abwürge,
+erklären die anderen, unter ihnen allen voran Maduro selbst. Manche sprechen von einer Fortsetzung des
+Kalten Krieges, von „Konterrevolution“ und Fortsetzung des Kampfes gegen „den“ Sozialismus.
+Aber ist das alles so? Ein kurzer Blick auf die Frontverläufe unter den Helfern mag dienlich sein, einer
+Antwort auf diese Frage näher zu kommen.
+
+  - Da sind als erstes die Verläufe im Lande selbst. Kämpfen dort aber Sozialisten gegen Rechte?
+Nein, so eindeutig sind Zuweisungen nicht möglich. Eindeutig war der sozialistische Anspruch von
+Chavez. Aber was ist aus diesem Anspruch geworden, den Chavez-Nachfolger Nicolás Maduro
+jetzt mit Gewalt gegen die Mehrheit der Bevölkerung halten will? Ist das noch Sozialismus oder ist
+das nur noch eine sozialistisch verkleidete Oligarchie? Man kann gegen den Herausforderer Juan
+Guaidó, der sich zum Gegenpräsidenten erklärt hat, einwenden, er sei eine Marionette der USA,
+aber man kann nicht leugnen, dass seine Opposition aus der tatsächlichen Not der Bevölkerung
+erwächst und weiter wachsen wird, wenn keine tatsächliche Hilfe zustande kommt.
+
+  - Da sind die USA, die schon länger an einem Regime Change in Venezuela arbeiteten und mit der
+aktuellen Zuspitzung der Konflikte im Lande jetzt die Gelegenheit gekommen sahen, Guaidó aufzufordern, sich als Gegenpräsident zu outen. So konnte Donald Trump ihn umgehend anerkennen. Den USA folgten Kanada und die nicht sozialistischen Staaten Mittel- und Südamerikas.
+
+  - Da sind die Europäische Union und einzelne europäische Staaten wie Frankreich, Spanien und
+Deutschland, die Maduro ultimativ zu Neuwahlen aufforderten, andernfalls würden sie Guaidó
+ohne Legitimation durch Wahlen als neuen Präsidenten anerkennen
+
+
+-----
+
+  - Da sind schliesslich die Freunde Venezuelas vom anderen Lager — Russland, China, Türkei, der
+Iran, dazu Kuba, Nicaragua, Bolivien und Kolumbien, die sich für die Verteidigung der Souveränität Venezuelas stark machen.
+
+### Was verbindet, was trennt die Akteure?
+Die USA und ihre Follower fordern Demokratie. Im Namen der Demokratisierung halten sie sich für berechtigt, die Souveränität des Landes zu übergehen, indem sie Guaidó vor möglichen Wahlen als Präsidenten anerkennen, indem sie eine Invasion laut erwägen und ökonomischen Druck ausüben. Das aber
+heisst nichts anderes, als mit der Souveränität auch die Demokratie beiseite zu schieben.
+Die Europäer ergänzen dieses Spiel durch Ultimaten, mit denen sie vorzeitige Wahlen erzwingen wollen.
+Die deutsche Regierung in Person von Heiko Maas rechtfertigt sich dabei noch mit dem Argument, ein
+solches Vorgehen sei sonst nicht ihre Art, hier lägen aber „besondere Bedingungen“ vor.
+Die russisch-chinesische Front will die Souveränität Venezuelas, will das Völkerrecht gewahrt wissen,
+nimmt dafür aber — ohne sich dafür zu rechtfertigen — die Unterdrückung der Opposition des Landes in
+Kauf. Im Schlepptau Russlands und Chinas folgen die Türkei und der Iran. Kuba, Nicaragua und Bolivien
+schliessen sich dieser Front aus Gründen an, die aus alter sozialistischer Verbundenheit herrühren.
+Bei all dem ist gleichzeitig klar, dass die einen wie die anderen, jedenfalls die grossen Machtblöcke, mit
+ihren Positionen erklärtermassen wirtschaftliche Interessen wahrnehmen wollen — die USA mit Blick auf
+mögliche Revisionen der von Chavez seinerzeit vorgenommenen Verstaatlichung der Öl-Industrie, die
+Russen und Chinesen mit Blick auf die Kredite, die sie Venezuela unter Chavez und Maduro gewährt haben und die mit Öllieferungen noch abzugelten wären. Die Interessen der Europäischen Union und nicht
+zuletzt Deutschlands liegen, weniger offen benannt, aber bekanntermassen in einer Diversifizierung ihrer
+Ölgeschäfte, mit der sie ihre Abhängigkeit von Russland und dem mesopotamischen Raum verringern
+könnten.
+
+### Wo stimmen hier noch die Kriterien?
+Schaut man die Frontverläufe an, so passt da kaum etwas zueinander. Beginnen wir mit dem Westen. Hat
+der Westen eine einheitliche Strategie? Nein, hat er eindeutig nicht. „Make Amerika great again“ heisst
+inzwischen offensichtlich Rückzug der USA aus Syrien, selbst aus der NATO, erneute Konzentration auf
+ihren „Hinterhof“ in Südamerika, bei Aufrechterhaltung ihrer weltweiten Militärmacht als letztem Anker
+ihrer Dominanz.
+Eine Strategie — vergleichbar dem Plan des noch unter George W. Bush ausgearbeiteten „new american
+century“ ist das nicht mehr. Es geht nur noch um die Sicherung der eigenen Festung — was man natürlich auch Strategie nennen könnte, aber nicht unbedingt muss. Die Europäer sind kein aktiver Bestandteil
+dieser Strategie, eher schon Opfer, insofern sie des Schutzes der USA verlustig gehen. Ob sie für die Zukunft Vorteile daraus ziehen können, wenn sie sich wie jetzt wieder der US-Dominanz unterordnen, wird
+sich zeigen.
+Und was ist mit Russland, China, der Türkei und dem Iran? Wladimir Putin vertritt die Linie, die gegenwärtige Ordnung der Vereinten Nationen im eigenen Interesse vor dem Zerfall bewahren zu wollen. Gibt es
+darüber hinaus Gemeinsamkeiten zwischen diesen ungleichen Partnern? Nein, gibt es nicht, beziehungsweise nur soweit diese Ordnung auch den eigenen Interessen dieser Partner und der Aufrechterhaltung
+eines prekären Friedens dient. Ökonomisch befindet Russland sich auf der Überholspur hinter den USA,
+genereller hinter dem Westen, ohne überholen zu können.
+China, um im Bild zu bleiben, drückt auf derselben Spur von hinten auf Russland, um endlich überholen
+zu können. Die Türkei und Iran folgen noch weit abgeschlagen ohne Aussicht darauf, bald aufzuschliessen. Über die kleineren Akteure, die noch auf der Strecke sind, muss man an dieser Stelle nicht weiter
+sprechen.
+Aber alle, die führenden Mächte ebenso wie ihre Follower, reden irgendwie von „Demokratie“, innenpolitisch, wie auch in den internationalen Beziehungen — gemeint ist jedoch jeweils etwas vollkommen anderes. Dies allein wäre an sich nichts besonders Neues. Nach dem ersten Weltkrieg wurde die neue Weltordnung als Ordnung der unabhängigen Nationalstaaten konstituiert. Spätestens seitdem ziehen sich die
+Widersprüche zwischen Wort und Tat, also von Demokratie und Souveränität zu reden, aber Wirtschaft
+und Machtpolitik zu praktizieren, durch alle Ebenen der internationalen Politik, wenn man nicht überhaupt noch weiter in die Vergangenheit zurückgehen will. Lüge ist Politik, heisst es, vornehmer gesagt,
+Diplomatie. Das ist Standard.
+Es geht aber inzwischen um mehr. In dem aktuellen Vexierbild der um Venezuela herum stattfindenden
+Ereignisse wird bei genauem Hinsehen eines deutlich erkennbar: der absolute strategische Notstand der
+heutigen politischen Ordnung unter dem Vorzeichen der Auflösung des amerikanischen Zeitalters, wie es
+mit der Deklaration der Souveränität der Nationalstaaten nach dem ersten Weltkrieg unter Federführung
+der USA begründet wurde. Es fehlt den politischen Akteuren von heute jegliche Vorstellung davon, wie
+eine Welt, die sich in grenzüberschreitenden Monopolen entwickelt, jenseits der überlebten, aber immer
+
+
+-----
+
+noch gültigen nationalstaatlichen Organisation des Lebens aussehen könnte — wenn sie nicht von einem
+Weltpolizisten zusammengehalten wird.
+Wohlgemerkt, es geht um den aus dem letzten Jahrhundert stammenden Typ des einheitlichen Nationalstaates, der unter dem Anspruch steht, sämtliche Lebensbereiche einer Gesellschaft unter dem ökonomisch dominierten Monopol staatlicher Gewalt zu zentralisieren. Das ist ein Anspruch, der schon lange
+nicht mehr den Realitäten einer monopolisierten Weltwirtschaft entspricht, der aber immer noch die
+rechtliche, auch völkerrechtliche Form bildet, hinter welcher sich die tatsächlichen Verhältnisse verbergen.
+Die rücksichtslose Überschreitung dieser Form geschieht in Venezuela gegenwärtig vor den Augen der
+Welt. Die Verteidiger Guaidós, die Demokratie mit „humanitärer Invasion“ oder auch mit Ultimaten erzwingen wollen, bilden dabei nur die eine Seite. Die andere zeigt sich in der wohlwollenden Verteidigung
+der Souveränität durch China, Russland und in Massen auch durch die Türkei, von denen Venezuela abhängig ist und durch deren Unterstützung es in noch weitere Abhängigkeit kommt.
+Von souveränem Handlungsspielraum und Entwicklung von Demokratie im Inneren des Landes bleibt
+unter solchen Bedingungen nicht mehr viel.
+
+### Prekäres Patt
+Es zeigt sich jetzt in Venezuela, was in den zurückliegenden Jahren bereits in der Ukraine und danach in
+Syrien hervorgetreten ist: In der Zange zwischen der vorgeblichen Verteidigung der „Demokratie“ auf der
+einen Seite und der Verteidigung der „Souveränität“ auf der anderen wurde die tatsächliche Selbstbestimmung beider Länder, konkret der dort lebenden Menschen, zerquetscht. Das Gleiche wiederholt sich
+jetzt noch offener gegenüber Venezuela. Eine Lösung dieses Knotens ist beim Stand der internationalen
+Beziehungen nicht abzusehen, im besten Falle eine weitere Verfestigung des zurzeit herrschenden prekären globalen Patts, in dem sich die Hauptmächte heute gegenüberstehen, ohne Entscheidungen erzwingen zu können.
+Diese Entwicklung schreit nach neuen, in die Zukunft gerichteten Organisationsformen des Lebens zwischen Völkern und Staaten, die über die Fesseln der als Versammlung einheitlicher Nationalstaaten konstituierten Weltorganisation hinausführen. Der hilflose Appell des Generalsekretärs der Vereinten Nationen, António Guterres, die Souveränität Venezuelas zu achten, lässt diese Notwendigkeit in schmerzlicher
+Deutlichkeit erkennen.
+Gebraucht wird eine Organisationsidee, von „ oben“ wie von „unten“ ins Leben gebracht, die der realen
+Entwicklung globalisierter Wirtschafts- und Lebensweisen in einer Form Rechnung trägt, welche Produktion, Verteilung und Konsum in assoziativen, sich gegenseitig befördernden und kontrollierenden Strukturen an die Basis lokaler und regionaler Lebensräume zurückbindet, so wie sie das Lokale ins Globale einbringt. Dies würde Staaten reduzieren, besser gesagt, konzentrieren auf ihre Aufgabe als Rechtsverbände
+des realen Lebens vor Ort und ihnen — wie auch der übergreifenden Gemeinschaft solcher Staaten — die
+Rolle des Entwicklungshelfers für eine neue Struktur des Zusammenlebens zuweisen.
+Das wäre die Hilfe, die heute gebraucht wird. Damit könnte die Konkurrenz nationaler Staatsmonopole
+um Ressourcen und Einflusszonen, wie sie sich gegenwärtig wieder einmal, diesmal über Venezuela, zusammenzieht, der Geschichte überlassen werden. Stattdessen könnte die Eigenverantwortlichkeit und das
+Wohl der Menschen in kooperativen, grenzübergreifenden Zusammenhängen gefördert werden.
+Es ist klar, dass eine solche Entwicklung nicht aus dem Hut zu zaubern ist, weder aus lokalen Hüten noch
+aus übergeordneten. Aber klar ist auch, dass es Zeit ist für eine solche Entwicklung. Das lässt sich aus
+dem um Venezuela entstehenden Vexierbild aufs Neue unmissverständlich erkennen. Dies gilt unabhängig davon, ob sich Maduro oder Guaidó — konkreter gesagt: die Menschen Venezuelas — dem Druck von
+aussen jetzt noch einmal beugen müssen.
+Quelle: https://www.rubikon.news/artikel/brennpunkt-venezuela
+
+## Deutscher Herbst 2015. Essays zur politischen Entgrenzung
+
+Veröffentlicht am 31. Januar 2019Vera Lengsfeld
+
+Aus dem Vorwort:
+Mit Beginn der sogenannten „Flüchtlingskrise“, die eine Art Zäsur in der Geschichte Nachkriegsdeutschlands darstellt, ist – unabhängig von den irreversiblen Folgen – eine massive Spaltung quer durch Familien und Freundschaften zu beobachten, die sich auf der Ebene der Politik widerspiegelt.
+Dem „Rechtspopulisten“ steht der „Gutmensch“, dem „Menschenfeind“ der „Volksverräter“ gegenüber. In
+dieser extremen Polarisierung zweier unversöhnlicher Lager haben sich Politik und Medien von Anfang an
+fast unisono auf die Seite eines moralischen Universalismus gestellt, der jedes partikulare Interesse als
+nationalistisch, rassistisch oder „rechts“ verortete und seine Protagonisten als „Pack“, „Dunkeldeutschland“ oder „Hetzer“ in das gesellschaftliche Abseits stellte.
+
+
+-----
+
+In seinem berühmten, 1840 erschienenen Hauptwerk Über die Demokratie in Amerika beschreibt Alexis de
+Tocqueville die innere Logik des Ausgeschlossenwerdens in einer freien Welt: „Der Machthaber sagt hier
+nicht mehr: ‚Du denkst wie ich, oder du stirbst‘, er sagt: ‚Du hast die Freiheit, nicht zu denken wie ich;
+Leben, Vermögen und alles bleibt dir erhalten: aber von dem Tage an bist du ein Fremder unter uns. (…)
+Du wirst weiter bei den Menschen wohnen, aber deine Rechte auf menschlichen Umgang verlieren.“
+Zahlreiche Leserbriefe und E-Mails, die mich in den letzten Jahren auf meine regelmäßigen Artikel auf der
+„Achse“ erreichten, hatten die soziale Isolierung in Beruf, Familie oder Freundschaften zum Thema, die
+diejenigen wie ein Bannstrahl traf, die die staatlich verordnete Willkommenskultur – die zur alles entscheidenden Gretchenfrage wurde – nicht kritiklos begrüßten. Als Unmensch gekennzeichnet, fand der
+Skeptiker sich allabendlich der moralischen Abwertung in den öffentlich-rechtlichen Medien ausgesetzt.
+Seine Positionen und Einwände standen außerhalb der legitimen Diskursräume. Die damit einhergehende
+Vermeidung tabuisierter Themen führte schließlich dazu, dass viele es nicht mehr wagten, bestimmte
+Dinge auszusprechen. Am Ende stand dann das Verbot, sie überhaupt noch zu denken.
+Dieser Mechanismus prägt das kulturelle und politische Leben bei essentiellen Fragen in Deutschland
+nicht erst seit den Ereignissen des September 2015. In der unheilvollen Dynamik einer wachsenden
+„Schweigespirale“ besteht eine große Gefahr für demokratische Gesellschaften, denn das offensichtliche
+Verleugnen, Verdrängen und Schönreden essentieller Themen führt in letzter Konsequenz zu einer Entwicklung, die tatsächlichen rassistischen und rechtsextremen Kräften in die Hände spielt. Alle Politik und
+alle Diskussion, die uns vorschreiben will, in welchen Grenzen wir zu denken haben, ist eine Gefahr für die
+freie Meinung und den Austausch von Argumenten. Ob diese verfestigten Tabus nochmals ohne größere
+gesellschaftliche Konflikte rückgängig gemacht werden können, ist mehr als fraglich.
+Die erschreckende Abwesenheit jedes Ansatzes von Vernunft, Skepsis oder Reflexion in Politik und Medien angesichts der Masseneinwanderung Hunderttausender junger Männer aus den zerfallenden arabischen und afrikanischen Staaten ist in sich erklärungsbedürftig. Auch wenn Deutschland aufgrund seiner
+Geschichte vielleicht besonders anfällig ist: Länder wie Schweden, Dänemark, Holland oder Frankreich
+zeigen in aller Deutlichkeit, dass es sich hier um ein allgemeines Phänomen westeuropäischer Länder
+und Gesellschaften handelt. Eine geradezu groteske Realitätsverweigerung und eine mentale Disposition,
+die im „Fremden“ quasi den Erlöser von historischen Sünden und Verbrechen wie Kolonialismus oder
+Faschismus sieht, spielen sicher eine wichtige Rolle. Daneben sind es aber Opportunismus, Feigheit und
+eine fast grenzenlose Naivität, die von Beginn an einen unverstellten Blick auf die Folgen der Grenzöffnung verhinderten.
+
+Drei Jahre später werden die Konsequenzen aus der massenhaften Einwanderung tribalistischer, gewaltaffiner, patriarchaler und antisemitischer Gemeinschaften mit ihren mitgebrachten kulturellen Mustern
+immer sichtbarer.
+Damit erweitern sich auch die Grenzen des Sagbaren langsam, aber stetig. Fast alle Vertreter der „Willkommenskultur“ wollen heute nicht mehr an ihre euphorischen Prognosen im Herbst 2015 erinnert werden. Es ist zu vermuten, dass sie den einst Verfemten irgendwann ohne Scham erklären werden, doch
+auch alles immer schon kritisch gesehen zu haben.
+Am Ende wird wieder niemand dabei gewesen sein; man war ja selbst nur das Opfer seiner Gutgläubigkeit und Menschenliebe geworden. Niemand konnte vorhersehen, was kommen wird.
+(…) für jeden praktisch denkenden Menschen sind offensichtliche Zusammenhänge, etwa die zwischen
+steigender Kriminalität und einer ungeregelten Zuwanderung aus korrupten und gewalttätigen Gesellschaften, evident. Sie wurden und werden aber weiterhin geleugnet, wenngleich immer mehr Einsprengsel der Wirklichkeit den Weg in die (alternativen) Medien finden. Die Verkünder der Vorzüge von
+Weltoffenheit und Multikulturalismus werden zunehmend mit den Folgen ihrer humanitaristischen Ideologie konfrontiert.
+Da die Bereitschaft, die eigene Position in Frage zu stellen, nicht vorhanden und ein fundamentaler Fehler
+nicht einzugestehen ist, muss gegen jede Vernunft und Realität weiter relativiert und verharmlost werden.
+Die erzieherische Komponente gegenüber den Uneinsichtigen stand und steht dabei im Mittelpunkt, obwohl das heute letztlich nur noch Rückzugsgefechte sind. Bekanntlich sind letztere aber von besonderer
+Heftigkeit.
+Ein großer Teil des deutschen Journalismus hat seit dem September 2015 in der Pädagogisierung ihrer
+Leser, die allesamt auf eine „bunte Gesellschaft“, auf Weltoffenheit und Toleranz, verpflichtet werden sollten, ihre Bestimmung gefunden. Über die künftigen Aufgaben des Journalisten, genauer eigentlich: des
+politischen Aktivisten, war im Berliner Tagesspiegel zu lesen: „Das Projekt Aufklärung müsste also auf der
+anderen Seite im deutschen (europäischen) Inneren an tiefsitzenden soziokulturellen Einstellungen rühren und wäre als politische Bildungsaufgabe der von Amerikanern und Briten nach 1945 in Westdeutschland betriebenen ‘Reeducation’ vergleichbar.“ (…)
+
+
+-----
+
+Praktisch jedes Themenfeld wurde in diesem Land seit Jahren von unzähligen Tabus und Sprechverboten
+begleitet: Integration, Bildung, Asyl, Umwelt, Geschlechterverhältnisse, Kindererziehung, Kriminalität, Klimawandel, Gentechnik.
+Die Liste ließe sich endlos fortsetzen. Im Idealfall hat jeder die „richtige Meinung“ dazu, ja in allen diesen
+Fällen kann es im Prinzip nur eine richtige Meinung geben; alle anderen sind, am besten bei Strafe des
+gesellschaftlichen Ausschlusses, zu verbieten oder – die Macht dazu hat man noch nicht – unter Strafe zu
+stellen. Zumindest müssen die Protagonisten von „Fehlmeinungen“ in die rechte, rassistische, populistische, neoliberale oder unmoralische Ecke gestellt werden. Man kann einfach nicht für Atomkraft und Gentechnik oder _gegen eine weitere Zuwanderung aus islamisch geprägten Ländern sein; das ist entweder_
+krank (islamophob), oder es grenzt schon an ein Hassverbrechen.
+Die Meinung, es lebten zu viele nicht integrierbare Gruppen in Deutschland oder man fühle sich zunehmend fremd in seinem eigenen Land, darf ein aufrechter Demokrat nicht haben, und es muss ihr deshalb
+vehement mit moralischer Entrüstung und gesellschaftlicher Ächtung begegnet werden. Eine nüchterne
+Betrachtung der Realitäten und unmittelbaren Folgen der ungesteuerten Zuwanderung, die quer zu den
+moralischen Erwartungen liegt, fällt selbst schon unter das Verdikt von „Hate Speech.“
+Ein sachlicher und distanzierter Blick, etwa auf die horrenden Kosten der „Flüchtlingskrise“, gilt per se als
+menschenverachtend, da allein auf den ökonomischen Nutzen gerichtet, und trifft auf vehementen Widerstand desjenigen Teils der Öffentlichkeit, der medial den moralischen Raum vorgibt, innerhalb dessen
+man in Deutschland denken darf. (…)
+Längst ist der sogenannte Mainstream – nicht nur in Politik und Medien, auch in den <Geistes>- und Sozialwissenschaften, in Kirchen, Stiftungen und Verbänden – ein „politkorrektes Links“ geworden, das im
+Verdrängen und Verleugnen gesellschaftlicher Realitäten seine Bestimmung gefunden hat und sich nur
+noch um die richtige Gesinnung dreht. _Alle gesellschaftlichen Tabus, so der Medienwissenschaftler_
+Norbert Bolz, sind heute linke Tabus: Ausländerkriminalität, muslimischer Antisemitismus, Jugendgewalt
+etc.
+Der moralisch Überlegene kann sich stets sicher sein, dass er den Argumenten der Gegenseite kaum etwas entgegensetzen muss; in allen öffentlichen Talkshows ist er auch in ausreichender Überzahl vertreten. In den meisten Fällen kennen die „edlen Seelen“ (Siegfried Kohlhammer) auch niemanden mit einer
+anderen Meinung und wollen diese auch nicht hören. Mit „Rechten“ sollte man am besten nicht reden, es
+könnte ja sein, dass man selbst keine Argumente hat.
+(…)
+Es gibt aber (…) letztlich einen Verbündeten, der Hoffnung gibt: Die Wirklichkeit. Schon heute lassen sich
+bestimmte Entwicklungen und Folgen der grenzenlosen Einwanderung nicht mehr vollständig verleugnen.
+Über alternative Medien und Portale gelangen, trotz des verabschiedeten „Netzwerkdurchsetzungsgesetzes“, mehr und mehr Informationen an die Öffentlichkeit, auf die die Hauptmedien reagieren müssen und
+die sie nicht länger verschweigen können. Die konkreten Erfahrungen von Polizisten, Lehrerinnen, Flüchtlingshelfern, Ärzten, Krankenschwestern, die Erlebnisse ganz normaler Menschen, die in sozialen Brennpunkten leben (müssen), können auf Dauer nicht totgeschwiegen werden.
+Man darf bereits heute Wetten darauf abschließen, dass viele der einstmals verfemten Positionen der
+Regierungskritiker früher oder später übernommen werden, wenn der Druck der Verhältnisse zu stark
+wird.
+Der Kulminationspunkt ist wahrscheinlich schon jetzt überschritten, mit einem Kippen der Stimmung
+kann schnell und jederzeit – etwa durch ein einzelnes, unvorhersehbares Ereignis – gerechnet werden.
+Eine Prognose über das Wann ist unmöglich, aber der Protest gegen die „Merkelisierung der Politik“ (Rolf
+Peter Sieferle) wird stärker werden, je mehr Menschen von den Folgen der Masseneinwanderung betroffen sind und je stumpfer die „Rassismus- und Nazikarte“ allein durch ihre ubiquitäre Anwendung auf
+buchstäblich alle Kritiker der Willkommenskultur wird. Viele werden, auch das keine gewagte Prognose,
+bei einer allgemeinen Änderung der Stimmung sofort in das bis dorthin verachtete Lager überwechseln;
+bei manchen Journalisten und Politikern hat man dieses Gefühl schon heute. Die Wirklichkeit und die von
+ihr produzierten Folgen lassen sich, das mag ein Trost sein, auf Dauer nicht leugnen.
+Das „Postfaktische“, so die Grundthese in einem meiner Essays, hat aber die Eigenschaft, die eigenen
+Widersprüche als besondere Qualität zu verkaufen. So könnte es angesichts der ökonomischen und administrativen Stärke Deutschlands lange dauern, bis sich die Konsequenzen der gegenwärtigen Politik in
+aller Schärfe zeigen – in der historischen Betrachtung, siehe etwa die realsozialistischen Länder, vielleicht
+bis zu einer massiven wirtschaftlichen Krise und dem sukzessiven Zusammenbruch des Sozialstaates.
+Es bleibt am Ende die Frage, ob die bereits angestoßenen Entwicklungen noch eine Umkehr ermöglichen.
+Deutschland hat sich, wie die meisten westeuropäischen Staaten, in eine Lage gebracht, in der alle Errungenschaften der letzten Jahrzehnte fundamental in Frage gestellt sind. Wir müssen endlich anfangen
+darüber nachzudenken, was das für unser Zusammenleben und unsere Gesellschaft bedeutet. Dafür
+braucht es aber zuallererst eine ungeschminkte Analyse und Darstellung der Gegenwart, die sich an der
+
+
+-----
+
+Wirklichkeit, also an dem, _was ist, und nicht an dem,_ _was sein soll orientiert. Die nachfolgenden Essays_
+wollen dazu einen Beitrag leisten.
+
+Aus: Meschnig, Alexander: Deutscher Herbst 2015. Essays zur politischen Entgrenzung, S. 9-22, Manuscriptum
+Vom Autor zuletzt (gem. mit Parviz Amoghli): Siegen oder vom Verlust der Selbstbehauptung, Die Werkreihe von
+TUMULT (Band 5)
+Quelle: https://vera-lengsfeld.de/2019/01/31/deutscher-herbst-2015-essays-zur-politischen-entgrenzung/#more4019
+
+
+## Warum sind die Neo-Marxisten für offene Grenzen?
+
+
+Donnerstag, 31. Januar 2019, von Freeman um 08:00
+
+
+Der Parteienblock, der die BRD beherrscht, bestehend aus Schwarzen, Roten und Grünen, sowie die entsprechenden Parteienblöcke in den anderen EU-Ländern, haben sich gegen die arbeitende Bevölkerung
+Europas gewendet und sich entschieden, Millionen von "Migranten" aus der Dritten Welt zu importieren,
+die, wenn eingebürgert, dazu tendieren, Parteien zu wählen, die ihnen einen rundum versorgenden Wohlfahrtsstaat garantieren. Deswegen kommen die Fluchtsimulanten nach Europa, weil sie sich für Lau aushalten und an einen gedeckten Tisch setzen wollen. Ist ja irgendwie verständlich, wenn sie mit Geld und
+Sozialleistungen nach Europa gelockt werden.
+
+Da die landesverräterischen Globalisten, Kultur-Marxisten und Linksfaschisten die traditionell hart arbeitende heimische Bevölkerung und Wähler immer weniger vertreten und mit ihrer perversen Politik überzeugen können, haben sie eine neue Strategie entwickelt. Diese lautet, die bestehenden Wähler durch
+neue Wähler zu ersetzen, die sich mit Gratisgeschenken vom Staat kaufen lassen.
+
+So hat das Merkel-Regime verkündet, dass die illegal eingereisten Zuwanderer in der BRD erst einmal ihr
+Gebiss saniert bekommen. Merkels Gäste, die sich ab 15 Monaten unerlaubt in der BRD aufgehalten haben, steht der Zugang zu einer teuren Zahnbehandlung gratis offen. Bezahlen werden das die Kunden der
+
+
+-----
+
+Krankenkassen mit höheren Prämien. Das ist aber nur eine Gratisleistung von vielen, welche die Sozialschmarotzer bekommen, aber der Deutsche nicht.
+
+Laut den vom Bundesministerium für Arbeit und Soziales alljährlich veröffentlichten Zahlen stieg das
+"Sozialbudget" im Jahre 2015 auf einen neuen Rekord von 888,2 Milliarden Euro. Das war VOR der Einladung von Merkel an die Kulturbereicherer. Heute, vier Jahre später und nach über 1 Million neuern Leistungsempfängern gibt der Staat für "Soziales" sicher fast eine Billion Euro aus. Aber man weiss nichts
+Genaues, was daran liegt, niemand soll es genau wissen.
+
+Warum sollen die Steuerzahler die enormen Kosten nicht wissen? Weil die Kosten für Leistungen nach
+dem Asylbewerberleistungsgesetz explodiert sind. 43 Milliarden Euro waren laut Finanzminister Wolfgang
+Schäuble die "asylbedingten Kosten" des Bundes 2016 und 2017, also 21,5 Milliarden pro Jahr oder über
+20'000 Euro pro "Asylant". Aber das sagt er, und wir sollen es glauben.
+
+Mit diesen "Sozialleistungen", welche die heimische Bevölkerung erarbeitet und bezahlt, meinen sie, können sie mit der Zeit die demografische Zusammensetzung zu ihren Gunsten verändern, Wahlen gewinnen
+und an der Macht bleiben. Tatsächlich zeigen Untersuchungen des Wahlverhaltens, dass Wähler mit Migrationshintergrund eher Parteien wählen, die ihnen vieles versprechen und alles frei Haus servieren.
+
+Dazu kommt noch die junge Generation der Ultra-Liberalen, Schneeflocken, Gutmenschen und Weicheier,
+die auch die wählen, die ihnen einen Versorgerstaat mit Hartz IV (ALG II), Arbeitslosengeld, Wohngeld,
+BAföG & mehr bieten. Dann gibt es noch die ganze Schar der Beamten, die einen sicheren Arbeitsplatz
+haben und vom Staat Privilegien geniessen.
+
+Deswegen müssen die Grenzen offen bleiben, damit alle zukünftigen "Wähler" ungehindert reinströmen
+können, und es darf keinen Grenzschutz geben. Europa muss alle "Flüchtlinge" aufnehmen, die kommen
+wollen, deswegen auch der UN-Migrations-Pakt zur ungehinderten Völkerwanderung. EU-Staaten, die ihre
+Grenze schützen, wie Ungarn oder Italien, werden verteufelt und an den Pranger gestellt.
+
+Nach 8 Jahren Wohnsitz in Deutschland bekommen Ausländer den deutschen Pass. Aber es gibt auch
+Abkürzungen auf 7 und sogar 6 Jahre unter bestimmten Voraussetzungen. Diese Zeit geht schnell vorbei
+und dann dürfen die Neu-Deutschen wählen. Ja wen wohl dann?
+
+Es geht doch nicht um den vorübergehenden Schutz von "Flüchtlingen", die dann zurück in ihre Heimat
+gehen, sondern nur um permanente "Neuansiedlung".
+
+Noch extremer als in Europa ist diese Tendenz in den Vereinigten Staaten, wo der Wunsch von Trump,
+eine Mauer zu Mexiko zu bauen, mit allen Mitteln verhindert wird. Diese Mauer würde eine dramatische
+Reduktion der illegalen Einwanderung bedeuten, darf aber nicht passieren. Das würde den Plan der NeoMarxisten in den USA, eine demografische Veränderung zu ihren Gunsten zu realisieren, durchkreuzen.
+
+Wer sich für einen Grenzschutz und eine legale geregelte Einwanderung sich ausspricht, wird als Unmensch, Rassist und sogar Nazi bezeichnet.
+
+Wann wacht die Mehrheit der Arbeiterklasse (ich benutze ausdrücklich dieses Wort) endlich auf und realisiert, dass die etablierten Parteien sich einen Dreck um ihre Interessen und Bedürfnisse kümmern? Was
+haben die Christliche Union, die Sozialdemokraten und die Links-Grünen mit der arbeitenden Bevölkerung, welche die Last trägt, zu tun? NICHTS!!! Die haben sie vor mehr als 20 Jahren schon verraten und
+über Bord geworfen.
+
+Die einzigen, die jetzt aufgewacht sind und was tun, sind die Gelben-Westen in Frankreich. Sonst regt sich
+wenig Widerstand und Protest in Europa und in Täuschland sowieso nichts.
+
+Deswegen werden weder in Europa noch in Amerika die Verräter-Parteien einen Grenzschutz zulassen,
+denn wie gesagt, ihre Strategie ist eine zügellose Invasion und Umvolkung. Wir haben ja jetzt aktuell gesehen, Trump musste seinen Versuch, mit einem Shutdown die Finanzierung der Mauer durchzusetzen,
+aufgeben. Er ist ein so schwacher Präsident, der nur Befehle der Schattenmacht befolgen kann.
+
+Die Demoratten werden seine Mauer mit ihrer Mehrheit im Repräsentantenhaus bis zur Wahl nächstes
+Jahr verhindern, damit er keinen Erfolg verbuchen kann. Dabei wird mit dem Putschversuch in Venezuela
+
+
+-----
+
+und einer möglichen militärischen US-Intervention in Südamerika die Anzahl Menschen, die nach Norden
+in Richtung USA wandern, dramatisch steigen.
+
+
+**Wenn zwei das gleiche tun, ist es noch lange nicht dasselbe**
+
+
+Ist es aber nicht wieder eine typische Doppelmoral, dass genau die, welche sich gegen einen Grenzschutz
+in Europa und USA vehement aussprechen, die Mauern und Stacheldrahtzäune, die Israel errichtet hat,
+BEFÜRWORTEN. Ja, das Apartheid-Regime in Israel darf das zionistische Konstrukt vor "Infiltratoren" (ihre
+Beschreibung von Flüchtlingen) schützen und eine über 700 Kilometer lange Trennungsmauer quer
+durch Palästina errichten.
+
+Es ist völlig in Ordnung, wenn zum Beispiel Bethlehem komplett von einer Betonmauer mit Wachtürmen
+und Stacheldraht umgeben ist. Maria und Josef kämen heute nicht mehr in die Stadt rein, um das JesusKind auf die Welt zu bringen. Bethlehem ist völlig von der Aussenwelt abgeschnitten, so wie auch Gaza.
+Millionen von Palästinenser vegetieren im grössten Open-Air-Gefängnis der Welt dahin.
+
+
+-----
+
+Das zionistische Regime begründet diese Errichtung von Mauern und Stacheldrahtzäunen rund um Israel
+mit Sicherheitsbedürfnissen. Die bösen Eindringlinge müssen draussen bleiben. Die Demographie darf
+sich nicht so verändern, dass Israel kein jüdischer Staat mehr ist und die Moslems die Mehrheit bilden.
+
+Israel rühmt sich über den Erfolg des Grenzschutzes. Vor dem Bau der Grenzbefestigung zu Ägypten
+kamen 2011 über 17 000 afrikanische Migranten nach Israel. 2013 nach der Fertigstellung nur noch 43!
+
+Das Foto zeigt einen israelischen Soldaten auf der einen Seite und afrikanische möchtegerne Migranten sitzend auf
+der anderen in der Nähe des Dorfes Be'er Milcha an der Grenze zu Ägypten. Das ist dann keine Menschenrechtsverletzung und kein Rassismus, wenn es Israel macht.
+
+Jede Kritik an diesen Zäunen und Mauern wird als Antisemitismus bezeichnet.
+
+Also merke, Grenzschutz in Israel ist gut. Grenzschutz in Europa und USA ist schlecht. Mauern um Palästinenser
+einzusperren ist gut. Mauern um illegale Grenzübertreter auszusperren ist schlecht. Die Mauer um Deutschland zu
+teilen war schlecht. Die Mauer um Palästina zu teilen ist gut.
+-----------Wer immer noch nicht kapiert, was für eine Politik Merkel gegen die Interessen Deutschlands fährt, hier ihre Erklärung anlässlich der "Auszeichnung" mit dem Fulbright-Preis am Montag:
+
+
+-----
+
+Guckt mal, wer da rechts neben Merkel steht und blöd grinst. Es ist Christiane Amanpour, zuständig für
+internationale Politik und grösste Lügentante von CNN ... CIA NEWS NETWORK!
+
+Es hat doch mal geheissen, "Deutschland wird am Hindukusch verteidigt". Jetzt sagt Merkel, Deutschland
+muss die Interessen der USA in Afghanistan verteidigen, wegen Artikel 5 der NATO (Beistandsverpflichtung).
+
+Was für eine Lüge, denn Afghanistan hat NICHT die USA angegriffen (wann denn, wo denn?), sondern
+genau umgekehrt. Die USA und NATO, und damit auch Deutschland, führen dort einen Angriffskrieg und
+eine Besetzung schon seit 18 Jahren!!!
+
+Die USA haben nur das Interesse, die Rohstoffe des Landes auszubeuten (Uran und Gold) und den Drogenexport (Opium und Heroin) zu beherrschen. Das verteidigt die Bundeswehr dort.
+
+Und dann, der Preis, den Merkel bekommen hat, ist nach J. William Fulbright benannt, Senator für den
+Bundesstaat Arkansas von 1944 bis 1974. Er war Vorsitzender des Ausschusses für Aussenpolitik und hat
+diese massgeblich beeinflusst. Den Vietnam-Krieg hat er befürwortet, war also ein Kriegshetzer. Er war als
+Südstaatler auch ein Rassist, denn er war ein Anhänger der Rassentrennung und stimmte sowohl gegen
+den Civil Rights Act von 1964 als auch gegen den Voting Rights Act, der der schwarzen Bevölkerung in
+den USA das volle Wahlrecht zusprach.
+
+Der Fulbright-Preis ist deswegen ein völliger Widerspruch zum dem, was Merkel von sich gibt, und sie
+hätte ihn ablehnen müssen.
+
+Und hier die "Leine des Grauens" vor dem Kanzleramt, welche die Verbrechen der "Schutzsuchenden" in
+Deutschland darstellt. Eine Wäscheleine von 200 Metern mit aufgehängten und ausgedruckten Zeitungsartikeln über Verbrechensmeldungen. Ich kann das Video nicht einbetten, weil Youtube es verhindert,
+deshalb nur der Link. Quelle: http://alles-schallundrauch.blogspot.com/2019/01/warum-sind-die-neo-marxistenfur-offene.html#ixzz5eG41hoo4
+
+Glaube
+
+Glaube ist ein Versuch,
+etwas Unwirkliches
+als Wahrheit zu
+erklären.
+
+SSSC, 13. Juni 2011,
+
+13.40 h, Billy
+
+
+-----
+
+## Macht uns Russland nicht zum Feind – für eine Politik der Entspannung – der gemeinsamen Sicherheit und der Abrüstung
+**Gesendet: Freitag, 01. Februar 2019 um 16:56 Uhr Von: "NaturwissenschaftlerInnen-Initiative" info@natwiss.de**
+
+**Betreff: NaturwissenschaftlerInnen-Initiative Newsletter 1_19 | Macht uns Russland nicht zum Feind, Die Politik**
+gegenüber Russland war und ist immer umstritten – die deutsch-russischen Beziehungen sind ein Seismograf für den Friedensprozess in Europa.
+
+Das Verhältnis von Russland und dem Westen ist geprägt durch eine lange und wechselvolle Geschichte.
+Die Lehren dürfen nicht vergessen werden und sind ein Wegweiser für Gegenwart und Zukunft. Für Russland kam aus dem Westen meist nichts Gutes, von Napoleon über Hitler bis zur nuklearen Hochrüstung
+im Kalten Krieg. 27 Millionen Tote des Zweiten Weltkrieges bleiben unvergessen. Nach Beendigung der
+Ost-West-Konfrontation und der Charta von Paris für eine friedliche Ordnung in Europa wurden die Chancen auf eine echte Partnerschaft in einem „gemeinsamen Haus Europa“ vertan. Die Grundlagen dazu
+wurden untergraben durch Entwicklungen wie die NATO-Osterweiterung, die Stationierung der USRaketenabwehr oder den Kosovo-Krieg und andere Militär-interventionen.
+
+Mit westlicher Sieger-Mentalität, den Zurückweisungen und Degradierungen wurde Russland zu einem
+Feind gemacht, der nun seine eigenen Interessen auch gegen den Westen verfolgt und damit viel Kritik
+auf sich zieht. Nach innen der Umgang mit der Opposition, nach aussen die Stärkung na-tionalistischer
+Kräfte. Ein Grossteil der westlichen Presse wirkt dabei hemmungslos am Feindbild Russland mit. Nach
+dem Motto "Die Russen sind an allem schuld" wird Russland in massloser Weise für alles Mögliche verantwortlich gemacht, bis hin zur Destabilisierung Europas und einer Entscheidung von Wahlen in westlichen Ländern. Entwicklungen wie in der Ukraine oder in Syrien werden aus ihren historischen und aktuellen Bezügen gerissen. Die Dämonisierung Putins widerspricht einer rationalen und vernünftigen Politik,
+die einen Interessensausgleich anstrebt.
+
+Es gab und gibt aber auch eine andere Seite im Verhältnis zu Russland. Die nach wie vor vorhandene
+positive Grundstimmung gegenüber Russland in der deutschen Bevölkerung eröffnet Chancen für ein
+Klima des Friedens und eine gute Nachbarschaft. Trotz der Sanktionen gegen Russland bestehen nach
+wie vor Wirtschaftsbeziehungen, eine Energiepartnerschaft und auch vielfältige Kontakte in der Wissenschaft. Weiterhin gibt es auch sehr viele Städtepartnerschaften, Freundschaftsgesellschaften, wissenschaftliche und kulturelle Formen der Zusammenarbeit, bis hin zur „Volksdiplomatie“ für die friedliche
+Gestaltung internationaler Beziehungen.
+
+Um die Beziehungen auf eine solide Grundlage zu stellen, braucht es verschiedene Bausteine. Hierzu
+gehört die Wiederbelebung einer Politik gemeinsamer Sicherheit, in der eigene Sicherheit nur gewährleistet ist, wenn auch die Sicherheit der anderen Seite garantiert ist. Kooperative Strukturen verschweigen
+nicht, dass es unterschiedliche, ja gegensätzliche Interessen geben kann, die im Sinne einer friedlichen
+Koexistenz zum Ausgleich gebracht werden, statt Konflikte bis zum Krieg zu eskalieren. Um Gegensätze
+und Unterschiede zu überbrücken, Gemeinsamkeiten zu stärken und ein gegenseitiges Verständnis zu
+finden, sind Dialog, Verhandlungsbereitschaft und Kooperation, Kritik und Selbstkritik, Kompromissfähigkeit und verantwortungsvolle Diplomatie erforderlich. Dabei können auch Zivilgesellschaftliche Akteure
+und Aktivitäten wichtige Beiträge leisten, die auf Verständigung zielen statt auf Feinbildproduktion.
+
+Eine Verständigung mit Russland ist dringlich, da die lösungsorientierte Bewältigung der globalen Herausforderungen, vom Klimawandel über nachhaltige Entwicklung und Armutsbekämpfung bis zur Gerechtigkeit und internationalen Friedenssicherung, eine gemeinsame Verantwortung und solidarische Antworten
+erfordern. Menschenrechte, Demokratie, Gewaltenteilung und Parlamentarismus sind universelle Politik
+
+-----
+
+konzepte, die als Basis für Verständigung und Menschlichkeit dienen sollten, und nicht als Kampfbegriffe
+für gegenseitige Beschuldigungen.
+
+Es geht darum, militärische Aufrüstung zu stoppen, Spannungen abzubauen und durch Verhandlungen
+gegenseitiges Vertrauen aufzubauen. Abrüstung und die Zivilisierung von Konflikten sind unverzichtbare
+Bestandteile einer neuen Entspannungspolitik, die Krieg als Fortsetzung der Politik mit anderen Mitteln
+verhindert. Ein Kernelement bleibt die nukleare Abrüstung. Statt bestehende Abrü-stungsabkommen wie
+den INF-Vertrag aufzukündigen, ist das Verbot und die Abschaffung von Atomwaffen das Gebot der Stunde und die sicherste Möglichkeit, einen Atomkrieg in einer fragilen Weltlage zu verhindern.
+
+Das ist Russlandpolitik im 21. Jahrhundert. Geschichtliche Erfahrungen und Lösungskonzepte wie die von
+Willy Brandt realisierte Entspannungspolitik müssen genutzt und weiterentwickelt werden, statt sie immer
+weiter zu entleeren.
+
+**Internationale Münchner Friedenskonferenz**
+
+Am 9. und 15.17.2. fand die 17. Internationale Münchner Friedenskonferenz statt. Die NaturwissenschaftlerInnen-Initiative gehört zum Trägerkreis der Friedenskonferenz. Daher möchten wir Sie auf das diesjährige Programm aufmerksam machen.
+Hier können Sie das Programm und das Plakat der Veranstaltung als PDF herunterladen >
+
+**Wissenschaft zwischen Krieg und Frieden**
+Wir möchten Sie noch einmal auf die Veröffentlichung der Vorträge des Kongresses "Wissenschaft zwischen Krieg und Frieden: Was können Wissenschaftlerinnen und Wissenschaftler für den Frieden tun?"
+hinweisen, der vom 15.-16.06.18 in der Technischen Universität Berlin stattgefunden hat.
+Alle Beiträge und das Programm des Kongresses finden Sie hier: http://natwiss.de/wissenschaftzwischen-krieg-und-frieden/
+Folgende Beiträge können Sie sich als Video ansehen:
+
+
+-----
+
+- Kein Krieg ohne Wissenschaft – keine Wissenschaft ohne Krieg? Die Wissenschaft als Teil organisierter Gewalt und ihr kritisches Gegenüber: Lothar Brock (VDW)
+
+- Atomwaffen: von der Sicherheitslogik zur Friedenslogik: Alex Rosen (IPPNW)
+
+- Die Herausforderungen unserer Zeit – Kriege in der globalisierten Welt: Reiner Braun (NatWiss,
+IPB)
+
+- Militarisierung der Forschung in Deutschland und Europa: Claudia Haydt (IMI)
+
+- Zivilklausel in Deutschland und in Japan: Hartwig Hummel (Uni Düsseldorf, W&F)
+
+- Podiumsdiskussion: Wissenschaft zwischen Krieg und Frieden
+
+- Wissenschaft und Frieden (exemplarische Bsp.) | Berichte aus den Gesprächsrunden
+
+- Friedensforschung und ihre Ambivalenz: Werner Ruf (Friedensforscher)
+
+- Klimakonflikte und Beiträge der Wissenschaft zum nachhaltigen Frieden: Jürgen Scheffran (NatWiss)
+
+- Was können die Gewerkschaften für den Frieden tun?: Marlis Tepe (GEW)
+
+- Verantwortung der Wissenschaft in Zeiten zunehmender Militarisierung: Sybille Brosius (NatWiss)
+
+
+Himmel und Hölle
+
+Himmel und Hölle sind der
+innere Zustand des Menschen
+– seine Liebe und sein Hass.
+SSSC, 22. Januar 2012
+
+12.43 h  Billy
+
+## Petition für weltweite Geburtenregelungen – Text jetzt in Chinesisch, traditionelle und vereinfachte Version
+
+(Petition erreichbar bei http://chn.ge/1bSmBDH bzw. https://www.change.org/p/weltweitegeburtenregelungen-verbindlich-einfügen Chren-introduce-obligatory-worldwide-birth-controls)
+
+
+-----
+
+|Col1|Traditionelles Chinesisch|
+|---|---|
+|Deutsch/German|Chinese Traditional 中文繁體|
+|Die Erde ist krank – Diagnose: Überbe- völkerung – Weltweite Geburtenregelun- gen sind dringend erforderlich Ein guter Arzt heilt seinen Patienten wirk- sam und nachhaltig, indem er die Ursa- che einer Krankheit korrekt diagnostiziert, dann das Leiden an der Wurzel bekämpft, um es möglichst dauerhaft zu beseitigen. Durch die Ausschaltung des krankheits- verursachenden Faktors wird der Patient geheilt und wieder gesund – der Arzt hat seine Arbeit richtig und gut gemacht. Ein Arzt jedoch, der die Ursache eines körper- lichen oder psychischen Leidens eines Patienten kennt, aber trotz einer eindeuti- gen Diagnose nichts dagegen unternimmt, handelt fahrlässig, verantwortungslos und letzten Endes menschenverachtend, weil er wider besseres Wissen nur die Symp- tome des Leidens behandelt, wodurch er den Kranken von sich abhängig macht und sich an seinem Leiden bereichert. Ähnlich verhält es sich mit dem „Gesund- heitszustand“ unserer Heimatwelt. Wir sind für die Erde, alles darauf existierende Leben und die gesamte Natur dieses wunderschönen Planeten verantwortlich. Unsere Erde leidet zunehmend an den Folgen der Überbevölkerung. Die dadurch hervorgerufenen Folgen beruhen auf dem durch vermehrten CO -Ausstoss 2 verursachten Treibhauseffekt. Die ver- heerenden Auswirkungen erleben wir nun in Form des Klimawandels, von zu- nehmenden Naturkatastrophen, Unwet- tern, Vulkanausbrüchen, Erdbeben, Hun- gersnöten, Kriegen, Völkerwanderungen usw. Im zwischenmenschlichen Bereich zeigen sich die Folgen der Überbevölkerung in Form einer allgemeinen Degeneration der Menschen, an Werteverlust, Zerstörung der zwischenmenschlichen Beziehungen und vielem mehr an Übeln. Die Regieren- den, Politiker und sonstig Verantwortli- chen, wozu im Grunde genommen jeder einzelne Mensch gehört, handeln zumeist nicht als verantwortungsvoll denkender und mitfühlender „Arzt“ des Patienten Erde. Stattdessen wird weiterhin nur dis- kutiert und geredet, wie zuletzt auf dem|地球患病的原因是：「人口過剩」，我們急 需一個全球性的生育管制措施。 一位良醫會準確地診斷出其病人的病因並整 治及盡可能地根除病痛的根源。在清除了病 因之後，病人也就得以擺脫病痛而痊癒，而 醫生亦功德圓滿。 然而，儘管醫者是華佗再世，當他通過診斷 而清晰地確知病人的病因之後卻不對症下藥 ，而祇是頭痛醫頭，腳痛醫腳，造成病人倚 賴成性及病況惡化，這就是疏忽、失責與有 損醫德。 我們在這美麗星球上土生土長，對一切生物 與大自然生態都負有一定的責任。而我們地 球的「健康狀態」亦有藥不對症的情況。 我們的地球正面臨由「人口過剩」所帶來的 惡果。這是由於二氧化碳的排放造成了溫室 效應。全球暖化、天災頻仍、氣候不穩、火 山爆發、地震、饑荒、戰爭、族群流離失所 …等都是災難性的惡果。 市區人口過度擠迫的情況導致人性的普遍敗 壞、失去價值觀、人際關係失和等多種棘手 的問題。作為公僕的管治階層、政客及部們 負責人對這些地球病患的表現都不如一個稱 職與仁愛的「醫生」。反之，他們仍在絮絮 不休、空談誤國，2012年的多哈世界氣候大 會就是一例。 明智與稱職的父母會為子女提供生活所需，|
+
+
+-----
+
+Welt-Klimagipfel 2012 in Doha. Ein kluges
+und verantwortungsbewusstes Elternpaar
+ist darauf bedacht, seinen Kindern ein
+menschenwürdiges Leben zu bieten. Es
+ist darum besorgt, jedem einzelnen Nachkommen genug Nahrung, eine gesunde
+Umwelt und ein Leben in Harmonie, Liebe, Frieden und Freiheit zu bieten. Es ist
+den Eltern bewusst, dass sie nie mehr
+Kinder zeugen sollten, als es verantwortbar und vernünftig ist, ganz gemäss der
+Lebensweisheit „Allzuviel ist ungesund“.
+
+Die Weltgemeinschaft jedoch handelt wider besseres Wissen gegen alle Vernunft
+und zerstört ihren Lebensraum, die Nahrung und Umwelt, und damit die Menschenwürde, die Harmonie, den Frieden
+und das Leben selbst. Sie missachtet die
+Lebens- und Naturgesetze und treibt die
+weltweite Überbevölkerung in immer
+grössere Höhen.
+
+**Alle** **Verantwortungsbewusste** **müssen**
+**daher erkennen und öffentlich darüber**
+**sprechen, dass die Hauptursache aller**
+**grossen Übel auf der Erde in der horren-**
+**den** **weltumspannenden** **Überbevölke-**
+**rung liegt, an deren Folgen der Mensch**
+**zu ersticken droht – es sei denn, er greift**
+**zum einzig ursächlich wirkenden Ge-**
+**genmittel, nämlich zu weltweit gültigen**
+**restriktiven, aber humanen Geburtenkon-**
+**trollen!**
+
+Die offensichtliche Ursache aller lebenund umweltzerstörenden Auswirkungen,
+nämlich die enorme Überbevölkerung der
+Erde durch den Menschen, wurde auch
+bei den zurückliegenden Klimakonferenzen nicht offen angesprochen, weshalb
+auch keine greifende Massnahmen in
+Form von Geburtenregelungen beschlossen wurden, die die Folgen des Klimawandels noch abschwächen könnten.
+
+**Ein Aufruf zum Handeln an alle Regie-**
+**renden, Politiker und alle Verantwortli-**
+**chen in allen Bereichen der Welt:**
+
+Der Mensch trägt durch sein umweltzerstörendes Verhalten eine grosse Mitschuld
+an der drohenden Tragweite der Klimakatastrophe, die im schlimmsten Fall die
+gesamte Menschheit technisch und bewusstseinsmässig auf das Steinzeitniveau
+zurückschleudern oder gar völlig ausrotten kann. Alles Leben ist aufgebaut auf
+dem Naturgesetz von Ursache und Wirkung, nur will der Mensch in seiner
+Dummheit und Gleichgültigkeit dieses
+
+
+會給予下一代足夠的食物及一個健康、和諧
+、關愛、和平與自由的生活環境。古有名訓
+：「過猶不及」，家長們都清楚知道不應該
+不負責任地、不合理地過度生育。
+
+然而，世界各國都在違反常理地破壞自身的
+棲息地、食物鏈與生態環境，與此同時，亦
+因此喪失了人類的尊嚴、和諧、和平與生活
+質素。人們無視大自然與生命的規律，將全
+球「人口過剩」的劣績推至歷史新高。
+
+因此，所有公職人員都應該認清及宣傳這個
+地球的萬惡之源 - 「災難性的全球人口過剩
+」，它將會令全人類窒息而死，除非實施那
+唯一的解決辦法 - 建立全球性的、人性化的
+生育管制！
+
+在最近的氣候會議之中，並沒有公開地提出
+那人為的、「災難性的全球人口過剩」，才
+是毀滅一切生命與生態的主要原因；如此一
+來，也就沒有建立例如生育管制等有效的應
+對方案以減輕氣候畸變所帶來的影響。
+
+我們對全球的管治者、政治家及崗位負責人
+作出呼籲：
+
+人類那摧毁生態環境的行徑，對即將到來的
+氣候大災難必須負上罪責，在最差的情況之
+下，整體人類的科技與意識將會退化回石器
+時代，或甚至會整體滅絕。
+
+
+-----
+
+|nicht erkennen und nicht danach han- deln, wodurch er sehr viel Unheil von sich abwenden könnte. Dringend von Not sind jetzt Realitätssinn, Verstand, Vernunft und konsequentes Handeln zum Wohl der Umwelt und zum Schutz unseres Plane- ten, der unsere Heimatwelt ist. Die Zeit zum Handeln ist für die Regierenden so- wie für die Politiker und Verantwortlichen in allen Bereichen längst gekommen. Sprechen Sie endlich öffentlich über die Notwendigkeit von weltweiten Geburten- regelungen und streben Sie danach, schnellstmöglich Gesetze zu beschlies- sen und zu erlassen, die das Bevölke- rungswachstum nachhaltig einschränken und die Weltbevölkerung dauerhaft redu- zieren. Der Appell an alle Verantwortlichen an allen Schalthebeln der Macht lautet: Bemühen Sie sich im Kampf gegen die drohende Klimakatastrophe, nicht einfach nur die Symptome der Klimakatastrophe zu bekämpfen, sondern nennen Sie end- lich die Wurzel des Übels bei ihrem wirk- lichen Namen „Überbevölkerung“, und streben Sie weltweite und rigorose Ge- burtenregelungen an. Tatsächlich kann nur dadurch das Allerschlimmste der Klimakatastrophe vielleicht noch verhin- dert werden, wenn die Ursache derselben bekämpft wird, nämlich die weltweite Überbevölkerung. Deutsch/German|全球一切生命體都服膺於大自然的「因果」 規律，祇有人類是如此愚昧與冷漠，他不願 意認清現實及採取相應的行動來避免災難的 發生。 為了保護我們的星球、亦即人類的家園，現 時迫切的需要是面對現實、講理、了解真相 及實施持續的環境保育行動。其實，全球的 管治者、政治家及崗位負責人早就應該有所 行動了。 現實是有必要公開宣講全球生育管制的迫切 性，必須盡快制訂法例及實施法案去持續性 地限制人口增長，並永久性地減低全球人口 。 我們向所有的崗位負責人作出公開呼籲： 不要以頭痛醫頭、腳痛醫腳的取態來應付那 些即將要到來的氣候大災難，必定要劍指那 萬惡之源 - 「人口過剩」，致力構建一個全 球性的、進取性的生育管制方案。事實上， 祇有消弭「全球人口過剩」這個方法，才可 以有機會使最壞的氣候大災難免於上演。 Vereinfachtes, simples Chinesisch Chinese Simplified 中文简体|
+|---|---|
+
+
+**Die Erde ist krank – Diagnose: Überbe-**
+**völkerung - Weltweite Geburtenregelun-**
+**gen sind dringend erforderlich**
+
+Ein guter Arzt heilt seinen Patienten wirksam und nachhaltig, indem er die Ursache einer Krankheit korrekt diagnostiziert,
+dann das Leiden an der Wurzel bekämpft,
+um es möglichst dauerhaft zu beseitigen.
+Durch die Ausschaltung des krankheitsverursachenden Faktors wird der Patient
+geheilt und wieder gesund – der Arzt hat
+seine Arbeit richtig und gut gemacht. Ein
+Arzt jedoch, der die Ursache eines körper
+
+地球患病的原因是：「人口过剩」，我们急
+需一个全球性的生育管制措施。
+
+一位良医会准确地诊断出其病人的病因并整
+治及尽可能地根除病痛的根源。在清除了病
+因之后，病人也就得以摆脱病痛而痊愈，而
+医生亦功德圆满。
+
+然而，尽管医者是華佗再世，当他通过诊断
+而清晰地确知病人的病因之后却不對症下
+药，而祇是头痛医头，脚痛医脚，造成病人
+倚赖成性及病况恶化 这就是疏忽 失责与
+
+
+-----
+
+lichen oder psychischen Leidens eines
+Patienten kennt, aber trotz einer eindeutigen Diagnose nichts dagegen unternimmt,
+handelt fahrlässig, verantwortungslos und
+letzten Endes menschenverachtend, weil
+er wider besseres Wissen nur die Symptome des Leidens behandelt, wodurch er
+den Kranken von sich abhängig macht
+und sich an seinem Leiden bereichert.
+
+Ähnlich verhält es sich mit dem „Gesundheitszustand“ unserer Heimatwelt. Wir
+sind für die Erde, alles darauf existierende
+Leben und die gesamte Natur dieses
+wunderschönen Planeten verantwortlich.
+
+**Unsere Erde leidet zunehmend an den**
+**Folgen** **der** **Überbevölkerung.** **Die**
+**dadurch hervorgerufenen Folgen beruhen**
+**auf dem durch vermehrten CO2-Ausstoss**
+**verursachten Treibhauseffekt. Die ver-**
+**heerenden Auswirkungen erleben wir**
+**nun in Form des Klimawandels, von zu-**
+**nehmenden Naturkatastrophen, Unwet-**
+**tern, Vulkanausbrüchen, Erdbeben, Hun-**
+**gersnöten, Kriegen, Völkerwanderungen**
+**usw.**
+
+Im zwischenmenschlichen Bereich zeigen
+sich die Folgen der Überbevölkerung in
+Form einer allgemeinen Degeneration der
+Menschen, an Werteverlust, Zerstörung
+der zwischenmenschlichen Beziehungen
+und vielem mehr an Übeln. Die Regierenden, Politiker und sonstig Verantwortlichen, wozu im Grunde genommen jeder
+einzelne Mensch gehört, handeln zumeist
+nicht als verantwortungsvoll denkender
+und mitfühlender „Arzt“ des Patienten
+Erde. Stattdessen wird weiterhin nur diskutiert und geredet, wie zuletzt auf dem
+Welt-Klimagipfel 2012 in Doha. Ein kluges
+und verantwortungsbewusstes Elternpaar
+ist darauf bedacht, seinen Kindern ein
+menschenwürdiges Leben zu bieten. Es
+ist darum besorgt, jedem einzelnen Nachkommen genug Nahrung, eine gesunde
+Umwelt und ein Leben in Harmonie, Liebe, Frieden und Freiheit zu bieten. Es ist
+den Eltern bewusst, dass sie nie mehr
+Kinder zeugen sollten, als es verantwortbar und vernünftig ist, ganz gemäss der
+Lebensweisheit „Allzuviel ist ungesund“.
+
+Die Weltgemeinschaft jedoch handelt wider besseres Wissen gegen alle Vernunft
+und zerstört ihren Lebensraum, die Nahrung und Umwelt, und damit die Menschenwürde, die Harmonie, den Frieden
+
+
+有损医德。
+
+我们在这美丽星球上土生土长，对一切生物
+与大自然生态都负有一定的责任。而我们地
+球的「健康状态」亦有药不对症的情况。
+
+我们的地球正面临由「人口过剩」所带来的
+恶果。这是由于二氧化碳的排放造成了温室
+效应。全球暖化、天灾频仍、气候不稳、火
+山爆发、地震、饥荒、战争、族群流离失
+所…等都是灾难性的恶果。
+
+市区人口过度挤迫的情况导致人性的普遍败
+坏、失去价值观、人际关系失和等多种棘手
+的问题。作为公仆的管治阶层、政客及部们
+负责人对这些地球病患的表现都不如一个称
+职与仁爱的「医生」。反之，他们仍在絮絮
+不休、空谈误国，2012年的多哈世界气候大
+会就是一例。
+
+明智与称职的父母会为子女提供生活所需，
+会给予下一代足够的食物及一个健康、和
+谐、关爱、和平与自由的生活环境。古有名
+训：「过犹不及」，家长们都清楚知道不应
+该不负责任地、不合理地过度生育。
+
+然而，世界各国都在违反常理地破坏自身的
+栖息地、食物链与生态环境，与此同时，亦
+因此丧失了人类的尊严、和谐、和平与生活
+素质。人们无视大自然与生命的规律，将全
+球「人口过剩」的劣绩推至历史新高。
+
+
+-----
+
+und das Leben selbst. Sie missachtet die
+Lebens- und Naturgesetze und treibt die
+weltweite Überbevölkerung in immer
+grössere Höhen.
+
+**Alle Verantwortungsbewussten müssen**
+**daher erkennen und öffentlich darüber**
+**sprechen, dass die Hauptursache aller**
+**grossen Übel auf der Erde in der horren-**
+**den** **weltumspannenden** **Überbevölke-**
+**rung liegt, an deren Folgen der Mensch**
+**zu ersticken droht – es sei denn, er greift**
+**zum einzig ursächlich wirkenden Ge-**
+**genmittel, nämlich zu weltweit gültigen**
+**restriktiven, aber humanen Geburtenkon-**
+**trollen!**
+
+Die offensichtliche Ursache aller lebenund umweltzerstörenden Auswirkungen,
+nämlich die enorme Überbevölkerung der
+Erde durch den Menschen, wurde auch
+bei den zurückliegenden Klimakonferenzen nicht offen angesprochen, weshalb
+auch keine greifenden Massnahmen in
+Form von Geburtenregelungen beschlossen wurden, die die Folgen des Klimawandels noch abschwächen könnten.
+
+**Ein Aufruf zum Handeln an alle Regie-**
+**renden, Politiker und alle Verantwortli-**
+**chen in allen Bereichen der Welt:**
+
+Der Mensch trägt durch sein umweltzerstörendes Verhalten eine grosse Mitschuld
+an der drohenden Tragweite der Klimakatastrophe, die im schlimmsten Fall die
+gesamte Menschheit technisch und bewusstseinsmässig auf das Steinzeitniveau
+zurückschleudern oder gar völlig ausrotten kann. Alles Leben ist aufgebaut auf
+dem Naturgesetz von Ursache und Wirkung, nur will der Mensch in seiner
+Dummheit und Gleichgültigkeit dieses
+nicht erkennen und nicht danach handeln, wodurch er sehr viel Unheil von sich
+abwenden könnte. Dringend von Not sind
+jetzt Realitätssinn, Verstand, Vernunft und
+konsequentes Handeln zum Wohl der
+Umwelt und zum Schutz unseres Planeten, der unsere Heimatwelt ist. Die Zeit
+zum Handeln ist für die Regierenden sowie für die Politiker und Verantwortlichen
+in allen Bereichen längst gekommen.
+
+**Sprechen Sie endlich öffentlich über die**
+**Notwendigkeit von weltweiten Geburten-**
+**regelungen und streben Sie danach,**
+**schnellstmöglich Gesetze zu beschlies-**
+**sen und zu erlassen, die das Bevölke-**
+**rungswachstum nachhaltig einschränken**
+
+
+因此，所有公职人员都应该认清及宣传这个
+地球的万恶之源 **-** 「灾难性的全球人口过
+剩」，它将会令全人类窒息而死，除非实施
+那唯一的解决办法 - 建立全球性的、人性化
+的生育管制！
+
+在最近的气候会议之中，并没有公开地提出
+那人为的、「灾难性的全球人口过剩」，才
+是毁灭一切生命与生态的主要原因；如此一
+来，也就没有建立例如生育管制等有效的应
+对方案以减轻气候畸变所带来的影响。
+
+我们对全球的管治者、政治家及岗位负责人
+作出呼吁：
+
+人类那摧毁生态环境的行径，对即将到来的
+气候大灾难必须负上罪责，在最差的情况之
+下，整体人类的科技与意识将会退化回石器
+时代，或甚至会整体灭绝。
+
+全球一切生命体都服膺于大自然的「因果」
+规律，祇有人类是如此愚昧与冷漠，他不愿
+意认清现实及采取相应的行动来避免灾难的
+发生。
+
+为了保护我们的星球、亦即人类的家园，现
+时迫切的需要是面对现实、讲理、了解真相
+及实施持续的环境保育行动。其实，全球的
+管治者、政治家及岗位负责人早就应该有所
+行动了。
+
+
+-----
+
+|und die Weltbevölkerung dauerhaft redu- zieren. Der Appell an alle Verantwortlichen an allen Schalthebeln der Macht lautet: Bemühen Sie sich im Kampf gegen die drohende Klimakatastrophe, nicht einfach nur die Symptome der Klimakatastrophe zu bekämpfen, sondern nennen Sie end- lich die Wurzel des Übels bei ihrem wirk- lichen Namen „Überbevölkerung“, und streben Sie weltweite und rigorose Ge- burtenregelungen an. Tatsächlich kann nur dadurch das Allerschlimmste der Klimakatastrophe vielleicht noch verhin- dert werden, wenn die Ursache derselben bekämpft wird, nämlich die weltweite Überbevölkerung.|现实是有必要公开宣讲全球生育管制的迫切 性，必须尽快制订法例及实施法案去持续性 地限制人口增长，并永久性地减低全球人 口。 我们向所有的岗位负责人作出公开呼吁： 不要以头痛医头、脚痛医脚的取态来应付那 些即将要到来的气候大灾难，必定要剑指那 万恶之源 - 「人口过剩」，致力构建一个全 球性的、进取性的生育管制方案。事实上， 祇有消弭「全球人口过剩」这个方法，才可 以有机会使最坏的气候大灾难免于上演。|
+|---|---|
+
+
+Vielen Dank für die Vermittlung der Übersetzung an Fredrik Göransson von der FIGU-Studiengruppe
+Schweden!
+Der Name des Übersetzers ist bekannt; dieser möchte jedoch nicht namentlich genannt werden. Auch
+ihm besten Dank!
+Achim Wolf, Deutschland
+
+## Überbevölkerung – der galoppierende Wahnsinn der Erdenmenschheit
+
+**Jeden Tag (!) kommen nach offiziellen Angaben 270.000 Menschen auf der Erde dazu, das entspricht**
+ungefähr der gesamten Einwohnerzahl des Bezirkes Friedrichshain-Kreuzberg in Berlin.
+**Jedes Jahr wächst die Erdbevölkerung um mindestens 100 Millionen Menschen. Das entspricht der**
+**Bevölkerung von ganz Deutschland.**
+
+**Von der Erde verkraftbar wären ca. 1,5 Milliarden Menschen. Die Zahl der Erdenmenschen lag im Okto-**
+ber 2018 offiziell bei rund 7,6 Milliarden Menschen. Inklusive einer hohen Dunkelziffer nicht gezählter
+Menschen sind es vermutlich schon annähernd 9 Milliarden.
+**Hier der treffende Kommentar eines Befürworters der Petition bzw. Kampagne für weltweite Geburten-**
+**regelungen bei change.org:**
+
+Die Überbevölkerung der Erde ist eine gewaltige Katastrophe und zeigt das Bild eines egoistisch denkenden Menschen, der sich keinen Deut mehr um seine Umwelt schert und die Erfüllung der eigenen Wünsche zum obersten Prinzip seines Lebens erhoben hat. Die Qualität des zukünftigen Lebens aller Men
+
+-----
+
+schen ist untrennbar verbunden mit dem Zustand der Natur. Die ungehemmte Plünderung, Ausbeutung
+und damit einhergehende Zerstörung, Verwüstung und Vergiftung des Erdreichs, der Luft und des Wassers, ausgelöst durch den gewaltigen Bedarf an Nahrungsmitteln und Gütern aller Art einer immer noch
+explosionsartig wachsenden Bevölkerung, stellt die Menschen vor unlösbare Probleme. Überbevölkerung
+**ist kein Unwort, sondern die genaue Bezeichnung für eine nicht mehr von der Natur verkraftbare An-**
+**zahl von Menschen, hervorgerufen durch vernunftloses und verantwortungsloses Zeugen von Kindern.**
+In jedem Land sollten nur so viele Menschen leben, wie dieses aus eigener Kraft auch ernähren kann.
+Daneben müssen auch Fauna und Flora genügend Raum zur Entfaltung haben, um ihre lebenswichtigen
+Funktionen in einem gut funktionierenden Ökosystem erfüllen zu können. Daraus wird ersichtlich, dass
+sozusagen sämtliche Länder der Erde überbevölkert sind und etwas dagegen tun müssten. Die Eindäm**mung der Überbevölkerung bedeutet nicht, dass irgendwelche Menschen weg müssen und hat auch**
+**nichts mit Rassismus zu tun, sondern sie fordert vom Menschen, gleich welcher Hautfarbe, dass mit**
+**aller Kraft eine vernünftige Geburtenregelung angestrebt und durchgeführt werden muss, zum Wohle**
+**aller Menschen und allen Lebens auf unserem Planeten." (Wolfgang Stauber, Schweiz)**
+Die katastrophalen Folgen der Überbevölkerung werden hier aufgezeigt:
+https://www.change.org/p/weltweite-geburtenregelungen-verbindlich-einf%C3%BChren-introduceobligatory-worldwide-birth-controls/u/23864649
+
+Als Sofortmaßnahme braucht die Erde dringend einen7jährigen, totalen, also weltweiten Geburtenstopp,
+wie hier beschrieben:
+https://www.change.org/p/weltweite-geburtenregelungen-verbindlich-einf%C3%BChren-introduce-obligatoryworldwide-birth-controls/u/23793698
+Achim Wolf, Deutschland
+
+
+## USA: Russlands S-400 hindern uns an militärischen Operationen
+
+
+## von der Arktis bis in den Nahen Osten
+
+VON NOCH.INFO · VERÖFFENTLICHT 24/01/2019 · AKTUALISIERT 25/01/2019
+
+Das Pentagon musste zugeben, dass die russischen S-400-Luftabwehrsysteme die Operationen der USLuftwaffe im Ausland beeinträchtigt und man anders vorgehen müsse.
+Während der Westen damit beschäftigt war, Russland wegen seiner angeblichen „Desinformationskampagnen“, der „Einmischung in Wahlen“ und Giftmorde (Skripal) zu attackieren, hat Moskau damit begonnen, die Hoheit über den Luftraum in einer breiten Kette von der Ostsee bis hinunter nach Syrien herzustellen – und zwar mit der Stationierung von S-300 und S-400-Systemen.
+Nach einem neuen ausführlichen Bericht im Wall Street Journal hat das russische Flugabwehrsystem S400, von dem ein Großteil der westlichen Bevölkerung kürzlich im Zusammenhang mit Syrien gehört hat,
+„das Kalkül der USA und seiner Verbündeten“ in potenziellen Krisenherden verändert“, als Russland einen neuen Eisernen Vorhang „in Form einer Reihe wirksamer und weitreichender Luftabwehrsysteme
+errichtet hat, die sich von der Arktis bis in den Nahen Osten erstrecken.
+Laut der Zeitung hat das Pentagon nun zugegeben, dass man Flugrouten ändern und man sich genau
+überlegen muss, wo man in Bezug auf die Stationierung Kampfjets und Bomber einsetzen kann. Auf den
+Punkt gebracht, heißt es aus dem Pentagon: „Sie fordern unsere geopolitische Überlegenheit heraus.“
+Ein weiteres ähnliches Bekenntnis findet sich in einem Bericht des Kongresses, der von einer überparteilichen Kommission zur Bewertung der Verteidigungsstrategie des Weißen Hauses erstellt wurde. Wie im
+WSJ zitiert wurde, stellte die Kommission fest, dass Russland „nach regionaler Hegemonie und nach Mitteln sucht, um die Macht auf globale Ebene zu projizieren“, und dass dies bereits „die militärischen Vorteile der USA verringert und wichtige US-Interessen bedroht“.
+Obwohl die russischen Militärausgaben und -kapazitäten sowohl von den USA als auch von China noch
+immer in den Schatten gestellt werden (das Verteidigungsbudget Russlands beträgt etwa ein Zehntel der
+Größe jenes des Pentagons), war der strategische Einsatz des Kremls gegen die Macht der USA ausreichend, um Washington zu beunruhigen. Vor allem auch deshalb, weil andere Länder wie China, Indien,
+die Türkei und der Iran auf die russische Luftabwehrtechnik setzen.
+
+Für Moskau ist der Verkauf von S-400 an andere Länder eine gute Möglichkeit, die Kosten für die Beschränkung der US-amerikanischen Übermacht auf breite Schultern aufzuteilen, ohne sich selbst finanziell zu sehr verausgaben zu müssen. Oder wie es im WSJ heißt:
+Mit der Auftragserfüllung durch Russland entstehen durch die Ausdehnung der S-400-Barriere Barrieren,
+die die jahrzehntelange uneingeschränkte Luftüberlegenheit der USA im Nahen Osten, in der Arktis und
+in Teilen Asiens bedrohen. Durch den Verkauf der S-400 an andere Länder verteilte Russland die Kosten
+für die Einschränkung der US-Streitkräfte.
+
+
+-----
+
+Obwohl die russischen Militärausgaben und -kapazitäten sowohl von den USA als auch von China noch
+immer in den Schatten gestellt werden (das Verteidigungsbudget Russlands beträgt etwa ein Zehntel der
+Größe jenes des Pentagons), war der strategische Einsatz des Kremls gegen die Macht der USA ausreichend, um Washington zu beunruhigen. Vor allem auch deshalb, weil andere Länder wie China, Indien,
+die Türkei und der Iran auf die russische Luftabwehrtechnik setzen.
+Für Moskau ist der Verkauf von S-400 an andere Länder eine gute Möglichkeit, die Kosten für die Beschränkung der US-amerikanischen Übermacht auf breite Schultern aufzuteilen, ohne sich selbst finanziell zu sehr verausgaben zu müssen. Oder wie es im WSJ heißt:
+Mit der Auftragserfüllung durch Russland entstehen durch die Ausdehnung der S-400-Barriere Barrieren,
+die die jahrzehntelange uneingeschränkte Luftüberlegenheit der USA im Nahen Osten, in der Arktis und
+in Teilen Asiens bedrohen. Durch den Verkauf der S-400 an andere Länder verteilte Russland die Kosten
+für die Einschränkung der US-Streitkräfte.
+„Russland will keine militärische Überlegenheit, aber es hat die Überlegenheit des Westens oder der USA
+beendet“, sagte Sergey Karaganov, außenpolitischer Berater von Putin. „Jetzt kann der Westen nicht
+mehr wahllos Gewalt anwenden.“
+Das Pentagon erklärte gegenüber dem WSJ als Antwort auf die Frage nach den wachsenden Verteidigungsfähigkeiten Russlands: „Die USA sind nach wie vor die herausragende militärische Macht der Welt
+und bauen ihre Beziehungen zu NATO-Verbündeten und Partnern weiter aus, um unseren strategischen
+Vorteil zu wahren“, sagte der Pentagon-Sprecher Eric Pahon. „Die USA und unsere Verbündeten verfügen
+über eine Reihe von Maßnahmen, um sicherzustellen, dass die Machtverhältnisse zu unseren Gunsten
+bleiben.“
+Doch: Ist dem tatsächlich so, oder sind das nur große leere Worte aus dem Rachen einer niedergehenden
+Supermacht? Man sollte allerdings nicht die Einflussmöglichkeiten des militärisch-industriellen Komplexes unterschätzen. Wenn man militärisch nicht gewinnen kann, nutzt man eben den Wirtschafts- und
+Finanzkrieg oder die Sabotage durch die Geheimdienste, um Regime-Changes durchzuführen oder zumindest solche zu versuchen.
+Quelle: https://noch.info/2019/01/usa-russlands-s-400-hindern-uns-an-militaerischen-operationen-von-der-arktisbis-in-den-nahen-osten/
+
+
+## Die Doppelmoral des Westens: Protest in Venezuela gut,
+
+
+## in Frankreich böse
+
+VON NOCH.INFO · VERÖFFENTLICHT 26/01/2019 · AKTUALISIERT 26/01/2019
+
+
+-----
+
+**„Die USA stehen auf deiner Seite“ – Wie Bolton und Pence den Venezuela-Putsch vorbereitet haben**
+
+
+Schon seit November 2018 suchte die US-Regierung nach Möglichkeiten, den widerspenstigen venezolanischen Präsidenten Nicolás Maduro aus dem Amt zu entfernen. Dabei mussten auch Hindernisse innerhalb der US-Administration überwunden werden. Ein Hintergund.
+Als der Nationale Sicherheitsberater der USA, John Bolton, Venezuela in einer Rede im November als Teil
+einer hemisphärischen „Troika der Tyrannei“ brandmarkte, kämpfte die Trump-Administration noch immer mit der Überlegung, wie weit sie bei einer Konfrontation mit dem sozialistischen Präsidenten des
+Landes, Nicolás Maduro, gehen sollte.
+Aber was in den letzten Tagen Gestalt angenommen hat, ist ein deutlich aggressiverer Ansatz, der auf der
+vollwertigen Unterstützung von Präsident Donald Trump für „Interimspräsident“ Juan Guaidó basiert und
+durch eine koordinierte diplomatische Reaktion vieler Nachbarn Venezuelas unterstützt wird, die schnell
+die Anerkennung der Herrschaft Maduros zurückziehen.
+
+
+**„Troika der Tyrannei“**
+
+
+Mit Beharrlichkeit haben sich die „Falken“ im Weissen Haus unter der Leitung von John Bolton und Vizepräsident Mike Pence durchgesetzt, unterstützt von gleichgesinnten rechtsgerichteten Präsidenten in Brasilien und Kolumbien.
+Bolton hat auch mit US-Aussenminister Mike Pompeo zusammengearbeitet, um eine einheitliche Front
+innerhalb der Regierung zu bilden, die notwendig war, um den Widerstand innerhalb des Aussenministeriums zu überwinden. Venezuela war dort seit langem ein Streitthema, wobei einige Diplomaten auf Dialog drängten und andere auf weitere Sanktionen setzten.
+Die Abreise des erfahrenen Diplomaten Tom Shannon im vergangenen Jahr, der den Dialog mit Caracas
+bevorzugte und oft zu Gesprächen mit Maduro entsandt wurde, half, die Tür für diejenigen zu öffnen, die
+einen schärferen Ansatz wollten, so US-Beamte.
+Bolton, bekannt für seine harte Haltung gegenüber der lateinamerikanischen Linken, legte die Grundlagen
+für den Regime Change schon lange vor Guaidós Aufstieg. In einer Rede im November in Miami, wo viele
+Einwanderer aus Kuba und Venezuela leben, versprach Bolton, dass die Vereinigten Staaten gegen die
+sogenannte „Troika der Tyrannei“ in der westlichen Hemisphäre – Kuba, Venezuela und Nicaragua – vorgehen würden.
+
+Bolton traf sich Ende November auch mit Jair Bolsonaro, dem damals designierten brasilianischen Präsidenten, und diskutierte, wie der rechtsgerichete Anführer mit den Vereinigten Staaten
+zusammenarbeiten könnte, um Venezuela unter Druck zu setzen. Brasilien war eines der ersten
+Länder, das Guaidó anerkannte.
+
+
+**Telefonate mit Pence**
+
+
+Washingtons Entscheidung, sich hinter Guaidó zu stellen, einen Neuling in der venezolanischen Politik, fiel
+erst, nachdem man überzeugt war, dass der 35-Jährige, der in den USA zum Ingenieur ausgebildet worden war, mit Wahington zusammenarbeiten würde und zuverlässig sei.
+Das war die Schlussfolgerung aus den US-Kontakten mit Guaidó in den Tagen vor seiner Erklärung, darunter zwei Telefonate mit Pence, sagten Beamte und baten, wegen der Brisanz der Situation anonym zu
+bleiben.
+
+
+-----
+
+In Pence‘ zweitem Anruf, der nach Angaben eines Beamten des Weissen Hauses aus Sicherheitsgründen
+unter Verschluss gehalten wurde, versicherte der Vizepräsident Guaidó: „Wir beten für dich, die USA stehen auf deiner Seite, dein Mut und deine Tapferkeit sind etwas, das wir bewundern.“
+Hochrangige Regierungsbeamte, darunter der Berater von Pence, Bolton und dem Weissen Haus für Lateinamerika, Mauricio Claver-Carone, riefen die lateinamerikanischen Staatschefs an, um sicherzustellen,
+dass sie sich Trump bei der Anerkennung von Guaidó anschliessen würden.
+Luis Almagro, Präsident der Organisation Amerikanischer Staaten, Carlos Trujillo, US-Botschafter bei der
+OAS, und andere hochrangige Beamte des Aussenministeriums halfen ebenfalls, die diplomatische Unterstützung Lateinamerikas zu sichern, sagten Beamte.
+Das Risiko, die Region mit der Unterstützung Guaidós zu spalten, wollte die US-Regierung eingehen.
+Maduro macht derweil keine Anstalten, seinen Posten kampflos aufzugeben. Mit der Unterstützung des
+Militärs und der Gerichte wird Maduro noch durchhalten können. Doch das letzte Druckmittel der USA,
+Öl-Sanktionen, kam noch nicht zum Einsatz.
+EU-Staaten machen nach, was die USA vorgemacht haben: Sie stellen sich an die Seite des Putschistenführers Juan Guaidó. Macron solidarisierte sich gleich mit den Bürgern Venezuelas. Dabei gibt es Parallelen zu Salvinis Frankreich-Kommentaren.
+Quelle: https://noch.info/2019/01/die-doppelmoral-des-westens-protest-in-venezuela-gut-in-frankreich-boese/
+
+## Wie der Bundestag Hunderttausende Petenten missachtet
+
+AutorVera LengsfeldVeröffentlicht am1. Februar 2019
+
+Am 14. Januar fand vor dem Petitionsausschuss eine öffentliche Anhörung zu einer Petition gegen den
+UN-Migrationspakt statt. Angehört wurde die so genannte Leitpetition von Dr. Englmeier, die dann über
+127 000 Unterstützer hatte. Es gab aber etwa 50 andere Petitionen zum selben Thema, die ebenfalls
+zum Teil Zehntausende Unterschriften vorweisen konnten.
+Kein Grund für unsere Volksvertreter, das Anliegen ernst zu nehmen.
+Dr. Englmeier berichtet, wie man sich als Petent fühlt, wenn man von unseren Volksvertretern ignoriert
+wird. Sein Bericht ist ein Lehrstück über den Zustand eines Parlaments, das seine Wähler nicht mehr
+vertreten will.
+
+**Was ich noch zu sagen hätte…**
+
+**…dauert etwas mehr als eine Zigarette. Aber nicht viel länger als ein Bier im Stehen.**
+
+Nun ist sie also vorbei, die Anhörung im Petitionsausschuss, vor der ich als Politikneuling ordentlich Respekt hatte. Und zu Recht, wie der Ablauf der Anhörung zeigte, denn es wäre vor allem Frau Rottmann von
+den Grünen sehr gelegen gekommen, hätte ich mich vor laufenden Kameras zum Deppen gemacht.
+Es war auch so schwierig genug, in der Anhörung eigene Akzente zu setzen. Im Wesentlichen hat man nur
+die 5 Minuten für das Eingangsstatement, die man selbst gestalten kann. Ansonsten kann man froh sein,
+wenn man überhaupt einmal eine Frage gestellt bekommt, denn die Abgeordneten haben im Prinzip die
+Möglichkeit, die Anhörung komplett am Petenten vorbeilaufen zu lassen, indem sie dem anwesenden
+Regierungsvertreter Fragen stellen. Davon wurde am Montag dann auch ausgiebig Gebrauch gemacht,
+und vor allem die Regierungsfraktionen stellten an Niels Annen vom Aussenministerium Fragen, die wie
+einstudierte Vorlagen für die Selbstdarstellung des Aussenministeriums wirkten. Und von dort kam dann
+auch die erwartete Beruhigungslitanei: „rechtlich nicht bindend!“, „keine direkten Auswirkungen“, „es
+werden durch den Migrationspakt keine neuen Rechte für Migranten geschaffen“.
+Ausgerechnet die Anhörung zum Migrationspakt dazu zu nutzen, um wieder einmal die Regierung zu
+Wort kommen zu lassen, empfand ich als schlechten Witz! Denn erstens war die politische Meinung der
+Bundesregierung jedem im Saal und im Land hinlänglich und detailliert bekannt, und zweitens hat jeder
+Bundestagsabgeordnete zahlreiche Möglichkeiten, die Meinung der Regierung jederzeit in Erfahrung zu
+bringen. In dieser Form war das ein Missbrauch des Fragerechts, durch den meine regierungskritische
+Petition in ihr Gegenteil verwandelt wurde, weil dadurch die Anhörung als weitere Propagandagelegenheit
+für die Regierung missbraucht wurde. Ein “Dialog mit dem Bürger” sieht anders aus, und es wurde sehr
+schnell klar, dass dieser einfach nicht gewünscht war.
+Bei 23 Fragen insgesamt bekam ich nur sechs Mal jeweils eine Minute lang die Gelegenheit, noch etwas
+zu sagen. Aber eben nicht frei, sondern gebunden an die Fragen, die die Fragesteller wohlüberlegt so eng
+und spezifisch formuliert hatten, dass der Spielraum für die Antwort minimal war.
+Ich habe höchsten Respekt für jeden, der es unter diesen Bedingungen schafft, spontan auf eine vorher
+unbekannte und oft genug komplexe Frage in einer Minute eine Antwort zu liefern, die a) auf die Frage
+eingeht, b) die eigene Position auf den Punkt bringt, c) rhetorisch brilliert und d) thematisch „zündet“. Ich
+hab mich bemüht – aber es blieb einfach zu viel ungesagt und unwidersprochen. Und wenn ich etwas
+mehr Zeit zum Nachdenken gehabt hätte, hätte ich einige Fragen pointierter beantwortet. Daher dieser
+Artikel
+
+
+-----
+
+Fangen wir mit Frau Rottmann und mit Ihren Suggestivfragen an. Ihre Frage in der zweiten Runde leitete
+sie mit dem Halbsatz „Wie gehen wir miteinander um…“ ein, um danach auf den AfD-Abgeordneten Huber loszugehen. Darauf hätte ich antworten können, ja müssen: „Hoffentlich sachlicher und weniger aggressiv im Ton als Sie mit Ihren Kollegen Abgeordneten!“ Und ich hätte diese inoffizielle Mitarbeiterin der
+neuen Sprachsicherheit fragen sollen, ob sie denn denkt, dass die Bürger dieses Landes ihre Obsession in
+Bezug auf gefällige und freundliche Sprache teilen? Ich hätte das mit einer Warnung an Politik und Medien verbinden können, dass die Bürger sich mehr für die Ergebnisse einer Politik interessieren als dafür,
+wie nett sich etwas anhört, und deshalb die Aufregung über „das böse Wort“ immer weniger teilen, wenn
+gleichzeitig Politik und Medien bei „der bösen Tat“ – all den Gewaltverbrechen durch Migranten, die wir
+inzwischen erleben müssen – seltsam und auffällig stumm bleiben. Dass Politik und Medien uns Bürger
+mehr und mehr verlieren werden, wenn der Eindruck entsteht, bestimmte Politiker und Medien hätten
+mehr Verständnis für Verbrecher als für Versprecher.
+Zu Frau Rottmanns zweiter Frage, ob man den Migrationspakt als Umsiedlungsprogramm bezeichnen
+könne, hätte ich, wenn ich mehr Zeit gehabt hätte, für eine detaillierte Antwort auf die Passagen in der
+Guterres-Rede vom 12. Dezember 2017 verwiesen [ UN Dokument A/72/643: englischsprachiger Text
+unter https://refugeesmigrants.un.org/sites/default/files/sg_report_en.pdf ], in der er die Bedeutung des
+Migrationspaktes als Vorbereitung für die Wanderung von grossen Migrantengruppen und ganzen Völkern
+hervorhebt [Abschnitt IV. “The challenge of large movements of people”] und klarmacht, dass diese
+grossen Migrantenströme in Zukunft unbedingt im Land ihrer Wahl ankommen sollen und nicht zu lange
+in Transitländern verbleiben sollen [“Today many migrants are trapped in transit countries that lack the
+capacity to care for them, forced to (…) look for illicid means to move elsewhere. (…) This Situation is
+intolerable.”] .
+Diese Passage macht zum einen klar, dass es nicht um Arbeitsmigration geht, denn sonst würde man
+nicht nach Staaten suchen, die diese Migranten versorgen können, und zum anderen, dass allein der Reisewunsch der Migranten das Zielland festlegt, denn im ganzen Pakt gibt es keine Definition dessen, was
+ein “Zielland” denn sein soll – ausser dem, was die Migranten für sich als Ziel wünschen.
+Insofern ist der Migrationspakt natürlich kein Umsiedlungsprogramm per se, aber er wird ganz offen vom
+UN-Generalsekretär als Vorbereitung auf zukünftige grosse Migrantenströme bezeichnet. Und in diesem
+Zusammenhang ist auch der Zugang zu Grundleistungen in den Transitländern zu sehen – auf ihrem Weg
+in die Zielländer sollen nämlich die Migranten in Zukunft besser vor Hunger und Entbehrungen geschützt
+sein. Mit anderen Worten: die Infrastruktur für die Balkanroute der Zukunft soll aus Sicht der Migranten
+einmal besser sein, als sie es 2015 war.
+DAS ist nämlich der tiefere Sinn hinter dem Zugang zu Grundleistungen, Herr Lehrieder, und aus der
+Guterres-Rede wird diese Absicht auch ganz deutlich.
+Herr Lehrieder fragte mich bei seinen zwei Fragen im Wesentlichen, a) ob ich denn gegen multilaterale
+Abkommen sei und b) ob ich nicht denke, dass weniger Migranten nach Deutschland kommen, wenn sie
+schon in den Transitländern Zugang zu Sozialleistungen bekommen.
+Die erste Frage konnte ich ganz gut beantworten, indem ich klar machte, dass ich einen neuen Multilateralismus an der Seite von Marokko und unseriösen Regierungen wie Saudi Arabien, der uns auf der anderen Seite von unseren demokratischen europäischen Nachbarn entfremdet, nicht als besonders erstrebenswert erachte. Denn eine Lehre aus dem Zweiten Weltkrieg sehe ich darin, dass wir Polen, Frankreich,
+Dänemark und Österreich und allen anderen ein guter Nachbar sein sollen. Und dass wir nicht wieder
+das Klischee des arroganten und besserwisserischen Deutschen bedienen sollten, dem die Meinungen
+und Befindlichkeiten gerade der kleineren Nachbarn ziemlich sonstwo vorbeigehen.
+Die zweite Frage zeigte deutlich, welchen Illusionen sich die Unionsabgeordneten, die trotz offensichtlicher Bedenken für den Pakt gestimmt haben, hingeben. Um diese Illusionen auszuräumen, hätte man
+aber etwas tiefer einsteigen müssen.
+Ich hätte Herrn Lehrieder fragen können, ob er denn denke, dass Arbeitsmigranten, die über das neue
+Einwanderungsgesetz zu uns kommen sollen, jemals Zugang zu Grundleistungen in Transitländern brauchen werden? Diese Leute werden nämlich – ausgestattet mit einem regulären Visum – per Flugzeug zu
+uns kommen, ohne jemals ein Transitland zu berühren (ausser vielleicht für ein paar Stunden, um das
+Flugzeug zu wechseln, und in der Zeit werden sie keinen Zugang zu irgendwelcher Sozialhilfe im Transitland brauchen). Oder ob es nicht viel plausibler ist, dass den Zugang zu Grundleistungen in Transitländern diejenigen brauchen, die sich auf dem Landweg zu uns auf den Weg machen – also eben gerade die
+irregulären Migranten, die überwiegend in unser Sozialsystem einwandern.
+Wenn er das noch nicht verstanden hätte, hätte ich ihn fragen können, wie sich denn eine Familie mit
+sechs Kindern entscheiden würde, wenn sie in Italien mit etwas Glück ein Dach über dem Kopf und täglich ein bisschen was zu Essen bekommt, während in Deutschland Nettosozialtransfers in Höhe von etwa
+45 000 € auf sie warten. Und ich hätte ihn noch fragen können, ob er denn denkt – gesetzt den Fall, man
+könnte sich europaweit auf einheitliche Sozialstandards für Migranten und Flüchtlinge einigen, sodass der
+Anreiz zur EU-Binnenmigration nach Deutschland tatsächlich wegfiele – dass sich die Mittelmeer
+
+-----
+
+Anreinerstaaten wie Marokko, Libyen und Ägypten denn ein ähnliches Sozialniveau leisten könnten, sodass dann der Anreiz, nach Europa zu migrieren, wegfiele?
+Vielleicht hätte dann er und hätten mit ihm die Unionsabgeordneten – denen ich jetzt einmal mehrheitlich einen Willen zur Begrenzung der illegalen Migration unterstelle – verstanden, dass der Pull-Effekt, den
+das gerade für Grossfamilien grosszügige deutsche Sozialsystem auf die Armen dieser Welt ausübt, nicht
+durch eine Erhöhung der Leistungen in Herkunfts- und Transitländern beseitigt werden kann, denn dort
+kann schlicht und ergreifend niemand auch nur annähernd ein solches Niveau finanzieren. Vielleicht hätten sie dann verstanden, dass es langfristig nur zwei Alternativen gibt: Entweder man verhindert illegale
+Einwanderung in das Sozialsystem oder man kommt über kurz oder lang um eine Absenkung des Niveaus in Deutschland nicht herum, wenn das System nachhaltig finanzierbar bleiben soll.
+Ich hätte auch noch gerne etwas zum unsäglichen Hickhack vor der Veröffentlichung der Petition gesagt.
+Denn obwohl meine Petition ja im Wesentlichen die österreichische Regierungslinie vertreten hat, sollte
+sie nach dem Willen der Grünen und Linken – weil “böse” – nicht veröffentlicht werden. Und das, obwohl
+die Kritik am Pakt von vielen unserer Nachbarländer parteiübergreifend geteilt wird – in Österreich von
+einer christdemokratisch geführten Regierung, in Tschechien von einer liberalen, und in der Slowakei von
+einer sozialdemokratischen. Vor diesem Hintergrund ist es unverständlich, wenn eine Partei wie die Grünen, die sich als pro-europäisch geriert, die Positionen unserer europäischen Nachbarn als in Deutschland indiskutabel ansieht und die Veröffentlichung der Petition verhindern wollte. Ich hätte Frau Rottmann gerne gefragt, wie sie eigentlich in Zukunft mit unseren südlichen und östlichen Nachbarn zusammenarbeiten will, wenn sie deren Regierungen auch als “böse” ansehen sollte?
+Ich hätte mich an dieser Stelle auch bei den vier Fraktionen bedanken können, die sich für die Veröffentlichung der Petition eingesetzt haben und damit für eine – mehr oder weniger – offene Diskussion mit
+dem Bürger auch bei diesem kontroversen Thema. Und damit für die Meinungsfreiheit. Ich hätte SPD,
+FDP, die Union und die AfD dafür loben können, dass sie sich im Gegensatz zu den Grünen und Linken
+nicht für die Zensur von politischen Positionen hergegeben haben, die in unseren Nachbarländern nicht
+nur selbstverständlicher Gegenstand der demokratischen Diskussion sind, sondern dort die Regierungspolitik darstellen.
+Ich wäre so gerne auch auf ein Argument eingegangen, das ich in der Diskussion vor der Bundestagsdebatte öfter gehört habe, nämlich dass sich durch den Migrationspakt die Menschenrechtssituation von
+Arbeitsmigranten in Ländern wie Saudi Arabien verbessern solle. Leider hat keiner eine Frage gestellt, bei
+der ich auf dieses Thema hätte eingehen können.
+Denn die Menschenrechte gelten eh schon global und für alle Menschen. Die Situation für Migranten wird
+sich nicht dadurch verbessern, dass die Menschenrechte jetzt im Zusammenhang mit dem Migrationspakt noch einmal betont werden. Glaubt denn jemand, dass eine Regierung wie die von Saudi Arabien,
+die den eigenen Staatsbürgern nicht einmal das fundamentalste Menschenrecht auf Leben gewährt, wenn
+diese in Istanbul die Botschaft betreten, sich durch den Migrationspakt nun dazu veranlasst sehen wird,
+die eigene Menschenrechtspolitik auch nur minimal zu verändern? Oder ist es wahrscheinlicher, dass sich
+diese Leute auch in Zukunft einen feuchten Kehricht um die Menschenrechte kümmern werden?
+Herr Straetmanns von den Linken hat übrigens im Anschluss an die Anhörung meine Kritik an der Einseitigkeit des Migrationspaktes, der lediglich im Rassismus der Zielgesellschaften ein Problem sieht, mit
+dem lapidaren Kommentar gekontert, das hätten völkerrechtliche Abkommen nun mal so an sich, dass
+sie nur die sie annehmenden Staaten – und damit uns als Zielgesellschaft – verpflichten. Gerne hätte ich
+ihn darauf aufmerksam gemacht, dass der Migrationspakt sich an einer interessanten Stelle durchaus an
+Zielgesellschaft und Migranten wendet.
+An einer Stelle wird nämlich ganz allgemein von Rassismus, Fremdenfeindlichkeit und Intoleranz gesprochen. 32 i zu Ziel 16 will “für Schulen mit einer hohen Konzentration von Migrantenkindern gezielte Mittel
+bereitstellen, um alle Formen von Fremdenfeindlichkeit und Intoleranz zu verhüten.” Erstaunlich, finden
+Sie nicht?
+Man möchte meinen, dass Migrantenkinder doch vor allem dort, wo sie in der Minderheit sind, unter der
+Intoleranz der einheimischen Kinder zu leiden hätten.
+An dieser Stelle wird deutlich, dass die Verfasser des Paktes die Probleme an europäischen Schulen mit
+hohem Migrantenanteil kennen und wissen, dass dort die Intoleranz der einheimischen Bevölkerung nicht
+das Problem ist. Den Verfassern ist bei diesem Satz das eigene Problembewusstsein ungewollt in die Feder gerutscht. An dieser Stelle wird der Elefant im Zimmer der Migrationsdebatte sichtbar, nämlich
+Feindseligkeit und Intoleranz, die Migranten leider oft genug zu uns mitbringen.
+Man kann nur hoffen, dass zumindest ein Punkt aus der Anhörung bei den Abgeordneten angekommen
+ist: nämlich dass alleine die Bundesregierung Deutschland völkerrechtlich vertreten kann und dass der
+Beschluss des Bundestages vom 27.11., der dem Migrationspakt ja eine die illegale Migration einschränkende Interpretation geben will, solange völlig wirkungslos bleibt, bis er VON DER BUNDESREGIERUNG an
+die UN als Einschränkung, als “reservation”, übermittelt wird.
+
+
+-----
+
+Lasst uns die Daumen drücken, dass unsere Petition dabei helfen wird, zumindest dieses kleine Ziel zu
+erreichen, wenn wir schon nicht so klug und weitsichtig wie unsere Nachbarn regiert werden.
+Quelle: https://vera-lengsfeld.de/2019/02/01/wie-der-bundestag-hunderttausende-petenten-missachtet/
+
+04. Februar 2019 um 15:14Ein Artikel von: Albrecht Müller
+
+Das Erstaunliche in dieser Zeit: Die herausragenden Vertreter des Westens haben jeden Anstand verloren
+und jede Selbstachtung: Sie lügen ungerührt, sie übertreiben, sie sind perfekt in der Methode Haltet den
+Dieb. So zu beobachten in Frau von der Leyens Beitrag zum 70-jährigen Geburtstag der NATO in der New
+York Times vom 18. Januar 2019. Der Beitrag ist deshalb lesenswert, weil man daran lernen kann, wie
+subtil und selbstbewusst die Propaganda abläuft. Sie finden unten die Übersetzung ins Deutsche und den
+Link auf den Originaltext in der New York Times.
+**Albrecht Müller.**
+
+**Bemerkenswertes im Text von Frau von der Leyen:**
+1. Die NATO dient nach Frau von der Leyen nicht nur der westlichen Verteidigung. Sie verteidigt die
+„Welt“ordnung oder wie im Titel zu sehen: „Die Welt braucht nach wie vor die NATO.“
+2. Die Behauptung von der „Russischen Aggression in Osteuropa“ ist inzwischen propagandistisch
+so fest verankert, dass Frau von der Leyen dies nicht einmal in Gänsefüsschen setzen muss. Das
+ist ein Riesenerfolg der westlichen Propaganda. Noch vor nicht allzulanger Zeit wurde daran gearbeitet, in den Köpfen zu verankern, die Russen und der Westen seien in gleicher Weise schuld an
+der neuen Konfrontation. In diesem Sinne hat sich auch der frühere Mitherausgeber der NachDenkSeiten, Dr. Lieb, versucht – einer der Gründe für die Trennung.
+3. Russland habe „die Ukraine okkupiert“, wird dreist behauptet.
+
+
+-----
+
+4. Selbstverständlich kein Sterbenswörtchen von den 5 Milliarden $, die die USA in der Ukraine in
+Propaganda und in den Aufbau von NGOs investiert haben, um auf diese Weise die Ukraine einschliesslich des von Russland gepachteten Hafens Sewastopol in den Westen einzuverleiben.
+5. Kein Wort von den Kriegen des Westens und ihren schrecklichen, menschenvernichtenden Folgen
+in Libyen, im Irak, in Afghanistan, in Syrien, im Jemen.
+6. Nicht die Andeutung von der Idee, die sogar Eingang in das Berliner Grundsatzprogramm der
+SPD gefunden hatte, die NATO aufzulösen.
+7. Russland (und andere) – so wird behauptet – versuchen die Regeln zu unterwandern, die das
+Zeitalter der Demokratie und Prosperität nach dem Zweiten Weltkrieg bestimmt haben.
+8. Kein Wort von gemeinsamer Sicherheit.
+9. Kein Wort von Abrüstung, stattdessen Lobeshymnen auf die Aufrüstung.
+10. Klar, der Fall der Mauer ist auch ein Erfolg der NATO.
+11. Usw., unerträglich.
+
+Eines sollte nach diesem Artikel wie auch nach dem Interview mit Stoltenberg/NATO im Heute Journal
+vom 1. Februar klar sein: Was da in einigen Köpfen herumspukt, die USA wollten sich aus Europa herausziehen, ist eitle Fantasie. Beide Medien-Ereignisse zeigen deutlich, dass die USA, die NATO und Europa
+eng und unverbrüchlich aneinandergekoppelt sind.
+
+**Der Artikel von Frau von der Leyen steht im Zusammenhang mit einem wahren Feuerwerk ähnlicher**
+**Propaganda. Ich verweise beispielsweise**
+
+  - auf den Artikel in der Süddeutschen Zeitung zum Jahrestag der Belagerung von Leningrad
+
+  - auf das Interview mit dem NATO Generalsekretär Stoltenberg im Heute Journal vom 1. Februar
+2019
+
+  - auf die Forderung des polnischen Aussenministers nach nuklearer Aufrüstung in Mitteleuropa
+
+  - auf die unendliche Kette von bösartigen Abhandlungen über Putin in nahezu allen deutschen Medien – als Beispiel nenne ich nur zwei grosse Artikel in der FAZ vom 29.12.2018: „Putin setzt das
+organisierte Verbrechen als Instrument ein“ und „Sie wollen nicht mehr warten. Immer mehr Russen fühlen sich von ihrem Staat betrogen …“
+
+  - auf die Kampagne gegen die russischen Medien in Deutschland und im Westen.
+
+Deutsche Übersetzung des Artikels in der New York Times:
+
+## Meinung
+**Die Welt braucht nach wie vor die NATO**
+
+Die Allianz steht nicht nur für Militärbasen und Truppen. Sie steht für die Gewährleistung der Weltordnung. Von Ursula von der Leyen: Frau von der Leyen ist die Deutsche Verteidigungsministerin. 18. Januar
+2019
+BERLIN – Im April feiert die Nordatlantische Vertragsorganisation (NATO) ihren 70. Geburtstag. Gegründet in den frühen Jahren des Kalten Krieges ist sie heute so aktuell wie einst, wo viele empfinden, dass
+die internationale Ordnung erneut erschüttert wird. Tatsächlich, würde die NATO nicht existieren, müssten
+jene, die für die freie Welt einstehen, sie erfinden.
+Obwohl der Hauptzweck der NATO in der Sicherheitsgarantie für ihre Mitglieder besteht, war sie zu keiner
+Zeit nur ein Militärbündnis. Sie ist auch eine politische Einrichtung, gegründet auf den gemeinsamen Bestrebungen ihrer Mitglieder, die, wie der NATO Vertrag sagt, „bestimmt sind die Freiheit zu garantieren,
+das gemeinsame Erbe und die Kultur ihrer Menschen, gegründet auf den Prinzipien von Demokratie, persönlicher Freiheit und den Rechtsgrundsätzen der Mitglieder.“
+
+Diese Prinzipien sind heute bedroht. Die Russische Aggression in Osteuropa, Chinas Auftreten im Süd
+Chinesischen Meer, der Terrorismus von Islamistischen Staaten, der sich vom Mittleren Osten in die Metropolen Europas ausbreitet, autoritäre Regime, die Nuklearwaffen entwickeln – so verschiedenartig diese
+Herausforderungen auch sind, sie haben eines gemeinsam: Sie gehen aus von Akteuren, die sich der internationalen Ordnung entgegenstellen. Sie versuchen die Regeln zu unterwandern oder sogar zu ändern,
+die das Zeitalter der Demokratie und Prosperität nach dem II. Weltkrieg bestimmt haben.
+Die Demokratien der NATO müssen zusammenstehen um diesen Herausforderungen gewachsen zu sein.
+Gemeinsam sind wir stärker als der Mächtigste von uns auf sich allein gestellt wäre. Dementsprechend
+hat sich die NATO seit 2014, als Russland die Ukraine okkupierte, der Situation zeitnah angepasst – wie
+sie es zuvor mehrfach in ihrer Geschichte getan hatte. Unter 29 souveränen Staaten mit unterschiedli
+
+-----
+
+chen politischen Kulturen und Standpunkten gestalten sich solche Anpassungen immer schwierig und
+bisweilen chaotisch. Aber die Fähigkeit der NATO, ihre Schwerpunkte und Strategien zu ändern, gewährleistet, dass die Allianz der Herausforderung der Zeit gerecht wird.
+Die Ergebnisse sind greifbar. **Zuallererst, alle europäischen NATO-Mitglieder haben ihre Militärausga-**
+**ben erhöht. Das Deutsche Militärbudget, zum Beispiel, wurde aktuell um 36% erhöht, verglichen mit dem**
+Budget, als ich 2013 das Amt übernahm. Wir haben natürlich noch mehr zu tun, um die Last innerhalb
+der Allianz gerecht zu verteilen, und **wir sind darauf vorbereitet mehr zu tun. Aber wir berücksichtigen**
+auch, dass Last-Teilung nicht nur Geld bedeutet, sondern auch Fähigkeiten und andere Beiträge.
+Deutschland ist daher als zweitgrösster Truppensteller der NATO stolz, die „Very High Readiness Joint
+Task Force“ der NATO zu führen.
+Die NATO hat auch ihre Anwesenheit in Osteuropa erhöht, spielt eine aktive Rolle bei der Ausbildung der
+Irakischen Sicherheitskräfte und nimmt teil an der Überwachung im Kampf gegen den Islamistischen
+Staat, unterstützt weiterhin die Afghanische Regierung und verstärkt ihre Partnerschaft mit gleichgesinnten Nationen wie Australien und Japan, zusätzlich zu vielen anderen Dingen.
+Zur Erfüllung ihrer drei Kernaufgaben – kollektive Sicherheit, Krisenmanagement und Partnerschaften –
+ist die NATO ein unersetzlicher Baustein zur Erhaltung einer internationalen Ordnung, die Freiheit und
+Frieden gewährleistet.
+Vor allen Dingen aber ist die NATO nicht nur eine transatlantische Organisation dem Namen nach. Sie
+repräsentiert eine spezielle, emotionale Verbindung zwischen den Amerikanischen und Europäischen
+Kontinenten. Für eine Deutsche sind die Bilder vom Fall der Berliner Mauer untrennbar verbunden mit
+der Alliance, und mein Land ist besonders dankbar für die Sicherheitsgarantien und die Unterstützungen,
+die die NATO über Jahrzehnte geleistet hat. Ach ja, zusätzlich zu den praktischen Vorteilen von Militär**basen, Strukturen und Truppen, die NATO hat einen Wert an und für sich.**
+Möglicherweise besteht der ureigenste Vorteil der NATO in der durch sie gewährleisteten Beständigkeit in
+einer unbeständigen Welt. Unsere unerschütterliche Zusage zu Artikel 5, des NATO Vertrags <Versprechen zur kollektiven Sicherheit>, gewährleistet, dass unsere gemeinsame Sicherheit wirklich unteilbar ist.
+**Wir helfen unserem schwächsten Verbündeten so wie wir unserem stärksten Verbündeten geholfen**
+**haben durch den Aufruf von Artikel 5 – zum ersten und einzigen Mal in der NATO Geschichte – nach**
+**dem 11. September 2001.**
+
+Somit ist es eine gute Sache, dass die Europäische Union jetzt erhebliche Schritte zur Verbesserung ihrer
+militärischen Fähigkeiten unternimmt. Wenn Mitglieder der Europäischen Union vorangehen bei der Abstimmung ihrer Verteidigungsplanung und Beschaffung, bei der wechselseitigen Partnerschaft ihrer
+Streitkräfte, dann dient all das der Stärkung der NATO.
+Und eine stärkere NATO dient den Sicherheitsinteressen aller Mitglieder. Vor allen Dingen sendet es eine
+deutliche Botschaft an alle, die die Regel-basierte internationale Ordnung bekämpfen: Wir Trans-Atlantik
+Alliierte sind bereit und Willens unseren Boden, unsere Menschen und unsere Freiheit zu verteidigen.
+Ursula von der Leyen ist die Deutsche Verteidigungsministerin.
+Die Übersetzung wurde von Mitgliedern des Berliner Gesprächskreises der NachDenkSeiten gemacht.
+Herzlichen Dank dafür.
+Titelbild: Alexandros Michailidis / Shutterstock.com
+Quelle: https://www.nachdenkseiten.de/?p=49026
+
+## Moskau weist „erlogene und haltlose“ Anschuldigungen Macrons zurück
+18:33 05.02.2019
+
+**Als „erlogen und haltlos“ hat die amtliche Sprecherin des russischen Aussenministeriums, Maria Sach-**
+**arowa, Anschuldigungen des französischen Staatspräsidenten Emmanuel Macron an die Agentur Sput-**
+**nik und den Fernsehsender RT zurückgewiesen. Macon habe seine Vorwürfe bislang durch nichts be-**
+**legt, schrieb Sacharowa auf Facebook.**
+
+Nach Angaben der Zeitung „Le Point“ hatte Macron bei einem Treffen mit französischen Journalisten
+erklärt, dass Gelbwesten Anweisungen aus dem Ausland erhalten haben sollen und ihre Aktivitäten angeblich von gekauften Accounts in Sozialnetzen sowie von Trollen unterstützt werden. Dazu zählte
+Macron den russischen Fernsehsender RT und die Agentur Sputnik.
+
+
+-----
+
+**_„‘Faschisten, ultrarechte Radikale und Russen‘ – so definierte der französische Präsident jene, die sei-_**
+**_ner Meinung nach versuchen, die Lage in Frankreich unter Missbrauch des Internets zu destabilisieren“,_**
+**_fuhr Sacharowa fort. „Dabei sagte Macron nicht, welche Quellen ihn dazu bewogen hatten, diesen_**
+**_Schluss zu ziehen. Er ist sicher, dass russische Medien über in Sozialnetzen gekaufte Accounts brisante_**
+**_Themen für politische Diskussionen vorschlagen."_**
+„Sollten die Informationen stimmen, dann ist Präsident Macron der grösste Produzent von Fake News
+in Frankreich und sind seine Aktivitäten im Kampf gegen dieses Übel ein Betrug … RT und Sputnik haben
+nie Accounts in Sozialnetzen gekauft. Die französische Seite hat bislang keine Beweise für ihre Anschuldigungen vorgelegt, weil das eine Lüge ist“, schrieb Sacharowa.
+Die Sprecherin erinnerte daran, dass die westliche Presse Vertreter beliebiger oppositioneller Bewegungen in Ländern gerne interviewt, deren offizielle Politik dem Kurs des Westens zuwiderläuft. Zugleich hätten französische Medien Interviews mit Vertretern der russischen Regierung in letzter Zeit nicht publik
+gemacht. So habe die Zeitung „Le Figaro“ ein Gespräch ihres stellvertretenden Chefredakteurs mit Aussenminister Sergej Lawrow nicht veröffentlicht.
+„Dass Faschisten und Russen gleichgesetzt werden, ist entweder eine Gemeinheit oder eine totale Unwissenheit. Aber ein Mensch kann die beiden Eigenschaften gleichzeitig aufweisen. Wenn der französische
+Präsident historische Parallelen ziehen möchte, sollte er lieber Napoleon mit Hitler vergleichen“, schrieb
+Sacharowa.
+Quelle: https://de.sputniknews.com/politik/20190205323845670-russland-frankreich-sacharowa-macronanschuldigungen-kritik/
+
+Der Schein trügt
+
+Mancher Mensch ist
+nicht das, was er ist,
+weil der Schein trügt,
+weshalb er wünscht,
+das zu sein, was er
+sein möchte.
+
+SSSC, 13. Juni 2011
+
+13.51 h, Billy
+
+
+-----
+
+Lösungen finden
+
+Nur dann, wenn sich
+der Mensch Aufgaben
+stellt sowie Lösungen
+dafür findet, vermag
+er sich Fortschritt und
+Erfolg zu erschaffen.
+
+SSSC, 15. Januar 2012
+
+23,53 h Billy
+
+Fortschritt
+
+Erfolg und Fortschritt
+erwachsen immer nur
+daraus, wenn gewiegte
+Menschen das Wahre
+tun, das fortschrittlich
+getan werden muss.
+
+SSSC, 16. Januar 2012
+
+00.22 h Billy
+
+**IMPRESSUM**
+**FIGU-ZEITZEICHEN**
+**Druck und Verlag: FIGU** Wassermannzeit-Verlag,
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+**Redaktion: BEAM** ‹Billy› Eduard Albert Meier,
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+**Erscheint zweimal monatlich auf der FIGU-Webseite**
+
+
+**Postcheck-Konto: FIGU Freie Interessengemeinschaft,**
+8495 Schmidrüti, PC 80-13703-3
+IBAN: CH06 0900 0000 8001 3703 3
+**E-Brief: info@figu.org**
+**Internetz: www.figu.org**
+**FIGU-Shop: http://shop.figu.org**
+
+**© FIGU 2019**
+Einige Rechte vorbehalten.
+Dieses Werk ist, wo nicht anders
+angegeben, lizenziert unter :
+www.figu.org/licenses/by-nc-nd/2.5/ch/
+
+
+Geisteslehre Friedenssymbol
+
+**Frieden**
+
+Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten
+Tritt dazu macht, um dann nachfolgend in Friedsamkeit jeden weiteren Schritt
+bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun.
+SSSC, 10. September 2018, 16.43 h, Billy
+
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung des Urhebers ausdrücklich erlaubt.**
+Erschienen im Wassermannzeit-Verlag: FIGU, ‹Freie Interessengemeinschaft Universell›, Semjase-Silver-Star-Center,
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+

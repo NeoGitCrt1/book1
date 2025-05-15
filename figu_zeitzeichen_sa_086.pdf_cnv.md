@@ -1,0 +1,1552 @@
+9. Jahrgang
+Nr. 86 Sept./1 2023
+
+
+Erscheinungsweise:
+sporadisch
+
+
+### Sonderausgabe
+# FIGU ZEITZEICHEN
+
+###### Aktuelles • Einsichten • Erkenntnisse
+
+Internetz: http://www.figu.org
+E-Brief:  info@figu.org
+
+
+###### Organ für freie, politisch unabhängige Berichterstattungen zum Weltgeschehen, kommentarlose, neutrale und meinungslose Weitergabe von Zeitungsberichten.
+##### ***************************************************************************
+Laut ‹Allgemeine Erklärung der Menschenrechte›, verkündet von der Generalversammlung der Vereinten Nationen am 10. Dezember 1948,
+herrscht eine allgemeine ‹Meinungs- und Informationsfreiheit› vor, und dieses unumschränkte Recht gilt weltweit und absolut für jeden
+einzelnen Menschen weiblichen oder männlichen Geschlechts jeden Alters und Volkes, jedes gesellschaftlichen Standes wie auch in
+bezug auf rechtschaffene Ansichten, Ideen und jeglichen Glauben jeder Philosophie, Religion, Ideologie und Weltanschauung:
+
+**Art. 19 Menschenrechte**
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit, Meinungen**
+**unangefochten anzuhängen und Informationen und Ideen mit allen Verständigungs-**
+**mitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Ansichten, Aussagen, Darstellungen, Glaubensgut, Ideen, Meinungen sowie Ideologien jeder Art in Abhandlungen, Artikeln
+und in Leserzuschriften usw. müssen in keiner Art und Weise zwingend identisch mit dem Gedankengut und den
+Interessen, mit der ‹Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens›, wie auch nicht in
+irgendeiner Sachweise oder Sichtweise mit dem Missionsgut und dem Habitus der FIGU verbindend sein.
+==================================================================================
+==================================================================================
+Für alle in den FIGU-Zeitzeichen und anderen FIGU-Periodika publizierten Beiträge und Artikel verfügt die
+FIGU über die notwendigen schriftlichen Genehmigungen der Autoren bzw. der betreffenden Medien!
+###### ****************************************************************************************
+
+**Auf vielfach geäusserten Wunsch aus der Zeitzeichen-Leserschaft sollen in den Zeitzeichen zur Orientierung der**
+**Rezipienten laufend Auszüge diverser wichtiger Belange aus neuest geführten Kontaktgesprächsberichten**
+**veröffentlicht werden, wie nach Möglichkeit auch alte sowie neue Fakten betreffs weltweit bösartig mit**
+**Lügen, Betrug, Verleumdung und Mordanschlägen gegen BEAM geführte Kontroversen.**
+
+###### **********************************************************************************
+
+##### Proklamation des Plejarischen Gremiums
+
+**1.** **Die Fluggeräte, die von den Erdenmenschen UFOs genannt werden, weisen keinerlei Bewandtnis mit uns**
+**Plejaren und unseren Fluggeräten auf.**
+
+**2.** **Die Fluggeräte der ‹Fremden› sowie die Vorkommnisse irgendwelcher Art bezüglich diesen, die sich**
+**sowohl im Zusammenhang mit den Flugobjekten als auch mit den Fremden selbst ergaben oder weiterhin**
+**ergeben werden, belangen nicht zu uns Plejaren.**
+
+**3.** **Wir Plejaren haben in keiner Weise in irgendwelche irdischen Geschehen eingegriffen und werden auch**
+**niemals eingreifen, was auch immer geschehen mag.**
+
+**4.** **Wir Plejaren werden uns also nicht in irgendwelche irdischen Dinge, Geschehen und Vorkommnisse**
+**einmischen, die sich zukünftig ergeben werden, dies auch nicht im einen oder anderen Zusammenhang**
+**bezüglich der Fremden und ihrer UFO-Fluggeräte.**
+
+
+-----
+
+**FIGU**
+Bezüglich der vorstehenden Proklamation des Plejarischen Gremiums ist anzufügen, dass diese notwendig
+wurde, weil immer wieder Fragen lautwerden, ob es sich bei gesehenen oder manchmal auch gefilmten
+oder photographierten Objekten um plejarische Objekte/Strahlschiffe/UFOs gehandelt habe. Das kann –
+wie wir seit einiger Zeit wissen – kategorisch verneint werden. In der Regel handelt es sich dabei um Objekte
+von fremden Ausserirdischen oder um Test-Flugkörper irdischer Herstellung. Nach den übereinstimmenden Aussagen aller Plejaren halten sie sich von den Erdenmenschen wie auch von anderen seit Jahrzigtausenden von Jahren im irdischen Raum tätigen Ausserirdischen, die von ihnen ‹die Fremden› genannt
+werden, konsequent fern.
+Wenn in der Vergangenheit Sichtungen und Aufnahmen von plejarischen Personen oder Raumschiffen gemacht wurden, dann war das bis auf ganz vereinzelte Ausnahmen – die für die Zeugen durch glückliche
+Fügungen zustande kamen – ausschliesslich deshalb, weil die Plejaren Beweismittel für ihre Gegenwart
+schaffen wollten und diese ‹Sichtungen› bewusst erlaubten bzw. zuliessen. Darüber hinaus fanden weder
+Sichtungen noch Kontakte zu irgendwelchen Erdenmenschen oder anderen Ausserirdischen statt, welche
+die Plejaren weder zu orten vermögen, noch Kontakt zu ihnen aufnehmen können.
+Die Erklärung für die Kontakte der Plejaren zu ‹Billy› Eduard Albert Meier fundiert ausschliesslich in der
+Tatsache, dass es sich bei ihm um den Träger der Milliarden Jahre alten Nokodemion-Schöpfungsenergieform handelt, die über ein extrem grosses und tiefes Wissen bezüglich der Schöpfungsenergie-Lehre
+verfügt, an der die Plejaren interessiert sind, weil diese Lehre bei ihnen seit Millionen von Jahren gelehrt
+wird.
+Bernadette Brand, Aktuarin FIGU Universell
+
+###### Ergänzend zur obigen Proklamation des Plejarischen Gremiums äusserte sich Safaar, der Zwillingsbruder von Sfath, am 29. August 2023 folgendermassen:
+
+**Safaar: Was ich nun jedoch bezüglich deiner Frage zu erklären habe ist das, dass wir Plejaren – und zwar**
+schon unsere frühesten Vorfahren – hier auf der Erde geblieben sind, weil Vorausschauende erkannt haben,
+dass in fernster Zukunft die Menschen hier auf dieser Welt ausartend werden und einem göttlichen Glauben
+sowie allem Bösen, dem Hass, der Tötung, Rache, Verfolgung und den Kriegen und damit dem Morden
+usw. frönend werden, wie es schon der Fall war bei unseren urzeitlichen Völkern, deren fernste zukünftige
+Völker erst vor rund 50’000 Jahren irdischer Zeitrechnung den wahren Frieden fanden, der schon über
+Jahrmillionen durch Bemühungen Rechtschaffener und deren Nachfolger und Nachfolger und Nachfolger
+usw. angestrebt wurde. Und als dieser endlich zur Wirklichkeit wurde, war der Anfang allerdings nicht leicht,
+weil noch keine Menschen da waren, die wirklich wussten, wie wahrer Frieden zu entstehen hatte, zu
+gestalten und zu handhaben war. Später jedoch änderte sich das schon, als sich Menschen und Menschähnliche völlig natürlich zu Friedenswesen entwickelten. …
+
+Wir Plejaren jedoch kommen nicht zur Erde, um mit den Erdenmenschen in Kontakt zu treten, und tatsächlich wollen wir auch nichts von ihnen, wie auch nicht von den ‹Fremden›, wie wir sie nennen, sondern wir
+kommen nur hierher, weil du die seit Urzeiten erstellte Lehre von Nokodemion den Erdenmenschen lehrst
+und verbreitest. Etwas Diesartiges zu tun, wurde bereits vor rund 25 Millionen Jahren von unseren damaligen fernen Vorfahren beschlossen, und zwar obwohl diese im Gros selbst den gleichen Übeln erlegen waren,
+wie später die Menschenwesen auf dieser Welt der Erde. Doch die Rechtschaffenen der damaligen Völker
+bestimmten schon damals vor rund 25 Millionen Jahren das Werden der Mission auf dieser Welt in diesem
+DERN-Universum, und der damalige Entschluss überdauerte tatsächlich die Zeit von 25 Millionen Jahren.
+Folgedem wurde aber auch vor mehr als 50’000 Jahren der bis dahin überdauerte Entschluss aufgegriffen
+und beschlossen, dass nunmehr das damals aufgebrachte Ansinnen in die Tat umgesetzt werden soll, folglich alles derart vorbereitet wurde, dass sich das ergeben konnte, was beschlossen wurde. Dann wurde alles
+zum exakten Zeitpunkt arrangiert, dass die vorgesehene Mission beginnen konnte und so die ‹Lehre der
+Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens› auf dieser Welt den Beginn finden konnte, die
+das wirkliche Leben des Menschen bedeutet, deren Weg er folgen und den Wert er in sich entwickeln und
+wahrheitlich Mensch werden soll.
+
+##### Desinformation, 1984–2023
+_uncut-news.ch, August 14, 2023, Peter Van Buren_
+
+Orwell, schon wieder. 1984 war in so vielen Punkten vorausschauend, dass es scheint, als sei es für die Ära
+Biden geschrieben worden. Dem Ganzen liegt das Konzept der Desinformation zugrunde, die Wurzel von
+
+
+-----
+
+Propaganda und Gedankenkontrolle. So ist es auch im Jahr 2023. Fragen Sie einfach den FBI-Direktor
+Chris Wray. Oder Facebook.
+
+In George Orwells Roman wird das Konzept der Desinformation und ihre Rolle bei der Kontrolle und Manipulation der Gesellschaft untersucht. Orwell schildert eine dystopische Zukunft, in der ein totalitäres
+Regime, angeführt von der Partei und ihrer Galionsfigur Big Brother, die vollständige Kontrolle über das
+Leben der Bürger ausübt, einschliesslich ihres Denkens. Die Partei wendet eine Vielzahl von Techniken an,
+um Desinformationen zu verbreiten und ihre Macht zu erhalten. Eines der bekanntesten Beispiele ist das
+Konzept des ‹Newspeak›, einer Sprache, die dazu dient, das Denken einzuschränken und zu manipulieren,
+indem sie die Bandbreite der aussprechbaren Ideen reduziert. Newspeak zielt darauf ab, Wörter und Konzepte zu ersetzen, die die Ideologie der Partei in Frage stellen oder kritisieren könnten, und so die Art und
+Weise, wie die Menschen denken und kommunizieren, effektiv zu kontrollieren.
+
+Orwell führt auch das Konzept des Doppeldenkens ein, das sich auf die Fähigkeit bezieht, zwei widersprüchliche Überzeugungen gleichzeitig zu haben und beide als wahr zu akzeptieren. Diese psychologische Manipulationstechnik ermöglicht es der Partei, die Gedanken ihrer Bürger zu kontrollieren und sie dazu zu bringen, an falsche Informationen zu glauben oder widersprüchliche Ideen anzunehmen, ohne sie zu hinterfragen (Masken, die die Übertragung von Krankheiten nicht verhindern, sind nach wie vor obligatorisch). 1984
+fälscht die Partei historische Aufzeichnungen und verbreitet falsche Informationen über das Wahrheitsministerium. Diese Manipulation historischer Ereignisse und Fakten zielt darauf ab, das kollektive Gedächtnis
+der Gesellschaft in einer Ära nach der Wahrheit zu kontrollieren und sicherzustellen, dass die Version der
+Partei von der Realität unhinterfragt bleibt (Krieg in der Ukraine, im Irak, in El Salvador, in Vietnam, alles
+zum Schutz unserer Freiheit zu Hause).
+Durch diese Schilderungen verdeutlicht Orwell die Gefahren der Desinformation und ihr Potenzial, die
+Wahrheit zu verfälschen, die öffentliche Meinung zu manipulieren und repressive Machtsysteme aufrechtzuerhalten. Der Roman dient als Warnung vor der Bedeutung kritischen Denkens, unabhängigen Denkens
+und der Bewahrung der objektiven Wahrheit im Angesicht von Desinformation und Propaganda.
+Desinformation ist schlecht. Aber die Ersetzung von Desinformation durch Zensur und/oder die Ersetzung
+durch andere Desinformation ist noch schlimmer. 1984 schloss den Markt der Ideen. Das gilt auch für
+2023.
+Im Amerika des Jahres 2023 sind die sozialen Medien das Medium und das Wahrheitsministerium ist die
+Exekutive, in erster Linie das FBI. Zu den Themen, die das FBI einst als Desinformation bezeichnete und im
+Namen des Schutzes der Amerikaner vor Desinformation zu zensieren versuchte, gehören u.a. der Inhalt
+von Hunter Bidens Laptop, die Covid-Laborleck-Theorie, die Effizienz und der Wert von Masken, Lockdowns
+und Impfstoffen für die Gesellschaft, Reden über die Integrität von Wahlen und die Präsidentschaftswahlen
+2020, die Sicherheit von Briefwahlen und sogar Parodiekonten, die sich über den Präsidenten lustig
+machen (über Finnegan Biden, die Tochter von Hunter Biden).
+Als er vor dem Kongress gebeten wurde, Desinformation zu definieren, konnte FBI-Direktor Christopher
+Wray dies nicht tun, obwohl diese die Grundlage für die Kampagne des FBI zur Zensur der Amerikaner ist.
+Es ist ein erfundener Begriff, der keine feste Bedeutung hat. Das verleiht ihm seine Macht, so wie ‹Terrorismus› etwa ein Jahrzehnt zuvor verwendet wurde. Erinnern Sie sich an den Begriff ‹Inlandsterrorismus›? Das
+dehnte sich auf alles aus, von White-Power-Befürwortern über J6-Marschierer bis hin zu BLM-Protestlern
+und Moms for Liberty. Es kann nicht immer alles sein, aber es kann alles zu verschiedenen Zeiten sein, je
+nach Bedarf. Der Begriff ‹Hassrede› ist ein weiteres flexibles Instrument der Durchsetzung und ist der
+Grund, warum Bestrebungen, das Verbot von Hassrede unter dem Ersten Verfassungszusatz zu kodifizieren,
+so stark widerstanden werden muss. Dasselbe gilt für QAnon. Wir hören nun schon seit Jahren von QAnon,
+können aber immer noch nicht herausfinden, ob es überhaupt existiert. Wenn man die MSM liest, könnte
+man meinen, dass es sich um das mächtigste und unheimlichste Wesen handelt, das man sich vorstellen
+
+
+-----
+
+kann, aber es scheint imaginär zu sein, ein weiteres Cthulhu. Haben sie irgendwo ein Büro, eine E-MailAdresse, ein Versteck?
+Mit einfachen Worten: Die Regierung benutzt Unternehmen der sozialen Medien als Bevollmächtigte, um
+die gegenteiligen Gedanken der Amerikaner zu zensieren, alles unter dem Deckmantel der Korrektur von
+Fehlinformationen und unter direkter Missachtung des ersten Verfassungszusatzes.
+Wie schlimm kann es werden? Im Rahmen seiner Untersuchung der Rolle der Bundesregierung bei der
+Zensur rechtmässiger Äusserungen auf Social-Media-Plattformen im Jahr 2023 hat der Justizausschuss
+des Repräsentantenhauses eine Vorladung an Meta, die Muttergesellschaft von Facebook und Instagram,
+und Alphabet, die Muttergesellschaft von Google und YouTube, gerichtet. Aus den erhaltenen Dokumenten
+geht hervor, dass das FBI im Auftrag eines kompromittierten ukrainischen Geheimdienstes die weltweit
+grössten Social-Media-Plattformen aufgefordert und in einigen Fällen sogar angewiesen hat, Amerikaner zu
+zensieren, die sich online verfassungsrechtlich geschützt über den Krieg in der Ukraine äussern.
+Ein weiteres Instrument der Gedankenkontrolle ist der Foreign Intelligence Surveillance Act (FISA), der
+eigentlich dazu dienen sollte, Ausländer auszuspionieren, aber missbräuchlich gegen Tausende von Amerikanern eingesetzt wurde. Im Jahr 2022 wurden über 100’000 Amerikaner ausspioniert, 2021 waren es
+noch drei Millionen.
+Kommt Ihnen das bekannt vor? Eine amorphe Bedrohung wird in die Köpfe der Amerikaner hineingehämmert (Kommunismus und Rote Angst, Covid, Terrorismus, Desinformation), und in ihrem Namen wird fast
+alles gerechtfertigt, auch im jüngsten Kampf um die Freiheit, die Zensur. Unter dem Deckmantel, dass dies
+alles zu unserem eigenen Schutz geschieht (Biden selbst beschuldigte Social-Media-Unternehmen, ‹Menschen zu töten›, die modernere Version des ‹Blut an den Händen› aus der Terrorismus-Ära), übernimmt
+die Regierung die Rolle, zu wissen, was für die Amerikaner richtig ist. Das Ziel ist dem Namen nach immer
+irgendein russischer Ausländer, aber in Wirklichkeit geht es um die Zensur unserer eigenen Bürger (die als
+‹Putin-Befürworter› bezeichnet werden). Meta-CEO Mark Zuckerberg gab jedoch zu, dass die Regierung
+Facebook gebeten hat, wahre Informationen zu unterdrücken. Er sagte, während der Covid-Ära habe das
+wissenschaftliche Establishment innerhalb der Regierung darum gebeten, «eine Reihe von Dingen zu zensieren, die sich im Nachhinein als fragwürdiger oder wahrer herausgestellt haben.»
+Unter Präsident Joe Biden habe die Regierung «den massivsten Angriff auf die Meinungsfreiheit in der Geschichte der Vereinigten Staaten» unternommen. Zu diesem aussergewöhnlichen Schluss kam ein Bundesrichter im Fall Missouri gegen Biden. Der Fall machte deutlich, wie weit das Weisse Haus Bidens und seine
+Bundesbehörden gehen, um Social-Media-Plattformen zu zwingen, ihnen missliebige politische Ansichten
+zu löschen. Das Weisse Haus hat Berufung eingelegt und einen Aufschub erwirkt, in der Hoffnung, dieses
+mächtige Instrument der Gedankenkontrolle aus dem Jahr 1984 beibehalten zu können. Ein Sieg der
+Zensur der Amerikaner und ihrer Gedanken könnte die grösste Bedrohung für die Meinungsfreiheit in der
+amerikanischen Geschichte sein.
+_QUELLE: DISINFORMATION, 1984-2023, ÜBERSETZUNG: ANTIKRIEG_
+_Quelle: https://uncutnews.ch/desinformation-1984-2023/_
+
+##### Brandbrief von Prof. Bhakdi:  «Die niemals endenden Gefahren von RNA-Impfstoffen»
+_Hwludwig, Veröffentlicht am 14. August 2023_
+
+Nachfolgend wird aus einer Presseerklärung der ‹Mediziner und Wissenschaftler für Gesundheit, Freiheit
+und Demokratie› (MWGFD)1 der Hinweis auf einen drängenden Brandbrief von Prof. Dr. Sucharit Bhakdi
+und seinem internationalen Team zum neuartigen Konzept von RNA-‹Impfstoffen› übernommen, der in
+mehreren Sprachen in Umlauf gebracht werden soll. Der Brandbrief trägt den Titel ‹Die niemals endenden
+Gefahren von RNA-Impfstoffen›. Dazu äusserte sich Prof. Bhakdi in einem Interview: «Es hat 7 Tage gebraucht, um 1200 Worte zu schreiben, weil dies die wichtigsten Worte sind, die ich wohl je in meinem
+Leben geschrieben habe […]. Diese Injektionen sind der grösste Angriff auf die Menschheit und unsere
+DNA, der jemals stattgefunden hat.» 2
+In der Presseerklärung der MWGFD heisst es weiter:
+«Gerade Ärzte, Wissenschaftler, Impfstoffhersteller, Politiker, Medien – kurzum jene, die blind dieser ‹Impf›Agenda folgten – sollen vor dem neuartigen Konzept von modRNA-‹Impfstoffen› gewarnt und wachgerüttelt
+werden.
+Dieser Mahnbrief erklärt wissenschaftlich präzise, aber für den Laien verständlich, warum die ‹Impfstoffe›
+umgehend aus dem Verkehr gezogen werden müssen. Diese Forderung ist umso drängender, da die WHO
+im Begriff ist, jede ‹Impfung›, selbst Grippe- und Kinderimpfungen, auf modRNA-Technik umzustellen, während sich zeitgleich das Blatt wendet und die Forderung, die Anwendung dieser ‹Impfstoffe› angesichts der
+
+
+-----
+
+sich immer mehr manifest werdenden Schädlichkeit dieser modRNA-Gentherapie zu verbieten, immer
+lauter wird.
+
+_Halt!! Stopp!! (Pixabay)_
+
+Gerade nach dem jüngsten Fund von Plasmid-DNA in ‹Impfstoffen› durch McKernan müsste in einer intakten und gesunden Aufklärungskultur sofort Alarm geschlagen werden. Hier nur ein kleiner Auszug, der
+deutlich macht, was es heisst, wenn modRNA-‹Impfstoffe› mit Hilfe von bakteriellen Chromosomen hergestellt werden.
+Es wurden grosse Mengen an Plasmid-DNA in verpackter Form gefunden. Die Verpackung garantierte, wie
+bei der mRNA, die erfolgreiche Lieferung in unsere Körperzellen. Der Unterschied ist, dass DNA sehr viel
+stabiler ist als mRNA und über längere Zeiträume als Rezept für die Produktion dienen kann. Die zelluläre
+Aufnahme eines funktionellen fremden Chromosoms bedeutet nicht weniger als eine genetische Veränderung. Es ist anzunehmen, dass Menschen, denen diese verpackten bakteriellen Plasmide mit der Impfung
+gespritzt wurden, dieses Schicksal erleiden. […] Ausserdem muss damit gerechnet werden, dass die Kontamination von Impfstoffchargen mit Plasmid-DNA nicht die Ausnahme, sondern eher die Regel sein wird, da
+es kein kosteneffizientes Verfahren gibt, um massenhaft hergestellte RNA zuverlässig von Plasmiden zu
+trennen. Daher ist ein langanhaltender Autoimmunangriff auf die Zellen bei der Verimpfung von PlasmidDNA unvermeidlich.3
+Da eine Zulassung unter diesen Umständen nie hätte erfolgen dürfen, bitten wir Sie, diesen Brandbrief, den
+wir hier auf Deutsch und Englisch, sowie in Kürze auch in anderen Sprachen hochladen, breit zu teilen.»
+_1  https://www.mwgfd.org/2023/08/brandbrief-die-ewigen-gefahren-von-mrna-impfstoffen/_
+_2  https://rumble.com/v34nvfd-prof.-dr.-sucharit-bhakdi-mit-einer-hoch-brisanten-wichtigen-nachricht-an-d.html_
+_3  Aus dem Brandbrief ‹Die niemals endenden Gefahren von RNA-Impfstoffen›_
+_Quelle: https://fassadenkratzer.wordpress.com/2023/08/14/brandbrief-von-prof-bhakdi-die-niemals-endenden-gefahren-_
+_von-rna-impfstoffen/_
+
+##### Solidarisch?
+_Andreas Glarner, Nationalrat SVP AG_
+_VERÖFFENTLICHT AM 11. AUGUST 2023_
+
+Was lesen wir dieser Tage für eine erfreuliche Medienmitteilung: Die Schweizer ‹Rechts-Wähler› seien zunehmend ‹solidarisch gegenüber Geflüchteten›.
+Nun kommt es natürlich darauf an, was für Fragen in so einer Umfrage gestellt werden. Ganz einfach: Man
+lege den Befragten fiktive Lebensläufe von Asylsuchenden vor und stelle dabei fest, dass ‹rechts der Mitte›
+die Solidarität um sechs Prozent gestiegen sei. Bei den Linken nur um vier Prozent. Beteiligt an der Studie
+waren die Hochschulen ETH, Berkeley und Stanford.
+Hätte man den Befragten die Sündenregister der unten aufgeführten Delinquenten gezeigt, wäre das Ergebnis wohl zumindest auf der bürgerlichen Seite ganz anders ausgefallen. Ebenso, wenn man den Befragten
+aufgezeigt hätte, dass durch unsere solidaritätsheischenden Ukrainer die Flixbus-Fahrten Zürich – Kiew und
+Kiew – Zürich praktisch auf Wochen hinaus ausgebucht sind.
+
+
+-----
+
+Aber das war wohl nicht das Ziel der Studie. Der Grüne Ständerat Mathias Zopfi verstieg sich gegenüber
+‹20 Minuten› zu der Aussage, dass man aus den Medien nur überdurchschnittlich radikale und ausländerfeindliche Stimmen höre – die Bevölkerung ticke viel differenzierter…
+
+Doch der Schuss ging nach hinten raus: Nur sieben Prozent von über 5400 Teilnehmern befanden in der
+Leserumfrage, dass das Bewusstsein für menschliche Not geschärft sei. 75% der Leser fanden, dass die
+Ablehnung gross sei. Und dies habe auch mit dem enorm gestiegenen Bevölkerungswachstum zu tun.
+Vielen sei es zudem auch nicht mehr wohl im eigenen Land.
+
+**Sozialhilfe à gogo**
+Gerade bei der Sozialhilfe wird es nun richtig prekär: Ausländer beziehen fast dreimal so häufig Sozialhilfe
+wie Schweizer. Jeder dritte Afrikaner oder über 38’000 Personen aus diesem Kontinent leben von Sozialhilfe – Tendenz steigend. Der Anstieg ist tatsächlich frappant: Die Zahl der ausländischen Sozialhilfe-Empfänger wächst viereinhalbmal so schnell wie die der Schweizer. Wenn die Medien den Schweizern diese Zahlen
+offenbaren würden, wäre es mit der Solidarität wohl schnell vorbei …
+
+**Im Aargau alle sechzehn Minuten ein Delikt**
+Im Aargau wurden im 2022 über 32’000 begangene Straftaten registriert. Dies bedeutet, dass alleine im
+Aargau rund alle sechzehn Minuten ein Delikt verübt wird − Tendenz stark steigend! Allein von 2021 auf
+2022 stieg die Zahl der Einbrüche um achtzig (!) Prozent!
+Es ist schier unglaublich, was man nur im Monat Juli aus den Communiqués der KAPO Aargau entnehmen
+kann. Praktisch jeden Tag werden Asylbewerber beim Klauen, Einbrechen und dem Aufbrechen von Autos
+erwischt. Die Kriminalstatistik spricht Bände − und die Dunkelziffer der nicht angezeigten Delikte ist enorm
+hoch.
+Müssig zu sagen, dass auch regelmässig Frauen von Asylbewerbern belästigt und auch zu sexuellen Handlungen gezwungen werden.
+
+**Sie klauen wie die Raben!**
+Wer nur die Polizeimeldungen der Aargauer Kantonspolizei (KAPO) liest, wähnt sich – gelinde gesagt – im
+falschen Film. Hier nur ein Auszug aus dem, was im Aargau so ‹abgeht›:
+14. Juli in Lupfig: Zwei Asylanten aus Tunesien und Marokko auf Diebestour;
+15. Juli in Olten/Aarau: Zwei Asylanten aus Algerien und Libyen bestehlen Seniorin;
+16. Juli in Zofingen: Asylant aus Algerien dringt in Haus ein;
+16. Juli in Zofingen: Einschlägig polizeibekannter Asylant aus Algerien auf Diebestour;
+21. Juli in Biberstein: Asylant aus Algerien auf Diebestour;
+22. Juli in Reinach: Türke dringt in Haus ein;
+22. Juli in Zofingen: Zwei Asylanten aus Marokko, die mehrere Einbrüche und Diebstähle verübten;
+22. Juli in Oeschgen: Einbrecher auf frischer Tat ertappt − ein Asylant aus Marokko und zwei Illegale aus
+Algerien und Libyen;
+25. Juli in Eiken: Ein Tunesier und ein Algerier stehlen Geld und Wertsachen aus parkiertem Auto;
+25. Juli in Stein: Zwei Asylanten aus Algerien wollen aus parkierten Autos stehlen;
+28. Juli in Brugg: Asylant aus Marokko und ein Illegaler aus Libyen durchsuchen parkierte Autos.
+Auffällig ist, dass obige Meldungen ausschliesslich über Taten von Asylbewerbern berichten – von Leuten
+also, die bei uns angeblich Unterschlupf und Schutz suchen. Spricht man mit der Bevölkerung, so wird
+einem immer mehr klar: Wir müssen Schutz suchen vor den Schutzsuchenden!
+
+**Kuscheljustiz**
+Liest man dann die jüngsten Gerichtsentscheide, so wird einem schnell klar, dass die heutige Kuscheljustiz
+keine abschreckende, sondern eher anziehende Wirkung entfaltet. So konnte dieser Tage ein Mann aus
+
+
+-----
+
+dem Kaukasus, der seine eigene Familie bedroht hatte, erreichen, dass er nicht des Landes verwiesen wird.
+Konkret hatte die ‹Fachkraft› mehrfache Drohung, Nötigung, Tätlichkeiten und Beschimpfungen auf dem
+Kerbholz. Er hatte seiner Frau gegenüber, weil sie sich von ihm trennen wollte, Todesdrohungen ausgesprochen und sie als ‹Schlampe› und ‹Hure› bezeichnet.
+Er bezieht selbstverständlich Sozialhilfe und ist unserer Sprache nicht mächtig. Gemäss ‹Aargauer Zeitung›
+lohnte sich der Weiterzug an das Obergericht auch betreff des Strafmasses. Statt einer bedingten Freiheitsstrafe von 16 Monaten, zu der ihn das Bezirksgericht Laufenburg verurteilt hatte, sprach das Obergericht lediglich eine Geldstrafe von 180 Tagessätzen zu 10 Franken aus – aufgrund der Teilfreisprüche und
+des geringen Einkommens. Konsequenterweise erliess ihm das Gericht dann auch drei Viertel der zuvor
+vom Bezirksgericht aufgebrummten Kosten …
+Und sogar die reduzierten Kosten muss er erst bezahlen, «sobald es seine wirtschaftlichen Verhältnisse
+erlauben».
+
+**IV auch bei Landesverweis**
+Endgültig absurd wird es, wenn jemand, gegen den wegen groben Delikten ein Landesverweis ausgesprochen wird, seine IV-Rente trotzdem erhält. Eine Anfrage von mir bei den Parlamentsdiensten ergab, dass
+dies Usanz und rechtens sei. Gegen die inflationär abgeschlossenen Sozialhilfe-Abkommen mit bald aller
+Herren Länder, welche diesen Unsinn überhaupt erst möglich machen, wehrt sich nur noch die SVP. Es ist
+doch stossend, wenn die Schweiz Sozialhilfe-Abkommen mit Ländern wie Tunesien abschliesst, die uns
+eine grosse Anzahl Asylbewerber senden.
+
+**Kosten explodieren**
+Der gigantische Asylbetrug kostet die Steuerzahler alleine für den Bund inzwischen über vier Milliarden –
+mehr, als wir für die gesamte Landwirtschaft ausgeben. Bei Einbezug aller Kosten auf Stufen Bund, Kantone
+und Gemeinden dürfte sich das Asylwesen inzwischen auf über zehn Milliarden jährlich belaufen. Tendenz
+weiter steigend.
+Die mit der Studie vermittelte Beruhigungspille für das Schweizer Volk erreicht wohl eher das Gegenteil. So
+dumm und blind ist inzwischen kein rechtschaffener, sich im Vollbesitz seiner geistigen Kräfte befindlicher
+Schweizer, dass er nicht einsehen würde, was alles schiefläuft.
+Es ist unbegreiflich, dass die anderen Parteien und die Medien diese Zustände nicht wahrhaben wollen und
+nicht bereit sind, die SVP im Kampf gegen diesen gigantischen Missbrauch unseres Gastrechts zu unterstützen.
+Hier gilt es im Wahlkampf Ross und Reiter zu benennen, damit die Wähler sehen, wer für dieses Desaster
+verantwortlich ist. Holen wir uns unsere Schweiz zurück – noch ist es nicht zu spät!
+_Quelle: https://schweizerzeit.ch/solidarisch/_
+
+##### Alles hinter vorgehaltener Hand: Rauch verweigert Auskunft über Impfdosen
+_14. August 2023 / 11:47 Uhr_
+
+Der grüne Minister Rauch trete das Fragerecht der Abgeordneten mit Füssen, ärgert sich Peter Wurm von
+der FPÖ, nachdem Rauch zu Stornogebühren an die Pharmaindustrie nichts sagen wollte.
+Die Geschäfte der Pharmaindustrie mit der schwarz-grünen Regierung schreien förmlich nach Transparenz.
+Doch was macht der grüne Gesundheitsminister Johannes Rauch? Er verweigert die Auskunft.
+Geschehen jetzt, nachdem FPÖ-Nationalratsabgeordneter Peter Wurm in einer parlamentarischen Anfrage
+Folgendes wissen wollte:
+
+_Können Sie als zuständiger österreichischer Gesundheitsminister bestätigen, dass die Europäische Union (EU)_
+_und damit anteilsmässig auch der EU-Mitgliedsstaat Österreich eine ‹Stornogebühr› für 220 Millionen ‹zu viel_
+_bestellte› Covid-19-lmpfdosen an den Pharmakonzern Pfizer bezahlen muss?_
+Die Antwort von Rauch:
+
+**220 Millionen Euro Stornogebühr**
+_Da der Inhalt der Verträge der Vertraulichkeit unterliegt, zu der sich auch Österreich als Vertragspartner verpflich-_
+_tet hat, können Fragen zu konkreten Vertragsinhalten und finanziellen Details nicht beantwortet werden._
+
+
+-----
+
+Foto: Christopher Dunker / BKA
+
+**Anfragebeantwortung eine ‹glatte Themenverfehlung›**
+Der grüne Gesundheitsminister bestätigt zwar, dass es zu einer Reduzierung bei den ursprünglich bestellten
+Impfdosen gekommen sei, doch das ist dem FPÖ-Abgeordneten Wurm viel zu wenig. Die Anfragebeantwortung, so Wurm gegenüber ‹unzensuriert›, sei eine ‹glatte Themenverfehlung›. Minister Rauch habe sich
+geweigert, die Höhe der Stornogebühren für die nicht mehr benötigten Impfdosen bekanntzugeben, «weil
+er und seine grünen Vorgänger offenbar in Brüssel ein Schweigegelübde abgelegt haben, was sämtliche
+finanzielle Fragen der Impfstoff-Beschaffungsverträge betrifft».
+
+**Von der Leyen ‹Chefin dieser Betrüger-Bande›**
+Rauch müsse sich deshalb die Frage gefallen lassen, ob er der internationalen Pharmalobby diene oder als
+ein Regierungsmitglied in Österreich der verfassungsrechtlich festgelegten Ministerverantwortlichkeit unterstehe. Die hier an den Tag gelegte Intransparenz würde nicht nur das Fragerecht der Abgeordneten mit
+Füssen treten, sondern kaschiere vor allem den Diebstahl am Steuergeld der Bürger in Europa, den allen
+voran Frau von der Leyen zu verantworten habe. Sie sei die Chefin dieser ‹Betrüger-Bande›, die uns nicht
+nur über die Kosten, sondern auch über die Wirksamkeit der Impfstoffe und über vieles mehr rund um
+Corona getäuscht habe, sagte Wurm.
+Hier die Anfragebeantwortung des grünen Gesundheitsministers Johannes Rauch zur Anfrage von FPÖNationalratsabgeordnetem Peter Wurm bezüglich Stornogebühren an Pfizer im Originalwortlaut:
+
+_Quelle: https://www.unzensuriert.at/198067-alles-hinter-vorgehaltener-hand-rauch-verweigert-auskunft-ueber-impfdosen/_
+
+
+-----
+
+###### Interview (Fremdzusendung)
+##### Der russische Aussenminister Lawrow über die Perspektiven der Beziehungen zum Westen
+von Anti-Spiegel, Thomas Röper, 19. August 2023,19:15 Uhr
+
+**Der russische Aussenminister Lawrow hat sich in einem Interview zu den wichtigsten aussenpolitischen**
+**Fragen geäussert, darunter die Möglichkeiten einer Verhandlungslösung im Ukraine-Konflikt**
+**und die Perspektiven der Beziehungen zum Westen.**
+
+‹International Affairs› ist die Zeitung des russischen Aussenministeriums. Wenn der russische Aussenminister Lawrow dieser Zeitung ein Interview gibt, darf man also getrost davon ausgehen, dass die Aussagen in
+dem Interview einer offiziellen russischen Erklärung an das Ausland gleichkommen.
+Genau das ist nun geschehen, denn Lawrow hat ‹International Affairs› ein Interview gegeben, in dem er die
+Standpunkte der russischen Regierung zu Verhandlungen über die Ukraine-Krise, die Beziehungen zum
+Westen und auch die Beziehungen zum Globalen Süden, vor allem zu Afrika, erklärt hat. Hier werde ich das
+komplette Interview übersetzen, in einem gesonderten Artikel werde ich morgen auf die Frage eingehen,
+was das für eine mögliche Verhandlungslösung in der Ukraine heissen könnte. Zunächst jedoch will ich
+Ihnen die Gelegenheit geben, die Aussagen von Lawrow unkommentiert zu lesen.
+
+**Beginn der Übersetzung:**
+**Frage: Die Welt ist in eine Phase der Konfrontation zwischen den Konzepten zur globalen Entwicklung ein-**
+getreten: Der Position Russlands, Chinas und überhaupt der nicht-westlichen Position im Gegensatz zur
+Politik der westlichen Dominanz. War das aufgrund der Unterschiede zwischen den Zivilisationen, der Ansätze für die Anwendung von Gewalt und Völkerrecht und dem Verständnis der Rolle internationaler Institutionen unvermeidlich? Was ist Ihrer Meinung nach die Rolle und die Aufgabe Russlands angesichts der
+aktuellen Herausforderungen?
+
+**Lawrow: Ich kann nur zustimmen, dass das Konzept der westlichen Dominanz, das von den USA und ihnen**
+gehorchenden Ländern propagiert wird, keine harmonische Entwicklung der gesamten Menschheit vorsieht.
+Im Gegenteil, wir haben es mit dem ständigen Streben der westlichen Minderheit nach militär-politischer
+und finanziell-wirtschaftlicher Expansion zu tun. Die Parolen wechseln: Mal sprechen sie von Globalisierung,
+mal von Verwestlichung, Amerikanisierung, Universalisierung, Liberalisierung und so weiter. Aber der Kern
+bleibt derselbe: Alle unabhängigen Akteure sollen ihrem Willen unterworfen und gezwungen werden, nach
+den für den Westen vorteilhaften Regeln zu spielen.
+Heute leugnen nur wenige, dass die Amerikaner und ihre Satelliten versuchen, den natürlichen Entwicklungsprozess der internationalen Beziehungen im Rahmen der Bildung eines multipolaren Systems zu
+verlangsamen oder sogar umzukehren. Sie halten es für möglich, die ganze Welt nach ihren Bedürfnissen
+zu ‹verbiegen›, indem sie ungeeignete, illegale Methoden anwenden, einschliesslich der Anwendung von
+Gewalt, einseitigen – also nicht vom UN-Sicherheitsrat genehmigten – Sanktionen, medien-psychologischen
+Operationen und so weiter.
+Im Westen sitzen heute Leute wie Josep Borrell ‹am Ruder›, die die Welt in ihren ‹blühenden Garten› und
+den ‹Dschungel› einteilen, in dem ihrer Meinung nach der Grossteil der Menschheit lebt. Mit dieser – ich
+fürchte mich nicht, das Wort zu benutzen – rassistischen Weltanschauung ist es natürlich schwierig, sich
+mit dem Aufkommen der Multipolarität zu arrangieren. Das politische und wirtschaftliche Establishment in
+Europa und den USA befürchtet zu Recht, dass der Übergang zu einem multipolaren System mit schwerwie
+
+-----
+
+genden geopolitischen und wirtschaftlichen Verlusten und dem endgültigen Zusammenbruch der Globalisierung in ihrer derzeitigen, westlich geprägten Form verbunden ist. Vor allem fürchten sie, die Möglichkeit
+zu verlieren, den Rest der Welt zu parasitieren und so ihr eigenes Wirtschaftswachstum auf Kosten der
+anderen zu sichern.
+Die Ablehnung der Logik der geschichtlichen Entwicklung, die die moderne Generation westlicher Führer
+nicht verheimlicht, ist mehr als alles andere ein Beweis für ihre professionelle Degradierung und den Verlust
+der Fähigkeit, aktuelle Ereignisse richtig zu analysieren und Trends vorherzusagen. Eine weitere Bestätigung
+dieser These ist die Tatsache, dass es die undurchdachte Politik der USA und ihrer Untergebenen ist, die
+die gegenwärtige Verschärfung der internationalen Situation, trotz unserer langjährigen Versuche, sie zu
+verhindern, unvermeidlich gemacht hat. Ich spreche von der umfassenden Krise der europäischen Sicherheit, für die unsere ehemaligen Partner die volle Schuld tragen.
+In Anbetracht all dessen sieht das moderne Russland seine Aufgabe darin, ein globales Gleichgewicht der
+Interessen aufrechtzuerhalten und eine gerechtere Architektur der internationalen Beziehungen aufzubauen. Unsere Ansichten sind in der neuen Fassung des aussenpolitischen Konzepts systematisiert, das der
+russische Präsident Wladimir Putin am 31. März 2023 verabschiedet hat. Wir glauben, dass die universelle
+Priorität darin bestehen sollte, die Bedingungen für eine friedliche, fortschrittliche Entwicklung der Menschheit auf der Grundlage einer einigenden Agenda zu gewährleisten. Eine der wichtigsten Aufgaben dabei besteht darin, die Fähigkeit der UNO wiederzubeleben, eine zentrale Rolle bei der Harmonisierung der Interessen der Mitgliedstaaten zu spielen.
+Wir sind mit diesem Bestreben bei weitem nicht allein. Immer mehr Länder des globalen Südens und
+Ostens beginnen, ihre nationalen Interessen zu erkennen und zu formulieren und eine Politik zu verfolgen,
+die darauf abzielt, sie im Geiste der internationalen Zusammenarbeit zu verwirklichen. Diese Staaten setzen
+sich zunehmend für die Schaffung einer gerechteren Weltordnung ein, indem sie bestehende Kooperationsformate reformieren oder neue schaffen, um konkrete Herausforderungen in den Bereichen Sicherheit und
+Entwicklung anzugehen. Wir unterstützen diesen Trend, da wir uns darüber im Klaren sind, dass das die
+Zukunft ist.
+
+**Frage: 1987 sagte die britische Premierministerin Thatcher bei einem Besuch in Moskau: «Ich glaube, es**
+hat nie eine grössere Abschreckung gegeben als Atomwaffen. Deshalb haben wir in den letzten 40 Jahren
+Frieden in Europa gehabt.» Heute wird die Möglichkeit des Einsatzes dieser Waffen in der öffentlichen Diskussion breit diskutiert. Einige sind der Meinung, dass die Schwelle für ihren Einsatz unter den Bedingungen
+einer Bedrohung der Existenz Russlands zu niedrig ist. Andere halten diesen Ansatz für völlig inakzeptabel.
+Was ist Ihre Meinung zu diesem Thema?
+
+**Lawrow: Tatsächlich ist in letzter Zeit viel über die Rolle von Atomwaffen in der russischen Aussenpolitik**
+gesprochen worden. Ich möchte Sie daran erinnern, dass die Bedingungen für einen möglichen Einsatz
+unsererseits in der Doktrin festgelegt sind. Es ist wichtig zu verstehen, dass Russlands staatliche Politik im
+Bereich der nuklearen Abschreckung ausschliesslich defensiver Natur ist. Sie zielt darauf ab, das Potential
+der Nuklearstreitkräfte auf dem minimal notwendigen Niveau zu halten, um die Verteidigung der Souveränität und territorialen Integrität des Staates zu gewährleisten und eine Aggression gegen Russland und seine
+Verbündeten zu verhindern.
+Im Kontext der Abschreckung ist der Besitz von Atomwaffen derzeit die einzig mögliche Antwort auf einige
+bedeutende äussere Bedrohungen der Sicherheit unseres Landes. Die Entwicklung der Situation um die
+Ukraine hat die Richtigkeit unserer Bedenken in diesem Bereich bestätigt. Unter eklatanter Verletzung des
+Grundsatzes der Unteilbarkeit der Sicherheit hat die NATO – eine Organisation, die sich, wie ich in Erinnerung rufen möchte, selbst zu einem Atombündnis erklärt hat – auf eine ‹strategische Niederlage› Russlands
+gesetzt. Der ‹kollektive Westen› nutzte unsere erzwungene Reaktion zur Verteidigung unserer äusseren
+Sicherheitskonturen als Vorwand, um mit einem Arsenal hybrider Mittel zu einer heftigen Konfrontation
+überzugehen.
+Im Zusammenhang mit dem Ukraine-Konflikt besteht die grosse Gefahr, dass die USA und die NATO-Länder
+durch die Eskalation der Situation einen direkten bewaffneten Zusammenstoss zwischen Atommächten
+riskieren. Wir glauben, dass diese Entwicklung verhindert werden muss und kann. Wir sehen uns daher gezwungen, an die hohen militärischen und politischen Risiken zu erinnern und ernüchternde Signale an
+unsere Gegner zu senden.
+Ich möchte betonen, dass unser Land voll und ganz dem Grundsatz der Unzulässigkeit eines Atomkrieges
+verpflichtet ist und dass es in so einem Krieg keine Sieger geben kann. Dementsprechend sollte er niemals
+entfesselt werden. Dieses Postulat wurde von den Staats- und Regierungschefs der fünf Atommächte in der
+gemeinsamen Erklärung vom 3. Januar 2022 bekräftigt. Unter den gegenwärtigen Umständen hat das Dokument zusätzliche Bedeutung erlangt, denn seine Logik impliziert, dass jede militärische Konfrontation
+zwischen Atommächten verhindert werden muss, da sie mit der Möglichkeit einer Eskalation auf die nukle
+
+-----
+
+are Ebene behaftet ist. In dieser Hinsicht besteht die wichtigste Aufgabe zum jetzigen Zeitpunkt darin, dass
+sich jeder der Atomwaffenstaaten weiterhin an diese Vereinbarungen hält und ein Höchstmass an Zurückhaltung übt.
+
+**Frage: Russland und der Westen stehen kurz vor einem direkten Zusammenstoss. Glauben Sie nicht, dass**
+die übertriebene Russophobie eine andere historische Qualität angenommen hat? Wie würden Sie die
+Gefahr einer Eskalation der Spannungen heute charakterisieren, und ist es möglich, dass sich die tragischen
+Seiten der Geschichte des 20. Jahrhunderts, in der es zwei Weltkriege gab, wiederholen?
+
+**Lawrow: In der Tat sind die westlichen Länder nach einigen Jahrzehnten, in denen sie vorgaben, zivilisierte**
+und angemessene Partner auf der internationalen Bühne zu sein, buchstäblich durchgebrochen. Diese
+Situation hat jedoch auch eine positive Seite: Die Mehrheit der Welt hatte die Gelegenheit, das wahre Gesicht derer zu sehen, die praktisch ein Monopol auf die Definition ‹universeller Werte› beanspruchten.
+Die unter dem Deckmantel der Heuchelei verborgene Russophobie vieler unserer ehemaligen Partner hat
+sich nun in ihrer ganzen Pracht gezeigt, wenn man das so sagen kann. Aber wir sollten nicht vergessen,
+dass das nicht erst seit gestern so ist. Viele Jahre lang haben sie zynisch daran gearbeitet, unser Nachbarland in einen militärischen Brückenkopf zu verwandeln, der Russland feindlich gesinnt ist, und eine ganze
+Generation von Politikern herangezogen, die sich darauf vorbereitet haben, der gemeinsamen Geschichte,
+der gemeinsamen Kultur, ja insgesamt allem Russischen den Krieg zu erklären.
+Die westlichen Hauptstädte haben offen zugegeben, dass sie nicht vorhatten, das Minsker Abkommen, das
+den Konflikt in der Ukraine lösen sollte, umzusetzen. Vielmehr wollten sie nur Zeit schinden, um sich auf
+ein militärisches Szenario vorzubereiten und Kiew mit Waffen zu beliefern.
+Ich denke, es ist wichtig, das Wichtigste zu verstehen: Der Westen will unser Land als ernsthaften geopolitischen Konkurrenten ausschalten. Aus diesem Grund haben Washington und Brüssel den hybriden Krieg
+gegen uns entfesselt. Er wird von einem beispiellosen Sanktionsdruck begleitet. Die Amerikaner versuchen,
+unsere Partner mit Zuckerbrot und Peitsche von der wirtschaftlichen und sonstigen Zusammenarbeit mit
+Russland abzuhalten. Es wird zu unverhohlener Sabotage gegriffen, wie im Fall der Sprengung der NordStream-Gaspipelines auf dem Grund der Ostsee. Es werden ungeheuerliche Anstrengungen unternommen,
+um unser Land in den Bereichen Kultur, Bildung, Wissenschaft und Sport von den Mechanismen der internationalen Zusammenarbeit ‹abzukoppeln›.
+Es ist offensichtlich, dass all diese und andere aggressive Massnahmen darauf abzielen, Russland zu schwächen und zu erschöpfen. Sie wollen unsere wirtschaftlichen, technologischen und verteidigungspolitischen
+Kapazitäten so weit wie möglich verbrauchen, unsere Souveränität einschränken und uns zwingen, unseren
+unabhängigen Kurs in der Aussen- und Innenpolitik aufzugeben.
+Die etwa 50 Länder, die der ‹Ramstein-Koalition› zur militärischen Unterstützung der Ukraine angehören,
+sind de facto auf der Seite des Kiewer Regimes, das, wie ich betonen möchte, auch vor terroristischen Methoden der Kriegsführung nicht zurückschreckt, an dem bewaffneten Konflikt beteiligt. In grossem Umfang
+werden westliche Waffen, darunter Streu- und Langstreckenwaffen, an die Ukraine geliefert. NATO-Ausbilder
+sind an der Planung von ukrainischen Operationen beteiligt und sie nutzen NATO-Aufklärungsdaten.
+Der Wert der gesamten Auslandshilfe für das Regime von Selensky belief sich in dem Jahr seit Beginn der
+Militäroperation auf über 160 Milliarden Dollar, davon 75 Milliarden Dollar Militärhilfe. Nach Berechnungen
+der in Washington ansässigen NGO ‹The Heritage Foundation› haben die USA der Ukraine übrigens bereits
+rund 113 Milliarden Dollar zur Verfügung gestellt, das sind 900 Dollar für jede amerikanisches Familie, plus
+weitere 300 Dollar in Form von Zinsen für die Bedienung der entsprechenden Schuldverpflichtungen. Das
+sind gewaltige Summen, vor allem angesichts der schwierigen Lage der Weltwirtschaft.
+Die westlichen Staats- und Regierungschefs wiederholen dabei wie ein Mantra, dass sie Kiew helfen werden,
+so lange es nötig ist. Natürlich ist es ihre Entscheidung, bis zum letzten Ukrainer zu kämpfen, und auch die
+Entscheidung von Selenskys Clique. Allerdings haben die USA historisch gesehen nicht die beste Bilanz
+vorzuweisen, wenn es um die Unterstützung ihrer Verbündeten geht. Man erinnere sich nur an die abrupte
+Beendigung der amerikanischen Militärhilfe für Südvietnam im Jahr 1973 und für das Regime von Ghani
+in Afghanistan im Jahr 2021 und die Tatsache, dass das zum sofortigen Sturz der Washington-treuen Regierungen führte. Und auch die heutige Ukraine ist fast vollständig von westlichen Finanzspritzen und Waffenlieferungen abhängig.
+Wenn man in die Zukunft schaut, sind die Aussichten für die Kiewer Regierung und ihre Kuratoren düster.
+Je länger sich die Kampfhandlungen hinziehen, desto weniger sind westliche Investoren bereit, sich nach
+dem Konflikt am Wiederaufbau der Ukraine zu beteiligen. Ihr Vertrauen in die militärischen Erfolge der Ukraine und überhaupt in die Erhaltung des Staates in irgendeiner Form und innerhalb irgendwelcher Grenzen wird immer schwächer. Ganz zu schweigen von der Tatsache, dass die Fähigkeit Kiews, seine Staatsschulden zu bedienen, in Frage steht. Die Nichtrückzahlung der Kredite wird unweigerlich zu einer zusätz
+
+-----
+
+lichen Belastung für die Steuerzahler in den westlichen Ländern führen, die Inflation anheizen und den
+Lebensstandard senken.
+Und noch etwas sollte dem Westen klar sein: Russland wird seine Bevölkerung und seine vitalen Interessen
+mit allen Mitteln verteidigen. Und es wäre besser, wenn unsere Gegner so schnell wie möglich die völlige
+Sinnlosigkeit einer Konfrontation mit Russland erkennen und zu zivilisierteren, politischen und diplomatischen Wegen übergehen, um einen Interessenausgleich zu erreichen.
+
+**Frage: Eine Reihe von Politikern, insbesondere der weissrussische Präsident Lukaschenko, und der ungari-**
+sche Ministerpräsident Orban, haben wiederholt erklärt, dass Russland und die USA über ein Ende des
+Konflikts in der Ukraine verhandeln sollten. Teilen Sie diesen Standpunkt?
+
+**Lawrow: Diese Logik scheint zu implizieren, dass die Ukraine eine Marionette der Amerikaner ist und dass**
+alle wichtigen Fragen mit ihnen geklärt werden sollten. Das Problem ist jedoch, dass die USA nicht die Absicht haben, den Konflikt zu beenden. Wie ich bereits sagte, ist es ihre offiziell verkündete Aufgabe, Russland
+eine ‹strategische Niederlage› zuzufügen, um uns militärisch, wirtschaftlich und politisch so weit wie möglich zu schwächen. Deshalb sagt Washington immer wieder, dass alle Verhandlungen über eine Beilegung
+des Konflikts ausschliessßlich zu den Bedingungen der Ukrainer, also auf der Grundlage der berüchtigten
+‹Friedensformel› von Selensky, geführt werden sollen. Unserer Ansicht nach ist das eine sinnlose ultimative
+Position. Man kann von uns nicht verlangen, dass wir die Verletzung unserer grundlegenden Sicherheitsinteressen und die Fortsetzung der Willkür gegenüber Russen und russischsprachigen Menschen in den
+neuen Gebieten und auf dem von den ukrainischen Streitkräften kontrollierten Gebiet akzeptieren.
+Ich erinnere daran, dass wir im Dezember 2021 einen ernsthaften Versuch unternommen haben, den westlichen Hauptstädten unsere Bedenken mitzuteilen, indem wir Entwürfe für zwei Verträge vorgelegt haben:
+Über Sicherheitsgarantien mit den USA und über Sicherheitsvereinbarungen mit den NATO-Mitgliedstaaten. Unsere Initiative wurde jedoch arrogant ‹an der Tür› zurückgewiesen. Statt zu verhandeln, setzten sie
+alles daran, die Produktion von Waffen und Munition für die Lieferung in die Ukraine zu erhöhen, was zu
+einer weiteren Eskalation der regionalen Spannungen führte.
+Unser Ansatz ist konsequent und völlig transparent. Wir haben immer gesagt, dass wir zu einem inhaltlichen
+Dialog bereit sind, und wir haben viele Jahre und Anstrengungen eingesetzt, um Kiew zur Umsetzung des
+Minsker Abkommens zu bewegen. Wie Sie wissen, war Russland von den ersten Tagen der Militäroperation
+an offen für Gespräche darüber, wie es seine Ziele mit politischen und diplomatischen Mitteln erreichen
+kann. Wir sind sofort auf den Vorschlag der Ukraine zur Aufnahme von Verhandlungen eingegangen und
+haben sie geführt, bis die ukrainische Seite die Verhandlungen im April 2022 auf Geheiss des Westens abgebrochen hat. Und später, am 30. September 2022, hat Selensky Verhandlungen mit der russischen Führung per Dekret verboten. Es war also Kiew, das die diplomatische Arbeit auf Geheiss seiner äusseren
+Kuratoren sabotiert hat.
+Nun werden in verschiedenen Städten von Kopenhagen bis Dschidda multilaterale Treffen abgehalten, ohne
+russische Vertreter einzuladen, in der Hoffnung, die Entwicklungsländer zur Unterstützung von Selenskys
+‹Friedensformel› bewegen zu können. Moskau wird beschuldigt, «nicht an den Verhandlungen teilnehmen
+zu wollen», und alle Argumente über die Notwendigkeit, die vitalen Interessen unseres Landes zu berücksichtigen, werden von vornherein abgetan. Es ist offensichtlich, dass diese Vorgehensweise nicht darauf hindeutet, dass der Westen mit Russland verhandeln will.
+Daher gibt es jetzt leider keine Aussicht auf Verhandlungen zwischen Russland und dem Westen. Ausserdem drängen die westlichen Sponsoren das Kiewer Regime ständig dazu, den Einsatz zu erhöhen. Die
+heuchlerischen Forderungen des Westens nach Verhandlungen halten wir für einen taktischen Trick, um
+wieder einmal Zeit zu gewinnen, den erschöpften ukrainischen Truppen eine Verschnaufpause und eine
+Chance zu geben, sich neu zu formieren, und sie mit Waffen und Munition vollzupumpen. Aber das ist der
+Weg des Krieges, nicht der einer friedlichen Lösung. Das ist uns völlig klar.
+
+**Frage: Vor kurzem fand in St. Petersburg der zweite Russland-Afrika-Gipfel statt. Im Anschluss an das**
+Gipfeltreffen äusserte sich der russische Präsident Wladimir Putin sehr positiv über den derzeitigen Stand
+der Beziehungen zu den afrikanischen Ländern und die Aussichten für deren Entwicklung. In welchen Bereichen sehen Sie das grösste Potenzial für eine Zusammenarbeit?
+
+**Lawrow: Der zweite Russland-Afrika-Gipfel, der im Juli in St. Petersburg stattfand, hat das feste Bekenntnis**
+Moskaus und der afrikanischen Länder zur Zusammenarbeit und zur Ausweitung der Rahmen der Partnerschaft bestätigt. Er hat auch gezeigt, dass es eine gemeinsame weltanschauliche Grundlage für unsere Zusammenarbeit in Form von traditionellen geistigen und moralischen Werten gibt. Trotz des enormen Drucks
+seitens des Westens haben 48 offizielle Delegationen und Vertreter der fünf führenden regionalen Integrationsverbände an dem Treffen teilgenommen. Ausserdem waren 27 Länder des Kontinents auf der Ebene
+
+
+-----
+
+der ersten und zweiten Vertreter ihrer Staaten vertreten. Diese Zahlen zeigen eindeutig, dass der unabhängige aussenpolitische Kurs unseres Landes von den Entwicklungsländern verstanden wird und dass die Bemühungen der USA und ihrer Verbündeten, Russland international zu isolieren, gescheitert sind.
+Der zentrale Vektor unserer Zusammenarbeit mit Afrika ist die Unterstützung bei der Stärkung der politischen, wirtschaftlichen und technologischen Souveränität unserer Partner. Wir sind bereit, entsprechende
+Erfahrungen mit unseren afrikanischen Freunden zu teilen, um die Nachhaltigkeit und Wettbewerbsfähigkeit ihrer staatlichen Verwaltungssysteme zu verbessern, die Ernährungssicherheit zu gewährleisten und
+nationale Prioritäten im Bereich der sozioökonomischen Entwicklung zu verwirklichen. Russland wird in
+Afrika auch als zuverlässiger Partner bei der Aufrechterhaltung der militärischen und politischen Stabilität,
+der Lösung regionaler Konflikte und der Bekämpfung von Terrorismus, Drogenkriminalität und anderen
+grenzüberschreitenden Bedrohungen und Herausforderungen wahrgenommen.
+Der Gipfel hat Perspektiven für eine verstärkte russisch-afrikanische Zusammenarbeit in verschiedenen Bereichen eröffnet. Das gilt insbesondere für Investitionen, regionale wirtschaftliche Integration, Landwirtschaft, Energie, Infrastrukturausbau Informations- und Kommunikationstechnologien, Gesundheitswesen
+und Bildung.
+Besonders hervorzuheben ist unser Pilotprojekt zur Einrichtung einer russischen Industriezone in Ägypten,
+die zu einer Plattform für die Produktion und den Export von Waren in andere Länder der Region werden
+soll, wobei die Möglichkeiten der afrikanischen kontinentalen Freihandelszone genutzt werden.
+Russland ist für Afrika nach wie vor ein zuverlässiger Lieferant von Energieträgern, Nahrungsmitteln, Düngemitteln und Medikamenten. Einer der gefragtesten Bereiche der Zusammenarbeit ist die Bereitstellung
+humanitärer Hilfe für besonders bedürftige Staaten in der Region.
+Der Ausbildung von Personal widmen wir traditionell grosse Aufmerksamkeit. Nahezu 35’000 afrikanische
+Studenten studieren an russischen Universitäten, und ihre Zahl steigt von Jahr zu Jahr. Es gibt Pläne, Zweigstellen führender russischer Universitäten in afrikanischen Ländern zu eröffnen und weitere gemeinsame
+Bildungseinrichtungen zu schaffen.
+
+**Frage: Unter den gegenwärtigen Umständen sind die Beziehungen Russlands zu den Ländern der Eurasi-**
+schen Wirtschaftsunion und der OVKS von besonderer Bedeutung. Die Dynamik der Entwicklung der Zusammenarbeit innerhalb dieser Strukturen ist offensichtlich. Gleichzeitig sind unsere Partner, insbesondere
+in den zentralasiatischen Staaten, einem ernsthaften Druck von aussen ausgesetzt, um sie zu zwingen, sich
+den anti-russischen Sanktionen anzuschliessen. Wie kann dem Ihrer Meinung nach entgegengewirkt
+werden?
+
+**Lawrow: In der Tat sind unsere Partner in der Eurasischen Wirtschaftsunion und der OVKS einem enormen**
+Druck seitens der unfreundlichen Staaten ausgesetzt. Hochrangige Beamte aus westlichen Hauptstädten
+besuchen sie regelmässig zu ‹Konsultationen› darüber, wie man der ‹Umgehung› der illegalen anti-russischen Sanktionen entgegenwirken kann. Wenn wir die Dinge beim wahren Namen nennen, sprechen wir
+natürlich von Versuchen, unsere Verbündeten durch Drohungen und Erpressung dazu zu zwingen, die
+absolut legitime Zusammenarbeit mit Russland aufzugeben.
+Wir verstehen, dass unsere Partner angesichts des auf sie ausgeübten äusseren Drucks vorsichtig sein müssen. Die gegenseitigen Handels- und Wirtschaftsverpflichtungen, die zwischen uns bestehen, werden weiterhin erfüllt, da sie den Interessen der Parteien entsprechen und nicht gegen das Völkerrecht verstossen.
+Natürlich ergreifen wir von unserer Seite Gegenmassnahmen, um die Versuche der destruktiven Einflussnahme von aussen einzudämmen. So wurden beispielsweise innerhalb der Eurasischen Wirtschaftsunion
+gemeinsame Massnahmen entwickelt, um die Folgen der gegen Russland und Weissrussland verhängten
+Sanktionen zu überwinden, indem die Stabilität der Wirtschaft in den Ländern der Union erhöht wird. Das
+hat bereits zu konkreten Ergebnissen geführt. Das Volumen des gegenseitigen Handels und der Anteil der
+nationalen Währungen an den gegenseitigen Abrechnungen nehmen stetig zu, die Zahl der Kooperationsprojekte steigt, und die Lebensmittel- und Energiesicherheit ist vollständig gewährleistet.
+Ich nenne noch einige Zahlen. Auf den Markt der Eurasischen Wirtschaftsunion entfallen bis zu 40 Prozent
+des Aussenhandels der zentralasiatischen Staaten. Mehr als 10’000 russische Unternehmen und Joint Ventures sind in der zentralasiatischen Region tätig und schaffen rund 900’000 Arbeitsplätze. Generell ist die
+eurasische Integration ein Schlüssel zur Erhaltung der wirtschaftlichen Stabilität der Mitgliedstaaten der
+Eurasischen Wirtschaftsunion und zur Verbesserung des Wohlstands ihrer Bürger.
+Das gilt auch in vollem Umfang für die OVKS. Unsere Zusammenarbeit in dieser Organisation beruht auf
+den Grundsätzen der Gleichberechtigung und der Berücksichtigung der Interessen aller ihrer Mitgliedsstaaten. Wir sind zuversichtlich, dass unsere Verbündeten die jüngste verstärkte Aufmerksamkeit des Westens
+für ihre Länder kritisch sehen und nicht zulassen werden, dass sie sich an Plänen beteiligen, die auf eine
+Eskalation der militär-politischen Spannungen abzielen.
+
+
+-----
+
+Insgesamt erwarten wir natürlich, dass unsere Verbündeten in der Eurasischen Wirtschaftsunion und der
+OVKS bei der Entwicklung von Beziehungen zu Drittländern und Verbänden keine Schritte unternehmen,
+die ihren Verpflichtungen innerhalb dieser Organisationen widersprechen. Gleichzeitig ist es nicht unsere
+Regel, andere Staaten ‹zu belehren› oder ihnen zu diktieren, wie und mit wem sie Beziehungen aufbauen
+sollen. Russland verbietet keinem unserer Nachbarn und Partner die Zusammenarbeit mit irgendjemandem, sondern bittet sie stets, unsere legitimen Interessen zu berücksichtigen. Ich denke, sie hören uns.
+**Ende der Übersetzung**
+
+
+_AUTOR: ANTI-SPIEGEL_
+
+
+_Thomas Röper, geboren 1971, hat als Experte für Osteuropa in Finanzdienstleistungsunternehmen in Osteuropa und Russ-_
+_land Vorstands- und Aufsichtsratspositionen bekleidet. Heute lebt er in seiner Wahlheimat St. Petersburg. Er lebt über 15_
+_Jahre in Russland und spricht fliessend Russisch. Die Schwerpunkte seiner medienkritischen Arbeit sind das (mediale) Russ-_
+_landbild in Deutschland, Kritik an der Berichterstattung westlicher Medien im Allgemeinen und die Themen (Geo-)Politik_
+_und Wirtschaft._
+_https://www.anti-spiegel.ru/2023/der-russische-aussenminister-lawrow-ueber-die-perspektiven-der-beziehungen-zum-_
+_westen/_
+
+##### Bolsanaros Massaker: Brasiliens Völkermord an der indigenen Bevölkerung trägt überall die Handschrift der CIA
+_T.H.G., August 18, 2023, von Kit Klarenberg_
+
+_Der damalige brasilianische Präsident Jair Bolsonaro hält ein Gewehr während der Übergabe_
+_von Waffen an die Bundespolizei in Rio de Janeiro, September 2020. Carolina Antunes | PR_
+
+Von April 1964 bis März 1985 regierte eine Militärjunta Brasilien mit eiserner Faust. In dieser Zeit wurden
+zahlreiche Verbrechen gegen die Menschlichkeit begangen, darunter institutionalisierte Folter, Inhaftierung,
+gewaltsames Verschwindenlassen und Massenmord. In der Regel handelte es sich bei den Opfern um politische Gegner des Regimes, aber auch die indigene Bevölkerung des Landes war ein spezielles und engagiertes Ziel.
+In den meisten Fällen bestand ihr Verbrechen darin, dass sie gegen wirtschaftliche ‹Reform›-Projekte protestierten, die ihre Häuser zerstörten, oder einfach zur falschen Zeit am falschen Ort lebten. Mit Unterstützung
+und auf Anweisung der Weltbank vertrieb die Junta die indigene Bevölkerung gewaltsam und entweihte ihr
+Land, um wertvolle natürliche Ressourcen für das westliche Kapital zu gewinnen. Dabei waren diese Gemeinschaften regelmässig brutalen Repressionen, Pogromen und Massakern ausgesetzt.
+Ein Grossteil dieser Barbarei wurde von der ‹Rural Indigenous Guard› ausgeübt, einer tödlichen Elite-Polizeitruppe, die im Geheimen von der CIA geschaffen wurde. Die Agentur errichtete auch ein System indigener
+Gefängnisse, die eine zentrale und schreckliche Rolle in der Politik der Säuberung der Indigenen durch die
+Junta spielten.
+
+
+_Der damalige brasilianische Präsident Jair Bolsonaro hält ein Gewehr während der Übergabe_
+
+
+-----
+
+Im Jahr 1988 kehrte Brasilien friedlich zur Demokratie zurück und verabschiedete eine neue Verfassung,
+die bis heute in Kraft ist. In dieser Verfassung wird das Recht der indigenen Völker anerkannt, ihr reiches
+kulturelles Erbe zu bewahren und zu schützen und das ausschliessliche Eigentum an ‹traditionellem Land›
+zu behalten. Die Situation der Indigenen verbesserte sich allmählich, insbesondere während der ersten
+Amtszeit des linksgerichteten Präsidenten Luiz Inácio Lula da Silva von 2003 bis 2010.
+Ein Bericht des ‹Conselho Indigenista Missionário› (Indigener Missionsrat – CIMI) vom Juli macht jedoch
+auf beunruhigende Weise deutlich, dass vier Jahre der Herrschaft des rechtsextremen Präsidenten Jair
+Bolsonaro Jahrzehnte bescheidener Fortschritte und Fortschritte bei den Rechten und dem Schutz indigener Völker auf groteske Weise zunichte gemacht haben.
+CIMI stellte fest, dass Bolsonaros Amtszeit von 2019 bis 2022 durch unablässige Verstösse gegen die Rechte dieser Gemeinschaften und einen vorsätzlichen Abbau von rechtlichen, regulatorischen und sozialen Garantien gekennzeichnet war. Diese Rücksichtslosigkeit führte zu einem schockierenden Anstieg von Gewalttaten gegen indigene Völker durch staatliche und nichtstaatliche Akteure.
+Es gibt zwingende Gründe für die Annahme, dass dieser abrupte Rückschritt weder zufällig noch ein blosses
+Spiegelbild von Bolsonaros schamloser Missachtung der Menschenrechte und der Rechtsstaatlichkeit war.
+Der Aufstieg des Präsidenten an die Macht ist in erster Linie der ‹Operation Lava Jato› zu verdanken, einer
+vom US-Geheimdienst orchestrierten Verschwörung gegen das Gesetz, die ausserhalb Brasiliens als
+‹Operation Car Wash› bekannt ist und Brasilien erfolgreich in den unterwürfigen und turbulenten Zustand
+der Ära des Kalten Krieges zurückversetzt hat. Eine Ära, in der die CIA die lateinamerikanische Souveränität
+mit Füssen getreten hat. Da stellt sich natürlich die Frage. Hat die CIA Bolsonaros rücksichtsloses Vorgehen
+gegen indigene Gemeinschaften gelenkt?
+
+**‹Drohender Völkermord›**
+Laut der brasilianischen Volkszählung von 2022 bezeichnen sich 1'693’535 Brasilianer als Indigene, die
+304 verschiedenen ethnischen Gruppen angehören und insgesamt 274 Sprachen sprechen. Darüber hinaus gibt es in dem Land 67 unkontaktierte Stämme, was die weltweit höchste Bevölkerungsdichte in dieser
+Kategorie darstellt. Das Überleben so vieler indigener Gruppen ist bemerkenswert, wenn man die verheerenden Auswirkungen von Krankheiten bedenkt, die während der europäischen Kolonisierung eingeschleppt
+wurden und die einheimischen Bevölkerungen dezimierten. Im Laufe der Geschichte haben sie Versklavung,
+verschiedene Formen des Missbrauchs und massenhafte Grausamkeiten ertragen müssen.
+Der Bericht von CIMI macht deutlich, dass diese schweren Verbrechen, die von Bolsonaro initiiert wurden,
+für die indigenen Gemeinschaften Brasiliens auch heute noch alltäglich sind. Jedes Jahr während der Amtszeit Bolsonaros nahmen Zahl und Häufigkeit der Übergriffe dramatisch zu. Doch seine letzte Amtszeit war
+besonders blutig.
+Im Jahr 2022 verzeichnete die Organisation 29 Fälle von Machtmissbrauch durch brasilianische Behörden
+gegen indigene Gemeinschaften, 180 Morde, 28 Mordversuche, 17 ‹unrechtmässige Tode›, 17 schwere Angriffe, 38 Fälle von ethnisch-kulturellem Rassismus und Diskriminierung und 20 Fälle von sexueller Gewalt.
+Insgesamt wurden im Jahr 2022 416 Gewalttaten gegen Indigene dokumentiert, ein deutlicher Anstieg gegenüber dem Durchschnitt von 374 Fällen in den vorangegangenen drei Jahren. Zum Vergleich: Während
+der Amtszeit von Dilma Rousseff von Januar 2011 bis August 2016 lag diese Zahl bei 242. Beunruhigend
+ist, dass sich die Zahl der Fälle von Machtmissbrauch jedes Jahr mehr als verdoppelt hat.
+Diese exponentielle Eskalation war leider vorhersehbar. Wie die Aufzeichnungen von CIMI belegen, hat
+Bolsonaro eine umfassende Ausrichtung der Verwaltungs-, Justiz- und Staatsorgane des Landes gegen die
+indigene Bevölkerung inszeniert. Diese weitreichenden Bemühungen betrafen sogar die Nationale Stiftung
+für indigene Völker (FUNAI).
+Die Regierung versäumte es, mehrere gesetzliche Mandate zur offiziellen Abgrenzung und Anerkennung
+der rechtmässigen Grenzen indigener Gebiete zu erfüllen. Die von politischen Erwägungen geprägten Gerichte fällten immer wieder Urteile, die die Rechte der indigenen Gemeinschaften untergruben. Umweltschutzmassnahmen wurden kaltschnäuzig missachtet, was zu einem vorsätzlichen Abbau der ökologischen
+Schutzmassnahmen im Amazonasgebiet führte.
+In dieser Region, in der 400 indigene Stämme leben, stieg die Abholzung 2021 auf den höchsten Stand
+seit 15 Jahren. Als die Region 2019 von Waldbränden heimgesucht wurde, lehnte Bolsonaro kaltschnäuzig
+Millionen von Dollar an Hilfe von der G7 ab und begründete dies mit einer Verletzung der brasilianischen
+Souveränität.
+Bolsonaro opferte eifrig die Sicherheit, die Rechte, den Rechtsschutz, das Land und das Leben der indigenen Bevölkerung für den Profit der grossen Agrar- und Bergbaukonzerne, die zumeist aus dem Ausland
+stammen. Ganze Polizeikräfte wurden in diesem Prozess in ‹private Sicherheit› für westliche Unternehmen
+umgewandelt, so CIMI.
+Diese zügellose, staatlich gebilligte Diskriminierung und der Missbrauch ermutigten lokale kriminelle Elemente, die die Gelegenheit nutzten, um den illegalen Holzeinschlag, den Bergbau, die Jagd und die Fischerei
+in den indigenen Regionen auszuweiten und deren Territorium und Eigentum ungestraft zu stehlen.
+
+
+-----
+
+_Ein indigener Mann zielt mit seinem Bogen auf Bereitschaftspolizisten ausserhalb des Kongresses, nachdem es zu_
+_Zusammenstössen wegen eines Gesetzentwurfs gekommen war, der die Anerkennung indigener Gebiete einschränken_
+_würde, Brasilia, Brasilien, 22. Juni 2021. Foto | AP_
+
+Infolge dieses umfassenden Angriffs ist die indigene Kindersterblichkeit in Brasilien in die Höhe geschnellt.
+Den ‹Teilinformationen› des CIMI zufolge starben allein im Jahr 2022 835 Kinder im Alter von bis zu vier
+Jahren. In anderen Fällen wurden indigene Kinder von privaten Milizen ermordet. An einem Morgen im Mai
+stürmten 12 schwer bewaffnete Männer ein umkämpftes Pataxó-Dorf und beschossen den Ort zehn Minuten lang mit Schüssen und Tränengas. Unter den Opfern befand sich ein 14-jähriger Einheimischer, der
+beim Versuch zu fliehen einen tödlichen Schuss in den Hinterkopf erhielt.
+Andernorts motivierte die Ermordung eines 18-jährigen Eingeborenen im Taquaperi-Reservat die Einheimischen dazu, Land zurückzuerobern, das ihnen kürzlich von kriminellen Farmern gestohlen worden war.
+Doch die Diebe schlugen noch härter zurück, und zwar mit tatkräftiger Unterstützung der örtlichen Polizei,
+die viele Bewohner mit vorgehaltener Waffe vertrieb und ihre Häuser anschliessend zerstörte. Der Angriff
+war so brutal, dass die Einheimischen ihn als ‹Massaker von Guapoy› bezeichnen.
+Der Rauswurf Bolsonaros aus dem hohen Amt bedeutet nicht, dass die von ihm angezettelte Schreckensherrschaft vorbei ist. Gegenwärtig erkennt die FUNAI 86 der 117 Gruppen isolierter indigener Gemeinschaften, die von der CIMI überwacht werden, nicht als indigene Völker an, geschweige denn, dass sie den ihnen
+von der Verfassung zugestandenen rechtlichen und regulatorischen Schutz geniessen.
+«Diese Gruppen sind für den Staat faktisch unsichtbar, ebenso wie all die Gewalt, der sie ausgesetzt sind,
+einschliesslich des Risikos eines drohenden Völkermordes», warnt der Bericht eindringlich.
+
+**Anatomie eines Staatsstreichs**
+Im Jahr 2012 setzte die brasilianische Bundesregierung die Nationale Wahrheitskommission ein, um die
+von der Junta begangenen politischen Verbrechen zu untersuchen. Es wurde schnell klar, dass die Zahl der
+während der 20-jährigen Herrschaft der Militärregierung getöteten Indigenen mindestens 20-mal höher
+war als die historischen Schätzungen. Wie bereits erwähnt, war dafür in erster Linie die von der CIA geschaffene Indigene Landwehr verantwortlich.
+Im Dienst dieses Gemetzels erhielten die Mitarbeiter der Garde eine umfassende Ausbildung in CIA-Foltertechniken und eine Vielzahl von Waffen und Fahrzeugen, die in den späten 1970er Jahren bei völkermörderischen ‹Überfällen› auf indigenes Gebiet eingesetzt wurden. Dazu gehörten auch Bombenangriffe. Oft bestand die tödliche Ladung aus von der CIA geliefertem Napalm, das auf die Bewohner des Amazonasgebiets
+und anderer Gebiete abgeworfen wurde, um sie von ihrem Land zu vertreiben und Platz für neue Autobahnen und andere Industrieanlagen zu schaffen. Tausende wurden getötet, viele weitere erlitten durch chemische Verbrennungen lebenslange Narben.
+Hat die CIA zusammen mit grossen westlichen Unternehmen und Investoren erneut das Abschlachten und
+die Vertreibung indigener Gemeinschaften unter Bolsonaro gelenkt und vorangetrieben? Er besuchte das
+CIA-Hauptquartier und traf sich während seiner Präsidentschaft wiederholt mit hochrangigen Mitarbeitern
+der Behörde. Es gibt jedoch noch zwingendere Gründe, den staatlich sanktionierten, geförderten und erleichterten Völkermord an der indigenen Bevölkerung unter seiner Herrschaft als eine Fortsetzung der Massenvernichtungskampagne der CIA aus dem Kalten Krieg gegen diese Gemeinschaften im 21.
+Bolsonaro wurde Präsident als ausdrückliches Ergebnis der ‹Operação Lava Jato› (Operation Autowäsche).
+Was in der Öffentlichkeit als ein Kreuzzug gegen die Korruption dargestellt wurde, der eine neue Ära in
+Brasilien einläutete, in der Demokratie und Rechtsstaatlichkeit herrschten, war in Wirklichkeit ein von der
+CIA, dem FBI und dem US-Justizministerium gesteuerter Betrug. Ziel war es, die profitabelsten Unternehmen des Landes zu zerstören und zu verhindern, dass die Linke wieder an die Macht kommt.
+
+
+-----
+
+Die Präsidentschaften von Lula und Rousseff lösten Brasilia aus der Umklammerung Washingtons und
+machten das Land zu einem wichtigen Akteur auf regionaler und zunehmend auch internationaler Ebene.
+Brasilien wurde weithin als Weltmacht der Zukunft wahrgenommen, die ein ganz anderes Wachstums- und
+Entwicklungsmodell verfolgte als das vom US-Imperium durchgesetzte. Die grössten Unternehmen des Landes verwendeten Teile ihrer immensen Gewinne zur Finanzierung von Sozialprogrammen und Entwicklungsprojekten, die allen zugutekamen.
+
+_Indigene Brasilianer werden von der Polizei vom Flaggenplatz gedrängt, nachdem die Behörden angekündigt hatten, dass_
+_indigenes Land für den Bau einer „Universität für indigene Völker“ beschlagnahmt würde. Agencia Estado | AP Images_
+
+Aus der Sicht Washingtons war die Notwendigkeit, all dem entschieden Einhalt zu gebieten, unübersehbar.
+Lava Jato war ein äusserst wirksames Mittel, um dieses bösartige Ziel hinter einer öffentlichen Chimäre von
+radikalen Reformen und positiven Veränderungen zu erreichen. Als Lula im Juli 2017 wegen falscher Korruptionsvorwürfe inhaftiert wurde, bezeichnete der leitende Staatsanwalt der Operation seine Inhaftierung
+in privaten Telegram-Chats, die später ‹The Intercept› zugespielt wurden, als ‹ein Geschenk der CIA›.
+Lulas Inhaftierung hinderte ihn daran, bei den Präsidentschaftswahlen 2018 zu kandidieren. Als er im November 2019 freigelassen wurde, waren weite Teile der zuvor boomenden brasilianischen Wirtschaft verwüstet. Die gesamte Bautätigkeit im Land war zum Erliegen gekommen, Millionen von Arbeitsplätzen und
+Steuereinnahmen waren verloren gegangen, wodurch das BIP des Landes um mindestens 3,6% schrumpfte.
+Die wirtschaftliche und politische Zerstörung durch die Operation war nicht auf Brasilien beschränkt. Im
+März 2021 stellte Lula fest: «Die Kriminalisierung [unserer] Ingenieurbüros hatte auch eine regionale Auswirkung, die zu konservativen politischen Veränderungen in anderen lateinamerikanischen und karibischen
+Ländern beitrug.» Lava Jato war eine seismische Tiefenwirkung der CIA, die darauf abzielte, die Region auf
+den Stand des Kalten Krieges zurückzubringen – verarmt, autoritär und leicht von der US-Regierung ausbeutbar. Es war unvermeidlich, dass die indigenen Gemeinschaften darunter leiden würden.
+
+**Endlich Hoffnung**
+Die Nationale Wahrheitskommission Brasiliens hat ihre Arbeit 2014 abgeschlossen. Ihre Ergebnisse bestätigten, dass die herrschende Militärjunta Menschenrechtsverletzungen im grossßen Stil begangen hat, darunter willkürliche Inhaftierungen, gewaltsames Verschwindenlassen, Vergewaltigung, Folter und Mord. Das
+Ausmass der Misshandlungen indigener Gemeinschaften war so gross, dass die Kommission die Einrichtung einer eigenständigen Nationalen Indigenen Wahrheitskommission empfahl, um weiter zu untersuchen,
+wie sie unter der von der CIA unterstützten Diktatur gelitten haben, und um Wiedergutmachung in Form
+der Legalisierung ihres Landes zu leisten.
+Beides ist in den vergangenen Jahren nicht geschehen, obwohl dies mit der Rückkehr Lulas ins Präsidentenamt nun möglich ist. Unmittelbar nach seiner dritten Vereidigung im Januar dieses Jahres hat er damit begonnen, die Politik seines Vorgängers in vielen Bereichen, insbesondere im Umweltbereich, umzukehren.
+Im April unterzeichnete er ein Dekret, mit dem er sechs neue indigene Reservate anerkannte und gleichzeitig den Bergbau verbot und die kommerzielle Landwirtschaft in diesen Gebieten, zu denen auch ein grosser
+Teil des Amazonas-Regenwaldes gehört, einschränkte.
+«Wir werden indigenes Land legalisieren. Das ist ein Prozess, der ein wenig Zeit in Anspruch nimmt, weil er
+durch viele Hände gehen muss», versprach Lula weiter. «Ich möchte nicht, dass während meiner Regierungszeit irgendein indigenes Gebiet ohne Demarkation bleibt. Das ist die Verpflichtung, die ich Ihnen gegenüber eingegangen bin.»
+Es wird mehr als nur eine ‹kleine Weile› dauern, bis das ganze Ausmass der katastrophalen Auswirkungen
+von ‹Lava Jato› rückgängig gemacht werden kann. Die Wiederwahl Lulas ist eine ermutigende Entwicklung,
+aber die CIA ist stets bereit, jede Chance auf Hoffnung für die Region und ihre Menschen – insbesondere
+die bedrängten indigenen Gemeinschaften – zu zerstören.
+
+
+-----
+
+_Ein Kayapo-Häuptling hält auf einem Pfad inne, der von Holzfällern in der Nähe des indigenen Landes Menkragnotire und_
+_des biologischen Reservats Serra do Cachimbo in Altamira, Bundesstaat Para, Brasilien, geöffnet wurde, 31. August 2019._
+_Leo Correa | AP_
+
+Der jahrzehntelange Völkermord stand unter Bolsonaro so kurz vor seiner Vollendung, dass die Agentur
+jetzt sicher nicht aufgeben kann.
+
+- Kit Klarenberg ist Enthüllungsjournalist und Mitarbeiter von MintPresss News, der sich mit der Rolle der Geheimdienste
+_bei der Gestaltung von Politik und Wahrnehmung beschäftigt. Seine Arbeiten sind bereits in The Cradle, Declassified UK und_
+_Grayzone erschienen. Folgen Sie ihm auf Twitter @KitKlarenberg._
+**Quelle: Bolsanaro’s Butchery: CIA Fingerprints Are All Over Brazil’s Indigenous Genocide**
+
+##### Haie greifen Katamaran im Korallenmeer vor Australien an
+_Aktualisiert am 6.9.2023, 5:06 Uhr Von dpa_
+
+_Ein aufblasbarer Katamaran ist im Korallenmeer in Seenot geraten._
+_© dpa / Uncredited/AUSTRALIAN MARITIME SAFETY AUTHORITY/dpa_
+
+Dieser Beitrag wurde automatisch veröffentlicht und nicht durch unsere Redaktion bearbeitet.
+Brisbane – Im Korallenmeer vor der australischen Ostküste ist ein aufblasbarer Katamaran durch mehrere
+Hai-Attacken in Seenot geraten. Die drei Männer an Bord, zwei Russen und ein Franzose, seien von der
+Südseeinsel Vanuatu unterwegs nach Cairns im tropischen Norden von Australien gewesen, berichtete die
+australische Nachrichtenagentur AAP. Mitten im Korallenmeer, einem Nebenmeer des Pazifiks, wurde das
+neun Meter lange Boot plötzlich von den Raubfischen angegriffen, die beide Rümpfe schwer beschädigten.
+
+**Mehr Panorama-News**
+Als die ‹Tion› etwa 835 Kilometer südöstlich von Cairns zu kentern drohte, setzen die Männer einen Notruf
+an die Australische Seesicherheitsbehörde (AMSA) ab. Diese informierte ein Frachtschiff, das gerade in der
+Nähe des Katamarans unterwegs war und entsandte ein Flugzeug. Die Besatzung des Schiffs ‹Dugong Ace›
+holte die Segler schliesslich an Bord und teilte mit, es gehe allen gut. Am Donnerstag sollen die Geretteten
+in Brisbane eintreffen.
+
+
+-----
+
+Aufblasbare Mini-Katamarane mit wenigen Metern Länge seien bei Seglern beliebt, zitierte der australische
+Sender ABC den Bootshändler Tim Rice. Meist würden sie auf Seen sowie für kürzere Törns zwischen Inseln
+eingesetzt. Von einem neun Meter langen aufblasbaren Katamaran, der zum Überqueren eines Ozeans benutzt wurde, habe er aber zuvor noch nie gehört, sagte der Experte. «Etwas dieser Grösse hat wahrscheinlich
+mehrere Kammern. Wenn also ein Hai eine davon durchbohrt, ist so ein Boot noch immer schwimmfähig»,
+betonte Rice. Das habe den Insassen wohl das Leben gerettet. Warum die Haie das Boot attackierten, ist
+noch unklar. © dpa
+_‹So arbeitet die Redaktion› informiert Sie, wann und worüber wir berichten, wie wir mit Fehlern umgehen und woher unsere_
+_Inhalte stammen. Bei der Berichterstattung halten wir uns an die Richtlinien der Journalism Trust Initiative._
+
+##### Die Lämmer zum Schweigen bringen. Wie Propaganda funktioniert.
+_uncut-news.ch, September 6, 2023, John Pilger_
+
+_John Pilger & Jose Ramos-Horta in Osttimor: Bild Ubud Writers Festival_
+
+**Dieser Artikel ist eine bearbeitete Version einer Ansprache beim Trondheim World Festival, Norwegen,**
+**am 6. September 2022**
+In einer Rede auf dem Trondheim World Festival in Norwegen zeichnet John Pilger die Geschichte der
+Machtpropaganda nach und beschreibt, wie sie den Journalismus in einem ‹tiefgreifenden Imperialismus›
+vereinnahmt und uns alle in eine Falle lockt, wenn wir es zulassen.
+In den 1970er-Jahren traf ich eine von Hitlers wichtigsten Propagandistinnen, Leni Riefenstahl, deren epische Filme die Nazis verherrlichten. Wir wohnten zufällig in derselben Lodge in Kenia, wo sie einen Fotoauftrag hatte, nachdem sie dem Schicksal anderer Freunde des Führers entgangen war.
+Sie erzählte mir, dass die ‹patriotischen Botschaften› ihrer Filme nicht von ‹Befehlen von oben› abhingen,
+sondern von dem, was sie die ‹unterwürfige Leere› des deutschen Publikums nannte.
+
+
+-----
+
+Gehörte dazu auch das liberale Bildungsbürgertum? fragte ich. «Ja, vorwiegend sie», sagte sie.
+Daran denke ich, wenn ich an die Propaganda denke, die jetzt die westlichen Gesellschaften verschlingt.
+Natürlich sind wir ganz anders als das Deutschland der 1930er-Jahre. Wir sind Informationsgesellschaften.
+Wir sind Globalisten. Wir waren noch nie so bewusst, so in Kontakt, so vernetzt.
+Sind wir? Oder leben wir in einer Mediengesellschaft, in der die Gehirnwäsche heimtückisch und unerbittlich
+ist und die Wahrnehmung nach den Bedürfnissen und Lügen der Staats- und Konzernmacht gefiltert wird?
+Die USA dominieren die Medien der westlichen Welt. Alle bis auf einen der zehn grössten Medienkonzerne
+haben ihren Sitz in Nordamerika. Das Internet und die sozialen Medien – Google, Twitter, Facebook – sind
+grösstenteils in amerikanischem Besitz und werden von Amerikanern kontrolliert.
+In meinem Leben haben die Vereinigten Staaten mehr als 50 Regierungen gestürzt oder zu stürzen versucht, meist Demokratien. Sie haben sich in demokratische Wahlen in 30 Ländern eingemischt. Sie haben
+Bomben auf Menschen in 30 Ländern abgeworfen, die meisten von ihnen arm und wehrlos. Sie haben versucht, die Führer von 50 Ländern zu ermorden. Sie haben in 20 Ländern Befreiungsbewegungen unterdrückt.
+Das Ausmass und die Tragweite dieses Massakers wurden weitgehend verschwiegen und nicht anerkannt,
+und die Verantwortlichen dominieren nach wie vor das anglo-amerikanische politische Leben.
+In den Jahren vor seinem Tod 2008 hat der Dramatiker Harold Pinter zwei aussergewöhnliche Reden gehalten, die das Schweigen brachen.
+«Amerikanische Aussenpolitik», sagte er, «lässt sich am besten so definieren: Leck mich am Arsch, oder ich
+schlage dir den Schädel ein.» Es ist so einfach und so plump. Das Interessante daran ist, dass sie so unglaublich erfolgreich ist. Es hat Strukturen der Desinformation, der Verwendung von Rhetorik und der Verzerrung der Sprache, die sehr überzeugend sind, aber in Wirklichkeit eine Ansammlung von Lügen sind.
+Das ist eine sehr erfolgreiche Propaganda. Sie haben das Geld, sie haben die Technologie, sie haben alle
+Mittel, um damit durchzukommen, und das tun sie auch.
+Bei der Entgegennahme des Nobelpreises für Literatur sagte Pinter: «Die Verbrechen der Vereinigten Staaten waren systematisch, andauernd, bösartig und erbarmungslos, aber nur sehr wenige Menschen haben
+wirklich darüber gesprochen. Das muss man Amerika lassen. Es hat weltweit eine ziemlich klinische Machtmanipulation betrieben und sich gleichzeitig als eine Kraft für das universelle Gute dargestellt. Es ist ein
+brillanter, sogar witziger, äusserst erfolgreicher Akt der Hypnose.»
+Pinter war ein Freund von mir und vielleicht der letzte grosse politische Weise – bevor die abweichende
+Politik verbürgerlicht wurde. Ich fragte ihn, ob die ‹Hypnose›, auf die er sich bezog, die von Leni Riefenstahl
+beschriebene ‹unterwürfige Leere› sei.
+«Das ist dasselbe», antwortete er. «Es bedeutet, dass die Gehirnwäsche so gründlich ist, dass wir darauf
+programmiert sind, eine Menge Lügen zu schlucken. Wenn wir Propaganda nicht erkennen, akzeptieren wir
+sie als normal und glauben ihr. Das ist die unterwürfige Leere.»
+In unseren Systemen der korporativen Demokratie ist Krieg eine wirtschaftliche Notwendigkeit, die perfekte
+Verbindung von öffentlichen Subventionen und privatem Profit: Sozialismus für die Reichen, Kapitalismus
+für die Armen. Am Tag nach dem 11. September schossen die Aktienkurse der Kriegsindustrie in die Höhe.
+Es würde noch mehr Blutvergiessen geben, und das war gut fürs Geschäft.
+Heute haben die profitabelsten Kriege ihre eigene Marke. Sie heissen ‹ewige Kriege›: Afghanistan, Palästina,
+Irak, Libyen, Jemen und nun die Ukraine. Alle basieren auf einer Reihe von Lügen.
+Am berüchtigtsten ist der Irak mit seinen Massenvernichtungswaffen, die es nie gab. Die Zerstörung Libyens
+durch die NATO 2011 wurde mit einem Massaker in Bengasi gerechtfertigt, das es nie gegeben hat. Afghanistan war ein praktischer Rachekrieg für 9/11, der nichts mit den Menschen in Afghanistan zu tun hatte.
+In den Nachrichten über Afghanistan geht es heute darum, wie böse die Taliban sind – und nicht darum,
+dass der Diebstahl von 7 Milliarden Dollar aus den Bankreserven des Landes durch Joe Biden weitverbreitetes Leid verursacht hat. Kürzlich berichtete das National Public Radio in Washington zwei Stunden über
+Afghanistan – und 30 Sekunden über die hungernden Menschen.
+Auf ihrem Gipfel in Madrid im Juni verabschiedete die von den USA kontrollierte NATO ein Strategiepapier,
+das den europäischen Kontinent militarisiert und die Aussicht auf einen Krieg mit Russland und China verschärft. Es schlägt einen ‹multidominationalen Krieg gegen nuklear bewaffnete Rivalen› vor. Mit anderen
+Worten: Atomkrieg.
+Es heisst: «Die Erweiterung der NATO war ein historischer Erfolg.»
+Ich habe das ungläubig gelesen.
+Ein Mass für diesen ‹historischen Erfolg› ist der Krieg in der Ukraine, von dem die Nachrichten meist keine
+Nachrichten sind, sondern eine einseitige Litanei aus Hurra, Verzerrung und Auslassung. Ich habe über eine
+Reihe von Kriegen berichtet und noch nie eine solche Propaganda erlebt.
+Im Februar marschierte Russland in die Ukraine ein, als Reaktion auf fast acht Jahre des Tötens und der
+kriminellen Zerstörung in der russischsprachigen Region Donbass an der Grenze zur Ukraine.
+
+
+-----
+
+Im Jahr 2014 hatten die Vereinigten Staaten einen Staatsstreich in Kiew gesponsert, bei dem der demokratisch gewählte, pro-russische Präsident der Ukraine abgesetzt und ein Nachfolger eingesetzt wurde, den
+die Amerikaner als ihren Mann bezeichnet hatten.
+In den vergangenen Jahren wurden in Osteuropa, in Polen, Slowenien und Tschechien, amerikanische ‹Abwehr›-Raketen stationiert, die mit ziemlicher Sicherheit auf Russland zielten, begleitet von falschen Zusicherungen bis zu James Bakers ‹Versprechen› an Gorbatschow im Februar 1990, die NATO werde sich niemals
+über Deutschland hinaus ausdehnen.
+Die Ukraine ist die Frontlinie. Die NATO hat de facto genau das Grenzgebiet erreicht, durch das Hitlers
+Armee 1941 stürmte und mehr als 23 Millionen Menschen in der Sowjetunion den Tod fanden.
+Im vergangenen Dezember schlug Russland einen umfassenden Sicherheitsplan für Europa vor. Dieser
+wurde in den westlichen Medien abgetan, umgelenkt oder unterdrückt. Wer liest seine Vorschläge Schritt
+für Schritt? Am 24. Februar drohte der ukrainische Präsident Wolodymyr Selensky mit der Entwicklung von
+Atomwaffen, sollte Amerika die Ukraine nicht bewaffnen und schützen. Das brachte das Fass zum Überlaufen.
+Am selben Tag marschierte Russland ein – laut westlichen Medien ein unprovozierter Akt angeborener
+Schande. Die Geschichte, die Lügen, die Friedensvorschläge, die feierlichen Vereinbarungen von Minsk über
+den Donbass zählten nichts.
+Am 25. April flog der amerikanische Verteidigungsminister General Lloyd Austin nach Kiew und bestätigte,
+dass es Amerikas Ziel sei, die Russische Föderation zu zerstören – das Wort, das er benutzte, war ‹schwächen›. Amerika hatte den Krieg bekommen, den es wollte, geführt von einem amerikanisch finanzierten und
+bewaffneten Stellvertreter und entbehrlichen Bauern. Die westliche Öffentlichkeit erfuhr davon so gut wie
+nichts.
+Russlands Einmarsch in die Ukraine ist vorsätzlich und unentschuldbar. Es ist ein Verbrechen, ein souveränes Land zu überfallen. Es gibt kein Aber – ausser einem.
+Wann hat der aktuelle Krieg in der Ukraine begonnen und wer hat ihn begonnen? Nach Angaben der Vereinten Nationen sind im Bürgerkrieg des Kiewer Regimes im Donbass zwischen 2014 und diesem Jahr rund
+14’000 Menschen getötet worden. Viele der Angriffe wurden von Neonazis verübt.
+Schauen Sie sich eine ITV-Reportage vom Mai 2014 des erfahrenen Reporters James Mates an, der zusammen mit Zivilisten in der Stadt Mariupol vom ukrainischen Asow-Bataillon (Neonazi-Bataillon) beschossen
+wurde.
+Im selben Monat wurden Dutzende russischsprachige Menschen in einem Gewerkschaftsgebäude in Odessa, das von faschistischen Schlägern, Anhängern des Nazi-Kollaborateurs und antisemitischen Fanatikers
+Stephen Bandera, belagert wurde, bei lebendigem Leibe verbrannt oder erstickt. Die ‹New York Times› bezeichnete die Schläger als ‹Nationalisten›.
+«Die historische Mission unserer Nation in diesem kritischen Moment», so Andreiy Biletsky, Gründer des
+Asow-Bataillons, «besteht darin, die weissen Rassen der Welt in einem letzten Kreuzzug für ihr Überleben
+anzuführen, einem Kreuzzug gegen die von Semiten angeführten Untermenschen.»
+Seit Februar versucht eine Kampagne selbsternannter ‹Nachrichtenbeobachter› (die hauptsächlich von
+Amerikanern und Briten mit Verbindungen zu Regierungen finanziert werden), die Absurdität aufrechtzuerhalten, dass es in der Ukraine keine Neonazis gebe.
+Airbrushing, ein Begriff, der einst mit Stalins Säuberungen in Verbindung gebracht wurde, ist zu einem
+Werkzeug des Mainstream-Journalismus geworden.
+In weniger als einem Jahrzehnt wurde ein ‹gutes› China mit der Spritzpistole gezeichnet und durch ein
+‹schlechtes› China ersetzt: Von der Werkstatt der Welt zu einem aufkommenden neuen Satan.
+Ein grosser Teil dieser Propaganda stammt aus den USA und wird durch Stellvertreter und ‹Denkfabriken›
+wie das berüchtigte Australian Strategic Policy Institute, die Stimme der Rüstungsindustrie, und durch eifrige Journalisten wie Peter Hartcher vom Sydney Morning Herald verbreitet, der diejenigen, die chinesischen
+Einfluss verbreiten, als ‹Ratten, Fliegen, Mücken und Spatzen› bezeichnete und die ‹Ausrottung› dieser
+‹Schädlinge› forderte.
+Die Berichterstattung über China im Westen dreht sich fast ausschliesslich um die Bedrohung, die von
+Peking ausgeht. Die 400 US-Militärstützpunkte, die den grössten Teil Chinas umgeben, bilden eine bewaffnete Halskette, die sich von Australien über den Pazifik und Südostasien bis nach Japan und Korea erstreckt. Die japanische Insel Okinawa und die koreanische Insel Jeju sind geladene Kanonen, die aus nächster Nähe auf das industrielle Herz Chinas gerichtet sind. Ein Pentagon-Beamter nannte das eine ‹Schlinge›.
+Solange ich denken kann, wurde über Palästina falsch berichtet. Für die BBC gibt es einen ‹Konflikt› zwischen ‹zwei Erzählungen›. Die längste, brutalste und gesetzloseste militärische Besetzung der Neuzeit ist
+unaussprechlich.
+Die betroffene Bevölkerung im Jemen existiert kaum noch. Sie sind halb unmenschlich. Während die Saudis
+ihre amerikanischen Streubomben abfeuern und britische Berater mit den saudischen Aggressionsoffizieren zusammenarbeiten, sind mehr als eine halbe Million Kinder vom Hungertod bedroht.
+
+
+-----
+
+Diese Gehirnwäsche durch Unterlassung hat eine lange Geschichte. Das Gemetzel des Ersten Weltkriegs
+wurde von Reportern vertuscht, die für ihre Gehorsamkeit zum Ritter geschlagen wurden und in ihren Memoiren Geständnisse ablegten. Der Herausgeber des Manchester Guardian, CP Scott, vertraute Premierminister Lloyd George 1917 an: «Wenn die Menschen wirklich [die Wahrheit] wüssten, wäre der Krieg
+morgen zu Ende, aber sie wissen es nicht und können es nicht wissen.»
+Die Weigerung, Menschen und Ereignisse so zu sehen, wie Menschen in anderen Ländern sie sehen, ist im
+Westen ein Medienvirus, der genauso schwächend ist wie Covid. Es ist, als würden wir die Welt durch einen
+Einwegspiegel betrachten, in dem ‹wir› moralisch und gut sind und ‹sie› nicht. Das ist eine zutiefst imperiale
+Sichtweise.
+Die Geschichte, die in China und Russland lebendig ist, wird selten erklärt und selten verstanden. Wladimir
+Putin ist Adolf Hitler. Xi Jinping ist Fu Man Chu. Epochale Erfolge wie die Beseitigung der Objektarmut in
+China sind kaum bekannt. Wie pervers und erbärmlich ist das.
+Wann erlauben wir uns zu verstehen? Die Ausbildung von Journalisten in Fabriken ist keine Lösung. Genauso wenig wie die wundersamen digitalen Werkzeuge, die Mittel und nicht Zweck sind, wie die Ein-FingerSchreibmaschine und die Linotype-Maschine.
+In den vergangenen Jahren wurden einige der besten Journalisten aus dem Mainstream verdrängt. ‹Defenestrated› ist das Wort. Die Räume, die einst Einzelgängern offenstanden, Journalisten, die gegen den Strom
+schwammen und die Wahrheit sagten, sind verschlossen.
+Am schockierendsten ist der Fall Julian Assange. Als Julian und WikiLeaks Leser und Preise für den Guardian, die New York Times und andere selbstgefällige ‹Rekordzeitungen› gewannen, wurde er gefeiert.
+Als der dunkle Staat Einspruch erhob und die Zerstörung von Festplatten und die Ermordung von Julian
+forderte, wurde er zum Staatsfeind erklärt. Vizepräsident Biden nannte ihn einen ‹Hightech-Terroristen›.
+Hillary Clinton fragte: «Können wir den Kerl nicht einfach töten?»
+Die darauffolgende Schmäh- und Verleumdungskampagne gegen Julian Assange – der UN-Berichterstatter
+über Folter nannte sie ‹Mobbing› – brachte die liberale Presse an ihren Tiefpunkt. Wir wissen, wer sie sind.
+Für mich sind sie Kollaborateure: Vichy-Journalisten.
+Wann werden sich die wahren Journalisten erheben? Im Internet gibt es bereits einen inspirierenden Samisdat: Consortium News, gegründet von dem grossen Reporter Robert Parry, Max Blumenthals Grayzone,
+Mint Press News, Media Lens, Declassified UK, Alborada, Electronic Intifada, WSWS, ZNet, ICH, Counter
+Punch, Independent Australia, die Arbeit von Chris Hedges, Patrick Lawrence, Jonathan Cook, Diana Johnstone, Caitlin Johnstone und anderen, die mir verzeihen werden, wenn ich sie hier nicht erwähne.
+Und wann werden Schriftsteller aufstehen, wie sie es in den 1930er-Jahren gegen den Aufstieg des Faschismus getan haben? Wann werden Filmemacher aufstehen, wie sie es in den 1940er-Jahren gegen den Kalten
+Krieg getan haben? Wann werden die Satiriker aufstehen, wie sie es vor einer Generation getan haben?
+Ist es nicht an der Zeit, dass diejenigen, die die Wahrheit zu bewahren haben, nach 82 Jahren im tiefen
+Bad der Justiz, der offiziellen Version des letzten Weltkrieges, ihre Unabhängigkeit erklären und die Propaganda entschlüsseln? Die Dringlichkeit ist grösser als je zuvor.
+_QUELLE: SILENCING THE LAMBS. HOW PROPAGANDA WORKS_
+_Quelle: https://uncutnews.ch/die-laemmer-zum-schweigen-bringen-wie-propaganda-funktioniert/_
+
+##### Peter Hänseler – Interview mit Felix Abt – Teil 2: Einblicke von einem Insider Alles über Russland, was Sie schon immer wissen wollten,  aber nicht aus den Mainstream-Medien erfahren konnten.
+_Peter Hänseler_
+
+
+-----
+
+**Einführung**
+Dies ist der zweite Teil des Interviews mit Felix Abt.
+
+**Felix Abt: Was würden Sie den Menschen ausserhalb Russlands sagen, die Präsident Putin gerne loswer-**
+**den würden, was nach ihm kommen könnte? Der Westen sollte Russland nicht regieren.**
+
+**Dr. Hänseler: Die Russen sind mit ihrem gewählten Präsidenten zu etwa 80% zufrieden. Deshalb kann ich**
+mir nicht vorstellen, wie der Westen ihn loswerden könnte. Meiner Meinung nach ist es zynisch, dass westliche Menschen, die behaupten, für Demokratie einzutreten, die Unverfrorenheit besitzen, sich in russische
+Angelegenheiten einzumischen, z.B. in die Frage, wer Präsident eines fremden Landes werden soll. Der
+Westen, der keine Ahnung von Russland hat, glaubt also wirklich, dass ein prowestlicher Präsident auf Putin
+folgen würde.
+
+**Der Westen wünscht sich Marionetten als russischen Präsidenten.**
+Der Westen präsentiert z.B. Herrn Chodorkowski, der in Russland wegen Steuerbetrugs im Gefängnis sass,
+einen ehemaligen Oligarchen, der – nach Meinung der russischen Bevölkerung – in den 90er Jahren in
+Russland Milliarden gestohlen hat, als er sein riesiges Ölimperium aufbaute.
+Im Zuge seiner Expansion verschwanden Dutzende von Konkurrenten schlichtweg. Chodorkowski ist in den
+Augen des russischen Volkes nichts anderes als eine Marionette der CIA und aufgrund seiner aktuellen Äusserungen gegen Russland ein Verräter. Bei einer Wahl hätte er keine Chance.
+Nawalny ist ein weiterer Traumkandidat für den Westen. Er sitzt derzeit wegen Veruntreuung in Russland
+im Gefängnis und die meisten Russen sind froh, dass er dort sitzt und wissen auch, dass er ein Zuträger
+der CIA ist. Auch er hätte keine Chance.
+
+**Ein Nachfolger von Präsident Putin wäre härter im Umgang mit dem Westen**
+Wenn Präsident Putin jetzt stürbe oder aus dem Amt scheiden würde, stünden die Chancen sehr gut, dass
+ihm ein Falke nachfolgen würde. Präsident Putin war immer sehr westlich orientiert, hat viele Jahre in
+Deutschland gelebt, liebt und respektiert die deutsche Kultur und hat – wenn auch vergeblich – versucht,
+sehr enge und dauerhafte Beziehungen zu Europa aufzubauen.
+Was der Westen nicht zu begreifen scheint, ist, dass ein Nachfolger von Präsident Putin zum jetzigen Zeitpunkt nationalistischer und weniger west-freundlich wäre und höchstwahrscheinlich einen viel aggressiveren Kurs gegenüber dem Westen einschlagen würde. Herr Putin versucht immer zu deeskalieren und wird
+für diesen Kurs in Russland immer wieder kritisiert.
+
+**Felix Abt: Westliche Politiker und Medien behaupten oft, Russland sei eine ernsthafte ‹Bedrohung›, weil**
+**es ‹imperialistisch› sei und in europäische Länder eindringen wolle. Was ist Ihre Antwort darauf?**
+
+**Dr. Hänseler: In den letzten 200 Jahren wurde Russland dreimal aus dem Westen angegriffen: 1812 von**
+Napoleon, der es bis nach Moskau schaffte, sich aber zurückziehen musste und den Grossteil seiner Armee
+und seine Krone verlor.
+In der ersten Hälfte des 20. Jahrhunderts, 1914 und 1941, griffen die Deutschen Russland zweimal innerhalb weniger Jahrzehnte an.
+Im Ersten Weltkrieg verloren die Russen über 4 Millionen Menschen, aber es sollte noch schlimmer kommen: Die von General Halder vor dem deutschen Angriff im Juni 1942 verordnete nazistische Politik setzte
+die Brutalität auf ein neues Niveau.
+
+**Die Nazis versuchten, die Russen auszurotten**
+Einige kennen vielleicht den sogenannten Kommissar-Befehl, mit dem die deutschen Truppen den Befehl
+erhielten, jeden politischen Kommissar in Russland vor Ort zu erschiessen. Doch das ist nur ein Bruchteil
+der Wahrheit. Das Team von Halder wies jeden Truppenkommandanten an, Russland und die russische
+Zivilbevölkerung zu vernichten, und erklärte ausdrücklich, dass alles, was die Soldaten tun würden, legal,
+d.h. unter keinen Umständen strafbar sei.
+Die meisten Menschen im Westen können sich nicht ausmalen, was während des Zweiten Weltkriegs in
+Russland geschah: Die Menschen wurden abgeschlachtet, vergewaltigt, gehängt – alte Männer, Kinder, Mütter. Es lässt sich nicht beschreiben und man erfährt es nur, wenn man mit Menschen in Russland spricht,
+die es mit eigenen Augen gesehen haben. Das Ergebnis waren rund 30 Millionen tote Russen – mehr als
+die Hälfte von ihnen waren Zivilisten.
+
+
+-----
+
+Angesichts dieses Abschlachtens, das 2,5 Mal mehr zivile Opfer kostete als der Holocaust, ist es auf einem
+schlechthin inakzeptablen Niveau zynisch, wenn der Westen die Sicherheitsbedenken Russlands nicht ernst
+nahm und nimmt.
+
+**Die Amerikaner beschützten Halder**
+Alle ehemaligen Aggressoren sind heute Mitglieder der NATO.
+Was haben die Amerikaner mit General Halder gemacht – ihn gehängt? Ganz im Gegenteil. Es war Halder,
+den die Amerikaner nach dem Zweiten Weltkrieg anstellten, um die Geschichte des Krieges in Russland zu
+verfassen, und er war es, der die deutsche Wehrmacht weisswusch, indem er behauptete, dass nur SSTruppen Gräueltaten begangen hätten, obwohl die Fakten das Gegenteil beweisen.
+
+**Russland imperialistisch – eine zynische Aussage**
+Man kann sich vorstellen, wie sich die Russen fühlen, wenn sie unter anderem von genau jenen Politikern
+eines Landes als imperialistisch bezeichnet werden, dessen Zivilbevölkerung sie vor ein paar Jahrzehnten
+abgeschlachtet haben. Wenn man heute die Hassreden aus Deutschland gegen Russland hört, sollte einem
+eigentlich übel im Magen werden. Die gleiche Wortwahl wie bei den Nazis wird auch von der heutigen deutschen politischen Elite und den Medien verwendet.
+Die Russen haben genug davon und wenn die NATO die Dummheit besitzt, Russland anzugreifen, wird es
+eine Reaktion geben, die höchstwahrscheinlich Westeuropa in Brand setzen wird.
+Die Geschichte des Zweiten Weltkriegs sollte den Westen gelehrt haben, dass die Russen nicht dazu neigen,
+aufzugeben – und zwar niemals, egal wie hoch der Preis ist.
+
+**Felix Abt: Auch wenn ukrainische Nationalisten es heute leugnen, sind Russen und Ukrainer – die beide**
+**zu den Ostslawen gezählt werden – historisch und geografisch seit langem ein Volk mit weniger Unter-**
+**schieden als Gemeinsamkeiten. Vor mehr als tausend Jahren war Kiew, die heutige Hauptstadt der Ukrai-**
+**ne, der Verwaltungssitz der Kiewer Rus, des ersten slawischen Staates und Vorläufers der Ukraine und**
+**Russlands. Zu dieser Zeit begann die gemeinsame Geschichte der beiden Länder. Was können Sie uns**
+**über die gemeinsame Geschichte erzählen und wann und warum kam es zu einer Spaltung zwischen**
+**russischsprachigen und ukrainischsprachigen Bevölkerungsgruppen?**
+
+**Dr. Hänseler: Zu Beginn des Ersten Weltkriegs gehörte das heutige Gebiet der Ukraine über 250 Jahre lang**
+zum zaristischen Russland und zu Österreich.
+Ein Teil Russlands wurde es durch freiwilligen Anschluss und nicht durch russische Gewalt, als die Hejtmen
+der Ukraine den Schutz des russischen Zaren suchten und ihm im Gegenzug ewige Treue schworen.
+
+**Keine eigenständige ukrainische Kultur**
+Im Grunde gab es keine eigene ukrainische Kultur, sondern nur Bräuche und regionale Traditionen. Selbst
+eine Schriftsprache gab es nur in Ansätzen. Jeder Intellektuelle, der sich etwas auf sich hielt und auf dem
+Gebiet der heutigen Ukraine lebte, schrieb auf Russisch. Es gab keinen anderen Weg, denn das Ukrainische
+bot nur begrenzte sprachliche Möglichkeiten (für viele Begriffe gab es keine ukrainischen Entsprechungen),
+so dass viele russische Wörter wie selbstverständlich ihren Weg ins Ukrainische fanden, z.B. viele Namen
+von Tieren, die nicht auf dem Gebiet der Ukraine leben.
+In anderen slawischen Ländern, vor allem in denen der österreichisch-ungarischen Monarchie im 19. Jahrhundert, gab es jedoch eine panslawische Bewegung, die nach Wegen suchte, um zumindest eine rudimentäre nationale Unabhängigkeit im Rahmen der österreichisch-ungarischen Monarchie zu erreichen. Aber
+auch diese Bewegung ging praktisch spurlos an der Ukraine vorbei.
+
+**Die Ukraine wurde als eigenständiger Staat nach dem Ersten Weltkrieg geschaffen**
+Politisch wurde die Ukraine gegen Ende des 1. Weltkriegs von Deutschland und Österreich ins Leben gerufen.
+Lenin wurde 1917 von Deutschland aus der Schweiz über Deutschland, Schweden und Finnland nach Russland gelassen – in einem Sonderzug und ausgestattet mit enormen deutschen Finanzmitteln in Form von
+Gold –, um einen Waffenstillstand mit Deutschland zu erreichen, damit Deutschland seine Truppen an die
+Westfront bringen konnte: Der Frieden von Brest-Litowsk.
+
+**Der Frieden von Brest-Litowsk**
+Im Rahmen dieses Friedensvertrags musste Russland enorme territoriale Zugeständnisse machen, woraufhin eine ukrainische Republik unter deutscher Kontrolle ausgerufen wurde. Mit dem Vertrag verfolgten die
+Deutschen die folgenden Ziele: (1) Russland aus dem Krieg herauszuhalten, damit Deutschland endlich
+
+
+-----
+
+einen Sieg über Frankreich im Westen erringen konnte, (2) den Hunger in Deutschland zu bekämpfen, indem sie Zugriff auf die ukrainische Kornkammer erhielten.
+
+**Es sollte nicht so kommen, wie Deutschland es wollte.**
+**Versailles**
+Versailles schuf neue Grenzen und neue Staaten. Die Grenzen wurden ausschliesslich von England und
+Frankreich gezogen. Die USA nickten alles ab.
+Unter Versailles wurden Polen, die Tschechoslowakei, Rumänien, Österreich, die baltischen Staaten usw.
+geschaffen. Polen führte vom ersten Tag seines Bestehens an Krieg gegen den Osten, denn es wollte das
+alte polnisch-litauische Reich aus dem 17. Jahrhundert wieder herstellen. Deshalb besetzte es gegen alle
+ethnischen Realitäten grosse Teile des neuen Litauens, Weissrusslands und der Ukraine. Die Ukrainer widersetzten sich der polnischen Besatzung. Das ist wichtig, denn dieser ukrainische Widerstand war der Ursprung der heutigen ukrainischen nationalistischen Bewegung. Der polnisch-russische Krieg dauerte bis
+1922.
+
+**1922 – Die Ukraine wird Teil der UdSSR**
+Im Jahr 1922 wurde die UdSSR gegründet und mit ihr die 16 Unionsrepubliken. Die Gründung der Ukrainischen SSR im Rahmen der UdSSR war – abgesehen von der Ukrainischen Republik, die ein paar Monate
+lang von deutschen Gnaden existierte – die erste ukrainische Staatlichkeit überhaupt. Im späten Mittelalter
+gab es zwar einige ukrainische Hejtmannschaften, aber sie hatten wenig mit Staatlichkeit im modernen
+Sinne zu tun.
+
+**Lenins Irrtümer**
+Damit die Ukrainische SSR erfolgreich sein konnte, tat Lenin etwas, das viele für den Ausgangspunkt des
+heutigen Wahnsinns halten. Er erweiterte die Ukraine auf eigenmächtige Art und Weise.
+Vor allem aber schuf die UdSSR im Rahmen von Lenins offizieller Nationalitätenpolitik eine ukrainische
+Sprache – wie auch in anderen Teilen der UdSSR – und legte grossen Wert auf ukrainische Kultur und
+Bildung.
+Hier eine Übersicht über die geografische Entwicklung der Ukraine im Laufe der Jahrhunderte.
+
+**Die Ukraine im Jahr 1654**
+Dieser Teil unterstellte sich 1654 freiwillig dem Schutz des russischen Zaren, weil er mit seinen äusseren
+Feinden – Türken, Schweden, Polen – nicht mehr zurechtkam.
+Dies ist also die historische Ukraine schlechthin.
+
+**Hinzugefügt in 1654–1917**
+Dies sind territoriale Erweiterungen Russlands, die auch russisches Gebiet blieben und vom Zaren als Teil
+der Ukraine verwaltet wurden.
+
+**Hinzugefügt im Jahr 1922**
+Das war Lenins Selbstherrlichkeit. Die Ukraine war ein rein landwirtschaftliches Land. Um die proletarische
+Revolution zu stärken, wurde dieser Teil der Ukraine annektiert. Alle waren dagegen, aber Lenin tat es trotzdem. So wurde der Ukraine das wirtschaftlich stärkste Gebiet Russlands angegliedert.
+Die Krim wurde 1954 von Chruschtschow verschenkt – entgegen den damals geltenden Gesetzen.
+
+
+-----
+
+Während der Sowjetunion spielten die territorialen Verhältnisse innerhalb der Sowjetunion im Prinzip keine
+grosse Rolle. Was jedoch eine Rolle spielte, waren die nationalistischen Bestrebungen, die von Deutschland
+und Österreich während des Ersten Weltkriegs massiv gefördert und von Deutschland in den 1920er und
+vor allem den 1930er Jahren wiederbelebt wurden. Dabei spielten natürlich auch die stalinistischen Gräueltaten im Zuge der Kollektivierung der Landwirtschaft eine grosse Rolle. Diese trafen aber auch andere Teile
+der Sowjetunion hart.
+
+**Bandera**
+Hier beginnt die Tätigkeit von Bandera und anderen. Bandera war seit den 1930er Jahren ein Agent der
+Gestapo. Es gibt reichlich Material über Banderas Aktivitäten während des Krieges. Im Prinzip war er gegen
+alles und jeden und nur für eine nationalistische Ukraine. Zu diesem Zweck ermordeten er oder seine Organisationen, die nach seinen Vorgaben handelten, alles, was es in diesem Sinne wert war, ermordet zu werden – Polen, Russen, Juden, Weissrussen, ja, auch viele Ukrainer.
+
+**Die CIA rettete und heuerte Bandera an – einen Kriegsverbrecher**
+Nach dem Krieg wurde die OUN in Nürnberg als kriminelle Organisation abgeurteilt. Im Rahmen der Operation ANYFACE wurde Bandera jedoch von den Amerikanern gerettet, weil sich die US-Armee weigerte, einem
+sowjetischen Auslieferungsgesuch nachzukommen. Nach dem Krieg schmiedete Stepan Bandera fast 15
+Jahre lang Pläne für die ukrainische Unabhängigkeit, und zwar im Auftrag des OSS, des Vorgängers der
+CIA.
+Und hier beginnt der Konflikt mit der Beteiligung der heutigen Streitkräfte.
+Die CIA benutzte Banderas Leute in der Ukraine als Basis für einen unerklärten Krieg gegen die UdSSR in
+der Ukraine. Dieser Konflikt war äusserst blutig, unglaublich brutal und zog sich bis 1954 hin.
+
+**Chruschtschows Patzer**
+Seitdem gibt es die OUN nicht mehr. In der sogenannten Tauwetterperiode nach dem XX. Parteitag der
+KPdSU vergab Chruschtschow den ehemaligen OUN-Mitgliedern öffentlich und bot ihnen die Rückkehr ins
+normale öffentliche Leben an. Sie konnten studieren, arbeiten, was immer sie wollten. Die ehemaligen Führungspersönlichkeiten, sofern sie noch im Land waren, gingen hauptsächlich ins Bildungswesen und wurden Lehrer.
+Dies war die Grundlage für die spätere Abspaltung der Ukraine 1991/92. Bereits in den 70er und 80er Jahren breitete sich der Nationalismus in den ukrainischen Schulen wieder aus. Dafür gibt es zahllose Beweise,
+aber niemand in den westlichen Massenmedien will sie sehen. Es würde den Rahmen dieses Interviews
+sprengen, dies im Detail zu erläutern.
+
+**Die Ukraine – der Schlüssel für die Westmächte**
+Die Ukraine als Teil der Sowjetunion war für alle Westmächte immer der Schlüssel, wenn es darum ging,
+auf die Auflösung der UdSSR hinzuarbeiten. Hitler wollte die Ukraine in das Deutsche Reich integrieren –
+als Kornkammer und als Industriezentrum.
+Als die Ukraine 1992 als Staat gegründet wurde, war sie die postsowjetische Republik mit dem mit Abstand
+höchsten Lebensstandard und den besten Entwicklungsperspektiven. Doch dann begann die Ausweidung.
+
+**Die Probleme der Ukraine als Staat**
+Nur kurz: Ein sehr grosses Problem der Ukraine als Staat war (1) die fehlende Geschichte als Staatswesen,
+(2) die überbordende Macht der Oligarchen (sie bestimmten und bestimmen, was im Land passiert), (3)
+das Tor des Westens, um die politische Situation in Russland zu dominieren, (4) die vielen Ethnien und
+schliesslich (5) die Ausnutzung ethnischer Gegensätze durch den Westen.
+
+**Politisches Chaos**
+In der Folge kam es zur bekannten politischen Instabilität, die durch wechselnde Regierungen, unklare
+Wahlergebnisse und Staatsstreiche geprägt war: (1) 2004 pro-westlich, (2) 2008 pro-russisch und schliesslich (3) 2013/14 gewaltsam pro-westlich.
+Diese widersprüchlichen Umstürze erfolgten, weil die Regierungen seit 1992 nicht in der Lage waren, dem
+Land eine nationale Identität zu geben. Jede Regierung diente fast ausschliesslich den Interessen bestimmter Kreise. Niemand war in der Lage, auch nur annähernd ein ukrainisches Einheitsgefühl zu vermitteln.
+Janukowitsch kam dem noch am nächsten, aber er wurde 2013/14 von den USA, der CIA, der EU und der
+NATO gestürzt.
+Dieser Putsch wurde von langer Hand und äusserst umfassend vorbereitet und diente nur dazu, das an
+sich extrem reiche Land einerseits auszubeuten und andererseits in einen antirussischen Staat zu verwandeln. Zu diesem Zweck war den treibenden westlichen Kräften jedes Mittel recht, sogar die Gründung einer
+
+
+-----
+
+ukrainischen Staatskirche mit Hilfe der CIA und ukrainisch-orthodoxer Kirchen in der amerikanischen Diaspora. Die Folgen waren absehbar und wir sehen sie heute.
+
+**Felix Abt: Russland hat eine faszinierende Geschichte, die von den frühen mongolischen Invasionen bis**
+**zu den zaristischen Regimen, von Epochen der Aufklärung und Industrialisierung bis zu Revolutionen**
+**und Kriegen reicht. Russland ist auch für seine kulturellen Errungenschaften wie Ballett, Tolstoi, Tschai-**
+**kowsky, Kaviar und Wodka bekannt, aber auch für seinen politischen Aufstieg und seine Umwälzungen.**
+**Politik und Kultur zwischen Europa und Russland haben sich im Laufe der Jahrhunderte stark beeinflusst**
+**und vermischt. Ist eine Nation eher europäisch oder asiatisch, wenn sie im Westen an Polen und im Osten**
+**an Japan grenzt und fast drei Viertel ihrer Landmasse östlich des Urals in Asien liegt? Was denken Sie**
+**über die ethnische und kulturelle Vielfalt Russlands und sein ‹Europäertum›?**
+
+**Dr. Hänseler: Aufgrund seiner schieren Grösse hat Russland als Land schon immer eine Brücke gebildet**
+zwischen Ost und West, Nord und Süd.
+Russland gehört zweifelsohne zu Europa. Das ‹Russentum› vereint heute in hohem Masse das in sich, was
+die Europäer im Zeitalter der Aufklärung für europäische Werte hielten: Offenheit, Toleranz, Wissbegierde,
+Nationalstolz, aber ohne Aggression gegenüber anderen.
+Die Mehrheit der Bevölkerung fühlt und ist europäisch. Aber wenn das eigene Land an Länder grenzt, die
+sich kulturell sehr von dem eigenen unterscheiden, erzieht allein schon die räumliche Nähe die Menschen
+zu kulturellem Respekt und Toleranz – auf beiden Seiten der Grenze. Im Gegensatz zur Ukraine wurden in
+Georgien zum Beispiel keine Puschkin-Denkmäler zerstört.
+Da es selbst innerhalb Russlands eine enorme kulturelle und ethnische Vielfalt gibt, betrachten die Russen
+Respekt und Toleranz gegenüber Fremden und Ausländern nicht als ungewöhnlich oder aussergewöhnlich.
+Es ist ein Teil ihres Lebens und ihrer Erziehung. Da der Staat ausserdem sehr streng gegen alles vorgeht,
+was zu ethnischen Unruhen führen könnte, und es eine grosse kulturelle Autonomie der einzelnen Verwaltungsregionen (Republiken und Oblaste) gibt, erscheint das, was an ethnischen Konflikten im Westen passiert, den Russen seltsam und oft unverständlich. Die Toleranz der Russen geht jedoch nicht so weit, dass
+sie ihr eigenes Wesen und ihre Kultur aufgeben würden, wie es im Westen leider ganz offenkundig ist.
+Es soll aber nicht verschwiegen werden, dass der starke Zuzug aus Zentralasien, den ehemaligen Teilrepubliken der Sowjetunion, für Reibungspunkte sorgt.
+
+**Felix Abt: Zum Schluss noch ein Zitat von Ihnen: «Ich lebe in Moskau, der Stadt, die ich liebe.» Wie**
+**würden Sie Ihre Liebe zu dieser Stadt beschreiben?**
+
+**Dr. Hänseler: Vielleicht sollte ich die Antwort mit einem Zitat von John Updike beginnen – «Wir sind am**
+lebendigsten, wenn wir verliebt sind.»
+Dieses Zitat beschreibt vielleicht am besten, wie ich mich fühle, wenn ich in Moskau bin – ich fühle mich
+einfach besser als irgendwo sonst auf der Welt, fühle mich energiegeladener und erfüllter. Liebe ist schwer
+zu beschreiben oder zu definieren und ich mache nicht einmal den Versuch, das zu tun, denn wenn man
+Liebe rationalisiert, nimmt man sie wieder heraus.
+Deshalb beziehe ich mich bei dieser Aussage nicht auf Rationalität oder Verstand. Bei dieser Liebe geht es
+nicht um Politik, Infrastruktur oder irgendetwas, das man erklären oder anfassen kann. Wahrscheinlich ist
+es eine Mischung aus Elementen, der Atmosphäre, die aus der Schönheit der Stadt besteht, dem Moloch,
+der so grün ist, und höchstwahrscheinlich den Menschen, die der Kitt von all dem sind.
+Ich fürchte, ich bin ein lausiger Erklärer der Liebe. Kommen Sie nach Moskau und finden Sie es selbst
+heraus.
+Dr. Hänseler, vielen Dank für das Gespräch.
+_Quelle: https://voicefromrussia.ch/peter-hanseler-interview-mit-felix-abt-teil-2-einblicke-von-einem-insider/_
+
+##### Dritten Weltkrieg riskieren, um Biden an der Macht zu halten –  mit Hochmut und Selbstfixiertheit
+_5 Sep. 2023 14:51 Uhr; Von Wladimir Kornilow._
+
+###### Tonkin-Zwischenfall 2.0 als Vorwand für einen Krieg mit ... Russland.  Nichts Geringeres traut die Rechtskonservative in den USA der Regierung  Biden in deren Bemühungen zum Machterhalt zu. Die Folgen hiervon werden  im Westen jedoch nahezu von niemandem realistisch eingeschätzt.
+
+
+-----
+
+Washington beabsichtigt für das kommende Jahr einen Weltkrieg, um Joe Biden und die Demokratische
+Partei an der Macht zu halten. Dies erklärte neulich der populärste amerikanische Fernsehmoderator
+Tucker Carlson. Carlsons Worte sorgten in den westlichen Medien und insbesondere in den sozialen Netzwerken, die er nach seiner Entlassung bei Fox News zu seiner wichtigsten Plattform gemacht hat, für viel
+Resonanz.
+In einem Interview an den Radiomoderator Adam Carolla äusserte er sich zu den Absichten der Demokraten:
+
+**«Sie dürfen nicht verlieren. Sie werden alles tun, was sie können, um zu gewinnen. Dabei werden sie sich**
+**nicht noch einmal mit COVID befassen. Ich weiss, dass jeder auf dem rechten Flügel Angst hat, dass sie**
+**wieder zu COVID und der Maskenpflicht greifen werden. Aber das werden sie nicht tun. Das können sie**
+**auch gar nicht tun, sie sind aufgeflogen und das wird nicht mehr funktionieren. Was werden sie dann**
+**tun? Sie beabsichtigen, Russland den Krieg zu erklären! Nächstes Jahr wird es einen heissen Krieg zwi-**
+**schen den Vereinigten Staaten und Russland geben.»**
+
+Die Reaktion der Mainstream-Medien auf diese düstere Vorhersage ist merkwürdig. Das Magazin Newsweek
+zitierte und kommentierte genau diese Passage wie folgt:
+
+**«Es gibt keine Beweise dafür, dass Biden oder die föderale Regierung tatsächlich planen, eine Masken-**
+**pflicht einzuführen.»**
+
+Sprich, die Vorhersage eines Atomkriegs zwischen den USA und Russland in Carlsons Worten war aus Sicht
+der Newsweek-Journalisten überhaupt kein Ding von Wichtigkeit.
+Gut, auf den ersten Blick wirkt das Szenario ja auch wie eine reine Verschwörungstheorie. Natürlich ist
+Biden dement, aber die Demokraten sind nicht in einem Masse kollektiv wahnsinnig geworden, dass sie
+einen Krieg als Wahlkampftechnik einsetzen würden. Oder würden sie? In der US-Geschichte kam dies ja
+schon mehr als einmal vor. Carlson selbst erinnert in diesem Interview an die Provokation im Golf von Tonkin, die Washington im Jahr 1964 als Vorwand für eine direkte Beteiligung am Vietnamkrieg nutzten. Es sei
+daran erinnert, dass dieser Vorfall von Washington genau drei Monate vor den US-Präsidentschaftswahlen
+erfunden wurde. Zuvor hatte Lyndon Johnson ernsthaft befürchtet, gegen seinen republikanischen Konkurrenten zu verlieren, und nachdem er sich durch die Bombardierung Vietnams als "entschlossener Kämpfer
+gegen den Kommunismus" erwiesen hatte, gewann er die Wahl – mit einem Rekordvorsprung.
+So auch heute: Carlson nimmt an, dass Washington bald einen Tonkin-Zwischenfall 2.0 inszenieren könnte:
+
+**«Da werden irgendwelche Raketen plötzlich auf Polen fallen. Und es wird heissen ‹Die Russen haben es**
+**getan! Wir werden angegriffen! Wir ziehen in den Krieg!› Das kann ich mir sehr leicht vorstellen.»**
+
+Indes zeigt die Reaktion der US-amerikanischen Öffentlichkeit in den sozialen Netzwerken auf ein solches
+Szenario, dass zumindest der konservative Teil der breiten Masse diese Bedrohung mehr als ernst nimmt.
+Einer der aufsehenerregendsten Tweets der letzten Tage war ein Vorschlag des beliebten ‹rechtsalternativen› Kommentators Jack Posobiec:
+
+**«Sie sind bereit, Amerika in einen Krieg mit Russland hineinzuziehen, nur um US-amerikanische Männer**
+**im wehrfähigen Alter loszuwerden, die mit einer grösseren Wahrscheinlichkeit Trump unterstützen wer-**
+**den.»**
+
+Bis zum Ende dieser Woche hatte der Tweet mehr als drei Millionen Aufrufe und wurde tausendfach weiterverbreitet.
+Doch man hat den Eindruck, dass selbst unter den US-amerikanischen Gegnern der Verwirklichung eines
+solchen Szenarios einige Illusionen darüber herrschen, was damit alles einherginge: Könnte ihnen bitte jemand mitteilen, dass im Falle eines Krieges – sprich, unweigerlich eines Atomkrieges – zwischen den USA
+und Russland die Opfer nicht nur ‹US-amerikanische Männer im wehrfähigen Alter› sein würden, sondern
+dass er eine globale Katastrophe mit schrecklichen Folgen für die ganze Welt einschliesslich der gesamten
+Vereinigten Staaten wäre?
+Die Hoffnung, eine derartige Krise ‹hinter der Atlantik-Pfütze auszusitzen›, wie es bei früheren Weltkriegen
+der Fall war, wird sich dieses Mal nicht erfüllen.
+Die Öffentlichkeit in den USA, aber auch allgemein im Westen ist nach wie vor davon überzeugt, dass sie
+von dem globalen Krieg nicht direkt betroffen sein, sondern dieser irgendwo weit weg stattfinden und ein
+‹geschwächtes› Russland ihn schnell verlieren würde. Der italienische Professor Alessandro Orsini wies neulich darauf hin, dass eine solche Unterschätzung des russischen Staates bereits zum aktuellen Ukraine
+
+-----
+
+Krieg und zu völlig ungerechtfertigten Erwartungen des Westens geführt hat. Die britische Zeitung ‹The
+Guardian› bezeichnete den Italiener daraufhin sofort als ‹pro-russischen› Experten.
+Und so ergeht es jedem, der wie Tucker Carlson versucht, eine diplomatische Lösung des Konflikts in der
+Ukraine zu fordern und auf die Unmöglichkeit hinweist, ‹Russland zu besiegen›. Anatol Lieven, als seit vielen
+Jahren in den postsowjetischen Ländern tätiger britischer Experte recht bekannt, musste nur beiläufig das
+Vorhandensein eines vollständigen Konsenses in der russischen Gesellschaft über den Ausgang der militärischen Sonderoperation in der Ukraine erwähnen: Schon stempelte ihn Branislav Slanchev, Professor an
+der University of California, sofort als ‹Kreml-Propagandist› ab. Jede Diskussion über den Ausgang des
+Ukraine-Konflikts, in der alternative Meinungen geäussert werden, endet in der Regel genau auf diese Weise.
+Diese Atmosphäre in der westlichen Medien- und Expertengemeinschaft trägt jedoch geradezu eine ernsthafte Gefahr von genau derartigen abenteuerlichen Szenarien mit sich, wie sie auch Tucker Carlson beschreibt.
+Das US-Establishment balanciert am Rande der Hysterie, da es sieht, wie ein Sieg von Donald Trump im
+Jahr 2024 immer wahrscheinlicher wird. Sogar der Sohn von George Soros, der vor kurzem das Soros-Imperium geerbt hat, erklärt Europa, warum sich seine Bemühungen in naher Zukunft nicht auf die Alte Welt,
+sondern auf die Verhinderung von Trumps Rückkehr ins Weisse Haus konzentrieren werden.
+Und je höher der Grad dieser Hysterie, desto näher rücken die verrücktesten und blutigsten Szenarien an
+die Realität, die Bidens politische Technologen entwickeln. Umso wichtiger ist es, die Öffentlichkeit und die
+Eliten im Westen mit allen Mitteln vor den realen Folgen einer möglichen neuen Tonkin-Provokation zu warnen. Denn sie würden sich diesmal nicht auf US-amerikanische Männer im wehrfähigen Alter beschränken.
+Niemand wird sie dieses Mal ‹hinter der Atlantik-Pfütze› aussitzen können.
+_Übersetzt aus dem Russischen. Erschienen bei RIA Nowosti._
+_Wladimir Kornilow ist ein sowjetischer, ukrainischer und russischer Politologe, Geschichtswissenschaftler, Journalist, Schrift-_
+_steller und gesellschaftlicher Aktivist. Politischer Beobachter bei der russischen Internationalen Nachrichtenagentur Rossija_
+_Sewodnja. Ehemals Leiter der ukrainischen Filiale des Instituts der GUS-Staaten in Kiew und Leiter des Zentrums für eurasi-_
+_sche Studien in Den Haag. Führt eine Telegram-_
+_Kolumne zu aktuellen politischen Nachrichtenanlässen._
+_Quelle: https://freeassange.rtde.me/meinung/179734-dritten-weltkrieg-riskieren-um-biden-macht-erhalten-hochmut-_
+_selbstfixiertheit/_
+
+##### CIA lässt ukrainischen Nazismus wieder aufleben
+_von Thierry Meyssan_
+
+**Es ist kein Wunder, dass die CIA antirussische Organisationen aufbaut. Es ist jedoch überraschend, dass**
+**sie nicht davor zurückschreckt, sich Nazis und integrale Nationalisten auszusuchen, um angeblich Frei-**
+**heit und Demokratie zu verteidigen.**
+
+_VOLTAIRE NETZWERK | PARIS (FRANKREICH) | 5. SEPTEMBER 2023_
+
+Schon im neunzehnten Jahrhundert planten das Deutsche und das Österreichisch-Ungarische Reich, ihren
+Rivalen, das Russische Reich, zu vernichten. Zu diesem Zweck starteten das deutsche und das österreichisch-ungarische Aussenministerium eine gemeinsame geheime Operation: die Gründung der Liga der
+Fremdvölker Russlands (LFR) [1].
+
+
+-----
+
+_Proklamation der unabhängigen Ukraine mit Nazi-Würdenträgern. Hinter den Rednern_
+_sind die drei Porträts von Stepan Bandera, Adolf Hitler und Jewhen Konowalez zu sehen._
+
+1943 gründete das Dritte Reich den Antibolschewistischen Block der Nationen (ABN), um die Sowjetunion
+zu zerlegen. Am Ende des Zweiten Weltkriegs übernahmen das Vereinigte Königreich und die Vereinigten
+Staaten die Nazis und ihre Kollaborateure und unterhielten diesen Block ABN [2]. Angesichts der Millionen
+Toten, die er verursacht hatte, revidierte Frank Wisner, die Nummer 2 der CIA, dessen Geschichte. Er liess
+eine Reihe von Broschüren herausgeben, in denen behauptet wurde, dass der Block ABN nach der Befreiung gegründet worden sei. Er behauptete, dass die Völker Mitteleuropas und des Baltikums alle gemeinsam
+sowohl gegen die Nazis als auch gegen die Sowjets gekämpft hätten. Das ist eine grosse Lüge. In Wirklichkeit
+stellten sich viele politische Parteien in Mitteleuropa auf die Seite der Nazis, gegen die Sowjets, bildeten
+SS-Divisionen und stellten fast alle Wachleute der Nazi-Vernichtungslager bereit.
+John Loftus, der Sonderstaatsanwalt des Office of Special Investigations, einer Abteilung des US-Justizministers, bezeugte, dass er 1980 eine kleine Stadt in New Jersey, South River, gefunden habe, in der eine Kolonie ehemaliger weissrussischer SS leben. Am Eingang der Stadt gedenkt ein mit SS-Symbolen geschmücktes Kriegerdenkmal ihre gefallenen Kameraden, während ein naheliegender Friedhof das Grab des belarussischen Nazi-Ministerpräsidenten Radoslav Ostrowski beherbergt [3].
+Man glaubt oft, dass die Vereinigten Staaten die Nazis bekämpften und sie in Nürnberg und Tokio vor Gericht stellten. Aber das stimmt nicht. Wenn Präsident Roosevelt auch ein überzeugter Liberaler war, hielt er
+es für möglich, Verräter zu rekrutieren und sie in seinen Dienst zu stellen. Da er jedoch vor dem Ende des
+Konflikts starb, erreichten die Verbrecher, mit denen er sich umgeben hatte, das höchste Amt. Sie haben
+manche Verwaltungen gekapert, um ihre Ziele zu verfolgen. So ist es mit der CIA geschehen.
+Die Bemühungen des Kongresses mit der Church Commission, die die CIA-Verbrechen in den 50er und
+60er Jahren aufdeckte, haben nicht viel erreicht. Diese ganze undurchsichtige Welt kehrte in den Untergrund zurück, aber hat ihre Unternehmen nicht aufgegeben.
+Die ukrainischen ‹integralen Nationalisten› von Dmytro Donzow und seine Handlanger Stepan Bandera und
+Jaroslaw Stetsko, folgten diesem Weg. Der erste, der bereits Geheimagent von Kaiser Wilhelm II., dann von
+Führer Adolf Hitler war, wurde von der CIA geborgen, lebte in Kanada und starb 1973 in New Jersey, in
+South River, im Gegensatz zu dem, was sein Wikipedia-Eintrag behauptet. Er war einer der schlimmsten
+Massenverbrecher des Dritten Reiches. Er war während des Krieges aus der Ukraine verschwunden und
+wurde Kurator des Reinhard-Heydrich-Instituts in Prag. Er war einer der Gestalter der der Zigeuner- und
+Judenfrage [4].
+Seine Handlanger, Stepan Bandera und Jaroslaw Stetsko, wurden von der CIA in München angestellt. Sie
+lieferten Sendungen für Radio Free Europe in ukrainischer Sprache und organisierten Sabotageaktionen in
+der Sowjetunion. Stepan Bandera hatte viele Massaker verübt und mit den Nazis die Unabhängigkeit der
+Ukraine proklamiert. Doch auch er war während des Krieges aus der Ukraine verschwunden. Er behauptete,
+in einem Vernichtungslager in ‹ehrenvoller Gefangenschaft› inhaftiert gewesen zu sein. Dies ist unwahrscheinlich, da er 1944 wieder auftauchte und vom Reich mit der Regierung der Ukraine und dem Kampf
+gegen die Sowjets betraut wurde. Möglicherweise wohnte er in der Zentrale der Lagerverwaltung in Oranienburg-Sachsenhausen und arbeitete dort am nationalsozialistischen Projekt der Vernichtung der ‹Rassen›,
+die die Arier angeblich verdarben. Während des Kalten Krieges durchstreifte er die ‹freie Welt› und kam
+nach Kanada, um Dmytro Dontsov vorzuschlagen, Leiter seiner Organisation zu werden [5].
+
+
+-----
+
+_Chiang Kai-Schek und Jaroslav Stetsko bei der Gründung der Antikommunistischen Weltliga._
+
+Die Zeit ist vergangen, diese Massenverbrecher sind gestorben, ohne jemals zur Rechenschaft gezogen
+worden zu sein. Ihre Organisationen, OUN und ABN, hätten ebenfalls verschwinden sollen. Dies war nicht
+der Fall. Die OUN wurde infolge des Krieges in der Ukraine neu konstituiert. Das gilt auch für den Block
+ABN. Er hat jetzt auch eine Website. Sie enthält Propagandabroschüren aus der Nachkriegszeit, die erklären,
+dass diese Organisation ABN vor dem Fall des Dritten Reiches nie existiert habe. Der ABN wird heute mit
+dem Free Nations PostRussia Forum fortgesetzt, das am 26., 27. und 28. September in London, Paris und
+möglicherweise Strassburg stattfinden wird. Sein Ziel ist immer dasselbe: Die Russische Föderation in 41
+verschiedene Staaten aufzuteilen. An der Zugehörigkeit dieses Forums kann kein Zweifel bestehen: Es behauptet zwar, für die Völker Russlands zu sprechen, beschuldigt aber nicht nur Moskau, sondern greift
+auch die Volksrepublik China, Nordkorea und den Iran an. In seinen Dokumenten geht er auch auf die
+Frage von Venezuela, Weissrussland und Syrien ein. Der ABN beteiligte sich jedoch an der Gründung und
+Animation der Antikommunistischen Weltliga [6], in der sich die meisten Diktatoren der Welt trafen, die
+heute elegant Weltliga für Freiheit und Demokratie heisst.
+
+_Das Post-Russia Forum of Free Nations zielt darauf ab, die Russische Föderation_
+_in 41 unabhängige Staaten aufzuteilen._
+
+Dieses Free Nations PostRussia Forum wurde von der CIA als Reaktion auf die russische Militärintervention
+in der Ukraine ins Leben gerufen. In anderthalb Jahren hat es bereits sieben Male getagt, in Polen, der
+Tschechischen Republik, den Vereinigten Staaten, Schweden, sowie im Europäischen und Japanischen Parlament. Gleichzeitig schuf die CIA für Weissrussland und Tatarstan Exilregierungen, wie sie es für den Irak
+
+
+-----
+
+und Syrien getan hatte. Niemand hat sie bisher anerkannt, aber die Europäische Union hat sie bereits mit
+Respekt aufgenommen. Diese Exilregierungen kommen zu der bereits alten Regierung von Itchkerien
+(Tschetschenien) hinzu.
+Der derzeitige Apparat ist nicht darauf ausgelegt, seinen erklärten Zweck zu erreichen. Die Vereinigten Staaten haben nicht die Absicht, die Russische Föderation, eine Atommacht, zu zerschlagen. Die meisten ihrer
+Entscheidungsträger sind sich bewusst, dass ein solches Unternehmen die internationalen Beziehungen
+völlig destabilisieren und einen Atomkrieg auslösen könnte. Nein, es geht vielmehr darum, im Dienst der
+Vereinigten Staaten das Volk zu mobilisieren, das hofft, dieses unwahrscheinliche Ziel der Zerstörung Russlands zu erreichen.
+Einige politische Persönlichkeiten machen bei diesem Spiel mit. Das ist der Fall der ehemaligen polnischen
+Aussenministerin Anna Fotyga. Im Jahr 2016 legte sie dem Europäischen Parlament eine Entschliessung
+zu den strategischen Mitteilungen der Europäischen Union vor. Sie hatte ein System der Einflussnahme auf
+alle wichtigen Medien in der Union entwickelt, das sich als wirksam erwies. Auch ein französischer zentristischer Abgeordneter, Frederick Petit. Bereits 2014 waren die Spitzenfiguren seiner Partei auf den MaidanPlatz in Kiew gegangen, um sich neben den ‹integralen Nationalisten› fotografieren zu lassen. Ich werde
+hier nicht über den ehemaligen russischen Parlamentsabgeordneten Ilja Ponomarjow sprechen.
+Auch Denkfabriken, wie die Jamestown Foundation. Sie wurde mit Hilfe von William J. Casey, dem Direktor
+der CIA, anlässlich eines Überläufers aus der UdSSR gegründet. Sie wurde in Russland im Jahr 2020 (d.h.
+noch vor dem Krieg in der Ukraine) verboten, weil sie bereits Dokumente über den Zerfall Russlands druckte. Schliesslich wird das Hudson Institute von Taiwan über seine Agentur, die World League for Freedom
+and Democracy (ehemals World Anti-Communist League), finanziert. So war es möglich, eine Sitzung des
+Post-Russischen Forums Freier Nationen zu veranstalten.
+_Thierry Meyssan_
+_Übersetzung: Horst Frohlich_
+_Quelle: https://www.voltairenet.org/article219639.html_
+
+##### Nach dem Start der Impfkampagne starben in Thailand tausende Menschen und die Regierung hat schon 17’000 Fälle entschädigt
+_uncut-news.ch, September 4, 2023_
+
+_pexels.com_
+
+**Covid-19-Impfungen in Thailand: Überwiegen die Risiken den Nutzen?**
+Ausserhalb Chinas war Thailand das erste Land, in dem ein Covid-19-Fall gemeldet wurde. [Vor der Einführung der Massenimpfung war Covid-19 in Thailand auf wenige Fälle und kleine, begrenzte Ausbrüche beschränkt. Mit der schrittweisen Öffnung des Landes blieb Thailand von grösseren Covid-19-Ausbrüchen
+verschont. Am 1. Juli 2020 öffneten Bars, Pubs, Einkaufszentren, Internetcafés, Lebensmittelgeschäfte und
+Schulen ihre Türen und nahmen den Betrieb wieder auf. [1] Die Beschränkungen für den internationalen
+Reiseverkehr blieben bis weit in das Jahr hinein bestehen, und der Tourismus wurde weiterhin beeinträchtigt, obwohl die Beschränkungen ab Oktober schrittweise gelockert wurden. [2] In den folgenden sechs
+Monaten schien sich Thailand auf dem richtigen Weg zur wirtschaftlichen Erholung zu befinden,
+Im Jahr 2020 verzeichnete Thailand 120 Todesfälle und 6331 Erkrankungen. Bis zum Beginn des Impfprogramms am 14. Februar 2021 hatte Thailand in den 11 Monaten nach dem ersten gemeldeten Fall etwa
+24’400 Erkrankungen und 80 Todesfälle verzeichnet. Als jedoch die Impfungen intensiviert wurden, verzeichnete Thailand in den folgenden 11 Monaten 20.445 Todesfälle und 2'252’976 Erkrankungen. Dies
+entspricht einem Anstieg der Fälle um das 92-fache und der Todesfälle um das 256-fache in den 11 Monaten nach der Impfung im Vergleich zu den 11 Monaten vor der Impfung. Es wurde beobachtet, dass die
+
+
+-----
+
+Covid-19-Fälle und Todesfälle in engem zeitlichem Zusammenhang mit der Einführung des Impfprogramms standen. Unter Bezugnahme auf öffentlich zugängliche Daten und veröffentlichte Studien legte
+der Autor in diesem Artikel dar, dass die massiven Covid-19-Wellen in mehreren Ländern offenbar durch
+Massenimpfungen ausgelöst wurden, wobei die in einer Dosis geimpften Personen wahrscheinlich enge
+Kontaktpersonen infizierten und so die Ausbrüche verursachten. Bis heute hat Thailand 34’453 Covid-19Todesfälle gemeldet, von denen 34’373 oder 99,8% nach Beginn der Massenimpfungen auftraten.
+
+Eine weitere wichtige Statistik für diese Impfkampagne ist die Anzahl der Personen, die für Impfschäden
+entschädigt wurden. Bis zum 9. September 2022 haben 21’139 Personen einen Antrag auf Entschädigung
+für Impfschäden gestellt, von denen 17’559 die Voraussetzungen für eine Entschädigung erfüllten. Die
+Familien von 4441 Personen wurden für Tod oder Behinderung nach einer Impfung entschädigt. [3] Mindestens 3670 Familien wurden für Todesfälle nach der Impfung entschädigt. [4]
+Schlussfolgerung:
+Trotz der weitgehenden Öffnung der thailändischen Wirtschaft im Juli 2020 war Thailand bis zum Beginn
+der Impfkampagne in den folgenden sechs Monaten weitgehend frei von Covid-19-Ausbrüchen.
+99,8% aller Covid-19-Todesfälle in Thailand traten nach dem Start des Massenimpfprogramms auf, was in
+engem zeitlichen Zusammenhang mit der Impfkampagne steht.
+21’139 Personen haben eine Entschädigung für Impfschäden beantragt, von denen 17’559 bereits entschädigt wurden oder noch entschädigt werden. 4441 Menschen erlitten nach der Impfung Todesfälle oder
+Behinderungen, für die ihre Familien entschädigt wurden.
+Was lässt sich aus den oben genannten Fakten über das Ergebnis des Covid-19-Impfprogramms in Thailand
+schliessen?
+_Quellen:_
+_0. https://www.cidrap.umn.edu/covid-19/thailand-finds-wuhan-novel-coronavirus-traveler-china_
+_1. https://asia.nikkei.com/Spotlight/Coronavirus/Thailand-stays-under-COVID-19-emergency-with-third-extention_
+_2. https://www.traveldailymedia.com/thailand-gets-first-international-visitors-in-7-months-plans-to-ease-more-rules-to-_
+_attract-foreign-tourists/_
+_3. https://www.bangkokpost.com/thailand/general/2389325/nhso-halts-jab-compensation_
+_4. https://www.bangkokpost.com/thailand/general/2292514_
+_QUELLE: COVID-19 VACCINATIONS IN THAILAND: RISKS OUTWEIGHED BENEFITS?_
+_Quelle: https://uncutnews.ch/nach-dem-start-der-impfkampagne-starben-in-thailand-tausende-menschen-und-die-_
+_regierung-hat-schon-17-000-faelle-entschaedigt/_
+
+
+-----
+
+## Verbreitung des richtigen Friedenssymbols
+
+Das falsche Friedenssymbol – die heute weltweit verbreitete sogenannte
+
+**Es soll FRIEDEN sein auf Erden** <Todesrune>, die aus den keltischen Futhark-Runen resp. der umgedrehten Algiz
+**And there shall be PEACE on Earth** Rune fabriziert wurde – ist der eigentliche Inbegriff negativer Einflüsse und schafft
+
+zerstörerische Schwingungen hinsichtlich Unfrieden, Fehden und Hass, Rache,
+
+**AMANI** **ΕΙΡΗΝΗ** Laster, Süchte und Hörigkeit, denn die <Todesrune> bedeutet für viele Menschen
+
+Reminiszenzen an die NAZI-Zeit, an Tod und Verderben, wie aber auch Ambitionen
+
+**BARIŞ** **VREDE**
+
+in bezug auf Kriege, Terror, Zerstörungen vieler menschlicher Errungenschaften und
+
+**PAQE** **��** allen notwendigen Lebensgrundlagen jeder Art und weltweit Unfrieden.
+**PACE** **שרום**
+**МИР** शांित Es Ist wirklich dringlichst notwendig, dass die <Todesrune> als falsches
+**PAIX** **���** Friedenssymbol, das Unfrieden und Unruhe schafft, völlig aus der Erdenwelt
+**PAZ** **��** verschwindet und dadurch das uralte sowie richtige Peacesymbol auf der ganzen
+
+Erde verbreitet und weltbekanntgemacht wird, dessen zentrale Elemente
+Frieden, Freiheit, Harmonie, Stärkung der Lebenskraft, Schutz,
+
+**FIGU.ORG**
+
+Wachstum und Weisheit reflektieren, aufbauend wirken und
+
+**FIGU, Semjase-Silver-Star-Center, 8495 Schmidrüti**
+**Schweiz/Switzerland  Tel. + 41 (0)52 385 13 10** sehr besänftigend und friedlich-positiven Schwingungen
+
+zum Durchbruch verhelfen, die effectiv Frieden,
+Freiheit und Harmonie vermitteln können!
+
+Wir wenden uns deshalb an alle FIGU-Mitglieder, an alle FIGU-Interessengruppen, Studien- und Landesgruppen
+sowie an alle vernünftigen und ehrlich nach Frieden, Freiheit, Harmonie, Gerechtigkeit, Wissen und Evolution
+strebenden Menschen, ihr Bestes zu tun und zu geben, um das richtige Friedenssymbol weltweit zu
+verbreiten und Aufklärung zu schaffen über die gefährliche und destruktive Verwendung
+der <Todesrune>, die in Erinnerung an die NAZI-Verbrechen kollektiv im Sinnen und
+Trachten der Menschen Charakterverlotterung, Ausartung und Unheil fördert.
+
+**Autokleber** **Bestellen gegen Vorauszahlung:** **E-Mail, WEB, Tel.:**
+**Grössen der Kleber:** **FIGU** info@figu.org
+120x120 mm = CHF 3.– Hinterschmidrüti 1225 www.figu.org
+250x250 mm = CHF 6.– 8495 Schmidrüti Tel. 052 385 13 10
+300X300 mm = CHF 12.– Schweiz Fax 052 385 42 89
+
+**IMPRESSUM** **Für** **CHF/EURO 10.– in einem Couvert senden**
+**FIGU-SONDER-ZEITZEICHEN** **wir Dir/Ihnen 3 Stück farbige Friedenskleber**
+**Druck und Verlag: FIGU** Wassermannzeit-Verlag, ------der Grösse **120x120 mm. = Am Auto aufkleben.**
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+**Redaktion: BEAM** ‹Billy› Eduard Albert Meier,
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+Wird auch im Internetz veröffentlicht
+**Erscheint sporadisch auf der FIGU-Webseite**
+
+**Postcheck-Konto: FIGU Freie Interessengemeinschaft,**
+8495 Schmidrüti, PC 80-13703-3
+
+Geisteslehre Friedenssymbol
+
+IBAN: CH06 0900 0000 8001 3703 3
+**E-Brief: info@figu.org** **Frieden**
+**Internetz: www.figu.org**
+**FIGU-Shop: http://shop.figu.org** Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+
+wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten
+Tritt dazu macht, um dann nachfolgend in Friedsamkeit jeden weiteren Schritt
+
+**© FIGU 2023** bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun.
+Einige Rechte vorbehalten. SSSC, 10. September 2018, 16.43 h, Billy
+Dieses Werk ist, wo nicht anders
+angegeben, lizenziert unter :
+www.figu.org/licenses/by-nc-nd/2.5/ch/
+
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung des Urhebers ausdrücklich erlaubt.**
+Erschienen im Wassermannzeit-Verlag: FIGU, ‹Freie Interessengemeinschaft Universell›, Semjase-Silver-Star-Center,
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+

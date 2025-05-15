@@ -1,0 +1,1272 @@
+**L**
+
+# FIGU– WESEN FREMDER WELTENBESUCHEN DIE ERDE
+
+**Freie**
+
+# ZEITZEICHEN Interessengemeinschaft
+
+**FIGU**
+
+## Aktuelles • Einsichten • Erkenntnisse r
+
+**Erscheinungsweise:** **Internetz: www.figu.org** **2. Jahrgang**
+**Sporadisch** **E-Brief: info@figu.org** **Nr. 37, März 2016**
+
+#### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+Laut ‹Allgemeine Erklärung der Menschenrechte› vom 10. Dezember 1948, Artikel 19, ‹Meinungs- und Informationsfreiheit›:
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die**
+**Freiheit, Meinungen unangefochten anzuhängen und Informationen und Ideen mit allen**
+**Verständigungsmitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Aussagen und Meinungen müssen nicht zwingend mit dem FIGU-Gedanken-, Interessen-, Lehre- und Missionsgut identisch sein.
+
+### BARGELDVERBOT
+_29. Februar 2016 dieter_
+
+Wird unser Geld den grössten Vermögens-Raubzug der Geschichte
+überleben? Die EU-Kommission plant ab 1. Januar 2018 ein generelles Bargeldverbot bzw. vorab ein Limit für Barzahlungen in Höhe
+von 5000.00 Euro.
+Überflüssig zu erwähnen, dass alle Finanzminister der EU-Mitgliedsstaaten diese Pläne ausdrücklich gutheissen …
+_Quelle: Politonline_
+
+**Auch die Schweiz ist dabei**
+Die Schweiz, seinerzeit unter der Fuchtel von Finanzministerin
+Eveline Widmer-Schlumpf, hat sich bereits in die von Washington
+dirigierten Überwachungsorgien eingereiht. Brav segelt sie im Fahrwasser der Privatsphären-Zerstörer aus Brüssel und Washington.
+
+**Durchtriebenes Spiel**
+Dass Finanzministerin Eveline Widmer-Schlumpf während Ihrer Amtszeit [sie erklärte letzten Oktober ihren
+Rücktritt] das Bargeldverbot generell durchsetzen wollte, verrät eine von ihr mitzuverantwortende Anordnung,
+die klammheimlich, hinter dem Rücken von Parlament und Stimmvolk Tatsache geworden ist.
+Obwohl hierzulande gesetzlich vorgeschrieben ist, dass jedermann, jede Person, jede Firma, jede Amtsstelle, eine
+Zahlung in Form von bar ausgehändigten Franken in jeder Höhe entgegennehmen muss, wurde dem Ständerat
+das Zugeständnis abgerungen, Bargeld-Zahlungen im Betrag von über 100000.– Franken in der Schweiz zu
+verbieten. Dies seinerzeit mit Eveline Widmer-Schlumpfs bestechender, die Ständeräte offenbar überzeugender
+Begründung, Barzahlungen in einer solchen Betragshöhe kämen ohnehin ‹praktisch nie› vor. Unser ‹chambre
+de réflexion›, umschmeichelt von Eveline Widmer-Schlumpf, schaffte also ein Gesetz, weil das, was dieses Gesetz
+regeln soll, sozusagen nie vorkommt …
+Die Absicht ist durchsichtig: Eveline Widmer-Schlumpf bekämpfte Bargeldzahlungen – also den Zahlungsverkehr, der ihrer Kontrolle entzogen ist – aus Prinzip; mit der offenkundigen Absicht unterlegt,
+den Grenzbetrag, ab welchem das Verbot gilt, anschliessend Schritt für Schritt herabzusetzen.
+Als glühende Vertreterin der ‹institutionellen Einbindung› der Schweiz in Strukturen und Entscheidungsmechanismen der EU hätte sie dazu zu gegebener Zeit zwecks Angleichung unserer
+Regeln an jene der EU wohl kaltlächelnd einen ‹Harmonisierungsbedarf› geltend gemacht.
+
+
+**Freie**
+
+
+-----
+
+Egal in welchem Land die Bargeldabschaffung eingeführt würde, es würde beängstigende Realität werden, aus
+einem mündigen Konsumenten eine gläserne Marionette in einem übermächtigen totalen Überwachungsstaat
+**zu machen. Unser Konsumverhalten würde bis ins letzte Detail sichtbar; darüber hinaus könnten Bewegungs-**
+profile erstellt werden. Ein bargeldloses Geldsystem schneidet den Verbraucher vom sicheren Bargeld ab und
+treibt ihn in die Abhängigkeit vom Buchgeld der Banken!
+**Aber worin liegt nun der eigentliche Grund für die Abschaffung des Bargeldes? Einzig und allein darin, das**
+**bestehende Finanzsystem vor einem Crash zu bewahren, der andernfalls unweigerlich kommen würde.**
+Seit 1971 – das Jahr, in dem das Ende des Systems von Bretton-Woods, das bis dahin eine Teildeckung und
+Bindung der Weltleitwährung US-Dollar an Gold garantierte – eintrat, hat die Deregulierung der Finanzmärkte
+das Geldsystem in eine immer absurder werdende Situation geführt. Geschäftsbanken haben bis heute die
+Möglichkeit, selbst nahezu grenzenlos Geld aus dem Nichts [Geldschöpfung] zu produzieren, wodurch die
+globale Geldmenge im Vergleich zur globalen Wirtschaftsleistung bis 2009 auf das 40fache ausgedehnt wurde.
+Das Problem dieses Schuldgeldsystems: Die Zinslasten der globalen Verschuldung sind bereits höher als das
+globale Wirtschaftswachstum insgesamt, weshalb immer neue **Kredite vergeben werden müssen, damit die**
+Zinsen bezahlt werden können und es nicht zu einer globalen Deflation [Geldknappheit] kommt und das Finanzsystem [Finanzblase] kollabiert. Ein Teufelskreislauf, der nur zu Überschuldung führen und wie jedes
+Schneeballsystem nicht auf Dauer funktionieren kann!
+Würden die Bürger also immer mehr Bargeld von den Banken abziehen und privat horten, wäre die Aus dehnung der Geldmenge durch Kredite gefährdet und die Regierung nicht mehr in der Lage, die Überschuldung
+in der Eurozone mittels einer kollektiven Vermögensabgabe (Enteignung) schnell und einfach zu reduzieren.
+Durch Einführung von Minuszinsen oder Zwangsabgaben auf Geldanlagen hätten sie jederzeit Zugriff auf das
+Vermögen, könnten dies konfiszieren und uns enteignen. Denn nur auf Geld, das auf Konten liegt, haben Banken und der Staat Zugriff. Auf Bargeld, das wir in den Händen halten, wäre dies nicht möglich.
+
+**OHNE BARGELD WÄREN WIR DEN MINUSZINSEN WEHRLOS AUSGELIEFERT!**
+Deshalb wäre für Staat und Banken die Beseitigung des Bargeldes eine einfache und elegante Lösung, um jederzeit willkürlich an der Zinsschraube drehen zu können. Und über die Null- und Negativverzinsung könnte
+**uns der Staat eiskalt ausrauben.**
+Übrigens: Einer der grössten Befürworter des Bargeldverbots, Willem Buiter, Chefökonom der Citigroup, sagte,
+**man hätte bereits zwischen 2008 und 2010 Negativzinsen in Höhe von 6 % einführen sollen.**
+Damit hätten die Bürger den grössten Teil der Kosten der Finanzkrise getragen!
+Die EZB steckt aktuell in immer grösser werdenden Schwierigkeiten. Und wie es sich gezeigt hat, hat Draghi
+andere Wege gefunden, um den Steuerzahler ‹die Zeche zahlen zu lassen›. Er hat den Leitzins auf Rekordtief gesenkt. Unser Sparvermögen – der Zinsen beraubt – nimmt behende ab und fliesst in die Banken südeuropäischer
+Staaten. Dennoch haben Nullzinsen und weitere geldpolitische Massnahmen der EZB trotz allem bisher nicht
+zum Ziel geführt. Um das System vor dem Zusammenbruch zu bewahren, pumpt die Europäische Zentralbank
+als Gegenmassnahme seit März 2015 jeden Monat 60 Milliarden Euro in das Bankensystem und will diese Mass nahme solange beibehalten, bis die Inflation entsteht und die Schulden damit nominell teilentwertet werden.
+Mario Draghi sagte wörtlich: ‹Whatever it takes› – was immer erforderlich sein wird – und: ‹It will be enough› –
+es wird genug sein. Damit meinte er, dass er, egal wie lange es dauert, soviel Zentralbankgeld in Umlauf bringen
+wird, bis eine Inflation entsteht. Die EZB nimmt dabei eine grosse Entwertung des Euros in Kauf; diese betrug
+zwischen Juli 2014 und Februar 2015 bereits über 20%. Diese Entwicklung dürfte sich fortsetzen, weil es viele
+Jahre erfordern wird, um die immensen Schulden und den Zinseszinseffekt durch Inflation auf das notwendige
+Mass zu reduzieren.
+Die EU-Regierungen suchen nun mit krimineller Energie nach weiteren Möglichkeiten. Wie kommen wir von
+den hohen Staatsschulden herunter? Es gibt natürlich noch andere Folterwerkzeuge, um an das Vermögen der
+Sparer heranzukommen.
+Und wie sagte doch Henry Ford (1863–1947): «Eigentlich ist es gut, dass die Menschen unser Banken- und Geldsystem nicht verstehen. Würden Sie dies nämlich, so hätten wir noch vor morgen früh eine Revolution!»
+
+**Die Folterinstrumente des Staates**
+So hatte die Regierung in Spanien im Juli 2014 die verwerfliche Idee, Zwangsabgaben von 0,03% auf Sparguthaben einzuführen. Die Steuer wirkte rückwirkend zum 1. Januar 2014, eine Steuerflucht durch Barabhebung
+oder Transfer ins Ausland war damit ausgeschlossen. Laut spanischem Kabinett könnte die Abgabe mehr als
+
+
+-----
+
+**340 Millionen einbringen. Der spanische Finanzminister de Guindos, der übrigens im Gespräch für den Posten**
+**des Euro-Gruppen-Chefs ist, hat damit sein Versprechen von 2013 gebrochen, als er während der Zypern-Krise**
+die Sparguthaben unter 100000 Euro noch als ‹heilig›, also als unantastbar bezeichnet hatte und die spanischen
+Sparer aufforderte, sich ruhig zu verhalten. Um eine sogenannte ‹moderate› Abgabe oder auch eine Gebühr auf
+Spareinlagen einzuführen, wurde in Spanien eigens die Verfassungsbestimmung geändert, obwohl das nach
+bisherigem spanischem Recht untersagt und daher völlig unmöglich war. Entgegen von Gesetz und Ordnung
+werden die Rechte der EU-Bürger systematisch eingeschränkt.
+**Und diese Zwangsabgabe ist erst der Anfang. Sie wird sicher nicht auf Spanien beschränkt bleiben. Die Finanz-**
+Elite hat mit der ‹Plünderung der Welt› begonnen.
+Dafür haben die Schulden-Politiker ein gewaltiges Arsenal vorbereitet, um die Sparer in Europa zu zwingen,
+**für die Schulden der vergangenen Jahre aufzukommen. Nicht nur in Deutschland, in allen europäischen**
+Ländern schielen die Politiker und Banken schon lange gierig auf die Privatvermögen der Bürger. So sind noch
+andere Überlegungen im Gange und unseren Politikern durchaus zuzutrauen – siehe vorerwähntes Beispiel der
+Pflichtabgaben auf Sparguthaben in Spanien –, nämlich die Einführung einer ‹Guthabensteuer›, die man einfach nur deshalb bezahlen müsste, weil man Geld auf dem Konto hat. Diese Möglichkeit werden sich die EUPolitiker nicht nehmen lassen, wenn das Bargeldverbot erst einmal da ist! Und weiter hätte der Staat völlig freie
+Hand, um ein Konto zu sperren, vielleicht das eines angeblichen ‹Staatsfeinds›, dessen regierungskritische Aussagen missfallen. Selbst die Stasi hätte von diesen Möglichkeiten nur träumen können!
+
+**Glauben Sie etwa, das sei zu weit hergeholt?**
+Dann denken Sie an die uns und weiteren Generationen bis zum jüngsten Tag auferlegte Knechtschaft des ESM –
+der Europäische Stabilitätsmechanismus. Dieser ist gesetzeswidrig, was unsere Politiker jedoch herzlich wenig
+kümmerte. Auch diesen hatte niemand für möglich gehalten und der damalige Bundespräsident Köhler hatte
+erklärt, dass die Sorgen der Euroskeptiker, sie müssten einmal für die Schulden anderer Länder einstehen, völlig
+unbegründet seien. Wie eigenartig, dass er fast gleichzeitig seinen Hut nehmen musste.
+**Und vergessen Sie nicht die zahlreichen Klagen vor dem Bundesverfassungsgericht, einer rechtlichen, dem Ge-**
+setz verpflichteten Institution, die gegen geltendes Recht entschieden hat. Denn der ESM wurde eingeführt.
+Und was war von Merkel und Steinbrück unisono zu hören: «Wir sagen den Sparerinnen und Sparern, dass ihre
+Einlagen sicher sind. Auch dafür steht die Bundesregierung ein.» Dies ist eine Lüge, wie viele andere auch, die
+**unsere Polit-Darsteller unters Volk bringen, um es zu beruhigen.**
+Die Regierung kann gar nicht für die Sicherung unserer Einlagen geradestehen, das kann nur der Bürger, der
+Steuerzahler! Dass das Versprechen der Politik fadenscheinig und erlogen war, das hat Peer Steinbrück später
+zugeben müssen.
+
+**UNSER RECHT WIRD SEIT LANGEM GEBEUGT!**
+**Und nun soll die verlogene politische Unredlichkeit mit dem Bargeldverbot ihre Fortsetzung finden?**
+Also geht es in Wahrheit nur darum, die Sparer zugunsten der Schuldner zu enteignen, die Bürger zu mehr
+Konsum anzuregen und damit das Schuldgeldsystem der westlichen Welt vor dem Einsturz zu bewahren.
+Würden nun die Bürger ihre Ersparnisse abheben, so bedeutete dies den Todesstoss für das Finanzsystem. Ein
+Horrorszenario für die Finanz-Elite, eine Katastrophe für Banken- und Finanzwelt schlechthin, und dem will
+man mit einem Bargeldverbot zuvorkommen.
+Ein Bargeld-Verbot würde es den Bürgern nahezu unmöglich machen, ihr Vermögen vor einer Enteignung
+aufgrund der Folgen unseres Geldsystems zu schützen. Auch die bisherigen Modelle der Altersvorsorge wie
+Lebensversicherungen oder Renten, deren Leistungen immer weiter zurückgehen, wären davon betroffen.
+Die Flucht ins Bargeld ist die einzige Möglichkeit, sich der Enteignung von Bankguthaben zu entziehen, weil
+der Staat auf das Bargeld des Bürgers keinen direkten Zugriff hat und Negativzinsen nicht wie bei Bankgut haben automatisch abbuchen lassen kann. Es muss deshalb verhindert werden, dass die Bürger ins Bargeld
+flüchten können. Das funktioniert aber nur, wenn die Grenze der Bargeld-Zahlungen schnell immer weiter nach
+unten gezogen wird – bis zur gänzlichen Abschaffung.
+Noch ist offiziell nur von Begrenzung der Bargeld-Zahlungen die Rede, jedoch weiss der mündige Bürger durch
+viele politische Entscheidungen in der Vergangenheit, dass die Salamitaktik eine häufig angewendete Vor gehensweise in der Politik ist. Das Volk wird von den Polit-Darstellern zwar für dumm verkauft, aber dennoch
+regt sich in der Bevölkerung immer mehr Widerstand gegen das korrupte Polit-System, das von der Finanzmafia
+gesteuert wird, die so ganz nebenbei mit dem Geld der Steuerzahler immer reicher wird!
+
+
+-----
+
+**Eine bargeldlose Gesellschaft ist der Traum der Notenbanker und der im Hintergrund agierenden Strippen-**
+**zieher. Mit einem Mausklick kann ein Guthaben gelöscht oder der Zugang dazu eingeschränkt werden, die**
+digitale finanzielle Existenz eines Menschen ausradiert werden. Zudem erlaubt ein bargeldloses Schuldgeld system die Ausweitung der Schulden, ohne dass auf die sonstigen Folgen von Angebot und Nachfrage eingegangen werden muss.
+In Deutschland lehnen die Bürger die Bargeld-Abschaffung weitgehend ab, auch wenn Medien und Politik
+gebetsmühlenartig die so dringliche Bekämpfung der Schwarzarbeit und Kriminalität bemühen. Sie wollen uns
+das Bargeldverbot unter dem Deckmantel angeblicher Geldwäsche und zunehmender Kriminalität schmackhaft machen. Bargeld sei in unserer modernen Welt nur noch etwas für Ganoven und Kriminelle, argumentieren
+die EU-Befürworter, und ohne Bargeld würden wir sicherer leben. Welch eine perfide Lüge! Warum bekämpfen
+die Eurokraten dann nicht die Geldwäsche und die Kriminalität direkt?
+Wer glaubt, die geplante Bargeldabschaffung hilft gegen Kriminelle, Terroristen und Geldwäsche, ist naiv, und
+braucht sich nur den Missbrauch mit dem digitalen Zahlungsmittel Bit-Coin vor Augen zu führen. Seit der Einführung des weltweit verfügbaren dezentralen Zahlungssystems dieser virtuellen Währung im Jahr 2009 wird
+**dieses System in gigantischem Ausmass von Kriminellen genutzt.**
+**Nur Bargeld ist ein gesetzliches Zahlungsmittel und vom Staat als das allein gültige Mittel für den gesamten**
+**Geldverkehr definiert; es ist somit eine Forderung gegenüber der Zentralbank und damit indirekt auch gegen -**
+über dem Staat. Das Guthaben auf einem Bankkonto hingegen ist nur ein Anspruch gegen die Bank auf Auszahlung von Bargeld, und dieser Anspruch unterliegt, wie wir an dem Beispiel von Zypern, Griechenland und
+Spanien gesehen haben, einem erheblichen Risiko, da sich die Banken seit 2008 in einer ständigen Krise be finden.
+Stellen Sie sich vor, jeder von uns würde darauf bestehen, alle Geldbewegungen in bar und nicht per Kreditkarten oder Schecks abzuwickeln. Dann hätten die Banken allerdings ein grosses Problem, weil das gesamte umlaufende Geld, also einschliesslich der Beträge, die per Karten oder Schecks abgewickelt werden, in der Summe
+gar nicht in Form von Scheinen oder Münzen vorhanden ist. Denn nur etwa 10% des umlaufenden Geldes ist
+physisch in Form von Münzen und Scheinen vorhanden. 90% des umlaufenden Geldes entfallen auf Giralgeld,
+**das nur virtuell in den Bilanzen der Banken existiert.**
+Wie also kommen wir von den hohen Staatsschulden herunter? Nun, es gibt weitere Folterwerkzeuge, um an
+das Vermögen der Sparer heranzukommen. Neben dem Schuldenabbau durch Inflation resp. Schuldenverzicht
+die **WÄHRUNGSREFORM. So oder so würde auch das Vermögen vernichtet (Beispiel: Schuldenschnitt in**
+Griechenland, Zwangsabgabe auf Sparvermögen in Spanien). Der kleine Sparer verliert in jedem Fall. Die
+Wirtschaftsfachleute sind sich einig, dass das ‹Global currency Reset›, also die Währungsreform, kommen wird,
+nur über den Zeitpunkt ist man sich nicht einig. Sicher ist hier allerdings eines, dass in der heutigen Zeit der
+Globalisierung bei einer Währungsreform fast die gesamte Welt von einer Geldvernichtung betroffen wäre.
+**Deshalb wird der richtig grosse Crash alle bisherigen Krisen weit in den Schatten stellen.**
+
+**Und der Horror treibt weitere Blüten:**
+Der CHIP DER VERSKLAVUNG RFID (radio-frequency identification)
+Die Technologie dafür, einem Menschen einen Mikro-Chip einzupflanzen, der beträchtliche Daten speichern
+könnte, während eine elektronische Abtastvorrichtung die Daten ausliest, ist vorhanden. Das ist der nächste
+Schritt der sich abzeichnet – durch Banken, Handel und die Politik. Damit könnte man auch alle Bewegungen
+einzelner Personen auf der ganzen Erde von einem Satelliten aus überwachen.
+Das Kreditkartenunternehmen MasterCard testet derzeit bereits den Einsatz von Funkchips. ‹PayPass› sieht aus
+wie eine Kreditkarte, besitzt aber einen RFID-Chip, der berührungslos gelesen werden kann.
+Unvorstellbar, aber schwedische Arbeitnehmer haben sich den Chip freiwillig implantieren lassen.
+**Die Bargeldlos-Befürworter denken bereits weiter und planen, jedem Bürger vom Kind bis zum Greis einen**
+**RFID-Chip einzupflanzen, etwa in einen Finger, so dass durch Berührung eines Scanners ein Zahlvorgang aus-**
+gelöst werden kann. Der Umfang des Guthabens würde auf Veranlassung der Bank auf dem Chip gespeichert.
+Jede Zahlung würde unmittelbar bei der Bank registriert. Das würde bei jedem Einzelnen so lange funktionieren, solange dieser im System integriert bliebe.
+**Jede Bank, der Staat und womöglich auch andere staatliche Dienste hätten jedoch die Möglichkeit, einen un-**
+**liebsamen Bürger aus dem System abzuschalten. Das wäre ebenso einfach wie die Abschaltung einer Handy-**
+nummer durch den Provider. Mit einem gesperrten Handy-Chip kann man nicht mehr telefonieren. Mit einem
+gesperrten RFID-Chip könnte man nicht mehr bezahlen und würde so seiner Lebensgrundlage beraubt.
+
+
+-----
+
+Fazit: In Anbetracht dieser Horrorszenarien kann es, wie dies in Deutschland bereits angelaufen ist, niemals um
+eine Petition zum Erhalt des Bargelds gehen, sondern nur um die glasklar ausgesprochene Forderung: ‹Für
+immer Hände weg von unserem Bargeld›. Und jeder Autor resp. jede Redaktion, die sich noch einmal des Titels
+‹Das Bargeldverbot kommt›, bedient, müsste nicht nur tonnenweise mit Protestbriefen eingedeckt, sondern
+öffentlich an den Pranger gestellt werden.
+
+_Quellen: http://deutsche-wirtschafts-nachrichten.de/2014/07/17/spanien-erhebt-straf-steuer-auf-spar-guthaben/_
+17.7.2014 EU macht ernst: Spanien erhebt Zwangsabgabe auf Spar-Guthaben
+_http://www.faz.net/aktuell/beruf-chance/arbeitswelt/rfid-chip-bueroangestellte-schweden-13438675.html_
+25.2.15 Schwedische Arbeitnehmer lassen sich Chip implantieren – freiwillig
+_http://www.handelsblatt.com/politik/konjunktur/entschuldung-ueber-inflation-die-folterinstrumente-des-_
+_staates/6166354.html_
+26.2.2016 Entschuldung über Inflation – Die Folterinstrumente des Staates
+_http://www.lukas-reimann.ch/ger_details_975/Bargeldverbot_In_Riesenschritten_im_Anzug.html_
+Bargeldverbot: In Riesenschritten im Anzug
+
+### Frieden für Syrien: Putins Erklärung zum Waffenstillstand im Wortlaut
+_23.02.2016 • 17:55 Uhr_
+
+_Quelle: Sputnik_
+
+Am 27. Februar 2016 soll in Syrien ein Waffenstillstand in Kraft treten. Russlands Präsident Wladimir Putin hat
+dazu eine Erklärung abgegeben, die RT Deutsch exklusiv in deutscher Übersetzung publiziert. In der Erklärung
+nennt Putin die entscheidenden Punkte des Abkommens zum Waffenstillstand und drückt seine Hoffnung aus,
+dass sich alle Kriegsparteien an den Friedensplan halten. Bisher gilt die Abmachung zwischen Moskau und
+Washington. Die syrische Regierung signalisierte ihre Zustimmung.
+
+Freunde,
+ich habe gerade ein Telefonat mit dem Präsidenten der Vereinigten Staaten von Amerika, Barack Obama,
+geführt. Das Gespräch wurde auf Initiative Russlands geführt, aber das Interesse daran war beidseitig.
+Während unserer Unterhaltung autorisierten wir die gemeinsame Erklärung von Russland und den USA, im
+Namen der Internationalen Unterstützungsgruppe für Syrien, über die Beendigung der Kriegshandlungen in
+Syrien. Der Annahme der Erklärung ging die intensive Arbeit von russischen und US-amerikanischen Experten
+
+
+-----
+
+voraus. Dabei profitierten wir ebenfalls von den positiven Erfahrungen, die wir während der Zusammenarbeit
+bei der Zerstörung syrischer Chemie-Waffen machten.
+Unsere Verhandlungen bestanden aus mehreren Runden geschlossener Beratungen. Im Ergebnis war es uns
+möglich, ein wichtiges und konkretes Ergebnis zu erreichen. Es wurde vereinbart, dass die Beendigung der
+Kampfhandlungen in Syrien am 27. Februar 2016, um 00:00 Uhr, Damaszener Zeit in Kraft treten soll, auf
+Grundlage der Bedingungen, die Teil der russisch-amerikanischen Erklärung sind.
+
+**Die Kernpunkte dieser Bedingungen sind folgende:**
+Bis Mitternacht des 26. Februar 2016 müssen alle Kriegsparteien in Syrien ihre Bereitschaft signalisieren, die
+Kriegshandlungen zu beenden. Russische und US-amerikanische Truppen werden gemeinsam die Gebiete abgrenzen, wo diese Gruppen aktiv sind. Von seiten der Armee der Arabischen Republik Syriens, der russischen
+Armee und der US-geführten Koalition wird es keine militärische Handlungen gegen diese Gruppen geben. Im
+Gegenzug wird die syrische Opposition alle Kampfhandlungen gegen die Armee der Arabischen Republik
+Syrien und andere Gruppen, die sie unterstützen, einstellen.
+Der ‹Islamische Staat› (Anm. Islamistische Staat), Jabahat al-Nusra und andere Organisationen, die vom UNSicherheitsrat als terroristisch eingestuft werden, sind von der Beendigung der Kampfhandlungen ausgenommen.
+Schläge gegen diese werden weitergeführt.
+Es ist fundamental wichtig, dass die USA, als Co-Vorsitzende der Internationalen Unterstützungsgruppe für
+Syrien, und Russland bereit sind, effektive Massnahmen zu ergreifen, um die Einhaltung der Waffenruhe durch
+die syrische Regierung, wie auch durch die bewaffneten Oppositionsgruppen sicherzustellen und zu über wachen.
+Um dieses Ziel zu erreichen, werden wir eine direkte Kommunikation einrichten und, wenn nötig, eine Arbeitsgruppe, um relevante Informationen auszutauschen. Russland wird die notwendige Arbeit mit Damaskus und
+der legitimen syrischen Regierung leiten. Wir erwarten, dass die Vereinigten Staaten dasselbe mit ihren Ver bündeten und den Gruppen tun, die sie unterstützen.
+Ich bin sicher, dass der gemeinsam mit den USA ausgehandelte Plan ausreichend sein wird, um die Krise in
+Syrien zu beenden. Wir sehen endlich eine echte Chance, das schon lange andauernde Blutvergiessen und die
+Gewalt in Syrien zu beenden. Im Ergebnis sollte es auch leichter sein, einen humanitären Zugang zu allen
+syrischen Zivilisten zu ermöglichen, die in Not sind.
+Am wichtigsten ist es, Bedingungen für einen langfristigen politischen Prozess zu formulieren, der durch die
+Syrien-Gespräche in Genf unter Schirmherrschaft der UN geführt wird.
+Unglücklicherweise wartet die jüngste Geschichte mit vielen Beispielen für einseitige Aktionen auf, die kurz fristigen oder opportunistischen Zielen dienten, und die nicht von den Vereinten Nationen verabschiedet
+wurden. Diese Beispiele hat jeder sofort im Kopf: Somalia, Irak, Libyen, Jemen.
+Entgegen diesen Erfahrungen kann die russisch-amerikanische Vereinbarung über die Beendigung der Kampfhandlungen in Syrien und deren gemeinsame Durchsetzung in Zusammenarbeit mit allen Ländern, die Teil der
+Internationalen Unterstützungsgruppe für Syrien sind, ein Beispiel für verantwortungsvolles Handeln der
+globalen Gemeinschaft gegen die Gefahren des Terrorismus und für die Anwendung des internationalen Rechts
+und der UN-Prinzipien sein.
+Ich hoffe, dass die syrische Regierung sowie alle unsere Partner in der Region und der Welt, dieses Paket an
+Massnahmen, das von den Vertretern Russlands und der USA beschlossen wurde, unterstützen.
+Wladimir Wladimirowitsch Putin
+
+
+_Quelltext im Englischen: kremlin.ru_
+
+
+### Deutsche Initiative gegen Freihandelsabkommen
+_22. Februar 2016_
+Es formiert sich weiter Widerstand gegen die geplanten Freihandelsabkommen zwischen der EU auf der einen
+und der USA und Kanada auf der anderen Seite. Insgesamt 40000 Deutsche reichten nun eine Verfassungs beschwerde gegen CETA, das kanadisch-europäische Freihandelsabkommen ein und erhoffen sich dadurch
+auch eine Signalwirkung auf die Verhandlungen rund um das amerikanisch-europäische Freihandelsab kommen TTIP.
+
+
+-----
+
+_Beitragsbild: Wikimedia Commons, CC BY 2.0, foodwatch, STOP TTIP CETA 10.10.2015 Berlin_
+
+«Wir haben knapp über 40000 Vollmachten für eine Klage vor dem Bundesverfassungsgericht gesammelt», sagte
+die Initiatorin Marianne Grimmenstein-Balas der Nachrichtenagentur Reuters. Demnach hat es noch nie eine
+Verfassungsklage gegeben, der sich mehr als 40000 Menschen angeschlossen haben. Das bereits ausgehandelte,
+aber noch nicht ratifizierte Abkommen zwischen Kanada und der EU entspricht in wesentlichen Punkten dem
+geplanten TTIP-Abkommen.
+Als vorrangige Begründung der Kläger dient vor allem die Befürchtung, durch das Abkommen würden Standards etwa im Verbraucherschutz abgebaut. Auch eine Aushöhlung der Rechtsprechung durch die geplante
+Etablierung von internationalen Schiedsgerichten soll Inhalt der Klageschrift sein. Bis zum 12. März sollen
+weitere Vollmachten durch die Initiatoren eingesammelt werden. Als juristischer Klagevertreter soll der Bielefelder Jusprofessor Andreas Fisahn fungieren. Fisahn steht der politischen Linken nahe und gilt als obrigkeitskritisch. Im Rahmen seiner Lehrtätigkeit setzt er sich auch immer wieder mit der Rolle der Rechtsprechung in
+kapitalistischen Staaten auseinander. «Es hilft sehr, dass so viele Bürger die Klage unterstützen, dann werden
+die Richter sie mit grosser Wahrscheinlichkeit zulassen», äusserte Fisahn gegenüber den Medien seine Hoffnung
+auf ein Musterverfahren für kommende Auseinandersetzungen über die Freihandelsabkommen. Laut Grimmenstein-Balas soll die Klage gegen CETA noch im heurigen Jahr eingebracht werden.
+
+_Quelle: http://www.info-direkt.eu/deutsche-gegen-freihandelsabkommen/_
+
+### Notiz aus Aleppo: die terroristischen Belagerer der Stadt werden jetzt überwältigt
+_Peter Oborne_
+Seit einer Ewigkeit hatte ich versucht, nach Aleppo zu kommen, war dazu aber nicht imstande, weil die Aktivität
+der Rebellen die Stadt von der Aussenwelt abgeschnitten hatte. Die militärischen Erfolge der syrischen Regierung Anfang Januar bedeuteten, dass es wenigstens eine sichere Strassenverbindung gab. Ich mietete einen
+Fahrer, bekam einen Aufpasser der Regierung verpasst (sehr praktisch bei Kontrollstellen) und buchte ein
+Hotelzimmer. Auf der Fahrt von Damaskus in den Norden nahmen wir einen 22 Jahre alten syrischen Armeeleutnant namens Ali mit, der nach einer Woche Familienurlaub zu seiner Armeeeinheit zurückkehrte.
+Wir fuhren durch Homs – Meile für Meile von äusserster Zerstörung – und dann Richtung Osten auf der Strasse
+nach Raqqa. Ali sagte mir, dass er dem Militärflughafen Kuweires im Osten Aleppos zugeteilt war, der seit drei
+
+
+-----
+
+Jahren von Kräften der Al Nusra und dem Islamischen Staats (Anm. Islamistische Staat) belagert wird. Er sprach
+von täglichen Feuergefechten gegen ISIS-Kämpfer. Für längere Zeiträume war seine Einheit total abgeschnitten.
+Als Ali in die Brust geschossen wurde, stand eine Rettung aus der Luft nicht zur Debatte. Er genas in einem Feldspital. Letztendlich wurde die Belagerung aufgehoben und Ali konnte nach Hause zurückkehren und seine Eltern zum ersten Mal nach über zwei Jahren sehen. «Das Geheimnis von Kuweires war die loyale Haltung der
+Soldaten. Wir hatten keine Panzer. Ich verlor 82 Kameraden,» sagte Ali. Jetzt säubert seine Einheit Stellungen
+des Islamischen Staates (Anm. Islamistischen Staates) rund um Al-Bab im Osten von Aleppo.
+Als wir Aleppo erreichten, gab es dort seit 112 Tagen keinen elektrischen Strom und seit fast zwei Wochen kein
+Wasser. Improvisierte Granaten – Benzinkanister, die explosiv genug sind, um Gebäude zu zerstören – können
+überall herunterkommen. Siebzehn der gigantischen Studentenwohnheime bei der Universität stehen bereit für
+Familien, die aus Gebieten vertrieben wurden, die von Rebellen besetzt sind. Alle diese Familien haben furchtbare Geschichten zu erzählen über Einschüchterung und Mord von Seiten fanatischer Al Nusra, ISIS oder von
+Seiten der Free Syrian Army. Diese Flüchtlinge sind überall …
+Immer wieder wurde ich gefragt: Warum unterstützt Britannien die Terroristen? Die Medien des Westens betonen zu Recht die Untaten Assads. Aber die Menschen von Aleppo, mit denen ich sprach, betonten regelmässig,
+dass unter Assads Regime Frauen allein auf der Strasse gehen und eine berufliche Laufbahn machen können,
+dass in den Schulen nach einem umfassenden liberalen Lehrplan unterrichtet wird, dass Christen in ihren
+Kirchen und Moslems in ihren Moscheen beten können. Diese Einwohner von Aleppo haben unter der Be lagerung von Gruppierungen gelebt, die versessen darauf waren, ihnen eine Version des wahabitischen Islams
+aufzuzwingen.
+_Quelle: http://antikrieg.com/aktuell/2016_02_21_notiz.htm_
+
+### Gibt es Psychopathen in der Politik? Ein US-Präsident muss auch Psychopath sein!
+_Montag, 3. März 2014_
+Alle Regierungen haben dasselbe wiederkehrende Problem:
+Macht zieht pathologische Persönlichkeiten an. Es ist nicht so, dass Macht
+die Menschen verdirbt, sondern nur so, dass sie für bestimmte Persönlichkeitstypen magnetisch ist.
+Zitat nach: Frank Herbert
+
+**Einzelne psychopathische Eigenschaften können einem Präsidenten in den USA (auch sonstwo) durchaus zum**
+**Erfolg verhelfen, melden Forscher.**
+Vor allem ein dominantes Verhalten in Kombination mit Furchtlosigkeit lässt den Spitzenrepräsentanten im
+öffentlichen Ansehen steigen, das zeigte eine Auswertung der Persönlichkeit von 42 US-Präsidenten.
+
+_US-Präsidenten; psychopathische Eigenschaften können helfen_
+
+**Mehr als 100 Experten haben Steven Rubenzer und Thomas Faschingbauer, emeritierter Psychologe an der**
+Duke University, in ihre Studie eingebunden, die Präsidenten von Theodore Roosevelt bis George W. Bush
+anhand standardisierter Tests hinsichtlich Persönlichkeit, Intelligenz und Verhalten analysierten.
+
+
+-----
+
+**Die ‹Top Ten› der Furchtlosigkeit**
+Dabei zeigte sich, dass manche Persönlichkeitszüge, die für psychopathisches Verhalten charakteristisch sind,
+auch an der Spitze des Staates gefordert sind: «Furchtloses Dominanzverhalten kann mit Kriminalität und
+Gewalt einhergehen, aber auch mit ‹Leadership› in einer Krise», beschreibt Scott Lilienfeld (http://www.psychology.emory.edu/clinical/lilienfeld/index.html), Co-Autor der Studie und Psychologe an der Emory University, die Bandbreite. Grundsätzlich scheint Dominanz in Kombination mit geringem Einfühlungsvermögen,
+mehr Überzeugungsfähigkeit, besserem Krisenmanagement und auch besseren Beziehungen zum Kongress einherzugehen.
+**Und hier die ‹Top Ten›, die die Forscher hinsichtlich der Furchtlosigkeit der US-Präsidenten erstellt haben:**
+1. Theodore Roosevelt, 2. John F. Kennedy, 3. Franklin D. Roosevelt, 4. Ronald Reagan, 5. Rutherford Hayes,
+6. Zachary Taylor, 7. Bill Clinton, 8. Martin Van Buren, 9. Andrew Jackson und 10. George W. Bush. Das Verhalten
+Barack Obamas floss noch nicht in die Analyse ein.
+
+**Seine Rede trotz Schusswunde fortsetzend:**
+Am furchtlosesten zeigte sich laut dieser Studie Theodore Roosevelt, Präsident von 1901–1909. Bei einem
+Attentat am 14. Oktober 1912 wurde ihm in die Brust geschossen, dennoch hielt er – mit blutender Wunde –
+noch seine geplante, 60-minütige Rede: «Freunde, ich weiss nicht, ob ihr schon gehört habt, dass ich gerade
+angeschossen wurde. Aber es braucht mehr, um einen Bullen wie mich zur Strecke zu bringen.» Das Projektil
+wurde nie aus seiner Brust entfernt.
+**Dabei zeigte sich, dass manche Persönlichkeitszüge, die für psychopathisches Verhalten charakteristisch sind,**
+**auch an der Spitze des Staates gefordert sind: «Furchtloses Dominanzverhalten kann mit Kriminalität und Ge-**
+walt einhergehen, aber auch mit ‹Leadership› in einer Krise», beschreibt Scott Lilienfeld, Co-Autor der Studie
+und Psychologe an der Emory University, die Bandbreite. Und wie sieht es mit den US-Präsidenten der letzen
+**Jahre aus?**
+**Grundsätzlich scheint Dominanz in Kombination mit geringem Einfühlungsvermögen, mehr Überzeugungs-**
+**fähigkeit, besserem Krisenmanagement und auch besseren Beziehungen zum Kongress einherzugehen.**
+
+**Quelle: Studie – ‹Fearless dominance and the U.S. presidency: Implications of psychopathic personality traits for successful and**
+_unsuccessful political leadership› ist im ‹Journal of Personality and Social Psychologie› erschienen (doi:10.1037/a0029392)._
+**LINK: http://psycnet.apa.org/journals/psp/103/3/489/**
+
+**HINWEIS: EINE STUDIE DER DUKE UNIVERSITY (USA)**
+**AUTOREN: Steven Rubenzer und Thomas Faschingbauer, beide emeritierte Psychologen.**
+
+**Anm.: Nur eine Untersuchung kann uns die Wahrheit zeigen**
+Eine Gehirn-Untersuchung würde sofort Auskunft darüber geben ob jemand psychopatische Tendenzen hat, das sieht man
+im Gehirn sofort, dabei werden die Defizite in der Gehirnaktivität, bzw. die krankhaften Gehirnveränderungen sichtbar.
+Am sichersten wäre eine Untersuchung bevor eine Person sich für ein Präsidentenamt (am besten für ein politisches Amt)
+nominieren lässt.
+Nur so könnte die Welt (die Bevölkerung jedes Landes) von gewissenlosen, emotionslosen und auch teilweise kriminellen,
+gefährlichen Personen geschützt werden. Das gleiche gilt sicher auch für hohe Bank- und Konzernmanager.
+
+_Quelle: http://eggetsberger-info.blogspot.de/2012/09/gibt-es-psychopathen-in-der-politik-ein.htm_
+
+### Verkehrter Flüchtlingsbegriff?
+_27. Februar 2016_
+In einem Text in der ‹Jüdischen Rundschau› stellt Thomas Spahn als freier Journalist den aus seiner Sicht
+falschen Flüchtlingsbegriff richtig. Bemerkenswert an diesem Text ist vor allem, dass Spahn als Vertreter der
+Mainstream-Medien – er arbeitete unter anderem für den Westdeutschen Rundfunk – mit den folgenden Aussagen unter Seinesgleichen nicht mehr besonders gemocht werden dürfte.
+Es würde nämlich nach Spahns Meinung derzeit in den Medien so dargestellt, dass alle Einwanderer, die nach
+Deutschland kämen, als Flüchtlinge gelten. Dazu stellt Spahn fest: «Flüchtlinge – das waren für mich als Vertreter
+der Nachkriegsgeneration immer Menschen, die unter unendlichen Opfern ihre Heimat verlassen mussten, weil
+sie dort an Leib und Leben bedroht waren. Flüchtlinge, das waren jene Trecks ostpreussischer Frauen, Kinder
+
+
+-----
+
+und Greise, die im tiefsten Winter über die zugefrorenen Haffs wanderten, dort von russischen Jagdfliegern unter Feuer genommen wurden, im trügerischen Eis versanken – und nachdem sie es vielleicht mit unendlich viel
+Glück bis nach Gotenhafen/Gdingen geschafft hatten, mit der ‹Wilhelm Gustloff› in der eisigen Ostsee versenkt
+wurden.»
+
+_Beitragsbild:https://www.flickr.com/photos/linksfraktion/10289500065/in/photostream, CC BY 2.0; Fraktion DIE LINKE. im_
+_Bundestag_
+
+Stattdessen habe die Politik Merkels dazu geführt, dass der Begriff ‹Flüchtling› zum Unwort geworden sei.
+«Flüchtling, das wurde von jenen, die jeden Andersdenkenden bösartig der ‹Pauschalisierung› zeihen, zum
+Pauschalbegriff für jene überwiegend aus jungen Männern bestehenden Massen, die erfolgreich die ‹Festung
+Europa› stürmten, um von den Wohltaten unserer Sozialsysteme Nutzen zu ziehen», konstatiert Spahn weiter.
+Nur um wenig später endgültig die Schuldigen für den verdrehten Flüchtlingsbegriff gefunden zu haben: «Die
+rotgrüne Pippi-Langstrumpf-Generation, die Deutschlands Politik und Medien dominiert, macht in beständigem, pauschalem Werfen von Nebelkerzen jeden, der legal oder illegal in Deutschland einzuwandern suchte,
+zum ‹Flüchtling› und nahm so diesem Begriff seinen Inhalt.»
+Am Ende seines gespickten Kommentares fasst Spahn dann zusammen: «Multikulti, liebe linksgrüne Traumtänzer, war nicht einmal Gestern. Es war immer nur ein Traum. Denn wer in Deutschland lebt, um unseren
+Wohlstand zu geniessen, der muss begreifen, dass dieser Wohlstand massgeblich ein Resultat unserer europäischen Kultur ist. Wer diese Kultur ersetzen möchte durch eine andere, der wird dann auch in Zuständen leben
+müssen, wie sie in diesen anderen Kulturen herrschen. Ich will das nicht.» Wie lange es wohl dauert, bis auch
+weiteren Mainstream-Journalisten ein Licht aufgeht?
+
+_Quelle: http://www.info-direkt.eu/verkehrter-fluechtlingsbegriff/_
+
+
+-----
+
+_Kommentare 16:40 26.02.2016(aktualisiert 17:02 26.02.2016) Uli Gellermann_
+
+#### Fast alle europäischen Länder waren dabei: Als die USA die Koalition der Hörigen zusammentrieb und im Dezember 2001 in Afghanistan nach Osama bin Laden suchte:
+Albanien, Belgien, Bosnien und Herzegowina, Bulgarien, Dänemark, Deutschland, Estland, Finnland, Frankreich, Griechenland, Island, Irland, Italien, Kroatien, Lettland, Litauen, Luxemburg (mit immerhin einem
+Soldaten), Montenegro, Niederlande, Norwegen, Österreich, Polen, Portugal, Rumänien, Schweden, Slowakei,
+Slowenien, Spanien, Mazedonien, Tschechien, Türkei, Ukraine, Ungarn und natürlich das Vereinigte König reich. Sie hatten ein auf sechs Monate begrenztes Mandat und waren zu Beginn 129895 Mann. Der Gleich berechtigung wegen werden auch ein paar Frauen dabei gewesen sein. Immer noch sind europäische Truppen
+in dem armen geschundenen Land, und immer noch behaupten sie dem Land zu helfen.
+Hilfe suchen jetzt jene Afghanen, die sich, im Vertrauen auf den Westen, oder weil ihnen nichts anderes übrig
+blieb, mit den Besatzungstruppen eingelassen haben. Sie suchen durch das überfüllte und verarmte Griechenland einen Weg in die reicheren Länder der EU. Und treffen auf eine bewaffnete, verschlossene Grenze in
+Mazedonien. Das Land, ein Zerschlagungsprodukt Jugoslawiens, ist selbst ein Fluchtstaat: An die 300000
+Mazedonier leben im Ausland. Auch deshalb will keiner der Flüchtlinge bleiben.
+Mazedonien wäre nur eine Durchgangsstation, wenn die Länder der EU nicht die Schotten dicht machen
+würden. Auch und gerade die Bundesrepublik, von der einst behauptet wurde, dass ihre Freiheit am Hindukusch
+verteidigt werde, hat die ersten 120 Afghanen ‹nach Hause› geschickt. Das tapfere Österreich, damals mit
+immerhin drei Soldaten an der Seite der USA in Afghanistan, hat faktisch die Grenze geschlossen. Jetzt bieten
+die Österreicher Soldaten für Grenzkontrollen in Mazedonien an. Und weil Mazedonien seit Dezember 2005
+den Status eines Beitrittskandidaten der EU hat, weiss das Land, was sich gehört.
+Mit überwältigender Mehrheit stimmten am 22. Dezember 2001 fast alle Bundestags-Abgeordneten für den
+Einsatz deutscher Soldaten in Afghanistan. SPD, GRÜNE, CDU, CSU, FDP: Alle schlossen sich der schon damals
+als Lüge erkennbaren, scheinheiligen Behauptung des Kanzlers Schröder an, nach der der Frieden in Afghanistan
+‹nur durch Krieg näher gerückt› sei. Einzig die PDS, die heutige Linkspartei, stimmte gegen den Krieg.
+Die Kinder dieses Krieges betteln jetzt an den europäischen Grenzen um Schutz. Auch in der Folgezeit war die
+Front der Kriegs-Freunde ziemlich geschlossen. Selbst wenn die GRÜNEN immer wieder versuchten, den Eindruck einer Anti-Kriegspartei zu erwecken. Aber bis hin zum Einsatz deutscher Tornados, auch vom grünen
+Ersatzheiligen Winfried Kretschmann gebilligt, stimmten GRÜNE für einen Krieg, der den Afghanen bis heute
+Tod und Not beschert.
+Auch die Gründer der AfD, die sich heute als Oppositionspartei tarnt, sassen damals brav in der CDU und der
+FDP ohne ein einziges Mal ihre Stimme gegen den dreckigen Krieg in Afghanistan zu erheben. Und heute steht
+diese Partei an der Spitze einer braunen Bewegung, die Flüchtlinge mit Waffengewalt an einem Leben ohne
+Bomben hindern will. Wahrscheinlich deshalb schwafelt sie in ihrem Programm von der NATO als ‹Klammer
+
+
+-----
+
+einer transatlantischen Sicherheitsarchitektur› und beschwört ‹das Bündnis mit den USA› als ‹entscheidenden
+Anker›.
+Die NATO ist der Anker, den sich die EU und ihre Mitgliedsstaaten um den Hals gebunden haben, um schneller
+und gründlicher politischen Selbstmord zu begehen. Es waren Truppen der NATO-Länder, die, ob in Afghanistan oder dem Irak, dem Willen der USA zur Zerstörung gefolgt sind.
+Es waren europäische NATO-Länder, die gemeinsam mit den USA den Menschen in Libyen den Tod gebracht
+haben. Und es sind wieder NATO-Länder, die sich an dem von den USA inszenierten Regime-Change-Krieg in
+Syrien beteiligen. Schamlos verweigert sich die EU der Verantwortung für die Kriegsfolgen. Scheinheilig
+waschen sie ihre Hände in Unschuld. Aber an den Grenzen stehen die Opfer der EU-NATO-Kriegspolitik und
+warten auf die Einlösung der Freiheitsversprechen und das Versprechen eines grenzenlosen Europa. «Gegebenenfalls muss … der Schutz für den Schengen-Raum an einer anderen Grenze durchgeführt werden», verkündet
+der deutsche Innenminister und verbirgt hinter seinen Bürokratismen, dass er gern Griechenland zum ständigen
+Flüchtlings-Lager bestimmen würde. Zu Beginn jedenfalls. Dass danach noch das ehemalige Jugoslawien als
+Stau-Raum und Auffangbecken der Kriegs-Flüchtlinge zur Verfügung stünde, wird den Vollstrecker von Merkels
+Willen beruhigen.
+Nicht mehr lange: Die Todesangst, auch von der EU als treuer NATO- und US-Helfer ausgelöst, treibt die nächste
+Million Flüchtlinge vor sich her.
+_Quelle: rationalgalerie.de bzw. http://de.sputniknews.com/kommentare/20160226/308116339/eu-schamlos-scheinheilig.html_
+
+### Das 1x1 der Ponerologie: Lobaczewski und die Wurzeln der politischen Ponerologie
+_Harrison Koehli und Sott.net Redakteure_
+_Sott.net; Sa, 18 Jun 2011 04:32 UTC_
+
+_Ignota nulla curatio morbi – Versuche nicht zu heilen, was du nicht verstehst._
+_Verstehen. Darum geht es in diesem Buch. Verstehen, was das Böse ist und dass es wirklich existiert. Dass es Menschen_
+_unter uns gibt, die sich nicht um das Leid eines anderen Menschen kümmern, und es sogar aktiv verursachen. Dieses_
+_Buch hält auch für Sie Antworten bereit, um zu verstehen, warum sich die Gesellschaft in unserer heutigen miserablen_
+_Lage befindet: Geprägt von Korruption, Egoismus, Terrorismus, Manipulation und Ignoranz._
+
+Mit nur sehr wenigen Ausnahmen in unserer Menschheitsgeschichte sind Diskussionen über die moralische
+Philosophie – das Studium des richtigen Benehmens – immer daran gescheitert, den Ursprung, das Wesen und
+den Verlauf des Bösen ohne ein Herbeiholen von übernatürlichen Glaubensvorstellungen zu erklären. Das Böse
+wurde oft als etwas angesehen, das man einfach so ertragen müsse, anstatt es als etwas zu sehen, das durch die
+Vernunft verstanden und eingedämmt werden kann. Und es ist tatsächlich so – wie das Buch Politische Ponerologie zeigt –, dass die Wurzel des Bösen jenseits der Grenzen der herkömmlichen Weltsicht dieser früheren
+Fragestellungen und literarischen Beschreibungen liegt. Das Böse gibt nur im Lichte einer wahrlich modernen
+und wissenschaftlichen Herangehensweise seine Geheimnisse preis. Diese Herangehensweise wird Ponerologie
+genannt – ein Studium des Bösen –, abgeleitet von dem griechischen Wort poneros, ‹böses›.
+Direkt nach dem Ende des 2. Weltkrieges und während der jahrzehntelangen Auferlegung der sozialistischen
+Diktatur in den Ländern Westeuropas begann eine Gruppe von Wissenschaftlern – hauptsächlich aus Polen, der
+Tschechoslowakei und Ungarn – im Geheimen eine wissenschaftliche Studie über das Wesen des Totalitarismus
+durchzuführen. Weil ihre Kontakte in den Westen durch die staatlichen Sicherheitsdienste blockiert wurden,
+blieb ihre Arbeit unerkannt, obwohl zur gleichen Zeit amerikanische Wissenschaftler wie Hervey Cleckley und
+Gustave Gilbert mit denselben Fragestellungen rangen. [1] Der letzte Überlebende der Gruppe dieser Wissenschaftler, ein polnischer klinischer Psychologe und Experte in Psychopathie, Dr. Andrzej Łobaczewski (1921–
+2007), gab dieser neuen Wissenschaft – einer Synthese aus psychologischen, psychiatrischen, soziologischen und
+geschichtlichen Untersuchungen – schlussendlich einen Namen, Ponerologie, das ist ein Begriff, den er von
+Priestern des Benediktinerklosters in der geschichtsträchtigen polnischen Ortschaft Tyniec borgte. Abgeleitet
+von dem Wort poneros, das im Griechischen des Alten Testaments zu finden ist, bedeutet es ein angeborenes
+Böses mit korrumpierenden Eigenschaften und beschreibt passend Psychopathie und ihre Auswirkungen auf
+die Gesellschaft. Łobaczewski beschreibt diese neue Wissenschaft in Politische Ponerologie folgendermassen:
+Meiner Meinung nach ist Ponerologie ein neuer Wissenschaftszweig, der aus historischen Gründen wie auch
+**aus den jüngsten Erkenntnissen aus der Medizin und der Psychologie entsteht. Im Lichte einer objektiv**
+
+
+-----
+
+naturalistischen Sprache studiert sie die kausalen Komponenten und die Vorgänge der Entstehung des Bösen,
+unabhängig seines sozialen Bezugs. Wir unternehmen, bewaffnet mit entsprechendem Wissen, eine Analyse
+dieser ponerogenen Prozesse, besonders im Bereich der Psychopathologie, die für menschliches Unrecht verantwortlich sind. Wie der geneigte Leser entdecken wird, werden wir in dieser Arbeit immer wieder mit den
+Auswirkungen der pathologischen Faktoren konfrontiert, deren Träger Menschen sind, die bis zu einem ge **wissen Ausmass durch verschiedene psychologische Abweichungen oder Defekte charakterisiert werden.**
+
+[…]
+Die Ponerogenese makrosozialer Phänomene – die Entstehung des Bösen auf breiter gesellschaftlicher Basis –,
+deren Untersuchung das Hauptziel dieses Buches ist, scheint denselben Naturgesetzen unterworfen zu sein, wie
+sie innerhalb menschlicher Fragestellungen auf individueller Basis oder in Kleingruppen wirken. Die Rolle von
+Personen mit verschiedenen psychologischen Mängeln oder Anomalien in geringem Ausmass ist offenbar ein
+konstantes Merkmal solcher Phänomene. Im makrosozialen Phänomen, das wir als Pathokratie bezeichnen
+werden, wirkt eine bestimmte angeborene Anomalie – die wir als essenzielle Psychopathie isoliert haben – als
+**Katalysator und ist ursächlich wesentlich für die Entstehung und das Überleben des Bösen auf breiter Basis.**
+Das Meiste, das wir über dieses Forschungsgebiet wissen, kommt von erstaunlich wenigen Quellen. Łobaczews kis
+einzige Kontaktperson war Stefan Szuman (1889–1972), Professor im Ruhestand, der die anonymen wissenschaftlichen Ergebnisse der Gruppe vernetzte. Wenn man bei dieser verbotenen Forschung ertappt worden wäre,
+wären die Konsequenzen schwerwiegend gewesen; die Wissenschaftler standen Arrest, Folter und sogar Todesstrafen gegenüber. Daher war eine strikte Verschwörung in ihrer Gruppe unbedingt notwendig. Sie schützten
+sich selbst und ihre Arbeit, indem sie sie anonym verrichteten. Auf diese Weise wurde sichergestellt, dass, wenn
+sie gefangengenommen und gefoltert würden, sie nicht die Namen und Aufenthaltsorte der anderen verraten
+konnten. Das hätte eine echte Gefahr für ihre persönliche Sicherheit und die Fertigstellung ihrer Arbeit bedeutet.
+Łobaczewski gab nur die Namen von zwei polnischen Professoren der ihm vorangegangenen Generation bekannt,
+die sich in den frühen Stadien an dieser Arbeit beteiligten – Stefan Błachowski (1889–1962) und Kazimierz
+Da˛browski (1902–1980). [2] Błachowski starb unter suspekten Umständen und Łobaczewski vermutete, dass
+er von der Staatspolizei wegen seiner Forschungsbeteiligung ermordet wurde. Da˛browski emigrierte und – nicht
+Willens, seine polnische Staatsbürgerschaft aufzugeben, nur um in den Vereinigten Staaten arbeiten zu können –
+nahm eine Stelle an der University of Alberta in Kanada an, wo er eine doppelte Staatsbürgerschaft haben konnte.
+Ein sorgfältiges Lesen von Da˛browskis veröffentlichten Arbeiten in Englischer Sprache macht die theoretischen
+Wurzeln dessen sichtbar, was später Ponerologie werden würde. [3]
+Wie Łobaczewski sah auch Da˛browski die Psychopathie als «grösstes Hindernis in der Entwicklung der Persönlichkeit und Gesellschaftsgruppen» [4]. Er warnte:
+«Die allgemeine Unfähigkeit, die psychologische Art solcher Individuen [d.h., Psychopathen] zu erkennen, verursacht immenses Leiden, Massenterror, gewalttätige Unterdrückung, Völkermord und den Verfall der Zivilisation. [...] So lange die suggestive [d.h. hypnotische, charmante, redekünstlerische] Kraft der Psychopathen
+nicht mit Fakten und praktischen Konsequenzen ihrer Doktrin konfrontiert wird, können ganze Gesellschaftsgruppen ihren Hetzparolen unterliegen.» [5]
+Bei der wahrscheinlich ersten Erwähnung von ‹politischer Psychopathie› merkte er an, dass die Extreme von
+Ambition, Machtsüchtigkeit und finanziellem Gewinn «besonders in der kriminellen oder politischen Psychopathie vorhanden sind.» [6]
+Es werden Methoden entwickelt, wie man Meinungsverschiedenheiten zwischen Gruppen schüren kann (so wie
+unter der Maxime divide et impera [Teile und Herrsche]). Hochverrat und Täuschung in der Politik werden oft
+gerechtfertigt und als positive Werte dargestellt. Es werden auch Prinzipien entwickelt, wie man den Vorteil aus
+bestimmten Situationen zieht. Politischer Mord, Hinrichtung von Gegnern, Konzentrationslager und Völkermord sind das Produkt von politischen Systemen auf der Ebene der primären Integration [der Psychopathie].
+
+[7]
+In einer Textstelle, die ihrer Zeit Jahrzehnte voraus war, beobachtete er, dass man in Gefängnissen ‹weniger er**folgreiche› Psychopathen antreffen könne, während die ‹erfolgreichen› in Machtpositionen sind (d.h. politische**
+und militärische Staatschefs, Gewerkschaftspräsidenten, etc.). Er zitierte zwei Beispiele von Anführern, die
+durch diese ‹affektive Retardation› charakterisiert waren, nämlich Hitler und Stalin, auf die er in seinen Büchern
+
+[8] wiederholt verwies, und die sich beide durch «eine fehlende Empathie, emotionale Kälte, grenzenlose Ruch**losigkeit und Machthunger» auszeichneten. [9]**
+Da˛browski und Łobaczewski erfuhren diesen Horror am eigenen Leib. Im September 1939 fielen die Nazis unter
+falscher Flagge in Polen ein, ein Ereignis, das als der Überfall auf den Sender Gleiwitz bekannt wurde. Dies war
+Teil eines grösseren SS-Projekts, ‹Operation Himmler›, dessen Zweck es war, die Illusion eines Polnischen
+
+
+-----
+
+Aggressors aufzubauen, aufgrund dessen man ‹Vergeltung› üben konnte. Mit anderen Worten: Die Deutschen
+brauchten eine plausible Ausrede bzw. Schlagzeilen, um das Land überfallen zu können. Deutsche, die als Polen
+**verkleidet waren, überfielen den Radiosender, sendeten Anti-Deutschland Propaganda, ermordeten den**
+**deutsch-schlesischen Sympathisanten der Polen, Franciszek Honiok, und brachten seinen Körper auf den**
+**Schauplatz. [10] Die Nazis nutzten diese Operationen, um die Invasion zu rechtfertigen, worauf sie ein Regime**
+des Terrors aufbauten, das etwa sechs Millionen Polen den Tod brachte. Als Teil des Gesamtziels, Polens kom**plettes kulturelles Leben zu zerstören, wurden Schulen geschlossen, Professoren verhaftet, in Konzentrations-**
+**lager geschickt, und manche sofort ermordet. Psychiatrie wurde verboten. Laut Jason Aronson der Harvard**
+**Medical School, ermordeten die Nazis den Grossteil der praktizierenden Psychiater. Durch die Invasion über-**
+**lebten nur etwa 38 von 400. [11] Während dieser tumultvollen Zeit arbeitete Łobaczewski als Soldat für die**
+Heimatarmee, eine verdeckte polnische Widerstandsorganisation; sein Verlangen, Psychologie zu studieren,
+wuchs dort.
+Die Schule, die er später besuchte, die Jagiellonen-Universität, litt während der Kriegsjahre enorm unter den
+Bemühungen, die intellektuelle Elite der Stadt Krakau auszuradieren. Am 6. November 1939 wurden 144
+Professoren und Angestellte verhaftet und in Konzentrationslager verfrachtet. Ihnen wurde die Nachricht übermittelt, dass sie sich eine Zwangsvorlesung über die deutschen Pläne zur polnischen Bildung anhören mussten.
+Bei ihrer Ankunft wurden sie im Hörsaal verhaftet, zusammen mit allen anderen Menschen im Gebäude. Dank
+dem öffentlichen Protest wurde die Mehrheit nach ein paar Monaten wieder freigelassen, und obwohl die Universität von den Nazis ausgeräumt und vandalisiert wurde, schafften es die Überlebenden dieser Operation,
+1942 eine Untergrund-Universität zu bilden. [12] Regelmässige Vorlesungen begannen wieder im Jahr 1945 und
+wahrscheinlich begann Łobaczewski zu diesem Zeitpunkt seine Studien unter dem Professor für Psychologie,
+Edward Brzezicki [13, 14]. Zu jener Zeit traf Łobaczewski wahrscheinlich auch Stefan Szuman, einen renommierten Psychologen, der an der Jagiellonen-Universität unterrichtete. Szuman agierte später als Vermittlungsstelle für geheimgehaltene Daten und Forschung.
+Während die Jagiellonen-Universität und andere polnische Universitäten drei Jahre lang die Freiheit genossen,
+endete diese Freiheit im Jahr 1948 sehr schnell, als Polen Satelliten-Staat der Sowjetunion wurde. Die Polnische
+Vereinigte Arbeiterpartei übernahm die volle Kontrolle des Universitätslebens. Mit der Einrichtung der demokratischen Republik Polens wurde Polen unter sowjetischen Einflussbereich gestellt; medizinische und psychiatrische Dienstleistungen wurden sozialisiert, und klinische Psychiatrie wurde auf strikte Pawlowsche Konzepte
+reduziert. Somit machte die ‹Stalinisierung› der polnischen Bildung dort weiter, wo Hitler aufgehört hatte.
+Łobaczewskis Klasse war die letzte, die von prä-kommunistischen Professoren unterrichtet wurde, die von den
+Kräften an der Macht als ‹ideologisch unpassend› beurteilt worden waren. Es war erst in ihrem letzten Unterrichtsjahr, als sie die unmenschliche ‹neue Realität› voll miterleben mussten, was Łobaczewskis Forschungen
+für den Rest seines Lebens prägte.
+Während der drei Jahrzehnte, die er unter der kommunistischen Diktatur verbringen musste, arbeitete Łobaczewski in allgemeinen und psychiatrischen Krankenhäusern. Die Diktatur bot intensivierte Bedingungen und
+**Möglichkeiten, seine Fähigkeiten der klinischen Diagnose zu verbessern – essenzielle Fähigkeiten, um mit**
+**dieser neuen sozialen Realität zurechtzukommen. So konnte er die Psychotherapie auch jenen zukommen**
+lassen, die am meisten unter der strengen Herrschaft litten. Bereits im Anfangsstadium, als andere Beteiligte an
+dieser geheimen Forschung sein Interesse für Psychopathologie und die Gesellschaftspsychologie des Totali tarismus erkannten, erfuhr Łobaczewski, dass er nicht der erste war, der solche Forschungen durchführte. Er
+wurde gebeten, ihrer Gruppe beizutreten. Zu Beginn trug er nur einen kleinen Teil der Forschungsdaten bei,
+und konzentrierte sich hauptsächlich auf die Psychopathie. Der Name der Person, die für die Zusammenstellung
+der Endanalyse verantwortlich war, wurde geheimgehalten – die Arbeit kam niemals ans Tageslicht. **Alle**
+**Kontakte Łobaczewskis verstummten in der poststalinistischen Welle der Unterdrückung in den 1960ern und**
+er hatte nur noch jene Daten zur Verfügung, die bereits in seinen Besitz gekommen waren. Der ganze Rest war
+für immer verloren, ob verbrannt oder in geheimen Polizeiarchiven weggesperrt.
+**Trotz dieser hoffnungslosen Situation entschied er sich, die Arbeit selbst fertigzustellen. Aber trotz seiner**
+**Bemühungen hinsichtlich der Geheimhaltung vermuteten die politischen Autoritäten, dass er ‹gefährliches›**
+**Wissen habe, das ihre Macht gefährdete. Ein österreichischer ‹Wissenschaftler›, der mit Łobaczewski Kontakt**
+aufnahm, stellte sich nachträglich als Agent der Geheimpolizei heraus, und Łobaczewski wurde während dieser
+**Zeitperiode drei Mal verhaftet und gefoltert. Während er 1968 am ersten Entwurf arbeitete, warnten ihn die**
+Bürger des Dorfes, in dem er lebte, vor einer unmittelbar bevorstehenden Polizei-Razzia. Łobaczewski hatte gerade noch genug Zeit, seine Arbeit im Ofen seiner Zentralheizung zu verbrennen, bevor die Polizei eintraf. [15]
+Einige Jahre später, im Jahr 1977, wurde Łobaczewski vom römischen Berichterstatter von Radio Free Europe,
+
+
+-----
+
+dem Łobaczewski von seiner Arbeit erzählt hatte, bei den polnischen Autoritäten angezeigt. [16] Ihm wurde die
+Entscheidung zwischen einer vierten Verhaftung und einem ‹freiwilligen› Exil in die Vereinigten Staaten angeboten, Łobaczewski wählte das letztere. All seine Publikationen, Bücher und Forschungsmaterialien wurden
+**konfisziert und er verliess das Land mit nichts.**
+Als er in New York City ankam, nutzte der polnische Sicherheitsapparat seine Kontakte, um Łobaczewski jeden
+Zugang zu Jobs in seinem Kompetenzgebiet zu verwehren. Er musste mit Schrecken feststellen, dass …
+«… das offene System der Unterdrückung, dem ich erst kurz zuvor entkommen war, nach wie vor aktiv war;
+nur diesmal verdeckt und in den Vereinigten Staaten von Amerika. Es war demoralisierend zu sehen, wie dieses
+System mit bewussten und unbewussten Spielfiguren funktionierte; Leute zu beobachten, die ihren ‹Freunden›
+blind vertrauten, nicht wissend, dass sie kommunistische Agenten waren. Sie unterstellten mir Aktivitäten und
+setzten mit patriotischem Eifer Massnahmen gegen mich. Als Resultat erhielt ich keinerlei Unterstützung mehr
+**und musste, um zu überleben, eine Arbeit als Hilfsarbeiter annehmen, und das obwohl ich bereits im Renten -**
+**alter war. Meine Gesundheit kollabierte und zwei Jahre waren verloren.»[17]**
+Kurz gesagt, die USA war mit der gleichen Krankheit infiziert, und die ‹Freiheit›, die sie anboten, war nicht
+**viel mehr als eine Illusion. Für alle Wissenschaftler, die in Übersee arbeiteten, war der Modus Operandi der**
+polnischen Geheimpolizei, den amerikanischen Parteimitgliedern Vorschläge zu unterbreiten, die sie dann
+leichtgläubig ausführten, aber gleichzeitig über die realen Motivationen für ihre Handlungen komplett im
+Dunklen blieben. Łobaczewski musste daher eine Arbeit als Hilfsarbeiter annehmen und das Buch in den frühen
+**Morgenstunden, bevor er zur Arbeit ging, erneut niederschreiben. Weil er die meisten statistischen Daten und**
+Fallstudien gemeinsam mit seinen Unterlagen verloren hatte, konnte er nur jene niederschreiben, an die er sich
+erinnerte. Er konzentrierte sich daher primär auf die Beobachtungen und Schlussfolgerungen seiner eigenen
+jahrzehntelangen Studien und denen von anderen, und untersuchte Literatur von jenen, welche unter pathokratischen Regimen litten.
+Als das Buch im Jahr 1984 fertiggestellt und eine passende Übersetzung ins Englische angefertigt wurde, konnte
+er es dennoch nicht veröffentlichen. Die Psychologie-Verlage sagten ihm, es sei ‹zu politisch› und die Politik**Verlage sagten ihm, es sei ‹zu psychologisch›. Er wandte sich an seinen Landsmann Zbigniew Brzezin´ski, der**
+erst kurz zuvor unter Präsident Jimmy Carter als nationaler Sicherheitsrat diente. Dieser lobte das Buch hoch
+und versprach, es zu veröffentlichen. Unglücklicherweise brach Brzezin´ski nach einigem Schriftverkehren den
+Kontakt ab und schrieb nur, dass er bedauere, dass es nicht funktioniert habe. In Łobaczewskis eigenen Worten:
+«Er erdrosselte die Angelegenheit auf hinterhältige Art.» [18] Schlussendlich schaffte er es, eine kleine Auflage
+für Akademiker zu drucken, und diese Akademiker scheiterten daran, irgendeinen signifikanten Einfluss bei
+anderen Akademikern oder Gutachtern zu bewirken. Da er unter schwer beeinträchtigter Gesundheit litt, kehrte
+Łobaczewski im Jahr 1990 nach Polen zurück, wo er ein anderes Buch veröffentlichte und das Papier-Manu skript von ‹Politische Ponerologie: Eine Wissenschaft über das Wesen des Bösen und ihre Anwendung für
+politische Zwecke› auf dem Computer abtippte.
+Er sandte diese Kopie letztendlich an die Redakteure von Sott.net und Red Pill Press, die das Buch im Jahr 2006
+veröffentlichten. Daraufhin wurde das Buch in die Sprachen Französisch, Spanisch und Deutsch übersetzt. Seine Gesundheit wurde wieder schlechter und er starb ein Jahr später im November 2007. Während andere Wis**senschaftler ebenfalls wichtige Forschungen in diesen Bereichen unternahmen, bleibt Łobaczewskis Buch das**
+**umfassendste und detaillierteste. Es ist wahrlich ein Klassiker aus dem Untergrund.**
+Deutsche Publikation im Jahr 2011
+
+Sott.nets hauseigener Verlag, Les Editions Pilule Rouge, freut sich, die Veröffentlichung der deutschen Übersetzung von ‹Politische Ponerologie› bekanntgeben zu können. Nach fast zwei Jahren intensiver Übersetzungs- und
+Lektoratstätigkeiten ist das Buch nun auf dem Webshop von Pilule Rouge
+erhältlich. Bei den im Internet kursierenden und via Foren und Bit-Torrents
+verbreiteten PDF-Dokumenten von ‹Politische Ponerologie› handelt es sich
+um nicht autorisierte Kopien der nicht durchgesehenen und unkorrigierten
+Rohübersetzung, die im Oktober 2008 auf http://quantumfuture.net/gn/
+ponerologie vom Urheber veröffentlicht wurde.
+
+_© Pilulerouge.com_
+
+
+-----
+
+**Rezensionen:**
+«Nachdem ich dieses Buch gelesen hatte, begannen sich einige meiner nagenden Fragen über die Politik und
+Praktiken der Regierung und Firmenvertreter selbst zu beantworten. Łobaczewskis Analyse erläutert, warum
+die Regierung der Vereinigten Staaten zu einem kriminellen Unternehmen wurde, das wild entschlossen ist, die
+Welt zu dominieren und riesige Zahlen von Menschen sowohl global als auch im Heimatland zu vernichten.
+
+[...] ‹Politische Ponerologie› ist ein unbezahlbares Werk, das jeder Mensch lesen sollte, der danach strebt bewusst
+zu werden; nicht nur wegen seiner Übersicht der Pathologie der Individuen, die im Moment unter der Kontrolle
+der US-Regierung sind, sondern auch wegen dem Licht, das es auf Menschen in unserer Umgebung werfen
+kann, von denen einige Freunde, Aktivisten, Geschäftsleute oder Gemeindevertreter sind. Der Zweck dieses
+**Buchs ist es […] die Unterscheidungsgabe zu kultivieren und unser Vertrauen in die innewohnende Intuition**
+**zu stärken, damit wir durch die beängstigenden Manifestationen des Bösen navigieren können, die uns im 21.**
+**Jahrhundert umgeben.»**
+Carolyn Baker,
+Psychotherapeutin, Professor für Geschichte und Psychologie,
+Autorin von ‹Sacred Demise: Walking the Spiritual Path of Industrial Civilisation‘s Collapse›
+
+«Dies ist ein aussergewöhnliches Buch. Ich kann zwar nicht die biologischen Aspekte der tyrannischen Gruppe
+der politischen und wirtschaftlichen Elite der modernen Zeit beurteilen, aber intuitiv bin ich davon überzeugt,
+dass es ein pathologischer Zustand ist.»
+Ilan Pappé,
+Professor für Geschichte, University of Exeter,
+Autor von ‹The Ethnic Cleansing of Palestine›
+
+«Ich fand, dass [Politische Ponerologie] vollgestopft ist mit zutiefst nützlichen Einsichten, die darüber informieren, wie unsere Situation verändert werden kann. […] ‹Politische Ponerologie› ist ein Buch, das man am
+besten langsam liest. […] Die Einsichten sind tief und reichhaltig – sie erfordern einen mentalen Fokus und
+Konzentration. Und der Punkt wird immer wieder gemacht: Ignotas nulla curatio morbid – Versuche nicht zu
+heilen, was du nicht verstehst.»
+Catherine Austin Fitts,
+Gründerin der Solari Investment Advisory Services und
+Sekretärin für Wohnungswesen in der Bush-Administration
+
+«Ich denke, jeder sollte dieses Buch lesen, weil es die notwendigen Schlüssel zur Verfügung stellt, um Ereignisse
+zu verstehen, die uns sonst unerklärlich sein würden. Dieses Buch beschreibt die Ursprünge des ‹Bösen›, seine
+wahre Natur, und zeigt, wie es sich durch die Gesellschaft ausbreitet.»
+Silvia Cattori,
+freie Journalistin
+
+«Ich brauchte einen Monat, um [Politische Ponerologie] zu lesen. Es war die Mühe wert. […] Ich gratuliere
+dem Autor, dass er diesem Unternehmen einen Namen verliehen hat. […] Das Thema des Bösen hätte schon
+**lange in wissenschaftlichen Begriffen studiert werden sollen, anstatt es in strikt theologischen oder mora -**
+**lischen Begriffen abzuhandeln (oder, wie es heute so gerne getan wird, in politischen Begriffen). […] Ich**
+glaube, dass der Ursprung der Ungleichheit der Menschen und die geschichtlichen Verläufe der Jahrtausende,
+wo Menschen viel Leid zugefügt wurde […] nicht rein soziale Phänomene sind; ich glaube, dass es eine starke
+biologische Komponente für dieses Verhalten gibt. […] Letztendlich werden nur Sozialwissenschaften mit einer
+grossen Dosis an biologischen Wissenschaften fähig sein, diese menschliche Eigenschaft zu studieren und zu
+heilen. […] Der Autor hat […] wahrscheinlich recht, dass ein Untersuchungsgebiet namens Ponerologie auf
+viele andere Untersuchungsgebiete aus sowohl den humanistischen als auch wissenschaftlichen Disziplinen
+zurückgreifen muss, um ein wirksames Gegenmittel gegen diesen fortwährenden Fluch menschlicher Existenz
+zu werden.»
+Glenn R. Storey,
+ordentlicher Professor für Altphilologie und Anthropologie, University of Iowa
+
+
+-----
+
+**Weiterführende Literatur:**
+Interview mit den Herausgebern von ‹Politische Ponerologie›: Der Trick des Psychopathen: Uns glauben
+machen, dass Böses von anderswo kommt
+Das verborgene Böse: Der psychopathische Einfluss
+Der Psychopath – Teil 1: Die Maske der Vernunft
+Der Psychopath – Teil 2: Psychopathen in der New Age Bewegung
+Der Psychopath – Teil 3: Was ist ein Psychopath?
+Der Psychopath – Teil 4: Wie Psychopathen die Welt sehen
+Der Psychopath – Teil 5: Psychopathen und Beziehungen
+Der Psychopath – Teil 6: Wie man mit Psychopathen umgeht
+Der Psychopath – Teil 7: Symptome/Checklisten für Psychopathie
+
+**Fussnoten:**
+1. Cleckley schrieb das klassische Buch über Psychopathie, ‹The Mask of Sanity›, (etwa, ‹Die Maske der Vernunft›) und
+Gilbert schrieb ‹The Psychology of Dictatorship› basierend auf seiner Analyse der Nazi-Kriegsverbrecher von Nürnberg.
+2. Es ist nicht klar, ob Łobaczewski mehr kannte, oder ob er sich weigerte, zu ihrem eigenen Wohl ihre Namen bekanntzugeben.
+3. Unglücklicherweise sind so wie Gilberts Buch, Dąbrowskis Bücher alle vergriffen. Eine DVD mit Scans seiner Arbeit
+ist verfügbar.
+4. Übersetzt von Elizabeth Mika in ‹Dąbrowski's Views on Authentic Mental Health›, in Mendaglio, S. (ed) ‹Da˛browski's
+Theory of Positive Disintegration› (Scottsdale, AZ: Great Potential Press, 2008), S. 139–53.
+5. Da˛browski, K. (with Kawczak, A. & Sochanska, J.), ‹The Dynamics of Concepts› (London: Gryf, 1973), S. 40, 47.
+6. Da˛browski, K. 1996 [1977]. ‹Multilevelness of Emotional and Instinctive Functions› (Lublin, Poland: Towarzystwo
+Naukowe Katolickiego Uniwersytetu Lubelskiego, 1996 [1977]), S. 33.
+7. ebenda, S. 153.
+8. ebenda, S. 21; ‹The Dynamics of Concepts›, S. 40; Dąbrowski, K. ‹Personality-shaping Through Positive Disintegration›
+(Boston: Little, Brown, 1967), S. 202; Da˛browski, K. ‹Psychoneurosis Is Not An Illnes‹s (London: Gryf, 1972), S. 159.
+9. Da˛browski, K. (with Kawczak, A. & Piechowski, M. M.) ‹Mental Growth Through Positive Disintegration› (London:
+Gryf, 1970), S. 29–30
+10. Siehe Wikipedia, ‹Überfall auf den Sender Gleiwitz›
+11. Preface to Da˛browski, K. ‹Positive Disintegration›. (Boston: Little, Brown, 1964), pp. ix - x.
+12. Błachowski lehrte in einer solchen Untergrund-Universität in Warschau. Siehe Wikipedia ‹Stefan Błachowski›.
+13. Mehr Informationen zur Verhaftung der Universitätsangestellten in der ‹Sonderaktion Krakau›, siehe hier:
+http://www.abs...opedia, http://de.wikip...au
+14. Siehe Webseite der Jagiellonen Universität. http://www.uj.edu.pl/
+15. Später, in Bulgarien, versuchte er mittels eines polnisch-amerikanischen Touristen eine zweite Kopie zu einem Kontakt
+im Vatikan zu senden, aber nach seinem Wissen kam sie niemals an
+16. Łobaczewski erfuhr die Identität seines Anklägers erst im Jahr 2005 durch das Polnische Institut für Nationales Gedenken.
+17. ‹Politische Ponerologie: Eine Wissenschaft über das Wesen des Bösen und ihre Anwendung für politische Zwecke›
+(Pilule Rouge 2011), p. 23
+18. In Memoriam: Andrzej M Łobaczewski
+
+**Harrison Koehli**
+Harrison Koehli kommt aus Edmonton, Alberta. Er ist Hochschulabsolvent in den Bereichen
+Musik und Darbietung, Redakteur für ‹Red Pill Press› und das ‹Dot Connector Magazine›
+und wurde in Anerkennung seiner Mitwirkung in der Weiterentwicklung der Studien zur
+Ponerologie von mehreren nordamerikanischen Radiosendungen interviewt. Wenn er nicht
+schreibt oder redaktionell tätig ist, ist Harrison intensiv am Lesen und hilft dabei, ‹The
+Rabbit Hole›, einen unabhängigen Buch- und Plattenladen, zu leiten. Zusätzlich zu Musik
+und dem geschriebenen Wort geniesst Harrison Tabak und Speck (oft zur selben Zeit) und hat eine Abneigung
+gegen Handys, Gemüse und Faschisten.
+
+_Quelle: http://de.sott.net/article/2014-Das-1x1-der-Ponerologie-Lobaczewski-und-die-Wurzeln-der-Politischen-Ponerologie_
+
+
+-----
+
+_Gesellschaft 17:42 26.02.2016(aktualisiert 19:16 26.02.2016)_
+
+#### Rainer Kahni, besser bekannt als Monsieur Rainer, ist Autor von Polit- und Justizthrillern, Sach- büchern und Kolumnen. Als Journalist und Mitglied von Reporters sans frontières hat er zahlreiche Reportagen publiziert. «Europa ist in einer schweren Krise», lautet sein aktuelles Urteil und «Die Republik muss vom Kopf auf die Füsse gestellt werden.»
+
+**Herr Kahni, bereits einige Jahre vor der Flüchtlingskrise haben Sie die Politik der Bundesregierung scharf**
+**kritisiert. In Ihren Büchern ‹Wehrt Euch!› oder ‹Die Totengräber der Demokratie› werfen Sie den Politikern**
+**hierzulande vor, jedes Gespür für die Befindlichkeiten der Bevölkerung verloren zu haben. Ist diese Situation**
+**bis heute unverändert geblieben?**
+Seit vielen Jahren beobachte ich eine Entfremdung der Politiker von den Befindlichkeiten der Bevölkerung. Diese ist gerade in der letzten Zeit fortgeschritten. Es werden immer mehr Entscheidungen gefällt, die entweder
+von den Menschen nicht mehr verstanden werden oder gar gegen den erklärten Willen der Bürger stehen. Bestes
+Beispiel ist das Freihandelsabkommen TTIP mit den USA.
+
+**Bereits 2003 haben Sie in Ihrem Buch ‹Staatsstreich von oben› einen satirischen Blick auf verhetzte Klein -**
+**bürger und unfähige Politiker geworfen. Und auch jetzt sagen Sie, was viele Politiker aktuell zum Besten geben**
+**grenze an Satire. Das klingt, als würden Sie die deutsche Politik nicht mehr ernst nehmen können?**
+Nun, was Politiker zum Teil von sich geben, das grenzt nicht mehr an Satire, das ist Satire und kann durch
+Kabarettisten gar nicht mehr konterkariert werden. Deshalb beenden auch viele gute Satiriker derzeit ihre
+Karriere.
+
+**Immer wieder sehen Sie mit Blick auf die deutsche Politik auch einen grossen Zusammenhang mit Wirt-**
+**schaftseliten und den deutschen Medien. Wie hängt dies für Sie zusammen? Wer nimmt tatsächlich Einfluss**
+**auf die Politik?**
+Die Macht in Deutschland und in der Welt ist folgendermassen verteilt:
+a)  Die Finanzwirtschaft
+b)  Die Industrie
+c)  Der militärisch – industrielle Rüstungskomplex
+d)  Die Agrarindustrie
+e)  Die Pharmaindustrie
+f)  Die Medienkonzerne
+g)  Die Politiker als ausführendes Organ der Obengenannten!
+
+
+-----
+
+**Deutschland scheint zur Zeit so gespalten wie nie. Linke und vor allem rechte Gruppen radikalisieren sich**
+**zunehmend. Wie würden Sie einen Neuanfang in der Politik auf den Weg bringen, ohne dass es zu bürger-**
+**kriegsähnlichen Zuständen und einer weiteren Teilung Deutschlands kommt?**
+Ich würde eine grundlegende Demokratisierung des Landes durchführen. Die Republik muss vom Kopf auf die
+Füsse gestellt werden. Jeder Bürger muss an den existentiellen Entscheidungen der Politik beteiligt werden. Es
+sollten nur noch direkt gewählte Abgeordnete in den Bundestag gelassen werden. Es sollte eine verfassungs gebende Versammlung einberufen werden, die eine Verfassung gemäss Artikel 146 GG ausarbeitet und dem
+ganzen Volk zur Abstimmung unterbreitet. Darin sollten endlich die Trennung von Staat und Kirche und die
+Gewaltenteilung zwischen Legislative, Exekutive und Judikative verankert werden. Wenn die Bürger das Gefühl
+haben, wirklich Einfluss zu haben und mitbestimmen zu dürfen, dann fühlen sie sich ernst genommen und
+konzentrieren sich auf die wirklich wichtigen Probleme.
+
+**Sie selbst sind vor vielen Jahren nach Frankreich gezogen, beobachten die europäische und deutsche Politik**
+**also von unserem Nachbarland aus. Ist das ein Abstand, den Sie für Ihre Recherchen und Ihre Blickweise für**
+**notwendig erachten?**
+Ich beobachte das Innenleben meiner Heimat Deutschland aus dem Ausland viel intensiver. Die Distanz gibt
+mir ein viel klareres Bild. Die erkennbaren Demokratiedefizite, die innerhalb Deutschlands zu solchen Verwerfungen, Gereiztheiten und Aufgeregtheiten führen, sind mit einigen juristischen Handgriffen zu beseitigen. Die
+staatsrechtliche Methodik habe ich schon in meinem Buch ‹WEHRT EUCH› beschrieben.
+
+**Gerade die Politik der Bundesregierung in der Flüchtlingskrise wirkt für viele Nachbarländer befremdlich.**
+**Aber gibt es für Sie überhaupt eine Patentlösung für die aktuellen Zuwanderungsprobleme?**
+Im Ausland herrscht Kopfschütteln über die deutsche Flüchtlingspolitik. Das ist ungerecht! Dass die europäische
+Afrika-, Asien- und Nahostpolitik eines Tages zu solchen Flüchtlingsströmen führen musste, war mir schon lange
+klar. Die Politik der deutschen Regierung folgt dieser Erkenntnis nicht, sie reagiert nur auf die Folgen. Aber sie
+reagiert wenigstens, während sich der Rest Europas abschottet. Das ist eine Schande!
+
+**Der frühere griechische Finanzminister Varoufakis will eine linke paneuropäische Bewegung gründen. Linke**
+**Protestbewegungen aus ganz Europa sollen sich darin vereinen, um für eine Neugründung der Europäischen**
+**Union zu streiten. Würden Sie dem eine Chance geben?**
+Ich gebe der Neugründung der Europäischen Union durchaus eine Chance. Die jetzige EU ist zu wenig demokratisch, zu sehr als Finanz- und Wirtschaftsvereinigung von den Mitgliedern verstanden und sie ist zu gross.
+Die Gründerväter von Europa wollten genau dieses Europa von heute so nicht!
+
+**Wie ist es Ihrer Meinung nach aktuell um die Europäische Union bestellt? Und welche Rolle spielt Deutschland**
+**darin, auch mit Blick auf die Flüchtlingskrise?**
+Europa ist in einer schweren Krise und muss neu geordnet oder gar neu gegründet werden. Die jetzigen Mecha nismen funktionieren nicht mehr. Es ist undemokratisch und hat als politisch eigenständiges Ausgleichspotential zwischen den USA und Russland versagt. Die einseitige Parteinahme für die Politik der USA hat Europa
+geschwächt.
+
+**Welche politische Rolle spielt für Sie die Nato? Erst vor wenigen Tagen kündigte die Nato-Führung eine ver-**
+**stärkte Präsenz in den östlichen Bündnisländern an. War dies vorauszusehen?**
+Die Nato ist ein Relikt aus dem Kalten Krieg und hat ihre Existenzberechtigung verloren. Aus diesem Grund ist
+sie ständig auf der Suche nach einem neuen Feind und lässt sich für die Hegemonialmachtansprüche der USA
+missbrauchen. Die Nato-Osterweiterung ist ein glatter Wortbruch gegenüber Russland und eine Provokation
+gegenüber der russischen Regierung.
+
+**Sie selbst haben jüngst geschrieben, dass sich die USA vom Freund unseres Landes zu unserem schlimmsten**
+**Alptraum gewandelt haben. Woran machen Sie das fest? Und welche Rolle spielt Russland aktuell für Sie?**
+Die USA haben sich vom Befreier zum schlimmsten Alptraum Europas gewandelt. Sie hören uns ab, sie töten
+mit Drohnen von deutschem Boden aus. Sie stationieren Atomraketen auf unserem Territorium, sie diktieren
+uns ein Freihandelsabkommen, das unsere demokratischen Regeln aushebelt, sie ziehen uns in immer mehr
+Kriege hinein. Sie setzen auf eine Entfremdung Deutschlands zu Russland. Das ist verheerend. Deutschland
+
+
+-----
+
+kann in Europa nur MIT Russland existieren. Immer wenn sich in der Geschichte Deutschland gegen Russland
+gewandt hat, war das Ergebnis eine Katastrophe!
+
+**Vor drei Jahren wurde bei Ihnen Krebs diagnostiziert. Sie selbst sagen nun: «Das Beste kommt zum Schluss»,**
+**und zwar ohne Rücksicht auf Verluste. Das klingt sehr nach einer Abrechnung. Wer wird im Fokus dieser**
+**Abrechnung stehen?**
+Ich werde keine wie auch immer geartete Abrechnung mit meiner immer noch sehr geliebten alten Heimat
+Deutschland schreiben. Mir liegt das Wohl meiner Heimat sehr am Herzen, deshalb wird mein letztes Buch eher
+eine Ermutigung für die Deutschen sein, sich ihrer Stärken bewusst zu werden und ihre demokratischen Rechte
+einzufordern.
+
+**Wenn Sie auf die globale Entwicklung und diverse Krisenherde der vergangenen Jahrzehnte zurückblicken,**
+**welchen Rat haben Sie für die Zukunft? Wohin kann sich die Gesellschaft im schlechtesten und im besten Fall**
+**entwickeln?**
+Die Gesellschaft wird sich in Zukunft nicht mehr nur auf nationale Charakter-Kultur-Interessen beschränken
+können. Wer Globalisierung der Märkte will, der wird auch die Globalisierung der Menschen bekommen. Da
+helfen keine Zäune und Grenzen! Humanismus muss die Grundlage unseres Handelns sein. Dies muss an erster
+Stelle stehen. Die Politik, die Wirtschaft und das Militär haben sich dem zu unterordnen und nicht umgekehrt!
+Ich hoffe, dass die Vernunft die Hoheit über die Dummheit und die Gier der Menschen behält!
+Interview: Marcel Joppa
+
+_Quelle: http://de.sputniknews.com/gesellschaft/20160226/308118684/wehrt-euch-demokratie-deutschland-europa.html_
+
+### Der Schlüssel zur Wahrheit
+_27. Februar 2016 Der Troll von Germania_
+Das Wort Vaterlandsliebe scheint bei den Deutschen praktisch nicht zu existieren. Viele sind überzeugt, sie hätten mit diesem Land hier nichts zu tun, fühlen
+sich mit diesem Deutschland nicht verbunden, würden sich im Notfall für
+dieses Land nicht einsetzen. Es ist ihnen sch…egal, was mit Deutschland
+passiert.
+Das Ergebnis der geglückten Hirnwäsche von über 70 Jahren hat diesem Volk
+die Identität geraubt und es mit Schuldgefühlen überladen. Für diese Hirn wäsche wurde nicht nur die komplette Geschichte Deutschlands auf die ‹unsäglichen› 12 Jahre reduziert; nein,
+den Deutschen wurde auch eingetrichtert wie ‹verwerflich› die deutsche Politik seit Bismarck gewesen sei, welch
+‹böse› Rolle Wilhelm II. gespielt habe, als er die deutschen ‹Hunnen› über Europa herfallen liess; auch die nachfolgenden Regierungen von Weimar und selbstverständlich die Machthaber im Dritten Reich sind Mühlsteine
+auf dem Gewissen der Deutschen.
+
+Die Menschen sind zur Feigheit erzogen und erpresst worden. Seit 1949 hat man ihnen
+erklärt, dass sie eigentlich gerechterweise alle nach dem Krieg hätten aufgehängt werden
+müssen.
+Über die wirkliche deutsche Geschichte der letzten 150 Jahre darf nicht geschrieben
+werden. In einigen Bereichen wird die Schilderung der Wahrheit sogar bestraft. Kein
+Historiker, kein Journalist oder Mensch des öffentlichen Lebens zerrt die Wahrheit
+wieder ans Licht. Alle halten sich an das, was politisch korrekt ist, um ihren Ruf, das
+gute Einkommen und dergleichen nicht zu gefährden.
+Aus dem Morast des Unwissens blüht die Willkommenskultur. Es wird ein böses
+Erwachen geben, wenn die Gutmenschen begreifen, dass sie als dumme Narren dastehen, die von einer falschen Propaganda getäuscht wurden.
+Sobald die gehirngewaschenen Leute erleben, dass ihr ‹Staat› unter der Last der Flüchtlingswelle kollabiert, und erkennen, dass ihr langjähriger Status Quo verschwindet, werden sie sich drehen. Sie
+werden begreifen, dass auf sie als Deutsche in Europa oder anderswo auf der Welt keine Willkommenskultur
+und Bahnhofsklatscher warten. Es wird keine Flüchtlingsheime, kein Essen und auch kein Taschengeld geben.
+
+
+-----
+
+Es wird Angst, Hass, Kriminalität und Hunger geben. Gratis und im Überfluss. Nach 1945 musste genau dies
+das deutsche Volk durchleben.
+
+Seit langem berichten Historiker und Wissende, dass der Erste Weltkrieg nicht von deutscher Seite geplant wurde. In England und Frankreich sassen die treibenden Kräfte, von
+einer bestimmten Volksgruppe geführt. Schon um die Mitte des 19. Jahrhunderts waren
+sich diese Leute einig, Deutschland zu vernichten. Am 3. August 1911 erklärte Richard
+Burdon Viscount Haldane «Ein solches Land und Volk (Deutschland) kann nur durch
+Spionage und gewaltsame Pläne vom Wettbewerb in der allgemeinen Hochkultur der
+Menschheit ausgeschaltet werden.» Und sie taten genau dies.
+Der Erste Weltkrieg endete mit einem Waffenstillstand. Den sogenannten Friedens vertrag
+von Versailles unterschrieb keine vom Souverän gewählte Regierung. Es waren von Parteien
+eingesetzte Politiker, die unter grössten Erpressungen der Siegermächte Bedingungen akzeptierten, die kein Staat der Welt bedienen konnte, ohne dabei vor die Hunde zu gehen.
+
+Die Nationalsozialisten kamen mit dem Versprechen an die Macht, die eingetretene Misere
+zu beenden. Deutschland wurde binnen weniger Jahre wieder ein blühendes Land. Eine
+kluge Wirtschafts- und Finanzpolitik waren dafür verantwortlich.
+Den Friedensvertrag gab es für das Deutsche Reich noch immer nicht. Der Waffenstillstand von 1918 bestand fort. Und wieder gelang es besagten Kräften, den Kriegszustand
+erneut aufleben zu lassen und zwar heftiger als zuvor.
+Kriege entwickeln eigene Gesetzmässigkeiten. Bei der Suche nach dem Ursprung von
+Greueltaten, sollte man auch im Auge behalten, wer 1933 bereits den Deutschen den Krieg
+erklärte.
+Der Sieg über ‹Hitler-Deutschland› brachte die totale Zerstörung des Landes, die Dezimierung des Reiches um seinen dritten Teil und die Entrechtung der Bevölkerung.
+
+Winston Churchill kämpfte nicht gegen die Nazis, sondern gegen Deutschland. Er sprach
+damit aus, was andere in seiner Umgebung dachten: Es galt Deutschland zu vernichten.
+Deshalb regneten Bombenteppiche über deutsche Städte. Deshalb wurden Fabriken demontiert. Deshalb überliess man Millionen Kriegsgefangene hinter Stacheldraht ihrem
+Schicksal. Deshalb sollte nach dem Morgenthau-Plan Deutschland zunächst zu einem
+Agrarland werden … Bis man beschloss, dieses Land mit seinen fleissigen Menschen einerseits als Bollwerk gegen den neuen Gegner Sowjetrussland zu gebrauchen und andererseits als Finanzier für seine neuen Kriege und die Kosten expansiver Machtpolitik.
+1990 kam der nächste grosse Einschnitt. Die Deutschen hatten zwar noch immer keinen
+Friedensvertrag. Der Modus des Waffenstillstands währte nun schon 45 Jahre. Mit dem
+Zusammenbruch des Sowjetreiches erlaubte man den Deutschen die sogenannte Wiedervereinigung, die nicht mehr und nicht weniger war, als die Übernahme Mitteldeutschlands durch die BRD. Noch
+einmal wurden Betriebe geplündert und Werte verschoben zu den Wallstreet-Banken; per Schuldenübernahme
+sackten sie ein, was das kommunistische System übrig gelassen hatte. Den Wiederaufbau der mitteldeutschen
+Städte bezahlten die Westdeutschen. Ganz Ostdeutschland von der Neisse bis Königsberg wurde durch Kohls
+Unterschrift endgültig von Deutschland abgetrennt und zugleich erklärt, die Bundesrepublik verzichte auf
+einen Friedensvertrag.
+
+Zu allem Überfluss wurde im selben Atemzug noch das Grundgesetz ausgehebelt, indem
+der räumliche Bezug dieses Gesetzes durch die ehemaligen Siegermächte gestrichen wurde.
+Der Text des GG steht nun zwar noch auf dem Papier, aber nach internationalem Recht
+weiss niemand, für welches Gebiet dieses Gesetz nun eigentlich noch gelten soll.
+Trotzdem erzählt man uns landauf, landab dieses GG sei unsere Verfassung und das Land
+sei souverän. Dass ein Land auch ohne Abstimmung des tatsächlichen Souveräns (das
+Volk) über seine Verfassung souverän sein kann, sollen wir einfach mal glauben.
+Nein, wir sind so wenig souverän, dass fremde Staaten uns total überwachen, abhören,
+ausspionieren, zur Teilnahme an Kriegen zwingen und uns mit Millionen Zuwanderern
+überschwemmen können. 608 ‹souveräne› Berliner Abgeordnete unternehmen nichts
+
+
+-----
+
+gegen diesen Zustand. Etliche ‹volksverbundene› GRÜNE und SPD-Grössen erklärten sogar, sie würden sich
+über die Ausdünnung, Reduzierung der Deutschen und ihrer Kultur freuen. Kultur und Bildung sind dieser
+Spezies so fremd wie die Erkenntnis Gottfried Herders:
+«Kein grösserer Schaden kann einer Nation zugefügt werden, als wenn man ihr den Nationalcharakter, die
+Eigenheit ihres Geistes und ihre Sprache raubt.»
+Jetzt, im 98. Jahr des Waffenstillstands von 1918 sind wir an der Schwelle, dass man uns all das raubt, was der
+Weimarer Philosoph Herder für unerlässlich hielt.
+Einzig wenn die Mehrheit der Deutschen nach der Wahrheit ihrer jüngeren Geschichte fahndet und entschlossen
+die Konsequenzen aus der neuen Erkenntnis zieht, werden sie dem Treiben der Okkupanten und ihrer Vasallen
+ein Ende setzen können. Das Überraschende: Dazu braucht es nicht einmal einen neuen Krieg oder eine Revolution. Es reicht, dass ein grosser Teil der Deutschen wieder den Schritt in die Staatlichkeit vor 1914 vollzieht,
+sich nachweislich als Staatsbürger des Bundesstaates ihrer Vorfahren erklärt und dem fiktiven Staatsgebilde
+BRD, das nicht mehr als das ‹Vereinigte Wirtschaftsgebiet› ist, das nach Handelsrecht als Firma von den USA
+‹verwaltet› wird, den Rücken kehrt. Was dazu notwendig ist, erklärt dieses Buch, das auch als kostenloses pdf.
+herunter geladen werden kann.
+_Quelle: http://krisenfrei.de/der-schluessel-zur-wahrheit/_
+
+### MERKWÜRDIGE FRAU A. MERKEL
+
+Das Krankheitsbild der Angela Merkel, mit solchen Fingernägeln, heisst Onychophagie. Frau Merkel ist Finger nägelknabberin. Als Onychophagie (auch Fingernagelkauen, Nagelkauen, Nägelkauen, Nägelbeissen) bezeichnet
+man das Kauen, bzw. Auf(fr)essen der Fingernägel, Krallen oder Klauen bei Menschen oder Tieren. Beim
+Menschen fallen die schwereren Formen unter den Begriff ‹Selbstbeschädigung› (Selbstverletzendes Verhalten),
+wobei die leichteren, auf Nervosität beruhenden Formen nicht unbedingt zu den Selbstverletzungen gezählt
+werden. Als Auslöser gelten Verhaltensstörungen, Unzufriedenheit, Bedürfnis nach Spannungsabbau bei Hyper motorik, Überforderung und Konflikte im Alltag, unausgelebte Aggressivität, Zerstörungswillen, Verdrängungsversuche von Böswilligkeit, gegen sich selbst gekehrter Schädigungswille, und weitere seelische Deformationen,
+beispielsweise in erster Linie sexuelle Störungen, wie unausgelebte oder unauslebbare Triebansprüche. Die Onychophagie kann bei Neurosen oder zusammen mit einer Onychotillomanie auftreten, die als einziges Zeichen
+einer paranoiden Psychose gilt. Dass Frau Merkel geistig (Anm. bewusstseinsmässig) nicht gesund sein kann,
+da sie ohne zwingenden Grund die islamische Überfremdung Deutschlands und damit den berechenbaren
+Volkstod der Deutschen herauf beschwört, ist unabweisbar. Um die eigene Unsicherheit und innerliche Unausgeglichenheit zu kompensieren, d.h. sich nach Möglichkeit die seelisch-geistige (Anm. psychisch-bewusstseins
+
+-----
+
+mässig) Destabilität nicht anmerken zu lassen, nutzt Angela Merkel die Rauten-Handhaltung, welche genau das
+Gegenteil ausdrücken möchte. Die ‹Merkel-Raute› ist also ein Versteck-Gestus, der die Mitmenschen über die
+wahre Haltung der Person hinwegtäuschen will. Das Nägelbeissen gehört zu den Formen der Psychosen des
+‹selbstverletzenden Verhaltens› oder ‹autoaggressiven Verhaltens› oder auch der ‹Artefakthandlung›. Es werden
+eine ganze Reihe von Verhaltensweisen beschrieben, bei denen sich betroffene Menschen absichtlich Verletzungen
+oder Wunden zufügen. Solche Verhaltensweisen können der Selbstbestrafung bei tiefsitzendem Selbsthass dienen.
+Es wäre denkbar, dass A. Merkel als Kind des Theologen Horst Kasner einen Vaterhass – ausgelöst z.B. durch
+überstrenge Erziehung im christlich-kommunistischen Elternhaus – entwickelte, der sich bei der Kanzlerin im
+Tötungswillen gegenüber dem ihr anvertauten Volk auslebt. Selbstverletzendes Verhalten kann auftreten bei:
+Borderline-Persönlichkeitsstörung, fetalem Alkoholsyndrom, Lesch-Nyhan-Syndrom, Depressionen, Essstörungen wie Anorexia nervosa oder Bulimie, Adipositas, Miss brauchserfahrungen, Deprivationen (Entzug
+von Zuwendung und ‹Nestwärme›), Traumatisierungen während der Pubertät, Kontrollverlust, KörperschemaStörungen (Body Integrity, Identity Disorder), Zwangsstörungen, schweren Zurücksetzungen und Demütigungen, psychotischen oder schizophrenen Schüben und ähnlichen seelischen Störungen sowie bei geistiger (Anm.
+bewusstseinsmässiger) Behinderung und Autismus.
+
+**Netzinfo: Allgemein steht die Aufklärung des Patienten im Vordergrund. Ergänzend können in manchen Fällen Psycho-**
+therapie. oder aber auch lokale Massnahmen wie das Auftragen von Nagellack oder anderen übel schmeckenden Substanzen sowie das Tragen von Handschuhen und künstlichen Fingernägeln hilfreich sein. Hierbei ist jedoch für den Erfolg entscheidend, dass die Massnahme freiwillig und in Absprache mit dem Patienten erfolgt. Bei Schafen ist es üblich, aggressive
+Tiere von den Jungtieren zu trennen und sogar durch Onychophagie stark geschädigte Tiere einzuschläfern.
+
+### NÄGELKAUERIN MERKEL
+
+Wenn eine Frau an Nägeln kaut,
+wirkt das unbesehen kränklich,
+da ein Weib auf Schönheit schaut,
+ist die Unart recht bedenklich.
+
+Psychotisch ist das Nägel-Beissen,
+Empfindungsstörung liegt zugrunde,
+Selbst-Hass könnte man sie heissen,
+die versteckte Seelen-Wunde.
+
+Gesund ist nie ein Nägel-Nager,
+irgendwas will er zernagen.
+Quält er sich als Lust-Entsager,
+muss er sich im Selbst-Hass plagen.
+
+Zürnt er Eltern und der Sippe,
+seiner Art und seinem Leben,
+beisst er Nägel sich und Lippe,
+Selbstzerknirschung ist sein Streben.
+
+Tief im Innern nagt die Neigung,
+einer destruktiven Störung,
+kommt sie hoch in der Erzeigung,
+dann bewirkt sie oft Empörung.
+
+Wenn sich’s um ne Hausfrau dreht,
+ist ein Tick kaum zu beachten,
+bei kleinen Leuten man‘s versteht,
+da sie nicht nach oben trachten.
+
+
+-----
+
+Doch hat die Kanzlerin Manien,
+hat Frau Merkel solche Macken,
+dann sei ihr das nicht verziehen,
+kann ja Deutschland uns versacken.
+
+Eine Frau mit Macht zum Argen,
+sollte seelensauber glänzen,
+nicht mit Nagelpflege kargen,
+nicht die Maniküre schwänzen.
+
+Dass die Psycho-Diagnose
+bei Frau Merkel sich bestätigt,
+zeigt die irre ‹Flüchtlings›-Chose,
+mit der sie die Nation erledigt.
+Gerhard Hess
+_Quelle: oding.org_
+
+### Will ‹Der Spiegel› den Krieg mit Russland?
+_Freitag, 26. Februar 2016_
+Deutschland im Belagerungszustand. Russische Invasoren, wohin das Auge schaut. Putin hat seine 5. Kolonne
+in Marsch gesetzt. Ihre Aufgabe: Unsere freiheitliche Gesellschaft zu unterwandern, Deutschland zu schwächen,
+Europa auseinanderzutreiben, mit Flüchtlingen zu überschwemmen und letztlich unsere Kanzlerin, unsere
+Angela Merkel, zu stürzen. Das Volk, dumm und träge, lässt sich bereitwillig von der Propaganda des Dämons
+aus dem Kreml in sein Verderben führen. Ein kalter Ostwind bläst uns ins Gesicht: Wutbürger, Pegida, AFD,
+brennende Flüchtlingsunterkünfte (nee, halt, sind uns die Flüchtlinge nicht von Putin geschickt worden – egal),
+Pest, Cholera und die wieder aufkeimende Schweinegrippe, düster unsere Zukunft. Eines nicht mehr fernen
+Tages sitzt im Kanzleramt, dort wo jetzt noch unsere amerikanischen Freunde in aller Ruhe und unbehelligt
+von den deutschen Sicherheitsorganen unsere Kanzlerin, unsere Frau Merkel aushorchen, ein sibirischer
+Finsterling, der Statthalter des Despoten Putin.
+Nur noch Wenige halten den slawischen Horden stand. Dazu gehören solche Geistesgrössen wie der CDUBundestagsabgeordnete Roderich Kiesewetter oder die Bundestagsabgeordnete von Bündnis 90/Die Grünen,
+Marie Luise Beck. Während Kiesewetter in einem Interview im ‹Deutschlandfunk› die slawische Gefahr klar
+benannte:
+**«Das Interesse Russlands ist es, die EU zu destabilisieren, insbesondere den Zusammenhalt der EU zu gefähr-**
+**den, und das gelingt ihm ja, indem es rechtsradikale Parteien in Frankreich, auch in anderen Regionen unter-**
+**stützt und hierbei Zwietracht sät», auf Nachfrage des Redakteurs des Deutschlandfunks, Dirk Müller: «Das ist**
+**für Sie ganz klare Sache, können wir so festhalten: Sie sind im Deutschlandfunk fest davon überzeugt, Wladi-**
+**mir Putin will Europa auseinanderdividieren und spalten?» allerdings jeden Beweis schuldig blieb, dafür aber**
+mit weiteren wilden Spekulationen antwortet: «Das ist sein strategisches Interesse, eindeutig. Er braucht dazu
+**kein Militär, er braucht dazu Desinformation und seine Fünften Kolonnen, die er durch sein Auslandsnetz**
+**finanziert und mit falschen Informationen versieht», hat die Grüne Marie Luise Beck schon wohlfeile Lösungen**
+parat. Sie sieht die Presse- und Meinungsfreiheit in Deutschland am besten beim Verfassungsschutz aufgehoben.
+Den Herrschaften in den Trenchcoats und den Schlapphüten auf dem Kopf anempfiehlt sie beispielsweise, doch
+einmal etwas näher bei der ‹Ständigen Publikumskonferenz› nachzusehen:
+**«Was noch nicht belegt ist und wo ich hoffe, dass der Verfassungsschutz endlich nachhakt, ist die Frage, wer**
+**die ominöse ‹Maren Müllers ständige Publikumskonferenz› ist, die jede Redaktion bombardiert mit Briefen,**
+**Protestbriefen, und so systematisch zu einer gewissen Einschüchterung sogar in den Öffentlich-Rechtlichen**
+**führt.»**
+Dabei beruft sie sich auf den Briten Peter Pomerantsew, den sie mal eben in den Stand eines Analytikers erhebt.
+Sein Verlag Random House beschreibt seine Profession allerdings so:
+**«Peter Pomerantsev ist ein russischstämmiger britischer TV-Produzent und Autor. Er hat neun Jahre in Russ -**
+**land gearbeitet; inzwischen lebt er wieder in London. Er ist regelmässiger Beiträger der London Review of**
+**Books, seine Artikel erscheinen ausserdem in Atlantic, Financial Times, Newsweek und New Yorker.»**
+
+
+-----
+
+In der Zeitschrift IP (Internationale Politik), die von der ‹Deutschen Gesellschaft für Auswärtige Politik e. V.›,
+einer Institution, die zu 100% von der Bundesregierung finanziert wird, gewährt uns Pomerantsew Einblick in
+sein, von schweren Schüben von Verfolgungswahn gekennzeichnetes, zerüttetes Seelenleben: «Das neue russische
+**Konzept von Informationskrieg, ‹Informations- und Psychologischer Krieg› genannt, geht dagegen von einem**
+**ewigen Krieg aus – ohne Anfang und Ende. Es geht um die ‹unsichtbare Einwirkung zur Unterminierung der**
+**strukturellen Grundlagen des Gegners. Das bedeutet: Es gibt keinen Unterschied mehr zwischen Krieg und**
+**Frieden, die Operationen sind nicht mehr Teil von spezifischen Kriegshandlungen, sie laufen immer weiter.»**
+Und auf die Frage von IP, die interessanterweise schon gar nicht mehr von Informationskrieg sondern gleich
+von Krieg spricht: **«Was macht diese Art von Kriegsführung so gefährlich», antwortet Pomerantsew: «Wir**
+**haben praktisch keine Möglichkeit, sie abzuwehren, weil alle Bestandteile des westlichen Systems selbst be-**
+**nutzt werden: Offene Märkte, eine offene Kultur, offene Medien – all jene Dinge, von denen wir dachten, sie**
+**zeichneten eine grosse liberale Demokratie aus, nach dem Motto: Je grösser die Medienlandschaft, desto**
+**reicher die Debatte. Plötzlich erweist sich das als Schwäche. Wir sind ratlos, und wir verfügen über keine**
+**Institution, die dagegen vorgehen könnte.»**
+Wie gut, dass wir Politikerinnen wie Marie Luise Beck haben, die immer noch eine Möglichkeit der Gegenwehr
+sehen und entschlossen handeln.
+In dieser Situation, in der uns von Putin ein Krieg aufgezwungen wird, steht ein Presseorgan wie ein Fels in der
+Brandung und opfert einen Grossteil seiner kostbaren Druckseiten der Dekontaminierung der deutschen
+Öffentlichkeit von der Verseuchung der russischen Desinformation.
+In seiner Ausgabe 8/2016 vom 20. Februar, widmet das ehemalige Nachrichtenmagazin in vier Beiträgen gleich
+neun Seiten der drohenden Gefahr aus dem Osten. Angefangen mit dem Leitartikel ‹Putins Aggressionen› über
+den Artikel ‹Die Achillesferse›, die sich mit dem russisch-türkischen Konflikt befasst, ‹Die Enttäuschten›, eine
+Betrachtung zu der Krise in der Ukraine, bis hin zu ‹Jenseits der roten Linie›, einem Artikel, der sich mit dem
+Syrienkrieg und im speziellen mit der Auseinandersetzung zwischen den Kurden und Russland befasst.
+Dem Blatt vorangestellt ist der Leitartikel – um im Bild zu bleiben, der vorderste Wellenbrecher, der vorge schobene Beobachter. Warum nicht einmal wieder Wikipedia bemühen: «Insgesamt ist der Leitartikel ein ‹Aus**hängeschild› der Redaktion und steht in der Regel im Einklang mit der Tendenz des Publikationsorgans. Im**
+**Leitartikel wird die politische Richtung der Zeitung widergespiegelt.»**
+
+Sehen wir uns dann doch einmal die ‹politische Richtung› der Redaktion des Spiegel an. Dafür eignet sich erfahrungsgemäss am Besten immer der letzte Satz eines Artikels, die Zusammenfassung des Geschriebenen und
+die Schlussfolgerung, die daraus zu ziehen ist. Hier heisst es: «Wenn sich der Westen bei künftigen Konflikten
+**nicht wieder ausmanövrieren lassen will, darf er sich nicht einschüchtern lassen, nicht nach Beschwichtigung**
+**trachten – er muss den Angriffen auf die Weltordnung geeint entgegentreten.»**
+Nun ist das immer so eine Sache mit der Weltordnung. Zumeist hat jeder seine eigene, und oftmals sind diese
+diversen Weltordnungen miteinander wenig kompatibel. Wenn der Leitartikler und somit also auch die gesamte
+Redaktion des Spiegels hier von ‹der Weltordnung› spricht, dann impliziert das ein Absolutum. Also eine all gemein gültige Weltordnung, der sich alle anderen Weltordnungen unterzuordnen haben. Nun könnte man
+meinen, der Spiegel beziehe sich auf die Ordnung, wie sie in den Statuten der UN festgelegt und allgemein
+anerkannt sein sollte, schaut man sich einmal die Liste der Unterzeichner an.
+Dem scheint allerdings nicht so zu sein. Denn die UN sehen klare Sanktionsmassnahmen gegen die Störung
+der Weltordnung vor und sie benennen auch klipp und klar denjenigen, der diese Sanktionen ausspricht und
+gegebenfalls auch umsetzt – nämlich ebenfalls die Vereinten Nationen. Vom Westen ist dort nirgends die Rede.
+
+Wenn also der Spiegel davon spricht, dass der Westen «den Angriffen auf die Weltordnung geeint entgegen **treten» muss, kann von der Weltordnung, die sich die Gemeinschaft der Völker in der UN gegeben hat, nicht**
+die Rede sein. Es handelt sich augenscheinlich um eine andere Weltordnung, um die des Westens, der EU, der
+Nato und deren Führungsmacht USA. Diese Weltordnung schliesst über zwei Drittel der Weltbevölkerung aus,
+nimmt sich aber offenbar heraus, diese ihre Weltordnung als absolut für die gesamte Weltbevölkerung zu
+betrachten. Solch eine Sichtweise nennt man gemeinhin Kolonialismus mit einem Hang zum Faschismus.
+Leider ist der Blick eines Kolonialisten auf die Welt selten klar, unparteiisch und unvoreingenommen. Der
+Kolonialist ist der Ansicht, die ganze Welt gehöre ihm und er brauche sich nur zu nehmen, was ihm gefällt. So
+zieht er denn auch, in seinen Augen, nicht los, um durch Krieg und Unterdrückung sein, wie er meint, Eigentum
+an sich zu nehmen. Er zieht in den Krieg, um dem Rest der Menschheit ausserhalb seiner Weltordnung das Heil
+der Welt zu bringen. War das zu Kaisers Zeiten die christliche Religion, die mit Feuer und Schwert den armen
+
+
+-----
+
+Heiden beigebracht wurde, so sind es heute Demokratie, Menschenrechte, Kapitalismus und Freiheit, in einem
+Wort, die westlichen Werte. Dabei haben sich die Methoden, mit denen das Heil in die Welt gebracht wird, in
+den letzten zweihundert Jahren nur durch die exorbitante Zunahme der Brutalität der Mittel verändert.
+Gestern wie heute gilt: Der ‹Neger› hat sich zu fügen, seinem Glauben abzuschwören und dem neuen Gott zu
+dienen. Weigert sich der ‹Neger› schlägt man ihm halt den Kopf ab. Was ist daran nicht zu verstehen?
+
+Um eine Politik der Gewalt, der Unterdrückung und des Unrechts zu betreiben, braucht es Claqueure, kein
+Militär ohne Trommler. Es braucht Menschen, die um des eigenen Vorteils willen skrupellos die Wahrheit verdrehen, manipulieren und unterschlagen. Der Leitartikel des Spiegels ist ein Paradebeispiel für diesen Journalis mus der Volksverdummung. Zunächst wird ein Popanz aufgeblasen: «Was will Russland? Es will seinen Einfluss
+**im Nahen Osten und in Osteuropa ausbauen, und es will auf Augenhöhe mit den USA auf die internationale**
+**Bühne zurückkehren.» Eine scheinbar drängende Frage wird gestellt und mit einer hanebüchenen These be-**
+antwortet. Eine Behauptung, der jede Begründung durch Indizien, Fakten oder gar Beweise fehlt. Aber diese
+These, diese Behauptung wird gebraucht, um Russland in die Ecke des Aggressors zu stellen, eines Aggressors,
+der aus reiner Machtgier, aus gekränkter Eitelkeit – «Kaum etwas hat die russische Führung so verärgert wie
+**die Aussage des US-Präsidenten Barack Obama aus dem Jahr 2014, wonach Russland nur eine ‹Regionalmacht›**
+**sei – seither arbeitet der russische Präsident Wladimir Putin hartnäckig daran, das Gegenteil zu beweisen» –**
+die Welt destabilisiert und ganze Regionen in Krieg und Chaos stürzt.
+Nur durch die Einordnung Russlands als völlig durchgeknallter Akteur auf der Weltbühne ist es möglich, die
+Lügen und Verdrehungen, die nun folgen, und die daraus zu ziehende Konsequenz, diesen Akteur durch Krieg
+in seine Schranken zu weisen oder gar ihn völlig auszuschalten, als glaubhaft und logisch darzustellen.
+Gleich einer der ersten Sätze wirft Russland mehrere Völkerrechtsverletzungen vor und zieht eine wahnwitzige
+Schlussfolgerung: **«Dafür sind ihm, wie sich in diesen Tagen wieder zeigt, fast alle Mittel recht. Russland**
+**schreckt in Syrien nicht einmal vor Bombardements auf zivile Wohngegenden zurück, trifft dabei auch Kran-**
+**kenhäuser, es vertreibt die sunnitische Bevölkerung, verstärkt die Flüchtlingsbewegungen – und destabilisiert**
+**auf diese Weise Europa und die Türkei.»**
+Nach dieser Dämonisierung des Gegners, der sich an keine Regeln hält, dem menschliches Leid gleichgültig, ja
+geradezu willkommen ist zur Durchsetzung seiner Ziele, wird die eigene Schwäche bejammert: «Dass mit Russ **land dennoch wieder zu rechnen ist, liegt allein an der Entschlossenheit und dem strategischen Geschick der**
+**russischen Führung – und am Versagen des Westens. Denn Russland ist immer nur so stark, wie der Westen**
+**schwach ist. Europa und die USA haben auf Putins aggressives Vorgehen keine Antwort, weil sie keine klare**
+**Strategie haben. Sie können sich nicht mal über gemeinsame Ziele verständigen.»**
+Der eigenen Führung werden Schwächen und Fehler in der Vergangenheit attestiert, ohne die die angebliche
+Bedrohungslage nicht entstanden wäre, die aber auch als Mahnung, in der Zukunft Russland mit mehr Härte
+entgegenzutreten, gedacht ist: «In Syrien beispielsweise haben es die USA vor zwei Jahren unterlassen, eine
+**Flugverbotszone im Norden des Landes einzurichten und jene moderaten Rebellen massiv zu unterstützen,**
+**die sowohl gegen den syrischen Präsidenten Baschar al-Assad als auch gegen den IS kämpften. So hätte die**
+**Massenflucht am ehesten verhindert werden können.»**
+Dass keine dieser Behauptungen einer genaueren Betrachtung standhält, verwundert ebenso wenig, wie es geradezu selbstverständlich ist. Weder gibt es Beweise dafür, dass Russland absichtlich ‹Wohngegenden› wie auch
+Krankenhäuser bombardiert, noch ist es für eine Verstärkung der Fluchtbewegung ursächlich verantwortlich.
+So waren bereits vor Eingreifen Russlands in den Krieg in Syrien 4 Millionen Menschen aus dem Land geflohen,
+und der grosse Flüchtlingsstrom nach Europa setzte bereits im Sommer 2015 ein, Monate bevor Russland mit
+seinen Bombenangriffen begann.
+Keine Propaganda über Syrien ohne die Forderung nach einer Flugverbotszone. In diesem Zusammenhang tauchen dann auch immer wieder ‹jene moderaten Rebellen› auf, die es gilt ‹massiv zu unterstützen›, da sie ‹sowohl
+**gegen den syrischen Präsidenten Baschar al-Assad als auch gegen den IS kämpften›. Pech nur, dass es diese**
+moderaten Rebellen nicht gibt und dass es sie auch ‹vor zwei Jahren› schon längst nicht mehr gab.
+Eine aufmerksame Beobachterin der Vorgänge in Syrien, dazu noch die einzige deutsche Journalistin, die immer
+wieder in das zerstörte Land reist und dorthin beste Beziehungen auch zur Opposition hat, Karin Leukefeld,
+schreibt in ihrem Buch ‹Flächenbrand – Syrien, Irak, die arabische Welt und der Islamische Staat› auf Seite 36
+zu den Verhältnissen zur Mitte des Jahres 2014:
+**«Alle Beobachter bestätigten allerdings, dass es ‹moderate bewaffnete Gruppen› in Syrien nicht mehr gibt.**
+**Kämpfer der ‹Freien Syrischen Armee› haben längst aufgegeben und lokale Waffenstillstände geschlossen.**
+
+
+-----
+
+**Andere haben sich – teilweise auch als Flüchtlinge nach Europa – abgesetzt. Wieder andere haben sich der**
+**Nusra-Front oder ISIS angeschlossen. Diese beiden Gruppen bezahlen und bewaffnen ihre Kämpfer dank**
+**mächtiger Geldgeber gut.»**
+Den Spiegel stören allerdings Tatsachen eher wenig. Man hat sich eine Aufgabe gestellt, und die gilt es zu erfüllen.
+Es gilt die Bevölkerung aufzuhetzen, ihr Angst zu machen um Aggressionen zu wecken. So werden denn auch
+dem russischen Premierminister Medwedew seine Warnungen vor einem neuen ‹kalten Krieg› auf der Münchner Sicherheitskonferenz, im Munde herumgedreht und zu Drohungen umgedeutet, die «dasselbe Ziel (haben)
+**wie die russischen Kampfflugzeuge, die über Syrien deutsche ‹Tornados› beschatten oder in der Nähe des**
+**Luftraums von Nato-Staaten operieren.»**
+Mit der Erwähnung der deutschen Tornados und deren ‹Beschattung› durch russische Kampfflugzeuge, soll die
+Bedrohung für die einzelne Leserin, den einzelnen Leser bedrohlicher werden, näher heranzurücken, ja zu dem
+Gefühl führen, persönlich bedroht zu sein. In den fünfziger Jahren versetzte man den deutschen Spiessbürger
+mit dem Ruf: ‹Die Russen kommen›, in Angst und Schrecken.
+Dabei stört den Spiegel weder, dass sich die deutschen Tornados völkerrechtswidrig in syrischem Luftraum aufhalten und Syrien oder sein Verbündeter Russland durchaus das Recht hätten, dieser Aggression durch Abschuss
+der Flugzeuge zu begegnen, noch erfahren die Mitglieder der Spiegel-Glaubens-Gemeinschaft, dass sich die
+russischen Kampfflugzeuge, die ‹in der Nähe des Luftraums von Nato-Staaten operieren› völlig legal in internationalem Luftraum befinden.
+**«Es sind Gesten der Einschüchterung, die den Westen davon abhalten sollen, den russischen Machtansprüchen**
+**entgegenzutreten.»**
+Weiche ängstliche ja feige Politiker, die durch den Spiegel auf Linie gebracht werden müssen: «Die Drohungen
+**des Kreml, die strategischen Niederlagen gegen Putin, und die Angst vor einer kriegerischen Konfrontation**
+**verstärken nun bei einigen im Westen den Wunsch, mit Russland um jeden Preis einen Ausgleich zu finden.**
+**Manche deutschen Politiker möchten die Sanktionen ohne Gegenleistung aufheben.»**
+So hat das Blatt denn auch gleich wohlfeile Ratschläge bereit: «Die Lehre aus Syrien und der Ukraine muss im
+**Gegenteil lauten: Alle Versuche, Russland durch Annäherung und Umschmeichelung zum Einlenken zu**
+**bewegen, sind gescheitert. Putin würde sich nur von einem glaubwürdigen Drohszenario des Westens be -**
+**eindrucken und zur Kooperation bewegen lassen.»**
+Ein ‹Drohszenario› aber, wie immer es auch aussehen mag, beinhaltet, ja muss beinhalten, dass im Bedarfsfall
+diese Drohung auch wahrgemacht wird. Wenn militärische Drohungen gegen Russland aufgebaut werden, etwa
+durch Mittelstreckenraketen in Polen oder durch eine massive Aufrüstung an den Grenzen zu Russland, dann
+ist der Gebrauch dieser Waffen auch im Bereich der Möglichkeit, wenn nicht gar im Bereich der Wahrscheinlichkeit.
+
+Die Frage stellt sich: Will der Spiegel Krieg mit Russland? Will er die gewaltsame Zerstörung, wie Michail
+Chodorkowski es kürzlich so schön ausdrückte, ‹physisch oder politisch›?
+Die Frage, denke ich, muss mit einem klaren «ja» beantwortet werden. Natürlich will der Spiegel den Krieg nicht
+hier, nicht in Deutschland. Welcher Spiegelredakteur möchte sich schon sein kuschelig warmes Büro durch
+Bomben zerstören lassen, sein schönes Gehalt, seine Umsatzbeteiligung und seine komfortable Altersver sorgung durch einen Krieg gefährden. Dieser Krieg soll dort ausgefochten werden, wo er hingehört, nach Asien,
+Afrika und Südamerika. Dort wo die Menschen leben, die uns, dem Westen, nicht geben wollen, was doch
+angestammt unser ist. Diesen Krieg sollen die Menschen aushalten, die sich der ‹Weltordnung› – unserer ‹Welt**ordnung› widersetzen.**
+
+Zurück zu Wikipedia und dem Begriff Leitartikel: «Die Redaktion vergibt den Schreibauftrag an das Mitglied,
+**das am kompetentesten die Meinung der Redaktion wiederzugeben vermag …»**
+Die Redaktion befand den stellvertretenden Leiter der Auslandsredaktion, Mathieu von Rohr, für ‹am kom **petentesten›. In Anbetracht dieser Kompetenz der Spiegelredaktion sollte den Lesern des Blattes der Einkaufs-**
+preis zurückerstattet und ihnen stattdessen ein angemessenes Schmerzensgeld gezahlt werden.
+
+
+_Quelle: http://spiegelkabinett-blog.blogspot.de/2016/02/will-der-spiegel-den-krieg-mit-russland.html_
+
+
+-----
+
+-----
+

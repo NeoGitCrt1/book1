@@ -1,0 +1,707 @@
+**L**
+
+**WESEN FREMDER WELTEN**
+
+# FIGU– BESUCHEN DIE ERDE
+
+**Freie**
+
+# ZEITZEICHEN Interessengemeinschaft
+
+**FIGU**
+
+### Aktuelles • Einsichten • Erkenntnisse r
+
+**Erscheinungsweise:** **Internetz: http://www.figu.org** **2. Jahrgang**
+**Sporadisch** **E-Brief: info@figu.org** **Nr. 28, Januar 2016**
+
+###### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+Laut ‹Allgemeine Erklärung der Menschenrechte› vom 10. Dezember 1948, Artikel 19, ‹Meinungs- und Informationsfreiheit›:
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die**
+**Freiheit, Meinungen unangefochten anzuhängen und Informationen und Ideen mit allen**
+**Verständigungsmitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Aussagen und Meinungen müssen nicht zwingend mit dem FIGU-Gedanken-, Interessen-, Lehre- und Missionsgut identisch sein.
+
+#### ISIS plant islamischen Blitzkrieg in Deutschland
+_Posted on Dezember 20, 2015 11:25 pm by jolu, 20.12.2015_
+**Ein IS-Terrorist aus Bremen packt aus: Demnach sollen in Deutschland IS-Anhänger rekrutiert werden, um**
+**eine Art ‹islamischer Blitzkrieg› (Anm. islamistischer Blitzkrieg) zu organisieren. «Sie bereiten etwas vor, das**
+**überall zur gleichen Zeit passiert.»**
+Die Gefahr einer gross angelegten Terrorattacke in Deutschland steigt offenbar. Dies geht aus einem Geständnis
+hervor, welches der nach Deutschland zurückgekehrte IS-Terrorist Harry S. (ein Konvertit aus Ghana) gegen über der Staatsanwaltschaft in Bremen machte. Demnach sei in Deutschland eine grosse Aktion geplant.
+
+_Bild aus Terrorvideo: Harry S. (rechts) – siehe Video unten_
+
+SPIEGEL online berichtet ausführlich über den Fall – jedoch nur in englisch. Es ist äusserst
+unverständlich, dass die Story nicht auf Deutsch erschienen ist. Will man die Bevölkerung
+nicht verunsichern? Übertriebene Political Correctness?
+
+
+**Freie**
+
+
+-----
+
+Zerohedge bewertet die Aussagen dort als ‹Vorbereitung zum islamischen Blitzkrieg› (Anm. islamistischen Blitzkrieg) – und verweist auf die Gefahr, dass Terroristen als Flüchtlinge getarnt leicht nach Deutschland einreisen
+könnten – was im Falle von mindestens zwei Paris-Attentätern bereits passiert ist. In einem E-Book gibt es
+genaue Anleitungen, wie man sich als ISIS-Kämpfer verhalten soll.
+Vor diesem Hintergrund gewinnt eine Karte von Berlin neue Brisanz, in der von der ISIS angeblich wichtige
+Angriffsziele in Deutschlands Hauptstadt markiert worden sind. Der IS-Mann wurde mit der Karte an der
+türkischen Grenze erwischt.
+Die Aussagen des Bremers mit Ghana-Herkunft sind in diesem Zusammenhang höchst beunruhigend. Demnach lebte IS-Mitglied ‹Harry S.› zunächst einige Jahre in der Hansestadt, wurde straffällig (Supermarktüberfall), landete im Knast und fiel dann nach seiner Freilassung Salafisten in die Hände, die ihn zur ‹Ausbildung›
+nach Syrien ins Terrorcamp schickten.
+Nach seiner Rückkehr aus Syrien wurde er am 20. Juli auf dem Bremer Flughafen verhaftet. Im Gefängnis hat
+er nun gegenüber den deutschen Behörden ausgepackt. Laut seiner Aussage werden sämtliche IS-Mitglieder mit
+europäischem Bezug angefragt, ob sie sich für eine wichtige Aktion in Europa melden würden. Es sagte wörtlich:
+**«Sie bereiten etwas vor, das überall zur gleichen Zeit passiert.» Eine Art ‹islamischer Blitzkrieg› (Anm. islamisti -**
+scher Blitzkrieg)?
+Harry S. wurde von der IS in Syrien nach eigenen Angaben speziell für den Selbstmordeinsatz gedrillt. In Syrien
+hatte er nicht gekämpft, sondern er war Bestandteil einer 50 Mann starken Selbstmordeinheit, die auch für den
+Häuserkampf ausgebildet wurde.
+Angeworben wurde er von René Marc S., in der deutschen Szene bekannt als ‹Emir von Gröpelingen›, einer kleinen
+Stadt in der Nähe von Bremen. In der dortigen Moschee (inzwischen geschlossen) hatten Salafisten nicht nur
+Harry S. rekrutiert, sondern auch 16 andere Männer sowie 11 Kinder zum IS nach Syrien geschickt.
+Die Behörden stufen den Mann als glaubwürdig ein. Seine Aussagen geben einen tiefen Einblick in die Strukturen
+und Strategien des IS. In Syrien traf er auch Mohamed Mahmoud, einen Islamisten aus Österreich und Denis
+Cuspert (auch bekannt als Deso Dogg) – die entgegen anderslautenden Berichten noch leben sollen.
+Harry S. ist kein Unbekannter: Während seines Syrien-Aufenthaltes ist er in mehreren ISIS-Videos aufgetaucht,
+in denen unter anderem auch Merkel gedroht wurde. Das Video zeigt zudem brutale Hinrichtungsszenen von
+angeblich Ungläubigen und den Aufruf zum Heiligen Krieg.
+
+###### Im Herzen Europas beginnt ein Krieg
+Zuvor war bereits ein ISIS-Handbuch aufgetaucht mit dem Titel «Wie man im Westen überlebt: Ein Handbuch
+für Mujahideen». Auf 71 Seiten erklären die Herausgeber detailliert, wie man Europa durch ISIS-Krieger erobern will. Strategie: Nach der Einreise sollen diese erst mal alles tun, um keinen Verdacht auszulösen (sogenannte Schläfer).
+Behörden gehen davon aus, dass die Terrorfibel echt ist. Diese wurde in Form eines E-Book herausgebracht und
+ist im Internet abrufbar. Dort gibt es auch detaillierte Anleitungen zum Bombenbau und Waffenschmuggel.
+Der Inhalt der Veröffentlichung ist teilweise krude, aber auch extrem beängstigend. Die Terror-Anleitung
+beginnt verheissungsvoll mit der Drohung: «Im Herzen Europas beginnt ein Krieg.»
+Um sich für diesen Krieg zu rüsten raten die IS-Terrorexperten, keinen Bart wachsen zu lassen, um sich nicht
+verdächtig zu machen. Frauen, die einen Hijab tragen, sollen keinen schwarzen Stoff wählen, weil sie dann an
+Flughäfen häufiger durchsucht würden.
+Vorbild für die Attentate, zu denen das Buch anstiftet, ist der Angriff auf die Satirezeitschrift ‹Charlie Hebdo›
+Anfang des Jahres in Paris. Das Attentat wird ausführlich beschrieben und als Blaupause für künftige Anschläge
+bezeichnet. Darüber hinaus gibt es Praxistips für den Waffenschmuggel im Auto. Zufällig wurde in Bayern ein
+solcher Waffenschmuggel kurz vor den Paris-Attentaten entdeckt. Gewehre und Sprengstoff waren im Auto –
+wie in der Anleitung beschrieben – versteckt.
+
+_Quelle: www.mmnews.de bzw. http://wahrheitfuerdeutschland.de/isis-plant-islamischen-blitzkrieg-in-deutschland/_
+
+
+-----
+
+_© AFP 2015/ John Macdougall 18:01 21.12.2015_
+**Deutschlands Kanzlerin hat die Flüchtlingslage nicht mehr im Griff. Dabei könnte das Chaos der Personen-**
+**kontrolle der Migranten von Terroristen ausgenutzt werden – dann dürfte Merkels Kanzlerschaft Geschichte**
+**werden, schreibt die Welt.**
+Die Mitglieder des Islamischen Staats (auch Daesh genannt; Anm. Islamistischer Staat) haben nach Angaben
+der deutschen Sicherheitsbehörden Zehntausende ‹echte› Pässe beschafft – nun könnten sie leichter nach Europa
+kommen. Wenn es deswegen zu Terroranschlägen in Deutschland kommen sollte, dürfte das Merkels politischer
+Kariere ein Ende setzen.
+Merkels ‹Willkommenspolitik› ist inzwischen ein sicherheitspolitischer Albtraum geworden. Und er ist noch
+lange nicht vorbei. Wie der Autor betont, hat es Personenkontrollen des Flüchtlingszustroms nach Deutschland
+während der letzten Monate nur in zehn Prozent der Fälle gegeben. Das lasse den Kontrollverlust der deutschen
+Behörden umso deutlicher werden.
+Laut ‹Welt am Sonntag› sind sich die Sicherheitsbehörden in Deutschland sicher, dass gefälschte Dokumente
+für deutsche Grenzer kein Problem sind. Die Frage werde allerdings dringender, wenn es um echte Pässe gehe,
+die illegal in die Hände der IS-Anhänger gelangt seien.
+Deutsche Experten meinen, die Sache mit den Pässen könnte man als Provokation bewerten. Den Terroristen
+gehe es darum, zu beweisen, dass sie die europäische Gastfreundschaft missbrauchen können. Trotzdem fragt
+sich ‹Die Welt›, wie weit solche Provokationen gehen könnten, bis die deutsche Regierung eine Verschärfung
+der Sicherheitsmassnahmen in Erwägung ziehe. Denn wenn es zu einem Terroranschlag komme, werde die
+Bevölkerung das mit der aus dem Ruder geratenen Politik der ‹offenen Tür› in Zusammenhang bringen, so ‹Die
+Welt›.
+«Wer würde in so einem Fall für die Regierung Merkel noch die Hand ins Feuer legen? Insofern ist der ‹humanitäre Imperativ› Angela Merkels ein ungedeckter Wechsel auf den weiteren Fortbestand ihrer Kanzlerschaft –
+auf eine Art liegt ihr politisches Schicksal jetzt auch in den Händen des IS», schlussfolgert der Autor.
+
+_Quelle: de.sputniknews.com/politik/20151221/306657598/merkel-is-migranten.html_
+
+
+-----
+
+_Politik 07:46 21.12.2015(aktualisiert 07:59 21.12.2015)_
+**Als ‹unlogisch und für Europa erniedrigend› bewertet Sergej Naryschkin, Vorsitzender der Staatsduma (Unter -**
+**haus), die von der Europäischen Union beschlossenen Sanktionen gegen Russland.**
+«Die Haltung Brüssels (uns Washingtons, das dieses gesamte Projekt leitet) zum heutigen Russland steht in der
+Reihe der strategischen Fehlentscheidungen», heisst es in seinem am Montag in der Tageszeitung ‹Iswestija› veröffentlichten Artikel. «Die Idee, mit uns in der Sprache der gesetzwidrigen Sanktionen zu sprechen, ist unlogisch
+und für die europäische Diplomatie eindeutig erniedrigend.»
+Der Rat der ständigen Vertreter der EU-Länder bei der Europäischen Union hatte zuvor die Verlängerung der
+Russlandsanktionen um ein weiteres halbes Jahr gebilligt. Der endgültige Beschluss soll am Montagnachmittag
+bei einer schriftlichen Prozedur getroffen werden, meldet RIA Novosti.
+Wie Naryschkin ausserdem betont, werden die Sanktionen im Namen der Völker beschlossen und verlängert,
+deren Zustimmung gar nicht gefragt wurde, «obgleich gerade sie die wirtschaftlichen Folgen werden tragen
+müssen.»
+«Allein schon die Art und Weise, solche Beschlüsse ohne Diskussion durchzusetzen, ist für den Stand der
+Demokratie in der EU kennzeichnend», so der Staatsduma-Chef.
+
+_Quelle: de.sputniknews.com/politik/20151221/306631219/russland-sanktionen-unlogisch-erniedrigend.html#ixzz3uwyrfXj5_
+
+#### Viktor Orbán zur aktuellen Lage und über Werner Faymann
+_20. Dezember 2015_
+
+_Die Redaktion von Info-DIREKT dankt der Ungarischen Botschaft in Wien für die Zurverfügungstellung der deutschen_
+_Übersetzung dieser wichtigen Rede des ungarischen Ministerpräsidenten. Wir zitieren hier einige programmatische_
+_Ausschnitte, die gerade wegen der immer wieder von offizieller österreichischer Seite gegen Ungarn geführten Polemik_
+_bedeutsam sind, die letztens dazu geführt hat, dass Orbán die Vorgangsweise seines österreichischen Amtskollegen_
+_Faymann als ‹Erpressungsversuch› und ‹nicht den europäischen Verhaltensnormen entsprechend› bezeichnet hat [1]._
+_Unseren Lesern wird es nicht schwerfallen, anhand der folgenden Zitate Orbáns zu beurteilen, wer für welche ‹Werte›_
+_eintritt und welche Zukunftsoptionen für Ungarn und für ganz Europa vom ungarischen Ministerpräsidenten hier_
+_angesprochen werden._
+
+
+-----
+
+_Viktor Orbán und Werner Faymann (Quelle: www.kormany.hu/en/the-prime-minister/photo-galleries, tn726c406.jpg, Aus-_
+_schnittvergrösserung)_
+
+#### Auszüge aus Viktor Orbáns Rede auf dem 26. Kongress des Fidesz – Ungarischen Bürgerbundes am 13. Dezember 2015
+Hier ist der Moment, uns bei den Ungarn dafür zu bedanken, dass sie unsere Heimat zu einem Land gemacht
+haben, in dem die nationalen Angelegenheiten wieder eine Existenzberechtigung besitzen.
+Wir können stolz darauf sein, dass Ungarn noch immer ein Land ist – andernorts ist dies schon aus der Mode
+gekommen –, wo Denker, Wissenschaftler, Künstler, Ingenieure, Ärzte und Priester nationaler Gesinnung jene
+schwere Bürde auf sich nehmen, die man als die Verantwortung der Menschen des Geistes zu nennen pflegt.
+Das weiss ein jeder, spürt es auch auf der eigenen Haut, dass unsere politische Gemeinschaft die Arbeit anders
+angegangen hat, anders politisiert, als dies vor 2010 hierzulande Sitte war, und anders politisiert, als es derzeit
+in Europa Sitte ist. Das wichtigste ist, dass wir die Menschen anhören. Wir hören ihnen zu, damit wir Punkte
+der Zustimmung zwischen den Menschen und der Regierung erschaffen können. In schwerwiegenden Ange legenheiten kann man ohne eine solche Zustimmung nicht auf demokratische Weise regieren. Denkt nur an die
+Angelegenheit der Einwanderung.
+Wir kennen die Kräfteverhältnisse, wir kennen den Bizepsumfang der anderen und auch unseren eigenen, doch
+lassen wir uns nicht erpressen, und geben nicht automatisch dem Recht, weil der andere ein grösseres Megaphon
+in der Hand hält.
+Unser drittes grosses Ziel ist, dass die Ungarn nicht in Angst leben sollen müssen. Sicherheit und gesetzliche
+Ordnung, strenge, aber angemessene Rechtsvorschriften, eine starke, gut ausgebildete, junge Polizei, ent schlossene Terrorabwehr, souveräner Katastrophenschutz. Auf diese Weise können wir das Land schützen. Wir
+schützen unsere Grenzen, beschützen die ungarischen Menschen vor den Kriminellen, den Terroristen, den
+illegalen Einwanderern.
+Man kann heute nicht mit Gültigkeit über die Situation unserer Heimat sprechen, wenn wir nicht über die
+Situation Europas sprechen. Wir sehen, dass wir überrannt werden, Europa steht unter einer Invasion, es sieht
+aus, wie ein Schlachtfeld, und was wir bisher gesehen haben, ist die Spitze des Eisbergs. Wie viele werden noch
+losgehen, wie viele wollen nach Europa? Ich glaube, Millionen, ja Zehnmillionen. Und wir sehen auch, wie die
+
+
+-----
+
+Union dahin treibt, schwach, unsicher, unfähig ist, leidet anstatt zu handeln. Die linke Elite Europas und führende
+Politiker zahlreicher Länder zerbrechen sich den Kopf darüber, wie sie die Aufnahme der Massen der Einwanderer lösen sollen, anstatt endlich Schritte zu unternehmen, um die Flut aufzuhalten. Eine Konferenz folgt der
+anderen, wir wissen es, wir haben die Erfahrung gemacht, die Konferenz ist die Versammlung von wichtigen
+Menschen, die alleine nichts tun können, doch gemeinsam immer beschliessen können, dass es eigentlich auch
+nichts zu tun gibt. Adenauer sagte einmal: «Die Zehn Gebote Gottes sind deshalb so eindeutig, weil sie nicht
+erst auf einer Konferenz beschlossen wurden.» Dabei ist die Situation einfach und offensichtlich: Es ist für jeden
+vernünftig denkenden Menschen klar, dass Europa so viele Menschen nicht aushält, so vielen Menschen keine
+Arbeit geben kann, keine Unterkünfte, keine soziale und medizinische Versorgung, keinen Unterricht, keine
+Bildung, keinen Verkehr bieten kann. Europas Wirtschaft und sein Versorgungssystem bricht unter einer derart
+grossen Last zusammen. Viel schneller als man das heute annehmen würde.
+Doch darüber hinaus brauen sich dunklere Wolken am Horizont zusammen. Die Völkerwanderung gefährdet
+die Sicherheit des europäischen Menschen, da sie eine exponentiell zunehmende Terrorgefahr bedeutet. Und
+schon allein ein Terrorist ist zuviel. Zu Tausenden, Zehn- und Hunderttausenden kommen auf dem Gebiet
+Europas Menschen an, über die wir nichts wissen. Woher sie in Wirklichkeit kommen, wer sie sind, was sie
+wollen, ob sie eine Ausbildung erhalten haben, ob sie über Waffen verfügen, ob sie Mitglied in irgendeiner
+Organisation sind? Hinzu kommt noch, dass die Völkerwanderung die Kriminalität ansteigen lässt. Hierüber
+darf man in Europa nicht sprechen, das ist nicht PC, bleibt aber dessen ungeachtet eine Tatsache: Wo sich in
+Europa viele Einwanderer niedergelassen haben, dort ist die Kriminalität sofort angestiegen. Es gibt mehr
+Raubüberfälle, mehr Körperverletzungen, mehr Gewalt. Ob es uns gefällt oder nicht, meine Freunde, dies sind
+die Tatsachen. Wir dürfen auch darüber nicht zur Tagesordnung zurückkehren, dass die Völkerwanderung, die
+massenhafte Einsiedlung von aus anderen Zivilisationen hier Ankommenden eine Gefahr für unsere Kultur,
+unsere Lebensweise, unsere Gebräuche, unsere Traditionen darstellt. In Windeseile bauen sich Parallelgesellschaften auf. Das glaubt nur der eingebildete europäische Mensch, dass unsere europäische Lebensweise auch
+andere als wertvoller und attraktiver ansehen als ihre eigene. Gerade im Gegenteil! Sie betrachten die ihrige als
+wertvoller, stärker und vitaler als unsere, sie haben nicht im Geringsten vor, die ihre aufzugeben, unsere zu übernehmen und sich unter uns zu integrieren.
+Wenn auch die Oberfläche ruhig ist – und bis in die letzte Zeit war sie es –, so wird in der Tiefe an der Welt der
+Parallelgesellschaft gebaut, die langsam, aber sicher, von Schritt zu Schritt, entsprechend der Ordnung der Natur
+unsere Welt zurückdrängt, sie in die Minderheit drängt, und gemeinsam mit ihr auch uns, auch unsere Kinder
+und unsere Enkel. Wenn es so weitergeht, dann werden wir Europa verlieren. Die führenden europäischen
+Politiker senden trotzdem immer weitere Einladungen aus, anstatt endlich bestimmt und ehrlich mitzuteilen,
+dass auf sie hier überhaupt nicht das wartet, womit sie rechnen.
+Wie konnte dies passieren? Es ist deutlich sichtbar, dass das, was geschieht, kein Zufall, kein Unfall, keine Verkettung unbeabsichtigter Folgen ist, sondern ein geplanter und gesteuerter Prozess. Eine bizarre grosse Koalition
+ist entstanden: Die Koalition der Menschenschlepper, der Menschenrechtsaktivisten und der Brüsseler Bürokraten. Diese Koalition arbeitet nicht daran, die Völkerwanderung zu beenden, ganz im Gegenteil: Sie arbeitet
+daran, damit sie die Migranten sicher, schnell und legal hierher transportieren und unter uns ansiedeln kann.
+Es ist ein zweifelhafter Ruhm, dass unter jenen, die dies ersonnen haben und die die Fäden ziehen, offen,
+zugegebenermassen und als Programmgeber auch unser Land durch einen ihrer berühmten und berüchtigten
+Söhne [Anm.d.Red.: Gemeint ist George Soros] vertreten ist.
+Wie sind wir an diesen Punkt gelangt? Warum und wie ist Europa schutzlos geworden? Warum kann es die
+nacheinander aufkommenden Krisen nicht voraussagen und diesen vorbeugen? Warum ist es nicht in der Lage,
+sich wenigstens gegen die finanziellen, wirtschaftlichen, demographischen und die Einwanderungskrisen
+zumindest zu verteidigen? Wir wissen, dass die europäische Wirtschaft verkalkt ist, wir wissen auch, dass wir
+uns in einer demographischen Talfahrt befinden, wir sind uns auch über die schwerwiegenden Anomalien des
+europäischen Superstaates im Klaren. Dies sind natürlich Probleme, schwere Probleme, aber keine fatalen, man
+kann sich von ihnen erholen, jedoch ist die Europa tatsächlich gefährdende verhängnisvolle Krankheit viel eher
+geistiger Natur. Tief unter den Problemen befindet sich ein gemeinsamer Ursprung: Europa übernimmt nicht
+die Verantwortung für sich selbst. Der europäische Geist und seine Leute glauben heute an oberflächliche und
+sekundäre Dinge: An die Menschenrechte, an den Fortschritt, an die Offen-heit, an Familien neuer Art, an die
+Toleranz. Dies sind schöne und nette Dinge, doch sind sie in Wirklichkeit nur sekundär, weil sie nur Derivate
+sind. Ja, Europa glaubt heute an sekundäre Dinge, glaubt aber nicht daran, woher und woraus diese Dinge
+stammen. Es glaubt nicht an das Christentum, es glaubt nicht an die nüchterne Vernunft, es glaubt nicht an die
+
+
+-----
+
+militärischen Tugenden und es glaubt nicht an den nationalen Stolz. Es glaubt nicht daran, wodurch es erschaffen
+wurde und was es einst selbst war, es glaubt nicht daran, engagiert sich nicht dafür, argumentiert nicht, kämpft
+nicht und vor allem bringt es keine Opfer dafür.
+Es will weder daran denken noch darüber sprechen, wer es in Wirklichkeit ist, und da es nicht die Verantwortung
+für sich selbst übernimmt, wagt es auch nicht, eine Unterscheidung zu treffen. Jedoch ohne dass es sich selbst
+von anderen unterscheiden würde, verliert es notwendigerweise auch sich selbst. Dabei ist es klarer als der
+strahlende, unbewölkte Himmel, dass Europa das antike Hellas ist und nicht Persien, Rom und nicht Karthago,
+nicht das Christentum und nicht das Kalifat. Das bedeutet keinerlei Rangordnung. Die Tatsache, dass eine
+europäische Zivilisation existiert, bedeutet noch nicht, dass sie besser oder schlechter als andere wäre; es be deutet soviel, diese sind wir, und jene seid ihr. Die europäische Zivilisation zu unterscheiden, abzugrenzen und
+die Verantwortung für sie zu übernehmen, bedeutet nicht, dass man sich abschotten müsste, es bedeutet nur
+soviel, – doch das bedeutet es –, dass unsere Offenheit nicht dahin führen darf, dass wir uns auflösen, wir uns
+abschaffen, wenn wir mit jenen Fremden in Kontakt kommen, die wir aufnehmen.
+Europa ist ein alter, aber fruchtbarer Kontinent. Es hat schon viele erschreckende Gedanken erlebt. Es gab
+welche, aus denen Probleme, ja Tragödien geworden sind, und auch solche, aus denen nicht. Probleme und
+Tragödien sind dann aus ihnen geworden, wenn sich Europa als schwach erwiesen hatte und den verrückten
+Gedanken nicht widerstehen konnte. Es konnte zum Beispiel nicht widerstehen, als sich der Gedanke verbreitete,
+dass man die Menschen in Rassen einteilen sollte und sie auf Grund ihrer Genetik klassifizieren müsste. So wurde
+Europa zur Heimstatt der Rassentheorie und des Nationalsozialismus. Es konnte auch dann nicht widerstehen,
+als es durch den Gedanken infiziert wurde, dass man die Menschen auf Grund ihrer Klassenlage einteilen und
+aus einem jeden Menschen einen identischen Homo Sovieticus schnitzen sollte. So wurde Europa zur Heimstatt
+der Theorie vom Klassenkampf und des Kommunismus. Heute erscheint all das als Absurdität, aber, meine
+Freunde, damals erschien es nicht so. Ja, es haben ernsthafte Leute mit ernstem Gesicht, in der Gewissheit ihrer
+moralischen Überlegenheit ganze Bibliotheken von Literatur hierzu niedergeschrieben. Heute sehe ich erneut
+Heere ernsthafter Leute, die mit ernstem Gesicht und in der Gewissheit ihrer moralischen Überlegenheit die
+europäischen Nationen in Klammern setzen wollen und für die Vision der Europäischen Vereinigten Staaten
+agitieren. Das wird kein gutes Ende nehmen!
+Die europäische Linke – schon wieder die Linke – glaubt, Europa würde dadurch glücklich werden, wenn wir
+die ihm eine Seele gebenden Nationen verschwinden lassen und an dessen Stelle einen europäischen Superstaat
+stellen. In Brüssel gefällt dieser Plan vielen, und viele arbeiten auch an seiner schleichenden Umsetzung. Jedoch
+ist jenes Europa und jene Union, die wir lieben, und der wir mit gemeinsamen Willen beigetreten sind, das
+Europa der Nationen, es beruht auf dem Zusammenwirken, dem gegenseitigen Respekt und auf der gemein samen Meinung der Nationen, besteht nicht aus von oben kommenden Diktaten und Brüsseler Anweisungen.
+Jetzt will man zum Beispiel dort sagen, mit wem wir, Ungarn, hier zusammenleben sollten. Diese Situation, in
+der von ausserhalb Ungarns andere uns unsere Zukunft diktieren wollen, kennen wir bereits sehr gut, und wir
+wollen sie nicht wieder haben. Deshalb hat Ungarn am Europäischen Gerichtshof die verpflichtende Quote
+angegriffen, und soweit ich es sehe, sind wir damit nicht allein. Wir leiden nicht an Grossmannsucht, wir sehnen
+uns nicht nach der Rolle der europäischen Grossmächte, wir wissen, wer wir sind, und wo unser Platz ist. Wir
+wissen, dass das Schicksal Europas auch dann von den Entscheidungen der europäischen Grossmächte bestimmt
+wird, wenn diese jetzt auch im Deckmantel der Union erscheinen, doch müssen wir offen sagen, die Zwangseinsiedlung gefällt den ungarischen Menschen nicht.
+Aus diesem Grunde sind anderthalb Millionen Unterschriften gegen die Quote zusammengekommen, und aus
+diesem Grunde danke ich Euch, dass ihr helft, zu allen Menschen zu gelangen, denn Ihr könnt sehen, wir können
+das sinnlose und unberechtigte Diktat nur aufhalten, indem wir zusammenwirken. Wir sagen von hier aus all
+denen, die in einem freien und sicheren Europa leben wollen, sie mögen die Petition gegen die Quote unterschreiben; wer nicht in erhöhter Terrorgefahr leben will, soll sie unterschreiben; wer keine sich verschlechternde
+öffentliche Sicherheit will, soll sie unterschreiben; wer Verantwortung für seine Kinder, seine Nachkommen verspürt, soll sie unterschreiben; wer will, dass auch die nachkommenden Generationen Arbeit, eine eigene euro päische Kultur und ein eigenes europäisches und ungarisches Leben haben sollen, soll sie unterschreiben und
+sie auch von anderen unterschreiben lassen. Erinnert Euch daran, wie stark wir wegen des ungarischen Mediengesetzes kritisiert worden sind. Und heute eröffnet sich vor unseren Augen im Zusammenhang mit der Angelegenheit der Migranten im Westen eine gesteuerte Medienwelt. Ich hätte nie gedacht, dass ich einmal hier stehen
+werde und sagen muss, die Gedanken-, Rede- und Pressefreiheit ist in Ungarn bunter, breiter und tiefer als westlich von uns.
+
+
+-----
+
+_[1] Gestrige Presseaussendung der ungarischen Presseagentur MTI (Übersetzung durch Info-DIREKT): «Zu Äusse -_
+_rungen von Bundeskanzler Werner Faymann, dass man Mitgliedstaaten, welche die Aufnahme von Flüchtlingen nicht_
+_akzeptieren, die EU-Mittel kürzen solle, meinte Orbán, dass dieser ‹Erpressungsversuch› des österreichischen Bundes -_
+_kanzlers nicht europäischen Verhaltensnormen entspreche. Orbán fügte hinzu, dass dies nicht das erste Mal gewesen_
+_sei, dass Faymann versucht habe, Ungarn und andere Länder, wo die Freiheit der Meinungsäusserung noch hoch-_
+_gehalten wird, zu ‹erpressen›.» – vgl. auch: wirtschaftsblatt.at/home/nachrichten/europa/4889930/Flüchtlinge_Un-_
+_garns-Viktor-Orban-kritisiert-Faymann-Vorstoss_
+
+_Quelle: http://www.info-direkt.eu/viktor-orban-zur-aktuellen-lage-und-über-werner-faymann/_
+(Erlaubnis liegt vor)
+
+_© Sputnik/ Tatiana Gritzayeva; Sinowjew-Klub_
+_15:38 20.12.2015(aktualisiert 13:26 21.12.2015)_
+_Timofej Sergejzew_
+
+**Wir müssen das Problem der eigenen Sicherheit und der Sicherheit der gesamten Welt mit Präventivmass -**
+**nahmen lösen, wobei ausserhalb der Grenzen Russlands vorgegangen werden muss, schreibt das Mit-glied des**
+**Sinowjew-Klubs der Nachrichtenagentur Rossiya Segodnya, Timofej Sergejzew.**
+Das Verschwinden der Sowjetunion von der historischen Bühne eröffnete den Weg zu einem neuen Militär konflikt mit dem europäischen Kontinent im Zentrum. Was die USA einst in Korea und Vietnam taten, machten
+sie dann in Jugoslawien, Afghanistan und im Irak.
+Die USA beseitigten Libyen, unternahmen den Versuch, Ägypten und die Maghreb-Staaten zu beseitigen und
+versuchen weiterhin, Syrien zu beseitigen. Es werden intensive Anstrengungen zur Destabilisierung der Türkei
+unternommen – ein Mitglied der Nato, das auch in die EU will. Die Bevölkerung der Gebiete, denen die Staatlichkeit genommen wurde, soll sich in die durch ‹Humanismus› geschwächten europäischen Staaten begeben
+und sie noch mehr schwächen.
+In den ‹befreiten› Gebieten soll ein neues Subjekt der Militärgeschichte entwickelt werden, das seine aggressive
+Aufmerksamkeit nach Russland richten wird. Gemäss dem Szenario des Beginns des Zweiten Weltkriegs bilden
+die USA, wie Grossbritannien in den 1930er Jahren, einen Gegner für das bis heute nicht zerstörte Russland
+(damals war es Hitler-Deutschland).
+Es wird sorgsam der ‹Islamische Staat› (Anm. Islamistische Staat) gezüchtet. Es wird der Islam dämonisiert, wobei die islamische Gemeinschaft in Russland ins Visier genommen wird. Die Ukraine wird in einen realen Feind
+Russlands verwandelt. Bei bestimmten Anstrengungen können auch Polen und die baltischen Länder in eine
+Militärkampagne gegen Russland hineingezogen werden.
+
+
+-----
+
+Es wird sehr viel Geld in die Schaffung einer Kraft in Russland investiert, die Liebe und Verehrung gegenüber
+den USA predigt. Die antirussische Propaganda erfolgt wie eine grossangelegte militärische Desinformationskampagne. Dabei bereiten sich die USA anscheinend selbst darauf vor, in den Konflikt einzutreten. Natürlich
+werden sie nicht auf dem eigenen Territorium kämpfen. Es wird alles getan, um die aktuelle Raketen-NuklearParität zugunsten der USA zu verschieben. Es werden Konzepte eines nichtnuklearen Präventivschlags gegen
+Russland erörtert.
+Die USA brauchen einen grossen Krieg mit einer minimalen Teilnahme mindestens aus zwei Gründen. Ohne
+Europa zu schwächen, ohne ihm ein Freihandelsabkommen als nächsten Schritt zur Stärkung der transatlantischen Schirmherrschaft aufzudrängen, ist es unmöglich, sich selbst die überaus hohen Aussenschulden zu erstatten. Ohne Europa in einen Konflikt zu versenken, kann die eigene Stärke nicht reproduziert werden (also
+die eigene strategische geopolitische Lage nach dem Zweiten Weltkrieg). Und noch eines – Russland näherte sich
+bei seinem Aufstieg einer für die US-Herrschaft gefährlichen Grenze. Man muss es entweder zerschlagen (was
+bislang nicht gelungen ist) oder es zu einem grossangelegten Krieg auf eigenem Territorium zwingen. Im 20.
+Jahrhundert brachte dieses Schema dem Westen und konkret den USA das gewünschte Ergebnis.
+Frieden in der ganzen Welt war das reale geopolitische Ziel der Sowjetunion. Mit diesem Ziel wurde Deutschland
+geteilt. Mit diesem Ziel wurde das Militärbündnis des Warschauer Pakts als Gegengewicht zur Nato geschaffen.
+In Abwesenheit eines solchen Gegengewichts expandiert heute die Allianz aggressiv.
+Die Sowjetunion betrieb eine grossangelegte Politik zur Unterstützung der Länder der Dritten Welt. Dafür war
+zwar viel Zeit vonnöten, doch heute würde es ohne diese Arbeit der Sowjetunion keine BRICS geben. Das
+militärtechnische Potential Indiens und Chinas wird unvermeidlich in neue regionale und globale Systeme der
+kollektiven Sicherheit mit unserer Teilnahme einbezogen.
+Die Einmischung der USA in die Angelegenheiten Eurasiens wird früher oder später enden – so ist die strategi sche Tendenz des Aufstiegs Eurasiens. Zudem beeilen sich die USA, diesen Aufstieg sowie die Beseitigung der
+uneingeschränkten Möglichkeiten einer solchen Einmischung zu verhindern. Die Zeit läuft gegen die USA, die
+Spannungen nehmen zu.
+Falls wir einen grossangelegten Konflikt mit eigener Teilnahme und unter Einbeziehung des eigenen Territoriums
+nicht zulassen wollen, werden wir unvermeidlich auf die Notwendigkeit stossen, das geopolitische Credo der
+Sowjetunion zum Schutz des Friedens in der ganzen Welt zu erneuern.
+Wir können uns nicht allein mit dem allgemeinen Prinzip der Multipolarität begnügen, weil alleine Multipolarität
+nicht den Frieden im Krieg der Pole garantiert. Die USA drängen die Unipolarität, also die eigene Hegemonie,
+als Friedensgarant auf. Dabei sollte man sich auf sie verlassen, an ihren guten Willen glauben, was angesichts
+der Geschichte des 20. Jahrhunderts und der ersten 15 Jahre des 21. Jahrhunderts unmöglich ist. Vielleicht deswegen brauchen die USA unbedingt eine Verzerrung dieser Geschichte.
+Was heute Terroranschläge heisst, wurde vor dem Grossen Vaterländischen Krieg (und während des Krieges) als
+feindliche Diversionen bezeichnet. Das klang irgendwie präziser und ohne Präsumption der Angst, die man vor
+einem Terroranschlag spüren soll.
+Wir müssen begreifen, dass es heute Bedingungen einer militärischen Gefahr gibt, und diese Gefahr leider zunimmt und nicht auf unsere Initiative. Die USA, die über die weltweit grössten Finanzmöglichkeiten verfügen,
+wandeln sie in militärische Stärke um. Das ist die wichtigste Quelle des Wachstums der militärischen Spannungen
+in der Welt und der Gefahr eines globalen Konfliktes. Die Abschreckung einer solchen Politik ist ohne das
+militärtechnische Element allein mit politischen und Verhandlungsmethoden unmöglich. Also ohne Risiken
+der Entwicklung und der praktischen Anwendung dieser Elemente.
+Als wir Deutschland und Osteuropa verliessen, kamen dorthin sofort die Nato und danach das US-amerikanische
+Raketenabwehrsystem. Als wir Afghanistan verliessen, kamen dorthin die USA und bedrohen damit verstärkt
+unsere Grenzen im Süden. Wir haben zugelassen, Libyen zu zerstören, was den Beginn der Schaffung eines
+Gebietes ohne Staatlichkeit kennzeichnete, das als Brutapparat für aggressive Kräfte dient.
+Die USA bekamen die Möglichkeit, nicht einfach Terrorismus nach bekannten Technologien zu produzieren
+(zunächst bewaffnet man Banditen, danach tut man so, als ob man gegen sie kämpft), sondern eine territoriale
+Plattform zur Umwandlung der Terrorgruppen in eine einheitliche Armee von kontinentalem Ausmass mit
+imperialen (Kalifat-)Ambitionen zu schaffen.
+Wir können die Schaffung solch eines militärpolitischen Körpers nicht zulassen. Genauer gesagt: Wir haben bereits seine Entstehung zugelassen und sind jetzt gezwungen, ihn zu beseitigen.
+Weil neben uns nur die legitime syrische Regierung das anstrebt, dies jedoch ohne uns nicht tun kann, sind die
+Kräfte ungleich. Kaum jemand noch wird es wagen. Doch wir helfen nicht Syrien, sondern vor allem uns selbst.
+
+
+-----
+
+Anstelle Syriens muss Syrien sein und nicht ein sozialer Reaktor zur Schaffung einer Millionenarmee von Fanatikern mit Atomwaffen in der Zukunft.
+Wir haben keine Wahl. Wir können unsere Risiken nur durch die Entfernung der Krebstumore auf dem Kontinent senken, obwohl diese Operation auch für uns nicht ganz sicher ist. Doch wenn man dies nicht tut, wird es
+gefährlicher sein.
+Eine solche Politik erfordert eine besondere Solidarität der Gesellschaft. Formeller Patriotismus allein reicht nicht
+aus. Ich habe Zweifel daran, dass ein Oligarch und ein Obdachloser dabei kooperieren werden. Man braucht langfristiges Vertrauen gegenüber der Macht und dem Staat im Ganzen. Dieses Niveau haben wir noch nicht erreicht.
+Ist Solidarität ohne den sozialen Bestandteil möglich, wenn das Niveau der sozialen Ungleichheit deutlich höher
+als die Ungleichheit der Arbeits- und intellektuellen Beiträge ist?
+Wir verbreiten auf allen informellen ideologischen Kanälen das folgende Motivationsprinzip – «Bereichere dich
+schnell, sei Milliardär; wer dies nicht tut, ist dumm.»
+Die Umsetzung dieses Prinzips ist ohne Beraubung unmöglich. Wenn es ausserhalb des Landes nicht so viele
+Menschen gibt, die man berauben kann, ist eine innere Beraubung unvermeidlich.
+Russland stiess auf dieses Problem direkt im Ersten Weltkrieg und scheiterte dabei. Und umgekehrt – während des
+Grossen Vaterländischen Kriegs. Natürlich, wenn heute der Feind angreift, wird er mit Widerstand konfrontiert.
+Niemand hat Zweifel daran. Doch das historische Moment besteht darin, dass wir das Problem der eigenen
+Sicherheit und der Sicherheit der ganzen Welt präventiv ausserhalb der Grenzen Russlands lösen müssen, und
+zwar im Rahmen des Völkerrechts.
+
+_Quelle: http://de.sputniknews.com/sinowjew_klub/20151220/306625099/russland-welt-konflikt.html#ixzz3uwzOfrw6_
+
+_Beide Artikel:_
+_Mannheimer Morgen, Mannheim_
+_Dienstag, 15. Dezember 2015_
+
+
+-----
+
+**_INTRO_**
+
+_In seiner berüchtigten Strat-_ _bekämpften._
+_forrede auf dem „Chicago_ _� Es sei auch dieselbe Politik,_
+_Council on Global Affairs“_ _die der US-Präsident Ro-_
+_am 4.2.2015 verriet US-Stra-_ _nald Reagan im „Iran-Irak-_
+_tege George Friedman* die_ _Krieg“ von 1980–1988 an-_
+_globale US-Strategie: Man_ _gewendet habe. Er unter-_
+_müsse möglichst selten direkt_ _stützte beide Kriegsseiten,_
+_militärisch eingreifen, wie z.B._ _so dass sie gegeneinander_
+_in Afghanistan und im Irak_ _kämpften und nicht gegen_
+_2003. Vielmehr sei es, in An-_ _die USA._
+_lehnung an das Römische_ _� Aus demselben Grund auch_
+_Reich, „die zentrale Strategie_ _versuche die USA, seit ei-_
+**_der US-Geopolitik, konkur-_** _nem Jahrhundert ein star-_
+**_rierende Mächte gegeneinan-_** _kes deutsch-russisches Bünd-_
+**_der aufzuhetzen und in den_** _nis zu verhindern._
+**_Krieg zu treiben.“ Friedman_** _Ob gegeneinander, unterein-_
+_nannte folgende Bespiele:_ _ander, oder alle gegen einen,_
+_� Die Strategie, welche die_ _ob Länder, Religionen, Volks-_
+_Briten mehr als vier Jahr-_ _gruppen oder sonstige Par-_
+_hunderte verfolgten, um si-_ _teien_ _und_ _Gruppierungen,_
+_cherzustellen, dass keine_ _überall müssen dieselben Fra-_
+_europäische Macht eine_ _gen gestellt werden: 1. Steckt_
+_ebenbürtige Flotte aufbau-_ _nicht ganz einfach das „Teile_
+_en konnte, war diejenige,_ _und Herrsche“-Prinzip dahin-_
+_dass die Europäer einander_ _ter? 2. Wer ist Nutznießer von_
+_bekämpften._ _diesem Konflikt? Entdecken_
+_�Auch Indien hatten die_ _Sie Antworten im aktuellen_
+_Briten damals im 19. Jahr-_ _Weltgeschehen sowie auch_
+_hundert nicht gewaltsam be-_ _wieder in dieser Ausgabe. [1]_
+_setzt. Sie schafften es, dass_ _*Gründer und Direktor einer der füh-_
+_sich die einzelnen Bundes-_ _renden US-Denkfabriken „Stratfor“_
+_staaten Indiens gegenseitig_ _Die Redaktion (dd.)_
+
+
+**_„Politische Sprache ist dazu geschaffen,_**
+**_Lügen wahrhaft und Mord respektabel klingen zu lassen.“_**
+_George Orwell, englischer Schriftsteller (1903–1950)_
+
+
+**DIE VÖLKER HABEN EIN RECHT AUF STIMME UND GEGENSTIMME**
+
+
+-----
+
+veröffentlicht. Widmer: „Das
+ist ja der eigentliche Skandal,
+dass andere Zeitungen das Bild
+übernommen haben, ungeprüft.“
+Zweifelsfrei war es genau das
+Bild derselben Frau, welches
+SRF am 20.11.2015 veröffentlichte. Damit überführte Widmer
+ungewollt SRF selbst und andere
+Medien der skandalösen Berichterstattung. Wenn schon die Fotos der vermeintlichen Terroristen nicht stimmen, wer garantiert
+dann dafür, dass die mitgelieferten Berichterstattungen der
+Realität entsprechen? [6]
+
+
+**_��������������_**
+**_Trotz des „Teilens und Herr-_**
+**_schens“ an jeder Ecke: Es_**
+**_gibt auch Lösungen! Jo-_**
+**_hann Wolfgang von Goethe_**
+**_griff die Redewendung auf_**
+**_und fügte dem gleich einen_**
+**_Gegenvorschlag_** **_hinzu:_**
+**_„Entzwei und gebiete! Tüch-_**
+**_tig Wort. Verein' und leite!_**
+**_Bessrer Hort.“ Auch die_**
+**_Fußballlegende und ehema-_**
+**_liger Teamchef Franz Be-_**
+**_ckenbauer schien das Prin-_**
+**_zip verstanden zu haben:_**
+**_„Es gibt nur eine Mann-_**
+**_schaft, die uns schlagen_**
+**_kann – das sind wir selbst!“_**
+_Die Redaktion (dd.)_
+
+
+**_„Alle Menschen sind klug –_**
+**_die einen vorher,die anderen nachher.“_**
+_Voltaire, französischer Philosoph und Schriftsteller (1694–1778)_
+
+
+-----
+
+**frei und unentgeltlich**
+
+**Inspirierend**
+
+
+nis, dass er die Errichtung einer
+eigenständigen Bank und die
+Einführung einer goldgestützten Währung für Afrika plante.
+Mit deren Gründung hätte Libyen ganz Afrika in die Freiheit geführt, weg von den gnadenlosen Machenschaften der
+Finanzmogule und Imperialisten, die die armen Länder kontrollieren und deren Güter an
+sich raffen.
+Nun zu Syrien: Italiens Ministerpräsident Matteo Renzi hat
+ausgeschlossen, dass sich sein
+Land an Luftangriffen auf die
+Terrororganisation Islamischer
+Staat beteiligt. Er verglich den
+Einsatz der US-geführten Allianz in Syrien mit den
+Nato-Luftangriffen auf Libyen
+im Jahr 2011. Das Ziel sei klar:
+Ein weiteres aufstrebendes
+Land soll vernichtet werden.[2]
+
+werke erhalten durch die eigenartigen Geschenkaktionen
+die Möglichkeit anonym zu
+telefonieren; eine mächtige
+Lücke in der Vorratsdatenspeicherung. Das lässt den Eindruck aufkommen, dass diese
+gar nicht primär der Terrorbekämpfung dienen soll. [3]
+
+
+_INTRO_
+_Der US-Kriegsveteran Ken-_
+_neth O' Keefe setzt in einer_
+_Debatte im iranischen Fern-_
+_sehsender „Press TV“ seine_
+_Gegenstimme zu Berichter-_
+_stattungen der westlichen_
+_Mainstream-Medien. Er zeigt_
+_mit Nachdruck auf, dass die_
+_US-Regierung, anstatt den_
+_Terror weltweit zu bekämp-_
+_fen, selbst der „Terrorstaat_
+_Nummer 1“ seien. Denn die_
+_US-Army verübten weltweit_
+_Folter, grauenhafteste Mor-_
+_de, Verstümmelungen, Verge-_
+_waltigungen und viele ande-_
+_re Kriegsverbrechen. Alles_
+_völlig ungestraft, denn sie_
+_schützen ihre Kriegsverbre-_
+_cher vor der Justiz. Kenneth_
+_O' Keefe lässt keinen Zweifel_
+_daran aufkommen, dass_
+_westliche Politik und Medi-_
+_en lediglich Erfüllungsge-_
+_hilfen der verbrecherischen_
+_Finanzmogule seien. Das_
+_meint der Reichen, Mäch-_
+_tigen, Banker, die die Geld-_
+_versorgung_ _kontrollieren_
+_und so die Welt beherrschen._
+_Diese würden Kriege ganz_
+_nach Belieben durch False-_
+_Flag-Aktionen initiieren und_
+_steuern. Denn sie verdienten_
+_daran und hätten in krank-_
+_hafter Weise nicht das ge-_
+_ringste Interesse an Frieden_
+_und Gemeinwohl._
+_Diese Ausgabe soll aufzeigen,_
+_wie sich dieser rote Faden_
+_des krankhaften Eigennutzes_
+_der Finanzelite und deren_
+_Helfer und Helfershelfer_
+_durch sämtliche Bereiche des_
+_Gesellschaftslebens zieht. [1]_
+_Die Redaktion (hm.)_
+
+
+**DIE VÖLKER HABEN EIN RECHT AUF STIMME UND GEGENSTIMME**
+
+
+-----
+
+Niemitz sei die gängige Krebs- nachvollziehbar wiederholt, ist **_ab/ns. In den USA sind im Som-_** wurde vor seinem Tod bzw. Vertherapie mit Chemotherapie die hohe und stetig steigende mer 2015 innerhalb von fünf schwinden von der US-Gesundund Bestrahlung aus naturwis- Sterblichkeitsrate, die aktuell Wochen 14 Ärzte mysteriös ums heitsbehörde „verwarnt“. Dabei
+senschaftlicher Sicht nicht wis- bei bis zu 98 % liegt. In glei- Leben gekommen oder ver- wurden – offensichtlich zur Einsenschaftlich. Denn sie basiere cher Weise für jeden ebenso schwunden. Sie waren führende schüchterung – Praxis- und Hausgrößtenteils lediglich auf An- „wissenschaftlich“ nachvoll- Befürworter alternativer Heilme- durchsuchungen durchgeführt sonahmen. Ein methodisch-syste- ziehbar sind die sich von Jahr thoden und Impfgegner. Krebs- wie Haftbefehle ausgestellt. Da
+matisches Vorgehen, bei dem zu Jahr wiederholenden, stetig patienten behandelten sie er- diese mysteriöse Häufung leider
+die Ergebnisse der Arbeit für wachsenden Erträge der Phar- folgreich mit GcMAF, einem kein Einzelfall ist, liegt der Verjedermann objektiv nachvoll- maindustrie in zweistelligen natürlich vorkommenden Prote- dacht nahe, dass die Gesundheitsziehbar oder wiederholbar sind, Milliarden Dollar Dimensio- in, das das Immunsystem nach- politik im Verbund mit der Phargebe es laut Niemitz nicht. nen. Warum eigentlich wird haltig stärkt. Dr. Jeff Bradstreet maindustrie in verbrecherische
+Was sich allerdings bei der gän- nicht auf kostengünstige wis- hatte zudem einen kostengünsti- Hände gefallen ist, die weder
+gigen Krebstherapie im Gegen- senschaftliche Alternativen um- gen und sicheren Bluttest zur Konkurrenz noch Umsatzeinbusatz zu alternativen Heilmetho- gestiegen? [4] Früherkennung von Krebs entwi- ßen dulden. [5]
+den in tragischer Weise für je- ckelt. Jeder dieser Mediziner
+
+**Wlan schädigt Mensch, Tier und Umwelt**
+
+**_��������������_**
+
+Eine Schülerin erforschte ein Sterblichkeitsrate festzustellen. Depressionen, Aggressionen,
+Jahr lang die Auswirkungen von Diese aufwändige, von „Jugend Kopfschmerzen, Herzinfakt und **_Die Dominanz der schier_**
+Wlan an Mehlwürmern. Dazu forscht“ prämierte Forschungsar- vielem anderen mehr mit Wlan- **_alles umspannenden und_**
+wurden unter sonst gleichen Be- beit hat eindeutig die schädigen- und Mobilfunkstrahlung in Ver- **_vereinnahmenden krimi-_**
+dingungen Mehlwürmer mit und de Wirkung von Wlan vor Augen bindung gebracht haben, ist es an **_nellen Mächte lässt sich_**
+ohne Wlan-Bestrahlung gezüch- gemalt. Weil bereits viele For- der Zeit, Alternativen zu dieser **_nur auf demselben Weg_**
+tet, alle zwei Tage kontrolliert, scher und Ärzte klare Zusammen- gesundheitsgefährdenden Tech- **_wieder bezwingen, wie_**
+gezählt und gewogen. Dabei hänge zu Krebs, Schlaganfall, nik zu schaffen. [6]
+
+**_diese hätte – eigentlich_**
+
+machte die Schülerin folgende
+
+**_ohne allzu großen Auf-_**
+
+Beobachtung: Während sich die **_„Mehrheiten_**
+
+**_����������������������_**
+
+Mehlwürmer ohne Wlan-Bestrahlung völlig normal entwickelten, **_sind niemals der Beweis für die Wahrheit.“_** **_den können: Durch kon-_**
+war bei den mit Wlan bestrahlten _Dr. Walter R. Hadwen (1854–1932),_ **_sequentes Bloßlegen jedes_**
+Tieren eine um 18 % höhere _US-amerikanischer Chemiker_ **_noch so kleinen Ansatzes_**
+
+**_an Bosheit und durch_**
+
+**Grenzwertfälschungen – nur ein Problem der Automobilindustrie?!** **_ebenso konsequentes Wi-_**
+In diesem Jahr kochte der aus Industrievertretern bestehen- und Schnurlostelefone, die sogar **_derstehen._**
+Skandal des VW-Konzerns mit den Verein festgelegt. Sie wur- in die Kinderzimmer Einzug halgefälschten Diesel-Abgaswerten den unverhältnismäßig hoch ten. Die Warnungen der Welt- **_Mit jedem Zögern im_**
+hoch. Dieses Verhalten ist seit angesetzt, da sie nur die Erwär- gesundheitsorganisation (WHO) **_Bloßlegen und Widerste-_**
+Jahrzehnten auch aus dem mung, nicht aber die biologische und anderer internationaler **_hen steigt der Aufwand_**
+Bereich der Atomtechnik, der Gefährdung durch Strahlung Forschergruppen sind nur von **_allerdings gigantisch an._**
+Gentechnik oder dem Mobilfunk berücksichtigt. Diese unange- wenigen Medien übermittelt wor- **_Daher gilt es, diese jetzt_**
+bekannt. Grenzwerte werden messenen Grenzwerte wurden den. Da von Politik und Industrie **_gegebene Frist zum Bloß-_**
+von Anbeginn an von der dann ohne Anpassungen in die kein Schutz durch bessere Grenz- **_legen und Widerstehen_**
+Industrie erarbeitet und dann deutsche Gesetzgebung über- werte zu erwarten ist, steht es in
+
+**_durch den S&G-Netz-_**
+
+der Politik zur Festlegung als nommen. Somit besteht bis heute der Verantwortung der Bürger,
+
+**_werkbau zielstrebig zu_**
+
+Norm vorgelegt. Die Grenzwerte ein gigantisches, wachsendes diese lebensgefährliche Technik
+
+**_nutzen._**
+
+für die Mobilfunktechnik bei- Gefährdungspotenzial durch zu verbannen. [7]
+
+_Die Redaktion (hm.)_
+
+spielsweise wurden von einem Handys, Smartphones, W-LAN
+
+**_Quellen: [4] Antwortschreiben zu Petition-Nr.:2-18-15-2125-Q20807 v. Bonn 14. Juli 2015 des Bundesministeriums für Gesundheit/Abteilung3/ AZ315-45-Sowada/15.S.1._**
+_Weltkrebsbericht der WHO von Februar 2014. | www.wahrheiten.org/blog/wp-content/uploads/2009/03/20030818_gutachten_niemitz.pdf [5] http://www.maras-welt.de/_
+_2015/08/06/gcmaf-14-tote-bzw-verschwundene-%C3%A4rzte-in-den-usa-in-5-wochen/ | https://youtube.com/watch?v=BfYFIjXQyuQ | http://gcmaf-immuntherapie.com/_
+_wp-content/uploads/2013/11/Vortrag-2.pdf [6] www.everyday-feng-shui.de/feng-shui-news/experiment-der-einfluss-von-wlan-auf-mehlwuermer/ [7] http://ul-we.de/die-_
+_entstehung-der-26-bimschv-und-deren-entwicklung-bis-in-die-gegenwart/ | http://ul-we.de/who-stuft-hochfrequente-elektromagnetische-strahlung-in-die-kategorie-2b-auf-_
+_die-liste-der-krebsstoffe-ein/ | http://ul-we.de/internationaler-wissenschaftler-appell-zum-schutz-vor-elektromagnetischen-feldern/ | http://ul-we.de/category/faq/grenzwerte/_
+
+
+**_��������������_**
+
+**_Die Dominanz der schier_**
+**_alles umspannenden und_**
+**_vereinnahmenden krimi-_**
+**_nellen Mächte lässt sich_**
+**_nur auf demselben Weg_**
+**_wieder bezwingen, wie_**
+**_diese hätte – eigentlich_**
+**_ohne allzu großen Auf-_**
+**_����������������������_**
+**_den können: Durch kon-_**
+**_sequentes Bloßlegen jedes_**
+**_noch so kleinen Ansatzes_**
+**_an Bosheit und durch_**
+**_ebenso konsequentes Wi-_**
+**_derstehen._**
+
+**_Mit jedem Zögern im_**
+**_Bloßlegen und Widerste-_**
+**_hen steigt der Aufwand_**
+**_allerdings gigantisch an._**
+**_Daher gilt es, diese jetzt_**
+**_gegebene Frist zum Bloß-_**
+**_legen und Widerstehen_**
+**_durch den S&G-Netz-_**
+**_werkbau zielstrebig zu_**
+**_nutzen._**
+_Die Redaktion (hm.)_
+
+
+**_Beziehen Sie Ihre S&Gs bereits von einem „internetunabhängigen Kiosk“? Wenn nein, dann bitte melden unter_**
+**_SuG@infopool.info zur Vermittlung. Bitte selbst mindestens 3x kopieren und von Hand zu Hand weitergeben!_**
+
+
+-----
+
+_© AP Photo/ Charlie Riedel; Militär 11:32 24.12.2015(aktualisiert 11:36 24.12.2015)_
+
+**Die Zivilbevölkerung bleibt bis heute potenzielles Objekt für einen Schlag der US-Atomkräfte, sagte der frühe-**
+**re Pentagon-Mitarbeiter und Experte für Raketentechnik, Theodore Postol, in einem Sputnik-Interview.**
+NYT: Ziele für US-Atombomben in den 1950ern waren Sowjetunion, Osteuropa und China.
+Zuvor hatte die Nationalverwaltung für Archive und Dokumentation der USA die offengelegte Liste von potenziellen Zielen der US-amerikanischen Atombombenschläge für das Jahr 1959 veröffentlicht, auf der Hunderte
+Objekte in der Sowjetunion, Osteuropa und China stehen.
+Das Dokument sieht wie eine grosse Tabelle aus, die vom Strategischen Luftkommando der USA im Jahr 1956
+zusammengestellt wurde und Informationen über Atomschläge sowie einen geplanten Atomkrieg enthält, der
+drei Jahre später hätte beginnen können.
+Bei vielen Zielen handelt es sich um Industrieobjekte und Regierungsgebäude, jedoch waren in jeder Stadt auch
+zivile Objekte im Visier. «Tatsache ist, dass die Bevölkerung für uns von Anfang an ein Ziel war und es immer
+noch ist», sagte Postol. Laut ihm führen US-Militärstrategen nach wie vor Politiker und Bürger irre, was die realen
+Ausmasse der Zerstörung betrifft, die bei der Explosion einer Thermonuklear- oder einer H-Bombe entsteht.
+Die US-Militärs schaffen, so Postol, eine Illusion, wenn sie sagen, dass die Angriffe auf konkrete Ziele oder
+Gruppen von Zielen nicht so viele Zivilopfer fordern würden: «Die Wirkung der Kernwaffe erstreckt sich auf
+ein derart breites Territorium, dass es absolut unmöglich ist, nur Industrieziele zu treffen, die fast immer
+innerhalb oder nahe an Agglomerationen liegen, ohne den Schlag auch gegen die Bevölkerung der betroffenen
+Städte zu richten», erläutert der Experte.
+Grosse Mengen an Informationen über die Ära des Kalten Krieges werden immer noch in den Archiven geheim
+gehalten, sagt William Burr vom US-Archiv für die nationale Sicherheit, der die Liste der Ziele aus den 1950er
+Jahren beantragt und erhalten hat. In den Archiven könnten, so Burr, noch Angaben liegen, von denen keiner
+etwas ahne.
+Laut dem Analytiker ist die Liste von Zielen das ausführlichste Dokument, das je von den US-Luftstreitkräften
+veröffent-licht wurde: «Wir werden (dank diesem Dokument) besser verstehen, wie die Strategen des Luftkommandos die Nutzung der Kernwaffe im Laufe von Konflikten sahen und wie bzw. gegen welche Ziele sie eingesetzt werden sollte», sagte Burr der Agentur Sputnik.
+
+Quelle: http://de.sputniknews.com/militar/20151224/306738690/zivilbevoelkerung-ziel-us-atomkraefte.html
+
+
+-----
+
+-----
+

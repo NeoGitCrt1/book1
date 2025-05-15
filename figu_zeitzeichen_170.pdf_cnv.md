@@ -1,0 +1,1775 @@
+7. Jahrgang
+Nr. 170, Dez. 4, 2021
+
+
+Erscheinungsweise:
+Unregelmässig
+
+
+# FIGU 
+ ZEITZEICHEN
+
+### Aktuelles • Einsichten • Erkenntnisse
+
+Internetz: http://www.figu.org
+E-Brief:  info@figu.org
+
+
+### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+
+Laut ‹Allgemeine Erklärung der Menschenrechte›, verkündet von der Generalversammlung der Vereinten Nationen am 10. Dezember 1948, herrscht
+
+eine allgemeine ‹Meinungs- und Informationsfreiheit› vor, und dieses unumschränkte Recht gilt weltweit und absolut für jeden einzelnen
+
+Menschen weiblichen oder männlichen Geschlechts jeden Alters und Volkes, jedes gesellschaftlichen Standes wie auch in bezug auf
+
+rechtschaffene Ansichten, Ideen und jeglichen Glauben jeder Philosophie, Religion, Ideologie und Weltanschauung:
+
+**Art. 19 Menschenrechte**
+
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit, Meinungen**
+
+**unangefochten anzuhängen und Informationen und Ideen mit allen Verständigungs-**
+
+**mitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Ansichten, Aussagen, Darstellungen, Glaubensgut, Ideen, Meinungen sowie Ideologien jeder Art in Abhandlungen, Artikeln
+
+und in Leserzuschriften usw. müssen in keiner Art und Weise zwingend identisch mit dem Gedankengut und den
+
+Interessen, mit der ‹Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens›, wie auch nicht in
+
+irgendeiner Sachweise oder Sichtweise mit dem Missionsgut und dem Habitus der FIGU verbindend sein.
+
+==============================================================================================================
+==============================================================================================================
+
+Für alle in den FIGU-Zeitzeichen und anderen FIGU-Periodika publizierten Beiträge und Artikel verfügt die
+
+FIGU über die notwendigen schriftlichen Genehmigungen der Autoren bzw. der betreffenden Medien!
+
+### **********************************************************************************
+
+**Auf vielfach geäusserten Wunsch aus der Zeitzeichen-Leserschaft sollen in den Zeitzeichen zur Orientierung der**
+
+**Rezipienten laufend Auszüge diverser wichtiger Belange aus neuest geführten Kontaktgesprächsberichten**
+
+**veröffentlicht werden, wie nach Möglichkeit auch alte sowie neue Fakten betreffs weltweit bösartig mit**
+
+**Lügen, Betrug, Verleumdung und Mordanschlägen gegen BEAM geführte Kontroversen.**
+
+## **********************************************************************
+
+ Ich bin ungeimpft und das ist gut so!
+
+### Basta! Basta! Basta!
+
+Kai Amos, Deutschland
+
+Mittwoch, 15.12.2021 – Sonntag, 19.12.2021 Dies ist ein Meinungsartikel. Alles, was ich hier schreibe,
+beruht auf meinem eigenen, freien und unabhängigen Denken, das auf seriösen Informationen seriöser
+Medien beruht. Deshalb kann ich auch nicht garantieren, dass das, was ich hier schreibe, 100%ig korrekten
+Fakten, der Realität und Wahrheit entspricht. Deshalb ist jedem Leser dieses Artikels geraten, alles, was ich
+hier schreibe, kritisch zu durchdenken und auf seine Richtigkeit zu überprüfen.
+Dieser Artikel ist kein(e) Aufruf/Empfehlung, sich impfen oder nicht impfen zu lassen. Jeder muss sich
+selbst aufgrund seiner persönlichen Gesundheitssituation durch freies und selbständiges Denken entscheiden, ob er sich impfen oder nicht impfen lassen möchte.
+
+Vor ein paar Tagen meldete ein Nachrichtensprecher von AktionärTV, der Chef von Moderna hätte die Impfwirkung der bisherigen Impfstoffe gegen die neue Corona-Variante Omikron infrage gestellt. Oh Wunder,
+fiel sofort der Aktienkurs von Moderna. Aber das nur am Rande. Daraufhin äusserte besagter Nachrichtensprecher seine Meinung. Sinngemäss: «Ja, wenn der Impfstoff gegen Omikron nicht hilft, müssten wir nur
+mehr impfen, und dann wird die Impfwirkung von 100% schon irgendwann erreicht.» Das erinnerte mich
+irgendwie an meinen früheren Chemie- und Ethikunterricht in der Schule, als wir über Elemente und deren
+Wirkungen und verschiedene Logikmodelle unterrichtet wurden.
+
+
+-----
+
+Wasser löscht Feuer.
+
+Wasser ist flüssig.
+
+Öl ist flüssig.
+
+Ergo: Öl löscht Feuer.
+
+Logisch. Oder?
+
+Damit schlägt der Nachrichtensprecher in die Kerbe der Politiker und Experten, die permanent ohne Verstand und Vernunft das Impfen predigen. Insbesondere der ehemalige Krankheitsminister Jens Spahn und
+der jetzige Karl Lauterbach treten dabei als Panikmacher und Hassprediger in Erscheinung. Vor ein paar
+Tagen hiess es auf dem linksextremen Nachrichtenportal GMX, Jens Spahn hätte sich mit der Frage «Was
+muss noch alles passieren?» an die Ungeimpften gewandt. Das habe ich mich auch gefragt: «Was muss
+noch alles passieren?» Jens Spahn ist bekannterweise homosexuell. Die Homosexuellen waren zusammen
+mit Oppositionellen die ersten Opfer der Nazis. Und jetzt ist es Jens Spahn, der gegen Andersdenkende,
+Gesunde und Ungeimpfte hetzt und eine Nazipolitik gegen Ungeimpfte einführt, die von seinem Nachfolger
+und Berufspanikmacher Lauterbach fortgeführt wird. Offenbar weiss Lauterbach als studierter Mediziner
+nicht, dass es Aufgabe der Ärzte ist, aufzuklären, und nicht aufzuhetzen und nicht Panik zu verbreiten.
+Offenbar hat Spahn nie Diskriminierungen aufgrund seiner Homosexualität erfahren, sonst würde er jetzt
+nicht Nazipolitik machen. Vielleicht will Spahn ja als Mengele 2 in die deutsche Geschichte eingehen. Jens
+Spahn hat übrigens in seiner Eigenschaft als Krankheitsminister zu verantworten, dass Krankenhäuser
+geschlossen, Intensivbetten abgebaut und Mitarbeiter im Gesundheitswesen unterbezahlt wurden, was zur
+Folge hatte, dass viele Mitarbeiter gekündigt haben. Deswegen gibt es heute in der vierten Welle einen
+Mangel an Intensivbetten. Sind daran auch die Ungeimpften schuld?
+Eine Mitschuld an der ganzen Corona-Seuche-Pandemie-Katastrophe tragen meines Erachtens aber die
+Verschwörungstheoretiker, die man wahrheitlich als Verschwörungswahngläubige resp. Verschwörungswahnkranke bezeichnen muss. Mit ihrer wirren Ideologie, Impfen ist grundsätzlich schlecht, und Bill Gates
+nutzt den Corona-‹Impfstoff›, um die Menschheit auszurotten, haben sie die vernünftigen Impfskeptiker (die
+Impfen nicht grundsätzlich ablehnen) und die Menschen verunsichert, zum Ablehnen der vernünftigen AntiCorona-Massnahmen (Maske tragen – FFP2 –, Abstand halten, Herunterfahren des öffentlichen Lebens/
+Wirtschaft; Kauderwelsch: Lockdown) animiert und aufgerufen, und so die Menschheit in eine Situation
+manövriert, die Wasser auf die Mühlen der Impfnazis ist.
+Da die Politiker und Experten von Anfang an nicht fähig waren, die Corona-Seuche-Pandemie effektiv zu
+bekämpfen, und wohl auch nicht mochten, führte dies dazu, dass die Verschwörungswahngläubigen/-kranken die Menschen terrorisieren konnten, sowie sich die Corona-Seuche über den ganzen Planeten ausbreiten konnte. Zwar gab es anfangs ein Herunterfahren des öffentlichen Lebens/Wirtschaft, doch haben die
+Politiker/Experten dieses viel zu früh wieder beendet, was zur jetzigen Situation führte. Heute versuchen
+die Politiker/Experten ihr Versagen und ihre Unfähigkeit dadurch zu kaschieren, indem sie die Ungeimpften
+beschuldigen und nach Nazimanier eine diskriminierende Politik (2G-Naziregel, 3G-Naziregel, etc.) gegen
+die Ungeimpften eingeführt haben. Es fragt sich, wann die Ungeimpften einen gelben Stern zur Erkennung
+tragen müssen und wann Auschwitz wiedereröffnet wird. Selbstverständlich modernisiert, denn nicht Arbeit
+macht frei sondern Impfen. Vor 100 Jahren verschworen sich eben die Juden gegen die Völker zur Errichtung einer Weltregierung, heute machen das die Ungeimpften. Dass sich die Politiker/Experten mit
+dieser/m peinlichen Hü-hott-Politik resp. -Aktionismus lächerlich machen, kapieren sie in ihrer Dummheit
+(Nichtdenken), Blödheit (Nichtwissen) nicht, und sind noch stolz drauf. Frei nach dem Motto: «Ich bin ein
+Idiot und das ist gut so! Basta! Basta! Basta!» Seit die DDR-Mutti Angela die Regierung in Deutschland
+übernahm resp. seit Beginn der Corona-Seuche-Pandemie scheint dies sowieso das Motto der (deutschen)
+Politik zu sein. Es kommt mir so vor, als fände seitdem ein Idiotenwettbewerb statt. Gewonnen hat nicht
+der, der die beste Politik zum Wohl der Menschen macht, sondern der, der die idiotischsten Vorschläge
+und Aussagen macht resp. diese auch umsetzt.
+Am 10. Dezember (der Tag der Menschenrechte) 2021 verkündete Olaf Scholz, der neue rotbraune Bundeskanzler, er möchte eine allgemeine Impfpflicht in Deutschland einführen. Jetzt zeigt er sein wahres Gesicht.
+Mit dieser Aussage hat er eine gute Aussicht auf den zweiten Platz des Idiotenwettbewerbs. Den ersten
+Platz belegen unangefochten die Grünbraunen. Täglich überbieten sich (deutsche) Politiker/Medien mit
+einer dummen Aussage nach der anderen um den Grünbraunen den Rang des Oberidioten abzulaufen.
+Die Medien sind voll davon. Und ich krieg das Kotzen. Ausgerechnet am Tag der Menschenrechte! verkündet
+Olaf-Adolf Scholz eine Einführung einer Impfpflicht, die man wahrheitlich als Impfzwang bezeichnen muss,
+die massivst gegen die Menschenrechte verstösst (Recht auf körperliche Unversehrtheit etc.). Wir erinnern
+uns, die SPD war im Dritten Reich auch eines der ersten Opfer. Was sie offenbar aber nicht daran hindert,
+heute Nazipolitik zu machen. Es war ja auch die SPD, die die Arbeitsgesetze der Nazis 2003/2004 unter
+dem Namen ‹Hartz IV› wieder eingeführt hat.
+
+
+-----
+
+In einer ARTE-Kurzserie über Opfer eines Terroranschlags sah man eine junge Patientin, die die PsychoTherapie nicht mochte. Als der Psychotherapeut sie fragte, warum, sagte sie zu ihm: «Das bringt nichts. Sie
+sind nutzlos und werden dafür bezahlt.» Abgesehen davon, dass ich darüber laut lachen musste, war mein
+erster Gedanke: «Das sind Politiker auch. Nutzlos und werden dafür bezahlt.» Das Handeln der Politiker in
+der Corona-Seuche-Pandemie macht diese Aussage zu einem Sprichwort, einer Weisheit:
+
+Was heisst Politiker auf Englisch? Master of Desaster!
+
+Ein Witz? Wohl kaum.
+
+In den seriösen Medien (also nicht ARD, ZDF, die dritten Programme, RTL, ProSieben-SAT1, Spiegel, Bild,
+taz, etc.) und in den asozialen Medien (WhatsApp, Fratzenbuch; Kauderwelsch: Facebook, Instagram,
+Twitter, etc.) erscheinen täglich neue unzählbare Berichte, welche Nebenwirkungen (inkl. Tod) die CoronaImpfung mit sich bringt. Die Spätfolgen sind logischerweise noch nicht erkennbar. Die Liste derer spare ich
+mir jetzt, weil das nicht Thema dieses Artikels ist. Mittlerweile kommt es mir so vor, als sei das CoronaImpfgift (als das man den Corona-Impfstoff wahrheitlich bezeichnen muss) gefährlicher als das CoronaVirus selbst. Ich bin ungeimpft und seit zwei Jahren gesund. Und nur, weil ich eine FFP2-Maske trage,
+Abstand halte, mich von Grossveranstaltungen und Menschenansammlungen fernhalte, zuhause bleibe,
+wenn ich nicht unbedingt weg muss, und Aroniabeeren-Extrakt zu mir nehme, was antiviral wirken und
+auch Erfolge gegen das Corona-Virus zeigen soll. Was soll ich mich da krank- resp. totspritzen lassen?
+Ein Impfzwang ist nicht nur ein Verstoss gegen die Menschenrechte, sondern faktisch auch Gewalt gegen
+die Menschen. Das ist ein reiner Gewaltakt! Insbesondere, wenn man hinterher krank oder tot ist. Sich nicht
+impfen zu lassen damit ein Notwehrakt. Und im Gegensatz zum Impfzwang friedlich. Ein Impfzwang erfüllt
+mehrere strafrechtliche Tatbestände: Körperverletzung (mit Todesfolge), Freiheitsberaubung, Nötigung und
+letztendlich Mord! Gegen die Ungeimpften zu hetzen, wie es die unfähigen Politiker/Experten machen, erfüllt zusätzlich den Tatbestand der Volksverhetzung. Wir erinnern uns, die Volksverhetzung als Straftatbestand wurde eingeführt, damit die Aufhetzerei eines Volkes gegen ein anderes resp. Teile eines Volkes,
+unterbleibt und damit ein Holocaust/Krieg nicht noch einmal passieren kann. Grad die, die sich für demokratisch halten (offenbar aber nicht wissen, was demokratisch ist), sind es, die massivst Volksverhetzung
+gegen das eigene Volk betreiben.
+
+Übrigens noch eines zu den linken Lügenmedien: Demnächst kommt der Lügenmedien-Zwang. Jeder muss
+dann morgens eine linke Lügenzeitung lesen, damit man morgens lesen kann, was man heute sagen darf.
+Jetzt könnte ich noch massenweise die dummen Aussagen der Politiker/Experten aufzählen, die täglich in
+den linken Lügenmedien erscheinen, aber das spare ich mir, denn das sind sie nicht wert. Auffallend ist,
+dass alle Lügenmedien links sind. Aber das nur am Rande. Nur auf einige wenige werde ich noch eingehen,
+sofern sie für diesen Artikel interessant sind.
+
+Der neue rotbraune Kanzler sagte, man müsse besonders die Schwächsten vor den Ungeimpften schützen.
+Und wer schützt uns vor dem neuen Reichskanzler resp. dessen Impf-Nazipolitik resp. dem Impfgift?
+
+Lieber Leser, ich vergleiche die Impfpolitik mit der Nazipolitik. Du wirst jetzt denken, der übertreibt es aber.
+Nein! Das tue ich nicht. Am Anfang dachte ich auch, das sei übertrieben, und soweit würde es nicht
+kommen. Aber nachdem die neue grünbraune Reichsregierung die Impfnazi-Politik der Vorgängerregierung
+übernahm und die Diskriminierung und Hetze der Ungeimpften weiterführte, merkte ich, dass ich eher
+noch untertreibe. Ich hätte nie ernsthaft gedacht, dass Gesetze wie im Dritten Reich nochmals in Deutschland Realität werden könnten. Aber das hätte mir vorher klar sein müssen, denn die Grünbraunen waren ja
+schon immer eine Partei der Ausgrenzung und Diskriminierung derer, die ihre Wahnsinnspolitik nicht mitmachen mochten, oder noch schlimmer, sich dagegen wehrten. Und jeder, der das kommunistische Parteienkartell (Grünbraune, DDR-Linke, SPD, FDP, CDU/CSU) gewählt hat, ist mitschuldig. Es war vorher schon
+klar, dass die neue grünbraune Regierung die Regierungspolitik der DDR-Merkel weiterführt.
+Die Impfnazipolitik ist zu einer neuen Religion geworden. Es geht nur noch um ‹Impfen, Impfen, über alles,
+über alles in der Welt›. Ohne Verstand und Vernunft. Impfen aus Prinzip. Jetzt nötigen die uns Ungeimpfte,
+sich viermal impfen zu lassen. Was soll der Quatsch? Zumal das Impfgift ja effektiv nichts taugt. Es kommt
+mir so vor, als wurde den Politiker/Experten mit dem Corona-Impfgift Verstand und Vernunft weggeimpft.
+Damit haben Politiker/Experten später einmal eine perfekte Ausrede. Statt «Ich hab ja nur Befehle ausgeführt» (was ihnen auch keiner mehr ausser den Impfgläubigen glauben würde), können sie sagen «Ich kann
+nichts dafür. Ich bin geimpft.» Immer gut, wenn man eine Ausrede hat. Dummerweise gibt es keinen Impfstoff gegen Dummheit. Wenn ich sehe, wie die Politiker/Experten permanent das Impfen predigen, habe
+ich den Eindruck, sie sind die Impfpropheten ihres heiligen Impfgottes. Sie springen auf, wie von der Impfspritze gestochen, wenn man mit Verstand und Vernunft kommt. Die Politiker/Experten sind längst zu
+Handlangern ihres eigenen Impfwahnglaubens geworden. Und wenn es ein Politiker/Experte doch mal wagt,
+
+
+-----
+
+diese Impfwahnreligion infrage zu stellen, hilft vielleicht ein privates Gehalt seitens der Corona-PharmaIndustrie (Biontech, Pfizer, AstraZeneca) bei der Entscheidungsfindung. Die Politiker/Experten tun so, als
+wären wir immer noch am Anfang der Corona-Seuche-Pandemie, als hätte sich nichts geändert. Es wird
+dumm weitergewerkelt und die Realität ignoriert. Vielleicht wurde die ja gleich mit weggeimpft.
+
+Heinz Becker (Kunstfigur des Komikers Dudenhöffer, Gerd) würde jetzt sagen: «Jetz sa mo ganz ehrlich, so
+bled kama doch gar net sin.» («Jetzt sag mal ganz ehrlich, so blöd kann doch doch gar nicht sein.»)
+Wirklich nicht?
+
+Aber die Politiker/Experten denken auch nicht (weiter). Was wollen die machen, wenn selbst die mal merken
+(ein blindes Huhn findet auch mal ein Korn), dass es nicht die Schuld der Ungeimpften ist? Wer ist dann
+der Schuldige? Die Genesenen? Die Geimpften? Die Politik ist ja jetzt schon schizophren ohne Ende. Auf
+der einen Seite sagen die: «Auf den Intensivstationen liegen die Ungeimpften. Es ist deren Schuld.» Auf der
+anderen Seite muss man die Geimpften und Genesenen, die mit einem ‹sicheren Impfstoff› geimpft wurden
+resp. immun sind, weil durch Krankheit Antikörperbildung stattfindet, schützen und deshalb werden die
+Weihnachtsmärkte abgesagt. Wieso? Wenn das alles so impfhimmlisch ist, wie die das predigen, können
+doch die Massen auf die Weihnachtsmärkte. Mit dieser Politik beweisen die, dass sie keine Ahnung haben,
+nichts wissen, total überfordert und hilflos sind, aber trotzdem irgendwo (unterbewusst) ‹wissen›, dass sie
+falsch liegen. Und weil sie das wissen, aber nicht wahrhaben wollen, schreien sie umso lauter, um diejenigen, die die Wahrheit verkünden wollen, zu überschreien. Kleine Kinder machen sowas auch. Im Bewusstsein eines jeden Menschen gibt es einen Faktor, der erkennt, ob man mit einer Sache richtig oder falsch
+liegt. Ich nenne ihn ‹Wahrheitssensor›. Und wenn man falsch liegt, schlägt er Alarm. Ein Mensch merkt dann
+einfach, dass etwas nicht richtig ist, nicht stimmt. Und wenn er die Wahrheit nicht hören möchte, fängt er
+an, die Wahrheitsverkünder niederzuschreien. Und wenn das nicht ausreicht, werden sie zur Not auf dem
+Scheiterhaufen verbrannt oder im KZ vergast oder mit Impfgift geimpft. Dabei spielt es keine Rolle, ob der
+Wahrheitsverkünder geimpft oder ungeimpft ist. Was kommt mach Auschwitz (für Ungeimpfte)? Aber wenn
+die so weitermachen, wird es irgendwann soweit kommen, daß die Gewalt gegen Politiker/Experten zunimmt. Wer Wind sät, wird Sturm ernten. Die Nazis säten Wind und ernteten Sturm.
+Besagter Heinz Becker (siehe oben) würde die Impfprediger als ‹Dummschwätzer› bezeichnen. Aber man
+muss diese Dummschwätzer babbeln lassen, sich einfach nicht um dieses Geschwätz kümmern, sich nicht
+terrorisieren und unter Druck setzen lassen. Ob man unter Druck ist, entscheidet jeder für sich selbst. Man
+muss neutral bleiben. Und damit bin ich am letzten Punkt meines Meinungsartikels angekommen: Was
+können/müssen/sollten wir tun?
+
+**Nicht aufhetzen lassen gegen Ungeimpfte!**
+
+**Es ist EGAL, ob jemand geimpft, genesen oder ungeimpft ist!**
+
+**Deshalb auch nicht danach fragen, das geht niemanden etwas an!**
+
+**Maske (mindestens FFP2) tragen!**
+
+**Abstand halten (mindestens 1,5–2 Meter)!**
+
+**Stärkung des Immunsystems (Vitamin C, etc.)!**
+
+**Freiwillig auf Grossveranstaltungen, Reisen, etc. verzichten!**
+
+**Impfgift-Kampagne sofort stoppen!**
+
+**Impfgift entsorgen!**
+
+**Aronia-Beere soll antiviral und laut einer Studie gegen** **Corona wirken!**
+
+Der wahre Feind ist die grünbraune Impfnazi-Regierung, die Familien, Freunde, Volk, Menschen, etc. gegeneinander aufhetzt und krank- resp. totspritzen möchte!
+Der Feind ist nicht die eigene Familie, Freunde, das eigene Volk, die Menschen, die Ungeimpftem, Genesenen, Geimpften. Denn bedenkt, eines von dem ist jeder, den man kennt. Ist er plötzlich böse, nur weil er
+ungeimpft ist?
+
+## Bürger und Experten fordern einen Stopp der Einführung des Covid Impfstoffs in Indien ‹Die Wahrheit über COVID – The India Statement›
+
+uncut-news.ch, Dezember 22, 2021
+
+off-guardian.org: Die Masseneinführung von COVID-19-Impfstoffen sollte sofort gestoppt werden. Von
+diesen experimentellen Impfstoffen gehen ernste Gefahren aus. Dies ist die Botschaft einer Erklärung
+besorgter Bürger, die demnächst an den indischen Premierminister Narendra Modi übermittelt werden
+soll.
+
+
+-----
+
+Zu den Unterzeichnern der Erklärung gehören medizinische Wissenschaftler, Ärzte, Epidemiologen, Beamte,
+Organisationen der Zivilgesellschaft und ‹tief besorgte Mütter, Väter, Ehemänner und Ehefrauen›.
+Besorgte Bürger Indiens können die Erklärung ‹The Truth of COVID-19 – The India Statement› unter dem
+am Ende dieses Artikels angegebenen Link unterzeichnen, bevor sie an den Premierminister geschickt wird.
+Auch international renommierte Fachleute aus der Medizin haben sich dieser Initiative angeschlossen und
+ihr Fachwissen zur Verfügung gestellt, darunter Dr. Mike Yeadon, Dr. Peter McCullough, Dr. Pierre Kory, Dr.
+Roger Hodkinson, Professor Sucharit Bhakdi und Dr. Tess Lawrie.
+Die Erklärung besteht aus zwei Teilen. Der erste Teil ist eine fünfseitige Zusammenfassung der wichtigsten
+Punkte und Empfehlungen. Der zweite Teil ist ein 62-seitiges Dokument mit Zitaten aus der einschlägigen
+Literatur und Dutzenden von Verweisen zur Untermauerung der Behauptungen über die Impfstoffe, COVID19 und das Impfprogramm.
+Einige der wichtigsten Punkte und Empfehlungen aus dem ersten Teil sind im Folgenden zusammengefasst:
+Die Erklärung beginnt mit der Feststellung, dass ein Impfstoff gegen Coronaviren noch nie erfolgreich eingesetzt wurde. Ein Problem war die Entwicklung von Antikörper-Krankheitsverstärkung (ADE). Der Impfstoff
+produziert Antikörper, aber manchmal verhindert dies die Krankheit nicht, sondern verschlimmert sie, und
+die ADE kann sich in die Zukunft ausdehnen (dies wurde schon früher beobachtet, zum Beispiel bei der
+Einführung eines Dengue-Impfstoffs in Manila).
+Alle Impfstoffe verwenden das Spike-Protein, was zunächst als gute Idee angesehen wurde, da das Virus
+sein Spike-Protein zur Anheftung an die Wirtszellen verwendet. In der Erklärung wird jedoch festgestellt,
+dass dies ein Fehler und eine grosse Katastrophe ist. Das Spike-Protein ist der toxische Teil des Virus, der
+schwere (Gefäss-)Krankheiten verursacht.
+Es ist nun bestätigt, dass das synthetische Spike-Protein der Impfstoffe ebenfalls toxisch ist und in ähnlicher
+Weise Gerinnungs- und Blutungsstörungen verursacht.
+Viele Tausende von Menschen, denen der Impfstoff gespritzt wurde, sind daran gestorben. Der Impfstoff
+verlässt die Injektionsstelle im Arm und gelangt, anders als angenommen und erwartet, in den Blutkreislauf
+und verteilt sich im ganzen Körper, unter anderem mit Konzentrationen in den Eierstöcken, dem Knochenmark und den Lymphknoten.
+Ausserdem übt die massenhafte Einführung der Impfstoffe einen Selektionsdruck auf das Virus aus, so
+dass sich Stämme entwickeln, die gegen den Impfstoff resistent sind, wie Delta und Omikron. Dies ist eine
+bekannte Wissenschaft, die dem gleichen Muster folgt wie beispielsweise die Resistenz gegen Antibiotika.
+Dr. Luc Montagnier, der Nobelpreisträger, der das AIDS-Virus entdeckte, hat vor diesem Phänomen eindringlich gewarnt. In der Erklärung wird darauf hingewiesen, dass dieser Prozess der Entstehung neuer
+Varianten auch dann nicht aufhören wird, wenn immer mehr Menschen geimpft werden.
+Daten aus Israel (wo die überwiegende Mehrheit geimpft ist) zeigen einen Anstieg der Krankenhausaufenthalte und Todesfälle unter den Geimpften. Dieses Muster wiederholt sich auch in anderen Ländern und
+wurde von Dr. Montagnier und anderen führenden Virologen vorausgesagt.
+Auch die Schutzwirkung der Impfstoffe lässt nach und liegt inzwischen unter der vorgeschriebenen Wirksamkeit von mindestens 50%. Die US-Gesundheitsbehörden raten bereits zu einer dritten Auffrischungsdosis. Führende Impfexperten und Immunologen sowie die Impfstoffhersteller wussten dies jedoch von
+Anfang an. Es wurde jedoch vor der Öffentlichkeit verborgen.
+Es ist klar, dass Menschen, die sich von Covid-19 erholen, eine natürliche Immunität entwickeln, die lange
+anhält und Antikörper enthält, die gegen mehrere Viren oder Varianten wirksam sind. Ein grosser Teil der
+indischen Bevölkerung, etwa 70% oder mehr, verfügt bereits über diese natürliche Immunität. Die Erklärung
+kommt zu dem Schluss, dass Impfstoffe daher nicht erforderlich sind.
+Da die Impfstoffe Antikörper gegen ein Protein, Syncytin, bilden können, das in Zukunft bei Frauen zu Fehlgeburten führen kann, sollten Frauen im gebärfähigen Alter (50 Jahre und jünger) nicht geimpft werden.
+In der Erklärung wird darauf hingewiesen, dass Kinder bisher kaum Probleme mit Covid hatten, aber einige
+Ärzte vermuten, dass eine dritte Welle sie beeinträchtigen wird. Dies beruht auf Spekulationen, nicht auf
+wissenschaftlichen Erkenntnissen. Ausserdem sind die langfristigen Auswirkungen dieser Impfstoffe und
+insbesondere des toxischen Spike-Proteins unbekannt. Es wäre daher völlig unverantwortlich, die Zukunft
+von Kindern zu riskieren. Angesichts der Daten ist klar, dass die Risiken der Covid-19-Impfstoffe den Nutzen
+für Kinder bei weitem überwiegen.
+Indien hat eine hohe Krankheitslast durch übertragbare Krankheiten (Tuberkulose, Durchfallerkrankungen
+usw.), und Kinder sind davon stark betroffen (täglich sterben mehr als 2 000 Kinder). Andererseits sind die
+Inzidenz und die Todesfälle aufgrund von COVID-19 vernachlässigbar. Kinder sind von dieser Krankheit
+nicht betroffen.
+In Indien ist das Ausmass der schweren Unterernährung besorgniserregend (und die COVID-bedingte Abriegelung des Landes kann dies nur noch verschlimmern).
+Der Erklärung zufolge würde die Einstellung nicht benötigter Impfungen die enorme Summe von 35.000
+Mio. Rupien (fast 4,1 Mrd. Euro) für ein öffentliches Gesundheitssystem freisetzen, das dringend Ressour
+
+-----
+
+cen zur Bekämpfung tödlicher Kinderkrankheiten und zur Verbesserung der Gesundheit der Bevölkerung
+benötigt.
+In der Erklärung wird darauf hingewiesen, dass der Kern des Problems unsicherer Impfstoffe der endemische Interessenkonflikt ist, in dem sich die Gesundheitsinstitutionen weltweit befinden, nicht zuletzt in den
+USA (NIA/FDA/CDC), im Vereinigten Königreich (MHRA) und in der WHO.
+Aus all den oben genannten Gründen verlangen die Impfstoffhersteller, für alle Schäden, die ihre Impfstoffe
+verursachen könnten, entschädigt zu werden. Pfizer und Israel haben eine Vereinbarung getroffen, die Nebenwirkungen des Covid-19-Impfstoffs 10 Jahre lang zu verbergen. Diese unerwünschten Wirkungen sind
+jedoch der Schlüssel zum Verständnis der Impfstoffwissenschaft.
+In der Erklärung heisst es ausserdem, dass die routinemässigen RT-PCR-Tests, wie sie derzeit durchgeführt
+werden, auch bei asymptomatischen Fällen, eingestellt werden sollten. PCR-gesteuerte ‹Fälle› führen die
+Öffentlichkeit in Bezug auf Covid-Infektionen in die Irre. Ausserdem ist klar, dass die Impfstoffe keine Immunität verleihen und auch die Übertragung durch die Geimpften nicht verhindern können. Indien hat eine
+‹Herdenimmunität› erworben und braucht diese Impfstoffe nicht. Die medizinische Wissenschaft befürwortet daher keine weitere Verbreitung dieser Impfstoffe.
+Die Erklärung schliesst mit folgenden Worten:
+Indien muss die Impfstoffe mit sofortiger Wirkung absetzen … Vorbeugende Massnahmen, frühzeitige Behandlung und Behandlungsprotokolle für alle Krankheitsstadien mit Ivermectin und anderen Off-LabelMedikamenten haben sich bewährt… Indien hat schon sehr früh vorbildliche Massnahmen ergriffen, was
+die ICMR-Richtlinie (Indian Council of Medical Research) zu HDQ (Hydroxychloroquin) und den Bundesstaat UP mit seiner öffentlichen Gesundheitsmassnahme der Abgabe von Ivermectin betrifft, die ein anerkannter Erfolg war. Wir müssen diese Massnahmen auf ganz Indien ausweiten. Bei beiden handelt es sich
+um ‹wiederverwendete› Medikamente, die medizinisch erprobt und sicher sind, und es gibt noch andere in
+unserem Instrumentarium an medizinischen Produkten, zusammen mit Vitaminen (D, C und Zink).
+Der Premierminister wird aufgefordert, die in der Erklärung ausgesprochenen Empfehlungen umzusetzen,
+und zwar zu einem Bruchteil der Kosten, was die Impfstoffe kosten. Die freiwerdenden Mittel werden es
+der Regierung ermöglichen, in die allgemeine Gesundheitsinfrastruktur (insbesondere die Gesundheit von
+Kindern), die Wirtschaft, die Landwirte und die Landwirtschaft sowie in die Umwelt zu investieren.
+Besorgte Bürger Indiens können die Erklärung hier unterzeichnen, wo auch Links zu beiden Teilen der
+Erklärung zu finden sind.
+Colin Todhunter ist Spezialist für Entwicklung, Ernährung und Landwirtschaft und wissenschaftlicher Mitarbeiter des Centre for Research on Globalization in Montreal.
+_QUELLE: CITIZENS AND EXPERTS CALL FOR A HALT TO COVID-19 VACCINE ROLLOUT IN INDIA_
+_Quelle:_ _https://uncutnews.ch/buerger-und-experten-fordern-einen-stopp-der-einfuehrung-des-covid-impfstoffs-in-indien-_
+
+_die-wahrheit-ueber-covid-the-india-statement/_
+
+## Auffrischungsimpfungen steigern Infektionen, 
+ ‹Omikron mild›, am wenigsten geimpfte Länder, 
+ weniger Todesfälle, Geimpfte mit grösstem Risiko
+
+_uncut-news.ch, Dezember 22, 2021_
+
+Nachdem die Regierung im vereinigten Königreich Krankenhausaufenthalte und Todesfälle manipuliert hat,
+um neuere Daten auszuschliessen, kommt nun die Wahrheit ans Licht. In Schottland waren von August bis
+November 2021 über 85% der Todesfälle bei den Geimpften zu verzeichnen. Die Auffrischungsimpfungen
+führen lediglich zu einem Anstieg der COVID-Infektionen. In den USA, dem Vereinigten Königreich und der
+EU sind nach der Impfung etwa 40.000 Todesfälle aufgetreten, aber Omikron ist mild. Die britische Regierung hat die Daten manipuliert, um die Ungeimpften zu beschuldigen, doch die Geimpften sind am stärksten gefährdet.
+Schon bei den ersten Fällen in Südafrika und nun auch im Vereinigten Königreich und in der EU war klar,
+dass die neue Omikron-Variante des Coronavirus zu milden Krankheitsverläufen und sehr wenigen Todesfällen führt, selbst ‹mit COVID›. Südafrikanische Experten haben sogar dazu geraten, die Fahndung und die
+Quarantäne einzustellen, da die meisten Infizierten keine Symptome zeigen.
+In Anbetracht der Tausenden von Todesfällen und Millionen von Verletzungen weltweit, die durch die
+COVID-Impfstoffe verursacht wurden, gibt es kaum Unterschiede zwischen dem Rückgang der Todesfälle
+in den am wenigsten und den am meisten geimpften Ländern.
+AM WENIGSTEN GEIMPFTE LÄNDER:
+(Durchschnittliche Impfrate 21%)
+
+
+-----
+
+**Rückgang der Todesfälle seit dem letzten Höchststand:**
+
+Tansania 100%
+
+Nigeria 98%
+
+Äthiopien 89%
+
+Kenia 91%
+
+Ägypten 36%
+S. Afrika 92%
+
+Pakistan 95%
+
+Russland 18%
+
+**Durchschnittlicher Rückgang der Todesfälle in den 8 am wenigsten geimpften Ländern: 77%**
+
+**AM MEISTEN GEIMPFTE LÄNDER**
+
+**(Durchschnittliche Impfrate 88%).**
+
+**Rückgang der Sterbefälle seit dem letzten Höchststand:**
+
+VAE 90%
+
+Kuba 98%
+Chile 89%
+
+Portugal 91%
+
+Singapur 83%
+
+Kambodscha 94%
+
+S. Korea 17%
+
+Kanada 98%
+
+Durchschnittlicher Rückgang der Todesfälle in den 8 am meisten geimpften Ländern: 82%
+Nimmt man die 3 am wenigsten geimpften Länder, so betrug ihr Rückgang der Todesfälle gegenüber dem
+letzten Höchststand durchschnittlich 95%, während die drei am meisten geimpften Länder 92% erreichten.
+Bei einer viermal so hohen Impfrate wie in den am wenigsten geimpften Ländern erreichen die 8 am meisten geimpften Länder einen nur um 5% besseren Rückgang der Todesfälle gegenüber ihrem letzten
+Höchststand. Ein mickriges Ergebnis für Impfstoffe, die im Vereinigten Königreich fast 2.000, in den USA
+9.000 und in der EU 31.000 Todesfälle verursacht haben.
+Selbst die Lancet-Studie hat gezeigt, dass die Impfstoffe nicht wirken – wie die dritte Impfung und das Gerede über eine vierte bezeugen. Ich zitiere aus der Lancet-Studie:
+«Im Vereinigten Königreich wurde festgestellt, dass die Rate der Sekundärinfektionen bei Haushaltskontakten, die ungeimpften Indexfällen ausgesetzt waren, ähnlich hoch war wie bei Haushaltskontakten, die ungeimpften Indexfällen ausgesetzt waren (25% bei Geimpften und 23% bei Ungeimpften).»
+
+**GEIMPFTE MIT GRÖSSTEM STERBERISIKO**
+
+Nachdem die Regierung im Vereinigten Königreich Krankenhausaufenthalte und Todesfälle manipuliert hat,
+um neuere Daten auszuschliessen, kommt nun die Wahrheit ans Licht. In dieser Grafik aus Schottland für
+August bis November 2021 sind über 85% der Todesfälle bei Geimpften zu verzeichnen.
+Hier wird aufgedeckt, wie die Regierung die Daten manipuliert hat, um die Ungeimpften zu beschuldigen:
+Es stellt sich heraus, dass die Quelle der Aussage «Von den Covid-Patienten, die in den letzten Monaten auf
+der Intensivstation behandelt wurden, hat sich die Mehrheit – nach den neuesten Daten fast 75 Prozent –
+dafür entschieden, sich nicht impfen zu lassen.» Daten von Mai bis Juli waren. Die obigen Daten (aus
+Schottland von August bis November) lassen genau das Gegenteil vermuten.
+Ein weiterer Beweis für das Versagen der Impfstoffe angesichts neuer Infektionen kommt aus den USA, wo
+einer der bisher grössten Ausbrüche der neuen Omikron-Variante an der Cornell University in Ithaca, New
+York, stattgefunden haben soll. Es wird angenommen, dass fast alle 930 Fälle der vergangenen Woche auf
+diese Variante zurückzuführen sind.
+Alle bestätigten Omikron-Fälle im Fall der Cornell University sind bei Personen aufgetreten, die vollständig
+geimpft sind, und einige von ihnen bei Personen, die auch eine Auffrischungsimpfung erhalten haben.
+Die Auffrischungsimpfung ist natürlich eine weitere Impfung in der Hoffnung, dass die dritte Dosis das
+bewirkt, was die ersten beiden Dosen bewirken sollten! Und die neue Variante, ‹Omikron›?
+Die meisten Omikron-Fälle in den Vereinigten Staaten sind unter den Geimpften aufgetreten, so die Centers
+for Disease Control and Prevention (CDC) in einem Update vom Freitag, den 12.10.21. Die meisten Patienten hatten leichte Symptome.
+
+**OMIKRON IST SCHWACH**
+
+In der Tat war es bei den ersten Fällen in Südafrika klar, dass die neue Omikron-Variante des Coronavirus
+zu einer milden Erkrankung führt, ohne auffällige Symptome und:
+
+
+-----
+
+«Die Krankheit verläuft mild, die Symptome sind Muskelkater und Müdigkeit für ein oder zwei Tage, in
+denen man sich nicht wohl fühlt. Bislang haben wir festgestellt, dass die Infizierten keine Geschmacks- oder
+Geruchsverluste haben. Sie könnten einen leichten Husten haben. Es gibt keine auffälligen Symptome.
+Einige der Infizierten werden derzeit zu Hause behandelt.»
+… so Angelique Coetzee, die Vorsitzende der südafrikanischen Ärztekammer. In der Tat war die Sterblichkeitsrate in Südafrika – Todesfälle im Verhältnis zu den 10 Tage zuvor aufgetretenen Fällen – auf dem niedrigsten Stand seit Beginn von Covid.
+Im Vereinigten Königreich gab es nur 12 Todesfälle ‹mit› Omikron – mit anderen Worten: Kein Tod ‹durch›
+Omikron!
+Der wöchentliche epidemiologische Bericht der Weltgesundheitsorganisation vom 7. Dezember zeigt, dass
+alle 212 Omikron-Fälle, die in achtzehn Ländern der Europäischen Union (EU) dokumentiert wurden, entweder mild oder asymptomatisch waren.
+Überall scheint die Omikron-Variante die Delta-Variante zu verdrängen, allerdings mit wesentlich milderen
+Symptomen, so dass die Omikron-Variante von COVID-19 nach den Worten des südafrikanischen Arztes
+Omar Hamada möglicherweise eine natürliche Immunität verleiht, ohne eine schwere Krankheit auszulösen,
+da die Symptome in Südafrika bisher eher einer ‹leichten Erkältung› ähneln.
+«Wenn die Infektiosität grösser, die Virulenz oder der Schweregrad aber geringer ist, könnte dies tatsächlich
+eine gute Möglichkeit sein, die Menschen immun zu machen, ohne unbedingt auf einen Impfstoff angewiesen zu sein, der nicht besonders wirksam ist», so Hamada.
+
+**BOOSTERS**
+
+Die von den Regierungen angepriesenen Auffrischungsimpfungen sind unter Experten umstritten. «Die
+Booster sind ein perfekter Weg, um unser Immunsystem so zu beeinflussen, dass wir WENIGER in der Lage
+sind, auf diese neue Variante zu reagieren», sagte Dr. Robert Malone, der Erfinder des mRNA-Impfstoffs.
+«Das ist so, als würde man jeden mit einem Grippeimpfstoff von vor drei Jahren impfen und erwarten, dass
+er gegen die aktuellen [Grippestämme] wirkt.»
+Ein hochrangiger Beamter der Weltgesundheitsorganisation (WHO) erklärte, es gebe ‹keine Beweise› dafür,
+dass die Auffrischungsimpfung gesunden Menschen einen ‹grösseren Schutz› biete. Dr. Mike Ryan, der Notfalldirektor der WHO, stellte die Logik einiger Länder in Frage, die versuchen, mehr Auffrischungsdosen zu
+produzieren, um alle über 18-Jährigen zu impfen.
+qIm Moment gibt es meines Wissens keine Anhaltspunkte dafür, dass die Auffrischung der gesamten Bevölkerung zwangsläufig einen grösseren Schutz für ansonsten gesunde Menschen vor Krankenhausaufenthalten und Tod bietet», sagte Ryan.
+Frankreich hat den Moderna-Booster sogar verboten.
+
+**BRITISCHE BOOSTER STEIGERN INFEKTIONEN**
+
+Am 1. Oktober, als die Auffrischungsimpfungen im Vereinigten Königreich begannen, waren 153.912 Personen geimpft. Am 18. Dezember waren es 904.598 – ein Anstieg um 487%.
+
+Die Zahl der Neuinfektionen lag am 1. Oktober bei 34.752 und am 18. Dezember bei 90.109 – ein Anstieg
+um 159%. Da zwischen Impfung und Infektion eine gewisse Zeit vergeht, ist es wahrscheinlich, dass der
+prozentuale Anstieg der Infektionen mit dem vorherigen Anstieg der Impfungen gleichziehen wird. Und
+dieser weitere Anstieg wird die Politiker dazu veranlassen, mehr Impfungen und ruinöse Schliessungen zu
+fordern, was wiederum zu mehr Infektionen führen wird und so weiter ad absurdum und ad infinitum.
+worldindata.org verglich die europäischen Länder, die geimpft hatten, mit den Ländern, die nicht geimpft
+hatten, und stellte fest, dass der Unterschied bei den Infektionen zwischen ihnen immer grösser wurde –
+von 19% mehr Infektionen in den Ländern, die geimpft hatten, auf 21%.
+
+Es liegt auf der Hand, dass es (wie in früheren Zeiten, in denen die Zahl der Impfungen erhöht wurde) zu
+einem Anstieg der COVID-Infektionen gekommen ist. Dies ist ein weltweites Muster seit Beginn der Impfprogramme. Die Ausrede (wenn es angesichts der horrenden Zahl von Todesfällen überhaupt eine gibt) war,
+dass diejenigen, die erkrankten, nicht so schwer erkrankt waren wie diejenigen, die nicht geimpft waren.
+Aber auch das ist, wie wir inzwischen wissen (siehe oben), Unsinn.
+Die schreckliche Zahl der Todesfälle und schweren Verletzungen unter Krankenschwestern, Ärzten, Piloten
+und Sportlern auf der ganzen Welt ist beispiellos für jeden Impfstoff, ganz zu schweigen von einem, der
+sich als so nutzlos erwiesen hat, um Infektionen, Ansteckungen und Todesfälle zu verhindern.
+_QUELLE: BOOSTERS BOOST INFECTIONS, “OMICRON MILD”, LEAST VACCINATED COUNTRIES FEWER DEATHS,_
+_VACCINATED AT GREATEST RISK_
+_Quelle: https://uncutnews.ch/auffrischungsimpfungen-steigern-infektionen-omikron-mild-am-wenigsten-geimpfte-laender-_
+_weniger-todesfaelle-geimpfte-mit-groesstem-risiko/_
+
+
+-----
+
+## Virologe Hendrik Streeck resümiert:
+ «Zwei Booster pro Jahr hiesse, der Impfstoff ist ‹nicht gut›.»
+
+_22 Dez. 2021 21:21 Uhr_
+
+Virologe und Mitglied im Expertenrat der Bundesregierung Hendrik Streeck äusserte in einem Interview
+seine Zweifel über die momentane Corona-Strategie der Politik. Die forcierte Diskussion über eine Impfpflicht empfindet er als ‹überraschend›.
+Virologe Hendrik Streeck resümiert: «Zwei Booster pro Jahr hiesse, der Impfstoff ist ‹nicht gut›.» Quelle:
+www.globallookpress.com © Fabian Sommer
+
+14. November 2021, Berlin: Virologe Hendrik Streeck
+
+bei der Erstpräsentation seines Buches ‹Unser Immunsystem›.
+
+Am 22. Dezember gab der Virologe Hendrik Streeck dem Sender n-tv ein Interview. Streeck ist auch Mitglied
+des jüngst eingerichteten Expertenrates der Bundesregierung. In dem Interview ging es vorrangig, um die
+aktuelle Impfstrategie der Regierung und den daraus resultierenden beruflichen, wie auch privaten Neuregelungen für die Bürger.
+
+Streeck verwies in dem Interview darauf, dass auf Dauer nicht alle halbe Jahre neu geimpft werden könne.
+Zudem irritiere ihn, dass zum jetzigen Zeitpunkt schon über eine vierte Impfung laut nachgedacht werde.
+Durch die immer kürzere Zeitspanne, zwischen den einzelnen Verabreichungen der Impfstoffe müsse dann
+doch ab einem bestimmten Punkt der Impfdiskussion das Eingeständnis erfolgen, dass ‹der Impfstoff nicht
+gut funktioniert›.
+
+Die Bedenken seitens Streeck widerspiegelten sich seiner Meinung nach in der Ungewissheit gegenüber
+einem Medikament, bei dem weiterhin nicht bekannt sei, wie lang die Schutzdauer anhalte, wie sich die
+Schutzwirkung darstelle, welche ‹Varianten abgedeckt wären› und wie oft der Wirkstoff etwaig neue Virustypen angepasst werden müsste.
+Bei der dritten sogenannten Booster-Impfung sehe die Sachlage jedoch anders aus, da durch die Verabreichung ‹die Immunantworten höher und breiter werden›, so Streeck im Interview. Er sehe aber die Situation
+kommender ‹immunologischer Phänomene›, da man durch die drei Impfungen ‹das Immunsystem trainiert›. Die Probleme könnten aich ab der dritten Impfung ergeben, wenn das Immunsystem ‹dauerhaft nur
+ein Protein sieht›. Dies könne laut Streeck nach einer gewissen Zeit ‹auch nachteilig für das Immunsystem
+sein›.
+
+Er rate dennoch jedem Bürger zur ‹Booster-Impfung›, weil das ‹der beste Weg sei›, dem Omikron-Virus ‹zu
+begegnen›. Einer verpflichtenden Impfaufforderung seitens der Politik stehe er aber skeptisch gegenüber,
+da man mit dem momentanen Erkenntnisstand zu den aktuellen Impfstoffen sehr schnell auch in ‹kompliziertes Fahrwasser› kommen könnte.
+Die jüngsten Beschlüsse der Bundesregierung seien aufgrund der abzeichnenden Fallzahlen ausreichend.
+Sollten diese sich negativ entwickeln, könnte man durch die Regelungen jederzeit ‹nachjustieren›, so
+Streecks abschliessende Einschätzung in dem Interview. Der gleiche Sender zitierte, ebenfalls am 22.
+Dezember, Gesundheitsminister Lauterbach hingegen mit den Worten:
+«Ich würde persönlich als Wissenschaftler davon ausgehen, dass eine vierte Impfung nötig sein wird.»
+Es könne sein, ‹dass der Impfschutz nicht allzu dauerhaft ist›, so Lauterbach laut n-tv.
+
+
+-----
+
+_Quelle: https://de.rt.com/inland/128844-virologe-hendrik-streeck-resumiert-zwei/_
+
+## Dr. Mike Yeadon: Das ist wirklich wichtig
+
+_uncut-news.ch, Dezember 21, 2021_
+
+(Wenn Sie das schon gesehen haben, entschuldigen Sie bitte, wenn ich Sie überrumpelt habe!)
+Wenn dies eine neue Information für Sie ist, ist es ein SEHR gewichtiger Beweis dafür, dass es keine gute
+Idee ist, sich mit einem dieser Covid19-Impfstoffe impfen zu lassen.
+Die Reaktion Ihres Immunsystems wird – möglicherweise dauerhaft – so verändert, dass die Geimpften anfälliger für künftige Varianten werden (dieses Phänomen wird als ‹linked epitope suppression› bezeichnet,
+auch wenn es unsicher ist).
+Dies ist die unvermeidliche Schlussfolgerung aus den Ergebnissen des jüngsten Berichts einer britischen
+Gesundheitsbehörde. Es hat sich also niemand etwas ausgedacht.
+Sagen Sie also bitte allen Verwandten, Freunden und Bekannten, dass es keineswegs eine Nullkostenwette
+ist, wenn sie sich impfen lassen.
+Hier sind einige der Risiken:
+Schwere akute Reaktionen (Pfizer, Moderna) auf ungewöhnliche Lipide in den Nanopartikeln. Ich bin nicht
+sicher, ob es Todesfälle gegeben hat, aber ich vermute es. Auf dieses spezifische Risiko wurde in einer Petition an die EMA hingewiesen, bevor diese die EUA erteilte. Die ersten Fälle traten am ersten Tag der Markteinführung im Vereinigten Königreich auf.
+Akute/subakute Blutgerinnsel/Blutungen an verschiedenen anatomischen Stellen, sehr viele Todesfälle und
+angeblich Tausende von Impfstoffverletzten in Krankenhäusern. Dieses spezifische Risiko wurde von einem
+internationalen Team aufgedeckt, das im ersten Quartal 2021 einen offenen Brief an die EMA schrieb und
+weitere Briefe folgen liess. Der Brief wurde von den Medien komplett unterdrückt, obwohl wir einen kommerziellen ‹Wire Service› nutzten, um eine Kopie an fast alle Nachrichtenagenturen zu schicken, die wir
+finden konnten.
+Ich erinnere mich, wie erschüttert ich darüber war, dass kein einziges altes Medium über dieses grosse
+Problem der öffentlichen Sicherheit berichtete, das von Ärzten und Wissenschaftlern ausführlich beschrie
+
+-----
+
+ben wurde. Die Implikation war, dass alle Medien, ausser den kleinen, privaten, von den Tätern kontrolliert
+werden.
+Eine Reihe von neurologischen Störungen (ich bin mir nicht sicher, ob diese alle sekundär zu den thromboembolischen Ereignissen sind oder einen separaten Mechanismus darstellen, wie z. B. einen Autoimmunangriff).
+Schwere Herzschäden, insbesondere bei jüngeren Menschen. Myokarditis ist ein gewebezerstörender Prozess, der nicht repariert werden kann. Sie verkürzt das Leben erheblich und beeinträchtigt es auch. Spitzensportler haben sich deshalb zurückgezogen. Das wollen Sie definitiv nicht. Es gibt mehrere, unabhängige
+Berichte und sogar Veröffentlichungen von Fachleuten.
+Mögliche Auswirkungen auf die Fruchtbarkeit/die Entwicklung des Babys und perinatale Verletzungen und
+Todesfälle. Mechanistisch gesehen wurden alle Schritte, die diese Toxizität ermöglichen, bestätigt.
+Es wurden Autoimmunreaktionen auf die Plazenta bestätigt. Auf dieses Risiko wurde vor jeder EUA ausdrücklich hingewiesen. Die Impfstoffhersteller wussten, dass die Auswahl einer bestimmten Formulierung
+zu einer Anreicherung im Eierstockgewebe führen würde.
+Es gibt zweifellos noch viel mehr.
+Mit freundlichen Grüssen
+Mike
+_QUELLE: DR MIKE YEADON_
+_Quelle: https://uncutnews.ch/dr-mike-yeadon-das-ist-wirklich-wichtig/_
+
+## Arzt untersucht Pfizer-Dokumente und ist schockiert: 
+ «Das ist unfassbar.»
+
+_uncut-news.ch, Dezember 21, 2021_
+
+Der Arzt Daniel Nagase behandelte drei Corona-Patienten in einem Krankenhaus in der kanadischen Provinz Alberta mit Ivermectin. Obwohl alle Patienten geheilt wurden, durfte er nicht mehr im Krankenhaus
+arbeiten.
+Dr. Nagase untersuchte die kürzlich freigegebenen Pfizer-Dokumente. Diese beziehen sich auf etwa 40.000
+Berichte über unerwünschte Wirkungen.
+BC Doctor reviews 'shocking' stats from released Pfizer documents
+Nagase rechnete vor, dass 31 Prozent der Menschen, die die Pfizer-Spritze erhielten, langfristige oder
+dauerhafte Symptome hatten oder sogar starben. «Das sollte auf den Titelseiten stehen», sagte er im Gespräch mit Melanie Risdon vom ‹Western Standard›.
+
+**Dies ist also eine grosse Gefahr**
+
+In den Unterlagen wird auch über 274 schwangere Frauen berichtet, von denen nur 53 Prozent keine
+Nebenwirkungen hatten. Mehr als ein Viertel (27%) der schwangeren Frauen erlitt eine schwerwiegende
+Nebenwirkung, darunter eine Fehlgeburt oder eine Totgeburt. «Das ist also eine grosse Gefahr», sagte
+Nagase.
+Er wies darauf hin, dass diese Informationen den Regulierungsbehörden seit dem 30. April bekannt sind.
+Der Arzt fragt sich, wie es möglich ist, dass schwangere Frauen die ganze Zeit über geimpft wurden, ohne
+dass ihnen gesagt wurde, dass eine 27-prozentige Wahrscheinlichkeit besteht, eine schwere Nebenwirkung
+zu erleiden. «Das ist absolut verrückt.»
+
+**Unwiderlegbare Beweise**
+
+Von den 133 Frauen, die zum Zeitpunkt der Impfung stillten, traten bei 13 Prozent Nebenwirkungen auf.
+Das heisst, die Säuglinge litten unter Nebenwirkungen, nachdem sie von der geimpften Mutter gestillt worden waren Auch dies ist absolut verblüffend sagte Nagase
+
+
+-----
+
+Darüber hinaus wurde 34 Kindern unter 12 Jahren irrtümlich ein Corona-Impfstoff verabreicht. Bei 24 von
+ihnen traten schwere Nebenwirkungen auf. Das sind 70,6 Prozent. Dreizehn Kinder haben sich nicht erholt.
+«Dies ist ein unwiderlegbarer Beweis dafür, dass die Injektion von Pfizer gefährlich ist», betonte der Arzt.
+_QUELLE: WATCH: BC DOCTOR REVIEWS ‘SHOCKING’ STATS FROM RELEASED PFIZER DOCUMENTS_
+_Quelle: https://uncutnews.ch/arzt-untersucht-pfizer-dokumente-und-ist-schockiert-das-ist-unfassbar/_
+
+## Omikron: Das letzte Gefecht der Impfgegner
+
+_uncut-news.ch, Dezember 22, 2021_
+
+Von Ron Paul. Er ist ein US-amerikanischer Arzt und Politiker. Er ist Mitglied der Libertarian Party und war
+zwischen 1976 und 2013 (mit Unterbrechungen) als Republikaner Abgeordneter im Repräsentantenhaus
+der Vereinigten Staaten. Paul war bei der US-Präsidentschaftswahl 1988 Kandidat der Libertarian Party
+und bewarb sich parteiintern um die republikanische Kandidatur zu den US-Präsidentschaftswahlen 2008
+und 2012.
+Gerade als Präsident Bidens verfassungswidrige Impfvorschriften von den Gerichten gekippt wurden, kündigten autoritäre Politiker, Gesundheitsbürokraten und die Mainstream-Medien eine neue Covid-Variante
+an, um eine weitere Runde von Verboten und Einschränkungen zu rechtfertigen. Die Dinge, die beim letzten
+Mal nicht funktioniert haben, sollten auch dieses Mal wieder angewandt werden, behaupten sie.
+Für diese autoritären Kräfte war der Zeitpunkt des Auftauchens von Omikron perfekt.
+Die Variante wurde zuerst in Südafrika entdeckt, und die Medien in den USA und Europa verbreiteten endlose Panikmache. Autoritäre Politiker nutzten die erzeugte Angst, um einen weiteren Angriff auf die Freiheit
+zu rechtfertigen. Europa machte dicht und wurde zu einem virtuellen Gefangenenlager. In Österreich,
+Deutschland und anderswo wurden Bürger ohne Impfpass zu Unpersonen.
+Südafrikanische Gesundheitsbehörden berichteten, dass die Variante zwar ansteckender, aber weitaus
+milder als frühere Varianten zu sein schien, wie es bei solchen Viren üblich ist. Aber die Lockdowner wollten
+davon nichts wissen. Von Boris Johnson im Vereinigten Königreich bis hin zu DeBlasio in New York City
+war die Variante für sie die perfekte Tarnung, um den terrorisierten Bürgern die Stiefel wieder auf den Hals
+zu setzen.
+Wie nicht anders zu erwarten, freute sich Fauci über das Auftauchen der neuen Variante und warnte vor
+‹Rekordtodesfällen› für die Ungeimpften. In ähnlicher Weise warnte Präsident Biden, dass dies ein ‹Winter
+des Todes› für die Ungeimpften sei.
+Aber es gibt etwas, was die Medien nicht über die Omikron-Ausbrüche berichten: Sie finden unter den
+vollständig Geimpften statt. Die Cornell University, an der 97 Prozent des Campus vollständig geimpft sind
+und eine Maskenpflicht besteht, hat angekündigt, dass sie nach einem massiven Covid-Ausbruch zum reinen Online-Unterricht zurückkehren würde. Auch die National Football League hat an diesem Wochenende
+mehrere Spiele aufgrund von Covid-Ausbrüchen verschoben, obwohl die Liga praktisch zu 100 Prozent
+geimpft ist. Und die National Basketball Association, die zu über 95 Prozent geimpft ist, hat soeben bekannt
+gegeben, dass auch sie Spiele wegen eines Anstiegs der Covid-Fälle verschieben wird.
+Der Impfstoff verhindert weder die Ansteckung noch die Übertragung des Virus: In den Staaten mit den
+höchsten Impfquoten grassieren die Fälle. Dennoch behaupten die ‹Experten› weiterhin, dass die einzige
+Möglichkeit, um die Ausbreitung von Omikron zu stoppen, Impfstoffe sind! Immer mehr Menschen begreifen, dass dies keinen Sinn ergibt. Wenn Impfstoffe die Ausbreitung nicht stoppen, wie können sie dann die
+Ausbreitung stoppen?
+Unterdessen hat Südafrika, das eine der niedrigsten Impfraten aufweist, soeben bekannt gegeben, dass
+dort nur ein winziger Bruchteil der Krankenhauseinweisungen mit Omicron im Vergleich zu früheren Varianten zu verzeichnen ist. Die südafrikanische Covid-Behörde hat in einem Schreiben an den Gesundheitsminister ein Ende der Eindämmungsmassnahmen, der Rückverfolgung von Kontaktpersonen und der Quarantäne empfohlen.
+Das ungeimpfte Südafrika hebt die Covid-Beschränkungen auf, während der überimpfte Norden die Quarantäne einhält. Irgendetwas passt da nicht zusammen.
+Fauci liebt es zu sagen, dass ihn infrage zu stellen bedeutet, die Wissenschaft infrage zu stellen, aber das
+hat nichts mit Wissenschaft zu tun. Es geht um Macht. Fauci, die politischen Autoritäten und die korrupten
+Big-Pharma-Milliardäre versuchen, ein letztes Gefecht zu führen, und versuchen verzweifelt, Omikron als
+Rechtfertigung für weitere Tyrannei und Gewinne durchzusetzen. Aber die tatsächliche Wissenschaft macht
+nicht mit.
+Omikron breitet sich aus, und die Impfstoffe können es nicht aufhalten. Bislang ist fast die Hälfte der Omikron-Infektionen symptomlos. Einige Experten sagen voraus, dass Omikron das Ende von Covid-19 bedeuten wird. Aber wir wissen, dass Covid-19 niemals enden wird, solange es Leute wie Fauci gibt. Es sei denn,
+wir jagen die Scharlatane und Profiteure davon und fordern unsere Freiheit zurück!
+_QUELLE: OMICRON: THE LOCKDOWNERS’ LAST STAND_
+
+
+-----
+
+_ÜBERSETZUNG: ANTIKRIEG_
+_Quelle: https://uncutnews.ch/omikron-das-letzte-gefecht-der-impfgegner/_
+
+## Boris Palmer und die Impfpflicht: Mit Corona in den Bürgerkrieg?
+
+_22 Dez. 2021 06:45 Uhr;_ _Quelle: www.globallookpress.com © ulmer via www.imago-images.de_
+
+Wie weit sind Politiker bereit zu gehen, um zur Impfung zu nötigen? Der Tübinger Oberbürgermeister Boris
+Palmer hat hier neue Massstäbe gesetzt: Er ist bereit, dafür das Land in Brand zu setzen. Nicht nur die Verfassung bleibt als Kollateralschaden auf der Strecke.
+
+_Der Tübinger Oberbürgermeister Boris Palmer am 8. Oktober 2021_
+
+_von Dagmar Henn_
+
+Es gab schon viele geistige und auch praktische Überschreitungen während dieser Corona-Zeit, aber die
+jüngsten Äusserungen des Tübinger Oberbürgermeisters Boris Palmer stellen alles Bisherige in den Schatten. Das ist besonders auffällig, weil Palmer bisher als sehr pragmatischer Politiker aufgefallen war, der
+nicht jede ideologische Kapriole seiner Partei nachvollzog; aber diese Aussage im Interview mit der ‹Bild›
+kann nur noch mit einem Wort bezeichnet werden: Verfassungswidrig.
+Zuerst spricht er sich mit Berufung auf die umstrittenen Londoner Zahlen für eine sofortige Einführung
+einer Impfpflicht aus. Und dann sagt er:
+«Und falls jetzt jemand sagt, das kann doch niemand durchsetzen: Das geht sogar ganz einfach. Man
+könnte die Pensionszahlungen, die Rentenzahlungen oder eben den Zutritt zum Arbeitsplatz abhängig
+machen von der Vorlage eines Impfnachweises bis spätestens 15. Januar, dann wüssten alle Bescheid und
+ich bin sicher, es gäbe dann kaum noch Impfverweigerer.»
+Dieser Satz ist derart unglaublich, dass man ihn wirklich im Original hören muss, um zu fassen, dass er
+wirklich gesagt wurde. Denn er lässt sich übersetzen mit: Wenn du dich nicht impfen lässt, entziehen wir
+dir die Lebensgrundlage. Nichts anderes bedeutet es, wenn die Zahlung von Sozialleistungen und der Zugang zum Arbeitsplatz mit der Vorlage eines Impfnachweises verknüpft werden. Dieses Vorgehen unterscheidet sich von einer unmittelbaren physischen Bedrohung nur darin, dass jene mit grösseren finanziellen Reserven sich ihr entziehen können.
+Wie reagieren Menschen, wenn sie durch staatliche Massnahmen in ihrer physischen Existenz bedroht werden und keinen Ausweg sehen, das abzuwenden? Die deutsche Literatur kennt die Geschichte des Michael
+Kohlhaas. Palmer schlägt vor, eine Zwangslage zu schaffen, die durchaus gewaltsam explodieren kann.
+Das ist der eine Punkt, der daran erschüttert – man sollte eigentlich von jedem Politiker erwarten, zu wissen,
+wo die Grenze verläuft, ab der Handlungen tatsächlich die Existenz eines Staatswesens in Frage stellen, und
+solche Handlungen zu unterlassen. Gut, das war jetzt nur eine Meinungsäusserung, aber selbst die Meinungsäusserung signalisiert die Bereitschaft, die Grundbedingungen eines friedlichen Zusammenlebens
+aufzuheben. Da geht es nicht mehr um demokratisch oder undemokratisch, um rechtsstaatlich oder nicht
+rechtsstaatlich, Palmer erklärt für sich und seinesgleichen das Recht, über Sein oder Nichtsein der Bürger
+zu entscheiden.
+Es gibt bestimmte Dinge, die einem Rechtsstaat untersagt sind. Auch Strafgefangenen und Insassen geschlossener Einrichtungen darf die Nahrung nicht entzogen werden. Ihr Leben darf nicht bedroht werden.
+Sicher, diese Grenze ist längst nicht mehr völlig stabil; immerhin gab es jahrelang im SGB II die Möglichkeit
+der vollständigen Leistungsstreichung, was tatsächlich einen Entzug der Lebensgrundlage darstellte und
+weit über das hinausging, was bei Strafgefangenen zulässig wäre. Und es ist schlimm genug, dass solche
+Regelungen jahrelang gültig waren und nicht von den zuständigen Gerichten gestoppt wurden. Die Verfechter dieser Überschreitung redeten sich damit heraus, wer Sozialleistungen beziehe, müsse Gegenleistungen
+
+
+-----
+
+erbringen. Und leider liessen sich genug Menschen ausgerechnet durch eine Neidkampagne gegen die
+Ärmsten irreführen, so dass ihnen diese Unmenschlichkeit nicht um die Ohren flog.
+Aber Palmer spricht hier von Renten und vom Zugang zum Arbeitsplatz. Also von Dingen, auf die die Betroffenen einen Anspruch haben und die die Grundlage ihrer Existenz bilden.
+In einem Rechtsstaat hat der Staat nur begrenzte Möglichkeiten, Bürger zu einem bestimmten Verhalten
+zu veranlassen. Er darf Handlungen unter Strafe stellen und jene, die dagegen verstossen, in Gefängnisse
+sperren. Er muss ihnen aber selbst dort Menschenrechte zugestehen. Das betrifft nicht nur Nahrung und
+Gesundheitsversorgung, sondern auch Obdach, soziale Kontakte und die Möglichkeit, eine Arbeit zu verrichten. Der Staat kann auch für einfachere Verstösse Geldstrafen verhängen, die aber, wenn sie nicht geleistet
+werden können, auch ‹absitzbar› sein müssen, und die Höhe der Geldstrafen muss sich nach der wirtschaftlichen Leistungsfähigkeit des Betroffenen richten.
+Sich nicht impfen zu lassen ist keine Straftat. Es wäre auch schwierig, eine Straftat daraus zu machen;
+schliesslich sind die ‹Täter› gesund und damit keine Bedrohung, schädigen niemanden. Gleichzeitig führt
+die Impfung eben nicht zu steriler Immunität, weshalb das Argument, nicht geimpft zu sein sei eine Bedrohung für alle anderen, nicht greift. Und Straftaten sind nichts, das sich durch Wahrscheinlichkeitsrechnung
+in die Zukunft projizieren lässt. Man hat jemanden verletzt oder eben nicht. Es ist nicht zulässig, jemanden
+zu bestrafen, weil er in der Zukunft vielleicht jemanden verletzen oder mit dem Auto überfahren könnte.
+Das Strafrecht geht von einer objektiv belegbaren Tatsache aus; das heisst, Ausgangspunkt ist eine Tat,
+deren Täter bestimmt werden muss. Es geht nicht von einem potenziellen Täter aus, zu dem man sich
+dann eine Straftat ausdenkt. Das wäre Willkür.
+Die Bundesrepublik hat mit ihrer Gründung die Todesstrafe abgeschafft. Das war eine der tatsächlich gezogenen Konsequenzen aus den zwölf Jahren der Hitlerdiktatur, die äusserst grosszügig Todesstrafen verteilt
+hatte, in Deutschland und auch ausserhalb. Einen beträchtlichen Teil davon ohne jeden Bezug zu einer
+Straftat, schlicht wegen der Abstammung der Betroffenen. Ohne jedes Verfahren, ohne jede Einspruchsmöglichkeit, und vielfach schlicht durch Entzug der Lebensgrundlagen, wie im Warschauer Ghetto. Um
+solche Handlungen zu verhindern, war es Konsens der Autoren und Autorinnen des Grundgesetzes (eine
+Gruppe, die zwar die Zustimmung der westlichen Besatzungsmächte benötigte, aber im Gegensatz zur späteren Adenauerrepublik noch nicht von Nazis durchsetzt war), dem Staat solche Mittel nicht zu gewähren,
+sondern ihn an rechtmässige Verfahren zu binden. An individuelle, gerichtlich überprüfbare Verfahren.
+Was Palmer beschreibt, ist ein verwaltungsmässiger Vollzug einer letztlich physischen Vernichtung ohne
+Vorliegen einer Straftat, ohne Gerichtsverfahren. Eine Überschreitung jeder im Strafrecht gesetzten Grenze
+im Bereich des Verwaltungs- und Sozialrechts, die nebenbei (das sagt Palmer nicht) zynisch darauf setzt,
+dass selbst einstweilige Anordnungen, die Lebensgrundlage und Wohnung retten könnten, in diesen beiden
+Zweigen der Gerichtsbarkeit dank der permanenten Überlastung nur sehr schwer zu erhalten wären.
+Palmer ist intelligent genug, zu wissen, was er sagt. Er ist auch intelligent genug, die Widersprüchlichkeiten
+der Corona-Politik zu erkennen, und vermutlich kann er die Debatte um die Londoner Zahlen, auf die er
+sich bezieht, problemlos lesen und weiss daher sehr wohl, dass nur das pessimistischste Szenario berücksichtigt wurde. Er lässt diese Kenntnis sogar durchsickern, wenn er sagt, selbst bei milderen Verläufen würde Omikron die Kliniken überlasten; es ist ihm also bewusst, dass die Behauptung, diese Variante sei gefährlicher, nicht belegbar ist. Palmer weiss vermutlich sogar, dass eine frühzeitige Behandlung einer COVID19-Erkrankung, die hierzulande nach wie vor nicht stattfindet, die Zahl jener, die überhaupt eine Klinik benötigen, deutlich verringern könnte. Und mit Sicherheit weiss er, dass eine Zulassung anderer Impfstoffe
+die Impfquote ganz ohne Zwang erhöhen könnte.
+Dennoch redet er von Massnahmen, die jeden rechtsstaatlichen Rahmen weit hinter sich lassen. Empfiehlt
+gelassen Handlungen, die noch über das schlichte Recht auf Leben hinwegrollen wie ein Panzer. Nachdem
+das Bundesverfassungsgericht alle Massnahmen ins Belieben der Executive gestellt hat, liegt es so fern, anzunehmen, dass im Falle solcher Massnahmen viele den Moment gekommen sehen, sich auf Teile von Artikel 20 des Grundgesetzes zu berufen?
+Wenn ein Pragmatiker wie Palmer sich bereits so weit von demokratischen Grundsätzen entfernt hat, dass
+er den Rechtsfrieden selbst in Frage stellt, belegt das, welche Folgeschäden die Zeit der Corona-Massnahmen bereits hinterlassen hat. In den Köpfen der handelnden Politiker, die längst vergessen haben, dass die
+Schranken, die das Grundgesetz dem staatlichen Handeln setzte, die Folge bitterer Erfahrungen waren und
+dass es in der Geschichte, allemal der deutschen, weit schlimmere Übel gibt als eine COVID-19-Pandemie.
+Die Legitimität jedes Staatswesens hängt davon ab, ob es zum Wohle seiner Bürger agiert, zumindest ansatzweise. All seiner Bürger, auch der nicht Geimpften. Es besteht die Möglichkeit, die erklärten Impfziele
+zu erreichen, ohne dabei irgendwelche Menschenrechte zu verletzen. Das Vorgehen, das Palmer vorschlägt,
+untergräbt diese Legitimität.
+Noch sind Palmers Überlegungen nur das, Überlegungen. Würden die im Grundgesetz niedergelegten
+Rechte noch ernst genommen, Palmer müsste seines Amtes enthoben werden. Das wird mit hoher Wahrscheinlichkeit nicht passieren, obwohl kaum verfassungswidrigere Positionen möglich sind als solche, die
+unmittelbar in einen Bürgerkrieg führen. Noch bleibt die Hoffnung, dass nichts davon umgesetzt wird. Was
+
+
+-----
+
+aber auf jeden Fall bleibt, ist die Tatsache, dass grosse Teile der politischen Klasse inzwischen vergessen
+haben, wie Demokratie, Menschenrechte und Rechtsstaat überhaupt funktionieren.
+_COVID-19 weit gefährlicher wäre, dieser Kollateralschaden ist zu hoch._
+_Quelle: https://de.rt.com/meinung/128788-boris-palmer-oder-mit-corona-in-den-untergang/_
+
+## HASS UND HETZE
+_ARD geifert gegen Ungeimpfte_
+
+_Autor: Uli Gellermann Datum: 21.12.2021_
+
+Michael Stempfle arbeitet im ARD-Hauptstadtstudio. Unter der Überschrift ‹Die Stärke der Mehrheit› entlässt er seine Meinung über Ungeimpfte in die scheinbare Medien-Freiheit des Landes. Scheinbar, weil
+natürlich kein Ungeimpfter für seine Meinung einen vergleichbaren Resonanzkörper bekäme: Stempfle
+erreicht über die Gebühren-Rutsche ein Millionen-TV-Publikum. Und er geifert über ‹Eine kleine Minderheit
+von radikalen, gewaltbereiten Impfgegnern und Verschwörungserzählern. Ähnlich wie Terroristen verbreiten
+sie Angst und Schrecken›.
+
+**Terror-Experten für Impfen**
+
+Michael Stempfle gilt als ‹Terrorismusexperte›. Offenkundig hat die ARD die Ungeimpften als Terroristen
+einsortiert. Terror-Experten sind die Leuten im staatlichen Medien-Apparat, die besonders eng mit dem
+Verfassungsschutz zusammenarbeiten: Das ist die Truppe, die Impfskeptiker und Querdenker gern zu Verfassungsfeinden erklärt: Die Jagd ist eröffnet, die Meute der ARD-Hetzhunde wird von der Leine gelassen,
+Stempfle und andere haben das Kommando ‹FASS!› gehört.
+
+**Ungeimpfte: Respektable Sperrminorität**
+
+«Die übergrosse Mehrheit in Deutschland lässt sich impfen», weiss der Hauptstadt-Redakteur. Bisher sind
+es aber rund 30 Prozent der Deutschen, die sich nicht Impfen lassen. Und früher, vor der Pharma-HysterieKampagne galt das als eine respektable Sperrminorität, in Aktiengesellschaften sind es 25,1 Prozent der
+Aktionäre, die Beschlüsse verhindern können. Aber da geht es um Geld, den Impfskeptikern geht es um die
+Gesundheit.
+
+**Rund um die Uhr spritzen**
+
+Gerade jüngst hat Lauterbach, der Wirre im Amt des Gesundheitsministers, sogar öffentlich feststellen müssen, dass sich Geimpfte öfter anstecken als Ungeimpfte. Und der Biontech-Mitgründer Ugur Sahin hat sich
+inzwischen für eine Corona-Auffrischungsimpfung bereits ab drei Monaten nach der Zweitimpfung ausgesprochen. Spritzen rund um die Uhr ist angesagt, mit einem Stoff, der nicht validiert und offenkundig schädlich ist.
+
+**Impfgegner als Verfassungsfeinde gestempelt**
+
+Aber Stempfle, der Terror-Experte der ARD, steigt gleich mit einem Rührstück ein: «Da ist die 80-jährige
+Frau, die erzählt, wie erleichtert sie sei. Endlich sei sie geboostert.» Die Frau hat keinen Namen. Sie ist nur
+eine Reklame-Figur, dem Hirn eines Pharma-Vertreters entsprungen. Demselben Hirn entstammt dieser
+Satz: «Dass es sich bei den radikalisierten Impfgegnern um Verfassungsfeinde handelt, die den demokratischen Staat ablehnen.»
+
+**Meinungsterroristen mit Medienmacht**
+
+Dass es sich bei Stempfle und seinen Redaktionsgenossen um Meinungsterroristen handelt, um Leute, die
+ihre Medienmacht ausnützen um Lügen zu verbreiten, dass sie ein Regime stützen, das die Grundrechte
+demontiert, wird in jeder Zeile des Kommentars deutlich. Analysen, Argumente, demokratische Diskussion?
+Das alles zählt nicht mehr bei den wild gewordenen Kumpanen der Impf-Profiteure.
+
+**Angst vor den Vielen der Sperrminorität**
+
+Was zählt sind die 10.000 Euro die Stempfle und Konsorten monatlich einstecken. Was für die zählt, sind
+die üppigen Pensionen, die das Öffentlich-Rechtliche denen zahlt, die Regierungs-Propaganda verbreiten
+statt ordentlichen Journalismus zu machen. Was zählt ist die erbärmliche Angst, dass die Vielen der Sperrminorität die Mehrheit werden. Das wäre ja dann Demokratie, das wollen sie verhindert wissen. Es ist der
+Hass der Unfreien gegen die Freien, der aus ihnen quillt.
+
+**DER MALER WINFRIED WOLK GRÜSST ZU WEIHNACHTEN**
+
+Lieber Uli,
+die Welt ist völlig verrückt geworden und es gibt keine Aussicht auf Besserung. Trotzdem kommt Weihnachten das in diesem Jahr ausnahmsweise noch so heissen darf wie ich irgendwo las Wenn wir dann im näch
+
+
+-----
+
+sten Jahr zwangsweise das 6. Mal geboostert sind, werden wir nicht mehr wissen, wie diese komischen
+Feiertage einmal geheissen haben, die man uns dann sehr grosszügig gewährt. Also geniessen wir, was wir
+noch geniessen dürfen, bald ist Schluss mit lustig und das für lange, lange Zeit, vielleicht sogar für immer,
+wenn…
+In diesem Sinne trotzdem noch einmal ein schönes, stressfreies Weihnachten und ein möglichst maskenfreies, virusfreies und bald von Blödheit freies 2022!
+Beste Grüsse und alle guten Wünsche Dir lieber Uli,
+Winfried
+_Quelle: https://www.rationalgalerie.de/home/hass-und-hetze_
+
+## Dr. Vernon Coleman: Was macht der COVID Impfstoff mit dem Gehirn?
+
+_uncut-news.ch, Dezember 21, 2021_
+
+In meinem Video vom 11. Dezember habe ich einige der Gesundheitsprobleme beschrieben, denen die
+leichtgläubigen Menschen ausgesetzt sind, die den Lügen und Fehlinformationen erlegen sind, die von den
+Regierungen, dem medizinischen Establishment und den Mainstream-Medien so weit verbreitet und begeistert verbreitet werden.
+In diesem Video mit dem Titel ‹Deshalb werden die meisten Geimpften früh sterben› erwähnte ich meine
+Befürchtung, dass die Geimpften infolge der Covid-19-Impfung Gehirnschäden erleiden könnten.
+Diese Befürchtung war real, wie ich in diesem Video zeigen werde.
+Es wurde festgestellt, dass es vieles gibt, was noch niemand über die Covid-19-Impfung weiss, und der Eifer
+der britischen Aufsichtsbehörde für Arzneimittel und Gesundheitsprodukte (Medicines and Healthcare Products Regulatory Agency), ein Produkt zuzulassen, über das es anscheinend keine Informationen gibt, wurde nie angemessen erklärt. Wir wissen jedoch, dass die MHRA, wie ich als erster enthüllte, eine riesige Geldsumme von der Bill and Melinda Gates Foundation erhielt, die finanzielle Verbindungen zu Impfstoffherstellern wie Pfizer unterhält.
+Was die Wirkung auf das Gehirn angeht, so lautet die grosse Frage: Können die Lipid-Nanopartikel die
+mRNA-Impfung über die Blut-Hirn-Schranke transportieren?
+Die Blut-Hirn-Schranke ist eine halbdurchlässige Barriere aus Zellen, die verhindert, dass bestimmte Substanzen aus dem Blut in die schützende Flüssigkeit um das zentrale Nervensystem gelangen.
+Es ist von entscheidender Bedeutung zu wissen, ob dies der Fall ist, denn wenn dies der Fall ist, ist alles
+möglich, was mit dem Gehirn passieren könnte.
+Schliesslich werden flüssige Nanopartikel bereits dazu verwendet, andere Medikamente über die Blut-HirnSchranke zu transportieren.
+Wenn die LNPs die mRNA-Impfung ins Gehirn tragen, könnten die Neuronen, die Gehirnzellen, vom Immunsystem des Körpers als fremd markiert werden. Und je mehr Auffrischungsimpfungen verabreicht werden,
+desto grösser wird das Problem. Die Sorge ist, dass die Gehirnzellen von zytotoxischen T-Zellen angegriffen
+und getötet werden könnten.
+Es ist inzwischen erwiesen, dass mRNA in allen menschlichen Geweben ausser der Niere gefunden wurde.
+Sie wurde in Herz, Lunge, Leber, Hoden – und im Gehirn gefunden. Eine japanische Studie hat beispielsweise gezeigt, dass der Impfstoff tatsächlich im Gehirn landet.
+Besorgniserregend ist auch die Tatsache, dass Forscher Studien gefordert haben, um jeden Zusammenhang zwischen Impfungen und akuter ZNS-Demyelinisierung zu untersuchen.
+Wie gross ist der Schaden, der dadurch entsteht? Wie lange wird es dauern, bis Hirnschäden festgestellt
+werden können? Ich habe nicht die leiseste Ahnung. Und das weiss auch sonst niemand.
+Bei einem normalen Experiment mit einem neuen Medikament würden die Ärzte alle möglichen Probleme
+untersuchen und prüfen, bevor sie das Medikament für die breite Anwendung freigeben.
+Aber die Covid-19-Impfung wird an Milliarden von Menschen verteilt, ohne dass irgendjemand auch nur
+die leiseste Ahnung hat, was passieren wird.
+Wenn Sie geimpft worden sind, scheint die erste Gewissheit zu sein, dass der mRNA-Impfstoff in Ihr Gehirn
+gelangt.
+Die zweite Gewissheit ist, dass dies umso gefährlicher ist, je mehr Impfungen Sie erhalten haben.
+Wie viele Ihrer Gehirnzellen absterben werden, kann nur die Zeit zeigen. Und Kinder sind natürlich gefährdeter, weil sie ohnehin gefährdeter sind und weil sie wahrscheinlich länger leben werden.
+Einige Experten, Berater und Regulierungsbehörden werden Ihnen sagen, dass die Risiken gering sind. Aber
+wie können sie das wissen? Und was ist gering? Sie haben uns gesagt, dass die Probleme mit der Blutgerinnung gering sind.
+Meiner Meinung nach ist eine dieser Impfungen das Äquivalent zur Einnahme einer grossen Dosis LSD und
+dem Abwarten, was passiert. Und zu hoffen, dass man nicht so endet wie Peter Green zum Beispiel.
+
+
+-----
+
+Und denken Sie daran, dass die Covid-19-Impfung Sie nicht davor schützt, Covid-19 zu bekommen, und
+auch nicht davor, dass Sie es weitergeben. Nach den Richtlinien des NHS im Vereinigten Königreich kann
+man sich auch nach drei Impfungen noch mit Covid-19 anstecken oder es weitergeben.
+Die Entscheidung, ob man sich impfen lassen will oder nicht, sollte bei Ihnen liegen.
+Aber die Regierungen wollen diese Impfungen zur Pflicht machen.
+Wenn diese Impfung gegen eine tödliche Krankheit mit einer Sterblichkeitsrate von 50% verabreicht würde,
+wären die Risiken vielleicht lohnenswert. So ist es aber nicht und sie sind es nicht.
+Danke, dass Sie einem alten Mann in einem Stuhl zugeschaut haben. Und danke an Brand New Tube und
+an Muhammad Butt. Bitte abonnieren Sie meinen Kanal auf Brand New Tube und verbreiten Sie meine
+Videos auf anderen Plattformen wie Rumble, Brighteon, Odysee und Bitchute. Mein Dank an alle, die das
+tun. Stellt dieses Video auch auf Twitter und Facebook. Wenn ihr einen Schlag auf das Handgelenk bekommt, seht es als Kriegsverletzung an. Bitte macht auch Übersetzungen. Alle Papiere und so weiter, auf
+die ich mich beziehe, können leicht im Internet gefunden werden. Wenn ich Ihnen alle Links gebe, werde
+ich nie etwas anderes tun. Wir stellen die Transkripte der Videos auf beide Websites und fügen, wenn möglich, wichtige Links hinzu.
+Fürs Protokoll, dieser Kanal ist nicht monetarisiert worden – keines meiner Videos wurde jemals monetarisiert. Es gibt keine Werbung, keine Sponsoren und keine Bitten um Geldmittel auf Videos oder Websites.
+Vergessen Sie nicht, sich die erstaunlichen Videos meines Freundes Dr. Colin Barron anzusehen, die immer
+fantastisch und oft unglaublich lustig sind. Und besuchen Sie seine Website www.colinbarron.co.uk.
+Lesen Sie www.theLightpaper.co.uk für alle Nachrichten, die von den Mainstream-Medien als zu wahrheitsgemäss angesehen werden, um sie zu drucken. Es werden erstaunliche 200.000 Exemplare verteilt. Das ist
+eine höhere Auflage als ‹The Guardian›. Vergewissern Sie sich, dass Sie ein Exemplar von ‹We are the 99%›,
+der Hymne der Widerstandsbewegung, aufgenommen von Darren und der Daz Band, besitzen. Es ist von
+entscheidender Bedeutung, dass es die Nummer Eins zu Weihnachten ist. Es gibt einen Link dazu auf
+meinen beiden Websites. Und besuchen Sie astandinthepark.org, wo Sie Ratschläge finden, wie und wo Sie
+in einem Park stehen können.
+Besuchen Sie auch meine eigenen Websites www.vernoncoleman.org und www.vernoncoleman.com. www.
+vernoncoleman.com ist eher altmodisch, enthält aber Hunderte von Artikeln zu Tierfragen, Politik und
+vielem mehr, zusätzlich zur Gesundheit. Auf beiden Websites finden Sie kostenlose Bücher, und jeden
+Wochentag kommen brandneue Artikel hinzu. Es gibt Hunderte von Originalartikeln zu lesen, und natürlich
+wird der Beitrag über Impfschäden jede Woche aktualisiert. Neue Artikel werden fast jeden Tag hinzugefügt.
+Der Mittwochsrückblick von Vernon Coleman wird, so Gott will, jeden Mittwoch um 19 Uhr hier erscheinen.
+Wenn nicht, dann ist mir entweder etwas zugestossen oder das Video wurde unterdrückt, wie so vieles von
+meiner Arbeit in diesen Tagen.
+Wir alle müssen dafür beten, dass die Wahrheit von vielen geteilt wird, nicht nur von wenigen. Egal, welcher
+Religion Sie angehören, Sie müssen beten, denn die Leute, die diesen Betrug betreiben, respektieren nur
+Lügen, aber so wie Vampire das Sonnenlicht fürchten, fürchten sie die Wahrheit – sie ist der grösste Feind
+Ihrer Regierung und unsere einzige Waffe. Und schliesslich, auch wenn es sich manchmal so anfühlt, denken Sie bitte daran, dass Sie nicht allein sind. Immer mehr Menschen wachen auf, und wenn sie einmal
+wach sind, schlafen sie nicht wieder ein. – Das bedeutet, dass unsere Zahl täglich wächst.
+Wenn wir diesen Krieg gewinnen wollen, dann müssen wir hart und mit Entschlossenheit, Leidenschaft und
+der Wahrheit kämpfen. Denken Sie daran, dass dies in erster Linie ein Propaganda- und Medienkrieg ist.
+Misstraut der Regierung, meidet die Massenmedien und bekämpft die Lügen.
+Danke, dass Sie einem alten Mann in einem Stuhl zugehört haben.
+_QUELLE: WHAT'S THE COVID JAB DOING TO THE BRAIN?_
+_Quelle: https://uncutnews.ch/dr-vernon-coleman-was-macht-der-covid-impfstoff-mit-dem-gehirn/_
+
+## New Yorker Gesetzgebung sieht unbefristete Inhaftierung
+ von Ungeimpften nach Gutdünken des Gouverneurs vor.
+
+_uncut-news.ch, Dezember 20, 2021_
+
+In der nächsten Legislaturperiode, die am 5. Januar 2022 beginnt, könnten der New Yorker Senat und die
+Versammlung über einen Gesetzentwurf abstimmen, der die Erlaubnis erteilt, Fälle, Kontaktpersonen, Überträger oder Personen, die im Verdacht stehen, eine ‹erhebliche Gefahr für die öffentliche Gesundheit› darzustellen, zu entfernen und auf unbestimmte Zeit aus dem öffentlichen Leben zu entfernen.
+Der Gesetzentwurf A416 stellt eine ernste Gefahr für die grundlegenden Freiheiten aller Amerikaner im
+Bundesstaat New York dar, einschliesslich ihres Rechts zu wählen, ob sie sich im Zusammenhang mit
+bislang unbestimmten ansteckenden Krankheiten medizinisch behandeln und impfen lassen wollen oder
+nicht.
+
+
+-----
+
+Der Gesetzentwurf gibt dem Gouverneur von New York und seinen Beauftragten – einschliesslich, aber
+nicht beschränkt auf den Beauftragten und die Leiter der örtlichen Gesundheitsämter – das Recht, Einzelpersonen oder Personengruppen durch eine einzige Anordnung zu entfernen und festzuhalten. Die Anordnungen müssen nur den Namen der Person(en) oder eine ‹hinreichend genaue Beschreibung der Personen
+oder Gruppen› enthalten.
+Die Behörde kann beschliessen, eine Person oder eine Gruppe von Personen in einer medizinischen Einrichtung oder an einem anderen Ort festzuhalten, den sie für angemessen hält. Die Formulierung ist absichtlich
+vage gehalten.
+Obwohl der Gesetzentwurf vorsieht, dass niemand länger als 60 Tage festgehalten werden darf, kann per
+Gerichtsbeschluss auf diese Höchstdauer verzichtet werden. Nach 60 Tagen hat das Gericht weitere 90
+Tage Zeit, um die Inhaftierung einer Person zu prüfen, ein Zyklus, der nach Ansicht des Ministeriums unbegrenzt andauern kann.
+Weiter heisst es in dem Gesetzentwurf, dass ‹eine Person, die einer ansteckenden Krankheit ausgesetzt war
+oder sich damit infiziert hat, eine angemessene, vorgeschriebene Behandlung, vorbeugende Medikation
+oder Impfung absolvieren muss›, was der Regierung im Wesentlichen das Recht gibt, jeden, den sie will,
+festzuhalten und zwangsweise zu impfen.
+Da in dem Gesetzentwurf von Personen oder Gruppen die Rede ist, die ‹potenziell› eine Bedrohung darstellen, handelt es sich um einen Präventivschlag gegen alle, von denen das Ministerium annimmt, dass sie ‹in
+Zukunft eine Bedrohung darstellen könnten›, wie z. B. Personen, die sich weigern, sich gegen COVID-19
+impfen zu lassen.
+Es gibt keinen ausdrücklichen Hinweis darauf, bei welchen Arten von ansteckenden Krankheiten eine Person aus dem öffentlichen Leben entfernt, in einer Einrichtung festgehalten und zu einer medizinischen Behandlung und Impfung gezwungen werden kann. Technisch gesehen kann jeder in Isolationshaft gehalten
+werden, bis er als nicht mehr ansteckend gilt, was auch die Frage aufwirft, ob Personen mit HIV/AIDS wieder
+in die Gesellschaft entlassen werden können.
+Der Gesetzentwurf hat auf der Website des New Yorker Senats ein überwältigend negatives Echo gefunden.
+In den Kommentaren heisst es: «Das ist beunruhigend und schafft einen schrecklichen Präzedenzfall für
+künftige Gesetze. Der Gouverneur kann im Grunde genommen auf der Grundlage dürftiger Beweise inhaftieren, wen immer er/sie will. Das ist unamerikanisch. Es erinnert an die Sowjetunion, die politische Gegner
+mit der Begründung einsperrte, sie seien ‹geistig instabil›. Wir KÖNNEN dies in unserem Staat NICHT zulassen.»
+«Dies ist eine Verletzung der grundlegenden Menschenrechte. Die Regierung sollte für die Menschen arbeiten und sie nicht ohne Grund einsperren.»
+Andere haben auf die Ähnlichkeiten zwischen diesem Gesetzentwurf und der australischen Reaktion auf
+COVID-19 hingewiesen. Australien hat eine Reihe von COVID-‹Quarantäneeinrichtungen› gebaut, in denen
+jeweils Tausende von Menschen untergebracht werden können.
+Die Formulierung des Gesetzentwurfs A416 kann garantieren, dass Amerikaner, unabhängig davon, ob sie
+positiv auf COVID oder eine andere Krankheit getestet wurden, auf unbestimmte Zeit in solchen Einrichtungen festgehalten werden.
+_QUELLE: NEW YORK LEGISLATION PROVIDES FOR INDEFINITE DETENTION OF UNVACCINATED AT GOVERNOR’S WHIM._
+_Quelle:_ _https://uncutnews.ch/new-yorker-gesetzgebung-sieht-unbefristete-inhaftierung-von-ungeimpften-nach-gutduen-_
+
+_ken-des-gouverneurs-vor/_
+
+## Vietnam: Nach einer Serie von Todesfällen wird die Verabreichung 
+ des Impfstoffs von Pfizer-Biontech an Kindern gestoppt
+
+_uncut-news.ch, Dezember 21, 2021_
+
+trialsitenews.com: Das Programm zur Verabreichung von COVID-19-Impfungen an Kinder wurde in Thanh
+Hoa und Hanoi aufgrund von Sicherheitsbedenken ausgesetzt. Wie TrialSite berichtet, haben die Gesundheitsbehörden in den südöstlichen Provinzen Vietnams die Verwendung des Impfstoffs COVID-19 von
+Pfizer-BioNTech gestoppt, nachdem mehr als 120 Kinder nach einer schulweiten Impfung ins Krankenhaus
+eingeliefert worden waren. TrialSite berichtete vor kurzem, dass ein 15-jähriger Junge aus einer nördlichen
+Provinz Vietnams gestorben ist – der vierte Todesfall bei einem Kind, der mit dem Impfstoff COVID-19 in
+Verbindung gebracht wird. Die Südostasien-Korrespondenten von TrialSite stellen weitere Nachforschungen an.
+Die Impfstoffe von Pfizer und Moderna sind von der vietnamesischen Regierung für die Verwendung bei
+Kindern zugelassen. Die Kinder werden für die Impfung in drei Altersgruppen eingeteilt: 3–11 Jahre, 12–
+15 Jahre und 16–17 Jahre. Das Gesundheitsministerium geht davon aus, dass bis zum vierten Quartal
+2021 knapp 95% der 8,1 Millionen Jugendlichen im Alter von 12–17 Jahren zwei Dosen COVID-19-Impfstoff erhalten haben werden
+
+
+-----
+
+**Impfung in Hanoi gestoppt**
+
+Ein Mädchen im Thuong Tin Distrikt in Hanoi starb nur einen Tag nach der Impfung im November. Die
+Todesursache war eine Anaphylaxie des Grades IV, wie das Post-Vaccination Events Expert Panel mitteilte.
+Anaphylaxie ist eine Reihe von Symptomen, die durch eine allergische Reaktion auf eine fremde Substanz
+verursacht werden. Die schwerste Form der Anaphylaxie ist die Anaphylaxie des Grades IV, bei der es zum
+Kollaps der Atemwege und des Herzens kommt. Es wurde jedoch festgestellt, dass der Fall nichts mit der
+Qualität des Impfstoffs oder den Impfmethoden zu tun hatte.
+Die Gesundheitsbehörde von Hanoi hat daraufhin mit dem Gesundheitsministerium über zwei Chargen von
+Pfizer-Impfstoffen mit den Nummern 124001 und 123002 gesprochen, die zur Impfung von Studenten
+verwendet worden waren. Diese beiden Chargen waren ursprünglich mit einem Verfallsdatum vom 30. November 2021 gedruckt worden, ihr Verfallsdatum wurde jedoch bis zum 28. Februar 2022 verlängert.
+«Nach Rückmeldungen von Eltern hat Hanoi die Injektion der beiden Impfstoffe gestoppt und das Gesundheitsministerium konsultiert, die anderen Chargen wurden normal geimpft», sagte die Direktorin des
+Gesundheitsamtes von Hanoi, Tran Thi Nhi Ha. Das Gesundheitsministerium von Hanoi hat am 1. Dezember
+eine Pressemitteilung veröffentlicht, in der bestätigt wird, dass der Covid-19-Impfstoff weiterhin an Schüler
+in Hanoi verabreicht wird. TrialSite berichtet, dass sich die Medien in Nordamerika und Europa weit von
+dieser Geschichte entfernt haben.
+
+**Thanh Hoa folgt dem Beispiel**
+
+In Thanh Hoa, südlich von Hanoi im äussersten Norden des südostasiatischen Landes, sind an Schulen
+mobile Injektionsstellen eingerichtet. Sie bieten die COVID-19-Impfung in erster Linie Kindern in Gymnasien
+sowie Studenten in Berufs- und Weiterbildungsinstituten an. Allerdings wurden mehr als 120 Jugendliche
+in der Provinz zur Nachbehandlung der Injektion ins Krankenhaus eingeliefert. Das Gesundheitsamt der
+Provinz hat Massnahmen ergriffen, um die Injektion der verdächtigen Impfstoffchargen zu verhindern, wie
+die internationale Version von VN Express, einem beliebten Online-Nachrichtenmedium der FPT-Gruppe,
+dem grössten vietnamesischen Unternehmen für Informationstechnologie, berichtet.
+Luong Ngoc Truong, Leiter des CDC Thanh Hoa, erklärte, dass die Verwendung der mit den Nebenwirkungen in Verbindung gebrachten Charge gestoppt wurde, die Impfung von Kindern mit anderen Chargen,
+ebenfalls Pfizer-Impfstoffen, jedoch fortgesetzt werde. Er fügte hinzu, dass die ausgesetzte Charge eingelagert werde und später für andere Gruppen wie Erwachsene verwendet werden könne.
+In der vietnamesischen Fassung des Artikels bezeichnet Truong die Symptome als eine Art ‹Hysterie›, die
+sich verstärkt, wenn Kinder sehen, dass andere geimpfte Kinder in Ohnmacht fallen. Vu Van Chinh, Direktor
+des Bezirkskrankenhauses von Ha Trung, stimmte dem zu und schlug vor, dass Kinder, die reagieren oder
+in Ohnmacht fallen, getrennt werden sollten, um eine Kettenreaktion zu vermeiden. Er berichtete auch, dass
+zwei Kinder, die in sein Krankenhaus überwiesen wurden, mit krampfartigen Symptomen in das allgemeine
+Krankenhaus der Provinz verlegt wurden. Zweifellos handelte es sich bei diesen Verlegungen um mehr als
+nur ‹Hysterie›.
+TrialSite befragte eine Einwohnerin von Thanh Hoa. Sie sagte unter der Bedingung der Anonymität, dass
+die Impfung von Kindern pausiert wurde, aber es gab keine offizielle Stellungnahme der Regierung, die darauf hindeutet, dass das Impfprogramm für Kinder ganz eingestellt werden soll.
+
+**Eine zögerliche Öffentlichkeit**
+
+Eltern oder Erziehungsberechtigte müssen eine Einverständniserklärung unterschreiben, damit die Schüler
+an dem Impfprogramm teilnehmen können. Nguyen Huu Hung, stellvertretender Direktor des Gesundheitsamtes von Ho-Chi-Minh-Stadt, betonte: «Der Gesundheitssektor impft nur, wenn die Familie zustimmt, den
+Kindern den Impfstoff zu geben.»
+Bis zum 8. Dezember haben jedoch mehr als 1000 Eltern in der Provinz Nam Dinh, ebenfalls im Norden,
+nicht zugestimmt, ihre Kinder gegen COVID-19 impfen zu lassen. Dies ist vor allem auf die grosse Zahl der
+in der Provinz Nam Dinh verwendeten Impfstoffe zurückzuführen, deren Verfallsdatum verlängert worden
+ist. Diese Zahl entspricht jedoch weniger als 2% der Eltern und Erziehungsberechtigten in der Provinz.
+Eine Online-Umfrage unter 6000 jungen Menschen in Ho-Chi-Minh-Stadt im März 2021 ergab, dass die
+drei wichtigsten Gründe für ihre Abneigung oder Weigerung, sich impfen zu lassen, die vermeintliche Notwendigkeit der Impfung, die Besorgnis über die Nebenwirkungen des Impfstoffs und der mangelnde Zugang zu Informationen sind.
+Die Einwohnerin von Thanh Hoa sagte: «Die Eltern machen sich Sorgen. Sie wollen, dass die Regierung zumindest die Zahl der Impfungen verlangsamt, die Qualität des Impfstoffs besser bestätigt oder untersucht
+und sicherstellt, dass die Kinder, die geimpft werden, sicher sind.»
+
+**Ein unvollständiges Bild**
+
+Zuvor hatte TrialSite berichtet, dass der Todesfall in der vietnamesischen Presse mit dem Impfstoff in Verbindung gebracht worden war. Das vietnamesische Gesundheitsministerium erklärte, es handele sich um
+
+
+-----
+
+eine ‹Überreaktion auf den Impfstoff› und stellte klar, dass die Reaktion ‹nicht mit der Qualität des Impfstoffs
+oder dem Impfverfahren zusammenhängt›.
+Andere Regierungen, bei denen ähnliche Fälle von Impfreaktionen bei jungen Menschen aufgetreten sind,
+haben die gleichen Schritte unternommen und den Bürgern versichert, dass die Todesfälle nichts mit dem
+COVID-19-Impfstoff zu tun haben. Die Regierungsbehörden scheinen die Botschaft zu wiederholen, dass
+Impfstoffe sicher und wirksam sind.
+Die Sozialistische Republik Vietnam hat die Medien fest im Griff, da die Regierung alle Printmedien und
+Fernsehsender kontrolliert. Es ist bekannt, dass Journalisten und Blogger strengen Gesetzen unterworfen
+sind. Wer über strittige Themen berichtet oder sie kommentiert, läuft Gefahr, eingeschüchtert zu werden
+oder Schlimmeres.
+Pfizer und BioNTech gaben am 8. Dezember eine Erklärung ab, wonach ihre vorläufigen Laboruntersuchungen zeigen, dass drei Dosen des Impfstoffs Pfizer-BioNTech COVID-19 erforderlich sind, um die
+Omikron-Variante zu neutralisieren.
+Die Pharmaunternehmen setzen die Entwicklung eines variantenspezifischen Impfstoffs gegen Omikron
+fort und hoffen, diesen bis März 2022 verfügbar zu haben. TrialSite wird die Entwicklung der Situation in
+Vietnam weiterverfolgen.
+_QUELLE: PFIZER-BIONTECH VACCINES WITHHELD FROM VIETNAMESE CHILDREN AFTER SPATE OF DEATHS & AES_
+_Quelle: https://uncutnews.ch/vietnam-nach-einer-serie-von-todesfaellen-wird-die-verabreichung-des-impfstoffs-von-pfizer-_
+_biontech-an-kindern-gestoppt/_
+
+## Japans Impfpolitik: Kein Zwang, keine Diskriminierung
+
+_uncut-news.ch, Dezember 21, 2021_
+
+Das japanische Gesundheitsministerium verfolgt bei den Covid-Impfstoffen einen vernünftigen, ethischen
+Ansatz. Vor kurzem wurden die Impfstoffe mit einer Warnung vor Myokarditis und anderen Risiken versehen. Ausserdem bekräftigte es seine Verpflichtung zur Meldung unerwünschter Ereignisse, um mögliche
+Nebenwirkungen zu dokumentieren.
+Das japanische Gesundheitsministerium erklärt: «Obwohl wir alle Bürger ermutigen, sich gegen COVID-19
+impfen zu lassen, ist die Impfung nicht obligatorisch oder verpflichtend. Die Impfung wird nur mit der Zustimmung der zu impfenden Person nach entsprechender Aufklärung durchgeführt.»
+Weiter heisst es dort: «Bitte lassen Sie sich aus eigener Entscheidung impfen, wobei Sie sich sowohl über
+die Wirksamkeit bei der Verhütung von Infektionskrankheiten als auch über das Risiko von Nebenwirkungen
+im Klaren sein sollten. Ohne Zustimmung wird keine Impfung durchgeführt.»
+Und schliesslich heisst es ganz klar: «Bitte zwingen Sie niemanden an Ihrem Arbeitsplatz oder in Ihrem
+Umfeld, sich impfen zu lassen, und diskriminieren Sie niemanden, der nicht geimpft ist.»
+Sie verweisen auch auf eine Seite mit ‹Ratschlägen für Menschenrechte›, die Anweisungen für den Umgang
+mit Beschwerden enthält, wenn Personen am Arbeitsplatz durch Impfungen diskriminiert werden.
+Andere Länder täten gut daran, dem Beispiel Japans mit diesem ausgewogenen und ethischen Ansatz zu
+folgen.
+
+Diese Politik überträgt die Verantwortung für die Entscheidung über die Gesundheitsfürsorge in angemessener Weise auf den Einzelnen oder die Familie.
+Wir können dies mit dem Ansatz der Impfpflicht in vielen anderen westlichen Ländern vergleichen. Die Vereinigten Staaten bieten eine Fallstudie für die Anatomie des medizinischen Zwangs, der von einem gesichtslosen bürokratischen Netzwerk ausgeübt wird.
+Eine Bürokratie ist eine Institution, die enorme Macht über einen ausübt, ohne dass man dafür verantwortlich gemacht werden kann. Dies führt zu der bekannten Frustration, die man oft in kleinem Rahmen bei
+der örtlichen Strassenverkehrsbehörde erlebt, dass man sich in bürokratischen Kreisen bewegt und versucht, Probleme zu lösen oder unfaire Praktiken zu korrigieren. Niemand scheint in der Lage zu sein, Ihnen
+zu helfen, den Dingen auf den Grund zu gehen – selbst wenn eine wohlmeinende Person Ihnen aufrichtig
+helfen möchte.
+Diese Dynamik zeigt sich bei den Zwangsimpfungen in den Vereinigten Staaten auf folgende Weise. Die
+CDC gibt Impfstoffempfehlungen ab. Aber die ethisch wichtige Unterscheidung zwischen einer Empfehlung
+und einem Mandat fällt sofort in sich zusammen, wenn Institutionen (z. B. eine Regierungsbehörde, ein
+Unternehmen, ein Arbeitgeber, eine Universität oder eine Schule) von Ihnen verlangen, sich auf der Grundlage der CDC-Empfehlung impfen zu lassen.
+Versucht man, die Rationalität dieser Vorschriften anzufechten, z. B. vor einem Bundesgericht, verweist die
+vorschreibende Institution einfach auf die CDC-Empfehlung als rationale Grundlage für die Vorschrift. Das
+Gericht wird in der Regel zustimmen und sich auf die Autorität der CDC im Bereich der öffentlichen Gesund
+
+-----
+
+heit berufen. Die Schule, das Unternehmen usw. lehnt somit die Verantwortung für die Entscheidung, den
+Impfstoff vorzuschreiben, ab: «Wir halten uns ja nur an die Empfehlungen der CDC. Was können wir tun?»
+Aber auch die CDC lehnt die Verantwortung ab: «Wir machen keine Politik, wir geben nur Empfehlungen
+ab.»
+
+In der Zwischenzeit ist der Impfstoffhersteller nach dem Bundesgesetz immun und von jeglicher Haftung
+oder Schaden freigestellt. Es nützt nichts, sich an ihn zu wenden, wenn sein Produkt – ein Produkt, für das
+Sie sich nicht freiwillig entschieden haben – Sie schädigt.
+Sie sind jetzt ganz benommen, weil Sie sich im Kreis drehen und versuchen, den tatsächlichen Entscheidungsträger zu identifizieren: Es ist unmöglich, die zuständige Behörde ausfindig zu machen. Sie wissen,
+dass eine enorme Macht über Ihren Körper und Ihre Gesundheit ausgeübt wird, ohne dass Sie für die
+Entscheidung verantwortlich sind und ohne dass Sie für die Folgen haften.
+Sie haben also die Folgen einer Entscheidung zu tragen, von der niemand behauptet, sie getroffen zu haben.
+Die einzige Gewissheit ist, dass Sie die Entscheidung nicht getroffen haben und dass Sie nicht die Wahl
+hatten.
+
+Die japanische Politik vermeidet die meisten dieser Probleme, indem sie die Verantwortung für die Entscheidung auf die Person überträgt, die den Eingriff erhält, oder auf die Eltern im Falle eines Kindes, das nicht
+alt genug ist, um seine Zustimmung zu geben.
+Diese Betonung von Wahlmöglichkeiten und Freiheit spiegelte sich übrigens in gewisser Weise in der japanischen Politik während der Pandemie wider, die weniger streng war als die der meisten Länder, einschliesslich der Vereinigten Staaten.
+Der Strengheitsindex ist ein zusammengesetztes Mass, das auf neun Reaktionsindikatoren basiert einschliesslich Schulschliessungen, Schliessungen von Arbeitsplätzen und Reiseverboten, skaliert auf einen
+Wert von 0 bis 100 (100 = am strengsten). Wenn die Massnahmen auf subnationaler Ebene unterschiedlich
+sind, zeigt der Index das Reaktionsniveau der strengsten Teilregion an.
+
+_QUELLE: JAPAN’S VACCINATION POLICY: NO FORCE, NO DISCRIMINATION_
+_Quelle: https://uncutnews.ch/japans-impfpolitik-kein-zwang-keine-diskriminierung_
+
+
+-----
+
+## Eine lesenswerte Leserzuschrift zur Kampagne gegen Lisa Fitz
+
+20. Dezember 2021 um 13:02; Ein Artikel von: Redaktion
+
+An diesem Wochenende haben die Medien wieder einmal aus allen Rohren gegen jemanden geschossen,
+der sich ihrem Deutungsmonopol verweigert. Diesmal musste die Kabarettistin Lisa Fitz dran glauben, die
+es doch tatsächlich auf der Bühne gewagt hatte, sich kritisch zur Corona-Politik und zu den herrschenden
+Narrativen in Sachen Corona zu äussern. Unser Leser Mario Simeunovic hat versucht, die Entrüstung einzuordnen und macht dankenswerterweise auch darauf aufmerksam, dass es doch einige Themen gäbe, bei
+denen die mediale Entrüstung viel angebrachter wäre.
+
+Liebe Redaktion,
+im Fall von Lisa Fitz handelt es sich vermutlich eher um die Zensur einer unliebsamen Meinungsäusserung.
+Hinsichtlich der behaupteten 5000 Impftoten ist kaum zu belegen, ob die Zahl über- oder untertrieben ist
+und deshalb von einer falschen Tatsachenbehauptung gesprochen werden kann. Die European Medicines
+Agency (EMA) veröffentlicht monatlich Zahlen zu den einzelnen zugelassenen Impfstoffen.
+Zum 1. Dezember 2021 ergibt sich demnach für 479 Millionen verabreichter Dosen Cormirnaty eine Summe von 471.824 EudraVigilance gemeldeten Fällen des Verdachts auf Nebenwirkungen des BionTech-Impfstoffs, wovon 5962 tödlich verlaufen sein. Einzuschränken wäre, dass die Anzahl dieser Fälle nicht gleich
+der Zahl der Verstorbenen ist, da bei einer Person mehr als eine Nebenwirkung auftreten kann und diese
+Fälle von Mehrfachnebenwirkungen nicht gesondert erfasst bzw. in der Statistik bereinigt wurden.
+Gemeldete Verdachtsfälle von Nebenwirkungen mit tödlichem Ausgang:
+Cormirnaty (BionTech) = 5962
+
+Spikevax (Moderna) =  588
+
+Vaxzevira (AstraZeneca) = 1303
+
+Janssen =  223
+
+Ingesamt = 8076
+
+Angesichts von hunderten Millionen verabreichter Impfdosen führt das gewiss zu wenigen Toten, aber einfach von einer falschen Tatsachenbehauptung zu sprechen, ist unredlich. Statt Zensur auszuüben, hätte
+einfach kritisch angemerkt werden können, dass der Rückschluss von Fitz auf ein bestimmte (Mindest-)
+Zahl Toter wohlmöglich übertrieben, zumindest nicht gesichert und die Nennung einer konkreten Zahl
+problematisch sei. Mehr nicht.
+Dass in Medien Panik geschürt wird, ist sicher kabarettistischer Kritik würdig. Das macht eine Corona-Infektion jedoch noch nicht zu einem Schnupfen. Mir persönlich wäre allerdings wohler, wenn sich öffentliche
+Entrüstung eher gegen die künstlich erzeugte Hysterie im Hinblick auf einen hypothetischen Angriff der
+Russischen Föderation auf die Ukraine oder gegen das Feindbild China artikulieren würde. Ich befürchte,
+hier liegt eine sehr viel konkretere Bedrohung des Friedens, der Gesundheit, des wirtschaftlichen Gedeihs
+und Wohlstands aller Europäerinnen und Europäer vor.
+Die Hysterisierung lenkt nicht nur ab, sie schafft auch ein aggressives Klima der Ausgrenzung und Spaltung.
+Sie befeuert den Ruf nach radikalen und drakonischen Massnahmen. In meinem Umfeld beobachte ich
+hier insbesondere eine Radikalisierung, welche die von Heitmeyer beschriebene, rohe Bürgerlichkeit zu
+neuer Blüte treibt. Da wird die Ursache aller derzeitigen Probleme auf die ‹ungebildeten›, ‹unbelehrbaren›,
+‹uneinsichtigen› Angehörigen der prekarisierten Schichten projiziert, welche sich ‹fahrlässig› oder gar ‹vorsätzlich› unkooperativ und verantwortungslos verhielten.
+Mit besten Grüssen
+Mario Simeunovic
+_Quelle: https://www.nachdenkseiten.de/?p=79177_
+
+
+-----
+
+## Erstaunliche Covid-Daten aus Dänemark
+
+_uncut-news.ch, Dezember 20, 2021_
+
+Aber nicht aus dem Grund, den man Ihnen gesagt hat; die Geschichte ist ein Impfversagen, nicht Omikron.
+Die Dänen veröffentlichen jetzt täglich äusserst detaillierte Daten über Covid-Fälle und Krankenhausaufenthalte – nicht nur über Omikron, sondern über alle Covid-Varianten.
+Und diese Daten, die niemanden überraschen werden, der in den letzten zwei Jahren gelebt hat, zeichnen
+ein völlig anderes Bild als das, was die Medien behaupten.
+Omikron – das nach wie vor deutlich weniger gefährlich, aber übertragbarer zu sein scheint als frühere
+Covid-Varianten – wurde als Deckmantel für das Versagen des Impfstoffs benutzt.
+Die meisten neuen Covid-Fälle in Dänemark treten bei Personen auf, die geimpft oder geboostet sind – und
+das gilt sowohl für Omikron als auch für frühere Varianten. Mehr als 76 Prozent der Covid-Infektionen in
+Dänemark, die nicht auf Omikron zurückzuführen sind, betreffen geimpfte Personen, ebenso wie etwa 90
+Prozent der Omikron-Infektionen. Ausserdem haben nur 25 der 561 Personen, die derzeit in Dänemark
+wegen Covid im Krankenhaus behandelt werden, die Omikron-Variante. Die Dänen geben keine genaue
+Zahl der Patienten auf der Intensivstation mit Omikron an, sondern nur, dass es weniger als fünf sind. Die
+vielleicht verblüffendste Tatsache über Omikron und Dänemark ist, dass sein Anstieg parallel zu einer deutlichen Verlangsamung des Anstiegs der dänischen Krankenhausaufenthalte und Intensivpatienten verläuft.
+Zwischen Mitte Oktober und Ende November, als die Dänen das Tal der glücklichen Impfungen verliessen,
+verfünffachten sich diese Zahlen. Seitdem haben sie sich kaum noch bewegt und sind um etwa 20 Prozent
+gestiegen.
+Dänische Covid-Krankenhausaufenthalte in den letzten drei Monaten: Beachten Sie, dass der Anstieg noch
+vor Omikron erfolgte.
+
+Die dänischen Daten zeigen auch, dass Menschen mit Omikron seltener ins Krankenhaus eingeliefert werden als Menschen mit anderen Varianten und viel schneller wieder entlassen werden können – im Einklang
+mit den Berichten der südafrikanischen Gesundheitsbehörden.
+So meldeten die Dänen am Freitag, dass die Gesamtzahl der Krankenhauspatienten mit Omikron seit Beginn der Epidemie auf 77 gestiegen ist, 20 Patienten mehr als am Donnerstag.
+Die Zahl der Omikron-Patienten, die sich derzeit in Krankenhäusern befinden, stieg jedoch zwischen Donnerstag und Freitag nur um acht Patienten von 17 auf 25. Somit scheinen 12 der 17 Omikron-Patienten
+vom Donnerstag über Nacht entlassen worden zu sein.
+
+
+-----
+
+Im Vergleich zum Bericht vom Montag ist der Trend noch deutlicher. Die Zahl der Omikron-Fälle hat sich
+in etwa verdreifacht, die Zahl der stationär behandelten Personen hat sich jedoch kaum verändert, von 14
+auf 25.
+_QUELLE: STUNNING COVID DATA FROM DENMARK_
+_Quelle: https://uncutnews.ch/erstaunliche-covid-daten-aus-daenemark_
+
+## Ex-Fussballer fordert Untersuchung der rätselhaften Zunahme
+ von Herzproblemen «Die Zahlen steigen ins Unermessliche!»
+
+_uncut-news.ch, Dezember 19, 2021_
+
+SOUTHAMPTON-Legende Matt Le Tissier forderte eine sofortige Untersuchung darüber, ob die Covid-Impfung dazu beigetragen hat, dass immer mehr Fussballer an Herzproblemen leiden.
+Der ehemalige Fussballspieler Matt Le Tissier gab zu, dass er die zunehmenden Berichte über Herzprobleme bei Fussballspielern nur schwer verstehen kann und forderte ‹einige Antworten›, nachdem die Fälle
+‹durch die Decke gehen›.
+Während der letzten Europameisterschaft brach der ehemalige Tottenham- und Dänemark-Star Christian
+Eriksen auf dem Spielfeld zusammen, nachdem er einen Herzstillstand erlitten hatte, und soll nun seine
+Karriere mit einem implantierten Herz-Defibrillator wieder aufnehmen. Die Legende von Manchester City,
+Sergio Aguero, gab bekannt, dass er seine Fussballschuhe an den Nagel hängen wird, nachdem bei ihm
+nach einem Spiel gegen Barcelona, bei dem er schwere Atemprobleme hatte, Herzrhythmusstörungen diagnostiziert wurden.
+In dieser Woche wurde bekannt, dass der Innenverteidiger von Manchester United, Victor Lindelof, einen
+Herzmonitor trägt, nachdem er am vergangenen Samstag gegen Norwich aufgrund von Atemproblemen
+ausgewechselt werden musste. Die drei hatten vor der Impfung nie Probleme gehabt, was Herrn Le Tissier
+dazu veranlasste, eine Untersuchung über die möglichen Auswirkungen der Impfung auf Fussballer zu
+fordern. Le Tissier betonte, dass er in seiner 17-jährigen Karriere, die sich über zwei Jahrzehnte erstreckte,
+‹kein einziges Mal› einen Spieler gesehen habe, der an Herzkomplikationen gelitten habe, und forderte die
+Behörden auf, eine Untersuchung in dieser Angelegenheit durchzuführen.
+Im Gespräch mit GB News sagte Le Tissier: «Es ist sehr beunruhigend für mich, den Sport zu beobachten,
+den ich liebe und den ich 17 Jahre lang ausgeübt habe.»
+«Und es ist sehr beunruhigend für mich, dass ich in dieser ganzen Zeit nicht ein einziges Mal gesehen habe,
+dass ein Fussballer wegen Herzproblemen das Spielfeld verlassen hat.»
+«Es tut mir leid, aber wenn irgendjemand auf das schaut, was jetzt in der Welt des Sports passiert und sagt,
+dass es normal ist, dass all diese Menschen bei Fussballspielen, Kricketspielen, Basketballspielen, bei jeder
+Sportart, die man sich wünscht, Herzprobleme haben.»
+«Die Zahl der Menschen, die leiden, geht durch die Decke. Und ich fordere eine Untersuchung, weil es vielleicht ja doch nichts mit dem Impfstoff zu tun hat.»
+_QUELLE: EX ROOF!'FOOTBALLER DEMANDS INQUIRY INTO MYSTERY HEART PROBLEMS SPIKE 'GOING THROUGH_
+_Quelle:_ _https://uncutnews.ch/ex-fussballer-fordert-untersuchung-der-raetselhaften-zunahme-von-herzproblemen-die-_
+
+_zahlen-steigen-ins-unermessliche/_
+
+## Boeing so wie andere Konzerne setzen Impfpflicht für US-Mitarbeiter aus
+
+_uncut-news.ch, Dezember 19, 2021_
+
+reuters.com: Boeing Co (BA.N) hat seine Impfpflicht gegen das Coronavirus für US-Beschäftigte ausgesetzt,
+teilte der US-Flugzeughersteller am Freitag mit. Damit wurde eine wochenlange Unsicherheit beendet, da
+
+
+-----
+
+Tausende von Arbeitnehmern Ausnahmeregelungen beantragten und die Anfechtung eines Bundesmandats vor Gericht ausgetragen wurde.
+In einer internen Mitteilung teilte Boeing mit, dass die Entscheidung nach einer Überprüfung eines Urteils
+des US-Bezirksgerichts Anfang des Monats gefallen sei, das die Durchsetzung der von Präsident Joe Biden
+erlassenen Impfpflicht für Bundesauftragnehmer ausgesetzt hatte.
+Einige grosse Gesundheitsketten und Unternehmen wie General Electric (GE.N), Spirit AeroSystems (SPR.N)
+und Amtrak haben die Impfpflicht für ihre Mitarbeiter ebenfalls ausgesetzt.
+In den letzten Wochen hatte die Zahl der Boeing-Mitarbeiter, die aus religiösen oder medizinischen Gründen
+eine Impfbefreiung beantragten, mehr als 11.000 erreicht – das sind fast 9% der US-Belegschaft – und
+damit ein Vielfaches der ursprünglich von der Unternehmensleitung geschätzten Zahl, wie Reuters zuerst
+berichtete.
+Die Tatsache, dass die überwiegende Mehrheit der Anträge aus religiösen Gründen gestellt wurde, rückte
+einen der grössten amerikanischen Arbeitgeber in den Mittelpunkt einer Debatte über die Ethik der Untersuchung der religiösen Überzeugungen von Mitarbeitern.
+Ausserdem mussten die Führungskräfte nach einer Strategie suchen, die die Sicherheit der Mitarbeiter gewährleistet, aber eine Abwanderung von Ingenieuren und Fabrikarbeitern verhindert.
+Boeings Impfpflicht hat dazu geführt, dass sich mehr als 92% der in den USA beschäftigten Mitarbeiter als
+vollständig geimpft registriert haben oder eine religiöse oder medizinische Ausnahmegenehmigung erhalten haben, heisst es in dem Memo vom Freitag.
+«Der bisherige Erfolg von Boeings Impfpflicht versetzt das Unternehmen in eine gute Ausgangsposition, um
+die Bundesverordnung einzuhalten, sollte sie in Zukunft wieder eingeführt werden», heisst es weiter.
+Ein Boeing-Sprecher bestätigte die Entscheidung und fügte hinzu, dass sich das Unternehmen «für die Aufrechterhaltung eines sicheren Arbeitsumfelds für unsere Mitarbeiter und die Förderung der Gesundheit
+und Sicherheit unserer weltweiten Belegschaft einsetzt.»
+Der Sprecher fügte hinzu, dass Boeing seine Impfpflicht im Einklang mit der Gerichtsentscheidung ausgesetzt habe, die die Durchsetzung der Anordnung für Bundesunternehmer und einer Reihe von staatlichen
+Gesetzen untersagt.
+Letzten Monat verschob das Weisse Haus die Frist, bis zu der sich Mitarbeiter von Bundesauftragnehmern
+impfen lassen oder sich regelmässig testen lassen müssen, wenn sie Ausnahmen erhalten, auf den 4.
+Januar.
+_QUELLE: BOEING SUSPENDS VACCINE MANDATE FOR U.S. EMPLOYEES_
+_Quelle: https://uncutnews.ch/boeing-so-wie-andere-konzerne-setzen-impfstoffpflicht-fuer-us-mitarbeiter-aus/_
+
+## Offener Brief von 390 Ärzten: Geringer Nutzen
+ und noch unklare Risiken durch die COVID-Impfungen
+
+_20. Dezember 2021 um 10:44_
+
+_Ein Artikel von: Albrecht Müller_
+
+Wir veröffentlichen zu Ihrer Information den Brief an den Bundeskanzler und die Abgeordneten. Siehe
+unten. Er zeigt, dass es auch unter Ärzten viele gibt, die nicht einfach nachvollziehen, was die Obrigkeit vorgibt. Mir wurde von den Initiatoren als Kontaktperson ein Augenarzt in München genannt. Mit ihm habe ich
+über den Offenen Brief und über seine Erfahrungen gesprochen: Im Zeitraum von Januar 2020 bis Dezember 2021 waren rund 7000 Patienten in seiner Sprechstunde. Darunter waren 33 Patienten mit COVID,
+zwei davon waren auf der Intensivstation. Das sind weniger als 0,5% der Patienten insgesamt. – Die Zahl
+der Impfkomplikationen im Zeitraum eines knappen Jahres von Januar 2021 bis Dezember 2021 lag höher
+als 33. Darunter viele Augenblutungen und zwei Patientinnen mit Apoplex (Schlaganfall); einer davon, bei
+
+
+-----
+
+einer Patientin, verlief tödlich. Sie war eine Woche vor ihrem Tod geimpft worden. Im abschliessenden Arztbrief wurde dieser Umstand mit keiner Silbe erwähnt. Auf die Frage, ob ansonsten von den Ärzten die
+Nebenwirkungen des Impfens einigermassen korrekt gemeldet würden, meinte er, dass dies in der Regel
+schon aus Zeitnot nicht gemacht werde. Albrecht Müller.
+Der Offene Brief der Ärzte ist insgesamt moderat formuliert. Er beginnt so:
+Mit grosser Sorge nehmen wir wahr, dass unsere Gesellschaft in gegen-COVID-Geimpfte und Ungeimpfte
+gespalten wird und dass auf Ungeimpfte ein wachsender Druck ausgeübt wird, sich impfen zu lassen.
+Wir fordern die Regierung auf, dieser Spaltung Einhalt zu gebieten und alle direkten und indirekten Zwangsmassnahmen mit dem Ziel einer Impfung von bisher Ungeimpften nicht nur einzustellen, sondern aktiv zu
+unterbinden.
+_Quelle: https://www.nachdenkseiten.de/?p=79170_
+_Anmerkung: Hier geht es zum offenen Brief: https://www.nachdenkseiten.de/wp-content/uploads/2021/12/211220-_
+_2021-12-13-OffenerBrief-zur-COVID-Impfung.pdf_
+
+## Arzt über Impfstoff-Todesfälle: «Es gibt Hinweise darauf, dass den
+ Angehörigen Schweigegelder angeboten werden.»
+
+_René de Monchy, Hausarzt und Psychiater_
+
+_uncut-news.ch, Dezember 19, 2021_
+
+Der Arzt René de Monchy verliess die Niederlande in den 1970er Jahren und ging nach Neuseeland. Nach
+48 Jahren wurde er aus seinem Job geworfen, weil er sich weigerte, geimpft zu werden. Er darf keine
+Patienten mehr sehen und wurde sogar aus dem Krankenhaus, in dem er arbeitete, verbannt, berichtet das
+Artsen Collectief.
+De Monchy war von Anfang an sehr kritisch gegenüber den experimentellen mRNA-Impfstoffen. «Für mich
+schloss sich die Tür zu», als die Impfstoffe auch Kindern verabreicht wurden, die durch eine Corona-Infektion absolut nicht gefährdet sind. Ausserdem wurden die mRNA-Impfstoffe für schwangere Frauen beworben, was völlig gegen jede medizinische und wissenschaftliche Tradition der sorgfältigen Abwägung des
+Für und Wider verstösst.
+Der Arzt verrät, dass die Ärzte 216 Euro pro Impfstoff in Rechnung stellen dürfen. «Es gibt einen perversen
+Anreiz für sie, sich an dieser Art von Kampagne zu beteiligen.»
+Zunächst wurden Ausnahmen zugelassen, die jedoch bald wieder aufgehoben wurden. «Ich habe selbst Patienten gehabt, die nach dem ersten Stich einen Herzinfarkt oder Guillain-Barré erlitten haben. Aber wissen
+Sie was? Es gibt keine Ausnahme für eine zweite Impfung», sagt De Monchy.
+Er stellt ferner fest, dass die offizielle Zahl der Impftoten von 220 wahrscheinlich zu niedrig angesetzt ist.
+«Es gibt Hinweise darauf, dass den Hinterbliebenen Schweigegelder angeboten werden.»
+In Neuseeland sind die Beschäftigten im Gesundheitswesen verpflichtet, sich impfen zu lassen. Am Tag, an
+dem die Frist ablief, fragte sein Vorgesetzter, ob er geimpft worden sei. Er antwortete mit ‹Nein›, woraufhin
+sein Computerkonto und seine Magnetkarte sofort gesperrt wurden. Ihm wurde das Betreten des Krankenhauses untersagt. Er konnte sich nicht verabschieden. Der Arzt arbeitet jetzt im Verborgenen.
+De Monchy zufolge hat sich Neuseeland in einen Albtraum verwandelt. Er erklärt, dass das Land ein Testgelände ist. «Wenn internationale Organisationen ein System weltweit einführen wollen, probieren sie es zuerst
+in Neuseeland aus. Das Land ist abgelegen und leicht zu verwalten, da die Bevölkerung im Allgemeinen
+entgegenkommend ist. Premierministerin Jacinda Ardern hat auch gute Kontakte zum Weltwirtschaftsforum, denn sie ist eine der ausgewählten Young Global Leader.»
+
+
+-----
+
+«Ich glaube, dass das System erst hier perfektioniert wird, bevor es an anderen Orten, auch in den Niederlanden, eingeführt wird», warnt der Arzt.
+_QUELLE: ARTS IN NIEUW-ZEELAND: “IK MOET NU EEN BEETJE ONDER DE RADAR WERKEN”_
+_Quelle:_ _https://uncutnews.ch/arzt-ueber-impfstoff-todesfaelle-es-gibt-hinweise-darauf-dass-den-angehoerigen-schweige-_
+
+_gelder-angeboten-werden/_
+
+## Mercks neue COVID-Pille ist eine Katastrophe
+
+_uncut-news.ch, Dezember 19, 2021, Mercola.com_
+
+Ein beratendes Gremium der US-Arzneimittelbehörde FDA hat mit einer knappen Mehrheit von 13 zu 10
+Stimmen die Notfallzulassung für das orale COVID-19-Präparat Molnupiravir (Lagevrio) von Merck erteilt.
+Bei denjenigen, die das Medikament erhielten, lag die Rate der Krankenhauseinweisungen oder Todesfälle
+insgesamt bei 6,8%, verglichen mit 9,7% in der Placebogruppe – eine relative Risikoreduktion von nur 30%.
+Die vollständigen Daten zeigten, dass Patienten, die Molnupiravir einnahmen, häufiger ins Krankenhaus
+eingewiesen wurden (6,2%) als Patienten, die ein Placebo erhielten (4,7%).
+Molnupiravir wirkt, indem es Mutationen auslöst, die das Virus letztendlich abtöten; ein Risiko für Krebs
+und Geburtsfehler ist möglich, und das Medikament sollte nicht von schwangeren oder stillenden Frauen
+oder Kindern eingenommen werden
+Indem es Mutationen auslöst, aber nicht das gesamte Virus abtötet – etwa wenn die Menschen nicht die
+gesamte Behandlung mit dem Medikament einnehmen –, könnten weltweit neue und tödlichere Varianten
+entstehen.
+Die US-Regierung ist bereits für etwa 3,1 Millionen Molnupiravir-Kurse verantwortlich, die sie für etwa 2,2
+Milliarden Dollar gekauft hat.
+Ein beratendes Gremium der US-Arzneimittelbehörde FDA stimmte für die Notfallzulassung des oralen
+COVID-19-Präparats Molnupiravir (Lagevrio) von Merck – allerdings nur mit knapper Mehrheit. Die
+Abstimmung mit 13 zu 10 Stimmen spricht Bände über das Vertrauen des Gremiums in die Behandlung,
+ebenso wie die zahlreichen Bedenken hinsichtlich Wirksamkeit und Sicherheit, die das Gremium geäussert
+hatte.
+Im Oktober 2021 berichtete Merck in einer Pressemitteilung, dass das antivirale Medikament zu einer 50prozentigen Verringerung des Risikos von Krankenhausaufenthalten und Todesfällen bei COVID-19-Patienten führte. Dies basierte jedoch auf den Daten von 386 Patienten. Als die vollständige Analyse veröffentlicht
+wurde, die Daten von 710 Patienten umfasste, ging die Wirksamkeit deutlich zurück.
+Bei den Patienten, die das Medikament erhielten, lag die Rate der Krankenhausaufenthalte oder Todesfälle
+insgesamt bei 6,8%, verglichen mit 9,7% in der Placebogruppe – eine relative Risikoreduzierung von nur
+30%. Mehrere Diskussionsteilnehmer sagten, dass die Änderung der Daten schlecht erklärt wurde, und dies
+ist nur eine der Bedenken, die von Experten geäussert wurden und die grossen Zweifel an Mercks COVID19-Pille aufkommen lassen.
+
+**Placebo übertraf das Medikament in der zweiten Hälfte der Studie**
+
+In einem am 22. November 2021 veröffentlichten Addendum erklärte die FDA, dass sie von den ‹ToplineErgebnissen zur Sicherheit und Wirksamkeit aller 1433 randomisierten Teilnehmer› Kenntnis erlangt habe.
+Die Daten zeigten, dass Patienten, die das Placebo einnahmen, besser abschnitten als diejenigen, die Molnupiravir erhielten.
+In einem Kommentar im BMJ heisst es: «Die vollständigen Daten zeigten, dass Patienten, die Molnupiravir
+einnahmen, häufiger ins Krankenhaus eingewiesen wurden (6,2%) als Patienten, die ein Placebo einnahmen (4,7%), was Merck dazu veranlasste, den Nutzen der Verhinderung von Krankenhauseinweisungen auf
+30% nach unten zu korrigieren.»
+Ausserdem wurde die Studie vorzeitig abgebrochen, nachdem die Zwischenergebnisse acht Todesfälle in
+der Placebogruppe im Vergleich zu null in der Molnupiravir-Gruppe gezeigt hatten. Die Ergebnisse nach
+
+
+-----
+
+der Zwischenprüfung ergaben jedoch ein ganz anderes Bild – in jeder Gruppe wurde ein Todesfall verzeichnet. Das BMJ berichtete:
+Auf die Frage, warum die späteren Studienteilnehmer so unterschiedliche Ergebnisse im Vergleich zur Zwischenanalyse aufwiesen, erklärte ein Arzt, der Merck vertrat, den Diskussionsteilnehmern, dass die spätere
+Gruppe ältere Patienten enthielt, die mit grösserer Wahrscheinlichkeit weiblich waren, aus Europa rekrutiert
+wurden und mit grösserer Wahrscheinlichkeit die Delta-Variante trugen. Aber, so sagte er, der Rückgang
+der Wirksamkeit am Ende der Studie ergibt für uns nicht wirklich einen Sinn.
+Dr. Pierre Kory, der zu der Gruppe gehört, die die Front Line COVID-19 Critical Care Working Group (FLCCC)
+gegründet hat, um eine frühzeitige Behandlung von COVID-19 voranzutreiben, hat die US-Regierung angefleht, die umfangreichen Daten über das Medikament Ivermectin zur Vorbeugung von COVID-19 zu prüfen,
+um ein Fortschreiten der Krankheit bei Patienten mit frühen Symptomen zu verhindern und die Genesung
+schwer kranker Patienten zu unterstützen – ohne Erfolg.
+Dennoch erteilte die FDA dem höchst fragwürdigen Medikament von Merck eine Notfallzulassung (EUA).
+Kory twitterte seine Bestürzung über diese Entscheidung:
+Keine LIEBE für Pharma angesichts des skrupellosen Verhaltens jetzt und in der Vergangenheit. Aber ich
+kann HOFFEN. Hoffnung jetzt zerstört: Hälfte von Mercks Studie: Placebo übertrifft das Medikament.
+Autsch. Sogar die FDA gibt zu, dass das Medikament schwach und riskant ist… und genehmigt es trotzdem?
+EUA für IVM [Ivermectin] bitte (ich kann auch träumen)
+
+**Fauci: Mercks COVID-Pille ‹beeindruckend›**
+
+Im Oktober lobte Dr. Anthony Fauci Molnupiravir als ‹extrem wichtig› und lobte seine bisherigen Ergebnisse.
+«Es handelt sich um eine Pille, die durch den Mund verabreicht wird, so dass man nichts Besonderes
+braucht, ausser eine Pille zu nehmen, wie man es mit jeder Pille tut. Und die Ergebnisse sind wirklich sehr
+beeindruckend», sagte er in der CNN-Sendung ‹State of the Union›.
+Es ist unklar, ob Fauci seine Meinung angesichts der weniger guten Ergebnisse, die jetzt vorliegen, geändert
+hat, aber die US-Regierung hat bereits etwa 3,1 Millionen Pillen gekauft, die sie für etwa 2,2 Milliarden
+Dollar erworben hat. Offizielle Stellen haben die Einfachheit der Pille angepriesen, die zu Hause oral alle 12
+Stunden über fünf Tage eingenommen wird.
+Merck plant, bis Ende 2021 10 Millionen Packungen des Medikaments zu produzieren, aber die Unterstützung des FDA-Gremiums für das Medikament ist noch merkwürdiger, wenn man bedenkt, dass wirksamere Behandlungsmöglichkeiten – nämlich monoklonale Antikörper – bereits zugelassen sind. Wie im BMJ
+vermerkt:
+Die USA haben bereits drei monoklonale Antikörper-Cocktails zugelassen, die eine Wirksamkeit von über
+60% bei der Verhinderung der Aufnahme gezeigt haben, und die FDA genehmigt im Allgemeinen keine
+Medikamente, die weniger wirksam sind als die bereits verwendeten.
+
+**Roter Alarm: Molnupiravir verursacht Virusmutationen**
+
+Nicht nur die Wirksamkeit, sondern auch die Sicherheit des Medikaments war für einige der FDA-Gremien
+ein Grund zur Besorgnis. Molnupiravir wirkt, indem es sich in das Erbgut des Virus einfügt und Mutationen
+auslöst, die das Virus letztendlich abtöten. Eine Pille, die Mutationen in einem Virus auslöst, könnte jedoch
+auch Mutationen in Säugetierzellen auslösen, was das Risiko von Krebs und Geburtsfehlern birgt.
+Die Risiken sind so schwerwiegend, dass das Medikament nur für Erwachsene empfohlen wird, da es für
+Kinder im Wachstum gefährlich sein könnte. In Tierversuchen wurde u.a. eine stärkere Verdickung der
+Wachstumsfugen festgestellt. Schwangere Frauen und solche, die eine Schwangerschaft erwarten, wurden
+von den Versuchen ausgeschlossen, und männliche Probanden durften einen Monat lang nach der letzten
+Dosis kein Sperma spenden. Modern Discontent berichtete:
+Die Menschen sollten an das Problem mit Thalidomid in den 1960er Jahren erinnert werden, ein Medikament, das zur Behandlung der morgendlichen Übelkeit bei schwangeren Frauen eingesetzt wurde, von dem
+Wissenschaftler später herausfanden, dass es teratogen war und viele Geburtsfehler verursachte. Aus diesem Grund sollte Molnupiravir unter keinen Umständen bei schwangeren Frauen eingesetzt werden, da die
+Besorgnis über eine mögliche Teratogenität besteht.
+Letztendlich empfahl das FDA-Gremium, das Medikament nicht für Kinder oder stillende Mütter zuzulassen,
+da die Risiken der embryofötalen Toxizität, der Knochen- und Knorpeltoxizität und der Mutagenität bestehen.
+
+**Molnupiravir könnte Escape-Mutanten auslösen**
+
+Der Wirkmechanismus von Molnupiravir – das Treiben von genetischen Mutationen – ist an sich schon problematisch, wenn man bedenkt, dass das Spike-Protein des Coronavirus bereits schnell mutiert. Während
+der Phase-II-Studie von Merck wies das SARS-CoV-2-Spike-Protein 72 strukturelle Nukleotidveränderungen
+auf, während das Spike-Protein in der Placebo-Gruppe nur neun solcher Veränderungen aufwies.
+
+
+-----
+
+Einige dieser Veränderungen könnten das Virus infektiöser machen, es resistent gegen Impfstoffe und Behandlungen machen und Entweichungsmutanten in die Umwelt entlassen. James Hildreth, Mitglied des
+FDA-Gremiums und Präsident des Meharry Medical College in Tennessee, stimmte aus diesem Grund
+gegen die Zulassung von Molnupiravir.
+Er sagte: «Selbst wenn die Wahrscheinlichkeit sehr gering ist, 1 zu 10.000 oder 100.000, dass dieses Medikament eine Ausbruchsmutante hervorruft, die von den vorhandenen Impfstoffen nicht abgedeckt wird,
+wäre das für die ganze Welt katastrophal.» William Haseltine, der die Abteilung für biochemische Pharmakologie in Harvard gründete und leitete, äusserte in Forbes ähnliche Bedenken und erklärte:
+«Meine Bedenken gründen sich auf zwei Hauptaspekte. Die erste ist die potenzielle Mutagenität des Medikaments und die Möglichkeit, dass seine Verwendung zu Geburtsfehlern oder Krebstumoren führen könnte.
+Die zweite ist eine weitaus grössere und potenziell tödlichere Gefahr: Das Potenzial des Medikaments, die
+Mutationen von SARS-CoV-2 zu verstärken und eine noch virulentere Variante auf die Welt loszulassen.»
+
+**Wir steuern auf eine ‹Weltklasse-Katastrophe› zu**
+
+Haseltine erläuterte, dass Molnupiravir in Studien vor der Pandemie gegen pathogene Coronaviren wie
+MERS-CoV getestet wurde. Die Coronaviren waren nicht nur in der Lage, gegen das Medikament resistent
+zu werden, sondern die Viren überlebten und vermehrten sich auch mit einer grossen Anzahl von Mutationen in allen Genen und Proteinen weiter.
+Im Labor replizierten sich die behandelten Viren etwas langsamer als die unbehandelten Viren; in der realen
+Welt wird das Medikament jedoch wahrscheinlich auf unbeabsichtigte Weise Schaden anrichten, zumal
+viele Menschen nicht die gesamte Medikamenteneinnahme beenden.
+Bei suboptimaler Dosierung, d.h. wenn jemand das Medikament nicht über die gesamten fünf Tage einnimmt oder hier und da ein paar Dosen auslässt, kann es die besten Voraussetzungen für die Übertragung
+mutierter Viren schaffen. Haseltine erklärte gegenüber Forbes:
+«Es ist sehr wahrscheinlich, dass die Menschen in der realen Welt nicht die gesamte Tablettenmenge einnehmen werden. Eine Reihe von Studien über die Adhärenz bei der täglichen Einnahme von oralen Antibiotika zeigt, dass viele Patienten – bis zu 40% – die Behandlung nicht vollständig zu Ende führen.»
+Bei diesen suboptimalen Konzentrationen könnte Molnupiravir den unglücklichen Effekt haben, dass es
+Mutationen in allen Genen und Proteinen des Virus, einschliesslich des Spike, hervorruft, es aber nicht
+unbedingt abtötet.
+Die Arzneimittelhersteller Merck und Ridgeback sowie die FDA untersuchen, ob Molnupiravir für den persönlichen Gebrauch bei Hochrisikopersonen mit leichter bis mittelschwerer Erkrankung sicher ist und ob
+sein Nutzen mögliche Risiken überwiegt.
+Sie sollten aber auch die weiterreichenden Gefahren ermitteln und herausfinden, wie verhindert werden
+kann, dass das Medikament neue und tödlichere Varianten auf der ganzen Welt freisetzt. SARS-CoV-2 hat
+bereits eine bemerkenswerte Fähigkeit gezeigt, zu mutieren und unter Druck zu überleben.
+Die Hersteller des Medikaments, Merck und Ridgeback, sind dabei, Lizenzvereinbarungen zu schliessen,
+die die Herstellung und den Verkauf des Medikaments in mehr als 105 Ländern ermöglichen würden, was
+bedeutet, dass wir, wenn es von den Aufsichtsbehörden genehmigt wird, bald nur noch sehr wenig Kontrolle
+über die Verabreichung des Medikaments und die verabreichten Dosen haben werden. Wir steuern möglicherweise auf eine Katastrophe von Weltrang zu.
+
+**Gibt es andere Optionen?**
+
+Es gibt frühe Behandlungsmöglichkeiten für COVID-19, die Leben retten könnten, aber sie werden in den
+Medien nicht breitgetreten. Dr. Peter McCullough empfiehlt, eine frühzeitige Behandlung zu verlangen,
+wenn man an COVID-19 erkrankt ist, unabhängig davon, ob man die Impfung erhalten hat oder nicht.
+McCulloughs frühzeitige Behandlung umfasst zunächst ein Nahrungsmittelbündel aus Zink, Vitamin D, Vitamin C und Quercetin. Während Sie sich zu Hause erholen, sollten Sie die Fenster öffnen und für ausreichend
+frische Luft und Belüftung sorgen. Wenn die Symptome fortbestehen oder sich verschlimmern, empfiehlt
+er, einen Arzt aufzusuchen und eine Therapie mit monoklonalen Antikörpern zu verlangen.
+Die Behandlung umfasst im weiteren Verlauf Antiinfektiva wie HCQ oder Ivermectin, Antibiotika, Steroide
+und Blutverdünner. Wenn Ihr Arzt sich weigert, COVID-19 im Frühstadium zu behandeln, sollten Sie sich
+einen neuen suchen und/oder eine Telemedizin-Klinik aufsuchen, die Ihnen helfen kann, denn ‹die präklinische Phase ist die Zeit der therapeutischen Möglichkeiten›. Sie können auch den ‹A Guide to Home-Based
+COVID Treatment› von McCullough und Kollegen herunterladen.
+Das I-MASK+-Protokoll von FLCCC kann ebenfalls vollständig heruntergeladen werden und enthält eine
+schrittweise Anleitung zur Vorbeugung und Behandlung der frühen Symptome von COVID-19. FLCCC hat
+auch Protokolle für die Vorbeugung und Frühbehandlung zu Hause, genannt I-MASS, die Ivermectin, Vitamin D3, ein Multivitamin und ein digitales Thermometer zur Überwachung der Körpertemperatur in der
+Vorbeugungsphase sowie Ivermectin, Melatonin, Aspirin und antiseptisches Mundwasser für die Frühbehandlung zu Hause umfassen.
+
+
+-----
+
+Haushalte oder enge Kontaktpersonen von COVID-19-Patienten können Ivermectin (18 Milligramm, dann
+Wiederholung der Dosis in 48 Stunden) zur Postexpositionsprophylaxe einnehmen. Ihre Protokolle werden
+in 23 verschiedene Sprachen übersetzt, um einen weit verbreiteten, kostenlosen Zugang zu diesen lebensrettenden Informationen zu ermöglichen, einschliesslich der Frage, wie man Ivermectin erhält, von denen
+FLCCC hofft, dass sie in naher Zukunft formell in nationale oder internationale COVID-19-Behandlungsrichtlinien aufgenommen werden.
+_Quellen:_
+_1, 3, 4, 5, 6, 7, 14, 15, 20, 21 BMJ 2021;375:n2984_
+_2, 19 MedPage Today November 29, 2021_
+_8 FLCCC Alliance, Ivermectin & COVID-19_
+_9 Mountain Home May 1, 2021_
+_10 Twitter, Pierre Kory, MD MPA December 4, 2021_
+_11 Mass Live October 3, 2021_
+_12 The New York Times December 7, 2021_
+_13 U.S. FDA Antimicrobial Drugs Advisory Committee November 30, 2021, C17_
+_16 Fox News October 6, 2021_
+_17 U.S. FDA Antimicrobial Drugs Advisory Committee November 30, 2021, CN13_
+_18 Modern Discontent December 1, 2021_
+_22, 23 Forbes November 1, 2021_
+_24 Am J Med. 2021 Jan; 134(1): 16–22_
+_25 AAPS, A Guide to Home-Based COVID Treatment August 28, 2021_
+_26 FLCCC Alliance, I-Mask+_
+_27 FLCCC Alliance, I-MASS_
+_28 FLCCC, How to Get Ivermectin_
+_QUELLE: MERCK'S NEW COVID PILLS I A DISASTER_
+_Quelle: https://uncutnews.ch/mercks-neue-covid-pille-ist-eine-katastrophe/_
+
+## Mehr als 20.000 Todesfälle nach COVID-Impfungen an VAERS gemeldet
+
+_uncut-news.ch, Dezember 19, 2021_
+
+childrenshealthdefense.org: Die heute von den Centers for Disease Control and Prevention veröffentlichten
+VAERS-Daten umfassen insgesamt 965.843 Berichte über unerwünschte Ereignisse aus allen Altersgruppen nach COVID-Impfstoffen, darunter 20.244 Todesfälle und 155.506 schwere Verletzungen, die zwischen
+dem 14. Dezember 2020 und dem 10. Dezember 2021 gemeldet wurden.
+Die Centers for Disease Control and Prevention haben heute neue Daten veröffentlicht, aus denen hervorgeht, dass zwischen dem 14. Dezember 2020 und dem 10. Dezember 2021 insgesamt 965.843 Berichte
+über unerwünschte Ereignisse im Zusammenhang mit COVID-Impfstoffen an das Vaccine Adverse Event
+Reporting System (VAERS) übermittelt wurden. VAERS ist das wichtigste von der Regierung finanzierte
+System zur Meldung von unerwünschten Impfstoffreaktionen in den USA.
+Die Daten umfassten insgesamt 20.244 Meldungen von Todesfällen – ein Anstieg um 358 gegenüber der
+Vorwoche – und 155.506 Meldungen von schweren Verletzungen, einschliesslich Todesfällen, im gleichen
+Zeitraum – ein Anstieg um 4560 gegenüber der Vorwoche.
+Ohne ‹ausländische Meldungen› an VAERS wurden in den USA zwischen dem 14. Dezember 2020 und
+dem 10. Dezember 2021 691.884 unerwünschte Ereignisse, darunter 9.295 Todesfälle und 59.767 schwere Verletzungen, gemeldet.
+Ausländische Meldungen sind Meldungen, die US-Hersteller von ihren ausländischen Tochtergesellschaften
+erhalten haben. Gemäss den Vorschriften der US-amerikanischen Food and Drug Administration (FDA)
+muss ein Hersteller, der über einen ausländischen Fallbericht informiert wird, der ein schwerwiegendes Ereignis beschreibt, das nicht auf dem Etikett des Produkts aufgeführt ist, den Bericht an VAERS übermitteln.
+Von den 9295 Todesfällen in den USA, die bis zum 10. Dezember gemeldet wurden, traten 21% innerhalb
+von 24 Stunden nach der Impfung auf, 26% innerhalb von 48 Stunden nach der Impfung und 61% bei
+Personen, bei denen die Symptome innerhalb von 48 Stunden nach der Impfung auftraten.
+Bis zum 10. Dezember waren in den USA 480 Millionen COVID-Impfdosen verabreicht worden. Darin enthalten sind 279 Millionen Dosen von Pfizer, 184 Millionen Dosen von Moderna und 17 Millionen Dosen von
+Johnson & Johnson (J&J).
+
+
+-----
+
+Jeden Freitag veröffentlicht VAERS die bis zu einem bestimmten Datum eingegangenen Meldungen über
+Impfschäden. Die an VAERS übermittelten Meldungen erfordern weitere Untersuchungen, bevor ein kausaler Zusammenhang bestätigt werden kann. In der Vergangenheit hat sich gezeigt, dass VAERS nur 1% der
+tatsächlichen unerwünschten Impfstoffereignisse meldet.
+Die US-VAERS-Daten vom 14. Dezember 2020 bis zum 10. Dezember 2021 für 5- bis 11-Jährige zeigen:
+4181 unerwünschte Ereignisse, darunter 80 als schwerwiegend eingestufte und 2 gemeldete Todesfälle.
+Ein Todesfall ereignete sich bei einem 11-jährigen Mädchen aus Georgia, das am 14. September geimpft
+wurde, also vor der Zulassung des COVID-Impfstoffs von Pfizer in der Altersgruppe 5 bis 11 Jahre.
+Der zweite Todesfall (VAERS I.D. 1890705) ereignete sich bei einem 5-jährigen Mädchen, das vier Tage
+nach der ersten Pfizer-Impfung starb.
+Die US-amerikanischen VAERS-Daten vom 14. Dezember 2020 bis zum 10. Dezember 2021 für 12- bis
+17-Jährige zeigen:
+24.893 unerwünschte Ereignisse, darunter 1488 als schwerwiegend eingestufte und 33 gemeldete Todesfälle.
+Bei den jüngsten Todesfällen handelt es sich um ein 13-jähriges Mädchen aus Texas (VAERS I.D. 1913198),
+das 31 Tage nach der Verabreichung des COVID-Impfstoffs starb. Laut VAERS-Bericht erhielt das Mädchen
+die erste Dosis von Pfizer am 1. August.
+Zwei Wochen später klagte sie über vage Schmerzen im oberen Rücken und es wurde ein seltener Weichteilkrebs am Herzen diagnostiziert, obwohl sie keine Vorerkrankungen hatte. Die Eltern beantragten eine
+VAERS-Meldung für den Fall, dass ihr Krebs mit dem Impfstoff in Verbindung steht. Ihr Krebs und ihr Herzleiden verschlimmerten sich rasch und zunehmend, und sie starb am 1. Dezember.
+61 Berichte über Anaphylaxie bei 12- bis 17-Jährigen, bei denen die Reaktion lebensbedrohlich war, eine
+Behandlung erforderte oder zum Tod führte – wobei 96% der Fälle auf den Impfstoff von Pfizer zurückgeführt wurden.
+571 Berichte über Herzmuskelentzündung (Myokarditis) und Herzbeutelentzündung (Perikarditis), wobei
+561 Fälle auf den Impfstoff von Pfizer zurückgeführt wurden.
+143 Berichte über Blutgerinnungsstörungen, wobei alle Fälle auf Pfizer zurückgeführt wurden.
+VAERS-Daten aus den USA vom 14. Dezember 2020 bis zum 10. Dezember 2021 für alle Altersgruppen
+zusammen zeigen:
+19% der Todesfälle waren auf Herzerkrankungen zurückzuführen.
+54% der Verstorbenen waren männlich, 42% waren weiblich, und bei den übrigen Todesmeldungen wurde
+das Geschlecht der Verstorbenen nicht angegeben.
+Das Durchschnittsalter der Verstorbenen lag bei 72,7 Jahren.
+
+
+-----
+
+Bis zum 10. Dezember meldeten 4584 schwangere Frauen unerwünschte Ereignisse im Zusammenhang
+mit COVID-Impfstoffen, darunter 1446 Berichte über Fehl- oder Frühgeburten.
+Von den 3285 gemeldeten Fällen von Bellsche Lähmung wurden 51% auf Impfungen von Pfizer, 41% auf
+Moderna und 8% auf J&J zurückgeführt.
+791 Berichte über das Guillain-Barré-Syndrom (GBS), wobei 42% der Fälle auf Pfizer, 29% auf Moderna
+und 27% auf J&J zurückgeführt wurden.
+2206 Berichte über Anaphylaxie, wobei die Reaktion lebensbedrohlich war, eine Behandlung erforderte
+oder zum Tod führte.
+11.680 Berichte über Blutgerinnungsstörungen in den USA. Davon wurden 5198 Berichte Pfizer, 4159
+Berichte Moderna und 2275 Berichte J&J zugeschrieben.
+3405 Fälle von Myokarditis und Perikarditis, wobei 2118 Fälle Pfizer, 1137 Fälle Moderna und 140 Fälle
+dem COVID-Impfstoff von J&J zugeschrieben werden.
+
+**CDC befürwortet Impfstoffe von Pfizer und Moderna gegenüber J&J**
+
+Ein beratendes Gremium der CDC stimmte am Donnerstag mit 15 zu 0 Stimmen dafür, die mRNA-COVIDImpfstoffe von Pfizer und Moderna gegenüber der J&J-Impfung für Erwachsene ab 18 Jahren zu bevorzugen.
+Die Empfehlung erfolgte, nachdem das Beratungsgremium der Behörde festgestellt hatte, dass die Rate
+der seltenen Blutgerinnungsstörungen nach der J&J-Impfung höher als erwartet war.
+Die CDC hat die aktualisierte Empfehlung des Gremiums am späten Donnerstag gebilligt.
+Das Gremium riet Impfstoffanbietern und Erwachsenen von der Verwendung des J&J-Impfstoffs ab, ohne
+jedoch zu empfehlen, den Impfstoff vom Markt zu nehmen. Die vorläufige Empfehlung gilt für die erste
+Impfstoffdosis und die Auffrischungsdosis von J&J.
+CDC-Beamte bestätigten 54 Fälle von Thrombose mit Thrombozytopenie-Syndrom (TTS) unter J&J-Empfängern, darunter neun Todesfälle.
+Die COVID-19 Vaccine Task Force der CDC schloss ‹Berichte aus, bei denen die einzige Thrombose ein
+ischämischer Schlaganfall oder ein Herzinfarkt war›, wodurch die Zahl der Fälle mit Blutgerinnungsstörungen erheblich reduziert wurde.
+
+**16.000 Ärzte und Wissenschaftler sagen, Kinder sollten keine COVID-Impfstoffe erhalten**
+
+COVID-Impfstoffe sind ‹irreversibel und potenziell dauerhaft schädlich›, so Dr. Robert Malone in einer Erklärung, in der er darlegt, warum 16.000 Ärzte und medizinische Wissenschaftler in aller Welt eine Erklärung
+unterzeichnet haben, in der sie öffentlich erklären, dass gesunde Kinder nicht gegen COVID geimpft werden
+sollten.
+Laut Malone zwingt das in die Zellen der Kinder injizierte Virusgen den Körper, giftige Spike-Proteine zu
+bilden, die irreparable Schäden an wichtigen Organen verursachen könnten. Die neuartige Technologie, die
+in den Impfstoffen zum Einsatz kommt, sei nicht ausreichend getestet worden, so Malone.
+Angesichts der COVID-Schäden, mit denen Eltern oder ihre Kinder möglicherweise für den Rest ihres
+Lebens leben müssen, sieht Malone keinen Nutzen darin, Kinder gegen die geringen Risiken eines Virus zu
+impfen.
+Der Arzt sagt: «Viele Leben werden zerstört, weil die Regierung die natürliche Immunität nicht anerkennt.»
+Dr. Marty Makary, ein Forscher im Bereich der öffentlichen Gesundheit an der Johns Hopkins Bloomberg
+School of Public Health, warf am Dienstag Regierungsvertretern vor, ‹modernen McCarthyismus› gegen
+jeden zu betreiben, der vorschlägt, dass junge gesunde Menschen, insbesondere solche, die sich von COVID
+erholt haben, keine Auffrischungsimpfungen benötigen.
+Makary sagte den Mitgliedern des Sonderausschusses des Repräsentantenhauses zur Coronavirus-Krise,
+dass einige COVID-Massnahmen ‹zu extrem und zu starr geworden sind und sich nicht mehr an klinischen
+Daten orientieren›.
+Makary kritisierte die Eile der CDC, Auffrischungsimpfungen für 16- und 17-Jährige voranzutreiben, die auf
+Laborexperimenten beruhen, die nahelegen, dass Auffrischungsimpfungen die Antikörperspiegel gegen
+Omikron erhöhen.
+Er erinnerte die Ausschussmitglieder daran, dass trotz eines gemeinsamen Jahresbudgets von etwa 58
+Milliarden Dollar weder die CDC noch die National Institutes of Health eine glaubwürdige Studie zur natürlichen Immunität gegen COVID vorgelegt haben.
+
+
+-----
+
+**Studien zeigen, dass Pfizer-Impfstoff weniger wirksam gegen Omikron ist**
+Wie ‹The Defender› am 14. Dezember berichtete, haben drei Studien, die innerhalb weniger Tage veröffentlicht wurden, gezeigt, dass der COVID-Impfstoff von PfizerBioNTech weniger wirksam gegen die OmikronVariante ist.
+Laut einer Preprint-Studie von Forschern der britischen Universität Oxford in England ist bei den vollständig
+geimpften Personen ‹ein erheblicher Rückgang der Neutralisierung› von Antikörpern festzustellen, ‹wobei
+es Hinweise darauf gibt, dass bei einigen Empfängern die Neutralisierung ganz ausbleibt›.
+Der Studie zufolge könnten Durchbruchsinfektionen bei zuvor infizierten oder doppelt geimpften Personen
+zunehmen, obwohl es derzeit keine Hinweise auf ein erhöhtes Potenzial für schwere Erkrankungen,
+Krankenhausaufenthalte oder Todesfälle gibt.
+_QUELLE: 20,000+ DEATHS REPORTED TO VAERS FOLLOWING COVID VACCINES_
+_Quelle: https://uncutnews.ch/mehr-als-20-000-todesfaelle-nach-covid-impfungen-an-vaers-gemeldet/_
+
+## Verbreitung des richtigen Friedenssymbols
+
+Das falsche Friedenssymbol – die heute weltweit verbreitete sogenannte <Todesrune>, die
+
+**Es soll FRIEDEN sein auf Erden** aus den keltischen Futhark-Runen resp. der umgedrehten Algiz-Rune fabriziert wurde – ist
+
+**And there shall be PEACE on Earth** der eigentliche Inbegriff negativer Einflüsse und schafft zerstörerische Schwingungen
+
+hinsichtlich Unfrieden, Fehden und Hass, Rache, Laster, Süchte und Hörigkeit, denn die
+
+**AMANI** **ΕΙΡΗΝΗ** <Todesrune> bedeutet für viele Menschen Reminiszenzen an die NAZI-Zeit, an Tod und
+
+**BARIŞ** **VREDE** Verderben, wie aber auch Ambitionen in bezug auf Kriege, Terror, Zerstörungen vieler
+
+**PAQE** **��** menschlicher Errungenschaften und allen notwendigen Lebensgrundlagen jeder Art und
+
+**PACE** **שרום** weltweit Unfrieden.
+
+**МИР** शांित Es Ist wirklich dringlichst notwendig, dass die <Todesrune> als falschen Friedenssymbol,
+**PAIX** **���** das Unfrieden und Unruhe schafft, völlig aus der Erdenwelt verschwindet und dadurch das
+
+**PAZ** **��** uralte sowie richtige Peacesymbol auf der ganzen Erde verbreitet und weltbekannt gemacht
+
+wird, dessen zentrale Elemente Frieden, Freiheit, Harmonie, Stärkung der Lebenskraft,
+
+**FIGU.ORG** Schutz, Wachstum und Weisheit reflektieren, aufbauend wirken und sehr besänftigend und
+
+**FIGU, Semjase-Silver-Star-Center, 8495 Schmidrüti**
+
+**Schweiz/Switzerland  Tel. + 41 (0)52 385 13 10** friedlich-positiven Schwingungen zum Durchbruch verhelfen, die effectiv Frieden, Freiheit
+
+und Harmonie vermitteln können! Wir wenden uns deshalb an alle vernünftigen Menschen
+
+der Erde, an alle FIGU-Interessengruppen, FIGU-Studiengruppen und FIGU-Landesgruppen und damit an alle vernünftigen und ehrlich
+nach Frieden, Freiheit, Harmonie, Gerechtigkeit, Wissen und Evolution strebenden Menschen, ihr Bestes zu tun und zu geben, um das
+richtige Friedenssymbol weltweit zu verbreiten und Aufklärung zu schaffen über die gefährliche und destruktive Verwendung der
+<Todesrune>, die in Erinnerung an die NAZI-Verbrechen kollektiv im Sinnen und Trachten der Menschen Charakterverlotterung,
+Ausartung und Unheil fördert, wie das leider auch nach dem Ende des letzten Weltkrieges 1939–1945 extrem bis in die heutige Zeit
+hineingetragen wird.
+
+
+-----
+
+## Spreading of the Correct Peace Symbol
+
+The wrong peace symbol – the globally widespread “death rune” which has been fabricated from the Celtic Futhark runes or inverted
+Algiz rune – is the actual embodiment/quintessence of negative influences and evokes destructive swinging-waves regarding unpeace
+and hatred, revenge, vice, addictions and bondage, because for many human beings the “death rune” means reminiscence (memories)
+of the Nazi era, of death and ruin as well as ambitions concerning war, terror, destruction of human achievements, livelihoods as well
+as global evil unpeace.
+Therefore it is of the utmost necessity that the wrong peace symbol, the “death rune”, disappears from the world and that the urancient and correct peace symbol is spread and made known all-over the world, because its central elements reflect peace, freedom,
+harmony, strengthening of the life power, protection, growth and wisdom, have a constructive and strongly soothing effect, and help
+peaceful-positive swinging-waves to break through.
+Therefore we appeal to all FIGU members, all FIGU Interessengruppen, Studiengruppen and Landesgruppen as well to all reasonable
+human beings, who are honestly striving for peace, freedom, harmony, fairness, knowledge and evolution, to do, and give, their best
+to spread the correct peace symbol worldwide and to bring forth clarification about the dangerous and destructive use of the “death
+rune”, which in memory of the Nazi crimes collectively furthers deterioration and neglect of character-"ausartung" and terribleness in
+the reflecting and striving of the human being, as this is still being extremely carried on after the end of the last world war 1939–1945
+until the current time.
+
+**Autokleber** **Bestellen gegen Vorauszahlung:** **E-Mail, WEB, Tel.:**
+
+**Grössen der Kleber:** **FIGU** info@figu.org
+
+120x120 mm = CHF 3.– Hinterschmidrüti 1225 www.figu.org
+
+250x250 mm = CHF 6.– 8495 Schmidrüti Tel. 052 385 13 10
+
+300X300 mm = CHF 12.– Schweiz Fax 052 385 42 89
+
+**IMPRESSUM** **Für CHF/EURO 10.– in einem Couvert, senden**
+
+**FIGU ZEITZEICHEN UND FIGU SONDER-ZEITZEICHEN                   wir Ihnen/Dir 3 Stück farbige Friedenskleber**
+**Druck und Verlag: FIGU** Wassermannzeit-Verlag, **der Grösse** **120x120 mm = am Auto aufkleben.**
+
+Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+**FIGU-ZEITZEICHEN erscheint zweimal monatlich**
+**FIGU-Sonder-ZEITZEICHEN erscheint sporadisch**
+Wird auch im Internetz veröffentlicht, auf der FIGU-Webseite: www.figu.org/ch
+**Redaktion: BEAM** ‹Billy› Eduard Albert Meier /././ Telephon +41(0)52 38513 10 (7.00 h – 19.00 h) / Fax +41(0)52 385 42 89
+**Postcheck-Konto: PC 80-13703-3 FIGU Freie Interessengemeinschaft, 8495 Schmidrüti, Schweiz**
+**IBAN: CH06 0900 0000 8001** **3703-3,**
+
+**E-Brief: info@figu.org**
+
+**Internetz: www.figu.org**
+
+**FIGU-Shop: http://shop.figu.org**
+
+**© FIGU 2021**
+
+Einige Rechte vorbehalten.
+
+Dieses Werk ist, wo nicht anders
+
+angegeben, lizenziert unter: Geisteslehre Friedenssymbol
+www.figu.org/licenses/by-nc-nd/2.5/ch/
+
+**Frieden**
+
+**Die nichtkommerzielle Verwendung ist daher ohne weitere Genehmigung** Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+
+wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten
+
+**des Urhebers ausdrücklich erlaubt.** Tritt dazu macht, um dann nachfolgend in Friedsamkeit jeden weiteren Schritt
+Erschienen im Wassermannzeit-Verlag: FIGU, ‹Freie Interessengemeinschaft bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun.
+Universell›, Semjase Silver Star Center, SSSC, 10. September 2018, 16.43 h, Billy
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+

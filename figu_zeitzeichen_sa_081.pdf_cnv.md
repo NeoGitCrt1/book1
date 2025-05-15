@@ -1,0 +1,1577 @@
+9. Jahrgang
+Nr. 81 August/5 2023
+
+
+Erscheinungsweise:
+sporadisch
+
+
+### Sonderausgabe
+# FIGU ZEITZEICHEN
+
+###### Aktuelles • Einsichten • Erkenntnisse
+
+Internetz: http://www.figu.org
+E-Brief:  info@figu.org
+
+
+###### Organ für freie, politisch unabhängige Berichterstattungen zum Weltgeschehen, kommentarlose, neutrale und meinungslose Weitergabe von Zeitungsberichten.
+##### ***************************************************************************
+Laut ‹Allgemeine Erklärung der Menschenrechte›, verkündet von der Generalversammlung der Vereinten Nationen am 10. Dezember 1948,
+herrscht eine allgemeine ‹Meinungs- und Informationsfreiheit› vor, und dieses unumschränkte Recht gilt weltweit und absolut für jeden
+einzelnen Menschen weiblichen oder männlichen Geschlechts jeden Alters und Volkes, jedes gesellschaftlichen Standes wie auch in
+bezug auf rechtschaffene Ansichten, Ideen und jeglichen Glauben jeder Philosophie, Religion, Ideologie und Weltanschauung:
+
+**Art. 19 Menschenrechte**
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit, Meinungen**
+**unangefochten anzuhängen und Informationen und Ideen mit allen Verständigungs-**
+**mitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Ansichten, Aussagen, Darstellungen, Glaubensgut, Ideen, Meinungen sowie Ideologien jeder Art in Abhandlungen, Artikeln
+und in Leserzuschriften usw. müssen in keiner Art und Weise zwingend identisch mit dem Gedankengut und den
+Interessen, mit der ‹Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens›, wie auch nicht in
+irgendeiner Sachweise oder Sichtweise mit dem Missionsgut und dem Habitus der FIGU verbindend sein.
+==================================================================================
+==================================================================================
+Für alle in den FIGU-Zeitzeichen und anderen FIGU-Periodika publizierten Beiträge und Artikel verfügt die
+FIGU über die notwendigen schriftlichen Genehmigungen der Autoren bzw. der betreffenden Medien!
+###### ****************************************************************************************
+
+**Auf vielfach geäusserten Wunsch aus der Zeitzeichen-Leserschaft sollen in den Zeitzeichen zur Orientierung der**
+**Rezipienten laufend Auszüge diverser wichtiger Belange aus neuest geführten Kontaktgesprächsberichten**
+**veröffentlicht werden, wie nach Möglichkeit auch alte sowie neue Fakten betreffs weltweit bösartig mit**
+**Lügen, Betrug, Verleumdung und Mordanschlägen gegen BEAM geführte Kontroversen.**
+
+###### **********************************************************************************
+
+##### Die Schweiz muss wieder echt neutral werden!
+_Autor: Christian Müller, 1. August 2023_
+
+**Am heutigen 1. August, an dem die Schweiz ihren Geburtstag feiert, sollen nicht nur die**
+**geschichtsvergessenen Relativierer der Schweizer Neutralität zu Worte kommen. Die Welt**
+**braucht, wie schon oft, eine absolut neutrale Schweiz, die die besten Voraussetzungen hat, bei**
+**internationalen Konflikten zu vermitteln. Das aber ist nur möglich, wenn die Schweiz**
+**ihren gegenwärtigen Kurs der Neutralitätsverwässerung wieder aufgibt.**
+
+Heute, am 1. August, feiert die Schweiz, die ‹Confoederatio Helvetica›, ihren Geburtstag. Das Datum hat sie
+einem aus dem 13. Jahrhundert erhaltenen Dokument entnommen, wo einige Männer aus den damaligen
+Talschaften Uri, Schwyz und Nidwalden in der heutigen Innerschweiz ‹in den ersten Tagen des August› –
+oder im lateinischen Original ‹Actum anno domini M CC LXXXX primo incipiente mense Augusto› – einander
+bei Angriffen von aussen gegenseitige Hilfe zusicherten.
+Nicht schon seit über 700 Jahren, aber seit 175 Jahren versteht sich die Schweiz als neutrales Land, das
+sich in kriegerische Aktivitäten ausserhalb der Schweiz nicht einmischt. Diese Neutralität ist seit dem Beginn des Krieges in der Ukraine im Februar 2022 wieder das Thema – nicht zuletzt eben auch am 1. August,
+
+
+-----
+
+wenn die Schweizer traditionellerweise mit einer Wurst vom Grill und ordentlicher Tranksame auf Stadtund Dorfplätzen sich selbst feiern.
+
+Fünf Tage nach dem Beginn des Krieges am 24. Februar 2022 hat der Bundesrat, die siebenköpfige Regierung der Schweiz, diese Neutralität schon mal beerdigt, indem er damals beschlossen hat, die Sanktionen
+der EU gegen Russland pauschal zu übernehmen.
+Damals habe ich auf der deutschen Plattform ‹NachDenkSeiten› spontan einen Artikel geschrieben. Unter
+der Headline ‹Die Schweiz hat ihre Neutralität beerdigt. Ich schäme mich.› begann ich meine Beurteilung
+des jüngsten Geschehens mit diesen Formulierungen: «Die sieben Mitglieder der Schweizer Regierung –
+der Bundesrat, wie die Regierung in der Schweiz heisst – haben es am 28. Februar 2022 geschafft, in den
+Schweizer Geschichtsbüchern der Zukunft namentlich aufgeführt zu werden: Sie haben die 173 Jahre alte
+verfassungsmässige Neutralität der Schweiz beerdigt und Genf als international hochgeschätzten politischen Konferenzort liquidiert. Der EU wollte die Schweiz noch nie beitreten, sie bevorzugte immer bilaterale
+Abkommen oder, wie gerade jetzt wieder, Probleme einfach auszusitzen und Distanz zu halten. Ihr Interesse
+galt immer nur dem Marktzugang zur EU. Und sogar die neuen Kampfjets für die Armee sollen nicht von
+einem Unternehmen in der EU, sondern von den USA gekauft werden. Jetzt aber, am vergangenen Montag,
+hat der Schweizer Bundesrat beschlossen, die EU-Sanktionen gegen Russland vollständig zu übernehmen.
+Ausgerechnet die Sanktionen der EU, um der einen Seite des Konflikts massiv zu schaden.»
+Ganz so hart wollten das die meisten Politiker und Medienleute allerdings nicht verstanden haben. Und sie
+begannen eine Diskussion, wie man die Schweizer Neutralität doch ‹modernisieren› sollte. Der damalige
+Aussenminister und sogenannter Bundespräsident Ignazio Cassis kreierte am WEF in Davos den Begriff
+‹Kooperative Neutralität› und liess dazu eine Studie erstellen. Der hochstehende Politiker mit Migrationshintergrund – Ignazio Cassis ist als Italiener geboren – versuchte eine Neutralität zu erfinden, die eben nicht
+immer absolut sein muss. Seine Studie dazu hat aber nur Eingeweihte bei den Medien erreicht und war
+schnell wieder vom Tisch. Aber die Versuche etlicher Politiker und Medienschaffender, die Schweizer Neutralität ‹flexibel› zu machen, dauern an.
+In den gestrigen CH-Media-Zeitungen – dem Verbund der grossen deutschsprachigen Regionalzeitungen –
+schreibt Chefredakteur Patrik Müller auf der Frontseite aus Anlass des zeitungsfreien heutigen Bundesfeiertages einen sogenannten Leitartikel. Dieser hat die folgende Headline: ‹Die Neutralität ist genial – aber wenn
+wir sie nicht weiterentwickeln, bedroht sie unsere Sicherheit›. Das ist – «man erkennt die Absicht und ist
+verstimmt» (Goethe) – mit anderen Worten die Aufforderung, die Neutralität zu relativieren. Und Patrik
+Müller kritisiert darin die Schweizer Regierung, die nach dem 24. Februar ‹mehrere Tage› brauchte, um mit
+der Übernahme der EU-Sanktionen ‹die Konsequenzen zu ziehen›. Neutralität hin oder her, der Bundesrat
+hätte aus Sicht von Patrik Müller noch schneller reagieren müssen. Und der CH-Media-Chefredakteur hat
+keine Hemmung, einmal mehr die europäische Geschichte zu manipulieren. Wörtlich: «Dass sie (die Neutralität) auch Schwäche sein kann, zeigte sich nach der russischen Invasion in die Ukraine, dem ersten Angriffskrieg in Europa, seit Hitler Polen überfiel.» Wirklich? Der erste Angriffskrieg in Europa seit Hitler? Den Angriff
+der NATO-Truppen in Jugoslawien unter Führung der USA im Jahr 1999 – das ‹humanitarian bombing›,
+
+
+-----
+
+wie es der vielbewunderte tschechische Staatsmann Vaclav Havel sinnverkürzt formulierte, hat Patrik Müller
+dabei locker unter den Teppich gewischt.
+Die Schweiz mit ihrer Neutralität hat sich über lange Jahrzehnte den Ruf eines idealen Vermittlerstaates
+erworben, auch aufgrund des Roten Kreuzes, dessen Gründung historisch auf das Engagement eines
+Schweizers zurückgeht. Sie hat im Konflikt zwischen den USA und Kuba die jeweilige Interessenvertretung
+wahrgenommen, oder auch zwischen den USA und dem Iran. Man könnte viele Beispiele aufzählen. Auf
+der Website der Offiziellen Schweiz kann man aus dem Bericht des Bundesrates aus dem Jahr 2016 die
+folgende Formulierung lesen:
+«Die Schweiz nutzt das Instrumentarium der Guten Dienste in der Krisen- und Konfliktbearbeitung. Es
+reflektiert die Tradition und die Bereitschaft der Schweiz, Menschen in Not beizustehen und den Frieden
+weltweit zu fördern. Die Schweiz geniesst im In- und im Ausland den Ruf als vertrauenswürdige Vermittlerin.
+Ihre Neutralität ohne koloniale Vergangenheit, ihr demokratisches System, welches auf Austausch, Ausgleich und Kompromiss aufbaut, sowie ihre Erfahrung mit kultureller Vielfalt schaffen Vertrauen und sind
+hierfür zentrale Eigenschaften.»
+All das soll jetzt relativiert werden? Wer wäre, ohne den historischen Missgriff des Bundesrates vom 28.
+Februar 2022, besser geeignet gewesen, auch im Konflikt zwischen der Ukraine und Russland zu vermitteln,
+als eben die Schweiz?
+Noch besteht die Chance, dass die Dummheiten der Politiker und Politikerinnen und der gegenwärtigen
+Schweizer Medien-Stars von der Schweizer Bevölkerung wieder korrigiert werden – mit einer Abstimmung
+dank der direkten Demokratie, um die uns viele Menschen in anderen Ländern beneiden. Die gegenwärtige
+geopolitische Situation, nicht nur in Europa, auch in Asien und anderen Orten, macht deutlich, dass es
+Mediatoren, internationale, neutrale Vermittler braucht. Und Genf soll, als Stadt in der neutralen Schweiz,
+ein Ort für internationale Konferenzen und als Sitz des IKRK erhalten bleiben. Und dies auch dann, wenn
+es um Konflikte geht, an denen Russland beteiligt ist.
+_Der Kommentar von Christian Müller ‹Die Schweiz hat ihre Neutralität beerdigt. Ich schäme mich dafür›, kann auch auf der_
+_Plattform Globalbridge.ch eingesehen werden._
+_Quelle: https://globalbridge.ch/die-schweiz-muss-wieder-echt-neutral-werden/_
+
+##### Europas schwarzes Loch: Wie viel von den 165 Milliarden Euro für die Ukraine wurden gestohlen?
+_1 Aug. 2023 21:42 Uhr_
+
+Das Schicksal der gigantischen Geldmengen und Hilfsleistungen, die bisher in die Ukraine geschickt wurden, ist angesichts der weitverbreiteten Korruption in diesem Land und mangelnder Rechenschaftspflicht
+völlig unklar. Eine Spurensuche.
+Von George Trenin
+
+Als Ergebnis des NATO-Gipfels in Vilnius, versprach die von den USA geführte Militärallianz der Ukraine
+neue Tranchen finanzieller und militärischer Hilfe. Und das, obwohl Kiew zu Beginn des Sommers bereits
+insgesamt 165 Milliarden Euro von westlichen Ländern erhalten hatte. Während die Ausgaben für Kiew
+zunehmend steigen, scheint die Zahl der US- und EU-Bürger, die bereit sind, zugunsten der Ukraine auf
+ihren eigenen Wohlstand und Komfort zu verzichten, stetig abzunehmen.
+Einer der Gründe dafür ist die grassierende Korruption in der Ukraine, die – trotz einiger hochtrabender
+Versprechungen – heute genauso schlimm zu sein scheint wie vor dem vom Westen unterstützten MaidanUmsturz im Jahr 2014, wenn nicht gar noch schlimmer.
+
+**Finanzielle Trostpflaster**
+Der NATO-Gipfel bot der Ukraine trotz aller Hoffnungen nicht den lang erwarteten Fahrplan und den Zeitrahmen für eine Mitgliedschaft. Stattdessen kündigten westliche Staats- und Regierungschefs neue militärische Hilfspakete an. Laut der französischen Zeitung ‹Le Monde› versprach der französische Präsident Emmanuel Macron, der Ukraine eine ‹erhebliche Anzahl› von SCALP-Raketen, die Ziele in einer Entfernung von
+250 Kilometern treffen können. Laut France24 kosten diese Raketen jeweils 850’000 Euro pro Stück.
+Berlin kündigte seinerseits ein Hilfspaket in Höhe von 700 Millionen Euro an. Deutschland plant, die Ukraine
+mit Raketenwerfern für das Raketenabwehrsystem Patriot, Infanterie-Kampffahrzeugen vom Typ Marder,
+Drohnen, Panzer vom Typ Leopard 1A5 und Artilleriegranaten zu beliefern. Für Berlin ist dies jedoch nicht
+einmal annähernd ein Rekordwert. Am 13. Mai kündigte das deutsche Aussenministerium die Bereitstellung
+von Militärhilfe an die Ukraine im Wert von 2,7 Milliarden Euro an.
+Am 8. Juli sprach Colin Kahl, stellvertretender US-Verteidigungsminister, über ein neues Hilfspaket der USA,
+das zudem Streumunition umfasst – die in 120 Ländern der Welt verboten und geächtet sind. Der Umfang
+hier beläuft sich auf 800 Millionen Dollar und ist die 42 militärische Hilfslieferung die Kiew in den vergan
+
+
+-----
+
+genen 16 Monaten von den USA erhalten hat. Seit Beginn der russischen Offensive hat der US-Kongress
+militärische und wirtschaftliche Hilfe für die Ukraine in Höhe von über 70 Milliarden US-Dollar genehmigt
+– und dabei sind nur die direkten Ausgaben berücksichtigt.
+Laut den Daten des Kieler Instituts für Weltwirtschaft, das den Umfang der an die Ukraine zugewiesenen
+Hilfe erfasst, beliefen sich die gesamten direkten Subventionen und Hilfen der USA und ihrer Verbündeten
+im Zeitraum vom 24. Februar 2022 bis 31. Mai 2023 auf über 165 Milliarden Euro. Die Kadenz, mit der
+neue Tranchen gesprochen werden, erhöht sich von Monat zu Monat. So lag etwa die Gesamtsumme der
+Hilfsleistungen Ende April 15 Milliarden Euro unter der derzeitigen Summe – laut NATO-Generalsekretär
+Jens Stoltenberg waren es damals 150 Milliarden Euro.
+
+**Der weisse Elefant im Raum**
+Die wachsende Hilfe für die Ukraine wirft in der westlichen Öffentlichkeit natürlich viele Fragen auf. In den
+USA beispielsweise hielt der im März 2022 gebildete ‹überparteiliche Konsens› nur bis November desselben
+Jahres. Zu diesem Zeitpunkt hatte etwa ein Drittel der republikanischen Wähler in den USA ihre Ansichten
+überdacht und sind zum Schluss gekommen, dass es nicht mehr angemessen sei, Kiew wirtschaftlich zu
+unterstützen und weiterhin Waffen dorthin zu liefern.
+Nach den neuesten Daten der Denkfabrik Bruegel, ist die Unterstützung der Ukraine unter US-Bürgern zwischen Oktober 2022 und April 2023 noch stärker zurückgegangen. Nur noch 60 Prozent der demokratisch
+wählenden US-Amerikaner und 34 Prozent der republikanischen Wähler waren noch bereit, die Inflation zu
+tolerieren, nur um Kiew weiterhin zu unterstützen. Im vergangenen Herbst lagen diese Werte bei 74 Prozent
+bzw. 44 Prozent. Die Analysten bei Bruegel gehen davon aus, dass der Umfang der US-Hilfe für die Ukraine
+in der kommenden Wahlsaison zurückgehen wird, da Präsident Joe Biden um jede Stimme kämpfen muss.
+Je nach den Ergebnissen der US-Präsidentschaftswahlen 2024, könnte es für Kiew noch schlimmer kommen. Da auf dem Schlachtfeld keine Erfolge erzielt werden, könnten Persönlichkeiten des öffentlichen
+Lebens und einflussreiche Politiker in den USA eine friedliche Beilegung des Konflikts fordern, selbst zu
+ungünstigen Bedingungen für die Ukraine. All dies könnte jenen Kandidaten zugutekommen, die weniger
+geneigt sind, Kiew ‹so lange es nötig ist› zu unterstützen.
+
+**Europäische Zweifel**
+Offiziellen Kommentaren zufolge scheint die Situation in der EU sogar noch komplizierter zu sein. Bis in
+jüngste Vergangenheit war die Verabschiedung jedes neuen Hilfspakets von langen Verhandlungen und
+hartnäckigem Widerstand einiger EU-Mitgliedstaaten begleitet. Beispielsweise sagte der tschechische
+Finanzminister, Zbyněk Stanjura, im Dezember vergangenen Jahres, dass sich die EU nicht vollständig auf
+ein neues Paket makrofinanzieller Kredithilfen für die Ukraine bis 2023 einigen könne. Die Stimmung wurde
+zusätzlich aufgeheizt, nachdem der polnische Ministerpräsident Mateusz Morawiecki die EU aufgefordert
+hatte, der Ukraine grösstmögliche Hilfe zu leisten und der Führung Deutschlands und Frankreichs eine
+mangelnde Hilfsbereitschaft vorgeworfen hatte. «Berlin und Paris haben keine ernsthaften internationalen
+Schritte der Unterstützung gezeigt», sagte Morawiecki. Und genau wie in den USA, nimmt auch in der EU
+die Zahl jener Bürger ab, die bereit sind, zugunsten der Ukraine auf ihren Wohlstand und Komfort zu verzichten.
+«Tatsache bleibt, dass die Zeit nicht auf unserer Seite ist. Je länger dieser Konflikt andauert, desto schwieriger wird es, finanzielle Hilfen aufzutreiben. Das ist unbestreitbar», schrieb Maria Demertzis, leitende Forscherin bei der Denkfabrik Bruegel, in einem aktuellen Bericht. Dies zeigt, dass mit dem Fortdauern des
+Konflikts in der Ukraine die direkten wirtschaftlichen Kosten für Westeuropa zusehends steigen. Aufgrund
+der beispiellos hohen und anhaltenden Inflation, die durch den Krieg verursacht wurde, sind Haushalte in
+der gesamten EU unter Druck geraten, was die öffentliche Unterstützung für die Ukraine untergraben
+könnte.
+Bruegel verglich im März 2022 und Februar 2023 Statistiken aus Italien, Deutschland und Frankreich. In
+Italien sank die Zustimmung für Sanktionen gegen Russland im vergangenen Jahr von 80 Prozent auf 65
+Prozent und die Zustimmung für Militärhilfen für die Ukraine von 57 Prozent auf 49 Prozent. In Deutschland
+befürworten 62 Prozent der Befragten die Sanktionen, im Vergleich zu 80 Prozent im Vorjahr, während es
+in Frankreich 67 Prozent gegenüber 72 Prozent sind. Die Zahl der Deutschen, die Waffenlieferungen an die
+Ukraine befürworten, liegt nun bei 52 Prozent im Vergleich zu 66 Prozent im Vorjahr, bei den Franzosen
+sind es 54 Prozent im Vergleich zu 65 Prozent.
+
+**Schattenboxen**
+Diese ungünstige Situation für Kiew wird durch das ‹traditionelle› Problem der Ukraine, die grassierende
+Korruption im Land, verschärft.
+Die der NATO nahestehende NGO German Marshall Fund of the United States – die in Russland als ‹unerwünschte Organisation› eingestuft wird – veröffentlichte im Vorfeld der Konferenz zum Wiederaufbau der
+Nachkriegsukraine im vergangenen Juni einen Bericht. In diesem Bericht heisst es: «Die Bekämpfung der
+
+
+-----
+
+Korruption ist heute von ebenso strategischer Bedeutung, wie die Politik zur Eindämmung des Kommunismus im Kalten Krieg.»
+Der Bericht stellte ausserdem fest, dass die Ukraine einen ‹Zweifrontenkrieg gegen Russland und gegen
+Korruption› führe und die Errichtung eines Rechtsstaats anstrebe. Laut den Autoren des Berichts «warten
+die ukrainischen Oligarchen bis nach dem Ende des Krieges, um ihren Einfluss wieder zu behaupten». Ähnliche Worte äusserte ein hochrangiger Beamter im Büro des Generalinspekteurs des US-Verteidigungsministeriums in einem Interview mit Defense One. Seine Informanten in der Ukraine geben unumwunden
+zu, dass sie ‹einen Zweifrontenkrieg führen›.
+«Sie bekämpfen die Russen und sie bekämpfen die interne Korruption. Und an einer Front zu kämpfen bedeutet, der anderen Ressourcen zu entziehen», sagte er. Seiner Ansicht nach besteht die Gefahr von Korruption nicht nur innerhalb der ukrainischen Staatsgrenzen, sondern auch bei Vertragsabschlüssen in den USA
+kann es zu Betrug kommen. Darüber hinaus kann es auf dem Weg durch Europa zum Diebstahl von Waffen
+oder anderen Hilfsgütern kommen. Ein anderer Beamter, der an strafrechtlichen Ermittlungen im Pentagon
+beteiligt ist, sagte gegenüber Defense One, dass seine Abteilung ‹besorgt über die mögliche Umleitung oder
+den Diebstahl von Waren und Waffen› sei. Auch viele US-Unternehmen trauen den ukrainischen Behörden
+nicht und glauben, dass Hilfsgüter gestohlen werden. Laut US-Handelsministerin Gina Raimondo bezweifeln
+zahlreiche Privatunternehmen, dass die der Ukraine für den Wiederaufbau zugewiesenen Mittel vor Korruption sicher sind.
+
+**Interne Machenschaften**
+Auch in der Ukraine ist das Problem der Korruption anerkannt. Im vergangenen Frühjahr behauptete der
+ehemalige Berater des Büros des Präsidenten der Ukraine, Alexei Arestowitsch, auf seinem YouTube-Kanal,
+dass sein ehemaliger Chef, Wladimir Selensky, nicht in der Lage sei, mit der Korruption in der Ukraine umzugehen.
+«Die Ukraine braucht nur eines: Jemanden an der Macht, der nicht stiehlt. Jemand, der es selbst nicht tut
+und es auch anderen nicht erlaubt. Leider hatten wir diesbezüglich bisher kein Glück», sagte er. Arestowitsch fügte hinzu, dass das Land eine andere Führung haben müsse, um dies zu erreichen. «Der amtierende Präsident hat es nicht geschafft, mit der Korruption fertigzuwerden, obwohl der Konflikt ein guter Grund
+hätte sein können, ausserordentliche Massnahmen zu ergreifen und das Problem zu lösen. Aber wie wir
+sehen, ist dies nicht in vollem Umfang geschehen.»
+Arestowitsch ist mit seiner Meinung nicht allein. Der amerikanische Investigativ-Journalist Seymour Hersh
+erklärte, dass der ukrainische Präsident Wladimir Selensky und sein Gefolge illegal mindestens 400 Millionen US-Dollar aus Hilfsgeldern abgezweigt hätten.
+«Der ukrainische Präsident und viele in seiner Entourage haben unzählige Millionen an US-Dollar abgeschöpft, die für den Kauf von Dieselkraftstoff vorgesehen waren. Einer Schätzung von Analysten der CIA zufolge beliefen sich die veruntreuten Gelder im vergangenen Jahr auf mindestens 400 Millionen US-Dollar»,
+schrieb er. Hersh fügte hinzu, dass die ukrainischen Ministerien buchstäblich untereinander in Konkurrenz
+stehen, beim Gründen von Tarnfirmen für den Export von Waffen und Munition, ein System, das ‹Provisionen› einbringt.
+Darüber hinaus behauptet Hersh, dass CIA-Direktor William Burns wütend über Selensky sei, wegen des
+möglichen Diebstahls westlicher Finanzhilfen und weil dieser ‹einen grösseren Teil der Gelder abschöpfte
+als seine Generäle›.
+Der Nachrichtensender al-Arabiya zitierte kürzlich aus den ‹Pandora-Papieren›, wonach Selensky und sein
+Team bereits vor seiner Wahl zum Präsidenten an Korruption beteiligt gewesen seien.
+«Den Unterlagen zufolge war Selensky seit 2012 Begünstigter mehrerer ausländischer Firmen, die er gemeinsam mit seinen alten Freunden leitete», berichtete der Sender. Laut al-Arabiya gehörten zu den damaligen korrupten Partnern von Selensky der erste Assistent von Selensky, Sergei Schefir, und der frühere Chef
+des Sicherheitsdienstes der Ukraine (SBU), Iwan Bakanow. Der Sender stellte zudem fest, dass ihre Unternehmen für den Kauf ‹extrem teurer Wohnungen in London› genutzt wurden.
+
+**Sinnlose Investitionen**
+Das Problem der grassierenden Korruption besteht weiterhin, obwohl die USA in der Ukraine seit vielen
+Jahren Mittel in die Korruptionsbekämpfung investieren. Diese Mittel wurden der Generalstaatsanwaltschaft, den lokalen Medien und anderen Organisationen zugewiesen. Dies erklärte die Administratorin der
+US-amerikanischen Agentur für internationale Entwicklung (USAID), Samantha Power, bei einer Anhörung
+im Kongress.
+Trotzdem gehen die Verbrechen rund um die Korruption in der Ukraine munter weiter. Vor einiger Zeit verhaftete die ukrainische Antikorruptionsbehörde den stellvertretenden Minister für Infrastruktur wegen des
+Verdachts, Bestechungsgelder in Höhe von 367’000 Euro erhalten zu haben, für den Kauf von Generatoren
+zu einem überhöhten Preis. Und erst kürzlich wurde dem Vorsitzenden des Obersten Gerichtshofs der
+Ukraine Korruption vorgeworfen.
+
+
+-----
+
+Dann gab es die Untersuchung einer ukrainischen Zeitung, die berichtete, dass das ukrainische Verteidigungsministerium Verträge abgeschlossen hatte, über Lebensmittellieferungen für Fronttruppen, zu einem
+zwei- bis dreimal höheren Preis als üblich wäre – eine Untersuchung, die einen grossen Skandal auslöste.
+Auch die Befürchtungen des Pentagons, dass an die Ukraine gelieferte Waffen auf dem Schwarzmarkt landen könnten, haben sich bestätigt.
+«Sehr früh im Konflikt wurden Polen, Rumänien und andere Länder an der Grenze zur Ukraine, mit Waffen
+überschwemmt, die wir, die USA und ihre Verbündeten, für den Krieg in der Ukraine dorthin karrten. Mit
+anderen Worten: Es gab Kommandeure, ich weiss nicht, auf welcher Ebene – oft waren es keine Generäle,
+sondern eher Obersts und dergleichen, die Waffenlieferungen entgegennahmen und die sie anschliessend
+persönlich auf dem Schwarzmarkt weiterverkauften», sagte Hersh gegenüber dem Journalisten Afshin
+Rattansi. Er fügte hinzu, dass nun alle Mitglieder der ukrainischen Regierung Drittparteien einbeziehen, da
+dies ihre Chancen erhöht, nebenbei Geld zu verdienen.
+«Die Korruption in der Ukraine ist unvorstellbar. Das war schon immer so. Und das wird sich nicht ändern»,
+ergänzte Hersh.
+_Aus dem Englischen_
+_George Trenin ist ein russischer Journalist und Politikwissenschaftler._
+_Quelle: https://freeassange.rtde.me/meinung/176709-europas-schwarzes-loch-wie-viel/_
+
+##### Im ukrainischen Gefängnis geschlagen und ausgeplündert: Gonzalo Lira wieder aufgetaucht
+_1 Aug. 2023 20:55 Uhr, Quelle: RT_
+
+**In diesem Video berichtet der chilenisch-amerikanische Journalist und Blogger Gonzalo Lira, der endlich**
+**in Freiheit und Sicherheit ist, darüber, warum er in der Ukraine verhaftet wurde und was ihm an Folter**
+**und Misshandlungen im ukrainischen Gefängnis widerfahren** **ist.**
+
+Der chilenisch-amerikanische Blogger Gonzalo Lira, der im Mai vom ukrainischen Geheimdienst SBU mit
+dem Vorwurf ‹prorussischer Sympathien› verhaftet worden war, ging am Montag wieder online und berichtete in einer Reihe von Tweets und Videos von seinen Erlebnissen im Gefängnis. Laut eigenen Angaben
+wurde Lira auf Kaution aus der Haft entlassen, um auf seinen Prozess zu warten. Er versuche nun, nach
+Ungarn zu fahren, um dort Asyl zu beantragen.
+_Quelle: https://freeassange.rtde.me/kurzclips/video/176765-im-ukrainischen-gefaengnis-geschlagen-und-ausgepluendert/_
+
+##### Alarmierende Autismus-Häufigkeit bei Kindern in den USA nach Impfung
+_Hwludwig, Veröffentlicht am 1. August 2023_
+
+**Eine wissenschaftliche Studie warnte 2003 in den USA, dass Quecksilber in Impfstoffen bei Tausenden**
+**von Kindern die Ursache von Autismus sein könnte. Der Anwalt und Kinderschutz-Aktivist Robert F. Ken-**
+**nedy Jr. deckte 2005 in einem Artikel mit dem Titel ‹Tödliche Immununität› auf, dass sich die staatlichen**
+**Gesundheitsbehörden, anstatt die Zulassung bis zur vollen wissenschaftlichen Klärung auszusetzen,**
+**eiligst daran gemacht hatten, die Sache zu vertuschen, um Eltern davon abzuhalten, die Pharmakonzerne**
+**zu verklagen. Und geimpft wurde unverändert weiter. Obwohl Robert Kennedy klare Beweise und weitere**
+**Studien benannte wurde er ignoriert und als ‹Verschwörungs Theoretiker› diskreditiert**
+
+
+-----
+
+Ich habe den Artikel Robert Kennedys am 14. Mai 2021 hier abgedruckt, weil er ein wichtiges Dokument
+ist, das die unglaublich skrupellose Komplizenschaft von staatlichen Gesundheitsbehörden, Wissenschaftlern, Pharmaindustrie und Medien mit ihren furchtbaren gesundheitlichen bis tödlichen Folgen für Abertausende von Menschen beispielhaft nachweist.
+Robert Kennedy schilderte, dass vor 1989 amerikanische Vorschulkinder 11 Impfungen empfingen – gegen
+Polio, Diphtherie-Tetanus-Pertussis und Masern-Mumps-Röteln. Ein Jahrzehnt später seien es dank staatlicher Empfehlungen insgesamt 22 Impfungen geworden. Als die Anzahl der Impfstoffe so zugenommen
+habe, sei ab 1991 die Zahl der Autismus-Fälle bei Kindern explodiert, von bis dahin einem Autismus-Fall
+von 2500 geimpften Kindern auf einen Autismus-Fall von 166 geimpften Kindern. (Siehe: Der Impf-Autismus-Skandal …)
+
+**Weitere Steigerung**
+Wie ist die Situation heute in den USA? Wie Dr. Peter Mayer auf tkp am 19.7.2023 berichtet, werde von
+immer mehr wissenschaftlichen Studien bekräftigt, dass generell Gifte wie Metalle und ihre Verbindungen
+die Ursache von Autismus seien (also nicht nur Quecksilber) und da vor allem die Adjuvantien (Wirkverstärker) in den Impfstoffen. Die diversen nationalen Impfvorschriften enthielten heute bereits bis zu 50 Impfungen, die bis zum Alter von 15 Jahren verabreicht werden. Der Autismus lege daher einen weiteren steilen
+Anstieg hin.
+
+Der renommierte amerikanische Wissenschaftler und Kardiolge Dr. Peter McCoullogh verwies in einem auf
+tkp verlinkten Gespräch mit einem anderen Wissenschaftler auf eine Arbeit von Gayle DeLong, die Daten
+aus den Jahren 2001 bis 2007 analysiert habe und zu dem Schluss gekommen sei, dass sich ein positiver
+und statistisch signifikanter Zusammenhang zeige: Je höher der Anteil der Kinder, die die empfohlenen
+Impfungen erhielten, desto höher die Prävalenz (Anteil der Erkrankten an der Gesamtbevölkerung) von
+Autismus oder Sprachstörungen.
+Und Dr. McCoullogh erklärte:
+«Ich bin sehr stark geimpft. Meine Kinder haben auch alle Impfungen bekommen. Als sie geboren wurden,
+habe ich das nicht kritisch gesehen. Nur weil ich durch die Impfungen nicht geschädigt wurde, heisst das
+noch lange nicht, dass es in Ordnung ist. Ich denke, es ist sehr wichtig, dass die Leute das hören. Nur weil
+es ihnen mit den Impfstoffen gut ging, heisst das nicht, dass es in Ordnung ist. Das ist es, was wir gelernt
+haben.
+Als ich ein Kind war, lag die Autismus-Rate bei einem von 10’000. Heute sagt die CDC (Behörde des USamerikanischen Gesundheitsministeriums, hl), dass diese Rate ein Notfall ist. Sie liegt bei 1 zu 36. Es ist
+eine Epidemie.
+Die Impfstoffe werden zu immer intensiveren Paketen gebündelt. So gibt es MMR, also Masern, Mumps,
+Röteln. Eine DTP-Impfung (Diphtherie, Tetanus, Pertussis). Influenza, und jetzt Haemophilus influenza Serotyp b. Und dann kommt noch COVID dazu. Es ist die Addition dieser Impfungen bei einmaliger Verabreichung, die Bündelung dieser Impfungen, die ziemlich eindeutig mit Autismus in Zusammenhang zu stehen
+scheint.
+Eine Arbeit von DeLong, die eine brillante Analyse ist, untersucht Kinder bis zu acht Jahren. Die Daten aus
+den Jahren 2001 bis 2007 wurden sorgfältig zusammengeführt, und es zeigte sich, dass der p-Wert für die
+Entwicklung von Autismus weniger als 0,001 beträgt, sobald die Impfstoffe in diesen Mehrfachgaben und
+Bündelungen verabreicht wurden. Es ist also statistisch hoch signifikant.
+Die Leute haben gesagt, na ja, in einem Fall ist es ein Konservierungsmittel, wie Thiomersal oder Quecksilber, in einem anderen Fall ist es Aluminium. Aber meine Analyse zeigt, dass es im Laufe der Zeit eine gewisse Anpassung dieser Hilfsstoffe gegeben hat. Ich denke jetzt, dass die Adjuvantien (Wirkverstärker) sicherlich eine Rolle spielen könnten, aber ich denke jetzt, dass es eigentlich das Immunsystem ist – dass bei
+einigen Kindern das Immunsystem aktiviert wird. Und tatsächlich gibt es etwa 200 Arbeiten über die Dys
+
+-----
+
+regulation des Immunsystems und die Entwicklung von Autismus und diesen ESSENCE [Syndromen] –
+etwa 200 Arbeiten.
+Eine Überimpfung führt also zu einer Dysregulierung des Immunsystems. Es gibt Faktoren, Zytokine (Signalmoleküle), die neurotrophe Zytokine sind. Sie gelangen in das Gehirn, genau wie bei einer Masern-Enzephalitis oder einer Röteln-Zerebralentzündung. Bei einigen der Viren, gegen die wir geimpft werden, verursacht
+das Virus selbst vielleicht nicht so viele Hirnschäden, aber die Entzündung schon. Wenn wir den Impfstoff
+verabreichen, lösen wir die gleiche Entzündung aus.
+Ich habe also festgestellt, dass zwar andere Hypothesen im Spiel sind, wie die zunehmende Verwendung
+von Glyphosaten, möglicherweise Hypervitaminose D oder andere Dinge in der Babynahrung. Wir wissen,
+dass ältere Eltern, Geschwister mit Autismus und Frühgeburten Risikofaktoren sind. Aber wenn man diese
+Risikofaktoren, die Überimpfung und dann die Erscheinung eines Fieberkrampfs in Betracht zieht und die
+Mutter und der Vater Zeugen werden – und von diesem Zeitpunkt an ist das Kind nicht mehr dasselbe.
+Ich denke, wir haben ein ziemlich starkes Argument dafür, dass Andy Wakefield vor Jahren, Sie [Paul
+Thomas] und andere Pioniere, die ganze Zeit Recht hatten – dass eine Überimpfung ein entscheidender
+Faktor für Autismus ist.» (tkp.at)
+
+**Die Kontrollgruppe der Amisch-Gemeinden**
+Dr. Peter Mayer verweist eingangs seines verlinkten Artikels auf den Informatiker Steve Kirsch, der kürzlich
+bei einer Anhörung im Senat des US-Bundesstaates Pennsylvania auf die Tatsache aufmerksam gemacht
+habe: «Wir können in der amischen Gemeinde kein autistisches Kind finden, das ungeimpft ist.»
+Mit anderen Worten: Da die Amischen ihre Kinder im Allgemeinen nicht impfen lassen, kommt Autismus
+bei ihnen so gut wie nicht vor.
+Die CDC studiere die Amischen seit längerer Zeit, habe aber nie einen Bericht darüber veröffentlicht.
+Die Amischen sind eine täuferisch-protestantische Glaubensgemeinschaft in den USA, deren Bezeichnung
+sich vom Namen ihres Begründers Jakob Ammann (1644–1730) ableitet. Die Amischen haben ihre Wurzeln
+in der reformatorischen Täuferbewegung Mitteleuropas, vor allem der Schweiz und Süddeutschlands. Wenn
+heute von Amischen gesprochen wird, sind fast immer die ‹Amischen alter Ordnung› gemeint. Amische
+alter Ordnung führen ein stark in der Landwirtschaft verwurzeltes Leben und sind bekannt dafür, dass sie
+bestimmte moderne Techniken ablehnen und Neuerungen nur nach sorgfältiger Prüfung der Auswirkungen
+übernehmen. Die Amischen legen grossen Wert auf eine Familie mit klar vorgegebenen Geschlechterrollen,
+Gemeinschaft und Abgeschiedenheit von der Aussenwelt. (Wikipedia)
+Die Amischen seien ein gutes Beispiel für eine grosse Gruppe von Menschen, die weitgehend ungeimpft
+sind, sagte Steve Kirsch vor dem Senat des Bundesstaates Pennsylvania. Man finde in dieser gleichsam
+perfekten Kontrollgruppe auch keine Kinder mit ADS, mit Autoimmunkrankheiten, mit PANDAS, PANS, mit
+Epilepsie. Man finde einfach keine dieser chronischen Krankheiten bei den Amish.
+«Die US-Regierung hat die Amish seit Jahrzehnten untersucht, aber es gab nie einen Bericht für die Öffentlichkeit.»
+«Nach jahrzehntelanger Untersuchung der Amish gibt es keinen Bericht, weil der Bericht verheerend für
+die offiziellen Verlautbarungen wäre. Er würde zeigen, dass die CDC der Öffentlichkeit jahrzehntelang geschadet hat, weil sie geschwiegen und alle Daten verborgen hat.»
+«Ich habe es ausgerechnet», erläuterte Steve Kirsch, «wenn man bedenkt, dass in Lancaster County, PA,
+fünf Amische starben, dann ist die Sterblichkeitsrate bei den Amischen 90mal niedriger als die Infektionsrate in den Vereinigten Staaten von Amerika.»
+Der Grund sei, dass die Amischen nicht geimpft seien, und weil sie nicht eine einzige Richtlinie der CDC
+befolgt hätten.
+«Sie haben (in der Corona-Krise) keinen Lockdown akzeptiert. Sie haben keine Masken getragen. Sie haben
+sich nicht sozial distanziert, sie haben nicht geimpft, und in der Amish-Gemeinschaft gab es keine Vorschrift, sich impfen zu lassen. Sie ignorierten im Grunde jede einzelne Richtlinie, die uns die CDC gab. Das
+Ignorieren dieser Richtlinien führte zu einer Todesrate, die 90-mal niedriger war als im übrigen Amerika.»
+«Es ist ein Unterschied, über den niemand sprechen will … Die vollständig ungeimpften Kinder sind immer
+gesünder.»
+_(Quelle: Steve Kirsch: „We can´t find…)_
+_Quelle: https://fassadenkratzer.wordpress.com/2023/08/01/alarmierende-autismus-haufigkeit-bei-kindern-in-den-usa-_
+_nach-impfung/_
+
+##### GERMAN SUICIDE UND GERMAN ANGST
+###### Grüne Ideologisierung der Ökonomie
+_Autor: Uli Gellermann, Datum: 31.7.2023_
+
+
+-----
+
+Der englische Sprachraum kennt die Floskel ‹German Angst›. Ausgerechnet Bundeswirtschaftsminister
+Robert Habeck (Grüne) verwendet diesen Ausdruck jetzt, nachdem der ‹Internationale Währungsfonds›
+(IWF) eine Prognose zur wirtschaftlichen Entwicklung von Deutschland abgesenkt hat. Habeck meint, man
+müsse keine Angst haben: «Die Daten sind natürlich nicht gut», sagte Habeck am Mittwochabend in den
+ARD-‹Tagesthemen›. Sie seien aber kein Grund für ‹German Angst› und erklärbar.
+
+**Vom Wirtschaftskrieg zum heissen Krieg**
+Die Habeck-Erklärung muss vernünftigen Menschen Angst machen: Er nannte als Grund für die deutsche
+Wirtschaftskrise vor allem die ‹Abhängigkeit› von russischem Gas, das jetzt ersetzt und zu höheren Preisen
+auf dem Weltmarkt eingekauft werden müsse. «Das haben andere Regionen so gar nicht gehabt, schon gar
+nicht die USA, aber auch Grossbritannien oder Spanien.» Neben der verschwiemelten Sprach-Akrobatik im
+Baerbock-Stil ist es der brutale Versuch Habecks, die Bürger zu belügen, der Angst machen kann. Denn
+Habeck verschweigt den Wirtschaftskrieg gegen Russland, die Hauptursache für den Niedergang der Deutschen Wirtschaft. Ein Krieg, den eine verantwortungslose Koalition losgetreten hat und der mit jedem weiteren Schritt zu einem echten, heissen Krieg führen kann.
+
+**Lügen-Wort ‹Abhängigkeit›**
+Im Betrugs-Versuch nimmt das Lügen-Wort ‹Abhängigkeit› einen zentralen Platz ein. Das diffamierende
+Wort klingt nach Drogen-Abhängigkeit. Meint aber in Wahrheit nichts anderes als Handel: Deutschland
+kauft russische Rohstoffe und Russland kauft deutsche Industriegüter aller Art. Wer fragt, ob die Russen
+jetzt ‹abhängig› von deutschen Werkzeugmaschinen oder deutschen Autos sind, der ist auf dem richtigen
+Weg zur Entlarvung des grünen Moralgeschwätzes.
+
+**USA – Gewinner des Wirtschaftskriegs gegen Russland**
+Der Präsident des Bundesverbandes der Deutschen Industrie (BDI), Siegfried Russwurm, sieht Deutschlands Geschäftsmodell unter ‹enormen Stress› und hält die ‹Gefahr einer industriellen Abwanderung› für
+‹real›. Es gehe darum, «das Überleben der Industrie in Deutschland und Europa zu sichern». Nicht wenige
+Industrielle wandern in die USA ab. Die Vereinigten Staaten sind die Gewinner des deutschen Wirtschaftskriegs gegen Russland.
+
+**NATO regiert deutsche Wirtschaft**
+Es gibt eine weitere Gewinner-Nation: Heute ist jedes dritte in Russland verkaufte Auto chinesisch. Im Jahr
+2021 waren es nicht einmal 7 Prozent. – Energie ist inzwischen so teuer, dass ganze Branchen auf einmal
+Schwierigkeiten bekommen. BASF hat einen Teil seiner Ammoniakproduktion in Ludwigshafen stillgelegt;
+die damit verbundene Düngerherstellung und noch einige weitere Anlagen. Der Rohstoff für die Ammoniakproduktion war russisches Gas. Andere Unternehmen legen Papierfabriken und Aluminium-Produktionen
+still, weil die Energiekosten in Deutschland zu hoch sind. Und sie sind zu hoch, weil die NATO nicht will,
+dass die Deutschen preiswertes russisches Gas kaufen.
+
+**Nazi-Autarkie**
+Was die grün dominierte Koalition will, ist Autarkie: die nationale Selbstversorgung mit Gütern und Dienstleistungen. Autarkie war die Grundlage des Nazi-Wirtschaftsprogramms. Die Nazis sind damit auf die
+Schnauze gefallen. Und die Habeckisten, wenn man ihnen nicht in den Arm fällt, werden diesem tiefen Fall
+folgen. Wie sich die historischen Fälle gleichen: Auch die Nazi-Ideologie war von der Russen-Angst geprägt.
+Die grünen Wirtschaftstheorien wurzeln in Rudolf Steiners ‹völkischer Revolution› und in Silvio Gesells
+Hauptwerk ‹Die natürliche Wirtschaftsordnung›. Dort unterscheidet der Zinskritiker das Kapital in ‹gutes
+schaffendes› und ‹böses raffendes Kapital›. Wem jetzt nicht die antisemitische Stossrichtung auffällt, an
+dem ist deutsche Geschichte vorbeigegangen.
+
+**Selbstmord auf Raten**
+Es gibt eine Sorte Angst, die dazu dient, Bürger gefügig zu machen; eine Angst, die zur Formierung und
+Anpassung führt. Aber es gibt auch eine produktive Angst, die zu Widerstand führen kann: Die Angst vor
+grüner Ideologie, grüner Kriegsbeteiligung und dem wirtschaftlichen Selbstmord, in den der Wirtschaftskrieg gegen Russland führt. Wer Habeck und Konsorten folgt, der arbeitet am ‹German Suicide›, dem Selbstmord auf Raten durch die Ideologisierung der Ökonomie.
+_Quelle : https://www.rationalgalerie.de/home/german-suicide-und-german-angst_
+
+##### Die Mauer
+_Autor Vera Lengsfeld, Veröffentlicht am 31. Juli 2023_
+_Von Gastautorin Annette Heinisch_
+
+
+-----
+
+Berlin ist immer eine Reise wert. Die Eindrücke, die man dort bekommt, reichen von skurril bis ungewollt
+komisch. In letztere Kategorie fällt ein Zitat, das ich vor ein paar Tagen las. Es stammt von der ein – und
+ehemaligen Bundeskanzlerin Angela Merkel und befindet sich in Metall gegossen beim Aufgang aus der
+Tiefgarage der ‹Mall of Berlin›:
+«Wir haben am 9. November 1989 das Unmögliche als möglich erlebt. Es ist eine wunderbare Erfahrung,
+dass Mauern eingerissen werden können.»
+Angesichts anhaltender Diskussionen in der Politik über Mauerbauverstärkung ist das an Komik kaum zu
+überbieten! Mauern sind ja derzeit wieder total angesagt in Deutschland; die Politik überschlägt sich geradezu in ihrem Ehrgeiz, als fleissiger Maurer in die Geschichte einzugehen. Die heutige Mauer wird allerdings
+rein politisch gebaut, denn so richtig mit Stein und Mörtel kann im Parlament ja kaum einer umgehen. Vielleicht eher mit Hammer und Zirkel, aber auch das ist ungewiss. Ausgegrenzt wird aber nicht die Mauerbaupartei, wie man eigentlich vermuten könnte, im Gegenteil: Die darf sogar gemeinsam mit den anderen die
+Mauer gegen jene Partei bauen, die ursprünglich als Ableger der Union gestartet war, als Alternative zur
+Alternativlosigkeit. Nur wollen die Parteien gar keine Alternative, denn Konkurrenz belebt bekanntlich das
+Geschäft – und das will niemand, stört es doch das angenehme Regieren nach Gutsherrnart gewaltig.
+Also grenzt man sie aus und versucht, sie abzuwürgen. Nun ist es aber so, dass im Osten des Landes die
+von Merkel gemeinte ‹wunderbare Erfahrung› gemacht wurde, dass Mauern eingerissen werden können.
+Dort lässt man sich also nicht so schnell einschüchtern. Hinzu kommen mittlerweile immer mehr Bürger
+im Westen des Landes, die von Merkelianern und Ampelmännchen schlicht die Nase voll haben.
+Politik ist, was unten ankommt. Und unten kommt nichts Gutes an. Ich muss den ganzen Kram jetzt nicht
+noch einmal aufzählen, jedenfalls weichen die Wünsche der Bürger nach einem exzellent funktionierenden
+Gemeinwesen und einer erfolgreichen, prosperierenden Wirtschaft von dem, was uns die Politik bietet,
+erheblich ab – vorsichtig formuliert. Bürgern ist es komplett egal, ob Parteien irgendwelche Mauern gegen
+ihre Konkurrenz hochziehen, dass ist Berliner Polit-Gedudel. Sie wollen, dass an ihrem Ende etwas Gutes
+ankommt und wenn es die einen nicht schaffen, dann sollen es eben die anderen versuchen.
+Der wunderbare Don Alphonso, der so wie die meisten Bürger im normalen Deutschland lebt, also fern der
+selbstreferentiellen polit-medialen Blase, hat die Nutzlosigkeit politischer Mauern auf den Punkt gebracht:
+«In Bayern sagt man, des is a gmahde Wiesn.» Da kommen wir nicht mehr raus, und man hat es ja nun
+wirklich mit allen denkbaren Methoden versucht. Mit Nazivorwürfen, mit dem Verfassungsschutz gegen die
+Memes des Stolzmonats, mit Meldestellen und Multimillionenprogrammen. Man muss ehrlich konzedieren:
+Es klappt nicht. Im Gegenteil, langsam rollt die AfD auch den Westen auf. Wenn die AfD lokal die stärkste
+Partei ist, haben einfach zu viele Menschen die Angst vor ihr verloren, oder, was ich auch häufig höre, sie
+betrachten die AfD als kleinere Gefahr für ihr Leben als die anderen, als totalitär empfundenen Parteien …
+Ich habe meine Zweifel, ob eine von oben geforderte Fundamentalgegnerschaft einen Unschlüssigen dazu
+bringt zu sagen: «Super, die Brandmauern was für mich noch oben drauf. Noch mehr grundsätzliche Differenzen mit den ausgesuchten Sympathieträgern Ruprecht Polenz, Ricarda Lang, Kevin Kühnert und Georg
+Restle als Aufpasser. Die wähle ich.»
+Tatsächlich wird die Regierung zunehmend als totalitär und von einem irren Grössenwahn besessen wahrgenommen. Schlimmer, so denken viele, können die anderen auch nicht sein. Und wenn dann führende
+Politiker so fulminant ihre Verachtung gegenüber den Bürgern kundtun wie kürzlich nach dem Sommerinterview des CDU-Vorsitzenden Friedrich Merz, dann muss man sich nicht wundern, wenn ‹die Bösen›
+plötzlich Zulauf bekommen. Was hatte Merz noch einmal gesagt?
+«Natürlich muss in den Kommunalparlamenten nach Wegen gesucht werden, wie man gemeinsam die
+Stadt, das Land, den Landkreis gestaltet.»
+Klar war das falsch, denn es gibt keine Kommunalparlamente. Die Politik ist lediglich Teil der kommunalen
+Selbstverwaltung, die in Art. 28 Abs. 2 S. 1 GG garantiert ist. Aber das hat niemand bemängelt. Im Gegenteil,
+mancher Politiker, der bereits zuvor als besonderer Merz-Gegner aufgefallen ist, stilisierte die Kommunen
+zur ‹Wiege der Demokratie›. Dann ist es allerdings sehr schade, dass die Bürger bei Kommunalwahlen eher
+zu Hause bleiben.
+Wie die aufgescheuchten Hühner gackerten diejenigen herum, die sich für politisch bedeutsam halten. Auch
+der Söder Markus, dem im Herbst Landtagswahlen ins Haus stehen, konnte sich nicht zurückhalten. «Die
+CSU lehnt jede Zusammenarbeit mit der AfD ab – egal auf welcher politischen Ebene.»
+Das ist nun auch wieder ungewollt komisch, nicht nur wegen der tatsächlichen Zusammenarbeit in vielen
+Kommunen. Wie Don Alphonso sehr anschaulich berichtet, ist es anders auch schwer möglich. Hinzu
+kommt, dass ein solches Verhalten bei den in den Kommunen zu behandelnden Themen ernsthaft übel
+wäre. Worum geht es denn dort?
+Nehmen wir die Schulen: Lehrer und Lehrplan kommen vom Land, für die Schulgebäude und sonstiges
+Personal sind allerdings die Kommunen zuständig. Wenn also die AfD die Sanierung eines baufälligen
+Schulgebäudes vorschlägt, sollen dann die anderen dagegen stimmen? Ernsthaft? Und wie ist es bei Kitas?
+
+
+-----
+
+Wenn die AfD vorschlägt, dass die Feuerwehr einen dringend benötigten neuen Rüstwagen bekommt, wird
+das abgelehnt? Sollen die Bürger lieber verbrennen, Hauptsache, die ‹Brandmauer› steht?
+Liebe Politik, glaubt ihr wirklich, dass ihr so Wählerstimmen bekommt? Ich bin kein Politikwissenschaftler,
+aber ich würde wetten, das klappt nicht. Nie und nimmer. Im Gegenteil, mit jedem dieser politischen Winkelzüge verliert ihr Vertrauen. Und Vertrauen ist die Währung für Wählerstimmen. Es ist ja nicht so, dass das
+Vertrauen in die Politik so grandios und unverrückbar fest wäre, im Gegenteil, in einer Forsa-Umfrage wurden ‹Politiker und Parteien … mit 32 Prozent als wichtigste Probleme genannt›. Vertrauen müsst ihr euch
+erst wieder verdienen. Das ist ein schwerer Weg. Weiter so auf demselben Weg, der euch schon das Vertrauen und in der Folge viele Stimmen kostete, wird euch nicht helfen. «Mehr vom selben» ist ein Rat aus
+Paul Watzlawicks ‹Anleitung zum Unglücklichsein›, es ist schon kurios, wie sehr die deutsche Politik diesen
+(Fehl-)Verhaltensweisen real folgt. Ein gutes Beispiel für angewandte Wissenschaft, zugleich der Grund für
+den Niedergang eines einst erfolgreichen Landes.
+Abgesehen von der Kommunalpolitik dürfte die Methode ‹Mauerbau› auch sonst nicht sonderlich erfolgversprechend sein. Nur mal so bummelig in die Gegend gedacht: Was ist denn, wenn die Bürger denken, der
+Atomausstieg, der sich so absolut fatal für unser Land auswirkt, sei auf das Mauerbauen zurückzuführen?
+Hat die FDP als Regierungspartei diesen nur deshalb nicht verhindert, die Union als Opposition diesen deshalb nicht lauthals angeprangert, weil die AfD für einen Weiterbetrieb der AKW war? Seid ihr alle ernsthaft
+bereit, unser Land zu verschrotten, weil ihr euch als Mauerbauer wohler fühlt? Glaubt ihr wirklich, das
+honorieren die Bürger? Nichts gelernt aus der Geschichte?
+Mauern stehen nicht für ein freies, demokratisches Gemeinwesen, im Gegenteil. Und viele Themen, sogar
+die meisten, sind reine Sachfragen, deren religiös – politische Aufladung unserem Land und seinen Bürgern
+schadet. So werdet ihr keinen Blumentopf gewinnen, geschweige denn Wahlen. Die AfD muss euch nur
+machen lassen. Was dabei wirklich interessant ist: Dass den meisten Parteien das Wohlergehen der Bürger
+und des Landes offenbar völlig egal ist, wird immer klarer; es scheint vielen Politikern nur um das eigene
+Wohlergehen zu gehen. Dass aber deren Selbsterhaltungstrieb so schwach ausgeprägt ist, ist schon überraschend.
+So ist nun tatsächlich der Tag gekommen, an dem ich Frau Merkel zustimmen muss: «Es ist eine wunderbare Erfahrung, dass Mauern eingerissen werden können.»
+_Quelle: https://vera-lengsfeld.de/2023/07/31/die-mauer/#more-7169_
+
+##### Auch die Gaslügen sind Rattengiftpolitik
+_Von Peter Haisenko, JULI 31, 2023_
+
+Wer der Regierung und den Systemmedien glaubt, kann sich entspannt zurücklehnen. Die Gasversorgung
+Deutschlands ist gesichert und wir beziehen kein Gas mehr aus Russland. Die Abhängigkeit von Russland
+ist gebrochen. Nichts davon ist wahr.
+Beginnen wir mit der ersten Grundlüge: Russland, Putin, hat uns den Gashahn zugedreht. Tatsache ist,
+dass die BRD den Erhalt von Gas aus Russland durch Nordstream ablehnt, eingestellt hat. Russland selbst
+bietet nach wie vor an, Gas durch die zweite Röhre von Nordstream II zu liefern, die unbeschädigt geblieben
+ist. Aber diese Verdrehung der Tatsachen ist nur ein Teil der Lüge. Deutschland, Europa, bezieht nach wie
+vor Gas aus Russland, und zwar durch die Ukraine und das in erheblichen Mengen. Wiederum ist Tatsache,
+dass die EU im Jahr 2023 bis jetzt der grösste Abnehmer für russisches Gas ist und damit sogar weit vor
+China liegt. Russland hat also bis jetzt, und bei dem ‹jetzt› kann sich ein Problem ergeben, Gas an Deutschland geliefert und sogar an die Ukraine.
+Dasselbe gilt auch für russisches Öl, das über diverse Kanäle nach Deutschland, nach Europa kommt. So
+befinden wir uns in einer doppelten Abhängigkeit. Sowohl Russland als auch die Ukraine können den Gashahn zudrehen. Wenn das geschieht, dann haben wir ein ernsthaftes Problem und da helfen auch gefüllte
+Gasspeicher nur wenig. Der nächste Winter kommt ja auch noch … Zudem ist unklar, wie sich die Preise
+für Flüssiggas entwickeln werden, wenn da ein Mangel und ein Monopol entstehen. Den wenigsten ist bewusst, was eine Gasmangellage wirklich bedeutet.
+
+**Ohne Strom steht alles still**
+Wenn Strom bei einer Mangellage abschnittsweise abgeschaltet werden muss, ist das zwar unangenehm,
+aber beherrschbar. Natürlich ist das Wiederanfahren nicht einfach, denn tausende von Thermostaten, zum
+Beispiel an Kühlschränken, Wärmepumpen oder Heizanlagen, haben auf ‹Ein› geschaltet und das gibt dann
+eine Verbrauchsspitze, sobald der Strom wieder zugeschaltet wird. Beim Gas sieht das ganz anders aus.
+Fehlt der Druck, werden alle Pilotflammen gelöscht. Man kennt das bei Gasherden, die nach dem Zünden
+erst gehalten werden müssen, bis der Thermofühler die Kochstelle freigibt. Will man also eine Gastherme
+wieder in Betrieb nehmen, muss zuerst die Pilotflamme gezündet werden. Moderne Anlagen können das
+
+
+-----
+
+manchmal automatisch, aber wenn gerade kein Strom da ist, geht das nicht. Gasthermen können ohne
+Strom sowieso nicht arbeiten.
+Vergessen wir nicht, dass Verbrauchsspitzen beim Strom mit Gaskraftwerken abgefedert werden. Und wenn
+dann zu wenig Gas zur Verfügung steht? Dann beginnt die Not- und Mangelwirtschaft. Über den Stillstand
+von Industrien will man da gar nicht nachdenken. Ebenso wenig darüber, dass es Industrieanlagen gibt, die
+nicht erkalten dürfen, weil dann aus einem Topf mit flüssigem Eisen ein solider Eisenblock wird, den man
+kaum noch schmelzen kann. Die Anlage ist kaputt. So muss man erkennen, wenn das Gas ausgeht, dann
+gute Nacht für Deutschland. Im wahrsten Sinn des Wortes. Stellen Sie sich doch einfach mal vor, wie es
+wäre, einen, gar zwei oder drei Abende ohne Strom, also ohne Fernsehen, Computer und natürlich auch
+ohne Unterhaltung von DVD’s zu verbringen. Haben Sie schon mal versucht, nur bei Kerzenlicht zu lesen?
+Und das dann, im Winter, bei ausgefallener Heizung? Und nein, nicht einmal ein warmes Bad wäre möglich,
+das ja sonst bei Kerzenlicht ganz romantisch sein könnte. Und was geschieht mit dem Inhalt von Kühl- und
+Gefrierschränken?
+
+**Günstige Energie ist Wohlstand**
+Energie ist die Lebensgrundlage für moderne Gesellschaften und Wohlstand. Genau deswegen wurden
+langfristige Verträge abgeschlossen mit Russland. Russland hat sich immer an Verträge gehalten und tut
+das auch bis jetzt. Es ist die Bundesregierung, die den Gasvertrag mit Russland nicht einhält. Den mit der
+Ukraine schon, denn die Einnahmen für die Durchleitung dürfen Kiew ja nicht genommen werden. Diese
+perverse Vorgehensweise hat uns aber tatsächlich über den letzten Winter gerettet und ermöglicht, die Gasspeicher zu füllen. Aber was wird sein, wenn dem Kreml, Putin, der Geduldsfaden reisst?
+So, wie sich die Regierung in Berlin gegenüber Russland verhält, bettelt sie geradezu darum, dass der Energiefluss aus Russland abgeschnitten wird. Nicht nur das. Deutschland befindet sich im Zustand des Waffenstillstands mit Russland. Mit USA, Frankreich, England und einem weiteren Dutzend ebenso. Mit dem, was
+die BRD für die Ukraine tut, hat Deutschland schon den Waffenstillstand gebrochen. Russland hat folglich
+jedes Recht, alle Energielieferungen nach Deutschland einzustellen. Das ist aber – noch – nicht geschehen.
+Tatsächlich ist es so, dass Russland, wenn es den Waffenstillstand für beendet erklärt, wir uns also wieder
+im Kriegszustand befinden, gar keine Truppen nach Deutschland schicken muss, um Deutschland zur erneuten Kapitulation zu zwingen. Es reicht aus, den Gashahn zuzudrehen. Auch den für die Ukraine. Und
+natürlich zum Beispiel Indien zu verbieten, russisches Öl nach Deutschland weiterzuverkaufen. Auch dazu
+hat Russland jedes Recht.
+
+**Ohne Russland gehen die Lichter aus**
+Wir sehen also, Russland sitzt am längeren Hebel. Nicht nur gegenüber Deutschland. Ganz Europa ist abhängig von Russland. Da habe ich die Kernbrennstäbe aus Russland für Atomkraftwerke noch nicht erwähnt, die nicht nur Frankreich benötigt. Jede Behauptung, die Gas- und Energieversorgung für Deutschland sei gesichert, ist eine infame Lüge. Eine gefährliche Lüge, die wohl nur einem Zweck dient: Einen sofortigen Aufstand gegen die Russlandpolitik zu unterdrücken. Oder ist es noch schlimmer? Hat Selensky
+gar von sich aus gedroht, den Gasfluss durch die Ukraine abzudrehen, wenn Deutschland nicht pariert?
+Nordstream II in Betrieb zu nehmen, ist uns ja von Washington verboten.
+So hat die Russlandpolitik in keiner Weise irgendeine Abhängigkeit reduziert. Im Gegenteil hat sich Berlin
+von einem zuverlässigen Partner abgewendet, um sich jetzt mit einer unkalkulierbaren Menge an neuen
+Abhängigkeiten in eine Situation zu bringen, die die Energieversorgung zu einem unsicheren Tagesgeschäft
+macht. Aber das ist ein Zustand, den eine Industrienation nicht überleben kann. So wird mit der Gaslüge
+die Rattengiftpolitik fortgesetzt. Rattengiftpolitik heisst, dass Gesetze gemacht werden, die erst in einigen
+Jahren ihre fatale Wirkung entfalten. So, wie man Ratten nur Gift geben kann, das erst nach einigen Tagen
+tödlich wirkt. Auf diese Weise können Ratten nicht mehr erkennen, was zum Tod geführt hat und sie fressen
+die tödlichen Köder weiter. Ein aktuelles Beispiel dafür ist das Verbrennerverbot. Es soll erst 2035 in Kraft
+treten. Wer wird da schon heute dagegen auf die Strasse gehen? Ist ja noch lange hin...
+
+**Rattengiftpolitik auf allen Ebenen**
+Die Gaslüge selbst ist da noch schlimmer. Habeck & Co lügen uns glatt an mit der Behauptung, die Gasversorgung sei sicher. So lehnen sich die denkfaulen Bürger entspannt zurück, anstatt eine sichere Energieversorgung zu fordern. Oben drauf kommt noch die Wasserstofflüge, die im Übrigen auch Rattengiftpolitik ist.
+Man verspricht etwas, das erst in unabsehbarer Zeit verwirklicht werden soll. Die Wahrheit dazu ist aber,
+dass die Energieversorgung mit Wasserstoff unmöglich ist. Jedenfalls nach dem Stand der Technik. Nicht
+einmal die bestehenden Gasleitungen können für den Transport von Wasserstoff genutzt werden. Wasserstoffgas ist zu flüchtig und wird durch die alten Leitungen einfach entweichen. Über den unmöglichen
+Transport von Wasserstoff haben wir schon ausführlich berichtet:
+_https://www.anderweltonline.com/klartext/klartext-20222/der-wasserstoff-aus-der-wueste-technisches-wissen-anstelle-_
+_von-wunderglauben/_
+
+
+-----
+
+Die deutsche Regierung ist Teil des Imperiums der Lügen. Was wird aber geschehen, wenn im nächsten
+Winter wenigstens die Gaslüge auffliegt? Dann ist es zu spät, den Schaden zu reparieren. Oder wird man
+einen Kniefall vor dem Kreml machen und um Gas durch Nordstream II bitten müssen, weil die Menschen
+auf der Strasse sind? Vergessen wir nicht, auch die Covid-Spritzen sind Rattengift. Die Schäden dadurch
+kommen auch verzögert und werden jetzt als Hitzetote deklariert. Derweil flutet die Ampel das Land mit
+Schuldgeld, das auch irgendwann bezahlt werden muss. Ist das auch Rattengiftpolitik? Deutschland braucht
+einen kompletten Neuanfang. Die Frage dazu ist nur, ob das ohne eine vorübergehende Militärregierung
+möglich sein wird, um das unausweichliche Chaos überleben zu können. Dieser Möglichkeit sehe ich aber
+gelassen entgegen, denn dilettantischer als jetzt kann unser Land nicht ‹regiert› werden und es wird das
+Ende aller Lügen sein.
+
+_Quelle: https://www.anderweltonline.com/klartext/klartext-20232/auch-die-gasluegen-sind-rattengiftpolitik/_
+
+##### Amerikas grausame Kriegspolitik in der Ukraine
+_Ted Snider_
+
+###### In den ersten Tagen war der Krieg in der Ukraine noch nicht zu dem  gefährlichen NATO-Russland-Albtraum eskaliert, der er heute ist.
+Das Ausmass an Tod und Zerstörung war noch nicht absehbar. Obwohl «in den Nachrichten immer wieder
+behauptet wird, dass Putin Zivilisten ins Visier nimmt», so ein leitender Analyst der Defense Intelligence
+Agency im März 2022, «gibt es keine Beweise dafür, dass Russland dies absichtlich tut.» Der Analyst sagte,
+dass «fast alle Langstreckenangriffe auf militärische Ziele gerichtet waren». Ein pensionierter Luftwaffenoffizier, der bei einem «grossen militärischen Auftragnehmer, der das Pentagon berät», arbeitet, fügte hinzu,
+dass «das russische Militär bei seinen Langstreckenangriffen tatsächlich Zurückhaltung übt». Diese Quellen
+sagten Newsweek, dass Russland nicht wahllos bombardiere und dass die USA am ersten Tag im Irak 2003
+mehr Raketen abgeworfen hätten als Russland in den ersten 24 Tagen in der Ukraine. Bei der Beobachtung
+der US-Bombardierung des Irak, einschliesslich des Einsatzes von abgereichertem Uran und weissem Phosphor, «waren britische Offiziere entsetzt über die mangelnde Rücksichtnahme auf zivile Opfer». Stattdessen
+«findet die überwiegende Mehrheit der [russischen] Luftangriffe über dem Schlachtfeld statt, wobei russische Flugzeuge die Bodentruppen aus der Nähe unterstützen». Der Rest – nach Angaben von US-Experten
+weniger als 20 Prozent – richtet sich gegen Militärflugplätze, Kasernen und Versorgungsdepots». Der DIAAnalyst kam zu dem Schluss, dass «das die Fakten zeigen. Dies legt zumindest für mich nahe, dass Putin
+nicht absichtlich Zivilisten angreift.»
+Noch in diesem Stadium hätte der Krieg gestoppt werden können. Am 27. Februar, nur drei Tage nach Beginn des Krieges, erklärten sich Russland und die Ukraine zu Gesprächen in Belarus bereit. Bei diesen und
+den folgenden Gesprächen in den nächsten Wochen, einschliesslich der vielversprechendsten Gespräche
+in Istanbul, waren die Ukraine und Russland bereit, den Krieg zu Bedingungen zu beenden, die ihren beiden
+Zielen entsprachen.
+Doch die USA verhinderten die Beendigung des Krieges, bevor die Verwüstungen begannen, weil die Gespräche ihre Ziele nicht erfüllten. Man solle ‹nicht mit Putin verhandeln›, sagten die USA und das Vereinigte
+
+
+-----
+
+Königreich dem ukrainischen Präsidenten Wolodymyr Selensky, und selbst wenn die Ukraine bereit sei,
+einige Abkommen mit Russland zu unterzeichnen, ‹der Westen war es nicht›. Die USA ‹blockierten› das
+ausgehandelte Ende des Krieges, weil sie ‹wollen, dass der Krieg weitergeht›, da die Erfüllung der Ziele der
+Ukraine nicht ausreiche. «Dies ist ein Krieg», erklärte das US-Aussenministerium, «der in vielerlei Hinsicht
+grösser ist als Russland, er ist grösser als die Ukraine.»
+Aus dem Drei-Tage-Krieg wurde ein anderthalb Jahre dauernder Krieg, der zu dem gefährlichen und verheerenden Krieg eskalierte, der er heute ist, weil die USA der Ukraine verboten, ihn zu Bedingungen zu beenden, die sie zufriedenstellten, und sie unter Druck setzten, weiter gegen Russland zu kämpfen, um amerikanische Ziele zu verfolgen. Von diesem Zeitpunkt an trugen die USA die Mitverantwortung für die wahrscheinlich hunderttausenden ukrainischen Toten, die Zerstörung der Infrastruktur und den Verlust von
+Land.
+Aber weder die amerikanischen noch die ukrainischen Ziele sind erreicht worden. Der Krieg läuft für die
+Ukraine sehr schlecht, und keine noch so grosse US-Hilfe scheint das Schlachtfeld zu verändern. Wenn sich
+das Blatt nicht noch wendet, kämpft die Ukraine weiter, nur um zu einem unvermeidlichen Verhandlungsergebnis zu gelangen, das tragischerweise schlechter sein wird als das, das sie in Belarus und Istanbul ausgehandelt hat.
+Diese Wendung des Schicksals hängt von der bisher selbstmörderischen Gegenoffensive ab. Seit dem 5.
+Juni wirft die Ukraine ihre von der NATO ausgebildeten Truppen und ihre von der NATO gelieferten Panzer
+gegen die russischen Verteidigungslinien. Nach Angaben des russischen Präsidenten Wladimir Putin hat
+die Ukraine in diesen fast zwei Monaten mehr als 26’000 Tote zu beklagen. Ausserdem hat die Ukraine in
+den ersten Wochen der Gegenoffensive mindestens 20% ihrer von der NATO gelieferten Panzer und gepanzerten Fahrzeuge verloren, was ‹erschreckend› ist.
+Noch schlimmer ist, dass die USA die Ukraine ermutigt haben, die Gegenoffensive zu starten und öffentlich
+ihre ‹sehr guten Erfolgsaussichten› verkündeten, obwohl sie insgeheim wussten, dass die Ukraine schlecht
+vorbereitet war. Das ‹Wall Street Journal› berichtet: «Als die Ukraine in diesem Frühjahr ihre grosse Gegenoffensive startete, wussten westliche Militärs, dass Kiew weder über die nötige Ausbildung noch über die
+Waffen – von Granaten bis hin zu Kampfflugzeugen – verfügte, um die russischen Streitkräfte zu vertreiben.»
+Unglaublicherweise waren die Militärs bereit, auf ‹ukrainischen Mut und Einfallsreichtum› zu zählen.
+Aber all der ‹Mut und Einfallsreichtum› wird immer noch durch den Mangel an Ausbildung, Waffen und
+Truppen aufgewogen. Die ‹New York Times› berichtete am 26. Juli, dass die Ukraine mit dem ‹Hauptstoss›
+ihrer Gegenoffensive begonnen hat und Tausende von Verstärkungen in den Kampf schickt, «von denen
+viele vom Westen ausgebildet und ausgerüstet wurden».
+Obwohl es schwierig ist, den Überblick darüber zu behalten, um welchen Angriff es sich handelt, gab es in
+den letzten Tagen Berichte über massive ukrainische Verluste. Die Times verortet den ‹Hauptstoss› südlich
+von Orikhiv und weiter südlich bei Robotyne. Ein versuchter ukrainischer Vorstoss von Nowosanyliwka nach
+Süden in Richtung Robotyne und Tokmak wurde zu dem, was ein Analyst als «möglicherweise das schlimmste Unglück für die Ukraine seit Beginn der Offensive» bezeichnete. In einem anderen Bericht, der sich auf
+einen Angriffsversuch in Richtung Rabotino-Orekhov bezieht, an dem Leopard-Panzer und Bradley-Panzer
+beteiligt waren, heisst es, dass die russischen Streitkräfte den Versuch mit ‹schrecklichen› Verlusten für die
+ukrainischen Streitkräfte ‹zurückgeschlagen› haben. Es wird berichtet, dass mehrere Leopards und Bradleys
+zerstört wurden. Der belarussische Präsident Alexander Lukaschenko erklärte, dass an einem Tag fünfzehn
+deutsche Leopard-Panzer und zwanzig gepanzerte US-Bradley-Fahrzeuge zerstört wurden. Er sagte auch,
+dass mehr als 200 weitere ukrainische Soldaten ‹verloren› worden seien.
+Am 27. Juli, als der ‹Hauptstoss› fortgesetzt wurde, behauptete Putin, dass die Ukraine in den letzten 24
+Stunden «eine grosse Menge an schwerem Gerät eingesetzt hat, etwa 50 Stück. Etwa 39 davon, nämlich
+26 Panzer und 13 gepanzerte Fahrzeuge, wurden zerstört».
+Die USA drängten die Ukraine, bevor der Krieg zu der Verwüstung eskalierte, die er jetzt darstellt, weiter für
+die Ziele der USA zu kämpfen, obwohl die ukrainischen Ziele erfüllt waren und der Krieg hätte beendet
+werden können. Das hat zum Verlust von Menschenleben, zum Verlust von Land und zur Zerstörung der
+Infrastruktur geführt. Die USA ermutigten dann eine ukrainische Gegenoffensive, obwohl sie wussten, dass
+die ukrainischen Streitkräfte «nicht über die Ausbildung oder die Waffen …, die sie brauchten, um die
+russischen Streitkräfte zu vertreiben». Das hat zu schrecklichen Verlusten an zusätzlichen Menschenleben
+geführt. Die Vereinigten Staaten von Amerika haben in Verfolgung ihrer eigenen Ziele eine eigennützige
+Politik verfolgt, die gegenüber dem ukrainischen Volk gefühllos und grausam war.
+_erschienen am 31. Juli 2023 auf> Antiwar.com_
+_Quelle: https://antikrieg.com/aktuell/2023_07_31_amerikas.htm_
+
+##### Wann wird Deutschland endlich Amerika den Krieg erklären?
+_Von Hans-Jürgen Geese, JULI 29, 2023_
+
+
+-----
+
+Das Ende des Kalten Krieges geschah nicht per Zufall. Und auch die dann erfolgende dramatische Verarmung Russlands, Anfang der 90er Jahre, geschah nicht per Zufall. Das war alles genau so geplant. Wir wissen das von zwei der wichtigsten Zeitzeugen, die an dem Geschehen entscheidend mitgewirkt hatten.
+Im Jahr 1982 bat Präsident Ronald Reagan den Ingenieur und Strategen Thomas C. Reed, ein wahrlich
+brillanter Kopf, zu einem Gespräch ins Weisse Haus. Reagans Herausforderung an Reed: «Ich will den Kalten
+Krieg zu einem Ende bringen. Wie macht man das?»
+
+Wenn Sie ein Problem lösen wollen, mussen Sie erst einmal die richtigen Fragen stellen und dann ein wenig ̈
+recherchieren. Reed stellte fest, dass die wichtigsten Annahmen der sogenannten ‹Experten› nicht stimmten. Man ging damals zum Beispiel davon aus, dass die Sowjetunion etwa 17% des Bruttosozialproduktes
+für Rüstung ausgab. Es stellte sich heraus, dass diese Zahl bei etwa 50% lag.
+Ohne hier auf die Einzelheiten einzugehen: Der Plan wurde gefasst, die Sowjetunion wirtschaftlich niederzuringen. Keine Kredite wurden mehr vergeben. Selbst die Lebensmittellieferungen mussten die Russen jetzt
+in bar bezahlen. Und die Amerikaner ihrerseits starteten ein gigantisches Rüstungsprogramm, dass in dem
+‹Star Wars›-Wahnsinn gipfelte.
+Schon damals verdiente die Sowjetunion ihre Devisen mit dem Export von Rohstoffen. Die Amerikaner wollten diese Einnahmequelle zum Austrocknen bringen. Also sprengten sie die Yamal Gasröhren in Sibirien
+im Jahre 1982. Auf Befehl Reagans. Sie taten das nicht direkt wie im Jahre 2022, sondern indirekt. Sie hatten den Russen Mikrochips verkauft, die entsprechend programmiert waren. Woher wir das wissen? Thomas
+Reed hat das alles im Detail in späteren Jahren ausgeführt: Transfer von Technologie, die eingebaute Fehlfunktionen enthielt. Genehmigt von Ronald Reagan persönlich. Nordstream war also nicht die erste Pipeline
+der Russen, die die Amerikaner zerstörten. Ohne es damals allerdings allzu offensichtlich zu machen. Man
+nennt das verdeckte Kriegsführung.
+
+**Verdeckte Kriegsführung**
+Verdeckte Kriegsführung bedeutet auch, dass diese Art von Verhalten dem öffentlichen Auftreten widerspricht. Und genau so war das damals, Anfang der 90er Jahre, als der Kalte Krieg zu Ende war und alle
+Welt das Ausbrechen des ewigen Friedens erwartete. Aber in Wirklichkeit waren die Amerikaner noch nicht
+am Ende mit ihrem Krieg.
+Einer der klügsten Köpfe unserer Zeit, der Amerikaner Jeffrey Sachs, erklärte das letzte Woche in einem
+Interview mit ‹The Duran›. Jeffrey Sachs war damals der Wirtschaftsberater in einer Reihe von osteuropäischen Ländern. Berühmt geworden durch seine Rettung der polnischen Wirtschaft machte er sich voller
+Hoffnung auf den Weg nach Moskau, um Jelzin und den Russen in der gleichen Art zu helfen. Aber wie
+Sachs erläuterte: «Ich erhielt alle Hilfe von Washington, die ich brauchte, um Polen auf den rechten Weg zu
+bringen. Geld war kein Problem. Aber als es um Russland ging wurde mir von Washington gesagt: Keinen
+Pfennig. Ich verstand damals nicht, warum sich Amerika so verhielt.»
+Wir wissen das heute natürlich. Der Krieg gegen Russland war in der Tat noch nicht zu Ende. Der Krieg gegen Russland ging nie zu Ende. Und wird auch momentan vehement weitergeführt. Wladimir Putin, der Segen Russlands, man muss das so sagen, Wladimir Putin durchschaute die amerikanischen Machenschaften
+in letzter Sekunde. Bevor Amerika Russland übernahm. Und dann fasste Putin eine historische Entscheidung: Er erklärte den Vereinigten Staaten von Amerika den Krieg. Nicht öffentlich. Er posaunte das nicht in
+die Welt hinaus. Und er versuchte auch weiterhin, sich mit dem Westen zu arrangieren, bot die Hand zur
+Freundschaft. Aber er war und ist Realist genug, um den Mechanismus der Macht und Gier im Kapitalismus
+zu durchschauen. Und er weiss, dass diese Komiker im Westen, die wir Politiker nennen, dass die allesamt
+nur Marionetten sind.
+Putin rief die Elite seiner Generäle zusammen, traf die entsprechenden Entscheidungen und rüstete für den
+Krieg. Nicht für den alten Krieg, sondern für eine neue Art von Krieg, dem der Westen nichts würde entgegenzusetzen haben. Der Westen enttäuschte nicht. In ihrer geistigen Beschränktheit, in ihrer überzogenen
+Arroganz, hielten sich die Militärexperten und die politischen Falken in Washington für unbesiegbar. Und
+daher schickte diese Mafia aus Washington siegessicher ihre Häscher nach Kiew. Es kam wie es kommen
+musste.
+
+**Der Ukraine Konflikt**
+So wie Thomas Reed und seine Kollegen damals das Geschehen diktierten, so diktieren heute die Russen
+das Geschehen. Natürlich nicht per Zufall. Russen sind Genies in der Welt des Schachspieles. Strategisches
+Denken saugen die quasi mit der Muttermilch auf. Das Ergebnis: Wie die Amerikaner und Europäer inzwischen zu ihrem Erstaunen feststellen müssen, obwohl die Russen das nicht offen aussprechen: ‹Schachmatt!›
+In einfachen Worten beschrieben lautet die neue Art der Kriegsführung folgendermassen: Totale Transparenz und totale Dominanz des Schlachtfeldes. Verstecken fast unmöglich. Integration aller Waffensysteme,
+die eine unwiderstehliche Feuerkraft auf den Gegner entfesseln. Dazu kommen noch neue Generationen
+
+
+-----
+
+von Drohnen, die in einer bisher unvorstellbaren Zahl über den Gegner herfallen. Die Russen stellen mittlerweile über eine Million von diesen Drohnen pro Jahr her und bauen die Produktion weiter aus. Stellen Sie
+sich einmal einen Angriff von hunderten oder tausenden von diesen Kamikazedrohnen vor.
+Die wichtigste Voraussetzung dieser Art von Kriegsführung ist eine geradezu gigantische Produktion von
+Munition. Wie wir inzwischen alle wissen: Die Russen haben Munition. Wie wir inzwischen alle wissen: Der
+Westen hat fast keine Munition mehr. Sie könnten jetzt fragen: Wie konnte der Westen, wie konnte die NATO
+so bescheuert sein, auf diese Art von Herausforderung Russlands keine Antwort zu haben? Sie haben recht.
+Was sich bei uns als Führungspersonal ausgibt sind nicht nur moralisch versaute Menschen, die sind auch
+noch im höchsten Grad inkompetent. Hinzu kommt, dass die Rüstungsindustrie im Westen von privaten
+Interessen geleitet wird. Es geht um Geld. Es geht eigentlich nur um Geld. Es würde schon heute mindestens
+5 bis 10 Jahre dauern, um mit den Russen gleichzuziehen. Und dann haben die Russen noch den Vorteil
+der Erfahrung von Krieg. Und bevor Sie mich fragen: Nein, die netten Damen und Herren der Bundeswehr
+hätten der russischen Armee nichts entgegenzusetzen.
+Wenn die Russen wollten, würden die Ihnen demnächst in Berlin einen Besuch abstatten. Wer wollte die
+aufhalten? Die NATO, die bisher immer gegen Barfussindianer gekämpft hat, musste feststellen, dass sie
+nicht mehr ist als ein Papiertiger. Ein bürokratischer Saftladen von historischer Dimension. Was denen allerdings noch immer nicht aufgegangen ist. Die brüsten sich mit Waffen, die allesamt obsolet, überholt sind.
+Aber keine Angst, warum sollte Russland seine Soldaten nach Polen oder Deutschland schicken? Die wollen
+lediglich schlicht und einfach in Ruhe gelassen werden. Wer will sich mit der Mafia abgeben?
+
+**Nordstream**
+Das Problem in Deutschland ist, dass wir keinen Wladimir Putin und keinen Sergei Wiktorowitsch Lawrow
+haben. Wir haben Olaf und Annalena, die Statthalter in Deutschland des amerikanischen Besatzers, der
+wiederum heuer von den Halbtoten Joe Biden und Antony Blinken repräsentiert wird. Manche Experten
+sprechen vorsichtig von einer Krise des Westens. Was meinen Sie?
+Diese Jammerlappen von Politikern im Westen, vor allem in Deutschland, sind nicht einmal in der Lage, die
+Probleme schlicht und einfach und ehrlich beim Namen zu nennen. Nordstream ist natürlich das augenscheinlichste Beispiel.
+Da hat doch jemand tatsächlich den Russen und Deutschen deren wichtigstes Infrastrukturprojekt zerstört.
+Es handelt sich wohl um den grössten Sabotageakt in der Geschichte. Und niemand scheint sich so richtig
+darüber aufzuregen. Und niemand scheint so richtig wissen zu wollen, wer das denn wohl angestellt hat?
+Nun, in Deutschland mag das noch immer nicht so richtig klar zu sein, aber für den Rest der Welt ist das
+sonnenklar: Die Amis waren das. Die Amis! Wer denn sonst? Cui bono? Wer hat den Nutzen daraus? Und
+wer hat denn die Absicht und dann die Freude über die Tat in die Welt hinausposaunt? Und wer hat diese
+tollen akustischen Sensoren in der Ostsee installiert mit denen man jeden Furz unter Wasser identifizieren
+kann? Und wer, wer hat all diese Wundersatelliten und weiss daher von jedem Schiffchen, das da auf den
+Wellen schwappt? Na?
+Die Frage ist also nicht: Wer war es? Die Frage und Herausforderung der Amerikaner und der deutschen
+Bundesregierung war und ist: Wie können wir diese Schweinerei vertuschen? Und daran wird momentan
+eifrig gearbeitet.
+
+**Die Bundesregierung verweigert die Arbeit**
+Es ist schon hochgradig peinlich was da in Deutschland abläuft. Da hat jemand der deutschen Wirtschaft
+die Grundlage ihrer Existenz zerstört und die Bundesregierung will damit aber auch wirklich so wenig wie
+möglich zu tun haben.
+Die Haltung der Bundesregierung bei Anfragen: Muss das wirklich sein? Müssen wir das wirklich wissen?
+Und dann die unangenehmen Konsequenzen! Mein Gott! Wenn der Scholz sich das durch den Kopf gehen
+lässt (eine allerdings zweifelhafte Annahme), dann wird er mit einer Schlussfolgerung konfrontiert, vor der
+er schockartig, geradezu wie im Reflex, zurückschreckt. Denn wenn die Amerikaner das gewesen sein sollten, selbst wenn es nur die Ukrainer gewesen sein sollten, was, was mache ich dann? Denn ich bin doch
+der deutsche Bundeskanzler.
+Was meinen Sie, was in so einer Situation unter Bismarck geschehen wäre? Oder unter Kaiser Wilhelm
+Zwo? Oder unter, na Sie wissen schon? Oder, um es harmloser auszudrücken: Was hätten die Amerikaner
+gemacht, wenn denen die Deutschen die Existenz unterm Arsch weggebombt hätten? Na?
+Unser grinsender Bundeskanzler, das Männlein im Walde, singt: «Ein Männlein steht im Walde ganz still
+und stumm …» Das Männlein im Walde hat eigentlich nur zwei Möglichkeiten: Entweder Scholz erklärt seinen Rücktritt und kümmert sich um seine Memoiren oder aber er erklärt den Vereinigten Staaten von Amerika den Krieg. Mir fällt keine weitere Alternative ein. Fällt Ihnen noch was ein?
+
+**Wie erklärt man den Vereinigten Staaten von Amerika den Krieg?**
+
+
+-----
+
+Es ist wirklich nicht kompliziert, sobald man die erste Hürde überwunden hat. Die erste Hürde lautet: Die
+Kriegserklärung unter keinen Umständen an die Armleuchter Biden oder Blinken zu schicken. Sondern an
+den neuen amerikanischen Präsidenten. Denn die wählen ja demnächst in Amerika. Und der Biden wird
+auf keinen Fall der nächste Präsident sein. Wer dann?
+Da fand doch tatsächlich letzte Woche in dem schönen Florida eine Veranstaltung statt (Family Leadership
+Summit), auf der die republikanischen Kandidaten von dem besten Journalisten in Amerika interviewt, man
+könnte auch sagen, gegrillt wurden. Das so etwas überhaupt noch im Jahre 2023 möglich ist! Es ist. Allerdings nahm Donald Trump nicht teil, weil er meilenweit in Führung liegt. Aber auch ohne Trump war es
+eine faszinierende Veranstaltung von 5 Stunden.
+7000 Menschen im Saal und fast 100 Millionen Zuschauer ausserhalb erlebten Demokratie so wie sie sein
+sollte. Es ging um Wahrheit. Knallhart. Am Ende war wohl fast allen klar, dass der klare Sieger des Abends
+ein Mann mit Namen Vivek Ramaswamy war. Den Namen müssen Sie sich merken. Erschreckend geradezu
+das jämmerliche Niveau der anderen Kandidaten, abgesehen noch von Ron De Santis, dem Gouverneur
+von Florida. Aber wenn Trump im November 2024 noch am Leben sein sollte, dann wird er wohl der Kandidat der Republikaner sein.
+Da bei den Demokraten Uncle Joe ausfallen wird verbleibt eigentlich nur noch ein Überraschungskandidat,
+der sich noch nicht gemeldet hat, oder Robert F. Kennedy Junior. Wenn Robert F. Kennedy Junior im
+November 2024 noch am Leben sein sollte, dann wird er wohl der Kandidat der Demokraten sein.
+Nachdem wir das geklärt haben ist der Rest für Olaf ganz einfach: Olaf, Junge, schreib einen Brief an Trump
+und einen an Kennedy und sieh zu, dass Kopien davon in die Medien gelangen. Der Brief enthält die Kriegserklärung.
+
+**Was muss in der Kriegserklärung stehen?**
+Nun, erst einmal natürlich die Beweislage. Das sollte mittlerweile kein Problem sein. Selbst ehemalige Geheimdienstleute der USA würden da gerne Hilfestellung leisten. Warum? Weil es hier nicht nur um Deutschland geht. Das ganze System der angeblichen westlichen Demokratie ist ein einziger Scheisshaufen. Es
+stinkt zum Himmel. Die Amerikaner wollen das System loswerden. Die werden in Dankbarkeit die Kriegserklärung annehmen. Sie werden sagen: Endlich sagt mal jemand die Wahrheit. Es wird der Anstoss sein, diesen Augiasstall auszumisten.
+Dann geht es natürlich um den Schaden und den daraus folgenden Schadensersatz. Ich schlage vor, eine
+Summe von 200 Billionen zu nennen. Das ist konservativ geschätzt. Denn was ist die Zerstörung eines Landes wie Deutschland wert? Und dann müssen die natürlich die Pipeline reparieren. Und sich entschuldigen.
+Ich bin sicher, Olaf wird die Anschrift von Trump und Kennedy googeln können. Der Trump wohnt im Trump
+Tower. Das ist also schon mal ganz einfach. Noch irgendwelche andere dumme Ausreden? Olaf, Junge?
+Keine? Na, dann mal los!
+
+**Der internationale Gerichtshof**
+Ich sehe vor meinem geistigen Auge schon die Schweissperlen bei unserem Olaf hervorquellen. Er wird sich
+zitternd fragen: Darf ich das wirklich? Sollte ich das tun? Wird das gut für mich ausgehen?
+Gute Fragen? Antwort: Nein! Der entscheidende Punkt ist, dass es völlig belanglos ist, ob diese Heldentat
+für unseren Olaf gut oder böse ausgehen wird. Es geht nicht um ihn. Man wird angeblich nicht Bundeskanzler, um es sich gut gehen zu lassen. Das müsste doch irgendwo in seiner Arbeitsplatzbeschreibung stehen.
+Und Held wird man meist auch nur wenn man tot ist. Wir werden Dir eine grandiose Beerdigung organisieren, Olaf. Du wirst ein richtiger Held sein. Ein Held!
+Aber sollte unser grinsender Bundeskanzler wirklich überfordert sein, dann gibt es noch einen Weg, der
+nun wirklich einfach zu beschreiten ist: Anklage gegen Unbekannt beim internationalen Gerichtshof. Und
+dann wieder die 200 Billionen nennen. Und nicht vergessen Olaf: Natürlich Kopien nach Washington und
+Kopien an die Medien schicken. Damit Deine Vorgesetzten und die Deutschen auf dem Laufenden sind.
+Sollte der Herr Bundeskanzler zu all diesen Taten nicht in der Lage sein, also zu nichts, wovon schwer auszugehen ist, denn da steckt nun mal einfach nicht viel an Substanz in dem Kerl, dann fällt es quasi automatisch der Opposition zu, für den armen Olaf da einzuspringen. Also müsste die AfD ran. Wer denn sonst?
+
+**Die AfD in der Stunde der Not**
+Es gibt einen Zyklus des Denkens in der jeweiligen Zeit. Diese Zyklen sind sehr mächtig. Um aus solch
+einem Zyklus herauszukommen, bedarf es einer wirklich schlagkräftigen Botschaft. Und es braucht Mut.
+Die Parteien der Macht werden aus verständlichen Gründen kein Interesse daran haben, den aktuellen Zyklus zu brechen, denn sie profitieren von dem alteingefahrenen Denken und Handeln.
+Die Geschichte bietet viele Beispiele. Die Herausforderung des Zyklus muss die Menschen aus dem alten
+Denken herausreissen. Die Sprengkraft der Botschaft muss also enorm sein. Und sie muss aus der Realität
+kommen.
+
+
+-----
+
+Die Sprengkraft in unserem Fall liegt in der Tatsache, dass Deutschland nach wie vor ein besetztes Land
+ist. 78 Jahre nach dem Krieg! Warum ist das so? Die Sprengkraft liegt in der Tatsache, dass die Amerikaner
+der deutschen Wirtschaft die Lebensgrundlage zerstört haben. Warum haben die das gemacht?
+Die Frage stellt sich natürlich, ob die AfD wirklich eine realistische, dramatische ‹Alternative für Deutschland› repräsentiert oder ob alles um diese Partei herum lediglich Propaganda ist, um an die Macht zu gelangen? Und nicht mehr. Auch dazu gibt es viele Beispiele in der Geschichte: Sobald so eine Partei der
+Alternative an der Macht ist, wendet sie sich 180 Grad und repräsentiert genau das Gegenteil von dem was
+sie angeblich bisher vertrat. So geschehen zum Beispiel in der Ukraine unter deren Wunderkind Selensky.
+
+**Der Karthago-Effekt**
+Was wir heute in der Politik erleben ist eine Abtrennung der politischen Propaganda von der Realität in der
+Bevölkerung. Man könnte sogar behaupten, dass die Politiker und die Bürger in völlig verschiedenen Welten
+leben.
+Die grosse Chance für eine Partei liegt gerade in diesem Widerspruch. Es braucht daher eine Partei, die
+wieder in der Realität der Bürger lebt. Diese Partei wird unwiderstehlich sein.
+Der römische Senator Cato war ein Realist, er erkannte die Gefahr für Rom und sprach sie aus, immer und
+immer wieder. Bis die Zeit gekommen war, seinen Vorschlag in die Tat umzusetzen. Er sprach am Ende
+jeder seiner Reden wie folgt: «Im übrigen bin ich der Meinung, dass Karthago zerstört werden sollte.»
+Das muss die Botschaft der AfD am Ende jeder Rede sein: «Im übrigen sind wir der Meinung, dass Deutschland wieder ein freies Land werden sollte, befreit von der amerikanischen Herrschaft.» Die Schlagkraft liegt
+in der Wiederholung!!!
+Viel besser natürlich: «Im übrigen sind wir der Meinung, dass wir Amerika den Krieg erklären sollten, um
+unsere Freiheit wiederzuerlangen.»
+Es gibt viele Arten von Krieg. Krieg muss nicht unbedingt in physische Kriegshandlungen ausarten. Aber
+wenn die Kriegserklärung gerechtfertigt ist und im Volk unterstützt wird, dann wird so oder so der Krieg
+seinen Zweck erfüllen.
+Mit leisetreten und faulen Kompromissen und Schweigen ist heute nichts mehr zu bewegen. Der Mut zur
+Freiheit muss so stark werden, dass ein Volk aufschreit in Verzweiflung. Denn die Alternative zur Tat bedeutet Untergang.
+Was also ist die Alternative für Deutschland? Eine Alternative in Freiheit? Eine Alternative mit oder ohne
+Amerika? Eine Alternative mit oder ohne Russland?
+Noch einmal, und immer wieder: Eines ist sicher: Nichts wird sich zum Guten ändern in Deutschland, bevor
+nicht jemand Amerika den Krieg erklärt. Es ist die Stunde der Wahrheit. 78 Jahre Lügen, 78 Jahre Behandlung als Sklave sind doch wohl wahrlich genug. Üben Sie schon mal: «Im übrigen bin ich der Meinung …»
+
+**Das letzte Wort hat der ehemalig französische Präsident Francois Mitterand**
+In seinem Buch ‹Le dernier Mitterand› erwähnt der Autor Georges-Marc Benhamou, was ihm der ehemalige
+Präsident als wichtigste Botschaft anvertraute. Zitate aus dem Buch: «Die Franzosen wissen es nicht, aber
+wir befinden uns im Krieg mit Amerika. Es ist ein permanenter Krieg, ein Überlebenskrieg, ein Wirtschaftskrieg, offensichtlich natürlich ein Krieg ohne Tote.»
+«Ja, die Amerikaner sind sehr hartherzig, sie sind gierig, sie wollen die Macht für sich, ohne zu teilen. Es ist
+ein Krieg von dem niemand weiss, ein dauerhafter Krieg, ohne Tote und dennoch ein Überlebenskrieg.»
+Charles de Gaulle hätte es drastischer ausgedrückt. Aber auch de Gaulle war dieser Tatbestand klar. Nur
+die deutschen Träumer träumten und träumen noch immer vor sich hin. Sie kennen doch das Ende von
+Märchen: «Und wenn sie nicht gestorben sind …» Die grosse Frage lautet für die Deutschen: «Sind sie
+gestorben?»
+
+_Im Sommer 1941 haben die USA dem Deutschen Reich faktisch den Krieg erklärt. Präsident Roosevelt gab seiner Marine_
+_den Befehl: «Shoot on every german ship on sight!» (Schiessen sie auf jedes deutsche Schiff, wenn sie eines sehen.) Darf_
+_man sich da an Nordstream erinnert fühlen? Erst im Dezember 1941, nach Pearl Harbour, hat dann das DR den USA offiziell_
+_den Krieg erklärt. Das musste es tun, wegen der Verträge mit Japan, die sich nun offiziell mit den USA im Krieg befanden._
+_Mehr darüber erfahren Sie in dem Werk von Peter Haisenko ‹England, die Deutschen, die Juden und das 20. Jahrhundert›._
+_Bestellen Sie ihr Exemplar direkt beim Verlag hier oder erwerben Sie es in Ihrem Buchhandel._
+
+_Hat Ihnen dieser Artikel gefallen? Ist es nicht beeindruckend, wie Hans-Jürgen Geese vom anderen Ende der Welt die Lage_
+_auch in Deutschland treffend analysiert? Da können wir Ihnen nur empfehlen, das Werk desselben Autors zu geniessen. Mit_
+_dem Titel ‹Ausverkauf vom Traum Neuseeland› spannt Geese den Bogen von Neuseeland zu Deutschland. Seine messer-_
+_scharfen Analysen zeigen auf, wie die Bürger weltweit von den immer gleichen Akteuren mit den immer gleichen Methoden_
+_unterdrückt und ausgebeutet, ja zu Sklaven gemacht werden. Täuschen Sie sich nicht. Was Geese in Neuseeland wie unter_
+_dem Brennglas aufzeigt, findet auch in Deutschland statt. Es ist nur nicht so leicht zu erkennen. ‹Ausverkauf vom Traum_
+_Neuseeland› ist erhältlich im Buchhandel oder bestellen Sie Ihr Exemplar direkt beim Verlag._
+_https://www.anderweltonline.com/kultur/kultur-2020/ausverkauf-vom-traum-neuseeland-wie-ein-bluehendes-land-_
+_ht_ _d /_
+
+
+-----
+
+_Quelle: https://www.anderweltonline.com/klartext/klartext-20232/wann-wird-deutschland-endlich-amerika-den-krieg-_
+_erklaren/_
+
+##### Stimmungsmache in Deutschland gegen Russland
+_28. Juli 2023 Peter A. Weber_
+
+Neulich hatte ich eine Umfrage des Meinungsforschungsinstituts YouGov zum Thema ‹Mehrheit sieht Russland als Bedrohung› zum Anlass genommen, um einen Kommentar über die Stimmungsmache in Deutschland abzugeben. Wie repräsentativ die Umfrage des Meinungsforschungsinstituts YouGov tatsächlich gewesen ist, sei mal dahingestellt. Jedenfalls zeigt sich, dass die tägliche antirussische Propaganda in den
+Medien und durch die Politik erfolgreich war. Auf t-online-Nachrichten erschien ein Beitrag, der allerdings
+von dpa abgekupfert ist, über die angebliche Einstellung der Deutschen zu Russland:
+
+**• Stimmung in Deutschland – Mehrheit sieht Russland als Bedrohung – auch im Osten**
+Sollte sich die Bundesregierung mit Russland gut stellen? Jeder zweite Deutsche sagt dazu nein, für die
+Mehrheit ist Moskau gar eine Bedrohung. Man kann anhand dieser Umfrage deutlich erkennen, wie manipulierbar viele Bürger sind und wie schwer es ihnen fällt, real von irreal oder Freund und Feind auseinanderzuhalten.
+Wenn man die Bevölkerung nicht penetrant mit Fakes, Halbwahrheiten oder unterlassenen Informationen
+infiltrieren und stattdessen mit den relevanten Tatsachen und Fragestellungen konfrontieren würde, die
+ihre täglichen Existenzproblem betreffen würden, dann sähen die Resultate von Umfragen sicherlich grundlegend anders aus. Deshalb habe ich mir überlegt, mit welchen Gegebenheiten das Volk von nicht voreingenommenen und auf Investigation bedachten Medien hingewiesen werden müssten:
+
+**Hier sind die ‹richtigen Fragen›, zu denen man die Bürger nie befragt hat, nämlich:**
+
+- ob die Fehlentscheidungen der Bundesregierung und der EU hinsichtlich der Abkoppelung von russischen Energiereserven und die Folgen der destruktiven Wirtschaftssanktionen gegen Russland eine Bedrohung für Deutschland sind?
+
+- ob die Abermilliarden, die für Aufrüstung, Waffen und Logistik an die Ukraine fliessen, eine Bedrohung
+für den Erhalt unseres Sozialstaates, unserer Infrastruktur sowie unserer zukünftigen Gesellschaft sind?
+
+- ob die uneingeschränkten finanziellen und militärischen Zusagen (MANTRA: «SO LANGE ES NÖTIG
+IST!») der EU- und deutschen Politiker an die Ukraine bis zum St. Nimmerleinstag (wenn die Ukraine
+womöglich gar nicht mehr existiert) und darüber hinaus die verantwortungslosen Versprechungen zur
+Finanzierung des Wiederaufbaus der Ukraine, eine existenzielle Bedrohung für Deutschland sind?
+
+- ob die wirtschaftliche Abhängigkeit von den USA durch Wucherpreise bei Frackinggas, die Schädigung
+der deutschen Wirtschaft oder die Abwerbungsversuche der Amis bei deutschen Unternehmen eine
+Bedrohung für Deutschland sind?
+
+- ob die USA und ihre Vasallen, die als transatlantische ‹Freunde› durchgehen, in einem staatsterroristischen Akt sondergleichen wie der Sprengung der Nordstream 2-Pipeline bewiesen haben, dass sie eine
+Bedrohung für Deutschland sind?
+
+- ob die zahlreichen völkerrechtswidrigen Angriffskriege der USA/NATO, die noch nicht das Ende der Fahnenstange darstellen, eine Bedrohung für Deutschland waren und wieder werden könnten? Schliesslich
+sind die hegemonialen Ansprüche der USA ungestillt.
+
+- ob die zahlreichen Militärstützpunkte der USA in Deutschland einschliesslich der Stationierung von
+Atomwaffen, mit zusätzlichen Strategiezentralen sowie den Machenschaften in den Nachbarstaaten eine
+Bedrohung für Deutschland sind?
+
+
+-----
+
+  - ob die Tatsache, dass sich Deutschland nach wie vor in einem Besatzungszustand befindet, quasi ein
+weiterer Bundesstaat der USA ist, und sich ständig den Drohungen, Erpressungen und Repressalien der
+USA unterordnet, eine Bedrohung für Deutschland darstellt?
+
+  - ob die von allen westlichen Politikern ausgesprochenen Drohungen an Russland, es zu ruinieren und zu
+filetieren, um seine Rohstoffe auszuplündern, eine Bedrohung für Deutschland ist?
+
+**Oder anders herum gefragt: Wie sieht die reale Bedrohungslage**
+**aus Richtung Russland aus, wenn man objektiv berücksichtigt, dass**
+
+  - Russland niemals Deutschland angegriffen hat?
+
+  - Russland in den letzten Jahrzehnten keine Angriffskriege geführt hat und der verlogene ‹brutale menschenrechtswidrige Angriffskrieg› gegen die Ukraine nur ein Vorwand ist, um vom Terrorkrieg gegen die
+eigene Bevölkerung des Kiewer Regimes abzulenken?
+
+  - Russland ausser seinen Sicherheitsinteressen in der Ukraine und dem Schutz der dort ansässigen russischen bzw. Bevölkerung nicht das geringste Interesse besitzt, in irgendein anderes Land einzumarschieren?
+
+  - Russland keinerlei hegemoniale Ansprüche wie die USA vertritt?
+
+  - Russland und Putin haben in den letzten Jahren immer wieder Vorstösse unternommen, um eine Verständigung mit dem Westen zu erzielen, die brüsk zurückgewiesen wurden. Die Versprechungen des
+Westens nach dem Fall der Sowjetunion, keine NATO-Osterweiterung durchzuführen, wurden gebrochen.
+
+  - Das Minsker Abkommen wurde vom Westen (wie selbst Merkel zugegeben hat) missbraucht, um Russland hinzuhalten und die Ukraine aufzurüsten und einen Krieg gegen Russland vom Zaume zu brechen.
+
+Ich erinnere z. B. an die Rede Wladimir Putins im Deutschen Bundestag am 25.9.2001, in der er unter
+grossem Applaus an eine Verständigung mit Deutschland und der EU appelliert hat. Die olivgrüne Bande
+in Berlin bemüht sich redlich, Gras über russische Verständigungsversuche wachsen zu lassen. Oder einen
+anderen Vorstoss Putins vom 25.11.2010, als er ein Plädoyer für eine Wirtschaftsgemeinschaft und eine
+gemeinsame Industriepolitik gehalten hat.
+
+**Gestaltung einer Wirtschaftsgemeinschaft von Lissabon bis Wladiwostok**
+Auch diese konstruktiven Vorschläge Putins, die zum gegenseitigen Nutzen gereicht hätten, wurden auf Intervention der USA ausgeschlagen. Denn die USA waren und sind stets darauf erpicht, Russland Deutschland/Europa zu spalten, um ihr eigenes Süppchen zu kochen:
+
+**Erstens:**
+Die Gestaltung einer harmonischen Wirtschaftsgemeinschaft von Lissabon bis Wladiwostok. In Zukunft
+kämen eventuell auch eine Freihandelszone, gar noch fortgeschrittenere wirtschaftliche Integrationsformen
+in Frage. In der Tat würde damit ein gemeinsamer Kontinentalmarkt entstehen, dessen Kapazitäten Billionen von Euro stark wären. Offensichtlich gilt es aber zunächst, alle noch verbleibenden Hemmnisse für den
+russischen WTO-Beitritt auszuräumen. Dann würden eine Vereinheitlichung der Rechts- und Zollvorschriften sowie der technischen Regelsätze folgen, aber auch die Umsetzung der Projekte anstehen, die die Engpässe in der gesamteuropäischen Verkehrsinfrastruktur eliminieren sollen.
+
+**Zweitens:**
+eine gemeinsame Industriepolitik, welche sich auf die Zusammenballung der Technologie- und Ressourcenpotentiale Russlands und der EU stützen soll, aber auch die Implementierung von gemeinsamen Förderungsprogrammen für die in der realen Wirtschaft aktiven kleinen und mittelständischen Unternehmer zu
+beinhalten hat. Markenzeichen wie ‹Made in Germany› und ‹Made in EU› sind wahrlich Gold wert. Diese
+Leitbilder höchster technologischer Kultur sind so behutsam wie nur möglich zu behandeln. Sie dürfen
+nicht verloren gehen.
+
+- Frieden und eine kooperative Zusammenarbeit in Europa ist nur MIT Russland zu haben – GEGEN Russland schaufeln wir uns unser eigenes Grab.
+Stimmungsmache in Deutschland gegen Russland. Wann begreift der letzte Idiot, dass Russland nicht unser
+Feind ist sondern die USA, die nur auf ihre eigenen Vorteile bedacht sind. Ihr wisst ja: ‹AMERICA FIRST›
+und ‹GOD’S OWN COUNTRY›. Wer legt schon Wert auf einen solchen ‹Freund›? Oder solche wie GB, Polen
+oder die baltischen Staaten, die in Frontstellung zu Deutschland gegangen sind? Wenn jemand die Faktenund Bedrohungslage ernsthaft prüft und vergleicht, dann muss er doch zwangsläufig zum Ergebnis kommen, dass der wirkliche Feind im Westen und den osteuropäischen NATO-Staaten lauert und nur darauf
+wartet, Deutschland zu schädigen und zu deindustrialisieren.
+
+**ZITATE:**
+
+
+-----
+
+«Bundesweit sind es demnach 63 Prozent der Wahlberechtigten, die Russland als Bedrohung für Deutschland sehen. 30 Prozent der Deutschen stimmen dieser Aussage eher oder überhaupt nicht zu. Lediglich
+acht Prozent äusserten sich hierzu unschlüssig oder machten keine Angaben.»
+
+            - **Minderheit sieht Moskau als ‹potenziellen Partner›**
+Dass Russland für Deutschland ein ‹potenzieller Partner› ist, sehen bundesweit nur 28 Prozent der Bundesbürger so. 62 Prozent der Deutschen lehnen diese Einschätzung ab. Zehn Prozent der Teilnehmerinnen
+und Teilnehmer der YouGov-Umfrage machten dazu keine Angaben oder trauten sich hier keine Einschätzung zu. Wobei die Zustimmung zu dieser Aussage im Osten deutlich höher ist als im Westen.
+**Wie bereits gesagt – Schwamm drüber**
+_https://www.t-online.de/nachrichten/deutschland/gesellschaft/id_100212542/russland-ist-laut-mehrheit-der-deutschen-_
+_eine-bedrohung-auch-im-osten.html_
+_https://www.bundestag.de/parlament/geschichte/gastredner/putin/putin_wort-244966_
+_https://www.sueddeutsche.de/wirtschaft/putin-plaedoyer-fuer-wirtschaftsgemeinschaft-von-lissabon-bis-wladiwostok-_
+_1.1027908-2_
+_Quelle: https://qpress.de/2023/07/28/stimmungsmache-in-deutschland-gegen-russland/_
+
+##### Korruptes Land im Osten – Agent Selensky – Der Film
+ Wie lange das wohl auf Youtube bleiben wird … Ha ha, wurde auf Youtube schon gelöscht …
+_Freitag, 28. Juli 2023, von Freeman-Fortsetzung um 06:31_
+
+_Siehe hier:_
+_https://odysee.com/@proletariantv:2/investigation-agent-zelensky-part-2-3:3_
+
+_Hier der Teil 1_
+_https://odysee.com/@Laura:1f/Agent-Zelenski-investigation-part-1:4_
+
+_Quelle: http://alles-schallundrauch.blogspot.com/2023/07/korruptes-land-im-osten-agent-zelenskjy.html#ixzz89DRbTc32_
+
+
+-----
+
+##### CS hatte 24 Milliarden Dollar offen bei Archegos
+_Freitag, 28. Juli 2023, von Freeman-Fortsetzung um 08:54_
+
+**Mehr als das halbe Eigenkapital aufs Spiel gesetzt für einen Vorbestraften,**
+**ganze Geschäftsleitung wusste von nichts: Kein Wunder, ging Bank unter.**
+_https://insideparadeplatz.ch/2023/07/25/cs-hatte-24-milliarden-offen-bei-archegos/_
+
+Die Credit Suisse war im Frühling 2021 faktisch am Boden, niedergestreckt durch die zwei Hammerschläge
+Greensill und Archegos. Der Rest bis März 2023 war Siechtum.
+Die nun verfügten Strafen über 388 Millionen Dollar im Fall Archegos, einem New Yorker Hedgefund eines
+zweifach vorbestraften Südkoreaners, zeigen exemplarisch, woran die CS scheiterte.
+Die gesamte oberste Führung mit Steuerleuten, die bis zu 10 Millionen im Jahr einsackten, wusste nichts
+davon, dass ihr Unternehmen mehr als die Hälfte des eigenen Kapitals aufs Spiel setzte.
+Kurz mal die halbe Bank aufs Spiel gesetzt (Finma)
+Dies mit einem einzigen Kunden, mit dem die CS im letzten Jahr von Archegos gerade mal 17,5 Millionen
+Dollar umsetzte.
+24 Milliarden Dollar Kredit hatte die Paradeplatz-Bank gegenüber dem Super-Spekulanten zur Zeit des Kollapses offen, das bei einem Eigenkapital von gut 40 Milliarden Franken.
+Verwaltungsrat, CEO, Konzernleitungs-Mitglieder, Chefs des Investment Bankings, oberste Risk- und Compliance-Verantwortliche, sie alle hatten keinen blassen Schimmer vom gigantischen Risiko.
+Als Ende März vor 2 Jahren der Hedgefund die Margincalls nicht leisten konnte, musste die CS in höchster
+Not die als Sicherheit für ihre Kredite aufgebauten Aktienpositionen über Nacht liquidieren.
+Die CS erlitt dadurch 5 Milliarden Dollar Verluste, dies, nachdem sich kurz zuvor die Greensill-Lieferkettenfonds als Kartenhaus entpuppt hatten.
+Der Verwaltungsrat unter Präsident Urs Rohner, der damals in seinen letzten Wochen nach 10 Jahren Kapitänsbrücke stand, war komplett überfordert, rief Krisen-Komitees ins Leben, begann zu hyperventilieren.
+Die Ironie: Urs Rohner, bekannter Movie-Liebhaber, der gerne Drehbuch-Autor geworden wäre, nannte einst
+‹Margin Call› seinen Lieblings-Film.
+
+_Arche-what? (CS)_
+
+Im echten Leben erkannte Rohner nichts. Null, nada. Er hatte jeglichen Überblick über das ihm anvertraute
+Reich verloren. Wie sehr, das zeigt ein Ausschnitt aus der Finma-Pressemitteilung von gestern zu den Bussen und Auflagen, welche nun die CS-Nachfolgerin UBS treffen. «Zwei Wochen vor dem Kollaps von Arche
+
+-----
+
+gos wiesen deren Positionen noch einen hohen Wert auf», schreibt die Schweizer Aufsicht. Und fährt fort:
+«Archegos verlangte deshalb von der Credit Suisse die Auszahlung von 2,4 Milliarden US-Dollar. Die Bank
+zahlte diesen Betrag gestützt auf den Vertrag mit Archegos aus.»
+«Zwar gingen gewisse Mitarbeitende davon aus, dass die Bank vertraglich dazu verpflichtet gewesen war,
+diese Auszahlungen zu tätigen. Es liegen aber keine Hinweise vor, wonach die Bank intern tatsächlich geprüft hat, diese Auszahlungen nicht vornehmen zu müssen oder in Erwägung gezogen hat, diese bis zur
+Leistung von zusätzlichen Sicherheiten auszusetzen oder mit solchen zu verrechnen, um die eigenen Risiken zu minimieren.»
+Man muss sich das auf der Zunge zergehen lassen. Die Bank, die soeben durch den Greensill-MilliardenSchlag auf die Knie gesunken ist, überweist einem Vorbestraften 14 Tage vor dessen eigenem Fall Cash in
+Milliardenhöhe. Statt sich mit dem Geld selber schadlos zu halten. Umgekehrt gab’s viel Bonus.
+2020 belohnte die CS ihre Mitglieder der Konzernleitung trotz den kurz nach dem Jahresabschluss explodierenden Archegos und Greensill mit erstaunlichen 68 Millionen Franken.
+
+_Don’t Worry, Be Happy (CS; Youtube)_
+
+Das waren nur gerade 12 Prozent weniger als 2019, als die oberste operative Führungscrew der Bank 77
+Millionen einkassiert hatte. CEO Thomas Gottstein kriegte allein 8,5 Millionen Franken, für Präsident Urs
+Rohner blieben 4,7 Millionen, beides ausgewiesen im Vergütungsbericht 2020.
+2021 zeigte die CS dann für Thomas Gottstein ganz andere Zahlen. Tiefere, allerdings lagen auch diese
+immer noch im mittleren siebenstelligen Bereich. Ebenfalls reduzierte die Bank im Geschäftsbericht 2021
+die ein Jahr zuvor ausgewiesenen 8,5 Millionen im Nachhinein; neu war die Rede von noch 6,5 Millionen
+im 2020 für Gottstein.
+Und noch etwas ‹bastelten› die Zuständigen: Sie unterschieden erstmals zwischen ‹CEO awarded compensation› und ‹CEO realized compensation›. Sprich: Was hatte das Paket des obersten Chefs für einen Wert
+bei der Zuteilung der variablen Boni, und was blieb ihm davon im Moment, ab er über die CS-Aktien und
+anderen variablen Papiere frei verfügen konnte.
+
+_Im Nachhinein ganz andere Zahlen (CS)_
+
+Trotz den Verrenkungen blieben es mehrere Millionen sowohl für CEO Gottstein als auch für Präsident
+Rohner – und das für folgende Leistung: Sie liessen zu, dass Archegos, biblisch jener, der den Gläubigen
+den Weg ins Glück zeigt, vom Schweizer Finanzmulti noch dann einen neunstelligen Betrag erhielt, als der
+Hedgefund kurz vor dem Kollaps stand. Das muss man erst einmal schaffen.
+Statt die Verantwortlichen aber hart anzupacken, belassen es die Aufseher bei Bussen. Die bezahlen nun
+die UBS-Aktionäre. Sprich: Rohner & Co. spüren nichts von ihrem kolossalen Versagen.
+Umgekehrt Bill Hwang. Die US-Justiz zerrte den Milliarden-Pleitier zusammen mit dessen Ex-Finanzchef
+vor den Richter – nur ein Jahr nach dem Kollaps.
+
+
+-----
+
+«The house of cards could only be sustained if that cycle of deceptive trading, lies and buying power
+continued uninterrupted», sagte der Zuständige der US-Börsenaufsicht in einem Statement. «Once Archegos’s buying power was exhausted and stock prices fell, the entire structure collapsed, allegedly leaving
+Archegos’s counterparties billions in trading losses.»
+_Quelle: http://alles-schallundrauch.blogspot.com2023/07/schweiz-vertraue-mir-ich-bin-ein-cs. html#ixzz89DSJ5mP5/_
+
+##### Viktor Orbán spricht die unbequeme Wahrheit aus: «Russland kann nicht besiegt werden, weil es eine Atommacht ist.»
+_uncut-news.ch, August 3, 2023, Leo Hohmann_
+
+Warum können die Neocons in Washington nicht begreifen, dass sie es nicht mit Saddam Hussein oder
+Muammar Gaddafi zu tun haben, sondern mit einer nuklearen Supermacht? Sollte sich die von den USA
+und der NATO unterstützte ukrainische Gegenoffensive bei der Rückeroberung bestimmter russischer Gebiete als erfolgreich erweisen, wäre Russland gezwungen, Atomwaffen einzusetzen. So lautete die Botschaft
+von Dmitri Medwedew, dem stellvertretenden Vorsitzenden des russischen Sicherheitsrates.
+«Wenn wir uns vorstellen, dass die ukrainische Offensive mit Unterstützung der NATO erfolgreich war und
+sie einen Teil unseres Territoriums eingenommen haben, müssten wir nach den Regeln des Dekrets des
+russischen Präsidenten vom 2. Juni 2020 auf den Einsatz von Atomwaffen zurückgreifen», sagte der ehemalige Präsident auf seinem Telegramm-Kanal.
+Medwedew bezog sich damit wahrscheinlich auf die russische Nukleardoktrin 2020, die besagt, dass im
+Fall eines Angriffs mit konventionellen Waffen, der die Existenz der russischen Nation bedroht, Atomwaffen
+eingesetzt werden könnten, um den Angriff zu stoppen.
+Die jüngste Warnung erfolgte nach den Drohnenangriffen auf Moskau am Wochenende. Und am Sonntag,
+dem Tag nach einem grossen Drohnenangriff auf das Moskauer Finanzviertel, erklärte der ukrainische Präsident Wolodymyr Selensky, er sei bereit, den Krieg auf das russische Territorium ‹zurückzuholen›.
+Ungarns Premierminister Viktor Orbán versucht ebenfalls, seinen NATO-Verbündeten zu erklären, was auf
+dem Spiel steht. Sehen Sie sich das zweiminütige Video unten an.
+
+Orbán glaubt, dass Russland als Atommacht nicht besiegt werden kann, und warnt vor den Folgen einer
+Fortsetzung des Krieges in der Ukraine. Er betont die Notwendigkeit des Friedens, um weitere Verluste an
+Menschenleben, vorwiegend an ukrainischen, zu verhindern.
+Die Tatsache, dass niemand in Washington in diese Richtung denkt oder das Offensichtliche zu erkennen
+scheint, ist erschreckend.
+Weil er sich zu offensichtlichen Wahrheiten äussert, wollen CNN und die westlichen Neokonservativen, dass
+man Orbán für eine ‹Bedrohung für die internationale Ordnung› hält.
+Wenn die liberale internationale Ord-nung, die von den USA und der NATO aufrechterhalten wird, auf moralischem Chaos und ständiger Kriegsgefahr beruht, sollte Orbán vielleicht als Bedrohung angesehen werden.
+Er ist in der Regel der einzige Erwachsene im Raum, wenn diese NATO-Länder zusammenkommen, um die
+Weltangelegenheiten zu regeln, und jetzt will der beratende Ausschuss der EU Ungarn von der EU-Präsidentschaft ausschliessen. Der Ausschuss führte Ungarns ‹Demokratiedefizit› als Hauptgrund für seinen
+Versuch an, die Präsidentschaft zu blockieren. Ja, richtig. Wir wissen, dass der wahre Grund ist, dass Ungarn
+nicht durstig genug nach russischem Blut ist, wie der Rest der euro-atlantischen neokonservativen Kriegstreiber.
+Diese westlichen Kriegstreiber werden diese einfache Tatsache nie verstehen: Man zettelt keinen Kampf
+mit einer Atommacht an und erwartet, einen Regimewechsel zu erreichen, was, wie Lindsey Graham und
+viele andere amerikanische Neokonservativ-Politiker zugegeben haben, das Ziel der USA ist, endlose Waffen
+
+
+-----
+
+in die Ukraine zu schicken. Sie sagen, sie wollen die russische Macht schwächen, und dazu müsste Putin
+durch eine andere Marionette des Weltwirtschaftsforums wie sie selbst ersetzt werden, die sich ihnen in
+ihrem ‹Netto-Null›-Kohlenstoff-Irrsinn anschliesst.
+In Ermangelung eines Friedensabkommens ist der einzige, dessen Macht geschwächt wird, die der Vereinigten Staaten von Amerika und der NATO. Wir sind diejenigen, die durch die Politik unserer korrupten globalistischen Handlanger in hohen Ämtern in den vergangenen 35 Jahren unsere industrielle Basis nach China
+ausgelagert haben, bis zu dem Punkt, an dem wir einen Krieg mit Russland und China nicht überleben
+können, weil diese beiden Länder nicht nur über massive nukleare und konventionelle Fähigkeiten verfügen,
+sondern uns auch auf industrieller Ebene überlegen sind. Das bedeutet, dass uns in einem längeren Krieg
+die Munition ausgehen würde, bevor sie es tun. Deshalb vermute ich, ausgehend von den Aktionen der
+westlichen NATO-Länder, die ich in den letzten anderthalb Jahren beobachtet habe, dass der westliche Plan
+darin besteht, einen atomaren Erstschlag gegen Russland zu führen. Das ist die einzige realistische Strategie, die ich für erfolgreich halte, wenn das Ziel darin besteht, Russland eine demütigende militärische Niederlage zuzufügen.
+Aber wer weiss, vielleicht sind die Handlanger in Washington, London und Brüssel so verblendet, dass sie
+nicht mehr in der Lage sind, die historischen Ängste Russlands vor einer Invasion aus dem Westen zu verstehen. Vielleicht sind sie wirklich so dumm, dass sie glauben, sie könnten Russland in einem konventionellen Krieg besiegen, ohne dass Russland auf Atomwaffen zurückgreift. Selbst wenn die Russen ihre Hyperschallraketen mit konventionellen Sprengköpfen bestücken würden, man denke nur an den Terror, den sie
+in westlichen Städten anrichten könnten. Warum wird Russland vom Westen behandelt, als wäre es eine
+drittklassige Macht wie Saddam Hussein, Muammar Gaddafi oder Hafez Assad?
+Sind die westlichen Führer so verblendet, dass sie wirklich glauben, sie könnten Russland besiegen und
+einen Regimewechsel herbeiführen, ohne dass es zu nuklearen Auseinandersetzungen kommt? Sind sie bereit, New York, L.A., San Francisco, Boston, Washington, Philadelphia und einige andere US-Städte zu opfern,
+indem sie entweder einen nuklearen Erstschlag Russlands provozieren oder selbst einen Erstschlag gegen
+Moskau führen? Vielleicht sind sie so versessen darauf, die Welt zu entvölkern und ‹den Planeten zu retten›,
+dass sie zu Psychopathen geworden sind?
+US-Aussenminister Antony Blinken wurde am Sonntag gefragt, was die grösste Bedrohung für die Menschheit sei: Ein Atomkrieg oder der Klimawandel? Blinken hatte tatsächlich Schwierigkeiten, diese einfache
+Frage zu beantworten. Er sagte, beide seien von gleicher Bedeutung. Ein Atomkrieg sei keine grössere Bedrohung für die Bewohner der Erde als der Klimawandel, sagte Blinken.
+Ist es da ein Wunder, dass wir uns auf den Dritten Weltkrieg zubewegen? Die Globalisten, die das Sagen
+haben, glauben, dass der Klimawandel die dringendste Bedrohung für die Menschheit ist, und zufällig besteht ihre Lösung zur Eindämmung der ‹existenziellen› Bedrohung durch den Klimawandel darin, die Weltbevölkerung drastisch zu reduzieren. Zu diesem Zweck haben sie giftige Todesspritzen freigesetzt, die sich
+als ‹Impfstoffe› tarnen, und jetzt drängen sie auf einen Krieg mit der grössten Atommacht der Welt. Zu ihrer
+Klima-Agenda gehört auch ein Krieg gegen Bauernhöfe und die Nahrungsmittelproduktion.
+Vergessen Sie nicht die Deagle-Prognose.
+Um den Planeten zu retten, lässt man die Menschen verhungern, impft die Menschen, tötet die Menschen
+mit Bomben und Kugeln. Ergibt das alles schon einen Sinn?
+_QUELLE: VIKTOR ORBÁN SPEAKS INCONVENIENT TRUTH: ‘RUSSIA CANNOT BE DEFEATED BECAUSE IT IS A NUCLEAR_
+_POWER’_
+_Quelle: https://uncutnews.ch/viktor-orban-spricht-die-unbequeme-wahrheit-aus-russland-kann-nicht-besiegt-werden-weil-_
+_es-eine-atommacht-ist/_
+
+##### Selensky:  Der letzte Akt wird bereits geschrieben
+_3 Aug. 2023 06:45 Uhr_
+
+**Man schafft es wirklich, gleichzeitig den Präsidentendarsteller Selenskij in den Himmel zu loben und**
+**seine Ersetzung zu debattieren. Das zeigt ein Artikel in der Zeitschrift Politico. Logisch – wer braucht**
+**noch den Hauptdarsteller, wenn die Serie abgesetzt ist?**
+**Von Dagmar Henn**
+
+Wenn ich Selensky wäre, bekäme ich es langsam wirklich mit der Angst zu tun. Denn am ersten August
+veröffentlichte Politico einen Artikel mit der Überschrift ‹Der Plan der Ukraine, wenn Russland Selensky
+ermordet›. Das klingt unschuldig, und selbstverständlich wird Russland zum (vorerst imaginierten) Schuldigen erklärt. In Wirklichkeit eröffnet dieser Text aber eine Diskussion darüber, welche Folgen es hätte, wenn
+der Westen Selensky entsorgen würde.
+
+
+-----
+
+Denn natürlich ist es reine Heuchelei, wenn erklärt wird, ein Ende Selenskys würde ‹die Kriegsanstrengungen der Ukraine einer ihrer grössten Schätze berauben›. Schliesslich ist Selensky selbst in der westlichen
+Presse ein Held mit Verfallsdatum.
+«Die internationalen Medien wurden von Selenskys charismatischer Ausstrahlung verzaubert und von der
+einfachen Geschichte von David gegen Goliath gebannt. Die Transformation des ukrainischen Präsidenten
+von einem enttäuschenden Regierungschef in Friedenszeiten in einen – mit den übertriebenen Worten des
+bekannten französischen Intellektuellen Bernard-Henri Levy – ‹neuen, jungen und grossartigen Gründervater› der freien Welt war verblüffend.»
+Nun, westliche Presse und Politik sind eine eigene Welt, die nicht viel damit zu tun hat, wie der Rest des
+Globus die Dinge sieht, wo der um Selensky gestrickte Mythos nicht allzu viele Gläubige fand. Aber die ganze, kunstfertig aufgebaute Geschichte ist fragil. Eine glitzernde Seifenblase, die jederzeit platzen kann.
+Das war übrigens schon von Anfang an so. Die Figur Selensky wurde mit einem Zitat zum Helden gemacht,
+das ihr nicht einmal eindeutig zugeschrieben werden kann. Politico wiederholt diese Erzählung: Selensky
+habe damals das Angebot der USA abgelehnt, ausgeflogen zu werden, und erwidert, er brauche keinen
+Flug, sondern Munition.
+Allerdings – es gibt weder einen Beleg oder einen Zeugen dafür, dass es ein solches Angebot wirklich gegeben hat, noch dafür, dass Selensky diesen Satz jemals gesagt hat. Wer sehen will, wie sich willigste Faktenchecker in Ermangelung jedes Beweises winden, kann einen Blick auf den Versuch der ‹Washington Post›
+vom März letzten Jahres werfen, das Zitat zu bestätigen. Letztlich ist das Einzige, was feststeht, die Tatsache,
+dass ein ‹senior American intelligence official›, sprich, ein hochrangiger CIA-Mitarbeiter, gegenüber AP diesen Satz Selensky zugeschrieben hat. Wahrscheinlich war die Schaffung der Heldengestalt Selensky gerade
+sein Auftrag.
+Wie auch immer, die Medien haben die Geschichte geschluckt, zumindest aber eifrig verbreitet. Nur, darüber muss man sich im Klaren sein, Helden verlieren durch Niederlagen ihren Wert. In dem Moment, in
+dem auch im Westen bekannt wird, wie ungeheuer der Preis ist, den die Ukraine bezahlt, um ihren westlichen Instrukteuren genehm zu sein; in dem Moment, indem sich die ganze aufgeblasene Zuversicht als
+falsch erweist, die überwältigende Qualität der westlichen Waffen als Fiktion und letztlich dann sogar die
+ukrainische Demokratie als nichts dergleichen, besitzt der eherne Heros Selensky nur noch Schrottwert.
+Ausser natürlich, man verschafft ihm einen rechtzeitigen Abgang. Dann kann der Mythos selbst das Ende
+des Landes überleben, denn schliesslich muss er ja nichts gewusst haben von den Zehntausenden, die auf
+die Schlachtbank geschickt wurden; der Mann ist Jurist und Schauspieler, kein Militär. Sollte er jedoch
+nach einer Flucht aus der Niederlage den Rest seines Daseins in einer seiner Villen in der Toskana oder an
+der Côte d’Azur fristen, um womöglich am Ende vollgekokst mit einem Sportwagen aus der Kurve einer
+Küstenstrasse zu fliegen, wäre das nicht nur für den Moment schädlich, sondern würde ausserdem auch
+die gesamte Mediendarstellung der Vergangenheit ins Lächerliche ziehen. Zu viel wirklicher Selensky wäre
+der Tod des Mythos.
+Lieber erhält man den Mythos am Leben. Der Politico-Artikel beschreibt nicht nur, welche Nachfolgeregeln
+in der ukrainischen Verfassung vorgesehen wären, sollte Selensky – Gott bewahre – etwas zustossen; er
+macht konkrete Ergänzungsvorschläge, weil ihm die Lösung etwas unvollkommen erscheint. Man zitiert
+einen freien Mitarbeiter des Eurasien-Zentrums des Atlantic Council namens Adrian Karatnycky (ein kleiner
+Beleg dafür, dass sich auch diese Denkfabrik schon damit beschäftigt hat, durch wen Selensky zu ersetzen
+wäre): «Karatnycky sagt, er hoffe auf eine Rolle für die Fernsehpersönlichkeit Sergei Pritula, der jetzt grössere Hilfsorganisationen betreibt und in Umfragen extrem hohe Vertrauenswerte erreicht.»
+Noch ein Darsteller, weil Andrei Jermak, Selenskys Büroleiter, eigentlich Filmproduzent, nicht genügt? Der
+Vorsitzende der Werchowna Rada, des ukrainischen Parlaments, Ruslan Stefantschuk, der nach der Verfassung die Nachfolge antreten würde, findet jedenfalls weder vor Politico noch vor Karatnycky Gnade. Seine
+Umfragewerte sind einfach zu schlecht.
+Aber, so argumentiert Politico, in Demokratien mache das ja wenig, wenn ein Staatsoberhaupt ermordet
+werde, in Autokratien sei das viel schlimmer, und beruft sich dabei auf eine Untersuchung von 59 Mordanschlägen zwischen 1875 und 2004.
+Was das Blatt natürlich nicht erwähnt, ist, wer weltweit den Rekord bei solchen Anschlägen hält. Welcher
+andere Staat sollte das wohl sein als die Vereinigten Staaten? In Afrika zumindest gibt es zwar ernste Konkurrenz durch die Franzosen, aber auf der restlichen Welt dürften allein die US-betriebenen Militärputsche
+wie 1973 in Chile den Rekord sichern; wenn man vergebliche Versuche mitzählt, sind schon die über 300
+Mordanschläge auf Fidel Castro die Garantie für die Spitzenposition.
+Auf russischer Seite gibt es keine wirkliche Tradition für ein solches Vorgehen, und selbst in der heissesten
+Debatte, wie nach den Anschlägen auf die Krim-Brücke, gibt es immer wieder ein höchst rationales
+Gegenargument, das Selensky im Grunde Sicherheit verspricht: Welchen Sinn macht es, jemand Unfähigen
+zu beseitigen, wenn die Gefahr besteht, dass danach jemand Fähigerer kommt?
+Allerdings, ebenso wenig braucht man Zweifel zu hegen, dass alles dafür getan werden wird, damit sein
+möglicher Abgang wie eine russische Tat aussieht. Schon allein, damit das Ende zu der Heldengeschichte
+
+
+-----
+
+passt, aber auch, um das Ereignis selbst politisch maximal nutzen zu können. Und man kann es mithilfe
+der eigenen Vorstellung leicht überprüfen – welche Empörung könnte die Entfernung dieser Spielfigur noch
+auslösen, sobald die Niederlage unübersehbar ist? Oder ein durch eine drohende Niederlage ausgelöster
+Verrat? Rechtzeitig davor kann man noch die Schlagzeilen über die bösen Russen, die den Helden gemeuchelt haben, in direkte Unterstützung für die NATO und ihre Kriegspläne ummünzen; danach ist das Ereignis propagandistisch wertlos.
+Selensky jedenfalls hat guten Grund, alle eng dem Westen verbundenen Mitarbeiter in seiner Umgebung
+mit Misstrauen zu betrachten. Gleich, ob nun US-Amerikaner, deren Freunde oder Briten. Dumm, dass es
+gar keine anderen in seiner Nähe geben dürfte. Selbst seine Ehefrau wirkte bei dem Auftritt in Vilnius nicht
+wirklich so, als wolle sie Kriemhilds Rache reinszenieren.
+Es sind nun einmal die Märchen, die mit dem friedlichen Satz enden, «und wenn sie nicht gestorben sind,
+dann leben sie noch heute». Heldensagen enden mit einem toten Helden. Politico hat verraten, dass an diesem Akt schon geschrieben wird.
+_Quelle: https://freeassange.rtde.me/meinung/176804-selenksij-letzte-akt-wird-bereits/_
+
+##### Propaganda zur Förderung der Akzeptanz von implantierten Chips: «Immer mehr Menschen werden tragbare Geräte nutzen, um ihre Gesundheit zu überwachen»
+_uncut-news.ch, August 2, 2023_
+
+Laut der Xinhua-Agentur wird die menschliche Lebenserwartung dank neuer Technologien wie künstlicher
+Intelligenz (KI) und den Lehren aus der COVID-19-Pandemie in wenigen Jahrzehnten voraussichtlich auf
+120 Jahre steigen, berichtete das schwedische Fernsehen (SVT) am Sonntag Agerpres.
+«Unsere Prognose ist, dass die Lebenserwartung in etwa 50 Jahren zwischen 100 und 120 Jahren liegen
+wird, zumindest in den Industrieländern», sagte Ignat Kulkov, Forscher an der Malardalen Universität (MDU)
+in Schweden, gegenüber SVT.
+«Es wird auch erwartet, dass ältere Menschen genauso gesund sein werden wie Menschen in ihren Vierzigern, was grösstenteils auf den raschen technologischen Fortschritt zurückzuführen ist», sagte Kulkov und
+verwies auf die Ergebnisse einer Studie, die er mit Kollegen von Universitäten in Finnland, Frankreich und
+den USA durchgeführt hat und die in der Fachzeitschrift Futures veröffentlicht wurde.
+«Immer mehr Menschen werden tragbare Geräte benutzen, um ihre Gesundheit zu überwachen. Diese Geräte werden mit Ärzten und Krankenhäusern verbunden sein», sagt Kulkov und fügt hinzu, dass einige dieser Sensoren die Form von Implantaten haben werden.
+
+Solche Geräte würden es Ärzten ermöglichen, frühzeitig Empfehlungen für Änderungen des Lebensstils zu
+geben, was zu einer besseren Gesundheit und einem längeren Leben führen würde. Auch Fortschritte in
+anderen Bereichen würden zu einer längeren Lebenserwartung beitragen, so die Wissenschaftler.
+Die COVID-19-Pandemie habe zu einem besseren Verständnis darüber geführt, wie eine effizientere Überwachung von Viren erreicht werden könne, während KI bereits eingesetzt werde, um Krankheiten schneller
+zu diagnostizieren und neue Behandlungen zu entwickeln, sagte Kulkov.
+Auch die personalisierte Medizin mit individuell angepassten Medikamenten werde zur Verbesserung der
+Gesundheit beitragen.
+Es gebe aber auch neue Herausforderungen, so Kulkov. «Der Klimawandel wird den grössten Einfluss auf
+unsere Gesundheitssysteme und unser Leben haben, nicht nur in der Zukunft, sondern schon jetzt», sagte
+er.
+_QUELLE: OAMENII DE ȘTIINȚĂ ANUNȚĂ CĂ SPERANȚA DE VIAȚĂ VA CREȘTE LA 120 DE ANI, NUMAI DACĂ OAMENII ÎȘI_
+_IMPLANTEAZĂ CIPURI_
+_Quelle: https://uncutnews.ch/propaganda-zur-foerderung-der-akzeptanz-von-implantierter-chips-immer-mehr-menschen-_
+_werden-tragbare-geraete-nutzen-um-ihre-gesundheit-zu-ueberwachen_
+
+
+-----
+
+##### Lustig, wie die UFO-Geschichte mit dem Wettrüsten  im Weltraum zusammenfällt.
+_uncut-news.ch, August 2, 2023, Caitlin Johnstone_
+
+Diese Geschichten über den Wettlauf um die Militarisierung des Weltraums erhalten nicht die gleiche Aufmerksamkeit wie die viel unterhaltsameren UFO-Geschichten, aber es scheint wahrscheinlich, dass diejenigen, die die Kriegsmaschinerie in Gang halten, den ersteren viel mehr Aufmerksamkeit schenken als den
+letzteren.
+Hätte die Anhörung des UFO-Unterausschusses des Repräsentantenhauses am Mittwoch vor zehn Jahren
+statt heute stattgefunden, hätte sie die Welt erschüttert. Stellen Sie sich jemanden aus dem Jahr 2013 vor,
+der im Kongress Aussagen über ‹routinemässige› Begegnungen von Militärpiloten mit riesigen fliegenden
+Tic-Tacs, schwebenden Kugeln, 300 Fuss (ca. 91 m) grossen roten Quadraten und Würfeln in durchsichtigen Kugeln hört, die auf eine Weise herumschwirren, die alle bekannte irdische Technologie sprengt, oder
+über den geheimen Besitz der Regierung von ausserirdischen Flugzeugen, die sie nachzubauen versuchen,
+und über die Leichen ihrer nichtmenschlichen Piloten oder über die Möglichkeit, dass diese Kreaturen nicht
+nur ausserirdisch, sondern extra-dimensional sind. Da wäre ihnen die Kinnlade heruntergefallen.
+Jetzt, im Jahr 2023, werden wir seit sechs Jahren stetig mit Bruchstücken dieser Geschichten gefüttert, so
+dass die Szene auf dem Capitol Hill am Mittwoch nicht die Wirkung hatte, die sie 2013 gehabt hätte. Sie
+hat Schlagzeilen gemacht und Aufmerksamkeit erregt, aber nicht so viel wie der Tod von Sinead O’Connor
+oder die Gedanken der Menschen über Barbie und Oppenheimer. Die Reaktion der Öffentlichkeit könnte
+man als nervöses Lachen und Achselzucken beschreiben.
+Die Leute überfliegen das Material von der Anhörung in den sozialen Medien, sagen: «Wow, das ist seltsam»,
+und gehen ihrem Leben nach. Die Informationen werden weitergegeben, aber nur am Rande des Mainstream-Bewusstseins. Vielleicht zeigen sie uns nächstes Jahr etwas, das für jemanden im Jahr 2013 noch
+schockierender gewesen wäre als die Anhörung am Mittwoch, und die Menschen im Jahr 2024 werden es
+mit dem gleichen nervösen Lachen und Achselzucken quittieren.
+
+Natürlich ist die Reaktion in den Kreisen, mit denen ich zu tun habe, etwas anders. Menschen, die der amerikanischen Kriegsmaschinerie sehr skeptisch gegenüberstehen, sind in der Regel auch äusserst skeptisch
+gegenüber dieser UFO-Geschichte, die wir seit 2017 erleben.
+‹Ablenkung› ist ein Wort, das man oft hört. «Das ist nur eine Ablenkung von», wobei die heisse Story ist, die
+sie persönlich gerade fasziniert. Ich glaube diese Erklärung nicht; die neue UFO-Geschichte wurde nicht in
+letzter Minute erfunden, um von den aktuellen Schlagzeilen abzulenken, sondern sie entwickelt sich seit
+sechs Jahren und die Leute schenken ihr nicht einmal so viel Aufmerksamkeit. Das Imperium neigt ohnehin
+nicht dazu, spektakuläre Ereignisse als ‹Ablenkungsmanöver› zu inszenieren; die Anpassung der öffentlichen Aufmerksamkeit nimmt eher die viel banalere Form des Agenda-Settings in den Medien an, bei dem
+einige Geschichten mehr Aufmerksamkeit erhalten als andere, je nachdem, was den Oligarchen, denen die
+Presse gehört, genehm ist.
+
+
+-----
+
+Ich sehe auch Leute, die theoretisieren, dass das alles nur ein Trick ist, um das US-Militärbudget zu erhöhen.
+Da mag etwas dran sein, aber wie zuvor besprochen, diese Geschichte zieht sich jetzt schon sechs Jahre
+hin, und bisher ist der Militärhaushalt nur in den üblichen jährlichen Schritten gestiegen, wie immer.
+Verstehen Sie mich nicht falsch, ich bin genauso skeptisch wie alle anderen. Zum einen waren die Ursprünge des Mainstream-UFO-Narrativs, das 2017 begann, durchdrungen von weitreichenden Verzerrungen, Unehrlichkeit und journalistischem Fehlverhalten und wurden von zwielichtigen Geheimdienstmitarbeitern wie
+Lue Elizondo weitergeführt. David Grusch, der bei der Kongressanhörung am Mittwoch mit seinen Geschichten über tote Ausserirdische und nachgebaute UFOs die mit Abstand sensationellsten Behauptungen aufstellte, ist selbst ein Insider des US-Geheimdienstkartells.
+Was mich an der ganzen UFO-Geschichte aber wirklich stört, ist der Zeitpunkt. Wir befinden uns in der Anfangsphase eines neuen Kalten Krieges, in dem es um die Militarisierung des Weltraums geht, und wir hören im Kongress Aussagen über mysteriöse Fahrzeuge, die eine Bedrohung für den US-Luftraum darstellen
+und die Fähigkeit haben, sehr schnell zwischen Erde und Weltraum hin und her zu fliegen. Das riecht
+komisch.
+Ich meine, ist es wirklich ein Zufall, dass wir all diese Nachrichten über UFOs und Ausserirdische zur
+gleichen Zeit sehen, in der wir Nachrichten über einen Wettlauf zwischen den USA und China und Russland
+um die militärische Vorherrschaft im Weltraum sehen? Ein Artikel in Foreign Policy aus dem letzten Jahr
+trägt die Überschrift ‹China and Russia Are Catching Up to U.S. in Space Capabilities, Pentagon Warns› mit
+dem Untertitel ‹The militarization of space is picking up pace›. Diese Warnungen finden sich auch in Artikeln
+von Defense One und Time. Ein Artikel auf der Website der Vereinten Nationen aus dem letzten Jahr trägt
+den Titel ‹We Have Not Passed the Point of No Return›, Disarmament Committee Told, Weighing Chance
+Outer Space Could Become Next Battlefield (Abrüstungsausschuss: «Wir haben den Punkt, an dem es kein
+Zurück mehr gibt, noch nicht überschritten» und wägt ab, ob der Weltraum zum nächsten Schlachtfeld
+werden könnte)». Ein Bericht des von der Kriegsmaschinerie finanzierten Center for Strategic and International Studies aus dem Jahr 2021 mit dem Titel ‹Defense Against the Dark Arts in Space: Protecting Space
+Systems from Counterspace Weapons› warnt vor der dringenden Notwendigkeit, mehr Weltraumwaffen zu
+bauen, um die Feinde der USA abzuwehren. Ein Artikel in der Global Times aus dem letzten Jahr trägt den
+Titel ‹Chinesische Experten drängen darauf, die Bewaffnung des Weltraums zu vermeiden, während die
+Ukraine kommerzielle Weltraumkapazitäten nutzt›.
+Diese Geschichten über den Wettlauf um die Militarisierung des Weltraums erhalten nicht die gleiche Aufmerksamkeit wie die weitaus unterhaltsameren UFO-Geschichten, aber es scheint wahrscheinlich, dass diejenigen, die für die Bewegung der Kriegsmaschinerie verantwortlich sind, den ersteren weitaus mehr Aufmerksamkeit schenken als den letzteren. Die US Space Force hat 2017, im selben Jahr, in dem diese Mainstream-UFO-Geschichten aufkamen, ihre ersten Schritte unternommen, mit dem ausdrücklichen Ziel, Russland und China zu bekämpfen.
+Und es kommt mir sehr verdächtig vor, wie wir langsam in dieses UFO-Narrativ (oder UAP-Narrativ für diejenigen, die mit dem aktuellen Jargon vertraut sind) hineingezogen werden, gerade jetzt, wo es einen wahnsinnigen Ansturm gibt, Waffen in den Weltraum zu bringen. Ich kann mir keine andere Zeit in der Geschichte
+vorstellen, in der der Zeitpunkt dafür verdächtiger gewesen wäre.
+Für mich waren die beunruhigendsten Teile der UFO-Anhörung die Teile, die die Militarisierung des Weltraums vorantreiben könnten, z.B. als dieses Phänomen als ‹Bedrohung der nationalen Sicherheit› dargestellt wurde oder als erwähnt wurde, dass sie rasant von der Erde in den Weltraum wechseln könnten.
+Auf die Frage des Kongressabgeordneten Glenn Grothman «Glauben Sie, dass UAVs eine Bedrohung für
+unsere nationale Sicherheit darstellen?» antwortete der ehemalige Navy Commander David Fravor mit
+einem klaren «Ja». Wenige Minuten später beschrieb Fravor, dass diese UFO’s in der Lage seien, «aus dem
+Weltraum herabzusteigen, drei Stunden zu bleiben und wieder aufzusteigen».
+Auf die Frage des Kongressabgeordneten Andy Ogles, ob UFOs ‹Aufklärungsinformationen› über das USMilitär sammeln könnten, antworteten alle drei Zeugen – Grusch, Fravor und der ehemalige Navy-Pilot Ryan
+Graves – mit «Ja». Auf die Frage von Ogles, ob UFOs ‹unsere Fähigkeiten ausloten› könnten, antworteten
+alle drei ebenfalls mit «Ja». Auf die Frage, ob UFOs ‹Schwachstellen› in den militärischen Fähigkeiten der
+USA aufdecken könnten, antworteten alle drei ebenfalls mit «Ja». Auf die Frage, ob UFOs eine existenzielle
+Bedrohung für die nationale Sicherheit der USA darstellen, antworteten alle drei, dass dies der Fall sein
+könnte. Die Frage, ob es Anzeichen dafür gebe, dass UFOs an amerikanischer Nukleartechnologie interessiert seien, bejahten alle drei.
+Ogles schloss sein Interview mit den Worten: «Es gibt eindeutig eine Bedrohung für die nationale Sicherheit
+der Vereinigten Staaten von Amerika. Als Mitglieder des Kongresses haben wir die Verantwortung, diese
+Aktivitäten zu überwachen und zu verfolgen, damit wir, wenn nötig, Massnahmen ergreifen können.»
+Auf die Frage des Kongressabgeordneten Eric Burlison, ob es «Aktivitäten von ausserirdischen oder nichtmenschlichen Technologien und/oder Wesen gegeben habe, die den Menschen Schaden zugefügt haben»,
+sagte Grusch, er könne in einem öffentlichen Rahmen nicht ins Detail gehen (ein Thema, das sich durch
+
+
+-----
+
+die gesamte Anhörung zog), aber er sagte, «was ich, meine Frau und ich, erlebt haben, war sehr beunruhigend».
+Grusch verkomplizierte diese kryptische Aussage ein paar Minuten später, indem er sagte, er habe noch
+nie ein UFO gesehen. Wie diese Aussage nicht im Widerspruch zu seiner vorherigen Aussage steht, er sei
+Zeuge von schädlichem Verhalten durch Technologie und/oder nichtmenschliche Wesen geworden, wurde
+nicht klar.
+Den politischen Entscheidungsträgern der USA wird also gesagt, dass es mit ausserirdischer Technologie
+ausgestattete Raumfahrzeuge gibt, die routinemässig den Luftraum der USA verletzen und eine existenzielle Bedrohung für die nationale Sicherheit der USA darstellen, dass diese Raumfahrzeuge nach Belieben
+von der Erde in den Weltraum und wieder zurück fliegen können und dass sie dazu beitragen müssen, dass
+ihre Nation dieser Bedrohung begegnen kann.
+Zu welchen Schlussfolgerungen kommen Sie, wenn Sie mit solchen Informationen konfrontiert werden?
+Wenn man als Gesetzgeber dafür verantwortlich ist, das Funktionieren eines hoch militarisierten Imperiums
+zu ermöglichen, wird man wahrscheinlich nicht zu dem Schluss kommen, dass es an der Zeit ist, sich an
+den Händen zu fassen und Kumbaya zu singen. Wahrscheinlich wird man anfangen, in militärtechnischen
+Kategorien zu denken.
+Eine der wichtigsten unbeantworteten Fragen in diesem ganzen UFO-Tohuwabohu ist: Warum jetzt? Warum
+erleben wir diese ganze ‹Enthüllungs›-Bewegung, nachdem es seit Generationen keine Bewegung gegeben
+hat? Wenn es diese Dinge wirklich gibt und die Regierung sie geheim gehalten hat, warum sollte die unnachgiebige Politik der Entlassungen und verschlossenen Türen plötzlich umgekehrt werden, so dass ‹Whistleblower› vor den Kongress treten und aussagen können? Wenn sie ein Motiv hatten, es ununterbrochen geheim zu halten, warum sollte es dieses Motiv nicht mehr geben?
+Wenn man die Online-UFO-Gemeinde fragt, werden viele die ganze Sache für bare Münze nehmen und behaupten, dass die mächtigste Kriegsmaschinerie, die je geschaffen wurde, ihre Politik der totalen Geheimhaltung aufgrund des ‹Drucks› der Enthüllungsaktivisten geändert hat. Das kann nicht stimmen; das historisch mächtigste Imperium ändert seine langjährige Politik der totalen Geheimhaltung nicht aufgrund von
+Internetforen und FOIA-Anfragen.
+Warum also jetzt? Warum der drastische und plötzliche Wandel von UFOs und Ausserirdischen vom lächerlichen Aluhut-Unsinn zum Gegenstand ernsthafter Untersuchungen des Kongresses und einer breiten Berichterstattung in den Mainstream-Medien?
+Nun, der Zeitpunkt des Wettlaufs um die Militarisierung des Weltraums könnte eine Antwort auf die Frage
+«Warum gerade jetzt? Ist es ein Zufall, dass dieses neue UFO-Narrativ 2017 auftaucht, ungefähr zur gleichen
+Zeit wie die Einführung der Space Force? Werden wir massenhaft mit Ausserirdischen und UFOs manipuliert, um die Räder der Kriegsmaschinerie im Weltraum zu schmieren? Wie wahrscheinlich ist es, dass diese
+ausserplanetarische Erzählung zufällig genau zu dem Zeitpunkt auftaucht, an dem das US-Imperium einen
+letzten Versuch unternimmt, die unipolare Vorherrschaft über den Planeten zu erlangen?»
+Ich weiss es nicht. Ich weiss nur, dass, wenn ich Wahrscheinlichkeiten zuteile, «Ausserirdische oder extradimensionale Wesen sind hier und haben ein besonderes Interesse an uns und stürzen manchmal mit ihren
+Fahrzeugen ab, und unsere Regierung hat sie geborgen, aber geheim gehalten, aber plötzlich beschlossen,
+nicht mehr so geheimnisvoll damit umzugehen» deutlich schlechter abschneidet als «Unsere Herrscher
+lügen und manipulieren, um wieder ihre eigenen Interessen durchzusetzen».
+Ich bin 100% offen für die Möglichkeit, dass Ausserirdische und ausserirdische Raumschiffe in unserer Atmosphäre herumschwirren. Wofür ich nicht offen bin, ist die Behauptung, dass die verkommensten Institutionen der Welt plötzlich bereit sind, uns die Wahrheit über diese Dinge zu sagen, entweder aus Gutmütigkeit oder weil sie von UFO-Enthüllungsaktivisten ‹unter Druck gesetzt› wurden.
+Ich weiss nicht, was zum Teufel mit dieser UFO-Sache los ist, aber ich weiss, dass die Führer des US-Imperiums eine lange Geschichte der Manipulation und Täuschung im grossen Stil haben, um ihre imperialen
+Pläne voranzutreiben. Und ich weiss, dass an diesem entscheidenden Punkt der Geschichte, an dem das
+Imperium sich mit den Fingernägeln an die planetarische Vorherrschaft klammert, eine Menge imperialer
+Pläne im Gange sind.
+_QUELLE: FUNNY HOW THE UFO NARRATIVE COINCIDES WITH THE RACE TO WEAPONIZE SPACE_
+_Quelle: https://uncutnews.ch/lustig-wie-die-ufo-geschichte-mit-dem-wettruesten-im-weltraum-zusammenfaellt/_
+
+##### Journalist: Gonzalo Lira  an ungarischer Grenze festgenommen – ihm drohen 8 Jahre Haft
+_2 Aug. 2023 20:36 Uhr_
+
+Der ukrainekritische Blogger Gonzalo Lira ist seit mehr als 36 Stunden nicht mehr erreichbar. Möglicherweise ist er erneut vom ukrainischen Geheimdienst verhaftet worden, teilte der russisch-amerikanische Publi
+
+-----
+
+zist und Politologe Mark Sleboda mit, der mit Lira in Kontakt stand. Eine offizielle Bestätigung der Festnahme gibt es nicht.
+Der chilenisch-amerikanische Blogger und Politkommentator Gonzalo Lira ist erneut verschwunden. Sein
+letztes Video postete er am frühen Dienstagmorgen. Er setzte sich eine Frist von zwölf Stunden für den
+Grenzübertritt nach Ungarn, wo er politisches Asyl beantragen wollte. Eine Nachricht im Vorfeld des Ausreiseversuchs lautete: «Wenn Ihr in den nächsten zwölf Stunden nichts von mir hört, dann bin ich auf dem
+Weg in ein Arbeitslager! Wünscht mir Glück.»
+Nach einem dreimonatigen Aufenthalt in ukrainischer Untersuchungshaft wurde Lira gegen eine Kaution
+wieder auf freien Fuss gesetzt. Seinen Schilderungen zufolge wurde er in der Haft schwer geschlagen und
+ausgeraubt – RT DE berichtete. Der ukrainische Sicherheitsdienst SBU wirft Lira vor, im Internet prorussische Positionen geteilt zu haben. Der 55-jährige Blogger ist meinungsstark und scheut trotz der damit verbundenen Gefahren nicht davor zurück, die ukrainische Regierung und die ukrainischen Streitkräfte scharf
+zu kritisieren. Laut eigenen Angaben müsste am 2. August die erste Gerichtsverhandlung gegen ihn stattfinden. Ihm drohen fünf bis acht Jahre Haft.
+Offenbar ist Lira der Grenzübertritt nicht geglückt, sodass er von den ukrainischen Sicherheitsorganen bei
+der Passkontrolle festgesetzt und wieder verhaftet wurde. Das geht aus einem Tweet des US-amerikanischen Journalisten und Politkommentatoren Mark Sleboda hervor. Er schrieb:
+**_«Ich kann ausserdem bestätigen, dass Lira auf der ukrainischen Seite der Grenze aufgehalten wurde und_**
+**_seitdem verschwunden ist, und zwar seit mehr als 24 Stunden. Das ist das Letzte, was man von ihm gehört_**
+**_hat.»_**
+
+Sleboda hat nicht angegeben, woher diese Informationen stammen. Allerdings ist bekannt, dass er und Lira
+über digitale Kommunikationskanäle in Kontakt standen und im Internet gemeinsame Diskussionen veranstalteten. Daher ist anzunehmen, dass Lira es noch geschafft hat, Sleboda eine Kurznachricht über seine
+Verhaftung zu übermitteln. Sleboda ist ebenso wie Lira im Internet als US-kritischer Kommentator aktiv
+und tritt regelmässig in verschiedenen Medien auf. Er ist Politemigrant und lebt seit vielen Jahren in
+Moskau.
+Im Thread unter seinem Tweet hat er erklärt, warum Lira sein Video vor dem Grenzübertritt in Internet gepostet hat. Denn damit habe er sicherlich die Aufmerksamkeit der Spitzel auf sich gezogen und seinen Plan
+gefährdet, schrieb einer der Kommentatoren. Dieses Risiko habe Lira bewusst in Kauf genommen, denn er
+wusste nicht, ob er es schaffen würde, die Grenze zu passieren, erwiderte Sleboda. «Er wollte nicht einfach
+verschwinden, ohne dass die Leute wussten, was passiert war.»
+Die Unteroffizierin und Pressesprecherin der ukrainischen Streitkräfte Sarah Ashton-Cirillo hat angedeutet,
+dass der SBU hinter dem Verschwinden von Gonzalo Lira stecken könnte. «Das ist der Grund, weshalb ihr
+bislang nichts mehr von Gonzalo Lira gehört habt, nachdem er sein sogenanntes Asylgesuch in Ungarn
+öffentlich gemacht hatte. Weil der Staatssicherheitsdienst, besser bekannt als SBU, in seinen Reihen einige
+der besten und talentiertesten Agenten der ganzen Welt hat. Und sie wussten, wo Gonzalo Lira ist», sagte
+die US-Transfrau und Bloggerin in einer Twitter-Videobotschaft vor dem offiziellen Pressebanner der ukrainischen Territorialverteidigung.
+
+
+-----
+
+Die Nachricht über das erneute Verschwinden von Gonzalo Lira verbreitete sich in den alternativen Medien
+wie ein Lauffeuer. Ob es diesmal möglich sein wird, mithilfe der Öffentlichkeit genug Druck auf die ukrainischen Behörden auszuüben und Liras Freilassung zu bewirken, ist ungewiss. Die chilenische Botschaft hat
+sich für ihn eingesetzt, schilderte Lira in seiner letzten Videobotschaft. Die US-Botschaft habe ihm hingegen
+jegliche Hilfe versagt. Aussenpolitiker wie Viktoria Nuland sähen ihn lieber tot als lebendig, sagte er.
+_Quelle: https://freedert.online/europa/176834-journalist-bestaetigt-festnahme-von-gonzalo/_
+
+## Verbreitung des richtigen Friedenssymbols
+
+Das falsche Friedenssymbol – die heute weltweit verbreitete sogenannte
+
+**Es soll FRIEDEN sein auf Erden** <Todesrune>, die aus den keltischen Futhark-Runen resp. der umgedrehten Algiz
+**And there shall be PEACE on Earth** Rune fabriziert wurde – ist der eigentliche Inbegriff negativer Einflüsse und schafft
+
+zerstörerische Schwingungen hinsichtlich Unfrieden, Fehden und Hass, Rache,
+Laster, Süchte und Hörigkeit, denn die <Todesrune> bedeutet für viele Menschen
+
+**AMANI** **ΕΙΡΗΝΗ**
+
+Reminiszenzen an die NAZI-Zeit, an Tod und Verderben, wie aber auch Ambitionen
+
+**BARIŞ** **VREDE**
+
+in bezug auf Kriege, Terror, Zerstörungen vieler menschlicher Errungenschaften und
+
+**PAQE** **��** allen notwendigen Lebensgrundlagen jeder Art und weltweit Unfrieden.
+**PACE** **שרום**
+**МИР** शांित Es Ist wirklich dringlichst notwendig, dass die <Todesrune> als falsches
+**PAIX** **���** Friedenssymbol, das Unfrieden und Unruhe schafft, völlig aus der Erdenwelt
+**PAZ** **��** verschwindet und dadurch das uralte sowie richtige Peacesymbol auf der ganzen
+
+Erde verbreitet und weltbekanntgemacht wird, dessen zentrale Elemente
+Frieden, Freiheit, Harmonie, Stärkung der Lebenskraft, Schutz,
+
+**FIGU.ORG**
+
+Wachstum und Weisheit reflektieren, aufbauend wirken und
+
+**FIGU, Semjase-Silver-Star-Center, 8495 Schmidrüti**
+**Schweiz/Switzerland  Tel. + 41 (0)52 385 13 10** sehr besänftigend und friedlich-positiven Schwingungen
+
+zum Durchbruch verhelfen, die effectiv Frieden,
+Freiheit und Harmonie vermitteln können!
+
+Wir wenden uns deshalb an alle FIGU-Mitglieder, an alle FIGU-Interessengruppen, Studien- und Landesgruppen
+sowie an alle vernünftigen und ehrlich nach Frieden, Freiheit, Harmonie, Gerechtigkeit, Wissen und Evolution
+strebenden Menschen, ihr Bestes zu tun und zu geben, um das richtige Friedenssymbol weltweit zu
+verbreiten und Aufklärung zu schaffen über die gefährliche und destruktive Verwendung
+der <Todesrune> die in Erinnerung an die NAZI Verbrechen kollektiv im Sinnen und
+
+
+-----
+
+Trachten der Menschen Charakterverlotterung, Ausartung und Unheil fördert.
+
+**Autokleber** **Bestellen gegen Vorauszahlung:** **E-Mail, WEB, Tel.:**
+**Grössen der Kleber:** **FIGU** info@figu.org
+120x120 mm = CHF 3.– Hinterschmidrüti 1225 www.figu.org
+250x250 mm = CHF 6.– 8495 Schmidrüti Tel. 052 385 13 10
+300X300 mm = CHF 12.– Schweiz Fax 052 385 42 89
+
+**IMPRESSUM** **Für** **CHF/EURO 10.– in einem Couvert senden**
+**FIGU-SONDER-ZEITZEICHEN** **wir Dir/Ihnen 3 Stück farbige Friedenskleber**
+**Druck und Verlag: FIGU** Wassermannzeit Verlag, ------der Grösse **120x120 mm. = Am Auto aufkleben.**
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+**Redaktion: BEAM** ‹Billy› Eduard Albert Meier,
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+Wird auch im Internetz veröffentlicht
+**Erscheint sporadisch auf der FIGU-Webseite**
+
+**Postcheck-Konto: FIGU Freie Interessengemeinschaft,**
+8495 Schmidrüti, PC 80-13703-3
+
+Geisteslehre Friedenssymbol
+
+IBAN: CH06 0900 0000 8001 3703 3
+**E-Brief: info@figu.org** **Frieden**
+**Internetz: www.figu.org**
+**FIGU-Shop: http://shop.figu.org** Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+
+wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten
+Tritt dazu macht, um dann nachfolgend in Friedsamkeit jeden weiteren Schritt
+
+**© FIGU 2023** bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun.
+
+SSSC, 10. September 2018, 16.43 h, Billy
+
+Einige Rechte vorbehalten.
+Dieses Werk ist, wo nicht anders
+angegeben, lizenziert unter :
+www.figu.org/licenses/by-nc-nd/2.5/ch/
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung des Urhebers ausdrücklich erlaubt.**
+Erschienen im Wassermannzeit-Verlag: FIGU, ‹Freie Interessengemeinschaft Universell›, Semjase-Silver-Star-Center,
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+

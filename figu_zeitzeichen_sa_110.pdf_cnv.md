@@ -1,0 +1,1485 @@
+10. Jahrgang
+Nr. 110 April/2 2024
+
+
+Erscheinungsweise:
+sporadisch
+
+
+#### Sonderausgabe
+## FIGU ZEITZEICHEN
+
+###### Aktuelles • Einsichten • Erkenntnisse
+
+Internetz: http://www.figu.org
+E-Brief:  info@figu.org
+
+
+###### Organ für freie, politisch unabhängige Berichterstattungen zum Weltgeschehen, kommentarlose, neutrale und meinungslose Weitergabe von Zeitungsberichten. ***************************************************************************
+Laut ‹Allgemeine Erklärung der Menschenrechte›, verkündet von der Generalversammlung der Vereinten Nationen am 10. Dezember 1948,
+herrscht eine allgemeine ‹Meinungs- und Informationsfreiheit› vor, und dieses unumschränkte Recht gilt weltweit und absolut für jeden
+einzelnen Menschen weiblichen oder männlichen Geschlechts jeden Alters und Volkes, jedes gesellschaftlichen Standes wie auch in
+bezug auf rechtschaffene Ansichten, Ideen und jeglichen Glauben jeder Philosophie, Religion, Ideologie und Weltanschauung:
+
+**Art. 19 Menschenrechte**
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit, Meinungen**
+**unangefochten anzuhängen und Informationen und Ideen mit allen Verständigungs-**
+**mitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Ansichten, Aussagen, Darstellungen, Glaubensgut, Ideen, Meinungen sowie Ideologien jeder Art in Abhandlungen, Artikeln
+und in Leserzuschriften usw. müssen in keiner Art und Weise zwingend identisch mit dem Gedankengut und den
+Interessen, mit der ‹Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens›, wie auch nicht in
+irgendeiner Sachweise oder Sichtweise mit dem Missionsgut und dem Habitus der FIGU verbindend sein.
+==================================================================================
+==================================================================================
+Für alle in den FIGU-Zeitzeichen und anderen FIGU-Periodika publizierten Beiträge und Artikel verfügt die
+FIGU über die notwendigen schriftlichen Genehmigungen der Autoren bzw. der betreffenden Medien!
+###### ****************************************************************************************
+
+**Auf vielfach geäusserten Wunsch aus der Zeitzeichen-Leserschaft sollen in den Zeitzeichen zur Orientierung der**
+**Rezipienten laufend Auszüge diverser wichtiger Belange aus neuest geführten Kontaktgesprächsberichten**
+**veröffentlicht werden, wie nach Möglichkeit auch alte sowie neue Fakten betreffs weltweit bösartig mit**
+**Lügen, Betrug, Verleumdung und Mordanschlägen gegen BEAM geführte Kontroversen.**
+
+###### **********************************************************************************
+ Frankreich in voller Montur und jetzt wohin?
+_Von M. K. Bhadrakumar 14. März 2024 - übernommen indianpunchline.com, 6. März 2024_
+
+**Seit seiner schmachvollen Niederlage in den napoleonischen Kriegen befindet sich Frankreich in der**
+**misslichen Lage von Ländern, die zwischen Grossmächten eingeklemmt sind. Nach dem Zweiten Welt-**
+**krieg begegnete Frankreich diesem Dilemma, indem es eine Achse mit Deutschland in Europa bildete.**
+
+In einem ähnlichen Dilemma gefangen, passte sich Grossbritannien an eine subalterne Rolle an, indem es
+die amerikanische Weltmacht anzapfte, aber Frankreich hat sein Streben nach Wiedererlangung des Ruhms
+als Weltmacht nie aufgegeben. Und das ist nach wie vor ein Prozess, der noch nicht abgeschlossen ist.
+Die Angst der Franzosen ist verständlich, denn die fünf Jahrhunderte westlicher Dominanz in der Weltordnung neigen sich dem Ende zu. Dieses Dilemma verurteilt Frankreich zu einer Diplomatie, die sich ständig
+in einem Schwebezustand befindet, der von plötzlichen Anfällen von Aktivismus unterbrochen wird.
+Aber damit Aktivismus ergebnisorientiert ist, braucht es Voraussetzungen wie die Profilierung gleichgesinnter Aktivistengruppen, Führungspersönlichkeiten und Mitarbeiter, Unterstützer und Sympathisanten – und,
+was am wichtigsten ist, Unterstützung und Logistik. Andernfalls gleicht der Aktivismus epileptischen Anfällen, einem unheilbaren Leiden des Nervensystems.
+
+
+-----
+
+_Der französische Staatspräsident Emmanuel Macron bei einer Konferenz (Archivfoto)_
+
+Die glücklichen Tage des französischen Präsidenten Emmanuel Macron in der internationalen Diplomatie
+endeten mit der jüngsten Auflösung der deutsch-französischen Achse in Europa, die auf die Römischen
+Verträge von 1957 zurückgeht. Als Berlin zum transatlantischen Dogma seiner Aussenpolitik überging,
+schwand Frankreichs Einfluss in europäischen Angelegenheiten.
+Bei dem Versöhnungstreffen am Freitag steht viel auf dem Spiel, da Macron nach Berlin reist, um Bundeskanzler Olaf Scholz zu treffen, der ihn nicht nur brüskiert hat, indem er den Einsatz von Bodentruppen aus
+europäischen Ländern im Ukraine-Krieg ausgeschlossen hat, sondern auch in der Frage der Taurus-Raketen
+mit dem Argument nachgehakt hat, dass dies die Entsendung von deutschem Personal zur Unterstützung
+der Ukraine nach sich ziehen würde, was, wie er am Mittwoch im Bundestag verkündete, einfach ‹nicht in
+Frage› kommt, solange er Bundeskanzler bleibt.
+Damit soll natürlich nicht Macrons formidabler Intellekt in Abrede gestellt werden – etwa als er Ende 2019
+in einem unverblümten Interview mit dem Magazin ‹Economist› erklärte, Europa stehe ‹am Rande eines
+Abgrunds› und müsse anfangen, sich strategisch als geopolitische Macht zu begreifen, um nicht in die Lage
+zu kommen, «nicht mehr die Kontrolle über unser Schicksal zu haben». Macrons vorausschauende Bemerkung kam 3 Jahre vor dem Krieg in der Ukraine.
+Laut der Zeitung ‹Marianne›, die mehrere französische Soldaten befragte, geht das Militär angeblich davon
+aus, dass der Krieg in der Ukraine bereits unwiederbringlich verloren ist. ‹Marianne› zitierte einen hochrangigen französischen Offizier mit den spöttischen Worten: «Wir dürfen gegenüber den Russen keinen
+Fehler machen; wir sind eine Armee von Cheerleadern», und die Entsendung französischer Truppen an die
+ukrainische Front sei einfach ‹nicht vernünftig›. Im Élysée-Palast argumentierte ein ungenannter Berater,
+Macron wolle «ein starkes Signal senden... (in) millimetergenauen und kalibrierten Worten».
+Die Redakteurin von ‹Marianne›, Natacha Polony, schrieb:
+_«Es geht nicht mehr um Emmanuel Macron oder seine Posen als männlicher kleiner Führer. Es geht nicht einmal_
+_mehr um Frankreich oder seine Schwächung durch blinde und unverantwortliche Eliten. Es geht um die Frage,_
+_ob wir kollektiv in einen Krieg schlafwandeln werden. Einen Krieg, von dem niemand behaupten kann, dass er_
+_kontrolliert oder eingedämmt werden kann. Es geht um die Frage, ob wir bereit sind, unsere Kinder in den Tod_
+_zu schicken, weil die Vereinigten Staaten darauf bestanden haben, Stützpunkte an Russlands Grenzen einzurich-_
+_ten.»_
+Die grosse Frage ist, warum Macron dies trotzdem tut und so weit geht, eine ‹Koalition der Willigen› in
+Europa zusammenschustern zu wollen. Es gibt eine Reihe von Erklärungen, angefangen bei Macrons Selbstdarstellung und dem Versuch, mit minimalen Kosten politische Punkte zu sammeln, motiviert durch persönliche Ambitionen und innereuropäische Reibungen mit Berlin.
+Aber bis vor kurzem war Macron noch ein Befürworter des Dialogs mit Moskau. In den meisten europäischen Hauptstädten, auch in Moskau, wird der Eindruck erweckt, dass Macron versucht, die Ukraine-Krise
+auf eine neue Ebene zu heben, indem er öffentlich einen westlichen Kampfeinsatz gegen Russland ankündigt, was eine offensichtliche politische Manipulation darstellt.
+
+
+-----
+
+Die geopolitische Brisanz liegt darin, dass Macron, der noch vor nicht allzu langer Zeit zum Dialog mit
+Moskau aufgerufen und seine Vermittlung angeboten hat, der die berühmte Erklärung eines ‹Grösseren
+Europas› im Jahr 2019 abgegeben und Kontakte zum russischen Präsidenten Wladimir Putin unterhalten
+hat; der im Februar letzten Jahres, als er von der ‹sicheren Niederlage› Russlands in der Ukraine sprach,
+dazu aufgerufen hat, eine ‹Demütigung› Moskaus zu vermeiden; der wiederholt sein Bekenntnis zu der
+Charles de Gaulle zugeschriebenen Matrix der Diplomatie unterstrichen hat, die Frankreich die Rolle einer
+‹Brücke zwischen Ost und West› zuwies – ist nun ins andere Extrem einer harten euro-atlantischen Rhetorik
+geschwenkt.
+Diese erschreckende Unbeständigkeit kann nur als Folge der ungünstigen Entwicklung der Ereignisse im
+Szenario der Ukraine-Krise gesehen werden, bei der die Aussicht auf eine russische Niederlage in diesem
+Krieg nicht mehr im Entferntesten besteht und durch die wachsende Möglichkeit ersetzt wird, dass ein Frieden letztlich nur zu Russlands Bedingungen erreicht werden kann. Anders ausgedrückt: Die Machtdynamik
+in Europa verschiebt sich dramatisch, was sich natürlich auf Macrons eigene Ambitionen, ‹Europa zu führen›, auswirkt.
+In der Zwischenzeit haben die russisch-französischen Beziehungen ebenfalls eine Phase heftiger Konkurrenz und Rivalität – ja sogar Konfrontation – in einer Reihe von Bereichen durchlaufen. So sagte der französische Aussenminister Stephane Sejournet in einem Interview mit ‹Le Parisien› im Januar, dass Russlands
+Sieg in der Ukraine dazu führen würde, dass 30% der weltweiten Weizenexporte von Moskau kontrolliert
+würden. Für Paris ist dies eine Frage der Nachhaltigkeit eines der Schlüsselsektoren der französischen
+Volkswirtschaft.
+Die französische Landwirtschaft ist durch ihre Geschichte geprägt, die mit den Galliern im Jahr 2000 v.
+Chr. ihren Anfang nahm. In der modernen Geschichte war die Französische Revolution von 1789, die alle
+Teile der französischen Gesellschaftsordnung veränderte und zur Abschaffung der Privilegien der Oberschicht führte, auch eine landwirtschaftliche Revolution, die eine umfassende Umverteilung von Land
+ermöglichte. Es genügt zu sagen, dass die Bindung der französischen Bevölkerung an ihre Landwirtschaft
+sehr stark ist.
+Nun ändern die afrikanischen Staaten aufgrund der technischen Vorschriften, die die Europäische Union
+im Rahmen ihrer Umweltagenda eingeführt hat, die Struktur der Getreideeinfuhren, und die französischen
+Landwirte sehen sich mit steigenden Kosten konfrontiert, und darüber hinaus droht nun auch noch der
+Verlust regionaler Marktanteile an Russland.
+Hinzu kommt, dass Russland in letzter Zeit bei den Waffenexporten auf dem afrikanischen Kontinent auf
+dem Vormarsch ist. Auch in politisch-militärischer Hinsicht hat Frankreich in der rohstoffreichen Sahelzone,
+die traditionell seine Ex-Kolonien und sein Laufgitter ist, gegenüber Russland an Boden verloren. Tatsache
+ist, dass Frankreichs neokoloniale Strategien in Afrika auf dem Prüfstand stehen, aber Paris zieht es vor,
+die Schuld auf die russische Wagner-Gruppe zu schieben, die in das Sicherheitsvakuum in der Sahelzone
+eingedrungen ist, da antifranzösische Kräfte in mehreren Ländern gleichzeitig an die Macht gekommen
+sind – Mali, Niger, Burkina Faso, Tschad, Zentralafrikanische Republik.
+In bester geopolitischer Tradition hat Frankreich begonnen, in Regionen, die für russische Interessen empfindlich sind, Vergeltung zu üben – in Armenien, Moldawien und der Ukraine, wo die russische Militärpräsenz im französischen Fadenkreuz steht. Es überrascht nicht, dass die Ukraine das strategischste Gebiet
+ist, in dem Macron hofft, eine grössere französische Präsenz zu erreichen.
+Auf diese Weise hofft Macron, seine Führungsambitionen in Europa voranzutreiben und die aussenpolitische Strategie der EU in einem weiten Bogen vom afrikanischen Kontinent über das Mittelmeer bis nach
+Transkaukasien – und möglicherweise bis nach Afghanistan – zu steuern.
+All dies spielt sich vor dem historischen Hintergrund eines unvermeidlichen Rückzugs der USA in Europa
+ab, während sich der indopazifische Raum zuspitzt und die schwelende Rivalität mit China zu einer alles
+verzehrenden Leidenschaft für Washington wird. Parallel dazu wird die überragende Präsenz Russlands in
+ganz Europa immer deutlicher spürbar, da es als militärische und wirtschaftliche Macht Nummer eins im
+strategischen Raum zwischen Vancouver und Wladiwostok aufsteigt.
+Das Paradoxe ist, dass der damalige russische Präsident Dmitri Medwedew bereits 2008 einen rechtsverbindlichen paneuropäischen Sicherheitsvertrag vorgeschlagen hatte, der eine neue Sicherheitsarchitektur
+in Europa schaffen sollte, die die Umgestaltung bestehender und die Schaffung neuer Institutionen und
+Normen zur Regelung der Sicherheitsbeziehungen in Europa in einem grösseren geopolitischen Raum, der
+sich östlich ‹von Vancouver bis Wladiwostok› erstreckt, beinhaltet. Doch leider ermutigten die USA die Europäer, die so genannte ‹Medwedew-Initiative› als eine Falle zur Schwächung der NATO, der OSZE, der EU
+und anderer europäischer Gremien zu betrachten und diese wunderbare Idee abzulehnen, die die Ära nach
+dem Kalten Krieg fest in einer verbindlichen Sicherheitsarchitektur verankert hätte.
+_Quelle: https://www.indianpunchline.com/france-all-dressed-up-and-nowhere-to-go/_
+_Die Übersetzung besorgte Andreas Mylaeus_
+_Quelle: https://seniora.org/politik-wirtschaft/frankreich-in-voller-montur-und-jetzt-wohin_
+
+
+-----
+
+###### England – Liz Truss, ehemalige Premierministerin:  Die Politiker haben nichts zu sagen
+_Freitag, 15. März 2024, von Freeman-Fortsetzung um 09:12_
+
+Wie recht sie doch hat. Auch Bundesrat Cassis ist im wesentlichen nur eine Sprechpuppe …
+_Quelle:_
+_http://alles-schallundrauch.blogspot.com/2024/03/england-liz-truss-ehemalige.html#ixzz8UoJ1bwfk_
+
+###### Der grüne Krieg
+_Erstellt von wimmer,10 März 2024_
+
+Sehr geehrter Herr Bundeskanzler,
+Sie waren vor einigen Tagen in Rom beim Heiligen Vater. Der öffentlich bekannt gemachte Anlass war eindeutig und Ihre Überlegungen werden im deutschen Volk weit geteilt. Vielleicht nicht bei denjenigen, die
+feste Bestandteile der transatlantischen Steuerungselemente sind oder auf Fremdmittel angewiesene
+‹Experten› genannt werden. Die Funktion beider ist eindeutig und in unserem Land in der derzeitigen Lage
+bestimmend, leider.
+
+
+-----
+
+Sie und die Öffentlichkeit sollten wissen, wie ich darüber denke und was mich bewegt, bevor wir wieder
+gegen andere Völker aufgehetzt werden.
+Zum Jahresende 1989 befand ich mich nach einer Begegnung von Herrn Bundeskanzler Dr. Helmut Kohl
+im Bundeskanzleramt mit einer von mir eingeladenen Gruppe sowjetischer Generale von Bonn aus auf
+dem Weg nach Mönchengladbach. Im Münster zu Mönchengladbach wollten wir ein Weihnachtskonzert
+des Territorialkommandos der Bundeswehr besuchen. Wegen starken Schneefalls kamen wir nicht bis Mönchengladbach, aber bis zu unserem Haus in Jüchen, an der Stadtgrenze zu Mönchengladbach. Damit die
+sowjetischen Besucher überhaupt aus den Fahrzeugen ins Haus kommen konnten, hat meine Frau alleine
+die Schneemassen auf der Strasse vor unserem Haus beseitigt.
+Von dieser Stunde an haben wir mit unseren russischen Nachbarn die Erfahrungen gemacht wie mit unseren holländischen oder norddeutschen Nachbarn auch, nämlich gute Erfahrungen. Das gilt menschlich und
+politisch, solange wie ich es als Abgeordneter des Deutschen Bundestages beurteilen konnte. Mir ist durchaus bekannt, das seinerzeit in der Allianz für den Fall geplant worden ist, dass vor allem Russland das
+Elend, in das es gefallen war, würde hinter sich lassen können. Ich hatte aber noch das im Gedächtnis, was
+Kolleginnen und Kollegen und mir Monate vorher die Führungsspitze des amerikanischen Auslandsnachrichtendienste in Washington/Langley uns deutschen Abgeordneten mit auf den Weg gegeben hatte. Das
+ist übrigens vor einiger Zeit offiziell in Washington publiziert worden. Danach sei, als Konsequenz aus den
+Verheerungen durch Napoleon und Hitler, die Sowjetunion in Europa rein defensiv unterwegs.
+Es vergeht kein Tag, an dem nicht gegen Hass und Hetze gewettert wird. Wenn man ins Land hinein hört,
+gilt das nicht für Hass und Hetze mit denen Russland, seine politische Führung und Einzelpersönlichkeiten
+überzogen werden. Unsere Friedhöfe sind voll von Grabstellen für die Ewigkeit. Es sind Gefallene des letzten
+Krieges. Dem sollen und dürfen keine neuen Gräber hinzugefügt werden.
+Fahren Sie, sehr geehrter Herr Bundeskanzler, immer wieder zum Heiligen Vater. Das deutsche Volk sieht
+schon, dass Sie es sind, der fährt.
+Mit vorzüglicher Hochachtung und den besten Wünschen für Ihren Dienst für den Frieden
+Willy Wimmer
+_Bilder: willy wimmer, vatikan media, screenshot_
+_Die Meinung des Autors/Ansprechpartners kann von der Meinung der Redaktion abweichen. Grundgesetz Artikel 5 Absatz_
+_1 und 3 (1) «Jeder hat das Recht, seine Meinung in Wort, Schrift und Bild frei zu äussern und zu verbreiten und sich aus_
+_allgemein zugänglichen Quellen ungehindert zu unterrichten. Die Pressefreiheit und die Freiheit der Berichterstattung durch_
+_Rundfunk und Film werden gewährleistet. Eine Zensur findet nicht statt.»_
+_Quelle: https://www.world-economy.eu/nachrichten/detail/der-gruene-krieg/_
+
+Liebe Grüsse und Saalome,
+José Barreto Silva
+*****👇
+
+_GOP-Kongressmitglied Tim Walberg schlägt Atombombenabwurf auf Gaza vor_
+_(Die Republikanische Partei, auch bekannt als GOP - Grand Old Party)_
+
+**«Es sollte so sein wie bei Nagasaki und Hiroshima», sagte der Abgeordnete Tim Walberg in einer Stadt-**
+**halle in Michigan. «Sie schnell zu Ende bringen.» Sagte Tim Walberg.**
+
+_VON MICHAEL ARRIA 1. APRIL 2024_
+**Ein GOP-Kongressabgeordneter in Michigan hat öffentlich dazu aufgerufen, den Gazastreifen zu bombar-**
+**dieren**
+
+
+-----
+
+Letzte Woche kursierte ein Video aus einer Bürgerversammlung auf Twitter. Der Videoclip zeigt den Republika**ner und ‹guten› christlichen Pastor Tim Walberg (R-MI), der auf die Frage eines Wählers antwortet, ob die**
+USA einen schwimmenden Pier vor der Küste des Gazastreifens bauen sollten, um humanitäre Hilfslieferungen
+zu unterstützen.
+**«Ich glaube nicht, dass wir auch nur einen Cent für humanitäre Hilfe ausgeben sollten, die an Israel geht,**
+**um unseren wohl grössten Verbündeten in der Welt zu unterstützen, um die Hamas und den Iran und**
+**Russland zu besiegen, und wahrscheinlich ist auch Nordkorea dabei, und auch China, das die Hamas**
+**unterstützt», sagte er in Dundee, Michigan. «Es sollte wie bei Nagasaki und Hiroshima sein. Sie schnell**
+**zu Ende bringen. Das Gleiche sollte in der Ukraine geschehen. Besiegt Putin schnell.»**
+Sagte der Republikaner Tim Walberg.
+Tim Walberg, ein ehemaliger christlicher Pastor, hat sich nicht für seine Äusserungen entschuldigt, sondern eine
+Erklärung veröffentlicht, in der er behauptet, seine Äusserungen seien ‹falsch interpretiert› worden.
+_Nachrichten in Kürze, übersetzt vom Englischen ins Deutsche von José Barreto Silva – Brasilien_
+_Quelle in englischer Sprache:_
+_https://mondoweiss.net/2024/04/gop-congress-member-suggests-nuclear-bomb-be-dropped-on-gaza/_
+
+_Juan Cole, Professor für Geschichte des modernen Nahen Ostens © DemocracyNow (Archivbild)_
+
+###### USA betreiben im Sicherheitsrat eine reine Heuchelei
+_Juan Cole / 2.04.2024; INFOsperber_
+
+**Das höchste UN-Gremium fordert dank Stimmenthaltung der USA den sofortigen Waffenstillstand in**
+**Gaza. Doch dies sei ‹nicht bindend›.**
+
+_upg. Juan Cole ist Professor für Geschichte an der University of Michigan. Er veröffentlichte mehrere Bücher_
+_zum Nahen Osten und ist Übersetzer für Arabisch und Persisch. Diesen hier leicht gekürzten Beitrag ver-fasste_
+_er als Chefredaktor von Informed Comment._
+
+Die USA betreiben eine reine Heuchelei: Sie hatten sich auf ‹verbindliche Resolutionen› des UN-Sicherheitsrats berufen, um in den Irak einzumarschieren. Jetzt halten sie die Forderung nach einem Waffenstillstand
+im Gazastreifen für ‹unverbindlich›.
+Es war Matthew Miller, Sprecher des US-Aussenministeriums, der die Resolution 2728 des UN-Sicherheitsrats, die einen sofortigen Waffenstillstand im Gaza-Konflikt fordert, als ‹unverbindlich› bezeichnete. Das
+Gleiche sagte die US-Botschafterin bei der UNO, Linda Thomas-Greenfield.
+China wies die USA zurecht: «Resolutionen des Sicherheitsrates sind bindend», sagte Lin Jian, ein Sprecher
+des chinesischen Aussenministeriums.
+Peking hat recht, was das Gesetz angeht. Die Regierung Biden ist unaufrichtig. Wenn Präsident Biden nicht
+wollte, dass eine Waffenstillstandsresolution verabschiedet wird, hätte er sein Veto einlegen müssen. Indem
+er sich der Stimme enthielt und die Weltgemeinschaft über die Angelegenheit abstimmen liess, hat Biden
+eine verbindliche Entscheidung herbeigeführt. Seine Beamten sollten aufhören, darum herumzutanzen.
+
+
+-----
+
+Die Rechtslage ist eindeutig: In Artikel 25 der UN-Charta, die auch die USA, China und Israel unterzeichnet
+haben, heisst es: «Die Mitglieder der Vereinten Nationen verpflichten sich, die Beschlüsse des Sicherheitsrates in Übereinstimmung mit dieser Charta anzunehmen und auszuführen.»
+Hier der Wortlaut der jüngsten Resolution:
+«Der UN-Sicherheitsrat fordert einen sofortigen Waffenstillstand für den Monat Ramadan, der von allen
+Parteien respektiert wird und zu einem dauerhaften und nachhaltigen Waffenstillstand führt. Er fordert ferner die sofortige und bedingungslose Freilassung aller Geiseln sowie die Gewährleistung des Zugangs für
+humanitäre Hilfe, um ihre medizinischen und sonstigen humanitären Bedürfnisse zu befriedigen. Er fordert
+ferner, dass die Parteien ihren völkerrechtlichen Verpflichtungen in Bezug auf alle Personen nachkommen,
+die sie festhalten.» Resolution 2728 des UN-Sicherheitsrats.
+Man muss sich schon sehr verrenken, um aus der mehrfachen Verwendung des Verbs ‹fordern› zu schliessen, der Sicherheitsrat sehe den Waffenstillstand nicht als verbindlich an. Der UN-Sicherheitsrat schlägt
+nichts vor. Er hofft nicht. Er fleht nicht an. Er fordert.
+Die Heuchelei Washingtons in dieser Angelegenheit ist legendär und umwerfend.
+Nach dem Golfkrieg von 1990 bis 1991 hatte der UN-Sicherheitsrat Resolutionen verabschiedet, in denen
+er die Abrüstung des Iraks forderte. Wir wissen heute, dass der Irak dieser Forderung nachkam. Doch die
+USA und andere Grossmächte weigerten sich, den diesbezüglichen Beteuerungen oder sogar Dokumenten
+Bagdads Glauben zu schenken.
+Einer der Gründe, die George W. Bush dann für den Einmarsch in den Irak anführte, war, dass die Resolutionen des Sicherheitsrats nicht eingehalten worden seien. Bush vertrat die Ansicht, dass die USA nicht nur
+für eigene Ziele handelten, sondern dass sie mit dem Angriff die Autorität des UN-Sicherheitsrats aufrechterhalten würden.
+Robert McMahon von Radio Free Europe/Radio Liberty schrieb damals im Jahr 2002: «US-Präsident
+George W. Bush drückte seine Frustration und seine Besorgnis aus und sagte, dass die lange Missachtung
+der Abrüstungsresolutionen der Vereinten Nationen durch den Irak die Glaubwürdigkeit der UNO in Frage
+gestellt habe.»
+Die Missachtung einer Resolution des UN-Sicherheitsrats ist also nach Ansicht Washingtons eine so ernste
+Angelegenheit, dass sie zu einer Invasion und zum Sturz einer Regierung führen kann.
+Es ist offensichtlich, dass die USA die Resolutionen des UN-Sicherheitsrats damals nicht für unverbindlich
+hielten.
+Auch im Jahr 2007 nicht, als der UN-Sicherheitsrat aus Enttäuschung über die Nichteinhaltung der Forderungen an den Iran, seine zivilen nuklearen Anreicherungsaktivitäten einzustellen, ein Embargo gegen Waffenverkäufe aus Teheran beschloss. Um diesen Beschluss gegen den Iran durchzusetzen, erlaubte der UNSicherheitsrat sogar das Anhalten von Schiffen auf hoher See, die im Verdacht stehen, iranische Waffen zu
+transportieren.
+Der UN-Sicherheitsrat erlaubte in einem anderen Fall sogar das Entern von Schiffen, die nordkoreanische
+Waren transportieren. Normalerweise ist die Freiheit der Schifffahrt auf hoher See ein absolutes internationales Recht. Aber der UN-Sicherheitsrat kann tun, was er will. Er verhängte gegen Pjöngjang umfangreiche
+Wirtschaftssanktionen.
+Vor der Abstimmung über die Gaza-Resolution im Sicherheitsrat äusserten sich einige Länder klar:
+Carolyn Rodrigues-Birkett aus Guyana: «Die Forderung [des Sicherheitsrates] kommt zu einem wichtigen
+Zeitpunkt, da die Palästinenser den heiligen Monat Ramadan begehen.»
+Sie sprach von einer ‹Forderung› und sagte, dass «nach mehr als fünf Monaten eines Krieges des absoluten
+Terrors und der Zerstörung ein Waffenstillstand den Unterschied zwischen Leben und Tod für Hunderttausende von Palästinensern und anderen Menschen bedeutet».
+Das klingt nicht nur nach einem höflichen Vorschlag.
+Chinas Zhang Jun erklärte: «Der aktuelle Entwurf ist unmissverständlich und richtig in seiner Richtung und
+fordert einen sofortigen Waffenstillstand, während der vorherige Entwurf ausweichend und zweideutig war.»
+Hwang Joonkook aus Südkorea sagte: «Die Situation muss vor und nach dieser Resolution anders sein. Das
+wird nur möglich sein, wenn sowohl Israel als auch die Hamas diese Resolution respektieren und getreu
+umsetzen.»
+Eben nicht freiwillig, sondern verbindlich.
+Es ist sonnenklar: Die Resolution 2728 des UN-Sicherheitsrates zu Gaza ist verbindlich. ‹Unverbindlich›
+wird sie nur in der Praxis: Die Biden-Regierung würde im Namen der USA ein Veto einlegen, falls der UNSicherheitsrat versuchte, Israel für seine Missachtung zu sanktionieren, so wie er es mit dem Irak, dem Iran
+und Nordkorea tat. Mit einem solchen Veto würden die USA die derzeitige faschistische Regierung in Israel
+schützen.
+Das ist keine hohe Diplomatie, sondern eine willkürliche und abstossende Parteinahme, die dem Völkerrecht und den ethischen Grundsätzen Hohn spricht.
+
+
+-----
+
+_Urs P. Gasche / 29.03.2024, INFOsperber, Mittwoch, 3.04.2024_
+
+_Die erfassten, selten auftretenden erhöhten relativen Risiken der Corona-Impfungen. Die absolute Zahl der Fälle_
+_pro 100’000 Einwohner ist sehr klein, doch bei rund 300 Millionen Geimpften in Europa sind es dann doch_
+_viele. © Daten: Studie in ‹Vaccine›. Grafik: DailyMail_
+
+###### Corona-Impfung: Jungen Gesunden bleiben nur Risiken und Schäden
+ Die bisher grösste Studie zeigt: Geimpfte haben ein leicht erhöhtes Risiko für Blut-, Herz- und Nervenerkrankungen.
+
+Die Studie wurde bereits am 12. Februar 2024 in der Fachzeitschrift ‹Vaccine› veröffentlicht. Es ist die bisher grösste Beobachtungsstudie über die häufigsten Nebenwirkungen der verschiedenen Corona-Impfungen. Bezahlt hat die Studie das US-Gesundheitsministerium und dessen Centers for Disease Control and
+Prevention (CDC), welche die Covid-Impfungen stets gefördert und empfohlen hatten.
+Es fällt auf, dass die meisten grossen Medien bisher nicht darüber informierten.
+Dank der mRNA-Impfungen sind viele betagte Menschen mit Grunderkrankungen nicht vorzeitig gestorben.
+Viele von ihnen mussten wegen einer Corona-Erkrankung auch nicht hospitalisiert werden. Dagegen war
+der Nutzen der Impfungen für Jugendliche und gesunde Erwachsene minim.
+Bei den Impf-Nebenwirkungen unterscheidet die ‹Vaccine›-Studie nicht zwischen Jung und Alt, Gesunden
+und Vorerkrankten. Sie hat folgende, selten auftretende, erhöhte relative Risiken der Corona-Impfungen
+erfasst:
+Die wichtigsten Resultate:
+
+- _Guillain-Barré-Syndrom:_
+Astra-Zeneca-Geimpfte hatten ein mehr als doppelt so hohes Risiko, am Guillain-Barré-Syndrom zu erkranken. Das ist eine Autoimmunerkrankung, bei der das Immunsystem das periphere Nervensystem
+des Körpers angreift, was zu einer Schädigung der Schutzhülle um die Nervenzellen führt. Die Folge ist
+eine aufsteigende Lähmung des ganzen Körpers.
+
+- _Myokarditis:_
+Geimpfte hatten ein dreifach erhöhtes Risiko, an Myokarditis (Herzmuskelentzündung) zu erkranken.
+Das Risiko war je nach Impfstoff, Land und erster, zweiter oder dritter Dosis nicht erhöht oder fast 24fach erhöht. Myokarditis ist eine Art Entzündung des Herzmuskels. Myokarditis wurde am häufigsten bei
+jungen Männern beobachtet. Es wird vermutet, dass sie mit der Immunreaktion zusammenhängt, die
+durch die mRNA-Impfstoffe von Pfizer und Moderna ausgelöst wird. Typische Folgen einer Myokarditis
+sind plötzlicher Herztod oder Herzmuskelschwäche.
+
+- _Perikarditis:_
+Darüber hinaus traten mehr Fälle von Perikarditis auf. Am deutlichsten war diese Zunahme im Zeitraum
+von 42 Tagen nach der dritten Astra-Zeneca-Dosis (fast siebenfach erhöht) sowie nach der ersten und
+der vierten Dosis des Moderna-Impfstoffs (1,7- beziehungsweise 2,6-mal mehr Fälle von Perikarditis).
+Bei der Perikarditis entzündet sich der schützende Beutel, der das Herz umgibt.
+
+- _Disseminierte Enzephalomyelitis:_
+Nach der ersten Dosis des Moderna-Impfstoffs bestand ein mehr als 3,7-faches Risiko für die sogenannte
+akute disseminierte Enzephalomyelitis (ADEM). Diese verursacht eine Schwellung des Gehirns und des
+Rückenmarks und schädigt die schützende Hülle der Nervenfasern in Gehirn und Rückenmark.
+
+
+-----
+
+- _Zerebrale Sinusvenenthrombose:_
+Nach einer ersten Dosis des Impfstoffs von AstraZeneca war das Risiko einer zerebralen Sinusvenenthrombose (CVST) 3,2-mal höher als erwartet. Die Risiken nach der ersten Dosis des Impfstoffs von
+Pfizer und nach der zweiten Dosis waren 1,49- bzw. 1,25-mal höher. Bei einer CVST kommt es zu einer
+Minderdurchblutung des Gehirns aufgrund des Verschlusses von Hirnvenen, was zu einer permanenten
+Schädigung des Gehirns führen kann.
+
+Die Studie ist eine konservative Schätzung der Impf-Nebenwirkungen. Beispielsweise wurden Schlaganfälle
+als mögliche Folge der Impfungen nicht erfasst. Auch schreiben die Autoren:
+«Möglicherweise hat die unzureichende Berichterstattung [Erfassung von möglichen Nebenwirkungen] in
+den einzelnen Ländern dazu geführt, dass die Bedeutung potenzieller Sicherheitssignale unterschätzt
+wurde. Es ist auch wichtig, das Ausmass von falsch-negativen Ergebnissen zu erkennen.»
+Professor Andreas Sönnichsen kritisiert, dass die Rohdaten, die in der Studie verwendet wurden, im Dunkeln bleiben. Für ‹sehr problematisch› hält er, dass die Studie nur den kurzen Zeitraum von sechs Wochen
+nach der Impfung berücksichtigte. Er kenne Patienten, die erst nach sechs Monaten einen plötzlichen Herztod erlitten. Und auch in den sechs Wochen habe die Studie nur bestimmte Nebenwirkungen erfasst, jedoch
+keine Todesfälle: «Was ist mit Patienten, die direkt nach der Impfung verstorben sind?» Es sei möglich, dass
+die Studie schwere Impfschäden unterschätzte. Sönnichsen war Professor für Allgemein- und Familienmedizin am Zentrum für Public Health der MedUni Wien und bis 2021 Vorsitzender des Deutschen Netzwerks Evidenzbasierte Medizin. Er hatte sich gegen die in Österreich gesetzlich beschlossene, wenn auch
+nie umgesetzte Impfpflicht ausgesprochen.
+Die Autoren der Studie in ‹Vaccine› weisen darauf hin, dass man ‹in einer Gesamtwertung› die Risiken der
+Impfungen mit dem Nutzen der Impfungen vergleichen müsse:
+«In mehreren Studien wurde nachgewiesen, dass das Risiko, an den untersuchten Ereignissen wie GuillainBarré-Syndrom, Myokarditis oder Enzephalomyelitis zu erkranken, nach einer SARS-CoV-2-Infektion höher
+ist als nach einer Impfung.»
+
+**Eine Fehleinschätzung**
+Auch Behörden in den USA, Deutschland und der Schweiz haben bei bekanntgewordenen Nebenwirkungen
+regelmässig behauptet, der Nutzen der Impfungen übersteige in jedem Fall bei weitem allfällige Nebenwirkungen. Denn dank der Impfungen komme es zu deutlich weniger Hospitalisierungen und zu weniger
+Todesfällen.
+Dies war und bleibt jedoch eine folgenschwere Irreführung. Denn Behörden wie das RKI oder die Swissmedic, Gesundheitsbehörden und Experten wussten genau, dass dies längst nicht für alle Bevölkerungsgruppen zutraf. Es war nicht so, dass der Nutzen der Impfungen für alle etwa gleich war. Mehrere Wissenschaftler hatten diese Irreführung früh beanstandet, nur wurden sie übergangen (siehe Links zu Infosperber-Artikeln aus dem Jahr 2021 am Schluss).
+Tatsächlich hatten gesunde Kinder, Jugendliche und Erwachsene mindestens bis zum Alter von 65 Jahren
+– wenn sie keine Vorerkrankungen hatten – keinen Nutzen von der Impfung. Sie wären auch ohne Impfungen nicht schwer erkrankt, nicht hospitalisiert worden und schon gar nicht wegen Corona gestorben. Dies
+gilt auch für sämtliche Soldaten und Mitarbeitenden im Gesundheitswesen in Deutschland, die zum Impfen
+gezwungen wurden.
+Dieser grosse Teil der Bevölkerung hatte keinen Nutzen von den Impfungen, ist jedoch von den Nebenwirkungen betroffen. Für sie ist der Schaden grösser als der Nutzen.
+
+**Beispiel Gürtelrosen und Herzmuskelentzündungen in Japan**
+Bereits im August 2021 hatten Wissenschaftler in Israel erste unerwünschte Wirkungen der Pfizer-BioNTech-Impfung nachgewiesen. In ihrer im ‹New England Journal of Medicine› veröffentlichten Studie wiesen
+sie absolute Zahlen aus: Bis sechs Wochen nach der Impfung kam es pro 100’000 Personen, die mit dem
+Impfstoff von Pfizer geimpft wurden, zu 78 zusätzlichen Lymphknotenschwellungen, 16 zusätzlichen Gürtelrosen (Herpes Zoster) und zu 2,7 zusätzlichen Erkrankungen an Herzmuskelentzündung (Myokarditis).
+Infektionen mit Sars-Cov-2 führten zu 11 zusätzlichen Herzmuskelentzündungen pro 100’000 Personen:
+Zusätzliche Fälle von Herzmuskelentzündung pro 100’000 Menschen: Nach einer Covid-Erkrankung und
+nach einer Pfizer-Impfung. Quelle: NEJM-Studie vom Sommer 2021. © Daten: NEJM. Grafik: DailyMail
+Wegen dieses und ähnlicher Vergleiche behaupteten Behörden und Experten, dass der Nutzen der Impfung
+das Risiko auf jeden Fall deutlich überwiege. Doch dabei berücksichtigen sie nicht, dass der Nutzen sehr
+einseitig verteilt ist: Dank der Impfungen kam es zu signifikant weniger Hospitalisierungen und Todesfällen
+– jedoch fast ausschliesslich bei älteren Menschen mit Grunderkrankungen. Doch gesunden Kindern,
+Jugendlichen und gesunden Erwachsenen nützten die Impfungen nichts, weil sie auch ohne Impfungen
+nicht hätten hospitalisiert werden müssen – von extrem seltenen Ausnahmen abgesehen. Für sie bleiben
+nur die Risiken und der Schaden, der für sie grösser ist als der Nutzen.
+
+
+-----
+
+**Trotz Wissen um Nebenwirkungen wurden Jugendliche und gesunde Erwachsene geimpft**
+Man wusste bereits Anfang 2021, dass Impfungen zwar sehr selten, aber eben doch teils schwere Nebenwirkungen haben 2021 (siehe Pfizer Sicherheitsreport vom Februar 2021). Trotzdem wurden Kinder, Jugendliche und gesunde Erwachsene geimpft. Angeblich sollten sie Gefährdete nicht anstecken. Dabei gab es bei
+der Zulassung der Impfung keinerlei Nachweis, dass Geimpfte weniger ansteckend seien als Ungeimpfte.
+Im Gegenteil: Der Verdacht wurde schnell bestätigt, dass die Impfung nicht vor der Weitergabe der Erkrankung schützt.
+Impfungen führten nach ersten Erkenntnissen in Israel sehr selten zu Herzmuskelentzündungen (Myokarditis) oder zu Erkrankungen an Gürtelrose (Herpes Zoster). Laut dieser frühen NEJM-Studie traf es 2,7 beziehungsweise 16 von 100’000 Geimpften (0,0027 bzw. 0,016%). Doch weil Milliarden Menschen geimpft
+wurden, ist die absolute Zahl der Betroffenen trotzdem erheblich. Das zeigen folgende Zahlen:
+Wenn in den EU-Ländern etwa 70 Prozent der insgesamt 450 Millionen Einwohnern geimpft wurden, gab
+es insgesamt über 300 Millionen Geimpfte. Legt man die frühe israelische Studie zugrunde, dann verursachte die Pfizer-BioNTech-Impfung 8100 Myokarditis-Erkrankungen (0,0027%) und 48’000 Erkrankungen an Gürtelrose (0,016%). Die Mehrheit dieser wegen der Impfung Erkrankten waren gesunde Jüngere
+und gesunde Erwachsene. Sie hatten von den Impfungen keinen Nutzen.
+
+Über das problematische Impfen von Jugendlichen hatte Infosperber schon früh informiert:
+23. Mai 2021
+**Der Nutzen der Corona-Impfung für Jugendliche wird nicht hinterfragt.**
+10. Juni 2021
+**Für Jugendliche gibt es kaum einen Grund, sich impfen zu lassen.**
+20. Juni 2021
+**Professor Thomas Mertens: «Eine Grippe trifft Kinder und Jugendliche stärker als Covid-19»**
+9. Juli 2021
+**Verwerfliche Anreize sollen Jugendliche zum Impfen bringen (1)**
+12. Juli 2021
+**Wenig gute Gründe für Jugendliche, sich impfen zu lassen (2)**
+22. Juli 2021
+**Professor Peter Kremsner: «Für Jugendliche ist Covid-Ansteckung harmloser als eine Impfung»**
+12. Oktober 2021
+**Für gesunde Junge sind Risiken der Impfung grösser als der Nutzen**
+29. Oktober 2021
+**Professor Philip Tarr: «Nicht-Impfen darf Jugendliche sozial nicht einschränken»**
+
+###### Überbevölkerung, vermeintliche ‹Menschenrechte› und die Dummheit des Elon Musk
+
+Dass unternehmerischer Erfolg und materielle Geschäftstüchtigkeit nicht mit Vernunft Hand in Hand gehen
+müssen, das bewies Elon Musk im Dezember 2023 mit seiner Aussage zur Überbevölkerung. Die populäre
+britische Forscherin Jane Goodall ist dafür bekannt, dass sie sich für eine friedliche Reduzierung der Weltbevölkerung einsetzt. Musk nahm das zum Anlass zu behaupten, Geburtenregelungen seien gleichbedeutend
+mit einem Völkermord an ungeborenen Kindern. Einem vernünftigen Menschen fällt es nicht nur schwer,
+diese Aussage zu verstehen, denn sie ist unzweifelhaft bohnenstrohdumm und zeugt von einer horrenden
+Unlogik, die nicht zu überbieten ist. Wie können Ungeborene ermordet werden, wenn sie doch weder gezeugt, noch im Mutterleib einer Frau ausgetragen, geschweige denn jemals geboren wurden? Musk möchte
+damit vielleicht ausdrücken, dass die Verhinderung der weiteren, explosionsartigen Vermehrung der
+Menschheit für ihn ein Verbrechen ist, weil den Menschen das vermeintliche Menschenrecht genommen
+wird, endlos und ungezügelt weiter Nachwuchs in die Welt zu setzten, ohne dabei an die Folgen zu denken
+und ohne die Verantwortung jedes einzelnen Menschen für die Natur und die Umwelt zu bedenken. Stattdessen befürwortet er gewissenlos das weitere Anwachsen der irdischen Überbevölkerung, die bald bei 10
+Milliarden Menschen angekommen sein wird, wenn man die von den Plejaren ermittelten Zahlen zugrunde
+legt. Denn anstatt der naturmässig vorgegebenen Ideal-Bevölkerungszahl von 529 Millionen Menschen
+**hat sich die Erdenmenschheit bis zum 31. Dezember 2023 auf sage und schreibe 9’446’218'012 = 9**
+**Milliarden, 446 Millionen, 218 Tausend und 12 Erdenbürger hochkatapultiert.**
+_(Quelle: https://www.figu.org/ch/ueberbevoelkerung)._
+
+Sein Völkermord-Vorwurf ist schlicht schwachsinnig und grenzenlos dämlich. Wenn er diesbezüglich nur
+ein bisschen Grips in seinem Hirn hätte, wäre ihm klar, dass das genaue Gegenteil seiner idiotischen Theorie
+der Wirklichkeit und Wahrheit entspricht, nämlich, dass die Wahnsinns-Überbevölkerung des Menschen der
+
+
+-----
+
+Erde sich zu einem Massen-Selbstmord und somit zu einem Völkermord-Suizid entwickelt, weil die verheerenden Folgen des ungebremsten Bevölkerungswachstums die Natur des Planeten Erde in allen Bereichen systematisch ruiniert und vernichtet, wodurch die Menschheit sich wirklich und wahrhaftig in absehbarer Zeit selbst auszurotten droht. Eine groteske, weil schlicht unmögliche Liebe zu ungezeugten und somit nichtexistierenden Kindern ist ein Motiv, das von ausgeprägter Ignoranz gegenüber der Verantwortung
+für die Umwelt und Natur des Planeten Erde spricht und einer kriminellen Gesinnung gleichkommt. Möglicherweise denkt Elon Musk aber einfach nur an seinen persönlichen Profit, der durch die weiterwachsende
+Überbevölkerung und potentielle Kundschaft seinen schon prall gefüllten Geldbeutel
+weiter anschwellen liesse.
+Im Artikel ‹Falschhumanismus bewirkt grausamste Ausartungen› (Nachzulesen bei https://www.freundderwahrheit.de/falschhumanismus_bewirkt_grausamste_ausartungen.html und im **Buch ‹Einsichten auf**
+**dem Weg zum effektiven Menschsein› von Achim Wolf) werden in einem ähnlichen Kontext folgende Fakten**
+aufgelistet, die Elon Musk zu denken geben sollten, falls er überhaupt eines objektiven, neutralen und
+verantwortungsbewusst-vernunftrügen Denkens fähig ist.
+
+- Ist es mit den Menschenrechten vereinbar, dass die Überbevölkerung bereits auf über das 16-fache der
+für die Erde als gesundes Mass berechneten 529 Millionen Menschen herangezüchtet wurde, wodurch
+immer mehr Zerstörungen durch Umweltverschmutzungen, Chemie, Erdausbeutung, Luft-, Wasser- und
+Bodenverseuchungen hervorgerufen werden, die unseren Planeten und uns Menschen immer mehr in
+Mitleidenschaft ziehen und das Leben wider alle Vernunft zusehends bedrängen und drangsalieren?
+
+- Ist es mit den Menschenrechten vereinbar, dass der Mitmensch und alle Mit-Lebensformen durch die
+verrückte Überbevölkerung für viele Menschen inzwischen fast keinen Wert mehr hat, sondern dass jeder
+Einzelne mehr und mehr nur noch auf sich selbst bedacht ist, um möglichst unbeschadet sein Leben
+zu fristen?
+
+- Ist es den Menschen gleichgültig, in welchen Verhältnissen die nachfolgenden Generationen leben
+werden, weil sie denken, mit dem Tod sei alles aus und sie nach dem krankhaften Motto ‹Nach mir die
+Sintflut› leben?
+
+- Wäre es nicht viel gesünder, vernünftiger, verantwortungsvoller und menschenwürdiger, endlich all die
+Übel zu erkennen, offen zu benennen und zu bekämpfen, die durch die Überbevölkerung entstanden
+sind und stetig schlimmer werden, anstatt sie andauernd verantwortungslos zu verharmlosen oder sogar
+zu ignorieren?
+
+- Ist es nicht weitaus menschenwürdiger, menschengerechter und verantwortungsbewusster, die Wurzel
+des weltumspannenden Übels der Überbevölkerung durch rigorose, weltweite Geburtenregelungen in
+den Griff zu bekommen, anstatt in Gleichgültigkeit, Phlegmatik, purem Egoismus und aus falscher
+Humanität heraus auf sinnvolle Regelungen zu verzichten, wodurch alle Zustände zwangsläufig noch
+grausamer und menschenverachtender werden müssen?
+
+- Besteht die Würde des Menschen nicht auch und vor allem darin, Verantwortung für das Leben und die
+Schöpfung zu übernehmen, anstatt tatenlos die Hände in den Schoss zu legen und zuzusehen, wie alles
+Leben langsam aber sicher dahinsiecht und die Menschen sich gegenseitig vernichten, weil es eines
+Tages keine Lebensgrundlagen mehr für sie gibt?
+
+- Erdenmensch – wo ist deine von dir selbst hochgelobte Intelligenz, wenn du nicht einmal in der Lage
+bist, die einfachsten Zusammenhänge zu erkennen und ein Leben in Gesundheit, Frieden, Harmonie,
+Frieden und Liebe auf einem gesunden Planeten ohne die alles erdrückende Überbevölkerung dir nichts
+wert zu sein scheint?
+
+
+-----
+
+**Pressemeldung vom Dezember 2023**
+
+_Elon Musk und Sohn., Copyright Imago / USA TODAY Network_
+
+USA. Auf ‹X› (vormals Twitter) kommentierte der Unternehmer Elon Musk einen Film mit Aussagen der
+**Schimpansen-Forscherin Jane Goodall mit den Worten: „Die Ungeborenen haben keine Stimme“. Die 80-**
+jährige Unterstützerin des ‹World Economic Forum› und Trägerin der ‹United Nations›-Auszeichnung ‹Messenger of Peace› ist eine bekannte Vertreterin der These der Überbevölkerung. In dem kurzen Filmausschnitt sagt Goodall, wenn sie einige Dinge ändern könnte, würde sie die Anzahl der Menschen auf der Erde
+reduzieren – ohne dabei Schmerz und Leid zu erzeugen. Ihre Begründung: «Es gibt zu viele von uns. Unser
+**Planet hat nur begrenzte Ressourcen und wir brauchen sie auf.» Vergangenen Montag schrieb Elon Musk**
+unter die Filmsequenz: «Sie liegt so falsch. Wer für die Minimierung der Menschheit plädiert, plädiert für
+**Völkermord. Die Ungeborenen haben keine Stimme.»**
+Musk hat in der Vergangenheit schon öfters die These der Überbevölkerung der Erde kritisiert. Ein Problem
+ist für ihn der demographische Niedergang.
+
+_(Quelle: https://www.1000plus.net/de-de/ch/informieren/1000plusnews/elon-musk-mahnt-ungeborenen-haben-keine-_
+_stimme)_
+_Achim Wolf, Deutschland_
+
+###### Frage: 
+
+Worauf soll ich – in aller Welt – meine Aufmerksamkeit lenken,
+
+bei der grosser Verwirrung, der Verunsicherung,
+
+ja dem immensen Chaos,
+
+dem Tohuwabohu auf unserem Planeten?
+
+**Antwort:**
+
+zum Beispiel auf die Worte im Buch ‹Kelch der Wahrheit›
+
+von Billy Eduard Albert Meier, Seite 109, Vers 25,
+
+denn hier steht geschrieben, wie ich meine zwölf Führer finde!
+
+
+-----
+
+„Und wahrlich, und wenn ihr der Wahrheit achtet und ihr zugetan seid, dann ist sie immer bei euch,
+
+also ihr auch der Freiheit und des Friedens achtet; und wenn ihr der Wahrheit achtet und ihr zugetan
+
+seid,
+
+dann erweckt ihr in euch zwölf Führer, die als:
+
+*wahre Liebe *Achtung *Ehrfurcht (Ehrerbietung)
+
+*Güte *Würde *Lauterkeit (Tugend) *Treue
+
+*Billigkeit (Gerechtigkeit) *Rechtschaffenheit (Gewissenhaftigkeit) *Redlichkeit *Bescheidenheit und
+
+*Schuldigkeit (Verantwortung)
+
+euch zu jeder Zeit begleiten und
+
+euer Handeln in eurem Dasein (Leben) bestimmen.“
+
+Viel Erfolg beim Finden!
+
+_Gestaltung: Regula Lamprecht_
+
+###### Wachsender Druck zur Euthanasie von Älteren und Behinderten Ärzte warnen davor, dass Gesetze weltweit gelockert werden.  Kritiker befürchten, dass die Gesellschaft zunehmend glaubt,  manche Menschen seien ‹besser tot›.
+_Veröffentlicht am 6. April 2024 von DF._
+
+Eine zunehmende Anzahl führender medizinischer Fachleute äussert Bedenken über den weltweiten Trend,
+die Euthanasiegesetze zu lockern, um die «Last» der Pflege von älteren und behinderten Bürgern zu verringern. Ärzte geben an, zunehmend unter Druck gesetzt zu werden, gefährdete Patienten als ‹besser tot› anzusehen. Seit einiger Zeit berichtet zum Beispiel ‹Slay News› über den besorgniserregenden Trend des
+‹assistierten Suizids›, der in mehreren westlichen Ländern in den letzten Jahren auf dem Vormarsch ist.
+Kanada, Belgien und die Niederlande haben den Anwendungsbereich ausgeweitet, und mehrere andere
+Länder sowie US-Bundesstaaten scheinen folgen zu wollen. Als Länder zuerst begannen, die Legalisierung
+voranzutreiben, änderten sie die Gesetze, um eine ‹Lösung› für erwachsene Patienten anzubieten, die an
+einer ‹schweren und unheilbaren› Krankheit litten, die ihnen grosse Qualen bereitete. Einige betrachteten
+die ‹assistierte Selbsttötung› als Möglichkeit, einem sonst unvermeidlichen langsamen und schmerzhaften
+Tod zu entgehen.
+Seit der Gesetzesänderung haben sich jedoch die Schleusen geöffnet, da verschiedene Länder, die die
+Euthanasie legalisierten, auch den Geltungsbereich erweiterten. So haben einige Länder ihre Gesetze gelockert, um Menschen mit Behinderungen, Geldproblemen, Depressionen und sogar Obdachlosigkeit einzubeziehen. Kanada hat bereits begonnen, Menschen mit psychischen Problemen zu euthanasieren, und Aktivisten drängen darauf, die Gesetze auf Kinder und Säuglinge auszuweiten.
+Ein Bericht des Christian Institute beschreibt, wie Kanada den ‹rutschigen Hang› der Euthanasie hinuntergefahren ist. «Seit der Legalisierung der sogenannten medizinischen Sterbehilfe im Rahmen bestimmter
+Umstände im Jahr 2016 hat Kanada das Erfordernis abgeschafft, dass eine Person todkrank sein muss»,
+erklärt der Bericht. In Grossbritannien werde die Gesetzgebung zur ‹assistierten Selbsttötung› nun in
+Schottland erwogen. Es gebe auch ‹konzertierte Bemühungen› in England und Wales, liberale Euthanasiegesetze einzuführen, was öffentlichen Widerstand hervorrufe.
+Experten warnen vor dem wachsenden Druck, älteren Menschen die Selbsttötung nahezulegen. Die globalistische Eugenik-Agenda wolle in der Gesellschaft den Glauben fördern, dass manche Menschen ‹besser tot›
+seien. Ärzte würden berichten, dass ihre Patienten jetzt Euthanasie beantragten, weil sie befürchteten, eine
+‹Belastung› für ihre Familien zu sein.
+Professor John Keown von der Georgetown University in Washington, D.C. habe auf die ‹extreme Besorgnis›
+eines Sonderberichterstatters der Vereinten Nationen hingewiesen, dass man einige behinderte Kanadier
+unter Druck setze, Euthanasie zu beantragen. Diesbezüglich erklärte er: «Die Niederländer sind den rutschigen Hang der Euthanasie hinabgerutscht. Kanada ist praktisch Ski gefahren.»
+Die ehemalige Podologin des britischen National Health Service (NHS), Madeline Pavey, drückte in dem
+Bericht ihr Entsetzen aus, weil ihr gut sechzigjährige Menschen sagten, dass sie ‹keine Belastung sein
+wollen›. Diese Art des Denkens zu fördern, sei einfach, fügte sie hinzu.
+Der Bericht stellte weiter fest, dass der Gesundheits- und Sozialausschuss des britischen Unterhauses kürzlich unter Bezugnahme auf Rechtsordnungen, die assistierten Suizid erlauben, und andere Themen wie
+Palliativpflege die vielen Gefahren der Legalisierung der assistierten Selbsttötung dargelegt habe, aber eine
+entsprechende Gesetzesänderung nicht ausschlossen.
+_Quelle: https://transition-news.org/wachsender-druck-zur-euthanasie-von-alteren-und-behinderten_
+
+
+-----
+
+###### Schweiz / Ukraine – Furchtbar dieser (deutsche) Kriegstreiber im Schweizer Tages-Anzeiger
+_Samstag, 6. April 2024, von Freeman-Fortsetzung um 08:57_
+
+Wir entschuldigen uns in aller Form für die Mehrheit der klardenkenden Schweizer und verurteilen diese
+Kriegstreiberei der Schweizer Medien am Beispiel des Tages-Anzeigers von heute aufs schärfste. Was hier
+abgeht ist Volkssturm die Zweite! Der Krieg ist vor allem für die Ukraine verloren. Jede Sekunde mehr ist
+ein Verbrechen.
+Diese Kriegshetze sollte in unserer Gesellschaft keinen Platz haben. Eine kontroverse Diskussion aber jederzeit.
+
+Natürlich muss es wieder ein Deutscher sein, der so zum Kriege hetzt. Habt ihr Deutschen Zeitungen eigentlich in den vergangenen 100 Jahren nichts gelernt? Ist immer noch der Lebensraum Ost euer Ziel?
+
+_Nicolas Freund – Redakteur – Süddeutsche Zeitung_
+_https://www.tagesanzeiger.ch/ukrainer-ab-25-im-krieg-entscheid-ist-furchtbar-aber-richtig-760184258306_
+
+**Ukrainer ab 25 im Krieg: Entscheid ist furchtbar, aber richtig**
+**Kommentar zur ukrainischen Armee**
+**Junge Rekruten im Krieg – furchtbar, aber richtig**
+**Präsident Selensky senkt das Alter für die Einberufung zum Militärdienst. Er hat gar keine andere Wahl.**
+**Nicolas Freund.  Publiziert: 5.4.2024, 19:37**
+
+
+-----
+
+Wolodimir Selensky hat einen Gesetzentwurf unterzeichnet, der das Alter für die Einberufung zum Militärdienst von 27 auf 25 Jahre senkt. Bis zu 400’000 Männer könnten nach Schätzungen durch diesen Beschluss des ukrainischen Präsidenten zum Kriegsdienst eingezogen werden. Es ist klar, dass Selensky für
+viele von ihnen ein Todesurteil unterschrieben hat.
+_Quelle: http://alles-schallundrauch.blogspot.com/2024/04/schweiz-ukraine-furchtbar-diese.html#ixzz8Wd0zLE8p_
+
+###### Tägliche Umfragen zeigen, dass die Israelis weiterhin  diesen Krieg wählen
+_Amira Hass via Haaretz, April 5, 2024_
+
+**Trotz der Massenproteste, die einen Geiseldeal und Neuwahlen fordern, unterstützen die Israelis schein-**
+**bar widerspruchslos den Krieg in Gaza, selbst wenn dies bedeutet, dass sie ihre Kinder zum Töten oder**
+**getötet werden schicken**
+Amira Hass
+
+Die meisten Israelis wissen, dass Benjamin Netanjahu sie anlügt. Die meisten vermuten, dass seine Politik
+durch persönliche und familiäre Interessen motiviert ist. Sonst würden die Umfragen nicht nur 18 KnessetSitze für den Likud unter seiner Führung voraussagen. Und doch unterstützen die meisten Israelis ihn. Ja,
+im Gegensatz zu dem, was uns die Umfragen und Experten sagen.
+Denn die zuverlässigste Umfrage ist die fortgesetzte Beteiligung Tausender Israelis an den Angriffen mit
+Massentötungen und zügellosen Zerstörungen im Gazastreifen sowie an den Unterdrückungs- und Vertreibungsaktionen im Westjordanland.
+Die unerschütterliche Bereitschaft der Eltern, ihre Kinder zum Töten und getötet werden, zum Verwunden
+und verwundet werden zu schicken, um dann ihr ganzes Leben lang unter den Folgen des Traumas zu leiden, ist eine konstante, unveränderliche Antwort in einer täglich durchgeführten Umfrage. Die beschönigende Sprache und der Konsens in den Medien sowie das Festhalten an der Überzeugung, dass der Krieg die
+Lösung ist, ist eine Art Antwort auf die Frage, die zwischen den Zeilen gestellt wird: wen unterstützen sie?
+TikTok-Fotos, die von Soldaten gepostet wurden – und die den Unwillen oder die Unfähigkeit der IDF zeigen,
+den Strom der Selfies aus Gaza zu stoppen – zeigen eine selbstgefällige Bestialität ohne jegliche Hemmungen der Soldaten und stellen eine Art Umfrage dar. Eltern, die sich nicht schockiert oder besorgt darüber
+zeigen, dass ihre Kinder mit ihren eigenen Smartphones dem Internationalen Strafgerichtshof belastende
+Beweise gegen sich selbst liefern, sind ebenfalls Umfrageteilnehmer, die Netanjahu und seine Militärpolitik
+gutheissen, auch wenn sie nicht danach gefragt werden und auch wenn sie nicht für ihn stimmen.
+Reservisten, die zwischen den Demonstrationen in der Kaplanstrasse und den Ruinen des Gazastreifens
+oder dem mit Bombern und Drohnen übersäten Himmel hin und her eilen, sind ebenfalls Teilnehmer an
+einer Umfrage, deren Antwort eindeutig ist. Das ständige Gejammer, die Welt sei antisemitisch, ist die
+gewünschte Antwort auf eine Umfrage, die Netanjahu jeden Morgen sabbern lässt.
+Genauso wie die Weigerung zu verstehen, dass die Zuschauer ausländischer Fernsehsender im Gegensatz
+zu unseren Bildschirmen, die sich nach wie vor auf die Schrecken des 7. Oktober und die herzzerreissenden
+Berichte über die Opfer konzentrieren, in den letzten sechs Monaten die Schrecken der Bombardierung
+und des vorsätzlichen Hungertods im Gazastreifen gesehen haben. Sie kennen Hunderte, wenn nicht Tausende von herzzerreissenden Berichten über palästinensische Opfer.
+Viele Israelis wissen, dass die von Netanjahu geführte Regierung bewusst zulässt, dass gequälte Geiseln an
+Hunger, fehlenden Medikamenten, Erschöpfung, Misshandlungen oder durch israelische Luftangriffe sterben. Offenbar unterstützen mehr Israelis als je zuvor diese unerklärte ‹Hannibal-Direktive› (die es dem
+Militär erlaubt, das Leben eines Soldaten zu gefährden, um zu verhindern, dass er entführt wird). Alles um
+des absoluten Sieges willen.
+
+
+-----
+
+Viele Israelis wissen, dass die Geiseln und ihre Familien und ihr schreckliches Leid diese Regierung nicht
+interessieren. Sie waren schockiert über die öffentlichen Äusserungen der Politiker, in denen sie sich verächtlich äusserten, und über ihren Mangel an Empathie. Viele Israelis wissen, dass die Mitglieder des Kabinetts im besten Fall ungeschickte Clowns sind, im schlimmsten Fall aber gerissene Politiker, die ihre eigenen Interessen verfolgen.
+Viele Israelis wissen, dass der Minister für Finanzen und Siedlungen unsere Wirtschaft zerstört. Sie wissen,
+dass der Krieg die Wirtschaft kaputt macht. Dass der Polizeiminister Anweisungen gibt, um Demonstranten
+zum Schweigen zu bringen, während er die Polizei zerstört. Dass der Bildungsminister das Bildungswesen
+zerstört und dass der Kommunikationsminister die Pressefreiheit bekämpft. Sie wissen, dass der Verteidigungsminister nicht für Sicherheit sorgt. Sie wissen, dass der Staat in den Seilen hängt.
+Und sie wissen, dass die falsche Vorstellung, die der Premierminister in Zusammenarbeit mit den Geheimdiensten und Sicherheitsorganen formuliert hat, wonach die Hamas im Gazastreifen eingedämmt sei und
+sich so verhalte, wie wir es wollten, der Grund für das grosse Unglück ist, das die mehr als 1.400 toten und
+entführten Menschen, ihre Familien und ihre Gemeinden getroffen hat.
+Und dennoch unterstützen die Israelis diese Regierung weiterhin durch die Tatsache, dass sie sich zur
+‹Arbeit› (der akzeptierte Euphemismus für die Invasion und das Töten) in Gaza melden und loyal die Mission
+der Enteignung erfüllen, die von den israelischen Siedlungsverteidigungskräften im Westjordanland durchgeführt wird. Der israelische Ärzteverband zeigt sich nicht schockiert über die Berichte über die Hungersnot
+in Gaza, und Juristen und Kinderschutzorganisationen stellen nicht einmal Fragen über die hohe Zahl der
+getöteten palästinensischen Kinder. Die Unterstützung für diese Regierung rührt daher, dass sich die Demonstranten in der Kaplanstrasse nicht massenhaft den Dutzenden von mutigen Aktivisten angeschlossen
+haben, die palästinensische Bauern und Hirten begleiten, um sie vor der Gewalt der Siedler zu schützen.
+Weder vor noch während dieses Krieges.
+Die falsche Vorstellung rührt von einem Ziel her, das sich nicht geändert hat: die Palästinenser an den Gedanken zu gewöhnen, dass selbst ihr Minimalziel eines kleinen souveränen Staates an der Seite Israels
+nicht verwirklicht werden wird, ganz zu schweigen von ihren Erwartungen, dass Israel grundsätzlich seine
+Verantwortung für die Vertreibungen von 1948 anerkennt und einem Prozess der Flüchtlingsrückkehr zustimmt, ganz zu schweigen von ihren Forderungen nach Gleichheit zwischen Fluss und Meer.
+Das Ziel blieb, was es war, auch als eine israelische Regierung in den Osloer Verträgen zwar die PLO anerkannte, nicht aber – Gott bewahre – das palästinensische Volk. Da sich die Palästinenser nicht an diesen
+Gedanken gewöhnen wollen und die Siedlerorganisationen de facto zu Israels Herrschern geworden sind,
+wird die Verwirklichung dieses Ziels nach und nach immer gewalttätiger und brutaler.
+So sind wir bei dem ‹entscheidenden Plan› angelangt, den Bezalel Smotrich für die Palästinenser entworfen
+hat. Entweder sie akzeptieren einen minderwertigen Status, wandern aus und werden angeblich freiwillig
+entwurzelt, oder sie werden in einem Krieg besiegt und sterben. Dies ist der Plan, der jetzt im Gazastreifen
+und im Westjordanland umgesetzt wird, wobei die meisten Israelis als aktive und begeisterte Komplizen
+dienen oder passiv ihre Zustimmung zu seiner Verwirklichung geben, ungeachtet ihrer Abscheu für diese
+Regierung und ihre Mitglieder. Die grosse Mehrheit glaubt immer noch, dass Krieg die Lösung ist.
+_QUELLE: DAILY POLLS SHOW THAT ISRAELIS CONTINUE TO CHOOSE THIS WAR_
+_ÜBERSETZUNG ANTIKRIEG:_
+_Quelle: https://uncutnews.ch/taegliche-umfragen-zeigen-dass-die-israelis-weiterhin-diesen-krieg-waehlen/_
+
+Ein Artikel von Sevim Dagdelen; 5. April 2024 um 9:00
+
+Zum 75. Jahrestag der Gründung der Nordatlantischen Vertragsorganisation (NATO) legt Sevim Dagdelen,
+aussenpolitische Sprecherin der Gruppe Bündnis Sahra Wagenknecht im Deutschen Bundestag das Buch
+
+
+-----
+
+‹Die NATO. Eine Abrechnung mit dem Wertebündnis› vor. Mit freundlicher Genehmigung dokumentieren
+wir vorab einen Auszug aus der Einleitung ‹Die drei grossen Mythen der NATO›. Albrecht Müller.
+
+Die NATO begeht im Jahr 2024 ihren 75. Geburtstag und scheint auf dem Höhepunkt ihrer Macht. Mehr
+als jemals zuvor setzt die Nordatlantik-Vertragsorganisation auf Expansion. In der Ukraine führt die NATO
+einen Stellvertreterkrieg gegen Russland in Reaktion auf dessen völkerrechtswidrigen Angriffskrieg: Der
+Militärpakt beteiligt sich mit der Ausbildung ukrainischer Soldaten an NATO-Waffen, mit massiven Waffenlieferungen, Geheimdienstinformationen und der Bereitstellung von Zieldaten sowie eigenen Soldaten vor
+Ort. Diskutiert wird über die Lieferung von Marschflugkörpern, wie die deutschen vom Typ Taurus, an die
+Ukraine, die mit einer Reichweite von 500 Kilometern Moskau oder Sankt Petersburg erreichen können,
+wie auch über die Entsendung eigener NATO-Truppen in grossem Massstab. Die Zeichen stehen auf Sturm.
+In Asien weitet die NATO ihre Präsenz aus: Durch die Einbindung neuer Partnerstaaten wie Japan und Südkorea rückt sie in die Indopazifik-Region vor und sucht die Konfrontation mit China. Die Militärausgaben
+der USA und der anderen NATO-Mitgliedsstaaten schiessen in Rekordhöhen. Während bei den Waffenlieferanten die Champagner-Korken knallen, werden die gigantischen Kosten für die Aufrüstung auf die Bevölkerung abgewälzt. Überdehnung, soziale Verwerfungen und Eskalationsgefahr sind die Kehrseite dieser expansiven Machtpolitik. Sie fordern das Bündnis in nie da gewesener Form heraus. Umso mehr ist die NATO
+heute auf Legenden angewiesen. Drei grosse Mythen ziehen sich von der Gründung des Militärpakts durch
+dessen blutige Geschichte bis in die Gegenwart.
+
+**Mythos Verteidigung und Völkerrecht**
+Die NATO ist ein Verteidigungsbündnis. So lautet die ewig wiederholte Erzählung. Doch ein Blick in die Geschichte des Militärpakts zeigt: Weder stand bei der Gründung der NATO die gegenseitige Verteidigung im
+Vordergrund, noch kann bei dem Auftreten der NATO in den vergangenen Jahrzehnten von einer defensiven
+Ausrichtung die Rede sein. Als Beleg für den Charakter der NATO als Verteidigungsbündnis wird gerne
+Artikel 5 des Nordatlantikvertrags angeführt. In ihrem Gründungsabkommen vereinbaren die zwölf Vertragsstaaten USA und Kanada sowie die europäischen Staaten Belgien, Dänemark, Frankreich, Grossbritannien, Island, Italien, Luxemburg, Niederlande, Norwegen und Portugal im Jahr 1949, dass «ein bewaffneter
+Angriff gegen mehrere von ihnen in Europa oder Nordamerika als ein Angriff auf alle angesehen werden
+wird». Die NATO-Mitglieder verpflichten sich, einander Beistand zu leisten, um sich gemeinsam gegen einen
+solchen Angriff zur Wehr zu setzen.
+Als explizites Vorbild dient hier der Interamerikanische Vertrag über gegenseitigen Beistand. Dieser Beistandspakt wurde 1947 auf Initiative Washingtons im brasilianischen Rio de Janeiro von den amerikanischen Mitgliedsstaaten geschlossen und trat ein Jahr später in Kraft. Im Angesicht des Kalten Krieges wollten die USA mit diesem Vertrag, in dessen Folge noch im selben Jahr die Organisation Amerikanischer
+Staaten (OAS) gegründet wurde, ihre Dominanz auf dem amerikanischen Kontinent sicherstellen. Das war
+im Sinne einer aktualisierten Monroe-Doktrin, mit der die USA 1823 die westliche Hemisphäre zu ihrer
+exklusiven Einflusszone erklärt hatten.
+In dieser Tradition steht auch die NATO. Wie beim Interamerikanischen Vertrag sind die Unterzeichnerstaaten des Nordatlantikpakts macht- und militärpolitisch völlig ungleichgewichtig. Um Beistand durch
+andere Bündnispartner im Verteidigungsfall geht es den USA bei Gründung der NATO daher offenkundig
+nicht. Vielmehr strebt Washington danach, eine ‹Pax Americana› zu schaffen, ein exklusives Einflussgebiet,
+das den USA als unbestrittener Führungsmacht Kontrolle über die Aussen- und Sicherheitspolitik der anderen Bündnispartner verschafft. Die Grundlage der NATO ist ein Tausch. Die übrigen NATO-Mitglieder verzichten auf Teile ihrer demokratischen Souveränität und werden dafür mit der NATO-Sicherheitsgarantie
+belohnt, die de facto eine Sicherheitsgarantie der USA ist. (…)
+Die übrigen NATO-Mitglieder sinken innerhalb des Militärpakts zu Klientelstaaten herab wie jene, die einst
+im Osten des Römischen Reiches als militärische Pufferzone dem Machterhalt des römischen Imperiums
+dienten. Eine innenpolitische Veränderung, welche die aussenpolitische Orientierung hätte infrage stellen
+können, war diesen Klientelstaaten bei Strafe des eigenen Untergangs verboten. Um solche Entwicklungen
+zu verhindern, setzte die NATO zur Zeit des Kalten Krieges mit ihren Stay-Behind-Gruppen auf eigene
+Putschorganisationen. Sie verhinderten auch mit terroristischen Mitteln aktiv einen Machtgewinn von
+politischen Kräften, die die NATO-Mitgliedschaft infrage stellten.
+Das Ende der Systemauseinandersetzung mit der Sowjetunion verändert den primären Zweck der NATO,
+eine ‹Pax Americana› zu schaffen, einschneidend. Seit Ende des Kalten Kriegs sieht sich die NATO zunehmend in der Rolle des Weltpolizisten. Mit dem Überfall auf die Bundesrepublik Jugoslawien, die zu diesem
+Zeitpunkt noch aus Serbien und Montenegro bestand, führte der Militärpakt 1999 seinen ersten Krieg. Ein
+klarer Bruch des Völkerrechts, wie der damalige deutsche Bundeskanzler Gerhard Schröder 15 Jahre später
+selbst einräumt: «Da haben wir unsere Flugzeuge (…) nach Serbien geschickt, und die haben zusammen
+mit der NATO einen souveränen Staat gebombt – ohne dass es einen Sicherheitsratsbeschluss gegeben
+hätte.» Nach dieser Ursünde entwickelt sich die NATO zu einem Kriegsführungspakt, der bereit ist, das
+
+
+-----
+
+Völkerrecht zu brechen. Ein klarer Widerspruch zur eigenen Charta, in der sich die NATO-Staaten gemäss
+Artikel 1 dazu verpflichten, «sich in ihren internationalen Beziehungen jeder Gewaltandrohung und Gewaltanwendung zu enthalten, die mit den Zielen der Vereinten Nationen nicht vereinbar sind». Die Verteidigung
+des Bündnisgebiets wird nunmehr lediglich ein Teil des Anspruchs, als weltweite Ordnungsmacht aufzutreten.
+2003 überfallen die NATO-Mitglieder USA und Grossbritannien mit einem völkerrechtswidrigen Angriffskrieg den Irak. Sie stellen dafür eigens eine ‹Koalition der Willigen› zusammen, der auch zahlreiche weitere
+NATO-Mitglieder wie Italien, Polen, Niederlande, Dänemark, Tschechien, Ungarn, Portugal und die Slowakei
+angehören, sowie die späteren NATO-Mitglieder Rumänien, Bulgarien, Lettland und Litauen. Washington
+und seine Helfershelfer verstossen damit eklatant gegen das Völkerrecht und die beteiligten NATO-Staaten
+gegen die grundlegenden Massgaben der eigenen Charta. Begleitet wird der Irak-Krieg zudem vom NATOAWACS-Einsatz in der Türkei, der als Kriegsunterstützung gedeutet werden kann. Auch wenn der Krieg
+gegen den Irak kein NATO-Krieg ist, gibt es schwerwiegende Argumente, den Überfall dem Militärpakt
+zuzurechnen. NATO-Mitglieder wie Deutschland verweigerten den USA nicht die Nutzung der Militärbasen
+als Teil der NATO-Struktur in Europa und versagten auch nicht die Überflugrechte für die US-Streitkräfte,
+obwohl sich aus der Bindung der Bundesregierung an die Regeln des Völkerrechts gemäss Artikel 20 Absatz
+3 und Artikel 25 Grundgesetz das Verbot ergibt, an Handlungen nicht-deutscher Hoheitsträger auf deutschem Boden mitzuwirken, wenn diese gegen das Völkerrecht verstossen.
+Der völkerrechtswidrige Angriffskrieg gegen den Irak von einem Teil der NATO-Mitglieder wurde nicht einmal im NATO-Rat thematisiert, wie auch nicht der Rückgriff auf NATO-Infrastruktur. Auswirkungen auf die
+NATO-Mitgliedschaft der USA oder Grossbritanniens hat deren Verstoss gegen den Nordatlantikvertrag
+keine. Das war absehbar. Die Kriegspolitik des wichtigsten Mitglieds der Allianz muss daher dem Militärpakt
+NATO insgesamt zugerechnet werden, nimmt man das Selbstverständnis der NATO ernst. Die USA stehen
+mit ihren völkerrechtswidrigen Kriegen als pars pro toto, als Teil für das Ganze. In Afghanistan führt die
+NATO 20 Jahre lang einen desaströsen Krieg, der über 200’000 Zivilisten das Leben kostet. Zum ersten
+und bisher einzigen Mal beruft sich das Bündnis bei diesem Militäreinsatz nach den Anschlägen vom 11.
+September 2001 auf Kapitel 5 des NATO-Vertrages. Der internationalen Öffentlichkeit soll weisgemacht
+werden, Freiheit und Sicherheit des Westens würden am Hindukusch verteidigt. Zwanzig Jahre später, im
+August 2021 ziehen die Taliban wieder in Kabul ein. Der Militäreinsatz erweist sich als eine einzige Katastrophe. Der Versuch der USA, militärisch einen Fuss in Zentralasien zu haben, um China und Russland
+geopolitisch herausfordern zu können, ist gescheitert. Hals über Kopf verlassen die USA das Land.
+Washington informiert nicht einmal die Verbündeten. Tausende Ortskräfte der NATO werden im Stich gelassen. Von Bündnissolidarität ist nichts zu sehen. Um an Informationen zu kommen, wird im deutschen
+Auslandsgeheimdienst sogar verzweifelt erwogen, die Amerikaner abzuhören.
+Die Blutspur der NATO führt neben Belgrad, Bagdad und Kabul auch nach Libyen. 2011 zerbombt die
+NATO das Land unter Bruch des Völkerrechts und Missbrauch einer Resolution des UN-Sicherheitsrats.
+Tausende werden getötet. Hunderttausende müssen fliehen. Eine Delegation der Afrikanischen Union, die
+im Konflikt vermitteln will, wird sogar an der Landung gehindert. Zurück bleibt ein zerstörtes Land, in dem
+in Teilen islamistische Milizen herrschen. Die gesamte Sahel-Region wird in der Folge von Al-Kaida und
+dem Islamischen Staat (IS) destabilisiert. Diese von der NATO angerichtete Katastrophe müssen sich die
+einzelnen Mitglieder zurechnen lassen. Totum pro parte, das Ganze steht hier für den Teil. Das gilt auch
+für die Mitgliedsstaaten, die sich nicht direkt an den Angriffen beteiligen.
+
+**Mythos Demokratie und Rechtsstaatlichkeit**
+Die NATO-Mitglieder sind entschlossen, «die Freiheit, das gemeinsame Erbe und die Zivilisation ihrer Völker,
+die auf den Grundsätzen der Demokratie, der Freiheit der Person und der Herrschaft des Rechts beruhen,
+zu gewährleisten», so lautet die Legitimationslegende der Gründungscharta. Das aber ist bereits im Jahr
+1949 eine glatte Lüge. Nicht nur in Lateinamerika paktieren die USA von Anfang an mit Diktaturen und
+faschistischen Regimen, auch bei den NATO-Verbündeten in Europa sind nicht nur Demokratien mit an
+Bord. Entscheidend ist allein die Bereitschaft, sich in eine Front gegen die Sowjetunion einzureihen. Mit
+dem faschistischen Diktator Spaniens, Francisco Franco, schliessen die USA bilaterale Sicherheitsabkommen, bei der NATO ist die faschistische Diktatur Portugal Gründungsmitglied. Während die Geheimpolizei
+des Diktators António de Oliveira Salazar Oppositionelle zu Tode foltert und in den portugiesischen Kolonien
+Konzentrationslager einrichtet, reihen die USA Portugal in die Gemeinschaft der Demokraten ein.
+Oder nehmen wir die Türkei. Tausende politische Gefangene werden nach dem Militärputsch von 1980 gefoltert. Die Zeitung Cumhuriyet spricht anlässlich des zehnten Jahrestages am 12. September 1990 von
+650’000 politischen Festnahmen, 7000 beantragten, 571 verhängten und 50 vollstreckten Todesstrafen
+und dem nachgewiesenen Tod durch Folter in 171 Fällen. Die Türkei bleibt in der NATO. Auch nach dem
+Militärputsch erhält sie umfangreiche Militärhilfen der USA und ihrer Verbündeten. Einer Mitgliedschaft ist
+die Herrschaft der Generäle nicht abträglich. Ebenso in Griechenland. Der Militärputsch von 1967, Konzentrationslager und Morde an Oppositionellen, die Verhaftung Tausender oder Vertreibung ins Exil – alles kein
+
+
+-----
+
+Grund, die Mitgliedschaft zu beenden. Selbst die Invasion des NATO-Mitglieds Türkei in Zypern 1974 infolge
+des Putsches der griechischen Obristen ist offenbar konform mit dem demokratischen Gründungskonsens
+des Militärbündnisses.
+Nun könnte man das abtun und auf die ‹tempi passati›, die vergangenen Zeiten verweisen. Aber auch im
+Jahr 2024 steht die Unterstützung islamistischen Terrors durch die Autokratie Erdogans nicht im Widerspruch zu einer NATO-Mitgliedschaft. Es geht bei der NATO nun einmal nicht um Demokratie und Rechtsstaatlichkeit, sondern allein um geopolitische Gefolgschaft gegenüber den USA. Wie bei einem auf Lügen
+gebauten Reich lebt die NATO von dieser Mär. In Schulen und Universitäten sind diese Lügen Teil des
+Bildungsprogramms zur NATO.
+
+**Mythos Wertegemeinschaft und Menschenrechte**
+«Unsere gemeinsamen Werte – individuelle Freiheit, Menschenrechte, Demokratie und Rechtsstaatlichkeit
+– verbinden uns.» So stellt sich die NATO in ihrem Strategischen Konzept 2022 als Wertegemeinschaft dar.
+Durch die Kriege der USA und ihrer Verbündeten sind allein in den vergangenen 20 Jahren viereinhalb Millionen Menschen gestorben, bilanziert hingegen die renommierte Brown University in Rhode Island, USA.
+Mit dem mannigfach kolportierten Selbstbild der NATO ist dies nicht zu vereinbaren. Die NATO ist keine
+Gemeinschaft, die Menschenrechte schützt. Im Gegenteil: Die NATO ist der Schutzschirm für die Menschenrechtsverletzungen ihrer Mitglieder. Und zwar keineswegs nur mit Blick auf die Verletzung sozialer Menschenrechte unter der Diktatur massiver Aufrüstung. Vielmehr verfolgt die NATO eine Politik der völligen
+Straflosigkeit gegenüber Kriegsverbrechen ihrer Mitgliedsstaaten. Wer es wie der australische Journalist
+Julian Assange wagt, diese Kriegsverbrechen öffentlich zu machen, der wird gefoltert und mit 175 Jahren
+Haft in den USA bedroht. Ernsthafte Interventionen anderer NATO-Regierungen für die Freilassung von
+Julian Assange gibt es keine. In eilfertiger Komplizenschaft wird auf Kritik am Hegemon USA verzichtet.
+Die von Assange im Jahr 2010 veröffentlichte Dokumente-Sammlung ‹Afghanistan War Diary› belegt die
+Existenz einer geheimen US-Truppe, ‹Task Force 373› genannt, die der rechtsfreien Tötung mutmasslicher
+Taliban-Anführer dient. Die 300 Mann starke Elite-Einheit war auch in dem von der Bundeswehr kontrollierten Gebiet in Afghanistan stationiert. Sie stand unter direktem Befehl der US-Regierung und setzte den von
+der Enthüllungsplattfom Wikileaks publizierten Berichten zufolge auch international geächtete Streubomben ein, die wahllos töten und zerstören. (…)
+Am 11. Januar 2002 errichten die USA auf dem widerrechtlich besetzten Marine-Stützpunkt Guantanamo
+Bay auf Kuba ein Gefangenenlager. Amnesty International schreibt dazu: «Viele der rund 780 Menschen,
+die seitdem dort gezielt ausserhalb jeder gerichtlichen Kontrolle inhaftiert gewesen sind, haben vor oder
+während ihrer Haft schwerste Menschenrechtsverletzungen erlitten – darunter Folter und Verschwindenlassen. Bis heute werden in Guantánamo Folterüberlebende ohne angemessene medizinische Versorgung,
+ohne Anklage und faire Gerichtsverfahren auf unbestimmte Zeit festgehalten.» Auch 22 Jahre nach seiner
+Einrichtung ist eine Schliessung des Folterlagers in Guantánamo nicht absehbar. (…)
+Menschenrechte haben für die NATO einen sehr niedrigen Stellenwert. Das zeigt sich auch an der Wahl der
+Allianzen der NATO-Mitglieder. So rüsten etwa die USA, Grossbritannien und Deutschland die Diktatur in
+Saudi-Arabien auf, die reihenweise Oppositionelle köpfen lässt und deren Kronprinz Mohammed bin Salman mutmasslich persönlich den Befehl gab, den Washington-Post-Journalisten Jamal Khashoggi im Generalkonsulat von Istanbul zu zersägen.
+Rhetorisch bleibt die NATO antithetisch an ihre Praxis gebunden. So heisst es im Strategischen Konzept
+der NATO von 2022: «Wir werden unsere Geschlossenheit, unseren Zusammenhalt und unsere Solidarität
+stärken, indem wir auf dem fortwährenden transatlantischen Bund zwischen unseren Nationen und der
+Stärke unserer gemeinsamen demokratischen Werte aufbauen.» Angesichts der engen Bündnisse mit Diktatoren, Autokraten und Völkerrechtsverletzern wirkt diese Selbstversicherung wie ein schlechter Witz. Begleitet wird diese Heuchelei von doppelten Standards: In ihrem Strategischen Konzept vom 20. Juni 2022
+wirft die NATO Russland vor, in der Ukraine «wiederholte Verstösse gegen das humanitäre Völkerrecht» zu
+begehen. Während die NATO dies als zusätzliche Begründung für ihren Stellvertreterkrieg gegen Russland
+heranzieht, stärkt sie Israel bei seinen offensichtlichen Verstössen gegen das humanitäre Völkerrecht in
+Gaza den Rücken und sichert dem Land volle Solidarität zu. Die USA verhindern mit ihrem Veto im UNSicherheitsrat jede Resolution für einen sofortigen Waffenstillstand. Ohne die Waffenlieferungen aus den
+NATO-Staaten USA, Deutschland und Grossbritannien wäre dieser Krieg so nicht führbar.
+Im Globalen Süden wird diese Doppelmoral des Westens immer stärker kritisiert. Die Menschenrechtsrhetorik von NATO-Staaten gilt dort als rein instrumentell, um eigene geopolitische Interessen zu verbergen
+oder durchzusetzen. Die NATO erscheint als Wächterorganisation einer zutiefst ungerechten Weltordnung
+mit neokolonialen Tendenzen. Das zeigt sich nicht zuletzt daran, dass NATO-Mitglieder beim Wirtschaftskrieg gegen Russland mit sogenannten Sekundärsanktionen Drittstaaten wie China, der Türkei oder den
+Vereinigten Arabischen Emiraten unter Verletzung von deren Souveränität die eigene Politik aufzuzwingen
+versuchen. Die Mythen der NATO verklären den Blick auf die Wirklichkeit. Um Auswege aus der gegenwärtigen Krise zu finden, bedarf es ihrer Enthüllung. Darum geht es in diesem Buch. Heute, 75 Jahre nach seiner
+
+
+-----
+
+Gründung, treibt der Militärpakt mit seiner globalen Expansion und seinen Konfrontationen die Welt näher
+an den Rand eines Dritten Weltkrieges als jemals zuvor. Die kritische Auseinandersetzung mit dem aktuellen
+Vorgehen des Bündnisses wie auch mit seinen Verbrechen in der Vergangenheit soll die Voraussetzung
+dafür schaffen, über Alternativen nachzudenken. Alternativen zu einer NATO, die allein auf Abschreckung,
+Aufrüstung und Konfrontation setzt – und damit das friedliche Zusammenleben der Menschheit existenziell
+gefährdet.
+_Auszug aus: Sevim Dagdelen: ‹Die NATO. Eine Abrechnung mit dem Wertebündnis›, Westend Verlag 2024, 128 Seiten,_
+_16,00 Euro_
+_Quelle: https://www.nachdenkseiten.de/?p=113405_
+
+
+-----
+
+###### Offener Brief an die Politiker: Lehnen Sie die neuen WHO-Verträge ab!
+_Hwludwig, Veröffentlicht am 4. April 2024_
+
+**Die ‹Wissenschaftliche Initiative – Gesundheit für Österreich› um Prof. Andreas Sönnichsen fordert in**
+**einem Offenen Brief alle politischen Entscheidungsträger in Österreich auf, der im Mai 2024 anstehen-**
+**den Abstimmung über die Änderung der Internationalen Gesundheitsvorschriften und den Pandemie-**
+**Vertrag der Welt-Gesundheits-Organisation der UN die Zustimmung zu versagen, da sie der demokra-**
+**tisch nicht kontrollierbaren WHO totalitäre Vollmachten in Gesundheitsfragen erteilen und die entspre-**
+**chende Souveränität der Mitgliedstaaten aufheben. – Dieser Appell gilt in erhöhtem Masse auch für die**
+**Entscheidungsträger in Deutschland, denn der Deutsche Bundestag neigt in seiner Mehrheit zu einer**
+**unverantwortlichen Zustimmung.* (hl)**
+
+_UN: Macht, Tod und Verderben zu verbreiten?_
+
+**Wissenschaftliche Initiative – Gesundheit für Österreich Verein zur Förderung der biopsychosozialen**
+**Gesundheit in Wien Offener Brief an die österreichischen Entscheidungsträger (Politiker, Gesundheits-**
+**minister, Nationalratsabgeordnete …)**
+**Betrifft: WHO Konvention Mai 2024 – Lehnen Sie die neuen Verträge ab!**
+Wien, 27. Februar 2024
+
+Sehr geehrte …,
+im Mai 2024 findet die Gesundheitsversammlung der WHO statt, wo voraussichtlich über zwei wichtige
+Projekte abgestimmt wird:
+
+- die Internationalen Gesundheitsvorschriften (IHR)
+
+- und den Pandemievertrag (WHO CA+)
+Sie tragen Verantwortung für die österreichische Bevölkerung, und Verantwortung bedeutet manchmal Mut
+zum Widerspruch. Vor allem dann, wenn es gilt Schaden abzuwenden. Für uns Ärzte lautet das oberste Gebot: Nicht zu schaden (Primum non nocere). Dasselbe gilt auch für die Regierung eines demokratischen
+Landes: Sie darf vor allem der eigenen Bevölkerung nicht schaden.
+**Wir fordern Sie daher auf ihre Verantwortung wahrzunehmen und sowohl die Änderungsvorschläge zu**
+**den IHR als auch den Pandemievertrag abzulehnen.**
+Weil diese beiden Abkommen der österreichischen Bevölkerung Schaden zufügen würden.
+1. Lehnen Sie die Änderungen der Internationalen Gesundheitsvorschriften sowie den Pandemievertrag
+in der vorliegenden Form ab! Sprechen Sie sich öffentlich dagegen aus.
+2. Falls die Änderungen der Gesundheitsvorschriften bei der Gesundheitskonferenz im Mai von einer einfachen Mehrheit angenommen werden, erklären Sie innerhalb von 10 Monaten Österreichs Widerspruch.
+3. Sollte der Pandemievertrag beschlossen werden, ratifizieren Sie diesen in Österreich NICHT.
+
+Fragen Sie sich bitte …
+1. Warum jetzt aus den WHO-Empfehlungen für alle Länder verbindliche Vorschriften werden sollen, wo
+doch auch die Empfehlungen schon problemlos umgesetzt wurden?
+2. Warum der Generaldirektor der WHO allein entscheiden soll, wann eine Pandemie oder ein Gesundheitsnotstand ausgerufen wird (warum nicht ein Gremium aus Spezialisten?)
+3. Wie offen eine einzelne Person in dieser Machtposition dann für Einflüsse aus Politik und Industrie
+wäre
+4. Welche Auswirkungen das Ausrufen einer Pandemie auf die Dauer der Zulassungsverfahren und damit
+auf die Sicherheit (!) von neuen Medikamenten hat
+
+
+-----
+
+5. Warum der Kopf einer internationalen Institution als Einzelperson (die nie demokratisch gewählt wurde) über Massnahmen in Österreich entscheiden soll (von Lockdowns bis zu medizinischen Zwangsmassnahmen) und wie unvereinbar das mit unserem Rechtsstaat wäre
+6. Warum kein Kontrollmechanismus vorgesehen ist, mit dem diese weitreichenden Entscheidungen
+überprüft werden können
+7. Warum mittels Pandemievertrag Zensur vorgeschrieben werden soll
+Im Folgenden heben wir einige wesentliche Punkte aus den beiden Entwürfen heraus, die besonders fragwürdig sind. Sie können unsere Kritik anhand der Original-Texte selbst prüfen.
+Den Entwurf der neuen Internationalen Gesundheitsvorschriften finden Sie hier:
+https://apps.who.int/gb/wgihr/pdf_files/wgihr1/WGIHR_Compilation-en.pdf
+Den Entwurf für den Pandemievertrag finden Sie hier:
+https://apps.who.int/gb/inb/pdf_files/inb7/A_INB7_3-en.pdf
+
+**Was die Internationalen Gesundheitsvorschriften möglich machen würden**
+Artikel 12 (Seite 9ff):
+Der WHO-Generaldirektor (ein medizinischer Laie!) könnte im Alleingang entscheiden, wann und aus welchem Grund er einen Gesundheitsnotstand ausruft. Auch dann, wenn lediglich die Möglichkeit eines Gesundheitsnotstandes besteht (Abs. 6). Das kann theoretisch auch der nächste Krieg oder auch ein willkürlich
+festgelegter CO2-Wert sein). Eine klare Definition für einen solchen Gesundheitsnotstand gibt es nicht. Wer
+das unterschreibt, unterzeichnet also im Namen Österreichs einen Blanko-Scheck.
+Artikel 15 und 18 (Seiten 14 und 16):
+Die WHO könnte vorschreiben, wie wir uns als österreichische Bevölkerung in einem solchen Fall verhalten
+müssten. Sie könnte entscheiden, welche Gesundheitsuntersuchungen wir vornehmen lassen und welchen
+medizinischen Behandlungen (z.B. Medikamente und Impfungen) wir uns unterziehen müssten. Sie könnte
+verlangen, dass Menschen in ihrer Mobilität überwacht und eingeschränkt werden, sobald sie von der WHO
+als Gefährder klassifiziert sind. Aber auch ob und wie viel wir heizen dürfen oder in welchem Ausmass
+unsere Industriebetriebe produzieren und damit CO2 ausstossen dürfen. Und die österreichische Regierung
+wäre ihren Wählern keine Rechenschaft mehr schuldig. Was ist das sonst, wenn nicht der Verlust unserer
+Souveränität?
+Artikel 13A (Seite 12):
+States Parties recognize WHO as the guidance and coordinating authority of international public health
+response during public health Emergency of International Concern and untertake to follow WHO’s
+recommendations in their international public health response.
+(Die Vertragsstaaten erkennen die WHO als die leitende und koordinierende Behörde für die internationale
+Reaktion im Bereich der öffentlichen Gesundheit bei Notfällen von internationalem Interesse an und verpflichten sich, die Empfehlungen der WHO bei ihrer internationalen Reaktion im Bereich der öffentlichen
+Gesundheit zu befolgen.)
+Mit der Formulierung ‹undertake to follow› wandelt der neue Artikel 13A alles, was im restlichen Text als
+Empfehlung der WHO bezeichnet wird, in eine Verpflichtung um. Wer das unterschreibt, tritt gleich mehrere
+durch unsere Verfassung gesicherte Befugnisse und Rechte an die WHO ab.
+
+**Der Pandemievertrag ruft zu Zensur auf**
+Artikel 18 (Seite 22):
+Der Abschnitt zu Kommunikation und öffentlicher Wahrnehmung enthält einen versteckten Aufruf zu Informationskontrolle und Zensur:
+1. The Parties shall strengthen science, public health and pandemic literacy in the population, as well as access to information on pandemics and their effects and drivers, and combat false, misleading, misinformation or disinformation, including through effective international collaboration and cooperation as referred
+to in Article 16. (Die Vertragsparteien stärken die Wissenschaft, die öffentliche Gesundheit und die Pandemiekompetenz in der Bevölkerung sowie den Zugang zu Informationen über Pandemien und ihre Auswirkungen und Triebkräfte und bekämpfen falsche, irreführende, fälschliche oder desinformierende Informationen, unter anderem durch wirksame internationale Zusammenarbeit und Kooperation gemäss Artikel
+16.)
+2. The Parties shall, as appropriate, conduct research and inform policies on factors that hinder adherence to
+public health and social measures in a pandemic and trust in science and public health institutions. (Die
+Vertragsparteien führen gegebenenfalls Forschungsarbeiten durch und informieren über Faktoren, die die
+Einhaltung von Massnahmen des öffentlichen Gesundheitswesens und der Gesellschaft im Falle einer Pandemie sowie das Vertrauen in die Wissenschaft und die Einrichtungen des öffentlichen Gesundheitswesens
+behindern.)
+Eine nicht demokratisch gewählte Institution masst sich also an, darüber zu entscheiden, welche Information richtig und welche falsch ist. Das widerspricht nicht nur dem liberalen und demokratischen Grundver
+
+-----
+
+ständnis, es öffnet Missbrauch Tür und Tor. Nicht ohne Grund besteht Wissenschaft immer aus These und
+Antithese.
+Informationskontrolle verhindert freie Wissenschaft. ‹Trust in science› – das Vertrauen in die Wissenschaft
+kann nur dann wieder gewonnen werden, wenn die Wissenschaft auch frei sein kann.
+
+**Wer zahlt, schafft an**
+Die Änderungsvorschläge für die Internationalen Gesundheitsvorschriften sind ein weiterer Hinweis darauf,
+dass die WHO zunehmend anderen Interessen verpflichtet ist als der Gesundheit der Menschen. Erklären
+lässt sich das, wenn man sich mit ihrer Finanzierung näher beschäftigt. Die WHO wird zu 80 Prozent von
+zweckgebundenen Spenden finanziert, ein Grossteil dieser Spenden stammt zum Beispiel von der Bill &
+Melinda Gates Foundation (600 Mio USD) und der Impfvereinigung GAVI (400 Mio USD).
+Und das ist schade. Denn die Idee einer Weltgesundheitsorganisation wäre eine gute, wenn sich diese tatsächlich für Menschen einsetzt, die gesundheitlich benachteiligt sind, weil sie zum Beispiel kein sauberes
+Wasser haben oder von Hunger und Armut betroffen sind. Wenn aber zweckgebundene Spenden von privaten Geldgebern über die Arbeit dieser Organisation entscheiden, dann muss sie mit kritischem Auge geprüft
+werden.
+
+**Gesundheit ist eine komplexe, biopsychosoziale Angelegenheit**
+**und gehört in die Verantwortung von Menschen vor Ort**
+Auch abgesehen von diesen Interessenskonflikten ist das Vorhaben aus rein ärztlicher Sicht gesundheitsgefährdend. Denn Gesundheit kann nicht von einer weltweiten Behörde organisiert und über die Menschen
+‹verhängt› werden. Schon gar nicht, wenn diese von Industrielobbys finanziert wird. Gesundheit ist vielmehr
+eine individuelle und höchst intime Angelegenheit jedes Einzelnen. Als Ärztinnen und Ärzte haben wir die
+Aufgabe, den Patienten in seiner Ganzheit als Individuum wahrzunehmen und zu behandeln. Jede Erkrankung wirkt sich im Einzelnen unterschiedlich aus und muss dementsprechend anders behandelt werden.
+Es gibt kein Heilmittel, das bei allen wirkt. Auch nicht bei Viruserkrankungen. Und das Wichtigste: Der Patient entscheidet selbst über seinen Körper. Die beiden WHO-Abkommen wollen dieses Recht auf Selbstbestimmung und individuelle ärztliche Behandlung abschaffen.
+Wer den biopsychosozialen Ansatz von Gesundheit versteht, weiss auch, dass sich die örtlichen Gegebenheiten auf der Welt so stark unterscheiden, dass es gar nicht möglich ist, eine allgemeine Gesundheitsvorschrift
+zu erlassen. In den einzelnen Regionen herrschen völlig unterschiedliche Lebensumstände, sie haben daher
+völlig unterschiedliche Gesundheitsthemen. Denken Sie nur an die Unterschiede bei Besiedelungsdichte,
+Durchschnittsalter, Lebensgewohnheiten und Zugang zu sauberem Wasser. Regionen sind daher auch von
+Gesundheitsnotständen unterschiedlich betroffen: In einer Region, in der die Menschen im Freien leben,
+hat eine Viruserkrankung zum Beispiel andere Auswirkungen als in einem Land, in dem die Menschen viel
+Zeit in Innenräumen verbringen. Eine Gesundheitsmassnahme für die ganze Welt vorschreiben zu wollen,
+wäre einfach absurd. Genauso absurd wäre es, Entscheidungen rund um Gesundheit nicht jenen Menschen
+zu überlassen, die in dieser Region leben.
+
+**Alles Lüge?**
+WHO Generalsekretär Tedros nennt jegliche Kritik an den beiden Abkommen ‹Lügen›. In seiner Rede vor
+dem WHO Exekutivrat (22.1.2024) forderte er die Vertreter der Mitgliedsstaaten auf, «diesen Lügen (sic!)
+entgegenzutreten, indem Sie sich zu Hause zu Wort melden und Ihren Bürgern sagen, dass durch dieses
+Abkommen und eine geänderte IHR keine Souveränität an die WHO abgetreten werden wird …» – Wir
+fragen Sie: Wenn es sich doch wie bisher nur um ‹Empfehlungen› der WHO handeln würde, wozu bräuchte
+es dann überhaupt diese beiden Verträge? Und wenn man sich die Entwürfe im vollen Wortlaut durchliest,
+wenn auch Juristen weltweit um die Souveränität ihrer Länder fürchten – wer ist es dann, der lügt?
+
+**Ihre Loyalität: Wem gegenüber?**
+Sie sind in Ihrer Rolle der österreichischen Bevölkerung verpflichtet, und nicht einer demokratisch nicht
+legitimierten, internationalen, von Industrielobbys finanzierten Organisation. Wir fordern Sie daher auf:
+**1.** **Lehnen** **Sie** **die** **Änderungen** **der** **Internationalen** **Gesundheitsvorschriften** **sowie** **den**
+**Pandemievertrag in der vorliegenden Form ab! Sprechen Sie sich öffentlich dagegen aus.**
+**2.** **Falls die Änderungen der Gesundheitsvorschriften bei der Gesundheitskonferenz im Mai von einer**
+**einfachen Mehrheit angenommen werden, erklären Sie innerhalb von 10 Monaten Österreichs**
+**Wider-spruch.**
+**3.** **Sollte der Pandemievertrag beschlossen werden, ratifizieren Sie diesen in Österreich NICHT.**
+
+Herzliche Grüsse
+Die Wissenschaftliche Initiative
+Gesundheit für Österreich
+
+
+-----
+
+P.S.: Wir behalten uns vor, diesen Brief im Interesse der Allgemeinheit zu veröffentlichen.
+_Quelle:_
+_https://www.gesundheit-oesterreich.at/wp-content/uploads/2024/03/2024-02-27-OB-WHO-Politiker.pdf_
+
+_* Siehe: https://norberthaering.de/macht-kontrolle/bundestag-bsw-afd-pandemievertrag/_
+_Quelle: https://fassadenkratzer.wordpress.com/2024/04/04/offener-brief-an-die-politiker-lehnen-sie-die-neuen-who-_
+_vertrage-ab/_
+
+_Achim Wolf_
+
+###### NATO – Wir kämpfen mit der Ukraine bis zum letzten Ukrainer
+_Freitag, 5. April 2024, von Freeman-Fortsetzung um 09:07_
+
+Auf Deutsch: Uns interessieren die Ukrainer einen Sch…dreck, so lange wir mit ihrem Blut nur Russland
+schädigen können. Wie verlogen und dekadent sind wir eigentlich geworden …
+Für solche Aussagen gehörte dieser Mann eigentlich in die Klapsmühle. In normalen Zeiten würde Stoltenberg für solche Aussagen vom Pult weg abgeholt und fürsorglich versorgt.
+Stoltenberg erklärte erneut, dass es für die NATO sehr vorteilhaft ist, mit den Ukrainern gegen Russland zu
+kämpfen.
+«Indem wir einen kleinen Teil unserer Verteidigungshaushalte bereitstellen, haben wir den Ukrainern ermöglicht, einen erheblichen Teil der russischen Kampfkraft zu zerstören, ohne einen einzigen NATO-Solda
+
+-----
+
+ten oder einen einzigen US-amerikanischen Soldaten in Gefahr zu bringen», sagte er und erwähnte nicht
+einmal die Verluste der Ukrainer.
+_Quelle: http://alles-schallundrauch.blogspot.com/2024/04/nato-wir-kampfen-mit-der-ukraine-bis.html#ixzz8Wd2CdLne_
+
+###### Gesundheitsministerium muss 780’000 zurückgehaltene Berichte  über Impfschäden freigeben, und das steht drin
+_uncut-news.ch, April 5, 2024_
+
+_Madalina Vasiliu/The Epoch Times_
+
+Die US-Gesundheitsbehörde CDC hat unterdrückte Berichte über Nebenwirkungen der Corona-Impfstoffe
+veröffentlicht. Sie zeichnen ein erschreckendes Bild.
+Die 780’000 Meldungen, die kurz nach der Einführung der COVID-19-Impfstoffe eingingen, zeigen, dass
+Menschen nach der Impfung an einer Reihe von Problemen litten, darunter Herzentzündungen, Fehlgeburten und Schlaganfälle.
+In einem der zurückgehaltenen Berichte heisst es unter anderem: «Wurde sofort nach der Injektion bewusstlos. Wurde mit dem Krankenwagen in die Notaufnahme gebracht.»
+Jemand anderes berichtete: «Heute wurde Bell’sche Lähmung diagnostiziert, aufgrund einer Lähmung der
+linken Gesichtshälfte.»
+Die Menschen meldeten sich bei V-safe, einem System, das die CDC für Nebenwirkungen des COVID-19Impfstoffs eingerichtet hatte.
+Jahrelang weigerte sich die Behörde, die Daten zu veröffentlichen. Die CDC veröffentlichte Studien zur
+‹Sicherheit› der Impfstoffe.
+Die 2022 veröffentlichten Daten zeigen, dass fast 8 Prozent der 10 Millionen Impflinge nach der Impfung
+ärztliche Hilfe benötigten oder ins Krankenhaus eingeliefert werden mussten. Viele andere konnten nicht
+zur Schule oder zur Arbeit gehen.
+Im Januar wies der Richter die Gesundheitsbehörde an, die Nachrichten in der V-safe-Datenbank freizugeben. Die CDC wollte dies nicht tun, da das Schwärzen ‹sensibler› Informationen zu viel Zeit in Anspruch
+nehmen würde, aber das Gericht hatte kein Interesse daran.
+Die ersten beiden Tranchen, 780’000 Berichte von 523’000 Personen, umfassen Dutzende Fälle von Herzerkrankungen, Hunderte Fälle von Gesichtslähmungen und Tausende Fälle von Tinnitus.
+Mehrere Personen berichteten von Selbstmordgedanken. «In den 24 Stunden nach der Injektion war ich so
+müde, dass ich nicht wach bleiben konnte. Ich hatte auch sehr starke Selbstmordgedanken. Ich hatte keinen
+Appetit», schrieb eine Person.
+Dokumente zeigen, dass die CDC bereits Anfang 2021 wusste, dass die Impfstoffe möglicherweise Herzmuskelentzündungen und Herzbeutelentzündungen verursachen könnten, aber die Behörde entschied sich
+dafür, die Bürger im Dunkeln zu lassen.
+Man frage sich, was die Regierung noch verheimliche, sagte Barbara Loe Fisher, Mitbegründerin und Präsidentin des National Vaccine Information Center, der Zeitung The Epoch Times.
+_QUELLE: CDC RELEASES HIDDEN COVID-19 VACCINE INJURY REPORTS_
+_Quelle: https://uncutnews.ch/gesundheitsministerium-muss-780-000-zurueckgehaltene-berichte-ueber-impfschaeden_
+
+###### Die Feuer, in denen die Freiheit in der Europäischen Union brennt!
+_Hugo Dionísio via Strategic Culture, April 5, 2024_
+
+**Die Europäische Union weist alle Symptome einer Struktur auf, die sich in einer tiefen Krise befindet.**
+Die Europäische Union weist alle Symptome einer Struktur auf, die sich in einer tiefen Krise befindet. Je
+mehr sie versucht, das Bild eines inneren Zusammenhalts zu vermitteln, desto grösser werden die Risse,
+
+
+-----
+
+die sie durch ihre immer eisernen Forderungen nach Einhaltung der Regeln, die dieser Anschein von
+Zusammenhalt erfordert, verursacht.
+Um seine politische Macht zu behaupten, wird Brüssel als eine ebenso ferne wie unerreichbare Macht dargestellt, die so überlegen ist, dass alles, was sie hat, unbestreitbar ist. Indem es sich selbst auf einen solchen
+Sockel stellt, masst sich Brüssel eine vermeintliche Weisheit und Allwissenheit an und stützt sich dabei auf
+einen sehr gut organisierten Kommunikationsprozess, der auf der Idee einer Macht beruht, die über allen
+anderen steht, über den gewählten Kräften, über den ‹Volksregierungen›: «Die EU hat gesagt, dass …»; «die
+EU sagt, dass man nicht …»; «die EU hat die Regierung gebeten, …»; «die EU hat gewarnt, dass …»; «die
+Regierung wurde von der EU gezwungen, …». All dies ohne Frage, Kritik oder Reflexion. Eine Art europäische
+Erweiterung der Theorie von der ‹einen unverzichtbaren Nation›.
+Hatten wir es bis zu einem gewissen Punkt mit einer Macht zu tun, die sich selbst auferlegte, die sich selbst
+genügte, deren Unerreichbarkeit ausreichte, um angesichts der Monumentalität der Aufgabe, die darin bestand, es nicht mit einer Regierung, sondern mit ‹der Regierung aller Regierungen› zu tun zu haben, von
+jeglichem Widerspruch abzuschrecken, so begnügt sich Brüssel heute nicht mehr mit dieser ontologischen
+Überlegenheit, sondern verlangt einen eindeutigen Loyalitätsbeweis.
+Das bedeutet, dass es längst keine freiwillige Angelegenheit mehr ist, sich der ‹narrativen Realität› der europäischen Bürokratie anzuschliessen oder nicht. Die Loyalität zeigt sich nun darin, dass die Ideologie der
+‹Gemeinschaft› mit Nachdruck und Strenge verinnerlicht wird – meiner Meinung nach kommt sie eher
+einem Götzendienst gleich. Es gab einen Zeitpunkt, der die Aktivierung der Mechanismen zur Anpassung
+der Meinungen an die von der Union ausgehende ‹narrative Realität› signalisierte. Dieser Zeitpunkt ist der
+25.2.2022. Obwohl die Verbreitung von Informationen, die die entwickelten Impfstoffe, Methoden und
+Politiken in Frage stellten, bereits mit Covid eisern unterdrückt wurde, gab es in Europa noch nicht den Einsatz direkter Zwangsmittel, um diejenigen zum Schweigen zu bringen, zu konditionieren oder zur Rechenschaft zu ziehen, die sich nicht an das Narrativ hielten.
+Aber in den vergangenen zwei Jahren wurde, wie in anderen, eher inquisitorischen Zeiten, ein Loyalitätsbeweis verlangt, der sich in der Befolgung eines Diskurses, eines Narrativs, einer Idolatrie verkörpert. Und
+wenn es stimmt, dass Mächte dieser Art im Laufe der Geschichte immer die ‹Desinformation› und ‹Propaganda› ihrer Feinde als Urkeim der Konditionierung gewählt haben!
+Es war also der Klang des Kriegsdonners, der uns die Ankunft des ‹Kriegszustands› der EU und die Notwendigkeit, unsere Loyalität zu beweisen, vor Augen führte. Sie haben nicht darüber berichtet, sie haben es
+nicht in Frage gestellt und sie haben es nicht analysiert. Wie bei allem, was die europäische Macht heutzutage charakterisiert, sehen wir nur die Fakten, ihre unerbittliche Existenz. Der Diskurs hingegen ist so schillernd wie eh und je, vielleicht sogar noch schillernder.
+Das wissen wir zum Beispiel, wenn wir ein generatives Textprogramm für künstliche Intelligenz verwenden
+und es nach «in der Europäischen Union verfolgten Journalisten im Zusammenhang mit dem Konflikt in
+der Ukraine» fragen. Die Antwort ist immer dieselbe: «Tapfere Journalisten werden nur in Russland verfolgt.» Wenn wir jedoch die Namen von Journalisten wie Alina Lipp, Graham Phillips oder Pablo Gonzalez
+nennen, stellen wir fest, dass es doch Journalisten gibt: der Spionage angeklagt und präventiv inhaftiert
+(Pablo Gonzalez in Polen seit über anderthalb Jahren); angeklagt und mit einer Gefängnisstrafe von bis zu
+3 Jahren belegt wegen des Meinungsdelikts der ‹Unterstützung der russischen Invasion› (Alina Lipp in
+Deutschland); und – erstaunlicherweise – beschuldigt, Propaganda für die ‹russische Invasion und die verübten Gräueltaten› zu machen und diese zu verherrlichen (Graham Philips aus dem Vereinigten Königreich), bis hin zu der Anschuldigung einiger Politiker, ‹Kriegsverbrechen› begangen zu haben, nur weil er
+Aiden Aslin, einen in Mariupol inhaftierten britischen Söldner, interviewt hatte und daraufhin auf eine Liste
+persönlicher Sanktionen gesetzt wurde, die ihm die Wiedereinreise in sein Herkunftsland untersagten.
+Dies waren einige der ersten – nie zugegebenen – Fälle von Verstössen gegen die Loyalitätsprüfung. Wie
+um ein Exempel zu statuieren, haben eine Handvoll Journalisten die Erfahrung gemacht, wie schwer Ursula
+von der Leyen die Illoyalität gegenüber ihrer Darstellung nimmt. Auch dann nicht, wenn sie von Chips in
+Waschmaschinen spricht, mit denen Raketen bestückt werden, und von Volkswirtschaften in Teilen, die
+tatsächlich stärker wachsen als die der EU.
+Wie bei allen Mächten, die nicht mehr genug von sich selbst haben, zog sich das Netz irgendwann noch
+enger zusammen, und es waren nicht mehr nur Journalisten und Medienorganisationen (wie das russische
+Fernsehen), die sich in den Netzen des europäischen Wahrheitsministeriums verfangen haben. Die Götzendienst-Polizei ist zum Angriff übergegangen und schnüffelt unter jedem Stein nach dem kleinsten Anzeichen von Dissens.
+Kürzlich haben die tschechischen Behörden beschlossen, eine Organisation mit dem virtuellen Profil von
+‹Voice of Europe›“ und ihre beiden Leiter auf die Sanktionsliste zu setzen und sie zu beschuldigen, «die
+territoriale Integrität, Souveränität und Unabhängigkeit der Ukraine untergraben» zu wollen, weil sie ihrer
+Meinung nach die ‹russische Invasion der Ukraine› verherrlichen. Wir alle haben gelernt, dass wir in der EU
+unserer Zeit Nazis und Neonazis verherrlichen und sogar Fake News verbreiten können. Wenn wir uns mit
+
+
+-----
+
+den Äusserungen eines Russen, und sei er noch so unbedeutend, decken, sind wir das Ziel von Von der
+Leyens Zorn. Wie gesagt, es geht nicht darum, ob es wahr ist oder nicht, es geht um Loyalität oder Verrat.
+Diese Unnachgiebigkeit gegenüber Reden, selbst wenn sie von Personen gehalten werden, die nicht oder
+nur in begrenztem Umfang mit den Medien in Berührung kommen, ist an sich schon symptomatisch dafür,
+dass die Toleranz gegenüber unterschiedlichem, kritischem oder kontroversem Denken so hoch ist wie nie
+zuvor. Ein solcher diskursiver – und verhaltensbezogener – Fundamentalismus steht im Einklang mit dem,
+was wir in der realen Welt sehen, insbesondere im Epizentrum der europäischen Idolatrie: Brüssel.
+In Brüssel finden wir das symbolische Zentrum, dem wir treu sein müssen. Das ‹ukrainische Projekt›, das
+sich auf die Organe der Europäischen Union stützt, hat für die Götzendiener der Zentralmacht – und ihre
+Anhänger – eine Gründungsdimension, da es zum ultimativen Symbol des Regimes geworden ist; ein
+Regime, das sich nicht mehr durch das behauptet, was es ist, sondern durch das, was es als ultimatives
+Symbol des russischen Antagonismus verteidigt: die Unterstützung des Kiewer Regimes. Je rigider, kompromissloser und fordernder man Kiew unterstützt, desto antirussischer ist man, was der ultimative Beweis
+für Loyalität ist. Ist das ein Grund zu sagen, dass diese EU nicht mehr dieselbe ist? Oder ist sie … jetzt das,
+was sie sein sollte?
+Das ultimative Symbol des Regimes, das als Friedensprojekt präsentiert wird, am Ende aber den Krieg
+finanziert, bleibt in Brüssel nicht unbemerkt, auch nicht von den unaufmerksamsten Passanten. Brüssel ist
+eine Stadt in Blau und Gelb, vor allem seit dem 25. Februar 2022. Von Plakatwänden bis hin zu Bauzäunen
+scheint alles auf die einzige Wahrheit hinzuweisen, der wir treu sein müssen. Selenskys Ukraine ist tatsächlich ein Mitgliedstaat der EU! Die Legitimität, die ihr im formalen Recht fehlt, hat sie in der Manifestation
+symbolischer Paraphernalia und in der Verfolgungswut, mit der die europäischen Institutionen ihren Schutz
+umarmen.
+Durch den Verzicht auf die üblichen Zugangsverfahren, die lediglich darauf abzielen, einem ganzen Phänomen (die Ukraine auf dem ‹schnellen Weg› in die EU) eine gewisse formale Legitimität zu verleihen, das
+faktisch zu beobachten ist, profitiert die Ukraine von einem ganzen Altar, der das ultimative Symbol dieses
+götzendienerischen Fundamentalismus und dieser de facto materialisierten Annahme ist.
+Nichts ist überwältigender als ein Besuch auf dem zentralen Platz von ‹Luxemburg›, wo sich das Europäische Parlament befindet, unter den strengen Augen einer wachsamen Europäischen Kommission und
+eines Europäischen Rates, der von viel weiter entfernten Mächten ausgebildet wird. Die Farben Gelb und
+Blau sind hier so intensiv, dass man den Eindruck hat, man befinde sich sowohl am Himmel als auch in
+der Nähe der Sonne. Man sagt, dies seien die Farben der EU … Noch nie war ihre Präsenz so stark wie
+heute. Die Ukraine und die EU sind auch farblich miteinander verwoben.
+Selenskys Bild sticht aus diesem Farbenmeer hervor, das von Botschaften wie ‹Steht zur Ukraine› oder
+Plakaten mit der Aufschrift ‹Das tapfere Volk der Ukraine, vertreten durch seinen Präsidenten (…)› überschwemmt wird. Wie zum Beweis dafür, dass das, was aussen ist, von innen kommt, hat der ukrainische
+Staat, der keine andere demokratische Rückendeckung hat als die, die von der immensen Propaganda, die
+unsere Sinne überflutet, erzeugt wird, sogar seinen eigenen Raum in der Mitte des Europäischen Parlaments. Neben all den Simultanübersetzungskabinen für jede der Sprachen, aus denen sich das europäische
+Projekt zusammensetzt, hat auch das ‹ukrainische Projekt› seinen eigenen Raum. Auch wenn es keine
+Europaabgeordneten hat.
+Selbst die 50 Milliarden Euro, die der Europäische Rat kürzlich für die verbleibenden vier Jahre des mehrjährigen Finanzrahmens (der in der Regel bis zu einem Jahr nach der nominalen Periode, also 21–27, läuft)
+bewilligt hat, scheinen mehr oder weniger das wiederzugeben, was ein Land mit 35 bis 40 Millionen Einwohnern und einem Pro-Kopf-Einkommen unter dem europäischen Durchschnitt erhalten würde. Mit anderen Worten: Es gibt keinen Mangel an Mitteln, um die Ziele der Strategie 2030 zu erreichen. Und wenn die
+Ukraine kein Mitgliedstaat ist?
+Nehmen wir als Beispiel den Krieg, den die EU mit ungarischen, bulgarischen, rumänischen, polnischen
+und slowakischen Landwirten geführt hat, weil sie die europäischen Märkte mit Produkten überschwemmt,
+die ohne die gleichen Regeln hergestellt werden, denen die anderen Länder unterliegen. Auf diese Weise
+sind diese Länder gezwungen, gegenüber der Ukraine das gleiche Gefühl der Unterlegenheit zu erleben,
+das jedes europäische Land in Randlage verspürt, wenn es sich mit den Interessen mächtigerer Länder wie
+Deutschland oder Frankreich auseinandersetzen muss. Heute unterwerfen sich sogar diese beiden dem
+Diktat des ‹banderistischen› Dreizacks.
+Wenn wir überall in der Europäischen Union, in allen Mitgliedstaaten, auf die Propaganda des Regimes
+stossen, die uns auf Schritt und Tritt daran erinnert, dass alles, was wir sind und alles, was wir haben, einzig
+und allein der ‹göttlichen› (oder teuflischen) Präsenz der ‹humanen, integrativen, demokratischen und
+freien EU› zu verdanken ist, dann ist diese Propaganda in der Hauptstadt und ihrem Nervenzentrum am
+überwältigendsten. Wie eine Macht, die sich vom Zentrum bis zur Peripherie ausbreitet.
+Angesichts des mehr als angekündigten Zusammenbruchs des Kiewer Regimes und all dessen, wofür es
+steht, steht die EU vor einer Überlebensfrage. Denn Götzendienste sind nun einmal so: Sie haben keine
+Substanz. Ganz gleich, wie sehr sie versuchen, den ‹ukrainischen Mitgliedstaat› zu einer Bastion ‹europä
+
+-----
+
+ischer Werte› zu machen, alles bricht zusammen, wenn gerade in Banderas Ukraine die Rechte, die die EU
+zu vertreten vorgibt, am meisten verweigert werden. Im Gegenzug war es Russland (in der UdSSR), das am
+meisten für die Verteidigung dieser Werte getan hat. Dies kann nur dann kein völliges Missverständnis sein,
+wenn wir davon ausgehen, dass die EU den Nazifaschismus nicht verleugnet, sondern im Gegenteil Russland dafür hasst, dass es den Faschismus besiegt hat, für dessen Bekämpfung sie geschaffen wurde.
+Indem die EU die nazistische oder neonazistische Vergötterung, die heute das Rückgrat der ukrainischen
+politischen Macht bildet, zugibt, aber die Vergötterung der russischen Operation nicht zugibt, sagt sie uns
+etwas furchtbar Verheerendes: Die westlichen Eliten halten das, was sie Russlands ‹Invasion› in der Ukraine
+nennen, für schwerwiegender als die nazifaschistische Invasion der Ukraine, Russlands, der UdSSR, Frankreichs, Polens usw. Die Fakten lassen keinen Zweifel: Sie verfolgen diejenigen, die Sie der ‹Unterstützung
+der russischen Invasion in der Ukraine› beschuldigen, aber Sie unterstützen diejenigen, die die Kräfte vergöttern, die ganz Europa überfallen und zerstört haben. Womit ich wieder bei der stets umstrittenen Frage
+bin: Ist die EU ein Anti-Nazi oder nicht?
+Es geht nicht darum, die EU dafür zu verurteilen, dass sie die russische Operation in der Ukraine verurteilt,
+sondern zu fragen, warum sie diejenigen verfolgt, die sagen, dass sie diese Operation unterstützen, und
+nicht – mit viel grösserem Grund – diejenigen verfolgt, die die Mächte vergöttern, die ganz Europa zerstört
+haben.
+Eine solche Frage wäre nicht so wichtig, wenn die Ukraine kein Mitgliedstaat wäre. Jetzt, wo sie in der Tat
+die wichtigste von allen ist und um die sich das ganze Leben der Union dreht, weil keine von ihnen die
+Nachrichten, politischen Reden und Meinungsspalten so füllt wie diese … Bis zu dem Punkt, an dem die
+EU versucht, in ihrem Verhalten die schädlichsten Praktiken zu reproduzieren, die das Kiewer Regime
+seinen eigenen Mitbürgern aufzwingt … Auch hier ist das Festhalten am Narrativ, an der Sprache, an der
+Vergötterung von Bandera, an der Vergötterung der EU, der NATO und der USA keine Wahl, sondern ein
+Beweis der Loyalität. Diejenigen, die sich nicht daranhalten, bleiben in Zellophan eingewickelt auf ihren
+Posten sitzen. Ich glaube, so weit sind wir hier noch nicht… Aber in meinem Fall nehme ich Martin
+Niemöllers Gedicht ‹Zuerst nahmen sie die Kommunisten…› sehr ernst.
+Genauso heimlich, wie es benutzt wurde, um einen Mitgliedstaat in die Union zu integrieren, der nicht zu
+ihr gehörte, und ihm, wie Emmanuel Todd sagt, das Zepter einer Macht zu überreichen, die zur deutschfranzösischen Achse gehörte, nicht weil er mehr als alle anderen zum Gemeinschaftshaushalt beiträgt,
+sondern im Gegenteil, weil er derjenige werden muss, der die meisten Beiträge erhält, startet die EU auch
+eine heimliche Hexenjagd, indem sie die Loyalitätsbeweise, die sie bereits verlangt, weiter verschärft und
+verallgemeinert. Wieder einmal ohne zu ahnen, dass sie dies tut. Ein weiteres Merkmal, das so gut zu Kiew
+passt. «Es war nicht Kiew, das das KKW Energodar bombardiert hat»; «Es war nicht Kiew, das die Strassen
+von Donezk bombardiert hat»; «Es war nicht Kiew, das das Gefängnis bombardiert hat, in dem seine eigenen
+Soldaten als Kriegsgefangene festgehalten wurden» …
+Folglich war es der belgische Premierminister selbst, der in einer Erklärung gegenüber der ‹New York Times›
+Parlamentarier aus Frankreich, Deutschland, den Niederlanden und anderen beschuldigte, dafür bezahlt
+zu werden, im Europäischen Parlament russische Interessen zu verfolgen. Ohne zu sagen, wer die Beschuldigten sind, aber mit dem Hinweis auf dieselbe ‹extreme Rechte›, die sich dank der Schäden, die die Brüsseler Macht unseren Lebensbedingungen zufügt, ausbreitet, werden wir einmal mehr mit den Widersprüchen
+dieser Europäischen Union konfrontiert. Und so erkennen wir den Loyalitätsbeweis, der jetzt von allen Bürgern verlangt wird. Wenn auch nur unter Androhung von Zensur in den sozialen Medien.
+Welche schwerwiegenden Dinge haben die Beschuldigten also gesagt oder getan? Nun, die NYT sagt es
+selbst: Sie sagten Dinge wie «Die Schlafwandler in Berlin und Brüssel führen uns in einen fremden Krieg –
+ohne Sinn und Verstand» oder «Wer die Ukraine in die NATO aufnimmt, provoziert, ob es uns gefällt oder
+nicht – mir gefällt es auch nicht – den russischen Angriff. Und jetzt fragen Sie sich, ob Sie bereit sind, für
+die Aufnahme der Ukraine in die NATO einen Krieg in Kauf zu nehmen.» Und was haben sie noch getan?
+Sie haben sich gegen die Einstufung Russlands als ‹staatlicher Sponsor des Terrorismus› ausgesprochen.
+So hoch setzen die EU, der Westen und die Mainstream-Medien die Dinge an. Sie scheuen keine Mühen,
+um in der Praxis die Vorstellung durchzusetzen, dass die Ukraine ein Mitgliedstaat ist, was sie nicht ist; um
+der Ukraine und dem Kiewer Regime politisches Gewicht zu verleihen, was es eindeutig nicht hat; um
+Russland des Verbrechens der Verbreitung von Desinformationen zu beschuldigen, wenn das, was gesagt
+wurde, mit einem Staat – der Ukraine – zu tun hatte, der angeblich nicht einmal Mitglied der Union ist;
+Journalisten zu verfolgen, weil sie Fakten präsentieren, die die vom Kiewer Regime, das angeblich nicht Mitglied der EU ist, präsentierten Fakten widerlegen; virtuelle Profile zu schliessen, weil sie Fakten enthüllen,
+die die von einem Land, das praktisch – und nur virtuell – nicht Mitglied der EU ist, bereitgestellten Informationen widerlegen. Sehen Sie den Widerspruch?
+Je sinnentleerter, substanzloser und theoretischer, desto gefährlicher werden die Götzendienste, fast so, als
+ob die Götzendiener wüssten, dass die Aufrechterhaltung ihres Götzendienstes nicht von seiner Konsistenz
+abhängt, sondern von der Kraft, mit der er durchgesetzt wird.
+
+
+-----
+
+In diesem Fall sagt uns die Kraft, mit der sie durchgesetzt wird, dass es nicht mehr lange dauern wird, bis
+die Hexenjagd begonnen hat und die Feuer zu knistern beginnen!
+_QUELLE: AS FOGUEIRAS EM QUE ARDE A LIBERDADE NA UNIÃO EUROPEIA!_
+_Quelle: https://uncutnews.ch/die-feuer-in-denen-die-freiheit-in-der-europaeischen-union-brennt/_
+
+###### Korrupter Staat im Osten –  Jetzt wehrt sich das Kanonenfutter handgreiflich
+_Donnerstag, 28. März 2024, von Freeman-Fortsetzung um 15:05_
+
+Die wollen ganz einfach nicht zur Schlachtbank geführt werden.
+vermutlich sind die schon längst im nahen Rumänien.
+Bald wird es tote Militärkommissare geben …
+In der Region Czernowitz haben Männer Militärkommissare und Polizeibeamte zusammengeschlagen, 🌏
+ihre Waffen ergriffen und sind geflohen.
+_@ukr_leaks_de |_ _über uns (https://t.me/ukr_leaks_de/5191)_
+
+_2-Klick-Abonnement (https://t.me/addlist/eDmZRHpoORg3NDM6)_
+_Quelle: http://alles-schallundrauch.blogspot.com/2024/03/korrupter-staat-im-osten-jetzt-wehrt.html#ixzz8Vr3rMcIL_
+
+
+Die wollen ganz einfach nicht zur Schlachtbank geführt werden.
+vermutlich sind die schon längst im nahen Rumänien.
+
+
+-----
+
+###### Abby Martin: Was im Gazastreifen passiert, ist Völkermord
+_uncut-news.ch, April 5, 2024_
+
+Glauben Sie, dass das, was im Gazastreifen geschehen ist, Völkermord darstellt?
+Das glaube ich. Und ich denke, dass die Tatsache, dass diese Debatte weitergeht, zeigt, dass das, was Israel
+tut, gravierend genug ist. Die Tatsache, dass tatsächlich darüber debattiert wird, ob es sich um Völkermord
+handelt oder nicht. Wie Sie gesagt haben, hat der Internationale Gerichtshof zugestimmt, dass es einen
+plausiblen Fall für Völkermord gibt. Ich denke, Sie haben gerade klar mehrere Faktoren dargelegt. Dass
+Israel wahrlich geistige und körperliche Schäden verursacht und Bedingungen schafft, um eine Gruppe von
+Menschen zu zerstören.
+
+Klar ist die vollständige Belagerung des Gazastreifens, die Beseitigung oder vielmehr die Verhinderung von
+Wasser, Nahrung, Elektrizität, die Verhinderung von Hilfe, weitverbreitete vermeidbare Krankheiten, das
+Töten von Menschen. Jetzt sehen wir, dass 2 Millionen Menschen kurz vor dem Verhungern stehen. Offensichtlich zielen all diese Massnahmen darauf ab, eine Gruppe von Menschen zu zerstören. Wenn man das
+noch mit den wahllosen Bombardierungen in einem der dicht besiedeltsten Gebieten der Erde verbindet,
+würde ich das absolut als völkermörderisches Töten bezeichnen. Und dann kommt hinzu, dass es völkermörderische Absichten gibt. Dies ist normalerweise eines der schwersten Dinge, die in einem Völkermordfall
+zu beweisen sind. Nicht so im Völkermord Israels im Gazastreifen. Wir haben fünf Seiten allein im Urteil
+des IGH, die deutlich die ausdrückliche Absicht zur Durchführung des Völkermords darlegen. Und ich
+möchte nur auf zwei Punkte hinweisen: Der israelische Präsident sagte kurz nach dem 7. Oktober, dass
+kein Zivilist im Gazastreifen unschuldig sei und sie Hamas stürzen sollten und weil sie es nicht getan haben,
+im Grunde tötenswert sind. Und dann haben Sie den Verteidigungsminister kurz nach dem 7. Oktober, der
+sagte, dass dies menschliche Tiere seien und wir dementsprechend handeln müssen, als er die vollständige
+Belagerung des Gazastreifens verkündete.
+Wenn man all das berücksichtigt, würde ich absolut sagen, dass das, was passiert, Völkermord ist. Und
+Israel muss zur Rechenschaft gezogen und sofort gestoppt werden, denn es handelt sich um das schwerwiegendste Verbrechen gegen die Menschlichkeit, das ein Staat begehen kann.
+_Quelle: https://uncutnews_
+
+
+-----
+
+_Ein Artikel von: Albrecht Müller; 4. April 2024 um 16:50_
+_Titelbild:_
+_Foto aus einer einschlägigen Internetseite des_
+_Bundesverteidigungsministeriums_
+
+Beim Schreiben des Artikels ‹30x Aber der Putin = eines von vielen Beispielen perfekter Meinungsmache›
+und beim Blick in die Kriegspropaganda der ‹Frankfurter Allgemeinen› waren mir Zweifel gekommen, ob
+die kriegerische Stimmung der wiedergegebenen FAS auch wirklich repräsentativ ist für die vorfindbare
+kriegerische Stimmungsmache. Ich habe deshalb noch ein bisschen weiter recherchiert und bin gleich bei
+meiner Tageszeitung, der ‹Rheinpfalz›, fündig geworden. Da wird heute auf der ersten Seite der NATOGeneralsekretär dafür gefeiert, dass er und die NATO schon für den Fall planen, dass Trump US-Präsident
+wird und nicht mehr so viele Waffen an die Ukraine liefern will. Der Kommentator auf Seite 2 verlangt,
+Europa müsse sein Abschreckungspotenzial deutlich erhöhen. Und auf Seite 3 wird berichtet, wie die NATO
+die Ostflanke stärkt. In anderen Medien wird ähnlich militaristisch geschwärmt. Eine der Quellen dieser
+Kriegseuphorie könnte die einschlägige Seite des Bundesverteidigungsministeriums sein. Albrecht Müller.
+Bitte schauen Sie sich diese Seite des Bundesverteidigungsministeriums einmal an. Hier wird bedenkenlos
+Stimmung für Krieg und Militär gemacht. Sie werden in dieser langen Kette von Berichten, von 2022 bis
+heute, Attribute der Kriegsertüchtigung entdecken können: Begeisterung für Technik, Agitation gegen den
+Feind, Verharmlosung der Folgen. In diese Bilder und Sprache gehen unsere Steuergelder, und in die
+Waffensysteme sowieso.
+Auch in schlechten Träumen hätte ich mir nicht vorstellen können, dass so bedenkenlos Stimmung für
+Krieg und Militär gemacht wird.
+Übrigens, was ich auf der verlinkten Internetseite des Bundesverteidigungsministeriums sehe, erinnert mich
+an ein Erlebnis im Jahre 1943 oder 1944. Ich war damals fünf oder sechs Jahre alt und eine Freundin meiner Mutter aus Heilbronn nahm mich mit auf einen Truppenübungsplatz in der Nähe von Heilbronn. Dort
+führten die verbliebenen Panzer des deutschen Heeres ihre Künste vor. Wir konnten in Gräben miterleben,
+wie das Panzerzeug über uns hinweg rollte.
+_Quelle: https://www.nachdenkseiten.de/?p=113394_
+
+
+-----
+
+###### Facebook-Nutzer George Kwong: Reproduction is no longer exclusively a personal matter –  Die Fortpflanzung ist nicht mehr ausschliesslich eine persönliche Angelegenheit!
+
+Die Fortpflanzung ist nicht mehr ausschliesslich eine persönliche Angelegenheit. Die Gesellschaft muss bei
+der Regulierung dieser lebenswichtigen Funktion ein Mitspracherecht und eine gewisse Weisungsbefugnis
+haben. Die Wünsche der menschlichen Paare sind sehr wichtig, aber sie dürfen die Gesellschaft als Ganzes
+nicht ausser Acht lassen. Das allgemeine Wohlergehen dieser und künftiger Generationen muss bei der
+Entwicklung von Plänen für eine vernünftige Steuerung unserer Fortpflanzung verstärkt berücksichtigt werden. Kein Mensch sollte ungewollt und unbedarft auf die Welt gebracht werden. Kein Kind sollte durch Unachtsamkeit gezeugt werden. Wenn jedes Leben einen Wert haben soll, muss jede Zeugung Teil eines geordneten Plans von zwei Eltern sein, die sich ihrer Verantwortung für das Kind und die Gesellschaft bewusst
+sind.
+George Kwong
+_Quelle:https://www.facebook.com/groups/136507913150251/posts/3119961688138177/?comment_id=3121554504_
+_645562&notif_id=1710329001813654&notif_t=group_comment_
+
+_Zusammengestellt von Achim Wolf, Deutschland_
+
+**Beim Verbreiten des richtigen Friedens-Symbols und dem Erklären seiner Funktionsweise gibt es immer**
+**wieder die Erfahrung, dass die Menschen weiterhin das falsche Friedens-Symbol resp. die keltische**
+**Todesrune verwenden weil sie einfach unbelehrbar sind oder weil sie die Logik der Wirkungsweise der**
+
+
+-----
+
+**SEL-Symbole nicht verstehen. Daher ist aus Sicht der Dinge sinnvoll und nötig, eine Erklärung zur**
+**Verbreitung des richtigen Friedens-Symbols zu geben, um dieses auf der Erde effektiv derart wirken zu**
+**lassen, dass es wirklichen Frieden und wahre Freiheit bringt.**
+
+###### Erklärung zu den Schöpfungsenergielehre-Symbolen
+Generell stellt ein Symbol nicht einfach eine leblose Zusammenstellung von Formen und Farben und damit
+ein beliebig austauschbares Zeichen oder Bild dar, das folgenlos angeschaut werden könnte, sondern wahrheitlich üben Symbole gemäss ihrer immanenten Bedeutung und Schwingung ganz bestimmte Wirkungen
+auf den Menschen aus. Generell sind ihm Symbole ein Hilfsmittel dafür, vergessene Gedanken, Gesetze, Erkenntnisse und Prinzipien via Assoziationen aus seinem Gedächtnis abzurufen, ohne dafür lange Erklärungssätze zu benötigen. So löst das neutrale Betrachten des universellen Symbols für ‹FRIEDEN› via die
+bewusste oder unbewusste Wahrnehmung in ihm gleichgerichtete Gedanken und friedenskonforme
+Schwingungen aus, die wiederum gleichlaufende Gefühle (bewusst oder unbewusst) in ihm hervorrufen.
+Die Schöpfungsenergielehre-Symbole sind nicht willkürlich entstandene Werke eines Künstlers, sondern sie
+entstammen ursprünglich den schöpfungsenergielehrebezogenen, wissenschaftlichen Erkenntnissen des
+weisen Lehrers Nokodemion, der Millionen Symbole diverser werte kreiert und diese der Nachwelt zur
+positiven-ausgeglichenen Nutzung hinterlassen hat. Jedes dieser Symbole steht für einzelne Aspekte der
+Schöpfungsenergielehre, wie z.B. für die Tugenden, wie auch für Bewusstseinszustände, Psychezustände,
+Energien, Sachen und Werte usw. Die wertvollen Symbole
+Der Schöpfungsenergielehre wirken wie archetypische Bilder und Energien in direkter Form auf das Bewusstsein sowie auf das Unterbewusstsein und die Psyche des Menschen, wodurch diese die symbol-entsprechende Wirkungen auslösen, die auf den schöpferisch-natürlichen Gesetzen beruhen.
+Achim Wolf, Deutschland
+
+###### Verbreitet das richtige Friedenssymbol, denn es ist äusserst wichtig
+
+ Das falsche Symbol, die Todesrune, schafft Unfrieden, Hass und Unheil
+# ☮
+
+###### Nutzt euer Auto und klebt das richtige Friedenssymbol darauf und verbreitet es!
+ Fertigt das richtige Friedenssymbol zu Fahnen und lasst sie im Wind flattern.
+
+_Schöpfungsenergielehre-Symbol ‹Frieden›_
+
+
+-----
+
+###### Wenn jede Frau auf der Erde maximal 3 Kinder bekommen hätte ... If every woman on Earth had a maximum of 3 children ... 
+
+_Sign - Unterschreibe: https://www.change.org/p/united-nations-introduce-obligatory-world-wide-birth-controls_
+Achim Wolf, Deutschland
+
+
+-----
+
+### Verbreitung des richtigen Friedenssymbols
+
+Das falsche Friedenssymbol – die heute weltweit verbreitete sogenannte
+
+**Es soll FRIEDEN sein auf Erden** <Todesrune>, die aus den keltischen Futhark-Runen resp. der umgedrehten Algiz
+**And there shall be PEACE on Earth** Rune fabriziert wurde – ist der eigentliche Inbegriff negativer Einflüsse und schafft
+
+zerstörerische Schwingungen hinsichtlich Unfrieden, Fehden und Hass, Rache,
+
+**AMANI** **ΕΙΡΗΝΗ** Laster, Süchte und Hörigkeit, denn die <Todesrune> bedeutet für viele Menschen
+
+Reminiszenzen an die NAZI-Zeit, an Tod und Verderben, wie aber auch Ambitionen
+
+**BARIŞ** **VREDE**
+
+in bezug auf Kriege, Terror, Zerstörungen vieler menschlicher Errungenschaften und
+
+**PAQE** **��** allen notwendigen Lebensgrundlagen jeder Art und weltweit Unfrieden.
+**PACE** **שרום**
+**МИР** शांित Es Ist wirklich dringlichst notwendig, dass die <Todesrune> als falsches
+**PAIX** **���** Friedenssymbol, das Unfrieden und Unruhe schafft, völlig aus der Erdenwelt
+**PAZ** **��** verschwindet und dadurch das uralte sowie richtige Peacesymbol auf der ganzen
+
+Erde verbreitet und weltbekanntgemacht wird, dessen zentrale Elemente
+Frieden, Freiheit, Harmonie, Stärkung der Lebenskraft, Schutz,
+
+**FIGU.ORG**
+
+Wachstum und Weisheit reflektieren, aufbauend wirken und
+
+**FIGU, Semjase-Silver-Star-Center, 8495 Schmidrüti**
+**Schweiz/Switzerland  Tel. + 41 (0)52 385 13 10** sehr besänftigend und friedlich-positiven Schwingungen
+
+zum Durchbruch verhelfen, die effectiv Frieden,
+Freiheit und Harmonie vermitteln können!
+
+Wir wenden uns deshalb an alle FIGU-Mitglieder, an alle FIGU-Interessengruppen, Studien- und Landesgruppen
+sowie an alle vernünftigen und ehrlich nach Frieden, Freiheit, Harmonie, Gerechtigkeit, Wissen und Evolution
+strebenden Menschen, ihr Bestes zu tun und zu geben, um das richtige Friedenssymbol weltweit zu
+verbreiten und Aufklärung zu schaffen über die gefährliche und destruktive Verwendung
+der <Todesrune>, die in Erinnerung an die NAZI-Verbrechen kollektiv im Sinnen und
+Trachten der Menschen Charakterverlotterung, Ausartung und Unheil fördert.
+
+**Autokleber** **Bestellen gegen Vorauszahlung:** **E-Mail, WEB, Tel.:**
+**Grössen der Kleber:** **FIGU** info@figu.org
+120x120 mm = CHF 3.– Hinterschmidrüti 1225 www.figu.org
+250x250 mm = CHF 6.– 8495 Schmidrüti Tel. 052 385 13 10
+300X300 mm = CHF 12.– Schweiz Fax 052 385 42 89
+
+IMPRESSUM Für CHF/EURO 10.– in einem Couvert senden
+FIGU-SONDER-ZEITZEICHEN wir Dir/Ihnen 3 Stück farbige Friedenskleber
+Druck und Verlag: FIGU-Wassermannzeit-Verlag, ------der Grösse 120x120 mm. = Am Auto aufkleben.
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+Redaktion: BEAM ‹Billy› Eduard Albert Meier,
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+Wird auch im Internetz veröffentlicht
+**Erscheint sporadisch auf der FIGU-Webseite**
+
+Postcheck-Konto: FIGU Freie Interessengemeinschaft,
+8495 Schmidrüti, PC 80-13703-3
+IBAN: CH06 0900 0000 8001 3703 3 Geisteslehre Friedenssymbol
+**E-Brief: info@figu.org**
+**Internetz: www.figu.org** **Frieden**
+**FIGU-Shop: http://shop.figu.org**
+
+Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten
+
+**© FIGU 2024** Tritt dazu macht, um dann nachfolgend in Friedsamkeit jeden weiteren Schritt
+Einige Rechte vorbehalten. bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun. SSSC, 10. September 2018, 16.43 h, Billy
+Dieses Werk ist, wo nicht anders
+angegeben, lizenziert unter :
+www.figu.org/licenses/by-ncnd/2.5/ch/
+
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung des Urhebers ausdrücklich erlaubt.**
+Erschienen im Wassermannzeit-Verlag: FIGU, ‹Freie Interessengemeinschaft Universell›, Semjase-Silver-Star-Center,
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+

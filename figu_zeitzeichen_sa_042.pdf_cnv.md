@@ -1,0 +1,1813 @@
+9. Jahrgang
+Nr. 42 Januar/2 2023
+
+
+Erscheinungsweise:
+sporadisch
+
+
+### Sonderausgabe
+# FIGU ZEITZEICHEN
+
+######    Aktuelles • Einsichten • Erkenntnisse
+
+Internetz: http://www.figu.org
+E-Brief:  info@figu.org
+
+
+###### Organ für freie, politisch unabhängige Berichterstattungen zum Weltgeschehen, kommentarlose, neutrale und meinungslose Weitergabe von Zeitungsberichten.
+##### ***************************************************************************
+Laut ‹Allgemeine Erklärung der Menschenrechte›, verkündet von der Generalversammlung der Vereinten Nationen am 10. Dezember 1948,
+herrscht eine allgemeine ‹Meinungs- und Informationsfreiheit› vor, und dieses unumschränkte Recht gilt weltweit und absolut für jeden
+einzelnen Menschen weiblichen oder männlichen Geschlechts jeden Alters und Volkes, jedes gesellschaftlichen Standes wie auch in
+bezug auf rechtschaffene Ansichten, Ideen und jeglichen Glauben jeder Philosophie, Religion, Ideologie und Weltanschauung:
+
+**Art. 19 Menschenrechte**
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit, Meinungen**
+**unangefochten anzuhängen und Informationen und Ideen mit allen Verständigungs-**
+**mitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Ansichten, Aussagen, Darstellungen, Glaubensgut, Ideen, Meinungen sowie Ideologien jeder Art in Abhandlungen, Artikeln
+und in Leserzuschriften usw. müssen in keiner Art und Weise zwingend identisch mit dem Gedankengut und den
+Interessen, mit der ‹Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens›, wie auch nicht in
+irgendeiner Sachweise oder Sichtweise mit dem Missionsgut und dem Habitus der FIGU verbindend sein.
+==================================================================================
+==================================================================================
+Für alle in den FIGU-Zeitzeichen und anderen FIGU-Periodika publizierten Beiträge und Artikel verfügt die
+FIGU über die notwendigen schriftlichen Genehmigungen der Autoren bzw. der betreffenden Medien!
+###### ****************************************************************************************
+
+**Auf vielfach geäusserten Wunsch aus der Zeitzeichen-Leserschaft sollen in den Zeitzeichen zur Orientierung der**
+**Rezipienten laufend Auszüge diverser wichtiger Belange aus neuest geführten Kontaktgesprächsberichten**
+**veröffentlicht werden, wie nach Möglichkeit auch alte sowie neue Fakten betreffs weltweit bösartig mit**
+**Lügen, Betrug, Verleumdung und Mordanschlägen gegen BEAM geführte Kontroversen.**
+
+###### ************************************************************************************************
+
+##### Arzt schlägt Alarm: Tumore sind grösser als je zuvor
+_uncut-news.ch, Januar 5, 2023_
+
+Die Ärzte sehen immer mehr Patienten mit Krebs. In vielen Fällen befindet sich die Krankheit bereits in
+einem fortgeschrittenen Stadium. Auch der kanadische Arzt Charles Hoffe sieht dies in seiner Praxis.
+
+Normalerweise ist nur ein kleiner Prozentsatz der neu diagnostizierten Krebserkrankungen im Stadium 4.
+«In meiner Praxis sind etwa zwei Drittel aller Krebsdiagnosen seit der Einführung des Impfstoffs im Stadium
+4», sagte Hoffe in der Sendung Good Morning CHD.
+
+Der Arzt sagte, dass Pathologen aus der ganzen Welt beobachten, dass Krebserkrankungen bei Patienten,
+die in Remission waren, nach der Impfung wieder aufflammen, weil ihr Immunsystem durch die Coronaimpfstoffe geschädigt wurde.
+
+«Die Tumore sind grösser als je zuvor», sagte Hoffe über die neu diagnostizierten Krebsfälle. «Sie scheinen
+sehr aggressiv zu wachsen, sich äusserst aggressiv zu verbreiten und gegen Behandlungen resistent zu
+sein.»
+
+
+-----
+
+_‹Turbo Cancer›: Dr. Charles Hoffe Says 2/3 of His Patients’ New Cancer Diagnoses are Stage 4_
+
+«In diesem Fall spricht man auch von Turbokrebs», betonte er.
+
+Zuvor hatte Hoffe gesagt: «Je mehr Impfungen man macht, desto wahrscheinlicher ist es, dass man an
+Corona stirbt.» Er fügte hinzu, dass die Impfungen das Immunsystem schwer schädigen.
+
+Die Diskriminierung der Ungeimpften ist völlig absurd, denn sie sind diejenigen, die die Krankheit überleben
+werden, so der Arzt. Er sagte auch, es sei ‹absurd›, dass die Medien die Menschen weiterhin in die Irre führen, indem sie behaupten, man könne andere schützen, indem man sich impfen lässt.
+_Quelle: https://uncutnews.ch/arzt-schlaegt-alarm-tumore-sind-groesser-als-je-zuvor/_
+
+##### Leserbrief in der ‹Frankfurter Allgemeine Zeitung›, 15. Dezember 2022
+
+
+-----
+
+**Quelle: https://ecopop.ch/**
+
+
+-----
+
+-----
+
+-----
+
+-----
+
+**Quelle: twitter.com**
+
+
+-----
+
+-----
+
+-----
+
+##### MSM vertuscht 21 Billionen Dollar historischen Regierungsbetrug –  Dr. Mark Skidmore
+_von Greg Hunter, 20. Januar 2019_
+
+Der Wirtschaftsprofessor Mark Skidmore von der Michigan State University hat aufgedeckt, dass im Verteidigungsministerium (DOD) und im Ministerium für Wohnungsbau und Stadtentwicklung (HUD) 21 Billionen Dollar ‹verschwunden› sind. Er und ein Team von Wissenschaftlern haben öffentlich zugängliche Buchhaltungsberichte der Regierung verwendet und ihre Ergebnisse Ende 2017 veröffentlicht. Jetzt haben die
+Mainstream-Medien (MSM) die Geschichte aufgegriffen. Anstatt die Öffentlichkeit zu alarmieren, sagen die
+MSM, dass es sich im Grunde um einen grossen Fehler handelt und verschweigen den grössten Buchhaltungsbetrug in der Geschichte der US-Regierung. Versuchen die MSM diese Geschichte zu vertuschen und
+zu vernichten? Dr. Skidmore sagt: «Sie versuchen, diese Geschichte zu vertuschen, aber ich glaube nicht,
+dass sie sie vertuscht haben. Im Grunde haben sie nur gesagt, dass es sich um eine Verwechslung bei den
+Transaktionen handelt. Es ist wirklich keine so grosse Sache. Sie sagten, es handele sich um 21 Billionen
+Dollar an Transaktionen, die nicht verifiziert werden können, aber sie schlossen dies vollständig aus.»
+Nun will die Regierung keine Informationen über diese ‹fehlenden› 21 Billionen Dollar geben. Skidmore
+fährt fort: «Wenn man sich das Durcheinander ansieht, das möglicherweise zu 21 Billionen Dollar führen
+könnte, die nicht verifiziert sind, ‹fehlendes Geld›, dann ist das so gross, so riesig, dass es unvorstellbar ist,
+dass es sich nur um eine Komödie der Fehler handeln könnte. Ich denke, es gibt einen hohen Prozentsatz
+an Betrug. Ich glaube, dass hier eine enorme Menge an Betrug vorliegt. Wenn wir diese Zahlen erreichen,
+ist die Wahrscheinlichkeit, dass es bei 21 Billionen Dollar keinen Betrug gibt, unvorstellbar. Die Wahrscheinlichkeit, dass es keinen Betrug gibt, ist gleich Null.»
+Es handelt sich also um einen riesigen Buchhaltungsbetrug? Dr. Skidmore sagt: «Ja, meiner Meinung nach
+kann ich zu keinem anderen Schluss kommen. Ich kann mir einfach nicht vorstellen, wie man auf der
+Grundlage öffentlicher Haushaltspläne zu diesen riesigen Zahlen kommen kann, ohne dass etwas furchtbar
+schiefgelaufen ist. Es geht nicht nur um ‹Stopfen›. Man muss sich die Vorgänge noch einmal ansehen, und
+dazu wird uns kein Zugang gewährt.»
+Nicht nur Skidmore wird der Zugang verweigert, sondern der gesamte Bundeshaushalt ist zu einer Frage
+der nationalen Sicherheit geworden. Es gibt buchstäblich keinen öffentlichen Zugang mehr zu dem, wofür
+die Regierung Ihr Steuergeld ausgibt. Skidmore sagt: «Seit dem 4. Oktober haben wir praktisch zwei Arten
+von Büchern. Wir haben eine Reihe von Büchern, die von einer Gruppe von Leuten manipuliert und verän
+
+-----
+
+dert werden können, die entscheiden, dass es eine Frage der nationalen Sicherheit ist. Sie können die
+Zahlen ändern und Dinge darin verschieben ... oder die Finanzierung ganz umstellen, um sie zu verbergen.
+Wir werden einen Finanzbericht erstellen, der gefälscht ist, und wir werden keine Ahnung haben, wie viel
+Geld verschoben wurde, und wir werden alle so tun, als ob wir einen echten Bericht hätten. Wir werden
+auch einen echten Bericht haben, der verborgen bleibt. Es scheint selbsterklärend, dass, wenn die Regierung nicht in der Lage ist, 21 Billionen Dollar zu verfolgen, etwas zutiefst falsch ist.»
+_https://usawatchdog.com/msm-covers-up-21-trillion-historic-government-fraud-dr-mark-skidmore/_
+
+##### MSM Covers Up $21 Trillion Historic Government Fraud –  Dr. Mark Skidmore
+_By Greg Hunter On January 20, 2019 In Political Analysis 195 Comments_
+
+Michigan State Economics Professor Mark Skidmore has revealed there was $21 trillion in what he calls
+“missing money” from the Department of Defense (DOD) and Housing and Urban Development (HUD). He
+and a team of academics used publicly available government accounting reports and revealed their results
+in late 2017. Now, the mainstream media (MSM) has picked up the story. Instead of sounding the alarm to
+the public, the MSM says it’s basically all a big mistake and is discounting the biggest accounting fraud in
+the U.S. government history. Is the MSM trying to cover up and kill this story? Dr. Skidmore says, “They are
+trying to kill this story, but I don’t think they have killed this story. . . . Basically, what they said was this was
+just all ‘plugs’ and there is a mix-up in the transactions. It’s really not that big of a deal. They did say it was
+$21 trillion in transactions that cannot be verified, but discounted it fully.”
+Now, the government will not give any information on this “missing” $21 trillion. Skidmore goes on to say,
+“When you start looking at the mess that could possibly generate $21 trillion that are unverified, ‘missing
+money,’ it’s so big, so huge, it is inconceivable that it could just be a comedy of errors. . . . I think there is a
+high percentage of fraud. I believe there is a tremendous amount of fraud embedded in there. . . . When we
+get to these numbers, the odds there is not fraud in $21 trillion is mind boggling. . . . There is zero chance
+there is no fraud.
+So, this is a huge accounting fraud? Dr. Skidmore says, “Yeah, in my mind, I cannot come to any other
+conclusion. I just don’t see how you can come up with those huge numbers based on public budgeting
+without something terribly gone wrong. It’s not just ‘plugs.’ You want to go back in and look at those
+transactions, and we are not given access to do that.”
+Not only is Skidmore being refused access, but the entire federal budget has been turned into a national
+security issue. There is literally no more public access to what the government spends your tax money on.
+Skidmore says, “Now, as of October 4[th,] we have effectively two sets of books. We have a set of books that
+can be manipulated and changed by a group of people that determine it’s a national security issue. They
+can alter the numbers and move things around within . . . or shift funding all the way to hide it. What we
+are going to do is produce a financial statement that is fake, and we will have no idea how much money
+was moved around, and we are all going to pretend we are going to have a real report. We will also have an
+actual report that will remain hidden. . . . It seems self-explanatory that if the government can’t track $21
+trillion, there is something deeply wrong.”
+Join Greg Hunter as he goes One-on-One with Michigan State Economics Professor Mark Skidmore, who
+discovered $21 trillion in “missing” money at the DOD and HUD.
+_https://usawatchdog.com/msm-covers-up-21-trillion-historic-government-fraud-dr-mark-skidmore/_
+
+##### Die CIA nutzt den Spionagedienst eines europäischen  NATO-Verbündeten, um unter dessen Leitung eine verdeckte Sabotagekampagne in Russland durchzuführen, so ehemalige  US-Geheimdienst- und Militärbeamte.
+_24. Dezember 2022 von J. M._
+
+Die Kampagne umfasst seit langem bestehende Schläferzellen, die der verbündete Spionagedienst aktiviert
+hat, um Moskaus Invasion in der Ukraine zu verhindern, indem er einen geheimen Krieg hinter den russischen Linien führt.
+Nach Angaben von drei ehemaligen US-Geheimdienstmitarbeitern, zwei ehemaligen US-Militärs und einer
+US-Person, die in die Kampagne eingeweiht wurde, ist die Kampagne seit Jahren in der Planung und für
+viele der unerklärlichen Explosionen und anderen Pannen verantwortlich, die den russischen militärischindustriellen Komplex seit dem russischen Einmarsch in die Ukraine im Februar heimgesucht haben. Die
+
+
+-----
+
+ehemaligen Beamten lehnten es ab, konkrete Ziele für die von der CIA geleitete Kampagne zu nennen, aber
+Eisenbahnbrücken, Treibstoffdepots und Kraftwerke in Russland wurden alle bei ungeklärten Zwischenfällen beschädigt, seit der Kreml im Februar seine groß angelegte Invasion in der Ukraine startete.
+Zwar ist kein amerikanisches Personal vor Ort in Russland an der Durchführung dieser Missionen beteiligt,
+aber paramilitärische Offiziere der Agentur leiten und kontrollieren die Operationen, wie zwei ehemalige
+Geheimdienstmitarbeiter und ein ehemaliger Militärbeamter berichten. Die paramilitärischen Offiziere sind
+dem Special Activities Center der CIA zugeteilt, aber dem European Mission Center der Agentur unterstellt,
+so die beiden ehemaligen Geheimdienstmitarbeiter. Der Einsatz eines verbündeten Nachrichtendienstes,
+der der CIA eine zusätzliche Schicht plausibler Bestreitbarkeit verschafft, war nach Angaben eines ehemaligen US-Beamten für Sondereinsätze ein wesentlicher Faktor bei der Entscheidung von US-Präsident Joe
+Biden, die Angriffe zu genehmigen.
+Obwohl die Befehlsgewalt und Kontrolle über das Sabotageprogramm aus rechtlichen Gründen bei der CIA
+liegt, hat der NATO-Verbündete ein starkes Mitspracherecht, welche Operationen durchgeführt werden, da
+es seine Leute sind, die die Risiken eingehen. Quellen wiesen wiederholt die Behauptung zurück, der NATOVerbündete sei ein Erfüllungsgehilfe der CIA, und bezeichneten es als eine enge Partnerschaft. Der europäische Verbündete, dessen Agenten die Sabotagekampagne durchführen, wird hier nicht genannt, da dies
+die operative Sicherheit der Zellen gefährden könnte, die in Russland noch aktiv sind.
+Jede verdeckte Aktion von US-Behörden muss durch eine präsidiale Entscheidung genehmigt werden.
+Nachdem die US-Geheimdienste zu dem Schluss gekommen waren, dass sich Russland in die US-Präsidentschaftswahlen 2016 eingemischt hatte, unterzeichnete Präsident Barack Obama laut The Washington
+Post vor seinem Ausscheiden aus dem Amt einen solchen Beschluss für verdeckte Massnahmen gegen
+Russland. An dem Beschluss waren neben der CIA auch die National Security Agency und das Cyber
+Command des Militärs beteiligt. Der Post zufolge beinhaltete der Beschluss einen Plan, ‹Cyberwaffen in die
+russische Infrastruktur einzubauen›.
+Laut einem ehemaligen CIA-Beamten enthielt das Ergebnis von 2016 auch Formulierungen über Sabotageoperationen. Andere ehemalige Beamte sagten, dass die aktuelle Sabotagekampagne entweder eine völlig
+neue Feststellung oder eine Änderung einer bereits bestehenden Feststellung über Russland erfordert hätte.
+CIA-Sprecherin Tammy Thorp bestritt jegliche Beteiligung der Behörde an der Welle mysteriöser Explosionen, die im Jahr 2022 die russische Verteidigungs- und Verkehrsinfrastruktur getroffen haben. «Die Behauptung, die CIA unterstütze in irgendeiner Weise Saboteur-Netzwerke in Russland, ist kategorisch falsch»,
+sagte die Sprecherin. Nach Titel 50 des US-Gesetzbuchs, der verdeckte Operationen erlaubt, kann die CIA
+die Existenz dieser Operationen rechtmässig gegenüber allen ausser der so genannten ‹Gang of Eight› –
+den Vorsitzenden und ranghohen Minderheitsmitgliedern der Geheimdienstausschüsse des Kongresses,
+dem Sprecher und dem Minderheitsführer des Repräsentantenhauses sowie dem Mehrheits- und Minderheitsführer des Senats – abstreiten.
+Die Kampagne des NATO-Verbündeten, die von der CIA überwacht wird, ist nur eine von mehreren verdeckten Operationen, die von westlichen Staaten in Russland durchgeführt werden, so zwei ehemalige Beamte
+der US-Spezialeinheiten. Aufgeschreckt durch die russische Invasion im Februar haben andere europäische
+Geheimdienste lange ruhende Widerstandsnetzwerke in ihren eigenen Ländern aktiviert, die wiederum
+Agenten nach Russland geschickt haben, um ohne die Hilfe der CIA Chaos zu stiften, so ein ehemaliger USMilitärbeamter. Darüber hinaus führen ukrainische Geheimdienste und Spezialeinheiten, wie bereits mehrfach berichtet, eigene Operationen hinter den russischen Linien durch.
+Laut Mick Mulroy, einem ehemaligen paramilitärischen CIA-Offizier, zeigen die zahlreichen Sabotageaktionen Wirkung. «Ich weiss nicht, wer hinter diesen Angriffen steckt, aber ihr Wert ist beträchtlich und dient
+mehreren Zwecken», sagte er. «Russland hat erhebliche Probleme, seine logistischen Versorgungslinien
+aufrechtzuerhalten. Diese Angriffe erschweren die Versorgung seiner Streitkräfte zusätzlich.»
+Sie dienen auch dazu, Zweifel in den Köpfen des Kremls zu säen, denn sie zeigen, dass der russische Präsident Wladimir Putin ‹keine Kontrolle darüber hat, was in seinem eigenen Land geschieht›, so Mulroy. «Handelt es sich um ein verdecktes Programm, um verärgerte Russen, die ihr eigenes Werk sabotieren, oder ist
+es reine Inkompetenz der Arbeiter? Ich weiss es nicht, und vielleicht weiss es auch der Kreml nicht. Das ist
+für paranoide Autokraten wichtig.»
+Indem sie sich weigern, die Lorbeeren für einzelne Sabotageakte zu ernten, die vom europäischen Spionagedienst unter der Leitung der CIA begangen wurden, hoffen die beiden Agenturen, dem Kreml eine Botschaft zu übermitteln, während sie die russischen Sicherheitsdienste in alle Richtungen hetzen, um die
+Schuldigen zu finden, so ein ehemaliger US-Militärbeamter. «Bei Sabotage und Subversion gibt es eine
+psychologische Komponente», sagte der ehemalige Beamte.
+«In den letzten Monaten hat es in ganz Russland viele Brände gegeben, vor allem in Waffenfabriken und
+anderen wichtigen Anlagen», sagte die Russland-Analystin Olga Lautman, die als Non-Resident Fellow am
+Center for European Policy Analysis arbeitet. «Die russischen Medien haben über diese Brände als separate
+Vorfälle berichtet. Sie haben keine Propaganda um diese Vorfälle gemacht und sie als Unfälle behandelt.»
+
+
+-----
+
+Als beispielsweise Ende April ein Gebäude der russischen Luft- und Raumfahrtverteidigungskräfte abbrannte und mehr als 20 Menschen ums Leben kamen, berichteten die russischen Staatsmedien, dass der Brand
+durch eine fehlerhafte Verkabelung verursacht wurde. Der Kreml ist sich jedoch bewusst, dass es sich nicht
+nur um zufällige Brände und Industrieunfälle handelt, auch wenn dies in den offiziellen Medien so dargestellt wird, so ein ehemaliger US-Geheimdienstmitarbeiter.
+Die Überschneidungen der verschiedenen verdeckten Aktionen hinter den russischen Linien haben den
+westlichen Spionagediensten, die diese Missionen durchführen, Probleme bereitet. Im Laufe des Sommers
+wurde den CIA-Offizieren klar, dass ihre eigenen Ersatztruppen in Russland immer stärker aufeinander abgestimmt werden mussten, so zwei ehemalige Militärs. Es kam zu zahlreichen Zwischenfällen, bei denen
+Bahnlinien oder Stromleitungen gekappt wurden, die ungewollt andere Missionen beeinträchtigten, so einer
+der beiden.
+Schlimmer noch, zwei Sabotagezellen kompromittierten sich gegenseitig, während sie dasselbe Ziel ausspähten, so die beiden ehemaligen Militärbeamten. Bei dem daraus resultierenden Feuergefecht mit den
+russischen Sicherheitsdiensten kam ein Mitarbeiter ums Leben und ein weiterer wurde gefangen genommen. Seitdem wurde viel getan, um eine Wiederholung solcher Vorfälle zu verhindern, so einer der ehemaligen Beamten für Spezialoperationen.
+Die Wurzeln dieser Sabotageeinsätze in Russland reichen weit zurück. Nach Angaben zweier ehemaliger
+Militärs hatte der alliierte Spionagedienst einige der von diesen Zellen verwendeten Sprengstoff- und Ausrüstungsvorräte bereits vor mehr als zehn Jahren deponiert. Damals handelte der Spionagedienst einseitig
+und ohne Beteiligung der CIA, so ein ehemaliger US-Beamter für Sondereinsätze und eine Person, die über
+die Sabotagekampagne informiert war.
+Die CIA wurde als Reaktion auf die russische Teilinvasion in der Ukraine 2014 eingeschaltet. Nachdem der
+Kreml das ukrainische Territorium der Krim und Teile der Ostukraine besetzt hatte, begann die Agentur
+gemeinsam mit dem alliierten Spionagedienst mit der Planung, mehr Agenten nach Russland einzuschleusen, mit dem Befehl, sich so lange bedeckt zu halten, bis sie gebraucht würden. Die erste dieser Schläferzellen unter der gemeinsamen Kontrolle der CIA und des verbündeten Spionagedienstes infiltrierte Russland im Jahr 2016, so ein ehemaliger US-Militärbeamter und eine US-Person, die über die Kampagne
+informiert war.
+
+Mit dem Wissen der CIA versorgte der verbündete Spionagedienst die verdeckten Schläferzellen-Agenten
+mit ‹Legenden›, wie die Geheimdienste es nennen, d.h. mit falschen Biografien, die ihre Anwesenheit in
+Russland erklären sollten, sowie mit Dokumenten zur Untermauerung dieser Tarngeschichten. Ein ehemaliger Militärbeamter nannte es ein ‹umfangreiches Netzwerk› von Scheinfirmen, die als Plattformen zur
+Unterstützung solcher Operationen hinter den Kulissen eingerichtet wurden. «Einige von ihnen reichen fast
+20 Jahre zurück», sagte der ehemalige Militärbeamte.
+Nach Angaben zweier ehemaliger Geheimdienstmitarbeiter haben beide Geheimdienste grossen Wert darauf gelegt, dass die Agenten im Falle einer Entdeckung durch die russischen Sicherheitsdienste glaubhaft
+bestritten werden können. Eine weitere Priorität besteht darin, das Risiko für die russische Zivilbevölkerung
+zu minimieren. «Ein Teil ihrer Zielvorgaben besteht darin, den Tod von Zivilisten zu vermeiden», sagte ein
+ehemaliger Militärbeamter.
+Nach den Infiltrationen von 2016 gelangten in den folgenden Jahren weitere Teams nach Russland. Einige
+schmuggelten neue Munition ein, während andere auf die ursprünglichen Verstecke zurückgriffen, so zwei
+ehemalige Militärbeamte und eine Person, die über die Sabotagekampagne informiert war.
+Zwei Tage vor dem Einmarsch in die Ukraine im Februar nutzte der alliierte Spionagedienst, über den die
+CIA die Sabotagekampagne durchführt, ein verdecktes Kommunikationssystem, um seine Schläferzellen in
+ganz Russland zu aktivieren, so ein ehemaliger Militärbeamter und eine Person, die über die Kampagne
+unterrichtet ist. Diese Zellen begaben sich diskret zu den Standorten vergrabener Munitionslager im ganzen
+Land und gruben Sprengstoff und anderes Material aus, das für bevorstehende Operationen benötigt
+wurde. Nachdem sie ihre Ausrüstung inventarisiert und überprüft hatten, warteten sie auf den Befehl, ihre
+Ziele anzugreifen.
+Als russische Panzer am 26. Februar die ukrainische Grenze überquerten, standen die Schläferzellen bereit,
+um zu handeln.
+Einige der ersten Sabotageanschläge hinter den russischen Linien fanden ausserhalb Russlands, in Weissrussland, statt, als ‹ein geheimes Netzwerk von Eisenbahnarbeitern, Hackern und dissidenten Sicherheitskräften› begann, Eisenbahnlinien anzugreifen, die Russland und die Ukraine miteinander verbanden, wie
+die Washington Post berichtet. «Ab dem 26. Februar, zwei Tage nach Beginn der Invasion, brachte eine
+Serie von fünf Sabotageanschlägen auf Signalanlagen den Zugverkehr fast vollständig zum Erliegen», berichtete die Post unter Berufung auf einen ehemaligen Bahnarbeiter, der heute in Polen lebt.
+Während der Krieg in der Ukraine weiterging, sind einige der von der CIA und dem Spionagedienst des
+NATO-Verbündeten betreuten Teams über internationale Grenzen hinweg hin und her gezogen, um mehr
+Munition zu sammeln und Einsätze zu proben, so ein ehemaliger Militärbeamter.
+
+
+-----
+
+Einem ehemaligen US-Militärbeamten und einer Person, die über die Kampagne informiert wurde, zufolge
+haben die CIA und die Eliteeinheit für Spezialeinsätze des Gastgeberlandes einige dieser Einsatzproben
+überwacht, die im Heimatland des verbündeten Spionagedienstes durchgeführt wurden. Das JSOC hat die
+Sabotageoperationen auch mit gezielten Informationen von Nachrichtendienst-, Überwachungs- und Aufklärungsplattformen wie Drohnen unterstützt, die tief in Russland hineinsehen und -hören können, hiess
+es.
+«Die Eliteteams, zu denen wir die besten Beziehungen haben, erhalten fast immer Luftüberwachungsunterstützung für grössere Sabotageaktionen» hinter den russischen Linien, sagte die Person, die über die Kampagne informiert war, und fügte hinzu, dass einige der ISR-Plattformen Modelle sind, die nie öffentlich bekannt gegeben wurden. «Drohnen, von denen wir noch nicht einmal wissen, treiben sich überall im ukrainischen und russischen Luftraum herum», sagte die Person.
+Die CIA hat seit ihrer Gründung im Jahr 1947 Sabotageaktionen durchgeführt. Während des Kalten Krieges
+plante und führte die Behörde solche Operationen von Kuba bis Vietnam und in ganz Mittelamerika durch.
+Ähnliche Missionen waren auch ein wesentlicher Bestandteil der Pläne der Agentur für Westeuropa, falls
+die Sowjetunion jemals einmarschiert wäre.
+Doch während diese Pläne für ein von der Sowjetunion besetztes Europa so genannte ‹stay behind›-Netzwerke von Partisanen vorsahen – Zivilisten, die ein normales Leben führen, bis der Feind einmarschiert,
+und die dann aktiviert werden, um Sabotage- und Spionageaktionen durchzuführen –, ähnelt die aktuelle
+Kampagne in Russland selbst eher den CIA-Operationen im Vorfeld der US-Invasion im Irak 2003.
+Im Vorfeld dieser Invasion bildeten paramilitärische CIA-Offiziere 70 kurdische Zellen aus und setzten sie
+dann in den von Saddam Hussein kontrollierten Teilen des Irak ein, um die Infrastruktur zu zerstören. «Am
+Ende hatten wir viele Teams, die in dem von den Irakern kontrollierten Gebiet operierten», sagte der ehemalige CIA-Operationsoffizier Sam Faddis, der eines dieser Teams leitete. Zu ihren Aktivitäten gehörten die
+Entgleisung eines Zuges mit 90 Waggons und die Sprengung des Büros eines irakischen Geheimdienstoffiziers. Es ist eine Art zu sagen: «Ihr könnt uns mal, wir sind hier, es ist vorbei», so Faddis.
+Sabotage mag zwar wie ein veraltetes Konzept erscheinen, das an die Heldentaten von T.E. Lawrence (‹von
+Arabien›) im Ersten Weltkrieg und des Office of Strategic Services im Zweiten Weltkrieg erinnert, aber sie
+ist nach wie vor ein wichtiges Mittel, um die Logistik des Feindes zu stören und Verwirrung in seinen rückwärtigen Gebieten zu stiften.
+Schienen und Stromleitungen sind lineare Ziele, die mit Sprengstoff und anderen Techniken zerstört werden können. «Während sich die Materialien verbessert haben, ist der Aufbau von Eisenbahnlinien seit der
+Erfindung der Eisenbahn im Wesentlichen unverändert geblieben», schreibt Army Major Daniel Meegan in
+seiner 2020 an der Naval Postgraduate School veröffentlichten Dissertation ‹Breaking Other People's Toys:
+Sabotage in einer multipolaren Welt›.
+
+Meegan verwendete für seine Untersuchung drei Fallstudien: Lawrence' Feldzug gegen die Türken im Ersten
+Weltkrieg, OSS-Operationen in Griechenland im Zweiten Weltkrieg und die inländischen terroristischen Aktivitäten des Weather Underground in den Vereinigten Staaten in den 1970er Jahren. Er kommt zu dem
+Schluss, dass solche Operationen «zeigen, dass sehr kleine Gruppen von Saboteuren dramatische Auswirkungen auf viel grössere feindliche Organisationen haben können. Dieser Einsatz kleiner Sabotagekräfte
+ermöglichte es den Führern und Planern, ihre begrenzten Arbeitskräfte und ihr Material anderweitig einzusetzen, während sie ihre Feinde vor mehrere Dilemmas stellten.»
+Die US-Regierung hat die Nachrichten über die mysteriösen Brände und Explosionen in Russland mit
+Schweigen quittiert. Doch die Ukraine hat den Kreml in den sozialen Medien zu den Ereignissen angestachelt und mehr als einmal angedeutet, dass unvorsichtige Raucher für die unerklärlichen Brände in russischen Militäreinrichtungen verantwortlich sind. Nachdem ein mysteriöses Feuer im August ein russisches
+Munitionsdepot in Belgorod, gleich hinter der ukrainischen Grenze, zerstört hatte, stichelte das ukrainische
+Verteidigungsministerium auf seinem Twitter-Account gegen Moskau mit der Warnung, dass ‹Rauchen
+tötet›.
+«Eine weitere Detonation von Munition ‹wegen der Hitze› in der Region Belgorod in Russland», witzelte das
+ukrainische Verteidigungsministerium im August auf Twitter nach der Nachricht über eine Explosion in
+einem Munitionsdepot in Belgorod. «In ein paar Monaten werden wir herausfinden, ob russische Munition
+wegen der Kälte explodieren kann.»
+Ukrainische Beamte haben auch begonnen, ihre eigene Fähigkeit anzudeuten, Ziele mit Guerillaoperationen
+hinter den feindlichen Linien zu treffen – sowohl in den besetzten Teilen der Ukraine als auch in Russland.
+Im August erklärte ein hochrangiger ukrainischer Beamter gegenüber der New York Times, dass ein Angriff
+auf einen russischen Luftwaffenstützpunkt auf der Krim von ‹Partisanen› ausgeführt wurde und dass eine
+ukrainische ‹militärische Eliteeinheit› für die Sprengung eines russischen Munitionslagers auf der besetzten
+Halbinsel verantwortlich war.
+
+
+-----
+
+«Es wurde weithin berichtet, dass der US-Geheimdienst nach der Invasion der Krim im Jahr 2014 ein
+robustes Trainingsprogramm für ukrainische Sondereinsatzkräfte gestartet hat. Es ist wahrscheinlich, dass
+dieselben Kräfte jetzt die Sabotageoperationen auf der Krim leiten», sagte Mulroy.
+In der Zwischenzeit gehen die mysteriösen Explosionen tief im russischen Hoheitsgebiet weiter. Während
+diese Sabotageakte sowohl psychologische als auch materielle Auswirkungen auf die Offensive des Kremls
+haben können, bergen sie auch das Risiko einer Eskalation des Konflikts zwischen der westlichen Welt und
+Russland, die beide Seiten nicht einschätzen – oder kontrollieren – können.
+Bislang waren die Ziele, die die von der CIA über den alliierten Spionagedienst gesteuerten Agenten angriffen, eher von taktischem als von strategischem Wert. Es besteht jedoch die Gefahr, dass die Sabotageakte
+zusammen mit den Verlusten auf dem Schlachtfeld Putin in die Enge treiben und eine nukleare Eskalation
+riskieren könnten.
+
+Solche Schläge lassen die russische Führung wissen, dass sie auch in ihrem Hinterhof getroffen werden
+kann. Dies könnte nach Ansicht von Beobachtern den doppelten Effekt haben, dass Russlands militärische
+Optionen eingeschränkt werden und Putin gleichzeitig ermutigt wird, den Konflikt weiter zu eskalieren.
+«Auch wenn man über ihren militärischen Wert streiten kann, könnten solche Aktionen Putins grösste Bedenken wecken und sein Eskalationskalkül übermässig beeinflussen», so der ehemalige CIA-Offizier Douglas
+London.
+Solche Überlegungen müssen jedoch nicht zwangsläufig verdeckte Operationen verhindern, so Michael
+Kofman, Direktor für Russlandstudien am Center for Naval Analyses. «Es besteht immer die Gefahr einer
+Fehleinschätzung der roten Linien des Gegners», so Kofman. «Es ist ein ständiges Risiko, aber man muss
+es gegen die eigenen Ziele und die wahrscheinlichen Vergeltungsmöglichkeiten des Gegners abwägen. Der
+Schlüssel liegt darin, sich zwischen einer bis zur Lähmung reichenden Risikoaversion und mutwilliger
+Rücksichtslosigkeit zu bewegen.»
+Mit zunehmender Dauer des Krieges haben sich einige NATO-Verbündete von der Unterstützung von
+Operationen hinter den feindlichen Linien in Russland zurückgezogen. Mit zunehmender Dauer des Krieges
+haben die politischen Auswirkungen solcher Operationen einige Regierungen erschreckt, aber die Vereinigten Staaten und ihr wichtigster NATO-Verbündeter, der die Sabotageprogramme durchführt, sind aggressiv
+und vorwärtsgerichtet geblieben.
+Je länger der Krieg dauert, desto wahrscheinlicher ist es, dass die Sabotagekampagne dreister wird, so ein
+ehemaliger Beamter für Sondereinsätze, insbesondere wenn Putin zum Einsatz von Massenvernichtungswaffen übergeht. «Da wir Putin eine stärkere Botschaft übermitteln müssen, könnte es zu Operationen in
+Moskau und anderen wichtigen Städten kommen», so der ehemalige Beamte.
+_https://jackmurphywrites.com/169/the-cias-sabotage-campaign-inside-russia/_
+
+##### The CIA is using a European NATO ally’s spy service to conduct  a covert sabotage campaign inside Russia under the agency’s direction, according to former U.S. intelligence and military officials.
+_December 24, 2022 by J. M._
+
+The campaign involves long standing sleeper cells that the allied spy service has activated to hinder
+Moscow’s invasion of Ukraine by waging a secret war behind Russian lines.
+Years in the planning, the campaign is responsible for many of the unexplained explosions and other
+mishaps that have befallen the Russian military industrial complex since Russia’s full-scale invasion of
+Ukraine in February, according to three former U.S. intelligence officials, two former U.S. military officials
+and a U.S. person who has been briefed on the campaign. The former officials declined to identify specific
+targets for the CIA-directed campaign, but railway bridges, fuel depots and power plants in Russia have all
+been damaged in unexplained incidents since the Kremlin launched its full-scale invasion of Ukraine in
+February.
+While no American personnel are involved on the ground in Russia in the execution of these missions,
+agency paramilitary officers are commanding and controlling the operations, according to two former
+intelligence officials and a former military official. The paramilitary officers are assigned to the CIA’s Special
+Activities Center but detailed to the agency’s European Mission Center, said the two former intelligence
+officials. Using an allied intelligence service to give the CIA an added layer of plausible deniability was an
+essential factor in U.S. President Joe Biden’s decision to approve the strikes, according to a former U.S.
+special operations official.
+While command and control over the sabotage program resides with the CIA for legal reasons, the NATO
+ally has a strong say in which operations go forward since it is their people taking the risks. Sources
+repeatedly pushed back against any notion that the NATO ally was a CIA proxy, describing it is a close
+
+
+-----
+
+partnership. The European ally whose operatives are conducting the sabotage campaign is not being named
+here because doing so might endanger the operational security of cells that are still operational inside of
+Russia.
+Any covert action undertaken by U.S. agencies must be authorized by a presidential finding. After the U.S.
+intelligence community concluded that Russia had interfered with the 2016 U.S. presidential election,
+President Barack Obama signed such a finding for covert action against Russia before he left office,
+according to The Washington Post. The finding involved the National Security Agency and the military’s
+Cyber Command in addition to the CIA and included a scheme to plant “cyberweapons in Russia’s
+infrastructure,” according to the Post.
+That 2016 finding also included language about sabotage operations, according to a former CIA official.
+Other former officials said that the current sabotage campaign would have required either an entirely new
+finding or an amendment to a pre-existing finding on Russia.
+CIA spokesperson Tammy Thorp denied any agency involvement in the wave of mysterious explosions that
+have struck Russia’s defense and transportation infrastructure in 2022. “The allegation that CIA is somehow
+supporting saboteur networks in Russia is categorically false,” the spokesperson said. Under Title 50 of the
+U.S. Code which authorizes covert actions, the CIA can lawfully deny the existence of these operations to
+everyone except the so-called “Gang of Eight” – the chairmen and ranking minority members of the
+congressional intelligence committees, the speaker and minority leader of the House of Representatives,
+and the majority and minority leaders of the Senate.
+The NATO ally’s campaign overseen by the CIA is only one of several covert operations efforts being
+undertaken by Western nations in Russia, according to two former U.S. special operations officials. Alarmed
+by Russia’s February invasion, other European intelligence services have activated long-dormant resistance
+networks in their own countries, who in turn have been running operatives into Russia to create chaos
+without CIA help, according to a former U.S. military official. In addition, as has been widely reported,
+Ukrainian intelligence and special operations forces are running their own operations behind Russian lines.
+The multiple sabotage campaigns are having an impact, according to Mick Mulroy, a former CIA
+paramilitary officer. “I do not know who is behind these attacks, but their value is substantial and serves
+multiple purposes,” he said. “Russia has had a significant problem keeping up with its logistical supply
+lines. These attacks further complicate its effort to supply its forces.”
+They also serve to sow doubt in Kremlin minds, because they show that Russian President Vladimir Putin
+“does not have control over what is happening in his own country,” said Mulroy. “Is it a covert program, is
+it disgruntled Russians sabotaging their own plant, or is it pure incompetence of the workers? I don’t know,
+and perhaps the Kremlin doesn’t either. This matters to paranoid autocrats.”
+Indeed, by refusing to take credit for individual acts of sabotage committed by the European spy service
+under the CIA’s direction the two agencies hope to send the Kremlin a message while sending Russia
+security services scrambling in all directions to find the culprits, according to a former U.S. military official.
+“With sabotage and subversion, there is a psychological component,” the former official said.
+“There have been many fires across Russia over the past few months, particularly in weaponsmanufacturing plants and other crucial sites,” said Russia analyst Olga Lautman, a non-resident fellow at
+the Center for European Policy Analysis. “Russian media has reported on these fires as separate incidents.
+They have not created any propaganda around these incidents and treat them as accidents.”
+For instance, when a Russian Aerospace Defense Forces building burned down in late April, killing more
+than 20 people, Russian state media reported that the blaze was caused by faulty wiring. But the Kremlin
+understands that these are not just accidental fires and industrial accidents, despite what official media
+broadcast, according to a former U.S. intelligence official.
+The overlapping nature of the various covert action campaigns behind Russian lines has created problems
+for the Western spy services running those missions. Over the summer, it became clear to CIA officers that
+there was increasingly a need for deconfliction amongst their own surrogate forces in Russia, according to
+two former military officials. Numerous incidents took place in which rail lines or power lines were cut that
+unintentionally interfered with other missions, one of them said.
+Worse yet, two sabotage cells compromised each other while casing the same target, according to the two
+former military officials. One operative died and another was captured in the resulting firefight with Russian
+security services, they said. A lot of work has been done since then to prevent a repeat of such incidents,
+according to one of the former special operations officials.
+The roots of these sabotage missions inside Russia go deep. The allied spy service had emplaced some of
+the caches of explosives and gear used by these cells more than a decade previously, according to two
+former military officials. At the time, that spy service was acting unilaterally, without any CIA participation,
+according to a former U.S. special operations official and a person who has been briefed on the sabotage
+campaign.
+The CIA became involved in reaction to Russia’s 2014 partial invasion of Ukraine. After the Kremlin occupied
+the Ukrainian territory of Crimea and parts of eastern Ukraine, the agency began planning with the allied
+
+
+-----
+
+spy service to push more operatives into Russia with orders to lay low until they were needed. The first of
+these sleeper cells under the combined control of the CIA and the allied spy service infiltrated into Russia
+in 2016, according to a former U.S. military official and a U.S. person who has been briefed on the
+campaign.
+With the CIA’s knowledge, the allied spy service provided the undercover sleeper cell operatives with what
+the intelligence community calls “legends” – false biographies that would explain their presence in Russia
+– and the documents to back those cover stories up. There is also what a former military official called “an
+extensive network” of front companies that were established as platforms to support such behind-the-lines
+operations. “Some of them go back almost 20 years,” the former military official said.
+Both intelligence agencies have made it a priority to ensure that the operatives had plausible deniability
+should they be discovered by the Russian security services, according to two former intelligence officials.
+Another priority is to minimize the risk to Russian civilians. “Part of their targeting guidance is to stay away
+from civilian deaths,” said a former military official.
+After the 2016 infiltrations, more teams slipped into Russia over the next several years. Some smuggled in
+new munitions, while others have relied on the original caches, according to two former military officials
+and a person who has been briefed on the sabotage campaign.
+Two days before February’s invasion of Ukraine, the allied spy service through which the CIA is running the
+sabotage campaign used a covert communications system to activate its sleeper cells across Russia,
+according to a former military official and a person who has been briefed on the campaign. Those cells
+discreetly moved to the locations of buried munitions caches around the country and dug up explosives
+and other material needed for upcoming operations. After inventorying and checking their equipment, the
+operatives waited for the orders to hit their targets.
+When Russian tanks crossed the Ukrainian border on February 26, the sleeper cells were standing by, ready
+to act.
+Some of the first sabotage attacks behind Russian lines occurred outside Russia, in Belarus, when “a
+clandestine network of railway workers, hackers, and dissident security forces” began attacking rail lines
+that connected Russia and Ukraine, according to The Washington Post. “Starting on Feb. 26, two days after
+the invasion began, a succession of five sabotage attacks against signaling cabinets brought train traffic to
+an almost complete halt,” the Post reported, quoting a former railway worker now living in Poland.
+As the war in Ukraine has continued, some of the teams overseen by the CIA and the NATO ally’s spy service
+have moved back and forth across international borders to collect more munitions and to conduct mission
+rehearsals, according to a former military official.
+The CIA and the host nation’s elite special operations unit have overseen some of those mission rehearsals,
+which are conducted in the allied spy service’s home country, according to a former U.S. military official
+and a person who has been briefed on the campaign. JSOC has also supported the sabotage operations
+with targeting information from intelligence, surveillance and reconnaissance platforms, such as drones,
+that can see and hear deep into Russia, they said.
+“The elite-level teams that we have the best relationships with are almost always given air surveillance
+support for major sabotage ops” behind Russian lines, the person who has been briefed on the campaign
+said, adding that some of the ISR platforms are models that have never been publicly revealed. “Drones we
+don’t even know about yet are loitering all over the Ukrainian and Russian airspace,” the person said.
+
+The CIA has been conducting sabotage operations since the agency’s inception in 1947. During the Cold
+War the agency planned and executed such operations from Cuba to Vietnam and throughout Central
+America. Similar missions were also a key part of the agency’s plans for Western Europe, should the Soviet
+Union ever have invaded.
+But while those plans for a Soviet-occupied Europe involved so-called “stay behind” networks of partisans
+– civilians living normal lives until the enemy invades, at which point they activate to begin conducting
+sabotage and espionage missions – the current campaign inside Russia itself bears a closer resemblance
+to CIA operations ahead of the 2003 U.S. invasion of Iraq.
+In the run up to that invasion, CIA Ground Branch paramilitary officers trained 70 Kurdish cells and then
+deployed them into Saddam Hussein-controlled portions of Iraq, targeting infrastructure. “We ended up
+with a lot of teams…operating inside Iraqi-controlled space,” said former CIA operations officer Sam Faddis,
+who led one of the agency teams. Their activities included derailing a 90-car train and blowing up the office
+of an Iraqi intelligence officer. “It’s a way of saying screw you, we’re here, this is over,” Faddis said.
+While sabotage may seem like a dated concept, recalling the exploits of T.E. Lawrence (“of Arabia”) in World
+War I and the Office of Strategic Services in World War II, it remains a relevant tool for disrupting an enemy’s
+logistics and sowing confusion in his rear areas.
+Rail and power lines are linear targets that can be destroyed using explosives and other techniques. “While
+materials have improved, the assembly of rail lines has remained essentially unchanged since trains were
+
+
+-----
+
+invented,” writes Army Maj. Daniel Meegan in his 2020 Naval Postgraduate School thesis “Breaking Other
+People’s Toys: Sabotage in a Multipolar World.”
+Meegan used three case studies in his research: Lawrence’s campaign against the Turks in World War I,
+OSS operations in Greece in World War II and the Weather Underground’s domestic terrorism activity in
+the United States in the 1970s. He concludes that such operations “show that very small groups of
+saboteurs can have dramatic impacts on much larger enemy organizations. This utilization of small
+sabotage forces allowed leaders and planners to focus their limited manpower and materiel elsewhere while
+presenting their enemies with multiple dilemmas.”
+The U.S. government has met news of the mysterious fires and explosions in Russia with silence. But
+Ukraine has been goading the Kremlin on social media about the events, suggesting more than once that
+**careless smokers are responsible for unexplained fires at Russian military facilities. After a mysterious**
+August fire destroyed a Russian ammunition depot in Belgorod just across the border from Ukraine, the
+Ukrainian Defense Ministry’s Twitter account taunted Moscow with a warning that “smoking kills!”
+“Another detonation of ammo ‘due to the heat’ in the Belgorod region in russia,” Ukraine’s Defense Ministry
+**quipped on Twitter in August after news of an explosion at an ammunition depot in Belgorod. “In a few**
+months we will find out whether russian ammo can explode because of the cold.”
+Ukrainian officials have also begun to hint at their own ability to strike targets with guerrilla operations
+behind enemy lines — both within occupied parts of Ukraine and in Russia. In August, a senior Ukrainian
+official told The New York Times that an attack on a Russian airbase in Crimea was carried out by
+**“partisans” and that a Ukrainian “elite military unit” was responsible for blowing up a Russian ammunition**
+depot on the occupied peninsula.
+“It’s been widely reported that after the 2014 invasion of Crimea, U.S. intelligence started a robust training
+program for Ukrainian special operations forces. It is likely that these same forces are leading the effort of
+these sabotage operations in Crimea now,” said Mulroy.
+Meanwhile, the mysterious explosions deep in Russian territory have continued. While these acts of
+sabotage can have both a psychological and substantive impact on the Kremlin’s offensive, they also run
+the risk of escalating conflict between the Western world and Russia beyond either side’s ability to estimate
+— or control.
+So far, the targets struck by the operatives being run by the CIA through the allied spy service have largely
+been of tactical, rather than strategic, value. However, the danger exists that the acts of sabotage could,
+along with battlefield losses, potentially paint Putin into a corner and risk nuclear escalation.
+Such strikes let Russia’s leaders know that they can be hit in their backyard. That could have a double
+effect of constraining Russia’s military options while encouraging Putin to escalate the conflict further,
+according to observers. “Though their military value can be debated, such acts might play to Putin’s
+greatest concerns and have outsized impact on his escalatory calculus,” said former CIA officer Douglas
+London.
+But such considerations need not necessarily inhibit covert operations, according to Michael Kofman,
+director of Russia studies at the Center for Naval Analyses. “There is always the danger of miscalculation
+regarding an adversaries’ red lines,” Kofman said. “It is a persistent risk, but it must be weighed against
+one’s objectives and an opponent’s likely options for retaliation. The key is to navigate a space between risk
+aversion to the point of paralysis, and wanton recklessness.”
+As the war has dragged on, some NATO allies have backed away from supporting behind enemy lines
+operations in Russia. As the war matured, the political implications of such operations frightened some
+governments, however the United States and its key NATO ally running the sabotage programs have
+remained aggressive and forward leaning.
+The longer the war lasts, the more likely it is that the sabotage campaign will become more brazen,
+according to a former special operations official, particularly if Putin escalates to the use of Weapons of
+Mass Destruction. “As we need to send a stronger message to Putin, you may see ops in Moscow and other
+key cities,” the former official said.
+_A note on the publication of this article:_
+_Many will ask why an article of this importance is appearing on my personal website rather than in a prestigious_
+_publication. I will not detail the entire journey this article took at this time, but will say that while working with_
+_editors at mainstream publications I was asked to do things that were illegal and unethical in one instance, and_
+_in another instance I felt that a senior CIA official was able to edit my article by making off the record statements,_
+_before he leaked a story to the New York Times to undermine this piece._
+_I don’t begrudge the intelligence community for attempting to keep covert operations out of the newspapers._
+_That’s their job, and in this case they were quite effective at it. However, I do blame the press for not fulfilling_
+_the most basic premise of their job._
+_This article went through a vigorous fact checking process, and was deemed newsworthy as the strategic_
+_bombings of Laos and Cambodia or the CIA’s secret drone campaign in Pakistan. Yet, it nearly never saw the_
+_light of day. Journalists can lack the circumspection to examine how their organizations come to mimic the_
+
+
+-----
+
+_institutions of power that they claim to speak truth to. At some point the equities they build with the intelligence_
+_community and military commands become more important than informing the public._
+_Indeed, the Russian government knows perfectly well who is sponsoring these sabotage strikes. Moreover, the_
+_intelligence community wants them to know. The only party left in the dark is the public at large, left unaware_
+_of the shadow war taking place behind the scenes._
+_Ultimately, I felt that I was being asked to compromise my work and put careers ahead of my own integrity._
+_That’s why this piece appears here._
+
+##### FRIEDE AUF ERDEN Aber Krieg gegen Russland
+_Autor: Uli Gellermann, Datum: 30.12.2022_
+
+Der falsche Pastor Steinmeier hatte schon in seiner Weihnachtsbotschaft zum Ukrainekrieg gesäuselt: Es
+sei ein Gebot der Stunde, dass ‹wir› der Ukraine beistehen. Die Waffen-Lobbyistin von der FDP, Marie-Agnes
+Strack-Zimmermann redet Klartext und möchte ‹vor die Welle kommen› und der Ukraine schweres Gerät
+präventiv liefern. Der Schein-Linke SPD-Generalsekretär Kevin Kühnert hat sich nachdrücklich gegen Friedensverhandlungen ausgesprochen, und auch er will die Ukraine weiter militärisch unterstützen mit dem
+Ziel, dass sie ‹später einen gerechten Frieden› verhandeln könnte.
+
+**200 Milliarden Euro für ‹Abwehrschirm›**
+Nein, noch haben sich Steinmeier oder Strack-Zimmermann nicht selbst an die Front gemeldet. Den echten,
+blutigen Krieg der NATO gegen Russland sollen die Ukrainer tragen. Aber den Wirtschaftskrieg gegen Russland, den sollen die zivilen Deutschen schon finanzieren. Die sogenannte ‹Gaspreisbremse›, ein 200-Milliarden-Euro-‹Abwehrschirm› zugunsten der Grossverbraucher in der Chemie- und Energie-Industrie, soll die
+russische Wirtschaft in die Knie zwingen. Die Wahrheit: Die ‹Bremse› ist ein Tritt aufs Gaspedal der Inflation.
+Dass zwei Millionen Menschen dieses Jahr die ‹Tafeln› haben aufsuchen müssen und um Essen und Trinken
+betteln mussten, ist der sichtbarste soziale Erfolg dieser Politik.
+
+**‹Der Russe› ist für alles verantwortlich**
+Ein reiches Land und Betteln? Dieses unschöne Bild wird mit aggressiver Propaganda übermalt: Keinesfalls
+darf die Regierung als verantwortlich für das soziale Desaster begriffen werden. Deshalb ist ‹der Russe› für
+alles verantwortlich: Dafür, dass die Bundesregierung den Kauf des preiswerten Gas aus Russland unterbindet, wo sie nur kann und dafür, dass ein Attentat auf die Gaspipeline Nord-Stream-2 verübt wurde; das
+allerdings nur den USA nützlich war. Dem Russen wird die Rolle eines allmächtigen Geistes zugewiesen,
+wie man ihn nur aus Schauermärchen kennt: Mal ist er in der Ostsee und sprengt seine eigene Gasleitung
+in die Luft, dann wieder taucht er in Berlin auf und zwingt Scholz, Habeck & Co. die guten alten Gasversorgungsverträge zu zerreissen – wahrscheinlich mit vorgehaltener Kalaschnikow – um die beiden dann auf
+die Betteltour in die katarische Diktatur zu schicken.
+
+**Kriegs-Ertüchtigungsinitiative: 2 Milliarden Euro**
+Deutschland hat für den Haushalt des laufenden Jahres im Rahmen der sogenannten Ertüchtigungsinitiative seine Mittel auf insgesamt 2 Milliarden Euro aufgestockt. Ursprünglich stammt der nette Begriff ‹Ertüchtigungsinitiative› aus der Entwicklungshilfe. Jetzt geht der grösste Teil des Geldes im Rahmen der NATOHilfe an die Ukraine: Bisher hat man direkt 500 Fliegerabwehrraketen STINGER, 3000 Patronen ‹Panzerfaust 3› zuzüglich 900 Griffstücke, 16 Millionen Schuss Handwaffenmunition und 50 Bunkerfäuste in die
+Ukraine geliefert. Ganz zu schweigen von Panzern und Haubitzen, die im sogenannten Ringtauschverfahren
+in den Krieg geliefert wurden. Aber die ukrainischen Nazis organisieren auch private Hilfe. Von ihrer Botschaft in Tschechien aus wirbt die Ukraine im Netz um Waffenspenden. Zum Beispiel kostet dort ein ‹volles
+30-Runden-Magazin, 7,62 x 39 Kaliber für das AK-47-Sturmgewehr› nur acht Euro.
+
+**Jeder Schuss ein Russ’**
+«Das AK-47-Sturmgewehr ist die am meisten hergestellte Handfeuerwaffe aller Zeiten. Obwohl es sich um
+ein Nachkriegsdesign handelt, gewährleistet ein einfacher und funktionaler Mechanismus die korrekte
+Funktion aller Komponenten selbst unter unerwünschten Bedingungen. Für diesen Betrag kaufen Sie der
+ukrainischen Armee ein volles 30-Runden-Magazin, 7,62 x 39 Kaliber. Wir sammeln nur Geld für die ukrainische Armee. Von Ihrem Beitrag werden wir Waffen und Ausrüstung für die Ukraine kaufen – bitte seien Sie
+sich dessen bewusst. Dies ist kein Spiel, sondern unsere Art, Sie spüren zu lassen, wie viel unser Frieden
+wirklich kostet.» So steht es in der Werbung unter https://www.waffenfurdieukraine.com/. «Jeder Schuss
+ein Russ» wäre die Kurzfassung.
+
+
+-----
+
+**Waffen für den Frieden**
+Der wichtigste Freund der Rüstungsindustrie, der NATO-Generalsekretär Jens Stoltenberg, sagt es nur geschwollener: «Es mag paradox klingen, aber militärische Unterstützung für die Ukraine ist der schnellste
+Weg zum Frieden.» Waffen für den Frieden: Das ist die Logik von Kühnert bis Stoltenberg. Ganz vorne in
+der Suchmaschine liegen die von der Propaganda missbrauchten Kinder: 123'000’000 Ergebnisse spuckt
+die Suchmaschine in 0,43 Sekunden aus, wenn die Stichworte ‹Kinder, Ukraine› eingegeben werden. Die
+Zahlen beziehen sich auf die Medien und die von ihnen referierten angeblichen Verbrechen der Russen.
+Die Stichworte ‹Friedensverhandlungen-Ukraine› erzielen nur 171’000 Treffer: Wer will schon Frieden, wenn
+der Boom der Rüstungsindustrie andauern soll? Damit diese perverse Logik von den Deutschen verinnerlicht wird, drehen die TV-Sender voll auf: In den TV Programmzeitungen wimmelt es geradezu von ‹SonderSendungen› zum Ukraine-Krieg. Wer sich an die Sondermeldungen des Reichsrundfunks im 2. Weltkrieg
+erinnert, der könnte sich auch an die deutsche Niederlage in Stalingrad erinnern, die am Ende der Sondermeldungen stand.
+
+**Manipulation ist zu durchbrechen**
+Eine US-Kanadische Kooperation setzte jüngst folgende Frage in einen angeblich weltweiten Umlauf: «Wenn
+Sie an die kommende Dekade denken, wird die NATO einen positiven Einfluss auf das Weltgeschehen
+haben?» An der Fragestellung, die keine negative Meinung zur NATO kennt, ist die primitive Absicht der
+Manipulation schnell zu erkennen. Dass sich trotzdem nur 51 Prozent der Deutschen für einen ‹positiven
+Einfluss› entschieden haben, lässt hoffen: Die massive mediale Manipulation ist zu durchbrechen.
+_Quelle: https://www.rationalgalerie.de/home/friede-auf-erden-2_
+
+##### Russland –  Mehr Ukrainer sind nach Russland geflüchtet als gegen ‹Westen›
+_Donnerstag, 5. Januar 2023, von Freeman-Fortsetzung um 17:08_
+
+_https://www.anti-spiegel.ru/2023/russland-hat-mehr-ukrainische-fluechtlinge-aufgenommen-als-jedes-andere-land/_
+Wie das Hilfswerk feststellt, hat Russland vom 24. Februar 2022 bis zum 3. Januar 2023 mit 2'852’395 die
+meisten Flüchtlinge aufgenommen. Es folgen Polen (1'553’707), Deutschland (1'021’667), die Tschechische Republik (476’025), Italien (173’231), Spanien (164’705), Grossbritannien (152’200), Bulgarien
+(148’451), Frankreich (118’994), Rumänien (106’786), die Slowakei (105’205) und Moldawien (102’103).
+In den übrigen Staaten liegt die Zahl unter 100’000.»
+Was soll der westliche Medienkonsument denken, wenn er erfährt, dass mehr ukrainische Flüchtlinge nach
+Russland geflohen sind, als nach Polen und Deutschland zusammengenommen? Da er darüber gar nicht
+nachdenken soll, wird diese Tatsache im Westen kurzerhand verschwiegen.
+
+**Russland hat etwa acht Millionen Ukrainer aufgenommen**
+Was im Westen auch nicht bekannt ist, ist, dass der Lebensstandard in Russland schon lange viel höher ist
+als in der Ukraine. Schon vor dem Maidan haben daher zwischen zwei und drei Millionen Ukrainer dauerhaft
+in Russland gelebt und gearbeitet. Nach dem Maidan und dem darauf folgenden Kiewer Angriff auf den
+Donbass im Jahr 2014 kamen noch einmal etwa genauso viele Ukraine nach Russland, die entweder aus
+dem Donbass vor dem Krieg oder aus der restlichen Ukraine vor der drohenden Zwangseinberufung in den
+Krieg nach Russland geflohen sind.
+Damit haben Ende 2021 etwa fünf Millionen Ukrainer in Russland gelebt und gearbeitet. Die genauen Zahlen sind schwer zu finden, weil viele dieser Ukrainer längst die russische Staatsangehörigkeit angenommen
+haben und daher in der russischen Statistik nicht mehr als Ukrainer geführt werden.
+Nun sind seit Februar 2022 noch einmal fast drei Millionen Ukrainer zusätzlich nach Russland geflohen,
+womit in den letzten Jahren insgesamt fast acht Millionen Ukrainer vor Armut oder Krieg nach Russland
+geflohen sind. Das sind etwa genauso viele Ukrainer, wie seit Beginn der russischen Intervention in die
+gesamte EU geflohen sind. Aber das erfährt man in westlichen Medien natürlich nicht.
+_Quelle: http://alles-schallundrauch.blogspot.com/2023/01/russland-mehr-ukrainer-sind-nach.html#ixzz7pXhrzuJ6_
+
+##### KRIEGS-INDUSTRIE DREHT AUF
+_Panzer sollen rollen für den Sieg_
+_Autor: Uli Gellermann, Datum: 5.1.2023_
+
+Der Stahlhelm auf zwei Beinen, Frau Strack-Zimmermann von der FDP, barmt: «Lieferung des Leopard II
+dringend erforderlich.» In Ihrem Wahlkreis liegt die Firma Rheinmetall, die Firma, die am Tod verdient. Man
+
+
+-----
+
+liefert gern in die Ukraine. Ihre Kinder hat Frau Strack-Zimmermann noch nicht an die Ukraine-Front geliefert. Schade. Die Medien lieben Helden-Storys, auch Beerdigungen sind immer gut für die Auflage.
+
+**Französischer Panzer in die Ukraine**
+Auch die Franzosen haben eine Rüstungsindustrie. Auch die will am Tod verdienen. Da sorgt der französische Präsident schnell dafür, dass der flotte Radpanzer AMX-10 RC in die Ukraine geliefert wird. Der Panzer
+war schon im Irak-Krieg, im Kosovo-Krieg, im Afghanistan-Krieg und wird zur Zeit im Mali-Krieg eingesetzt.
+Und vor allem: Der Panzer wird in einem Unternehmen hergestellt, an dem auch die deutsche Firma Rheinmetall beteiligt ist. So steuert die deutsch-französische Freundschaft auf einen Endsieg zu.
+
+**Wenn Frankreich am Tod verdient …**
+Wenn Macron was für den Kriegsumsatz tut, dann darf Scholz nicht zurückbleiben. Findet die Frau mit dem
+Stahlhelm: «Das vom Bundeskanzleramt ständig vorgeschobene Argument, Deutschland dürfe keine Alleingänge starten, ist absolut passé», sagt die Vorsitzende des Verteidigungsausschusses. «Frankreich übernimmt wieder einmal die Rolle, die von Deutschland erwartet wurde, und geht selbst voran.» So spielt
+Strack-Zimmermann über die Bande: Wenn Frankreich am Tod verdient, dann muss für deutsche Firmen
+auch was drin sein.
+
+**Dann ist unser Panzer ein ehernes Grab**
+«Deutschland muss endlich den Schützenpanzer Marder und am besten gemeinsam mit den europäischen
+Partnern den Leopard 2 liefern», röhrt die Strack-Zimmermann und heizt die Rüstungsspirale an. Das Wort
+‹endlich› sollte aufhorchen lassen. Heisst es doch im Panzerlied der Bundeswehr: «Trifft uns die Todeskugel,
+ruft uns das Schicksal ab, dann ist unser Panzer ein ehernes Grab.»
+
+**Es krepieren immer die anderen?**
+Das ‹Panzerlied› hatte die Bundeswehr brav von der Nazi-Wehrmacht übernommen. Die kannte blutige Erfahrungen in Russland und der Ukraine. Da war und ist nichts zu siegen. Da wartet der Tod. Das ist den
+Rüstungslobbyisten scheissegal. Die denken, es krepieren immer die anderen. Dass ein Krieg mit Russland
+und auf den steuern die Waffenlieferungen zu, in einen Weltkrieg führen kann, wollen die Strack-Zimmermanns und deren angeschlossene Medien nicht wissen. Das wird dann ein Krieg sein, in dem auch die verrecken Wenn, sie doch nur allein wären.
+_Quelle: https://www.rationalgalerie.de/home/kriegs-industrie-dreht-auf_
+
+_Ein Artikel von Jürgen Hübschen; 5. Januar 2023 um 12:00 Titelbild: shutterstock/evan_huang_
+
+Die Luftangriffe auf militärische Einrichtungen in Russland und der aktuelle ukrainische Angriff auf eine
+Einrichtung der russischen Streitkräfte – nach einer Meldung der New York Times durch das von den USA
+gelieferte Raketensystem ‹HIMAR› – könnten als ein Hinweis oder sogar als ein Beweis dafür verstanden
+werden, dass sich die russische Armee im Ukraine-Krieg auf der ‹Verliererstrasse› befindet. Der nachfolgen
+
+-----
+
+de Beitrag befasst sich mit der Frage, ob diese Einschätzung stimmt oder vielmehr das Gegenteil der Fall
+ist. Von Jürgen Hübschen
+
+**Einschätzung von glaubwürdigen Experten**
+Für die meisten Beobachter ist die Einschätzung der russischen und ukrainischen Operationen auf dem
+Gefechtsfeld eigentlich gar nicht möglich, weil eigene Erkenntnisse nicht vorhanden sind und – wie in allen
+Kriegen – auch in der Ukraine die Wahrheit vom ersten Tag an durch Propaganda ersetzt wurde. Deshalb
+gibt es nur die Möglichkeit, auf die Beurteilung von glaubwürdigen Experten zu vertrauen, die – quasi auf
+der Zeitachse – durch ihre Aussagen bewiesen haben, dass sie zusätzlich zu ihrer ausgeprägten Analysefähigkeit und einem fundierten sicherheitspolitischen Sachverstand auch über ein belastbares Netzwerk
+von Quellen verfügen.
+Aus meiner Sicht gehören zu diesem Personenkreis vor allem der pensionierte US-amerikanische Oberst
+Douglas Macgregor, der ehemalige indische Diplomat M.K. Bhadrakumar und der frühere US-amerikanische Aussenminister Henry Kissinger. Diese drei Experten haben sich aktuell in Artikeln und Interviews zum
+Kriegsverlauf in der Ukraine geäussert.
+
+**Einschätzung der aktuellen Lage durch Col. ret. Douglas Macgregor**
+Der pensionierte Oberst Douglas Macgregor ist einer der bekanntesten Militär-Analytiker der USA. Er war
+2020 als Nachfolger des damaligen US-Botschafters in Deutschland, Richard Grenell, vorgesehen, wurde
+aber vom Senat nicht bestätigt.
+Macgregor ist der Überzeugung, dass Russland zu einem vom russischen Generalstab festgelegten Zeitpunkt mit aktuell ca. 540’000 Soldaten und allen dafür erforderlichen Waffensystemen in der Ukraine eine
+Offensive mit drei Zielen starten wird:
+Unterbinden aller westlichen Waffenlieferungen über die polnisch-ukrainische Grenze
+Zerschlagen der ukrainischen Streitkräfte, die, nach seiner Einschätzung, noch über ca. 195’000 eigene
+Soldaten + ausländische Söldner verfügen (Es soll nach seiner Aussage analog zur s.g. ‹Wagner-Gruppe›
+auf der ukrainischen Seite eine ‹Gruppe Mozart› geben, die von ehemaligen Soldaten westlicher Staaten
+gebildet wurde.)
+Sturz der Regierung von Präsident Selensky, den er als ‹puppet der USA› bezeichnet
+Ein zahlenmässiges Aufwachsen der aktuellen Antrittsstärke der ukrainischen Armee hält er für nicht machbar.
+Die in den Medien als eine Art ‹Game Changer› dargestellte Lieferung einer US-amerikanischen Flugabwehrraketenbatterie (FlaRakBttr) vom Typ ‹Patriot› bewertet er als ein eher politisches Signal, das die Lage auf
+dem Gefechtsfeld nur unwesentlich verändert. Falls es sich um das Waffensystem ‹Patriot PAC 3› handelt,
+das auch in der Bundeswehr zum Einsatz kommt, verfügt eine Kampfbatterie über 8 Startgeräte mit jeweils
+16 Raketen, also insgesamt über 128 Flugkörper, von denen jeder deutlich mehr als 1 Million US-Dollar
+kostet. Mit einer Batterie kann man besonders wichtige militärische Objekte schützen, wie z.B. ein Hauptquartier, ein Depot oder einen Flugplatz, aber auf gar keinen Fall z.B. eine Grossstadt wie Kiew.
+Die Raketen haben eine Reichweite von bis zu 40 km und eine Höhe von bis zu 20 km. Die Flugkörper sind
+gut geeignet gegen feindliche Raketen und Kampfflugzeuge, aber nicht gegen tieffliegende Drohnen – einmal abgesehen von den Kosten, eine Drohne kostet ca. 30’000 US-Dollar – vor allen Dingen dann nicht,
+wenn diese in grosser Zahl anfliegen. Die Ausbildung von Bedienern dieses Waffensystems dauert mindestens 6 Monate, die der zusätzlich notwendigen Techniker eher 10–12 Monate. Das erforderliche Führungspersonal kann eigentlich durch die Ukraine gar nicht gestellt werden. Solche Offiziere müssen verschiedene
+aufbauende Lehrgänge durchlaufen, bevor sie über die notwendigen taktischen Fähigkeiten verfügen, ein
+solches System effektiv einzusetzen. Als ausgebildeter Offizier der Flugabwehrraketentruppe kann ich die
+Aussagen zur ‹Patriot› bestätigen.
+Douglas Macgregor ist davon überzeugt, dass es nicht zu einem Stellungskrieg kommen wird, der noch
+Monate andauert, sondern Russland in naher Zukunft eine Entscheidung herbeiführen wird.
+
+**Einschätzung der aktuellen Lage durch M.K. Bhadrakumar**
+M.K. Bhadrakumar ist ein pensionierter indischer Diplomat, der u.a. an der indischen Botschaft in der
+früheren Sowjetunion, in Afghanistan, Iran, Pakistan, Türkei und auch in Deutschland eingesetzt war. Herr
+Bhadrakumar ist davon überzeugt, dass die westlichen Kommentatoren vergessen haben, dass das zentrale
+Thema auf der russischen Agenda nicht eine territoriale Eroberung ist, sondern die NATO-Erweiterung:
+«Der springende Punkt ist, dass die westlichen Kommentatoren weitgehend vergessen, dass es Russland
+im Kern nicht um die Eroberung von Territorien geht – so wichtig die Ukraine für russische Interessen auch
+ist – sondern um die Erweiterung der NATO. Und das hat sich nicht geändert.»
+Aus Bhadrakumars Sicht glaubt Präsident Wladimir Putin, dass es das vorrangige Ziel der USA ist, Russland
+zu schwächen und zu zerstückeln. Deshalb ist die russische Führung davon überzeugt, dass die Konfronta
+
+-----
+
+tion mit den USA auch nach einem Ende des Ukraine-Krieges weitergehen wird. Bhadrakumar zitiert Präsident Putin aus dem Treffen des ‹Verteidigungsrates› vom 28. Dezember 2022:
+«Wir werden die nukleare Triade beibehalten und ihre Einsatzbereitschaft steigern. Das ist die entscheidende Garantie, unsere Souveränität und territoriale Integrität zu bewahren und das strategische Gleichgewicht
+und die grundsätzliche Balance von Streitkräften in der Welt sicherzustellen.»
+Bhadrakumar verweist in diesem Zusammenhang auf die Ankündigung des russischen Verteidigungsministers Sergei Shoigu, die russischen Streitkräfte durch mehrere Divisionen der verschiedenen Waffengattungen zu verstärken und die Antrittsstärke der russischen Armee auf 1,5 Millionen Soldaten zu erhöhen.
+Wegen des De-facto-Krieges zwischen den USA und Russland und der damit verbundenen immensen
+Unterstützungsleistungen für die Ukraine läuft Washington laut dem indischen Analysten Gefahr, die viel
+entscheidendere globale Auseinandersetzung mit China zu verlieren. Die neokonservativen Kriegstreiber
+hätten den US-Präsidenten in eine Situation gebracht, in der eine Entscheidung unumgänglich ist.
+Präsident Biden habe verstanden, dass Russland in der Ukraine nicht besiegt werden kann und dass es in
+der russischen Bevölkerung keinen Aufstand geben wird. («Biden has understood that Russia cannot be
+defeated in Ukraine; nor are Russian people in any mood for an insurrection.»)
+Wenn die USA also die globale Auseinandersetzung mit China für sich entscheiden wollen, können sie ihr
+intensives und zeitlich unbegrenztes Engagement in der Ukraine nicht aufrechterhalten, geschweige denn
+noch intensivieren, wie es der ukrainische Präsident Selensky fordert. Falls Washington aber tatsächlich
+‹aussteigen› würde, wäre das nicht nur für die USA, sondern letztlich auch für die NATO das Eingestehen
+einer Niederlage, vielleicht sogar verbunden mit dem Versuch von europäischen Führungsmächten wie
+Deutschland, Frankreich und Italien, einen ‹modus vivendi› mit Russland zu erreichen. Für Bhadrakumar
+stellt sich dann die Frage, ob die NATO eine solche Entwicklung überleben würde, wenn Washingtons transatlantische Führung verloren ginge.
+
+**Einschätzung der aktuellen Lage durch Henry Kissinger**
+Der ehemalige US-amerikanische Aussenminister und sicherheitspolitische Analytiker Henry Kissinger erinnert in seinem Artikel vom 17. Dezember 2022 an den 1. Weltkrieg und daran, dass die Kriegsparteien im
+August 1916 die ersten Fühler ausgestreckt hätten, um den Krieg zu beenden. Leider kam es zu keiner
+Lösung und so dauerte der Krieg noch einmal 2 Jahre mit weiteren Millionen von Toten. Kissinger fragt sich
+vor diesem Hintergrund, ob man im Krieg in der Ukraine heute an einem vergleichbaren Punkt steht wie
+1916, und sieht die konkrete Gefahr, die Chance für einen Waffenstillstand zu verpassen, bevor es möglicherweise zu einer grösseren russischen Offensive kommt.
+Dadurch, dass die Ukraine erstmalig in der jüngeren Geschichte ein grösserer souveräner Staat in Zentraleuropa geworden ist, der mit Unterstützung ‹des Westens› der russischen Aggression bislang entschlossen
+und erfolgreich entgegengetreten ist, hätten sich die strategischen Parameter bereits verschoben, und darauf könne man aufbauen. Das heisst aus seiner Sicht aber nicht, dass Russland durch diesen Krieg ohnmächtig geworden ist. Russland hat über Jahrzehnte einen entscheidenden Beitrag zum globalen Gleichgewicht der Kräfte geleistet, und diese historische Leistung sollte nicht geringschätzt werden. Die militärischen
+Rückschläge in der Ukraine haben Russlands globale nuklearen Möglichkeiten nicht beeinträchtigt und
+damit auch die Fähigkeit, in der Ukraine zu eskalieren, erhalten.
+Unabhängig davon würde eine Zerschlagung Russlands oder die Vernichtung seiner strategischen Optionen
+ein Vakuum zur Folge haben:
+«Russland hat mehr als ein halbes Jahrtausend lang entscheidende Beiträge zum globalen Gleichgewicht
+und zur Machtbalance geleistet. Seine historische Rolle sollte nicht herabgewürdigt werden. Die militärischen Rückschläge Russlands haben seine globale nukleare Reichweite nicht beseitigt, die es ihm ermöglicht, mit einer Eskalation in der Ukraine zu drohen. Selbst wenn diese Fähigkeit verringert wird, könnte die
+Auflösung Russlands oder die Zerstörung seiner Fähigkeit zu strategischer Politik sein Territorium, das 11
+Zeitzonen umfasst, in ein umkämpftes Vakuum verwandeln.»
+
+**Kissingers klare Forderung ist: Der Krieg muss beendet werden.**
+Falls die Vorkriegsgrenzen durch Verhandlungen nicht wiederhergestellt werden können, muss es ggf. Referenden geben, um die Bevölkerung zu einem noch festzulegenden Zeitpunkt darüber entscheiden zu lassen,
+ob sie zur Ukraine oder zu Russland gehören will. Das Ziel eines Friedensprozesses muss zweierlei sein:
+Sicherstellen des Friedens für die Ukraine und die Definition einer neuen internationalen Struktur, besonders für Zentral- und Osteuropa.
+
+**Zusammenfassende Bewertung**
+Aktuell kann die Ukraine den Krieg nicht gewinnen, sondern mit Hilfe weiterer massiver Unterstützung
+durch die USA und andere NATO-Staaten maximal ein Patt auf dem Gefechtsfeld erhalten, aber auch das
+nur zu einem hohen Preis. Ein hoher ehemaliger US-Offizier sagte vor kurzem in einem Interview, die USA
+hätten im Vietnamkrieg innerhalb jeder Woche durchschnittlich 500 Gefallene zu beklagen gehabt, die
+
+
+-----
+
+Ukraine verliere annähernd dieselbe Zahl an Gefallenen oder Schwerverwundeten pro Tag. Die Lebensbedingungen der ukrainischen Zivilbevölkerung werden sich weiter verschlechtern, die Zahl der Flüchtlinge
+wird steigen und die Zerstörung der Ukraine wird immer umfassender werden.
+Ausserdem ist es fraglich, ob die USA ihre Unterstützung im bisherigen Umfang – und der ist ja bei weitem
+noch nicht ausreichend – weiterhin gewährleisten können/wollen und werden, wenn die Gefahr besteht, dadurch den globalen Wettbewerb mit China zu verlieren. Die Arsenale der europäischen NATO-Staaten sind
+weitgehend erschöpft und es muss seitens der Regierungen bereits jetzt entschieden werden, ob es
+verantwortlich ist, die eigene Verteidigungsfähigkeit zu Gunsten der weiteren Unterstützung der Ukraine zu
+schwächen.
+Russland wird den Krieg nicht verlieren, vielmehr besteht offensichtlich die konkrete Möglichkeit, dass es
+zu einer grossen russischen Offensive kommt, wohl spätestens dann, wenn die Bodenverhältnisse es zulassen und die Ausbildung der eingezogenen Reservisten abgeschlossen ist. Sollte im Rahmen dieser Offensive, wie Col. Macgregor es vermutet, die militärische Nachschublinie von Polen in die Ukraine unterbrochen
+werden, ist der völlige Zusammenbruch der ukrainischen Streitkräfte vorprogrammiert.
+Zusätzlich besteht die Gefahr, dass die NATO endgültig in diesen Krieg hineingezogen wird. Das würde
+vermutlich von den Neokonservativen in den USA, aber auch in Polen und vielleicht sogar in den baltischen
+Staaten billigend in Kauf genommen werden, weil man sich dort der Illusion hingibt, Russland könne in der
+Ukraine militärisch besiegt werden, ohne dass es zu einer atomaren Auseinandersetzung zwischen den
+USA und Russland käme.
+Es gibt zu Verhandlungen keine akzeptable und vor allem auch keine realistische Alternative, und deswegen
+hat Henry Kissinger recht mit seiner Aussage: Das Streben nach Frieden und Ordnung hat zwei Komponenten, die manchmal als gegensätzlich betrachtet werden, nämlich die Forderung nach Sicherheit und
+die Ansprüche auf Massnahmen der Versöhnung. Wenn wir nicht Beides erreichen können, werden wir weder das Eine noch das Andere bekommen. Der Weg der Diplomatie mag kompliziert und auch frustrierend
+erscheinen, aber Fortschritt verlangt Beides, die Vision und den Mut, die Reise anzutreten.
+_Quelle: https://www.nachdenkseiten.de/?p=92148_
+
+##### Impfgeschädigte veröffentlicht die Chargennummer  ihrer Impfung und bekommt unerwartete Reaktionen
+_uncut-news.ch, Januar 5, 2023, Twitter/jules serkin_
+
+Im Jahr 2021 starb die bekannte britische Radiomoderatorin Lisa Shaw im Alter von 44 Jahren an den Folgen von Blutgerinnseln nach einer Impfung von AstraZeneca. Shaw hatte seit 2015 für BBC Radio Newcastle gearbeitet und war eine bekannte Radiostimme in Grossbritannien. Medienberichten zufolge ist diese
+Nebenwirkung ‹extrem selten›.
+
+Kürzlich hat ein Kollege von ihr, der Radiomoderator Jules Serkin von BBC Radio Kent, auf Twitter einen
+bemerkenswerten Appell veröffentlicht. Sie bat die Menschen, sich mit ihr in Verbindung zu setzen, wenn
+sie einen Impfstoff aus der Charge PV46669 von AstraZeneca erhalten haben.
+Sie selbst erhielt am 5. März 2021 eine Spritze von AstraZeneca aus der Charge PV46671. Die Folge:
+schwere Nebenwirkungen.
+
+
+-----
+
+Bald wurde Serkin mit den schrecklichsten Geschichten überhäuft. «Meine Schwester ist vor fast sechs
+Wochen gestorben. Sie hat diese Charge bekommen», antwortete jemand.
+Marina schreibt, dass ihre Mutter am 1. Februar 2021 PV46662 erhielt, woraufhin sich Blutgerinnsel in
+ihrem Gehirn bildeten. Ende Juni wurde sie nach einem Schlaganfall ins Krankenhaus eingeliefert. Im Juli
+erhielt sie im Krankenhaus eine zweite Dosis und starb am 23. August 2021. «Ich werde denen, die das
+getan haben, niemals verzeihen», sagte sie.
+Robert gibt an, dass er PV46663 am 31. März 2021 erhalten hat. Vier Tage später erlitt er einen Herzinfarkt.
+
+**Bettgebunden**
+Eine andere Person berichtet, dass ihre Schwiegermutter eine Spritze aus dieser Charge genommen hat
+und inzwischen verstorben ist.
+Eine andere erhielt einen AstraZeneca-Prick aus der Charge AB0009 und kämpft nun mit dem GuillainBarré-Syndrom, Lähmungen und Blutgerinnseln im Gehirn.
+Simon erhielt am 17. März 2021 eine AstraZeneca-Spritze aus der Charge PW40009, und sechs Tage
+später war er gelähmt. Er leidet an einer chronisch-entzündlichen demyelinisierenden Polyneuropathie und
+ist ans Bett gefesselt.
+
+**Zu spät**
+Die Schwester von jemandem erhielt eine Spritze von AstraZeneca, Charge PV46663, und leidet ständig
+unter starken Kopfschmerzen.
+«Zu spät», schreibt Jacqueline. «Mein Vater starb am 5. Mai 2022 an einem Herzinfarkt.»
+Es scheint kein Ende in Sicht zu sein. Auch der Datenanalyst Wouter Aukema hat den Tweet von Serkin gesehen und antwortet: «Allemachtig, lesen Sie die Reaktionen auf diesen Aufruf. Unvorstellbar.»
+_Quelle: https://uncutnews.ch/impfgeschaedigte-veroeffentlicht-die-chargennummer-ihrer-impfung-und-bekommt-_
+_unerwartete-reaktionen/_
+
+##### Grossbritanniens einflussreichster Kardiologe sagt Stopp!
+_uncut-news.ch, Januar 5, 2023_
+
+Der angesehene britische Kardiologe Dr. Aseem Malhotra hat Premierminister Rishi Sunak aufgefordert,
+die Einführung der COVID-19-mRNA-Spritzen zu stoppen, da sie «unnötigen Schaden anrichten, der
+Einzelpersonen und Familien schadet».
+Er hat neun Monate lang Studien analysiert und ist nun der Meinung, dass das Programm zur Injektion von
+Menschen mit einem genetischen Experiment sofort ausgesetzt werden sollte. Er hat sich inzwischen einer
+wachsenden Zahl von Forschern, Wissenschaftlern und Ärzten angeschlossen, die der gängigen COVIDDarstellung nicht folgen
+
+
+-----
+
+Malhotra hat die Daten mit dem Vorsitzenden der British Medical Association (BMA) besprochen. Am Ende
+des Gesprächs sagte der BMA-Vorsitzende: «Ich glaube nicht, dass jemand die Daten so kritisch bewertet
+hat wie Sie. Die meisten dieser Menschen beziehen ihre Informationen über den Impfstoff von der BBC.»
+Trotz der hohen Zahl der Geimpften ist die Zahl der Todesfälle weiter gestiegen; Daten aus Grossbritannien
+zeigen, dass etwa 80% aller Fälle, Krankenhausaufenthalte und Todesfälle auf die Geimpften entfielen.
+Von der überhöhten Zahl der Todesfälle im Jahr 2021, die nicht auf die Impfung zurückzuführen sind, sind
+viele auf Herzkrankheiten zurückzuführen, was eine bekannte Wirkung der mRNA-Impfung ist.
+Der angesehene britische Kardiologe Dr. Aseem Malhotra hat Premierminister Rishi Sunak aufgefordert,
+die Einführung der COVID-19-mRNA-Impfung zu stoppen, da sie «immer noch unnötigen Schaden anrichtet, der Einzelpersonen und Familien schadet».
+Trotz der Bemühungen der CDC und der FDA, die Daten zu minimieren, die dieselben Behörden über das
+Vaccine Adverse Event Reporting System (VAERS) sammeln, steigt die Zahl der Menschen, die durch die
+Impfung erkranken, dauerhaft behindert werden oder sterben, weiter an. Die Daten vom 9. Dezember 2022
+zeigen 32’828 Todesfälle, 61’065 dauerhafte Behinderungen und 35’828 Myokarditis-Entzündungen.
+Auch diese Zahlen sind wahrscheinlich niedriger als der tatsächliche Schaden. Einem Bericht der Columbia
+University zufolge gab es zwischen Februar und August 2021 «146’000 bis 187’000 impfstoffbedingte
+Todesfälle in den USA».
+Das Thema Impfstoffe war schon immer umstritten, aber während des COVID erreichte es einen Fieberschub, als es zum Sakrileg wurde, sich gegen sie auszusprechen oder gar ihre Sicherheit und Wirksamkeit
+infrage zu stellen. Malhotra hat die Zahlen im Auge behalten.
+«Sie (Politiker und Medien) mögen ihre Hände über ihre Augen halten, aber wir können sie sehen und das
+Schweigen ist ENTTÄUSCHEND», twitterte er. «Bitte stoppen Sie diese Einführung JETZT.»
+
+**Grossbritanniens einflussreichster Kardiologe sagt ‹Stopp›!**
+Bis Juli 2021 war Malhotra ein entschiedener Befürworter der genetischen COVID-19-Impfung. Nach dem
+Tod seines 73-jährigen Vaters begann er jedoch, die Daten genauer unter die Lupe zu nehmen.
+Er verbrachte neun Monate mit der Analyse von Studien und ist nun der Meinung, dass das mRNA-Programm zur Injektion von Menschen mit einem genetischen Experiment sofort ausgesetzt werden sollte. Er
+hat sich seitdem einer wachsenden Zahl von Forschern, Wissenschaftlern und Ärzten angeschlossen, die
+der gängigen COVID-Darstellung nicht folgen.
+In einem Interview mit Epoch TV stellte Malhotra fest, dass ‹ethische, evidenzbasierte medizinische Praxis›
+der Standard für die medizinische Versorgung sein sollte, aber mit der Veröffentlichung der COVID-Impfstoffe auf der Strecke geblieben ist. Nach einer kritischen Analyse der Daten zu den COVID-19-Impfungen
+ist er der Ansicht, dass die Wirksamkeit der Technologie im Vergleich zu herkömmlichen Impfstoffen ‹sehr,
+miserabel› ist. Ferner sind die Impfungen nicht nur unwirksam, sondern sie haben auch noch nie dagewesene Schäden verursacht.
+Zu Beginn der Pandemie nahm Malhotra zwei Dosen des Pfizer-Impfstoffs und trat in der Sendung Good
+Morning Britain auf, um gegen das Zögern bei der Impfung anzugehen. Er teilte die wenigen Informationen
+mit, die er zu diesem Zeitpunkt hatte und von denen er später erfuhr, dass sie falsch waren. Nach monatelanger Auswertung der Beweise sagt er Folgendes über das aktuelle Impfprogramm:
+«Es handelt sich um eine der am wenigsten wirksamen pharmakologischen Interventionen in der Geschichte der Medizin mit dem schlechtesten Nebenwirkungsprofil, die gleichzeitig die lukrativsten und profitabelsten sind. Und wenn man versucht, diese Punkte miteinander zu verbinden, ergibt sich ein äusserst unschönes Bild. Eine echte Anklage gegen unser gesamtes Gesundheitssystem.»
+Malhotra weist darauf hin, dass zur Verhinderung eines COVID-Todes bei Menschen über 80 Jahren 230
+Personen die Impfung erhalten müssen. Um einen Todesfall bei Menschen zwischen 70 und 80 Jahren zu
+verhindern, müssen 520 Menschen geimpft werden. Bei Menschen unter 70 Jahren müssen sich Tausende
+impfen lassen, um nur einen Todesfall zu verhindern.
+
+
+-----
+
+Malhotra würde einer Person in den 50ern sagen, dass sich 2000 Menschen impfen lassen müssen, um
+den Tod einer Person zu verhindern, und dass nach den jetzt vorliegenden Erkenntnissen von 800 Personen, die sich impfen lassen, eine Person eine schwere Nebenwirkung einschliesslich einer Behinderung
+erleidet. Er fuhr fort und beschrieb die Daten der Arzneimittelhersteller, die zur Zulassung führten.
+Wir wissen jetzt, dass die ursprünglichen Studien – die randomisierten Kontrollstudien nach dem Goldstandard –, die zur Zulassung des Impfstoffs durch die Aufsichtsbehörden geführt haben, gezeigt haben, dass
+die Wahrscheinlichkeit, eine schwere Nebenwirkung des Impfstoffs zu erleiden, grösser ist als die Wahrscheinlichkeit, mit COVID ins Krankenhaus eingeliefert zu werden.
+Anhand der Daten, die seit der Einführung des Impfprogramms gesammelt wurden, stellt Malhotra fest,
+dass «der Schaden des Impfstoffs konstant bleibt, während das COVID-Risiko sinkt». Unter normalen Umständen würden Wissenschaftler und Gesundheitsexperten nicht über dieses Impfprogramm diskutieren.
+Stattdessen «wäre es schon vor langer Zeit zurückgezogen worden».
+
+**Gründe für die leidenschaftlich unterschiedlichen Standpunkte**
+In seiner Rede am 14. November 2022 im Friend’s House beschrieb Malhotra einige der psychologischen
+Effekte, die in den vergangenen drei Jahren aufgetreten sind und die zu der Spaltung und den leidenschaftlich unterschiedlichen Standpunkten bezüglich der Pandemie und der genetischen Impfungen geführt
+haben.
+Sein erster Punkt war, dass Angst ein psychologisches Phänomen ist, das unsere Fähigkeit zu kritischem
+Denken hemmen kann. Dies ist ein entscheidender Punkt, den es zu verstehen gilt, denn es handelt sich
+um eine fortwährende Herausforderung, die meines Erachtens von den Medien und den Behörden in der
+Hoffnung auf eine fortgesetzte Verhaltenskontrolle aufrechterhalten wird. Malhotra merkt an, dass zu Beginn der Pandemie ein Grossteil der Welt von einer Art von Angst ergriffen war, wie wir sie zu unseren Lebzeiten noch nicht erlebt haben.
+Der zweite Grund, warum viele Menschen so unterschiedliche Ansichten haben, ist die absichtliche Verblendung oder das Verschliessen der Augen vor der Wahrheit, um sich sicher zu fühlen, Konflikte zu vermeiden,
+Ängste abzubauen und das Prestige oder in manchen Fällen das wertvolle, zerbrechliche Ego zu schützen.
+Er stellt fest, dass es wichtig ist, dies zu verstehen, damit in Zukunft die richtigen Informationen auf die
+richtige Art und Weise verbreitet werden, und dass dies auf mitfühlende Weise für Menschen geschieht, die
+unter der Last der Angst zu leiden haben. Dann zitiert er den verstorbenen Stephen Hawking, der sagte:
+«Der grösste Feind des Wissens ist nicht die Unwissenheit, sondern die Illusion des Wissens.»
+Malhotra argumentiert, dass der britische Nationale Gesundheitsdienst (NHS) 1948 gegründet wurde, um
+eine Gesundheitsversorgung zu schaffen, die bei Bedarf und bei Inanspruchnahme kostenlos ist. Er ist
+jedoch der Meinung, dass viele Menschen vergessen haben, dass der NHS auch geschaffen wurde, um
+sicherzustellen, dass die Menschen die bestmögliche Versorgung zum Zeitpunkt ihrer Inanspruchnahme
+erhalten.
+Er bezeichnet John Ioannidis, Professor für Medizin in Stanford, als den Stephen Hawking der Medizin. Er
+stimmt mit Ioannidis‘ Einschätzung überein, dass medizinische Fehlinformationen auf ein mangelndes
+Verständnis der veröffentlichten Forschungsergebnisse durch Angehörige der Gesundheitsberufe und die
+geringe Zuverlässigkeit der Forschung bei der Umsetzung in Entscheidungen für Patienten zurückzuführen
+sind.
+Malhotra zitiert Ioannidis mit den Worten: «Die Ignoranz gegenüber diesem Problem ist selbst auf den
+höchsten Ebenen der akademischen und klinischen Führung tiefgreifend.»
+Nachdem er monatelang mit der Durchsicht der Daten zugebracht hatte, verbrachte Malhotra zwei Stunden
+mit dem Vorsitzenden der British Medical Association (BMA), um die Daten zu prüfen. Am Ende des Gesprächs teilte Malhotra den Kommentar des BMA-Vorsitzenden:
+… von all den Leuten, mit denen ich gesprochen habe, die medizinische Führungspositionen innehaben,
+und Sie wissen, dass er auch den Chefarzt in dieser Sache ins Gespräch gebracht hat, sagte er, dass ich
+nicht glaube, dass jemand die Daten so gut kritisch bewertet hat wie Sie. Die meisten dieser Leute beziehen
+ihre Informationen über den Impfstoff von der BBC.
+
+**Trotz Impfung steigt die Zahl der Todesfälle weiter an**
+Trotz der hohen Zahl von Menschen, die sich impfen lassen, ist die Zahl der Todesfälle weiter angestiegen.
+Die Daten zeigen, dass es nicht nur mehr Todesfälle aufgrund von Krankheiten gibt, die nicht mit COVID in
+Zusammenhang stehen, sondern auch ein Bericht aus Grossbritannien zeigt, dass 9 von 10 Todesfällen,
+die mit COVID in Zusammenhang stehen, bei vollständig geimpften Personen auftraten.
+Expose berichtete im März 2022 über Grossbritannien und stellte fest, dass die meisten Menschen durch
+den Einmarsch Russlands in die Ukraine abgelenkt waren, während die britische Regierung in aller Stille
+einen Bericht über die Impfstoffüberwachung veröffentlichte, aus dem hervorging, dass etwa 80 bis 90%
+aller Fälle, Krankenhausaufenthalte und Todesfälle bei geimpften Menschen auftraten.
+
+
+-----
+
+Insgesamt belief sich die Zahl der COVID-Fälle in England vom 24. Januar 2022 bis zum 20. Februar 2022
+auf 404’030 bei ungeimpften Personen und 1'086’434 bei Personen, die eine, zwei oder drei Impfungen
+erhalten hatten. In kleinen geografischen Gebieten scheinen die Daten aus den USA ähnlich zu sein. Die
+von der CDC erhobenen Rohzahlen unterscheiden sich jedoch, da die CDC im April 2022 vollständig geimpfte Personen als zwei Wochen nach ihrer letzten Dosis definierte.
+Im September 2022 änderte die CDC die Definition in «Sie sind mit Ihren COVID-19-Impfungen auf dem
+neuesten Stand, wenn Sie eine COVID-19-Impfserie abgeschlossen und die letzte von der CDC empfohlene
+Auffrischungsdosis erhalten haben.»
+Nicht alle, die vollständig geimpft sind, werden bei der Aufnahme ins Krankenhaus identifiziert, sodass eine
+Analyse der US-Zahlen schwierig, wenn nicht gar unmöglich ist. Wahrscheinlich kann man davon ausgehen,
+dass jemand, der als vollständig geimpft identifiziert wurde, den CDC-Standard erfüllt hat, und dass die
+Gruppe der Ungeimpften wahrscheinlich Personen enthält, die keine zwei Wochen nach ihrer ersten Impfung oder die vollständig geimpft sind und bei der Aufnahme ins Krankenhaus nicht identifiziert wurden.
+Man muss sich fragen, ob dieses statistische Chaos beabsichtigt ist.
+Zu den Daten, die zeigen, dass die Impfungen nicht wirksam sind, kommt die Tatsache hinzu, dass die Gesamtzahl der Todesfälle durch Nicht-COVID-Krankheiten ebenfalls zunimmt. Im November 2021 veröffentlichte der Software-Ingenieur Ben M. aus dem Silicon Valley auf Twitter Daten, aus denen hervorging, dass
+in einem Zeitraum von 13 Wochen etwa 107’700 Senioren über der normalen Rate starben, obwohl die
+Impfrate 98,7% betrug. Vier Tage zuvor hatte er die Daten der CDC für überhöhte Sterberaten in Vermont
+veröffentlicht und getwittert:
+In Vermont waren bis zum 1. Juni 2021 71% der gesamten Bevölkerung geimpft. Das sind 83% der erwachsenen Bevölkerung, und dennoch gibt es dort die meisten Todesfälle seit der Pandemie!
+Im November 2021 wurde in Grossbritannien ebenfalls eine überhöhte Zahl von Todesfällen im Vergleich
+zum gleichen Zeitraum zwischen 2015 und 2019 festgestellt. Ferner waren die nicht-COVID-Todesfälle in
+Grossbritannien höher als der wöchentliche Durchschnitt in den fünf Jahren vor der Pandemie. Von diesen
+überzähligen Todesfällen waren viele auf Herzkrankheiten und Schlaganfälle zurückzuführen.
+Diese Information ist besonders besorgniserregend, da Forscher herausgefunden haben, dass die mRNASpritzen von Pfizer und Moderna nach der Injektion Biomarker, die mit Thrombose, Kardiomyopathie und
+anderen vaskulären Ereignissen in Verbindung gebracht werden, drastisch erhöhen. Die Studie wurde in
+der Zeitschrift Circulation veröffentlicht und kam ursprünglich zu folgendem Schluss:
+… die mRNA-Impfungen die Entzündung des Endothels und die T-Zell-Infiltration des Herzmuskels dramatisch erhöhen und für die beobachtete Zunahme von Thrombose, Kardiomyopathie und anderen vaskulären
+Ereignissen nach der Impfung verantwortlich sein könnten.
+Dies wurde jedoch später geändert in:
+… die mRNA-Impfstoffe erhöhen numerisch (aber nicht statistisch getestet) die Marker IL-16, Fas und HGF,
+alles Marker, die zuvor von anderen, für die Entzündung des Endothels und die T-Zell-Infiltration des Herzmuskels beschrieben wurden, in einer konsekutiven Serie einer einzelnen Klinik-Patientenpopulation, die
+mRNA-Impfstoffe ohne Kontrollgruppe erhielt.
+
+**Zwei Weltanschauungen und eine davon ist schlimm, schlimm falsch**
+In einem GBN-Beitrag vom 17. Dezember 2022 zitierte Neil Oliver, britischer Fernsehmoderator, Archäologe, Historiker und Autor, den amerikanischen Wissenschaftler Carl Sagan, der «in Bezug auf die Wissenschaft stets einen aggressiven, enthusiastischen Skeptizismus an den Tag legt, denn nur so kommen wir
+weiter, indem wir stets offen für neue Ideen bleiben. Skeptische Untersuchungen sind das Gebot der
+Stunde».
+Er bezog sich dabei natürlich auf die phänomenalen Meinungsverschiedenheiten im Kontext der COVIDPandemie und dem Gen-Impfstoff. Als ein Beispiel nannte er die wenigen Minuten, in denen Andrew
+Bridgen vor dem Unterhaus einen Vortrag hielt, der nach Olivers Ansicht in das ‹Grosse Buch der Geschichte› aufgenommen werden sollte.
+Bridgen forderte eine vollständige Aussetzung der Einführung von Impfstoffen, da es ‹klare und solide Daten
+über erhebliche Schäden und einen geringen anhaltenden Nutzen› gebe. Bridgen bezog sich auf die Untersuchungen von Malhotra, der die Einführung des Pfizer-Produkts als den «vielleicht grössten Fehlschlag
+der medizinischen Wissenschaft, der die Demokratie angreift, die Gesundheit der Bevölkerung schädigt und
+das Vertrauen in die Medizin untergräbt, den wir zu unseren Lebzeiten erleben werden» bezeichnete.
+Bridgen verwies auch auf die halbe Million Berichte über schwerwiegende unerwünschte Wirkungen und
+auf einen Journalisten einer grossen Nachrichtenagentur, der Angst hat, darüber zu berichten, weil er sonst
+seinen Job verlieren würde. Er sprach über die erneute Analyse der Daten von Pfizer, die in einer von
+Experten begutachteten Fachzeitschrift veröffentlicht wurde und die zeigt, dass auf 800 Impfungen eine
+schwerwiegende unerwünschte Wirkung kommt, und darüber, dass andere Produkte vom Markt genommen wurden, nachdem weitaus weniger Schäden aufgetreten waren.
+
+
+-----
+
+Bridgen kam zu dem Schluss, dass wir viel zu viele Bürger ‹auf dem Altar der Unwissenheit und der uneingeschränkten Gier der Unternehmen› geopfert haben. Ihm folgte Maria Caulfield, Unterstaatssekretärin im
+Ministerium für Gesundheit und Soziales. Obwohl sie nicht so lange sprach, war sie unmissverständlich der
+Meinung, dass der Impfstoff den grössten Unterschied bei der Bekämpfung von COVID-19 gemacht hat.
+Sie betonte, dass alle Impfstoffe im Vereinigten Königreich sicher seien, und wies Verschwörungstheorien
+zurück, wonach Menschen finanziell von dem Impfstoff profitierten. Oliver räumt ein, dass es nicht möglich
+ist, dass beide Personen über dieselbe Realität sprechen, aber es war offensichtlich, dass jeder von ihnen
+seiner Weltanschauung ebenso verpflichtet war wie der andere. Seiner Meinung nach hat von diesen beiden
+einander ausschliessenden Weltanschauungen eine von ihnen ‹einen schweren, schweren Fehler› begangen.
+_Quellen:_
+_1 Dr. Aseem Malhotra_
+_2, 7 Twitter, December 18, 2022_
+_3 VAERS, About_
+_4 Open VAERS, COVID Data_
+_5 Steve Kirsch, January 6, 2022_
+_6 Research Gate, October 2021_
+_8, 9, 10, 11 Epoch Times, December 10, 2022_
+_12 YouTube, Aseem Malhotra, Has Big Pharma Hijacked Evidence Based Medicine? November 23, 2022 starting 1:55_
+_13, 14 YouTube, Aseem Malhotra, Has Big Pharma Hijacked Evidence Based Medicine? November 23, 2022, 3:20_
+_15 The Expose, March 1, 2022_
+_16 Mercury News, March 7, 2022_
+_17 Centers for Disease Control and Prevention, January 16, 2022, When are you up to date_
+_18 CDC, September 8, 2022_
+_19 Twitter, Ben M. November 28, 2021_
+_20 Twitter, Ben M. November 24, 2021_
+_21 The Financial Times, November 23, 2021_
+_22 Circulation November 16, 2021; 144(Suppl_1) Archive_
+_23 Circulation November 16, 2021; 144(Suppl_1)_
+_24 YouTube, December 17, 2022 GB News 1:18:13_
+_QUELLE: ESTEEMED CARDIOLOGIST: ‘STOP THIS ROLLOUT NOW’_
+_Quelle: https://uncutnews.ch/grossbritanniens-einflussreichster-kardiologe-sagt-stopp/_
+
+##### ‹Beispiellose Impfstoffkatastrophe›:  Ein Interview mit Professor Masanori Fukushima
+_uncut-news.ch, Januar 5, 2023_
+
+Am 25. November kam es zu einem seltenen Ereignis in der laufenden COVID-19-Saga: Die Wahrheit wurde
+der Macht mitgeteilt. Einem angesehenen Arzt und Experten für Infektionskrankheiten wurde freie Hand
+gelassen, um einen Regierungsbeamten zu befragen, ohne Vermittlung und ohne offensichtliche zeitliche
+Begrenzung. Es handelte sich um den angesehenen Onkologen, emeritierten Professor der Universität
+Kyoto und Vertreter des Learning Health Society Institute (LHSI) Masanori Fukushima. Seine rigorose und
+leidenschaftliche Beschimpfung eines Beamten des Ministeriums für Gesundheit, Arbeit und Soziales
+(MHLW) über die Sicherheit des COVID-19-Impfstoffs und die Transparenz der Regierung sorgte für Aufsehen. Eine Aufnahme davon ging schnell ins Internet und machte Doktor Fukushima zum führenden Kritiker
+der COVID-19-Impfstoffe in Japan.
+Ich habe Professor Fukushima am 28. Dezember über Zoom interviewt. Er gab mir zunächst einige Hintergrundinformationen zu seinem Werdegang und erläuterte, warum er sich mit dem COVID-19-Impfstoff befasst hat, bevor er auf die spezifischen Schäden, seine Meinung zur Reaktion der japanischen Regierung
+und den weiteren Weg einging.
+
+
+-----
+
+_Philip Patrick: Herr Professor Fukushima, ich danke Ihnen für die Möglichkeit, mit Ihnen zu sprechen. Darf_
+ich Sie zunächst bitten, mir einige Hintergrundinformationen zu dem Ereignis vom 25. November zu geben
+und zu erläutern, wie Sie in die Frage der Sicherheit des COVID-19-Impfstoffs hineingezogen wurden?
+_Masanori Fukushima: Ich habe Biochemie an der Universität Kyoto studiert und bin der älteste medizinische_
+Onkologe in unserem Land. Als Professor an der Universität Kyoto eröffnete ich 2003 die erste Ambulanz
+für Krebspatienten im akademischen Bereich. Seit 2000 beschäftige ich mich mit der Pharmakoepidemiologie. Dabei handelt es sich um die Untersuchung der Verhinderung von Arzneimittelkatastrophen. Das ist
+die Aufgabe, die raison d’être. Deshalb beschäftige ich mich auch mit dem COVID-19-Impfstoffproblem.
+Denn keine Wissenschaftler und nur wenige Ärzte haben sich zu dem Problem der Impfstoffe geäussert.
+Als ich also hörte, dass die Regierung, die EU und die USA das Boten-RNA-Programm gestartet haben, war
+mein erster Eindruck: Das ist so dumm. Denn Boten-RNA ist evolutionär, und das Zellsystem wird immer
+in sehr kurzer Zeit abgebaut. Boten-RNA ist empfindlich und sollte im Körper sofort abgebaut werden. Aber
+dieser Impfstoff wird so verändert und manipuliert, dass er stabil ist und in Nanopartikel eingebaut werden
+kann. Nanopartikel sind das zweite Problem, da sie sich immer in jede Art von Zellen, insbesondere in
+Stammzellen, einlagern. Stammzellen sind notwendig für die Reparatur von Zellen aller Art. Und das dritte
+Problem ist, dass es keine Spezifität der Verabreichung gibt. Sie (die Boten-RNA) wird in den Körper injiziert
+und verteilt sich überall im Körper, wo sie Spike-Proteine exprimiert. Dies ist ein grosses Problem. Das
+Spike-Protein ist sehr gefährlich.
+Als ich zum ersten Mal hörte, dass die Regierung diesen Impfstoff verwendet und die PMDA [die japanische
+Aufsichtsbehörde, vergleichbar mit der FDA] ihn genehmigt hatte, war ich sehr, sehr besorgt, aber es ist zu
+einer Art Religion geworden. Dennoch glauben sie an die Wirksamkeit des Impfstoffs – er ist wie ein Messias.
+_PP: Warum ist das Spike-Protein gefährlich?_
+_MF: Das Spike-Protein bindet an Rezeptorproteine, die [in] den meisten Zellen exprimiert werden. Es [das_
+Spike-Protein] greift also alle Arten von Zellen an, insbesondere Endothelzellen im Gefässsystem, was zur
+Gerinnung führen kann. Wenn die Endothelzellen an das Spike-Protein binden, wird die Gerinnung ausgelöst.
+_PP: Wir sprechen also von Herzinfarkten?_
+_MF: Ja, wenn die grosse Arterie betroffen ist, kann das zu schwerwiegende Folgen wie Herzinfarkt oder_
+Schlaganfall führen. Und die FDA hat das Signal der Häufigkeit von Lungenthrombosen erkannt.
+_PP: Und Sie haben in Ihren Berichten [die in einer japanischen Zeitschrift veröffentlicht wurden] geschrie-_
+ben, dass der Regierung [MHLW] 2000 Todesfälle gemeldet wurden, die sehr wahrscheinlich auf den Impfstoff zurückzuführen sind. Aber in einem Ihrer Berichte bezeichneten Sie dies als ‹die Spitze des Eisbergs›.
+Wie viel grösser könnte sie sein?
+_FM: Eine Schätzung geht vom Fünffachen aus. Die Berichte stammen hauptsächlich von Ärzten, die sich_
+um die Patienten gekümmert haben, aber die meisten Impfungen werden nicht in Kliniken, sondern in von
+den Präfekturen betriebenen Impfzentren durchgeführt, wobei die Injektion von der Krankenschwester vorgenommen wird [sodass die Ärzte in den meisten Fällen nicht direkt in die Ereigniskette involviert sind und
+es unwahrscheinlich ist, dass sie Impfstoffprobleme melden].
+Die Fälle häufen sich, aber die Regierung leugnet die Kausalität, selbst bei den autopsierten Fällen, bei denen der Pathologe die Kausalität festgestellt hat. Es gibt eindeutige Beweise für eine signifikante Zunahme
+von Herz- und Gefässproblemen wie Schlaganfällen und lungenentzündungsähnlichen Symptomen und
+anderen.
+_PP: Aber das Argument, das die Befürworter dieser Impfstoffe immer wieder anführen, ist, dass die Impf-_
+stoffe trotz einiger Probleme weit mehr Menschen retten als sie schädigen. Was ist Ihre Antwort darauf?
+_FM: Ich habe die Regierung aufgefordert, die COVID-19-Sterblichkeit bei geimpften und nicht geimpften_
+Menschen offenzulegen. Diese Statistik ist von entscheidender Bedeutung. Wenn es keinen Unterschied
+gibt, dann rechtfertigen die durch die Impfung verursachten Todesfälle nicht die Verwendung der Impfstoffe. Ich habe diese Informationen offiziell am 1. August über meinen Anwalt angefordert. Die erste Antwort lautete: «Warten Sie zwei Monate.» Und dann lautete die endgültige Antwort: «Nein, wir geben keine
+Auskunft.» Der nächste Schritt ist also, die Regierung zu verklagen.
+_PP: Sie haben vor, die Regierung zu verklagen?_
+_FM: Ja, auf der Grundlage des Gesetzes über die Offenlegung von Informationen._
+_PP: Sie weigern sich also, wichtige Informationen preiszugeben, die die Öffentlichkeit wissen muss und die_
+Leben retten könnten?
+_FM: Ja, das ist richtig. Es ist wie ein Witz. Denn die Regierung hat solche Informationen im letzten Jahr_
+offengelegt. Und es gibt Beweise dafür, dass die Sterblichkeitsrate bei den unter 65-Jährigen bei ungeimpften Personen niedriger ist als bei geimpften Personen. Es ist lustig – nein, nicht lustig, weil es viele Todesfälle
+gibt, also lachen wir nicht; aber das Verhalten des Ministeriums ist sehr dumm.
+_PP: Sie haben also früher etwas veröffentlicht und dann die Veröffentlichung eingestellt, vermutlich weil es_
+peinlich ist. Es ist also unmöglich, die Informationen zu finden, die wir brauchen, um herauszufinden, ob
+
+
+-----
+
+die Impfstoffe wirken oder nicht? An einer Stelle des Videos sagten Sie: «Es sieht so aus, als würden Sie
+Daten verstecken.»
+_FM: Ja, und ich glaube, sie waren verärgert. Es gibt so viele Todesfälle. Es ist eine noch nie dagewesene_
+Impfstoffkatastrophe. Ich kann mir nicht vorstellen, wie viele Menschen wirklich gestorben sind. 2000 ist
+das Minimum, die Spitze des Eisbergs.
+_PP: Und es betrifft alle Altersgruppen, nicht wahr? In einem Ihrer Berichte war von einem 28-jährigen Mann_
+die Rede, der nach der zweiten Impfung starb, ohne gesundheitliche Probleme zu haben?
+_MF: Das ist richtig, ohne gesundheitliche Probleme. Fünf Tage nach der zweiten Impfung. Das ist sehr_
+tragisch.
+_PP: Glauben Sie, dass das Ausmass dieser Sache so gewaltig und der Skandal so gross ist, dass die Regie-_
+rung dies einfach nicht akzeptieren kann? Sie würden lieber weiter so tun, als würden die Impfstoffe funktionieren, als das Ausmass der Katastrophe zuzugeben? Ist das ihre Position?
+_MF: Also… es ist keine passende Analogie, aber Sie sagen, wenn man eine Person tötet, ist es rechtlich_
+gesehen Mord, aber wenn man so viele Menschen tötet, ist es wie ein Krieg und man kommt nicht ins
+Gefängnis.
+_PP: Jemand hat einmal gesagt, je grösser die Lüge ist, desto leichter kommt man damit durch. Warum_
+werden die Japaner immer noch geimpft?
+_MF: Aber ich glaube, die Rate geht zurück. Viele Menschen hören damit auf. Und offenbar fördern die_
+Massenmedien die Impfung nicht mehr so sehr wie früher.
+_PP: In den Medien gibt es also weniger Ermutigung, nichts über Impfschäden, aber weniger Ermutigung,_
+sich impfen zu lassen? Die Botschaft hat sich auf subtile Weise verändert.
+_MF: Ja, das ist der japanische Weg. Aber das Problem wird immer grösser und grösser. Eine sehr populäre_
+Zeitschrift veröffentlicht eine Serie über die Probleme mit Impfstoffen. Ihr Einfluss ist sehr gross, also wird
+sich nächstes Jahr etwas ändern.
+_PP: Und drei weitere Ärzte haben sich gemeldet (Kojima, Sano und Nagao). Wie ist die allgemeine Stim-_
+mung unter den Ärzten?
+_MF: Ja, Dr. Nagao hat sich mit mir in Verbindung gesetzt und will einen Dialog. Und Professor Sano war bei_
+dem Treffen am 25. November dabei. Er sass am selben Tisch. Und dann ist da noch Professor Kojima von
+der Universität Nagoya. Professor Kojima ist eine sehr wichtige Person, die die Probleme mit dem Impfstoff
+durch eine sehr wichtige Analyse identifiziert hat.
+_PP: Die Gruppe wird also immer grösser?_
+_MF: Grösser, aber ich [organisiere sie] nicht. Ich bin beteiligt, weil ich gebeten wurde, Artikel über COVID-_
+19 zu schreiben, und einer handelte davon, wie man COVID-19 vermeiden und mit COVID-19 umgehen
+kann. Ich riet zu einer angemessenen Steroidtherapie ohne Verzögerung. Als COVID-19 im Februar 2020
+zum ersten Mal in Japan auftrat, sammelte ich Informationen aus China und kam zu dem Schluss, dass
+der entscheidende Punkt darin besteht, die Entwicklung einer interstitiellen Pneumonitis zu verhindern. Die
+Antwort ist, den Abfall des Sauerstoffgehalts im Blut zu erkennen. Wenn er unter 95% liegt, sollte man das
+CT überprüfen, und wenn es Anzeichen für eine Infiltration gibt, sollte man die Behandlung beginnen.
+_PP: Die bisherigen Behandlungen waren also ausreichend?_
+_MF: Im Prinzip ja, und wenn man das Virus mit einem antiviralen Medikament angreift, entwickelt es sich_
+
+[einfach] weiter. Alpha, Beta, Gamma, Delta, usw. Alle Viren entwickeln sich durch Kommunikation mit dem
+Wirt weiter. Das ist ein biologisches Prinzip.
+_PP: Die Impfstoffe sind also nutzlos?_
+_MF: Nutzlos. Ich denke schon._
+_PP: Eine Theorie besagt, dass Eingriffe wie Abriegelungen, die Trennung von Menschen, die Schliessung_
+von Schulen usw. die Entwicklung des Virus beeinflusst und seine natürliche Entwicklung unterbrochen
+haben, wodurch es möglicherweise übertragbarer wurde. Wäre es besser gewesen, sich einfach normal zu
+verhalten, die Ausbreitung des Virus zuzulassen und nur die Erkrankten sofort zu behandeln, wie Sie es
+beschrieben haben?
+_MF: Das ist ziemlich schwierig, eine klare Antwort zu geben. Die Entwicklung des Virus basiert auf der_
+Kommunikation mit dem Wirt, sodass wir die Entwicklung des Virus nicht [genau] vorhersagen können,
+aber im Allgemeinen entwickeln sich die Viren so, dass sie immer symbiotischer mit ihrem Wirt werden.
+Zunächst dachte ich, dass COVID-19 ähnlich verlaufen würde. Die Sterblichkeitsrate ist zurückgegangen
+und hat sich eingependelt, und ich kann die Wirksamkeit der Impfstoffe nicht völlig widerlegen, aber wir
+müssen wirklich davon ausgehen, dass die Ärzte ihre Techniken verbessert haben und dass das Virus weniger toxisch geworden ist.
+_PP: Es ist also nicht zu rechtfertigen, den Rückgang der Sterblichkeit mit dem Virus in Verbindung zu_
+bringen. Das ist eine post hoc ergo proctor hoc Argumentation.
+_MF: Ja, und noch ein weiterer Punkt: Die klinischen Leitlinien für die Behandlung von COVID-19 liegen jetzt_
+in der 8. Sie sind sehr sorgfältig und hilfreich. Wenn sich der Arzt daranhält, wird der Patient mit grösserer
+Wahrscheinlichkeit genesen.
+
+
+-----
+
+_PP: Noch ein paar medizinische Punkte. In der Aufzeichnung sagten Sie, dass die Japaner relativ leicht_
+betroffen waren, weil sie eine frühere Immunität besassen, vielleicht aufgrund einer früheren Exposition
+gegenüber Coronaviren?
+_MF: Ja, und diese Erkenntnis ist notwendig. Es gibt Hinweise von Ärzten der Kanagawa Dental University,_
+die herausgefunden haben, dass nicht geimpfte, nicht infizierte Pflegekräfte einen hohen Prozentsatz an
+kreuzreaktivem IgA gegen das SARS-Cov2-Virus in ihrem Speichel hatten. Dies ist notwendig, denn wenn
+wir einen Impfstoff für eine solche Atemwegserkrankung entwickeln, müssen wir einen Schleimhaut- oder
+Nasenimpfstoff herstellen, keine Injektion, denn Injektionen erzeugen nur IgG, aber keine sekretorischen
+IgA-Antikörper. Injektionsimpfstoffe produzieren nur IgG auf Serumniveau, das das Virus im Körper
+blockiert. Wir müssen einen oralen oder nasalen Impfstoff herstellen, aber das ist immer noch schwierig.
+_PP: Schliesslich sagten Sie in Ihren Berichten, dass vielleicht besonders die Auffrischungsimpfungen das_
+Immunsystem der Menschen schädigen und sie für alle möglichen Probleme anfällig machen?
+_MF: Ja, das ist schon seit den Anfängen des Impfstoffs bekannt, dass er ADE auslösen kann, d. h., dass die_
+Antikörper Zellinfektionen beschleunigen. Und wenn man wiederholt geimpft wird, kann dies zu einer ursprünglichen Antigensünde führen. Der Impfstoff der ersten Generation war darauf ausgelegt, die erste
+Variante und das zweite Delta anzugreifen. Dies wurde bereits in dem Bericht von Catherine Reynolds klar
+nachgewiesen. Geimpfte Menschen produzieren also keine geeigneten Antikörper für Omicron. Die Impfstoffe können das angeborene Immunsystem aufgrund des ersten Designs des Impfstoffs ausschalten.
+_PP: Die Menschen stellen fest, dass alte Krankheiten wieder auftreten, weil das Immunsystem durch den_
+Impfstoff geschädigt wurde?
+_MF: Ja, ja._
+_PP: Ich weiss nicht, ob Sie Dr. Aseem Malhotra in Grossbritannien kennen. Er hat die Impfstoffe zunächst_
+verteidigt, dann starb sein Vater, und jetzt ist er ein wortgewandter und starker Kritiker der Impfstoffe. Und
+er vertritt den Standpunkt, dass die Impfungen sofort gestoppt werden sollten – bis eine gründliche Analyse
+der Impfschäden stattgefunden hat. Würden Sie dem zustimmen?
+_MF: Ja, natürlich. Sofort stoppen. Die Regierungen auf der ganzen Welt haben die Daten. Geben Sie die Da-_
+ten frei. Stoppen Sie die Impfung und beginnen Sie die wissenschaftliche Diskussion. Und wir müssen die
+langfristigen Auswirkungen der mRNA-Impfstoffe untersuchen. Die Regierung sollte die Daten nicht verstecken und manipulieren.
+_PP: Vielen Dank, Herr Professor. Und danke, dass Sie der Macht die Wahrheit sagen._
+_Philip Patrick ist freiberuflicher Journalist in Tokio._
+_QUELLE: “UNPRECEDENTED VACCINE DISASTER”: AN INTERVIEW WITH PROFESSOR MASANORI FUKUSHIMA_
+_Quelle: https://uncutnews.ch/beispiellose-impfstoffkatastrophe-ein-interview-mit-professor-masanori-fukushima/_
+
+##### US-Umfrage von Rasmussen zeigt, dass 1 von 4 Amerikanern glaubt, jemanden zu kennen, der an der COVID-Impfung gestorben ist
+_uncut-news.ch, Januar 4, 2023, Leigh-Prather-stock.adobe.com_
+
+**Rasmussen veröffentlichte schockierende Umfrageergebnisse zu den COVID-Impfstoffen.**
+
+Rasmussen schreibt:
+Fast die Hälfte der Amerikaner glaubt, dass COVID-19-Impfstoffe für viele ungeklärte Todesfälle verantwortlich sein könnten, und mehr als ein Viertel sagt, dass jemand, den sie kennen, zu den Opfern gehören
+könnte.
+Die jüngste landesweite Telefon- und Online-Umfrage von Rasmussen Reports zeigt, dass 49% der amerikanischen Erwachsenen es für wahrscheinlich halten, dass Nebenwirkungen von COVID-19-Impfstoffen eine
+erhebliche Anzahl ungeklärter Todesfälle verursacht haben, darunter 28%, die dies für sehr wahrscheinlich
+halten. Siebenunddreissig Prozent (37%) halten es für unwahrscheinlich, dass eine signifikante Anzahl von
+
+
+-----
+
+Todesfällen auf Nebenwirkungen von Impfstoffen zurückzuführen ist, darunter 17%, die dies für unwahrscheinlich halten. Weitere 14% sind sich nicht sicher.
+Achtundzwanzig Prozent (28%) der Erwachsenen geben an, dass sie persönlich jemanden kennen, dessen
+Tod ihrer Meinung nach durch Nebenwirkungen der COVID-19-Impfstoffe verursacht worden sein könnte,
+während 61% dies nicht wissen und weitere 10% sich nicht sicher sind.
+Der Dokumentarfilm Died Suddenly wurde kritisiert, weil er ‹entlarvte› Anti-Impf-Verschwörungstheorien
+propagiert, wurde aber von etwa 15 Millionen Menschen gesehen.
+Achtundvierzig Prozent (48%) der Amerikaner glauben, dass es berechtigte Gründe gibt, sich über die
+Sicherheit von COVID-19-Impfstoffen Sorgen zu machen, während 37% überzeugt sind, dass Menschen,
+die sich über die Sicherheit von Impfstoffen Sorgen machen, Verschwörungstheorien verbreiten. Weitere
+15% sind sich nicht sicher.
+Die Ergebnisse dieser Umfrage sind nicht überraschend. Im September 2022 berichtete TGP, dass Ärzte,
+Wissenschaftler und Fachleute aus mehr als 34 Ländern eine medizinische Krise ausriefen, weil Menschen
+aufgrund der COVID-Impfstoffe starben und erkrankten.
+Es sterben nicht nur mehr Menschen nach der Verabreichung von COVID-Impfstoffen, sondern es wurde
+auch die Art und Weise geändert, in der die Todesfälle durch COVID-Impfstoffe gezählt wurden, was dazu
+führte, dass die Zahl der Todesfälle durch COVID-Impfstoffe minimiert wurde.
+_QUELLE: BREAKING: RASMUSSEN POLL SHOWS THAT 1-IN-4 AMERICANS BELIEVE THEY KNOW_
+_SOMEONE WHO DIED FROM COVID VACCINE_
+_Quelle: https://uncutnews.ch/us-umfrage-von-rasmussen-zeigt-dass-1-von-4-amerikanern-glaubt-jemanden-zu-kennen-_
+_der-an-der-covid-impfung-gestorben-ist/_
+
+##### 2022 … Das Jahr, das das Ende von Amerikas Hegemonie markierte
+_uncut-news.ch, Januar 4, 2023_
+
+Der Krieg in der Ukraine hat das vergangene Jahr dominiert. Andere globale Krisen, wie der Anstieg der
+Energie- und Lebensmittelkosten, sind Kollateralschäden des Konflikts in der Ukraine.
+Bei dem Konflikt handelt es sich nicht nur um einen lokalen Konflikt im Zentrum Europas vor den Toren
+Russlands, an dem ein reaktionäres antirussisches Regime in Kiew beteiligt ist. Der Konflikt stellt eine historische Machtprobe zwischen den Vereinigten Staaten und ihren Verbündeten in dem von ihnen angeführten
+NATO-Militärbündnis und Russland dar. Dieser Showdown hat lange auf sich warten lassen.
+Er hätte nicht auf diese gewalttätige, grausame Weise stattfinden müssen.
+
+Russland hatte die Vereinigten Staaten und ihre NATO-Partner seit langem gewarnt, dass die Ausweitung
+des Bündnisses in Richtung der russischen Grenzen eine nicht hinnehmbare strategische Sicherheitsbedrohung darstellt. Die Warnungen Moskaus blieben Jahr für Jahr ungehört.
+Vor fast einem Jahr bot Russland einen letzten diplomatischen Weg zur Konfliktvermeidung an, indem es
+zu einem umfassenden Sicherheitsvertrag aufrief, der auf dem zuvor akzeptierten Grundsatz der ‹unteilbaren Sicherheit› beruht. Diese diplomatische Initiative wurde von Washington und seinen europäischen
+Verbündeten rundweg abgelehnt.
+Moskau hatte wiederholt gewarnt, dass es eine weitere Militarisierung des neonazistischen Regimes in Kiew
+nicht akzeptieren würde. Acht Jahre Krieg niedriger Intensität gegen die russischsprachige Bevölkerung in
+der ehemaligen Südostukraine mussten ein Ende haben. Die Militarisierung der Ukraine durch die NATO
+und ihre angepriesene Mitgliedschaft in der Allianz war die rote Linie Russlands. Es waren die Vereinigten
+Staaten und ihre NATO-Partner, die sich entschieden, diese Linie zu überschreiten. In diesem Fall schwor
+der russische Präsident Wladimir Putin, militärisch-technische Massnahmen zu ergreifen. Die militärische
+Zerschlagung des Kiewer Regimes, die am 24. Februar begann, war das Ergebnis.
+Die Folge ist ein Quasi-Krieg zwischen der NATO und Russland. Die Ukraine wurde mit NATO-Arsenalen
+überschwemmt Angriffe werden tief im Innern Russlands verübt und westliche Politiker und Experten
+
+
+-----
+
+sprechen rücksichtslos und unflätig davon, die russische Führung zu ermorden und einen Regimewechsel
+in Moskau zu erzwingen.
+Es liegt auf der Hand, dass die Ukraine eine Gelegenheit war, die seit Langem gehegten imperialen Pläne
+der Vereinigten Staaten, Russland anzugreifen, zu verwirklichen. Russlands natürliche Reichtümer sind ein
+begehrter Preis für Washingtons Ambitionen auf globale Hegemonie. Der Krieg in der Ukraine hat für
+Washington einen Teilerfolg gebracht. Europa ist mehr denn je der amerikanischen Vormundschaft unterworfen worden. Der Verkauf von Gas und Waffen an Europa kam der maroden kapitalistischen Wirtschaft
+Amerikas zugute. Die Russen wurden draussen gehalten, die Amerikaner drinnen und die Deutschen (die
+Europäer) unten, so wie es die Gründer der NATO kurz nach dem Zweiten Weltkrieg beabsichtigt hatten.
+Die geopolitischen Beziehungen zwischen den USA/dem Westen und der Sowjetunion/Russland werden
+seit Langem von Episoden der Entspannung unterbrochen, wie der inzwischen verstorbene angesehene
+Wissenschaftler Stephen F. Cohen in seinem letzten Buch ‹Krieg mit Russland?› erwähnte.
+In den 1930er-Jahren kam es zu einer Entspannung, nachdem die USA endlich die Souveränität der Sowjetunion anerkannt hatten. Diese Entspannung führte zu einem zweckmässigen Bündnis, um Nazideutschland
+zu besiegen. Doch sobald das Dritte Reich besiegt war, traten die Vereinigten Staaten und ihr britischer
+Verbündeter in eine neue Ära der Feindseligkeit ein, die als Kalter Krieg bekannt wurde.
+Während der Präsidentschaft von John F. Kennedy in den 1960er-Jahren wurde die Entspannung wieder
+aufgenommen, da man die gegenseitige Zerstörung durch einen Atomkrieg befürchtete. In den folgenden
+Jahrzehnten wurden mehrere wegweisende Rüstungskontrollverträge ausgehandelt.
+Nach dem Zusammenbruch der Sowjetunion im Jahr 1991 nahmen die Vereinigten Staaten jedoch schnell
+eine neue imperiale Überheblichkeit und Verachtung gegenüber der Russischen Föderation an. Die arrogante Vorstellung von der alleinigen Supermacht und der Dominanz des gesamten Spektrums machte sich
+breit.
+Trotz früherer Versprechungen drangen die Vereinigten Staaten und ihr NATO-Vehikel für die militärische
+Macht der USA unaufhaltsam an Russlands Grenzen vor und verdoppelten die Zahl ihrer Mitglieder innerhalb von 30 Jahren. Kriegsübungen gegen Russland und neue Raketenstellungen in ganz Europa, das Aufkündigen von Rüstungskontrollverträgen und die gezielte Rekrutierung ehemaliger Sowjetrepubliken waren
+allesamt Anzeichen dafür, dass Russland in einer Weise erobert werden sollte, wie es Nazi-Deutschland in
+den Jahrzehnten zuvor nicht gelungen war.
+Die immer wiederkehrende Entspannungspolitik der Vereinigten Staaten gegenüber Moskau war stets ein
+zynisches Spiel der Zweckmässigkeit. Nach dem vermeintlichen Ende des Kalten Krieges vertrat Washington die systemische Auffassung, dass Russland keine Macht mehr sei, die man respektieren müsse. Es war
+ein Ziel, das es zu unterwerfen galt.
+Doch es gab ein Problem. Russland weigerte sich, sich gefügig zu machen. Moskau hat seine strategischen
+Sicherheitsinteressen geltend gemacht und sich geweigert, den amerikanischen Ambitionen nachzugeben.
+Russlands militärische Intervention Ende 2015 zur Verteidigung seines syrischen Verbündeten gegen einen
+von den USA geführten Regimewechsel-Krieg, der sich terroristischer Stellvertreter bediente, war eine mutige Demonstration.
+Es gab eine Zeit, in der sich Moskau ernsthaft um eine diplomatische Beilegung der Feindseligkeiten bemühte. Doch nun hat man erkannt, dass Washingtons Nullsummenspiel, bei dem nur der Gewinner gewinnt, unerbittlich und unersättlich auf die globale Vorherrschaft abzielt. Washington und die amerikanischen selbstgefälligen Medien sind gut im Narzissmus und in der Anmassung von Tugenden. Wenn sie von
+einer ‹regelbasierten Weltordnung› sprechen, meinen sie in Wirklichkeit die totale Dominanz unter der USHegemonie, die immer eingebildet ist, gutartig zu sein.
+Das Ergebnis ist, dass man entweder ein Vasall ist, der den imperialen Interessen der USA dient, oder ein
+Feind, der mit Aggression und letztlich mit Zerstörung bedroht wird.
+Russlands Beharrlichkeit, seine strategischen Interessen zu verteidigen, hat das hässliche Gesicht der amerikanischen Macht hinter der freundlichen Maske offenbart. Es ist nicht nur das Ende eines Jahres, es ist
+das Ende eines Jahrhunderts vermeintlich imperialer amerikanischer Prahlerei. Die Anmassungen selbstgerechter amerikanischer Macht sind entlarvt. Washingtons Forderung an den Rest der Welt ist die Unterwerfung. Das war schon immer so, aber in einer latenten Form.
+Die ruchlose Natur der amerikanischen Macht zeigt sich jetzt in ihrer nackten Brutalität in den zunehmend
+wahnsinnigen Beziehungen zu Russland und China.
+Das russische Vorgehen gegen die Ukraine hat die Gewalt offenbart, die der amerikanischen Macht zugrunde liegt. Diese Macht ist unhaltbar und in einer Welt, die angeblich auf der Charta der Vereinten Nationen
+beruht, inakzeptabel. Der Konflikt in der Ukraine ist ein Scheideweg. Entweder entsteht eine multipolare
+Welt auf der Grundlage des Völkerrechts und gerechter Beziehungen, wie sie von den Vereinten Nationen
+in der Asche des Zweiten Weltkriegs angestrebt wurde, oder die Welt ist aufgrund der imperialistischen
+Nullsummen-Hegemonie Washingtons zu einem Flächenbrand verdammt.
+Russland, China und eine wachsende Zahl von Nationen fordern eine multipolare Welt mit paritätischen
+Beziehungen auf der Grundlage des Völkerrechts. Die Vereinigten Staaten stehen mehr denn je als Möchte
+
+-----
+
+gern-Vormacht da, die wahnhafte Vorstellungen von aussergewöhnlichen Vorrechten hegt. Unter den gegenwärtigen politischen Bedingungen sind die USA nicht in der Lage und nicht willens, sich an eine multipolare Welt zu halten. Eine solche Welt der friedlichen Beziehungen ist Washington im Grunde ein Gräuel.
+Daher ist seine Kriegstreiberei im Vergleich zu jeder anderen Nation in der Geschichte unübertroffen.
+Russlands Haltung in der Ukraine hat den Kriegstreiber der Welt blossgestellt. Und diese trotzige Haltung
+markiert das Ende der vermeintlichen Hegemonie der USA.
+_QUELLE: 2022… THE YEAR THAT MARKED THE END OF AMERICA’S HEGEMONY_
+_Quelle: https://uncutnews.ch/2022-das-jahr-das-das-ende-von-amerikas-hegemonie-markierte/_
+
+##### Hunderte Millionen Euros für nichts – ‹dank› Angela Merkel & Co.
+_4. Januar 2023, Autor: Christian Müller_
+
+Nachdem die ehemalige deutsche Bundeskanzlerin Angela Merkel, der ehemalige französische Staatspräsident François Hollande und der ukrainische Präsident Petro Poroschenko gestanden haben, dass sie nie
+daran gedacht haben, die Abmachungen von ‹Minsk II› einzuhalten, sind die aufgelaufenen Kosten für die
+‹Special Monitoring Mission to Ukraine› der OSZE im und um den Donbass herum in Höhe von mehreren
+hundert Millionen Euro zum rausgeschmissenen Geld geworden. 54 OSZE-Mitgliedstaaten sollten von der
+Ukraine, Deutschland und Frankreich die Rückerstattung des an die ‹Special Monitoring Mission› der OSZE
+bezahlten Geldes verlangen.
+
+_Die Beteiligten an den Verhandlungen in Minsk, die am 12. Februar 2015 zum Abkommen ‹Minsk II› geführt haben:_
+_Wladimir Putin, Angela Merkel, François Hollande und Petro Poroschenko (und ganz links der Konferenz-Gastgeber_
+_Alexander Lukaschenko). Poroschenko hatte offensichtlich nie im Sinn, sich an das Abkommen zu halten, und Deutschland_
+_und Frankreich haben nie etwas unternommen, um die Ukraine dazu zu zwingen, das Abkommen ihrerseits einzuhalten._
+_Seit Anfang Dezember 2022 weiss man, warum: Auch sie wollten das Abkommen nie einhalten. (Bild kremlin.ru)_
+
+Nach dem von den USA massiv unterstützten Putsch auf dem Kiever Maidan im Winter 2014 kam eine
+demokratisch nicht mehr legitimierte ukrainische Regierung an die Macht, was die russischsprachigen Menschen auf der Krim und im Südosten der Ukraine veranlasste, sich – völkerrechtlich korrekt – von der Ukraine zu trennen. Die Bevölkerung der Krim organisierte ein Referendum und beschloss mit über 90 Prozent
+der Stimmen die Wiedervereinigung mit Russland, was ohne auch nur einen einzigen militärischen Schuss
+gewaltfrei über die Bühne ging.
+Nicht so im russischsprachigen Donbass, dessen Bevölkerung zwar ebenfalls russischsprachig war und ist,
+die Zustimmung zu einer Wiedervereinigung mit Russland aber weniger klar war. So kam es dort zu einem
+Bürgerkrieg. Um diesen friedlich zu beenden und eine Lösung des Problems zu finden, kam es in Minsk,
+der Hauptstadt von Belarus, zu Verhandlungen, die in den Vereinbarungen von ‹Minsk II› erfolgreich beendet wurden. Der UNO-Sicherheitsrat stimmte diesen Vereinbarungen einstimmig zu und verlangte mit der
+Resolution 2202 deren Umsetzung. Die OSZE übernahm es, für die Zeit bis zu einem mit mehr Autonomie
+ausgestatteten Donbass dafür zu sorgen dass der kriegerische Konflikt nicht völlig aus dem Ruder lief
+
+
+-----
+
+Die Ukraine machte sowohl unter Präsident Poroschenko als auch unter dem neuen Präsidenten Selensky
+nie Anstalten, ‹Minsk II› einzuhalten. Deutschland und Frankreich, die in dem Abkommen als GarantieStaaten für die Einhaltung der Abmachungen ‹Minsk II› mitunterzeichnet hatten, unternahmen ihrerseits
+nichts, aber auch gar nichts, um die Ukraine zur Einhaltung des Abkommens zu zwingen – was nach den
+Geständnissen von Merkel und Holland nun absolut nachvollziehbar ist. Sie wollten die Einhaltung von
+‹Minsk II› ja gar nicht. Sie wollten, dass die Ukraine Zeit erhält, sich militärisch aufzurüsten. Aber sie schauten zu, wie von 2015 bis 2022, sieben Jahre lang, OSZE-Mitarbeiter und -Mitarbeiterinnen im und um den
+Donbass herum im Einsatz waren – für nichts und wieder nichts, wie man heute weiss.
+Die dortige OSZE-Mission kostete nach Schätzungen aus OSZE-Kreisen rund 100 Millionen Euro jährlich.
+Die Schweiz zahlte als OSZE-Mitglied daran nach Auskunft des formell danach befragten Aussenministeriums EDA über die ganze Zeit 2014 bis 2022 rund 20 Millionen Euro – vom viel grösseren politischen
+Schaden einmal ganz abgesehen.
+Angela Merkel, François Holland und Petro Poroschenko sind dafür verantwortlich, dass die Schweiz 20
+Millionen Euro an eine Mission bezahlt hat, die durch die bewusst verlogene Politik der drei Staatsvertreter
+Deutschlands, Frankreichs und der Ukraine a priori sinn- und zwecklos war. Die Schweizer Regierung sei
+damit von Schweizer Bürger-Seite aufgefordert, diesen drei Staaten eine Rechnung in gleicher Höhe zuzustellen. Und den anderen 53 Mitgliedern der OSZE, die wie die Schweiz gutgläubig an die Ehrlichkeit der
+drei Vereinbarungsunterzeichner glaubten, sei empfohlen, das ebenfalls zu tun, ebenfalls in der Höhe der
+an die ‹Special Monitoring Mission to Ukraine› bezahlten Gelder.
+_Quelle: https://globalbridge.ch/hunderte-millionen-euros-fuer-nichts-dank-angela-merkel-co/_
+
+##### Kanzler Scholz, vor aller Welt gedeckelt
+_Von FRIEDHELM KLINKHAMMER und VOLKER BRÄUTIGAM | Veröffentlicht am 3.1.2023: Medien_
+
+Der oberste deutsche Befehlsempfänger der USA ist noch weniger souverän als das Land, das er regiert:
+Eine Schmach für seine Wähler. Scholz Antrittsbesuch bei US-Präsident Biden – ein Befehlsempfang. Die
+Gasleitung Nord Stream 2 – unter US-Aufsicht. Alle für Deutschland wichtigen Entscheidungen werden in
+Washington getroffen. Scholz, Baerbock, Habeck und Lindner unterwerfen sich dem Diktat.
+
+_Foto: White House Lizenz: United States Code, Mehr Infos_
+
+###### Der höfelnde Kanzler macht Deutschland nicht nur international zum Gespött, sondern zum ‹kleinen, armen Würstchen›.
+60 Tage lang konnte Olaf Scholz erfolgversprechend so tun, als sei er Kanzler eines souveränen Deutschland. Er gab in seinen ersten Amtstagen sogar vor, er fühle sich mitverantwortlich für den Frieden in Europa.
+Am 7. Februar 2022 war dann Schluss mit lustig. Scholz musste zum Antrittsbesuch bei US-Präsident
+Biden antraben. Genauer: Zum Befehlsempfang, wie sich auf der anschliessenden Pressekonferenz herausstellte. Als Scholz einer Journalistenfrage nach der Zukunft der Gasleitung Nord Stream 2 auswich, gab ihm
+Biden vor aller Welt Saures: Es werde «… kein Nord Stream 2-Projekt mehr geben». Der Kanzler griente
+nur dümmlich, anstatt zu kontern: Nord Stream 2 ist Miteigentum deutscher Unternehmen und liegt ausserhalb US-amerikanischer Zuständigkeit. Doch soviel Rückgrat hatte Scholz nicht.
+Die ARD-aktuell kommentierte den peinlichen Presseauftritt so: «Demonstrativ untergehakt als zwei starke
+Partner, die sich gegenseitig (sic!) vertrauen.»
+
+
+-----
+
+Obendrein wurde des Kanzlers Erniedrigung also mit Schwanzwedler-Journalismus bedacht (‘tschuldigung,
+Frau Tina Hassel: Schwanzwedler*Innen-J.). In der 20-Uhr-Tagesschau vom 7. Februar hiess es lakonisch:
+«Die USA fordern die klare Zusage, dass Solidarität über deutsche Wirtschaftsinteressen geht.»
+Deutscher Frondienst ist ja nach wie vor selbstverständlich.
+Seit dem Ukraine-Krieg ist unübersehbar, dass alle für Deutschland wichtigen Entscheidungen in Washington getroffen werden. Scholz, Baerbock, Habeck und Lindner unterwerfen sich dem Diktat, trotz der enormen Belastungen, die für uns daraus entstehen. Scholz mit Blick auf die USA: «Es wird keine Massnahmen
+geben, bei denen wir unterschiedlich agieren. Wir werden einheitlich und zusammen auftreten.»
+Eigene Ideen zur Kriegsvermeidung und die notwendige Bereitschaft, auch die Sicherheitsbedürfnisse Russlands zu berücksichtigen, liess er nie erkennen. Scholz, einst Merkels Stellvertreter in der Grossen Koalition,
+weiss natürlich, dass Minsk-2, obwohl ein völkerrechtlich verbindlicher Vertrag, nur zum Schein zelebriert
+und Präsident Putin damit jahrelang hintergangen worden war. Nicht Friedenssicherung war beabsichtigt,
+sondern Zeitgewinn zur Aufrüstung der Ukraine und zum parallelen Dauerkrieg im Donbass.
+
+**Epochaler Betrug**
+Dass Scholz, nunmehr selbst Kanzler, dem epochalen Betrug kein Ende setzte, sondern die US-Provokationen gegen Russland – zulasten Deutschlands! – weiter unterstützte, zeigt seine US-Hörigkeit. Als ehemaliger
+Finanzminister Merkels wusste er genau: Seit 2014 hatten die USA das korrupte Kiewer Oligarchen-Regime
+mit jährlich 5 Milliarden Dollar gepäppelt und dessen Armee zur zweitgrössten europäischen Streitmacht
+hinter Russland hochgerüstet. Deutschland hatte dabei mitgeschmiert.
+Berlins Beitrag seit dem Maidan-Putsch und bis zum 24. Februar 22: Gewaltige 2 Milliarden Euro, über
+deren Verwendung kein Nachweis verlangt wurde. Obwohl die Ukraine laut EU-Rechnungshof ‹das korrupteste Land Europas› ist, zahlte und zahlt unsere Regierung in das Oligarchen-Fass ohne Boden.
+Die hemmungslose Aufrüstungshilfe der USA, der EU und Deutschlands nutzte das hochkriminelle Kiewer
+Regime skrupellos dazu, die ethnisch-russische Bevölkerung der Ostukraine zu terrorisieren. Der Vernichtungskrieg der ukrainischen Armee gegen ihre russischsprachigen Landsleute forderte mehr als 14’000
+Tote; laut OSZE waren 81 Prozent der Opfer auf Seiten der russischen Ost-Ukrainer zu beklagen. Das neonazistische Regime in Kiew führte diesen Bürgerkrieg im Auftrag der USA. Zu deren Vorteil sollte sich die
+Ukraine selbst zertrümmern und zum Aufmarschgebiet der NATO gegen Russland planieren.
+
+**Letzte Warnung**
+Deshalb teilte Präsident Putin im Dezember 2021 den westlichen Drahtziehern mit, Russland werde, falls
+das Dauer-Bombardement auf die Ost-Ukrainer nicht aufhöre, ‹angemessene militärisch-technische Vergeltungsmassnahmen ergreifen›.
+Biden, Johnson, Scholz und Co. wussten genau, wo Russlands Rote Linie verlief. Anstatt die legitimen Sicherheitsinteressen Russlands – und Deutschlands! – zu bedenken und auf eine diplomatische Lösung hinzuwirken, liess sich Scholz mit US-Auftragsbotschaft nach Moskau schicken und dort erwartungsgemäss abfertigen. Dem deutschen Publikum aber verkaufte die Regierungströte ARD-aktuell Scholz peinliche diplomatische Pleite als beeindruckenden Erfolg: «Kanzler Scholz hat in Moskau diplomatisches Fingerspitzengefühl
+und Rückgrat bewiesen. Und Präsident Putin gezeigt, wie geschlossen der Westen in der Ukraine-Frage
+zusammensteht.»
+Schleimer-Journalismus (Schwanzwedler-J. hatten wir ja schon). Nichts hatte Scholz erreicht, gar nichts.
+Ein Typ ohne Anstand und Mitgefühl. Scholz hatte Putins Vorwurf, die Armee der Ukraine habe im Donbass
+14’000 Menschen umgebracht und damit Völkermord begangen, sogar ‹lächerlich› genannt. Selbst ein konservatives Magazin sah sich angesichts solcher Menschenverachtung zu der Frage veranlasst: «Kann jemand, der seinen Gegner nicht einmal verstehen will, weil das dem eigenen Weltbild widerspricht, angemessen reagieren?»
+Nein. Scholz ist nicht bereit, die deutsche Mitschuld an den mörderischen westlichen und Kiewer Provokationen anzuerkennen, die zum russischen Einmarsch in die Ukraine führten. Was Charakterlosigkeit anbelangt, bleibt der Mann sich treu, wie sich schon zeigte, als er sich von US-Biden das Ende der betriebsfertigen Nord Stream-Röhre verkünden liess: «Ich verspreche Ihnen, wir werden in der Lage sein, das zu
+tun.»
+Obwohl 57 Prozent der Deutschen an Nord Stream 2 festhalten wollten, folgte Scholz der Stimme seines
+wahren Herrn und liess das Nord Stream-2-Projekt einstellen. Bidens Versprechen wurde mit der Sprengung beider Nord Stream-Gasleitungen schliesslich sogar übererfüllt.
+
+**US-Krieg gegen Deutschland**
+Ein staatlicher Terrorakt, eine Kriegshandlung. Fast 10 Milliarden Euro allein für Nord Stream 2 wurden mit
+einem Schlag vernichtet. Eine Hälfte des Schadens entfällt auf Russland, die andere auf mehrheitlich deutsche Miteigentümer. Die werden ihn erfahrungsgemäss nicht selbst tragen, sondern dem Steuerzahler aufhalsen.
+
+
+-----
+
+Die Ampelkoalitionäre tun jedoch so, als habe Deutschland den kriegerischen Akt klaglos hinzunehmen:
+‹Geheimhaltungsinteresse und Staatswohl› gingen vor, heisst es in Regierungskreisen. Den Vogel an bornierter Ignoranz schoss ein rechter Betonkopf-Sozi ab: «Es ist völlig gleichgültig, ob Nord Stream 1 und
+Nord Stream 2 nun Lecks haben, wie diese Lecks entstanden sind, ob das Anschläge waren, wer hinter den
+Anschlägen steckt, weil aus der einen Pipeline noch nie Gas gekommen ist und es aus der anderen seit
+Wochen kein Gas mehr gegeben hat.»
+Auch ARD-aktuell wollte die Geheimhaltungsakrobatik der Bundesregierung nicht weiter stören. Noch Ende
+November 22 faselte die Redaktion: «Sprengung von aussen wahrscheinlich› (sic!) und bezog sich dabei
+auf ein externes Gutachten, statt selbst logisch zu denken.
+Der Duckmäuser-Journalismus (Schleimer-J. hatten wir schon) unterstützt die USA und ihre Berliner Heloten dabei, Kriegsbeteiligung als Hilfe für die arme ‹völkerrechtswidrig überfallene› Ukraine auszugeben und
+das tatsächliche Kriegsziel der westlichen Eliten zu verschleiern: Die Zerschlagung der russischen Staatlichkeit zwecks ungehinderten Zugriffs auf die riesigen russischen Rohstofflager. Unseren Herrschaften geht es
+nicht um ‹Freiheit und Democracy› in der Ukraine, sondern darum, den Konkurrenten Russland zu unterwerfen, sich an dessen Ressourcen zu bereichern und sein Territorium als Aufmarschbasis gegen die VR
+China zu nutzen.
+Die vorgeblich selbstbewussten und doch nur US-liebedienerischen Äusserungen des Kanzlers, seines Vizes
+Habeck und seiner unsäglichen Aussenministerin Baerbock seit Beginn des Krieges haben sich bis zur
+Stunde durchwegs als reaktionäre Bösartigkeit, Dummheit und Kurzsichtigkeit erwiesen. Verlierer ihrer
+Sanktionspolitik sind die Westeuropäer, Gewinner die USA.
+
+**Die Zeche zahlt der ‹kleine Mann›**
+In Westeuropa wird inzwischen ein viermal höherer Gaspreis verlangt als in den USA. Deren superteures
+Flüssiggas erreicht inzwischen einen Anteil von 70 Prozent des westeuropäischen Gasimports. Unsere Abhängigkeit vom schmutzigeren, umweltschädlicheren und energieärmeren US-Fracking-LNG ist damit noch
+höher, als sie es jemals vom kalorienreicheren, ökologisch vernünftigeren und zugleich wesentlich preiswerteren russischen Leitungsgas gewesen ist.
+Laut Preisvergleichsportal Verivox verdreifachten sich im August 2022 die Gaskosten in Deutschland: Zahlte
+eine Familie mit einem Jahresverbrauch von 20’000 kWh zuvor noch 1258 Euro, stiegen sie nun auf durchschnittlich 3568 Euro. Dabei bleibt es nicht: Private Haushalte müssen im neuen Jahr mit weiteren Mehrausgaben von 67 Prozent rechnen. Auch die Ölpreise sind innerhalb eines Jahres um satte 50 Prozent
+gestiegen. Zu dieser starken Heizkosten-Zunahme kommen noch der Preisauftrieb beim Strom (Vattenfall
+z.B. +45 Prozent) und wesentlich höhere Kraftstoffausgaben.
+Davon abgesehen hat der wirtschaftlich, ökologisch und politisch absurde Verzicht auf russische Energieträger bereits jetzt zu beträchtlichen volkswirtschaftlichen Schäden geführt. Mindestens eine Billion Euro hat
+es die EU gekostet, das Gas aus Russland zu ersetzen. Deutschland musste für die Umstellung 500 Milliarden Euro aufbringen. Das Geld, mit dem Scholz um sich wirft (‹Doppelwums›), um den deutschen Kleinbürger ruhigzustellen und den Amis das Beutemachen zu erleichtern, ist kein Geschenk, sondern Steuerschuld,
+die wir zurückzahlen müssen. Mit Zins und Zinseszins. Doch dreist wagt der Kanzler vor seiner BundestagsClaque zu behaupten: «Niemand, keine Familie, keine Rentnerin, kein Student und auch kein Unternehmen
+soll Angst haben, von den Preisen für Strom, Gas oder Fernwärme überfordert zu werden.»
+Als ob die Überforderung nicht längst millionenfach stattfände. ARD-aktuell titelte über den Scholz-Auftritt
+trotzdem unverdrossen verlogen: ‹Zurück zur Sachlichkeit›. Stiefellecker-Journalismus eben (DuckmäuserJ. hatten wir schon).
+Niemand soll Angst haben? Inzwischen hat es sich sogar bis zum Regierungssender Deutsche Welle herumgesprochen, dass Deutschland auf dem letzten Loch pfeift. Von der Gesundheitsfürsorge über das Bildungswesen bis zur Verkehrsinfrastruktur ist alles in die Grütze gewirtschaftet. Dank Scholz und seines Gruselkabinetts aber haben wir wieder einen Staatsschulden-Auftrieb und sind schon bei mehr als 2,52 Billionen
+Euro angelangt.
+
+**Den Kanzler juckt es nicht, sagt ein intimer Insider:**
+«Es gibt nur ein einziges Programm für Olaf Scholz, und das ist er selbst. Dass er sich mit korrupten Bankern und Milliardären gut stellt, gehört dazu.»
+Dass Scholz ein (erpressbarer?) Rosstäuscher ist, zeigt auch seine Behauptung, man habe die Sanktionen
+gegen Russland sorgfältig vorbereitet, «damit sie die Richtigen treffen». Sorgfältig? Russlands Rohstoffeinnahmen lagen anno 2022 höher als seine Kriegskosten, kein Vergleich mit Deutschlands mieser Kassenlage
+und drohender De-Industrialisierung.
+
+**Fass ohne Boden**
+Wofür das alles? Für eine von Neonazis beherrschte Ukraine. Für eine Diktatur, die alle Oppositionsparteien
+eliminierte, alle kritischen Medienhäuser dicht machte, politische Gegner auf Todeslisten setzte, den
+
+
+-----
+
+ethnisch-russischen Bürgern die Muttersprache verbot, Millionen russischer Bücher und anderes Kulturgut
+vernichten lässt und von einem koksenden, miesen Schauspieler und Steuerbetrüger repräsentiert wird,
+der sich nicht scheut, mit SS-Abzeichen an seiner Camouflage vor die TV-Kameras zu treten und gegen die
+russisch-orthodoxe Kirche vorzugehen. Für einen Staat mit der höchsten Korruptionsrate europaweit, in
+dem ein erheblicher Teil der ausländischen Hilfegelder in schwarzen Taschen verschwindet.
+Tag für Tag werden auf den Schlachtfeldern der Ukraine hunderte Mitmenschen umgebracht oder verstümmelt. Das Grauen übersteigt jedes Vorstellungsvermögen. Aber unsere empathielose Aussenministerin
+behauptet: «Unsere Waffen helfen, Menschenleben zu retten» und demonstriert ihre Selbstbezogenheit und
+Menschenverachtung. Hätte sie Herz und Verstand, müsste sie Konstantin Wecker zustimmen: «Wer mehr
+Waffen fordert, der schickt andere zum Morden und Ermordet-Werden.»
+Argumentativ kommt man einer Baerbock allerdings nicht bei. Für deutsche Politiker geziemt sich der
+Bückling vor US-Regierungen, das hatte auch Vizekanzler Habeck gezeigt: «Je stärker Deutschland dient,
+umso grösser ist seine Rolle» Tiefer, Robert, tiefer! Und Abgang rückwärts!
+
+**Die Ursache der Unfreiheit**
+Seit Jahren kommt immer mal wieder der Verdacht auf, die Kriecherei der Bundesregierungen sei zwangsläufig, weil Deutschland auch nach 1990 keine volle Souveränität erlangt habe; nur Russland habe uns vom
+Besatzerprivileg befreit, die USA hätten es behalten.
+Wiederholt äusserten sogar deutsche Spitzenpolitiker trotz des 2+4-Vertrags von 1990 entsprechende
+Zweifel an der Souveränität der Bundesrepublik. Wolfgang Schäuble, seinerzeit Bundesfinanzminister, am
+18. November 2011: «… wir in Deutschland sind seit dem 8. Mai 1945 zu keinem Zeitpunkt mehr voll
+souverän gewesen.»
+Gregor Gysi, seinerzeit Fraktionsvorsitzender der Linkspartei und Oppositionsführer im Bundestag, am 28.
+Januar 2014 auf einer Pressekonferenz der Linkspartei: «… ich denke, dass wir im Jahre 2014 verdient
+haben, ein in jeder Hinsicht souveräner Staat zu werden. Und wenn wir in jeder Hinsicht souverän werden
+wollen, müssen wir den USA zeigen, dass wir Grenzüberschreitungen nicht dulden … wer Freundschaft will,
+muss Unterwürfigkeit aufgeben…» Am 21. Juni 2015 stellte Gysi die Souveränitätsfrage sogar im Parlament. Auf eine Antwort bestand er leider nicht.
+Unsere Regierenden sind zumindest de facto US-amerikanische Marionetten. Sie geben es nur nicht zu
+und verstetigen damit ihren Dienstbotenstatus und Deutschlands Souveränitätsdefizit. Die SZ – immerhin
+eine der wichtigen transatlantischen Meinungsmacher für die deutsche Öffentlichkeit – befand: «Es existieren offensichtlich zwei Staatsgewalten in Deutschland: Erstens die deutsche, und zwar in der Gestalt, die
+ihr die EU- und andere Verträge gegeben haben; daneben zweitens die US-amerikanische, in nicht genau
+bekannter Form.» Na also. Warum nicht mal die Realität wahrnehmen, obwohl das für Journalisten von
+heute ungewöhnlich ist?
+Von Kanzler Scholz ist vergleichbare Sachlichkeit nicht zu erwarten. Schwerer noch wiegt ein anderes Defizit, das er mit seinen NATO-oliv-Grünen Partnern laufend vergrössert: Empört leugnen sie, dass sie in Kiew
+mit Neonazis umgehen und deren Denkweise verinnerlichen, obwohl das längst nicht mehr zu übersehen
+ist; zugleich setzen sie selbst stark protofaschistische Akzente. Sie schikanieren und verbieten oppositionelle Medien und machen die Kritiker der desaströsen Berliner Politik verbal nieder: Kriegsbefürworter, Unmensch, Russenfreund, Verschwörungstheoretiker oder Verfassungsfeind ist, wer ihnen zu widersprechen
+wagt. Scholz tut so, als habe er die Moral gepachtet, auch wenn er grad eine entlarvende Hasstirade gegen
+Putin und ebensolche Elogen an den Nazi-Verehrer Melnyk ablässt. Russen tierisch böse, wir die Guten!
+Er und seine NATO-oliv-Grünen können sich des Beifalls der Tagesschau & Co.KG. sicher sein. Kriegsgeiler
+Knallchargen-Journalismus eben (für ‹Qualitäts›-J. und ähnliche Beleidigungen ist leider kein Platz mehr).
+Laut dpa ist eine Mehrheit von 55 Prozent der Deutschen dafür, dass die Ukraine sofort mit Russland über
+eine Beendigung des Krieges verhandelt. Doch darüber setzt sich ein Kanzler von Amis Gnaden natürlich
+hinweg.
+Der Kniefall des Bundeskanzlers Willy Brandt (1970) in Warschau gereichte ihm und uns weltweit zur Ehre.
+Die Katzbuckelei des Bundeskanzlers Olaf Scholz 2022 in Washington macht ihn und das Land, das er
+regiert, weltweit verächtlich.
+_Anmerkung der Autoren:_
+_Unsere Beiträge stehen zur freien Verfügung, nichtkommerzielle Zwecke der Veröffentlichung vorausgesetzt. Wir schreiben_
+_nicht für Honorar, sondern gegen die „mediale Massenverblödung“ (in memoriam Peter Scholl-Latour). Die Texte werden_
+_vom Verein „Ständige Publikumskonferenz öffentlich-rechtlicher Medien e.V.“ dokumentiert:_
+_https://publikumskonferenz.de/blog_
+_Quelle: https://www.hintergrund.de/medien/kanzler-scholz-vor-aller-welt-gedeckelt/_
+
+
+-----
+
+##### Isoliert, vernachlässigt und zum Sterben so einfach abgelegt
+_Hwludwig, Veröffentlicht am 2. Januar 2023_
+
+Durch Michael Klonovsky bin ich auf dessen Webseite ‹acta diurna› 1 auf einen Text der Sängerin Julia
+Neigel aufmerksam geworden, der es wert ist, als zeitgeschichtliches Dokument weit verbreitet zu werden.
+M. Klonovsky bemerkt dazu: «Auf ihrer Facebookseite beschreibt die Sängerin Julia (Jule) Neigel, wie ein
+ihr nahestehender älterer Mensch unter der Corona-Tyrannei ins Krankenhaus gezwungen und dort so
+lange isoliert wurde, bis er, man muss es so formulieren, an Vernachlässigung krepierte. Tausende sind auf
+vergleichbare Weise gestorben beziehungsweise umgebracht worden.» Nachfolgend der vollständige Text
+Julia Neigels von ihrer Facebookseite 2 (hl):
+
+Heute, vor einem Jahr, starb ein uns nahestehender und geliebter Mensch. Er gehörte zu uns. Er gehörte
+zu mir. Er ist nicht vergessen. Er wird immer in meinem Herzen sein.
+Er war ein lebensfreudiger, geselliger, agiler Rentner, der noch selbst Auto fuhr, täglich Zeitung las, für sein
+Leben gern feierte, Tiere hielt, sich selbst versorgte, seinen Garten selbst pflegte und ständig an der frischen
+Luft war. Er war äusserst robust. Er gehörte der Generation derer an, die den Krieg überlebten und das
+Land wieder aufgebaut haben. Ich kannte ihn mein halbes Leben lang und ich habe ihn sehr geliebt. Er war
+einer meiner liebsten Freunde, ein gütiger und wunderbarer Mensch und wie ein Vater zu mir. Ich trauere
+jeden Tag um ihn und ich gebe zu: Ich bin zugleich wütend, sehr wütend und vor allem fest entschlossen.
+Ich werde nicht schweigen. Ich werde nicht vergessen. Ich handle.
+
+_Julia Neigel, 21.12.2022_
+
+Er kam wegen eines Routineeingriffs und mit negativem PCR-Test in eine Klinik und wurde einen Tag später
+Opfer eines Besuchsverbots aller Patienten. Bis dahin war er von seiner Lebenspartnerin und seinem häuslichen und familiären Umfeld nie länger als ein paar Stunden getrennt. Dann verschwand er vor unseren
+Augen für Wochen hinter verschlossenen Türen, ohne dass wir erfahren durften, was mit ihm dort genau
+geschieht. Ich hatte als Künstlerin zu diesem Zeitpunkt berufliches Tätigkeitsverbot und dann kam das: Sie
+nahmen uns die Kontrolle der Fürsorge über uns geliebte Menschen weg.
+Für dieses dauerhafte Besuchsverbot gab es keine Ermächtigungsgrundlage:
+In § 28 a Abs. 2 Satz 2 IfSG steht:
+«Schutzmassnahmen (…) dürfen nicht zur vollständigen Isolation von einzelnen Personen oder Gruppen
+führen; ein Mindestmass an sozialen Kontakten muss gewährleistet bleiben.»
+Mit sozialen Kontakten ist nicht das Klinikpersonal gemeint, sondern das eigene, persönliche Umfeld des
+Patienten. Selbst ein Strafgefangener darf keiner dauerhaften Isolation seines sozialen Umfelds unterzogen
+werden, denn diese Methode fiele unter die Definition der psychischen Folter und Körperverletzung und
+die des staatlichen Machtmissbrauchs von Personen, durch Vertreter in einer Garantenstellung und anhand
+derer Fürsorgepflicht.
+Das Verbot der totalen Isolation eines Patienten in Kliniken oder Pflegeheimen besteht schon seit dem
+Frühjahr 2021, um seelische Verletzungen und das Brechen des Lebenswillen alter, oder kranker Menschen
+zu vermeiden. Das aber gebietet sich schon allein anhand von Empathie, Menschlichkeit und Achtung der
+Würde. Doch es interessierte in dieser Klinik im Herbst/Winter 2021 offensichtlich niemanden – wie offenbar auch in manch anderen Kliniken und Seniorenheimen in der Bundesrepublik Deutschland zu dieser
+Zeit. Es ist leicht, alte Menschen quasi schon im Leben für tot zu erklären und durch Unterlassen diese
+
+
+-----
+
+sterben zu lassen, wenn kein Nahestehender dabei kontrollieren kann, was mit diesen hinter verschlossenen
+Türen geschieht.
+Nach Art. 35 GRCh hatte auch er ein Recht auf angemessene Pflege und Gesundheitsschutz und nach Art.
+25 GRCh, das Schutzrecht älterer Menschen, das Recht auf ein unabhängiges, würdiges Leben und auf gesellschaftliche und kulturelle Teilhabe, also ein Mindestmass an geriatrischer Pflege und sozialer Kontakte.
+Nach § 7 (1) Nr.10 VStGB und Artikel 7 des Römischen Statut, war auch er vor systematischen, unzulässigen Sanktionen gegen identifizierbare Personengruppen geschützt, also vor totaler Isolation seiner sozialen
+Kontakte, für die es keine gesetzliche Ermächtigung gab. Die Familie ist Kern unserer Gesellschaft. Sie zu
+schützen ist oberstes Gebot. Das sind die staatlichen Pflichten.
+Die Klinik behandelte ihn aber scheinbar schlechter als einen Gefangenen:
+Er war schwerhörig, konnte deshalb nicht telefonieren und ohne Hörgerät dann gar niemanden mehr verstehen, als nach einer Woche in der Klinik seine Hörgerätbatterien versagten und er nur noch mit den Augen
+seine Umgebung vollständig wahrnehmen konnte. Über 3 Wochen wartete er auf uns, wohl ohne zu wissen,
+warum wir nicht bei ihm waren, ihn nicht pflegten, seine Hand hielten, ihn fütterten, für ihn da waren, ihm
+menschliche Wärme, Liebe und Lebensmut gaben, was wir sofort getan hätten, wenn ein Klinikchef es nicht
+verboten hätte. Es ginge ihm gut … er habe die OP gut überstanden … er lässt Grüsse ausrichten … er
+wolle nach Hause … er würde nichts essen wollen … es ginge ihm schlechter … er wäre krank… erzählten
+uns die Pfleger am Telefon, während wir immer nervöser wurden. Obwohl er offensichtlich nach Hause
+wollte, liess man ihn einfach nicht raus. Wir kämpften deshalb um seine Rechte und zogen vor Gericht.
+Als wir, nur mit Hilfe eines Anwalts, endlich zu ihm durchdringen konnten, lag er schon dreieinhalb schrecklich lange Wochen allein in einem stickigen Raum, flach auf dem Rücken ans Bett gefesselt, ohne Thrombosestrümpfe, konnte sich kaum noch rühren, war ohne Lesestoff, Telefon und Fernseher, das Wasser stand
+eineinhalb Meter weg, bei dauerhaft zugesperrtem Fenster, durfte seit 3 Wochen sein Zimmer nicht eine
+Minute verlassen und konnte schon lange nicht mehr aufstehen. Er hatte Tage nichts gegessen und getrunken, bekam keine Infusionen, starrte mit eingefallenen Augen die Wand an und hatte eine Lungenentzündung. Es war offensichtlich, dass niemand ihn wenigstens gefüttert, oder ihm genügend Flüssigkeit zugeführt hatte, ihn regelmässig mobilisiert hatte – man habe dafür keine Zeit, hiess es. Er lag weder auf der
+geriatrischen Station, oder Intensivstation, oder Palliativstation. Ich erkannte ihn nicht wieder. Er hatte gerade noch die Kraft, leise nuschelnde Sätze zu uns zu sagen: «Wochen» und «Hab gewartet». Obwohl es hiess,
+dass er nichts essen wolle, liess er sich dennoch von uns füttern. Als ich mit der Ärztin sprach und Akteneinsicht wollte, stellte sie fest, dass ich ihn wohl sehr lieben würde, so, als ob ein alter Mensch es nicht wert
+wäre? Natürlich, was denn sonst? Trotzdem bekam ich keine Einsicht in die Arztakte. Es war wohl die letzte
+Nahrung, die er bekam – eine Hühnerbrühe und ein gekochtes Ei von seinen eigenen Hühnern – nämlich
+durch uns.
+Seiner Lebensgefährtin wurde dann 2 Tage später, am Tag seines Todes, wegen allgemeinem Besuchsverbot erneut der Zugang zu ihm verweigert. Sie stand stundenlang in der klirrenden Kälte vor der Kliniktür
+und weinte bitterlich, während man ihm schon Morphium verabreichte, was atemdepressiv macht und ihn
+endgültig tötete. Wo war da die sogenannte ‹Solidarität›? Sie sagt bis heute: Was man ihm und ihr angetan
+habe, das erinnere sie an die Demütigungen des Krieges, den sie als junges Mädchen erlebt habe. Der
+Rechtsbetreuer, der per Gericht 2 Tage zuvor eingeschaltet wurde, kam genau einen Tag zu spät. Er starb
+also, ohne dass seine Partnerin bei ihm sein konnte und der beauftragte Betreuer sah, welchen Zuständen
+er ausgesetzt worden war. Auf seinem Totenschein stand eine andere Diagnose als die tatsächliche Todesursache.
+Unser geliebter Mensch kam wegen eines Zipperleins in eine Klinik rein und dreieinhalb Wochen und mit
+10 Kilo weniger später tot wieder heraus, ohne dass wir ihn vor Einsamkeit und Vernachlässigung schützen
+konnten – ohne dass wir sein Wohlbefinden, als seine Liebsten, kontrollieren konnten, ohne zu wissen, wie
+mit ihm umgegangen wurde und ohne uns verabschieden zu können. Die Klinik verschluckte ihn wie ein
+schwarzes Loch und spuckte ihn tot wieder aus. Das war’s. Er war stark – denn sonst hätte er diesen beklemmenden, stickigen, schrecklichen, abgeschotteten Raum, in dem er praktisch gefangen gehalten wurde,
+keine dreieinhalb Wochen ertragen. Ich vermisse ihn jeden Tag, denn er wurde uns entrissen.
+Als seine Habseligkeiten, zusammengewürfelt in einem blauen Müllsack, zurückgegeben wurden, lagen die
+neuen Hörgerätebatterien immer noch ungeöffnet und seit 2 Wochen in der Tasche. Niemand hatte sie
+ausgetauscht, obwohl telefonisch zugesichert.
+Der Schmerz, um sein Leid und seinen Verlust, der ist unermesslich, vor allem, weil es vermeidbar gewesen
+wäre und er das nicht verdient hat. Er war zu jedem immer freundlich, hat immer gearbeitet, hat sein Leben
+lang in die Kasse einbezahlt, um eben gerade nicht so behandelt zu werden und so zu enden – so zum
+Sterben einfach abgelegt.
+Kein Tag vergeht ohne diese Bilder, ohne dieses: «Hätten wir nur schneller handeln können», «hätten wir
+nur früher zu ihm gekonnt, ihn dort rausholen können» … Kein Tag vergeht, ohne die Fragen: «Wie hat er
+sich dabei gefühlt, was hat er gedacht, hat er gedacht, dass wir ihn im Stich gelassen haben?» Wir wissen:
+Er könnte noch leben, wenn wir früher zu ihm hätten durchdringen können – ja, wir hätten dieses Jahr gar
+
+
+-----
+
+wieder zusammen Weihnachten feiern können? Wir haben alles versucht, doch wir verloren gegen die willkürlichen Umstände und die Unmenschlichkeit in dieser Klinik. Einen alten Menschen über dreieinhalb
+Wochen derart strikt zu isolieren und dann scheinbar nicht mal ordentlich zu versorgen, das halte ich für
+ein Verbrechen gegen die Menschlichkeit. Gesundheitliche Versorgung ist mehr, als lediglich Medikamente
+zu verabreichen und Temperatur zu messen.
+Eine Weisheit besagt, dass man die menschliche Qualität einer Gesellschaft am Umgang mit dem Wert der
+Familie, den Alten, den Kindern und den Tieren erkennt. Dass man in einem zivilisierten Land, wie dem
+unsrigen, zu wehrlosen und alten Menschen so grausam und brutal sein konnte, sodass man Angst haben
+muss in eine Klinik zu kommen, willkürlich weggesperrt zu werden und dort alleine zu verenden – das war
+für mich unvorstellbar. Doch es geschah vor unseren Augen.
+Ein Jahr später reden wir als Gesellschaft nun endlich über das Leid unserer Kinder durch die soziale Isolation, die psychischen Folgen der Menschen und das ist wichtig und richtig. Wir müssen aber auch über das
+Leid unserer alten Menschen reden, über die, die darüber nicht mehr reden können – denn auch das ist
+wichtig und richtig. Wir müssen für sie sprechen und was sich hinter solchen verschlossenen Türen abspielte, weil sie es nicht mehr für sich selbst tun können. Wie viele alte Menschen wurden auf diesem Weg einfach willkürlich weggesperrt, vernachlässigt und deren Lebenswille damit gebrochen? Wie viele Menschen
+starben auf diesem Weg in Klinken und Pflegeheimen und zwar mutterseelenallein?
+Wir können niemand mehr lebendig machen, aber das Leid seiner Generation, durch exzessive Formen der
+Machtanwendung und willkürliche Demonstration einer Art Allmacht des politischen Systems – und durch
+Vernachlässigung –, das darf nicht umsonst gewesen sein, das muss aufgearbeitet werden. Es hiess, man
+wollte insbesondere die alten Menschen schützen, und hat ihnen doch auf solchen Wegen einen würdigen
+und guten Lebensabend genommen, in einer Phase, in der jeder Tag zählt. Die Eskalation der psychischen
+Gewalt an alten Menschen muss daher ebenso Konsequenzen haben. Wir müssen in unserer Gesellschaft
+ganz prinzipiell über das Unrecht dieser Politik im Gesundheitswesen reden. Wir müssen die Inhumanität
+medial, juristisch und politisch aufarbeiten, denn das darf sich nie mehr wiederholen. Niemand darf auch
+nur auf die Idee kommen, in einer Machtposition in seiner Hybris so etwas Unmenschliches noch einmal
+anordnen zu dürfen – weil er meint, dass ein Virus jede Entgleisung von seelischer und sozialer Grausamkeit
+rechtfertige, obwohl das Gesetz und das Völkerrecht es ihm untersagen. Das ist nicht zu entschuldigen,
+muss strikt verboten sein und gegebenenfalls bestraft werden.
+Mein tief empfundenes Mitgefühl gilt allen Hinterbliebenen, denen ihre Liebsten auf diesem Wege willkürlich und grausam weggenommen wurden. Ich weiss, wie es sich anfühlt und ich weiss, dass eine Versöhnung und Befriedigung mit dem, was uns angetan wurde, nur mit einer konsequenten Aufarbeitung und
+mit nachträglich gerechtem Handeln gegenüber den Verantwortlichen einhergehen kann. In vielen Fällen,
+da bin ich sicher, wäre es vermeidbar gewesen, hätte man die Menschen nur nicht von den Augen ihrer
+Liebsten einfach dauerhaft und willkürlich weggesperrt und die Gesellschaft, die Politik und auch Familien
+selbst, in Gleichgültigkeit und Angst und ohne zu hinterfragen und sich dagegen zu wehren, weggesehen.
+Das ist würdelos und seelisch grausam für uns alle, nicht nur für unsere Liebsten, die wir dadurch verloren
+haben. Es war der extreme Lockdown-Fanatismus und deren aggressivste Verfechter, dem keine Grenzen
+geboten wurden, weswegen unsere Gesellschaft in den Zustand der emotionalen Taubheit, Selbstverleugnung und Blindheit für all das Leid anderer Menschen verfiel. An deren Händen klebt Blut all der blutenden
+Herzen, die diesen in die Hände fielen. Nächstenliebe geht anders: Man sollte niemals einem Menschen
+antun, was man selbst nicht angetan bekommen will.
+«Wo Recht zu Unrecht wird, wird Widerstand zur Pflicht.» Das ist eines der wichtigsten Lehren der freiheitlichen Demokratie. Ich werde nicht aufhören, die Aufarbeitung des Unrechts und dieser Tyrannei voranzutreiben – denn was in unserem Land passiert ist, das ist eine Schande. Und ich bitte euch, gut auf eure
+Alten aufzupassen, wenn es sein muss – mit juristischer Hilfe.
+Verzeiht die Länge des Textes, doch es ist nicht nur ein Nachruf von einem mir geliebten Menschen, sondern
+auch der Appell an uns alle, dass das nie mehr, nie mehr passieren darf und wir alle dazu beitragen können.
+Beendet das Schweigen, macht auch eure Erlebnisse publik. Dann wird sich auch etwas grundlegend
+ändern.
+Friede und Liebe sei mit uns
+Julia Neigel
+
+_Anmerkungen:_
+_1  https://www.klonovsky.de/2022/12/lesen-verbreiten/_
+_2  Julia Neigel | Facebook_
+_(Siehe auch die weiteren Kommentare Julia Neigels darunter)_
+_Quelle: https://fassadenkratzer.wordpress.com/2023/01/02/isoliert-vernachlassigt-und-zum-sterben-so-einfach-_
+_abgelegt/#more-10838_
+
+
+-----
+
+## Verbreitung des richtigen Friedenssymbols
+
+Das falsche Friedenssymbol – die heute weltweit verbreitete sogenannte
+
+**Es soll FRIEDEN sein auf Erden** <Todesrune>, die aus den keltischen Futhark-Runen resp. der umgedrehten Algiz
+**And there shall be PEACE on Earth** Rune fabriziert wurde – ist der eigentliche Inbegriff negativer Einflüsse und schafft
+
+zerstörerische Schwingungen hinsichtlich Unfrieden, Fehden und Hass, Rache,
+Laster, Süchte und Hörigkeit, denn die <Todesrune> bedeutet für viele Menschen
+
+**AMANI** **ΕΙΡΗΝΗ**
+
+Reminiszenzen an die NAZI-Zeit, an Tod und Verderben, wie aber auch Ambitionen
+
+**BARIŞ** **VREDE**
+
+in bezug auf Kriege, Terror, Zerstörungen vieler menschlicher Errungenschaften und
+
+**PAQE** **��** allen notwendigen Lebensgrundlagen jeder Art und weltweit Unfrieden.
+**PACE** **שרום**
+**МИР** शांित Es Ist wirklich dringlichst notwendig, dass die <Todesrune> als falsches
+**PAIX** **���** Friedenssymbol, das Unfrieden und Unruhe schafft, völlig aus der Erdenwelt
+**PAZ** **��** verschwindet und dadurch das uralte sowie richtige Peacesymbol auf der ganzen
+
+Erde verbreitet und weltbekanntgemacht wird, dessen zentrale Elemente
+Frieden, Freiheit, Harmonie, Stärkung der Lebenskraft, Schutz,
+
+**FIGU.ORG**
+
+Wachstum und Weisheit reflektieren, aufbauend wirken und
+
+**FIGU, Semjase-Silver-Star-Center, 8495 Schmidrüti**
+**Schweiz/Switzerland  Tel. + 41 (0)52 385 13 10** sehr besänftigend und friedlich-positiven Schwingungen
+
+zum Durchbruch verhelfen, die effectiv Frieden,
+Freiheit und Harmonie vermitteln können!
+
+Wir wenden uns deshalb an alle FIGU-Mitglieder, an alle FIGU-Interessengruppen, Studien- und Landesgruppen
+sowie an alle vernünftigen und ehrlich nach Frieden, Freiheit, Harmonie, Gerechtigkeit, Wissen und Evolution
+strebenden Menschen, ihr Bestes zu tun und zu geben, um das richtige Friedenssymbol weltweit zu
+verbreiten und Aufklärung zu schaffen über die gefährliche und destruktive Verwendung
+der <Todesrune>, die in Erinnerung an die NAZI-Verbrechen kollektiv im Sinnen und
+Trachten der Menschen Charakterverlotterung, Ausartung und Unheil fördert.
+
+**Autokleber** **Bestellen gegen Vorauszahlung:** **E-Mail, WEB, Tel.:**
+**Grössen der Kleber:** **FIGU** info@figu.org
+120x120 mm = CHF 3.– Hinterschmidrüti 1225 www.figu.org
+250x250 mm = CHF 6.– 8495 Schmidrüti Tel. 052 385 13 10
+300X300 mm = CHF 12.– Schweiz Fax 052 385 42 89
+
+IMPRESSUM Für CHF/EURO 10.– in einem Couvert senden
+FIGU-SONDER-ZEITZEICHEN wir Dir/Ihnen 3 Stück farbige Friedenskleber
+Druck und Verlag: FIGU Wassermannzeit-Verlag, ------der Grösse 120x120 mm. = Am Auto aufkleben.
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+Redaktion: BEAM ‹Billy› Eduard Albert Meier,
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+Wird auch im Internetz veröffentlicht
+**Erscheint sporadisch auf der FIGU-Webseite**
+
+Postcheck-Konto: FIGU Freie Interessengemeinschaft,
+8495 Schmidrüti, PC 80-13703-3
+IBAN: CH06 0900 0000 8001 3703 3 Geisteslehre Friedenssymbol
+**E-Brief: info@figu.org**
+**Internetz: www.figu.org** **Frieden**
+**FIGU-Shop: http://shop.figu.org**
+
+Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten
+
+**© FIGU 2023** Tritt dazu macht, um dann nachfolgend in Friedsamkeit jeden weiteren Schritt
+Einige Rechte vorbehalten. bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun. SSSC, 10. September 2018, 16.43 h, Billy
+Dieses Werk ist, wo nicht anders
+angegeben, lizenziert unter :
+www.figu.org/licenses/by-ncnd/2.5/ch/
+
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung des Urhebers ausdrücklich erlaubt.**
+Erschienen im Wassermannzeit-Verlag: FIGU, ‹Freie Interessengemeinschaft Universell›, Semjase-Silver-Star-Center,
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+

@@ -1,0 +1,1782 @@
+9. Jahrgang
+Nr. 76 Juli/7 2023
+
+
+Erscheinungsweise:
+sporadisch
+
+
+### Sonderausgabe
+
+# FIGU
+ ZEITZEICHEN
+
+###### Aktuelles • Einsichten • Erkenntnisse
+
+Internetz: http://www.figu.org
+E-Brief:  info@figu.org
+
+
+###### Organ für freie, politisch unabhängige Berichterstattungen zum Weltgeschehen,
+ kommentarlose, neutrale und meinungslose Weitergabe von Zeitungsberichten.
+
+##### ***************************************************************************
+
+Laut ‹Allgemeine Erklärung der Menschenrechte›, verkündet von der Generalversammlung der Vereinten Nationen am 10. Dezember 1948,
+
+herrscht eine allgemeine ‹Meinungs- und Informationsfreiheit› vor, und dieses unumschränkte Recht gilt weltweit und absolut für jeden
+
+einzelnen Menschen weiblichen oder männlichen Geschlechts jeden Alters und Volkes, jedes gesellschaftlichen Standes wie auch in
+
+bezug auf rechtschaffene Ansichten, Ideen und jeglichen Glauben jeder Philosophie, Religion, Ideologie und Weltanschauung:
+
+**Art. 19 Menschenrechte**
+
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit, Meinungen**
+
+**unangefochten anzuhängen und Informationen und Ideen mit allen Verständigungs-**
+
+**mitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Ansichten, Aussagen, Darstellungen, Glaubensgut, Ideen, Meinungen sowie Ideologien jeder Art in Abhandlungen, Artikeln
+
+und in Leserzuschriften usw. müssen in keiner Art und Weise zwingend identisch mit dem Gedankengut und den
+
+Interessen, mit der ‹Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens›, wie auch nicht in
+
+irgendeiner Sachweise oder Sichtweise mit dem Missionsgut und dem Habitus der FIGU verbindend sein.
+
+==================================================================================
+==================================================================================
+
+Für alle in den FIGU-Zeitzeichen und anderen FIGU-Periodika publizierten Beiträge und Artikel verfügt die
+
+FIGU über die notwendigen schriftlichen Genehmigungen der Autoren bzw. der betreffenden Medien!
+
+###### ****************************************************************************************
+
+**Auf vielfach geäusserten Wunsch aus der Zeitzeichen-Leserschaft sollen in den Zeitzeichen zur Orientierung der**
+
+**Rezipienten laufend Auszüge diverser wichtiger Belange aus neuest geführten Kontaktgesprächsberichten**
+
+**veröffentlicht werden, wie nach Möglichkeit auch alte sowie neue Fakten betreffs weltweit bösartig mit**
+
+**Lügen, Betrug, Verleumdung und Mordanschlägen gegen BEAM geführte Kontroversen.**
+
+###### **********************************************************************************
+
+##### Dem ‹nutzlosen Europa› droht ein Krieg mit der Ukraine
+
+_15 Juli 2023 08:56 Uhr_
+
+**Der jüngste NATO-Gipfel zeigt, dass die USA nicht vorhaben, die Ukraine zu verteidigen. Vor dem Hinter-**
+**grund der wirtschaftlichen und militärischen Schwächung der EU-Länder könnte sich für Washington**
+**auch Europa als entbehrlich erweisen. Gleichzeitig könnte in der Ukraine eine verbitterte Armee ohne**
+**Perspektiven stehen.**
+Von Wiktorija Nikiforowa
+
+Der skandalöse NATO-Gipfel hat nicht nur Wladimir Selensky und seiner Junta Enttäuschung gebracht. Er
+wurde auch für alle europäischen Allianzmitglieder zu einer Alarmglocke.
+Die unnachgiebige Position der USA, die alle Hoffnungen der Ukraine auf eine NATO-Mitgliedschaft praktisch zunichtemachte, erinnerte die Europäer daran, dass Washington sie jederzeit genauso schnell und
+rücksichtslos fallen lassen kann, wie es jetzt Kiew fallen lässt.
+Viele Jahre lang hatte die ehemalige Ukrainische SSR keine Mühen gescheut, um sich den NATO-Standards
+anzupassen. In den vergangenen anderthalb Jahren zerstörte sie ihre Städte und trieb ihre Männer in den
+Tod, nur um auf Biegen und Brechen der Allianz beizutreten. Es wurden buchstäblich Ströme von Blut vergossen. Und was ist das Ergebnis?
+
+
+-----
+
+«Die USA sollten der Ukraine keine Art von Sicherheitsgarantien – und erst jetzt keine NATO-Mitgliedschaft
+– anbieten, weder jetzt noch nach dem Krieg», so das Urteil US-amerikanischer Militäranalytiker. Schluss,
+aus und vorbei.
+Washington kann man durchaus verstehen. Alle Ziele der USA im russisch-ukrainischen Fall wurden bereits
+erreicht. Die Verbindungen zwischen Deutschland und Russland sind zerstört, die europäische Wirtschaft
+liegt in Trümmern, europäische Industrie wandert in die USA aus. Gewinne sind eingefahren, nun kassieren
+die USA ab. Das Risiko eines Weltkriegs brauchen sie jetzt am wenigsten.
+Doch in welchem Zustand bleibt nach dem Ende des Konflikts Europa? Als Hauptpreis wurde ihm die Plünderung der Ruinen Russlands versprochen. Allerdings gibt es keine Ruinen. Wozu verzockten sie also ihre
+Wirtschaft, entwaffneten sich freiwillig und liessen ihre Armeen ohne Technik, Munition und Waffen? Eine
+Niederlage in der Ukraine verspricht ihnen Jahrzehnte von Armut, Rebellionen und einen Zusammenbruch
+in der langfristigen Perspektive.
+Und das betrifft nur die Wirtschaft. Auch das militärische Bündnis mit den USA erscheint inzwischen sehr
+unsicher. Wenn sich die USA unverblümt weigerten, die Ukraine zu beschützen, was hindert sie daran, Europa genauso den Schutz zu verweigern?
+Das US-amerikanische Volk befürwortet in seiner Mehrheit den Isolationismus, will alle äusseren Herausforderungen ignorieren und sich auf die Innenpolitik konzentrieren. Alle Hauptkonkurrenten von Joe Biden,
+sowohl bei den Republikanern als auch bei den Demokraten, versprechen, den Konflikt in der Ukraine zu
+beenden. Es wird nicht mehr gelingen, der Bevölkerung den Schutz der Demokratie in der Ukraine zu verkaufen. Den US-amerikanischen Wählern wurde klar, dass der Krieg in Europa über den Ozean schwappen
+kann, und sie wollen überhaupt nicht, dass zu ihnen russische Raketen fliegen.
+In dieser Lage beginnen die Europäer, sich sorgfältiger in Artikel 5 der NATO-Satzung einzulesen, und
+sehen, dass er im Grunde sehr schwammig formuliert ist. Ja, alle Allianzmitglieder verpflichten sich zum
+Schutz eines angegriffenen Mitglieds, allerdings kann dieser Schutz sehr unterschiedlich ausfallen. Er könnte sich beispielsweise in Form von Waffenlieferungen äussern oder gar in Form diplomatischer Massnahmen wie Regierungserklärungen mit einer Verurteilung der Aggression.
+Bezeichnenderweise war dieser Artikel zum einzigen Mal in der Geschichte zugunsten der USA angewandt
+worden. Nach dem Terroranschlag vom 11. September begannen die Allianzmitglieder, ihre US-amerikanischen Herren vor der ‹Aggression› zu schützen. Zugunsten europäischer Staaten wurde diese Regel bisher
+kein einziges Mal angewandt.
+Obwohl die Ukraine der NATO nicht beigetreten ist, wurde in Bezug auf sie Artikel 5 de facto bereits angewandt – alle Vasallen der USA traten in der einen oder anderen Form für ihren Schutz ein. Doch was hat es
+der Ukraine gebracht?
+Noch zu Zeiten des Kalten Kriegs diskutierte die Öffentlichkeit regelmässig die Frage, ob die USA ‹New York
+für Berlin opfern› würden, sollte es zum Krieg mit der UdSSR kommen. Nun stellt sich diese Frage wieder.
+In Bezug auf Riga, Vilnius und Tallinn gibt es inzwischen keine Zweifel mehr. Doch auch die Bewohner
+Berlins haben etwas zu bedenken.
+Zuvor hatten die Bewohner des alten Europa noch gewisse Illusionen bezüglich ihrer privilegierten Stellung
+in der Allianz hegen können. Doch nachdem die USA Jugoslawien zerbombt hatten, sollten die Europäer
+nicht hoffen, dass man sie in Washington schonen und schützen würde. Die eigenen Armeen unterstellten
+sie indessen längst der US-Führung und liessen sie zudem in den vergangenen anderthalb Jahren gehörig
+ausbluten. Europas Verteidigungsfähigkeit erscheint heute sehr problematisch.
+«Der europäische Kontinent ist gespalten, seine Militärausgaben reichen nicht aus, um Russland allein aufzuhalten», beschreibt traurig die britische Zeitung ‹The Telegraph› die Sachlage im ‹nutzlosen Europa›.
+Natürlich liegt das Problem hier nicht im Aufhalten Russlands. Die Idee, dass Russland die Ukraine in ein
+Aufmarschgebiet für einen weiteren Angriff auf Europa verwandeln könnte, erscheint ‹beinahe lächerlich›,
+räumt die US-Zeitung ‹Politico› ein.
+Gefahr droht Europa von ganz woanders. Denn die USA planen, die Nachkriegsukraine in ein ‹Stachelschwein› zu verwandeln, sie ohne jegliche Garantien einfach mit Waffen aufzupumpen und ihre Kämpfer
+auszubilden.
+Sollten also die Kämpfe zwischen Russland und der Ukraine zu einem Ende kommen, fände sich direkt im
+Zentrum Europas eine riesige, gut ausgebildete, vorzüglich bewaffnete und aus den USA sorgfältig versorgte
+Armee mit brauchbarer Kampferfahrung wieder. Nach den Ergebnissen der russischen Militäroperation
+wäre diese Armee wohl etwas betrübt, gelinde gesagt. Eine Arbeit oder friedliches Leben gäbe es für diese
+Menschen nicht, denn heute ist die Ukraine ein verwüstetes Land.
+Wohin wird also eine Million zorniger ukrainischer Männer gehen, die gesehen hatten, wie ihre Kameraden
+für die NATO und für Selenskys Milliarden starben, wie sie von ihren ‹europäischen Freunden und Partnern›
+endlos betrogen und verachtet wurden? Im Osten wurden sie in diesem Szenario bereits von den russischen
+Streitkräften geschlagen. Würden sie also ihren Blick nicht nach Westen richten?
+_Übersetzt aus dem Russischen und zuerst erschienen bei RIA Nowosti._
+_Quelle: https://freeassange.rtde.me/meinung/175283-dem-nutzlosen-europa-droht-ein-krieg-mit-der-ukraine/_
+
+
+-----
+
+##### Ukrainische Sommeroffensive: 
+ Wenn Überheblichkeit Menschenleben kostet
+
+_Autor: Ralph Bosshard, 14. Juli 2023_
+
+Gern wäre Wladimir Selensky als strahlender Sieger an den NATO-Gipfel nach Vilnius gereist und hätte dort
+die Führer der westlichen Länder ermutigt, noch schnell vor dem Endsieg in den Krieg gegen Russland einzusteigen. Das Timing stimmte: Mit zwei neugebildeten Armeekorps, von denen jedes zwei bis drei Wochen
+handlungsfähig ist, hätten die militärischen Operationen im Osten der Ukraine Anfang Juni eigentlich kurz
+vor dem Abschluss stehen sollen. Aber die lange angekündigte Sommeroffensive der ukrainischen Armee
+blieb bisher weit hinter den gesteckten Zielen zurück.
+Während ein Teil der westlichen Medien nun jeden noch so kleinen Erfolg als strategischen Sieg feiert, sprechen andere schon vom Fiasko der ukrainischen Sommeroffensive (1). Für letzteres ist es noch zu früh. Die
+Ukraine kann diese wohl noch etwas weiterführen, aber realistischerweise muss man deren Erfolgschancen
+nach unten korrigieren.
+
+**Bachmut/Artemovsk**
+
+Das Hauptaugenmerk der ukrainischen Führung galt der Stadt Bakhmut (russisch Artemovsk), deren Verlust Ende Mai trotz hartnäckiger Gegenwehr und Zuführung neu gebildeter Reserven nicht verhindert werden konnte. Die Hoffnung, der Abzug der PMC ‹Wagner› und ihre Ablösung durch reguläre russische Armeeverbände schaffe ein Schwächemoment, das ausgenützt werden könne, erfüllte sich nicht. Die Angriffe der
+ukrainischen Armee, namentlich der 101. Territorial Verteidigungsbrigade auf Yahidne/Yagodnoe und der
+5. Sturm-Brigade auf Klishiivka haben bezüglich Breite und Angriffstiefe wohl kaum die Erwartungen erfüllt,
+welche die höhere Führung der Ukraine in sie gesetzt hatte. Von personell neu aufgefüllten und mit westlichen Waffen ausgerüsteten Brigaden hätte man eigentlich erwarten dürfen, dass sie auf bis zu 10 km Frontbreite in 10 bis 15 km Tiefe vorstossen. Die Einnahme der erwähnten Ortschaften dürfte wohl das erste
+Ziel der angreifenden Truppen gewesen sein. Eine Wiederholung der Angriffe ist möglich, wenn die ukrainische Führung bereit ist, die zu erwartenden hohen Verluste von Infanterie-Angriffen zu akzeptieren. Für die
+Rückeroberung der ganzen Stadt Bachmut/Artemovsk gegen eine, mit einer Luftlandebrigade verstärkten
+Motorisierten Schützendivision reichen die ukrainischen Kräfte in diesem Abschnitt aber nicht aus.
+Die Russen haben das Gros ihrer Kräfte, im Kern die 150. Motorisierte Schützendivision, entgegen ihrer üblichen Einsatzverfahren weit vorne im Sicherungsstreifen aufgestellt und sichern ihre erste eigentliche Verteidigungsstellung 20 km hinter der Front mit schwachen Kräften (2). Sie sind aber sicher bereit, sich auf
+diese Stellung zurückfallen zu lassen, wenn die Ukrainer die Sicherungsstellungen durchbrechen sollten.
+Davon sind diese aber weit entfernt.
+Schon vor der Einnahme von Bachmut/Artemovsk durch die Kämpfer der ‹Gruppe Wagner› führte die ukrainische Seite permanent Verstärkungen heran, um eine Stadt zu halten, deren unmittelbarer militärischer
+Wert eher bescheiden war. Auch die neuerlichen Angriffe der ukrainischen Truppen sind wohl eher durch
+die Bedürfnisse des Informationskriegs bedingt. Das Sterben für Schlagzeilen geht weiter.
+
+_Karte: Lage im Raum Bachmut/Artemovsk_
+
+_Q_ _ll_ _K_ _t_ _Li_ _UA M_ _E_ _ä_ _V_ _f_
+
+
+-----
+
+**Raum Kherson – Donetsk**
+
+Vielfach war der Süden der Oblast Saporoschje als Hauptangriffsrichtung der ukrainischen Armee in der
+Sommeroffensive genannt worden. Während die einen die Unterbrechung der Landverbindung zwischen
+Rostow-am-Don auf die Krim als Ziel bezeichneten, träumten andere schon von der Rückeroberung der
+Stadt Mariupol. Auch Angriffe von Verbänden in Kompaniestärke im Raum Belgorod vermochten davon
+nicht abzulenken. Auf der 150 km langen Front vom Dnipro/Dnepr südlich von Saporoschje bis in den
+Raum Dokuchaevsk südlich von Donetsk sind die Ukrainer zahlenmässig in etwa gleich stark wie die verteidigenden Russen. Auch hier brachten die Angriffe ganz im Westen Richtung Vasylivka, südlich von Orikhiv/
+Orekhov und bei Vugledar/Ugledar nur Erfolge taktischen Ausmasses. Die circa 20 Brigade-Äquivalente, die
+auf russischer Seite an der Front stehen, reichten bislang aus, um die ukrainischen Angriffe noch im Sicherungsstreifen abzuwehren. Auch hier stehen die ukrainischen Truppen noch weit von der ersten Verteidigungsstellung entfernt. Die russischen Reserven sind in ihrem Umfang komfortabel. Am Verkehrsknotenpunkt Tokmak stehen zwei Regimenter und Kämpfer einer PMC bereit, um zusammen mit der Panzerabwehrreserve der Artilleriebrigaden allfällige ukrainische Durchbrüche abzuriegeln oder die vorbereiteten
+Verteidigungsstellungen in Tokmak zu beziehen.
+Auf ukrainischer Seite genügen die an der Front aufgestellten Kräfte für die Verteidigung und die Sicherung
+einer Angriffsgrundstellung. Sollten die Ukrainer hier einen operativ bedeutenden Durchbruch erzielen wollen, müssten sie alle ihre vorhandenen Reserven in einem circa 20 km breiten Abschnitt zusammenziehen,
+um nach dem Durchbruch durch die russische Sicherungslinie die erste Verteidigungslinie zu durchbrechen und weiter nach Tokmak zu stossen, einem wichtigen Zwischenziel auf dem Weg zum Asowschen
+Meer. Im Licht der Kräfteverhältnisse ist davon auszugehen, dass sie sich an den Befestigungen von Tokmak
+festbeissen und dort liegenbleiben würden. Von einer Unterbrechung der Verbindung zwischen Rostowam-Don zur Krim auf der Route von Mariupol über Berdiansk und Melitopol nach Chongar sind sie so weit
+entfernt, wie zu Beginn der Sommeroffensive.
+Bislang ergaben die Hauptanstrengungen der ukrainischen Armee in den Räumen Bachmut und Saporoschje keine operativ bedeutenden und damit in allfälligen Verhandlungen verwertbare Ergebnisse. Wenn
+aber ein Angriff in einer Richtung sich festfährt, sollte man die Angriffsrichtung oder zumindest den Schwerpunkt wechseln, das lernen bereits Kommandanten der taktischen Stufe. Angesichts der grossen Distanzen,
+des Zustandes des Verkehrsnetzes und der russischen Flieger und Abstandwaffen benötigen die Ukrainer
+für Umgruppierungen operativen Ausmasses wahrscheinlich Wochen. Ob es ein kluges Vorgehen der Ukrainer war, gleichzeitig in Bachmut und östlich von Saporoschje anzugreifen, ist zu bezweifeln. Aber selbst,
+wenn dies als Fehler erkannt werden sollte, ist die ukrainische Armee kaum in der Lage, diesen in nützlicher
+Frist zu korrigieren.
+
+_Karte: Lage im Süden der Oblast Saporoschje und Möglichkeiten einer ukrainischen Offensive_
+
+_Quelle: Karte Live UA Map, Ergänzungen Verfasser_
+
+
+-----
+
+**Herbe Kritik aus den USA**
+
+Speerspitze des Angriffs der ukrainischen Armee im Süden der Oblast Saporoschje war die 47. Mechanisierte Brigade, die auf dem Truppenübungsplatz Grafenwöhr in Deutschland mit westlichen Waffen ausgerüstet und nach westlicher Doktrin ausgebildet worden war. Der Plan für ihren Angriff soll auch dort entwickelt und im Taktik-Simulator KORA einer Prüfung unterzogen worden sein (3). Das berichtete der ehemalige Angehörige der US-Marineinfanterie und Spezialist für Nachrichtendienst Scott Ritter. Er selbst hat
+Erfahrung mit Simulationsübungen. Im Oktober und November 1991 hatte er sich an Simulationsübungen
+beteiligt, mit denen der Angriffsplan des US Marine Corps auf die irakischen Stellungen in Kuwait überprüft
+wurde (4). Die Überprüfung von taktischen Entschlüssen im Wargaming – so ersetzt man das verpönte Wort
+‹Kriegsspiel› heute – und in Simulationsübungen ist heutzutage Standard. Die Schweizer Armee nutzt hierfür ihre Taktik-Simulatoren auf dem Waffenplatz Thun und an der Generalstabsschule in Kriens, wo auch
+eigens ein grosser Raum für Kriegsspiele auf Landkarten eingerichtet wurde (5). Ritter kritisiert, dass die
+Ausrüstung, Kampfmoral, Führung und der Ausbildungsstand der russischen Truppen in den Stellungen
+südlich von Orikhiv/Orekhov unterschätzt und als Folge davon die ukrainischen Erfolgschancen zu optimistisch beurteilt worden seien:
+**«According to the Institute for the Study of War, the Russians “responded to the Ukrainian attack with**
+**an uncharacteristic [sic] degree of coherency” while executing “their formal tactical defensive doctrine”**
+**in repelling Ukrainian attacks southwest of Orekhov.»**
+
+Und er spart nicht mit Kritik:
+**«NATO trainers, … knowingly sent the men of the Ukrainian 47th Mechanized Brigade and scores of**
+**other Ukrainian brigades to their deaths … neither NATO nor the United States cares about the lives of**
+**the Ukrainians they have undertaken to train in the horrific art of war.» (6)**
+
+Als ehemaliger Mitarbeiter der US-Nachrichtendienste verfügt Ritter womöglich über Informationen aus
+seinen alten Netzwerken. Seine schweren Vorwürfe an die Adresse der deutschen und US-amerikanischen
+Instruktoren in Grafenwöhr sind aber möglicherweise übertrieben, denn diese hatten ihre – offensichtlich
+unkorrekten – Informationen über Ausrüstung, Ausbildung und Moral der russischen Truppen wohl nicht
+aus erster Hand, sondern am ehesten von den Ukrainern selbst. Hierfür zeichnet dann primär der Chef des
+militärischen Nachrichtendienstes der ukrainischen Streitkräfte (GUR), Kyrylo Budanow verantwortlich, der
+selbst den Angriff russischer Kinzhal-Raketen auf das Hauptquartier seines Dienstes Ende Mai nicht vorhergesehen hatte (7). Berichte, wonach er bei diesem Angriff verletzt worden sei, stellten sich zwar als unrichtig
+heraus; hier war russischerseits möglicherweise der Wunsch der Vater des Gedankens gewesen (8). Aber
+die Falschmeldungen zeigten, wer das eigentliche Ziel des Angriffs gewesen war, sodass Budanow sich gezwungen sah, ein paar Tage auf Tauchstation zu gehen (9). Auch seine Prognose vom vergangenen Februar,
+Russland werde den Krieg nicht mehr lange durchhalten können, erwies sich als falsch (10).
+Solange die Ukraine und der im Informationsbereich teilweise von ihr abhängige Westen die russische
+Armee unterschätzen, wird es dieser leicht fallen, ihre Gegner immer aufs Neue zu überraschen. Das sind
+Probleme, die auch in Zukunft immer wieder auftauchen werden, solange westliche Politiker lieber der
+Boulevard-Presse und PR-Agenturen glauben, als ihren Nachrichtendiensten.
+An anderen Abschnitten der Front haben sich die ukrainischen Angriffe ebenfalls festgefahren, wie am
+Westrand von Donetsk in Mariinka und Avdiivka/Avdeevka. Im Norden der Front östlich des Oskol-Flusses,
+von Kreminna/Kremennaya bis an die russische Staatsgrenze sind nun offenbar die Russen ihrerseits zum
+Angriff übergegangen. Diese erreichten bislang allerdings auch nur taktische Ausmasse. Nach der Zerstörung des Damms von Nova Kakhovka hatte mancher Kommentator darauf getippt, dass der untere Dnipro
+zum Hauptschauplatz der Kämpfe werden könnte. Dort setzten die ukrainischen Streitkräfte in den letzten
+Tagen mit Booten über den Fluss. Mehr als Stosstrupps sind das offenbar aber nicht gewesen. Der Abschnitt
+bleibt nach wie vor ungünstig für einen gross angelegten Angriff.
+
+
+-----
+
+_Karte: Übersicht über die Front, gelb ukrainische Gebietsgewinne seit 1. Juni, orange russische_
+
+_Quelle: Live UA map, Ergänzungen Verfasser_
+
+**Eine neue Blutmühle?**
+
+Über ihre eigenen Verluste geben die Konfliktparteien in Kriegen in der Regel keine oder unrichtige Angaben, die gegnerischen übertreiben sie gerne. Dazu kommt, dass beim Einsatz gegen schweres Gerät der
+Gegenseite oftmals nur festgestellt werden kann, ob man getroffen hat, während der effektive Schaden
+nicht sofort festgestellt werden kann. Nimmt man aber die Anzahl der Panzer und sonstigen gepanzerten
+Kampffahrzeuge, welche die russische Seite zerstört haben will, nicht als bare Münze, sondern als Gradmesser für die Intensität der Kämpfe, so kommt man zum Schluss, dass der 3. Juni den Zeitpunkt darstellt,
+an welchem die gewaltsame Aufklärung der Ukrainer in einen eigentlichen Angriff überging. Die Verlustzahlen bei Artillerie-Geschützen zeigen, dass die Artillerie-Vorbereitung am 1. Juni begonnen haben muss. In
+der letzten Juni-Woche nahm die Intensität der Kämpfe offenbar ab, was damit zusammenhängen dürfte,
+dass die in der ersten Phase eingesetzten Verbände nach zweieinhalb Wochen an die Grenzen ihrer Durchhaltefähigkeit gekommen waren. Das ist wenig überraschend. Inzwischen berichtet die russische Seite, die
+Ukrainer hätten ihre Taktik geändert und würden mit Infanterie-Verbänden in Zugs- bis Kompaniestärke
+angreifen, denen Panzer folgen. Der ukrainische Verteidigungsminister Reznikov verkaufte dieses Vorgehen
+implizit als gewaltsame Aufklärung, als er am Rande des NATO-Gipfels in Vilnius erklärte, die ukrainischen
+Truppen würden nun die schwachen Stellen beim russischen Gegner suchen. Die Intensität der Kämpfe ist
+momentan aber nach wie vor über dem Niveau vom vergangenen Mai, als die Ukrainer wirklich gewaltsame
+Aufklärung betrieben. Reznikovs Äusserungen sind kritisch zu betrachten.
+
+
+-----
+
+_Abbildung: ukrainische Verluste an Panzern und Artillerie-Geschützen pro Tag_
+
+_Quelle: Verfasser_
+
+Wenn die ukrainische Armee nun auch noch die bisher nicht eingesetzten taktischen und ihre operativen
+Reserven in mehreren Abschnitten der Front einsetzt, dann kann sie ihre Offensive noch mehrere Wochen
+wieter aufrechterhalten. Danach sind dann aber keine Reserven mehr vorhanden, die eingreifen könnten,
+wenn den Russen irgendwo ein Durchbruch gelingen sollte. Ob die ukrainische Führung dieses Risiko einzugehen bereit ist, wird sich noch zeigen müssen. Sicher ist aber, dass die ukrainische Führung auch durch
+den angriffsweisen Einsatz von Verbänden der Territorialverteidigung gewillt ist, hohe Personalverluste zu
+akzeptieren, auch wenn Reznikov in Vilnius das Gegenteil behauptete (11).
+
+**Neue Waffen für die Ukraine**
+
+Die anlässlich des NATO-Gipfels in Vilnius durch Bundeskanzler Scholz in Aussicht gestellten 25 Panzer
+des Typs Leopard-1A5 und 40 Schützenpanzer Marder genügen für die Neuausrüstung von zwei Bataillonen, die wiederum nur taktische Erfolge erzielen können (12). Das weiss man sowohl in Berlin als auch in
+Kiew. Diese Fahrzeuge werden den russischen Panzern des Typs T-90 und den neueren Versionen des
+Schützenpanzers BMP nicht standhalten können, wenn sie auf solche treffen sollten. Bereits im März verstärkten die Ukrainer die gelieferten Leopard-2 mit Reaktiv-Zusatzpanzerungen (13). Offenbar waren sie
+mit deren Schutz nicht zufrieden, was nicht überrascht. Die Reaktiv-Zusatzpanzerung verbessert zwar den
+Schutz gegen Hohlladungsgeschosse, behebt die Schwächen des Leopard-2 aber nicht, wenn er mit Pfeilgeschossen beschossen werden sollte. Darüber hinaus erhöht die Zusatzpanzerung das Gewicht der Leoparden, was ihre Beweglichkeit im Gelände weiter einschränken dürfte.
+Deutschland ist mit Versprechen von Waffenlieferungen vorgeprescht. Ob weitere NATO-Verbündete noch
+in der Lage sind, moderne Waffen in grossem Umfang zu liefern, ist unsicher. Selbst wenn dies der Fall sein
+sollte: Die Ausrüstung von weiteren Armeekorps und Divisionen wird kaum mehr möglich sein und damit
+rücken Erfolge operativen Ausmasses ausser Reichweite.
+
+**Werbespots aus Brüssel**
+
+Sollte sich die Lage an der Front für sie nicht verschlechtern, dann können sich die Russen ein Spiel auf
+Zeit leisten, bis die westliche Grosszügigkeit bei Waffenlieferungen – und allenfalls auch die Fähigkeit zu
+Waffenlieferungen – abkühlt. Bis die versprochenen Waffen in der Ukraine eintreffen, wird es Frühherbst
+werden. Bis Ende des Monats Oktober ist das Wetter im Südosten der Ukraine traditionell trocken und mild.
+Danach wird sich das Zeitfenster für gross angelegte Offensiven für Monate schliessen.
+Die vollmundigen Ankündigungen einer Rückeroberung der Krim und einer vollständigen Vertreibung russischer Truppen von ukrainischem Territorium erwiesen sich bisher als falsch. Wenn sie mehr als nur Moral_Booster im Informationskrieg gewesen sein sollten, dann waren sie Ausdruck der Selbstüberschätzung der_
+Ukrainer und der Unterschätzung ihres Gegners. Diese Überheblichkeit haben die Ukrainer in den letzten
+Wochen teuer bezahlt. Die politische und militärische Führung der Ukraine steht nun vor einer Entschei
+
+-----
+
+dung: Will sie die Offensive mit den noch zur Verfügung stehenden Reserven weiterführen und damit alles
+auf eine Karte setzen, oder will sie die Intensität der Kampfhandlungen senken und die Ankunft neuer
+Waffen aus dem Westen abwarten?
+Vilnius hat Selensky die Grenzen der Hilfsbereitschaft des Westens aufgezeigt: Dieser ist nach wie vor nicht
+bereit, sich um ukrainischer Territorien willen in einen Krieg mit Russland zu stürzen. Die westlichen Waffenlieferungen zielen darauf ab, der Ukraine zu helfen, ihre Verhandlungsposition gegenüber Russland zu verbessern. Mehr ist nicht vorgesehen. Dieses Verhalten des Westens entlarvt aber Losungen, wonach in der
+Ukraine die Werte des Westens verteidigt würden, als Werbespots.
+Die Ukraine kann jetzt nicht viel mehr tun, als Russland noch möglichst viel Schaden zufügen. Mit dem Einsatz von ballistischen Raketen, Marschflugkörpern und Drohnen demonstriert der Kreml auf der anderen
+Seite fast täglich, dass auch er in diesem üblen Spiel am längeren Hebel sitzt. In dieser Beziehung, aber
+auch nur in dieser, fallen die Interessen des Westens mit jenen der Ukraine zusammen. Wenn Selensky
+seine Verhandlungsposition stärken will, kann er es auf diplomatischem Weg versuchen, am ehesten mittels
+einer Charme-Offensive in Richtung China und der BRICS-Staaten generell. Diese werden ihn aber nur
+unterstützen, wenn sie die Ukraine im globalen Konkurrenzkampf nicht mehr auf der Seite des Westens
+sehen. In diesem Sinn braucht der Westen die Waffenlieferungen an die Ukraine womöglich bald mehr als
+diese selbst, wenn Selensky und sein Kabinett auf Kriegskurs gehalten werden sollen. Sollte dieser eine
+Kehrtwende vollziehen, steht der Westen auf der Verliererseite.
+
+**_Zum Autor des obenstehenden Artikels: Ralph Bosshard studierte Allgemeine Geschichte, osteuropäische Geschichte und_**
+_Militärgeschichte, absolvierte die Militärische Führungsschule der ETH Zürich sowie die Generalstabsausbildung der Schwei-_
+_zer Armee und arbeitete 25 Jahre als Berufsoffizier (Instruktor). Er absolvierte eine Sprachausbildung in Russisch an der_
+_Staatlichen Universität Moskau sowie eine Ausbildung an der Militärakademie des Generalstabs der russischen Armee. Mit_
+_der Lage in Osteuropa und Zentralasien ist er aus seiner sechsjährigen Tätigkeit bei der OSZE vertraut, in der er als Sonderbe-_
+_rater des Ständigen Vertreters der Schweiz und Operationsoffizier in der hochrangigen Planungsgruppe tätig war._
+
+**_Anmerkungen:_**
+_1._ _Siehe „On The Failure Of The Ukrainian Counterattack“, bei Moon of Alabama, 16.06.2023, online_
+
+_unter https://www.moonofalabama.org/2023/06/on-the-failure-of-the-ukrainian-counterattack.html._
+
+_2._ _Siehe Сергей_ _Нахимов: 150-я_ _Идрицко-Берлинская_ _мотострелковая_ _дивизия_ _Сухопутных_ _войск_ _РФ: от_ _Рейхстага_ _до_
+
+_Марьинки, bei Amalnews Военний, 30.06.2023, online unter https://amalantra.ru/150-motostrelkovaya-diviziya/, in_
+_russischer Sprache._
+
+_3._ _Siehe zum Simulator die Herstellerseite von IABG: https://www.iabg.de/geschaeftsfelder/verteidigung-_
+
+_sicherheit/leistungen/smart-tools/simulations-und-trainingssysteme._
+
+_4._ _Siehe Scott Ritter: Here’s how NATO trainers knowingly sent Ukrainian troops to their deaths in this month’s_
+
+counteroffensive against Russia, bei Azerbaycan24, 23.06.2023, online
+_unter https://www.azerbaycan24.com/en/here-s-how-nato-trainers-knowingly-sent-ukrainian-troops-to-their-deaths-in-_
+_this-month-s-counteroffensive-against-russia/. Vgl. auch Zaini Majeed: Former US Intel Officer Calls Ukraine’s_
+Counteroffensive ‚dead End, Bizarre Fantasy‚, bei R.republicworld.com, 07.06.2023, online
+_unter https://www.republicworld.com/world-news/russia-ukraine-crisis/former-us-intel-officer-calls-ukraines-_
+_counteroffensive-dead-end-bizarre-fantasy-articleshow.html._
+
+_5._ _Der Verfasser war während dreier Jahre an der Generalstabsschule beruflich tätig._
+_6._ _Siehe Scott Ritter: Here’s how, a.a.O._
+
+_7._ _Siehe „Kiewer Geheimdienst räumt russischen Raketenangriff auf eigene Zentrale ein“, bei Redaktionsnetzwerk_
+_Deutschland, 21.06.2023, online unter https://www.rnd.de/politik/ukraine-krieg-kiewer-geheimdienst-raeumt-_
+_russischen-angriff-auf-eigene-zentrale-ein-3QCRYR7OJJNNFENNHE5XBEN54U.html, „Ukrainischer Geheimdienst_
+_bestätigt russischen Angriff auf eigene Zentrale“, bei Welt, 21.06.2023, online_
+_unter https://www.welt.de/politik/ausland/article245981648/Ukraine-News-Kiewer-Geheimdienst-bestaetigt-_
+_russischen-Angriff-auf-eigene-Zentrale.html und „Selenskyj: Offensive «langsamer als gewünscht», aber mit_
+_Fortschritten – das Nachtupdate“, bei Watson, 22.06.2023, online_
+_unter https://www.watson.ch/international/ukraine/140434589-nachtupdate-offensive-langsamer-als-gewuenscht-_
+_aber-mit-fortschritten: „… der Kiewer Geheimdienst räumt eine Attacke auf sein Hauptquartier ein“_
+
+_8._ _Siehe Lars Wienand, Camilla Kohrs, D. Mützel: Geheimdienstchef in Berliner Klinik? Ukraine dementiert, bei T online,_
+_15.06.2023, online unter https://www.t-online.de/nachrichten/ukraine/id_100192898/geheimdienstchef-budanow-_
+_in-berliner-klinik-ukraine-dementiert.html und „Russische Rakete verletzt Chef des ukrainischen Geheimdienstes:_
+_Kyrylo Budanow liegt schwer verletzt im Bundeswehrkrankenhaus in Berlin“, bei Weltwoche, 15.06.2023, online_
+_unter https://weltwoche.ch/daily/russische-rakete-verletzt-chef-des-ukrainischen-geheimdienstes-kyrylo-budanow-_
+_liegt-schwer-verletzt-im-bundeswehrkrankenhaus-in-berlin/. Ursprung der Falschmeldungen war eine „Ente“ von RIA_
+_Novosti gewesen: „Источник_ _сообщил_ _о_ _тяжелом_ _ранении_ _главы_ _ГУР_ _Минобороны_ _Украины_ _Буданова“, bei RIA_
+_Novosti, 15.06.2023, online unter https://ria.ru/20230615/budanov-1878413689.html, in russischer Sprache._
+
+_9._ _Kurz vor dem NATO-Gipfel besuchte er offenbar als Begleiter Zelenskys die Schlangeninsel:_
+_Siehe https://t.me/sanya_florida/10076._
+
+_10._ _Siehe „Ukrainischer Geheimdienstchef Budanow «Russland ist nicht für lange Kämpfe bereit»“, bei Blick,_
+
+_28.02.2023, online unter https://www.blick.ch/ausland/ukrainischer-geheimdienstchef-budanow-russland-ist-nicht-_
+_fuer-lange-kaempfe-bereit-id18356837.html._
+
+
+-----
+
+_11._ _Siehe „Auftakt des Nato-Gipfels: Berlin schnürt Ukraine-Waffenpaket“, bei Spiegel, 11.07.2023, online_
+
+_unter https://www.stern.de/politik/ausland/vilnius–auftakt-des-nato-gipfels–berlin-schnuert-ukraine-waffenpaket-_
+_33638058.html und NATO-GIPFEL IN VILNIUS: Dämpfer für Ukraine – Aber mehr Waffen für Krieg gegen Russland,_
+_bei WELT Thema, auf YouTube, 12.07.2023, online unter https://www.youtube.com/watch?v=Wl2izQ-4Ur4._
+_Reznikov: „… nicht die Sowjet-Taktiken unseres Gegners übernehmen“_
+
+_12._ _Siehe „Scholz schnürt Waffenpaket für Ukraine“, bei Handelsblatt, 11.07.2023, online_
+
+_unter https://www.handelsblatt.com/dpa/vilnius-scholz-schnuert-waffenpaket-fuer-ukraine/29251356.html. Neben_
+_den 40 Schützenpanzern „Marder“ und 25 Kampfpanzer „Leopard 1A5“ sind noch fünf Bergepanzer, zwei_
+_Abschussgeräte für Patriot-Flugabwehrraketen, 20’000 Schuss Artilleriemunition, Aufklärungsdrohnen, Mittel zur_
+_Abwehr von Drohnenangriffen und ein Sanitätspaket enthalten._
+
+_13._ _Siehe https://t.me/sanya_florida/9941. Vgl. Ольга_ _Робейко: Эксперт_ _оценил_ _эффективность_ _динамической_ _защиты_
+
+_„Контакт-1“ на_ _танках Leopard, bei UNIAN, 30.03.2023, online unter https://www.unian.net/weapons/leopard-_
+_spaset-li-tank-dinamicheskaya-zashchita-kontakt-1-foto-12198681.html und Зачем_ _на_ _немецкие_ _танки Leopard 2 в_
+_Украине_ _устанавливают_ _динамическую_ _защиту (фото), bei Fokus.ua, 31.03.2023, online_
+_unter https://focus.ua/voennye-novosti/558122-zachem-na-nemeckie-tanki-leopard-2-v-ukraine-ustanavlivayut-_
+_dinamicheskuyu-zashitu-foto)._
+
+##### Rückschlag für Gendersprecher*innen
+
+_Von MANFRED ROUHS | 14. Juli 2023_
+
+Das erklärte Ziel der bundesdeutschen Gendersprachler ist es, den Binnenstern und andere unaussprechliche Absurditäten in eine kommende Reform der deutschen Rechtschreibung aufzunehmen. Am 14. Juli
+2023 musste die Szene einen Rückschlag hinnehmen. Denn der Rat für deutsche Rechtschreibung entschied bei seiner Tagung im deutsch-belgischen Eupen, weder Sternchen, noch Unterstrich oder Doppelpunkt als Binnenzeichen für Mehrgeschlechtlichkeit in die deutsche Sprache aufzunehmen.
+Das ist und bleibt jetzt erstmal offiziell, aber die Sprachverzerrung geht im Alltag und in den Massenmedien
+selbstverständlich weiter.
+Der Rat für deutsche Rechtschreibung ist seit knapp 20 Jahren ‹die Regulierungsinstitution der Rechtschreibung des Standardhochdeutschen›, wie es im schönsten Nominalstil bei Wikipedia heisst. Im März
+2021 mussten die Wikipedioten zerknirscht notieren, dass der Rat «die Aufnahme von Asterisk (‹GenderStern›), Unterstrich (‹Gender-Gap›), Doppelpunkt oder anderen verkürzten Formen zur Kennzeichnung
+mehrgeschlechtlicher Bezeichnungen im Wortinnern in das Amtliche Regelwerk der deutschen Rechtschreibung zu diesem Zeitpunkt nicht empfohlen» hat. Jetzt können sie ihren Artikel ergänzen um den
+eben dieses Thema betreffenden Beschluss des Rates vom 14. Juli 2023:
+«Diese Wortbinnenzeichen gehören nicht zum Kernbestand der deutschen Orthografie. (…) Ihre Setzung
+kann in verschiedenen Fällen zu grammatischen Folgeproblemen führen, die noch nicht geklärt sind.»
+Bislang erweist sich der Rat als recht stabile Trutzburg gegen einen ideologisch geprägten bundesrepublikanischen Zeitgeist, dem politische Weltanschauungen offenbar wichtiger sind als die Alltagstauglichkeit
+unserer Sprache. Das dürfte seiner Zusammensetzung geschuldet sein: 18 seiner Mitglieder sind Bundesrepublikaner, neun sind Österreicher, neun Schweizer, einer Südtiroler, einer Eupener, einer Liechtensteiner. Und ein Luxemburger gehört ihm ohne Stimmrecht an.
+Auf Plakaten der westdeutschen politischen Rechten hiess es bis 1989 treffend: «Deutschland ist grösser
+als die Bundesrepublik!» – Das gilt für den deutschen Sprach- und Kulturraum uneingeschränkt auch heute
+noch. Gott sei Dank!
+
+**_PI-NEWS-Autor Manfred Rouhs, Jahrgang 1965, ist Vorsitzender des Vereins Signal für Deutschland e.V., der die_**
+**_Opfer politisch motivierter Straftaten entschädigt, vierteljährlich die Zeitschrift SIGNAL herausgibt und im Internet_**
+**_ein Nachrichtenportal betreibt. Der Verein veröffentlicht ausserdem ein Portal für kostenloses Online-Fernsehen per_**
+**_Streaming und stellt politische Aufkleber und andere Werbemittel zur Massenverteilung zur Verfügung. Manfred_**
+**_Rouhs ist als Unternehmer in Berlin tätig._**
+_Quelle: https://www.pi-news.net/2023/07/rueckschlag-fuer-gendersprecherinnen/_
+
+
+-----
+
+##### Alexander Dugin: Macron fährt zur Hölle
+
+_uncut-news.ch, Juli 14, 2023_
+
+_http://www.kremlin.ru/events/president/news/62275/photos_
+
+Wenn man das gewalttätige Verhalten der wütenden Franzosen auf den Strassen sieht, vor allem, wenn
+man es zum ersten Mal sieht, denkt man sofort: Da ist sie, die Revolution! Die Regierung wird sich nicht
+halten! Frankreich ist am Ende. Die Regierung wird stürzen. Dabei spielt es keine Rolle, ob es sich um arabische oder afrikanische Jugendliche aus den Vorstädten, populistische Gelbwesten, verärgerte Bauern, Anhänger sexueller Minderheiten oder, im Gegenteil, Verfechter der Familie und traditioneller Werte, Nationalisten, Antifaschisten, Anarchisten, Studenten, Rentner, Radfahrer, Tierschützer, Gewerkschafter, Ökologen
+oder Pensionäre handelt. Sie sind zahlreich: Tausende, Zehn- und Hunderttausende, manchmal Millionen,
+füllen die Strassen französischer Städte, blockieren den Verkehr, Bahnhöfe und Flughäfen, erklären die
+Autonomie ausgewählter Einrichtungen und Schulen, zünden Benzin an, werfen Autos um, schreien wild,
+schwenken Transparente und beissen die Polizei. Und dann … beruhigen sie sich, kommen zur Vernunft,
+nehmen Tabletten und gehen wieder zur Arbeit, diskutieren mittags in kleinen Restaurants über Preise,
+Leben, Nachbarn und Politik, schreien wieder, aber viel leiser, und gehen nach Hause.
+
+Nach 1968 haben selbst die grössten Massenproteste von vielen Millionen keine Wirkung mehr gezeigt.
+Das Ergebnis ist null, immer und unter allen Umständen. Wenn man Frankreich besser kennenlernt, stellt
+man fest, dass es sich um ein Volk von Psychopathen handelt und keineswegs um Migranten. Die französischen Behörden scheren sich einen Dreck um die Migranten, genauso wie sie sich einen Dreck um die normalen französischen Bürger scheren, und aus dieser totalen Gleichgültigkeit heraus werden die Migranten
+selbst zu Psychopathen. Dies ist die neue Form der sozialen Integration: Man kommt in eine Zivilisation
+von Psychopathen und wird selbst einer.
+Jean Baudrillard hielt die Franzosen für ein Volk von Vollidioten. Sie seien unfähig, etwas von Kunst zu verstehen, und stünden zu Tausenden vor dem Musée de Beaubourg, um es eines Tages unter der Last dieser
+Idioten zusammenbrechen zu lassen. Inneres Frieren und regelmässige Hysterie ersetzen bei den Franzosen Kultur und Politik. Hätte General de Gaulle sein Volk besser gekannt, hätte er 1968 den Ausschreitungen
+der Linken auf der Strasse keine Beachtung geschenkt, sie wären nach einer Weile einfach gegangen, aber
+er hat sie ernst genommen. Nach ihm hat kein anderer Präsident den gleichen Fehler gemacht. Unabhängig
+davon, was auf den Strassen, aber auch in Wirtschaft, Politik, Gesellschaft und Finanzen passiert, ist die
+französische Regierung immer ruhig geblieben und hat die Presse vollständig unter Kontrolle. Régis Debret,
+Mitterrands Berater, gab zu, dass er und sein Chef während der gesamten Dauer seiner nominell linken
+Präsidentschaft nichts erreichen konnten, weil ihre Initiativen jedes Mal auf unsichtbaren Widerstand stiessen. Da sie an der Spitze der Macht standen, verstanden weder Debret noch Mitterrand, woher dieser Widerstand kam. Erst später wurde Debret klar, dass es die Presse war. Die Presse ist alles in Frankreich und die
+Psychopathen auf der Strasse, d.h. die Bevölkerung, sind nichts.
+Als Macron zum ersten Mal gewählt wurde und die rechte – und viel vernünftigere – Marine Le Pen gute
+Aussichten hatte, titelte die einflussreiche Zeitung ‹Liberation›: «Macht, was ihr wollt, aber wählt Macron!»
+Sehr französisch: Rechts, links, einwanderungsfreundlich, einwanderungsfeindlich, für Steuererhöhungen,
+gegen Steuererhöhungen: Das spielt keine Rolle. Wählen Sie einfach Macron, es ist ein Befehl, der nicht
+infrage gestellt werden kann, und der Wähler hat keine Verantwortung nach dem Akt des Wählens und
+Macron auch nicht, warum sollte er auch.
+Macron war schon in seiner ersten Amtszeit verhasst. Ich weiss nicht mehr warum, anscheinend für alles,
+aber er wurde von den Franzosen selbst wieder gewählt. Im Gegensatz zu den Russen, die normalerweise
+unberechenbar sind, sind die Franzosen berechenbar, und das ist verrückt. Einen totalen Verlierer zum
+zweiten Mal zu wählen … Wer, der bei Verstand ist, würde so etwas tun? Aber sie haben ihn wiedergewählt
+und dann wieder angefangen zu protestieren, Autos umzuwerfen und Schaufenster einzuschlagen. Man
+könnte sich an Baudrillard erinnern: Die Franzosen sind Idioten, aber Macron ist auch Franzose. Es wurde
+also ein Gleichgewicht gefunden.
+
+
+-----
+
+Das Ausmass der aktuellen Unruhen, die Verzweiflung der jugendlichen Einwanderer (Macron hat angedeutet, dass sie einfach zu viele Computerspiele spielen), der Zusammenbruch der Wirtschaft, der Anstieg der
+Zinssätze für Staatsanleihen, die Rezession, die Unterbrechung der Ferienzeit, die enormen Verluste durch
+Vandalismus sollten uns also nicht täuschen: Die Franzosen haben eine Pfarrei.
+Macron wird nichts tun, aber er hat auch noch nie etwas getan. Er wird sich für die Umwelt aussprechen,
+sich mit Greta Thunberg für alle Eventualitäten treffen, ein oder zwei Waffendivisionen in die Ukraine schikken, eine sagenhafte Summe an eine namhafte, aber völlig ineffektive US-PR-Gruppe zahlen, die mit der
+CIA verbunden ist, ein Telefongespräch mit Scholz führen, in einen schwulen Nachtclub gehen und in den
+Spiegel schauen. Dann schaut er noch einmal in den Spiegel und dann ist alles wieder in Ordnung, das war
+schon immer so, es ist nicht die Apokalypse, es ist nicht das Ende der Welt, es ist nur Frankreich.
+Eine Hypothese bleibt: Die Apokalypse in diesem einst so schönen und eleganten Land hat bereits stattgefunden, und nun zeigen seine Strassen, überfallen von wer weiss was, eine Massenhalluzination.
+Ist jemand willens oder in der Lage, diese Situation zu ändern? Wenn man sich die französische Kultur des
+19. und 20. Jahrhunderts genau ansieht, ist die Schlussfolgerung eindeutig: Der französische Geist wollte
+wie Orpheus (z. B. mit Cocteau oder Blanchot) nur eines – so tief wie möglich in die Hölle hinabsteigen.
+Nun, es ist ihm gelungen und es ist unumkehrbar. Wie lange kann es dauern? Das weiss niemand. Das
+schöne Frankreich, die älteste Tochter der Kirche, wie die Katholiken es im glanzvollen Mittelalter nannten,
+hat sich unwiderruflich in eine Müllhalde verwandelt – von der Seele bis zu den Strassen und Vorstädten.
+Notre Dame ist niedergebrannt. Aus dem Louvre wurden alle Gemälde und Skulpturen entfernt, die Immigranten und Feministen ruinieren könnten.
+Es gibt nur noch Macron und seinen Spiegel, wie Jean Cocteaus Orpheus mit den Kulissen von Jean Hugo
+und den Kostümen von Coco Chanel.
+_QUELLE: MACRON GOES TO HELL_
+_Quelle: https://uncutnews.ch/alexander-dugin-macron-faehrt-zur-hoelle/_
+
+##### Iran – Wo der alte Fuchs Ali Khamenei Recht hat, da hat er Recht
+
+_Freitag, 14. Juli 2023, von Freeman-Fortsetzung um 09:25_
+
+Auch die Perser sind nicht dumm …
+
+Übrigens ist Ali Khamenei eine gute Mischung von einem Azeri Vater
+
+und einer Yazdin, die für ihre Gradlinigkeit bekannt sind.
+
+🇮🇷 Irans oberster Führer Ali Khamenei:
+
+Ukrainer sterben, damit sich US-Rüstungsunternehmen die Taschen füllen können.
+
+**«Heute sind sie bereit, arme, hilflose Ukrainer zu opfern, um die Taschen der US-Waffenfirmen zu füllen.**
+**Die Ukrainer kämpfen und sterben, damit Waffen verkauft werden können, damit die Rüstungskonzerne**
+**ihre Taschen füllen können», …**
+_Quelle: http://alles-schallundrauch.blogspot.com/2023/07/iran-wo-alte-fuchs-ali-khamenei-recht.html_
+
+##### Habecks Masterplan: Migranten sollen Wärmepumpen einbauen
+
+_Von CLAUDIO MICHELE MANCINI* |_ _14. Juli 2023_
+
+Geht es nach Robert Habeck, werden wir bald in einem Land voller schwarzer, bärtiger Installateure leben,
+die mit ihren Gebetsteppichen am Arbeitsplatz erscheinen. Nachdem der Muezzin seinen ‹Segen› gegeben
+hat, werden sie Tag und Nacht Habecks Öfen in unsere Häuser einbauen.
+Wir können aufatmen. Wenn wir ursprünglich gedacht haben, dass unser Land von Raketenwissenschaftlern, Ärzten, Kosmonauten oder Diplom-Mathematikern geflutet wird, also von Menschen, denen es in Afrika
+zu heiss geworden ist stellt sich nun heraus dass wir uns alle gründlich geirrt haben
+
+
+-----
+
+Dank der überragenden politischen Köpfe in der grünen Partei erfahren wir, dass sich in unserem Land inzwischen nicht etwa 2,5 Millionen Sozialgäste mit kriminellen Neigungen aufhalten, vielmehr beherbergen
+wir ein enormes Potential engagierter und wissensdurstiger Neubürger, die nur darauf gewartet haben,
+endlich in Deutschland anpacken zu können. Robert Habeck hat gemeinsam mit seinen hochkarätigen Assistenten aus dem grünen ‹Think-Tank› einen genialen Masterplan entwickelt, mit dem er zwei der fünf
+grössten Herausforderungen unseres Landes binnen kürzester Zeit bewältigen wird. […]
+
+**Worum geht es?**
+
+Um nichts Geringeres, als die weltweite Klimakrise in einem Aufwasch mit der deutschlandweiten Ofenkrise
+zu beenden und das mit einem geradezu verblüffend überzeugenden Lösungsansatz. Dabei wird in seinem
+Gesetzesentwurf zur Weiterentwicklung der Fachkräfteeinwanderung (FEG-Novelle) und deren beschlossene Eckpunkte mit der Fachkräfteeinwanderung aus Drittstaaten verknüpft. So heisst es, dass die «Verordnung zur Weiterentwicklung der Fachkräfteeinwanderung branchenübergreifend zur Linderung von Fachkräfteengpässen beitragen» würde.
+Die Bundesregierung sieht daher bei den bereits Anwesenden Migranten und der weiteren Zuwanderung
+von Neubürgern einen elementaren Lösungsansatz für das Fachkräfteproblem – und somit auch für die
+fehlenden Monteure. Und wer da jetzt glaubt, das sei ein Witz, der irrt. Der nordrhein-westfälische AfDBundestagsabgeordnete Harald Weyel wollte in einer kleinen Anfrage Genaueres wissen. Die Antwort sorgte
+beim Fragensteller für Irritationen, zumal laut Wirtschaftsministerium bis 2030 sechs Millionen Wärmepumpen installiert werden sollen.
+«Das Wirtschaftsministerium ist sich des Arbeitskräftemangels bewusst und beziffert die Lücke auf bis zu
+14’000 Fachkräfte, die durch ein Aufbauprogramm geschlossen werden soll», so das offizielle Statement
+der Koalitionsregierung. […]
+Mit diesem Geistesblitz, der seinesgleichen sucht, will Robert Habeck 14’000 Migranten rekrutieren, die in
+der Regel nicht lesen und schreiben können, die Landessprache nicht beherrschen und vom Lehrberuf
+eines erfahrenen Installateurs für hoch komplexe Heizsysteme so weit entfernt sind, wie die russische Weltraumsonde Phobos vom Mars. […]
+Laut Zentralverband Sanitär, Heizung, Klima fehlen etwa 60’000 zusätzliche Installateure, um das OfenRettungs-Ziel zu erreichen. […]
+Nun ja, der Plan scheint mir ambitioniert, aber, wie die meisten der grünen High-End-Pläne unmöglich umsetzbar zu sein. Ganz abgesehen von den lästigen Arbeitszeiten, die für die Migranten wenig arbeitnehmerfreundlich sein dürften, zumal sie mit den Öffnungszeiten des Sozialamts kollidieren.
+Doch zu allererst benötigte man mindestens 500 Lehrer. Die allerdings müssten, um einen ordentlichen
+Deutschunterricht durchführen zu können, schon der Verständigung wegen, mindestens ein Dutzend arabische Dialekte einschliesslich Suaheli beherrschen. Mir ist zwar kein Lehrer bekannt, der fliessend arabisch
+spricht, aber das kann daran liegen, dass ich nicht hinreichend recherchiert habe. Gleiches gilt dann natürlich auch für die sich anschliessende berufliche Fachausbildung mit Ausbildern mit ebensolchen Sprachkenntnissen. [..]
+Machen wir es kurz: Wenn Grüne eine Idee entwickeln oder gar innovativ sind und dann noch die Pläne
+durchziehen, wird unsere Welt hinterher eine vollkommen andere sein. So viel steht fest. Ich sehe es kommen, wir werden in einem Land voller schwarzer, bärtiger Installateure leben, die mit ihren Gebetsteppichen
+am Arbeitsplatz erscheinen. Nachdem der Muezzin seinen ‹Segen› gegeben hat, werden sie Tag und Nacht
+Habecks Öfen in unsere Häuser einbauen und nicht eher ruhen, bis Deutschland vollkommen klimafrei sein
+wird. Ausser, im Fastenmonat Ramadan …, da haben die deutschen Bürger dann ofenfrei. (Den ganzen
+Text kann man bei ‹Mancinis Scharfblick› lesen.)
+
+**_* Claudio Michele Mancini wurde kurz nach Kriegsende als Sohn einer deutschen Mutter und eines italienischen_**
+**_Vaters geboren und wuchs in der Provinz Verbania am Lago Maggiore auf. 1964 machte er auf einer Klosterschule_**
+**_sein Abitur, studierte in München Psychologie und arbeitete danach als Dozent und Unternehmensberater in Frank-_**
+**_reich, Italien, Deutschland und den USA. Im Jahr 2003 erschien seine Satiren-Sammlung Finsterland. Bekannt wurde_**
+**_er durch sein Romandebüt Infamità._**
+_Quelle: https://www.pi-news.net/2023/07/habecks-masterplan-migranten-sollen-waermepumpen-einbauen/_
+
+##### Extrem unterschiedliche Chargen des Covid-‹Impstoffs› 
+ – von enormen Nebenwirkungen bis Placebos
+
+_Hwludwig, Veröffentlicht am 14. Juli 2023_
+
+**Wie kommt es, dass die allermeisten Menschen nach der Covid-‹Impfung› keinerlei ernste Nebenwirkun-**
+**gen haben, ein bei Impfungen noch nie verzeichneter Teil aber – ohne Vorerkrankungen – erhebliche oder**
+**schwere bis tödliche Schäden erleiden? Auf extrem unterschiedliche Chargen (Produktionseinheiten), im**
+**Allgemeinen unwahrscheinlich, haben 2021 bereits amerikanische Forscher aufmerksam gemacht. Dies**
+
+
+-----
+
+**wurde durch eine am 30. März 2023 veröffentlichte Untersuchung dreier dänischer Wissenschaftler von**
+**der Uni Kopenhagen bestätigt. Fünf deutsche Wissenschaftler haben sich damit gründlich auseinander-**
+**gesetzt und ihre Analysen öffentlich bekannt gemacht. Der Verdacht liegt nahe, dass die Sache System**
+**hat.**
+‹The Epoch Times› berichtete am 7. Juli 2023, dass eine Gruppe von fünf deutschsprachigen Wissenschaftlern seit anderthalb Jahren öffentlich die Qualität und Sicherheit der Corona-Spritzen hinterfragen. Zwei
+von ihnen, Dr. Gerald Dyker, Professor für organische Chemie an der Ruhr-Universität Bochum, und Dr.
+Jörg Matysik, Professor für analytische Chemie an der Universität Leipzig, traten kürzlich erneut an die
+Öffentlichkeit. In der Video-Sendung Punkt.Preradovic der Journalistin Milena Preradovic diskutierten sie
+über Unterschiede in den ‹Impfstoff›-Chargen. Ihr Ausgangspunkt war die genannte dänische Studie, die
+enorme Schwankungen bezüglich der Nebenwirkungen verschiedener Chargen des Corona-Wirkstoffs von
+Pfizer-BioNTech zeigte. Dies wird hier graphisch dargestellt:
+
+Verdachtsfälle von Nebenwirkungen der Impfstoffchargen in Dänemark von 27.12.2020 bis 11.1.2022.
+Jeder Punkt markiert eine Charge.
+Die Abbildung erfasst über 40 Impfstoffchargen, die in Dänemark gespritzt wurden. Auf der (horizontalen)
+x-Achse sind die Zahlen der verabreichten Dosen markiert; auf der Y-Achse erscheinen in Abhängigkeit
+davon die Mengen der Nebenwirkungen, die von den Forschern in drei Gruppen farblich hervorhoben sind.
+Zusammenfassung der Nebenwirkungen nach Impfstoffchargen in Dänemark:
+
+**Erklärung der Graphiken:**
+
+Die ‹grünen› Chargen weisen ein mässiges oder mässig hohes Mass an unerwünschten Nebenwirkungen
+auf. Wie Prof. Dyker erklärte, seien diese Chargen in Dänemark am meisten verwendet worden. So seien
+aus einer einzelnen Charge (der grüne Punkt ganz rechts) über 800’000 Dosen verabreicht worden, die
+etwa 2000 Verdachtsfälle mit unerwünschten Nebenwirkungen mit sich gebracht hätten.
+Das bedeute, dass in der gesamten Gruppe mit einer Nebenwirkung pro 400 Dosen zu rechnen sei. «Das
+ist nicht wenig, wenn man das vergleicht mit dem, was wir sonst von Grippeschutzimpfungen kennen»,
+sagte Prof. Dyker.
+Insgesamt fielen über 60 Prozent aller verabreichten BioNTech-Dosen in Dänemark in die grüne Gruppe.
+Die ‹blauen› Chargen seien offensichtlich mit einer ausserordentlich hohen Anzahl von unerwünschten
+Nebenwirkungen verbunden. Wie Prof. Dyker feststellte, seien in Dänemark von keiner der blauen Chargen
+mehr als 80’000 Dosen verabreicht worden. Möglicherweise seien diese besonders schlechten Chargen von
+den Gesundheitsbehörden stillschweigend vom Markt genommen worden.
+
+
+-----
+
+Dennoch habe es in einzelnen dieser Chargen bis über 8000 gemeldete unerwünschte Nebenwirkungen
+gegeben.
+Insgesamt ergebe sich in allen blauen Chargen eine Melderate von einer unerwünschten Nebenwirkung pro
+elf Dosen. Prof. Dyker erklärte jedoch, dass einige der blauen Chargen sogar mit einer Melderate von 1:6
+verbunden seien.
+Und während weniger als fünf Prozent der verabreichten Dosen aus blauen Chargen stammten, verzeichneten die dänischen Forscher darin fast 71 Prozent aller Nebenwirkungen und knapp die Hälfte der 579
+erfassten Todesfälle.
+Die ‹gelben› Chargen schliesslich liegen im Diagramm ausschliesslich auf oder nahe der Nulllinie. Nach
+Prof. Dykers Berechnungen umfassen die gelben Chargen gut 30 Prozent aller Impfdosen. Einzelnen Chargen entstammen dabei fast eine halbe Million Dosen, allerdings gab es bei diesen buchstäblich keine unerwünschten Ereignisse. – Oder wie Dyker es ausdrückt, «böse Zungen würden anmerken, so würden auch
+Placebos aussehen.»
+
+**Qualitätskontrolle?**
+
+Nach den beiden Professoren scheine nur eine einzige – die erste – der harmlosen ‹gelben› Chargen vom
+hier zuständigen Paul Ehrlich Institut (PEI) überhaupt einer Qualitätskontrolle unterzogen worden zu sein.
+Prof. Dyker wies darauf hin, dass das dem Bundesgesundheitsminister unterstehende Institut dagegen alle
+sehr schlechten ‹blauen› Chargen und die überwältigende Mehrheit der nicht so schlechten ‹grünen› Chargen getestet und zugelassen habe. Alle weiteren hätten den Prozess offenbar nicht durchlaufen. So als ob
+das PEI im Voraus gewusst hätte, dass diese Chargen unproblematisch waren, erklärte Prof. Dyker. «Das
+würde den Anfangsverdacht unterstützen, dass es sich vielleicht tatsächlich um so etwas wie Placebos
+handelt.»
+Oder, wie es die deutschen Professoren zusammenfassten: Die guten waren schlecht (grün), die schlechten
+waren sehr schlecht (blau), und die sehr guten waren Kochsalzlösung (gelb).
+Die Frage, wer die Chargen freigegeben habe, konnte Dyker nicht beantworten. Die Antwort des PEI stehe
+aus.
+
+**‹Tödliche Chargen› seit Ende 2021 bekannt**
+
+‹Epoch Times› berichtet in ihrem Artikel, sie habe sich bereits im Januar 2022 bezüglich der «Häufung von
+Verdachtsfällen auf Nebenwirkungen bei bestimmten Impfstoff-Chargen» an verschiedene Einrichtungen
+gewandt. Grundlage der Recherche seien die Veröffentlichung der Website www.howbadismybatch.com
+gewesen. Diese wiederum beruhten auf Auswertungen der amerikanischen VAERS-Daten. Darin habe Craig
+Paardekooper, Softwareentwickler aus London, mehrere ‹tödliche Impfstoffchargen› identifiziert, deren
+Chargennummern er auf der Webseite veröffentlicht habe.
+Bereits Ende 2021 habe er berichtet, dass ausweislich der VAERS-Informationen fünf Prozent aller Chargen
+**für 95 Prozent der beobachteten schweren und schwersten Nebenwirkungen in den USA verantwortlich**
+**seien.**
+Darauf angesprochen, habe es vom PEI in einer E-Mail vom 7. Januar 2022 geheissen: Diese Daten müssten
+‹aufwendig extrahiert und zusammengestellt werden›. Das sei insbesondere in der damaligen Situation
+nicht möglich. «Häufungen von Verdachtsfallmeldungen würden aber auffallen und dem würde nachgegangen.»
+Von Seiten der Europäischen Arzneimittelagentur (EMA) habe es im selben Zusammenhang auf mehrmalige Nachfrage geheissen: «Sicherheitssignale im Zusammenhang mit Chargen sind äusserst selten. Die EMA
+hat bisher bei keinem der COVID-19-Impfstoffe chargenbezogene Probleme gesehen oder bestätigt, obwohl
+Hunderte Millionen Dosen verabreicht wurden.»
+Im Rahmen der Entscheidung des Bundesverwaltungsgerichts zur sogenannten Soldaten-Impfpflicht im
+Sommer 2022 habe der federführende Anwalt Wilfried Schmitz vom PEI ebenfalls wissen wollen, ob man
+die Website von Paardekooper kenne. Vom anwesenden Sachverständigen des PEI sei das erneut verneint
+worden.
+‹Epoch Times› habe anlässlich der jüngsten Entwicklung Pfizer/BioNTech sowie PEI und EMA erneut um
+Stellungnahme gebeten. –
+Man darf auf die ausweichenden Antworten gespannt sein.
+Ist das Ganze nicht mehr als merkwürdig? Die Indizien zu einem globalen systematischen Vorgehen des
+‹Eliten-Netzwerks› werden immer breiter.
+_Quelle:_ _https://fassadenkratzer.wordpress.com/2023/07/14/extrem-unterschiedliche-chargen-des-covid-impstoffs-von-_
+
+_enormen-nebenwirkungen-bis-placebos/_
+
+
+-----
+
+##### Doug Casey über Chinas Vorherrschaft 
+ bei wichtigen Seltenen Erden und was als Nächstes kommt
+
+_uncut-news.ch, Juli 14, 2023_
+
+_Internationaler Mensch: Was sind Seltene Erden (REEs) und warum sind sie so wichtig?_
+_Doug Casey: Die Seltenen Erden sind eine Gruppe von 17 Elementen, die Sie vielleicht noch aus Ihrem_
+Chemieunterricht in der Schule kennen. Sie nehmen zwei Reihen im Periodensystem ein und befinden sich
+ganz unten in der Tabelle. Sie sind miteinander chemisch fast identisch.
+Die REEs sind auf der Erdoberfläche weitverbreitet. Sie sind nicht per se ‹selten›, aber da sie im Allgemeinen
+nicht konzentriert sind, findet man nur selten Lagerstätten, die reich genug sind, um als Mine für Elemente
+wie Germanium, Gadolinium, Ytterbium, Yttrium oder 14 andere mit exotischen und obskuren Namen
+infrage zu kommen. Es handelt sich im Grunde um kleinere Nebenprodukte von Minen für andere Elemente,
+vorwiegend Aluminium oder Zink. Erst in jüngster Zeit haben sie mit der Entwicklung der Hochtechnologie,
+insbesondere der Elektronik und der Magnete, eine bedeutende Verwendung gefunden. Vor fünfzig Jahren
+waren sie im Grunde nur chemische Kuriositäten.
+In den USA gibt es eine reine REE-Mine, die Mountain Pass Mine in der kalifornischen Wüste in der Nähe
+von Nevada. Es ist sogar die einzige in der westlichen Hemisphäre. Sie gehört jetzt MP Materials (MP: NYSE
+$25), aber ich habe keine Meinung zu diesem Betrieb. Unter dem letzten Eigentümer ging er in Konkurs –
+vielleicht wird es dieses Mal besser laufen.
+_Internationaler Mensch: Der ehemalige chinesische Führer Deng Xiaoping sagte einmal: «Der Nahe Osten_
+hat Öl. China hat seltene Erden.» Heute dominiert China bei der Produktion und Verarbeitung von Seltenen
+Erden. Warum ist das so? Wie wahrscheinlich ist es, dass die USA oder jemand anderes in der Lage sein
+wird, Chinas Vorherrschaft bald zu brechen?
+_Doug Casey: Deng hatte nicht ganz recht, als er das sagte Chinas Stärke in diesem Bereich liegt nicht so_
+sehr im Abbau, sondern vielmehr in der Verarbeitung dieser Materialien. Der Abbau jeglicher Art von Erzen
+ist schmutzig und dreckig. Aber die Verarbeitung kann noch schlimmer sein. Die Verhüttung erfordert grosse Mengen an Hitze, erzeugt viel unangenehmen Rauch und hinterlässt kiloweise Giftmüll. Bei der anschliessenden Raffination wird noch mehr davon benötigt, in der Regel zusammen mit fiesen Säuren. Die Grünen
+hassen Bergbau und Raffination und versuchen, sie an den meisten Orten unmöglich zu machen. Deshalb
+findet so viel davon in China statt.
+Man könnte sagen, dass die immense politische und mediale Macht der Grünen und Ökokrieger der wahre
+Grund dafür ist, dass der Westen bei den REEs auf China angewiesen ist.
+Hinzu kommt, dass die USA China mit ihren Sanktionen, wie dem jüngsten Embargo für Chips, provozieren.
+Daher haben die Chinesen im Gegenzug – was übrigens eine gute Spieltheorie ist – beschlossen, ein Embargo für Gallium und Germanium zu verhängen. Gallium und Germanium sind nicht nur für Hightech- und
+Militäranwendungen wichtig, sondern werden auch für Windenergie, Solarenergie und elektronische Fahrzeuge benötigt.
+Es ist eigentlich ziemlich pervers. Der Wahn, die Welt mit Wind-, Solar- und Elektrofahrzeugen vor dem
+Dämon Öl zu retten, hat dazu geführt, dass sich der Westen selbst in den Fuss schiesst, indem er versucht,
+auf sogenannte erneuerbare Energien umzusteigen. Wenn die Wind-, Solar- und EV-Manie verschwinden
+würde, bräuchten wir wirklich nicht so viele REEs.
+Das ist besonders ironisch, weil riesige Windmühlen und riesige Solarparks nicht nur höchst unwirtschaftlich und unzuverlässig, sondern auch sehr ungrün sind. Diese Leute berücksichtigen nicht nur nicht die
+immensen Kosten für den Abbau, die Raffinierung und die Herstellung dieser Artefakte, sondern haben
+noch nicht einmal die Kosten für ihre Entsorgung am Ende ihrer Nutzungsdauer in 10–20 Jahren bedacht.
+Die indirekten und verzögerten Folgen der Billionen-Dollar-schweren ideologischen Aussagen, die sie
+machen, sind enorm.
+Können wir in den USA mehr Seltene Erden – sowie Millionen Tonnen Nickel, Kupfer, Lithium und andere
+für eine rein elektrische Welt benötigte Elemente – fördern? Auf jeden Fall – auch wenn die Idee idiotisch
+ist. Bis 1980 wurden Seltene Erden hauptsächlich in den USA hergestellt. Erst seit 1980 hat China die Produktion übernommen. In der Zwischenzeit ist die US-Produktion fast auf Null gesunken.
+Tatsache ist, dass seit zwei Generationen nur sehr wenige Studenten in den USA ein Studium in Bereichen
+wie Geochemie, Geologie und Bergbauingenieurwesen absolvieren. In China hingegen tun dies sehr viele.
+Infolgedessen wird es in China noch mehr Bergbau, Erschliessung und Produktion geben und in den USA
+viel weniger.
+_Internationaler Mensch: Wie beurteilen Sie die geopolitische Bedeutung von Chinas Aufstieg und den Nieder-_
+gang der USA? Mit anderen Worten, könnten sich die USA jemals damit abfinden, die Nummer 2 zu sein?
+_Doug Casey: Leider sind die USA zum jetzigen Zeitpunkt nur die Nummer eins im Hinblick auf Ausschwei-_
+fung, Wokeism und Konsumverhalten.
+
+
+-----
+
+Beim Bergbau, auch bei den Seltenen Erden, dauert es in der Regel mindestens zehn Jahre von der Entdekkung bis zur Aufnahme der Produktion. Ganz abgesehen davon, dass die Entdeckung eines wirtschaftlichen
+Vorkommens bei jedem Mineral ungewöhnlich ist. Selbst nach der Entdeckung, die in der Regel sehr kostspielig ist, dauert es weitere zehn Jahre, bis die Finanzierung gesichert ist und die behördlichen Genehmigungen für die Aufnahme der Produktion erteilt werden. Das ist ein sehr riskanter Prozess, denn in 10 Jahren kann alles passieren. In der heutigen Welt ist das eigentlich ein Narrenspiel – und ich spreche als
+jemand, der den grössten Teil seines Lebens damit zugebracht hat.
+Die USA haben in den vergangenen 40 Jahren einen radikalen Niedergang in der Produktion von realen
+Gütern erlebt, und dieser Niedergang wird sich wahrscheinlich fortsetzen. Sie sind zu einer sogenannten
+‹Dienstleistungs›-Wirtschaft geworden. Um einen treffenden, wenn auch politisch unkorrekten Aphorismus
+zu verwenden: Die USA haben sich in eine Gesellschaft verwandelt, in der wir alle Chinesen sind, die einander die Wäsche abnehmen.
+Es ist noch gar nicht so lange her, dass die amerikanischen Möchtegern-Master of the Universe gerne sagten: «Wir denken, sie arbeiten.» Nun, das Problem ist, dass die meisten Dinge, über die wir nachdenken,
+nicht produktiv sind. Vielmehr sind sie wahnhaft und destruktiv. Es ist kein Zufall, dass die tatsächliche
+Produktion aus den USA abgewandert ist, die im Vergleich zu anderen Ländern der Welt ein Umfeld mit
+hohen Steuern und hoher Regulierung geworden sind.
+China hat viele Probleme, und auch dort könnte es zu einem Zusammenbruch kommen, wenn auch aus
+anderen Gründen. Aber sie haben sich hervorragend entwickelt, und ich gehe davon aus, dass sich dieser
+Trend fortsetzen wird.
+_Internationaler Mensch: Im Jahr 2010 hat China die weltweiten REE-Exporte aufgrund eines Streits mit Japan_
+abrupt gestoppt. Der Durchschnittspreis für Seltene Erden schnellte um das 20-fache in die Höhe. Könnte
+sich so etwas wiederholen?
+_Doug Casey: Auf jeden Fall. China dominiert diese Branche völlig. Wenn die USA China durch Aktionen im_
+Südchinesischen Meer oder durch die Unterstützung Taiwans provozieren, könnten die Chinesen kontern,
+indem sie diese Elemente komplett abschneiden. Das wäre eine Katastrophe für die US-Hightech-Industrie.
+Andererseits sind alle Seltenen Erden in den USA, Kanada und der westlichen Hemisphäre im Überfluss
+vorhanden. Es ist nur eine Frage der Wirtschaft, der Politik und der Zeit.
+_Internationaler Mensch: Welche Auswirkungen hat all das, was wir besprochen haben, auf die Investitionen?_
+Wie würden Sie über die Situation spekulieren?
+_Doug Casey: Wie ich schon sagte, ist das Problem lösbar. Ich gehe davon aus, dass die Preise für Seltene_
+Erden und andere sogenannte strategische Mineralien nur noch weiter steigen können. Höhere Preise sind
+immer die Lösung für Engpässe. Wenn die Preise hoch genug sind, können sogar regulatorische Hürden
+auf die eine oder andere Weise überwunden werden.
+Wie kann man auf die Situation spekulieren? Für die exotischen Metalle gibt es keine Terminkontrakte. In
+der Praxis kann man die physischen Metalle nicht wirklich kaufen. Man kann nur mit ihnen spekulieren, indem man Aktien von Unternehmen kauft, die sie abbauen. Aber welche? Dieser Bereich ist aus vielen verschiedenen Gründen, die ich hier nicht näher erläutern möchte, sehr volatil und riskant. Am besten eignen
+sich wahrscheinlich die Aktien von Rio Tinto oder BHP, den weltweit grössten diversifizierten Bergbauunternehmen. Die Seltenen Erden werden sich nie nennenswert auf ihre Gewinne auswirken, aber eine weitere
+Seltene Erden-Manie könnte ihre Aktienkurse in die Höhe treiben. In jedem Fall weisen sie respektable Dividendenrenditen auf und werden ziemlich weit von ihren früheren Höchstständen entfernt verkauft. Am
+wichtigsten ist, dass sie in der richtigen Branche tätig sind. Die meiste Zeit über ist es ein beschissenes
+Geschäft, aber ich denke, dass es in absehbarer Zukunft gut aussehen wird.
+Chinesische Bergbauunternehmen? Die Chinesen werden den amerikanischen und westlichen Bergbauunternehmen weiterhin das Mittagessen wegfressen. Die Chinesen übernehmen unter anderem den Bergbau in der Dritten Welt. Das liegt daran, dass der lange Arm der US-Regierung es westlichen Unternehmen
+schwierig macht, mit den ausländischen Regierungen zu verhandeln, die diese Vorkommen kontrollieren.
+Es ist fast unmöglich, etwas zu erreichen, es sei denn, man besticht – ich wage das Wort – die örtlichen
+Beamten. Die Chinesen haben im Gegensatz zu den Amerikanern keine Angst davor, das zu tun. Daher
+werden US-Unternehmen bei der Suche nach Seltenen Erden, aber auch bei der Suche nach fast allem,
+was ausserhalb Nordamerikas liegt, weiterhin verdrängt werden.
+Es gibt zwar börsennotierte Bergbauunternehmen in China, aber es ist zu riskant, in sie zu investieren. Die
+US-Regierung könnte sie genauso leicht sanktionieren wie russische Unternehmen.
+_QUELLE: DOUG CASEY ON CHINA’S DOMINANCE OF CRUCIAL RARE EARTH ELEMENTS AND WHAT COMES NEXT_
+_Quelle: https://uncutnews.ch/doug-casey-ueber-chinas-vorherrschaft-bei-wichtigen-seltenen-erden-und-was-als-naechstes-_
+_kommt/_
+
+
+-----
+
+##### Die USA sind Krieg: Notizen vom Rand der narrativen Matrix
+
+_uncut-news.ch, Juli 14, 2023, Caitlin Johnstone_
+
+Die USA haben den Zweiten Weltkrieg gewonnen und sind dann sofort in den Kalten Krieg eingetaucht. Die
+USA haben den Kalten Krieg gewonnen und sich dann sofort an die Arbeit gemacht, den Nahen Osten zu
+zerstören. Die USA zerstörten den Nahen Osten und begannen dann sofort einen weiteren Kalten Krieg zur
+Vorbereitung eines weiteren Weltkriegs. Die USA sind Krieg.
+
+Ein normales Land führt einen Krieg mit dem Ziel, in den Frieden zurückzukehren. Die USA führen Krieg
+mit dem Ziel, in den nächsten Krieg zu ziehen.
+❖
+Das Narrativ vom ‹Völkermord an den Uiguren› ist eine Lüge, das Narrativ von der ‹Schuldenfalle Diplomatie› ist eine Lüge, das Narrativ von der ‹sozialen Kreditwürdigkeit› ist eine Lüge, sie lügen über Taiwan, und
+sie lügen über China, das die Welt erobern will. Sie haben über jede andere ungehorsame Nation gelogen,
+und sie lügen über China.
+❖
+Man kann die Geopolitik und die grossen Konflikte der 2020er-Jahre nicht verstehen, ohne zu begreifen,
+dass das US-Imperium aktiv militärische Bedrohungen in der unmittelbaren Umgebung seiner beiden
+Hauptkonkurrenten aufgebaut hat, die es niemals dulden würde, dass sich jemand anderes in der Nähe
+der USA aufbaut.
+❖
+Wie kann jemand noch die Idee einer progressiven Reform in der Demokratischen Partei unterstützen,
+nachdem er gesehen hat, wie sich AOC vor seinen Augen in Nancy Pelosi verwandelt?
+_AOC –, die ihren Vorwahlkampf 2018 mit dem Versprechen führte, Krieg gegen das Establishment der Demokra-_
+_tischen Partei in DC zu führen, kündigt ihre Unterstützung für Joe Bidens Wiederwahl in den Vorwahlen der_
+_Demokratischen Partei an, an dem Tag, an dem er Streubomben für die Ukraine ankündigte:_
+
+Früher lehnte ich die Idee der Wahl des geringeren Übels ab, weil sie die Menschen dazu veranlasst, für
+böse politische Parteien zu stimmen und damit sicherstellt, dass sie weiterhin für das Böse stimmen. Jetzt
+lehne ich die Wahlpolitik ganz ab, weil man das Böse bekommt, egal, wie man wählt, da das ‹Wählen› selbst
+ein Ablenkungsmanöver ist, um die Illusion von Freiheit und Kontrolle zu erzeugen.
+❖
+Es ist verrückt, wie wir es zulassen, dass reiche Unternehmen die Medien beherrschen, die uns dann jeden
+Tag erzählen, dass wir auf jeden Fall politische Normen unterstützen sollten, die für reiche Unternehmen
+günstig sind.
+❖
+
+
+-----
+
+Ein normaler Mensch hat einen Konflikt mit jemandem und beginnt zu kommunizieren und daran zu arbeiten, das Wahre vom Falschen zu trennen. Ein Manipulator hat einen Konflikt und beginnt sofort damit, die
+narrative Dominanz zu etablieren. Dies gilt sowohl für einzelne Soziopathen als auch für soziopathische
+Imperien.
+❖
+Zu viele Menschen betrachten autoritäre Massnahmen wie staatliche Überwachung, Online-Zensur usw.
+unter dem Gesichtspunkt, wie sie sich direkt auf sie persönlich auswirken, und nicht, wie sie die Gesellschaft
+als Ganzes beeinflussen. Sicherlich ist man selbst vielleicht nicht direkt von Überwachung oder Zensur betroffen, aber man muss in einer Gesellschaft leben, in der die Gedanken, Worte und Verhaltensweisen der
+Menschen von der Obrigkeit in einer Weise streng reguliert werden, die den Interessen der Obrigkeit dient.
+Man muss in einer Zivilisation von gehirngewaschenen, der Macht dienenden Automaten leben, anstatt von
+Freidenkern, die kreative Lösungen für unsere Probleme finden, die die Macht zur Rechenschaft ziehen und
+die Mächtigen in die Schranken weisen, wenn sie nicht den Interessen des Volkes dienen.
+❖
+Die Zivilisation ist ein Spiel. Wie in jedem anderen Spiel gibt es ein Punktesystem, mit dem ermittelt wird,
+wie gut es allen geht. Wie in jedem anderen Spiel gibt es Leute, die besser abschneiden und mehr Punkte
+bekommen als andere. Und wie bei jedem anderen Spiel sind die Regeln völlig frei erfunden.
+Die Regeln bestehen aus erfundenen Finanz- und Wirtschaftssystemen, die das ‹Punktesystem› dieses
+Spiels bilden, sowie aus erfundenen Gesetzen und Regierungspolitiken und erfundenen kulturellen Normen
+und gesellschaftlichen Erwartungen.
+Ein wesentlicher Unterschied zwischen dem erfundenen Spiel der Zivilisation und anderen erfundenen
+Spielen besteht darin, dass Spieler, die nicht gut abschneiden, unter den Konsequenzen der realen Welt
+leiden. Sie können hungern oder obdachlos werden, wenn sie nicht genug von den erfundenen Punkten
+bekommen. Sie können im Gefängnis landen, wenn sie versuchen, auf eine Weise Punkte zu sammeln, die
+gegen die Regeln verstösst. Es kann sogar passieren, dass andere Spieler militärischen Sprengstoff auf ihr
+Haus werfen, wenn sie im falschen Teil der Welt leben.
+Und das, obwohl alles aus Sprache besteht – aus Wörtern. Die gesamte Zivilisation ist nur eine Sammlung
+von Geschichten, die wir alle für wahr halten. Geschichten darüber, wie Geld funktioniert. Wie der Handel
+funktioniert. Wie Arbeit funktioniert. Wie die Gesellschaft funktioniert. Wie wir uns alle auf diesem Planeten,
+auf dem wir geboren wurden, bewegen, organisieren und konsumieren müssen.
+Die gute Nachricht ist, dass wir, wie bei jedem anderen Spiel auch, die Regeln ändern können, wenn sich
+genügend Spieler dafür entscheiden, dies zu tun. Alles besteht aus Erzählungen, und die Erzählungen sind
+nur so real, wie wir bereit sind, so zu tun, als ob sie es wären. Wenn die derzeit vereinbarten Geschichten
+für uns nicht funktionieren, können wir uns kollektiv darauf einigen, nach anderen Regeln zu spielen, und
+wenn sich genug von uns dafür entscheiden, kann uns eigentlich niemand daran hindern.
+Diejenigen, die von den derzeitigen Spielregeln profitieren, wissen das und tun alles, was sie können, um
+sicherzustellen, dass wir weiterhin nach den derzeitigen Regeln spielen. Deshalb ist ein Grossteil unserer
+Medien darauf ausgerichtet, die Politik des Status quo zu normalisieren und Zustimmung zu den Massnahmen zu erzeugen, die zur Aufrechterhaltung der derzeitigen Ordnung der Dinge notwendig sind. Unser Informations-Ökosystem ist ständig gesättigt mit den Erzählungen derjenigen, die in diesem Spiel, das wir
+spielen, die meisten Punkte bekommen.
+Aber wie zuvor erwähnt, das ist alles nur eine Erzählung. Es ist alles nur eine Geschichte. Sie geben sich so
+viel Mühe, unsere Zustimmung herzustellen, weil sie wissen, dass sie unsere Zustimmung unbedingt benötigen, denn wir können jederzeit kollektiv beschliessen, die Spielregeln zu ändern.
+Die schlechte Nachricht ist also, dass wir uns in einem manipulierten Spiel befinden, das zum Vorteil einiger
+weniger manipulativer Spieler gegen uns eingesetzt wird. Die gute Nachricht ist, dass wir nicht mehr mitspielen müssen und uns entscheiden können, etwas anderes zu spielen, wann immer wir dazu bereit sind.
+_QUELLE: THE US IS WAR: NOTES FROM THE EDGE OF THE NARRATIVE MATRIX_
+_Quelle: https://uncutnews.ch/die-usa-sind-krieg-notizen-vom-rand-der-narrativen-matrix/_
+
+##### Der Vater unseres Landes
+
+_uncut-news.ch, Juli 14, 2023_
+
+«Wenn Kokain im Westflügel so reichlich vorhanden ist, dass da irgendwo ‹extra› Kokain rumliegt, wann
+wird das Weisse Haus anfangen, seine Angestellten auf Drogen zu testen?» – Margot Cleveland
+
+Denken Sie einen Moment lang darüber nach, wie perfekt ‹Joe Biden› als Präsident dieser untergehenden
+Republik ist, und seien Sie dankbar dafür. Er und seine Familie projizieren die wahre Essenz jeder Verderbtheit, die das Leben unserer Nation jetzt in einen dunklen Abgrund treibt, wo sie gezwungen sein könnten,
+ihren traurigen Zustand zu bewerten zu bereuen und sich vielleicht zu erholen (oder einfach aufzugeben
+
+
+-----
+
+und zu sterben). Da steht er nun, ohne Zweideutigkeit oder Gewissen: ‹Joe Biden›, die Personifizierung
+eines gescheiterten Staates.
+Als kriminelles Unternehmen spiegelt die Einflussnahme der Familie Biden auf ausländische Mächte genau
+den Charakter der Erpressung im heutigen Amerika wider – nämlich unehrlich Geld zu verdienen, und das
+oft fürs Nichtstun. In Amerikas grösstem Industriezweig, dem Finanzwesen, ist dies absolut der Fall. Sie
+haben vielleicht vergessen, was das Finanzwesen ist und was es tun soll: Nämlich Geld für Aktivitäten zu
+verleihen, die dazu dienen, Dinge von Wert zu produzieren, nützliche Dinge, die die Menschen benötigen
+und wollen, manchmal sogar öffentliche Arbeiten, die jedem in der Gesellschaft zugutekommen.
+
+Das amerikanische Finanzwesen ist heute in der Lage, kostenloses Geld (Darlehen zu minimalen Zinsen)
+von staatlich anerkannten Zentralbanken zu erhalten (die ‹Kredite› aus dem Nichts ausgeben), das Banken,
+Hedge-Fonds, Private-Equity-Gesellschaften und andere Freibeuter in Instrumente wie zinsbringende Anleihen (Darlehen zurück an die Regierung) und Derivate (algorithmische Wetten, die von Marktbewegungen
+abgeleitet werden) verwandeln können, abstrahiert von und abgestimmt auf Marktbewegungen), die auf
+magische Weise Geld vermehren, das letztendlich keinen Wert erzeugt – auch wenn es sich in den Kauf von
+Yachten, Alimentenzahlungen, Luxussuiten in Fussballstadien, private Karibikinseln und den Handel mit
+Menschen für die Verwendung als Sexspielzeug umsetzen lässt.
+Das Biden-Geschäftsmodell lässt sich auch gut auf die Medizin und die Hochschulbildung anwenden, zwei
+Unternehmungen, die wie die Aktivitäten im Weissen Haus von Prestige und Pomp gesättigt sind, die aber,
+ähnlich wie diese Brutstätte der Politik und des Handelns, im Falle der Medizin schockierende Mengen an
+unnötigen Todesfällen (schätzungsweise 251’000 pro Jahr durch von Ärzten erzeugte Behandlungsfehler)
+und im Falle der Hochschulbildung die Produktion fadenscheiniger und schädlicher Big Ideas hervorbringen – während sich beide Unternehmungen wie Turbotumore im sterbenden Körper einer niedergehenden
+Produktionswirtschaft ausbreiten.
+Wie beim Biden-Modell ist Unehrlichkeit nun der Grundpfeiler sowohl bei ‹Meds› (Medizin) als auch bei
+‹Eds› (Erziehung). Unsere Gesundheitsbehörden haben seit Beginn der Covid-19-Epidemie ununterbrochen
+gelogen, und zwar in jeder Hinsicht, vom Ursprung der Krankheit (falls es überhaupt eine war) über die ihr
+statistisch zugeschriebenen Todesfälle bis zu den ‹Impfstoffen›, die zur Bekämpfung der Krankheit entwikkelt wurden. Im Gegenzug zwangen diese Beamten Amerikas Ärzte dazu, die besten Behandlungen (Ivermectin, Hydroxychloroquin) zurückzuhalten und gleichzeitig tödliche Protokolle (Remdesivir plus Intubation) anzuwenden, die garantiert zum Tod von Krankenhauspatienten führten – was die Regierung dann
+mit gigantischen Bonuszahlungen belohnte.
+Die Hochschulen haben ihre Energien vom Lernen auf politischen Aktivismus umgestellt, d.h. auf die Aufführung moralischer Stunts zur Erlangung von Status unter dem Vorwand, sich mit sozialen Problemen zu
+befassen, die auf schlechte Verhaltensentscheidungen und Geisteskrankheiten hinauslaufen. Die Hochschulbildung ist jetzt darauf ausgerichtet, noch mehr von beidem zu erzeugen, und zwar in Form von fabriziertem Rassenhass und sexuellen Qualen (in Zusammenarbeit mit dem medizinischen Establishment).
+Alle Studienfächer an den Hochschulen sind jetzt rassifiziert und geschlechtsspezifisch, und das alles auf
+Kosten des organisierten Wissens, das mit fadenscheinigen Theorien und falschen kryptoreligiösen Missionen belastet wird. Der Eintrittspreis für diesen Karneval der Fälschungen vervielfacht sich schneller als die
+allgemeine jährliche Dollar-Inflation, begünstigt durch staatliche Darlehensgarantien, die ‹Joe Biden› in
+seiner Grosszügigkeit durch einen Schuldenerlass für Studenten kürzen will.
+Natürlich ist es das fantastische Psychodrama innerhalb der Familie Biden, das das interessanteste Modell
+für Amerika darstellt. ‹Joe Biden› sagt uns immer wieder, dass er seinen Sohn liebt, den er als ‹den klügsten
+Mann, den ich kenne› bezeichnet. Die Liebe eines Vaters ist eine wunderbare Sache, ganz sicher. Doch gibt
+es etwas, das Hunter Biden nicht getan hat, um ‹den Big Guy› zu zerstören, ausser, sagen wir, ihm eine 9er
+Stricknadel von Ohr zu Ohr in den Schädel zu rammen?
+Schauen Sie sich an, was Hunter seinem liebenden Vater hinterlassen hat: Ein Fotoarchiv mit Amateurpornografie (einschliesslich sexueller Handlungen mit Kindern), Drogenkriminalität und Notizen über Bestechungsgeschäfte, die so umfangreich und eindeutig sind, dass ein Jurastudent im ersten Semester sie zu
+einem Bundesstrafverfahren und/oder einer Anklageschrift zusammenfassen könnte Hunter schwängerte
+
+
+-----
+
+eine Pole-Dancerin und versuchte in letzter Zeit, sich vor der Zahlung von Unterhalt für die Tochter zu drükken, die er nicht anerkennen wollte, bis ein DNA-Test ihn überführte. Er konnte sich gerade noch vor einer
+Anklage wegen Steuerhinterziehung und einer Anklage wegen Waffenbesitzes retten, weil sein Vater das
+US-Justizministerium als privaten Schutzdienst engagierte und damit die Behörde in Verruf brachte und
+das Vertrauen der Öffentlichkeit in sie zerstörte. Jetzt wird Hunter verdächtigt, einen Beutel Kokain in einem
+Abstellraum des Westflügels deponiert zu haben, wo der Sicherheitsdienst des Weissen Hauses ihn mit
+Sicherheit finden würde.
+Was wir hier erleben, übertrifft eine griechische Tragödie um ein Vielfaches: der unerbittliche Drang, nicht
+nur den Vater zu zerstören, der zufällig (durch die reinste Wahlkampftäuschung) Präsident ist, sondern die
+ganze Nation mit ihm zu zerstören. Und es funktioniert. Die Familie Biden zerfällt in schwelende Trümmer,
+und die USA auch – wie sich in der traurigen Nation Ukraine zeigt, einem eiternden Zentrum der Geldsucht
+der Familie Biden, das mehr als ein Jahrzehnt zurückreicht und nun unnötigerweise als Teil einer massiven
+kriminellen Vertuschung geopfert wird, wobei Amerikas geopolitisches Ansehen auf dem Spiel steht.
+Ich weiss, die Komplexität dieses Melodramas ist überwältigend. Wie kann ein stümperhafter politischer
+Idiot so viel Unheil anrichten? Es ist wirklich ein Wunder. Aber es spielt sich alles in Echtzeit vor unseren
+Augen ab. ‹Joe Biden› – der (seien wir ehrlich) nur zum Teil da ist – Hunter, Bruder Jim und der Rest dieses
+traurigen Clans werden alle untergehen. Wir werden sie nicht vermissen, wenn sie nicht mehr da sind. Alles
+an ihnen ist schändlich, was man von unserem Land nicht gerade behaupten kann. Auf die eine oder andere
+Weise werden sie über Bord geworfen, und dann werden wir sehen, ob wir dieses Schiff wieder aufrichten
+und unter Segel bringen können.
+_QUELLE: FATHER OF OUR COUNTRY_
+_ÜBERSETZUNG: FRITZTHECAT_
+_Quelle: https://uncutnews.ch/der-vater-unseres-landes/_
+
+##### Auf zum Endkampf auch mit China!
+
+_Von WOLFGANG HÜBNER |14. Juli 2023_
+
+Die Folgen der Sanktionen gegen Russland sind für kein Land so negativ und folgenreich wie für Deutschland. Und das spüren die deutschen Bürger längst auch materiell. Doch der konflikt- und kriegslustigen
+Ampel-Regierung samt der nicht besseren Scheinopposition der Union reicht das noch nicht. Nun ist China
+ganz offiziell zum ‹systemischen Rivalen› bestimmt worden. Das ist die Vorstufe zum ‹systemischen Feind›,
+zu dem Moskau nach nur kurzer 80-jähriger Pause schon wieder geworden ist. Daran, dass auch China
+diesen privilegierten Status noch erlangen wird, sollte nicht gezweifelt werden.
+Denn unter welchem künftigen US-Präsidenten auch immer: Das besetzte Vasallendeutschland wird das
+machen, was die sympathische Weltmacht überm Teich für richtig hält. Und dass Russland, China und andere Schurkenstaaten dem Dollarimperialismus ein Ende bereiten wollen, ist Grund genug für Washington,
+gegenüber den Verbündeten erzieherisch tätig zu werden. Die deutschen Wirtschaftsbosse, die noch renitent sind und unbedingt weiter mit und in China Profite machen wollen, tun das sozusagen schon auf eigene Gefahr. Und wenn die Propagandamaschine erst richtig anläuft und Chinesen in Tibet Mönche bei lebendigem Leib grillen, dann werden auch VW und BASF die Segel im Fernen Osten streichen.
+Das wird alles der deutschen Bevölkerung schaden, den Wohlstand noch mehr vernichten? Vielleicht gibt
+es sogar den dritten Weltkrieg? Welch Kleinmut! Stehen westliche Werte auf dem Spiel, müssen halt auch
+Opfer gebracht werden. Resilienz ist deshalb die Modevokabel unserer schweren Zeit – wir alle brauchen
+jetzt und in Zukunft Widerstandskraft: Gegen Russen, Chinesen, AfD und dieses verdammte Anspruchsdenken auf soziale Sicherheit, auskömmliche Renten, gute Schulen und all das andere Gedöns.
+Seit der ‹Zeitenwende›, die der Bundeskanzler im Vorjahr ausgerufen hat, gibt es andere Prioritäten. Zum
+Beispiel den Börsenkurs von Rheinmetall oder die Visagistin der feministischen Aussenministerin. Wer
+systemische Feinde und Rivalen hat, muss in jeder Weise gut gerüstet sein!
+
+_Wolfgang Hübner_
+
+_PI-NEWS-Autor Wolfgang Hübner schreibt seit vielen Jahren für diesen Blog, vornehmlich zu den Themen Geopolitik,_
+_Linksfaschismus, Islamisierung Deutschlands und Meinungsfreiheit. Der langjährige Stadtverordnete und Fraktionsvorsitzen-_
+_de der ‹Bürger für Frankfurt› (BFF) legte zum Ende des Oktobers 2016 sein Mandat im Frankfurter Römer nieder. Der_
+_leidenschaftliche Radfahrer ist über seine Facebook-Seite und seinen Telegram-Kanal erreichbar._
+_Q_ _ll_ _htt_ _//_ _i_ _t/2023/07/_ _f_ _dk_ _f_ _h_ _it_ _hi_ _/_
+
+
+-----
+
+##### NATO-Gipfel bringt Plan zur beschleunigten Aufnahme der Ukraine 
+ in das Militärbündnis hervor und garantiert praktisch den 
+ Ausbruch des Dritten Weltkriegs
+
+_uncut-news.ch, Juli 13, 2023_
+
+Es sollte jeden, der in den USA, Kanada und Europa lebt, beunruhigen, dass zwei Tage, nachdem Joe Biden
+der Welt verkündet hat, dass den USA ‹die Munition ausgeht›, er und seine NATO-Partner ankündigen, dass
+sie ihre Unterstützung für die Aufnahme der Ukraine in das NATO-Militärbündnis verdoppeln, was eine
+klare Provokation für das atomar bewaffnete Russland darstellt.
+Schweden wird sofort in die NATO aufgenommen, und die Ukraine wird auf einen ‹Weg vorwärts› zur vollen
+NATO-Mitgliedschaft gebracht, sagte NATO-Generalsekretär Jens Stoltenberg am Dienstag, 11. Juli, auf dem
+NATO-Gipfel in Vilnius, Litauen.
+«Dies wird die Ukraine näher an die NATO heranführen», sagte er und fügte hinzu, dass der Beitrittsprozess
+für die Ukraine «von einem zweistufigen Prozess zu einem einstufigen Prozess» beschleunigt werde.
+Finnland ist erst vor ein paar Monaten der NATO beigetreten. Jetzt Schweden. Und bald die Ukraine.
+Russland wird von schwer bewaffneten NATO-Mitgliedsstaaten umgeben sein.
+Der Westen hat jetzt seine Karten vollständig ausgespielt.
+Der ganze Grund für den Krieg zwischen Russland und der Ukraine liegt darin, dass Russland nicht wollte,
+dass die Ukraine dem westlichen Militärbündnis, der NATO, beitritt.
+Die NATO ist nicht wie die EU, die ein Wirtschaftsbündnis ist. Die NATO ist ein grosses und wachsendes
+Militärbündnis aus 31 Ländern, das sich seit seiner Gründung 1949 mehr als verdoppelt und in den vergangenen Jahren ehemalige Ostblockstaaten an Russlands Grenze aufgenommen hat, was einen direkten Verstoss gegen die mündlichen Zusicherungen darstellt, die der damalige Aussenminister James A. Baker III
+Russland nach dem Zusammenbruch des Sowjetimperiums 1990 gegeben hat. Wenn ein Land von einem
+Nicht-NATO-Staat angegriffen wird, ist die gesamte NATO verpflichtet, sich im Rahmen einer Klausel zur
+kollektiven Verteidigung, die als ‹Artikel 5› bekannt ist, an den Kämpfen zu beteiligen.
+Was aber, wenn ein NATO-Mitglied eine Invasion durch Russland oder ein anderes Land provoziert? Dann
+sind alle anderen 30 NATO-Mitglieder verpflichtet, dem einen Land, das den Krieg provoziert hat, zu Hilfe
+zu kommen.
+Durch die Einkreisung einer atomar bewaffneten Weltmacht wie Russland handelt die NATO auf die rücksichtslose und provokativste Weise, die für ein Militärbündnis möglich ist, das mit einer Klausel zur kollektiven ‹Verteidigung› ausgestattet ist.
+Unten sehen Sie NATO-Generalsekretär Jens Stoltenberg, wie er auf dem NATO-Gipfel in Vilnius am
+Dienstag, dem 11. Juli 2023, zu den Medien spricht.
+
+
+-----
+
+Stoltenberg teilte den versammelten Medien auch mit, dass die NATO vereinbart habe, 300’000 Soldaten
+in Alarmbereitschaft zu versetzen. «Dies schliesst Luft- und Seestreitkräfte ein», fügte er hinzu.
+Die Aussage, die Ukraine befinde sich auf einem ‹mehrjährigen Weg zur NATO-Mitgliedschaft›, kommt einer
+Kriegserklärung an Russland gleich. Es gibt Russland keinen Anreiz, den Krieg mit der Ukraine zu beenden,
+denn Russland weiss jetzt, dass es, solange es ein souveränes Land namens Ukraine gibt, auf dem Weg ist,
+einem Militärbündnis beizutreten, das sich der Zerstörung Russlands verschrieben hat oder es zumindest
+stark schwächen will. Tatsächlich gibt es in Washington bereits einen Plan der Neokonservativen, der darauf
+abzielt, Russland militärisch zu besiegen und es in mehrere Länder aufzuspalten.
+Auf der Pressekonferenz, die im obigen Video zu sehen ist, sagt Stoltenberg, die NATO habe der Ukraine in
+der Zwischenzeit ‹Sicherheitsgarantien› gewährt, «das Wichtigste, was wir machen können, ist also, der
+Ukraine weiterhin Waffen, Munition und militärische Unterstützung zukommen zu lassen, denn solange
+sich die Ukraine nicht als Nation, als demokratische Nation in Europa, durchsetzt, gibt es keine Frage, die
+über Sicherheitsgarantien oder eine Mitgliedschaft in der NATO zu diskutieren wäre. In der NATO-Frage
+werden wir eine positive Botschaft aussenden … im Laufe des Tages, wenn sich alle Verbündeten auf den
+Text geeinigt haben, aber ich erwarte, dass sich die Verbündeten auf eine Botschaft einigen werden, die die
+Notwendigkeit einer Annäherung der Ukraine an die NATO klar zum Ausdruck bring … hier geht es darum,
+die Ukraine näher an die NATO-Mitgliedschaft heranzuführen, was für die Ukraine bedeutungsvoll sein wird
+und auch die Einigkeit und die Stärke der an die Ukraine gesendeten Botschaft zeigt.»
+Alle Fragen der Medien auf dieser Pressekonferenz klangen wie vorgefertigte, gestellte Fragen von Medien,
+die nicht unabhängig sind, sondern denselben Kräften gehören, die auch die NATO besitzen und betreiben.
+Zur gleichen Zeit, als diese Gruppe kriegslüsterner NATO-Militärs ihre Pläne ankündigt, die Ukraine zu militarisieren und sie zum Spielball ihrer eigenen Agenda zu machen, ‹verurteilen› sie Russland dafür, dass es
+dasselbe in Weissrussland tut.
+Die USA und die NATO dürfen Finnland, Schweden und die Ukraine in ihr Militärbündnis aufnehmen, aber
+Russland darf nicht einmal ein Land, nämlich Belarus, in sein Militärbündnis aufnehmen. Das hört sich
+nach einer Abmachung an, die in dem Bestreben getroffen wurde, einen globalen Flächenbrand auszulösen,
+der in seinem Potenzial, Nationen zu verwüsten, Menschenleben zu vernichten und die Weltordnung auf
+den Kopf zu stellen, noch nie dagewesen ist.
+Die NATO tut so, als wüsste sie nicht, dass Russland militärisch mit China verbündet ist. Vielleicht wissen
+sie etwas über China, was wir nicht wissen. Vielleicht war der Händedruck und die herzliche Verabschiedung
+zwischen dem chinesischen Staatschef und dem russischen Staatsoberhaupt vor einigen Wochen nach
+dem Gipfel nur gespielt. Vielleicht ist China wirklich auf unserer Seite. Ich weiss es nicht. Aber für mich
+sieht es so aus, als hätten wir jetzt alle Voraussetzungen für einen ausgewachsenen Weltkrieg. Alle erforderlichen Zutaten liegen auf dem Tisch und warten nur darauf, dass sie zusammenkommen. Wir haben Russland, China, Iran, Nordkorea und Saudi-Arabien einerseits und die USA, Westeuropa, Australien, Südkorea
+und Japan andererseits. Keine der beiden Seiten scheint die Tür für einen möglichen Frieden auch nur
+einen Spaltbreit offen lassen zu wollen.
+Ja, Russland ist in die Ukraine eingedrungen, um die russischsprachigen Teile des Landes zurückzuerobern.
+Es behauptet, dass diese Russen von der ukrainischen Regierung in Kiew schikaniert und sogar militärisch
+angegriffen werden, seit 2014 ein von den USA unterstützter Staatsstreich stattfand, bei dem ein pro-russischer Führer abgesetzt wurde.
+Fassen wir zusammen, was in den letzten paar Monaten in Bezug auf die Reaktion des Westens auf diese
+Invasion geschehen ist. Die westlichen NATO-Mächte unter Führung der Vereinigten Staaten haben:
+Entsendung von F-16 in die Ukraine, die nun ukrainische Piloten in der Bedienung dieser Flugzeuge ausbilden.
+Frankreich kündigt die Lieferung von Marschflugkörpern an die Ukraine an und schliesst sich damit den
+USA und Grossbritannien als Hauptlieferanten von Langstreckenraketen für die Ukraine an.
+Erst Grossbritannien und dann die USA kündigen an, dass sie panzerbrechende Granaten mit abgereichertem Uran in die Ukraine schicken werden, die, wenn sie eingesetzt werden, wahrscheinlich das reiche Ackerland des Landes auf Jahrzehnte hinaus vergiften werden.
+Die USA kündigen an, dass sie Streubomben in die Ukraine schicken werden, die für die Zivilbevölkerung
+so gefährlich sind, dass sie von 120 Ländern verboten worden sind.
+US-Verteidigungsminister Lloyd Austin sagte, der Zweck des NATO-Engagements in der Ukraine sei es,
+‹Russland zu schwächen›, und andere hochrangige Regierungsbeamte haben sich ähnlich geäussert und
+damit deutlich gemacht, dass diese Ausgaben für Geld, Waffen und möglicherweise amerikanische Leben
+nichts damit zu tun haben, jemanden in der Ukraine von irgendeiner Art von Tyrannei im Namen des
+‹Schutzes der Demokratie› zu befreien.
+Die Staats- und Regierungschefs der NATO treffen sich auf einem Gipfeltreffen in Vilnius, Litauen, um ihre
+Bereitschaft zu erklären, einen immerwährenden Krieg in Osteuropa anzuzetteln, und gleichzeitig zu garantieren, dass der Krieg auf Westeuropa und möglicherweise die Vereinigten Staaten übergreift, weil Russland
+
+
+-----
+
+nun weiss, dass das, was es am meisten gefürchtet hat – eine NATO-Mitgliedschaft der Ukraine – versprochen wurde, Realität zu werden.
+Die heutigen Nachrichten aus Vilnius waren für die Ukraine eine Schreckensnachricht. In den Augen Putins
+und jedes rotblütigen russischen Patrioten hängt die Existenz Russlands nun von der totalen Niederlage
+der Ukraine ab. Erwarten Sie, dass Putin seine Kriegsmaschinerie exponentiell hochfahren wird, denn er
+hat jetzt keinerlei Anreiz mehr, diesen Krieg friedlich zu beenden. Er wird die Ukraine vernichten und sie
+wahrscheinlich für immer besetzen müssen. Alles andere würde den Westen dazu einladen, sich mit seinen
+Waffen an seine Grenze zu setzen und den Weg nach Moskau frei zu machen. Um dieses tragische Ergebnis
+zu vermeiden, hätte der Westen Putin nur versichern müssen, dass die Ukraine ein neutrales Land bleiben
+würde. Sie weigerten sich.
+Aus der Sicht eines im Westen lebenden Zivilisten und Christen sind diese Entwicklungen sehr beunruhigend. Wir leben in einer Zeit historischer globaler Umwälzungen. Bereiten Sie sich auf katastrophale Kriegsauswirkungen vor. Es hätte nicht so weit kommen müssen. Die ukrainische und die russische Führung wollten sich im April 2022 zusammensetzen und ihre Differenzen friedlich beilegen. Aber die Regierungen der
+USA und Grossbritanniens hatten bereits etwas anderes in petto, das in keiner Weise mit Frieden zu tun
+hatte.
+_QUELLE: BREAKING NEWS: NATO SUMMIT PRODUCES PLAN TO FAST-TRACK UKRAINIAN MEMBERSHIP INTO THE_
+_MILITARY ALLIANCE, PRACTICALLY GUARANTEEING ONSET OF WORLD WAR III_
+_Quelle: https://uncutnews.ch/nato-gipfel-bringt-plan-zur-beschleunigten-aufnahme-der-ukraine-in-das-militaerbuendnis-_
+_hervor-und-garantiert-praktisch-den-ausbruch-des-dritten-weltkriegs/_
+
+##### Joe Biden und seine kriegstreiberischen Lakaien scheinen fest
+ entschlossen, Amerika in den Dritten Weltkrieg zu ziehen
+
+_T.H.G., Juli 13, 2023, Michael Snyder_
+
+**Wenn die Atombomben fallen, wird niemand mehr sagen können, er sei nicht gewarnt worden. Dank Joe**
+**Biden und seinen kriegstreiberischen Lakaien steuern wir auf den Dritten Weltkrieg zu, aber die meisten**
+**Amerikaner scheint das nicht zu interessieren. Die meisten von uns feiern einfach weiter ihr Leben, aber**
+in der Zwischenzeit scheinen unsere Führer fest entschlossen zu sein, uns in einen apokalyptischen Konflikt
+zu ziehen. Die Regierung Biden provoziert ständig China und verschärft den Krieg in der Ukraine, und eines
+Tages könnten sie eine Grenze überschreiten, die nie wieder rückgängig gemacht werden kann. Sie spielen
+buchstäblich mit dem Feuer, aber sie werden nicht die Einzigen sein, die sich verbrennen, wenn sie es zu
+weit treiben.
+Diese Woche erfuhren wir, dass die Regierung Biden beschlossen hat, der Ukraine im Rahmen eines neuen
+Militärhilfepakets im Wert von 800 Millionen Dollar Streumunition zu liefern. Wenn Sie nicht wissen, was
+Streumunition ist, finden Sie hier eine hervorragende Erklärung von NBC News…
+_Bei der verbesserten konventionellen Dual-Purpose-Munition (DPICM) handelt es sich um Boden-Boden-Spreng-_
+_köpfe, die explodieren und mehrere kleine Munitionsteile oder Bomben über weite Gebiete verstreuen, was zu_
+_einer weitreichenderen Zerstörung führt als einzelne Geschosse. Bei den Geschossen kann es sich um Spreng-_
+_ladungen handeln, die gepanzerte Fahrzeuge durchschlagen, oder sie können zersplittern oder fragmentieren,_
+_um für Menschen gefährlicher zu sein._
+_Einige Menschenrechtsgruppen lehnen ihren Einsatz ab, weil sie befürchten, dass nicht explodierte Bomblets_
+_oder Blindgänger nach der Schlacht explodieren und unschuldige Zivilisten verletzen oder töten könnten._
+Diese Waffen gelten als extrem gefährlich für die Zivilbevölkerung, da viele von ihnen zunächst nicht explodieren und erst viel später durch zivile Aktivitäten zur Explosion gebracht werden…
+_Da die Bomblets über ein grosses Gebiet fallen, können sie Nichtkombattanten gefährden._
+_Ferner versagen nach Angaben des Internationalen Komitees vom Roten Kreuz zwischen 10 und 40% der Muni-_
+_tion. Die nicht explodierte Munition kann dann Jahre oder sogar Jahrzehnte später durch zivile Aktivitäten zur_
+_Explosion gebracht werden._
+_Laut der Cluster Munition Coalition, einer Aktivistengruppe, die sich für ein weltweites Verbot dieser Waffen ein-_
+_setzt, schlummert die potenziell tödliche Streumunition auch 50 Jahre nach ihrem Einsatz noch in Laos und_
+_Vietnam._
+Wie Sie sehen können, gibt es einen Grund, warum so viele Länder den Einsatz solcher Waffen verboten
+haben. In der Tat haben sich derzeit mehr als 120 Länder auf ein Verbot geeinigt …
+_Einem Übereinkommen zum Verbot von Streubomben haben sich mehr als 120 Länder angeschlossen, die sich_
+_bereit erklärt haben, diese Waffen nicht einzusetzen, herzustellen, weiterzugeben oder zu lagern und sie nach_
+_ihrem Einsatz zu beseitigen._
+_Die Vereinigten Staaten, Russland und die Ukraine gehören zu den Ländern, die das Übereinkommen nicht_
+_unterzeichnet haben._
+
+
+-----
+
+Aber obwohl es einen solchen internationalen Konsens gibt, schickt die Regierung Biden sie trotzdem in
+die Ukraine…
+_Der nationale Sicherheitsberater des Weissen Hauses, Jake Sullivan, erklärte jedoch, die Munition sei für die_
+_Ukraine von entscheidender Bedeutung, um ihre militärischen Operationen gegen die russischen Angreifer auf-_
+_rechtzuerhalten. «Wir werden die Ukraine in diesem Konflikt zu keinem Zeitpunkt schutzlos zurücklassen, Punkt»,_
+_sagte er._
+Warum reden nicht mehr Leute über Jake Sullivan? Er ist ein kriegstreiberischer Spinner, und Joe Biden
+tut so ziemlich alles, was Jake Sullivan ihm sagt. Als Jake Sullivan also vorschlägt, China erneut zu provozieren, macht Joe Biden mit.
+Zero Hedge berichtet, dass die USA nun damit beginnen werden, Taiwan mit fahrzeuggestützten, verstreubaren Minensystemen zu versorgen…
+_Taiwan hat ein neues Verteidigungsabkommen mit den USA im Wert von 146 Mio. USD abgeschlossen, das den_
+_Erwerb von fahrzeuggestützten, verstreubaren Minensystemen (Volcano Vehicle-Launched Scatterable Mine_
+_Systems) vorsieht, die für die Verteidigung der selbstverwalteten Insel im Falle einer chinesischen Militärinvasion_
+_als entscheidend gelten. Dies geschah in derselben Woche, in der das Aussenministerium die Genehmigung für_
+_weitere Munitions- und Logistikgeschäfte in Höhe von 440 Millionen Dollar für Taiwan bekannt gab. Das anste-_
+_hende Geschäft mit den Volcano-Minenverlegesystemen war von der US Defense Security Cooperation Agency_
+_erstmals im Dezember 2022 angekündigt worden. Es umfasste ausserdem M977A4-LKW, M87A1-Panzerab-_
+_wehrminen sowie M88- und M89-Ausbildungsmunition._
+Dies ist natürlich ein weiterer Schritt, der die Chinesen sehr verärgert hat. Und unser Handelskrieg mit
+China hat gerade eine neue Stufe erreicht. Als Reaktion auf neue von den USA auferlegte Beschränkungen
+hat China gerade Exportkontrollen für zwei absolut wichtige Rohstoffe eingeführt …
+_Der Handelskrieg zwischen China und den Vereinigten Staaten über die Zukunft von Halbleitern eskaliert. Peking_
+_schlug am Montag zurück und spielte einen Trumpf aus: Es verhängte Ausfuhrkontrollen für zwei strategische_
+_Rohstoffe, Gallium und Germanium, die für die weltweite Chipindustrie von entscheidender Bedeutung sind._
+_«Wir sehen dies als Chinas zweite und viel grössere Gegenmassnahme zum Tech-Krieg und wahrscheinlich als_
+_Reaktion auf die mögliche Verschärfung des US-Verbots von KI-Chips», so die Analysten von Jefferies. Die Sank-_
+_tionierung eines der grössten amerikanischen Hersteller von Speicherchips, Micron Technology (MU), im Mai_
+_war die erste, so die Analysten._
+Seitdem Joe Biden im Weissen Haus sitzt, sind unsere Beziehungen zu China auf dem Müllhaufen gelandet.
+Und ich denke, es besteht die Möglichkeit, dass die Chinesen tatsächlich in Taiwan einmarschieren werden,
+bevor Joe Bidens Zeit im Weissen Haus vorbei ist. Wenn das passiert, wäre das eine absolute Katastrophe
+für die Weltwirtschaft … Ein militärischer Konflikt um Taiwan würde die Weltwirtschaft um Jahrzehnte
+zurückwerfen, da die Versorgungskette für wichtige Halbleiter lähmend unterbrochen würde, so der Leiter
+eines der führenden Hersteller von Mikrochips auf der Insel.
+Taiwan, eine selbstverwaltete Demokratie etwa 100 Meilen (ca. 161 km) vor China, stellt die weltweit fortschrittlichsten Mikrochips her – die Gehirne in jedem Stück Technologie, von Smartphones und modernen
+Autos bis zu künstlicher Intelligenz und Kampfjets. Wir können es uns einfach nicht leisten, dass es zu
+einem solchen Krieg kommt, denn wir müssen Zugang zu diesen Chips haben. Ohne die Chips, die Taiwan
+produziert, wären wir in einer Welt des Schmerzes … Die Insel ist eine Hochburg für die Herstellung von
+Mikrochips. Laut einem Bericht der Boston Consulting Group aus dem Jahr 2021 werden dort 60% der
+weltweit hergestellten Halbleiter produziert – und rund 93% der modernsten Halbleiter. Die USA, Südkorea
+und China stellen ebenfalls Halbleiter her, aber Taiwan dominiert den Markt, der im vergangenen Jahr fast
+600 Milliarden Dollar wert war. Warum fangen wir also nicht einfach an, mehr Chips in den Vereinigten
+Staaten zu bauen? Nun, in Arizona soll eine 40-Milliarden-Dollar-Fabrik gebaut werden, die aber noch viele
+Jahre von ihrer Fertigstellung entfernt ist…
+_Die USA, die etwa 10% der weltweiten Halbleiterchips und keinen der fortschrittlichsten produzieren, versuchen_
+_auch, die heimische Fertigung anzukurbeln, indem sie Steueranreize für Projekte wie die 40-Milliarden-Dollar-_
+_Fabrik bieten, die der taiwanesische Chipriese TSMC in Arizona baut. Der Aufbau einer so komplexen Industrie_
+_wird jedoch Zeit brauchen, sagte Wu. «Ich würde sagen, 10 Jahre», fügte er hinzu._
+Wenn unsere Führer klug wären, würden sie versuchen, einen Weg zu finden, den Frieden zu erhalten. Aber
+stattdessen verärgern sie Russland und China, und das bringt sie einander nur noch näher …
+_China hat erklärt, dass es engere Beziehungen zum russischen Militär anstrebt, ein Zeichen dafür, dass Moskau_
+_nach der gescheiterten Wagner-Meuterei noch immer die Unterstützung Pekings geniesst._
+_Der chinesische Verteidigungsminister Li Shangfu sagte am Montag bei einem Treffen mit Nikolai Jewmenow,_
+_dem Oberbefehlshaber der russischen Marine, dass «mit den gemeinsamen Anstrengungen beider Seiten die_
+_Beziehungen zwischen den beiden Militärs weiter vertieft und gefestigt werden, ständig neue Fortschritte_
+_machen und ein neues Niveau erreichen werden.»_
+Wenn wir am Ende gegen Russland und China gleichzeitig kämpfen, wäre das ein Alptraum. Und es erübrigt
+sich zu erwähnen, dass ein solcher Konflikt unweigerlich zu einem Atomkrieg führen würde, der das Potenzial hätte, Milliarden von Menschen zu töten …
+
+
+-----
+
+Lasst uns also für den Frieden beten.
+Leider scheinen unsere Führer überhaupt nicht am Frieden interessiert zu sein. Joe Biden und seine kriegstreiberischen Lakaien spielen ein sehr gefährliches Spiel, und das Schicksal der Menschheit steht auf dem
+Spiel.
+_QUELLE: SNYDER: JOE BIDEN AND HIS WARMONGERING MINIONS SEEM ABSOLUTELY DETERMINED TO DRAG_
+_AMERICA INTO WORLD WAR III_
+_Quelle: https://uncutnews.ch/joe-biden-und-seine-kriegstreiberischen-lakaien-scheinen-fest-entschlossen-amerika-in-den-_
+_dritten-weltkrieg-zu-ziehen/_
+
+##### Braucht Deutschland 1,5 Millionen Zuwanderer?
+
+_Autor Vera Lengsfeld, Veröffentlicht am 13. Juli 2023_
+
+_Gastkommentar von Wolfgang Schulze_
+
+Aus welchen Gründen mache Leute ‹weise› genannt werden, ist auch nicht mehr so recht ersichtlich. Also
+gut, zumindest nicht in diesem Fall. Zum Thema Fachkräftegesetz und Arbeitskräftemangel fordert die Wirtschaftsweise Schnitzer eine Zuwanderung von 1'500’000 Fachkräften jährlich. Die Süddeutsche Zeitung
+zitiert sie mit dem Satz, der in derselben Form auch vom Stern, der Welt und vielen anderen übernommen
+wurde: «Deutschland braucht 1,5 Millionen Zuwanderer im Jahr, wenn wir abzüglich der beträchtlichen Abwanderung jedes Jahr 400’000 neue Bürger haben und so die Zahl der Arbeitskräfte halten wollen.» Hm,
+etwas unverständlich, hätte der Vorsitzende der Kolchose vor dem Haufen der Bauern ausgerufen, nachdem
+Grigori Kossonossow, der Wächter der Fliegerschule, sie auf seinem Heimaturlaub etwas ungeschickt zur
+Spende für ein neues Flugzeug aufrief. (hier schnell der Link zur Kuh im Propeller: https://spotify.link/
+uoWtCb0Q8Ab). Also lassen wir den Satz so stehen. Nehmen wir an, was natürlich auch längst nicht mehr
+stimmt, dass die Nachwachsenden die jährlich in Rente gehenden in einem 0-Summenspiel ersetzen.
+400’000 Fachkräfte wandern jedes Jahr aus Deutschland ab.
+Ich hab zwar gelesen, dass es 268’167 Deutsche im Jahr 2022 waren, aber egal. Es wandern ja auch ausländische Fachkräfte ab. Nehmen wir also 400’000 Fachkräfte.
+Sucht man nach Zahlen zu derzeit fehlenden Fachkräften, findet man je nach Quelle Zahlen zwischen
+300’000 und 500’000. Das passt ja in etwa zu den jährlich abwandernden Arbeitskräften. Dem gegenüber
+stehen dann (2022) 3,9 Millionen Personen, die Bürgergeld beziehen, also nicht dem Arbeitsmarkt zur Verfügung standen. Dazu kommen pro Jahr noch ein paar sog. Asylanten, deren Zahl keiner kennt. Man munkelt, gerade seinen es soviel wie 2015. Da waren es ca. 1 Million. Na gehen wir hier mal von 500’000 aus.
+Nun sind das ja nicht alles Fachkräfte, wie uns eigentlich versprochen wurde, aber einfache Arbeiten, die
+auch erledigt werden müssen, könnte jeder leisten, so man sich dazu durchringen könnte, das zu fordern.
+Man weiss jetzt freilich nicht, ob die geforderten 1'500’000 Arbeitskräfte pro Jahr die neu Hinzuziehenden
+bereits beinhalten oder ob die dazu gerechnet werden müssen. Aber bleiben wir bei den 1,5 Millionen. Jetzt
+sehen wir uns den Wohnungsmarkt an. Gehen sie weiter, da gibts nichts zu sehen. Knapp ist untertrieben.
+Und darauf nun noch mal 1,5 Mio Zuzug im Jahr. Das wäre pro Jahr eine Stadt in der Grössenordnung wie
+München.
+In München gibt es derzeit 141 Grundschulen, 44 Mittelschulen, 15 Förderschulen, 24 Realschulen (20
+städtische und vier staatliche), 42 Gymnasien (14 städtische und 28 staatliche), zwei städtische Schulen
+besonderer Art und 93 berufliche Schulen, davon 87 städtische. 2021 gab es in München rund 821’000
+Wohnungen. Das nur mal so. So eine Stadt jedes Jahr neu dazu. Sagt zumindest die Wirtschaftsweise
+Schnitzer.
+Dabei habe ich noch gar nicht die 3,9 Millionen Bürgergeldbezieher bedacht, deren Bürgergeld irgendwer
+erwirtschaften muss Statt dass man von denen aber einfach ein Viertel zum Arbeiten ‹anstubbst› um das
+
+
+-----
+
+Problem elegant zu lösen, indem man ihnen nur noch 50% Bürgergeld zahlt, denkt man über neue Millionenstädte nach, in denen Millionen arbeitswillige Neuzugänge untergebracht werden könnten. Und da wundern wir uns über Inflation, bei der so ein Staat prima verdient und von seinen Schulden runterkäme, wenn
+er nicht noch schneller neue anhäufen würde.
+Wann ist die Bildung im Lande nur so krass abgebogen? Das verrückteste aber, es scheint kaum jemanden
+zu stören.
+_Quelle: https://vera-lengsfeld.de/2023/07/13/braucht-deutschland-15-millionen-zuwanderer/_
+
+##### Bewaffnung Taiwans ist eine wahnsinnige Provokation
+
+_uncut-news.ch, Juli 13, 2023, John V. Walsh_
+
+Die Insel Taiwan ist durch den Zustrom von US-Waffen in ein ‹Pulverfass› verwandelt worden, das das taiwanesische Volk in den ‹Abgrund der Katastrophe› stürzt. Mit diesen Worten reagierte das chinesische Verteidigungsministerium auf den jüngsten Verkauf von US-Waffen im Wert von 440 Millionen Dollar an die Insel.
+Und jetzt geben die USA Taiwan auch noch Waffen, anstatt sie zu verkaufen – mit freundlicher Widmung
+des amerikanischen Steuerzahlers.
+
+**Die Strategie der ‹Ersten Inselkette› der USA**
+
+Taiwan ist nur eine von mehreren Inseln entlang der chinesischen Küste, die oft als ‹Erste Inselkette› bezeichnet wird und die jetzt mit hochmodernen US-Waffen bestückt ist. Diese werden von Zehntausenden
+von US-Militärpersonal und Kampftruppen begleitet. Die ‹Erste Inselkette› erstreckt sich von Japan im Norden nach Süden über die japanischen Ryukyu-Inseln, zu denen auch Okinawa gehört, nach Taiwan und
+weiter bis zu den nördlichen Philippinen. (Der US-Verbündete Südkorea ist mit einem Militär von 500’000
+aktiven Soldaten und 3 Millionen Reservisten ein starker Partner in dieser Kette). In der US-Militärdoktrin
+ist die Erste Inselkette ein Stützpunkt zur ‹Machtprojektion› und zur Beschränkung des Seezugangs zu
+China.
+Taiwan befindet sich im Zentrum dieser Inselkette und gilt als Brennpunkt der Strategie der Ersten Inselkette. Als der kalte Krieger und Aussenminister John Foster Dulles 1951 diese Strategie entwarf, nannte er
+Taiwan Amerikas ‹unsinkbaren Flugzeugträger›.
+Taiwan ist heute eine Quelle des Streits zwischen den USA und China. Wie oft gesagt, aber selten getan
+wird, erfordert das Streben nach Frieden, dass wir die Sichtweise derer verstehen, die als unsere Gegner
+bezeichnet werden. Und in den Augen Chinas sind Taiwan und der Rest dieser bewaffneten Inseln sowohl
+eine Kette als auch eine Schlinge.
+
+Wie würden die Vereinigten Staaten in einer ähnlichen Situation reagieren? Kuba ist etwa so weit von den
+USA entfernt wie die Taiwanstrasse, die Taiwan vom Festland trennt. Denken Sie an die jüngste Reaktion
+der USA auf die Gerüchte, dass China einen Abhörposten in Kuba einrichten würde. Der Kongress reagierte
+beunruhigt und erklärte übereinstimmend, dass eine solche Anlage ‹inakzeptabel› sei. Wie wäre die Reaktion, wenn China Kuba bis an die Zähne bewaffnen oder Hunderte von Soldaten dorthin schicken würde,
+wie es die USA mit Taiwan getan haben? Es ist nicht schwer, sich das vorzustellen. Man denkt sofort an die
+von den USA unterstützte Invasion Kubas in der Schweinebucht und später an die Kuba-Raketenkrise.
+Die Bewaffnung Taiwans ist eindeutig eine Provokation, die die USA näher an einen Krieg mit der Atommacht China heranführt.
+
+
+-----
+
+**Die sezessionistische Bewegung in Taiwan**
+
+Gemäss der Ein-China-Politik, der offiziellen Politik der USA, ist Taiwan ein Teil Chinas. Die UNO vertrat
+1971 mit der Verabschiedung der Resolution 2758 (auch bekannt als Resolution über die Anerkennung
+Pekings), die die Volksrepublik China (VRC) als rechtmässige Regierung ganz Chinas und als deren alleinige
+Vertreterin in der UNO anerkannte, dieselbe Position.
+In den letzten Jahrzehnten hat sich auf der Insel Taiwan eine Abspaltungsbewegung entwickelt, die von der
+DPP (Demokratische Fortschrittspartei) vertreten wird. Derzeit ist Tsai Ing-wen von der DPP Präsidentin.
+Bei den Kommunalwahlen 2022 verlor die DPP jedoch deutlich gegen die KMT (Kuomintang), die mit dem
+Festland befreundet ist und den Status quo oder die sogenannte ‹strategische Zweideutigkeit› erhalten
+möchte. Tsai baute die DPP-Kampagne für 2022 auf die Feindseligkeit gegenüber Peking auf, nicht auf
+lokale Themen. Gleichzeitig hat ihre Regierung ein Gesetz verabschiedet, das die Wehrpflicht für junge
+taiwanesische Männer von sechs Monaten auf ein Jahr erhöht. Es erübrigt sich zu erwähnen, dass dieser
+harte Schritt bei den unter 30-Jährigen nicht sehr beliebt war.
+Umfragen im Jahr 2022 ergaben, dass eine überwältigende Mehrheit der Taiwaner den Status quo erhalten
+will. Nur 1,3% wollen eine sofortige Wiedervereinigung und nur 5,3% wollen die sofortige Unabhängigkeit.
+Im Vergleich zu den Vorjahren gaben 28,6 Prozent der Befragten an, dass sie es vorziehen, den Status quo
+auf unbestimmte Zeit beizubehalten, während 28,3 Prozent sich für den Status quo entschieden, um zu
+einem späteren Zeitpunkt zu entscheiden, und 25,2 Prozent sich für den Status quo mit Blick auf die Unabhängigkeit entschieden. Insgesamt sprechen sich also 82,1% für den Status quo aus! Es überrascht nicht,
+dass sich alle prominenten Präsidentschaftskandidaten für den Status quo aussprechen. Die DPP-Kandidaten behaupten jedoch auch, es bestehe keine Notwendigkeit, die Unabhängigkeit zu erklären, da Taiwan in
+ihren Augen bereits unabhängig ist.
+Die erklärte Politik der Volksrepublik China ist es, eine friedliche Wiedervereinigung mit Taiwan anzustreben.
+Nur wenn die Abspaltungsbewegung formell die Unabhängigkeit erklärt, droht Peking mit Gewaltanwendung. Natürlich wollen die Taiwaner nicht in die Lage der Ukrainer geraten, Kanonenfutter in einem Stellvertreterkrieg der USA zu sein.
+An dieser Stelle sollten wir noch einmal darüber nachdenken, wie der angebliche Feind der USA, China, die
+Dinge sieht und auf einen formellen Akt der Abspaltung und Unabhängigkeitserklärung Taiwans reagieren
+könnte. Und wieder könnten wir uns von unserer eigenen Geschichte leiten lassen. Als sich die Konföderierten Staaten von der Union abspalteten, gerieten die USA in den blutigsten Krieg ihrer Geschichte mit
+620’000 toten Soldaten. Ausserdem bedeutet ein abtrünniges Taiwan als bewaffneter Verbündeter der USA
+für China eine Rückkehr zum ‹Jahrhundert der Demütigung› durch den kolonialen Westen. Angesichts dieser Umstände stellt die Bewaffnung Taiwans eindeutig ein ‹Pulverfass› dar. Ein einziger Funke könnte es
+entzünden.
+Es ist schwer, die Schlussfolgerung zu vermeiden, dass die USA versuchen, einen Stellvertreterkrieg anzuzetteln, der Ostasien verschlingen und nicht nur China, sondern auch andere wirtschaftliche Konkurrenten
+der USA wie Japan und Südkorea schädigen würde. Die USA würden dabei als Sieger hervorgehen. Das ist
+die neokonservative Wolfowitz-Doktrin in der Praxis. Aber im Atomzeitalter sind solche Strategien totaler
+Irrsinn.
+Wenn einige Taiwaner hoffen, dass die USA ihnen zu Hilfe kommen, sollten sie sich die Tragödie in der
+Ukraine vor Augen führen. Zwischen 150’000 und 200’000 ukrainische Soldaten haben bisher ihr Leben
+verloren, und Millionen weitere sind zu Flüchtlingen geworden. Ein ähnlicher Stellvertreterkrieg der USA in
+Taiwan könnte sich leicht zu einem ausgewachsenen Konflikt zwischen den beiden grössten Volkswirtschaften der Welt ausweiten und mit Sicherheit eine globale Depression und vielleicht einen nuklearen Schlagabtausch auslösen. Und US-Präsident Joe Biden hat zugesagt, Truppen zu entsenden, um die Volksbefreiungsarmee zu bekämpfen, sollten Feindseligkeiten ausbrechen. Die Lage ist also noch gefährlicher als in der
+Ukraine!
+
+**Keine Waffen für Taiwan!**
+
+Wenn man all dies bedenkt, ist die Bewaffnung Taiwans ein Vorbote für Probleme auf globaler Ebene.
+Taipeh und Peking können ihre Meinungsverschiedenheiten selbst beilegen. Ehrlich gesagt, gehen die Meinungsverschiedenheiten zwischen den beiden Ländern Amerika nichts an.
+Wir Amerikaner müssen also unsere Regierung davon abhalten, Taiwan aufzurüsten. Und wir müssen unser
+Militär aus Ostasien abziehen. Wir haben weder chinesische Kriegsschiffe vor unserer Pazifikküste, noch
+haben wir chinesische Truppen oder chinesische Militärstützpunkte in unserer gesamten Hemisphäre.
+China fordert eine friedliche Koexistenz und Beziehungen, von denen alle Seiten profitieren. Nehmen wir
+sie beim Wort.
+Und lassen Sie uns all diese Truppen, U-Boote, Bomber, Raketen und Kriegsschiffe aus Ostasien abziehen,
+bevor sie in einen Konflikt stolpern oder zum Instrument einer Operation unter falscher Flagge werden. Wir
+sollten uns an den Zwischenfall im Golf von Tonkin erinnern, einen gefälschten Bericht über einen vietnamesischen Angriff auf ein amerikanisches Schiff, der zur Golf von Tonkin-Resolution führte, einer faktischen
+
+
+-----
+
+Kriegserklärung an Vietnam. Am Ende verloren Millionen von Menschen in Südostasien ihr Leben in diesem
+brutalen, grausamen Krieg. Selbst das wird wie ein Schulhofgeplänkel aussehen, verglichen mit dem Flächenbrand, den ein Krieg zwischen den USA und China auslöst.
+_QUELLE: ARMING TAIWAN IS AN INSANE PROVOCATION_
+_ÜBERSETZUNG: ANTIKRIEG_
+_Quelle: https://uncutnews.ch/bewaffnung-taiwans-ist-eine-wahnsinnige-provokation/_
+
+##### Peter Haisenko – In der echten Demokratie gibt es keinen Krieg
+
+_Dienstag, 18. Juli 2023, von Freeman-Fortsetzung um 20:09_
+
+_https://www.anderweltonline.com/klartext/klartext-20232/in-einer-echten-demokratie-gibt-es-keinen-krieg/_
+
+_Von Peter Haisenko_
+
+Etwa 80 Prozent der Menschheit hat ein gemeinsames Ziel: Leben in Frieden, Freiheit und Wohlstand. Etwa
+fünf Prozent sind Psychopathen, deren Denken von Gier und Machthunger zerfressen ist. Kann man noch
+von Demokratie reden, wenn diese fünf Prozent darüber bestimmen, wie viel Geld für Waffen und Krieg
+ausgegeben wird?
+Zunächst sollten wir uns der Frage widmen, wie es dazu kommen konnte, dass diese fünf Prozent Psychopathen über unser Leben bestimmen können. Dazu hat schon vor beinahe 100 Jahren einer der klügsten
+Köpfe, den die deutsche Kultur jemals hervorgebracht hat, folgendes gesagt. Ich zitiere Professor Dr.
+Hermann Oberth, den Begründer der Raumfahrt. «Im Leben stehen einem anständigen Charakter so und
+so viele Wege offen, um vorwärts zu kommen. Einem Schuft stehen bei gleicher Intelligenz und Tatkraft auf
+dem gleichen Platz diese Wege auch alle offen. Daneben aber auch noch andere, die ein anständiger Kerl
+nicht geht. Er hat daher mehr Chancen, vorwärts zu kommen, und infolge dieser negativen charakterlichen
+Auslese findet eine Anreicherung der höheren Gesellschaftsschichten mit Schurken statt.» Genau diese
+Situation haben wir heute, eine Anreicherung der höheren Gesellschaftsschichten mit Schurken.
+Nach 1990, nach dem Ende des Wettbewerbs der Systeme Kapitalismus und Kommunismus, wurden die
+Bedingungen für diese Schurken immer weiter verbessert. Der ‹demokratische› Kapitalismus musste nicht
+mehr beweisen, dass er das bessere System für die Menschen ist und konnte jetzt seine hässliche Fratze
+ungeniert zeigen. So gibt es jetzt Kapitalgesellschaften, die über derart grosse Geldmittel verfügen, dass sie
+selbst die grössten Staaten erpressen können. Damit waren sie aber noch nie zufrieden und sie haben sich
+die Kontrolle über die Medien genommen. Heutzutage gibt es nur noch fünf oder sechs grosse Medienhäuser und die laufen alle in dieselbe Richtung. Ob es um Corona, Klima oder Krieg geht, sie haben dazu jede
+kritische Haltung gegenüber den Psychopathen in den Schaltzentralen der Macht aufgegeben. Sie sind es,
+die den Bürgern die ‹Alternativlosigkeit› der aktuellen Politik einhämmern.
+
+**Die repräsentative Parteiendemokratie**
+
+Man nennt das ‹gelenkte Demokratie›. Die Medien erklären den Bürgern im Einklang mit den Politikern,
+was sie zu denken und folglich zu wählen haben. Sie sind es, die die Menschen in den Wahnsinn lenken zu
+glauben, durch Krieg könnte irgendetwas Positives erreicht werden. Haben Sie in diesen Systemmedien
+schon mal etwas darüber gelesen, was Krieg wirklich anrichtet? Darüber, dass jeder Krieg ungeheuerlich
+viel davon zerstört, was Generationen in mühevoller Arbeit geschaffen haben? Dass man mal darüber nachdenken müsste, was mit denselben Aufwendungen Gutes für die Menschheit getan werden könnte? Wie
+viele Wohnungen hätten gebaut werden können, mit den Millionen Tonnen an Beton, die in Bunkeranlagen
+verbaut worden sind? Und ganz aktuell, was Krieg und Militär allgemein für den sogenannten ‹Klimaschutz›
+bedeuten?
+Nein, davon hören und lesen Sie nichts. Aber es wird behauptet, die Freiheit und unsere Demokratie werden
+verteidigt. Was meinen die damit? Insbesondere, wenn es um die USA geht? Um die USA, die seit etwa 150
+Jahren nicht von ausserhalb angegriffen worden sind? Die niemand angreifen will? Oder Europa. Das Europa, dessen Länder Russland zu oft angegriffen haben, Russland Europa aber noch nie? Oder China. Wann
+hat China ein fremdes Land angegriffen? Hat China jemals anderen Ländern vorschreiben wollen, wie und
+unter welchem System sie zu leben haben? Und bitte nicht vergessen: Der Kommunismus ist eine westliche
+Erfindung und im Westen gab es den Anspruch, die ganze Welt kommunistisch werden zu lassen. Und was
+die wenigsten wissen, selbst Stalin wollte der Welt den Kommunismus nicht aufzwingen und hatte deswegen den Konflikt mit Trotzki. Stalin war es sogar gleichgültig, ob die DDR kommunistisch oder anders regiert
+wird. Es waren Ulbricht und seine Parteigänger, die den Kommunismus für die DDR unbedingt wollten.
+
+**Die westliche Verteidigungshysterie**
+
+Noch nie wurde ein westlich-demokratisches Land von einem anderen angegriffen mit dem Ziel, dort ein
+anderes System zu erzwingen. Aber wie viele Länder wurden von den westlichen Demokratien angegriffen,
+zerbombt und zerstört, mit dem hehren Ziel, den Menschen dort Demokratie aufzuzwingen? Wer jetzt dazu
+
+
+-----
+
+Ukraine schreit, der muss von der westlich-demokratischen Medienmacht restlos blind gemacht, verblödet
+worden sein. Spätestens seit dem Maidan-Putsch hat dieser korrupte Saustall nichts mehr mit irgendwelchen westlich-demokratischen Werten gemein. Es war der demokratische Westen, der die Ukraine aufgerüstet und in die Konfrontation mit Russland getrieben hat. Das hat Merkel selbst zugegeben. Es ist also wieder einmal genau anders herum. Nicht Russland will Westeuropa erobern, sondern der Westen will auch
+Russland seine Vorgaben aufzwingen, wie ein Staat zu regieren sei; wie die Menschen dort leben sollen.
+Krieg ist ein derart einschneidendes Ereignis, dass in einer echten Demokratie die Bevölkerung, die Wähler,
+befragt werden müssten, ob sie mit einem Krieg einverstanden sind. Es müssten dazu die Informationen
+offengelegt werden, welches Ziel dieser Krieg haben soll und vor allem, welche Risiken und Kosten auf die
+Menschen nicht nur im eigenen Land zukommen werden. Das geschieht aber nicht. Es wird nur die ‹Alternativlosigkeit› betont und Lügen verbreitet, dass der andere Angriffspläne hätte. Nicht ein Gedanke wird
+daran verschwendet, welchem Ziel ein Angriff zum Beispiel Russlands gegen ein westliches Land dienen
+sollte. Imperiale Absichten werden Russland angedichtet von dem Imperium, das erklärtermassen die Welt
+beherrschen will. ‹Full spectrum dominance›, also umfassende Dominanz, ist das erklärte Ziel der USA,
+nicht das Russlands oder Chinas.
+
+**Wie demokratisch ist die BRD?**
+
+Gelenkte Demokratie, von den Medien gelenkte, ist das Modell unserer Demokratie. Unser Modell der repräsentativen Parteiendemokratie. In der BRD dürfen die Bürger nicht einmal ihren Präsidenten wählen. Und
+die Politiker? Gewählt werden kann nur eine Vorauswahl, die innerhalb der Parteien ausgekungelt worden
+ist. Sind die dann erstmal ‹gewählt›, interessiert die das nur einen Dreck, was im Wahlkampf versprochen
+worden ist. Man erinnere sich an die Grünen, die mit Sprüchen geworben haben, keine Waffen in Kriegsgebiete. Oder an Selensky, der den Ukrainern versprochen hatte, Frieden zu schaffen und dafür, nur dafür,
+gewählt worden ist. Eine Demokratie, in der sich die Gewählten nicht an Wahlversprechen halten, ist keine
+Demokratie. Das gehört nur noch zum Imperium der Lügen.
+
+**Geheimhaltung ist undemokratisch**
+
+In einer echten Demokratie darf es keine Geheimhaltung geben. Absolut keine. Es darf nicht sein, dass in
+Akten auch nur eine Zeile geschwärzt ist, bevor sie der Öffentlichkeit zugänglich gemacht werden. Schon
+gar nicht darf es ein, dass der Zugang zu Akten für Jahrzehnte, gar hundert Jahre, den Wählern versagt
+wird. Wie soll der Wähler entscheiden können, wofür oder wogegen er seine Stimme gibt, wenn er nicht
+wissen darf, was in seinem Land wirklich geschieht? Mit der Geheimhaltung ist es aber so, dass der Wähler
+nur die Möglichkeit hat, zwischen ‹Wundertüten› unterschiedlicher Farbe auszuwählen. Was dann da drin
+ist, erfährt er frühestens nach der Wahl, wenn überhaupt. Man bedenke: Geheimhaltung schützt niemals
+den Bürger, den Wähler. Geheimhaltung schützt ausschliesslich diejenigen, die wissentlich Dinge getan
+haben, für die sie sich in einem Rechtsstaat vor einem ordentlichen Gericht verantworten müssten.
+Noch nie hat es einen Krieg gegeben, ohne ‹mediale› Vorbereitung. Es ist unumgänglich, die 80 Prozent,
+die keinen Krieg wollen, derart zu indoktrinieren, bis sie ‹einsehen›, dass dieser Krieg ‹alternativlos› ist. Was
+er nie sein kann. So müssten als erstes alle Journalisten eingesperrt werden, die in irgendeiner Weise Krieg
+propagieren. Und die Politiker mit ihnen, die auf einen Krieg hingearbeitet haben. Ach ja, warum hat wohl
+Merkel den Paragraph 80 StGB zum 1. Januar 2017 streichen lassen? Der besagt: «Wer einen Angriffskrieg
+(Artikel 26 Abs. 1 des Grundgesetzes), an dem die Bundesrepublik Deutschland beteiligt sein soll, vorbereitet und dadurch die Gefahr eines Krieges für die Bundesrepublik Deutschland herbeiführt, wird mit lebenslanger Freiheitsstrafe oder mit Freiheitsstrafe nicht unter zehn Jahren bestraft.» Allerdings wird ihr selbst
+das nicht helfen, denn ihr Betrug mit den Minsk-Abkommen datiert früher. Auch diesen Betrug hat Merkel
+immerhin acht Jahre geheim gehalten. Hätte sie das nicht getan, wäre sie wahrscheinlich nicht wieder zur
+Kanzlerin gewählt worden.
+
+**Krieg und die passenden Wahlergebnisse**
+
+All das zeigt auf, dass wir keine echte Demokratie haben. Die Wähler haben keine Möglichkeit, wirklich darüber zu entscheiden, ob Krieg geführt werden soll, ob Atomwaffen in der BRD bereitstehen oder die USA
+ihre Truppen und Basen hierzulande haben dürfen. Sie werden nicht einmal dazu befragt. Das Thema wird
+in Wahlkämpfen ausgeklammert oder diesbezüglich frech gelogen. Siehe Grüne oder Selensky. Es ist sogar
+so, dass Wahlen so hingetrimmt werden, dass Kriege überhaupt möglich sind. Jugoslawien: Hätte eine
+‹schwarze› Regierung diesen Krieg führen können? Nein! Rot-grün hätte pflichtgemäss lautstark protestiert.
+So aber hat rot-grün den Krieg beschlossen und die CDU hat erwartungsgemäss nicht protestiert. Frage:
+Warum wohl hat Merkel dafür gesorgt, dass jetzt wieder eine rot-grüne Regierung dran ist? Andernfalls hätten gerade die Grünen ihre Wahlkampfparolen nicht ‹vergessen›.
+In einer echten Demokratie gibt es keinen Krieg. Mindestens 80 Prozent der gesamten Menschheit wollen
+das nicht. Sie wollen nicht, dass ihr Hab und Gut, ihre Lebensgrundlage, zerstört wird für Ziele, die nicht
+die ihren sind. Selbst wenn sie in einer Diktatur leben, wie und wer das auch immer definiert, wollen sie
+
+
+-----
+
+nicht mit Bomben und brutaler Zerstörung die Segnungen westlicher Demokratie aufgezwungen bekommen. Wer könnte für sich sagen, es wäre ihm lieber, sein Haus und sein Land wird zerstört, als dass man
+weiter ohne Demokratie lebt? Ohne eine Demokratie, die noch nie verhindert hat, dass Kriege geführt werden. Die erleben mussten, dass ausgerechnet das Land, das allen gewaltsam Demokratie verordnet, das
+Land ist, das die meisten unbegründeten, erlogenen Angriffskriege geführt hat. Deswegen sage ich hier
+ganz klar, solange irgendwo Kriege geführt werden, gibt es nirgendwo echte Demokratie. Vielleicht in der
+Schweiz, aber auch die finanziert Kriegsherren.
+_Quelle: http://alles-schallundrauch.blogspot.com/2023/07/peter-haisenko-in-der-echten-demokratie.html#ixzz87tMunx5n_
+
+##### Korruptes Land im Osten – So sieht die Realität an der Front aus.
+
+_Dienstag, 18. Juli 2023, von Freeman-Fortsetzung um 20:03_
+
+_Ladet dieses Video herunter, so lange es noch auf Youtube ist._
+
+Frage: Wie viele Kinder von von der Leiden und vom Annalena oder irgend eines ukrainischen oder deutschen Politikers sind dort an der Front ?
+Der internationale Korrespondent von Sky News, John Sparks, sprach mit dem irischen Freiwilligen Rhys
+Byrne, der seit 17 Monaten an der Front im Osten der Ukraine kämpft und nun die Ukraine verlässt, ‹weil
+er Zeuge von Greueltaten wurde›, berichtet Sparks. Byrne bezeichnete die Kämpfe, deren Zeuge er wurde,
+als ‹entsetzlich›.
+«An der ‹Nulllinie› ist es der Horror. Es ist einfach ein Völkermord. Es ist ein Gemetzel», sagt Rhys Byrne,
+Codename ‹Rambo›, ein 28-Jähriger aus Dublin. Byrne kämpfte für die 59. Brigade der ukrainischen Territorialarmee, wo er ein schweres Maschinengewehr bediente, berichtet Sparks.
+«Überall sind Tote. Russen tot. Ukrainer tot … das grösste Problem, das wir haben, wenn wir in die Gräben
+gehen, ist, über all die Leichen zu stolpern, die bereits dort liegen, von den Leuten, die zuletzt hineingegangen sind – diese Art von Dingen verfolgt einen wirklich.»
+Byrne und ein anderer Freiwilliger hatten beschlossen, die Ukraine zu verlassen, nachdem sie ‹den letzten
+Strohhalm› ergriffen hatten, der sie fast umgebracht hätte: Eine Begegnung mit einem russischen Panzer.
+«Uns wurde gesagt, es gäbe eine russische Grabenlinie und unsere Aufgabe sei es, in die Gräben zu gehen,
+sie zu räumen und zu halten, bis die Hilfstruppen kommen, und dann können wir zurück.» Byrne sagte,
+dass seine Einheit, die aus 40 Ukrainern, Amerikanern und Briten bestand, in ein Gebiet in der Nähe der
+Front oder der ‹Nulllinie› gebracht wurde, in dem es weder Luftschutz noch Drohnen gab. Ein paar ukrainische Panzer zogen sich zurück und liessen sie ohne Unterstützung zurück.
+Als sie einen weiteren Panzer herankommen sahen, nahmen sie an, es handle sich um einen befreundeten
+Panzer – doch es war ein russischer Panzer, der das Feuer auf ihre Position eröffnete. «Diejenigen, die überlebten, gingen in den Wäldern in Deckung», berichtet Sparks. Die dramatischen Aufnahmen der Körperkamera des Iren dokumentieren den Vorfall.
+Die Freiwilligen wurden von einem ukrainischen Humvee Pick-up unter Beschuss gerettet, als der feindliche
+Panzer begann, sie zu verfolgen. «Jetzt kommt der Panzer buchstäblich heraus und beginnt, uns zu verfolgen. Das ist schon beängstigend, wenn ein grosser T-72 auf einen zukommt und man in einem Humvee
+Pick-up sitzt. Ja, das ist wie ein heisses Messer durch Butter. Du bist am Ende. Also schrien wir wieder alle,
+fahr den Humvee, fahr den Humvee. Ich bin fast durchgedreht.»
+Byrne sah eine russische Granate über ihre Köpfe hinwegsegeln. «Wir sollten eigentlich nicht mehr am
+Leben sein. Ich meine, wir waren dem Tod näher als nahe, es war näher als nahe … es war wirklich
+f*..schrecklich.»
+Sparks sprach mit Byrne in einer Unterkunft für internationale Freiwillige, die von dem neuseeländischen
+Pastor Owen Panoma geleitet wird, der die Unterkunft als «eine Quelle der Unterstützung, Sie wissen schon,
+dort zu sitzen, woher kommen Sie? Habt ihr Kinder? Sie wissen schon, im Grunde, um sich vom Krieg
+abzulenken.»
+Viele der Freiwilligen werden von dem, was sie durchgemacht haben, verfolgt, sagt Panoma: «Sie reden im
+Schlaf Sie schreien Wenn man nachts auf die Toilette geht fragt man: ‹Geht es euch gut?› und die Jungs
+
+
+-----
+
+wachen auf. Sie wissen nicht, was sie da tun. Sie sind sich vielleicht nicht bewusst, was sie eigentlich tun,
+weil es hier ruhig ist, draussen aber nicht.»
+_Quelle: http://alles-schallundrauch.blogspot.com/2023/07/korruptes-land-im-osten-so-sieht-die.html#ixzz87tNmTBVo_
+
+##### Deutschland – Für diese Aussage gehört Hofreiter vor ein Gericht
+
+_Dienstag, 18. Juli 2023, von Freeman-Fortsetzung um 07:55_
+
+Grüne Sprechblase ohne Rückgrat …
+Die Zerstörung der Brücke ist ein völlig legitimes militärisches Ziel der Ukraine. – Vorsitzender des Europaausschusses des Deutschen Bundestages Hofreiter.
+«Die Krim ist ukrainisch und eine beträchtliche Menge an Versorgungsgütern fliesst über die Brücke von
+Kertsch. Die Zerstörung der Brücke ist für Kiew ein völlig legitimes Ziel.» – Hofreiter.
+_Quelle: http://alles-schallundrauch.blogspot.com/2023/07/deutschland-fur-diese-aussage-gehort.html#ixzz87tOObgte_
+
+##### Die CIA ist undicht wie ein Sieb und macht die Ukraine 
+ für das bevorstehende Debakel verantwortlich
+
+_T.H.G., Juli 19, 2023_
+
+Ich möchte einem meiner Leser, Paul S., dafür danken, dass er mich auf diesen bemerkenswerten und witzigen Newsweek-Artikel von Bill Arkin aufmerksam gemacht hat, der ein klassisches Beispiel dafür ist, wie
+die CIA die Ukraine vor den Bus wirft und die Schuld für die sich abzeichnende militärische Katastrophe
+von sich weist. Ich beginne mit einem Zitat aus der Schlussfolgerung des Artikels:
+_In seiner Antwort betonte der ranghöchste Beamte des US-Verteidigungsministeriums das empfindliche Gleich-_
+_gewicht, das die Agentur bei ihren zahlreichen Aufgaben aufrechterhalten muss, und sagte: «Ich zögere zu_
+_sagen, dass die CIA versagt hat.» Aber der Beamte sagte, dass Sabotageanschläge und grenzüberschreitende_
+_Kämpfe eine ganz neue Komplikation geschaffen haben und dass eine Fortsetzung der ukrainischen Sabotage_
+_‹katastrophale Folgen haben könnte›._
+
+_https://www.newsweek.com/2023/07/21/exclusive-cias-blind-spot-about-ukraine-war-1810355.html_
+
+Okay, ich werde es sagen. Die CIA hat versagt, und sie gibt der Ukraine die Schuld. Arkins Artikel wäre nicht
+möglich ohne eine Flut von Leaks über das breite Spektrum der CIA-Aktivitäten in und um die Ukraine. Die
+
+
+##### Deutschland – Für diese Aussage gehört Hofreiter vor ein Gericht
+
+_Dienstag, 18. Juli 2023 , von Freeman-Fortsetzung um 07:55_
+
+Die Zerstörung der Brücke ist ein völlig legitimes militärisches Ziel der Ukraine. – Vorsitzender des Europa-
+
+
+-----
+
+CIA-Offiziere, die die Geheimnisse ausplaudern, sind sehr darauf bedacht, die Nachricht zu verbreiten, dass
+sie einen wirklich fantastischen, grossartigen, wunderbaren Job machen. Das Problem sind die verdammten
+Ukrainer und diese CIA-Offiziere, die zwar behaupten, über solide Mittel zum Sammeln von Geheimdienstinformationen zu verfügen, aber zugeben, dass Selensky und seine Leute die Vereinigten Staaten wie Pilze
+aus dem Boden stampfen – und sie im Dunkeln lassen und mit Scheisse zudecken.
+Der Artikel beginnt mit der müden, falschen Behauptung, dass Russland in Schwierigkeiten steckt:
+_«Putin steht mit dem Rücken zur Wand», sagt ein hochrangiger Beamter des Verteidigungsnachrichtendienstes_
+_gegenüber Newsweek und warnt, dass die CIA zwar weiss, wie sehr Russland in der Ukraine feststeckt, aber_
+_nicht weiss, was Putin dagegen unternehmen könnte. Angesichts von Gerüchten über eine mögliche Stationie-_
+_rung russischer Atomwaffen in Weissrussland und angesichts der öffentlichen Enthüllungen Prigoschins über_
+_die schrecklichen Kosten der Kämpfe, die Moskau unterdrückt hat, sei dies ein besonders heikler Moment, so_
+_der Beamte. «Was ausserhalb des Schlachtfelds geschieht, ist jetzt das Wichtigste», sagt der Beamte, dem Ano-_
+_nymität gewährt wurde, um offen zu sprechen. «Beide Seiten versprechen, ihre Aktionen einzuschränken, aber_
+_es obliegt den Vereinigten Staaten, diese Versprechen durchzusetzen. Dies alles hängt von der Qualität unserer_
+_Geheimdienstinformationen ab.»_
+_https://www.newsweek.com/2023/07/21/exclusive-cias-blind-spot-about-ukraine-war-1810355.html_
+Die Rolle der Vereinigten Staaten in der Ukraine besteht darin, als Fussballschiedsrichter zu fungieren?
+Wirklich? Wie genau agiert die CIA als Vollstrecker von Zusagen? Indem sie ‹hochwertige› Informationen
+liefert. Allerdings erfährt man bei der Lektüre von Arkins Artikel, dass die CIA immer wieder von ukrainischen
+Angriffen in Russland überrascht wird. Sie können nicht beides haben, Bill. Herr Arkin will Ihnen weismachen, dass die CIA in der Ukraine und den umliegenden Ländern der Leonard Bernstein der Spione ist, der
+meisterhaft ein Orchester konkurrierender Länder dirigiert. Ich frage noch einmal: WIRKLICH?
+_Alle glaubwürdigen Experten und Beamten, mit denen Newsweek sprach, stimmten darin überein, dass die CIA_
+_erfolgreich darin war, diskret ihre Rolle im Umgang mit Kiew und Moskau zu spielen, Berge von Informationen_
+_und Material zu transportieren und mit einer Reihe anderer Länder zu verhandeln, von denen einige im Stillen_
+_helfen und gleichzeitig versuchen, nicht ins Fadenkreuz Russlands zu geraten. Und sie haben nicht bestritten,_
+_dass die CIA bei ihrer Hauptaufgabe – zu wissen, was in den Köpfen der russischen und ukrainischen Führung_
+_vorgeht – Schwierigkeiten hatte._
+_https://www.newsweek.com/2023/07/21/exclusive-cias-blind-spot-about-ukraine-war-1810355.html_
+Da haben wir es. Die zentrale Aufgabe der CIA – nämlich herauszufinden, was Putin und Selensky denken
+und planen – ist ein ‹Kampf›. Aber hey, die Moral bei der CIA, jetzt unter der Führung von Dementia Joe
+und Billy Burns, ist FABULOUS!
+_Für die CIA hat ihre wichtige Rolle im Krieg in der Ukraine die Moral gestärkt, nachdem das Verhältnis zwischen_
+_dem ehemaligen Präsidenten Donald Trump und seinen Spionagechefs angespannt war. Der zweite Beamte_
+_sagt, dass einige in der Agentur zwar offener über ihre neue Bedeutung sprechen wollen, dies aber wahrschein-_
+_lich nicht geschehen wird._
+_https://www.newsweek.com/2023/07/21/exclusive-cias-blind-spot-about-ukraine-war-1810355.html_
+Sie möchten Beweise für Dysfunktionalität und Unzulänglichkeit? Einige CIA-Beamte betteln darum, offen
+über ihre Bedeutung in Bezug auf die Ukraine sprechen zu dürfen. Wenn man eine verdeckte Operation
+durchführt, die ein durchschlagender Erfolg ist, braucht man nicht damit zu prahlen. Wie ein altes Sprichwort sagt: «Probieren geht über Studieren.» Im Falle der Ukraine ist der Pudding ungeniessbar.
+Die nächsten paar Absätze lassen stark vermuten, dass William Burns (oder einer seiner Pferdeführer) eine
+wichtige Quelle in dieser Geschichte von Arkin ist. Wussten Sie, dass Burns ein ‹Global Trouble Shooter› ist?
+Wenn es ums Schiessen geht, ist Burns ein schlechter Schütze.
+_Zu Beginn seiner Amtszeit wählte Biden den Direktor William Burns als seinen globalen Troubleshooter aus –_
+_einen Geheimagenten, der in der Lage ist, mit ausländischen Führern ausserhalb der normalen Kanäle zu kom-_
+_munizieren, jemanden, der den wichtigen geopolitischen Raum zwischen offen und verdeckt besetzen kann,_
+_und einen Beamten, der die Arbeit in der Arena zwischen dem rein Militärischen und dem rein Zivilen organi-_
+_sieren kann. Als ehemaliger Botschafter in Russland war Burns besonders einflussreich in Bezug auf die Ukraine._
+_Die CIA hatte Russlands Aufrüstung überwacht, und im November 2021, drei Monate vor der Invasion, schickte_
+_Biden Burns nach Moskau, um den Kreml vor den Folgen eines Angriffs zu warnen._
+_https://www.newsweek.com/2023/07/21/exclusive-cias-blind-spot-about-ukraine-war-1810355.html_
+Ja, lassen wir den Kontext ausser Acht. Nach der Arkin-Fabel bereitete sich Russland ohne triftigen Grund
+auf eine Invasion der Ukraine vor. Tatsächlich unternimmt Arkin keinen Versuch zu erklären, warum die
+Massnahmen der USA und der NATO, wie die Stationierung von zwei Aegis-Raketenbatterien in Polen und
+Rumänien, von Moskau als sehr ernste Bedrohung angesehen wurden, da diese Waffen Atomsprengköpfe
+tragen können. Der einflussreiche Mr. Burns warnte Putin also davor, was die USA tun würden, wenn Russland in die Ukraine einmarschierte, und Russland ignorierte ihn. Ich glaube nicht, dass Arkin die Bedeutung
+des Wortes ‹einflussreich› versteht.
+Dann lässt Arkin eine Reihe von Katzen – Hauskatzen und wilde Tiere – aus dem Sack. Polen ist das Zentrum
+für die militärischen und geheimdienstlichen Operationen der USA im Stellvertreterkrieg mit Russland:
+
+
+-----
+
+_Polen wurde offiziell zum Zentrum der NATO-Reaktion, zunächst bei der Aufnahme von Hunderttausenden von_
+_Flüchtlingen, die vor den Kämpfen flohen, und dann als logistisches Zentrum für Waffen, die in die Ukraine zu-_
+_rückfliessen. Das Land wurde auch zum Zentrum der offenkundigen militärischen Reaktion. Ein vorgeschobenes_
+_Hauptquartier für das V. Armeekorps (5. Korps) wurde in Polen eingerichtet. Zusätzliche Vorräte und Munition_
+_für die USA werden in Polen gelagert. Es wurde eine ständige Armeegarnison aktiviert, die erste an der Ostflanke_
+_der NATO überhaupt, und heute befinden sich etwa 10’000 amerikanische Soldaten in Polen._
+_https://www.newsweek.com/2023/07/21/exclusive-cias-blind-spot-about-ukraine-war-1810355.html_
+Können Sie sich die Reaktion in den Vereinigten Staaten vorstellen, wenn Russland ein vorgeschobenes
+militärisches Hauptquartier in Mexiko mit 10’000 Soldaten einrichten würde? Doch Biden und sein Team
+von Dummköpfen tun dies in Polen, ohne Rücksicht auf die Reaktion Russlands auf eine militärische Aufrüstung an seiner Westgrenze.
+Der letzte Teil des Artikels spiegelt die Verzweiflung der Spione wider, die mit Arkin sprechen. Die Ukrainer
+sind für all die ruchlosen Terroranschläge innerhalb Russlands verantwortlich. Die CIA-Leute lassen verlauten, sie wüssten nichts von Terroranschlägen in Russland. Es ist alles die Schuld von Selensky und seinen
+verrückten Generälen. Der folgende Absatz veranschaulicht den zentralen Widerspruch in Arkins Versuch,
+die CIA zu entlasten: Zu Beginn seines Beitrags wurde uns gesagt, die CIA leiste hervorragende Arbeit beim
+Sammeln von Geheimdienstinformationen, habe es aber völlig versäumt, eine Vorwarnung über die ukrainischen Terroranschläge auf die Kertsch-Brücke und den Luftwaffenstützpunkt Engels zu sammeln. Was ist
+es, Bill?
+_Auf den Angriff auf die Brücke von Kertsch folgte ein Angriff mit noch grösserer Reichweite auf den russischen_
+_Bomberstützpunkt Engels, fast 700 Meilen von Kiew entfernt. Einem hochrangigen US-Beamten zufolge wusste_
+_die CIA im Vorfeld nichts von diesen Angriffen, aber es kamen Gerüchte auf, dass die CIA über eine mysteriöse_
+_dritte Partei andere Angriffe auf Russland anordnete. Die Agentur dementierte dies nachdrücklich und unge-_
+_wöhnlich offiziell._
+_https://www.newsweek.com/2023/07/21/exclusive-cias-blind-spot-about-ukraine-war-1810355.html_
+Ich vermute, dass die CIA-Leute, die mit Arkin sprechen, eine andere Gruppe sind als die, die mit Sy Hersh
+sprechen. Lassen Sie mich das einfach machen – wenn die Ukraine dank der Hilfe der CIA die Russen in
+Grund und Boden stampfen würde und die CIA von einem bevorstehenden ukrainischen Sieg überzeugt
+wäre, dann wäre dieser Artikel nie geschrieben worden. Das riecht nach grosser ‹Arschkriecherei› und
+Schuldzuweisung. Die CIA-Leute machen solche undichten Stellen nur, wenn sie erfahren, dass Plätze in
+den Hubschraubern reserviert werden, die auf dem Dach der US-Botschaft in Kiew landen werden, wenn
+der Tag der Evakuierung kommt. Wir haben es schon einmal in Saigon und Kabul geschafft. Bei Gott, wir
+können es wieder tun.
+_QUELLE: CIA LEAKING LIKE A SIEVE AS IT BLAMES UKRAINE FOR IMPENDING DEBACLE_
+_Quelle: https://uncutnews.ch/die-cia-ist-undicht-wie-ein-sieb-und-macht-die-ukraine-fuer-das-bevorstehende-debakel-_
+_verantwortlich/_
+
+
+-----
+
+## Verbreitung des richtigen Friedenssymbols
+
+Das falsche Friedenssymbol – die heute weltweit verbreitete sogenannte
+
+**Es soll FRIEDEN sein auf Erden** <Todesrune>, die aus den keltischen Futhark-Runen resp. der umgedrehten Algiz
+**And there shall be PEACE on Earth** Rune fabriziert wurde – ist der eigentliche Inbegriff negativer Einflüsse und schafft
+
+zerstörerische Schwingungen hinsichtlich Unfrieden, Fehden und Hass, Rache,
+
+**AMANI** **ΕΙΡΗΝΗ** Laster, Süchte und Hörigkeit, denn die <Todesrune> bedeutet für viele Menschen
+
+Reminiszenzen an die NAZI-Zeit, an Tod und Verderben, wie aber auch Ambitionen
+
+**BARIŞ** **VREDE**
+
+in bezug auf Kriege, Terror, Zerstörungen vieler menschlicher Errungenschaften und
+
+**PAQE** **��** allen notwendigen Lebensgrundlagen jeder Art und weltweit Unfrieden.
+
+**PACE** **שרום**
+
+**МИР** शांित Es Ist wirklich dringlichst notwendig, dass die <Todesrune> als falsches
+**PAIX** **���** Friedenssymbol, das Unfrieden und Unruhe schafft, völlig aus der Erdenwelt
+
+**PAZ** **��** verschwindet und dadurch das uralte sowie richtige Peacesymbol auf der ganzen
+
+Erde verbreitet und weltbekanntgemacht wird, dessen zentrale Elemente
+
+Frieden, Freiheit, Harmonie, Stärkung der Lebenskraft, Schutz,
+
+**FIGU.ORG**
+
+Wachstum und Weisheit reflektieren, aufbauend wirken und
+
+**FIGU, Semjase-Silver-Star-Center, 8495 Schmidrüti**
+
+**Schweiz/Switzerland  Tel. + 41 (0)52 385 13 10** sehr besänftigend und friedlich-positiven Schwingungen
+
+zum Durchbruch verhelfen, die effectiv Frieden,
+
+Freiheit und Harmonie vermitteln können!
+
+Wir wenden uns deshalb an alle FIGU-Mitglieder, an alle FIGU-Interessengruppen, Studien- und Landesgruppen
+
+sowie an alle vernünftigen und ehrlich nach Frieden, Freiheit, Harmonie, Gerechtigkeit, Wissen und Evolution
+
+strebenden Menschen, ihr Bestes zu tun und zu geben, um das richtige Friedenssymbol weltweit zu
+
+verbreiten und Aufklärung zu schaffen über die gefährliche und destruktive Verwendung
+
+der <Todesrune>, die in Erinnerung an die NAZI-Verbrechen kollektiv im Sinnen und
+
+Trachten der Menschen Charakterverlotterung, Ausartung und Unheil fördert.
+
+**Autokleber** **Bestellen gegen Vorauszahlung:** **E-Mail, WEB, Tel.:**
+
+**Grössen der Kleber:** **FIGU** info@figu.org
+
+120x120 mm = CHF 3.– Hinterschmidrüti 1225 www.figu.org
+
+250x250 mm = CHF 6.– 8495 Schmidrüti Tel. 052 385 13 10
+
+300X300 mm = CHF 12.– Schweiz Fax 052 385 42 89
+
+IMPRESSUM Für CHF/EURO 10.– in einem Couvert senden
+
+FIGU-SONDER-ZEITZEICHEN wir Dir/Ihnen 3 Stück farbige Friedenskleber
+
+Druck und Verlag: FIGU Wassermannzeit-Verlag, ------der Grösse 120x120 mm. = Am Auto aufkleben.
+
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+
+Redaktion: BEAM ‹Billy› Eduard Albert Meier,
+
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+
+Wird auch im Internetz veröffentlicht
+
+**Erscheint sporadisch auf der FIGU-Webseite**
+
+
+Postcheck-Konto: FIGU Freie Interessengemeinschaft,
+
+8495 Schmidrüti, PC 80-13703-3
+
+IBAN: CH06 0900 0000 8001 3703 3
+
+**E-Brief: info@figu.org**
+
+**Internetz: www.figu.org**
+
+**FIGU-Shop: http://shop.figu.org**
+
+**© FIGU 2023**
+
+Einige Rechte vorbehalten.
+
+Dieses Werk ist, wo nicht anders
+
+angegeben, lizenziert unter :
+
+www.figu.org/licenses/by-ncnd/2.5/ch/
+
+
+Geisteslehre Friedenssymbol
+
+**Frieden**
+
+Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten
+Tritt dazu macht, um dann nachfolgend in Friedsamkeit jeden weiteren Schritt
+bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun.
+
+SSSC, 10. September 2018, 16.43 h, Billy
+
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung des Urhebers ausdrücklich erlaubt.**
+Erschienen im Wassermannzeit-Verlag: FIGU, ‹Freie Interessengemeinschaft Universell›, Semjase-Silver-Star-Center,
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+

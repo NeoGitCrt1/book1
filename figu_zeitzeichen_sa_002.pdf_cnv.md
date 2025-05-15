@@ -1,0 +1,929 @@
+5. Jahrgang
+Nr. 2, August 2019
+
+
+Erscheinungsweise:
+Sporadisch
+
+
+## Sonderausgabe
+
+# FIGU –
+ ZEITZEICHEN
+
+### Aktuelles • Einsichten • Erkenntnisse
+
+Internetz: http://www.figu.org
+E-Brief:   info@figu.org
+
+
+### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+
+Laut ‹Allgemeine Erklärung der Menschenrechte›, verkündet von der Generalversammlung der Vereinten Nationen am 10. Dezember 1948,
+
+herrscht eine allgemeine ‹Meinungs- und Informationsfreiheit› vor, und dieses unumschränkte Recht gilt weltweit und absolut für jeden
+
+einzelnen Menschen weiblichen oder männlichen Geschlechts jeden Alters und Volkes, jedes gesellschaftlichen Standes wie auch in bezug
+
+auf rechtschaffene Ansichten, Ideen und jeglichen Glauben jeder Philosophie, Religion, Ideologie und Weltanschauung:
+
+Art. 19 Menschenrechte
+
+Jeder Mensch hat das Recht auf freie Meinungsäusserung;
+
+dieses Recht umfasst die Freiheit, Meinungen unangefochten anzuhängen
+
+und Informationen und Ideen mit allen Verständigungsmitteln ohne
+
+Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.
+
+Ansichten, Aussagen, Darstellungen, Glaubensgut, Ideen, Meinungen und Ideologien jeder Art in Abhandlungen, Artikeln
+
+und in Leserzuschriften usw., müssen in keiner Art und Weise zwingend identisch mit dem von der FIGU verbreiteten
+
+lebens- und weltanschaulichen Standpunkt sowie der ‹Lehre der Wahrheit, Lehre des Geistes, Lehre des Lebens›
+
+und mit dem sonstigen Gedankengut sowie mit den Interessen, wie auch nicht in irgendeiner Sachweise
+
+oder Sichtweise mit dem umfassenden Missionsgut und mit dem Habitus der FIGU verbindend sein.
+
+=======================================================================================
+
+Für alle in den FIGU-Zeitzeichen und anderen FIGU-Periodika publizierten Beiträge und Artikel verfügt die
+
+FIGU über die notwendigen schriftlichen Genehmigungen der Autoren bzw. der betreffenden Medien!
+
+Auf vielfach geäusserten Wunsch aus der Zeitzeichen-Leserschaft sollen in den Zeitzeichen zur Orientierung der Rezipienten laufend Auszüge diverser wichtiger Belange aus neuest geführten Kontaktgesprächsberichten veröffentlicht werden,
+nach Möglichkeit aber auch alte sowie neue Fakten irr-wirrer Antagonisten, die weltweit bösartig mit Lügen, Betrug und
+Verleumdung Kontroversen führen und 23 Mordanschläge gegen BEAM verübten, wie aber auch
+spezielle befürwortende Zuschriften editiert werden sollen, die sich auf die gesamte Arbeit und die Anliegen der FIGU sowie
+von BEAM und der <Lehre der Wahrheit, Lehre des Geistes, Lehre des Lebens> usw. beziehen.
+
+### **********************************************************************************
+
+Lieber Freund Edi,
+sei gegrüsst, alter Haudegen, heute bin ich noch in den USA, bin ich morgen wahrscheinlich schon in
+Kanada, doch ich möchte einmal etwas sagen, das Du bitte in einem Deiner Bulletins und im Internet
+veröffentlichen solltest, weil ich finde, dass das was ich erwähnen will, notwendig ist und an die Öffentlichkeit gebracht werden sollte. Immer wieder habe ich da und dort Gelegenheit, im Internet alles zu verfolgen, was Du und deine Mitstreiter im Internet veröffentlichen, und dabei denke ich, dass ich auch einmal etwas dazu beitragen sollte, wie folgendes, das Du nach Belieben verwenden kannst:
+
+### Das muss einmal gesagt sein …
+
+Was heute in der ganzen Welt alles an Naturkatastrophen, Menschenverachtung, verantwortungsloser
+Führung aller Staaten, Terror und Verbrechen, an Unmenschlichkeiten und an Religions- und Regierungswahnsinn auf der Erde geschieht und auch in Zukunft geschehen wird, das wird in den nächsten
+Jahren und Jahrzehnten unvermeidlich sehr schlimme Folgen bringen. Und alles wurde bisher und wird
+auch in Zukunft ausgelöst durch die Überbevölkerung und deren Zerstörungsaktionen am Erdplaneten,
+an der Natur und der gesamten Pflanzen- und Tierwelt. Und das entspricht einer Erdenzerstörung.
+Nebst der Massenbevölkerung geht allen Zerstörungen die weltweit falsch betriebene Politik voran, wie
+besonders durch die Weltgiersucht der USA und der EU-Diktatur. Hauptsächlich sind es dabei die Dikta
+
+-----
+
+toren und die falschen Staatsführungen durch die regierungsunfähigen Staatsmächtigen und Politiker
+aller Staaten der Erde, die an allem die Verantwortung tragen müssten, jedoch grösste Schuld am ganzen
+Desaster tragen. Schon in den 1940er, 1950er, 1960er und 1970er Jahren, wie aber auch seither immer
+und immer wieder hat Billy unermüdlich warnend an unzählige Medien der Welt geschrieben, wie er auch
+selbst warnend öffentlich Voraussagen verbreitet hat. Dafür wurde er nur verlacht und ihm anstatt Dank
+Ignoranz gezollt, wie er auch beschimpft und verleumdet und zudem mehr als 20mal versucht wurde, ihn
+zu ermorden. Absichtlich wurden seine Prophezeiungen und Warnungen in den Wind geschlagen, weil
+sich niemand mit der Wahrheit befassen wollte, und so ist es auch heute, denn niemand will die Wahrheit
+hören. Es ist so, dass alles, was er durch seine Voraussagen erstmals vor bereits 70 Jahren und seither
+immer wieder prophezeite, nun schon seit geraumer Zeit eintrifft, und zwar auch heute, da sich alles gegenwärtig erfüllt und sich auch in Zukunft erfüllen wird.
+Billy und seine Warnungen werden noch heute missachtet und verpönt, während aber die kleine Göre,
+Greta Thunberg, angehört wird und ihr zuliebe Klimademonstrationen ausgeführt werden, obwohl weder
+dieses Kind noch die wegen des Klimas Demonstrierenden wirklich wissen, wofür sie eigentlich demonstrieren und herumschreien und damit viel Schaden anrichten. Das beweist, dass allesamt diese Demonstranten nicht nur krankhaft einfältig und dumm, sondern auch völlig wissenslos, blind und gegenüber
+den wirklichen Tatsachen völlig verblendet sind. Alle haben sie keine Ahnung davon, wie und durch welche vielfältigen Eselshandlungen auf der Erde alles samt dem Klima durch die masslos zahlenmässig
+übersteigerte Erdenübervölkerung kaputtgemacht wurde. Die Wirklichkeit ist die, dass weder die kleine
+und wissenslose Greta Thunberg aus Schweden und auch alle durch sie aufgescheuchten dummen Demonstranten, die sich für einen für sie unverständlichen Klimaschutz einsetzen – oder einfach mitlaufen
+und mitschreien, weil es für sie ein Gaudi ist –, nicht im Geringsten eine Ahnung davon haben, was die
+eigentlichen Ursachen hinsichtlich der Klimazerstörung sind. Tatsächlich ist es nämlich kein Klimawandel,
+sondern eine tatsächliche Klimazerstörung. Darum sollte eine weitumfassende Aufklärung durch die Behörden und Wissenschaftler geschaffen werden, um den Demonstranten klaren Wein einzuschenken, was
+aber wohl nicht getan werden wird.
+
+Und was ich nun Dir noch sagen will, weil es eben so sein wird, dass weder die Behörden noch die Wissenschaftler etwas in dieser Art tun werden, lieber Freund Edi, bitte ich Dich, dass du einmal die Wahrheit
+darüber aufdeckst, was Du sicher am besten tun kannst, wenn Du mit Deinem Freund Ptaah darüber
+sprichst. Er und Du, Ihr wisst am besten, wie die Wirklichkeit aussieht und was die eigentliche Wahrheit
+ist, die sich in allem verbirgt. Was Du mir diesbezüglich erklärt hast, das solltest Du wirklich auch mit
+Deinem Freund Ptaah besprechen und es auch öffentlich machen.
+
+Bleib gesund und wohlauf, und es grüsst Dich,
+Dein Freund, Ernst Meierhofer – z.Z. noch aus Idaho, USA
+
+### Auszug aus dem offiziellen 720. Kontaktgespräch vom 11. Mai 2019
+
+**Ptaah … … Hergekommen bin ich aber, um dich darüber zu informieren, was ich bezüglich deiner priva-**
+ten Fragen an Zukünftigem ergründet habe bezüglich des amerikanischen Präsidenten, seinem Verhalten,
+Handeln und seinen Plänen usw. Dabei haben sich auch notwendige Möglichkeits-Vorausschauen ergeben resp. prophetische Vorausschauen, die äusserste Unerfreulichkeiten aufweisen, wenn sie sich u.U.
+erfüllen. Aber ehe ich darauf zu sprechen komme, will ich einiges erläutern bezüglich des Verhaltens des
+Präsidenten Donald Trump, von dem du gesagt hast, dass er wie ein Junge rede, der in die 3. Schulklasse
+gehe, weil er wirklich dumm und ungebildet sei. Das habe ich persönlich überprüft und festgestellt, dass
+deine diesbezügliche Beurteilung ebenso zutrifft, wie auch deine Erklärung, dass er im Grunde genommen dies nicht wie ein Schauspieler vorspiele, sondern dass sein diesbezügliches niveauloses Verhalten
+keine Strategie, sondern Dummheit und für ihn eine unüberwindbare Schwäche sei. Dabei aber ist er
+hinterhältig schlau, gemein und unberechenbar, wie auch herrschsüchtig und vermag sein ungebildetes
+Reden als perfektes Überzeugungsmittel derart zur Anwendung zu bringen, dass seine Wählerschaft
+dadurch beeinflusst wird, wie du gesagt hast, dass sie ihm in Hörigkeit verfällt. Daher …
+
+**Billy** Entschuldige, denn dazu möchte ich noch sagen, dass alle, die ihm verfallen, aus meiner Sicht
+
+Leichtgestrickte sind, eben Menschen, die keine eigene Meinung haben, urteilsunfähig und eben auch
+dumm sind und anderen an den Lippen hängen und diese bejubeln, wenn sie von ihnen Honig auf den
+Mund geschmiert bekommen resp. mit Lügen, leeren Versprechungen und Betrügerei belämmert werden.
+Dies ist eigentlich so, wenn Populismus betrieben wird, wie dieser von Trampeltramp Trump beherrscht
+wird und auf den alle Unbedarften hereinfallen, die des eigenen Denkens und Entscheidens nicht fähig
+sind. Diese Menschen sehen die ganze Welt und auch alles, was gesagt und geredet wird, wie durch einen
+Bilderrahmen, in dem sich alles abspielt und zu eingebildeten effectiven Fakten wird, weil nichts anderes
+wahrgenommen, gesehen und erkannt wird als das, was eben nur durch den Rahmen sichtbar ist, wäh
+
+-----
+
+rend alles ausserhalb desselben für diese Rahmensehermenschen unsichtbar bleibt. Es ist dabei alles
+etwa so, wie wenn durch ein Fernrohr etwas beobachtet wird und eben nur das gesehen werden kann,
+was vor der Linse sichtbar ist. Und Menschen, die alles in einem Bilderrahmen- oder Fernrohrblick sehen,
+hören auch nur das, was in einem solchen Rahmen gesagt und geredet wird. Wenn dabei die Sprache
+gemäss den fünf Hypnotieformen genutzt und geprägt wird, nämlich im Rahmen von Populismus, Originarität resp. ursprünglich-charakteristischer Volksmundsprache, Metaphern und im Zuhörersinn geprägt,
+dann wirkt das Ganze auf die Zuhörerschaft einleuchtend, suggestiv-indoktrinierend und zudem wie ein
+Universalcode, der die Zuhörenden hilflos und willenlos macht und sie damit dazu bringt, alles zu befürworten, was der oder die Redeführenden sagen. Damit verbunden ist aber die Tatsache, dass Verstand,
+Vernunft und Intellekt und das Intelligentum ausser Kraft gesetzt werden, wodurch alle Wege geöffnet
+werden, um z.B. durch Negativreden oder ganze Negativkampagnen Kontrahenten, Feinde oder sonstwie
+irgendwelche Menschen durch Hass, Lüge, Betrug und Verleumdung in der Öffentlichkeit usw. zu verunglimpfen und unmöglich zu machen, und zwar nur darum, um selbst gross und mächtig sein zu wollen.
+Dies wirkt in dieser Weise besonders gut, weil der Mensch der Erde von Kind auf durch eine falsche Erziehung, später durch eine falsche Selbsterziehung und verbunden mit einem religiösen Glauben sich
+eine konservativ-autoritäre Mentalität erschafft, die für alles Böse, Schlechte, äussere sprachliche Beeinflussung sowie für Angst und Stress sehr anfällig ist. Also wird eine negative innere Haltung entwickelt, die
+für das eigene Wohlergehen und Überleben massiv geprägt und auch gewalttätig ist, folglich die entsprechend dafür zuständigen Faktoren des Gehirns neurologisch besser und relevanter wirken als alles Gute,
+Friedliche, Liebevolle, Freiheitliche, Harmonische, Mitmenschliche und eben alles Positive.
+Das Fazit, das nun jedoch aus all dem hervorgeht, das wird weitum völlig falsch eingeschätzt, weil nämlich Psychologen und Kognitionswissenschaftler irrig annehmen, dass Trampeltramp Trump nicht einfältig und nicht dumm, sondern intelligent und strategisch sei, weil er durch seine irren und wirren Reden
+und Handlungsweisen bei seinen Anhängern Ängste und Feindbilder schaffen und sie populistisch hinters
+Licht führen, belügen und betrügen kann. Und dass er dabei Frauen, Mitarbeiter, Andersdenkende, Ausländer, andere Staaten, Flüchtlinge und Kontrahenten sowie alle mit schmutzigen Beleidigungen und
+Worten verunglimpft, das imponiert natürlich allen Unbedarften, die an seinen Lippen hängen sowie in
+ihrer Dummheit nicht wahrzunehmen und nicht zu verstehen vermögen, welcher krummen Mentalität
+dieser Trampeltramp Trump wirklich ist. Auch wird von allen seinen Anhängern auch nicht erkannt – weil
+sie eben in ihrer Dummheit auch nicht fähig sind, seine Absichten einzuschätzen –, dass er nicht nur ein
+primitiver, hinterhältiger, falschspielender und herrschsüchtiger Despot ist, sondern auch ein sehr gefährlicher Kriegshetzer, der u.U. die Menschheit in einen weiteren Weltkrieg zu manövrieren gewillt ist. Und
+dass er dabei mit Lug und Trug fern aller Wahrheit und der effectiven Tatsachen nur eigene dunkle Phantasien ohne Wahrheitsgehalt verbreitet, wie auch Hass und bewusste Falschinformationen sowie
+schwachsinnige sanktionierende Massnahmen gegen andere Staaten usw., das können die ihm huldigenden Dummen nicht nachvollziehen. Und in ihrer brüllenden Dummheit nehmen sie auch nicht wahr, dass
+ihr Trampeltramp Trump mit seinen primitiven Reden, An- und Beschuldigungen und Falschinformationen usw. endlos sich wiederholend im gleichen Brei herumrührt und damit ihr Gedächtnis derart malträtiert, dass sie ihm alles glauben und ihrem eigenen Verstand und ihrer eigenen Vernunft den Laufpass
+geben. Und das tun sie so lange, bis er in seiner Irre einen Krieg ausgelöst hat, der dann wieder vielen
+Amerikanern das Leben kosten wird, wenn sie seine ihnen eingebrockte Suppe auslöffeln müssen, die er
+ihnen im Lauf der Zeit einbrockt, sei es in China oder in Persien, weil er diese beiden Staaten besonders
+in seinen Hass und seinen Schwachsinn einbezogen hat, wobei aber auch Russland in seinem kranken
+Gehirn miteinbezogen ist. Jedenfalls, so denke ist, sieht die nächste Zukunft für die Erde und deren
+Menschheit unter dem Kommando dieses Verrückten Trampeltramp Trump düster aus, denn der Kerl
+bringt es u.U. wirklich fertig, die Welt in einen bösen Krieg zu stürzen. Besonders hat er dabei in seinem
+Wahn, wie ich schon sagte, China und Persien ins Visier genommen, wobei meines Erachtens aber erst
+einmal Persien sein erstes Angriffsziel sein wird, wenn es wirklich kracht.
+
+**Ptaah Was ich erklären wollte, hast du gerade vorweggenommen, denn tatsächlich bin ich zu den glei-**
+chen Resultaten gelangt. Und dass die Gefahr eines Krieges in Persien droht, das steht bereits zur heutigen Zeit fest, denn es werden schon lange Pläne ausgearbeitet, die derart infam erdacht sind, dass Persien für angebliche Sabotage an Handelsschiffen am Golf von Oman, im Persischen Golf, verantwortlich
+gemacht werden soll. In diese Vorbereitung wird auch eine fingierte amerikanische Warnung für den
+Schiffsverkehr eingeschlossen sein, um vornweg den Eindruck einer Täterschaft seitens Persiens vorzutäuschen. Die Verlegung des Flugzeugträgers <USS Abraham Lincoln> in den Persischen Golf gehört
+ebenfalls zur Vorbereitung der bösartigen und hinterhältigen Pläne, die in Betracht ziehen, Persien unter
+die Kontrolle der USA zu bringen.
+Der Akt der Sabotage wird im nächsten Monat durch geheime amerikanische Machenschaften tatsächlich
+verübt werden, wie ich ergründet habe, wodurch dann ein Grund gegeben wird, um Persien anzugreifen.
+Und diese geheimen betrügerischen Machenschaften und Begründungen – wie das schon im Irak zwei
+
+-----
+
+mal der Fall war durch die Lügen und Betrügerei der beiden USA-Präsidenten Vater und Sohn Bush –
+können tatsächlich dazu führen, dass die USA-Streitkräfte in Persien einfallen werden.
+Was sich in nächster Zeit im Persischen Golf abspielt, fundiert darin, dass Persien daran gehindert werden soll, Atomwaffen zu bauen. Dazu behaupten die USA, wie schon in ähnlicher Weise, als der Irak
+zweimal durch die USA angegriffen wurde, woraus die Golfkriege hervorgingen, dass Persien schon oft
+gegen entsprechende Auflagen des Atomwaffen-Vertrages verstossen hätten, der von den USA deshalb
+gekündigt worden ist, weil einerseits Persien und Russland mit Syrien verbündet sind, anderseits aber
+auch, um Persien um des Erdöls wegen unter Kontrolle der USA bringen zu können, und zwar notfalls
+durch einen Einmarsch der Streitkräfte.
+Seit 1980 bestehen zwischen den USA und Persien auch keinerlei diplomatische Beziehungen mehr, wie
+diese zu deiner Zeit noch waren, als du dich dort aufgehalten und du auch die Bekanntschaft des Kaisers
+gemacht hast. 1979 haben dann persische Revolutionstruppen die US-Botschaft in Teheran überfallen
+und mehr als 50 Geiseln genommen, deretwegen durch US-amerikanische Truppen ein Befreiungsversuch durchgeführt wurde, der jedoch scheiterte und seither keine US-Botschaft mehr in Teheran existiert.
+Trotzdem gab es immer wieder Probleme zwischen Persien und den USA, wobei immer wieder angebliche Verstösse seitens von Persien gegen das Atomabkommen beanstandet wurden, die USA das Abkommen kündigten und erneut Sanktionen verhängten. Und weil Persien seinerseits ankündigte, das Abkommen teilweise selbst auch auszusetzen, wurde der Flugzeugträger <USS Abraham Lincoln> samt Begleitschiffen in den Persischen Golf beordert. Und dies, weil die USA damit politisch etwas Bestimmtes anstreben und es auch verwirklichen wollen, und zwar eine Sache, die ganz klar und hinterhältig ist, denn
+auch diese und die noch folgenden Aktionen der USA verfolgen unzweifelhaft ein ganz bestimmtes Ziel,
+das letztendlich Persien und alle arabischen Staaten voll unter die Kontrolle und Macht der USA bringen
+soll. Dazu lösten die USA, und in ihrem Sinn auch die Beihilfe leistende deutsche Bundeskanzlerin, die
+Massenflüchtlingswellen nach Europa aus. Und dies allein zum Zweck, die europäischen Staaten, die alle
+der EU-Diktatur angehören, damit unter Druck zu setzen und diese in ihren Gefügen derart zu zerstören,
+dass sie sich letztendlich in einem Bündnis den USA anschliessen sollen. Davon ist nur die Schweiz noch
+ausgeschlossen, jedoch ist auch sie durch heimatverräterische und fanatische mit der EU-Diktatur und
+den USA liebäugelnde Verstand- und Vernunftlose ebenfalls in ihrer Freiheit gefährdet. Der wahre Grund
+für das durch die USA und Bundeskanzlerin Merkel provozierte Aufkommen der Massenflüchtlingswellen
+nach Europa ist also, dass aus dem Ganzen in Europa nach amerikanischem System eine Neuordnung
+erschaffen werden soll, um in dieser Weise eine Bastion gegen Russland und China zu schaffen, und zwar
+infolge Angst der USA-Staatsführenden, dass diese beiden Staaten gemeinsam in Europa einfallen könnten. Und diese Bastion soll daraus hervorgehen, indem, eben hervorgerufen durch die Flüchtlingsströme,
+im gesamten Europa alle Landesgrenzen derart rigoros und undurchlässig abgeschottet werden sollen,
+dass kein Mensch mehr unerkannt in ein europäisches Land gelangen kann. Der Grund dafür ist von unlogischer Angst-Wirrnis geprägt, dass durch eine völlige Grenzblockade, durch die auch keine Flüchtlinge
+mehr nach Europa gelangen können, keine Untergrundkämpfer und Rechtsextreme aus Russland und
+China illegal nach Europa gelangen und politische Untergrundaktivitäten verrichten könnten. Das Ganze
+dieser heimlich von den USA und der EU-Diktatur gehegten Befürchtungen ist völlig unglogisch, kindisch
+und wirr, doch trotzdem werden schon seit Jahren solcherart mögliche illegale Agenten usw. befürchtet,
+was natürlich gegenüber der Öffentlichkeit verheimlicht und bestritten würde, wenn es offiziell publik
+werden sollte.
+Die USA planen im geheimen schon über mehrere Generationen hinweg immer wieder, in Europa eine
+Bastion gegen Russland und China zu errichten und mit immer grösseren Sanktionen Europa dazu zu
+zwingen, die US-amerikanischen Bestrebungen zu unterstützen, damit die Vereinigten Staaten von Amerika ihre angestrebte Weltherrschaft durchsetzen können, wie auch alle anderen Staaten dann ebenfalls
+durch Sanktionen unter eine zwingende US-Kontrolle gebracht werden sollen. Und dass dabei Donald
+Trump zudem von diversen kriegshetzerischen Beratungselementen, insbesondere durch den verbrecherischen und wie Trump machtbesessenen hegemonischen Verteidigungschef John Robert Bolton, nach
+deren Willen er wie ein dressiertes Tier gesteuert wird, das vermag er infolge seiner Dummheit und seinem Grössenwahn ebenso nicht wahrzunehmen, wie alle jene nicht, welche glauben, ihn beurteilen zu
+können, dass er eben nicht dumm, sondern ein grosser Stratege sei. Und dass diese Ziele schon lange
+geplant werden, eben bereits über mehrere Generationen hinweg, und zwar beginnend nach dem Ende
+des letzten Weltkrieges, das hat am 3. Oktober 2007 selbst der aus dem Dienst ausgetretene amerikanische General der USA-Armee, W.C., klar und offen bekundet, als er sinngemäss folgendes verlauten liess:
+<… … damit auch der Plan des US-Militärstrategen <Thomas M. Barnett> gelingt, im Sinn, dass die von
+ihm geforderte und militärisch arrangierte Massenmigration nach Europa zur Umvolkung der europäischen Nationen durchgeführt werden kann, um die neue Weltordnung Realität werden zu lassen>.
+Damit die Menschen in aller Welt nicht hinter die Kulissen der Machtspiele der Regierenden, der Geheimdienste und der Armee sehen, wird nach aussen alles verheimlicht und durch Lügen, Betrügerei und Verleumdung sowie durch Falschdarstellungen und Falschmeldungen völlig wirklichkeitsfremd dargestellt.
+
+
+-----
+
+Demgemäss glaubt das amerikanische Volk das, was es glauben soll, wie das auch in Europa der Fall ist,
+und zwar auch in der Schweiz in bezug auf die EU-Diktatur, vor der die Schweiz ganz besondere Vorsicht
+walten lassen sollte hinsichtlich des Rahmenvertrages, der für die Schweiz Manipulationen enthält, die
+das Land in die Fänge der Diktatur treiben soll, was aber alle Besserwisser und Befürworter des Vertrages
+in ihrer Dummheit nicht zu erkennen vermögen und erst dann erwachen, wenn es zu spät ist, noch etwas
+zu retten. Es wäre für die Schweiz wichtig, dass vor allen Dingen klar und vernünftig denkende Menschen
+sich um die Angelegenheiten des Rahmenvertrages kümmern würden, anstatt der Dummheit verfallene
+und in bezug auf Verstand und Vernunft unzurechnungsfähige Elemente, worüber ich dir jedoch bereits
+am 21. April das Notwendige erklärt habe, das ihr aufbereiten und möglichst vielen Politikern usw. zukommen lassen sollt.
+
+### Auszug aus dem offiziellen 721. Kontaktgespräch vom 14. Juni 2019
+
+**Billy Gut, dass du das sagst, denn müsste ich nämlich diese Begriffe ausdeutschen, dann wäre es un-**
+umgänglich, für jeden Begriff ellenlange Erklärungen zu verfassen. Mich interessiert jetzt aber etwas, und
+zwar hast du gesagt, dass der bei den <Ebraya>, also bei den frühen Hebräern, aufgetretene plejarische
+Nachfahre namens <Avian>, der dann jedoch <Avram> genannt wurde, negrider Natur gewesen sei, also
+ein schwarzhäutiger Mensch, wie wir sagen. Dazu die Frage, ob dieser Mann dann bei den <Ebraya> auch
+eine Familie gegründet hat und Nachkommen zeugte?
+
+**Ptaah Das war der Fall, ja, wie aus unseren Überlieferungen hervorgeht, doch wurde dies in der äusserst**
+schwer verfälschten schriftlichen Volksgeschichte der <Ebraya> ebenso verschwiegen wie auch all die
+Tatsachen, die ich genannt habe. Ausserdem wurde die ihnen gebrachte Lehre des Nokodemion umfänglich verworfen und gegenteilig eine unwahre Religionsgeschichte erfunden, wie gleichermassen auch die
+Entstehungsgeschichte der <Ebraya>-Volks-Stämme und deren Nachfahren. Wahrheitlich wurden die
+Aufzeichnungen erst viele Jahrzehnte nach den wirklichen Geschehen durch Schreibkundige und deren
+eigene Interpretationen, Ideen und Phantasien ausgefertigt, wie das auch bei den sechs Kündern war. Bei
+Muhammad waren es z.B. mehr als 100 Jahre nach seinem Tod, ehe die ersten Worte über ihn geschrieben und seine Lehre völlig missachtet und durch eine völlig neu erfundene umgeschrieben und ersetzt
+wurde. Also wurde die wahre Lehre, die Muhammad brachte, die <Lehre der Propheten> resp. <Lehre der
+Wahrheit, Lehre des Geistes, Lehre des Lebens> nicht einfach bis zur Unkenntlichkeit verfälscht, sondern
+diese wurde, wie dies schon zuvor auch bei der nämlichen Lehre von Jmmanuel der Fall war, völlig verleugnet und durch eine neue von Grund auf wahrheitsfalsche zusammenphantasierte und auf eine Gottheit ausgerichtete Religionsgeschichte ersetzt und verbreitet. Zudem wurden zusätzlich im Verlauf der
+Zeit über Jahrhunderte hinweg immer und immer wieder neue Regeln, Rituale, Gebets-, Verhaltens- und
+andere Vorschriften sowie Religionsgesetze usw. erfunden, die gewissenlos zur irr und wirr erfundenen
+unsinnigen Religionslehre hinzuphantasiert und lügnerisch den Kündern Jmmanuel und Muhammad
+zugeschrieben wurden.
+
+**Billy** Zwar weiss ich um diese Tatsachen, doch schadet es sicher nicht, dass auch du einmal einiges
+
+dazu erwähnst. Aber bitte, sprich weiter davon, was du zu sagen hast bezüglich eurer Familienaufgabe.
+
+**Ptaah Wie ich schon sagte, führt diese zurück auf Gilkas, doch denke ich, dass ich diesbezüglich für heu-**
+te genug Ausführungen gemacht habe und ich später wieder einmal einiges dazu sagen werde, wenn es
+notwendig sein sollte.
+
+**Billy** Das kann ja wirklich sein, doch was du alles erwähnt hast, das ist wirklich interessant und führt
+
+um einiges weiter, als ich eigentlich erhofft hatte zu erfahren. Aber du hast erwähnt, dass irgendwelche
+eurer Vorfahren auch Religiösgläubige waren. Wie war das denn, und wie ist das heute?
+
+**Ptaah Auch bei uns waren zu sehr frühen Zeiten verschiedene religiöse Wahnglaubensformen bei allen**
+Völkern verbreitet, wodurch auf allen unseren Welten schlimmste Ausartungen und Übel ebenso zur Tagesordnung gehörten, wie auch bösartige Kriege und Terror aller erdenklichen Art, wobei Religionskriege
+ebenso unvermeidlich waren wie auch Politkriege und reine Hasskriege usw. All das endete erst vor wenig
+mehr als 52 000 Jahren, als sich das ergab, was ich dir bereits bei einem Gespräch erklärt habe, nämlich
+das Ganze, das sich mit dem alles Böse, Falsche und Ausgeartete usw. besänftigenden Moment zugetragen hat. Das eben, als das grosse metallene Kugelgebilde bei jeder unserer Welten während 32 Tagen alle
+Bevölkerungen derart durch Schwingungen beeinflusst hat, dass jedem einzelnen Menschen seine gesamte ausgeartete Gedanken-Gefühls-Psychewelt klar und bewusst wurde. Dadurch wurde sich jede einzelne Person erschreckend bewusst, was in ihrem Charakter und Sinnen und Trachten alles an Fehlhaftem und Falschem, an Bösem, Widerlichem und Ausgeartetem lauerte, moderte und jederzeit durch eine
+kleinste Bagatelle unkontrolliert zum Ausbruch kommen konnte das durch den religiösen Glaubenswahn
+
+
+-----
+
+dauernd unterdrückt wurde, jedoch immer im Untergrund lauerte und bei jeder möglichen negativen
+Regung durchbrach und Unheil anrichtete. Diese bittere Erkenntnis führte jeden einzelnen Menschen
+dazu, die persönliche Gedanken-Gefühls-Psychewelt zu studieren und diese nach eigenem Ermessen und
+freien Willen in eine positive Ausgeglichenheit umzuformen, was jedoch nur dadurch möglich wurde, indem der religiöse Glaubenswahn aufgelöst und nichtig wurde. Doch allein bis diese Erkenntnis durchdrang, dauerte es lange, wonach es noch weiter langer Zeiträume bedurfte, um sich vom Glaubenswahn
+zu befreien. Letztendlich dauerte es für jeden einzelnen Menschen je nach Persönlichkeit zwischen drei
+bis elf Jahre, um den notwendigen Wandel durchzuführen. Und tatsächlich war es für keinen Menschen
+leicht, sich von seinem religiösen Glauben zu lösen, folglich manche Personen schwere Kämpfe mit sich
+selbst auszufechten hatten, was manche nicht bis zuletzt durchzustehen vermochten und deshalb ihrem
+Leben selbst ein Ende setzten, wie unsere Chroniken überliefern. Letztendlich jedoch vermochten alle, die
+stark genug waren, alles zu überstehen und durch eigene mühsame Anstrengungen den Wandel durchzuführen und zu gewinnen. Das war vor mehr als 52 000 Jahren, und seither sind wir Plejaren glaubensfrei,
+kennen keine Religionen, keine Sekten und keine Gläubigkeit mehr und sind völlig frei davon. Und das
+gibt uns Plejaren seither die Freiheit, ohne Wahnglauben an eine Bestimmung durch eine Gottheit, in
+jeder Beziehung alles und jedes selbst zu bestimmen und zu richten, uns in jeder Art und Weise in Frieden und Harmonie untereinander und miteinander zu bewegen, miteinander zu kommunizieren, zu arbeiten und gemäss dem Ganzen in menschenwürdiger Weise entsprechend zu leben. Und das wollte seit
+damals und will auch zur heutigen Zeit und in zukünftiger Zeit keine einzige plejarische Person mehr
+verlieren, weshalb unsere Direktiven erarbeitet wurden, die von jeder einzelnen Person geachtet und unumstösslich befolgt werden und bestimmen, dass strikte verhindert werden muss, dass jemals wieder
+auch nur eine einzige Person von uns Plejaren einem religiösen Glaubenswahn verfallen darf. Würde das
+aber irgendwann einmal der Fall werden, dann wäre die Konsequenz die, dass die entsprechende Person
+aus unserer gesamten Gemeinschaft ausgeschlossen und zu einer ihrem Wahnglauben gemäss ausgearteten Menschheit auf einer fremden Welt verbannt würde, wie z.B. auf die Erde. Also bedingen nicht nur
+die gesamten falschen und gewalttätigen Ausartungen aller Art der Erdenmenschen, dass wir uns von
+ihnen fernhalten und keine direkten Kontakte mit ihnen eingehen dürfen, sondern auch die Tatsache ihrer religiösen und sektiererischen Wahngläubigkeit. Dies, weil durch diese – wie bei uns zu alten Zeiten –
+auch auf der Erde seit alters her Kriege und Machtkämpfe geführt, Terrorakte ausgeübt und millionenfältig Morde begangen werden. Durch die religiöse und sektiererische Wahngläubigkeit nämlich, werden alle
+im tiefsten Charakterwesen vergrabenen und infolge einer oft nur kleinen Bagatelle zum Ausbruch lauernden und durch den Wahnglauben unterdrückten Bösartigkeiten, Falschheiten, Ausartungen, Intrigen
+und Lüsternheiten bis hin zum Morden und Töten sehr schnell aktiv und gelangen nach aussen, um Unheil anzurichten. Und das ist exakt das, was du auch lehrst.
+
+**Billy** Ja, denn es ist ja nichts anderes als die Wahrheit. Aber danke für all das, was du ausgeführt und
+
+erklärt hast, denn alles erlaubt wieder einen wertvollen Einblick in eure plejarische Geschichte. Jetzt aber
+möchte ich von dir wissen, wie du grundsätzlich unsere irdische Politik beurteilst. Meinerseits sehe ich
+das Ganze derart, dass weltweit alles in bezug auf die Politik völlig verrückt spielt und nur von politisch
+absolut unfähigen Elementen betrieben wird, die – mit sehr wenigen Ausnahmen – einzig auf sich selbst
+und auf die eigene Macht- und Finanzgier ausgerichtete Herrschsüchtige sind, die weder etwas für das
+eigene Land noch für die Bevölkerung, sondern nur für sich selbst tun. Und, das sehe ich so, ist in allen
+Staaten so, wobei jedoch diesbezüglich einige Machtbesessene besonders hervorstechen, wie in Deutschland, den USA, der EU-Diktatur und in Frankreich.
+
+**Ptaah Damit sagst du etwas, womit auch wir uns beschäftigen und ich meinerseits das bestätigen kann,**
+was du eben gesagt hast. Unsere Beobachtungen und Abklärungen ergeben hinsichtlich dem von dir Erwähnten, dass praktisch in allen Regierungen aller irdischen Staaten, mit verschwindend wenigen Ausnahmen, die Obersten und Oberen und die bei diesen mitwirkenden Staatsverantwortlichen absolut untauglichen Elementen entsprechen, die keine wahre Fähigkeiten zur Staatsführung haben. Folgedem vermögen sie auch keine klare Führungslinie zu erstellen und keinerlei klare und volksdienliche Entscheidungen und Anordnungen zu treffen und demgemäss auch keine auszuführen. Ihr Gedanken-, Handlungs- und Verordnungsgut ist äusserst mangelhaft und kindlich-unlogisch. Ihr ganzes Denken und Handeln ist einzig auf ihre Machtausübung ausgelegt, in die jedoch weder Verstand noch Vernunft eingebracht werden, weil dem gesamten Gros der staats- und volksmissführenden Machthaber umfänglich die
+Fähigkeiten fehlen, um die effective reale Wirklichkeit und deren Wahrheit zu erfassen. Das jedoch hat
+einerseits zur Folge, dass die verantwortlichen Staatsmächtigen – infolge ihrer Verblendung durch ihre
+Machtbesessenheit – die effectiven wahrheitlichen Zusammenhänge der ihnen vorliegenden Fakten nicht
+erkennen und diese daher auch nicht bedenken und nicht verarbeiten können, obwohl sie das müssten.
+In ihrem Sinnen und Trachten liegt nur ihr Machtgebaren, das sie durch ihre Einbildung und ihren Wahn
+des Grosseinwollens, sich Wichtiggebens und Wissendseinwollens usw. mit ihrem religiösen Wahnglauben
+
+
+-----
+
+verknüpfen und sich dadurch einbilden, alles rechtens zu handhaben und zu handeln, was jedoch absolut
+gegenteilig der Fall ist. Das aber hat zur Folge, dass sie vorliegende wirkliche und wahre Fakten weder
+wahrzunehmen noch zu erkennen vermögen, weil sie in ihrer kindlich-unlogisch verhangenen und nie
+zum Erwachsensein gebrachten Denkweise sowie in ihrem ungenutzten Verstand und ihrer mangelnden
+Vernunft dazu absolut unfähig sind. Ausserdem fehlt ihnen dazu auch die Bemühung, die notwendige
+Fähigkeit und Möglichkeit zu schaffen, die real-effective Wirklichkeit und Wahrheit wahrzunehmen, folgedem sie diesbezüglich anfallende Fakten und deren Inhalte weder erkennen noch überdenken können.
+Infolge dieser Unfähigkeit vermögen sie auch nicht logisch verständig und vernünftig etwas zu bearbeiten,
+wie auch keinerlei logische Resultate zu erzielen und keine wertigen Entschlüsse zu fassen und umzusetzen. Gegenteilig werden wichtige Fakten völlig falsch verstanden und ebenso falsch beurteilt, woraus ein
+absolutes Falschverstehen hervorgeht und daraus wiederum katastrophal dumme Falschentscheidungen,
+wie seit eh und je.
+Wahrheitlich gibt es zur heutigen Zeit nur äusserst wenige Ehrwürdige in Staatsführungspositionen und
+bei Politikerinnen und Politikern, die ihres Amtes wert und würdig sind und auch ihre Verantwortlichkeit
+wahrnehmen und diese in die Tat umsetzen. Und dies ist so, während das absolute Gros aller oberen und
+obersten Tätigen in den Regierungen und in der Politik keinerlei Tauglichkeit für eine Staats- und Politikführung aufweist, wie das in heutiger Zeit in besonders schlimmer Weise der Fall ist in Deutschland, das
+an vorderster Front von einer Kanzlerin missregiert wird, die eine Flüchtlingskatastrophe hervorgerufen
+hat, die sich bereits auf die ganze Erde ausgebreitet hat. Diesbezüglich ist diese Person für sehr viel
+menschliches Elend und viele Tote verantwortlich, wofür sie hart zur Rechenschaft gezogen werden, aus
+dem Kanzleramt ausgestossen und in lebenszeitige Verbannung geschickt werden müsste. Diese Person
+arbeitet in ihrer grenzenlosen Machtbesessenheit auch untergründig und hinterhältig daran, europaweit
+eine gesamthaftgreifende neue Gesellschaftsordnung zu erschaffen. Dabei ist ihr diesbezügliches heimliches Bestreben derart, dass gleichartig gesinnte Politikerinnen und Staatsbeamtinnen wie sie in hohe
+Regierungsämter einberufen werden, und zwar im Sinn dessen, in dieser Weise in ganz Europa eine Matriarchat-Regierung aufzubauen. Zuerst soll dies ihrem Sinn gemäss via die EU-Diktatur geschehen, wofür
+sie schon seit geraumer Zeit Anstrengungen unternimmt, um eine erste unfähige und machtbesessene
+weibliche Person ins EU-Kommissionspräsidentenamt einzuschleusen. Weiter ist sie gleicherart bemüht,
+in Deutschland dasselbe zu veranlassen und eine machtbesessene weibliche Person ins Kanzleramt einzubringen, wofür sie ebenfalls schon seit geraumer Zeit entsprechende Gedanken pflegt und Pläne ersinnt. Und dies strebt sie im Sinn dessen an, dass die Frau durch sie eine bevorzugte MatriarchatStellung im Staat und in der Familie erhalten und jegliches Patriarchat verboten werden soll, folgedem
+dann in bezug auf das Matriarchat, um den Erhalt der weibliche Linie, strikt eine Erbfolge und soziale
+Stellung gesetzlich bestimmt werden soll. Was nun aber noch zu sagen ist in bezug auf die Untauglichkeit, Falschhandelnden und selbstherrlichen Regierenden, die bereits angesprochen wurden, so sind
+nebst der genannten deutschen Regierungsmächtigen und ihren ihr hörigen Verstand- und Vernunftlosen, die nicht wahrnehmen was in der Kanzlerin in Falschheit wirklich vorgeht, auch die EU-Diktatur sowie
+Frankreich und die USA zu nennen, die von absolut unfähigen, selbstherrlichen und volksfeindlichen
+Machtbesessenen und Untertan-Elementen missregiert werden. Allesamt sind diese Machtausübenden
+nur auf ihre eigenen Vorteile, Profite und auf ihren Wohlstand, ihr Machtgebaren und ihre hohen Entohnungen bedacht, jedoch in keiner Weise auf das Wohl ihrer Völker, für die sie sich einsetzen müssten, um
+in jeder Beziehung alles Gute und das Beste für sie zu tun, wofür sie aber keinerlei Interesse haben.
+Was weiter zu sagen ist, das bezieht sich auf den Klimawandel, der in kommender Zeit durch die Unfähigkeit der Regierenden und deren Fehlentscheidungen nicht nur seltsame, sondern auch bösartige, ausartende und volksschädigende giftige Blüten treiben und vieles noch verschlimmern wird. Dies geschieht
+einerseits, weil infolge der wissenschaftlichen Überheblichkeit der Forschungsbeauftragten unsinnige Hypothesen erstellt werden, die keinerlei Grundlagen und Wertigkeiten entsprechen, und anderseits, weil
+nicht nach den wirklichen Ursachen geforscht und daher auch nicht erkannt wird, dass diese gesamthaft
+in den durch die Masse der Überbevölkerung bedingten und deren völlig ausgearteten Machenschaften
+fundieren. Diese entsprechen ungeheuren lebensfeindlichen Beeinflussungen gegenüber der Natur, deren
+Fauna und Flora, der Atmosphäre, dem Klima und dem gesamten Planeten, wobei diese verbrecherisch
+zu nennenden Manipulationen in bezug auf alles absolut zerstörend, vernichtend und ausrottend wirken,
+wodurch bereits Tausende vielartiger Lebensformen entweder bereits unwiderruflich ausgerottet wurden
+oder nunmehr vom Aussterben bedroht werden. Und diese Forschungsbeauftragten sind es auch, die
+weiterdenken und auch wahrheitliche Ergebnisse bezüglich der durch die Weltbevölkerung verursachten
+Zerstörungen in der Natur, an der Fauna, Flora und Atmosphäre sowie dem Klima und Planeten hinsichtlich der Zukunft erzielen müssten. Das aber wird einerseits in keiner Weise getan, während anderseits
+diesbezüglich bei den Wissenschaftlern und Forschern auch keine Fähigkeiten vorhanden sind, weil sie
+wohl akademische Titel tragen, die jedoch wie du immer sagst – nur Schall und Rauch sind, weil sie nicht
+die effective Wirklichkeit und deren Wahrheit studiert und ergründet, sondern nur leeren Vermutungen
+nachgehangen sind. Daher ist es ihnen auch nicht möglich, die effectiven Fakten des gesamten Naturab
+
+-----
+
+laufs in allen erdenklich möglichen sowie notwendigen Beziehungen zu erforschen, zu erkennen, zu verstehen und zu bewerten. Also ist es ihnen unmöglich, die notwendigen Erkenntnisse zu gewinnen und das
+für die Zukunft Anstehende zu berechnen, um notwendigerweise, was ihre Pflicht sein müsste, die Erdbevölkerung über die erlangten Ergebnisse zu informieren und aufzuklären. Daher geht alles in altherkömmlicher Art und Weise zerstörend, vernichtend und ausrottend weiter, folgedem die gesamte und weiter
+anwachsende Überbevölkerung sowie die Natur, Fauna und Flora samt dem Planeten auf eine Katastrophe zusteuern, wie sich eine solche auf der Erde zuvor noch niemals ergeben hat.
+Du hast bereits als Junge in den 1940er Jahren Warnungen verfasst und diese mit Hilfe deiner Lehrer
+Graf, Lehmann und Pfarrer Zimmermann, die alles auch ins Englische, Französische und Italienische
+übersetzt hatten, zahlreichen Zeitungen und Radiosendern zukommen lassen, wie du das dann auch in
+den 1950er Jahren getan hast, was jedoch niemals eine öffentliche Reaktion gebracht hat. Du hast immer
+sehr genau beschrieben, was sich durch die Überbevölkerung und deren verbrecherische Machenschaften in der Zukunft, die sich schon seit Jahrzehnten ergibt, gegenwärtig ist und weiter ergeben wird, doch
+deine klar warnenden Aufklärungsbemühungen wurden nicht beachtet. Gegenteilig wurdest du schon von
+Beginn an, und wirst du noch heute von Besserwissern, Widersachern und anderen selbsternannten sich
+in Feindschaft und Rache sehr dumm gegen dich erhebenden wirren Personen als Weltverbesserer beschimpft, lächerlich gemacht und als Betrüger und Lügner diffamiert und verleumdet. Und dies wird besonders auch so getan von den durch Lug und Betrug die Bevölkerungen verdummenden Religionisten,
+die ihre Gläubigen mit ihren illusorischen und irren Glaubenslehren indoktrinieren und sie diesbezüglich
+zur Wahnhörigkeit und Unselbständigkeit zwingen. Doch ich schweife davon ab, was ich eigentlich sagen
+wollte:
+Insbesonders in Europa werden in kommender Zeit durch die Regierungen immer mehr Fehlentscheidungen getroffen werden, und zwar ganz besonders hinsichtlich des durch die Erdenmenschheit verursachten Klimawandels, der infolge der katastrophalen zerstörenden Machenschaften der Überbevölkerung in Gang gesetzt wurde, wodurch die Natur und deren Fauna und Flora bereits weitgehend abgetötet,
+ruiniert und devastiert wurden. Dazu kommen noch die immer gewaltiger, verheerender und häufiger
+werdenden und zu Naturkatastrophen ausartenden Unwetter, die einerseits wahre Sintfluten bringen und
+sich zukünftig zu immer grösseren und umfänglicheren Naturzerstörungen entwickeln und auch immer
+mehr die menschlichen Errungenschaften in Mitleidenschaft ziehen und völlig ruinieren werden. Und
+diese Geschehen wechseln ab mit ungewöhnlichen und gar vielen Erdenmenschen den Tod bringenden
+Hitzeeinbrüchen, die schon in diesem Jahr in Europa gegen 43 Grad ansteigen werden, wobei fortan die
+sich mehrenden Naturkatastrophen auch stetig steigernd immer mehr und öfters ungeheurere und verheerendere Verwüstungen und Zerstörungen bringen und in den kommenden Zeiten weltweit auch immer zahlreichere Todesopfer fordern werden. Dies, während sich auch der Planet selbst immer mehr
+aufbäumen und vermehrt Erdbeben und Seebeben sowie vulkanische Ausbrüche bringen wird, die sich
+nicht allein auf bekannte aktive Vulkane, sondern auch auf sich lange Zeit in inaktivem Zustand befundene Vulkane usw. beziehen werden. Auch werden wieder vermehrt ausartende Brandstifter in den Wäldern
+Europas und in anderen Staaten ihrem böses Zünseln frönen, und auch die Natur selbst wird anderswo in
+der Welt, wieder vermehrt Feuer entfachen, die immer umfangreicher, zerstörender und verheerender
+werden, wie ich bereits bei unseren letzten Gesprächen gesagt habe. Auch steigern sich in den kommenden Zeiten alle Mordtaten in den Familien, wobei vielfach alle Angehörigen getötet werden, wie auch viele
+andere Ausartungen stetig mehr erfolgen, die als Hasstaten aus üblen Gesinnungen hervorgehen, wie
+durch Rassenhass, politischen Extremismus, Religionshass gegen Andersgläubige und infolge Aufständen
+gegen fehlhandelnde Regierungen. Die kommenden Zeiten werden in dieser Weise wie noch nie zuvor
+bösartig geprägt sein und unzählige Menschenleben fordern. Und weiter wird durch Unvernunft, Machtbesessenheit, Irrsein, Dummheit und pathologisch bedingte bösartige Drohungen, Terror, Rache, Selbstherrlichkeit und Bewusstseinsverwirrtheit der seit alters her brüchige und stets nur zeitbedingte Frieden
+auf der Erde immer und immer wieder und immer häufiger in Frage gestellt. Dies ganz besonders durch
+die Vereinigten Staaten von Amerika und deren unzurechnungsfähige Staatsführer, wie auch durch die
+EU-Diktatur-Führerschaft, die jedoch im nächsten Monat durch eine untaugliche und russlandfeindliche
+Person ausgewechselt und neu besetzt werden wird.
+Nun jedoch zurück zu dem, wovon ich vorhin gesprochen habe: Diverse Staaten der Erde führen sogenannte Listen bezüglich ausgerotteter Pflanzen, Tiere und Getier usw., wie auch Rote Listen bedrohter
+Tiere und Pflanzen geführt werden, wobei jedoch in diesen Listen nur der Erdenmenschheit bisher bekannte Spezies aufgeführt sind und von denen rund 28 000 als gefährdet aufgeführt, jedoch die noch
+vielen ihnen unbekannten nicht erwähnt werden. Unseren Abklärungen gemäss entsprechen diese Angaben jedoch nicht der Richtigkeit, denn die Anzahl auf der Erde gefährdeter und von der Ausrottung bedrohter pflanzlicher, tierischer und getierischer Lebensformen, wie auch Echsen, Insekten, Fische, Schleichen und Schlangen, wie auch die nicht zu Insekten zählenden Falter und Käfer aller Gattungen und Arten sowie andere Lebewesen ist sehr viel höher als nur 28 000. Was wir an heute gefährdeten Gattungen
+
+
+-----
+
+und Arten ergründet haben, beläuft sich auf eine Zahl von 36 642, wozu auch eine grössere Anzahl von
+Lebensformen gehört, die bisher weder der Zoologie, Entomologie noch Botanik bekannt sind.
+Die Bedrohung des Aussterbens und Ausrottens zoologischer, entomologischer und botanischer Gattungen und Arten usw. wächst weiter und zudem immer schneller, folglich also die Gattungen und Arten
+nicht nur immer schneller sterben, sondern effectiv aussterben. Wie unsere langzeitigen Forschungen
+ergeben, die wir schon seit vielen Jahren täglich durchführen, sterben zur gegenwärtigen Zeit pro Tag je
+nachdem zwischen ca. 70 bis 180 botanische, tierische, getierische und entomologische, wie auch echsengleiche, schleichende, wasserabhängige und andere Gattungen und Arten aus. Und das kann nicht
+mehr gestoppt werden, folgedem die gesamte Zerstörung der Gattungen- und Artenvielfalt der irdischen
+Lebewesen und Biodiversität nicht mehr aufgehalten werden kann. Dies, wenn nicht sehr schnell der
+Wahn der Erdenbevölkerung in bezug auf die weitere übermässige Nachkommenszeugung gestoppt wird,
+wobei diese bereits allerspätestens im Jahr 1975 hätte geschehen und ab dieser Zeit durch einen weltweiten mehrjährigen Geburtenstopp und eine anschliessende und fortan kontrollierte Geburtenregelung
+hätte umgesetzt werden müssen. Bis zu dieser Zeit wäre es noch möglich gewesen, alle bis heute zerstörerischen Übel an der Atmosphäre, dem Klima, der gesamten Natur und deren Fauna und Flora zu stoppen und wieder dem normalen Lauf zurückzugeben, was damals durch ein effizientes verstand- und vernunftträchtiges Handeln noch möglich gewesen wäre, was aber heute nicht mehr der Fall ist. Das aber ist
+heute nicht mehr möglich, weil in der gesamten Natur und am Planeten selbst zuviel zerstört wurde und
+an Lebensformen unwiderruflich ausgerottet wurden. Und dies geschah durch die verbrecherischen Machenschaften der Überbevölkerung, und zwar durch deren Bedarf an Nutzungsgütern wie Nahrungsmitteln, Bedarfsmitteln und Verbrauchsgütern usw., wobei das Ganze des Zerstörenden in Relation zur Masse der stetig ansteigenden Überbevölkerung immer mehr anstieg – und auch heute unkontrolliert weiter
+ansteigt –, was bis heute nur dadurch zu bewältigen war, indem in die Natur, deren Fauna und Flora und
+in den Planeten selbst zerstörend und ausrottend eingegriffen wurde, nun auch die Atmosphäre und das
+Kima verheerend beeinflusst.
+Die schwindende Biodiversität bedroht bereits heute die irdische Menschheit, was leider von allen sich
+überheblich <Fachwissenschaftler> nennenden Forschern und auch von der Erdenbevölkerung noch immer nicht erkannt und nicht begriffen werden will, folgedem im alten und alles zerstörenden Stil weitergemacht wird. Das bedeutet aber, dass durch die gesamten ausbeuterischen Machenschaften der Überbevölkerung die Artenvielfalt und Biodiversität die Erde und deren Natur und Fauna und Flora weiterhin
+ausgerottet und verschwinden werden, was letztendlich das Überleben allen Lebens und auch das des
+ganzen Planeten bedrohen und in Frage stellen wird.
+Infolge Dummheit und Verantwortungslosigkeit gaukelt sich das Gros der Erdenmenschen durch Unverstand und Unvernunft vor, dass wenn ein einzelnes Gras oder Kraut, ein winziges Tier oder Insekt usw.
+ausstirbt, das absolut nicht von Belang sei, weil ja davon die persönliche Nahrung nicht betroffen sei und
+nichts davon dem Leben abgehe, weshalb es nicht von Bedeutung sei, wenn etwas Kleines aussterbe.
+Dabei wird kein Gedanke darauf verschwendet, dass das Ausrotten und das Verschwinden selbst einer
+einzigen Pflanzenart oder eines einzigen kleinen Tieres das Insektensterben und das Aussterben einer
+anderen Tierart beschleunigt.
+Grundsätzlich macht sich das Gros der Erdenmenschheit keinerlei Gedanken um die Natur, deren Fauna,
+Flora und die Atmosphäre und das Klima, sondern es lebt einfach sinnlos in den Tag hinein, wie du immer wieder einmal bei unseren privaten Gesprächen sagst. Also wird kein Gedanke darauf verwendet,
+dass z.B. bei vielen Nahrungsmitteln die Bienen sowie auch diverse andere Insekten sehr wichtige Bestäuber von Blüten sind, die z.B. einen Drittel der natürlichen Lebensmittel der Erdenmenschheit ausmachen. Das Aussterben diverser dieser Insektenarten hat bereits heute nachteilige Folgen in bezug auf die
+Produktion verschiedener natürlicher Nahrungsmittel, wodurch schon seit Jahrzehnten in dadurch benachteiligten Ländern Hungersnöte herrschen und viele Menschen qualvoll des Hungers sterben. Die tatsächlich überaus schlimmen Folgen, die sich zukünftig durch das fortlaufende Artensterben ergeben
+werden, darum macht sich die überbevölkerte Erdenmenschheit keine Gedanken, folgedem sind für sie
+die sich bereits anbahnenden schrecklichen Folgen auch nicht absehbar. Das aber wird sich in Zukunft
+für die Nachkommen der heutigen, morgigen und übermorgigen verantwortungslosen Erdenmenschheit
+ändern, denn diese werden es sein, die zukünftig die bösen Folgen erleben und zu spüren bekommen
+und dafür ihre Vorfahren und deren Verantwortungslosigkeit verfluchen werden. Doch es ist nicht nur das
+heute Übersichtliche hinsichtlich des Aussterbens vieler diverser Gattungen und Arten, sondern es werden zukünftig auch viele weiterte und anderen Tiere, Pflanzen sowie viel Getier, Insekten und vielfältige
+andere Lebensformen sein, die zukünftig ebenfalls vom Aussterben bedroht werden. Das jedoch kümmert
+die Erdenmenschen zur heutigen Zeit nicht, denn noch können sie gar nicht ermessen, welche ungeheuer
+schrecklichen Folgen das Aussterben der jeweiligen weiteren Gattungen und Arten nach sich ziehen wird.
+Und daran wird einzig und allein die für den Planeten Erde ungeheure und nicht tragbare Überbevölkerung mit all ihren zerstörenden Machenschaften die Schuld tragen, wie das auch heute der Fall ist für
+alles diesbezüglich bereits Geschehene in bezug auf die diversen Ausrottungen verschiedener Gattungen
+
+
+-----
+
+und Arten der natürlichen Lebensvielfalt und Biodiversität. Dies, weil nicht erkannt werden will, dass die
+masslose Überbevölkerung und all deren die Natur, Fauna, Flora und die Atmosphäre und das Klima zerstörenden Machenschaften die Schuld an allem tragen. Und es will nicht erkannt und nicht derart gehandelt werden, dass nur durch einen drastischen weltweiten und mehrjährigen Geburtenstopp und eine
+ebenso drastische weltweite Geburtenkontrolle das Schlimmste noch verhindert und dadurch eine Regeneration des noch Rettbaren erfolgen könnte. Dabei würde jedoch ein Regenerieren des noch Rettbaren
+in bezug auf die Natur, Fauna und Flora, den Planeten selbst sowie die Atmosphäre und das Klima einer
+sehr langen Zeit bedürfen, und zwar über viele Generationen hinweg.
+Was nun aber verantwortungslos getan wird, ist das, dass ein halbwüchsiges und unwissendes Kind namens Greta Thunberg schändlich dazu missbraucht wird, eine weltweite <fridaysforfuture> Klimaschutzbewegung anzuführen. Dies, obwohl dieses unschuldige Kind hinsichtlich der tatsächlichen Ausrottungsund Zerstörungszusammenhänge in bezug auf die Natur, Fauna, Flora und des Planeten sowie des Klimas usw. keinerlei Ahnung oder Wissen hat. Zudem ist das unwissende Kind, das seit seinem ersten Auftreten in der Zwischenzeit einem Wahn der Selbsterhebung verfallen ist, von einem abgeschwächten Autismus befallen, durch den es eine Schwäche hinsichtlich einer sozialen Interaktion und auch bezüglich
+der Kommunikation hat. Weitere Störungen liegen bei diesem Kind auch in der Weise vor, dass es von
+Gewohnheiten und Brauchtum gesteuert wird und keine Ausprägung eines Einfühlungsvermögens aufweist, wie ich eindeutig diagnostizieren konnte. Auch vermag es infolge einer verzögerten BewusstseinsEntwicklung nicht in richtiger verstand- und vernunftklarer Weise die Wirklichkeit und deren Wahrheit
+wahrzunehmen, weshalb es dazu tendiert, sich gedanklich beschäftigend in Einzelfaktoren irgendeiner
+Sache zu ergehen, ohne deren grundlegende Faktoren in ihrer Realität erfassen zu vermögen. Folgedem
+kann es sich effectiv auch nicht in sein Tun hinsichtlich seines <Klimaprotestes> hineinversetzen, wie es
+dies auch nicht tun kann infolge des Fehlens der Regungswahrnehmungsfähigkeit bezüglich irgendwelcher Lebensformen der Natur und bei Menschen. Auch ist das Kind von einer stark mangelhaften sozialen Unfähigkeit geprägt, wie sporadisch auch von Aufmerksamkeitsschwäche, wobei es jedoch bei seinem
+Klimaprotesttun von einem starken inneren pathologischen Zwang getrieben wird.
+Der Klimawandel, der erst durch ein unwissendes Kind angeprangert wurde und seither weltweit bis in
+die Regierungen Wellen schlägt und zudem massenweise unbedarfte Klimaprotestschreiende hervorgerufen hat, die, ebenso wie das Kind, keinerlei Ahnung und Wissen davon haben, was wirklich Fakt ist, hat zur
+Folge, dass die Regierenden und Politiker das Ganze in populistischer und zudem auch in einer Weise
+auszuschlachten beginnen werden, um damit ihre Staatskassen zu füllen. Dies wird derart sein, indem die
+verantwortungslosen Regierenden und Politiker neue zwingende Abgaben und Steuern erfinden und umsetzen werden, die dann nichts anderem entsprechen, als einer finanziellen Ausbeutung der Bevölkerungen, um in dieser illegalen Weise die Staatskassen vollzustopfen, deren Finanzen jedoch wieder sinnlos
+verschleudert und zusätzlich dazu noch Schulden gemacht werden.
+Was ich nun aber zu sagen habe, das entspricht Fakten, die eigentlich nicht der Art entsprechen, worüber
+ich mich auslassen will, weil es nicht meinem Bedürfnis entspricht, mich in die irren und wirren, falschen,
+dummen und unlogischen regierungsamtlichen Führungsmachenschaften sowie Handlungs- und Verhaltensweisen der irdischen Regierungen und Politik einzumischen. Nichtsdestotrotz sehe ich aber eine
+Notwendigkeit, dies heute trotzdem zu tun und zu sagen, dass das absolute Gros der irdischen Regierenden und der Politik wohl gemäss seiner körperlichen Reife als erwachsen beurteilt werden kann, nicht
+jedoch in bezug auf sein Bewusstseins-Erwachsensein. Diesbezüglich lebt nämlich das absolute Gros, so
+alt es in jedem einzelnen Fall an Lebensjahren auch ist, hinsichtlich dessen Verstand und seiner Vernunft
+in einem unerwachsenen, kindlichen Zustand. In diesem Zustand mangelt es ihm jedoch an Beurteilungsvermögen sowie Entscheidungs-, Handlungs-, Verhaltens- und Verantwortungsvermögen, wodurch es zur
+Führung von Bevölkerungen und Völkern unfähig ist. Und diese Unfähigkeit, wie auch seine Selbstsucht
+und Feigheit vor der Erkennung in bezug auf die Wirklichkeit und Wahrheit sowie die Angst vor der öffentlichen Meinung usw. führt dazu, dass es keinerlei Gedanken aufbringt, um der Wahrheit offen ins Auge zu
+sehen und zu erkennen, dass die Wirklichkeit anders ist, als es diese behauptet zu kennen. Also bemüh es
+sich weder um die Wirklichkeit und deren Wahrheit, noch darum, was notwendigerweise erkannt und
+gelehrt werden müsste in bezug auf die tatsächlichen Ursachen der Atmosphäre-Beeinträchtigung, der
+Klimazerstörung, der Bedrohung allen Lebens und der Zerstörung der Natur sowie des Planeten selbst.
+Gleichermassen gilt das auch in bezug auf die Ausrottung der Artenvielfalt der gesamten Biodiversität der
+Flora, wie aber auch hinsichtlich des Bestandes der sich stetig steigernden Gefährdung der Fauna, in der
+immer mehr Gattungen und Arten verschiedenster Lebensformen durch die erdenmenschliche Schuld
+aussterben. Und dass das Ganze an allem Elend und Übel, an Zerstörung, Tod und Ausrottungen usw.
+einzig und allein durch die Schuld der Erdenmenschheit grassiert, und zwar durch die ungeheure Überbevölkerung, aus der durch ihre Machenschaften alles Leben in Frage gestellt wird, das kümmert die
+obersten und oberen Weltverantwortlichen nicht. Und wird dem Tun des Weiteranwachsens der Überbevölkerung nicht durch einen weltweiten und mehrjährigen Geburtenstopp Einhalt geboten und danach
+eine greifende weltweite Geburtenkontrolle beschlossen und durchgeführt, was bereits spätestens 1975
+
+
+-----
+
+hätte getan werden müssen – was jedoch nicht getan wurde –, dann werden die Ausrottungen und Zerstörungen weitergehen und letztendlich eine unaufhaltbare Vernichtung der gesamten Existenz der Erde
+und aller ihrer Lebensformen aller Gattungen und Arten zum bitteren Ende führen.
+Bereits werden geheime Pläne ersonnen, um in hinterhältiger Weise die Völker mit neuerlichen Steuern
+auszubeuten, wie z.B. mit Abgaben von Prämien zum angeblichen Klimaschutz, wie auch Steuererhebungen für den Ausstoss von allerlei Emissionen. Diesbezüglich wird die Nutzung der heutigen Technik in
+Betracht gezogen werden, um zwangsmässig neue Steuern und andere Abgaben von den Bevölkerungen
+zu erzwingen, die oft sehr mühsam ihre täglichen Arbeiten für niedrige Entlohnungen verrichten und in
+Kargheit leben müssen, während die Regierenden durch die von der Arbeiterschaft mühsam erwirtschafteten Steuergelder in Saus und Braus leben und von den neuen Abgaben und Steuern befreit werden.
+Tatsächlich bestehen bereits erste Ansätze dazu, um die Bevölkerungen mit neuen Abgaben und Steuern
+auszubeuten, und zwar indem die zur heutigen Zeit noch stark emissionserzeugenden Heizungen, Sport-,
+Transport- und Verkehrsmittel, Arbeitsmaschinen, Schiffe und Flugzeuge sowie diverse andere Dinge für
+deren Emissionsausstoss finanziell ausgeraubt werden sollen. Dies darum, weil es noch keine wirklich
+greifende sowie andere und bessere Möglichkeiten gibt, andere von CO2 und anderen Emissionen freie
+Fahrzeuge, Heizungen, Flugzeuge, Schiffe und Arbeitsmaschinen usw. zu produzieren und zu nutzen.
+Dabei sind auch die neuerdings hoch im Kurs stehenden Elektrofahrzeuge keine Lösung, die propagiert
+werden, um den schädlichen und klimaschädlichen Emissionsausstoss zu reduzieren, denn einerseits
+entsteht durch diese unbedachte irrige und wirre Propagierung ein Produktionswahn und anderseits eine
+heute noch unübersehbare Feindlichkeit jenes grossen Teils der Völker, der dem Klimaschutzwahn verfallen ist und weiterhin verfallen wird, der durch Greta Thunberg heraufbeschworen und nunmehr auch in
+die Regierungen eingedrungen ist und fortan auch zur finanziellen Ausbeutung der Bevölkerungen dienen
+soll.
+Was die Tatsache des effectiven Ursprungs der Klimazerstörung betrifft, das kann vom Kind Greta Thunberg ebenso nicht erkannt und nicht verstanden werden, wie auch nicht von all den weltweiten Massen,
+die dumm, unbedacht und unbedarft mit Pro- und Hurrageschrei Klimademonstrationen durchführen
+und unsinnige Forderungen stellen. Forderungen, die an die sich bedroht fühlenden populistisch an ihre
+Positionen gelangten und falschregierenden Regierenden und Politikbetreibenden gerichtet sind, die nun
+dem Klimademonstrationspöbel die Hand reichen und deren unsinnigen Forderungen Folge leisten sollen. Und diese, wie sagst du doch immer, <die wie winselnde Wölfe um ihre Ämter bangen>, diese sind es
+nun, die eben exakt darum ihr Banner nach der Klimademonstrationsmache der Klimademonstranten
+setzen und, wie du eben sagst, mitwinseln. Das Ganze dieser Regierungsmache resp. das Winseln der
+Regierungen und aller anderer Ämter, Organisationen und Klimaschützer ist nur eitel Schein und Trug,
+wie ebenso deren nutzlose Vorschläge und Beschlussfassungen jeder Fasson. Und dies ist so, weil grundsätzlich die einzige Lösung allein darin besteht, die Erdenmenschheit durch einen langjährigen Geburtenstopp und eine danach andauernde und kontrollierte Geburtenregelung auf eine planetengerechte Bevölkerungszahl zu bringen und diese beizubehalten. Nur dadurch können auch die Ausartungen, Zerstörungen, Vernichtungen und Ausrottungen aller Art durch die verbrecherischen Machenschaften der Überbevölkerung gestoppt und kann im Lauf einer sehr langen Zeit unter gewissen Umständen und Bemühungen teilweise auch einiges in der Natur und am Planeten selbst wieder beruhigt und halbwegs normalisiert werden. Weitgehend ist das nicht mehr möglich und kann auch nicht mehr realisiert werden, weil
+bereits viel zu viel in der Natur, der Fauna und Flora zerstört, vernichtet und ausgerottet und auch der
+Planet selbst hinsichtlich seiner Ressourcen verantwortungslos und verbrecherisch ausgebeutet wurde,
+folgedem er auf lange Zeit für eine Menschheit einer fernen Zukunft gesehen bereits zur heutigen Zeit
+nutzlos geworden ist. Diese Tatsache lässt bereits heute erkennen, dass ein Weiterberstehen der Erdenmenschheit in fernerer Zukunft nur dadurch erfolgen kann, dass eine weitumfassende MenschheitEmigration resp. Menschheits-Aussiedlung auf einen neuen, sehr weit entfernten und noch nicht zerstörten Planeten stattfinden würde. Das jedoch würde nicht mehr als einer sehr unsicheren Hoffnung entsprechen, wenn sie in Betracht gezogen werden könnte, und zwar auch darum, weil u.U. fremde Planetenvölker nicht Willens wären, eine derweise ethisch-moralisch ausgeartete Menschheit, wie eben die Erdenmenschheit, deren Gros gesinnungsmässig übel dran ist, in ihr Sonnen- und Planetensystem immigrieren resp. einwandern zu lassen. Doch wieder schweife ich davon ab, was ich grundlegend hinsichtlich
+des Klimawandels und der unsinnigen, nicht sachgerechten und dummen Forderungen der Klimademonstrierenden und Regierungen sagen will. Ein noch wirksamer Klimawandel kann auf kurze Zeit gesehen nicht mehr zuwegegebracht werden, wie ich schon erwähnte, folglich dementsprechende Ideen,
+Wünsche, Bestrebungen und Vorschläge usw. unsinnig und damit völlig unlogisch und nicht auf einen
+weltweiten Geburtenstopp und damit nicht darauf ausgelegt sind, alle zerstörenden, vernichtenden und
+ausrottenden Machenschaften bezüglich der überbordenden Bedürfnisse der Überbevölkerung zu stoppen und zu beenden.
+Alle die Forderungen, dass der Ausstoss von schädlichen Emissionen, insbesondere CO2, eingeschränkt
+werden soll, so bei Fahrzeugen aller Art, bei Flugzeugen Schiffen, Arbeitsmaschinen und Heizungen usw.,
+
+
+-----
+
+oder dass diese überhaupt verboten werden und allesamt alles an solchen Apparaturen, Maschinen,
+Fahrzeugen sowie Transportmitteln usw. durch eine Elektrifizierung umgebaut, erneuert und ersetzt werden soll, können illusorischer nicht sein. Natürlich könnten durch solche Massnahmen – das ist unbestreitbar – gewisse Emissionen etwas eingeschränkt werden, doch entspräche dies nicht mehr als einem
+Tropfen auf einen heissen Stein, wie du vergleichsmässig bezüglich jeweils gewissen anfallenden Dingen
+sagst, die nutzlos sind, wenn sie getan werden. Tatsache ist nämlich, dass sich auch durch eine kleine
+Reduktion aller schädlichen Emissionen am Ganzen aller Beeinträchtigungen in bezug auf die Atmosphäre, das Klima, des Planeten und dessen Natur sowie deren Fauna und Flora nichts ändern würde. Dies
+darum, weil die Masse der erdenmenschlichen Überbevölkerung weiterhin masslos ansteigt und kein
+weltweiter mehrjähriger notwendiger Geburtenstopp und eine nachfolgende Geburtenregelung in die
+Wirklichkeit umgesetzt wird. Durch das weitere Anwachsen der Überbevölkerung und den sich mit jeder
+neuen Geburt eines Erdenmenschen steigernden planeten- und lebenszerstörenden Machenschaften
+werden all die Forderungen von dem unbedarften Kind Greta Thunberg und ihren ebenso unwissenden,
+unbedarften, ihm anhängenden und dumm zu nennenden Klimademonstranten zur Lächerlichkeit. Dazu
+gehören auch die Aktionen der Regierenden und Politiker, die sich in ihrer Dummheit ebenfalls lächerlich
+machen – was die Völker erheitern könnte, wenn das gesamte Übel nicht so ernst wäre –, weil auch diese
+obersten und oberen der Staatsführungen nicht wahrnehmen und daher auch nicht verstehen, was die
+Not wirklich erfordert. Und dieses Erfordernis, nämlich ein mehrjähriger Geburtenstopp und danach eine
+greifende Geburtenkontrolle ist unumgänglich, um die Erdenmenschheit in absehbar Zeit in vernünftiger
+und menschenwürdiger Weise zu reduzierten. Das aber wird von der Erdenmenschheit nicht in Betracht
+gezogen und abgelehnt, denn sie will Ihre verbrecherischen Machenschaften für ihre Lebensbedürfnisse,
+ihr Wohlergeben, ihre Nahrung und Luxusgüter sowie Urlaubs- und Reisesucht beibehalten und nicht
+eindämmen. Nur dadurch aber, indem das Notwendige getan wird, kann alles Leben und alle Existenz
+geschützt und erhalten werden, eben nur dann, wenn die alles Leben und alle Existenz bedrohende
+Überbevölkerung mit all ihren alles gefährdenden Machenschaften eingedämmt wird. Nur dadurch kann
+sich über einen viele Jahrhunderte dauernden Prozess nach und nach das, was in der Artenvielfalt der
+gesamten Biodiversität und am Planeten selbst noch nicht zerstört und noch nicht ausgerottet ist, wieder
+erholen und regenerieren.
+
+**Billy** Danke. Lange Rede, langer Sinn, wozu ich denke, dass es gut ist, dass auch du einmal etwas in
+
+dieser Weise gesagt hast und nicht nur immer ich. Dies finde ich deshalb besonders gut, weil jeder
+Mensch seine eigene persönliche Meinung vertreten muss, wie aber auch dass jeder die Meinung eines
+anderen zu respektieren hat. Und dazu verhalte ich mich genau in dieser Weise, folglich schätze ich jede
+Meinung eines Menschen als dessen Recht ein und respektiere diese, und zwar ganz egal, welcher Art
+diese Meinung ist und wie sie vertreten wird, solange sie nicht kriminell, nicht verbrecherisch und damit
+auch nicht gegen Leib, Leben und gegen die Sicherheit von Menschen oder quälerisch usw. hinsichtlich
+irgendwelcher anderer Lebensformen ist. Jeder Mensch hat also grundsätzlich das Recht auf seine eigene
+Meinung, und das gilt auch für jeden religiösen, philosophischen, ideologischen, weltlichen oder sonstigen
+Glauben, und sei er noch so irr und verrückt, doch darf er eben nicht kriminell, nicht verbrecherisch sowie
+nicht ausgeartet gegen Leib und Leben sein. Aus dieser Sicht betrachtet, lasse ich jeden Menschen mit
+seiner Meinung so wie er ist, weshalb ich auch einen religiös Gläubigen niemals beharke und ihm auch
+nicht seinen Wahn angreife, ausser er tut dies gegenteilig angriffig gegen mich. Prinzipiell lasse ich jedoch
+jeden Menschen so wie er ist, denkt und glaubt, folglich ich ihn als Menschen so akzeptiere wie er als
+Mensch mit seiner Meinung ist, folgedem ich ihm als solcher die notwendige Ehre und Würde entgegenbringe und ihn nicht verurteile, jedoch ihm das als Dummheit aufweisen kann, wenn er etwas Falsches
+denkt, falsch handelt oder sich falsch verhält, was ihm oder anderen Menschen Schaden bringt.
+
+**Ptaah Es drängte mich schon lange dazu, selbst einmal etwas in der Art zu sagen, wie ich es getan habe.**
+Und was du nun noch erklärt hast hinsichtlich deines Verhaltens bezüglich deiner Akzeptanz von Meinungen anderer Menschen, dazu weiss ich sehr genau, dass das wirklich deine untadelige Art ist.
+
+**Billy** Aber jetzt ist es getan, und es ist wohl gut und richtig so. Dazu möchte ich aber auch noch etwas
+
+sagen, nämlich dass die Klimaschreier aller Art, also auch diejenigen von Klimaschutzorganisationen, wie
+auch jene, welche jetzt in den Regierungen und in der Politik ihre grossen Mundwerke führen, nichts von
+der Wahrheit der wirklichen Ursache der Klimazerstörung hören wollen. Dafür liegt der Grund ganz eindeutig darin, dass nicht darüber nachgedacht werden will, dass die Überbevölkerung mit ihren zerstörerischen Machenschaften aller Art die Schuld an allem trägt, wie auch, dass nur durch einen Geburtenstopp
+langjähriger Form und eine Geburtenkontrolle das letzte Übel noch verhindert werden kann. Jetzt sind es
+wohl mehr als nur sieben Jahre in bezug auf einen Geburtenstopp, weil die Masse der Menschheit ja gewaltig zugenommen hat seit damals, als die 7 Jahre angesagt waren. Das Gros der Menschen der Erde ist
+einfach unbelehrbar und dermassen egoistisch, auf sich selbst bezogen und gewissenlos gegenüber der
+
+
+-----
+
+Erde, der Natur, deren Fauna, Flora, der Atmosphäre und dem Klima, dass es zum Heulen ist. Und dieses
+Gros ist auch absolut gleichgültig gegenüber der gesamten irdischen Existenz und allem Leben überhaupt, weshalb es sich stur weigert, auch nur einmal kurz darüber nachzudenken, dass auch das Unterlassen des Nachkommenschaffens zur gesamten Existenz und allem Leben aller Lebensformen auf der
+Erde gehört. Diese Sturheit, Gleichgültigkeit und auch die Verantwortungslosigkeit sind nicht damit verbunden und haben effectiv nichts damit zu tun, dass eine eigene freie Meinung gebildet und vertreten
+wird, sondern einzig damit, dass unter allen Umständen der persönliche Egoismus über alles gesetzt und
+entgegen aller Vernunft und Verantwortung erzwingend und auf Biegen und Brechen durchgesetzt wird.
+Etwas weiteres, denke ich, ist die Tatsache die, dass die Erdenmenschheit in sechs Kategorien eingeteilt
+werden muss, wobei sich folgendes ergibt:
+**Erstens ist es heutzutage beim Gros der Erdlinge überhaupt nicht mehr möglich, dass noch eine richtige**
+und interessante sowie verbindliche und wertvolle Kommunikation geführt werden kann.
+**Zweitens werden heutzutage vom Gros der Menschheit auch keinerlei** wertvolle zwischenmenschliche
+Beziehungen mehr gepflegt, folgedem allgemein auch der menschliche Zusammenhalt bereits derart
+verkümmert ist und weiterhin noch mehr verkümmert, dass nicht einmal mehr echte verbindende Bekanntschaften, geschweige denn ehrlich-aufrichtige und verbindende Freundschaften zustande kommen.
+**Drittens ist das Gros der heutigen Menschheit in bezug auf wirklich wertvolle und wertbeständige Interes-**
+sen und Tätigkeiten völlig passiv und verkümmert bewusstseins- und verstand-vernunftmässig immer
+mehr, bildet seinen Intellekt und sein Intelligentum nicht mehr, sondern vergammelt je länger je mehr
+durch die gehirnlose und das Bewusstsein zur Abstumpfung treibende Nutzung der immer neueren
+technischen und elektronischen Errungenschaften.
+**Viertens ist das Gros der heutigen Menschheit derart stumpfsinnig, dass es nicht mehr zur eigenen Mei-**
+nungsbildung fähig ist, sondern nur noch einer Hörigkeit verfällt, wenn es durch suggestiv-populistisch
+eingehämmerte Parolen, Lügen, Versprechungen und Verleumdungen einem Wahnglauben verfällt, der
+ihm durch Politiker, Regierende, Pfaffen, Prediger, Sektenhäuptlinge oder Geheimbündler usw. aufgedrängt wird und es sich zu deren Willen und Meinung belämmern lässt.
+**Fünftens ist das Gros der heutigen Menschheit völlig gleichgültig gegenüber den Mitmenschen, der Natur**
+und deren Fauna und Flora sowie in bezug auf die effective Wirklichkeit und deren Wahrheit.
+**Sechstens ist nur ein sehr geringer Teil der heutigen Menschheit an der effectiven Wirklichkeit und**
+Wahrheit aller Dinge interessiert, wie in bezug auf die gesamte Existenz alles Bestehenden in jeder Art
+und Weise allem planetarisch sowie universell und gesamthaft schöpferisch Gegebenen in jeder Beziehung, dass überhaupt auch nur noch eine eigene vernunftträchtige und verantwortungsbewusste Meinung gebildet und vertreten wird. Effectiv ist es doch so, dass das alles überwiegende Gros der Erdlingsheit weder Verstand noch Vernunft gebraucht und daher dumpf und blind in blanker Dummheit einhergeht, sich für rein gar nichts interessiert, als nur gerade für das eigene Wohl, genügend Geld und die notwendigen Bedürfnisse, um überhaupt dahinexistieren zu können.
+
+**Ptaah Deine Worte in der Erdenmenschen Ohr, denn dorthin gehören sie.**
+
+**Billy** Wenn du recht hast, dann ist es auch so. Aber weiter darüber zu reden, bringt sowieso nichts,
+
+weshalb es wohl besser ist, wenn ich dich etwas frage, das mich interessiert. Grundsätzlich gibt es auf der
+Erde ja eigentlich nichts mehr in der freien Natur und deren Fauna und Flora, das nicht durch irgendwelche Pestizide, Pflanzenschutzmittel und Co. usw. kontaminiert wäre, und zwar nicht durch die natürlichen
+Toxine, die in der freien Natur entstehen, sondern durch von den Erdlingen hergestellte künstliche Gifte
+aller erdenklich möglichen Arten. Schon dein Vater Sfath hat mir Mitte der 1940er Jahre erklärt, dass alle
+in der freie Natur entstehenden Toxine aller Art resp. von Bakterien, Pflanzen oder Tieren, Fischen, Schleichen, Insekten, Schlangen und von Getier usw. abgeschiedene oder beim Zerfall von Bakterien entstandene organische Giftstoffe, und zwar egal welche, nicht in übermässigen Mengen vorkommen und auch
+nicht unbedingt tödlich sind, wie von den Erdlingen hergestellte tödliche Gifte. Er sagte auch, dass diese
+Giftstoffe schon in den nächsten Jahren in alle natürlich angepflanzten Nahrungsmittel wie auch ins
+Grundwasser und damit in den Nahrungsmittelkreislauf der Menschen gelangen werden. Das sei dann
+schon ab den 1950er Jahren wissenschaftlich nachweisbar und werde auch wissenschaftlich erkannt. Die
+diesbezüglichen Forschungsergebnisse würden jedoch von den dafür zuständigen Wissenschaftlern und
+den Behörden gegenüber der Öffentlichkeit verschwiegen, obwohl sich auch das Eidgenössische Gesundheitsamt damit befasse, das, wenn ich mich richtig erinnere, in den 1960er Jahren in ein Bundesamt für
+Gesundheitswesen oder so umgewandelt werde, wonach dann aber in den 1980er Jahren dieses Amt
+nochmals umbenannt und kurz BAG genannt werde. Dabei handelt es sich heute um das <Bundesamt
+für Gesundheit>, das zum Departement des Innern gehört und für die nationale Gesundheitspolitik und
+diesbezüglich für die Förderung der Gesundheit der Schweizer Bevölkerung zuständig ist. Dabei ist aber
+nicht zu bergreifen, dass dieses Amt nicht die gesamte Giftausbringung verboten hat, sondern gegenteilig
+noch behauptet, das gewisse sehr geringe Mengen für den menschlichen Organismus unschädlich und
+
+
+-----
+
+verträglich seien. Und das steht dem entgegen, was du schon oft erklärt hast – wie auch dein Vater Sfath
+–, dass Gifte jeder Art, selbst als aller-minimalste Menge im Bereich eines einzigen Mikrogramms, für den
+gesamten Organismus des Menschen ebenso gesundheitsschädlich seien, wie auch für sämtliche Lebensformen überhaupt. Und Sfath erklärte, wie auch du sagtest, dass die Tatsache die sei, dass durch solche
+minimalste Giftspuren beim Menschen zukünftig vielartige Leiden hervorgerufen würden, die es ohne
+diese Giftzuführungen in den Organismus nicht geben würde. Das bedeutet, dass aus diesen selbst minimalsten Giftspuren also neue Leiden, Schäden und Schmerzen resultieren, die es früher nicht oder nur
+verschwindend wenig gegeben hat, die aber seit der Einsetzung und Verbreitung der Gifte überhandgenommen haben, die bereits vorhandenen weiter vorantreiben und neue Leiden hervorrufen.
+
+**Ptaah Das ist tatsächlich so, doch ist auch zu erwähnen, dass bereits seit Mitte der 1960er Jahre auch**
+die Grundwasser durch die verantwortungslos in die gesamte Natur und Flora ausgebrachten vielfältigen
+Gifte kontaminiert werden und dadurch diese Stoffe auch als gifttragendes Trinkwasser in den menschlichen Organismus gelangen, wie aber auch durch feinste Giftpartikel, die in der Atemluft der Atmosphäre
+schweben und infolge des Einatmens in die Lungen gelangen und dadurch wiederum ins Blut und in den
+gesamten Organismus.
+
+**Billy** Das ist wohl so, und du musst es ja viel besser wissen als unsere Wissenschaftler, die gegenüber
+
+euren sehr viel weiter fortgeschrittenen Erkenntnissen und Erfahrungen praktisch erst langsam aus ihren
+Höhlen kriechen und die ersten Grashalme sehen, bei denen sie deren für sie noch nicht erklärbaren groben äusseren Aufbau wahrnehmen und die ersten Einzelheiten erkennen. Wird seit den 1940er Jahren
+das betrachtet, was sich bis heute bezüglich der Giftanwendung in der Natur ergeben hat, dann erweist
+sich das, was Sfath gesagt hat, heute als Wirklichkeit. Denn inzwischen sind seine Voraussagen schon
+längst Tatsache und Wahrheit geworden, nämlich, dass durch das Ausbringen von künstlichen Giftstoffen
+in die Natur in zukünftiger Zeit – von damals aus gesehen eben ab der zweiten Hälfte des 19. Jahrhunderts und die heutige und zukünftige Zeit – Deformationen und sonstige Veränderungen an den Körperextremitäten der Menschen hervorgerufen, wie auch gesundheitliche Schäden bei den faunaischen und
+florischen Lebensformen auftreten werden. Dies eben, wie ich schon sagte, beim Ausbringen und Gebrauch von Mengen, die allgemein schädlich sind, was ja relativ zu beurteilen ist. Auch erklärte Sfath damals, dass diese künstlichen Gifte auch starke negative Veränderungen im Gehirn der Menschen verursachen und das Bewusstsein beeinträchtigen werden, was bis zur Verblödung führen könne. Es sei aber
+auch so, wie er damals ganz besonders erwähnte, dass durch die Einwirkungen der alles kontaminierenden künstlichen Giftstoffe beim Gros der Menschheit schwere und auch vielartige sowie teils unheilbare
+Krankheiten herbeigeführt, wie aber auch derartige Bewusstseinsveränderungen und schwere Bewusstseinsschäden auftreten würden, durch die den Menschen die Nutzung von Verstand und Vernunft beeinträchtigt und teils gar völlig verunmöglicht werde. Dadurch, so erklärte er, wie ich mich sehr gut erinnere,
+werde bei vielen Menschen deren Bewusstseinskraft absinken und sie für ein unlogisches Denken, Handeln und in bezug auf Süchte äusserst anfällig werden, wie zudem die eigene Überlegungs- und Entscheidungsfähigkeit der Menschen stark beeinträchtigt, erschlaffen und durch äussere gesteuerte Beeinflussungen manipuliert werde.
+Nun, zu all dem, was mir Sfath diesbezüglich erklärt hat, habe ich mir schon verschiedentlich Gedanken
+gemacht und bin zum Schluss gekommen, dass die Erklärung dafür wahrscheinlich die sein kann, dass
+die durch die Gifte entstehenden Bewusstseinsschäden und Bewusstseinsveränderungen sowie die Beeinträchtigung von Verstand und Vernunft, wie es dein Vater vorausgesagt hat, dem entspricht, was du bereits vor einigen Jahren festgestellt und gesagt hast, dass ihr beim Gros der Erdenmenschen keinen Bewusstseinsfortschritt, sondern eine Bewusstseinsverkümmerung festgestellt habt. Wenn ich das bedenke,
+dann muss es wohl so sein, dass beim Gros der Erdlinge das an und für sich schon nicht sehr hoch entwickelte Intelligentum in bezug auf sein Niveau stetig mehr nachlässt, resp. dass das Intelligentsein infolge Nichtgebrauch von Verstand und Vernunft immer mehr verkümmert. Und dies kann sich meines Erachtens nur ergeben, wenn infolge des Fehlens und Nichtausübens der erforderlich-notwendigen Verstand-Vernunftarbeit der Intellekt nicht mehr gebildet wird. Das aber kann ich mir sehr gut vorstellen bei
+Menschen, die religiösen Wahngläubigkeiten sowie Ideologien, zweifelhaften Philosophien und irgendwelchen anderen Gläubigkeiten, eingefressenen Falschbelehrungen sowie Falschinformationen, Falschansichten und/oder Irreführungen und Wirrnissen verfallen sind. Dies eben derart, wie das Gros der Menschen
+dieser Welt von solchen Einflüssen befallen ist und in dieser Weise von anderen Menschen suggestiv beeinflusst und indoktriniert und zu einem Glauben irgendwelcher Art wird und meint, dass es nun das Non
+plus ultra aller Weisheit gefunden und gewonnen hätte, jedoch in Wahrheit einer wirren Irreführung verfallen ist. Und das geschieht, weil diese Menschen sich nicht der effectiven Wirklichkeit und deren einzigen Wahrheit zuwenden und nicht in völlig neutraler Weise in sich selbst die Wahrheit suchen, indem sie
+sich von jeder Gläubigkeit und äusseren Beeinflussung befreien und lernen, sich selbst zu sein und nur
+sich selbst zu vertrauen. Das aber bedeutet, dass der Mensch, wie und was er auch immer ist, keinem
+
+
+-----
+
+Glauben nachhängt, alles was an ihn herangetragen wird selbst bedenkt, ergründet, verarbeitet und zu
+seinem ureigenen Wissen macht. Dabei darf er auch in bezug auf das Lernen und die Wahrheitssuche
+nichts durch andere entscheiden lassen, sondern dies darf und muss in jeder Beziehung einzig und allein
+ihm selbst überlassen sein, denn nur er allein ist sich selbst und darf und kann nur über sich selbst entscheiden, niemals jedoch ein anderer Mensch. Ein Glaube jedoch entspricht in jedem einzelnen Fall einer
+äusseren suggestiven und indoktrinierenden Beeinflussung und zwingt den Menschen, an etwas ihm Eingebleutes zu glauben, wodurch er in jeder Beziehung zwangsläufig seine Eigenständigkeit seines persönlichen Suchen, ebenso verliert wie auch sein eigenes Werweissen, sein persönliches Suchen nach der
+Wahrheit und deren Finden. Durch Glauben verliert der Mensch in jeder Art und Weise seine Selbständigkeit, Eigenständigkeit und Selbsterkennung, wie auch seine persönliche Entscheidungsfreiheit und Entscheidungsfähigkeit, wodurch er zwangsläufig zum Sklaven seines Glaubens wird, von dem er sich dann
+nicht mehr oder nur noch sehr mühsam und schwer wieder befreien kann – wenn überhaupt.
+Was mich nun aber einmal interessiert, wäre das, was eigentlich dein Ur-Ur-Ur-Grossvater hier auf der
+Erde getan hat. Du hast ihn einmal bei einem privaten Gespräch kurz erwähnt, doch habe ich seinen Namen vergessen.
+
+**Ptaah Mein Ur-Ur-Ur-Grossvater wurde Isobron genannt, und die Bedeutung des Namens ist <Er beginnt**
+ein Gewitter mit Donner>. Er war ein Sprachen- und Schriftenkundiger und kam mit vielen seiner Schüler
+zur Zeit der mediterran-vorderasiatischen Zivilisationen auf die Erde. Er siedelte sich in jenem Gebiet an,
+das dann Ägypten genannt wurde und bis heute so weiterbersteht, wobei er jedoch weit umherreiste, so
+auch ins Land, das heute Griechenland genannt wird. Seinem Wissen gemäss war er immer darum bemüht, die Schriftkunst und Sprachen zu verbreiten, worum er sich auch rund um das Mittelmeer bei den
+verschiedenen Völkern bemühte, die seine Lehren annahmen und die Schrift erlernten. Je nach Volk und
+Sprache lehrte er diesen verschiedenste Schriftformen, von reinen Bildschriften bis zur graphischen Gestaltung von Satzschriften in verschiedenen Sprachen. Gleicherart taten dies alle seiner Schüler beiderlei
+Geschlechts, die sich auf der ganzen Erde ausbreiteten und die damaligen zahlenmässig noch nicht sehr
+grossen Völker in Schrift und Sprache unterrichteten. Und wenn ich von Völkern rede, dann sind damit
+nicht die Bevölkerungen selbst gemeint, sondern nur jene von diesen, die auch zur damaligen Zeit sich
+um eine höhere Bildung und um mehr Wissen usw. bemühten, als dies dem Gros der Völker eigen war.
+
+**Billy** Also war zur damaligen Zeit dein Ur-Ur-Ur-Grossvater auf der Erde und unterrichtete den frühen
+
+Völkern die Schrift, wie das weltweit auch seine Schüler taten, folglich man sagen kann, dass eigentlich
+alle auf der Erde angewandten frühen Schriftsprachen bei den irdischen Völkern auf einen plejarischen
+Ursprung zurückführen.
+
+**Ptaah Das kannst du so sagen, ja. Im Verlauf der Zeit wurden diese Urschriften in ihrer Form natürlich**
+immer wieder verändert oder ausser Nutzung gesetzt, weshalb viele der ursprünglichen Schriftarten nur
+noch als historische Überbleibsel vorhanden sind – wenn überhaupt. Was aber dazu noch zu sagen ist,
+das ist die Tatsache, dass leider schon sehr früh die Schriftsprache von irdischen Schriftkundigen missbraucht wurde. Dies geschah insbesondere durch schriftkundige Personen, die schriftlich geschichtliche
+Geschehnisse aufzeichneten, die sie jedoch nach eigenen und ungenauen Beobachtungen, wie auch sehr
+oft täuschenden Wahrnehmungen sowie Einbildungen, mangelhaften Erinnerungen und Vermutungen
+selbst unzulänglich und völlig falsch interpretierten. Gleichermassen ergab sich dies, wenn der Schriftkundige von Leuten für schriftliche Aufzeichnungen engagiert und verpflichtet wurden, wobei es ausnahmslos so war, dass die der Schrift und also des Schreibens fähigen Personen nie exakt das niederschrieben, was ihnen zum Schreiben aufgetragen wurde. Infolgedessen ergab sich immer, dass die Menschen, die Schriftkundige in Anspruch nahmen, weil sie eben selbst der Schrift und daher auch der
+Schriftsprache unkundig waren, nichts anderes tun konnten, als ihre schriftlich festzuhaltenden Anliegen
+usw. den Schriftkundigen in ihrer einfachen Sprache mündlich darzulegen. Die Schreibmächtigen erlaubten sich dann, das ihnen Erklärte und Gesagte durch eigene Interpretationen gemäss ihrem eigenen Verstehen und ihren eigenen Auslegungen schriftlich festzuhalten. Und dies war darum so, weil die Schriftunkundigen, die etwas zum Schreiben in Auftrag gaben, nicht in der Lage waren, das direkt in der Schriftsprache zu diktieren, was sie zu sagen und zu erklären hatten. Daher entstanden in allen alten schriftlichen Überlieferungen infolge eigener Interpretationen der Schreibkundigen Fehlbeschreibungen und teils
+äusserst gravierende Falschinterpretationen, die sich bis in die heutige Zeit erhalten haben und in ebenso
+falschen Formen gelehrt werden. Gleichermassen geschah dies zu allen Zeiten bezüglich aller religiösen
+schriftlichen Aufzeichnungen, denn nur eine und sonst keine einzige jener Personen, denen die schriftlichen Überlieferungen zugeschrieben werden, waren der Schrift und der Schriftsprache Kundigen, folglich
+sie alle ihre Aussagen durch der Schrift und Schriftsprache Kundigen aufschreiben liessen, die alles gemäss eigenen Schreibfähigkeiten formulierten und zudem durch eigene Interpretationen und Vermutungen usw. niederschrieben. Das war auch so bei allen grossen und kleinen Religionen und deren Sekten, so
+
+
+-----
+
+also auch beim Islam und Christentum. Wie bei Jmmanuel nach seiner Flucht aus Jerusalem seine ganze
+Lebensgeschichte von Geburt auf bis zu seinem Tod mit ungeheuerlichen Verfälschungen, Lügen, Behauptungen und Verleumdungen verbreitet und später auch niedergeschrieben wurde, so ergab sich dasselbe bei Mohammed, dessen richtiger Name ja Abdul Kasim Muhammad Ibn Abdallah war. Bei Jmmanuel war einzig Judas Ischkerioth des Schreibens kundig, jedoch weder ein weibliches noch männliches
+Mitglied seiner Jüngerschaft, die mehr Personen umfasste als nur die **zwölf, die im Neuen Testament**
+aufgeführt werden, das voller Erfundenheiten, Verfälschungen, falschen Erinnerungs-Behauptungen, Interpretationen und Lügen ist. Zudem wurden die einzelnen Abschnitte, Behauptungen und <Erinnerungen> usw. dieses Lügenwerkes erst viele Jahre nach seiner Flucht durch Schriftkundige und zudem weiter
+verfälschend durch deren eigene zusätzliche Interpretationen verfasst und teils auch ehemaligen Jüngern
+zugeschrieben, die jedoch niemals bei solchen Schreibereien mitwirkten und also keinerlei Angaben zu
+dem machten, woraus dann das Lügenwerk Neues Testament entstand. Dazu hast du ja zur Richtigstellung auch … … die diversen notwendigen Angaben und Erklärungen gegeben, wodurch er sachdienliche
+Nachforschungen betrieben hat, wie er aber auch viel der tatsächlichen Wahrheit herausfand und diese
+auch schriftlich festhalten konnte. Sagen muss ich dazu aber, dass es bedauerlich ist, dass du und Guido
+ihm zusagen mussten, zu seiner Lebzeit seinen Namen und sein Schreibwerk nicht zu nennen, das ausserordentlich gute Beweisführungs-Fakten aufweist. Leider verschweigt der Mann aber auch jene deiner
+ihm gegenüber kundgegebenen Angaben, die hinsichtlich des gesamten Ursprungs der Geschichte von
+Jmmanuel eigentlich offen genannt werden müssten.
+Wird die Lebensgeschichte von Mohammed in Augenschein genommen, dann ist auch hierzu zu sagen,
+dass an all dem, was über ihn angeblich <überliefert> ist, kaum ein wahres Wort besteht, denn ebenso
+wie bei Jmmanuel war rundum niemand der Schrift und Schriftsprache kundig, ausser seiner ersten Frau,
+der Witwe Chadidscha. Sie war Angehörige des sehr angesehenen Stammes der Quraisch und Erbin einer
+Karawanserei sowie eines Handelsgeschäftes in Mekka. Erst verrichtete Mohammed unter ihrem Matriarchat verschiedene Arbeiten für sie, ehe sie sich zusammenfanden und ehelichten, wonach sie ihn zum
+Geschäftsteilhaber ernannte. Die Frau war Mohammed in aufrichtiger Liebe zugetan und vermochte sich
+auch mit seiner Lehre zu verbinden, die sie sehr schätzte, wobei sie jedoch weder ein einziges Wort seiner
+Lehre noch seines Lebens schriftlich festgehalten hat.
+Die ungemein infame Verleumdung, dass Mohammed mit dieser Frau mehrere Kinder gezeugt haben
+soll, entspricht einer Lüge sondergleichen, denn die Frau war empfängnisunfähig und konnte also von
+Mohammed nicht geschwängert werden. Da Chadidscha jedoch Kinder haben wollte, wurde im Einverständnis zwischen ihr und Mohammed beschlossen, mehrere Waisenkinder anzunehmen und sie geheimerweise als ihre eigenen vorzugeben. Als seine Frau starb, heiratete er als seine zweite Frau Sauda
+bint Zama, mit der er jedoch ebenfalls keine Nachkommen zeugte, wie auch nicht mit Aischa bint Abi
+Bakr nicht, die seine dritte Frau war und die entgegen den verleumdenden <Überlieferungen> bei der
+Heirat weder 6 noch 7 oder 9 Jahre alt, sondern 19jährig war. Und die bösartige Verleumdungsgeschichte gegen sie, die sich beim Feldzug gegen die Banū l-Mustaliq im Jahr 627 ergeben haben soll, entspricht
+ebenso einer bösartigen Lüge, wie auch die Geschichte der zwölf <Mütter der Gläubigen> auf nichts mehr
+als auf Lug und Trug aufgebaut wurde. Dies trifft gleichermassen auf die vielfachen Lügen zu, dass Mohammed nebst seiner regulären Ehe noch eine grössere Anzahl Frauen geehelicht und Sklavinnen als
+Konkubinen gehabt habe, denn tatsächlich waren es nur die drei Gattinnen Chadidscha, Sauda bint Zama
+und Aischa bint Abi Bakr, die er nach dem Tod von Chadidscha geheiratet hatte, wobei auch diese Ehebündnisse kinderlos blieben, denn auch bei diesen beiden Frauen war er nicht Sinnens, Nachkommenschaft zu zeugen. Die ganze grössere Anzahl anderer Frauen, die um ihn herum waren, standen in keiner
+Weise in irgendeiner ehelichen Verbindung mit ihm, wie auch nicht in irgendeiner Beziehung sklavischer
+oder konkubinischer Weise, sondern alle waren sie nur wohlbehütet in seiner Obhut und Freundschaft.
+Weitere Frauen wurden ihm also lange nach seinem Tod durch Lügen und Verleumdungen angeblicher
+Verwandter und Chronisten usw. angedichtet und hatten keinerlei Wahrheitsgehalt. Dies trifft auch zu auf
+die Verschleierung der Frauen, wie auch hinsichtlich völlig anderer Unsinnigkeiten. Bösartig Gesinnte, die
+gegen die Verbreitung des Jahrhunderte zuvor entstandenen frühen falschen Christentums waren, durch
+das die wahre Lehre des Künders Jmmanuel völlig verfälscht wurde, sahen darin eine Chance, auch die
+Lehre von Mohammed zu verfälschen. Also ergriffen sie zu seiner Zeit die Chance, seine Lehre, die ja die
+gleiche wie die von Jmmanuel war, ebenso zu verfälschen und Regeln und Vorschriften zu verbreiten, wie
+das auch hinsichtlich der Lehre von Jmmanuel war. Wie Jmmanuel es nicht vermochte, sich dagegen zur
+Wehr zu setzen, hat es sich auch bei Mohammed so ergeben, denn als beide ihren letzten Weg gegangen
+waren, wurde ihre immer gleichlautende Lehre abgrundtief verfälscht und daraus neue Religionen geschaffen. Demzufolge wandten sich die Gläubigen den neuen Lehren zu, denen Mohammed und Jmmanuel infolge ihres Weggangs nichts mehr entgegenzusetzen vermochten, folglich das Christentum mit
+dem <Neuen Testament> und der Islam mit der <Rezitation> resp. dem <Koran> die wahrheitliche
+<Lehre der Wahrheit, Lehre des Geistes, Lehre des Lebens> völlig verdrängte.
+
+
+-----
+
+Das alte Palästina war zur Zeit von Jmmanuel durch die Römer besetzt und hatte unter diesen einigen
+Aufschwung erlebt, wobei jedoch die einheimische Bevölkerung durch eine harte jüdische und religionsbezogene Herrschaft dirigiert wurde, weshalb es den aufkommenden Christen gelegen war, eine Lügengeschichte einer Auferstehung des gekreuzigten Jmmanuel zu ersinnen und ihn Jesus zu nennen. Dies,
+während Südarabien zur Zeit von Mohammed ein sehr rückständiges Gebiet war, fernab aller kulturellen
+und wirtschaftlichen Zentren der damaligen Welt, wo die Menschen, die arm waren, grosse Not litten und
+nur zu gerne einer neuen Heilsreligion Glauben schenkten und ihr verfielen.
+Werden die alten Schriften in Augenschein genommen, die angeblich von Jüngern, Mitläufern und dergleichen sowie von direkten oder indirekten Nachkommen, Verwandten oder von Familienmitgliedern der
+beiden Künder stammen sollen, dann entsprechen gesamthaft alle derartige angebliche Schriftbeweise
+nur hinterhältigen Fälschungen, Falscherinnerungen und Falschwiedergaben sowie sehr fehlhaften Interpretationen der Schreibkundigen. Wahrheitlich existiert nicht ein einziges solch altes Schriftstück, das
+direkt oder halbdirekt auf eine Person bezogen wäre, die in direktem oder indirektem Kontakt mit Jmmanuel oder Mohammed gestanden hätte.
+Gegenteilige Behauptungen und sogenannte <Schriftnachweise> entsprechen nichts anderem als Fälschungen und Lügen, denn sowohl bei Jmmanuel als auch bei Mohammed wurden die ersten schriftlichen Aufzeichnungen erst Jahre später nach ihrem Weggang resp. nach ihrem Tod gemacht. Und dies
+geschah gemäss sehr mangelhaften oder irrigen Erinnerungen, wie aber auch durch bewusste falsche
+Behauptungen und Lügen usw., in deren Folge auch Glorifizierungen und Mären in bezug auf Jmmanuel
+und Mohammed entstanden. Zudem wurden lügenhaft diverse direkte und indirekte Gefolgsleute in bezug auf die beiden Künder zugeschrieben, die in Wahrheit jedoch nichts mit diesen zu tun hatten. Auch
+schreibkundige Jünger, Mitläufer und Verwandte sowie Freunde usw. wurden den beiden Kündern
+Jmmanuel und Mohammed zu allen Zeiten zugeschrieben, doch von all den Genannten war kein einziger
+der Schrift und des Schreibens kundig. Der einzige unter allen war Judas Ischkerioth, der die Schrift korrekt und wahrheitlich beherrschte und des Schreibens kundig und ein Jünger bei Jmmanuel war. Später
+wurde er durch Schriftenverfälscher und durch Anhänger verleumdet, wie dann auch Jmmanuel der Name Jesus angedichtet wurde. Wiederholend muss also klargestellt werden, dass bei Mohammed und
+Jmmanuel alles gleichermassen war, wobei bei Jmmanuel allerdings Judas Ischkerioth der Schrift und
+Schriftsprache kundig war und die Aufzeichnungen anfertigte, woraus dann durch deine und der Gruppemitglieder Bemühungen der Talmud hervorging, der letztendlich durch unsere Schrift- und Sprachkundigen korrekt übersetzt und überarbeitet werden musste, weil der Priester Isa Rashid diesen nach
+seinem Christenwahnglauben falsch übersetzt hatte. Dies, während alle anderen Aufzeichnungen in bezug
+auf die Lehre von Jmmanuel und Mohammed in keiner Weise von irgendwelchen ihrer Jünger oder direkten oder indirekten Nachfahren usw. gemacht wurden, sondern von fremden Personen, und zwar auch
+erst lange Zeit nach deren Tod. Wahrheitlich wurde in bezug auf beide und deren Lehre, die beidseits die
+<Lehre der Wahrheit, Lehre des Geistes, Lehre des Lebens> war, jedoch alles abgrundtief missverstanden
+und bis ins Unkenntliche grenzenlos verfälscht. Das trifft auch auf diverse andere alterseits und neuerseits aufgefundene alte Schriften zu, die ebenfalls nicht auf irgendwelche Jünger zu Lebzeiten von
+Jmmanuel oder auf direkte Anhänger oder Verwandte usw. von Mohammed zurückführen.
+
+**Billy** Dann trifft das auch für Chroniken zu?
+
+**Ptaah Ja, das ist so, denn Aufzeichnungen jeder Art, so also auch Chroniken, wurden seit alters her im-**
+mer durch persönliche Interpretationen der Schreibenden ausgefertigt, was vielfach auch noch in der
+heutigen Zeit der Fall ist, und zwar nicht nur beim schriftlichen Festhalten geschichtlicher Fakten in bezug auf Annalen und Chroniken, sondern besonders bei Informationsmitteln, wie öffentlichen Medien aller
+Art. Weiter gehören dazu auch Beschreibungen von Beobachtenden und Zeugen irgendwelcher Geschehen und Situationen, die, obwohl sie dieselben Beobachtungen und Wahrnehmungen der exakt gleichen
+Sache gemacht haben, völlig gegenteilige und konträre Angaben machen. Dadurch entstehen nebst falschen Interpretationen, wie auch durch das Vorenthalten und Verschweigen, Falschwahrnehmen und
+Falschbeobachten usw. effectiver Tatsachen in bezug auf Situationen und Geschehen usw. sowie auf Gehörtes gravierende Verfälschungen.
+
+**Billy** Gut, danke, dann ist auch das klargestellt. Wenn du nun dies hier lesen willst – bitte.
+
+… … …
+
+### *****************************
+
+**************************************
+
+
+-----
+
+Furcht des Menschen
+
+Die grösste Furcht
+
+des Menschen besteht
+
+darin, etwas Neues zu
+
+beginnen, einen neuen
+
+Schritt zu wagen, etwas
+
+Neues zu lernen und die
+
+Wahrheit auszusprechen.
+
+SSSC, 22. September 2013
+
+14.47 h, Billy
+
+### Frieden, Freiheit, Leben
+ Der Weise lehrt den Frieden, die
+ Freiheit und das Leben, wie auch
+ die Harmonie, und er würdigt alle
+ wertigen schöpferischen Gesetze
+ und Gebote; der Unweise jedoch
+ strebt nach Zerwürfnis, Tyrannei,
+ nach Uneinigkeit und Hass, Krieg
+ und Terror, fördert boshaft Streit
+ und lässt zudem den Frömmsten
+ nicht in Frieden, Autarkie, Liebe
+ sowie nicht im Wohlklang leben.
+
+SSSC, 22. Juli 2019, 6.49 h, Billy
+
+**IMPRESSUM**
+**FIGU-SONDER-ZEITZEICHEN**
+**Druck und Verlag: FIGU** Wassermannzeit-Verlag,
+
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+
+**Redaktion: BEAM** ‹Billy› Eduard Albert Meier,
+
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+
+Wird auch im Internetz veröffentlicht. Erscheint sporadisch.
+
+**Postcheck-Konto: FIGU Freie Interessengemeinschaft,**
+
+8495 Schmidrüti, PC 80-13703-3
+
+IBAN: CH06 0900 0000 8001 3703 3
+
+Geisteslehre Friedenssymbol
+
+**E-Brief: info@figu.org**
+
+**Internetz: www.figu.org** Frieden
+
+**FIGU-Shop: http://shop.figu.org**
+
+Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten
+
+**© FIGU 2019** Tritt dazu macht, um dann nachfolgend in Friedsamkeit jeden weiteren Schritt
+
+Einige Rechte vorbehalten. bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun.
+
+Dieses Werk ist, wo nicht anders SSSC, 10. September 2018, 16.43 h, Billy
+
+angegeben, lizenziert unter :
+
+www.figu.org/licenses/by-ncnd/2.5/ch/
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung des Urhebers ausdrücklich erlaubt.**
+Erschienen im Wassermannzeit-Verlag: FIGU, ‹Freie Interessengemeinschaft Universell›, Semjase-Silver-Star-Center,
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+

@@ -1,0 +1,1123 @@
+**L**
+
+**WESEN FREMDER WELTEN**
+
+# FIGU– BESUCHEN DIE ERDE
+
+**Freie**
+
+# ZEITZEICHEN Interessengemeinschaft
+
+**FIGU**
+
+### Aktuelles • Einsichten • Erkenntnisse r
+
+**Erscheinungsweise:** **Internetz: www.figu.org** **2. Jahrgang**
+**Sporadisch** **E-Brief: info@figu.org** **Nr. 36, März 2016**
+
+###### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+Laut ‹Allgemeine Erklärung der Menschenrechte› vom 10. Dezember 1948, Artikel 19, ‹Meinungs- und Informationsfreiheit›:
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die**
+**Freiheit, Meinungen unangefochten anzuhängen und Informationen und Ideen mit allen**
+**Verständigungsmitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Aussagen und Meinungen müssen nicht zwingend mit dem FIGU-Gedanken-, Interessen-, Lehre- und Missionsgut identisch sein.
+
+#### Glenn Greenwald: Kriminalisierung von Kritik an Israel grösste Gefahr für Meinungsfreiheit im Westen
+_18.02.2016 • 08:15 Uhr_
+
+_Quelle: Reuters_
+_Glenn Greenwald_
+
+In einem umfangreichen Debattenbeitrag prangert der Snowden-Vertraute und Mitbegründer
+der Enthüllungsplattform The Intercept, Glenn Greenwald, die Kriminalisierung von Kritik
+an Israel an. Aktivisten, die sich für Palästinenser-Rechte einsetzen, werden gezielt attackiert
+und zensiert. Nicht nur in Israel, sondern in allen westlichen Staaten und verstärkt auch an
+US-amerikanischen Universitäten. Darin sieht Greenwald eine virulente Gefahr für die
+Meinungsfreiheit in westlichen Staaten.
+
+
+**Freie**
+
+
+-----
+
+Der Journalist Glenn Greenwald begibt sich gleich zu Beginn seines aktuellen Debattenbeitrages: ‹Die grösste
+Gefahr für die freie Meinungsäusserung: Die Kriminalisierung des Aktivismus gegen Israels Besatzungspolitik›
+auf umkämpftes Gebiet:
+«Es gibt eine sehr gut koordiniert und finanziell gut ausgestattete Kampagne, angeführt von Israel und seinen
+Unterstützern, um politischen Aktivismus gegen die Israelische Besatzungspolitik […] zu kriminalisieren.»
+Allein eine solche Aussage reicht vielen zionistischen Profi-Propagandisten schon aus, um Greenwald, selbst
+jüdischer Abstammung, mit wüsten Antisemitismus-Vorwürfen zu überhäufen. Doch Greenwald scheint sich
+davon nicht einschüchtern zu lassen. Detailliert beschreibt der Journalist den Kampf israelischer Interessengruppen gegen Aktivisten der weltweiten BDS-Kampagne, die Boykott, Kapitalentzug und Sanktionen be inhaltet, mit denen Israel dazu bewegt werden soll, die Rechte der Palästinenser zu achten. Die Kampagne
+nimmt sich jene zum Vorbild, die schon einmal ein Apartheids-Regime zu Fall brachte – nämlich der Protest
+gegen Südafrika in den 1980er Jahren.
+
+In Israel soll nun ein Gesetz in Kraft treten, das es Ausländern verbietet, das Land zu betreten, wenn diese die
+BDS-Kampagne unterstützen. Jedoch soll längst nicht nur in Israel die Kritik an der Besetzung der Palästinenser gebiete zensiert und kriminalisiert werden. «In westlichen Ländern generell», so Greenwald, der damit vor einer
+generellen Einschränkung der Meinungsfreiheit warnt.
+So ist beispielsweise in den USA der Kampf gegen Israel-Kritik in bedenklichem Masse erfolgreich. Aus USamerikanischen Universitäten wurde diese praktisch bereits verbannt.
+
+Ein Report, den Greenwald zitiert, beschreibt die Campus-Zensur. Pro-Palästinensische Professoren werden
+gefeuert, Anti-Besatzungs-Studenten werden bedroht und aus Kursen geschmissen, palästinensischen UniGruppen wird das Geld entzogen und für das Schwenken der palästinensischen Flagge wird auch schon mal ein
+Disziplinarverfahren eingeleitet.
+Die zionistischen Zensoren und Meinungswächter können sich dabei auf beste finanzielle Ausstattung verlassen.
+Neben anderen Milliardären spendete auch der ehemalige Mehrheitseigner der ProSiebenSat.1 Media SE, Haim
+Saban, mehrere 10 Millionen Dollar, damit der Kampf gegen die BDS-Kampagne an den US-Unis geführt
+werden kann.
+
+Greenwald stellt am Ende seines Beitrags, der vollständig auf ‹The Intercept› gelesen werden kann, noch einmal
+klar: Kritik an der BDS-Kampagne ist vollends legitim und «nur Fürsprecher der Tyrannei können die faktische
+Kriminalisierung der Art von Aktivismus, der die Apartheid in Südafrika beendet hat, unterstützen.»
+
+_Quelle: https://deutsch.rt.com/international/36851-glenn-greenwald-kriminalisierung-von-kritik/_
+
+#### Wahnsinn: Deutsche Krankenversicherte sollen für Ausländer bezahlen
+Die wahnsinnige Masseneinwanderung schafft immer mehr Probleme. Heute gab es die Pressemeldung, den
+Krankenversicherungen würden bereits hunderte Millionen fehlen wegen der kostenlosen medizinischen
+Versorgung von hergelaufenen Ausländern. Und nun raten Sie mal, wer das möglicherweise bezahlen soll! Die
+deutschen Krankenversicherten! Finanzgauner Schäuble will anscheinend nicht mehr Steuergelder hergeben,
+so dass die Krankenversicherungen riesige Fehlbeträge haben. So kommt es eben, wenn man so blöd und so
+verantwortungslos ist, Millionen von Fremden ungehindert hier eindringen zu lassen. Von Tag zu Tag wird
+deutlicher, welch ungeheure Kosten Merkels Irrsinn verursacht. Wollen Sie mit Ihrer Krankenversicherung auch
+noch Ausländer bezahlen? Ich nicht! Übrigens gibt es eine ganze Reihe von Deutschen, die nicht krankenver sichert sind, weil sie die Versicherung nicht bezahlen können. Da aber Versicherungspflicht besteht, bekommen
+sie bei Nichtzahlung zwar keine Leistungen, aber ihre Schulden gegenüber der Krankenversicherung steigen
+trotzdem. Ein Wahnsinn! Hilft jemand diesen Deutschen? Nein! Anscheinend muss man den Flüchtling spielen,
+damit man alles kostenlos bekommt, wofür Deutsche viele Jahre arbeiten müssen. Ungerechter geht es wohl nicht.
+
+###### Israelischer Kriegsverbrecher Netanjahu plaudert mit Merkel
+Besuch eines Verbrechers: Israels Ministerpräsident Netanjahu, der als Kriegsverbrecher gilt, der am Tod von
+tausenden Palästinensern Schuld ist, war heute bei Merkel. Wie immer war Merkel mal wieder unterwürfig
+gegenüber Israel und versprach, das Verhältnis zum Iran nicht zu normalisieren. Dabei geht es Israel einen Scheiss 
+
+-----
+
+dreck an, mit wem wir welche Beziehungen haben. Merkel war natürlich auch zu feige, energisch für das Selbstbestimmungsrecht der Palästinenser einzutreten und ganz klar einen wirklich unabhängigen Palästinenserstaat zu
+fordern. Was von israelischen Politikern zu halten ist, sieht man nicht nur an den Verbrechen Netanjahus, sondern
+auch daran, dass sein Vorgänger Olmert inzwischen wegen Korruption im Gefängnis sitzt, die in Israel offenbar
+weit verbreitet ist. Auch gegen andere israelische Politiker gab es Korruptionsvorwürfe und der frühere Staatspräsident Katz wurde sogar als Sittlichkeitsverbrecher verurteilt. Erfreulich immerhin, dass manche dieser israelischen Politverbrecher verurteilt wurden und die Justiz da wenigstens in Teilen funktioniert. Übrigens: Ob Merkel
+Israel wieder üppige Geschenke auf Kosten der deutschen Steuerzahler gemacht hat, wurde bisher nicht bekannt.
+
+###### Dummdreiste Lüge der Merkelregierung
+Offenbar will die Merkelregierung mit Hilfe von dreisten Lügen die Landtagswahlen im März beeinflussen. So
+wurde heute die Falschmeldung verbreitet, dieses Jahr kämen ‹nur› eine halbe Million zusätzlicher Einwanderer
+(angebliche ‹Flüchtlinge›). Abgesehen davon, dass auch eine halbe Million Zuwanderer viel zu viel wäre (Frankreich zum Beispiel will nur 30000 aufnehmen) ist die Zahl nach heutigem Stand eine dreiste Fälschung. Schon
+im Januar sind etwa weitere 100000 Fremde gekommen und das in der kalten Jahreszeit, so dass in den wärmeren
+Monaten noch viel mehr Zuwanderer befürchtet werden müssen. Aber die Merkelregierung will ja um jeden Preis
+die Wahlen beeinflussen und deshalb lügt sie wie von der Lügenpresse gedruckt. Es gibt bisher leider keinen Grund
+zu der Annahme, dass die Zahl der Zuwanderer nennenswert sinken wird, eher ist das Gegenteil zu befürchten.
+Allenfalls kann man hoffen, dass alle anderen EU-Länder helfen, den Merkelwahnsinn zu stoppen und dass dadurch vielleicht weniger Leute kommen. Das geschieht aber dann nicht durch Merkel, sondern gegen Merkel.
+
+###### Wenn Merkel den Mund aufmacht, lügt sie
+Da Merkel auf allen Gebieten grauenhaft versagt hat, gerät manches in Vergessenheit. Deshalb hier zur Erinnerung: Vor 10 Monaten hat Lügen-Merkel den ukrainischen Ministerpräsidenten Jazenjuk gelobt für angebliche
+bedeutende Reformschritte und die Bekämpfung der Korruption und ihm deutsches Geld versprochen, wie das
+Merkel ja überall macht. Heute nun wurde bekannt: Dieser Jazenjuk ist so zwielichtig, so korrupt und hat so
+sehr versagt, dass selbst der ukrainische Präsident ihn loswerden möchte. So ist die Merkel eben: Sie lobt die
+Falschen und unterstützt die Kriminellen, was sie übrigens gerade gegenüber ukrainischen und sonstigen
+Finanzgaunern immer wieder getan hat.
+
+###### Feige Merkel wagt keine Vertrauensfrage
+Die völlig gescheiterte Frau Merkel hat ausrichten lassen, dass sie nicht die Vertrauensfrage stellen will. Kein
+Wunder, denn ihre grauenhafte chaotische Politik wird nur noch von den deutschfeindlichen Grünen unterstützt. Selbst in der SPD gibt es jetzt verschiedentlich Kritik. Da wirft etwa Gabriel Merkel vor, die Kosten der
+Einwanderung zu verschweigen. Da hat Genosse Gabriel ausnahmsweise recht. Wie sehr Merkels irrsinnige
+Politik abgelehnt wird, konnte ich gerade im Gästebuch von ‹Hart, aber fair› sehen. Fast nur heftige Kritik an
+Merkel. Fast niemand glaubt Merkel. Bin gespannt, ob das in der Sendung auch so zugegeben wird oder ob man
+da manipuliert und Hofberichterstattung macht.
+
+###### Deutschland geht es immer schlechter
+Während Lügner wie Merkel und Schäuble und andere Dummschwätzer ständig behauptet haben: «Wir sind
+ein reiches Land und können deshalb noch viel mehr Fremde aufnehmen», sieht die Wahrheit mal wieder anders
+aus. Wie Focus online berichtet, hat eine Expertengruppe des Bundesfinanzministeriums untersucht, wie die
+Finanzlage Deutschlands wohl in den kommenden Jahren aussehen wird. Das schockierende Ergebnis: «Um
+Deutschlands Finanzen steht es deutlich schlechter als gedacht. Dem will das Finanzministerium entgegen steuern – mit einem drastischen Vorschlag». Der ‹drastische Vorschlag› ist offenbar der, dass die Deutschen noch
+viel länger als bis 67 Jahre arbeiten sollen, ausgenommen natürlich die Politiker, die oft schon nach wenigen
+Jahren ‹Tätigkeit› Pensionen haben, die wesentlich höher sind als die von Normalbürgern, die jahrzehntelang
+gearbeitet haben. Übrigens: In Kürze bekommen die Bundestagsabgeordneten wieder mehr Geld, natürlich
+auch wieder viel mehr, als etwa die Erhöhung bei den Rentnern ist. Die Unverschämtheit der Regierenden wird
+immer schlimmer: Sich selbst die Taschen vollstopfen, aber den Deutschen sagen «Ihr müsst länger arbeiten,
+denn für Euch haben wir kein Geld.» Natürlich hat man für die Deutschen trotz der höchsten Steuereinnahmen
+in der Geschichte kein Geld, wenn man irrsinnige Milliardenbeträge an Ausländer und das Ausland verschiebt.
+Noch skandalöser wird es, wenn hergelaufene Ausländer all das kostenlos bekommen, wofür normale Deutsche
+
+
+-----
+
+viele Jahre arbeiten müssen. Und die Fälle, wo Zuwanderer mit Wohltaten überhäuft werden, sind ja zahlreich.
+Ständig überbieten sich verrückte und deutschfeindliche Gutmenschen darin, Ausländern all das kostenlos anzubieten, wofür Deutsche bezahlen müssen, vom Museumsbesuch bis zu irgendwelchen Fahrten. Und während
+die Deutschen für ihre Krankenversicherung ständig mehr bezahlen müssen, werden Zuwanderer kostenlos
+behandelt. Dass es deshalb geradezu einen Krankentourismus nach Deutschland gibt, ist naheliegend. Übrigens
+ist das Problem nicht neu. Schon vor etlichen Jahren haben mir Ausländer erzählt, wie andere Ausländer sich
+mit falschen Papieren Leistungen der Krankenversicherung erschlichen haben. Es passt eben nicht zum Weltbild
+der deutschfeindlichen Gutmenschen, dass keineswegs alle Ausländer edle Gestalten oder arme Verfolgte sind,
+sondern dass sich darunter leider auch etliche Betrüger und sonstige Verbrecher bis hin zu Terroristen befinden.
+Natürlich sind keineswegs alle Ausländer Verbrecher, aber dass etliche Ausländer grosse Probleme machen, wird
+nur noch von Vollidioten bestritten.
+
+###### Tollpatsch Merkel völlig isoliert
+Wie lange will uns Frau Merkel, diese Kombination aus Dummheit und Verlogenheit, noch in Sachen Massen einwanderung auf eine ‹europäische Lösung› vertrösten, von der längst klar ist, dass sie nicht kommen wird?
+Täglich gibt es aus EU-Ländern scharfe Ablehnung von Merkels verrückter Politik. Heutige Meldung auf
+‹Handelsblatt› online: «Der slowakische Regierungschef Fico bezeichnet Deutschlands Migrationspolitik als
+‹Diktat›. Einige ost- und mitteleuropäische Länder wollen nun im Alleingang ihre Grenzen schliessen. In Berlin
+schrillen die Alarmglocken …» Merkels dummdreister Versuch, die Deutschen bis zu den Landtagswahlen am
+13.3.2016 zu täuschen, ist kläglich gescheitert. Hinzu kommen immer neue Probleme. Jetzt will die CDU den
+Mindestlohn für Zuwanderer senken. Das klingt zwar insofern vernünftig, als einige der Fremden keineswegs
+die ‹Hochqualifizierten› sind, die uns vorgegaukelt wurden, sondern Leute, für die es kaum einen guten Arbeitsplatz gibt. Das Problem ist aber: Wenn die Zuwanderer weniger kosten als die Deutschen, entsteht dadurch ein
+Druck auf dem Arbeitsmarkt, dass sich bestimmte Deutsche auch mit weniger Lohn zufrieden geben sollen.
+Das wird dann eine Abwärtsspirale, die ja gerade durch den Mindestlohn vermieden werden sollte. Wann
+endlich begreifen die weltfremden Gutmenschen-Schwätzer, dass diese Masseneinwanderung unser ganzes
+Sozialsystem durcheinander bringt und bedroht?
+
+_Quelle: www.anti-merkel.de, 14. – 17. Februar 2016_
+
+#### Russland ist an allem Schuld
+_Sonntag, 21. Februar 2016, von Freeman um 17:00_
+Habt ihr gewusst? Russland, und speziell Präsident Putin persönlich, ist an allen Problemen und an allen üblen
+Taten der Welt schuld. Das erzählt man uns jedenfalls andauernd. Ja, Russland ist an der Flüchtlingskrise schuld,
+das hat Merkel vor einigen Tagen in Ankara nach einem Treffen mit dem türkischen Ministerpräsidenten Ahmet
+Davutoglu gesagt. Völlig logisch, denn seit fünf Jahren tobt der vom Westen angezettelte Terrorkrieg in Syrien,
+aber Russland interveniert erst seit wenigen Monaten militärisch. Russland ist auch an der Krise in der Ukraine
+schuld, hat das Blutbad angerichtet und den Nazi-Putsch inszeniert, der vor zwei Jahren stattfand. Dann hat
+Russland das malayische Passagierflugzeug von Flug MH17 abgeschossen, bei dem 298 Passagiere umkamen,
+obwohl die niederländische Untersuchungskommission seit 1½ Jahren verzweifelt versucht, die wirklichen
+Täter zu verheimlichen.
+Putin ist auch für die Bankenkrise und den Absturz der Bankaktien verantwortlich, denn vergangene Woche ist
+erstmals seit mehr als drei Jahren eine Bank in Deutschland geschlossen worden, die Frankfurter Maple-Bank.
+Gell, ihr habt gar nicht gecheckt: Die Deutsche Bundesbank und die Europäische Zentralbank stehen unter der
+völligen Kontrolle von Moskau. Aus dem Kreml wird die Geldpolitik Europas gesteuert. Putin selber hat die
+Entscheidung getroffen, Negativzinsen einzuführen, um den europäischen Sparern das Geld von den Konten
+zu stehlen. Und er sackt es alles ein, dieser Räuber.
+Putin hat auch ‹wahrscheinlich› die Ermordung des früheren russischen Agenten Litwinenko veranlasst. Be weise gibt es keine, aber was sollen schon Beweise in der heutigen Zeit. Wir wissen es einfach und er ist generell
+der ‹übliche Verdächtige›. Und stellt euch vor, Russland ist auch für die NATO-Osterweiterung verantwortlich,
+für das Vorrücken der NATO-Soldaten und ihr Militärgerät an der russischen Grenze, denn tatsächlich hat
+Russland sich heimtückisch immer näher nach Westen zu den NATO-Basen verschoben.
+
+
+-----
+
+Die grösste Unverschämtheit hat aber Russland
+mit der Erfindung des Wortes ‹Lügenpresse›
+verbrochen. Das sagt Ulrich Wickert: «Ich persönlich halte es nicht für ausgeschlossen, dass
+der russische Geheimdienst den Begriff ‹Lügenpresse› in Deutschland verbreitet hat», sagte der
+debile Tagessau-Ableser [sic] in einem Interview.
+Zwischendurch sagt er noch in der Werbung:
+«Dämlich lohnt sich.» Ich halte es wiederum für
+nicht ausgeschlossen, das Wickert käuflich ist
+und vom BND und der CIA rekrutiert wurde.
+Moskau ist auch für den neuen Kalten Krieg verantwortlich, ganz klar. Russland hat sich nämlich
+selbst die westlichen Sanktionen auferlegt, denn es will damit der deutschen Exportwirtschaft schaden und deutsche
+Arbeitsplätze vernichten. Wie gemein. Der Grund: Statt zu importieren, will Putin mehr Produkte im eigenen
+Land produzieren, um die eigene Wirtschaft zu stärken. Echt hinterhältig von ihm. Wie kann man die eigene Wirtschaft stärken wollen, wo der Westen doch eine Überproduktion hat und seinen Schrott loswerden muss?
+Die russische Regierung unterwandert mit ihrer ‹5. Kolonne› die Bundesrepublik und will das Merkel-Regime
+stürzen. Das meint jedenfalls Berlin und hat deshalb den BND und Verfassungsschutz damit beauftragt, zu
+untersuchen, ob die russische Regierung alte KGB-Methoden wiederbelebt hat. Konkret soll es darum gehen
+herauszufinden, ob Russland mit geheimdienstlichen Mitteln die politische Debatte in Deutschland beeinflussen
+will. Ein Weg dorthin geht über die Medien. Das andere Mittel, das zur Destabilisierung Deutschlands führen
+könnte, ist der Schulterschluss mit rechtsradikalen Bewegungen in Deutschland, heisst es.
+Wir wissen doch, jeder, der nicht ein Anti-Deutscher ist, ist ein Nazi!
+Russland beeinflusst die Medien aber so was von ganz massiv. Das sehen wir jeden Abend während den Nachrichten aus der Glotze. Nur pro-russische Propaganda, die dort läuft – richtig penetrant. Ganz besonders die
+deutschen Staatsmedien ARD und das ZDF, sind extrem russenfreundlich, stellen Russland nur im Glanzlicht dar.
+Und dann die vielen russischen TV-Serien und Spielfilme, mit denen sie uns überschwemmen, ist nicht auszuhalten, um uns ein falsches Bild des Zustandes in Russland zu zeigen. Die Russen gewinnen immer und sind die
+Helden. Mit dieser Medienpräsenz, die fast alles Deutsche verdrängt und verbannt, wird die deutsche Kultur
+russifiziert und die Massen für die Eroberung verdummt.�
+Das nennt man dann die umgekehrte Farbrevolution, die der Westen so oft schon für Umstürze in sogenannten
+‹unliebsamen Ländern› mit den Regierungs- und Oligarchen-Stiftungen praktiziert hat. Nur Putin-Versteher
+kommen auf die Idee, das Merkel-Regime destabilisiere mit seiner zerstörerischen Politik und bedingungslosen
+US-Hörigkeit Deutschland selbst am meisten. Russland muss dazu gar nichts beitragen. Aber trotzdem, Russ land
+ist am Grexit und Brexit schuld, will die EU wieder in Einzelteile zerlegen, den Euro abschaffen und den Rubel
+einführen. «Der Rubel rollt», ist ein altes Sprichwort. Überhaupt soll der Rubel Weltwährung werden und Öl
+soll man nur gegen Rubel kaufen können.
+Putin ist sogar daran schuld, dass Jeb Bush das Rennen um die US-Präsidentschaft für die Republikaner aufgegeben hat. Nachdem Bush nur 8% der Stimmen der Delegiertenversammlung erhielt, sagte er am Freitag: «Die
+Menschen in Iowa, New Hampshire und South Carolina haben gesprochen und ich respektiere ihre Entscheidung.
+Deshalb suspendiere ich meine Kampagne.» Jeb Bush hatte von dem Moment an keine Chance mehr, als Präsident Putin den amerikanischen Wählern mitteilte, er finde Donald Trump am besten. «Er ist wirklich eine brillante
+und talentierte Persönlichkeit, ohne Zweifel. Er ist der absolute Gewinner im Rennen um die Präsidentschaft.»
+Ja, Russland ist für alles verantwortlich, was auf der Welt schlecht ist. Besonders für Merkels schlechte Laune,
+weil ein immer grösserer Teil der deutschen Bevölkerung ‹die Mutti› nicht mehr ausstehen kann und die Einsicht
+gewonnen hat, sie muss weg! Sogar die CDU-Spitzenkandidaten in Rheinland-Pfalz und Baden-Württemberg,
+Julia Klöckner und Guido Wolf, haben sich am Sonntag, drei Wochen vor dem wichtigen Wahltermin am 13.
+März, von ihrer Chefin distanziert und fordern eine Kurskorrektur – und zwar sofort! Sollte die regierende Anti deutsche Einheitspartei (ADE) einen Denkzettel bekommen, dann ist das natürlich auch Russlands Schuld.
+Es ist nicht so, dass Macht korrumpiert und absolute Macht korrumpiert absolut, sondern Macht zieht pathologische Persönlichkeiten und korrupte Charaktere an, so wie stinkende Scheisse die Fliegen anzieht.
+
+_Quelle: http://alles-schallundrauch.blogspot.com/2016/02/russland-ist-allem-schuld.html#ixzz40sG2fUlf_
+
+
+-----
+
+## Stimme Gegenstimme
+
+
+**_INTRO_**
+_Beginnen wir mit der positi-_
+_ven Nachricht: Anhaltender_
+_Widerstand lohnt sich! Der_
+_Leitartikel zum Schiedsge-_
+_richtsverfahren gegen ein_
+_US-gesteuertes Wasserver-_
+_sorgungsunternehmen zeigt,_
+_dass selbst die Mächtigsten_
+_nachgeben müssen, wenn_
+_die Betroffenen nur eng_
+_und ausdauernd zusammen-_
+_stehen._
+_Diese Ausgabe mahnt aber_
+_auch die noch ungelösten_
+_Probleme an. So wird vor_
+_allem klar, dass noch aku-_
+_ter Handlungsbedarf besteht,_
+_die ungerechte und mörde-_
+_rische US-dominierte Welt-_
+_ordnung zu beenden. Doch_
+_die Zeit, sich dafür zusam-_
+_menzutun, ist kurz. Wenn_
+_selbst der vergleichsweise_
+_„kleine“ Justizminister in_
+_Deutschland hart gegen Ein-_
+_wände am Kurs der Bundes-_
+_regierung vorgeht, was wird_
+_dann der „große Bruder“_
+_tun, der in aller Welt Kriege_
+_anzettelt?_
+
+_Die Redaktion (sl.)_
+
+
+**_„Mit Mord muss herrschen, wer den Thron geraubt.“_**
+_Friedrich Schiller (1759-1805), deutscher Dichter, Philosoph und Historiker_
+
+
+**DIE VÖLKER HABEN EIN RECHT AUF STIMME UND GEGENSTIMME**
+
+
+-----
+
+**_��������������_**
+**_Das Zeitfenster für eine re-_**
+**_lativ problemlose Vernet-_**
+**_zung_** **_schließt_** **_sich_** **_zu-_**
+**_sehends._**
+**_Wer nur über Blogs, Foren,_**
+**_Zeitschriften oder Home-_**
+**_pages miteinander verbun-_**
+**_den war, wird über Nacht_**
+**_merken, dass er in Wirklich-_**
+**_keit alleine dasteht._**
+**_Melden Sie sich daher mit_**
+**_Namen und Adresse bei uns,_**
+**_um eine möglichst effek-_**
+**_tive und rechtzeitige Vernet-_**
+**_zung zu realisieren._**
+**_Werden Sie Kurier der S&G._**
+
+_Die Redaktion (sl.)_
+
+
+**www.sasek.tv**
+
+
+-----
+
+_16:23 06.02.2016(aktualisiert 09:42 07.02.2016)_
+
+###### Die Frauenverteidigungseinheit (YPJ) der kurdischen Streitkräfte kämpft nicht nur gegen den IS, sondern auch, «um die patriarchalische Mentalität der Armee zu ändern», sagte die frühere Journa- listin und heutige YPJ-Befehlshaberin Nesrin Abdalla in einem Sputnik-Interview in Paris.
+
+«Wir leben in einer Feudalgesellschaft, wo jeden Tag die Rechte der Frauen angegriffen werden, wo wir unterdrückt und vergewaltigt werden. Wir mussten uns organisieren, um gegen die feudale Denkweise zu kämpfen»,
+so Abdalla.
+Bevor Abdalla der YPJ beitrat, war sie als freie Journalistin tätig. Später habe sie aber den ‹militärischen Beruf erlernt›. Dies sei Tradition unter den Kurden, sagte sie. «Es gab 28 Aufstände. Und jedes Mal haben sich die Frauen
+erhoben, um den Feind zu bekämpfen oder um sich einfach zu verteidigen.» Es sei wichtig, dass die Frau ihren
+Platz im Kampf finde, aber nicht nur in den Streitkräften. Frauen müssen auch auf der sozialen, bürgerlichen
+und rechtlichen Ebene vertreten sein, um die Gleichberechtigung in der Gesellschaft zu erlangen, so Abdalla.
+Die YPJ wurde noch vor den Angriffen der Terrormiliz Daesch (‹Islamischer Staat›, IS; Anm. FIGU: ‹Islamistischer
+Staat›) gegründet. Frauen seien in den Verteidigungstruppen seit der Revolution 2011 präsent, es habe jedoch
+nie so viele wie heute gegeben. Offiziell wurde die Frauenabteilung im April 2013 gegründet. «Die YPI hat aber
+eine eigene Leitung und ein eigenes Verwaltungssystem, wir treffen selbst Entscheidungen und erarbeiten selbst
+Angriffspläne. Es gibt jedoch Sachen, die wir gemeinsam mit der YPG machen», sagte Abdalla.
+In den Reihen der YPJ gäbe es auch Ausländerinnen, darunter aus europäischen Staaten. Ihre Mitgliederinnen
+
+[sic] wollen eine demokratische und gleichberechtigte Gesellschaft aufbauen. Daesch habe nichts mit Moslems
+und dem Islam zu tun. «Einerseits nutzen sie die Religion und andererseits die Angst, um ihre Aktivisten zu
+überzeugen.»
+«Als es zu den ersten Kämpfen mit Daesch kam und viele von ihnen ums Leben kamen, haben wir bei den Toten
+Löffel oder Schlüssel in der Kehle gefunden», erzählt Abdalla. Wie die Frauen später von einem Gefangenen
+Daesch-Kämpfer erfuhren, soll der Schlüssel die Tür ins Paradies öffnen, und der Löffel sei nötig, um mit dem
+Prophet Mohammed zu speisen.
+
+Die Terroristen passen ihre Religion und Ideologie an die Umstände an. Die YPJ hatte sie Abdalla zufolge per
+Funkgerät abgehört. So hätten sie ihren Anhänger zunächst gesagt, dass ein von einer Frau getöteter Kämpfer
+nicht ins Paradies kommen würde. «Später, als sie immer mehr Verluste erlitten, begannen sie anders zu reden
+– wer von einer Frau getötet werde, soll verbrannt werden, weil er nicht zu Grabe getragen werden darf, da die
+Erde heilig sei.»
+«Die Terrormiliz Daesch ist ein Feind der Frauen, sowohl der Ideologie nach als auch im Leben.» Die Frau sei
+‹für diese Barbaren und Terroristen› ein Gegenstand. Vielweiberei, Gruppenvergewaltigungen und Mord an
+
+
+-----
+
+Frauen seien erlaubt. Diese Gefahr bestehe auch für westliche Frauen, die sich den Dschihadisten anschliessen.
+Sie wollen ihre Frauen werden, eine religiöse Ehe mit ihnen schliessen.
+«Im Endeffekt befriedigen sie einfach ihre Naturtriebe. Das ist gefährlich und erniedrigend.» Diese Frauen suchen
+Abdalla zufolge Abenteuer. «Sie verfügen über Vermögen, halten sich für frei und so weiter. Wenn es aber keinen
+moralischen und ideologischen Bestandteil wie bei Daesch gibt, macht das alles nicht satt, und sie schliessen
+sich den Terroristen an, um Abenteuer zu finden oder sich selbst etwas zu beweisen», meint Abdalla.
+Wenn diese Frauen in die Reihen der Islamisten geraten, gäbe es keinen Rückweg. «Stellen sie sich eine Frau vor,
+die gezwungen wird, zehn Männer in der Nacht zu befriedigen. Kein Tier könnte so etwas tun.» Keine von diesen
+Frauen könne jedoch weggehen, selbst wenn sie es wollte. «Der Preis für ein Rückticket ist der Tod.»
+Jede Frau, die sich der Terrormiliz anschliesse, werde zur Mörderin an Frauen, weil die Terrormiliz Daesch ein
+System der sexuellen Sklaverei von Frauen schaffen wolle.
+Abdalla zufolge besteht die Daesch-Armee aus lebenden Toten, weil ihre Kämpfer keine Lebenspläne hätten,
+«um dem Leben etwas Sinn, Farbe und etwas Freude zu geben. Ihr einziger Plan ist, zu sterben und ins Paradies
+zu kommen», sagte sie. Um diese Terror-Organisation zu vernichten, müsse man ihre «Anführer finden und
+angreifen».
+
+_Quelle: http://de.sputniknews.com/militar/20160206/307651544/is-kurden-frauen-kampf.html_
+
+#### Merkels Selbstermächtigung à la 1933 – Ex-Staatssekretär Willy Wimmer über Deutschland und seine Zukunft
+_Epoch Times, Dienstag, 16. Februar 2016 20:17_
+Der ehemalige deutsche Spitzenpolitiker Willy Wimmer im Interview über die vermeintliche Sinnhaftigkeit der
+Müncher Sicherheitskonferenz, die deutsche Verantwortung für Frieden und den kalten Putsch der Bundeskanzlerin – Deutschland auf einem Kurs mit schrecklichem Ende.
+
+**33 Jahre war Willy Wimmer Bundestagsabgeordneter der CDU und viele Jahre deren verteidigungspolitischer**
+**Sprecher in der Fraktion, später dann Parlamentarischer Staatssekretär bei Bundesverteidigungsminister**
+**Gerhard Stoltenberg im Kabinett Kohl. Von 1994 bis 2000 fungierte er als Vizepräsident der Parlamentarischen**
+**Versammlung der OSZE, der Organisation für Sicherheit und Zusammenarbeit in Europa.**
+
+_Foto: Screenshot/Youtube_
+
+
+-----
+
+‹Frieden durch Dialog› – so lautete das Gründungsmotto der Münchner Sicherheitskonferenz, um militärische
+Konflikte durch Dialog zu vermeiden, so das offizielle Ziel. Einst war auch Willy Wimmer Teilnehmer dieser
+Konferenz. Doch seit damals hat sich viel geändert …
+«Die Münchener Sicherheitskonferenz hat jeden konstruktiven Charakter verloren», so der Politiker im Gespräch
+mit RT.
+Am vergangenen Wochenende fand sie zum 52. Mal statt. 450 hochrangige Entscheidungsträger der Welt kamen,
+um sicherheitspolitische Themen zu diskutieren.
+
+**Deutschlands Verantwortung für den Frieden**
+«Was wir hier in München sehen ist, seit Jahr und Tag, ein Trommeln für den Krieg», so Wimmer. Man müsse
+sich fragen, warum die Bundesregierung mit mehreren Hunderttausend Euro diese Veranstaltung finanziere.
+Zu der Frage der deutschen Verantwortung, als Nation, sagte der Ex-Staatssekretär: «Wir haben uns an völkerrechtswidrigen Kriegen zuhauf in den letzten 15 Jahren beteiligt.» Allerdings sei es die deutsche Verantwortung,
+die Politik unserer Verfassung nach zu betreiben und zum Frieden in der Welt beizutragen. So stehe es ausdrücklich in unserer Verfassung.
+
+**Jetzt: Ein Land ohne Verantwortungsbewusstsein**
+Dabei verweist Wimmer auch auf das Soldatengesetz hin. Dort stehe ausdrücklich drin, und dies sei auch jedem
+einzelnen Soldaten auferlegt, «diese Prüfung für sich vorzunehmen, dass er nur etwas machen darf in Übereinstimmung mit den geltenden Regeln des Völkerrechts.»
+Wenn er das nicht tue, mache man sich in hohem Masse strafbar. Dies gelte auch für eine Bundeskanzlerin und
+einen Bundeskanzler. «Wenn es zur Anklage käme», würde sie/er mit bis zu zehn Jahren Haft bestraft.
+«Was wir machen, das macht deutlich, in welchem Land, in welcher Rechtssituation wir auch die Soldatinnen
+und Soldaten in der Bundeswehr haben. Und das macht deutlich, dass an Verantwortung in diesem Land überhaupt nicht zu denken ist», zieht der Politiker sein Resümee.
+
+**Kurs mit schrecklichem Ende**
+Auch meinte Wimmer, dass im Zusammenhang mit den Entwicklungen des Jugoslawienkrieges 1998 in Den Haag
+der Internationale Strafgerichtshof etabliert wurde. Hier sollten diejenigen zur Rechenschaft gezogen werden,
+die das Völkerrecht missachten und die Kriege führen.
+Bisher habe man sich aber lediglich über afrikanische Potentaten hergemacht und habe diese in Den Haag vor
+Gericht gezerrt, so Wimmer, aber «diejenigen, die wirklich Kriege geführt haben wie George W. Bush, Tony Blair
+und andere», würden weltweit herumreisen und teure Vorträge halten. Dies sei die Wirklichkeit.
+Auf die Frage, was wir dagegen tun könnten, antwortete der ehemalige Spitzenpolitiker: «Wir sollen uns dessen
+bewusst sein, dass wir wieder, nach der tragischen deutschen Geschichte des vergangenen Jahrhunderts auf
+einen Kurs gebracht werden, der für dieses Land nur im Schrecklichen endet.»
+
+**Der kalte Putsch der Kanzlerin**
+Auf die derzeitige Lage in der Migrationskrise kommend, meinte Wimmer, dass mit dem Selbstverständnis, mit
+dem die Bundeskanzlerin mit der Rechtsordnung umgegangen sei, wir in einer ‹faktischen Putschsituation› leben
+würden.
+Da stellt sich die Frage: «Wie kann eine Bundeskanzlerin hingehen und deutsche und europäische Vorschriften
+so ausser Kraft setzen, im Zusammenhang mit der Migrationsentwicklung, wie sie das im Zusammenhang mit
+dem Wochenende 4./5. September und den Budapester Vorgängen getan hat?»
+Auch wenn eine humanitäre Situation dies erfordert habe, hätte man am Montag danach die Vorschriften
+wieder in Kraft setzen müssen. Mit dieser einmaligen Situation in Budapest, die ausgenutzt wurde, habe uns
+die Bundeskanzlerin zu einem rechtlosen Land gemacht.
+Dabei wisse die Bundesregierung seit mehreren Jahren, was die Kanzlerin auch selbst schon in Interviews bestätigte, was sich da zusammengebraut habe. Daraus habe die Regierung allerdings keine Konsequenzen gezogen
+und auch nicht gehandelt. «Man hat die Dinge über uns hereinbrechen lassen und das dann genutzt, um die
+Rechtsordnung, in meinem Verständnis, zur Seite zu fegen», so Wimmer.
+
+**Doppelzüngigkeit wider besseres Wissen**
+Dieser Staat sei in seinem Selbstverständnis ein Rechtsstaat, aber die Bundeskanzlerin habe diesen Rechtsstaat
+substanziell ausgehöhlt. Dies zeige sich auch in der Verzweiflung der politischen Mitte im Land. Die Menschen
+
+
+-----
+
+würden von der Regierung erwarten, dass sie sich an die Gesetze halte. Sie würden aber auch wissen, dass andere
+Kräfte in diesem Land bestimmen, als jene, die sie gewählt hatten. Wir hätten seit Jahrzehnten eine Situation,
+bei der wir nicht Herr im Haus seien.
+Auf eine Steuerung durch die USA angesprochen, wies der Politiker auf einen entscheidenden Part hin: «Die
+Bundeskanzlerin hat ja wirklich die Unverfrorenheit besessen, zu sagen, man wird mit der Migrationsbewegung
+fertig, wenn man die Ursachen dieser Migration bekämpft.»
+Dabei wisse aber das deutsche Volk bereits, dass wir diese Migrationsentwicklung hätten, weil die Amerikaner
+zwischen Afghanistan und Mali, im Verbund auch mit den Franzosen und den Briten, alles in Schutt und Asche
+legen würden.
+«Wenn ich die Ursachen dieser Migration bekämpfen will, dann muss ich mich weigern, an diesen Kriegen beteiligt zu sein und denen das Handwerk legen, die diese Kriege führen.»
+
+**Merkels Selbstermächtigung à la 1933 und ihr ‹Plan›**
+Es werde nichts anderes mehr geduldet, als die amerikanische Sicht der Dinge. Und dieser Umstand werde «uns
+mit grossen Nationen in einen Konflikt bringen, den wir nicht überleben werden», ist sich der politische Experte
+sicher. Die derzeitige Situation treibe die Leute dazu, sich zu überlegen, wohin man noch auswandern könne.
+Dabei seien die Schweiz und Kanada immer populärer. Dies sei allerdings abhängig davon, dass man noch die
+ökonomischen Möglichkeiten habe, dies zu tun. Für den Rest des deutschen Volkes heisse es nur noch hierzubleiben.
+Dabei könnten sich die Menschen in Deutschland ihr Land nur als Rechtsstaat vorstellen. Wenn man also daran
+Hand anlegt, werden die Leute hier unweigerlich «an eine vergleichbare Situation 1933» denken. «Die Selbstermächtigung führt uns in eine tödliche Sackgasse. Und das, was die Bundeskanzlerin gemacht hat, ist eine Form
+von Selbstermächtigung am Gesetz und am Gesetzgeber vorbei.»
+
+**Das seltsame Schweigen des Deutschen Bundestages**
+Willy Wimmer wundert sich. Warum hatte der Deutsche Bundestag die Bundeskanzlerin nicht aufgefordert, im
+Haus vorzutragen, was ihr Plan ist?
+«Wer in Deutschland weiss, wie dieser Plan aussieht?» Wer habe sie aufgefordert, Rede und Antwort vor dem
+Bundestag zu stehen. Dieser sei nämlich die einzige Institution, welche die Macht habe, die Bundeskanzlerin zu
+diesem Wort zu zwingen.
+Noch einmal auf die Nato zurückkommend, bemerkte Wimmer, dass der Beitritt Deutschlands zur Nato, als da maliges Verteidigungsbündnis, nur durch die Zustimmung des Deutschen Bundestages völkerrechtlich verbindlich geworden sei. Doch seit dem Vorfeld des Jugoslawienkrieges hätten wir ein «global ausgreifendes Aggressionsbündnis, das überall Kriege führt». Diesem Bündnis habe der Deutsche Bundestag in dieser veränderten Form
+nie zugestimmt.
+Wimmer und andere hätten dies 2007 vor dem Bundesverfassungsgericht angeklagt. Doch das Gericht wies die
+Klage zurück und begründete dies damit, dass man einen Vertrag auch weiterentwickeln könne. Für Wimmer
+war das ernüchternd: «Ich habe noch nie erlebt, dass man aus einem Verteidigungsbündnis folgenlos eine
+Angriffsorganisation machen kann.» Das mache doch deutlich, womit wir es in Deutschland eigentlich zu tun
+hätten. (sm)
+
+_Quelle: http://www.epochtimes.de/politik/deutschland/merkels-selbstermaechtigung-a-la-1933-ex-staatssekretaer-willy-wim-_
+_mer-ueber-deutschland-und-seine-zukunft-a1307276.html_
+
+#### EUdSSR will die Schweiz entwaffnen
+_Freitag, 19. Februar 2016, von Freeman um 20:00_
+Es ist eine sehr lang Tradition in der Schweiz, die Armeewaffe nach Beendigung der Grundausbildung zu Hause
+aufzubewahren, zusammen mit der Uniform und anderer Ausrüstung. Der Grund dafür liegt darin, dass jeder
+Militärdienstpflichtige regelmässig einmal pro Jahr an Wiederholungskursen (WK) teilnehmen muss, also an
+Militärmanövern, die 19 Tage andauern. Ausserdem gibt es eine Schiesspflicht, die jedes Jahr bis zum 31. August
+absolviert werden muss. Dabei wird die Fähigkeit der Treffsicherheit auf den Schiessständen geprüft. Das heisst,
+jeder Schweizer Militärdienstpflichtige bleibt auch im Zivilleben Soldat und übt es auch. Diese Tradition gehört
+
+
+-----
+
+zur wehrhaften Schweiz und macht das Land bei einer Mobilmachung zum schnellsten auf der Welt, nämlich
+innerhalb weniger Stunden. Jetzt will die EU aber diese Tradition beenden und der Schweiz, die gar kein EU-Mitglied ist, die Aufbewahrung der Armeewaffe Zuhause verbieten. Ein weiterer Angriff aus Brüssel auf die Schweiz!
+
+Nach dem Willen der EU-Kommission wäre es Schweizer Armeeangehörigen künftig nicht mehr möglich, nach
+dem Ende der Dienstpflicht Ordonnanzwaffen mit nach Hause zu nehmen. Der Entwurf der EU-Kommission
+sieht als Reaktion auf die Terroranschläge in Paris eine Verschärfung des Waffenrechts vor. Damit soll laut EUKommissionspräsident Jean-Claude Juncker verhindert werden, «dass Waffen in die Hände von Terroristen
+fallen». Da die Schweiz dem Schengen-Abkommen beigetreten ist (leider), muss sie das europäische Waffenrecht
+übernehmen, heisst es. Die Vorschläge werden nun vom Ministerrat und vom Europäischen Parlament diskutiert.
+
+An dieser Aktion sieht man, die Schweizer Politiker (Landesverräter), die damals mit Wirkung ab 26. Oktober
+2004, den Schweizern das Schengen-Abkommen mit falschen Versprechungen verkauften, haben tatsächlich die
+Souveränität der Schweiz verkauft. Den Stimmbürgern wurde die Zustimmung mit der Aufhebung der Grenzkontrollen abgerungen und der angebliche freie Reiseverkehr schmackhaft gemacht. Völlig verschwiegen wurde
+aber ein Rattenschwanz an Einschränkungen, wie zum Beispiel, ein verschärftes Waffenrecht.
+Nach Inkrafttreten des Schengen-Abkommens wurde zuerst die Meldepflicht für den Besitz von Waffen ein geführt, plus der Zwang einer Waffenerlaubnis, was es vorher nicht gab. Aber jetzt will die EU-Diktatur auch
+noch die Aufbewahrung der Dienstwaffe im eigenen Haus verbieten, was für Schweizer völlig normal ist und
+seit sicher 100 Jahren gilt.
+Das erinnert an die Entwaffnung der deutschen Bevölkerung bereits in der Weimarer Republik. Mit dem Reichsgesetz über Schusswaffen und Munition vom 12. April 1928 wurden Erwerbsscheine – ähnlich der heutigen
+Waffenbesitzkarte – vorgesehen, die nur ‹Berechtigten› den Erwerb und den Besitz von Schusswaffen erlaubte.
+Ab 1930 wurde auch der Umgang mit Hieb- und Stosswaffen reglementiert.
+Nach der Machtübernahme der Nazis 1933 wurde das Waffengesetz zusätzlich noch verschärft. Ist klar warum –
+eine Diktatur will immer die Bevölkerung entwaffnen und wehrlos gegen die Staatsgewalt machen. Genauso
+verhält sich die EUdSSR heute. Die Ausrede, es gehe um Terrorbekämpfung, ist eine Lüge. Noch nie wurde eine
+Schweizer Armeewaffe für einen Terroranschlag missbraucht.
+Nur eine echte Demokratie hat keine Angst vor verantwortungsvollen, wehrhaften und patriotischen Bürgern.
+Die EU ist alles andere als eine Demokratie, sondern eine faschistische Konzerndiktatur. Deshalb will sie die
+Menschen wehrlos machen, mit der Lüge, es gehe um ihre Sicherheit.
+
+Wieso soll die Schweiz ihre Wehrhaftigkeit wegen der Terroranschläge von Paris aufgeben und sich entwaffnen
+lassen? Damit die Terroristen noch leichter Zivilisten ermorden können? Genau das Gegenteil müsste erfolgen,
+so wie es Donald Trump, der Kandidat für die US-Präsidentschaft, nach Paris ausgedrückt hat. Er sagte, die
+Paris-Attacke wäre «ganz anders abgelaufen, wären die Opfer bewaffnet gewesen.»
+Klar, dann hätten sie sich verteidigen können oder es wäre gar nicht zu einem Anschlag gekommen. Die feigen
+Terroristen schiessen nur auf wehrlose Opfer und nicht dann, wenn sie wissen, sie werden mit wehrhaften
+Bürgern konfrontiert und gehen selber drauf. Das trifft auch auf Kriminelle zu.
+
+
+-----
+
+Den Schweizer Milizsoldaten ihre Gewehre wegzunehmen und die Bevölkerung generell zu entwaffnen, bringt
+nicht mehr, sondern weniger Sicherheit. Es nützt nur den Kriminellen und den Terroristen, die immer einen Weg
+finden werden, um an Waffen zu kommen. Wie wenn diese sich um Gesetze kümmern und ein Waffenverbot
+beachten würden. Ist doch lächerlich.
+Die Terroristen von Paris haben ihre Waffen gerade wegen des Schengen-Abkommen in die Hände bekommen,
+weil es keine Grenzkontrollen gab. Sie kamen ungehindert aus dem Balkan über Österreich und Deutschland
+nach Frankreich.
+Nein, es geht der EU-Kommission nicht um mehr Sicherheit oder um Terrorbekämpfung, sondern darum, die
+Bürger zu einem wehrlosen Ziel zu machen. Die Polizei ist nicht in der Lage, die Menschen zu schützen. Haben
+wir mit den 129 Toten und 352 Verletzten in Paris gesehen. Die kommen erst dann, wenn alles vorbei ist.
+Adrian Amstutz von der SVP hat bereits angekündigt, dass es ein Referendum geben wird, sollte der Schweiz eine
+weitere Einschränkung des Waffenrechts von der EU aufgezwungen werden. Auch die Schweizer Schützen vereine haben ihren Widerstand gegenüber den Plänen der EU-Kommission angekündigt und wollen über ihre
+Partnerverbände eine drohende Verschärfung bekämpfen.
+Das Schengen-Abkommen ist sowieso Makulatur, wie wir wegen der Flüchtlingskrise tagtäglich sehen. Die durch
+den Flüchtlingsstrom betroffenen Länder halten sich nicht mehr dran, ziehen Grenzzäune auf, führen wieder
+Grenzkontrollen ein. Deshalb wäre jetzt der Zeitpunkt reif für die Schweiz, dieses nachteilige Abkommen zur
+Einschränkung der Souveränität sofort zu kündigen. Eine wehrlose Schweiz darf es nicht geben!
+
+_Quelle: http://alles-schallundrauch.blogspot.de/2016/02/eudssr-will-die-schweiz-entwaffnen.html_
+
+#### Ein Wort dazu:
+**In diversen FIGU-Bulletins führt auch Billy/BEAM in Gesprächen die kriminellen und die europäischen Bür-**
+**ger knechtenden und versklavenden Machenschaften der EU-Diktatur auf, wie auch, dass dumm-dämliche**
+**und verstand- sowie vernunftlose Schweizer/innen gehirnamputiert und heimatverräterisch die Freiheit, Neutra-**
+**lität und Sicherheit unserer Heimat bedenken- und gewissenlos an die EU-Diktatur verschachern wollen.**
+
+###### Wahre Werte
+Die Freiheit der Schweiz
+sowie ihre Neutralität und ihre
+Sicherheit, ihr Gedeihen und alle
+ihre guten Werte können nur durch
+Einsicht und Einigkeit, Verstand sowie
+Vernunft des gesamten Schweizervolkes,
+dessen Sinn für Ehre, Frieden und Würde
+in Zufriedenheit und Harmonie erhalten
+werden und sich in Zukunft mehren,
+um für alle Menschen ein Hort
+der Toleranz zu sein sowie
+umfänglichen Schutz für
+Land und Mensch
+zu gewähren.
+_SSSC, 22. Februar 2016_
+_22.26 h, Billy_
+
+###### Ruin der Schweiz
+Der Ruin der Schweiz beginnt
+bei den Lügen der EU-Diktatur
+und bei jenen gehirnlosen, irren
+Heimatverrätern, die das Land
+an eine Terroristen-Union
+verschachern wollen.
+_SSSC, 23. Februar 2016_
+_11.56 h, Billy_
+
+
+-----
+
+## Stimme Gegenstimme
+
+**Klarheit durch intelligente Analytiker** **Nicht gläserne Bürger - gläserne Medien,**
+
+**Weniggehörtes - vom Volk fürs Volk!** **Politiker, Finanzmogule brauchen wir!**
+
+**frei und unentgeltlich** **Weltgeschehen unter**
+
+**Inspirierend** **der Volkslupe**
+
+**S&G** **S&G**
+
+**DIE VÖLKER HABEN EIN RECHT AUF STIMME UND GEGENSTIMME**
+
+**~ Ausgabe 8/16 ~**
+
+**Schutz der Verfassung in Deutschland:**
+**_INTRO_**
+_Benjamin Ferencz, der bei_ _lautet nämlich: „Auch Staats-_ **Wer muss geschützt werden?**
+_den Nürnberger Prozessen ab_ _oberhäupter und Regierungs-_ **_pg. Am 4.12.2015 stimmte der_** ker zu stören, insbesondere die
+_November 1945 Chefanklä-_ _mitglieder sind für von ihnen_ deutsche Bundestag für einen Führung eines Angriffskrieges
+_ger gegen die „SS-Einsatz-_ _begangene völkerrechtliche_ Einsatz der deutschen Bundes- vorzubereiten, sind verfassungs_gruppen“ war, beurteilte den_ _Verbrechen nach dem Völker-_ wehr in Syrien. Somit können widrig. Sie sind unter Strafe zu
+_US-amerikanischen Überfall_ _recht verantwortlich.“ Robert_ nun deutsche Truppen nach Sy- _stellen“ – Das deutsche Strafge-_
+_auf den Irak im Jahr 2003 wie_ _H. Jackson, damals amerika-_ rien entsandt werden. Das, ob- setzbuch § 80 ergänzt: „Wer ei_folgt: „Die USA haben mit_ _nischer Chefankläger im Pro-_ wohl weder die Bundesrepublik nen Angriffskrieg, an dem die
+_dem Angriffskrieg gegen den_ _zess gegen die Hauptkriegs-_ Deutschland noch einer ihrer Bundesrepublik Deutschland be_Irak das schlimmste aller_ _verbrecher, sagte 1945 in_ NATO-Partner von Syrien ange- teiligt sein soll, vorbereitet [ ... ]
+_Kriegsverbrechen begangen.“_ _seiner Rede zur Eröffnung_ griffen oder gar besetzt wurde wird mit lebenslanger Freiheits_Ferencz bezog sich damit auf_ _des Prozesses in Nürnberg:_ und es auch keine Kriegserklä- strafe oder mit Freiheitsstrafe
+_das Nürnberger Prinzip VI:_ _„…wir dürfen niemals verges-_ rung von Seiten Syriens gab. Sy- nicht unter zehn Jahren bestraft.“
+_„Folgende Verbrechen sind_ _sen, dass nach dem gleichen_ rien bat auch weder Deutschland – Das deutsche Strafgesetzbuch
+_als völkerrechtliche Verbre-_ _Maß, mit dem wir die Ange-_ noch die NATO um Unterstüt- besagt in § 80 a weiterhin: „Wer
+_chen strafbar: a) Verbrechen_ _klagten heute messen, auch_ zung im Kampf gegen den Isla- im räumlichen Geltungsbereich
+_gegen den Frieden b) Kriegs-_ _wir morgen von der Geschich-_ mischen Staat IS, sondern einzig dieses Gesetzes öffentlich, in ei_verbrechen c) Verbrechen ge-_ _te gemessen werden.“ –_ und allein Russland. Der vom ner Versammlung oder durch
+_gen die Menschlichkeit.“_ _70 Jahre später, wo in beson-_ Bundestag genehmigte Militär- Verbreiten von Schriften zum
+_Nach dem Nürnberger Prin-_ _derer Weise Recht zu Unrecht_ einsatz ist somit ein Angriffs- Angriffskrieg aufstachelt, wird
+_zip III seien Präsident Obama_ _und Unrecht zu Recht ver-_ krieg Deutschlands an der Seite mit Freiheitsstrafe von drei Mo_und die Regierungschefs aller_ _dreht wird, ist es von existen-_ seiner NATO-Verbündeten ge- naten bis zu fünf Jahren bestraft.“
+_NATO-Staaten, die sich an_ _zieller Wichtigkeit, sich wieder_ gen syrisches Staatsgebiet. Das Sobald Rechtsprechung nach –
+_den Luftangriffen auf Syrien_ _an den Rechtsfundamenten zu_ deutsche Grundgesetz sagt dazu _noch – geltendem Recht ge-_
+_beteiligen, als Kriegsverbre-_ _orientieren. Diese Ausgabe_ in Art. 26.1 „Handlungen, die schieht, wird es in weiten Reihen
+_cher anzuklagen. So urteilt_ _der S&G bietet einige Mit-_ geeignet sind und in der Absicht der Politik und Medien mögli_der kanadische Prof. Michel_ _und Umdenk-Anstöße. [1]_ vorgenommen werden, das fried- cherweise sehr licht aussehen!
+_Chossudovsky. Das Prinzip III_ _Die Redaktion (mol./hm.)_ liche Zusammenleben der Völ- **[2]**
+
+**Die Asylpolitik in Deutschland unter der Lupe des Verfassungsrechts** **US-Regierung:**
+**_mr. Frans Timmermans, erster_** _Prozent für unser Land“ am_ – Vorläufige Suspendierung und **Freund oder Feind?**
+Vizepräsident der für die Grenz- 2.2.2016 Verfassungsbeschwer- spätere Amtsenthebung der Bun- **_ham. Bundeskanzlerin Angela_**
+beobachtung zuständigen EU- de beim Bundesverfassungsge- deskanzlerin Dr. Angela Merkel Merkel will 25 bis 30 Milliarden
+Kommission, meldete für De- richt eingereicht, die vom Staats- und ihres Stellvertreters Sigmar Mehrausgaben für die Bundeszember 2015, dass 60 % der rechtler Prof. Schachtschneider Gabriel. wehr. Die US-Regierung und die
+Flüchtlinge nach der Genfer ausgearbeitet wurde. Kernanträ- Laut Professor Schachtschneider NATO forderten diese AufstoKonvention keinen Anspruch ge der Beschwerde sind: ist nicht nur dringend Eile gebo- ckung. Dr. Alexander Neu aus
+auf Asyl haben. Und dennoch – Verpflichtung der Bundesregie- ten, sondern aufgrund der mas- dem Verteidigungsausschuss kridürfen allein in Deutschland rung, die Grenzen der Bundes- siven Verfassungsbrüche durch tisierte: „Merkel ist dank der
+täglich bis zu 10.000 Flüchtlinge republik Deutschland wirksam die deutsche Regierung hätten deutsch-amerikanischen Freundunkontrolliert die Grenze passie- gegen die illegale Einreise von die deutschen Bürger gemäß schaft der Meinung, dass wir
+ren. Gegen diese rechtswidrige Ausländern zu sichern und den Artikel 20 Abs. 4 Grundgesetz ab dem nachkommen sollten“. –
+Asylpolitik der Bundesregierung illegalen Aufenthalt der Auslän- sofort das Recht und die sittliche Dieselben vermeintlichen UShat die Bürgerinitiative „Ein der unverzüglich zu beenden; Pflicht auf Widerstand. [3] Freunde forderten seinerzeit die
+
+
+**_INTRO_**
+_Benjamin Ferencz, der bei_ _lautet nämlich: „Auch Staats-_
+_den Nürnberger Prozessen ab_ _oberhäupter und Regierungs-_
+_November 1945 Chefanklä-_ _mitglieder sind für von ihnen_
+_ger gegen die „SS-Einsatz-_ _begangene völkerrechtliche_
+_gruppen“ war, beurteilte den_ _Verbrechen nach dem Völker-_
+_US-amerikanischen Überfall_ _recht verantwortlich.“ Robert_
+_auf den Irak im Jahr 2003 wie_ _H. Jackson, damals amerika-_
+_folgt: „Die USA haben mit_ _nischer Chefankläger im Pro-_
+_dem Angriffskrieg gegen den_ _zess gegen die Hauptkriegs-_
+_Irak das schlimmste aller_ _verbrecher, sagte 1945 in_
+_Kriegsverbrechen begangen.“_ _seiner Rede zur Eröffnung_
+_Ferencz bezog sich damit auf_ _des Prozesses in Nürnberg:_
+_das Nürnberger Prinzip VI:_ _„…wir dürfen niemals verges-_
+_„Folgende Verbrechen sind_ _sen, dass nach dem gleichen_
+_als völkerrechtliche Verbre-_ _Maß, mit dem wir die Ange-_
+_chen strafbar: a) Verbrechen_ _klagten heute messen, auch_
+_gegen den Frieden b) Kriegs-_ _wir morgen von der Geschich-_
+_verbrechen c) Verbrechen ge-_ _te gemessen werden.“ –_
+_gen die Menschlichkeit.“_ _70 Jahre später, wo in beson-_
+_Nach dem Nürnberger Prin-_ _derer Weise Recht zu Unrecht_
+_zip III seien Präsident Obama_ _und Unrecht zu Recht ver-_
+_und die Regierungschefs aller_ _dreht wird, ist es von existen-_
+_NATO-Staaten, die sich an_ _zieller Wichtigkeit, sich wieder_
+_den Luftangriffen auf Syrien_ _an den Rechtsfundamenten zu_
+_beteiligen, als Kriegsverbre-_ _orientieren. Diese Ausgabe_
+_cher anzuklagen. So urteilt_ _der S&G bietet einige Mit-_
+_der kanadische Prof. Michel_ _und Umdenk-Anstöße. [1]_
+_Chossudovsky. Das Prinzip III_ _Die Redaktion (mol./hm.)_
+
+
+**frei und unentgeltlich**
+
+**Inspirierend**
+
+
+-----
+
+**_��������������_**
+
+**_„Es hilft nichts, das_**
+**_Recht auf seiner Seite zu_**
+**_haben. Man muss auch_**
+**_mit der Justiz rechnen.“_**
+_Dieter Hildebrandt_
+_(1927 – 2013), deutscher_
+_Kabarettist und Buchautor_
+
+**_Oder anders ausgedrückt:_**
+**_Man muss einfach wieder_**
+**_den Mut haben,_**
+**_unermüdlich auf das_**
+**_Recht und dessen_**
+**_Durchsetzung_**
+**_zu pochen._**
+_Die Redaktion (hm.)_
+
+
+**_„Nimm das Recht weg – was ist dann ein Staat noch anderes_**
+**_als eine große Räuberbande?“_**
+_Augustinus von Hippo (354 – 430), Kirchenlehrer und Philosoph_
+
+
+-----
+
+_17:08 18.02.2016 (aktualisiert 17:18 18.02.2016)_
+
+###### Laut dem Aussenministerium der Russischen Föderation sind die Behauptungen der Türkei, dass die russische Luftwaffe in Syrien zielgerichtet die Zivilbevölkerung vernichten würde, eine Lüge.
+«Es ist eine Lüge, dass die russische Seite und die russische Luftwaffe angeblich an der zielgerichteten Ver nichtung der syrischen Zivilbevölkerung, von Schulen und Krankenhäusern teilnehmen würden. Das alles wird
+im Kontext der Münchner Vereinbarungen zu Syrien vorgebracht, und all dem werden noch Beschuldigungen
+Russlands aller möglicher Sünden hinzugefügt», so die Sprecherin des russischen Aussenministeriums Maria
+Sacharowa.
+Wie sie sagte, «zeigt das alles noch einmal das Fehlen einer konstruktiven Einstellung der türkischen Seite,
+Engagiertheit und Subjektivität, das Fehlen einer vernünftigen Sicht der Situation.»
+Sacharowa äusserte die Vermutung, dass die seit einigen Tagen zunehmende antirussische Rhetorik Ankaras mit
+den erfolgreichen Operationen der syrischen Armee und der russischen Luftwaffe im Nordwesten Syriens
+verbunden sei.
+_Quelle:_ _http://de.sputniknews.com/politik/20160218/307959770/tuerkei-luege-russland-bombardiert-syrien-zivilbevoelke-_
+_rung.html_
+
+#### Den Schiessbefehl outsourcen: Merkels heuchlerische Flüchtlingspolitik
+_17.02.2016 • 08:00 Uhr_
+Die Sicherung der Landesgrenzen schliesst im Extremfall Gewaltanwendung mit ein – oder zumindest die
+glaubhafte Androhung dieser. Das ist unpopulär. Auf der Suche nach Antworten wie sich der Zustrom von
+Migranten und Flüchtlingen dennoch begrenzen lässt, hat die Bundesregierung nun aber eine Antwort ge funden: Griechenland, die Türkei und vor allem die NATO sollen sich die Hände schmutzig machen. Eine grosse
+Heuchelei meint Gastautor Peter Haisenko.
+_Ein Gastbeitrag von Peter Haisenko_
+
+Im Sommer 2015 kam unerbetener Rat aus Australien: Macht es so wie wir. Wir retten Flüchtlinge aus Seenot,
+führen diese aber umgehend zurück an ihren Ausgangsort. Es folgte der reflexartige Aufschrei, dass man so etwas
+auf keinen Fall tun dürfe, allen voran Frau Merkel. Seit einigen Tagen gilt das nicht mehr, und es war wieder
+Frau Merkel, die die 180-Grad Wendung als erste proklamierte.
+Bis jetzt hat mir noch niemand erklären können, wie eine Grenze im Extremfall ohne Gewaltanwendung ge sichert werden kann, zumindest ohne eine glaubhafte Androhung derselben. Der deutsche Grenzschützer darf
+das auf keinen Fall, so die Reaktion auf Hinweise aus den Reihen der AfD. Dennoch herrscht mittlerweile –
+
+
+-----
+
+anders als noch vor wenigen Monaten – Einigkeit darüber, dass der Zustrom von Migranten reduziert werden
+muss. Mit der Stigmatisierung des Einsatzes ultimativer Mittel zur Grenzsicherung hat sich die Politik in ein
+Dilemma begeben.
+
+**Die NATO soll es jetzt richten**
+Die feige Lösung hiess dann: Griechenland soll seine Grenzen sichern. Eine Antwort auf die Frage, wie das Land
+das bewerkstelligen soll, ist geflissentlich unterblieben. Konsequenterweise haben die Griechen dieses Ansinnen
+abgelehnt, zum einen, weil sie dazu gar nicht in der Lage sind, zum andern aber auch, weil sie nicht die Rolle
+des Buhmanns übernehmen wollten, der notfalls auch auf Flüchtlinge schiessen muss. Letzte Woche hat dann
+Frau Merkel eine Lösung präsentiert, die die Verantwortung auf eine mehr oder weniger anonyme Masse abwälzen soll: Die NATO soll die Seegrenze zur Türkei sichern unter dem Deckmäntelchen, nur gegen Schleuser
+vorgehen zu wollen. Die NATO-Kriegsschiffe sind bereits vor Ort.
+Betrachtet man nun den Auftrag, den die NATO-Kräfte erhalten haben, wird es nur noch eklig. Flüchtlingstransporte aufhalten, vom Landgang auf europäischen Boden abhalten, aufgefischte oder aus Seenot Gerettete
+umgehend zurückführen in die Türkei. Geht gar nicht, wurde noch vor einem guten halben Jahr allenthalben
+herausposaunt. Wohlgemerkt, es war Frau Merkel selbst, die in Ankara diese neue Richtung proklamiert hat
+und noch vor wenigen Tagen alle, die die neue Richtung schon lange gefordert hatten, konsequent in die NaziEcke verbannt hatte.
+Halten wir also fest: Deutsche Grenzer tragen ihre Waffe nur als Dekoration, dürfen keine Gewalt zur Grenz sicherung anwenden. Griechen vielleicht schon, die NATO muss es tun. Wie anders kann es interpretiert werden,
+wenn schwer bewaffnete Kriegsschiffe zur Grenzsicherung eingesetzt werden? Man stelle sich nur einmal das
+Bild vor, wenn ein überladenes Schlauchboot von einem riesigen Kriegsschiff an der Weiterfahrt gehindert wird.
+Hier nicht vom Einsatz massiver Gewalt zu sprechen, ist schlicht verlogen. Aber dann sind es eben nicht deutsche
+Grenzer, die in Gefahr geraten, schändliche Taten gegen Flüchtlinge begehen zu müssen. Oder doch? Auch
+Deutschland ist beteiligt an NATO-Truppen – aber hier kommen die Befehle eben nicht mehr direkt aus Berlin.
+
+**Heuchelei an allen Ecken und Enden**
+Zweifellos sind die Zustände in der Türkei nicht mit denen in Libyen zu vergleichen. Dennoch ist es eine Tatsache,
+dass Erdogan Jagd auf Kurden macht und sie zu Tausenden abschlachten lässt. Kann es moralisch vertretbar
+sein, einen kurdischen Flüchtling gewaltsam in diese Türkei zurückzuschicken? Kann die NATO unterscheiden,
+ob es sich um ein Boot mir Syrern oder Kurden handelt? Gewalt ist grundsätzlich abzulehnen, aber in einer
+Extremsituation – und wir erleben eine solche – ist sie eben manchmal und leider das letzte Mittel. Es ist eine
+total verfahrene Situation, in die uns unsere Kanzlerin da hineingesteuert hat. Nach wie vor verweigert sie die
+einzige gewaltfreie Lösung, nämlich ein klares Signal auszusenden, dass Flüchtlinge zumindest vorübergehend
+nicht mehr willkommen sind, weil wir es eben wegen Überforderung nicht mehr schaffen. Diese Weigerung ist
+es, die dazu führt, dass jetzt doch Gewalt angewendet werden soll, halt nur nicht direkt durch deutsche Grenzer.
+Was für eine heuchlerische Feigheit!
+Betrachten wir dazu die ‹Sicherung› der europäischen Ostgrenze. Seit Monaten bringt die NATO mit Zustimmung
+Berlins schweres Gerät und Panzer in Massen Richtung Osten, um angeblich Schutz vor dem ‹aggressiven Russ land› zu bieten. Die Grenzsicherung gegen angebliche russische Aggressoren darf also mit maximaler Gewalt
+betrieben werden. Selbst dem Dümmsten muss aber klar sein, dass Moskau niemals sein Territorium gewaltsam
+nach Westen ausdehnen wird. Die Russen können durch eine solche Aktion nicht die geringsten Vorteile erlangen
+und betonen auch immer wieder, dass sie nicht daran denken, derartiges zu tun. Obwohl Russland – nicht die
+Sowjetunion – niemals ein anderes Land angegriffen hat, wollen unsere Russlandhasser das nicht glauben.
+Glauben wird aber dem grössten Lügner aller Zeiten geschenkt, den USA, die in der jüngeren Vergangenheit
+routinemässig Länder in aller Welt angegriffen und zerstört haben. Es ist nach wie vor ein Tabu, öffentlich darauf
+zu verweisen, dass es die USA, und nur die USA sind, die die Flüchtlingsströme verursacht haben. Die Trans atlantiker haben hier ganze Arbeit geleistet.
+
+
+**Ist der versiegende Flüchtlingsstrom schon politisches Kalkül?**
+Bereits seit einigen Wochen hat Mazedonien seine Verfahren an der griechischen Grenze umgestellt. Flüchtlinge
+werden nur noch selektiv durchgelassen, die anderen zurückgeschickt nach Griechenland. Ich erachte auch
+einen hohen und gesicherten Stacheldrahtzaun als Gewaltanwendung im weiteren Sinn. Wo blieb der Aufschrei?
+Oder ist man im Kanzleramt heimlich erfreut, dass wenigstens ein Teil der Probleme so von deutschen Grenzen
+
+
+-----
+
+ferngehalten wird, ohne dass man sich die Hände schmutzig machen muss? Gleichzeitig wird aber Griechenland
+jede Hilfe verweigert, mit den durch die mazedonische Grenzsicherung verschärften Problemen fertig zu
+werden. Was für eine heuchlerische Haltung nach dem St.-Floriansprinzip: «… verschon’ mein Haus, zünd
+and’re an.»
+Wenn die griechisch-türkische Grenze durch den NATO-Einsatz undurchlässig gemacht wird, ist davon auszugehen, dass der Flüchtlingsstrom nach Europa nahezu versiegen wird. Offensichtlich geht man im Kanzleramt
+auch von diesem Kalkül aus. Wie ich aus informierten Kreisen erfahren habe, werden bereits durchgeplante
+Sofortmassnahmen für den Bau von Flüchtlingsunterkünften inzwischen gezielt verzögert. So wurde der
+eigentlich bereits baureif geplante Bau einer Containersiedlung gestoppt, weil jetzt plötzlich die Zeit vorhanden
+sein soll, das Vorhaben erst einmal europäisch auszuschreiben. Damit, das ist klar, wird die Durchführung auf
+den Sankt Nimmerleinstag verschoben. Ist hier die Überlegung massgeblich, dass der Flüchtlingsstrom an der
+türkischen Grenze zum Versiegen gebracht wird und man dann diese Unterkünfte nicht mehr braucht?
+
+**Die heimliche Kehrtwende der Kanzlerin**
+Ich empfinde es als eine ungeheuerliche Heuchelei, erst alle als Nazis zu verdammen, die die Sicherung von
+Grenzen thematisiert haben, um dann unter dem Mäntelchen der NATO genau das zu tun – die Androhung
+und notfalls auch die Anwendung von Gewalt billigend in Kauf nehmend. Frau Merkel handelt hier unglaublich
+geschickt, aber widerlich heuchlerisch. Eine direkte Abkehr von ihrer Willkommenspolitik würde ihren Rücktritt unausweichlich machen. Also bleiben ihre öffentlichen Äusserungen auf der alten Linie, insgeheim hat sie
+aber die grosse Kehrtwende schon vollzogen. Allerdings täuscht sie die Öffentlichkeit, indem sie ihr ‹freund liches Gesicht› weiterhin zur Schau trägt, tatsächlich aber anderen die ‹hässliche Fratze› aufbürdet, die jetzt die
+Probleme regeln sollen – der NATO.
+Ich bezweifle, ob Frau Merkel ihre heimliche Kehrtwendung vollzogen hätte, wenn der Termin für drei Landtagswahlen am 13. März nicht unaufhaltsam näher rückte. Der Zeitpunkt für den Auftrag an die NATO ist geschickt
+gewählt. Durch die Sicherung der griechischen Grenze wird der Flüchtlingsstrom binnen eines Monats drastisch
+zurückgehen und man wird sagen können: Seht her, wir haben alles im Griff und selbstverständlich alles richtig
+gemacht. Dass das aber nur geschehen ist, weil die mehrheitliche Meinung das unumgänglich gemacht hat und
+zu viele Abgeordnetenpositionen – und mit ihnen Macht und Geld – in Verlustgefahr sind, wird geleugnet. Das
+Kanzleramt will Kontinuität demonstrieren, hat aber seine ursprüngliche Position ins Gegenteil verkehrt. Das
+ist nicht nur heuchlerisch feige, vielmehr wird der Wähler bewusst getäuscht. Das gilt auch in Bezug auf die
+Haltung gegenüber Russland.
+
+**Höchste Zeit für ein ehrliches Signal**
+Der ehemalige Generalinspekteur der Bundeswehr Kujat hat hierzu ein klares Wort gesprochen, indem er sinngemäss sagte: «Der zaghafte Anlauf zu einer Friedenslösung in Syrien war nur möglich durch die Intervention
+Russlands.» So seine Meinung, und wer nicht völlig in Amerikahörigkeit und Russenhass verfangen ist, kann
+dem nur zustimmen. Nicht so Frau Merkel, die wiederum in Verkennung der Realität weiterhin auf Russland
+einprügelt und Moskau die Schuld für neuerliche Flüchtlinge zuweist. Dass das Gegenteil die Wahrheit ist, kann
+oder will sie nicht zugeben. Nach den auf der Münchner Konferenz getroffenen Vereinbarungen, besteht erstmals
+seit fünf Jahren wenigstens ein Hoffnungsschimmer, das Morden in Syrien zu beenden.
+Tatsache ist, dass bereits seit einiger Zeit Flüchtlinge in die mit russischer Hilfe von islamistischem Terror befreiten
+Gebiete zurückkehren. Die Menschen dort müssten jetzt von uns grösste Hilfe erhalten, damit sie ihre zerstörte
+Heimat wieder bewohnbar machen können. Es müssten Schiffe mit Hilfsgütern, Baustahl und Zement auf den
+Weg nach Syrien gebracht werden, damit Flüchtlinge überhaupt zurückkehren können/wollen. Aber solange
+unsere Kanzlerin der Vorgabe aus Washington – Assad muss weg! – weiter treue Dienste leistet, wird sie diese
+Hilfe genauso verweigern, wie sie den einzigen gewaltlosen Weg verweigert, Flüchtlinge vom gefährlichen Weg
+nach Europa abzuhalten: Das einfache Wort, bitte wenigstens für eine gewisse Zeit von einer Wanderung nach
+Deutschland abzusehen, weil wir es gerade nicht mehr schaffen. Das wäre ehrlich und keine feige Heuchelei.
+
+_RT Deutsch bemüht sich um ein breites Meinungsspektrum. Gastbeiträge und Meinungsartikel müssen nicht die Sichtweise der_
+_Redaktion widerspiegeln._
+_Quelle: https://deutsch.rt.com/meinung/36818-schiessbefehl-outsourcen-merkels-heuchlerische-fluchtlingspolitik/_
+
+
+-----
+
+#### UN-Sonderberater und Ökonom Jeffrey Sachs: «Hillary Clinton ist eine Gefahr für den Weltfrieden»
+_22.02.2016 • 13:24 Uhr_
+
+_Quelle: Reuters_
+_Jeffrey Sachs und UN-Generalsekretär Kofi Annan (rechts) im UN-Hauptquartier in New York, Januar 2005._
+
+
+In einem aktuellen Beitrag in der Huffington Post greift Jeffrey Sachs die amerikanische Präsidentschaftskandidatin Hillary Clinton wegen ihrer Rolle im Syrien-Konflikt scharf an. Der US-amerikanische Ökonom und
+UN-Sonderberater zeichnet nach, warum Clinton als Aussenministerin systematisch einen Regime-Change in
+Syrien vorantrieb, der schliesslich in das aktuelle Blutbad führte. Seine Bilanz: «Hillary Clinton ist eine Gefahr
+für den Weltfrieden.»
+Der ehemalige IWF-Berater Jeffrey Sachs kennt die Aussenpolitik seines Landes wie kaum ein anderer. In den
+1990er Jahren beteiligte er sich massgeblich daran, im Auftrag des IWF die wirtschaftlichen Strukturen in Russ land und Jugoslawien zu zerstören. Spätestens jedoch seit der Schuldenkrise in Griechenland tritt der HarvardProfessor als Kritiker seiner vormals selbst praktizierten neoliberalen Rezepte auf. Und er kritisiert immer
+wieder die US-amerikanische Aussenpolitik, besonders die Politik des Regime-Change in Syrien.
+Dieses Thema bietet auch den Anlass für seine aktuelle Wortmeldung. In der Debatte zwischen den US-amerikanischen Kandidaten für die Präsidentschaft in Milwaukee behauptete Hillary Clinton, sie habe einen Beitrag
+für eine Waffenruhe im Syrienkrieg geleistet. «Sie wissen, der Sicherheitsrat verabschiedete eine Resolution. Im
+Kern ist dies eine Vereinbarung, die ich im Juni 2012 in Genf ausgehandelt habe», behauptete die ehemalige
+Aussenministerin.
+Für Jeffrey Sachs handelt es sich dabei um eine Lüge: «Es ist diese Art von zwanghaften Falschdarstellungen, die
+Clinton ungeeignet macht für das Präsidentenamt.» Clintons Rolle in Syrien, so Jeffrey Sachs, habe darin bestanden, den Konflikt erst anzustiften und ‹das syrische Blutbad› dann zu verlängern.
+Im Jahr 2012 sei Hillary Clinton das zentrale Hindernis gewesen, als es darum ging, eine Lösung zu finden,
+erinnert sich Sachs. Er arbeitete damals als Berater für die Vereinten Nationen. Damals versuchte Kofi Annan
+eine Waffenruhe auszuhandeln. Laut Jeffrey Sachs war es die Unnachgiebigkeit der USA, konkret: Clintons Unnachgiebigkeit, die zum Scheitern von Annans Friedensbemühungen führte. Dieser Punkt sei unter Diplomaten
+allgemein bekannt.
+Im Gegensatz dazu, was Hillary Clinton heute behauptet, gab es im Jahr 2012 keine Waffenruhe, sondern nur
+ein ‹eskalierendes Blutbad›. Die Bewertung von Jeffrey Sachs lautet: «Clinton trägt eine grosse Verantwortung
+für dieses Blutbad, das mittlerweile mehr als zehn Millionen Syrer vertrieben und mehr als 250000 Tote
+hinterlassen hat.»
+
+
+-----
+
+Um seine Anschuldigung zu untermauern, ruft der ehemalige UN-Berater noch einmal die Hintergründe des
+Konfliktes in Erinnerung. „«Jeder versteht, dass es im Syrienkrieg nicht hauptsächlich um Baschar al-Assad,
+oder auch nur um Syrien selbst geht. Es ist vor allem ein Stellvertreterkrieg gegen den Iran.» Saudi-Arabien und
+die Türkei, die führenden sunnitischen Mächte im Nahen Osten, sehen Iran, die führende schiitische Macht, als
+regionalen Rivalen um Macht und Einfluss.
+So habe Hillary Clinton noch im Jahr 2010 zusammen mit Saudi-Arabien, der Türkei und ‹rechtsgerichteten
+Israelis› versucht, die syrische Regierung aus dem ‹schiitischen Block› herauszulösen. Im Jahr 2010 unterstützte
+sie geheime Verhandlungen zwischen Israel und Syrien, um das Land dem Einfluss des Iran zu entreissen. Als
+diese Gespräche scheiterten, verlegten sich die CIA und Hillary Clinton auf den Plan B, Präsident Assad zu
+stürzen.
+Die CIA und das anti-iranische Bündnis sahen in den Unruhen des Arabischen Frühlings vor allem die Chance,
+Assad schnell zu stürzen und damit einen geopolitischen Sieg einzufahren. Deshalb, erinnert sich Jeffrey Sachs,
+wurde Clinton zur führenden Verfechterin bei den Bemühungen der CIA, einen Regimewechsel in Syrien herbeizuführen.
+«Anfang 2011 nutzten die Türkei und Saudi-Arabien die lokalen Proteste gegen Assad, um zu versuchen, die
+Bedingungen für seinen Sturz zu schaffen. Ab Frühjahr 2011 bereiteten die CIA und die US-Verbündeten einen
+bewaffneten Aufstand gegen das Regime vor. Am 18. August 2011 hat die US-Regierung ihre Position öffentlich
+verkündet: ‹Assad muss gehen.›»
+Seitdem und bis hin zum jüngsten, zerbrechlichen Abkommen im UN-Sicherheitsrat, haben die USA sich
+geweigert, einer Waffenruhe zuzustimmen, es sei denn, Präsident Assad wird zunächst abgesetzt. Die offizielle
+Linie der US-Politik, auch unter Clinton, bestand darin, erst einen Regime-Change zu erreichen und dann erst
+einem Waffenstillstand zuzustimmen. «Schliesslich sind es nur Syrer, die sterben», kommentiert Sachs diese
+Haltung.
+Die Friedensbemühungen von Kofi Annan wurden von den Vereinigten Staaten mit ‹unbeugsamer Beharrlichkeit› hintertrieben, da einem Waffenstillstand ein von den USA angeführter Regimewechsel vorausgehen, oder
+er ihn zumindest begleiten sollte. Die Vereinten Nationen stellten im August 2012 fest:
+«Die US-Forderung, dass Assad zurücktreten muss und Sanktionen zu verhängen sind, bevor ernsthafte Verhandlungen begonnen werden können, führte, zusammen mit der Weigerung, den Iran in den Prozess einzubeziehen, zum Scheitern von [Annans] Mission.»
+Hillary Clinton ist in der syrischen Krise kein kleines Licht gewesen. Ihr Diplomat, der Botschafter in Libyen,
+Christopher Stevens, leitete eine CIA-Operation, um schwere Waffen aus Libyen nach Syrien zu schicken. Clinton selbst übernahm eine Hauptrolle dabei, die sogenannten ‹Freunde Syriens› zusammenzubringen, welche
+die von der CIA geführte Aufstandsbewegung unterstützen.
+«Die US-Politik war ein einziges massives, schreckliches Versagen», bilanziert Jeffrey Sachs aus heutiger Sicht.
+Präsident Assad trat nicht zurück. Stattdessen schickte die Russische Föderation militärische Unterstützung,
+ebenso wie der Iran. Die Söldner, die der Westen in das Land schickte, um die Regierung zu stürzen, waren
+radikale Dschihadisten mit ihrer eigenen Agenda. Das Chaos machte den Weg frei für den ‹Islamischen Staat›
+(Anm. Islamistischer Staat). Dessen Aktivisten rekrutierten sich aus unzufriedenen irakischen Offizieren, die
+im Jahr 2003 von den USA abgesetzt worden waren. Sie bekamen von den USA die Waffen und erhebliche
+Unterstützung aus saudischen Geldmitteln.
+«Wenn die Wahrheit darüber vollständig bekannt wäre, würde das sicher den Watergate-Skandal in den Schatten
+stellen, was die Auswirkungen auf die Grundlagen des US-Establishments betrifft.»
+«Die Hybris der Vereinigten Staaten scheint bei dieser Politik keine Grenzen zu kennen», fürchtet der Harvard
+Ökonom. Er geht davon aus, dass das Mittel eines «von der CIA ausgeführten Regimewechsels» so fest als
+normales Instrument der US-Aussenpolitik etabliert ist, dass es von der US-Öffentlichkeit oder den Medien
+kaum noch wahrgenommen wird. Andere Regierungen zu stürzen widerspricht zwar der UN-Charta und dem
+Völkerrecht. «Aber was sollen solche Feinheiten unter Freunden?“», beschreibt Sachs die in den USA verbreitete
+Haltung gegenüber einem Bruch des Völkerrechts.
+Jeffrey Sachs erinnert in seinem Beitrag noch einmal daran, dass der Staatsstreich in allen Fällen mit einem
+Bürgerkrieg endete, also, was die US-Ziele betrifft, langfristig sogar ein gescheitertes Instrument ist. Von einem
+zukünftigen Präsidenten, argumentiert Sachs, verlangt es viel Führungskraft, die CIA daran zu hindern, politische Katastrophen herbeizuführen. Normalerweise versuchen die Präsidenten, ‹Missgeschicken zu entgehen›,
+indem sie mit den privaten ‹Auftragnehmern›, den Generälen und den CIA-Agenten Händchen halten. Dadurch
+schützen sie sich vor politischen Angriffen aus dem Lager der rechten Hardliner.
+
+
+-----
+
+Hillary Clinton, glaubt Sachs, hat noch nie ‹ein Jota Tapferkeit› bewiesen. Sie hat sich als ‹unnachgiebiger Fan
+der CIA› erwiesen und wirkliche Zähigkeit nur darin gezeigt, jede noch so fehlgeleitete Operationen zu bejubeln.
+«Hillary Clinton ist eine Gefahr für den Weltfrieden», schliesst Sachs und fordert abschliessend: «Sie hat in Bezug auf die Katastrophe in Syrien viele Fragen zu beantworten.»
+
+_Quelle: https://deutsch.rt.com/international/36902-jeffrey-sachs-hillary-clinton/_
+
+#### Was in Syrien wirklich abgeht
+_Dienstag, 23. Februar 2016, von Freeman um 18:00_
+Die Situation in Syrien ist sehr dynamisch, verändert sich dauernd und ist undurchsichtig, deshalb will ich hiermit etwas Klarheit in die Diskussion bringen. Zur Verwirrung tragen natürlich die Westmedien bei, die völlig
+einseitig, falsch oder gar nicht über die Geschehnisse berichten. Am Montag haben Washington und Moskau
+verkündet, dass sie sich auf ein ‹Ende der Feindseligkeiten› in Syrien geeinigt haben, das ab Samstag den 27.
+Februar in Kraft treten soll. Ausgenommen von der Feuerpause sind Angriffe auf die Kampfeinheiten, die von
+der UN offiziell als Terrorgruppen gelistet sind, wie die ISIS und al-Nusra. Das Interessante dabei ist – und jetzt
+haltet Euch fest –, das US-Regime hat Russland gebeten, die al-Nusra trotzdem nicht zu bombardieren, also die
+syrischen Version der Al-Kaida. Warum? Weil sie ein Alliierter von Washington ist. Einen besseren Beweis für
+die Unterstützung der radikal islamischen Terroristen in Syrien durch die Amerikaner gibt es nicht, was ich seit
+Anfang des Umsturzversuchs vor fünf Jahren gesagt habe. Damit wird die Natur dieses Konflikts völlig offengelegt, wer wirklich hinter dem Terror steckt und für die Flüchtlingskrise verantwortlich ist.
+
+Der Grund warum die westlichen Kriegstreiber jetzt plötzlich auf einen quasi Waffenstillstand einlenken ist,
+weil die syrische Armee mit Hilfe der iranischen Militärberater, der Kämpfer der Hezbollah, und am meisten,
+wegen der Militärhilfe aus der Luft durch Russland, auf breiter Front am Siegen sind und die Terroristen zurückdrängen und zur Flucht zwingen. Die Anti-Assad-Koalition verliert in Syrien und will vor einer endgültigen
+Niederlage noch das verbleibende eroberte Gebiet retten. Ihr ursprüngliches Ziel, Präsident Assad zu stürzen
+und in Damaskus einen Regimewechsel herbeizuführen, ist ihnen trotz massiver Intervention nicht gelungen
+und wird ihnen auch nicht gelingen. Jetzt wollen sie auf einmal ‹verhandeln›.
+Meiner Meinung nach kann man aber mit den Kopfabschneidern nicht verhandeln. Das ist völlig absurd.
+Genauso wie es absurd ist, einen tollwütigen Hund zähmen und in einen Schosshund verwandeln zu wollen.
+So eine Bestie kann man nur erschiessen. Deshalb ist die einzige realistische Lösung, um die ISIS loszuwerden,
+die militärische Lösung, leider. Es gibt nur eine Möglichkeit, wirklichen Frieden in Syrien zu bewirken, nämlich,
+die Terroristen endgültig zu vernichten und aus dem Land zu treiben. Deshalb ist ISIS von der Feuerpause
+ausgenommen.
+
+
+-----
+
+Warum gehen die russische und auch die syrische Regierung auf diesen Waffenstillstand ein? Weil sie hoffen,
+dass gewisse ‹vernünftige› Kräfte in Washington endlich einsehen, so kann es nicht weitergehen, die Unterstützung der Terroristen muss aufhören, ihr Plan zur Destabilisierung von Syrien und überhaupt des Mittleren
+Osten ist gescheitert. Möglicherweise muss im Herbst erst ein neuer Präsident ins Weisse Haus einziehen – wie
+Trump oder Sanders, sicher nicht Hillary –, damit diese Einsicht auch umgesetzt wird.
+Im Moment sieht es danach aus, dass die Kräfte der Zurückhaltung in Washington stark genug sind, um die
+Türkei und Saudi Arabien davon abzuhalten, in Syrien mit eigenen Soldaten einzumarschieren, was sie angekündigt haben. Das wäre nämlich die absolute Katastrophe. Denn es wäre die direkte Konfrontation zwischen
+NATO und Russland, zwischen Iran und Saudi Arabien, und würde zu einem grossen Krieg bis hin zu einem
+Atomkrieg führen. Es gibt Leute, die das wollen, wie die Neocons, die um Obama herum sind.
+Bedenklich ist die Situation von Erdogan, der seine ganze Karriere mit seiner Syrien-Politik aufs Spiel gesetzt
+hat, die aber völlig gescheitert ist. Das gleiche trifft auf das saudische Regime zu, das sich ebenfalls extrem weit
+aus dem Fenster gelehnt hat und immense Summen in den Sturz von Assad durch Terroristen investierte. Beide
+kriegerischen Regionalmächte verlieren völlig ihr Gesicht, sollte jetzt eine friedliche Lösung zustande kommen.
+So irrational wie sich Erdogan bisher benommen hat, würde er eher einen Krieg mit Syrien anfangen, als einer
+Verhandlungslösung zustimmen, mit Assad als Partner.
+Die Situation, in der sich der Westen in Syrien befindet, ist völlig verworren und widersprüchlich. Da gibt es das
+NATO-Mitglied Türkei, das einen Alliierten der USA im Kampf gegen ISIS bombardiert und bekriegt. Nämlich
+die kurdische YPG. Ankara definiert die YPG als Terroristen und Washington sieht sie als Partner im Krieg gegen
+den Terror. Das heisst, der Westen bekämpft sich gegenseitig und selbst. Kein Wunder schüttelt Moskau den
+Kopf und fragt sich, was das soll.
+Schauen wir uns an, was die Russen machen und was die Amerikaner machen. Russland unterstützt die legitime
+Regierung von Syrien und ihre Armee, die ihr Land von den ausländischen Terroristen befreien wollen. Die
+Amerikaner aber unterstützen einen verworrenen Haufen von bewaffneten Gruppen, die sich gegenseitig hassen
+und bekämpfen, die aber die syrische Regierung beseitigen sollen. Was die Russen machen, ist vom internationalen
+Recht gedeckt und gradlinig. Was Amerika macht, ist staatlicher Terror und ein eklatanter Rechtsbruch.
+Auch innerhalb der Türkei gibt es grosse Widersprüche und Differenzen. Da gibt es einerseits die Grossmannssucht von Erdogan, die Türkei in ein neues Osmanisches Reich zu verwandeln und mit Waffengewalt territorial
+zu vergrössern. Andrerseits das türkische Militär und die politischen Kräfte der Opposition, die Zurückhaltung
+üben und keine militärische Abenteuer mit einer Invasion Syriens eingehen wollen. Ich hoffe, dass die Vernunft
+in der Türkei die Oberhand gewinnt und Erdogan zurückgehalten wird.
+Diese Differenz kam deutlich zum Ausdruck, als der Stabschef der türkischen Militärs sagte, ohne eine Resolution
+des UN-Sicherheitsrats, werde die türkische Armee NICHT in Syrien einmarschieren. Stand am 10. Februar auf
+der Frontseite der ‹Hurriyet›. Das ist eine klare Ansage an Erdogan; wenn er den Befehl geben sollte, dann wird
+er nicht ausgeführt. Die Türkei ist schon lange genug in einen blutigen Krieg mit den einheimischen Kurden
+involviert, der die Ressourcen stark strapaziert und das Land entzweit.
+Die Aussage von Erdogan, die Türkei habe das Recht Antiterroroperationen in Syrien oder «auf jedem anderen
+Boden» durchzuführen, ist gelinde gesagt völlig verantwortungslos. Übersetzt heisst das, er will nicht nur die
+Souveränität von Syrien verletzen, sondern in jedes Land einfallen, in dem er Terroristen vermutet. In Deutschland gibt es viele Kurden und darunter Anhänger der PKK. Will er auch dort seine Bomben abwerfen?
+Dabei hat sich der Grund für die oben genannte Aussage von Erdogan als völlig falsch erwiesen, nämlich die
+Herkunft des Attentäters, der für den Bombenanschlag in Ankara vom vergangenen Mittwoch verantwortlich
+gemacht wird, wodurch 29 Menschen getötet wurden. Der türkische Premierminister Davutoglu schob die
+Schuld sofort auf die kurdische YPG in Syrien. Er sagte, der YPG-Kämpfer Salih Necar aus der syrischen Stadt
+Hasakah sei der Attentäter gewesen.
+Aber laut DNA-Analyse wurde der Täter in der Türkei geboren und nicht in Syrien. Am Dienstag haben türkische
+Sicherheitsexperten ausgesagt, dass DNA-Proben, die vom Anschlagsort entnommen wurden, aufzeigen, dass
+es Abdulbaki Sömer war, der in der osttürkischen Stadt Van geboren wurde. Die Freiheitsfalken Kurdistans
+(TAK), eine kurdische Terrororganisation in der Türkei, haben auf ihrer Webseite auch die Verantwortung für
+den Anschlag übernommen.
+Laut der staatlichen türkischen Nachrichtenagentur Anadolu, hat die Staatsanwaltschaft die DNA-Analyse und
+Täterschaft von Abdulbaki Sömer mittlerweile bestätigt. Es handelt sich also um eine Auseinandersetzung
+innerhalb der Türkei, und Syrien hat damit gar nichts zu tun. Erdogans Begründung, wegen dem Anschlag in
+Syrien ‹Antiterroroperationen› gegen die YPG durchführen zu wollen, ist haltlos und unberechtigt.
+
+
+-----
+
+Der Anführer der YPG hat heftig bestritten, mit dem Bombenanschlag in Ankara etwas zu tun zu haben, und
+er sagte, die türkische Regierung benutze diesen nur als Vorwand, um die Angriffe in Syrien gegen die YPG zu
+steigern. Erdogan hätte das Attentat noch so gerne der YPG in die Schuhe schieben und als vorgespiegelten
+Grund für eine Invasion Syriens verwenden wollen.
+Mit der zwischen Moskau und Washington vereinbarten Feuerpause werden diese abenteuerlichen Gelüste hoffentlich gestoppt. Mal sehen ob die Vereinbarung auch von allen Parteien eingehalten wird, die ab kommendem
+Samstag 0.00 Uhr gelten soll. Als völlige Überraschung für den Westen hat die ‹ach so böse und undemokratische›
+syrische Regierung dem Waffenstillstand zugestimmt und Parlamentswahlen für den 13. April ausgerufen.
+Dann kann das syrische Volk entscheiden, wer es wirklich vertreten soll.
+Das Dilemma, in dem sich Washington befindet, Friedens-Kriegs-Nobelpreisträger Obama begann seine Präsi dentschaft mit dem aussenpolitischen Ziel, Assad zu entfernen und ihn verschwinden zu lassen, so wie mit
+Saddam Hussein und Muammar Gaddafi geschehen. Jetzt sieht es aber so aus, dass Obama das Weisse Haus
+Ende Jahr verlassen und Baschar Hafiz al-Assad immer noch Präsident Syriens sein wird. Was für eine Ironie!
+
+
+_Quelle: http://alles-schallundrauch.blogspot.de/2016/02/was-in-syrien-wirklich-abgeht.html_
+
+_12:37 25.02.2016(aktualisiert 13:43 25.02.2016)_
+
+
+###### Laut Angaben der Bundesregierung werden 3,6 Millionen Flüchtlinge bis 2020 erwartet, der Haushalt wird schnell überfordert. Nach Ansicht des Wiener Wissenschaftlers Kunibert Raffer hat in erster Linie die Einladung von Bundeskanzlerin Angela Merkel das Problem der Massenimmigration verursacht.
+«Ich glaube, am vernünftigsten wäre es gewesen, die Genfer Flüchtlingskonvention von Haus aus strikt anzuwenden und nicht über längere Zeit in Österreich und in Deutschland durch die Einladung von Frau Merkel
+einfach jeden durchzulassen», sagt Kunibert Raffer, Professor am Institut für Volkswirtschaftslehre der Universität Wien, gegenüber Sputniknews. Damit seien viele nicht subsidiäre Schutzbedürftige gekommen, was zur
+Überlastung geführt habe. «Wären in Österreich nur Flüchtlinge nach der Genfer Konvention angekommen
+oder tatsächlich subsidiäre Schutzbedürftige, dann gäbe es das Problem der Massenimmigration überhaupt
+nicht», so Raffer.
+Man müsse, so der Professor weiter, Leute a priori zurückweisen, die die Qualitäten eines Asylbewerbers nicht
+erfüllen. «Ich glaube nicht, dass eine EU-Vereinbarung möglich ist. Man muss auch die Position der osteuro päischen Länder verstehen, die im Hinblick darauf, dass manche Staaten Leute aufnehmen, die weder Flücht
+
+-----
+
+linge noch subsidiäre Schutzbedürftige sind, durchlassen, einen Teil davon nicht aufnehmen wollen», meint
+Raffer.
+Auf Österreichs Initiative fand am 24. Februar die sogenannte Westbalkankonferenz statt. Es wurde ein gemeinsames Massnahmenpaket vereinbart. Demnach sollen die Voraussetzungen für den Grenzübertritt in den
+Ländern abgestimmt werden und nur mehr ‹offenkundig schutzbedürftigen Personen› die Einreise erlaubt
+werden. Ziel sei es, die Migrationsströme zu stoppen, erklärte Innenministerin Johanna Mikl-Leitner (ÖVP).
+
+_Quelle: http://de.sputniknews.com/politik/20160225/308083189/fluechtlingskrise-merkel-einladung-massenimmigration.html_
+
+_17:10 25.02.2016(aktualisiert 17:17 25.02.2016)_
+
+###### Immer mehr Menschen zweifeln an dem Bild, das westliche Medien von der Welt zeichnen. Das Ergebnis ist eine zunehmende Unzufriedenheit. «In der Bevölkerung entsteht der Eindruck, dass es nur noch eine Meinung gibt», sagt Willy Wimmer, ehemaliger Vizepräsident der OSZE. Er beklagt eine ‹dunkle Periode in der deutschen Presselandschaft›.
+
+**Herr Wimmer, sie beklagen aktuell einen Verlust von Pluralität in der westlichen Presse. Woran machen Sie**
+**das fest?**
+Unter Pluralismus muss man ja verstehen, dass die Meinungsvielfalt in einem Land, auch über die Medien zum
+Ausdruck gebracht wird. Und seit dem völkerrechtswidrigen Krieg gegen Jugoslawien sind die westlichen Printmedien und öffentlich-rechtlichen Rundfunk- und Fernsehanstalten zu einem reinen Instrument der Kriegsförderung degeneriert. Man muss ja nur einmal an CNN und die BBC in diesem Zusammenhang erinnern. So
+wird die Meinungsvielfalt, die es ja früher gegeben hat, jetzt völlig ausgeblendet und in der Bevölkerung entsteht
+der Eindruck, dass es nur noch eine Meinung gibt. Und das ist für unser Land tödlich.
+
+**Hat Pluralität für Sie denn grundsätzlich auch etwas mit Pressefreiheit zu tun, oder sind das zwei verschiedene**
+**Paar Schuhe?**
+Nein, nach meinem Verständnis ist Pluralität ein Grundpfeiler der Pressefreiheit — und übrigens auch des
+demokratischen Staates ganz generell. Und wir sehen ja, wie sich das auswirkt, wenn wir einmal westliche Medien
+im Zusammenhang mit den heutigen russischen Medien vergleichen. Ich kann mir da ein Urteil erlauben, weil
+ich vielfach Gespräche auch mit russischen Medien geführt habe. Dort kann man Gedanken entwickeln, wenn
+man mit russischen Medien spricht. In westlichen Medien legen die Redaktionen dagegen vorher die Linie fest
+
+
+-----
+
+und sie suchen dann im politischen und gesellschaftlichen Bereich Personen, die dieser Meinung entsprechen.
+Die dürfen dann für 20 Sekunden ihr Gesicht, oder ihre Stimme hergeben, und das ist dann eine Sendung. Das
+ist ja das merkwürdige an der heutigen Entwicklung: Wir haben es bei den russischen Medien eigentlich mit
+den klassischen Medien zu tun, wie wir sie früher aus dem Westen kannten, wo Pressefreiheit garantiert war.
+Und bei dem, was wir im Westen derzeit sehen, haben wir Mechanismen, die uns an die alte Sowjetunion er innern. Wir leben also in einer völlig verqueren Welt.
+
+**Sie haben mit Blick auf Pluralität auch speziell die Deutsche Welle ins Auge gefasst, können Sie das näher**
+**ausführen?**
+Ja, das muss man ja mit aller Deutlichkeit sagen: Wenn sich der Chefredakteur der Deutschen Welle vor einigen
+Jahren damit brüstete, Kooperationsverträge nur mit russischen Oppositionsmedien abgeschlossen zu haben,
+dann kann ich nur fragen, wie verkommen muss man eigentlich bei der Medienzusammenarbeit sein? Es
+kommt doch in meinem Verständnis darauf an, dass man nicht nur mit einem Medium zusammenarbeitet, nur
+weil es gegen die derzeitige politische Führung in Moskau eingestellt ist.
+
+**Nehmen wir mal ein konkretes Beispiel: Die Flüchtlingskrise in der EU. Wie bewerten Sie hier die Arbeit der**
+**westlichen Medien?**
+Das muss man wirklich beklagen. Die Bundesregierung, die ohne Erklärung eine bestimmte Politik durchführt,
+kann sicher sein, dass die Merkel-Schwadronen so sehr trommeln, dass jeder Andersdenkende eingeschüchtert
+wird. Sowas haben wir in diesem Land seit Erich Honecker und seit 1933 nicht erlebt. Wir gehen durch eine
+ganz dunkle Periode der deutschen Presselandschaft, wenn wir uns die derzeitige Politik in diesem Zusammenhang ansehen.
+
+**Immer wieder ein Dorn im Auge von westlichen Regierungen, wie anscheinend auch der Bundesregierung,**
+**scheint die russische Berichterstattung zu sein. Auch Sputnik oder RT werden in diesem Zusammenhang hier-**
+**zulande immer wieder genannt. Warum glauben Sie, gibt es diese Vorbehalte?**
+Die russischen Medien tragen dazu bei, Pressefreiheit im Westen Europas überhaupt wieder herstellen zu
+können. Wenn wir die russischen Medien nicht bei uns hätten, dann würden wir ja ununterbrochen unter diesen
+kriegstrommelnden Medien des Westens leiden und von einem Konflikt in den anderen getrieben werden. Und
+man muss ja fast an Lenin denken, der mal diesen berühmten Satz geprägt hat, dass die Leute mit den Füssen
+abstimmen können. Hier ist es doch genauso. Wenn ich für RT, etc. 700 Millionen Zuschauer weltweit habe,
+oder 3 Milliarden Klicks im Zusammenhang mit deren YouTube-Auftritten, dann kann ich doch nur sagen:
+Warum sollen denn Millionen Menschen irren? Da ist ja der WDR – den ich ansonsten manchmal schätze –
+nur noch ein Vorort-Sender. Und hier kommt etwas hoch, was man natürlich sehen muss: Die sind neidisch,
+total neidisch. Wenn die Auflagen in den westlichen Zeitungen so zurückgehen, wie es zurzeit der Fall ist, dann
+sieht man dort natürlich mit Schrecken, wenn die Leute zu den Medien wechseln, die ein anderes Bild darstellen.
+Das heisst, hier ist Konkurrenzneid Massstab für die Presselandschaft. Und diese Medien kooperieren natürlich
+mit den Politikern, die sich ebenfalls darüber beklagen, dass ihnen die Menschen abwandern.
+
+**Nun gilt in Deutschland schnell als ‹Verschwörungstheoretiker›, oder ‹Brandstifter›, wer vom Mainstream**
+**abweichende Meinungen formuliert. Auch Ihnen hat man dies schon vorgeworfen. Was entgegnen Sie diesen**
+**Stimmen?**
+Wenn man die Leute mundtot machen möchte, dann nimmt man Abschied von einem normalen, demokratischen Diskurs. Man muss seine Meinung sagen können und sich so gemeinsam bemühen, zu einer besseren
+Politik zu kommen. Das wird aber spätestens seit dem Krieg gegen Jugoslawien in der Bundesrepublik Deutschland an die Wand gespielt. Und das geht ja sogar so weit, dass anders Denkende sich weigern, öffentlich ihre
+Meinung zu sagen. In meinem Verständnis ist unser Land in der demokratischen Struktur sowas von ver kommen, dass einem nur noch schlecht werden kann. Und das Schlimme für mich ist: Das ist ja schon wieder
+damit verbunden, dass das alles aus Berlin gesteuert wird. In der alten Bundesrepublik hätte man über so etwas
+gar nicht reden müssen, weil es so etwas gar nicht gegeben hat. Wir schauen nach Berlin und sehen, dass wild
+gewordene Professoren eine Bundesregierung stützen, die dann auch noch von Hegemonie in Europa träumt.
+Es wird Zeit, in diesem Land mit so etwas aufzuräumen.
+
+
+-----
+
+-----
+

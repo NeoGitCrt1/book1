@@ -1,0 +1,1517 @@
+**L**
+
+**WESEN FREMDER WELTEN**
+
+# FIGU– BESUCHEN DIE ERDE
+
+**Freie**
+
+# ZEITZEICHEN Interessengemeinschaft
+
+**FIGU**
+
+## Aktuelles • Einsichten • Erkenntnisse r
+
+**Erscheinungsweise:** **Internetz: www.figu.org** **3. Jahrgang**
+**Sporadisch** **E-Brief: info@figu.org** **Nr. 74, Juli 2017**
+
+#### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+Laut ‹Allgemeine Erklärung der Menschenrechte› vom 10. Dezember 1948, Artikel 19, ‹Meinungs- und Informationsfreiheit›:
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die**
+**Freiheit, Meinungen unangefochten anzuhängen und Informationen und Ideen mit allen**
+**Verständigungsmitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Aussagen und Meinungen müssen nicht zwingend identisch sein mit Gedanken, Interessen, Lehre und Missionsgut der FIGU.
+
+### Umfrage: Glauben die Deutschen an Ausserirdische?
+_Fernando Calvo; Terra Mystica; Di, 27 Jun 2017 14:55 UTC_
+37,8 Prozent der Menschen in Deutschland denken, dass es extraterrestrische Intelligenzen gibt. Das ist das
+Ergebnis einer repräsentativen Umfrage, die ‹bild der wissenschaft› (bdw) beim Meinungsforschungsinstitut
+Emnid in Auftrag gegeben und in der Juni-Ausgabe publiziert hat. Von der Existenz der Fremden überzeugt
+sind besonders Männer, jüngere Menschen, Personen mit mittlerer und höherer Bildung, aus Grossstädten und
+im Südwesten der Republik. Einen Kontakt noch in diesem Jahrhundert erwarten vor allem Männer, Schüler
+und Mittdreissiger, Menschen mit höherem Bildungsabschluss und mittlerem Einkommen – sowie Berliner.
+Von der Existenz ausserirdischer Intelligenzen irgendwo im Universum überzeugt sind 37,8 Prozent der
+Deutschen. 54,7 Prozent denken hingegen, dass es nur auf der Erde intelligente Lebensformen gibt. 7,5 Prozent
+hatten keine Meinung oder wollten sie nicht sagen. Das ergab eine Emnid-Umfrage unter 1003 Personen.
+Viel mehr Männer als Frauen denken, dass extraterrestrische Intelligenzen existieren: 46,5 gegenüber 29,5 Prozent.
+Es gibt auch gravierende Unterschiede zwischen jüngeren und älteren Befragten: Während unter den 14- bis
+29-Jährigen 46,5 Prozent an Ausserirdische ‹glauben›, tun das nur etwas mehr als 30 Prozent über 50 Jahre.
+Besonders unschlüssig sind sich die 30- bis 39-Jährigen (14,3 Prozent), während nicht einmal 4 Prozent der
+jüngeren und der 50- bis 59-Jährigen mit ‹weiss nicht› antworteten oder keine Angaben machten.
+Fast 43 Prozent der ‹Ja-Sager› haben einen mittleren Bildungsabschluss, Abitur oder ein Studium – verglichen
+mit 27,4 Prozent der Volks- oder Hauptschulabgänger (36,5 Prozent der Befragten). Daher überrascht es nicht,
+dass Menschen mit höherem Einkommen eher an die Existenz Ausserirdischer glauben: Über 40 Prozent ab
+2000 Euro netto im Monat, unter den Spitzenverdienern mit mehr als 3500 Euro sogar fast 46 Prozent, unter
+den Geringverdienern mit weniger als 1000 Euro dagegen nicht einmal 27 Prozent.
+
+#### Jeder vierte Schüler glaubt an baldigen Erstkontakt
+‹bdw› wollte nicht nur wissen, wie viele Deutsche meinen, dass intelligente ausserirdische Lebensformen existieren, sondern auch, für wie wahrscheinlich sie es halten, dass noch in diesem Jahrhundert der Erstkontakt stattfindet. Hier überwiegt die Skepsis bei Weitem – auch unter jenen, die die erste Frage bejaht haben. Die ‹NeinSager› schliessen einen Kontakt logischerweise ohnehin von vornherein aus.
+Nur 1,5 Prozent der 1003 Befragten sind sich sicher, dass es bis zum Jahr 2100 zu einem Kontakt
+kommt (0,8 Prozent im Westen, 4,5 Prozent im Osten), und 11,3 Prozent halten es für wahrscheinlich (11,9 im Westen, 8,6 im Osten). 44,3 Prozent sehen es dagegen als unwahrscheinlich
+an. 39,6 Prozent meinen, dass es keinesfalls eine Kontaktaufnahme geben wird. 3,3 Prozent
+machten keine Angabe. Kurzum: Eine klare Mehrheit von 83,9 Prozent votiert für ‹unwahrscheinlich› und ‹keinesfalls›. Bei den Männern sind es 80,8, bei den Frauen 86,8 Prozent.
+
+
+**L**
+
+**WESEN FREMDER WELTEN**
+**BESUCHEN DIE ERDE**
+
+
+-----
+
+Früher meinten mehr Menschen, dass es ausserirdische Zivilisationen gibt. Vor gut 15 Jahren wollte ‹bild der
+wissenschaft› schon einmal wissen: «Glauben Sie, dass es ausserhalb der Erde noch weitere intelligente Lebewesen
+gibt?» Bei dieser ebenfalls von Emnid gemachten repräsentativen Umfrage antworteten 49,7 Prozent mit ‹ja›,
+also die Hälfte aller Befragten. 43,4 Prozent waren negativer Meinung, 6,9 Prozent machten keine Angabe.
+Auch in anderen Ländern gab es ähnliche Umfragen mit einer hohen Zahl von Befürwortern. 1997 war dem
+‹Time Magazine› zufolge ein Drittel der Menschen in den USA sogar davon überzeugt, Ausserirdische hätten
+bereits die Erde besucht. Ein Jahr später berichtete die Planetary Society, 60 Prozent der US-amerikanischen
+Bevölkerung meinten, dass fremde Zivilisationen existieren. Und eine repräsentative Online-Befragung des
+Meinungsforschungsinstituts YouGov in Deutschland, Grossbritannien und den USA ergab 2015, dass zu dieser
+Zeit jeweils mehr als die Hälfte der Befragten an die Existenz von intelligenten Lebensformen glaubte. Die
+Datenbasis war allerdings geringer.
+
+#### Kritischer und weniger religiös?
+Warum in den letzten Jahren die Einstellung gegenüber fremden Existenzen im All signifikant kritischer wurde,
+ist unklar – und lässt somit Raum für Spekulationen. Wahrscheinlich sind einige Menschen im Zeitalter der alternativen Fakten, Filterblasen, Fake News, Lügenpresse und wild grassierenden Verschwörungstheorien kritischer
+geworden. Denn die Frage nach Ausserirdischen – auch wenn das nicht gemeint war – mag bei manchem irrationale Vorstellungen von Unbekannten Flugobjekten und aberwitzigen Geheimhaltungen oder von esoterischen
+Geistwesen hervorrufen – ein Grund, die Existenz Ausserirdischer abzulehnen.
+_Quelle: Rüdiger Vaas für‹bild der wissenschaft›_
+
+**_Anmerkung:_**
+_Das Ergebnis dieser Umfrage ist doch ziemlich überraschend, denn jemand, der sich seit Jahrzehnten damit beschäftigt, kommt_
+_sicherlich zu einem genau gegensätzlichen Resultat. Die Erfahrung aus unzähligen Gesprächen und Diskussionen zeigen einem,_
+_dass es noch vor 20 Jahren nicht annähernd so viele Menschen gab, die eine Existenz intelligenter, ausserirdischer Lebensformen_
+_für wahrscheinlich hielten, wie heutzutage. Lediglich die Frage, ob ausserirdische Zivilisationen auch schon unsere Erde besucht_
+_haben, wird von den Deutschen nach wie vor als sehr unwahrscheinlich eingestuft._
+_Quelle: https://de.sott.net/article/29972-Umfrage-Glauben-die-Deutschen-an-AuSserirdische_
+
+### Beeindruckende Forschungsergebnisse: Wie Freundlichkeit Dein Gehirn verändert, sowie anderen und Dir selbst hilft
+_Tim; my Monk; Di, 28 Mär 2017 18:08 UTC_
+Muss man ein Arschloch sein, wenn man nicht ausgenutzt und abgehängt werden will? Manchmal scheint’s, als
+hätte sich die Welt darauf geeinigt. Aber: Die Welt hat Unrecht, wenn sie so denkt.
+Nett ist nicht die kleine Schwester von Scheisse. Sondern die grosse Schwester von Glück und Zufriedenheit.
+Nett zu sein verändert unser Gehirn, wie Studien zeigen. Es hilft auch dem Helfer. Besonders wirksam sind
+sogenannte Random Acts of Kindness, ‹zufällige Akte der Freundlichkeit›. Kleine gute Taten, oft an Wildfremde
+gerichtet. Ohne eine Gegenleistung zu erwarten. Zum Beispiel: Im Starbucks mal den 12-Euro-Kaffee des nächsten
+Kunden mitbezahlen. Einfach so. Oder beim Kinderwagen vor der Treppe anpacken (vorher vielleicht kurz fragen).
+Die Random Acts of Kindness Foundation hat beeindruckende Studienergebnisse zusammengetragen.
+
+#### Freundlichkeit füllt uns mit Energie und macht selbstbewusster
+In einer Studie an der Berkeley University berichtete der Grossteil der Teilnehmer, mehr Energie zu haben, nachdem sie einem anderen geholfen hatten. Sie fühlten sich optimistischer, stärker und selbstbewusster und verspürten deutlich mehr Gelassenheit.
+Freundliches Handeln lässt nämlich den Neurotransmitter Serotonin ausschütten und uns die Welt und uns
+selbst mit anderen Augen sehen. Dr. Sonja Lyubomirsky von der University of California hat über 20 Jahre lang
+zum Thema Glück geforscht. Sie sagt: «Wenn wir gut zu anderen Menschen sind, fühlen wir uns gut – als gute
+Menschen, optimistischer, positiver und moralischer.» Gutes zu tun verbessert unser Selbstbild, lässt es mehr
+strahlen.
+
+#### Freundlichkeit macht glücklich und reduziert Leiden
+Eine Harvard-Studie zeigte, dass Menschen, die Gutes tun – zum Beispiel Geld spendeten – glücklicher sind als
+andere.
+
+
+-----
+
+Und Forscher konnten noch viele weitere sehr positive Effekte nachweisen, wenn wir unsere Freundlichkeit bewusst kultivieren:
+– Weniger Schmerzen und Bluthochdruck
+– Weniger Ängste, Sorgen und Panikattacken
+– Weniger Depressionen
+So sollten zum Beispiel Menschen mit starken sozialen Ängsten in einem Experiment der University of British
+Columbia einmal täglich an sechs Tagen in der Woche eine Kleinigkeit für andere tun. Die Tür aufhalten, den
+Abwasch machen, obwohl ein anderer dran wäre, ein paar Euro spenden, das Essen eines Freundes bezahlen.
+Die Teilnehmer waren schon nach vier Wochen in drastisch positiver Stimmung und viel zufriedener mit ihren
+Beziehungen – und ihr soziales Vermeidungsverhalten baute sich ab.
+Neben Serotonin wird auch mehr vom Bindungshormon Oxytocin im Gehirn freigesetzt, das auch beim Kuscheln
+sowie nach dem Sex ausgeschüttet wird. Und das Stresshormon Cortisol verringert sich um 23 Prozent.
+Die Freundlichkeit ist also sehr freundlich zu uns. Je regelmässiger wir sie praktizieren, desto mehr baut sich
+unser Gehirn entsprechend um, der lebenslangen Veränderbarkeit der Nervenbahnen (Neuroplastizität) sei Dank.
+Jeder von uns kann Güte nachweislich wie einen Muskel trainieren.
+Die körperlichen und seelischen Auswirkungen verlängern sogar unser Leben. Christine Carter schreibt in
+ihrem Buch ‹Raising Hapiness›: «Menschen über 55, die sich freiwillig in Organisationen einbringen, haben eine
+um 44 Prozent verringerte Wahrscheinlichkeit, verfrüht zu sterben. Und zwar nachdem sämtliche anderen
+Faktoren, wie Gesundheit, Geschlecht, oder Gewohnheiten wie Rauchen, ausgeschlossen wurden. Dieser Effekt
+ist stärker, als viermal in der Woche Sport zu treiben.»
+
+#### Nebenbei: Freundlichkeit kann zur Kettenreaktion werden
+Freundlichkeit und gerade auch die ‹Random Acts of Kindness› können neben Deinem Gehirn auch die Welt
+verändern. Sie machen schliesslich nicht nur uns selbst glücklich, sondern auch die andere Person. Ihre Freude
+führt oft dazu, dass sie selbst freundlicher handelt. Aus einer einzigen guten Tat kann also eine weitere werden,
+und dann noch eine. Es ist, wie wenn wir einen kleinen Stein ins Wasser werfen … die Wellen breiten sich aus.
+Dr. David R Hamilton schreibt in seinem Buch ‹The Five Side Effects of Random Kindness› von einem besonders
+grossen ‹Act of Kindness›, an dem sich dieser Domino-Effekt zeigt. Ein 28-Jähriger ging in eine Klinik und spendete anonym eine Niere. Viele der Familienmitglieder des Mannes, der dank dieser Organspende überleben
+konnte, spendeten ebenfalls eine Niere – so konnten, wie es im ‹New England Journal of Medicine› dokumentiert
+ist, in kurzer Zeit zehn Patienten in ganz Amerika eine neue Niere erhalten. Alles die Folge dieses einen ersten
+Spenders.
+
+#### Ein paar Ideen
+Natürlich müssen wir nicht gleich eine Niere spenden oder ein Bein. Schon die kleinsten Dinge zählen. Etwa
+diese hier:
+– Ein ehrlich gemeintes Kompliment machen in einem Kommentar bei Facebook oder Instagram
+– Jemanden an der Supermarktkasse vorlassen
+– Die Tür aufhalten
+– Etwas Nettes über jemanden sagen, während alle anderen gerade über ihn lästern
+– Einem Obdachlosen etwas vom Einkauf abgeben
+– Einem alten Lehrer schreiben, der uns etwas Wertvolles mit auf den Weg gegeben hat
+– Ein besonders grosses Trinkgeld geben (vor allem, wenn der Kellner besonders nett war)
+– Jemandem Danke sagen, der das viel zu selten hört (Postbote, Müllmann, Polizist, …)
+– Jemanden anlächeln auf der Strasse
+– Jemandem ein Buch schenken, das ihm gefallen könnte
+– Die Oma oder den Opa anrufen (nicht nur: «Könnte ich echt mal wieder machen …»)
+– Mit dem Typen sprechen, der auf der Party allein in der Ecke rumsteht und sich an seinem Glas festhält
+(könnte ich sein!)
+– Einem anderen die Parklücke überlassen
+– Jemanden aufmuntern mit einem Witz (wie wär’s mit dem: «Was ist das Weisse in Vogelkacke? Auch Vogelkacke.»)
+– Dem Partner einen Kaffee ans Bett bringen
+– Jemandem anonym Blumen schicken
+– Ein wirklich offenes Ohr haben für einen anderen
+
+
+-----
+
+– Dem Partner einen Zettel schreiben mit allem, was man an ihm toll findet
+– Zwei Regenschirme mit ins Büro nehmen – und einen verleihen, wenn ein Kollege sonst ohne ins Unwetter
+müsste
+– Einen Sitzplatz freimachen für einen anderen (auch, wenn er noch nicht 100 ist – sondern z.B. ein Anfang30-jähriger Blogger)
+Ist also gar nicht so schwer … und macht das Leben leichter und schöner.
+_Quelle: https://de.sott.net/article/29103-Beeindruckende-Forschungsergebnisse-Wie-Freundlichkeit-Dein-Gehirn-verandert-_
+_sowie-anderen-und-dir-selbst-hilft_
+
+### Die Entkernung der Demokratie
+_Vera Lengsfeld; Veröffentlicht am 28. Juni 2017_
+Angela Merkel ist wieder einmal ein Befreiungsschlag gelungen und kaum einer hat’s gemerkt. Die immer mass loser werdende Arroganz der Macht der Allparteien-Koalition im Bundestag hat in den letzten zwei Sitzungswochen vor Ende der Legislaturperiode zu einer erheblichen Demontage des Grundgesetzes geführt und Weichen
+für einen totalen Überwachungsstaat gestellt.
+Die Implantation von Staatstrojanern wurde vom Bundestag durch die Hintertür beschlossen, für das Hacken
+von Computern durch Deutschlands Strafverfolgungsbehörden, für das Verwanzen von Smartphones, für das
+heimliche Mitlesen von WhatsApp-Nachrichten.
+Offiziell heisst es ‹Gesetz zur effektiveren und praxistauglicheren Ausgestaltung des Strafverfahrens›.
+Bemerkenswert ist, dass die Staatstrojaner nicht im Entwurf stehen, sondern lediglich in einem Änderungsantrag,
+den die Bundesregierung nachträglich als ‹Formulierungshilfe› eingebracht hat. Eine grössere, geschweige denn
+öffentliche Debatte kam deshalb praktisch nicht zustande. Selbst die Bundesdatenschutzbeauftragte erfuhr erst
+über die Berichterstattung von netzpolitik.org davon. Die Koalition hat den Änderungsantrag fast Wort für Wort
+übernommen. Diesmal stellten selbst Medien wie die ‹Zeit› die Frage, ob ein solches Verfahren denn noch verfassungsrechtlich sei.
+Ganz zu schweigen vom Netzwerkdurchsetzungsgesetz von Justizminister Maas, es sollte ehrlicherweise Netzwerksdurchsuchungsgesetz heissen, das am letzten Sitzungstag noch beschlossen werden soll, obwohl diesmal
+ausser zahlreichen Experten sogar der Wissenschaftliche Dienst des Bundestages und der UNO-Sonderbeauftragte für die Meinungsfreiheit, David Kaye, festgestellt haben, dass der Entwurf dem Grundgesetz, europäischem
+Recht und UN-Konventionen, die Deutschland ratifiziert hat, widersprechen.
+Die Fachpolitiker der Koalition haben verhandelt, um Schönheitsreparaturen am Entwurf vorzunehmen, die aus
+der gesetzgeberischen Missgeburt eine annehmbare Abstimmungsvorlage machen sollen. So sollen Beschwerden
+gegen sogenannte Hasspostings nach dem Prinzip der regulierten Selbstregulierung an Einrichtungen abgegeben
+werden, die nach dem Vorbild des Jugendmedienschutzes errichtet werden könnten. Dies sei ein wichtiger Beitrag zum Schutz vor Overblocking. Damit sei auch ausgeschlossen, dass die Rechtsdurchsetzung privatisiert
+wird. Das sind nur minimale Korrekturen, die das Gesetz keinesfalls verfassungskonform machen.
+Weniger beachtet wurde in der Öffentlichkeit eine Grundgesetzänderung zur Parteienfinanzierung, die sich angeblich nur gegen die NPD richtet, potentiell aber auf andere unbequeme politische Konkurrenz angewandt
+werden kann. Ausserdem wurde auf Druck ausgerechnet der Parteien, die in der Vergangenheit den Tierschutz
+ins Grundgesetz gehievt haben, wieder weitgehend unbeachtet bei Nacht und Nebel eine grundgesetzwidrige
+Aufweichung des Naturschutzgesetzes beschlossen. Die bisherigen Artenschutzregelungen wurden teilweise
+aufgehoben, ganz offensichtlich, um die Errichtung von Windkraftanlagen auch in Regionen zu ermöglichen,
+wo dies bisher tabu war.
+Wie sehr sich unsere Bundestagsabgeordneten damit selbst bedienen, ist nicht bekannt, weil es keine Unter suchungen gibt, wie viele als Windparkbetreiber von den Gesetzen, die sie zugunsten des ungebremsten Ausbaus
+der ‹Erneuerbaren Energien› beschliessen, profitieren.
+Insgesamt hat sich damit eine solche Häufung dubioser Vorgänge abgezeichnet, dass die Mainstream-Medien
+aus ihrer selbstgewählten Abstinenz von Regierungskritik aufzuwachen schienen und begannen, unangenehme
+Fragen zu stellen.
+Das ist mit einem Schlag vorbei, seit sich unsere Kanzlerin mit Hilfe eines Modemagazins als Hausfrau von
+nebenan inszenierte. Ausgerechnet im Berliner Maxim-Gorki-Theater, das in den vergangenen Jahren wegen
+dubioser Aktionen, wie der Schändung der Gedenkkreuze von DDR-Flüchtlingen und der tagelangen Quälerei
+
+
+-----
+
+von Tigern, die am Ende ‹Flüchtlinge fressen› sollten, sich hart am Rande der Gesetzlosigkeit bewegte, wählte
+Merkel als Ort, um wieder einmal eine ihrer berüchtigten Kehrtwendungen zu verkünden.
+Am Rand einer Talkshow, in der sie offenbarte, dass sie die Augen ihres Mannes besonders liebe, wenn Besuch
+kommt, die Gläser gegen das Licht hielte, um sie ihren Gästen nicht nur sauber, sondern rein zu präsentieren
+und nahelegte, dass sie ihre Wäsche immer noch selbst aufhängt, liess sie sich eine Frage nach der ‹Ehe für alle›
+stellen. Die ‹Ehe für alle› hatten ihre politischen Mitbewerber, die sich wie Merkel scheuen, die wahren Probleme
+unseres Landes anzusprechen, als letztes Unterscheidungsmerkmal zum Angebot der Union ausgemacht.
+Die Entscheidung über die ‹Ehe für alle› sei eine Gewissensfrage, liess die Kanzlerin wissen und hatte damit den
+anderen Parteien nicht nur das Thema weggenommen, sondern auch ein weiteres Mal demonstriert, dass sie
+sich um Parteitagsbeschlüsse der Partei, deren Vorsitzende sie ist, nicht schert.
+Die Kanzlerin hätte die Parlamentsabstimmung freigegeben, jubelten die entzückten Medien und demonstrierten
+damit ihre Unwissenheit. Laut Grundgesetz ist ein Abgeordneter frei und nur seinem Gewissen verpflichtet,
+nicht dem Diktum seiner Partei unterworfen. Das ist so sehr in Vergessenheit geraten, dass es selbst Parlamentarier nicht mehr zu wissen scheinen.
+Immerhin wurde auch kritisch berichtet. Merkel hätte die CDU endgültig entkernt. Dass sie gleichzeitig einen
+riesigen Schritt in Richtung Entkernung der Demokratie getan hat, wurde weitgehend nicht wahrgenommen.
+Da das Grundgesetz kaum noch jemand zu kennen scheint, wurde nicht moniert, dass wieder ein Artikel des
+Grundgesetzes berührt wird. Merkel hat bereits Art.16, (2) im Alleingang ausgehebelt und ausser ein paar Verfassungsrechtlern hat ihr niemand widersprochen, auch unsere Verfassungshüter nicht. Die demokratischen
+Institutionen unseres Landes befinden sich in Auflösung. Verfassungsbrüche werden kaum noch wahrgenommen und deshalb nicht diskutiert.
+Wir haben auch keine Wahl mehr. Indem sie die letzten Unterscheidungsmerkmale der Union zum rot-rotgrünen Block geschleift hat, ist den Wählern die Möglichkeit genommen, zwischen verschiedenen politischen
+Angeboten zu wählen. Er kann lediglich entscheiden, ob der politische Einheitsbrei, der von den Altparteien
+angeboten wird, etwas grüner, röter oder schwärzer sein soll. Wer sich von der FDP Erlösung aus diesem
+Dilemma erhofft, sollte einen Blick in das Wahlprogramm der Lindner-Partei werfen, das sich nur in Nuancen
+vom Einheitsangebot unterscheidet. Als Kämpferin für die Wiederherstellung der Rechtsstaatlichkeit hat sie sich
+weder in den vergangenen Landtagswahlkämpfen, noch in den geschlossenen Koalitionsverträgen oder im
+Wahlprogramm profiliert. Es gibt Widerspruch zum Maas-Gesetz von der FDP-nahen Friedrich Naumann-Stiftung, aber keine fundierte Kritik der Partei an der Aushebelung des Grundgesetzes durch die Große Koalition.
+Auch die FDP taucht vor den brennenden Problemen unseres Landes weg.
+Die Alternative für Deutschland ist mit ihren innerparteilichen Kämpfen beschäftigt, die daraus resultieren, dass
+sie verfährt wie die Altparteien, nur mit anderen Inhalten. Eine wirkliche Alternative wäre sie nur, wenn sie in
+der Lage wäre, statt eine eigene Funktionärskaste zu schaffen, Persönlichkeiten aufzustellen, denen Themen
+wichtiger sind als Pfründe. Das ist nicht zu erkennen. Von den AfD-Fraktionen hört man wenig, Impulse und
+Debatten gehen von der Partei kaum aus. Dabei liefern die Altparteien mit ihrer immer offener gezeigten
+Verachtung der Wähler und der Gesetze jede Menge Steilvorlagen. Die AfD könnte sich als Rechtsstaatspartei
+profilieren, aber sie, bzw. ihr Parteivorstand zieht es vor, sich innerparteilichen Querelen zu widmen.
+Kanzlerin Merkel hat es mit ihrer Methode der ‹asymmetrischen Mobilisierung› geschafft, das Land in eine Lähmung zu treiben, die mich an die Situation der DDR der 70er Jahre erinnert. Die Mauer schien für die nächsten
+hundert Jahre zu stehen, nach der Ausbürgerung von Wolf Biermann gab es einen Exodus kritischer Intellektueller. Die Verhältnisse schienen zementiert. Die Zurückbleibenden machten bittere Scherze über den ‹dummen
+Rest›.
+Eine ähnliche Friedhofsstille herrscht heute. Vor unseren Augen werden Verfassung und Gesetze missachtet. Das
+Land ist tief gespalten in die politische Nomenklatura und ihre Unterstützer und dem Rest der Bevölkerung,
+von den Politikern gern als ‹Pack› bezeichnet.
+Ich weiss aus der Geschichte, dass sich am Ende wieder die Realität durchsetzen wird. Aber das kann dauern.
+Im Kommunismus waren es endlose 70 Jahre. Merkel ist erst in zehn Jahren in dem Alter, in dem Konrad Adenauer
+als Bundeskanzler angefangen hat.
+_Quelle: http://vera-lengsfeld.de/2017/06/28/die-entkernung-der-demokratie/_
+
+
+-----
+
+### Merkel drängt auf Wiedereinführung von TTIP-Verhandlungen: US-Handelsminister auch
+_Sputnik; Mi, 28 Jun 2017 15:05 UTC_
+_Bundeskanzlerin Angela Merkel hat sich für die Wiederaufnahme der Verhandlungen über ein Freihandelsabkom-_
+_men zwischen der EU und den USA ausgesprochen, meldet die Agentur dpa._
+
+_© REUTERS/ Hannibal Hanschke_
+
+Sie spreche sich «eindeutig dafür aus, auch mit den Vereinigten Staaten von Amerika ein solches Abkommen
+zu verhandeln», sagte Merkel am Dienstag auf einer Veranstaltung des CDU-Wirtschaftsrats.
+Die Arbeit an einem solchen Abkommen sollte wieder aufgenommen werden, sonst könne man eine Vielzahl von
+Problemen nicht lösen. Dazu gehörten die Fragen, was fairer Handel sei, wie Reziprozität aussehe und welche
+Handelshemmnisse es neben den Zöllen gebe. Nach dem EU-Gipfel hatte sie allerdings gemahnt, dass EUFirmen in den USA denselben Marktzugang bei öffentlichen Ausschreibungen haben müssten wie auch umgekehrt.
+So kommentierte sie die Erklärung des US-Handelsministers Wilbur Ross, der in einer Videonachricht auf derselben CDU-Veranstaltung sagte, die USA hätten nicht vor, sich vom TTIP abzuwenden.
+«Wir als Handelspartner brauchen ein Freihandelsabkommen», sagte Ross. Er kritisierte, dass die EU Verträge
+mit Mexiko und Kanada, nicht aber mit den USA geschlossen habe. «Im Freihandel ist es nicht sinnvoll, dass
+ein Land so etwas akzeptieren muss», sagte er.
+Die Verhandlungen über das TTIP-Abkommen waren unter Ex-Präsident Barack Obama aufgenommen, später
+aber abgebrochen worden. Bis zuletzt gab es Zweifel, ob die neue US-Regierung noch einen Freihandelskurs
+verfolgt.
+_Quelle: https://de.sott.net/article/29983-Merkel-drangt-auf-Wiedereinfuhrung-von-TTIP-Verhandlungen-US-Handelsminister-_
+_auch_
+
+### ‹Mercron›? – Hauptsache, es geht voran! Wohin? So was fragen gute Europäer nicht!
+_30. Juni 2017 um 12:12 Uhr | Verantwortlich: Jens Berger_
+_Veröffentlicht in: Europäische Union, Länderberichte, Strategien der Meinungsmache_
+
+Vor allem linksliberale Kommentatoren sind ganz aus dem Häuschen – Angela Merkel und Emmanuel Macron
+treten als Dreamteam an, um Europa in schwierigen Zeiten wieder Leben einzuhauchen. Ok, zuerst muss Monsieur Macron natürlich seine Hausaufgaben machen. Aber dann soll der deutsch-französische Motor Europa
+endlich mit Vollgas in die Zukunft bringen. Wohin genau? Diese – nicht gerade eben unwichtige – Frage bleibt
+erstaunlicherweise offen. Europa ist mittlerweile offenbar ein Selbstzweck und die Debatte nimmt derweil
+skurrile Züge an. Linksliberale bejubeln einen Investmentbanker und wünschen ihm viel Glück im Kampf gegen
+
+
+-----
+
+die Gewerkschaften. Eine Politik gegen die Interessen der Arbeitnehmer wird als Grundvoraussetzung definiert,
+um an Deutschlands Seite Europa mitgestallten zu dürfen. Hauptsache, es geht voran!
+Wussten Sie schon, dass der Klimaschutz ganz oben auf der deutsch-französischen Tagesordnung steht und
+Macron und Merkel gemeinsam hinter den Pariser Klimaabkommen stehen? Sicher wussten Sie das, da uns
+diese Botschaft ja pausenlos eingetrichtert wird. Und nun bekommt es Trump, der ja das Pariser Abkommen
+ablehnt, mit ‹Mercron› zu tun. So formuliert es zumindest Damir Fras in der Frankfurter Rundschau. Das Klima
+und damit nichts weniger als die Zukunft der Menschheit liegt also in der Macht des drolligen Kofferworts?
+Seltsam, dass Deutschland das CO2-Budget, das ihm laut Pariser Abkommen in diesem Jahr zusteht, bereits Anfang April aufgebraucht hat. Sollten Merkel und Macron sich nicht erst einmal selbst an die Abkommen halten,
+die man ratifiziert hat, bevor man mit Weltretter-Attitüde andere Staatschefs als Klima-Bösewichte denunziert?
+«Ach, hören Sie mir doch mit den Details auf!», hört man die Kommentatoren sagen. Wichtig sei doch vor allem,
+dass Deutschland und Frankreich Hand in Hand für eine bessere Zukunft kämpfen! Na dann.
+‹Mercron› hat es auch der Europakorrespondentin der Deutschen Welle angetan. Bei Barbara Wesel geht es
+zwar nicht um die Rettung der Welt, aber doch zumindest um die Zukunft Europas. Merkel und Macron sind
+dabei für Wesel ein echtes Traumpaar. «Er leiht ihr den Anschein von Frische und Neubeginn, sie dem Franzosen
+ihre tiefe Kenntnis europäischer und internationaler Politik. Diese beiden sind zusammen besser als jeder für
+sich alleine», so die steuerfinanzierte Journalistin. Da darf es dann auch menscheln. Ein ‹winziges Zucken im
+Mundwinkel› von Macron, doch «Merkel holt ihn auf den Teppich zurück.» Ja, ‹so kann das funktionieren›, mit
+‹Mercron› und der Zukunft Europas.
+Doch um was geht es hier eigentlich? Wie soll Europas Zukunft denn aussehen? Was soll die ‹zurückgemeldete
+Antriebskraft Europas› konkret antreiben? Bei diesen Fragen bleibt die Korrespondentin des deutschen Staatssenders erstaunlich schmallippig. Was wollen die beiden Traumpartner? Er will ein wenig mehr gemeinsames
+Militär, sie ein wenig mehr gemeinsamen Freihandel, so heisst es im folgenden Text. Das ist also die Zukunft
+Europas? Noch nicht! Schliesslich muss der junge Franzose erst mal seine Hausaufgaben machen, bevor er sich
+dem älteren deutschen Weibchen unterwerfen darf. «Macron muss erst einmal in Frankreich zeigen, dass er
+seine störrischen Landsleute von Reformen überzeugen kann, ehe er an einen Umbau in Europa denken kann.
+Und Vorschusslorbeeren werden nicht verteilt», so Wesel. Pardon wird nicht gegeben! Doch wenn Frankreich
+erst einmal neoliberal auf Linie gebracht wurde, kann die rosarote Zukunft Europas beginnen. «Wenn wir Glück
+haben, können Merkel und Macron gemeinsam ziemlich stark sein.» Amen! Was für ein schönes Bild. Mercron
+schwören gemeinsam vor dem Brüsseler Altar auf Dax und CAC 40 ihre ewige Treue, Vertreter der Arbeitgeberverbände streuen Wiesenblumen aus den begradigten Rheinauen und ein gemeinsamer Gesangsverein ehe maliger Bergmänner aus dem Ruhrgebiet und dem Pas des Calais trällert die Ode an die Freude. Da rinnt nicht
+nur der Deutschen Welle eine Träne durchs Knopfloch.
+Wenn es um gemeinsame deutsch-französische Zukunftspläne geht, darf natürlich auch Ulrike Guerot nicht
+fehlen. Ausgerechnet auf der Plattform ‹Social Europe› bejubelt das Covergirl der liberalen Europafreunde das
+Mercron-Tandem. Sie findet es natürlich ganz hervorragend, dass Macron die Wahlen gewonnen hat und damit
+Frankreich vor Le Pen gerettet hat. Ok, diese Aussage ist kompletter Unsinn, da Le Pen in keiner denkbaren Konstellation ernsthafte Chancen hatte, aber Mythen sind natürlich nicht dazu da, kritisch hinterfragt zu werden.
+Nun sei jedenfalls ‹Hoffnung in der europäischen Arena› und ‹Europa [sei] wieder im Fortschrittsmodus›, so
+Guerot. Die Politikwissenschaftlerin sieht dabei drei Aufgaben für den Franzosen: Macron müsse die politische
+Linke in Frankreich ‹vereinen› (was Unsinn ist) oder zumindest ‹beschwichtigen›, dann müsse er noch die
+‹Arbeitsmarktreformen› und ‹andere liberale Reformen› umsetzen und schliesslich die Eurozone mit einem
+französisch-deutschen Reformpaket umgestalten.
+Dass diese drei Aufgaben nicht so fürchterlich gut zusammenpassen, weiss auch Guerot. Denn wie soll der wirtschaftsliberale Präsident die Linke ‹beschwichtigen›, wenn er gleichzeitig eine französische Agenda 2010 umsetzt? In einer nur noch als Realitätsflucht zu bezeichnenden Volte weicht Guerot dieser Frage aus. Er müsse halt
+erst den ‹Europa-Deal› abschliessen, dann wäre auch die Linke ‹beschwichtigt› und er hätte Manövrierraum für
+neoliberale Reformen. Das ist linksliberales Wunschdenken in seiner naivsten Form, und daher ist es auch kein
+Zufall, dass Guerot keine konkreten Beispiele nennt, was Macron denn konkret mit wem umsetzen soll. Soll er
+mit Schäuble und Weidmann Eurobonds einführen? Eher friert der Rhein zu. Soll er mit Merkel die EU-Kommission demokratisieren und dem Europaparlament mehr Macht geben? Wo denken Sie hin. Soll er zusammen
+mit der Chefin des Exportweltmeisters Reformen ausarbeiten, die wirklich zu einem aussenwirtschaftlichen
+Gleichgewicht führen? Spätestens wenn Eric Schweitzer vom DIHK in den offenen Hungerstreik geht und Dieter
+Kempf vom BDI sich auf den Treppen des Bundestages mit Benzin übergiesst, würde Merkel Macron die Leviten
+
+
+-----
+
+lesen. Oder geht es um Investitionen? Hat Guerot schon mal was von Schuldenbremse und Schwarzer Null
+gehört?
+Auch bei Guerot bleibt es im Kern also bei der Forderung, Macron müsse erst mal seine Hausaufgaben machen
+und Frankreich mit neoliberalen Reformen beglücken. Dann – aber auch nur dann – darf er vielleicht einmal
+als ‹Muttis Dackel› an Merkels Seite den Reformmotor befeuern. Was genau da reformiert werden soll, bleibt
+wohl für ewig ein Geheimnis, zumal die linksliberalen Eliten ihre Rechnung ohnehin ohne den Wirt, oder besser,
+ohne den Souverän gemacht haben. Natürlich wollen die meisten Menschen mehr Europa. Aber auch nur dann,
+wenn sie mit mehr Europa eine bessere Zukunft, mehr Gerechtigkeit und wohl auch mehr Demokratie verbinden.
+Wenn man eine Politik gegen die Interessen der französischen Arbeitnehmer als Grundbedingung für ‹mehr
+Europa› festsetzt, ist dies bereits ein Widerspruch in sich. Das wäre dann zwar auch ‹mehr Europa› – aber genau
+das Europa, das immer mehr Menschen ablehnen. Und für dieses Europa scheint das Kofferwort ‹Mercron›
+nicht völlig ungeeignet zu sein. Was bleibt, ist Wahlkampf für Merkel. Alleine der Umstand, dass ihr drei linksliberale Kommentatoren stellvertretend für ihre Zunft zutrauen, gemeinsam mit Macron Europa auf einen,
+wenn auch vagen, besseren Weg zu bringen, ist die beste Wahlkampfunterstützung, die sich Merkel vorstellen
+kann. Denn wenn sich Europa mit Marcon und Merkel zu voller Pracht entfalten wird, dann braucht es ja auch
+keine Alternativen mehr.
+_Quelle: http://www.nachdenkseiten.de/?p=38989_
+
+### Unglaublich! USA: Seit 1968 sind 1,5 Millionen Menschen erschossen worden – Bürgerkrieg
+_RT Deutsch; Di, 04 Jul 2017 14:14 UTC_
+_Die Zahl der Menschen, die in den USA durch Schusswaffen getötet werden, lässt an Verhältnisse denken, wie sie in_
+_einem Bürgerkriegsland vorherrschen. Vor allem im Vorfeld des Nationalfeiertags am 4. Juli wird besonders viel ge-_
+_schossen. Auch dieses Jahr war das wieder der Fall._
+
+_© Reuters Reuters_
+_Polizisten sperren nach einer Schiesserei den Tatort ab._
+_Die Zahl der in den USA durch Schusswaffen getöteten Personen gleicht bürgerkriegsähnlichen Zuständen._
+
+**Fast 15000 Menschen wurden im vergangenen Jahr in den USA durch Schusswaffen getötet, über 30000 wurden**
+verletzt. In jedem anderen Land würde man bei 45000 jährlichen Schussopfern wohl von bürgerkriegsähnlichen
+**Zuständen sprechen. In den Vereinigten Staaten ist die Gewalt jedoch so alltäglich, dass nur noch Schlagzeilen**
+zu erwarten sind, wenn bei einem Amoklauf auf einen Schlag dutzenden Menschen das Leben genommen wird –
+oder der Täter einen islamischen Hintergrund hat.
+Das erschreckende Ausmass verdeutlicht eine Statistik: Zwischen 1968 und 2015 sind mit über 1,5 Millionen
+mehr US-Bürger daheim durch Schusswaffen ums Leben gekommen als in sämtlichen Kriegen zusammen genommen – und das waren nicht gerade wenige –, die die Vereinigten Staaten seit 1775 geführt haben. Ein **schliesslich des Bürgerkriegs, der zwischen 1861 und 1865 zwischen den Nord- und den Südstaaten tobte.**
+
+#### ‹Shooting Tracker› zum Nationalfeiertag
+Besonders oft knallt es an den Wochenenden vor dem ‹Independence-Day› am 4. Juli, an dem die USA ihre
+Unabhängigkeit von der britischen Krone feiern. So auch vergangenes Wochenende. Beispiel Chicago, wo 2,7
+**Millionen Menschen leben: Zwischen Freitagmorgen und Montagabend wurden 56 Personen angeschossen,**
+**davon sechs tödlich. Das klingt nach viel, ist es aber nicht. Im Vorjahr wurden in der Stadt am Michigansee**
+während des Wochenendes zum ‹Independence Day› 66 Personen Opfer von Schusseinwirkungen. Und das war
+
+
+-----
+
+**der niedrigste Wert seit über einem Jahrzehnt. Insgesamt gab es dieses Jahr in Chicago bereits 1794 Schussopfer,**
+**wovon 314 tödlich getroffen wurden, wie die ‹Chicago Sun Times› am Dienstag berichtete.**
+Die Zeitung hatte für das vergangene Wochenende einen ‹Shooting Tracker› auf ihrer Webseite eingerichtet. Auf
+einer Stadtkarte wurden die einzelnen Vorfälle mit einem Fähnchen markiert, zwischen denen oftmals nur
+wenige Minuten vergingen.
+_Quelle: https://de.sott.net/article/30064-Unglaublich-USA-Seit-1968-sind-1-5-Millionen-Menschen-erschossen-worden-Burger-_
+_krieg_
+
+_11:46 08.07.2017(aktualisiert 22:49 09.07.2017); Willy Wimmer*_
+
+**Hamburg zahlt als Stadt einen hohen Preis für das Treffen der Staats-und Regierungschefs aus der Riege der**
+**G20. Dennoch war dieser Preis es wert. Alleine deshalb, weil sich zwei Präsidenten getroffen haben.**
+Wenn dieses Treffen nicht zustande gekommen wäre, dürfte an diesem Wochenende der weitere Weg der Welt
+weniger klar sein. Präsident Trump und Präsident Putin haben beide all diejenigen nicht enttäuscht, die beide –
+aus den unterschiedlichsten Gründen – nicht abgeschrieben hatten.
+Die freundliche und überlange Begegnung in kleinem Kreis hat der Welt das dringend erforderliche Signal gegeben. Statt eine Krise nach der anderen anzuhäufen, konnte ein Waffenstillstand in einem syrischen Kriegs gebiet nach der Begegnung verkündet werden. Die Welt erfuhr auch, worüber insgesamt gesprochen wurde. Alle
+Themen waren für den weiteren Fortgang einer auf Frieden angewiesenen Welt existentiell.
+Natürlich kommt es darauf an, was jetzt folgt und was auch authentisch aus den Gesprächen das Licht der
+Öffentlichkeit erreicht. Beide haben zum Ausdruck gebracht, den Hamburger Gesprächsfaden bald wieder aufzunehmen.
+Die dunklen Rauschschwaden, die durch die Bürgerkriegsformationen verursacht wurden, waren in gewisser
+Weise die Fortsetzung der Washingtoner Versuche, alles zu hintertreiben, was auf ein Treffen zwischen Präsident
+Putin und Präsident Trump hinauslaufen würde. Das wird Präsident Trump besonders hart treffen, wenn er
+wieder in Washington angekommen sein sollte. Es geht um die amerikanische Globaldominanz im Modell von
+McCain bis Clinton. Warum sollen diese Kräfte aufstecken, nur weil der gewählte Präsident Trump es nicht zum
+globalen ‹high noon› kommen lassen will?
+Bei denen, die für die Krawalle die ausschliessliche und alleinige Verantwortung für die zahlreichen Verletzten
+und den gewaltigen Sachschaden tragen, fiel etwas auf und das mit grossem Gewicht.
+Der Kampfruf schien sich an das anzulehnen, was die Welt über die Migrationskrise seit Jahren hört: «no borders,
+no nation …» und diese Kampfrufe stammen ausnahmslos aus dem Werkzeugkasten bestimmter amerikanischer
+Kreise. Kreise wohlgemerkt, die sich unmittelbar nach der Wahl von Präsident Trump in Washington zusammen gefunden hatten. Dabei wurde der Schlachtplan der Vernichtung von Präsident Trump beschlossen. Inklusive
+der Ankündigung über den Auftritt des Bürgermeister von New York wurde diese inneramerikanische Auseinandersetzung auf Hamburgs Strassen ausgetragen.
+Im Übrigen durch Kampfverbände europäischer Herkunft. Merkwürdig dürfte dabei die Unwissenheit des
+deutschen Innenministers über diese Kampfverbände auf unserem Staatsgebiet sein. In einer Zeit, in der die
+Staatsbürger mehr und mehr ihre angestammten demokratischen Rechte durch die Bundesregierung entzogen
+bekommen, weiss dieser Innenminister nichts von tausenden Strassenkämpfern oder sagt uns nichts davon. Das
+entspricht der Haltung der Bundesregierung, dem deutschen Volk vorzuenthalten, welche Schleuser und inter
+
+-----
+
+nationalen Netzwerke hinter der Migrationsentwicklung stehen. Ist das eine neue Form von ‹deutscher Staatsraison›, auf die diese Bundesregierung festgelegt ist? Das wird sich spätestens dann weisen, wenn der für Syrien
+festgelegte Waffenstillstand im Westen dieses Landes in Kraft tritt und auch hält.
+Hamburg lässt die Bilder des Besuches von Präsident Trump am Tag zuvor in Warschau zum Glück in den
+Hintergrund treten. An was wollte man in Warschau mit diesem Besuch eigentlich anknüpfen, an Marschall
+Pilsudzki etwa? Polen hat mit Johannes Paul II., Lech Walesa und der Solidarität-Gewerkschaft Europa die Hoffnung für die Zukunft gegeben, gemeinsam mit Ungarn.
+
+_* Die Meinung des Autors muss nicht mit dem Standpunkt der Redaktion übereinstimmen._
+_Quelle: https://de.sputniknews.com/kommentare/20170708316508781-krawalle-in-hamburg-wimmer-kommentar/_
+
+### Hamburg ist kein Einzelfall, sondern das Resultat falscher Politik Schuld an den Ausschreitungen? Merkel, Kern und Co!
+_von Michael Scharfmüller_
+
+_Screenshots: youtube.com_
+
+**Sie plündern Geschäftslokale, verletzen Menschen und zünden Autos an. Schuld daran sei die Polizei, die wieder**
+**mal provoziert habe. Das stimmt aber nicht, die Schuldigen sitzen gut behütet in Regierungsämtern.**
+Dass in Hamburg rund um den G20-Gipfel zahlreiche Autos in Flammen aufgehen, ist kein Ausnahmezustand,
+sondern dürfte seit vielen Jahren Alltag in der Hansestadt sein. Beispielsweise wurden 2011 allein in dieser Stadt
+**über 270 Autos in Brand gesteckt. Van Vormizeele (CDU) sah damals bereits die innere Sicherheit gefährdet:**
+_«Wenn der Senat nicht bald die Initiative ergreift, muss man davon ausgehen, dass man diesem Phänomen hilflos_
+_gegenüber steht und den Brandstiftern das Feld überlässt.»_
+
+#### Hamburg war und ist kein Einzelfall
+In Berlin sieht die Lage nicht wesentlich anders aus. 2014 wurden hier 242 Kraftfahrzeuge angezündet. Die
+Berliner Polizei vermutet, dass davon ca. ein Fünftel politisch motiviert sei, die Dunkelziffer dürfte jedoch höher
+liegen. In den letzten Jahren wurde kein einziger Fall dieser politisch motivierten Brandstiftungen aufgeklärt.
+Die fehlende Härte gegen die gewaltbereite Antifa-Szene (auch bei den Erster-Mai-Krawallen und im Umgang
+mit der Hausbesetzer-Szene) hat den bürgerkriegsähnlichen Zustand in Hamburg erst ermöglicht. Den Brandstiftern wurde das Feld überlassen.
+Brennende Autos gehören zum alltäglichen Handwerkszeug von selbsternannten Linken und Antifaschisten.
+Um gewalttätig zu werden, muss kein Autonomer von der Polizei provoziert werden. Es reicht völlig aus, wenn
+diese Extremisten von Richtern zu ihrem Kampf ermuntert und milde bestraft werden.
+
+_Screenshot: youtube.com_
+
+#### Spiessgesellen des Establishments
+Politik und Medien haben die Antifa-Szene jahrelang als Spiessgesellen im Kampf gegen alles Patriotische eingesetzt. Sie haben sie subventioniert, für Demos bezahlt und medial unterstützt. Kanzler Kern hat sich bei ihnen
+
+
+-----
+
+bedankt. Merkel ist für Gewalttaten blind – solange keinem ‹Flüchtling› ein Haar gekrümmt wird. Darum sind
+Merkel, Kern und Co. für das in Rauch liegende Hamburg mitverantwortlich und nicht ein paar Polizisten, die
+für einen Staat ihr Leben aufs Spiel setzen, der ihnen täglich ins Gesicht spuckt.
+_Quelle: http://info-direkt.eu/2017/07/09/schuld-an-den-ausschreitungen-in-hamburg-merkel-kern-und-co/_
+
+### Eine Million Migranten pro Jahr nach Europa Orban: EU setzt die Pläne des Globalisten Soros um
+_9. Juli 2017 Europa, International_
+
+_By Flickr.com (Flickr.com) [CC BY 2.0], via Wikimedia Commons_
+
+**Die EU-Kommission setze einen Plan des US-Globalisten George Soros um, wonach jedes Jahr eine Million**
+**Migranten nach Europa gebracht werden sollen.**
+Das warf der ungarische Ministerspräsident Viktor Orban der EU-Kommission am Freitag in einem Interview
+mit dem Staatsrundfunk vor, berichtete die ‹Presse›. Dasselbe warf Orban bereits im Juni den von Soros finanzierten NGOs in Europa vor.
+
+#### Eigene EU-Einwanderungsbehörde
+Laut Ministerpräsident Orban gehöre zu Soros Plänen auch die Schaffung einer eigenen EU-Einwanderungsbehörde. Dadurch soll Migration keine Sache mehr der einzelnen Mitgliedsstaaten, sondern der zentralen EUBehörde sein.
+
+#### Wende in der EU-Migrationspolitik sicher
+Der konservative Fidesz-Politiker ist sich dennoch sicher, dass die anderen EU-Staaten auf die ungarische
+Migrationspolitik umschwenken werden. Fast jeder EU-Regierungschef gebe ‹unter vier Augen zu›, dass Ungarns
+Einwanderungspolitik richtig sei. Derzeit würden die EU-Politiker noch unter dem Druck liberaler Meinungsführer entscheiden, jedoch sei eine Wende sicher, so Orban laut ‹Presse›-Bericht. Angesichts des neuen Asyl ansturms über das Mittelmeer werden weitere Länder in den ‹Klub› der einwanderungskritischen EU-Staaten
+kommen, ist sich der ungarische Regierungschef sicher.
+
+#### Anti-Soros-Kampagne gestartet
+Die Fidesz-Regierung startete vor kurzem ihre Kampagne gegen den Globalisten Soros. Laut Bericht der ‹News›
+hängen seit Tagen in ganz Ungarn grosse Plakate mit der Aufschrift ‹Lassen wir nicht zu, dass Soros als Letzter
+lacht›. Auch im staatlichen Fernsehen und im Rundfunk laufen Werbespots der Anti-Soros-Kampagne.
+_Quelle: http://info-direkt.eu/2017/07/09/orban-eu-setzt-die-plaene-des-globalisten-soros-um/_
+
+### Gegen Facebook-Hasskommentare: Bundestag beschliesst umstrittenes Gesetz
+_Sputniknews; Fr, 30 Jun 2017 17:13 UTC_
+_Am Freitag hat der Bundestag das umstrittene Gesetz gegen Falschmeldungen und Hetze im Internet mit der Mehrheit_
+_der Koalition beschlossen, teilt ‹Focus Online› mit. Nun sollen Internetkonzerne wie Facebook zu einer schnelleren_
+_Lösung von rechtswidrigen Beiträgen verpflichtet werden._
+
+
+-----
+
+_© AP Photo/ Matt Rourke_
+
+Bei systematischen Verstössen drohen den Unternehmen Geldstrafen in Höhe von bis zu 50 Millionen Euro.
+Die Linken-Parteichefin Katja Kipping kritisierte die Abstimmung: Fast alle Experten hätten die von der grossen
+**Koalition geplante Neuregelung vergangene Woche im Rechtsausschuss des Bundestages als ‹verfassungs -**
+**widrig› bezeichnet, sagte Kipping der Nachrichtenagentur AFP.**
+Mit dem ‹Last-Minute-Gesetz› werde die Unterscheidung zwischen strafbarer Hetze, Satire und freier Meinungs äusserung ‹nun faktisch an Drittdienstleister der Internetmonopolisten wie Facebook delegiert›.
+_Quelle: https://de.sott.net/article/30009-Gegen-Facebook-Hasskommentare-Bundestag-beschlieSst-umstrittenes-Gesetz_
+
+### Polizeichef von Schweden warnt: Die Regierung hat die Kontrolle über das Land verloren
+_Von Kathrin Sumpf Aktualisiert: 2. Juli 2017 14:23_
+«Die Polizei ist nicht mehr fähig, die Einhaltung der Gesetze sicherzustellen» erklärt der schwedische Polizeichef.
+Er ruft die Bevölkerung zur Hilfe auf. «Die Polizei kann die Einhaltung der Gesetze nicht mehr sicherstellen»,
+sagt der schwedische Polizeichef Dan Tore Eliasson und wendet sich Ende Juni mit der Bitte um Hilfe an die
+Öffentlichkeit. Er erklärt, dass das schwedische Modell der Integration von Flüchtlingen gescheitert sei. Die
+Polizei sei nicht mehr fähig, die Gesetze durchzusetzen: «In Teilen von Stockholm herrscht Gesetzlosigkeit (…)
+Das Rechts system, das eine Säule jeder demokratischen Gesellschaft ist, bricht in Schweden zusammen», zitiert
+die Presse Dan Tore Eliasson. Die Polizei ruft die schwedische Bevölkerung auf, der Polizei zu helfen und sie in
+ihrer Arbeit zu unterstützen.
+
+#### Die Zahl der No-Go-Areas steigt an
+In 23 der mittlerweile 61 No-Go-Areas sind die Probleme so gravierend, dass weder Polizei noch Feuerwehr
+sich imstande fühlen, die Gesetze durchzusetzen.
+Bisher ging die schwedische Polizei von einigen hundert gewaltbereiten Islamisten aus. Nun schätzen sie die
+Anzahl auf etwa 5000, bei rund 200 kriminellen Netzwerken. «Wir haben nie zuvor solch ein Ausmass beobachtet», sagte der Chef der Sicherheitspolizei, Anders Thornberg.
+Die Gebiete gelten als ‹besonders empfindliche Gebiete›, in denen Armut, Selbstjustiz, religiöser Extremismus
+und Kriminalität regieren. Vor zwei Jahren waren nur 53 Bezirke als ‹empfindliche Gegenden› katalogisiert, die
+Zahl steigt weiter an.
+Der Stockholmer Vorort Rinkeby: Dieser Ortsteil wird ‹Klein Mogadischu› genannt, somalische Einwohner
+haben das Sagen. Sie kontrollieren eine der 61 No-Go-Areas, hier rekrutiert die islamische Terrormiliz Al-Shabaab
+und treibt Schutzgelder ein. Die Webseite ‹katholisches.info› formuliert es so: «In den islamischen Territorien
+Schwedens herrscht eine Mischung aus Gesetz des Dschungels und Scharia.»
+
+#### Warnung der schwedischen Aussenministerin
+Auch die schwedische Aussenministerin, Margot Wallström, warnte – bereits 2015: «Ich denke, die meisten
+Menschen fühlen, dass wir ein System, in dem jährlich etwa 190000 Menschen ankommen, nicht aufrechthalten
+können. Langfristig wird unser System kollabieren.» Schweden ist mit der Masseneinwanderung völlig überfordert. Das Land steht vor dem Kollaps, warnt sie. Deshalb will die Sozialdemokratin andere EU-Mitgliedsstaaten in die Pflicht nehmen. Sie fordert, die Migranten EU-weit besser zu verteilen.
+
+#### Dritte-Welt-Land Schweden
+Die UN warnte bereits vor zwei Jahren, dass Schweden bis 2030 ein Dritte-Welt-Land werden wird. Ein immer
+grösserer Anteil der Bevölkerung lebt von Sozialhilfe, die Leistungen der schwedischen Schulen lassen nach.
+
+
+-----
+
+Länder wie Kuba, Mexiko und Bulgarien werden Schweden nach Einschätzung der Vereinten Nationen bis 2030
+überholt haben.
+Schwedens Regierung ist linksgerichtet und viele Medien glauben, dass die Basis ihrer Gesellschaft multikulturell
+ist: Schweden nimmt in grossem Umfang Einwanderer aus einigen der schlechtesten, am meisten rückwärts
+gerichteten Nationen der Erde auf. Schweden, die mit diesem Plan nicht übereinstimmen, riskieren, als Rassist,
+Faschist oder Nazi etikettiert zu werden.
+_Quelle:_ _http://www.epochtimes.de/politik/europa/polizeichef-von-schweden-warnt-die-regierung-hat-die-kontrolle-ueber-_
+_das-land-verloren-integration-gescheitert-a2156608.html?meistgelesen=1_
+
+### Polen verteidigt Flüchtlings-Ablehnung: «Nicht wir haben die Länder ausgebeutet, aus denen die Flüchtlinge kommen.»
+_Epoch Times 2. Aktualisiert: 2. Juli 2017 18:40_
+Die Verteilung von Flüchtlingen ist ein schwieriges Thema zwischen Brüssel und Warschau – gegen Polen läuft
+ein Vertragsverletzungsverfahren der EU. Nun hat der Chef der polnischen Regierungspartei noch einmal seine
+Sicht der Dinge klargemacht.
+Der Chef von Polens Regierungspartei Jaroslaw Kaczynski hat auf dem PiS-Parteitag die Asylpolitik seines Landes
+verteidigt. Die Schuld für die heutige Flüchtlingswelle trügen vor allem die ehemaligen Kolonialmächte und
+andere starke Staaten unter den heutigen EU-Mitgliedern.
+«Nicht wir haben die Länder ausgebeutet, aus denen heute die Flüchtlinge nach Europa kommen. Auch haben
+wir nicht ihre Arbeitskraft ausgenützt und wir haben sie auch nicht nach Europa eingeladen. Wir haben daher
+das volle moralische Recht, Nein zu sagen», zitierte ihn die polnische Nachrichtenagentur PAP am Samstagabend.
+Die EU-Kommission hat gegen Polen, aber auch Ungarn und Tschechien ein Vertragsverletzungsverfahren eingeleitet, weil diese drei Länder bei der Aufteilung von Flüchtlingen innerhalb der EU nicht kooperieren.
+Diese EU-Staaten befürchten durch die unkontrollierte Massenzuwanderung Terroranschläge und andere soziale
+Unruhen, wie sie in Deutschland und anderen Ländern – in denen Massenimmigration zur Normalität erklärt
+wurden – bereits spürbar werden.
+Die Slowakei und Ungarn haben sogar dagegen geklagt, dass die anderen EU-Länder im September 2015 gegen
+ihren Widerstand Quoten zur Flüchtlingsaufteilung beschlossen haben. (dpa/so)
+_Quelle: http://www.epochtimes.de/politik/europa/polen-verteidigt-fluechtlings-ablehnung-nicht-wir-haben-die-laender-ausge-_
+_beutet-aus-denen-die-fluechtlinge-kommen-a2156996.html?meistgelesen=1_
+
+### Umvolkung: Wann sagen sie uns endlich die Wahrheit?
+_Posted By: Maria Lourdes on: Juli 02, 2017In: D(Ä)MOKRATIE, Lupo Cattivo, Wahrheit oder Lüge_
+**Über den tatsächlichen Umfang der geplanten Bevölkerungs-‹Erweiterungen›?**
+**Und wie viele dauerhafte Ansiedlungen von ‹Geflüchteten› und deren nachziehenden Familienangehörigen**
+**wird es fortan geben? Fünf Millionen, zehn Millionen, oder noch mehr?**
+**So ist ja bereits die neuerliche Präsenz dieser Menschen in nahezu jedem Ort Deutschlands schon einhergehend**
+**mit einer Radikalveränderung unserer Heimat. Diese ‹Neuordnung› soll aber von der Stammbevölkerung als**
+vollkommen normal und vor allem als absolut unabwendbar empfunden werden. So wie auch die schiere Menge
+an brutalsten Gewaltverbrechen, die von diesen, zum Teil vollkommen verrohten Menschen, ausgeht.
+**Abgehackte Köpfe, gekochte Kinder und verstümmelte Frauen. Diese und weitere, noch vor wenigen Jahren**
+**unvorstellbare Szenarien des Grauens kennzeichnen jetzt schon unseren Alltag und die Wahrnehmung. Wohl-**
+gemerkt, während die offizielle Berichterstattungslinie eine in weiten Teilen immer noch ‹heile Welt› kolportiert.
+Normative Politikbegriffe sublimieren. Somit entstehen Trugbilder – denn die Medien publizieren im Einklang
+mit der Regierung weiterhin geradezu kafkaeske Verzerrungen der Wahrheit.
+**_Deutschland hat ein Flüchtlingschaos ungeahnten Ausmasses angerichtet und den ‹Austausch› des eigenen Volkes_**
+**_vorangetrieben._**
+
+#### Schleichende Anpassung an das Fremde
+**Niemand ist jetzt mehr sicher, nirgendwo. Und um unsere anspruchsvollen Gäste nicht noch mehr zu ‹reizen›**
+**werden mittlerweile die Lebenswelten der Einheimischen entscheidend ‹nach unten› korrigiert. Dies bedeutet**
+
+
+-----
+
+konkret, dass man jungen Frauen nahelegt, die Wahl ihrer Sommer-Garderobe doch gefälligst an die Bedürfnisse
+der sich im Ramadan befindlichen Herren anzupassen, um die frommen Männer nicht weiter zu ‹irritieren›.
+**Dann den Blick noch gen Boden gerichtet – und bloss kein Wort darüber verlieren. Wird man dennoch von**
+ihnen angegriffen, so liegt die Schuld stets bei einem selbst, denn offenbar wurden die ‹Rechtgläubigen› in einem
+solchen Falle derart provoziert, dass sich diese nicht mehr anders zu helfen wussten. Das glauben sie nicht? Seien
+sie versichert, die Presse-Archive geben diesbezüglich einiges her.
+_Schlussendlich haben wir diese Wellen der Zensur, diese massiven Einschränkungen unserer Lebensqualität, Freiheit,_
+_Sicherheit und Lebensfreude exakt und nahezu ausschliesslich einer ‹neuen› Bevölkerungsgruppe zu verdanken, die_
+_hier nicht mehr namentlich genannt werden muss._
+**Darüber hinaus werden wir uns damit abfinden müssen, dass dies erst der Beginn von weiteren Regularien**
+**und Sonderrechten zugunsten unserer zuweilen sehr speziellen Neubürger sein wird. Weder von diesen**
+‹Gästen› noch von Seiten unserer bis in alle Ewigkeit regierenden Kanzlerin, oder gar der Partei ‹Die Grünen›
+werden wir Gnade oder Schonung erwarten können.
+**Die angestammten Bevölkerungen stellen für die zukünftigen Europa-Politiker offenbar keinen ‹Wert an sich›**
+**mehr dar. Sie verschmelzen derzeit zu einem beliebig austauschbaren Hybriden-Brei – ohne eigene Identitäten.**
+So soll wohl eine Art von modernem ‹Humunculus› entstehen.
+**Verbots-Verdikte allenthalben und zahlreiche Beschränkungen, insbesondere tradierte Verhaltensweisen und**
+**Eigenschaften betreffend, werden unseren zukünftigen Alltag massgeblich mitbestimmen. Die jetzt imple-**
+mentierten Maaschen Zensurgesetze sind dabei erst der Anfang. Angst, Verunsicherung und Panik sind die zu
+erwartenden Effekte und die daraus fehlgeleiteten jungen Linken bekämpfen tragischerweise ebenfalls ihre
+eigenen Landsleute, als nützliche Büttel dieses perfiden Systems.
+**Eine Interdependenz der autochthonen Bevölkerungsteile ist schlicht nicht mehr vorhanden. Zu tief ist die**
+Spaltung schon fortgeschritten. Fatalerweise verkennen diese ‹tapferen›, der Antifa nahestehenden ‹Aktivisten›
+die tatsächliche Lage so sehr, dass es schon fast an eine griechische Tragödie erinnert.
+**Die Sprach- und Begriffsbestimmung als weitreichender Zensurfaktor ist ja bekanntlich längst unter die**
+**Meinungsführerschaft und Agenden der vereinigten Linken geraten. Noch bevor man sich als unbedarfter**
+Bürger zu einem beliebigen Sachverhalt äussern möchte, sollte sorgsam geprüft werden, ob dies denn überhaupt
+noch erlaubt ist, oder bereits der Gedanke daran ein ‹Hassverbrechen› darstellt.
+
+#### Islamische Korrektheit
+**Nicht nur nicht ‹politische Korrektheit› wird fortan relevant sein, sondern eben auch die ‹islamische Korrekt-**
+**heit›. Schon heute werden an sich harmlose Begrifflichkeiten wie ‹Ausländer›, ‹Neger›, ‹Mohammedaner› oder**
+gar ‹Rothaut› negativ konnotiert – und selbst von konservativ geprägten Autoren gemieden, oder durch
+Synonyme ersetzt.
+**Auch die Besetzung von vakanten Positionen im medialen Bereich, so wie unlängst im hessischen Rundfunkrat**
+**mit bekennenden Muslimen, lassen diese Intention einer klinisch-reinen und uneingeschränkt islamkonformen**
+**Kommunikations-Hygiene zweifelsfrei erkennen. Bald gibt es Halal-Radio/TV allerorten. Eine durch den Islam**
+induzierte Gesellschaftsumwälzung dieser Grössenordnung, welche die indigene Bevölkerung faktisch ohne
+Gegenwehr hinnimmt – dies stellt zweifellos ein Novum in der Geschichtsschreibung dar.
+**Die derzeit einzige und die ehemalige Opposition des Landes hält sich indessen an Nebenschauplätzen auf.**
+Unsere medial zutiefst geschmähte AfD versinkt sinnbildlich in internen Grabenkämpfen, während die einst
+liberal-freiheitliche FDP unter ihrem Chef, Christian Lindner, von dem man zwischenzeitlich den Eindruck
+gewinnt, mit dem Auftackern seines neuen Haupthaares wäre ihm auch seine einst so solide Gedankenwelt
+gehörig durcheinander gewirbelt worden, exakt dem Abbild aller ‹Systemparteien› gleicht.
+_Sie betreiben jetzt, genauso wie alle anderen gleichgeschalteten ‹Apparatschicks› Wert- und Wortbrüche am Fliess -_
+_band, wie beispielsweise die jetzt gesetzlich legitimierte Homo-Ehe, von der Lindner, medial überaus wirksam, eine_
+_Koalitionsbeteiligung mit der Union in NRW abhängig machte._
+**Man reibt sich verwundert die Augen, ob dieser Aussagen. Sonderrechte für Minderheiten haben demnach also**
+die oberste Priorität, auch in liberalen Kreisen. Es erhärtet sich zunehmend der Verdacht, dass hier wieder nur
+verlorene Machtreflexe angesprungen sind, beim smarten Liberalen-Chef – und nicht etwa der Wille, tatsächlich
+ein ernstzunehmender Gegenpol in einer vollständig nach links gerückten politischen Welt zu sein.
+**Während sich nicht wenige FDP-Sympathisanten eher noch eine Öffnung in Richtung ‹libertär› gewünscht**
+**hätten, scheint dies einigen Parteigranden doch zu gewagt. Und so präferieren diese lieber hasenfüssig ebenfalls**
+den gefahrlosen ‹Mainstream›. Aalglatt, unkonkret und beliebig austauschbar – genau solch eine Art von Politik
+haben wir eigentlich schon zur Genüge.
+
+
+-----
+
+**_Eine weitere Ermahnung an unsere Toleranz, Weltoffenheit und vor allem an unsere ‹Verantwortung› in der Welt_**
+**_– gerade als ‹Deutsche›, ist vermutlich der nächste Schritt, den wir von den dereinst freisinnigen Gelben erwarten_**
+**_können._**
+**Wem dieses abschliessende Zitat genau zuzuordnen ist, bleibt umstritten.**
+**_«Wir können sie nicht zwingen, die Wahrheit zu sagen. Wir können sie aber dazu bringen, immer dreister zu lü-_**
+**_gen.»_**
+_Quelle: BRD-Schwindel – Mein Dank, sagt Maria Lourdes_
+_Quelle: http://marialourdesblog.com/umvolkung-wann-sagen-sie-uns-endlich-die-wahrheit/_
+
+### Orwells Realität durch digitale Geräte: Wir werden schlimmer als von der Stasi überwacht
+_Andreas Dünser & Yvonne Hofstetter; thema vorarlberg; So, 07 Mai 2017 15:22 UTC_
+_Yvonne Hofstetter (49), Unternehmerin, Autorin und Expertin für Künstliche Intelligenz, sagt im ‹Thema Vorarlberg›-_
+_Interview, dass Internetgiganten längst von jedem einzelnen Internet-User ein eigenes Dossier angelegt hätten. Hofstetter_
+_über Smartphones, die ‹Spione in der Manteltasche› und naives Unverständnis der Menschen: «Es ist uns überhaupt_
+_nicht klar, was da alles vermessen und gespeichert wird.»_
+
+**Verschicken Sie sensible E-Mails, Frau Hofstetter?**
+Ganz sensible Sachen wie das Manuskript meines neuen Buches verschicke ich nur mit der normalen Post. Ansonsten verschlüssle ich E-Mails. Weil absolut alles, was wir dem Internet anvertrauen, weitererzählt wird. Absolut
+alles.
+
+**Constanze Kurz, die Sprecherin des Chaos Computer Clubs, hat gesagt, dass man zu niemandem ehrlicher sei**
+**als zum Suchfeld von Google …**
+Stimmt. Der Mensch sucht nur, was seinem Interesse entspricht. Und an dem, was Sie tun, denken, fühlen und
+planen, sind Google, andere Suchmaschinen und soziale Netzwerke interessiert. Anhand der Daten, die sie ein geben, werden Sie profiliert. Und wenn Sie einmal profiliert sind, dann weiss man, wie Sie sich in der Zukunft verhalten werden. Man darf sich da keiner Illusion hingeben: Google ist weit mehr als nur eine Suchmaschine. Google
+ist ein internationaler Konzern, der eine Vielzahl verschiedener Hochtechnologien, auch militärische Technologien,
+unter einem Dach vereint: Künstliche Intelligenz, Militärroboter, Drohnen, Datenbrillen. Google startet im Grunde
+genommen die Totalüberwachung.
+
+_© Helmo Aga_
+_Yvonne Hostetter_
+
+**Sie schreiben in Ihrem Buch ‹Sie wissen alles›, es sei erschreckend, dass niemand die Weltmachtfantasien dieses**
+**Konzerns stoppe. Weltmachtfantasien?**
+Wir wären gut beraten, die Äusserungen, die aus dem Silicon Valley kommen, ernst zu nehmen. Da heisst es: Die
+Demokratie gehört abgeschafft. Und wenn dort Programmierer sagen, dass der Mensch nicht mehr sei als eine
+Maschine, die man perfekt steuern könne, dann sind das Ansichten, die mit unserem europäischen Verständnis
+insbesondere von Menschenwürde überhaupt nicht vereinbar sind. Denn ein anderer Begriff für Menschenwürde
+ist die Selbstbestimmung. Und wenn ich dem Menschen die Selbstbestimmung abspreche, dann brauche ich – im
+Verständnis der Technologiegiganten – auch keine Demokratie mehr. Auf das zielen Google und andere aus dem
+Silicon Valley ab. Sie wollen dem Menschen die Selbstbestimmung nehmen, indem sie ihn steuern, indem sie ihn
+manipulieren. Das sind deren Vorstellungen. So soll die Welt funktionieren!
+
+
+-----
+
+**Nehmen wir ein Beispiel …**
+Beinahe jeder hat inzwischen ein Smartphone. Ein Smartphone ist allerdings kein Telefon. Es ist ein Messgerät.
+Um zu verstehen, wie das funktioniert, kann man sich an der Hurrikan-Forschung in den USA orientieren: Flugzeuge setzen Sensoren ab, die alles Mögliche messen und eine Vielzahl von Daten erheben. Diese Daten werden
+gesammelt und analysiert, daraus wird eine Wetterprognose erstellt und vorhergesagt, in welcher Geschwindigkeit
+und Stärke der Hurrikan auf die US-Ostküste treffen wird. Die grosse Verführung ist nun, das, was bei Natur phänomenen funktioniert, auch auf die Gesellschaft zu übertragen. Dazu braucht man ebenfalls Sensoren. Und
+im Jänner 2007 hat Apple diese Sensoren über uns abgeworfen – mit der Markteinführung des iPhones. Seither
+trägt jeder diesen Spion in der Manteltasche freiwillig mit sich herum.
+
+**Spion in der Manteltasche?**
+Dass ein Smartphone Kamera, Mikrofon, Telefon und Geo-Positionssensoren enthält, ist bekannt. Im iPhone und
+in anderen Smartphones sind allerdings auch Sensoren installiert, an die Sie niemals denken würden. Beispielsweise sind Temperaturmesser enthalten. Töne werden registriert, die unterhalb der menschlichen Wahrnehmungsschwelle liegen, und die beispielsweise in bestimmten TV-Werbesendungen gesendet werden: Nachdem Sie Ihr
+Smartphone beim Fernsehschauen meistens neben sich auf dem Sofa liegen haben, kann das Smartphone hören,
+welche Werbung Sie anschauen, und verknüpft das direkt mit Ihrem Profil. Und: Mit wem Sie telefonieren, wann
+Sie telefonieren, all das wird ebenfalls mitgeschnitten. Aus diesen Metadaten Ihres Telefonverhaltens wird berechnet,
+welchen Charakter sie haben. Sind Sie zuverlässig? Haben Sie Depressionen? Da geht es noch nicht einmal um den
+Gesprächsinhalt, nur darum, um welche Uhrzeit Sie mit wem telefoniert haben. Es ist uns überhaupt nicht klar,
+was da alles vermessen und gespeichert wird!
+
+**Sie äussern an mehreren Stellen in Ihrem Buch Ihr Unverständnis darüber, wie gedankenlos die vernetzte Welt**
+**die Totalüberwachung hinnimmt.**
+Erst langsam fällt der Groschen, was da alles passiert. Es ist allerdings schwierig zu verstehen, weil der Schaden erst
+zeitverzögert eintritt. Was ich heute beispielsweise auf Facebook poste oder like, kann auch erst in ein paar Jahren
+Folgen nach sich ziehen, wird dann gedanklich aber nicht mehr darauf zurückgeführt. Denn die Datenauswertung
+findet algorithmisch statt; Computerprogramme finden aus Ihren Daten und Rohdaten unter Umständen
+Korrelationen heraus, auf die Sie als Mensch nie kommen würden.
+
+**Oft heisst es: Wer nichts zu verbergen hat, hat nichts zu befürchten. Ist das falsch?**
+Dieser Satz ist ganz schlimm! Den muss jeder Mensch aus seinem Wortschatz streichen! In diesem Satz äussert
+sich ein völliges Missverständnis darüber, wofür Analysten die Daten und Rohdaten überhaupt brauchen und einsetzen. Es geht überhaupt nicht darum, in ihrer Vergangenheit zu graben und zu schauen, was Sie früher angestellt
+haben. Die Vergangenheit ist vollkommen egal. Es geht um die Zukunft. Die Rohdaten werden erhoben, um Ihre
+Zukunft steuernd zu beeinflussen! Diese grossen Datenverarbeitungsunternehmen, diese Internet- und Technologiegiganten, träumen von der globalen Konsumentensteuerung. Sie geben offen zu, dass sie wissen wollen, wer
+Sie sind, was Sie denken, was Sie fühlen, damit sie ganz gezielt manipulierend eingreifen können – in Ihre Zukunft!
+Der Konsument soll gesteuert werden. Und wenn Sie Daten von sich preisgeben, machen Sie sich quasi zum Freiwild.
+Sie überlassen die Rechte an Ihrer Zukunft und Ihrer Selbstbestimmung anderen. Sie geben Ihre Rechte aus der
+Hand – die Rechte, finanziell souverän zu agieren, sexuell souverän zu agieren, von Algorithmen nicht diskriminiert
+zu werden. All das geben Sie in die Hände von Technologiegiganten, die dort manipulierend eingreifen.
+
+**Aber wer, bitteschön, soll denn an allen diesen Daten interessiert sein?**
+Die Daten werden nicht von Menschen ausgewertet, sondern von Maschinen. Profile werden erstellt, Profile eines
+jeden einzelnen Menschen. Und die Unternehmen, die diese Profile erstellen, brauchen – um ihr Ziel der globalen
+Konsumentensteuerung zu erreichen – Daten, viele Daten. Je mehr Daten sie von den Menschen bekommen, umso
+besser. Damit handeln internationale professionelle Datenbroker. Daten sind der Rohstoff des 21. Jahrhunderts.
+Technologiegiganten wollen mit diesen Daten die Gesellschaft umgestalten. Und sie machen das vollkommen unreguliert, quasi in Anarchie. Ich spreche in diesem Zusammenhang von Informationskapitalismus – einer neuen
+Form des Kapitalismus, die hier als Ideologie mit der Digitalisierung einhergeht. Und auch da bitte ich Sie, sich
+keiner Illusion hinzugeben …
+
+**Inwiefern?**
+Vor drei Jahren wurde bekannt, dass allein der US-Datenbroker Acxiom im Jahr 2013 Dossiers von 700 Millionen
+Internetnutzern vorliegen hatte. Darunter waren 44 Millionen deutsche Dossiers und vermutlich Dossiers von
+
+
+-----
+
+vier, fünf Millionen Österreichern. Das heisst, man kann davon ausgehen, dass es von jedem Menschen, der irgendwann einmal im Internet war, ein Profil gibt, ein Dossier. Wie einst bei der Stasi! Jeder Internetnutzer hat dort seine
+Akte, und in dieser Akte sind bis zu 3000 einzelne Eigenschaften über die jeweilige Person gespeichert, berechnet
+durch die Algorithmen, durch die Auswertung der Rohdaten. Und das Problem ist, dass den Menschen gar nicht
+klar ist, dass diese Daten und Informationen existieren und dass sie Kreise ziehen. Denn diese Dossiers werden
+weiterverkauft.
+
+**An wen?**
+Grosse Arbeitgeber, grosse Konzerne kaufen diese Daten für Millionen von Euro oder Dollar. Und in den Dossiers
+steht alles drin: Ob Sie zuverlässig sind oder depressiv, ob Sie Eigenheimbesitzer sind, wie gross Ihre Familie ist,
+wie hoch Ihr Finanzbedarf ist, ob Sie Kredite haben. Ob Sie gesund sind. Welche sexuelle Orientierung Sie
+haben, ob Sie beispielsweise lieber einen jungen oder einen alten Ehepartner haben. Nur ein Beispiel: Wenn Sie
+männlich sind und auf Facebook Britney Spears oder ‹Desperate Housewives› liken, dann schliessen die
+Computerprogramme, die Algorithmen von Facebook, dass Sie mit hoher Wahrscheinlichkeit homosexuell
+sind. Die Menschen drücken ‹like› bei Facebook, und ihnen ist gar nicht klar, dass diese ‹Likes› zusammengeführt und neue Informationen daraus abgeleitet werden.
+
+**Nun gibt es allerdings Menschen, die sich dem Digitalen verweigern – und bedacht sind, möglichst wenige**
+**Spuren im Internet zu hinterlassen. Nützt das?**
+Relativ wenig. Das ist leider so. Ich rate den Menschen zwar, datensparsam zu sein: Je weniger Daten Sie von
+sich preisgeben, desto weniger lässt sich über Sie herauslesen. Aber wenn Sie das Internet benutzen, hinterlassen
+Sie Spuren. Ausserdem geht die Tendenz in die Richtung, dass immer mehr Daten nicht kooperativ, nicht freiwillig erhoben werden. Das Problem beginnt schon bei den Cookies. Die geben ihrem Computer eine unverwechselbare ID, eine unverwechselbare Kennzeichnung. Und damit sind Sie durch das ganze Internet hindurch
+verfolgbar. Facebook folgt Ihnen beispielsweise durch das gesamte Netz, da müssen Sie nicht einmal bei Facebook angemeldet sein. Und so entsteht ein digitaler Zwilling im Internet. Das können Sie gar nicht vermeiden.
+Und Sie wissen nicht einmal, ob diese Daten richtig oder falsch sind! Sie kennen Ihr eigenes Dossier nicht.
+
+**Die Technologie, die zur Anwendung kommt, kommt aus der Rüstungsindustrie.**
+Richtig. In der Rüstungsindustrie sind diese Technologien schon in den 1990er-Jahren zum Einsatz gekommen,
+hauptsächlich in Form der sogenannten Multisensor-Datenfusion. Informationen werden erzeugt, und auf
+Basis dieser Informationen wird Kontrolle erzeugt, wird steuernd eingegriffen. Diese Methoden sind vom
+Militär in die Wirtschaft gelangt. Dort werden sie nun verfeinert und ausgebaut, mit immensen Investitionen.
+Google hat für Forschung und Entwicklung ein jährliches Budget von sechs bis sieben Milliarden Dollar. Im
+Übrigen gibt es enge personelle Verschränkungen zwischen dem Pentagon und Google …
+
+**Und Europa ist von den USA abhängig, und wie die USA agieren, hat ja unter anderem Edward Snowden**
+**hinreichend aufgezeigt …**
+Wir sind vollkommen abhängig von US-amerikanischen Technologien! Die meisten von uns haben ein iPhone
+oder vielleicht noch ein Samsung, aber da ist Google Android drauf, und sie nutzen Whatsapp und Facebook
+und Amazon. Die sind alle im Silicon Valley ansässig, kommen aus einem komplett anderen Rechts- und Verfassungsverständnis, und dieses andere Verständnis ist ja in den Produkten mit implementiert. Übrigens: China
+hat sich von den USA unabhängig gemacht, hat eigene Technologien entwickelt. Die chinesischen Produkte sind
+genauso gross wie die der Amerikaner. Aber wir nutzen sie nicht, weil wir der chinesischen Zensur zu Recht
+misstrauen. Aber bei US-Produkten haben wir gar keine Bedenken – obwohl spätestens seit Snowden allgemein
+bekannt ist, in welchem Ausmass überwacht wird. Das nehmen wir einfach hin. Das ist komisch.
+
+**Das erschreckende Zukunftsszenario, das George Orwell in 1984 entworfen hat, ist also längst Realität geworden?**
+**Mit dem Unterschied, dass der Mensch heute unbemerkt überwacht wird?**
+Ganz genau. Die digitale Revolution ist eine stille Revolution. Und das Stille ist das Gefährliche. Denn wir
+merken gar nicht, was da schleichend vor sich geht, bis es dann so weit gekommen ist, dass wir in unserem
+eigenen Leben eigentlich gar nicht mehr viel zu sagen haben werden. Wir werden unsere Lebensentwürfe nicht
+mehr leben können, weil diese Überwachung unsere Souveränität so einschränkt, dass wir uns nicht mehr
+bewegen werden können. Das ist das Zukunftsszenario, in das wir steuern. Vielen Dank für das Gespräch!
+_Quelle:_ _https://de.sott.net/article/30190-Orwells-Realitat-durch-digitale-Gerate-Wir-werden-schlimmer-als-von-der-Stasi-_
+_uberwacht_
+
+
+-----
+
+### Ein längst vergessenes Gefühl ist wieder da – sag ich es oder lass ich es?
+_Veröffentlicht am 5. Juli 2017 von conservo; (www.conservo.wordpress.com); Von Reiner Schöne *)_
+
+Jeder, der aus der Ex-DDR gekommen ist, weiss, was hier gemeint ist. Es ist das Unbehagen etwas zu tun, weil
+man nicht weiss, wer sich am anderen Ende befindet.
+Herr Maas kann sich freuen, seine Art von Demokratie und Freiheit hat sich durchgesetzt. Mit seinen neuen
+Gesetzen, Menschen in Deutschland zu überwachen und Strafe dranzuhängen, bringt er ein Gefühl wieder, was
+man als DDR Flüchtling längst vergessen hatte.
+Das Gefühl, unsicher zu sein, wenn fremde Menschen einen ansprechen und politisch gleich loslegen.
+Heute bekam ich eine ‹Freundschaftsanfrage› auf Facebook, gut diese Seite ist umstritten, und gesperrt wurde ich
+auch schon zweimal, aber man bleibt halt doch, schon aus Protest. Diese ‹Freundschaftsanfrage› war ein Mann,
+auf seiner Facebook-Seite war aber nichts zu lesen, weder wo er wohnt, keine Schulbildung, rein gar nichts.
+Und da war es wieder. Klickt man auf ok, oder lässt man es lieber? Wer weiss, wer dahinter steckt. Stasi-Maas
+oder seine ‹Freunde›? Wer schickt einem Kritiker der heutigen Deutschland-Politik eine Freundschaftsanfrage,
+ohne sich zu erkennen zu geben? Kahane, Maas, eine im Stillen arbeitende politische Polizei? Wer könnte
+dahinter stecken?
+Seit über 30 Jahren war dieses Gefühl nie wieder aufgetreten, und nun, mit den ganzen Vorzeichen einer neuen
+Überwachung, einer neuen Stasi-Zentrale, war es wieder da, das Gefühl der Unsicherheit darüber, wer steckt
+dahinter.
+Soweit sind wir schon, soweit hat man uns getrieben. Wir haben uns geschworen, als wir in der Bundesrepublik
+ankamen, nie wieder lassen wir uns den Mund verbieten, von niemandem, weder einer Regierung, noch einzelnen
+Menschen. Vorbei, wir haben, Redefreiheit, Meinungsfreiheit, Pressefreiheit. Aber das Gefühl kam, die Unsicherheit kam.
+Der Maas macht mobil, Brüder zur Sonne, zur Freiheit, hinter Gitter.
+Deutschland hat den Pfad der Demokratie schon wieder verlassen und ist singend und freudestrahlend auf dem
+Weg zur Diktatur. In der Hand die rote Fahne, ein Rotfront-kämpferisches Lied auf den Lippen, und trägt mit
+lautem Geschrei und Freude die Demokratie zu Grabe
+***) Reiner Schöne ist Unternehmer im Gesundheitssektor und regelmässig Kolumnist bei conservo. Er betreibt das eigene**
+**Blog https://nachtgespraechblog.wordpress.com/**
+_Quelle: https://conservo.wordpress.com/2017/07/05/ein-laengst-vergessenes-gefuehl-ist-wieder-da-sag-ich-es-oder-lass-ich-es/_
+
+### Psychiater: «Seit 1995 werden Kinder zu unfähigen Erwachsenen erzogen»
+_Von Anna Samarina; Aktualisiert: 12. Juli 2017 16:54_
+Kinder werden zu unfähigen Erwachsenen erzogen – und das seit mehr als 20 Jahren, meint der Kinderpsychiater
+Michael Winterhoff. Er fordert Eltern zu mehr Gelassenheit und weniger Medienkonsum auf. Nur so könne
+eine Generation entstehen, die ihrem Leben gewachsen ist.
+Kinder werden zu unfähigen Erwachsenen erzogen – und das ist in Deutschland seit mehr als 20 Jahren Normalität geworden.
+«Ich sehe seit dem Jahr 1995 eine Tendenz, dass Eltern die Launen ihrer Kinder immer weniger ertragen und
+ihnen einfach schnell das geben, was sie wollen, damit sie ruhig sind», erklärt der Kinderpsychiater Michael
+Winterhoff im Interview mit ‹Business Insider›. 1995 war das Jahr, in dem die digitale Revolution eingesetzt
+habe, so Winterhoff. Die digitale Welt sei schuld: Sie überlaste die Eltern und verhindere, dass sie ihre Kinder
+auf das Leben vorbereiten, meint der Psychiater.
+«Erwachsene agieren heutzutage nicht mehr. Sie reagieren nur. Auf ihr Smartphone, auf ihr Tablet, auf ihren
+Computer, auf ihr Kind. Und sie reagieren sofort», so Winterhoff. Auf diese Weise lernen die Kinder nicht, dass
+man im Leben nicht sofort alles bekommen kann, was man sich wünscht und dass man auch mal warten muss,
+erklärt Winterhoff.
+Die Eltern befänden sich wegen der dauernden Reizüberflutung in einem ständigen ‹Katastrophenmodus› und
+versuchten ihre Kinder möglichst schnell zu beruhigen. «Im schlimmsten Fall setzt man sie noch vor den Fernseher oder vor ein Tablet, dann sind sie für mehrere Stunden beschäftigt», beklagt der Kinderpsychiater.
+
+
+-----
+
+Den Kindern sofort die Sachen zu geben, die sie sich wünschen, sei ein gefährlicher gesellschaftlicher Trend, so
+Winterhoff.
+
+#### Psychische und körperliche Probleme bei übermässigem Medienkonsum
+In einer BLIKK-Medien-Studie (Bewältigung, Lernverhalten, Intelligenz, Kompetenz, Kommunikation) von
+November 2016 heisst es, dass seit Jahren «erhebliche Missbrauchstendenzen im Umgang mit digitalen Medien»
+unter Kindern und Jugendlichen zu verzeichnen sind.
+75 Prozent der 2- bis 4-Jährigen in Deutschland spielen bereits 30 Minuten lang mit dem Smartphone (BLIKKMedien-Studie 2016). Die übermässige ‹digitale Mediennutzung› führe zu psychischen, kognitiven und körperlichen Problemen, heisst es in der Studie.
+Die fehlende Nutzungskompetenz von digitalen Medien führe zu Entwicklungs-Auffälligkeiten bei Kindern,
+sagt der Arzt für Nervenheilkunde und Psychotherapie in Köln, Prof. Dr. Rainer Riedel. Auch hätten Kinder, die
+viel Zeit in der digitalen Welt verbringen, einen höheren Body Mass Index und würden mehr Süssgetränke
+konsumieren, so Riedel.
+Auch habe die frühe und übermässige Nutzung der digitalen Medien negative Auswirkungen «auf die Sprachentwicklung, die schulischen Fertigkeiten, insbesondere der Rechtschreibung und auf die Konzentrationsfähigkeit» der Kinder, erklärt Dr. Uwe Büsching, Kinder- und Jugendarzt, Mitglied des Vorstandes BVKJ.
+
+#### Keine Frustrationstoleranz bei Kindern …
+Die elterlichen Verhaltensweisen und der übermässige Medienkonsum führen schliesslich dazu, dass Kinder
+keine Frustrationstoleranz entwickeln können, erklärt Winterhoff.
+Die Frustrationstoleranz ist eine Fähigkeit, mit der Menschen Situationen aushalten, die ihnen nicht gefallen –
+wie z. B. stundenlang in einem Stau stehen, ohne auszurasten oder jahrelang auf ein Ziel hinarbeiten, ohne aufzugeben.
+Diese Fähigkeit sei Menschen aber nicht in die Wiege gelegt, sondern müsse entwickelt und erworben werden.
+«Die Frustrationstoleranz sollte bei Kindern schon ab dem achten oder neunten Monat ausgebildet werden»,
+sagt Winterhoff. Ab diesem Alter sollte das Baby also lernen, dass es nicht sofort alles erhält, wenn es nur laut
+genug schreit, sondern auch mal warten muss.
+«Davor ist das sinnlos. Wenn Babys schreien, dann wollen sie nun einmal sofort etwas trinken oder in den Arm
+genommen werden», so Winterhoff.
+
+
+#### … Folge: Arbeits- und lebensunfähige Erwachsene
+Wenn die Eltern ihre Babys nach dem achten Monat weiterhin verwöhnen, werde es sich nicht nur negativ auf
+die Kindheit auswirken, sondern auch fatale Folgen für das Erwachsenenalter haben.
+«Wir haben jetzt schon fast 60 Prozent an jungen Erwachsenen, die nicht arbeits- und lebenstüchtig sind und
+es werden in naher Zukunft sicher noch mehr», meint der Psychiater.
+
+#### Bildungssystem unterfordert Kinder
+Nicht nur die Eltern würden diesen Zustand fördern, sondern auch das heimische Bildungssystem, das die
+Kinder unterfordere.
+«Alles in der Schule muss nach Lust und Laune erlebt werden, die Lehrer werden als Lernbegleiter bezeichnet
+und keiner zeigt den Kindern, dass man auch mal stillsitzen und zuhören muss», beklagt Winterhoff.
+
+#### Für mehr Gelassenheit: Rückzugsorte von der digitalen Welt
+Alle, die Kinder erziehen – seien es Eltern, Grosseltern, Lehrer – sollten für einige Stunden in der Woche
+abschalten und dadurch gelassener werden. Sie bräuchten ‹Rückzugsorte›: «Das ist für den einen Yoga, für den
+anderen die Kirche oder der Wald. Hauptsache, man zieht sich für ein paar Stunden in der Woche aus der schnellen
+digitalen Welt zurück», empfiehlt Winterhoff.
+Auf diese Weise könnten Erwachsene ihre ‹Intuition› wiedererlangen, dank der sie wissen, wann sie einem Kind
+das geben, was es benötigt – und wann sie es einfach schreien lassen sollten, erklärt der Kinderpsychiater.
+Auch Kinder sollten von der digitalen Welt abschalten können. Eltern sollten solche ‹digitalfreie› Räume für ihre
+Kinder schaffen – nur so könne die gefährliche gesellschaftliche Tendenz gestoppt werden, meint Winterhoff in
+seinem Buch «Die Wiederentdeckung der Kindheit›.
+
+
+-----
+
+#### «Einer ungesunden Nutzung digitaler Medien» entgegenwirken
+Auch der Arzt für Nervenheilkunde und Psychotherapie, Prof. Dr. Rainer Riedel von der BLIKK Medien-Studie
+tendiert dazu, denn nur durch die Unterstützung der Eltern könne ‹einer ungesunden Nutzung digitaler
+Medien› entgegengewirkt werden:
+«Wir erkennen, dass Eltern und Kinder eine digitale Medien-Kompetenz erwerben müssen, um sicherzustellen,
+dass heranwachsende Kinder einen guten Umgang mit digitalen Medien ohne mögliche negative gesundheit liche Auswirkungen oder Einschränkungen der Lebensqualität im beruflichen und privaten Umfeld entwickeln.
+Ausserdem ist bei Kindern mit bestimmten Risikofaktoren für die Entwicklung eines missbräuchlichen oder
+suchtartigen Umgangs mit digitalen Medien besondere Aufmerksamkeit und Unterstützung der Eltern geboten,
+um möglichst frühzeitig einer ungesunden Nutzung digitaler Medien entgegenzuwirken.» (Prof. Dr. Rainer
+Riedel, Arzt für Nervenheilkunde und Psychotherapie)
+_Quelle: http://www.epochtimes.de/politik/deutschland/psychiater-seit-1995-werden-kinder-zu-unfaehigen-erwachsenen-erzogen-_
+_a2163762.html?meistgelesen=1_
+
+### «Mir droht die Todesstrafe»: Migranten erfinden Verbrechen, um in Deutschland bleiben zu können
+_Epoch Times; Aktualisiert: 5. Juni 2017 5:33_
+Um nicht abgeschoben zu werden, erfinden Asylbewerber schwere Straftaten: In ihrem Heimatland drohe ihnen
+die Todesstrafe, so ihre Argumentation. Das Phänomen verbreitet sich seit einigen Monaten.
+Wenn im Heimatland die Todesstrafe droht, gilt dies in Deutschland als Abschiebehindernis. Immer öfter gestehen Zuwanderer, in ihrem Heimatland schwere Straftaten begangen zu haben – häufig sind die Geschichten
+aber nur erfunden.
+In nahezu allen Staatsanwaltschaften Nordrhein-Westfalens habe es schon Ermittlungen nach derartigen Behauptungen gegeben, erklärte etwa ein Sprecher des NRW-Justizministeriums. Weitere Fälle vermelden auch
+Bayern, Hessen und Sachsen.
+Allein bei der Staatsanwaltschaft Düsseldorf wurden seit Jahresbeginn etwa 20 solcher Verfahren eingeleitet.
+Spätestens vor dem Haftrichter räumten die Asylbewerber dann aber ein, sich das Verbrechen nur ausgedacht
+zu haben, sagte ein Düsseldorfer Staatsanwalt.
+
+#### Mindestens 150 Fälle seit Sommer 2016
+Das Justizministerium und der Generalstaatsanwalt in München sprechen von ‹mindestens 150 Fällen zwischen
+Sommer 2016 und April 2017› in der Landeshauptstadt. Allein bei der Staatsanwaltschaft München I sind demnach mehr als 40 Strafanzeigen eingegangen, in denen Asylbewerber Tötungsdelikte im jeweiligen Herkunftsland gestanden haben. Besonders häufig geben Flüchtlinge zudem an, politischen Gruppierungen wie etwa der
+Terrormiliz IS anzugehören.
+
+#### «Reflex auf Flüchtlingsablehnungs-Politik»
+Laut dem Geschäftsführer des Flüchtlingsrats Schleswig-Holstein, Martin Link, müssen solche Fälle möglicherweise auch als Reflex auf ‹die zunehmend restriktive deutsche und europäische Flüchtlingsablehnungs-Politik›
+verstanden werden.
+«Wenn die katastrophale Wirklichkeit bestehender Verfolgungstatbestände und Kriegsgräuel schon nicht ausreicht, Flüchtlingsschutz zu erhalten (…), dann versuchen Betroffene in ihrer Not andere Wege», erklärte Link.
+Solche «irregeleiteten individuellen Strategien, im Asylverfahren irgendwie zu bestehen» seien demnach von
+deutscher Politik und Verwaltungspraxis auch hausgemacht.
+Von der Frankfurter Staatsanwaltschaft heisst es, etwa seit November 2016 sei die Zahl der Flüchtlinge gestiegen,
+die in ihrem Asylverfahren schwere Straftaten gestehen. «Allein bei der politischen Abteilung gibt es derzeit
+mehr als 60 Fälle, dazu noch einige allgemeine», sagte Oberstaatsanwältin Nadia Niesen. Bei jedem derartigen
+Geständnis müsse wegen des Verdachts einer schweren Straftat ermittelt werden.
+
+#### Raubmord, Mord, politische Verbrechen
+Meist werden Niesen zufolge politische Straftaten eingeräumt. So habe ein Flüchtling berichtet, er sei von den
+radikalislamischen Taliban verschleppt worden und habe einen seiner Bewacher bei der Flucht getötet.
+
+
+-----
+
+In einem anderen Fall habe ein Flüchtling erklärt, er habe als Heranwachsender einen Raubmord begangen.
+In Nordrhein-Westfalen behauptete ein Asylbewerber aus Westafrika, er habe in seiner Heimat den Liebhaber
+seiner Schwägerin erschossen, als er sie beim Seitensprung ertappt habe. In seinem Dorf erwarte ihn nun die
+Rache der Familie des Erschossenen sowie die Todesstrafe.
+Erst vor der Haftrichterin – als ihm klar wurde, dass er dafür auch hierzulande ins Gefängnis kommt – räumte
+er unter Tränen ein, sich die Geschichte nur ausgedacht zu haben. In Wirklichkeit habe er nicht einmal eine
+Schwägerin.
+Sachsens Justizminister Sebastian Gemkow warnte vor falschen Angaben in Asylverfahren. «Jedem, der ein
+falsches Geständnis abgibt, muss klar sein, dass er auch dafür mit strafrechtlichen Konsequenzen rechnen
+muss», sagte der CDU-Politiker. (dpa)
+_Quelle: http://www.epochtimes.de/politik/deutschland/mir-droht-die-todesstrafe-migranten-erfinden-verbrechen-um-in-deutsch-_
+_land-bleiben-zu-koennen-a2134661.html_
+
+### Flüchtlinge aus Rakka: US-Koalition wütete schlimmer als IS, manche Dörfer komplett ausgelöscht
+_RT Deutsch; Fr, 21 Jul 2017 10:23 UTC_
+_Zivilisten, denen die Flucht aus dem hart umkämpften Rakka gelungen ist, beschreiben unglaublich grausame Zu-_
+_stände und Massaker. Besonders schwer liegen die Vorwürfe auf der US-Koalition. Diese würde alles, ohne Rücksicht_
+_auf Verluste, bombardieren, berichten die Binnenflüchtlinge._
+«Ich bin aus Rakka gekommen. In Rakka ist nichts übrig geblieben, ausser der Zerstörung durch die Koalition
+und den IS, **aber die Luftangriffe der Koalition haben mehr angerichtet. Einige Dörfer wurden komplett**
+**ausgelöscht», sagt einer von ihnen. Ein anderer Mann behauptet: «In jedem Dorf gab es ein Massaker, ohne**
+Ausnahme, die Massaker fanden in allen von ihnen statt. Hunde frassen die Leichen, denn es gab niemanden,
+der sie abholte.»
+Ähnlich beschreiben es andere Menschen aus Rakka: «Die Koalition hat einfach auf alle gezielt. Alle Dörfer
+wurden angegriffen. Kein Dorf wurde verschont. Leute verloren ihre Häuser, andere verloren ihre Kinder.»
+Selbst die Schulen wurden laut einem Mann bombardiert: «Die Strassen sind mit Leichen übersät, die Schulen
+wurden angegriffen, auch die Brücken und Moscheen.»
+Die Menschen flüchteten nach Hama und warten dort in den Strassen darauf, dass die Hilfe der syrischen
+Regierung beginnt. Sie soll ihnen Unterkünfte und humanitäre Hilfe leisten.
+Rakka gilt als Kommandozentrale und wichtigster militärischer Stützpunkt der Terrororganisation IS. Ende Mai
+startete ein kurdisch geführtes Militärbündnis eine Grossoffensive auf die Stadt. Unterstützt werden sie aus der
+Luft von den USA.
+_Quelle: https://de.sott.net/article/30316-Fluchtlinge-aus-Rakka-US-Koalition-wutete-schlimmer-als-IS-manche-Dorfer-kom-_
+_plett-ausgeloscht_
+
+**Die Kämpfer von Hayat Tahrir al-Sham haben am Sontag die syrische Stadt Idlib unter Kontrolle gestellt, wo-**
+**bei sie eine mit ihnen konkurrierende Gruppierung zurückgedrängt haben. Dies meldet Al Jazeera unter Be-**
+**rufung auf die Syrische Beobachtungsstelle für Menschenrechte.**
+
+
+-----
+
+Die bewaffnete Gruppe Hayat Tahrir al-Sham, ‹in der eine ehemalige Filiale von Al-Qaida dominiert›, habe
+demnach die Kontrolle über die Stadt Idlib in Nordsyrien erlangt.
+Zuvor sollen die Kämpfer der gegnerischen Gruppierung Ahrar al-Sham, die mit der ehemaligen Dschabat alNusra-Front und den Gruppen der Freien Syrischen Armee verbündet ist, die Stadt verlassen haben. Al Jazeera
+zufolge geniesst diese Gruppierung die Unterstützung der Türkei und einer Reihe von Golf-Staaten.
+Die Kämpfer von Hayat Tahrir al-Sham und Ahrar al-Sham sollen innerhalb von einer Woche aufeinander
+geschossen haben. Dabei seien mindestens 90 Menschen, darunter auch 15 Zivilisten, getötet worden sein. Laut
+den Meldungen soll es eine Reihe von Explosionen gegeben haben, deren Ziel die Kämpfer von Hayat Tahrir alSham waren.
+Die Kämpfe seien beendet worden, wobei ein Waffenstillstand geschlossen worden sei, nach dem «Hunderte
+Kämpfer die Stadt mit Dutzenden Fahrzeugen verlassen haben.»
+_Quelle: https://de.sputniknews.com/panorama/20170724316719221-syrien-idlib-hayat-tahriral-sham/_
+
+### Ehemaliger Polizist: «Angela Merkel, das Schlimmste, das Deutschland und Europa jemals passieren konnte»
+_21. Juli 2017 dieter; von Tim Keller (jouwatch)_
+
+Liebe Bundesregierung
+Ich schalte den Fernseher ein und ich sehe ‹Flüchtlinge›. Ich schlage die Zeitung auf und ich lese ‹Flüchtlinge›. Ich
+gehe online und ich sehe Werbebanner, in dem die deutsche Wirtschaft für was wirbt? Richtig, für ‹Flüchtlinge›.
+Ich gehe durch meinen Heimatort spazieren und ich sehe ‹Flüchtlinge›. Ich fahre mit dem Auto und sehe am
+Strassenrand in Pulks laufen: ‹Flüchtlinge›. Ich habe die Schnauze voll. Was habt Ihr uns da eigentlich angetan?
+Wer von uns wurde gefragt, ob er das alles möchte und gut heisst? Wer oder was seid Ihr überhaupt? Ihr seid unsere
+Angestellten. Nicht mehr und nicht weniger. Ihr seid angestellt und temporär legitimiert, unsere Interessen zu vertreten. Womit wir beim Punkt sind: UNSERE Interessen!
+Ist es im Interesse der Bevölkerung, dass Hunderte von Milliarden an Griechenland verschenkt wurden? Ist es im
+Interesse der Bevölkerung, dass Millionen von Wirtschaftsasylanten durch offene Grenzen zu uns hineinwandern?
+Ist es im Interesse der Bevölkerung, dass fast 100 Milliarden Euro für ‹Flüchtlinge› aufgewendet werden? Was masst
+Ihr Euch eigentlich an?
+Wenn es einen Volksentscheid geben würde, so bin ich mir sicher, dass bis zu 70 Prozent gegen diese ‹Flüchtlingspolitik› stimmen würden. Ihr wisst das natürlich und deshalb gibt es ja auch keine Volksentscheide!
+Und dann spuckt Ihr dem Volk mitten ins Gesicht, indem Ihr das Kindergeld um unglaubliche 2.– Euro erhöht?
+Schämt Ihr Euch nicht?
+Ihr seid für mich eine Gemeinschaft von rückgratlosen und willfährigen Gehilfen. Ein Konglomerat von Wende hälsen, Opportunisten und Egoisten.
+Aber eines seid Ihr für mich auch in einem ganz besonderen Masse: Ihr habt die verraten, für die Ihr eigentlich da
+sein solltet und die Euch einmal ihr Vertrauen ausgesprochen haben. Jeden Tag brecht Ihr Eure Eide, in denen Ihr
+geschworen habt, dass Ihr für das Volk da sein und Schaden von ihm abwenden werdet. Ihr seid nicht für die Euren
+da, sondern in erster Linie für alles andere und für jeden Fremden.
+Die offenen Grenzen schaden unserem Land und unserer Bevölkerung. Frauen und Kinder fühlen sich nicht mehr
+sicher und werden zu Opfern von Übergriffen. Die unzähligen Milliarden, die für Fremde aufgewendet werden
+sind ein Schlag ins Gesicht für jeden, der hier wohnt, gearbeitet hat oder dem dieses Geld eher zusteht.
+
+
+-----
+
+Ihr verhöhnt uns jeden Tag und wollt, dass wir unseren Mund halten und still unserem eigenen Niedergang
+zuschauen. Eure Leute sitzen in jedem Presserat, Rundfunkbeirat, in den Chefetagen der Nachrichtensender und
+grossen Zeitungen und verbreiten das von Euch gewünschte Denken. So wollt Ihr Meinungen kreieren, beein flussen und auch unterdrücken.
+Angela Merkel, das Schlimmste, das Deutschland und Europa jemals passieren konnte.
+Sigmar Gabriel, ein ‹Schilfröhrchen›, das heute sich nach links biegt und morgen nach rechts, allerdings ohne einen
+einzigen winzigen Windhauch.
+Heiko Maas, ein Mann, der das Internet zensieren will und der möglicherweise in der Landesverrats-Affäre gegen
+Journalisten den Bundestag belogen hat.
+Innenminister De Maiziere, der so gerne anders agieren würde, aber der es nicht wagt, gegen seine ‹Königin› aufzubegehren.
+Ursula von der Leyen. Was soll man dazu noch sagen?
+Hermann Gröhe: Genau, das ist der, der wie ein bedröppelter Schuljunge zugucken musste, wie ‹Mutti› die
+Deutschlandfahnen einsammelte und von der Bühne warf.
+Wolfgang Schäuble: Das war der mit der ‹Inzucht-Aussage›.
+Peter Altmaier: Hahahaha. Peter Altmaier!
+Das waren nur ein paar Beispiele. Nicht zu vergessen aber auch Horst Seehofer, der bayrische Landesfürst, der auf
+konservativ macht und sich letztendlich von Angela wie ein Zirkusbär am Nasenring durch die Manege führen
+lässt.
+Das ist alles? Das ist wirklich alles, was Ihr zu bieten habt? Kein Einziger von Euch stellt sich der ‹Flüchtlingskrise›
+oder handelt im Sinne des eigenen Volkes.
+Das Thema ‹Flüchtlinge› ist kein temporäres Thema, es ist das Thema, das dieses Land verändern wird. Und nicht
+zum Guten. Im Gegenteil! Die Anfänge erleben wir bereits ja jetzt schon.
+Ihr wollt meine Meinung hören und ich äussere diese Meinung als ehemaliger Polizeibeamter, der 10 Jahre lang
+auf der Strasse mit eigenen Augen gesehen hat, was wirklich passiert?!: Deutschland wird nicht mehr das Deutschland sein, das wir alle kennen und in dem wir uns wohlgefühlt haben. Es wird ein anderes Land werden. Ein Land der
+sozialen Ungerechtigkeit, der inneren Spannungen und Unruhen. Ein Land, in dem sich Frauen und Kinder nicht
+mehr sicher fühlen werden und es auch nicht mehr sein werden. Ein Land, das seinen Fortschritt, seine Identität
+und auch grosse Teile seiner Kultur aufgeben wird, wenn es so weiter geht, wie es diese ‹Regierung› mit allen nur
+erdenklichen Mitteln forciert und lanciert. Und es kann mir niemand erzählen, dass diese ‹Regierung› im eigenen
+Sinne und für das Volk handelt. Ihr seid nur die ausführenden Elemente, derer, die einen ganz anderen Plan verfolgen.
+Alles das interessiert mich jedoch nicht, denn das Einzige, was mich interessiert ist das Land, in dem ich lebe und
+in dem unsere Kinder aufwachsen werden.
+Auf der Internetseite der Bundesregierung steht ‹Integration, die allen hilft. Deutschland kann das.›
+Ich hingegen erwidere Euch: Remigration (Ausweisung von Wirtschaftsasylanten, religiösen Fanatikern, Straf tätern und potentieller Terroristen), die uns allen wirklich hilft. Deutschland kann das!
+Kein Teil des Systems!
+Tim K.
+_Quelle: http://krisenfrei.de/ehemaliger-polizist-angela-merkel-das-schlimmste-das-deutschland-und-europa-jemals-passieren-_
+_konnte/_
+
+### Russland schliesst Abkommen mit Rebellen über Deeskalationszone bei Damaskus
+_Epoch Times; 22. July 2017_
+Es wurde ein weiterer Waffenstillstand in Syrien erreicht, dieser gilt in Idlib, Homs und im Süden des Landes.
+Russland einigte sich mit den entsprechenden Rebellengruppen vor Ort.
+Die syrische Armee hat am Samstag ein Ende der Kämpfe in der von ihr belagerten Rebellenhochburg OstGhuta bei Damaskus angekündigt. Die Streitkräfte würden aber auf jede Verletzung der Waffenruhe reagieren,
+hiess es in einer Erklärung. Stunden zuvor hatte Moskau zu Ost-Ghuta mitgeteilt, es habe sich mit Rebellen auf
+Einzelheiten zu einer von vier geplanten Deeskalationszonen in Syrien geeinigt. Für die Region Idlib erzielten
+zwei verfeindete islamistische Gruppen eine Waffenruhe.
+Die syrische Armee teilte mit, der Waffenstillstand gelte für ‹einige Gebiete› von Ost-Ghuta – welche genau, gab
+
+
+-----
+
+die Armee nicht bekannt. Das russische Verteidigungsministerium teilte mit, das Abkommen für Ost-Ghuta sei
+nach Gesprächen unter Vermittlung Ägyptens in Kairo unterzeichnet worden.
+Russland, die Türkei und der Iran hatten sich im Mai auf die Einrichtung von vier sogenannten Deeskalationszonen in Syrien verständigt. Sie sollen von Rebellen kontrollierte Gebiete in Ost-Ghuta, den Provinzen Idlib
+und Homs sowie im Süden des Landes umfassen. In ihnen sollen eine Flugverbotszone sowie eine Waffenruhe
+zwischen Regierung und Rebellen gelten. Verhandlungen der drei Garantiemächte über Detailfragen waren bei
+Gesprächen im kasachischen Astana aber zuvor ergebnislos verlaufen.
+
+#### Einigung mit ‹gemässigten› Rebellen
+Nach Angaben Moskaus wurde in Kairo nun eine Einigung mit ‹gemässigten› Rebellen erzielt. Sie betrifft den
+Zuschnitt der Deeskalationszone in Ost-Ghuta und die Stationierung von Soldaten zur Überwachung der Vereinbarungen. Zudem seien Routen für Hilfslieferungen und die Ausreise von Zivilisten festgelegt worden. In
+den ‹kommenden Tagen› sollen demnach die ersten humanitären Konvois und der Abtransport von Verletzten
+organisiert werden. Ein weiteres Treffen der drei Garantiemächte mit Rebellen in Astana sei für die ‹letzte
+Augustwoche› vorgesehen.
+In der Provinz Idlib, wo nun eine Waffenruhe zwischen zwei Gruppierungen vereinbart wurde, hatten sich
+zuletzt vier Tage lang die beiden mächtigsten islamistischen Rebellenorganisationen im Nordwesten Syriens
+bekämpft. Es handelt sich um die von der Türkei und von Golfstaaten unterstützte Gruppe Ahrar Al-Scham
+sowie um die Gruppe Tahrir Al-Scham, die aus dem syrischen Ableger von Al-Kaida hervorgegangen ist. Die
+Provinz Idlib ist eine der letzten vollständig von Rebellen kontrollierten Regionen in Syrien.
+Die beiden islamistischen Gruppen hatten einander bereits Anfang des Jahres bekämpft. Zuvor hatten sie sich
+miteinander verbündet, um die syrische Armee aus der Region zu vertreiben. Tahrir Al-Scham wird von der
+Fateh-al-Scham-Front dominiert, die früher unter dem Namen Al-Nusra-Front firmierte.
+Syrien-Experten zufolge befürchtete die international als Terrororganisation eingestufte Gruppe Tahrir Al-Scham
+aus der Provinz Idlib vertrieben zu werden. Der Syrischen Beobachtungsstelle für Menschenrechte zufolge
+wurden bei den ‹bisher gewalttätigsten Kämpfen› zwischen den beiden Gruppen seit Dienstag 92 Menschen
+getötet, darunter 15 Zivilisten. Die in Grossbritannien ansässige Beobachtungsstelle bezieht ihre Informationen
+über ein Netz von Aktivisten in Syrien. Ihre Angaben können von unabhängiger Seite nur schwer überprüft
+werden.
+Die Gefechte zwischen den beiden Rebellengruppen begannen, nachdem Kämpfer der Gruppe Ahrar Al-Scham
+ihre Flagge in der Stadt Idlib hissten. Die jetzt erzielte Einigung sieht ausser dem Waffenstillstand, die Freilassung
+von Gefangenen beider Seiten vor. Ausserdem sollen die bewaffneten Gruppen ihre Kämpfer vom Übergang
+Bab al-Hawa an der Grenze zur Türkei abziehen.
+Unterdessen rechtfertigte ein hoher US-Militär die Entscheidung der USA, die Unterstützung für die syrischen
+Rebellen zu beenden. Der Schritt sei nach eingehender Prüfung erfolgt, sagte der Chef der Sondereinsatzkräfte
+der US-Armee, General Tony Thomas. Er bestätigte damit im Grundsatz einen Bericht der ‹Washington Post›,
+wonach der verdeckte Einsatz zur Unterstützung der Gegner des syrischen Präsidenten Baschar al-Assad nur
+eine eingeschränkte Wirkung gehabt habe und deswegen gestoppt worden sei. (afp)
+_Quelle: http://www.epochtimes.de/politik/welt/russland-schliesst-abkommen-mit-rebellen-ueber-deeskalationszone-bei-damas-_
+_kus-a2172456.html_
+
+_10:55 14.07.2017 (aktualisiert 14:09 14.07.2017)_
+
+
+-----
+
+**Die USA arbeiten an der Erweiterung der Feuereinstellungszone in Syrien und an einem weiteren Abkommen**
+**über eine Waffenruhe. Dies erklärte laut Bloomberg Donald Trump.**
+Der US-Präsident betonte, dass das zuvor unter Beteiligung von Russland und den USA über die Waffenruhe
+im Südwesten Syriens abgeschlossene Abkommen ‹viele Leben› gerettet habe.
+**_«Wir arbeiten an dem zweiten Abkommen über den Waffenstillstand in dem Teil Syriens, wo die Situation sehr_**
+**_schwierig ist», erklärte der US-Präsident auf der Pressekonferenz nach dem Treffen mit seinem französischen_**
+**_Amtskollegen Emmanuel Macron. «Wenn wir es abschliessen werden, und danach noch mehrere, dann werden_**
+**_Sie in Syrien keine Schüsse mehr hören. Und das wäre grossartig», schloss der Präsident._**
+Von dem Abschluss des Abkommens über den Waffenstillstand im Südwesten Syriens wurde am 7. Juli nach
+den russisch-amerikanischen Verhandlungen berichtet. Am 9. Juli war der Waffenstillstand in Kraft getreten,
+was sowohl von den Vertretern der bewaffneten Opposition als auch von den Quellen in Damaskus bestätigt
+wurde. Das Zentrum für Waffenstillstands-Monitoring soll gemäss dem Abkommen in der Hauptstadt von
+Jordanien, Amman, eingerichtet werden.
+Kurz nach dem Abschluss des Abkommens hat man es im US-Aussenministerium als einen ‹Übergangsschritt›
+auf dem Weg zu einem breiteren und längeren Waffenstillstand auf dem Territorium in ganz Syrien bezeichnet.
+Detailliertere Waffenstillstandsbedingungen und allgemeine Fragen der Deeskalation des Konflikts sollen
+während der nächsten Verhandlungsrunde in Astana erörtert werden, erklärte der US-Aussenamtssprecher.
+_Quelle: https://de.sputniknews.com/politik/20170714316590437-abkommen-waffenstillstand-monitoring-verhandlungen/_
+
+#### Wahlbeobachter bei der deutschen Bundestagswahl – Zeichen einer defekten Demokratie
+### Willkommen in der Bananenrepublik
+_20. Juli 2017 Standpunkte; von Rama (Eigenes Werk) Von Jan Ackermeier_
+**Wahlbeobachtungen durch internationale Institutionen kennt man sonst nur aus Ländern, in denen demo -**
+**kratische Spielregeln noch in den Kinderschuhen stecken. Doch offenbar entwickeln sich auch ‹Musterdemo-**
+**kratien› wie Deutschland allmählich zu Bananenrepubliken und defekten Demokratien. Dieser Verdacht liegt**
+**immerhin nahe, wenn man hört, dass die Organisation für Sicherheit und Zusammenarbeit in Europa**
+**(OSZE) Wahlbeobachter zur Bundestagswahl im September entsenden wird.**
+Wer in den letzten Jahren Wahlen – nicht nur in Deutschland – verfolgt hat, den beschleicht der leise Verdacht,
+dass es die Auszähler und ihre Gehilfen in den Wahlbehörden mit der freien, geheimen und gleichen Wahl nicht
+immer so genau nehmen. Schon bei der letzten Bundestagswahl war das Ergebnis von 4,7 Prozent für die
+Alternative für Deutschland (AfD) so nah an der Fünf-Prozent-Hürde, dass man bei Kenntnis der enormen
+Sympathien für die neue Kraft in den Wahlbehörden, immerhin angebracht ist, sich zu wundern.
+
+#### Unregelmässigkeiten bei NRW-Wahl
+Doch es gibt auch jüngere Beispiele: So kam es etwa bei der jüngsten Landtagswahl im bevölkerungsreichsten
+Bundesland Nordrhein-Westfalen zu etlichen Vorfällen im Zusammenhang mit Auszählungen von Stimmen
+der AfD. Man ist versucht zu schmunzeln, wenn man in Kenntnis dieser Vorgänge dann von Vertretern der
+OSZE hört, dass es für die Entsendung von Wahlbeobachtern keine ‹innerdeutsche Gründe› gebe. Da man sonst
+in Asien und Osteuropa Wahlen beobachte, wolle man nun einen ‹gewissen Ausgleich› schaffen. Natürlich! Ist
+alles ganz harmlos!
+
+#### Echte Demokratie braucht Wachsamkeit
+Dabei ist das genaue Gegenteil der Fall: Die zunehmende Polarisierung innerhalb der Gesellschaft, vor allem
+wenn es gegen Patrioten und mahnende Stimmen geht, gefährdet den friedlichen Wettstreit der Ideen. Die
+Stiefeltruppen der Antifa, die gegen Wahlkampfstände von patriotischen Parteien nicht nur in Deutschland,
+aufmarschieren, sind eines der Zeichen, dass im politischen Klima unserer Demokratien schon lange etwas
+falsch läuft. Es ist daher hoch an der Zeit, dass das vielbemühte Bild der ‹Wachsamkeit› gegen totalitäre Anfänge
+wirklich umgesetzt wird. Dazu braucht es aber nicht unbedingt Wahlbeobachter der OSZE. Jeder kritische
+Bürger könnte etwa bei der Auszählung der Stimmzettel anwesend sein und würde damit die Möglichkeit von
+Wahlbetrug reduzieren. Man muss nicht nur den Mächtigen auf die Finger schauen, sondern auch manchmal
+seinen oft durch übermässigen Genuss von Regierungsmedien gehirngewaschenen Mitbürgern.
+_Quelle: http://info-direkt.eu/2017/07/20/willkommen-in-der-bananenrepublik/_
+
+
+-----
+
+### Ist Deutschland von der Rolle?
+_Von Willy Wimmer; Veröffentlichungsdatum: 22 07 2017, 15:38_
+**Der Unterschied könnte nicht grösser sein. Gerade erst wurde Bundeskanzler Dr. Helmut Kohl zu Grabe**
+**getragen. Irgendwie schien das Land, das dem Toten unendlich viel zu verdanken hatte, es eilig dabei zu**
+**haben, das militärische Zeremoniell vor dem Dom zu Speyer durchzuziehen.**
+Die Besucher des Trauer-Gottesdienstes waren zum Grossteil noch im Dom, da wurde draussen schon die
+Nationalhymne intoniert. Der Eindruck drängte sich auf, dass es der derzeitigen Staatsspitze nicht schnell
+genug gehen konnte. Dabei hatten diejenigen, die am Sarg des verstorbenen Bundeskanzlers Worte des Gedenkens
+gesprochen hatten, noch seine Nähe zu den Menschen betont. Sie hatten deutlich gemacht, welches Vertrauen
+er bei den Staatschefs von nah und fern genossen hatte. Er konnte es nicht nur mit seinen Landsleuten, er konnte
+es auch mit denen, die von einer deutschen Wiedervereinigung erst überzeugt werden mussten. Für ihn war es
+selbstverständlich, grossen und kleinen Nachbarstaaten auf gleicher Augenhöhe zu begegnen. Sein politisches
+Markenzeichen wurde darin gesehen, vor jeder Entscheidung die Menschen einzubeziehen. Das galt für den
+CDU-Kreisvorsitzenden ebenso wie für den Ministerpräsidenten eines europäischen Nachbarlandes. Dabei
+dachte er nicht in ‹Lagern›, wie seine enge Kooperation mit der sozialistischen ungarischen Regierung deutlich
+gemacht hat, der wir alle die Öffnung des ‹Eisernen Vorhangs› 1989 verdanken konnten.
+
+#### Regierung Merkel: Mit jedem überworfen
+Das europäische Friedensprojekt scheitert nicht an irgendwelchen Feinden nah und fern, die sich gegen Europa
+verschworen haben. Es scheitert daran, dass die Berliner Regierung die Haltung von Helmut Kohl den Nachbarn
+gegenüber völlig aufgegeben hat. Diktate aus Berlin sind angesagt und die empfindet man bei den Nachbarn
+wie bei den Sachsen oder Rheinländern: Überflüssig wie ein Kropf.
+Der ehemalige österreichische Bundeskanzler Faymann wird sich gewiss noch daran erinnern können, unter
+welchen Umständen ihn der Anruf seiner Amtskollegin Merkel aus Berlin erreichte. Da war nichts mit gemeinsamer Überlegung, wie am Wochenende des 4./5. September 2015 auf die Lage der Migranten am Hauptbahnhof
+in Budapest reagiert werden sollte. Da wurden dem Vernehmen nach Weisungen ausgesprochen und entgegengenommen. Polen und Frankreich, von England ganz zu schweigen, sehen bis heute nicht ein, warum europäische
+Solidarität bedeuten soll, einsame Entscheidungen der deutschen Bundeskanzlerin Merkel im Nachhinein abzusegnen.
+Es gilt der alte Satz, nach dem jemand die Suppe auslöffeln soll, die er oder sie sich eingebrockt hat. Das bedeutet
+allerdings für das deutsche Volk, für die Entscheidungen der deutschen Bundeskanzlerin einstehen zu müssen.
+Wir haben es ‹an der Backe›, dass unsere gesamte Rechtsordnung über den Haufen geschmissen worden ist. Die
+Migration war zuvor abzusehen, sie wurde durch Entzug der UN-Mittel zwangsläufig verschärft und der einst
+so selbstsichere deutsche Rechtsstaat in eine ‹Zwei-Klassen-Bevölkerung› aufgesplittet. Die einen, die dem deutschen Recht unterworfen sind und die anderen, die machen, was sie wollen und auch noch unbekannt sind.
+
+#### Jetzt ist der türkische Präsident Erdogan dran
+Man hatte sich schon daran gewöhnt, dass aus dem eigenen europäischen Team bestimmte Ministerpräsidenten
+in Berlin vor die Flinte genommen wurden. Der Vorwurf: Unbotmässigkeit Berlin und Brüssel gegenüber. Die
+Spitze schien zunächst darin zu bestehen, sich den Präsidenten des Landes besonders vorzuknöpfen, dem
+Deutschland seine Wiedervereinigung verdanken kann. Das geschah ‹out of the blue›. Im Sommer 2012 paradierte noch das Stabsmusikkorps der Bundeswehr auf dem Roten Platz in Moskau und ein deutsches Rüstungsunternehmen war mit zentralen Aufgaben für die russischen Streitkräfte betraut. Titelbilder der übelsten Art
+aus den Magazinen der amerikanischen Kampfpresse signalisierten über Nacht, dass der Hebel herumgelegt
+worden war. Statt sinnvoller Kooperation und guter Nachbarschaft war Hass und Kriegsbereitschaft angesagt.
+Berlin war und ist mittendrin. Jetzt trifft es allerdings den türkischen Präsidenten Erdogan, der zum politischen
+‹Untoten› hochstilisiert wird.
+
+#### Politik des mentalen Einmarsches als Regierungskonzept in Berlin
+Es ist die Art und Weise, wie man in den Wald hineinruft. Dabei das Wort ‹Fingerspitzen› in Zusammenhang
+mit der Bundeskanzlerin und ihrem Aussenminister Gabriel in den Mund zu nehmen, verbietet sich von selbst.
+Die SPD hat immer schon gezeigt, dass ihre Haltung gegenüber der Türkei ohnehin nur eine Funktion des verzweifelten Versuches ist und war, Wählerstimmen zu generieren. Unter völliger Veränderung der Frontstellung
+geschieht das heute wieder, Hand in Hand mit der Bundeskanzlerin. Warum soll man in Ankara die Augen
+davor verschliessen, dass Deutschland seine Soldaten an der Seite derjenigen agieren lässt, die mit israelischer
+
+
+-----
+
+und amerikanischer Zustimmung aus der Sicht Ankaras den Bestand der Türkei infrage zu stellen bereit sind?
+Damit ist keine einzige türkische Entscheidung gerechtfertigt. Aber es geht um deutsches Verhalten einem
+brüderlich verbundenen Partner gegenüber. Dieser Partner hat schon beim Krieg 1999 der Bundesrepublik Jugoslawien gegenüber deutlich gemacht, wie sehr er die Balkanisierung der Türkei befürchtete. Der türkische
+Präsident Erdogan wird auch nicht vergessen haben, dass es der russische Präsident Putin gewesen sein soll, der
+ihn in seinem Feriendomizil vor dem Putsch gewarnt hatte. Warnungen aus der NATO waren wohl nicht vorgesehen, nachdem zuvor am türkischen Präsidenten vorbei ein russisches Kampfflugzeug im syrisch-türkischen
+Grenzgebiet abgeschossen worden war.
+Berlin dreht gegenüber Präsident Erdogan an einer Eskalationsspirale der besonderen Art und diese betrifft im
+türkischen Selbstverständnis die Substanz der Republik. Das NDR-Fernsehmagazin ‹Panorama› hat in diesen
+Tagen spektakulär auf die Rolle türkisch-stämmiger Kampfformationen bei den bürgerkriegsähnlichen Auseinandersetzungen beim G20 in Hamburg aufmerksam gemacht. Wir haben eine Menge in beiden Ländern zu
+verlieren, wenn wir uns nicht eines Besseren besinnen. Präsident Erdogan kann sich in eine lange Reihe von
+Staats- und Regierungschefs einreihen, die Berlin aufs Korn genommen hat. Bei keinem aus dieser Reihe können
+wir uns das erlauben. Durch das aktuelle Verhalten der deutschen Regierung unter der Bundeskanzlerin Merkel
+zerstören wir das Lebenswerk von Helmut Kohl, das die Überlebensgarantie für unser Deutschland ausgemacht
+hat.
+
+#### Unsere gesamte Rechtsordnung wird durch die Bundesregierung förmlich ‹auf den Kehrrichthaufen› entsorgt. Was bleibt von Deutschland übrig?
+Schlüsselelement unseres Grundgesetzes ist das Verbot der deutschen Beteiligung an einem Angriffskrieg. Als
+Deutschland sich unter der Regierung Schröder/Fischer am völkerrechtswidrigen Krieg gegen Jugoslawien 1999
+beteiligte, war es mit der Konsequenz aus den Nürnberger Prozessen vorbei. Letzte Reste der Zurückhaltung
+wurden Anfang dieses Jahres beseitigt, als Bestimmungen des Strafrechts der aktuellen NATO-Vorgehensweise
+angepasst worden sind. Darauf hat der bekannte Publizist Dr. Wolfgang Bittner, Autor des Bestsellers ‹Die
+Eroberung Europas durch die USA› in diesen Wochen eindringlich hingewiesen. Eigentlich ist diese Anpassung
+zwangsläufig, denn die amerikanische Führungsmacht praktiziert ein Kriegsverständnis über die Direktiven
+des amerikanischen Präsidenten wie es zwangsläufig zu den Nürnberger Prozessen führen musste. Die Ächtung
+des Krieges durch die Charta der Vereinten Nationen wurde in die Praktikabilität desselben durch die NATO
+geändert. Bill Clinton und Frau Albright haben den Krieg nach Europa zurückgebracht und Deutschland ist
+wieder dabei.
+Dabei sind wir in jeder Hinsicht ‹gebrannte Kinder›, auch wenn in diesen Tagen der französische Präsident
+Macron in Zusammenhang mit dem Ersten Weltkrieg und den völlig ausbleibenden Worten über die heutige
+Kooperation deutlich gemacht hat, dass man in Paris nichts, aber auch gar nichts aus der Geschichte gelernt
+hat. Wundern sollte das niemanden, vor allem nicht diejenigen, die zugesehen haben, wie das Erbe von Helmut
+Kohl und General de Gaulle, von de Gasperi, Michael Gorbatschow und Lech Walesa in Europa ‹den Bach
+hinunter verschüttet worden ist›.
+Innenpolitisch sieht es nicht anders aus. Oder sind die Medienfragen danach, wo mehr Überwachung herrschte,
+ob bei Mielke oder Merkel, Zeichen der Hoffnung? Hamburger Bürgerkriegsdimensionen haben ein dramatisches Schlaglicht darauf geworfen, dass mit Millionen Euro Steuergeldern aus dem Bundeshaushalt Extreme im
+Kampf gegeneinander auf der einen Seite finanziert werden. Wie weit muss es in Deutschland wieder einmal
+kommen?
+_Quelle: https://de.news-front.info/2017/07/22/ist-deutschland-von-der-rolle/_
+
+### Wir haben aus 2015 gelernt – aber was?
+_Vera Lengsfeld; Veröffentlicht am 23. Juli 2017_
+«Eine Situation wie im Jahre 2015 soll und darf sich nicht wiederholen, da alle Beteiligten aus dieser Situation
+gelernt haben.» Dieser Satz, in einem Stil, der dem berüchtigten Kanzlerinnen-Deutsch gefährlich nahe kommt,
+steht im ‹Regierungsprogramm› der Union. Damit ist das Kapitel, das für die Zukunft unsres Landes das Ent scheidendste ist, im Programm auch schon alles gesagt. Eine Obergrenze für die Aufnahme von ‹Flüchtlingen›,
+von der Horst Seehofer immer mal wieder medienwirksam schwadroniert hat, wird es nicht geben, obwohl die
+geschätzten 1,1 Million ‹Neubürger›, die seit 2015 gekommen sind, das Land an den Rand der Destabilisierung
+gebracht haben.
+
+
+-----
+
+Mit keinem Wort wird erwähnt, was sich am Mittelmeer zusammenbraut. Bereits an die 100000 junge Männer
+wurden in diesem Jahr von hauptsächlich deutschen NGOs unter tatkräftiger Mithilfe der beiden christlichen
+Kirchen, die zu den Hauptprofiteuren der ‹Flüchtlingskrise› zählen, aus dem Mittelmeer ‹gerettet› und nach
+Italien gebracht. Inzwischen funktioniert das Zusammenspiel von kriminellen Schleppern, die ihre Opfer auf
+Schlauchboote pferchen, mit dem Versprechen, sie müssten darauf höchstens vier Stunden ausharren, und den
+Schiffen der NGOs wie geschmiert. Auch Schiffe der Frontex, die eigentlich die Aussengrenzen der EU schützen
+sollen, beteiligen sich als ‹Retter›.
+In unseren Medien wird von dem, was sich am Mittelmeer abspielt, nur am Rande berichtet. Allenfalls gibt es
+Meldungen, dass an diesem oder jenem Wochenende wieder zehntausend ‹Flüchtlinge› gerettet wurden. Aktuell
+erscheint eine Studie darüber, wie die Medien 2015/2016 versagt haben und Willkommens-Berichterstattung betrieben, statt ihres Amtes zu walten und kritische Fragen zu stellen.
+Das wiederholt sich jetzt, indem sie verschweigen, welches Konfliktpotential in Italien angehäuft wird. In zwei
+Jahren wird dann wieder eine Studie über das heutige Medienversagen veröffentlicht. Bis zur Bundestagswahl soll
+die Öffentlichkeit nicht beunruhigt werden. Was nach der Wahl auf uns zukommt, kann aber jeder wissen. Die
+allermeisten dieser jungen Männer werden nach Deutschland kommen. Die Visegrád-Staaten, Frankreich,
+Schweden, Dänemark, Österreich haben bereits bekanntgegeben, dass sie keine ‹Flüchtlinge› mehr aufnehmen
+werden. Sollte es Kontingente geben, die den baltischen Staaten zugewiesen werden, wird es nicht lange dauern,
+bis diese ‹Flüchtlinge› auch bei uns landen, weil hier die Versorgung viel besser ist.
+Im Regierungsprogramm der Union ist auch keine Rede davon, die Fluchtursache Nr. 1, die grosszügige Alimentierung aller, die deutschen Boden betreten, einzustellen. Zwar hat der Bundestag Gesetze beschlossen, die es
+ermöglichen, die Neuankömmlinge nur mit Sachleistungen zu versorgen. Die werden aber nicht angewandt.
+Es hätte längst verkündet werden müssen, dass die Geldversorgung eingestellt wird, das hätte den ‹Flüchtlingsdruck›
+auf Europa erheblich vermindert. Die Mittelmeerroute hätte auch schon längst geschlossen werden können,
+indem Italien seine Häfen für die Schiffe der NGOs tatsächlich schliesst. Statt dessen wird Italien gedrängt, seine
+Häfen offen zu halten und nicht näher bezeichnete ‹Hilfe› versprochen.
+Ganz vorn mit dabei, unsere Kanzlerin. Wie die ‹Hilfe› aussehen soll, wird von den Medien, die wieder einmal
+versagen, nicht gefragt. Es wird auch nicht recherchiert, was mit den jungen Männern passiert, die täglich zu
+hunderten oder tausenden in Italien landen. Bilder, wie sie im Sommer 2015 aus Griechenland zu sehen waren,
+gibt es diesmal nicht.
+Ja, aus 2015 wurde gelernt. Die jungen Männer kommen an, werden medizinisch untersucht, in Busse geladen und
+in Lager in den italienischen Bergen gebracht. Dort sollen sie sozusagen zwischengelagert werden, bis die ‹Hilfe›
+wirksam werden kann.
+Deutschland hat die Ankömmlinge von 2015/2016 bisher noch nicht verkraftet. Die Polizei und alle Institutionen,
+die mit den ‹Flüchtlingen› beschäftigt sind, haben ihre Belastungsgrenze bereits erreicht oder überschritten. Wir
+wissen immer noch nicht, wie viele wirklich angekommen sind und wer sie sind, denn es wurden bei der
+Registrierung auch offensichtlich gefälschte Pässe anerkannt. Es gibt bereits jetzt unlösbare Probleme mit der
+rapide gestiegenen Kriminalität und der Terrorismus-Gefahr. Wie soll unser Land aussehen, wenn im Herbst
+weitere hunderttausende junge Männer ankommen und parallel noch der Familiennachzug gestartet wird? Wie
+lange wird der ungebremste Zuzug in die Sozialsysteme funktionieren, ohne dass es zu einem Zusammenbruch
+kommt?
+Keine dieser Fragen wird im ‹Regierungsprogramm› der Union auch nur gestellt. Stattdessen wird alles getan, um
+Bilder wie im Jahre 2015 zu vermeiden. Das ist die einzige Lehre, die aus der ‹Flüchtlingskrise› gezogen wurde.
+Man kann es auch die bewusste Irreführung der Bevölkerung nennen. Aber die Medaille hat immer zwei Seiten:
+Es gibt die, die betrügen, und die, die sich betrügen lassen. Noch haben wir die Gelegenheit zu beweisen, dass wir
+beim Wahlbetrug nicht mitmachen. Wer Merkel wählt, macht sich mitschuldig!
+_Quelle: http://vera-lengsfeld.de/2017/07/23/wir-haben-aus-2015-gelernt-aber-was/_
+
+### Mit den ‹Flüchtlingen› kommen die Krankheiten
+_23. Juli 2017 dieter Aufklärung, Europa, Medien, Menschenrecht, Staatsverschuldung, Terror, Verschwendung, Zukunft_
+#### Es trifft jedes europäische Land!
+Den nachfolgenden Bericht über eine neue Studie des Robert Koch-Instituts [RKI], den wir Marilla Slominski
+verdanken, «bestätigt nur», wie sie schreibt, «was viele Bundesbürger schon schwer geahnt haben. Die Zahl der
+
+
+-----
+
+von ausserhalb eingeschleppten Krankheiten durch sogenannte Flüchtlinge ist seit der Grenzöffnung 2015
+**rasant gewachsen.»**
+Das Infektionsepidemiologische Jahrbuch 2016 des RKI wurde soeben der Öffentlichkeit zugänglich gemacht;
+keiner nahm bisher Notiz davon, obwohl oder weil die Zahlen brisant sind.
+Mehr als 50 verschiedene Infektionskrankheiten sind demnach im Jahr nach Merkels Offene-Türen-Politik bei
+den Immigranten festgestellt worden. Von der eher harmlosen Bindehautentzündung bis zu Typhus ist alles
+dabei, was Parasiten, Bakterien und Co. so zu bieten haben. Dazu gehören bakterielle Lebensmittelvergiftung,
+Windpocken, Cholera, Kryptosporidiose (parasitäre Durchfallerkrankung), Denguefieber, Echinokokkose
+(Bandwurm), EHEC (blutige Durchfallerkrankung), Giardiasis, Haemophilus influenzae, Hantavirus, Hepatitis,
+Hämorrhagisches Fieber, HIV/AIDS, Lepra, Läuserückfallfieber, Malaria, Masern, Meningokokken, Meningo enzephalitis, Mumps, Paratyphus, Röteln, Shigella, Syphilis, Toxoplasmose, Trichinellose, Tuberkulose, Tularämie,
+Typhus und Keuchhusten.
+Doch wie schnell sich diese neuen/alten Infektionskrankheiten ausbreiten können, zeigt der Fall eines Asyl bewerbers aus dem Jemen, der während seiner Zeit im Kirchenasyl im norddeutschen Bünsdorf mehr als 50
+Kinder, die in dem Gebäude ein und ausgingen, mit hochansteckender Tuberkulose infizierte.
+Übliche sowie unübliche Krankheiten sind jetzt dank Massenzuwanderung auf dem Vormarsch. Die Häufigkeit
+von Hepatitis B ist in den letzten drei Jahren um 300 % angestiegen, so das Robert Koch-Institut in seiner
+aktuellen Studie. Gab es 2014 noch 755 Fälle, waren es 2016 schon 3006. Ursache sind unter anderem die
+fehlenden Impfungen bei Immigranten aus Syrien, dem Irak und aus Afghanistan.
+Die Masern verzeichneten von 2014 bis 2015 einen Anstieg von sagenhaften 450%, ebenso stieg die Zahl der an
+Windpocken, Meningitis, Mumps, Röteln und Keuchhusten Erkrankten. 40% aller neuen HIV/AIDS Fälle betreffen die sogenannten ‹Flüchtlinge›.
+Die neuen Zahlen könnten nur die Spitze des Eisbergs sein. So stieg zum Beispiel die Zahl der Tuberkulose kranken von 4488 im Jahr 2014 auf 5915 im Jahr 2016, das sind satte 30% mehr. Doch viele Ärzte schätzen die
+tatsächlichen Zahlen höher und vermuten, dass das RKI die Gefahr herunterspielt, um die Stimmung gegen
+Flüchtlinge nicht anzufeuern. Schon im vergangenen Jahr stellte der Mediziner Carsten Boos die Frage, ob das
+«Bundesinstitut die unangenehme Realität politisch korrekt verschweigt.»
+2015, auf dem Höhepunkt der ‹Flüchtlingskrise›, erklärte der Chefarzt der Regensburger Uniklinik, Michael
+Melter, dass er viele der Flüchtlings-Krankheiten seit 20 bis 25 Jahren nicht mehr gesehen habe. «Viele meiner
+jüngeren Kollegen habe sie noch nie zu Gesicht bekommen», stellte Melter fest. Und so ist es für viele Ärzte eine
+Herausforderung, angesichts der vielen in Deutschland nicht mehr oder gar nicht vorkommenden Krankheiten
+die richtige Diagnose zu stellen.
+Inzwischen versucht man in Deutschland z.B. verzweifelt, die durch Rumänen eingeschleppten Masern in den
+Griff zu bekommen. In den ersten sechs Monaten dieses Jahres wurde die Krankheit bei mehr als 700 Immigranten diagnostiziert. Epizentrum mit 500 Erkrankten ist Nordrhein-Westfalen, das Land mit dem höchsten
+Flüchtlingsanteil. Die meisten Erkrankten gibt es in den Hochburgen Duisburg und Essen, wo im Mai eine
+37jährige Mutter von drei Kindern an den Masern starb. Weitere Fälle gab es in Berlin, Köln, Dresden, Hamburg,
+Leipzig, München und Frankfurt.
+Die Politik gibt sich einmal mehr geschäftig und konzentriert ihr ganzes Augenmerk auf impfunwillige Eltern,
+als ob diese die Ursache für die jetzige Situation wären. So verabschiedeten unsere fleissigen Politiker im Juni
+ein neues Gesetz, dem zufolge das Personal von Kitas den Behörden diejenigen Eltern melden müssen, die nicht
+an einer ärztlichen Impfberatung teilnehmen wollen. Diese Weigerung wird nun mit Geldstrafen bis zu 2500.–
+Euro belegt. Schon geht einigen das Gesetz nicht weit genug, sie wollen jeden Einwohner des Landes zwangsimpfen. Und so nimmt ein weiterer durch Angela Merkels offene-Grenzen-Politik verursachter Streit die
+Gesellschaft in Beschlag.
+In den Medien wird dieser Tage nicht gerne über neue Infektionskrankheiten gesprochen, hier wird lieber weiter
+das Klischee des ‹armen Flüchtlings› bedient, wie im Fall eines 22jährigen Syrers, dem das Uniklinikum Düssel dorf die Transplantation einer neuen Niere ‹verweigert›.
+Und für den hart arbeitenden Bürger bleiben nur die Horror-Nachrichten über ständig steigende Kranken kassenbeiträge; ein Schelm (oder ‹Nazi›) wer da einen Zusammenhang vermutet. [1]
+_Anmerkung politonline d.a.:_
+_Auf Grund des gesundheitlichen Befindens zahlloser Ankömmlinge kann man sich ungefähr ausrechnen, wie minim_
+_der Anteil an Entwicklungshilfe sein muss, den die afrikanischen ‹Potentaten›, denen über Jahre hinweg Summen_
+_in mehrstelliger Milliardenhöhe zugeflossen sind, für den Sektor Gesundheit ihrer ‹Untertanen› bereitgestellt haben_
+
+
+-----
+
+_resp. diesem zuteilen. Man darf ferner annehmen, dass dasselbe Ungleichgewicht auf dem Gebiet der Bildung herrscht._
+_Was indessen floriert, ist der tödliche Waffenhandel, dessen Folgen uns über die Migration erreichen, was aber ganz_
+_offensichtlich nicht zum Umdenken bewegt._
+Gerade die Wiederkehr der hochansteckenden TBC-Seuche kann zu einer wachsenden Gefahr für die gesamte
+Bevölkerung eines Landes werden; darüber hinaus verschlingt die Behandlung unvorstellbare Summen, denn
+eine einzige TBC-Behandlung kostet über 200000.– €. «Grund für die neue Ausbreitung der lebensgefähr lichen Krankheit», vermerkte Eva Hermann Anfang Dezember letzten Jahres unter Zugrundelegung eines
+‹Spiegel-TV-Beitrags›, «sind Migranten aus Afrika und anderen ‹Flüchtlingsgebieten›, die seit fast zwei Jahren
+**ohne Gesundheitscheck und meist auch ohne Ausweispapiere, also völlig unkontrolliert, nach Deutschland**
+einwandern können.» Die Politik blende dieses Problem weitgehend aus, so ein behandelnder Arzt. Ebenso
+werde völlig unterschätzt, wie schwierig es für das behandelnde Krankenhauspersonal ist, die verschiedenen
+Ethnien angehörenden Patienten auf der Quarantäne-Station unter Kontrolle zu halten. Ausschreitungen,
+Streit und Gewalt haben in den Klinik-Alltag Einzug gehalten, ebenso aggressives Verhalten gegen das Kranken hauspersonal, das nicht selten durch unzufriedene ‹Flüchtlinge› körperliche Gewalt erfahren muss. Legt man
+die veröffentlichten Asylbewerberzahlen zugrunde, so «müssen wir mit 8000 bis 10000 Migranten mit aktiver
+und behandlungspflichtiger Tuberkulose rechnen», so der von ‹Spiegel-TV› befragte Arzt. «Dies gilt wohlgemerkt
+nur für die veröffentlichten Einwanderungszahlen. Nicht eingerechnet sind hier Hunderttausende von Migranten, die nicht registriert wurden resp. werden, und die irgendwo in der Menge untertauchen. Wer allein diese
+Tatsache näher betrachtet, der kann nur ahnen, wie viele unentdeckte, hochgefährlich erkrankte Asylanten sich
+hier aufhalten, deren Krankheit unkontrolliert ausbrechen und sich ausbreiten kann.»
+Es ist zu vermuten, dass sich die Parlamentarier aller Couleur mit dem Faktor Kosten nicht weiter beschäftigen.
+Wie in dem Artikel ‹Das Milliardengeschäft mit den Flüchtlingen› aufgezeigt, kostet beispielsweise eine Pille des
+neuen Hepatitis C-Präparats Sovaldi 700.– €. Die Behandlungsdauer liegt je nach Schweregrad zwischen 24
+Wochen (168 Tage) und 72 Wochen (504 Tage); somit belaufen sich die Kosten für einen Patienten auf
+117600.– bis 352800.– Euro. Gehen wir bei unserer Rechnung von 100000 Patienten aus, so entstehen für die
+Dauer einer Behandlung immense Kosten in Höhe von 12 bis 35 Milliarden €, die der Steuerzahler aufzu bringen hat. [3]
+Betrachtungen dieser Art führen immer wieder zur gleichen Überlegung: Selbst wenn es gelingt, kriegerische
+Auseinandersetzungen innerhalb Europas für immer ins Reich der Verbannung zu schicken, so sollte es dennoch
+klar sein, dass wir allein finanziell gesehen an den Folgen der Überflutung unweigerlich zerschellen werden. So
+erhielten in der BRD im Jahr 2016 von 207484 ausreisepflichtigen Personen 153047 eine Duldung, dies unter
+anderem wegen Krankheit. Mit anderen Worten: Sie werden für immer bleiben und vom Steuerzahler für
+immer mit zu ernähren sein.
+Auch das Statement hierzu von Innenexperte Hans-Peter Uhl dürfte auf alle Flüchtlinge aufnehmenden Länder
+**zutreffen: «Die Auswirkungen werden Deutschland auf Jahrzehnte prägen und sind in ihrem Umfang noch**
+nicht vorhersehbar.»
+
+[1] http://www.journalistenwatch.com/2017/07/16/mit-den-fluechtlingen-kommen-die-krankheiten/16.7.17; Mit den
+‹Flüchtlingen› kommen die Krankheiten – Von Marilla Slominski
+
+[2] http://www.eva-herman.net/deutschlands-zukunft-enteignungen-und-tbc/1.12.16
+
+[3] http://www.politonline.ch/index.cfm?content=news&newsid=2465/9.11.15
+_Quelle: http://krisenfrei.de/mit-den-fluechtlingen-kommen-die-krankheiten-2/_
+
+_18:02 24.07.2017 (aktualisiert 18:15 24.07.2017); Karl-Jürgen Müller_
+
+
+-----
+
+**In weniger als zwei Monaten wird ein neuer Deutscher Bundestag gewählt. Derzeit weisen alle Umfragen und**
+**viele Erzeugnisse deutscher Leitmedien darauf hin, was gewollt wird: Angela Merkel soll auch die nächste**
+**deutsche Kanzlerin sein – in welcher Koalition mit CDU/CSU auch immer, das spielt für Frau Merkel nur eine**
+**zweitrangige Rolle.**
+Der Gegenkandidat um die Kanzlerschaft, der SPD-Vorsitzende Martin Schulz, agiert ohne Überzeugungskraft
+und Fortune, und niemand nimmt es ihm ab, wenn er jetzt zum Beispiel vor einer neuen Flüchtlingswelle nach
+den Bundestagswahlen warnt. Obwohl er wahrscheinlich Recht hat damit. Aber schlechte Prognosen für die
+Zeit nach den Wahlen sind derzeit gar nicht gefragt, und Frau Merkel bemüht sich sehr, von allen Widrigkeiten
+der nationalen und internationalen Politik abzulenken und das Land mit politischem Mehltau (Beschwichtigung
+und Einschüchterung) zu überziehen und am Nachdenken zu hindern.
+
+#### Was deutsche ‹Eliten› denken sollen
+Die der Kanzlerin ergebene ‹Frankfurter Allgemeine Zeitung› und das mit ihr nicht weniger verbundene Institut
+für Demoskopie in Allensbach helfen dabei selbstverständlich kräftig mit, so mit einer neuen Umfrage unter
+den deutschen ‹Eliten› aus Wirtschaft und Politik. 521 von ihnen, so viele wurden befragt, glauben derzeit ‹mit
+grosser Mehrheit an eine gute Zukunft der EU›. Und: «Besondere Hoffnungen setzen die Führungsspitzen in
+den neuen französischen Präsidenten Emmanuel Macron.»
+Die deutschen ‹Eliten› weisen aber auch ein Stück weit in die Zukunft. Denn: «Sicherheitspolitisch und militärisch
+könne die EU (derzeit noch) nicht auf eigenen Füssen stehen, befürchten 69 Prozent der Führungsspitzen.» Die
+‹Eliten› befürworten deshalb eine ‹Erhöhung der deutschen Verteidigungsausgaben›, weil sie bezweifeln, «dass
+die Bundeswehr in ihrem jetzigen Zustand für die Bündnisaufgaben im Rahmen der Nato materiell ausreichend
+gerüstet ist.» Zudem wünschen sich die Eliten – ‹ganz oben auf der Agenda› – eine ‹Stärkung des Zusammenhalts
+in der EU› und eine ‹intensivere Zusammenarbeit mit Frankreich›. Dem neuen US-amerikanischen Präsidenten
+können die deutschen ‹Eliten› hingegen nichts abgewinnen: «Was den Umgang mit Trump betrifft, halten es 90
+Prozent für richtig, dass Deutschland seine Kritik an der Politik des Präsidenten deutlich und ohne Rücksicht
+auf die deutsch-amerikanischen Beziehungen äussert.»
+
+#### Wo liegt Frau Merkel?
+Angela Merkel liegt also goldrichtig.
+Übrigens: Unter den ‹Eliten› sind 85 Vorstände von deutschen Unternehmen mit mehr als 20000 Beschäftigten
+– also enorm überrepräsentiert im Vergleich zu ihrem Anteil an allen deutschen Unternehmen. Der beträgt
+weniger als ein Prozent.
+Selbstverständlich darf es auch nicht an ein wenig Selbstkritik fehlen. Auch Frau Merkel weiss, dass ihr ihre
+Migrationspolitik seit dem Sommer 2015 viele Stimmen gekostet hat. Da ist Beschwichtigung und ein wenig
+Reue angesagt. «Eine Situation wie die des Spätsommers 2015 kann, soll und darf sich nicht wiederholen», erklärte Frau Merkel schon im Dezember 2016. Nun sekundiert eine neue Studie über die deutschen Medien und
+ihre Berichterstattung über die deutsche Migrationspolitik. Ihr Titel lautet ‹Die ‹Flüchtlingskrise› in den Medien›,
+Auftraggeber und Herausgeber ist die gewerkschaftsnahe ‹Otto-Brenner-Stiftung›, und über das Ergebnis
+wurde in sehr vielen Leitmedien berichtet. So schrieb die schon erwähnte ‹Frankfurter Allgemeine Zeitung› just
+am selben Tag, als sie über den Optimismus der deutschen ‹Eliten› berichtete: «Die bislang umfassendste wissen schaftliche Studie, die sich mit der Rolle der deutschen Medien während der Hochphase des Flüchtlingszustroms
+beschäftigt, zieht im Rückblick ein ernüchterndes Fazit. Journalisten seien ihrer Rolle als Aufklärer nicht gerecht
+geworden (…) Statt kritisch zu berichten, habe der ‹Informationsjournalismus die Sicht, auch die Losungen
+der politischen Elite› übernommen und sei selbst mehr als politischer Akteur denn als neutraler Beobachter
+aufgetreten. Sorgen und Ängste der Bevölkerung seien hinter der grossen Erzählung von der ‹Willkommenskultur› fast völlig zurückgedrängt, Andersdenkende seien diskursiv ausgegrenzt worden.»
+
+#### Wieviel Selbsterkenntnis?
+Hört, hört. Wer kann bei soviel Selbsterkenntnis noch am ernsthaften Bemühen um die Korrektur gemachter
+Fehler zweifeln? Alle Wähler, die wegen der Ablehnung der Migrationspolitik von Frau Merkel eine andere Partei
+gewählt haben oder zu wählen vorhatten, können nun doch getrost wieder ihr Kreuz bei der CDU machen …
+und auch den Leitmedien, die ja geständig und reumütig sind, verzeihen. … Man wird sehen.
+Indes, es bleiben viele Fragen offen. Keine der tatsächlichen Aufgaben ist gelöst. Wer spricht denn noch offen
+über die millionenfachen alltäglichen Probleme, dabei ein würdiges Miteinander mit den fast zwei Millionen
+Menschen aus anderen Kulturkreisen zu finden, die 2015 und 2016 in kürzester Zeit nach Deutschland gekom
+
+-----
+
+-----
+

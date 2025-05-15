@@ -1,0 +1,1240 @@
+10. Jahrgang
+Nr. 111 April/3 2024
+
+
+Erscheinungsweise:
+sporadisch
+
+
+#### Sonderausgabe
+## FIGU ZEITZEICHEN
+
+###### Aktuelles • Einsichten • Erkenntnisse
+
+Internetz: http://www.figu.org
+E-Brief:  info@figu.org
+
+
+###### Organ für freie, politisch unabhängige Berichterstattungen zum Weltgeschehen, kommentarlose, neutrale und meinungslose Weitergabe von Zeitungsberichten. ***************************************************************************
+Laut ‹Allgemeine Erklärung der Menschenrechte›, verkündet von der Generalversammlung der Vereinten Nationen am 10. Dezember 1948,
+herrscht eine allgemeine ‹Meinungs- und Informationsfreiheit› vor, und dieses unumschränkte Recht gilt weltweit und absolut für jeden
+einzelnen Menschen weiblichen oder männlichen Geschlechts jeden Alters und Volkes, jedes gesellschaftlichen Standes wie auch in
+bezug auf rechtschaffene Ansichten, Ideen und jeglichen Glauben jeder Philosophie, Religion, Ideologie und Weltanschauung:
+
+**Art. 19 Menschenrechte**
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit, Meinungen**
+**unangefochten anzuhängen und Informationen und Ideen mit allen Verständigungs-**
+**mitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Ansichten, Aussagen, Darstellungen, Glaubensgut, Ideen, Meinungen sowie Ideologien jeder Art in Abhandlungen, Artikeln
+und in Leserzuschriften usw. müssen in keiner Art und Weise zwingend identisch mit dem Gedankengut und den
+Interessen, mit der ‹Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens›, wie auch nicht in
+irgendeiner Sachweise oder Sichtweise mit dem Missionsgut und dem Habitus der FIGU verbindend sein.
+==================================================================================
+==================================================================================
+Für alle in den FIGU-Zeitzeichen und anderen FIGU-Periodika publizierten Beiträge und Artikel verfügt die
+FIGU über die notwendigen schriftlichen Genehmigungen der Autoren bzw. der betreffenden Medien!
+###### ****************************************************************************************
+
+**Auf vielfach geäusserten Wunsch aus der Zeitzeichen-Leserschaft sollen in den Zeitzeichen zur Orientierung der**
+**Rezipienten laufend Auszüge diverser wichtiger Belange aus neuest geführten Kontaktgesprächsberichten**
+**veröffentlicht werden, wie nach Möglichkeit auch alte sowie neue Fakten betreffs weltweit bösartig mit**
+**Lügen, Betrug, Verleumdung und Mordanschlägen gegen BEAM geführte Kontroversen.**
+
+###### **********************************************************************************
+ Bezüglich der Lügen, Betrügereien, Verfälschungen und der Armseligkeit des Sektierers Jediah Ramnarine (Jedi Reach), der die Lehrwerte der FIGU missbrauchte, um sich finanziell zu bereichern und sich zu  etwas Besonderem, gross, herrlich und wichtig zu stilisieren,  ist folgendes zu erklären:
+
+**Ptaah … Quetzal und Bermunda, Enjana und Florena … sie haben mich hergerufen und mir** mitgeteilt,
+was sich bezüglich dieses Jediah Ramnarine ergeben hat und weiter ergibt, weil sie dessen Reaktionen
+beobachten, die sich nun nach dem Aufdecken seiner Machenschaften ergeben, die sehr böse erlogen und
+verleumdend sind. Nach der Aufdeckung seiner wirklichen und wahren Gesinnung offenbart er nun diese
+nämlich in der Weise, indem er, nachdem er seine Lügenoffenbarungen in teilweiser Form im Internet
+entfernt hat, eine neue und ebenso bösartige Lügenoffenbarung im Internet verbreitet, da er dich und uns
+und sogar Nokodemion der Unredlichkeit, des Sektierismus und der Betrügerei beschuldigt, was aber
+wahrheitlich auf ihn selbst in sehr primitiver Weise zutrifft. Wer diese Lügenoffenbarung gläubig annimmt,
+ist leider derart in die Irre geführt und dem Ganzen des profitsüchtigen und selbstsüchtigen Tuns dieses
+Ramnarine derart gläubig ausgeliefert, dass wohl deren Vernunft nicht mehr angesprochen werden kann.
+De…
+
+
+-----
+
+**Billy** … das weiss ich bereits, denn Bernadette hat mich gestern abend noch darüber informiert. Vornweg
+möchte ich bezüglich des verlogenen Wirkens dieses Sektierers Jediah Ramnarine (Jedi Reach) sagen, dass
+eigentlich in den letzten Gesprächen darüber genug gesagt wurde, dass nichts weiter darüber gesprochen
+werden und die Sache nicht noch in die Länge gezogen werden sollte. Es dürfte nämlich das genügen, was
+bereits gesagt wurde und was folgend noch Bernadette, Wiebke und José geschrieben haben, was die ganze
+Sache klarmacht. Meines Erachtens ist es nicht notwendig, dass Stellung gegen die nunmehrigen infamen,
+bösartigen und lügnerischen Anschuldigungen bezogen wird, die der lügenertappte Mann nun öffentlich
+verbreitet, denn mit all den phantasievollen Lügenbehauptungen schneidet sich er sich ins eigene Fleisch
+und offenbart wie er denkt. In der Schweiz wird in einer solchen Sache seit alters hergesagt «Wenn es den
+Hund trifft, dann bellt er und beisst», weil der Mensch üblicherweise böse und mit Lügen und Verleumdungen reagiert, wenn er bei Betrügereien usw. ertappt wird. Bernadette hat es derart formuliert: «Wenn
+jemand sich angegriffen fühlt, dann schlägt er mit Händen und Füssen wild um sich.» (Anm. Bernadette:
+Hier noch der Rest des Zitates: «Je präziser die Wahrheit getroffen wird, umso wilder schlägt der Getroffene
+um sich.») Und genau das ist jetzt der Fall bei Jediah Ramnarine alias Jedi Reach, doch darauf möchte ich
+wirklich nicht mehr näher eingehen, denn seine nunmehrigen Lügenangriffe sind derart primitiv und nicht
+des Wertes, dass weiter darauf eingegangen und deswegen unnötig der Kopf vollgemacht wird. Darum will
+ich auch darauf verzichten, das kopiemässig wiederzugeben sowie Stellung dazu nehmen, was der Mann
+neuerlich primitiv daherlügt. Es sei daher nur folgendes von José, Bernadette und Wiebke aufgeführt, was
+sie zu sagen haben. Wiebke schreibt bezüglich des von Ramnarine alias Reach ‹übersetzten›
+Ururururururur-Ursprung-Buches:
+
+**Wiebke: Wir haben gestern das Buch aus dem Shop genommen und werden es auch hier vernichten. In**
+**meine Kopie habe ich vorn ganz dick mit rot hineingeschrieben ‹Absolute Schrottübersetzung!!!›,**
+**denn falls unsere Kinder oder Enkelkinder einmal das Buch zur Hand nehmen sollten, wissen sie**
+**gleich, dass es Müll ist. Ich will meine Kopie noch nicht wegwerfen, weil ich darin für meinen**
+**nächsten Artikel gute Beispiele einer schlechten Übersetzung finden kann. ;-) …**
+
+###### Dringender Aufruf zur aktiven Verhinderung von Sektengründungen und Sektenwesen
+_Bernadette Brand für die Kerngruppe der 49_
+
+**Wie wir wissen, stehen viele unserer Passivmitglieder in regem Austausch miteinander, jedoch in viel**
+**spärlicherem Kontakt mit dem Center, was sich auch wieder im aktuellen Geschehen um Jediah**
+**Ramnarine (Jedi Reach) und seiner Sekten-Organisation PSI erwiesen hat. Wie wir leider erst nachträg-**
+**lich erfahren haben, hätte dieser Betrüger bereits 2019 auffliegen können, wenn sich jene Passivmit-**
+**glieder und FIGU-Interessenten – die damals bereits mit ihm in Verbindung standen und sich wegen sei-**
+**ner abstrusen Behauptungen und seinem offen sektiererischen Verhalten und Vorgehen von ihm trenn-**
+**ten –, sich zu jener Zeit mit uns in Verbindung gesetzt und uns über seine Machenschaften informiert**
+**hätten. Dadurch, dass sie sich falsch-neutral verhielten und ihn einfach weiter gewähren liessen, ist ein**
+**nahezu unüberbrückbarer Schaden entstanden, besonders bei jenen FIGU-Mitgliedern und FIGU-Interes-**
+**sierten, die ihm gläubig auf den Leim gegangen und auf seine schönen Worte und sein freundliches Getue**
+**hereingefallen sind.**
+
+**Wir fordern deshalb alle Mitglieder unserer Landes-, Studien- und Interessengruppen sowie alle FIGU-**
+**Freunde rund um die Welt dringend auf, sich direkt bei uns zu melden, wenn sie bei irgendeinem Kontakt**
+**zu FIGU-Interessenten oder anderen FIGU-Passivmitgliedern seltsame Äusserungen oder falsche Be-**
+**hauptungen feststellen, damit wir der Sache auf den Grund gehen und klären können, ob es sich dabei**
+**lediglich um ein Missverständnis, um eine unbedarfte Falschinterpretation oder um eine böswillige Ver-**
+**fälschung oder gar um den Versuch handelt, eine FIGU-Sekte gründen zu wollen. Eine solche Beobach-**
+**tung oder Erfahrung ins Center zu melden, hat nichts mit einer Verletzung der Neutralität zu tun, sondern**
+**entspricht einem verantwortungsvollen, vorbeugenden Verhalten, womit die Lehre rein erhalten und ge-**
+**schützt werden kann, was dringend erforderlich ist, wenn nicht dasselbe wieder geschehen soll, wie es**
+**in früheren Jahrhunderten und Jahrtausenden war, als die Lehre der Propheten, die damals schon die**
+**Schöpfungsenergielehre brachten, bösartig verfälscht und Religionen und Sekten daraus gemacht**
+**wurden.**
+
+**Die Schöpfungsenergielehre ist keine Religion, sondern eben eine Lehre, deren Stoff persönlich und indi-**
+**viduell von jedem FIGU-Mitglied und FIGU-Interessierten überdacht und in die Lebenspraxis umgesetzt**
+**werden kann und soll, mit dem Ziel sich aufgrund des Gelernten zum wahren Menschsein zu entwickeln.**
+
+
+-----
+
+**In dieser Lehre existiert nichts, was einfach geglaubt werden soll oder muss, sondern es soll dort, wo**
+**keine direkte persönliche Erfahrung mit dem Lehre-Stoff gemacht werden kann – wie z.B. bei den Vorgän-**
+**gen um die Schöpfungsenergieform nach dem Ableben eines Menschen –, dies einfach als Information**
+**und als Erklärung für bestimmte Abläufe genommen werden, die jedoch weder weiterverfolgt noch dog-**
+**matisch vertreten werden sollen, wodurch verhindert wird, dass Spekulationen und Fehlinterpretationen**
+**in die Welt hinaus gelangen und unnötige sowie gefährliche Verwirrungen gestiftet werden.**
+
+Liebster Freund Billy, Guten Tag!
+Sieh, was für ein Wunder! Wie herrlich es ist! Ich kann nicht aufhören, über diese Tatsache zu lachen. Dies
+ist das Ergebnis der Demaskierung/Entlarvung von Jedi Reach.
+Das Ergebnis war erfolgreich beeindruckend und augenblicklich, mein Lieber Freund! Ich habe all das,
+unten Geschriebene veröffentlicht, aber alles in Englischer Sprache, auf der Webseite Theyflyblog.com, von
+Michael Horn.
+Ich übersetze alles, was ich für dein Verständnis, in die deutsche Sprache, geschrieben habe. Ich schicke
+auch an dich hier einen Bildschirmausschnitt der Jedi Reach-Website, sehr genau wie die Jedi ReachWebsite, heute, Mittwoch, 17. April 2024, gerade jetzt ist.
+
+Saalome und herzliche Grüsse,
+José Barreto Silva
+
+###### Ha, haha, haha! 🤣🤣🤣😂😂🤣 Jedi Reach hat sicherlich wirklich alle Beiträge hier auf Theyflyblog.com sehr genau verfolgt/gele- sen. Jedi Reach ist mit eingezogenem Schwanz abgehauen, als er merkte, dass er von den Plejaren und Billy Meier vor der ganzen Welt öffentlich blossgestellt/entlarvt worden war. JEDI-REACH-aka- Jedaiah-Ramnarine hat soeben seine gesamte Website gelöscht, er hat sie gelöscht. Seine Website ist weg! Sie ist aus dem Internet verschwunden. Sie hat sich in Rauch aufgelöst!  (Anm. Billy: Ist nur teilweise gelöscht, denn sie ist für seine ihm gläubigen Anhänger noch abrufbar) Ich habe einen Bildschirmausschnitt seiner nicht mehr existierenden Website gemacht, siehe das hier angehängte Bild.
+
+ Die Website, die zu Jedi Reach gehörte, existiert nicht mehr. Sehen Sie sich selben untenstehenden Link an, die nicht mehr existierende Website von Jedi Reach:
+ ******ÜBERSETZUNG***** Ha, haha, haha! 🤣🤣🤣😂😂🤣
+
+
+-----
+
+###### Jedi Reach has certainly truly been following/reading all the postings here on Theyflyblog.com very very closely. Jedi Reach ran off with his tail between his legs when he realised that he had been publicly unmasked to the whole world by the Plejaren and Billy Meier. JEDI-REACH-aka-Jedaiah-Ramnarine has just deleted, he ERASED, his entire website. His website is gone! It disappeared from the Internet. It's gone up in smoke! I took a print of his defunct Website, see the image attached here. The website that belonged to Jedi Reach no longer exists, see here at the link below for yourselves, the now defunct Jedi Reach's Website:
+
+**Anmerkung Billy: Weder die FIGU noch ich persönlich, Billy, befassen uns weiterhin mit all den irren und**
+wirren lügnerischen Anschuldigungen und Betrügereien des Jedaiah Ramnarine alias Jedi Reach und seiner
+Sekte, die neuerdings internetmässig in verschiedenen Foren aufgeschaltet sind. Es sei jeder Person freigestellt, vom ganzen Unsinn, den Lügen, Betrügereien, dem sektiererischen Grössenwahn, der Geldgier und
+sonstigen Profitsucht aller Art, der Selbsterhebung zum Ischwisch und Weisesten aller Weisen, wie jedoch
+auch von der Arbeitsabneigung und den Glaubensverführungskünsten strotzenden Machenschaften des
+Sektierers abhängig zu werden. Mehr ist aus vernünftiger Sicht nicht zu sagen für Menschen, die noch des
+Verstandes und eigener Gedanken sowie der Selbstentscheidung und des Selbsthandelns einigermassen
+trächtig und nicht völlig irr und wirr einem Glauben verfallen sind. Mehr ist wohl zu all den hassvoll geifernden und haltlosen Anschuldigungen, Lügen und Betrügereien nicht zu sagen, denn die effective Wahrheit
+ist zu erhaben, um sie rechtfertigen zu müssen.
+
+###### Deutschland steht wieder auf der falschen Seite der Geschichte
+_strategic-culture.su, April 16, 2024_
+
+###### Deutschland und die Vereinigten Staaten sowie andere westliche Mächte setzen mit ihrem Stellvertreterkrieg gegen Russland tiefsitzende historische Verbrechen fort.
+
+Die Wiederholung der Geschichte mag tragisch, ja geradezu lächerlich erscheinen. Man kann sich fragen,
+wie sich ein solch offensichtlicher Wahnsinn wiederholen kann. Aber die Erklärung ist einfach, wenn man
+versteht, dass die Triebfeder dieselbe ist.
+Die Anklage gegen Deutschland vor dem Internationalen Gerichtshof in dieser Woche wegen Beihilfe zum
+Völkermord in Gaza ist wirklich beschämend. Deutschland wurde von Nicaragua verklagt, weil es den israelischen Völkermord in Gaza unter Verstoss gegen die Völkermordkonvention von 1948 unterstützt hat.
+Diese Konvention wurde nach dem Massenmord an sechs Millionen Juden durch Nazi-Deutschland während des Zweiten Weltkriegs geschaffen. Nur 79 Jahre nach dem Ende dieses Krieges sitzt der deutsche
+Staat erneut auf der Anklagebank, weil er sich an einem Völkermord in Gaza beteiligt, der von dem selbsternannten jüdischen Staat Israel begangen wird.
+Es scheint eine schockierende und bedauerliche Wendung in der Geschichte zu sein. Seit Menschengedenken wird Deutschland erneut wegen abscheulicher Verbrechen gegen die Menschlichkeit angeklagt.
+Noch beschämender ist, dass die deutschen Behörden leugnen, dass Israel einen Völkermord begeht und
+dass Deutschland die Sicherheit Israels aus einer besonderen Verpflichtung heraus verteidigt, die sich aus
+dem abscheulichen Holocaust im Zweiten Weltkrieg ergibt
+
+
+-----
+
+Die angebliche Begründung Deutschlands für die Unterstützung Israels ist eine erstaunliche Perversion der
+Geschichte.
+Die Klage gegen Deutschland in dieser Woche ist unanfechtbar, ebenso wie die frühere Klage Südafrikas
+gegen Israel im Januar vor demselben Gerichtshof der Vereinten Nationen in Den Haag. Eine endgültige
+Entscheidung des Gerichts steht in beiden Fällen noch aus.
+Dennoch ist sich die Weltöffentlichkeit bereits jetzt mit zahlreichen internationalen Rechts- und Menschenrechtsexperten einig, dass Israels militärische Belagerung des Gazastreifens einem Völkermord gleichkommt und zahlreiche Verstösse gegen das Völkerrecht beinhaltet. Ergo: Deutschland ist schuld.
+Die mutwillige Zerstörung des palästinensischen Gebietes durch Israel hat in den letzten sechs Monaten
+über 33’000 Tote gefordert, darunter mehr als 14’000 Kinder und 10’000 Frauen. Die tatsächliche Zahl
+der Todesopfer liegt wahrscheinlich bei mehr als 46’000, da 13’000 Menschen unter den Trümmern vermisst oder in nicht gekennzeichneten Gräbern begraben sind. Es wird befürchtet, dass es in den kommenden Monaten bis zu 100’000 Tote geben wird, da die Hungersnot und die Krankheiten zunehmen.
+Deutschland ist nach den Vereinigten Staaten der zweitgrösste Waffenlieferant für Israel. Auf Deutschland
+entfällt fast ein Drittel aller israelischen Waffenimporte.
+Israels mörderische, wahllose Belagerung des Gazastreifens, die eine vorsätzliche Politik der Massenverhungerung von mehr als zwei Millionen Menschen beinhaltet, würde ohne die entscheidende militärische Unterstützung durch die Vereinigten Staaten und Deutschland nicht stattfinden.
+Genauso wichtig wie die Tötungsmaschinen und die Munition ist jedoch die unerschütterliche politische
+Unterstützung durch Deutschland, die Vereinigten Staaten und alle ihre westlichen Verbündeten. Unglaublicherweise behaupten Berlin, Washington, London, Paris und andere westliche Hauptstädte weiterhin, dass
+Israel keinen Völkermord begeht. Wie US-Präsident Joe Biden wiederholt auch der deutsche Bundeskanzler
+Olaf Scholz das zynische und verlogene Mantra von Israels Recht auf Selbstverteidigung.
+Was sich in Gaza abspielt, ist ein Blutbad, das von westlichen imperialistischen Mächten ermöglicht wird.
+Die USA und alle ihre westlichen Verbündeten sind Komplizen bei ungeheuerlichen Kriegsverbrechen.
+Jeden Tag kann man es live im Fernsehen sehen, und dennoch bemühen sich die verachtenswerten westlichen Medien eifrig, das Grauen zu beschönigen und abzuschwächen. In jeder vernünftigen Welt sollten
+die westlichen Regierungen und ihre von Konzernen kontrollierten ‹Nachrichtenmedien› für ihre Komplizenschaft unerbittlich verurteilt werden.
+Die Schuld Deutschlands nimmt jedoch eine zutiefst beunruhigende und beschämende Bedeutung an,
+ebenso wie die des zionistischen Regimes. Im Namen von Millionen von Opfern des nationalsozialistischen
+Deutschlands wird der Völkermord in Gaza mit einer Abgebrühtheit und Selbstgerechtigkeit verübt, die unbeschreiblich verachtenswert ist. Es ist geradezu teuflisch, dass der historische Massenmord an den Juden
+durch Deutschland nun von einem Staat, der behauptet, jüdisch zu sein, an anderen wiederholt wird – und
+von Deutschland ermöglicht wurde. Diese Obszönität kann man kaum erfinden.
+Es sollte auch klar sein, dass das Grauen, das in Gaza verübt wird, nur ein Element in einer giftigen Eruption
+imperialistischer Verbrechen ist, die derzeit auf der ganzen Welt stattfindet.
+In der Ukraine führen die westlichen Imperialisten der NATO-Achse einen Stellvertreterkrieg gegen Russland
+und bedienen sich dabei eines korrupten Neonazi-Regimes, an dessen Spitze ein nominell jüdischer
+Marionettenpräsident steht, der bis über beide Ohren in Geldwäsche, Betrug und Schwindel verstrickt ist.
+Deutschland ist nach den Vereinigten Staaten der zweitgrösste Waffenlieferant für das ukrainische Regime.
+Vor acht Jahrzehnten setzte Nazi-Deutschland ukrainische Faschisten ein, um Juden und Slawen auszurotten, was bis zu 30 Millionen Sowjetbürgern den Tod brachte. Das heutige ukrainische Regime verherrlicht
+diese Nazi-Kollaborateure. Die Vereinigten Staaten setzten nach dem Zweiten Weltkrieg dieselben ukrainischen Faschisten ein, um während des Kalten Krieges einen verdeckten Krieg gegen die Sowjetunion zu
+führen.
+So setzen Deutschland und die USA zusammen mit anderen westlichen Mächten mit ihrem Stellvertreterkrieg gegen Russland tief verwurzelte historische Verbrechen fort.
+Die gleichen imperialistischen Schurkenstaaten ermöglichen die israelische Aggression gegen den Iran,
+Syrien und den Libanon. Israels tödlicher Bombenanschlag auf die iranische Botschaft in Damaskus Anfang
+dieses Monats war ein besonders dreister Verstoss gegen das Völkerrecht. Die Barbarei des faschistischen
+israelischen Regimes wird von seinen westlichen Gönnern in vollem Umfang ermöglicht und gefördert. Es
+ist eine bittere Ironie, dass Washington und Berlin den Iran zu ‹maximaler Zurückhaltung› ermahnen, während Israel dessen Souveränität offen angreift und seine Bürger ermordet.
+Unterdessen drängen die Vereinigten Staaten, Australien und Grossbritannien Japan dazu, sich ihrer Militärallianz anzuschliessen, um China zu provozieren. Japans Premierminister Fumio Kishida wurde diese
+Woche in Washington gefeiert, wo er neue kriegerische, gegen China und Russland gerichtete militärische
+Massnahmen unterzeichnete. Kishida brachte die Ukraine mit Asien in Verbindung und behauptete, dass
+China Ostasien übernehmen würde, wenn Russland den Krieg in der Ukraine gewinnen würde. Der japanische Lakai hat zur Hälfte Recht. Die Regionen sind tatsächlich miteinander verbunden, aber nicht durch
+
+
+-----
+
+angebliches russisches und chinesisches Fehlverhalten, sondern durch den US-geführten Imperialismus,
+dem Japan feige dient.
+Der westliche Imperialismus und der Faschismus haben in einer erstaunlich kurzen Zeitspanne der Geschichte den Kreis geschlossen. Fast 80 Jahre nach der Niederlage Japans im Pazifikkrieg, in dem es für
+bis zu 20 Millionen Tote in China verantwortlich war, steht Tokio an der Spitze neuer Pläne für einen möglichen Atomkrieg gegen China. Die Perversion Japans, sich mit den Vereinigten Staaten zusammenzutun,
+nachdem letztere 1945 zwei Atombomben auf das japanische Volk abgeworfen haben, ist eine weitere
+abscheuliche Wendung in der Geschichte.
+Die ungeheuerlichen Verbrechen Nazideutschlands und des faschistischen Japans werden heute rehabilitiert, weil dieselben Kräfte den imperialistischen geopolitischen Interessen von heute dienen.
+Die Verdrehungen und Widersprüche der Geschichte kristallisieren sich jedoch in einer historischen Kraft.
+All die Verbrechen, die Barbarei, das Blutvergiessen und die Gefahr eines katastrophalen Weltkriegs sind
+auf die imperialistischen Mächte zurückzuführen – allen voran die Vereinigten Staaten und ihr unersättliches Streben nach hegemonialer Vorherrschaft.
+Das historische Versagen und der systemische Zusammenbruch des westlichen Kapitalismus ist der Motor,
+der die Welt erneut in den Krieg treibt, wie schon in früheren Perioden der Neuzeit. Kolonialistischer Völkermord, Erster Weltkrieg, Zweiter Weltkrieg, und nun der Abgrund des Dritten Weltkriegs.
+Dass Deutschland wegen Völkermordes mit Israel auf der Anklagebank sitzt, ist nicht so abwegig, wie es
+scheinen mag. Denn Imperialismus und Faschismus sind wieder auf dem Vormarsch in der ganzen Welt.
+Sowohl Deutschland als auch Israel sind Bandenmitglieder des Verbrechersyndikats, jedes mit seinen eigenen Rechtfertigungsmythen und Alibis.
+Russland und China sind wohl die beiden Nationen, die in der Geschichte am meisten unter dem Faschismus gelitten haben. Es ist nur folgerichtig – wenn nicht sogar bedauerlich –, dass Russland und China heute
+wieder mit denselben Kräften konfrontiert sind.
+Deutschland steht wieder einmal auf der falschen Seite der Geschichte. Und das gilt auch für die Vereinigten
+Staaten und alle ihre westlichen Vasallen. Ewige Schande über sie.
+_QUELLE: GERMANY STANDS ON WRONG SIDE OF HISTORY AGAIN_
+_ÜBERSETZUNG: LZ_
+_Quelle: https://uncutnews.ch/deutschland-steht-wieder-auf-der-falschen-seite-der-geschichte/_
+
+**Die deutsche Aussenministerin Annalena Baerbock rief dazu auf, eine Eskalation zu vermeiden. Sie**
+**hätte dazu beitragen können, wenn sie auch den Angriff und die Zerstörung der iranischen Botschaft in**
+**Damaskus scharf kritisiert hätte. © ARD**
+
+###### So einseitig und scheinheilig sind Baerbock, Macron und Medien
+_INFOsperber, Urs P. Gasche / 15.4.2024_
+
+**Die Drohnen- und Raketenangriffe Irans gegen Israel hatten einen Anlass, so wie auch das Besetzen des**
+**Gazastreifens durch Israel.**
+
+
+-----
+
+Wer das unfassbare Töten und Zerstören Israels im Gazastreifen als unverhältnismässig kritisiert, ohne
+gleichzeitig das Massaker der Hamas in Israel zu verurteilen, wird mit Recht als unglaubwürdig und einseitig
+hingestellt.
+Doch die gleichen Politiker und Medien haben über das Wochenende die Drohnenangriffe Irans gegen
+Israel kritisiert, ohne gleichzeitig die Bombardierung und Zerstörung der iranischen Botschaft in Damaskus
+zu verurteilen.
+Damit zeigten Aussenministerin Annalena Baerbock, Präsident Macron und andere westliche Exponenten
+sowie auch die meisten Medien, dass sie mit zwei Ellen messen.
+Das militärische Angreifen und Zerstören einer diplomatischen Botschaft ist eine schwere Verletzung des
+Völkerrechts. Alle Staaten haben die Pflicht, Botschaften auch feindlicher Staaten vor Attentaten und fremden Eindringlingen zu schützen. Selbst wenn klar wäre, dass sich in einer Botschaft ein Waffenlager befindet, gilt der Ort als ausländisches Territorium. Ein Land kann lediglich den Botschafter und sein Personal
+ausser Landes weisen. Der Schutz der Botschaften ist im Wiener Abkommen über diplomatische Beziehungen von 1962 geregelt[[1]].
+Ein völkerrechtswidrig angegriffenes Land hat ein Recht, sich zu wehren. So wie Israel argumentiert, die
+Hamas dürfe nie mehr in der Lage sein, eine Rakete auf Israel abzufeuern, könnte Iran argumentieren, es
+müsse dafür sorgen, dass Israel nie mehr in der Lage sei, eine seiner Botschaften anzugreifen.
+Doch wäre der Iran nicht in der Lage, dieses Ziel mit militärischen Mitteln zu erreichen.
+Eine weitere Verluderung der internationalen Rechtsordnung und eine selektive Anwendung des Völkerrechts erhöhen die Gefahr eines Weltkriegs. Von einem neutralen Land wie der Schweiz könnte man erwarten, dass es den Angriff und die Zerstörung einer Botschaft ebenso scharf verurteilt wie einen Terrorakt der
+Hamas. Es geht um die Glaubwürdigkeit, bei internationalen Konflikten vermitteln zu können.
+**NACHTRAG**
+Nahostexperte Erich Gysling erklärte gegenüber Blick: «Israel hat den Vergeltungsschlag eindeutig provoziert.»
+
+###### EU zu Ukrainekrieg: Lieber 100 Jahre schiessen als eine Stunde verhandeln
+
+_VON DAVID BERGER, 10. APRIL 2024_
+
+Die EU untersagt allen Diplomaten ihrer Mitgliedstaaten, ähnlich wie das Selenskys NichtverhandlungsDekret vorsieht, jeden Kontakt und damit jede Diplomatie betreffend Russland. Die Kriegstreiberei scheint
+in der EU, unter der Herrschaft unheilvoll agierender Politiker wie von der Leyen, die Sehnsucht nach
+Frieden und Menschlichkeit komplett verdrängt zu haben.
+
+_(C) Screenshot YT,_
+
+Die Internetseite der SPD Oberhausen teilt ihren Lesern in Sachen Ukrainekrieg mit: «Denn für uns gilt der
+Satz von Altkanzler Helmut Schmidt: ‹Lieber 100 Stunden umsonst verhandeln, als eine Minute schiessen.›»
+Damit dürfte sich dieser SPD-Verein nicht nur im Konflikt mit der kriegerischen Gesinnungsdiktatur
+Selenskys befinden, sondern inzwischen auch mit der öffentlichen EU-Doktrin.
+Laut einer schriftlichen Handlungsanweisung der EU an europäische Diplomaten soll diesen ihr ureigenes
+Handwerk, die Diplomatie verboten werden. Vielmehr sollen die Diplomaten der EU-Länder jegliche bilatera
+
+-----
+
+len Kontakte mit ihren russischen Kollegen meiden: «Lieber 100 Jahre schiessen als eine Stunde verhandeln» scheint dort die neue Devise zu sein.
+
+**Jeden Kontakt mit Russen vermeiden**
+Der russische Aussenminister Sergej Lawrow hat heute Auszüge aus einer schriftlichen Handlungsanweisung bekannt gemacht, die ihm von ‹Freunden aus den EU-Staaten› übergeben wurde. Der Text behandelt
+den Umgang mit russischen Diplomaten und wurde in jeder Hauptstadt verbreitet, in der es eine diplomatische Vertretung der EU und eine russische Botschaft gibt. Diesen Anweisungen soll streng gefolgt werden.
+Dort ist zu lesen:
+
+«Europäische Diplomaten sollten jegliche bilateralen Kontakte mit Vertretern Russlands vermeiden. Es ist
+ihnen untersagt, Veranstaltungen zu besuchen, die von der russischen Seite organisiert werden. Dies betrifft
+unter anderem auch feierliche Empfänge anlässlich des Diplomatentags am 4. November, am 10. Februar,
+am 23. Februar, am 9. Mai sowie am Tag Russlands am 12. Juni.
+Russische Diplomaten dürfen nicht zu Veranstaltungen und Empfängen eingeladen werden, die von den
+Behörden und Vertretungen der EU sowie den Aussenministerien der EU-Staaten organisiert werden. Es ist
+europäischen Diplomaten nicht verboten, Veranstaltungen von Drittstaaten zu besuchen, an denen russische Vertreter teilnehmen.
+Es ist jedoch wichtig, direkten Kontakt mit den russischen Vertretern zu vermeiden. Es wird empfohlen,
+dem Gastgeber im Voraus mitzuteilen, dass vermieden werden sollte, dass europäische und russische Delegationen gemeinsam auf Fotos zu sehen sind oder zusammen an offiziellen Sitzungen teilnehmen.»
+_Quelle: https://philosophia-perennis.com/2024/04/10/kriegsgeilheit-statt-diplomatie/_
+
+###### Kommentar des Lesers ‹Stefan A.› zu dem Artikel auf derselben Internetseite:
+
+Die EU verhindert mit dieser Handlungsanweisung die Diplomatie und führt ihren Zweck ad absurdum.
+Nämlich den der Völkerverständigung und der Konsensfindung. Ein Konsens bedeutet, dass nicht unbedingt eine egoistische Maximallösung angestrebt wird. Bei einem Konsens wird eine Lösung erreicht, mit
+der jedes Gruppemitglied leben kann. Dabei ist in diesem Zusammenhang das Wort ‹Gruppemitglied›
+durchaus passend, denn die EU-Staaten sind nur ein kleiner Teil von bloss 27 Gruppemitgliedern im internationalen Staatenbund von insgesamt 205 Staaten auf der Erde. Die EU-Verantwortlichen wollen also –
+und dies beweist die Handlungsanweisung – einer Lösung des Ukraine-Konfliktes, einer Deeskalation und
+der Friedensfindung entgegenwirken, weil schon Albert Einstein sagte: «Peace cannot be kept by force; it
+can only be achieved by understanding.» («Frieden kann nicht durch Gewalt erhalten werden, sondern nur
+durch Verständigung.») Quelle: https://www.quotes.net/quote/9370
+Die EU-Verantwortlichen entlarven sich mit der Handlungsanweisung als die wahren Extremisten und
+Kriegstreiber, die nur eine egoistische Maximallösung durch Kriegseskalation und weitere zehntausende
+unschuldige Kriegstote anstreben. Durch Blockierung von Diplomatie beweisen die Waffenindustrie-Lobbyisten und Kriegstreiber innerhalb der EU und NATO, dass sie dem friedlichen Ziel einer Beendigung des
+Krieges vorbeugen wollen und sie offenbaren zudem leider wieder eine rassistische, fremdenfeindliche, also
+eine nazistische Ideologie wie die NAZIs im Dritten Reich, wenn sie Russen wie Aussätzige behandeln wollen,
+um die man einen grossen Bogen machen muss.
+
+
+-----
+
+###### Die USA halten sich nur ans Völkerrecht, wenn es ihnen passt
+_INFOsperber, Urs P. Gasche / 17.4.2024_
+
+**Kleinstaaten sind davon abhängig, dass sich Grossmächte an Regeln halten.**
+**Doch die Schweiz prangert Verstösse der USA nicht an.**
+Ein kürzliches Beispiel ist der bindende Beschluss des UN-Sicherheitsrats, der eine sofortige Waffenruhe in
+Palästina verlangt. Die USA liessen den Beschluss zu, indem sie sich der Stimme enthielten. Die USA wären
+in der Lage, den Beschluss des Sicherheitsrats durchzusetzen, indem sie die Waffenlieferungen an Israel
+stoppen.
+Doch die USA erklärten kurz darauf, sie würden den Beschluss für ‹nicht bindend› erachten. Mit anderen
+Worten: Beschlüsse des Sicherheitsrats würden kein internationales Recht schaffen.
+Gegen diese willkürliche Auslegung des Völkerrechts war von offizieller Schweizer Seite kein Protest zu
+hören. Es gab auch keine öffentlichen Reaktionen, obwohl kleine und mittlere Staaten vor Willkür und
+Druckversuchen von Grossmächten nur einigermassen geschützt sind, wenn auch diese die internationale
+Rechtsordnung einhalten.
+
+**Blinken: «Die regelbasierte Ordnung bewahrt die weltweite Stabilität»**
+Am Vorabend von Russlands völkerrechtswidriger Invasion in der Ukraine im Jahr 2022 hatte Aussenminister Antony Blinken gewarnt vor einem «gefährlichen Moment für das Fundament der Charta der Vereinten
+Nationen und für die auf Regeln basierende internationale Ordnung, die weltweit die Stabilität bewahrt».
+Bedroht seien die Grundprinzipien, die Frieden und Sicherheit garantieren: «Prinzipien, die nach zwei Weltkriegen und einem Kalten Krieg festgeschrieben wurden.»
+Doch die USA würden dazu neigen, sich nur dann auf das Völkerrecht zu berufen, wenn es ihnen nütze,
+schrieb Spencer Ackerman, Kolumnist für Aussenpolitik bei ‹The Nation›. Sobald das Völkerrecht den Interessen der USA zuwiderlaufe, würden die USA das internationale Recht regelmässig verletzen und die Verstösse damit begründen, die USA müssten für eine globale Stabilität sorgen. Sie meinten damit eine von
+den USA dominierte Weltordnung.
+Mit dieser Haltung würden die USA das internationale Recht schwächen. Denn eine auf Regeln basierende
+Ordnung, welche die US-Regierungen gerne zitieren, doch an die sich die USA und ihre Verbündeten nicht
+halten müssen, untergrabe grundlegend den Zweck und Sinn des internationalen Rechts.
+Das sei der Grund, weshalb viele Staaten der südlichen Erdhalbkugel die Ukraine und die Sanktionen gegen
+den Aggressor Russland nur halbherzig oder gar nicht unterstützen. Denn sie selber wurden direkt oder
+indirekt bereits Opfer von Angriffen oder Sanktionen der USA, welche das Völkerrecht verletzten.
+
+**USA stellten Eigeninteressen über das Völkerrecht**
+Ackermann erinnert an folgende Fälle, bei denen die USA ihre eigenen Interessen über das Völkerrecht
+stellten:
+
+- Ein krasses Beispiel ist die US-Invasion im Irak im Jahr 2003. Die Regierung von George W. Bush rechtfertigte den Angriff zynisch damit, der Irak halte sich nicht an Abrüstungsbeschlüsse der UNO. Der vermeintliche Rechtsbrecher Irak musste Zerstörung und militärische Besatzung über sich ergehen lassen,
+während Washingtons unübertroffene militärische und wirtschaftliche Macht dafür sorgte, dass die USA
+für diese Invasion ohne UN-Ermächtigung keine Konsequenzen zu befürchten hatte.
+
+- Ebenfalls im Jahr 2003 verabschiedeten die USA ein Gesetz, das vorsah, ‹alle erforderlichen Mittel› einzusetzen, um die vom Internationalen Strafgerichtshof rechtmässig inhaftierten Amerikaner freizubekommen.
+
+- Während des libyschen Aufstands 2011 nutzten die USA und ihre Verbündeten die Genehmigung des
+Sicherheitsrats für eine Flugverbotszone, um Muammar Ghaddafi zu stürzen. US-Truppen operieren nun
+schon seit mehr als acht Jahren im Osten Syriens, lange genug, um zu vergessen, dass es für ihre
+Anwesenheit keine völkerrechtliche Grundlage gibt.
+
+- Was Israel in Gaza tut, verstösst eindeutig gegen das Völkerrecht. Bereits zwei Monate vor der Verabschiedung der Resolution Nr. 2728 des Sicherheitsrats entschied der Internationale Gerichtshof, dass
+die anhaltenden israelischen Angriffe als Völkermord angesehen werden können. Er forderte Israel auf,
+Massnahmen zu ergreifen, die einen Völkermord verhindern. Vor zehn Tagen empfahl die UN-Sonderberichterstatterin für die besetzten Gebiete, Francesca Albanese, den Mitgliedsstaaten, Waffenlieferungen
+an Israel ‹unverzüglich› zu verbieten, da Israel «die vom internationalen Gerichtshof angeordneten verbindlichen Massnahmen offenbar nicht befolgt» habe.
+
+- Washington bewaffnet einen Staat, den der Sicherheitsrat der UNO aufgefordert hat, den Kampf einzustellen.
+
+
+-----
+
+Diese Realitäten seien dem Rest der Welt nicht entgangen. Das Gemetzel in Gaza habe einige ausländische
+Beamte und Gruppen davon abgehalten, US-Beamten in anderen Fragen zuzuhören. Annelle Sheline, eine
+Menschenrechtsbeauftragte des Aussenministeriums, die kürzlich wegen des Gazastreifens zurückgetreten
+ist, sagte der ‹Washington Post›, dass einige Aktivistengruppen in Nordafrika sich mit ihr und ihren Kollegen
+nicht mehr treffen. «Der Versuch, sich für die Menschenrechte einzusetzen, wurde einfach unmöglich, während die USA Israel unterstützen», sagte sie.
+Eine Dynamik, die stark an das erinnere, was ausserhalb Europas geschah, als US-Diplomaten vor zwei Jahren weltweit um Unterstützung für die Ukraine warben. Sie stiessen auf «eine sehr deutliche negative Reaktion auf die amerikanische Neigung, die globale Ordnung zu definieren und Länder zu zwingen, Partei zu
+ergreifen». Das erklärte Fiona Hill, eine Wissenschaftlerin der Brookings Institution, in einer Rede im vergangenen Jahr.
+Ein nächstes Mal würden die USA auf noch weniger weltweite Unterstützung zählen können, wenn die USA
+sie gegen einen Gegner erwarten, meint Ackermann:
+«Die jüngste Resolution des Sicherheitsrats könnte in Erinnerung bleiben als Anfang des Niedergangs der
+regelbasierten internationalen Ordnung – also eigentlich der Ordnung, welche die USA aufbauen und
+erhalten wollen.
+Die aufstrebenden Mächte werden sich gerne auf den amerikanischen Präzedenzfall berufen, wenn sie ihre
+eigenen Ausnahmen vom Völkerrecht geltend machen. Gaza zeigt auch auf grausame Weise, dass die
+Schwächsten am meisten leiden, wenn sich die Mächtigen nicht ans Völkerrecht halten.»
+
+_Ein Artikel von Karin Leukefeld; 15. April 2024 um 12:30_
+_Titelbild: MEE via X_
+
+«Ich bin Dr. Ghassan Abu Sitta. Ich komme gerade aus Deutschland zurück, wo man mir die Einreise verweigert hat. Ich wollte an einer Konferenz in Deutschland teilnehmen, um über den Krieg in Gaza zu sprechen.
+Ich sollte als Zeuge über meine Arbeit als Arzt sprechen, der in den Krankenhäusern in Gaza gearbeitet
+hat.» Ghassan Abu Sitta sitzt in einem Auto, das ihn vom Flughafen abgeholt hat. Es ist Freitag gegen Abend,
+der 12. April 2024. In der Hand hält der Arzt ein Mikrophon von Middle East Eye (MEE), einem in England
+ansässigen Internetportal, das in englischer und französischer Sprache Nachrichten über den Nahen und
+Mittleren Osten veröffentlicht. Ruhig und überlegt berichtet der Arzt, was ihm am Berliner Flughafen widerfahren ist, eindringlich blicken seine Augen durch die grossen, dunkel gerahmten Brillengläser.
+Von Karin Leukefeld.
+
+
+-----
+
+_«Heute Morgen um 10.00 Uhr landete ich in Berlin, um an einer Konferenz zu Palästina teilzunehmen. Wie viele_
+_andere aus Grossbritannien (UK), den USA und Europa war ich gefragt worden, dort zu über die 43 Tage zu_
+_berichten, die ich in Krankenhäusern in Gaza verbracht habe. Ich habe dort sowohl im Shifa-, als auch im Ahli-_
+_Krankenhaus gearbeitet. Bei meiner Ankunft wurde ich an der Passkontrolle gestoppt. Dann hat man mich in_
+_den Keller des Flughafens gebracht, wo ich 3,5 Stunden befragt wurde._
+_Am Ende dieser 3,5 Stunden sagte man mir, ich dürfe deutschen Boden nicht betreten. Dieses Verbot gelte für_
+_den gesamten April. Aber nicht nur das. Sollte ich versuchen, mich per Zoom oder FaceTime mit der Konferenz_
+_in Verbindung zu setzen, selbst wenn ich ausserhalb von Deutschland sei, oder sollte ich ein Video mit meinem_
+_Vortrag an die Berliner Konferenz senden, sei das ein Vergehen gegen deutsches Recht. Ich liefe Gefahr, eine_
+_Geldstrafe zu erhalten oder bis zu einem Jahr im Gefängnis zu landen. Dann sagte man mir, ich solle einen_
+_Rückflug nach England buchen. Mein Pass wurde mir abgenommen und ich erhielt ihn erst zurück, als ich das_
+_Flugzeug bestieg.»_
+Der Mann, Ghassan Abu Sitta, dem die deutschen Behörden die Einreise verweigerten, der nicht einmal per
+Internet mit dem Palästina-Kongress Kontakt aufnehmen sollte, zu dem er als Redner eingeladen war, ist
+Chirurg und auf plastische Chirurgie spezialisiert. Als Freiwilliger für ‹Medecins sans Frontiere› (MSF) ist
+Abu Sitta bereits auf vielen Kriegsschauplätzen im Einsatz gewesen. In Gaza war er bei den Angriffen der
+israelischen Armee 2009, 2014, 2021 und zuletzt wieder nach Beginn des Krieges am 7. Oktober 2023
+tätig.
+43 Tage arbeitete Ghassan Abu Sitta zunächst im Shifa-Krankenhaus in Gaza Stadt und im Ahli-Krankenhaus, auch bekannt als das ‹Englische Krankenhaus› oder das ‹Baptistenkrankenhaus›, das älteste Krankenhaus im Gazastreifen. Gegründet wurde es 1882 von Quäkern, als Gaza und arabische Gebiete zum Osmanischen Reich gehörten. Unter dem britischen Mandat wurde die Klinik von den Engländern übernommen
+und wird heute vom Ökumenischen Rat der Kirchen – World Council of Churches – zusammen mit der
+Anglikanischen Kirche in Grossbritannien geleitet.
+Ghassan Abu Sitta ist Palästinenser mit britischer Staatsangehörigkeit. Er lebt und arbeitet in Grossbritannien und wurde erst kürzlich zum Direktor der Universität Glasgow gewählt. Seine Familie wurde 1948 –
+im Zuge der Nakba – aus Palästina vertrieben. Sein Onkel ist Salman Abu Sitta, bekannt für seine Dokumentation von Palästina und Vorschläge für eine Rückkehr der Palästinenser, war damals 10 Jahre alt.
+Das Verständnis von Dr. Ghassan als Arzt basiert, wie er es selbst beschreibt, auf der «palästinensischen
+Erfahrung, dass Gesundheit und der Akt der Befreiung in Beziehung zueinander stehen». Dabei gehe es
+«sowohl um die Befreiung der Menschen als auch um die Befreiung ihres Landes», sagt der Arzt nach
+seiner Rückkehr aus Gaza Anfang Dezember 2023 bei einem Vortrag in Beirut.
+Schon am Abend des 7. Oktober sei ihm klar gewesen, dass ein ‹fürchterlicher Krieg› bevorstand. Im Gespräch mit seiner Frau sei schnell klar gewesen dass sein Platz in Gaza sei Kollegen von MSF hätten ihm
+
+
+-----
+
+ein Flugticket nach Kairo (Ägypten) besorgt und am 9. Oktober sei er in Rafah gewesen, auf dem Weg nach
+Gaza Stadt. Am Dienstagmorgen (10.10.2023) sei er vom Haus seiner Cousins zum Shifa-Krankenhaus aufgebrochen. In den folgenden 43 Tagen habe er in vielen Krankenhäusern im Norden, im Jabiliya-Flüchtlingslager und immer wieder im Shifa-Krankenhaus gearbeitet.
+«Sehr schnell war klar, dass dieses kein Krieg wie die vorherigen war», so Dr. Ghassan. «Die ungeheure
+Wucht des Angriffs, (…) ganze Wohnviertel verschwanden. Erst in einem Feuerball, dann in einer Staubwolke, dann waren die Wohnviertel Trümmer. In den folgenden Tagen wurde klar, was die unglaubliche
+Zahl von Verletzten und Toten täglich bedeuteten. Dieser Krieg war ein Völkermord, kein Krieg mit militärischen Zielen.» In den Kriegen, in denen er gearbeitet habe, habe er gelernt, «den Krieg durch die Verletzungen der Patienten zu verstehen» und auch ‹die Waffen zu erkennen›, die diese Verletzungen auslösten.
+In der ersten Angriffswelle wurden Brandbomben eingesetzt und Hunderte von Verletzten wurden mit
+schweren Brandverletzungen eingeliefert, «50 bis 60 Prozent ihrer Körper waren verbrannt.» Dann kam
+eine Welle, in der ganze Familien, mehrere Generationen einer Familie durch die Bombardierung ihrer
+Häuser verschwanden. Einzelne Kinder wurden in den Kliniken eingeliefert, die als einzige Überlebende von
+ausgelöschten Familien übriggeblieben waren. «Dann wurden Kollegen von uns getötet», so Dr. Ghassan,
+«oft mit ihren ganzen Familien.
+Die Angriffe waren so intensiv, dass sie wie eine Vorführung wirkten. «Der Krieg wurde in einer Art und
+Weise geführt, dass es wie eine Zurschaustellung war. Die Israelis wollten klarmachen und geradezu exhibitionistisch allen zeigen, dass es für sie keine Rote Linie gab. Die Roten Linien, von denen man dachte, es
+gäbe sie in allen Kriegen, würden sie zertreten.»
+Bald waren die Kapazitäten des Shifa-Krankenhauses überfordert, berichtet Dr. Ghassan Anfang Dezember
+in Beirut. Patienten seien in das Ahli-Hospital gebracht worden, um sie dort zu operieren. In Absprache mit
+Kollegen sei er am Morgen des 17. Oktober dorthin gegangen, um zu operieren. Wie das Shifa-Krankenhaus
+sei auch das Ahli-Krankenhaus ein Flüchtlingslager geworden. Alle dachten, das Ahli-Krankenhaus sei
+sicher, vor allem wegen der Verbindung zur englischen Anglikanischen Kirche.
+Weil so viele Operationen anstanden und er bis spät am Abend operieren musste, habe er entschieden,
+über Nacht im Ahli-Krankenhaus zu bleiben. In der Nacht zwischen zwei Operationen hörten sie das Geräusch einer sich nähernden Rakete, die dann in unmittelbarer Nähe einschlug. Es folgte eine grosse Explosion. «Die Druckwelle war so stark, dass die Decke des Operationssaals einstürzte», so Dr. Ghassan. Ihm sei
+klar gewesen, dass das Krankenhaus direkt getroffen worden war. Als er ins Freie kam, bot sich dort, wo
+Familien Schutz gesucht hatten, ein Bild der Verwüstung: «Die Rettungswagen brannten, die Autos brannten. Das Feuer erleuchtete den Hof der Klinik, der mit Körpern übersät war und mit Körperteilen. Es war
+offensichtlich, dass der Einschlag direkt dort war, wo die Menschen gesessen hatten.» In all den Jahren, die
+er in Kriegsgebieten gearbeitet habe, sei er nie in einem Krankenhaus gewesen, das direkt getroffen worden
+sei, sagt Dr. Ghassan. Doch keine Journalisten hätten mit dem Personal gesprochen, um zu berichten, was
+geschehen war.
+Die Rakete, die eingeschlagen war, sei anders gewesen als vorherige Raketen, so der Arzt weiter. Die Art der
+Verletzungen wiesen auf eine Hellfire-Rakete hin, wie sie auch von Drohnen abgefeuert werden könnten.
+Man nenne sie ‹Ninja›. Die Munition zerspringe in Scheiben, die die menschlichen Körper an vielen Stellen
+durchdringen könnten. Unzählige Amputationen an den Verletzten mussten vorgenommen werden, die
+Patienten hätten im ganzen Körper Metallsplitter gehabt. «Am Ende der Nacht hatten wir 483 Tote gezählt»,
+sagt Dr. Ghassan.
+Ihm sei klargeworden, dass das Ahli-Krankenhaus speziell und absichtlich angegriffen worden sei. Noch am
+Morgen sei ihnen von der Verwaltung versichert worden, dass die Klinik sicher sei, obwohl die israelische
+Armee bereits zwei Raketen auf den Eingangsbereich zu dem Klinikgelände gefeuert hatte. Doch man habe
+die Versicherung des Bischofs in Grossbritannien erhalten, der wiederum die Versicherung des britischen
+Aussenministeriums hatte, dass das Ahli-Krankenhaus sicher sei.
+Tatsächlich sei die Auswahl des Krankenhauses ein Lackmustest gewesen, so Dr. Ghassan. Die Israelis wollten die Entschlossenheit der Welt testen. Sie wollten sehen, welche Antwort es geben würde, wenn dieses
+hochrangige Krankenhaus angegriffen würde. Die Reaktion sei so schwach gewesen, dass die Israelis die
+Antwort erhielten, die sie wollten, so der Arzt. «Innerhalb von Tagen begannen sie, das Gesundheitssystem
+im Norden von Gaza zu zerstören.»
+Vier Monate später wollte der Arzt seine Erfahrungen aus dem Gaza-Krieg und seine Berichte über den
+Krieg in Gaza auf dem Palästina-Kongress in Berlin vortragen. Die Einreise wurde ihm verboten.
+Seine kurze Stellungnahme gegenüber dem Nachrichtenportal Middle East Eye (MEE) beendet Dr. Ghassan
+nach seiner erzwungenen Rückkehr aus Berlin (12.4.2024) mit dem Hinweis, dass Deutschland sich heute
+gegen den Vorwurf verteidigen müsse, Mitschuldiger in dem völkermörderischen Krieg in Gaza zu sein. So
+beschreibe der Internationale Gerichtshof das dortige Geschehen. Und Deutschland verhalte sich so, wie
+sich ein Mittäter eines Verbrechens verhalte: «Sie begraben die Beweise und sie bringen die Zeugen zum
+Schweigen, verfolgen sie oder schüchtern sie ein.» Dann verweist er auf Hannah Arendt, die 1958 in ihrem
+
+
+-----
+
+ersten Vortrag, den sie in Deutschland nach dem 2. Weltkrieg gehalten habe, sagte, man vermenschliche
+das Geschehen in der Welt und das, was in den Menschen selbst vor sich gehe, indem man darüber spreche.
+_«Und indem wir darüber sprechen, lernen wir, menschlich zu sein.»_
+Die freie Rede zu verhindern, sei ein gefährliches Beispiel, weil das, was in Gaza geschehe, ein gefährlicher
+Vorgang sei, so Ghassan Abu Sitta. «Wir sehen, wie sich der erste Völkermord im 21. Jahrhundert entfaltet.
+Dass Deutschland Zeugen dieses Völkermordes zum Schweigen bringt, verheisst für das vor uns liegende
+Jahrhundert nichts Gutes.»
+_Quelle: https://www.nachdenkseiten.de/?p=113863_
+
+Quelle: Facebook
+
+Achim Wolf
+
+###### General Kujat: Denken an Krieg in Europa  gegen Russland ist verbrecherisch
+_Hwludwig, Veröffentlicht am 12. April 2024_
+
+Der frühere Generalinspekteur der Bundeswehr und Vorsitzende des NATO-Militärausschusses, General
+a D Harald Kujat hat sich in einem Interview den Kriegstreibern in Deutschland die einer Ausweitung des
+
+
+-----
+
+Ukraine-Krieges auf Russland das Wort reden, entschieden entgegengestellt. Das Risiko einer Eskalation,
+bis in den nuklearen Bereich, könne von keiner Seite politisch unter Kontrolle gebracht werden. Daran überhaupt zu denken, sei abenteuerlich, ja, verbrecherisch. Schon der jetzige Krieg sei für die Ukraine nicht zu
+gewinnen, den eigenen Zielen nach könne ihn im Grunde niemand gewinnen. – Die Aussagen General Kujats
+liegen zwar fünf Monate zurück, sind aber nur noch aktueller geworden. Nachfolgend das Transkript des
+Videos und anmerkende Gedanken zum Kriege. (hl)
+
+_Weltkrieg (Deutsches Historisches Museum)_
+_Die Zerstörungskraft ist ja heute noch in unvorstellbarer Weise gewachsen_
+
+**General Kujat in einem Interview-Ausschnitt:**
+«Das Risiko besteht einfach darin, dass sich eine Eskalation entwickelt, die weder von Russland noch vom
+Westen politisch unter Kontrolle gebracht werden kann. Das ist das eigentliche Problem. Und an der
+Schwelle stehen wir jetzt wieder mit der Ausweitung des Krieges auf Russland. Das muss man eben sehen.
+Und dann muss man auch berücksichtigen, dass wir in der Vergangenheit ja über erhebliche amerikanische
+und andere Kräfte von Bündnispartnern verfügten, um uns zu verteidigen. Die sind nicht mehr da. Und die
+Amerikaner brauchen vier bis sechs Monate, bis sie Material und Personal – Personal geht schneller – aber
+Material wieder zurückgeführt haben.
+Sie können sich doch erinnern an die grossen Reforger-Übungen.
+(‹Return of Forces to Germany›, kurz REFORGER (wörtlich ‹Rückkehr von Streitkräften nach Deutschland›),
+war eine Serie von Grossmanövern der NATO, die einmal oder mehrmals im Jahr abgehalten wurden. Die
+Manöver fanden von 1969 bis kurz nach dem Ende des Kalten Krieges 1993 statt. Ziele der Übungen waren
+im Rahmen der NATO-Strategie Flexible Response (MC 14/3) die Überprüfung und Verbesserung der geplanten Abläufe, das Training der beteiligten Truppen und die Machtdemonstration gegenüber dem potentiellen Gegner, dem Warschauer Pakt. Da weder die USA noch die Bundesrepublik Deutschland die für einen
+Krieg in Europa erforderlichen konventionellen US-Streitkräfte ständig in Deutschland stationieren wollten,
+ergab sich die Notwendigkeit dieser Übungen.» Wikipedia)
+Da wurden lediglich die Soldaten eingeflogen, sie haben ihre Waffensysteme im Besitz genommen, und
+innerhalb von 22 Stunden waren sie in ihren Verteidigungsräumen. Das ist Geschichte, das ist nicht mehr
+der Fall.
+Und die russischen Streitkräfte sind inzwischen so stark geworden, dass sie auch … das ist ein Risiko, überhaupt daran zu denken, dass es zu einem Krieg in Europa kommen könnte, der möglicherweise sogar das
+Risiko einer Eskalation in den nuklearen Bereich birgt. Das halte ich für abenteuerlich, für verbrecherisch
+geradezu.
+Und das bedeutet, kann doch nur bedeuten, dass wir uns selbst Zurückhaltung auferlegen, uns gegenüber,
+aber auch gegenüber der ukrainischen Bevölkerung. Das ist doch der entscheidende Punkt.
+Und diese Zurückhaltung sehe ich nicht. Ich sehe immer nur die Frontkämpfer des Informationskrieges, die
+fordern, fordern, fordern, und die den Eindruck erwecken, als könnte die Ukraine den Krieg gewinnen.
+Diesen Krieg kann niemand gewinnen.
+
+- Die Russen können ihn nicht gewinnen, denn ihr Ziel, die Nato-Erweiterung zu verhindern –, da müssen
+Sie schon zuschauen, wie Schweden und Finnland Mitglied werden.
+
+- Die Ukraine kann den Krieg nicht gewinnen, weil sie ihre Gebiete nicht zurückerobern kann. Es geht ja
+auch eigentlich gar nicht um Quadratmeter ukrainischen Bodens. Die ukrainische Regierung müsste
+doch ein Interesse daran haben, ihre Bevölkerung zu schützen! Was ist es, was ist denn eigentlich moralisch hochwertiger, noch einige Quadratmeter hinzuzugewinnen, vor allen Dingen in Regionen, in denen
+
+
+-----
+
+Menschen leben die sich als Russen oder als Russisch-sprachig verstehen und dabei zigtausende
+ukrainische Leben zu opfern, ist das moralischer?
+
+- Und drittens die Vereinigten Staaten können diesen Krieg auch nicht gewinnen. Denn auch sie können
+die politischen Ziele, deretwegen sie diesen Krieg unterstützen, nicht erreichen: nämlich die Schwächung
+der russischen Streitkräfte, die Schwächung Russlands insgesamt, politisch, wirtschaftlich. Politisch
+sehen wir im Gegenteil, wenn Sie die BRICS-Staaten und die Zusammenarbeit mit China nehmen, sehen
+Sie einen enormen politischen Aufschwung Russlands. Militärisch ist die russische Armee die stärkste
+seit vielen Jahren, auch da ist keine Schwächung.
+
+Also den Krieg kann, wenn man als Massstab nimmt, und das muss man, niemand gewinnen, weil er seine
+politischen Ziele nicht erreichen kann.
+Es bleibt also die Frage: Wer wird eine militärische Niederlage erleiden? Und das liegt, glaube ich, auf der
+Hand. Das ist nur eine Frage der Zeit. Es gibt heute schon anerkannte Wissenschaftler wie Seymour Hersh
+(investigativer Journalist, hl), der sagt: Der Krieg ist bereits für die Ukraine verloren, Russland hat gesiegt.
+Soweit würde ich noch nicht gehen, aber die Entwicklung, wie sie sich jetzt abzeichnet, ist doch völlig klar,
+ist ganz offensichtlich für jeden, der nur ein wenig von militärischen Operationen und von Strategie versteht.
+Nur leider ist in unserer Bundesregierung die Fähigkeit zum sicherheitspolitischen Weitblick ganz gering
+ausgeprägt oder gar nicht vorhanden. Und die Fähigkeit zu einer strategisch vernünftigen Beurteilung, die
+ist schon gar nicht vorhanden. Also hier muss ein Umdenken erfolgen. Und ich hoffe, dass dieses Umdenken
+zunächst in unseren Medien beginnt, denn dann wird diese Entwicklung auch bei der derzeitigen Regierung
+wirksam werden.»
+_Video-Ausschnitt: https://www.youtube.com/watch?v=4TNQTdVtlKk_
+_Zum ganzen Video: https://www.youtube.com/watch?v=Ws0wX…_
+_Siehe auch: https://fassadenkratzer.wordpress.com/2023/01/27/general-h-kujat-waffenlieferungen-bedeuten-dass-der-_
+_krieg-sinnlos-verlangert-wird/_
+
+**Anmerkende Gedanken zum Kriege (hl):**
+Abgesehen davon, dass die Reden vom Überfall Russlands auf die Ukraine und vom russischen Imperialismus nach Westen ständig wiederholte, aber vielfach widerlegte Lügen aus den dunklen Propaganda-Kanälen des wahren Weltimperialisten USA sind 1, muss man sich klarmachen, worum es sich objektiv bei jedem
+Krieg handelt.
+Er findet im Grunde auf dem Niveau pubertierender Jugendlicher statt, die entwicklungsbedingt noch nicht
+imstande sind, Differenzen und Konflikte mit dem Austausch von Argumenten zu lösen und sich in sozialem
+Ausgleich friedlich zu einigen, sondern egoistisch ihren Willen mit körperlicher Gewalt, also durch rücksichtslose physische Überwindung und Ausschaltung des Anderen durchsetzen wollen. Sie haben noch etwas Untermenschliches und die Entwicklungsstufe des normalen, Vernunft- und Sozialbegabten erwachsenen Menschen noch nicht erreicht.
+Bei Erwachsenen, die auf dieser brutal-pubertären Stufe zurückgeblieben sind und politische Machtpositionen besetzen, haben wir es aber noch mit ganz anderen Dimensionen zu tun. Sie schlagen bei ihrem politischen Gegenüber nicht selber zu, sondern schicken Millionen andere Menschen in die nun mit hochentwickelten Waffen unterstützte physische Gewalt hinein, welche ungeheure Zerstörung und Tod, Leid und
+Elend zur Folge hat, ja mit der heute nicht nur der eigene Tod, sondern die Vernichtung der ganzen Menschheit riskiert oder gar in Kauf genommen wird.
+Selbst das friedlichste Land muss sich natürlich wappnen, um nicht mit Gewalt erniedrigt und geknechtet
+zu werden und wird so ebenfalls auf das untermenschliche Niveau heruntergezogen.
+Jeder erwachsene, vernünftige Mensch aber will in seinem tiefsten Wesen nur das Gute. Er kann aus sich
+selbst heraus niemals die eigene oder gar die allgemeine Vernichtung wollen. Wenn er aber nicht alles für
+einen friedlichen Ausgleich tut, sondern dem Krieg das Wort redet, müssen es stärkere, untermenschliche,
+ja menschenfeindliche Kräfte sein, die von aussen unbemerkt in seine Seele eindringen, sein Ich überwältigen und zum hasserfüllten zerstörerischen Denken und Handeln treiben.
+Es ist klar, dass man das zurückweisen wird, da man in den Zeiten des Materialismus sinnlich unwahrnehmbare Wesen nicht anerkennt und alle Gefühle, Gedanken und Willensimpulse, die sich im eigenen Inneren
+geltend machen, ausschliesslich für eigene hält. Aber das liegt an der mangelnden Selbstreflexion. Für aufmerksame Beobachter ist ihr Wirken von aussen sehr wohl wahrnehmbar.2
+Es ist eben auch vollkommen im Interesse dieser Wesen, nicht bemerkt zu werden, da sie ja dann ihre Ziele
+nicht erreichen könnten. Es gilt das Wort Charles Baudelaires: «Die grösste List des Teufels ist es, uns glauben zu machen, dass es ihn nicht gibt.» – Aber in welche furchtbaren Abgründe führt das!
+Es wird allerhöchste Zeit, dass sich alle Menschen, die die Kulturstufe des Humanismus erreicht haben,
+aufhören, sich von der Auswahl der Zurückgebliebenen und wahnsinnigen Marionetten des Bösen regieren
+und in den Untergang führen zu lassen!
+_1  https://fassadenkratzer.wordpress.com/2024/03/05/auch-cdu-csu-hetzen-mit-lugen-propaganda-zum-krieg-gegen-_
+_l_ _d/_
+
+
+-----
+
+_2  https://fassadenkratzer.wordpress.com/2024/03/29/die-besessenen-der-geist-des-krieges-uberwaltigt-wieder-das-_
+_bewusstsein/_
+_Quelle: https://fassadenkratzer.wordpress.com/2024/04/12/general-kujat-denken-an-krieg-in-europa-gegen-russland-ist-_
+_verbrecherisch/_
+
+###### Der Arzt nennt sehr beunruhigende Zahlen zur Injektion
+_James Thorp, April 9, 2024_
+
+_pexels.com_
+
+Der amerikanische Arzt James Thorp ist in dem Dokumentarfilm Shot Dead zu sehen, in dem es um Kinder
+geht, die an den Folgen der Corona-Impfung gestorben sind. Eines dieser Kinder ist Trista Martin aus Oklahoma, die an der Pfizer-Impfung gestorben ist.
+Thorp sagte in einem Interview mit Jim Ferguson, dass allein in Oklahoma mehr als 8500 Menschen an der
+Impfung gestorben seien. Weitere 284’000 Menschen in Oklahoma seien durch den Schuss geschädigt
+worden. «Das ist eine konservative Schätzung.» Diese erschütternden Zahlen gingen Ferguson während des
+Interviews nicht mehr aus dem Kopf.
+Weltweit seien 17 Millionen Menschen durch den ‹Impfstoff› gestorben und 568 Millionen seien geschädigt
+worden, fügte Thorp hinzu.
+
+Pfizer-Chef Bourla und Moderna-Chef Bancel bezeichnete er als ‹Schlächter›. Die Regierungen seien an
+diesem Völkermord mitschuldig. ‹Sie können sich nicht vorstellen, wie böse diese Leute sind.›
+Dagegen seien die Atombombenabwürfe auf Hiroshima und Nagasaki ein Kinderspiel. Und das tödlichste
+Medikament, das je auf den Markt kam, Contergan, sei im Vergleich dazu ein Schwangerschaftsvitamin, so
+der Gynäkologe.
+Er fügte hinzu, dass er und einige andere in Kürze eine Arbeit veröffentlichen werden, die schlüssige Beweise (‹smoking gun›) dafür liefern wird, dass das Spike-Protein existiert und geimpfte Personen das SpikeProtein auf ungeimpfte Personen übertragen und die Symptome anderer geimpfter Personen verschlimmern können.
+«Alles, was durch den Impfstoff verursacht wird, könnte theoretisch auch durch Haarausfall verursacht werden», warnte er. «Das finde ich sehr beunruhigend.»
+Der Mediziner stiess auch auf Daten der amerikanischen Gesundheitsbehörde FDA, die einen Zusammenhang zwischen der Injektion, kognitiven Störungen, psychischen Störungen und Selbstmordgedanken belegen Die Zahlen explodieren Die Warnsignale seien völlig ignoriert worden
+
+
+-----
+
+Thorp beobachtet, dass Menschen nach der Injektion kaum wiederzuerkennen sind. «Sie starren ausdruckslos ins Leere. Sie sind völlig andere Menschen geworden.»
+Er prognostiziert, dass bald noch viel mehr Menschen sterben werden.
+Der britische Bestattungsunternehmer John O’Looney reagierte schockiert auf das Interview: «Das ist jetzt
+ein Verbrechen biblischen Ausmasses.»
+_Quelle: https://uncutnews.ch/der-arzt-nennt-sehr-beunruhigende-zahlen-zur-injektion/_
+
+###### Die Tötungsmaschine des Pentagons in der Ukraine
+_Jacob G. Hornberger, April 9, 2024_
+
+Das ‹Wall Street Journal› berichtete gestern, dass die ukrainische Regierung das Einberufungsalter für ukrainische Männer von 27 auf 25 Jahre herabsetzen will. Die Massnahme ist «Teil der Bemühungen, die nach
+zwei Jahren des Kampfes gegen die russische Invasion und erneuten Angriffen dezimierten Streitkräfte des
+Landes aufzustocken». Dem Journal zufolge sagte der ukrainische Präsident Wolodymyr Selensky «im
+Februar, dass 31’000 ukrainische Soldaten im Kampf gefallen seien, aber Militäranalysten sagen, dass die
+tatsächliche Zahl wahrscheinlich viel höher ist.»
+Der erste Gedanke, der mir in den Sinn kam, war, dass das ukrainische Wehrpflichtalter so hoch ist. Hier in
+den Vereinigten Staaten zieht die Regierung 18-Jährige ein, um in ihren Kriegen zu kämpfen. Es ist erwähnenswert, dass die ukrainische Regierung zu Beginn des Krieges zwischen der Ukraine und Russland Männern zwischen 18 und 60 Jahren die Ausreise untersagte, für den Fall, dass die Regierung sie einberufen
+müsste, um in ihrem Krieg zu kämpfen.
+
+_Air Force Staff Sgt. Brittany A. Chase, DOD_
+
+Der zweite Gedanke, der mir in den Sinn kam, war die Frage, warum man überhaupt Menschen einberufen
+muss. Wehrpflicht ist Zwang. Sie zwingt Menschen zum Kämpfen, obwohl sie nicht kämpfen wollen. Warum
+werden die ukrainischen Männer gezwungen, in diesem Krieg zu kämpfen? Warum tun sie es nicht freiwillig?
+Das sollte uns eine Menge über die Natur dieses Krieges sagen.
+Der dritte Gedanke, der mir auffiel, war, dass die Zahl der ukrainischen Männer, die in diesem Krieg getötet
+wurden, weit über 31’000 liegen muss, wie Militäranalysten angeben. Wenn sie das Wehrpflichtalter herabsetzen müssen, um mehr Soldaten zu bekommen, muss die Zahl der Toten ausserordentlich hoch sein. In
+diesem Artikel des ‹Wall Street Journal› wird beschrieben, wie viele ukrainische Frontsoldaten inzwischen
+ein mittleres Alter erreicht haben, wenn man bedenkt, wie viele jüngere ukrainische Soldaten in diesem
+Konflikt gestorben sind.
+Der vierte Gedanke, der mir in den Sinn kam, war der wichtigste: Das nationale Sicherheitsestablishment
+der USA – d.h. die föderale Tötungsmaschinerie der USA, unter der wir Amerikaner geboren und aufgewachsen sind – ist für diese hohe Zahl von Toten verantwortlich, ebenso wie für die hohe Zahl von Toten unter
+den russischen Soldaten, ganz zu schweigen von der enormen Zerstörung der Ukraine selbst.
+Warum werden die ukrainischen Männer gezwungen, in diesem Krieg zu kämpfen? Weil sie wissen, dass
+dies kein Krieg für die Freiheit ist. Das war er noch nie. Es ist ein Krieg, um das ‹Recht› der ukrainischen
+Regierung auf den Beitritt zur NATO durchzusetzen, einem alten Dinosaurier des Kalten Krieges, den es nie
+hätte geben dürfen und der zumindest mit dem angeblichen Ende des Kalten Krieges hätte verschwinden
+müssen. Auch auf die Gefahr hin, das Offensichtliche zu wiederholen: für das ‹Recht› der ukrainischen
+Regierung, der NATO beizutreten, zu sterben, ist etwas anderes als für den Schutz der Freiheit des ukrainischen Volkes zu sterben.
+
+
+-----
+
+Mit anderen Worten: Entgegen der landläufigen Meinung ist Russland nicht in die Ukraine einmarschiert,
+um das Land zu erobern und die Bevölkerung zu unterjochen. Wäre das der Fall gewesen, wäre es so gut
+wie sicher, dass die ukrainischen Männer nicht zum Kampf gezwungen werden müssten. Wenn Menschen
+mit einem Eindringling konfrontiert werden, der sie zu versklaven versucht, sind sie in den meisten Fällen
+bereit zu kämpfen, um dies zu verhindern, selbst wenn es sie das Leben kostet.
+Nehmen wir die Schweiz, ein Land, das sich ganz der Verteidigung verschrieben hat. Im Falle einer Invasion
+der Schweiz würden zweifellos mindestens 99 Prozent der Schweizer Bürger, die bis an die Zähne bewaffnet
+sind, zu den Waffen greifen, um sich der Invasion zu widersetzen.
+Nur wenn es in Kriegen um dumme politische Ziele geht, muss man auf die Wehrpflicht zurückgreifen. Die
+Menschen müssen gezwungen werden, zu kämpfen und zu sterben, um diese dummen politischen Ziele
+zu erreichen. Das ‹Recht›, der NATO beizutreten, ist eines dieser dummen politischen Ziele. Es hat nichts
+mit echter Freiheit zu tun. Es hat alles mit dem Beitritt zu einem alten, korrupten, tödlichen und zerstörerischen bürokratischen Dinosaurier aus dem Kalten Krieg zu tun. Ich vermute, dass die ukrainischen Männer,
+die sich einberufen lassen müssen oder denen es gelungen ist, aus dem Land zu fliehen, das wissen.
+Und es ist nicht so, dass die ukrainischen Beamten nicht wüssten, was passieren würde, wenn sie auf einem
+NATO-Beitritt bestünden. Seit mindestens 20 Jahren hat Russland deutlich gemacht, dass ein NATO-Beitritt
+der Ukraine eine ‹rote Linie› darstellt. Das bedeutete, dass Russland in die Ukraine einmarschieren würde,
+wenn die Ukraine auf einem NATO-Beitritt bestehen würde.
+Langjährige Leser meines Blogs wissen, dass ich seit langem ein Buch mit dem Titel ‹National Security and
+Double Government› von Michael J. Glennon empfehle, der Rechtsprofessor an der Tufts University und
+ehemaliger Berater des Senatsausschusses für auswärtige Beziehungen ist. Glennons These, der ich mich
+anschliesse, besagt, dass der Bereich der nationalen Sicherheit die eigentliche Verantwortung für die Führung der Bundesregierung trägt, insbesondere in auswärtigen Angelegenheiten.
+So waren es das Pentagon und die CIA, die die NATO zur Osterweiterung nutzten, indem sie ehemalige Mitglieder des Warschauer Paktes aufnahmen, was es dem Pentagon und der CIA ermöglichte, ihre Truppen,
+Raketen und andere Rüstungsgüter immer näher an der russischen Grenze zu installieren. Der endgültige
+Auslöser für den Krieg war die Absicht der NATO, die Ukraine zu absorbieren, von der das Pentagon und
+die CIA wussten, dass sie Russland zu einer Invasion veranlassen würde, so wie die Aufstellung russischer
+Raketen auf Kuba das Pentagon und die CIA zu einer Invasion dieses Landes veranlassen würde.
+Es ist erwähnenswert, dass das Pentagon und die CIA die Versprechen, die US-Politiker Russland am Ende
+des Kalten Krieges gegeben hatten, die NATO nicht auch nur einen Zentimeter nach Osten zu erweitern,
+zunichte machten. Gibt es einen besseren Beweis für Glennons Aussage als das?
+Was war das Motiv des Pentagons und der CIA, einen Krieg zwischen Russland und der Ukraine anzuzetteln?
+Das Motiv war: (1) Russland zu ‹degradieren›, was dasselbe Motiv war, das US-Politiker hatten, als sie Russland 1979 zur Invasion in Afghanistan manipulierten – das heisst, Russland sein ‹eigenes Vietnam› zu
+geben, indem sie Zehntausende von russischen Soldaten töten oder verletzen liessen; (2) eine weitere ihrer
+vielen Krisen zu schaffen, um ihre Existenz und ihre ständig wachsenden, vom Steuerzahler finanzierten
+Grosszügigkeiten zu rechtfertigen; und (3) die Amerikaner davon abzuhalten, sich mit dem 20-jährigen USDesaster in Afghanistan eingehend zu befassen.
+Wie ich schon seit langem behaupte, war der grösste Fehler, den Amerika je gemacht hat, die Umwandlung
+unserer Bundesregierung in einen Staat der nationalen Sicherheit. Deshalb sind wir alle unter einer der
+grössten Tötungsmaschinen der Geschichte geboren und aufgewachsen. Fragen Sie einfach die Ukrainer,
+die Russen und so viele andere Opfer dieser Tötungsmaschine auf der ganzen Welt.
+_QUELLE: THE PENTAGON’S KILLING MACHINE IN UKRAINE_
+_ÜBERSETZUNG: ANTIKRIEG_
+_Quelle: https://uncutnews.ch/die-toetungsmaschine-des-pentagons-in-der-ukraine/_
+
+###### Israel droht: Wenn die USA keine Waffen mehr liefert,  werden wir Atomwaffen einsetzen.
+_Informationliberation, April 9, 2024_
+
+Israelischer Politiker deutet an, dass Israel Atomwaffen einsetzen wird, wenn Amerika die Waffenhilfe einstellt.
+Der israelische Abgeordnete Nissim Vaturi, Mitglied der regierenden Likud-Partei von Ministerpräsident
+Benjamin Netanjahu, hat am Samstag eine nicht ganz unverhohlene Drohung ausgesprochen: Wenn
+Amerika Israel keine Waffenhilfe liefere, werde Israel Atomwaffen einsetzen.
+«Im Falle eines Konflikts mit dem Iran, wenn wir keine amerikanische Munition bekommen – werden wir
+alles einsetzen müssen, was wir haben», sagte Vaturi ominös.
+
+
+-----
+
+_YouTube_
+
+Israel hatte am 1. April bei einem Luftangriff auf ein iranisches Botschaftsgebäude in Syrien einen hochrangigen iranischen Brigadegeneral und 15 weitere Personen getötet, der Iran hatte Vergeltung versprochen.
+Vaturis Äusserungen wurden von vielen als Drohung interpretiert, Atomwaffen gegen den Iran einzusetzen
+oder sogar die Samson-Option (Israels Plan, alle seine Atomwaffen abzufeuern und einen globalen nuklearen Holocaust auszulösen, wenn seine Existenz bedroht ist) zu nutzen.
+Fox-News-Moderator Mark Levin sprach Mitte Oktober eine ähnliche Drohung aus.
+
+«Was werden sie [Israel] tun, wenn sie umzingelt sind», sagte Levin damals. «Was werden sie tun, wenn
+150’000 moderne Raketen abgeschossen werden? Was werden sie tun, wenn der Iran eingreift? Einen konentionellen Krieg können sie nicht ge innen Was erden sie dann t n?
+
+
+-----
+
+«Ich glaube, ich weiss, was sie tun würden», fuhr Levin fort. «Ich weiss, was wir tun würden, wir würden den
+Feind vernichten, weil wir sonst ausgelöscht würden. Das ist alles, was ich zu sagen habe!»
+«Die Israelis haben ihr eigenes [nukleares] Arsenal, was sie nie zugeben» sagte er. «Wenn Israel am Rande
+der Vernichtung steht, glauben Sie, dass sie diese Atombomben haben, um Staub zu sammeln?»
+«Wenn man ein Land ist, das über diese Art von Waffen verfügt, und wenn sein Volk abgeschlachtet werden
+soll wie damals – nur dass es dieses Mal völlig ausgelöscht wird – dann muss man über alle Optionen nachdenken», sagte er in Anspielung auf die Samson-Option.
+Auch Ben Shapiro erwähnte in seiner Sendung nach dem 7. Oktober die Samson-Option als Grund für die
+USA, Israel weitere Hilfe zukommen zu lassen:
+_Der zionistische Kommentator Ben Shapiro sagt, Israel werde die Samson-Option einleiten, wenn Amerika Israel_
+_nicht aufrüstet und Ägypten und Jordanien nicht zwingt, ihre Grenzen für palästinensische Flüchtlinge zu öffnen._
+
+Die Lieferung von Hilfsgütern an Israel ist nach US-Recht aufgrund einer Änderung des Atomwaffensperrvertrags von 1977 illegal, aber die USA tun einfach so, als hätte Israel keine Atomwaffen, damit die Hilfe
+ungehindert fliessen kann.
+_QUELLE: ISRAELI POLITICIAN SUGGESTS ISRAEL WILL USE NUKES IF AMERICA STOPS SUPPLYING_
+_WEAPONS AID_
+_Quelle: https://uncutnews.ch/israel-droht-wenn-die-usa-keine-waffen-mehr-liefert-werden-wir-atomwaffen-einsetzen/_
+
+###### Herzzerreissend: Dieses 17-jährige Mädchen erlitt drei Mal  einen Herzstillstand und starb, nachdem es den  Impfstoff von Pfizer erhalten hatte.
+_uncut-news.ch, April 9, 2024_
+
+Die 17-jährige Aubrynn Grundy aus dem US-Bundesstaat Michigan erkrankte wenige Wochen nach ihrer
+zweiten Pfizer-Impfung an Corona und erlitt einen Herzstillstand. Sie wurde ins Krankenhaus eingeliefert,
+wo ihre Organe versagten und sie auf tragische Weise starb.
+Aubrynn war ein sehr gesundes 17-jähriges Mädchen, aber nachdem sie ‹vollständig› gegen Corona geimpft
+worden war, erlitt sie dreimal einen Herzstillstand.
+Das Mädchen erhielt ihre erste Dosis am 7. Juni 2022 und ihre zweite Dosis am 28. Juni 2022. Einen Monat
+später fühlte sie sich unwohl. Ihre Mutter brachte sie am 20. Juli ins Krankenhaus, wo sie im Wartezimmer
+einen Herzstillstand erlitt
+
+
+-----
+
+Sie wurde an ein Beatmungsgerät angeschlossen und erhielt verschiedene Medikamente. Aus ihrer Krankenakte geht hervor, dass sie so hohe Dosen erhielt und das Pflegepersonal ihr Naloxon verabreichen
+musste, ein Gegenmittel gegen Überdosierungen.
+Ein Krankenwagen wurde gerufen, um Aubrynn in ein Kinderkrankenhaus zu bringen. Die Ambulanz musste
+wieder abbestellt werden, da nicht genügend Betten zur Verfügung standen. Ein anderes Kinderkrankenhaus schickte einen Hubschrauber, um sie abzuholen.
+Als sie im Kinderkrankenhaus ankam, hatte sie zwei weitere Herzstillstände. Sie verbrachte 17 Tage auf der
+Intensivstation, wo sich ihr Zustand weiter verschlechterte.
+
+_Das war Aubrynn kurz vor ihrem Tod:_
+
+Sie litt an Herzmuskelentzündung und ihre Finger, Hände, Zehen, Füsse, Beine und Arme wurden schwarz
+und mussten amputiert werden. Auch ihre Organe begannen zu versagen, da sie mit Remdesivir behandelt
+wurde.
+Am 6. August 2022 wurde ihr Körper resistent gegen Schmerzmittel und die Verfärbung ihrer Extremitäten
+wurde immer schlimmer. Schliesslich wurde beschlossen, Aubrynn von den lebenserhaltenden Massnahmen abzuschneiden, woraufhin sie starb.
+
+
+-----
+
+Ihre Mutter Shanna und ihr Stiefvater Adam beauftragten einen Anwalt damit, das Krankenhaus zu verklagen, erhielten jedoch ein Jahr später einen Brief von der Anwaltskanzlei, in dem mitgeteilt wurde, dass der
+Fall eingestellt werde.
+_Quelle: https://uncutnews.ch/herzzerreissend-dieses-17-jaehrige-maedchen-erlitt-drei-mal-einen-herzstillstand-und-starb-_
+_nachdem-es-den-impfstoff-von-pfizer-erhalten-hatte/_
+
+###### Brüssel, das Hornissennest, das Europa in den Krieg mit Russland führt
+_national.ro, April 9, 2024_
+
+100 Milliarden Euro werden für den Kauf von Waffen für die Ukraine gefordert! Nicht einmal während der
+Covid-19-Pandemie wagten wir von einem solchen Zahltag zu träumen, obwohl ein noch höherer Einsatz
+auf dem Spiel stand – das Überleben Europas angesichts einer beispiellosen Gesundheitskrise. Jetzt sind
+wir nicht mehr eingesperrt, und Brüssel will, dass wir wieder auf die Knie gehen, aber dieses Mal mit leeren
+Taschen. Alles im Namen der Solidarität mit einem angeblich unterdrückten Volk, das wir nicht nach den
+Rechten von Minderheiten und deren (Nicht-)Achtung fragen dürfen.
+Aber das Problem ist ein anderes, und es zeigt uns, dass wir wieder einmal Politiker haben, die unnahbar
+sind (manche würden sogar sagen, unzugänglich). Wenn es darum geht, was die Chefs der Europäischen
+Union tun, sollte kein Begriff völlig ignoriert werden.
+Macron, Beweis der Unverschämtheit, nicht rechtzeitig bestraft
+Sogar Amerika hat den Minikrieg in der Ukraine satt. Es hat die Nase voll, es hat Russlands Staatskasse geleert und die der Europäischen Union gleich mit! Spätestens seit November interessieren sich die USA nicht
+mehr für das, was in Kiew passiert – sie haben jeden Dialog über die Militärhilfe für Selensky blockiert, und
+für die in Washington akkreditierte Presse ist das Thema tabu geworden, zumal die Amerikaner im Nahen
+Osten eine neue Spielwiese gefunden haben, Hamas sei Dank!
+Gerade als wir dachten, endlich aus dieser Tortur herauszukommen und das zu bekommen, worauf Hunderte Millionen Menschen gewartet haben, nämlich die Ankündigung des Beginns der lang ersehnten Friedensverhandlungen, befindet sich ein Teil Europas in Kriegsstimmung. Und zwar ein ernster, mit Raketen
+und Lenkwaffen, mit Drohnen, Kettenpanzern, Kampfflugzeugen und strategischen Bombern, es soll
+rauchen und stinken, überall riecht es nach Blut!
+Warum das alles? Warum will man in Brüssel, dass wir auf dem ‹Alten Kontinent› weiter Krieg führen? Warum bestehen unsere ‹gewählten Vertreter› darauf, sofort Militärhilfe zu Selensky zu schicken, wo doch selbst
+Amerika diesen gescheiterten Akteur aufgegeben hat?!
+Emmanuel Macron ist der beste Beweis dafür, wohin es führen kann, wenn Frechheit nicht rechtzeitig bestraft wird. Der französische Staatschef lässt durchblicken, dass er um jeden Preis einen Krieg mit der Russischen Föderation will, und scheint nicht zu wissen, wie er Wladimir Putin weiter provozieren kann. Wenn
+das so ist, warum zieht er dann nicht allein in die Schlacht, warum erklärt er Moskau nicht in seinem eigenen Namen den Krieg, ohne sich hinter dem Rockzipfel seiner Mutter zu verstecken, denn Amerika ist ohnehin nicht daran interessiert, sein Arsenal zur Rettung Kiews einzusetzen!
+
+**Für wen sind die Milliarden?**
+Die USA haben vor fast sechs Monaten die Waffenlieferungen an die Ukraine eingestellt, eine strategische
+Entscheidung, um Selensky an den Verhandlungstisch zu zwingen. Jeder sieht es, nur wenige verstehen es,
+aber es gibt immer noch ein paar Lakaien in Brüssel, die weiterhin den Stock durch den Zaun stossen. Sie
+ähneln den Agitatoren von Antena 3, den Fernsehgenerälen unter der Führung von Marschall Radu Tudor,
+die ihr ganzes Leben lang nur Autos gefahren haben und keine Militäreinheiten.
+
+
+-----
+
+Es sind die Lobbyisten der grossen Rüstungskonzerne. Sie sammeln kein Geld für Selensky, sie kümmern
+sich wenig darum, was in der Ukraine wirklich passiert. Sie haben nur eine Aufgabe – Geld zu sammeln,
+Milliarden von Euro, für die grossen Rüstungskonzerne. Davon gibt es nur wenige, und Frankreich, vor allem
+aber die USA kontrollieren den Markt. Die Milliarden werden nie bei Selensky ankommen, sie sind für diese
+Konzerne bestimmt. Nachdem sie uns verarmt hat, indem sie die Kassen der Europäischen Union in die
+Taschen von Big Pharma geleert hat, will Ursula nun 100 Milliarden für den riesigen amerikanischen militärisch-industriellen Komplex. Offensichtlich ist sie Amerikanerin, wissen wir nur, dass sie auf der falschen
+Seite spielt – sie ist die Herrin Europas und Amerikas unterwürfiger Vasall. Mit wem hat sie die grossen Verträge über die Pandemie abgeschlossen, die heute Teil eines dubiosen Deals sind, der von der europäischen
+Staatsanwaltschaft untersucht wird?!!!; die Textnachrichten zwischen Ursula und dem CEO von Pfizer wurden schliesslich der Presse zugespielt, denn so wird auf dieser Ebene gespielt – man benutzt jeden, dann
+wäscht man seinen Gestank weg.
+
+**Wohin steuern wir?**
+So wie sich das Szenario entwickelt, wird es zu einer Militärdiktatur kommen. Das beste Beispiel kommt
+aus Rumänien. Die Behörden in Bukarest haben einen Gesetzesentwurf vorgelegt, der, gelinde gesagt, umstritten ist und die Ziele erkennen lässt, die verfolgt werden: Die Ausrufung eines Krisenzustands, der sowohl
+von der NATO als auch von der EU diktiert werden kann, eine Situation, in der die Regierung alle Massnahmen ergreifen kann, auch gegen die Bevölkerung, wenn die öffentliche Ordnung gestört oder die politische
+Stabilität bedroht ist.
+Einige sagen, dass es in den Labors von Brüssel entwickelt wird, wir wissen es nicht genau, aber Tatsache
+ist, dass der Entwurf des Nationalen Integrierten Krisenmanagementsystems, der vom Verteidigungsministerium zur öffentlichen Diskussion gestellt wurde, den Boden für die Errichtung einer noch nie dagewesenen Diktatur bereitet. ‹The Nationa›l schrieb am 3. April über dieses Thema, das von den Behörden, die
+nicht mehr Aufsehen als nötig erregen wollen, an uns ‹und andere› weitergeleitet wurde.
+Wir werden verarscht, das ist klar, man weiss nicht mehr, wem man trauen kann! Während Frankreich einen
+Krieg mit Russland anzetteln will, hat Deutschland auch etwas begonnen, allerdings auf wirtschaftlicher
+Ebene – den Wiederaufbau der von Putin besetzten Städte in der Ukraine.
+Während rumänische Fernsehsender fantasievolle Szenarien über die Rückeroberung ukrainischer Regionen aus den Fängen Russlands entwerfen, sind die Deutschen am Werk – eine ARD-Recherche hat ergeben,
+dass mehrere deutsche Unternehmen aktiv am Wiederaufbau von Mariupol beteiligt sind, der Stadt mit
+dem Asow-Tal-Werk und der berühmten Schlacht, die uns im Sommer 2022 in Atem gehalten hat.
+Fotos und Videos aus Mariupol zeigen, dass die Russen die Stadt mit Baumaterialien wiederaufgebaut
+haben, die vom deutschen Giganten Knauf geliefert wurden, einem bayerischen Unternehmen mit mehr als
+150 Fabriken weltweit.
+Unter diesen Umständen sind die Wahlen zum Europäischen Parlament am 9. Juni von entscheidender Bedeutung für die Zukunft aller Nationen. Das heisst, wenn sie noch stattfinden und sich die Gerüchte über
+eine Absage der Wahlen nicht bewahrheiten.
+_QUELLE: BRUXELLES, CUIBUL DE VIESPI CARE BAGĂ EUROPA ÎN RĂZBOI CU RUSIA!_
+_Quelle: https://uncutnews.ch/bruessel-das-hornissennest-das-europa-in-den-krieg-mit-russland-fuehrt/_
+
+###### Bericht warnt: Obama agiert als ‹bösartiger Schattenpräsident› hinter Bidens Präsidentschaft
+_uncut-news.ch, April 9, 2024_
+
+Ein neuer Bericht warnt davor, dass der ehemalige Präsident Barack Obama immer noch das Weisse Haus
+regiert
+
+
+-----
+
+Obama habe Machtspiele gespielt, die dem Einfluss von Präsident Joe Biden in nichts nachstünden, berichtet Stephen Flurry von der ‹Philadelphia Trumpet›.
+Gerüchte besagen, dass Obama absichtlich mächtiger als Biden ist.
+Flurry, der Chefredakteur des Nachrichtenmagazins ist, behauptet, dass Obama immer noch das Sagen
+haben könnte.
+In einem Artikel mit dem Titel ‹The Biden-Obama Power Struggle Isn’t Real› (Der Machtkampf zwischen
+Biden und Obama ist nicht echt) beschreibt Flurry, wie Obama trotz seines Status, der auf eine Art Übereinkunft hindeutet, präsidiale Schritte zu unternehmen scheint.
+Der Autor argumentiert, dass es keinen ‹Machtkampf› gibt, wie er in den Medien gerne dargestellt wird.
+Obama habe eindeutig die Oberhand über seinen ehemaligen Vizepräsidenten.
+Obama unternehme auch präsidiale Schritte, die auf einen höheren Status als den eines ehemaligen Oberbefehlshabers hindeuteten.
+Obama traf kürzlich den britischen Premierminister Rishi Sunak zu einem Besuch, den der ehemalige
+Präsident als ‹Höflichkeitsbesuch› bezeichnete.
+Das ist nicht nur beispiellos, sondern auch ein Schritt, über den sich die Demokraten ausdrücklich beschwert haben, als es um eine republikanische Regierung ging.
+«Einige Nachrichtenanalysten glauben, dass Bidens Unsicherheit auf eine Art Rivalität oder Machtkampf
+zwischen dem ehemaligen Präsidenten und dem Vizepräsidenten hindeutet», schreibt Flurry.
+«Aber dieser Glaube gibt Biden zu viel Kredit.»
+«Es mag ihm nicht immer gefallen, von Obama dominiert zu werden, aber er ist viel zu senil, um sich dagegen zu wehren», fügt der Autor hinzu.
+Mit so vielen ‹ehemaligen Mitarbeitern der Obama-Regierung› im Weissen Haus, so Flurry, könne der ehemalige Präsident Biden leicht beeinflussen.
+Natürlich ist Obama seit dem Ende seiner zweiten Amtszeit 2017 nicht mehr im Amt.
+Dennoch ist klar, dass er bei den Demokraten nach wie vor den gleichen Respekt und die gleiche Bewunderung geniesst, auch wenn der amtierende Präsident im Raum ist.
+Bei einer Veranstaltung im Weissen Haus anlässlich der Verabschiedung des Affordable Care Act im Jahr
+2022 war die Menge von Obama begeistert.
+Er schüttelte Hände und unterhielt sich mit einigen der Anwesenden, während Biden verloren und verlassen
+im Orbit verharrte.
+
+Wenn Obama diesen Einfluss auch dann noch hat, wenn er kein offizielles Amt in der Regierung bekleidet,
+bedeutet das, dass er Biden genau dort hat, wo er ihn haben will.
+In einem Interview mit Stephen Colbert in der ‹Late Show with Stephen Colbert› im November 2020 deutete
+Obama genau dieses Szenario an, wie Deadline berichtet.
+«Ich habe immer gesagt, wenn ich ein Arrangement treffen könnte, bei dem ich einen Stellvertreter oder
+einen Frontmann oder eine Frontfrau mit Kopfhörern hätte und ich einfach in meinem Keller in meinen
+Klamotten sässe und die Sachen durchsehen und ich den Text sprechen könnte, während jemand die Rede
+hält und die Zeremonie durchführt, dann wäre das für mich in Ordnung, weil ich diese Arbeit faszinierend
+finde», sagte Obama.
+Die Aussicht erregte den Präsidenten dessen Amtszeit begrenzt ist
+
+
+-----
+
+«Selbst an meinen schlimmsten Tagen fand ich es beruflich sehr befriedigend, diese grossen, komplizierten
+und schwierigen Probleme zu lösen, vor allem, wenn man mit grossartigen Menschen zusammenarbeitet»,
+sagte Obama.
+Auch wenn es keine direkten Beweise dafür gibt, macht Flurry keinen Hehl aus seiner Meinung.
+«Die Menschen müssen verstehen, dass Amerikas Probleme, die die Nation zerstören, nicht die Fehler eines
+senilen Präsidenten sind», schloss Flurry.
+«Sie sind die Erfolge eines bösartigen Schattenpräsidenten.»
+Unabhängig davon, ob es ein formelles Abkommen zwischen Obama und Biden gibt oder nicht, folgt der
+derzeitige Präsident in der Art und Weise, wie er regiert, seinem Vorbild.
+Die Agenda der Globalisten, Amerika zu zerstören, begann unter Obama, aber Biden macht einen grossartigen Job, diese Mission fortzusetzen.
+_QUELLE: OBAMA ACTING AS ‘MALEVOLENT SHADOW PRESIDENT’ BEHIND BIDEN PRESIDENCY, REPORT WARNS_
+_Quelle: https://uncutnews.ch/bericht-warnt-obama-agiert-als-boesartiger-schattenpraesident-hinter-bidens-_
+_praesidentschaft/_
+
+###### Selensky, gefangen in einem Krieg, aus dem es kein Entrinnen gibt.  Doch die Nachricht ist noch schlimmer.
+_national.ro, April 8, 2024_
+
+Die amerikanische Presse sagt der Ukraine eine düstere Zukunft auf dem Schlachtfeld voraus. Eine Analyse
+der ‹Washington Post› zeigt, dass die Optionen von Präsident Wolodimir Selensky für das weitere Vorgehen
+– ganz zu schweigen von der Frage, wie der Krieg gewonnen werden kann – von schlecht bis sehr schlecht
+reichen.
+Die militärische Rückeroberung der von Russland besetzten Gebiete in der Ost- und Südukraine wird immer
+unwahrscheinlicher.
+
+**Selensky lehnt Verhandlungen mit Putin ab**
+Hilfe aus den USA, dem grössten militärischen Unterstützer der Ukraine, wird seit Monaten von den Republikanern im Kongress blockiert. Ein Frieden auf dem Verhandlungsweg scheint zumindest vorerst unmöglich,
+nachdem der Kiewer Regierungschef dies per Gesetz verboten hat. Selensky ist damit in eine Sackgasse
+geraten.
+Die NATO-Staaten zeigen sich weiterhin zurückhaltend mit ihrer Unterstützung, wie die jüngste Äusserung
+des französischen Präsidenten Emmanuel Macron zeigt, die europäischen Länder sollten die Entsendung
+von Truppen nicht ausschliessen.
+
+**Russland will ukrainische Verfassung anfechten**
+2024 sollte eigentlich ein Wahljahr für Selensky werden, aber die ukrainische Verfassung verbietet Wahlen
+während des Kriegsrechts, und einige Beamte befürchten, dass Russland versuchen wird, Selensky als illegitimen Führer darzustellen, wenn er länger als seine gewählte fünfjährige Amtszeit im Amt bleibt.
+Auch wenn die US-Hilfe bald genehmigt wird, ist die Verzögerung ein klares Signal, dass künftige Hilfe nicht
+garantiert ist, insbesondere vor dem Hintergrund der US-Präsidentschaftswahlen in diesem Jahr.
+
+
+-----
+
+**Selbst die Ukrainer glauben, dass es noch schlimmer kommen wird**
+«Wir haben seit einem halben Jahr keine Munition mehr. Jedenfalls nicht genug», sagte ein hoher ukrainischer Beamter.
+«Nun, es wird noch schlimmer werden. Und was machen wir jetzt? Welche anderen Möglichkeiten gibt es?
+Wenn die Partner, die versprochen haben, uns mit Munition zu versorgen, dies nicht tun, wird die Situation
+natürlich noch schlimmer. Aber auch das Image der USA in der Welt wird sich verschlechtern», warnte er.
+Die Ukrainer haben sich damit abgefunden, dass es ein langer Krieg wird. Einige kämpfen bereits seit 2014,
+als der Konflikt in der Ostukraine angeheizt wurde.
+Selensky unterzeichnete in jüngster Vergangenheit ein Gesetz, das das Mindestalter für den Wehrdienst in
+der Ukraine auf 25 Jahre senkt, erklärte jedoch, dass die Mobilisierung von rund 500’000 zusätzlichen Soldaten, die der ehemalige Oberbefehlshaber der Ukraine, Waleri Zalujni, vorgeschlagen hatte, nicht stattfinden werde.
+_QUELLE: VOLODIMIR ZELENSKI, ÎNCOLŢIT ÎNTR-UN RĂZBOI DIN CARE NU MAI POATE IEŞI. DAR VEŞTILE SUNT ŞI MAI_
+_PROASTE_
+_Quelle: https://uncutnews.ch/zelensky-gefangen-in-einem-krieg-aus-dem-es-kein-entrinnen-gibt-doch-die-nachricht-ist-_
+_noch-schlimmer/_
+
+###### Eignungsprüfung für Politiker – Keine Macht den Psychopathen
+
+Jeder Mensch, der einen Beruf erlernen und ausüben möchte, muss dafür eine Berufsausbildung durchlaufen und vieles an theoretischem Wissen und praktischem Können erlernen. Er muss Zwischenprüfungen
+ablegen und am Ende der Lehrzeit eine Abschlussprüfung bestehen. Wer die Erlaubnis erlangen will, ein
+Flugzeug oder ein Kraftfahrzeug zu führen, Wildtiere zu jagen, Fische zu angeln, eine Waffe zu besitzen
+usw. usf., der muss sich dafür ebenfalls das verlangte Wissen und die Fähigkeiten aneignen und diese amtlich nachweisen. Der einzelne Mensch muss in vielen Bereichen des beruflichen und gesellschaftlichen
+Lebens das Handwerkszeug für eine gewünschte Tätigkeit mitbringen, sprich das geforderte Wissen, das
+nötige Können und die charakterliche Reife dafür besitzen. Wichtig ist nicht zuletzt ein gereiftes Verantwor**tungsbewusstsein, das den Menschen befähigt, vernünftig und vorausschauend zu handeln, um Fehler und**
+Unfälle zu vermeiden, womit Sachschäden und Verletzungen oder sogar der Tod anderer Menschen vermieden werden können.
+Nur, wie ist es damit in der Politik bestellt? Um beispielsweise in den deutschen Bundestag gewählt zu werden, genügt eine sogenannte Wählbarkeitsbescheinigung **für Bundestagswahlen, die folgende Informatio-**
+nen amtlich bestätigt:
+
+1. persönliche Daten der Wahlbewerberin oder des Wahlbewerbers,
+2. Deutscheneigenschaft nach dem Grundgesetz,
+3. das Vorliegen der Wählbarkeitsvoraussetzungen und
+4. das Fehlen von Gründen, die die Wählbarkeit ausschliessen, z.B. wegen einer politischen Straftat, wegen
+Volksverhetzung und anderen Gründen.
+
+Was jedoch nicht gefordert wird, ist die charakterliche und menschliche Eignung der Person, die in ein
+Amt bzw. Mandat gewählt werden möchte, was zwangsläufig zur Folge hat, dass sehr oft unerfahrene, realitätsfremde, egoistische, geld-, besitz- und machtgierige, durchtriebene, von Hass, Rache, Rassismus, Mordund Kriegslust gesteuerte Elemente in Ämter und Positionen gelangen, die ganze Völker in das wirtschaftliche und gesellschaftliche Chaos und schlimmstenfalls in sinnlose Kriege und infolgedessen in horrendes
+menschliches Elend, in Not und ins tödliche Verderben führen können. Und das dürfte niemals passieren,
+dass nämlich einzelne Psychopathen in machtvolle Positionen gelangen, wo sie ihren persönlichen Wahnsinn zum Schaden der Völker ausleben und Elend, Krieg, Not und Vernichtung über die Menschheit bringen
+können. Wie schlecht es um die Besetzung der führenden Positionen auf der Erde bestellt ist, das beweisen
+die beim 618. Kontakt von Ptaah genannten Zahlen, die besagen, dass in Regierungen, Verwaltungen und
+anderen Amtsbereichen anteilig weit mehr Psychopathen zu finden sind als im Durchschnitt der Weltbevölkerung der Erde.
+
+**Auszug aus dem 618. offiziellen Kontaktgespräch von 21. März 2015**
+**Ptaah** _Psychopathen sind in der Regel auch narzisstisch befallen, denn Narzissmus ist immer mit Psychopathie_
+_verbunden, was aber den irdischen Psychologen und Psychiatern Mühe bereitet, dies anzuerkennen oder über-_
+_haupt nur feststellen zu können. Aber zur Angabe einer Zahl in bezug auf Psychopathen und somit auch Narzis-_
+_sten in irdischen Regierungen und in der Erdbevölkerung bin ich nicht in der Lage, weil sich diesbezüglich die_
+
+
+-----
+
+_Zahlen durch Sterbe- und Geburtenvorgänge dauernd ändern. Ausserdem habe ich die Daten nicht in Erinne-_
+_rung und muss sie abrufen … Ja hier …, unsere letzten diesbezüglichen Forschungen liegen bereits vier Jahre_
+_zurück, bei der die Werte in bezug auf Psychopathen-Narzissten in allen Amtsbereichen der irdischen Machtha-_
+_benden, der Regierungen und Verwaltungen usw. einen wechselnden Durchschnitt von ca. 72–78 Prozent auf-_
+_weisen, und zwar gerechnet anhand der gesamten Anzahl aller Machthabenden aller Regierungen, Amts- und_
+_Verwaltungspersonen usw. In bezug auf Psychopathen-Narzissten in der gesamten irdischen Bevölkerung erga-_
+_ben unsere Forschungen einen durchschnittlichen Wert von 14–17 Prozent._
+Auch wenn eine Person in ein Amt gewählt wurde und während der vorgegebenen Amtszeit ausartet und
+Dinge tut, die mit der Menschlichkeit und der Verantwortung nicht vereinbar sind, dürfte kein Pardon gelten,
+sondern die Person müsste sofort und unverzüglich aus dem Amt befördert werden und nie mehr in ein
+solches zurückkehren dürfen.
+Der notwendige Schutz der Bevölkerung vor Psychopathen würde grundsätzlich bedingen, dass die ethisch**moralischen Massstäbe der Schöpfungsenergielehre resp. der ‹Lehre der Wahrheit, Lehre der Schöpfungs-**
+energie, Lehre des Lebens› bei der Auswahl der Menschen angelegt werden, die sich dafür bewerben oder
+dafür vorgesehen werden, in irgendwelche Ämter und verantwortliche Positionen zu gelangen. Das ist leider
+im Moment noch eine illusorische Vorstellung, denn das Gros der Erdenmenschheit ist in ihrem Bewusstsein noch meilenweit davon entfernt, sich ernsthaft, tiefgründig und ehrlich um die Erlernung der Grundla**gen der Schöpfungsenergielehre zu bemühen und diese im täglichen Leben umzusetzen, weil es von Reli-**
+gionen, Regierungen, Medien usw. nach Strich und Faden manipuliert, gesteuert und verblödet wird und
+vor allem nicht selbst zu denken beginnt und lieber dumm = nichtdenkend bleibt. Was vom Volk irrtümlich
+für **‹Intelligenz› gehalten wird, ist nämlich nur das Wiedergeben von angesammeltem Gedächtnis- bzw.**
+Bücherwissen und hat grundsätzlich rein gar nichts mit Verstand, Vernunft und Erkennung der Realität
+resp. mit Logik zu tun. Sind Verstand, Vernunft und Logik bei einem Menschen gegeben, dann ist der richtige Begriff das ‹Intelligentum›, das ein Mensch sein eigen nennt.
+
+**Nur wenn sich der Grossteil der Bevölkerung ein gerüttelt Mass an ‹Intelligentum› erarbeitet hat, sind**
+**überhaupt die nötigen Voraussetzungen gegeben, durch einen einheitlichen Beschluss logische Regelun-**
+**gen zu treffen, die dem Vordringen psychopathischer Elemente in wichtige Positionen einen Riegel vorzu-**
+**schieben resp. solche Menschen aus einem Amt zu entfernen.**
+
+Letzten Endes läuft es immer darauf hinaus, dass jeder einzelne Mensch eigens für sich damit beginnen
+muss, den **Pfad zum wahren Menschsein in seinem Leben einzuschlagen und sich in allen Dingen des**
+Lebens als Mensch und als Teil der Gesellschaft und der Gesamt-Menschheit um Wissen, Weisheit, Können,
+Vernunft, Verstand, Verantwortungsbewusstsein und Lebenserfahrung bemühen resp. diese in sich erarbeiten muss, damit nach und nach alle Einzelindividuen und sukzessive die Familien, Gesellschaften, Völker
+und schlussendlich die Erdenmenschheit konform zu den schöpferischen Gesetzen und Geboten denkt,
+fühlt, handelt und lebt. Erst wenn diese Grundlagen allen Menschen eigen sind und sie in Einigkeit zusammenstehen im Befolgen der schöpferischen Richtlinien in allen Dingen des Lebens und der Evolution, erst
+dann werden sie keine unfähigen, selbstherrlichen, herrschsüchtigen und kriegstreiberischen Elemente
+mehr in Ämter und an Positionen kommen lassen, in die sie aufgrund ihres verdorbenen Charakters niemals
+kommen dürften. Dass Psychopathen leider an vielen einflussreichen Positionen, auch in den Regierungen
+dieser Welt, zu finden sind, das wurde mehrfach in den FIGU-Schriften, z.B. in Bulletins, Zeitzeichen usw.
+erwähnt.
+
+**Es ist dringend notwendig, dass die Menschen der Erde auf ihrem bewusstseinsmässigen Tiefschlaf auf-**
+**wachen, ihre Verantwortung gegenüber sich selbst und den Gesellschaften wahrnehmen und dafür Sorge**
+**tragen, dass nur noch in der Schöpfungsenergielehre geschulte und gebildete Menschen in führende**
+**Positionen gelangen.**
+
+_Schöpfungsenergielehre-Symbol ‹Verantwortung›_
+
+
+-----
+
+Geschieht das nicht, dann werden immer wieder Psychopathen horrendes Unrecht, Krieg, Tod und Verderben auf dieser Welt anrichten können, wie es die aktuelle Weltlage im Jahr 2024 beweist. Zuletzt hat sich
+BEAM beim 882. Kontakt im Gespräch mit Ptaah wie folgt dazu geäussert.
+
+**Auszug aus dem 882. Kontakt Sonntag, den31. März 2024, 8.18 h**
+_https://www.figu.org/ch/files/downloads/kontaktberichte/figu_kontaktbericht_882.pdf_
+
+**Billy Psychopathen; diese sind leider in den Regierungen aller Länder en gros vertreten. Dabei handelt es**
+sich um Menschen, die – wenn sie wirklich volle Psychopathen sind – durch schwere Persönlichkeitsstörungen belastet und diesbezüglich mit Extremformen behaftet und zudem von aggressiv-antisozialen, wie aber
+auch von kriminellen und sehr manipulativen Verhaltensweisen schwerwiegend gekennzeichnet sind. Sie
+können charmant und eloquent sein, sie sind effectiv skrupellos, und ihre Ziele können sie ohne Wenn und
+Aber verfolgen, wobei sie später weder Reue noch Schuld quält. Ihr Denken ist wie eine Art eines Raubtiers,
+doch sie wissen haargenau zwischen Recht und Unrecht zu unterscheiden, und zwar auch dann, wenn sie
+sich darüber hinwegsetzen, andere ausnutzen oder gar am Leben usw. schädigen. Es sind also Menschen,
+die affektive und interpersonale Defizite aufweisen. Die Psychopathen sind Menschen, die äusserst manipulativ sind und sich ihrem Umfeld gegenüber skrupellos verhalten. Sie scheuen nicht zurück vor Betrügerei
+und Lügen, wie auch nicht vor gewissenlosem Ausnutzen ihrer Mitmenschen; während sie sich oft gewalttätig, verantwortungslos und risikobereit verhalten, sind sie bezüglich des Intelligentums tendenziell nicht
+gerade die ‹Hellsten›. Erfolglosen Psychopathen fehlt das Empathievermögen und sie sind unberechenbar,
+ohne Liebe, dumm-angst-furchtlos, impulsiv, aggressiv, skrupellos, egoistisch, rücksichtslos und ohne
+Schuldempfinden, sie weisen ein antisoziales Verhalten auf und scheuen nicht das Risiko, Gewalttaten einzugehen, folglich eine beständige Gefährlichkeit besteht. Psychopathen weisen signifikant wenig Gehirnaktivität auf, wie mir Sfath erklärt hat.
+_Achim Wolf, Deutschland_
+
+###### Facebook-Nutzer George Kwong: Reproduction is no longer exclusively a personal matter – Die Fortpflanzung ist nicht mehr ausschliesslich eine persönliche Angelegenheit!
+
+Die Fortpflanzung ist nicht mehr ausschliesslich eine persönliche Angelegenheit. Die Gesellschaft muss bei
+der Regulierung dieser lebenswichtigen Funktion ein Mitspracherecht und eine gewisse Weisungsbefugnis
+haben. Die Wünsche der menschlichen Paare sind sehr wichtig, aber sie dürfen die Gesellschaft als Ganzes
+nicht ausser Acht lassen. Das allgemeine Wohlergehen dieser und künftiger Generationen muss bei der
+Entwicklung von Plänen für eine vernünftige Steuerung unserer Fortpflanzung verstärkt berücksichtigt werden. Kein Mensch sollte ungewollt und unbedarft auf die Welt gebracht werden. Kein Kind sollte durch Unachtsamkeit gezeugt werden. Wenn jedes Leben einen Wert haben soll, muss jede Zeugung Teil eines geordneten Plans von zwei Eltern sein, die sich ihrer Verantwortung für das Kind und die Gesellschaft bewusst
+sind.
+George Kwong
+_Quelle:https://www.facebook.com/groups/136507913150251/posts/3119961688138177/?comment_id=3121554504_
+_645562&_ _tif id 1710329001813654&_ _tif t_ _t_
+
+
+-----
+
+_Zusammengestellt von Achim Wolf, Deutschland_
+
+**Beim Verbreiten des richtigen Friedens-Symbols und dem Erklären seiner Funktionsweise gibt es immer**
+**wieder die Erfahrung, dass die Menschen weiterhin das falsche Friedens-Symbol resp. die keltische**
+**Todesrune verwenden, weil sie einfach unbelehrbar sind oder weil sie die Logik der Wirkungsweise der**
+**SEL-Symbole nicht verstehen. Daher ist aus Sicht der Dinge sinnvoll und nötig, eine Erklärung zur Ver-**
+**breitung des richtigen Friedens-Symbols zu geben, um dieses auf der Erde effektiv derart wirken zu**
+**lassen, dass es wirklichen Frieden und wahre Freiheit bringt.**
+
+###### Erklärung zu den Schöpfungsenergielehre-Symbolen
+Generell stellt ein Symbol nicht einfach eine leblose Zusammenstellung von Formen und Farben und damit
+ein beliebig austauschbares Zeichen oder Bild dar, das folgenlos angeschaut werden könnte, sondern wahrheitlich üben Symbole gemäss ihrer immanenten Bedeutung und Schwingung ganz bestimmte Wirkungen
+auf den Menschen aus. Generell sind ihm Symbole ein Hilfsmittel dafür, vergessene Gedanken, Gesetze,
+Erkenntnisse und Prinzipien via Assoziationen aus seinem Gedächtnis abzurufen, ohne dafür lange Erklärungssätze zu benötigen. So löst das neutrale Betrachten des universellen Symbols für ‹FRIEDEN› via die
+bewusste oder unbewusste Wahrnehmung in ihm gleichgerichtete Gedanken und friedenskonforme
+Schwingungen aus, die wiederum gleichlaufende Gefühle (bewusst oder unbewusst) in ihm hervorrufen.
+Die Schöpfungsenergielehre-Symbole sind nicht willkürlich entstandene Werke eines Künstlers, sondern sie
+entstammen ursprünglich den schöpfungsenergielehrebezogenen, wissenschaftlichen Erkenntnissen des
+weisen Lehrers Nokodemion, der Millionen Symbole diverser werte kreiert und diese der Nachwelt zur positiven-ausgeglichenen Nutzung hinterlassen hat. Jedes dieser Symbole steht für einzelne Aspekte der Schöpfungsenergielehre, wie z.B. für die Tugenden, wie auch für Bewusstseinszustände, Psychezustände, Energien, Sachen und Werte usw. Die wertvollen Symbole der Schöpfungsenergielehre wirken wie archetypische
+Bilder und Energien in direkter Form auf das Bewusstsein sowie auf das Unterbewusstsein und die Psyche
+des Menschen, wodurch diese die symbol-entsprechende Wirkungen auslösen, die auf den schöpferischnatürlichen Gesetzen beruhen.
+_Achim Wolf, Deutschland_
+
+###### Verbreitet das richtige Friedenssymbol, denn es ist äusserst wichtig.
+
+ Das falsche Symbol, die Todesrune, schafft Unfrieden, Hass und Unheil
+# ☮
+
+###### Nutzt euer Auto und klebt das richtige Friedenssymbol darauf und verbreitet es!
+ Fertigt das richtige Friedenssymbol zu Fahnen und lasst sie im Wind flattern.
+
+
+# ☮
+
+
+-----
+
+Schöpfungsenergielehre-Symbol ‹Frieden›
+
+### Verbreitung des richtigen Friedenssymbols
+
+Das falsche Friedenssymbol – die heute weltweit verbreitete sogenannte
+
+**Es soll FRIEDEN sein auf Erden** <Todesrune>, die aus den keltischen Futhark-Runen resp. der umgedrehten Algiz
+**And there shall be PEACE on Earth** Rune fabriziert wurde – ist der eigentliche Inbegriff negativer Einflüsse und schafft
+
+zerstörerische Schwingungen hinsichtlich Unfrieden, Fehden und Hass, Rache,
+Laster, Süchte und Hörigkeit, denn die <Todesrune> bedeutet für viele Menschen
+
+**AMANI** **ΕΙΡΗΝΗ**
+
+Reminiszenzen an die NAZI-Zeit, an Tod und Verderben, wie aber auch Ambitionen
+
+**BARIŞ** **VREDE**
+
+in bezug auf Kriege, Terror, Zerstörungen vieler menschlicher Errungenschaften und
+
+**PAQE** **��** allen notwendigen Lebensgrundlagen jeder Art und weltweit Unfrieden.
+**PACE** **שרום**
+**МИР** शांित Es Ist wirklich dringlichst notwendig, dass die <Todesrune> als falsches
+**PAIX** **���** Friedenssymbol, das Unfrieden und Unruhe schafft, völlig aus der Erdenwelt
+**PAZ** **��** verschwindet und dadurch das uralte sowie richtige Peacesymbol auf der ganzen
+
+Erde verbreitet und weltbekanntgemacht wird, dessen zentrale Elemente
+Frieden, Freiheit, Harmonie, Stärkung der Lebenskraft, Schutz,
+
+**FIGU.ORG**
+
+Wachstum und Weisheit reflektieren, aufbauend wirken und
+
+**FIGU, Semjase-Silver-Star-Center, 8495 Schmidrüti**
+**Schweiz/Switzerland  Tel. + 41 (0)52 385 13 10** sehr besänftigend und friedlich-positiven Schwingungen
+
+zum Durchbruch verhelfen, die effectiv Frieden,
+Freiheit und Harmonie vermitteln können!
+
+Wir wenden uns deshalb an alle FIGU-Mitglieder, an alle FIGU-Interessengruppen, Studien- und Landesgruppen
+sowie an alle vernünftigen und ehrlich nach Frieden, Freiheit, Harmonie, Gerechtigkeit, Wissen und Evolution
+strebenden Menschen, ihr Bestes zu tun und zu geben, um das richtige Friedenssymbol weltweit zu
+verbreiten und Aufklärung zu schaffen über die gefährliche und destruktive Verwendung
+der <Todesrune>, die in Erinnerung an die NAZI-Verbrechen kollektiv im Sinnen und
+Trachten der Menschen Charakterverlotterung, Ausartung und Unheil fördert.
+
+**Autokleber** **Bestellen gegen Vorauszahlung:** **E-Mail, WEB, Tel.:**
+**Grössen der Kleber:** **FIGU** info@figu.org
+120x120 mm = CHF 3.– Hinterschmidrüti 1225 www.figu.org
+250x250 mm = CHF 6.– 8495 Schmidrüti Tel. 052 385 13 10
+300X300 mm = CHF 12.– Schweiz Fax 052 385 42 89
+
+
+-----
+
+IMPRESSUM Für CHF/EURO 10.– in einem Couvert senden
+FIGU-SONDER-ZEITZEICHEN wir Dir/Ihnen 3 Stück farbige Friedenskleber
+Druck und Verlag: FIGU Wassermannzeit-Verlag, ------der Grösse 120x120 mm. = Am Auto aufkleben.
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+Redaktion: BEAM ‹Billy› Eduard Albert Meier,
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+Wird auch im Internetz veröffentlicht
+**Erscheint sporadisch auf der FIGU-Webseite**
+
+Postcheck-Konto: FIGU Freie Interessengemeinschaft,
+8495 Schmidrüti, PC 80-13703-3
+IBAN: CH06 0900 0000 8001 3703 3
+**E-Brief: info@figu.org**
+**Internetz: www.figu.org**
+**FIGU-Shop: http://shop.figu.org**
+
+**© FIGU 2024**
+Einige Rechte vorbehalten.
+Dieses Werk ist, wo nicht anders
+angegeben, lizenziert unter :
+www.figu.org/licenses/by-ncnd/2.5/ch/
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung des Urhebers ausdrücklich erlaubt.**
+Erschienen im Wassermannzeit-Verlag: FIGU, ‹Freie Interessengemeinschaft Universell›, Semjase-Silver-Star-Center,
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+

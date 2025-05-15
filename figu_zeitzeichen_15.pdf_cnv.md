@@ -1,0 +1,586 @@
+# FIGU– ZEITZEICHEN
+## Aktuelles • Einsichten • Erkenntnisse
+
+**Erscheinungsweise:** **Internetz: http://www.figu.org** **1. Jahrgang**
+**Sporadisch** **E-Brief: info@figu.org** **Nr. 15, Oktober 2015**
+
+#### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+Laut ‹Allgemeine Erklärung der Menschenrechte› vom 10. Dezember 1948, Artikel 19, ‹Meinungs- und Informationsfreiheit›:
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die**
+**Freiheit, Meinungen unangefochten anzuhängen und Informationen und Ideen mit allen**
+**Verständigungsmitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Aussagen und Meinungen müssen nicht zwingend mit dem FIGU-Gedanken-, Interessen-, Lehre- und Missionsgut identisch sein.
+
+### «Bitte treten Sie zurück! Zweiter offener Brief von Generalmajor a.D. Gerd Schultze-Rhonhof an Angela Merkel
+_9. Oktober 2015_
+**Am 15. September 2015 posteten wir einen offenen Brief des Generalmajors a.D. Gerd Schultze-Rhonhof an**
+**Angela Merkel zur Flüchtlingsproblematik (siehe Zeitzeichen Nr. 13). Die Lage hat sich seitdem verschärft, so**
+**dass der Autor jetzt eine Rücktrittsforderung folgen liess. Sie lesen das Schreiben ungekürzt:**
+
+Sehr geehrte Frau Bundeskanzlerin,
+dies ist nach vier Wochen mein zweiter ‹Offener Brief› zum Problem der derzeitigen Einwanderungs-Flut an
+Sie.
+Die Welle der deutschen Hilfsbereitschaft, der tausendfache, aufopfernde Einsatz von Helfern und die Leistungen
+unserer Verwaltungen haben anfangs den Blick auf die Schwierigkeiten und Grenzen unserer Aufnahme- und
+Integrationsfähigkeit verstellt.
+Ich habe mir erlaubt, Sie mit Brief vom 11. September 2015 auf die Gefahren der ungesteuer ten Masseneinwanderung für Deutschland hinzuweisen und Vorschläge für das Asylrecht, für
+das Steuern der Einwanderung und für das Beenden der beginnenden Völkerwanderung zu
+machen.
+
+
+-----
+
+Ich habe seither Ihr ehrliches, aber erfolgloses Bemühen, der Lage Herr zu werden, beobachtet und gesehen,
+dass der Massenzustrom von Migranten weiter ungebremst anhält und auch ganz andere, hässliche Begleit erscheinungen mit sich bringt, als es mir vor vier Wochen schwante.
+Inzwischen haben sich die Schätzungen der in Deutschland ‹aufgestauten› Migranten für das Ende dieses Jahres
+**auf 2 bis 2,5 Millionen aufaddiert, etwa 700.000 nicht anerkannte und nicht zurückgeführte Asylbewerber, etwa**
+300.000 inzwischen untergetauchte Migranten und 1 bis 1,5 Millionen Neuankömmlinge im Jahr 2015.
+**Sie haben bisher keinen wirksamen Versuch unternommen, die Massenmigration nach Deutschland zu unter -**
+binden. Sie haben in Ihrer Angewohnheit des sehr, sehr langen Abwägens wertvolle Zeit nutzlos verstreichen
+lassen, in der Sie hätten beginnen können, Schaden von unserem Volk abzuwenden.
+
+#### Bitte um Ihren Rücktritt
+Ich bitte Sie deshalb, so anständig zu sein, von Ihrem Amt zurückzutreten, und ich bitte Sie und den Herrn Vize kanzler (mit getrenntem Schreiben) ausserdem, dem Vorsitzenden der dritten Regierungspartei, Herrn Seehofer,
+die Regierungsgeschäfte bis zum nächsten regulären Wahltermin zu übergeben.
+Herr Seehofer ist mit seinem Bundesland der am stärksten Betroffene der Völkerwanderung. Er denkt und
+handelt ganz offensichtlich stärker in deutschem Interesse als Sie.
+Er ist als Vater von vier Kindern auf natürliche Weise mehr an der deutschen Zukunft der kommenden Generationen in unserem Lande interessiert als Sie. Herr Seehofer verfügt ausserdem bereits über Erfahrung als
+Minister im Bundeskabinett und als Chef einer Regierung.
+Nach Ihrer jetzigen, indifferenten Haltung unserer bisherigen deutschen Identität und der deutschen Selbst erhaltung gegenüber und nach Ihren zahlreichen, plötzlichen, politischen Kehrtwendungen in jüngster Vergangenheit, ist ohnehin nicht erkennbar, wohin Sie Deutschland in der augenblicklichen Ausnahmesituation führen
+wollen.
+
+#### Vorwürfe gegen Sie
+Der Hauptvorwurf gegen Sie ist Ihre Verletzung des Amtseids. Sie haben geschworen, den Nutzen des deutschen
+Volkes zu mehren und Schaden von ihm abzuwenden. Mit der von Ihnen geduldeten und mit verursachten
+Masseneinwanderung und der Unfähigkeit, sie zu beenden, haben Sie dem jetzigen deutschen Volk und seinen
+Nachfahren unabsehbaren Schaden zugefügt. Mit der dabei gleichzeitigen erwünschten, aber erheblich ge ringeren Einwanderung von integrationsfähigen Migranten haben Sie dem deutschen Volk dagegen nur einen
+verschwindend geringen Dienst geleistet.
+
+**Sie haben in der Abwägung zwischen christlicher Pflicht zur humanitären Hilfe für Flüchtlinge einerseits und**
+Regierungsverantwortung für unser Volk und seine Selbsterhaltung andererseits Mass und Mitte zu Lasten Ihrer
+Pflicht als Bundeskanzlerin der Bundesrepublik Deutschland vermissen lassen.
+
+**Sie haben mit Ihren Botschaften, Deutschland sei ein Einwanderungsland und Asylanten seien in Deutschland**
+willkommen, einen Migrations-Sog ausgelöst. Diese Migration hat zusätzliches Leid und Tragödien ausgelöst.
+
+**Sie haben, um diesen Fehler zu kaschieren, bisher pausenlos die Illusion verbreitet, unser Land und unsere**
+Bevölkerung könnten die durch die Migration auftretenden Belastungen meistern, die für die Staatsfinanzen,
+die anderen öffentlichen Haushalte, die innere Sicherheit, das Bildungswesen und das Sozialversicherungswesen
+entstehen. Sie haben dabei die neuen Verschuldungen verschwiegen und die Leistungskürzungen für unsere
+Bevölkerung und auch die nun unterbleibenden Sanierungen für Strassen, Wasserwege, Brücken und Kanalisationen und die Ewigkeitsbelastungen für unsere Kinder und Kindeskinder.
+
+
+**Sie haben Deutschlands Ruf und Rolle in der EU beschädigt und belastet, weil Sie mit der von Ihnen geförderten**
+Migranten-Flut alle anderen EU Staaten unter Zugzwang gebracht haben. Die Forderung Ihrer Regierung nach
+Quotenverteilung von Migranten an andere Staaten ist der Versuch eines illegitimen Eingriffs in die Souveräni tät anderer Staaten und das Selbstbestimmungsrecht anderer Völker. So wie die Territorien und Grenzen der
+Staaten unantastbar sind und nur mit dem Willen der betroffenen Bevölkerungen veränderbar sind, so sind
+auch die Staatsvölker nicht durch äusseren Willen und gegen den Willen der betroffenen Bevölkerungen veränderbar.
+
+
+-----
+
+**Masseneinwanderung ist eine Veränderung des Landesvolks. (Die Einführung eines Solidaritäts-Mechanismus**
+_ist übrigens noch 2013 von Deutschland abgelehnt worden.) Die anderen europäischen Staaten haben entweder_
+grosse Migranten-Zahlen aus ihren ehemaligen Kolonien aufnehmen müssen, oder russische Minderheiten im
+Land gehabt, und Tschechen und Polen haben negative Erfahrungen als Vielvölkerstaaten hinter sich. Diese
+Staaten und ihre Völker zur Aufnahme von neuen Minderheiten zwingen zu wollen, zeugt von geschichtlicher
+Unkenntnis, deutschem Oberlehrer-Wesen oder EU-Grössenwahn.
+Statt auf eine ‹gerechte› Verteilung von Migranten auf andere Staaten zu hoffen, hätten Sie die wahren Ver ursacher der jetzigen Völkerwanderungen mit ins Boot der Aufnahmeländer und der Bezahlenden holen sollen.
+Die augenblicklichen ‹Fluchtbewegungen› aus dem Mittleren Osten und aus den Staaten rund um das südliche
+und östliche Mittelmeer und die Öffnung der südlichen Mittelmeerküste für Flüchtlinge aus Zentral- und Westafrika gehen in erster Linie auf die Systemwechselkriege zurück, die die USA, England und Frankreich be **gonnen und geführt haben, ohne selbst von diesen Staaten bedroht worden zu sein.**
+Diese drei Verbündeten haben die Diktatoren in den heute destabilisierten Staaten entmachtet und sie durch
+Einsatz von Geheimdiensten, Söldnern und Geldzuwendungen und zum Schluss offenen Kriegshandlungen
+gestürzt. Geblieben sind jedes Mal Bürgerkriege, Chaos, Flüchtlingslager und heute Flüchtlingsströme. Die USA
+z.B. haben sich bisher nur bereiterklärt, 2015 1500 Flüchtlinge (andere Angaben: 4000) aufzunehmen. Das ist
+weniger als Bayern an einem Tag hat unterbringen müssen. Die Hauptlast der Flüchtlingsströme den deutschen
+Bürgern und Steuerzahlern aufzubürden, ist das Gegenteil von ‹Schaden von ihm abzuwenden›.
+
+**Sie haben die Diskussion um die Migranten-Aufnahme auf das Begriffspaar ‹Willkommenskultur› und ‹Aus-**
+länderfeindlichkeit› reduziert und damit erstens eine Auseinandersetzung mit den Ängsten und Sorgen weiter
+Teile der Bevölkerung unterdrückt und umschifft und zweitens die Nation gespalten. Das angemessenere Begriffspaar wäre ‹Gäste› und ‹Gastgeber› gewesen.
+
+**Das deutsche Volk als Gastgeber hat den Gästen sehr viel Hilfsbereitschaft entgegengebracht und dabei großen**
+**Idealismus bewiesen. Aber Sie haben nicht beachtet und deutlich gemacht, dass Gastgeber auch Rechte haben.**
+
+**Jeder Gastgeber darf bestimmen, wie viel Gäste er in ‹sein Haus› aufnimmt. Jeder Gastgeber hat das Recht, die**
+Sitten in seinem Haus zu bestimmen.
+
+**Jeder Gastgeber hat das Recht, eine auf Dauer angelegte Übernahme seines Hauses durch Gäste zu verhindern.**
+
+Die Gäste haben diese Gastgeber-Rechte zu respektieren und sich im Gastland einzufügen und anzupassen.
+Wenn dies wegen der ‹amorphen Masse› der Gäste durch die einzelnen Gastgeber nicht zu bewirken ist, hat dies
+der Gastgeber-Staat für seine Bürger sicherzustellen. Davon ist unter Ihrer Regierung nichts zu spüren.
+
+#### Sie dekretieren stattdessen «Deutschland muss sich ändern.»
+Sie zeigen eine unklare Haltung zur Wahrung der deutschen Identität unseres Volkes. Sie haben 2010 auf dem
+Deutschlandtag der Jungen Union gesagt: «Der Ansatz für Multikulti ist gescheitert, absolut gescheitert.»
+Und nun versuchen Sie, der deutschen Öffentlichkeit die Vorzüge der kulturellen Bereicherung durch Zu wanderung zu verkaufen.
+
+**Sie wissen sehr wohl, dass Millionen von Neu-Einwanderern ihre Sitten und ihre Herkunfts-Kultur nicht ab-**
+streifen werden, solange sie in Deutschland in Ghettos leben werden.
+
+**Sie wissen, dass die Ghetto-Bildung bei einer Zwei-Millionen-Zuwanderung in nur wenigen Jahren unvermeid-**
+bar ist.
+
+**Sie wissen, dass sich Millionen von Einwanderern durch die von uns gewährte Berechtigung zum Familien-**
+nachzug in wenigen Jahren weiter aufaddieren werden. Sie wissen, dass der etwa 80%-Anteil an Muslimen unter
+den Migranten unseren Rechts- und Moral-Liberalismus für dekadent hält und zu ‹überwinden› gedenkt.
+
+Sie haben 2000 und danach den CDU Fraktionsvorsitzenden Friedrich Merz mit seiner Vorstellung der ‹Leitkultur› im Regen stehen lassen und schliessen sich heute dem Plädoyer der Ministerpräsidentin von Rheinland
+
+-----
+
+Pfalz und des Ministerpräsidenten von Bayern für eine Respektierung und Verbindlichkeit der ‹deutschen Leitkultur› in unserem Land nicht an.
+Die Vorstellung einer eigenen Leitkultur ist der Kern der Fähigkeit, Zuwanderer zu integrieren. Die Debatte über
+eine ‹deutsche Leitkultur› und ihre Verbindlichkeit auch für Zuwanderer war schon im Jahr 2000 gegen den
+Widerstand etlicher Parteien ein Kraftakt, den Sie hätten bestehen müssen.
+Unsere Vorstellungen zur Trennung von Staat und Kirche oder der Gleichstellung von Mann und Frau z. B. haben
+schon damals nicht alle Einwanderer übernommen. Auch unsere Vernachlässigung der deutschen Sprache in
+Wissenschaft, Werbung und Musik ist kein Zeichen eigener Wertschätzung, die Einwanderer hätte motivieren
+können, sofort Deutsch zu lernen.
+Unsere ständige Selbstdarstellung als vorzugsweise ‹dunkles Land der finsteren 12 Jahre› und das Übergehen
+von Jahrhunderten glänzender Kultur und Leistungen zeugt auch nicht von Liebe zu uns selbst.
+Einwanderer, die sehen, dass die Deutschen sich im Herzen selbst nicht achten und nicht lieben, wollen sicher
+nicht zu einem solchen Volk gehören. Sie wollen nur den deutschen Wohlstand.
+Sie, Frau Dr. Merkel, haben mit Ihrer Verweigerung der merzschen Leitkultur-Debatte der deutschen Integrationsfähigkeit einen schlechten Dienst erwiesen. Sie sind in dieser heute entscheidenden Frage offensichtlich
+auch jetzt noch indifferent und damit nach meiner Auffassung in diesen Tagen des Massen-Zustroms von
+Menschen aus fremden Kulturen als deutsche Bundeskanzlerin ungeeignet.
+Sie versuchen, die Mehrbelastungen, die durch den Massen-Zustrom von Migranten auf uns zukommt, zu
+verbergen und hinter angeblichen Zugewinnen für die deutsche Volkswirtschaft, für die sozialen Sicherungs systeme und das demographische Defizit zu verstecken.
+Die Mehrkosten, die jetzt mit 10 Milliarden Euro im Jahr angegeben werden, sind eine pure Irreführung der
+deutschen Steuerzahler. Die neuen Kosten umfassen weit mehr für Unterkunfts-Sanierungen, Daueranmietungen, Wohnungsbau, Erweiterungen von Schulen, Kitas, Altersheime und Gefängnisse, Familienunterhalt,
+Taschengelder, Gesundheitskosten, Familienzusammenführungen, zusätzliches Personal für Schulen, Kindergärten, Arbeitsverwaltungen, Behörden für Flüchtlinge, Polizei, Übersetzer, Sozialarbeiter, Anwälte, Gerichte,
+Sprachkurse, Altenheime. (Im jüngsten Werbeheft der Bundesregierung ‹Deutschland aktuell›, Heft 4/2015,
+steht auf Seite 12: «Über 65-jährige Migranten zählen zu den Bevölkerungsgruppen, die am schnellsten wachsen.»
+Danach folgt der Hinweis, dass sich die Pflegeorganisationen auf Fremdsprachen und religiöse Bedürfnisse einstellen müssen.) Neuere Schätzungen für die zusätzlichen Jahreskosten für Bund, Länder und Gemeinden
+stehen inzwischen bei 40 Milliarden Euro.
+
+**Der Nutzen für die Volkswirtschaft ist ebenfalls relativ. In unserer Wirtschaft einsetzbare Migranten bilden eine**
+sehr kleine Minderheit an geeigneten Arbeitskräften unter den Zuwanderern. Sie nutzen der Wirtschaft. Die
+Minderbefähigten fallen den Steuerzahlern auf die Tasche. Das ist eine Bestätigung der These von Herrn
+Lafontaine: «Gewinne privatisieren. Verluste sozialisieren.»
+
+**Der Zuzug fremder Arbeitskräfte ist auch in anderer Hinsicht fragwürdig. Erstens werden geeignete Arbeits-**
+kräfte oft in ihren Heimatländern für die Entwicklung ihrer Volkswirtschaften benötigt. Ihre Abwanderung nach
+Europa konterkariert unsere Entwicklungshilfe-Bemühungen. Und zweitens dient die heimische Wirtschaft
+zuerst der Beschäftigung und Ernährung der heimischen Bevölkerung. Wenn die heimische Wirtschaft Arbeitskräfte aus dem Ausland anwerben muss, ist ihr erster Zweck, die Vollbeschäftigung, erfüllt. Der zweite Zweck,
+die Gewinnvermehrung, sollte dann gegen die oben aufgezählten Gemeinschaftskosten für den deutschen
+Steuerzahler abgewogen werden.
+Im Übrigen ist der Anteil der jetzigen Migranten, der in die deutsche Wirtschaft eingegliedert werden kann,
+minimal. Der Versuch in einer mitteldeutschen Großstadt, aus 300 ‹Asylbewerbern› Kräfte für den Arbeitsmarkt
+zu gewinnen, ergab 6 vermittelbare Zuwanderer. In Sigmaringen hat die Wirtschaft über 3.000 in einer Kaserne
+lebenden, überwiegend jungen Männern Ausbildungsplätze angeboten. **8 Migranten haben vom Angebot**
+**Gebrauch gemacht.**
+
+Auch wenn der deutsche Arbeitgeberpräsident den Zuzug ausländischer Arbeitskräfte fordert und dabei offensichtlich mehr an die privaten Gewinne als an die sozialisierten Verluste denkt, warnen Präsidenten von deutschen Industrie- und Handelskammern und solche von Handwerkskammern vor Illusionen über die Eignung
+von Migranten für die deutsche Wirtschaft. Auch der dänische Arbeitgeberverband hat in diesem Frühjahr
+eingestanden, dass die Integration von Migranten in den Arbeitsmarkt auf ganzer Linie gescheitert ist.
+
+
+-----
+
+Das demographische Defizit ist zu erheblichen Teilen in den letzten 40 Jahren selbst verschuldet worden, seit
+diese Entwicklung punktgenau von demographischen Wissenschaftlern prognostiziert worden ist.
+
+**Keine deutsche Regierung, auch Ihre nicht, hat den nötigen Anteil aus dem jährlich erwirtschafteten Sozial -**
+produkt in die Förderung von Eheschliessungen, Familiengründungen, Geburten, jungen Familien, KitaBauten und Kita-Personal investiert.
+– Stattdessen haben Ihre Vorgängerregierungen und Sie Scheckbuchdiplomatie mit dem Geld Ihrer Steuerzahler betrieben.
+– Stattdessen haben wir Gelder in Länder gepumpt, die längst den Status des Entwicklungslandes überwunden
+hatten.
+– Stattdessen werden bei fast jeder Auslandsreise deutscher Spitzenpolitiker in ärmere Länder Hilfsgelder versprochen.
+– Stattdessen betreiben Sie auf Kosten Deutschlands Konkursverschleppung in Griechenland.
+– Stattdessen sind wir grösster Nettozahler der EU, ohne Rabatte wie das Vereinigte Königreich in Anspruch
+zu nehmen.
+– Stattdessen wird Gender-Geschlechter-Wahlrecht propagiert, statt den Jungen und den Mädchen die natürlichen Rollen von Vater und Mutter als erstrebenswert nahe zu bringen.
+
+#### Hier liegt ein weites Feld Ihres Versagens.
+Das Demographie-Defizit ist zu grossen Teilen die Schuld Ihrer Vorgängerregierungen. Aber Ihre offene ‹Geldbörse› für Zuwanderer beweist, dass das Geld für junge deutsche Familien auch in Ihrer Regierungszeit da gewesen wäre.
+Sie haben mit der Seenotrettung von Migranten im Mittelmeer durch deutsche Kriegsschiffe dem MigrantenStrom und dem Schlepper-Unwesen aus Afrika Vorschub geleistet, weil Sie die Anweisung, gerettete Migranten
+an die nächste nordafrikanische Küste zurückzufahren, unterlassen haben.
+Sie haben mit Ihrer Willkommensbotschaft an die Migranten auch eine falsche Botschaft an die eigene Be völkerung verbreitet. Sie verkünden, die in kurzer Zeit eingewanderten Migranten seien integrierbar. Die dazu
+ständig wiederholte falsche Botschaft in den Medien erfährt vermutlich eine Bestätigung, wenn nicht sogar
+Ermutigung, durch das Bundeskanzleramt.
+Auch wenn ein Teil der jüngst Zugewanderten integrationswillig und integrationsfähig ist – gute Beispiele zeigen
+das –, so wird eine erdrückende Mehrheit der Zugewanderten sich nicht integrieren und nicht integrieren
+wollen.
+Der begrenzte Wohnungsmarkt und die finanziellen öffentlichen Mittel werden nicht für eine völlige Verteilung
+der Zugewanderten unter die deutsche Bevölkerung reichen. Es wird zu neuen ‹Sprachkolonien› und Ghettos
+führen, in denen sich neben Positivem auch die für uns nicht tolerierbaren Heimatsitten erhalten (z.B. Frauenbeschneidungen, Zwangsheiraten, Ehrenmorde, Drogenhandel).
+Die bisherige Ghettobildung in Deutschland (wie in Frankreich und England) zeigt, dass sich Ghettos oft zu
+Problemstadtteilen entwickeln, in denen keine Integration mehr stattfindet, und in die sich keine deutsche
+Polizei mehr traut. Bereits jetzt schon gibt es neue Migranten-Unterkünfte in Kasernen, die nicht mehr von
+deutscher Polizei betreten werden.
+Die intellektuellen Fähigkeiten und das Analphabetentum mancher Zuwanderer erlauben in der Regel weder
+eine Eingliederung in den Arbeitsmarkt noch eine wirkliche Integration in die Gesellschaft. Es wird zu einer
+weiteren unterhaltsbedürftigen Mittellosen-Schicht kommen.
+
+**Die Mehrheit der Migranten sind Moslems. Viele von Ihnen verachten unsere liberale Lebensart und lehnen**
+sie dezidiert ab. Sie werden sich aus Überzeugung nicht integrieren.
+
+Bei Zuwanderung in Massen werden die Sitten des Gastlandes erfahrungsgemäss langsam von den Gästen übernommen. Bei Zuwanderung vom Millionen binnen weniger Jahre werden die Unsitten genauso wie die Sitten
+der Gäste meist als Identifikation mit der alten Heimat beibehalten. Frau Dr. Merkel, Ihre Hilflosigkeit gegen über der Masseneinwanderung wird der Sicherheit und dem sozialen Frieden in unserem Land einen dauerhaften Schaden zufügen.
+
+**Das alles ist Ihnen bekannt und Sie verschweigen es.**
+
+
+-----
+
+Sie spielen die angesprochenen Probleme herunter, weil Sie sie nicht beherrschen. Machen Sie bitte Ihren Platz
+für einen Politiker frei, der offensichtlich geeigneter zur Lösung unserer augenblicklichen Probleme ist.
+
+#### Die hässlichen Begleiterscheinungen
+Die Mehrheit der Migranten, die zu uns kommen, sind sicherlich angenehme und normale Menschen. Doch
+mit der massenhaften Zuwanderung von zwei Millionen Personen kommt auch ein Anteil Zwielichtiger in unser
+Land, der unseren sozialen Frieden und die innere Sicherheit belastet.
+Zu den inzwischen erkennbaren hässlichen Begleiterscheinungen der massenhaften Zuwanderung zählt vieles,
+was bereits dabei ist, sich in Deutschland einzunisten und zu verbreiten. Die Massen von Migranten bringen
+nicht nur ihre Not mit sich, der sie hier entfliehen wollen, sondern auch Sitten, die in ihren Kulturkreisen offen sichtlich verbreiteter sind als bei uns, oder von denen sie glauben, sie würden in unserem liberalen Lande
+toleriert.
+Über alle diese Erscheinungen wird inzwischen vielfach im Internet und von Polizeibeamten und freiwilligen
+Helfern berichtet, aber sie werden in den deutschen Medien, wie von wunderbarer Hand gelenkt, nicht erwähnt.
+
+Diese hässlichen Begleiterscheinungen sind der ‹verschwiegene Teil der Wirklichkeit›:
+– Vergewaltigungen im Umfeld von Migranten-Unterkünften,
+– Zwangsprostitution in Migranten-Unterkünften,
+– Massenschlägereien zwischen Ethnien, Religionen und Clans mit Knüppeln, Reizgas und Messern,
+– Verletzungen und Anpöbeln von Polizistinnen und Polizisten, Haustürbettelei,
+– Kirchenbesetzungen zum Erzwingen von Kirchenasyl,
+– Anpöbeln und Beschimpfen von Passanten als ‹Sch…-Deutsche›,
+– Stossen von deutschen Passanten vom Bürgersteig,
+– Angrapschen und Belästigen von Frauen,
+– Zertrümmern von Unterkunft-Mobiliar, um in eine attraktivere Stadt verlegt zu werden,
+– Entweichen aus den von Behörden gestellten Unterkünften, Eisenbahnzügen und Bussen, um der Registrierung zu entgehen,
+– lautstarke Beschwerden, wenn die Verpflegung nicht der im Herkunftsland entspricht,
+– Beschwerden von Migranten, wenn Sie in Arztpraxen so lange warten müssen wie deutsche Patienten,
+– Weigerung von Migranten, sich von Frauen in Arztpraxen und Behörden dirigieren und beraten zu lassen,
+– Massenhafte, nicht bezahlte Einkäufe aus Migranten-Unterkünften im Internetzhandel,
+– Weigerung von Migranten-Gruppen in Geschäften, Ihre Einkäufe zu bezahlen.
+
+Dass diese Aufzählung nach bisher gepflegter Regierungskommentierung ‹ausländerfeindlich› ist, sagt mehr
+über das Verhältnis der Regierung zur Realität als über die Aufzählung selbst.
+Auch wenn die oben aufgezählten Begleiterscheinungen nur hässliche Ausnahmen sein mögen, so reichen auch
+die Ausnahmen aus einer Menge von 2 Millionen frisch ins Land gekommener Migranten, um das Klima
+zwischen Gästen und Gastgebern deutlich zu belasten.
+Zu den hässlichen Begleiterscheinungen zählt auch ein bedauerlicher Demokratieverlust in Deutschland. Das
+sind grobe Verstösse gegen das Grundrecht auf Meinungsfreiheit und gegen den christlich-abendländischen
+Wert der Wahrheit. Das ist zweitens ein Vertrauensverlust in die Redlichkeit von Regierung, Parlamenten,
+Parteien und Medien bei einem erheblichen Teil unserer Bevölkerung.
+Die Sorgen und Ängste von Bürgern über die plötzlich gekommenen Belastungen werden als ‹Rassismus,
+Ausländerfeindlichkeit und Rechter Rand› beschimpft. Sie selbst haben mit vielen solchen Bemerkungen das
+Diskussions-Klima in Deutschland mit vergiftet und das Recht auf freie Meinungsäusserung stranguliert.
+Polizisten und Lehrerinnen haben mir über Sprechverbote und Berichtsverbote über Migranten-Verhalten berichtet. Angestellte einer Ladenkette sind aktenkundig belehrt worden, dass sie Warendiebstähle von Migranten
+nicht melden und berichten dürften, damit die Firma nicht als ausländerfeindlich gelte. Das sind Zustände, die
+wir sonst bei autoritär regierten Staaten beklagen.
+Der Vertrauensverlust resultiert aus der gefilterten und geschönten Berichterstattung über die Schattenseiten
+der Zuwanderung und die horrenden Ewigkeitskosten für Bund, Länder, Kommunen und Sozialsysteme. Die
+ganze Lüge beginnt bekanntlich bei der halben Wahrheit.
+
+
+-----
+
+#### Naheliegende Gefahren
+Bei weiterhin rasch zunehmender Zuwanderung ist abzusehen, dass die hochgesteckten Erwartungen vieler Zuwanderer nicht erfüllt werden. Eine dadurch verursachte Unzufriedenheit wird sich vorhersehbar irgendwann
+entladen. Jetzt schon zeigt sich, dass es unter verschiedenen Migranten-Gruppen zu gewaltsamen Verteilungskämpfen kommt und zu Forderungen an deutsche Behörden, Hilfsorganisationen, Helfer und Sicherheits kräfte.
+Die Gewerkschaft der Polizei weist auf das Entstehen gewalttätiger, krimineller Strukturen in den MigrantenUnter künften hin. In manchen Kasernen-Unterkünften, die zu Teilen mit Soldaten und zu Teilen mit Migranten
+belegt sind, lagern auch Waffen und Munition.
+So ist nicht auszuschliessen, dass sich Migranten Zugang zu Waffenkammern verschaffen und ihren Forderungen Nachdruck verleihen. Das würde Bundeswehr und Polizei Probleme bereiten, die sie nach deutschem Recht
+kaum lösen könnten.
+Der Hauptanteil der Migranten sind junge und gesunde Männer, auch wenn die Medien bevorzugt Frauen und
+kleine Kinder zeigen. Diese Männer haben ihre Frauen in ihren Heimatländern zurückgelassen. Ein Teil von
+ihnen wird sich irgendwann in Deutschland sexuell bedienen.
+Wenn sich die jetzt noch in Kasernen und auf Truppenübungsplätzen konzentrierten Migranten über die Dörfer
+und Städte verteilen, wird unsere Bevölkerung mit den Gefahren konfrontiert.
+
+#### Jetzt schon absehbare Folgen
+Neben der erwünschten Fachkräfte-Zuwanderung und der selbstverständlichen Aufnahme berechtigter AsylSuchender gibt es absehbare negative Folgen und Begleiterscheinungen der derzeitigen Massenzuwanderung.
+Sie haben sich mit Ihrem Amtseid verpflichtet ‹Schaden vom deutschen Volk abzuwenden›, also auch rechtzeitig
+Massnahmen zu ergreifen, dass keine solcher negativen Folgen eintreten. Diese absehbaren, negativen Folgen
+sind:
+– weitere Migranten-Wellen aus Afghanistan, dem Irak und von Syrern aus der Türkei,
+– das Anwachsen von Parallelgesellschaften
+– die Zunahme ‹rechtsfreier Räume›, die nicht mehr von deutscher Polizei betreten werden,
+– das ‹Überspringen› bürgerkriegsartiger Auseinandersetzungen zwischen rivalisierenden MigrantenGruppen von ihren Heimatländern auf Deutschland,
+– die Zunahme von terroristischen, extremistischen und antisemitischen Gruppierungen in Deutschland,
+– die Zunahme der organisierten Kriminalität,
+– die finanziellen Mehrbelastungen für unsere Nachfahrengenerationen als Ewigkeitslasten,
+– die Beendigung des Schuldenabbaus in den öffentlichen Haushalten,
+– die Überbeanspruchung der Sozialversicherungen,
+– die Überlastung des Gesundheitssystems,
+– die Wohnraumknappheit in Ballungsgebieten und Mietpreissteigerungen,
+– das Verdrängen deutscher minderbefähigter Arbeitssuchender vom Arbeitsmarkt,
+– die Mehrbelastung für Schulen und Universitäten,
+– das Verdrängen der deutschen liberalen und christlichen Leitkultur,
+– das Verbreiten islamischer Rechtsvorstellungen,
+– das ‹Umkippen› der Mehrheitsverhältnisse zwischen alteingesessener und zugewanderter Bevölkerung und
+zwischen bekennender christlicher und bekennender islamischer Bevölkerung mit den absehbaren Folgen
+für das Recht und die Sitten in Deutschland.
+
+#### Fremde Bewertungen
+_Altkanzler Helmut Schmidt:_
+«Wir können nicht mehr Ausländer verdauen, das gibt Mord und Totschlag.»
+
+_Der frühere Richter am Bundesverfassungsgericht Udo Di Fabio:_
+«Was wir heute erleben, ist ja kein Ansturm von Asyl-Berechtigten. Man kann streng genommen auf dem Landweg gar nicht als Asyl-Berechtigter nach Deutschland kommen, weil Artikel 16 (a) des Grundgesetzes die
+Einreise aus sicheren Drittstaaten nicht zum Asyl rechnet. … So gesehen erleben wir keinen Ansturm von AsylBerechtigten, … sie sind Einwanderungs-Willige, aber die allerwenigsten davon haben den subjektiven Anspruch auf Asyl, den unser Grundgesetz verspricht.»
+
+
+-----
+
+_Ein deutscher Diplomat aus Afrika:_
+«Die aus Eritrea kommenden jungen Männer sind fast alle Wehrdienstverweigerer und Deserteure.»
+
+_Der Vorsitzende der Deutschen Bischofskonferenz Kardinal Reinhard Marx fordert:_
+«Deutschland darf keine Insel des Wohlstands werden.»
+
+_Bischof von Szeged-Csanád (Ungarn) László Kiss-Rigó:_
+«Das sind keine Flüchtlinge. Das ist eine Invasion. Sie kommen hierher mit dem Ruf ‹Allahu Akbar› und wollen
+uns erobern.»
+
+_Der Erzbischof von Mossul (Irak) Amel Shimon Nona an Europa:_
+«Unser Leiden ist ein Vorgeschmack darauf, was Ihr erleiden werdet.»
+
+#### Ihre vier Massnahmen
+Sie haben am 4. Oktober 2015 folgende vier Massnahmen zur Bewältigung der Massen-Zuwanderung ange kündigt:
+**Die Fluchtursachen zu bekämpfen. Das wird in Afrika seit 50 Jahren vergeblich versucht. Die dortige Be-**
+völkerungsexplosion mit 30 Millionen Menschen Zuwachs im Jahr wird solche Versuche auch in Zukunft
+vereiteln.
+
+**Die ‹gerechte› Verteilung der Migranten auf die Staaten Europas. Das wird die Mehrheit der Staaten aus**
+ihren eigenen Erfahrungen mit fremdnationalen Minderheiten ablehnen.
+
+**Den Zustrom nach Europa begrenzen. Das ist an der Grenze Europas zum Mittelmeer mit den bisherigen**
+Methoden nicht möglich.
+
+**Die Asylverfahren beschleunigen. Das ist ohne Abschaffung der Klagemöglichkeit in drei Instanzen beim**
+Grundrecht auf Asyl nicht durchzusetzen und bei der Masse der Abschiebehindernisse beinahe wirkungslos.
+
+**Sie haben offensichtlich keinen Plan, die Völkerwanderung auf den ‹Routen zu Wohlstand und Sicherheit› end-**
+gültig zu beenden und den Zustrom auf Asylanten und Erwünschte zu begrenzen.
+
+**Ihre ‹Massnahmen› sind Illusionen und Kosmetik. Damit trocknen Sie weder den Migranten-Strom aus noch**
+werden Sie die Mehrheit der abgelehnten Asylanten eher und überhaupt in ihre Heimatländer zurückführen
+können. Ihr Verlangen nach einer europäischen Lösung ist erfolglos und ausserdem Ihr Spiel auf Zeit um Ihr
+politisches Überleben.
+
+**Sie treiben dies Spiel zu Lasten des deutschen Volks, dessen Interessen Sie vertreten sollten.**
+
+Ihr häufig wiederholtes «Wir schaffen das!» lässt Sie wie eine Autofahrerin erscheinen, die sich weigert, in der
+Sackgasse zu wenden.
+
+#### Erforderliche Massnahmen
+Ich schlage einer neuen Regierung vor, dass sie erwirkt, dass die Grundgesetzartikel 6 und 16, die Gesetze, UNKonventionen, EU-Verordnungen und nationalen Verordnungen, die einer Lösung des Migranten-Problems
+entgegenstehen, wegen des ‹Wegfalls der Geschäftsgrundlage› bis zur Lösung des Problems ausgesetzt und zu
+Teilen neu verhandelt und Änderungen beschlossen werden.
+
+**Der ‹Wegfall der Geschäftsgrundlage› besteht im jetzigen europäischen Notstand einer bei Schaffung der**
+Gesetze und Vereinbarungen nicht bedachten Völkerwanderung. Die Erfahrungen der letzten Monate zeigen,
+dass viele Staaten Europas ähnliche Wege beschreiten wollen.
+Die Bürger aller nicht-deutschen Staaten sind überdies stärker an nationalen Interessen und ihren nationalen
+Identitäten interessiert, als die Menschen in Deutschland und in Österreich, die ihre nationale und christliche
+Identität weitgehend verloren haben. So ist dieses Vorhaben aussichtsreich.
+
+
+-----
+
+Ich schlage weiterhin vor, die Völkerwanderung zu unterbinden, Schnellverfahren für Asyl-Anträge zu praktizieren, Kriegsflüchtlingen nur aus Kampfgebieten Schutz zu gewähren und die Masse der übrigen im letzten
+Jahr eingetroffenen Migranten schnellstmöglich zu repatriieren.
+
+Dazu empfehle ich:
+1. dass die Anwendung des Asylrechts wieder auf den im GG (Grundgesetz) festgeschriebenen Kern zurückgeführt wird,
+2. dass das GG so angepasst wird, dass das im GG garantierte Recht auf Familienzusammenführung und das
+Recht, Asyl in einem mehrstufigen Gerichts-Instanzenweg zu erstreiten, abgeschafft werden, (Nur so können
+in der Schweiz Asylverfahren in der Regel binnen 48 Stunden abgeschlossen werden.)
+3. dass die Asylverfahren afrikanischer Migranten in Nordafrika oder in den Herkunftsländern der Migranten
+abgewickelt werden,
+4. dass die Einwanderung per Schiff über das Mittelmeer nach australischem Vorbild unterbunden wird,
+(Australiens Regierung hat in allen Herkunftsländern Zeitungs- und TV-Anzeigen geschaltet und bekannt
+gemacht, dass Asylanträge nur noch in den dortigen Konsulaten angenommen und Bootsflüchtlinge generell zurückschickt werden. Die australische Marine nimmt Flüchtlings-Boote und -Schiffe ‹auf den Haken›
+und in Seenot geratene Migranten an Bord und fährt sie an die nächste Küste auf dem Gegenufer zurück.)
+5. dass Angehörige von Nicht-EU-Balkanstaaten und aus asiatischen Unruhe- und Armutsgebieten ihre Asyloder Einwanderungsbegehren nur an deutschen Vertretungen in ihren Heimatländern vorbringen können,
+und dass Angehörige aus diesen Staaten und Gebieten ohne positive Asyl- oder Einwanderungsbescheide
+bei illegaler Einwanderung sofort repatriiert werden, und dass dies in den Herkunftsländern bekanntgemacht wird,
+6. dass nur Asyl- und Einwanderungsbegehrende aus Kriegsgebieten wie derzeit Syrien wie bisher behandelt
+werden, nicht aber aus Flüchtlingslagern ausserhalb der im Krieg befindlichen Staaten,
+7. dass Flüchtlinge aus Kriegsgebieten, nach Ende der ‹heissen› Feindseligkeiten wieder ausreisen müssen,
+wenn sie sich weniger als 5 Jahre in Deutschland aufgehalten haben,
+8. dass Migranten und Asylanten nach schweren Kriminaldelikten sofort mit Ihren Familien abgeschoben
+werden,
+9. dass die Einwanderung generell nach kanadischem Vorbild und deutschem Interesse gesteuert wird, (Auswahl nach jährlichem deutschem Zuwanderungsbedarf, deutschen Sprachkenntnissen, Berufserfahrung
+und Bedarf am Beruf in Deutschland, Bildungsstand und Alter. Australien und Dänemark haben ähnliche
+Aufnahmekriterien.)
+10. dass Sozialleistungen, ausser Witwen- und Waisenrenten, für die im Heimatland der Migranten und
+Asylanten verbliebenen Familienangehörigen gestrichen werden und
+11. dass die Familienförderung bei Eheschliessungen im Inland, bei Geburten, Wohnungsbau junger Ehepaare
+und Anschaffungen von Familienbedarfs-Grossgeräten stark angehoben wird.
+
+#### Ich bitte Sie nochmals, als Bundeskanzlerin zurückzutreten und einer Lösung des Völkerwanderungs - problems nicht im Wege zu stehen.
+Mit freundlichem Gruss Ihr
+Gerd Schultze-Rhonhof
+
+PS: Dieser Brief ist mit keinem aktiven Politiker be- oder abgesprochen worden.
+
+Quelle: http://brd-schwindel.org/bitte-treten-sie-zurueck-zweiter-offener-brief-von-generalmajor-a-d-gerdschultze-rhonhof-an-angela-merkel/
+
+### Farage - Merkel und Hollande sind Versager
+_Freitag, 9. Oktober 2015, von Freeman um 08:00_
+Die beiden Verräter an Europa und an ihren Staaten, Merkel und Hollande, haben am Montag vor dem euro päischen Parlament in Strassburg ihre Reden gehalten. Merkel gab endlich zu, sie ist eine Gesetzesbrecherin,
+denn sie sagte, das Dublin-Abkommen, das diejenigen Staaten, in denen Migranten zuerst die EU betreten, zur
+
+
+-----
+
+Aufnahme und Durchführung von Asylverfahren verpflichtet sind, sei ‹in der Praxis obsolet›. Sie hat selbstherrlich bestimmt, unbegrenzte Mengen an Flüchtlingen und Migranten können nach Europa strömen und selber
+verlangen, welches Land sie aufzunehmen hat. Natürlich die Länder mit den grosszügigsten Geschenken für die
+Einwanderer, wie Deutschland und Schweden. Sie macht auch keinen Unterschied mehr zwischen Kriegsflüchtlingen und den Migranten, die aus wirtschaftlichen Gründen kommen.
+
+Merkel sagte: «Der Schutz der Aussengrenzen wird nur erfolgreich sein, wenn wir etwas gegen die Krisen tun, die
+_vor unserer Haustür stattfinden.»_
+
+Ach ja? Als ich das hörte, konnte ich meinen Zorn kaum beherrschen. Denn, wer hat die Krisen verursacht? Wer
+hat den Angriffskrieg der Amerikaner gegen den Irak 2002 vehement befürwortet? Es war Merkel. Wer hat den
+Krieg in Afghanistan zwölf Jahre lang mit dem Einsatz der Bundeswehr befohlen? Es war Merkel. Wer hat den
+NATO-Bombenkrieg gegen Libyen nicht verhindert? Es war Merkel. Und wer hat die Forderung der Amerikaner
+unterstützt, Präsident Assad muss gestürzt werden und die Terroristen sollen das in Syrien besorgen? Auch
+Merkel.
+
+Genau aus diesen Ländern, in denen der Westen militärisch interveniert hat und immer noch tut, stammen die
+Flüchtlinge, weil ihnen die Lebensgrundlage weggebombt und zerstört wurde.
+
+Merkel, ihre Regierung und überhaupt die ganzen Politiker in Berlin, sind an den Krisen rund um Europa schuld,
+weswegen es eine Massenflucht und eine Flüchtlingswelle gibt. Ohne die Kriege der NATO und der Amerikaner,
+gäbe es keine Kriegsflüchtlinge. Also soll sie doch nicht so scheinheilig tun.
+
+Für mich steht fest, Merkels Politik der offenen Grenzen, «Wir lassen alle rein und schaffen das schon», ist nicht
+ein Zeichen von christlicher Nächstenliebe. Nein, sondern weil sie das schlechte Gewissen plagt, wenn sie
+überhaupt ein Gewissen hat. Sie weiss ganz genau, es ist ihre Arschkriecherei gegenüber Washington, ihre bedingungsloses Hörigkeit, ihre Erlaubnis an die Amerikaner, alle ihre Kriege von deutschem Boden aus zu
+führen, der sie zur ‹Mutti der Migranten› macht.
+
+Einer der wenigen EU-Parlamentarier, der Merkel und Hollande deutlich die Meinung sagte, war wieder einmal
+Nigel Farage. Er sagte zur Flüchtlingskrise:
+
+
+-----
+
+_«Was die schlechteste Politik im modernen Europa seit einem halben Jahrhundert darstellt, ist die Fortsetzung der_
+_bereits völlig gescheiterten gemeinsamen Asylpolitik, in dem man der ganzen Welt sagt, bitte kommt nach Europa._
+_Und wir sehen praktisch eine Stampede und wir lernen dabei, 80 Prozent von denen die kommen, sind keine syrischen_
+_Flüchtlinge. Was sie tatsächlich gemacht haben (Merkel), ist die Tür für junge, männliche Wirtschaftsflüchtlinge zu_
+_öffnen, und ich fürchte sagen zu müssen, von denen viele sich sehr aggressiv benehmen, genau das Gegenteil was man_
+_von echten Flüchtlingen erwarten würde. Und wenn dieses Versagen von Ländern wie Ungarn kritisiert wird, dann_
+_werden diese Meinungen zermalmt.»_
+
+Er brachte das Versagen der EU-Turbos mit dem Satz auf den Punkt: «Das einzige Rezept was ihr beide habt, da
+_Europa nicht funktioniert, müssen wir noch mehr Europa haben … noch mehr vom gleichen Versagen!»_
+
+Merkel hörte versteinert zu und Hollande ist sowieso nur ein Pudel!
+
+09.10.2015, 14:00, "Achim Wolf":
+Hallo Herr Petritsch,
+heute möchte ich wieder um ein Kopierecht bitten, und zwar für http://alles schallundrauch.blogspot.de/2015/
+10/farage-merkel-und-hollande-sind-versager.html
+Ggf. wäre die Plattform bei www.figu.org/ch.
+Mit freundlichen Grüssen
+Achim Wolf
+www.freundderwahrheit.de
+
+Gesendet: Freitag, 09. Oktober 2015 um 16:12 Uhr
+Von: "ASR Blog" <asrblog@yandex.ru>
+An: "Achim Wolf"
+Betreff: Re: Kopierecht-Anfrage
+Ist gut.
+
+### Junckers Wandel gegenüber Russland
+_Freitag, 9. Oktober 2015, von Freeman um 12:00_
+EU-Kommissionspräsident Jean-Claude Juncker hat bei einer Podiumsdisskussion in Passau am Donnerstag
+ganz neue Töne von sich gegeben, was das Verhältnis zwischen der EU und Russland betrifft. Jetzt auf einmal
+muss man Russland ‹anständig behandeln›, sagte er. Ich meinte nicht richtig zu hören, als ich seinen Ausführungen lauschte. Er gibt damit zu, Europa hat bisher Russland nicht anständig behandelt, sondern beleidigt und
+vor den Kopf gestossen. Wie sich doch die Meinungen von einem Tag auf den anderen ändern.
+
+Aber es geht weiter. Er sagte: «Wir müssen uns um ein brauchbares Verhältnis zu Russland bemühen. Das ist nicht
+_sexy, aber das muss sein. Wir können so nicht weitermachen. Man müsse sich nicht in allem einigen, aber wieder_
+eine vernünftige Gesprächsbasis etablieren.
+
+
+-----
+
+Aber es kommt noch viel besser. Er kritisierte, dass US-Präsident Barack Obama Russland als ‹Regionalmacht›
+abqualifiziert habe. «Wir können uns unser Verhältnis zu Russland nicht von Washington diktieren lassen. Das geht
+_nicht.›_
+
+Da legst di nieder, sag ich dazu, die Sklaven in Europa rebellieren gegen den Boss in Washington? Lieber Juncker,
+mit solchen Worten musst du aufpassen, denn es kann dir leicht wegen Trunkenheit am Steuer ein tödlicher
+Unfall passieren, … so wie dem Abstinenzler Haider.
+
+_«Die Russen sind ein stolzes Volk», das Land habe «eine Rolle zu spielen», sagte Juncker weiter. «Man darf sie nicht_
+_von der Bildfläche verdrängen, sonst melden sie sich, wie wir gesehen haben, sehr schnell wieder», ergänzte er._
+
+Damit spielte Juncker wohl auf die russischen Antiterror-Operation in Syrien an. Aha, jetzt wo die EU-Führung
+sieht, zu was Russland militärisch fähig ist, geht ihnen die Muffe und sie werden scheissfreundlich.
+
+Also Jean-Claude, da redest Du Unsinn und die Unwahrheit, wenn Du behauptest, Europa wäre seit dem II. WK
+ein Hort des Friedens. Schon den völkerrechtswidrigen Angriffskrieg der NATO gegen Jugoslawien vergessen?
+Sind daraus nicht Hunderttausende Kriegsflüchtlinge aus dem Balkan resultiert?
+
+Und was in Südeuropa wegen der Eurokrise an gesellschaftlichen Dramen und Elend passiert, kann man auch
+nicht friedlich nennen. Frag doch mal die Griechen, Italiener und Spanier, ob sie in den letzten Jahren friedlich
+leben, oder eher ums Überleben kämpfen?
+
+Was ist mit Eurem Lieblingskind Ukraine? Ist dort kein vom Westen inszenierter gewaltsamer Putsch passiert,
+mit bezahlten Scharfschützen für einen False Flag, einem anschliesenden Massaker in Odessa und dem Krieg
+gegen die Zivilbevölkerung der Ostukraine? Wie friedlich ist das denn?
+
+Und in Deutschland geht es seit der Flut an Migranten die ins Land kommen auch nicht mehr friedlich zu. Das
+wird in Zukunft bei 1,5 Mio. Migranten pro Jahr noch ganz anders ‹unfriedlich› werden.
+
+Und welche Grenzen hat Präsident Putin in Europa verschoben? Ach, die Krim. Da hat aber das Volk in einer
+Abstimmung den Anschluss an Russland mit Mehrheit gewählt. Aber ich weiss, mit dem Selbstbestimmungsrecht der Völker habt Ihr EU-Diktatoren nichts am Hut.
+
+Warnung: Die hässlichste Schreckschraube der Welt erscheint kurz im nächsten Video:
+
+Ja mein lieber Jean-Claude, wenn Du plötzlich so anders über Russland denkst, dann heb doch die Sanktionen
+gegen Russland auf. Sie schaden sowieso der europäischen Wirtschaft am meisten. Flieg nach Moskau und entschuldige Dich bei Putin für das angerichtete Ungemach, das Ihr auf Befehl Washingtons angerichtet habt.
+
+
+-----
+
+09.10.2015, 19:06, "Achim Wolf":
+Auch für den aktuellen Juncker-Russland-Artikel bei: http://alles-schallundrauch.blogspot.de/2015/10/
+junckers-wandel-gegenuber-russland.html ?
+:-)
+
+Gesendet: Freitag, 09. Oktober 2015 um 19:08 Uhr
+Von: "ASR Blog" asrblog@yandex.ru
+An: "Achim Wolf"
+Betreff: Re: Aw: Re: Kopierecht-Anfrage
+Ihr müsst mich in Zukunft nicht mehr fragen, solange ihr Quelle und Link platziert.
+
+### Richard SULÍK im Europaparlament: Angela Merkel verstösst gegen das Deutsche Grundgesetz und hat offensichtlich vergessen wer sie gewählt hat und wen sie be- schützen soll
+_9. Oktober 2015 Non Profit News Redaktion_
+
+**Angela Merkels verheerende und gegen das eigene Volk gerichtete Asylpolitik ist auch im Europa-Parlament**
+**Thema. Richard SULÍK (Fraktion der Europäischen Konservativen und Reformer) sprach vor dem EU-Parla-**
+**ment Klartext. Zweifelsfrei handelt Merkel verfassungswidrig, aber die Schuld trifft auch alle diejenigen welche**
+**Merkels Politik unterstützen, auch sie müssten auf die Anklagebank.**
+Richard SULÍK (Fraktion der Europäischen Konservativen und Reformer): «Noch im Sommer hat man für dieses
+_Jahr mit 800000 Flüchtlingen in Deutschland gerechnet. Die aktuelle Schätzung lautet auf 1,5 Millionen. Die_
+_Differenz von 700000 geht auf das Konto der Angela Merkel und ihrer unverantwortlichen und vernichtenden_
+_Politik._
+_Frau Merkel hat das Dubliner-Abkommen ausser Kraft gesetzt und verstösst gegen das Deutsche Grundgesetz. Das_
+_darf sie nicht. Die meisten Menschen, die kommen sind Wirtschaftsmigranten und keine Kriegsflüchtlinge. Wer vier_
+_oder fünf sichere Länder durchquert, flüchtet vor keinem Krieg._
+_Es ist eine Illusion zu glauben, dass diese Migranten für die deutschen Renten arbeiten werden. Dafür ist der deutsche_
+_Mindestlohn eine viel zu grosse Barriere. Deutschland kann hauptsächlich nur Sozialleistungen._
+_Frau Merkel hat offensichtlich vergessen wer sie gewählt hat und wen sie beschützen soll. Es ist höchste Zeit aufzu-_
+_wachen und diese Invasion zu stoppen. Australien hat es vorgemacht.»_
+
+From: Achim Wolf
+To: redaktion@pressejournalismus.com
+Date: 12:58:35, 10.09.2015
+Subject: Kopierecht-Anfrage
+
+
+-----
+
+-----
+

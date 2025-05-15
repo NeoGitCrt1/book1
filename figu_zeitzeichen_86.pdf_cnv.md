@@ -1,0 +1,1472 @@
+# FIGU– ZEITZEICHEN
+## Aktuelles • Einsichten • Erkenntnisse
+
+**Erscheinungsweise:** **Internetz: www.figu.org**
+**Sporadisch** **E-Brief: info@figu.org**
+
+
+**L**
+
+**WESEN FREMDER WELTEN**
+**BESUCHEN DIE ERDE**
+
+
+**4. Jahrgang**
+**Nr. 86, Januar 2018**
+
+
+**Freie**
+
+
+#### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+Laut ‹Allgemeine Erklärung der Menschenrechte› vom 10. Dezember 1948, Artikel 19, ‹Meinungs- und Informationsfreiheit›:
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die**
+**Freiheit, Meinungen unangefochten anzuhängen und Informationen und Ideen mit allen**
+**Verständigungsmitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Aussagen und Meinungen müssen nicht zwingend identisch sein mit Gedanken, Interessen, Lehre und Missionsgut der FIGU.
+
+### Wichtig – zur Beachtung
+Die Weltbevölkerungszahl der Erde wird von den irdischen Statistikern durchwegs falsch angegeben, weil sie
+weltweit nicht über genaue Bevölkerungsdaten und auch nicht über die Möglichkeit für genaue elektronische
+Registrierungsmöglichkeiten, sondern nur über zahlenmässige Pro-Forma-Annahmen verfügen. Gemäss den
+Angaben der Plejaren, die über ein hochtechnisiertes, gesamtirdisches Kontrollsystem in bezug auf Personenregistrierung verfügen, können sie ein sehr genaues Resultat in bezug auf die laufende Bevölkerungsregistrierung
+der irdischen Bevölkerung ausweisen. So bevölkern ihren genauen Registrierungen gemäss rund 1,3 Milliarden
+Menschen mehr die Erde, als die irdischen Schein-Berechnungen ergeben. Die Plejaren registrieren während
+des Jahres im Verlauf der 365 Tage, ab 00.00 Uhr, Jahresbeginn, 1. Januar bis 24.00 Uhr, 31. Dezember, Jahres ende, regelmässig täglich 24 Stunden lang jede einzelne Neugeburt sowie jeden Todesfall, folglich sich so ein
+absolut bis auf einen einzelnen Menschen genaues Resultat der irdischen Gesamtbevölkerung
+ergibt. Diese betrug um 24.00 Uhr, am 31. Dezember 2017, exakt
+
+### 8844128002 = resp. 8,844 Milliarden Erdenmenschen
+
+
+-----
+
+Die irdische Statistik, die am 31. Dezember 2017 eine Weltbevölkerungszahl von 7 Milliarden 576 Millionen
+951 tausend und 385 Erdenmenschen darlegt, stimmt also nicht mit der Wirklichkeit und deren Wahrheit über ein. Die jährliche Zuwachsrate der irdischen Bevölkerung resp. Überbevölkerung beträgt gemäss äusserst genauen plejarischen Angaben und ihren täglichen Kontrollaufzeichnungen für das Jahr 2017 in bezug auf die
+Gesamtbevölkerung der Erde 105 Millionen, 118 tausend, 978 Menschen, nicht jedoch 80–90 Millionen, wie
+die irdischen Statistiken fälschlich behaupten.
+Billy
+
+### Auszüge aus einem am 17. Februar 1945 vom Plejaren Sfath geführten und aufgezeichneten Einführungsgespräch – wiedergegeben durch den Plejaren Ptaah
+**1945, ab Samstag, 17. Februar** Besonders wichtige und spezielle Belehrungen in laufender Folge nebst allem
+anderen Lernen bis zum Weggang von Sfath im Jahr 1953
+
+### Kontaktgespräch vom 17./18. Dezember 2017
+**Sfath       Eduard, den Hauptgrund dafür, dass ich in dieser Zeit des schändlichen, bestialischen, grauenhaften,**
+bösartigen, völlig destruktiven und verhängnisvollen Weltkrieges dich belehre, habe ich dir schon mehrfach erklärt.
+Doch heute habe ich dir viel Wichtiges nahezubringen, wonach du einerseits dein Leben und deine Gesinnung
+ausrichten und diesbezüglich sehr viel lernen musst. Andererseits habe ich dir heute vieles kundzutun, was die
+Zukunft dieser Welt und deren Menschheit, wie aber auch der kommenden Geschehen betrifft, wobei ich dir jedoch zuerst eine Weisung nahebringen will, die dich durch dein Leben begleiten und ein Teil deines Verhaltens
+sein wird. Eduard, du musst in deinem Leben wohl machtvoll sein, doch darfst du deine Macht niemals missrätig
+(Anm. Ptaah: falschberatend), wie auch nicht anderweitig missbräuchlich und auch nicht selbstgefällig nutzen,
+wie auch niemals dazu, über Mitmenschen herrschen zu wollen. Gegenteilig wirst du – und es wird deine Pflicht
+sein – dein Verantwortungsbewusstsein leben, bescheiden und nur schöpfungsgerecht belehrend, lehrend, rätig,
+hilfsbereit, redlich, friedvoll und kündend sein müssen. Du wirst mit deiner Macht alles mit rechten und gerechten
+Mitteln in friedlicher, gerechter, richtiger Weise und mit klarem Verstand und ebensolcher Vernunft erkämpfen,
+um wirklich Gutes zu bewirken, und zwar auch dann, wenn du von bösen Widersachern wider besseres Wissen
+mit gegenteiligen Verleumdungen beschimpft werden wirst. Viele dieser Widersacher werden Christgläubige sein,
+die Glaubens sein werden, über der schöpferischen Wirklichkeit und Wahrheit zu stehen, weil ihr höriger
+religiöser Glaube sowie ihr Sinnen und Trachten grotesk und also merkwürdig, absonderlich und lächerlich auf
+einen von Menschen dieser Welt erdachten Gott ausgerichtet ist. Die deutschsprachige Benennung ‹Gott› entspricht vielfachen Abänderungen, Umwandlungen und Veränderungen des urältesten Begriffs ‹Gudaana›, der aus
+der Ursprache des Universalkünders Nokodemion entstammte und ‹Erschaffung› bedeutet, worin grundlegend
+der Sinn ‹Schöpfung› und ‹Universum› verankert war. Der Begriff ‹Gudaana› wurde vor rund 13500 Jahren in
+diese Welt gebracht, wonach er im Lauf der Jahrtausende in vielen Sprachen abgeändert, umgewandelt und für
+eine erphantasierte höhere Macht genutzt wurde. Das hatte zur Folge, dass auch der eigentliche Wortsinn und
+Wortwert eine völlige Veränderung erfuhren, wodurch von den Menschen für die ursprüngliche Bedeutung ‹Erschaffung› resp. ‹Schöpfung› und ‹Universum› eine Wesenheit ersonnen wurde, die für die Erschaffung der Welt
+und des Himmels verantwortlich sein sollte. Also wurde der Begriff ‹Gudaana› in eine völlig falsche Bedeutung
+einer höheren Wesenheit umgesetzt, die als ‹Gott› in die irdischen Sprachen Einlass fand. Zwar gibt es noch andere
+Herkunftsformen des Begriffs ‹Gott›, doch als dieser vor Urzeiten auf diese Welt gebracht wurde, entstanden
+daraus schon von allem Beginn an – dann auch in sehr viel späteren Zeiten – in verschiedensten Sprachen der
+Menschen dieser Welt Abwandlungen, Abkürzungen und Veränderungen. Im Norden der Welt z.B. (Anm. Ptaah:
+Europa), ergaben sich Abkürzungsveränderungen wie ‹gheu›, ‹Guda› und in weiteren Sprachen und Veränderungen auch ‹Guth›, ‹God›, ‹Gud› und ‹Got›, wie ursprünglich in anderen Ländern auch ‹Alan›, ‹Don›, ‹On›, ‹Manu›,
+‹Siwan›, ‹Koot›, ‹Kot› und ‹Ko-Kot› usw., womit verschiedene Bedeutungen verbunden wurden, die jedoch
+schliesslich immer auf eine erschaffende Kraft, Macht und Wesenheit deuteten, die nach menschlichem Unverstand
+personifiziert und in einer weiteren und letzten Begriffsveränderung ‹Gott› genannt und schliesslich als ‹Gottschöpfer› erdacht wurde. Wenn nun aber im Verständnis des Begriffs ‹Gott› in heutiger Zeit in jedem Sprach gebrauch zurückgedacht und dieser in seinem Ursprung als ‹Erschaffung›, ‹Schöpfung› und ‹Universum› gedacht,
+verstanden und genutzt wird, dann kann er in diesem Sinn in korrekter Weise gebraucht werden, aber tatsächlich
+
+
+-----
+
+nur im Verständnis dieses Sinnes, jedoch niemals in Form eines religiösen Glaubens einer wirren religiösen
+Glaubenslehre, durch die in jedem Fall einzig und immer ein anzubetender Schöpfergott und Gottvater gemeint
+wird. Auch ein Mensch kann berechtigterweise mit dem Begriff ‹Gott› bezeichnet werden, wenn er den vorherrschenden Charakterzug Liebe besitzt und pflegt und damit für ihn das Wohlergehen der Menschen an oberster
+Stelle steht. In diesem Sinn einen Menschen als ‹Gott› bezeichnen zu können bedeutet, dass sein Einsatz in jeder
+erdenklichen Beziehung für die anderen Menschen und alles Lebendige (Anm. Ptaah: gesamte Natur, Fauna,
+Flora und Universum) das Höchste sein muss, was er in Liebe vollbringen kann. Seine Liebe kann also nicht eine
+emotionale, sondern nur eine lebende und handelnde Liebe sein, die alles beschenkt. Die Bezeichnung ‹Gott› für
+einen Menschen erfordert von ihm auch Selbstgenügsamkeit, und durch sein Wesen müssen für die Mitmenschen
+auch Gerechtigkeit und moralische Gleichheit, Güte und Barmherzigkeit, Nachsicht, Verständnis und alle vorteilhaften Eigenschaften gegeben sein. Auch muss ein Mensch, wenn er als ‹Gott› benannt werden soll, einfallsreich, erfinderisch, arbeitsam, ideenreich, künstlerisch, phantasievoll, hilfreich, nutzbringend, redlich, mitfühlsam,
+friedvoll und erfolgreich sein, wie auch produktiv, reich im Bewusstsein, musikalisch, intelligent, gestalterisch,
+begabt, genial, witzig, originell, aktiv, bildend, talentiert, wissensweise, konstruktiv und wirksam usw., und er
+muss rechtschaffen sowie gesamthaft kreativ und zudem schöpfungsgerecht leben, was jedoch in keiner Weise
+etwas mit einer höheren Macht des Erschaffens, wie auch nichts mit einem wirr-religiös erdachten Schöpfergott
+und auch nicht mit der ‹Erschaffung› beziehungsweise ‹Schöpfung› und dem ‹Universum› zu tun hat. Die Möglichkeit der Existenz eines solchen Menschen wäre ein Zustand einer höchstmöglichen Perfektion, die zwar in
+den unendlichen Himmelsweiten (Anm. Ptaah: Universum) bei sehr hochentwickelten Menschheiten bei sehr
+vereinzelten Menschen möglich sein kann, jedoch auf dieser Welt (Anm. Ptaah: Erde) noch über unerdenkliche
+Zeiten hinweg nicht der Fall sein wird. Durch Glaubensentartungen sind die Menschen schon zu sehr frühen
+Zeiten auch Gedanken, Emotionen und entarteten Verhaltensformen verfallen, durch die andere Menschen verfolgt, ermordet und auch Völker mit Krieg belegt wurden, wenn sie anderen Glaubens waren als jene, welche auf
+Hass und Rache aus waren. Auch die Andersartigkeit der verschiedenen Menschengruppen spielte dabei eine
+grosse Rolle, wie aber auch die Nahrung, um die gekämpft wurde. Aus all dem wurden unsagbar viele Übel herausgeboren, die sich als Laster, Einbildung, Aufwallung, Neid, Erregung, Hass, Gier, falsche Erwartung und wirre
+Hoffnung, Leidenschaft, Wut und Zorn, Rauschzustand, Hysterie, Überspanntheit, Unruhe und Überreizung
+aller Art formten. Alles erzeugte auch wilde Phantasien, Trugbilder, Illusionen und wirre Wahnvorstellungen, die
+immer tiefgründiger wurden und in einem kranhaften Wahn von Glauben endeten, woraus sich schlussendlich
+Religionen bildeten. Seit vielen tausend Jahren wird so durch den Wahn der erst nur sehr kleinen, vielfältigen
+Religionen auf einen von Menschen erfundenen unwirklichen Gott geschworen, der erst nur als Trugbild, Tier,
+Gegenstand, Sonne, Mensch oder Mond usw., jedoch in späterer Zeit als Gott erachtet wurde, der angeblich auf
+einem himmlischen Thron sitzen soll und der durch die Gottgläubigen aller Zeiten widersinnig zu einem Schöpfergott erhoben wurde. Diesem nichtexistierenden und menschenerfundenen Gott wird von den an ihn Gläubigen
+zugesprochen, das Weltall und die Gestirne sowie alles überhaupt geschaffen zu haben, die Liebe selbst und nachsichtig sowie gerecht zu sein, wobei er jedoch im gleichen Zug Strafe und gar den Tod für begangene Fehler fordert
+und die Menschen für ihre Schwächen und Unvollkommenheiten selbst verantwortlich macht, obwohl er angeblich alle Handlungen und Taten der Menschen selbst bestimmen soll. Der Fall liegt jedoch anders, als die Gottgläubigen annehmen, denn nicht ein Gott hat die Menschen erdacht und erschaffen, sondern sie haben diesen
+Gott erfunden und das diesbezügliche Phantasie- und Trugbild ersonnen, das sie in ihrer Wirrnis anbeten und
+verehren. Diesem Phantasiewesen sind sie im Wahn verfallen und haben sich dabei selbst verloren, was von
+Beginn an der Grund dafür war, dass sie – wie gesagt – Neid, Lastern, Erregungen, Einbildungen, Aufwallungen,
+Hass, falschen Erwartungen, Gier, Hoffnungen, Leidenschaften, Wut und Zorn, Rauschzuständen, Hysterie,
+Überspanntheit, Unruhen und Überreizungen verfallen sind. Das hinderte sie daran – und hindert sie auch heute
+und zukünftig –, selbständig und untadelig, selbstverantwortlich, friedlich, selbsttüchtig, charakterfest und unbescholten usw. zu werden, wie aber auch zum wahren Menschsein zu gelangen. Und das haben die Menschen
+dieser Welt getan, weil sie sich selbst durch ihre Bösartigkeit und Lasterhaftigkeit unfähig gemacht haben – und
+es auch heute noch tun –, sich selbst zu regieren und ohne Illusionen und ohne göttliche Wahngebilde zu leben.
+Also haben sie wahnmässig einen unwirklichen Gott und damit ein höchstes Wesen erschaffen, das ihren Bedürfnissen entspricht. So haben sie sich die Notwendigkeit ‹Gottes-Existenz› erschaffen und glauben fest daran. Jeder
+vernunftbegabte Mensch macht dabei gute Miene zum bösen und irren Spiel, während die Gläubigen in ihrer
+Wirrnis glauben, dass ihr erfundener Gott ihre Gebete empfange, Akten unterschreibe und ihnen in Not und
+Elend beistehen würde. Die Wahrheit ist jedoch die, dass jedem gläubigen Menschen sein Glaubensgott nur als
+Vorwand für die dümmsten Ansprüche und für sein schlechtes Gewissen dient. Und so werden auch Kriege in
+seinem Namen begonnen und Revolutionen geführt, Morde begangen und gar Strafen mit dem Tod geahndet.
+
+
+-----
+
+Je nach Bedarf machen die Gottgläubigen aus ihrem Gott was sie wollen und wofür er ihnen gerade nützlich ist.
+Doch der Thron dieses menschenerfundenen Gottes wird ins Wackeln geraten, denn in den kommenden Zeiten
+werden viele Gläubige von ihm abfallen, weil sie keine Lust mehr haben werden, weiter eine gläubige Rolle für einen
+erfundenen Gott zu spielen, der immer mehr zur komischen Figur werden wird. Die angebliche Macht Gottes
+und damit die Gott-Monarchie wird in kommenden Zeiten von vielen Menschen abgeschafft werden, und diese
+werden es sein, die dereinst nach wirklichem Frieden streben und die Streit- und Kriegssucht, alles Böse, alle entarteten Übel der Menschen verpönen und den von wirren Menschen erfundenen Gott schliesslich nicht mehr als
+Repräsentant und oberste Instanz aller Mächte eines veralteten wahngeplagten Glaubens anrufen und anbeten
+werden. Auch hinsichtlich der Macht der Menschen allgemein ist viel zu erklären, wie auch das, was das grösste
+Übel der Menschen seit alters her ist, nämlich, dass sie selbstsüchtig und selbstzweckbedingt nach Macht streben
+und die Mitmenschen beherrschen, über sie herrschen und sich selbst über alle anderen erheben wollen. Dabei
+entwickeln sie eine Machtbesessenheit, eine Besessenheit der Macht, die keine Grenzen kennt und zu bösartiger,
+entarteter Gewalt bis hin zur menschlichen Bestialität, zu Kriegen, Intrigen, Morden, zum Blutrausch und allem
+erdenklich Möglichen von Entartungen führt. Und das hat aus vielerlei Ursachen bei den Menschen schon zu Urzeiten seinen Anfang genommen und sich bis in die heutige Zeit erhalten, wodurch unzählbare Menschen bestialisch gemordet und menschlich erschaffene Werte vielartiger Formen zerstört und gar unwiderruflich vernichtet
+wurden, wie auch unsagbares Leid, Elend und grosse Not und immer weiter ansteigender Hass und Rachefeldzüge
+wider jene, welche aus irgendwelchen wirren Gründen als Feinde erachtet wurden, entstanden sind. Und das hat
+sich so bis in die heutige Zeit erhalten und wird noch bis in ferne Zukunft so weitergetrieben werden, wobei
+machtbesessene und rachsüchtige Menschen sich in die Obrigkeiten drängen und, wenn sie ihre angestrebten
+Machtpositionen erreicht haben, ihre Machtgier ausüben. Dabei zetteln sie Kriege an, erdenken Strafen und Verordnungen, um damit Tod und Verderben zu verbreiten und unliebsame Widersacher aus der Welt zu räumen,
+wie sie auch die Bevölkerungen mit allerlei unzulässigen Gesetzen unterdrücken und durch hoch übertriebene
+Steuerabgaben ausbeuten, um sich damit einerseits zu bereichern, oder um die Einnahmen sinnlos zu verschleudern
+und noch Schulden anzuhäufen. Für einen machtbesessenen Menschen ist Macht nicht ein Mittel zu einem guten
+Vorsatz, sondern zu einem entarteten Selbstzweck. Normalerweise ist Macht das, was es möglich macht, etwas
+Wertvolles zu erschaffen. Macht benötigt der Mensch also, um etwas bewirken zu können, wobei die Menschen sie
+seit alters her jedoch zu selbstsüchtigen, gewalttätigen, zerstörenden und todbringenden Zwecken missbrauchen
+und unsagbares Elend und Zerstörungen über die Erdbevölkerung gebracht werden, wobei auch Völkermorde und
+Völkerausrottungen (Anm. Ptaah: Genozide) anstehen, wie durch das Naziregime im gegenwärtig noch laufenden
+Dritten Weltkrieg. Auch der Naziführer Adolf Hitler ist von unbändiger Machtbesessenheit befallen, und er übt
+seine verbrecherische und menschenverachtende Macht um der Macht willen aus, wodurch bereits Dutzende
+Millionen von Menschen in Kriegshandlungen gefallen sind, wie aber auch viele Millionen unschuldige jüdische
+Glaubensangehörige infolge des Judenhasses ermordet wurden. Und solche Ausrottungsmassenmorde bezüglich
+Gläubigen anderer Religionen (Anm. Ptaah: Religionsgenozide) und deren Splittergruppen (Anm. Ptaah: Sekten)
+wurden schon seit alters her durch Kriege und grässliche Massaker ausgeübt, doch hat sich dies bis in die heutige
+Zeit so weitergetragen und wird auch weiterhin so fortgeführt werden. Schon in wenigen Jahrzehnten wird sich
+in sehr schlimmer Weise wieder Gleiches durch eine religiös entartete Schreckensbrut (Anm. Ptaah: Terrororganisation IS, Islamistischer Staat) ereignen, ausgehend von Arabien und sich dann weltweit verbreitend. Die Machtbesessenheit der Menschen ist in dieser Welt derart entartet, dass Unzählige bereit sind, alles für ihre Macht zu
+tun, und zwar selbst über zahllose zu mordende Menschenleben hinweg. So muss die Menschheit darauf achten,
+dass wenn im einen oder anderen Machtbesessenheit erkannt wird, Vorsehungen (Anm. Ptaah: Vorsichtmass nahmen) getroffen werden, solche Machtgierige nach Möglichkeit zu stoppen. Und dies muss immer geschehen,
+ehe die Machtbesessenen in obrigkeitliche Ämter gelangen und die Macht ergreifen und ihre diktatorisch-machtgierige Gewaltherrschaft ausüben können, in der Regel mit Hilfe von Gleichgesinnten und durch Bestechung von
+bösartig Beeinflussten und moralisch ebenfalls Verkommenen. Oft bewerben sich auch Menschen in Ämter der
+Obrigkeiten und in die Politik, die gut gesinnt sind, weil sie etwas Gutes zu bewirken gewillt sind, doch dann,
+wenn sie an die Macht kommen, dann wird bei vielen von ihnen die Macht auch allmählich zum Selbstzweck,
+folglich dann auch bei ihnen die Machtgier durchbricht. Die zwangsläufige Folge ist dann, dass sie zur Erlangung,
+Erhaltung und Beherrschung der Menschen und Völker eine Machtform der Gewalt entwickeln, bei der ihnen
+jedes Mittel recht ist – und zwar unabhängig von Moral und Recht –, um ihr Machtgebaren auszuüben und ihr
+angestrebtes Herrschaftsziel zu erreichen. Wenn in einer Umgebung Menschen sind, die als machtgierig empfunden
+werden, muss jedoch immer zuerst gut überlegt und richtig beurteilt werden, ob eine wirkliche Machtgier vorliegt, denn bei den Menschen ist es oft üblich, anderen Machtgier zuzuschreiben, die es jedoch nicht sind, sondern
+es grundsätzlich gut meinen und auch zum Wohl der Mitmenschen arbeiten, handeln und zu guten Dingen bereit
+
+
+-----
+
+sind, wie sie auch Verantwortung zu übernehmen und zu tragen verstehen. Daher muss immer überprüft werden,
+was die Anliegen der Menschen überhaupt sind. Wenn Menschen die Macht um der Macht und des Ansehens
+willen suchen und ausüben, dann entspricht das aber einer düsteren und unheilvollen Machtgier, die Gewalt, Blutvergiessen, Unterdrückung und in der Regel Mord und Totschlag, Aufstände, Kriege und Zerstörungen bringt. Wenn
+daher Menschen diese Art der Macht suchen und dabei auch bereit sind, dafür zu betrügen, Krieg zu führen,
+Morderei, Töterei und Unterdrückung auszuüben sowie gewissenlos sonstige verbrecherische Mittel zu nutzen,
+dann ist das als Entartung und Machtgier zu bezeichnen. Und diese sollte und dürfte von den Menschen bei keinem
+einzigen anderen Menschen geduldet werden, sondern jeder und die ganze menschliche Gemeinschaft müsste
+sich dagegen mit Verstand und Vernunft unter Anwendung gewaltloser Mittel zur Wehr setzen. Und dieserart
+sollte alles mit gerechten Mitteln erklärend und handelnd an die Öffentlichkeit gebracht werden, um aufklärend
+zu verhindern, dass Machtbesessene nicht an die Obrigkeitsmacht gelangen und ihre Machtbegierden weder verwirklichen noch ausleben können. Verantwortungsbewusstsein haben und ausüben bedeutet für den Menschen,
+immer und in jedem Fall stets eine gute Sache zu erreichen, sich für eine gute und richtige Sache einzusetzen und
+zu wissen, dass alles immer und in jedem Fall in guter und friedlicher Weise erreicht und in eine annehmbar gute
+Verantwortungsposition eingereiht werden muss. Die Menschen müssen sich in friedlicher, gerechter Weise mit
+klarem Verstand und gesunder Vernunft durchsetzen, ohne jedes Machtgebaren, und zwar auch dann, wenn sie
+in führenden Stellungen sind und ihre Mitmenschen zu führen und zu leiten haben. Dabei muss alles gut und
+ordentlich sein, und es darf nichts Schlechtes dabei mitwirken, denn der Sinn muss immer für eine gute Sache
+sein, wie auch die Mittel dazu immer gut und rechtmässig sein müssen und die Verantwortlichen – sowie alle
+Menschen überhaupt – niemals über Leichen gehen sollten, und zwar auch nicht im übertragenen Sinn. Das
+vorderhand so weit, doch nun dazu, woher ich komme, denn das habe ich dir bisher noch nicht gesagt, doch hast
+du selbst festgestellt, dass ich nicht erdengebürtig bin, sondern dass ich weither von einer anderen Welt stamme.
+Diese ist sehr weit von der Erde entfernt und zudem in einer anderen Geräumigkeit (Anm. Ptaah: Dimension)
+ausserhalb dem, was du am Himmel mit allen Sternen (Anm. Ptaah: Universum) siehst. Und wohin ich dich in die
+Räumlichkeit des Himmels zur Betrachtung der nahen Welten (Anm. Ptaah: SOL-System-Planeten) mit meinem
+Fluggerät bereits hinausgeführt habe, ist nur dieser Himmel (Anm. Ptaah: Weltenraum dieser Dimension), denn
+die andere Geräumigkeit, woher ich komme, ist weit jenseits dieser Himmelsräumlichkeit gegenwärtig. Noch vermagst du dies nicht zu erfassen, doch durch meine Belehrungen mit anderen Begriffen wirst du schon in wenigen
+Tagen verstehen, womit ich dich mit meiner Darlegung zum Nachdenken angeregt habe. Auch wirst du noch
+mehr erfahren, wie auch jetzt, da ich dir zu erklären habe, dass meine Heimat in der anderen Geräumigkeit zu
+einem Gefüge von Sternen (Anm. Ptaah: Sternhaufen) gehört, der von uns ‹Plejaren› genannt wird, wobei du
+diesen Namen aber verschweigen musst, wenn du bereits in den nächsten Jahren deine Aufgabe beginnst und deine
+ersten literarischen Aufgabenwerke (Anm. Ptaah: schriftlichen Missionsarbeiten) zu verbreiten beginnen wirst.
+Und es wird sehr wichtig sein, dass du über meine Herkunft ebenso Schweigen bewahrst wie auch hinsichtlich
+des Ursprungs meines Fluggerätes. Dein Schweigen wird von grosser Bedeutung sein, denn wenn du in der Welt
+namentlich und durch den Umgang mit mir und all meinen Nachfolgern bekannt werden wirst, werden viel Lug,
+Betrug und Verleumdung durch Böswillige, Scharlatane und Selbstsüchtige entstehen, die sich einerseits lügenhaft
+als Verbindungspersonen mit mir, meinen Nachfolgenden oder andererseits auch mit irgendwelchen phantastischen Herkommern von anderen Welten (Anm. Ptaah: Ausserirdischen) kundtun, die von ihnen listig erfunden
+werden. Das ist der Grund dafür, dass du während den nächsten Jahrzehnten unsere Bezeichnung ‹Plejaren› nicht
+nennen, sondern in deinen Reden und schriftlichen Veröffentlichungen nur die Bezeichnung ‹Plejaden› nennen
+darfst, die sich auf das Gefüge von Sternen in dieser Himmelsräumlichkeit (Anm. Ptaah: Universum) bezieht, in
+der auch die Erde um die Sonne kreist. Dabei handelt es sich um noch junge und unbelebte Sternengebilde, die
+auf der Erde auch Atlantiden, Atlantiaden, Siebengestirn, Sieben Schwestern und Gluckhenne genannt werden
+(Anm. Ptaah: M45) und die Teil des galaktischen Systems dieser Himmelsräumlichkeit sind, das die Erden bewohner Milchstrasse nennen. Wenn du anstatt von ‹Plejaren› von ‹Plejaden› sprechen und schreiben wirst,
+dann werden sich Lügner, Betrüger und Verleumder selbst entlarven, weil ihre Behauptungen, mit Wesen von den
+‹Plejaden› oder mit anderen Wesen anderer fremder Welten in Verbindung zu stehen, unhaltbar werden, obwohl
+sie von deinen Widersachern erst unbedacht als sogenannte ‹wahre Kontaktler› bezeichnet werden. Jene aber,
+welche lügen werden, dass sie mit uns Plejaren in direkter oder indirekter Verbindung stehen würden, werden
+dann durch dich der Lüge überführt, wenn meine Nachfolgenden dir auftragen, zur gegebenen Zeit unsere wahre
+Herkunft zu nennen, nämlich die Sternengebilde der ‹Plejaren›, gemäss denen wir uns selbst auch ‹Plejaren› nennen.
+Und unsere Geräumigkeit existiert weit jenseits der ‹Plejaden› dieser gegenwärtigen Himmelsräumlichkeit. Die
+Lügen, Betrügereien und Verleumdungen durch viele Böswillige, Scharlatane und Selbstsüchtige rund um die
+Welt werden sich schon in 7 (sieben) Jahren und damit im Jahr 1952 ergeben, wenn du meinen Weisungen gefolgt
+
+
+-----
+
+sein und zusammen mit Pfarrer Zimmermann in drei Jahren ein Schreiben an verschiedene Medien, Militärs und
+Regierende in den Vereinigten Staaten von Amerika und der Sowjetunion gesandt haben wirst. Das Schreiben in
+englischer Sprache werde ich selbst aufsetzen, das du dann Pfarrer Zimmerman zu übergeben hast, wonach er
+davon selbst eine Niederlegung (Anm. Ptaah: Abschrift) und notwendige Durchschläge (Anm. Ptaah: Vervielfältigungen) anfertigen und sie – wie er von mir bereits beauftragt ist – in grösserer Anzahl an die massgebenden
+Empfänger in den Vereinigten Staaten von Amerika und der Sowjetunion senden wird. Die notwendigen Anschriften wird er zur gegebenen Zeit finden, wobei du und er in dieser Sache jedoch zum Schweigen angehalten
+sind. Dies wird zu tun sein, um die wichtigen Leute der Obrigkeiten und der Militärkräfte zu informieren, worum
+es sich bezüglich all den ihnen unbekannten Fluggeräten handelte und weiterhin handelt, die schon zu früherer
+und auch während der Weltkriegszeit rund um die Welt beobachtet wurden, die ‹Foo Fighter› genannt werden,
+zukünftig sind (Anm. Ptaah: aus der Zukunft) und auch von fremden Welten stammen, die aber auch weiterhin
+in allen kommenden Zeiten in Erscheinung treten werden. Dies wird bereits 1952 in den Vereinigten Staaten von
+Amerika dazu führen, dass durch Böswilligkeit, Scharlatanerie und Selbstsüchtigkeit die ersten listigen Lügen,
+Betrügereien und Verleumdungen hinsichtlich angeblicher Verbindungen von Erdenbewohnern mit Wesen und
+Fluggeräten von der Venus und aus anderen fremden Welten weltweit verbreitet werden. Und das wird über viele
+Jahrzehnte bis ins 3. Jahrtausend in dieser Weise weitergehen und so bleiben, wobei gegenteilig deine wirkliche
+Verbindung mit mir und den mir Nachfolgenden von Widersachern schändlich missbraucht und du rund um
+die Welt der Lüge, des Betrugs und der Scharlatanerie bezichtigt werden und auch tätlich angegriffen und mit
+Anschlägen gegen dein Leben zu rechnen haben wirst. Selbst aus deinen eigenen Reihen – denn du wirst eine
+Gemeinschaft mit vielen Mitarbeitenden gründen – werden sich durch langjährige Vertraute und gar aus deiner
+eigenen Familie bösartige oder durch Dummheit, Hass, Eigennützigkeit, Eigenliebe, Egoismus, unerfüllbarer
+Herrschsucht sowie aus Selbstherrlichkeit, Unbedachtheit und falsche Vertrauensseligkeit geprägte Verrätereien
+gegen dich und deine Arbeit ergeben. Von Hass Befallene, Neider, sonstige bösgesinnte Widersacher, religiöse
+Glaubensverirrte sowie Medien werden weltweit eine arglistige, niederträchtige und gegen dich und deine Verbindung mit mir und meinen Nachfolgenden gerichtete verleumdende und auseinandersetzende Debatte und
+einen Meinungsstreit auslösen …, was dir jedoch viel Widerstandskraft abnötigen wird, um deine Würde und
+Ehre zu wahren und zu behalten, deiner Wege zu gehen und dich an die sittliche Ordnung zu halten. Und um
+dich in dieser Weise zu stärken, werde ich dich aus Sicht der Sittenhaftigkeit, Tugenden und Moral belehren, wie
+dies nach meinem Weggehen eine weibliche Person tun und dich dann auch dieserart unterrichten wird. Dadurch
+wirst du auch lernen, hinsichtlich Beziehungen und dem Umgang … Daher wird es dann sein, dass du einem
+solchen Ansinnen und Drängen ausweichst … kein Verständnis entgegengebracht wird. Du wirst dabei aber auch
+viel Leid und Trauer erfahren, wenn du als noch junger Mann … wonach es sich dann noch ereignen wird, dass
+du auch in einem fremden Land von einem schweren Unglück ereilt und deinen linken Arm einbüssen wirst. Danach kommt die Zeit, da du dich in einem anderen fremden Land mit einem …
+Doch all das muss geschehen, damit du auch Ausdauer und Widerstand gegen viel Böses, unzählige Angriffigkeiten, Beschimpfungen, Lügen und Verleumdungen lernst, denen du durch gehässige, arglistige, hinterhältige,
+heimtückische, doppelzüngige, bösartige, böswillige, niederträchtige, verschlagene, verlogene und missgünstige
+Widersacher in aller Welt ausgesetzt sein wirst, wenn du deine Arbeit in offener Weise beginnst, ausübst und in
+die Welt hinausträgst. Du bedarfst also einer sehr starken Widerstands- und Willenskraft, weil du masslosen Angriffigkeiten gegen deine Ehre, Redlichkeit und Würde ausgesetzt sein wirst, die auch Angriffe gegen dein Leben
+herbeiführen werden. Daher hast du sehr viel zu lernen, auch hinsichtlich der Ausbildung einer empfindsamen
+Sinneswahrnehmung, durch die du bei Gefahr warnende innere Regungen (Anm. Ptaah: Schwingungsimpulse)
+wahrnehmen und dich durch entsprechende Verhaltensweise vor Schaden zu schützen vermögen wirst. Doch
+auch vielerlei anderen Faktoren wirst du während vielen Jahren deines Lebens ausgesetzt sein, folglich du lernen
+musst, gegen alles zu bestehen und stark und fähig zu werden. Und nur dann, wenn du alles lernst, wirst du deine
+schwere Aufgabe zu erfüllen und all die böswilligen Angriffe in Form von nörgelnden und missbilligenden Kritikern
+zu parieren vermögen. Weiter wirst du dadurch auch lernen, alle auf dich zukommenden und gegen dich gerichteten
+unzähligen lügenhaften, unhaltbaren und verleumdenden Vorwürfe, Feindseligkeiten, Beleidigungen, Anfeindungen,Ausfälligkeiten und auch alle gegen dein Leben, deine Ehre, Würde, Unbescholtenheit, Vertrauenswürdigkeit
+und Anständigkeit aufkommenden Angriffe und Feindseligkeiten zu übergehen (Anm. Ptaah: ignorieren). Also
+wirst du von mir auch unterrichtet und belehrt, dich bedacht folgerichtig und korrekt zu verhalten, wobei sehr
+oft Schweigen die beste Waffe gegen bitterbösen Rufmord und Verunglimpfungen sein wird, wobei du dich auch
+bei deiner Arbeit gesamthaft im Hintergrund zu halten haben wirst und nicht ein Öffentlichkeitssinnen (Anm.
+Ptaah: Sinnen nach öffentlichem Auftreten) an den Tag legen darfst. In Hinsicht auf alles oft sehr Schwerwiegende,
+
+
+-----
+
+das du in deinem Leben erfahren und erleben wirst, habe ich dich während den nächsten Jahren darauf vorzubereiten und zu belehren, damit du tatsächlich auch deine Lebensfreude und Lebenswürde weiter entwickeln, sie
+niemals mehr verlieren und auch nie verzagen wirst. Und diese Fähigkeiten wirst du benötigen, um sie auch an
+viele Menschen weitergeben zu können, die deiner Hilfe bedürfen werden, weil sie ihren Lebenssinn verlieren,
+doch durch deine Hilfe ihn und ihre Lebenszuversicht wieder finden. Doch nun habe ich weiter zu erklären, was
+sich später in deinem Leben ereignen wird, wenn du deine Arbeit durch Schrift und Wort schon lange in vielen
+Ländern verbreitet haben wirst, wozu ich dir zu eröffnen habe, … du am Ort, wo du mit Gleichgesinnten eine
+Begegnungsstätte (Anm. Ptaah: Center) aufbauen wirst, …
+Noch mehr als all das, was ich dir bisher kundgetan habe, und alles, was ich jetzt und auch später noch weiter zu
+erklären habe, will ich heute nur kurz erwähnen, denn alle umfänglichen Zusammenhänge der noch zu nennenden
+und darzulegenden Erklärungen hinsichtlich vieler Dinge, Ereignisse und Vorkommnisse usw., die in deinem
+Leben auf dich zukommen und weitreichende sowie dich sehr tief prägende Geschehen sein werden, sind derart
+umfangreich, ungewöhnlich und oft tragisch, dass ich sie dir zu einem späteren Zeitpunkt noch besonders ausführlich erklären muss, weil du nur durch gesamthafte Ausführungen aller Dinge alles auch wirklich verstehen
+kannst und in jeder notwendigen Weise lernend zu verkraften vermagst. Ausserdem muss ich erklären, dass die elf
+Jahre Zeit, die du mit mir in dieser Gegenwartsebene lehrsam verbringen wirst, niemals ausreichend sein werden,
+um alles zu lernen, damit du für alles Erforderliche in deinem Leben und für deine grosse Aufgabe gewappnet sein
+kannst. Also müssen wir die Zeit um Jahre verlängern, was auch im Zusammenhang mit meiner Nachfolge so
+sein wird, die dich nach meinem Weggehen in ihre Obhut nehmen wird. Das aber kann nur dadurch geschehen,
+indem wir die Zeit steuern und verschieben (Anm. Ptaah: manipulieren) und diese ausserhalb der Gegenwarts ebene in Ebenen der Vergangenheit oder Zukunft nutzen, wie ich dies seit 1942 schon mehrfach mit dir durchgeführt und dich verschiedene Länder, viel Bedeutsames, Interessantes, Lehrreiches und auch mehrere Kriegsschauplätze und Kriegsgeschehen usw. habe beobachten und sehen lassen. Dadurch wirst du um die ganzen
+Zeiten – die Jahre sein werden –, natürlich älter, was sich jedoch nicht stark auf deinen Körper auswirken wird,
+weil du trotz deiner zusätzlichen Zeiten in anderen Ebenen anderer Himmelsräumlichkeiten (Anm. Ptaah: andere
+Dimensionen resp. Raum-Zeit-Gefüge) wohl altern, jedoch deine Jugendhaftigkeit bis in dein Alter bewahren wirst.
+Gleichermassen wird es so sein, wenn du mit den mir in Verpflichtung Nachfolgenden für längere oder kürzere
+Zeiten ausserhalb der Gegenwartsebene in Ebenen der Vergangenheit oder Zukunft dein Lernen fortführen wirst.
+Und alles, was bisher in dieser Weise getan wurde, war unumgänglich für dein Lernen, deine persönliche Entwicklung und für deine zukünftige schwere Arbeit, die sehr viel mehr an verschiedenen Bedingungen, Eigenschaften, Problemen, Sachgebieten, Umständen und Verknüpfung usw. aufweisen, als dies üblicherweise ein
+Mensch dieser Welt und in deinem Alter erlernen, verstehen und auch verkraften könnte. Selbst für die ganz grosse
+Masse Menschheit dieser Erde wäre es unmöglich, all das zu lernen, zu erleben und zu erfahren sowie vernünftig
+zu verarbeiten und dabei nicht irr zu werden, wie du das tun musst. Doch all das ist unerbittlich notwendig für
+dich, weshalb wir auch weiterhin die Zeiten der Vergangenheit und Zukunft nutzen müssen, denn nur dadurch
+gewinnen wir lange Zeiten (Anm. Ptaah: weitere Jahre) genug, die wir für dein Lernen nutzen können. Also muss
+es sein, dass ich dich aus der Gegenwart für mehr oder für weniger oder längere Zeiten wegführe, die Tage, Wochen
+oder Monate sein können, während denen du streng zu lernen hast, wonach ich dich dann zum selben Zeitpunkt
+in dieselbe Gegenwartszeit zurückbringe, aus der ich dich weggeholt habe. In dieser Weise wirst du weder von
+deinen Eltern und Geschwistern, wie auch nicht von jemandem anderen und auch nicht in der Schule vermisst
+werden, denn durch die Steuerung und Verschiebung der Zeit (Anm. Ptaah: Zeitmanipulation) wird es sein, dass
+du in der Gegenwartsebene und zu der hier herrschenden Zeit immer gegenwärtig sein wirst. Und dies muss so
+sein, weil allein die elf Jahre in dieser Gegenwartsebene niemals ausreichen würden, dich all dessen zu belehren,
+was du zu erlernen hast. Du wirst natürlich auch um die Zeiten altern, während denen du ausserhalb der hier auf
+dieser Welt herrschenden Gegenwartszeit in anderen Zeiträumen lernst, doch wird es sein, dass du trotzdem bis
+ins Alter jugendhaft bleiben wirst. Damit habe ich die ersten notwendigen Erklärungen gegeben, doch weiter muss
+ich dich belehren, dass du in den kommenden Zeiten die Erdenmenschheit vor weiteren drohenden und grossen
+Gefahren warnen musst, die auch noch nach dem Ende dieses Krieges im kommenden Monat Mai die Welt und
+die Menschheit bedrohen werden. Die Macht- und Herrschgier, die Rachsucht und abscheuliche Verantwortungslosigkeit der Regierungsherrschenden und der Militärmachthaber der Vereinigten Staaten von Amerika werden
+zwei grosse Städte in Japan durch neuartige Bomben mit ungeheurer Vernichtungs- und Zerstörungskraft vollständig in Trümmer legen und verwüsten. Dabei werden Hunderttausende von Menschen getötet, wodurch dann
+dieser noch immer weiter tobende Weltkrieg auch im Fernen Osten erst wirklich sein Ende finden wird. Auch wenn
+du heute noch nicht verstehst, worum es sich bei einer solchen Bombe handelt, die nebst anderen Bezeichnungen
+auch Atombombe genannt wird, will ich dir kurz erklären, worum es sich handelt. Später will ich dich darüber
+
+
+-----
+
+weiter unterrichten, wobei ich dir aber heute erklären will, dass diese Bomben auf einem Prinzip der Atomspaltung
+beruhen. Das bedeutet, dass das Atom gespalten wird, das als das ‹Winzigste› und eben als winzigstes Teilchen
+gilt, das angeblich nicht gespalten werden kann, wie seit alters her missgelehrt wurde. Tatsächlich entspricht aber
+diese Annahme nicht der Wirklichkeit, weil das Atom spaltbar ist, unter dem weitere sechs Teilchenebenen den
+natürlichen Ebenen zugeordnet sind. Der Prozess der Atomspaltung wird auch als Kernspaltung bezeichnet und
+gehört zu einem Prozess der Kernphysik, bei dem ein Atomkern unter einer enormen Energiefreisetzung in zwei
+oder mehr Bestandteile getrennt resp. zerlegt wird. Wird eine Zündung einer Atombombe herbeigeführt, dann
+findet eine unkontrollierte Kettenreaktion statt, wobei die Anzahl der Kernspaltungen rasend schnell und in gewaltig
+anschwellender Zahl ansteigt, wodurch unvorstellbare Energiemengen in einer Explosion frei werden und alles
+töten, zerstören und vernichten, was in ihren Explosionsbereich und Zerstörungswellenbereich fällt. Das ist das,
+was ich dir hinsichtlich dieser gefährlichen Bombe vorerst zu erklären habe, wobei ich dich von meinem Fluggerät
+aus das erste dieser gefährlichen und tödlichen Geschehen werde beobachten lassen. Doch zurück zum noch immer
+anhaltenden Weltkrieg, der seit 1939 andauert und erst in diesem Jahr 1945 im Monat Mai in Europa sein schreckliches Ende finden wird, während im Fernen Osten dies jedoch erst im August sein wird, nachdem amerikanische
+Atombomben zwei japanische Städte in verbrecherischer Weise zerstört und Hunderttausende Menschen damit
+zu Tode gebracht haben werden. Dieser Weltkrieg, und das muss ich auch erklären, ist nicht der zweite global
+geführte Krieg, wie behauptet wird, sondern der dritte, denn der erste wurde schon in den Jahren 1756 bis 1763
+geführt. An diesem Weltkrieg sind nun aber sämtliche Grossmächte und viele andere Länder des 20. Jahrhunderts
+beteiligt, und dieses Geschehen stellt den bislang grössten militärischen Konflikt in der Geschichte der Menschheit
+dieser Welt dar. Doch das Ende dieses Krieges wird nicht auch das Ende der Feindschaften sein, denn es wird auch
+nach diesem noch herrschenden Krieg wie seit alters her weitergehen. Die Vereinigten Staaten von Amerika werden
+sich nach dem Zusammenbruch des Nazireiches in ihrer Selbstherrlichkeit in der Welt als alleinige Sieger verkünden
+lassen und ihre Feindschaft gegen die Sowjetunion weiter aufrechterhalten. Dadurch wird ein sehr gefährlicher
+Zustand entstehen, der als ‹Kalter Krieg› bezeichnet werden wird, durch den rund 50 Jahre lang ständig ein neuer
+Krieg der Grossmächte und ein weiterer Einsatz von Atombomben drohen wird, und zwar auch von seiten der
+Sowjetunion, wo infolge Spionage ebenfalls Atomwaffen entwickelt werden, wie das später auch in mehreren
+anderen Ländern der Fall sein wird. Auch werden bis weit ins 3. Jahrtausend hinein rund um die Welt Jahr für Jahr
+ständig viele Dutzende Aufstände, Aufrührereien, Revolutionen, Bürgerkriege, Völkerkriege, Hass und Regierungsstürze usw. sein, wobei – wie seit jeher – zu 80 Prozent immer hinterlistige Intrigen, Machenschaften, Ein mischungen, Geheimdienstaktionen und Gewaltakte der Vereinigten Staaten von Amerika dazu führen werden.
+Und wie seit alters her werden sie sich auch weiterhin über die Selbstverwaltung und Selbständigkeit (Anm.
+Ptaah: Souveränität) fremder Länder hinwegsetzen, sich ungefragt selbstherrlich und machtbesessen in deren
+Angelegenheiten einmischen und dabei auch nicht vor politisch bedingten Meuchelmorden und böser Waffengewalt zurückschrecken. Dadurch wird die Zukunft derart sein, dass grosse Teile der ganzen Welt immer mehr
+durch die Macht Amerikas beherrscht werden und die amerikanische Feindschaft gegen die Sowjetunion aufrecht erhalten wird, was einerseits seit jeher durch eine feige Angst der Mächtigen der Vereinigten Staaten von Amerika
+geprägt ist, anderseits jedoch durch deren Machtgier, die Sowjetunion unter amerikanische Herrschaft zu bringen.
+Und um die Feindschaft gegen die Sowjetunion in der amerikanischen Bevölkerung und bei den amerikafreundlichen Ländern zu fördern – wie das später auch gegen das neu entstehende Russland betrieben werden wird –,
+werden die regierenden Machthaber der Vereinigten Staaten von Amerika alles erdenklich Mögliche tun, um die
+Waffenindustrie voranzutreiben. Und dies wird darum getan werden, um dann die Länder – die durch amerikanisch
+geschürte Feindschaftspropaganda gegen die Sowjetunion und später gegen Russland aufgewiegelt werden – mit
+grossen Massen immer modernerer Kriegswaffen und sonstigem Kriegsmaterial zu versorgen, und zwar im Sinn,
+dass diese gegen die Sowjetunion und später gegen Russland – und spekulierend unter Umständen auch gegen
+China – eingesetzt werden sollen, wenn ein durch die Vereinigten Staaten von Amerika provozierter weiterer
+Weltkrieg ausgelöst werden sollte. Dieserart existieren bei der amerikanischen Regierungselite bereits frühe und
+sehr geheime Vorkehrungspläne, die in die Zukunft weitergeführt werden sollen, wenn der noch anhaltende Weltkrieg durch ein grauenhaftes Morden und Zerstörungsszenario mit sehr gefährlichen Bombeneinsätzen in Japan
+im kommenden Monat August beendet werden wird, wodurch jedoch noch sehr viel grössere Kriegsgefahren,
+Angst und Schrecken bei der ganzen Weltbevölkerung ausgelöst werden, als dies bisher jemals der Fall war. Dies
+wird auch dann weiter so bleiben und sich ins 3. Jahrtausend hineintragen, wenn die Sowjetunion in nahezu 50
+Jahren ihre kommunistische Macht einbüsst und verliert, dann auch gesamtwirtschaftlich ins Abseits verfällt und
+als ‹Fortsetzerstaat› der Sowjetunion in eine ‹Russländische Föderation› umgeformt wird. Und diese Gefahr und
+die Angst und der Schrecken der ganzen Menschheit vor einem weiteren globalen Krieg, werden sich im 3. Jahrtausend durch die Schuld der Vereinigten Staaten von Amerika neuerlich ergeben, weil sie die feindschaftliche
+
+
+-----
+
+Hetzerei auch gegen das neue Russland betreiben und amerikafreundliche Länder zur Russlandfeindschaft aufstacheln undantreiben werden. Das wird andererseits aber auch dazu führen, dass in anderen Ländern Feindschaften
+gegen dieVereinigten Staaten von Amerika entstehen, die durch amerikanische Einmischungen in irgendwelchen
+Formen drangsaliert und daher zu gefährlichen Erzfeinden werden. Zur gleichen Zeit, wenn die Sowjetunion
+ihrem Ende entgegengeht und ein neues Russland entstehen wird, wird sich in Europa eine Unions-Diktatur
+(Anm. Ptaah: Europa-Unions-Diktatur) bilden und viele europäische Länder an sich binden, deren Staatsführende
+und die Bevölkerungen sich unbedacht, gutgläubig, töricht und vertrauensselig in die sich hinterhältig sowie
+lügenhaft friedlich, freiheitlich und völkerverbindend gebende und sich ‹Europäische Union› nennende – jedoch
+wirkliche Europa-Unions-Diktatur – einbinden lassen und von dieser durch grosse finanzielle Jahresbeiträge ausgenutzt werden. Doch nach Jahren wird sich die Wahrheit erweisen, dass alles nur Lug und Trug sein und das
+wahre Wesen der Unions-Diktatur durchbrechen und innerer Unfrieden entstehen wird – wenn die Diktatur von
+den Mitgliedsstaaten auch hohe Steuern für unsinnige Dinge fordern wird, wie z.B. für den notwendigen Gebrauch
+von Kunststoffen und allerlei anderen Materialien, Nutzgegenständen und Gebrauchswaren usw., um die Diktatur
+zu bereichern –, wenn die Staatsführenden und Bevölkerungen aufbegehren und sich wider die unterjochenden
+Machenschaften der Unions-Diktatoren auflehnen werden, wodurch dann im einen oder anderen Fall auch Ausschlüsse aus dieser Diktatur in Betracht gezogen werden. Und es wird auch durch die Unvernunft gewisser kurzdenkender, unerfahrener, unkluger, unkritischer und unbedarfter Regierender und bezüglich der Beurteilung von
+Fakten unfähiger Teil der Schweizerbevölkerung werden, dass auch diese in die Fänge der Unions-Diktatur gerät
+und diese ständig und immer mehr Repressionen aufbringt und die Schweiz zwingt, sich mit Verträgen zu Gunsten
+der Unions-Diktatur immer mehr zu verpflichten. Das wird die Schweiz immer mehr bösartig und mit Zwangsvorschriften immer enger unter die herrschsüchtige Fuchtel dieser Diktatur treiben, wodurch die Schweiz samt
+ihrer Bevölkerung viele Freiheiten einbüssen wird, wodurch dann gezwungenermassen nur noch nach den Gesetzen, Richtlinien und vertraglichen Verordnungen der Unions-Diktatur gehandelt werden darf, und letztendlich auch die Neutralität in Frage gestellt werden wird. Und es wird sein, dass verantwortliche Regierende der
+Schweiz, die mit den Herrschenden dieser Unions-Diktatur Verhandlungen betreiben werden, sich verantwortungslos den unfreiheitlichen und diktatorischen Forderungen vertraglich beugen und damit dann die eigene Heimat
+und die Bevölkerung immer mehr in eine Mitgliedschaft mit der Unions-Diktatur treiben. Weiter wird sein, dass
+die Mitgliedsstaaten dieser Diktatur mit grossen finanziellen Diktatur-Beiträgen unerhört ausgenutzt werden,
+wie im Laufe der Zeit auch die Schweiz finanziell ausgebeutet werden wird. Dies, weil durch den Unverstand, die
+Unvernunft und Verantwortungslosigkeit führender und zuständiger Regierender – sowie jener Teil des Volkes,
+der in Unbedarftheit dahinleben und die Unions-Diktatur befürworten wird – die Schweiz hohe Millionen- und
+Milliardenbeträge an die Unions-Diktatur bezahlen wird, um damit den Zusammenhalt zwischen der Diktatur
+und den einzelnen Mitgliedsstaaten aufrechtzuerhalten, zu fördern und zu gewährleisten (Anm. Ptaah: Kohäsionszahlungen). Dadurch wird die Schweiz zu einem Diktatur-Hörigkeits- und belasteten Finanz-Vasallenstaat der
+Unions-Diktatur werden, wodurch das Land samt seiner Bevölkerung viele Freiheiten einbüssen wird, und wobei
+dann gezwungenermassen nur noch nach den Gesetzen, Richtlinien und vertraglichen Verordnungen der
+Unions-Diktatur gehandelt werden darf, und letztendlich auch die Neutralität in Frage gestellt werden wird. Und
+es wird sein, dass verantwortliche Regierende der Schweiz, die mit den Herrschenden dieser Unions-Diktatur
+Verhandlungen betreiben werden, sich verantwortungslos den unfreiheitlichen und diktatorischen Forderungen
+vertraglich beugen und damit dann die eigene Heimat und die Bevölkerung immer mehr in eine Mitgliedschaft
+mit dieser Unions-Diktatur treiben. Weiter werden die Mitgliedsstaaten dieser Diktatur durch grosse finanzielle
+Beiträge unerhört ausgenutzt werden. Das wird auch auf die Schweiz zutreffen, die durch den Unverstand, die
+Unvernunft und Verantwortungslosigkeit führender und zuständiger Regierender sowie jenes Teiles des Volkes,
+der zu jener Zeit in Unbedarftheit dahinleben und die Unions-Diktatur befürworten wird, finanziell ausgebeutet
+wird, wenn die Schweiz hohe Millionen- und Milliardenbeträge an die Unions-Diktatur bezahlen wird, um damit
+den Zusammenhalt zwischen der Diktatur und den einzelnen Mitgliedsstaaten aufrechtzuerhalten, zu fördern
+und zu gewährleisten (Anm. Ptaah: Kohäsionszahlungen). Nur dann, wenn das Schweizervolk diesem Tun jener
+verantwortlichen jedoch verantwortungslosen Regierenden durch Volksbeschlüsse entgegenwirkt, kann verhindert
+werden, dass die Schweiz ein Vasallenstaat dieser Unions-Diktatur werden wird. So wird sich, wie in der ganzen
+Welt, ein unfriedlicher Zustand zwischen dieser Diktatur und der Schweiz entwickeln, wie auch in der ganzen
+Welt kein wirklicher Frieden sein wird, weil wider allen Verstand und alle Vernunft im bisher existierenden altherkömmlichen Wahn der Machtbesessenen und der Masse der mitlaufenden Unbedarften in den Völkern weitergemacht wird. Alles wird also wie seit alters her weitergehen und noch viel schlimmere Formen annehmen, weil
+sehr viele Menschen dieser Welt unaufhaltsam und je länger, je schrecklicher verrohen, untereinander beziehungsloser, gleichgültiger und gewalttätiger werden, was sich als zwangsläufige Folge der immer schneller wachsenden
+
+
+-----
+
+Weltbevölkerung ergeben wird, durch die ungeheure Probleme vielzähliger Art entstehen, die schon zur Zeit des
+nächsten Jahrtausendwechsels nicht mehr kontrolliert werden können. Es werden sich daraus auch Völkerfluchten
+mit Flüchtlingsströmen ergeben, wie sich auch Brutalität, Gewissenlosigkeit und weitumfassende Gewalttätigkeiten, Morde und Totschlägerei, stetig wachsende Kriminalität und überhandnehmendes Verbrechertum herausbilden, wie auch Unfrieden, vielfältige Morde und Gewaltakte in den Familien. Auch entstehen in zukünftiger Zeit
+äusserst bösartige religiöse Verirrungen, die zwar schon seit Menschengedenken immer wieder aufgetreten sind
+und zu fanatischen Glaubenskriegen geführt haben, die aber in den kommenden Zeiten auch weiterhin neuerlich
+ausbrechen und derart unmenschliche, brutale und mörderische Formen annehmen, die schlimmer sein werden
+als alle Brutalität und Unmenschlichkeit, wie alles in diesem noch herrschenden globalen Krieg aus dem NaziWahn hervorgegangen ist. Auch neuerlich werden schlimmer Rassenhass und Rachefeldzüge wider Andersgläubige losbrechen, wie dies schon seit alters her geschehen ist, wobei in kommenden Zeiten aber vermehrt blut rünstige und meist religions- und damit glaubensbedingte Terrororganisationen weltweit Hunderttausende von
+Menschen bestialisch foltern und ermorden werden, wie dies schon seit Jahrtausenden getan wird, als diese Entartungen aus Glaubenswahn und daraus resultierenden Glaubensverfolgungen Andersgläubiger entstanden
+sind, und die auch in Zukunft weiter fortgeführt werden. Jede Religion, wie auch jede Gottheit, entspricht einem
+Glaubensblendwerk, das nicht von einem Gott, sondern – wie dieser selbst – eine von Menschen ausgedachte
+vernunftwidrige Stegreiferfindung ist, hervorgegangen oder neu entstehend durch Einbildung, durch ein Hirngespinst, Wünsche und ein Bedürfnis nach etwas Höherem. Jeder Gott und jede Religion entspricht aber nicht
+einer das Böse verhütenden Macht, die das Gute schützt, sondern Gottheiten und Religionen sind die Beschützer
+und Bewahrer des Bösen, das alle Übel beschützt und stetig weiter fördert, nährt und alle Schrecken, Kriege, Tode,
+Zerstörungen und jegliches Verderben weiter vorantreibt. Alles, was Gottheiten und Gläubigkeits-Religionen entspricht, und alles daraus Hervorgehende entspricht grundlegenden Irrannahmen, die den Verstand und die Vernunft der Menschen blenden und verwirren, sie in Wahnvorstellungen verfallen lassen und im Glauben hörig
+und von ihm abhängig machen. Dadurch schädigt jede Religion und jeder damit verbundene Glaube – und also
+jeder Gottglaube überhaupt – das klare Denkvermögen des Menschen, wodurch sein Selbstbewusstsein, Selbstgefühl und das verstandesklare und vernunftbedingte Selbstbestimmen und Selbstverantwortlichsein abgestumpft,
+unterdrückt und schluss endlich ausgemerzt und vernichtet wird. Die Menschen sind aber keine abstrakte Wesen,
+die ausserhalb der Welt leben, folglich sie mit dieser und mit allem darin Existierenden leben müssen, denn die
+Welt und das auf ihr gegebene Natursystem mit all seinem mannigfaltigen Pflanzenreich und all den vielfältigen
+gehenden, fliegenden, kriechenden, schleichenden und schwimmenden Lebensformen ist ihr Lebensbereich. Und
+diese Welt ist die wahre Wirklichkeit, wie sie durch die Schöpfung erschaffen wurde, die nicht ein von Menschen
+erdachter Gott war oder ist, sondern das Urewige, die gesamte Unendlichkeit des Himmelsraumes (Anm. Ptaah:
+Universum). Und diese Schöpfung produzierte und produziert keine Religion, keinen Gott und keinen Glauben,
+sondern nur Wirklichkeit, Wahrheit, Liebe und Gewissheit, während von den Menschen in ihrem Wahn gegenteilig ein verkehrtes Schöpfungsverstehen, ein Gottglaube und wirre Religionen geschaffen wurden, weil sie verkehrte und wirre Denkweisen hatten und weiterhin haben. Religion und Gottglaube sind die allgemeinen Wahnvorstellungen der Menschen dieser Welt, damit aber auch ihr allgemeiner falscher Trost für ihre Nöte, ihr Elend
+und ihre Leiden, wie sie aber auch ihr Rechtfertigungsgrund für alles Böse und alle Übel sind, die sie tun, wozu
+auch Kriege, Morde, jedes Töten, Foltern, Zerstören und Vergewaltigen, völlige Vernichten, Ausrotten und alle
+Formen jeder möglichenGewaltausübung gehören. Dies ist in Wahrheit die von den Menschen ausgedachte fürchterliche, grauenvolle und schreckliche Verwirklichung ihres in sich selbst erschaffenen Bösen und ihres erschöpfend entarteten Wesens, woraus sie keine wahre Wirklichkeit und Wahrheit mehr zu erkennen vermögen und
+Verstand und Vernunft nur noch anflugsweise besitzen, weil sie sich nicht selbst als höchstes Wesen erkennen und
+sich im Glaubenswahn an einen von ihnen erfundenen und nicht existierenden Gott selbst aufgegeben haben.
+Ein Kampf gegen die Religion und den menschenseits erdachten Scheingott ist durch die wirren Gottgläubigen den
+Menschen unmöglich geworden, gegen ihre Wirrnis und ihren Religions- und Glaubenswahn anzukämpfen, weil
+ein solcher Kampf mittelbar gegen sich selbst gerichtet wäre, weil ihr Wahnglaube und ihre Religion sie beherrschen, wogegen sie sich nicht zur Wehr zu setzen vermögen. Ihr Verstand und ihre Vernunft sind derart verrottet,
+dass sie keine oder kaum noch eine Möglichkeit finden können, das restlich noch Bestehende von wahnfreiem
+Verstand und klarer Vernunft zu retten. Alles entspricht einem religiösen und gottgläubigen Elend in einem Ausdruck des wirklichen Elendes, das in einer Weise gegen Verstand und Vernunft wirkt, dass dieses bösartige Elend
+des Glaubens an Gott und Religion immer weiter und tiefer greift und die Gläubigen in immer entartetere Verkommenheit treibt, wodurch sie immer armseligere und bedrängtere seufzende Kreaturen werden. Entartete
+Kreaturen, die selbstsüchtig und egoistisch nur noch sich selbst und ihre Vorteile sehen, während der Nächste
+neben ihnen immer mehr zum Feind wird, der geharmt und getötet werden muss. Jede Religion und jeder damit
+
+
+-----
+
+verbundene Gottglaube ist bares Gift für die Selbstverwirklichung der Menschen, und zudem schüren Religion
+und Glaube ein illusorisches, jämmerliches Glück und eine falsche Sicherheit und Zufriedenheit, die jedoch sehr
+fern von jeder Wirklichkeit sind. Doch mit all diesen Entartungen wird nicht genug sein, denn alles wird sich je
+länger, je mehr steigern, weit ins 3. Jahrtausend hineingetragen und ständig bösartiger werden, denn diese Verkommenheiten, die als Ausgeburten alles Bösen und aller Übel menschlichen Sinnens entartend ausgedacht und
+ausgeführt werden, werden die Menschheit und die Welt an den Rand der Ausrottung und völligen Zerstörung
+bringen. Und dies wird so werden, wenn nicht darauf gehört und nicht nach dem gehandelt werden wird, was
+du durch deine Arbeit die Menschheit lehren und ihr auch prophetisch und voraussagend verkünden wirst. Und
+zum Überhandnehmen all dieser und noch vieler gleichgerichteter erdenmenschlicher Verkommenheiten wird
+auch die Geld- und Profitsucht hinzukommen, die völlig unkontrollierbar überhandnehmen wird. Dazu werden
+auch die Anwendungen tödlicher Gifte gehören, die in das Natursystem ausgebracht werden, um das Nahrungsmittelwachstum und grössere Ernten zu fördern und um Pflanzenschädlinge zu töten und Unkrautarten im
+Wachstum zu hemmen oder zu vernichten, wobei in jeder Beziehung alles Diesbezügliche jedoch nur der Profit gier gelten wird. Dabei werden aber auch viele nützliche und gar lebensnotwendige Insekten, wie auch allerlei
+Säugetiere und andere für die Funktion des Natursystems wichtige Lebewesen sowie Pflanzen vergiftet, getötet
+und ausgerottet, wie aber auch die Menschen durch die Gifte erkranken, leiden und sterben werden, weil alle die
+in das Natursystem ausgebrachten Giftstoffe sich in den Nahrungspflanzen, dem Boden, vielen Lebewesen, wie aber
+auch in den Gewässern, Ernteprodukten und auch in jenen Schlachttieren ablagern werden, die auch den
+Menschen als Nahrungsmittel dienen. Soweit habe ich dir heute Notwendiges zu erklären, doch werde ich dich
+diesbezüglich noch mehrmals weiter unterrichten, weil noch sehr viele Fakten und Geschehen der nächsten und
+weiteren Zukunft für dich offenzulegen sein werden.
+
+### Weltweit hörbar: Rätselhafter Brummton erstmals von Wissenschaftlern aufgenommen
+_Philipos Moustaki; Sott.net; So, 10 Dez 2017 08:36 UTC_
+Mindestens seit den 1950er Jahren versucht man die Ursache eines rätselhaften Brummtons ausfindig zu machen.
+Ein Geräusch, das Menschen auf der ganzen Welt hören. Der Ton, der auch ‹The Hum› genannt wird, beginnt
+meistens zur Dämmerung und endet bei Tagesanbruch und wird als monotones Brummen beschrieben, das die
+betroffene Bevölkerung manchmal an den Rand des Wahnsinns bringt.
+
+Die erste Studie zu diesem Thema wurde anscheinend im Jahr 1998 durchgeführt und dabei wurden einige überraschende Ergebnisse präsentiert. Eine der kuriosen ‹Eigenschaften› dieses Geräusches besteht darin, dass nicht
+alle Menschen dazu in der Lage zu sein scheinen, es wahrzunehmen. Nur etwa zwei Prozent der Menschen, die in
+einem Gebiet leben, an dem dieses angeblich tieffrequente Geräusch auftritt, können diesen Ton anscheinend
+hören, wobei dies hauptsächlich Menschen in einem Alter zwischen 55 und 70 Jahren sind. Unter diesen Umständen
+stellt sich natürlich die Frage, ob der Zeitraum, in dem dieses Geräusch vermehrt zu hören ist, uns einen Anhaltspunkt darüber liefern kann, warum er auftritt. Auch der Umstand, dass vermehrt ältere Menschen es hören, ist in
+diesem Zusammenhang interessant und sollte näher erörtert werden.
+Da das Geräusch anscheinend zu Zeiten vermehrt wahrnehmbar ist, an denen die Erdoberfläche einer stark veränderten Sonneneinstrahlung ausgesetzt ist (Übergang zwischen Tag und Nacht und Tagesanfang) könnte man
+sich fragen, ob eine elektrische Interaktion dabei eine Rolle spielt.
+In unserem neuen Buch ‹Erdveränderungen und die Mensch-Kosmos Verbindung› gehen wir auf einige interessante
+elektrische Phänomene näher ein und beschreiben unter anderem auch Geräusche, die auf der Erde anscheinend
+
+
+-----
+
+durch elektrische Ladungen und Spannungen entstehen können, entweder durch erdinnere Prozesse wie Plattentektonik und/oder durch äussere Einflüsse wie elektromagnetische Strahlungen durch Kometen, Sonneneinstrahlungen und andere kosmische Einflüsse. Einen kleinen Einblick in den Inhalt des Buches können Sie sich auch hier
+verschaffen:
+
+#### Das Elektrische Universum – Teil 29: Merkwürdige Geräusche
+Von besonderem Interesse war für uns dabei ein Phänomen, das Ähnlichkeiten mit dem oben erwähnten
+Brummton aufweist. In den letzten Jahren werden weltweit vermehrt ‹apokalyptisch› klingende Geräusche
+wahrgenommen, gehört und aufgezeichnet, die oftmals höchst seltsam und angsteinflössend klingen. Auch bei
+diesem Phänomen scheinen nicht alle Menschen dazu in der Lage zu sein, diese Geräusche bewusst wahrzunehmen. Im Buch erfahren Sie mehr darüber. Auf unserer interaktiven SOTT-Karte können Sie sich ebenfalls
+einige dieser Ereignisse anschauen.
+Aber nun zurück zu ‹The Hum›. Einem Forschungsteam unter der Leitung von Martha Deen vom Pariser
+Institut für Erdphysik ist es nun gelungen, diesen Ton aufzunehmen. Dazu hatten sie elf Monate lang die Daten
+**von 57 Seismometern ausgewertet, die am Meeresgrund des Indischen Ozeans vor Madagaskar stationiert sind.**
+Die Studie ermittelte zunächst die natürlichen Schwingungsspitzen der Erde bei mehreren Frequenzen zwischen
+2,9 und 4,5 Millihertz. Diese Schwingungen sind für den Menschen nicht hörbar, da sie etwa 10000-mal kleiner
+sind als die untere Hörschwelle des menschlichen Ohres, die 20 Hertz beträgt. Dann verglichen sie auch die
+Grössenordnung ihres beobachteten Brummsignals mit Messungen von einer Landstation in Algerien **und**
+**fanden heraus, dass beide Signale eine ähnliche Amplitude aufweisen.**
+Interessanterweise kamen sie zu dem Resultat, dass ‹The Hum› möglicherweise durch die leichte Ausdehnung
+**und Kontraktion des Planeten verursacht wird, aber für sie bleibt es weiterhin unklar, warum dies geschieht.**
+Als mögliche Ursache wird eine Theorie erwähnt, nach der Meereswellen daran möglicherweise beteiligt sind.
+Auch in Bezug auf eine mögliche Ausdehnung und Kontraktion des Planeten haben wir in unserem Buch eine
+interessante Tatsache näher erörtert, die vor Kurzem wieder bestätigt wurde und möglicherweise zu einigen
+interessanten Phänomenen auf der Erde führt. Die Erdrotation verlangsamt sich.
+
+
+**Philipos Moustaki**
+Redakteur Philipos Moustaki trat dem SOTT Team Ende 2011 bei. Während er in Deutschland lebt,
+sind ein Teil seiner Wurzeln griechisch. Sein Schwerpunkt besteht darin, das unglaubliche Wissen von
+SOTT.net der deutschsprachigen Welt näher zu bringen durch Veröffentlichungen, Bearbeitungen
+und Übersetzungen für de.SOTT.net. Wenn er nicht gerade für SOTT.net die Welt dort draussen und
+sich selbst erforscht, arbeitet er als Werkzeugmechaniker bei einem international führenden Anbieter
+für End-to-End-Lösungen für die Datenübertragung, der die anspruchsvollsten Standards für Daten,
+Ton-und Video-Anwendungen erfüllt.
+_Quelle: https://de.sott.net/article/31969-Weltweit-horbar-Ratselhafter-Brummton-erstmals-von-Wissenschaftlern-aufgenommen_
+
+#### FIGU-Informationen aus dem 223. offiziellen Kontakt vom 1. Mai 1988
+**Billy        Lieber Freund, heute habe ich wieder einige Fragen in bezug auf verschiedene Dinge, wenn du**
+genügend Zeit hast?
+
+**Quetzal:    Es liegt nichts an, das mich dringend zurückrufen würde. So bringe also deine Fragen vor.**
+
+**Billy        Du, sowie Ptaah und Semjase, ihr habt mir einmal durch eure Apparaturen die seltsamen Brumm-**
+geräusche der Erde vorgespielt, die ich leider in Natura nicht wahrnehmen kann, weil meine Hörsinne nicht dermassen sensibel sind, dass ich diese Geräusche hören könnte, was aber sehr wohl bei anderen Menschen möglich
+sein soll, wie ihr erklärt habt. Die Quellen dieser Geräusche sind sehr vielfältig, wie eure Erkenntnisse ergeben,
+und diese oder ähnliche Geräusche sollen euren Angaben gemäss auch auf anderen Welten sowie auf Asteroiden,
+Kometen, Meteoren, Sonnen und Dunkelwolken sowie bei kosmischen Nebeln und gar in jedem Schwarzen Loch
+usw. in Erscheinung treten, also nicht nur auf der Erde. Alle elektromagnetischen Wellen, wie auch die Polarlichter
+und Sonnenwinde usw., gehören zu den Geräusch-Quellen. Ihr nanntet die Geräusche ‹Sinfonie der Erde› resp.
+‹Sinfonie des Planeten› sowie ‹Sinfonie des Weltraums›, der ja gesamthaft auch in diese Geräusche eingeordnet ist,
+wie auch die Atmosphären von Planeten und Sonnen und gar alles Materielle und Immaterielle jeder Art, wozu
+du von einer ‹Sphären-Sinfonie› gesprochen hast. Diese Sinfonie resp. diese Geräusche sind bisher den irdischen
+
+
+-----
+
+Wissenschaftlern im besonderen und den Menschen im allgemeinen noch unbekannt, ausser eben den Ausnahmen
+von der Regel, eben jenen Menschen, die diese Brummgeräusche resp. ‹Sinfonie der Erde› wahrnehmen und der
+Meinung sind, dass etwas in ihrem Kopf nicht stimme und deshalb etwas nicht mit rechten Dingen zu- und hergehe. Kannst du offiziell dazu nochmals erklären, worum es sich bei diesen Brummgeräuschen eigentlich handelt,
+wenn es nicht ein Geheimnis bleiben soll?
+
+**Quetzal     Es muss kein Geheimnis bleiben, denn in etwa 10 bis 15 Jahren dürfte auch ein Teil der irdischen**
+Wissenschaft auf diese Dinge stossen. Es handelt sich dabei darum, dass jeder Planet, jeder Komet, jeder grössere
+Asteroid, Meteor und jede Sonne sowie die Nebel und Wolken im Weltraum und dieser selbst, wie auch jedes
+Schwarze Loch und alles materiell und immateriell Bestehende überhaupt, ganz bestimmte Töne und Klänge erzeugen, die wir, wie du sagtest, tatsächlich Sinfonie nennen. Es existiert im gesamten Bereich der Schöpfung resp.
+des Universums nichts, das nicht in diese Sinfonien eingeordnet wäre, folglich also alles Materielle und Immaterielle
+schwingungsmässig bestimmte Töne und Klänge und eben Sinfonien erzeugt, die in der Regel vom menschlichen
+Ohr nicht wahrgenommen werden können, weil sie sich für dieses in viel zu tiefen oder zu hohen Frequenzen
+bewegen. Nur durch anormale, degenerative physiologische Veränderungen können menschliche Lebensformen
+diese Geräusche resp. Sinfonien wahrnehmen, wobei diese dann äusserst bewusstseinsbeeinträchtigend, nervenaufreibend und psycheschädigend wirksam werden. Die Frequenzen dieser Sinfonien resp. Geräusche reichen in
+alle Ebenen, so also tiefste Geräusche, wie Brummgeräusche, wie du sagst, ebenso gegeben sind wie auch höchste
+Sirrgeräusche und Flirrgeräusche usw. Wie die Frequenzen in ihrer Zahl praktisch unzählbar sind, so sind dies
+auch die Quellen der Geräusch-Sinfonien, denn diese beziehen sich auf alles Bestehende des Materiellen sowie
+des Immateriellen. Wenn so von der Erde ausgegangen wird, dann sind diese Geräuschquellen z.B. die Wasser in
+bezug der Tiefseebewegungen sowie der Bewegungen der Wasser der Seen, Flüsse, Ströme, Bäche und Quellen.
+Auch das Getöse der Meereswellen, der kleinen sowie der gewaltigen Stürme, die tektonischen Bewegungen des
+Erdinnern, das Brodeln der Magmamassen in der Erde und das Eruptieren der Vulkane gehören ebenso dazu wie
+auch der Regen, Hagel und die verschiedenen Atmosphärenschichten, die sich aneinander ebenso reiben wie auch
+die Winde an Bäumen, Gräsern, Blumen, Häusern, Gebirgen, Sanddünen und Wüsten, Steppen, Eisbergen,
+Gletschern und Eisflächen sowie an Windmühlen, Windrädern, Schiffen, Fluggeräten, Raketen, Geschossen und
+Fahrzeugen aller Art, an Landflächen und an allem sonst materiell Bestehenden. Zu beachten sind auch die Stimmen
+und Laute der Menschen und Tiere, der Insekten, Vögel und Fische sowie jeglichem anderem Wassergetier. Alle
+Geräusche zusammen bilden die eigentliche ‹Sinfonie des Planeten›, wie wir es nennen. Und wie dies im rein
+materiellen Bereich geschieht, trifft dies auch zu auf jegliche immaterielle Sphäre im gesamten Universum, die auch
+je ihre eigene Sinfonie erzeugt, wie auch die auf der Erde wallenden oder im Weltenraum existierenden Nebel
+und alle sonstigen Gebilde, die in ihrer Zahl anzuführen absolut unmöglich sind, weil alles derart unermesslich
+ist, dass es weder durch rein menschlich-verstandesmässige noch durch technische Möglichkeiten irgendwelcher
+Art erfasst werden könnte.
+_Quelle: http://www.futureofmankind.co.uk/Billy_Meier/Contact_Report_223_
+
+### Herrenreiter und Lockvögel
+_Freitags-Kommentar vom 1. Dezember 2017, von Ulrich Schlüer, Verlagsleiter ‹Schweizerzeit›_
+
+**Kohäsionsmilliarden als Erpressungs-Instrument**
+Ungarn und Polen haben Osteuropa zur ‹migrationsfreien Zone› erklärt. In Absprache mit Brüssel will die
+Schweiz – die Politik Ungarns und Polens durchkreuzend – mit der soeben gesprochenen Kohäsionsmilliarde
+diese beiden osteuropäischen Länder mit Auffanglagern für von Brüssel zugeteilte Flüchtlinge und illegale Einwanderer beglücken.
+
+
+-----
+
+Gehilfenschaft für Brüssels Bürokratie zwecks Zerstörung des Selbstbestimmungsrechts zweier Völker – unglaublich, wozu sich Bundesbern mit seiner Brüssel-Hörigkeit verführen lässt.
+**Es war Viktor Orban, der Präsident Ungarns, der Polen und Ungarn kürzlich zur ‹migrationsfreien Zone› in**
+**Europa erklärt hat – offensichtlich nach Absprache mit der polnischen Regierung.**
+Orbans Erklärung wurde vom hörbar zähneknirschenden Brüssel als offene Provokation aufgenommen. Und –
+mit den Brüssel hörigen Medien im Rücken – flugs in die Nähe rassistischen Handelns gerückt.
+Dass der ungarische Staatschef mit seiner Ankündigung – wie bereits schon mit der rigorosen Schliessung der
+sogenannten Balkanroute für die illegale Masseneinwanderung nach Westeuropa – durch und durch schengenkonform, also vollumfänglich nach den von der EU selbst einvernehmlich beschlossenen Grundsätzen handelt,
+darüber schweigt sich Brüssel zornentbrannt aus.
+
+#### Absage an die ‹Willkommenskultur›
+Nachdem Angela Merkel im Sommer 2015 – ganz und gar schengenwidrig – die ‹Willkommenskultur› einseitig
+und willkürlich ausgerufen und damit alle Tore für weit über eine Million in keiner Weise kontrollierter angeblicher Asylanten aufgestossen hat, gelten EU-Grundsätze zum Schutz der EU-Aussengrenze offensichtlich nicht
+mehr. Brüssel stellt sich vielmehr ganz in den Dienst Berlins, das zumindest einen bedeutenden Teil des von der
+deutschen Bundeskanzlerin ganz allein angerichteten Schadens auf andere EU-Länder, vor allem auch auf
+Ungarn und Polen abzuwälzen trachtet. Die von Brüssel als ungebührliche Anmassung empfundene Deklarierung
+der osteuropäischen Länder als ‹migrationsfreie Zone› steht – obwohl schengenkonform – in diametralem Widerspruch zur von Brüssel und Berlin angestrebten Politik der Verteilung aller ‹Flüchtlinge› auf alle Länder Europas.
+Wie konkret gegen Polen und Ungarn vorzugehen sei – dazu erwies sich Brüssel freilich als ratlos.
+
+
+#### Sommaruga eilt zu Hilfe
+Mit der zündenden Idee eilte dem vorerst in ohnmächtigem Zorn verharrenden Brüssel die Schweizer Flüchtlings-Verantwortliche, Bundesrätin Simonetta Sommaruga zu Hilfe. Sie war schliesslich dabei, als der Schweizer
+Bundesrat im Eilverfahren eine weitere Kohäsionsmilliarde (1300000000 Schweizer Franken) an Brüssel bewilligte – auf dass der EU-Kommissionspräsident im November 2017 doch noch die Schweiz mit seinem Besuch
+beehren würde.
+Dieser, Jean-Claude Juncker, wollte zu diesem herbstlichen Zeitpunkt in Bern eigentlich den die Schweiz dem
+EU-Apparat unterwerfenden Rahmenvertrag aus den Händen der Schweizer Bundesräte huldvoll entgegen nehmen. Doch dieser Vertrag ist – da allzu viele Schweizerinnen und Schweizer keinerlei Lust auf Zwangs verheiratung mit der EU verspüren – (noch) nicht unterschriftsreif. Auf dass Bundespräsidentin Doris Leuthard
+zur Krönung ihres Präsidialjahres trotzdem den Juncker-Kuss auf ihrer Wange verspüren dürfe, zauberte man
+zu Bern flugs eine erneute Kohäsionsmilliarde aus dem Hut.
+
+#### Wohin mit der Milliarde?
+Nur: Kohäsionszahlungen sind ursprünglich etikettiert worden als Entwicklungshilfeleistungen an die ziemlich
+verarmt aus dem Nachlass der anfangs der Neunzigerjahre pleite gegangenen Sowjetunion zur EU gestossenen
+ehemaligen Satelliten Moskaus. Diese Länder verstanden ihre neu gewonnene Freiheit freilich mehr und mehr
+zielbewusst zu nutzen. Sie förderten die Leistungsträger durch grosszügige Rahmenbedingungen, liessen verkrustete Bürokratie verschwinden und wussten auf diese Weise der Armut, in der sie die Sowjetunion zurückgelassen hatte, von Jahr zu Jahr sichtbarer zu entwachsen.
+Heute erzielen Polen und Estland innerhalb der Europäischen Union die höchsten Wachstumsraten. Auch Ungarn
+floriert. Auf Entwicklungshilfe sind diese Länder nicht mehr angewiesen. Sie wissen ihre Gegenwart und ihre
+Zukunft selbstbewusst und wirtschaftlich ertragreich selbst zu gestalten.
+
+#### Zum Schaden oder zum Nutzen Osteuropas?
+So bestand für die Schweizer Kohäsionsmilliarde, als diese überstürzt beschlossen wurde, eigentlich gar kein
+Verwendungszweck. Doch keine Bange: Echte Linke wissen mit Geld, das sie den Steuerzahlern abnehmen,
+immer etwas anzufangen – wenn nichts Sinnvolles dann eben Unsinniges.
+So geschah es mit der Schweizer Kohäsionsmilliarde: Simonetta Sommaruga, Chefin des hiesigen Flüchtlingswesens, schlug dem Bundesrat vor, mehrere hundert Millionen aus dieser Schweizer Kohäsionsmilliarde zu
+nutzen für den Bau von ‹Flüchtlings›-Aufnahmelagern in Polen und Ungarn. Damit würden die Schweizer Steuer gelder im Dienste Brüssels eingesetzt als Lockvogel, auf dass Polen und Ungarn die Zertrümmerung der bereits
+ausgerufenen ‹migrationsfreien Zone› in Osteuropa eher zu schlucken bereit seien. Eine Bundesrats-Mehrheit
+
+
+-----
+
+zeigte sich Arm in Arm mit Brüssel begeistert von Sommarugas linker Idee – zumal damit auch ein währschafter
+Beitrag zur Liquidierung der Brüssel ohnehin störenden Schweizer Neutralität geleistet wurde.
+
+#### Theo Waigels Drohfinger
+Einen bezeichnenden vorläufigen Schlusspunkt zum Komplott gegen die am Schengen-Abkommen festhaltenden
+Länder Ungarn und Polen setzte in Herrenreiter-Manier der frühere deutsche Finanzminister Theo Waigel – in
+der EU auch ‹Mister Euro› genannt. Er hatte am vergangenen 21. November einen Auftritt im liechtensteinischen
+Schaan vor der gesamten Wirtschaftselite des Fürstentums. Er verteidigte dort die EU gegen den britischen BrexitPionier Nigel Farage. Unter anderem mit dem Argument, welch ärmlichem Dasein die osteuropäischen EUNeumitglieder ausgeliefert wären, hätte ihnen Brüssel nicht mit Abermilliarden aus dem Kohäsionsfonds unter
+die Arme gegriffen. Auf die Frage des Moderators, wie Waigel denn mit der Weigerung dieser Osteuropäer umgehe, ihren Anteil an der stattfindenden Masseneinwanderung auf sich zu nehmen, reagierte Waigel unerbittlich:
+Sollten Länder wie Ungarn und Polen an dieser ‹migrationsfreien Zone› in Osteuropa festhalten, würden sie durch
+Deutschland mittels spürbarer Streichung von Kohäsionszahlungen schon zur Raison gebracht werden!
+Wenn einseitig und schengenwidrig Willkommenskultur ausgerufen wird, können sich Entwicklungshilfe leistungen offensichtlich urplötzlich in Disziplinierungspeitschen verwandeln.
+Was sich um so leichter bewerkstelligen lässt, wenn Schweizer Bundesräte mit ihrer Kohäsionsmilliarde mitziehen
+und den Osteuropäern anstelle von Entwicklungshilfe Auffanglager für illegale Einwanderer bescheren.
+Man darf gespannt zuschauen, was aus dem von Brüssel mit Hilfe Berns ausgeheckten Komplott gegen die an
+ihrer ‹migrationsfreien Zone› festhaltenden EU-Osteuropäer resultiert.
+_Quelle: http://www.schweizerzeit.ch/cms/index.php?page=/news/herrenreiter_und_lockvoegel-3229_
+
+### ‹Atombombe›: EU-Kommission für Anwendung von Artikel 7 gegen Polen
+_20.12.2017 • 13:04 Uhr; https://de.rt.com/1c7m_
+Brüssel hat beschlossen, ein Verfahren nach Artikel 7 des EU-Vertrages gegen Polen zu beantragen. Dies bestätigte ein Kommissionssprecher am Mittwoch. Kern des Streits zwischen Brüssel und Warschau ist eine polnische
+Justizreform. Jetzt drohen dem Land EU-Sanktionen.
+Artikel 7 des EU-Vertrages ist für den Fall bestimmt, dass ein EU-Staat gegen grundlegende demokratische und
+rechtsstaatliche Werte verstösst. Nun müssen vier Fünftel der EU-Mitglieder sowie das EU-Parlament dem
+Kommissionsvorschlag zustimmen. Dies gilt als gesichert. Das Verfahren wird auch als ‹Atombombe› bezeichnet,
+da es eine äussert kontroverse Entscheidung wäre und als letztes Mittel der EU im Umgang mit ihren Mitgliedstaaten angesehen wird.
+Die Anwendung von EU-Sanktionen gegen Polen dürfte sich allerdings schwieriger gestalten. Dafür müssten
+nämlich erst alle weiteren EU-Staaten einstimmig eine ‹schwerwiegende und anhaltende Verletzung› der EUWerte feststellen. Doch der ungarische Ministerpräsident Viktor Orban hat bereits angekündigt, Polen zur Seite
+stehen zu wollen und eine solche Entscheidung zu blockieren.
+_Quelle: https://deutsch.rt.com/europa/62482-eu-wendet-artikel-7-gegen/_
+
+### Umweltökonom: Ausmass des Protestes gegen Windkraft wird vor Öffentlichkeit verschleiert
+_Tagesspiegel Background; Mo, 18 Sep 2017 00:00 UTC_
+
+_© ZB_
+
+
+-----
+
+_Der Magdeburger Umweltökonom Joachim Weimann hält die Protestbewegung gegen Windenergie für politisch_
+_unter schätzt und die Gefahren der Windkraft in der Öffentlichkeit unzureichend wahrgenommen, schreibt er in_
+_seinem Standpunkt._
+Wann war die hohe Zeit der Bürgerinitiativen in Deutschland? Damals als es gegen die Atomkraft und die Endlager ging? Oder als es galt, die Startbahn West am Frankfurter Flughafen zu verhindern? Natürlich, wer kennt
+sie nicht, die berühmten Bürgerproteste in Wackersdorf und im Wendland. Oder die Proteste gegen Stuttgart
+21. Legendär!
+Dabei ist alles das gar nichts, verglichen mit dem, was ganz aktuell in Deutschland in Sachen Bürgerprotest los
+ist. Es sind jetzt 1005 registriere Bürgerinitiativen, die sich gegen die Errichtung von Windkraftanlagen richten
+und in Kürze werden zehn Prozent aller Gemeinden in Deutschland eine solche Bürgerinitiative haben. Das ist
+**Bürgerprotest in einer Breite, wie sie so in Deutschland nur ganz selten vorkommt.**
+Merkt der in der Stadt lebende Zeitungsleser und Fernsehzuschauer etwas davon? Wohl kaum, denn berichtet
+wird über den Kampf der Bürger gegen die Windkraft nur sehr selten. Und die Argumente, deren sich die Gegner
+der Windkraft bedienen, sind weder in Talkshows zu hören, noch in den meisten Zeitungen zu lesen. Nein, der
+**Protest gegen den Ausbau der Windkraft wird nicht seiner Bedeutung entsprechend in den Medien gewürdigt.**
+Von der Politik ganz zu schweigen, was die Frage aufwirft, ob sich die Medien nicht interessieren, weil es der
+Politik egal ist, oder es der Politik egal ist, weil die Medien darüber nicht berichten.
+
+#### Die Anti-Atom-Bewegung bekam mehr Aufmerksamkeit
+Warum bekam die Anti-Atomkraft-Bewegung so viel Aufmerksamkeit und die Anti-Windkraft-Initiativen so
+wenig? Die Antwort ist einfach: Erstere kämpften gegen die ‹böse› Atomkraft und letztere kämpfen gegen die
+‹gute› Energie aus erneuerbaren Energiequellen. Nehmen wir der Einfachheit halber an, die Atomkraft sei wirklich böse. Wie gut ist dann die Windkraft? Das gängige Argument geht so: Nur die Erneuerbaren retten uns vor
+dem Klimawandel, deshalb sind sie alterativlos. Diejenigen, die sich dagegen wehren, sind im Prinzip auch für
+die Erneuerbaren, aber ‹not in my backyard›. Aber Opfer müssen nun einmal gebracht werden und irgendwen
+trifft es dann halt.
+Dieses Argument ist merkwürdig, und es ist falsch. Merkwürdig ist daran, dass man den Menschen vorwirft,
+**dass sie sich dagegen wehren, dass sie als lokal Betroffene Schäden an ihrer Gesundheit, den Verlust einer land-**
+**schaftlich intakten Heimat und massive Vermögensverluste hinnehmen sollen. Die Bürgerproteste gegen Atom-**
+mülllager fanden ebenfalls vor Ort statt und die Besorgnisse waren ganz ähnlich. Nimmt man das Eine ernst,
+**muss man auch das Andere als legitim ansehen.**
+Dazu kommt, dass es einen bedeutsamen Unterschied zwischen Atomkraft und Windkraft gibt. Die Gefahren
+der Atomkraft treten dann auf, wenn schwerwiegende Störungen auftreten. Das ist – zum Glück – bis heute
+noch nicht vorgekommen (Anm. FIGU: Das ist eine absolut unhaltbare Behauptung; siehe Tschernobyl und
+Fukushima. Konsequenz: Alles ist besser als Atomkraft!). Die Gefahren der Windkraft treffen die Anwohner
+beim normalen Betrieb der Anlagen. Damit es zu gesundheitlichen Schäden kommt, muss eine Windkraftanlage
+nicht zu Bruch gehen. Es reicht, dass sie ihre ganz normale Arbeit verrichtet. Denn Windkraft ist unweigerlich
+mit massiven externen Effekten verbunden. Ein Begriff, der im Zusammenhang mit der Atomkraft sehr häufig
+**bemüht wird, im Zusammenhang mit Erneuerbaren aber tabu zu sein scheint.**
+
+#### Die externen Kosten der Windkraft
+Um das Ausmass der externen Effekte abschätzen zu können, muss man sich zunächst klarmachen, in welchem
+Umfang der Ausbau der Windkraft vonstatten gehen soll, wenn es nach dem Klimaschutzplan der Bundesregierung geht. Gegenwärtig haben wir in Deutschland circa 28000 Windkraftanlagen installiert. Die produzierten
+2016 laut Umweltbundesamt 2,2 Prozent unseres Primärenergieeinsatzes. Das ist nicht viel. Dazu kommt, dass
+Windstrom nur dann Sinn ergibt, wenn er gespeichert wird. Das aber führt dazu, dass der Wirkungsgrad einer
+Windkraftanlage erschreckend gering ist. Deshalb müsste ein hohes Vielfaches der bisher installierten Leistung
+dazu kommen, um die Ziele der Bundesregierung zu erreichen.
+Der Kostendruck, der seit dem EEG 2017 ausgeübt wird, hat zur Folge, dass nur noch Anlagen rentabel betrieben
+werden können, die mindestens 160 Meter Narbenhöhe und 100 Meter Rotordurchmesser aufweisen. Der angestrebte Zubau an Windkraft wird deshalb in Zukunft nur noch Anlagen errichten, die höher als 200 Meter
+sind – Untergrenze. Da es sehr viele Windkraftanlagen sein sollen, wird kein Standort vor ihnen sicher sein. In
+Deutschland werden flächendeckend grosse Windparks mit riesigen Anlagen in enger Nachbarschaft zu Wohngebieten entstehen, wenn der Klimaschutzplan 2050 der Bundesregierung umgesetzt wird.
+
+
+-----
+
+#### Landschaftszerstörung und Vermögensverlust
+Die damit einhergehenden externen Effekte sind massiv. Da ist zunächst die Landschaftszerstörung. Überall
+dort, wo bereits Natur- und Kulturlandschaften durch Windkraft stark angegriffen wurden, sind die Proteste
+dagegen am stärksten. Die Menschen empfinden die Eingriffe in die Landschaft als Zerstörung ihrer Heimat.
+Das geht unmittelbar mit hohen Vermögensverlusten einher. Die sind schwer zu verifizieren, denn Häuserpreise
+kann man nur beobachten, wenn Häuser veräussert werden. Werden Häuser durch Windkraftanlagen unverkäuflich oder liessen sie sich nur noch zu Preisen verkaufen, die für die Besitzer nicht ausreichen, um sich woanders eine neue Existenz zu errichten, kommt es nicht zum Verkauf und der Preisverfall wird nicht sichtbar.
+**Das ändert nichts an der Enteignung, die die Menschen durch Windkraft erfahren.**
+
+#### Gesundheitliche Folgen der Windkraft?
+Und schliesslich sind die gesundheitlichen Einschränkungen externe Effekte, die durch Schallemissionen, Schattenschlag und vor allem durch Infraschall entstehen. Infraschall entsteht, wenn der Rotor einer Windkraftanlage
+an dem Sockel vorbeistreicht, auf dem die Anlage steht. Dabei entsteht eine niederfrequente Schallwelle, die sich
+sehr weit ausbreitet und die nicht hörbar ist. Es gibt Hinweise darauf, dass Infraschall bei etwa 30 Prozent der
+Bevölkerung erhebliche gesundheitliche Folgen haben kann. Genau weiss man es nicht, denn das Phänomen ist
+noch nicht gut erforscht.
+Die Politik sieht keinen Anlass, daran etwas zu ändern. Vielmehr wird die magere Studienlage dazu benutzt, um
+zu behaupten, dass es keinen verlässlichen Nachweis dafür gäbe, dass Infraschall gesundheitliche Beschwerden
+verursache. Wie auch! Wenn man nicht forscht, kann man auch keine negativen Ergebnisse bekommen! Sich
+**diesem Problem nicht zu widmen ist ein Skandal, der nur deshalb geschehen kann, weil es bei diesem Thema**
+**keine kritische Öffentlichkeit gibt. Man stelle sich vor, ein Politiker würde die Gefahren der Atomkraft mit der**
+Bemerkung herunterspielen, man könne Strahlung ja weder sehen noch riechen und ausserdem gäbe es ja bisher
+auch noch keine Strahlenopfer in Deutschland. Der Aufschrei wäre gewaltig. Im Hinblick auf die gesundheit**lichen Risiken der Windkraft wird auf genau diesem Niveau argumentiert – nur der Aufschrei bleibt leider aus.**
+
+
+#### Gegen Klimawandel hilft nur der Emissionshandel
+Aber es bleibt ja noch der Hinweis, dass die Windkraft schliesslich den Klimawandel bekämpfen hilft und deshalb ‹gut› ist. Leider stimmt auch dieses Argument nicht. Das einzige Instrument, das in Europa tatsächlich zu
+massiven Rückgängen der CO2-Emissionen geführt hat, ist der Europäische Emissionshandel. Mit ihm reguliert
+die EU sehr erfolgreich den europäischen Energiesektor. Das hat ganz nebenbei allerdings den Effekt, dass
+nationale Klimapolitik in diesem Sektor nichts an den CO2-Emissionen ändern kann, weil deren Umfang ausschliesslich durch den CAP, die Obergrenze für die Gesamtemissionen, fixiert wird, der im Rahmen des Emissionshandels festgelegt wurde und der jedes Jahr planmässig reduziert wird. Alles, was wir durch Wind- und
+Sonnenenergie in Deutschland mehr und früher einsparen, wird in anderen Ländern der EU später und weniger
+eingespart. Windkraft verursacht externe Effekte und hohe Stromkosten, aber sie reduziert den CO2-Ausstoss
+in Europa nicht. Im Hinblick auf den Klimawandel wäre eine Stärkung und Erweiterung des Emissionshandels
+die deutlich bessere und rationalere Strategie.
+**Den Menschen, die sich in den Bürgerinitiativen engagieren, werden solche Zusammenhänge häufig bewusst,**
+**weil die persönliche Betroffenheit sie dazu bringt, sich mit den Dingen intensiv zu befassen. Diejenigen, die nicht**
+**direkt betroffen sind – weil sie beispielsweise in grossen Städten wohnen – haben nicht die Anreize, das zu tun,**
+und eigentlich sollten sie es auch nicht tun müssen. Denn dafür gibt es ja die Medien, die Dinge recherchieren,
+analysieren und dann ausgewogen und fair darüber berichten.
+**_Joachim Weimann ist Professor für Wirtschaftspolitik an der Otto-von-Guericke-Universität Magdeburg._**
+_Quelle: https://de.sott.net/article/31955-Umweltokonom-AusmaSs-des-Protests-gegen-Windkraft-wird-vor-Offentlichkeit-ver-_
+_schleiert_
+
+### Malmö: Das ‹Chicago von Schweden›
+_MS; jouwatch; Do, 07 Dez 2017 11:25 UTC_
+**Der Stockholmer Vorort Rinkeby ist ‹eine Kriegszone›,** das erklärte jetzt die leitende schwedische Staatsanwältin
+Lisa Tamm. Lisa Tamm, die mit Beginn des kommenden Jahres für die organisierte Kriminalität zuständig sein
+wird, gab bekannt, dass sie sich an kriegserschütterten Gebieten wie Kolumbien und El Salvador orientieren
+
+
+-----
+
+werde, um neue Methoden der Verbrechensbekämpfung in den schwedischen No-Go-Zonen einzuführen und
+so der ausufernden Gewalt wieder Herr werden zu können.
+**«Rinkeby ist wie ein Kriegsgebiet. Wenn die Polizei dort arbeitet, tut sie das, wie die bewaffnete Armee es tun**
+**würde», so Tamm. «Ich habe mir die Frage gestellt, wie haben sie es in Kolumbien geschafft, die FARC-Guerilla**
+zu besiegen und in El Salvador, den Krieg zu beenden. Oder in allen anderen Teilen der Welt, in denen sie so
+grosse Probleme über viele, viele Jahre hatten. Gibt es da irgendeine Lösung? Man muss über den Tellerrand
+hinausschauen», weiss die Staatsanwältin.
+**Nur mehr Polizeipräsenz werde nicht ausreichen, sie will auch auf mehr Sozialarbeiter und mehr staatliche**
+Unterstützung setzen. Die neuen Ankündigungen kommen, nachdem Mitglieder der Moderaten Partei den Einsatz der Armee gefordert hatten, damit die Polizei ihrer Arbeit nachgehen kann, ohne Attacken befürchten zu
+müssen.
+**Der Vorort Rinkeby in Stockholm gilt zusammen mit den Bezirken Husby und Tensta und bestimmten Bereichen**
+**Malmös zu den schlimmsten No-Go-Zonen in Schweden. Dort ist inzwischen der Gebrauch von Schusswaffen**
+und Handgranaten alltäglich (jouwatch berichtete). Hauptsächlich leben Migranten in allen No-Go-Zonen. Es
+herrschen Arbeitslosigkeit, wirtschaftliche Armut und Gewalt.
+_Quelle: https://de.sott.net/article/31942-Malmo-Das-Chicago-von-Schweden_
+
+### Polsprung: Erdkrustenverschiebung – Der Nordpol wird allmählich zum Südpol
+_aikos2309; Pravda-TV; Fr, 08 Dez 2017 18:57 UTC_
+
+_Stand die ‹kambrische Explosion› in Zusammenhang mit einer Polwanderung?_
+
+Unser Titel ist identisch mit dem eines Buches, das von C.P. Hapgood im Jahr 1958 veröffentlicht wurde. Er
+schrieb auch ‹The Path of the Pole› (1970). Mehrere andere Autoren haben ebenfalls vorgeschlagen, dass plötz**liche Rutsche der Erdkruste in der Vergangenheit zu wilden Klimaschwankungen mit verheerenden bio -**
+**logischen Folgen führten – insbesondere zu all den schnellgefrorenen Mammuts in Sibirien.**
+Diese Polverschiebungs-Szenarien, die von Denkern stammen, die sich weit ausserhalb des wissenschaftlichen
+Mainstreams bewegen, wurden in einer ‹neuen› und gut publizierten Polsprung-Theorie, die in ‹Science› erschien,
+ignoriert. Die ‹neue› Theorie bezieht sich auf einen 534 Millionen Jahre alten Krustenrutsch, während Hapgood
+von einer Katastrophe in den letzten 10000 Jahren sprach. Trotzdem wäre es schön gewesen, die frühere Arbeit
+von Hapgood gewürdigt zu sehen.
+Vier Merkmale dieses ‹neuen› Vorschlags machen ihn den heutigen Geologen und Geophysikern angenehmer
+als den von Hapgood:
+1. Zwei der ‹neuen› Autoren, J. Kirschvink und D.A. Evans, sind am renommierten California Institute of
+Technology tätig, während Hapgood Professor für Geschichte ohne Doktorgrad am Keene State College war.
+Status ist beim Theoretisieren eben wichtig.
+2. Kirschvink et al. schlagen einen wissenschaftlich akzeptablen Mechanismus für das Einsetzen eines schnellen
+Krustenrutsches vor. Sie stellen sich einen riesigen Brocken des Meeresbodens vor, der plötzlich einstürzte
+und dadurch die Massenverteilung des Planeten veränderte. Dieses Ungleichgewicht veranlasste die Kontinente, sich rapide zu verschieben, um die ruhig verlaufende Rotation der Erde um ihre Drehachse wiederherzustellen.
+In einem Zeitraum von 15 Millionen Jahren, so meinen sie, seien die Kontinente um 90° verrutscht. Ein Teil
+des heutigen Nordamerikas bewegte sich vom Südpol in die Nähe des Äquators. Beweise für diese enorme
+Verschiebung zeigen Messungen des in Felsen ‹eingefrorenen› Erdmagnetfelds. Mit anderen Worten ver wendeten Kirschvink et al. Methoden des Paläomagnetismus.
+
+
+-----
+
+3. Dieser ‹neue› Krustenrutsch ist lediglich eine beschleunigte Kontinentalverschiebung (ein vorherrschendes
+und etabliertes Paradigma) und nicht die radikalere Vorstellung, dass die gesamte äussere Krustenschicht
+wie eine eingefettete Zwiebelhaut über den Erdmantel gleitet.
+Auch ist das vorgeschlagene Verfahren alles andere als ein Kippen der Pole, bei dem der gesamte Planet um
+180° kippt wie ein Tippe-Top – ein dynamisch unmögliches Ereignis (Anomalie: Delle im Magnetfeld bereits
+in der Eiszeit).
+4. Das vorgeschlagene Abbrechen dieses (Fragments des) Meeresbodens ereignete sich vor 534 Millionen Jahren,
+was ungefähr mit der kambrischen Explosion neuer Lebensformen (neue Phyla) übereinstimmt. Die aus
+ihm resultierenden grossen Klimaveränderungen und Verwüstungen der Umwelt könnten der schnellen
+Entwicklung des Lebens förderlich gewesen sein.
+
+Obwohl heutige Wissenschaftler solch eine Verbindung von Katastrophismus und schneller Artenbildung
+favorisieren, räumte J. Valentine, ein Paläontologe an der University of California, Berkley, ein: «… es bietet
+keinen spezifischen Mechanismus, durch den Tiere plötzlich neue ‹Körperbaupläne› entwickelten. Allerdings
+haben Wissenschaftler lange nach einem – nach irgendeinem – Ereignis gesucht, das die rätselhafte kambrische
+Explosion erklären könnte.»
+
+_Eine bildliche Darstellung der geographischen Situation vor (links) und nach (rechts) der von J. Kirschvink et al. postulierten_
+_Polverlagerung um 90°, die vor ca. 534 Millionen Jahren begonnen haben soll, anhand der Lage des irdischen Südpols_
+
+Die Rätsel, welche die Mammutkadaver – frisch, als ob sie gestern noch gelebt hätten – der Wissenschaft aufgaben und aufgeben, sind unlösbar geblieben. Klar ist, dass diese Tiere, die während des Quartärs lebten und
+im Quintär restlos ausgestorben sind, durch die epochale Katastrophe vernichtet wurden.
+In diese fernen Gebiete sind aber nur jene Ausläufer der Atlantikkatastrophe gedrungen, die mit dem Sintflut regen vernichtende Überflutungen heranbrachten. Die Mammute sind entweder durch die vorangegangene
+Stickgaswelle erstickt, oder durch die Wasserfluten ersäuft worden. Bis heute ist unklar, wieso sie als eisfliehende
+Pflanzenfresser mitten in einem Eisland begraben sind.
+Wenn ein Stück Meeresboden einmal wegbricht, könnte das Gleiche doch auch zweimal geschehen sein – sagen
+wir vor ein paar tausend Jahren. Aber warum sollten grosse Teile des Meeresbodens so plötzlich absinken? Keine
+Quelle in der Literatur berührt dies!
+K. Wise hat darauf hingewiesen, dass die kambrische Explosion tatsächlich nicht den grössten Zuwachs an biologischer Innovation aufwies. Die noch frühere ‹archaische Explosion› erzeugte 17 neue Stämme von Bakterien,
+die eine ausserordentliche Bandbreite verschiedener Metabolismen einsetzten.
+Obwohl aus der kambrischen Explosion etwa 38 neue Stämme hervorgingen, nutzten diese alle nur eine (einzige)
+Art des Stoffwechsels. Was hat die innovativere ‹archaische Explosion› ausgelöst?
+
+#### Änderungen der irdischen Rotationsachse nach Asteroiden- oder Kometen-Impakten
+**Es gibt Beweise dafür, dass die Pole ihre Position in der jüngsten Vergangenheit sehr schnell geändert haben –**
+**innerhalb weniger Tage. Diese Möglichkeit wurde jedoch bisher von der offiziellen Wissenschaft nicht beachtet,**
+da man annimmt, ein solches Phänomen sei physikalisch unmöglich: Es ist kein Mechanismus bekannt und
+keine Energie, die in der Lage wäre, es hervorzurufen. Indes wurde die Hypothese, dass sich die Neigung der
+Erdachse in Bezug auf die Ekliptik und die Position der Pole ändern könne, seit dem letzten Jahrhundert in
+Betracht gezogen.
+Einige der grössten Wissenschaftler jener Zeit, darunter J.C. Maxwell und Sir George Darwin, betrachteten dieses
+Problem, entschieden aber, dass die stabilisierende Wirkung der äquatorialen Ausbuchtung so gross sei, dass
+keine denkbare Kraft innerhalb der Erde zu einer Verlagerung der Achse führen könne, allenfalls die Kollision
+mit einem anderen Planeten. Sie berücksichtigten jedoch nicht die Instabilitäts-Phänomene, die bei einem der
+Erde vergleichbaren Gyroskop auftreten können, das aus einer durch Zentrifugalkräfte leicht verformbaren,
+
+
+-----
+
+durch frei bewegliche Flüssigkeiten bedeckten Kunststoffschale auftreten können – (wobei die Erde) der einzige
+Körper dieser Art im Sonnensystem ist.
+Unsere Arbeit zeigt, dass der Einfluss extraterrestrischer Objekte, die so klein wie ein Asteroid der Apollo-Klasse
+sind, einen Prozess ‹triggern› könnte, der innerhalb von Tagen eine ‹Umformung› der äquatorialen Ausbuchtung
+um eine andere Achse auslöst, und mit der Veränderung der (axialen) Neigung auch eine Verschiebung der Pole
+bewirkt. Um einen solchen Prozess auszulösen, muss der Spitzenwert des durch den Aufprall entwickelten
+Drehmoments einen ‹Schwellenwert› übersteigen, der dem von der äquatorialen Ausbuchtung entwickelten
+Stabilisierungs-Drehmoment entspricht.
+Eine grobe Berechnung zeigt, dass dieser Schwellenwert während des Aufpralls eines Körpers erreicht werden
+kann, der viel kleiner ist als ein Asteroid von einem Kilometer Grösse.
+**Eine Verschiebung der Pole würde weltweit zerstörerische Phänomene hervorrufen, wie z.B.: Erdbeben und**
+**vulkanische Aktivität in allen Gebieten, die von Krustenanpassungen betroffen sind; heftige Winde und sint-**
+**flutartige Regenfälle mit beispiellosen Überschwemmungen auf der ganzen Welt; grosse Schwankungen des**
+**Meeresspiegels mit anschliessender vorübergehender Versenkung grosser Teile der Kontinente; Störung des**
+**Magnetfeldes.** Darüber hinaus würde es **dauerhafte Klimaveränderungen geben, die einerseits auf die Ver -**
+schiebung der Pole zurückzuführen wären (und somit auf eine Änderung der geographischen Breite vieler
+Regionen, auf die Abweichung ozeanischer und atmosphärischer Strömungen usw.), andererseits auf die Veränderung der (axialen) Neigung mit nachfolgender Änderung des Jahreszeiten-Musters.
+Eine Verschiebung der Pole am Ende des Pleistozän mit all ihren zerstörerischen Phänomenen könnte die vor
+diesem Zeitpunkt und danach beobachtete klimatische Situation sowie die alten Überlieferungen hinsichtlich
+einer weltweiten Katastrophe kohärent erklären.
+
+#### Der Nordpol wird allmählich zum Südpol
+Der nächste Polwechsel könnte kurz bevorstehen – und die Welt ins Chaos stürzen. Die ESA veröffentlichte auf
+ihrer Webseite die Forschungsergebnisse der University of Leeds aus dem Jahr 2016. Mithilfe der drei ‹Swarm›Satelliten der ESA, die das elektromagnetische Feld der Erde messen, machten Wissenschaftler der britischen
+Universität jetzt eine unglaubliche Entdeckung (‹Polumkehr› im Gange: Der Nordpol wird allmählich zum
+Südpol): 3000 Kilometer unter dem Nordpol befindet sich ein 420 Kilometer breiter, kreisförmiger Eisenstrom.
+Dieser dreht sich mit bis zu 40 Kilometern im Jahr – viel schneller als alle anderen Eisenströme der Erde.
+Diese Entdeckung könnte auf eine signifikante Veränderung im elektromagnetischen Feld der Erde hinweisen –
+und den Forschern dabei helfen, den nächsten Polsprung vorherzusagen. Dieser hätte katastrophale Folgen:
+Unsere Kommunikations- und Stromnetze würden zusammenbrechen, ebenso wie die Satellitensysteme. Da das
+Magnetfeld der Erde uns auch vor schädlichen Sonnenwinden schützt, wären wir im Flugzeug deutlich höherer
+Strahlung ausgesetzt, wäre dieser Schutz nicht mehr vorhanden.
+**_Literatur:_**
+_– Welten im Zusammenstoss_
+_– Die Erde im Umbruch: Katastrophen form(t)en diese Welt. Beweise aus historischer Zeit_
+_– Supervulkan_
+_– Erde im Aufruhr_
+_Quellen: PublicDomain/derwesten.de/atlantisforschung.de am 06.12.2017_
+_Quelle: https://de.sott.net/article/31949-Polsprung-Erdkrustenverschiebung-Der-Nordpol-wird-allmahlich-zum-Sudpol_
+
+### Der Mann, der es besser machen wollte …
+
+_Foto zum 80. Geburtstag von M. S. Gorbatschow, dem ersten und letzten Präsidenten der UdSSR._
+_(geb. am 2. März 1931) Bildquelle: http://www.pseudology.org/democracy/Images/gorbachev_ms.JPG_
+
+
+-----
+
+_Bildquelle: https24smi.orgcelebrity1785-mikhail-gorbachev.html_
+
+Michail Gorbatschow war der letzte Generalsekretär des ZKs (Zentralkomitees) der KPdSU (Kommunistische
+Partei der Sowjetunion) und erster Präsident der UdSSR. Dies ist der Schlüssel zu seinem politischen Schicksal,
+und gleichzeitig kann dadurch verstanden werden, welche Ära durch ihn verkörpert wurde.
+Michail Gorbatschow wurde am 2. März 1931 im Nordkaukasus in der Ortschaft Privolnoy der Stadt Krasnogvardeisky in der Region Stawropol in einer Bauernfamilie geboren. Seine Karriere begann im Alter von 15 Jahren –
+er arbeitete als Arbeiter und Mechaniker in der Maschinen- und Traktorenstation.
+In den Kriegsjahren wurde Michail Zeuge, wie seine beiden Grossväter väterlicher- und mütterlicherseits im Kerker
+eingesperrt und von stalinistischen Schergen als Feinde des Volkes gefoltert wurden.
+Mit 17 Jahren wurde er zusammen mit seinem Vater durch den Staat für den Einsatz während der Ernte im Jahr
+1948 ausgezeichnet. Für den Einsatz an der Ernte wurde eine Belohnung in Aussicht gestellt. Wer 10000 Doppelzentner Getreide gedroschen hatte, erhielt den Stern eines Helden der Sozialistischen Arbeit. Michail hatte
+zusammen mit seinem Vater in diesem Sommer 8888 Doppelzentner gedroschen. Sein Vater erhielt dafür den
+Lenin-Orden, er den Orden des Roten Banners der Arbeit.
+Als der Krieg begann, war Mischa (Michail) 8 Jahre alt. Sein Vater musste in den Krieg ziehen und hatte vier lange
+Jahre an der Front verbracht. Die Kriegszeiten waren sehr beschwerlich und von Nöten und Hunger geprägt. Er
+wäre verhungert, wenn seine Mutter nicht für zwei Wochen in die Region Krasnodar gefahren wäre und den letzten Anzug und neue Stiefel ihres Mannes verkauft hätte, wofür sie 48 kg Mais erhielt. Weil aber nur 16 kg pro
+Kopf erlaubt waren, musste sie einen Drittel des Kaufes im Feld verstecken, damit sie den Winter überleben
+konnten.
+1952 wurde Gorbatschow während seines Jurastudiums an der Moskauer Staatlichen Lomonosov Universität in
+die Kommunistische Partei aufgenommen. 1955 schloss er die Juristische Fakultät an der Moskauer Staatlichen
+Universität ab. Im gleichen Jahr kam er in den Komsomol (kommunistischer Jugendverband der KPdSU) und
+engagierte sich dann in der Parteiarbeit. Im September 1966 wurde er Erster Sekretär des Parteikomitees der Stadt
+Stavropol und promovierte ein Jahr später am Stavropol Landwirtschaftsinstitut mit einem Abschluss in den
+akademischen Berufen Agronom und Ökonom. Im August 1968 stieg er zum zweiten Sekretär im Gebietskomitee
+der Partei für die Region Stavropol auf, und schliesslich wurde er im April 1970 Erster Sekretär, also Chef des
+Gebietes Stavropol.
+Gorbatschow wurde zum Delegierten der XXII. (1961), XXIV. (1971) und aller nachfolgenden (1976, 1981, 1986,
+1990) Parteitage in das höchste Gremium der Kommunistischen Partei der UdSSR gewählt. 1971 wurde er Mitglied
+des ZKs der KPdSU. 1978 wurde er zum Sekretär des Zentralkomitees der KPdSU gewählt und 1979 als Kandidat
+für die Mitgliedschaft des Politbüros aufgestellt. Das Politbüro verkörperte damals das höchste Machtorgan in
+der Sowjetunion. Es umfasste 20 bis 24 Mitglieder.
+Im Oktober 1980 beförderte das ZK-Plenum Gorbatschow vom Kandidaten zum Mitglied des Politbüros. Im
+Dezember 1984 sprach er auf einer Sitzung des Zentralkomitees der KPdSU über die ‹Lebendige Kreativität der
+Menschen›, eine Rede, die nach einigen Medienberichten eine Art ‹Vorspiel› für die Umstrukturierung des Landes
+war und die Hauptthesen von Gorbatschow enthielt. Am 11. März 1985 wurde Gorbatschow zum Generalsekretär
+des ZKs der KPdSU gewählt, also zum Chef der UdSSR.
+Er erbte ein Land mit einer grossen Reihe von innen- und aussenpolitischen Problemen: Es gab einen ermüdenden
+Krieg in Afghanistan; die Aufrechterhaltung der militärischen Parität mit den Vereinigten Staaten verschlang jährlich etwa 40% aller Ressourcen des Landes, und die sowjetische Wirtschaft lebte seit mehreren Jahren nur noch
+vom breiten Verkauf von Rohstoffen. Ein Schlüsselelement für die Bekämpfung der Wirtschaftsstagnation der
+UdSSR war nach der Meinung von Gorbatschow das Problem der Wirtschaftswachstumsentwicklung.
+In den Jahren 1970–1980 war das sowjetische Öl aus dem Ural einer der wichtigsten wirtschaftlichen ‹Ernährer›
+des Landes. Mit den Ölexporten konnte die Währung in Dollar konvertiert werden; sie brachten wenigen Wohl
+
+-----
+
+habenden um das Jahr 1978 rund 5,5 Mrd. Dollar. Die Gesamtausfuhren der Sowjetunion betrugen damals um
+die 13,2 Milliarden Dollar. Die meisten Menschen in der Sowjetunion waren sich nicht einmal bewusst, dass das
+sowjetische Öl einen eigenen Namen hatte. Das aber wussten alle Händler der Welt und die amerikanischen
+Politiker, die alles taten, um den Ölpreis zu senken. Tatsache ist, dass im Gegensatz zur arabischen und norwegischen
+Ölsorte Brent die sowjetischen Ölproduktionskosten sehr hoch waren – etwa 5 $ pro Barrel, so dass die Umsatzrendite des Ural nicht weniger als 10 $ betrug. 1986 fiel der Ölpreis durch die Manipulationen des Marktes unter
+10 $ und die Sowjetunion geriet in grosse wirtschaftliche Schwierigkeiten. Am 26. April 1986 ereignete sich zudem
+die Nuklearkatastrophe in Block 4 des Kernkraftwerks in Tschernobyl, nahe der ukrainischen Stadt Prypjat.
+Das andere grosse Problem, dem Gorbatschow den Kampf angesagt hatte, war der hohe Alkoholkonsum der
+Bevölkerung. 1984 lag das Pro-Kopf-Niveau in der Sowjetunion bei mehr als 14 Liter reinem Alkohol und in
+manchen Jahren erreichte es sogar 17 Liter.
+Der Geheimdienst KGB war sehr stark, und selbst als Präsident hatte Gorbatschow keine Macht über den Dienst,
+was viel Negatives in die Politik der Perestrojka brachte. So schrieb Gorbatschow in seinem Buch ‹Erinnerungen›,
+dass er sich keinen Zugang zu den Archiven des KGB verschaffen konnte, während er sein Amt als Generalsekretär
+der Kommunistischen Partei innehatte. Eine Akteneinsicht wurde ihm nur für kurze Zeit ermöglicht, nachdem
+er das Gesetz für die Rehabilitierung der Opfer des Stalin-Regimes durchgesetzt hatte. Anfang 1990 forderten die
+Spitzenvertreter des KGB und des Innenministeriums von ihm mehrmals, dass er die Macht an seine Stellvertreter
+übergeben solle, was Gorbatschow ablehnte. Dazu muss auch erwähnt werden, dass während der Ära Gorbatschow
+in den wirtschaftlichen Betrieben, aber auch in anderen Organisationen der UdSSR viel gestohlen wurde, nach
+dem Motto: «Nicht alles gehört mir, aber alles gehört uns.» Also war die wirtschaftliche Kriminalität im Land
+sehr hoch und die Qualität der Produkte im zivilen Bereich war niedrig. So mussten z.B. alle Mähdrescher, die für
+die Landwirtschaft neu gekauft wurden, vor dem Einsatz komplett überprüft und z.B. alle Muttern nachgezogen
+werden, sonst konnten die Landmaschinen schon in den ersten Tagen ihres Einsatzes den ‹Geist aufgeben›. Ausserdem hatten die einfache Arbeiterin und der einfache Arbeiter keinen grossen Ansporn, die Produktivität zu steigern,
+weil der Erlös aus den erschaffenen Produkten in der Regel sowieso vom Bürokratie-Apparat eingeheimst wurde.
+Die Bürokraten verschafften sich in der Sowjetunion derartige Vorteile, dass ihr reales Einkommen in allen
+materiellen Bereichen dem 10–20-fachen eines gewöhnlichen Arbeiters entsprach.
+_Quelle: 7 Hauptgründe, die das Ende der Sowjetunion bereiteten. © Russian Seven russian7.ru_
+
+#### 1983 sprach Quetzal mit Billy über die Rolle von Michail Gorbatschow hinsichtlich der Weltgeschehnisse:
+**_Quetzal_** _Das ist von Richtigkeit, doch höre weiter. Der neue Mann Moskaus, Michail Gorbatschow, wird der grosse_
+_Reformer sein, nach dessen Willen und Werken sich in der ganze Welt sehr vieles verändern wird, auch wenn ihn und_
+_seinen Reformkurs schon bald wieder Niederschläge einholen werden, über die ich dir später noch verschiedene Dinge_
+_erklären werde. Zum grossen Teil jedoch hat dir Semjase bereits im Monat Oktober 1980 über die Reformen von Michail_
+_Gorbatschow und deren weltweite Folgen berichtet, so sich darüber weitere Erklärungen erübrigen. Auch dass das alles_
+_mit eurer Friedensmeditation zusammenhängt, in die wir in unserem Verbund dreieinhalbmilliardenmässig auch_
+_eingeschlossen sind, das erklärte sie dir auch bereits damals. Welche negativen Geschehen und welche Gefahren für_
+_den guten Kurs Gorbatschows aber durch miese Machenschaften Machtgieriger, Extremer und Radikaler in ver -_
+_schiedenen russischen Ländern wie Aserbeidschan, Litauen, Lettland und Estland usw. in Erscheinung treten und die_
+_gesamte Arbeit Gorbatschows gefährden, davon hat sie dir nichts erzählt, ..._
+_Quelle: 122. Kontakt, 3. Februar 1983, 22.31 Uhr_
+
+Im Oktober 1985 machte Michail Gorbatschow im Namen der Sowjetunion den Vorschlag, mit der Abrüstung
+und der Reduzierung von Streitkräften der Sowjetunion und den USA zu beginnen. Im gleichen Monat schlug
+er bei der Sitzung des Politbüros eine ‹Lösung für Afghanistan› vor, die die Notwendigkeit des Abzuges der
+sowjetischen Truppen aus dem Land zum Inhalt hatte (die Entscheidung wurde nicht akzeptiert, und der Abzug
+der sowjetischen Truppen fand erst im Jahr 1988 statt).
+Im Dezember 1986 holte Gorbatschow Andrej Sacharow aus dem politischen Exil und lud ihn nach Moskau ein,
+um ihm die Möglichkeit zu geben, am internationalen Anti-Kriegs-Kongress teilzunehmen.
+Andrej Sacharow (geb. 21. Mai 1921, Moskau – gest. 14. Dezember 1989) war sowjetischer Physiker, Mitglied der
+Akademie der Wissenschaften der UdSSR und einer der Erbauer der ersten sowjetischen Wasserstoffbombe.
+Anschliessend war er Sozialaktivist, ein Dissident und Menschenrechtsaktivist und Friedensnobelpreisträger im
+Jahr 1975.
+
+
+-----
+
+Für seine Menschenrechtsaktivitäten wurden ihm alle sowjetischen Auszeichnungen und Preise aberkannt und
+1980 wurde er mit seiner Frau Elena Bonner aus Moskau deportiert. Ende 1986 erlaubte Michail Gorbatschow
+Sacharow, aus dem Exil nach Moskau zurückzukehren, was in der Welt als ein wichtiger Meilenstein bei der
+Beendigung des Kampfes gegen Dissidenten in der Sowjetunion angesehen wurde.
+Am 1. Oktober 1988 wurde Gorbatschow zum Vorsitzenden des Präsidiums des Obersten Sowjets der UdSSR
+gewählt und damit zum Staatsoberhaupt. Am 25. Mai 1989 wurde er zum Staatspräsidenten gewählt.
+Am 15. März 1990, beim dritten ausserordentlichen Kongress der Abgeordneten, wurde Gorbatschow zum
+Präsidenten der Sowjetunion gewählt – der erste und letzte in der Geschichte der Sowjetunion. Im Dezember
+1991 wurde Gorbatschow Vorsitzender des Rates des Verteidigungsministeriums der UdSSR, also Oberbefehlshaber der Streitkräfte der UdSSR.
+Im Juli 1990, auf dem XXVIII. Parteitag der KPdSU, wurde Gorbatschow als Generalsekretär der Kommunistischen Partei wiedergewählt.
+Medien berichteten, dass Gorbatschow in dieser Zeit eine Politik der Offenheit führte; insbesondere bei der
+Erklärung des Presserechts erklärte Gorbatschow 1990, dass die staatliche Zensur abgeschafft werde. Es gab eine
+umfangreiche Kampagne zur Rehabilitierung der Opfer politischer Repressionen. Im Oktober 1990 erhielt der
+sowjetische Präsident des Obersten Rates zusätzliche Befugnisse, um das Programm namens ‹Hauptrichtungen
+der Stabilisierung der Wirtschaft und der Übergang zu einer Marktwirtschaft›, das die Gründung der ‹geregelten
+Marktwirtschaft› ins Auge fasste und von einer Gruppe um Nikolai Ryschkow und Leonid Abalkin vorbereitet
+war, zu implementieren resp. einzuführen.
+1990 erhielt Gorbatschow in Anerkennung seiner Führungsrolle im Friedensprozess, der heute wichtige Teile der
+internationalen Gemeinschaft kennzeichnet, den Friedensnobelpreis. Die Vergabe des Preises wurde von der
+deutschen Führung vorgeschlagen, aus Dankbarkeit gegenüber dem Präsidenten der UdSSR für die Position, die
+er in der Frage der Wiedervereinigung Deutschlands eingenommen hatte.
+Im Juli 1991 unterzeichnete Gorbatschow den Vertrag zwischen der UdSSR und den USA über die Reduzierung
+und Begrenzung der strategischen Offensivwaffen.
+Im April 1991 unterzeichnete Gorbatschow in einer Vereinbarung mit den Führern der 10 Sowjet-Unionsrepubliken
+die gemeinsame Ausarbeitung des neuen GUS-Vertrages (Gemeinschaft Unabhängiger Staaten), der entwickelt
+wurde, um die Sowjetunion zu bewahren. Die Unterzeichnung der Vereinbarung wurde für den 20. August geplant.
+Anfang August war Gorbatschow mit seiner Familie auf die Krim geflogen, um dort seinen Urlaub zu verbringen
+und vor dem 20. August wieder nach Moskau zurückzukehren. Aber am 18. August schufen einige seiner engsten
+Mitarbeiter ein Staatskomitee für den Ausnahmezustand. Das ‹Staatskomitee für den Ausnahmezustand› war
+eine selbsternannte Behörde in der UdSSR, die unter der Führung von Vizepräsident Gennady Janajew nur vom
+18. bis zum 21. August 1991 bestand. Das Komitee wurde geschaffen, um dem sowjetischen Präsidenten Michail
+Gorbatschow und den Perestroika-Reformen entgegenzuwirken. Die Putschisten stellten an den Präsidenten
+Forderungen, die darin bestanden, dass die ganze Macht dem ‹Staatskomitee für den Ausnahmezustand› übergeben
+werden sollte.
+Nachdem Gorbatschow auf diese Forderungen nicht einging, wurde er mit seiner Familie in der Präsidenten-Villa
+in Foros unter Lebensbedrohung drei Tage lang isoliert. Gorbatschow kehrte erst am 21. August 1991, nach dem
+Putschversuch, nach Moskau zurück.
+Noch Anfang 1991, als von seiten verschiedener sowjetischer Republiken die Stimmen lauter geworden waren
+und sie Unabhängigkeit forderten, entschloss sich der Präsident der UdSSR, sich auf die Meinung des Volkes zu
+verlassen. Am 17. März 1991 wurde eine Volksabstimmung über die Frage durchgeführt, die so formuliert war:
+«Möchten Sie die Erhaltung der Union der Sozialistischen Sowjetrepubliken als einen erneuten Zusammenschluss
+von gleich souveränen Republiken, die die volle Gewähr für die Rechte und Freiheiten des Menschen jeder
+Nationalität bewahrt?» – ‹Ja› oder ‹Nein›? In Georgien, Litauen, der Republik Moldau, Lettland, den armenischen
+und estnischen SSR (Sozialistischen Sowjetrepubliken), wo die zentrale Macht das Referendum boykottiert hatte,
+stellten eine ganze Reihe von sowjetischen Rathäusern, Arbeitsgemeinschaften und ihre Vereinigungen eigene
+Wahllokale für das Referendum auf und führten die Wahlen durch.
+Die Zentralreferendumskommission gab nach den Wahlen die Ergebnisse des Referendums bekannt:
+In den Wahllisten waren insgesamt 185647355 Bürgerinnen und Bürger eingetragen, die das Recht hatten, sich
+an der Volksabstimmung der UdSSR zu beteiligen. An der Abstimmung nahmen 148574606 Personen teil oder
+80,0 % der Wahlberechtigten.
+Davon antworteten mit:
+Ja   – 113512812 Personen oder 76,4 %;
+Nein – 32303 977 Personen oder 21,7 %;
+
+
+-----
+
+Am 8. Dezember 1991 unterzeichneten der Präsident der Russischen Föderation, Boris Jelzin, der Präsident der
+Ukraine, Leonid Kravtschuk, und der Vorsitzende des Obersten Rates der Republik Belarus, Stanislav Schuschkevitsc,in Viskuli in der Nähe von Brest (Belarus) ein Abkommen über den Zusammenbruch der Sowjetunion und
+zur Gründung der Gemeinschaft Unabhängiger Staaten (GUS). Dieses Dokument wurde bekannt als die
+‹Belovezhskoe Vereinbarung›, die in der Präambel erklärte, dass «die UdSSR als Subjekt des Völkerrechts und als
+geopolitische Realität zu existieren aufgehört hat». Im Artikel I-1 wurde als nächstes erklärt: «Die Hohen Vertragsparteien vereinbaren die Gemeinschaft Unabhängiger Staaten zu bilden.» Das erklärte das Ende der UdSSR
+und zerstörte die ehemalige Supermacht Sowjetunion – gegen den Willen der Bevölkerung und deren Präsidenten
+Gorbatschow. Mit dem Ende der Sowjetunion als Staatseinheit und mit der Zerstückelung des Landes war
+Gorbatschow gezwungen, sein Amt als Staatsoberhaupt niederzulegen. Am 25. Dezember 1991 verkündete er
+seinen Rücktritt und unterzeichnete ein Dekret über die Übertragung der Verwaltung der strategischen Nuklearwaffen an den russischen Präsidenten Boris Jelzin.
+_Quelle: http://www.calend.ru/event/4462/ © Calend.ru_
+
+Gorbatschow äusserte sich einmal über die ‹Belovezhskoe Vereinbarung› – Die ‹Belovezhskoe Vereinbarung› ist
+demnach die Geschichte eines grossen Betruges.
+Wenn man jetzt aber im Internetz über die Meinung der Bürger Russlands hinsichtlich der damaligen Rolle
+Gorbatschows in den tragischen Zeiten des Zerfalls der UdSSR recherchiert, als er alles in seiner Macht stehende
+versuchte, um die Sowjetunion zu bewahren, sieht man meistens nur Unverständnis, Häme und Hass. Nur wenige
+sind in ihrem Verstand soweit gereift, dass sie die Rolle von Gorbatschow verstehen und ihm Respekt zollen. Die
+Ursache dafür gründet in erster Linie in der grossen Macht und in der damaligen mafiaähnlichen Macht der
+Bürokratie in der Sowjetunion und jetzt in Russland, wo fast ausschliesslich alle Medien der Bürokratie gehörten
+und gehören. So wurde vor ihrer Seite alles unternommen, um Gorbatschow zu verleumden und der Lüge zu
+bezichtigen, was ihnen auch gründlich gelang. Im Jahr 1996 liess sich Gorbatschow für die Wahl zum Präsidenten
+von Russland aufstellen und erhielt ein wenig mehr als 1 Prozent der Stimmen der Wahlberechtigten.
+Hier nur einige Beispiele davon, was in Medien betrieben wird, um die Rolle von Gorbatschow zu diskreditieren:
+
+#### Belege für die Abfälligkeiten gegenüber Gorbatschow:
+**Filme auf YouTube:**
+1) Die Stunde der Wahrheit – Wie der Verräter Gorbatschow die Sowjetunion getötet hat.
+2) Gorbatschow – Wie ich die UdSSR zerstört habe.
+3) Wie Gorbatschow geschmiert (bestochen) wurde und wie er die UdSSR vernichtet hat.
+
+**Dazu einige Kommentare von Zuschauern zu den YouTube-Filmen:**
+_Vladimir K. vor 3 Monaten:_
+Habe den Film bis zu Ende geschaut und mein Herz blutet. Wie konnte das passieren, dass ein so grosses Land
+zerstört wurde??? Über die Verräter – ich finde keine Worte!!! Die müssten gleich erschossen werden!!! Und in
+der ersten Reihe Gorbatschow …
+
+_sersch serschovitsch:_
+Wann verreckt dieser Bastard !!! Diesen Tag werde ich als grössten Feiertag feiern!
+
+Надежда З vor 5 Monaten:
+Gorbatschow – Juda!!!
+
+**Weitere Reaktionen auf Äusserungen von Gorbatschow zur Weltlage etc:**
+Michail Gorbatschow – Amerika muss gestoppt werden. Interview vom 19.12.2014:
+В новом выпуске программы SophieCo на вопросы ведущей Софико Шеварднадзе отвечает Михаил
+Горбачёв. Первый президент СССР говорит о расстановке сил на международной арене, настроенияхвобществеиобугрозевойны. ГоворяоботношенияхРоссиииСША, МихаилГорбачёвотметил,
+чтовСоединённых Штатахсохраняетсяинерцияполитикихолоднойвойны. Междутемамериканцы не хотят обострения ситуации, а страна нуждается в перестройке.
+Übersetzt: In der neuen Ausgabe des Fernsehprogramms ‹SophieCo› trifft die führende Korrespondentin Sofiko
+Schewardnadse auf Michail Gorbatschow. Der erste Präsident der UdSSR spricht über die Machtverhältnisse in
+der internationalen Staatengemeinschaft, die Stimmung in der Gesellschaft und über die Kriegsgefahr. Über die
+
+
+-----
+
+Beziehungen zwischen Russland und den USA erwähnt Michail Gorbatschow, dass in den Vereinigten Staaten
+die Trägheit der Politik des Kalten Krieges nicht überwunden sei. Inzwischen wollen selbst die Amerikaner nicht,
+dass die Situation in Gefahr gebracht wird und das Land braucht seine eigene Perestrojka (Umstrukturierung).
+Gorbatschow – Obamas Wahl, zum Präsidenten Amerikas, ist ein Zeichen des Wandels in der imperialistischen
+Politik.
+
+**Weitere Kommentare von Zuschauern:**
+_Wladimir Romanowski, 15. November 2014 12.20 Uhr:_
+Michail Gorbatschow – ein Phänomen der russischen Kultur, so wie Tolstoi, oder Mendelejew – hat sich in der
+Politik manifestiert zum Wohl von uns allen. Ihn muss man studieren, sich mit ihm treffen, solange es die Möglichkeit gibt, und froh sein, dass er bei uns war und noch weilt. Alles andere werden wir auch selbst versuchen zu
+verstehen … (Eine von wenigen positiven Stellungnahmen, die zudem nach einiger Zeit gelöscht war, wogegen
+die negativen Äusserungen unantastbar geblieben sind).
+
+_Afghan tramp vor 6 Monaten:_
+Es wäre notwendig gewesen, dich, der mit einem Kondom gekennzeichnet ist (Anspielung an das Muttermal an
+der Stirn), vor 30 Jahren gegen die Wände des Mausoleums zu werfen und zu stoppen, so dass man jetzt nicht
+Amerika zu stoppen bräuchte.
+
+_goscha sadunajskij vor 5 Monaten:_
+Dieser Bastard!!!! Er hat das Superreich mit seiner Perestroika (Umstrukturierung) zerstört, verwirrte Millionen
+von Menschen, und jetzt kriegt er für seine verrückten Ideen, die er in der UdSSR eingeführt hat, noch Gage vom
+Westen und von Amerika … Vielen Dank dir, Onkel Mischa, der in die Geschichte einging als Verräter.
+
+_Restaurateur. vor 6 Monaten:_
+Verräter! Verecke an dem Platz, wo du gerade jetzt lebst. Es ist ekelhaft, dass so ein liederliches Ding ein Russe war!
+_Quelle: https://www.youtube.com/watch?v=LwmHTxTHFg8&list=PLKQ6GZ9-xjbn76U_CG8NgiQPKj0m-VThG_
+
+Dazu möchte ich hinzufügen, dass Michail Gorbatschow nicht nur bezüglich seines schweren Kampfes für Frieden
+auf der Erde und die Erneuerung von Russland so viel Hass entgegengebracht wurde, sondern auch deswegen,
+weil er seine Frau Raisa Maximowna stets hoch geschätzt hat und sie als gleichwertig mit sich selbst erachtete. Sie
+war im gesellschaftlichen Leben sehr aktiv, nahm zusammen mit ihrem Mann an Treffen mit dem einfachen Volk
+teil und rief erstmals in der Geschichte der Sowjetunion die Wohlfahrt ins Leben. Das war sehr ungewöhnlich
+für die damaligen verkrusteten Verhältnissen in den höchsten Machtetagen, und das gefiel sehr vielen Männern
+in Russland natürlich überhaupt nicht, weshalb diese bis heute voll Hass und Missgunst sind und sogar spotten,
+dass nicht Gorbatschow das Land regiert habe, sondern Raisa Maximowna. Vor ihrem Tod soll Raisa Maximowna
+ihren Mann Michail Gorbatschow übrigens noch gebeten haben, dass er alle privaten Liebesbriefe vernichten
+solle, damit diese nicht in die schmutzigen Händen der Medien gelangen.
+
+Michail Gorbatschow ist die einzige Person, die während ihrer Lebenszeit nicht nur zu Hause in Russland zahlreiche Auszeichnungen und Titel erhalten hat, sondern auch im Ausland. In der Sowjetunion wurde Gorbatschow
+für seinen grossen persönlichen Beitrag zur Stärkung des Friedens und der Freundschaft zwischen den Völkern
+mit dem Orden des St. Andrew ausgezeichnet. Ausserdem wurde Gorbatschow mit dem Orden des Roten Banners,
+den drei Orden von Lenin, dem Orden der Oktoberrevolution, dem Orden ‹Ehrenzeichen› und Medaillen, sowie
+mit zahlreichen ausländischen Auszeichnungen geehrt. Er ist Autor mehrerer Bücher und Publikationen in
+wissenschaftlichen Bereichen und in Zeitschriften. Er interessiert sich für Theater, Kino und Musik.
+
+
+-----
+
+Gorbatschow ist Witwer. Er war glücklich verheiratet. Seine Frau, Raisa Gorbatschova (1932–1999), war an sozialen
+und karitativen Aktivitäten beteiligt. Raisa Gorbatschowa war am 20. September 1999 vorzeitig an einer der
+schwersten Formen der Leukämie gestorben. Sie wurde im Nowodewitschi-Friedhof in Moskau beigesetzt.
+
+_Foto: Michail Gorbatschow und Raisa Gorbatschowa_
+_Quelle: https://images.rambler.ru/search?query=михаил%20горбачев%20и%20раиса%20максимовна%20фото-_
+графии&adult=soft&i=1&utm_source=rambler-search&utm_medium=mixup&utm_campaign=images_up
+
+
+_Foto: Michail Gorbatschow mit seiner Frau und ihren Verwandten in früheren Jahren im Urlaub_
+_Quelle: https://vk.com/photo135717542_292716308_
+
+«Ich beobachte ständig, wie völlig fremde Leute am Grab von Raisa Maximowna sitzen und stehen», sagt die Leiterin
+des Nowodewitschi-Friedhofs, Galina Vasiljeva. «Irgendeine Art von Anziehungskraft hat diese Frau gehabt …
+Die Gorbatschows kommen sehr oft mit der ganzen Familie, bleiben eine lange Zeit und sind sehr traurig. Michail
+Sergeewitsch selbst pflegt das Grab. Und nie bittet er uns um irgendwas. Wahrscheinlich kann er das keinem
+fremden Menschen anvertrauen.»
+_Quelle: http://samsud.ru/blogs/ih-znali-milliony/segodnja-ispolnjaetsja-15-let-so-dnja-sm-23328.html_
+
+_Quelle: https://images.rambler.ru/search?query=михаил%20горбачев%20и%20раиса%20максимовна%20фото-_
+графии&adult=soft&i=1&utm_source=rambler-search&utm_medium=mixup&utm_campaign=images_up
+
+
+2006 schuf Michail Gorbatschow in Erinnerung an seine Frau die Gorbatschowa-Stiftung: Die Organisation ist
+auf Projekte zur Bekämpfung von Leukämie und Krebs ausgerichtet und finanziert sie. 2001 leitete die Gorbatschow-Stiftung den Bau des Zentrums für Pädiatrische Hämatologie und Transplantation, genannt nach Raisa
+Gorbatschowa, als Teil der Medizinischen Staats-Universität von St. Petersburg.
+In bezug auf sein schweres Leben, in dem ihm immer wieder sehr viele Widersacher und Feinde gegenüberstanden
+und er seine Politik oft unter Bedrohung seines eigenen Lebens durchgesetzt hat, schreibt Michail Gorbatschow:
+
+
+-----
+
+«1973 hatten wir im Stawropoler Land (wo er regierte) ernsthafte Probleme mit der Kriminalität. Die Städte und
+Dörfer wurden von einer regelrechten Woge des Verbrechens überrollt. Von unserer Seite wurden alle möglichen
+Massnahmen ergriffen, um die Ausschreitungen zu unterbinden. Unter anderem wurden viele korrupte Leute in
+der Polizei ersetzt usw. Das gefiel damals dem Minister des Inneren, Nikolaj Tschölokow, gar nicht und er sagte,
+dass ‹dieser Mann vernichtet werden muss›. Das schaffte er nicht.»
+_Quelle: Michail Gorbatschow ‹Erinnerungen›, Siedler Verlag, Seite 157_
+
+Nach dem Ausscheiden aus dem Amt des Präsidenten der UdSSR war für die Gorbatschows eine neue sehr
+schwierige Etappe im Leben angebrochen, die nicht leicht auszuhalten war. So schrieb Michail Sergeewitsch: «Ich
+_habe ein paar Fotos für meine engsten Mitarbeiter unterzeichnet. Der gesunde Menschenverstand sagte mir damals:_
+_Wir haben erst begonnen, das Leben geht weiter, diejenigen irren, die glauben, dass die Ära Gorbatschow beendet ist._
+_Dies ist nur der Anfang.»_
+_Während ich die Post durchforste, ruft mich die betrübte Raisa an. Sie sagt, dass die neuen Behörden Leute zu unserer_
+_Präsidentschaftswohnung in Moskau geschickt haben, sowie zur offiziellen Sommerresidenz (Datscha), mit der Auf-_
+_forderung, diese zu verlassen. Bei alledem haben sie sich geweigert, einen Hilfstransport für den Umzug zur Verfügung_
+_zu stellen. Ich musste mich scharf und resolut (und in Russisch) mit den eifrigen Kommandanten der neuen Regierung_
+_auseinandersetzen, bis sich die Lage beruhigt hat._
+_Neulich fand ich in meinem Archiv eine Notiz:_
+_Über die Privatisierung der Wohnung:_
+_Michail. S. Gorbatschow und Raisa M. Gorbatschowa haben am 28. Dezember 1991 einen Vertrag mit dem Ausschuss_
+_für Wohnungspolitik der Moskauer Regierung geschlossen, gemäss dem Artikel 7 des Gesetzes über die Privatisierung_
+_des Wohnungsbestandes in der RSFSR (Russische Sozialistische Föderative Sowjetrepublik), wodurch sie jeweils zu_
+_gleichen Teilen Besitz für die Wohnung erwerben, die sie in der Kossygin Strasse teilen. Die Gesamtnutzfläche beträgt_
+_140 m², wobei der Wohnbereich 65,1 m² einnimmt. Die Bürger M. S. Gorbatschow und die Bürgerin Raisa Gorbat-_
+_schowa müssen die privatisierte Wohnung auf eigene Kosten unterhalten und reparieren._
+_In dieser Wohnung lebten früher die Leibwächter zum Schutz des Präsidenten der UdSSR._
+_Die Frau Notarin, die die Kopie des Vertrags über die Privatisierung vom 29. Dezember 1991 beglaubigte, fragte dann_
+_meinen Assistenten überrascht: «Ist es jetzt wirklich wahr, dass die Gorbatschows nun im Besitz von nur dieser kleinen_
+_Wohnung sind?» Und die von unseren Wohnungen in der Eile freigegebene staatliche Präsidentenwohnung inspizierte_
+_Jelzin persönlich, wie mir erzählt wurde, aber ihm hatte sie nicht gefallen. Mit der Genehmigung der neuen Behörden_
+_wurde sie dann mehrmals weiterverkauft._
+_Auszug aus dem Buch Michail Gorbatschow, ‹Erinnerungen›, Seite 265:_
+
+_Was fühlt ein Mensch, dessen Lebensschicksal darin bestand, Leiter der Geschicke der Supermächte zu werden, in den_
+_Situationen, die in den ersten Monaten des Jahres 1992 entstanden waren? Ehrlich gesagt, war es nicht einfach, all_
+_dies durchzustehen. Im Leben des Landes und in meinem eigenen Leben begannen neue Etappen. Illusionen hatte ich_
+_keine – es wird schwierig und hart. Ströme von Lügen, Schmutz und Verleumdungen werden in vollem Umfang über_
+_mich ausgegossen. Mit zunehmender wirtschaftlicher Not wird nach einem Sündenbock gesucht, und der Kandidat –_
+_da ist er! Und so geschah es. Was hat mich in den ersten Monaten nach dem Ausscheiden aus dem Kreml unterstützt,_
+_was hat mir Kraft gegeben, nicht zu zerbrechen?_
+_Unterstützt haben mich die grundlegenden Prinzipien des Lebens, denen ich treu war, mein Charakter, die Erfahrung_
+_des Kampfes, welche ich im Leben durchstehen musste. An erster Stelle unterstützten mich die Menschen in meiner_
+_Nähe – vor allem Raisa, meine ganze Familie. Unterstützt haben mich auch meine Freunde und Mitarbeiter, die im_
+_Laufe der Perestroika mit denjenigen zusammen waren, mit denen ich mich schon damals befreundet habe, die nicht_
+_aus Profit, sondern mir aus Überzeugung in meiner Arbeit bei den neuen Projekten halfen._
+_Aber vor allem half mir die Überzeugung für die Perestroika, dass sie von einer historischen Notwendigkeit war, und_
+_mit Übernahme dieser schweren Last haben wir sie mit Würde getragen. Trotz der Fehler und Schnitzer hatten wir_
+_das Land aus der historischen Sackgasse herausgeführt. Wir gaben ihm die erste Erfahrung der Freiheit, emanzipierten_
+_die Menschen, haben ihnen Gelegenheit gegeben, nach eigenem Gutdünken zu leben. Wir beendeten den Kalten Krieg,_
+_das nukleare Wettrüsten._
+_Für mich war es in dieser Zeit sehr wichtig, und es bleibt auch heute wichtig, dass viele meiner Landsleute das ver-_
+_standen hatten. Ihre Briefe, Worte des Verständnisses und der Unterstützung, die ich bei den Treffen und in Gesprächen_
+_mit verschiedenen Leuten gehört hatte, bestätigen dies. (…)_
+_Quelle: Aus dem Buch von M. Gorbatschow ‹Nach dem Kreml›_
+
+
+-----
+
+Die Rolle von Michail Gorbatschow in der Geschichte werden die Menschen erst in weiter Zukunft wirklich begreifen, obwohl Billy und die Plejaren, unter anderem Semjase, Quetzal und Ptaah, schon jetzt unmissverständlich klargelegt haben:
+**_Ptaah:      Dem ist tatsächlich so. Gegenwärtig ist alles relativ ruhig, und nichts deutet auf einen neuen resp. Dritten_**
+_Weltkrieg hin. Alle vorangegangenen Zeichen in vielfältiger Zahl sind nur Zeichen geblieben, die ihre Bedeutung ver-_
+_loren haben und gegenstandslos geworden sind. Die bestandene Gefahr eines Dritten Weltkrieges hat sich für die_
+_Gegenwart endgültig gelegt und die diesbezügliche Prophezeiung wurde in ihrem Wahrwerden abgewendet durch den_
+_rapiden Wandel in vielen Ländern und in der gesamtpolitischen Weltlage, was einzig und allein auf das Tun und_
+_Wirken von Michail Gorbatschow zurückzuführen ist._
+_250. Kontakt, Mittwoch, 26. Oktober 1994, 16.23 Uhr, ‹Plejadisch-plejarische Kontaktberichte›, Block 7, Seite 319_
+
+**FIGU-Sonder-Bulletin Nr. 36, Leserbriefe:**
+_Antwort von Billy: «Grundlegend wird der massgebende Schritt in bezug auf die Aussage von grösserer Hoffnung und_
+_dereinstigem Frieden in der Welt erst in fernerer Zukunft getan, also nicht zur heutigen oder morgigen Zeit. Dabei_
+_werden russische Mächte im Spiel sein, die einerseits nichts mit Putin zu tun haben und denen es zu verdanken sein_
+_wird, dass sich endlich friedensmässige Lichtblicke auf der Erde ergeben. Das Ganze wird sehr lange nach Putins_
+_Regierungszeit und ein Fakt sein, der erst nach mehreren Generationen zu wirken beginnt. Zwar wurde bereits durch_
+_Michail Gorbatschow der eigentliche Grundstein für die Geschehen der Zukunft in genannter Form gelegt, doch die_
+_Mühlen des Menschen der Erde mahlen langsam, folglich noch Jahrhunderte vergehen werden, ehe sich die Voraus-_
+_sagen erfüllen.»_
+Johann Flaum, Deutschland
+
+### ‹Hegemon› um jeden Preis: Die Arroganz der USA in Syrien gegen Russland ist unübertroffen
+_Sputnik; Fr, 08 Dez 2017 17:36 UTC_
+
+_© Foto: U.S. Marine Corps/ Sgt. Ally Beiswanger_
+
+Das ist ein starkes Stück: Es sei vor allem die US-geführte Koalition gewesen, die grosse Teile Syriens vom IS
+befreit habe, erklärte kürzlich das Pentagon. Alles Lüge, sagt der ehemalige britische Botschafter in Syrien, Peter
+Ford. Damit solle nur die rechtswidrige US-Präsenz auf syrischem Boden gerechtfertigt werden.
+Dass die USA und ihre Verbündeten für die Zerschlagung des IS in Syrien ausgesprochen wenig getan haben,
+müsse wohl kaum ausgeführt werden. «Russland und Syrien haben die Hauptlast im Kampf gegen den IS auf
+sich genommen. Sie haben die meisten Opfer zu beklagen, während die Verluste der USA an einer Hand abgezählt
+werden können», sagte der britische Ex-Botschafter im Sputnik-Gespräch.
+Die Lüge über ihre Rolle in Syrien verbreiteten die USA nur, weil sie Russland den Erfolg nicht gönnten, erklärt
+Ford: «Die Amerikaner können sich nicht damit abfinden, dass ihr Syrien-Plan und das Vorhaben eines Regime**Change vereitelt wurde.»**
+Das Pentagon hatte zuvor erklärt, die Vereinigten Staaten wollten in Syrien bleiben, um Partner zu unterstützen
+und die Rückkehr von Terroristen zu verhindern. Es stelle sich nur die Frage, welche Partner die USA in einem
+Land haben können, das deren Präsenz auf eigenem Boden nie erlaubt hat.
+Eine rechtmässige Grundlage für die US-Präsenz in Syrien gebe es in der Tat nicht, betont der britische Diplomat.
+«Die Ankündigung, sie würden nur bleiben, um die Rückkehr des IS zu verhindern, ist nichts als ein schlecht
+getarnter Rechtfertigungsversuch.» Zumal der IS als ernstzunehmende Kampfgrösse erledigt sei, auch wenn die
+Terrormiliz natürlich noch Anschläge verüben könne.
+
+
+-----
+
+**«Die Amerikaner benutzen das alles schlicht als einen Vorwand für ihre weitere Präsenz in Syrien. Sie hatten**
+gehofft, dadurch die Lage destabilisieren und Syrien in einen kurdischen Teil und restliche Gebiete aufsplittern
+zu können», sagte Ford im Sputnik-Gespräch.
+Doch dieser Plan werde nicht aufgehen. «Denn wenn sie in Syrien bleiben, werden sie Verluste hinnehmen
+müssen. Es wird Attacken auf ihre Soldaten geben und volle Särge. Und das Wichtigste: Weder die Iraner noch
+ihre Verbündeten werden Syrien verlassen, solange dort auch nur ein US-Soldat bleibt.»
+Inzwischen seien die Vereinigten Staaten in Syrien so etwas wie ein ‹Spoiler›, ein Spielverderber: «Die USA
+**haben keine konstruktive Kraft. Ihre Politik besteht darin, den Friedensprozess zu verkorksen. Sie wurden von**
+den Gesprächen in Genf und Sotschi praktisch ausgeschlossen und geben jetzt den Spielverderber.»
+Alles, was die USA jetzt tun müssten, sei indes, den Wiederaufbau in Syrien nicht länger zu behindern. «Die
+USA lassen ihre Sanktionen gegen Syrien immer noch weiterbestehen. Für die syrische Wirtschaft ist das ein
+gewaltiger Schaden, weil das Land faktisch vom internationalen Zahlungssystem ausgeschlossen ist.»
+Statt die Lage endlich zu akzeptieren, folgen die Vereinigten Staaten indes der Devise ‹Der Stärkere hat recht›, sagt
+Peter Ford. «Die Arroganz der USA gegenüber dem Völkerrecht ist hinlänglich bekannt. Ein weiteres Beispiel
+können wir jetzt auch beim Jerusalem-Beschluss beobachten. Das alles verstösst gegen das Völkerrecht.»
+Trump verhalte sich hierbei nicht sonderlich anders als seine Vorgänger: «Die bisherigen US-Präsidenten verfolgten im Grossen und Ganzen die gleiche Politik. Das ist der rote Faden der US-Politik seit vielen Jahren», so der
+Ex-Diplomat. So schnell werde sich das auch nicht ändern. «Die USA geben sich in Syrien falschen Hoffnungen
+**hin, wenn sie glauben, dort bleiben zu können, ohne einen hohen Preis dafür zahlen zu müssen.»**
+_Quelle: https://de.sott.net/article/31954-Hegemon-um-jeden-Preis-Die-Arroganz-der-USA-in-Syrien-gegen-Russland-ist-un-_
+_ubertroffen_
+
+### EU-Diktatur: Strafaktion gegen Polen
+_By Gaby Kraal on 20. Dezember 2017_
+**Es gibt mal wieder Streit in der EU. Polens Justizreformen erregen die Gemüter von Radikal-Europäern, denen**
+**es nicht schnell genug gehen kann, die Nationalstaaten zu zerschlagen.**
+Die illegitime EU-Kommission ist mit Polen unzufrieden und droht dem Land die Stimmrechte zu entziehen:
+Die von den Europäern niemals demokratisch legitimierte Behörde beantragte daher am Mittwoch ein neues
+Schmankerl, ein bis dato nie eingesetztes Strafverfahren, das bis zum Entzug von Stimmrechten auf EU-Ebene
+führen soll, berichtet die Agence France Press (AFP). Jetzt sollen die Mitgliedstaaten entscheiden und man darf
+gewiss sein, dass die Abgeordneten – wie so oft – nicht wissen was sie tun, weil sie entweder über die Kernthematik
+nicht informiert werden, oder sich erst gar nicht einlesen.
+
+#### EU-Recht bricht nationales Recht nicht
+Die europäische Kommission verklagt Polen bereits in einem schon laufenden Vertragsverletzungsverfahren zur
+nationalen Justizreform nun auch vor dem Europäischen Gerichtshof. Dieser hatte im übrigen zur Migrationskrise unlängst festgestellt, dass sogar die Genfer Flüchtlingskonvention, womit die Bundesregierung und ganz
+vorne an die umstrittene deutsche Bundeskanzlerin gerne ihre illegale und rechtsbrecherische Migrationspolitik
+entschuldigen, nationales Recht nicht brechen.
+Polens Regierung hat in den vergangenen Jahren rund 13 Gesetze verabschiedet, die ‹eine ernsthafte Gefahr für
+die Unabhängigkeit der Justiz› und der Gewaltenteilung darstellten, erkärt EU-Vize-Kommissionspräsident
+Frans Timmermans das scharfe Vorgehen. ‹Gemeinsames Muster› der Reformen sei, dass sie der regierenden
+Mehrheit die Möglichkeit gegeben hätten, ‹systematisch› in das Funktionieren des Justizsystems einzugreifen.
+Eine von der Kommission angeblich angestrebte Lösung für beide Seiten des Konflikts sei gescheitert, sagte der
+Holländer. Jetzt möchte die Behörde als ‹Hüterin der Verträge› handeln und ‹schweren Herzens› das Verfahren
+nach Artikel 7 EU-Vertrag einleiten.
+Der polnische Ministerpräsident Mateusz Morawiecki verteidigt unterdessen die Justizreform Polens gegen die
+einseitige Kritik der EU-Kommission. Die Reform sei absolut notwendig, schrieb Morawiecki am Mittwoch auf
+Twitter und versucht wie immer mehr Politiker dem guten Beispiel Donald Trumps zu folgen und mit einer
+Veröffentlichung auf den Social Media, den Fake News der EU-nahen Massenmedien zu begegnen. Für Polen
+sei der Rechtsstaat genauso bedeutsam wie für die Europäische Union, versicherte Morawiecki. Neutrale Beobachter sind entsetzt, weil Polen sich für die Einleitung nationaler Justizreformen rechtfertigen müsse. Polen trete
+
+
+-----
+
+für einen Dialog in Offenheit und Ehrlichkeit ein. Polens Politiker sprechen von 80 Prozent der Polen, die sich
+**für die Justizreform stark machen.**
+Die polnische Regierungspartei weist das undemokratische Störmanöver selbsternannter Pro-Europäer auf das
+Schärfste zurück und verurteilt die angedrohte Verwarnung, den Entzug der Stimmrechte als ‹politisch motiviert›.
+Die Entscheidung der Brüsseler Behörde entbehre jeder Grundlage, erklärte eine Sprecherin der polnischen
+Partei PiS am Mittwoch in Warschau. «Das ist in unseren Augen eine rein politische Entscheidung», zitiert die
+polnische Nachrichtenagentur PAP, Sprecherin Beata Mazurek.
+
+_EU-Ideologe Frans Timmermans_
+
+Frans Timmermans betonte aber der Ordnung halber, dass Brüssel weiter für einen ‹konstruktiven Dialog› mit
+Warschau gesprächsbereit bleibt. Dazu erstellte die Kommission einen Massnahmenkatalog (Empfehlungen)
+an Polen, den Konflikt im Sinne der EU beizulegen.
+
+#### Polen tanzt aus der Reihe
+Das hier angesprochen Verfahren nach Artikel 7 EU-Vertrag wurde bisher niemals gegen einen Mitgliedstaat
+der EU eingeleitet. Jetzt müssen das Europaparlament zustimmen und die Mitgliedstaaten mit einer Mehrheit
+von vier Fünfteln, also mindestens 22 Staaten, und feststellen, dass es in Polen eine ‹eindeutige Gefahr einer
+schwerwiegenden Verletzung› von europäischen Grundrechten gibt.
+Redaktion
+_Quelle: https://schluesselkindblog.com/2017/12/20/eu-diktatur-strafaktion-gegen-polen/_
+
+### Wie andere Länder auf illegale Übertretung ihrer Grenzen reagieren
+_18. Dezember 2017; Michael Mannheimer_
+
+**Nicht jeder meiner Artikel ist lang. Dies ist der kürzeste meiner bislang fast 5000 Artikel. Das Bild sagt alles,**
+**was es zu sagen gibt.**
+_Quelle: https://michael-mannheimer.net/2017/12/18/wie-andere-laender-auf-illegale-uebertretung-ihrer-grenzen-reagieren/_
+
+
+-----
+
+### Roter Senat verhöhnt Berliner Terror-Opfer
+_By Gaby Kraal on 19. Dezember 2017_
+#### «Haushalts- und verwaltungsrechtlich notwendig» – Terror-Opfer in Deutschland nur ein Verwaltungsakt
+Angela Merkel hatte ein gutes Jahr benötigt – und das auch nur unter monatelangem Druck –, den TerrorOpfern und deren Angehörigen vom Berliner Weihnachtsmarkt jene Anteilnahme zuzugestehen, die sie Opfern
+von Terror-Anschlägen im Ausland, medienwirksam, stets sofort zuspricht.
+Für die Berliner Opfer und die Angehörigen des LKW-Attentäters Anis Amri wird jetzt eigens dafür ein Denkmal
+auf dem Breitscheidplatz in der Hauptstadt eingeweiht. Ein skandalöser Brief des roten Bürgermeisters Michael
+Müller sorgt unterdessen für Empörung und Wut bei den Hinterbliebenen.
+Wie die Bild-Zeitung berichtet, wurden zum ersten Jahrestag des Terroranschlags in Berlin die Angehörigen der
+zwölf Todesopfer und über 50 Verletzte zur Enthüllung eines Mahnmals an der Gedächtniskirche geladen. In
+diesem Zusammenhang hat jetzt Berlins Bürgermeister Michael Müller einen die Opfer verhöhnenden Brief
+verfasst, der die Opfer darüberhinaus zutiefst beleidigt zurücklässt.
+
+_Ein Bagger hebt am 6.12.2017 in Berlin gravierte Betonstufen für die Gedenkstätte des Terroranschlages_
+_auf den Weihnachtsmarkt an der Gedächtniskirche im Dezember 2016 in die Höhe. (Foto:dpa)_
+
+_Schreiben des Berliner Bürgermeisters_
+
+Erst rührte sich Angela Merkel 12 Monate nicht, nun gibt es die volle Verachtung für Opfer und Angehörige von
+SPD Bürgermeister Müller:
+
+#### Taxikosten werden nicht übernommen, PKW-Anreise mit 20 Cent/Kilometer erstattet
+Die Betroffenen waren wütend und empört über das Schreiben des Bürgermeisters. Ein Angehöriger einer
+ermordeten Weihnachtsbummlerin meint dazu: «Der Staat lässt Terroristen laufen und hilft den Opfern kaum.»
+Im Anhang des Schreibens, der sieben Punkte enthält, heisst es: «Taxikosten werden nicht erstattet. Es müssen
+öffentliche Verkehrsmittel benutzt werden.»
+Weiter steht geschrieben: «Bei Anreise mit einem privaten Pkw nach Berlin werden Ihnen 0,20 Euro pro gefahrenem
+Kilometer erstattet.» Unter Punkt 4 soll darauf hingewiesen werden, dass die Pkw-Kosten nur bis zu einem Betrag
+erstattet werden, der nicht höher als der für ein Bahn- oder Flugticket sei.
+«Sie wollten nur Geld sparen, alles war sehr kalt. Sie haben nicht versucht, uns zuzuhören oder unsere Bedürfnisse
+zu verstehen. Die Behörden haben mit ihrem Verhalten noch zu unserem Schmerz beigetragen.»
+Eine der Versehrten sagte gegenüber der Bild-Zeitung: «Gerade jetzt, wo sich herausstellt, dass die Behörden und
+somit der Staat eklatante Fehler gemacht haben, eine Mitschuld tragen, hätte ich mehr Grosszügigkeit erwartet.»
+Eine Berliner Senats-Sprecherin meinte dazu nur schnippisch: Das Schreiben sei ‹haushalts- und verwaltungsrechtlich notwendig›. Den dadurch möglicherweise entstehenden Eindruck bedaure sie.
+_Quelle: https://schluesselkindblog.com/2017/12/19/roter-senat-verhoehnt-berliner-terror-opfer/_
+
+
+-----
+
+-----
+

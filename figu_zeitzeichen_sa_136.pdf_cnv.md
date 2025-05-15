@@ -1,0 +1,1498 @@
+11. Jahrgang
+Nr. 136/Jan./1 2025
+
+
+Erscheinungsweise:
+sporadisch
+
+
+#### Sonderausgabe
+## FIGU ZEITZEICHEN
+
+###### Aktuelles • Einsichten • Erkenntnisse
+
+Internetz: http://www.figu.org
+E-Brief:  info@figu.org
+
+
+###### Organ für freie, politisch unabhängige Berichterstattungen zum Weltgeschehen, kommentarlose, neutrale und meinungslose Weitergabe von Zeitungsberichten. ***************************************************************************
+Laut ‹Allgemeine Erklärung der Menschenrechte›, verkündet von der Generalversammlung der Vereinten Nationen am 10. Dezember 1948,
+herrscht eine allgemeine ‹Meinungs- und Informationsfreiheit› vor, und dieses unumschränkte Recht gilt weltweit und absolut für jeden
+einzelnen Menschen weiblichen oder männlichen Geschlechts jeden Alters und Volkes, jedes gesellschaftlichen Standes wie auch in
+bezug auf rechtschaffene Ansichten, Ideen und jeglichen Glauben jeder Philosophie, Religion, Ideologie und Weltanschauung:
+
+**Art. 19 Menschenrechte**
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit, Meinungen**
+**unangefochten anzuhängen und Informationen und Ideen mit allen Verständigungs-**
+**mitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Ansichten, Aussagen, Darstellungen, Glaubensgut, Ideen, Meinungen sowie Ideologien jeder Art in Abhandlungen, Artikeln
+und in Leserzuschriften usw. müssen in keiner Art und Weise zwingend identisch mit dem Gedankengut und den
+Interessen, mit der ‹Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens›, wie auch nicht in
+irgendeiner Sachweise oder Sichtweise mit dem Missionsgut und dem Habitus der FIGU verbindend sein.
+==================================================================================
+==================================================================================
+Für alle in den FIGU-Zeitzeichen und anderen FIGU-Periodika publizierten Beiträge und Artikel verfügt die
+FIGU über die notwendigen schriftlichen Genehmigungen der Autoren bzw. der betreffenden Medien!
+###### ****************************************************************************************
+
+**Auf vielfach geäusserten Wunsch aus der Zeitzeichen-Leserschaft sollen in den Zeitzeichen zur Orientierung der**
+**Rezipienten laufend Auszüge diverser wichtiger Belange aus neuest geführten Kontaktgesprächsberichten**
+**veröffentlicht werden, wie nach Möglichkeit auch alte sowie neue Fakten betreffs weltweit bösartig mit**
+**Lügen, Betrug, Verleumdung und Mordanschlägen gegen BEAM geführte Kontroversen.**
+
+###### **********************************************************************************
+ Das Wichtigste im Leben: Eigene, freie, selbständige, wirklichkeitsorientierte Gedanken bilden und nicht  dem Scheindenken eines Glaubens verfallen
+
+
+-----
+
+Quelle: www.neutralitaet-ja.ch
+
+
+-----
+
+-----
+
+-----
+
+###### Südkorea/USA – Duo Blinken/Sullivan zündeln was das Zeug hält; offenbar sind wir knapp an einer Katastrophe vorbeigekommen
+Freitag, 27. Dezember 2024, von Freeman-Fortsetzung um 07:28
+
+Was der Putschversuch in Südkorea mit der Ukraine zu tun hatte
+26 Dez. 2024 12:32 Uhr
+
+**Es erinnert an einen Operettenputsch, was am 3. Dezember in Südkorea passierte. Und man könnte ver-**
+**sucht sein, es als Spinnerei eines irregeleiteten Präsidenten abzutun. Aber inzwischen ist klar, dass die**
+**Pläne weit umfassender waren und nur sehr knapp scheiterten.**
+Proteste in Südkorea für die Amtsenthebung von Präsident Yoon, 11. Dezember 2024
+Von Dagmar Henn
+
+Drei Wochen nach dem gescheiterten Putschversuch in Südkorea, den Präsident Yoon Suk-yeol durch die
+Verhängung des Kriegsrechts unternommen hatte, wird langsam deutlicher, dass Südkorea nur um Haaresbreite einer erneuten Militärdiktatur entronnen ist. Und nebenbei klärt sich auch das Rätsel, warum seit
+Wochen ständig behauptet wird, in Russland befänden sich Truppen aus der DVRK – die Lösung liegt in
+Südkorea.
+Am späten Abend des 3. Dezember hatte Yoon das Kriegsrecht erklärt, und wenige Minuten später waren
+im Netz bereits Bilder von Panzerkolonnen in den Strassen von Seoul zu sehen. Die darauffolgende Nacht
+gestaltete sich dramatisch: Etwa 200 Abgeordnete verschafften sich Zugang zum Parlamentsgebäude und
+verbarrikadierten sich dort, um die Abstimmung durchzuführen, die nach den Gesetzen des Landes das
+Kriegsrecht wieder aufheben kann. Während Parlamentsmitarbeiter hinter Barrikaden aus Mobiliar und
+durch Einsatz von Feuerlöschern den Sitzungssaal abschirmten, versuchten Spezialeinheiten des Militärs,
+diesen noch vor der Abstimmung zu stürmen.
+Als dann das Mehrheitsvotum des Parlaments vorlag, das das Kriegsrecht zurückwies, dauerte es noch
+mehrere Stunden, bis Yoon Suk-yeol sich dieser Entscheidung beugte und das Militär wieder von den Strassen abzog. Inzwischen hat das südkoreanische Parlament die Amtsenthebung des Präsidenten beschlossen; an der dafür erforderlichen Zweidrittelmehrheit waren auch Abgeordnete der Regierungspartei beteiligt, die im Parlament eine Minderheit von etwa einem Drittel der Abgeordneten stellt.
+Während dieser Ereignisse und selbst danach war die offizielle Reaktion aus Washington auffällig langsam.
+In der Pressekonferenz des State Department vom 3. Dezember, die aufgrund der Zeitverschiebung stattfand, als der Ausgang in Südkorea noch nicht klar war, wich der Sprecher, Vedant Patel, mehrmals direkten
+Nachfragen der Presse aus, ob das State Department die Verhängung des Kriegsrechts verurteile. Im Vergleich zu anderen politischen Ereignissen, wie ‹unpassenden› Wahlergebnissen in Ländern wie Georgien,
+ein äusserst unübliches Zögern.
+Im Zusammenhang mit diesen Ereignissen stellte sich auch die Frage, ob und inwiefern dieser Putschversuch mit dem Ukraine-Konflikt in Zusammenhang steht. Südkorea besitzt schliesslich eine recht leistungsfähige Rüstungsindustrie, und es hatte bereits zuvor geheissen, die USA hätten dort Granaten gekauft und
+an die Ukraine liefern lassen. Ein weiterer Punkt, der in Versuchung führen könnte, ist die Tatsache, dass
+Südkorea die deutschen Taurus-Marschflugkörper nutzt, die schon lange auf der Kiewer Wunschliste für
+Angriffe tief nach Russland hinein stehen. Das Parlament, in dem die Opposition etwas weniger als 200 von
+300 Sitzen belegt, hatte jedoch nicht allzu lange vor dem Putsch Rüstungslieferungen an die Ukraine abgelehnt, die Präsident Yoon befürwortete.
+
+
+-----
+
+Inzwischen klärt sich ein wenig die Vorgeschichte. Der koreanische Journalist KJ Noh hat die Erkenntnisse
+zusammengefasst, die unter anderem das Parlament mittlerweile zusammengetragen hat. Das Ergebnis
+lautet: Die Katastrophe, die in dieser Nacht abgewendet wurde, hätte nicht nur das Volk Südkoreas getroffen.
+Bereits um 23 Uhr Ortszeit sollte eine koreanische Spezialeinheit, die 707. Brigade, das Gebäude der Nationalversammlung eingenommen haben. Das wäre nur eine halbe Stunde nach der Ansprache des Präsidenten gewesen, in der das Kriegsrecht verkündet wurde.
+Die Hubschrauber, mit denen diese Einheit zum Parlamentsgebäude gebracht werden sollte, erhielten
+wegen des dichten Luftverkehrs über Seoul jedoch keine Flugerlaubnis, sodass die Truppen erst gegen
+23.48 Uhr dort eintrafen. Zu diesem Zeitpunkt hatten sich die Parlamentarier bereits Zugang zum (von der
+Polizei gesicherten) Gebäude verschafft und sich im Inneren verbarrikadiert, um die Abstimmung durchzuführen.
+Die Planungen umfassten noch weitere Details. So sollten die Führer sämtlicher Parteien gefasst und entführt werden; in einem Gespräch mit Garland Nixon vor einigen Tagen fügte KJ Noh noch hinzu, ursprünglich sollten sie wohl anschliessend ermordet werden, allerdings so, dass die DVRK dieser Taten beschuldigt
+werden könne. Dass es derartige Greiftrupps gab, war bereits in der Nacht des Putschversuchs bekannt
+geworden.
+Die Besetzung des Parlaments war zentral, um die Aufhebung des Kriegsrechts zu verhindern. Schliesslich
+sah diese Erklärung ein Verbot aller politischen Aktivitäten vor, eine vollständige Medienzensur und ein umfassendes Streikverbot. Wäre die Geschichte Südkoreas nicht von einer langen Reihe von Militärputschen
+geprägt, und wäre die Demokratisierung nicht so blutig erkämpft worden, es wäre kaum möglich gewesen,
+dass tatsächlich eine ausreichende Zahl Abgeordneter sich mehr oder weniger unmittelbar nach der Verhängung des Kriegsrechts auf den Weg ins Parlament machte, um den Beschluss zu seiner Aufhebung zu
+fassen.
+KJ Noh schätzt, dass die Planung für diesen Putschversuch auf dem erfolgreichen Putsch von Chun Doohwan im Jahr 1979 beruhte, und unter anderem daran scheiterte, dass die Mobilisierung der Gegenseite
+durch die sozialen Medien zu schnell war, die es zur Zeit des Musters noch nicht gegeben hatte.
+Die erfolgreiche Abstimmung im Parlament bremste die weiteren Pläne aus. Verteidigungsminister Kim
+Yong-hyun, der inzwischen in Haft einen Suizidversuch begangen hat, hatte geplant, Artillerie und Raketen
+gegen die DVRK einzusetzen, was zusammen mit der geplanten Ermordung der Politiker einen Krieg mit
+der DVRK auslösen sollte. Damit erklärt sich auch eine Passage in der Kriegsrechtserklärung, die erst einmal
+wie ein Rückgriff in die Rhetorik der Vergangenheit wirkte: «Um ein liberales Südkorea vor den Bedrohungen durch Nordkoreas kommunistische Truppen zu schützen ... rufe ich hiermit das Kriegsrecht aus.»
+Waren die USA nun an diesen Plänen beteiligt oder nicht? Im Grunde spricht alles für eine Beteiligung.
+Nicht nur die grundsätzliche Art der Beziehung zwischen dem südkoreanischen und dem US-Militär, bei
+der im Kriegsfall grundsätzlich das Kommando an die US-Truppen übergeht. Auch die Tatsache, dass gerade die Spezialeinheit, die für die Besetzung des Parlaments zuständig gewesen wäre, ständig zusammen
+mit entsprechenden US-Einheiten trainiert, weshalb eine völlige Unkenntnis der USA über dieses Vorhaben
+unmöglich gewesen wäre. Die Hubschraubertransporte zum Parlament wurden, auch das wurde inzwischen
+bekannt, über Monate hinweg geübt.
+Im März dieses Jahres hatte Antony Blinken auf dem US-Demokratiegipfel, der in Südkorea stattfand, das
+Land explizit als «eine der stärksten, dynamischsten Demokratien der Welt, ein Champion der Demokratie
+für die Welt», gepriesen. Südkorea sei einer der weltweit ausschlaggebenden Staaten.
+Es gibt jedoch noch einen Faktor, der auf diese Vorkenntnis hinweist: die Erzählung über Truppen der DVRK
+im Ukraine-Konflikt. Dieses Narrativ steht derzeit etwas monolithisch in der Landschaft, hätte aber im Zusammenhang mit den südkoreanischen Putsch- und Kriegsplänen eine ganz andere Funktion erfüllt: Die
+Öffentlichkeit des Westens schon einmal auf den beabsichtigten koreanischen Krieg einzustimmen, indem
+dadurch der bereits etablierte Feind Russland auf die DVRK erweitert wird. Es handelt sich hier sozusagen
+um ein Bruchstück aus einer weitaus umfassenderen Gesamterzählung, das nun, da es nach dem gescheiterten Putschversuch und dem ausgebliebenen Krieg keinerlei Anschluss mehr findet, etwas verloren in der
+Weltgeschichte steht. Denn gesetzt den Fall, die Planungen in Südkorea wären so abgelaufen, wie sie inzwischen ermittelt wurden, hätte kaum jemand mehr nach Beweisen für die besagte Anwesenheit in Russland
+gefragt, da die Kriegshandlungen in Korea selbst einen scheinbaren Beleg geliefert hätten.
+Tatsächlich stützt auch die eigenartige Reaktion von Sprecher Patel auf der Pressekonferenz des State Department die Vermutung, dass die US-Regierung an diesen Planungen beteiligt war. Denn gerade in einer
+solchen Situation, in der ein Parlament die Errichtung einer Militärdiktatur verhindert, sollte man erwarten,
+dass es keinerlei Mühe kostet, sofort zu erklären, man stehe selbstverständlich aufseiten der Demokratie.
+Und wenn es nur zum Schein wäre. Die erkennbare Ratlosigkeit deutet weit eher darauf hin, dass ein Konzept existierte, das durch die Parlamentsabstimmung gescheitert ist, und Patel plötzlich mit ganz anderen
+Fragen konfrontiert wurde, statt eine vorbereitete Erklärung abzuliefern, den Putsch (und möglicherweise
+
+
+-----
+
+sogar den Krieg) zu rechtfertigen. Eine Abweichung von einem vorhandenen Plan verursacht immer weit
+grössere Probleme als eine Reaktion auf eine Situation, die man zuvor nicht kannte.
+Auf jeden Fall beweist der Umfang dieser Planungen, dass die gegenwärtige US-Regierung tatsächlich auf
+jedem nur denkbaren Gebiet versuchen wird, einen ‹heissen› Konflikt zu entfachen, ehe sie abtritt. Allerdings
+dürfte es, sofern die Menschheit die letzten Wochen der Biden-Regierung übersteht, interessant werden zu
+sehen, ob und welche Konsequenzen diese Manöver innerhalb der Vereinigten Staaten selbst haben werden. Schliesslich hat inzwischen sogar das Wall Street Journal eingestanden, dass die tatsächlichen Regierungsentscheidungen nicht von Präsident Joe Biden, sondern von Sicherheitsberater Jake Sullivan und Aussenminister Antony Blinken getroffen werden.
+Die südkoreanischen Kriegsplanungen jedoch hätten dazu geführt, dass die Vereinigten Staaten unmittelbar in einen Krieg verwickelt würden, der durch das Bestehen eines Beistandspakts zwischen der DVRK
+und der Russischen Föderation letztlich eine unmittelbare Konfrontation zwischen den USA und Russland
+herbeigeführt hätte. Das alles auf Grundlage der Entscheidungen nicht gewählter Amtsträger, die ihre eigene Legitimität nur von jener eines kognitiv nicht funktionalen Präsidenten ableiten, und Situationen provozieren und planen, die das Entscheidungsrecht des US-Kongresses über Krieg und Frieden vollständig umgehen. Nach der Verfassung der Vereinigten Staaten ist das, was das Duo Blinken/Sullivan begangen hat,
+wenn sich ihre Verwicklung in den südkoreanischen Putschversuch nachweisen lässt, Hochverrat.
+Wie immer in derartigen Fällen werden die kompletten Zusammenhänge erst in einiger Zeit auf dem Tisch
+liegen. Aber es wäre auf jeden Fall wichtig, wenn die Klärung der Ereignisse des 3. Dezember nicht an den
+Grenzen Südkoreas Halt machen würde.
+Quelle: http://alles-schallundrauch.blogspot.com/2024/12/sudkorea-usa-duo-blinkensullivan.html#ixzz8vayBpktb
+
+###### Europa hat den Krieg in der Ukraine verloren –  aber es könnte noch schlimmer kommen! Ein Kommentar der Politologin Clara Statello für ‹AntiDiplomatico›.
+Veröffentlicht am 27. Dezember 2024 von KD. Lesedauer: 6 Minuten.
+Dieser Beitrag wurde mit freundlicher Genehmigung von l’AntiDiplomatico übernommen.
+
+Bild: 242434047 © Scaliger | Dreamstime.com
+
+Die Europäische Union hat den Krieg in der Ukraine verloren. Dies erklärte der ungarische Premierminister
+Viktor Orbán am Sonntagabend im Fernsehsender M1. «Trotz aller Versuche, dies zu leugnen», sei die Situation klar: Russland rücke an der Front vor, und die EU müsse sich an die neue Realität anpassen.
+Orbán gibt sich als ‹Erwachsener im Raum›. Sollte Europa direkt in den Krieg eingreifen, wäre die Niederlage
+noch gravierender. «Es ist notwendig, dass der Konflikt begrenzt bleibt.» Die EU müsse ‹realistische Ziele›
+definieren.
+
+**Die Niederlage Europas**
+Nur wenige Stunden nach ihrer Amtseinführung als Hohe EU-Vertreterin für Aussen- und Sicherheitspolitik
+erklärte Kaja Kallas gegenüber Journalisten der italienische Presseagentur ANSA, dass die EU einen Sieg
+der Ukraine unterstütze und daran arbeite, diesen zu erreichen. Die Frage sei jedoch, was unter ‹Sieg› zu
+verstehen sei.
+Kiew scheint sich damit abgefunden zu haben, die unter russischer Kontrolle stehenden Gebiete aufzugeben. Nach einer anfänglichen Bereitschaft zu vorübergehenden territorialen Zugeständnissen räumt Präsident Selensky (den Moskau als illegitim ansieht) inzwischen ein, dass die Ukraine nicht in der Lage sei, den
+
+
+-----
+
+Donbass und die Krim zurückzuerobern. Zugleich fordert er von seinen Partnern mehr Waffen, mehr Geld
+und eine NATO-Einladung, um bei künftigen Verhandlungen ‹aus einer Position der Stärke› zu agieren und
+diese Gebiete diplomatisch zurückzugewinnen.
+Obwohl einige italienische Journalisten, die ‹selenskyanischer› sind als Selensky selbst, behaupten, dies sei
+keine Kapitulation, muss man sich der Tatsache stellen, dass die Ukraine und ihre europäischen Partner
+ihre strategischen Ziele verfehlt haben.
+Kiew wird die Grenzen von 1991 nicht wiederherstellen können. Kiew und die EU werden weder die Zerschlagung Russlands noch die Isolierung Putins oder einen Regimewechsel in Moskau erreichen. Sie haben
+den Krieg verloren.
+Brüssel versucht nun, neu zu definieren, was unter einem strategischen Sieg für Kiew zu verstehen ist. Um
+zumindest formal nicht das Gesicht zu verlieren, wird die Zielsetzung bereits heruntergeschraubt und auf
+realistischere Vorhaben nach einem Waffenstillstand ausgerichtet: Alternative Garantien zur NATO-Mitgliedschaft, die Entsendung europäischer Friedenskräfte, militärische Lieferungen und Kredite, die durch russische Vermögenswerte abgesichert werden.
+Seit den Erklärungen von Kallas am 1. Dezember hat sich das Narrativ grundlegend verändert. Politico hat
+den radikalen Wandel in den offiziellen Aussagen der EU-Institutionen zusammengefasst: von «Die Ukraine
+muss gewinnen» über «Russland darf nicht siegen» hin zu «Das Völkerrecht muss durchgesetzt und die
+Invasion gestoppt werden». Die EU passt sich nur mühsam an das neue Szenario an und bleibt dabei aussen vor, während der gewählte US-Präsident Donald Trump erste Kontakte mit dem Kreml aufnimmt, um
+Verhandlungen über einen Waffenstillstand einzuleiten.
+Das Hauptziel sollte darin bestehen, bei künftigen Verhandlungen mit am Tisch zu sitzen. Ein Ausschluss
+würde das Ende der geopolitischen Rolle der EU besiegeln und sie auf eine blosse Anhängselrolle der USA
+reduzieren. Zwei Faktoren deuten darauf hin, dass dies der Fall sein könnte:
+
+1. Die von Trump gestartete Initiative erfolgte unilateral und richtete sich direkt an Putin. Laut Aussagen
+vom Sonntag soll ein Treffen zwischen den beiden Führungspersönlichkeiten unmittelbar bevorstehen.
+Dies deutet darauf hin, dass die EU und die Ukraine bei möglichen Verhandlungen passive Akteure und
+keine Gesprächspartner sein könnten.
+2. Ungarn und die Slowakei könnten eine Vermittlerrolle übernehmen. Dies zeigt, dass innerhalb der EU
+kein Konsens erzielt wurde, was ihrer Einheit und Glaubwürdigkeit als geopolitischer Akteur schadet.
+
+Zur Untermauerung dessen erklärte der zukünftige nationale US-Sicherheitsberater Mike Waltz kürzlich,
+dass es Trumps Aufgabe sein werde, zu entscheiden, wer an den Verhandlungstisch gehört, und die Bedingungen für eine Einigung festzulegen. Die europäischen Führer und die Ukraine werden sich anpassen
+müssen.
+
+**Die Konsequenzen für die EU**
+In einem globalen Szenario, in dem die wichtigsten Akteure Grossmächte sind, erscheint die EU wie ein
+Tongefäss zwischen eisernen Gefässen. Der gewählte US-Präsident scheint dies sehr wohl zu verstehen und
+handelt entsprechend. Innerhalb weniger Tage hat er Ansprüche gegenüber Kanada, Panama und Grönland
+geltend gemacht. Seine Strategie zeigt ein vorrangiges Interesse an der unmittelbaren Nachbarschaft, um
+den US-amerikanischen Exzeptionalismus auf dem Kontinent zu bekräftigen und die Rolle der USA als
+hegemoniale Macht und Garantin der internationalen Ordnung zu stärken.
+Daher ist es notwendig, den Konflikt in der Ukraine zu beenden – einen Krieg, den Washington gegen Europa bereits gewonnen hat: Die USA haben Europa geschwächt und es von Moskau entkoppelt.
+Die Analyse der Konsequenzen der Niederlage der EU in der Ukraine bedeutet auch, die Folgen des Sieges
+der USA zu betrachten. Erstens strebt Washington eine Reduzierung der NATO an, um sich aus Europa zurückziehen und auf strategisch wichtigere Regionen wie den asiatisch-pazifischen Raum und Lateinamerika
+konzentrieren zu können. Nachdem die europäischen Verbündeten zugesagt haben, das 2%-Ziel der NATOAusgaben zu erreichen, wird Trump laut Financial Times-Quellen eine weitere Erhöhung um 5% fordern.
+Diese Gelder werden grösstenteils in die US-amerikanische Verteidigungsindustrie fliessen. Als Nebenwirkung wird die EU nahezu vollständig ihre strategische Autonomie verlieren und fast ausschliesslich von den
+USA abhängig sein. Dies wird es Washington zudem ermöglichen, sein militärisches System zu stärken, mit
+positiven Auswirkungen auf die Industrie, die Wirtschaft und den Arbeitsmarkt.
+Europa hingegen wird seine Sozialausgaben – insbesondere für Renten und das Gesundheitswesen – kürzen müssen, um das Militärbudget zu erhöhen, wie Mark Rutte bei Carnegie Europe erklärte. Zusätzlich
+wird die EU die enormen Kosten für den Wiederaufbau der Ukraine tragen müssen.
+Schliesslich werden die europäischen Länder gezwungen sein, ihre Energieabhängigkeit von den USA zu
+erhöhen. Trump drohte mit umfassenden Zöllen, sollte die EU nicht das teure Gas und Öl aus den USA kaufen, um das Handelsdefizit (also den Exportüberschuss der EU) auszugleichen. Das Ende der Beziehungen
+
+
+-----
+
+zu Russland und die europäische Zurückhaltung gegenüber den BRICS werden alternative Strategien erschweren.
+Folglich haben einige europäische Führer begonnen, Tabus zu brechen und Gespräche mit dem Kreml aufzunehmen. Viktor Orbán, der nach einem Besuch in Mar-a-Lago an einer Weihnachts-Waffenruhe mit einem
+umfangreichen Gefangenenaustausch zwischen Kiew und Moskau arbeitet, stösst dabei nur auf den Widerstand Selenskys. Robert Fico traf sich am Sonntag mit Putin, um über Gaslieferungen zu sprechen. Der
+scheidende deutsche Kanzler Olaf Scholz plant ein Treffen mit dem russischen Präsidenten, um vor den
+deutschen Wahlen Ende Februar über Frieden zu sprechen.
+Der europäische Block wirkt zunehmend gespalten und zerrüttet, während Moskau immer weniger isoliert
+ist. Die EU riskiert, zur Anhängselmacht der USA zu werden und international an Relevanz zu verlieren.
+Clara Statello, diplomierte Politologin, hat als Korrespondentin und Autorin für Sputnik Italia gearbeitet. Sie schreibt
+unter anderem für L’Antidiplomatico und Pressenza. Ihre Leidenschaft gilt der internationalen Politik.
+Quelle:l'AntiDiplomatico: L'Europa ha perso la guerra in Ucraina (ma potrebbe finire anche peggio) - 23. Dezember
+2024
+Quelle: https://transition-news.org/europa-hat-den-krieg-in-der-ukraine-verloren-aber-es-konnte-noch-schlimmer
+
+Ein Artikel von Éva Péli; 25. Dezember 2024 um 12:00
+Titelbild: Shutterstock/OneSiderProFoto
+
+Wenn die deutsche Regierung in Brüssel ‹auf den Tisch gehauen› hätte, gäbe es keine EU-Strafzölle gegen
+China. Das sagt im Interview der China-Experte Sándor Kusai, ehemaliger Botschafter Ungarns in China,
+der Mongolei und der Demokratischen Volksrepublik Korea. Im Gespräch geht er auf die Wirtschaftsbeziehungen im Dreieck USA-EU-China ein und erklärt die Chancen auf eine neutrale Wirtschaftspolitik, um die
+sich Ungarn bemüht. Das Interview mit dem Botschafter a. D. Sándor Kusai führte Éva Péli, die es für die
+NachDenkSeiten aus dem Ungarischen übersetzt hat.
+
+**Éva Péli: Herr Botschafter, Sie waren von 2008 bis 2014 Botschafter in China, aber auch in der Mongolei**
+und in Nordkorea. Wie kam das?
+**Sándor Kusai: Da es damals keine ungarische Botschaft in diesen Ländern gab, habe ich Ungarn von Peking**
+aus vertreten. Ich war also auch Ungarns Botschafter in diesen beiden Ländern und bin regelmässig dorthin
+gereist.
+**E.P.: Worin sehen Sie die Gründe für die wirtschaftlichen und sozialen Erfolge Chinas und seinen Fortschritt**
+im Welthandel in den letzten Jahrzehnten? Wie lange halten Sie den derzeitigen Trend für nachhaltig?
+**Kusai: China hat eine sehr spezifische wirtschaftliche und soziale Struktur, die das Ergebnis von Reformen**
+ist, die 1979 begannen. Die Wirtschaftsstruktur ist durch ein starkes und bedeutendes öffentliches Eigentum gekennzeichnet, das eng mit Unternehmen im privaten Eigentum verflochten ist. Das Privateigentum
+hat ebenfalls an Bedeutung gewonnen, die beiden sind miteinander verflochten, und das chinesische Modell der Wirtschaftsführung spiegelt dies wider. China setzt sowohl die Instrumente der Planwirtschaft als
+auch die Marktmechanismen in koordinierter Weise ein. Dadurch ist es in der Lage, enorme Ressourcen
+auf Entwicklungsrichtungen zu konzentrieren, die für den wirtschaftlichen Fortschritt von überragender Bedeutung sind. China kann so in relativ kurzer Zeit grosse Sprünge in Technologie und Produktion machen
+sowie die Marktorganisation so verändern, dass die Wettbewerbsfähigkeit der chinesischen Produkte und
+der Wirtschaft steigt.
+
+
+-----
+
+Dieser Prozess wurde von einer tiefgreifenden Umgestaltung der Gesellschaft begleitet. Heute verfügt China
+über die grösste Mittelschicht der Welt, und sein riesiger Binnenmarkt ermöglicht es der chinesischen Wirtschaft, sich auf den internen Bedarf zu stützen. Dieser Reformprozess ging Hand in Hand mit der Integration Chinas in die Weltwirtschaft. Vor 1979 war China eine nach innen gerichtete Wirtschaft, doch dann
+wurde das Land zunehmend in die internationalen Produktionswertschöpfungsketten integriert. 2001 wurde China Mitglied der Welthandelsorganisation (WTO) und ist damit praktisch ein vollwertiger Akteur und
+eine treibende Kraft der Globalisierung geworden. China ist damit zum weltgrössten Industrieproduzenten
+und Exporteur und zu einem der grössten Verbraucher der Welt geworden.
+Wie lange das so bleiben wird, ist eine relativ einfach zu beantwortende Frage, aber gleichzeitig eine schwierige. Die chinesische Wirtschaftsstruktur wurde in den letzten 44 Jahren etwa alle zehn bis zwölf Jahre umfassenden Reformen unterzogen, um das schnelle Wachstum aufrechtzuerhalten und den Einfluss in der
+Weltwirtschaft zu erhöhen. Dies ist bisher sechsmal geschehen, wobei die sechste Reformwelle im Oktober
+2023 eingeleitet wurde.
+Wenn sie erfolgreich ist, wird das Wachstum Chinas vermutlich weiterhin relativ schnell verlaufen und sein
+Aufstieg sowie seine Stellung im internationalen Vergleich werden sich fortsetzen. Scheitert die Reformwelle, sind Krisenphänomene, wirtschaftliche, soziale und gesellschaftliche Probleme zu erwarten, und es
+könnte sich dann die Notwendigkeit einer Korrektur ergeben. Es ist zu früh, um zu sagen, wie das Ergebnis
+aussehen wird.
+**E.P.: Das Dreieck USA-EU-China ist inzwischen zu einem Feld für Sanktionen geworden, die in der Regel**
+von den USA und der EU initiiert werden. Inwieweit dienen diese Sanktionen den europäischen Interessen,
+und wie sehen Sie ihre schädlichen Auswirkungen?
+**Kusai: Sie dienen den europäischen Interessen nur sehr wenig oder gar nicht. Diese Sanktionspolitik zielt**
+darauf ab, die Entwicklung, das Wachstum und den technologischen Fortschritt Chinas zu bremsen und zu
+verhindern und damit Chinas Position in der Weltwirtschaft zu schwächen. Dies ist heute in erster Linie im
+Interesse der USA, das hat bereits unter der Obama-Regierung begonnen. Die Biden-Administration hat es
+intensiviert, und es scheint, dass auch die bald antretende zweite Trump-Administration Schritte in diese
+Richtung vorbereitet. Aber das werden wir nach dem Januar sehen.
+Leider hat sich die Europäische Union in letzter Zeit als unfähig erwiesen, die europäischen Interessen zu
+vertreten. Aus für mich unerklärlichen Gründen folgt sie blind der wirtschaftspolitischen Linie der USA, die
+auf Konfrontation mit China setzt. Ideologisch verblendet ist sie auch bereit, die Beziehungen zu Russland
+abzubrechen – und das, obwohl diese beiden Sanktionspolitiken der Wirtschaft und der Gesellschaft der
+Europäischen Union spektakulären Schaden zufügen, da sich das Leben der Menschen und die Struktur
+der Gesellschaft in eine ungünstige Richtung verändern. Ich sehe das als grossen Mangel. Ich verstehe einfach nicht, warum die europäischen Gesellschaften, die Wirtschaftseliten und die Anführer des europäischen Grosskapitals, die Milliarden von Euro einstreichen, zulassen, dass zum Beispiel gegen China zerstörerische Massnahmen zum Nachteil der europäischen Interessen ergriffen werden.
+Denn die Entwicklungen der letzten eineinhalb bis zwei Jahre zeigen deutlich, dass sie China zwar wirtschaftliche Schwierigkeiten bereiten, aber seinen Aufschwung keineswegs aufhalten und die chinesische
+Wirtschaft nicht zum Einsturz bringen. Schon heute sind chinesische Elektroautos billiger als europäische
+Autos. Sie sind auch qualitativ mindestens genauso gut, wenn nicht sogar besser, und mindestens 30 bis
+40 Prozent günstiger. Wir versuchen zu verhindern, dass chinesische Elektroautos nach Europa kommen,
+obwohl sie in der Zwischenzeit nicht schlechter geworden sind, während die europäischen Elektroautos leider nicht besser geworden sind. Die wichtigsten Märkte für chinesische Elektroautos sind jetzt Brasilien,
+Mexiko, Indien und eine Reihe anderer Länder in Südostasien. Mit anderen Worten, wir haben uns nicht
+nur in den Bereichen Elektronik, Mobiltelefone und Telekommunikation, sondern auch bei den Elektroautos
+selbst ‹erobert›. Wir geben den Vorteil eines billigen, aber qualitativ guten Produkts auf. Das ist nicht im
+europäischen Interesse – egal, wie gut es jemand meint, der diese Entscheidungen trifft, die ich für falsch
+halte. Ausserdem ist dies nicht nur ein wirtschaftliches und ein soziales Problem, sondern auch ein Problem
+der Ökologisierung. Denn wenn es nur sehr teure ‹grüne› Autos gibt, werden viele Menschen nicht in der
+Lage sein, sie zu kaufen, und folglich wird die Ersetzung der europäischen Autoflotte durch umweltfreundlichere Autos viel langsamer vonstattengehen.
+Wir schwächen unseren eigenen Einfluss und unsere Position, und die Chinesen strukturieren sich allmählich um, indem sie ihre Märkte auf Länder in den Schwellenländern mit einer beträchtlichen Mittelschicht
+und einer grossen Nachfrage verlagern, was den gegenwärtigen Druck kurzfristig mindert. Um nur ein Beispiel zu nennen: Im vergangenen Jahr war der Anteil der nichtwestlichen Länder am chinesischen Handel
+erstmals grösser als der der westlichen Länder. Mit anderen Worten: Das Handelsvolumen zwischen China,
+den USA und Europa ist geringer als das Handelsvolumen, das China mit dem Rest der Welt abwickelt.
+**E.P.: Sie verstehen also auch nicht, warum die EU gegen ihre eigenen Interessen handelt. Wie sehen Sie**
+die Interessen der stärksten europäischen Industriemacht Deutschland in der Sanktionsdimension USAEU-China?
+
+
+-----
+
+**Kusai: Ich will ganz offen sein: Was ich am wenigsten verstehe, ist die deutsche Haltung in dieser Frage.**
+Die deutsche Führung hat schwammig erklärt, dass sie keine Zölle auf chinesische Elektroautos unterstützt.
+Aber in Wirklichkeit hat Deutschland keine klare Kante gezeigt. Ich bin davon überzeugt, dass wir nicht
+gezwungenermassen in diese Strafzölle verwickelt wären, wenn die deutsche Regierung in Brüssel auf den
+Tisch gehauen hätte, der Präsidentin der Europäischen Kommission, die eine Deutsche ist, erklärt hätte, wo
+Gott wohnt – was sie tun kann, denn Deutschland ist bei Weitem das wirtschaftlich stärkste europäische
+Land. Aus irgendeinem Grund hat die deutsche Regierung nicht die Schritte unternommen, die von ihrer
+Seite aus vernünftig gewesen wären und die sie hätte tun können.
+Was ich ausserdem nicht verstehe, ist das Verhalten der Leiter der grossen deutschen Industriezweige in
+dieser kritischen Phase, insbesondere der Automobil-, Chemie- und anderen Schlüsselbranchen, die das
+Rückgrat der gesamten deutschen Wirtschaft sind. Denn der Prozess der Verschlechterung und des Abbaus
+der Wirtschaftsbeziehungen zwischen Europa und China trifft die deutsche Industrie und ihre Arbeitnehmer
+am unmittelbarsten und tiefsten und schadet jetzt und in Zukunft der deutschen Gesellschaft insgesamt.
+Ich sitze also hier in Ungarn, nicht allzu weit von Deutschland entfernt, und schaue mit staunenden Augen
+auf das Harakiri, das die deutsche Wirtschaft derzeit begeht.
+**E.P.: Im September hat der ungarische Ministerpräsident Viktor Orbán wirtschaftliche Neutralität erklärt,**
+und auch die Politik Budapests gegenüber China spiegelt ein hohes Mass an Autonomie wider, das in der
+EU manchmal kritisiert wird. Wie beurteilen Sie die Beweggründe für die Ankündigung des Programms?
+Wie stehen aus Ihrer Sicht die Chancen für eine neutrale Wirtschaftspolitik heute, da eine Vielzahl von Sanktionsregelungen gegen EU-Mitgliedstaaten verhängt wurden?
+**Kusai: Es gibt relativ geringe Möglichkeiten für Ungarn, erfolgreich, aber wirtschaftlich neutral zu sein, aber**
+diese sollten maximal genutzt werden. Schliesslich wissen wir, dass Ungarn weit davon entfernt ist, das entwickelteste Land in Europa zu sein, und der ungarische Lebensstandard ist, gelinde gesagt, nicht der höchste in Europa. Wir sind der Europäischen Union beigetreten, um die Entwicklung Ungarns zu beschleunigen,
+um aufzuholen, um den Lebensstandard der Österreicher und der Deutschen zu erreichen. Das war das
+Ziel der gesamten ungarischen Gesellschaft. Leider bietet die Europäische Union in ihrem jetzigen Zustand,
+in ihrem derzeitigen Entwicklungstrend nicht die Voraussetzungen für eine solche beschleunigte Entwicklung.
+Das Problem ist, dass sich die ungarische Wirtschaft nicht schneller entwickeln wird, wenn sich die europäische Wirtschaft so langsam oder gar nicht entwickelt. Es ist daher logisch, dass die ungarische Regierung
+versucht, Märkte, Technologie und Zusammenarbeit ausserhalb der Europäischen Union zu suchen. Die
+Entwicklung Ungarns erfordert breitere, globale Wirtschaftsbeziehungen. Es ist doch offensichtlich, dass wir
+ernsthafte Probleme bekommen werden, wenn wir nur in Europa bleiben.
+Deshalb hat sich Ungarn vor elf Jahren gegenüber China geöffnet. Das war damals logisch, und das ist es
+auch heute, denn China ist eine der am schnellsten wachsenden Volkswirtschaften der Welt. Der Markt dort
+expandiert, neue Technologien werden entwickelt, und es gibt unter anderem Elektroautos, Batterien, die
+an der Spitze der modernen Welt stehen. Deren Investoren können nach Ungarn gelockt werden. Was die
+Energieversorgung anbelangt, ist die Situation ähnlich: Ungarn blickt in Richtung Russland und Aserbaidschan, sodass wir auch andere Energiequellen beziehen können und beispielsweise nicht nur auf das extrem teure US-Gas angewiesen sind. Es gibt also einen rationalen Grund für diese sogenannte neutrale
+Wirtschaftspolitik.
+Aber Sie haben recht, dass das Sanktionsregime die Möglichkeiten der Wirtschaftspolitik einschränkt. Daher
+ist die Aufgabe der ungarischen Wirtschaftspolitik, auch die begrenzten Möglichkeiten zu nutzen. Und ich
+habe den Eindruck, dass sie das auch tut. Einerseits versucht sie, die Entfaltung des Sanktionsregimes in
+der EU zu verlangsamen, Einfluss darauf zu nehmen, dass es nicht zu neuen Sanktionen in Bereichen
+kommt, die für die ungarische Wirtschaft wichtig sind. Auf der anderen Seite versucht sie, die Möglichkeiten
+zu nutzen, die trotz der Sanktionen noch bestehen. Wir importieren zum Beispiel keine Elektroautos aus
+China mit hohen Zöllen, sondern wir bauen eine Elektroauto-Fabrik in Ungarn mit chinesischen Investitionen. Das ist ja durch die Sanktionen nicht eingeschränkt. Deshalb glaube ich, dass es mit einer akribischen
+Wirtschaftspolitik und sorgfältig geplanten Schritten möglich ist, die wirtschaftliche Neutralität zu verwirklichen.
+**E.P.: Wenden wir uns nun den Beziehungen zwischen den Vereinigten Staaten und China zu. Welche Ergeb-**
+nisse könnte die von Präsident Donald Trump gewählte Handelspolitik, die China zurückdrängen soll, angesichts der wirtschaftlichen Möglichkeiten der beiden Länder erzielen? Besteht die Gefahr einer totalen Konfrontation? Welche Rolle könnte Taiwan dabei spielen?
+**Kusai: Leider besteht die Möglichkeit, dass sich die Konfrontation zwischen den Vereinigten Staaten und**
+China ausweitet und vertieft. Wie die neue US-Regierung ihre wirtschaftliche, geopolitische und militärische
+Politik gegenüber China gestalten wird, bleibt abzuwarten. Ich habe die Sorge, dass diese konfrontative
+Politik fortgesetzt und sogar noch verschärft wird, was wiederum zu entsprechenden Reaktionen Chinas
+führen würde. China wird nicht kapitulieren, es wird sich auf diesen Kampf einlassen. Das zeigt sich daran,
+dass die Chinesen auf die bisherigen Beschränkungen mit Gegenbeschränkungen nicht nur gegenüber
+
+
+-----
+
+Europa, sondern auch gegenüber den Vereinigten Staaten geantwortet haben. Die chinesische Regierung
+beschränkt nun die Ausfuhr von seltenen Erden – wichtige Rohstoffe für die Technologieindustrie. Das ist
+eine direkte Reaktion auf die US-amerikanischen Exportbeschränkungen für Chips. China hat daraufhin
+verweigert, Germanium an die USA zu liefern, das für die Herstellung von Chips verwendet werden kann.
+Der chinesische Präsident sagt nun lächelnd: «Wenn Ihr mir keine amerikanischen Chips gebt, werde ich
+meine eigenen entwickeln.» China verfügt über alle Materialien, die Technik und das Geld, um sie zu entwickeln.
+Dies ist also kein einseitiger Kampf. Selbst wenn die chinesische Seite diesen Kampf nicht eskalieren will,
+besteht die grosse Gefahr, dass die US-Seite dies tun wird, zum Schaden der gesamten Weltwirtschaft.
+Nicht nur für die US-Wirtschaft, wo die Strafzölle die Warenpreise in die Höhe treiben werden. Die Preise
+werden steigen, die Inflation wird in Folge zunehmen. Für die amerikanischen Verbraucher wird der Zugang
+zu Produkten, die sie gewohnt sind, teurer werden. Zugleich wird sich das Wachstum in China verlangsamen. In der Tat wird diese Eskalation die negativen Auswirkungen für beide Seiten verstärken, nicht die
+positiven. Ich sehe im Moment keine besonders positiven Anzeichen dafür, dass wir dies vermeiden können.
+Wenn dies geschieht und die Eskalation zunimmt, dann wird Europa, und leider auch Deutschland und
+Ungarn, noch stärker davon betroffen sein. Leider wird sich die vollständige Eskalation der Konfrontation
+zwischen den USA und China eindeutig nachteilhaft auf uns in Europa auswirken, da wir – als EU- und
+NATO-Mitglieder – auf einer Seite der Gleichung stehen; so sehr sich beispielsweise die ungarische Regierung auch bemüht, sich ein wenig in Richtung Neutralität zu bewegen.
+**E.P.: Bleiben wir bei den Vereinigten Staaten: Was halten Sie von der in den letzten Tagen angekündigten**
+Absicht Trumps, 100 Prozent Zölle auf Importe aus den BRICS-Ländern zu erheben, wenn diese nicht auf
+ihre Absicht verzichten, das Dollarsystem zu verlassen und ein neues Zahlungssystem zu schaffen?
+**Kusai: Sagen wir einfach, dass ich die von Trump vorgebrachte Idee, diese Länder vom schönen US-Markt**
+auszuschliessen, für eine halbherzige Drohung halte. Der US-Markt ist in der Tat schön, aber er ist nicht
+mehr dominant, er macht nur noch etwa 15 Prozent des Weltmarktes aus. 1945 waren es 50 Prozent,
+1970 waren es 35 Prozent. Wenn man also diese Länder mit Zöllen oder anderen Sanktionen ausschliesst,
+werden sie sich nach einem anderen Markt umsehen, denn es gibt immer noch 85 Prozent der Welt, an
+die sie verkaufen können. Der gewählte US-Präsident hat dies damit begründet, dass diese Länder aus dem
+Dollarsystem aussteigen wollen. Doch sie wollen das Dollarsystem nicht verlassen. Diese Länder wurden
+von den USA hinausgedrängt. Russland ist vollständig von SWIFT abgeschnitten worden. Sie beschlagnahmten sein Vermögen im Westen, sie beschlagnahmten das Vermögen russischer Unternehmen und sogar
+von Privatpersonen. Auch eine beträchtliche Anzahl chinesischer Unternehmen wurde vom Markt ausgeschlossen. Das US-Finanzministerium droht den chinesischen Banken ständig damit, sie aus dem SWIFTSystem auszuschliessen.
+Nun, wenn man grosse und wichtige Länder ausschliesst, wollen sie sicher nicht singend und musizierend
+verhungern. Daher suchen sie nach anderen Lösungen. Und so entsteht langsam, ganz allmählich ein neues
+Zahlungssystem. Diese Länder handeln untereinander in ihren eigenen nationalen Währungen. Sie erlauben
+Überweisungen zwischen ihren eigenen Banken, die in nationalen Währungen erfolgen, unter Verwendung
+der Blockchain-Technologie, der modernsten elektronischen Methode. Die Konsequenz daraus ist, dass das
+US-Finanzministerium nicht sehen kann, was passiert, kann es also nicht verhindern, kann es nicht sanktionieren. Natürlich ist der US-Präsident darüber verärgert, aber kein hundertprozentiger Zoll wird diesen
+Prozess aufhalten. Es gibt nur eine Möglichkeit, ihn zu stoppen: Wenn der US-Präsident ankündigt, dass er
+ab morgen alle Länder wieder in SWIFT einbezieht und verspricht, dass sie das Dollarsystem, den Internationalen Währungsfonds nie wieder als politische Waffe einsetzen werden. Vielleicht bin ich in Finanzfragen
+nicht sehr bewandert, aber ich sehe die Strategie dahinter als einfach an. Ich glaube nicht, dass der USPräsident seine Drohung wahr machen wird, weil er es nicht kann. Und diese Länder werden keine Angst
+haben, denn sie haben nichts, wovor sie Angst haben müssten.
+**Über den Gesprächspartner: Dr. Sándor Zoltán Kusai ist Ausserordentlicher Professor an der Katholischen Péter-Páz-**
+mány-Universität in Budapest, unabhängiger Experte für internationale Beziehungen und China, Wirtschaftswissenschaftler sowie ehemaliger Botschafter Ungarns in China, der Mongolei und der Demokratischen Volksrepublik Korea.
+Quelle: https://www.nachdenkseiten.de/?p=126580
+
+###### Auszug aus dem Buch von BEAM:  ‹Wie der Mensch denkt, so gestaltet er sein Leben …›
+**Seite 3**
+
+«Ehe all das Nachfolgende gesagt und erklärt wird, ist zu erwähnen, dass der Mensch seine Gedanken richtig zu ordnen und in Anwendung zu bringen hat in der Weise, dass er selbständige Gedankengänge hegt
+und pflegt und zwar gemäss aller Richtigkeit der persönlichen und also absolut in keiner Form irgendwel
+
+
+-----
+
+cher aussenseitiger mentaler Einflüsse einer Erziehung, wie auch nicht vom Hörensagen und einem x-welchen religiösen und weltlichen Glauben, wie auch nicht von Indoktrinationen und Einflüsterungen usw., sondern nur stets ausgerichtet auf alle Werte der Wirklichkeit und deren Wahrheit sowie der weitumfänglichen und auch allzeitig gegebenen und gültigen Ethik und Moral. Es sei hier explizit vornweg gesagt: Wenn
+die religiösen, sektiererischen und weltlichen Glaubensformen angegriffen werden, und zwar im Zusammenhang mit dem Sektierismus, den Religionen und bezüglich weltlicher Ansichten usw., dann werden
+diese Formen von Lug, Betrug, Phantasie, Einbildung und von Illusionen geschwängerten Halluzinationen,
+irren und wirren Visionen, die in den Gedanken der Menschen glaubensmässig vernebelnd das freie und
+selbständige Denken verhindern, angeprangert. Damit **wird nicht der Mensch verunglimpft, der einem**
+Glauben irgendwelcher Form verfallen ist, sondern es wird die Wahrheit über die Lügen aufgedeckt. Und
+dass alles nur Lügen sind – und zudem sexuell abartige dazu –, das beweist das Christentum durch dessen
+angebliche Entstehungsgeschichte der Menschheit auf Erden. Primitiver und dümmer geht es wohl nicht,
+um mit Veräppelung Gläubige zu gewinnen, die nur glauben und nur Scheindenkende sind, sich jedoch
+**keine ureigene, offene, gute, richtige, freie sowie klare Gedanken machen, weil sie offenbar nicht fähig**
+dazu sind, sich selbständige Gedanken zu machen. **Eigene und völlig freie Gedanken zu machen wäre**
+**aber dringend erforderlich, denn dann würde begriffen, dass jeder Glaube in die Irre führt, die effective**
+**Wahrheit krass bestreitet und als Lüge bezeichnet.»**
+Zusammengestellt von Achim Wolf, Deutschland
+
+###### Dr. Naomi Wolf:  Pfizer hat den Tod von 8 Studien-Teilnehmern verheimlicht
+uncut-news.ch, Dezember 24, 2024
+
+depositphotos.com
+
+Dr. Naomi Wolf erhebt schwere Vorwürfe gegen Pfizer: Interne Dokumente sollen zeigen, dass Todesfälle
+im Kontext des Impfstoffes absichtlich verschwiegen wurden. Einer der bekanntesten Fälle betrifft eine 63jährige Frau aus Kansas, deren Tod Pfizer der FDA nicht rechtzeitig meldete, um die Notfallzulassung für
+den COVID-19-Impfstoff zu sichern. Dr. Wolf beleuchtet in ihrem Bericht, wie Protokollverstösse und eine
+fragwürdige Handhabung medizinischer Daten zu einer gravierenden Fehlinformation führten. Ihre Ausführungen werfen nicht nur Fragen über die Transparenz und Verantwortung des Unternehmens auf, sondern
+auch über die Sicherheit und den Zulassungsprozess des Impfstoffs.
+
+«Aus den internen Dokumenten von Pfizer geht hervor, dass die Meldung des Todes von acht geimpften
+Personen verzögert wurde, die an COVID gestorben sind.»
+
+
+-----
+
+«Und sie haben die Meldung trotz ihrer eigenen Protokolle, die vorschreiben, dass sie Todesfälle sofort
+melden müssen, verzögert, sodass sie die FDA falsch informieren konnten, um die Notfallzulassung zu
+erhalten, die die Einführung des Impfstoffs ermöglichte, von der wir alle wissen.»
+«Dieser Brief, geschrieben von Dr. Giante Kunadasan, einer unserer angesehensten Freiwilligen und Anästhesistin sowie OP-Ärztin, ist sehr tief in einen der Berichte über einen dieser Todesfälle eingedrungen –
+wie forensischer Journalismus, gepaart mit medizinischem Wissen. Und das ist sehr beunruhigend.»
+«Sie behauptet also, dass Pfizer es versäumt hat, der FDA den Tod einer Teilnehmerin aus Kansas mitzuteilen. Der Tod ereignete sich Berichten zufolge 41 Tage, nachdem diese Frau ihre zweite Impfdosis erhalten
+hatte, und dass die unterlassene Meldung zu einem kritischen Zeitpunkt erfolgte, an dem die EUA, die Notfallzulassung, entweder erteilt oder nicht erteilt werden würde.»
+«Was sehr, sehr beunruhigend ist, ist die Art und Weise, wie Dr. Kunadasan die schreckliche Misshandlung
+dieser armen Frau aufgreift, die zu ihrem, ich würde sagen, Mord geführt hat. Ich bin kein Anwalt, aber für
+mich sieht es definitiv nach Mord aus, ihr Tod durch Pfizer. Sie ist eine 63-jährige Frau aus Kansas. Und
+sie war Teilnehmerin dieses Prozesses an einem Forschungsstandort in Newton, Kansas.»
+«Diese Frau war von Anfang an nicht gesund. Sie war sehr gebrechlich, und jeder hätte es bemerkt, wenn
+er sie mit den Augen der Medizin betrachtet hätte, anstatt sie wie eine Laborratte zu behandeln. Zu ihren
+Vorerkrankungen gehörten Bluthochdruck und Depressionen.»
+«Aber Pfizer entschied, dass sie die Einschlusskriterien der Studie erfüllte. Sie erhielt die erste und die zweite Dosis und verstarb am 19. Oktober 2020. Sie war leicht übergewichtig, hatte einen Body-Mass-Index von
+27, war in der Postmenopause, litt an Depressionen, Bluthochdruck, Osteoporose, rheumatoider Arthritis,
+Schlafapnoe und nahm mehrere Medikamente ein.»
+«Zu ihren Medikamenten gehörten Trazodon und Sertralin gegen Depressionen, Pregabalin und Baclofen
+gegen degenerative Bandscheibenerkrankungen sowie Amlodipin und Hydralazin gegen Bluthochdruck. Sie
+nahm also jede Menge schwere Medikamente gegen ihre zahlreichen Beschwerden ein.»
+«Sie hat den Screening-Prozess abgeschlossen. Pfizer sagte: ‹Klar, komm rein, sei unser Versuchskaninchen.› Sie erhielt ihre erste Dosis am 18. August 2020 und die zweite am 8. September. Sie kam zur Nachuntersuchung am 7. Oktober, und dann starb sie 41 Tage nach der zweiten Dosis am 19. Oktober – 12
+Tage nach ihrem geplanten Nachuntersuchungstermin.»
+«Der Notfallkontakt informierte die klinische Abteilung von Pfizer über ihren Tod. Der Notfallkontakt war so
+beunruhigt über die offensichtliche Verbindung zwischen der zweiten Dosis und ihrem Tod, dass er Pfizer
+informierte. Dennoch gab es eine 37-tägige Verzögerung, bis Pfizer den Tod offiziell dokumentierte.»
+«Dies verstiess gegen die Protokolle von Pfizer. Ausserdem wurden ihr Tod und die Ergebnisse der Autopsie
+nicht während der Sitzung des Beratungsausschusses für Impfstoffe und verwandte biologische Produkte
+am 10. Dezember 2020 bekannt gegeben – der entscheidenden Sitzung, bei der die FDA über die Notfallzulassung entschied.»
+«Mit anderen Worten: Die Frau starb, wurde obduziert, und ihr Tod war so beunruhigend, dass der Notfallkontakt Pfizer informierte. Doch Pfizer hielt diese Informationen vor der FDA zurück. So konnte Pfizer fälschlicherweise behaupten, dass die Injektion sicher sei und man mit ihr besser dran sei als ohne.»
+«Wenn diese Todesfälle korrekt gemeldet worden wären, hätte Pfizer der FDA mitteilen müssen, dass das
+Risiko, mit der Injektion zu sterben, höher ist als ohne. Stattdessen vertuschte Pfizer auf grausame Weise
+den Tod dieser Frau und sieben weiterer Menschen.»
+«Pfizer wusste von diesen Todesfällen und hat sie nicht gemeldet. Deshalb ist dies jetzt an den Generalstaatsanwalt von Kansas gegangen.»
+«Diese Frau wurde in Kansas von Pfizer getötet, und Pfizer hat ihren Tod im Grunde vor der Regierung verborgen. Normalerweise durchläuft ein Impfstoff 10 bis 15 Jahre lang Tests, um seine Sicherheit zu gewährleisten. Die Notfallzulassung ist jedoch eine Ausnahme, die nur in Notfällen greift.»
+«Aber Pfizer hat den Tod dieser Frau verschwiegen, genau zu dem Zeitpunkt, als die FDA herausfinden wollte, ob der Impfstoff sicher ist. Ich kann nicht sagen, dass sie wusste, dass sie sich freiwillig für ein Experiment
+gemeldet hat.»
+«Dr. Kunadasan hat den Brief an den Generalstaatsanwalt geschrieben. Eine Frau ist durch schreckliche
+medizinische Misshandlungen gestorben, und ihr Tod wurde nicht ordnungsgemäss gemeldet. Für mich
+sieht es so aus, als wäre sie durch den Impfstoff gestorben.»
+«Ihr Arzt war so besorgt über die Verbindung zwischen der zweiten Spritze und ihrem Tod, dass er ihn meldete. Es gibt nichts, was darauf hindeutet, dass sie an ihren Vorerkrankungen gestorben ist. Aber Pfizer
+reichte den Autopsiebericht nicht rechtzeitig ein, sodass die FDA ihn nicht prüfen konnte.»
+«Für ihren Arzt sah es definitiv so aus, als ob der Impfstoff sie getötet hätte. Der Punkt ist, dass dies von
+der FDA geprüft werden sollte, bevor der Impfstoff für alle freigegeben wird. Und wir wissen, dass der Impfstoff nicht funktioniert, um COVID zu stoppen. Also nein, in keinem Szenario wäre es dieser Frau mit der
+Injektion besser ergangen.»
+Quelle: https://uncutnews.ch/dr-naomi-wolf-pfizer-hat-den-tod-von-8-studien-teilnehmern-verheimlicht/
+
+
+-----
+
+###### Israel erobert neue Dörfer in Südsyrien und schiesst  auf Demonstranten, die sich der Besatzung widersetzen
+news.antiwar.com, Dezember 24, 2024
+
+###### Israelische Bulldozer und Panzer rücken tiefer in den Südwesten Syriens vor
+Jason Ditz
+
+depositphotos.com
+
+Ursprünglich hiess es, es gehe um die Einrichtung einer neuen Pufferzone zwischen den von Israel besetzten Golanhöhen und dem Südwesten Syriens, doch der israelische Einmarsch nach dem Regimewechsel
+nimmt weiter zu.
+Die israelischen Truppen rückten im Rahmen ihrer fortgesetzten Operationen in die Dörfer Maariyeh und
+Jamlah vor. Dutzende von Einheimischen protestierten in der Nähe der al-Jazirah-Kaserne, etwas ausserhalb von Maariyeh, gegen die israelische Besetzung. Die israelischen Truppen eröffneten das Feuer mit
+scharfer Munition auf die Demonstranten. Mindestens ein Verletzter wurde bestätigt.
+Maariyeh und Jamlah liegen nur wenige Kilometer von der Purpurlinie entfernt, die den von Israel besetzten
+Golan vom übrigen Syrien trennt. Die Dörfer liegen auch auf der gegenüberliegenden Seite der bestehenden
+entmilitarisierten Zone, die für die UN-Disengagement-Beobachtungstruppen (UNDOF) eingerichtet wurde.
+Nach dem Sturz des syrischen Präsidenten Bashar al-Assad zu Beginn dieses Monats überschritt Israel die
+Purpurlinie und drang in syrisches Gebiet ein. Schon früh nahm es Gebiete um den Berg Hermon ein, der
+im nördlichsten Teil der UNDOF-Zone liegt. Der israelische Premierminister Benjamin Netanjahu war kürzlich zu einem Fototermin auf dem Berg Hermon und erklärte, dass die Truppen mindestens bis Ende 2025
+dort bleiben werden.
+Die nur ‹vorübergehende› Einnahme des UNDOF-Gebiets scheint nur eine Aufwärmübung gewesen zu sein,
+und es wurde berichtet, dass israelische Bulldozer und Panzer in das Naturschutzgebiet Jubata al-Khashab
+vorgedrungen sind, um Bäume und landwirtschaftliche Flächen in dem Gebiet zu platt zu machen. Berichten zufolge verbietet Israel den syrischen Landwirten in diesem Gebiet, ihre eigenen Felder zu bewirtschaften.
+Jetzt dehnt sich die israelische Armee auch über die UNDOF-Zone hinaus in die Gebiete des Yarmouk-Tals
+aus. Neben der Eroberung der oben genannten Dörfer sind sie Berichten zufolge auch in die Stadt Rafid
+vorgedrungen, wo sie die Aussenposten der syrischen Armee mit Bulldozern zerstörten und das Gebiet
+durchsuchten. Auch im Dorf Dschuba al-Khaschab haben sie Stellungen bezogen.
+Die internationale Kritik an den israelischen Angriffen hat zugenommen, und viele Länder haben Israel davor gewarnt, das Gebiet langfristig zu erobern. Obwohl es verfrüht ist, daraus zu schliessen, dass die Israelis
+beabsichtigen, dieses neue Gebiet in ihre besetzten Gebiete aufzunehmen, deutet die Tatsache, dass sie
+über die UNDOF-Gebiete hinausgehen, darauf hin, dass es hier mehr gibt, als man auf den ersten Blick
+sieht.
+Quelle: Israel Seizes New Villages in Southern Syria, Fires on Protesters Opposing Occupation
+Übersetzung: antikrieg
+Quelle: https://uncutnews.ch/israel-erobert-neue-doerfer-in-suedsyrien-und-schiesst-auf-demonstranten-die-sich-derbesatzung-widersetzen/
+
+###### Strack-Zimmermann warnt vor Putin
+Von Uwe Froschauer, Dezember 20, 2024
+
+Ich warne vor Marie Agnes Strack-Zimmermann, der im Juli 2024 neu per Akklamation gewählten Vorsitzenden des Verteidigungsausschusses des EU-Parlaments. Die 66-jährige trat als einzige Kandidatin für
+diesen Job an. Der Begriff Wahl bedeutet eigentlich wählen zwischen Alternativen, die es in diesem Fall je
+
+-----
+
+doch nicht gab. Höflicher Beifall reichte für ihr neues Amt aus. Vor ihrer Wahl zur Europaabgeordneten hat
+sie den Verteidigungsausschuss im Bundestag geleitet, und mit bellizistischen Mitstreitern wie Annalena
+Baerbock und Anton Hofreiter zusammen immer mehr Waffen für die Ukraine gefordert. Der ukrainische
+Präsident Wolodymyr Selensky hat jedem Mitglied des Trio Infernale in Anerkennung ihrer ‹Dienste› einen
+Orden umgehängt. Annalena Baerbock und die anderen zwei haben diese Ehrung in ihrer Unbedarftheit
+sicherlich auch als Lob für ihre Verdienste für die Ukraine und die Menschheit angesehen. Wie man sich
+doch täuschen kann!
+
+«Mit 66 Jahren, da fängt das Leben an
+Mit 66 Jahren, da hat man Spass daran.
+Mit 66 Jahren, da kommt man erst in Schuss.
+Mit 66 ist noch lang noch nicht Schluss …»
+
+besang Udo Jürgens in seinem Song ‹Mit 66 Jahren› dieses Schnapszahl-Alter. Da hatte er aber sicherlich
+nicht die bellizistischen Umtriebe mancher Politiker im Auge. Für den Weltfrieden wäre es wesentlich besser, wenn Kriegstreiber wie Marie-Agnes Strack-Zimmermann Schluss gemacht hätten mit ihrem von Bellizismus geprägten politischen Leben. Sie sollte sich lieber um ihre Enkel kümmern, anstatt dauernd die
+Kriegstrommel zu rühren. Dass Marie-Agnes Strack-Zimmermann Arbeitsplätze bei Rhein-Metall – Aktienkurs Stand 20.1.2022: 94 Euro; Aktienkurs Stand 20. Dezember 2024: 615 Euro – in ihrem Geburtsort
+Düsseldorf sichern möchte, kann man ihr ja wohl nicht verübeln, oder doch? So ein langgezogener Krieg
+ist noch immer der beste Kaufmann. Er macht aus Eisen Gold, wie schon Friedrich Schiller wusste.
+Am 18. Dezember 2024 warnte Strack-Zimmermann in Strassburg vor einem russischen Angriff auf die
+NATO: «Wir wissen, dass Putin sich vorbereitet», so Strack-Zimmermann. Woher ‹wir› das ‹wissen› – wer
+auch immer mit ‹wir› gemeint ist –, äusserte diese fragwürdige Dame allerdings nicht. Wahrscheinlich vom
+russophoben Fleischermeister in Strassburg, von dem die Ausschussvorsitzende immer ihre Taurus-Steaks
+bezieht.
+Marie-Agnes Strack-Zimmermann sieht Europa in der Pflicht, sich auf mögliche russische Angriffe vorzubereiten.
+Ich sehe die EU in der Pflicht, Frieden zu schaffen – und das nicht mit Waffen. Sollte die EU – mit Bellizistinnen wie die in meinen Augen nicht integre EU-Kommissionschefin Ursula von der Leyen an der Spitze –
+von ihrer Kriegstreiberei nicht ablassen, wäre es angebracht, den 2012 der EU verliehenen Friedensnobelpreis zurückzugeben, und die EU aufzulösen. Die EU muss aufhören, die europäische Wirtschaft in eine
+Kriegswirtschaft umzuwandeln, unter der alle anderen gesellschaftlichen Bereiche erheblich leiden. Wer
+braucht schon intakte Schulen, Kitas, Familien und Infrastruktur, wenn man für das Steuergeld auch schöne
+Kanonen, Granaten, Raketen und Panzer bauen kann? Das erfreut das Bürgerherz doch wesentlich mehr,
+nicht wahr?
+Pazifisten wie der Trump- und Putin-freundliche ungarische Ministerpräsident Victor Mihály Orbán werden
+von den EU-Bellizisten – die in der Mehrheit zu sein scheinen – ständig torpediert. Warum wohl? Kriegstreiber wollen keinen Frieden! Warum wurde in Rumänien die Wahl des russlandfreundlichen Kandidaten Călin
+Georgescu, der natürlich ‹rechtsextrem› ist – eine neumodische Bezeichnung für alles, was nicht dem Narrativ der noch Herrschenden entspricht – gecancelt? In Rumänien soll die grösste NATO-Militärbasis entstehen. Ob da wohl ein Zusammenhang besteht? Putinfreund – NATO-Basis, ein Mix, der so wahrscheinlich
+nicht hingehauen hätte!
+Eine Person wie Strack-Zimmermann als Vorsitzende des Verteidigungsausschusses des EU-Parlaments
+hat zum Kriegsglück der EU und des Angriffsbündnisses NATO gerade noch gefehlt. Nun, viel bewirken wird
+diese Bellizistin in ihrer Position wahrscheinlich – und Gott sei Dank – nicht. Die Hauptaufgaben der Ausschüsse im EU-Parlament bestehen darin, Gesetzesvorschläge zu prüfen und zu ändern, sowie Berichte zu
+verfassen, die im Plenum vorgestellt werden. Die Verteidigung in der EU ist nach wie vor überwiegend Sache
+der Mitgliedsländer.
+Interessant ist auch ein terminlicher Zufall in diesem Zusammenhang. Der Ausschuss für Sicherheit und
+Verteidigung (SEDE) des EU-Parlaments mit Vorsitz von Marie-Agnes Strack-Zimmermann nimmt mit der
+Plenarsitzung ab dem 20. Januar seine Arbeit auf, genau am Tag der Vereidigung Trumps. Schauen wir
+mal, ob Trump wie angekündigt den Krieg schnell beenden wird, oder die Kriegstreiber ihn noch länger via
+Waffenlieferungen am Leben erhalten können. Ich setze auf Trump.
+Zudem kündigte Strack-Zimmermann eine enge Zusammenarbeit mit dem neuen EU-Verteidigungskommissar Andrius Kubilius an, der in erster Linie für die Zusammenarbeit der Rüstungsindustrie und den
+Weltraum zuständig ist. Na ja, bei ihren Verbindungen zu Rheinmetall kann Strack-Zimmermann sicherlich
+viel Input und Connections in diese Kooperation einbringen. Herr Kubilius könnte sich Frau Strack-Zimmermann gegenüber mit einem kostenfreien One-Way-Ticket in den Weltraum erkenntlich zeigen.
+Nach Ansicht von Marie-Agnes Strack-Zimmermann muss die künftige Bundesregierung deutlich mehr in
+die Verteidigung investieren, mit der Begründung, dass dies mit dem Risiko eines russischen Angriffs auf
+
+
+-----
+
+einen NATO-Staat noch in diesem Jahrzehnt und den Drohungen des künftigen US-Präsidenten Donald
+Trump, die Sicherheit Europas nicht mehr zu garantieren, nötig sei.
+«Europa erwartet, dass wir mehr leisten», meinte die Düsseldorferin, die sich auch gerne mit einem ‹TaurusT-Shirt› ablichten lässt.
+Was ist ‹Europa› eigentlich für Sie, Frau Strack-Zimmermann? Das politische Konstrukt EU-Parlament mit
+seinen supranationalen Institutionen, und die jeweiligen nationalen Regierungen, oder was? Haben Sie vergessen, wem diese Institutionen in einer Demokratie zu dienen haben, was ihre Aufgabe ist, die Aufgabe,
+der europäische Politiker schon lange nicht mehr nachkommen?
+Sie haben etwa zur gleichen Zeit wie ich an der LMU München studiert, Frau Strack-Zimmermann. Mir wurde dort gelehrt, Demokratie würde ‹Volksherrschaft› (griechisch demos = Volk, -kratie = Herrschaft) bedeuten. Wenn dem so ist, haben Sie und andere Politiker sich dem Willen des Volkes zu beugen. Das Volk will
+keinen Krieg. Das Volk will keine Kriegswirtschaft. Das Volk will eine intakte Infrastruktur, Zufriedenheit,
+materielle und immaterielle Sicherheit, Freiheit und ab und zu ein wenig Glück. Hehre Begriffe, die Ihnen
+anscheinend fremd sind. Sie und Ihresgleichen machen und machten in den letzten Jahrzehnten das
+Gegenteil von dem, was das Volk will. Sie unterstützen das definitiv nicht demokratische Land Ukraine, um
+dort angeblich deren und auch Europas Demokratie und Freiheit zu schützen, wie beispielsweise auch
+Barack Obama es in einer scheinheiligen Rede äusserte. Was für eine Lachnummer!
+Europa, das sind für mich insbesondere die Menschen, die hier leben, mit ihren Werten und Bedürfnissen,
+die Politiker gefälligst zu befriedigen haben. Dafür sind Politiker da, und nicht dazu, sich auf Kosten der
+Bürger ihre eigenen Taschen zu füllen und ihre Machtbedürfnisse zu befriedigen.
+Warum sollte Russland ein NATO-Land angreifen, Frau Strack-Zimmermann? Purer Unsinn! Leider ist solch
+eine realitätsfremde, wahrheitsentleerte Behauptung, diese ‹Manipulation durch Angsterzeugung› sehr
+wirksam bei vielen EU-Bürgern. Liebe Mitmenschen, glauben Sie bitte solch einen, an den Haaren herbeigezogenen Schwachsinn nicht! Denken Sie in Ruhe darüber nach, machen Sie sich Ihre eigenen Gedanken,
+anstatt Behauptungen anderer – meine inbegriffen – unreflektiert anzunehmen.
+Frau Strack-Zimmermann, Sie verwechseln wie so viele Ihrer bellizistischen Mitstreiter wieder einmal Ursache und Wirkung. Vielleicht verwechseln Sie diese beiden Komponenten der Kausalität nicht einmal, sondern kehren sie bewusst um. Dann könnte man Ihnen Bosheit unterstellen. Aber so weit wollen wir nicht
+gehen, nicht wahr. Wahrscheinlich ist ja doch nur Unbedarftheit im Spiel. Die NATO ist gen Osten vorgedrungen und hat sich ein Land nach dem anderen einverleibt, und würde jetzt mit der Eingliederung der
+Ukraine vor der Haustüre von Moskau stehen. Die USA sind die Imperialisten mit dem Ziel einer – heute
+noch vorherrschenden – unipolaren Weltsicht, und nicht die Sicherheitspolitik betreibenden Russen, die
+zusammen mit den BRICS+-Staaten eine multipolare Sichtweise einnehmen. Selbst, wenn Sie vielleicht in
+der Universität bei solchen Themen gefehlt haben sollten, müsste Ihr hoffentlich vorhandener gesunder
+Menschenverstand, garniert mit ein bisschen Geschichtswissen Ihnen sagen, dass die NATO, und nicht
+Russland der Aggressor ist. Die NATO rückt nach Osten vor, und nicht Russland nach Westen. Sicherlich,
+Rheinmetall freut sich weiterhin über guten Absatz todbringender Waffen mit der Aufrechterhaltung solcher
+hirnverbrannter Narrative wie dem Ihrigen. Menschen wie Sie, Boris Pistorius, Friedrich Merz, Roderich
+Kiesewetter, Anton Hofreiter, Annalena Baerbock und europäische bellizistische Konsorten haben es leider
+geschafft, unheilbringenden Schwachsinn wie ‹Kriegstüchtigkeit› in vielen europäischen Köpfen zu installieren. Es ist möglicherweise wieder einmal so weit. Wie war das mit «Nie wieder»?
+Die Drohungen des künftigen US-Präsidenten Donald Trump, die Sicherheit Europas nicht mehr zu garantieren, wären meines Erachtens nur dann ein ernstzunehmendes Problem, wenn eine Bedrohung Europas
+bestehen würde, was aber in keiner Weise der Fall ist. Vielleicht erinnern Sie sich noch an den Geschichtsunterricht, Frau Strack-Zimmermann, es wäre ja zumindest möglich. Waren es nicht Hitler und Napoleon,
+die mit ihren Armeen von Europa nach Russland marschiert sind, ein Blutbad angerichtet und trotzdem
+ihre Kriege verloren haben? Russland hatte im zweiten Weltkrieg 27 Millionen Opfer zu beklagen, weil wahnsinnige Bellizisten das so wollten. Gäbe es mehr Pazifisten und weniger Bellizisten wie Sie, Frau StrackZimmermann, gäbe es auch weitaus weniger Bedrohungen. Länder, die Handel miteinander treiben, führen
+keine Kriege – vielleicht auch deswegen die wirtschaftlichen Sanktionen gegen Russland, um den Krieg
+weiterhin aufrechterhalten zu können. Die Sprengung der Nordstream-Pipelines, dieser Terrorakt an der
+Infrastruktur Europas, der mit an Sicherheit grenzender Wahrscheinlichkeit von den USA initiiert wurde,
+passt ebenfalls in dieses Bild. Sind die europäischen Aggressionen dann nicht auf das falsche Land
+gerichtet?
+Bundesverteidigungsminister Boris Pistorius (SPD) hatte sich vor dem Ampel-Aus für deutlich höhere Wehrausgaben stark gemacht. Jedoch lehnte Ex-Finanzminister Christian Lindner (FDP) dies im Haushaltsstreit
+ab – zumal Pistorius dafür die Schuldenbremse lockern wollte. Die FDP-Europapolitikerin Marie-Agnes
+Strack-Zimmermann meinte, höhere Verteidigungsausgaben seien ‹eine Frage der Priorisierung›.
+«Wer einen Haushalt von 450 Milliarden Euro im Jahr hat, und damit einen der stärksten in Europa, der
+kann natürlich auch ohne sich zu verschulden in Verteidigung investieren.»
+
+
+-----
+
+Dass Sie die Schuldenbremse nicht unbedingt lockern wollen, Frau Strack-Zimmermann, sehe ich als Pluspunkt in Ihrer Argumentation und Einstellung. Was aber meinen Sie mit Priorisierung? Ist es für Sie demnach in Ordnung, dass beispielsweis noch mehr Rentner zugunsten höherer Verteidigungsausgaben Flaschen in Mülleimern sammeln gehen? Okay, begünstigt durch senile Bettflucht ist es für unsere Senioren
+sicherlich kein Problem eine Stunde früher aufzustehen, um ihrer überlebensnotwendigen Zusatztätigkeit
+nachzugehen. Klar, die Rentner haben ihr Leben lang hart gearbeitet und in die Rente eingezahlt, um jetzt
+für Ihre ‹Priorisierung› noch mehr zu bluten. Die zu ‹Gutmenschen› erniedrigten Rentner bluten sicherlich
+gerne, wenn es Deutschland ‹dient›. Auch für die alleinerziehenden Elternteile ist gerade Weihnachten eine
+schwierige Zeit, weil sie nicht wissen, wie sie ihren Kindern ein Weihnachtsgeschenk finanzieren sollen.
+Sie waren anscheinend schon länger nicht mehr auf Deutschlands Strassen, Frau Strack-Zimmermann,
+sonst hätten Sie mitgekriegt, dass sich die Armut hierzulande rasch ausweitet. Wie sieht denn ihre Priorisierung aus, Frau Strack-Zimmermann? Welches Budget wollen Sie denn zugunsten Ihrer bellizistischen Priorität reduzieren? Wo wollen Sie streichen? In der Bildung, im Ausbau der Infrastruktur, im Sozialwesen? Vielleicht muss man ja auch gar nicht die Staatsausgaben reduzieren, man könnte ja auch auf der Seite der
+Staatseinnahmen etwas drehen. Vielleicht eine kleine Steuererhöhung zur Finanzierung der Staatsausgaben
+für Marschflugkörper und sonstigen mordenden, überflüssigen Kram? Ihnen beziehungsweise dem Staat
+fällt sicher etwas ein, das auf keinen Fall auf Ihre oder seine Kosten geht.
+Der Ausweg aus diesem Dilemma ist übrigens relativ einfach: Russland die Hand reichen, und den Verteidigungsetat auf ein Minimum reduzieren. So denken Pazifisten und generell Menschen, die bei klarem Verstand sind.
+Weiterhin meinte Strack-Zimmermann, wenn der neue NATO-Generalsekretär Mark Rutte vorgebe, in Richtung drei Prozent des Bruttoinlandsprodukts zu gehen, «dann werden wir das auch umsetzen».
+Wen meinen Sie mit ‹wir›, Frau Strack-Zimmermann? Mich jedenfalls nicht! Ich wäre für eine Streichung
+des Verteidigungsetats auf ein Minimum, und dafür, die immer noch ausgestreckte Hand Russlands zu
+greifen was früher oder später ohnedies wieder geschehen wird – es sei denn, die westlichen Bellizisten
+entfachen einen atomaren Weltkrieg. Dumm genug wären sie.
+2024 erfüllt Deutschland erstmals wieder die NATO-Vorgabe, zwei Prozent des Bruttoinlandprodukts (BIP)
+in Verteidigung zu investieren. Auch die zwei Prozent vom BIP sind für Pazifisten – zu denen Sie sich nicht
+zählen können, Frau Strack-Zimmermann – ein Schlag ins Gesicht. Wenn NATO-Partner wie Polen eine
+noch deutlich höhere Quote fordern, dann können die das gerne machen. Das ist deren Problem. Ich aber
+lebe hier in Deutschland, habe mein Leben lang Steuern gezahlt, und muss jetzt zusehen, wie diese von
+mir einst als richtig erachteten Abgaben sinnlos verschwendet werden für die Erreichung der Ziele ruchloser
+Macht- und Besitzeliten, die Menschen wie Sie bedienen, die den Hals nicht vollkriegen, und die uns mit
+der Corona-Plandemie, der Klimakeule und dem Märchen vom gerechten Krieg in der Ukraine ausbluten
+liessen und weiterhin lassen. Sie, Frau Strack-Zimmermann, können weiterhin die Aktionäre von Rüstungskonzernen mit Ihren Narrativen von der Feindseligkeit Russlands beschenken. Ich sehe Sie, Frau StrackZimmermann, als einen Feind des Volkes, das in Frieden und einigermassen Wohlstand leben möchte.
+Quelle: https://wassersaege.com/blogbeitraege/strack-zimmermann-warnt-vor-putin/
+
+###### Ukraine – es gibt nur einen Weg zu dauerhaftem Frieden
+Von Peter Haisenko. Dezember 19, 2024
+
+Waffenstillstand ist nicht Frieden. Es ist nur die Zeit, bis sich einer der Kontrahenten stark genug fühlt, den
+anderen wieder anzugreifen. Waffenstillstand ist ein Geschenk für die Waffenindustrie. Um dauerhaften
+Frieden zu erreichen, können auch Grenzen neu bestimmt werden, und zwar nach dem Willen der Menschen, die dort wohnen. Das gilt nicht nur für die Ukraine.
+Als der Teufel noch ein kleiner Bub war, ging einem Krieg eine Kriegserklärung voraus. Das war die letzte
+Warnung, die letzte Aufforderung, zu einer Verhandlungslösung zu kommen. Kam die dann nicht zustande,
+begann der Waffengang und der endete mit einem Friedensvertrag. Die Sache war erledigt, zumindest für
+einige Zeit. Seit 1945 gab es hunderte Kriege, Überfälle, und keinem davon ging eine Kriegserklärung voraus. So gibt es seither auch keine Friedensverträge. Weltweit stehen sich Länder gegenüber im Zustand des
+Waffenstillstands, belauern sich gegenseitig und mästen die Waffenindustrie mit dem Geld ihrer Bürger. Da
+kann man nur zu dem Schluss kommen: Wer nur Waffenstillstand fordert, der will keinen dauerhaften
+Frieden. Das gilt gerade besonders für die Ukraine.
+Jugoslawien ist ein treffliches Beispiel, wie mit neuen Gebietsaufteilungen ein Krieg beendet werden konnte.
+Das ist umso bemerkenswerter, weil dieser Krieg vom Westen gewünscht, orchestriert und dann weitergeführt worden ist. Tatsächlich hatte der Westen seine Kriegsziele erreicht. Jugoslawien musste zerschlagen
+werden, weil es der letzte Staat war, der mit einem ‹dritten Weg› zwischen Kommunismus und Kapitalismus
+geradezu musterhaft erfolgreich war. Allerdings hat man sich mit Serbien einen Nukleus für weitere Kriegshandlungen behalten Dennoch können wir dort heute auf ein Vierteljahrhundert eines zwar labilen Friedens
+
+
+-----
+
+blicken. Auch in der Tschechoslowakei wurden Anfang der 1990er Jahre aufkeimende Spannungen mit der
+Aufteilung in zwei Staaten beendet. Die Sowjetunion wurde friedlich in mehrere souveräne Staaten aufgeteilt. Warum soll das in der Ukraine nicht möglich sein?
+
+**Wer sagt, Grenzen seinen unveränderlich?**
+Alle Staaten, in denen unterschiedliche Ethnien zusammengepfercht sind, sind potentielle Pulverfässer, ein
+leichtes Terrain für Unruhestifter. Und wieder gilt: Wer solche Staaten mit solchen Grenzen geschaffen hat,
+der wollte keinen dauerhaften Frieden, sondern vielmehr einen dauerhaften, leicht zu entfachenden Konfliktherd. Besonders perfide empfinde ich es, wenn diese mehr oder weniger willkürlich festgelegten Grenzen, innerhalb derer der Konflikt schon vorgezeichnet ist, als unveränderlich, ja geradezu heilig erklärt werden. Tatsache ist nämlich, dass das Völkerrecht keine unveränderlichen Grenzziehungen kennt. Es sieht
+vielmehr vor, dass sich Provinzen eines Staats per Volksabstimmung vom Mutterstaat lossagen, ihren eigenen unabhängigen Staat erklären können. So, wie sie es auf der Krim und in den vier neuen Volksrepubliken
+im Osten der Ukraine getan haben. Wäre es anders, wäre der kollektive Westen schon lange in Den Haag
+vorstellig geworden. Das tun sie nicht, weil sie wissen, dass die Abspaltungen im Osten der Ukraine völkerrechtskonform abgelaufen sind.
+So ist festzustellen, dass sich im Rahmen der russischen Sonderoperation keine russischen Soldaten auf
+dem Gebiet der Restukraine aufhalten. Also in dem Gebiet, das für Kiew nach den Volksabstimmungen
+übriggeblieben ist. Im Gegensatz dazu befinden sich Kiews Soldaten auf fremdem Boden. Genauer in eigenständigen Volksrepubliken, die sich wiederum durch Volksabstimmung der Russischen Föderation angeschlossen haben. Es spielt hierbei keine Rolle, ob das vom Westen anerkannt wird. Wie gesagt, den Gang
+nach Den Haag will man nicht antreten.
+
+**Wie geht es nach der Kapitulation Kiews weiter?**
+Kiews Armee steht kurz vor der endgültigen Niederlage, der Auflösung, der Kapitulation. Massenhafte Desertierungen belegen, dass schon viele von Kiews Soldaten, zu grossen Teilen zwangsrekrutiert, nicht mehr
+Willens sind, für Selenskys Wahnvorstellungen zu kämpfen oder gar zu sterben. Eine Mehrheit der Ukrainer
+will ein Ende des Kriegs, ganz gleich, zu welchen Bedingungen. Ich denke, es ist nicht falsch anzunehmen,
+dass sie endlich einen Zustand dauerhaften Friedens erhoffen. Doch wie könnte der Weg dahin aussehen?
+Russland wird keinen Zustand akzeptieren, der Kiews Restukraine die Möglichkeit bietet, während eines
+Waffenstillstands aufzurüsten für den nächsten Waffengang gegen Russland. Genauso unannehmbar ist
+die NATO-Mitgliedschaft von Kiews Machtgebiet, denn genau darum ging es auch, bevor sich Russland gezwungen sah, seine Sonderoperation zu starten. Wie kann es also weiter gehen, auf dem Weg zu einem
+dauerhaften Frieden, und zwar für alle Staaten, die an die Ukraine grenzen? Nimmt man das Völkerrecht
+ernst und hält sich dran, kann die Lösung verblüffend einfach und dann auch noch nachhaltig sein.
+
+**Russland will Frieden, keinen Waffenstillstand**
+Es ist ausgeschlossen, dass es nur einen Waffenstillstand geben wird. Schliesslich will Russland Frieden
+und Sicherheit vor Angriffen in der Zukunft. Kiew muss kapitulieren. Sobald Kiews Armee kapituliert hat,
+steht die Restukraine unter Moskaus Kontrolle. Das heisst nicht, dass jetzt tausende russische Beamte das
+Land kontrollieren. Aber Kiew darf dann nichts tun, was nicht von Moskau genehmigt ist. In etwa so, wie es
+in Deutschland nach 1945 war. Alle Waffen, alle Waffensysteme, müssen aber an Moskaus Truppen übergeben oder vernichtet werden. Das ist Stufe eins. Dann erst kann der Weg zu dauerhaftem Frieden beschritten werden und da gibt es nur einen Weg: Volksabstimmungen.
+Insbesondere im Westen der Ukraine gibt es etliche ethnische Minderheiten. Moldawier, Ungarn, Rumänen,
+Slowaken, Polen, Weissrussen und natürlich Russischstämmige. Nicht nur letzteren geht es unter Kiews
+Joch nicht gut. Ihre Minderheitenrechte werden von Kiew mit Füssen getreten. So, wie es den Minderheiten
+in Polen zwischen den grossen Kriegen ergangen ist. Auch den Ukrainern, die sich plötzlich in Warschaus
+Machtgebiet zurechtfinden mussten. So etwas darf nicht wieder geschehen. An dieser Stelle muss ich an
+die Zeit nach dem Ersten Weltkrieg erinnern. Mit dem Versailler Diktat hat England einen polnischen Staat
+geschaffen, dessen Grenzen keinerlei Rücksicht auf die Herkunft und Sprache der in diesem Kunstgebilde
+lebenden Menschen nahm. So, wie die Kiew-Ukraine die vollständige Ukrainisierung angeordnet hat, hatte
+Polen alles nicht-polnische diskriminiert. Hunderttausende wurden umgebracht. So ist Polen ein abschrekkendes Beispiel, wie man die Grenzen eines Staats keinesfalls festlegen darf.
+Vergessen wir nicht: Bis 1939 sind 557’000 polnische Juden nach Hitlerdeutschland geflohen, weil sie in
+Polen so schlecht behandelt worden sind. Mehr dazu hier:
+https://anderweltverlag.com/p/england-die-deutschen-die-juden-und-das-20-jahrhundert
+
+**Volksabstimmungen sind der Weg zum Frieden**
+Nachdem die Kampfhandlungen in der Ukraine beendet sind, Kiews Armee kapituliert hat, muss in der
+Restukraine ein grosses Referendum abgehalten werden. Unter Aufsicht aller geeigneten internationalen
+
+
+-----
+
+Organisationen. Die Bürger müssen darüber abstimmen, wohin, zu welchem Staatsgebilde sie gehören wollen. Es ist zu erwarten, dass sich viele im Westen der Ukraine dafür aussprechen werden, in das Staatsgebiet
+aufgenommen zu werden, dessen Sprache ihre Muttersprache ist und ihrer ethnischen Herkunft entspricht.
+Kiew wird Teile seines bisherigen Staatsgebiets an Nachbarstaaten abgeben müssen. So kommen diese
+Bürger in die EU.
+Im Süden und Osten leben vor allem ethnisch russische Menschen. So ist zu erwarten, dass sich zum Beispiel der Oblast Odessa für einen Anschluss an die russische Föderation aussprechen wird. Sie haben nicht
+vergessen, welche Massaker Kiews Schergen dort begangen haben. Beginnend 2014 und gipfelnd mit dem
+Anzünden des Gewerkschaftshauses, bei dem 48 Menschen den Tod in den Flammen erlitten.
+
+**Die Ukraine, Europas zweitgrösster Staat, muss aufgeteilt werden**
+Diese Referenden werden Klarheit schaffen, wie und unter welcher Herrschaft die Menschen leben wollen.
+Anschliessend werden neue Grenzen gezogen, je nachdem, wie die Mehrheit abgestimmt hat. Ja, das ist
+Demokratie. Gleichzeitig wird für eine Übergangszeit jedem Bürger das Recht zugestanden, innerhalb der
+ehemaligen Grenzen der Ukraine seinen Wohnort frei zu wählen. Das heisst, wer lieber mit Menschen ukrainischer Sprache zusammenleben will, kann in die entsprechenden Gebiete wechseln. Oder anders herum.
+So werden ethnische Konflikte auch in kleinem Massstab kaum noch stattfinden. Einem dauerhaften Frieden steht nichts mehr im Wege.
+Kiews Restukraine wird vollständig entmilitarisiert. Das ist zum Vorteil der Bürger, denn sie müssen die Last
+für Militärausgaben nicht mehr tragen. Auch die jetzt überflüssigen Soldaten können tatkräftig für den Wiederaufbau arbeiten und zu tun wird es genug geben. Als Staat, der sich zur ‹ewigen› Neutralität und Frieden
+verpflichtet hat, kann Kiew zur Handelsbrücke zwischen Ost und West werden und dadurch profitieren.
+Man denke nur an den Gastransit.
+
+**Wer wollte nicht Weltfrieden?**
+Nun könnte mich mancher als naiven Träumer bezeichnen. Aber fällt Ihnen ein besserer Plan ein, um wirklich Frieden zu schaffen? Dauerhaften Frieden? Nach allen Regeln des Völkerrechts? Und weil ich schon
+dabei bin: Derartige Referenden sollten in allen Gebieten abgehalten werden, in denen ethnische oder religiöse Konflikte am Köcheln sind. Nordirland, das Baskenland, Katalonien und nicht zu übersehen, Schottland. Es gibt weltweit noch etliche Regionen, die so befriedet werden könnten. Man denke da auch an den
+Nahen und Mittleren Osten, an die Kurden, die von England auf vier Staaten aufgeteilt worden sind. Auf
+Staaten, deren Grenzen es so nicht gab, bis sie von den englischen Grenzdiktaten geschaffen worden sind.
+
+**Grenzen sind menschengemacht**
+Keine Staatsgrenze darf unveränderlich sein. Insbesondere, wenn es sich um grosse, zu grosse Staaten
+handelt. Sie sind von Menschen geschaffen worden, unterliegen keinerlei Naturgesetzen oder gar göttlicher
+Bestimmung. So können sie auch von Menschen neu bestimmt werden, jederzeit und nach demokratischen
+Prinzipien, dem Willen ihrer Einwohner. Vergessen wir nicht, es gibt viele Kleinstaaten und den meisten von
+denen geht es gut. Man sollte auch im Gedächtnis behalten, dass die Rückkehr des Saarlands zu Deutschland durch genau ein solches Referendum gelungen ist, wie ich es jetzt für die Ukraine vorschlage. Da bleibt
+nur noch ein Blick auf die deutsche „Wiedervereinigung“. Die Deutschen durften nicht darüber abstimmen.
+Nimmt man das Völkerrecht ernst, war dieser Vorgang eben nicht völkerrechtskonform. Auch den Deutschen muss es erlaubt sein, ihr Votum darüber abzugeben, zumindest über eine Verfassung.
+Zu guter Letzt noch ein Blick in die Geschichte. In den Versailler Verträgen war festgelegt, dass im Gebiet
+Schlesien darüber abgestimmt wird, ob man zu Polen oder zum Deutschen Reich gehören will. Diese Abstimmung fand 1926 statt und es gab eine grosse Mehrheit für die Rückkehr zum DR. Die Hüter von Recht,
+Ordnung und Demokratie in London haben diese Abstimmung ignoriert, einfach als nichtig erklärt. Auch
+das zählt zu den Auslösern des Zweiten Weltkriegs. Hätte man dem Volkswillen stattgegeben, auch in
+Böhmen, rechtzeitig, hätte dieser wahnsinnige Krieg vielleicht vermieden werden können. Hätte man in der
+Ukraine vor 2014 ein solches Referendum abgehalten und befolgt, gäbe es jetzt keinen Krieg dort. So
+könnte echte Demokratie, mit Abstimmungen mit ergebnisoffenem Ausgang, deren Ergebnisse respektiert
+werden, tatsächlich zum Frieden führen. Dauerhaftem Frieden. Wer wollte das nicht?
+Lesen Sie dazu auch: Wann und wie enden Kriege normalerweise?
+https://www.anderweltonline.com/klartext/klartext-20231/wann-und-wie-enden-kriege-normalerweise/
+
+**Nachtrag: Gerade heute, am 19.12.2024, hat Putin wörtlich gesagt:**
+**«Wir brauchen keinen Waffenstillstand, wir brauchen Frieden – langfristig, dauerhaft und mit Garantien**
+**für die Russische Föderation und ihre Bürger. Das ist eine schwierige Frage – wie diese Garantien sicher-**
+**gestellt werden können. Aber grundsätzlich lässt sich danach suchen.»**
+
+
+-----
+
+In diesem Sinn sende ich mit meinen Betrachtungen einen freundlichen Gruss nach Moskau und Washington.
+Quelle: https://www.anderweltonline.com/klartext/klartext-20242/ukraine-es-gibt-nur-einen-weg-zu-dauerhaftemfrieden/
+
+###### «Friede auf dem Planeten Erde:  Kündigen Sie Ihre NATO-Mitgliedschaft. Ist das einfach??  Verabschieden Sie sich  von der Nordatlantikvertrags-Organisation (NATO)
+16. Dezember 2024 dieter Allgemein
+
+###### Sagen Sie Nein zum Dritten Weltkrieg:  «Beenden Sie Ihre NATO-Mitgliedschaft» (Art. 13)
+Von Prof. Michel Chossudovsky (globalresearch)
+
+Artikel 13 des Washingtoner Vertrags beschreibt ein einfaches Verfahren
+für einen NATO-Mitgliedsstaat, seine Mitgliedschaft zu kündigen.
+
+Nachfolgend sind die erklärten Ziele der NATO aufgeführt: Frieden und Sicherheit,
+individuelle Freiheit und Rechtsstaatlichkeit, Schutz von Freiheit und Demokratie. unten:
+
+«Die Parteien dieses Vertrags bekräftigen ihren Glauben an die Ziele und Grundsätze der Charta der Vereinten Nationen und ihren Wunsch, mit allen Völkern und allen Regierungen in Frieden zu leben.»
+Sie sind entschlossen, die Freiheit, das gemeinsame Erbe und die Zivilisation ihrer Völker zu schützen, die
+auf den Grundsätzen der Demokratie, der individuellen Freiheit und der Rechtsstaatlichkeit beruhen. Sie
+streben danach, Stabilität und Wohlstand im nordatlantischen Raum zu fördern.
+Sie sind entschlossen, ihre Bemühungen zur kollektiven Verteidigung und zur Wahrung von Frieden und
+Sicherheit zu vereinen. Daher stimmen sie diesem Nordatlantikvertrag zu.
+Klingt gut, ist aber eine dreiste Lüge.
+Die NATO ist ein Instrument der andauernden Kriegsführung. Was für ein völliger Unsinn. Sie unterstützen
+nicht die Charta der Vereinten Nationen.
+Die ‹humanitären Kriege› der USA, der NATO und Israels bestehen aus Verbrechen gegen die Menschlichkeit, Völkermord und der Zerstörung und Zersplitterung ganzer Länder:
+Palästina, Vietnam, Kambodscha, Somalia, Sudan, Afghanistan, Jugoslawien, Irak, Syrien, Libyen, Ukraine,
+… ganz zu schweigen von Militärputschen, Regimewechseln, Farbrevolutionen, … Armut und Hungersnot.
+Hungersnot in Afghanistan (im Oktober 2001 von NATO-Truppen besetzt) unter dem Vorwand, Afghanistan
+habe am 11. September Amerika angegriffen, angeblich um Al-Qaida zu unterstützen)
+Lesen Sie Artikel 13 des Washingtoner Vertrags, in dem das Verfahren beschrieben wird.
+TEXT VON ARTIKEL 13.
+
+**Artikel 13**
+«Wenn der Vertrag zwanzig Jahre lang in Kraft war, kann jede Vertragspartei ein Jahr nach Eingang ihrer
+Kündigungsanzeige bei der Regierung der Vereinigten Staaten von Amerika ihre Vertragspartei aufgeben.»
+Die Regierung der Vereinigten Staaten von Amerika unterrichtet die Regierungen der anderen Vertragsparteien über die Hinterlegung jeder Kündigungsanzeige.
+Ein NATO-Mitgliedstaat kann ein Jahr nach der Zustellung seiner Kündigung an die Regierung der USA
+aufhören, ‹ein NATO-Mitgliedstaat zu sein› (Hervorhebung hinzugefügt)
+Ein NATO-Mitgliedsstaat kann sich zum ‹Austritt aus der NATO› entschliessen.
+Wir stehen an einem gefährlichen Wendepunkt unserer Geschichte, die durch ein System von Allianzen von
+Nationalstaaten (namentlich die NATO) gekennzeichnet ist, die die militärische Agenda der Vereinigten
+Staaten eindeutig unterstützen und finanzieren. Letztere beinhaltet auch die Option, einen Atomkrieg zu
+führen. Ein 1,3 Billionen Dollar teures Atomwaffenprogramm, das bis 2030 auf 2 Billionen Dollar aufgestockt werden soll.
+Während Artikel 13 des Washingtoner Vertrags simpel erscheint, kann man mit zahlreichen Druckmitteln
+und betrügerischen Handlungen rechnen, um zu verhindern, dass ein NATO-Mitgliedstaat seine NATO-Mitgliedschaft kündigt.
+ENTSCHEIDEND IST, DIE NATO ZU BRUCHTEN UND ZU SCHWÄCHEN: ein zwischenstaatliches Bündnis
+von 32 Mitgliedsstaaten.
+
+
+-----
+
+Hinzu kommt das Problem übergreifender Allianzen und Koalitionen, also Länder, die Mitglieder der NATO
+sind und gleichzeitig Allianzen oder Abkommen mit sogenannten NATO-Feinden haben. Die Türkei ist ein
+NATO-Mitgliedsstaat, der wirtschaftliche und strategische Allianzen sowohl mit Russland als auch mit dem
+Iran unterhält.
+
+Der Austritt eines oder mehrerer NATO-Mitgliedsstaaten
+aus der NATO könnte erhebliche Auswirkungen haben.
+Erschafft einen Präzedenzfall, der weitere NATO-Mitgliedsstaaten ermutigen würde,
+‹AUF WIEDERSEHEN› zu sagen.
+
+**So lässt sich das Kriegsausmass umkehren: «Verabschieden Sie sich von der NATO»**
+**A: RÜCKTRITT (ARTIKEL 13 DES NORDATLANTIKVERTRAGS)**
+1. Eine Massenbewegung an der Basis der Gesellschaft für den Austritt aus der NATO (Artikel 13 des
+Nordatlantikvertrags)
+
+2. MASSNAHMEN INNERHALB DER GESETZGEBUNG DER 32 MITGLIEDSSTAATEN. ANTRÄGE ZUM ‹AUFTRAG AUS DER NATO› (ARTIKEL 13)
+
+**B. Die NATO will Geld von ihren Mitgliedsstaaten. Sie will auch Waffen**
+«Während des Gipfels 2014 einigten sich alle NATO-Mitglieder darauf, bis 2025 mindestens 2% ihres BIP
+für Verteidigung auszugeben.» DRUCK AUF REGIERUNGEN AUSÜBEN, UM DIE VERTEIDIGUNGSAUSGABEN
+EINZUFRIEREN. FORDERN SIE DEN ABZUG VON SOLDATEN AUS DEM KRIEGSGEBIET.
+
+**C. Die Wiederherstellung von Frieden und Demokratie**
+3. Anhaltende Massnahmen gegen korrupte Staatschefs, die die NATO unterstützen.
+
+4. Wiederherstellung des demokratischen Prozesses, Wahl von Politikern, die sich fest dazu verpflichten,
+‹keine NATO-Partei mehr zu sein› (Artikel 13)
+
+**DEMOKRATISIERUNG DER MEDIEN**
+5. Massnahmen gegen Medien, die den Terrorismus und die von NATO-Streitkräften begangenen Verbrechen gegen die Menschlichkeit unterstützen.
+
+**D. MASSNAHMEN IM SYSTEM DER VEREINTEN NATIONEN**
+6. Sinnvolle Aktionen innerhalb des Systems der Vereinten Nationen. Aktionen gegen Nichtregierungsorganisationen, die die NATO unterstützen
+
+**RECHTLICHE SCHRITTE**
+7. Rechtliche Schritte gegen den militärisch-industriellen Komplex und das Finanzestablishment
+8. Massnahmen gegen die milliardenschweren Philanthropen, die die USA, die NATO und Israel unterstützen und Kriegshandlungen finanzieren
+
+
+-----
+
+Das Motto der NATO: «Erhöht die Verteidigungsausgaben, um Kriege zu verhindern. Die NATO muss mehr
+ausgeben. Die Lüge wird zur Wahrheit.»
+
+SIEHE: Der Washingtoner Vertrag (vollständiger Text)
+SIEHE DEN TEXT VON ARTIKEL 13 DES NORDATLANTIKVERTRAGES
+UNTEN
+
+TEXT VON ARTIKEL 13
+
+**Ein NATO-Mitgliedstaat kann die Entscheidung treffen, aus der NATO auszutreten.**
+Das Verfahren ist in Artikel 13 des Washingtoner Vertrags beschrieben.
+
+**Artikel 13**
+Ist der Vertrag zwanzig Jahre lang in Kraft gewesen, kann jede Vertragspartei ein Jahr nach Eingang ihrer
+Kündigungsanzeige bei der Regierung der Vereinigten Staaten von Amerika ihre Vertragspartnerschaft aufgeben; die Regierung der Vereinigten Staaten von Amerika unterrichtet die Regierungen der anderen Vertragsparteien über die Hinterlegung jeder Kündigungsanzeige.
+Ein NATO-Mitgliedstaat kann ein Jahr nach der Zustellung seiner Kündigung an die Regierung der USA aufhören, ‹ein NATO-Mitgliedstaat› zu sein.
+Die Originalquelle dieses Artikels ist Global Research
+Copyright © Prof. Michel Chossudovsky, Global Research, 2024
+
+###### Kennen Sie eine Partei, die sich für einen NATO-Austritt einsetzt? Ich nicht. Ergo ist auch keine Partei für mich wählbar.
+Keine US-NATO-Waffen auf deutschem Boden!
+Quelle: https://krisenfrei.com/friede-auf-dem-planeten-erde-kuendigen-sie-ihre-nato-mitgliedschaft-ist-das-einfachverabschieden-sie-sich-von-der-nordatlantikvertrags-organisation-nato/
+
+
+-----
+
+###### Bemerkenswerte Antworten der Befürworter  der Geburtenstopp-Petition bei change.org auf die Frage  «Ich unterschreibe, weil …?» 
+
+**Stefan Anderl, Deutschland, 24.8.2013**
+«Die Überbevölkerung ist das Menschheitsproblem Nummer 1. Die Erde ist mit über 8 Milliarden Menschen
+vielfach überbevölkert. Sie ist widernatürlich überbevölkert. Innerhalb von einem Jahrhundert hat sich die
+Erdbevölkerung mehr als vervierfacht. Die fruchtbare Landfläche kann nicht vergrössert werden. Zudem
+existiert der durch Überbevölkerung ausgelöste Klimawandel, der eine Desertifikation fördert. Einzig eine
+weltweite und gerechte Geburtenregelung kann uns noch von den verheerenden Folgen, die uns schon jetzt
+mit ihren Ausläufern erreichen, von dem Allerschlimmsten bewahren. Hunger, Kriege, Vertreibungen,
+Lebensmittelknappheit, Konkurrenzdenken, Verwahrlosung, Arbeitslosigkeit, Klimawandel, Gleichgültigkeit,
+Verbrechen, Diskriminierung etc. können alle auf die Überbevölkerung zurückgeführt werden, da wir nicht
+mehr als Freunde und Partner miteinander leben, sondern als Konkurrenten in einer Natur geworden sind,
+die zur Ware wurde. Eine Natur die nicht mehr schenken kann, sondern einem Wettbewerb unterliegt.»
+
+**Edith Schuler, Schweiz, 25.8.2013**
+«Jeder Mensch ist in seiner ihm eigenen Art einzigartig, individuell, einmalig – nicht gleich seinem Nächsten
+– nichtsdestotrotz sind wir alle gleichwertig. Rechte sind immer auch Pflichten. Ein jeder lebensbejahende
+Mensch auf dem Erdenrund will das Recht auf freie Familienplanung für sich in Anspruch nehmen. Auch
+beruft er sich gerne auf das Recht auf Leben, das Recht auf ausreichend Schutz. Sein Begehr liegt darin,
+ausreichend Wasser für sich und seine Nächsten zur Verfügung zu haben, um Nahrung produzieren und
+zubereiten, Güter für den täglichen Bedarf herstellen und kaufen zu können. Er pocht darauf, dass seine
+Lebensräume und die von ihm benötigten Lebensgrundlagen gesund erhalten werden; von ihm selbst, seinen Nächsten und all jenen Menschen, die für die Verwaltung der Lebensräume weltweit verantwortlich
+zeichnen. Damit dasselbe Recht jedem einzelnen Menschen gewährleistet werden kann, wird er darauf bedacht sein, dass nur dementsprechend viele Nachkommen weltweit gezeugt werden. Er wird sich bemühen,
+sein Leben sinnvoll und nachhaltig zu gestalten, um Fehlentscheidungen gering zu halten und er wird sich
+dafür einsetzen, dass der Menschheit weltweit ausreichend Spielraum gegeben ist, den damit einhergehenden Aufgaben und Pflichten - auch in Ausnahmezuständen, wie sie nach Fehlentscheidungen, sei es im Bereich der Familienplanung, der staatlichen Bevölkerungspolitik, im Finanz- und Wirtschaftssektor, im Bereich der Energiegewinnung sowie nach Dürren, Natur-, Hunger-, Unwetter- und Klimakatastrophen laufend
+stattfinden – gerecht werden zu können. Es sollte endlich eine Vereinbarung zwischen allen Ländern getroffen werden, in der festgehalten wird, wie die ‹geeignete Bevölkerungsdichte› unter Einbeziehung welcher
+Einflussfaktoren zu ermitteln ist, um allen Menschen weltweit eine Antwort auf die Frage geben zu können:
+Wie viele Menschen können in jedem einzelnen Land menschenwürdig ernährt werden und in Frieden und
+Harmonie wachsen und werden. In diesem Sinne unterstütze ich gerne die Petition zur Einführung rigoroser
+Geburtenregelungen weltweit und erhoffe mir Aufklärung und mehr Menschlichkeit – sprich: mehr
+liebevolles Miteinander – weltweit. Danke.»
+
+**Frank Leipholz, Deutschland, 26.8.2013**
+«Für mich besteht kein Zweifel, dass eine dramatische Überbevölkerung unseres Planeten mit seinen vielfältigen Folgen gegeben ist und dass diese in eine selbstzerstörerische Phase getreten ist. Wenn nur, wie bisher, auch weiterhin mit den sogenannten humanen Massnahmen wie z.B. Bildung oder Armutsbekämpfung, die sehr schnell galoppierende, weltweite Bevölkerungsexplosion eingedämmt werden soll, dann muss
+damit gerechnet werden, dass schon in absehbarer Zeit andere Faktoren, wie Klimawandel, Kriege um Res
+
+-----
+
+sourcen etc. auf unhumane Weise die Bevölkerungsexplosion wirksam begrenzen werden. Wahre Menschlichkeit und Vernunft raten daher, alternativlos, eine weltweite Geburtenkontrolle rigoros und schnellstens
+zu realisieren - bevor die humane Kontrollmöglichkeit verloren geht. Daher unterstütze ich diese Petition.»
+
+**Ueli Heusser, Schweiz, 27.8.2013**
+«Die Geburtenregelung hätte schon realisiert werden müssen, wenn wir unseren Planeten lebenswert erhalten möchten.»
+
+**NA, Deutschland, 2.9.2013**
+«Indem man die Augen vor der Wahrheit verschliesst, leugnet man die Tatsachen. Das Problem der Überbevölkerung muss endlich offen in der Öffentlichkeit angesprochen werden und es sollten gleichzeitig wirksame Lösungsmassnahmen getroffen werden. Wir müssen unverzüglich handeln, wenn wir die schlimmsten
+Folgen der Überbevölkerung noch verhindern wollen. Es bleibt uns keine Zeit mehr, um länger zu warten.
+Jeder Mensch kann aktiv etwas dagegen bewirken, auch DU!»
+
+**Sabrina Soldo Laveno Mombello Italien,, 3.9.2013**
+«Wir sind zu viele und die Erde ist schon kaputt.»
+
+**Wolf-Dieter Frontalski, Deutschland, 3.9.2013**
+«… weil nur so sämtliche Umwelt-und Klimaprobleme wirklich gelöst werden können.»
+
+**Harald Schossmann, Österreich, 4.9.2013**
+«Die auf der Erde überbordende Überbevölkerung ist die Wurzel aller Probleme. Wenn wir diese endlich in
+den Griff bekommen, werden viele traurige Ausartungen der Vergangenheit angehören. Deshalb muss auch
+gewissen profitgierigen Spekulanten und Grosskonzernen der Riegel vorgeschoben werden, wenn sie diesen
+Zustand aus reiner Gewinnsucht anheizen, denn die grausamen Folgen dieser völlig aus den Fugen
+geratenen Überbevölkerung trifft uns alle!»
+
+**Christian Bruhn, Deutschland, 5.9.2013**
+«Überbevölkerung ist das grösste Übel dieser Welt. Die einzige, logische Antwort darauf ist eine Geburtenregelung!»
+
+**Roland Schmid, Deutschland, 10.9.2013**
+«In Afrika werden viele Kinder geboren um kurz darauf an Hunger zu sterben.»
+
+**Konrad Fleig, Deutschland, 12.9.2013**
+«Ich erinnere mich an das Jahr 1950. Damals lebten auf der Erde ca. 2,4 Milliarden Menschen. Ich war damals 13 Jahre alt. Bis heute, 63 Jahre später, hat sich die Bevölkerung verdreifacht. Das ist Grund genug,
+zu unterschreiben.»
+
+**Ondrej Stepanovsky, Tschechien 12.9.2013**
+«Die Geburtenregelung in logischer Form führt uns in eine viel bessere Zukunft, in der sich die ganze Naturwelt langsam regenerieren kann und jeder von uns eine viel bessere Chance zur bewusstseinsmässigen
+Entwicklung haben kann.»
+
+**Madeleine Brügger, Schweiz, 15.9.2013**
+«Weil ich auch finde, dass zu viele Menschen auf der Erde sind.»
+
+**Wolfgang Stauber, Schweiz, 19.9.2013**
+«Die Überbevölkerung der Erde ist eine gewaltige Katastrophe und zeigt das Bild eines egoistisch denkenden Menschen, der sich keinen Deut mehr um seine Umwelt schert und die Erfüllung der eigenen Wünsche
+zum obersten Prinzip seines Lebens erhoben hat. Die Qualität des zukünftigen Lebens aller Menschen ist
+untrennbar verbunden mit dem Zustand der Natur. Die ungehemmte Plünderung, Ausbeutung und damit
+einhergehende Zerstörung, Verwüstung und Vergiftung des Erdreichs, der Luft und des Wassers, ausgelöst
+durch den gewaltigen Bedarf an Nahrungsmitteln und Gütern aller Art einer immer noch explosionsartig
+wachsenden Bevölkerung, stellt die Menschen vor unlösbare Probleme. Überbevölkerung ist kein Unwort,
+sondern die genaue Bezeichnung für eine nicht mehr von der Natur verkraftbare Anzahl von Menschen,
+hervorgerufen durch vernunftloses und verantwortungsloses zeugen von Kindern. In jedem Land sollten
+nur so viele Menschen Leben, wie dieses aus eigener Kraft auch ernähren kann. Daneben müssen auch
+Fauna und Flora genügend Raum zur Entfaltung haben, um ihre lebenswichtigen Funktionen in einem gut
+funktionierenden Ökosystem erfüllen zu können. Daraus wird ersichtlich, dass sozusagen sämtliche Länder
+
+
+-----
+
+der Erde überbevölkert sind und etwas dagegen tun müssten. Die Eindämmung der Überbevölkerung bedeutet nicht, dass irgendwelche Menschen wegmüssen und hat auch nichts mit Rassismus zu tun, sondern
+sie fordert vom Menschen, gleich welcher Hautfarbe, dass mit aller Kraft eine vernünftige Geburtenregelung
+angestrebt und durchgeführt werden muss, zum Wohle aller Menschen und allen Lebens auf unserem
+Planeten.»
+Zusammengestellt von Achim Wolf, Deutschland
+
+###### Knechtung, Vogtung, Entmündigung, Totalüberwachung, Unterjochung durch KI und Erniedrigung zur totalen Sklaverei – Die Zukunft der Erdenmenschen im 3. Jahrtausend ist düster
+Der Inhalt des 901. offiziellen Kontaktberichts vom Sonntag, 24. November 2024, 7.26 Uhr, der am
+28.12.2024 komplettiert wurde, befasst sich in erster Linie mit der sehr düsteren Zukunft der Erdenmenschheit, die sie sich aufgrund ihres Religionswahns, ihres Nicht-Denkens resp. ihrer Dummheit sowie
+ihrer Gleichgültigkeit und fehlenden Menschlichkeit selbst eingebrockt hat und nun die überaus übelschmeckende Suppe auch selbst auslöffeln muss. Die Totalüberwachung als eines der vielen üblen Dinge,
+die die Menschen des 3. Jahrtausends erwarten, wurde bereits im Jahr 2015 in einem Artikel auf der Internetzseite ‹Freund der Wahrheit› behandelt und ist es wert, hier in der Rückblende und zugleich als Bestätigung der Gesprächsinhalte im 901. Kontakt zwischen Billy und Quetzal, auszugsweise wiedergegeben zu
+werden.
+
+###### Auszug aus dem Artikel  ‹Deutschland auf dem Weg zum totalitären Überwachungsstaat?› «Krieg ist Frieden! Freiheit ist Sklaverei! Unwissenheit ist Stärke!»
+So lautet die irrwitzige Propaganda im bekannten Roman ‹1984› von George Orwell. Die bewusste Behauptung des Gegenteils der Wirklichkeit wird darin in dreister Weise als Mittel zur Gehirnwäsche benutzt. Wer
+sich dem Meinungsdiktat und der Gedankenkontrolle der brutalen Obrigkeit widersetzt, wird gnadenlos
+verfolgt, unterdrückt, gefoltert oder sogar ermordet, wenn er resp. sie sich nicht gefügig machen lässt.
+
+Es könnte auch mit Fug und Recht gesagt werden: ‹Homo homini lupus›. Das ist ein bekannter lateinischer
+Spruch aus der Literaturgeschichte und bedeutet «Der Mensch ist dem Menschen ein Wolf». Der Mensch
+ist sich selbst der grösste Feind, weil er sich benimmt wie ein ausgeartetes Monster, das seine eigenen
+Lebensgrundlagen und letztendlich sich selbst vernichtet – sei es durch die menschengemachte Klimakatastrophe, sei es durch Kriege, Terror oder Umweltausbeutung aller Art. Fast alle selbstverschuldeten Übel
+des Menschen haben einen direkten kausalen Zusammenhang mit der weltweiten Überbevölkerung, die
+der Erdenmensch bis heute nicht als die Mutter aller Übel erkennen und mit humanen sowie restriktiven
+Geburtenregelungen bekämpfen will. Mit der Überbevölkerung und den damit einhergehenden Unmenschlichkeiten wie Hass, Gewalt, Terror, Mord und Totschlag, Diebstahl etc. steigt auch die Gefahr der elektronischen und biometrischen Totalüberwachung der Menschen weiter an. Auch bisher als Demokratien bekannte Staaten verwandeln sich langsam aber sicher in Überwachungssaaten mit der Absicht, die freie Meinungsäusserung ihrer Bürger immer mehr einzuschränken oder sie sogar mundtot zu machen. Wer es
+beispielsweise im Jahr 2015 in Deutschland zu sagen wagt, dass mit den Millionen von unkontrollierten
+‹Flüchtlingen› – die zum allergrössten Teil wahrheitlich keine Kriegsflüchtlinge, sondern illegale Einwanderer
+sind – auch Terroristen nach Europa eingeschleust werden, wodurch die Regierung die innere Sicherheit
+des Landes gefährde und am Terror mit Schuld trage, der muss damit rechnen, scharf angegriffen und als
+Nazi, Rassist oder Unmensch verschrien zu werden. Vermutlich liegt die Vernunftlosigkeit und der Mangel
+an gesundem Menschenverstand auch am machtvollen, erdumspannenden Block der religiösen Schwin
+
+-----
+
+gungen, der labile Menschen in ihrem Urteilsvermögen stark beeinträchtigt, wodurch sie den Bezug zur
+Realität verlieren und sich wie dumme Schafe manipulieren lassen, wie es der Obrigkeit gefällt. Das soll
+aber keine Entschuldigung für die Feigheit und Gewissenlosigkeit der Verantwortlichen und jener Menschen
+sein, die einfach den Wahnsinn tatenlos geschehen lassen, bis es zu spät ist. …
+Auch die Vereinten Nationen planen offensichtlich in Richtung der totalen Überwachung und Bevormundung der Menschen, was der nachfolgende Artikel belegt. Wie bereits mehrfach erwähnt, hat BEAM auf
+diese Gefahr schon vor langem hingewiesen.
+
+**Auszug aus ‹Voraussagen und Prophetien 1951 und 1958› vom BEAM:**
+40) Und es wird sein, dass noch vor der Zeit des Dritten Jahrtausends, und zwar 1993, eine politische und
+wirtschaftliche europäische Diktatur entsteht, die als ‹Europa Union› bezeichnet werden und im Bösen die
+Zahl 666 tragen wird, denn durch diese werden die Bürger und Bürgerinnen aller Mitgliedsstaaten letztendlich einer totalen Kontrolle durch biometrische Daten in Ausweisen und in Form von kleinen Datenscheibchen im Kopf oder Körper in ein ‹Biometrisches Identifizierungssystem› eingefügt, das durch eine
+‹Zentrale Datenbank› überwacht und kontrolliert wird, wodurch letztlich der Aufenthaltsort jedes Menschen
+auf den Meter genau bestimmt werden kann. Erstlich werden die USA und später die ‹Europa Union› diese
+moderne Menschenversklavung einführen, wonach dann auch andere Staaten folgen werden – allen voran
+die Schweiz –, wobei durch diesen Prozess die persönlichen und staatlich-bürgerlichen Rechte der Menschen drastisch beschnitten werden, was grundlegend schon beim Aufbau der ‹Europa Union› geplant sein
+wird, wodurch die Bürger letztendlich vollends entmündigt und nur noch durch die Obrigkeiten regiert werden sollen, ohne dass sie noch ein Mitspracherecht bei irgendwelchen staatlichen Dingen und Beschlüssen
+haben.
+
+Ein besorgter deutscher Bürger
+**Agenda 2030: Der UN-Plan für eine weltweit universelle biometrische Identifizierung bis zum Jahr 2030**
+Dienstag, 3. November 2015 Julie
+
+**Von Michael Lehner | Konjunktion.Info | – Wussten Sie, dass die Vereinten Nationen wollen, dass jeder**
+**einzelne Mann, jede Frau und jedes Kind auf dem ganzen Planeten bis zum Jahr 2030 einen biometri-**
+**schen Personalausweis in den Händen hält? Und wussten Sie, dass eine zentrale Datenbank in Genf,**
+**Schweiz Daten von vielen dieser Karten sammeln wird?**
+Vor kurzem habe ich über die 17 neuen ‹globalen Ziele› geschrieben, die die Vereinten Nationen Ende September bekanntgaben. Sogar nach dem Schreiben mehrerer Artikel über diese neuen globalen Ziele, weiss
+ich immer noch nicht, ob die meisten meiner Leser wirklich begreifen, wie heimtückisch diese Ziele tatsächlich sind. Diese neue Agenda ist wirklich eine Vorlage für eine ‹Neue Weltordnung›, und wenn man sich in
+die Unterpunkte dieser neuen globalen Ziele gräbt, dann findet man sehr beunruhigende Dinge.
+Zum Beispiel Ziel 16.9 mit folgendem Ziel:
+By 2030, provide legal identity for all, including birth registration.
+
+**(Bis zum Jahr 2030 besitzen alle einen legalen Existenznachweis,**
+**einschliesslich der Geburtenregistrierung.)**
+Die Vereinten Nationen arbeiten bereits hart in Richtung der Umsetzung dieses Ziels – insbesondere bei
+Flüchtlingen. Die UN hat sich mit der Firma Accenture zusammengetan, um ein biometrisches Identifikationssystem zu implementieren, das Informationen ‹zurück an eine zentrale Datenbank in Genf› leitet. Es
+folgt ein Auszug aus einem Artikel, der auf findbiometrics.com gepostet wurde:
+The United Nations High Commissioner for Refugees (UNHCR) is moving forward with its plans to use
+biometric technology to identify and track refugees, and has selected a vendor for the project. Accenture,
+an international technology services provider, has won out in the competitive tendering process and will
+oversee the implementation of the technology in a three-year contract. The UNHCR will use Accenture’s
+Biometric Identity Management System (BIMS) for the endeavor. BIMS can be used to collect facial, iris,
+and fingerprint biometric data, and will also be used to provide many refugees with their only form of
+official documentation. The system will work in conjunction with Accenture’s Unique Identity Service
+Platform (UISP) to send this information back to a central database in Geneva, allowing UNHCR offices all
+over the world to effectively coordinate with the central UNHCR authority in tracking refugees.
+(Der Hohe Kommissar der Vereinten Nationen für Flüchtlinge (UNHCR) schreitet mit seinen Plänen für die
+biometrische Technologie zur Identifizierung und Verfolgung von Flüchtlingen weiter voran und hat einen
+Anbieter für das Projekt ausgewählt. Accenture, ein internationaler Technologiedienstleister, hat sich in der
+wettbewerbsorientierten Ausschreibung durchgesetzt und wird die Umsetzung der Technologie mit einem
+Drei-Jahres-Vertrag durchführen.
+Das UNHCR wird Accentures Biometric Identity Management System (BIMS, Biometrisches Identitätsmanagementsystem) für das Unterfangen verwenden. BIMS kann verwendet werden, um biometrische Daten von
+
+
+-----
+
+Gesichtern, der Iris und von Fingerabdrücken zu sammeln, und wird auch für viele Flüchtlinge als einzige
+Form der offiziellen Dokumentation verwendet werden.
+Das System wird in Zusammenarbeit mit Accentures Unique Identity Service Platform (UISP, Einzigartige
+Identitätsserviceplattform) genutzt, um diese Informationen an eine zentrale Datenbank in Genf zu schikken, was UNHCR-Büros in der ganzen Welt eine effektive Koordination mit der Zentralbehörde UNHCR bei
+der Verfolgung von Flüchtlingen erlaubt.)
+Ich weiss nicht wie es Ihnen geht, aber das klingt sehr gruselig für mich.
+
+**Und diese neuen biometrischen Ausweise wird es nicht nur für Flüchtlinge geben. Laut eines**
+**weiteren FindBiometric-Berichts hoffen die Behörden, dass es ihnen diese Technologie**
+**ermöglicht, das UN-Ziel einer ‹Identifikationskarte› in den Händen eines jeden**
+**Mannes, Frau und Kind auf dem Planeten bis zum Jahr 2030 zu erreichen:**
+A report synopsis notes that about 1.8 billion adults around the world currently lack any kind of official
+documentation. That can exclude those individuals from access to essential services, and can also cause
+serious difficulties when it comes to trans-border identification. That problem is one that Accenture has
+been tackling in collaboration with the United Nations High Commissioner for Refugees, which has been
+issuing Accenture-developed biometric identity cards to populations of displaced persons in refugee camps
+in Thailand, South Sudan, and elsewhere. The ID cards are important for helping to ensure that refugees
+can have access to services, and for keeping track of refugee populations. Moreover, the nature of the
+deployments has required an economically feasible solution, and has demonstrated that reliable, biometric
+ID cards can affordably be used on a large scale. It offers hope for the UN’s Sustainable Development Goal
+of getting legal ID into the hands of everyone in the world by the year 2030 with its Identification for
+Development (ID4D) initiative.
+(Eine Berichtzusammenfassung stellt fest, dass etwa 1,8 Milliarden Erwachsene auf der ganzen Welt zur
+Zeit ohne irgendeine Art eines offiziellen Dokuments leben. Das kann die Personen vom Zugang zu grundlegenden Dienstleistungen ausschließen, und kann auch zu ernsthaften Schwierigkeiten führen, wenn es zur
+Identifizierung bei Grenzübertritten kommt.
+Das Problem ist eines, dass Accenture in Zusammenarbeit mit dem Hohen Kommissar der Vereinten Nationen für Flüchtlinge, der die von Accenture entwickelten biometrischen Personalausweise an Vertriebene in
+den Flüchtlingslagern in Thailand, Süd-Sudan und anderswo ausgibt, bekämpft. Die Ausweise sind wichtig,
+um sicherzustellen, dass Flüchtlinge Zugang zu Dienstleistungen haben, und für die Nachverfolgung der
+Flüchtlinge.
+Ausserdem hat die Art der Bereitstellung eine wirtschaftliche Lösung erforderlich gemacht, und hat gezeigt,
+dass eine zuverlässige, biometrische ID-Karte kostengünstig in grossem Massstab verwendet werden kann.
+Es macht Hoffnung das nachhaltige Entwicklungsziel der UN des Besitzes einer legalen ID in den Händen
+einer jeden Person auf der Welt bis zum Jahr 2030 aufgrund der Identification for Development (ID4D)
+Initiative der Vereinten Nationen zu erreichen.)
+Die Identification for Development (ID4D) Initiative wurde ursprünglich von der Weltbank ins Leben gerufen,
+und die Weltbank ist stolz darauf, Seite an Seite mit den Vereinten Nationen bzgl. des Themas ‹legaler Existenznachweis für jeden› zusammen zu arbeiten. Das Folgende stammt von der offiziellen Website der
+Weltbank:
+Providing legal identity for all (including birth registration) by 2030 is a target shared by the international
+community as part of the Sustainable Development Goals (target 16.9). The World Bank Group (WBG) has
+launched the Identification for Development (ID4D) cross-practice initiative, with the participation of seven
+GP/CCSAs sharing the same vision and strategic objectives, to help our client countries achieve this goal
+and with the vision of making everyone count: ensure a unique legal identity and enable digital ID-based
+services to all.
+(Das Bereitstellen eines legalen Identitätsnachweises für alle (einschliesslich einer Geburtenregistrierung)
+bis zum Jahr 2030 ist ein Ziel, das von der internationalen Gemeinschaft als Teil der nachhaltigen Entwicklungsziele (Ziel 16.9) geteilt wird. Die Weltbankgruppe (WBG) hat die Identification for Development (ID4D)
+Cross-Praxis-Initiative ins Leben gerufen an der sieben GP/CCSAs teilnehmen, die die gleiche Vision und
+die strategischen Ziele verfolgen, damit unsere Kundenländer dieses Ziel und ihre Vision erreichen, dass
+jeder Einzelne zählt: Sicherstellung eines einzigen, legalen Identitätsnachweises und die Sicherstellung der
+digitalen ID-basierten Dienste für alle.)
+Natürlich wird all dies gerade als ‹humanitäres› Projekt dargestellt, aber wird es das immer bleiben?
+
+**Wird an einem gewissen Punkt eine universelle biometrische ID für jeden erforderlich sein,**
+**einschliesslich für Sie und Ihre Familie?**
+**Und was passiert, wenn Sie sich weigern?**
+
+
+-----
+
+**Ich kann mir bereits jetzt einen Tag vorstellen an dem eine fehlende ‹legale Identifikation› dazu führt,**
+**dass man keinen Arbeitsplatz oder ein neues Bankkonto bekommt, dass man sie bei der Beantragung**
+**einer Kreditkarte oder für eine Hypothek oder für jede Form einer staatlichen Zahlung benötigt, etc.**
+**Zu diesem Zeitpunkt wird jeder, der sich einer ‹universellen ID› verweigert**
+**zu einem aus der Gesellschaft Ausgestossenen werden.**
+Was die Elite erreichen möchte ist, sicherzustellen, dass jeder ‹im System› ist. Und es ist ein System, das
+sie kontrollieren, und dass sie für ihre eigenen Zwecke manipulieren. Das ist einer der Gründe, warum sie
+langsam aber sicher die Verwendung von Bargeld auf der ganzen Welt zurückfahren wollen.
+In Schweden ist diese Bewegung bereits so weit fortgeschritten, dass sie jetzt sogar die Geldautomaten in
+den ländlichen Gebieten abbauen:
+The Swedish government abetted by its fractional-reserve banking system is moving relentlessly toward a
+completely cashless economy. Swedish banks have begun removing ATMs even in remote rural areas, and
+according to Credit Suisse the rule of thumb in Scandinavia is „If you have to pay in cash, something is
+wrong.“ Since 2009 the average annual value of notes and coins in circulation in Sweden has fallen more
+than 20 percent from over 100 billion to 80 billion kronor. What is driving this movement to destroy cash
+is the desire to unleash the Swedish central bank to drive the interest rate down even further into negative
+territory. Currently, it stands at -0.35 percent, but the banks have not passed this along to their depositors,
+because depositors would simply withdraw their cash rather than leave it in banks and watch its amount
+shrink inexorably toward zero. However, if cash were abolished and bank deposits were the only form of
+money, well then there would be no limit on negative interest rate policy as banks would be able to pass
+these negative interest rates onto their depositors without adverse consequences. With everyone’s wages,
+salaries, dividends etc., paid by direct deposit into his bank account, the only way to escape negative interest
+rates would be to spend, spend, spend. This, of course, is precisely what the Keynesian economists advising
+governments and running central banks are aiming at … a pro-cash resistance movement is beginning to
+coalesce and the head of a security industry lobbying group relates, „I’ve heard of people keeping cash in
+their microwaves because banks won’t accept it.“
+(Die schwedische Regierung, unterstützt von seinem Mindestreservebankensystem, bewegt sich unerbittlich
+in Richtung einer vollständig bargeldlosen Wirtschaft. Schwedische Banken haben damit begonnen, Geldautomaten auch in entlegenen ländlichen Gebieten zu entfernen, und laut Credit Suisse gilt die Faustregel
+in Skandinavien «Wenn Sie bar bezahlen müssen, stimmt etwas nicht.» Seit 2009 ist der Jahresdurchschnittswert der im Umlauf befindlichen Banknoten und Münzen in Schweden um mehr als 20 Prozent
+von über 100 Milliarden auf 80 Milliarden Kronen gefallen.
+Was diese Bewegung antreibt das Bargeld zu zerstören, ist der Wunsch, es der schwedischen Zentralbank
+zu ermöglichen den Zinssatz sogar noch weiter in den negativen Bereich zu fahren. Derzeit liegt er bei 0,35
+Prozent, aber die Banken haben dies nicht an ihre Einleger weitergegeben, da die Einleger einfach ihr Geld
+abziehen würden als dass sie es in den Banken lassen und beobachten, wie die Höhe [ihrer Einlagen]
+unaufhaltsam in Richtung Null schrumpft.
+Wenn allerdings das Geld abgeschafft wird und Bankeinlagen die einzige Form von Geld sind, dann gäbe
+es keine Begrenzung bei der negativen Zinspolitik mehr, da die Banken in der Lage wären diese negativen
+Zinsen auf ihre Einleger ohne nachteilige Folgen umlegen zu können. Wenn alle Löhne, Gehälter, Dividenden
+etc. durch direkte Einzahlung auf ein Bankkonto überwiesen werden, ist der einzige Weg, um negativen
+Zinsen zu entkommen, Konsum, Konsum, Konsum.
+Das ist natürlich genau das, was die keynesianischen Ökonomen, die die Regierungen beraten und die
+Zentralbanken steuern, als Ziel verfolgen … eine Pro-Cash-Widerstandsbewegung beginnt sich zu bilden
+und der Kopf einer Lobby-Gruppe für Industriesicherheit verlautbarte, «Ich habe von Leuten gehört, die
+Bargeld in der Mikrowelle aufbewahren, da die Banken es nicht akzeptieren.»)
+**Wenn Sie kein Bargeld benutzen, bedeutet das, dass all ihre wirtschaftlichen Tätigkeit über Banken**
+**ablaufen, wo sie beobachtet, verfolgt, überwacht und geregelt werden.**
+**Jedes Mal, wenn die Eliten etwas zu unserem „Nutzen“ vorschlagen, resultiert**
+**es irgendwie immer darin, dass sie mehr Macht und mehr Kontrolle erhalten.**
+Ich hoffe, dass die Menschen aufwachen und sehen, was geschieht. Wichtige Schritte in Richtung eines
+Eine-Welt-Systems finden direkt vor unseren Augen statt, und doch höre ich sehr, sehr wenige Menschen
+darüber reden.
+Quelle: Konjunktion.Info
+Dieser Artikel ist unter einer “CC-Lizenz” lizenziert.
+Quelle: https://www.freundderwahrheit.de/deutschland_ueberwachungsstaat.html
+Achim Wolf, Deutschland
+
+###### Bemerkenswerte Antworten der Befürworter  der Geburtenstopp-Petition bei change.org auf die Frage
+
+
+-----
+
+###### «Ich unterschreibe, weil…?»
+
+**- Teil 3 –**
+
+**Roman Pasa, Deutschland, 26.09.2013**
+«Natürlich gehört zu Geburtenregelungen auch die Erfüllung von Nachkommenschaftszeugungsvoraussetzungen, wie z.B. der Nachweis einer mindestens dreijährigen harmonischen Ehe, der Erziehungsfähigkeit
+usw. usf. Immerhin geht es um den Erhalt der Biosphäre und des Planeten, auch für künftige Menschengenerationen, denen ein menschenwürdiges Leben gewährleistet werden soll, wozu eben auch eine harmonische Familie und liebevolle, intelligente, gewaltausartungsfreie Erziehung zu zählen ist.»
+
+**Walter Hain, Österreich, 26.09.2013**
+«Weil ich mich als Wissenschafts- und Sachbuchautor lange mit dem Thema beschäftigt habe. Die Erde
+sollte nur von 3 Milliarden Menschen bevölkert sein. So könnten die Ressourcen gerechter verteilt werden.
+Eigentlich müsste schon jetzt von den UN ein weltweiter Geburtenstopp ausgerufen werden.»
+
+**Werner Pfetzing, Deutschland, 27.09.2013**
+«In der Hoffnung, dass politische Massnahmen für eine vernünftige und humane Familienplanung in die
+Wege geleitet werden.»
+
+**Catalin Morarescu, Deutschland, 1.10.2013,**
+«Die globalen Probleme lassen sich final nur durch das Bekämpfen des Hauptproblems der weltweiten
+Überbevölkerung lösen. Nur ein sofortiger Geburtenstopp mit langjähriger internationaler Überwachung
+(z.B. durch die UNO) und zukünftig weltweit koordinierten Geburtenregulierung ist der einzige diskussionswürdige Ausweg. Über das WIE müsste sofort international abgestimmt werden. Die Ignoranz und Leugnung
+dieses vom Menschen erzeugten Katastrophe sowie Beschimpfung und Verurteilung der an einer Lösung
+bemühten Menschen ist grob fahrlässig und realitätsfremd. Es geht hierbei ganz klar NICHT um Menschendiskriminierung oder um Rassen-Selektion, sondern um das Abwenden weiterer Zukunftsprobleme für die
+nächsten Menschengenerationen und die Umwelt. Es ist unsere Pflicht, jetzt die Fehler zu korrigieren, auch
+wenn es sehr spät ist! Diese aktuelle Situation und die daraus resultierende Kausalitätskette zu verstehen,
+ist für uns alle überlebenswichtig und hat mit Panikmache nichts zu tun!"
+
+**Peter Weisner, Deutschland, 6.10.2013**
+«Weil Gier (materiell reich, reicher, am reichsten, Gleichgültigkeit – 28% der erzeugten Nahrungsmittel werden in den Müll geworfen; Ressourcenverbrauch Energie/ Rohstoffe) und eine riesige Weltbevölkerung zum
+Untergang führen.»
+
+**Werner Dorsch, Deutschland, 6.10.2013**
+«Weil die Erde in allen Dimensionen endlich ist. Ressourcen sollten nur in dem Masse verzehrt werden, wie
+diese sich neu bilden können.»
+
+**Eberhard van Weiden, Deutschland, 7.10.2013**
+«Ich habe mich vor mehr als dreissig Jahren nach reiflicher Überlegung gegen eigenen Nachwuchs entschieden. Bereits damals war die Bevölkerungsexplosion ein ernstes Thema und eine (öfter notwendige)
+Erklärung zu dieser Entscheidung fiel und fällt deshalb überhaupt nicht schwer: Ich liebe meine Kinder viel
+zu sehr, als dass ich sie in diese Welt setze!»
+
+**Nestor Montero, Vereinigte Staaten, 7.10.2013**
+«Ich bin ein umfassend ausgebildeter Chirurg mit langjähriger Erfahrung in der Behandlung von Krankheiten beim Menschen, ob arm oder hungrig. Ich bin mir bewusst, aus meiner Erfahrung in Medizin und Epidemiologie, dass die Überbevölkerung auf der Erde die tödlichen Epidemien, Hunger und Kriege vermehrt.
+Um unseren Planeten zu retten, müssen wir beginnen, die menschliche Bevölkerung auf die Art und Weise
+der schöpferischen Gesetze und Gebote zu reduzieren.»
+
+
+-----
+
+**Volker Grescho, Deutschland, 7.10.2013**
+«Wir können noch so viel nachhaltig leben. Jeder Mensch zu viel entnimmt dem Planeten mit seiner alleinigen Existenz so viele Ressourcen, dass sich der Planet davon lange oder gar nicht erholen kann. Dabei
+spielt die Entropie eine gewichtige Rolle.»
+
+**Michael van Lier, Deutschland, 7.10.2013**
+«Eine zielführende weltweit verbindliche Geburtenkontrolle vor allem in den energiehungrigen Industriestaaten ist unter anderen notwendigen Massnahmen wohl die humanste Möglichkeit das verlorengegangene natürliche Gleichgewicht der Erde wieder in die richtigen Bahnen zu lenken. Seuchen, Kriege, Hungersnöte und Naturkatastrophen sind aber die jetzt schon einsetzenden wahrscheinlicheren und wohl auch
+wirkungsvolleren Alternativen zu einer spontanen menschlichen Massenvernunft.»
+
+**Christian Krajczok, Deutschland, 7.10.2013**
+«Damit die Menschheit endlich ein Bewusstsein dafür entwickelt, woher die allermeisten Probleme, die wir
+auf der Erde zur Zeit haben, ihren eigentlichen Ursprung haben, nämlich in einer Überbevölkerung dieses
+Planeten, welcher nicht mehr alle von uns ausreichend ernähren kann und dadurch viele negativen Dinge
+entstehen lässt, wodurch alles Schaden unter uns allen nimmt und solange dieses Problem nicht wirklich
+angegangen und gelöst wird, es keinen Frieden auf Erden geben kann.»
+
+**Enric Martinez, Niederlande, 18.10.2013**
+«Schade, dass so wenige Leute das echt verstehen. Aber Kinder werden nun als ein Status und Luxussymbol
+angesehen: Man hat sie, weil der Nachbar sie hat und um zu beweisen, dass man reich genug ist, Kinder
+zu haben. Genauso wie ein teurer Wagen oder einen HD Fernseher.»
+
+**Anne Steinacker, Deutschland, 19.10.2013**
+«Weil es keine Alternativen gibt.»
+
+**Berry A. Alberts, Niederlande, 25.10.2013**
+«Weil ich seit vielen Jahre überzeugt bin, dass die grössten Probleme weltweit durch die Überbevölkerung
+verursacht werden. Mehr als 5 Kinder ist nach meiner Meinung ein Verbrechen gegen die Menschlichkeit.»
+Zusammengestellt von Achim Wolf, Deutschland
+
+###### Was ist das Böse?
+Was ist das Böse? Es ist
+wie ein Fährmann, der in
+schlechter Absicht seine
+Passagiere in gefährliche,
+strudelnde Gewässer führt
+und sie darin ertrinken lässt.
+SSSC, 14. September 2014, 00.03 h, Billy
+
+**Facebook-Nutzer George Kwong: Reproduction is no longer exclusively a personal matter –**
+**Die Fortpflanzung ist nicht mehr ausschliesslich eine persönliche Angelegenheit!**
+
+
+-----
+
+Die Fortpflanzung ist nicht mehr ausschliesslich eine persönliche Angelegenheit. Die Gesellschaft muss bei
+der Regulierung dieser lebenswichtigen Funktion ein Mitspracherecht und eine gewisse Weisungsbefugnis
+haben. Die Wünsche der menschlichen Paare sind sehr wichtig, aber sie dürfen die Gesellschaft als Ganzes
+nicht ausser Acht lassen. Das allgemeine Wohlergehen dieser und künftiger Generationen muss bei der
+Entwicklung von Plänen für eine vernünftige Steuerung unserer Fortpflanzung verstärkt berücksichtigt werden. Kein Mensch sollte ungewollt und unbedarft auf die Welt gebracht werden. Kein Kind sollte durch Unachtsamkeit gezeugt werden. Wenn jedes Leben einen Wert haben soll, muss jede Zeugung Teil eines geordneten Plans von zwei Eltern sein, die sich ihrer Verantwortung für das Kind und die Gesellschaft bewusst
+sind.
+George Kwong
+Quelle:https://www.facebook.com/groups/136507913150251/posts/3119961688138177/?comment_id=31215545
+04645562&notif_id=1710329001813654&notif_t=group_comment
+
+###### Über die Symbole der Schöpfungsenergielehre
+_Von Bernadette Brand, Schweiz_
+
+Grundsätzlich gilt: Jedes einzelne Symbol der Schöpfungsenergielehre ist absolut und völlig neutral, was
+auch für das Friedenssymbol gilt.
+Ebenso grundsätzlich ist jedoch festzuhalten, dass jedes einzelne Symbol über eine eigene unverwechselbare und typische Formensprache verfügt, die es einzigartig macht. Zu dieser Formensprache gehören
+nicht nur die effektiven linearen Formen, sondern auch die Stellung des Symbols innerhalb des breiten
+schwarzen Rahmens, der für jedes Symbol unverzichtbar ist, sowie die Proportionen der Linienstärken und
+– wenn vorhanden, auch für die Farben – folglich also insgesamt für das individuelle Gesamterscheinungsbild jedes Symboles, was nicht nur von Bedeutung, sondern sehr wichtig ist.
+Bei der Formensprache handelt es sich um eine Art der archetypischen visuellen Kommunikation, durch
+die die unbewusste und bewusste Wahrnehmung des Betrachters angesprochen wird. Aufgrund des archetypischen jahrhunderttausende alten Wissens, das jedem Menschen aufgrund der in der ‹eigenen› Schöpfungsenergielinie gespeicherten Informationen zur Verfügung steht, nimmt sein Unbewusstes die ‹Botschaften› der Formensprache auf und beginnt sie aufgrund des in der Schöpfungsenergieform eingelagerten
+Wissens impulsmässig zu interpretieren und richtig zu verstehen, wodurch dies dann entsprechende Impulse auslöst und diese an den alles überlagernden Bewusstseinskomplex weiterleitet und freigibt, der dann
+dem Symbol entsprechend zu reagieren beginnt und Assoziationen, Ideen und Reaktionen erzeugt, die im
+bewussten Bewusstsein aufgenommen und der Formensprache entsprechend verarbeitet sowie nach aussen als Handlung umgesetzt werden.
+Jedes Symbol ist komplex und in sich absolut und in jeder Weise streng neutral und passiv. Es veranlasst
+also absolut nichts Negatives oder Positives im Bewusstsein des Menschen, sondern es ist explizit lediglich
+Ausdruck bzw. Träger bestimmter negativer, ausgeglichener oder positiver Informationen, deren Interpretationen durch den Menschen selbst erfolgen und geformt werden. Dies ergibt sich durch sein Denken, das
+durch die Einflüsse der Umwelt, wie Erziehung und gar Indoktrination aufkommt, das dann durch seinen
+
+
+-----
+
+gesamten Bewusstseinskomplex umgesetzt und gesteuert wird, und zwar präzise und entsprechend den
+Informationswerten des jeweiligen Symbols.
+
+Das existierende und weltweit kursierende falsche ‹Friedenssymbol› mit der Todesrune,
+das wahrheitlich einem ‹Todessymbol› und ‹Hasssymbol› entspricht, wurde im Jahr 1958
+vom britischen Grafiker Gerald Holtom im Auftrag der britischen Kampagne zur nuklearen
+Abrüstung erdacht und erstellt, und zwar ohne Vorauskenntnis, dass sein Werk Böses,
+Krieg, Verbrechen, Leid, Elend, Tod und Zerstörung fordern wird.
+So wurde es also absolut unausweichlich, dass das falsche ‹Friedenssymbol› – das keltische ‹Todesrunesymbol› – bis heute Spaltung, Unfrieden und Zerstörung hervorruft, wie
+das täglich festzustellen ist, seit dieses Symbol fälschlich und unverantwortlich als ‹Friedenssymbol› interpretiert und dieserart weltweit fälschlich genutzt wird und damit Unfrieden, Streit, Krieg, Terror und Tod
+verbreitet. Nur schon bei oberflächlicher Betrachtung des Symbols wird klar, dass es nicht das Geringste
+mit Frieden, sondern mit Gewalt, Aggression, Zerstörung und Vernichtung zu tun hat.
+Das Symbol ‹Tod, Todesexistenz›, auf dem die Todesrune fusst – assoziiert Spaltung, Unfrieden, Hass, Krieg,
+Terror, Mord und Zerstörung, wie das täglich in immer krasserer Form festzustellen ist, seit dieses Symbol
+fälschlich und unverantwortlich als ‹Friedenssymbol› interpretiert wird und weltweit Verbreitung gefunden
+hat. Was sich seit der Entstehung dieses 1958 erfundenen ‹Todessymbols› mit der Todesrune an bewaffneten Konflikten auf der Erde ergeben hat ist derart gravierend, wie es auf diesem Planeten zuvor niemals
+der Fall war. Es waren nämlich bis zum Monat Mai des Jahres 2024 deren 91 Aufstandskämpfe, Befreiungskriege, Besetzungskriege, Bürgerkriege, Grenzkriege, Invasionskriege, Religionskämpfe, Staatenkriege,
+Sezessionskriege, Terrorhandlungen und sonstige Waffenkonflikte zu verzeichnen, die viele Millionen Tote
+gefordert haben.
+Nur schon bei oberflächlicher Betrachtung des Symbols wird klar, dass es nicht das Geringste mit Wachstum, Fortschritt und Friedlichkeit zu tun haben kann, denn ein gestürzter Baum, dessen Krone zur Erde
+weist, ist der Inbegriff der Gewalt, des Endes, der Verrottung und des Sterbens. Da die meisten Menschen
+unkontrolliert denken, verarbeiten sie die archetypischen Informationen des Symbols auch in genau der
+Weise der Inhalte, die dieses Symbol umfänglich ‹umschreibt›, weshalb sie dann unbewusst bzw. unkontrolliert und unbedacht alles dazu beisteuern, um den Sinn des Symboles umzusetzen und Tatsache werden zu lassen, ohne dem Verderben und dem Ende von dem das Symbol ‹spricht› auch nur das Geringste
+entgegenzusetzen. Dadurch, dass sich jene gläubigen Menschen, die das Todessymbol als Friedenssymbol
+missinterpretieren, ihre eigenen Gedanken und Regungen nicht bewusst machen und diese nicht kontrollieren, machen sie sich zu Sklaven des Inhaltes des Symbols – das grundsätzlich völlig neutral einfach einen
+bestimmten Zustand oder Umstand ‹beschreibt›, den sie ungewollt und gläubig umsetzen und Wirklichkeit
+und Tatsache werden lassen.
+
+Gegensätzlich zum Symbol ‹Tod, Todesexistenz› beinhaltet das Symbol ‹Frieden› eine
+reiche und auf Wachstum hinweisende Formensprache, die genau wie alle anderen Symbole völlig neutrale archetypische Informationen beinhaltet, die jedoch auf ein friedliches
+und reiches Wachstum, wie auch auf Ruhe und Fortschritt bzw. Evolution hinweisen und
+diese Aussage abschliessend beinhalten. Der lebenspralle Baum, dessen Krone in den
+Himmel weist und der auf einer sprudelnden Quelle thront, verspricht blühendes Wachstum sowie Gedeihen – was durch die stilisierte Lotosblume versinnbildlicht wird, die der
+Krone des Baumes entspringt – wodurch dieser zum eigentlichen Lebensbaum wird.
+Die Betrachtung des Symboles weckt im Menschen friedliche und fortschrittliche Assoziationen und lässt
+diese hochkommen, wobei sie auf Gedeihen, Wachstum und eine reiche Ernte hinweisen, wodurch der
+Mensch wertvolle Regungen, Ahnungen und Ideen sowie Gedanken und ein Streben nach Friedlichkeit,
+Wachstum, Aufblühen und Fortschritt in sich auslöst und aufbaut, weil er sein eigenes untergründiges
+Wissen seiner Schöpfungslebensenergie anzapft und bestrebt wird, dieses laufend auf und auszubauen
+und es also evolutiv zu erweitern, dies einfach deshalb, weil der Mensch durch das Wahrnehmen des Symbols bewusst seinem klaren Verstand und seiner Vernunft mächtig wird, infolgedessen er die archetypische
+Information der Formensprache des Symboles aufnimmt und diese evolutiv verwertet, um alles in den Wert
+des diesbezüglich richtigen Handelns, Wirkens und Verhaltens umzusetzen.
+
+###### Verbreitet das richtige Friedenssymbol, denn es ist äusserst wichtig.
+
+ Das falsche Symbol, die Todesrune, schafft Unfrieden, Hass und Unheil
+# ☮
+
+
+# ☮
+
+
+-----
+
+###### Nutzt euer Auto und klebt das richtige Friedenssymbol darauf und verbreitet es!
+ Fertigt das richtige Friedenssymbol zu Fahnen und lasst sie im Wind flattern.
+
+Schöpfungsenergielehre-Symbol ‹Frieden›
+
+### Verbreitung des richtigen Friedenssymbols
+
+Das falsche Friedenssymbol – die heute weltweit verbreitete sogenannte
+
+**Es soll FRIEDEN sein auf Erden** <Todesrune>, die aus den keltischen Futhark-Runen resp. der umgedrehten Algiz
+**And there shall be PEACE on Earth** Rune fabriziert wurde – ist der eigentliche Inbegriff negativer Einflüsse und schafft
+
+zerstörerische Schwingungen hinsichtlich Unfrieden, Fehden und Hass, Rache,
+Laster, Süchte und Hörigkeit, denn die <Todesrune> bedeutet für viele Menschen
+
+**AMANI** **ΕΙΡΗΝΗ**
+
+Reminiszenzen an die NAZI-Zeit, an Tod und Verderben, wie aber auch Ambitionen
+
+**BARIŞ** **VREDE**
+
+in bezug auf Kriege, Terror, Zerstörungen vieler menschlicher Errungenschaften und
+
+**PAQE** **��** allen notwendigen Lebensgrundlagen jeder Art und weltweit Unfrieden.
+**PACE** **שרום**
+**МИР** शांित Es Ist wirklich dringlichst notwendig, dass die <Todesrune> als falsches
+**PAIX** **���** Friedenssymbol, das Unfrieden und Unruhe schafft, völlig aus der Erdenwelt
+**PAZ** **��** verschwindet und dadurch das uralte sowie richtige Peacesymbol auf der ganzen
+
+Erde verbreitet und weltbekanntgemacht wird, dessen zentrale Elemente
+Frieden, Freiheit, Harmonie, Stärkung der Lebenskraft, Schutz,
+
+**FIGU.ORG**
+
+Wachstum und Weisheit reflektieren, aufbauend wirken und
+
+**FIGU, Semjase-Silver-Star-Center, 8495 Schmidrüti**
+**Schweiz/Switzerland  Tel. + 41 (0)52 385 13 10** sehr besänftigend und friedlich-positiven Schwingungen
+
+zum Durchbruch verhelfen, die effectiv Frieden,
+Freiheit und Harmonie vermitteln können!
+
+Wir wenden uns deshalb an alle FIGU-Mitglieder, an alle FIGU-Interessengruppen, Studien- und Landesgruppen
+sowie an alle vernünftigen und ehrlich nach Frieden, Freiheit, Harmonie, Gerechtigkeit, Wissen und Evolution
+strebenden Menschen, ihr Bestes zu tun und zu geben, um das richtige Friedenssymbol weltweit zu
+verbreiten und Aufklärung zu schaffen über die gefährliche und destruktive Verwendung
+der <Todesrune>, die in Erinnerung an die NAZI-Verbrechen kollektiv im Sinnen und
+Trachten der Menschen Charakterverlotterung, Ausartung und Unheil fördert.
+
+**Autokleber** **Bestellen gegen Vorauszahlung:** **E-Mail, WEB, Tel.:**
+**Grössen der Kleber:** **FIGU** info@figu.org
+120x120 mm = CHF 3.– Hinterschmidrüti 1225 www.figu.org
+250x250 mm = CHF 6.– 8495 Schmidrüti Tel. 052 385 13 10
+300X300 mm = CHF 12 Schweiz Fax 052 385 42 89
+
+
+-----
+
+IMPRESSUM Für CHF/EURO 10.– in einem Couvert senden
+FIGU-SONDER-ZEITZEICHEN wir Dir/Ihnen 3 Stück farbige Friedenskleber
+Druck und Verlag: FIGU-Wassermannzeit-Verlag, ------der Grösse 120x120 mm. = Am Auto aufkleben.
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+Redaktion: BEAM ‹Billy› Eduard Albert Meier,
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+Wird auch im Internetz veröffentlicht
+**Erscheint sporadisch auf der FIGU-Webseite**
+
+Postcheck-Konto: FIGU Freie Interessengemeinschaft,
+8495 Schmidrüti, PC 80-13703-3
+IBAN: CH06 0900 0000 8001 3703 3 Geisteslehre Friedenssymbol
+**E-Brief: info@figu.org**
+**Internetz: www.figu.org** **Frieden**
+**FIGU-Shop: http://shop.figu.org**
+
+Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten
+
+**© FIGU 2025** Tritt dazu macht, um dann nachfolgend in Friedsamkeit jeden weiteren Schritt
+Einige Rechte vorbehalten. bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun. SSSC, 10. September 2018, 16.43 h, Billy
+Dieses Werk ist, wo nicht anders
+angegeben, lizenziert unter :
+www.figu.org/licenses/by-ncnd/2.5/ch/
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung des Urhebers ausdrücklich erlaubt.**
+Erschienen im Wassermannzeit-Verlag: FIGU, ‹Freie Interessengemeinschaft Universell›, Semjase-Silver-Star-Center,
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+

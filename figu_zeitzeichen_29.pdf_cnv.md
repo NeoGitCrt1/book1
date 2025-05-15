@@ -1,0 +1,987 @@
+**L**
+
+# FIGU– WESEN FREMDER WELTENBESUCHEN DIE ERDE
+
+**Freie**
+
+# ZEITZEICHEN Interessengemeinschaft
+
+**FIGU**
+
+### Aktuelles • Einsichten • Erkenntnisse r
+
+**Erscheinungsweise:** **Internetz: www.figu.org** **2. Jahrgang**
+**Sporadisch** **E-Brief: info@figu.org** **Nr. 29, Januar 2016**
+
+###### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+Laut ‹Allgemeine Erklärung der Menschenrechte› vom 10. Dezember 1948, Artikel 19, ‹Meinungs- und Informationsfreiheit›:
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die**
+**Freiheit, Meinungen unangefochten anzuhängen und Informationen und Ideen mit allen**
+**Verständigungsmitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Aussagen und Meinungen müssen nicht zwingend mit dem FIGU-Gedanken-, Interessen-, Lehre- und Missionsgut identisch sein.
+
+#### Es spricht die Fraktionsvorsitzende der Linkspartei Sahra Wagenknecht
+_30. Dezember 2015_
+
+… nicht schön, aber treffend:
+
+– Über die deutsche und europäische Aussenpolitik:
+**«Ich habe es wirklich satt, dass unsere Regierung sich zum Deppen der US-Oligarchen und**
+**ihrer Regierung in Washington macht. Wir brauchen endlich eine Wende hin zu einer**
+**souveränen und friedlichen Aussenpolitik in Deutschland und Europa!» [1]**
+
+
+**Freie**
+
+
+-----
+
+– Über die von der Bundeswehr unterstützten Luftangriffe in Syrien:
+
+**«Natürlich ist es kein geringeres Verbrechen, unschuldige Zivilisten in Syrien mit Bomben zu ermorden, als**
+**in Pariser Restaurants und Konzerthäusern um sich zu schiessen. Das eine ist individueller, das andere staat-**
+**lich verantworteter Terror.» [2]**
+
+Dem ist wohl kaum etwas hinzuzufügen …
+
+Sahra Wagenknecht (geboren am 16. Juli 1969 in Jena, amtlich zunächst Sarah Wagenknecht) ist eine deutsche
+Volkswirtin, Publizistin und Politikerin (DIE LINKE).
+Von 2010 bis 2014 war sie stellvertretende Parteivorsitzende. Davor vertrat sie die PDS bzw. DIE LINKE von
+2004 bis 2009 als Mandatsträgerin im Europäischen Parlament. Seit September 2009 ist Wagenknecht Abgeordnete im Deutschen Bundestag.
+Ab 2011 war sie stellvertretende Fraktionsvorsitzende der Linksfraktion. Am 13. Oktober 2015 löste sie zu sammen mit Dietmar Bartsch den bis dahin amtierenden Fraktionsvorsitzenden Gregor Gysi ab und ist damit
+zur Oppositionsführerin des 18. Bundestags aufgerückt.
+
+**_Beitragsbild: commons.wikimedia.org/wiki/File:Sahra_Wagenknecht_Die_Linke_Wahlparty_2013_(DerHexer)_02.jpg, Der-_**
+_Hexer, Wikimedia Commons, CC-by-sa 4.0_
+
+_[1] www.statusquo-news.de/sahra-wagenknecht-regierung-macht-sich-zum-deppen-der-us-oligarchen/_
+
+_[2] www.krone.at/Welt/Deutsche_Linken-Chefin_nennt_Luftangriffe_Terror-Kampf_gegen_IS-Story-488685_
+
+_13:00 27.12.2015(aktualisiert 13:16 27.12.2015)_
+
+**In den USA gibt es einflussreiche Menschen in der Finanz-Elite, die in Syrien und dem Irak ihre eigenen Inter -**
+**essen verfolgen und damit auch die Terrororganisation Daesh (auch ‹Islamischer Staat›, IS; Anm. Korrekt:**
+**Islamistischer Staat) unterstützen, meint Caleb Maupin, US-Journalist und Politikanalytiker.**
+**«Die Terrororganisation Daesh sowie andere Anti-Regierungs-Gruppierungen in Syrien bekommen Waffen**
+**aus den Vereinigten Arabischen Emiraten, Saudi-Arabien, Bahrain und Katar. Diese Länder gelten als absolute**
+**Monarchien, die von Exxon Mobile und anderen einflussreichen US-Ölkonzernen unterstützt werden», so der**
+**Experte.**
+Der US-Waffenbestand der Terroristen sei ganz leicht durch die direkten Waffenlieferungen über Saudi-Arabien
+zu erklären. Obwohl es keine eigene Armee gibt, habe Saudi-Arabien den viertgrössten Militäretat der Welt und
+
+
+-----
+
+kaufe Waffen ausschliesslich in den USA. Als Nachweis seiner Worte führt der Experte das grösste Waffen geschäft zwischen Washington und Er-Riad in einer Höhe von 60,5 Milliarden Dollar (rund 55 Milliarden Euro)
+an.
+Maupin betont, dass die Propaganda-Medienformate der Daesh-Terrorgruppierung (auch ‹Islamischer Staat›
+oder IS; Anm. Korrekt: Islamistischer Staat) grösstenteils in Saudi-Arabien und Katar produziert würden. Der
+Analytiker unterstreicht weiter, dass ein anderer Verbündeter Washingtons, das NATO-Mitglied Türkei, Erdöl
+bei Terroristen einkauft und sie nicht hindert, aus aller Welt nach Syrien zu kommen.
+«Erstaunlich, dass Washington dabei nie einen Finger gerührt hat, um all dem ein Ende zu bereiten», so Maupin.
+Der Journalist sieht Parallelen zwischen den Wall-Street-Mogulen, die den Terroristen helfen, und der USFinanz-Elite, die Mitte des 20. Jahrhunderts Hitler unterstützt hatte. Laut Maupin, behinderten die USA den
+Anti-Terror-Kampf – entgegen der Bestrebung der meisten Länder, den islamistischen Terrorismus zu ver nichten.
+«Die Zerschlagung des Islamischen Staates (arab. Daesh – d.Red.; Anm. Korrekt: Islamistischer Staat) ist das,
+worin sich die Menschen in den USA, Russland, China, im Iran, Venezuela und fast allen Ländern einig sind.
+Trotzdem hindern die USA weiter diejenigen Kräfte, die gegen den Terror kämpfen. Eine solche Politik wird
+von der Finanzoligarchie diktiert, die weder den USA noch den US-Bürgern oder der Weltordnung treu ist»,
+resümiert Caleb Maupin.
+_Quelle: http://de.sputniknews.com/politik/20151227/306801835/usa-daesh-feinde.html_
+
+_16:49 27.12.2015(aktualisiert 16:52 27.12.2015)_
+
+**Angesichts der irakischen Offensive auf Ramadi will die US-Armee einem Agenturbericht zufolge die Anfüh-**
+**rer der Terrororganisation Daesh (‹Islamischer Staat›, IS; Anm. Islamistischer Staat) aus der irakischen Stadt**
+**in Sicherheit bringen.**
+Die Offensive der Regierungsarmee auf Ramadi und Falludscha habe sich wegen einer US-Einmischung ver zögert, teilte Haidar al-Hosseini al-Ardawi, Kommandeur der schiitischen Freiwilligenmiliz al-Haschd al-Schaabi,
+der iranischen Agentur Fars mit. «Offenbar wollen die USA die IS-Anführer mit Hubschraubern evakuieren»,
+so wird der Kommandant zitiert.
+Die irakischen Regierungstruppen hatten am Dienstag eine grosse Offensive auf Ramadi begonnen, das seit Mai
+von Daesh-Terroristen besetzt ist. Am heutigen Sonntag gelang es der Armee, den Stadtkern einzukesseln. Dort
+werden bis zu 200 bewaffnete Dschihadisten vermutet.
+_Quelle: http://de.sputniknews.com/politik/20151227/306806252/usa-retten-IS-fuerer-aus-ramadi.html_
+
+
+-----
+
+#### Das grosse Bild hinter den täglichen Nachrichten
+_Posted on Dezember 27, 2015 11:19 pm by jolu 27.12.2015_
+
+**Das, was hier im Westen gerade vonstatten geht, ist wohl der grösste Putsch der Weltgeschichte. Die völlige**
+**Enteignung und Entrechtung der Mehrheit der Bevölkerung, vollzogen von einer korrupten Elite in Politik,**
+**Wirtschaft und Medien.**
+_Von Gert Ewen Ungar_
+
+Die Erzählung des Westens über sich selbst bricht in sich zusammen. Man kann es mit jedem Tag deutlicher
+fühlen: Hier kommt etwas an sein Ende. Die grosse Erzählung der unter dem Namen ‹Der Westen› verbundenen
+Nationen und deren selbst reklamierten Stellung in der Welt zerbricht an den Fakten. Denn die Kollision dieser
+Erzählung des Westens über Demokratie und Freiheit mit seinem eigenen Tun bleibt selbst denen nicht mehr
+verborgen, die sich über offizielle Kanäle im Mainstream-Journalismus informieren.
+Dort bleiben zwar die einzelnen Nachrichten unvermittelt nebeneinander stehen und es werden Diskussionen
+geführt, die die Verbindung der einzelnen Neuigkeiten zu einem geordneten, systematischen Ganzen eher
+verhindern als fördern. Es findet also das genaue Gegenteil von Journalismus statt. Doch auch dort, im Herzen
+der westlichen Propaganda, bleibt den Zuschauern und Lesern immer weniger das Auseinanderklaffen von
+berichteter Wirklichkeit und Realität verborgen.
+So erscheint im Mainstream die Welt derzeit auf den ersten Blick als ungeordnet und chaotisch. Doch das berechtigte Misstrauen in die dortige Berichterstattung wächst und eine grösser werdende Zahl von Menschen
+versetzt sich inzwischen selbst in die Lage, aus den einzelnen Fragmenten eine konsistente Deutung herzuleiten.
+Dieses aus den Fragmenten zusammengetragene Bild muss allerdings jeden Glauben an den Westen in seinen
+Grundfesten erschüttern.
+Der deutsche Ein-Themen-Journalismus wird derzeit von der Flüchtlingskrise in Bann gehalten. Massenweise
+strömen Menschen nach Europa und nach Deutschland. Die im Mainstream entfachten und geförderten Diskussion hierzu, könnten absurder nicht sein. Da geht es um Belastungsfragen der Republik, so einen Unsinn
+wie neue Völkerwanderung, um den Mindestlohn und um Fachkräftemangel. Nur Nebelkerzen. Es geht um die
+merkwürdig verschrobene und auch nicht haltbare Unterscheidung von politischen und Wirtschaftsflüchtlingen. Als wäre das Wirtschaftliche nicht immer auch in tiefer Weise politisch. Die Griechen können davon gerade
+ein ganz trauriges Lied singen.
+Ganz selten geht es um die Ursachen von Flucht; wenn, dann spät in der Nacht oder in Spartensendern. In Syrien
+sei Krieg, erfährt man dann, davor würden die Menschen fliehen, weshalb wir sie aufzunehmen hätten. Ausser
+dem Fachkräftemangel können wir den Mindestlohn zahlen und sofort wieder allgemeiner Themenwechsel.
+Krieg, so scheint es, kam wie eine Geissel über Syrien, das von einem grausamen Diktator beherrscht wird. Über
+die Ursachen des Krieges wird man in Blogs freilich viel besser informiert als durch diejenigen Nachrichten lieferanten, die damit Geld verdienen oder dafür von den deutschen Haushalten Geld anvertraut bekommen.
+Man muss sich schon ein bisschen tiefer ins Internet hineingraben, um zu stimmigen Berichten zu kommen.
+Das Erschreckende dabei: Der Mainstream ist dabei dringend aussen vor zu lassen. Wenn man ihn umgeht, stösst
+man auf Berichte wie diesen hier, der versucht die Anfänge des Aufstandes zu beleuchten, wobei die Spur in die
+USA führt. Überraschend ist das natürlich nicht.
+Dann stösst man auch auf das Selbstverständnis des angeblichen Diktators Baschar al Assad, der sich Sozialist
+nennt. Einem redlichen Journalisten müssten spätestens dann die Ohren klingeln. Die USA greifen einen
+Sozialisten an. Aha! Das klingt doch nun in dieser Form höchst plausibel, wenn auch nicht gerade nach guter
+Ethik – daher aber schon passend für die USA.
+Und war da nicht in der Region noch ein anderer, laut Mainstream ebenfalls barbarischer Diktator, der sich
+auch als Sozialist verstand: Muammar al-Gaddafi. Der musste dringend liquidiert werden, um der Demokratie,
+der Freiheit und den Menschenrechten Raum zu geben. Das Ergebnis ist bekannt: Gaddafi wurde getötet,
+pikanterweise unter Mithilfe des syrischen Geheimdienstes und unter der Verabredung, dass sich die NATO
+dann aus den inneren Angelegenheiten Syriens heraushalte. Auf solche Verabredungen pfeift der Westen allerdings, Vertragsbruch ist sein Wesen. Libyen zerfällt nun, es herrschen Chaos und Barbarei. Von Demokratie und
+Menschenrechten will sich partout nichts zeigen.
+Es mag sein, dass Gaddafis Regentschaft höchst fragwürdig war, und es mag sein, dass die von al-Assad auch
+höchst fragwürdig ist. Allerdings wird mit dem Attribut des Diktators in unseren Medien inflationär um sich
+geschmissen, wodurch es unglaubhaft wird.
+
+
+-----
+
+Was ich nämlich ganz sicher weiss, ist, dass der Präsident der Russischen Föderation, Vladimir Putin, kein
+Diktator ist, obwohl er hierzulande zu einem gemacht wird. Die Politik Putins und der russischen Regierung
+ist durch und durch verständlich, vollkommen rational und klar. Man muss nicht mit allem einverstanden sein.
+Doch nur dann, wenn man Verstehen von vornherein diskriminiert, nur dann kann man in Putin einen machtbesessenen, homophoben Wahnsinnigen sehen, der in seinem Land autoritär und willkürlich herrscht. Allerdings hat es selbst etwas von Wahnsinn, Bemühen um Verstehen mit Verachtung zu strafen. Solch ein Gestus
+passt in totalitäre Regime und erinnert an den psychotisch durchtränkten Glauben an den Erzfeind.
+Bei meinen Reisen nach und meinen Recherchen zu Russland fand ich genau das Gegenteil von dem, was bei
+uns über Russland und Putin erzählt wird. Im Umkehrschluss halte ich auch die Geschichten über andere
+Diktatoren für bestenfalls fragwürdig. Den Darstellungen in unseren Medien jedenfalls glaube ich aufgrund
+meiner Erfahrung mit Russland und der Auseinandersetzung mit russischer Politik ungeprüft jedenfalls gar
+nichts mehr. Denn es sind unsere Medien, die in ihrer Affirmation und politischen Konformität eher in eine
+Diktatur als in eine Demokratie passen.
+Doch zurück zum redlichen Journalisten: Beim weiteren Graben würde der redliche Journalist dann noch
+erfahren, dass Syrien eng mit Russland kooperiert. Diese Information floss erst, als Russland in den Konflikt
+eingriff, von Syrien aufgefordert und damit UN-konform übrigens – im Gegensatz zu den USA und Frankreich.
+Diese brechen das Völkerrecht. Für die USA freilich nichts anderes als wohl eingeübte Routine.
+Einem redlichen Journalisten hätte dies doch mindestens ein Stirnrunzeln ins Gesicht gezeichnet. An zwei
+voneinander unabhängigen Orten brechen nahezu zeitgleich Bürgerproteste aus und jedes Mal hat Russland
+dort politische und wirtschaftliche Interessen? Und jedes Mal führt die Spur des Geldes, mit dem diese ‹Bürger bewegungen› ermöglicht werden, in die USA? Und jedes Mal werden diese ‹Bürgerbewegungen› blutig, trotz
+Zugeständnissen der dort gewählten Regierungen? Das kann kein Zufall sein und das Stirnrunzeln des Journalisten hätte sich in seinen Beiträgen niedergeschlagen.
+Weiteres Stirnrunzeln hätte sich spätestens dann abgezeichnet, als deutlich wurde, dass dieses Eingreifen
+Russlands in den Konflikt in weniger als zwei Wochen Erfolge verschafft, die die USA und ihre westlichen Verbündeten nach einem Jahr des Engagements nicht vorzeigen können. Wird hier nicht deutlich, dass der Konflikt
+am Leben gehalten und vermutlich auch befeuert wird? Es besteht doch zumindest ein begründeter Verdacht,
+dem guter Journalismus nachgehen würde.
+Dann würde auch deutlich, dass die USA, wie sie es denn so gerne tun, wohl mehrere Seiten gleichzeitig fördern
+und unterstützen, um so die Auseinandersetzung am Laufen zu halten. Eine seitens der USA immer wieder gern
+praktizierte, wenn auch im Kern zynische, weil menschenverachtende Strategie.
+In dem von den USA und Westeuropa beförderten Putsch in der Ukraine, erschossen die Sniper vom Maidan
+einfach Vertreter beider Seiten, um das Chaos zu erzeugen, in dem der Putsch erst möglich wurde. Dass die
+ausführenden Scharfschützen nicht von allein auf diese Idee gekommen sind, sondern nur etwas umsetzten,
+was andere ihnen zu tun aufgegeben hatten, davon kann ausgegangen werden.
+Mit anderen Worten: Sowohl der Bürgerkrieg in Syrien, der die Flüchtlingsströme auslöste als auch der Bürgerkrieg in der Ukraine sind keine getrennt zu betrachtenden Phänomene, will man zu einem konsistenten Bild
+der aktuellen Welt kommen.
+In beiden Fällen ging es darum, einen missliebigen aber gewählten Machthaber wegzuputschen. Mit Demokratie
+und Achtung vor dem Souverän hat das natürlich gar nichts zu tun. Man muss es sich nur mal umgekehrt
+vorstellen. Der russische Aussenminister Lawrow und sein chinesischer Kollege Wang Yi besuchen PEGIDA in
+Dresden und drängen Merkel und ihr Kabinett zum Rücktritt, wobei im Vorfeld nachweislich Milliarden geflossen sind, um die Leute richtig in Stimmung zu bringen. Nicht weniger widerlich und verachtenswert ist das
+Treiben des Westens. Nirgendwo wird mehr Verachtung gegenüber demokratisch gewählten Regierungen
+gezeigt als gerade in Europa und den USA.
+Aber es lassen sich noch weitere Vorgänge in dieses Bild integrieren, TTIP zum Beispiel:
+Da verhandeln Leute, die niemand kennt, im Geheimen eine neue Ordnung. Niemand hat sie gewählt und sie
+unterliegen keiner Kontrolle. Diejenigen, die von uns gewählt sind, die Parlamentarier, haben praktisch keinen
+Zugang. An dieser Stelle kann man eigentlich aufhören zu argumentieren. Das ist das Gegenteil von demo kratisch, das ist das gängige Verfahren in totalitären Systemen.
+Und jedes neue Leak zu TTIP bestätigt die Befürchtung, dass es hier weniger um Freihandel als vielmehr um
+den Umbau des Westens in eine postdemokratische Konzern- und Bankendiktatur geht, in dem die Parlamente
+weitgehend entrechtet sind, weil sie die Regeln von TTIP beachten müssen, bevor sie Gesetze und Verordnungen
+erlassen. Marktkonforme Demokratie ist das keine.
+
+
+-----
+
+Am Ende wird der Westen das sein, was die Eurozone heute schon ist, die unter Führung des deutschen Finanzministers Schäuble auf die Einhaltung von Regeln besteht und jede demokratische Willensäusserung verachtet.
+Das Verfahren zu TTIP verhöhnt jede Form der Demokratie, wie auch die Vorgänge in der Ukraine und in Syrien
+jede Achtung vor internationalem Recht und den Menschenrechten verachtet. Und die, die hier verachten, sind
+die westlichen Eliten wohlgemerkt. Der Terror, unter dem die Welt leidet, geht von hier aus. Der Westen ist ein
+Angriffsbündnis auf die Freiheit des Einzelnen und auf die Solidarität der Gemeinschaft mit ihm.
+Man muss das so deutlich sagen, denn ein anderer Schluss ist gar nicht mehr zu ziehen. Der Westen, sein Wirtschaften und seine Politik, generieren das Leid, vor dessen Folgen in Form von Terror und Migration er meint,
+sich durch Massenüberwachung, höhere Zäune, Militär und Gewalt schützen zu müssen. Es ist ein Teufelskreis.
+Es wird nicht funktionieren. All das ist ein Zeichen von Verfall und Niedergang. Von einer Wendung hinein ins
+Dunkle und Autoritäre.
+In dieses neue und viel konsistentere Bild vom totalitären Westen, der das alte Bild vom Westen als Hort der
+Freiheit, der Demokratie und der Menschenrechte, das im Mainstream noch immer alltäglich zelebriert wird,
+das aber immer tiefere Risse bekommt, die den Lesern und Zuschauern nicht verborgen bleiben; in dieses neue
+Bild passt auch die Geschichte von ausser Kontrolle geratenen Nachrichtendiensten und der Wandel der USA
+hin zu einem rassistischen Polizeistaat.
+Da hinein passt auch der konzertierte Unwillen zahlreicher staatlicher Organe den NSA-Skandal aufzuklären.
+Da hinein passt auch die Vorratsdatenspeicherung, die, obwohl im Kern verfassungsfeindlich, wie ein Zombie
+alle paar Jahre eine Auferstehung erlebt und untot durchs Parlament getrieben wird. Hier zeigt sich eine tiefe
+Verachtung gegenüber dem Bundesverfassungsgericht und eine noch grössere gegenüber den Persönlichkeitsrechten der Bürger.
+Da hinein passt auch ein sich in Affirmation übender Staats- und Konzernjounalismus, der eher seine Leser
+beschimpft und verunglimpft als sich selbst wieder einem der Demokratie und damit der Vielfalt verpflichteten
+Journalismus zuzuwenden. In totalitären Regimen hat Journalismus immer eine domestizierende und keine
+aufklärende Funktion. Gerade die Deutschen, vor allem aber die deutschen Journalisten sollten das wissen.
+Gerade die Deutschen sollten sich darüber im Klaren sein, wie sehr der Journalismus Deutschlands zeigt, wo
+wir stehen. Man kann ihn daher bei der Suche nach guten Informationen getrost vergessen. Er ist zum blossen
+Spektakel verkommen.
+Wenn etwas über Putin im Spiegel steht, ist es mit an Sicherheit grenzender Wahrscheinlichkeit gelogen. Wenn
+Atai GEZ-finanziert auf Tagesschau über Russland berichtet, wärmt sie nur eine Pressemeldung irgendeines
+transatlantischen Think-Tanks mit null Wahrheitsgehalt auf und wenn Jutta von Ditfurth mal wieder ihre
+kruden Thesen zur Querfront, von uns allen bezahlt, öffentlich-rechtlich vortragen darf, dann wird deutlich,
+wie sehr sich unsere Medienlandschaft von der Aufklärung hin zur Domestizierung und Kontrolle ihrer
+Zuschauer gewandelt hat. Ich persönlich glaube nicht an die Reformfähigkeit unserer Institutionen. Auch wenn
+ich neulich mit 250000 anderen gegen TTIP auf die Strasse gegangen bin, glaube ich nicht, dass wir es innerhalb
+der hiesigen Strukturen schaffen, TTIP zu verhindern. Hier fahren eher Panzer auf, als dass die sich hinter TTIP
+verbergende Ideologie begrenzt und der eingeschlagene Weg verlassen wird. Politik und Journalismus verhöhnen
+den Souverän, betreiben Maskenspiele, um zu verschleiern, worum es eigentlich geht, hier in Deutschland, in
+Europa, in der Ukraine, in Syrien, im Konflikt mit Russland, überall in der westlichen Welt. Es geht um eine
+Neuausrichtung des Westens. Demokratie ist dabei eher hinderlich und daher zu beseitigen.
+Keiner der aktuellen Repräsentanten deutscher Politik fühlt sich dem Souverän verpflichtet. Weder Gabriel,
+noch Merkel, noch Gauck, Schäuble, von der Leyen. Gabriel findet die Deutschen reich und hysterisch, verachtet
+sie und auch die Beschlüsse seiner eigenen Partei; was Schäuble von Demokratie hält, hat er am Beispiel Griechenlands vorgeführt; Gauck findet, für die Durchsetzung der neoliberalen Ideologie müssten die Deutschen auch
+zu den Waffen greifen und ihr Leben lassen, weiter glaubt er, Freiheit bestünde darin, sich den Kräften des
+Marktes auszusetzen; Merkel will TTIP gegen die Interessen der Bürger Deutschlands, Europas und der USA
+noch in diesem Jahr abschliessen. Es ist ihr ganz besonderer Politikstil, unentwegt ein doppeltes Spiel zu be treiben. Die deutsche Politik wird von einem unglaublichen Zynismus getragen und ist in ihrer Tiefe absolut
+dekadent.
+Es geht, wenn man die Teile zusammenfügt, um etwas ganz einfaches: Es geht ganz schlicht um den Erhalt von
+Macht. Es geht um die völlige Durchökonomisierung der Welt. Alles, was sich dem auch nur in Ansätzen entgegenstellt, wird diffamiert, angefeindet und bekriegt. Hinter der vermeintlichen, inszenierten Komplexität der
+Welt ist es ganz schlicht – so schlicht wie eh und je.
+
+
+-----
+
+Das, was hier im Westen gerade vonstatten geht, ist wohl der grösste Putsch der Weltgeschichte. Die völlige
+Enteignung und Entrechtung der Mehrheit der Bevölkerung, vollzogen von einer korrupten Elite in Politik,
+Wirtschaft und Medien, die sich offensichtlich Vernunft und Verantwortung nicht verpflichtet fühlt.
+Es geht darum, das Auseinanderfallen des Westens mit Krieg, Chaos und Zerstörung, durch die Preisgabe von
+Demokratie, Freiheit und Völkerrecht zu verzögern. Es geht darum, den Wandel zu einer mulitipolaren Welt zu
+verhindern, in der sich die unterschiedlichen Einfluss-Sphären auf Augenhöhe begegnen. Es geht darum, ein
+durch und durch unsoziales Wirtschaftssystem, das Leid für die Mehrheit und Wohlstand für ganz wenige
+schafft, für lange Zeit festzuschreiben.
+Das ist das grosse Bild, das sich aus den einzelnen Meldungen ergibt, die in den Nachrichten präsentiert werden
+und die der deutsche Journalismus sich weigert zu einem grossen Ganzen zusammenzusetzen. Also muss man
+es selbst tun. Ich habe es hiermit getan. Jetzt kann es nur noch darum gehen, dies alles zu verhindern.
+_logon-echon.com Quelle http://www.mmnews.de_
+_Aus: http://wahrheitfuerdeutschland.de/ (Pauschale Genehmigung liegt vor)_
+
+#### Warum sich ein dritter Weltkrieg abzeichnet
+_1. Januar 2016_
+Von Paul Craig Roberts *)
+
+Der Zusammenbruch der Sowjetunion im Jahr 1991 war die Geburtsstunde einer gefährlichen amerikanischen
+Ideologie: Die des Neokonservativismus. Die Sowjetunion hatte ein Hemmnis für jegliches unilaterale Handeln
+der Vereinigten Staaten dargestellt. Als dieses Hemmnis für Washington wegfiel, war dies Anlass für die Neokonservativen, ihre Losung der US-Welthegemonie zu verkünden. Amerika war jetzt die ‹einzige Supermacht›,
+die überall in der Welt ohne Einschränkungen agieren konnte.
+Der für die Washington Post tätige neokonservative Journalist Charles Krauthammer fasste die ‹neue Realität›
+wie folgt zusammen:
+«Wir verfügen über eine überwältigende globale Macht. Wir sind die von der Geschichte bestimmten Hüter des
+internationalen Systems. Als die Sowjetunion zusammenbrach, entstand etwas Neues, etwas völlig Neues – eine
+unipolare Welt, welche von einer einzigen Supermacht dominiert wird, der sich kein Rivale mehr entgegenstellt
+
+
+-----
+
+und die in jeder Ecke der Welt über entscheidende Durchschlagskraft verfügt. Diese Entwicklung in der
+Geschichte ist einzigartig seit dem Fall von Rom. Aber selbst Rom war kein Modell für das, was Amerika heute
+darstellt.»
+Die einzigartige unipolare Macht, welche die Geschichte Washington verliehen hat, muss um jeden Preis er halten werden. Im Jahr 1992 verfasste der stellvertretende US-Verteidigungsminister Paul Wolfowitz die sogenannte Wolfowitz-Doktrin, welche zur Grundlage für die Aussenpolitik Washingtons wurde.
+Die Wolfowitz-Doktrin stipuliert, dass das oberste Ziel der amerikanischen Aussen- und Militärpolitik darin
+bestehe, «das Wiedererstehen eines neuen Rivalen zu verhindern, der – sei es auf dem Territorium der früheren
+Sowjetunion oder anderswo – eine Bedrohung für unilaterales Handeln der Vereinigten Staaten in der Grössen ordnung darstellt, wie dies seinerzeit die Sowjetunion dargestellt hatte. Dies ist die grundlegende Überlegung,
+auf welcher die neue regionale Verteidigungsstrategie beruht und die verhindern will, dass eine feindliche Macht
+in einer Region dominant wird, deren Ressourcen bei vollständiger Kontrolle darüber ausreichend wären, um
+globale Macht auszuüben.» (Eine ‹feindliche Macht› ist ein Land, das stark genug ist, eine Aussenpolitik unabhängig von Washington zu führen.)
+Die einseitige Durchsetzung der amerikanischen Hegemonie beginnt in vollem Umfang während der ClintonRegierung in Form der Interventionen in Jugoslawien, Serbien, Kosovo und der über den Irak verhängten Flugverbotszone. Im Jahr 1997 propagierten die Neokonservativen ihr ‹Projekt für das neue amerikanische Jahrhundert›. Im Jahr 1998, also drei Jahre vor 9/11, forderten die Neokonservativen in einem Schreiben an Präsident
+Clinton einen Regimewechsel im Irak und ‹die Entfernung Saddam Husseins von der Macht›. Binnen fünf Jahren
+entwickelten die Neokonservativen Programme zur Beseitigung von insgesamt sieben Regierungen.
+Die Ereignisse vom 11. September 2001 werden von Leuten mit gewissem Durchblick als ‹neues Pearl Harbor›
+angesehen, das die Neokonservativen dafür benötigten, um ihre Eroberungskriege im Nahen Osten zu beginnen.
+Paul O‘Neil, der erste Finanzminister unter Präsident George W. Bush, hat öffentlich eingestanden, dass beim
+ersten Treffen von Präsident Bush mit seinem Kabinett die Invasion im Irak auf der Tagesordnung stand. Diese
+Invasion wurde bereits vor 9/11 geplant. In der Folge, also nach 9/11, hat Washington acht Länder ganz oder
+teilweise zerstört und steht heute sowohl in Syrien als auch in der Ukraine in Konfrontation mit Russland.
+Russland kann es nicht zulassen, dass ein dschihadistisches Kalifat im Gebiet von Syrien und Irak entsteht, weil
+es eine Basis für die Destabilisierung der moslemischen Teile der Russischen Föderation darstellen würde. Henry
+Kissinger selbst hat das gesagt und die Logik sollte für jeden denkenden Menschen nachvollziehbar sein. Doch
+die machtgierigen neokonservativen Fanatiker, welche die Regierungen Clinton, Bush und Obama unter ihre
+Kontrolle gebracht haben, sind so sehr in ihrer eigenen Hybris und Arroganz verfangen, dass sie Russland mehr
+und mehr provozieren, indem sie anstelle der demokratisch gewählten Regierung der Ukraine, die in einem
+guten Verhältnis zu Russland stand, eine amerikanische Marionettenregierung an die Macht putschten und
+durch ihre türkischen Handlanger ein russisches Flugzeug abschiessen liessen.
+Vor diesem Hintergrund versteht man, dass die gefährliche Situation, mit der die Welt heute konfrontiert ist,
+nichts anderes als das Produkt der arroganten Politik der Neokonservativen ist, deren Ziel in der Erringung der
+Hegemonie der Vereinigten Staaten über die ganze Welt besteht. Die falschen Einschätzungen der Lage und die
+sich aus den Konflikten in der Ukraine und Syrien ergebenden Gefahren sind ebenfalls Folgen der neokonservativen Ideologie.
+Um die amerikanische Hegemonie zu verewigen, warfen die Neokonservativen die Garantien über Bord, die
+Washington seinerzeit Gorbatschow gegenüber abgegeben hatte, und die wörtlich lauteten: Die NATO würde
+sich nicht einen Zoll in Richtung Osten bewegen. Die Neokonservativen bewirkten den Rückzug der USA aus
+dem ABM-Vertrag, der festgelegt hatte, dass weder die USA noch Russland antiballistische Raketen entwickeln
+und einsetzen würden. Die Neokonservativen schrieben die US-Kriegsdoktrin neu und werteten die Rolle von
+Atomwaffen auf, indem sie diese als Waffen für einen präventiven Erstschlag statt wie bisher als Vergeltungswaffen einstuften. Und die Neokonservativen richteten schliesslich ABM-Basen an den Grenzen Russlands ein
+und behaupteten, diese hätten die Aufgabe, Europa vor (nicht existierenden) iranischen atomaren Interkontinentalraketen zu schützen.
+Russland und der russische Präsident Wladimir Putin wurden von den Neokonservativen und ihren Marionetten
+in der US-Regierung und den Medien immer mehr dämonisiert. So erklärte etwa Hillary Clinton, die Kandidatin
+für die Nominierung der Demokraten für das Präsidentenamt, dass Putin ‹der neue Hitler› sei. Von einem
+ehemaligen CIA-Beamten kam der Aufruf zur Ermordung Putins. Und die Präsidentschaftskandidaten beider
+Parteien wettstreiten darüber, wer gegenüber Russland aggressiver auftritt und den russischen Präsidenten mehr
+beleidigen kann.
+
+
+-----
+
+Die Folge dieser Entwicklung war, dass das Vertrauen zwischen den Atommächten völlig zerstört wurde. Die
+russische Regierung hat begriffen, dass sich Washington nicht einmal an die eigenen Gesetze, geschweige denn
+an das Völkerrecht hält und dass man der Vertragstreue Washingtons nicht trauen kann. Dieser Wegfall des Vertrauens hat zusammen mit der von Washington und seinen prostituierten Medien verbreiteten aggressiven
+Stimmung gegen Russland, welche von den Idioten in den europäischen Hauptstädten medial noch verstärkt
+wird, den Boden für einen Krieg aufbereitet. Da die NATO (also im wesentlichen die USA) keine Chance hat,
+Russland – und noch viel weniger eine Allianz von Russland und China – in einem konventionellen Krieg zu
+besiegen, kann dieser Krieg nur ein Atomkrieg sein.
+Um Krieg zu vermeiden, waren die Reaktionen Putins gegenüber den westlichen Provokationen bisher zurückhaltend und nicht provokant. Putins verantwortungsvolles Verhalten wird allerdings von den Neokonservativen
+als Zeichen der Schwäche und der Angst missinterpretiert. Den Neokonservativen zufolge solle Präsident
+Obama den Druck auf Russland aufrecht erhalten und Russland würde klein beigeben. Doch Putin hat mittler weile deutlich gemacht, dass Russland nicht nachgeben wird. Er hat diese Botschaft bereits wiederholte Male
+ausgesendet. So sagte er am 28. September 2015, am 70. Jahrestag der Vereinten Nationen, das Russland den
+derzeitigen Stand der Dinge in der Welt nicht mehr länger tolerieren könne. Zwei Tage später gab er den Befehl
+zum Angriff gegen die IS-Milizen in Syrien.
+Die europäischen Regierungen, insbesondere Deutschland und Grossbritannien, sind mitschuldig, wenn sich
+die Lage in Richtung Atomkrieg entwickelt. Diese beiden amerikanischen Vasallenstaaten sind es, die Washingtons rücksichtslose Aggression gegen Russland erst ermöglichen, indem sie Washingtons Propaganda weiterverbreiten und Washingtons Sanktionen und Interventionen gegen andere Länder unterstützen. Solange Europa
+nur als ein verlängerter Arm von Washington agiert, wird die Aussicht auf ein Armageddon weiterhin steigen.
+Ein Atomkrieg kann heute nur auf zwei Arten vermieden werden. Eine Möglichkeit ist die, dass Russland und
+China sich unterwerfen und Washingtons Hegemonie akzeptieren. Die andere Möglichkeit wäre der Aufstieg
+eines unabhängigen Führers in Deutschland, Grossbritannien oder Frankreich, der den Ausstieg aus der NATO
+verkündet. Dies würde weitere NATO-Austritte in Masse zur Folge haben, da die NATO, als Washingtons Hauptwerkzeug für die Schürung eines Konflikts mit Russland, eine Macht von höchster Gefahr für jedes europäische
+Land, ja für die ganze Welt darstellt. Solange die NATO aber weiterbesteht, wird sie zusammen mit der neo konservativen Ideologie von der amerikanischen Hegemonie einen Atomkrieg unvermeidlich machen.
+
+*) Dr. Paul Craig Roberts, ehemaliger stellvertretender Finanzminister der USRegierung mit dem Fachgebiet Wirtschaftspolitik und Mitherausgeber des Wall Street
+Journal, ist ein bekannter Kommentator und Kritiker des amerikanischen Kapitalismus und hat an mehreren Universitäten gelehrt. Seine zuletzt verlegten Werke sind
+‹The Neoconservative Threat To International Order: Washington’s Perilous War For
+Hegemony› (Die Neokonservativen als Gefahr für die internationale Ordnung:
+Washingtons gefährlicher Krieg um die Vorherrschaft); ‹The Failure of Laissez Faire
+Capitalism and Economic Dissolution of the West› (Das Versagen des Laissez-FaireKapitalismus und die wirtschaftliche Auflösung des Westens) und ‹How America Was
+Lost› (Wie Amerika verloren ging).
+
+_Originalartikel: www.paulcraigroberts.org/2015/12/28/why-wwiii-is-on-the-horizon-paul-craig-roberts/ - Übersetzung ins_
+_Deutsche: © 2015 Info-DIREKT)_
+_Beitragsbild:_ _en.wikipedia.org/wiki/File:US_Navy_030402-N-5362A-004_U.S._Army_Sgt._Mark_Phiffer_stands_guard__
+_duty_near_a_burning_oil_well_in_the_Rumaylah_Oil_Fields_in_Southern_Iraq.jpg – U.S. Navy photo by Photographer’s_
+_Mate 1st Class Arlo K. Abrahamson. (RELEASED) – This file is a work of a sailor or employee of the U.S. Navy, taken or made_
+_as part of that person’s official duties. As a work of the U.S. federal government, the image is in the public domain._
+_Quelle: http://www.info-direkt.eu/paul-craig-roberts-warum-sich-ein-dritter-weltkrieg-abzeichnet/ (Erlaubnis liegt vor)_
+
+
+-----
+
+## Stimme Gegenstimme
+
+**Klarheit durch intelligente Analytiker** **Nicht gläserne Bürger - gläserne Medien,**
+
+**Weniggehörtes - vom Volk fürs Volk!** **Politiker, Finanzmogule brauchen wir!**
+
+**frei und unentgeltlich** **Weltgeschehen unter**
+
+**Inspirierend** **der Volkslupe**
+
+**S&G** **S&G**
+
+**DIE VÖLKER HABEN EIN RECHT AUF STIMME UND GEGENSTIMME**
+
+**~ Ausgabe 1/16: Sonderausgabe Jahresrückblick 2015 – Die größten Medienlügen ~**
+
+**_INTRO_** **1. Verleumdungen**
+_Jahr für Jahr liefern die Leit-_ An erster Stelle stand auch im Das russische Nachrichtenportal reichten die Verleumdungen,
+_medien am 31. Dezember ih-_ Jahr 2015 der russische Präsident „Sputnik News“ listete die Zei- nachdem am 30.9.2015 russi_re großen Jahresrückblicke._ Wladimir Putin. Beispiele: tungen mit den meisten ne- sche Kampfjets begonnen ha_Auch dunkelste Medienlügen_ Mit der Begründung Russland gativen oder verleumderischen ben, Stellungen des „Islamischen
+_kommen noch einmal geballt_ hätte die Krim annektiert, d.h. sie Berichten und Kommentaren zu Staats“ IS in Syrien zu bombar_zur Sprache. S&G antwortet_ sich widerrechtlich angeeignet, Putin und Russland auf: dieren: Die russischen Luftan_darauf mit einem Jahresrück-_ wurde Putin im Juni 2015 aus 1. „Frankfurter Allgemeine Zei- griffe gälten nicht nur der Ter_blick über die gefährlichsten_ dem G7-Gipfel ausgeschlossen tung“ (FAZ) mit 871, rorgruppe IS, es seien auch Zi_Medienlügen von 2015. Es_ **(www.kla.tv/6055).** 2. „Die Welt“ mit 635, vilisten ums Leben gekommen.
+_sind diejenigen, die Kriege_ Der Krimvorwurf wurde von 3. „Wall Street Journal“ mit 622, Diese Beschuldigungen erwie_heraufbeschwören._ den Medien laufend wiederholt. 4. „Neue Zürcher Zeitung“ (NZZ) sen sich jedoch stets als voreinge_Kriege werden erst durch Lü-_ Laut Experten – wie z.B. dem mit 588. nommenes Urteil über Russland,
+_gen und Täuschungen ermög-_ Völkerrechtsexperten Prof. Dr. Weltweit führen deutsche Me- bevor diese unter Berücksichti_licht. Durch Lügen werden_ iur. Reinhard Merkel – war die dien mit fast 8.000 negativen gung der Stellungnahme der an_die Völker psychologisch mani-_ Annahme des Beitrittsgesuchs Russland- „Bashings*“ im Jahr deren Seite geprüft wurden. Die
+_puliert und kriegswillig ge-_ der Krim von Seiten Moskaus 2015 die Rangliste an, vor Frank- russische Außenamtssprecherin
+_macht, und durch Lügen wird_ jedoch nicht völkerrechtswidrig reich mit 6.531 und Großbritan- Maria Sacharowa erklärte, Be_schlussendlich ein Kriegsein-_ und wurde noch vor ein paar nien mit 5.847. Beispiele: [2] richte, wonach durch russische
+_tritt gerechtfertigt. Im 1. Irak-_ Jahren im Bezug auf den Ko- *heftige, herabsetzende Kritik Luftschläge in Syrien Zivilisten
+_krieg im Jahr 1990 war es_ sovo z.B. weltweit akzeptiert � Am 3.3. unterstellte die NZZ starben, seien Teil des Informa_die sogenannte Brutkastenlü-_ **(www.kla.tv/6896).** Russland, es führe in der Ostuk- tionskrieges (www.kla.tv/6824,
+_ge, im 2. Irakkrieg 2003 die_ � Am 25. März widersprach raine Krieg, wie vor sieben Jah- **kla.tv/7383, kla.tv/7081,**
+_Lüge, Saddam Hussein wür-_ der Chef des französischen ren in Georgien. Bei genauerer **kla.tv/6972).**
+_de Massenvernichtungswaf-_ Militärgeheimdienstes, General Untersuchung zeigt sich jedoch, Als Dauerlügner erwies sich
+_fen besitzen und im Libyen-_ Christophe Gomart, der offizi- dass durch das russische Eingrei- der französische Journalist Ber_krieg 2011 die Lüge, dass_ ellen NATO-Doktrin, wonach fen in Georgien im Jahr 2008, nard-Henri Lévy, u.a. in der
+_man das libysche Volk vor_ Russland massive Vorberei- ein langer Krieg und unsägliches deutschen Zeitung „Die Welt“.
+_seinem Machthaber Muam-_ tungen getroffen hätte, um in Blutvergießen verhindert werden Er bezichtigte nicht nur Putin
+_mar al-Gaddafi beschützen_ der Ukraine einzumarschieren konnte (www.kla.tv/6098). Europa zu schwächen, sondern
+_müsse._ **(www.kla.tv/7265).** � Auch die Behauptung, dass gleich alle, die in irgendeiner
+_In dieser S&G finden Sie ei-_ � Als notorischer Lügner erwies Demonstrationen in Russland un- Weise für Putin Verständnis zei_ne Auswahl der wichtigsten_ sich der Oberkommandeur der terdrückt würden, entpuppte sich gen. Damit tut Lévy genau das,
+_Verleumdungen und Lügen_ NATO in Europa, General Philip als Lüge (www.kla.tv/6309). was er diesen unterstellt: Er treibt
+_aus 2015 zusammengefasst._ Breedlove, der Putin immer wie- � Es hieß, für den Abschuss einen Spaltkeil des Argwohns
+_Details finden Sie in ange-_ der bezichtigte, im Bürgerkrieg der MH-17 seien „prorussische durch das europäische Volk und
+_fügten Links. [1]_ in der Ostukraine mit russischen Separatisten“ oder sogar die trägt somit zur Schwächung
+_Die Red. (dd.)_ Truppen in Aktion zu sein. Selbst Russen selbst verantwortlich Europas bei (www.kla.tv/7076,
+
+die deutsche Bundesregierung **kla.tv/6972).**
+
+**(www.kla.tv/6961). Laut den**
+
+**_„Man darf allmählich da-_** teilte die Einschätzung Breedlo
+deutschen Experten für Militär- Folgende Staatsoberhäupter bzw.
+
+**_von ausgehen, dass das,_** ves des Öfteren nicht. Ein Spit
+technik und Luftfahrt, Bernd Staaten wurden ebenfalls verun
+**_was die Medien am meisten_** zenbeamter des Bundesnachrich
+Biedermann und Peter Haisenko, glimpft:
+
+**_verteufeln, in den meisten_** tendienstes warnte, dass mit teil**_Fällen vom Allerfeinsten –_** weise falschen Behauptungen erweist sich jedoch auch dieser � Der syrische Präsident Bashar
+
+Vorwurf offensichtlich als Lüge al-Assad wurde von US-Präsi
+**_was sie hochjubeln vom_** oder überzogenen Darstellungen
+
+**(www.kla.tv/6301).** dent Barack Obama, in seiner
+
+**_Alleruntersten ist.“_** die NATO ihr Vertrauen verspiele
+_Ivo Sasek_ **(www.kla.tv/7275).** Einen weiteren Höhepunkt er- Rede vor der UNO am 28.9.,
+
+beschuldigt: „Assad wirft Fass
+**_Quellen: [1] www.kla.tv/7437 | www.kla.tv/7046 | www.kla.tv/6977 [2] http://info.kopp-verlag.de_** bomben auf unschuldige Kinder.“
+
+
+**_INTRO_**
+_Jahr für Jahr liefern die Leit-_
+_medien am 31. Dezember ih-_
+_re großen Jahresrückblicke._
+_Auch dunkelste Medienlügen_
+_kommen noch einmal geballt_
+_zur Sprache. S&G antwortet_
+_darauf mit einem Jahresrück-_
+_blick über die gefährlichsten_
+_Medienlügen von 2015. Es_
+_sind diejenigen, die Kriege_
+_heraufbeschwören._
+_Kriege werden erst durch Lü-_
+_gen und Täuschungen ermög-_
+_licht. Durch Lügen werden_
+_die Völker psychologisch mani-_
+_puliert und kriegswillig ge-_
+_macht, und durch Lügen wird_
+_schlussendlich ein Kriegsein-_
+_tritt gerechtfertigt. Im 1. Irak-_
+_krieg im Jahr 1990 war es_
+_die sogenannte Brutkastenlü-_
+_ge, im 2. Irakkrieg 2003 die_
+_Lüge, Saddam Hussein wür-_
+_de Massenvernichtungswaf-_
+_fen besitzen und im Libyen-_
+_krieg 2011 die Lüge, dass_
+_man das libysche Volk vor_
+_seinem Machthaber Muam-_
+_mar al-Gaddafi beschützen_
+_müsse._
+_In dieser S&G finden Sie ei-_
+_ne Auswahl der wichtigsten_
+_Verleumdungen und Lügen_
+_aus 2015 zusammengefasst._
+_Details finden Sie in ange-_
+_fügten Links. [1]_
+_Die Red. (dd.)_
+
+**_„Man darf allmählich da-_**
+**_von ausgehen, dass das,_**
+**_was die Medien am meisten_**
+**_verteufeln, in den meisten_**
+**_Fällen vom Allerfeinsten –_**
+**_was sie hochjubeln vom_**
+**_Alleruntersten ist.“_**
+_Ivo Sasek_
+
+
+**frei und unentgeltlich**
+
+**Inspirierend**
+
+
+-----
+
+kommen mit dem Iran stehe und
+folgerte: „Die Welt atmet auf.“
+Damit wurde der Iran einerseits
+bezichtigt, eine atomare Gefahr
+für die Welt zu sein, und anderseits wurde suggeriert, durch das
+Atomabkommen mit dem Iran
+wäre die atomare Gefahr aus der
+Welt geschafft worden. Beides
+erwies sich offensichtlich als
+Lüge und gezieltes Ablenkungsmanöver von den eigentlichen
+Gefahren für die Menschheit
+**(www.kla.tv/6286).**
+
+
+Beim Anschlag auf das Satiremagazin „Charlie Hebdo“ am
+7.1. sind die angeblichen Täter
+durch einen im Fluchtfahrzeug
+gefundenen Ausweis identifiziert worden. Gemäß mehreren
+Zeugen passte die Beschreibung
+der mutmaßlichen Täter aber keinesfalls mit dem schwer bewaffneten Killerkommando zusammen. Viele Indizien deuten auf
+eine Operation unter falscher
+Flagge und somit Lüge hin
+**(www.kla.tv/5046).**
+� Beim Flugzeugabsturz eines
+Airbus A320 der Germanwings
+am 24.3. kamen alle 150 Menschen an Bord ums Leben. Unverzüglich und übereinstimmend
+legten sich die großen Medien
+ausschließlich auf die Selbstmordtheorie des Co-Piloten fest:
+Dabei soll der Co-Pilot das Flugzeug mit Absicht gegen eine
+Bergwand gesteuert haben. Laut
+dem ehemaligen ARD-Korrespondenten Christoph Hörstel
+hätten im Fall des Germanwings-Absturzes die Redaktionen absichtlich schlecht und ungenau recherchiert. Viele ungeklärte Dinge und wesentliche
+Widersprüche – z.B. warum der
+Co-Pilot kurz vor dem Absturz
+noch eine Notfallmeldung abgab – wurden einfach so stehen
+gelassen (www.kla.tv/5712).
+� Seit Anfang 2015 wurde Europa von einer Flüchtlingsflut
+
+
+**_��������������_**
+**_Durch geschickte Lügen und_**
+**_Meinungsmanipulationen_**
+**_sollen die Völker auf weitere_**
+**_Kriege vorbereitet und für_**
+**_eine „Neue Weltordnung“_**
+**_unter US-Führung willig ge-_**
+**_macht werden. Auch 2016_**
+**_wird es wohl im selben Stil_**
+**_weitergehen. Doch obwohl_**
+**_dieses Lügengebäude über_**
+**_Jahrhunderte systematisch_**
+**_errichtet wurde, kann es_**
+**_auch wieder runtergerissen_**
+**_werden. Lehrt nicht die Na-_**
+**_tur, dass Dinge in einem Nu_**
+**_z.B. durch Erdbeben, Natur-_**
+**_katastrophen, Kriege, usw._**
+**_zerstört werden können?!_**
+**_Warum sollte das bereits_**
+**_bröckelnde Lügengebäude_**
+**_der Architekten der „Eine_**
+**_Weltregierung“ nicht auch_**
+**_durch weiteres Aufdecken_**
+**_der Lügen in einem Nu zum_**
+**_Einsturz gebracht werden_**
+**_können?_**
+
+_Die Red. (dd.)_
+
+
+**www.sasek.tv**
+
+
+-----
+
+#### Malaysisches Gericht verurteilt Bush zum Kriegsverbrecher
+_Posted on Januar 5, 2016 3:26 am by admin_
+**Ein malaysisches Gericht hat Ex-Präsident George W. Bush und sieben seiner früheren Anhänger der Kriegs-**
+**verbrechen und der Verbrechen gegen die Menschlichkeit verurteilt. Das Tribunal ist eine Initiative des ehe -**
+**maligen malaysischen Premierministers und hat das Ziel, der Welt ein Zeichen zu setzen.**
+
+Liess in seinen Gulags foltern: George W. Bush
+
+Ein Kriegsverbrechertribunal in Malaysia hat den ehemaligen US-Präsident George W. Bush und einige andere
+Mitglieder von dessen ehemaliger Regierung aufgrund von Kriegsverbrechen und Verbrechen gegen die
+Menschlichkeit verurteilt.
+In einem einstimmigen Votum wurde durch das ‹Kuala Lumpur› am Samstag beschlossen, dass Bush und sieben
+seiner Mitarbeiter, darunter der ehemalige Vizepräsident Dick Cheney und der ehemalige Verteidigungs minister Donald Rumsfeld, sich während deren Amtszeit der Folter und Kriegsverbrechen schuldig gemacht
+haben. Als Zeugen sagten ehemalige Gefangene aus dem Irak und Guantanamo Bay aus, die während der Gefangenschaft von US-Soldaten gefoltert wurden. So berichtete etwa Abbas Abid, dass er über mehrere Monate
+mit Elektroschocks gefoltert, geschlagen und sexuell misshandelt worden sei. Hochrangige ehemalige UNBeamte waren ebenfalls im Gerichtssaal anwesend und drückten ihr Mitgefühl und ihre Wut über die Beweise
+aus.
+Das Tribunal ist eine Initiative des ehemaligen malaysischen Premiers Mahathir Mohamad. Das Ziel des
+Gerichts ist es, Bush und seine Kohorten vor Gericht zu bringen und für die Verbrechen zu verurteilen. Mahathir
+äusserte die Hoffnung, dass dies «die Welt aufhorchen lassen wird» und aufzeigen soll, dass Bush und seine
+Anhänger Mörder seien. Bereits im November 2011 beschloss das Gericht, dass sich George W. Bush und der
+ehemalige britische Premierminister Tony Blair im Irak-Krieg der ‹Verbrechen gegen den Frieden› schuldig
+gemacht haben.
+
+
+_http://www.gegenfrage.com_
+_Gefunden bei: http://wahrheitfuerdeutschland.de/malaysisches-gericht-verurteilt-bush-zum-kriegsverbrecher/_
+_(Erlaubnis liegt vor)_
+
+#### Multi-Kulti ist tot Köln, Hamburg und Stuttgart: Polizeigewerkschafter sieht düstere Zukunft kommen
+_Epoch Times, Dienstag, 5. Januar 2016, 18:30_
+
+Wer gemeint hat, dass sich kriminelle Migranten mit ihren Aktivitäten auf die Flüchtlingsunterkünfte be schränken würden, wurde jetzt eines Besseren belehrt. Polizeigewerkschaftschef Rainer Wendt sagte auch, dass
+es zur Wahrheit gehöre, dass sich unter den Flüchtlingen nicht nur Schutzsuchende sondern auch Kriminelle
+befänden. Seiner Meinung nach fühlten sich die Täter stark genug, um sich in der Masse so zu verhalten.
+
+
+-----
+
+_Rainer Wendt, Vorsitzender der Deutschen Polizeigewerkschaft im Gespräch_
+_Foto: Screenshot/Youtube_
+
+Der Leiter der Direktion Gefahrenabwehr in Köln gesteht: «Das Vorgehen der Täter hat uns völlig überrascht.
+Das hat alles getoppt, was wir bisher in Silvesternächten erlebt haben. Weder in Köln noch in anderen Städten
+hat es einen solchen Modus Operandi bisher gegeben», zitiert der Kölner Stadtanzeiger den Beamten.
+
+**Übergriffe wie vom ‹Tahrir-Platz›**
+Rainer Wendt, Chef der Deutschen Polizeigewerkschaft (DPolG) erklärte: «Wir kennen solche Übergriffe aus
+dem Ausland wie etwa vom ägyptischen Tahrir-Platz.»
+Die Polizei sei von der neuartigen Dimension an Kriminalität völlig überrascht worden: «Das konnte man nicht
+vorhersehen, die Polizei konnte deshalb darauf nicht vorbereitet sein», so Wendt. Weiterhin sagte er: «Die Täter
+fühlen sich offenbar stark genug, um sich in der Masse so zu verhalten.»
+
+**Strafbekannte Asylbewerber aber keine Ausweisungen**
+Bei den Überprüfungen der Nacht konnten viele der Nordafrikaner sich nur mit Duldungsbescheinigungen
+ausweisen und wurden zur Identitätsüberprüfung auf die Wache mitgenommen. Von Zeugen wurde beob achtet, wie sich Täter in der Menge wegduckten oder blitzschnell andere Jacken anzogen. Den Opfern war es
+kaum noch möglich, die Täter wiederzuerkennen.
+Der Gewerkschafts-Vorsitzende ist nicht optimistisch. «Ich bin leider davon überzeugt, dass uns das in Zukunft
+noch weiter begleiten wird.» Rainer Wendt sieht keine Chance, dass es zu irgendeiner Verurteilung kommen
+wird, da die Identifizierung der Täter kaum möglich sei. Es seien einfach zu viele Männer gewesen, die Bilder
+der Videoaufnahmen zu ungenau. Einige der Täter waren schon strafrechtlich bekannt. Es sei aber nichts
+passiert: «Es wird keine Ausweisungen geben, denn Strafverfahren haben keine Auswirkungen auf Asylver fahren», so Wendt.
+
+
+**Das Ende der rosa Multi-Kulti-Brille**
+Warnungen vor derartigen Zuständen in Deutschland wurden vor einiger Zeit noch sogenannten rechten
+Spinnern und Verschwörungstheoretikern zugeschrieben. Jetzt sind sie bittere Realität und, wenn Rainer Wendt
+Recht behalten sollte, erst der Anfang. Auch Justizminister Heiko Maas zeigte sich entsetzt. Er geht von einer
+‹neuen Dimension organisierter Kriminalität› aus. Er forderte auf, die Täter zur Rechenschaft zu ziehen: «Wir
+dürfen nicht zulassen, dass Menschen in unseren Städten blanker Gewalt schutzlos ausgeliefert sind», so der
+Bundesjustizminister.
+
+
+-----
+
+Selbst aus den Reihen der Grünen kommt ein Aufschrei: «Was in Köln und in St. Pauli passiert ist, sind ungeheuerliche Straftaten, und die müssen konsequent verfolgt werden. Es gibt keinen Bonus für Nationalität oder
+Aufenthaltsstatus. Das Gesetz gilt für jeden», sagte Grünen-Fraktionschefin Katrin Göring-Eckardt der ‹Welt›.
+Selbst eine gesetzliche Integrationspflicht werde das Problem nicht lösen. «Anders als die Union glaube ich
+nicht, dass man auf diesen Gewaltausbruch ein Pflaster namens ‹Integrationspflicht› klebt und alles wird gut»,
+so die Göring-Eckardt.
+
+**Frauen bis 60 Jahren betroffen**
+Die bisherigen Berichte der sexuellen Übergriffe der Kölner Silvesternacht beliefen sich auf junge Frauen. Doch
+die Täter waren in allen Altersklassen aktiv. Die 40-jährige Julia W. berichtete dem WDR: «Die Stimmung war
+aggressiv. Plötzlich wurde ich von hinten – ohne dass mein Freund es sah – von mehreren Männern ange grabscht. Ich kann sagen, dass es mehrere waren, da zeitgleich Hände an meinen Brüsten und an meinem Po
+waren.»
+Sie habe sich mit ihrem Freund aus der Masse befreien können und sah in einem Mittelgang verstörte weinende
+Frauen, während mutmassliche Täter von Polizisten mit Hunden abgeführt wurden. Diese Täter hätten keine
+Papiere bei sich gehabt und auch kein Deutsch gesprochen, so der WDR.
+«Ich wollte mit meiner Freundin eigentlich nur kurz durch den Bahnhof gehen, um im Brauhaus auf der
+anderen Seite ein Bier zu trinken. Aber schon, als wir auf dem Bahnhofs-Vorplatz ankamen, habe ich plötzlich
+nur noch Männer gesehen. Es waren Hunderte. Und sie haben uns behandelt wie Freiwild.» Dies waren die
+Worte einer 50-Jährigen im Frauen-Magazin ‹Emma›.
+
+
+**Hilfsbereite wurden bedroht, selbst die Polizei hielt sich zurück**
+Der Kölner Stadtanzeiger zitierte eine ältere Dame (60): «Die haben versucht uns anzumachen, wir fühlten uns
+bedroht.» Es wurde auch berichtet, dass Leute bedroht wurden, die sich einmischen wollten. Die Täter waren
+sehr aggressiv. Es sei zu Schlägereien gekommen. Selbst die Polizei schien Angst zu haben: «Ich hatte das Gefühl,
+die Polizei und die Sicherheitsleute der Bahn waren nicht nur überfordert, sondern hatten auch Angst, die Lage
+könnte eskalieren», so eine Augenzeugin im Kölner Stadtanzeiger. (sm)
+_Quelle: http://www.epochtimes.de/politik/deutschland/multi-kulti-ist-tot-koeln-hamburg-und-stuttgart-polizeigewerkschaf-_
+_ter-sieht-duestere-zukunft-kommen-a1296755.html_
+
+#### Merkel-Deutschland: Ein bissiger Hund an der Kette der USA?
+_4. Januar 2016 dieter_
+
+Inzwischen ist das eingetreten, was Papst Benedikt XVI. in seiner
+Rede vor dem Deutschen Bundestag am 22. September 2011 sagte:
+«Nimm das Recht weg – was ist dann ein Staat noch anderes als
+eine grosse Räuberbande?» (De civitate dei, IV, 4, 1. Übers.)
+Es gibt immer mehr juristische Stimmen, dass die Führerin und
+ihr gesamtes ReGIERungsteam in mehrerer Hinsicht gegen das
+Grundgesetz (GG) verstossen. Ein Bundeswehreinsatz in Syrien
+oder die Zulassung von mehreren Millionen Einwanderern,
+davon mehrere zehntausend Illegale sind nur zwei von vielen
+strafbaren Handlungen gegen das GG.
+«Der Generalbundesanwalt beim Bundesgerichtshof ist auf dem
+Gebiet des Staatsschutzes die oberste Strafverfolgungsbehörde
+der Bundesrepublik Deutschland. Er übt das Amt des Staats anwalts in allen schwerwiegenden Staatsschutzstrafsachen aus,
+die die innere oder äussere Sicherheit in besonderem Masse berühren.
+Die innere Sicherheit wird durch politisch motivierte Delikte, insbesondere durch terroristische Gewalttaten,
+die äussere Sicherheit durch Landesverrat und Spionage tangiert. Zuständig ist der Generalbundesanwalt beim
+Bundesgerichtshof auch für die Verfolgung von Straftaten nach dem Völkerstrafgesetzbuch.»
+_(Quelle: www.generalbundesanwalt.de/de/index.php)_
+
+
+-----
+
+Demnach müssten beim Generalbundesanwalt schon seit einiger Zeit die Alarmglocken läuten. Selbst fast
+täglich eingehende Strafanzeigen gegen Angela Merkel oder gegen die BundesreGIERung werden beiseite geschoben und nicht hochrangig bearbeitet. Gewaltenteilung existiert im Merkel-Land nicht mehr. Ja, Frau
+Merkel hat Deutschland als ihr Land bezeichnet als sie sagte: «… dann ist das nicht mehr mein Land».
+Was bildet sich diese Frau eigentlich ein? Soll sie doch gehen! Für das Flugticket – möglichst weit weg – würde
+ich sammeln gehen. Im Netz gibt es genügend Anti-Merkel-Fans, die für ihr Flugticket sofort spenden würden.
+Wahrscheinlich hätte ich innerhalb weniger Stunden mehrere hunderttausend Euro zusammen.
+Damit aber wäre das grundlegende Problem der politischen Parteienstruktur nicht gelöst. Ohne ein Verbot
+politischer Parteien kann es keine Systemänderung geben. Frau Merkel ist für die meinungsmachende Lügenpresse ein Zugpferd, ein Magnet. Auf ihren Kaffeekränzchen mit den deutschen Medienmogulinnen Liz Mohn
+und Friede Springer werden die entsprechenden Schlagzeilen für die geBILDete Masse besprochen.
+Mit «Wir schaffen das» wurde an die Moral und Hilfsbereitschaft seitens der Bundesregierung und ihrer Hofberichterstatter appelliert. Nur drei Worte, die sich leicht ins Gehirn einprägen lassen. Was aber bedeuten diese
+drei Worte im Einzelnen?
+‹Wir› suggeriert Solidarität. Schwachen Menschen und Kriegsflüchtlingen muss geholfen werden. Keine Frage,
+aber sollte eine ReGIERung, deren oberstes Ziel die Menschenrechte sind, nicht vorrangig die Ursachen völkerrechtswidriger Kriege zum politischen Ziel machen? Solange Deutschland ein Besatzungskonstrukt ist, ist
+Deutschland nichts anderes als ein bissiger Hund an der Kette der USA
+und ihrer internationalen Terrororganisation (NATO). Selbst wenn Frau
+Merkel gehen sollte, wird die nächste US-Marionette in Berlin installiert.
+Wer auch immer das sein mag, spielt überhaupt keine Rolle.
+‹Schaffen› war und ist noch immer eine positive Eigenschaft der Deutschen.
+Sie haben sich jedesmal wieder aus den Trümmern befreit, die volksverräterische Politiker hinterlassen haben. Nicht von ungefähr sind deutsche
+Produkte weltweit gefragt. Deshalb müssen sie auch weltweit durch aufgewärmte Skandale (z.B. VW) geächtet werden. Die US-gesteuerte Lügenpresse in Deutschland trägt dazu ihren Beitrag bei. ‹Schaffen› für andere
+und wertloses Dollarpapier. Dieses Privileg gebührt allein den Deutschen!
+‹Das›. Was soll geschafft werden? Darüber allerdings hat sich Frau Merkel
+nicht ausgelassen. Hat sie vielleicht die Ausplünderung Deutschlands damit gemeint? Kann nicht sein, denn die
+läuft schon länger auf Hochtouren. Oder meinte Frau Merkel vielleicht die Islamisierung Deutschlands? Wenn
+dem so sein sollte, wäre es doch in einer Demokratie angebracht, das Volk zu befragen. Oder meinen Sie nicht,
+Frau Merkel?
+Sorry, ich vergass, dass Ihnen der Amtseid am Ar… vorbeigeht, in dem sich Ihre Schosshunde befinden. Sie,
+Frau Merkel, als rechte Hand des Hegemons haben die Floskel von Obamas «Yes, we can» übernommen und
+mit «Wir schaffen das» ins Deutsche übersetzt. Obama ist mit dieser niederträchtigen Propaganda US-Präsident
+geworden. Sie, Frau Bundeskanzlerin, werden an dieser Aussage scheitern. Sollte es dennoch gutgehen, werden
+Sie spätestens mit dem Scheitern des Euro Ihr mediales Angesicht verlieren, denn Europa wird am Euro zer brechen.
+Wer weiss, vielleicht ist mit «Wir schaffen das» ein ähnliches Szenario gemeint? Frau Merkel redet viel, sagt aber
+NICHTS!
+Frau Merkel, wenn Sie vielen Deutschen gefällig sein wollen, dann treten Sie endlich zurück. Ich bin mir ganz
+sicher, dass ein grosser Teil der Bevölkerung diesen, Ihren Schritt genau so feiern würde, wie den Fussball-Weltmeistertitel. Der andere Teil, der sich nicht der ‹Brot-und-Spiele-Gesellschaft› angepasst hat, möchte auch mal
+gerne etwas zu feiern haben.
+Wenn Sie, Frau Merkel, auch nur einen Funken Mitleid mit der deutschen Bevölkerung haben, befreien Sie sie
+von Ihren üblen Ausbeutungsmachenschaften. Sie haben schon genug Unheil angerichtet. Als Christin und
+oberste Führerin der BRD sind Sie in Ihrem Amt verpflichtet, Unheil vom Volk abzuwehren. Oder sind Sie gar
+keine Christin? Das ‹C› bei CDU steht schon lange nicht mehr für Christlich, sondern vielmehr für ‹Chaotisch›!
+Chaotisch Demagogisches Unheil = CDU.
+Die kommenden Landtagswahlen im Frühjahr in BW, in RP und Sachsen-Anhalt und im Herbst in Meck.-Pom.
+werden zeigen, ob die Bevölkerung noch hinter Ihnen stehen wird. Wenn Sie das Chaotisch Demagogische Unheil (CDU) noch retten wollen, treten Sie besser sofort zurück.
+_Quelle: http://krisenfrei.de/merkel-deutschland-ein-bissiger-hund-an-der-kette-der-usa/ (Erlaubnis liegt vor)_
+
+
+-----
+
+#### Merkelregierung dient den Schwerverbrechern
+_Publiziert am 4. Januar 2016 von webgo-admin_
+Seit geraumer Zeit warne ich davor, dass die Merkelregierung kriminell ist. Der ungeheure Skandal in Köln, wo
+ein riesiger Haufen nordafrikanischer Verbrecher deutsche Frauen belästigt und bestohlen hat (auch von Vergewaltigung ist die Rede), hat gezeigt, dass durch das völlige Versagen der deutschfeindlichen Altparteien unser
+Staat hilflos geworden ist und die Bürger sich jetzt selbst wehren müssen. Das ist eigentlich bedauerlich, denn
+besser wäre es, wenn entsprechend dem ‹Gewaltmonopol des Staates› der Staat seine Mittel zum Schutz der
+Bürger einsetzen würde. Leider tut er das aber nicht mehr. Die Deutschenhasser, die in den vergangenen Jahren
+unzählige Milliarden für Ausland/Ausländer verpulvert haben, wollten diese Beträge dann bei den Deutschen
+wieder einsparen. Deshalb hat es in den vergangenen Jahren folgenden Wahnsinn gegeben:
+1. In vielen Bundesländern wurde bei Polizei und Justiz gespart, obwohl gerade die ständig steigende Aus länderkriminalität eher eine Verstärkung von Polizei und Justiz erforderlich gemacht hätte.
+2. Vielfach wurde bei Schulen und Ausbildung gespart.
+3. Investitionen wurden oft unterlassen, so dass wir jetzt wachsende Probleme wegen Mängeln im Verkehrswesen und in der Informationstechnologie haben.
+
+Wenn trotz dieser schwerwiegenden Mängel dann eine deutschfeindliche und unglaublich dumme Merkel
+zulässt oder sogar unterstützt, dass Millionen Ausländer unser Land überfluten, dann ist garantiert, dass es
+Riesenprobleme gibt, und zwar in allen Bereichen. Die erschütternden Vorkommnisse in Köln sind leider kein
+Einzelfall. Auch aus anderen Orten werden ständig steigende Straftaten von Ausländern gemeldet. Die dum**men, verlogenen und selbst kriminellen deutschfeindlichen Politiker haben das alles bis zum heutigen Tag**
+**bestritten und so getan, als sei alles in Ordnung. Wer vor der unkontrollierten Masseneinwanderung gewarnt**
+hat, wurde von Gauck, Gabriel, Merkel, Maas (das ist der vollkommen unfähige Bundesjustizminister) und
+natürlich von den deutschfeindlichen Grünen sowie einigen linken Politpfaffen in übelster Weise beschimpft.
+**Diese pflichtvergessenen deutschfeindlichen Politiker haben in einer Weise gegen Andersdenkende gehetzt,**
+**wie sie für Diktaturen kennzeichnend ist. Da gab es kaum ein Schimpfwort, das diese Deutschenhasser nicht**
+benutzt haben: Schande für Deutschland, Dunkeldeutschland, Pack, Ausländerfeinde, Nazis, Rechtsradikale
+usw. Besonders heuchlerisch war es, wenn dann Hetzer wie der linksradikale Heiko Maas vor der Verbreitung
+**von Hass gewarnt haben, obwohl er das selbst ständig gemacht hat. Dieser völlige Versager Heiko Maas (3**
+Landtagswahlen im Saarland verloren, deshalb will er sich jetzt besonders wichtig machen!) hat offenkundig
+**die Ausländerkriminalität verschlafen, ebenso die ungeheuren Gewalttaten, die von Linksradikalen begangen**
+werden. Beispiel: In Berlin wurde in einem linken ‹Theaterstück› dazu aufgerufen, namentlich und mit Adresse
+genannte Personen wegen ihrer ‹rechten› Politik ‹in den Kopf zu schiessen›. Ein klarer Mordaufruf und eine
+**Ungeheuerlichkeit. Aber was tut der unfähige linkslastige Heiko Maas? Er empört sich nicht etwa über die**
+Schandtaten der Linksradikalen oder über die Morde und sonstigen Verbrechen, die in grosser Zahl von Ausländern in Deutschland begangen werden, sondern er hetzt gegen diejenigen, die vor dieser schlimmen Fehlentwicklung warnen, also z.B. AfD und Pegida. Leider versagt auch Herr Gauck völlig und ist offenbar zu feige,
+die durch Ausländer hervorgerufenen Probleme deutlich zu benennen. Dass die dumpfbackige Deutschen hasserin Merkel uns noch mehr Schandtaten zumuten will und dabei auch noch von einer ‹Chance› faselt, ist
+unerträglich. Man darf gespannt sein, wie nun die deutschfeindlichen Politiker reagieren. Nach bisheriger
+trauriger Erfahrung werden sie die Verbrechen von Ausländern wieder verharmlosen und davor warnen, diese
+Vorgänge als Vorwand für Ausländerfeindlichkeit zu benutzen. Im Verdrehen von Tatsachen sind diese deutsch**feindlichen Politiker ja geübt. Allerdings gibt es inzwischen quer durch Deutschland so viele Probleme mit**
+kriminellen Ausländern, dass sich diese Politiker nur noch selbst als Lügner entlarven, wenn sie so weitermachen
+wie bisher. Durch das völlige Versagen der deutschfeindlichen Parteien, durch ihren offenkundigen Mangel an
+Verstand und Anstand ist in Deutschland eine explosive Lage entstanden. Das Volk hat jedes Vertrauen in diese
+**Politiker verloren, deren Dummheit und Verlogenheit von Tag zu Tag offenkundiger wird. Die verbrecherische**
+**Politik der Merkelregierung hat Deutschland in die grösste Gefahr seit 1945 gebracht, und je mehr Fremde aus**
+völlig anderen Kulturkreisen unser Land überschwemmen, desto schlimmer wird es. Selbst die jetzt von Seehofer
+geforderte Obergrenze von 200000 Einwanderern jährlich ist noch viel zu hoch. Vernünftigerweise müsste jetzt
+**für einige Jahre ein Einwanderungsstopp kommen, von dem nur wirklich hochqualifizierte Leute ausge -**
+**nommen werden können, also nicht die Messerstecher, Asylbetrüger, Vergewaltiger, Drogenhändler, Menschen -**
+händler oder gar Terroristen. Überall in anderen Ländern hat man das begriffen. Gerade führen die skandinavi**schen Länder Kontrollen ein, weil ihnen die Einwanderung viel zu hoch ist. Nur die unbelehrbare, deutsch-**
+
+
+-----
+
+feindliche Merkelregierung will weiterhin das eigene Land mit allen Mitteln schädigen. Die Ausrede, man wolle
+das Problem ‹auf europäischer Ebene› lösen, ist typisch für Merkels Verlogenheit, denn es ist völlig klar, dass die
+anderen Regierungen nicht so blöd sind wie die Bundesregierung und **dass sie sich im Gegensatz zu dem**
+**Merkelregime ihrem eigenen Land verpflichtet fühlen. Merkel will mit ihrem verlogenen Geschwätz Zeit**
+gewinnen bis nach den Landtagswahlen, aber auf diesen Trick werden die Wähler nicht mehr hereinfallen. Die
+deutschfeindlichen Parteien werden dieses Jahr gewaltige Wahlniederlagen erleben, weil sie unser Land ruinieren.
+Übrigens: mit dem Vorwurf, dass die Merkelregierung Schwerverbrechern dient, meine ich nicht nur die unkontrollierte Masseneinwanderung. Man muss sich auch ansehen, welche Politiker/Länder die Merkelregierung
+unterstützt. Aktueller Fall: Ausgerechnet das barbarische, menschenverachtende, christenverfolgende und
+hemmungslos mordende saudi-arabische Regime bekommt Waffen mit Unterstützung der verrückten Bundesregierung. Aber Merkel hat ja seinerzeit auch den US-Kriegsverbrecher Bush unterstützt, der für das ungeheure
+Chaos im Irak verantwortlich ist. Merkel hat typischerweise schon damals frech gelogen, als sie Bushs Kriegslügen wie ein Papagei nachgeplappert hat. Zwischendurch unterstützt Merkel auch noch Kriegsverbrecher wie
+**den Israeli Netanjahu oder das korrupte Regime in der Ukraine. In all diesen Fällen handelt Merkel gegen die**
+**Interessen Deutschlands. Es wird höchste Zeit, dass andere Politiker/Parteien an die Macht kommen. Die**
+Deutschen müssen sich jetzt energisch gegen diese volksfeindliche Politik wehren, denn es geht um ihr Land.
+Ist das noch Deutschland oder ist es schon Fremdland? Wenn ich im Zentrum meiner Heimatstadt herumgehe,
+sehe ich ungewöhnlich viele Fremde, die keineswegs die ‹armen Flüchtlinge› sind, die uns die Märchenerzähler/
+Gutmenschen vorgaukeln, sondern gut ausgeruhte, erstaunlich gut gekleidete und mit modernen Smartphones
+ausgerüstete Leute, bei denen ich mich frage: Woher haben die eigentlich das Geld für das alles ? Und sie alle
+benutzen ihre schicken Smartphones, um vermutlich ihre ganze Sippe einzuladen, ebenfalls nach Deutschland
+zu kommen, wo sie ohne Arbeit wunderbar leben können – zumindest wenn sie Ausländer sind. Für Deutsche
+ist das leider schwieriger, denn sie müssen dieses Jahr wieder in vielen Bereichen mehr bezahlen: Krankenversicherung, Porti, Bahn, Busse, Kitas, Grundsteuer, Grunderwerbsteuer usw. Vieles wird wieder teurer, denn die
+unkontrollierte Masseneinwanderung muss ja bezahlt werden – von uns Deutschen, wie immer …
+Noch ein Hinweis für Herrn Gauck: Die Verbrecher von Köln kamen nicht etwa aus ‹Dunkel-Deutschland›,
+sondern aus ‹Dunkel-Afrika›!!! Vielleicht sollten Gauck und andere ihre Reden endlich umschreiben, sonst
+werden sie in peinlicher Weise durch die Wirklichkeit widerlegt.
+_Quelle: http://www.anti-merkel.de/2016/01/04/merkelregierung-dient-den-schwerverbrechern/ (Erlaubnis liegt vor)_
+
+#### Grauenhaft: Jetzt kommen auch noch Einwanderer aus Marokko und Algerien
+_Publiziert am 2. Januar 2016 von webgo-admin_
+So schnell kann man die Lügenkanzlerin Merkel widerlegen: Gerade hat sie in ihrer saublöden Neujahrsan sprache so getan, als wende sich in Sachen Masseneinwanderung alles zum Guten und als werde die Zahl der
+Einwanderer endlich nennenswert sinken, kommen genau entgegengesetzte Meldungen, zum Beispiel aus
+Griechenland. Dort sollen täglich gut 4000 Leute eintreffen, die in Europa einwandern wollen, also mit höchster
+Wahrscheinlichkeit leider fast alle zu uns wollen. Zusätzlich wird berichtet, dass jetzt immer mehr Leute aus
+anderen als den bisherigen Herkunftsländern kommen und jetzt verstärkt Leute aus Marokko und Algerien hier
+einwandern wollen. Dass dies ganz klar Wirtschaftsflüchtlinge sind, sieht jeder ausser der unfähigen deutschfeindlichen Politikerbande. Wenn etwa Marokko ein Reiseland ist, dürfte die Berufung auf angebliche Verfolgung
+reiner Schwindel sein. Noch schlimmer aber ist, dass genau aus diesen Ländern die Terroristen stammen, die
+z.B. in Frankreich und Belgien für Morde, Angst und Schrecken gesorgt haben. Und solche Leute sollen jetzt bei
+uns ungehindert einreisen und hier auf unsere Kosten leben dürfen? Unfassbar! **Diese unfähige Bundes -**
+**regierung macht aus Dummheit und Deutschfeindlichkeit jeden nur möglichen Fehler. Was muss eigentlich**
+noch geschehen, bis z.B. der vollkommen unfähige Bundesjustizminister Heiko Maas aufwacht, der bisher nur
+durch tiefe Verbeugungen vor jedem hergelaufenen Ausländer aufgefallen ist und immer noch nicht begriffen
+hat, welch ungeheure Gefahr die unkontrollierte Masseneinwanderung ist. Wohlbemerkt, wir reden hier ja nicht
+über Kleinigkeiten, sondern darüber, dass unser Land in mehrfacher Hinsicht bedroht ist, sowohl durch verbrecherische Anschläge als auch durch wirtschaftliche Überforderung und durch die völlige Überfremdung.
+Anständige Deutsche müssen jetzt einen doppelten Kampf führen: Einerseits gegen die unkontrollierte
+Masseneinwanderung, andererseits aber auch gegen jene deutschfeindlichen Parteien, die Schuld an diesem
+
+
+-----
+
+Völkerwanderungs-Wahnsinn sind. Wir gehen unruhigen Zeiten entgegen. Der Kampf gegen die deutschfeind**liche Politik muss verstärkt werden. Übrigens: Merkel ist mit ihrer volksfeindlichen, kriminellen Politik in**
+Europa völlig isoliert. Gerade verstärkt Schweden die Grenzkontrollen, Dänemark will es auch tun und die
+polnische Regierung wehrt sich energisch gegen die Einwanderung von Leuten aus völlig anderen Kulturen.
+Auch andere Regierungen in Europa lehnen die Masseneinwanderung ab. Nur das dumme und deutschfeindliche Merkelregime will uns dieses Jahr noch weitere Einwanderer in riesiger Zahl zumuten.
+
+#### Merkelregierung versagt in allen Bereichen
+_Publiziert am 2. Januar 2016 von webgo-admin_
+Eine vernichtende Kritik an der Wirtschaftspolitik der unfähigen Merkelregierung kann man unter www.bilanz.de lesen. Dort stellt der Verfasser Frank A. Linden unter dem Titel ‹Widerspruch zur Wirtschaftspolitik›
+(Anmerkung: siehe https://www.bilanz.de/kolumnen/widerspruch-zur-wirtschaftspolitik) fest, Deutschland
+sei in einem Zustand, der nur für den Moment ausreichend ist. Deutschland sei das reformunwilligste Industrie land. Anhand einiger Beispiele schildert der Verfasser, wie in wichtigen Bereichen abgebaut statt aufgebaut wird
+und wie die Wettbewerbsfähigkeit künftig bedroht ist. Leider scheinen das weder Regierungspolitiker noch die
+ihnen dienenden Hofjournalisten (Lügenmedien) zu begreifen. Statt sachlicher Kritik bringen die gekauften
+Journalisten nur Jubelberichte und Merkel selber klopft sich in ihrem Größenwahn ständig auf die Schultern,
+wie gut sie doch alles mache. «Starkes Land» faselt sie als Vorwand dafür, Millionen Einwanderern noch mehr
+Geschenke auf Kosten der Deutschen zu machen. Dass in Deutschland viele wichtige Investitionen fehlen und
+weite Bereiche verrotten, wie man u.a. bei Mängeln im Verkehrswesen oder in der Telekommunikation sehen
+kann, scheint die Merkelregierung nicht zu interessieren. Vielleicht ist sie ja auch ganz einfach zu blöd, um die
+Probleme rechtzeitig zu erkennen. Wann hat diese elende Merkelregierung jemals ein Problem rechtzeitig
+erkannt und gelöst? Nie!
+
+
+#### Merkels Neujahrsbotschaft: Sie will dumm, deutschfeindlich und verlogen bleiben
+_Publiziert am 1. Januar 2016 von webgo-admin_
+An sich sind ja diese Neujahrsbotschaften der verschiedensten Politiker schon deshalb eine Frechheit, weil da
+öffentlich-rechtliche Sender wie in Diktaturen dazu missbraucht werden, politische Propaganda zu verbreiten.
+Wenn dann noch wie bei Merkel die Rede nur eine Ansammlung von Lügen und dummen Sprüchen ist, ist es
+wirklich unerträglich. Meine Folgerung aus Merkels heuchlerischem Dummgeschwätz: Sie will ihre idiotische
+**Politik auf Kosten Deutschlands fortsetzen, sie will weiterhin Sachverhalte verdrehen, ihr völliges Versagen**
+auch noch als Ausdruck von Moral hochjubeln und scheinheilig die Christin spielen, die sie ganz sicher nicht
+ist. Es ist geradezu eine Gotteslästerung und der Gipfel der Heuchelei, wenn Merkel am Ende ihrer Lügen botschaft Deutschland ausgerechnet ‹Gottes Segen› wünscht, obwohl sie im vergangenen Jahr alles getan hat,
+um fanatischen Christenverfolgern den Weg nach Deutschland zu ebnen. Peinlich, dass ausgerechnet zu dem
+Zeitpunkt, als Merkel etwas von ‹Chance für Deutschland› schwadronierte, aus München eine Terrorwarnung
+**kam. Offenbar sehen Terroristen in Merkels Politik ihre grosse Chance. Ganz blöd Merkels Behauptung über**
+Integration. Sie hat offensichtlich verschlafen, dass überall dort, wo es grössere Mengen von Fremden aus völlig
+**anderen Kulturkreisen gibt, die Terrorgefahr besonders gross ist. Das sah man bei den Massenmorden von**
+Paris, bei den terroristischen Umtrieben in Brüssel und anderswo. Was hat Merkel daraus gelernt? Gar nichts.
+Jeder Normalbürger kann sofort feststellen, dass überall in Europa der Versuch, grosse Zahlen von Moslems zu
+integrieren, jämmerlich gescheitert ist. Natürlich wollen das die weltfremden selbstgefälligen Gutmenschen
+nicht hören, aber es ist erwiesenermassen so. Kein Wunder, dass sich alle anderen Länder weigern, den idiotischen und ruinösen Merkelkurs zu befolgen. Merkels lächerliche Durchhalteparolen mit dem dümmsten Satz
+des Jahres ‹Wir schaffen das›, zeigen, dass Merkels Politik eine Mischung aus Dummheit, Verlogenheit und
+**Deutschfeindlichkeit ist. Dieses Jahr müssen wir uns entscheiden: Entweder Deutschland oder Merkel. Wer für**
+**Deutschland ist, muss gegen die Merkelpolitik sein.**
+_Quelle: www.anti-merkel.de (Erlaubnis liegt vor)_
+
+
+-----
+
+_REUTERS/ Rick Wilking 13:54 16.12.2015_
+**US-Präsidentschaftskandidat Donald Trump hat die Lage im Nahen Osten als ein ‹totales Durcheinander›**
+**bezeichnet. Die USA haben laut dem Politiker der ganzen Menschheit einen Bärendienst erwiesen.**
+Die Politik der jetzigen US-Administration habe zu einer Destabilisierung im Nahen Osten geführt, so der
+amerikanische Milliardär und US-Präsidentschaftskandidat der Republikaner Donald Trump.
+«Wir haben nicht nur dem Nahen Osten einen äusserst schlimmen Bärendienst erwiesen, sondern der ganzen
+Menschheit. Menschen werden getötet, und wofür?», sagte er während einer Teledebatte der republikanischen
+Kandidaten.
+Die Situation in der Region hat Trump als ein ‹totales Durcheinander› bezeichnet. Seinen Worten zufolge wurde
+‹der Nahe Osten komplett destabilisiert›.
+_Quelle: http://de.sputniknews.com/panorama/20151216/306517445/trump-us-nahost.html_
+
+#### Maulkorb-Erlass: §130 StGB Volksverhetzung
+_7. Januar 2016 dieter_
+Gerhard Breunig (freiraum)
+**Mit Beginn des neuen Jahres öffnet die Bunderegierung ein neues schändliches Kapitel der Meinungsfreiheit**
+**in diesem angeblich freiesten Land auf deutschem Boden.**
+**Der erweiterte Text des § 130 StGB beendet die grundgesetzlich garantierte Meinungsfreiheit endgültig und**
+**überführt die BRD in eine Meinungsdiktatur.**
+Nach dem Motto: «Jeder darf seine freie Meinung äussern, solange diese der offiziellen Regierungsmeinung entspricht», legt zumindest die Vermutung nahe, dass die Einheitsmeinung im Einheitsstaat der Einheitsmenschen
+auf einem guten Weg ist – zumindest aus Sicht der sozialistischen Gesellschaftsklempner in Berlin.
+Man muss sich den neu verfassten Text wirklich mal auf der Zunge zergehen lassen, mit dem das Grundgesetz
+auf ein Neues ausgehebelt und so immer mehr zur Makulatur gemacht wird. Die Mächtigen dieser sogenannten
+Republik scheren sich jetzt schon ganz offen nicht mehr um die Interessen der Bürger dieses Landes. Man gewinnt eher den Eindruck, dass der Deckel auf dem inzwischen eingesetzten Schnellkochtopf für die deutschen
+Frösche mit aller Gewalt auf dem Topf gehalten werden muss. Weil der im Topf entstandene Überdruck durch
+die permanente Benachteiligung der eigenen Bürger unkontrolliert zu entweichen droht, muss seitens der
+Regierenden eine Halte-Bandage nach der anderen darüber geklebt werden.
+
+
+-----
+
+**Da der Paragraph ‹Volksverhetzung› schon immer eine Meinungsdiktatur darstellte, war man wohl der Ansicht,**
+**dass es wenig ausmacht, wenn dieser Maulkorb für Deutsche noch auf einige andere Bereiche ausgedehnt wird.**
+Schliesslich fehlen den Regierenden schon lange die echten Argumente für den aktiv betriebenen Bevölkerungsaustausch in diesem Land. Ob sich die hergeholten Menschen aus zumeist arabischen Ländern mit völlig
+anderem Kulturkreis diesen staatlichen Maulkorb umbinden lassen, bezweifle ich zumindest stark.
+
+**Was wird also die Folge der neuen Regelung sein?**
+Der obrigkeitshörige Deutsche wird eine weitere Stufe in den gesellschaftlichen Abstieg hinuntergestossen. Man
+kann das ‹Gesetz›, dessen verschlungene und verschachtelte Sätze für Richter und Staatsanwälte jede Menge
+‹Auslegungsspielraum› zur garantierten Verurteilung Andersdenkender schaffen, auch in einigen kurzen und
+deutlichen Worten erklären: «Wer es wagt, anderer Meinung zu sein als Regierung und Obrigkeit und so blöd
+ist, diese Meinung noch auch öffentlich, in Internet-Foren, an Stammtischen oder gar auf Demonstrationen zu
+verbreiten, wird mit Gefängnis von 3–30 Jahren bestraft.»
+
+**Seit Hitler war es also niemals gefährlicher in diesem Land, anderer Meinung zu sein als die Herrschenden.**
+Für mich stellt diese sogenannte Justizreform des Amateur-Juristen Heiko Maas (SPD) nicht mehr und nicht
+weniger dar als die Einführung der politischen und rechtlichen Willkür gegenüber der deutschen Bevölkerung
+in diesem Lande. Die Tür des dunklen Kerkers ist für Regimegegner und Menschen mit gegenteiliger Meinung
+seit heute weit geöffnet.
+Für all diejenigen, die den neuen Text noch nicht kennen, habe ich unter dem Artikel ein Kästchen mit dem
+Originaltext eingerichtet.
+**Ein guter Name für dieses neue Gesetz wäre für mich übrigens: ‹Der Maulkorb-Erlass›.**
+
+#### Strafgesetzbuch (StGB) § 130 Volksverhetzung
+(1) Wer in einer Weise, die geeignet ist, den öffentlichen Frieden zu stören,
+1. gegen eine nationale, rassische, religiöse oder durch ihre ethnische Herkunft bestimmte Gruppe, gegen Teile
+der Bevölkerung oder gegen einen Einzelnen wegen seiner Zugehörigkeit zu einer vorbezeichneten Gruppe
+oder zu einem Teil der Bevölkerung zum Hass aufstachelt, zu Gewalt- oder Willkürmassnahmen auffordert
+oder
+2. die Menschenwürde anderer dadurch angreift, dass er eine vorbezeichnete Gruppe, Teile der Bevölkerung
+oder einen Einzelnen wegen seiner Zugehörigkeit zu einer vorbezeichneten Gruppe oder zu einem Teil der
+Bevölkerung beschimpft, böswillig verächtlich macht oder verleumdet, wird mit Freiheitsstrafe von drei
+Monaten bis zu fünf Jahren bestraft.
+(2) Mit Freiheitsstrafe bis zu drei Jahren oder mit Geldstrafe wird bestraft, wer
+1. eine Schrift (§ 11 Absatz 3) verbreitet oder der Öffentlichkeit zugänglich macht oder einer Person unter achtzehn Jahren eine Schrift (§ 11 Absatz 3) anbietet, überlässt oder zugänglich macht, die
+a) zum Hass gegen eine in Absatz 1 Nummer 1 bezeichnete Gruppe, gegen Teile der Bevölkerung oder gegen
+einen Einzelnen wegen seiner Zugehörigkeit zu einer in Absatz 1 Nummer 1 bezeichneten Gruppe oder
+zu einem Teil der Bevölkerung aufstachelt,
+b) zu Gewalt- oder Willkürmassnahmen gegen in Buchstabe a genannte Personen oder Personenmehr heiten auffordert oder
+c) die Menschenwürde von in Buchstabe a genannten Personen oder Personenmehrheiten dadurch angreift,
+dass diese beschimpft, böswillig verächtlich gemacht oder verleumdet werden,
+2. einen in Nummer 1 Buchstabe a bis c bezeichneten Inhalt mittels Rundfunk oder Telemedien einer Person
+unter achtzehn Jahren oder der Öffentlichkeit zugänglich macht oder
+3. eine Schrift (§ 11 Absatz 3) des in Nummer 1 Buchstabe a bis c bezeichneten Inhalts herstellt, bezieht, liefert,
+vorrätig hält, anbietet, bewirbt oder es unternimmt, diese Schrift ein- oder auszuführen, um sie oder aus ihr
+gewonnene Stücke im Sinne der Nummer 1 oder Nummer 2 zu verwenden oder einer anderen Person eine
+solche Verwendung zu ermöglichen.
+(3)Mit Freiheitsstrafe bis zu fünf Jahren oder mit Geldstrafe wird bestraft, wer eine unter der Herrschaft des
+Nationalsozialismus begangene Handlung der in § 6 Abs. 1 des Völkerstrafgesetzbuches bezeichneten Art
+in einer Weise, die geeignet ist, den öffentlichen Frieden zu stören, öffentlich oder in einer Versammlung
+billigt, leugnet oder verharmlost.
+
+
+-----
+
+-----
+

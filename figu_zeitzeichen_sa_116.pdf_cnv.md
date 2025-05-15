@@ -1,0 +1,1489 @@
+10. Jahrgang
+Nr. 116 Juni/2 2024
+
+
+Erscheinungsweise:
+sporadisch
+
+
+### Sonderausgabe
+# FIGU ZEITZEICHEN
+
+###### Aktuelles • Einsichten • Erkenntnisse
+
+Internetz: http://www.figu.org
+E-Brief:  info@figu.org
+
+
+###### Organ für freie, politisch unabhängige Berichterstattungen zum Weltgeschehen, kommentarlose, neutrale und meinungslose Weitergabe von Zeitungsberichten.
+##### ***************************************************************************
+Laut ‹Allgemeine Erklärung der Menschenrechte›, verkündet von der Generalversammlung der Vereinten Nationen am 10. Dezember 1948,
+herrscht eine allgemeine ‹Meinungs- und Informationsfreiheit› vor, und dieses unumschränkte Recht gilt weltweit und absolut für jeden
+einzelnen Menschen weiblichen oder männlichen Geschlechts jeden Alters und Volkes, jedes gesellschaftlichen Standes wie auch in
+bezug auf rechtschaffene Ansichten, Ideen und jeglichen Glauben jeder Philosophie, Religion, Ideologie und Weltanschauung:
+
+**Art. 19 Menschenrechte**
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit, Meinungen**
+**unangefochten anzuhängen und Informationen und Ideen mit allen Verständigungs-**
+**mitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Ansichten, Aussagen, Darstellungen, Glaubensgut, Ideen, Meinungen sowie Ideologien jeder Art in Abhandlungen, Artikeln
+und in Leserzuschriften usw. müssen in keiner Art und Weise zwingend identisch mit dem Gedankengut und den
+Interessen, mit der ‹Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens›, wie auch nicht in
+irgendeiner Sachweise oder Sichtweise mit dem Missionsgut und dem Habitus der FIGU verbindend sein.
+==================================================================================
+==================================================================================
+Für alle in den FIGU-Zeitzeichen und anderen FIGU-Periodika publizierten Beiträge und Artikel verfügt die
+FIGU über die notwendigen schriftlichen Genehmigungen der Autoren bzw. der betreffenden Medien!
+###### ****************************************************************************************
+
+**Auf vielfach geäusserten Wunsch aus der Zeitzeichen-Leserschaft sollen in den Zeitzeichen zur Orientierung der**
+**Rezipienten laufend Auszüge diverser wichtiger Belange aus neuest geführten Kontaktgesprächsberichten**
+**veröffentlicht werden, wie nach Möglichkeit auch alte sowie neue Fakten betreffs weltweit bösartig mit**
+**Lügen, Betrug, Verleumdung und Mordanschlägen gegen BEAM geführte Kontroversen.**
+
+###### *********************************************************************************
+
+##### INFOsperber
+ Diese Bilder und Informationen dürfen Israelis nicht sehen
+_Red. / 10.06.2024_
+
+**Israels Regierung hat den TV-Sender Al Jazeera verboten. Hier das Beispiel eines Berichts aus Gaza über**
+**das Schicksal von Kindern.**
+_upg. Die UNO will Israel auf eine schwarze Liste von Ländern und Gruppen setzen, welche die Rechte von_
+Kindern in bewaffneten Konflikten verletzt haben. Doch Israel muss keine Konsequenzen fürchten, weil der
+UN-Sicherheitsrat über Massnahmen entscheiden muss. Und dort haben die USA ein Vetorecht.
+Israels Botschafter bei der UNO kontert, man müsse nicht Israel, sondern die UNO auf die schwarze Liste
+setzen. Israels Armee würde «den höchsten moralischen Standard aller Armeen» einhalten.
+Leserinnen und Leser können selbst beurteilen, ob das Verbreiten eines solchen Berichts verboten werden
+soll.
+
+
+-----
+
+_Zerstümmelte Kinder in Gaza. Etwa 15’000 Kinder und minderjährige Jugendliche wurden getötet. © Al Jazeera_
+
+##### Stellvertreterkrieg in der Ukraine eskaliert zu einem Weltkrieg
+_uncut-news.ch, Mai 30, 2024_
+
+**Das ukrainische Militär macht immer mehr Zugeständnisse entlang der Front. Gleichzeitig mehren sich**
+**die Stimmen in der EU, dass die Europäer aufrüsten und eingreifen müssen, um die Lage zu retten. Wird**
+**sich der Konflikt zu einem Weltkrieg ausweiten?**
+Von Wiktoria Nikiforowa
+
+Die Ukraine verliert an der Front – und ihre westlichen Partner haben sie nicht im Stich gelassen und sind
+ihr sofort zu Hilfe geeilt. Bislang helfen sie verbal – sie geben Drohungen ab, runzeln die Stirn und blasen
+die Wangen auf. Sie versprechen, ihr Militär in die Ukraine zu schicken – erst die Franzosen, dann die Briten,
+dann die Polen. Nun ist Estland aus der Reihe getanzt und hat gedroht, Russland in die Knie zu zwingen –
+ja, ja, sehr witzig. All dies ist natürlich eine grosse Hilfe für die ukrainischen Soldaten, die sich nun in die
+Nähe von Charkow zurückziehen.
+Mitten unter den Falken rennt die Taube Scholz herum und ruft zur Zurückhaltung auf. Doch sein Flattern
+unterstreicht nur die Kriegslust seiner europäischen Kollegen. Es scheint, als wollten sie den Ukraine-Konflikt ernsthaft ausweiten und eskalieren lassen.
+NATO-Generalsekretär Jens Stoltenberg hat vorgeschlagen, dass alle EU-Länder, die Kiew mit Waffen beliefern, den Ukrainern erlauben sollten, russisches Territorium mit diesen Waffen anzugreifen. Es ist klar, dass
+die Terroristen in Kiew dies bereits tun, doch nun schlägt der NATO-Chef vor, diese Praxis zu legalisieren
+und folglich auszuweiten. Ausserdem geschieht dies im Vorgriff auf die Lieferung von F-16-Kampfjets an
+Kiew, die, wie sich herausstellt, in der Lage sein werden, europäische Raketen auf russische Städte und Dörfer abzufeuern, während sie sich im ukrainischen Luftraum befinden.
+
+
+-----
+
+Der europäische Spitzendiplomat Josep Borrell, Autor des unvergesslichen ‹Garten Eden›-Memes, bezeichnete eine solche Frage als ‹akzeptabel› und schlug Stoltenberg vor, sie bei einem Treffen mit den EU-Verteidigungsministern zu diskutieren.
+Gestern haben die EU-Verteidigungsminister also über die Bombardierung russischer Städte mit europäischen Waffen beraten. Bislang wurde keine Einigung erzielt ‒ die Falken und die Tauben blieben unter
+sich, aber die Art und Weise, wie das Thema behandelt wird, ist durchaus beachtenswert.
+Zu den weiteren Themen des Treffens gehörten die Standardisierung von Geschossen und Waffen, die in
+europäischen Ländern hergestellt werden, die Bildung einer schnellen Eingreiftruppe, die in der Lage ist,
+überall in Europa schnell aufzutreten, wo immer eine ‹Krise› auftritt, und die Entwicklung von PESCO –
+einem Programm für die militärische Zusammenarbeit zwischen EU-Ländern.
+All dies zusammen sieht nach harter Arbeit aus, um die europäischen Armeen zu vereinen und eine Militärmaschinerie zu schaffen, um die Hitler sie beneiden würde. Das Ziel dieser Maschine ist Russland.
+Natürlich kann man über die kleinen Armeen der europäischen Länder lachen, über die irrsinnigen Kosten
+ihrer Artilleriegeschosse, über die Verweichlichung ihrer Militärs. Doch die Hunderte von Milliarden Euro,
+die investiert werden, machen sich bemerkbar. Der militärisch-industrielle Komplex in Europa kommt langsam in Fahrt. Die Stärke der Armeen soll erhöht werden. Es werden ständig Übungen abgehalten, und zwar
+unter möglichst kampfnahen Bedingungen. Alles sieht danach aus, dass Europa langsam und systematisch
+seine eigene Armee aufbaut – und es wird eine der reichsten Armeen der Welt sein.
+Die Verteidigung von Charkow oder Odessa mit einer so grossen Maschine wäre töricht und verschwenderisch. Eine so grosse Armee wird geschaffen, um Russland anzugreifen – denn wenn man eine solche Waffe
+an der Wand hängen hat, kann man sicher sein, dass sie irgendwann losgeht.
+Ja, die Schaffung eines solchen Leviathans, der in seinen Ausmassen mit Hitlers Horde vergleichbar ist,
+braucht Zeit. Doch genau diese Zeit erkaufen gerade die Ukrainer an der Front mit ihrem Leben. Wenn sie
+aufgebraucht sind, werden sie durch die vereinigte Armee Europas mit ihren standardisierten Waffen ersetzt
+werden.
+Aber Russland bedroht doch nicht Europa, oder? Doch wen kümmert das schon? Die Europäer haben für
+einen solchen Fall eine ganze Reihe von Provokationen in petto. Heute wird Moskau für jede Brandstiftung
+oder Explosion auf EU-Gebiet verantwortlich gemacht. Selbst bei dem Brand im litauischen IKEA sehen die
+NATO-Mitglieder ‹die Hand des Kremls›. Eine solche Provokation im eigenen Land zu organisieren und die
+Russen dafür verantwortlich zu machen – das ist der Vorwand für einen Angriff, der neue ‹Überfall auf den
+Sender Gleiwitz›.
+Früher dachten wir Russen, der russisch-ukrainische Konflikt sei ein Stellvertreterkrieg zwischen Russland
+und den Vereinigten Staaten, in dem die Europäer als unwillige und feige Unterstützer Washingtons auftreten. Die US-Amerikaner würden sie in den Krieg treiben, und die Europäer würden sich dagegen wehren,
+weil sie wissen, dass Uncle Sam sie jeden Moment im Stich lassen kann.
+Allerdings haben die europäischen Staats- und Regierungschefs ihre eigenen Interessen. Sie haben ihre
+Volkswirtschaften an den Wurzeln getroffen, indem sie sich weigerten, mit Russland Handel zu treiben. Sie
+strangulierten sich mit ihren eigenen Sanktionen selbst und überliessen der Ukraine eine Menge Geld. Diese
+Kosten können sie nur wieder hereinholen, wenn sie den Hauptpreis bekommen, über den sie zu verfügen
+träumen – Russlands Bodenschätze. Genau das wurde ihnen als Haupttrophäe versprochen. Und dafür
+müssen sie Russland auf dem Schlachtfeld besiegen ‒ es gibt keine anderen Optionen mehr. Der Krieg ist
+ihre einzige Chance, das zurückzugewinnen, was sie ausgegeben haben, andernfalls werden sie Jahrzehnte
+der Armut und des Niedergangs erleben.
+Es ist leichtsinnig, die europäischen Eliten als lethargisch, dumm und unfähig zu betrachten. Hinter den
+lächerlichen Figuren der öffentlichen Politiker stehen immer sehr reiche und erfahrene Leute. Sie haben in
+der Weltgeschichte immer wieder gezeigt, dass sie brillant lügen, heimtückisch angreifen und lange, hartnäckige und brutale Kriege führen können.
+Natürlich ist es nicht sicher, dass Uncle Sam den Europäern helfen wird. Dennoch glaubt der Enthüllungsjournalist Seymour Hersh, der den Geheimdiensten nahesteht, dass US-Präsident Joe Biden nicht abgeneigt
+sei, einen umfassenden Krieg gegen Russland zu beginnen, um die US-Wahlen zu gewinnen.
+Aber selbst wenn Onkel Joe Biden durch Onkel Donald Trump ersetzt wird, wird kein US-amerikanischer
+Präsident zulassen, dass Russland Europa endgültig besiegt und unterjocht. Er wird einfach intervenieren
+müssen, um zu verhindern, dass unser Land zu stark wird. Die Europäer werden also auf jeden Fall eine
+gewisse Unterstützung haben. «Warum also nicht das Risiko eingehen?», denken sie sich.
+Während des Kalten Krieges befanden sich die UdSSR und die USA ständig in Stellvertreterkonflikten ‒ in
+Afrika, Korea, Vietnam und Afghanistan. Damals konnten die Europäer kein Wässerchen trüben und keiner
+Fliege etwas zuleide tun. Ausserdem verurteilten sie damals einhellig das US-Militär – zum Beispiel beteiligte sich der heutige Bundeskanzler Olaf Scholz damals aktiv an entsprechenden Protesten.
+Heute sehen die Europäer, dass Washington sie um alles gebracht hat und im Begriff ist, sie im Stich zu
+lassen und sich nach Osten in Richtung China zu wenden. Die einzige Chance, alles zurückzubekommen,
+besteht darin, Russland anzugreifen. Ihre militärische Aufrüstung ist also nicht auf die leichte Schulter zu
+
+
+-----
+
+nehmen. Russland wird sicherlich jeden Feind besiegen, aber ‹Siegen will vorbereitet sein› ‒ die Bedrohung
+an unserer westlichen Flanke ist absolut real, und der Stellvertreterkrieg zwischen den USA und Russland
+hat alle Chancen, zu einem ausgewachsenen Krieg zwischen Russland und Europa zu eskalieren.
+_Quelle: https://uncutnews.ch/stellvertreterkrieg-in-der-ukraine-eskaliert-zu-einem-weltkrieg/_
+
+##### Causa Strack-Zimmermann:  Kranke Diagnosen einer Kriegstreiberin
+_Von Tom J. Wellbrock,_ _30 Mai 2024 16:19 Uhr_
+
+**Marie-Agnes Strack-Zimmermann (FDP) hat gegen Kanzler Olaf Scholz (SPD) gefeuert, sie nannte ihn**
+**einen ‹krassen Rechthaber› und attestierte ihm ‹autistische Züge›. Wenn die FDP-Politikerin solche Fern-**
+**diagnosen erstellen darf, sollte auch eine Erwiderung erlaubt sein.**
+
+Inhaltlich gibt es an der Kritik an Olaf Scholz durch Marie-Agnes Strack-Zimmermann offen gestanden nur
+bedingt etwas auszusetzen. Scholz' Rechthaberei zeigt sich tatsächlich immer wieder, zum Beispiel bei den
+sogenannten Bürgergesprächen oder Bürgerdialogen. Die Ignoranz, die der Kanzler in solchen Momenten
+an den Tag legt, ist ein Schlag ins Gesicht der Menschen, von denen er Schaden abwenden soll.
+Die Sache mit dem Autismus ist deutlich komplexer, und wenn sich eine Frau wie Strack-Zimmermann darüber auslässt, ist das mindestens bedenklich. Sie hat schon rein fachlich nicht einmal ansatzweise die Befähigung, diese Form einer Behinderung beurteilen zu können. Ohne Zweifel ist Scholz' Art der Kommunikation eigenwillig, um es diplomatisch zu formulieren. Autismus schliesst der Autor dieses Textes, der selbst
+in seinem Berufsleben mit zahlreichen Autisten gearbeitet hat, im Falle von Scholz jedoch aus. Der Mann
+ist ignorant, er ist ein Textbaustein ohne Rückgrat und alles an ihm ist die zu Fleisch gewordene Unglaubwürdigkeit. Daran kann es keinen Zweifel geben. Das Krankheitsbild Autismus passt aber nicht.
+Womit wir bei Strack-Zimmermann wären. Mit dem Attribut ‹jähzornig› ist sie ziemlich gut bedient, denn
+die Heftigkeit, mit der sie ihre Gegenüber beleidigt und angreift, sucht ihresgleichen. Wie ein gnadenloser
+General, der seine Rekruten mit hohem Lustgewinn durch den Schlamm kriechen lässt, führt sich die
+Kriegstreiberin auf wie die Axt im Walde. Sie erinnert an Andrij Melnyk, der ähnlich militant unterwegs war,
+als er noch im deutschen Fernsehen seine rhetorischen Giftpfeile verschiessen und historische Lügen verbreiten konnte.
+Und das ist dann auch das grösste Problem an Strack-Zimmermann. Die Frau pöbelt herum und lügt dabei
+unwidersprochen. Sie habe russische Folterkeller gesehen, sie spricht von zigtausenden entführten ukrainischen Kindern und würgt jedes Gespräch über Verhandlungen mit Russland mit der – ebenfalls unwidersprochenen – Behauptung ab, Putin wolle überhaupt nicht verhandeln. Das Mass der Aggressivität, das sie
+dabei an den Tag legt, könnte man als unangemessen, aber auch als möglicherweise pathologisch bezeichnen.
+Strack-Zimmermann, die Frau, die keine Beleidigung und Bedrohung auslässt, steckt jedoch längst nicht
+so gut ein, wie sie austeilt. Erst kürzlich wurde eine X-Nutzerin zu 50 Tagessätzen zu je 15 Euro verurteilt,
+weil sie Strack-Zimmermann ‹Flintenweib› genannt hatte. Im Duden steht unter diesem Begriff:
+«Frau, deren kompromissloses Auftreten und deren [übersteigertes] Selbstbewusstsein als unangenehm
+empfunden werden.»
+Nun muss man fragen, ob es objektiv betrachtet eine passendere Titulierung für Strack-Zimmermann geben könnte als die eines Flintenweibs. Eigentlich nicht, denn sie verkörpert genau das, was ihr die X-Nutzerin
+vorgeworfen hatte.
+Es ist gut, dass man Strack-Zimmermann Kriegstreiberin und Faschistin nennen darf, abgesegnet ebenfalls
+durch ein Gericht. Aber es ist fatal, dass dieses zutiefst aggressive Wesen, das bewusst mit Bedrohungen
+und Einschüchterung arbeitet, öffentlich nahezu völlig frei agieren kann. Auf der anderen Seite hat sie die
+Klage wegen Beleidigung und ähnlichen Delikten professionell zu einer Quelle der Nebeneinkünfte gemacht.
+Und ihre Klagen werden überdurchschnittlich oft von den Staatsanwaltschaften angenommen. Strack-Zimmermann bedroht die Menschen also auf unterschiedlichen Ebenen.
+Doch der vielleicht wichtigste Punkt ist Strack-Zimmermanns Präsenz in den Medien im Zusammenhang
+mit Deutschlands internationalem Ruf. Der ist – daran gibt es nichts zu rütteln – ohnehin schon auf einem
+Tiefpunkt angekommen. Aber die militante Kriegstreiberei, die Strack-Zimmermann an den Tag legt, wird
+in anderen Ländern mit besonderer Aufmerksamkeit verfolgt. Kürzlich beklagte sich Markus Lanz in seiner
+Talkshow darüber, dass er auf einer gerade beendeten Reise in die USA erschreckend oft das Wort ‹NaziDeutschland› von Amerikanern gehört habe.
+Bei Gestalten wie Strack-Zimmermann, aber auch Anton Hofreiter, Roderich Kiesewetter oder Michael Roth
+ist das aber nun wirklich kein Wunder, sie transportieren deutsche Grossmannssucht in einer frappierenden
+Art und Weise. Im gleichen Atemzug muss man Markus Lanz hervorheben, der sich allen Ernstes überrascht
+
+
+-----
+
+zeigte ob der internationalen Einordnung Deutschlands. Er und die Genannten merken nicht einmal, wie
+faschistoid das Ausland Deutschland wahrnimmt.
+Das könnte man durchaus als autistisches Verhalten bezeichnen. Grossmannssucht tut's aber auch.
+_Tom J. Wellbrock ist Journalist, Sprecher, Texter, Podcaster, Moderator und Mitherausgeber des Blogs neulandrebellen._
+_Quelle: https://freeassange.rtde.me/meinung/207571-strack-zimmermann-kranke-diagnosen-kriegstreiberin/_
+
+_Ein Artikel von Ramon Schack, 29. Mai 2024 um 13:15_
+
+Im November 2019, im Vorfeld der Feierlichkeiten zum 70. Gründungstag der NATO, sorgte der französische Präsident Macron für einen Skandal. In einem seiner hellen, klarsichtigen Momente hatte Macron in
+einem Interview mit dem britischen Magazin ‹Economist›, einem Sprachrohr des liberalkapitalistischen
+Establishments angelsächsischer Prägung, geäussert: «Was wir derzeit erleben, ist der Hirntod der NATO.»
+Knapp 5 Jahre später scheint sich diese Diagnose nicht nur zu bestätigen, sondern über die NATO hinaus
+auf diverse Staatsoberhäupter der NATO-Staaten übertragen zu haben, so zum Beispiel auf Macron wie
+auch auf Bundeskanzler Scholz. Von Ramon Schack.
+
+**Westliche Waffen zum Einsatz in Russland**
+Die beiden Regierungschefs schlossen nicht aus, dass die Ukraine auch vom Westen gelieferte Waffen verwenden dürfe, um Stellungen anzugreifen, von denen aus die Ukraine angegriffen wird. «Wir müssen ihnen
+erlauben, militärische Stützpunkte zu neutralisieren, von denen aus Raketen abgeschossen werden», sagte
+Macron am Dienstag in Meseberg. Die Ukraine werde von Stützpunkten in Russland angegriffen, betonte
+er. «Wir sollten ihnen jedoch nicht erlauben, andere Ziele in Russland anzugreifen, vor allem keine zivilen
+Einrichtungen», fügte er hinzu, was sicherlich abenteuerlich klingt, denn auch bisher beschiesst Kiew zivile
+Ziele, ebenso wie Moskau natürlich auch.
+Weiter liess Scholz verlautbaren, dass es für den Einsatz der in die Ukraine gelieferten Waffen Regelungen
+gebe, dass sich dieser «immer im Rahmen des Völkerrechts bewegen muss». Das habe bisher gut funktioniert, sagte er. Er verwies zudem darauf, dass Deutschland und Frankreich «unterschiedliche Waffen zur
+Verfügung gestellt haben». Was da bisher immer gut funktioniert habe, liess der Kanzler offen, auch was er
+unter ‹im Rahmen des Völkerrechts› versteht.
+Der französische Präsident wurde präziser, als er eine Karte präsentierte, auf der aufgezeichnet war, von
+wo aus die Ukraine angegriffen werde, teilweise von Stellungen tief im russischen Kernland gelegen, wo die
+Waffen zum Einsatz kommen sollten. Wenn man sich an die bisherigen Regeln halte, sei die Ukraine nicht
+in der Lage, diese Basen zu treffen. «Was wir uns wünschen, ist, die Möglichkeit zu haben, diese Raketenabschussanlagen treffen zu können. Ich glaube nicht, dass das zu einer Eskalation beitragen würde», sagte er.
+Ja, man stelle sich vor, der Iran würde die Hisbollah darin bestärken, Raketenabschussanlagen in Israel mit
+iranischen Waffen auszuschalten, aber nun gut, nicht alles, was hinkt, ist ein Vergleich.
+Viel eindrucksvoller und zugleich beklemmender ist hierbei der intellektuelle Niedergang der französischen
+geopolitischen Strategien, welcher zumindest durch die Aussagen Macrons erkennbar wird.
+
+**Washington sagt ‹NO›**
+Selbst aus Washington kam ein Veto. Die USA seien nach wie vor dagegen, dass die Ukraine bei ihren Angriffen in Russland US-Waffen einsetze, sagte der Sprecher des Nationalen Sicherheitsrates, John Kirby, am
+Dienstag «Unsere Position hat sich zu diesem Zeitpunkt nicht geändert Wir ermutigen oder erlauben nicht
+
+
+-----
+
+den Einsatz der von den USA gelieferten Waffen, um innerhalb Russlands anzugreifen.» Aber zurück zum
+vermeintlichen ‹Hirntod› von Macron.
+
+**Im Schatten de Gaulles**
+Wenn es um die Bereiche Geopolitik und historische Perspektiven geht, sind die Franzosen eigentlich die
+weit profunderen Denker gerade im Vergleich zu den Deutschen, wo es im politischen Berlin nicht nur an
+Kompetenz fehlt, sondern ein geistiges Vakuum sichtbar wird.
+Aber durch Macrons Äusserungen hat sich eventuell ein negativer Anpassungsprozess vollzogen, eine Art
+Nivellierung, die eventuell dadurch erklärbar werden könnte, dass sowohl Macron wie auch Scholz innenpolitisch das Wasser bis zum Hals steht.
+In dem erwähnten Interview aus dem Jahr 2019 erklärte Macron, dass Europa am Rande eines Abgrunds
+steht und daher anfangen müsse, strategisch über sich selbst als geopolitische Macht nachzudenken, sonst
+«haben wir nicht mehr die Kontrolle über unser eigenes Schicksal». Für Europa sei es nun ‹höchste Zeit›
+aufzuwachen, sagte der französische Präsident in dem Interview. Macron kritisierte damals, dass es «keinerlei Koordination bei strategischen Entscheidungen zwischen den USA und ihren NATO-Verbündeten» gebe.
+Washington beweist, so das Staatsoberhaupt, dass es Europa den Rücken zugekehrt habe.
+In dem Interview plädierte Macron dafür, dass Europa seine militärische Souveränität wiedererlangen muss.
+Der französische Präsident orientiert sich hier anscheinend an einer gaullistischen Strategie.
+Charles André Joseph Marie de Gaulle, der wohl grösste Staatsmann Frankreichs – vielleicht auch Europas
+– im 20. Jahrhundert, plädierte für ein starkes Europa, vom Atlantik bis zum Ural, unter Einschluss von
+Moskau. Schon früh erkannte der General im Amt des Staatsmannes, dass diese Vision im schroffen Gegensatz zu der Strategie der USA stand.
+Als sich de Gaulle im März 1966 den Strukturen der Nordatlantikpakt-Organisation (NATO) entzog, liefen
+die Vorbereitungen für diesen Coup unter strengster Geheimhaltung. De Gaulle hatte nur seinen Aussenund den Verteidigungsminister eingeweiht. Erst unmittelbar hatten die übrigen Minister erfahren, dass Paris
+seine militärische Mitarbeit in der NATO beenden werde.
+In einem Brief an den damaligen US-Präsidenten Lyndon Baines Johnson erklärte der französische Staatsmann, dass Frankreich beabsichtige, «seine volle nationale Souveränität auf seinem Territorium» wiederherzustellen und sich auch nicht mehr an der ‹integrierten Kommandostruktur des Bündnisses› zu beteiligen.
+Paris zog daraufhin am 1. Juli 1966 seine Truppen unter NATO-Befehl zurück. Formell blieb das Land Mitglied des Bündnisses, aber das NATO-Hauptquartier war immerhin gezwungen, von Paris nach Brüssel umzuziehen und seine Truppenverbände grösstenteils in die Bundesrepublik zu verlagern. De Gaulle störte
+sich zunehmend an der anglo-amerikanischen Dominanz im Bündnis, das heisst der Herrschaft der USA,
+die bis heute anhält.
+«Wenn es zu verhindern gilt, dass die Welt auf eine Katastrophe zusteuert, kann nur eine politische Lösung
+den Frieden wiederherstellen.»
+Diese weisen Worte von de Gaulle, welche der damalige französische Präsident am 1. September 1966 in
+der kambodschanischen Hauptstadt Phnom Penh gegen die US-Militärintervention in Vietnam äusserte,
+sind von zeitloser Aktualität. Während de Gaulle für ein starkes Europa vom Atlantik bis zum Ural plädierte,
+unter Einschluss von Moskau, möchte Macron Russland mit französischen Waffen treffen lassen.
+«Le Gaullisme sans de Gaulle, c’ est idiot» – zu deutsch: «Gaullismus ohne de Gaulle hat keinen Sinn!», so
+sagte einmal der Schriftsteller Andre Malraux.
+Erst wenn sich die innenpolitischen Verhältnisse in Frankreich wie auch in der Bundesrepublik so gründlich
+verändert haben, kann die französisch-deutsche Achse wieder ihre Wirkung entfalten, die momentan dringend benötigt wird. Der BSW-Politiker und Spitzenkandidat für das EU-Parlament Fabio de Masi drückte
+es so aus: «Nur Friedensverhandlungen können die Ukraine noch retten – der Ukraine-Krieg darf nicht in
+ein drittes Jahr gehen.»
+_Quelle: https://www.nachdenkseiten.de/?p=115894_
+
+### Zensierte Studie zeigt:  mRNA-Spritzen verändern dauerhaft die DNA  von Geimpften und deren Nachkommen
+_Frank Bergman via Slay News, Mai 28, 2024_
+
+Eine beunruhigende neue Studie hat ergeben, dass die Covid-mRNA-Spritzen die DNA der Geimpften
+dauerhaft verändern. Alarmierend ist jedoch, dass diese gefährlichen Veränderungen der DNA an die Nachkommen der Covid-Geimpften weitergegeben werden. Diese Woche hat der renommierte Kardiologe Dr.
+Peter McCullough ein Video auf X veröffentlicht, in dem er die Studie beleuchtet.
+
+
+-----
+
+McCullough enthüllt, dass die brisante Studie auf den Social-Media-Plattformen der Big Tech massiv zensiert wurde. Er konzentriert sich auf die Zensur der Studie durch LinkedIn, die der Öffentlichkeit vorenthalten wurde, obwohl sie von der National Library of Medicine der U.S. National Institutes of Health (NIH)
+veröffentlicht wurde.
+Die Studie dokumentiert, wie mRNA-Gentherapie-Impfstoffe wie die Covid-Impfung die Genetik der Geimpften dauerhaft verändern. Darüber hinaus ergab die Studie, dass auch die Nachkommen der Geimpften
+durch den Einbau von mRNA in die menschliche DNA betroffen sind.
+«Der genetische Code von Pfizer und Moderna wird dauerhaft in das menschliche Genom eingebaut», sagte
+McCullough. «Wir müssen uns also heute damit abfinden, dass Pfizer und Moderna das menschliche Genom möglicherweise dauerhaft verändert haben könnten.»
+Der renommierte Mediziner weist auch darauf hin, dass noch keine abschliessenden Untersuchungen
+durchgeführt wurden, um zu bestätigen, ob die gesamte mRNA-Sequenz dauerhaft in die DNA eingebaut
+wird. McCullough sagte, er hoffe, dass der Körper die mRNA aus den Injektionen herausschneiden werde.
+Er warnt jedoch davor, dass es sehr wahrscheinlich ist, dass die Menschheit für immer grundlegend verändert wurde.Er bezeichnete diese dauerhaften Veränderungen der menschlichen Rasse als ‹sehr beunruhigend›.
+
+McCullough äusserte auch die Sorge, dass sich der genetische Code von Pfizer und Moderna in den Geschlechtszellen festgesetzt hat. Dieses Problem verursacht permanente Mutationen bei allen Nachkommen
+der mit Covid mRNA geimpften Linie.
+«Was wäre, wenn Eizellen und Spermien die Covid-[Impfstoffe] von Pfizer und Moderna aufnehmen würden
+und der Code dauerhaft eingebaut ist, dann würden sie ihn an das Baby weitergeben», sagte er. «Das ist
+die grosse Sorge.»
+Die Studie ergab, dass sich ein bestimmter Teil des genetischen Covid-mRNA-Codes (BNT162b2) aus den
+Injektionen tatsächlich in menschliche Leberzellen einfügte. Im Abschnitt ‹Diskussion› des Studienpapiers
+stellen die Autoren fest:
+_«In dieser Studie haben wir nachgewiesen, dass der COVID-19 mRNA-Impfstoff BNT162b2 in die menschliche_
+_Leberzelllinie Huh7 in vitro eindringen kann. BNT162b2 mRNA wird bereits 6 Stunden nach BNT162b2-Exposi-_
+
+
+-----
+
+_tion intrazellulär in DNA umgeschrieben. Ein möglicher Mechanismus für die reverse Transkription ist die_
+_endogene reverse Transkriptase LINE-1, und die Kernproteinverteilung von LINE-1 wird durch BNT162b2_
+_erhöht.»_
+
+Es ist bekannt, dass die Covid-Spritzen nach wiederholter Verabreichung die Sterblichkeit erhöhen. Darüber
+hinaus erhöhen die mRNA-Injektionen die Covid-Infektionsraten, führen zu Turbokrebs, Zerstörung der Fortpflanzungsfähigkeit, verursachen Fehlgeburten und Autoimmunerkrankungen sowie tödliche Kopfschmerzen, Krampfanfälle, Schlaganfälle, Blutgerinnsel und Herzversagen.
+Umfangreiche Bevölkerungsstudien haben ausserdem ergeben, dass die Injektionen nicht nur eine Vielzahl
+ernsthafter Beschwerden verursachen, sondern auch das Hundertfache der zulässigen DNA-Kontamination
+enthalten, was zu mutagenen Wirkungen führt. Dennoch beharren die staatlichen Gesundheitsbehörden
+darauf, dass alle Menschen, auch Kinder, die Impfungen weiterhin erhalten müssen.
+In der Zwischenzeit haben Experten wegen einer besonderen Warnung eines führenden Wissenschaftlers
+vor den mRNA-Injektionen Alarm geschlagen. Wie ‹Slay News› berichtete, warnte Professor Dr. Dolores
+Cahill, eine weltweit anerkannte Immunologieexpertin, die Öffentlichkeit eindringlich davor, dass jeder, der
+mit Covid mRNA-Spritzen geimpft wurde, «innerhalb von 3 bis 5 Jahren sterben wird, selbst wenn er nur
+eine Injektion erhalten hat.»
+Prof. Cahill verfügt über mehr als 25 Jahre Erfahrung in der Entwicklung von Hochdurchsatz-Proteinarrays,
+Antikörperarrays und Proteomik-Technologien sowie in der Automatisierung. Seit die Covid mRNA-Spritzen
+Anfang 2021 auf den Markt kamen, schlägt Cahill wegen der verheerenden Auswirkungen auf die öffentliche
+Gesundheit Alarm. Cahill hält die Spritzen nicht nur für gefährlich, sondern warnt auch davor, dass sie letztendlich jeden töten werden, der eine oder mehrere Dosen erhalten hat. In einem Interview erklärt Cahill,
+wie die mRNA in den Injektionen allen Empfängern schadet und wie eine tickende Zeitbombe in den mit
+Covid geimpften Menschen wirkt. Nachdem sie erklärt hatte, wie sich die Impfungen auf die menschliche
+Gesundheit auswirken, machte Cahill die folgende erschreckende Vorhersage:
+«Jeder, der eine mRNA-Injektion erhält, wird innerhalb von 3 bis 5 Jahren sterben, auch wenn er nur eine
+Injektion erhalten hat.»
+Doch während die Kommentare bereits erschütternd sind, gab Cahill diese Warnung erst 2021 heraus. Damals wurden Videos von Cahills Warnungen blockiert und von allen sozialen Medienplattformen entfernt,
+und sie wurde von den Konzernmedien als ‹Verschwörungstheoretikerin› beschimpft.
+Erst jetzt konnten ihre Kommentare aufgrund der freien Meinungsäusserung auf der X-Plattform von Elon
+Musk verbreitet werden.
+Da Turbokrebs, plötzliche Todesfälle und andere tödliche Krankheiten weiter zunehmen, beginnt sich
+Cahills Vorhersage vielleicht jetzt zu erfüllen.
+_QUELLE: MRNA SHOTS PERMANENTLY ALTER DNA OF VAXXED & THEIR OFFSPRING, CENSORED STUDY SHOWS_
+_Quelle:_ _https://uncutnews.ch/zensierte-studie-zeigt-mrna-spritzen-veraendern-dauerhaft-die-dna-von-geimpften-und-_
+_deren-nachkommen/_
+
+
+-----
+
+_Ein Artikel von: Tobias Riegel, 28. Mai 2024 um 13:31_
+_Titelbild: Vectorium/ Shutterstock_
+
+Die NATO hat ihre Mitgliedstaaten gerade aufgerufen, der Ukraine den Einsatz westlicher Waffen gegen
+Militärziele in Russland zu gestatten – eine weitere schwere Eskalation in einem sinnlosen Krieg, der hätte
+verhindert werden können. Zusätzlich steigt jetzt wegen aktueller Angriffe auf russische Radarstationen die
+Gefahr eines Atomkriegs ‹aus Versehen›. Und die deutschen Journalisten? Als gäbe es kein Morgen, stützen
+viele von ihnen die Kräfte, die uns ohne Not einem geradezu wahnwitzigen Risiko aussetzen.
+Ein Kommentar von Tobias Riegel.
+
+Wenn es nach Stimmen in der NATO geht, dann wird der Ukrainekrieg nun endgültig zum globalen Stellvertreterkrieg und zum potenziellen Weltenbrand ausgeweitet werden: Die NATO hat ihre Mitgliedstaaten aufgerufen, der Ukraine den Einsatz westlicher Waffen gegen Militärziele in Russland zu gestatten, wie Medien
+berichten. Demnach hat die ‹Parlamentarische Versammlung› (PV) der NATO am Montag bei einer Frühjahrstagung in der bulgarischen Hauptstadt Sofia eine entsprechende Erklärung mit dem Motto ‹Der
+Ukraine bis zum Sieg beistehen› verabschiedet. Die Zeit sei gekommen, einige Einschränkungen für den
+Einsatz der bereitgestellten Waffen aufzuheben, sagte NATO-Generalsekretär Jens Stoltenberg.
+Widerspruch ist kaum zu vernehmen. Es gibt (immerhin) die bekannten ‹zögerlichen› Signale aus der SPD
+– doch wie glaubhaft sind die noch nach den vielen, auch von Sozialdemokraten überschrittenen ‹Roten
+Linien› und vollzogenen ‹Zeitenwenden›?
+Wie hoch die reale Gefahr für einen ‹bewussten› Atomkrieg liegt, ist schwer zu sagen – fest steht: Je schlechter es für Russland militärisch im Ukrainekrieg laufen sollte (etwa nach offiziellem NATO-Eintritt) und je
+mehr es sich in die Ecke gedrängt fühlt, desto stärker werden inner-russische Kräfte, die mit einem Atomschlag antworten wollen. Einen solchen Atomschlag aus Russland kann man dann (zu Recht) moralisch
+verdammen – aber die katastrophalen Folgen für die Menschen werden dann unwiderruflich eingetreten
+sein. Darum muss diese Situation un-be-dingt verhindert werden. Wer die Zuspitzung weiter vorantreibt
+und auch wer die sehr begründete Angst vor einem ausgeweiteten (auch ‹konventionellen›) Krieg lächerlich
+macht, handelt in meinen Augen schwer verantwortungslos.
+
+**Atomkrieg ‹aus Versehen›?**
+Auch die Gefahr eines Atomkriegs ‹aus Versehen› steigt massiv, weil die Propaganda so hochkocht, dass
+kleine Missverständnisse zu Überreaktionen führen können. Die Gefahr steigt auch massiv durch Aktionen,
+wie dem aktuellen Beschuss russischer Frühwarnsysteme gegen Atomangriffe, mutmasslich durch von USSeite angeleitete Ukrainer, über die Medien berichten. Demnach wurde gerade bei einem Drohnenangriff
+ein Radar des russischen Frühwarnsystems für anfliegende Atomraketen beschädigt.
+Der Angriff wurde laut Berichten mit einer ukrainischen Drohne durchgeführt. Thord Are Iversen, ein norwegischer Militärexperte, äusserte sich auf X zu dem Vorfall. Er stützt zwar offensichtlich die scharf abzulehnende Strategie, russische Ziele in Russland anzugreifen. Aber selbst er schrieb, dass es in Zeiten internationaler Spannungen keine gute Idee sei, solche Einrichtungen anzugreifen. In einer zweifelhaften Formulierung kommt er zu diesem Ergebnis: «Es gibt haufenweise Ziele in Russland, die man mit Drohnen angreifen
+kann. Und es gibt eine Handvoll Ziele, die man vermeidet, und dies gehört dazu.»
+
+
+-----
+
+Der Vorfall mit dem Radar macht nicht nur die massiv steigende Gefahr deutlich, sondern zeigt auch die
+skrupellose Entschlossenheit von manchen Akteuren in ihrem Bestreben, einen Regionalkonflikt global
+auszuweiten.
+
+**Mit ‹Hurra› in die Selbstzerstörung?**
+Schreitet irgendjemand in der deutschen Presselandschaft ein, gegen die potenzielle Selbstzerstörung, die
+bei einer solchen Ausweitung auch uns und unsere Kinder treffen würde? Nein – im Gegenteil: Viele Journalisten grosser und mittlerer Medien stützen voll diesen Kurs, als gäbe es kein Morgen (ich habe in etablierten
+deutschen Medien keine kritische Stimmen zu der aktuellen Entwicklung gefunden, aber wenn es solche
+geben sollte, wäre ich für Hinweise dankbar). Hier folgen einige beispielhafte Stimmen. Die ‹Taz› meint, die
+Gefahr des Weltkriegs sei nicht ernst zu nehmen – bringt sie damit nicht auch die NATO-Drohkulisse eines
+gefährlichen und ‹nach der Ukraine einfach weitermachenden› Russlands zum Einsturz? Jedenfalls wird in
+der Zeitung behauptet:
+«Die westliche Zurückhaltung erlaubt Moskau, Ängste zu schüren. Ein Einsatz westlicher Waffen gegen russisches Gebiet würde einen dritten Weltkrieg bedeuten, heisst es. Wäre das ernst zu nehmen, würde es auch
+für ukrainische Angriffe auf der Krim und im Donbass gelten, die Russland als sein Staatsgebiet betrachtet.
+Tut es aber nicht. Russland weiss nämlich ganz genau: Bei einem ernsthaften Militärschlag auf seine gesamten Angriffskapazitäten wäre der Krieg in der Ukraine im Handumdrehen vorbei, und zwar mit einer
+russischen Niederlage. Das wissen auch Joe Biden und Olaf Scholz. Ihr Zögern zieht den Krieg in die Länge.»
+Die ‹Lausitzer Rundschau› fordert, russische Flugzeuge ‹am Abheben zu hindern›:
+«Teilweise werfen die Russen Gleitbomben noch über ihrem Territorium ab. Die ukrainische Zivilbevölkerung vor diesen zu schützen, das ginge also nur, wenn die russischen Flugzeuge überhaupt am Abheben
+gehindert würden – und das geht eben nur mit dem Einsatz der gelieferten Waffen hinter der ukrainischen
+Grenze.»
+Die ‹Leipziger Volkszeitung› findet es ‹vernünftig› russische Flugzeuge in Russland ‹abzuwehren›:
+«Um den Krieg nicht zu verlieren, braucht die Ukraine dringend jede Hilfe, die der Westen bieten kann.
+Dazu gehört auch die Erlaubnis, westliche Waffen gegen militärische Ziele in Russland einzusetzen. Das ist
+das gute Recht der Ukraine als angegriffener Staat. Die jüngste Forderung des Grünen-Bundestagsabgeordneten Anton Hofreiter, diese Einschränkung aufzuheben, und etwa die Abwehr russischer Kampfjets
+schon im russischen Luftraum zu gestatten, ist deshalb vernünftig.»
+
+**«Wer A sagt muss nicht B sagen – Er kann auch erkennen, dass A falsch war»**
+Zur Erinnerung – das letzte verbliebene ‹Argument› für das geradezu wahnwitzige Risiko, in das uns viele
+Politiker und Journalisten aktuell führen, lautet: «Wenn Putin in der Ukraine nicht verliert, dann macht er
+einfach weiter.» Diese Behauptung wird nicht weiter mit Fakten unterfüttert. Wenn man aber etwa die russischen Rüstungsausgaben den gemeinsamen Rüstungsausgaben der NATO-Länder gegenübergestellt, dann
+erscheint ein russischer Angriff auf NATO-Territorium angesichts dieses Kräfteverhältnisses als ein militärisches Himmelfahrtskommando für die Russen. Zur Vorgeschichte des Ukrainekriegs und dazu, dass er
+hätte verhindert werden können, haben die NachDenkSeiten zahlreiche Artikel geschrieben.
+Zu einer Verständigung zwischen Russland und Resteuropa gibt es keine Alternative, Sicherheitsinteressen
+aller Seiten müssen respektiert werden, die Bestrebungen vor allem der USA, eine dauerhafte Feindschaft
+zwischen Deutschland und Russland zu installieren, muss scharf zurückgewiesen werden. Betonen möchte
+ich aber auch, dass von meiner Seite weder für eine naive ‹Unterwerfung› Deutschlands unter Russlands
+Interessen plädiert wird, noch für einen harten Bruch mit den USA: Deutschland sollte und könnte eine
+Brücke sein und davon profitieren. Bei alldem ist auch die historische Verantwortung Deutschlands zu beachten, die aus den deutschen Verbrechen gegen die Sowjetunion im Zweiten Weltkrieg erwächst. Und
+natürlich die Verantwortung für die Zukunft unserer Kinder, die von Kriegslobbyisten momentan unglaublich leichtfertig aufs Spiel gesetzt wird.
+Falls nun Politiker und Journalisten zögern, gegen die von Kriegslobbyisten täglich schneller eskalierte Entwicklung ihre Stimme zu erheben, weil sie sich in der Vergangenheit selbst zu sehr in die kriegerische
+Meinungsmache verstrickt haben und bei einer Kurskorrektur den Gesichtsverlust fürchten: Diese Personen
+könnten sich an dieser Variation eines bekannten Zitats von Bertolt Brecht orientieren:
+«Wer A sagt (Unterstützung für die Ukraine), muss nicht B sagen (Eskalation zum Weltkrieg) – Er kann auch
+erkennen, dass A falsch war.»
+_Quelle: https://www.nachdenkseiten.de/?p=115835_
+
+
+-----
+
+##### In Thüringen 25 Prozent ‹gesichert rechtsextrem›
+_WOLFGANG HÜBNER, 28. Mai 202446_
+
+Trotz der Stigmatisierung der AfD als ‹gesichert rechtsextrem› hat sich ein bedeutender Teil der Wähler
+davon nicht beeinflussen lassen.
+Noch vor den ausstehenden vielen Stichwahlen haben die Kommunalwahlen in Thüringen einige bemerkenswerte Erkenntnisse gebracht. Sie sind allesamt unerfreulich für die etablierten Kartellparteien. Besonders schmerzlich für sie ist das herausragende Ergebnis der AfD, die gut ein Viertel der Stimmen für sich
+verbuchen konnte und neben den parteiunabhängigen Gruppen die einzigen Gewinner der Wahl sind. Damit ist in Thüringen die geradezu blindwütige Hass & Hetze-Kampagne gegen die blaue Partei gescheitert.
+An dieser Tatsache werden auch Misserfolge bei den Stichwahlen nichts mehr ändern.
+Bundespolitisch ist das von kaum zu überschätzender Bedeutung: Trotz der Stigmatisierung der AfD als
+‹gesichert rechtsextrem› hat sich ein bedeutender Teil der Wähler davon nicht beeinflussen lassen. Das ist
+nicht nur für die AfD positiv, sondern für alle in Deutschland, die nicht damit einverstanden sind, wie eine
+demokratische Partei verteufelt und ausgegrenzt wird. Wenn nun in verschiedenen Medien gefeiert wird,
+immerhin habe es keinen ‹Durchmarsch› der AfD gegeben, wirkt das lächerlich: Offenbar ist man in solchen
+Kreisen schon froh, wenn Höckes blaue Teufel die absolute Mehrheit verfehlen.
+Ausgesprochen unfroh müsste Kartellparteien und ihre geneigten Medien hingegen stimmen, dass sämtliche Ampel-Koalitionäre samt den Linken in Thüringen böse abgestürzt sind. Das sind keine guten Vorzeichen für die drei mitteldeutschen Landtagswahlen im Herbst, vielleicht sogar nicht für die EU-Wahl. Bodo
+Ramelows dubiose Regentschaft in Erfurt wird mit Sicherheit am 1. September 2024 beendet werden. Und
+die CDU wird in Thüringen wohl eine Notkoalition zusammenflicken müssen, um die AfD von der Landesregierung fern zu halten und die ‹Brandmauer› vorm Einsturz zu bewahren.
+Positiv sind die erheblichen Zugewinne der sogenannten ‹Sonstigen›, unter die kleinere, oft auch kommunal
+begrenzte unabhängige politische Organisationen gezählt werden. Sie haben knapp 20 Prozent der Stimmen gewonnen, um die jetzt der Kampf zwischen CDU und AfD in Hinblick auf die Landtagswahl entbrennen wird. Diese 20 Prozent sagen mehr über die Lebendigkeit der Demokratie aus als sämtliche Feiertagsreden von Steinmeier und Scholz zusammen – Spitzenpolitiker einer Partei, die in Thüringen nur noch elf
+Prozent hat, Tendenz fallend.
+
+_Wolfgang Hübner_
+
+_PI-NEWS-Autor Wolfgang Hübner schreibt seit vielen Jahren für diesen Blog, vornehmlich zu den Themen Geopolitik, Links-_
+_faschismus, Islamisierung Deutschlands und Meinungsfreiheit. Der langjährige Stadtverordnete und Fraktionsvorsitzende der_
+_‹Bürger für Frankfurt› (BFF) legte zum Ende des Oktobers 2016 sein Mandat im Frankfurter Römer nieder. Der leidenschaft-_
+_liche Radfahrer ist über seine Facebook-Seite und seinen Telegram-Kanal erreichbar._
+_Quelle: https://www pi news net/2024/05/in thueringen 25 prozent gesichert rechtsextrem/_
+
+
+-----
+
+##### Seymour Hersh: USA tragen Verantwortung für Krieg in der Ukraine
+
+_Veröffentlicht am 28. Mai 2024 von TG_
+_Bild: 244511254 © Oleksii Halutva | Dreamstime.com_
+
+**US-Präsident Joseph Biden ignoriere die Realität in der Welt, was sich auch beim Krieg in der Ukraine**
+**zeige. Das schreibt der US-Journalist Seymour Hersh, der sich auch über die Aussichten für ein Ende des**
+**Krieges in der Ukraine äussert.**
+
+Der Krieg in der Ukraine werde ‹nur durch Diplomatie› beendet – «oder aber durch die überwältigende Niederlage der unterbesetzten, schlecht ausgebildeten und schlecht ausgerüsteten ukrainischen Armee». Das
+schreibt der US-amerikanische Journalist Seymour Hersh in seinem jüngsten, am Donnerstag veröffentlichten Text.
+Ein diplomatisches Kriegsende sei aber nur möglich, «wenn in Kiew und Washington die Vernunft siege»,
+stellt Hersh fest. Er schreibt, die USA hätten in der Amtszeit von Joseph Biden 175 Milliarden US-Dollar
+ausgegeben, «um einen Krieg zu führen, der nicht gewonnen werden kann und wird».
+Dabei hätte dieser Krieg vermieden werden können, meint der bekannte investigative Journalist und beruft
+sich dabei auf US-Geheimdienstkreise. In diesen gebe es einige, aus deren Sicht die USA «selbst die Verantwortung für den Krieg in der Ukraine trage». Der Schlüssel dafür liegt aus seiner Sicht in der NATO-Osterweiterung, worauf die russische Führung und Russlands Präsident Wladimir Putin seit langem aufmerksam
+machten.
+«Putin und seine Vorgänger in Moskau haben drei Jahrzehnte lang – seit der Wiedervereinigung Deutschlands im Jahr 1990 – zugesehen, wie die Nordatlantikvertrags-Organisation (NATO) neue Mitgliedsstaaten
+aufnahm, welche die NATO bis vor die Haustür Russlands brachten. Putins offensichtliche Befürchtung bei
+Amtsantritt der Regierung Biden [2021], dass die Ukraine als nächstes beitreten würde, hätte mit ein paar
+Worten aus Washington besänftigt werden können.»
+Doch Biden und seine wichtigsten aussen- und sicherheitspolitischen Berater hätten nichts dergleichen
+verlauten lassen. Der gegenwärtige US-Präsident werde in seiner harten Haltung gegenüber Russland von
+seinen beiden hochrangigen aussenpolitischen Beratern unterstützt, von Antony Blinken und dem nationalen Sicherheitsberater Jake Sullivan.
+Hersh schreibt, dass es in den US-Geheimdiensten ‹schon immer› Bedenken gegenüber Bidens irrationalen
+Ansichten über Russland und dessen Präsidenten gab. Diese würden bis in Bidens Zeit als Mitglied des USSenats zurückreichen. Ein US-Geheimdienstmitarbeiter habe Hersh berichtet, Biden sehe den russischen
+Präsidenten als ‹Todesengel›.
+Der US-Journalist macht auch auf Bidens «seit langem bestehende Unfähigkeit, die Welt so zu sehen, wie
+sie ist», aufmerksam. Seit dem Einmarsch Russlands in die Ukraine im Februar 2022 habe er keine Anstrengungen unternommen, um ein persönliches Treffen mit dem russischen Präsidenten Putin zu arrangieren.
+Hingegen habe er in einer ‹erstaunlich theatralischen› Rede zur Lage der Nation im März den Krieg in der
+Ukraine zur ‹existenziellen Krise› erklärt, «in der die Zukunft Amerikas auf dem Spiel stehe». Biden behauptete dabei, Putin stifte in Europa Chaos und werde nach der Ukraine nicht Halt machen.
+
+
+-----
+
+Der US-Präsident forderte den US-Kongress dabei auf, noch mehr Mittel für die Ukraine im Krieg gegen
+Russland bereitzustellen. Und er behauptete, dass die ‹freie Welt› in Gefahr sei, wenn die USA sich jetzt zurückziehen würden. Biden wolle «nicht klein beigeben, denn die Geschichte schaut zu».
+Hersh bezeichnet das «nach mehr als zwei tödlichen Jahren des Krieges in der Ukraine und wenig Erfolg»
+als ‹erstaunlich theatralisch›. Zu dem fehlenden Realitätssinn trügen nach seinen Angaben Blinken und
+Sullivan bei, die unlängst forderten, das bisherige Verbot zu lockern, wonach die Ukraine keine US-Waffen
+gegen Raketen- und Artillerie-Standorte in Russland einsetzen dürfe.
+Er verweist auf einen Bericht der ‹New York Times›, dem zufolge Biden und seine Berater glauben, «dass
+es eine rote Linie gibt, deren Überschreitung eine heftige Reaktion Putins auslösen würde, obwohl sie nicht
+wissen, wo diese rote Linie liegt». Sie würden genauso wenig wissen, wie die mögliche russische Reaktion
+aussehen könnte.
+Es sei «für einen Amerikaner leicht, Putin nicht zu mögen, der Reporter ins Gefängnis stecke und keine
+nennenswerte politische Opposition dulde, einschliesslich der Ermordung seiner Feinde», schreibt Hersh.
+Beweise für seine Behauptungen führt der investigative Journalist nicht an, fügt aber hinzu, dass er deshalb
+bisher keine Einladungen zu politischen Gesprächen in Moskau angenommen habe.
+Er verweist auf Informationen, laut denen inzwischen mehrere ukrainische Kampfbrigaden sich weigerten,
+sich «an einer selbstmörderischen Offensive gegen eine besser ausgebildete und besser ausgerüstete russische Truppe» zu beteiligen. Die russische Führung unter Putin setze auf Zeit und werde die eigene Offensive
+in der Ukraine zu einem selbst gewählten Zeitpunkt ausweiten und Charkow einnehmen.
+Russland befinde sich in einer Position der Stärke, während der ukrainische Präsident Wolodymyr Selensky
+weiter um weitreichende US-amerikanische Waffen bitte. Er verlange auch Truppenunterstützung durch die
+NATO, «die wahrscheinlich nicht kommen wird». Hersh vermisst Worte von Selensky für die im April verabschiedete US-Hilfe in Höhe von 61 Milliarden US-Dollar.
+_Quelle: https://transition-news.org/seymour-hersh-usa-tragen-verantwortung-fur-krieg-in-der-ukraine_
+
+##### ‹Godfather of AI› befürchtet ‹Übernahme› durch KI  und rät britischer Regierung zur Einführung von UBI
+_cointelegraph.com, Mai 28, 2024_
+
+Geoffrey Hinton, ein weltweit anerkannter Experte für künstliche Intelligenz (KI), der oft als ‹Godfather of KI›
+bezeichnet wird, traf kürzlich mit Mitgliedern der britischen Regierung in der Downing Street zusammen.
+Bis vor kurzem arbeitete Hinton für Google, wo er fortgeschrittene KI-Funktionen für neuronale Netze entwickelte. Diese zugrundeliegende Technologie treibt die meisten modernen generativen KI-Systeme wie
+Gemini von Google und ChatGPT von OpenAI an.
+
+Laut Hinton wird die KI-Revolution vor allem den Reichen zugutekommen. Laien, Arbeiter und Angestellte
+in automatisierbaren Berufen werden ihre Einkommensmöglichkeiten verlieren und «das wird schlecht für
+die Gesellschaft sein», sagte er kürzlich in einem Interview mit der BBC.
+«Ich wurde von Leuten in der Downing Street konsultiert», sagte Hinton, «und ich habe ihnen geraten, dass
+ein universelles Grundeinkommen eine gute Idee ist.»
+Hinton ist nicht der einzige wichtige KI-Akteur, der glaubt, dass wir ein UBI brauchen, um die Auswirkungen
+der Automatisierung auf die menschliche Wirtschaft auszugleichen
+
+
+-----
+
+Bevor Sam Altman, Mitbegründer von OpenAI, einer der bekanntesten CEOs der Technologiebranche wurde,
+studierte er bei Hinton und leistete Pionierarbeit bei der Entwicklung neuronaler Netze. Heute ist Altman
+für seine Zeit an der Spitze von OpenAI und für seine uneingeschränkte Unterstützung von UBI bekannt.
+Altmans anderes Projekt, Worldcoin, konzentriert sich auf die Bereitstellung von UBI durch die Einführung
+eines Kryptowährungs-Tokens, das jedem kostenlos zur Verfügung gestellt wird, der sich für den Dienst anmeldet und sich einem Netzhautscan unterzieht, um seine Identität zu verifizieren.
+Abgesehen davon, dass das Aufkommen von UBI die Menschheit vor dem Verlust von Arbeitsplätzen bewahrt, haben sowohl Hinton als auch Altman ihre Überzeugung zum Ausdruck gebracht, dass KI eine existenzielle Bedrohung für die Menschheit darstellen könnte.
+Hinton soll seinen Posten bei Google aufgegeben haben, um offener über seine Bedenken hinsichtlich der
+Auswirkungen von KI auf die Zukunft unserer Spezies sprechen zu können. Altman seinerseits behauptet,
+er habe OpenAI zusammen mit Elon Musk und anderen gegründet, um sicherzustellen, dass fortgeschrittene KI-Systeme sorgfältig und zum Wohle der Menschheit entwickelt werden.
+In seinem jüngsten Interview mit der BBC sagte Hinton, dass wir vielleicht nur noch eine Handvoll Jahre
+haben, bevor die Bedrohung sichtbar wird:
+«Ich schätze, dass wir in fünf bis 20 Jahren mit einer Wahrscheinlichkeit von 50 zu 50 mit dem Problem
+der Übernahme durch KI konfrontiert sein werden.»
+_QUELLE: ‘GODFATHER OF AI’ ADVISES UK GOVERNMENT TO START UBI_
+_Quelle: https://uncutnews.ch/godfather-of-ai-befuerchtet-uebernahme-durch-ki-und-raet-britischer-regierung-zur-_
+_einfuehrung-von-ubi/_
+
+##### Der Prozess der digitalen Markierung jedes Menschen ist in  vollem Gange, aber wie viele Menschen sind sich  überhaupt bewusst, wohin das führt?
+_Leo Hohmann, Mai 28, 2024_
+
+Die Grossbank JP Morgan bereitet die Einführung eines umfassenden biometrischen Zahlungssystems vor,
+das allen Einzelhändlern zur Verfügung stehen soll.
+Die Grossbank JPMorgan Chase plant die Einführung eines biometrischen Zahlungssystems, das Anfang
+nächsten Jahres allen US-Einzelhändlern zur Verfügung stehen soll. Das System wird es den Kunden ermöglichen, ihre Einkäufe zu tätigen, ohne Papier (Fiat-Währung) oder Plastik (Kredit-/Debitkarten) aus dem
+Portemonnaie zu nehmen. Sie müssen lediglich akzeptieren, dass ihre Handflächen oder ihr Gesicht beim
+Betreten des Geschäfts gescannt werden.
+
+_YouTube_
+
+David Birch, ein Berater und Kommentator globaler digitaler Finanzdienstleistungen, schrieb letzten Monat
+einen Artikel für Forbes, der ein Weckruf für alle sein sollte, die mit den biblischen Prophezeiungen über
+ein endzeitliches Bestiensystem vertraut sind, das es jedem verbietet, zu kaufen oder zu verkaufen, ohne
+durch eine Art von Verfolgungstechnologie ‹markiert› zu sein (siehe Offb 13).
+In dem Artikel zitiert Birch den Executive Director of Biometrics and Identity Solutions von JP Morgan,
+Prashant Sharma, mit den Worten: «Wir würden uns wünschen, dass jeder Händler dieses System einsetzt,
+aber letztlich ist es die Entscheidung des Händlers.»
+
+
+-----
+
+Birch erklärt dann, warum fast alle Händler diesen dystopischen Weg gehen und die Technologie übernehmen werden. Eines Tages werden die Kunden vielleicht sogar danach verlangen, weil sie dann schneller in
+den Laden kommen und ihn wieder verlassen können.
+Hier einige aktuelle Statistiken aus dem Artikel:
+Derzeit ist nur jeder vierte Amerikaner, also 25 Prozent, bereit, einen biometrischen Handscanner zum Bezahlen zu verwenden. In anderen Ländern sind die Zahlen höher: 50 Prozent der kanadischen und britischen Verbraucher sind offen für die Einführung biometrischer Zahlungssysteme.
+Während das Vertrauen der US-Verbraucher in die biometrische Gesichtserkennung zu Sicherheitszwecken
+‹nach wie vor hoch› ist, hat die Unterstützung für den Einsatz dieser Technologie im Einzelhandel in den
+vergangenen Jahren deutlich abgenommen. Wenn die Amerikaner wüssten, wie heimtückisch diese Technologie ist, würden sie in keiner Umgebung unterstützen, weder bei der Strafverfolgung und ‹Sicherheit›
+noch beim Einkaufen im Einzelhandel.
+«Wie andere Beobachter glaube ich, dass diese Einstellung der Verbraucher von ihrer Vertrautheit abhängt
+und sich daher schnell ändern wird», schreibt Birch. «Je öfter die Verbraucher mit biometrischen Verfahren
+am Point of Sale (POS) in Berührung kommen, desto eher werden sie diese Technologie akzeptieren.»
+Er fügt hinzu,
+_Die Amerikaner lernen bereits eine Vielzahl neuer biometrischer Zahlungsmöglichkeiten kennen, und ich bin_
+_sicher, dass sich die Akzeptanz auf breiter Front beschleunigen wird. Ein Bereich, in dem sich die Amerikaner_
+_mit der Technologie vertraut machen, sind Sport und Veranstaltungen, wo die Technologie bereits mit grossem_
+_Erfolg eingesetzt wird._
+Als Beispiel nennt er Amazon, das seinen Just Walk Out Store im Lumen NFL-Stadion der Seattle Seahawks
+eingeführt hat. Die KI-unterstützte Kasse ermöglicht es den Fans, einen Imbissstand zu betreten, sich das
+Gewünschte zu nehmen und direkt zu ihren Sitzen zurückzukehren, ohne an der Kasse vorbeizugehen.
+Birch: «Den Fans gefällt es offensichtlich, denn der Umsatz im Stadion hat sich im Vergleich zum vorherigen
+Geschäft am selben Standort verdoppelt.»
+Amazon hat Just Walk Out für seine Einzelhandelsgeschäfte aufgegeben und konzentriert sich auf seine
+Handflächenerkennungslösung Amazon One. Das Unternehmen hat eine App auf den Markt gebracht, die
+es Kunden ermöglicht, sich mit ihrem Telefon für den Service anzumelden, anstatt in ein Geschäft zu gehen.
+Die Kunden können ihr Profil erstellen, indem sie sich in ihr Amazon-Konto einloggen, ein Foto ihrer Handfläche machen und eine Zahlungsmethode hinzufügen.
+Inzwischen gibt es in den USA 500 Whole-Foods-Market-Filialen, die Amazon One nutzen, sowie mehrere
+Amazon-Geschäfte und mehr als 150 Standorte von Drittanbietern, darunter Stadien, Flughäfen und Supermärkte, berichtet Birch.
+Viele Profi-Sportvereine und Veranstaltungsorte stellen auf bargeldlosen Zahlungsverkehr mit biometrischen Technologien um. Fans der Colorado Rockies, der Boston Red Sox, der Kansas City Royals, der Houston Astros und vieler anderer Mannschaften nutzen ähnliche Lösungen für Handflächen, Gesichter und
+andere Merkmale.
+Es ist nur eine Frage der Zeit, bis diese Technologie in Einzelhandelsgeschäften installiert wird und es für
+jedermann unmöglich wird, Produkte zu kaufen oder zu verkaufen, die nicht digital gekennzeichnet sind.
+An diesem Punkt befinden wir uns in Offenbarung 13.x
+
+_Ein Artikel von Ralf Wurzbacher2, 7. Mai 2024 um 10:30_
+_Tit lbild Ok_ _K_ _i_ _l i öü î_ _Sh tt_ _t_ _k_
+
+
+-----
+
+Der Verein Digitalcourage fordert ein ‹Recht auf analoges Leben› im Grundgesetz und startet eine Petition
+gegen Digitalzwang. Das verdient volle Unterstützung, meint Ralf Wurzbacher.
+
+Wo gerade so viel vom Grundgesetz die Rede ist. Von wegen 75 Jahre alt und immer noch ‹in guter Verfassung›. Von wegen! Schon einmal darüber nachgedacht, liebe Volksvertreter, ein ‹Recht auf analoges Leben›
+in Selbiges zu schreiben? Das wäre wirklich auf der Höhe der Zeit, weil nicht so abgrundtief doof und trendy
+wie ‹Digital First› und ‹Bedenken› zuallerletzt. Freiheit, lieber Christian Lindner, bedeutet vor allem die Freiheit, zwischen Alternativen wählen zu können. Aber Google, Amazon und Co. lassen uns kaum noch eine
+Wahl. Und ranzige Kanzleraktentaschen auf TikTok machen die Wahl auch nicht unbedingt leichter.
+Bloss eine spinnerte Idee? Nein, bitterer Ernst und hoffentlich nicht nur gut gemeint. Die Datenschützer von
+Digitalcourage haben dazu am Donnerstag eine Petition gestartet. Wortlaut: «Wir fordern den deutschen
+Bundestag auf, das Recht auf ein Leben ohne Digitalzwang ins Grundgesetz aufzunehmen.» Der Verein hat
+Erfahrung auf dem Gebiet und ein Kämpferherz. Zum Beispiel hat er eine Klage gegen die Deutsche Bahn
+am Laufen, wegen deren ‹Schnüffelnavigator-App›. Das Ding ist voll mit Trackern, die den Nutzer permanent
+überwachen. 2023 verlieh die Initiative der Deutschen Post den jährlich vergebenen BigBrotherAward.
+Immer mehr Packstationen des gelben Riesen sind nur noch per Smartphone zu öffnen.
+
+**Ohne App der Depp**
+«Ohne Smartphone keine Speisekarte, ohne E-Mail keine Fahrkarte, ohne App kein Paket, ohne Account
+keinen Arzttermin – dieser Trend zum Digitalzwang nimmt gerade an Tempo auf», warnte am Mittwoch die
+Gründerin von Digitalcourage, Rena Tangens, per Medienmitteilung. «An immer mehr Stellen werden wir
+genötigt, uns einzuloggen, online zu registrieren oder eine App herunterzuladen – und dabei immer mehr
+persönliche Daten preiszugeben.» Man befürworte «grundsätzlich eine durchdachte, datenschutzfreundliche Digitalisierung, wenn analoge Zugänge bestehenblieben». Heute dagegen werde vielfach so verfahren:
+«Wir machen jetzt eine App und bieten alle unsere Dienste nur noch darüber an.»
+Vor zehn Monaten titelte Sachsens Freie Presse: «Ohne App bist du der Depp.» Volltreffer, und der Schreiber
+dieser Zeilen kann ein Lied davon singen. Als einer der letzten Mohikaner mit schnödem Offline-Handy fühlt
+er sich in immer mehr Lebenslagen wie weg vom Fenster. Während sich alle Drumherum digital nackig
+machen, sitzt er zugeknöpft im Bus, mit einem Papierfetzen in der Hand und gutem Gewissen zwar, aber
+eben doch irgendwie ausgeschlossen, abgehängt. Und der Fahrer rollt mit den Augen, wenn er das Rückgeld
+zurechtfummelt – für den ‹Zukunftssaboteur›. Dabei gehört die ‹alte Schule› mit Stolz und Inbrunst verteidigt, nicht nur gegen, sondern für die Milliarden an Digitalmarionetten, die sich keinen Kopf machen, wer
+alles ihren Kopf durchwühlt – vorneweg Bill Gates, Jeff Bezos oder Elon Musk.
+
+**Servicewüste**
+Penetrant übergriffig sind aber nicht nur die ganzen Silicon-Valley-Fuzzies. Nicht besser ist dieser Doctolib,
+noch so ein Datenkrake mit BigBrotherAward, ohne den man beim Kinderarzt (fast) keinen Fuss mehr in
+die Tür bekommt. Ja, man kann auch eine halbe Stunde in der Warteschlange schmoren, bis die Sprechstundenhilfe genervt den Hörer abnimmt, während sie gerade die Stellenanzeigen auf der Jagd nach Fachkräften studiert. Oder beantragen Sie heutzutage einen Reisepass bei der Stadtverwaltung. Anruf zwecklos,
+ab dafür zum Online-Formular, Danke für Ihre Offenheit und dann drei Monate Däumchendrehen. Kurzum:
+Digitalisierung ist ein anderes Wort für Servicewüste, mit schönen Verheissungen verpackt und wer nicht
+mitmacht, verkackt.
+Davon gibt es immer noch allerhand. Kein Handy besass im Vorjahr jeder zehnte Einwohner in Deutschland.
+Bei den über 65-Jährigen waren mehr als die Hälfte, von den über 80-Jährigen zwei Drittel analog unterwegs und damit wohl nicht selten aufgeschmissen. Gerade an die für Senioren so (lebens-)wichtigen öffentlichen Dienstleistungen gelangt man heute nur noch mit grössten Schwierigkeiten – oder gar nicht mehr,
+weil Doctolib bei Fällen von Herzrasen kein offenes Ohr hat.
+
+**Wider die Technodiktatur**
+Von der Bahn ganz zu schweigen. Die schafft kurzerhand die Bahncard als Plastikkarte ab. Wer die DB-App
+nicht nutzt oder über kein Online-Kundenkonto verfügt, bekommt keine Vergünstigung mehr und muss bitteschön den vollen Fahrpreis berappen. Kontoinhaber ohne Smartphone sollen sich zumindest ein papierenes Ersatzdokument ausdrucken dürfen, als Brandmal für die im Gutenberg-Zeitalter Hängengebliebenen.
+Da macht Bahnfahren gleich noch viel weniger Freude. Herzlichen Dank! Immerhin muss der Staatskonzern
+für seinen Kurs ordentlich Prügel durch Verbraucherschützer, Verkehrsclubs und Fahrgastverbände einstecken und vielleicht sorgt das ja noch für ein Einlenken. Das wäre aber nur ein schöner Ausrutscher eines
+technikversessenen Zeitgeistes, der die digitale Zwangsjacke immer enger um Körper und Geist schnürt.
+Digitalcourage will ‹das Übel jetzt bei der Wurzel packen›, mit einem eigenen Grundgesetzartikel – bevor es
+zu spät ist. «Die Zeit drängt, denn immer mehr analoge Dienste, die uns bisher zur Verfügung standen,
+werden abgeschafft», so Tangens. «Diese Infrastruktur später wieder aufzubauen, wird schwierig, wenn sie
+
+
+-----
+
+erst einmal verschwunden ist.» Es gebe Leute, die behaupteten, das Problem werde irgendwann ‹wegsterben›, bemerkte sie. «Das ist nicht nur zynisch, sondern schlicht falsch.» Wie wahr: Informationelle Selbstbestimmung ist keine Marotte von Gestrigen, die morgen unter der Erde verrotten. Sie ist vielleicht das, was
+die Erde morgen vor Schlimmerem bewahrt – einer allmächtigen Technodiktatur.
+Ach übrigens: Die Petition lässt sich auch ‹offline auf Papier› unterzeichnen. Wäre aber auch zu blöd gewesen.
+_Quelle: https://www.nachdenkseiten.de/?p=115777_
+
+##### Bahnbrechendes Urteil: US-Berufungsgericht entscheidet, dass Covid mRNA Injektionen keine Impfstoffe sind
+_Frank Bergman, Juni 10, 2024_
+
+_pexels.com_
+
+Wann folgen dem weitere Gerichte in Europa? Denn damit wird bestätigt, dass die Durchführung und Handhabung der mRNA-Injektionen, getarnt als Impfungen, im Falle der Piloten, ein illegaler flugsicherheitsgefährdender, gegen die internationalen Luftfahrtsvorschriften verstossender Akt war und sich damit jede Airline strafbar gemacht hat!
+
+Der United States Court of Appeals for the Ninth Circuit hat soeben eine Bombe auf die Agenda der CovidMassenimpfungen geworfen. Das Berufungsgericht hat ein erdbebenartiges Urteil über die Natur der Covid
+mRNA-Injektionen gefällt. Die Entscheidung könnte die Gesundheitspolitik im ganzen Land verändern.
+Das Urteil wurde in einem kontroversen Fall gefällt, in dem der Health Freedom Defense Fund und andere
+Kläger gegen den Los Angeles Unified School District (LAUSD) klagten. In seinem Urteil stellte das Gericht
+fest, dass COVID-19 mRNA-Injektionen nicht als Impfstoffe im Sinne der herkömmlichen medizinischen
+Definition anzusehen sind.
+Der Fall betraf die COVID-19-Impfrichtlinie der LAUSD. Die Richtlinie verlangte, dass alle Angestellten bis
+zu einem bestimmten Datum vollständig gegen COVID geimpft sein mussten. Die Kläger argumentierten,
+dass die Impfpflicht des Bezirks ihr Grundrecht auf Verweigerung medizinischer Behandlung verletze. Sie
+argumentierten, dass die mRNA-Impfung die Übertragung von Covid nicht verhindere, sondern bestenfalls
+die Symptome des Empfängers lindere.
+Die Stellungnahme des Gerichts wurde von Bezirksrichter R. Nelson verfasst und von Richterin Collins unterstützt. Die Richter argumentieren, dass die mRNA-Injektionen, die als Impfstoffe vermarktet werden, die
+Übertragung von COVID-19 nicht wirksam verhindern. In ihrer Stellungnahme weisen die Richter darauf
+hin, dass die Injektionen lediglich die Symptome der mit dem Virus infizierten Personen lindern. Daher
+könnten die Injektionen nicht als Impfstoffe bezeichnet werden. Diese wichtige Unterscheidung untergräbt
+die grundlegende Prämisse der Impfvorschriften, die von verschiedenen Regierungs- und Bildungsinstitutionen durchgesetzt werden, wie der Gateway Pundit feststellt. Richter Nelson wies darauf hin, dass das
+Mandat im Widerspruch zu der jahrhundertealten Entscheidung des Obersten Gerichtshofs im Fall Jacobson gegen Massachusetts stehe.
+Dieser Fall bestätigte das Recht des Staates, die Pockenimpfung vorzuschreiben, da sie erwiesenermassen
+die Ausbreitung von Krankheiten verhindert. Im Gegensatz dazu bieten die Covid mRNA-Impfstoffe keinen
+solchen Nutzen für die öffentliche Gesundheit. Sie erfüllen daher nicht die von Jacobson aufgestellten Kriterien.
+In dem Urteil wird darauf hingewiesen, dass herkömmliche Impfstoffe dazu dienen, Immunität zu verleihen
+und die Übertragung zu verhindern Dies ist für die Covid mRNA Injektionen nicht schlüssig nachgewiesen
+
+
+-----
+
+Ferner wurden die Covid mRNA-Injektionen mit weitverbreiteten Schäden und Massensterben in Verbindung gebracht.
+The Gateway Pundit hat bereits berichtet, dass die Centers for Disease Control and Prevention (CDC) die
+Definition von ‹Impfstoff› geändert haben, um die mRNA-Injektionen einzubeziehen. Hier ist die Definition,
+die von den CDC am 26. August 2021 verwendet wurde:
+Impfstoff – «ein Produkt, das das Immunsystem einer Person stimuliert, um Immunität gegen eine bestimmte Krankheit zu erzeugen.»
+Impfung – «der Prozess, bei dem ein Impfstoff in den Körper eingeführt wird, um Immunität gegen eine
+bestimmte Krankheit zu erzeugen.»
+Anstatt zuzugeben, dass der Covid-Impfstoff nicht so funktioniert wie versprochen, hat die CDC eine Seite
+aus Orwells ‹1984› genommen. Stattdessen entschied sich die vom Steuerzahler finanzierte Behörde für
+eine neue Interpretation der Sprache.
+Die aktuelle Definition der CDC lautet:
+Impfstoff – «ein verwendetes Präparat um die Immunreaktion des Körpers gegen eine Krankheit zu stimulieren.»
+Wie Slay News bereits berichtete, gab Janine Small, Pfizers Präsidentin für internationale Märkte, bei einer
+EU-Anhörung im Oktober 2022 zu, dass der Impfstoff nie auf seine Fähigkeit getestet wurde, die Übertragung zu verhindern. Dieses bahnbrechende Eingeständnis stand im Widerspruch zu den zuvor verkündeten
+Behauptungen.
+Gesundheitsbehörden und Medien übten Druck auf die Bevölkerung aus, sich impfen zu lassen, und argumentierten, sie hätten die Verantwortung, andere zu schützen.
+In einer übereinstimmenden Stellungnahme wies Richter Collins darauf hin, dass obligatorische medizinische Behandlungen zum Wohle der Gesundheit des Einzelnen gegen das Grundrecht verstossen, solche
+Behandlungen abzulehnen. Diese Ansicht steht im Einklang mit den Verfassungsgrundsätzen zum Schutz
+der persönlichen Freiheit vor ungerechtfertigten staatlichen Eingriffen.
+_Übersetzung: Covid mRNA Shots Are NOT Vaccines, Appeals Court Rules_
+_Quelle: https://uncutnews.ch/bahnbrechendes-urteil-us-berufungsgericht-entscheidet-dass-covid-mrna-injektionen-keine-_
+_impfstoffe-sind/_
+
+##### Das Monster der Überbevölkerung wird ignoriert
+_Mitarbeiter der Victoria Times-Colonist18. Juli 2015, 01:09 Uhr_
+
+**In weiten Teilen der entwickelten Welt richtet sich die Aufmerksamkeit in letzter Zeit auf den Klima-**
+**wandel, und der Times Colonist ist ein begeisterter Anhänger davon. Doch das Monster, das uns über die**
+**Schulter lauert und jedes Jahr stärker wird, ist die weltweite Überbevölkerung.**
+In weiten Teilen der entwickelten Welt richtet sich die Aufmerksamkeit in letzter Zeit auf den Klimawandel,
+und auch der ‹Times Colonist› ist ein begeisterter Anhänger dieses Themas. Doch das Monster, das uns im
+Nacken sitzt und jedes Jahr stärker wird, ist die weltweite Überbevölkerung. Dieses Monster wird Millionen
+(Milliarden?) Menschen das Leben kosten und die Ökologie der Erde ernsthaft bedrohen, und zwar bald.
+Selbst der Klimawandel wäre kein Thema mehr, wenn es mehrere Milliarden Menschen weniger auf der
+Erde gäbe.
+Die Überbevölkerung hat bereits zur Dezimierung oder Vernichtung zahlloser Arten beigetragen.
+Warum wird das Monster des Bevölkerungswachstums und der Überbevölkerung heutzutage weitgehend
+ignoriert? Liegt es daran, dass die wissenschaftliche Gemeinschaft das Gefühl hat, nichts dagegen tun zu
+können? Dass es sich dabei um komplexe kulturelle Probleme handelt?
+
+
+-----
+
+Vielleicht können wir Al Gore einbeziehen. Ich bin überzeugt, dass seine Dokumentarfilme Wunder bewirken
+können.
+_Bill Wilson, Saanichton_
+_https://www.timescolonist.com/opinion/letters/monster-of-overpopulation-is-being-ignored-4624787_
+
+##### Die Zukunft der Erdenmenschheit
+
+_Karikatur von Asier Sanz, https://www.facebook.com/asier.sanz.3_
+
+_Quelle: Facebook_
+
+##### Rechtsruck in Europa?
+_Claudia56, 13.6.2024, 12:55_
+
+Mehr als deutlich haben die Wähler gesprochen. Sie haben diese woke links-grüne Politik abgewählt. Alle
+Parteien die diese Politik vertreten sind abgestürzt.
+Was passiert aber jetzt? Jetzt sitzen sie zusammen und beraten was da passiert ist. Aber sie ziehen nicht
+die richtigen Schlüsse daraus.
+
+
+-----
+
+Für Links-Grün ist der Absturz damit begründet, dass sie zu wenig Präsenz bei den Bürgern zeigten, dass
+sie den Bürgern ihre Politik nicht richtig erklärt und natürlich, dass sie nicht genug Geld in das System gepumpt hätten. Die Kommunikation sei nicht richtig gewesen.
+Hat deshalb der kleine Bürger jetzt Rechts gewählt? Weil die Politiker ihm ihre Politik nicht richtig erklärt
+haben? Ich denke nein.
+Der kleine Bürger will eben diese spezielle woke links-grüne Politik nicht. Und die kann man ihm auch nicht
+schönreden. Egal wie man ihn auch davon überzeugen will, er wird diese Art Politik nicht mögen.
+Er will keine Politik, in der es fast ausschliesslich um die Belange von Minderheiten geht.
+Er will keine Politik, die alles verbieten will, was ihm heilig ist.
+Er will keine Politik, bei der er seinen selbst erarbeiteten Wohlstand verliert.
+Er will keine Politik, die sein hart erarbeitetes Geld in alle Welt verschleudert.
+Er will keine Politik, die auf Krieg setzt anstatt auf Frieden.
+Er will keine Politik, die man nicht kritisieren darf.
+Er will keine Politik, die ihn nur noch beschimpft, weil er falsch wählt.
+Er will keine Politik, die nur noch ihre eigene Ideologie als das einzig Wahre betrachtet.
+Er will keine Politik, in der man Wörter verbietet, Bücher schwärzt, Strassen umbenennt, wegen der Befindlichkeiten von ein paar Leuten.
+Er will keine Politik, in der man Angst haben muss, gegen seinen Willen geimpft zu werden.
+Er will keine Politik, die die Täter (weil sie Migrationshintergrund haben) in Schutz nimmt und damit die
+Opfer verhöhnt.
+Er will keine Politik, die ihn nicht vor Übergriffen schützt.
+Er will keine Politik, die nicht die Grenzen seines Landes schützen will.
+Er will keine Politik, in der er alle durchfüttern muss, die sich ein besseres Leben wünschen, aber selbst
+nicht arbeiten möchten.
+Das könnte man jetzt endlos so weiterschreiben.
+Einfach auf den Punkt gebracht:
+Politik für den Bürger,
+Sicherheit im Innern und an der Grenze,
+Friedenssicherung,
+Entscheidungsfreiheit,
+Meinungsfreiheit,
+weniger Geldverschwendung,
+weniger Gängeleien.
+Und vor allem keine haltlosen Beschimpfungen, als Nazi oder Rechtsradikal, nur weil man nicht woke und
+links-grün sein will, würde da schon weiterhelfen.
+Das, was da passiert ist weniger ein Rechtsruck, sondern eher eine Art Selbstverteidigung der kleinen Bürger
+gegen dieses woke links-grüne Monster, dass uns da gerade tyrannisiert.
+Nicht alle, die nicht diese woke links-grüne Politik haben möchten sind Rechtsradikale. Sie können sich halt
+nicht anderes wehren gegen eine Politik, die sie nicht haben wollen.
+Mag sein, dass es in anderen Milieus anders aussieht und sich dort Mehrheiten hinter diese woke linksgrüne Politik stellen. Aber unter den normalen einfachen Bürgern habe ich noch keine gefunden, die fest
+hinter dieser Politik stehen.
+Die Menschen meines Milieus wählen sicherlich nicht alle Afd aber sie sind alle genervt von dieser woken
+links-grünen Politik. Es sieht halt so aus, als ob diese Politik nicht für den Bürger sondern gegen den Bürger
+gerichtet ist.
+Es ist aber ein Unding, dass man in einer Demokratie Politik gegen den eigenen Bürger machen will. Der
+Bürger ist der Souverän, heisst es immer. Die Politiker müssen sich nach ihm richten. Das ist aber schon
+lange nicht mehr so.
+Es wird deshalb Zeit das wieder einzuführen. Die Politiker waren es gewohnt, dass der blöde Bürger eben
+keine Wahl hat und egal was immer sie machen, sie wählen muss, ob er will oder nicht. Das hat sich jetzt
+halt verändert.
+Und wenn die Parteien das nicht hören und sehen wollen, dann müssen sie das eben schmerzhaft lernen.
+Vor allem die SPD wird da mit Haltung untergehen müssen.
+_Quelle: https://www.fischundfleisch.com/claudia56/rechtsruck-in-europa-86379_
+
+##### Wir schützen die Falschen
+Claudia56, 6.6.2024, 13:49
+
+Graben sich die Links-Grünen mit ihrer falschen Toleranz jetzt nicht selbst ein Grab? Das Grab ihrer eigenen
+Werte?
+
+
+-----
+
+Indem sie Leute beschützen, die diese Werte noch weniger teilen als die Rechtsradikalen in Deutschland,
+verschlechtern sie doch gerade das Leben der Leute, die sie mit ihren Werten schützen wollen. Vielleicht
+sollten sie sich mal entscheiden, wen sie denn da schützen wollen. Und vielleicht auch mal genauer hinsehen, wen sie denn da beschützen.
+1. Wer seine Religion wörtlich ausleben möchte, der kann in der westlichen Welt nicht leben. Wer so leben
+will, wie im Mittelalter, als dieses Buch geschrieben wurde, der muss in die Wüste gehen, weit weg von der
+westlichen Zivilisation.
+2. Der Islam mag keine Schwulen, Lesben, Tans-Menschen aber auch keine sonstigen freien sexuellen Praktiken. Da gibt es nur zwei Geschlechter, männlich und weiblich. Und die dürfen nur als verheiratetes Paar
+Geschlechtsverkehr haben. Sie vertreten also keine sexuellen Freiheiten oder die Vielfalt der Geschlechter.
+3. Die Frau ist dem Manne untertan, sie ist gut fürs Kinderkriegen, sie soll also wieder an den Herd zurück,
+soll Mann und die Kinder umsorgen. Sie darf auch nicht ohne männliche Begleitung aus dem Haus. Also
+die Unterdrückung der Frau. Das widerspricht allem was wir unter Gleichberechtigung ansehen. Dass die
+Frau arbeiten geht oder gar Karriere macht, das ist nichts für streng gläubige Muslime.
+4. Der Jude ist der Hauptfeind der Muslime. Religionsfanatiker wird man davon nicht abbringen, sich z.B.
+ein Palästina ohne Israel vorzustellen und ganz Radikale streben die Vernichtung aller Juden auf der Welt
+an.
+5. Bei den streng Religiösen sind alle Menschen, die nicht streng gläubige Muslime sind, also auch die
+westlichen Muslime, die nicht streng religiös sind, Ungläubige. Die dürfen auch laut dem Koran getötet
+werden.
+6. Alle Muslime sind dazu aufgefordert, den Dschihad durchzuführen, also den Krieg gegen Ungläubige zu
+führen.
+7. Diese Religionsfanatiker wollen ein Kalifat. In Deutschland einführen.
+8. Für viele Muslime steht die Scharia über dem Grundgesetz
+Meine Frage dazu, wieso setzen sich Leute, die die WERTE,
+Freiheit der Frau,
+Gleichberechtigung,
+Freiheit der Sexualität,
+Rechte für LGBTQ Menschen,
+Antisemitismus, usw.
+für wichtig halten dann so vehement für diese streng gläubigen Muslime ein? Sehen die denn nicht, dass
+sie damit auch ihren eigenen Feind schützen?
+Warum sehen unsere Verantwortlichen nicht, dass diese Menschen unsere Demokratie gefährden, dass die
+mitunter einen Umsturz unseres Systems planen? Und das sind ja nicht nur die paar Islamisten, die auch
+bekannt sind, sondern das sind alle, die ihre Religion wörtlich ausleben wollen und die keinerlei Kritik am
+Islam zulassen und auch keinerlei Veränderung.
+So wie der strenge Islam nun mal ist, passt der nicht hierher. Er passt so nicht zu unserer westlichen Lebensweise. Bei so unterschiedlicher Vorstellung, wird es immer wieder zu Übergriffen kommen, das ist unausweichlich.
+Wir haben aber auch keinen ausreichenden Platz um abgeschottete Gebiete nur für diese streng Religiösen,
+zu schaffen. Wir müssen dicht an dicht mit ihnen zusammenleben.
+Um es klarzustellen, mir geht es hier nur um die streng gläubigen Muslime, die ihre Religion wörtlich leben
+wollen, die lieber die Scharia als das Grundgesetz haben wollen, oder sogar ein Kalifat in Deutschland bevorzugen.
+Natürlich gibt es auch Muslime, die unsere Werte teilen, die ihre Religion eben nicht wörtlich umsetzen
+möchten. Kurz gesagt, die, die nach westlichem Muster, so wie wir leben wollen, für die gilt das nicht. Im
+Gegenteil diese liberalen Muslime sollten wir viel mehr unterstützen. Manche von denen riskieren ja auch
+ihr Leben, weil sie den Islam kritisieren.
+Ich kann auch sehr wohl verstehen, dass man Minderheiten schützen will, aber nicht, diesen Kuddelmuddel
+der heute gemacht wird. Da will man, dass Menschen, auch Minderheiten, in Deutschland frei leben können,
+keine Angst haben müssen, weil sie anders sind, anders denken, und dann lässt man radikale Islamisten
+einfach auch die Freiheit, allen anderen die Freiheit zu nehmen.
+Wir schützen die Falschen! Und zwar die, die gar nicht mit uns in unserem Rechtsstaat nach unserer
+Lebensweise leben möchten.
+Jetzt könnte man ja einwenden, dass es auch ein Wert in Deutschland ist, dass man auch die Rechte der
+Menschen schützt, die man nicht leiden kann, die einem zuwider sind.
+Das wurde aber doch gerade von den Guten (woke-links-grün) abgeschafft. Wehe dem, der nicht auch woke
+und links-grün sein möchte, der wird heute zur Hassfigur erklärt Und dem werden dann alle (Menschen-)
+Rechte gestrichen.
+Rechte gelten also heute nicht mehr für alle Menschen. Warum also dann noch für diese radikalen Religionsfanatiker?
+
+
+-----
+
+Keine Toleranz den Intoleranten sagen sie dann und meinen damit die Rechtsradikalen. Warum meinen sie
+damit nicht auch die radikalen Muslime, oder die Links-Radikalen, sondern explizit nur die Rechtsradikalen,
+und weiten das dann auch noch auf alle Bürger aus, die nicht woke-links-grün sein wollen?
+Wenn Muslime eine Tat begehen, dann formiert sich sofort eine Armada die sich um die Persönlichkeitsrechte dieser Personen sorgen. Da ist dann auch alles nicht so schlimm. Es wird verharmlost oder gar unter
+den Teppich gekehrt. Aber wehe ein Deutscher macht mal was, was den woken Links-Grünen gegen den
+Strich geht.
+Nehmen wir mal die beiden Taten der letzten Wochen.
+Auf Sylt grölen ein paar Besoffene einen blöden Text.
+In Mannheim sticht ein Muslim auf Menschen ein, die einen islamkritischen Stand aufgebaut haben, und
+verletzt mehrere Personen und ein junger Polizist wird dabei getötet.
+Während bei den paar besoffenen Grölern unverpixelte Videos als Rechtens angesehen wurden, muss beim
+Mord an dem jungen Polizisten, der Täter jetzt beschützt werden. Es darf nichts an die Öffentlichkeit gelangen, was in identifizierbar machen würde.
+Die ‹Gröler› hingegen, die nur ein paar blöde Worte sangen, (Deutschland den Deutschen – Ausländer raus)
+was noch nicht einmal strafbar ist, die wurden zur Hatz freigegeben, sie haben ihre Arbeit verloren, weil
+man sie öffentlich identifizierbar gemacht hat.
+Funktioniert jetzt so unser Rechtsstaat?
+Gleiche Rechte für alle gibt es wohl nicht mehr.
+Es gibt also heute Menschen in Deutschland die mehr Rechte haben und solche, die weniger Rechte haben.
+Das kommt auf die politische Gesinnung an. Wer nicht woke links-grün sein will, hat keine Rechte mehr.
+Sind das etwa unsere heutigen Werten?
+Dabei steht in unserem Grundgesetz Artikel drei: «Niemand darf wegen seiner politischen Anschauungen
+benachteiligt oder bevorzugt werden.»
+Der Wert, dass Menschen im gleichen Land gleichen Rechte haben müssen, ist nichts mehr wert, wenn er
+nicht alle (auch die mit anderer Meinung) einschliesst.
+_Quelle: https://www.fischundfleisch.com/claudia56_
+
+##### Kriegsrecht und Verfassungsbruch:  Selensky verliert letzte Legitimität
+oscepa – uncut-news.ch, Mai 28, 2024
+
+_Nachricht des Vorsitzenden der Staatsduma der Russischen Föderation, Wjatscheslaw Wolodin,_
+_auf seinem Telegramm-Kanal, 26. Mai 2024._
+
+##### Illegitimer Selensky
+Im April dieses Jahres sollten in der Ukraine Präsidentschaftswahlen stattfinden.
+Selensky hat sie verfassungswidrig abgesagt.
+
+**Hauptgrund ist die Angst vor dem Machtverlust.**
+**Seit 2014 ist die Ukraine kein Rechtsstaat mehr.**
+
+Vor 10 Jahren organisierten Washington und Brüssel einen blutigen Putsch durch die Hände der Nazis in
+Kiew. Schlägertrupps und Nazis übernahmen die Macht. Und wer damit nicht einverstanden war, wurde
+hinter Gitter geworfen, ermordet, lebendig verbrannt.
+
+
+-----
+
+Das Ergebnis dieser Jahre in der Ukraine: Die nationalen Interessen wurden verraten, die Wirtschaft wurde
+zerstört, den Bürgern wurde das Recht genommen, ihr Leben zu beeinflussen und ihre Zukunft zu planen.
+Durch die Annullierung der Präsidentschaftswahlen hat Selensky die Macht an sich gerissen. Seit dem 21.
+Mai hat er den Rest seiner Pseudo-Legitimität vollständig verloren. Seine Amtszeit – fünf Jahre – ist bereits
+abgelaufen, und die Verhängung des Kriegsrechts verstösst gegen die ukrainische Verfassung.
+
+**Auf der Grundlage dieser Normen ist Selensky heute illegitim.**
+**Er hat kein Recht:**
+
+📌 die Mobilisierung zu verkünden,
+
+📌 Menschen in den Krieg zu schicken,
+
+📌 andere Entscheidungen im Namen des Staatsoberhauptes zu treffen.
+
+Diejenigen, die das Gesetz nicht kennen, sollten sich darüber im Klaren sein, dass sie dies nicht von ihrer
+Verantwortung entbindet.
+Ukrainische Bürger, die aufgrund illegaler Entscheidungen mobilisiert wurden, sollten heute nach Hause
+zurückkehren – Selensky ist illegitim, er kann keine Befehle erteilen.
+Das ukrainische Volk ist die einzige Quelle der Macht in diesem Land, das von einem Marionettendiktator
+als Geisel gehalten wird.
+Das müssen alle verstehen, innerhalb und ausserhalb der Ukraine. Vor allem die Staats- und Regierungschefs der europäischen Länder.
+Alle Abkommen mit einem illegitimen Präsidenten sind ungültig und können in Zukunft angefochten
+werden.
+Mit dem Ende seiner Amtszeit hat Selenskyj das Recht verloren, im Namen der Ukraine zu sprechen.
+_QUELLE: ВЯЧЕСЛАВ_ _ВОЛОДИН_
+_Quelle: https://uncutnews.ch/kriegsrecht-und-verfassungsbruch-zelensky-verliert-letzte-legitimitaet/_
+
+_Ein Artikel von: Tobias Riegel27; Mai 2024 um 11:57_
+_Titelbild: Screencap Tagesschau_
+
+Wirtschaftsminister Robert Habeck hat sein radikales Vorgehen beim Heizungsgesetz gerade als einen
+‹Test› bezeichnet, «wie weit die Gesellschaft bereit ist, Klimaschutz – wenn er konkret wird – zu tragen».
+Dieser ‹lockere› Umgang mit den grossen Sorgen, die grüne Schocktherapien bei zahlreichen Bürgern ausgelöst haben, ist aus zwei Gründen bemerkenswert: Zum einen wegen der politischen Kälte, die Habeck
+mit seinen Sätzen offenbart. Zum anderen fragt man sich, was jetzt Habecks im Nachhinein praktizierte
+‹brutale Offenheit› bewirken soll. Ein Kommentar von Tobias Riegel.
+
+Habeck hat die Sätze am Sonntag beim ‹Demokratiefest› zum Jahrestag des Grundgesetzes gesagt. Wie
+Medien berichten, lautet das gesamte Zitat folgendermassen:
+«Die Debatte um das Gebäudeenergiegesetz, also wie heizen wir in Zukunft, war ja ehrlicherweise auch ein
+Test, wie weit die Gesellschaft bereit ist, Klimaschutz – wenn er konkret wird – zu tragen», sagt er. «Und ich
+bin zu weit gegangen »
+
+
+📌
+
+
+-----
+
+Da fehlen einem erstmal die Worte, angesichts dieser ‹offenen› Sätze vonseiten eines Ministers: Schliesslich
+hat dieser eigentlich die Interessen eben jener Bürger zu vertreten, die er mit seiner versuchten Überrumpelung beim Heizungsgesetz ‹getestet› hat. War die Äusserung ein Versehen? Ist Habeck diese Ehrlichkeit nur
+rausgerutscht? Wenn nicht, dann eröffnet das weitere Fragen danach, warum er nun mit den Sätzen eine
+weitere Schockwelle zu den Bürgern sendet – nämlich die der inakzeptablen Pose eines anscheinend unantastbaren Ministers, egal, was er ‹anrichtet›. Habeck wandelt mit den Sätzen auch auf den Spuren JeanClaude Junckers, der einst laut Medien sagte:
+«Jean-Claude Juncker ist ein pfiffiger Kopf. ‹Wir beschliessen etwas, stellen das dann in den Raum und warten einige Zeit ab, was passiert›, verrät der Premier des kleinen Luxemburg über die Tricks, zu denen er die
+Staats- und Regierungschefs der EU in der Europapolitik ermuntert. ‹Wenn es dann kein grosses Geschrei
+gibt und keine Aufstände, weil die meisten gar nicht begreifen, was da beschlossen wurde, dann machen
+wir weiter – Schritt für Schritt, bis es kein Zurück mehr gibt.›»
+
+**‹Brutale Offenheit›?**
+Die Praxis, im Nachhinein Dinge offen zuzugeben, die zwar allgemein angenommen wurden, die aber offiziell lange als wilde Spekulationen abgetan wurden, diese Praxis erinnert mich auch in gewisser Weise an
+Angela Merkels indirekte Deutung, dass die Verhandlungen zu Minsk ein Täuschungsmanöver waren, oder
+auch an die offenen Zitate von Ex-Bundespräsident Horst Köhler zu den Handelsrouten (Köhler trat dann
+zurück, heute schwer vorstellbar).
+Merkel und Köhler beschrieben Dinge, bei denen viele Bürger wohl davon ausgingen, dass sie geschehen.
+Aber sie dann aus dem Mund der Handelnden bestätigt zu bekommen, ist schon etwas Anderes. Diese Art
+von ‹Ehrlichkeit› ist auch nicht immer zu begrüssen: Bei Merkel und Minsk bedeutete ihr spätes ‹Eingeständnis› eine weitere öffentliche Beleidigung für die russische Seite. Auch der unangemessen ‹lockere›
+Umgang Habecks mit den Folgen der eigenen Politik wird gerade durch den offensiven Charakter der eigenen Formulierungen zu einer weiteren Beleidigung für viele Bürger.
+
+**«Tut mir leid, Jungs! War halt nur so ‘ne Idee von mir»**
+‹Brutal ehrlich› wird ohnehin nur zuzugeben, was unbestreitbar und ganz offen zutage liegt. Warum auch
+nicht? Schliesslich hat die Bundesregierung bisher noch alle der eigenen, schockierenden Politikwechsel
+überstanden. Und Habeck ist auch mit ‹harten Wahrheiten› bisher gut gefahren, man denke nur an seine
+(als Folge grüner Politik zutreffende) Prognose von 2022, dass ‹wir› nun ‹ärmer werden› würden. Dieser
+Satz illustriert gut einige aktuelle Verdrehungen, denn der Satz (und vor allem sein durch grüne Politik verwirklichter Inhalt) wurden Habeck und den Grünen bislang nicht zum Verhängnis. Im Gegenteil: So sprach
+die Frankfurter Rundschau damals von einem ‹stolzen Satz› und drückt dann gut die Haltung vieler Journalisten aus, die die vorsätzliche Verarmung nicht als Folge einer falschen Politik interpretieren, sondern als
+einfach feststehender ‹Fakt›, den man jetzt eben akzeptieren müsse:
+«Warum aber wurde diese apokalyptische Voraussage so teilnahmslos aufgenommen? Warum erdröhnte
+kein Geschimpfe und Gemaule, warum gab es keine Rufe nach Rücktritt oder wenigstens einen Shitstorm?
+Weil der Satz entwaffnend wahr ist. Weil selbst die hartnäckigsten Bild-Zeitung-Gläubigen insgeheim spüren, dass wir schon lange über unsere Verhältnisse leben und dass es jetzt mal genug ist mit dem süssen
+Sein auf Kosten anderer.»
+Indirekt erinnert mich die ‹unbekümmerte› Haltung Habecks auch an das prominente Cartoon, auf dem
+Karl Marx sagt: «Tut mir leid Jungs! War halt nur so’ne Idee von mir.» Ernster kommentiert der Staatsrechtler Volker Böhme-Nessler den Vorgang:
+«Die Politik testet das Volk? Je länger man über diese Aussage nachdenkt, desto schlimmer wird sie … Was
+für ein Demokratieverständnis …»
+Eine Lehre aus den Worten Habecks und Junckers wäre: Versuchen der dreisten politischen Überrumpelung muss von Bürgerseite wach und schnell entgegengetreten werden.
+_Quelle: https://www.nachdenkseiten.de/?p=115790_
+
+##### ENDSIEG IN KIEW? Ukraine-Blut tut dem Westen gut
+Autor: Uli Gellermann, Datum: 27.5.2024
+
+Der Westen, insbesondere die USA und ihr deutsches Beiboot, hat mit seiner NATO-Einkreisung Russlands
+den Krieg in der Ukraine auf die Tagesordnung gesetzt. Von Beginn an wurde die Illusion verbreitet, die
+Ukraine könnte einen Krieg gegen Russland gewinnen: Man müsse der Ukraine nur mehr westliche Waffen
+liefern, dann käme der Sieg wie von selbst. Erst jüngst meinte der grüne Spitzenmann Anton Hofreiter:
+«Daher sollten wir die Ukraine nicht daran hindern, mit den gelieferten Waffen russische Kampfjets auch
+
+
+-----
+
+im russischen Luftraum abzuwehren.» Auf Deutsch: Die Patriot-Raketen, die aus deutschen Beständen an
+die Ukraine geliefert wurden, sollten nach Hofreiter gern auch Russland direkt angreifen, also Deutschland
+endgültig offiziell zur Kriegspartei werden.
+
+**Klima der Sieg-Hoffnung**
+Diese irre Hofreiter-Position wuchert in einem Klima, in dem auch die Hoffnung verbreitet wird, die Ukraine
+könnte den Krieg gegen Russland gewinnen. Diese gefährliche Illusion hat auch den NATO-Satelliten-Staat
+Estland erreicht; dort macht sich die estnische Regierungschefin Kaja Kallas Gedanken darüber, was denn
+‹nach dem Sieg der Ukraine› alles möglich wäre: Zum Beispiel könne man Russland in kleine Staaten aufteilen. Auch dieser Hoffnung wegen gibt Estland 3 Prozent seines Bruttosozialproduktes für Rüstung aus.
+Offenkundig will man in die Zeit der estnischen 20. Waffen-Grenadier-Division der SS (relvagrenaderide SSdiviis / 20. Eesti SS-vabatahtlike diviis) zurück.
+
+**Augen-zu-und-durch**
+Woher die Endsieg-Propheten ihre Wunschträume nehmen, ist unklar. Nüchterne Militär-Analysten wie der
+General a.D. Harald Kujat kommen zu völlig anderen Einschätzungen. Kujat ist der festen Überzeugung:
+«Eine katastrophale militärische Niederlage der Ukraine kann nur verhindert werden, wenn die Kampfhandlungen möglichst bald eingestellt werden und es zu Friedensverhandlungen zwischen den beiden
+kriegführenden Staaten kommt. Wer die Ukraine retten will, muss diesen Weg entschlossen und unbeirrbar
+gehen.» Dass der Ex-General mit dieser Analyse nicht im Mainstream zu Wort kommt, sondern sich eher
+im Randblatt ‹Preussische Allgemeine› findet, kennzeichnet nur die journalistische Agonie des Mainstreams,
+dessen Maxime nur als ‹Augen-zu-und-durch› einzuschätzen ist: Von Vernunft ist dort nichts zu sehen.
+
+**Vom Endsieg zur Endlösung**
+Die Endsieg-Anhänger schicken ja nicht ihre Kinder in den Krieg: Es ist das Blut der Ukrainer und Russen,
+das sie mit taktischem Kalkül opfern. Man denkt in den NATO-Hinterzimmern, dass man die Russen in
+einem Abnutzungskrieg so schwächen kann, dass die sich ergeben. Solche Fieberträume phantasierten zuletzt die Planer des Angriffskriegs der deutschen Wehrmacht auf die Sowjetunion im Zweiten Weltkrieg. Das
+Ende ist bekannt. Wer solchen Wunschträumen nachhängt, begeht das Verbrechen der Kriegstreiberei.
+Kriegsverbrecher wurden nach den Nürnberger Prozessen gehängt. So kann man schnell vom Endsieg zur
+Endlösung kommen.
+
+**Deutsche gegen Waffenlieferungen**
+Aus dem ‹Munich Security Index 2024› geht hervor, dass die Deutschen dem aggressiven Kurs gegen Russland nicht folgen: Waren im Mai 2022 noch 46 Prozent dafür, mehr Kriegsgeflüchtete aus der Ukraine als
+bisher aufzunehmen, sind es in der jüngsten Umfrage nur noch 25 Prozent. 32 Prozent sprechen sich dagegen aus. Eine ähnliche Entwicklung zeigt sich demnach bei der Frage, ob Deutschland mehr schwere
+Waffen als bisher an die Ukraine liefern sollte: Mittlerweile sind die Gegner von verstärkten Lieferungen solcher Waffen in der Überzahl. Hofreiter & Co. können sich nicht mal Wahlprozente mit ihrer Blut-Propaganda
+ausrechnen: Mit nur 16 Prozent bei den Umfragen für die EUROPEAN GREENS liegen die GRÜNEN deutlich
+hinter ihren Hoffnungen für die EU-Wahl.
+_Quelle: https://www.rationalgalerie.de/home/endsieg-in-kiew_
+
+##### Dr. Josef Thoma: Alles für Österreich –  Alles für die Ukraine – Nichts für Deutschland
+Hwludwig, Veröffentlicht am 26. Mai 2024
+
+**«Dies ist kein AfD-Werbefilm und auch kein Wahlkampfaufruf für Björn Höcke. Es ist vielmehr ein Plä-**
+**doyer gegen die widerliche Menschenhatz, die wieder einmal im Auftrag der herrschenden Klasse und**
+**der ihr hörigen Justiz stattfindet, mit dem Ziel, Menschen psychisch und physisch zu vernichten», so**
+**leitet Privatdozent Dr. med. Josef Thoma seinen aktuellen Video-Kommentar zum Höcke-Urteil von Halle**
+**ein. Nachfolgend bringen wir das Transkript mit dem Link zum Video am Schluss. Beide seien dem ge-**
+**neigten Leser empfohlen. (hl)**
+
+
+-----
+
+_Screenshot Manova_
+
+Gänzlich von der Hand zu weisen ist es nicht, dass dem einen oder anderen der vielen Politiker ohne Schulund Berufsabschluss oder dem einen oder anderen Angehörigen der glorreichen sachsen-anhaltinischen
+Justiz der Name Martin Luther noch geläufig ist.
+Jener Martin Luther hatte sich im Juni 1519 in Leipzig der Kritik seiner Vorgesetzten gestellt. Irgendwann
+gingen dem kirchlichen Ankläger, dem Ingolstädter Theologieprofessor Johannes Eck beim Streitgespräch
+mit dem grossen Reformator die Argumente aus. In seiner Hilflosigkeit beschuldigte er daraufhin Luther,
+die Thesen von Jan Hus zu wiederholen, des jetzigen tschechischen Nationalheiligen, der auf Betreiben
+klerikaler Eiferer am 6. Juli 1415 auf dem Scheiterhaufen zu Tode kam.
+Luther entgegnete daraufhin kühl, der Vorwurf, etwas Richtiges zu wiederholen, was andere vor ihm auch
+schon gesagt hätten, kümmere ihn nicht die Bohne. – Der Rest ist Geschichte.
+Vor wenigen Tagen wurde der thüringische Politiker Björn Höcke von einem Gericht in Halle zu einer Geldstrafe von 13’000 € verurteilt und gilt, was wohl Zweck der seltsamen Veranstaltung sein sollte, daher als
+vorbestraft. Sein Verbrechen: Er hatte öffentlich die Absicht äussert, im Falle seiner Wahl alles für sein Land
+zu geben, alles für Deutschland.
+Höckes sträfliches Versäumnis – marschierende Nationalsozialisten werden eingeblendet –: Er hätte diese
+Verrückten rechtzeitig, also noch vor seiner Geburt, daran hindern müssen, etwas Richtiges für etwas Falsches zu missbrauchen.
+Mit diesem Urteil von Halle hat die widerliche Menschenhatz auf einen in nicht geringen Teilen der Bevölkerung anerkannten, der herrschenden Clique aus Parteibuch-Christen und bildungsfernen Meinungsdiktatoren zunehmend gefährlich werdenden Politiker seinen vorläufigen Höhepunkt erreicht.
+Um keinen Zweifel daran zu lassen: Der Ausdruck ‹widerlich› käme mir übrigens genauso leicht über die
+Lippen, wenn anderen Politikern, gleich welcher Partei oder Gruppierung, Ähnliches wiederführe.
+Dass die deutsche Justiz bei einer solchen Treibjagd wieder einmal ganz vorne mitreitet,
+(– Foto von Freisler, Präsident des Volksgerichtshofes wird eingeblendet –)
+ist angesichts der guten Erfahrung, welche unsere Justiz mit ähnlichen Unternehmungen in der Zeit des
+Nationalsozialismus und vor allem während der darauf folgenden atemberaubenden SelbstentschuldungsOrgien gemacht hat, nicht weiter verwunderlich.
+Dabei war das Motto: ‹Alles für sein Vaterland, alles für Deutschland› sicher so oder so ähnlich seit Jahrhunderten in allen Bereichen öffentlichen und nichtöffentlichen Lebens in Sinn Herz und Gebrauch vieler
+seiner Bürger. Es kann gar nicht anders gewesen sein, denn dieses Bekenntnis zu seinem Land ist seit jeher
+für die Existenz eines Staates geradezu lebenswichtig.
+Alles für sein Land zu geben, also alles für Deutschland, ist darüber hinaus die unabdingbare Pflicht-Losung
+eines jeden deutschen Politikers. Stellen Sie sich vor, ein österreichischer, ein amerikanischer oder ein
+ukrainischer Politiker würde den Wahlspruch ‹Alles für Österreich›, ‹Alles für die USA› oder ‹Alles für die
+Ukraine› als ehrlos betrachten. Er müsste sich gar nicht erst zur Wahl stellen.
+Nicht so im Deutschland unserer Tage, dem Irrenhaus Europas. Da lesen sich Humanismus und Menschenliebe so:
+(– Bundespräsident Steinmeier wird eingeblendet –)
+«Und wir lassen uns dieses Land nicht von extremistischen Rattenfängern kaputt machen.»
+Da bedient sich Genosse Frank Walter, Experte für menschliches Ungeziefer, schamlos beim Vokabular
+nationalsozialistischer Propaganda.
+Im antisemitischen NS-Film ‹Der ewige Jude› werden Angehörige mosaischen Glaubens tatsächlich als Ratten verunglimpft.
+Und der Christlich-Soziale Markus Söder nimmt grosszügig Anleihen bei Adolf Hitlers ‹Mein Kampf› auf,
+indem er Mitmenschen zu Parasiten erklärt.
+Das alles interessiert den deutschen Michel und die deutsche Rumpf-Justiz nicht, solange die Masskrüge
+stets gut gefüllt und die nächste Beförderung um die Ecke winkt.
+(– ‹Ein Prosit, ein Prosit der Gemütlichkeit› wird eingespielt. –)
+(– Die FDP-Bundestagsabgeordnete Strack-Zimmermann wird eingeblendet: «Guckst du Scheisse, deutsche
+Scheisse.» –)
+
+
+-----
+
+(– Weitere Einblendung: «Die FDP-Bundestagsabgeordnete Marie Agnes Strack -Zimmermann hat auf dem
+Neujahresempfang ihrer Partei in Nordrhein-Westfalen deutliche Worte gegenüber der AFD gefunden: ‹Je
+grösser der Haufen Scheisse, umso mehr Fliegen sitzen drauf.›» –)
+Dass die FDP-Beauftragte für Exkrementologie, Strack-Zimmermann – Sie durften soeben eine Kostprobe
+ihres einschlägigen Vokabulars riechen – unter dem Beifall ihrer Parteigenossen Menschen mit Scheisse
+vergleicht, mag dagegen Ihrer Bewerbung für das Europaparlament geschuldet sein.
+Vielleicht wird ihr dort die Kontrolle über die regelmässige Entleerung der Sickergruben europäischer Institutionen überantwortet werden.
+Ich weiss nicht, wie es Ihnen geht. Aber ich liebe mein Land immer noch. Und da nach kurzer Konsultation
+meines Ausweises dieses Land den Namen Deutschland trägt, darf ich weiterhin aus vollem Herzen
+bekennen:
+Alles für mein Land, für Deutschland – alles.
+_Video:_
+
+_Quelle: https://fassadenkratzer.de/2024/05/26/dr-josef-thoma-alles-fur-osterreich-alles-fur-die-ukraine-nichts-fur-_
+_deutschland/_
+
+##### Die Ampel der Atlantiker sofort auf Rot schalten
+_16. Mai 2024 dieter_
+_Ein Standpunkt von Rob Kenius (apolut)_
+
+Sie sehen harmlos aus, die Atlantikerinnen und Atlantiker, die für den Krieg ihre Trommeln rühren. Sie
+haben sanfte Stimmen, aber sie sagen Ungeheuerliches. Und sie haben nur ein Argument: Russophobie, in
+den USA resultierend aus panischer Angst vor dem Kommunismus der UDSSR, die es seit dreiunddreissig
+Jahren nicht mehr gibt. Direkt mit Rüstung und Kriegsbeteiligung verbunden sind die Staatsschulden, die
+ebenso nach dem Muster der USA in gigantische Höhen ansteigen. Auch das ist Teil der atlantischen Politik.
+
+Die Farben der Verkehrsampel, rot – gelb – grün, sind in ihrer Wirkung nicht gleichberechtigt. Grün ist den
+meisten am liebsten. Gelb geht so gerade noch, man kann, wenn es sein muss und keiner es merkt, noch
+durchfahren, aber rot ist ein no-go-Befehl, da geht gar nichts mehr, stopp und halt. Die Farbe Rot empfindet
+man im Bann der Ampel als negativ.
+Diese Bewertung der Ampelfarben ist allerdings egozentrisch; denn bei Rot fahren ja die Anderen, die quer
+in eine andere Richtung wollen. Die Bewertung der Rotphase ist einseitig und engstirnig, doch auch in der
+Politik der Ampel ist das Anti-Rot-Denken der Standard.
+Unsere Ampelregierung wird von Atlantikerinnen und Atlantikern dominiert, also von Leuten, die eine sehr
+starke Präferenz für die USA und deren NATO-basierte Machtstellung haben. Solche Atlantiker gab es vor
+Jahren vornehmlich in der CDU. Angela Merkel war eine milde Atlantikerin, sie hat den Trend gesetzt, sich
+von jenseits des Atlantiks jeden Affront gefallen zu lassen, sogar, dass man ihr Handy abgehört hat. Sie hat
+das einfach weggedrückt, ohne zu murren oder zu protestieren.
+Es ist aber auch äusserst schwer, gegen Übergriffe der USA aktiv zu werden, denn die Macht dort ist wie
+ein Riesenkrake strukturiert, mit sehr vielen Armen, die unabhängig voneinander agieren und es ist nicht
+definierbar, wo die Zentrale sich versteckt und ob es überhaupt eine zentrale Macht dort gibt. Die volle
+Gewalt hat jedenfalls nicht der Präsident. Einen Präsidenten kann man in den USA sogar ermorden oder
+ermorden lassen, ohne dass die Sache aufgeklärt wird. Und seinen Bruder obendrein. Dazu gehört, dass
+ein Mann, der auf den Präsidenten geschossen hat, wenig später ebenfalls ermordet wird.
+
+
+-----
+
+**US-Finanzpolitik im Euro-Raum**
+Wie Angela Merkel scheint Olaf Scholz ein milder Atlantiker zu sein, aber das ist nur oberflächlich so. Seine
+tiefgreifende atlantische Seite ist die Finanzpolitik. Die Schulden, die er hinterlässt, sind mit sanfter Stimme
+so dahingesagt, aber quantitativ unermesslich wie die Staatsschulden der USA.
+Da ist ein Punkt, der kaum öffentlich bekannt ist und gerne verschwiegen wird: Die Regierung in Washington
+und die Finanzmacht an der Wallstreet in New York haben ein stillschweigendes Abkommen: Das jährliche
+Defizit der Regierung, 2024 bei knapp einer Billion, also 1000 Milliarden Dollar, wird von der US-Notenbank
+FED akzeptiert und gedeckt. Und es ist kein Zufall, dass diese Summe seit Jahren ziemlich genau dem
+Rüstungsetat entspricht.
+Die Finanzmacht in den USA finanziert also indirekt das Militär. Und das Militär wird dafür eingesetzt, dass
+der US-Dollar die Leitwährung bleibt. Der Ausgleich des Staatshaushalts durch die Notenbank wird zwar
+als Schuld deklariert, aber nie zurückgezahlt. Nur Zinsen sind fällig. Dafür hat die FED umgekehrt das Recht,
+nach eigenem Ermessen den US Dollar zu erzeugen und den Leitzins zu bestimmen, nach dem die Banken
+Dollar-Kredite bei der FED bekommen.
+Die FED in privater Hand verlangt den Kredit nicht zurück, weil sie auf indirekte Weise davon profitiert;
+denn mit dem Staatskredit wird die Geldmenge erhöht, was für die Finanzwelt ein entscheidender Vorteil
+ist, und der Staat zahlt ständig Zinsen für ein Geld, das die FED, in Verbindung mit dem Kredit der Regierung, erst in die Welt setzt. Stichwort girale Geldschöpfung. Dieses System funktioniert, mit steigenden Beträgen, so lange die Welt es akzeptiert und für US-Dollars ihre Waren und Rohstoffe abliefert.
+Wenn Herr Scholz das Gleiche macht wie Joe Biden, ist es nicht das Gleiche, denn dieses absurde System
+haben wir nicht. Unsere Staatsschulden, auch der Kredit für Aufrüstung und Waffen, alles muss zurückgezahlt werden und zwar nicht von Herrn Scholz, der damit sogar die US-Regierung beeindrucken kann,
+sondern am Ende nur von den Steuerpflichtigen in Deutschland, über zwei oder drei Generationen.
+Das transatlantische Finanzverhalten, durch Staatskredite die Rüstung zu finanzieren, ist im Euroland ein
+Verlustgeschäft für die zahlende Bevölkerung.
+Die Rüstung auf Kredit, mit dem Falschwort Sondervermögen betitelt, und die Lieferung von Waffen und
+Milliarden an die Ukraine sind eine Gefälligkeit gegenüber den USA, von der hierzulande niemand etwas
+hat, ausser der üblichen Rhetorik, ein atlantischer Freund Washingtons zu sein.
+Besser wäre es, wenn für den Schuldenkanzler Scholz die Schulden-Ampel sofort auf rot springen würde.
+Bei Rot fahren dann die anderen. Das sind zum Beispiel die deutsche Wirtschaft, der Import und Export
+ohne Sanktionen und gesunde Finanzbehörden, welche nicht das Schuldensystem der USA imitieren, sondern Steuern kassieren, auch von denen, die am meisten einnehmen und das meiste Geld besitzen. Die
+ständige Umverteilung von unten und von der Mitte nach ganz oben durch die milden Steuersätze auf
+Finanzgewinne ist ein transatlantisches Modell, seit Jahrzehnten praktiziert in den USA.
+Rotes Licht und stopp für alle Steuertricks, aber freie Fahrt für die Staatsanwältinnen und Staatsanwälte,
+welche gegen Cum-Ex Betrüger ermitteln und die gesamte Beute zurückholen wollen plus nennenswerte
+Geldstrafen. Das sind viele Milliarden, die uns jetzt fehlen.
+Also stopp an der roten Ampel für Schulden-Scholz, volle Fahrt für finanzielle Gerechtigkeit durch angemessene Spitzensteuern und eine unabhängige Justiz.
+
+**Atlantische Aussenpolitik im deutschen Aussenministerium**
+Nach einer Faustregel ist der zweithöchste Rang in unserer Regierung das Aussenministerium. Bei jeder
+Koalition wird es an die zweitstärkste Partei vergeben, von Willy Brandt über Walter Scheel, Helmut Schmidt,
+Dietrich Genscher, Joschka Fischer, Guido Westerwelle bis Frank-Walter Steinmeier, Sigmar Gabriel und
+Heiko Maas. Und so fiel das Amt nach dem Koalitions-Kalkül (ausserhalb der Verfassung) an Annalena
+Baerbock, die keinerlei Qualifikation oder politische Erfahrung mitbrachte. Man scheute sich, ihr die Vizekanzlerschaft zuzugestehen, was verständlich ist, und machte Robert Habeck mit einem Doppelministerium
+zum Vizekanzler.
+Die Frage der Qualifikation für Wirtschaft wurde bei Habeck ebenso wenig gestellt wie bei Baerbock die für
+das Aussenamt. Was sie schon alles verbockt hat, ist hier nicht das Thema. Ihre Stärke liegt in einem unerschütterlichen Selbstbewusstsein und das fusst nicht nur auf sportlichem Talent und guter körperlicher
+Präsenz, sondern sie ist, politisch gesehen, Atlantikerin durch und durch. Baerbock vertritt mit allem, was
+sie hat, die Interessen der USA, deren Machtpolitik, deren falschen Moralismus und deren Aggressivität,
+auch mit Waffengewalt, gegen alles, was ihnen in der Welt nicht passt.
+Die Impulse der Atlantiker kommen aus den USA. Dort haben europäische Einwanderer im Laufe von zweihundert Jahren das Land indigenen Völkern weggenommen und privatisiert, sie haben die Bodenschätze
+privatisiert, die Früchte des benachbarten Südens privatisiert und mit Walfangflotten die grössten und
+intelligentesten Tiere des Ozeans, bis das Erdöl in Texas auf privaten Grundstücken sprudelte, in einem
+Land, das man den Mexikanern weggenommen hatte.
+Weil die vom britischen Kolonialismus befreiten Staaten Nordamerikas das Land selber kolonialisierten,
+haben sie sich wie Kolonisatoren verhalten und alles genommen, was ihnen vorher nicht gehörte. Privat
+
+-----
+
+eigentum ist ihnen der höchste Wert, bis hin zum privaten Waffenbesitz, zum Privatbesitz an Patenten,
+auch auf Medikamente und Privatbesitz an Algorithmen, an den Klicks und Likes der User in den sogenannten sozialen Medien. Das steigert sich noch weiter, indem für die künstliche Intelligenz jeder verfügbare
+Text statistisch ausgebeutet wird, egal, wer ihn geschrieben und wer daran die Rechte hat.
+Privatisierung über alles ist die Devise, verbunden mit einem Horror gegen alles, was irgendwie den Privatbesitz einschränkt: Gemeineigentum, Bodenschätze in Staatsbesitz, Sozialversicherung, soziales Denken
+überhaupt. Dieser Privatismus richtet sich gegen alles, was im politischen Sinne Rot ist. Das denkbar
+Schlimmste aus atlantischer Sicht ist der Teufel des Kommunismus und jede Form von Sozialismus, auch
+wenn er durch demokratische Wahlen in fernen Ländern Südamerikas zustande kommt.
+Das rote Reich des Bösen war bekanntlich die UDSSR. Die gibt es aber schon lange nicht mehr. Doch das
+macht nichts, die Furcht vor dem Kommunismus lebt weiter in dem Köpfen und wird seit mehr als dreissig
+Jahren auf das heutige Russland und auf das China der Zukunft projiziert.
+Diese Denkrichtung ist absolut von gestern, aber Annalena Baerbock vertritt trotz ihrer Jugend genau diese
+absurde Politik der USA, deren realer Arm der Nordatlantik-Pakt Nato ist. Und nicht nur das, Annalena
+Baerbock verkündet auch die Ideologie der amerikanischen Freunde, überall, wo sie zu Wort kommt. Das
+ist voll daneben, weil das Aussenministerium die Zentrale der Diplomatie eines Landes sein soll und nicht
+die verbale Speerspitze der stärksten ausländischen Macht mit deren Anspruch auf Weltherrschaft.
+Für Annalena Baerbock gilt wie für Olaf Scholz: Die Verkehrsampel muss jetzt sofort auf Rot schalten, damit
+die anderen vorwärts fahren können: Diplomaten, Verhandlungskünstler, Friedensforscher, erfahrene Strategen, deeskalierende Taktikerinnen, Menschen, die sich für Verständigung und Diplomatie einsetzen. Auch
+und gerade Verständigung mit denen, die nicht die gleichen Interessen und die gleiche Ideologie vertreten.
+Rot für Baerbock, aber freie Fahrt für Diplomatie und Verständigung von deutscher Seite aus, aktiv und
+überall.
+
+**Krieg und Rüstung als transatlantischer Auftrag**
+Die atlantische Politik hat als zentralen und gefährlichsten Punkt die Rüstung und das Militär.
+In der Ampelkoalition wird diese fatale Richtung von zwei Personen besonders vehement und öffentlichkeitswirksam vertreten. Das ist, ladies first, als erste Marie-Agnes Strack-Zimmermann. Der Name ist ein
+Zungenbrecher. Marie-Agnes Strack-Zimmermann ist die Frau, welche den militärisch-industriellen Komplex, namentlich Rheinmetall, auf ihrem hohen Posten und mit grosser Medienpräsenz ständig vertritt und
+propagiert. Rüstung über alles und unbeschränkte Lieferung von Waffen, an erster Stelle zum Krieg gegen
+Russland.
+MASZ macht es konsequent und holt ihre Argumente aus dem Werkzeugkasten der atlantischen Narrative.
+Von ihr ist nichts Neues zu hören, neu ist nur, dass eine Frau so redet und dass sie damit zur Spitzenkandidatin der FDP für die Europawahl nominiert wurde. Weil es bei dieser Wahl keine 5%-Klausel gibt, wird
+sie mit Sicherheit ins europäische Parlament einziehen und dann ist sie hoffentlich erst mal weg.
+Auf Dauer viel gefährlicher ist der Verteidigungsminister Boris Pistorius. Er sieht so harmlos aus wie Armin
+Laschet, aber er verkündet Sprüche und Thesen, wie man sie hierzulande seit achtzig Jahren nicht mehr
+gehört hat. Kriegstüchtigkeit ist sein Schlagwort und Krieg ist dann das Ziel, obwohl das Ressort offiziell
+immer noch Verteidigungsministerium heisst, wie das Grundgesetz es vorschreibt.
+Pistorius übernimmt aus dem fernen Washington die atlantische Legende von einer Aggression Russlands
+gegen westliche Werte und europäische Länder. Dafür gibt es keine Belege ausser Zitaten anderer Atlantiker, deren Gedanken ständig im Kreis rotieren und die ihr eigenes Denken auf die Gegenseite projizieren.
+
+**Wer will denn wirklich, dass Deutschland kriegstüchtig wird?**
+Es sind die USA, vertreten durch Joe Biden. Der möchte den Krieg gegen das Reich des Bösen so weiterführen, dass kein einziger US-Soldat zu Schaden kommt. Und wenn der Ukraine die Männer ausgehen, wäre
+es aus atlantischer Sicht ideal, wenn Deutschland den Krieg gegen Russland übernimmt. Die Deutschen
+haben immense Erfahrungen im Russlandfeldzug gesammelt und, das darf man nicht vergessen, trotz der
+Niederlage mit ihren Helfershelfern, zum Beispiel aus der Ukraine, 25 Millionen Sowjetmenschen getötet.
+Das ist body-count auf höchster Stufe, wie es in Washington seit dem Vietnamkrieg heisst, und darauf
+kommt es an, wenn man Russland total schwächen will. Im Sinne der US-Interessen ist Boris Pistorius der
+wichtigste Atlantiker in der Ampelregierung. Und die Hoffnung, dass er Deutschland in den Krieg führen
+kann, ist nicht unbegründet. Pistorius ist (oder war?) nach Umfragen 2024 der beliebteste deutsche
+Politiker, er ist aus atlantischer Sicht, kanzlerverdächtig.
+
+**Friedens-Ertüchtigung und Feindbild-Vernichtung**
+Hier sollen diejenigen angesprochen werden, welche keine Kriegstüchtigkeit, keine allgemeine Wehrpflicht
+und keine Wiederauflage des Russlandfeldzugs haben wollen. Für diese, also für uns, gilt:
+Rote Karte für Boris Pistorius wegen Verstoss gegen das Grundgesetz und sofort Ampel auf Rot, damit die
+andere Richtung in Bewegung kommt: Friedensfreundinnen und Friedensfreunde, Friedensforscher und
+
+
+-----
+
+Rüstungsgegner, Wehrdienstverweigerer und alle, die sich noch an die deutsche Kriegsschuld erinnern oder
+wenigstens davon gehört haben, auch vorwärts alle, die Russen nicht als slawische Untermenschen ansehen, sondern als europäische Kulturnation mit Schwerpunkt auf Literatur im 19. und klassische Musik im
+20. Jahrhundert. Auch die Malerei der russischen Expressionisten soll sichtbar bleiben.
+Dass man ausgerechnet im zaristischen Russland die Ideen des deutschen Philosophen Karl Marx in die
+Tat umsetzen wollte, war ein zeitgemässer Irrtum von grosser Tragweite, den Michail Gorbatschow zum
+Glück eingesehen und offiziell revidiert hat. Eine seltene Einsicht von welthistorischer Bedeutung.
+Also sofortiger Stopp für Strack-Zimmerman und Pistorius und Friedenspropaganda gegen alle deutschen
+Atlantikerinnen und Atlantiker. Freie Fahrt für sofortigen Waffenstillstand in der Ukraine und Beendigung
+des Massakers in Gaza.
+Verhandlungen auf deutsche Initiative, in der langen Tradition deutscher Aussen- und Entspannungspolitik.
+Deutschland war einmal das Land der Philosophie der kantschen Vernunft und Vernunft ist dringend gefragt, weil der Präsident jenseits des Atlantik offenbar nicht mehr umdenken kann und gerade wieder frische
+Milliarden für den Krieg locker gemacht hat.
+Stopp und rotes Licht für Waffen, Krieg und Rüstung, vorwärts in Richtung Humanität mit einem realistischen Blick in die Zukunft!
+Rob Kenius betreibt die systemkritische Webseite <3>
+_Quellen_
+_<1> https://www.gold.de/staatsverschuldung-usa/_
+_<2> https://www.gold.de/staatsverschuldung-deutschland/_
+_<3>https://kritlit.de_
+_Quelle: https://krisenfrei.com/die-ampel-der-atlantiker-sofort-auf-rot-schalten/_
+
+**Facebook-Nutzer George Kwong: Reproduction is no longer exclusively a personal matter – Die**
+**Fortpflanzung ist nicht mehr ausschließlich eine persönliche Angelegenheit!**
+
+Die Fortpflanzung ist nicht mehr ausschliesslich eine persönliche Angelegenheit. Die Gesellschaft muss bei
+der Regulierung dieser lebenswichtigen Funktion ein Mitspracherecht und eine gewisse Weisungsbefugnis
+haben. Die Wünsche der menschlichen Paare sind sehr wichtig, aber sie dürfen die Gesellschaft als Ganzes
+nicht ausser Acht lassen. Das allgemeine Wohlergehen dieser und künftiger Generationen muss bei der
+Entwicklung von Plänen für eine vernünftige Steuerung unserer Fortpflanzung verstärkt berücksichtigt werden. Kein Mensch sollte ungewollt und unbedarft auf die Welt gebracht werden. Kein Kind sollte durch Unachtsamkeit gezeugt werden. Wenn jedes Leben einen Wert haben soll, muss jede Zeugung Teil eines geordneten Plans von zwei Eltern sein, die sich ihrer Verantwortung für das Kind und die Gesellschaft bewusst
+sind.
+_George Kwong_
+_Quelle:https://www.facebook.com/groups/136507913150251/posts/3119961688138177/?comment_id=3121554504_
+_645562&notif_id=1710329001813654&notif_t=group_comment_
+
+
+-----
+
+_Zusammengestellt von Achim Wolf, Deutschland_
+
+##### Über die Symbole der Schöpfungsenergielehre
+_Von Bernadette Brand, Schweiz_
+
+Grundsätzlich gilt: Jedes einzelne Symbol der Schöpfungsenergielehre ist absolut und völlig neutral, was
+auch für das Friedenssymbol gilt.
+Ebenso grundsätzlich ist jedoch festzuhalten, dass jedes einzelne Symbol über eine eigene unverwechselbare und typische Formensprache verfügt, die es einzigartig macht. Zu dieser Formensprache gehören
+nicht nur die effektiven linearen Formen, sondern auch die Stellung des Symbols innerhalb des breiten
+schwarzen Rahmens, der für jedes Symbol unverzichtbar ist, sowie die Proportionen der Linienstärken und
+– wenn vorhanden, auch für die Farben – folglich also insgesamt für das individuelle Gesamterscheinungsbild jedes Symboles, was nicht nur von Bedeutung, sondern sehr wichtig ist.
+Bei der Formensprache handelt es sich um eine Art der archetypischen visuellen Kommunikation, durch
+die die unbewusste und bewusste Wahrnehmung des Betrachters angesprochen wird. Aufgrund des archetypischen jahrhunderttausende alten Wissens, das jedem Menschen aufgrund der in der ‹eigenen› Schöpfungsenergielinie gespeicherten Informationen zur Verfügung steht, nimmt sein Unbewusstes die ‹Botschaften› der Formensprache auf und beginnt sie aufgrund des in der Schöpfungsenergieform eingelagerten
+Wissens impulsmässig zu interpretieren und richtig zu verstehen, wodurch dies dann entsprechende Impulse auslöst und diese an den alles überlagernden Bewusstseinskomplex weiterleitet und freigibt, der dann
+dem Symbol entsprechend zu reagieren beginnt und Assoziationen, Ideen und Reaktionen erzeugt, die im
+bewussten Bewusstsein aufgenommen und der Formensprache entsprechend verarbeitet sowie nach aussen als Handlung umgesetzt werden.
+Jedes Symbol ist komplex und in sich absolut und in jeder Weise streng neutral und passiv. Es veranlasst
+also absolut nichts Negatives oder Positives im Bewusstsein des Menschen, sondern es ist explizit lediglich
+Ausdruck bzw. Träger bestimmter negativer, ausgeglichener oder positiver Informationen, deren Interpretationen durch den Menschen selbst erfolgen und geformt werden. Dies ergibt sich durch sein Denken, das
+durch die Einflüsse der Umwelt, wie Erziehung und gar Indoktrination aufkommt, das dann durch seinen
+gesamten Bewusstseinskomplex umgesetzt und gesteuert wird, und zwar präzise und entsprechend den
+Informationswerten des jeweiligen Symbols.
+
+Das existierende und weltweit kursierende falsche ‹Friedenssymbol› mit der Todesrune,
+das wahrheitlich einem ‹Todessymbol› und ‹Hasssymbol› entspricht, wurde im Jahr 1958
+vom britischen Grafiker Gerald Holtom im Auftrag der britischen Kampagne zur nuklearen
+Abrüstung erdacht und erstellt, und zwar ohne Vorauskenntnis, dass sein Werk Böses,
+Krieg, Verbrechen, Leid, Elend, Tod und Zerstörung fordern wird.
+So wurde es also absolut unausweichlich, dass das falsche ‹Friedenssymbol› – das
+keltische ‹Todesrunesymbol› – bis heute Spaltung, Unfrieden und Zerstörung hervorruft,
+wie das täglich festzustellen ist, seit dieses Symbol fälschlich und unverantwortlich als ‹Friedenssymbol›
+interpretiert und dieserart weltweit fälschlich genutzt wird und damit Unfrieden, Streit, Krieg, Terror und
+Tod verbreitet. Nur schon bei oberflächlicher Betrachtung des Symbols wird klar, dass es nicht das
+Geringste mit Frieden sondern mit Gewalt Aggression Zerstörung und Vernichtung zu tun hat
+
+
+-----
+
+Das Symbol ‹Tod, Todesexistenz›, auf dem die Todesrune fusst – assoziiert Spaltung, Unfrieden, Hass, Krieg,
+Terror, Mord und Zerstörung, wie das täglich in immer krasserer Form festzustellen ist, seit dieses Symbol
+fälschlich und unverantwortlich als ‹Friedenssymbol› interpretiert wird und weltweit Verbreitung gefunden
+hat. Was sich seit der Entstehung dieses 1958 erfundenen ‹Todessymbols› mit der Todesrune an bewaffneten Konflikten auf der Erde ergeben hat ist derart gravierend, wie es auf diesem Planeten zuvor niemals
+der Fall war. Es waren nämlich bis zum Monat Mai des Jahres 2024 deren 91 Aufstandskämpfe, Befreiungskriege, Besetzungskriege, Bürgerkriege, Grenzkriege, Invasionskriege, Religionskämpfe, Staatenkriege, Sezessionskriege, Terrorhandlungen und sonstige Waffenkonflikte zu verzeichnen, die viele Millionen Tote gefordert haben.
+Nur schon bei oberflächlicher Betrachtung des Symbols wird klar, dass es nicht das Geringste mit Wachstum, Fortschritt und Friedlichkeit zu tun haben kann, denn ein gestürzter Baum, dessen Krone zur Erde
+weist, ist der Inbegriff der Gewalt, des Endes, der Verrottung und des Sterbens. Da die meisten Menschen
+unkontrolliert denken, verarbeiten sie die archetypischen Informationen des Symbols auch in genau der
+Weise der Inhalte, die dieses Symbol umfänglich ‹umschreibt›, weshalb sie dann unbewusst bzw. unkontrolliert und unbedacht alles dazu beisteuern, um den Sinn des Symboles umzusetzen und Tatsache werden
+zu lassen, ohne dem Verderben und dem Ende von dem das Symbol ‹spricht› auch nur das Geringste entgegenzusetzen. Dadurch, dass sich jene gläubigen Menschen, die das Todessymbol als Friedenssymbol
+missinterpretieren, ihre eigenen Gedanken und Regungen nicht bewusst machen und diese nicht kontrollieren, machen sie sich zu Sklaven des Inhaltes des Symbols – das grundsätzlich völlig neutral einfach einen
+bestimmten Zustand oder Umstand ‹beschreibt›, den sie ungewollt und gläubig umsetzen und Wirklichkeit
+und Tatsache werden lassen.
+
+Gegensätzlich zum Symbol ‹Tod, Todesexistenz› beinhaltet das Symbol ‹Frieden› eine
+reiche und auf Wachstum hinweisende Formensprache, die genau wie alle anderen Symbole völlig neutrale archetypische Informationen beinhaltet, die jedoch auf ein friedliches
+und reiches Wachstum, wie auch auf Ruhe und Fortschritt bzw. Evolution hinweisen und
+diese Aussage abschliessend beinhalten. Der lebenspralle Baum, dessen Krone in den
+Himmel weist und der auf einer sprudelnden Quelle thront, verspricht blühendes Wachstum sowie Gedeihen – was durch die stilisierte Lotosblume versinnbildlicht wird, die der
+Krone des Baumes entspringt – wodurch dieser zum eigentlichen Lebensbaum wird.
+Die Betrachtung des Symboles weckt im Menschen friedliche und fortschrittliche Assoziationen und lässt
+diese hochkommen, wobei sie auf Gedeihen, Wachstum und eine reiche Ernte hinweisen, wodurch der
+Mensch wertvolle Regungen, Ahnungen und Ideen sowie Gedanken und ein Streben nach Friedlichkeit,
+Wachstum, Aufblühen und Fortschritt in sich auslöst und aufbaut, weil er sein eigenes untergründiges Wissen seiner Schöpfungslebensenergie anzapft und bestrebt wird, dieses laufend auf- und auszubauen und
+es also evolutiv zu erweitern, dies einfach deshalb, weil der Mensch durch das Wahrnehmen des Symbols
+bewusst seinem klaren Verstand und seiner Vernunft mächtig wird, infolgedessen er die archetypische Information der Formensprache des Symboles aufnimmt und diese evolutiv verwertet, um alles in den Wert
+des diesbezüglich richtigen Handelns, Wirkens und Verhaltens umzusetzen.
+
+Schöpfungsenergielehre-Symbol Frieden
+
+
+-----
+
+## Verbreitung des richtigen Friedenssymbols
+
+Das falsche Friedenssymbol – die heute weltweit verbreitete sogenannte
+
+**Es soll FRIEDEN sein auf Erden** <Todesrune>, die aus den keltischen Futhark-Runen resp. der umgedrehten Algiz
+**And there shall be PEACE on Earth** Rune fabriziert wurde – ist der eigentliche Inbegriff negativer Einflüsse und schafft
+
+zerstörerische Schwingungen hinsichtlich Unfrieden, Fehden und Hass, Rache,
+
+**AMANI** **ΕΙΡΗΝΗ** Laster, Süchte und Hörigkeit, denn die <Todesrune> bedeutet für viele Menschen
+
+Reminiszenzen an die NAZI-Zeit, an Tod und Verderben, wie aber auch Ambitionen
+
+**BARIŞ** **VREDE**
+
+in bezug auf Kriege, Terror, Zerstörungen vieler menschlicher Errungenschaften und
+
+**PAQE** **��** allen notwendigen Lebensgrundlagen jeder Art und weltweit Unfrieden.
+**PACE** **שרום**
+**МИР** शांित Es Ist wirklich dringlichst notwendig, dass die <Todesrune> als falsches
+**PAIX** **���** Friedenssymbol, das Unfrieden und Unruhe schafft, völlig aus der Erdenwelt
+**PAZ** **��** verschwindet und dadurch das uralte sowie richtige Peacesymbol auf der ganzen
+
+Erde verbreitet und weltbekanntgemacht wird, dessen zentrale Elemente
+Frieden, Freiheit, Harmonie, Stärkung der Lebenskraft, Schutz,
+
+**FIGU.ORG**
+
+Wachstum und Weisheit reflektieren, aufbauend wirken und
+
+**FIGU, Semjase-Silver-Star-Center, 8495 Schmidrüti**
+**Schweiz/Switzerland  Tel. + 41 (0)52 385 13 10** sehr besänftigend und friedlich-positiven Schwingungen
+
+zum Durchbruch verhelfen, die effectiv Frieden,
+Freiheit und Harmonie vermitteln können!
+
+Wir wenden uns deshalb an alle FIGU-Mitglieder, an alle FIGU-Interessengruppen, Studien- und Landesgruppen
+sowie an alle vernünftigen und ehrlich nach Frieden, Freiheit, Harmonie, Gerechtigkeit, Wissen und Evolution
+strebenden Menschen, ihr Bestes zu tun und zu geben, um das richtige Friedenssymbol weltweit zu
+verbreiten und Aufklärung zu schaffen über die gefährliche und destruktive Verwendung
+der <Todesrune>, die in Erinnerung an die NAZI-Verbrechen kollektiv im Sinnen und
+Trachten der Menschen Charakterverlotterung, Ausartung und Unheil fördert.
+
+**Autokleber** **Bestellen gegen Vorauszahlung:** **E-Mail, WEB, Tel.:**
+**Grössen der Kleber:** **FIGU** info@figu.org
+120x120 mm = CHF 3.– Hinterschmidrüti 1225 www.figu.org
+250x250 mm = CHF 6.– 8495 Schmidrüti Tel. 052 385 13 10
+300X300 mm = CHF 12.– Schweiz Fax 052 385 42 89
+
+IMPRESSUM Für CHF/EURO 10.– in einem Couvert senden
+FIGU-SONDER-ZEITZEICHEN wir Dir/Ihnen 3 Stück farbige Friedenskleber
+Druck und Verlag: FIGU Wassermannzeit-Verlag, ------der Grösse 120x120 mm. = Am Auto aufkleben.
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+Redaktion: BEAM ‹Billy› Eduard Albert Meier,
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+Wird auch im Internetz veröffentlicht
+**Erscheint sporadisch auf der FIGU-Webseite**
+
+Postcheck-Konto: FIGU Freie Interessengemeinschaft,
+8495 Schmidrüti, PC 80-13703-3
+IBAN: CH06 0900 0000 8001 3703 3 Geisteslehre Friedenssymbol
+**E-Brief: info@figu.org**
+**Internetz: www.figu.org** **Frieden**
+**FIGU-Shop: http://shop.figu.org**
+
+Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten
+
+**© FIGU 2024** Tritt dazu macht, um dann nachfolgend in Friedsamkeit jeden weiteren Schritt
+Einige Rechte vorbehalten. bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun. SSSC, 10. September 2018, 16.43 h, Billy
+Dieses Werk ist, wo nicht anders
+angegeben, lizenziert unter :
+www.figu.org/licenses/by-ncnd/2.5/ch/
+
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung des Urhebers ausdrücklich erlaubt.**
+Erschienen im Wassermannzeit-Verlag: FIGU, ‹Freie Interessengemeinschaft Universell›, Semjase-Silver-Star-Center,
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+

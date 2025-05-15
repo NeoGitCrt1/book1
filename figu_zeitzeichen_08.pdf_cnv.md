@@ -1,0 +1,653 @@
+# FIGU– ZEITZEICHEN
+## Aktuelles • Einsichten • Erkenntnisse
+
+**Erscheinungsweise:** **Internetz: http://www.figu.org** **1. Jahrgang**
+**Sporadisch** **E-Brief: info@figu.org** **Nr. 8, September 2015**
+
+Gewichtige Aussagen, Ausführungen, Betrachtungen, Klarlegungen und Wahrheiten rund um die mies geführten
+Politikmachenschaften, die EU-Diktatur und den EURO aus Sicht aufmerksamer Beobachter und klardenkender beurteilender Sachkundiger. Unpolitisch dargebracht und offen ausgesprochen gemäss dem ‹Artikel der
+Menschenrechte› durch die Vereinten Nationen, wie dieser am 10. Dezember 1948 verkundet wurde: ̈
+
+**Artikel 19: Meinungs- und Informationsfreiheit**
+Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit, Meinungen unangefochten anzuhängen und Informationen und Ideen mit allen Verständigungsmitteln ohne Rucksicht auf̈
+Grenzen zu suchen, zu empfangen und zu verbreiten.
+
+### Am Rand eines Atomkrieges, den ihr nicht sehen wollt
+_27. Juli 2015, Non Profit News Redaktion_
+
+**Am 6. Juli 2015 veröffentlichte Joe Clifford im Magazin ‹Information Clearing House› einen Artikel, der von**
+**der LUFTPOST ins Deutsche übersetzt worden ist. Im Folgenden drucken wir die deutsche Übersetzung nach.**
+
+#### Joe Clifford – Am Rand eines Atomkrieges, den ihr nicht sehen wollt
+Die Gefahr eines Atomkriegs ist erschreckend real geworden, wir sehen sie aber nicht, weil die MainstreamMedien sie absichtlich vertuschen. Erst kürzlich hat eine wichtige Persönlichkeit vor einer drohenden atomaren
+Konfrontation gewarnt, aber auch darüber wurde nichts berichtet. Michael Gorbatschow, der ehemalige russische
+Staatspräsident, der einst auch ein Liebling der US-Medien war, warnte mit folgenden Worten eindringlich vor
+der Verschärfung der Krise zwischen Russland und den USA: «Wir werden das kommende Jahr nicht überleben,
+wenn in dieser überhitzten Situation jemand die Nerven verliert. Das sage ich nicht nur so daher, ich mache mir
+wirklich grosse Sorgen.» Das ist eine sehr ernst zu nehmende, furchterregende Einschätzung von einem, der es
+wissen muss. Gorbatschow bezog sich auf die zunehmend aggressiver werdende Rhetorik und die provozierenden
+militärischen Aktivitäten der USA vor der Türschwelle Russlands. Weil die Konzernmedien nie objektiv über
+wichtige Ereignisse in Russland berichten, erfuhr die US-Bevölkerung auch nichts von dieser Warnung vor
+einem drohenden Atomkrieg.
+Die Neokonservativen und ihre Lohnsklaven in den Konzernmedien haben hart gearbeitet, um einen Keil zwischen
+Russland und das übrige Europa zu treiben und die Russen zu isolieren; mit vielfältigen Methoden haben sie
+Russland als Aggressor abgestempelt, obwohl in Wirklichkeit Washington der Aggressor ist und mit seinen
+provokanten Militäraktionen die ganze Welt gefährdet. Genannt seien nur einige der US-Provokationen: Die
+US-Regierung hat die NATO um fast alle westlichen Anliegerstaaten Russlands erweitert, obwohl sie vorher
+zugesichert hat, das nicht zu tun. Sie führt nur eine Meile von der russischen Grenze entfernt
+Militärmanöver durch. Sie hat 5 Milliarden Dollar ausgegeben, um in der Ukraine Unruhe
+zu stiften, und einen Staatsstreich gegen einen demokratisch gewählten Präsidenten inszeniert,
+um ihn durch eine US-Marionette ersetzen zu können. Sie hat fünf atomwaffenfähige
+Bomber nach Europa verlegt – darunter zwei ihrer modernsten vom Typ B-2 – und schliesslich
+will sie schwere Waffen im Baltikum einlagern – direkt an der Grenze Russlands.
+
+
+-----
+
+Man fragt sich, ob die Geschichte sich gerade wiederholt. Vor 55 Jahren standen die USA und Russland schon
+einmal am Rand eines Atomkrieges, als die USA entdeckten, dass Russland Atomraketen auf Kuba stationiert
+hatte. Nur wenige US-Amerikaner wissen, warum Russland das tat, weil die Konzernmedien auch damals schon
+nur als Sprachrohr der US-Regierung fungierten und die US-Öffentlichkeit nicht korrekt informierten; sie
+haben ja auch die Lügen über die Massenvernichtungswaffen (Saddam Husseins) verbreitet, und damit den
+Überfall auf den Irak ermöglicht, der einer Million Menschen den Tod brachte.
+Wie viele Amerikaner wissen, dass die Kubaner die Russen gebeten hatten, Raketen auf ihrer Insel zu stationieren,
+weil sie mit einer US-Invasion zum Sturz der Castro-Regierung rechnen mussten? 1961 war in der Schweinebucht
+bereits ein Invasionsversuch gescheitert, und um sich vor weiteren Invasionen zu schützen, hatte die winzige
+kubanische Nation russische Hilfe erbeten. Nur wenige US-Amerikaner wissen auch, dass die USA schon vorher
+Atomraketen in Italien und in der Türkei stationiert hatten, die Russland zu Recht sehr beunruhigten.
+Russland reagierte mit der heimlichen Stationierung von Atomraketen auf Kuba – nicht nur, um die Insel zu
+schützen, sondern vor allem, um die US-Raketen in der Türkei und in Italien zu neutralisieren. Ein gut gehütetes
+Geheimnis ist auch, dass Kennedys Berater ihm rieten, in Kuba einzufallen und die russischen Raketen einzukassieren, was natürlich einen atomaren Schlagabtausch ausgelöst hätte. Es war Chruschtschow, der Kennedy
+in einer Geheimbotschaft den Abzug seiner Raketen aus Kuba anbot, wenn die USA im Gegenzug ihre Raketen
+aus Italien und der Türkei abziehen und auf eine Invasion Kubas verzichten würden. Kennedy hat den Vorschlag
+Chruschtschows akzeptiert, obwohl seine ‹intellektuellen Berater› auch weiterhin auf einer Invasion Kubas
+bestanden. In den Medien wurde das als Sieg der USA und besonders Kennedys dargestellt, der die Russen zum
+Nachgeben gezwungen und einen Atomkrieg verhindert habe. Kennedy hat sicher das Verdienst, nicht auf seine
+Berater gehört zu haben, aber es war Chruschtschow, der mit seinem Kompromissvorschlag einen Atomkrieg
+verhindert hat.
+Diese historische Lektion bringt uns zurück in die Gegenwart. Die Situation ist heute genau umgekehrt: Weil
+die US-Regierung Waffen und Truppen entlang der russischen Grenze stationieren will, fühlt sich Russland
+ebenso bedroht wie die USA 1962, als nur 90 Meilen von den USA entfernt russische Atomraketen aufgestellt
+wurden. Die Russen werden sich das nicht gefallen lassen und notfalls kämpfen; die neokonservativen Kriegs treiber in den USA scheint selbst ein immer wahrscheinlicher werdender Atomkrieg zwischen beiden Staaten
+nicht von ihrem Vorhaben abbringen zu können. Eigentlich müsste es genügen, den US-Amerikanern in Erinnerung zu rufen, dass auch Russland atomar bewaffnet und nicht so leicht zu überwinden ist wie Grenada,
+Panama, Libyen, der Jemen oder der Irak. Weil Russland ‹von ganz anderem Kaliber› ist, sollten wir US-Bürger
+uns nicht mehr von den Mainstream-Medien einlullen lassen, sondern alternative Quellen nutzen und endlich
+etwas tun, bevor wir alle tot und verglüht sind.
+
+**Originalartikel (englisch):**
+http://www.informationclearinghouse.info/article42305.htm
+
+From: Achim Wolf
+To: redaktion@pressejournalismus.com
+Date: 11:31:27, 07.27.2015
+Subject: Aw: Re: Kopierecht-Anfrage
+Lieber Herr Kreisel,
+dürfte ich auch den Artikel bei http://pressejournalismus.com/2015/07/am-rand-eines-atomkrieges-den-ihrnicht-sehen-wollt/ für eine Wiederveröffentlichung verwenden – wie immer? :-)
+Viele Grüsse, Achim Wolf
+
+Gesendet: Montag, 27. Juli 2015 um 11:31 Uhr
+Von: "Roland Kreisel" redaktion@pressejournalismus.com
+An: achiwo@gmx.net
+Betreff: Re: Aw: Re: Kopierecht-Anfrage
+Ja, klar …
+l.g.
+
+
+-----
+
+### Von den Verfassungen der Nationen zur EU-Diktatur: Was steckt hinter dem Virus der Zersetzung?
+_Henry Paul contra-magazin, Do, 19. März 2015, 00:00 UTC_
+**Kanzlerin Merkel betonte heute am 19. März 2015 im Bundestag die Erfolge der Demokratie in Europa und**
+**der EU. Falscher und blasphemischer kann man es nicht ausdrücken. Die Demokratie, die wir heute in fast**
+**allen EU-Staaten vorfinden, ist die Demokratie des Konsums, des Grosskapitals und der anglo-amerikanischen**
+**Bankenoligarchie. Die EU ist ein Musterbeispiel euphemistischer Verklitterung von Tatbeständen und Ver-**
+**leugnung politischen Versagens.**
+Nur zwei Nationen wurden zu der EU befragt und diese haben sich vehement gegen das Konstrukt ausgesprochen,
+worauf kein weiteres Land mehr befragt wurde. Die herrschenden Politiker haben den Volkswillen schnöde
+**missachtet und vorsätzlich über die Köpfe der europäischen Bürger hinweg eine Politik der Fremdbestimmung**
+**vereinbart. Nicht freiwillig, sondern auf erpresserischem Weg der Siegermächte. Die Nationen USA, Gross -**
+britannien und Frankreich haben sich politisch an bis heute 28 Nationen versündigt, führen einen unsinnigen
+Vereinigungsfeldzug gegen jede Vernunft, gegen jedes Gebot der Fairness und Demokratie, sowie gegen jeden
+Artikel des Völkerrechts.
+
+Denn: Bürger aus diesen Nationen viele Jahre nach dem Krieg und viele Jahre nach dem vermeintlichen Sieg über
+die vermeintlichen Kriegsschuldigen durch die Siegermächte zu okkupieren, ihnen undemokratische Regeln
+aufzudrücken, um sie zu usurpieren und fremd zu bestimmen ist Völkerrechtsbruch! Ganz zu schweigen von
+den grundgesetzlichen Unterschiebungen des mehrfach klammheimlich, ohne parlamentarische Befassung
+geänderten Art. 23 GG in Deutschland, wo mit einzelnen Federstrichen ganze Völker hin- und hergeschoben
+wurden zur Erbauung der westlichen Siegermächte.
+
+Daraus ist ein vereintes Europa geworden? Nein, weder vereint, noch vereinigt. Zusammengebastelt durch Willkür und Okkupationsmechanismen der USA, Englands und Frankreichs, um noch im jahrealten Nachhinein
+Deutschland auf ewig bestrafen und gefangenhalten zu können. Mit dem falschen Rubrum einer grossartigen
+europaweiten Demokratie wurden die Völker der Mitgliedsländer in ein völkerrechtlich mehr als dubioses
+Konstrukt des ‹institutionellen Rahmens› gezwängt, der weder eine Nation noch ein Staatenbund oder Bundesstaat, noch Kooperation ist. Die EU ist ein Nichts. Die EU ist ein Verbrechen an den Bürgern der Mitgliedsländer.
+**Die politische Lüge, die rechtliche Lüge, die soziale Lüge und die menschenrechtliche Lüge haben Vorrang vor**
+**einer impliziten Gemeinschaft, die sich menschlich und sozial explizit darin einig ist, nie wieder Krieg führen**
+**und friedlich miteinander leben zu wollen.**
+
+Aber eben ohne den Konstrukt der Siegermächte unter dem Mantel einer vermeintlichen Demokratie, die noch
+nicht einmal im Ansatz erkennbar ist. Alles Geschwafel von Vertiefung oder Verbesserung echter demokratischer
+Mechanismen ist blanke Lüge und Hohn dazu. Die Bürger der Nationalstaaten kennen ihre Rechte aus ihren
+Demokratien, auch wenn ein paar der Nationen noch bis 1990 unter der Ägide der Nachkriegsorganisation der
+Vorkriegsautokratien oder des Warschauer Paktes oder der NATO standen. Denn was den einen die Mitgliedschaft in deren Pakt war, war den anderen die Mitgliedschaft in deren Pakt, der zu allem Übel bis heute existiert,
+obwohl keine Notwendigkeit mehr dafür besteht. Und gerade da stinkt es zum Himmel! Der immer wieder
+vorgebrachte Unterschied zwischen dem einen bösen Lager und dem anderen guten Lager ist schlichtweg
+Unsinn. Nur weil man in dem guten Lager mehr Sorten Leberwurst und Obst kaufen konnte ist dieses Lager
+deswegen noch lange keine Demokratie und weil in dem angeblich bösen Lager eine politisch andere Partei vorherrschte, ist dort deswegen nicht automatisch eine Diktatur. Der Beweis dafür ist die EU selbst! Der Markt und
+**der Kapitalismus regieren in der EU, aber sie ist eine waschechte Diktatur und keineswegs Demokratie.**
+
+Die Verlogenheit, mit der den NATO-Mitgliedern bei Beginn der EU eine verbesserte Politik durch eine ver besserte Demokratie und mehr Schutz vor dem Feind (wer eigentlich?) angedient wurde, war nichts weiter als
+verwerfliche Werbestrategie der anglo-amerikanischen Vorherrschaft unter Vorspiegelung falscher Tatsachen.
+**Weder gab es einen Feind Kommunismus, noch gab es einen Feind Russland oder es gab auch keine feindliche**
+**hegemoniale russische Diktatur. Diese Hirngespinste und Lügenkonstrukte sind die Rückseite der falschen**
+Hegemonie der USA, unter der wir alle heute stehen. Wir haben keine Demokratie in der EU!
+
+Weder gibt es eine demokratische Verfassung, noch gibt es eine Gewaltenteilung – die beiden wichtigsten
+Grundbedingungen einer Demokratie. Es gibt auch kein Parlament, das einem solchen zur Ehre gereichen
+
+
+-----
+
+würde. Das bestehende Parlament leidet unter vielen falschen Aspekten: schiefe und ungerechte Sitzverteilung,
+vordemokratisches Wahlsystem, mangelnde Autonomie, fehlende Selbstbestimmung und vor allem Herrschen
+durch Kontrolle einer Regierung – die vornehmste Aufgabe – fehlen. All das hat das EU-Parlament nicht. Also
+ist es kein demokratisches Parlament.
+
+Die EU hat auch keine Regierung. Regiert wird auf verschiedenen, variablen und je nach politischer Brisanz
+ausgeguckten ungeschriebenen Regeln. Mal regiert die Kommission, eine 28-köpfige Zusammensetzung jeweils
+eines staatlichen Vertreters eines Mitgliedstaates, **weder gewählt noch legitimiert.** Mal regiert der Rat, der
+Zusammenschluss der nationalen Regierungschefs. Mal regiert der Ministerrat, die Zusammenkunft der Finanzminister oder Delegierten eines Staates. Mal regiert die USA, der IWF oder der Markt der Finanzoligarchen.
+Wie zum Beispiel im Fall der nun schon jahrelang anhaltenden Rettungsmassnahmen hochverschuldeter
+Nationen in der EU, die bei genauem Hinsehen nur die Rettung von korrupt agierenden Banken ist.
+
+Das soll demokratisch sein? Das ist ein kriminelles, feudales Verhalten einer politischen Oberkaste, die allesamt
+**durch die Finanzmacht der anglo-amerikanischen Bankenoligarchen korrumpiert sind. Das muss man nicht**
+beweisen, das ist offensichtlich aufgrund der Handlungen, die seit Jahren begangen werden und an denen man
+sie messen kann. Dieses biblische Zitat hat auch heute noch volle Gültigkeit.
+
+Die völkerrechtswidrigen Vergemeinschaftung aller Schulden, die völkerrechtswidrige Bankenunion, die
+völker rechtswidrige Finanzierung durch einen privaten, steuerbefreiten, immunen und sakrosankten ESM –
+das alles sind undemokratische, völkerrechtswidrige Mechanismen, die von der Finanzmacht der Banken oligarchie in die EU hineingedrückt wurden und die Bürger zu unmündigen Zahl-Sklaven ernannt haben. Alle
+**Risiken der Verschuldung liegen heute bei den Steuerzahlern und wenn der deutsche Finanzminister sein Volk**
+informiert, dass nun durch Gesetz die Hierarchie der Schuldenzahler geregelt sei, hat er einfach den wichtigsten
+Satz nicht gesagt: Der Steuerzahler zahlt in jedem Fall bis zu 92 Prozent aller Schulden. Das war und ist der
+**wahre Zweck der EU: Alle europäischen Bürger unter die Zahlungsverpflichtung der US-Finanzoligarchen zu**
+**zwingen. Ein kriminelles, undemokratisches, feudales Transmissionssystem, um die Geldströme der EU-Bürger**
+in die Taschen der reichen Oligarchen und Bankherren zu leiten bei gleichzeitiger Knebelung durch multilaterale
+Geheimgesetze der Abhängigkeiten.
+
+
+Die EU hat zwei Regelwerke, die EUV und den AEUV – ‹die Verträge› genannt. Bei genauem Studium aber sind
+beide Vertragswerke widerrechtlich in ihrer Aussage zueinander, widerrechtlich gegenüber den Verfassungen
+der Nationalstaaten und lassen für fast jeden Anwendungsfall breite Tore der Manipulation durch den Rat, die
+Kommission oder andere Paragraphen offen. Das ist weder ein Gesetzbuch, noch ein konsistentes Vertragswerk
+oder eine völkerrechtliche Staaten-Kooperation, der man vertrauen könnte oder die man kontrollieren bzw.
+überwachen kann. Die EU hat sich selbst erledigt. Es ist eine Frage der nächsten Jahre, wann die Bürger ein **sehen, dass sie selbst das Heft in die Hand nehmen, um diese Diktatur zu stürzen und den Parlamenten der**
+Nationalstaaten wieder das Primat einräumen müssen.
+
+Wie in den DWN beschrieben: Bürger und Völker gehorchen nicht mehr und lassen sich die Spielregeln nicht
+mehr von jenen oktroyieren, die sich selbst durch vielfachen Rechtsbruch diskreditiert haben. Die rücksichtslose
+Interessen-Politik ist an ihre Grenzen gestossen. Die politische PR verfängt nicht mehr. Die Inszenierung des
+Machbaren ist zur Farce geworden: **Zu oft haben die Untertanen erlebt, dass die schönen Märchen nichts**
+**anderes waren als eine Ouvertüre zu Krieg, Leid und Ausbeutung.**
+Der Kaiser ist nackt. Die EU ist in allen Belangen dysfunktional. Sie erfüllt keine ihrer Versprechen. Sie regelt
+selbst das, was ihr verboten wurde. Sie bricht die Verträge fortlaufend und anhaltend. Die Indikatoren des
+Erfolgs sind nicht nur nicht da, sondern sogar allesamt negativ. Die Parameter staatlicher Erfolgs-Zumessung
+sind verheerend schlecht, die Verschuldung ist angestiegen statt gesunken. Die politische Willensbildung ist auf
+dem Tiefpunkt angekommen, bewegt sich nur noch im Vasallentum US-amerikanischer Sanktionspolitik gegen
+den Staat Russland und Deutschland. Die Vorhaben der EU sind kontraproduktiv und kontraindikativ. Zur
+Rechtslage, zur wirtschaftlichen Situation, zu den Menschenrechten, denen man sich verpflichtet hatte, zu den
+demokratischen Versprechungen, die man laufend abgibt. Die EU ist eine tiefe, stinkende, undurchsichtige
+Jauchegrube der politischen Wahr- und Klarheit.
+
+Die EU stinkt wie Jauchegruben eben stinken, faulig, sauer, vergoren, pestilenzartig, seuchenbehaftet und ekelerregend. Diese Jauchegrube mit undurchdringlich giftigem Bodensatz gehört schnellstens beseitigt. Die Ver
+
+-----
+
+fechter, EU-Politiker, Protagonisten und Betreiber dieser Jauchegrube gehören behördlich, amtlich und granatig
+bestraft wegen Umkehrung ihrer Versprechen, wegen korrupter Handlungen im Amt, wegen Veruntreuung
+**von Bürgervermögen und vorsätzlicher Kriegstreiberei gegen unschuldige Staaten.**
+
+Wenn wir uns in Europa darauf besinnen, was wir uns alle nach dem Zusammenbruch 1945 geschworen haben
+und wofür wir uns jahrelang aufrecht stehend gequält haben, dann ist uns Bürgern nicht mehr zuzumuten, mit
+diesen Volksverhetzern, Volksvergiftern, Lügnern und Polit-Hasardeuren in einem völkerrechtlich kriminellen
+Mechanismus politisch zu arbeiten. Wir dürfen diese fortwährenden Schandtaten der illegitimen und illegalen
+EU nicht mehr tolerieren. Denn die EU, so wie sie jetzt angelegt ist, so wie sie jetzt arbeitet und wie sie jetzt
+Politik für Europa macht, muss abgelehnt werden. Weil der europäische Frieden in akuter Gefahr ist und wir
+durch die dysfunktionale, vordemokratische Arbeit der EU insgesamt auf dem Weg in einen totalitären Zwangsvereinigungs-Pseudostaat abgedrängt werden. Die US-amerikanische aufoktroyierte Hasspolitik gegen Russ land wird in einen kontinentalen Atomkrieg gegen Europa enden. Die Europäer, die Nationalstaaten, die Völker
+Europas haben das nicht verdient. Auch wenn sie nachlässig, faul und unengagiert den süssen und falschen
+Verheissungen der USA willig gefolgt waren, haben sie ein Recht auf echte, nationale Demokratien. Haben sie
+ein Recht auf tatsächlichen Frieden statt auf Friedens-Kriege im Namen der NATO und allein für die Hegemonialmacht USA zur Okkupation weiterer Staaten.
+
+Nur wenn die EU mitsamt dem Fehlkonstrukt der Euro-Währung komplett aufgelöst wird; nur wenn alle
+europäischen Staaten aus der NATO austreten dürfen; nur wenn alle jetzigen EU-Staaten sich zur echten,
+tatsächlichen Friedenspflicht bekennen und einen völkerrechtlichen Staatenverbund der Neutralität begründen,
+die die Souveränität aller Nationen bestätigt, wird Europa erstens frei sein und zweitens sich finden können zu
+einer Gemeinschaft ohne Feudalherrschaft obendrüber. Dann können und müssen die Völker Europas befragt
+werden, wie sie sich das Europa der Zukunft vorstellen und wie sie miteinander politisch agieren wollen. Alles
+davor bringt nur mehr Totalitarismus.
+
+Sie haben eine Nachricht erhalten von:
+Name: Achim Wolf
+E-mail:
+Seite: DE
+URI: http://de.sott.net/page/1-Uber-Sott-net
+IP: 212.65.1.102
+Nachricht:
+
+Sehr geehrte Damen und Herren,
+hiermit möchte ich Sie freundliche um die Erlaubnis bitten, Ihren Artikel http://de.sott.net/article/16696-Vonden-Verfassungen-der-Nationen-zur-EU-Diktatur-Was-steckt-hinter-dem-Virus-der-Zersetzung in einem
+Organ des Vereins FIGU wiederveröffentlichen zu dürfen. Die FIGU betreibt seit langem Öffentlichkeitsarbeit
+in Sachen EU und möchte die Menschen über die schlimmen Folgen der EU-Diktatur aufklären, siehe z.B.:
+http://www.figu.org/ch/verein/periodika/sonder-bulletin/2014/nr-80/eu-standpunkte?page=0,0
+http://www.figu.org/ch/verein/periodika/offene-briefe/2014/nr-13/diktatur
+http://www.figu.org/ch/verein/periodika/sonder-bulletin/2014/nr-78/eu-sklaverei-ohne-gegenwehr
+Mit freundlichen Grüssen
+Achim Wolf
+
+Gesendet: Montag, 27. Juli 2015 um 18:02 Uhr
+Von: Jessyca <jessyca@sott.net>
+An: Achim Wolf
+Betreff: Re: [SOTT] Eine neue Nachricht wurde gesendet von: Achim Wolf
+Am 27.07.2015 um 15:35 schrieb sott@sott.net:
+
+Sehr geehrter Herr Wolf,
+gerne können Sie diesen und andere Artikel von unserer Seite wiederveröffentlichen.
+Liebe Grüsse vom Sott Team
+
+
+-----
+
+### Holger Strohm: «Der Euro ist eine Missgeburt.»
+Holger Strohm ist den Leserinnen und Lesern der FIGU aus dem ‹Zeitzeichen› Nr. 1 bekannt. Er hat sich als
+freier Journalist und unabhängiger Autor und Umweltschützer auch über den Euro und die EU-Diktatur
+Gedanken gemacht. Die Betreiber der Internetz-Seite ‹www.Quer-Denken.TV – Das Portal der Neuen Zeit mit
+Michael Friedrich Vogt› haben am 14. Juli 2015 das folgende Interview mit ihm geführt.
+Einführend noch ein Auszug aus dem FIGU-Sonder-Bulletin Nr. 89 vom Mai 2015 aus der Antwort auf eine
+Leserfrage.
+
+Billy: «Von einer staatlichen Diktatur kann in der Schweiz absolut keine Rede sein, wenn eben von einem
+gewissen – erträglichen – parteilich-diktatorischen Wesen abgesehen wird, durch das die Parteiangehörigen und
+das Volk manchmal in bezug auf Stimmabgaben ungut beeinflusst werden, wenn falsche Beschlüsse gefasst
+werden. Doch das trägt der Freiheit und dem Frieden der Schweiz ebenso absolut nichts ab wie auch nicht der
+Sicherheit in bezug auf Land und Bevölkerung, denn letztendlich siegen immer noch Verstand und Vernunft,
+folglich kein staatliches Desaster, keine Unfreiheit, kein Unfrieden und keine Unsicherheit zustande kommen.
+Dies ist jedenfalls bisher so gewesen, ist auch gegenwärtig der Fall, wobei zu hoffen ist, dass das auch weiterhin
+so bleiben wird. Ändern könnte sich das nur, wenn all jene Heimatverräter und Unvernünftigen wider alle
+Vernunft siegen würden, die in der Schweiz nach einem Beitritt in die EU-Diktatur drängen, weil sie dumm und
+wirklichkeitsfremd und sich nicht bewusst sind, dass in dieser Diktatur nur deren Mächtige etwas gelten,
+während diesen das Volk, dessen Rechte und das Wohlergehen absolut egal sind. Und dass der wirkliche Frieden
+in der EU-Diktatur auf Messers Schneide steht, weil nur das Geltung hat, was die EU diktiert und anstrebt,
+darüber denken die dummen EU-Schreienden nicht nach, wie auch nicht darüber, dass in der EU laufend die
+effective Freiheit und der Frieden durch Zwangsregeln und Zwangsgesetze ersetzt werden, folglich die EU-Bürger
+so unfrei sind wie in jeder anderen Diktatur. Und welche Gewalt und welcher Zwang in der EU-Diktatur vorherrschen, das beweisen einerseits die Zwänge, die der Schweiz auferlegt werden in bezug auf die bilateralen
+Machenschaften, wie unter anderem die Masseneinwanderung, wie anderseits die kriegshetzerischen Ausartungen, Massnahmen und Sanktionen gegen Russland sowie das Sich-einverleiben-Wollen der Ukraine in die
+gierigen EU-Diktatur-Klauen, und zwar mit aller Gewalt und mit bösem Zwang. Das sind effective Tatsachen,
+die ich nenne und die nur von Dummen und machtgierigen Staatsgewaltigen und all deren Anhängern rund
+um sie und aus dem unbedarften Volk bestritten werden können, um damit das logisch denkende Volk hinters
+Licht zu führen.»
+Achim Wolf, Deutschland
+
+
+### Kann der Euro überhaupt funktionieren?
+**14. Juli 2015 (von Niki Vogt) Eines hat das ganze Grexit-Theater bewirkt: Man redet endlich mal über die heilige**
+Kuh ‹Euro›. Als Professor Hankel (Gott habe ihn selig) damals zur Euro-Einführung vor der Gemeinschaftswährung warnte, und dabei insbesondere auf Griechenland hinwies, wurde er mit Häme und Geifer überhäuft.
+Er gab in den Medien allenfalls den Buhmann ab. Angesichts des Desasters, in dem sich die EU und der Euro
+befinden, wagen es heute doch ein paar Sechzehnender aus der Wirtschaft und einige Mainstreammedien die
+Frage zu stellen: Hatte die kühne Idee der EU samt Gemeinschaftswährung Euro nicht vielleicht einen schwerwiegenden Geburtsfehler – und hätte man das nicht wissen müssen? Auch Holger Strohm gehörte zu den frühen
+Warnern. Ich konnte ihn für ein Interview gewinnen.
+
+**Niki Vogt: Kann der Euro überhaupt funktionieren?**
+Nein – und das wissen wir seit langem. Bereits am 20. November 1865 wurde in Frankreich die erste Währungsunion mit Frankreich, Italien, Belgien und der Schweiz mit dem Versprechen gegründet: «Friede, Freude,
+Eierkuchen.» Das Paradies komme über Europa und besonders die Schwachen würden davon profitieren. Da
+konnten auch Griechenland und andere Länder wie Serbien, Spanien usw. nicht widerstehen. Schon damals
+waren die Griechen hoffnungslos verschuldet mit Heerscharen teurer Beamter. Es folgten Umschuldungen,
+Zinsnachlass, neue Kredite und Zahlungsausfall. Dann druckten Griechenland und Italien unbegrenzt Papiergeld, bis 1908 der Grexit kam und die Lateinische Münzunion 1914 endgültig zusammenbrach.
+Seitdem ist Griechenland noch über ein dutzendmal Pleite gegangen.
+Der Euro ist eine Missgeburt. Er kann nicht funktionieren, da die mentalen, kulturellen, klimatischen und vor
+allem wirtschaftlichen Gegebenheiten in den Mitgliedsstaaten zu unterschiedlich sind. Über den Euro wollte
+
+
+-----
+
+man den europäischen Nationalstaat erzwingen. Jetzt will man wirtschaftliche und soziale Aspekte in allen
+Ländern harmonisieren. Doch auch das würde die deutsche Wirtschaft nur noch stärker machen. Sie ist einfach
+konkurrenzlos, durch ihre gut ausgebildeten Fachkräfte und deren Bereitschaft zum Gehorsam und zum Verzicht.
+Hinzu kommen menschliche Schwächen. Was nützen die schönsten Gesetze und Verordnungen, wenn sie nicht
+eingehalten werden. Nicht nur die Griechen haben sich in den Euro geschmuggelt, auch andere Länder. Denn
+dort gibt es Geld umsonst. Die dummen Deutschen zahlen. Tsipras: «Merkel kann sagen, was sie will. Am Ende
+muss sie zahlen.» Europa ist längst eine Transferunion! Faktum ist: Merkel oder die Deutschen haben nichts zu
+sagen, sie haben nur zu zahlen! Wie sagte doch dereinst der französische Ministerpräsident Mitterand, das seien
+nicht diskutierbare Kriegsfolgekosten – Reparationen.
+
+«Wir wollen Griechenland so schnell wie möglich in die Währungsunion.» _Gerhard Schröder_
+
+«Wenn sich die Staaten an das Recht gehalten hätten, hätten wir keine Schuldenkrise.»
+_Paul Kirchhof (Verfassungsrichter)_
+
+**Wer hat denn was zu sagen?**
+Das ist eindeutig Obama, der Merkel wiederholt klar machte: «Ich bestimme. Ihr habt zu gehorchen!» Obama
+hat die Euro-Mitgliedschaft Griechenlands zu einer Frage der nationalen Sicherheit erklärt und duldet keinen
+Widerspruch. Griechenland erfüllt neben Grossbritannien als einziges Land die Nato-Vorgaben zwei Prozent
+der Wirtschaftsleistung in die Rüstung zu stecken.
+Zudem will Obama nicht, dass Griechenland in den Armen Putins landet. Hinter Tsipras stehen George Soros
+und andere Oligarchen, die ihn beraten und vorhaben, bei Ausfallkrediten Milliarden vor internationalen
+Schiedsgerichten einzuklagen und die auf die grossen Gas- und Ölvorkommen Griechenlands scharf sind.
+Hinter beiden Verhandlungsseiten stehen Mafia-Oligarchen mit ihren Geschäftsinteressen und ihrer kaum vorstellbaren Macht. In diesem Spiel sind Merkel und Tsipras nur Marionetten beim Billionendeal. Das Spektakel
+der Politik und Medien dient nur um von diesen Interessen abzulenken. Wir wurden von Anfang an im grossen
+Stil belogen und betrogen. Denn beim Euro geht es um den grössten Raubzug in der menschlichen Geschichte
+und der politischen Frage, wie man Länder effektiv unterjochen kann.
+
+«Wir leben in einer Zeit, in der eine parasitäre Oberschicht das Volk mit Hilfe der Politik ausraubt.»
+_Holger Strohm_
+
+
+-----
+
+**Das klingt nach Verschwörungstheorien!**
+Ja, durchaus. Denn die EU ist eine Verschwörung! Ursprünglich stammte die Idee von Adolf Hitler, dem klar
+war, dass man eine Diktatur nicht für immer aufrecht halten kann. Daher arbeiteten SS-Wissenschaftler ein
+Wirtschaftskonzept einer Europäischen Union und Grossen Freihandelszone vom Atlantik bis zum Pazifik aus,
+indem Menschen, Firmen und Staaten durch Sachzwänge so verknüpft werden, dass sie freiwillig gehorchen.
+Der für Hitler zuständige Fachmann hiess Walter Hallstein, der auch als Diener der IG-Farben bezeichnet
+wurde, die die KZs bauten und betrieben. Er wurde der erste Präsident der Europäischen Kommission, der die
+Pläne Adolf Hitlers ‹Eins zu Eins› umsetzen durfte. Sein Nazi-Freund Carl F. Ophuels wurde seine ‹rechte Hand›
+in Brüssel und Sonderbotschafter. Als leitender Initiator unterschrieb er die Satzung des Europäischen Gerichtshofes, einem Gerichtshof, der bisher nicht ein einziges Mal gegen die Kommission entschieden hat.
+Ja, hinter der EU steckt eine Verschwörung. Es sind mächtige Mafia-Oligarchen und die gleichen Firmen, die
+uns in den Zweiten Weltkrieg trieben. Das behaupten nicht etwa ‹rechte Verschwörungstheoretiker›, sondern
+jüdische KZ-Überlebende in dem Buch ‹Die Nazi-Wurzeln der Brüsseler EU›. Sie zitieren umfangreich aus
+offiziellen Dokumenten des US-Kongresses und des Nürnberger Prozesses: «Fast ein dreiviertel Jahrhundert
+galten Adolf Hitler und sein Gefolge, die Nazis, als Urheber des Zweiten Weltkrieges. Die Fakten sehen allerdings
+anders aus. Der Zweite Weltkrieg war ein Eroberungskrieg, geführt vom Chemie-, Öl- und Pharmakartell,
+dessen Zielsetzung es war, mit patentierten chemischen Produkten einen Multi-Billionen-Dollar Weltmarkt zu
+kontrollieren.» Und genau diese gleichen multinationalen Kartelle stehen heute, zusammen mit Mafia-Oligarchen und Grossbetrügern, wieder hinter der EU. Die EU ist in meinen Augen eine kriminelle Vereinigung!
+
+«Globalisierung ist nur ein anderes Wort für US-Herrschaft.» _Henry Kissinger (ehem. US-Aussenminister)_
+
+**Das klingt ungeheuerlich. Haben Sie dafür Beweise?**
+Nun, neben dem obengenannten Buch gibt es weitere von z.B. Jürgen Roth oder arte, die mit vierteljährlicher
+Regelmässigkeit seit einem Dutzend Jahren darüber berichten, dass die EU Mafialand ist und von ihr regiert
+wird. Die EU und der Euro seien ein Kind der Mafia, die sie von den ökonomischen Fesseln befreit hätten. Sie
+bringen schockierende Fakten, die keinen wirklich interessieren. ‹Capital› behauptet in einer Titelgeschichte
+‹Mafiaparadies Deutschland›, dass die Bundesregierung jedes Jahr 40 Milliarden für die Mafia wäscht. Die Mafia
+kontrolliert 20 bis 30 Prozent des Bruttosozialproduktes der Welt, ihre Börsen und Politiker. Sie besitzt DAXund Medien-Konzerne, Immobilien-Giganten und unvorstellbare Reichtümer. Das ist Allgemeinwissen, das
+immer wieder von amerikanischen Präsidenten, Ministern, hohen Richtern und Polizeirepräsentanten bestätigt
+wird. Nur irgendwie wollen wir das alles nicht wissen.
+
+«Die EU ist ein Konstrukt der Mafia.» _Arte: Kampf gegen die Mafia_
+«In spätestens 20 Jahren gehört Europa zu 100 Prozent der Mafia.» _Arte: Kampf gegen die Mafia_
+
+Wahrscheinlich, weil wir uns hilflos fühlen. 80 Prozent der deutschen Bevölkerung war gegen den Euro. Politiker
+interessiert das nicht.
+Traurig aber wahr: Bei 150000 Befragten, quer durch die EU, ergab sich, dass 96 Prozent gegen TTIP und
+Schiedsgerichte sind. Weit über 90 Prozent wollen nicht für Griechenland zahlen. Doch ›in dieser unserer
+Demokratie› wie Helmut Kohl – alias Hennoch Kohn – sie nannte, interessiert das keinen. Er wusste, dass nur
+sieben Prozent der Deutschen für den Euro waren. Daher musste eine Abstimmung verhindert und der Euro
+mit Brachialgewalt durchgesetzt werden. Es folgte ein Umerziehungsprogramm über die Medien und eine einmalig erfolgreiche Zensur, die der ‹European› folgendermassen kritisierte: «Deutschlands dunkler Geist von
+Auschwitz wird benutzt, um jeden, der dagegen ist, dass die Deutsche Mark durch eine politische Währung
+ersetzt wird, einzuschüchtern und zu terrorisieren.» Deutschland wurde von Euro-Gegnern gesäubert. Arbeitsplatzverlust war dabei noch nicht einmal das Schlimmste. Zu dieser Zeit hatte ich ein halbes Dutzend kritische
+Bücher zur EU und dem Euro verfasst: EU – Euer Untergang; EU – Elend Umweltschutz usw. Sie durften nicht
+gedruckt werden. Es durfte nicht über die Mängel, sei es Euro oder Atomkraft, nachgedacht werden. Dabei hätte
+man grosse Schäden für Land und Volk vermeiden können. Aber einer korrupten Politik, die nach der Pfeife
+der Eine-Welt-Regierung pfeift, ist das Volk völlig egal.
+Ist es nicht seltsam, dass Politiker ganz offen das Volk belügen und uns dennoch von den Medien als Retter
+angepriesen werden?
+Die Geschichte des Euros ist eine Geschichte der Lügen, gebrochener Versprechen und Gesetze, eines unglaublichen Betruges und der totalen Inkompetenz. Obgleich uns von den deutschen Medien stets die Mär von Merkel
+
+
+-----
+
+als wackerer Kämpferin für deutsche Interessen eingetrichtert wurde, war genau das Gegenteil der Fall. Am 1.
+März 2010 versicherte Merkel: «Ein klares Nein. Es gibt keine Haushaltsmittel für Griechenland.» Am 16.
+September 2010 versprach sie: «Eine Verlängerung der jetzigen Rettungsschirme wird es mit Deutschland nicht
+geben.» Merkel tönte ‹Euro-Bonds› und ein drittes Hilfspaket für Griechenland kämen nur über ihre Leiche.
+Alle Treueschwüre wurden systematisch gebrochen – ohne verschärfte Auflagen oder Kontrollen. Und am Ende
+trug Deutschland stets die Hauptlast der Schulden.
+
+«Der Euro ist ein Segen für Deutschland.» _Angela Merkel_
+
+«Scheitert der Euro. scheitert Europa.» _Angela Merkel_
+
+**Was passiert nun am Ende der Lügen mit Griechenland?**
+Das Land wurde seit vielen Jahrhunderten von seinen Politdynastien und Mafia-Oligarchen ausgeraubt. Zudem
+ist es korrupt, überbürokratisiert und nichts funktioniert. Griechische Kaufleute haben seit Jahrtausenden den
+Ruf, gewiefte Händler und Halsabschneider zu sein. Rund 800 Milliarden Euro wurden aus dem Land geschafft
+und hauptsächlich in der Schweiz, Deutschland und England investiert. Die Löcher mussten dann vom euro päischen Steuerzahler gestopft werden. Wie Griechenlands ehemaliger Finanzminister Varoufakis kritisierte,
+seien Dutzende Milliarden in dunklen Kanälen versickert. Und nun wolle Merkel, dass der kleine Grieche zahlen
+soll. Sie solle sich das Geld von der Mafia zurückholen. Doch auch unter Tsipras hat sich im ersten Halbjahr
+nichts geändert. Mafia-Oligarchen und Super-Reiche wurden amnestiert und von der Steuer befreit. Die Reichen
+bleiben weiter reich. Ein aufgeblasener, korrupter, nicht funktionierender Beamtenapparat, der unfähig ist,
+Steuern einzutreiben, wird weiter fürstlich entlohnt und mit 55 Jahren pensioniert. Gegen Milliarden wurden
+Reformen versprochen und nicht umgesetzt. Nachdem Hunderte Milliarden Euro nach Griechenland flossen,
+ist die Staatsverschuldung, trotz Schuldenschnitt viel höher als zuvor. Nun verweigert sich das griechische Volk,
+in einem Anflug von Stolz und Nationalismus, irgendwelche Reformen zu erfüllen und verlangt gleichzeitig
+Geld von Deutschland – viel Geld.
+
+**Was halten Sie von Tsipras?**
+Er ist, seitdem er im Amt ist, dem EU-Apparat auf der Nase herumgetanzt und hat Medienstatus erlangt,
+während das verstaubte Brüssel alt aussah. Tsipras pokert bis zum Schluss. Obama sei gnädig, zahlen die
+Deutschen so oder so, das weiss er natürlich und so versucht er, den Preis möglichst hochzutreiben. Auf der
+anderen Seite wird nur geredet, aber nichts getan, um die Missstände zu beseitigen. Die EU-Granden drohten
+ständig mit Ultimaten, drohten den Griechen bei einem ‹Nein› sei endgültig Schluss usw. und krochen dann
+wieder zu neuen Verhandlungen, auf denen man sich festlegen wollte und täglich grüsst das Murmeltier. Aber
+da letztlich Obama entscheidet, sind die Griechen guter Dinge.
+
+**Aber das kann ja auch in die Hose gehen.**
+Ja, und dafür gibt es gleich mehrere Gründe. Zum einen will man den linken politischen Gegner nicht noch
+populärer machen. Zum Zweiten führt ein Nachgeben dazu, dass dann Italien, Spanien, Portugal und letztendlich auch Frankreich die gleichen Privilegien verlangen, der Reformkurs erlahmt und Deutschland bis zum
+Zusammenbruch zahlt. Als dritter Faktor kommt hinzu, dass viele Länder wie die Letten, Esten, Kroaten usw.
+harte Sanierungsmassnahmen über sich ergehen lassen mussten, und sie nicht einsehen, warum sie für Griechen
+zahlen müssen, die doppelt so viel verdienen wie sie. Und viertens bleibt Hoffnung, dass auch viele Bundestagsabgeordnete Merkel die Gefolgschaft verweigern. Denn langfristig werden sie mit dem sinkenden Schiff
+‹Merkeleuro› untergehen. Doch bisher haben alle deutschen Politiker stets die Vorgaben aus den USA umgesetzt
+und ihrem eigenen Volk geschadet.
+Weiterhin besteht die Gefahr, dass Griechenland ausser Kontrolle gerät. Sie können eine saubere Pleite hinlegen
+und sagen, «dann drucken wir Hunderte Milliarden Euro selbst», so Rachel Makri von Syrzia. Dann winken
+Hunderte Milliarden Verluste für den deutschen Steuerzahler. Deshalb stimmen die deutschen Medien den
+Bürger schon einmal auf ‹Solidarität› ein. Auf jeden Fall bringt die Euro-Idiotie uns dem Ziel der Neo-Liberalen
+näher: Der Zerschlagung des Sozialstaates.
+
+«Das europäische Sozialmodell ist bereits Vergangenheit.» _Mario Draghi (EZB-Präsident)_
+
+
+-----
+
+**Wie will die EU-Kommission denn das Euro-Problem lösen?**
+Alle Beteiligten sehen trotz grosser Meinungsunterschiede die Lösung in immer mehr Geld. Mehr Geld für
+Bankenrettungen, Schuldendienst, zur Konjunkturbelebung, für neue Infrastrukturen – ganz gleich ob sie was
+bewirken oder nicht. Denn durch sie werden einige einflussreiche Personen extrem reich. Auf der anderen Seite
+weiss jeder, wo letztlich ein unbegrenztes Wachstum endet – in der Vernichtung von Natur und Mensch.
+
+«Man kann die Schuldenkrise nicht mit noch mehr Schulden bekämpfen.»
+_Jens Weidmann (Bundesbank-Präsident)_
+
+Zum anderen gibt es Menschen, die uns Deutsche bewusst mit dieser Politik schaden wollen. Das können sich
+viele gar nicht vorstellen. Denken wir nur einmal an Herrn Schäuble, Gabriel und über Hundert Bundestagsabgeordnete, die ganz klar sagten, Griechenland kann die Schulden nie zurückzahlen, sie versprechen und
+unterschreiben alles und halten nichts. Weiteres in Griechenland investiertes Geld ist für den deutschen Steuer zahler verlorenes Geld. Da machen wir nicht mit. Und kaum kamen die Order von Obama sind sie sofort umgefallen. Da fragt man sich, wofür brauchen wir eigentlich diesen extrem teuren Verwaltungs- und Regierungsapparat, wenn er sowieso nichts zu sagen hat?
+
+**Nennen Sie doch mal weitere Beispiele, wie man versucht Deutschland zu schaden.**
+Insbesondere die Grünen und Linke, die mit der Antifa paktieren sind oft Deutschenhasser, die das Land zerstören wollen. Hierzu gibt es eine Fülle verschiedener Zitate, von denen ich hier einige nennen möchte: «Das
+Beste wäre für Europa, wenn Frankreich bis an die Elbe reicht und Polen direkt an Frankreich grenzt.» Sieglinde
+Fries, Bundestagsabgeordnete der Grünen vor dem Bundestag. Oder von Joschka Fischer: «Deutschland muss
+von aussen eingehegt und von Innen durch Zustrom heterogenisiert, quasi verdünnt werden.» Und «Deutschland ist ein Problem, weil die Deutschen fleissiger, disziplinierter und begabter als der Rest Europas sind. Das
+wird immer wieder zu Ungleichgewichten führen. Dem kann aber gegengesteuert werden, indem so viel Geld
+wie nur möglich aus Deutschland herausgeleitet wird. Es ist vollkommen egal wofür, es kann auch radikal
+verschwendet werden – Hauptsache, die Deutschen haben es nicht. Schon ist die Welt gerettet.» Dies sind nur
+wenige Zitate einer grossen Vielfalt. Wenn man die deutschen Medien und Politiker betrachtet, kommt man
+nicht umhin zu bemerken, dass deutschenfeindliche Bemerkungen an der Tagesordnung sind. Natürlich kann
+ich auch nicht sagen, ob Merkel die Meinung Fischers teilt. Aber eines wäre sicher, wenn sie dem amerikanischen
+Volk so gewaltige Verluste zufügen würde, müsste sie mit Todesstrafe wegen Hochverrats rechnen.
+
+**Was würden Sie den Schweizern raten, die ja bisher sehr vernünftig agiert haben?**
+Sie sollen bleiben wie sie sind. Es ist der letzte Flecken auf der Erde, wo es noch ein wenig gelebte Demokratie
+und Mitbestimmung gibt. Widerstehen sie dem Druck der EU, denn sonst werden sie Beute amerikanischer
+Oligarchen und müssen die Rechnungen bezahlen. Die EU hat bisher kaum Probleme gelöst, sondern nur viele
+geschaffen. Sie ist Symbol von hohen Schulden, hoher Arbeitslosigkeit, Strömen von Wirtschafts- und Armutsmigranten, ein bürokratisches Monster, das sich immer mehr in das Leben jedes Einzelnen mischt, verschwende risch ist, Kriege in Jugoslawien, in der Ukraine und in Nordafrika auslöste. Eine ominöse, nicht zu kontrollierende
+Macht ohne demokratische Legitimationen, aber dafür mit umfassender Amnestie für alle begangenen Ver brechen. Die EU und der Euro werden auf Grund ihrer Konstruktionsfehler Europa zerreissen, wenn nicht
+denkende Menschen den Grund der Krise beseitigen. Die liberale Eine-Welt-Regierung, die deutsche Exportindustrie, Mafia-Oligarchen und Grossbetrüger sind die Profiteure der EU – der Rest der Menschen sind Opfer.
+Um so länger das Euro-Abenteuer andauert, um so schlimmer wird der Zusammenbruch. Die Schweizer waren
+bisher klug, hoffentlich ergeht es ihnen nicht wie den Deutschen, denen man alles raubt.
+
+«Wir brauchen keine Europäische Union … Die Union bringt viele Probleme und wenig Nutzen.»
+_Henning Mankell_
+
+«Euro ist, wenn am Schluss Deutschland bezahlt.» _Neue Zürcher Zeitung_
+
+«Egal wie: Deutschland wird zahlen müssen.» _Focus_
+
+«Deutschland soll zahlen, da sind sich alle einig.» _Hans-Werner Sinn_
+
+
+-----
+
+Gesendet: Montag, 27. Juli 2015 um 11:43 Uhr
+Von: "Achim Wolf"
+An: "Nikola Vogt" niki@online.ms
+Betreff: Aw: Kopierecht-Anfrage
+
+Liebe Niki Vogt,
+würden Sie es gestatten, dass das Interview mit Holger Strohm bei http://quer-denken.tv/index.php/1553-kannder-euro-ueberhaupt-funktionieren bei der FIGU wiederveröffentlicht würde?
+Mit lieben Grüssen, Achim Wolf
+
+Gesendet: Montag, 27. Juli 2015 um 12:37 Uhr
+Von: "Nikola Vogt" niki@online.ms
+An: "Achim Wolf"
+Betreff: Aw: Kopierecht-Anfrage
+
+Lieber Achim, Ja, klar! Gerne.
+Liebe Grüsse,
+Niki
+
+Niki Vogt
+Tel.: +49 (0)6435 408760
+Handy: +49 (0)171 9969355
+n.vogt@schild-verlag.de
+www.schild-verlag.de
+
+### Was treibt die EU-Mächtigen Merkel und Juncker um?
+Der folgende Artikel wurde am 27. Juli 2015 auf der Internetzseite der Zeitung ‹Oberbayerisches Volksblatt› mit
+Sitz in Rosenheim (Deutschland) veröffentlicht. Der Autor Georg Anastasiadis beschreibt darin die fiesen
+Methoden und die dahingehenden Bestrebungen von Jean-Claude Juncker, die diktatorische Macht der EU noch
+weiter auszubauen. Über diesen zwielichtigen Mann weiss Wikipedia unter https://de.wikipedia.org/wiki/JeanClaude_Juncker folgendes zu berichten:
+_«Jean-Claude Juncker (*9. Dezember 1954 in Redingen) ist ein luxemburgischer Politiker. Seit dem 1. November_
+_2014 ist er Präsident der Europäischen Kommission. Er ist Mitglied der Christlich Sozialen Volkspartei (CSV/PCS)._
+_Von 1989 bis Juli 2009 war er Finanzminister und von 1995 bis Dezember 2013 Premierminister von Luxemburg._
+_Juncker war zuletzt der dienstälteste Regierungschef in der Europäischen Union. Von 2005 bis 2013 war er zudem_
+_Vorsitzender der Euro-Gruppe.»_
+
+Beim 613. offiziellen Kontaktgespräch vom 16. Februar 2015 mutmasste Billy über die Motive der deutschen
+**Kanzlerin Angela Merkel, die ja zusammen mit Juncker und dem deutschen Finanzminister Wolfgang Schäuble**
+die dominierende, treibende Kraft in der EU-Diktatur ist.
+
+Zitat Billy: … Was sich die EU-Diktatur mit der deutschen Bundeskanzlerin Angela Merkel an der Spitze mit ihren
+_erpresserischen Zwangssanktionen gegen Russland leistet, das kann effectiv noch zu einem flächendeckenden Brand_
+_in Europa und ein Schuss nach hinten hinaus werden, wobei sich dann auch die USA ein mischen könnten, die sich_
+_einerseits von dieser machtgierigen Merkel um ihren Finger haben wickeln lassen, während sie aber anderseits die_
+_Bundeskanzlerin ausnutzen für ihre eigenen weltherrschaftssüchtigen Pläne, mit denen sie sich auch in die EU-_
+_Diktatur einbinden wollen. Dass die angestrebte Freihandelszone zwischen den USA und der EU-Diktatur ein Teil_
+_des Weges dazu ist, dazu sind alle EU-Diktatur-Mächtigen zu dumm, dämlich sowie grössen- und machtwahnsinnig,_
+_um die effectiven Pläne der USA auch nur zu erahnen. Zu all denen, welche von der Bundeskanzlerin dirigiert_
+_werden, ohne dass sie sich dessen bewusst werden, gehören praktisch beinahe restlos alle, welche in der EU-Diktatur_
+_am Ruder hocken und die EU-Völker mit freiheitsberaubenden Gesetzen usw. drangsalieren und unter ihre Fuchtel_
+_zwingen. Wenn in bezug auf Angela Merkel die Führung und Politik von Deutschland betrachtet wird, dann ergeben_
+
+
+-----
+
+_sich erschreckende Gleichheiten zur Zeit von damals, als Adolf Hitler seine Macht aufgebaut und Gruppierungen_
+_um sich erschaffen hat, woraus dann das Naziwesen hervorgehen konnte. Diese Frau ist einerseits voller Machtgier,_
+_und anderseits so dumm, dass sie nicht merkt, dass sie eine naive Politik-Marionette der US-Regierungsmächtigen_
+_ist, worüber man sich um diese machtbesessene Frau und ihre Beweggründe so seine Gedanken machen und auch_
+_einiges vermuten kann in der Beziehung, was sie wirklich im Schilde führt und was ihre wirklichen Ansichten sind._
+_Aus dem Internetz habe ich folgendes über sie herauskopiert, das so manchen Menschen sicher unbekannt ist und_
+_sicher viele interessieren wird:_
+**_ANGELA MERKEL wird als erstes Kind von HORST KASNER, geb. KAZMIERCZAK, und HERLIND KASNER,_**
+**_geb. JENTZSCH, 1954 in Hamburg (nach unbestätigten Quellen allerdings in den USA) geboren und bekommt_**
+**_den Namen ANGELA DOROTHEA KASNER. Sie hat (angeblich) zwei Geschwister, Bruder Marcus und_**
+**_Schwester Irene. Der Vater, uneheliches Kind von ANNA RYCHLICKA KAZMIERCZAK und LUDWIK_**
+**_WOJCIECHOWSKI, ist evangelischer Pfarrer; die Mutter, eine polnische Jüdin aus Galizien, Lehrerin. Ihr_**
+**_Grossvater mütterlicherseits hiess LUDWIK KAZMIERCZAK, stammte aus Posen und kämpfte im Ersten Welt-_**
+**_krieg gegen Deutschland. Das belegt ein Photo ihres Vetters zweiten Grades, Cousin ihres Vaters und Neffe ihres_**
+**_Grossvaters, des 79jährigen pensionierten Buchhalters ZYGMUNT RYCHLICKI, in der polnischen Zeitung_**
+**_‹Gazeta Wyborcza›. Das Bild zeigt ihren Grossvater in der Uniform der sogenannten Haller-Armee, einer Einheit_**
+**_von Polen, die in der französischen Armee gegen Deutsche kämpfte._**
+_Inwieweit die Internetz-Darlegungen in bezug auf Angela Merkel stimmen, das vermag ich vom Schiff aus natürlich_
+_nicht zu beurteilen, doch es ist anzunehmen, dass doch einiges stimmt, was so an Angaben usw. über sie im Internetz_
+_zirkuliert – sie soll einen jüdischen Pass besitzen und Zionistin sein, was jedoch kein Verbrechen ist, aber vielleicht_
+_einiges in bezug darauf erklären kann (Internetzsuche: Angela Merkel, Jüdin), warum sie mit ihrer Macht das_
+_deutsche Volk an die Kandare legt, wobei vielleicht in bezug auf den Holocaust Hass und Rachsucht ein Motiv sein_
+_kann – wer weiss. Aber das ist nur eine Möglichkeit und nicht einmal eine Vermutung, folglich davon nichts abgeleitet_
+_werden kann oder darf, denn es handelt sich nur um einen Gedankengang und in jedem Fall nicht um eine Tat -_
+_sachenbehauptung, wie auch nicht um eine rassistische Bemerkung irgendwelcher Art oder um eine Verschwörungs-_
+_theorie._
+
+Wenn man nun in bezug auf Jean-Claude Juncker und seine Motive tiefer schürft, findet man ähnliche Dinge
+in seiner Lebensgeschichte, die – wie bei Merkel – als Beweggründe für das antideutsche und diktatorische Verhalten ausschlaggebend sein könnten. Hierbei muss ebenfalls klargestellt sein, dass es sich nur um mögliche
+Zusammenhänge handelt, keinesfalls um Unterstellungen oder nachweisliche Fakten bezüglich der inneren
+Antriebskräfte des Herrn Juncker. Ob nun bei Juncker und Merkel tatsächlich Hass und Rachegelüste für ihr
+Handeln verantwortlich sind, darüber können sich die Leserinnen und Leser ihre eigenen Gedanken machen.
+Bei Wikipedia (https://de.wikipedia.org/wiki/Jean-Claude_Juncker) wird folgendes über die Familiengeschichte
+von Juncker ausgeführt:
+
+_Familie und Ausbildung_
+_Jean-Claude Juncker wuchs als Sohn eines Hüttenwerkspolizisten im Süden Luxemburgs auf. Er wurde sehr von_
+_diesem industrialisierten Landstrich geprägt, in dem viele Arbeiter und Immigranten (damals hauptsächlich Italiener)_
+_lebten. Seine Familie war zu jener Zeit bereits politisch in der Christlich-Sozialen Volkspartei (CSV) beheimatet,_
+_sein Onkel Ed Juncker war Bürgermeister der Stadt Ettelbrück. Sein Vater war während des Zweiten Weltkrieges_
+**_zum Dienst in der deutschen Wehrmacht gezwungen worden, einige Familienmitglieder starben in deutschen_**
+**_Konzentrationslagern._**
+Achim Wolf, Deutschland
+
+### Der Juncker-Plan
+Schäuble für EU-Superregierung und Eurosteuer. Seit die Griechenlandlandkrise ausser Kontrolle geriet, steht
+Brüssel unter Schock.
+Das Dogma von der Unumkehrbarkeit einer immer tieferen Integration ist durch die Grexit-Debatte schwer
+erschüttert, und, noch schlimmer: Es waren die Staats- und Regierungschefs, die das Heft des Handelns an sich
+rissen, weil die Nationalstaaten sich zuletzt als die einzig handlungsfähigen Akteure erwiesen – übrigens auch
+als die einzigen, die es vermochten, die Völker hinter sich zu vereinen. Daraus nun den Schluss zu ziehen, Brüssel
+müsse noch viel mehr Macht an sich ziehen, ist typisch für EU-Chef Juncker – ebenso typisch wie sein
+
+
+-----
+
+klandestiner Plan, die Bürger erst mal ruhigzustellen, indem man grundstürzende Ideen just dann präsentiert,
+wenn alle Welt nur auf das Griechenlanddrama starrt.
+
+© OVB
+
+Es ist die Juncker-Methode, nach der nun also auch Super-Europa kommen soll: «Wir beschliessen etwas, stellen
+das dann in den Raum und warten einige Zeit ab, ob was passiert. Wenn es dann kein grosses Geschrei gibt und
+keine Aufstände, weil die meisten gar nicht begreifen, was da beschlossen wurde, dann machen wir weiter –
+Schritt für Schritt, bis es kein Zurück mehr gibt.» Das Gefährliche daran: Anders als bei der Schlacht um Athen
+steht Bundesfinanzminister Schäuble diesmal auf Junckers Seite. Als Totengräber des europäischen Projekts will
+der Herzens-Europäer nicht in die Geschichte eingehen.
+Eine Brüsseler Superregierung als Sturzgeburt infolge der Hellaskrise? Brexit statt Grexit? Das fehlt gerade noch.
+Scheint, als könnten sich die Bundesbürger diesmal nur noch auf sich selbst verlassen. Denn diesmal dürf(t)en
+in einem fälligen Referendum auch die Deutschen ‹oichi› sagen.
+Georg Anastasiadis
+
+Gesendet: Montag, 27. Juli 2015 um 15:13 Uhr
+Von: "Achim Wolf"
+An: Georg.Anastasiadis@ovb.net
+Betreff: Kopierecht-Anfrage
+Sehr geehrter Herr Anastasiadis,
+hiermit möchte ich Sie freundliche um die Erlaubnis bitten, Ihren Artikel ‹Der Juncker-Plan› (https://www.ovbonline.de/politik/juncker-plan-5293275.html) in einem Organ des Vereins FIGU wiederveröffentlichen zu dürfen. Die FIGU betreibt seit langem Öffentlichkeitsarbeit in Sachen EU und möchte die Menschen über die
+schlimmen Folgen der EU-Diktatur aufklären, siehe z.B.:
+http://www.figu.org/ch/verein/periodika/sonder-bulletin/2014/nr-80/eu-standpunkte?page=0,0
+http://www.figu.org/ch/verein/periodika/offene-briefe/2014/nr-13/diktatur
+http://www.figu.org/ch/verein/periodika/sonder-bulletin/2014/nr-78/eu-sklaverei-ohne-gegenwehr
+Mit freundlichen Grüssen
+Achim Wolf
+
+Gesendet: Montag, 27. Juli 2015 um 17:37 Uhr
+Von: "Anastasiadis Georg" Georg.Anastasiadis@merkur.de
+An: "Achim Wolf"
+Betreff: Kein Betreff
+Hallo Herr Wolf, habe keine Einwände!
+Viele Grüsse,
+Georg Anastasiadis
+
+
+-----
+
+-----
+

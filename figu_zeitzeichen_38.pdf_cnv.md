@@ -1,0 +1,1420 @@
+**L**
+
+**WESEN FREMDER WELTEN**
+
+# FIGU– BESUCHEN DIE ERDE
+
+**Freie**
+
+# ZEITZEICHEN Interessengemeinschaft
+
+**FIGU**
+
+### Aktuelles • Einsichten • Erkenntnisse r
+
+**Erscheinungsweise:** **Internetz: www.figu.org** **2. Jahrgang**
+**Sporadisch** **E-Brief: info@figu.org** **Nr. 38, März 2016**
+
+###### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+Laut ‹Allgemeine Erklärung der Menschenrechte› vom 10. Dezember 1948, Artikel 19, ‹Meinungs- und Informationsfreiheit›:
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die**
+**Freiheit, Meinungen unangefochten anzuhängen und Informationen und Ideen mit allen**
+**Verständigungsmitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Aussagen und Meinungen müssen nicht zwingend mit dem FIGU Gedanken-, Interessen-, Lehre- und Missionsgut identisch sein.
+
+#### Ist Trump nur durch ein Attentat aufzuhalten?
+_Sonntag, 28. Februar 2016, von Freeman um 14:00_
+Der Hauptgrund, der die Popularität von Donald Trump erklärt, lautet: Er ist der einzige Kandidat für die
+amerikanische Präsidentschaft, der als erfolgreicher Unternehmer und weil er nie ein politisches Amt bekleidet
+hat, nicht zum Establishment von Washington gehört. Eine Mehrheit der Amerikaner hat nämlich den Saustall
+dort satt und will diesen endlich ausgemistet und aufgeräumt haben. Es geht also weniger um die politischen
+Programme der Kandidaten, die eh keine Rolle spielen und sich kaum unterscheiden, sondern um eine Persönlichkeit, die NICHT zur völlig korrupten politischen Klasse gehört.
+
+Donald Trump ist so ein Kandidat. Er ist unabhängig, dient keiner Lobby und kann sich deshalb leisten Sachen
+zu sagen, die nicht politisch korrekt sind, aber die Gedanken der ‹schweigenden Mehrheit›
+widerspiegeln. Damit hat er aber das ganze politische und mediale Establishment als Feinde.
+Die Demokraten mit Hillary als Hauptgegner sowieso, aber auch die Gegner innerhalb der
+eigenen Partei der Republikaner, über die Finanzelite der Wall Street, der Pro-Israel-Lobby,
+bis zu den ganzen Linken und Grünen, und am meisten den Meinungsmachern der Massenmedien.
+
+
+**Freie**
+
+
+-----
+
+Speziell die völlig kontrollierten Medien hatten sich schon von Anfang an nur auf ein Kandidaten-Paar ein gestellt, nämlich Hillary Clinton und Jeb Bush. Alle anderen sahen sie als Komparsen an, um die Täuschung
+durchzuführen, es gebe eine echte Wahl und Demokratie in den USA. Aber es ist anders gekommen, denn mehr
+Establishment als diese beiden vertreten, geht gar nicht. Jeb ist wegen völligem Mangel an Popularität bereits
+aus dem Rennen ausgestiegen. Hillary ist nur noch deshalb dabei, weil die Parteispitze der Demokraten durch
+Manipulation der internen Wahlen sie im Sattel hält. Die Parteimitglieder wollen eigentlich Bernie Sanders, aber
+das wird von ‹oben› nicht zugelassen.
+Sanders ist ein Sozialist nach amerikanischer Version. Viele vom linken Spektrum mögen ihn, weil er verspricht,
+staatliche Geschenke zu verteilen und alles soll gratis sein. Das will aber das Establishment auch nicht, denn
+dann müsste man bei den Rüstungsausgaben sparen. Nur Hillary garantiert noch mehr Kriege und damit fette
+Profite!
+Die Medien in den USA sind wegen dem Erfolg von Donald Trump völlig am Durchdrehen und sie versuchen
+alles, um ihn mit Dreck zu bewerfen. Seine Mitbewerber innerhalb der Republikanischen Partei sind zu grotesken Methoden übergegangen, verbreiten Lügen und verleumden ihn. Auch das Establishment der Republikaner,
+die alte Garde, tut alles um ihn zu desavouieren. Dies kam deutlich beim letzten parteiinternen Duell vergangene
+Woche in Fort Worth in Texas zu Tage. Marco Rubio ist wie ein bissiger Pitbull auf Trump losgegangen. Von
+Sachlichkeit keine Spur. Dazu wollen die Parteioberen verhindern, dass Trump der Spitzenkandidat der
+Republikaner wird.
+
+Schaut euch folgendes Video an. Einer der anwesenden Altherren der Republikaner in Fort Worth war George
+H. W. Bush, der ehemalige US-Präsident, Vater von George W. Bush und Jeb Bush. Der über 90-Jährige machte
+ein Handzeichen, das die Mafia benutzt und nur eines bedeuten kann, ‹Hals abschneiden› oder ‹umbringen›.
+Zufällig wurde die Geste während Trump sprach von der Kamera eingefangen.
+Mehrmals habe ich schon darauf hingewiesen, Vater-Bush ist eines der teuflischsten Wesen überhaupt, denn er
+ist Satanist und oberster Vertreter der NWO. Seine Lebensgeschichte ist mit abscheulichen Praktiken, Morden
+und Attentaten vollgespickt. Er war zum Beispiel am Dealey Plaza als Statthalter der CIA in Dallas anwesend,
+als Präsident Kennedy von drei Scharfschützen ermordet wurde. 1976 und 1977 war er Direktor des Geheimdienstes CIA. Von 1977 bis 1979 war er einer der Direktoren des Council on Foreign Relations. Dann wurde er
+1980 Vizepräsident unter Ronald Reagan.
+Am 30. März 1981 fand das Attentat auf Präsident Ronald Reagan vor dem Washington Hilton Hotel statt.
+Reagan konnte von einem Secret-Service-Agenten in die bereitstehende Limousine gestossen werden und überlebte das Attentat trotz seiner schweren Schussverletzung. Der Attentäter John Hinckley, Jr. hatte enge Be ziehungen zur Bush-Familie. Wer wäre bei einem gelungenen Attentat und Ableben von Reagan automatisch
+Präsident geworden? Eben, sein Vize George H. W. Bush. Das war immer schon seine Ambition, die ihm damals
+nicht gelang.
+Am 20. Januar 1989 wurde Bush als 41. Präsident der Vereinigten Staaten vereidigt. Im Dezember 1989 befahl
+er mit ‹Operation Just Cause› einen Krieg gegen den mittelamerikanischen Staat Panama, nachdem ein CIAPutsch gegen die Regierung gescheitert war. Die Invasion war die grösste Luftlandeoperation seit dem Zweiten
+Weltkrieg. Ein unabhängiger Untersuchungsausschuss beziffert die Zahl der Getöteten mit 1000 bis 4000. Nach
+dem Dokumentarfilm ‹The Panama Deception› liegt die Zahl der Toten zwischen 3000 und 4000. Die UN gibt
+
+
+-----
+
+2500 Tote an. Der Präsident von Panama, Manuel Noriega, wurde verhaftet und ins Bundesgefängnis nach
+Florida gebracht.
+Am 17. Januar 1991 begann auf seinem Befehl hin der erste Krieg gegen den Irak mit der Operation ‹Desert
+Storm›, angeblich um Kuwait zu befreien, wegen einer Invasion, für die Saddam Hussein aber von Washington
+grünes Licht bekam, was aber eine Falle war. Dieser Krieg wurde mit der Brutkastenlüge begründet, die Bush
+mindestens fünf Mal öffentlich wiederholte. Bush hoffte, Saddam würde nach dem Angriff und der Schwächung
+des irakischen Militärs in der Nachkriegszeit gestürzt, was nicht eintrat. Mit dem ersten Krieg gegen den Irak
+durch Bush-Senior begann die ganze Katastrophe im Mittleren Osten. Das Resultat sind die weiteren Kriege,
+die Millionen von Toten und viele Millionen an Flüchtlingen.
+Er hatte nur eine Amtszeit und diese endete mit der Präsidentschaft von Bill Clinton am 20. Januar 1993.
+Seitdem ist Vater-Bush die ‹graue Eminenz› in der Republikanischen Partei, der im Hintergrund die Fäden zieht
+und seinen Sohn George W. ins Weisse Haus brachte. Mit der False Flag von 9/11 setze sein Sprössling die tödliche Aussenpolitik mit dem ‹Krieg gegen den Terror› fort. Krieg gegen Afghanistan, zweiter Krieg gegen den
+Irak und viele andere Konflikte. Jetzt versuchte Vater-Bush seinen anderen Sohn, Jeb Bush, ins Präsidentenamt
+zu hieven. Dieser Versuch ist aber wie oben beschrieben gescheitert. Jeb hat wegen Mangel an Unterstützung in
+der Bevölkerung aufgegeben, und es sieht aus, als ob der populäre Trump die Nominierung bekommt. Das will
+er verhindern.
+Die Halsabschneidergeste von Bush-Senior gegen Trump ist ernst zu nehmen, denn nur so kann er gestoppt
+werden. Aber er ist nicht alleine mit diesem Todeswunsch. Man muss sich das vorstellen, sogar ein Kolumnist
+der ‹angesehenen› New York Times, die voll hinter Hillary Clinton steht, hat angedeutet, Trump müsse ermordet
+werden, um ihn aufzuhalten. Ross Douthat veröffentlichte ein Tweet in dem stand: «Eine gute Nachricht, ich
+weiss jetzt wie man die Trump-Kampagne beendet.» Er verlinkte ein Youtube-Video mit einer Szene aus einem
+Film von 1983, ‹The Dead Zone›, indem Christopher Walken versucht einen Politiker zu erschiessen, gespielt
+von Martin Sheen.
+Jetzt ist es nicht so, als ob politisch motivierte Attentate in der Geschichte der Vereinigten Staaten unüblich wären.
+Vier Präsidenten starben bei den verübten Attentaten oder an deren Folgen: Abraham Lincoln (16. Präsident),
+James A. Garfield (20. Präsident), William McKinley (25. Präsident) und John F. Kennedy (35. Präsident). Zwei
+Präsidenten wurden durch Attentate verletzt: Theodore Roosevelt (26. Präsident) und Ronald Reagan (40.
+Präsident).
+Der jüngere Bruder des ermordeten US-Präsidenten John F. Kennedy strebte nach einer Karriere als Senatsjurist,
+Justizminister und Senator auch die Präsidentschaft an und fiel dabei während des Vorwahlkampfes ebenfalls
+einem Attentat zum Opfer. Kennedy hatte nach Siegen in Indiana und Nebraska und einer Niederlage in Oregon
+gerade die Vorwahlen in South Dakota und Kalifornien gewonnen, als er in der Nacht vom 4. zum 5. Juni 1968
+wenige Minuten nach Mitternacht kurz nach seiner Dankesrede im Ballsaal des Hotels Ambassador in Los
+Angeles erschossen wurde.
+Deswegen ist die Frage berechtigt, wird Trump durch ein Attentat beseitigt werden? Wie will man ihn sonst
+aufhalten? Die Satanistin Hillary Clinton haben die Amerikaner auch bis hierher satt. Wie hat sie sich doch
+gefreut, als Muammar Gaddafi ermordet und seine Leiche geschändet wurde. Ausserdem ist sie als Aussen ministerin für die Kriege gegen Libyen, Jemen und Syrien verantwortlich, sowie für den Putsch in der Ukraine,
+mit den Kriegsfolgen dort. Sollte sie wieder ins Weisse Haus kommen, diesmal als Präsidentin, dann gute Nacht,
+dann ist alles, was die Vorgänger gegen die Welt angerichtet haben, ein Kindergarten.
+Edward Snowden hat es in einem aktuellen Tweet gut ausgedrückt: «2016 ist die Wahl zwischen Donald Trump
+und Goldman Sachs.» Ihr glaubt, das sei übertrieben? Seit April 2013 hat Hillary Clinton von den Wall Street
+Banken für 92 Redeauftritte 21,7 Millionen Dollar an Gage bekommen. Im Durchschnitt 236000 Dollar pro 30
+Minuten Auftritt. Nein, das ist sicher keine Bestechung, sondern was sie zu sagen hatte, war es den Bankstern
+wert (lol). Sie ist zu 100% eine Vertreterin der Interessen des Machtapparats. Wisst Ihr was ihr Wahlkampfslogan
+ist? Wählt mich, weil ich eine Frau bin, denn es ist Zeit, dass nach einem Schwarzen eine Frau ins Weisse Haus
+einzieht.
+Es gibt genug mächtige Kräfte im Establishment, die Donald Trump hassen und beseitigen wollen und auch
+dazu fähig sind, es in Auftrag zu geben. Denn Trump bringt das Einparteiensystem, wo man nur zwischen Coca
+Cola und Pepsi Cola ‹wählen› kann, völlig durcheinander. Seit wann gilt der Volkswillen in den USA? Der
+Präsident wird von der Schattenmacht bestimmt und hat deren Willen umzusetzen. Wer aus der Spur tanzt wird
+terminiert. Die Amerikaner werden noch viel mehr komplett manipuliert und getäuscht als die Europäer. Die
+westliche Demokratie heute bedeutet, man kann nur wählen wer einen verarscht. Echte Alternativen werden
+vorher beseitigt!
+
+
+-----
+
+_Quelle: http://alles-schallundrauch.blogspot.de/2016/02/ist-trump-nur-durch-ein-attentat.html_
+
+#### Russlands Verteidigungsministerium erläutert Grund für jüngste antirussische Äusserungen der CIA
+_27.02.2016 • 08:30 Uhr_
+
+_Quelle: Reuters_
+_CIA Direktor John Brennan spricht vor dem US-Aussenministerium in Washington_
+
+Russlands Verteidigungsministerium sieht in den jüngsten Äusserungen des US-Geheimdienstes und des
+Pentagons lediglich eine Taktik zur Etaterhöhung. In Kürze werden im Kongress die Militärbudgets für das
+Haushaltsjahr 2017 diskutiert. Der Nationale Geheimdienstdirektor (DNI) der Vereinigten Staaten hatte zuvor
+Russland als Hauptgefahr bezeichnet, da es eigene ‹Cyber-Systeme› entwickeln und seine Streitkräfte modernisieren würde.
+«Für uns waren die lautstarken Demarchen von US-Militärs, die in Russland die Hauptgefahr für die nationale
+Sicherheit der Vereinigten Staaten erkannt haben, keine Überraschung. Diese Woge geht alljährlich zu ein und
+
+
+-----
+
+demselben Zeitpunkt hoch. Der Grund ist eindeutig: Die Erörterung des Militäretats für das kommende Jahr
+im Kongress.»
+Dies erklärte der Sprecher des russischen Verteidigungsministeriums, Generalmajor Igor Konaschenkow im
+Rahmen einer Pressekonferenz und erinnerte zudem daran, dass das Pentagon die sogenannte ‹russische Bedrohung› bereits seit Mitte des vergangenen Jahrhunderts nicht nur dem US-Kongress, sondern auch seinen
+NATO-Partnern am erfolgreichsten verkaufe. «Was würden sie ohne uns nur tun?», fragte Konaschenkow.
+Zuvor hatte der Nationale Geheimdienstdirektor (DNI) der Vereinigten Staaten, James Clapper, Russland und
+China als Hauptgefahren für sein Land bezeichnet. Ihm zufolge würden die beiden Staaten eigene ‹CyberSysteme› entwickeln. Darüber hinaus fahre Russland fort, seine Streitkräfte zu modernisieren.
+Auch der britische General und Chef des Verteidigungsstabes, Nicholas Houghton, hatte nach US-Präsident
+Barack Obama Russland mit der Terrormiliz ‹Islamischer Staat› (Anm. Islamistischer Staat) gleichgesetzt. Denn
+laut seinen Worten stelle die Russische Föderation eine «erhebliche Bedrohung für die Lebensweise, den Wohlstand, die nationalen Werte und Freiheiten der britischen Bürger» dar.
+Die US-Zeitschrift ‹The Wall Street Journal› berichtete kürzlich unter Berufung auf Quellen im Weissen Haus,
+dass eine Reihe von hochrangigen Beamten der Administration Obama nach Wegen suche, den Druck auf
+Moskau zu verstärken. So sollen der Pentagon-Chef Ashton Carter, der Vorsitzende des Vereinigten Generalstabs
+Joseph Dunford und der CIA-Chef John O. Brennan bei Beratungen im Weissen Haus dazu aufgerufen haben,
+den Russen mit schärferen Massnahmen ‹reale Unannehmlichkeiten› zu bereiten, wenn die Waffenruhe in
+Syrien nicht anhalten sollte.
+Der Pentagon-Etatentwurf für das Jahr 2017 sieht eine Aufstockung der Ausgaben für die sogenannte europäische
+Sicherheitsinitiative auf bis zu 3,4 Milliarden US-Dollar vor. Im Vorjahr belief sich diese Summe auf 789 Millio nen Dollar. Weitere 900 Millionen sollen anderen US-Behörden, darunter dem Aussenministerium, zur Ver fügung gestellt werden, um die ‹russische Aggression› einzudämmen.
+_Quelle: https://deutsch.rt.com/russland/36990-russlands-verteidigungsministerium-erlautert-grund-fur/_
+
+#### Russland warnt vor Chemie-Waffen für ISIS: Wann schlägt USA wieder zu und beschuldigt Assad?
+_Deutsche Wirtschafts Nachrichten_
+_Di, 01 Mär 2016 15:01 UTC_
+Der russische Aussenminister hat davor gewarnt, dass ISIS in den Besitz chemischer Waffen kommen könnte.
+Er regte eine internationale Zusammenarbeit an, dies zu verhindern. Berichten zufolge ist es in Syrien und dem
+Irak bereits zu ISIS-Angriffen mit Senfgas gekommen.
+
+_© dpa_
+_Der Aussenminister Russlands, Sergej Lawrow, warnt vor dem Einsatz chemischer Waffen durch ISIS._
+
+
+-----
+
+Russland hat vor einer wachsenden Gefahr von Chemie-Waffen in den Händen von Extremistenorganisationen
+wie dem Islamischen Staat (IS) gewarnt wie Reuters am Dienstag meldete.
+
+**Kommentar: Also im Endeffekt in den Händen der USA …**
+
+Es gebe Berichte, dass Terrorgruppen Zugang zu wissenschaftlichen und technischen Unterlagen zur Her stellung solcher Waffen erlangten, sagte Aussenminister Sergej Lawrow am Dienstag bei einer UN-Konferenz in
+Genf. Ausserdem eroberten sie Chemieanlagen und nutzten die Kenntnisse ausländischer Experten, um Kampfstoffe herzustellen. Lawrow forderte Verhandlungen über einen internationalen Pakt, um diese Entwicklung zu
+stoppen.
+Einer Erklärung der Kurdischen Autonomie-Regierung im Nordirak (KRG) zufolge hat ISIS am 25. Februar
+2016 mehrere Raketen mit chemischen Sprengköpfen in den Süden der Stadt Sindschar in der irakischen
+Provinz Ninive abgefeuert, berichtet der arabischsprachige Nachrichtensender Alsumaria. Dutzende Peschmerga-Kräfte und Bürger seien von dem Chemieangriff betroffen gewesen.
+Dem Journalisten Seymour Hersch zufolge sollen IS-Kämpfer im vergangenen Jahr in Syrien und im Irak Senfgas eingesetzt haben. Nach einem Bericht der Organisation für das Verbot chemischer Waffen waren im August
+nördlich der syrischen Stadt Aleppo mindestens zwei Menschen Senfgas ausgesetzt. Die Gefahr nehme zu, dass
+ähnliche Verbrechen auch in Libyen und im Jemen verübt würden, sagte Lawrow.
+
+**Kommentar: Es wurde schon einmal versucht Assad für Chemiewaffen Einsatz zu beschuldigen:**
+– Syrien: Angriff unter falscher Flagge als Rechtfertigung für den nächsten Krieg – Obama, Kerry und andere
+Menschen ohne Gewissen versuchen uns wieder bewusst zu belügen.
+
+Damals hat Putins Regierung ebenfalls Schlimmeres verhindert.
+
+#### Todenhöfer im Exklusiv-Interview mit RT: USA wollen schwache und zersetzte Staaten im Nahen Osten
+_4.03.2016 • 08:30 Uhr_
+
+_Quelle: Reuters_
+_Selbstmordattentat auf ein Polizeidienststelle in einem Wohnbezirk von Damaskus, Masaken Barza, Syrien, 9. Februar 2016._
+
+
+-----
+
+Jürgen Todenhöfer, der 2014 als erster westlicher Reporter das Territorium der Terrormiliz ‹Islamischer Staat›
+(Anm. Islamistischer Staat) besuchen konnte, hat im Exklusiv-Interview mit RT erklärt, dass nach seiner Einschätzung der Waffenstillstand im syrischen Bürgerkrieg bisher halte. Er äusserte aber die Besorgnis, dass
+führende US-Politiker auf die Spaltung Syriens hin zu einer permanent fragmentierten Kriegszone setzen.
+«Es gibt den Trend, dass Rebellen ihre Brigaden von denen der Terroristen separieren und das ergibt die Möglichkeit, die al-Nusra oder andere al-Qaida-Gruppen anzugreifen, ohne die Rebellen selbst anzugreifen», sagte
+der 75-Jährige gegenüber RT im Skype-Interview. Er bemerkte, dass er regelmässig mit Quellen aus den verschiedenen Konfliktlagern spreche, seitdem der von den USA und Russland ausgehandelte Waffenstillstand in
+Syrien in Kraft getreten ist.
+
+Todenhöfer informiert:
+«Jeder Tag, an dem der Waffenstillstand hält, ist ein wundervoller Tag für die Menschen. Sie sind glücklich und
+ich bin mehr denn je optimistisch, da es mittlerweile mehr Kontaktpunkte zwischen Rebellen und der Regierung
+gibt.»
+Moskau gab an, dass es in den letzten drei Tagen mehr als 30 Waffenstillstandsbrüche gegeben habe. Beobachter
+von allen Seiten weisen jedoch darauf hin, dass die Feindseligkeiten insgesamt abflauten. Humanitäre Hilfsgüter
+erreichten belagerte Wohngebiete, wo Zivilisten vor dem Verhungern standen.
+Der ehemalige CDU-Bundestagsabgeordnete und spätere Journalist und Nahost-Experte Todenhöfer sagte, er
+hoffe, dass der Waffenstillstand ein erster Schritt hin zu Formierung einer neuen Koalition, ausgehend vom syrischen Volk, sei, um den ‹Islamischen Staat› (Anm. Islamistischen Staat) aus eigenen Kräften zurückzuschlagen.
+«Wenn die Rebellen beginnen würden, gemeinsam mit der offiziellen Regierungsarmee gegen den IS zu kämpfen,
+dann würden wir eine Chance haben, den IS zu besiegen und den Frieden in Syrien zu wahren. Es ist ein Traum,
+aber ein realistischer Traum», sagte der Journalist. Er fügte aber auch hinzu, dass Meinungsverschiedenheiten
+zwischen der al-Assad-Regierung und der Opposition Hauptgrund für den seit mehr als fünf Jahre anhaltenden
+Bürgerkrieg sind. Die Rebellen bekämpfen nicht nur den IS, sondern auch den syrischen Präsidenten, den sie
+‹als skrupellosen Diktator› denunzieren.
+In einem Exklusiv-Beitrag für den ‹Kölner Stadt-Anzeiger› am 25. Februar hat Todenhöfer einen umfassenden
+Einblick in die Kräfteverhältnisse auf dem syrischen Schlachtfeld gegeben und anlässlich dessen zwei Grafiken
+erstellt. Nach monatelanger Recherche kamen Jürgen und sein Sohn Frederic zum Ergebnis, dass Syrien mehr
+oder weniger klar viergeteilt ist, in ein Regierungs-, ein IS-, ein Rebellen- und ein Kurden-Gebiet. Hinzu kommt
+eine quantitative Auflistung der Truppenstärke der jeweiligen Konfliktpartei in Syrien.
+
+
+-----
+
+Todenhöfer gilt als wortgewaltiger Kritiker westlicher Militärinterventionen. Er glaubt, dass es an der Zeit für
+die regionalen Unterstützerstaaten und die USA sei, ihren Beistand für die Rebellen einzustellen und damit
+aufzuhören, auf diese Weise Öl ins Feuer zu giessen.
+«Die USA teilten den Irak, sie teilten Libyen und heute könnten sie Syrien in vier oder fünf Teile zersetzen.
+Geteilte Staaten sind schwache Staaten. Und ich habe den Eindruck, dass es einige US-amerikanische Politiker
+gerne sehen, dass schwache Staaten im Nahen Osten entstehen», sagte er.
+Als ehemaliger Besucher des IS-Territoriums – er reiste für 10 Tage in die inoffizielle IS-Hauptstadt Rakka und
+in die irakische Hochburg Mosul – glaubt Todenhöfer, die Terrormiliz ‹Islamischer Staat› (Anm. Islamistischer
+Staat) gut einschätzen zu können. Seiner Meinung zufolge sei der IS ausreichend gut organisiert, um auf eine
+unbestimmte Zeit existieren zu können. Ausserdem seien Anschläge in Europa im Stil jener, die sich vergangenes
+Jahr in Paris ereigneten, unvermeidlich und würden weiterhin erfolgen.
+«Für den IS ist es viel einfacher, die Kräfte zu mobilisieren, die sie in den Ländern der Europäischen Union, den
+USA oder Russland haben. In diesen Ländern haben sie viele Fans. Diese koordinieren sich – und es ist überhaupt nicht schwierig, einen Selbstmordanschlag zu organisieren. Es ist billig und einfach», sagte er.
+Der Journalist bemerkte, dass es Europa noch immer nicht geschafft habe, den ‹Kampf der Ideen› gegen den IS
+zu gewinnen, vor allem unter der eigenen desorientierten muslimischen Jugend, die von rechten Exzessen in
+Europa nur weiter radikalisiert werde.
+«Wir müssen den Menschen zeigen, dass diese Ideologie falsch ist, dass diese Ideologie anti-islamisch ist. Es gilt
+es, den Menschen zu zeigen, dass dies der falsche Weg ist. Das löst kein einziges Problem. IS-Sympathisanten
+sollte auch aus islamischer Perspektive erklärt werden, dass die Taten des IS nichts mit dem Islam zu tun haben.
+Er ist eine Gefahr für den Islam, und die meisten Menschen, die er im Nahen Osten tötet, sind Muslime», fügte
+Todenhöfer abschliessend hinzu.
+_Quelle: https://deutsch.rt.com/international/37114-todenhofer-es-wird-noch-mehr/_
+
+#### USA: Eine Billion US-Dollar für Atomwaffen-Programm
+_2.03.2016 • 13:50 Uhr_
+Das Verteidigungsbudget der USA für das Jahr 2017 beinhaltet eine nukleare ‹Modernisierung›. Der Schritt
+könnte ein neues Wettrüsten provozieren. Und natürlich geht es um Russland. Was meinen eigentlich die
+möglichen zukünftigen Präsidenten zum Atombombenprogramm?
+
+
+-----
+
+_Quelle: Reuters_
+_Start der Minuteman III-Intercontinental-Rakete auf der Vandenberg Air Force Base in Kalifornien am 25. Februar 2016._
+
+Am vergangenen Wochenende testeten die USA eine Interkontinentalrakete mit dem Namen ‹Minuteman III›.
+Damit rückt erneut die Modernisierung der Atomwaffen in den USA in den Fokus. Für das Portal The Intercept
+berichtet Alex Emmons über den Stand bei der Rüstungsplanung unter der Regierung Obama.
+Die Regierung von Barack Obama argumentiert in öffentlichen Debatten, dass ihre massive, etwa eine Billion
+US-Dollar teure Modernisierung des US-Atomwaffenprogramms keine Rückkehr zum nuklearen Wettrüsten
+zwischen Russland und den Vereinigten Staaten darstellt. Diese äusserst kostspielige Angelegenheit, die darauf
+ausgerichtet ist, eine ganze Reihe von neuen Marschflugkörpern, Interkontinentalraketen, Atom-U-Booten und
+Langstrecken-Bombern anzuschaffen, wird auch von Kritikern in den USA als ‹Verschwendung›, ‹untragbar›,
+‹unbezahlbar› und ‹eine Phantasterei› kritisiert.
+Die Regierung hat dabei auf alternde Raketensilos, Bomber aus den 1950er Jahren und andere veraltete Techno logie hingewiesen, um die Ausgaben zu rechtfertigen. Die Schritte sollen vorhandene Technologien beibehalten
+und modernisieren. Es wäre angeblich keine Aufstockung zur Vorbereitung einer künftigen Konfrontation.
+Im vergangenen Jahr hat Verteidigungsminister Ashton Carter im Gespräch mit NATO-Verbündeten noch einmal
+betont, dass das ‹Buch mit den Spielzügen des Kalten Krieges … sich nicht für das 21. Jahrhundert eignet.›
+Aber in Präsident Obamas Antrag für den Verteidigungshaushalt für 2017 steht klar, dass sich die nukleare
+‹Modernisierung› um Russland dreht.
+Der Haushaltsantrag nennt ausdrücklich die russische Aggression: «Wir setzen Russlands aggressiver Politik
+Investitionen in einer breiten Palette von Fähigkeiten entgegen … [inkl.] unseres Atomwaffenarsenals.»
+Im Dezember hat Brian McKeon, wichtigster stellvertretender Staatssekretär für Verteidigung vor dem Kongress
+ausgesagt: «Wir investieren in Technologien, die Russlands Provokationen gegenüber sehr relevant sind …
+sowohl um gegen Nuklearangriffe abzuschrecken, als auch um unsere Verbündeten zu beruhigen.»
+Kritiker sorgen sich nun, dass ein Wettrüsten der ‹Modernisierung› beginnt.
+«Sowohl Russland als auch die Vereinigten Staaten verwenden nun offiziell und öffentlich die andere Seite als
+Rechtfertigung dafür, ihre Atomwaffen-Programme zu modernisieren,» teilte Hans Kristensen, Direktor des
+Atom-Informations-Projekts, dem Portal The Intercept mit.
+In seiner ersten Amtszeit trat Obama ausdrücklich als Verfechter der nuklearen Abrüstung auf. Im April 2009
+schwor er, dass er sich einer ‹nuklearfreien Welt› verpflichtet fühle, und zwar zusammen mit dem ehemaligen
+russischen Präsidenten Dimitri Medwedew. Noch im gleichen Monat hielt Obama eine berühmte Rede in Prag,
+in der er sagte, er wolle ‹die Sicherheit einer Welt ohne Atomwaffen›. Und er verhandelte im Jahr 2011 über
+einen Nuklearvertrag mit Russland, der von beiden Ländern verlangte, ihre Arsenale auf 1550 operative Gefechtsköpfe zu reduzieren.
+
+
+-----
+
+Aber laut den Beratern Obamas hätte die ‹russische Invasion› der Krim seine Abrüstungsbemühungen gestoppt.
+In einem Interview mit der New York Times 2014 sagte Gary Samorè, einer von Obamas obersten Beratern für
+nukleare Angelegenheiten in dessen erster Amtszeit:
+«Die fundamentalste Wende des Spiels ist Putins Eindringen in die Ukraine. Das hat jede Massnahme zur
+einseitigen Verringerung der Lagerbestände politisch unmöglich gemacht.»
+Ehemalige Regierungsbeamte haben Vorschläge gemacht, wie das Eine-Billionen-Budget verringert werden
+könnte. Im Dezember schlug der ehemalige US-Verteidigungsminister William Perry dem Pentagon vor, die
+alternden Interkontinentalraketen nicht zu ersetzen, da U-Boote und Bomber genug wären, um nukleare Bedrohungen zu verhindern.
+General im Ruhestand Eugene Habiger, der ehemalige Leiter des US Strategic Command, welches die nuklearen
+Waffen des Pentagons überwacht, argumentierte, dass US Atomkräfte wenig bis gar keine abschreckende
+Wirkung auf Russland und China hätten. Die USA kann ihr aktives Arsenal ohne Risiko auf 200–300 Waffen
+reduzieren.
+
+**Präsidentschaftskandidaten und die nukleare Modernisierung**
+In dem Bemühen, die Kosten der nuklearen Modernisierung zu senken, brachten im März 2015 zwei demokratische Kongressabgeordnete einen Gesetzentwurf ein, der die Anzahl der geplanten raketen-tragenden U-Boote
+von 14 auf acht reduzieren würde. Das Gesetz, das geschätzte 4 Milliarden US-Dollar pro U-Boot sparen würde,
+wurde von Senator Bernie Sanders, dem Präsidentschaftskandidaten der Demokraten, miteingereicht.
+Als Hillary Clinton bei einer Veranstaltung in Iowa nach nuklearer Modernisierung gefragt wurde, reagierte sie
+mit: «Ja, ich habe davon gehört, ich werde mir das mal anschauen, es macht für mich keinen Sinn.» Der republikanische Präsidentschaftskandidat Marco Rubio unterstützt auf der anderen Seite die Ausgaben mit den
+Worten: «Abschreckung ist ein Freund des Friedens.»
+Religiöse Gruppen kritisieren die nukleare Modernisierung. «Wir waren erfreut über die Aussage des Präsidenten, der eine Welt ohne Atomwaffen forderte», sagte Mark Harrison, Direktor des Programms Frieden mit
+Gerechtigkeit der Methodisten. Auch die Quäker äussern sich besorgt, so sagte deren offizieller Sprecher David
+Culp: «Die höheren Ausgaben für US-Atomwaffen provozieren schon ähnliche Antworten aus Russland und
+China. Wir gleiten langsam wieder in einen neuen Kalten Krieg, aber dieses Mal an zwei Fronten.»
+Aber die Verträge sind bereits unterschrieben. Im Oktober hat das Pentagon Northrop Grumman den Zuschlag
+für die neuen Langstrecken-Bomber erteilt. Die Gesamtkosten sind geheim, aber überschreiten voraussichtlich
+100 Milliarden US-Dollar.
+_Quelle: https://deutsch.rt.com/nordamerika/37084-obamas-russische-begrundung-fur-1/_
+
+#### NATO-Chef – Putin macht Flüchtlinge zu einer Waffe
+_Mittwoch, 2. März 2016, von Freeman um 17:00_
+Vor zwei Jahren berichtete ich: ‹Breedlove, der wirkliche Chef von Europa›. Vergesst die ganzen dummschwätzi gen Politmarionetten. Der mit der wirklichen Macht in Europa, weil ihm das ganze Militär untersteht, ist Philip
+Mark Breedlove, Viersternegeneral der United States Air Force, oberster Befehlshaber aller US-Truppen in
+Europa und seit 13. Mai 2013 Supreme Allied Commander Europe (SACEUR) der NATO Allied Command
+Operations. Ich berichtete dabei über die Teilnahme von Breedlove an der Bilderberg-Konferenz in Kopenhagen
+2014. Jetzt hat dieser Bilderberger am Mittwoch in Washington vor dem Senate Armed Services Committee –
+parlamentarischer Kontrollausschuss über das US-Verteidigungsministerium, die militärische Forschung und
+Entwicklung und der Atomenergie (soweit sie die Sicherheit der USA betrifft) – behauptet, der russische
+Präsident Wladimir Putin habe absichtlich die Flüchtlingskrise erschaffen, um Europa damit zu ‹überwältigen›
+und zu ‹zerbrechen›.
+Breedlove sagte, die Präsidenten Putin und Assad hätten die Migration ‹zu einer Waffe gemacht›, durch eine
+Kampagne der Bombardierung von zivilen Zielen. «Russland und das Assad-Regime zusammen haben absichtlich die Migration zu einer Waffe gemacht, in einem Versuch, die Strukturen von Europa zu überwältigen und
+zu zerbrechen.»
+«Diese willkürlichen Waffen, die von beiden benutzt werden, von Bashar al-Assad und die ungenauen Waffen
+von den Russen; ich kann keinen anderen Grund finden, ausser, um Flüchtlinge in Bewegung zu setzen und sie
+zu einem Problem von jemand anderem zu machen», sagte er den Senatoren.
+Das ist unglaublich, oder wie man in der Schweiz sagt: «Da chunnsch Vögel über!»
+
+
+-----
+
+_Demonstration vor der russischen Botschaft in Damaskus_
+_Sieht aber nach einer positiven Bekundung für Putin und Assad aus_
+
+General Breedlove ist damit ein unverschämter Lügner, aber nicht nur das, er ist offensichtlich auch geisteskrank
+(Anm. bewusstseinskrank), um Russland und Syrien zu beschuldigen, SIE hätten die Massenflucht nach Europa
+zu einer Waffe gemacht und überhaupt verursacht. Russland ist erst seit wenigen Monaten militärisch in Syrien
+aktiv.
+Die Flüchtlinge aus Syrien sitzen aber schon seit über ZWEI Jahren in Zeltlagern in der Türkei. Die Flüchtlingskrise hat vor langer Zeit angefangen, nämlich mit dem vor FÜNF Jahren von aussen angestifteten Versuch,
+Präsident Assad zu stürzen, mit Hilfe der angeheuerten Söldnerarmee, bestehend aus radikal islamischen
+Terroristen.
+Die USA und der Westen generell haben die verschiedenen Terrorgruppen, einschliesslich die Kopfabschneider
+der ISIS, rekrutiert, ausgebildet, finanziert und bewaffnet, um als Stellvertreter einen Regimewechsel in Syrien
+durchzuführen, so wie in Libyen vorher mit dem Sturz und der Ermordung von Gaddafi.
+Was erzählt dieser Dreckslügner und Irre den Senatoren?
+Ohne die von den USA und seinen Lakaien durchgeführte militärische Intervention in Syrien, mit diesem
+erbarmungslosen Krieg gegen die Bevölkerung, gäbe es keine Kriegsflüchtlinge. Die Syrer flüchten doch nicht
+vor Assad, sondern vor den brutalen, blutrünstigen und hasserfüllten Mördern, die ihre Heimat, ihre Dörfer
+und Städte zerstört haben.
+Gab es Flüchtlinge aus Syrien, bevor der westliche Umsturzversuch vor fünf Jahren begann? Nein, gab es nicht!
+Der Kriegsverbrecher Breedlove, der zum Grossteil auch für den Krieg in der Ukraine verantwortlich ist, will
+keine Verantwortung für die eigene verbrecherische amerikanische Interventionspolitik übernehmen, die schon
+seit mindestens 2001 weltweit wütet. Sie hat die humanitäre Krise in Afghanistan, im Irak, in Libyen und in Syrien
+ausgelöst. Und auch in der Ukraine, wo allein über 2 Millionen Ukrainer nach Russland geflüchtet sind. Wisst
+Ihr, wer überhaupt die meisten Flüchtlinge der Welt aufgenommen hat? Es ist der ach so böse Iran, mit über 7
+Millionen Menschen, die wegen der amerikanischen Kriege aus Afghanistan und Irak in den Iran flüchteten.
+Die Flüchtlingskrise, die Flut an Menschen, die vor den vom Westen geführten Kriegen flüchten, ist das Resultat
+und auch die ‹Quittung› für die zerstörerische Politik des Westens. Hat denn Präsident Putin Afghanistan angegriffen und besetzt und führt er dort seit 14 Jahren Krieg? Nein, es sind die NATO-Länder als IFOR einschliess lich Deutschland. Gell, nicht vergessen, «Deutschland wird am Hindukusch verteidigt» hat man den Deutschen
+als Ausrede erzählt und die Treudoofen haben es geschluckt. Sie haben nichts gemacht, um der Verletzung des
+Grundgesetzes durch Merkel zu widersprechen, von wegen illegalem Auslandseinsatz der Bundeswehr.
+Hat Präsident Putin vor 12 Jahren einen Krieg gegen den Irak angefangen und eine Invasion befohlen? Hat er
+die Zerstörung des Irak zu verantworten? Nein, es war das US-Regime mit seiner Koalition der Willigen
+(Erpressten). Es war auch die deutsche Bundesregierung, bzw. ihr Geheimdienst BND, der mit dem Lügner und
+Hochstapler ‹Curveball›, die Ausrede für den Angriffskrieg den Amis lieferte.
+
+
+-----
+
+Ja, die Deutschen haben Bush und Blair die erfundenen Informationen über Giftgasanlagen geliefert, die aber
+nicht existierten. US-Aussenminister Colin Powell hat diese Lügen als ‹Beweis› vor der UN-Versammlung
+vorgetragen. Deshalb habe ich auch 2011 den Artikel geschrieben: ‹Curveball oder wie man einen Kriegsgrund
+fabrizierte›.
+Hat Präsident Putin 2011 die Bombardierung von Libyen befohlen, die mehr als sechs Monate andauerte? Nein,
+es waren die USA und die NATO-Länder. Mit über 20000 illegalen Lufteinsätzen verwandelte die NATO das
+Land in einen Trümmerhaufen, zerstörte die ganze zivile Infrastruktur und tötete über 80000 Menschen. Hochrangige Bundeswehroffiziere im türkischen Izmir hatten dabei zentrale Aufgaben bei der Steuerung der Luftangriffe auf Libyen.
+Berlin soll ja nicht den Unschuldigen spielen!
+Hat denn Präsident Putin vor fünf Jahren die Parole ausgegeben: «Assad muss weg?» Nein, es waren die Staatsführer des Westens, die es bis heute immer noch verlangen. Hat Russland die Terroristen ins Land geholt, die
+die syrische Bevölkerung massakrieren? Nein, es waren die USA und Syriens Nachbarländer.
+Deshalb, wie kommt dieser Breedlove (Liebesbrüter) überhaupt auf die unverschämte Behauptung, Putin und
+Assad hätten die Flüchtlingskrise ausgelöst und würden diese als Waffe gegen Europa einsetzen? Ausserdem,
+die Menschenmassen kommen aus allen Kriegsgebieten, in denen der Westen mit Militär und Waffen gewütet
+hat.
+Was in Syrien abläuft ist doch kein Bürgerkrieg, so wie es die westlichen Politiker und Medien uns dauernd
+erzählen und glauben lassen wollen, sondern ein militärischer Umsturzversuch durch Proxy gegen eine gewählte
+Regierung, der von Washington und Co. inszeniert wird. So ein gewaltsamer Putsch lief auch in der Ukraine ab
+und ist das Standardvorgehen gegen ‹unliebsame› Regierungen, die sich dem Diktat des Imperiums nicht
+unterwerfen.
+Das einzige ausländische Militär, das in Syrien operieren darf, ist das russische Militär, denn es wurde von der
+legitimen Regierung in Damaskus als Abwehrhilfe eingeladen. Alle anderen fremden Mächte, die in Syrien
+Bomben abwerfen, mit Artillerie schiessen oder sogar Truppen haben einmarschieren lassen, machen das illegal
+und unter Verletzung des Völkerrechts und der UN-Charta.
+Jeder, der nur etwas informiert ist, durchschaut die Lügen, die Breedlove gegenüber den Senatoren äusserte. Es
+ist genau andersrum. Erst durch den erfolgreichen russischen Militäreinsatz in Syrien, der am 30. September
+2015 begann und die Terroristen zurückgeschlagen hat, ist es jetzt zu einem Waffenstillstand gekommen. Damit
+ist die Voraussetzung gegeben, dass die Flüchtlinge in ihre Heimat zurückkehren können.
+Russland bombardiert keine Zivilisten, sondern nur Stellungen der Terrorgruppen ISIS und al-Nusra, was
+ausdrücklich in der Vereinbarung enthalten ist. Ausserdem hat US-Aussenminister John Kerry die konstruktive
+Arbeit der russischen Regierung gelobt, ohne die es zu keiner Waffenruhe gekommen wäre, die ja zur Über raschung von vielen auch zum Grossteil eingehalten wird.
+Wenn jemand die Flüchtlingskrise als Waffe gegen Europa verwendet, dann sind es die Kriegstreiber in
+Washington, plus ihre hörigen Befehlsempfänger in Brüssel und Berlin. Es war doch Merkel, welche die Flüchtlinge, die bereits Schutz in der Türkei gefunden hatten, nach Europa eingeladen hat. Sie hat den Befehl gegeben,
+die EU-Gesetze Schengen und Dublin zu missachten und sie ungehindert reinzulassen.
+Man muss sich noch zusätzlich vorstellen, dieser unzurechnungsfähige Breedlove behauptet vor den USSenato ren, Russland sei der grosse Feind Europas, befehligt dabei die ganze NATO-Militärmaschinerie, die er
+gegen Russland in Gang setzen kann und ja auch schon tut, durch die Vorwärtsverlegung von Truppen und
+Waffen an die russische Grenze.
+Der gehört sofort seines Kommandos enthoben, bevor er einen Krieg mit Russland auslöst!!!
+
+Zur Info: Ich hatte leider einen Unfall. Der Taxifahrer, der mich vom Flughafen abholte und nach Hause bringen
+sollte, ist während der Fahrt eingeschlafen (Sekundenschlaf). Ich merkte, dass wir die Strasse verlassen, habe
+ihn sofort angesprochen und an der Schulter gepackt. Er wachte auf, riss das Lenkrad herum, aber es war zu
+spät und wir prallten mit der linken Seite gegen eine Böschung. Dem Fahrer ist nichts passiert, aber mich hat
+es dabei auf dem Rücksitz gegen die linke Tür geknallt. Dabei hat es meine linke Schulter gestaucht und ich war
+etwas benommen. Es ist wohl nichts gebrochen, nur Blutergüsse und Prellungen, aber laut Arzt soll ich die
+Schulter schonen und zur Entlastung und wegen der Heilung den linken Arm in einer Schlinge tragen. Deshalb
+bin ich im Moment etwas behindert beim Schreiben – hab nur die Finger einer Hand, die tippen können ;-)
+
+_Quelle: http://alles-schallundrauch.blogspot.de/2016/03/nato-chef-putin-macht-fluchtlinge-zu.html_
+
+
+-----
+
+#### Die Interessen hinter dem Antiterror-Kampf
+_2. März 2016 Der Troll von Germania_
+Kommt es auf die eine grosse Lüge um den Hintergrund des Syrienkrieges
+überhaupt noch an? Wir sollten zumindest wissen, auf welch perfide Weise der
+IS für den Krieg in Syrien gross gezogen wurde, welche Ziele dahinter stecken
+und was das für Deutschland bedeutet.
+Es ist eine jener grossen Heucheleien, mit denen die Welt seit mehr als hundert
+Jahren hinters Licht geführt wird: Am 2. Februar 2016 erklärten die Aussenminister aus 23 Ländern der sogenannten Anti-IS-Koalition in Rom voll mundig, den Islamischen Staat (Anm: Islamistischen Staat) mit allen Mitteln
+zu bekämpfen:
+«Die Mitglieder dieser Koalition erkennen vollständig an, dass dieser Kampf langwierig ist. Wir werden den
+Druck hoch halten, indem wir den IS aus jedem Winkel drängen, seine Versuche unterbinden, anderswo Netzwerke aufzubauen, seine Finanzströme unterbrechen, seine Verbündeten bloss stellen.»[1]
+
+Roland Dumas, der frühere französische Aussenminister offenbarte 2013 in einem Interview, dass er bereits
+2009, also zwei Jahre vor Beginn des Syrien-Krieges von britischen Quellen erfahren hat, Grossbritannien
+organisiere eine Rebellen-Invasion in Syrien:
+Zwei Jahre vor Beginn des Terrorkriegs gegen Syrien war der ehemalige französische Aussenminister Roland
+Dumas in England und sagte in einem Interview mit dem Fernsehsender LCP:
+«Ich war zwei Jahre vor dem Beginn der Gewaltausbrüche in Syrien wegen anderer Unterredungen in England.
+Während meines Aufenthaltes dort traf ich mich mit britischen Spitzenbeamten, die mir gegenüber äusserten,
+dass man sich darauf vorbereite, in Syrien etwas zu unternehmen.»[2]
+
+Noch früher (2007) äusserte Ex-Nato-Oberbefehlshaber Wesley Clark, ihm sei
+wenige Tage nach 9/11 (also bereits 2001) im Pentagon ein Papier gezeigt worden,
+demzufolge neben anderen Ländern auch Syrien angegriffen werden soll. [4] Und
+in einem Artikel des Wiener ‹Standard› sagte Clark am 22.5.2011:
+«Bashar al-Assad könnte das gleiche Schicksal wie Gaddafi ereilen, wenn er jetzt
+nicht seine Armee und Sicherheitskräfte unter Kontrolle bringt. Die geostrategische
+Bedeutung Libyens machen Öl und Menschen aus. Im Fall Syrien ist das geostrate gische Gewicht ein völlig anderes: Wenn Assad dort einen humanitären Anlass für
+eine Aktion gibt, könnte die Entscheidung dafür durchaus beschleunigt werden,
+weil der Wert eines Wandels in Syrien als sehr hoch eingeschätzt wird.»[5]
+
+Den humanitären Anlass hat man dann mit einem scheinbaren Giftgas-Einsatz der
+Assad-Armee geschaffen. Obwohl dieser Vorwurf bald darauf durch eine internationale Untersuchung völlig entkräftet werden konnte, war damit die Beteiligung der USA am Syrienkonflikt
+zementiert.
+Auch Frankreich sei laut Willy Wimmer (Sicherheitsexperte der CDU und Ex-Verteidigungs-Staatssekretär)
+Teil der internationalen Verschwörung:
+«Es ist ja beileibe kein Geheimnis, dass am Anfang dieser tragischen Entwicklung in Syrien französische und
+britische Kräfte stehen, die das Feuer erst mit entfacht haben …»[6]
+
+Fakt ist, dass jeder der Beteiligten eigene Interessen am Konflikt in Syrien hat. Neben den USA, England und
+Frankreich kommen noch die anderen direkt und indirekt Beteiligten hinzu, wie die Türkei, Saudi-Arabien,
+Iran, Katar, auch Russland und selbstverständlich auch Israel, das sich gekonnt im Hintergrund hält, aber eine
+sehr wesentliche Rolle spielt.
+Mit Hilfe der CIA unterstützen arabische Regierungen und die Türkei die ‹oppositionellen› Kämpfer in Syrien,
+insbesondere durch eine geheime Luftbrücke, die den Nachschub an Waffen und Kriegsgerät für den Kampf
+gegen Assad sichert.[7]
+
+Der Konflikt zwischen Schiiten und den fundamentalistischen Sunniten von der Nusra-Front (Al Quaida) und
+dem IS ist ein Stellvertreter-Krieg, an dessen langfristiger Fortsetzung Israel grösstes Interesse hat, wie vor zwei
+
+
+-----
+
+Jahren Jodi Rudoren (Chefin des Jerusalem-Büros der New York Times) gestand: «… solange die Schiiten und
+Sunniten ihre Konflikte in Syrien und der gesamten Region unter sich austragen und zu keinem Ergebnis kommen, ist Israel de facto sicherer und braucht keine Bedrohung von Seiten Syriens zu fürchten.»
+Das Interview wurde am 6. September in der New York Times abgedruckt.[8]
+
+Der christliche Pater Hanna Ghoneim aus Damaskus berichtet über die Chaos-Hölle:
+«Menschen werden von Rebellen getötet, entführt und gefoltert, von ihren Wohnungen vertrieben, ihre Häuser
+werden ausgeraubt, sie werden erpresst, Frauen vergewaltigt und Kinder missbraucht. Vielerorts werden
+Bombenanschläge verübt, Massaker finden statt, Häuser werden nach Bombenanschlägen geplündert und verwüstet. Ausländische Rebellen dringen im Namen des Islam in die Häuser der Zivilisten ein mit der Begründung: Sie möchten das Land von der Diktaturmacht befreien. Die Bewohner bekommen Angst und fliehen Hals
+über Kopf in einen sicheren Ort. […] Wer gegen die sogenannte ‹Freie Armee› der Rebellen ist, wird kurzerhand
+von ihnen hingerichtet, enthauptet oder erschossen.» [9]
+
+Die Grenzen zwischen politisch motivierter Gewalt und gewöhnlicher Kriminalität, verlaufen fliessend. Abgesehen von den beiden grössten Milizen, der Nusra-Front … und dem IS sind die meisten Kämpfer nicht ideologisch motiviert, sondern versuchen ihr eigenes Überleben zu organisieren. Das britische Militär-Fachjournal
+‹Janes Defense Weekly› bezifferte die Zahl der Gruppen, Grüppchen, Banden, Milizen Ende 2013 auf mehr als
+1000.
+Hinter diesem Chaos stehen die Interessen fremder Mächte am syrischen Ölreichtum sowie an den Gasfeldern
+vor dessen Küste. Den Gasreichtum beanspruchen auch Israel und die Türkei. Dahinter steckt auch das oben
+beschriebene Sicherheitsinteresse Israels, das auf eine möglichst lange Auseinandersetzung in seinem Norden
+baut. Dahinter steckt das Interesse der Türkei, die Verwirklichung eines kurdischen Staates zu verhindern, der
+aus Teilen der Türkei, des Irak und Syriens zustande kommen
+könnte, und Saudi-Arabien hat grösstes Interesse daran, die schiitische Macht der Familie Assad über die sunnitische Mehrheit
+in Syrien zu beenden. (Mehr zum Thema bei Geolitico)
+Zu alldem kommt das russische Interesse, seine militärischen
+Stützpunkte in Syrien zu sichern. Im syrischen Tartus liegt der
+einzige Mittelmeerhafen der Russen für ihre Schwarzmeerflotte.
+Russland will mit seinem Einsatz in Syrien aber auch der Ausbreitung des IS vorbeugen. In der überwiegend islamischen Bevölkerung in den südlichen Randstaaten Russlands könnte der
+IS sonst für beträchtliche Unruhe sorgen. Energiepolitische
+Überlegungen dürften auf russischer Seite ebenfalls eine Rolle
+spielen.
+
+Das militärische Engagement Russlands in Syrien gilt folglich der Erhaltung des syrischen Staates unter Assad,
+während die USA angesichts des russischen Einschreitens in diesen Konflikt Pläne schmieden, Syrien zu teilen.
+Nach dieser Devise arbeiten die USA seit dem Zweiten Weltkrieg in Korea, Vietnam wie zuvor bereits in
+Deutschland.
+Wie die türkische Zeitung Yeni Safak berichtet, gibt es einen konkreten Teilungsplan für Syrien seitens der USRegierung. Faktisch würde dem Plan zufolge Syrien in fünf Teile gesplittet. Die Kurden und die ‹moderaten
+Rebellen› sollen jeweils zwei Regionen und die syrische Regierung eine Region erhalten. Die ölreichen IS-Gebiete
+im Osten würden weiterhin von der Terror-Miliz kontrolliert. Zusätzlich soll es Enklaven und Korridore geben –
+Konstrukte, die im Sinne Israels und der US-Waffenindustrie für dauerhafte Konflikte sorgen dürften.
+Erst vor einer Woche hatte US-Aussenminister John Kerry erklärt, die USA würden, wenn die Waffenruhe nicht
+halte, eine Zerteilung Syriens unterstützen (The Guardian).
+
+Dass dennoch (laut Polizeibericht aus NRW 77 Prozent der Migranten nicht aus Syrien kommen und mehr als
+80 Prozent aller Migranten keine Pässe bei sich tragen und ihre Identität nicht zweifelsfrei festgestellt werden
+kann, zeugt davon, dass mit der Woge der Flüchtlinge aus dem in Syrien veranstalteten Chaos die zukunftslosen,
+bildungsvernachlässigten Hungerleider aller Herren Länder nach Europa strömen – die beste Voraussetzung für
+die USraelisch geplante langfristige Zerstörung Europas, vor allem Deutschlands.
+
+
+-----
+
+So nimmt es nicht Wunder, wenn angesichts des vielver sprechenden Millionenheeres gewaltbereiter Hungerleider
+besonders CNN weiterhin Frau Merkel bei der Masseneinwanderung ohne Obergrenze unterstützt. Heute morgen
+zeigte CNN wieder die enttäuschten Flüchtlinge an der
+griechischen Grenze nach Mazedonien. Natürlich berichtet
+CNN nicht von den aggressiven jungen Männern, die den
+Grenzzaun angriffen, sondern sprach nur von Kindern und
+Frauen, die nicht weiterkamen. Während die Frauen also
+gemäss ‹gender main stream› bei uns immer mehr gefördert
+werden, so dass alle unsere Substantive feminisiert werden
+müssen, um nicht den Stolz der Feministinnen zu verletzen,
+wird dann doch wieder an das ritterliche Verhalten der
+Männer für Frauen in Not appelliert, um die Masseneinwanderung weiter voranzutreiben. CNN propagiert
+zweifelsfrei die ununterbrochene weitere Masseneinwanderung nach Europa, um den alten Kontinent und
+damit einen Konkurrenten der USA ein für allemal zu vernichten.
+Die diese Masseneinwanderung und die Masseninfiltration vor allem Deutschlands mit Terroristen und ISKämpfern losgetreten haben, wissen, dass sie damit den Bürgerkrieg und Religionskrieg ins Land bringen. Neun
+ehemalige Generalstabs- und Truppenoffiziere haben Kopp Online ein Diskussionspapier zur Verfügung gestellt, das es in sich hat. Sie fragten sich bei einem Treffen in München: Wird sich der Islam langsam, schleichend
+ausbreiten, ohne kriegerische Handlungen, oder aber durch militärische Angriffe des IS?
+Sieben der neun Teilnehmer der Diskussionsrunde befürchten keinen langsamen, schleichenden Prozess der
+Islamisierung in Deutschland, sondern einen inneren Krieg gegen den IS, also die schnelle Islamisierung Deutschlands durch einen Krieg mit dem IS. (Mehr bei KOPP-ONLINE).
+**Der amerikanische General Philip Breedlove ist oberster militärischer Sprecher der NATO-Allianz. Er hat US-**
+**Reportern nun im Pentagon gesagt, was Angela Merkel schockieren wird: Mit den ‹Flüchtlingen› kommen**
+**Massen von Kriminellen, Terroristen und IS-Kämpfern nach Europa. Europa werde jetzt ‹wie von einem**
+**Krebsgeschwür zerfressen›. (Quelle)**
+
+_[1] http://alles-schallundrauch.blogspot.de/2016/02/an-kerry-sie-haben-daesh-erschaffen.html_
+
+_[2] www.youtube.com/watch?time_continue=1&v=UxhcFAu9Hmo_
+
+_[3] https://syrienkrieg.wordpress.com/_
+
+_[4] Michael Lüders: Wer den Wind sät, München 2015_
+
+_[5] http://derstandard.at/1304552538489/STANDARD-Exklusivinterview-Ex-Nato-Militaerchef-haelt-Intervention-in-Syrien-_
+_fuer-moeglich_
+
+_[6] www.youtube.com/watch?time_continue=1&v=UxhcFAu9Hmo_
+
+_[7] https://syrienkrieg.wordpress.com/ (Seite 76)_
+
+_[8] http://www.kontext-tv.de/sendung/16102015/mcgovern-murray/syrien_is_fluechtende_usa_
+
+_[9] https://syrienkrieg.wordpress.com/_
+
+#### Neue Bekenntnisse eines ökonomischen Profikillers: Das böse Imperium hat die Welt im Todesgriff
+_Paul Craig Roberts; Nachtwächter_
+_Mi, 24 Feb 2016 14:06 UTC_
+In meinen Archiven findet sich die eine oder andere Kolumne, in welcher der Leser in das wichtige Buch ‹Bekenntnisse eines Economic Hit Man› von John Perkins eingeführt wird. Ein EHM ist ein Agent, der der Führung
+eines Entwicklungslandes einen Wirtschaftsplan oder ein grosses Entwicklungsprojekt verkauft.
+
+Der Hit Man überzeugt die Regierung eines Landes, dass die Aufnahme grosser Geldsummen von US-Finanz instituten zur Finanzierung des Projekts den Lebensstandard des Landes anheben wird. Dem Kreditnehmer
+wird versichert, dass das Projekt das Bruttoinlandsprodukt und die Steuereinnahmen steigern wird und dass
+diese Steigerungen es ermöglichen, den Kredit zurückzuzahlen.
+**Jedoch ist der Plan so ausgelegt, dass die Vorteile übertrieben werden und das verschuldete Land den Kredit**
+**und die Zinsen nicht zahlen kann. Wie Perkins es darstellt, basieren diese Pläne auf ‹verzerrten Finanzanalysen,**
+
+
+-----
+
+überdimensionierten Prognosen und manipulierter Buchführung› und wenn die Täuschung nicht funktioniert,
+dann werden ‹Drohungen und Bestechungen› eingesetzt, um alles unter Dach und Fach zu bringen.
+
+_© army.mil / RT / wikipedia.org_
+
+Der nächste Schritt in der Täuschung ist das Auftauchen des Internationalen Währungsfonds. Der IWF erzählt
+dem überschuldeten Land, dass der IWF das Kredit-Rating des Landes retten wird, indem er dem Land Geld
+leiht, mit dem die Kreditgeber ausbezahlt werden können. Der Kredit des IWF ist keine Beihilfe, er ersetzt die
+**Schulden des Landes gegenüber Banken einfach nur durch Schulden gegenüber dem IWF.**
+Für die Rückzahlung der Schulden an den IWF, muss das Land einen Austeritätsplan akzeptieren und dem Verkauf nationaler Vermögenswerte an private Investoren zustimmen. Austerität bedeutet Einschnitte bei Renten,
+Sozialleistungen, Beschäftigung und Löhnen und die Einsparungen werden für die Rückzahlung an den IWF
+genutzt.
+**Gelegentlich verweigert sich der Führer eines Landes dem Plan oder der Austerität und Privatisierung. Falls**
+**Bestechungen nicht funktionieren, schicken die USA ihre Schakale – Auftragskiller, die das Hindernis im**
+**Plünderungsprozess aus dem Weg räumen.**
+Perkins Buch hatte für Aufsehen gesorgt. Es zeigte, dass die Attitüde der US-Hilfsbereitschaft gegenüber ärmeren
+Ländern nur ein Vorwand für die Ausbeutung dieser Länder war. Perkins Buch verkaufte sich eine Million mal
+und stand 73 Wochen auf der Bestsellerliste der New York Times.
+Jetzt wurde das Buch neu herausgegeben, mit 14 zusätzlichen Kapiteln und einer 30-seitigen Liste von Hit ManAktivitäten während der Jahre 2004 bis 2015: ‹The New Confessions of an Economic Hit Man› (bisher nur in
+Englisch erschienen).
+**Perkins zeigt, dass die Situation, trotz seiner Aufdeckungen, schlimmer ist, als jemals zuvor und sich mittler-**
+**weile in den Westen selbst ausgebreitet hat. Die Bevölkerungen Irlands, Griechenlands, Portugals, Spaniens,**
+Italiens und der Vereinigten Staaten selbst, werden jetzt durch Hit Man-Aktivitäten geplündert.
+Perkins Buch zeigt, dass die USA ausschliesslich bei der hemmungslosen Gewalt ‹einzigartig› sind, welche sie
+gegen jene anwenden, die ihnen in die Quere kommen. Eins der neuen Kapitel berichtet von France-Albert
+René, dem Präsidenten der Seychellen, der damit gedroht hatte, die illegale und unmenschliche Vertreibung der
+Einwohner von Diego Garcia durch Grossbritannien und Washington zu enthüllen, um die Insel zu einer Luftwaffenbasis umzuwandeln, von der aus Washington Länder im Mittleren Osten, Asien und Afrika bombardieren
+kann, die nicht kooperationsbereit sind.
+Washington schickte ein Team von Schakalen, um den Präsidenten der Seychellen zu ermorden, aber der Plan
+der Auftragsmörder wurde vereitelt. Bis auf einen wurden alle gefasst, vor Gericht gestellt und zu Exekution
+oder Gefängnis verurteilt, aber sie wurden durch Bestechungsgelder in Höhe von mehreren Millionen Dollar
+an René befreit. René hatte die Botschaft verstanden und fügte sich.
+In der Original-Fassung seines Buches beschreibt Perkins, wie Schakale Flugzeugabstürze arrangierten, um
+Panamas nicht fügsamen Präsidenten Omar Torrijos und Ecuadors ebenfalls nicht fügsamen Präsidenten Jaime
+Roldós loszuwerden. Als Rafael Correa Präsident Ecuadors wurde, weigerte er sich, einige der illegitimen, sich
+in Ecuador aufgetürmten Schulden zurückzuzahlen, schloss die grösste Militärbasis der Vereinigten Staaten in
+Latein-Amerika, erzwang die Neuverhandlung der ausbeuterischen Öl-Verträge, befahl der Zentralbank in USBanken eingelegte Gelder für nationale Projekte einzusetzen und wehrte sich konsequent gegen Washingtons
+hegemoniale Kontrolle über Latein-Amerika.
+
+
+-----
+
+Correa machte sich selbst zum Ziel zur Absetzung oder Ermordung. Jedoch hatte Washington gerade erst den
+demokratisch gewählten Präsidenten von Honduras, Manuel Zelaya, dessen Politik dem Volk von Honduras
+zugute kam und nicht ausländischen Interessen, mit einem Militärputsch gestürzt. Aufgrund von Bedenken,
+dass zwei aufeinanderfolgende Militärputsche gegen reformatorische Präsidenten bemerkt werden könnten,
+wandte sich die CIA an die ecuadorianische Polizei, um Correa loszuwerden.
+Angeführt von einem Absolventen der ‹Washington’s School of the Americas› leitete die Polizei Schritte zum
+Sturz Correas ein, wurden aber vom ecuadorianischen Militär überwältigt. Wie auch immer, Correa hatte die
+Botschaft verstanden. Er revidierte seine Politik zugunsten amerikanischer Öl-Unternehmen und gab bekannt,
+dass er grosse Flächen des ecuadorianischen Regenwaldes an die Öl-Firmen verkaufen werde. Er schloss die
+‹Fundacion Pachamama›, eine Organisation, die für die Erhaltung des ecuadorianischen Regenwaldes und der
+indigenen Bevölkerung arbeitete.
+**Von der Weltbank unterstützte westliche Banken sind sogar noch grössere Plünderer als die Öl- und Holz -**
+unternehmen. Perkins schreibt:
+«In den vergangenen drei Jahrzehnten haben sechzig der ärmsten Länder der Welt $ 550 Milliarden für Kredite
+und Zinsen in Höhe von $ 540 Milliarden bezahlt. Trotzdem schulden sie noch satte $ 523 Milliarden aus diesen
+Krediten. Die Kosten für die Bedienung dieser Schulden sind höher, als die Ausgaben dieser Länder für Gesundheit und Bildung und das Zwanzigfache des Betrages, den sie jährlich an Unterstützung aus dem Ausland
+erhalten. Dazu kommt, dass Projekte der Weltbank unsagbares Leid über einige der ärmsten Völker der Welt
+gebracht haben. Allein in den letzten zehn Jahren haben derartige Projekte geschätzte 3,4 Millionen Menschen
+**aus ihren Häusern vertrieben; die Regierungen in diesen Ländern haben Gegner der Weltbank-Projekte**
+**geschlagen, gefoltert und ermordet.»**
+Perkins beschreibt, wie Boeing den Steuerzahler in Washington [dem US-Bundesstaat] ausgeplündert hat.
+Unter Einsatz von Lobbyisten, Bestechungsgeldern und erpresserischen Drohungen, die Produktion in einen
+anderen Bundesstaat zu verlegen, schaffte es Boeing, den Gesetzgeber im Bundesstaat Washington zu Steuervergünstigungen für das Unternehmen zu bewegen, welche $ 8,7 Milliarden aus dem Gesundheitswesen, der
+Bildung und anderen Sozialdienstleistungen in Boeings Schatztruhe umleitete. Die massiven Subventionen zum
+Vorteil von Konzernen sind eine weitere Form der Extraktion von Geldern und Hit Man-Aktivitäten.
+Perkins hat ein schlechtes Gewissen und leidet immer noch unter seiner Rolle als Hit Man für das böse Im perium, welches sich jetzt der Ausplünderung der amerikanischen Bevölkerung zugewendet hat. Er hat alles für
+ihn machbare zur Wiedergutmachung getan, aber er berichtet, dass das System der Ausbeutung sich um ein
+**Vielfaches ausgeweitet hat und jetzt eine derartige Alltäglichkeit ist, dass es nicht mehr versteckt werden muss.**
+Perkins schreibt:
+«Eine grosse Veränderung ist, dass dieses EHM-System heute auch in den Vereinigten Staaten und anderen wirtschaftlich entwickelten Ländern am Werk ist. Es ist überall und es gibt viele Variationen eines jeden Einzelnen
+dieser Werkzeuge. Auf der ganzen Welt sind hunderttausende weitere EHM verteilt. Sie haben ein wahrlich
+globales Imperium erschaffen. Sie arbeiten ganz offen und auch im Schatten. Dieses System ist inzwischen so
+weit und tief verwurzelt, dass der normale Weg ist, so Geschäfte zu machen, und folglich für die meisten
+Menschen nicht alarmierend ist.»
+**Die Bevölkerung ist durch die Verlagerung von Arbeitsplätzen und Überschuldung derart schlimm ausge -**
+**plündert worden, dass die Verbrauchernachfrage die Profite nicht mehr tragen können. Infolgedessen wendet**
+**der Kapitalismus sich zur Ausbeutung dem Westen selbst zu. Angesichts zunehmender Widerstände, hat sich**
+das EHM-System mit «dem PATRIOT-Act, der Militarisierung der Polizeikräfte, einem gewaltigen Aufgebot an
+neuen Überwachungstechnologien, der Infiltration und Sabotage der ‹Occupy›-Bewegung und der dramatischen
+Ausweitung privater Gefängnisse» bewaffnet.
+Die demokratischen Abläufe wurden durch Entscheidungen des Verfassungsgerichts unterlaufen, durch konzern finanzierte politische Aktionskomitees und durch Organisationen wie dem ‹American Legislative Exchange
+Council›, welches von dem einen Prozent finanziert wird. Ganze Kader von Anwälten, Lobbyisten und Strategen
+werden für die Legalisierung von Korruption angeheuert und die Presstituierten machen Überstunden, um die
+leichtgläubigen Amerikaner davon zu überzeugen, dass Wahlen echt sind und die funktionierende Demokratie
+repräsentieren.
+In einem Artikel vom 19. Februar 2016 bei OpEdNews berichtet Matt Peppe, dass die amerikanische Kolonie
+Puerto Rico vollkommen verausgabt wird, um ausländische Kreditgeber zu befriedigen.
+Der Flugplatz wurde privatisiert und die wichtigsten Highways wurden durch einen Pachtvertrag über 40 Jahre
+privatisiert, der im Besitz eines von einem Infrastruktur-Investmentfonds von Goldman Sachs gebildeten
+
+
+-----
+
+Konsortiums ist. Die Puerto Ricaner bezahlen private Konzerne jetzt für die Nutzung einer Infrastruktur, die
+aus Steuergeldern geschaffen wurde. Die Umsatzsteuer in Puerto Rico wurde kürzlich um 64% auf 11,5% angehoben. Eine Umsatzsteuer-Erhöhung ist das Äquivalent zu einem Anstieg der Inflation und führt zur Verminderung der Realeinkommen.
+**Der einzige Unterschied zwischen Kapitalismus und Gangstertum heute ist, dass der Kapitalismus sein**
+**Gangstertum erfolgreich legalisiert hat und bessere Geschäfte machen kann als die Mafia.**
+Perkins zeigt, dass das böse Imperium die Welt im Griff einer ‹Todes-Wirtschaft› hat. Er schlussfolgert, dass «wir
+eine Revolution brauchen», um «die Todes-Wirtschaft zu beerdigen und die Lebens-Wirtschaft zu gebären.»
+Wenden Sie sich nicht an Politiker, neoliberale Ökonomen und die Presstituierten um Hilfe.
+
+_Übersetzung aus dem Englischen vom Nachtwächter_
+_Quelle: http://de.sott.net/article/22401-Neue-Bekenntnisse-eines-okonomischen-Profikillers-Das-bose-Imperium-hat-die-Welt-_
+_im-Todesgriff_
+
+#### Kurdenmilizen: «USA errichten zwei Militärflughäfen im Norden Syriens»
+_8.03.2016 • 07:00 Uhr_
+Die USA haben im Norden Syriens zwei Luftwaffenstützpunkte errichtet. Dies geht aus einem Reuters-Bericht
+hervor, der sich wiederum auf kurdische Medienberichte beruft. So soll es bereits eine Einrichtung mit einer
+fast komplett fertiggestellten Start- und Landebahn in Rmeilan (Provinz Hasaka) geben. Eine weitere soll nahe
+der türkischen Grenze südöstlich von Kobane errichtet werden.
+Die sogenannten ‹Syrischen Demokratischen Kräfte› (SDF), ein Dachverband sogenannter ‹moderater Rebellen›,
+der Unterstützung von Seiten der US-geführten Anti-IS-Koalition und kurdischen Kräften erhält, bestätigen die
+Vorgänge und weisen darauf hin, dass es eine Vielzahl US-amerikanischer Experten, Ingenieure und Techniker
+gebe, die sich an dem Projekt beteiligen.
+Die USA dementieren unterdessen diese Berichte. Einem in der NZZ zitierten US-Militärsprecher zufolge
+würden die USA nicht beabsichtigen, über einen der Militärflughäfen die Kontrolle zu übernehmen. Es gebe
+lediglich eine kleine Abordnung von Spezialisten, die versuchten, die Logistik zu verbessern.
+Immer noch ist die Lage in Syrien vielerorts unübersichtlich und einige Allianzen, die von Seiten der USA vor
+Ort eingegangen werden, stossen nicht überall auf Akzeptanz von Verbündeten. Dies ist vor allem dort der Fall,
+wo die Amerikaner mit den kurdischen YPG-Milizen gemeinsam agieren, die von der Türkei als syrischer Ableger der terroristischen PKK betrachtet werden. Die Türkei hatte mehrfach die Errichtung einer Sicherheitszone mit Flugverbot im Norden Syriens gefordert, die den Zweck haben sollte, zum einen Flüchtlinge aus den
+noch umkämpften Gebieten versorgen zu können, zum anderen, den sogenannten ‹moderaten Rebellen›, die
+von der Türkei unterstützt werden, ein ruhiges Hinterland zu eröffnen.
+Diese Rebellen liefern sich jedoch regelmässig Gefechte mit kurdischen Milizen, auch jüngst, eine Woche vor
+dem nächsten Versuch, die Genfer Friedensgespräche wieder in Gang zu bringen.
+Währenddessen sollen sich die Verstösse gegen die vor einer Woche in Kraft getretene Waffenruhe wieder
+häufen. Das russische Verteidigungsministerium spricht von 15 Verstössen innerhalb der letzten 24 Stunden. In
+Aleppo sollen neun Zivilisten getötet worden sein, als ein mehrheitlich von Kurden bewohntes Viertel mit
+Granaten und Raketen beschossen wurde. Die YPG, die das Viertel kontrolliert, macht protürkische Rebellen
+für den Beschuss verantwortlich.
+Die Aussenminister der Russischen Föderation, Sergei Lawrow, und sein US-amerikanischer Amtskollege John
+Kerry zeigten sich dennoch nach einem Telefonat zuversichtlich bezüglich einer Dauerhaftigkeit der Waffen ruhe.
+
+
+_Quelle: https://deutsch.rt.com/der-nahe-osten/37173-kurdenmilizen-usa-errichten-zwei-militarflughafen/_
+
+
+-----
+
+## Stimme Gegenstimme
+
+**Klarheit durch intelligente Analytiker** **Nicht gläserne Bürger - gläserne Medien,**
+
+**Weniggehörtes - vom Volk fürs Volk!** **Politiker, Finanzmogule brauchen wir!**
+
+**frei und unentgeltlich** **Weltgeschehen unter**
+
+**Inspirierend** **der Volkslupe**
+
+**S&G** **S&G**
+
+**DIE VÖLKER HABEN EIN RECHT AUF STIMME UND GEGENSTIMME**
+
+**~ Ausgabe 9/16: Sonderausgabe Gesundheit/Medien ~**
+
+**_INTRO_** **Zika-Virus – Panikmache oder Vertuschung?**
+
+**_ch./fh. Seit eineinhalb Jahren_** ge Aluminiumverbindungen. Be
+**_ch./fh. Am 1. Februar erklär-_** _sammenhang darf bei dieser_
+
+wird vor allem im Norden Bra- reits sieben Monate nach Beginn
+
+_te die Weltgesundheitsorgani-_ _angeblichen Zika-Epidemie_
+
+siliens das Insektizid Pyripro- der Impfungen wurde man auf
+
+_sation (WHO) den globalen_ _nicht au�er Acht gelassen wer-_
+
+xyfen* dem Trinkwasser beige- die Häufung von Mikrozephalie
+
+_Gesundheitsnotstand: In Bra-_ _den: Brasilien setzt sich als_
+
+mischt. Interessanterweise traten bei Neugeborenen in Brasilien
+
+_silien seien bis zu einer Mil-_ _Mitglied der BRICS-Staaten_
+
+genau dort die meisten Ver- aufmerksam.
+
+_lion Menschen am Zika-Virus_ _(Brasilien, Russland, Indien,_
+
+dachtsfälle von Mikrozephalie Anstatt diese naheliegenden Aus
+_erkrankt, das durch Stiche ei-_ _China und Südafrika) für eine_
+
+auf. Brasilien ist seit 2008 der löser zu prüfen, konzentriert sich
+
+_ner speziellen Stechmücken-_ _multipolare Weltordnung ein._
+
+weltgrößte Verbraucher von Ag- die WHO vornehmlich auf das
+
+_art übertragen werden soll._ _Damit stellt es sich gegen die_ rargiften. Gemäß einer Studie Zika-Virus, möglicherweise aus
+_Laut WHO gebe es auch eine_ _US-Regierung, die eine mono-_ wurden in der Milch stillender Gründen der Haftung. Denn im
+_auffallende räumliche und_ _polare Weltordnung unter ih-_ Mütter alarmierend hohe Werte Fall, dass ein Virus der Auslöser
+_zeitliche Verbindung zwischen_ _rer alleinigen Führung durch-_ von Agrargiften nachgewiesen. der Mikrozephalie sein sollte,
+_Zika und dem Auftreten von_ _setzen will. Der von der WHO_ Zudem wurden im Oktober 2014 wird jede Art von Schadenser_Mikrozephalie, einer Schädel-_ _erklärte Gesundheitsnotstand_ in Brasilien Schwangere gegen satzanspruch der geschädigten
+_fehlbildung an Neu- und Un-_ _schwächt die Souveränität_ Diphtherie, Tetanus und Keuch- Kinder und Familien von vorn_geborenen._ _Brasiliens, denn die WHO_ husten in Form einer Dreifach- herein ausgeschlossen. [1]
+_Gemäß Stellungnahmen der_ _kann Zwangsma�nahmen ver-_ impfung geimpft. Diese Impfung *ein Wachstumshemmer für
+_Gesellschaft für Virologie und_ _hängen. [1]_ enthält für den Menschen gifti- Mückenlarven
+_dem Robert-Koch-Institut gibt_ _In der Klagemauer.TV-Sen-_
+
+**_„Gesundheit ist das notwendige Erfordernis_**
+
+_es jedoch keinen wissenschaft-_ _dung „Die Globalisierung_
+
+**_für Wehrfähigkeit und Steuerkraft des Volkes,_**
+
+_lichen Beweis, dass das Zika-_ _als Schlüssel der weltweiten_
+_Virus ursächlich Fehlbildun-_ _US-Dominanz“ vom 14.8.2015_ **_für Leistungsfähigkeit und Lebensgenuss_**
+_gen am ungeborenen Kind_ _wird die zwielichtige Rolle der_ **_jedes einzelnen.“_**
+_auslöst. Der nebenstehende_ _WHO als Instrument zu einer_ _Carl Heinrich Reclam, deutscher Buchhändler_
+_Leitartikel gibt Hinweise, was_ _monopolaren_ _Weltordnung_
+
+**WHO schweigt zu**
+
+_die tatsächlichen Auslöser für_ _beleuchtet. (www.kla.tv/6510)_
+
+**gesundheitsschädlichen Körperpflegeprodukten**
+
+_die Missbildungen sein könn-_
+
+**_ns. Im Jahr 2014 wurden welt-_** zen sind: Bisphenol-A (BPA),
+
+_ten. Ein weiterer globaler Zu-_ _Die Redaktion (brm.)_
+
+weit 108 Milliarden US-Dollar Dioxin, Atrazin, Phthalate, Per
+**ZDF berichtet nicht neutral und ausgewogen** für Körperpflege- und Kosme- chlorate, flammhemmende Mit
+**_ab. Hans U. P. Tolzin, der_** Herrn Tolzin wurden dann aber tikprodukte ausgegeben. Die tel, Blei, Quecksilber, Arsen,
+Herausgeber der Zeitschrift geschickt ins falsche Licht Produkte enthalten Unmengen Perfluorcarbone (FKW, P-FKW),
+„Impfreport“, wurde vom ZDF gestellt und die Begründungen schädlicher Substanzen. Rund Phosphorsäureester und Glykolfür ein Interview zum Thema zu den Aussagen einfach aus 13.000 Chemikalien werden für ether. Viele davon sind auch
+Impfen angefragt. Das ZDF hat- dem Interview herausgeschnitten. die Herstellung von Körper- krebserzeugend oder generell gifte die Firma medi cine GmbH, Für den unkritischen Zuschauer pflege- und Kosmetikartikeln tig für den menschlichen Körper.
+die sich auf Industriefilme spe- stand Tolzin dann als notorischer verwendet. Davon wurden nur Laut WHO genügen zum Teil
+zialisiert, beauftragt dieses Inter- Impfgegner da, der aber keine 10 % auf ihre Sicherheit über- schon sehr geringe Mengen einer
+view zu führen. Man hatte plausiblen Gründe dafür vorwei- prüft. Von vielen Substanzen ist giftigen Substanz, um eine SchäTolzin zugesagt, dass das Inter- sen konnte. Hiermit bestätigt bekannt, dass sie giftig sind. Die digung bei Embryonen auszuview für einen Dokumentarfilm sich einmal mehr, dass das ZDF gefährlichsten Gifte sind hor- lösen. Da stellt sich doch die Fraverwendet wird, in dem Pro und keine neutrale, objektive Platt- monaktive Substanzen. Das sind ge, weshalb die WHO angesichts
+Kontra gleichberechtigt darge- form ist, sondern sich nur vor- Chemikalien, die vom mensch- dieser gesundheitsschädlichen
+stellt würden. Die Aussagen von dergründig dafür ausgibt. [2] lichen Körper für Hormone ge- Körperpflege- und Kosmetikpro
+halten werden und somit in das dukte, nicht auch den globalen
+
+**_Quellen: [1] www.kla.tv/7748 [2] http://info.kopp-_**
+_verlag.de/hintergruende/deutschland/hans-u-p-tolzin/so-funktioniert-_ fein ausbalancierte Hormonsys- Gesundheitsnotstand ausruft, wie
+_luegenpresse-im-zdf.html [3] www.zeitenschrift.com/artikel/kosmetik-gift-in-der-_ tem eingreifen. Die zwölf gefähr- sie es kürzlich anlässlich des
+_gesichtscreme#.VrkYyVLd6So_ lichsten hormonaktiven Substan- Zika-Virus getan hat? [3]
+
+
+**_INTRO_**
+**_ch./fh. Am 1. Februar erklär-_** _sammenhang darf bei dieser_
+_te die Weltgesundheitsorgani-_ _angeblichen Zika-Epidemie_
+_sation (WHO) den globalen_ _nicht au�er Acht gelassen wer-_
+_Gesundheitsnotstand: In Bra-_ _den: Brasilien setzt sich als_
+_silien seien bis zu einer Mil-_ _Mitglied der BRICS-Staaten_
+_lion Menschen am Zika-Virus_ _(Brasilien, Russland, Indien,_
+_erkrankt, das durch Stiche ei-_ _China und Südafrika) für eine_
+_ner speziellen Stechmücken-_ _multipolare Weltordnung ein._
+_art übertragen werden soll._ _Damit stellt es sich gegen die_
+_Laut WHO gebe es auch eine_ _US-Regierung, die eine mono-_
+_auffallende räumliche und_ _polare Weltordnung unter ih-_
+_zeitliche Verbindung zwischen_ _rer alleinigen Führung durch-_
+_Zika und dem Auftreten von_ _setzen will. Der von der WHO_
+_Mikrozephalie, einer Schädel-_ _erklärte Gesundheitsnotstand_
+_fehlbildung an Neu- und Un-_ _schwächt die Souveränität_
+_geborenen._ _Brasiliens, denn die WHO_
+_Gemäß Stellungnahmen der_ _kann Zwangsma�nahmen ver-_
+_Gesellschaft für Virologie und_ _hängen. [1]_
+_dem Robert-Koch-Institut gibt_ _In der Klagemauer.TV-Sen-_
+_es jedoch keinen wissenschaft-_ _dung „Die Globalisierung_
+_lichen Beweis, dass das Zika-_ _als Schlüssel der weltweiten_
+_Virus ursächlich Fehlbildun-_ _US-Dominanz“ vom 14.8.2015_
+_gen am ungeborenen Kind_ _wird die zwielichtige Rolle der_
+_auslöst. Der nebenstehende_ _WHO als Instrument zu einer_
+_Leitartikel gibt Hinweise, was_ _monopolaren_ _Weltordnung_
+_die tatsächlichen Auslöser für_ _beleuchtet. (www.kla.tv/6510)_
+_die Missbildungen sein könn-_
+_ten. Ein weiterer globaler Zu-_ _Die Redaktion (brm.)_
+
+
+**DIE VÖLKER HABEN EIN RECHT AUF STIMME UND GEGENSTIMME**
+
+
+-----
+
+**Förderung von Pornokonsum durch staatliches Gesundheitszentrum** werden kann. Unfreiwillige sexu. Das Schweizer Kompetenz- sich von sexuellen Praktiken in- das Sexualverhalten Jugendli- elle Erfahrungen seien keine Selzentrum für Gesundheit RADIX spirieren lassen oder das Gesehe- cher belastet. Laut Mediensucht- tenheit und beträfen 60 % der 17fördert über die Internetplattform ne ausprobieren. Auch schräge Expertin Tabea Freitag zeigt sich bis 20-jährigen Frauen und 30 %
+„feel-ok.ch“ die Normalisierung und perverse Sexualpraktiken in der Arbeit mit Mädchen oft, der Männer. Beschämender Fakt
+von Pornokonsum unter Jugend- seien okay. Diese Verharmlo- dass die Grenze von gewollter ist: „feel-ok.ch“ wird von zahllichen. Pornos seien, selbst bei sung steht jedoch im Wider- Sexualität zu sexuellen Übergrif- reichen Schweizer Kantonen mittäglichem Konsum, an sich nicht spruch zu den neuesten Erkennt- fen fließend ist und durch Druck finanziert und als Sexualkundeschädlich. Vielmehr könne man nissen darüber, wie Pornografie durch den Freund noch verstärkt mittel empfohlen. [4]
+
+**Wie unsere Leitmedien ticken**
+
+**_��������������_**
+
+In einem Radiointerview sprache“ mit dem WDR zurück: Wer sich nicht an diese Vorgaben
+zur Flüchtlingskrise äu�erte die Sie habe an dieser Stelle „Unsinn hält wird, wie das Beispiel von **_Hans U. P. Tolzin sagte_**
+WDR-Journalistin Claudia Zim- geredet“ und „totalen Quatsch Frau Zimmermann zeigt, durch **_nach der tendenziös manipu-_**
+mermann: Journalisten seien an- verzapft“. Zimmermanns Aussa- medialen Druck quasi zur Selbst- **_lativen Sendung im ZDF mit_**
+_gewiesen, „positiv über die Re-_ gen offenbaren, wie unsere Main- verleugnung gezwungen. Bei **_ihm als Interviewpartner:_**
+gierung zu berichten“ und nicht stream-Medien ticken: So etwas Nichtfolgeleistung wird der Ruf **_„Kein Wunder, wenn den_**
+eine „oppositionelle Haltung“ zu wie Pressefreiheit gibt es nicht, ruiniert. Beispiele dafür sind **_Massenmedien_** **_niemand_**
+verbreiten. Einen Tag nach ih- sondern es wird vorgegeben, wie stellvertretend für viele, der ehe- **_mehr glauben will. Kein_**
+rem Statement, welches in der und was man zu schreiben hat. malige FAZ-Journalist Udo Ulf- **_Wunder, dass immer mehr_**
+deutschen Presse entsprechend Aufrechterhalten wird dieser ge- kotte und die ehemalige ARD- **_Menschen ihre eigene sys-_**
+Schlagzeilen auslöste, ruderte steuerte Journalismus durch ein Nachrichtensprecherin Eva Her- **_tematische Verdummung_**
+Zimmermann „nach einer Ab- geradezu sektiererisches System: man. [5] **_nicht mehr über die Rund-_**
+
+**_funk- und Fernsehgebüh-_**
+
+**Propaganda in den Schweizer Medien**
+
+**_ren finanzieren wollen. [… ]_**
+
+Die „Neue Zürcher Zeitung” Die NZZ verbreitet in ihren Be- Berichterstattung durch die NZZ
+
+**_Das Ende der Macht der so-_**
+
+(NZZ) ist die führende Schweizer richten überwiegend Propaganda gesprochen werden.
+
+**_genannten Mainstream-Me-_**
+
+Tageszeitung für internationale der Konfliktpartei USA/NATO. [...] Die Auswertung aller 133
+
+**_dien ist absehbar, wie uns_**
+
+Themen. Doch wie objektiv und Gastkommentare und Meinungs- NZZ-Artikel zum Ukraine- und
+
+**_die dramatisch sinkenden_**
+
+kritisch berichtet die NZZ über beiträge geben nahezu durch- Syrienkonflikt ergab insgesamt
+
+**_Auflagen und Zuschauer-_**
+
+geopolitische Konflikte? Um dies gehend die Sicht dieser Kon- 833 Kriegspropaganda- Botschaf
+**_zahlen zeigen.“_**
+
+zu überprüfen, wurden während fliktpartei wieder, während Pro- ten, d.h. pro Artikel durchschnitt
+**_Dafür steigen die Auflagen_**
+
+je eines Monats alle NZZ-Be- paganda ausschließlich auf der lich 6,3 Botschaften. Davon wa
+**_und Zuschauerzahlen bei al-_**
+
+richte zur Ukrainekrise und zum Gegenseite verortet wird. Die ver- ren 739 Botschaften oder 89 %
+
+**_ternativen Medien wie S&G,_**
+
+Syrienkrieg analysiert und an- wendeten Drittquellen sind un- NATO-Propaganda und 94 Bothand des Modells von Professor ausgewogen und teilweise nicht schaften oder 11 % NATO-kri- **_Kla.TV und AZK. Auf das_**
+Anne�Morelli auf Muster von überprüfbar. Insgesamt muss von tische Propaganda. [6] **_alleine kommt es aber noch_**
+Kriegspropaganda hin ausgewer- einer einseitigen, selektiv-unkri- **_nicht an, existentiell wichtig_**
+tet. Die Resultate sind eindeutig: tischen und wenig objektiven **_ist im „digitalen Zeitalter“_**
+
+**_die internetunabhängige,_** **_per-_**
+
+**Seehofer bemüht sich um Zusammenarbeit mit Russland** **_sönliche Vernetzung. Das ist_**
+
+Beim Besuch des bay- sammenarbeit mit Russland und Konflikt gefunden werde. Von
+
+**_auch der Grund, weshalb_**
+
+rischen Ministerpräsidenten keinesfalls in Gegnerschaft zu den Befürwortern der Sankti
+**_sich die S&G Handexpress_**
+
+Horst Seehofer in Moskau am Russland gelöst werden können. onen gegen Russland wurde der
+
+**_nennt. Sinn und Zweck der_**
+
+4.2.2016, hob der russische Vor seiner Reise bemerkte See- Besuch von Seehofer bei Putin
+
+**_S&G zielt darauf ab, von_**
+
+Präsident Wladimir Putin den hofer in einem Interview, dass massiv kritisiert.
+
+**_Hand zu Hand weiterge-_**
+
+besonderen Charakter der rus- sich die Sanktionen der EU ge- Die Leitmedien haben diese Kri
+**_reicht zu werden. Denn die_**
+
+sisch-bayrischen Beziehungen gen Russland sehr nachteilig tik kurzerhand aufgenommen
+
+**_„Internet-Zensur“_** **_kommt._**
+
+hervor. Putin dankte Seehofer auf die Wirtschaftsbeziehun- und in die gleiche Kerbe ge
+**_Sind Sie schon ins Handex-_**
+
+für seine Bemühungen um ein gen Russlands mit der EU, mit schlagen. Damit zeigt sich, dass
+
+**_press-Netzwerk integriert?_**
+
+gutes Einvernehmen und die Deutschland und Bayern aus- diese nicht an einer Entspangute Zusammenarbeit. Seehofer gewirkt hätten. Besonders hart nung des Konflikts zwischen **_Wenn nein, dann bitte zur_**
+wies auf die vielen Krisenherde sei der Agrar- und Nahrungsmit- dem Westen und Russland inter- **_Vermittlung melden unter_**
+in der Welt hin und zeigte sich telsektor betroffen und er hoffe, essiert sind. [7] **_SuG@infopool.info_**
+überzeugt, dass diese nur in Zu- dass bald eine Lösung für den _Die Redaktion (brm.)_
+
+**_Quellen: [4] Infodienst Zukunft CH, Dez. 2015, S.1 | http://citizengo.org/de/ed/31350-stopp-feel-ok-schuetzt-unsere-jugend-vor-porno-sm-und-prostitution_**
+
+**[5] www.1limburg.nl/duitse-omroep-moest-positief-berichten-over-vluchtelingen?context=section-1 | www.compact-online.de/deutschlands-gesteuerte-presse-ein-**
+_gestaendnis/ | www1.wdr.de/unternehmen/wdr_berichterstattung_fluechtlinge-100.html | www.kla.tv/7351 [6] Originalauszug: https://swisspropaganda._
+_wordpress.com/die-nzz-studie/ [7] www.russland.ru/putin-russland-und-bayern-haben-besondere-beziehungen/ | www.zeit.de/politik/deutschland/2016-01/_
+_grosse-koalition-russland-wladimir-putin-horst-seehofer | www.focus.de/politik/deutschland/aus-protest-gegen-putin-besuch-eklat-bei-sicherheitskonferenz-us-_
+_senatoren-boykottieren-dinner-bei-seehofer_id_5283206.html_
+
+
+**_��������������_**
+**_Hans U. P. Tolzin sagte_**
+**_nach der tendenziös manipu-_**
+**_lativen Sendung im ZDF mit_**
+**_ihm als Interviewpartner:_**
+**_„Kein Wunder, wenn den_**
+**_Massenmedien_** **_niemand_**
+**_mehr glauben will. Kein_**
+**_Wunder, dass immer mehr_**
+**_Menschen ihre eigene sys-_**
+**_tematische Verdummung_**
+**_nicht mehr über die Rund-_**
+**_funk- und Fernsehgebüh-_**
+**_ren finanzieren wollen. [… ]_**
+**_Das Ende der Macht der so-_**
+**_genannten Mainstream-Me-_**
+**_dien ist absehbar, wie uns_**
+**_die dramatisch sinkenden_**
+**_Auflagen und Zuschauer-_**
+**_zahlen zeigen.“_**
+**_Dafür steigen die Auflagen_**
+**_und Zuschauerzahlen bei al-_**
+**_ternativen Medien wie S&G,_**
+**_Kla.TV und AZK. Auf das_**
+**_alleine kommt es aber noch_**
+**_nicht an, existentiell wichtig_**
+**_ist im „digitalen Zeitalter“_**
+**_die internetunabhängige,_** **_per-_**
+**_sönliche Vernetzung. Das ist_**
+**_auch der Grund, weshalb_**
+**_sich die S&G Handexpress_**
+**_nennt. Sinn und Zweck der_**
+**_S&G zielt darauf ab, von_**
+**_Hand zu Hand weiterge-_**
+**_reicht zu werden. Denn die_**
+**_„Internet-Zensur“_** **_kommt._**
+**_Sind Sie schon ins Handex-_**
+**_press-Netzwerk integriert?_**
+**_Wenn nein, dann bitte zur_**
+**_Vermittlung melden unter_**
+**_SuG@infopool.info_**
+
+_Die Redaktion (brm.)_
+
+
+-----
+
+#### Schluss mit der Masseneinwanderung nach Europa – Zeit für eine Umkehr
+
+_Barbara Rosenkranz kritisiert die aktuelle Flüchtlingspolitik. Foto: FPÖ_
+_23. Februar 2016 – 12:33_
+
+Jedem vernünftigen Menschen musste klar sein, dass die vollkommen unkontrollierte Masseneinwanderung
+zwangsläufig in einer Katastrophe enden muss. Dennoch hat die österreichische Bundesregierung selbst dann
+noch die Dinge treiben lassen, als sie im vorigen Frühjahr über das katastrophale Ausmass der Wanderbewegung
+längst informiert war.
+
+**Kommentar von Barbara Rosenkranz**
+Der 4. September 2015, an dem Angela Merkel mit Kanzler Faymann die Absprache getroffen hat, zehntausende
+illegale Einwanderer, die in Ungarn angelangt waren – gegen die Gesetze –, via Österreich in die Bundesrepublik
+zu transportieren, war sicherlich der Höhepunkt von Rechtsbruch, Politikversagen und dreister Tatsachen verdrehung. Statt Viktor Orbán bei der Sicherung der EU-Aussengrenze zu unterstützen, hat die Regierung
+Österreichs Ungarn für sein überlegtes und verantwortliches Handeln auch noch beflegelt. Kein Ruhmesblatt!
+Letztlich hat aber der Druck vor allem aus den Visegrad-Staaten dazu geführt, dass nun allgemein eine Begrenzung des Einwandererstroms für notwendig gehalten wird. Viktor Orbán hat gezeigt, was eine einzelne Persönlichkeit bewirken kann. Er hat nicht nur Ungarn gesichert, sondern ist zum Hoffnungsträger für viele in Europa
+geworden.
+
+**Obergrenze nicht immer sinnvoll**
+Das aktuelle Hickhack in Österreich um Obergrenzen für Flüchtlinge ist dagegen Unsinn und geht am Thema
+vorbei. Warum? Handelt es sich tatsächlich um Flüchtlinge, so sind Obergrenzen nicht hilfreich. Sind es Einwanderer, die sich ihre persönliche Lebenssituation verbessern wollen, so muss der Staat deutlich klar machen:
+Es reicht! Das heisst: Wer als Schutzsuchender nach Österreich kommt, hat Anspruch auf genau das: Auf Schutz.
+‹Echte› Flüchtlinge werden aufgenommen mit dem Ziel ihrer baldigen und hoffentlich freiwilligen Heimkehr.
+Wer hingegen einwandern darf, das steht allein im Ermessen des Einwanderungslandes und orientiert sich zum
+Beispiel an volkswirtschaftlichen Interessen. Die Rekordarbeitslosigkeit spricht klar gegen weiteren Zuzug. Eine
+willkürliche ‹Tageshöchstgrenze› ist daher völlig unsinnig.
+Auch der seit Monaten beworbene Plan der Europäischen Union einer Asyl-Quote ist strikt abzulehnen, auch
+wenn er stets von Beruhigungsfloskeln begleitet wird: Österreich wird durch die ‹gerechtere› Aufteilung der
+Asylbewerber entlastet werden – so heisst es. Doch stimmt das auch? Die Quotenregelung will sich nicht nur
+an der Bevölkerungszahl orientieren, sondern auch die Wirtschaftskraft jedes Landes heranziehen. Das ‹reiche›
+Österreich wird mit Sicherheit keinen zu kleinen Beitrag leisten müssen. Und Quoten kennen keine Obergrenze!
+Vor allem aber: Mit der Automatisierung der Einwanderung durch eine in Brüssel festgelegte Quote sind wir
+einer Politik ausgeliefert, die mit der Tradition und der Identität der europäischen Nationen längst gebrochen
+hat. Eine eigenständige Einwanderungspolitik wäre endgültig Geschichte.
+
+
+-----
+
+Dabei ist die Entscheidung darüber, wer in ein Land einreisen darf und wer nicht, eine elementare Frage für
+einen funktionierenden Staat. Die Frage ist nicht, wie die vielen (illegalen) Einwanderer auf Europa aufgeteilt
+werden sollen, sondern wie man sie von Europa fernhalten kann. Unsere Nachbarn der Visegrád-Gruppe
+(Polen, Tschechien, Slowakei und Ungarn) geben in dieser Frage ein gutes Vorbild ab. Es ist an der Zeit, dass
+auch Österreich diesen Weg einschlägt: Ein Weg zurück zur Vernunft!
+
+**Barbara Rosenkranz ist Nationalratsabgeordnete der FPÖ und betreibt den Blog www.zurueckzurvernunft.at.**
+_Quelle:_ _https://www.unzensuriert.at/content/0020120-Schluss-mit-der-Masseneinwanderung-nach-Europa-Zeit-fuer-eine-_
+_Umkehr_
+
+###### Angela Merkel
+_Posted on März 6, 2016 9:53 pm by jolu_
+#### Die Trümmerfrau
+_von Hans-Hermann Gockel_
+
+_Bundeskanzlerin Angela Merkel bei einem EU-Treffen in Brüssel Foto: picture alliance/dpa_
+
+Sie räumten den Schutt weg. Sie klopften Steine. Die Trümmerfrauen von Berlin wurden zum Sinnbild des Wiederaufbaus. Das war vor 70 Jahren. Heute sehen wir in der Hauptstadt die Trümmerfrau der Politik am Werk.
+Die Kanzlerin ist fest davon überzeugt, alles richtig zu machen: «Ich habe keinen Plan B», sagte sie vergangenen
+Sonntag bei Anne Will. Dass sie Trümmer hinterlässt, will sie nicht wahrhaben. «Abenteuer darf ich nicht
+eingehen, das verbietet mein Amtseid.» Man mag es nicht glauben, aber das hat Angela Merkel tatsächlich gesagt. Es war am 27. Februar 2012. Dreieinhalb Jahre später wird sie das grösste gesellschaftliche Experiment der
+Bundesrepublik Deutschland starten. Und grandios daran scheitern.
+
+**«Alle wollen nach Deutschland»**
+Zieht man irgendwann die Bilanz ihrer Kanzlerschaft – wobei das Ende weitaus schneller kommen kann als der
+offizielle Wahltermin –, werden zwei Daten des vergangenen Jahres die entscheidenden Fixpunkte sein. Das
+Aussetzen des Dublin-Verfahrens für Syrer am 26. August und die kurz darauf erfolgte Einladung an alle, sich
+auf den Weg nach Deutschland zu machen (4./5. September). Genau so und nicht anders wurde das in der
+arabischen Welt – und nicht nur dort – aufgefasst. Ich habe die Worte eines Kollegen des TV-Senders Al Jazeera
+noch gut im Ohr: «Alle wollen weg. Alle wollen nach Deutschland.»
+Eine Kanzlerin, die von Fussballern der deutschen Nationalmannschaft Selfies mit sich machen lässt, weiss sehr
+genau um die Wirkung von Bildern. Merkel Wange an Wange mit Flüchtlingen – das war deshalb kein Zufall,
+sondern gut überlegt. Und trotzdem falsch. Denn ihre Willkommenskultur war von Anfang an ein fragiles
+Gebilde. «Wer Politik nur empathisch macht, verliert die Orientierung.» Worte des CDU-Vordenkers Kurt
+Biedenkopf.
+
+
+-----
+
+**Soviel Zerstörung schafft nur Merkel**
+Die Folgen erleben wir heute: Die eigene Nation ist wie auf den Kopf gestellt, mit tiefen Rissen in der Gesellschaft. Städte und Kommunen sind der Überforderung preisgegeben. Mancherorts sieht man chaotische Zustände. Die politische Führung ist vollkommen zerstritten. Und aus Deutschland ist ein Bittsteller geworden.
+Wäre es nicht so traurig, man könnte sagen: Chapeau! – das schafft nicht jeder. Vor allem nicht in der Rekordzeit
+von gerade einmal sechs Monaten. Das schafft nur Angela Merkel.
+Jedes Familienunternehmen ist besser geführt als die Bundesrepublik Deutschland. Denn in einem Familienunternehmen plant man über die nächste Generation hinaus. Das hat – um nur ein Beispiel zu nennen – den
+Oetker-Konzern unbeschadet durch sämtliche Krisen des vergangenen Jahrhunderts geführt. Der Egotrip einer
+planlosen Politikerin dagegen brachte innerhalb kürzester Zeit eine Nation ins Wanken und erschüttert heute
+die Grundfesten der Europäischen Union.
+
+**«Das ist allein das Problem der Deutschen»**
+Nun muss es also der EU-Türkei-Gipfel am 7. März richten. Schon dieser Begriff ist ein einziger Etikettenschwindel. Korrekt müsste es heissen: Der Merkel-Türkei-Gipfel. Seien wir ehrlich: Alle anderen EU-Staaten
+haben sich längst vom Thema verabschiedet. Sie sind zwar noch anwesend – haben damit aber nichts mehr zu
+tun. Im Berufsleben nennt man so etwas ‹innere Kündigung›.
+Was Viktor Orbán mit Blick auf die Flüchtlingskrise schon im Oktober des letzten Jahres meinte («Das ist allein
+das Problem der Deutschen»), sehen heute unsere ‹Partner› – auch so ein Begriff, von dem man sich dank Merkel
+besser verabschieden sollte – genauso. Sie sprechen es nur nicht aus. Dafür ziehen sie umso eindeutiger ihr
+eigenes Ding durch.
+Der junge österreichische Aussenminister Sebastian Kurz konnte sich eine Portion Häme in Richtung Berlin
+nicht verkneifen: «Wir erwarten, dass Deutschland sagt, ob es noch bereit ist, Flüchtlinge aufzunehmen – und
+wenn ja, wie viele.» Im Klartext: Nennt uns eure Kontingente, wir liefern.
+
+**Recht auf Bewahrung der eigenen Identität**
+Und Viktor Orbán? Er wird sein Volk darüber abstimmen lassen, ob es sich an der ‹europäischen Lösung› der
+Angela Merkel beteiligen will. Der ungarische Ministerpräsident muss sich keine Sorgen machen. Er weiss, wie
+seine Landsleute votieren werden. Bei der Ausrufung des Referendums verwies er auf Helmut Kohl:
+«Der Altkanzler, den ich sehr bewundere, hätte niemals nationale Interessen hinter europäische Interessen
+gestellt.» Auch das, ein Seitenhieb auf Merkel. Man kann über Orbán denken, was man will. Fakt ist: Er wird
+die Umstrukturierung seines Volkes niemals zulassen. Warum auch? Jede Nation hat das Recht auf Bewahrung
+der eigenen Identität.
+
+**«Beschlossen, Deutschland zu fluten»**
+«Das Volk ist das Subjekt der Demokratie», schrieb der Freiburger Staatsrechtler Dietrich Murswiek erst kürzlich
+in einem Fachaufsatz. Der Duden definiert ‹Subjekt› als ein «mit Bewusstsein ausgestattetes, denkendes, er kennendes, handelndes Wesen.» Für die Kanzlerin ist das belanglos. Sie hat das Volk nicht gefragt, sondern
+«beschlossen, Deutschland zu fluten», wie es der Philosoph Rüdiger Safranski so treffend formulierte.
+Blicken wir mit dieser Erkenntnis auf das Gipfeltreffen der kommenden Woche. Wer mit der Türkei ernsthaft
+‹verhandeln› will, sollte zumindest einen Trumpf in der Hand haben. Doch den gibt es nicht. Die Türken bestimmen den Einsatz. Und sie bestimmen den Preis. Am Ende, da muss man kein Prophet sein, setzt Ankara die
+Aufnahme in die Europäische Union auf die Tagesordnung. Der Trümmerfrau ist inzwischen alles zuzutrauen,
+auch ein bedingungsloses Ja zum EU-Beitritt der Türkei.
+Egal, wie dieses Drama ausgeht: Merkels Zukunft sieht rosig aus. Entweder verabschiedet sie sich in die
+komfortable Rente oder sie wird Generalsekretärin der Vereinten Nationen. Ihr Name wird hoch gehandelt. So
+oder so: Die Trümmer ihrer Politik müssen andere wegräumen.
+
+_JF 10/16_
+_Quelle: https://wahrheitfuerdeutschland.de/angela-merkel-2/_
+
+
+-----
+
+#### Die Europäische Union (EU) ist ein zionistisches Konstrukt
+_7. März 2016 dieter_
+
+Δρ. Γ. Θ. Χατζηθεοδωρου Dr. Georg Chaziteodorou
+
+**von Dr. Georg Chaziteodorou (berlin-athen)**
+Was die Satrapen bzw. Vasallen des internationalen Zionismus der EU uns Morgen schon über die Probleme
+dieses Konstrukts sagen werden!!!
+
+**Bemerkung:**
+Die EU als zionistisches Konstrukt, hat mit einem ‹Europa der Vaterländer› nicht das Geringste zu tun. Wesentlich interessanter und gewichtiger als der Text des Vertrags von Maastricht selbst ist das, was er beschönigt oder
+verschweigt, z.B. in den feierlich proklamierten Zielen. Es geht tatsächlich weder um eine ‹Stärkung der Solida**rität› zwischen den Völkern Europas noch um deren ‹wirtschaftlichen und sozialen Fortschritt› und schon gar**
+nicht um die ‹Stärkung der Identität und Unabhängigkeit Europas›.
+Die Qualität der Solidarität ist sehr deutlich bei der Aufnahme der Einwanderungsströme geworden! Der Stau
+zwischen den Grenzen der ehemaligen Jugoslawischen Republik Makedonien bzw. Vardar und Hellas, spricht
+heute die eigene solidarische Sprache! Die Satrapen der EU gedenken zusätzlich die Identität der Völker Europas
+mittels gewaltsamer Herbeiführung (Bastardisierung!) einer gemischtrassischen europäischen Multikultur zu
+wahren.
+Man verschweigt weiter die wahren ‹Ursachen› der heutigen Entstehung der Einwanderungsströme. Kein Wort
+über den **‹Yinon-Plan› für** **‹Eretz Yisrael Hashlermah› vom Nil bis Euphrat, über den Plan von A.I.P.A.C.**
+(American Israel Public Affairs Commitee) zur Teilung Iraks, Syriens (in fünf Teile), Ägyptens und Libyens, der
+in der Zeitschrift Kivounim Nr. 14 vom 14.02.1982 veröffentlicht wurde. Kein Wort über die wahren Gründe
+der Entstehung von ISIL (Islamic State in Irak and the Levante) die die arabischen Staaten in Frage stellt und
+die bisherigen Grenzen aufhebt.
+Kein Wort, dass die EU die letzte Etappe auf dem Weg der Organisierung der ‹Einen Welt› mit ihrer diktatorischen
+Superregierung bildet. So hat es die Herrschaft des Götzen Mammon geplant, des Widersachers der Schöpfung
+von Anbeginn, über ‹alle Reiche und Güter dieser Welt›. Und die treuen Vasallen der EU befolgen bedingungslos
+die Befehle dieser Herrschaft.
+Wenn Hellas aber überleben will, muss es, parallel mit der Ausschaltung ihrer derzeitigen infiltrierten politischen Führung aller Schraffierungen, sehr schnell nicht nur die Eurozone, sondern auch die EU verlassen und
+einen Krieg gegen die Türkei riskieren. Hellas erstickt langsam aber sicher durch die illegalen Einwanderungsströme und benötigt die Schaffung eines Lebensraums in Jonien, Klein Asien, zur Rückführung der islamischen
+Einwanderer aus den asiatischen Ländern.
+**Was die Satrapen bzw. Vasallen des internationalen politischen Zionismus der EU uns morgen sagen werden:**
+Sie werden es heute noch nicht wagen zu sagen, dass sich die EU bereits in dem Augenblick überlebt hat, in dem
+sie am 7.2.1992 glücklich zustande gekommen ist. Sie schwärmen uns zwar etwas vor von der ‹Einen Welt›, in
+der wir doch alle leben, aber es wäre gar zu ungeschickt, würde der internationale politische Zionismus so schlau
+eingefädelte Pläne noch im vorletzten Augenblick unnütz gefährden, fiele sie jetzt mit der Wahrheit in die EU.
+
+
+-----
+
+Dennoch, wer von uns Europäern Gehirnmasse in Kopf hat, kann erahnen, was sie uns morgen sagen werden:
+**Das glatte Gegenteil von dem, was sie uns noch heute sagen. Heute ist angeblich nur das politisch vereinte**
+Maastricht-EU in der Lage, den uns allen ja gemeinsamen ‹Herausforderungen der Zukunft› gerecht zu werden.
+Schon morgen, wie heute die Wirtschafts- und Einwanderungskrise zeigt, wird die EU von Maastricht plötzlich
+ihre heutigen Probleme nicht mehr zu lösen vermögen, es sei denn in Unterordnung unter eine Weltregierung!
+Wer Gehirnmasse in Kopf hat, weiss das, denn alle ‹Argumente› gegen ein souveränes Europa der Vaterländer
+und für eine Weltregierung, die man uns morgen ‹servieren› wird, hatten die Klugscheisser Welt-Organisatoren
+(M.B. Schnapper Hrsg., Regionalism and World Organization. Postwar Aspects of Europes’ Global Relation ships. A Symposium of the Institute on World Organization, Washington D.C. 1944) schon 1944 fertig aus gerichtet!
+Es wird also kein ‹Prinzip der Nicht-Einmischung› in innere Angelegenheiten der EU geben! So wie sich heute
+die EU-Kommission massiv ‹aus regionalen Gründen› in die nationalen Belange der europäische Völker bzw.
+ihrer (im Maastrichter Vertrag faktisch bereits abgeschafften!) Mitgliedsstaaten einmischt, wird sich morgen
+die Weltregierung ‹aus universalen Gründen›, über die sie uns nicht einmal Rechenschaft schuldig ist, um die
+Belange der EU kümmern.
+**In einem solchen Europa soll Hellas keinen Platz haben und für die anderen Mitgliedsstaaten nicht so sehr**
+**Verachtung als vielmehr Mitleid empfinden! Die hellenische Nation ist trotz ihrer Wirtschaftsprobleme keine**
+**Schafherde, die nur ans Fressen denkt, und die gekauften Schäfer führen sie mit Hilfe guter Parteihunde wohin**
+**sie wollen.**
+**Für den Stoiker Epikur ist der Hellene Herr seines Lebens und gestaltet es in Freiheit, wie es ihm beliebt. Es**
+**ist stark anzuzweifeln, ob das, was ‹Kultur des Abendlandes› genannt wird, d.h. der Hintergrund des Denkens**
+**und die geistigen (Anm. bewusstseinsmässigen) Wurzeln der sogenannten europäischen Völker, sich aus den**
+**Grundlagen entwickelt hat, die den alten Hellenen zu verdanken sind.**
+**Handelt es sich hierbei vielleicht um einen Mythos?**
+_Quelle: http://krisenfrei.de/die-europaeische-union-eu-ist-ein-zionistisches-konstrukt/_
+
+#### Obama bittet Europa, sich als Austragungsort für den Dritten Weltkrieg bereitzuhalten
+_8. März 2014_
+
+**New World Order: Das Engagement unserer Freunde wird allzeit gerne unterschätzt. Bei manchen Dingen muss**
+man sogar sehr genau zwischen den Zeilen lesen und hinhören, um die Komplimente und Sorgen jener korrekt
+zu verstehen, die sich um unser Wohl sorgen. Wir alle wissen um die Fürsorglichkeit unserer weltweit konzernierten Freunde, ihrer Selbstlosigkeit und ihres endlosen Engagements für Frieden, Freiheit und Demokratie.
+
+
+-----
+
+In diesem Kontext sind auch die eher indirekten Botschaften des monetären ‹Führers der Freiheit› aus den USA
+zu betrachten. Gutes tut man lieber im Verborgenen, nicht selten auch als geheime Kommandoaktion, denn das
+Echo von den nichtsahnenden Begünstigten kommt dann viel authentischer und unbefangener rüber und soll
+auch nicht durch fehlgeleitete Annahmen verzerrt werden.
+Nun ist es ein offenes Geheimnis, dass es alle Menschen nach Brot und Spielen dürstet. Mit dem Brot wird es
+zuweilen immer knapper, weil es den Aktionären der grossen Konzerne nicht zuzumuten ist hier vermehrt
+abzugeben. Die regulären Spiele sind inzwischen völlig langweilig geworden, da braucht es mal wieder richtige
+Kracher und nicht nur die trockenen Vorbereitungskurse am PC.
+Der Dritte Weltkrieg könnte nicht nur diesen Mangel beheben. Er brächte den Menschen die sehnlichst gewünschten ‹Real-Action-Games›, nach denen sie jetzt so sehr verlangen, endlich wieder Frieden, den es nicht
+geben kann, wenn nicht zuvor ordentlich gemeuchelt wird … wenn sie schon nicht ausreichend zu Fressen bekommen. Sehr viele andere Probleme lassen sich damit natürlich auch lösen, die sind für die Menschen aber
+eher zweitrangig, deshalb lassen wir die einfach aus.
+
+**Wollt ihr den totalen Frieden …**
+… dann müsst ihr auch hingehen und den wohlwollenden, gut eingefädelten Einladungen unserer (Ver)Führer
+folgen. Hilfsweise, für diejenigen, die nicht mehr können, reicht auch die schweigende Zustimmung vor der
+Glotze schon aus, nur bitte keine Opposition. Die Diskussion, welche der beiden aufgebauschten Parteien nun
+das Völkerrecht für sich vereinnahmen darf, ist müssig.
+Die Debatte darum ist längst entschieden und die Zuordnung der Spielteilnehmer, also auf welcher Seite man
+selbst schlachten darf, ergibt sich aus dem Zugehörigkeitskreis der Massenmedien, dem man qua Wohnort und
+Nation automatisch angegliedert ist.
+Dann gibt es immer wieder diese Totalverweigerer, wie Ken Jebsen, die den Leuten etwas menschheitsüber greifend erklären wollen. Aus gutem Grund werden solche Leute in den Mainstream-Medien ausgeblendet,
+könnten sie doch die ganzen schönen Kriegsspiele versauen und die Menschen mit ihren Kommentaren miss mutig stimmen.
+Diese grandiose Show will natürlich gut organisiert sein und die ganze Welt prügelt sich schon im Vorfeld darum
+Austragungsort werden zu dürfen. Wie gerne hätten die USA selbst diesen Part doch übernommen, die
+Ausrichtung dieses Mega-Events einmal auf eigenem Territorium durchführen zu können. Auch Sie benötigen
+dringend einmal eine neue Infrastruktur. Sie wollen aber aus reiner Nächstenliebe anderen Nationen damit
+nicht das Wasser abgraben.
+Zugegeben, es ist nicht nur die pure Nächstenliebe die sie treibt, auch die traurige Erkenntnis, dass die Anreise
+der vielen Teilnehmer nach Amerika eine zu grosse Belastung darstellt. Der Aufwand, die benötigten Ressourcen
+und die blanke Zeitverschwendung für Anreise nebst sinnlosen Materialtransporten sind in höchstem Masse
+unökologisch. Abgesehen davon hätten viele der für die Teilnahme infragekommenden Staaten gar nicht die
+wirtschaftlich Potenz für solche Weltreisen, sie sind darauf angewiesen, dass derartige Ereignisse frei Haus
+geliefert werden.
+Aus besagten Gründen – wir haben da schon absolute Gewissheit erlangt – bittet Obama Europa, uns und seine
+hier residierenden EU-Unterführer, die Ausrichtung der III. Weltkriegs-Spiele zu übernehmen. Dies in der sozial motivierten Gewissheit, dann selbst mit seinen Mannen und seinem Spielgerät eine längere Anreise in Kauf
+nehmen zu müssen. Allein diese Selbstlosigkeit ist doch eine dankende Erwähnung wert, oder? Darüber hinaus
+hat die Ausrichtung dieses Wettbewerbs in Europa eine lange Tradition, man hat sich hier stets bereitwillig dafür
+hergegeben. Auch diesen guten Brauch gilt es zu bewahren.
+Anders als unsere amerikanischen Freunde können die meisten Mitspieler aus Nah- und Fernost sogar auf dem
+Landweg anreisen und wenn es sein muss auch noch zu Fuss. Und um den sozialen Gedanken perfekt zu
+machen, nehmen wir bestens dazu noch eine Region in Europa, die man sonst eher als das neue Armenhaus
+Europas bezeichnen würde. Auch diese Nation soll eine Chance auf Wiederaufbau haben.
+Wir heissen damit die Ukraine herzlichst willkommen, Stolperstein, Zündfunke und olympische Weltkriegsfackel zu werden, wenn auch ein wenig gedungen, sie wären aber nicht die Ersten, denen man auf diese Art und
+Weise die Fackel in die Hand drückt. Liebe Ukrainer, seid gewiss, wir kriegen euch da medial schon korrekt umund aufgebaut, dass es für einen grossen Knall reichen wird. Die geballte Kompetenz der westlichen Politik wird
+es euch besorgen, ihr müsst nur korrekt stillhalten, alles andere wird schon geregelt werden. Die mediale
+**Friedenshetze hierzulande hat gerade erst so richtig begonnen, aber ihr könnt euch todsicher auf unsere**
+Massenmedien verlassen, versprochen! Nur lasst noch eine Weile die braune Suppe bei euch an der Macht, sonst
+
+
+-----
+
+könnte es eng werden für die Friedensfürsten und der Grund für die angesagten Welt-Kriegs-Festspiele womöglich entfallen.
+Ach ja, dann ist da doch noch der Gregor Gysi. Der hat auch noch eine Meinung dazu, die so ganz und gar nicht
+mit den Einsichten unserer Weltführer harmoniert. Er geht noch bösartiger an die Sache heran als der Ken
+Jebsen, bemüht gar historische Entwicklungen, die man auf höchster Ebene besser nicht anspricht, weil sie das
+mühsam gezeichnete Feind-BILD enorm zu stören vermögen.
+Er droht sogar diese neuen Feierlichkeiten als völlige Sinnlosaktion wider die Menschlichkeit zu entlarven. Wer
+kann das wollen? Was können wir doch froh sein, dass die Linken in Deutschland nichts mehr zu melden haben.
+Das haben wir Ihnen ja bei der letzten Wahl schon amtlich bescheinigt. Auch Gregor wird man mit seinen Erkenntnissen im Mainstream nicht mehr vorlassen, dazu sind seine Einsichten viel zu investitionsgefährdend,
+eben ein ausgewiesener Gegner des Kapitals.
+Selbst wenn die in der Überschrift formulierte Aussage nicht so direkt rüberkommt, genügt es doch dem derzeit
+zu beobachtenden Handlungsstrang konsequent zu folgen, um diese eindeutige und wohlwollende Geste aus
+Übersee korrekt erkennen zu können. Es wäre auch diplomatisch höchst ungeschickt, solche Empfehlungen
+offen zu postulieren, weil es sonst immer wieder die Neider auf den Plan ruft. Dennoch dürfen wir davon ausgehen, dass es Obama ernst meint und wir die Begünstigten seiner tiefgründigen Überlegungen sind. Immerhin
+hat er doch einen Friedensnobelpreis, das muss schon für seine guten Absichten bürgen, auch wenn seine
+Friedenstauben für gewöhnlich motorisiert, unbemannt und bis unter die Schwanzfedern bewaffnet sind.
+**Sich wiederholende Schluss-Szene:**
+
+Natürlich werden die Organisatoren nicht selbst zu diesen blutigen und monströsen Kriegsfestspielen erscheinen.
+Sie sind doch viel zu hart mit der Organisation des Wohlergehens der Menschheit beschäftigt, worauf sie all
+ihre Lebensenergie und soziales Engagement verwenden. Aber dann, zum Ende der Veranstaltung werden sie,
+als fast alleinig Überlebende aus den Bunkern hervorkriechend, sich auf Herrschaftsebene wieder herzen, kräftig
+in den Arm nehmen, den wiedergefundenen Frieden mit Champagner ausgiebig begiessen, neue grossartige
+Abkommen schmieden, die Menschenrechte optimieren, für noch mehr Recht und Gesetze sorgen, die bösen
+Menschen jetzt endgültig und weltweit totalüberwachen und die wieder aufgeflammte Gewalttätigkeit der
+Völker untereinander unerbittlich geisseln. Amerika und Obama selbst sehen sich bestimmt heute schon in der
+Rolle der Gewinner und Friedenstifter, bestimmt auch als kleine Entschädigung eben nicht selbst den Aus tragungsort stellen zu können.
+Ergänzend werden sie (die Führer) einen weiteren (Mein)Eid darauf leisten, dass so etwas nie wieder stattfinden
+darf, sich ihre Friedensnobelpreise abholen und schnellstens in die Zentralen ihrer Konzerne zurückkehren, um
+Kriegskasse zu machen (Boni abholen), für ihr gnadenloses Engagement für Wirtschaft, Wachstum, Wiederaufbau, Handelsfreiheit und die Macht des Geldes. Übrigens, die derzeit einzig anerkannte Gottheit auf diesem
+Planeten.
+Sie werden dann den bösen Menschen ins Gewissen reden, künftig solche Feindseligkeiten gegen andere Völker
+tunlichst zu unterlassen, ausser es muss eben mal wieder zu den von der Herrschaft erkannten Zwecken sein.
+Und sie werden natürlich durch zahlreiche Kranzniederlegungen und herzzerreissende Trauerreden den Hinter bliebenen bei der Bewältigung der neuen Ödnis helfen. Aus purer Mitmenschlichkeit, wegen der unsäglichen
+
+
+-----
+
+Opfer, die die Menschen zu ihrem eigenen Wohl den Konzernen dargebracht haben, nur um einen neuen Zyklus
+des Wachstums für den widernatürlichen Zinseszins zu gebären. Ok, dann lasst uns jetzt mal anfangen … wir
+wissen ja inzwischen, wofür wir da gebraucht werden. Und Wiederaufbau bedeutet Arbeit und Vollbeschäftigung für die Überlebenden, wenn das keine Verheissung ist, was dann? Und wer es noch klarer verstehen möchte,
+ohne denken zu müssen, hier die kurze Liebesgeschichte auf Englisch:
+
+#### Kriminelle fluten Europa
+_7. März 2016 Der Troll von Germania_
+**Der amerikanische General Philip Breedlove ist oberster militärischer Sprecher**
+**der NATO-Allianz. Er hat US-Reportern nun im Pentagon gesagt, was Angela Mer-**
+**kel schockieren wird: Mit den ‹Flüchtlingen› kommen Massen von Kriminellen,**
+**Terroristen und IS-Kämpfern nach Europa. Europa werde jetzt ‹wie von einem**
+**Krebsgeschwür zerfressen›.**
+Udo Ulfkotte: Nato-Oberbefehlshaber fällt Bundesregierung in den Rücken (KoppVerlag).
+Die Generale der Nato halten sich normalerweise mit öffentlichen Äusserungen
+zurück. Aber seit dem Beginn des Asyl-Tsunami ist nichts mehr normal im euroatlantischen Raum. Und Philip M. Breedlove, dem Oberbefehlshaber der Nato, ist
+nun offenkundig der Kragen geplatzt.
+Während die deutsche Bundesregierung sagt, mit den vielen einreisenden orientalischen
+und nordafrikanischen Fachkräften (Angela Merkel spricht gern von ‹afrikanischen
+Chemielaboranten›) werde unsere Zukunft bunter, schöner, harmonischer, friedlicher und
+bereicherter, sagt der Oberbefehlshaber der Nato das genaue Gegenteil: Er hat vor Reportern hervorgehoben, viele IS-Kämpfer mischten sich in Ländern wie Deutschland unter
+Flüchtlinge, es kämen jetzt ‹Terroristen, Kriminelle und Kämpfer›.
+Und auch der IS verbreite sich dank der ‹Flüchtlinge› in Europa wie ein Krebsgeschwür.
+
+
+-----
+
+Alle westlichen Medien (auch der politisch links stehende Londoner Guardian und der US-Sender CNN) berichten gross darüber. Und alle grossen Militärportale verbreiten die Schreckensnachricht.
+In Deutschland erfahren die Bürger derzeit nichts darüber: Kein Wort dazu in der
+Systempresse von unseren Lügenjournalisten. In Deutschland gibt es vielmehr AntiNeid-Kurse für die Einheimischen, die für Asylanten nun auch noch glücklich
+lächelnd Designermöbel zusammenschrauben.
+Dabei wäre ein Blick auf jene, die zu uns nach Deutschland kommen, dringender
+notwendig denn je. In Recklinghausen hat man das gemacht. Und von 903 unlängst
+Überprüften, wurden 180 als Kriminelle identifiziert, unter ihnen auch Terroristen –
+und das NUR in einer einzigen und dazu noch relativ kleinen Stadt wie Reckling hausen.
+Im Mekka Deutschland sollen die Bürger so etwas nicht erfahren. Und die Asylindustrie
+soll weiter unterstützt werden. Linke Aktivisten üben derzeit Druck aus, damit euro päische Lügenmedien nicht über die Warnungen des Oberbefehlshabers der Nato
+berichten. In Deutschland scheinen sie damit bislang erfolgreich zu sein.
+Die Bundesregierung dürfte das freuen. Denn die Aussagen des Oberbefehlshabers der Nato würden bei den
+bevorstehenden Landtagswahlen wohl noch mehr Bürger nachdenklich machen und vielleicht in die Arme der
+AfD treiben.
+Dazu passend die Orban-Rede zur Lage der Nation, Budapest, 28. Februar 2016.
+Donald Trump: «Angela Merkel ist geisteskrank! Es wird in Deutschland Bürgerkrieg geben.»
+
+**Buchempfehlung:**
+**Die Zensoren**
+_Robert Darnton_
+**Der Zensor, dein Freund und Überwacher!**
+**Ein ungewöhnlicher Blick auf die Rolle der Zensur in autoritären Staaten**
+Der Zensor als systemtreuer, ignoranter Bürokrat, der einem autoritären, repressiven Staat dient und der
+Literatur erheblichen Schaden zufügt – dies ist das gängige Bild. Dass es jedoch viel zu kurz greift, beweist Robert
+Darnton in seiner fesselnden, glänzend recherchierten Darstellung. Der renommierte US-Historiker zeigt, nach
+welchen Mechanismen die Kontrolle von Literatur funktioniert hat und wer die Menschen waren, die dahinter steckten.
+Das vorrevolutionäre Frankreich, Indien zur Zeit der Kolonialherrschaft, das DDR-Regime – um sich dem
+Phänomen der Zensur zu nähern, blickt Robert Darnton auf unterschiedliche Zeiten und unterschiedliche Orte.
+Im Mittelpunkt seiner Studie steht die Person des Zensors, seine Arbeit, sein Selbstverständnis, seine Beziehung
+zu Autoren, Verlegern und Buchhändlern. Dass der Zensor dem Literaturbetrieb nicht notwendigerweise
+schaden wollte, sondern sich bei aller Staatstreue auch als sein Unterstützer begriff, ist nur eine der überraschenden Erkenntnisse. So entsteht auf Grundlage exklusiven Quellenmaterials ein ungewöhnliches, facettenreiches
+Stück Kulturgeschichte.
+
+«Grossartig. Darntons aufschlussreiche Darstellung glänzt durch beeindruckendes Detailwissen und liefert
+ungewöhnliche Einblicke.» Timothy Garton Ash
+
+_Quelle: http://krisenfrei.de/kriminelle-fluten-europa/_
+
+
+-----
+
+-----
+

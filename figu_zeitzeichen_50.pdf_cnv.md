@@ -1,0 +1,1423 @@
+**L**
+
+**WESEN FREMDER WELTEN**
+
+# FIGU– BESUCHEN DIE ERDE
+
+**Freie**
+
+# ZEITZEICHEN Interessengemeinschaft
+
+**FIGU**
+
+### Aktuelles • Einsichten • Erkenntnisse r
+
+**Erscheinungsweise:** **Internetz: www.figu.org** **2. Jahrgang**
+**Sporadisch** **E-Brief: info@figu.org** **Nr. 50, Juli 2016**
+
+###### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+Laut ‹Allgemeine Erklärung der Menschenrechte› vom 10. Dezember 1948, Artikel 19, ‹Meinungs- und Informationsfreiheit›:
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die**
+**Freiheit, Meinungen unangefochten anzuhängen und Informationen und Ideen mit allen**
+**Verständigungsmitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Aussagen und Meinungen müssen nicht zwingend identisch sein mit Gedanken, Interessen, Lehre und Missionsgut der FIGU.
+
+#### Journalist: «Wir müssen so berichten, wie es Frau Merkel gefällt!»
+_Posted on July 12, 2016 by admin_
+**WDR Indendant Tom Buhrow verneinte es jüngst ausdrücklich. Zweifel**
+**blieben.**
+Jetzt sagt ein leitender ZDF-Journalist: «… Wir müssen so berichten, wie es
+**Frau Merkel gefällt … Das ist Regierungsjournalismus …»**
+
+**ZDF Top-Journalist: «Wir müssen so berichten, wie es Frau Merkel gefällt!»**
+**Der Journalist und Publizist Wolfgang Herles, der jahrelang für das ZDF in leitenden Positionen tätig war, hat**
+**konstatiert, dass es im Sender ‹Anweisungen von oben› gebe. «Auch im ZDF sagt der Chefredakteur, ‹Freunde,**
+wir müssen so berichten, dass es Europa und dem Gemeinwohl dient›. Und da muss er in Klammer gar nicht
+mehr dazu sagen, ‹wie es der Frau Merkel gefällt›», so Herles am Freitag im ‹Deutschlandfunk›.
+**Solche Anweisungen habe es auch früher schon gegeben. «Es gab eine schriftliche Anweisung, dass das ZDF**
+**der Herstellung der Einheit Deutschlands zu dienen habe. Wir durften damals nichts Negatives über die neuen**
+Bundesländer sagen – heute darf man nichts Negatives über die Flüchtlinge sagen – das ist Regierungsjournalismus.» Wolfgang Herles war in den 1980er Jahren stellvertretender Hauptredaktionsleiter Innenpolitik beim
+ZDF und Leiter des Bonner Hauptstadtstudios. In den letzten Jahren engagiert er sich beim ZDF im Bereich
+von Kultursendungen.
+
+**Zuvor schon ähnliche Vorwürfe gegen WDR**
+**Die WDR-Journalistin Claudia Zimmermann behauptete im niederländischen Radio, es gebe in den öffent-**
+**lich-rechtlichen Medien eine Anweisung, sich an der Flüchtlingspolitik der Regierung zu orientieren. Dem-**
+nach wurden Journalisten des Westdeutschen Rundfunks dazu angehalten, positiv über Flüchtlinge und die
+Flüchtlingspolitik von Bundeskanzlerin Angela Merkel zu berichten. «Wir sind natürlich angewiesen, pro
+Regierung zu berichten», sagte die WDR-Journalistin Claudia Zimmermann in einer Diskussionsrunde des
+niederländischen Radioprogramms ‹De Stemming› (Die Stimmung). Der Fall sorgte auch in
+den Niederlanden für Schlagzeilen.
+
+**Zurückgerudert aus Angst um den Job?**
+**Die ZEIT und andere Medien schikanierten die WDR-Journalisten nach ihren Aussagen**
+**sofort massiv. Diese knickten anlässlich des politisch korrekten Bombardements schliesslich**
+
+
+**Freie**
+
+
+-----
+
+**ein. Druck gab es offenbar auch vom Sender selbst, der diese Vorwürfe nicht auf sich sitzen lassen wollte. Nach**
+einem ‹Gespräch› mit dem WDR erklärte Claudia Zimmermann sodann: «Ich habe an dieser Stelle Unsinn
+geredet. Unter dem Druck der Live-Situation in der Talkrunde habe ich totalen Quatsch verzapft. Mir ist das
+ungeheuer peinlich.» Weiter: «Der WDR steht für einen ausgewogenen und unabhängigen Journalismus. Unser
+breit aufgestelltes Programm zeigt besonders in diesen Tagen, wie umfangreich, unabhängig, kritisch und
+differenziert wir über die Flüchtlingsproblematik berichten.»
+**Sieht so aus, als wenn diese Aussage von der Pressestelle des WDR diktiert wurde. Doch dazu wollte sich die**
+**Journalistin nicht äussern. Nach den Aussagen von Wolfgang Herles erscheint das Statement von Claudia**
+**Zimmermann mehr als fragwürdig. ARD und ZDF bedienen offenbar klar die Vorgaben der Regierung, denn**
+von dieser werden sie schliesslich auch beschützt und der TV-Zwangsbeitrag garantiert. Die TV-Schutzgeld erpresser in Berlin fordern jedoch ihren Tribut. In vorauseilendem Gehorsam und aus Angst vor Sanktionen
+werden die Vorgaben aus Berlin scheinbar übereifrig erfüllt.
+
+**ARD und ZDF: Staatsfunk?**
+**Doch wer Angst hat, macht Fehler. Beim öffentlich-rechtlichen Rundfunk muss die Angst derzeit gross sein.**
+**Die Ereignisse von Köln und die massiven Reaktionen aus der Bevölkerung haben die Staatsfunker verun -**
+**sichert. Was seit Jahren gängige Praxis und selbstverständlich ist, gerät nun zunehmend in die Kritik. Die Ge-**
+bührenzahler werden sensibler, lassen sich nicht mehr ganz so leicht mit ideologisch gefärbten und gesiebten
+Informationen abspeisen und holen sich Informationen vermehrt aus ‹verruchten› Quellen aus dem Internet.
+**Dass sich die Machtverhältnisse verschieben und sich der Medienkonsum verändert hat, will man beim**
+**öffentlich-rechtlichen Rundfunk einfach nicht zur Kenntnis nehmen. Die Folgen: Kein Tag ohne neue Fehler,**
+Peinlichkeiten und Skandale. Die Staatsfunker verspielen gerade die letzten Reste ihrer Glaubwürdigkeit.
+**Der öffentlich-rechtliche Rundfunk hat seine Aufgaben und hehren Ziele, wie Qualitätsjournalismus, Ab -**
+**bildung aller Meinungen oder kritische Berichterstattung, längst aufgegeben und ist zum platten Propaganda-**
+**funk und zur politisch korrekten Erziehungsanstalt mutiert. Das ist zwar nicht neu, aber Köln hat den demo-**
+kratischen, journalistischen und moralischen Niedergang dieser staatlichen Institutionen in ein grelles Licht
+gerückt.
+_Quelle: anonymousnews.ru bzw. http://marialourdesblog.com/journalist-wir-mussen-so-berichten-wie-es-frau-merkel-ge-_
+_fallt/_
+
+#### «Der Zerfall der EU ist folgerichtig, die Nato bricht zusammen» – Schirinowski
+_von Noch.info · Juni 25, 2016_
+**‹Nein zur Finanzmafia›: Russische Hardliner bejubeln den Ausgang der**
+**Brexit-Abstimmung: Sie sehen die EU vor dem verdienten Zerfall, eine Ab -**
+**nabelung von den USA – und fantasieren von einer Eurasischen Union.**
+
+Auch weiter östlich, in Moskau, löste das Abstimmungsergebnis Jubel aus.
+Der russische Nationalistenführer Wladimir Schirinowski sagte, das «länd**liche, provinzielle, arbeitende Grossbritannien hat Nein gesagt zu der**
+**Union, die von der Finanzmafia, Globalisten und anderen geschaffen wurde.» Man müsse «froh sein darüber,**
+**dass Europa die Freiheit bekommt. In fünf Jahren werden sie den Begriff ‹Europäische Union› vergessen**
+**haben.» Der Zerfall der EU sei «folgerichtig, die Nato bricht zusammen, den Schengenraum wird es nicht mehr**
+**geben.»**
+Diese Lesart ist in Russland populär. Medien und Politiker glauben seit Jahren Parallelen zwischen der EU und
+der vor 25 Jahren zusammengebrochenen Sowjetunion zu erkennen. 1990 hatte die Unabhängigkeitserklärung
+der drei baltischen Staaten Estland, Lettland und Litauen eine Kettenreaktion ausgelöst, an deren Ende das Ende
+des kommunistischen Weltreichs stand.
+**«Das ist der Beginn des Zerfalls der Europäischen Union, die der US-Politik als Schlagstock gedient hat», die**
+**Briten hätten endlich rebelliert gegen die ‹Brüsseler Bürokratie›, jubelt Kommunistenchef Gennadij Sjuganow,**
+71, selbst gross geworden in der sowjetischen Kommandobürokratie.
+Aber auch als wirtschaftsliberal geltende Politiker schlagen ähnliche Töne an. Dank des Brexit werde der Einfluss
+der Angelsachsen auf Europa schwinden. Die Briten hätten innerhalb der EU als verlängerter Arm der USA ge
+
+-----
+
+wirkt, glaubt Boris Titow, Ombudsmann des Kreml für die Privatwirtschaft und neuerdings Chef der ‹WachstumsPartei›. Die Folge sei «nicht die Unabhängigkeit Grossbritanniens von Europa, sondern die Unabhängigkeit
+**Europas von den USA.» Davon werde Russland profitieren, nun sei es «nicht mehr weit bis zu einem vereinten**
+**Eurasien, in zehn Jahren.»**
+_Quelle: http://noch.info/2016/06/der-zerfall-der-eu-ist-folgerichtig-die-nato-bricht-zusammen-schirinowski/_
+
+#### «Die Europäische Union ist tot»
+_27.06.2016 • 13:12 Uhr_
+**Für die globalisierten Eliten übertrifft der Brexit die schlimmsten Alpträume**
+**und war nicht wirklich vorstellbar. Für alle, die aufmerksam die europäi-**
+**schen Nachrichten verfolgten und sich der zunehmend ablehnenden öffent-**
+**lichen Haltung bewusst sind, der sich die EU zu Recht ausgesetzt sieht, war**
+**er jedoch ganz im Gegenteil vorhersehbar. Ein Gastbeitrag des Europa-**
+**Spezialisten Pierre Levy.**
+
+Eines liegt zunächst einmal ganz klar auf der Hand. Zwar hat ein Teil der englischen Bourgeoisie den Austritt des
+Vereinigten Königreichs aus der Europäischen Union unterstützt. Dennoch gibt es eine frappierende Spaltung:
+Da sind auf der einen Seite die institutionellen und politischen Eliten, und bis auf wenige lobenswerte Aus nahmen die der Gewerkschaften, die City, die Banken, die Chefs der Grossunternehmen, von denen 1300 in den
+Tagen vor der Abstimmung einen letzten Appell gestartet hatten, und die vornehme urbane Gesellschaft. Auf
+der anderen Seite sind die Arbeiterviertel, die Arbeiterstädte und vernachlässigten Vorstädte, ganze Regionen,
+die bei der Industrialisierung vergessen und aufgegeben wurden.
+Es ist vor allem dieser tief klaffende Abgrund, der das Ergebnis bestimmt hat. Im Übrigen muss man sich nur
+die bissigen Spötteleien anhören, die gegen diese ‹benachteiligten Bevölkerungsschichten› losgelassen werden,
+die ‹ein niedrigeres Bildungsniveau› haben, ‹irrational und vom Hass bewegt› sind. Diese Klassenverachtung –
+die durch den Zorn über die Niederlage noch gehässiger wird – sagt viel über die wirkliche Natur dessen, was
+auf dem Spiel steht.
+Auch die nicht enden wollende Liste der Mitglieder der Heiligen Allianz, die monatelang alles versuchte, um die
+angekündigte ‹Katastrophe› zu vermeiden, sagt einiges aus: G7, Staats- und Regierungschefs, Minister, Chefs
+multinationaler Unternehmen, Bankiers, Ratingagenturen, OECD, IWF und NATO. Die USA schossen mit dem
+eigens hierzu erfolgten Besuch von Präsident Obama in London den Vogel ab.
+Gewiss, jedes Land hat seine eigene politische Kultur. Aber dieser Gegensatz zwischen ‹Oben› und ‹Unten› in der
+Gesellschaft ist eine Konstante, die sich in allen Volksabstimmungen über Europa wiederfindet. Denn Brüssel
+hat dieses «Ihr könnt uns mal» binnen knapp eines Jahres zum vierten Mal gehört. Auch die Griechen im Juli
+2015, die Dänen im Dezember 2015 und die Niederländer im April 2016 hatten bei Volksabstimmungen zum
+Thema Europa ein lautes Nein ausgesprochen.
+Diese soziale Geografie der Ablehnung der europäischen Integration war besonders beeindruckend beim französischen Referendum im Mai 2005, als gegen den Vertrag über eine Verfassung für Europa entschieden wurde.
+Eine Wahl, die in gewisser Weise ein erstes Erdbeben in der EU darstellte.
+Zum damaligen Zeitpunkt waren es die Arbeiter und die Welt der Arbeit im Allgemeinen, die Ausgebeuteten,
+die Beherrschten, die sich gegen ein europäisches Projekt auflehnten, dessen wesentliches Ziel man in etwa so
+zusammenfassen könnte: Den Völkern, wohlgemerkt ‹Völkern› im politischen, nicht im ethnischen Sinne, die
+Freiheit nehmen, die großen Entscheidungen selbst zu treffen, die ihre Zukunft bestimmen. Schon der Begriff
+‹Schicksalsgemeinschaft›, mit dem sich die EU selbst definiert, sagt schon alles aus: Es ist verboten, andere Entscheidungen zu treffen als die von der ‹Gemeinschaft› vorgegebenen, und vor allem steht das ‹Schicksal› über
+dem menschlichen Willen.
+Ganz nebenbei bemerkt trägt die höchste, von der Europäischen Union verliehene Auszeichnung den Namen
+‹Karlspreis›. Die Namenswahl sagt viel über die imperialen Ambitionen dieser ‹Konstruktion› aus, die direkt nach
+dem Krieg von Washington aktiv gefördert wurde.
+Dieser Wunsch, ihre kollektive politische Freiheit wiederzuerlangen – der rechtliche Begriff dafür lautet ‹Souveränität›, ein Konzept, das oft karikiert wird, obwohl es sich um den eigentlichen Rahmen der realen Demokratie
+handelt –, entspricht häufiger einem kollektiven Streben als der ausdrücklichen Motivation eines jeden Bürgers.
+
+
+-----
+
+Die britischen Wähler haben sicherlich auch nicht vergessen, wie das französische Nein zum europäischen Verfassungsvertrag verhöhnt wurde und auf welch erniedrigende Weise die Iren behandelt wurden, als man sie – zwei
+Mal – aufforderte, ihre Wahl zu wiederholen, weil sie nicht auf Anhieb die richtige Antwort abgegeben hatten.
+Ein solcher Amtsmissbrauch wird mit den Engländern nicht möglich sein. Sie haben gerade eine ganz einfache
+Botschaft abgegeben: Wir können gehen. Die Konsequenz daraus liegt klar auf der Hand: Die Europäische
+Union ist tot. Die einzigen Unbekannten sind Form und Datum des Untergangs.
+1989 begann mit dem Fall der Berliner Mauer eine Ära, in der die westliche Führung hoffte, ihre Vormacht auf
+die ganze Welt auszudehnen, den Völkern ihre Freiheit zu nehmen und dabei gleich auch noch im wahrsten
+Sinne beispiellosen Sozialabbau durchzusetzen.
+Wie es weitergeht, steht nicht geschrieben. Doch am 23. Juni 2016 hat sich eine gewaltige Umkehr des Kräfteverhältnisses abgezeichnet. Allen progressiven Kräften sei nahegelegt, das Ausmass des Vorgangs in seiner
+ganzen Bedeutung zu bemessen.
+_RT Deutsch bemüht sich um ein breites Meinungsspektrum. Gastbeiträge und Meinungsartikel müssen nicht die Sichtweise der_
+_Redaktion widerspiegeln._
+_Quelle: Reuters_
+_Quelle: https://deutsch.rt.com/meinung/39128--europaische-union-ist-tot/_
+
+#### Gauck: Die Bevölkerungen sind im Moment das Problem
+_Posted by Maria Lourdes - 26/06/2016_
+**Nach den offenbarenden Worten von Wolfgang Schäuble ist nun auch Bun-**
+**despräsident Gauck aus der Rolle gefallen und lässt einen Blick auf das See-**
+**lenleben der bundesdeutschen Politik zu.**
+
+**Der bürgernahe ‹Bundes-Gauckler› hat wieder einmal ‹zugeschlagen› …**
+Fest steht: Mit Gaucks Aussagen lassen sich keine Probleme lösen. Höchste Zeit, aufzuwachen und sich endlich
+ernsthaft mit den Problemen unseres Landes auseinanderzusetzen … unangenehme Wahrheiten und wie
+Deutschland die Probleme endlich in den Griff bekommt … erfahren Sie hier!
+
+**Gauck: Die Bevölkerungen sind im Moment das Problem**
+**Noch-Bundespräsident Joachim Gauck führte nach der Bekanntgabe seines Verzichts auf eine zweite Amtszeit**
+**ein erstes Interview mit der ARD. Mit seiner gewohnt pastoralen Attitüde plapperte Gauck über Themen wie**
+**Europa, den Brexit und darüber, dass ‹Menschen Schindluder› treiben. All dies in seiner typischen Art und**
+Weise, die den kritischen Zuseher abwechselnd zum Lachen und dann auch zum Weinen bringen kann.
+
+**Beim Interview sagt Gauck dann etwas absolut Unglaubliches:**
+«Die Eliten sind gar nicht das Problem, die Bevölkerungen sind im Moment das Problem.»
+**Gauck bezieht dieses ‹Problem› auf den Prozess der kontinuierlichen euro -**
+**päischen Integration, also der Abschaffung jeder nationalen Identität und**
+**der Erschaffung eines europäischen Superstaates. Die (Finanz-)Eliten be-**
+grüssen natürlich jede weitere Erweiterung ihres finanziellen Spielraums,
+während dieses undankbare ‹Pack› seine Identität zum Verrecken nicht aufgeben will! Wie können die Völker nur so ‹verrückt› und undankbar sein?
+**Gauck beeilt sich aber hinzuzufügen, dass man mit ‹denen› (wörtlich!!) jetzt**
+**ja verstärkt wieder mehr reden müsse, warum sie denn überhaupt Angst**
+
+_DIVISION DUISBURG_
+
+**haben. Kurz: Man muss dem dummen besorgten Bürger einfach nur seine**
+Ängste ausreden, dann bleibt er ein einfach zu führender dummer Bürger.
+**Nun ist Gauck nicht irgendein Hinterbänkler und auch kein unbedeutender kleiner Funktionär. Auch wenn**
+**sein Amt praktisch überhaupt keine Relevanz hat, ist er doch das Staatsoberhaupt der BRD. Passt aber eine**
+solche Aussage zum Amt des Bundespräsidenten?
+**Wie sieht es wohl aus, wenn sich Wolfgang Schäuble und Joachim Gauck auf ein Bier treffen? Schwadroniert**
+**dann Schäuble grinsend über das degenerierte Steuervieh, das er durch die Paarung mit angeblich frischem**
+
+
+-----
+
+**Blut gesundhalten will? Lacht Gauck dann und freut sich über das ausgetauschte Volk, dass dann ja bestimmt**
+auch viel ‹unproblematischer› ist?
+**Dies ist natürlich nur eine satirische Überspitzung, aber wie soll man die fragwürdigen Aussagen der Politelite**
+**sonst interpretieren? Eines sind diese Aussagen ganz sicher: An Arroganz nicht mehr zu überbieten!**
+**Ein politisches System, das solche Äusserungen ihrer angeblichen Elite stillschweigend hinnimmt und sich**
+**nicht empört, ist degeneriert und krank. Ein Tumor wuchert im Körper eines Patienten ohne Rücksicht auf**
+Verluste und verdrängt gesundes Gewebe. Die einzige Lösung ist die Entfernung des entarteten Gewebes und
+eine anschliessende Säuberung des Körpers. So viel zum Thema Perspektiven und zu absurden Vergleichen …
+_Ein Artikel von Stefan Müller, Autor der Buchreihe ‹Gefährlich› – Band I/Band II – Webseite: dergedankencoach_
+_Quelle: https://lupocattivoblog.com/2016/06/26/gauck-die-bevoelkerungen-sind-im-moment-das-problem/_
+
+_12:00 27.06.2016; Uli Gellermann_
+
+**Von allen öffentlichen Lippen tropft, nach dem Brexit, eine neue Europäsche Union: Jetzt müsse sie aber**
+**sozialer werden, jetzt müsse man aber den kleinen Leuten mal den Sinn der EU erklären, jetzt müssen man**
+**aber mal die EU besser machen. Besser für wen?**
+Für die Griechen, die von der EU in Hunger und Selbstmord getrieben wurden? Für die Spanier oder Portugiesen, deren Jugend ohne Zukunft ist? Für die Balten, die in Massen ihre Länder verlassen und vor dem neo liberalen Würgegriff in andere Länder fliehen? Für die Deutschen, denen aus dem Thatcher-Blair-England die
+Agenda 2010 importiert wurde? Für die Ukrainer, die man mit der Schimäre eines besseren EU-Lebens in einen
+Konflikt mit Russland gezwungen hat?
+Der Brexit sei traurig, belehrt uns der Aussenmeier, die Silberlocke auf dem Kopf der übergrossen Koalition.
+Todtraurig für die Hartz-Vierer, die jetzt nicht mehr mal eben nach London jetten können? Beklagenswert für
+die Frauen an den Supermarktkassen, deren private Pfund-Sterling-Reserven nun entwertet werden? Trostlos
+für die deutschen Hooligans, denen die Reise zu einer ordentlichen Prügelei in Manchester bald erschwert sein
+wird?
+Nein. Deprimierend wird es für die deutsche Waffenindustrie, die Handelserschwernisse fürchtet, denn immerhin hatte sie im ersten Halbjahr 2015 bereits für 1,5 Milliarden Rüstungsdreck an das Vereinigte Königreich
+verkauft. Hoffnungslos für die Finanzbanker, deren ständige Boni-Erhöhungen in der Londoner City vorgelebt
+und zur Nachahmung empfohlen wurden. Erschreckend für alle Atlantiker, denn Grossbritannien war und ist
+der treueste europäische Partner in allen Kriegen der USA.
+Es seien mehr als 2500 deutsche Unternehmen, die Niederlassungen in Grossbritannien hätten, barmt die
+‹Süddeutsche Zeitung›. An die über 5000 deutschen Unternehmen in Russland, deren Existenz durch EUSanktionen gefährdet wurde, hat man jüngst noch kaum einen Gedanken verschwendet. Etwa dieselbe Zahl an
+Unternehmen existiert in China. Müssen Russland und China jetzt schnell in die EU, um die englische Lücke
+zu schliessen? Und weiter denkt die ‹Süddeutsche› über die Kosten nach, die jetzt auf ‹uns› zukommen: Denn
+die Briten haben bisher «knapp fünf Milliarden Euro netto pro Jahr aufgebracht. Fällt ihr Beitrag weg, wird
+Deutschland den Löwen-Anteil übernehmen müssen.» Ach, ja, wer sagt das? Die Leute, die seit Jahr und Tag
+ihren Export über ‹unsere› EU-Zuschüsse finanzieren. – Eine grosse Welle der Traurigkeit soll über das Land
+schwappen, damit ‹wir› uns den Kopf der Unternehmer und ihrer Polit-Bürokratie in deutschen und europäischen Ämtern zerbrechen. Es gibt kein ‹wir›, es gibt nur die oder uns.
+
+
+-----
+
+Aber es sind doch die Rechten, die Gaulands, die LePens, die Straches, die das Ende der Europäischen Union
+fordern, referiert der Mainstream schaudernd. Stimmt. Dankend haben die Rechten den Platz einer europäischen Linken eingenommen, die wie Gregor Gysi die Einordnung der EU als eine ‹neoliberale, militaristische
+und weithin undemokratische Macht› nicht unterschreiben wollte, die mit der EU äugelte, statt sie in Frage zu
+stellen. Es sind jene Linken, die schon das Wort ‹Nation› für einen Nazi-Begriff halten und kokett mit dem Begriff ‹Anti-Deutsch› im selben Bett liegen wie die USA. Als wäre die Nation nicht einfach existent, wie das Wetter
+existiert und auch die Schwerkraft. Als wäre die Nation eine Frage von Wollen und Mögen. Und nicht eine Frage
+von Machen und Tun.
+In den nächsten Tagen und Wochen wird ein Gewitter scheinbar guter Ratschläge zur Rettung der EU über uns
+hereinbrechen. Wir sollen uns den Kopf der EU-Profiteure zerbrechen und ja nicht auf andere, eigene Gedanken
+kommen. Zum Beispiel auf den, dass die Europäische Union im Fall Ukraine zum Kriegsprojekt geworden ist.
+Zum NATO-Vorfeld. Zum trojanischen Pferd der USA. Wer nicht die Kraft hat, diese Europäische Union radikal
+zu ändern, der sollte aus ihr fliehen. Guten Morgen Deutschland.
+_Quelle: rationalgalerie.de_
+_Die Meinung des Autors muss nicht mit dem Standpunkt der Redaktion übereinstimmen._
+_Quelle: http://de.sputniknews.com/kommentare/20160627/310912411/england-deutschland.html_
+
+#### Putin räumt in Russland auf: Erst Scientology jetzt George Soros …
+_Posted on June 29, 2016 by admin_
+
+_Europa im Visier: George Soros, der (un)heimliche Strippenzieher – Alle sind am_
+_Rätseln – Was will Putin? Die Antwort finden Sie hier…!_
+
+###### Die russische Staatsanwaltschaft hat das ‹Open Society Institute› und verbundene Organisationen des Finanzmagnaten George Soros für unerwünscht erklärt.
+**Nachdem ein Moskauer Gericht erst vor wenigen Monaten weitere Aktivitäten von Scientology in Russland**
+**untersagt hat und der sogenannten ‹Kirche› eine sechsmonatige Frist setzte, das Land zu verlassen, wird es nun**
+**auch zunehmend ungemütlich für die berüchtigten Soros-Stiftungen im Land.**
+**In einer Stellungnahme erklärte die russische Staatsanwaltschaft, die Aktivitäten des sogenannten ‹Open**
+**Society Institute› und der ‹Open Society Institute Assistance Foundation› bedrohen die Verfassung und natio-**
+**nale Sicherheit des Landes. Trotz der wohlklingenden Namen dienen Organisationen wie das ‹Open Society**
+Institute› vor allem der Durchsetzung transatlantischer Interessen und folgen dem Konzept der ‹soft power›.
+Anders als bei klassischer militärischer Aggression zielen NGOs wie die von Soros oder die US-amerikanische
+halbstaatliche und CIA-nahe NED-Stiftung vor allem auf zivilgesellschaftliche Einflussnahme und Destabilisierung.
+**Zum jüngsten Verbot der Soros-Gruppen zählt das Schliessen von Büros, das Einfrieren der Finanzmittel und**
+**das Untersagen der Verbreitung von Materialien der NGO.**
+**Der umtriebige Finanzinvestor George Soros ist auf diesem Feld besonders aktiv. In der Regel deckt sich Soros**
+**vermeintliches Engagement für ‹freie Gesellschaften› jedoch mit eigenen Profitinteressen und richtet sich vor**
+**allem gegen Regierungshandeln, das diesen im Wege steht. Auch beim Staatsstreich in der Ukraine im vergange -**
+nen Jahr spielten Soros-Stiftungen vor allem im Bereich des medialen Framings eine äusserst aktive Rolle.
+**Der faktische Rausschmiss der Soros-Organisationen aus Russland ist Folge eines Gesetzes, das der russische**
+**Senat im Juli dieses Jahres verabschiedete. Auf einer ‹patriotischen Stopp-Liste› sind seitdem zwölf NGOs**
+**gelistet, die in Russland als unerwünscht gelten. Sieben US-amerikanische NGOs mit explizit politischem**
+Auftrag, zwei ukrainische Diaspora-Gruppen, zwei polnische NGOs und eine selbsternannte Menschenrechtsgruppe, die auf der Halbinsel Krim ansässig ist.
+**Zu den namhaftesten dieser Gruppen zählt neben der ‹Open Society Foundation›, der ‹MacArthur Foun -**
+**dation› und dem ‹National Endowment for Democracy› auch der US-amerikanische Think Tank ‹Freedom**
+**House›.**
+
+
+-----
+
+**Am vergangenen Montag hat zudem das Moskauer Amtsgericht auf Antrag des russischen Justizministeriums**
+**angeordnet, die Moskauer Filiale von Scientology zu schliessen. Der Beschluss besagt, dass die Organisation**
+die Religionsfreiheit für andere Zwecke missbrauche. Nun hat die Moskauer Niederlassung von Scientology
+offiziell sechs Monate Zeit, ihre Aktivitäten einzustellen.
+**In der Analyse ‹Was ist Scientology? Die Fabrikation der Mensch-Maschine im kybernetischen Lernlabor›**
+**untersucht Dr. Jürgen Keltsch die Funktionsweise der Gruppierung. Darin heisst es unter anderem:** «Das
+lückenlose Kommando- und Kontrollsystem behandelt den Menschen als Objekt und nicht als Person mit
+Menschenwürde und Menschenrechten.»
+**Ein Ziel der Gruppe sei auch die soziale Umerziehung und ‹Umprogrammierung› der Gesellschaft, bei der**
+**gezielt verhaltenspsychologische Methodiken angewendet bzw. missbraucht werden. Keltsch weiter:** «Die
+zitierten Quellen (HCO PL) zeigen, dass das Endziel des Spitzenmangements der Organisation die Abschaffung
+der demokratischen Werteordnung und die Verwandlung der Gesellschaft in ein technokratisches System
+(Cyberfaschismus) ist.»
+**Besonders pikant: Der Think Tank ‹Freedom House›, einer der zwölf genannten Organisationen auf der russi-**
+**schen Stopp-Liste, machte sich in der Vergangenheit immer wieder für Scientology stark. In seinem äusserst**
+einflussreichen Demokratie-Ranking straft ‹Freedom House› Staaten ab, die sich gegen die Unterwanderungsund Zersetzungsversuche seitens Scientology zur Wehr setzen.
+**Mit Verweis auf die Widerstände gegen Scientology wurde Deutschland in den Jahren 1998 bis 2002 von**
+**‹Freedom House› gar die Bestnote im Bereich Bürgerrechte verwehrt.**
+_Quelle: anonymousnews.ru bzw. http://marialourdesblog.com/putin-raumt-in-russland-auf-erst-scientology-jetzt-george-soros/_
+
+#### Hillary Clintons Wahlkampf wird von der Rüstungsindustrie finanziert
+_Deutsche Wirtschaftsnachrichten; Sa, 02 Jul 2016 00:43 UTC_
+Bei den Wahl-Spenden durch die US-Waffenindustrie liegt Hillary Clinton unter allen 21 Kandidaten, die für
+die US-Präsidentschaft angetreten sind, auf Platz 1. Donald Trump hingegen liegt auf Platz 16. Während Clinton
+persönlich keinen einzigen Dollar in ihren Wahlkampf gesteckt hat, hat Trump seinen Wahlkampf mit einer
+Summe von 45,7 Millionen Dollar zu 72 Prozent selbst finanziert.
+
+_© dpa; Unter Hillary Clinton könnten die USA zu einer aggressiveren Aussenpolitik_
+_zurückkehren._
+
+Hillary Clinton hat bisher mehr Spenden von der US-Rüstungsindustrie erhalten als jeder andere Kandidat für
+die US-Präsidentschaft. Clinton bekam in der Zeit von Januar 2015 bis Februar 2016 von insgesamt 50 USFirmen aus der Rüstungsbranche 454994 Dollar, berichtet Politico.
+An zweiter Stelle liegt Bernie Sanders. Er hat insgesamt 310055 Dollar von US-Rüstungsfirmen erhalten. Auf
+Clinton und Sanders folgen Ted Cruz, Chris Christie und Jeb Bush. Unter allen 21 US-Präsidentschaftskandidaten, die anfänglich ins Rennen gegangen sind, liegt Donald Trump bei den Spenden durch die US-Rüstungskonzerne mit einer Summe von 10586 Dollar auf dem 16. Platz. Politico berichtet, dass Trump seinen Wahlkampf hauptsächlich selbst finanziert. Trump hatte im März gesagt, dass der US-Haushalt die weltweite
+Stationierung von US-Truppen nicht mehr tragen könne. Er steht somit für Einschnitte bei den heimischen
+Rüstungsausgaben. Dem ‹Center for Responsive Politics› zufolge hat Trump 72 Prozent seines Wahlkampfs
+unter Einsatz einer Summe von 45,7 Millionen Dollar selbst finanziert. Hillary Clinton hingegen hat keinen
+einzigen Dollar in ihren Wahlkampf gesteckt, sondern ist ausschliesslich auf Spender angewiesen.
+Die gesamten Spenden an die US-Präsidentschaftskandidaten durch die US-Rüstungsindustrie betrugen
+zwischen Januar 2015 und Februar 2016 insgesamt 7,5 Milliarden Dollar.
+_Quelle: https://de.sott.net/article/24822-Hillary-Clintons-Wahlkampf-wird-von-der-Rustungsindustrie-finanziert_
+
+
+-----
+
+#### Wenn ihr am Leben bleiben wollt, müsst ihr jetzt aufwachen!
+_Veröffentlicht am 30. Juni 2016 von dieter_
+###### Weil die NATO Russland mit Raketen bedroht, seid ihr in grosser Gefahr!
+_Von Paul Craig Roberts, Institute for Political Economy (übersetzt von Wolfgang Jung)_
+Putin: «Wir wissen, was läuft, und sie wissen, dass wir ihre Absichten kennen. Nur die
+Menschen im Westen kapieren nicht, wie gefährlich die Situation wirklich ist.»
+Erinnern Sie sich noch, wie nahe wir Anfang der 1960er Jahre dem Weltuntergang
+waren, als Washington in der Türkei nahe der Grenze zur Sowjetunion Atomraketen
+aufstellte und die Sowjets mit der geplanten Stationierung von Atomraketen auf Kuba
+reagierten? Glücklicherweise war unser Präsident damals ein intelligenter Mensch und
+keine Null. Präsident John F. Kennedy zog die Welt vom Abgrund zurück und wurde für diesen Dienst an der
+Menschheit von seiner eigenen Regierung ermordet.
+Seit Jahren warne ich davor, dass wir wieder in eine derartige, nun schon über ein halbes Jahrhundert zurückliegende gefährliche Konfrontation geraten könnten. Die durchgeknallten, geisteskranken Nazis und Neokonservativen in Washington und ihre ruchlosen europäischen Vasallen – besonders in Grossbritannien, Deutschland und Frankreich – treiben die Welt in die Katastrophe eines Atomkrieges [s. zum Beispiel http://www.luft_post-kl.de/luftpost-archiv/LP_13/LP19813_171213.pdf]_
+Diese von Washington ausgehende Gefahr für das Leben auf der Erde müssten eigentlich alle erkennen, aber
+nur die russische Regierung warnt davor. Warum ist das so? Warum wird in den Vorwahlen zur Nominierung
+der US-Präsidentschaftskandidaten nicht darüber diskutiert, dass Washington die Welt in einen Atomkrieg
+treibt? Wieder stellt Washington seine Atomraketen an Russlands Grenzen auf (s. http://www.luftpost-kl.de/luft_post-archiv/LP_16/LP06316_200516.pdf), führt Militärmanöver in Grenznähe durch und lässt seine Marine im_
+Schwarzen Meer und in der Ostsee vor russischen Küsten patrouillieren (s. http://www.luftpost-kl.de/luftpost_archiv/LP_16/LP07816_200616.pdf)_
+Um ihr riskantes und verantwortungsloses Spiel mit einem Atomkrieg zu kaschieren, versucht die US-Regierung
+ihr eigenes aggressives Verhalten Russland in die Schuhe zu schieben. Die sich prostituierenden Medien – die
+New York Times, die Washington Post, die TV-Sender Fox News und CNN und die europäischen Medienhuren
+wiederholen diese Lüge so lange, bis ihre Gehirnwäsche in den westlichen Bevölkerungen Wirkung zeigt.
+Glaubt jemand, die Russen, die genau wissen, was vorgeht, würden tatenlos zusehen, bis sie von westlichen
+Atomraketen umzingelt sind und sich dann kampflos ergeben? Wer das nicht glaubt, sollte schnellstens damit
+beginnen, etwas zur Rettung seines Lebens und des Lebens auf unserem Planeten zu unternehmen. Verlassen
+Sie sich nicht darauf, dass führende westliche Politiker den uns allen drohenden Untergang abwenden, denn sie
+sind nur Marionetten, die von mächtigen Interessengruppen bezahlt werden.
+Hoffen Sie nicht darauf, dass Experten über die Medien Warnungen an die westlichen Regierungen richten,
+denn auch Experten stehen meistens in Diensten der gleichen Interessengruppen. Wir müssen schon selbst aktiv
+werden. (Wir haben den Warnruf aus den USA komplett übersetzt und mit Links in Klammern versehen. Wir
+weisen darauf hin, dass ausnahmsweise auch in deutschen Mainstream-Medien vor den Gefahren gewarnt wird,
+die von dem im Aufbau befindlichen Raketenabwehrschild der USA und der NATO ausgehen _[s. unter_
+_http://www.zeit.de/politik/2016-06/nato-raketenabwehr-russland-sicherheit-europa und http://www.ipg-jour-_
+_nal.de/rubriken/aussen-und-sicherheitspolitik/artikel/wem-nutzt-eine-nato-raketenabwehr-1455/]_
+_Quelle: http://krisenfrei.de/wenn-ihr-am-leben-bleiben-wollt-muesst-ihr-jetzt-aufwachen/_
+
+#### Farage spricht nach Brexit vor dem EU-Parlament
+_Dienstag, 28. Juni 2016, von Freeman um 12:00_
+Der Parteichef der Ukip, Nigel Farage, hat nach dem Brexit zum ersten Mal vor
+dem EU-Parlament gesprochen. Er warnte die EU-Politiker, wenn sie darin
+versagen, eine ordentliche Handelsvereinbarung mit Britannien ausserhalb
+der EU auszuarbeiten, «dann werden die Konsequenzen viel schlimmer für
+euch sein als für uns.» Farage sagte auch voraus, «England wird nicht das
+letzte Mitgliedsland sein, das die EU verlässt» und er beschuldigte die Chefs
+in Brüssel, sie würden unter Realitätsverweigerung leiden, über den Zustand
+der krisengeschüttelten Union.
+
+
+-----
+
+Er erinnerte dann daran, wie seine Bemühung begann, Britannien aus der EU zu führen, als er ein Mitglied des
+EU-Parlaments wurde. Farage sagte: «Ist es nicht lustig, als ich vor 17 Jahren hier ankam und ich sagte, ich
+möchte eine Kampagne für den Austritt von Britannien aus der EU durchführen, habt ihr alle gelacht. Gut, jetzt
+lacht ihr nicht mehr.»
+Er sagte, der Hauptgrund warum die britischen Wähler mit 52 zu 48 vergangene Woche entschieden haben, die
+EU zu verlassen, sei «weil durch List und Täuschung, ohne den Menschen in Europa jemals die Wahrheit zu
+sagen», Brüssel ihnen «eine politische Union auferlegt» habe.
+Farage kritisierte scharf den Umstand, dass die EU den Willen der Niederländer missachtet hat, nachdem sie
+die sogenannte EU-Verfassung 2005 abgelehnt haben. Er betonte, wie die EU-Führung «sie ignoriert hat und
+den Lissabon-Vertrag über die Hintertür einbrachte.»
+Er sagte, das britische Abstimmungsresultat, die EU zu verlassen, bringe jetzt ‹ein Leuchtfeuer der Hoffnung›.
+Er meinte, die Auslösung von Artikel 50 und die Gespräche über eine ordentliche Trennung sollten bald stattfinden.
+Farage rief die Abgeordneten auf, sie sollten ‹erwachsen und vernünftig› die zukünftigen Beziehungen zwischen
+Britannien und der EU gestalten, denn er warnte davor, in Zorn die Briten wegen dem Austritt zu bestrafen.
+Dann machte er einen Seitenhieb gegen das vollgefüllte Plenum, denn er sagte: «Ich weiss, fast keiner von euch
+ist im Leben je einer anständigen Arbeit nachgegangen.» Sie hätten kaum Arbeitsplätze geschaffen oder einen
+Betrieb geführt.
+Es müsse jetzt ein ‹pragmatischer› Ansatz her, um sich über eine Handelsvereinbarung zu einigen. Er sagte:
+«Wenn ihr euch ins eigene Fleisch schneidet, dann sind die Konsequenzen für euch schlimmer als für uns.»
+Farage warnte, «die deutschen Arbeiter in der Autoindustrie riskieren ihren Job zu verlieren», wenn die EU darin
+versage, eine Vereinbarung mit Britannien auszuhandeln.
+Er sagte: «Lasst zwischen uns eine vernünftige Tariffreiheit vereinbaren. GB wird euer Freund sein ... wir werden
+eure besten Freunde der Welt sein.»
+Er forderte die EU dazu auf, «lasst uns gehen und unsere Ambitionen und unsere Zukunft erfüllen», jetzt wo
+Britannien die Union verlässt.
+Farage hat völlig recht. Die 751 Abgeordnete im EU-Parlament sind nur
+nutzlose Maden, die sich auf Kosten der Steuerzahler vollfressen. Um sie
+herum beschäftigen sie sagenhafte 6000 Mitarbeiter und Assistenten. Die
+durchschnittlichen Gehälter der EU-Abgeordneten belaufen sich auf 96000
+Euro pro Jahr. Dazu haben die Abgeordneten Ansprüche auf UnkostenPauschalen wie eine Sekretariatszulage in Höhe von 21209 Euro monatlich.
+Die ‹Allgemeine Unkostenpauschale› in Höhe von 51588 Euro jährlich gibt
+es auch noch. Der ganze Laden kostet 1 Milliarde Euro pro Jahr.
+Zu sagen haben sie aber nichts, denn sie haben kein Recht, Gesetze einzubringen, sondern dürfen nur abnicken,
+was die nicht gewählte EU-Kommission ihnen vorlegt. Von wegen Demokratie. Die EU ist diktatorischer als es
+die Sowjetunion je war. Eine Fassade, die Demokratie nur vorgaukelt, wo aber ein Heer von anonymen
+Apparatschiks in Brüssel in Wirklichkeit alles bestimmt und diktiert. Deshalb die EUDSSR!
+Hier noch eine ‹gute› Nachricht an alle Deutschen, speziell an die, welche die EU immer noch toll finden. Wie
+die EU-Kommissarin für Regionalpolitik Corina Cretu am Montag warnte, hat England bisher 15 Prozent des
+EU-Budgets getragen. Mit dem Ausstieg wird sich eine grosse Finanzlücke bilden, die demnächst gefüllt werden
+muss. Nach Abzug des Rabatts, den Margret Thatcher ausgehandelt hat, zahlen die Briten ca. 16 Milliarden Euro
+in den EU-Topf. Drei Mal dürft ihr raten, wer dafür einspringen muss und in Zukunft mehr an den EU-Moloch
+zahlen darf.
+_Quelle: http://alles-schallundrauch.blogspot.com/2016/06/farage-spricht-nach-brexit-vor-dem-eu.html#ixzz4DQvlDy2T_
+
+#### FEMA-Prognose: Spätestens 2020 weltweite Unruhen wegen Nahrungsmittelknappheit
+_Posted on July 5, 2016 by admin_
+**Laut einer wissenschaftlichen Untersuchung unter der Leitung der Federal Emergency Management Agency**
+**(FEMA), einer dem US-Heimatschutzministerium unterstellten Behörde, wird das anhaltende Bevölkerungs-**
+**wachstum spätestens im Jahr 2020 eine globale Nahrungsmittelknappheit auslösen.**
+
+
+-----
+
+Damit einhergehend wird ein Preisanstieg für Lebensmittel von 395 Prozent
+prognostiziert, der ursächlich für zahlreiche zivile Unruhen und endlose
+politische Konflikte sein wird.
+
+**Laut zwei Berichten der CNA Corporation, einem staatlich finanzierten**
+**Forschungs- und Entwicklungszentrum für die United States Navy und**
+**Marine Corps, könnte die Nahrungsmittelversorgung der Welt in den**
+**kommenden Jahren an ihre Grenzen geraten und weltweite Unruhen aus-**
+**lösen. Die düsteren Zukunftsszenarien beruhen auf einer Computersimulation, mit der ein globaler Nahrungs-**
+mittelmangel nachgestellt wurde. Dafür arbeiteten 65 Vertreter aus den USA, Europa, Afrika, Indien, Brasilien
+und einige multilaterale und zwischenstaatliche Institutionen zusammen. Beaufsichtigendes Organ war die
+FEMA.
+**«Das Szenario», so die Studie, «wird ab heute in fünf Jahren in einer Welt stattfinden, in der das Bevölkerungs-**
+**wachstum, die rasche Verstädterung, extreme Wetterereignisse und politische Krisen insgesamt die globale**
+**Ernährungssicherheit gefährden …**
+… Die Akteure in diesem Spiel – hochrangige Entscheidungsträger vertreten Nationen, internationale Institutionen und den privaten Sektor – werden zusammenarbeiten, verhandeln, Entscheidungen treffen, mit gegenseitigen Abhängigkeiten konfrontiert werden, während sie sich mit einer Kettenreaktion von Konsequenzen
+befassen müssen, die sich aus ihren Handlungen ergeben.»
+Aufgeteilt in vier Abschnitte simulierte das Programm in die Nahrungsmittelpreisspitzen bis zu unglaublichen
+395 Prozent, angetrieben durch verlängerte Ernteausfälle in wichtigen Regionen, resultierend aus den falschen
+Entscheidungen internationaler Beamter, drastischer Veränderungen der Umwelt und in die Höhe schnellenden
+Ölpreisen – «viele ähnliche Faktoren», stellt der Bericht fest, «die die globale Nahrungsmittelkrise ab 2007–2008
+auslösten.»
+**Die Wirtschaftskrise im Westen ab 2006 führte zu einer enormen Ausweitung der Geldmenge. Allerdings**
+**erreichte das Geld in erster Linie den Bankensektor, angeblich um die Kreditinstitute vor dem Zusammen-**
+**bruch zu bewahren.**
+Dort investierte man die vielen Milliarden u.a. in Nahrungsmittelzertifikate wie Mais oder Weizen, was zu
+enormen Preisanstiegen führte und letztendlich den sogenannten ‹Arabischen Frühling› im Nahen Osten und
+Nordafrika auslöste.
+_Quelle: anonymousnews.ru bzw. http://marialourdesblog.com/fema-prognose-spatestens-2020-weltweite-unruhen-wegen-_
+_nahrungsmittelknappheit/_
+
+#### Abrechnung mit Merkels Asylpolitik
+_Posted on Juli 4, 2016 9:03 pm by jolu_
+#### Bassam Tibi: Das ist eine demographische Lawine
+BERLIN. Der syrischstämmige Politikwissenschaftler Bassam Tibi hat mit
+scharfen Worten die Flüchtlingspolitik von Bundeskanzlerin Angela Merkel
+(CDU) verurteilt. Durch die vielen Flüchtlinge, die seit vergangenem
+Sommer nach Deutschland gekommen seien, drohten hierzulande grosse
+Konflikte.
+«Mit Merkels Entscheidung, eineinhalb Million Menschen ins Land zu lassen,
+
+_Bassam Tibi warnt vor den Folgen_ verändert sich Deutschland immens. Das sehen Sie schon an Göttingen: Die
+_von Merkels Asylpolitik_ Stadt war früher sehr studentisch, 20 Prozent waren Ausländer, eine ver_Foto: picture alliance/ZB_ träumte, idyllische Stadt. Heute sieht sie aus wie ein Flüchtlingslager», sagte
+
+Tibi in der Welt.
+Beim Anblick afghanischer oder eritreischer Banden bekomme man Angst. «Das Göttinger Gemeinwesen ist
+erschüttert. Und über all das: Keine Sitzung oder Debatte des Bundestages! Alles der Alleingang einer Frau.»
+«Kein einziger Arzt und auch kein Ingenieur.»
+Er habe in den vergangenen anderthalb Jahren mit mehreren tausend Syrern in Deutschland gesprochen. Die
+meisten von ihnen stammten nicht aus Städten, sondern vom Land und es gebe viele Antisemiten unter ihnen.
+«Unter all den Leuten, die ich sprach, war übrigens kein einziger Arzt und auch kein Ingenieur», betonte Tibi.
+
+
+-----
+
+Diese Situation sei unerträglich.
+Da kommen Menschen mit keiner Ausbildung und wenig Geld. Und sie erleben eine prosperierende Gesellschaft. All das ist hart erarbeitet. Das kann man nicht einfach verschenken. Mit der Zeit werden aus diesen
+Gruppen Gangs, die sich das dann holen. Göttingen wird in einem Jahr eine Stadt voller Kriminalität. Und das
+verdanken wir Frau Merkel. Das ist keine Einwanderung wie im Falle Amerikas, wo man sich die qualifizierten
+Immigranten aussucht. Das hier ist eine demographische Lawine, die über uns schwappt.
+«Wenn man etwas Kritisches sagt, kommt gleich die AfD-Keule!»
+Deutschland setze mit seinen hohen Sozialleistungen falsche Anreize, kritisierte der Politikwissenschaftler.
+«Ich kenne eine somalische Familie, die schon im amerikanischen Ohio gelebt hatte. Der Vater beklagte sich,
+dass man in Amerika arbeiten müsse und wenig verdiene. Er hat es geschafft, aus Amerika nach Deutschland
+zu kommen und zu suggerieren, er wäre gerade aus Somalia geflohen. Amerika hat ihm nicht gefallen. Also hat
+er gelogen. Nun hat er eine Wohnung und die vier Kinder bringen ihm insgesamt so viel Geld ein, wie ich als
+pensionierter Professor beziehe. Er ist schon drei Jahre hier und spricht kein Wort Deutsch. Das wird er auch
+nicht lernen. Man muss über solche Fälle reden dürfen!»
+Wer solche Probleme anspreche, werde in die rechte Ecke gestellt, beklagte Tibi. «Wenn man etwas Kritisches
+sagt, kommt gleich die AfD-Keule! Wir brauchen hier endlich eine Debattenkultur, die diesen Namen auch
+verdient. Das ist Demokratie.» (krk)
+_https://jungefreiheit.de bzw. https://wahrheitfuerdeutschland.de/abrechnung-mit-merkels-asylpolitik/_
+
+#### Mehr Misstrauen wagen!
+_von Konrad Adam; Politische Klasse; Posted on Juli 3, 2016 6:02 pm by jolu_
+
+_Gelbe Karte: Misstrauen ist eine demokratische Tugend_
+_Foto: picture alliance / augenklick / firo Sportphoto_
+Wenn in Deutschland Wahlen bevorstehen – und das ist ziemlich oft der Fall –, bitten uns die Parteien um unser
+Vertrauen, unsere Stimme, unsere Hilfe; am liebsten um Vertrauen. Ist die Wahl vorbei, pflegen sie sich für das
+ihnen entgegengebrachte Vertrauen wortreich zu bedanken. Sie tun das auch dann, wenn von Vertrauen keine
+Rede sein kann, weil die meisten Wähler zu Hause geblieben sind, ungültig gestimmt oder der Opposition den
+Vorzug gegeben haben.
+Vertrauen ist zum Schlüsselwort der Politik geworden. Das ist vor allem deshalb so erstaunlich, weil die
+Demokratie ja nicht vom Vertrauen lebt, sondern von seinem Gegenteil, dem Misstrauen. Beweise dafür finden
+sich in jeder Verfassung zuhauf, auch im Grundgesetz. Der Grund dafür ist unschwer zu erkennen: Macht ist
+gefährlich. Macht, hat der englische liberale Historiker Lord Acton gesagt, korrumpiert, und absolute Macht
+korrumpiert absolut.
+
+**Gewaltenteilung zur Zügelung der Machtgier**
+Deshalb begegnet die europäische Verfassungslehre der Macht mit geballtem Misstrauen. Sie verleiht Macht nur
+auf Zeit, unterstellt sie der Kontrolle durch unabhängige Gerichte, bindet ihren Gebrauch an die Zustimmung
+der Machtunterworfenen und hat, gewitzt durch die Erfahrung, dass Macht nur durch Gegenmacht gebändigt
+werden kann, die Macht geteilt. Tatsächlich dürfte der von Montesquieu im 18. Jahrhundert entwickelte
+Gedanke der Gewaltenteilung das wirkungsvollste Instrument zur Zügelung der Machtgier sein.
+Thomas Jefferson, einer der grossen US-Präsidenten, die es in jenem Land ja einmal gab, sprach aus Erfahrung,
+als er die Bürger seines Landes zum Misstrauen gegen die Herrschenden aufrief. Er hatte Angst vor den gewählten Despoten, die den Ursprung der Macht, das Volk und seine Vertreter, verachten. Sollte das Volk, schrieb er
+an einen alten Freund, jemals aufhören, sich um die öffentlichen Angelegenheiten zu kümmern, «werden wir
+alle, Sie und ich, der Kongress, die Richter und die Gouverneure, wie wir da gehen und stehen, zu reissenden
+Wölfen werden».
+
+
+-----
+
+**Sie züchten das Misstrauen, das sie beklagen**
+Oder zu falschen Schlangen, schlauen Füchsen, diebischen Elstern, faulen Hunden, dummen Gänsen und geilen
+Böcken, wäre nach den Erfahrungen zu ergänzen, die wir in Deutschland mit Politikern wie Volker Beck oder
+Sebastian Edathy, Dirk Niebel oder Ronald Pofalla, Annette Schavan oder Claudia Roth gesammelt haben. Sie
+und andere Mitglieder ihrer Klasse stellen auf der nach unten offenen Skala der politischen Erbärmlichkeit
+immer wieder neue Rekorde auf. Sie züchten das Misstrauen, über das sie sich beklagen.
+Die Abneigung, die ihnen aus der Wählerschaft entgegenschlägt, beantworten die Machthaber im gleichen Stil,
+mit kaum verhohlener Verachtung. Sie machen es wie SPD-Parteichef Sigmar Gabriel, der von ‹Pack› spricht,
+wie Justizminister Heiko Maas, der von Mob und Gesindel redet, oder wie Wolfgang Schäuble, der seine Gegner
+eine Schande für Deutschland nennt. Das gründlichste Urteil stammt von einem christlich-demokratischen
+Spitzenpolitiker, dem sächsischen Ministerpräsidenten Stanislaw Tillich, der angesichts eines Strassenauflaufs
+zu der Erkenntnis kam, bei den Rädelsführern handle es sich um Verbrecher, «das sind keine Menschen».
+Die Personalisierung liegt im Zug der Zeit. Von den Medien gesteuert und ausgewalzt, treibt sie immer buntere
+Blüten, die schönsten davon in der Politik, wo die Sache hinter der Person längst verschwunden ist. Der jüngst
+verstorbene FDP-Politiker Guido Westerwelle hat diese Entwicklung mit dem Argument verteidigt, dass auch
+Personen ein Programm sein könnten; er dachte dabei offenbar an sich. Das mag so sein, macht die Sache aber
+nicht besser. Denn wer will schon Programme, die von solchen Personen verkörpert werden?
+
+**Alles, was sie sind, verdanken sie der Partei**
+Zum Beispiel von Birgit Fischer. Eine Frau, die alles, was sie ist, der SPD verdankt, einer Partei, die sich
+programmatisch der sozial genannten Gerechtigkeit verbunden fühlt. Wie das aussieht, kann man in Bochum
+erkennen, einer hochverschuldeten Stadt, die aufs Geld sehen muss und deshalb bei den Kindergartengebühren
+bundesweit an der Spitze liegt. Mit dem, was dadurch reinkam, wurden Veranstaltungen bezahlt, bei denen
+sogenannte Spitzenpolitiker für ein paar Stunden Small talk ein Honorar von 25000 Euro kassierten.
+Hier, in Bochum, nahm Frau Fischers segensreiche Laufbahn zum Wohl der kleinen Leute ihren Anfang; sie begann als Gleichstellungsbeauftragte. Schon bald sass sie im Landtag, wurde parlamentarische Geschäftsführerin
+der SPD-Fraktion und irgendwann dann auch Ministerin, zuständig für das, was ihr Parteichef Gerhard
+Schröder ‹Gedöns› zu nennen pflegte, also Familie, Jugend, Gesundheit und so weiter. So brachte es die sozialdemokratische Sozialpolitikerin Birgit Fischer zur Herrscherin im Weltreich des Sozialen.
+
+**«Bereichert euch!» heisst die Devise**
+Die im Ministeramt gesammelten Kenntnisse nutzte sie, um aus dem öffentlichen Dienst in die Versicherungsindustrie zu wechseln, zunächst als Stellvertreterin, danach als Vorstandsvorsitzende der Barmer Ersatzkasse.
+Wenig später dann ein zweiter Wechsel, diesmal zur Gegenseite, als Hauptgeschäftsführerin zum Verband
+Forschender Arzneimittelhersteller. Manch einer sprach von einem verblüffenden Seitenwechsel – der aber
+keinen verblüfft haben kann, der die sagenhaften Gehälter kennt, die in der Pharmaindustrie üblich sind.
+«Bereichert euch!» hiess die Devise der französischen Bourgeoisie, die deutschen Sozialdemokraten schon immer
+lieb und teuer war; vor allem teuer. Leute wie Walter Riester oder Birgit Fischer haben sich mit dem besten
+Gewissen der Welt bereichert; sie taten das in dem Bewusstsein, nicht ihren, sondern unseren Interessen zu
+dienen. Wenn sie sich der Versicherungswirtschaft, der Pharmaindustrie oder sonst einem Krösus in die Arme
+warfen, hatten sie nicht bloss Arbeit im Angebot, sondern akkumulierte Arbeit. Und dass die besser bezahlt
+werden muss als alles, was unsereiner anzubieten hat, wusste ja schon Karl Marx.
+
+**Mit dem Gehalt steigt die eigene Wertschätzung**
+Karrieren wie die Birgit Fischers macht nicht jeder. Aber alle träumen davon, im Bundestag genauso wie in den
+grossen Konzernen, wo die Chefs tatsächlich glauben, um so mehr wert zu sein, je besser sie sich bezahlen lassen.
+Der frühere Juso-Vorsitzende Wolfgang Roth kannte die Stimmung im Parlament, als er davon sprach, dass ein
+Bundestagsmandat für einen Studienrat ein nettes Zubrot sei; für ihn aber nicht. Er, Wolfgang Roth, hatte längst
+Höheres im Blick: Den Vizeposten bei der Europäischen Investitionsbank in Luxemburg.
+Zu diesem Zeitpunkt hatte er seine Sturm-und-Drang-Zeit mit vielerlei Erfahrungen hinter sich, und er wusste
+sie zu nutzen. Dass er zusammen mit Heidemarie Wieczorek-Zeul (‹die rote Heidi›) einmal verlangt hatte, sämtliche Gehälter, vor allem die von Bankern, auf 5000 D-Mark im Monat zu begrenzen – den Euro gab es damals
+noch nicht –, hatte er längst vergessen, die meisten anderen wahrscheinlich auch. Wer es noch nicht vergessen
+hatte, auch nicht vergessen konnte oder wollte, wandte sich ratlos, enttäuscht und angewidert von einem
+politischen Betrieb ab, der Leute wie Wolfgang Roth nach oben brachte.
+
+
+-----
+
+**«Wenn es ernst wird, muss man lügen»**
+Glaubwürdig werde ein Politiker durch Übereinstimmung von Wort und Tat, soll Hans-Jochen Vogel einmal
+gesagt haben. So anspruchsvoll, das zu verlangen, sind wir schon längst nicht mehr; die Übereinstimmung von
+Wort und Wort würde uns schon reichen. Aber auch damit ist es nicht weit her, wie jeder weiss, der den Parteibetrieb von innen kennt. Helmut Kohl hatte die Richtung gewiesen, als er in Sachen Mitbestimmung gegen
+einen Antrag votierte, den er selbst eingebracht, begründet und verteidigt hatte. Und dafür bald danach mit
+dem Parteivorsitz belohnt wurde.
+Damals, vor vierzig oder fünfzig Jahren, fiel so viel Wendigkeit noch auf. Inzwischen ist sie zur Regel geworden,
+nach der kein Hahn mehr kräht. Wir werden von Politikern regiert, die Willkür, Widerspruch und Chaos
+produzieren, Kritik am Chaos aber mit der Behauptung abtun, dass es zum Chaos keine Alternative gebe. Zur
+Lüge deshalb auch wohl nicht, weil die Lüge ein bewährtes Mittel ist, im Chaos zu überleben. Der Europa politiker Jean-Claude Juncker sprach aus Erfahrung, als er sagte: «Wenn es ernst wird, muss man lügen.» Das
+war die Wahrheit, die Wahrheit über die Lüge.
+
+**EU als Projekt höheren Irrsinnns**
+Die politische Klasse geriert sich als geschlossene Gesellschaft, die dem Bürger über den Mund fährt, wenn er
+es wagt, ihn zu öffnen. Als Antwort auf den Wunsch der Engländer, der Brüsseler Fremdherrschaft zu ent kommen, ist den fremden Herren nichts anderes eingefallen als ein wütendes «Jetzt erst recht!» Jetzt, in der
+Krise, die ihr Gelegenheit gäbe, die Bürger für sich einzunehmen, erweist sich die Gemeinschaft als jenes Projekt
+des höheren Irrsinns, als das der frühere Bundespräsident Roman Herzog sie beschrieben hat.
+So kehrt das Misstrauen in die Politik zurück – endlich! Misstrauen aktiviert, Misstrauen ist die Basis der
+Verfassung, Misstrauen zeugt von dem Willen, die Rolle des Souveräns nicht bloss zu beanspruchen, sondern
+sie auch wahrzunehmen. Und denen in den Weg zu treten, die zur Begründung ihrer Politik nicht mehr zu sagen
+haben als «Wir schaffen das!»
+_JF 27/16; Quelle: https://wahrheitfuerdeutschland.de/politische-klasse/_
+
+
+-----
+
+**Nicht gläserne Bürger - gläserne Medien,**
+
+**Politiker, Finanzmogule brauchen wir!**
+
+**Weltgeschehen unter**
+
+**der Volkslupe**
+
+**S&G**
+
+für den Krieg in Korea zu gewinnen, Nordkorea zwingend als Aggressor dargestellt werden. Durch
+den Koreakrieg haben die USA
+ihre Vormachtstellung in der Region gesichert: Bis heute haben
+die USA ihre Militärstützpunkte
+inkl. Atombombern und Flotten
+in Südkorea, sowie das Oberkommando über die südkoreanischen
+Streitkräfte! [1]
+
+*Blum war früher beim US-Außenministerium tätig, welches er 1967 wegen seiner Oppositionzum Vietnamkrieg verließ.
+
+sprächen zustimmen, die zu
+
+getötet. Die einem Friedensvertrag führen,
+
+einem Ende der von Washington
+verhängten Sanktionen und dem
+Abzug fremder Soldaten aus dem
+Süden. Eine Form der Wiedervereinigung könnte später in Verhandlungen zwischen dem Norden und dem Süden gefunden
+werden.“ [2]
+
+*Smith besuchte Nordkorea für die
+Zeitung „The Guardian“ in den
+1970er Jahren dreimal .
+**der Regierung Nordkoreas; Pjöngjang
+ist die Hauptstadt.
+
+koreas hingewiesen. Auch wenn
+
+ener- Nordkoreas Gefahr nicht mit
+
+letzter Gewissheit auszuschlie
+Misstrauen ßen ist, wird auch Nordkorea um
+
+das kleine Einmaleins der Nuklearstrategie wissen, das mit Ausnahme der USA und Russland
+für alle gilt: „Wer als Erster
+schießt, stirbt als Zweiter.“
+Zwanzig Minuten nach einem
+Nuklearangriff durch Nordkorea
+würde das Land nicht mehr existieren. [3]
+
+
+**_INTRO_**
+_In seiner berüchtigten Strat-_
+_for-Rede vom 4.2.2015 offen-_
+_barte der US-amerikanische_
+_Politologe George Friedman_
+_die „zentrale Strategie der_
+_US-Geopolitik“: „konkurrie-_
+_rende Mächte gegeneinander_
+_aufzuhetzen und in den Krieg_
+_zu treiben“ – ganz nach dem_
+_Prinzip „Teile und Herrsche“._
+_Jedoch ist dieses Prinzip nicht_
+_nur in der Geopolitik zu fin-_
+_den. Egal, ob außenpolitisch,_
+_innenpolitisch, parteipolitisch,_
+_medienpolitisch, wirtschafts-_
+_politisch, flüchtlingspolitisch_
+_usw. – überall wird gegenein-_
+_ander aufgehetzt, die Bevölke-_
+_rung polarisiert und in ver-_
+_schiedene Lager gespalten._
+_Auch diese S&G polarisiert,_
+_jedoch auf eine besondere_
+_Weise: Sie polarisiert nämlich_
+_bewusst nicht wie sonst zwi-_
+_schen_ _links_ _und_ _rechts,_
+_schwarz und weiss, Ost und_
+_West, Diktator oder Demokrat,_
+_gegen oder für den Islam, usw._
+_Vielmehr besteht die Polarisie-_
+_rung darin, zwei Strömungen_
+_zu beobachten und zu unter-_
+_scheiden: die welche spaltet_
+_und diejenige, die das Ge-_
+_meinsame sucht, versöhnt_
+_und wiedervereint. Deshalb_
+_kommen auch in dieser S&G_
+_Stimmen zu Wort, die das_
+_Prinzip „Teile und Herrsche“_
+_sowie das eigene Lager über-_
+_winden, indem sie anderen_
+_die Hand reichen und das Völ-_
+_kerverbindende suchen. Da-_
+_bei spielt es keine Rolle, aus_
+_welchem Lager diese Stimme_
+_stammt, und auch nicht, ob_
+_man mit allem einverstanden_
+_ist, was sie sagt._
+_Die Red. (dd.)_
+
+
+**frei und unentgeltlich**
+
+
+-----
+
+Seiten der Superreichen und
+Mächtigen – wissentlich und unwissentlich. Bei den Mitläufern
+handelt es sich um Menschen,
+deren teils gute Absichten und
+vor allem Sorgen, einfach im
+Sinn von ‚Teile und Herrsche‘
+ausgenutzt werden.“ Özoguz appelliert an Juden, Christen, Moslems, Atheisten und alle anderen
+Glaubensrichtungen, auf der Basis von Menschlichkeit ein friedliches und gerechtes System aufzubauen und zu leben. [5]
+
+
+**_„Demokratie beruht auf drei Prinzipien:_**
+**_auf der Freiheit des Gewissens, auf der Freiheit der Rede und_**
+**_auf der Klugheit, keine der beiden in Anspruch zu nehmen.“_**
+_Mark Twain, US-amerikanischer Schriftsteller (1835–1910)_
+
+
+**Petry: „Inhalte sind wichtiger**
+**als Kategorien wie ‚links‘ und,rechts‘.“**
+In einem Interview vom kann ich diesen Vorschlag ge23.4.2016 mit AfD*-Parteiche- nauso begrüßen wie Vorschläge
+fin Frauke Petry stellte das aus anderen Parteien, wenn sie
+Schweizer Radio SRF folgende, vernünftig sind. Deshalb rege
+typisch polarisierende Streitfra- ich an, die Kategorien von ¸links‘
+ge: „Wer ist für Sie zu rechts – und ¸rechts‘ zu verlassen und
+Hitler?“ Hier nun Petrys diffe- über Inhalte zu reden. […]
+renzierte Antwort, die auf der Distanzierung von Gewalt ist
+Webseite von SRF als einzige eine Selbstverständlichkeit […].
+des Interviews nicht schriftlich Überall da, wo der Boden
+abgedruckt wurde: „Mit den Be- der freiheitlich demokratischen
+griffen wie ¸links‘ und ¸rechts‘ Grundordnung verlassen wird,
+zu operieren fällt mir nach wie wo Hass tatsächlich als Mittel
+vor schwer, weil wir in Deutsch- zum Zweck benutzt wird – was
+land einen Kampf zwischen uns häufig vorgeworfen wird –
+¸links‘ und ¸rechts‘ als einen und Hass und Kritik dabei völlig
+Kampf zwischen angeblich mo- durcheinandergeraten,
+ralisch ¸gut‘ und moralisch dort wo Menschen aufgrund
+¸böse‘ erleben. Das sind für ihrer ethnischen Herkunft diffamich die falschen Kategorien. miert werden, da ist für mich
+Wenn von den Linken, wie z.B. eine Grenze und da war die
+Sahra Wagenknecht, ein guter Grenze auch schon immer.“
+Vorschlag kommt […], dann *Alternative für Deutschland
+
+
+**_��������������_**
+**_Alter Indianer zu seinem Enkel: „In mir wütet ein Kampf._**
+**_Es ist eine Auseinandersetzung zwischen zwei Wölfen,_**
+**_die in meinem Herzen wohnen. Der eine Wolf ist böse –_**
+**_er besteht aus Wut, Eifersucht, Habsucht, Größenwahn,_**
+**_Schuld, Groll, Lügen, Stolz, Überheblichkeit und Eigennutz._**
+**_Der andere Wolf ist gut – er ist Freude, Friede, Liebe,_**
+**_Hoffnung, Gelassenheit, Demut, Freundlichkeit und_**
+**_Mitgefühl. Auch in dir wütet dieser Kampf –_**
+**_ja, in jedem Menschen.“_**
+**_Junger Indianer, neugierig: „Welcher Wolf wird gewinnen?“_**
+**_Alter Indianer, lächelnd: „Der Wolf, den du fütterst ....“_**
+_Alte Indianerweisheit_
+
+
+**www.sasek.tv**
+
+
+-----
+
+## Stimmme
+
+
+## Gegenstimmme
+
+
+-----
+
+.Vreöffefeciltnthuungg geheiemre Do
+
+**wwwwwwwwww.sasek.sasek.vt**
+
+
+-----
+
+#### Kanzlerin räumt ein: Terroristen wurden mit Flüchtlingswelle nach Europa eingeschleust
+_Epoch Times, 13. Juli 2016; Aktualisiert: 13. Juli 2016 14:23_
+Erstmals, seit Beginn der Flüchtlingskrise, räumt Bundeskanzlerin Merkel
+ein, dass sich Terroristen unter den Flüchtlingen und Migranten in Europa
+befinden könnten. Experten und Sicherheitsbeamte warnen bereits seit
+Monaten vor der Offenen-Grenzpolitik. Die Regierung wich diesem Thema
+bislang aus.
+
+_Bundeskanzlerin Angela Merkel bei einer Ansprache in Zingst im September 2013_
+_Foto: JOHANNES EISELE/Getty Images_
+«Terroristen kommen mit der Flüchtlingswelle nach Europa», sagen kritische Stimmen bereits seit Monaten.
+Auch die Deutsche Polizeigewerkschaft wies mehrfach darauf hin. Die Bundesregierung hatte auf diese Prog nose nicht reagiert.
+Das änderte sich am Montagabend. Bei einer CDU-Veranstaltung in Zingst hat Bundeskanzlerin Angela Merkel
+erstmals die Möglichkeit eingeräumt, dass im Zuge der Flüchtlingsbewegung auch Terroristen nach Europa
+gekommen sind. Dies berichten Deutsche Wirtschafts-Nachrichten unter Berufung von Aufzeichnungen eines
+Reuters-Journalisten.
+Demnach sagte die Kanzlerin: «Wir spüren plötzlich, dass zwischen uns und Syrien eine ganz enge Verbindung
+ist, weil es eine Reihe von Terroristen gibt, die sind in Europa aufgewachsen, auch in Deutschland, werden dann
+in Syrien ausgebildet, kommen zum Teil wieder zurück, zum Teil wurde sogar die Flüchtlingsbewegung genutzt
+um dort Terroristen mit einzuschleusen …»
+Von Seiten der Regierung war bislang noch nicht die Rede von eingeschleusten Terroristen in Europa.
+Die Kanzlerin forderte von den Bundesbürgern stets Durchhaltevermögen während der nicht enden wollenden
+Asylkrise. Unermüdlich sollen die Deutschen Flüchtlinge und Migranten aufnehmen und das möglichst unvoreingenommen und mit Offenheit den Flüchtlingen gegenüber.
+Die Bundesregierung habe jedoch bislang keine Handlungsanweisungen vorgelegt, wie ein hilfsbereiter Deutscher
+überprüfen kann, ob ein Flüchtling einen Terror-Hintergrund haben könnte oder nicht, kritisieren die Deutschen
+Wirtschafts-Nachrichten die Willkommenspolitik der Kanzlerin.
+
+**Wer ist Flüchtling, wer Terrorist?**
+Nicht nur die Bundesbürger, sondern auch die deutschen Behörden können nicht feststellen, wer von den eingereisten Flüchtlingen ein Hilfsbedürftiger und wer ein Terrorist ist. Es gibt Hunderttausende Personen, die sich
+illegal in Deutschland aufhalten. Die Kanzlerin hat die Schliessung der deutschen Grenzen bisher strikt abgelehnt.
+70 Prozent der Eingereisten haben sich nicht mit gültigen Papieren ausweisen können. Ihre Registrierung erfolgte rein auf ihre eigenen Aussagen hin, gab der Verfassungsschutzschutz bekannt. Die Sicherheitslage in
+Deutschland wird von Verfassungsschutzschutz-Präsident Hans-Georg Maaßen inzwischen für ‹sehr ernst› gehalten. Derzeit lägen aber keine Erkenntnisse über konkrete Anschlagspläne vor. Trotzdem hat man Polizisten
+in Hamburg und Bremen bereits mit Sturmgewehren ausgerüstet.
+
+**Gegen das Gesetz**
+Der anerkannte Verfassungsrichter Di Fabio nannte Angela Merkels radikale Grenzöffnung einen ‹historischen
+Rechtsbruch›.
+Anfang des Jahres kam Di Fabio nach juristischer Prüfung der aktuellen Migrationskrise zu dem erschütternden
+Befund: Die Bundesregierung bricht mit ihrer Weigerung, die Landesgrenzen umfassend zu kontrollieren, eindeutig Verfassungsrecht. In dem Gutachten heisst es: «Der Bund ist aus verfassungsrechtlichen Gründen (…)
+verpflichtet, wirksame Kontrollen der Bundesgrenzen wieder aufzunehmen, wenn das gemeinsame europäische
+Grenzsicherungs- und Einwanderungssystem vorübergehend oder dauerhaft gestört ist.»
+Auch der frühere Chef des österreichischen Verfassungsschutzes, Gert Polli, sagte, dass die Sicherheitslage in
+Deutschland wegen der unkontrollierten Masseneinwanderung als ausser Kontrolle geraten zu betrachten sei.
+Die Behörden hätten keinen Überblick mehr über mögliche Terroristen in Europa. Staatssekretär Ole Schröder
+erklärte im November 2015, der Regierung liege «keine Gesamtübersicht über die Zahl der in Erstaufnahmeeinrichtungen untergebrachten Asylbewerber vor», schreiben DWN. Demnach weiss die Regierung auch nicht,
+wie viele Menschen von den ersten Einrichtungen auf die Kommunen verteilt wurden.
+
+
+-----
+
+Die Aussage der Kanzlerin, dass Terroristen mit der Flüchtlingskrise nach Europa kommen, wurde bislang nur
+von der englischen Ausgabe der Nachrichtenagentur Reuters berichtet. (so)
+_Quelle: http://www.epochtimes.de/politik/deutschland/kanzlerin-raeumt-ein-terroristen-wurden-mit-fluechtlingswelle-nach-_
+_europa-eingeschleust-a1910423.html_
+
+#### Grösste Zeitung der Schweiz ‹NZZ› ruft zum Krieg gegen Russland auf
+_Christian Müller; Infosperber; Di, 21 Jun 2016 00:00 UTC_
+Die NZZ erinnert an den noch immer ungelösten Ukraine-Konflikt. Sie bedauert, dass der Westen militärisch
+nicht interveniert hat.
+
+_© Global Security_
+_Globale Expansion der US-Militär-Durchdringung: Die USA unterhalten mehr als 700 Militärbasen im Ausland_
+
+Es ist schlicht unglaublich: Die NZZ, die (immer noch) bedeutendste und renommierteste Zeitung der Schweiz,
+oft zitiert in ausländischen Presseschauen, sich selber als Weltblatt verstehend, betreibt Kriegshetze vom
+Schlimmsten. In der gleichen Samstagsausgabe, in der Chefredaktor Eric Gujer Europa dazu aufruft, sich zu
+einigen und näher an die USA zu rücken, schreibt der NZZ-Korrespondent Christian Weisflog in Moskau einen
+Kommentar – mit einem farbigen Bild von ukrainischen Manövern aufgeblasen auf eine volle Seite –, in dem
+er ausdrücklich bedauert, dass auf der Krim nicht tüchtig geschossen wurde. Mit dem Verzicht auf eine militä rische Intervention in der Ukraine, so Weisflog, hätten die USA und die EU die Ukraine verraten und damit
+Putin freie Hand gegeben, beliebig Grenzen zu verschieben.
+Für Christian Weisflog – und damit für die NZZ – sind die Friedensabkommen von Minsk eine Katastrophe,
+weil sie Kiew zwingen, die Ukraine zu dezentralisieren. Die Friedenabkommen von Minsk, zustande gekommen
+mit weltweit anerkannter Schweizer Mediation, mit dem Ziel, die Kriegshandlungen in der Ostukraine zu
+stoppen: Eine Katastrophe! Ein Schweizer, in Schlieren bei Zürich in der Schweiz aufgewachsen und vermutlich
+schon seit der Primarschule mit der Tatsache vertraut, dass in der Schweiz mehrere Sprachen gesprochen werden
+und verschiedene Konfessionen nebeneinander Platz haben, kritisiert den selbst von der UNO und vom UNOSicherheitsrat mitgetragenen Auftrag an Kiew, die verschiedenen Kulturen in der Ukraine endlich zu aner kennen!
+Der Westen sei für Russland keine Bedrohung, schreibt Weisflog, diese Bedrohung sei eine reine Propagandalüge
+Putins, um seine Machtspiele spielen zu können. Hat Christian Weisflog in Moskau vielleicht keine Internetverbindung und ist nicht in der Lage, sich zu informieren, wo überall US-amerikanische Militär-Basen unterhalten und neu eingerichtet werden? Die USA selber bestätigen den Unterhalt von über 700 Militärbasen im
+Ausland! Über 700 Militärbasen ausserhalb der USA! Und das soll andere Länder einfach kalt lassen? Wissend,
+dass die USA zum Beispiel 2003 mit erlogenen Begründungen im Irak einmarschiert sind und das Land zerstört
+haben?
+
+
+**Die Ukraine ist (noch) kein ‹Nationalstaat›**
+Wer die Ukraine von eigenen Reisen auch nur ein wenig kennt, wer nicht nur in Kiew, sondern vielleicht auch
+in Odessa, auf der Krim, im Osten der Ukraine oder zum Beispiel in Transkarpatien war und dort jeweils auch
+
+
+-----
+
+direkten Kontakt mit der Bevölkerung hatte, der weiss, wie historisch und kulturell heterogen die Ukraine ist,
+wie verbittert die Leute vielerorts sind, weil Kiew ihnen selbst die eigene Sprache zu sprechen zu verbieten versucht, und wie etliche Regionen sich von Kiew wirtschaftlich benachteiligt und kulturell diskriminiert fühlen.
+Aber nein, nach Christian Weisflog gibt es für die ganze Misere in diesem Land nur einen Verursacher, nur einen
+Schuldigen: Putin. So einfach ist die Welt! Und sowas publiziert die NZZ!
+
+Ein Kommentar zur Ukraine, der direkt von der Nato bestellt und von der Nato bezahlt wäre, könnte nicht
+einseitiger ausfallen. Aber leider gibt es keine Anzeichen dafür, dass sich die NZZ für die Publikation solcher
+Kriegshetze schämt. Im Gegenteil, solche Kommentare werden im Layout auf eine volle, attraktive Seite aufgeblasen. Man muss sich mittlerweile als Leser bald schämen, immer noch – neben anderen Blättern – auch in die
+NZZ zu schauen.
+Wie aufmerksame Leser wissen, ist die Verbreitung von Lügen über und Kriegshetze gegen Russland in den
+westlichen Medien nichts Neues. Für die Kräfte an der Macht hängt offenbar alles daran, ihre Vormachtstellung
+mit allen möglichen Mitteln zu sichern, weil Russlands Regierung das erste ernstzunehmende Gegengewicht
+zum US-Imperium überhaupt darstellt.
+Immerhin, einen kleinen Trost gibt es: Liest man die über 500 Kommentare unter dem Artikel von Christian
+Weisflog, dann sieht man, dass sich viele NZZ-Leserinnen und -Leser nicht mehr ganz alles bieten lassen.
+Wer eine differenziertere Analyse des Ukraine-Konflikts lesen will, der greife zum Beispiel zu Erhard Eppler, in
+gekürzter Fassung zu lesen auch auf Infosperber.
+_Quelle: https://de.sott.net/article/24851-Grote-Zeitung-der-Schweiz-NZZ-ruft-zum-Krieg-gegen-Russland-auf_
+
+#### Mit dem Wahnsinn einer schizophrenen Selbstmordattentäterin: Merkel sucht angeblich Dialog mit Putin, rüstet aber munter gegen ihn auf
+_Uli Gellermann; Sputniknews; Mo, 11 Jul 2016 10:10 UTC_
+Da streckt sie die Hand aus, die Frau im Kostümchen: «Guten Tag Herr Putin, ich hätte gern einen Dialog mit Ihnen.» – Und in ihrer Hand liegt eine
+**Granate. Nur so ist dieser Satz der Bundeskanzlerin zu verstehen:**
+«Abschreckung und Dialog: Das klare Bekenntnis zu Solidarität mit unseren
+Bündnispartnern gemäss Artikel 5 des NATO-Vertrags und die ausgestreckte
+Hand zum Dialog», das hat die Frau jüngst im Bundestag als letzte Weisheit
+vor dem NATO-Gipfel in Warschau verkündet. Es ist die Weisheit des Selbst
+_© AP Photo/Markus Schreiber_
+
+**mordattentäters.**
+Und insofern ist es dann auch die letzte. Lässig tropfte der Frau mit dem Tantengesicht und dem Herzen eines
+Suizidmörders der Artikel 5 des Nato-Vertrages von den Lippen: «Die Parteien vereinbaren, dass ein bewaffneter
+Angriff gegen eine oder mehrere von ihnen in Europa oder Nordamerika als ein Angriff gegen sie alle angesehen
+wird.»
+**Welcher NATO-Staat ist denn von der Russischen Föderation angegriffen worden? Kein Aufschrei in deutschen**
+Medien, nur die untertänige Weitergabe einer Bedrohungslüge: Mit neuen NATO-Truppen wird zur Zeit nur
+Russland bedroht. Gelogen hat die Merkel.
+**Ton und Gestus der Merkelschen ‹Abschreckung-und-Dialog-Doktrin› sind aus den Büros der Agentur für**
+**Arbeit bekannt: Sie haben ein Arbeitsangebot, so schlecht es auch sein mag, nicht angenommen? Sanktionen!**
+Sie haben einen Lehrgang, warum auch immer, abgebrochen? Sanktionen! Sie haben nicht genug Bewerbungen
+geschrieben? Sanktionen! Das asoziale Hartz-Vier-Instrumentarium nennt diese Methode Fördern & Fordern:
+Befördert wird der Arbeitslose in den Hungerjob, gefordert wird eine sklavische Demut.
+Jetzt also der Präsident der Russischen Föderation: Zuckerbrot und Peitsche werden ihm angeboten, wie einem
+**unmündigen Kind. Nur, das Zuckerbrot wurde leider vergessen. Das wurde an den Hasardeur Petro Poroschenko**
+**vergeben. Der ukrainische Präsident, obwohl nicht Mitglied der NATO, nahm beim Warschauer NATO-Gipfel**
+am ‹kleinen Kreis› teil: US-Präsident Barack Obama, der britische Premier David Cameron, Frankreichs
+Präsident François Hollande, der italienische Ministerpräsident Matteo Renzi und die Tante aus Deutschland
+kamen zusammen. Werden sie Poroschenko fragen, warum er immer noch nicht das in den Minsker Verein barungen geforderte Gespräch mit den Separatisten in der Ostukraine gesucht hat? Nein. Sie werden ihm das
+Händchen halten und in den deutschen Medien werden erneut schwere Krokodilstränen über die Krim fliessen:
+
+
+-----
+
+**So ein leckerer Happen, mit dem hätte die NATO den wichtigsten eisfreien Hafen Russlands einstecken, die**
+**Südflanke Russlands bedrohen und die schöne Zahl der NATO-Stützpunkte rund um Russland weiter**
+**vermehren können.**
+Annexion! Annexion! Wann immer über den Ukraine-Krim-Komplex in Deutschland gesendet oder geschrieben
+wird, ist dieser empörte Ausruf zu hören: Der böse Russe hat die Krim annektiert! Dass es eine Sezession war,
+**dass sich eine deutliche Mehrheit der Krim-Bewohner FÜR den WIEDER-Anschluss an Russland entschieden**
+**hat, das kann der NATO-Lover in den deutschen Medien nicht begreifen.**
+Ja, wenn die Volksabstimmung zum Beispiel in Kaliningrad stattgefunden hätte, wenn sich dort eine Mehrheit
+für einen Anschluss an Litauen (die Gegend hiess früher auf Litauisch Twangste) oder den alten deutschen
+Namen Königsberg entschieden hätte, dann wäre das ganze westliche Instrumentarium hervorgeholt werden:
+Freiheit des Willens, Selbstbestimmung der Bevölkerung, Demokratie durch Mehrheitsentscheid und was der
+Phrasen mehr sind, die man in Libyen und anderswo bis zum bitteren Ende von Tausenden Toten genutzt hat.
+Tapfer hätte der kühne deutsche Redakteur eine Flugverbotszone zum Schutz der Bevölkerung in Königsberg
+gefordert, der Deutschritterorden wäre zu neuen Ehren gekommen, so wie die Königsfamilie der Senussi aus
+der Mottenkiste der Geschichte wieder in Libyen auftauchte. Aber die Krim hat, nach Auffassung der NATOStrategen, einfach den falschen Besitzer.
+So fällt den brutal entschlafenen deutschen Medien einfach nichts auf: Man verhandelte auf dem NATO-Gipfel
+über die Verlängerung des Afghanistan-Krieges, ein Krieg den die NATO-Partner begonnen und bis heute nicht
+**beendet haben. Man beriet in Warschau über den Syrien-Krieg, ein Krieg** **den der Nato-Freundeskreis der**
+**arabischen Diktaturen von Beginn an gewollt und unterstützt hat. Die NATO hat am Rand des Gipfels ein**
+Papier zur ‹Präsenz› in Libyen unterzeichnet; die letzte NATO-Staaten-Präsenz hat einen kaputten Staat hinterlassen.
+**Gleichberechtigter Teilnehmer der Konferenz ist der Terror-Pate und Nachwuchsdiktator Erdogan. Aber die**
+Bedrohung, sagt die verschlagene Frau aus der Uckermarck, kommt aus dem Osten. Aber der militärische
+Schrecken, sagt der Quoten-Schwarze aus Washington, der kommt aus Russland. Und alle, von der TAGESSCHAU bis zum TAGESSPIEGEL, werden es wiederholen: Der Russe ist schuld. So bereitet man Kriege vor.
+_Quelle: https://de.sott.net/article/24954-Mit-dem-Wahnsinn-einer-schizophrenen-Selbstmordattentaterin-Merkel-sucht-an-_
+_geblich-Dialog-mit-Putin-rustet-aber-munter-gegen-ihn-auf_
+
+#### Goldman Sachs und die Arroganz der Macht
+_Posted on Juli 12, 2016 8:00 pm by jolu; von Thomas Fasbender_
+Am Freitag wurde bekannt, dass Manuel Barroso, EU-Kommissionspräsident
+von 2004 bis 2014, als Berater zu Goldman Sachs nach London geht. Die
+Nonchalance bei der Wahl des Zeitpunkts kann eigentlich nur beeindrucken.
+Gerade einmal zwei Wochen nach der Brexit-Entscheidung der britischen
+Wähler zeigt die Brüsseler Hofaristokratie, was sie die Meinung der euro 
+_Manuel Barroso: Schneller Wechsel_ päischen Plebejer schert: Nichts.
+_Foto: dpa_ Das britische Votum ist nicht einmal Anlass, eine Zeitlang so zu tun, als ob
+
+Volkes Stimme irgend etwas gelte. Im Gegenteil. Eine ‹echte europäische Regierung› jetzt erst recht, fordert
+EU-Parlamentspräsident Martin Schulz. Wahrscheinlich meint er eine, die das Volk in seine Schranken weist.
+Ausdruck des britischen Volkswillens war das jedenfalls nicht.
+
+**Hauptquartier der neuen Welt**
+Ein ‹jetzt erst recht› steckt auch in der Entscheidung des Portugiesen Barroso. Dass nur keiner daran zweifle,
+wer Herr im Hause ist. Goldman Sachs. Kein zweites Unternehmen steht mit solcher Symbolkraft für den
+Feudal-Kapitalismus des 21. Jahrhunderts. Auch die Arroganz der Macht wird kaum irgendwo so zelebriert wie
+in den 228 Meter hohen Goldman Sachs New World Headquarters an der 200 West Street in Manhattan.
+In der Tat: New World Headquarters. Das Hauptquartier der Neuen Welt. Goldman Sachs profitiert nicht nur
+von der Globalisierung, Goldman Sachs ist die Globalisierung. Goldman Sachs ist auch der Benefiziar der
+supranationalen Strukturen, der EU und WTO und TTIP und CETA. Und im Unterschied zu den Jugendlichen
+in Südeuropa, deren Arbeitslosigkeit der Euro perpetuiert, bleibt bei Goldman Sachs richtig was hängen. Genug
+jedenfalls, um Politiker und Funktionseliten mit dollargrünen Tentakeln an sich zu binden.
+
+
+-----
+
+Man wechselt hin und her. Etwa Henry Paulson, Goldman-Sachs-Chef von 1999 bis 2006, danach bis 2009 USFinanzminister. Oder Peter Sutherland, EU-Kommissar 1985 bis 1989, von 1993 bis 1995 GATT- und WTOChef, danach 20 Jahre lang, bis 2015, Goldman-Sachs-Aufsichtsratsvorsitzender. Oder Mario Draghi, von 2002
+bis 2005 bei Goldman Sachs beschäftigt, dann Präsident der Italienischen Nationalbank und seit 2011 Präsident
+der Europäischen Zentralbank (EZB).
+
+**Goldman Sachs braucht Informationen**
+Wer wie Barroso zwei Amtszeiten der EU-Kommissionsvorstand war, kennt das Spiel und die Spieler. Ihre
+Schwächen, ihre Stärken, ihre Geheimnisse. Ihre Pläne und die Leichen im Keller. Er wird nicht billig zu haben
+sein, doch Goldman Sachs braucht ihn dringend. David Camerons – aus Sicht der Systemverteidiger – epochaler
+Fehler, das britische Volk bei der Gestaltung seiner Zukunft mitbestimmen zu lassen, hat die Londoner Finanzwelt in eine schwere Krise gestürzt. Die Branche, die seit Jahrzehnten all-inclusive lebt, wurde vom Ergebnis der
+Volksabstimmung kalt erwischt.
+Zumindest macht niemand mehr einen Hehl daraus, was unsere modernen Feudalherren, die Milliarden schieber und ihre Kumpane in der Politik und in den Institutionen, vom angeblichen Souverän halten. Ver zweifelt wird nach Wegen gesucht, Referenden und Volksbefragungen zukünftig zu vermeiden. Wahlen werden
+zu Ermächtigungsvoten, gefolgt von vierjähriger Entscheidungsabstinenz. Keine Frage, so lässt sich famos
+regieren.
+Die europäischen Völker stehen am Scheideweg. Unterwerfen sie sich der Allianz aus Geld und Politik und
+akzeptieren sie Goldman Sachs als ‹echte europäische Regierung›, der sie Stück für Stück ihrer verfassungs mässigen Souveränität überantworten? Anders als die deutsche Bundeskanzlerin vorgibt, existiert eine Alter native. Sie lautet schlicht und einfach: «Nein.»
+_https://jungefreiheit.de bzw. https://wahrheitfuerdeutschland.de/meinung-46/_
+
+
+#### Wagenknecht zu Merkel: 25 Mrd. Euro jedes Jahr für Kriegsgerät aber kein Geld für Renten? – «Das kann doch nicht Ihr Ernst sein.»
+_Posted on Juli 8, 2016 8:15 pm by jolu; Epoch Times, Freitag, 8. Juli 2016 14:33_
+Vor Beginn des Nato-Gipfels in Warschau rechnet Sahra Wagenknecht in
+einer Bundestagsrede mit der Politik von Bundeskanzlerin Angela Merkel ab.
+«Ihre ständigen Alleingänge haben den europäischen Zusammenhalt ebenso
+wenig gestärkt wie die Besserwisserei, mit der die deutsche Regierung versucht, ganz Europa auf die Linie der deutschen Wirtschaftspolitik zu
+bringen. Halten Sie doch endlich einmal inne, und überdenken Sie Ihre
+Politik, bevor es wirklich zu spät ist,» sagt Wagenknecht zu Merkel.
+Die Nato-Rede von Sahra Wagenknecht vor dem Bundestag hatte es in sich.
+
+_Kanzlerin Angela Merkel (L) und_ Es war eine Abrechnung mit der Politik von Kanzlerin Merkel (CDU).
+_Sahra Wagenknecht (R) am 14. Juni_ Wagenknecht kritisierte die geplante Nato-Aufrüstung in Osteuropa scharf.
+_2014 im Bundestag_ Diese würde einen Krieg mit Russland provozieren. Darüber hinaus wäre es
+_Foto: Adam Berry/Getty Images_ unverständlich, jährlich 25 Milliarden Euro für Rüstung auszugeben,
+
+während die Finanzierung der Renten nicht gesichert sei.
+Wagenknecht sagte auch: Wer nicht will, dass Europa endgültig zerfällt, der müsse doch spätestens nach dem
+Brexit auf einen sozialen und demokratischen Neubeginn setzen, auf ein Europa, das die Menschen wieder begeistern kann und in dem Referenden nicht als Bedrohung, sondern als normaler Bestandteil der Demokratie
+empfunden werden.
+
+###### Die Rede im Wortlaut
+Herr Präsident! Liebe Kolleginnen und Kollegen! Frau Bundeskanzlerin, Geschichte wiederholt sich nicht, aber
+es gibt Phasen, in denen die politischen Uhren rückwärts zu gehen scheinen, unerbittlich zurück in eine Zeit,
+die sich eigentlich niemand zurückwünschen kann. Wer die Entwicklung der letzten Jahre verfolgt, der wird das
+beklemmende Gefühl nicht los, dass wir heute in genau so einer Phase leben, und ich möchte mir nicht aus malen, wie das enden kann.
+
+
+-----
+
+75 Jahre nach Beginn des deutschen Vernichtungskrieges gegen die Sowjetunion finden in unmittelbarer Nähe
+der russischen Grenze wieder martialische Kriegsübungen unter deutscher Beteiligung statt.
+Die US-Atomwaffen in Deutschland werden modernisiert – nicht abgebaut, Frau Merkel: modernisiert – und
+Raketenbasen in ganz Europa aufgebaut. Angeblich geht es immer nur um Abschreckung, darum, Putin davon
+abzuhalten, ins Baltikum einzumarschieren. Es würde mich wirklich interessieren, ob diejenigen, die uns diesen
+Schwachsinn erzählen, auch nur eine Sekunde selbst daran glauben.
+Wer hat denn seine Grenzen in den letzten zwei Jahrzehnten immer weiter nach vorne geschoben?
+Russland in Richtung NATO, oder war es nicht eher umgekehrt?
+Die USA haben 5 Milliarden Dollar in einen Regime-Change in der Ukraine investiert. Das Ergebnis ist ein
+zerrissenes Land mit marodierenden faschistischen Banden und, ja, der russischen Annexion der Krim, die
+immer als Beweis für die Aggressivität der russischen Aussenpolitik herhalten muss.
+Auch die neue Aufrüstungsspirale dient angeblich immer nur dazu, den russischen Bären im Zaum zu halten.
+Eine dümmere Begründung kann man sich wirklich nicht ausdenken.
+Aktuell liegen die Militärausgaben der NATO beim etwa 13fachen der russischen. Und jetzt brauchen wir noch
+mehr Aufrüstung, um die Sicherheit in Europa zu gewährleisten? Was ist denn das für ein Irrsinn!
+Trotzdem gehörten Sie, Frau Bundeskanzlerin, wieder einmal zu den ersten, die die Umsetzung des 2-ProzentZiels angekündigt haben. 2 Prozent, das bedeutet 25 Milliarden Euro jedes Jahr mehr für Mordwaffen, für Panzer
+und für Kriegsgerät, aber für gute Renten fehlt uns angeblich das Geld, und für bessere Bildung erst recht. Was
+sind denn das für absurde politische Prioritäten, die Sie hier setzen? Das kann doch nicht Ihr Ernst sein.
+Der grosse Aussenpolitiker George F. Kennan hat die NATO-Osterweiterung schon Ende der Neunziger als den
+verhängnisvollsten Fehler der US-Politik seit der Ära des Kalten Krieges bezeichnet, eben weil die Einkreisung
+Russlands den Weltfrieden nicht sichert, sondern gefährdet. Und trotzdem wird sie immer weiter vorange trieben, auch mit Ihrer Unterstützung, Frau Merkel. Wir finden das unverantwortlich.
+Sie haben auf Artikel 5 des NATO-Vertrages hingewiesen. Leider haben Sie Artikel 1 nicht erwähnt, der die
+NATO-Mitglieder verpflichtet, sich jeglicher Drohung oder Gewaltanwendung zu enthalten. Ich glaube, es liegt
+auf der Hand, dass die NATO und allen voran die USA mit ihren völkerrechtswidrigen Kriegen und ihren
+Drohnenmorden ihren eigenen Vertrag tagtäglich mit Füssen treten. Dazu hätte ich von Ihnen auch ein Wort
+erwartet.
+Ich muss schon sagen: Über die Destabilisierung des Nahen Ostens zu reden, wie Sie es eben getan haben, aber
+die Hauptverantwortung von NATO-Staaten und den Irakkrieg noch nicht einmal zu erwähnen, das zeugt nun
+wirklich von bemerkenswerter Einäugigkeit.
+Die Manöver in Osteuropa, die Hochrüstung, die Raketenbasen, die Truppenstationierung: Was kann Moskau
+darin denn anderes sehen als Kriegsvorbereitung? Auf jeden Fall wird so die Wahrscheinlichkeit und die Möglichkeit einer militärischen Eskalation mit der Atommacht Russland beträchtlich erhöht. Der Ernstfall, für den
+Sie in Osteuropa so lässig proben und von dem neuerdings in Militärkreisen wieder geredet wird, als wäre er
+ein kalkulierbares Ereignis – Frau Merkel, ich finde es ja interessant, dass Sie sich mit Herrn Hofreiter unterhalten; aber ich würde es doch gut finden, wenn Sie meiner Rede wenigstens etwas Gehör verleihen würden.
+Nach einem solchen Ernstfall, für den Sie in Osteuropa so lässig proben und von dem neuerdings in Militärkreisen wieder geredet wird, als wäre er ein kalkulierbares Ereignis, würde es Europa mit seinen über 700
+Millionen Einwohnern vielleicht nicht mehr geben.
+Das Urteil Willy Brandts, dass ein Krieg mit Russland nicht die Ultima Ratio, sondern die Ultima Irratio ist, das
+gilt doch heute nicht weniger als in den 1970er Jahren. Deshalb ist es dringend an der Zeit für eine eigenständige
+europäische Aussenpolitik in der Tradition der Entspannungspolitik und natürlich auch für die Ersetzung der
+US-dominierten NATO durch ein kollektives Sicherheitssystem unter Einschluss Russlands.
+Schon Helmut Schmidt war der Meinung, dass heute mehr Gefahr von den USA als von Russland ausgeht. Das
+dürfte nach den nächsten US-Präsidentschaftswahlen, wenn im Weissen Haus entweder ein Halbverrückter
+oder eine Marionette der US-Rüstungslobby regiert, nicht viel anders werden.
+Aber das Verhältnis zu Russland und die Kriegsgefahr sind leider nicht die einzigen Punkte, bei denen die
+politischen Uhren rückwärts laufen. Ich muss schon sagen: Ich finde es ebenso bezeichnend wie traurig, dass
+Ihre Regierungserklärung zu den Ergebnissen des Europäischen Rates letzte Woche mal eben von der Tages ordnung abgesetzt wurde. Wegschweigen, aussitzen, bloss nicht über Veränderungen reden – das können doch
+nicht ernsthaft Ihre Schlussfolgerungen aus der aktuellen Krise sein.
+Der französische Ökonom Piketty hat doch recht, wenn er Ihnen, Frau Bundeskanzlerin, eine wesentliche
+Mitverantwortung für den Brexit und den zunehmenden Nationalismus andernorts gibt.
+
+
+-----
+
+Ihre ständigen Alleingänge haben den europäischen Zusammenhalt ebenso wenig gestärkt wie die Besserwisserei,
+mit der die deutsche Regierung versucht, ganz Europa auf die Linie der deutschen Wirtschaftspolitik zu bringen.
+Halten Sie doch endlich einmal inne, und überdenken Sie Ihre Politik, bevor es wirklich zu spät ist.
+Das geeinte Europa, Verständigung und Zusammenarbeit zwischen jahrhundertelang verfeindeten Völkern, ein
+europäisches Sozialmodell als Alternative zum entfesselten Kapitalismus, das war einmal ein grosses, ich würde
+sagen, ein grossartiges Projekt. Es geht längst nicht mehr darum, ob dieses Projekt eine Zukunft hat. Es geht darum, ob es wieder eine Gegenwart bekommt; denn die europäische Integration hat sich doch längst ins Gegenteil
+verkehrt, in ein Projekt zur Entfesselung der Märkte und zur Aushebelung der Demokratie, in ein Projekt, das
+europaweit die Prekarisierung der Arbeit und den Abbau sozialer Leistungen vorantreibt. Die Wachstumsraten
+sind heute in den meisten EU-Staaten niedriger und die Arbeitslosigkeit höher als vor Einführung des Binnenmarktes. Ländern, in denen jeder zweite Jugendliche keinen Job und keine Perspektive hat, werden mit kaltem
+Ehrgeiz Kürzungsprogramme diktiert. Dieser Ehrgeiz verlässt die EU aber sofort, wenn es zum Beispiel darum
+geht, den Steuertricks von Apple, Google & Co. endlich die Grundlage zu entziehen. Dabei tragen sie weiss Gott
+mehr Verantwortung für die öffentlichen Defizite als für angeblich generöse Sozialprogramme.
+Überall in Europa wächst die Ungleichheit. Zwischen schamlosem Reichtum am oberen und hoffnungsloser
+Armut am unteren Ende lebt eine schrumpfende, abstiegsgefährdete Mittelschicht, die sich politisch im Stich
+gelassen fühlt. Die Zustimmung zur EU geht doch nicht deshalb zurück, weil irgendwelche Nationalisten
+Stimmungen schüren. Die Zustimmung geht zurück, weil die Mehrheit schlicht keinen Grund hat, sich für eine
+EU zu begeistern, die ihren Wohlstand verringert und ihre demokratischen Rechte aushebelt.
+Die agilsten Gegner Europas sitzen heute in Brüssel. Es ist nicht bekannt, ob Marine Le Pen Herrn Juncker inzwischen für ihre Frexit-Kampagne als Mitarbeiter verpflichtet hat; aber er ist definitiv ihr bester Mann. Die
+Stimmen in Grossbritannien waren kaum ausgezählt, als Herr Juncker noch einmal bekräftigte, dass das Handelsabkommen CETA ohne Zustimmung der Mitgliedstaaten in Kraft gesetzt werden soll. Inzwischen hat die
+Kommission den Mitgliedstaaten zwar grosszügig das Recht zur Ratifizierung eingeräumt; allerdings ist das
+wieder nur ein Täuschungsmanöver, weil sie das Abkommen vorläufig in Kraft setzen will. Ich hätte von der
+Bundesregierung schon gerne gehört, wie sie zu dieser erneuten Unverschämtheit unserer Brüsseler Antidemokraten steht.
+Das ist ja nicht alles. Wenige Tage nach dem Brexit entschied die EU-Kommission, das mutmasslich krebs erregende Pflanzengift Glyphosat für weitere anderthalb Jahre zuzulassen. Das Defizitverfahren gegen Portugal
+und Spanien soll trotz Krise verschärft werden. Ignoranz gegenüber demokratischen Rechten, Einknicken
+gegenüber der Wirtschaftslobby und Gleichgültigkeit gegenüber einer perspektivlosen jungen Generation:
+Deutlicher als mit diesen drei Entscheidungen konnte man in der kurzen Zeit seit dem Brexit wirklich nicht all
+das demonstrieren, was die Menschen an der EU abstösst.
+Wer nicht will, dass Europa endgültig zerfällt, der muss doch spätestens jetzt auf einen sozialen und demokratischen Neubeginn setzen, auf ein Europa, das die Menschen wieder begeistern kann und in dem Referenden nicht
+als Bedrohung, sondern als normaler Bestandteil der Demokratie empfunden werden.
+So ein Europa wollen zumindest wir als Linke, gerade weil wir nicht wollen, dass die Geister der Vergangenheit
+über unsere Zukunft bestimmen.
+_Quelle:_ _https://wahrheitfuerdeutschland.de/wagenknecht-zu-merkel-25-mrd-euro-jedes-jahr-fuer-kriegsgeraet-aber-kein-_
+_geld-fuer-renten-das-kann-doch-nicht-ihr-ernst-sein/_
+
+#### Deutsche haben die ‹Willkommenskultur› satt – wünschen sich von ‹Flüchtlingen› mehr Bescheidenheit
+_By Angelika on 7. Juli 2016_
+Eine aktuelle Studie offenbart, dass immer weniger Deutsche sich mit der
+‹Willkommenskultur› gegenüber Zuwanderern identifizieren. Mehr als jeder
+dritte Befragte forderte, Zuwanderer müssten sich stärker anpassen und
+sollten weniger Ansprüche stellen. Überraschend ist, welche Gruppe besonders viele Forderungen an Zuwanderer stellt.
+Eine aktuelle Studie zeigt, dass die Deutschen Zuwanderern und der ‹Willkommenskultur› zunehmend skeptisch gegenüberstehen. Die Untersuchung
+im Auftrag der Mercator-Stiftung stützt sich auf Telefon-Befragungen während des Jahreswechsels 2015/2016.
+
+
+-----
+
+Dabei wurden Deutsche mit und ohne Migrationshintergrund befragt. Demnach sank die Zustimmung zur sogenannten Willkommenskultur insgesamt, ausserdem pochen mehr Menschen auf ‹Vorrechte für Alteingesessene›. FOCUS Online zeigt die interessantesten Ergebnisse der Studie.
+
+**1. Die Zustimmung zur Willkommenskultur ist weiter gesunken.**
+Der Studie zufolge lag die durchschnittliche Zustimmungsquote zu einer ‹Willkommenskultur und dem
+damit verbundenen offenen Heimatkonzept› unter Deutschen ohne Migrationshintergrund bei 32,3 Prozent.
+Bei der identischen Vorläuferstudie vom Jahreswechsel 2013/14 waren es noch 39,5 Prozent gewesen.
+Die Unterstützung für ein ‹Heimatkonzept, das sich auch für ethnisch-kulturelle Minderheiten öffnet›, brach
+der vom Institut für interdisziplinäre Konflikt- und Gewaltforschung (IKG) der Universität Bielefeld konzipierten Untersuchung zufolge um zehn Prozentpunkte ein. Freuten sich 2013/14 noch 54,7 Prozent darüber,
+dass sich mehr Migranten in Deutschland zu Hause fühlen, waren es 2015/16 nur noch 43,3 Prozent.
+
+**2. Vor allem Deutsche mit Zuwanderungshintergrund fordern, Migranten müssten sich mehr anpassen.**
+Immer mehr Deutsche sind der Auffassung, Migranten müssten sich stärker anpassen. Waren es zur Jahreswende 2013/2014 rund 36 Prozent, die dies befürworteten, so verlangt inzwischen jeder Zweite (53,5 Prozent),
+Migranten hätten sich an Deutsche anzupassen. Unter den Deutschen mit Migrationshintergrund sprechen
+sich sogar knapp 60 Prozent für eine solche Anpassung aus. Dass Integration am besten funktioniert, wenn
+sich beide Seiten aufeinander zu bewegen, glaubt dagegen nur eine Minderheit.
+
+**3. Viele Deutsche fordern von Migranten Bescheidenheit.**
+Bei der Befragung forderten knapp 41 Prozent der Deutschen ohne Migrationsgeschichte, wer neu dazu gekommen sei, ‹sollte sich erst mal mit weniger zufrieden geben›. Unter den Deutschen mit ausländischen
+Wurzeln vertraten sogar 51,5 Prozent diese Ansicht. Etwa ein Drittel der Neubürger und der ‹Alteingesessenen›
+sind zudem der Meinung, Neuankömmlinge sollten ‹auf keinen Fall Forderungen stellen oder Ansprüche
+erheben›.
+Dass auch viele Menschen, die selbst einmal als Zuwanderer nach Deutschland gekommen waren, diese
+Ansicht vertreten, hat vielleicht aber auch etwas mit Gerüchten und Falschmeldungen über die Lebensverhältnisse der Asylbewerber und Flüchtlinge zu tun. Besonders hartnäckig hält sich beispielsweise die Mär,
+jeder Flüchtling erhalte eine Art ‹Willkommensgeld›, weiss die Integrationsbeauftragte der Bundesregierung,
+Aydan Özoguz, zu berichten.
+
+**4. Viele fühlen sich von der Migration überfordert.**
+Der Aussage «Wir sollten stärker darauf achten, nicht von den Migranten überrannt zu werden» stimmen
+inzwischen rund 41 Prozent der Deutschen ohne Migrationsgeschichte zu. Vor zwei Jahren war die Zustimmung zu diesem Satz mit 28 Prozent noch deutlich geringer. Die Zahl derjenigen, die fordern, «wir sollten
+in der Öffentlichkeit wieder sehr viel selbstbewusster gegenüber Migranten auftreten» stieg im gleichen Zeitraum von 33,5 auf 44,5 Prozent.
+
+**5. Die Deutschen sind zunehmend der Meinung, die Alteingesessenen sollten Vorrechte gegenüber den Zu-**
+**wanderern haben.**
+Zwar waren mehr als zwei Drittel (72,6 Prozent) der Meinung, dass Menschen, die neu oder später hinzukommen, die gleichen Rechte haben wie alle anderen. 2013/14 waren es allerdings noch 84,6 Prozent gewesen.
+Parallel stieg der Anteil derer, die Vorrechte für alteingesessene Bevölkerungsteile fordern. Die ‹Zustimmung
+zu Etabliertenvorrechten› habe sich unter Deutschen ohne Migrationshintergrund in der Gesamtbetrachtung von 5,4 Prozent in 203/14 auf 16,4 Prozent in 2015/16 etwa verdreifacht, berichteten die Bielefelder
+Wissenschaftler. Quelle: Focus
+_Quelle: http://www.denken-macht-frei.info/deutsche-haben-die-willkommenskultur-satt-wuenschen-sich-von-fluechtlingen-_
+_mehr-bescheidenheit/_
+
+
+-----
+
+-----
+
+**wwwwwwwwww.sasek.sasek.vt**
+
+
+**w**
+
+
+**wwwwwwww**
+
+
+**wwww**
+
+
+-----
+
+#### Gorbatschow: Beinahe eine Kriegserklärung der Nato an Russland
+_Epoch Times 10. Juli 2016 Aktualisiert: 10. Juli 2016 17:46_
+«Sie sprechen nur über Verteidigung, aber im Grunde treffen sie Vorbereitungen für Angriffshandlungen.» Von einem Kalten Krieg gehe die Nato zu den
+Vorbereitungen für einen heissen über, sagt Michail Gorbatschow zu den
+Ergebnissen des Nato-Treffens in Warschau.
+Die Rhetorik der Nato wirke wie eine Kriegserklärung an Russland, kommentiert der frühere Präsident Michail Gorbatschow die jüngsten Beschlüsse
+der Nato.
+Vor allem für Kanzlerin Angela Merkel (CDU) und die Bundesregierung
+
+_Der russische Friedensnobelpreisträ-_ sind die Äusserungen politisch heikel. Gorbatschow äussert sich zwar seit
+_ger Michail Gorbatschow warf dem_ längerem kritisch über den Kurs der Nato und verteidigt einzelne Entschei_Militärbündnis Kriegstreiberei vor._ dungen von Kremlchef Wladimir Putin. Weltweit gilt er aber noch immer als
+_Foto: Jörg Carstensen/Archiv/dpa_ derjenige Politiker, der massgeblich zum Ende des Kalten Krieges beitrug
+
+und die deutsche Wiedervereinigung ermöglichte.
+Zumindest Deutschland und Länder wie Frankreich hatten sich vorgenommen, nicht den Eindruck zu erwecken, dass in Warschau ein ‹Anti-Russland-Gipfel› abgehalten wird. Der Nato bleibe nichts anderes übrig, als
+mit mehr Abschreckung auf die Ukraine-Krise und die Sorgen der östlichen Bündnispartner zu reagieren, sollte
+die Botschaft lauten. Die Hand in Richtung Moskau sei und bleibe dabei ausgestreckt. Mehr Dialog und
+Entspannung seien das Ziel. «Für Frankreich ist Russland kein Gegner, keine Gefahr», sagt der französische
+Staatschef François Hollande.
+Russland kündigte mehrfach an, auf die in Warschau endgültig beschlossene Verlegung von 4000 Soldaten in
+die Nachbarländer Litauen, Lettland, Estland und Polen ‹angemessen› zu reagieren. Die stationierten Soldaten
+sind dabei das Geringste. Die Nato kündigte auf dem Gipfeltreffen auch an, dass der Raketenschutzschirm gegen
+Russland im Prinzip fertig ist – und das wird von Russland viel kritischer betrachtet.
+Auf Seiten der Nato soll die Aufrüstung noch weiter gehen. Beim Gipfel in der polnischen Hauptstadt kündigte
+die Nato an, Pläne für eine verstärkte Präsenz im Schwarzen Meer zu entwickeln. Sie sollen zum nächsten NatoVerteidigungsministertreffen im Oktober vorliegen.
+In den östlichen Bündnisstaaten, die sich von Russland bedroht sehen, wird ein Dialog mit Russland für wenig
+vielversprechend gehalten. Russland sei nicht bereit, sich anders zu verhalten, kritisiert die litauische Staatspräsidentin Dalia Grybauskaite. «Beide Seiten werden darauf hinweisen, wie sie über die Beziehungen denken –
+und das ist alles.»
+Grybauskaite betont stattdessen: «Die Nato hat ihre Schreibstuben und ihre Pläne auf Papier hinter sich gelassen,
+ist aufs Feld hinaus gegangen und zu einer echten Verteidigungsorganisation geworden», sagt sie in Warschau.
+«Es ist das erste Mal nach dem Kalten Krieg, dass die Nato-Partner in diesem Ausmass in Abschreckung und
+Verteidigung ihres eigenen Territoriums investieren.»
+Der 85-jährige Gorbatschow kommentiert, Russland werde dadurch zu harten und gefährlichen Reaktionen
+provoziert. Das klingt nach einem neuen Wettrüsten. Nach Kaltem Krieg, nach dem, was die Nato eigentlich
+nicht will. (dpa)
+_Quelle: http://www.epochtimes.de/politik/welt/gorbatschow-beinahe-eine-kriegserklaerung-der-nato-an-russland-a1343210.html_
+
+#### Hierzu als Warnung ein Auszug aus dem 251. Kontaktgespräch vom 3. Februar 1995
+**Ptaah:**
+203. Und wieder werden neue Waffen von sich reden machen, wie auch der Tod von vier Staatsoberhäuptern,
+die innerhalb von sieben Tagen den Tod finden werden.
+204. Dies wird ein letztes Gefahrenzeichen dessen sein, dass der schon so lange gefürchtete Weltkrieg dann doch
+noch ausbrechen wird innerhalb von nur noch rund zwei Jahren, wenn die Erdenmenschen nicht endlich
+der Vernunft mächtig werden und alles Übel stoppen.
+205. Geschieht dies nicht, dann nutzt es den Menschen auch nichts mehr, wenn sie versuchen, gegen die neuen,
+tödlichen Waffen zu protestieren, um diese zu ächten, denn die Waffenarsenale werden dann in vielen
+Ländern bereits vollgefüllt damit sein.
+206. Also wird es auch nichts mehr nützen, wenn nachträglich noch Gesetze erstellt werden, die das Nutzen
+dieser Waffen verbieten sollen.
+
+
+-----
+
+207. Wenn der Mensch nicht endlich vernünftig wird, dann ist der Dritte Weltkrieg tatsächlich nicht zu ver**meiden, der erst mit konventionellen Waffen beginnen, dann jedoch atomar sowie chemisch und biologisch**
+**eskalieren wird. Ausbrechen wird der Weltkrieg dann in einem bestimmten Jahr im Monat November,**
+**nachdem rund 5 Jahre darauf hingearbeitet worden ist in intensiver Form, wobei dieser Zeit noch vier**
+**weitere Jahre vorangesetzt sein werden in unbestimmt vorbereitender Form.**
+208. Bricht der Krieg dann tatsächlich aus, dann dauert er bis auf rund einen Monat 4 Jahre, so er also im Monat
+Oktober des vierten Jahres enden wird, nachdem die nördliche Halbkugel der Erde weitgehend zerstört
+wurde durch Atomfeuer und radioaktive Strahlung, durch die sowohl die Tierwelt als auch die gesamte
+Pflanzenwelt vernichtet wird, wenn der Mensch nicht dazu sieht, dass sich die Prophetie nur als solche erweist und nicht in Erfüllung geht.
+209. Geschieht das aber nicht, dann folgen den vier Kriegsjahren noch weitere, bittere 11 Jahre der Not, des
+Elends und der Hungersnot und vieler anderer Übel.
+210. Nachkommen werden infolge der radioaktiven Strahlung Verkrüppelte und Mutierte sein, und viele derjenigen, die den Krieg überleben, werden radioaktiv verseucht und verbrannt sein, wie auch durch Chemiewaffen grässliche und Entsetzen hervorrufende Hautkrankheiten in Erscheinung treten werden.
+211. Durch biologische Waffen wird dies ebenfalls der Fall sein, wie durch diese auch Geschwüre und vielerlei
+andere Übel und gar böse menschliche Ausgeburten hervorgerufen werden usw.
+
+#### Organspende-Genehmigung beim neusten Apple Software-Update?
+_Heiko Schrang 13. Juli 201613. Juli 2016_
+Was sich wie ein Aprilscherz anhört, könnte in wenigen Monaten bittere Realität werden, so Gerüchte, die in den letzten Tagen die Runde im Internet machen. Dort wird behauptet, dass Apple sein neues iPhone Software-Update
+iOS 10 mit einem automatischen ‹Organspende-Notfallpass› ausgestattet
+hat.
+Bei dem Update wird angeblich unter Einstellungen automatisch ein JA für
+‹Organspende› eingesetzt. Der Benutzer hat die Möglichkeit dies zu ändern,
+aber den wenigsten ist dies bewusst. Dazu gibt Apple selbst auf seiner Webseite an, dass die Zustimmung zur Organ-, Augen- und Gewebeentnahme an
+das ‹National Donate Life Registry› in den USA übermittelt wird. In Echtzeit wird der iPhone-Besitzer als Organspender angemeldet. Ferner schreibt Apple, dass so die ungeheure Nachfrage nach Organen leichter befriedigt werden kann. Jedoch schreibt Apple in seiner Presseinformation, der ein fache Anmeldeprozess ermögliche
+iPhone-Nutzern mehr zu erfahren und mit wenigen Klicks schnell aktiv zu werden. Von einer automatischen
+Anmeldung ist hier hingegen nicht die Rede.
+Dank des neuen Updates, so Apple-Pressesprecherin Jacqueline Roy, müssen sich die Angehörigen eines Schwerverletzten nun auch nicht mehr mit der Entscheidung quälen, ob lebenserhaltende Massnahmen durchgeführt
+werden, oder ob der Angehörige zur Organspende freigegeben wird. Mit der online-Registrierung über das
+Software-Update iOS 10, ist die Zustimmung zur Organentnahme bereits gefallen.
+
+
+-----
+
+In der Regel werden jedem Schwerverletzten bis zu 8 Organe entnommen, so Apple auf seiner Homepage. Was
+jedoch die wenigsten wissen: Bei Toten können keine Organe entnommen werden. Ein Mensch muss noch am
+Leben sein, damit ihm Organe entnommen werden können! Den Angehörigen wird daher in der Regel erzählt,
+der Betroffene wäre ‹hirntot›, dabei funktionieren Herz, Kreislauf und alle anderen Organe noch einwandfrei.
+Die Grenze zwischen ‹Hirntoten› und Komatösen, das heisst Menschen, die nach mehreren Wochen oder mitunter auch Jahren wieder aus dem Koma erwachen, ist fliessend und medizinisch bis heute umstritten.
+So sind zahlreiche Fälle dokumentiert, wie beispielsweise auf der Seite ‹Hirntoddebatte›, bei denen Ärzte den
+‹Hirntod› feststellten und die Organspende vornehmen wollten, der Betroffene jedoch wieder zum Leben erwachte. Hätten diese Personen beim Software-Update von Apple der Organspende zugestimmt, wäre ihr Körper
+innerhalb weniger Stunden inklusive der Augen ausgeschlachtet worden und der angeblich ‹Hirntote› heute
+tatsächlich tot.
+Über diese und andere Themen schreibe ich regelmässig in meinem kostenlosen Newsletter der mittlerweile
+von ca.1 Million Menschen gelesen wird. Anmeldung unter: http://www.macht-steuert-wissen.de/newsletteranmeldung/
+Beste Grüsse
+Erkennen – Erwachen – Verändern
+Heiko Schrang (kein Smartphone-Besitzer)
+
+_P.S.: Ich erhebe keinen Anspruch auf Absolutheit für den Inhalt, da er lediglich meine subjektive Betrachtungsweise_
+_wiedergibt und jeder sich seinen Teil daraus herausziehen kann, um dies mit seinem Weltbild abzugleichen. Weitere_
+_Anregungen auch unter www.macht-steuert-wissen.de_
+_Quelle: http://www.apple.com/newsroom/2016/07/apple-and-donate-life-america-bring-organ-donation-to-iphone.html bzw._
+_http://www.macht-steuert-wissen.de/1521/skandal-organspende-genehmigung-beim-neusten-apple-softwareupdate/_
+
+#### Den Leitmedien die Gefolgschaft verweigern
+_6. Juli 2016_
+**Weil der Bestellseller-Autor sein neustes Buch ‹Grenzenlos kriminell – Was**
+**uns Politik und Massenmedien über die Straftaten von Migranten ver-**
+**schweigen› auf Facebook beworben hat, wurde seine Seite nun auf Zucker-**
+**bergs Plattform gesperrt. Aus Solidarität mit Ulfkotte veröffentlichen wir**
+**nachstehend ein Interview, welches in der Info-DIREKT-Printausgabe 3-**
+**2016 erschienen ist:**
+**Info-DIREKT: In Ihrem neuesten Buch ‹Gekaufte Journalisten› stellen Sie die These auf, dass Journalisten uns**
+**im Auftrag der Mächtigen manipulieren. Das klingt in der offiziellen Lesart nach einer Verschwörungstheorie.**
+**Sind Sie ein Verschwörungstheoretiker?**
+**Udo Ulfkotte: Mit dem Wort wäre ich vorsichtig. All jene, welche es benutzen, wissen wahrscheinlich nicht,**
+woher das Wort ‹Verschwörungstheorie› seine heutige Bedeutung hat: Es stammt von der CIA. Im April 1967
+schickte die CIA im Zusammenhang mit dem Prozess um den Mord an Kennedy aus ihrer Abteilung für psychologische Kriegsführung eine Anweisung an alle CIA-Stationen. In dem Schreiben wurden Hinweise gegeben,
+wie mit Kritikern umzugehen sei, und der bis dahin gebräuchliche Begriff ‹assassination theories› (Attentatstheorien) durch ‹conspiracy theories› – also ‹Verschwörungstheorien› – ersetzt. Das bis dahin neutrale Wort
+‹Verschwörungstheorie› wurde so vor allem unter Journalisten der grossen Medien zu einem Kampfbegriff der
+CIA umgemünzt. Und den Kritikern wurde unterstellt, dass sie als ‹Verschwörungstheoretiker› allein aus staatsfeindlichen und/oder kommerziellen Gründen unterwegs seien. Genau das sind die Ursprünge des journalistischen Kampfbegriffs der ‹Verschwörungstheorien›. Wenn man also in Berichten zu mainstream-kritischen Aussagen regelmässig das Wort ‹Verschwörungstheorie› benutzt, dann weiss man, was man davon zu halten hat:
+Das sind dann CIA-Kampfbegriffe. Denn es geht hier nicht um geheime Mächte, sondern um Kräfte, die zwar
+im Geheimen zu wirken versuchen, aber auch enttarnt werden können.
+
+**DIREKT: Und daher misstrauen immer mehr Menschen unseren Leitmedien?**
+**Ulfkotte:** Als Flug MH17 über der Ukraine abgeschossen wurde und die Trümmer noch nicht einmal den Boden
+berührt hatten, da brüllten alle Leitmedien vereint, das seien die bösen Russen oder pro-russische Kräfte ge 
+
+-----
+
+wesen. Da wundert sich auch der einfachste Bürger, woher die das alles wissen. Das Misstrauen haben die
+Qualitätsmedien selbst produziert. Sie haben uns die Lügen vor dem Irak-Krieg als Realität verkauft, sie haben
+uns erzählt, wie deutsche Soldaten Frieden und Freiheit am Hindukusch bringen würden, sie haben behauptet,
+dass der Euro stabiler als die D-Mark werde, man könnte die Auflistung beliebig fortsetzen. Sie haben halt immer
+das berichtet, was die pro-amerikanischen Eliten von ihnen erwartet haben. Und das war einseitig und häufig
+reine Desinformation.
+
+**DIREKT: Ihr neues Buch ist mittlerweile schon ein Bestseller, andererseits schweigt sich die etablierte Medien-**
+**landschaft in Deutschland darüber aus. Wie passt das zusammen?**
+**Ulfkotte: Ich habe nichts anderes erwartet. Wenn beispielsweise ein Arzt ein Buch über Ärztepfusch schreibt**
+und die Namen der betroffenen Ärzte nennt, dann sind seine Kollegen auch alles andere als begeistert. Sie
+werden das Buch dann nicht in ihren Wartezimmern auslegen. Daher ist die Reaktion auf mein Buch durchaus
+verständlich.
+
+**DIREKT: Gab es denn im Vorfeld Versuche, Sie an der Veröffentlichung Ihres Buches zu hindern?**
+**Ulfkotte: Ich habe der ‹Frankfurter Zeitung› (FAZ) vorher mitgeteilt, dass ich dieses Buch schreiben werde. Von**
+dort wurde mir gesagt, dass man mich zivilrechtlich, presserechtlich, strafrechtlich und arbeitsrechtlich mit
+allen zur Verfügung stehenden Mitteln verfolgen werde. Das ist aber bis heute nicht geschehen.
+
+**DIREKT: Wie ernst ist es den Mainstream-Medien mit dem journalistischen Ethos?**
+**Ulfkotte: Dieses Ethos gibt es nicht mehr. Ich gehe so weit zu behaupten, dass die Pressefreiheit in Deutschland**
+ohnehin nur noch simuliert wird und eine Art Illusion ist. Mir haben viele Journalisten geschrieben, dass sie
+gerne über das Buch berichten würden – aber sie dürfen es nicht. Man habe ihnen ganz klar gesagt, dass sie
+damit ihr Beschäftigungsverhältnis riskieren würden. Es gab mehr als 1000 Anforderungen von Rezensions exemplaren des Buches, doch bislang hat kaum ein Journalist darüber berichtet.
+
+**DIREKT: Wie muss man sich denn konkret den Manipulationsvorgang vorstellen?**
+**Ulfkotte: Ganz einfach: Da werden Volkshelden zu Idioten gestempelt. Jeder weiss, dass es die von der Politik**
+behauptete ‹Bereicherung› durch Massen von Armutsmigranten in Wahrheit nicht gibt. Überall dort, wo diese
+‹Bereicherung› zahlenmässig am grössten aufschlägt, brechen die Kommunen zusammen. Und da sind die
+Probleme am grössten.
+Jeder sieht, dass Menschen wie Sarrazin oder Pirincci nur die Wahrheit sagen. Und dafür werden sie fertig
+gemacht. Ich werde nie vergessen, wie man in unseren Medien Sarrazin als ‹lispelnde, stotternde Menschen karikatur› bezeichnete. Da wird wirklich mit allen Mitteln gearbeitet. Widerlich!
+**DIREKT: Dominiert plumpe Fälschung oder spielt sich die Irreführung eher in der Form von subtiler Aus-**
+**wahl, Darstellung und Gewichtung medialer Inhalte ab?**
+**Ulfkotte: Es ist eine Mischung, ganz nach Bedarf. Am brutalsten ist die Schere im Kopf, die unsere Journalisten**
+haben. Diese politische Korrektheit, dieser vorauseilende Gehorsam den Eliten gegenüber. Das ist wie in einer
+Bananenrepublik. Schauen Sie sich doch einmal unsere grossen Talkshows an. Immer die gleichen Wasch mittelparolen.
+
+**DIREKT: Früher sassen Sie selbst als FAZ-Redakteur am Manipulationshebel. Heute inszenieren Sie sich als**
+**der grosse Enthüller. Sind Sie ein bekehrter Sünder?**
+**Ulfkotte: Es ist ganz sicher nicht einfach, Fehler einzugestehen. Ich schäme mich dafür, was ich 17 Jahre lang**
+unter Anweisung meiner Chefs bei der FAZ gemacht habe. Es war nicht richtig, Politiker auf 5-Sterne-Reisen
+zu begleiten und die vorformulierten Pressemeldungen abzuschreiben. Es war auch nicht richtig, dem ständigen
+Druck zur gelenkten Berichterstattung von Bundesnachrichtendienst und Auswärtigem Amt nachzugeben –
+immer mit Wissen der FAZ.
+
+**DIREKT: Mit welchen Mitteln beeinflussen Dienste und Lobbyorganisationen die Arbeit von Journalisten?**
+**Ulfkotte: Ich habe nie Geld für eine bestimmte Berichterstattung bekommen, sondern immer andere Arten von**
+Gegenleistungen. Ich habe z. B. für meine pro-amerikanische Berichterstattung die Ehrenbürgerschaft des USBundesstaates Oklahoma bekommen. Die Amerikaner haben mir eine komplette Tauchausrüstung finanziert.
+Mit diesen ‹Gegenleistungen› hat man sich immer mehr in einem Spinnennetz der Interessen verfangen.
+
+
+-----
+
+**DIREKT: Ist diese Situation nicht auch eine grosse Chance für alternative Medien, dem Mainstream Kon -**
+**kurrenz zu machen?**
+**Ulfkotte: Ich habe nicht die Illusion, dass ich beispielsweise mit meinem Buch eine Revolution auslösen werde.**
+Es ist ein schleichender Prozess. Am Ende des Buches mache ich darauf aufmerksam, dass es viele alternative
+Medien gibt, die es wert sind, dass man sie sich genauer anschaut. Es ist aber vor allem wichtig, den sogenannten
+Leitmedien die Gefolgschaft zu verweigern. Wenn die Leute keine Abos bei den grossen Medien mehr ab schliessen oder diese kündigen, macht man die Leitjournalisten langfristig arbeitslos.
+_Quelle: http://www.info-direkt.eu/den-leitmedien-die-gefolgschaft-verweigern/_
+
+
+-----
+

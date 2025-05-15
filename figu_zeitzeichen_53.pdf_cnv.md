@@ -1,0 +1,1574 @@
+**L**
+
+**WESEN FREMDER WELTEN**
+
+# FIGU– BESUCHEN DIE ERDE
+
+**Freie**
+
+# ZEITZEICHEN Interessengemeinschaft
+
+**FIGU**
+
+## Aktuelles • Einsichten • Erkenntnisse r
+
+**Erscheinungsweise:** **Internetz: www.figu.org** **2. Jahrgang**
+**Sporadisch** **E-Brief: info@figu.org** **Nr. 53, September 2016**
+
+#### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+Laut ‹Allgemeine Erklärung der Menschenrechte› vom 10. Dezember 1948, Artikel 19, ‹Meinungs- und Informationsfreiheit›:
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die**
+**Freiheit, Meinungen unangefochten anzuhängen und Informationen und Ideen mit allen**
+**Verständigungsmitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Aussagen und Meinungen müssen nicht zwingend identisch sein mit Gedanken, Interessen, Lehre und Missionsgut der FIGU.
+
+### Vergewaltigungen und sexuelle Übergriffe durch Rapefugees
+Posted by Maria Lourdes - 05/08/2016
+**Wie aufgrund der muslimisch-rassistischen Silvester-Pogrome bekannt wurde,**
+**werden Straftaten von ‹Flüchtlingen› systematisch vertuscht:**
+_«Es gibt die strikte Anweisung der Behördenleitung, über Vergehen, die von Flüchtlingen begangen werden, nicht_
+_zu berichten. Nur direkte Anfragen von Medienvertretern zu solchen Taten sollen beantwortet werden.»_
+
+**Trotz des absichtlichen Vertuschens nachfolgend wieder einige Vergewaltigungen und sexuelle Übergriffe**
+**durch Rapefugees, die es an die Öffentlichkeit geschafft haben. Dank des Asylanten-Tsunamis von vorwiegend**
+jungen Männern im Alter von 18–35 Jahren gibt es in Deutschland im Jahr 2016 20 Prozent mehr Männer als
+Frauen.
+
+**_Fakten, Fakten, Fakten … und mit über 750 Quellenangaben belegt!_**
+**_Jeder neue Zuwanderer bringt der Asyl-Industrie Gewinn._**
+Wer die Zustände bei der Asylpolitik verstehen will, der kommt um unbequeme Fakten nicht herum…
+In diesem Artikel werden 20 Rapefugees-Einzelfälle aufgeführt, die unter folgender Quelle nachzulesen sind:
+_Quelle: https://lupocattivoblog.com/2016/08/05/vergewaltigungen-und-sexuelle-uebergriffe-durch-rapefugees/_
+
+### USA: Ein Mörderstaat im Inland wie im Ausland!
+_Posted by Maria Lourdes - 23/08/2016_
+**«… Im Ausland werden wir als Mörder angesehen. Andere Länder können nur zu ihrem auserkorenen Gott**
+**oder ihren Göttern beten, dass die Vereinigten Staaten nicht beschliessen mögen, dort ihren Willen durchzu-**
+**setzen, sei es durch Aufzwingen einer Regierungsform, die sie nach unserer Meinung annehmen sollten, oder**
+**indem sie ein angeblich begangenes Unrecht als Rechtfertigung dafür anführen, dass sie die Länder mit Bom-**
+**ben überziehen oder Drohnen aussenden, um ihre Führungskräfte zu töten …», schreibt Daniel H. Simpson.**
+**Früher war Daniel H. Simpson amerikanischer Botschafter vor allem in Afrika. 2001 hat er**
+**sich aus dem diplomatischen Dienst zurückgezogen. Heute schreibt er …**
+
+**_Was Sie nicht wissen sollen! Geld regiert die Welt. Doch wer regiert das Geld?_**
+_Eine kleine Gruppe von Privatbankiers regiert im Geheimen unsere Welt. Das Ziel dieser Geldelite_
+_ist kein Geringeres als die Weltherrschaft, genannt die Neue Weltordnung!_
+
+
+**L**
+
+**WESEN FREMDER WELTEN**
+**BESUCHEN DIE ERDE**
+
+
+-----
+
+### Frieden auf Erden? Nicht ehe die USA aufhören Waffen zu verkaufen und Krieg zu führen
+_Ein Artikel von Daniel H. Simpson bei Pittsburgh Post-Gazette – übersetzt und erstveröffentlicht bei Voltairenet_
+**Im Rückblick auf die Angebote der Vereinigten Staaten zum Jahresende 2015 komme ich zu dem Schluss, dass**
+**wir ein Mörderstaat sind, im Inland wie im Ausland.**
+**Der Teilbereich unserer Gesellschaft, der am meisten von dieser Rolle profitiert, wiederum im Inland wie im**
+**Ausland, ist die Rüstungsindustrie. Im Inland verkauft sie die Waffen, die nahezu unkontrolliert dazu benutzt**
+**werden, harmlose Menschengruppen abzuschlachten, selbst in Kirchen und Schulen. Unsere korrupten und**
+gewissenlosen Bundes- und Landesgesetzgeber haben nicht den Mumm und Verstand, dies zu stoppen. Dabei
+geht es nicht nur um die National Rifle Association (NRA, dt. Nationale Gewehr-Vereinigung), sondern auch
+um die Waffenproduzenten und -händler, die die NRA finanzieren, damit sie Einfluss in Washington und in
+den Landeshauptstädten nehmen kann.
+**Im Ausland werden wir als Mörder angesehen. Andere Länder können nur zu ihrem auserkorenen Gott oder**
+**ihren Göttern beten, dass die Vereinigten Staaten nicht beschliessen mögen, dort ihren Willen durchzusetzen,**
+**sei es durch Aufzwingen einer Regierungsform, die sie nach unserer Meinung annehmen sollten, oder indem**
+**sie ein angeblich begangenes Unrecht als Rechtfertigung dafür anführen, dass sie die Länder mit Bomben über-**
+**ziehen oder Drohnen aussenden, um ihre Führungskräfte zu töten.**
+**Ob man es mag oder nicht, das ist unser Ruf. Die meisten Ausländer, die ich treffe, glauben, dass wir verrückt**
+**sind. Fast alle meinen, dass wir eine Gefahr für die Weltgesellschaft sind. Einige unserer sogenannten Ver -**
+bündeten stellen sich auf unsere Seite in dem Bestreben, etwas Kontrolle über unsere mörderischen Neigungen
+zu erlangen. In diese Kategorie ordne ich die Briten ein.
+**Einige Staaten wollen einfach auf Abstand zu uns bleiben und vor allem in keiner Weise auf uns angewiesen**
+**sein. Indien ist ein Beispiel dafür. Die US-Regierung und private Waffenhändler haben Jahre daran gearbeitet,**
+**aus Indien einen Grosskunden für amerikanische Waffen zu machen. Indien hat aber den Amerikanern zu-**
+gelächelt und weiterhin die Waffen in Russland eingekauft – in dem Russland, das von dem berüchtigten
+Wladimir W. Putin geführt wird im Gegensatz zum von dem hinreissenden Barack H. Obama geführten
+Amerika. Kann es sein, dass Indien weiss, dass amerikanische Waffen unweigerlich mit amerikanischen Militärberatern gekoppelt sind, die ihre ausländischen Kunden trainieren und unterstützen?
+**Wo also standen wir, als das Jahr 2015 zu Ende ging?**
+**2015: Wir sind in Afghanistan, wo wir 2001, direkt nach 9/11, begonnen haben. Wir sind im Irak, wo Präsident**
+**George W. Bush uns 2003 unter falschen Prämissen hingeholt hat, um als Präsident in Kriegszeiten wieder -**
+**gewählt zu werden.**
+**2015: Wir haben in den letzten 14 Jahren 2332 Soldaten in Afghanistan und 4425 im Irak verloren. Noch immer**
+**unterhalten wir Tausende Soldaten in jedem Land – der Zoll dafür, dass wir Regierungen eingesetzt haben, die**
+**sich nicht selbst erhalten können. Soeben haben US-Spezialkräfte den Irakern geholfen, Ramadi zurückzu -**
+**erobern, wofür wir schon einmal gekämpft haben, dieses Mal gegen die Gruppe Islamischer Staat (Anm. Isla-**
+**mistischer Staat). Letztes Mal waren es die Sunniten, die sich dort erhoben hatten. In Afghanistan kämpfen wir**
+erneut, um Orte zu halten, die sonst an die Taliban fallen würden und die in der Tat, trotz unserer Anstrengungen,
+an die Taliban fallen könnten.
+**Warum tun wir das? Ich war der Meinung, Ronald Reagans Behauptung 1986, dass wenn wir nicht die**
+**Kommunisten in Nicaragua bekämpfen, wir sie in Harlingen, Texas, würden bekämpfen müssen, sei so tot wie**
+**der Scharlatan, der uns damals regierte. Glaubt irgend jemand wirklich, dass es irgendeinen Unterschied für**
+die Amerikaner macht, ob Ramadi im Irak oder Sangin in Afghanistan in ‹freundlichen› Händen ist? Selbst diese
+Frage zu stellen heisst sich einzubilden, dass die Abadi-Regierung im Irak und die Regierung Ghani in
+Afghanistan ‹freundliche› Hände sind – ein Fantasiebild Washingtons, das der Glaubwürdigkeit so nah kommt
+wie die Wahlkampfwerbung von Ted Cruz oder Hillary Clinton.
+**Ich vermute, Herr Obamas Bemühungen, seine Amtszeit zu beenden, ohne Afghanistan oder Irak im totalen**
+**Chaos zusammenbrechen zu sehen, können als eine Art besessene, zwanghafte Störung betrachtet werden**
+**oder als Wahlkampfloyalität gegenüber seiner früheren demokratischen Gegnerin Hillary Clinton. Wir hätten**
+schon längst die Haltung einnehmen sollen, dass wir alles, was wir konnten, in Afghanistan und im Irak getan
+haben und unsere Truppen nach Hause bringen müssen.
+**Was haben wir noch getan? Wir haben Libyen zugrunde gerichtet. Muammar Gaddafi war eine egomanische**
+**Plage, auch wenn er letztendlich auf sein Atomwaffenprogramm verzichtet hat. Aber an seine Stelle sind**
+grossteils dank der Beschlüsse von Obamas Regierung, Hillary Clinton inbegriffen, zwei emporstrebende
+
+
+-----
+
+‹nationale› Regierungen getreten und viele gesetzlose lokale Milizen, nun auch noch der Islamische Staat (Anm.
+Islamistische Staat), und die unbeschränkte Migration nach Europa.
+**Zugunsten unseres Verbündeten und grössten Waffenabnehmers Saudi-Arabien haben wir geholfen, den**
+**Jemen zu zerstören. Die Saudis haben ihn in die Steinzeit gebombt und ich habe im Weissen Haus und im**
+Pentagon bisher noch niemanden sagen gehört, dass in den saudischen Cockpits nicht US-Piloten sitzen. Jemen
+war bereits das ärmste Land im Nahen Osten.
+**Die Verstrickung der Vereinigten Staaten in den Jemen-Konflikt versetzt uns genau ins Zentrum des sunnitisch-**
+**schiitischen Konflikts innerhalb des Islam. Es gibt absolut keinen Grund auf der Welt, uns in einen inner -**
+**islamischen Konflikt einzumischen. Wir stecken mitten drin aufgrund der Verpflichtung der amerikanischen**
+Waffenhersteller zur nachträglichen Betreuung der Waffen, die sie Saudi-Arabien verkauft haben. Die Schwerter,
+mit denen sie die Köpfe der Angeklagten abschlagen, haben wir ihnen vermutlich nicht verkauft.
+**Die Vereinigten Staaten haben auch das Fehlen einer Regierung in Somalia und die Käuflichkeit der Regierung**
+**von Dschibuti benutzt, um in Dschibuti einen militärischen Vorposten aufzubauen. Dort sind nun Tausende**
+von US-Soldaten, Kampfbomber und eine Drohnenbasis ohne einen triftigen Grund. Dies ist eine unnötige,
+vom Pentagon betriebene Intervention in Afrika.
+**Wir sollten unsere Einsatzkräfte nach Hause bringen. Ehe wir das nicht tun, wird es keinen Frieden auf Erden**
+**geben. Lasst uns nicht Mörder sein.**
+_Quelle: https://lupocattivoblog.com/2016/08/23/usa-ein-moerderstaat-im-inland-wie-im-ausland/_
+
+### Merkels «Wir schaffen das» — Ein Mantra schlägt zurück
+_Veröffentlichungsdatum: 22 08 2016, 19:08_
+**Oppositionelle Politiker, einfache Bundesbürger und selbst CDU-Mitglieder sind der «Wir schaffen das»-**
+**Losung der Kanzlerin inzwischen überdrüssig, wie das US-Magazin ‹Politico› schreibt. Ein Jahr nach Ausbruch**
+**der Flüchtlingskrise wird die Parole für Angela Merkel zu einem PR-Fiasko.**
+
+«Wir schaffen das!» sei Merkels übermutige Antwort auf die Herausforderung der Flüchtlingskrise gewesen, die
+ganz Europa ergriffen hat, schreibt das Magazin. Die Losung der Bundeskanzlerin sorge bis heute für Resonanz
+– mittlerweile allerdings für unerwünschte. Immer und immer wieder wiederholte die Bundeskanzlerin ihren
+Zauberspruch. Inzwischen sorge sie damit selbst bei Parteikollegen für Unmut.
+«Die Menschen haben diesen Spruch einfach satt», erklärt der CDU-Bundestagsabgeordnete Karl-Georg Wellmann. «Die Bundesregierung hat im Umgang mit der Flüchtlingskrise hervorragende Arbeit geleistet. Wenn sie
+aber ständig ‹Wir schaffen das› wiederholt, sendet sie ein falsches Signal», ist der CDU-Politiker überzeugt.
+Im vergangenen Jahr habe die Bundeskanzlerin mit ihrem Spruch Tausenden Flüchtlinge Tür und Tor geöffnet.
+«Angela Merkel hatte gute Absichten», schreibt ‹Politico›. Nachdem sie diesen Satz aber monatelang verwendete,
+um ihre Politik zu rechtfertigen, sei er für die deutsche Regierungschefin zu einem Kommunikations-GAU
+geworden.
+«Diese Phrase ist ein schillerndes Beispiel dafür, dass die Sprache nicht nur ein schmückendes Beiwerk zur
+Politik ist. Sprache ist Politik», kommentiert die Kognitionswissenschaftlerin Elizabeth Welling von der Berkeley
+University Merkels Strategie.
+Das Ziel der Bundeskanzlerin habe darin bestanden, bei den Bürgern ein Gefühl von Gemeinschaft und
+Empathie zu erzeugen. Doch sie habe ihren Satz ohne Gegengewicht eingesetzt, weshalb nun, so die Wissenschaftlerin, Merkels Kritiker diese Phrase gegen sie verwenden können. Am meisten haben letztlich die Rechtspopulisten von der AfD vom beschwörenden Spruch der Kanzlerin profitiert, wie ‹Politico› schreibt.
+«Wir wollen das überhaupt nicht schaffen», sagte beispielsweise AfD-Vize Alexander Gauland.
+Dr. Joachim Scharloth, Professor für angewandte Linguistik an der TU Dresden, sagt, dass Merkels Leitspruch
+geradezu prädestiniert für Fehlinterpretationen sei: «Wenn sie sagt ‹Wir schaffen das›, was meint sie damit
+eigentlich? Für sich genommen trägt der Satz keinen besonderen Inhalt», erklärt der Linguist. «Wichtiger aber
+ist, dass sie es für notwendig erachtete, diesen Satz immer und immer wieder zu verwenden. Das sieht nicht
+gerade nach einer effektiven Kommunikation aus», betont der Professor.
+Jüngsten Umfragen zufolge glauben zwei von drei Bundesbürgern nicht, dass die Bundesrepublik ‹das› schaffen
+kann. Nur noch 27 Prozent der deutschen Bevölkerung unterstützen Angela Merkels Politik in der Flüchtlingskrise.
+_Quelle: http://de.news-front.info/2016/08/22/merkels-wir-schaffen-das-ein-mantra-schlagt-zuruck/_
+
+
+-----
+
+### Deutschland als direkte Demokratie
+_30. August 2016 Reporter_
+#### Wie hätte sich Europa mit direkter Demokratie entwickelt?
+
+Ich weiss, viele von Euch werden jetzt wieder sagen: Nein, also direkte Demokratie sei das Schlimmste, was man
+sich überhaupt vorstellen könnte. Dennoch, ich bleibe dabei, mit ihr wären wir heute ein anderer Staat.
+Seit 20 Jahren ist Politik nicht fähig/willens, den sich anbahnenden Niedergang Deutschlands und Europas
+aufzuhalten. Hätte das Volk (wie die Schweiz) ein Mitspracherecht, dann wäre die Geschichte vermutlich anders
+verlaufen:
+– Nach der Wende 1989 hätte Deutschland eine neue Verfassung erhalten.
+– Die Siegermächte hätten mit Deutschland einen Friedensvertrag geschlossen.
+– Keine Euroeinführung.
+– Keine Fluchtwelle nach Deutschland.
+
+Viele Jahre war ich stolz auf Deutschland und auf Amerika. Leider mussten wir alle dazulernen. Heute steht die
+Nato als Aggressor 450 km vor Moskau. Hetzparolen/Lügen zur Verschleierung der Lage von Regierung und
+Mainstream. Jeder mit anderer Meinung wird als Nazi stigmatisiert. Die Bevölkerung wird massenverblödet,
+beginnt aber zunehmend aufzuwachen. Wodurch ist diese Situation entstanden? Keiner hat aufgepasst, wir
+haben es die da oben richten lassen. Aber das taten sie nicht. Die Politik hat kein Problem gelöst, nur neue erschaffen. Karrieristen und willfährigen Politikern haben wir das zu verdanken, denn fast keiner hat mal gesagt:
+Halt! Die USA destabilisieren die Welt und machen vor Europa nicht halt. Nachvollziehbar wäre vieles, wenn
+der Kampf um letzte Rohstoffe der Erde tobte. Da sind wir noch nicht. Soll virtuelles Kasino-Spielgeld in reales
+umgewandelt werden? Es tobt totaler Krieg gegen unser Eigentum. Es soll Besitzer wechseln. Erhalten sollen es
+Zocker, Konzerne und Banken. Dem müssen wir entgegenwirken. Wir haben die Pflicht/Aufgabe, unseren
+Kindern eine würdige Zukunft zu hinterlassen, und die Aufgabe, für uns selbst dafür zu sorgen, dass wir nach
+einem arbeitsreichen Leben nicht als gescheiterte Existenzen enden.
+.
+Ex-US-Präsident Jimmy Carter: Die USA sind heute eine ‹von Bestechung geprägte Oligarchie›
+_Epoch Times24. August 2016 Aktualisiert: 24. August 2016 18:42_
+Ex-US-Präsident Jimmy Carter hat in einem Radio-Interview die Meinung geäussert, dass die USA keine
+Demokratie mehr seien. Vielmehr handele es sich um eine Oligarchie, in der ‹uneingeschränkte politische
+Bestechung und Korruptheit› an der Tagesordnung stehen.
+#### Das scheint auf Deutschland leider auch zuzutreffen!
+_Quelle: http://krisenfrei.de/deutschland-als-direkte-demokratie/_
+
+### Israel entblösst sich selbst: «IS ist für uns ein nützliches Instrument: Ende des IS ist nicht sinnvoll»
+_RT Deutsch; Di, 30 Aug 2016 12:08 UTC_
+Efraim Inbar, Leiter des Begin-Sadat Centers for Strategic Studies, hat sich gegen eine vollständige Zerschlagung
+des IS ausgesprochen. Aus israelischer Sicht stellen sunnitische Terrororganisation wie Al-Nusra und IS nütz liche Instrumente gegen den Iran und die schiitische Hisbollah dar.
+
+
+-----
+
+Das Begin-Sadat Center, das nach eigenen Angaben eine ‹realistische,
+**konservative, zionistische Agenda für Sicherheit und Frieden in**
+**Israel› verfolgt, verfügt über einige Angehörige der Streitkräfte (IDF)**
+im Vorstand.
+Der Leiter des Centers, Efraim Inbar, betrachtet trotz des hohen
+Masses an Brutalität, das Terrorgruppen wie der IS offenbaren, diese
+als das geringste Übel unter den zahlreichen Feinden, die Israel in der
+Region hat. So schreibt er:
+**«Ein schwacher IS ist, anders als man denken mag, einem zerstörten IS vorzuziehen. Die Aufrechterhaltung**
+**des Bestehens des IS dient auch einem strategischen Ziel. Wieso sollten wir dem brutalen Assad-Regime helfen,**
+den syrischen Bürgerkrieg zu gewinnen?»
+Der IS hat bis dato keine nennenswerten Aktivitäten in Israel entfaltet. Er drohte bislang einzig der im GazaStreifen herrschenden Hamas damit, Terror in deren Machtbereich zu tragen, weil diese es bis dato unterliess,
+dem selbst ernannten ‹Kalifen› Abu Bakr Al-Baghdadi den Treueschwur zu leisten. Auf diese Weise hatte der IS
+gegenüber Al-Kaida bereits die Flucht nach vorne ergriffen. Der IS wollte sich daraufhin als die neue Avantgarde
+des bewaffneten Kampfes in Szene setzen.
+**Inbar sieht den IS aber nicht nur deshalb als im Verhältnis vernachlässigbare Grösse an, weil dieser bislang**
+Angriffe auf Israel unterliess. Aus Sicht des jüdischen Staates stellen der Iran, Syrien und die Hisbollah wesentlich grössere und gefährlichere Feinde dar.
+Insbesondere an die Hisbollah hat Israel keine guten Erinnerungen, nachdem die eigenen Streitkräfte im Jahr
+2006 bei dem Versuch gescheitert waren, die schiitischen Brigaden im Rahmen einer Invasion im Süden Libanons
+zu zerschlagen. Bereits im Jahr 2000 war es der Hisbollah gelungen, nach einem langen Guerillakrieg Israel und
+seine Verbündeten aus dem Libanon zu drängen.
+Dass die Hisbollah jetzt jedoch als Partner des Iran und der Regierung des syrischen Präsidenten Bashar al-Assad
+im syrischen Bürgerkrieg gegen sunnitische Gruppen kämpft, die im Einklang mit Saudi-Arabien den Konflikt
+gezielt auf eine konfessionelle Ebene verlagern wollen, ist aus Sicht Israels eine Erleichterung. «Hisbollah ist
+durch den Kampf gegen den IS ernsthaft beschäftigt», erklärt Inbar. Es sei aus Sicht Israels in jedem Fall vorzuziehen, dass Hisbollah ihre Waffen gegen andere Ziele richtet.
+**«Die westliche Abneigung gegenüber der Brutalität und Unmoral des IS sollte die strategische Klarheit nicht**
+**trüben», mahnte Inbar und betont: «Stabilität ist kein Wert an sich. Sie ist lediglich anzustreben, wenn sie**
+**unseren Interessen dient.»**
+_Quelle:_ _https://de.sott.net/article/25842-Israel-entbloSst-sich-selbst-IS-ist-fur-uns-ein-nutzliches-Instrument-Ende-des-IS-_
+_ist-nicht-sinnvoll_
+
+### So sieht unsere Zukunft aus!
+_Veröffentlicht am 23. August 2016 von DWD-Press_
+
+Die ‹Bundesregierung› rechnet bis 2020 mit ungefähr 3.6 Millionen ‹Flüchtlingen›. Da dies nur die offiziellen
+Schätzungen derer sind, die mit aller Kraft diese ‹Völkerwanderungen› fördern und initiieren, kann man gut
+und gerne von einer Zahl ausgehen, die locker das Doppelte beziffern wird. Das sind dann ungefähr 7 Millionen
+Menschen. Innerhalb von wenigen Jahren wohlgemerkt!
+Diese 7 Millionen bedeuten aber nicht das Ende, denn die Welt und die Zeit wird sich womöglich auch nach
+2020 weiterdrehen.
+Nicht zu vergessen, dass der ‹Familiennachzug› auch weiterhin mit Hochdruck voran getrieben werden wird.
+60 Millionen Menschen sind derzeitig parallel weltweit auf der ‹Flucht›. Das sind zudem ‹rosige› Aussichten.
+Jeder Mensch in Deutschland, der auch nur im Geringsten logisch denken kann, muss bei derartigen Zahlen
+und Fakten der Entwicklung in diesem Land realistisch entgegenblicken.
+Ich wohne beispielsweise bei Paderborn. Paderborn hat eine Einwohnerzahl von ca. 150000 Menschen. Bis zum
+Jahr 2020 werden nach logischer Rechnung also 46 neue Paderborns voll von ‹Flüchtlingen› in ganz Deutschland
+neu errichtet werden.
+Das ist keine Volksverhetzung, kein Rassismus, keine Hetze in irgendeiner sonstigen Form, sondern schlichtweg
+mathematisch leicht belegbar und einfach der Wahrheit entsprechend.
+Bis zum Jahr 2020 gibt es also 46 neue Paderborns in ganz Deutschland! Einzig und allein bestehend aus sogenannten ‹Flüchtlingen›. Das sollten wir uns alle mal ganz langsam zu Gemüte führen. Wenn man diese Zahlen
+
+
+-----
+
+aber auf das ganze Land herunterbricht, dann ist in der Realität davon auszugehen, dass jede Grossstadt, jede
+Stadt, jede Ortschaft und jedes Dorf nicht mehr wiederzuerkennen sein wird, denn überall werden sich die
+sogenannten ‹Zuwanderer› ‹niederlassen› bzw. ‹niedergelassen werden›.
+Man kann schon jetzt davon ausgehen, dass die ‹Flüchtlingslager› und ‹Flüchtlingsheime› im ganzen Land aus
+dem Boden spriessen werden. Überall. Bedenklich ist dabei schon, dass Kindergärten und Kindertagesstätten
+nicht einmal im entferntesten Vergleich in ähnlicher Anzahl erschaffen wurden. Wieso eigentlich nicht? Am
+Geld kann es ja nicht gelegen haben, wie man jetzt eindrucksvoll bewiesen bekommt.
+Universitäten erhalten keine Fördermittel mehr, unsere Strassen haben Schlaglöcher, es mangelt sogar an Geld
+für die innere Sicherheit, Pflegestellen werden gestrichen und Wohnungen sind bereits jetzt schon kaum noch
+für Einheimische zu bekommen, da ‹Flüchtlinge› bevorzugt behandelt werden.
+Was haben die ‹Flüchtlinge› eigentlich getan, damit sie vor allen anderen ein Vorrecht bekommen? Anerkannte
+Experten, wie zum Beispiel der Hamburger Universitäts-Präsident Lenzen warnte schon in der Wochenzeitung
+‹Welt›, dass viele ‹Flüchtlinge› im Grunde Analphabeten seien. Zwei Drittel der ‹Flüchtlinge› hätten zudem
+keinen berufsqualifizierenden Bildungsabschluss.
+Der Bildungsökonom Wössmann hat herausgefunden, dass viele ‹Flüchtlinge› eine miserable Schulbildung
+besitzen und kaum lesen und schreiben können. Dies erörterte er in einem Interview mit der ‹Zeit›. Des weiteren
+hielt er es für nicht realistisch, dass ‹Flüchtlinge› den Fachkräftemangel lösen könnten.
+Wie auch, als überwiegende Analphabeten?
+Das Münchner Ifo-Institut kommt zu dem Ergebnis, dass viele ‹Flüchtlinge› nicht für den Arbeitsmarkt qualifiziert sind. Dies ist in der ‹Frankfurter Allgemeinen› nachzulesen.
+Also, das bedeutet für mich, dass dies für unser Land ein schwerwiegendes Problem darstellen wird, gleich wie
+eine vorprogrammierte extreme finanzielle Belastung.
+Soziologisch bedeutet dies weiterführend, dass Parallelgesellschaften, Ghettos und damit einhergehend Kriminalität geschaffen werden. Es kann mir beim besten Willen niemand erzählen, dass unsere sogenannte ‹Führung›
+samt ihren Beraterkorps nichts davon weiss.
+Wie stellen Sie sich das eigentlich vor, Frau Merkel und Herr Gabriel?
+Es ist doch eindeutig vorprogrammiert, welche Entwicklung sich in diesem Land fortsetzen wird.
+Und Sie tun nichts dagegen? Im Gegenteil, Sie treiben es noch voran! Wieso? Für mich als normal denkenden
+Menschen ist es logisch, dass hier eine Entwicklung forciert wird, die der Bevölkerung schaden, aber einigen
+Wenigen und den grossen Konzernen nutzen wird. Der völlig ausser Kontrolle geratene Zuzug, die Massenfluchten, die exzessive ‹Zuwanderung› und das zusätzliche Fördern all dessen von staatlicher Seite lässt auf eine
+gezielte Destabilisierung schliessen.
+Jeder vernünftige Mensch kann und muss erkennen, dass dies destruktiv, gefährlich und zersetzend für einen
+ganzen Kontinent ist. Europa wird es in der Form schon bald nicht mehr geben, wie wir es einmal kannten. Wer
+all dieses möchte, dem kann ich leider auch nicht mehr helfen, ich will das zumindest nicht.
+Ein Freund hatte mir einmal den Rat gegeben, dass man rechtlich gesehen alles schreiben darf, solange man es
+in einer Fragestellung formuliert. Deshalb tue ich dies und stelle ein paar einfache Fragen:
+
+Sind wir bald noch sicher im eigenen Land?
+Können unsere Frauen und Kinder überhaupt noch ohne Angst vor die Tür gehen?
+Müssen wir uns von allem verabschieden, was uns einst lieb und teuer war und vor allem, was dieses Land
+ausgemacht hat?
+Sind wir bald fremd im eigenen Land?
+Werden wir bald unzählige neue Ghettos haben?
+Wird die Kriminalität in ungeahnte Höhen ansteigen?
+Wird die Zahl der Vergewaltigungen drastisch ansteigen?
+Wenn unsere ‹Volksvertreter› dies doch alles wissen müssten, wie können sie dann weiterhin so handeln?
+Wie wollen wir das eigentlich und vor allem warum sollen wir das alles bezahlen? Und trotzdem sage ich nun
+am Ende, und ich berufe mich auf das Recht der freien Meinungsäusserung, dass ich alles das entschieden nicht
+will.
+Ich will die ganzen ‹Flüchtlinge› hier nicht. Ich muss und werde dies nicht ausführlich begründen, denn ich will
+sie einfach nicht. Not welcome! Punkt! Dies gilt nicht für die wahren Flüchtlinge, die nach realistischen
+Schätzungen allerdings nur wenige Prozent ausmachen. Sie sind natürlich hier temporär willkommen. Ich will
+das Land behalten, in dem ich aufgewachsen bin und in dem ich mich immer wohl gefühlt habe. Es muss
+
+
+-----
+
+bewahrt werden. Es ist das Land meiner Vorfahren und es ist auch mein Land, genauso wie es das Land von
+vielen ausländischen Mitbürgern ist, die schon lange hier leben und sich auch integriert und angepasst haben.
+Es ist unser aller Land.
+Es ist aber nicht das Land von Menschen, die nur des wirtschaftlichen Vorteils hier her kommen und sich hier
+‹niederlassen› wollen. Von Menschen, die eine ganz andere Kultur in sich tragen. Die Frauen auf eine untere
+Stufe stellen und zudem nicht selten ungebildet, anmassend, frech und ignorant sind. Deren Land ist dies nicht
+und wird es auch niemals werden. Das ist zumindest meine Meinung und Ansicht.
+Und dafür werde ich alles mir rechtlich Mögliche und gesetzlich Legitimierte tun und ich werde nicht damit
+aufhören. Kein Land hat es verdient, seinen Fortschritt, seine Errungenschaften, seine Toleranz, seine Sicherheit
+und seinen Wohlstand zu opfern, nur weil eine Minderheit dies so für die gesamte Bevölkerung über deren
+Köpfe hinweg ‹beschlossen› hat.
+So läuft das nicht!
+Also, seid fest in Eurem Charakter, frei in Eurer Meinung und unbeirrt in Eurer Moral.
+Es beginnt in jedem einzelnen Kopf und vor jeder einzelnen Haustür.
+Und vergesst niemals: Sie sollen den Tag nicht vor dem Abend loben, denn noch können wir unter Umständen
+diese Entwicklung aufhalten. Ich zumindest werde sie nicht einfach so hinnehmen.
+Tim K.
+_Quelle: https://dwdpress.wordpress.com/2016/08/23/%e2%80%8bso-sieht-unsere-zukunft-aus/_
+
+### Aspartam – heisst jetzt ‹AminoSweet›
+_Posted by Maria Lourdes - 25/08/2016_
+
+**Ist es nicht süüüss? Nach vielen Jahren Studien, Propaganda und Praxiserfahrungen konnte die Firma**
+**Ajinomoto, der Hersteller von Aspartam, nun nicht mehr umhin.**
+**Selbst die Dümmsten wissen mittlerweile, dass Aspartam gesundheitlich sehr bedenklich ist – um es**
+**einmal vorsichtig auszudrücken. Aber – Gott bewahre – vom Markt nehmen?**
+Iiieh – Woher denn? Umbenennen ist doch genug. Das dauert garantiert wieder Jahre, bis sich herum gesprochen hat, dass es dasselbe hochschädliche Zeugs ist.
+**Gut, bis dahin haben wieder viele Menschen Schäden erlitten, wenn nicht sogar ‹finale Schäden›,**
+**aber man hat Umsätze damit gemacht. Nicht bös gemeint, ist halt Business.**
+Klar ist: Essen macht nicht nur satt, sondern immer häufiger auch krank.
+Eine äusserst hilfreiche Pflichtlektüre für jeden, der gerne weiss, was er isst.
+
+#### Aspartam – heisst jetzt ‹AminoSweet›
+**Es gibt einiges an künstlichen Süssstoffen, die sich redlich einen schlechten Ruf erworben haben, Aspartam**
+**kann sie alle über. Zahlreiche Studien belegen, dass das unschuldig aussehende weisse Pulver (wie sagt man das**
+so schön juristisch einwandfrei?) im «dringenden Verdacht steht, Krebs erzeugen zu können». So muss man das
+offenbar ausdrücken, um nicht von den konzerneigenen Anwälten gegrillt zu werden.
+**Selbst die hartgesottenen Amerikaner, die – was ungesunde Zusatzstoffe im Essen betrifft – nicht zimperlich**
+**sind, meiden neben Genfood auch Aspartam wie den Teufel. Darum suchte die Company nach einem hübschen,**
+**neuen Namen, damit das Geschäft wieder läuft, und die Kunden ahnungslos zugreifen. Dieses neue Amino -**
+Sweet wird als ‹Natürliche Süsse› (Natural Sweetener) vermarktet, wobei man anscheinend ganz bewusst im
+Windschatten von Stevia segeln möchte, das ebenfalls in diese Kategorie fällt. Tatsächlich werden sogar viele
+Kunden kaufen, weil sie denken, das neue Mittel sei so ein gesundes Steviazeugs.
+**Im neuen ‹AminoSweet› sind genau dieselben schädlichen Stoffe wie in Aspartam, es ist wirklich nur der Name,**
+**der geändert wurde. Es gibt eine nicht geringe Anzahl von Personen, die allergisch auf dieses Süssmittel sind.**
+Wer da nicht gut informiert ist, und sich ahnungslos das neue, ach so natürliche Süssungsmittel reinlöffelt, kann
+im schlimmsten Fall einen anaphylaktischen Schock erleiden.
+**Der Süssstoff ‹ASPARTAM› stammt aus einem der fürchterlichsten Produkte aus Rothschilds Monsanto-**
+**Konzern. Man hatte zufällig bemerkt, dass ein Eiweiss-Säuren-Bestandteil, ein Derivat des Giftgemisches**
+**‹Agent Orange› (wurde im Vietnam-Krieg als Entlaubungsmittel über dem Dschungel versprüht, um dem**
+Vietkong die Deckung zu nehmen), **einen süsslichen Geschmack hatte.** Das war ein vollkommen neues
+
+
+-----
+
+Geschäftsfeld für das Zeug und Ruckzuck entwickelte die Firma Searle & Company (eine Monsanto-Tochter)
+daraus einen süssen Nahrungsmittelzusatz.
+**Normalerweise führen Nahrungsmittelzusätze aber nicht zu Hirnschäden, Kopfschmerzen, Multiple-Sklerose-**
+**(MS)-ähnliche Symptome, Epilepsie, Parkinson, Alzheimer, Stimmungswechsel, Hautwucherungen, Blindheit,**
+**Hirntumoren, Umnachtung und Depressionen oder beschädigen das Kurzzeitgedächtnis oder die Intelligenz.**
+Es verursacht ausserdem noch fast 90 weitere, durch Langzeituntersuchungen bestätigte gesundheitliche
+Symptome.
+**Der ‹Lupocattivo-Blog› hat hier einiges an Informationen zu Aspartam/Aminosweet zusammengestellt:**
+Aspartam ist ein künstlich hergestellter Süssstoff. Entdeckt wurde Aspartam 1965, durch Zufall, von einem
+Chemiker namens J. M. Schlatter, des pharmazeutischen Unternehmens G.D. Searle & Company. Finden
+wollte Schlatter eigentlich ein Medikament gegen Geschwüre. Dabei mischte er Asparaginsäure mit
+Phenylalanin, zwei natürlich vorkommende Aminosäuren und stellte fest, dass diese neue Verbindung
+einen ganz süssen Geschmack hat.
+Nun, auch nicht schlecht. Ein Süssstoff wurde gefunden. Also deklarierte das damalige Unternehmen G.D.
+Searle & Company diesen neuen Stoff (der eigentlich als Arzneimittel gedacht war) als LebensmittelZusatzstoff und wollte sich eine Zulassung bei der FDA (Food and Drug Administration) holen.
+1970 wurde Aspartam dann auch patentiert. Nun bemühte sich G.D. Searle & Company sozusagen darum,
+einen ‹Gruppengeist mit der FDA zu pflegen›, um die Zulassung für ihre Chemikalien zu fördern. Manche
+Leute gebrauchen dafür auch das Schimpfwort Lobbyismus.
+1973 legte G.D. Searle & Company der FDA ihre eigenen (hausinternen) Studien zu Aspartam vor. Das
+waren natürlich ganz klar ‹unabhängige› Studien mit dem Ergebnis – ganz dick in roter Farbe: Unbedenklich. Nicht gesundheitsschädigend …
+Natürlich gab es dazu auch ganz andere Ansichten. Es gab zahlreiche Einwände von Wissenschaftlern, die
+bestätigten, dass Aspartam ein gefährliches Toxin ist. Also alles andere als unbedenklich. Es gab Beweise
+dafür, dass Aspartam unter anderem neurologische Schädigungen des Gehirns, Krebstumore/krebsartige
+**Geschwülste und Störungen des Hormonsystems auslösen kann.**
+Trotz dieser Gegenstimmen und Beweise konnte im Jahre 1974 die FDA von Searle davon überzeugt
+werden, den kommerziellen Gebrauch von Aspartam in einigen Produkten zu genehmigen. Aspartam hat
+sich somit auf dem globalen Markt durchgesetzt, mit Ausnahme von wenigen Ländern, in denen es ver boten ist. Nun, die Geschichte von Aspartam ist ziemlich langwierig. 1986 fand das Unternehmen G.D.
+Searle & Company (Tochterfirma von Monsanto) die richtige Mischung und führte die Produktion von
+Süssstoffmitteln als selbständiger Unternehmensteil unter dem Namen NutraSweet Company fort. Später,
+nach 1996, hat Ajinomoto die Produktion von Aspartam aufgenommen.
+Tatsache ist, dass Aspartam seit gut 25 Jahren in einigen unserer Nahrungsmittel enthalten ist. Vor allem in
+SoftDrinks, Kaugummis und zuckerfreien Desserts. Da wo mit Zuckerfrei geworben wird, sollte man schon
+vorsichtiger sein und genau hinschauen was unter den Inhaltsstoffen dabei ist. Aspartam wird auch häufig
+als Zusatzstoff E951 angegeben.
+Warum ist es überhaupt möglich, dass solche Chemikalien, trotz ihrer Toxizität und massiv gesundheitsschädigenden Auswirkungen, in unsere Lebensmittel gebracht werden dürfen? Das ist keine Verschwörungs**theorie, das ist die weltweit tägliche Praxis des Lobbyismus. Der Kapitalismus bringt die Korruption mit**
+sich. Es ist der Druck von sehr einflussreichen Unternehmen, die ihre eigenen Interessen vertreten. Diese
+Interessen drehen sich eben immer um den maximalen Profit.
+So werden praktisch alle Medikamente und Lebensmittel-Zusatzstoffe durch die FDA genehmigt, nicht weil
+die Wissenschaft ihre Unbedenklichkeit gezeigt hat, sondern weil die Unternehmen mit monetären Zahlungen in Multi-Millionen-Dollar-Höhe Einfluss auf die Zulassungen nehmen. Es ist auch kein Geheimnis
+mehr, dass Führungskräfte nach einem offiziellen Ausscheiden aus einem dieser Unternehmen, nicht selten
+und ‹rein zufällig›, ihr Amt dann plötzlich in einer Kontroll- oder Zulassungsbehörde ausüben … Inoffiziell
+sind diese Führungskräfte doch immer noch auf der Gehaltsliste ihrer ‹ehemaligen› Firma. Aber das ist ja
+heutzutage ganz normal.
+Eine gute Entwicklung ist, dass die Verbraucher, zwar sehr langsam, aber doch immer bewusster werden,
+was ihre Ernährung und Gesundheit betrifft. Und die Wahrheit über Aspartam und andere schädliche
+Zusatzstoffe spricht sich herum. Ja und genau deshalb dachte sich der Süssstoff-Konzern Ajinomoto, er
+müsse eine neue Marketing-Strategie versuchen. Die Strategie ist schlicht, dass dem Süssstoff Aspartam
+nun einen neuen Namen verliehen wird. Ansprechend und einprägsam: AminoSweet.
+
+
+-----
+
+Zugegeben, AminoSweet klingt doch wirklich ganz nett. Damit werden sich sicherlich einige Verbraucher
+täuschen lassen. Wer wird auch gleich herausfinden, dass AminoSweet in Wirklichkeit Aspartam ist? Und
+die Werbung, schlanke Frauen, einfach super! Z.B. hier: www.aminosweet.info Only Sugar Tastes As Good.
+Ist doch klasse, oder?!
+Ich sage es mal auf gut Deutsch: Lassen Sie sich nicht von diesem Scheiss täuschen! Das ist ein verzweifelter
+Versuch der Süssstoff-Industrie, die Multi-Milliarden-Cash-Cow noch länger am Leben zu erhalten.
+
+**Was an Aspartam/AminoSweet usw. so schädlich ist? Hier können Sie es erfahren:**
+**Nachdem das Patent der Firma ‹Monsanto› (Hersteller war die Tochterfirma ‹Kelco›) abgelaufen war, ist das**
+**Süssungsmittel auf der ganzen Welt in mehr als 9000 Produkten enthalten. Aspartam, auch unter den Bezeich-**
+nungen Nutra-Sweet, Equal, Spoonfull, Canderel, Sanecta oder einfach den Nahrungsmittelzusatz E951 ist ein
+‹Zuckerersatzstoff› (E950–999). Die chemische Fachbzeichnung: ‹L-Aspartyl-L-Phenylalaninmethylester›.
+**Aspartam ist ein ‹Dipeptidester› der beiden Aminosäuren L-Asparaginsäure und L-Phenylalanin. Die Eiweiss -**
+**säuren werden durch Mikroorganismen produziert. Genauer gesagt: Aspartam wird aus dem Kot gentechnisch**
+veränderter E.-coli-Bakterien hergestellt.
+**Was Aspartam schädlich macht ist, dass es im menschlichen Körper wieder in seine Bestandteile Asparaginsäure**
+**(40%), Phenylalanin (50%) sowie Methanol (10%) zerfällt. Und diese Stoffe sind gesundheitsgefährdend.**
+**Der Aspartam-Bestandteil ‹Phenylalanin› geht ins Blut und führt im Körper zu einem Abfall des Serotonin-**
+**spiegels im Gehirn. Das kann zu erheblichen emotionellen Störungen wie z.B. Depressionen führen. Ganz**
+**besonders gefährlich ist ein niedriger Serotoninspiegel für Ungeborene und Kleinkinder. Natürlich konnte der**
+Hersteller mit Tierversuchsstudien Gegendarstellungen auffahren, die allerdings nicht beweiskräftig waren.
+Denn der Wissenschaftler Dr. Louis J. Elsas sagte vor dem US-Kongress unter Eid aus, dass Nagetiere, wie sie in
+den Studien Untersuchungen von Monsanto benutzt wurden, dieses Phenylalanin wesentlich schneller und
+besser abbauen als Menschen. Diese Nagetier-Versuchsreihen führte Monsanto aber als Beleg der Unbedenklichkeit an.
+**Phenylalanin ist überdies für Menschen, die unter der Stoffwechselkrankheit Phenylketonurie (PKU) leiden,**
+**richtig gefährlich. Sie haben ein wichtiges, körpereigenes Enzym nicht (Phenylalaninhydroxylase), das dieses**
+**Phenylalanin zu Tyrosin umbaut. Dadurch sammelt sich immer mehr Phenylalanin im Körper an, was zu**
+Phenylbrenztraubensäure verstoffwechselt wird. Das führt zu Kümmerwuchs und ‹Schwachsinn›. Daher
+müssen Lebensmittel, die Aspartam enthalten, einen Warnhinweis ‹enthält Phenylalanin› auf der Verpackung
+aufgedruckt haben.
+**Der nächste Grundbestandteil, die Asparaginsäure ist noch schlimmer. Die Medizinische Universität von**
+**Mississippi hat anhand von mehr als 500 wissenschaftlichen Ergebnissen dargelegt, dass hohe Mengen freier,**
+**ungebundener Aminosäuren wie Aspartamsäure oder Glutaminsäure zu schweren, chronischen Nerven-**
+**störungen führt. Das ist im Prinzip dasselbe wie Glutamat.**
+**Diese Stoffe überwinden die Blut-Hirn-Barriere. Besonders bei Kindern ist die Blut-Hirn-Schranke noch nicht**
+**voll entwickelt, und auch im späteren Alter kann sie nicht alle Teile des Gehirns abschotten, und bestimmte**
+**Stoffe, die den körpereigenen Neurotransmitterstoffen ähnlich sind, erkennt diese Barriere überhaupt nicht**
+**als ‹fremd› und lässt sie einfach durch. Sind das nur hin und wieder Spuren eines solchen Stoffes, kann der**
+Körper das wegstecken und verstoffwechseln. In grösseren Mengen – und das ist bei ausgiebigem Genuss von
+Limos und Cola, Süssspeisen und Eis – besonders im Sommer – schnell der Fall, wird das Gehirn von solchen
+Stoffen wie Glutamat und Aspartamsäure richtig überschwemmt. Das auch noch auf mehrere Jahre ausgedehnt,
+richtet schwere Schäden im Gehirn an.
+**Weil die Nervenzellen nämlich diese Stoffe von den körpereigenen Botenstoffen zwischen den Nervenzellen**
+**nicht unterscheiden können, wirken diese Stoffe direkt an den Schaltstellen und beschädigen die Neuronen**
+**schwer. Das bemerkt man erst, wenn es zu spät ist, denn das Gehirn kann eine Menge Schäden ausgleichen und**
+sozusagen drumherum improvisieren. Wenn es soweit ist, dass die Symptome des Zerstörungswerkes auftreten,
+sind Dreiviertel des Gehirns oder der Nervenbahnen im Körper schon ‹kaputt›.
+**Die Schäden dadurch sind: Multiple Sklerose, ALS, Alzheimer, Taubheit, Gedächtnisstörungen bis zum Total-**
+**verlust, Hormonprobleme, Epilepsie, Parkinson, und vieles mehr. Auch hier haben Monsanto und andere**
+Hersteller von Aspartam immer wieder Gegengutachten aufgefahren. Sehr oft waren aber die Versuchszeit räume zu kurz, um signifikante Ergebnisse zu erhalten, die Tiergattung, die verwendet wurde, reagierte ganz
+anders auf die Substanzen als Menschen und so weiter.
+**Ein weiterer, gesundheitsschädlicher Bestandteil, der sich aus Aspartam und einem Enzym (Chymotrypsin)**
+**im Körper bildet, ist das Methanol (Methylalkohol). Das nannte man früher beim Schnapsbrennen den**
+
+
+-----
+
+**‹Vorlauf›, den man wegschütten musste, um Gesundheitsschäden zu vermeiden. Dieser Alkohol kann schon**
+beim Einwirken kleiner Mengen über längere Zeit alle Nervenbahnen im Körper schädigen. Früher war es
+bekannt, dass der Dorfsäufer, immer klamm mit Geld und schmerzbefreit, wenig wählerisch war und auch
+Methanol soff – wovon er blind und schwachsinnig wurde. Methanol zerstört die Nervenzellen besonders in
+den Augen und im Hirn.
+**Ganz besonders in heissen Ländern haben die US-Soldaten solche Aspartam-Cokes in rauhen Massen ge -**
+**trunken, um nicht so fett vom Zucker zu werden. Da schien die fast kalorienfreie Aspartambrause doch ein**
+**Segen zu sein. Ein Liter Aspartamlimo enthält 56 mg Methanol. Die medizinisch unbedenkliche Menge**
+Methanol, die ein Mensch verträgt liegt bei 7,8 mg/Tag. Danach ist ein Liter eigentlich mit der siebenfachen
+Menge schon eine Vergiftung. Wenn es richtig heiss ist, man schwitzt und auch noch in Bewegung ist, trinkt ein
+erwachsener Man durchaus drei Liter. Das ist ein mehr als das Zwanzigfache der unbedenklichen Menge – und
+das über längere Zeit!
+**Das hatte Folgen für die US-Soldaten in den Golf-Kriegen. Die Gesundheitsschäden von Hirnschäden über**
+**Sehstörungen bis zu Gehirn- und Blasentumoren waren beachtlich. Unter der Hand wird das als ‹Golf-Krieg-**
+**Krankheit› bezeichnet. Coca-Cola konnte bisher aber jede Verantwortung von sich weisen. Dabei ist bewiesen,**
+dass sich Aspartam bei über 30°C zersetzt und freies, hochgiftiges Methanol abspaltet. Für sich allein balsamiert
+Methanol lebendes Gewebe ein, schädigt die DNS und kann Lymphome, Leukämie und andere Formen von
+Krebs auslösen.
+**Nicht nur, dass Methanol die besagte Wirkung hat. Es wandelt sich im Körper in ein hoch krebserregendes**
+**Gift um: Formalin (Ameisensäure)! Formalin/Formaldehyd ist ein wirklich tödliches Gift, genauer: Nerven-**
+**gift, das der menschliche Körper nicht verstoffwechseln kann. Formaldehyd ist hochgradig krebserregend und**
+**zerstört die Netzhaut hinten im Auge. Es wirkt sich auch schädlich auf die Replikation unserer Zell-DNA aus.**
+Weil dem Menschen diverse Schlüsselenzyme zur Verarbeitung von Formalin fehlen, ist die Wirkung bei
+Menschen sehr viel stärker als bei Tieren, auch bei den verwandteren Säugetieren. Damit sind die von Monsanto
+& Co. als Gegenbeweis erbrachten Tierexperimente mehr als fraglich.
+**Ein weiteres Beiprodukt von Aspartam ist Diketeropiperazin (DKP). Es entsteht durch Erhitzung von Aspartam**
+**und den Abbau im Körper. Es steht im Verdacht, Hirntumore zu verursachen.**
+**Weil die meisten Menschen ihre Gesundheitsprobleme und Erkrankungen gar nicht mit dem Genuss dieses**
+**Süssmittels in Verbindung brachten, einfach, weil sie gar keinen Verdacht hatten, blieben die Zusammenhänge**
+**zwischen aspartamhaltigen Lebensmitteln und den Gesundheitsschäden unentdeckt. Dazu kommt, dass ein**
+**Konzern wie Monsanto eben beste Beziehungen bis in die höchsten politischen Ebenen pflegt und deshalb**
+**Zulassungen bekommt für seine Nahrungsmittelzusätze, die gar nicht hinterfragt und gewissenhaft geprüft**
+**werden. Tauchten Vermutungen auf oder Ergebnisse unabhängiger Forscher, die die Schädlichkeit belegten,**
+konterte der Konzern immer mit Gegenstudien, Desinformation, Einflussnahme und Lobbyarbeit. Es gibt
+Beweise, dass sogar Ergebnisse von Laborversuchen (die schon so geeignet wie möglich zur Entlastung des Mittels
+konzipiert wurden) regelrecht gefälscht wurden, dass Versuchstieren die Tumore entfernt und Aufsichts behörden wissentlich falsch informiert wurden.
+**Jetzt wird Aspartam einfach umbenannt, und auf geht’s in die nächste Runde. Wer nicht wachsam ist und sich**
+**nicht auskennt, könnte glauben, es hier mit einer unschädlichen Natursüsse á la Xylit oder Stevia zu tun zu**
+**haben. Es gibt viele Handelsnamen für Aspartam. Man muss sehr genau hinschauen.**
+_Quelle: https://lupocattivoblog.com/2016/08/25/aspartam-heisst-jetzt-aminosweet/_
+
+### US-Konzern mit Hang zum Völkermord – Die Geschichte von Monsantos Aufstieg zur Macht
+_Veröffentlicht am August 24, 2016 in Gesundheit/Umwelt/Wirtschaft von anonymous_
+Es schleicht sich in unser Essen ein, sollte wegen der Krebsgefahr aber eigentlich verboten werden. Wenn Sie
+etwas essen, das diese Substanz enthält, kann sie in Ihrem Darm die nützlichen Bakterien dezimieren und verheerende Schäden anrichten. Die Wissenschaft assoziiert sie auch mit Fortpflanzungs- und Hormonstörungen,
+und laut einer neuen Studie haben 93 Prozent der Amerikaner nachweisbare Spuren davon im Urin.
+In dem eingebetteten Video spricht die Journalistin Abby Martin über Monsantos Aufstieg zur Macht und wie
+es der Konzern – hauptsächlich durch unmoralische Methoden – schaffte, den ganzen Globus mit seinen
+giftigen Chemikalien zu überschwemmen. Im Mai gab die University of San Francisco die Ergebnisse eines
+Versuchsprojekts bekannt, das 2015 begann. Die von der Verbraucherorganisation Organic Consumers
+
+
+-----
+
+Association (OCA) in Auftrag gegebenen Tests führten zur Erkenntnis, dass der Urin von 93 Prozent der
+Amerikaner nachweisbare Mengen Glyphosat enthält.
+Glyphosat ist die weltweit am häufigsten eingesetzte landwirtschaftliche Chemikalie und ein Wirkstoff in
+Monsantos Breitbandherbizid Roundup. Das Detox Project erklärt: «Glyphosat, das die Internationale Krebsforschungsagentur der Weltgesundheitsorganisation 2015 als ‹wahrscheinlich für den Menschen krebserregend›
+einstufte, hat sich nun im ersten umfassenden und validierten LC-MS/MS-Testprojekt in ganz Amerika erneut
+als allgegenwärtig erwiesen …
+Glyphosat wurde mit einem Durchschnittswert von 3,096 ppb [parts per billion, deutsch: Teile pro Milliarde]
+festgestellt. Kinder hatten mit durchschnittlich 3,586 ppb die höchsten Werte. Die Regionen mit den höchsten
+Werten waren der Westen und der Mittlere Westen mit durchschnittlich 3,053 ppb bzw. 3,050 ppb.»
+
+**Glyphosat-Kontamination ist überall**
+Glyphosat konnte in vielerlei Proben nachgewiesen werden, darunter in Blut, Urin, Muttermilch und Trinkwasser. Die Ergebnisse einer 2012 veröffentlichten deutschen Studie zeigten, dass sogar Personen, die nicht in
+direktem Kontakt mit der Landwirtschaft standen, signifikante Konzentrationen von Glyphosat im Urin hatten.
+(Buchempfehlung zum Thema: MONSANTO/Mit Gift und Genen/arte)
+Tatsächlich wurde jede einzelne Urinprobe von Berliner Bürgern positiv auf Glyphosat getestet – mit Werten
+zwischen 0,5 und 2 Nanogramm pro Milliliter (ng/ml). Das ist 5- bis 20-mal höher als der für deutsches Trinkwasser zugelassene Höchstwert von 0,1 ng/ml. Warum haben die meisten Menschen Spuren dieser wahrscheinlich krebserregenden Substanz in ihrem Körper, ungeachtet ihres Wohnorts? Die Antwort lautet: Weil Glyphosat
+überall auf der Welt auf praktisch alle Nahrungspflanzen gesprüht wird. Tatsächlich ist Glyphosat das meistverwendete Unkrautvernichtungsmittel aller Zeiten. Roundup ist das gängigste Produkt, aber Glyphosat ist
+auch in anderen Herbiziden zu finden.
+Seit 1974 wurden auf US-amerikanischen Feldern 1,8 Millionen Tonnen Glyphosat ausgebracht, zwei Drittel
+davon allein in den letzten 10 Jahren. Allein 2014 versprühten Bauern genug Glyphosat, um damit auf jeden
+Acre (4047 m[2]) der US-weiten Getreidefelder mit 0,8 Pfund der Chemikalie zu bedecken. Weltweit wurden
+zwischen 1974 und 2014 ganze 9,4 Millionen Tonnen verwendet.
+
+**Glyphosat ist eine Gefahr für Umwelt, Tiere und Menschen**
+Das Center for Biological Diversity merkt an, dass der massive Einsatz von Glyphosat – zum Teil auf gen technisch veränderten Roundup-Ready-Pflanzen, die ebenfalls von Monsanto entwickelt werden – an dem
+dramatischen Rückgang des Monarchfalters und anderer Schmetterlinge beteiligt ist.
+Es gibt auch Beweise, dass Glyphosat mit der Bienenkrankheit namens Bee Colony Collapse Disorder (CCD)
+und dem Sterben der Honigbienen in Zusammenhang steht sowie mit der Vergiftung von Boden, Waldpflanzen,
+Amphibien, Fischen, Wassermilieus und Säugetieren und dass es Fortpflanzungs- und Hormonstörungen verursacht. Laut einer anderen Studie könnte Glyphosat auch zu Antibiotikaresistenz beitragen, indem es die
+Darmbakterien beeinträchtigt und die Manganverwertung stört (aufgrund der Mangankonzentration in der
+Gallensäure können sich Salmonellen festsetzen).
+
+**Monsanto ist eine ‹ernste Bedrohung für das Ökosystem der Erde›**
+Angesichts der vielen Befürchtungen von Wissenschaftlern aufgrund der Toxizität von Glyphosat und Mitteln,
+die Glyphosat enthalten (die meist noch giftiger sind als Glyphosat allein), sollte man annehmen, dass die USRegierung – wenn nicht sogar Monsanto selbst – etwas unternimmt, um die Gesundheit der Menschen zu
+schützen.
+Doch sie tut genau das Gegenteil: Man kann sagen, dass es Monsanto ohne die Unterstützung von Regierungsmitgliedern und Behörden nie möglich gewesen wäre, seine derzeitige Macht zu erreichen. Abby Martin sagt:
+«Monsanto hat bereits unter Beweis gestellt, dass der Konzern sich allein ums Geld sorgt, auch und gerade wenn
+Leben in Gefahr sind. Schon ein kurzer Blick in die skandalöse Geschichte des Unternehmens zeigt, dass es eine
+ernste Bedrohung für das Ökosystem der Erde ist, für Ökonomien überall auf der Welt und für die Lebensgrundlagen von zig Millionen Menschen.»
+Die Konzerngeschichte begann im Jahr 1909, als John Francis Queeny in St. Luis im Bundesstaat Missouri die
+Firma Monsanto Chemical Works gründete. Sein Schwiegervater, ein Zuckerhändler namens Emmanuel
+Mendes de Monsanto, sorgte für die Finanzierung. «Während des Zuckermangels im Ersten Weltkrieg überzeugte die Monsanto Company die Amerikaner davon, dass die Lösung ein künstlicher Süssstoff namens
+
+
+-----
+
+Saccharin sei›, erzählt Martin. Die Firma wurde auch angeworben, um bei der Bombenproduktion für Amerika
+mitzuarbeiten.
+«Von Anfang an wandte das Unternehmen die zwielichtigsten Taktiken an, um Gesetze zu umgehen, die ihrem
+Profit schaden konnten», sagt Martin. Um die Vorschriften und hohen Steuern in St. Luis zu umschiffen, verlegte
+Monsanto seinen Firmensitz 4 Meilen weiter südlich und gründete eine eigene Stadt: Monsanto im Bundesstaat
+Illinois.
+
+**Eine Geschichte der Verheimlichung**
+Monsanto entwickelte sich zu einem der führenden Produzenten Polychlorierter Biphenyle (PCBs). Der
+Konzern stellte nahezu alle in den USA verkauften PCBs her, insgesamt schätzungsweise mehr als 300000
+Tonnen. Wie Martin anmerkt, war Monsanto die Toxizität von PCB durchaus bekannt – und sie wurde verschwiegen.
+Heute hat die verbliebene PCB-Belastung zu mindestens 700 Klagen von Personen geführt, die für ihre Erkrankung am Non-Hodgkin-Lymphom PCB verantwortlich machen. 2002 wurde Monsanto der jahrzehntelangen
+‹empörenden Umweltverschmutzung› in der Stadt Anniston in Alabama für schuldig befunden. Dort hatte der
+Konzern PCBs im Fluss entsorgt und die giftige Chemikalie in einer Deponie vergraben.
+Damit in Alabama ein Fall als ‹empörend› bezeichnet wird, muss er «derart empörend im Wesen und derart
+extrem im Ausmass sein, dass er jenseits aller möglichen Anstandsgrenzen liegt und als entsetzlich und für eine
+zivilisierte Gesellschaft völlig untragbar gilt». Tatsächlich enthüllten interne Dokumente, dass der Konzern über
+die Schwere der von ihm im Lauf von mindestens 30 Jahren verursachten Umweltverschmutzung in vollem
+Umfang Bescheid wusste, sie aber verheimlichte. Die Washington Post schrieb damals:
+«1996 entdeckten Monsanto-Manager, dass Fische, die in einen Bachlauf in der Nähe geworfen wurden, nach
+10 Sekunden mit dem Bauch nach oben schwammen, bluteten und sich häuteten, als wären sie in kochendes
+Wasser geworfen worden. 1969 fanden sie in einem anderen Bach einen Fisch, dessen PCB-Wert den gesetzlich
+zulässigen 7500-fach überstieg. Das sagten sie ihren Nachbarn aber nie, stattdessen beschlossen sie, es sei ‹wenig
+sinnvoll, grosse Summen in limitierende Massnahmen zu investieren› …
+Dokumente – von denen viele mit Warnhinweisen wie ‹VERTRAULICH: Nach dem Lesen entsorgen› versehen
+waren – lassen darauf schliessen, dass das gesamte Unternehmen damit beschäftigt war, sein PCB-Monopol, das
+alljährlich 22 Millionen Dollar einbrachte, zu behalten, ungeachtet jeglicher Gesundheits- oder Umweltrisiken.
+‹Wir können es uns nicht leisten, in dem Geschäft auch nur einen Dollar zu verlieren›, hiess es in einer internen
+Notiz.
+Ein Komitee, das der Konzern gründete, um der Kritik an PCBs zu begegnen, hatte nur zwei Vorgaben: ‹Weitere
+Verkäufe und Profite zu ermöglichen› und ‹das Image des Unternehmens zu schützen›.»
+
+**US-Regierung schützt Monsanto vor PCB-Konsequenzen**
+Seattle reichte vor kurzem gegen Monsanto eine Klage wegen PCB-Belastung ein. Die Stadt will erreichen, dass
+das Unternehmen die von ihm produzierte Verschmutzung des Duwamish River beseitigt und dafür Ver antwortung übernimmt, dass die Fische im Fluss für den Verzehr zu kontaminiert sind. San Diego verklagt
+Monsanto ebenfalls wegen der PCB-Verschmutzung der Coronado Bay, und San Jose in Oakland, Berkeley in
+Kalifornien und Spokane in Washington haben ebenfalls gegen Monsanto Klage eingereicht – weil der Konzern
+weiterhin PCB produzierte und vertrieb, obwohl er um die Risiken wusste.
+
+
+**Monsantos Kriegsbeitrag: Atombombe, DDT und Agent Orange**
+Die meisten Leute wissen nicht, dass Monsanto 1943 der US-amerikanischen Kriegsmaschinerie beitrat.
+Monsanto-Chef Charles Allen Thomas wurde vom Pentagon eingeladen, wo man ihn bat, sich am ‹Manhattan
+Project› zu beteiligen. In der Folge stellten die Monsanto-Labore Polonium für die Atombombe her, die schliess lich über dem japanischen Hiroshima abgeworfen wurde.
+Laut Martin war Monsanto auch dafür verantwortlich, dass auf US-Boden amerikanische Bürger radioaktiver
+Strahlung ausgesetzt wurden, indem es radioaktives Eisen für Menschenversuche lieferte. Zwischen 1945 und
+1947 verabreichten Forscher der Vanderbilt University in Nashville, Tennessee, nahezu 900 schwangeren Frauen
+radioaktives Eisen, um die Auswirkungen der Strahlung auf den menschlichen Körper und den Fötus zu testen.
+Darüber hinaus produzierte Monsanto das weltweit erste Pestizid, Dichlordiphenyltrichlorethan, besser bekannt als DDT. Das nicht nur als harmlose, sondern sogar als förderlich für die Gesundheit angepriesene DDT
+wurde weithin ohne jede Sicherheitsvorkehrung gegen krankheitsübertragende Insekten eingesetzt.
+
+
+-----
+
+Drei Jahrzehnte lang versicherten Marketingkampagnen die Sicherheit und den grossen Nutzen von DDT – obwohl immer mehr wissenschaftliche Untersuchungen etwas anderes bewiesen. Heute ist die Toxizität von DDT
+allgemein bekannt, aber erst öffentlicher Druck zwang die US-Regierung schliesslich dazu, die Chemikalie 1972
+zu verbieten.
+Monsantos Beiträge zur US-Kriegsmaschinerie hielten auch während des Vietnamkriegs an, als das Unter nehmen einer der führenden Produzenten von Agent Orange wurde. Agent Orange ist ein Entlaubungsmittel,
+das aufgrund des enthaltenen Dioxins bei allen, die damit in Kontakt kamen, schwerwiegende Folgen hatte. Laut
+Martin wussten Monsanto und die US-Regierung von der Toxizität von Dioxin, verschwiegen sie aber vor der
+Öffentlichkeit.
+Bis heute leiden Vietnamesen, amerikanische Veteranen und Chemiefabrikarbeiter an den von Agent Orange
+hervorgerufenen Krebs- und anderen Erkrankungen. Das Städtchen Nitro in West Virginia, wo Monsanto jahre lang Dioxin im Fluss entsorgte ohne die Bewohner darüber zu informieren, verzeichnet ebenfalls vermehrt
+Krebs- und andere Krankheitsfälle. Abfallprodukte, die bei der Herstellung von Agent Orange anfielen, wurden
+jahrzehntelang in den Passiac River in New Jersey geleitet, wodurch der Fluss zu einem der meistverschmutzten
+Gewässer der USA wurde.
+
+**Monsanto versucht, sich ein neues Image zu geben**
+1977 beauftragte Monsanto die PR-Agentur Bain & Company, um die öffentliche Meinung über den Konzern
+zu ändern, die immer negativer geworden war. Der Bain-Mitarbeiter Mitt Romney wurde für diese Aufgabe
+auserkoren. Er schlug vor, dass Monsanto sich selbst ein neues Image als lebensbejahendes Unternehmen geben
+sollte, indem es den Fokus auf Lebensmittel und Landwirtschaft legte. Unter Romneys Leitung wurden Monsanto-Slogans wie ‹Feeding the World› (‹Die Welt ernähren›) geboren.
+Doch das Facelifting des Konzerns war allenthalben dürftig zu nennen, denn Monsanto stellte die Produktion
+giftiger Chemikalien nicht etwa ein und veränderte auch seine Geschäftspraktiken nicht. So kaufte Monsanto
+beispielsweise Searle, den Produzenten des toxischen Süssstoffs Aspartam, der heute in mehr als 6000 Lebensmitteln und Getränken enthalten ist. Abby Martin kennt die Geschichte hinter diesem umstrittenen Süssungsmittel und die politischen Beziehungen, mit deren Hilfe es schliesslich den Markt überschwemmt hat, obwohl
+Studien es als gefährlich für die humane Gesundheit einstuften.
+Monsanto sorgte auch dafür, dass das rekombinante bovine Wachstumshormon (recombinant Bovine Growth
+Hormone, rBGH) Eingang ins Ernährungssystem fand. Das synthetisch hergestellte Hormon erhöht bei Kühen
+die Milchproduktion. Doch Studien legen nahe, dass der Konsum der Milch von rBGH-behandelten Kühen
+auch das Krebsrisiko erhöht.
+Monsantos landwirtschaftlicher Beitrag ist jedoch der destruktivste von allen. Indem der Konzern gentechnisch
+verändertes, herbizidresistentes Saatgut und gleich auch die nötigen Pestizide produziert, konnte er seinen
+toxischen Einfluss noch weiter ausdehnen als zuvor. Bemerkenswert ist, dass Monsanto sich gern selbst als
+‹nachhaltig arbeitendes Landwirtschaftsunternehmen› ausgibt – trotz der Tatsache, dass seine auf Chemikalien
+beruhenden Methoden alles andere als nachhaltig sind.
+
+**Monsantos Einsatz gegen Warnhinweise**
+Seit den Firmenanfängen hat Monsanto wiederholt Versuche, die Menschen vor den potenziellen Risiken ihrer
+Produkte zu warnen, unterschlagen. Immer wieder besteht der Konzern darauf, seine Produkte seien durch und
+durch sicher – selbst wenn er weiss, dass das nicht stimmt. Monsanto bekämpft vehement …
+– die Auszeichnung ‹rBGH-frei›
+– die Kenntlichmachung gentechnisch veränderter Organismen auf Lebensmittelpackungen
+– Warnhinweise auf die Toxizität von Glyphosat
+
+Die Geschichte des Unternehmens spricht für sich selbst, und sein derzeitiges Verhalten sagt uns nur, dass sich
+seit den Tagen von DDT, PCBs und Agent Orange nichts geändert hat. Das Einzige, was sich geändert hat, ist
+die Tatsache, dass Monsanto inzwischen sicher sein kann, dass praktisch jeder Mensch auf unserem Planeten
+von seinen giftigen Chemikalien betroffen ist, und zwar durch die Ernährung.
+
+**Schlechte Nachricht: US-Repräsentantenhaus beschliesst DARK-Act-Kompromiss**
+Das US-amerikanische Repräsentantenhaus hat einen Kompromiss im Rahmen des DARK Act (‹Deny Americans the Right to Know›-Act) beschlossen, der Lebensmittelhändler dazu zwingt, die Verarbeitung gentechnisch
+
+
+-----
+
+veränderter Produkte mithilfe einer Smartphone-App auszuweisen. Nun geht die Vorlage ans Weisse Haus, wo
+Präsident Obama sie vermutlich unterzeichnen wird.
+Gentechnisch veränderte Organismen (GVO) sind lebende Organismen, deren genetische Komponenten im
+Labor künstlich manipuliert werden, indem labile Kombinationen aus pflanzlichen, tierischen, bakteriellen und
+sogar viralen Genen geschaffen werden, die in der Natur so nicht vorkommen und auch bei traditionellen
+Kreuz züchtungsmethoden nicht entstehen würden.
+GVO-Verfechter behaupten, dass die gentechnische Manipulation ‹sicher und förderlich› sei und der landwirtschaftlichen Industrie nur nützen könne. Sie sagen auch, dass GVO dazu beitragen, den globalen Lebensmittelvorrat und Nachhaltigkeit zu gewährleisten. Aber ist da auch nur ein Fünkchen Wahrheit dran? Ich glaube nicht.
+Seit Jahren vertrete ich die Meinung, dass GVO eine der grössten Gefahren für das Leben auf unserem Planeten
+bedeutet. Gentechnische Veränderung ist NICHT die sichere und vorteilhafte Technologie, als die sie ange priesen wird.
+Die US-amerikanische Behörde für Lebens- und Arzneimittel (FDA) ebnete den Weg für gentechnisch veränderten Atlantik-Lachs, der nun für den menschlichen Verzehr gezüchtet wird. Immerhin muss das Produkt speziell
+ausgezeichnet werden, so dass der Konsument wenigstens sicher sein kann, den gentechnisch manipulierten
+Lachs im Laden zu erkennen. Doch es ist eigentlich zwingend notwendig, dass ALLE gentechnisch veränderten
+Lebensmittel ganz klar gekennzeichnet werden – ohne Smartphone-Scan-Code, denn schliesslich hat nicht jeder
+ein Smartphone.
+Die FDA bedroht unseren Nahrungsvorrat. Inzwischen haben wir angefangen, uns dagegen zu wehren. Ich bitte
+Sie dringend, diesen Artikel an Freunde und Verwandte weiterzuleiten. Wenn wir uns zusammentun, können
+wir etwas bewegen und den Absurditäten ein Ende bereiten.
+
+**Boykottieren Sie ab sofort Smart Labels!**
+Wenn Sie auf einem Lebensmittel einen QR-Code oder ein sogenanntes Smart Label sehen, lassen Sie es liegen.
+Produkte mit dem Smart Label der Grocery Manufacturer’s Association (GMA) enthalten höchstwahrscheinlich Pestizide und/oder GVO.
+Zu den mehr als 300 GMA-Mitgliedern gehören Chemotechnik-Unternehmen, Hersteller von gentechnisch
+verändertem Saatgut sowie Lebensmittel- und Getränkefirmen. Monsanto, Dow und Coca-Cola sind nur drei
+der prominenten Konzerne in dieser einflussreichen Industrievereinigung, die keine Skrupel hat, alles zu tun,
+um die Interessen ihrer Mitglieder zu wahren.
+Verschwenden Sie keine Zeit damit, deren Website zu durchsuchen, die die von Ihnen gesuchten Informationen
+vielleicht sowieso nicht enthält. Wenn diese Konzerne Sie weiterhin Zeit vergeuden lassen und das Einkaufen
+schwierig machen – warum sollten wir sie dann mit einem Kauf belohnen?
+Eine wenig bekannte Tatsache ist, dass die GMA Eigentümerin der Handelsmarke ‹Smart Label› ist, die der
+Kongress als sogenannten ‹Kompromiss› für auf dem Etikett angegebene Inhaltsstoffe zugelassen hat. Dies ist
+ein weiterer Grund, warum meiner Meinung nach Smart Labels nur von jenen verwendet werden, die etwas zu
+verheimlichen haben, wie eben Monsanto.
+Möchten Sie Ihr Geld in ein korruptes, toxisches und nicht nachhaltiges Nahrungssystem stecken – oder doch
+lieber in ein gesundes, regeneratives System? Es gibt viele Optionen jenseits der industriell verarbeiteten Produkte
+mit grossen Namen, die zum ‹verifizierten Betrügerring der GMA› gehören. Sie haben die Wahl:
+– Sie können auf Bauernhöfen und -märkten vor Ort einkaufen.
+– Sie können ausschliesslich Produkte kaufen, die mit Bio gekennzeichnet sind.
+
+Zu guter Letzt können Sie jene Unternehmen unterstützen, die QR-Codes ablehnen und deren Inhaltsangaben
+transparent und deutlich sind. Damit sorgen Sie schlussendlich dafür, dass alle GVO-Produkte des ‹verifizierten
+Betrügerrings› der GMA anhand des Smart Labels leicht identifiziert werden können.
+Campbell’s, Mars, Kellogg’s, ConAgra und General Mills verpflichteten sich freiwillig dazu, Vermonts Gesetz
+zur GVO-Auszeichnung anzuwenden, indem sie alle ihre Produkte in den USA entsprechend kennzeichnen.
+Werden sich ihre Pläne ändern, wenn der derzeitige ‹Kompromiss› vom Senat verabschiedet wird? Das bleibt
+abzuwarten.
+_Quelle: http://derwaechter.net/us-konzern-mit-hang-zum-voelkermord-die-geschichte-von-monsantos-aufstieg-zur-macht_
+
+
+-----
+
+### Pestizide: Immer mehr Kinder in ländlichen geprägten Regionen erkranken an Krebs
+_Veröffentlicht am August 8, 2016 in Gesundheit von anonymous_
+Gesundheitliche Probleme bei Kindern sind in den letzten Jahren signifikant angestiegen, und das liegt haupt sächlich an der Veränderung unserer Umwelt. So lautet das Fazit eines kürzlich vom Pesticide Action Network
+(PAN) veröffentlichten Bericht mit dem Titel ‹Kids on the Frontline› (‹Kinder an vorderster Front›), der
+detailliert die schädlichen und potenziell tödlichen gesundheitlichen Folgen von Pestiziden auf amerikanische
+Kinder beschreibt.
+Anhand staatlicher Daten zur gesundheitlichen Entwicklung und neuer akademischer Forschungsergebnisse
+ermittelte das PAN, dass die Fälle von Krebs, Autismus, Entwicklungsstörungen, ADHS, Diabetes und Fettleibig keit in den letzten dreieinhalb Jahrzehnten signifikant gestiegen sind.
+Insbesondere Krebs im Kindesalter ist in ländlichen Gegenden, wo regelmäßig Pestizide ausgebracht werden,
+auf dem Vormarsch. Zwischen 1975 und 2012 stiegen die Krebsfälle bei Kindern im Alter von null bis 19 Jahren
+um ganze 36 Prozent an.
+
+**Der Zusammenhang von Pestiziden und neurologischen Entwicklungsstörungen wird immer deutlicher**
+«Die Hinweise auf einen Zusammenhang zwischen Pestiziden und einem erhöhten Leukämie- und Hirntumorrisiko erhärten sich mehr und mehr. Neue ‹Metaanalyse›-Studien weisen auf ein gestiegenes Risiko von Kindern
+in ländlichen und landwirtschaftlich geprägten Regionen hin. Das Auftreten dieser zwei Krebsarten ist signifikant gestiegen im Vergleich zu anderen Krebsarten im Kindesalter», heisst es in dem Bericht.
+Auch Gesundheitsprobleme, die mit pränataler (vorgeburtlicher) Pestizidexposition in Zusammenhang stehen,
+nehmen ständig zu. Immer mehr Hinweise belegen den Einfluss der Pestizidexposition im Mutterleib auf die
+Entwicklung des kindlichen Nervensystems. Schon 2012 war dieser Zusammenhang deutlich, so PAN, in zwischen ist er jedoch noch offenkundiger geworden.
+«Neue Studien bringen das erhöhte Risiko für Entwicklungsstörungen und -verzögerungen – darunter die
+Autismus-Spektrum-Störung – in Zusammenhang mit der pränatalen Nähe zu landwirtschaftlichen Flächen,
+auf denen Pestizide versprüht werden.»
+Kinder in landwirtschaftlichen Regionen kriegen sozusagen eine ‹doppelte Dosis› dieser Pestizide ab. Vermehrt
+durch Verwehungen der in Schulen, Parks und Gärten eingesetzten Gifte als auch durch die Nahrung und dem
+mit landwirtschaftlichen Chemikalien verunreinigten Wasser.
+«In manchen Fällen wirken auch ökonomische und soziale Stressoren auf diese Kinder ein, die die gesundheitlichen Schäden durch die Chemikalien noch verschlimmern. Überall in den USA stehen die Kinder an der vordersten Front der Pestizideinwirkung», konstatiert der Bericht.
+
+**Wie schützt man die Kinder vor Pestiziden?**
+Laut den Forschern kann man Kinder am besten vor Pestizidschäden bewahren, indem man «die Ausbringung
+von Pestiziden landesweit dramatisch einschränkt«. Dies ist »sowohl durchführbar als auch längst überfällig»,
+so PAN. «Die Aufgabe, Kinder vor gefährlichen Chemikalien zu schützen, darf nicht den einzelnen Familien
+aufgebürdet werden; hier ist die Politik gefordert.»
+Seit über 100 Jahren drehen sich die Vorschriften zu Pestiziden um ein Ziel: die Produkte schnell und gewinnbringend auf den Markt zu bringen.
+Deshalb werden – laut Regierungsdaten von 2007, den jüngsten für die Forscher zugänglichen – Jahr für Jahr
+mehr als 300000 Tonnen Pestizide auf Äckern und Feldern ausgebracht. Wenn man die nicht-landwirtschaftliche Verwendung von Pestiziden einrechnet, schnellt diese Zahl bis auf eine Million Tonnen hoch.
+«Immer deutlicher werden die Hinweise darauf, dass viele dieser Chemikalien auch bei geringer Exposition der
+menschlichen Gesundheit schaden – und die in der Entwicklung begriffenen Körper der Kinder sind besonders
+anfällig. Zunehmend wird auch offenkundig, dass alternative, weniger chemisch-intensive Anbaumethoden
+nicht nur machbar sind, sondern auch die Widerstandsfähigkeit der landwirtschaftlichen Produktion stärken
+würden.»
+Laut PAN ist es an der Zeit, dass die Behörden «ein ambitioniertes landesweites Reduktionsziel bezüglich landwirtschaftlicher Pestizide» setzen. Dieses Reduktionsziel sollte vor allem jene Pestizide betreffen, die Kindern
+am meisten schaden. Wenigstens sollte rund um Schulen, Kindertagesstätten und andere ‹sensible Plätze› in der
+Nähe von Landwirtschaftsbetrieben, die Chemikalien einsetzen, pestizidfreie Pufferzonen entstehen.
+Und schlussendlich müssen wir laut PAN in eine gesunde, innovative Landwirtschaft investieren. «Wir müssen
+
+
+-----
+
+Bauern, die aus der Pestizid-Tretmühle heraustreten wollen, massgebliche und sinnvolle Unterstützung,
+Motivation und Anerkennung zukommen lassen. Landesweite und bundesstaatliche Programme müssen an
+erster Stelle die gesundheitsfördernde, nachhaltige und widerstandsfähige Agrarproduktion fördern.»
+
+**Der politische Einfluss von Konzernen wie Monsanto muss beschnitten werden**
+In einem weiteren wichtigen Schritt muss es aufhören, dass multinationale Lebensmittelkonzerne Einfluss auf
+die Politik ausüben, konstatiert das PAN.
+«Diese multinationalen Unternehmen haben gewaltige Kontrolle darüber, wie wir unsere Lebensmittel anbauen
+– von der Bestimmung über Forschungsprogramme öffentlicher Institutionen bis hin zu Produktion und
+Vertrieb landwirtschaftlicher Materialien wie Saatgut, Dünger und Schädlingsbekämpfungsmittel.
+Es überrascht wohl kaum, dass dieselben Konzerne auch die politische Arena dominieren. Sie investieren alljährlich Millionen Dollar, um Wähler und Entscheidungsträger auf lokaler, bundesstaatlicher und landesweiter
+Ebene zu beeinflussen.
+Ihr Ziel ist es, den Markt für Saatgut, Pestizide und andere agrochemische Produkte offen zu halten. Als Reaktion
+auf die wachsende Sorge im Land über gesundheitliche Folgen von Pestizidprodukten investiert die Pestizid industrie viel Geld in PR-Kampagnen, um die öffentliche Diskussion rund um Lebensmittel und Landwirtschaft
+zu beeinflussen», fasst der Bericht zusammen.
+_Quelle: http://derwaechter.net/pestizide-immer-mehr-kinder-in-laendlichen-gepraegten-regionen-erkranken-an-krebs_
+
+### Wir schaffen das!
+_24. August 2016 dieter_
+von Gerhard Breunig (juwelen-magazin)
+
+Es gab einmal ein Land, das man das Land der Dichter und Denker nannte.
+Die Dichter und Denker entwickelten das Land weiter und ermöglichten mit ihrem Wissen, dass sich in den
+nachfolgenden Generationen begnadete Ingenieure und Techniker entwickeln konnten. Hervorragende Handwerker und Facharbeiter setzten das um, was diese Erfinder und Tüftler erdachten. Der technische Fortschritt
+kam massgeblich aus Deutschland. Die Sprache in diesem Land war so präzise und genau in ihrer Beschreibung,
+dass sie sich schnell zur Sprache der Wissenschaft aufschwingen konnte.
+
+**All dies ist jetzt Geschichte. Unsere Geschichte.**
+Was wir heute erleben, hat nichts mehr mit dem Land der Dichter und Denker von früher zu tun. Unsere
+Ingenieure und Techniker scheitern an einem Wald aus Vorschriften und Verordnungen, die jeden Fortschritt
+bremsen. Unsere Handwerker und Facharbeiter sind in ein Hamsterrad gesperrt und werden darin zu Tode
+gehetzt, nur um immer mehr echte Werte aus ihnen herauszupressen.
+
+**Bürokraten und Beamte haben die Herrschaft übernommen. Wissen ist längst nicht mehr Macht.**
+**Das mittelmässige Mittelmass hat die entscheidenden Hebel im Land längst übernommen.**
+Die Gehirnwäsche, die uns nach dem zweiten Teil des grossen, immer noch andauernden Krieges zuteil wurde,
+war erfolgreich. Die jungen Generationen wurden beeinflusst vom immer wieder vermittelten falschen Wissen.
+Die grösste Bücherverbrennung aller Zeiten fand im ‹Nachkriegsdeutschland› statt. Manipulation und Indoktrination sorgten dafür, dass sich eine falsche Moral in diesem Land breit machen konnte.
+**Was uns als Television verkauft wird, bedeutet eigentlich ‹tell us a vision›. Ich kenne kein Wohnzimmer, in dem**
+**diese Apparatur für tägliche Gehirnwäsche nicht zu finden ist. Wir zahlen sogar noch für die ständig vermit-**
+**telte falsche Vision, die unseren Geist vom echten Denken ablenkt.**
+Das Abtrainieren der Empathie und des Familiensinns sorgen letztendlich dafür, dass wir immer mehr ‹vereinzeln›.
+Was auf Neudeutsch ‹single› heisst, prägt den Zustand dieses Landes und schlägt sich auch in den Geburtenraten
+nieder. Durch die nicht hinterfragte Aneignung demagogischer Lehren, mutieren die Deutschen immer mehr
+zu einem Häufchen degenerierten Elends.
+
+**Wir fühlen uns schuldig. Durch diese kollektive Schuld konnte man uns umformen.**
+Umformen zu Duckmäusern, obrigkeitshörigen Ja-Sagern und Denunzianten. Diese Schuld ist auch verantwortlich für das derzeit vorherrschende Gutmenschentum. Dieses wiederum ist die Ursache für den Klima 
+
+-----
+
+rettungswahn, für die fähnchenschwingenden Bahnhofs-Klatscher und für unzählige weitere gesellschaftliche
+Fehlentwicklungen in diesem Land. Sie ist der Aufhänger für die von unseren Besiegern geplante und aktuell
+deutlich sichtbare durchgeführte Politik der Rassenvermischung. Wir werden schlicht weg gezüchtet. Und über
+jeden, der so etwas offen ausspricht, schwenken wir selbst fast reflexartig die Nazi-Keule.
+
+**Aus ehemals guten Menschen wurden wir so über die Jahre immer häufiger zu ekelhaften Gutmenschen**
+**gemacht, die glauben, alles besser zu wissen und dabei eigentlich rein gar nichts verstehen.**
+Sieger schreiben die Geschichte und wir haben es zugelassen, dass diese selbst ernannten Sieger des grossen
+Krieges unsere Geschichte bis zur Unkenntlichkeit verfälschen.
+Wir lassen es zu, dass man uns an 12 Jahren unserer mehr als tausendjährigen Geschichte festnagelt. Und selbst
+über diese 12 Jahre werden mehr Lügen als Wahrheiten verbreitet.
+
+**Eine bis in alle Ewigkeit vererbbare Schuld für ein ganzes Volk gibt es nicht.**
+**Auch wenn man uns das ständig einredet.**
+Genauso wenig, wie wir an der derzeitigen Völkerwanderung eine Schuld tragen. Sind wir wirklich für diese
+Menschen verantwortlich, die in bisher ungekannten Massen zu uns strömen? Es ist doch nicht unsere Aufgabe,
+diese Menschen bei uns zu integrieren. In keinem Land der Welt ist das so. Wer kommt, der muss sich anpassen
+– basta.
+Politiker, die ‹Integrationsbemühungen› fordern, handeln nicht in unserem Interesse, sondern tun das zum
+Vorteil fremder Mächte. Sie tragen zur Plünderung und Zerstörung unserer mühsam geschaffenen Werte bei,
+vernichten unsere gewachsene Kultur und gefährden damit unsere Existenz. Wenn Frau Merkel dem Staat Israel
+ein Existenzrecht garantiert, sollte sie dies öffentlich auch für uns Deutsche einfordern. Ich habe aus ihrem
+Mund jedoch bisher noch nie auch nur einen entsprechenden Satz gehört.
+
+**Stattdessen lassen wir es bis heute zu, dass man uns entrechtet und erniedrigt.**
+Dabei bemerken wir in unserer vermeintlichen Glückseligkeit nicht einmal, dass man uns seit über 100 Jahren
+permanent verarscht. Als Personal ‹deutsch› geniessen wir den Status von Staatenlosen. Die Deutschen sind seit
+dem letzten Krieg verschollen, nicht mehr auffindbar und es gibt auch niemanden, der nach ihnen sucht. Man
+hat uns zu Systemsklaven degradiert. Wir sind rechtlos, heimatlos und machtlos. Wir sind bis heute die Nazis
+und tragen unseren ‹Personalausweis›, der diesen Status offiziell belegt, wie eine Monstranz vor uns her. Wir
+sind rechtloses Personal für die ‹Verwaltung der Vereinigten Wirtschaftsgebiete› – genauer einer Nichtregierungsorganisation in Deutschland – wie es Sigmar Gabriel 2010 einmal formulierte.
+Wir schauen zu, wie der dritte Teil des grossen Krieges vor unseren Augen vorbereitet wird, und ausgerechnet
+unsere angeblich ‹gewählten Repräsentanten› fördern diese perverse Entwicklung nach Kräften. Ob der dritte
+Akt der grossen Vernichtungsaktion wirklich stattfinden wird, liegt in unseren Händen. Die Frage für mich ist,
+ob wir zulassen wollen, dass wir Deutsche schon wieder vor der gesamten Welt für einen von langer Hand geplanten grossen Waffengang den Kopf hinhalten müssen. Wollen wir uns ein weiteres Mal zum dummen Schuld august degradieren lassen, den man danach für weitere 100 Jahre nach Gutdünken ausplündern und erniedrigen
+kann.
+
+**Es liegt nur an uns, ob wir weiterhin willig den Nazi für die ganze Welt geben wollen oder ob wir endlich**
+**aufwachen und uns zuerst um unsere eigenen Interessen kümmern.**
+Es liegt an uns, dass die Welt endlich wieder zu dem Frieden findet, den wir auch nach 102 Jahren Weltkrieg
+immer noch nicht haben. Waffenstillstand ist nicht Frieden. Deutschland ist immer noch Feindstaat und damit
+die eigentliche Grundlage der ‹Vereinten Nationen›. Es liegt nur an uns, der Welt endlich, nach über 70 Jahren
+des Waffenstillstands den Frieden zu erklären. Unsere von fremden Mächten gesteuerten Politiker werden das
+niemals tun. Genscher hat 1990 garantiert, dass die BRD keinen Friedensvertrag anstreben wird. Warum wohl?
+Der Feindstaat Deutschland ist das Alibi der USA, das sämtliche Kriege seit 1945 ohne Kriegserklärung er möglichte. Die Welt wird erst zur Ruhe kommen, wenn wir es schaffen, unseren Frieden mit allen ehemaligen
+Kriegsgegnern zu machen. Das immer noch herrschende Kriegsrecht ist auch die wichtigste Legitimation für
+den grossen Papiergeldbetrug. Wir könnten soviel Gutes für diese Welt tun, wenn wir denn endlich aufwachen
+würden. Aufwachen aus dem Nebel, den man uns seit über 70 Jahren ins Hirn geblasen hat.
+Wenn wir das wirklich alle wollen, bin ich mir absolut sicher: Wir schaffen das.
+_Quelle: http://krisenfrei.de/wir-schaffen-das-2/_
+
+
+-----
+
+### Migrationspolitik: Ungarn und EU am Scheideweg – HUXIT im Oktober?
+_Veröffentlicht am August 24, 2016 in Politik von anonymous_
+In Ungarn wird am 2. Oktober per Volksentscheid über die EU-Flüchtlingspolitik abgestimmt. Ignoriert die EU
+das Ergebnis des Referendums, könnte dies zu einem Austritt Ungarns aus der EU führen, schreibt New Eastern
+Outlook in einem neuen Artikel.
+Wird Ungarn die nächste Nation sein, die sich aus der Europäischen Union verabschiedet? Die Frage ist gar
+nicht so weit hergeholt, schreibt New Eastern Outlook (NEO). Am 2. Oktober findet ein Referendum über die
+EU-Flüchtlingspolitik statt. Ein wichtiges Thema für Ungarn ist die nationale Eigenständigkeit, die man sich
+nach 150 Jahren osmanischer Herrschaft, Kriegen mit Habsburg-Österreich, der Doppelmonarchie ÖsterreichUngarn und einer Unterwerfung durch die Sowjetunion ab 1945, die bis 1989 andauerte, hart erkämpft hat.
+Im Jahr 2015 kamen in Ungarn rund 400000 Flüchtlinge vor einem vier Meter hohen Stacheldrahtzaun an der
+serbischen Grenze an. Etwa die Hälfte davon stellte Asylanträge, nach staatlichen Verfahren wurde nur 264 von
+ihnen politisches Asyl gewährt. Laut Präsident Viktor Orban ist Migration unter diesen Voraussetzungen keine
+Lösung für ein Problem, sondern ein neues, eigenständiges Problem. «Jeder einzelne Migrant stellt ein öffentliches Sicherheits- und Terrorrisiko dar. Aus diesem Grund gibt es keine Notwendigkeit für eine gemeinsame
+europäische Migrationspolitik», sagte er in einem Interview mit RT. «Wer Migranten braucht, kann sie auf nehmen. Aber man sollte sie uns nicht aufzwingen, denn wir brauchen keine.»
+In einer Stellungnahme sagte Orban: «Es sind nicht die Migranten, auf die wir wütend sein sollten. Die meisten
+von ihnen sind ebenfalls Opfer, Opfer ihrer zusammenbrechenden Regierungen. Sie sind Opfer falscher internationaler Entscheidungen, Opfer von Menschenschmugglern. Sie tun, was in ihrem eigenen Interesse ist. Das
+Problem ist, dass wir Europäer nicht tun, was in unserem eigenen Interesse ist. Für die Aktionen Brüssels gibt
+es kein besseres Wort, als ‹absurd›. Es ist wie wenn ein Kapitän sein Schiff absichtlich kollidieren lässt, anstatt
+eine Kollision zu vermeiden … Statt den undichten Rumpf zu reparieren, wird darüber diskutiert, mit wie viel
+Wasser jede Kabine überflutet werden soll.»
+Wird das ungarische Referendum am 2. Oktober wie gewohnt von Brüssel mit ohrenbetäubender Stille
+ignoriert, könnte dies zu einem weiteren Referendum ähnlich wie in Grossbritannien führen, so NEO weiter.
+Budapest sträubt sich gegen die EU-Beschlüsse in Bezug auf die Flüchtlingspolitik. Bereits im Dezember reichte
+die ungarische Regierung eine Klage beim Europäischen Gerichtshof (EuGH) ein. Die Ungarn werden laut
+Orban im Oktober über die Frage abstimmen, ob «die Europäische Union ohne Zustimmung des ungarischen
+Parlaments verpflichtend anordnet, dass nicht-ungarische Bürger in Ungarn angesiedelt werden.»
+_Quelle: http://derwaechter.net/migrationspolitik-ungarn-und-eu-am-scheideweg-huxit-im-oktober_
+
+### Brzezinski: Angst vor der muslimischen Rache am Westen
+_Von Marco Maier; Veröffentlichungsdatum: 24 08 2016, 10:55_
+**Zbigniew Brzezinski gilt als einer der wichtigsten geopolitischen Strategen der transatlantischen Achse. In sei-**
+**ner jüngsten Analyse zur aktuellen Lage warnt er vor der Rache der postkolonialen muslimischen Welt und**
+**fordert die Grossmächte USA, Russland und China zur konstruktiven Zusammenarbeit auf.**
+Der polnischstämmige US-amerikanische Geopolitiker Zbigniew Brzezinski hat in seinem jüngsten Artikel für
+die Augustausgabe des US-Magazins ‹The American Interest› eine Analyse der aktuellen geopolitischen Lage samt
+einem daraus resultierenden weiteren Ausblick erstellt. Das Ergebnis sind fünf Punkte, die sich so zusammenfassen lassen:
+Erstens: Die USA seien weiterhin politisch, wirtschaftlich und militärisch die stärkste Macht der Welt, sie seien
+aber keine globale Imperialmacht mehr. Dies ist demnach dem (Wieder-)Aufstieg der anderen (neuen) Macht zentren zu verdanken. Trotzdem ist der US-Einfluss auf die Politik in vielen Ländern dieser Welt nach wie vor
+gross.
+Zweitens: Russland befinde sich in den letzten Zuckungen seiner imperialen Phase, könnte aber, würde es eine
+kluge Politik betreiben, zum führenden europäischen Staat werden. Wobei man hier auch sagen muss, dass sich
+Russland nicht wie ein Imperialist verhält, sondern hauptsächlich um eine Sicherheitszone rund um das eigene
+Territorium bemüht ist. Hier spielt Brzezinskis antirussische Haltung mit.
+Drittens: China wachse weiter, wenn auch langsamer als bisher, und kann zum ebenbürtigen Rivalen der USA
+werden. Wenn man die militärische Entwicklung des Reichs der Mitte so ansieht, dürfte klar sein: Trotz ge ringerem Budget machen die Chinesen grosse Sprünge. Auch wirtschaftlich ist das Land noch lange nicht am
+
+
+-----
+
+Ende, zumal die Zentralregierung in Peking deutlich mehr Einfluss auf das Ganze nehmen kann als beispielsweise Washington oder Brüssel.
+Viertens: Europa ist keine globale Macht und wird aller Voraussicht nach auch keine werden, kann aber eine
+konstruktive Rolle auf der Weltbühne spielen. Wobei dies auch daran liegt, dass der europäische Kontinent in
+so viele Völker und Länder zersplittert ist, was eine politische Einigung massiv erschwert. Die aktuellen Entwicklungen in der EU zeigen dies auch.
+Fünftens: Das derzeitige gewaltsame politische Erwachen unter den postkolonialen Muslimen ist zum Teil eine
+verspätete Reaktion auf ihre mitunter brutale Unterdrückung vor allem durch europäische Kolonialmächte.
+Hierbei spielt vor allem das Pochen auf historische Gerechtigkeit und Wiedergutmachung eine grosse Rolle. Die
+‹antiwestlichen Gefühle›, die schon jetzt grössere Teile der islamischen Welt erfasst haben, könnten sich
+Brzezinski zufolge aber auch noch auf die gesamte postkoloniale Welt ausdehnen.
+Diese Einschätzung lässt den alten Russland-Hasser Brzezinski sogar zu dem Schluss kommen, dass sich die
+USA vor allem mit Russland und China einigen und neue Formen kooperativer Beziehungen eingehen müsse.
+Nur wenn diese drei grossen Mächte auf internationaler Ebene an einem Strang ziehen würden, könne man ein
+grösseres Chaos verhindern. Dies nähme jedoch auch die Volksrepublik in die Pflicht, welche sich bislang stets
+in einer Politik der Nichteinmischung übte und stattdessen vor allem regionalpolitisch aktiv war.
+Von Marco Maier, Contra Magazin
+_Quelle: http://de.news-front.info/2016/08/24/brzezinski-angst-vor-der-muslimischen-rache-am-westen-von-marco-maier/_
+
+### Und sie wissen, was sie tun!
+_Veröffentlicht am 30. August 2016 von DWD-Press_
+Das sagt doch wohl alles aus, oder? Und sie wissen, was sie tun!
+CDU-Spitzenpolitiker versammeln sich hinter Merkel für erneute Kanzlerkandidatur.
+Die Messlatte für Realismus kann noch so tief hängen, es schaffen immer wieder nicht wenige Menschen, aufrecht darunter her zu laufen.
+Mehrere ‹Spitzenleute› aus der CDU geben der ‹Kanzlerin› Rückendeckung und äussern tatsächlich offen den
+Wunsch, Merkel möge auch bei der Bundestagswahl 2017 für eine weitere Amtszeit kandidieren.
+Julia Klöckner, CDU-Chefin in Rheinland-Pfalz, könne sich als Kanzlerkandidatin «keine andere vorstellen als
+Angela Merkel».
+Auch Hessens Ministerpräsident und CDU-Vize Volker Bouffier stellte sich hinter die Kanzlerin. «Ich halte es
+für richtig, dass Angela Merkel wieder als Kanzlerkandidatin antritt.»
+Die saarländische Ministerpräsidentin Annegret Kramp-Karrenbauer sagte, Merkel sei ‹die Richtige› für eine
+weitere Legislaturperiode. Genauso plädierte Armin Laschet, Vorsitzender der NRW-CDU und ebenfalls CDUBundesvize, für eine vierte Amtszeit Merkels. Hinter den verschlossenen Türen der Präsidiumssitzung sprach
+sich dem Vernehmen nach auch Unionsfraktionschef Volker Kauder für eine erneute Kandidatur aus.
+Und so geht es weiter.
+Ich denke, dass wir uns alle dabei einig sind, dass Angela Merkel das Schlimmste ist, was Europa und Deutschland nach dem 2. Weltkrieg widerfahren ist. Sie ist alleine dafür verantwortlich, dass wir die bedrohlichen Zeiten
+erleben, in denen wir gerade leben. Die Auszüge der Stimmen und Meinungen ihrer ‹Gefolgschaft› sprechen
+eine Sprache für sich.
+Es geht nicht um reale und konstruktive Politik für die eigene Bevölkerung und dieses Land, sondern es geht
+nur um bedingungslosen ‹Kader-Gehorsam›, der selbstverständlich den eigenen Posten sichert und die eigene
+Position stärkt.
+Die Vergangenheit hat nämlich oft bewiesen, dass wer gegen Merkel steht und sie gar kritisiert hat, nicht mehr
+lange in einer Führungsposition verweilen durfte.
+Aber so ist sie nun mal, unsere ‹Mutti›. Aber wundert Euch das etwa? Angela Merkel war eine hervorgehobene
+FDJ-Funktionärin für Agitation und Propaganda in der DDR. Frau Merkel genoss besondere Vorteile in der
+seinerzeitigen DDR, die andere nicht hatten, und durfte an einer Akademie studieren, die nur so genannten
+Linientreuen vorbehalten war.
+Frau Merkel, waren Sie nicht als FDJ-Funktionärin für Agitation und Propaganda auf freiwilliger Basis eine fanatische Verfechterin des SED-Regimes?
+Wenn nein, dann waren Sie also damals nur des Vorteils wegen politisch so engagiert? Das würde ja dann möglicherweise bedeuten, dass Sie auch heutzutage nur Ihres eigenen Vorteils wegen so handeln, agieren und ent
+
+-----
+
+scheiden. Wenn Sie aber damals eine fanatische Verfechterin der SED gewesen waren, wie konnten Sie sich dann so
+dermassen um die eigene Achse drehen und heutzutage eine willfährige Gehilfin der Wirtschaft und der USA sein?
+Wie man es dreht und wendet, es kommt nicht unbedingt eine ehrwürdige oder respektable Erklärung dabei
+raus. Aber zum Glück gibt es ja die rückgratlose und bedingungslos loyale Gefolgschaft, die Sie stützt und stärkt,
+egal was Sie sagen, entscheiden oder von sich geben. Genau diese Gefolgschaft beweist damit, dass es ihr nicht
+um das Land und die eigene Bevölkerung geht, sondern nur um einen, wie eingangs schon erwähnten, ‹KaderGehorsam›.
+Wer auch nur einen einzigen Kandidaten oder eine einzige Kandidatin wählt, der oder die Frau Merkel unterstützt, dem ist beim besten Willen nicht mehr zu helfen. Vergesst alle nicht, was diese Frau diesem Land angetan
+hat, weiterhin antut und womöglich noch weitere Jahre vor hat, diesem anzutun.
+An der Vergangenheit, an den Worten und Taten kann man jeden einzelnen Menschen messen und beurteilen.
+Angela Merkel hat sich ihr eigenes Zeugnis bereits vor langer Zeit ausgestellt. Kein Teil des Systems!
+Tim K.
+_Quelle: https://dwdpress.wordpress.com/2016/08/30/und-sie-wissen-was-sie-tun/_
+
+### Poroschenko hält an Lüge der russischen Bedrohung fest, damit er weiterhin militärische Unterstützung aus den USA bekommt
+_RT Deutsch; So, 21 Aug 2016 09:21 UTC_
+Der ukrainische Präsident, Petro Poroschenko, behauptet, man könne eine ‹gross angelegte Invasion› Russlands
+in sein Land nicht ausschliessen. Andererseits zeigte er sich sicher, dass die ukrainische Armee angebliche ‹Provo kationen› des Nachbarstaates abwehren könne. Anlass für die rhetorische Offensive könnte sein, dass das Land
+neue Militärhilfe aus den USA erhält.
+Der ukrainische Staatschef, Petro Poroschenko, hat bei einem Besuch im Gebiet Lwow erklärt, dass ein be waffneter Konflikt mit Russland nicht völlig auszuschliessen sei. Dabei verwies er auf die aktuelle militärische
+Zuspitzung im Osten des Landes und auf der Krim.
+«Die Wahrscheinlichkeit, dass der Konflikt eskaliert, ist sehr gross. Wir schliessen auch eine gross angelegte
+russische Invasion aus allen Richtungen nicht aus», liess Poroschenko über die Ukrainskaja Pravda verlauten.
+Im Falle einer weiteren Zuspitzung der Situation im Donbass und um die Krim müsse er den Ausnahmezustand
+verhängen und die Mobilmachung anordnen, drohte der ukrainische Präsident. Die Streitkräfte der Ukraine
+seien fähig, sowohl im Donbass als auch entlang der Verwaltungsgrenze der Krim Widerstand zu leisten.
+«Ich bin mir sicher, dass es in einer komplizierten Situation normal ist, wenn die Streitkräfte stets kampfbereit
+sein müssen, um Aufgaben jeder Komplexität zu lösen», fügte der ukrainische Präsident hinzu.
+Die Sprecherin des russischen Aussenministeriums, Maria Sacharowa, ging auf die Demarche Poroschenkos in
+einem kurzen Kommentar ein.
+«Der Präsident der Ukraine hat erklärt, dass sich Russland auf eine Invasion in die Ukraine vorbereite. Ist das
+**noch normal?», lautete die rhetorische Frage von Maria Sacharowa.**
+Zuvor hatte Petro Poroschenko sich zuversichtlich gezeigt, dass die ‹Feinde der Ukraine› nicht nur vor der
+Schlagkraft der ukrainischen Waffen, sondern auch vor der ‹geistigen Stärke› und der ‹Einheit des ukrainischen
+Volkes› zurückschrecken.
+**Vor kurzem vereitelte der russische Inlandsgeheimdienst FSB eine Anschlagsserie auf der Schwarzmeer-Halb -**
+**insel Krim, die die Hauptverwaltung für Aufklärung beim Verteidigungsministerium der Ukraine geplant**
+**haben soll. Bei der Verhaftung der Saboteure wurden zwei russische Militärs getötet. Der russische Präsident,**
+Wladimir Putin, kommentierte später, dass der Kreml diesen Vorfall nicht werde durchgehen lassen.
+**Inzwischen erwartet die Ukraine neue Waffenlieferungen aus den USA, die im Land demnächst eintreffen**
+**sollen.**
+«Die US-Botschaft in Kiew arbeitet daran, die Fähigkeit der Ukraine und ihrer Streitkräfte zu steigern, ihr
+souveränes Territorium zu verteidigen», twitterte Geoffrey Pyatt.
+Im Gespräch mit dem Sender Radio Swoboda präzisierte der US-Botschafter in Kiew, um welche Massnahmen
+es sich dabei handelt:
+«Barack Obama hat der Ukraine beispiellose Darlehensgarantien in Höhe von Milliarden Dollar sowie 600
+Millionen Dollar als Hilfe im Sicherheitsbereich und gut 500 Millionen Dollar als sonstige wirtschaftliche Hilfe
+zur Verfügung gestellt», informiert Pyatt.
+
+
+-----
+
+Der Diplomat zeigte sich mit dem US-Engagement für die ukrainische Führung zufrieden.
+«Ich bin sehr stolz auf die Errungenschaften: Unsere Militärübungen in Jaworow, moderne Waffen und gut 1000
+Nachtsichtgeräte. Die neuen Lieferungen werden demnächst eintreffen. Dank solcher Hilfe hat man vielen
+ukrainischen Soldaten das Leben gerettet», glaubt Geoffrey Pyatt.
+Der US-Diplomat wird demnächst seinen Einsatzort wechseln: Sein nächstes Ziel ist Athen. Die Aufgaben in
+Kiew wird Marie Yovanovitch übernehmen, die zuvor die US-Botschaft in Armenien geleitet hat.
+Die Vereinigten Staaten unterstützen die Ukraine mit Militärhilfe. Offiziell handelt es sich dabei um Uniformen,
+Ausrüstung, Ausbildung und nicht tödliche Waffen. Der ukrainische Botschafter in den USA, Waleri Tschaly,
+hat angekündigt, dass die Lieferungen letaler Waffen in die Ukraine nach der Präsidentschaftswahl in den USA
+wieder ins Gespräch kommen könnten.
+_Quelle: https://de.sott.net/article/25838-Poroschenko-halt-an-Luge-der-russischen-Bedrohung-fest-damit-er-weiterhin-mili-_
+_tarische-Unterstutzung-aus-den-USA-bekommt_
+
+### «Fehler ist sehr unwahrscheinlich»: Astronomen entdeckten möglicherweise bewohnbaren Planeten in Erdnähe
+_Sputnik; Mi, 24 Aug 2016 06:52 UTC_
+Europäische Astronomen haben bei dem erdnahen Nachbarstern Proxima Centauri einen erdähnlichen Begleiter
+entdeckt, wo möglicherweise Leben existieren könnte. Das geht aus einem am Mittwoch in der Fachzeitschrift
+‹Nature› veröffentlichten Artikel hervor.
+«Vom Standpunkt der Statistik aus ist ein Fehler in diesem Fall sehr unwahrscheinlich – eine Chance von zehn
+**Millionen oder sogar mehr», berichtete die Wissenschaftlergruppe um Guillem Anglada-Escudé von der**
+Londoner Queen Mary-Universität.
+Der endgültige Planeten-Nachweis gelang Anglada-Escudé mit Hilfe der European Southern ObservatorySternwarte (ESO) in Chile. Mit einem ihrer grossen Teleskope und einem speziellen Hochleistungs-Spektrografen dokumentierte sie minimale Frequenzverschiebungen im Farbspektrum des Sterns, die dadurch ent stehen, dass sich dessen Position durch den Einfluss der Schwerkraft eines ihn umkreisenden Planeten
+geringfügig verschiebt.
+_Quelle: https://de.sott.net/article/25756-Fehler-ist-sehr-unwahrscheinlich-Astronomen-entdeckten-moglicherweise-bewohn-_
+_baren-Planeten-in-Erdnahe_
+
+### Nobelpreisträger Stiglitz: «Der Euro ist von Anfang an ein Konstruktionsfehler gewesen»
+_24. August 2016 - 12:03_
+
+_Wirtschafts-Experte Stieglitz macht vor allem Angela Merkel für das sture Festhalten an der Fehlentwicklung Euro verantwortlich._
+_Foto: World Economic Forum / Wikimedia (CC BY-SA 2.0)_
+
+**Mehr zum Thema**
+– AfD
+– Euro-Einführung
+– Euro-Krise
+– Nobelpreisträger Stiglitz
+– Columbia University
+Der Träger des Nobelpreises für Wirtschaftswissenschaften, Joseph E. Stiglitz, sieht für den Euro keine Zukunft
+mehr und fordert deshalb die Abschaffung der europäischen Einheitswährung: «Die Konstruktionsfehler des
+
+
+-----
+
+Euro scheinen unüberwindbar. Es ist Zeit, über eine Auflösung nachzudenken», erklärt er laut einer Darstellung
+in MMNews der Fachzeitschrift Financial Times.
+
+**Weder Wirtschaftswachstum noch Solidarität erreicht**
+Die ursprüngliche Idee des Euro war es, für Wirtschaftswachstum und mehr Solidarität zwischen den einzelnen
+Mitgliedsstaaten der EU zu sorgen. Doch für Joseph E. Stiglitz, derzeit Universitätsprofessor an der Columbia
+University, ist genau das Gegenteil eingetreten: «Einige Länder stecken in einer wirtschaftlichen Depression, die
+grösser ist als die grosse Depression der 1930er-Jahre.»
+
+**Weltwirtschaftskrise war Mit-Auslöser für Zweiten Weltkrieg**
+Damals gab es, ausgelöst durch den Börsencrash am Schwarzen Donnerstag (24. Oktober 1929), eine Weltwirtschaftskrise unvorstellbaren Ausmasses. Betriebsschliessungen, Massenentlassungen und Arbeitslosigkeit in
+allen damaligen Industriestaaten der Welt war die Folge. Und im Endeffekt war diese Weltwirtschaftskrise einer
+der wesentlichsten Auslöser des Zweiten Weltkriegs.
+
+**Deutschland ist Hauptverantwortlicher der Euro-Krise**
+Auch sieht Nobelpreisträger Stiglitz in Deutschland den Hauptverantwortlichen für den gescheiterten Euro.
+Denn es war eine ‹fatale Entscheidung›, sich für die Europäische Zentralbank (EZB) die Deutsche Bundesbank
+zum Vorbild zu nehmen, welche sich hauptsächlich um die Bekämpfung der Inflation und weniger um wirtschaftliches Wachstum kümmert.
+
+**AfD ebenfalls für Auflösung der Einheitswährung**
+Zu diesen Äusserungen des Nobelpreisträgers Stiglitz meint der Bundessprecher der Alternative für Deutschland (AfD), Jörg Meuthen, der selbst Wirtschaftswissenschaftler ist und an der Freiburger Verwaltungs- und
+Wirtschaftsakademie lehrt: «Stiglitz hat vollkommen recht, wenn er endlich anerkennt, dass die Konstruktionsfehler der Gemeinschaftswährung unüberwindbar sind und die Zeit gekommen ist, über eine Auflösung dieser
+Währung nachzudenken.»
+Jörg Meuthen erklärt auch, dass diese Erkenntnis 2013 zur Gründung der AfD geführt habe, die seitdem vor
+den grossen Risiken und immensen Kosten des Euro warnt.
+
+**Merkel ist auch wegen des Euro am falschen Platz**
+Dazu Jörg Meuthen: «Mittlerweile ist Frau Merkel eine der letzten, die sich noch so stur wie aussichtslos an den
+Euro klammert – ausgenommen natürlich die Vertreter der Südländer, die dabei lediglich ihren kurzfristigen
+Profit und die breite Streuung ihrer Verschuldung in eine grosse Haftungsgemeinschaft im Auge haben.
+Sie muss endlich begreifen, dass der Euro Deutschland und der Europäischen Union nicht nutzt, sondern
+schadet. Sie darf nicht aus Prinzip an einem Projekt festhalten, von dem inzwischen jedermann sehenden Auges
+klar ist, dass es ein offenkundiger Fehler war. Sollte Frau Merkel weiter für die Gemeinschaftswährung werben,
+dann ist sie auch aus diesem Grund falsch an ihrem Platz.»
+Deswegen ist es für Jörg Meuthen höchste Zeit, dass im nächsten Jahr Neuwahlen in Deutschland stattfinden,
+weil von Frau Merkel mit Sicherheit keine Kurskorrektur am bisherigen Euro-Weg zu erwarten ist.
+_Quelle: https://www.unzensuriert.at/content/0021586-Nobelpreistraeger-Stiglitz-Der-Euro-ist-von-Anfang-ein-Konstruktions -_
+_fehler-gewesen_
+
+### USA lieferte Waffen im Wert von 40 Milliarden Dollar in den Nahen Osten – in die Hände von Söldnern
+_RT Deutsch; Do, 25 Aug 2016 15:12 UTC_
+_«Die Ausbreitung der von den USA verkauften Waffen im Nahen Osten, und darüber hinaus, brachte Chaos und_
+_Tod.» Das sagt der wissenschaftliche Direktor der NGO ‹Action on Armed Violence› gegenüber RT Deutsch. Die_
+_Organisation untersuchte, wie viele Kleinwaffen das US-Verteidigungsministerium nach Afghanistan und in den_
+_Irak schickte._
+Die Versuche, die Kriege in Afghanistan, im Irak und Syrien zu beenden, scheitern auch daran, dass in allen
+Ländern zu viele Waffen im Umlauf sind. Alle Kriegsparteien können sich auf gigantischen Schwarzmärkten
+mit Waffen und Munition versorgen. Immer wieder tauchen Angebote auch in sozialen Medien auf.
+
+
+-----
+
+In den vergangenen Monaten zeigte ein Journalistennetzwerk, wie Saudi-Arabien und die USA über Jahre in Ost**europa alle Arten von Waffen einkauften und an Söldner in Syrien schickten. Heute veröffentlichte eine britische**
+NGO eine Untersuchung zu den Exporten von Kleinwaffen im Rahmen des ‹Krieges gegen den Terror›.
+Die NGO mit dem Titel ‹Action on Armed Violence› (AOAV) wollte wissen, wie viele Gewehre und Pistolen seit
+dem Jahr 2001 nach Afghanistan und in den Irak geschickt wurden. Das Ergebnis ist schockierend: Die USA
+**fluteten diese Länder mit etwa 1,4 Millionen Kleinwaffen und der dazu gehörigen Munition. Von den ent -**
+**sprechenden Lieferverträgen mit dem Pentagon profitierten demnach zehn amerikanische Firmen.**
+Das Ziel der Untersuchung sei gewesen, eine Debatte darüber anzustossen, wie sich ein Überangebot an Waffen
+auf ‹instabile Staaten› auswirkt. Iain Overton, Direktor für Untersuchungen, berichtet, dass seine Organisation
+die Daten nach dem ‹Freedom of Information›-Gesetz anforderte. Man wollte zunächst wissen, wie viele
+Schnellfeuergewehre das Pentagon in den Irak und Afghanistan verkauft hatte. Die Informationen, so Iain
+Overton, wurden zwar herausgegeben, aber vollständig unkenntlich gemacht.
+Auf Anfrage von RT Deutsch beschreibt Iain Overton, welche Auswirkungen Kleinwaffen auf den Verlauf von
+Konflikten haben. Gewehre, so Overton, sind sehr robuste Instrumente. Auch nachdem der unmittelbare
+gewalttätige Konflikt vorläufig beendet ist, etwa durch Friedensverhandlungen, bleiben sie im Umlauf. Die
+Waffen, so Iain Overton, bleiben bis zuletzt.
+«Daher, wenn eine Waffe von einer Regierung an einen nicht-staatlichen Akteur weitergegeben wird, an einen
+Soldaten in einer korrupten Armee oder in einem Land, in dem die Sicherheitsregeln für die Lagerung von
+Waffen nicht garantiert werden können, besteht eine sehr hohe Wahrscheinlichkeit, dass diese Waffen am Ende
+in den Händen von Personen landen, die solche Waffen für Menschenrechtsverletzungen verwenden.»
+Gegenüber RT Deutsch verweist der Recherchechef von AOAV auch auf das Beispiel Syrien. **Von der US-**
+**Regierung finanzierte Waffen sind in die Hände des ‹Islamischen Staates› (Anm. Islamistischen Staates)**
+**gelangt, sie sind in den Händen von Kindersoldaten der Taliban gelandet, beschreibt Iain Overton.**
+«Dies ist eine Wahrheit, und wir müssen zur Kenntnis nehmen, dass diese amerikanische Lovestory mit dem
+Gewehr, das individuelle Recht eine Waffen zu tragen, auch Auswirkungen auf die Aussenpolitik hat. Damit
+meine ich die Überzeugung, dass die Demokratie aus dem Lauf einer Waffe regnen kann. Das alles zusammen
+führt zu einer tödlichen Wahrheit: Die Ausbreitung der von den USA verkauften Waffen im Nahen Osten und
+**darüber hinaus, brachte Chaos und Tod.»**
+Iain Overton berichtet, dass das Team von AOAV vor dem Beginn ihrer Untersuchung ‹keine Vorstellung› hatte,
+wie viel Geld man finden werde, das durch das Verteidigungsministerium für Kleinwaffen, Munition und
+Zubehör ausgegeben wird.
+«Wir sprechen hier nicht von Flugzeugträgern. 40 Milliarden Dollar sind eine riesige Menge an ausgestellten
+Verträgen, nur für Waffen, Zubehör und Munition, sogar in mehr als 14 Jahren Krieg.»
+Noch wichtiger erscheint der NGO, dass das Pentagon den Verbleib der Waffen offensichtlich nicht kontrolliert.
+Von den verschickten Waffen tauchen weniger als drei Prozent in der Datenbank des Verteidigungsministeriums
+auf, heisst es in dem Bericht.
+«Laut unseren Ergebnissen besteht Anlass zur Sorge, was die Transparenz und die Verantwortlichkeit des Verteidigungsministeriums betrifft, wenn solche Verträge ausgestellt werden. Sie zeigen zum Beispiel, dass eine
+erhebliche Zahl von Kleinwaffen an ausländische Regierungen geschickt wird, ohne dass sie das öffentlich aufzeichnen.»
+Erst anhand anderer Verträge habe man nachvollzogen, dass die USA in den letzten 14 Jahren mindestens 1,5
+Millionen Kleinwaffen in den Irak und nach Afghanistan schickten. Dabei wurde auch deutlich, dass die USRegierung nicht weiss, wo viele dieser Waffen sich jetzt befinden.
+Von diesen Verträgen profitierten im Wesentlichen zehn verschiedene amerikanische Firmen. Der grösste vom
+Ministerium aufgeführte Auftrag betraf die Beschaffung von Munition, den Betrieb sowie die Modernisierung
+der Lake City Army Ammunition Fabrik. Dieser Einzelauftrag umfasste allein 8,5 Milliarden Dollar.
+Die Aufteilung im Detail:
+– 4,2 Milliarden für Kleinwaffen (Gewehre bis zu Kaliber 30 mm)
+– 11,2 Milliarden für Zubehör (Zielfernrohre, Gewehrgriffe, Halterungen, Stative)
+– 24,6 Milliarden für Munition
+Insgesamt begünstigten die Verträge 79 Firmen. Aber zehn von ihnen deckten 65 Prozent der Vereinbarungen
+ab. Diese Firmen sind:
+– 1 Alliant Techsystems – Vertragsumfang: $21.977.118.613
+– 2 DRS Technologies Inc. – Vertragsumfang: $ 3.251.224.478
+
+
+-----
+
+– 3 BAE Systems Inc. – Vertragsumfang: $2.761.670.581
+– 4 Knight’s Armament Company – Vertragsumfang: $ 1.782.974.456
+– 5 General Dynamics – Vertragsumfang: $ 1.626.048.701
+– 6 Colt’s Manufacturing Company – Vertragsumfang: $1.372.567.795
+– 7 FN Herstal – Vertragsumfang: $995.194.319
+– 8 Insight Technologies Inc. – Vertragsumfang: $790.071.945
+– 9 Olin Corp – Vertragsumfang: $ 612.415.840
+– 10 American Ordnance LLC. – Vertragsumfang: $483.022.354
+_Quelle: https://de.sott.net/article/25760-USA-lieferte-Waffen-im-Wert-von-40-Milliarden-Dollar-in-den-Nahen-Osten-I_
+
+### Osteuropa gegen Merkel: Grenze kann nicht mit ‹Blumen und Kuscheltieren› verteidigt werden
+_Epoch Times 27. August 2016 Aktualisiert: 27. August 2016 11:35_
+Osteuropa hat sich erneut gegen die Flüchtlingspolitik von Bundeskanzlerin Merkel ausgesprochen. Ungarn
+will seinen Grenzschutz ausbauen, Polen spricht von ‹Zwangsumsiedlungen› und lehnt diese entschieden ab
+und Tschechien spricht schlichtweg von ‹absurdem Humanismus›.
+
+_(Links nach Rechts) Der slowakische Premier Robert Fico, Bundeskanzlerin Angela Merkel, die polnische_
+_Premierministerin Beata Szydlo, Ungarns Premier Viktor Orban und der tschechische Premier Sobotka_
+_auf einem Ministertreffen der Visegrad-Gruppe am 26. August in Warschau Polen._
+_Foto: JANEK SKARZYNSKI/AFP/Getty Images_
+
+Die Visegrad-Staaten (Polen, Ungarn, Tschechien, Slowakei) lehnen geschlossen die Flüchtlingspolitik aus
+Brüssel und die von Bundeskanzlerin Angela Merkel ab. Dies machten die Staatschefs im Osten Europas beim
+Besuch der Kanzlerin in Tschechien und Polen erneut deutlich.
+
+**Ungarn plant mehr Grenzschutz**
+Der ungarische Ministerpräsident Viktor Orban kündigte am Freitag vor Beratungen der Visegrad-Gruppe in
+Warschau die Verstärkung der ungarischen Grenzanlagen zu Serbien an.
+Auf dem Höhepunkt der Flüchtlingsbewegung über die Balkanroute nach Europa errichtet Orban im Herbst
+2015 einen Stacheldrahtzaun und trug damit massgeblich zum Versiegen der Route bei. Jetzt will Ungarns
+Premier den Zaun entlang der 175 Kilometer langen Grenze zu Serbien in ein ‹robusteres Verteidigungssystem›
+umwandeln.
+«Die Grenze kann nicht mit Blumen und Kuscheltieren verteidigt werden, sondern mit Polizisten, Soldaten und
+Waffen», sagt Orban dem ungarischen Rundfunk, berichtet ‹DWN›. Mit der neuen Grenzanlage solle es möglich
+sein, ‹Hunderttausende› von Flüchtlingen abzuwehren, sollte der Flüchtlingsdeal zwischen der Türkei und der
+Europäischen Union platzen. (Siehe: Orbán will Grenzzaun zu ‹unüberwindbarem Wall› ausbauen – Angst vor
+Scheitern des EU-Türkei-Deals) Die ungarische Regierung lässt die Bevölkerung im Oktober über die von der
+EU beschlossene Umverteilung von Flüchtlingen innerhalb Europas abstimmen.
+
+**Osteuropa einheitlich gegen Massenzuwanderung**
+Auch in Polen spricht man sich vehement gegen eine ‹Zwangsumsiedlung› aus, so wie Polens Aussenminister
+Witold Waszczykowski die geplante Umverteilung von Flüchtlingen innerhalb Europas durch Brüssel nennt.
+Damit habe Polen in der Geschichte schlechte Erfahrungen gemacht. Ausserdem wirft der polnische Aussenminister Deutschland vor, es agiere in der Aussenpolitik vielfach zu egoistisch. «Oft sehen wir die Absicht, aus
+
+-----
+
+schliesslich das eigene Ziel zu verfolgen», sagte Waszczykowski. Er fügte hinzu: «Nicht alle in Europa können
+sich so eine Politik leisten, wie Deutschland sie vorschlägt. Viele Länder, darunter auch Polen, haben sehr begrenzte Kapazitäten und Möglichkeiten.» (Siehe: Polen gegen ‹Zwangsumsiedlungen›: Aussenminister fordert
+Kompromissbereitschaft von Deutschland)
+Der tschechische Präsident Milos Zeman nennt die Asylpolitik Deutschlands schlichtweg ‹unsinnig›. Er spricht
+von ‹absurdem Humanismus›. Und auch die slowakische Regierung ist gegen die unkontrollierte Massenzuwanderung von Menschen aus den Konfliktgebieten. Die Slowakei spricht dabei vor allem die Sicherheitsrisiken
+an.
+«Niemand kann mehr bestreiten, dass es einen klaren Zusammenhang zwischen der unkontrollierten Immigration und dem Terrorismus gibt», sagte der slowakische Regierungschef Robert Fico. Deshalb sei es der
+Slowakei lieber, ihre Grenzen zu schliessen, statt zu öffnen. (so)
+_Quelle: http://www.epochtimes.de/politik/europa/osteuropa-gegen-merkel-grenze-kann-nicht-mit-blumen-und-kuscheltieren-_
+_verteidigt-werden-a1926912.html_
+
+### Die CIA setzte bereits zehnmal Geheimarmeen ein, um ausländische Regierungen zu stürzen
+_Veröffentlicht am August 30, 2016 in Geopolitik von Contrapaganda_
+_Langley, Virginia – Indem immer mehr Beweise ans Licht kommen, dass die US-Regierung insgeheim dem_
+Islamischen Staat (IS; Anm. Islamistischer Staat) behilflich war, ist es an der Zeit, auf einige Vorfälle aufmerksam
+zu machen, als die Central Intelligence Agency (CIA) bereits geheime Armeen schuf. Laut einer derzeit gängigen
+Theorie wird vermutet, dass die USA im Geheimen den Islamischen Staat (IS; Anm. Islamistischer Staat)
+unterstützten, damit die Islamisten die Regierung des syrischen Präsidenten Assad destabilisieren. Wenn das zu
+weit hergeholt erscheint, sollte man bedenken, dass die CIA bereits einmal einen Krieg wegen Bananen vom
+Zaun brach … was im wahrsten Sinne des Wortes ‹bananas› [engl. ‹verrückt›] ist.
+
+**Kuba:** Wahrscheinlich die bekannteste Geheimarmee. Castro verstaatlichte die Vermögen von westlichen Unter nehmen, nachdem seine Regierung an die Macht gekommen war, und so beschlossen die USA, die Regierung
+Kubas zu stürzen und eine Marionettenregierung einzusetzen. Wie bei den meisten durch den US-Geheimdienst unterstützten Armeen, ist ihr dies nicht gelungen … und zwar auf jämmerliche Weise: Die Invasion in
+der Schweinebucht führte dazu, dass sich 1400 von den USA trainierte Kubaner innerhalb von nur 24 Stunden
+Castros Truppen ergaben.
+**El Salvador: Die US-unterstützte salvadorianische Regierung wurde mit oppositionellen kommunistischen**
+Rebellen konfrontiert. Der US-Geheimdienst sah eine naheliegende und einfache Lösung: den Einsatz von
+Todesschwadronen. Der US-Geheimdienst trainierte und beriet regierungstreue Truppen, damit diese Dörfer
+massakrierten, und brachte die Vertreibung von über einer Million Menschen auf den Weg. Sofort nach dem
+Waffenstillstand gab es eine Generalamnestie für Leute, die an Kriegsverbrechen beteiligt waren. Es wurde zwar
+entschieden, dass dieser Straferlass illegal sei, aber er ist nichtsdestotrotz immer noch in Kraft geblieben. Bei
+denjenigen, die sich für Gerechtigkeit einsetzen, wird oft eingebrochen und dabei werden Beweise für eine CIABeteiligung gestohlen.
+**Afghanistan: Die USA bewaffneten und trainierten während der Operation Cyclone Mudschaheddin-Kämpfer.**
+Später sollten viele dieser Kämpfer den Kern der fundamentalistischen Terrorgruppen bilden, die wir heute
+bekämpfen (oder möglicherweise unterstützen). Ja, Osama bin Laden war einer der Kämpfer, die von der CIA
+in Afghanistan ausgebildet wurden. Die ganze Operation wurde ausgeführt, um die sowjetische Invasion zu
+stoppen.
+**Guatemala: Diese kleine CIA-Eskapade ist der Ursprung des Begriffs ‹Bananenrepublik›. Der demokratisch ge-**
+wählte Präsident von Guatemala entschloss sich, die United Fruit Company für ihr jahrzehntelanges Verkehren
+mit Diktatoren des Landes zu bestrafen. Er begann eine Gesetzgebung vorzuschlagen, um das Monopol des
+multinationalen US-Konzerns auf nahezu alles in dem Land zu beenden. Was also hätte die CIA anderes dagegen
+tun können, als die legale Regierung zu stürzen und einen Krieg auszulösen … um Bananen?
+**Kongo: In den 1960ern war Belgien dabei, seine Kolonialherrschaft über den Kongo zu beenden. Anstatt Selbst-**
+bestimmung zu erlauben, führte die CIA Attentate durch, bewaffnete Rebellentruppen, brachte europäische
+Söldner ins Land und unterstützte sie sogar mit geheimen Luftstreitkräften.
+
+
+-----
+
+**Nicaragua (das zweite Mal): In den 1980ern übernahmen die linksgerichteten Sandinisten die Macht, während**
+die CIA die oppositionellen Contra-Milizen unterstützte. Die Behörde beschaffte ihnen Waffen, unterhielt für
+sie den Handel mit Kokain und trainierte die Organisation, die für ihre Kindersoldaten bekannt wurde, um
+Massaker bei Bildungszentren und Kriegsverbrechen ungefähr jeder erdenklichen Art zu begehen.
+**Angola: Die CIA heuerte französische und südafrikanische Söldner an, um Gruppierungen des rechten Flügels**
+bei ihrem Kampf gegen die Volksbewegung zur Befreiung Angolas (MPLA) behilflich zu sein. Die Gruppierung
+konkurrierte nach der portugiesischen Dekolonialiserung mit verschiedenen anderen paramilitärischen
+Organisationen im Kampf um die Machtübernahme innerhalb des Landes. Vorhersehbarerweise verlor die
+Söldnerarmee der CIA.
+**Ukraine (das erste Mal): Während des Zweiten Weltkriegs gründeten die Nazis eine Partisanengruppe in der**
+Ukraine, um vorrückende sowjetische Truppen zu bedrängen und zu verlangsamen. Gegen Ende des Zweiten
+Weltkriegs begann der US-Geheimdienst damit, die Partisanengruppe zu finanzieren und ihr Hilfestellung zu
+leisten. 1952 wurden die Partisanen von den Sowjets vernichtend geschlagen.
+**Venezuala: 2002 versuchte eine Gruppe innerhalb Venezuelas, die Regierung zu vertreiben. Die USA verleug-**
+neten rundweg ihre Beteiligung. Natürlich gibt es mehr als genug Beweise dafür, um die Bush-Regierung mit
+der Verschwörung in Verbindung zu bringen. Es gibt sogar Indizienbeweise neueren Datums in Form eines
+zweiten Versuchs.
+**Ukraine (das zweite Mal): Die aktuellste Revolution in der Ukraine könnte zwar aus einer Eigendynamik heraus**
+begonnen haben, aber sie wurde vom US-Geheimdienst vereinnahmt. Die Revolution führte lediglich einmal
+mehr dazu, eine US-Marionettenregierung zu installieren. Die USA entschieden sich dafür, buchstäblich Nazis
+zu installieren. Diese Tatsachen werden von den US-Medien weitgehend ignoriert.
+Würde ein US-Geheimdienst also heimlich eine brutale mörderische paramilitärische Gruppe unterstützen, um
+ein Land zu destabilisieren, das sich auf der Abschussliste der USA befindet? Die Antwort lautet: Der USGeheimdienstapparat hat genau das bereits seit ungefähr 60 Jahren getan.
+_Übersetzt aus dem Englischen von AnonHQ.com_
+_Quelle: http://derwaechter.net/die-cia-setzte-bereits-zehnmal-geheimarmeen-ein-um-auslaendische-regierungen-zu-stuerzen_
+
+### Gegen Freihandelsabkommen: Mehr als 125000 Bürger klagen in Karlsruhe gegen Ceta
+_Epoch Times 31. August 2016 Aktualisiert: 31. August 2016 9:08_
+Die Freihandelsabkommen TTIP und CETA mit den USA und Kanada stehen heftig in der Kritik. Gegner
+befürchten, dass mit den Abkommen Arbeitnehmerrechte und Arbeitsplätze gefährdet sind, die Standards bezüglich der Qualität von Lebensmitteln und des Verbraucherschutzes abgeschwächt werden und vieles mehr.
+
+_Demonstranten gegen TTIP und CETA beim Obama-Besuch in Hannover, 23. April._
+_Foto: Sascha Schuermann/Getty Images_
+
+Ein Bündnis gegen das Freihandelsabkommen Ceta reicht heute eine Bürgerklage beim Bundesverfassungs gericht ein.
+Mehr als 125000 Menschen haben sich angeschlossen. Die gut 70 Kartons wurden nach Karlsruhe transportiert
+und sollen zusammen mit der Klageschrift dem Gericht übergeben werden. Hinter der Aktion stehen Foodwatch, Campact und der Verein ‹Mehr Demokratie›.
+Es ist die fünfte Verfassungsbeschwerde, die sich gegen das kurz vor der Unterzeichnung stehende Abkommen
+der EU mit Kanada richtet.
+
+
+-----
+
+**Kritik an CETA und TTIP**
+Kritiker sagen, CETA und TTIP stärken die Macht multinationaler Unternehmen auf Kosten der Demokratie
+und des Gemeinwohls. Nachfolgend sind einige Punkte, die die ‹Stop-TTIP› Initiative als Argumente gegen die
+Freihandelsabkommen auflistet:
+**Investoren werden Staaten verklagen können. Das sogenannte Investor-State-Dispute-Settlement (ISDS, Schieds -**
+gerichtsverfahren zur Beilegung von Streitigkeiten zwischen Investoren und Staaten) – selbst in seiner neuen
+Verpackung als ‹Investment Court System› (ICS, Investitionsgerichtshof) – gesteht ausländischen Investoren
+das Recht zu, europäische Staaten zu verklagen, wenn sie der Ansicht sind, dass Gesetze oder sonstige Mass nahmen der EU oder eines ihrer Mitgliedsstaaten ihre Investitionen geschädigt und ihren erwarteten Gewinn
+geschmälert haben. Dies wird auch Gesetze und Massnahmen beeinflussen, die im Sinne des Gemeinwohls
+erlassen wurden, z.B. zum Umweltschutz und Verbraucherschutz.
+**Unternehmen werden eingeladen, an neuen Gesetzen mitzuschreiben. Die sogenannte ‹Regulatorische Ko -**
+operation› wird es den Vertretern grosser Firmen und Bürokraten von beiden Seiten des Atlantiks erlauben, auf
+Gesetzentwürfe in Expertengruppen Einfluss zu nehmen, schon bevor diese in gewählten Parlamenten
+diskutiert wurden. Dies untergräbt die Demokratie!
+**Grossunternehmen haben übermässigen Einfluss auf die Geheimverhandlungen zu CETA und TTIP. Bei 92%**
+aller Treffen, die die EU-Kommission mit Interessenvertretern im Vorfeld der TTIP-Verhandlungen durch führte, wurden lediglich Firmenvertreter gehört. Nur in sehr wenigen Fällen wurden Verbraucherschützer und
+Gewerkschaftsvertreter eingeladen, um ihre Standpunkte vorzutragen. Der Einfluss der Unternehmen setzt sich
+in den Verhandlungen fort: Selbst einige Formulierungen in durchgesickerten Entwurfstexten stammen un mittelbar von Firmenlobbyisten.
+**Die Verhandlungen werden im Geheimen geführt. Unsere Volksvertreter wissen wenig über deren Fortgang,**
+und der Öffentlichkeit ist es nicht gestattet, irgendwelche Texte der offiziellen Abkommen vor Ende der Verhandlungen einzusehen. Parlamentariern ist es lediglich erlaubt, diese langen juristischen Texte (das CETAAbkommen beispielsweise umfasst etwa 1500 Seiten) in speziellen Leseräumen ohne Expertenunterstützung zu
+lesen, und es ist ihnen untersagt, die Öffentlichkeit über das zu informieren, was sie gelesen haben. Sind die
+Verhandlungen dann abgeschlossen, bleibt ihnen lediglich, die Vereinbarungen zu akzeptieren oder abzulehnen,
+ohne die Möglichkeit, Änderungen einzufordern.
+**Die Standards bezüglich der Qualität von Lebensmitteln und des Verbraucherschutzes könnten abgeschwächt**
+**werden. Durch die Angleichung der Vorschriften, auf die TTIP hinzielt, sind die europäischen Standards ge-**
+fährdet, denn US-Standards sind oft wesentlich niedriger. Zudem möchte die US-Seite, dass die EU ihren Ansatz
+bei der Risikobewertung anerkennt, welcher es erlauben würde, ein jegliches Produkt in den Verkehr zu bringen,
+bis der Staat den Beweis erbringen kann, dass es schädlich ist. Bislang müssen in Europa Firmen die Unschädlichkeit ihrer Produkte belegen, bevor sie diese auf den Markt bringen dürfen.
+**Arbeitnehmerrechte und Arbeitsplätze sind in Gefahr. Die USA weigern sich nach wie vor, elementare Arbeit-**
+nehmerrechte anzuerkennen (sie haben nur zwei der acht Kernarbeitsnormen der ILO ratifiziert), und die durch
+TTIP hervorgerufene ‹Abwärtsspirale› könnte auch zu einer Gefahr für die Rechte von Beschäftigten in der EU
+werden. Zudem könnte eine Verschärfung der Konkurrenz von ausserhalb zu massiven Arbeitsplatz verlusten führen.
+Einer Studie der Tufts University (USA) zufolge könnten 600000 Arbeitsplätze durch TTIP verloren gehen.
+**Europäische Länder kämen unter Druck, Hochrisiko-Technologien wie Fracking oder Gentechnik zuzulassen.**
+Als Bestandteil von TTIP und/oder CETA könnten Firmen das Recht bekommen, Regierungen vor Schieds gerichten zu verklagen, falls diese Hochrisikotechnologien einschränken oder verbieten. Im Jahr 2013 reichte
+die Öl- und Gasfirma Lone Pine eine 250-Millionen-Dollar-Klage gegen Kanada ein, nachdem der Staat Quebec
+ein Memorandum zum Fracking erlassen hatte. TTIP und CETA werden den Weg für eine stetig zunehmende
+Zahl solcher Klagen ebnen.
+**CETA und TTIP werden bestehende Ungleichheiten weiter vergrössern. Die bereits jetzt Wohlhabenden**
+werden am meisten von CETA und TTIP profitieren. Transnationale Grosskonzerne werden noch mehr Vorteile
+gegenüber kleinen und mittleren Unternehmen und den Bürgern gewinnen. Die Wirtschaftskrise in der EU
+könnte sich noch verschärfen, da die wettbewerbsfähigsten Staaten vom potentiellen BIP-Wachstum mit Abstand am meisten profitieren werden. Länder in der Peripherie der EU, die bereits jetzt sehr abhängig von
+ausländischem Kapital sind, werden weiter gute Jobs verlieren und weniger von nachhaltigen Investments
+profitieren. Global gesehen wird die Ungleichheit zwischen entwickelten Ländern und den Ländern des globalen
+Südens weiter zunehmen, was durch verschiedene Studien belegt wurde, die dramatische BIP-Verluste und
+Jobverluste für Drittstaaten prognostiziert haben.
+
+
+-----
+
+**Liberalisierung und Privatisierung werden zu Einbahnstrassen. CETA und TTIP werden es schwieriger**
+machen – und vielleicht sogar unmöglich – Versorgungsbetriebe, Krankenhäuser oder die Müllabfuhr wieder
+in öffentlichen Besitz zurückzuführen, nachdem sie einmal privatisiert wurden.
+_(dpa)_
+_Quelle:_ _http://www.epochtimes.de/politik/deutschland/mehr-als-125-000-buerger-klagen-in-karlsruhe-gegen-ceta-2-_
+_a1354232.html_
+
+### Hofers Motto: «Hinaus aus der Hofburg – hin zu den Leuten!»
+_31. August 2016 - 9:40_
+
+_Norbert Hofer will näher zum Bürger – sowohl symbolisch mit der Neujahrsansprache als auch durch_
+_Aufwertung der direkten Demokratie. Foto: FPÖ_
+
+«Hinaus aus der Hofburg – hin zu den Leuten» – So lautet das Motto des freiheitlichen Bundespräsidentschaftskandidaten Norbert Hofer. Er will die traditionelle Neujahrsansprache daher nicht wie gewöhnlich in der Hofburg aufnehmen, sondern lieber in einem Seniorenheim oder in einem Mittelbetrieb, wie er bei der Präsentation
+seines Wahlprogramms am Montag ankündigte.
+
+**Bürger sollen selbst entscheiden – etwa über TTIP**
+Bürgernähe ist auch in Hofers politischen Forderungen ein zentrales Element. Die Mitentscheidung der Bürger
+zieht er einem autoritären Führungsstil der Regierenden klar vor. Dabei geht es ihm insbesondere um eine Auswertung der sonst stets von Parlament ‹schubladisierten› Volksbegehren.
+Das umstrittene TTIP-Abkommen etwa ist ein Thema, das Hofer unbedingt einer Volksabstimmung unter ziehen möchte. Der freiheitliche Kandidat lehnt das Abkommen klar ab. Die Parlamente würden geschwächt,
+zudem seien in Übersee völlig andere Standards vorgegeben.
+
+**Reformen im Gesundheits- und Pflegebereich dringend nötig**
+Die Ankündigung, in einem Senioren- oder Pflegeheim zu den Bürgern zu sprechen, umreisst einen weiteren
+wichtigen Punkt in Hofers politischer Agenda. Die Probleme der jetzigen Generation würden, sofern man nicht
+alsbald konstruktive Lösungen finde, auf die nächste Generation übertragen und diese werde es noch schwieriger
+haben.
+Die Gesundheitsversorgung in Österreich sei extrem verbesserungsbedürftig, es gebe nicht eine Zweiklassenmedizin, sondern eine Zehnklassenmedizin. Derzeit leben 250000 pflegebedürftige Menschen in Österreich,
+von denen 80 Prozent daheim gepflegt werden.
+_Quelle: https://www.unzensuriert.at/content/0021654-Hofers-Motto-Hinaus-aus-der-Hofburg-hin-zu-den-Leuten_
+
+### Fluch der bösen Tat: Die EU ist nur noch ein Schatten ihrer selbst
+_Veröffentlichungsdatum: 23 08 2016, 11:10_
+**Die Regierungschefs Italiens, Frankreichs und Deutschlands haben auf einem italienischen Flugzeugträger**
+**über die Zukunft Europas gesprochen. Die Erkenntnisse sind Ausdruck der Hilflosigkeit: Mehr Militär, mehr**
+**Geheimdienste, mehr Pathos. Die EU bekommt nun den Fluch der bösen Tat zu spüren: Ihre Haltung zu Syrien**
+**macht die europäischen Politiker zu Getriebenen, die ihre Glaubwürdigkeit verloren haben.**
+
+
+-----
+
+Schon die Konstellation des ‹Dreier-Gipfels› zeigt, wie zerrissen und schwach die EU ist: Im Kreis der 27 geht
+gar nichts mehr, weil die Staaten in den wesentlichen Themen Flüchtlinge, Banken und Schulden diametral
+andere Pläne haben. Auch die drei ‹Grossen› haben nicht dasselbe Ziel: Italiens Matteo Renzi forderte bereits
+im Vorfeld, sich vom Primat des Geldes zu verabschieden. Er wolle «ein anderes Europa aufbauen, das mehr auf
+Werte achtet und weniger auf das grosse Geld», schrieb Renzi auf seiner Facebook-Seite. Nach dem BrexitVotum solle ein Europa geschaffen werden, dessen Ideal «auf Einheit und Frieden, Freiheit und Träumen, Dialog
+und Identität» basiere.
+Das ist alles heisse Luft. Mit ‹Träumen› sind die Probleme Europas und auch der EU nicht zu lösen. Die Tatsache,
+dass sich drei beliebige Staaten zusammenfinden, ohne auch nur einen einzigen Vertreter aus dem EU-Rat, der
+EU-Kommission oder dem EU-Parlament hinzuzuziehen, zeigt, wie verfahren die Lage ist.
+Einer der Gründe, warum die EU so schlecht dasteht, ist die Tatsache, dass sich die deutsche Kanzlerin hartnäckig weigert, die Realitäten und die Kausalitäten anzuerkennen. Die grösste Krise der EU ist ohne Zweifel die
+Flüchtlingskrise. Sie wird Europa zerreissen – doch nicht, weil die Flüchtlinge gefährlich oder integrations unwillig sind. Der Fluch der bösen Tat ist Merkels fortgesetzte Legendenbildung, dass es sich in Syrien um einen
+‹Bürgerkrieg› handle, der von aussen weder vorherzusehen noch zu beeinflussen sei.
+Der Krieg in Syrien ist ein multinationaler Raubzug um Ressourcen, bei dem sich die westlichen Staaten mit
+ihren Verbündeten vom Golf an der Zerstörung ganzer Staaten beteiligen. Die meisten Flüchtlinge und Migranten
+kommen aus Syrien, dem Irak und aus Afghanistan. In allen drei Staaten hat der Westen militärisch interveniert,
+bestehende staatliche und ethnische Strukturen aufgelöst und Millionen Menschen der Vertreibung ausgesetzt.
+Mit der von ihr ausdrücklich als alternativlos dargestellten unkontrollierten Einwanderung hat Angela Merkel
+rechtsextreme und xenophobe Strömungen in Europa in einem Ausmass gestärkt, das auch in Europa bürgerkriegsähnliche Zustände auslösen kann.
+Der sogenannte ‹islamistische Terror› ist eine direkte Folge dieser Kriege. Der Einsatz von Söldnern aus dutzenden Nationen in Syrien ist der perfekte Nährboden für den Terror. Tausende Kämpfer aus aller Welt sind in
+Syrien im Einsatz, die meisten von ihnen sind bei privaten Firmen im Einsatz. Sie tragen dann zwar staatliche
+Uniformen, wie etwa die US-Spezialkräfte, die sich mit dem Symbol der Kurden-Miliz YPG schmücken. Doch
+je nach Auftragslage wechseln die Milizen die Fronten und die Söldner ihre Feinde. Die islamistische Ver brämung des Kampfauftrags führt dann zu besonderen Grausamkeiten.
+Eine massgebliche Rolle im Syrien-Krieg spielen die Geheimdienste. Die CIA, die Briten, die Türken, die Saudis
+und viele andere sind verdeckt im Einsatz. Manchmal blitzt ihre Gesinnung auf, etwa, wenn der frühere CIADirektor Morell im amerikanischen TV sagt, man müsse Russen und Iraner ermorden und den Präsidenten
+Assad mit Kommandoaktionen in Angst und Schrecken versetzen.
+Diese Realität wird von Merkel ausgeblendet. Ihre Darstellung der Dinge lautet, so die dpa: «Wir spüren an gesichts des islamistischen Terrors, angesichts des Bürgerkrieges in Syrien, dass wir mehr für unsere innere und
+äussere Sicherheit tun müssen.» Das ist erbärmlich – vor allem, weil gegen die syrische Bevölkerung noch immer
+die massiven EU-Sanktionen in Kraft sind, deren Aufhebung ungeachtet der geopolitischen Interessen eine
+humanitäre Pflicht wäre.
+Nun sollen ausgerechnet die Geheimdienste die Lösung sein, obwohl Teile von ihnen doch eindeutig Teil des
+Problems sind. Es klingt wie eine Kapitulation der Politik, wenn Merkel, Renzi und Hollande auf der ‹Garibaldi›
+sagen, die europäische Kooperation im Bereich der Verteidigung sollte ausgebaut werden – unter anderem durch
+mehr Austausch zwischen den Geheimdiensten.
+Hollande sagte, im Hinblick auf die Übermacht der US-Dienste in Europa und im Nahen Osten: «Europa sollte
+stärker als heute seine eigene Verteidigung in die Hand nehmen.»
+Die EU-Staaten sollten auch zusätzliche Mittel in die gemeinsamen Verteidigungsanstrengungen stecken.
+Frankreich werde seinen Beitrag dazu leisten. Das sind bedeutungslose Sätze. Hollande beginnt mit dem Wahlkampf, und seine antiamerikanischen Sprüche sind der Versuch, Marine Le Pen das Wasser abzugraben.
+
+
+-----
+
+Dass Hollande über Syrien schweigt, hat einen Grund: Die Franzosen kämpfen offiziell in Syrien und sind erst
+vor wenigen Wochen dafür kritisiert worden, dass bei Bombardements der französischen und der US-Luftwaffe
+zahlreiche Zivilisten getötet wurden.
+Auch Matteo Renzi schweigt über den Krieg – weil er vor allem darauf aus ist, einen Deal mit der EU für die
+sich in Italien befindlichen Flüchtlinge zu finden: Renzi sagte, es sei für Europa eine Verpflichtung, Menschen
+zu retten, die ihr Leben im Mittelmeer riskierten. Seit Jahresbeginn erreichten laut Renzi rund 102000 Flüchtlinge und illegale Migranten Italien. Die meisten von ihnen kamen mit Schlepperbooten aus Libyen. Merkel
+sagte, die Küstenwache allein werde es nicht schaffen, die Grenzen zu kontrollieren. Es müsse mehr getan
+werden. Die Kooperation mit der Türkei in Bezug auf die Flüchtlinge sei richtig. Andernfalls sei es nicht möglich, den Kampf gegen die Schlepper zu gewinnen.
+Angesichts einer solch fundamentalen und kollektiven Realitätsverweigerung ist es nur logisch, dass den drei
+Regierungschefs auch zu den anderen Themen vor allem Allgemeinplätze einfielen.
+Merkel sagte: «Europa ist noch nicht in allen Bereichen der wettbewerbsfähigste Platz auf der Welt.» Es gebe
+ausserhalb Europas eine grosse Dynamik im digitalen Bereich. Europa müsse «die Ambition haben, hier vorne
+mit dabei zu sein.»
+Dies sei neben der inneren und äusseren Sicherheit ein weiterer Baustein, ebenso wie die Zukunft der Jugend,
+was vor dem Treffen der Rest-EU-27 in Bratislava am 16. September diskutiert werden müsse.
+Renzi forderte starke Massnahmen für wirtschaftliches Wachstum und mehr Investitionen für Bildung und
+Jugend. Er kündigte an, das Gefängnis auf der nahen Insel Santo Stefano werde in einen Universitätscampus
+umgewandelt, um ‹neue europäische Eliten› auszubilden. Hollande sagte, es gebe den Willen, das ErasmusFörderprogramm zu erweitern. Er kündigte auch mehr Investitionen in die Kultur an.
+Renzi sagte: «Viele haben gedacht, nach dem Brexit ist Europa am Ende. Aber es ist nicht so. Wir glauben, dass
+Europa die Lösung für die schwerwiegenden Probleme unserer Zeit ist.»
+Das Treffen schloss das Gedenken an den kommunistischen Vordenker Altiero Spinelli ein. Dieser hatte sich
+1941 für die Abschaffung der Nationalstaaten zugunsten eines vereinigten europäischen Bundestaats ausge sprochen. Vieles von Spinellis Visionen ist zeitgebunden und kann heute nur noch historisch verstanden
+werden.
+In einem Punkt hat Spinelli das Dilemma des Europa von der ‹Garibaldi› antizipiert, wenn er über die Lage
+1941in seinem Manifest schreibt: «In einem Moment, da höchste Entschlusskraft und höchster Wagemut Not
+tun, fühlen sich die Demokraten verwirrt … Sie stellen sich an wie mahnende Prediger, während Führer
+gebraucht würden … Alles in allem vertreten sie mit ihren zahlreichen widersprüchlichen Tendenzen nicht den
+Willen zur Erneuerung, sondern das konfuse Machtstreben aller, das, indem es sich selbst lähmt, der Reaktion
+ein fruchtbares Startfeld bereitet. Die demokratische politische Methodologie wird in Zeiten revolutionärer
+Krisen zu einem Hemmschuh.»
+_Quelle: DWN bzw. http://de.news-front.info/2016/08/23/fluch-der-bosen-tat-die-eu-ist-nur-noch-ein-schatten-ihrer-selbst/_
+
+### Sonnensturm löste 1976 fast einen Atomkrieg aus: USA interpretierte technische Ausfälle als Angriff der Sowjets
+_Scinexx; Do, 11 Aug 2016 14:02 UTC_
+Am 23. Mai 1967 wäre fast der Dritte Weltkrieg ausgebrochen, wie jetzt ein Bericht enthüllt. Denn als damals
+plötzlich alle drei Radaranlagen des US-Atomraketen-Frühwarnsystems ausfielen, hielten die US-Militärs dies
+für einen gezielten Störangriff der Sowjetunion. Mit Atomwaffen beladene Bomber wurden in Alarmbereitschaft
+versetzt. Erst in letzter Minute kam heraus: Ein starker Sonnensturm, nicht die Sowjets, war an den Störungen
+schuld.
+Wie nah die Welt damals an einer Katastrophe vorbeischrammte, blieb Jahrzehnte verborgen. Erst jetzt haben
+ehemalige Angehörige des North American Aerospace Defense Command (NORAD) über die Vorgänge am 23.
+Mai 1967 berichtet. «Das war eine ernste Situation», beschreibt Delores Knipp von der University of Colorado
+die damalige Lage. Die Forscherin hat Daten über den Sonnensturm und die Reaktionen auf der Erde nun
+erstmals ausgewertet und zusammengefasst.
+Das Ganze begann bereits am 18. Mai 1967 Millionen Kilometer von der Erde entfernt: Von der Menschheit
+weitgehend unbemerkt, entwickelte sich auf der Sonne eine ungewöhnlich grosse Gruppe von Sonnenflecken –
+
+
+-----
+
+die Vorboten eines enormen solaren Ausbruchs. Bei einer solchen Eruption schleudert die Sonne grosse Mengen
+energiereicher Teilchen und Plasma ins All.
+
+**Folgen für Kommunikation und Elektronik**
+Trifft dieser Sonnensturm auf die Erde, kann das Erdmagnetfeld ihn nicht mehr vollständig abfangen. Die energiereichen und geladenen Teilchen dringen daher weit in die Erdatmosphäre ein. Als Folge entstehen nicht
+nur Polarlichter weit südlich ihrer üblichen Vorkommens, die starken elektromagnetischen Wechselwirkungen
+**können auch Strom- und Kommunikationsnetze lahmlegen und elektronische Geräte schädigen.**
+«Solare Ausbrüche können eine ganze Kette von Ereignissen auslösen, deren Effekte von Minuten bis zu
+mehreren Tagen anhalten», erklärt Knipp. Vor allem Radio- und Radarwellen werden dabei gleich von mehreren
+Komponenten des Sonnensturms beeinträchtigt: Schon wenige Minuten nach dem Ausbruch geschieht dies
+**durch energiereiche Röntgen- und UV-Strahlenimpulse, einige Stunden später verursacht die eintreffende**
+**Plasma- und Teilchenwolke weitere Störungen.**
+
+**Heller Blitz auf der Sonne**
+Heute ist dies Allgemeinwissen und das Weltraumwetter wird kontinuierlich überwacht. In den 1960er Jahren
+jedoch hatte man gerade erst begonnen, die Sonne als mögliche Quelle solcher Störungen zu betrachten und
+zu beobachten. Zwar gab es am NORAD bereits eine Abteilung, die Sonnensturm-Vorhersagen machen sollte,
+die meisten Militärs aber wussten über die Folgen der Sonnenstürme kaum Bescheid.
+Am frühen Morgen des 23. Mai 1967 beobachteten die Sonnenforscher der NORAD und anderer Einrichtungen
+einen gewaltigen solaren Ausbruch: Der helle Blitz des Flares war sogar mit blossem Auge zu sehen, wie Augenzeugen berichten. Ein Radio-Observatorium in Neuengland meldete, dass die Sonne noch nie dagewesene
+Intensitäten an Radiowellen aussendete. Die NORAD-Forscher prognostizierten, dass schon wenige Stunden
+später ein starker Plasmasturm die Erde treffen würde. Wie man heute weiss, gehörte er zu den stärksten und
+umfassendsten jemals registrierten.
+
+**Ein Störangriff der Sowjets?**
+Doch die Besatzung der drei arktischen Frühwarnstationen des ‹Ballistic Missile Early Warning System› (BMEWS)
+hatte davon keine Ahnung – oder die Warnungen nicht beachtet. Deshalb traf es sie völlig unvorbereitet, als
+plötzlich an allen drei Stationen das Radar und die Radiokommunikation ausfielen. «In der militärisch angespannten Ära von 1967 lud eine solche multifrequente Radiostörung geradezu zu Fehlinterpretationen ein»,
+sagt Knipp.
+Genau das passierte auch: Die US-Militärs hielten die Ausfälle für eine gezielte Störattacke der Sowjetunion –
+möglicherweise um einen bevorstehenden Atomangriff zu verschleiern. Die NORAD-Leitung alarmierte die
+Besatzungen von bereits in der Luft kreisenden, mit Atomraketen ausgerüsteten Bombern und versetzte weitere
+Bombercrews in Bereitschaft. Man rechnete mit dem Ernstfall – einem Atomangriff auf die USA.
+
+**Bomber blieben am Boden**
+In letzter Minute jedoch wurde ein vorschnelles Handeln abgewendet. «Trotz der begrenzten Daten gelang es
+den Sonnenforschern, hochrangige Entscheider des NORAD davon zu überzeugen, dass die Sonne die
+Schuldige an der Störung der Radaranlagen war», berichtet Knipp. Dokumente legen nahe, dass sich die
+Forscher damals ans Pentagon und sogar an den US-Präsidenten Lyndon B. Johnson wandten.
+Als Folge dieser Informationen blieben die alarmierten Bomber auf dem Boden – glücklicherweise. «Ein
+massiver Start von Militärmaschinen wäre in der politisch angespannten Lage im Mai 1967 sicher als Provo kation aufgefasst worden», erklärt Knipp. «Hinzu kommt, dass die Bomberbesatzungen angewiesen waren, ihre
+Mission in jedem Falle zu erfüllen, wenn sie nicht explizit abgebrochen wurde – und die Radiostörungen hätten
+diese Kommunikation verhindert.» Dank der Sonnenforscher kam es nicht soweit.
+
+
+**«Lektion gelernt»**
+Heute weiss man, dass die drei arktischen Stationen von den solaren Störungen so stark betroffen waren, weil
+sie dank ihrer Position im hohen Norden fast 24 Stunden im Einflussgebiet der Sonne lagen. Die Folgen des
+heftigen Sonnensturms hielten damals noch fast eine Woche lang an und sorgten für Radiostörungen auf der
+gesamten Nordhalbkugel. Noch Tage später konnten staunende Menschen sogar so weit südlich wie in New
+Mexico am Himmel Polarlichter bewundern.
+
+
+-----
+
+-----
+

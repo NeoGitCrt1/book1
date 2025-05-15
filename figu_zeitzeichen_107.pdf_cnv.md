@@ -1,0 +1,2129 @@
+# FIGU – ZEITZEICHEN
+
+### Aktuelles • Einsichten • Erkenntnisse
+
+
+Erscheinungsweise:
+Zweimal monatlich
+
+
+Internetz: http://www.figu.org
+E-Brief:  info@figu.org
+
+
+4. Jahrgang
+Nr. 107, Dez./1 2018
+
+
+### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+
+Laut ‹Allgemeine Erklärung der Menschenrechte› vom 10. Dezember 1948, Artikel 19 ‹Meinungs- und Informationsfreiheit› gilt absolut weltweit:
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit, Mei-**
+**nungen unangefochten anzuhängen und Informationen und Ideen mit allen Verständigungs-**
+**mitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Aussagen und Meinungen in Artikeln und Leserbriefen usw. müssen nicht zwingend identisch sein mit Gedanken,
+Interessen, der ‹Lehre der Wahrheit, Lehre des Geistes, Lehre des Lebens› sowie dem Missionsgut der FIGU.
+
+===================================================================================
+Für alle in den FIGU-Zeitzeichen und anderen FIGU-Periodika publizierten Beiträge und Artikel verfügt
+
+die FIGU über die notwendigen schriftlichen Genehmigungen der Autoren bzw. der betreffenden Medien!
+===================================================================================
+**Auf vielfach geäusserte Wünsche aus der Zeitzeichen-Leserschaft sollen in den Zeitzeichen zur Orientierung der Re-**
+**zipienten laufend Auszüge diverser wichtiger Belange aus den neuesten geführten Kontaktgesprächsberichten veröf-**
+**fentlicht werden, wie nach Möglichkeit auch alte Fakten betreffs der früher weltweit bösartig mit Lügen, Betrug, Ver-**
+**leumdung und Mordanschlägen gegen BEAM geführten Kontroverse.**
+### **********************************************************************************
+
+## Frontalangriff auf die Meinungsfreiheit
+
+**Am 10./11. Dezember 2018 will der Bundesrat einem Uno-Pakt beitreten, der das Ende der Demokratie**
+**einläutet.**
+Es handelt sich um den Uno-Migrationspakt – ein umfassendes, kompliziertes Papier, das bisher erst in englischer
+Sprache verfügbar ist. Es soll am 10./11. Dezember an einer grossspurig aufgezogenen Uno-Konferenz in Marrakesch/Marokko «von der Staatengemeinschaft feierlich unterzeichnet werden». Dieser Migrationspakt fusst im wesentlichen auf drei Pfeilern.
+_Freitags-Kommentar vom 26. Oktober 2018,_
+_von Ulrich Schlüer, Verlagsleiter «Schweizerzeit»_
+
+
+-----
+
+**Weltweite Niederlassungsfreiheit**
+Erstens wird Migration in den Rang eines Menschenrechts erhoben. Jedem Menschen auf dieser Welt soll ein uneingeschränktes, von niemandem anfechtbares «Recht auf Migration» eingeräumt werden.
+Faktisch wird damit die weltweite Niederlassungsfreiheit ausgerufen. Jeder Mensch darf sich dahin begeben, wohin es
+ihn gelüstet.
+
+**Kontrollverbot**
+Zweiter Pfeiler: Jeder Staat hat die unabdingbare Pflicht, Migranten, die sich auf seinem Staatsgebiet niederlassen
+wollen, aufzunehmen. Frau Merkels Willkommenskultur, die Deutschland ein politisches Chaos beschert, soll gleichsam auf weltweite Geltung ausgedehnt werden.
+Die Zielländer der Massenmigration (die Uno spricht im Pakt nie von «Flüchtlingen», konsequent nur von «Migranten»)
+haben sich auf ankommende Massen zu rüsten. Ankommende zu überprüfen, wird untersagt. Denn der Wunsch, sich
+überall niederlassen zu können, ist zu einem Menschenrecht erhoben worden.
+Von echten und vorgetäuschten Fluchtgründen ist überhaupt nicht mehr die Rede. Weltweite Niederlassungsfreiheit
+gilt. Dem Willen eines ankommenden Migranten hat sich jeder Staat zu beugen.
+
+**Kritikverbot**
+Der dritte Pfeiler ist der skandalöseste: Kritik an der Einwanderung oder an der Einwanderungspolitik wird zur strafbaren Handlung erklärt, also verboten.
+Ein Entscheid gegen die Masseneinwanderung, wie er in einer Volksabstimmung in der Schweiz Tatsache geworden
+ist, wird zu einem zu bestrafenden Akt erklärt. Ein solcher Entscheid wird nicht bloss nicht umgesetzt; die, die ihn
+getroffen haben, haben sich vielmehr für eine unter Strafe stehende Handlung zu verantworten.
+Meinungsfreiheit wird also – vorerst bezüglich Einwanderungspolitik, sicher bald auch für andere Vorgänge – konsequent unterbunden. Funktionärsdiktatur schreddert die Demokratie.
+
+**Der Bundesrat will unterzeichnen**
+Nicht nur die Tatsache, dass ein solcher Pakt im Rahmen der Uno geschaffen wurde, ist bedenklich. Noch skandalöser ist: Der Bundesrat, die Schweizerische Landesregierung, hat beschlossen, dieses die Demokratie zerstörende
+Papier am 10./11. Dezember in Marokko zu unterzeichnen.
+Man sei, verlautet aus Bern, mit einigen Formulierungen im Pakt zwar «nicht sehr glücklich». Und man gedenke, dies
+mit einer sanften mündlichen Erklärung zur Unterschrift auch öffentlich anzumerken. Im übrigen, sagt Bern, sei der
+Pakt ja nicht – zumindest noch nicht – «rechtsverbindlich».
+
+**Nicht verbindlich?**
+Als wüsste man nicht, was mit «nicht verbindlichen» Konventionen und Uno-Erklärungen in der Vergangenheit regelmässig geschehen ist. Es wird zum Pakt eine Uno-Kommission ernannt. Diese wird die Einhaltung des Pakts durch
+jeden einzelnen Staat der Welt regelmässig überprüfen und öffentlich kommentieren.
+Dieser Kommission gegenüber wird auch die Schweiz rechenschaftspflichtig – sie muss ihr regelmässig Bericht erstatten. Von der Kommission würde unser Land anschliessend regelmässig an den Pranger gestellt, wenn die Schweiz
+gewisse Pakt-Bestimmungen aus Sicht der Kommission nicht oder bloss ungenügend umgesetzt hätte.
+
+**Bald «Völkerrecht»?**
+Und all die Ausverkäufer unseres Rechts, unserer Werte, unserer Verfassungsbestimmungen, die unser Land ohnehin
+fremden Richtern unterstellen wollen, werden alle Hebel dafür in Bewegung setzen, dass das, was in diesem Uno-Pakt
+steht, in den Rang von «Völkerrecht» erhoben wird, dem, wie sie dann behaupten werden, «höherer Rang» zukomme
+als unserer Bundesverfassung.
+So wird die Schweiz an diesen Pakt gefesselt werden. Sie wird ihre weltweit einzigartige Direkte Demokratie, sie wird
+ihre Volkssouveränität, vollumfänglich dem Kartell der Uno-Funktionäre und ihrer Zudiener in unserem Land opfern
+müssen.
+
+**Schweizer Handschrift**
+Kommt dazu – diese Tatsache macht den Skandal perfekt –, dass der Migrationspakt der Uno weitgehend von der
+Handschrift eines Schweizers geprägt ist: Jürg Lauber, Schweizer Uno-Botschafter mit Sitz in New York, brüstet sich,
+sehr massgeblich am Zustandekommen dieses Paktes beteiligt gewesen zu sein. Der früher für die Aussenpolitik zuständige, inzwischen zurückgetretene Bundesrat Didier Burkhalter hat ihm diesen Spitzenposten seinerzeit verschafft.
+Unsere Steuerzahler dürfen dazu zur Kenntnis nehmen, dass sie einem Diplomaten unseres Landes ein Spitzensalär
+auszurichten haben, der offensichtlich alles daran setzt, über internationale Kanäle hier in unserem Land vom Souverän getroffene Beschlüsse zur Eindämmung der Masseneinwanderung zu hintergehen, auszuhöhlen, selbst internationaler Verfolgung preiszugeben. Es ist das Verdienst des Aargauer SVP-Nationalrats Andi Glarner, ein Strafverfahren
+gegen diesen Verächter schweizerischen Rechts anzustrengen, der aktiv an der Unterhöhlung von Direkter Demokratie und Volkssouveränität arbeitet.
+
+
+-----
+
+**Allein die Selbstbestimmungsinitiative rettet die Direkte Demokratie**
+Höchste Zeit, dass dieser Souverän, dass Volk und Stände der Schweiz dem üblen Treiben in der Uno ein Ende setzen. Wenn es noch eines Beweises bedurft hätte, mit was für verhängnisvollen Folgen unser Land zu rechnen hätte,
+wenn es sein Selbstbestimmungsrecht dem Kartell internationaler Funktionäre opfert, dann liefert dieser Migrationspakt diesen Beweis. Dieser institutionalisiert nicht bloss die Masseneinwanderung. Er unterdrückt auch das Recht auf
+freie Meinungsäusserung – ein elementares Menschenrecht.
+Nur ein unüberhörbares Ja zur Selbstbestimmungsinitiative setzt dem gefährlichen Spuk ein Ende, die Schweiz gegenüber international agierenden Funktionären zu entrechten.
+_Ulrich Schlüer_
+
+PS: Auf eidgenössischer Ebene hat die SVP einen Vorstoss lanciert, mit welchem dem Bundesrat die Unterzeichnung
+des Migrationspaktes am 10./11. Dezember untersagt werden soll. Das Ja oder Nein zu diesem Pakt sei dem Parlament – mit einem referendumsfähigen Entscheid – vorzubehalten. Dem Bundesrat sei jede Eigenmächtigkeit dazu
+untersagt. Die «Schweizerzeit» unterstützt diesen SVP-Vorstoss, der bei anderen Fraktionen gute Aufnahme gefunden
+hat, mit einer Petition (siehe Anhang). Petitionsbogen werden Ihnen in den nächsten Tagen per Post zugestellt werden.
+26.10.2018, 15:17 von admin 26.10.2018 | 1094 Aufrufe
+Quelle: https://www.schweizerzeit.ch/cms/index.php?page=/news/frontalangriff_auf_die_meinungsfreiheit-3494
+
+### Hierzu ein Gesprächsauszug zwischen dem Plejaren Ptaah und mir, Billy,  vom offiziellen 712. Kontaktgespräch vom 30. Oktober 2018
+
+**Gespräch, nachdem Ptaah den vorgenannten Artikel gelesen hatte**
+
+**Ptaah** Sehr interessant, doch ist mir der Entwurf dieses UNO-Migrationspaktes schon länger bekannt, wie auch die
+unrechtschaffenen und dem Schweizerstaat sowie der Schweizerbevölkerung schadenbringenden Machenschaften
+des Schweizer Uno-Botschafters, der in diesem <Schweizerzeit>-Artikel genannt wird. Wenn in Marrakesch dieser
+UNO-Migrationspakt tatsächlich zustande kommen und von der Schweizer-Delegation anerkannt, akzeptiert und vertraglich unterzeichnend angenommen und festgelegt werden sollte, dann lässt sich der Schweizerstaat in eine Sache
+ein, durch die in letzter Folge dann – weil zukünftig noch diverse weitere zwingende Machenschaften diesem UNOMigrationspakt folgen werden – die Freiheit des Schweizerstaates und dessen gesamte Bevölkerung immer mehr
+beschnitten wird. Und was die in diesem Artikel aufgeführten negativen Möglichkeiten betrifft, so sind diese keineswegs illusorisch, denn wenn die Schweiz sich vertraglich in diesen Pakt einfügt, dann bedeutet dies den Beginn und
+Eintritt in eine UNO-Vogtei, wie das auch bereits der Fall ist in bezug auf die vertraglichen Machenschaften mit der EUDiktatur, in die sich Landesvertreter zwangsweise infolge ihrer Unbedarftheit, Unfähigkeit und in ihrem Entscheidungssowie Weitsichtsunvermögen zum Nachteil der Schweiz und ihrer Bevölkerung verantwortungslos eingelassen haben.
+
+**Billy** Wir wollen ja nicht politisieren und uns auch nicht direkt in die Politik einmischen, wie auch nicht politisch hetzerisch sein, doch denke ich, dass wir gemäss der freien Meinungsäusserung einfach unsere Meinung sagen können
+und dürfen, wobei ich denke, dass wir sagen dürfen, was die gegebenen Fakten sind und was sich nach vernünftiger
+Betrachtung, Überlegung und nach wahrscheinlicher Voraussicht aus allem ergeben kann. Also habe ich mir gemäss
+diesem Artikel Gedanken gemacht und auch Wahrscheinlichkeitsberechnungen erstellt, die recht grosse Übel ergeben
+haben. Die im Artikel aufgeführten Ermahnungen weisen tatsächlich Hand und Fuss auf und ergaben Resultate, die
+darauf hinwiesen, dass sich im Lauf der Zeit mit grosser Wahrscheinlichkeit alles so ausbilden und ergeben wird, wie
+dies einerseits die <Schweizerzeit>-Ermahnungen darlegen, wobei anderseits aber meine Berechnungen auch ergaben, dass die Schweiz und deren gesamte Bevölkerung auf längere Sicht gesehen letztendlich unter das totale Kommando der UNO und auch der EU-Diktatur verfallen würden. Dadurch würde der Staat Schweiz und das gesamte
+Schweizervolk letztlich jede Handlungsfreiheit und Selbstentscheidung ebenso verlieren wie auch jede Freiheit auf eine
+eigene Bundesverfassung, Gesetzgebung, Strafordnung und, und, und, und ... Auch die Armee würde letztendlich
+nicht mehr unter Schweizerrecht stehen, sondern einerseits unter dem direkten Kommando der UNO und zudem in
+Verbindung mit der EU-Diktatur. Letztendlich, so ergaben meine Wahrscheinlichkeitsberechnungen, würde die Schweiz
+dann, infolge des vorherrschenden Völkerrechts, unter dessen Todesfuchtel stehen. Und Todesfuchtel ist dabei effectiv ernst gemeint, denn in meinen Berechnungen hat sich auch ergeben, dass u.U. durch diesen UNO-Migrationspakt
+im Völkerrecht weltweit auch die Todesstrafe wieder eingeführt werden kann, wie das auch bei der EU-Diktatur der Fall
+war. Die hat in der Tat mit und durch die EU-Verfassung – für alle EU-Diktatur-Staaten – die Todesstrafe wieder eingeführt, die jederzeit wieder angewendet werden kann, was jedoch den Bevölkerungen der EU-Diktaturstaaten verschwiegen wird. Gesamthaft gilt dabei der Grundsatz – wie das gemäss meinen in hohe Werte gehenden Wahrscheinlichkeitsberechnungen beim evtl. Zustandekommen des weltweiten Völkerrechts der Fall sein wird –, dass das Völkerrecht alles Landesrecht bricht und ausser Kraft setzt. Und genau so wird es früher oder später kommen, wenn der
+UNO-Migrationspakt zustande kommt, wobei dann zukünftig alles auch für die Schweiz und deren Bevölkerung gelten
+wird, wenn die verantwortlichen Staatsführenden verantwortungslos den UNO-Pakt vertraglich unterschreiben sollten.
+
+
+-----
+
+Würde das geschehen, dann stünden umgehend die Schweiz und das Schweizervolk unter dem UNO-MigrationspaktRecht, wie das durch die regierungsamtliche Unvernunft und Selbstherrlichkeit jener Verantwortlichen der Schweiz
+bereits der Fall war, die durch diverse Verträge die Schweiz unter EU-Diktaturrecht gezwungen haben. Das UNOMigrationspakt-Recht wird alle Landesrechte brechen, und zwar auch die der Schweiz, wenn die Dummheit und Verantwortungslosigkeit der dafür Verantwortlichen u.U. siegt. Damit würde in der Schweiz letztendlich also die Bundesverfassung und damit jedes Grundrecht ausgehebelt und die Todesstrafe nach Belieben der Völkerrecht-Verfassung
+wieder durchgeführt. Und würde das geschehen, eben durch die Schuld und den Willen der dafür pro und hurra
+schreienden Politiker und deren dumm-dämlichen Anhänger aus dem Volk, dann müssten diese auch dafür verantwortlich zeichnen, dass dann auch der Frieden, die Freiheit und die Gerechtigkeit im Schweizerland null und nichtig gemacht würden. Das Ganze des UNO-Migrationspakts verstösst jedenfalls gegen die Schweizerische Bundesverfassung, und zwar auch in der heute bestehenden Form ebenso, wie auch dann, wenn durch das neue Völkerrecht auch
+in der Schweiz die Todesstrafe wieder eingeführt und vollstreckt würde. Ergo: Nur Schwachsinnige, pathologisch
+Dumm-Dämliche, Masochisten, Schizophrene und Suizidkranke usw. vertrauen blindlings jenen urteilsunfähigen Politikern und Landes-Vertretern, die in ihrem Machtgebaren schwachsinnig, selbstherrlich und krankhaft blöd ihre Staaten
+und Völker ins Unglück stürzen. Doch auch viele der Bevölkerungen selbst sind dümmer als Bohnenstroh und glauben
+jenen sich fehlverhaltenden Politikern und nehmen deren Lügen, Betrügereien und falschen Machenschaften als bare
+Münze, Wirklichkeit und Wahrheit, denen nicht getraut werden kann und deren Verstand und Vernunft sowie Urteilsvermögen und Gewissen nichts mehr als ein vergammeltes Abfallprodukt ihrer mangelhaften Intelligenz ist. Und dass
+sich natürlich exakt diese Art der Politiker und deren Anhänger aus den Völkern nicht als Betroffene erkennen wollen,
+sondern diesbezüglich alle rechtschaffenen Politiker, Volksvertreter, Regierenden, Bürgerinnen und Bürger aus den
+Völkern beschuldigen, das ist ja klar, denn die Schuldbaren wollen nie schuldig sein, wie es auch mit den Gotteswahngläubigen der Fall ist. Und gerade in dieser Beziehung ist es so, dass das Gros der Gottgläubigen, die in der Politik
+hocken und verbal mit den menschgemachten Lügen, Verleumdungen und den Betrügereien in bezug auf <Gottes
+Wort> herumschmeissen, die schlimmsten sind. Und diesbezüglich sind rund um die Welt unzählige Regierende, die
+als Gottgläubige oft Gott, die <Heiligen> Schriften und <Gotteswort> ins Feld führen, um damit politische und
+staatsmachtbefürwortende Anhänger aus den Bevölkerungen zu gewinnen, wobei von den Dummen und Einfältigen
+dann in religiös-höriger Weise den Verführern geglaubt wird. Und daher ist es nicht verwunderlich, dass rund um die
+Welt ausgerechnet viele Regierende, Politiker und Landesvertreter usw. in Regierungen und öffentlichen Ämtern Macht
+ausüben und ihren Völkern falsche und verächtliche religiöse Rollen vorgaukeln können. Und zudem können sie das
+tun, obwohl ihnen Verstand, Vernunft und die notwendige Intelligenz für ihr Amt fehlen und sie daher unfähig zum Führen eines Staates und dessen Bevölkerung sind. Folgedem ist die Tatsache die, dass sie nicht mehr und nicht weniger
+nur selbstsüchtige, egoistische und selbstherrliche traurige Gestalten sind, die zu keiner friedlichen, freiheitlichen,
+gerechten Politik und Staatsführung fähig sind, wie auch nicht dazu, wirklich zum Wohl ihrer Staaten und Völker zu
+arbeiten und für diese das Bestmögliche zu tun. Tatsache ist aber, dass viele dieser Elemente immer ihre religiöse
+Gläubigkeit und ihren Gott in den Vordergrund schieben, weil sie dem Wahn des <Heiligen Wortes> verfallen sind – ob
+wirklich, angeblich oder vorteilsbedingt vorgeschoben, das sei dahingestellt – und sie im Wahnglauben leben, göttliche
+Weisungen zu erhalten und himmlische Botschaften zu vernehmen. Und dass es ausgerechnet diese Gottgläubigen an
+der Macht sind, die für den Frieden, die Freiheit, Gerechtigkeit und Menschlichkeit sowie für gesunde und notwendige
+Massnahmen zum rettenden Planen und Handeln in bezug auf den gesunden Erhalt und zur Bewahrung und Regenerierung der Natur, deren Fauna und Flora, der Meere und Süssgewässer, des Klimas, der gesamten Umwelt und der
+Erde selbst sowie deren Menschheit weder ein Interesse noch Verantwortung aufbringen, das entspricht einem Verkommenheitszeugnis sondergleichen. Dies bezieht sich aber auch auf die dringendst notwendige und menschenwürdige Reduzierung der Überbevölkerung durch einen weltweiten Geburtenstopp und eine unausweichliche weltumfassende Geburtenkontrolle. Dafür aber hat der sich fehlverhaltende Teil der an den Regierungsrudern und in der Politik
+mitwirkend sitzenden Grossmäuligen weder ein Interesse noch Verständnis, wie auch die ihnen Zujubelnden aus den
+Bevölkerungen nicht, die allesamt – eben der fehlbare Teil der Politiker und Regierenden, der ebenso verantwortungslos handelt wie der Teil der ihnen Gleichgesinnten und sie Hochjubelnden aus den Völkern – nur ihren persönlichen
+Wünschen, Ideen, Vergnügen, ihrem Reichtum, individuellen Wohlergehen und ihren ausgearteten Freuden nachleben.
+Dass sie aber alle, der ganze Teil der fehlbaren selbstsüchtigen, egoistischen und machtbesessenen Politiker und
+Regierenden usw., wie auch das Gros der ihnen hörigen Völker damit weiterhin alles Ausgeartete und Böse in jeder
+Beziehung erhalten, stetig noch steigern, weitertreiben und die gesamte Erdenmenschheit sowie die Natur, Fauna und
+Flora, die gesamte Umwelt und den Planeten Erde selbst in eine ungeheure und nie wieder gutzumachende Katastrophe treiben, das ist ihnen allen völlig egal. Also werkeln sie gedanken- und verantwortungslos schwachsinnig unaufhaltsam weiter, fördern und schüren auf der ganzen Welt und unter allen Staaten und Völkern Angst, Unfrieden, Unfreiheit, Terror und Kriege. Folgedem werden – von jenem Teil der Politiker und Regierenden sowie der ihnen zujubelnden unbedarften Völkerschaften, die in feiger Angst vor den angeblich <feindlich> gesinnten anderen Staaten ihre
+Hosen vollkacken – stetig auch die Militär- und <Verteidigungs->-Ausgaben immer mehr erhöht, unendlich die Waffenpotentiale mit neuest-modernsten letalen Waffensystemen aufgestockt und Hass und Feindschaft immer vehementer
+hochgezüchtet. Doch das genügt noch nicht, denn jene Schwachsinnigen unter den Politikern und Regierenden, die in
+feigherziger Angst vor fremden Staaten, die angebliche Feinde sein sollen, ihre Hosen vollmachen, hetzen ihre Völker
+auf und fordern zusätzlich noch den weiteren Ausbau ihrer Armeen, oder wo noch keine solche sind, dass solche ins
+
+
+-----
+
+Leben gerufen und aufgebaut werden sollen. Und dass dadurch weiterhin alles Ausgeartete, Böse und Terror entstehen und grassieren, diese Tatsache ist wohl selbst dem ungebildetsten, begriffsstutzigsten und intelligenzschwächsten Menschen im hintersten Busch klar, jedoch offensichtlich nicht den Fehlbaren der Politik und der Regierungen, wie
+auch nicht den grossen Massen der Bevölkerungen, die sich besser als die Unbedarften im Busch wähnen und den
+populistisch agierenden Mächtigen und deren erlogenen Religionssprüchen glaubenshörig nachhängen. Und dass sie
+sich allesamt damit auch lächerlich machen und jenen Politikern und Staatsführenden in deren Hintern einschleichen,
+die politisch und regierungsmässig Unheil heraufbeschwören, das realisieren sie ebenso nicht, wie auch nicht, dass
+sie im Wahn leben, selbst hochgebildet, beschlagen, gescheit, bewandert, sehr gehaltvoll, fundiert, gelehrt, geschult,
+informiert, kundig, sattelfest, sicher, unangreifbar, unfehlbar, bestens unterrichtet und zuverlässig zu sein, jedoch
+wahrheitlich von all dem nichts haben, sondern gegenteilig absolut mehr als nur blöd und bohnenstrohdumm sind.
+
+**Ptaah** Deine Ausführungen kann ich nur derweise beurteilen, indem ich sie befürworte. Sagen will ich aber
+dazu doch, dass das Gros aller irdischen Politiker und Regierenden ihre Staaten und Völker nicht wirklich zu deren
+Wohl, Sicherheit, Frieden und Freiheit zu führen verstehen, sondern nur um ihrer persönlichen Macht und Interessen
+willen und dazu ihre hohen Positionen missbrauchen. Ausserdem ist dasselbe Gros von Angst befallen hinsichtlich
+anderer Staaten und Völker, denen kriegerische Angriffigkeiten zugemutet werden, folgedem die angstbefallenen
+Staatsverantwortlichen ständig zur Waffenaufrüstung aller Art und zu grosser militärischer Macht drängen, was milliardenschwere Finanzen erfordert, die anderweitig zum Wohl des Friedens, des nutzvollen Fortschritts und zum effectiven Wohl der Völker verwendet werden könnten. Und weiter ist zu sagen – ohne dass ich dabei überhebliche oder
+erniedrigende Anspielungen oder Gedanken habe –, dass das Gros all der weltweit politisch und regierungsamtlich
+Tätigen, wie auch das Gros der Bevölkerungen, auch wenn sie altersmässig und physisch als Erwachsene gelten, aus
+unserer Sicht und Bewusstseinshaltung, Vernunft, Intelligenz, unserem Wissen und unserer Verantwortungswahrnehmung allbeziehend ein Gesamtverhalten aufweisen, das bei uns nur bei noch unausgebildeten Halbwüchsigen zutage
+tritt. Ein wirkliches Erwachsensein kann nicht einfach gemäss Alter und physischem Ausgewachsensein gegeben sein,
+wie das bei den Erdenmenschen in falscher Weise verstanden wird, sondern nur gemäss Verstand, Vernunft, Intelligenz, Verantwortungsbewusstsein und allen sonstig notwendigen Faktoren, die eine korrekte, friedliche, freiheitliche
+und gerechtigkeitsbestimmte Lebensführung sowie Gedanken-, Entscheidungs- und Handlungsfähigkeit gewährleisten.
+Und das sind die hohen Werte, die dem Gros der irdischen Politiker, Regierenden und Bevölkerungen fehlen, weshalb
+sie zu richtigen Entscheidungen und Handlungen in bezug auf Frieden, Freiheit und Gerechtigkeit unfähig sind, unvernünftig ausartende falsche Entscheidungen ersinnen und demgemäss auch gleichermassen handeln und sich dabei
+einbilden, dass sie wohldurchdacht Gutes und Bestes tun würden, wahrheitlich jedoch Not und Elend, Unfrieden, Unfreiheit und Ungerechtigkeit schaffen. Und das tun sie, weil sie infolge Missverständnissen, Hass und Angst usw. gegenüber anderen Staaten und Menschen nur Feindschaft und daraus in sich selbst violente Gewaltvorstellungen erschaffen. Daraus erheben sie dann ihre Stimmen und führen unsinnige angstgeschwängerte Reden, durch die immer
+und immer wieder ein suggestives und böse Feindschaften schaffendes Gerede entsteht, wodurch die Angst vor Feinden hochgetrieben und damit letztendlich Waffengänge, Terror und Kriege provoziert werden.
+
+### ***************************************************
+## Sebastian Kurz: Deshalb werden wir den UN-Migrationspakt nicht unterzeichnen
+Von Jürgen Fritz / Gastautor1. November 2018 Aktualisiert: 1. November 2018 20:23
+
+**Sebastian Kurz erklärte nochmal in einem kurzen Video,**
+**warum Österreich nicht am Migrationspakt teilnimmt.**
+Österreich wird sich aus dem globalen Migrationspakt der Vereinten Nationen zurückziehen und diesen nicht
+unterzeichnen. Das haben Bundeskanzler Sebastian Kurz und Vizekanzler Heinz-Christian Strache gestern erklärt und
+ausführlich begründet. Damit ist Österreich nach den USA, Australien und Ungarn bereits das vierte Land, das diesen
+Pakt ablehnt. In einer kurzen Videobotschaft erklärt Sebastian Kurz, warum die österreichische Regierung sich zu
+diesem Schritt entschieden hat.
+
+**Sebastian Kurz begründet die österreichische Ablehnung des Paktes**
+Sebastian Kurz gab inzwischen auf Twitter nochmals ein Kurzstatement dazu ab, warum Österreich es ablehnt, diesen
+Pakt zu unterzeichnen: “Wir haben den UN-Migrationspakt eingehend geprüft. Einige der Punkte des UN_Migrationspaktes lehnen wir als Bundesregierung ab, wie die Vermischung von Migration und Asyl.“_
+
+**Was ist das überhaupt für ein Pakt?**
+Der UN-Migrationspakt ist zunächst einmal ein rechtlich nicht bindendes Abkommen, welches als erstes internationales
+Dokument Grundsätze für den Umgang mit Flüchtlingen und Migranten festlegt. Am 10. und 11. Dezember soll dieser
+globale Pakt während einer UN-Konferenz in Marokko angenommen werden und legale Möglichkeiten der Migration
+definieren.
+
+
+-----
+
+Bereits 2016 hatten 193 UN-Mitgliedsstaaten sich geeinigt, diesen Pakt zu schließen. Das Dokument sollte helfen,
+Flüchtlingsströme besser zu organisieren und die Rechte der Migranten noch viel mehr zu stärken. Die UN-Staaten
+wollen sich vor allen Dingen verpflichten, jegliche Diskriminierung von Zuwanderern aufs Schärfste zu bekämpfen (aber
+nur in diese Richtung, nicht die Diskriminierung der Indigenen durch Immigranten). Insbesondere sollen Migranten auch
+umfassenden Zugang zu sozialen Sicherungssystemen erlangen.
+
+**Es gibt kein Menschenrecht auf Migration – Keine Aufgabe der staatlichen Souveränität**
+Der österreichische Bundeskanzler Sebastian Kurz (ÖVP) und Vizekanzler Heinz-Christian Strache (FPÖ) erklärten nun
+gestern, am Mittwoch, vor der Ministerratssitzung:
+„Österreich wird das Dokument wegen erheblicher inhaltlicher Bedenken nicht unterzeichnen und auch keinen
+offiziellen Vertreter nach Marrakesch entsenden.“
+Der Pakt sei nicht geeignet, Migrationsfragen zu regeln. Man befürchte den Verlust österreichischer Souveränität
+in der Einwanderungspolitik und ein Verwischen der Unterschiede zwischen legaler und illegaler Migration, so Kurz und
+Strache. Wien könne 17 der insgesamt 23 Kapitel des Papiers nicht mittragen, erklärten die beiden weiter.
+Die Bundesregierung verwies auf ihren Standpunkt, dass „kein Menschenrecht auf Migration besteht und entstehen
+kann“, sei es durch Völkergewohnheitsrecht, Soft Law oder internationale Rechtsprechung. Daher werde Österreich
+dem Migrationspakt nicht beitreten, sich in der UN-Generalversammlung im September 2019 der Stimme enthalten
+und eine Erklärung bei den Vereinten Nationen abgeben.
+Vor Österreich kamen bereits Absagen aus den USA, Australien und Ungarn. Die Vereinigten Staaten nahmen auf
+Anweisung von Präsident Donald Trump erst gar nicht an den Verhandlungen teil. Eine Absage kam auch von
+Australien, und Ungarn ist unter Ministerpräsident Viktor Orban ebenfalls aus dem Abkommen ausgetreten.
+
+**In Deutschland hat bislang nur die AfD die Bedeutung dieses Paktes für die Zukunft unseres Landes**
+**erkannt**
+In Deutschland stößt das Vorhaben im Grunde nur seitens der AfD auf Kritik. Die ARD- und ZDF-Chefredakteure hatten
+noch vor einer Woche überhaupt keine Ahnung von diesem Pakt, der über das Schicksal des gesamten Kontinents
+entscheiden könnte, wie eine Podiumsdiskussion, zu der die AfD eingeladen hatte, zeigte. Die AfD will, dass
+Deutschland dem Beispiel Österreichs folgt und sich aus dem geplanten Migrationspakt der Vereinten Nationen
+zurückzieht. AfD-Bundesvorsitzender Jörg Meuthen hatte der Deutschen Presse-Agentur gesagt:
+„Während sich die deutsche Bundesregierung in entscheidender Zeit lieber mit sich und ihrer eigenen Unfähigkeit
+_beschäftigt, werden in Österreich zum Wohle des Volkes Fakten geschaffen“._ Dieser Pakt sei ein
+„Umsiedlungsprogramm für Wirtschafts- und Armutsflüchtlinge“, so Meuthen.
+Zuvor hatte bereits die Vorsitzende der AfD-Bundestagsfraktion, Alice Weidel, zum Entwurf des UN-Migrationspakts
+erklärt:
+_Hier wird faktisch die illegale Migration legalisiert und Einwanderungswilligen aus aller Welt der Schlüssel in unser_
+_Sozialsystem in die Hand gelegt.“_
+_Im Original erschienen bei Jürgen Fritz. Dieser Beitrag stellt ausschließlich die Meinung des Verfassers dar. Er muss nicht_
+_zwangsläufig die Meinung des Verlags oder die Meinung anderer Autoren dieser Seiten wiedergeben._
+Quelle: https://www.epochtimes.de/politik/europa/sebastian-kurz-deshalb-werden-wir-den-un-migrationspakt-nicht-unterzeichnena2692299.html?meistgelesen=1
+
+## In Österreich und Deutschland: Demos und Gegendemos zum UN-Migrationspakt
+Epoch Times6. November 2018 Aktualisiert: 6. November 2018 18:47
+
+Mit dem Näherrücken des Termins zur Unterzeichnung des UN-Migrationspakts am 10. Dezember, formiert sich
+verstärkt Widerstand, in Form von Demonstrationen, gegen die Unterzeichnung des internationalen Abkommens.
+Zudem gibt es Gegendemos von Befürwortern.
+Österreich hat angekündigt, den UN-Migrationspakt im Dezember nicht zu unterzeichnen. Dabei gibt es auch
+Gegenstimmen, so z. B. durch den Österreichischen Bundespräsidenten.
+Auch in der österreichischen Bevölkerung gibt es unterschiedliche Auffassungen darüber. Dies zeigten
+Versammlungen am vergangenen Wochenende in Wien. So versammelten sich am Sonntag Vertreter der Identitären
+Bewegung vor der UNO-City, um gegen den UN-Migrationspakt zu demonstrieren. Hingegen rief die „Linkswende“, eine
+sozialistische Bewegung, unter dem Motto „Wir sind mehr“ zu einer Gegendemo auf. Sie schrieben bei Facebook:
+„Wir laden alle Antifaschistinnen und Antifaschisten zur Gegendemo ein“ und wollen „die vielen Solidarischen
+mobilisieren um, „den braunen Mob“ zahlenmäßig und entschlossen in den Schatten [zu] stellen.“
+Online gab es bereits vorher eine Kampagne gegen den Ausstieg aus dem UN-Migrationspakt. So konnte man auf
+einer Webseite symbolisch dem Abkommen „beitreten“, um damit ein Statement gegen den Ausstieg der Regierung
+aus dem Pakt abzugeben. Organisator der Online-Kampagne war der gemeinnützige Verein #aufstehn.
+
+
+-----
+
+Symbolbild aus Chemnitz Foto: ODD ANDERSEN/AFP/Getty Images
+
+**Demos gegen den UN-Migrationspakt in mehreren deutschen Städten**
+In Deutschland ist das Thema nun anscheinend gänzlich ins Bewusstsein der Bevölkerung gedrungen. Die Medien
+berichten vermehrt darüber und in Berlin, Bonn, Dresden, Düsseldorf und Greifswald sind Demonstrationen gegen die
+Unterzeichnung des UN-Migrationspakts angekündigt worden. Veranstalter sind neben der AfD verschiedene
+Bürgerbewegungen und auch die Identitäre Bewegung Deutschland.
+Gegendemos sind auch geplant, z. B. in Greifswald, wo ein Bündnis aus Gewerkschaften, Künstlern und der Kirche
+unter dem Motto „Greifswald für alle“ zum Protest aufruft.
+Dass die Identitäre Bewegung nicht nur Demonstrationen als Plattform nutzt, um ihre Meinung auszudrücken, zeigte
+sie kürzlich durch eine Aktion im sächsischen Bautzen, die sich gegen den UN-Migrationspakt richtete. Auf dem Dach
+eines Hauses entrollten die Aktivisten ein großes Banner mit dem Text: „UN-Migrationspakt stoppen“ und erleuchteten
+es mit roten Bengal-Fackeln.
+Während sich bei den Demonstrationen Parallelen zwischen Österreich und Deutschland zeigen, sieht es auf
+Regierungsebene völlig anders aus. Die Bundesregierung unterstützt den UN-Migrationspakt ausdrücklich und zeigte
+bisher auch keine Bereitschaft, sich mit der Kritik an dem Abkommen, besonders vehement vorgebracht durch die
+AfD, auseinandersetzen zu wollen. Zudem ist eine Einbeziehung der Bevölkerung in den Entscheidungsprozess, ob
+sich Deutschland für oder gegen das Abkommen entscheiden sollte, anscheinend nicht vorgesehen.
+
+**Vorsitzender des Deutschen Städte- und Gemeindebundes begrüßt UN-Migrationspakt**
+Seitens des Deutschen Städte- und Gemeindebundes positioniere man sich positiv zum UN-Migrationspakt, macht
+Gerd Landsberg, Hauptgeschäftsführer des Verbandes, in einem kürzlich geführten Interview mit der WAZ deutlich.
+„Grenze zu, Problem gelöst“ – solche kurzfristigen nationalen Lösungen seien nicht tragfähig, begründete Landsberg
+seine Haltung. Und er führt weiter bezogen auf den UN-Migrationspakt aus: „Gerade für die Städte und Gemeinden
+sind derartige, hoffentlich dann auch wirksame Ansätze wichtig, denn die Flüchtlinge landen am Ende immer in einer
+Kommune und müssen dort versorgt, untergebracht und gegebenenfalls integriert werden.“
+Zudem wandte sich Landsberg gegen die „aufgeregte und teilweise populistische Diskussion“ zu dem Thema. Er sieht
+darin die Gefahr, „dass zukunftsweisende weltweite Lösungen schon im Ansatz verhindert werden“.
+Für Landsberg seien „die Flüchtlingsbewegungen eine Kehrseite der Globalisierung, teilweise des Klimawandels und
+die Folge von kriegerischen Auseinandersetzungen“.
+
+**Auswärtiges Amt: Es gebe Versuche die öffentliche Meinung gegen den UN-Pakt zu mobilisieren**
+Seitens des Auswärtigen Amtes hieß es, es gebe Versuche, durch „irreführende Informationen“ die öffentliche Meinung
+gegen das Abkommen zu mobilisieren. Dazu würden Behauptungen gehören wie, der Pakt erhöhe die Zuwanderung in
+bestimmte Länder. Diese seien „vollkommen unseriös und entsprechen auch nicht der Zielrichtung des Paktes“, heißt
+es durch das Auswärtige Amt. In einem Facebook-Beitrag schreibt das Auswärtige Amt: „Beim Globalen Pakt für
+Migration gibt es viele Fragen, Missverständnisse und Fehlinformationen. Wir haben die wichtigsten Fragen und
+Antworten hier zusammengefasst (…)“.
+
+**Österreichs Kritik am UN-Migrationspakt**
+„Wir sehen einige Punkte des Migrationspakts sehr kritisch, etwa die Vermischung der Suche nach Schutz mit
+Arbeitsmigration“, erläuterte Bundeskanzler Sebastian Kurz (ÖVP) letzte Woche die Ablehnung des UNMigrationspaktes.
+Der österreichische Innenminister Herbert Kickl (FPÖ) drückte sich kürzlich in einer Talkshow noch deutlicher aus.
+„Dieses Papier durchweht eine undifferenzierte, beinahe naive, positive Auffassung des Begriffes der Migration: Also
+
+
+-----
+
+Migration ist per se etwas Gutes, das bringt uns Innovation, das bringt uns Wohlstand – das bringt uns nur positive
+Dinge – Negatives ist ausgeblendet“, erklärte Kickl damals.
+Zudem werde in diesem Migrationspakt überhaupt nicht unterschieden zwischen legaler und illegaler Migration, führte
+der Innenminister weiter aus.
+„Man kann in diesem Migrationspakt nicht wirklich eine Verpflichtung von Ländern in Afrika, in der Dritten Welt ableiten,
+etwa ihre Leute zurückzunehmen, im Zuge von Asylverfahren, wenn die negativ ausgehen – alles das fehlt dort
+drinnen“, äußerte sich der FPÖ-Politiker.
+Hinzu kommt, dass es eine Vielzahl von Kritikpunkten gäbe, „wo man aufpassen muss, dass hier nicht ein Papier auf
+den Weg gebracht wird, das dann über Gerichtsentscheide über die Argumentation diverser NGOs etc. durch die
+Hintertür Eingang in unsere Rechtsordnung findet“, so Kickl.
+Im Juni hatten sich Vertreter von rund 190 Mitgliedsstaaten auf den „Globalen Pakt für sichere, geordnete und
+regulierte Migration“ verständigt. Das Abkommen soll rechtlich nicht bindend sein. Allerdings warnen Kritiker davor,
+dass der Pakt auf Umwegen zum Gewohnheitsrecht werden könnte, indem sich beispielsweise nationale und
+internationale Gerichte bei Entscheidungen auf die Inhalte des Pakts berufen. Die USA, Ungarn, Australien und jetzt
+auch Österreich sind aus dem Abkommen ausgetreten.
+Auch der tschechische Ministerpräsident Andrej Babis hätte die UN-Vereinbarung nun in Frage gestellt, berichtet die
+„Junge Freiheit“. „Mir gefällt dieser Pakt nicht“, soll er im Abgeordnetenhaus in Prag gesagt haben. Daher werde er
+der Regierungskoalition vorschlagen, sich der ablehnenden Haltung Österreichs und Ungarns anzuschließen. „Niemand
+außer uns darf entscheiden, wer bei uns lebt und arbeitet“, zitiert die „JF“ den Ministerpräsidenten.
+Quelle: https://www.epochtimes.de/politik/europa/in-oesterreich-und-deutschland-demos-und-gegendemos-zum-un-migrationspakta2696534.html
+
+## Jörg Meuthen über den UN-Migrationspakt:
+ „Ich weiß nicht, was Menschen antreibt, so einen Unfug zu unterschreiben“
+Von Reinhard Werner7. November 2018 _Aktualisiert: 7. November 2018 17:23_
+
+Starjournalist Hans-Hermann Gockel sprach im Europäischen Parlament mit dem deutschen EFDD-Abgeordneten und
+AfD-Bundessprecher Jörg Meuthen über den geplanten Global Compact on Migration. Meuthen sprach dabei von
+einem „Versuch, derzeit noch illegale Migration zu legalisieren“. Auch sei die Meinungsfreiheit in Gefahr.
+
+
+Jörg MeuthenFoto: über dts Nachrichtenagentur
+
+
+Im EFDD-Talk der Fraktion „Europa der Freiheit und der direkten Demokratie“ im Europäischen Parlament sprach deren
+deutscher Abgeordneter, der AfD-Bundesvorsitzende Jörg Meuthen, mit dem bekannten Fernsehjournalisten HansHermann Gockel über den geplanten UN-Migrationspakt.
+Meuthen bestätigte dabei die Einschätzung der Befürworter des Vorhabens, es würde sich um einen „großen Wurf“
+handeln. Allerdings wäre es einer im negativen Sinne. Sein Ziel wäre die „Vernichtung von Nationalstaaten“ und er
+würde „jede Form von Migration zum Menschenrecht mit gleichsam weltweiter Niederlassungsfreiheit“ machen.
+Da nicht davon auszugehen wäre, dass Europäer in absehbarer Zeit in Scharen ihre Heimat verließen, um in Burkina
+Faso oder ähnlichen Staaten zu leben, wäre es auch leicht, sich auszumalen, welche Stoßrichtung der Pakt habe: Die
+dahinterstehende Open-Borders-Konzeption diene dazu, derzeit noch illegale Migration zu legaler zu machen.
+„Jeder, der zu uns kommen kann, ist dann drin“, sei die Konsequenz davon, und es liege auf der Hand, welche
+Konsequenzen das für Europa habe, erklärte Meuthen.
+
+„Vorsätzliche Schädigung des Landes“
+Auf die Frage, wie es zu erklären wäre, dass Bundeskanzlerin Angela Merkel oder Bundesaußenminister Heiko Maas
+das Vertragswerk so vehement verteidigten, zeigte sich der AfD-Vorsitzende ratlos. Es sei nicht nachzuvollziehen,
+dass Merkel und Maas nicht verstünden, was sie damit anrichteten, und da stelle sich die Frage, welche Motivation
+dahinterstehe: „Ich kann niemandem hinter die Stirn gucken und ich will auch nicht in Verschwörungstheorien verfallen,
+aber es sieht aus wie eine vorsätzliche Schädigung unseres Landes.“
+
+
+-----
+
+**Meuthen fügte hinzu:**
+„Ich möchte Herrn Maas und Frau Merkel keine Absicht unterstellen, aber man kann auch nicht so töricht sein, deshalb
+komme ich da auch in Erklärungsnöte. Ich weiß nicht, was Menschen antreibt, einen solchen Unfug zu
+unterschreiben.“
+Dass der Pakt bislang am Deutschen Bundestag vorbei und auch stets unter Ausschluss der Öffentlichkeit behandelt
+worden sei, wundere ihn nicht, erklärte der EFDD-Abgeordnete auf Nachfrage:
+„Würde massenmedial vermittelt, was das heißt, was hier passiert: Wir hätten jetzt die Massendemonstrationen
+dagegen, die wir brauchen. Deswegen bemühen wir von der AfD uns, dieses Thema zu transportieren.“
+
+**Vollendete Tatsachen wie bei Grenzöffnung 2015**
+Die Art und Weise, wie der sogenannte Global Compact on Migration eingesetzt werden solle, stelle kein Novum dar:
+„Es wird totgeschwiegen, es wird am Parlament vorbei gemacht, und das ist nicht das erste Mal: Auch 2015 lag dem
+Entschluss, die Grenzen aufzumachen, keine Parlamentsentscheidung zugrunde. Das lässt tief blicken und es ist im
+Grunde ein tief erschütternder Vorgang.“
+Die Menschen, so Meuthen, müssen darüber informiert werden, was hier bevorsteht. Aber sie würden ganz gezielt
+nicht informiert.
+Gockel fragt nach, warum die AfD als einzige Partei gegen den Migrationspakt die Stimme erhebe. Meuthen erklärt
+dies im Fall von Linken, Grünen und SPD damit, dass diese die No-Borders-Ideologie wollen und es daher nur
+konsequent sei, diesem zuzustimmen. „Verwunderlich ist es aber bei CDU und FDP, die bürgerliche Parteien sein
+wollen.“
+Die Zusicherung der UNO, dass der Vertrag rechtlich nicht verbindlich, politisch aber bindend sein solle, bezeichnete
+Meuthen als „Volksverdummung in höchster Vollendung“.
+
+**Common Sense per Handstreich für „rassistisch“ erklärt**
+Selbstverständlich sei er rein juristisch nicht unmittelbar rechtlich bindend. Das Dokument werde aber in kurzer Zeit
+eine rechtliche Verbindlichkeit entfalten, weil es in nationales Recht transformiert werde. Der Pakt beinhalte auch, dass
+bereits die Kritik an seiner jetzigen Form verboten und als „rassistisch“ oder „reaktionär“ gebrandmarkt werden solle.
+Das Abkommen werde eine Eigendynamik bekommen, die vergleichbar sei mit der „unsinnigen, aber nicht ganz so
+gefährlichen Politik des Gender Mainstreaming“. Auch das komme von der UN, auch da hieß es 2002, es sei „rechtlich
+nicht bindend“.
+„Mittlerweile ist es aber auch rechtlich bindend, weil die politische Bindungswirkung auch eine Transformation ins
+Rechtliche erfährt“, betont Meuthen. „Es wird dann sukzessive umgesetzt werden, und genau das wird hier auch
+geschehen.“
+Der vielleicht am meisten problematische Aspekt an dem geplanten Vertragswerk sei jedoch, dass es ein „tiefer
+Eingriff in die Pressefreiheit und in die Meinungsfreiheit des einzelnen Menschen“ sei, der mit ihm einhergehe. Nur
+Grundelemente menschlicher Vernunft zu haben, würde nach dem Inhalt des Paktes bereits dazu führen, als „Rassist“
+zu gelten, so Meuthen.
+„Millionen und Abermillionen haben keinerlei rassistische Beweggründe, dies für Wahnsinn zu halten, aber die
+Meinungsfreiheit wird so weit eingeschränkt, dass jede Kritik an dem Pakt und seinen Zielen als rassistisch gilt.“
+Quelle: https://www.epochtimes.de/politik/welt/joerg-meuthen-ueber-den-un-migrationspakt-ich-weiss-nicht-was-menschen-antreibtso-einen-unfug-zu-unterschreiben-a2700842.html?meistgelesen=1
+
+### Auszüge aus dem offiziellen 711. Gesprächsbericht vom 8. Oktober 2018
+
+**Billy** Letzthin hast du in einem Privatgespräch gesagt, dass der US-präsidiale Trampel Trump nicht einfach dumm,
+sondern pathologisch dumm sei und auch nicht merke, wie er von seinen <Beratern> und sonstigen ihn rundum Umgebenden und <Beratenden> in vielerlei Dingen übel beeinflusst und missberaten werde. Dies sei insbesondere der
+Fall in bezug auf Russland, denn in dieser Hinsicht werde Trump durch seine ihn umgebenden russlandfeindlichen
+<Beratenden> in unipolarer Weise und hetzerisch gegen Russland beeinflusst, was er in seiner Dummheit nicht realisiere. ... ... ...
+
+**Ptaah Das ist richtig, denn Trump wird rundum sowohl in bezug auf Russland, wie aber gleichermassen auch auf**
+sämtliche Staaten der Welt derart beeinflusst, dass die USA jene Staaten seien, die allein zu einer unipolaren Führung
+fähig seien.
+
+**Billy** Wenn ich richtig verstehe, dann meintest du mit dem Begriff <unipolar> wohl, dass Trump sozusagen durch
+seine falschen Berater und sonst um ihn herumscharwenzelnden Russlandfeindlichen einseitig, einspurig resp. einpolig
+in negativer und bösartiger Weise gegen Russland ausgerichtet und hasserzeugend falsch beeinflusst wird.
+
+**Ptaah Das ist richtig, weil nämlich die USA resp. alle jene Politiker, Militärs und Geheimdienste usw., wie auch der**
+russlandfeindliche Teil der Mitläufer aus dem Volk der die Lügenpropaganda der Anti Russland Regierungselite Glau
+
+
+-----
+
+ben schenkt, eine hegemonistische und also unipolare Weltordnung will, wobei also die USA als alleiniger Staat Russland und alle anderen Staaten dominieren sollen.
+
+**Billy** Eben, das meine ich.
+
+**Ptaah Leider wird das aber der Hintergrund dessen sein, was sich bereits anbahnt, denn schon seit geraumer Zeit**
+wird durch die falschen Beratenden und sonstigen Beeinflussenden rund um Trump dessen pathologische Dummheit
+ausgenutzt, um ihn hetzerisch gegen Russland mit Drohungen, Lügen und Verdächtigungen usw. aufzubringen, was
+u.U. von seiten der USA zum Bruch des Abrüstungsvertrags führen kann, der am 8. Dezember 1987 in Washington im
+Weissen Haus von US-Präsident Ronald Reagan und dem sowjetischen Staatschef Michael Gorbatschow mit dem INFVertrag unterschrieben wurde, der das Abkommen zum Abbau der Mittelstreckenwaffen in Europa enthielt. Es war der
+erste Abrüstungsvertrag überhaupt, der zustande kam und der die Abschaffung einer kompletten Waffengattung vorsah. Damit gelang auch das erste greifbare Ergebnis in bezug auf die Entspannungspolitik zwischen Ost und West.
+Dies aber droht nun durch die Dummheit des US-Präsidenten zerstört und zur Drohung eines neuerlichen weltweiten
+Krieges zu werden. Im Hintergrund von Trampel Trump, der in seiner pathologischen Dummheit und Selbstherrlichkeit
+nicht realisiert, dass seine ihn umgebenden Berater und sonstigen ihn Beeinflussenden allesamt Russlandfeindliche
+sind und ihn dorthin führen, wo sie ihn haben wollen, nämlich derart gegen Russland und den Rest der Welt zu hetzen
+und weltweit Aufruhr zu schaffen, damit die USA Begründungen zu Kriegshandlungen finden, das vermag er weder
+wahrzunehmen noch zu verstehen. Und tatsächlich ergibt sich daher infolge der Dummheit von Trump alles in der
+Weise, wie es die im Hintergrund suggestiv mit hinterhältigen intrigenmässigen Einflüsterungen auf ihn wirkenden Berater, ihn sonstwie Lenkenden, Weltherrschaftssüchtigen und Russlandhasser usw. erhoffen. Folgedem führt er alles
+nach dem Willen seiner ihm Einflüsternden bedenkenlos aus, wobei er zudem in seinem Zustand von mangelhaftem
+Verstand und fehlender Vernunftfähigkeit selbst noch allerlei Unsinnigkeiten und Repressalien gegen andere Staaten
+ersinnt, resp. Massnahmen, durch die er seine persönlichen auf andere Staaten ausgerichteten Drohungen, Druck,
+Straf- und Vergeltungsmassnahmen usw. ausübt. Und dies tut er auch darum, weil er sich in seiner pathologischen
+Dummheit mächtig fühlt und seine Macht zur Geltung bringen will.
+
+**Billy** Also könnte dieser Sachschwachsinn und die pathologische Dummheit von Trump der Ursprung dafür werden,
+dass der Vierte Weltkrieg effectiv noch kommen könnte, ehe es soweit sein wird, dass die Menschheit infolge ihres
+Überbevölkerungsschwachsinns und ihrer diesbezüglichen Unbelehrbarkeit über kurz oder lang sich selbst zum Verschwinden bringt, was der gesamten ins Gigantische gewachsenen irdischen Bevölkerung ja effectiv droht. Eine Tatsache, die zwar von sogenannten Wissenschaftlern und sonstigen <Menschheitskennern> bestritten und von denen
+auch behauptet wird, dass die Erdenmenschheit problemlos noch viele Milliarden Menschen mehr auf die Welt bringen
+und die Erde diese weiteren Menschenmassen zu tragen und zu verkraften vermöge. Eine Idiotie sondergleichen, wie
+auch die, die ein Schweizer-<Fachmann> vor etwa zwei Monaten im Fernsehen verbreitet hat, dass die gesamten
+Landwirtschaftsbetriebe in der Schweiz die Bevölkerung des Landes – die gegenwärtig rund 8,7 Millionen beträgt,
+zum Vergleich zu 4,5 Millionen im Jahr 1950 – notfalls zu ernähren vermöge. Schon der Dritte Weltkrieg von 1939 –
+1945 hat gegenteilig bewiesen, dass das nicht möglich war, obwohl damals Tausende von Landwirtschaftsbetrieben
+mehr waren, die aber seither aufgelöst wurden. Damals war ja auch die Weltbevölkerung noch viel niedriger als heute,
+denn 1950 zählte die Bevölkerungsstatistik rund 2,5 Milliarden Menschen, während es heute nach rund 70 Jahren
+bereits 8,9 Milliarden sind. Darüber jedoch jetzt zu sinnieren, ist aber wohl nicht angebracht, denn mich interessieren
+noch andere Dinge, wozu ich auch eine Frage habe, die sich darauf bezieht, was du bezüglich des präsidialen Trampel
+Trump gesagt hast, nämlich dass seine Dummheit pathologisch bestimmt sei. Kannst du bitte erklären, was darunter
+genau zu verstehen ist.
+
+**Ptaah Schon mein Vater Sfath hat dich gelehrt, wie ...**
+
+**Billy** Weiss ich, aber ich finde, dass du es aus deiner Sicht heraus erklären solltest, weil nicht immer alle Erklärungen von mir ausgehen müssen. Ausserdem denke ich, dass mir im Laufe meiner 100 Jahre einiges nicht mehr so
+gegenwärtig ist, dass ich es genau wiedergeben und erklären kann.
+
+**Ptaah Das kann ich als Argument akzeptieren und gebe gerne eine Erklärung, worum es sich bei pathologischer**
+Dummheit handelt. Wenn effectiv nur reine Dummheit definiert wird, dann hat diese eine Form, die immer auf einer
+mangelnden Begabung auf intellektuellem Gebiet und damit auf einer schwachen und unzureichenden Intelligenz beruht. Dummheit ist aber auch ein vielfältiger Faktor, der in diversen Formen gründet, wie in Unwissenheit, wie auch in
+Achtlosigkeit, Nichtinteresse, der Gleichgültigkeit, Nichtbemühung und der Ungebildetheit usw. usf. Was jedoch als
+pathologische Dummheit zu bezeichnen ist, kann nicht in vielerlei Richtungen ausgelegt werden, denn sie fundiert in
+einer krankhaften und also pathologischen bewusstseinsmässigen Behinderung, durch die wahrheitliche Dinge und
+Werte mangels Intelligenz, gesunden Verstands, klarer Vernunft, Wissen und Weisheit in bezug auf die Sicht und Beurteilung der realen Wirklichkeit und deren Wahrheit nur abstrakt, teilwertig und also unvollständig wahrgenommen, nur
+relativ resp. aus unklaren, eingeschränkten, engen Grenzen und unklaren Gesichtspunkten heraus betrachtet, jedoch
+
+
+-----
+
+nicht effectiv wahrgenommen und auch nicht verstanden werden, wodurch alles bezüglich Gültigkeit, Realität, Richtigkeit, Wert, Wirklichkeit und Wahrheit von falschen Wahrnehmungen, Gedanken, Gefühlen, Sichtweisen und Vorurteilen
+abhängig und unklar wird und alle Dinge und Werte inadäquat, unsachlich und voreingenommen, unklug sowie intelligenzschwach beurteilt und zum Ausdruck gebracht werden. ... ... ... (Vollständige Erklärung siehe 711ter offizieller Gesprächsbericht)
+
+**Billy** Danke, diese Erklärung war schon lange fällig, denn bezüglich pathologischer Dummheit lässt sich in allen von
+mir durchforsteten <schlauen> Büchern irdischer <Weiser> nichts an Beschreibungen finden, die das zum Ausdruck
+bringen würden, wie du das eben erklärt hast. Aber so, wie es <schlaue> Bücher gibt, in denen nichts Vernünftiges
+nachgeschlagen und daher nicht daraus gelernt werden kann, so gibt es auch <schlaue> Erdlinge, die sich gross und
+gescheit meinen, jedoch effectiv bohnenstrohdumm, primitiv, hassvoll und rachsüchtig sind. ...
+
+Dummköpfe
+
+Wäre die Welt nicht so voll
+von Dummköpfen, die wider
+jeden Verstand und gegen
+alle Vernunft Kriege, Terror,
+Unfrieden, Überbevölkerung,
+Unfreiheit, Disharmonie, wie
+aber auch Lieblosigkeit und
+bösen Hass erschaffen, dann
+wäre des Menschen Leben
+ein Paradies auf Erden.
+
+SSSC, 21. Februar 2012
+
+17.32 h, Billy
+
+## "Weil Russland ihn verletzt":  Trump droht mit US-Ausstieg aus Atomvertrag mit Russland
+Sott.net So, 21 Okt 2018 10:07 UTC
+
+© Getty Images
+
+US-Präsident Donald Trump drohte am gestrigen Samstag, den Vertrag über nukleare Mittelstreckensysteme (INFVertrag) mit Russland zu kündigen, weil "Russland den Vertrag verletzt".
+
+Das 1987 unterzeichnete Papier verpflichtet beide Staaten zur Vernichtung aller Raketen mittlerer und kürzerer
+Reichweite und untersagt deren Produktion.[...]
+Der INF-Vertrag war am 8. Dezember 1987 von den damaligen Präsidenten der UdSSR und der USA, Michail
+Gorbatschow und Ronald Reagan, unterzeichnet worden. Darin verpflichteten sich beide Staaten, sämtliche Raketen
+mit mittlerer (1000 bis 5500 Kilometer) und kürzerer (500 bis 1000 Kilometer) Reichweite zu vernichten und keine
+neuen mehr zu produzieren.
+Im Mai 1991 wurde der Vertrag komplett erfüllt. Moskau vernichtete 1752 und Washington 859 ballistische Raketen
+und bodengestützte Marschflugkörper. Der Vertrag ist unbefristet. Dabei ist jede Seite berechtigt, beim Vorlegen
+triftiger Gründe aus dem Vertrag auszusteigen.
+Im November vergangenen Jahres hatte der US-Kongress 58 Millionen Dollar für die Entwicklung von bodengestützten
+Mittelstreckenraketen gebilligt.
+~ Sputnik
+Der stellvertretende russische Außenminister Sergej Rjabkow sagte gegenüber Sputnik am Sonntag über diese
+Drohung:
+Wenn die Vereinigten Staaten weiterhin aus internationalen Abkommen zurücktreten und diese somit einseitig brechen,
+wird Russland Gegenmaßnahmen, darunter auch militärtechnischer Art, ergreifen.
+"Das Thema ist zu heikel, um es mittels einer öffentlichen Debatte zu erörtern. Wenn die Amerikaner weiterhin so
+plump und schroff handeln, wie wir es an vielen Beispielen sehen, wenn sie auch weiterhin einseitig aus Verträgen aller
+
+
+-----
+
+Art Abkommen und Mechanismen zurücktreten, werden wir keine andere Wahl haben. In einem solchen Fall werden
+Gegenmaßnahmen ergriffen, darunter auch militärtechnischer Art. Wir wollen aber nicht, dass es so weit kommt."
+Als Beispiele von Vertragsbrüchen nannte der Diplomat den Ausstieg der Vereinigten Staaten aus dem Atom-Deal mit
+dem Iran und dem Weltpostverein.
+~ Sputnik
+Da der US-Präsident keine Beweise für die Behauptung präsentieren konnte, dass Russland den Vertrag verletzt,
+besteht die berechtigte Vermutung, dass auch diese Behauptung nichts mit der Realität zu tun hat.
+Quelle: https://de.sott.net/article/33026-Weil-Russland-ihn-verletzt-Trump-droht-mit-US-Ausstieg-aus-Atomvertrag-mit-Russland
+
+## Pascal Luig: „Das Ende des INF-Vertrages wäre das Ende einer internationalen Abrüstungspolitik“
+6. November 2018 um 11:59 Uhr | Verantwortlich: Redaktion
+Veröffentlicht in: Aufbau Gegenöffentlichkeit, Aufrüstung, Friedenspolitik, Interviews
+
+Werden die USA wieder Mittelstreckenraketen in Europa stationieren? Das könnte zumindest dann der Fall sein, wenn
+die Ankündigungen von US-Präsident Donald Trump umgesetzt werden. Dieser hatte vor kurzem gesagt, dass der so
+genannte INF-Vertrag zur atomaren Abrüstung aufgekündigt werde. Im Interview mit den NachDenkSeiten warnt
+**Pascal Luig vor den weitreichenden Konsequenzen, die sich aus dem Ende des Vertrages, der den Bau und Besitz**
+landgestützter, atomarer Raketen verbietet, ergeben können. Der Geschäftsführer der NaturwissenschaftlerInnenInitiative geht davon aus, dass erneut ein ungehemmtes atomares Wettrüsten zwischen den Großmächten droht und
+es zu einer Stationierung von neuen landgestützten Atomwaffen in Europa kommen könnte. Ein Interview über den INFVertrag, das „Vermächtnis der Friedensbewegung“ und die möglichen Hintergründe für das Verhalten der USA.
+Von Marcus Klöckner.
+
+**Herr Luig, was waren Ihre Gedanken, als Sie gehört haben, dass die USA aus dem INF-Vertrag aussteigen**
+**wollen?**
+Ehrlich gesagt dachte ich, dass es eine deprimierende und mehr als schlechte Woche für den Frieden in der Welt ist.
+Neben der unheilvollen Ankündigung des US-Präsidenten Donald Trump, den INF-Vertrag zu kündigen, hält die NATO zu
+allem Überfluss in Norwegen ihr Großmanöver „Trident Juncture“ mit 50 000 Soldaten ab, an dem auch Deutschland
+mit 10 000 Soldaten beteiligt ist. Das von der NATO verkündete Ziel der Übung ist es, Stärke gegenüber Russland zu
+demonstrieren.
+Die Tatsache, dass 29 NATO-Länder Krieg „spielen“, um Russland abzuschrecken, und die Aussicht, dass einer der
+wichtigsten Verträge über nukleare Abrüstung der wahnwitzigen Aufrüstungs- und Konfrontationspolitik des
+Präsidenten der USA und seiner rechtskonservativen Regierung geopfert werden, stimmte mich wirklich nicht
+zuversichtlich.
+
+**Was hat es mit diesem Vertrag auf sich?**
+Der INF-Vertrag wurde 1987 zwischen den USA und der ehemaligen Sowjetunion geschlossen und trat 1988 in Kraft.
+Er ist ein Kind und so etwas wie das Vermächtnis, aber auch der Erfolg, der Friedensbewegung der 80er Jahre.
+
+**Wie meinen Sie das?**
+Damals hatte 1979 der NATO-Doppelbeschluss die Stationierung von Pershing-II-Raketen und Cruise Missiles in
+Deutschland vorgesehen und die Gefahr eines nuklearen Krieges sehr real werden lassen. Dies führte schließlich zu
+Massenprotesten in Bonn, London und New York. Unter anderem demonstrierte im Bonner Hofgarten 1981 ein breites
+Bündnis mit etwa 300 000 TeilnehmerInnen gegen den NATO-Doppelbeschluss unter dem Motto „Gegen die atomare
+Bedrohung gemeinsam vorgehen“. In der Folge wurde der politische Druck so groß, dass Helmut Schmidt, als
+Verfechter der Stationierung, über den Doppelbeschluss stürzte, weil es nicht mehr sicher war, dass er den
+Stationierungsbeschluss durchsetzen konnte. Schließlich unterzeichneten US-Präsident Reagan und Generalsekretär
+Gorbatschow den INF-Vertrag im Weißen Haus.
+Konkret regelt der INF-Vertrag das Verbot des Besitzes, der Produktion und der Tests mit allen landgestützten
+Flugkörpern mit mittlerer und kürzerer Reichweite (500 bis 5500 Kilometer). Es ist das bisher einzige Abkommen,
+welches zur Verschrottung einer ganzen Kategorie von Atomwaffen, also zu realer Abrüstung geführt hat. Dieses von
+Michael Gorbatschow und Ronald Reagan unterzeichnete Abkommen ist eine historische Errungenschaft des
+weltweiten Abrüstungsprozesses und kann gar nicht hoch genug eingeschätzt werden.
+
+**Was bedeutet es, wenn die USA ihr Vorhaben umsetzen?**
+Das Ende des INF-Vertrages wäre mehr als die Beendigung eines Vertrages, es wäre das Ende einer internationalen
+Abrüstungs- und Rüstungskontrollpolitik, die Europa und die Welt sicherer gemacht hat vor den Gefahren eines
+Atomkrieges. Nur wenn dieses Abkommen erhalten bleibt, kann die Tür zu einer Welt ohne Atomwaffen weiter geöffnet
+werden.
+
+
+-----
+
+**Das Ende dieses Vertrages wäre also…**
+…ein schwerer politischer Schlag auch gegen den Atomwaffenverbotsvertrag. Uns würde erneut ein ungehemmtes
+atomares Wettrüsten zwischen den Großmächten drohen und eine Stationierung von neuen landgestützten
+Atomwaffen in Europa, welche die gesamte Menschheit bedrohen. Schon in den 70/80er Jahren hätte mit Absicht
+oder durch einen Fehler ein Atomkrieg ausbrechen können.
+
+**Dieser hätte vor allem Europa getroffen.**
+Und diese Gefahr ist auch heute noch vorhanden, allerdings würde sie mit der Kündigung des INF-Vertrages immens
+ansteigen.
+Insbesondere Deutschland wäre im Falle einer atomaren Auseinandersetzung eines der ersten Ziele, da ohnehin schon
+in Büchel im Rahmen der nuklearen Teilhabe Atomwaffen stationiert sind und auf der Air Base Ramstein der
+Raketenabwehrschirm der US-Amerikaner beherbergt wird. Die zu vermutende Stationierung von
+Mittelstreckenraketen in unserem Land würde Deutschland noch mehr ins Fadenkreuz geraten lassen – Atomwaffen
+wirken wie Magnete.
+
+**Welche Auswirkungen würden sich noch ergeben?**
+Leider wird oftmals vergessen, dass ein Ende des INF-Vertrages auch ein unkontrolliertes Wettrüsten in Ostasien
+bedeuten würde. Wie ich vermute, richtet sich die angekündigte Auflösung des INF-Vertrages gar nicht so sehr gegen
+Russland, sondern vielmehr gegen China. China ist bisher nicht Teil des INF-Vertrages und nach der Logik der USamerikanischen Militärs haben die USA dadurch einen strategischen Nachteil. Die USA hoffen, mit der Kündigung
+atomare Mittelstreckenraketen z.B. in Japan stationieren zu können. Dies würde zu einer ähnlichen Rüstungsspirale
+wie in Europa im Kalten Krieg führen und die Gefahren für die Region und den Weltfrieden wären gar nicht
+abzuschätzen. Dies würde z.B. auch den Entspannungsprozess zwischen Nord- und Südkorea zunichtemachen.
+
+**Die USA werfen Russland vor, gegen den Vertrag verstoßen zu haben. Wie sehen Sie diesen Vorwurf?**
+Die USA und Russland werfen sich gegenseitig vor, den Vertrag gebrochen zu haben. So mahnen die USA zum
+Beispiel an, Russland habe eine neue Mittelstreckenrakete entwickelt, die eine Reichweite von über 500 Kilometern
+habe. Russland hingegen wirft den USA unter anderem vor, Drohnen zu verwenden, die effektiv als
+Mittelstreckenraketen gelten können sowie ein vertragswidriges Raketenabwehrsystem in Rumänien und Polen
+aufgebaut zu haben. Hierbei ist aber anzumerken, dass für beiderseitige Vorwürfe bis heute keine endgültigen
+Beweise für einen tatsächlichen Vertragsbruch vorliegen.
+Augenscheinlich ist aber, dass es bei den Vorwürfen anscheinend gar nicht mehr darum geht, das Abkommen zu
+erhalten. Dies kann man daran erkennen, dass der für solche Fälle vertraglich geregelte Weg gar nicht mehr
+eingehalten wird. Wenn es zu Verletzungen des INF-Abkommens gekommen sein sollte, hat der INF-Vertrag dazu klare
+Regelungen. Die entsprechende Kommission der beiden Unterzeichnerstaaten muss einberufen werden, um die
+Vertragsverletzungen aufzuklären. Dieses ist seit 2017 nicht mehr geschehen. Es wäre aber der einzig richtige Schritt
+gewesen, bevor man wie die USA die mögliche Auflösung des Vertrages öffentlich verkündet.
+
+**Wie bewerten Sie denn die Reaktion der Bundesregierung?**
+Zunächst muss lobend erwähnt werden, dass die Bundesregierung zumindest erkannt hat, dass der INF-Vertrag ein
+wichtiges Element der Rüstungskontrolle ist und in besonderer Weise europäischen und damit auch direkt
+Deutschlands Interessen dient. Völlig unverständlich sind die Aussagen von Außenminister Heiko Maas, der allein
+Russland in der Pflicht sieht, den INF-Vertrag einzuhalten. Er und die Bundesregierung berufen sich hier auf eine
+Erklärung des NATO-Gipfels im Juli, die besagt, dass die USA sich an den INF-Vertrag hielten, während Russland keine
+überzeugenden Antworten auf die Fragen geben könne, die sich im Zusammenhang mit neuen russischen
+Raketentypen stellen. Es überrascht nicht, dass die NATO einseitig Russland für einen Bruch des INF-Vertrages
+verantwortlich macht, da dies in die momentane Feindbildkonstruktion passt.
+Abrüstung und der Gedanke der gemeinsamen Sicherheit erfordern aber keine einseitigen Schuldzuweisungen,
+sondern Angebote zum Dialog und Vertrauen in geschlossene Abkommen. Propagandistische Anklagen helfen nicht
+weiter und lenken von den wahren Motiven ungehemmter Aufrüstung ab. Die Bundesregierung täte gut daran, auf
+beide Seiten zuzugehen und zu vermitteln. Darauf hinzuwirken, dass die bereits erwähnte Kommission der beiden
+Unterzeichnerstaaten einberufen wird, um die angeblichen Vertragsverletzungen aufzuklären, wäre ein erster wichtiger
+und richtiger Schritt.
+
+**Worauf kommt es jetzt an?**
+Wir von der NaturwissenschaftlerInnen-Initiative fordern die Bundesregierung auf, in einer Regierungserklärung
+öffentlich positiv zu dem Vertrag Stellung zu nehmen. Sie muss unmissverständlich erklären, dass eine erneute
+Stationierung amerikanischer Mittelstreckenraketen auf deutschem Boden nicht infrage kommt. Außerdem müssen die
+USA aufgefordert werden, die noch stationierten Atomwaffen aus Büchel abzuziehen.
+Darüber hinaus muss der INF-Vertrag erhalten und unter Einbeziehung Chinas erweitert werden. Insbesondere sollten
+
+
+-----
+
+neben den landgestützten auch die seegestützten Mittelstreckenraketen verboten werden.
+Ein weiterer Schritt zu einer atomwaffenfreien Welt ist der im vergangenen Jahr in der UN verabschiedete
+Atomwaffenverbotsvertrag. Dieser beinhaltet unter anderem ein Verbot der Stationierung von Atomwaffen in den
+Vertragsstaaten. Durch das Inkrafttreten des Vertrages könnte die Gefahr der Stationierung von nuklearen
+Mittelstreckenraketen gemindert werden. Bisher haben ihn 69 Staaten unterschrieben und 19 ratifiziert. Deutschland
+gehört leider nicht dazu.
+Außerdem muss die Friedensbewegung aktiv werden. Wir brauchen jetzt einen lauten und unüberhörbaren Protest
+gegen eine erneute atomare Aufrüstung. Wie schon zu Zeiten des NATO-Doppelbeschlusses braucht es auch heute
+den Druck von der Straße, um die Politik zum Umdenken zu bewegen. Es muss deutlich werden, dass eine Welt ohne
+Atomwaffen das Ziel ist, dass nur so das Überleben der Menschheit gesichert werden kann.
+**_Pascal Luig, Geschäftsführer der NaturwissenschaftlerInnen-Initiative – Verantwortung für Frieden und Zukunftsfähigkeit e. V.,_**
+_Koordinierungskreis der Stopp Air Base Ramstein Kampagne     Quelle: https://www.nachdenkseiten.de/?p=46915_
+
+Dummheit – Unwissen
+
+Wer seine Intelligenz mit
+gar vielen Worten auf der
+Zunge führt, der muss sich
+viel zu sehr befleissen, um
+nicht seine Dummheit und
+sein Unwissen mitzuteilen.
+
+SSSC, 6. Februar 2012
+
+00.31 h, Billy
+
+## Potsdamer Außenpolitischer Dialog zur Entspannung mit Russland –
+ Keine Zeit mehr für kleine Schritte
+
+7.11.2018 • 06:45 Uhr https://de.rt.com/1oum
+
+
+© Christian Spicker
+
+Prof. Dr. Raimund Krämer (Vorstandsmitglied der RLS Brandenburg, Chefredakteur der Zeitschrift WeltTrends)
+eröffnet die Konferenz. Neben ihm: Arne Seifert, Peter Steglich (beide Botschafter a.D.), Hans Misselwitz
+(Staatssekretär a.D.), Prof. Lutz Kleinwächter, Wladimir Fomenko (RLS-Büro Moskau)
+AddThis Sharing Buttons Share to Facebook1Share to TwitterShare to RedditShare to MIXShare to Google+Share to
+TumblrShare to Vkontakte
+Eine Konferenz des Instituts WeltTrends zur Außenpolitik zeigte aufs Neue, dass ost- und westdeutsche Sichtweisen
+auf die Sicherheitslage heute noch sehr verschieden sein können. Aber recht einhellig wurde klar: Es bleibt keine Zeit
+mehr für "kleine Schritte".
+_von Wladislaw Sankin_
+
+"Warum hat Deutschland bei euch so einen großen Bonus?", fragte verwundert der Obmann für Verteidigungspolitik der
+Linksfraktion im Deutschen Bundestag, Dr. Alexander Neu, den tschechischen Gast am Ende der Tagung. "Hat euch
+etwa nicht das Deutsche Reich einmal überfallen und sich euch einverleibt?". Vladimir Handl von der Karls-Universität
+Prag hatte zuvor in seinem Vortrag das Deutschland-Image in seinem Land gelobt, auch und vor allem, weil
+Deutschland eine Friedensmacht sei. Auch wenn Deutschland über keine große schlagkräftige Armee verfüge, diktiere
+es im Moment als große Wirtschaftsmacht gerade im EU-Kontext die Politik zu seinen eigenen Gunsten, erwiderte
+Neu.
+
+
+-----
+
+**Ex-DDR-Intellektuelle und -Diplomaten für friedliche Koexistenz**
+Das war nur eine der Episoden aus zahlreichen Diskussionen und Vorträgen der Tagung "Jenseits der Konfrontation!
+Für eine Neugestaltung der Beziehungen zwischen der EU und Russland". Die internationale Konferenz war von der
+Rosa-Luxemburg-Stiftung e.V. und dem WeltTrends-Institut für Internationale Politik (IIP) organisiert worden. WeltTrends
+versammelt vor allem Intellektuelle aus Ostdeutschland und gilt als Ideengeber für außenpolitische Konzepte der Partei
+DIE LINKE. Das Institut pflegt auch Kontakte zu Instituten in den Ländern Ost-und Mitteleuropas. Diesmal diskutierten
+beispielsweise auch Gäste aus Polen, Russland und Tschechien mit.
+Nicht zum ersten Mal standen Fragen wie die friedliche Koexistenz, Abrüstung und gemeinsame Sicherheit für
+Gastgeber der Veranstaltung im Vordergrund der Diskussion. Besorgt war ein Großteil der Experten vor allem
+darüber, dass die gegenseitigen Drohgebärden seitens des Militärbündnisses NATO und Russlands zunehmend
+ernster werden, während es für Kooperation und Gespräche kaum noch Möglichkeiten gibt.
+Die Vorgeschichte dieses Konflikts am Ende des 20. Jahrhunderts zog sich dabei wie ein roter Faden durch alle
+Panels der Konferenz. So lieferten die zwei früheren DDR-Botschafter Arne Seifert und Peter Steglich sowie
+Staatssekretär a.D. Hans Misselwitz tiefe Einblicke in die Geschichte internationaler völkerrechtlicher Verträge, um die
+Wurzeln der heutigen Gegensätze aufzuzeigen.
+
+**Russisches "Sicherheitssyndrom" ist wohlbegründet**
+Der Ex-Diplomat Arne Seifert schlussfolgerte: Die Osterweiterung der NATO bilde heute den Kern eines
+Sicherheitssyndroms Russlands, denn Russland sei momentan aus der gesamteuropäischen Sicherheitszone
+ausgeschlossen. Diese Feststellung war auch der Grundtenor vieler anderer Beiträge des Tages. Seine zweite
+Schlussfolgerung, die bundesdeutsche Seite trüge die volle Mitverantwortung für die Osterweiterung der NATO, fand
+hingegen nicht bei allen beteiligten Experten Zustimmung. Deutschland hätte angesichts seiner beschränkten
+Souveränität gar nicht die Kompetenz besessen, in den Schicksalsjahren 1989–1991 irgendwelche eigenständigen
+Entscheidungen zu treffen, entgegnete Dr. habil. Erhard Crome vom IIP.
+
+**Totschweigen oder Verzerren**
+Die Diskussion fand ohne irgendeine Beachtung seitens der Medien statt, obwohl auf der Konferenz viele bekannte
+hochkarätige Experten und Politiker wie z.B. MdB Alexander Neu mitdiskutierten. Der Umstand, nicht dem aktuellen
+politischen "Zeitgeist" zu entsprechen, war den Wissenschaftlern um WeltTrends allerdings sehr wohl bewusst:
+_Es geht um alternatives Denken zu den gegenwärtigen dominanten Strömungen in Politik und Medien, die auf eine_
+_Rückkehr zur Konfrontation in der Weltpolitik generell und im Verhältnis zu Russland speziell zielen", heißt es im_
+_Programm der Veranstaltung._
+Den Umgang der Mainstream-Medien mit Ost-Experten könnte man allerdings als "Totschweigen" bezeichnen. Und
+diese Strategie, so nachvollziehbar sie angesichts der zur ihrer Linie "alternativen" Konzepte sein mag, beunruhigte
+die Teilnehmer. Die Tatsache, dass es keinen Austausch zwischen den friedensorientierten Kräften dieser Gesellschaft
+und deren politischen Entscheidungsträgern gibt, lasse nichts Gutes für die Zukunft erahnen.
+Einer der Redner auf der Konferenz berichtete denn auch über eine konkrete Beobachtung: So wurde laut Alexander
+Rahr, Publizist und Mitglied mehrerer deutsch-russischer Gremien, das hochrangige Treffen in Moskau im Rahmen der
+Potsdamer Begegnungen aus der Ferne durch die Bild-Zeitung aufs Übelste "besudelt". Sein Fazit: In den deutschen
+Medien dieser Coleur gilt nach wie vor als Konsens, dass man über Entspannungsversuche mit oder von Russland
+entweder gar nicht oder verleumderisch berichtet.
+
+**NATO-General in der Minderheit**
+Dass sich nicht alle Teilnehmer in Grundsatzfragen untereinander einig waren, zeigte ein Meinungsaustausch während
+des Panels zur Russland-Politik, als der Bundeswehr-Brigade-General a.D. und Ex-Abteilungsleiter im Brüsseler NATOHauptquartier Klaus Wittmann sich zu Wort meldete. "Ich bin mir im Klaren, dass ich hier in der Minderheit bin", sagte
+er gleich zu Beginn und referierte über die – nach seiner Meinung – von den übrigen Teilnehmern verkannten
+Friedensbemühungen des Nordatlantischen Blocks. Russland lasse es im Unterschied zur NATO auch an Transparenz
+fehlen, sagte er im Hinblick auf die letzten russischen Militärgroßübungen Zapad 2017 und Wostok 2018.
+Die Frage, ob man überhaupt genug für einen außenpolitischen Paradigma-Wechsel täte oder nicht, war bis zum Ende
+der Veranstaltung vorherrschend. So sagte der wohl älteste Teilnehmer, der 90-jährige Prof. Wilhelm Ersil, in
+Erwiderung auf das neueste außenpolitische Positionspapier der SPD, man habe keine Zeit mehr für dort proklamierte
+"kleine Schritte" in Richtung zur Entspannung. Man müsse viel "radikaler" und zügiger für ein neues inklusives und
+nichtmilitärisches europäisches Sicherheitskonzept eintreten. In diesem Punkt waren sich – gemessen an ihren
+Reaktionen – fast alle Teilnehmer dieses Potsdamer Außenpolitischen Dialogs einig.
+Quelle: https://deutsch.rt.com/inland/78862-potsdamer-aussenpolitischer-dialog-zur-entspannung-mit-russland/
+
+
+-----
+
+## Nato bereitet sich auf Krieg vor – Experte
+© REUTERS / NTB Scanpix/ Gorm Kallestad 15:42 04.11.2018 (aktualisiert 21:25 04.11.2018)
+Der Militärexperte Igor Korotschenko hat die Äußerung des Chefs des Internationalen Militärstabs der Nato
+(International Military Staff, IMS), Generalleutnant Jan Broeks, kommentiert, der zur Verbesserung der Logistik des
+Nordatlantischen Bündnisses aufgefordert hatte.
+Zuvor hatte Broeks in einem Interview mit dem Magazin „Defense News" geäußert, dass die Nato-Länder im Falle eines
+Konflikts mit Russland mit ernsthaften logistischen Problemen konfrontiert werden würden. Es sei nötig, die
+Durchlassfähigkeit der wichtigsten Häfen zu vergrößern und Autobahnen zu finden, deren Beläge das Gewicht der
+Militärtechnik aushalten könnten, sagte Brooks.
+„Diese Äußerung beweist, dass die Nato ihre Kriegsvorbereitung fortsetzt, und in einem Überholungstempo", sagte
+Korotschenko. Die Worte von Brooks seien ein Aufruf, Voraussetzungen dafür zu schaffen und im Notfall eine
+reibungslose Logistik sowie ungehinderte Entfaltung der Kampfgruppierungen der Nato-Truppen nahe der Grenzen zu
+Russland zu gewährleisten.
+„Es ist offensichtlich, dass diese Aufrufe als konkrete Lösungen umgesetzt werden sollen, und das ist durchaus
+gefährlich", fügte er hinzu.
+Dabei werde die militärpolitische Führung Russlands diese Äußerungen und die ihnen folgenden praktischen
+Handlungen der Nato nicht unbeachtet lassen, betonte der Experte. Moskaus Gegenmaßnahmen würden
+„asymmetrisch, aber relativ kostengünstig" sein, denn Russland dürfe sich nicht in ein Wettrüsten verwickeln lassen,
+so der Experte.
+Vor diesem Hintergrund sollte Russland die Produktion der seegestützten Raketen „Kalibr" auf das Mehrfache steigern.
+Auf diese Weise werde Russland sein nukleares Abschreckungspotential vergrößern, das, wie auch die nukleare
+Trieade, die Sicherheit des Landes garantieren werde, ist der Experte überzeugt.
+Quelle: https://de.sputniknews.com/politik/20181104322858081-nato-krieg-vorbereitung-russland/
+
+## Europäische Unions-Diktatur
+
+Ein paar Männer und Frauen, die nicht einmal von den Völkern gewählt wurden, wollen
+diktatorisch über die ganze Welt bestimmen.
+
+Das ist das doch der Hammer und eine Frechheit sondergleichen!
+
+Im übrigen ist es genau wie bei den USA: Alles machtgierige Köpfe.
+
+Wenn es einen Krieg gegen Russland gäbe, würde die EU natürlich auch zerschlagen werden.
+
+Aber dann wäre Europa dem Erdboden gleich.
+
+                                                - www.freundderwahrheit.de
+Achim Wolf, Deutschland
+
+
+-----
+
+## Einmischung des Iran in US-Wahlen: "Die Amerikaner leiden diesbezüglich anscheinend an Wahnvorstellungen"
+Jörg Klingenbach Sott.net So, 21 Okt 2018 13:06 UTC
+
+Der Iran zählt neben Russland mit zu einem der Lieblingsgegner verbaler Ausuferungen und Beschuldigungen seitens
+der USA. Die neueste Anschuldigung aus den USA ist, dass sich Teheran in die bevorstehenden US-Kongresswahlen
+einmischen möchte. Diese Behauptung wurde dementsprechend gekontert:
+
+© www.globallookpress.com
+
+Der Iran hat US-amerikanische Vorwürfe über eine mögliche Einmischung Teherans in die bevorstehenden USKongresswahlen als falsch und grundlos zurückgewiesen. "Die Amerikaner leiden diesbezüglich anscheinend an
+Wahnvorstellungen", sagte der iranische Außenamtssprecher Bahram Ghassemi am Sonntag. In Washington existiere
+eine "fiktive Liste" mit täglich neuen Namen und Unterstellungen, um von eigenen innenpolitischen Streitigkeiten
+abzulenken. – RT Die ursprüngliche Meldung stammt von einem Büro des US-Geheimdienstkoordinators.
+"Wir sind besorgt über andauernde Kampagnen Russlands, Chinas und anderer ausländischer Akteure inklusive des
+Iran", hieß es dort. Ziel dieser Kampagnen sei es unter anderem, die öffentliche Meinung und die US-Regierungspolitik
+zu beeinflussen.
+
+**Jörg Klingenbach**
+Jörg Klingenbach hat einen Abschluss in den Sozialwissenschaften und ist Redakteur für Sott.net seit 2011.
+Informationen zu veröffentlichen und objektivere Nachrichten auch an deutsche Leser zu vermitteln, war mit ein
+Hauptgrund, sich dem fulminanten Sott-Team anzuschließen. Dabei konzentriert sich Jörg vorrangig auf die Kategorien
+Puppenspieler, dem Kind der Gesellschaft und Feuer am Himmel. Er hilft Artikel ins Deutsche zu übersetzen und von
+Zeit zu Zeit verfasst er auch selbst Artikel.
+Wenn Jörg nicht gerade bei Sott.net oder an anderen Projekten arbeitet, photographiert er sehr gern.
+Quelle: https://de.sott.net/article/33028-Einmischung-des-Iran-in-US-Wahlen-Die-Amerikaner-leiden-diesbezuglich-anscheinend-anWahnvorstellungen
+
+## Meinung – Die EU ist am Ende – Es merkts nur keiner
+
+
+21.10.2018 • 17:01 Uhrhttps://de.rt.com/1o5l
+
+
+: Reuters l
+
+
+Ramponierte EU-Flagge am Strand von Great Yarmouth, England, von Andreas Richter
+
+
+-----
+
+In Brüssel versammeln sich die Staats- und Regierungschefs der EU zu einem weiteren Gipfel. Die immer gleichen
+Rituale und Reden täuschen darüber hinweg, dass die EU in ihrer bisherigen Form erledigt ist. Eine weitere Integration
+wird es nicht geben.
+Natürlich gibt es die EU noch, ihre Organe arbeiten zuverlässig und bürokratisch wie eh und je. Und sie beglückt die
+Bürger ihrer Mitgliedsstaaten immer noch mit absurden und unnötigen Vorschriften. Jüngstes Beispiel: Die neuen
+Berliner S-Bahn-Züge, die ab 2021 eingesetzt werden sollen, bekommen aufgrund einer EU-Richtlinie ein neues und
+besonders nervig piepsendes Türschließsignal. Kein Dü-Di-Dü mehr in Berlin.
+Ärgernisse wie dieses dürfen nicht darüber hinwegtäuschen, dass die EU seit mindestens drei Jahren nicht mehr
+funktioniert. Die Staats- und Regierungschefs, die sich am Mittwochabend zu einem neuen Gipfel in Brüssel
+versammelt haben, finden in wichtigen Fragen keine gemeinsame Linie mehr. Statt zu wirklichen Kompromissen
+kommt es seit Jahren nur noch zu gesichtswahrenden Scheinlösungen. In immer mehr Staaten gewinnen sogenannte
+populistische Parteien an Bedeutung, die eine weitere Integration ablehnen.
+Der sich derzeit zuspitzende Konflikt zwischen der EU-Kommission und der italienischen Regierung könnte die Krise
+der EU offen zutage treten lassen und die Existenz des Euro in Frage stellen. Während der Euro-Krise ab 2010 gelang
+es Deutschland noch, die EU auf den deutschen Pfad der Austerität zu bringen und die griechische Regierung 2015
+brutal zur Unterwerfung zu zwingen.
+Bei Italien wird das nicht funktionieren. Italien ist zu groß, seine Schulden sind auch für die EU und die Banken ein
+Problem. Und die italienische Regierung ist – anders als die griechische – entschlossen und vorbereitet, im Fall der
+Fälle den Ausstieg aus dem Euro zu wagen. Welche Folgen ein solcher Schritt für die Union und ihre gemeinsame
+Währung hätte, ist nicht abzusehen.
+Die Währungsunion war von Anfang an eine Fehlkonstruktion. Der Euro hat den Ländern des Südens enorm viel
+Wachstum und Wohlstand gekostet, während er der deutschen Wirtschaft einen enormen Exportboom beschert hat.
+Die Ungleichgewichte sind nicht kleiner, sondern größer geworden, so dass ein Ende mit Schrecken statt des
+Schreckens ohne Ende immer wahrscheinlicher wird.
+Das zweite große Thema, an dem das Scheitern der europäischen Integration sichtbar zu Tage tritt, ist die
+Flüchtlingsfrage. Nachdem die deutsche Bundeskanzlerin die Dublin-Regelung im Jahr 2015 erst für obsolet, dann
+wieder für gültig erklärte, sorgt das Thema für dauerhaften Streit. Die Meinungen und Interessen in dieser Frage sind
+in der Union so gegensätzlich, wie sie nur sein können.
+Das dritte Thema entstand gewissermaßen als Nebenwirkung des zweiten: der Brexit. Angela Merkels
+Flüchtlingspolitik spielte für das Votum der Briten eine entscheidende Rolle, sie befeuerte die ohnehin vorhandene
+migrationsskeptische Stimmung. Die EU bemüht sich, dem Vereinigten Königreich den Weg zum Brexit so steinig wie
+möglich zu gestalten, schon um mögliche Nachahmer abzuschrecken. Dabei könnte dieser für die Briten, anders als
+oft zu lesen, durchaus zu einem Erfolg werden.
+Auch das vierte Problemthema hat mit Angela Merkels Flüchtlingspolitik zu tun. Sie trug dazu bei, dass die
+Osteuropäer lernten "Nein" zu sagen und sich eine Kluft zwischen West- und Osteuropa auftat, die sich nicht mehr
+schließt.
+Für keines der hier nur kurz angerissenen Problemfelder zeichnet sich eine Lösung ab. Auch wenn die EU in ihrem
+gegenwärtigen Zustand noch Jahrzehnte dahinvegetieren kann, ist ein teilweises oder vollständiges
+
+Auseinanderbrechen aus heutiger Sicht deutlich wahrscheinlicher als eine weitere Integration. Denkbar wäre auch eine
+Neuerfindung der EU in ihrer früheren Form, als ein Staatenbund mit einem gemeinsamen Wirtschaftsraum.
+
+### Mehr zum Thema
+
+**Merkels Bürgerdialog oder die Sendung mit der Kanzlermaus**
+
+Die Schlüsselrolle bei allen hier skizzierten Problemen der Europäischen Union lag bei Deutschland. Mit ihrem
+Austeritätsdiktat hat die deutsche Regierung zu den Wohlstandsverlusten im Süden des Kontinents entscheidend
+beigetragen. Sie hat auch mit dafür gesorgt, dass Ressentiments zwischen den Völkern wiederbelebt wurden, die man
+lange überwunden geglaubt hatte.
+Deutschland übte in den vergangenen Jahren eine wirtschaftliche und teilweise auch politische Hegemonie über EUEuropa aus. Das Ausüben der politischen Hegemonie erfolgte aber eher unwillig und derart ungeschickt, dass sie
+nicht von Dauer sein konnte. Wenn Merkel von "europäischen Lösungen" spricht, versteht der Rest der EU sehr wohl,
+dass sie die Umsetzung deutscher Vorstellungen auf europäischer Ebene verlangt. Und genau das funktioniert nicht
+mehr.
+Merkel dürfte, im völligen Kontrast zu ihrer europafreundlichen Rhetorik, als die Person in die Geschichte eingehen,
+die den Sprengsatz an die Europäische Union gelegt und die Lunte gezündet hat, mit ihrer Flüchtlingspolitik als eines
+der größten politischen Eigentore unserer Zeit. Für die Bürger wird ein Ende der EU in ihrer heutigen Form keine
+schlechte Nachricht sein. Vielleicht besteht sogar für das Dü-Di-Dü der Berliner S-Bahn noch Hoffnung.
+_RT Deutsch bemüht sich um ein breites Meinungsspektrum. Gastbeiträge und Meinungsartikel müssen nicht die_
+_Sichtweise der Redaktion widerspiegeln._
+Quelle: https://deutsch.rt.com/meinung/77961-merkt-es-keiner-eu-ist/
+
+
+-----
+
+## INF auf der Kippe – Vater der Atomabrüstung Gorbatschow: „Uno muss eingreifen“
+
+20:06 21.10.2018(aktualisiert 20:55 21.10.2018)
+
+**Die Absicht der USA, aus dem INF-Vertrag (Vertrag über Mittel- und Kurzstreckenraketen) auszusteigen,**
+**ist laut dem Ex-Präsidenten der Sowjetunion, Michail Gorbatschow, unzulässig.**
+Wie er gegenüber Sputnik sagte, seien die in dem Dokument formulierten Entscheidungen über die Vernichtung von
+Atomwaffen bzw. atomaren Sprengsätzen seinerzeit ein großer Sieg gewesen.
+US-Präsident Donald Trump hatte zuvor angekündigt, dass Washington aus dem INF-Vertrag aussteige.
+Gorbatschow zufolge seien die USA „diesen verantwortungslosen Weg gegangen, nachdem sie in eine Sackgasse
+geraten waren“.
+„Hier werden sowohl die Organisation der Vereinten Nationen als auch der Sicherheitsrat vor eine Frage gestellt“, so
+Gorbatschow. Danach gefragt, ob sich die Uno seines Erachtens in diesen Prozess einschalten sollte, sagte
+Gorbatschow: „Wie ich glaube, müssen all diese Institutionen in diesem Augenblick eingreifen.“
+Zu der Möglichkeit, den INF-Vertrag zu bewahren, äußerte sich Gorbatschow metaphorisch, der Zug sei noch nicht
+fort. Ein Vertreter der USA solle nach Russland kommen, und die Länder müssten versuchen, den zerstörerischen
+Prozess des Ausstiegs der USA aus dem Vertrag zu stoppen, betonte der Ex-Präsident.
+Quelle: https://de.sputniknews.com/politik/20181021322708864-inf-vertrag-atomabruestung-gorbatschow-uno/
+
+Etwas Grosses tun
+
+Wenn der Mensch
+etwas Grosses im
+Leben leisten will,
+dann muss er seinen
+Mut fassen, um sich
+erst selbst zu verwirklichen.
+
+SSSC, 15. Januar 2011
+
+14.16 h  Billy
+
+
+## Ist Massenmigration gegen göttliche Rassenvielfalt?
+
+
+## Brisante Aussagen eines Tempelritters
+Von Daniel Prinz / Gastautor21. October 2018 _Aktualisiert: 21. Oktober 2018 21:07_
+
+Eine Dokumentation.
+
+(Symbolbild) Templer auf dem Petersplatz am 26. November 2014 in der Vatikanstadt, Vatikan.
+Foto: Franco Origlia/Getty Images
+
+Bestsellerautor Daniel Prinz stellt neue Quellen vor zur "geplanten Massenmigration" und Rassenvermischung. Die
+Dokumente zu diesen großangelegten offiziell genannten „Umsiedlungen“ kann jeder nachfolgend im Original einsehen.
+
+Mein letzter Artikel mit der Überschrift Bald 300 Millionen Moslems und Afrikaner in Europa? Volksaustausch und
+Islamisierung keine „Verschwörungstheorie“ hat deutschlandweit große Wellen geschlagen, da selbst Skeptiker nun
+empört mit Schrecken feststellen, dass, wenn der Globale Migrationspakt der Vereinten Nationen im Dezember 2018
+
+
+-----
+
+abgesegnet wird, spätestens ab nächstem Jahr der ganze europäische Kontinent mit weiteren islamischen und
+afrikanischen Migranten buchstäblich im „biblischen Ausmaße“ überrollt werden wird.
+Die Dokumente zu diesen großangelegten offiziell genannten „Umsiedlungen“ kann übrigens jeder nachfolgend im
+Original einsehen:
+http://www.unhcr.org/dach/wp-content/uploads/sites/27/2018/01/Kurzinformation_GCR_final-revJan2018.pdf
+http://www.unhcr.org/dach/de/was-wir-tun/auf-dem-weg-zum-globalen-pakt-fuer-fluechtlinge
+http://www.unhcr.org/dach/de/was-wir-tun/auf-dem-weg-zum-globalen-pakt-fuer-fluechtlinge/der-umfassende-rahmenplan-fuerfluechtlingshilfemassnahmen
+https://refugeesmigrants.un.org/sites/default/files/180528_draft_rev_2_final_1.pdf
+https://ec.europa.eu/home-affairs/sites/homeaffairs/files/20180503_declaration-and-action-plan-marrakesh_en.pdf
+Bereits im Jahr 2000 diskutierte die UN öffentlich eine sogenannte „Austauschmigration“ für den europäischen
+Kontinent. Dass es bei dem ganzen Thema eigentlich nicht wirklich um echte Flüchtlinge geht und diese bloß als Alibi
+vorgeschoben werden, hat die Europäische Kommission im Juli 2016 in einem Dossier auf ihrer Webseite klargestellt,
+in dem es eindeutig um einen „EU-Neuansiedlungsrahmen“ geht. Die geplante Massenmigration wird dabei von
+einem ganzen Netzwerk an Stiftungen und NGO’s durchgeführt – federführend durch den „Menschenfreund“ George
+Soros.
+
+**Rassenvermischung zur Abschaffung der europäischen Völker?**
+Hierzu hat sich der ehemalige französische Präsident und Freimaurer Nicolas Sarkozy 2008 mehr als deutlich wie
+folgt geäußert:
+„Was also ist das Ziel? (…) Das Ziel ist, sich der Herausforderung der Rassenvermischung zu stellen. Die
+_Herausforderung der Vermischung, die uns im 21. Jahrhundert gegenübersteht. Es ist keine Wahl, es ist eine_
+_Verpflichtung. Es ist zwingend! Wir können nicht anders, wir riskieren sonst mit sehr großen Problemen konfrontiert zu_
+_werden. Deswegen müssen wir uns ändern und wir werden uns ändern. Wir werden uns alle zur selben Zeit verändern:_
+_in Unternehmen, in Verwaltungen, in Bildung, in politischen Parteien. Und wir werden uns zu diesem Ziel verpflichten._
+_Wenn dies von der Republik [also vom Volk, A.d.V] nicht freiwillig getan wird, dann wird der Staat Zwangsmaßnahmen_
+_anwenden.“_
+Neben Sarkozy gibt es noch eine ganze Reihe an einflussreichen Personen, die an der Abschaffung der europäischen
+Völker und Kulturen mitwirken, so auch zum Beispiel die Akademikerin und Philosophin Barbara Lerner Spectre, die
+dem israelischen Sender IBA-News 2010 bereits mitteilte:
+„Ich glaube, es gibt ein Wiederaufleben des Antisemitismus, weil Europa bisher nicht gelernt hat, multikulturell zu sein,
+_und ich denke, wir werden an dieser äußerst schmerzhaften Umwandlung teilhaben, die stattfinden muss! Europa wird_
+_nicht mehr aus monolithischen Gemeinschaften bestehen, wie es noch im vorigen Jahrhundert der Fall war. Wir Juden_
+_werden eine zentrale Rolle dabei spielen. Es ist eine riesige Umwandlung für Europa zu bewerkstelligen! Die Europäer_
+_gelangen jetzt in ein multikulturelles Stadium und uns Juden wird die dabei führende Rolle übel genommen. Aber ohne_
+_diese führende Rolle und ohne diese Umwandlung wird Europa nicht überleben.“ (Übersetzung von ruf-ch.org_
+übernommen)
+Der US-amerikanische Militärstratege und Globalisierungsbefürworter Thomas P. M. Barnett sprach sich in seinen
+Büchern „Der Weg in die Weltdiktatur“ (2016) und „Drehbuch für den 3. Weltkrieg“ (2016) schockierend offen für die
+„Gleichschaltung aller Länder der Erde“ aus. Um das zu erreichen, soll laut Barnett durch eine Vermischung von
+Rassen eine „hellbraune Rasse“ in Europa entstehen. Zu diesem Zweck soll Europa daher jährlich 1,5 Millionen
+**Migranten aus Ländern der Dritten Welt aufnehmen. Das Endergebnis sei dann nach der Vision Barnetts und der**
+Globalisten eine Bevölkerung mit einem durchschnittlichen Intelligenzquotienten (IQ) von 90, die zu dumm sei, um zu
+begreifen, aber intelligent genug, um zu arbeiten. Seine Botschaft an alle Kritiker und Widerständler: „Jawohl, ich
+_nehme die vernunftwidrigen Argumente meiner Gegner zur Kenntnis. Doch sollten sie Widerstand gegen die globale_
+_Weltordnung leisten, fordere ich: Tötet sie!“ Echt „nett“ dieser Herr._
+Die Pläne zur Zerstörung der europäischen Völker sind aber schon viel älter. Der Anthropologe Dr. **Earnest Hooton**
+forderte in den 1940er-Jahren den deutschen Nationalismus einerseits durch Reduzierung der Geburtenzahl,
+andererseits durch „massenhafte Einwanderung“ – insbesondere durch nichtdeutsche Männer – zu zerstören. Damit
+sich kein großer Widerstand in der deutschen Bevölkerung rege, solle diese Umzüchtung langsam vonstattengehen.
+Der katholische Freimaurer Graf Richard Nicolaus von Coudenhove-Kalergi hat sich bereits in den 1920er-Jahren
+stark für ein „Pan-Europa“ engagiert, unter Einschluss der afrikanischen Kolonien, das nach seinen <geistigen> (Anm.
+bewusstseinsmässigen) Ergüssen von „Mischlingen“ einer „eurasisch-negroiden Zukunftsrasse“ bevölkert sein solle.
+Der Bankier Max Warburg bot Kalergi damals die beachtliche Summe von 60 000 Goldmark an, für einen Zeitraum
+von drei Jahren, um die pan-europäische Bewegung voranzutreiben. Der Kalergi-Plan stieß nach Ende des Zweiten
+Weltkriegs auf großes Interesse beim damaligen englischen Premierminister Winston Churchill, der Kalergis Vision als
+Basis zur Schaffung der „Vereinigten Staaten von Europa“ hernahm. Und was haben wir heute? Die Europäische Union!
+Wussten Sie übrigens, dass Angela Merkel den Europapreis 2010 der _Europa-Gesellschaft Coudenhove-Kalergi_
+verliehen bekam? Dieser Preis wird alle zwei Jahre für „außerordentliche Verdienste im europäischen
+Einigungsprozess“ verliehen.
+
+
+-----
+
+**Warum dieser Ausrottungswahn gegen die Deutschen und Europäer? Ein Tempelritter packt aus…**
+
+
+Hierzu befragte ich für mein Buch „Wenn das die Menschheit wüsste …“ ein Mitglied eines Templerordens, den ich auf
+einem Kongress in Großbritannien kennenlernte. Folgende Aussagen machte er dazu (stark gekürzt):
+„(…) Meine Meinung ist, dass ein nationales Volk eben aufgrund seiner Herkunft und Kultur ein besseres
+_Zusammengehörigkeitsgefühl aufbringen kann – man möge es als die ‚vereinende Kraft des Volkes’ bezeichnen – als_
+_ein,Mischmasch’, der sich nirgends zugehörig fühlt und sich somit auch nicht wirklich für den Erhalt einer Nation_
+_einsetzen würde. Tatsache ist: Jeder Mensch bezieht seine Kraft von dort, wo seine Wurzeln sind. Also aus dem Land,_
+_in dem er geboren wurde. Des Weiteren greift er über seine Ahnenspur (Blut, Genetik) auf einen reichhaltigen Fundus_
+_an Wissen und Erfahrungen zurück. Ich würde dies als angesammeltes und vererbtes,Volkswissen’ bezeichnen,_
+_sofern die nationale Ahnenspur weitestgehend lückenlos ist. So, und geht man jetzt her und unterbricht überall in_
+_einem Volk diese Ketten, diesen Zugang zum alten (spirituellen) Wissen, mit nicht-spirituellen Elementen bzw. jenen_
+_Elementen, die von sich aus nichts zu bieten haben an Intellekt und Spiritualität, so entstehen Nachkommen, die,_
+_zumindest genetisch betrachtet, nicht den vollen Umfang an Möglichkeiten,in die Wiege gelegt’ bekommen haben, um_
+_das etwas veranschaulichender zu beschreiben. (…)_
+_Es strömen massenweise Menschen ins Land, die weder eine Schulbildung vorweisen können, noch kulturelle Werte_
+_mitbringen – uns also nicht ‚bereichern’ – und zudem mit einem großen Hass- und Aggressionspotenzial nach Europa_
+_kommen. Und diese bekommen im Laufe der Zeit Kinder mit Einheimischen. Eine hoch entwickelte Seele könnte sich_
+_womöglich zweimal überlegen, ob sie in solch eine Familie noch inkarnieren und sich diesem Aggressionspotenzial_
+_hingeben will. (…) (Anm. Billy: Seele entspricht der Psyche, die nicht inkarnationsfähig ist, denn eine Inkarnation ist nur dem_
+Bewusstseinsblock mit einer neuen Persönlichkeit vorbehalten, und zwar auch nur im Zusammenhang mit der Reinkarnation der
+entsprechenden Geistform.)
+_Grundsätzlich gibt es aber auch in der geistigen Welt eine hierarchische Struktur unter den Seelen, je nach Grad ihrer_
+_Seelenreife. Eine,germanische’ Seele, vereinfacht formuliert, wird tendenziell weniger in Afrika inkarnieren wollen,_
+_sondern lieber dort, wo es an seine spirituelle und geistige Entwicklung anknüpfen und sich weiterentwickeln kann._
+_Durch eine weltweite,Mischrasse’ soll die Möglichkeit den höher entwickelten Seelen anscheinend versperrt werden,_
+_damit sich durch das jahrtausendealte Wissen das Positive in der Welt nicht weiter ausbreitet. Die herrschende_
+_Machtclique denkt eben Jahrhunderte im Voraus.“_
+
+
+**Ich wollte wissen, was das alles für uns in Deutschland bedeutet, worauf er entgegnete:**
+
+
+„Eine ganze Menge und nichts zum Guten hin. (…) Doch damit werden nicht nur,bloß’ Menschen nach Deutschland
+_und Europa importiert, sondern Armutsenergien, Armuts- und Mangelbewusstsein sowie Kriegsenergien! Dazu gesellen_
+_sich Hass- und Aggressionsenergien. (…) Und hier noch ein weiterer Aspekt bei der Sache: Es werden auch neue_
+_Krankheiten nach Europa importiert, die es auf unserem Kontinent nicht gab bzw. nicht mehr gab. Gehen Sie hin und_
+_fragen Sie mal Ärzte in Krankenhäusern, die viele Migranten behandelt haben. Viele von ihnen waren teilweise ratlos ob_
+_der mitgebrachten Krankheiten und Symptome. (…)_
+
+_Das, was gerade in Europa abläuft, ist aber eine_ **_Zwangseinwanderung von Migranten mit der gezielten_**
+_Einschleusung von Massen an Leuten – fast ausschließlich jungen, kampferprobten und fortpflanzungswilligen Männern_
+_– aus Kulturkreisen, die teilweise völlig konträr bzw. schlichtweg,inkompatibel’ zu den Kulturen der europäischen_
+_Nationalstaaten sind. Dafür sind die Völker auf diesem Planeten doch noch zu unterschiedlich. Das ist nicht schlimm_
+_und nicht unbedingt von Nachteil und soll jetzt auch nicht falsch verstanden werden. Die zahlreichen verschiedenen_
+_Kulturen bereichern unseren Planeten enorm, und sie sind alle Teil der <göttlichen> Schöpfung und Vielfalt. Es ist_
+_sicherlich nicht dem blanken Zufall überlassen, dass die so zahlreichen Kulturen auf diesem großen Erdball überall_
+_verteilt leben und jedes Volk sich dabei frei entwickeln und entfalten kann und sollte, für sich und auch im friedlichen_
+_und vor allem respektvollen Nebeneinander mit anderen Völkern, gemäß seines <seelischen> Entwicklungsstands._
+Abschließend wollte ich wissen, was seinem Kenntnisstand nach das Universum bzw. die <göttliche> Schöpfung über
+die verschiedenen Rassen auf unserem Planeten denken würde. Hierzu meinte er:
+„Es ist der Wille der Schöpferkraft bzw. der <göttlichen> Quelle, dass es viele verschiedene Rassen auf der Erde gibt.
+_Denn all die verschiedenen Rassen, Nationen und Kulturen ermöglichen es den <Seelen>, die hierher kommen, ein_
+_sehr breites Spektrum an Erfahrungen zu sammeln und verschiedenste Lernprozesse durchzumachen, welche_
+_notwendig sind, damit die <Seelen> sich überhaupt erst umfassend weiterentwickeln und heranreifen können. Wer_
+_jetzt diese Vielfalt an Völkern abschaffen und einen multikulturellen Einheitsbrei erschaffen will, nimmt willkürlich allen_
+_<Seelen> die Möglichkeit, dieses breite Spektrum an Erfahrungen zu durchleben und handelt somit gegen das_
+_<göttliche> bzw. schöpferische Prinzip. Das ist FALSCH und muss mit allen Mitteln verhindert werden. Die Bewahrung_
+_unserer europäischen Kulturen, unserer Völker und unserer <geistigen> Fähigkeiten ist unser Geburtsrecht und ihre_
+_Verteidigung gleichzeitig unsere oberste Pflicht!_ **_Dasselbe gilt für jedes andere Volk auf der Erde, denn jede_**
+_Rasse hat eine Daseinsberechtigung. Jede Rasse ist in meinen Augen gleich wertvoll und sei es, dass wir uns_
+_gegenseitig zumindest bestimmte Lernprozesse ermöglichen, damit wir alle endlich aus unserem Tiefschlaf_
+_erwachen.“_
+
+
+-----
+
+Das sind schon heftige, aber interessante Aussagen, die mich lange grübeln ließen. Man mag von Spiritualität halten
+was man will, aber hat dieser Mann recht mit seinen Ausführungen? Der US-Kongressabgeordnete Steve King
+appellierte jedenfalls in einem kürzlichen Interview mit dem Journalisten Hagen Grell an die Deutschen:
+„Seid stolz auf Eure Kultur, auf Eure Sprache und Eure Geschichte. (…) Die Deutschen sind die Eingeborenen dieses
+_Landes. Es ist Euer Land und Euer Grund. Es ist Eure Geschichte und Eure Kultur und Ihr habt das Recht und auch_
+_tatsächlich die Pflicht, alle diese wertvollen Anteile zu bewahren, und Eure Kultur und Gesellschaft für die kommenden_
+_Generationen zu verbessern.“_
+Aber was meinen Sie, werte Leserinnen und Leser zu den Aussagen des Tempelritters und von Steve King? Stimmen
+Sie mit ihnen überein oder haben diese Männer in einigen oder allen Punkten unrecht?
+Weitere brisante Hintergründe zum Thema „Masseneinwanderung“ und „Islamisierung“ sowie zu vielen weiteren
+politisch „unbequemen“ Themen finden Sie in meinen Bestsellern „Wenn das die Deutschen wüssten…“ und „Wenn das
+die Menschheit wüsste…“.
+
+**_Red.:_** _Dieser Beitrag stellt ausschließlich die Meinung des Verfassers dar. Er muss nicht zwangsläufig die Meinung des Verlags_
+_oder die Meinung anderer Autoren dieser Seiten wiedergeben. Quelle: https://www.epochtimes.de/meinung/ist-massenmigration-_
+_gegen-goettliche-rassenvielfalt-brisante-aussagen-eines-tempelritters-a2680047.html?meistgelesen=1_
+
+## Angela Merkel: Weg mit der Flüchtlingskrise!
+Max Erdinger, 21. Oktober 2018 Brennpunkt 81
+
+**Wenn es noch eines Beweises für den völligen Realitätsverlust der Bundeskanzlerin bedurft hätte – in**
+**Leinefelde-Worbis hat sie einen geliefert. Eigentlich wollte CDU-Chefin Angela Merkel nur Wahlkampfhilfe**
+**für ihre Parteifreunde in Thüringen leisten. Doch dann machte sie erst einmal ihrem Frust Luft.**
+
+"Hallo Welt, ich bin´s, die Angela!" (Foto: Collage/Shutterstock)
+
+CDU-Chefin Angela Merkel war nach Thüringen gereist, um ihre Parteifreunde nach der Wahlschlappe der CSU in
+Bayern aufzurichten. Ihren angestauten Frust brachte sie aber mit. Der ewige parteiinterne Streit über die
+Flüchtlingskrise von 2015 zehrt an den Nerven der Bundeskanzlerin. Es gebe zwar in der Migrationspolitik „noch
+Probleme“, so Merkel am Samstag, vor allem aber seien seit 2015 „riesige Fortschritte“ zu verzeichnen.
+Außer CDU-Funktionären weiß vielleicht noch der Geier, wovon die Frau redet. Dem Bürger kommt eine solche
+realitätsfremde Selbstbeweihräucherung eher vor wie das Pfeifen im Walde. Das geht schon mit der Formulierung
+„Flüchtlingskrise **von 2015″ los. Jeder Zeitungsleser weiß, daß es die Flüchtlingskrise** **seit 2015 ist. Der einzige**
+riesige Fortschritt, den der Bürger erkennen kann, ist der, daß es beim regierungsamtlichen Bemühen vorangeht, aus
+Illegalität Legalität zu machen. Ein sehr fragwürdiger Fortschritt. Im Dezember steht die Unterzeichnung des Globalen
+Migrationspakts an. Wenn Angela Merkel bis dahin noch im Amt ist, wird ihn Deutschland vermutlich mitunterzeichnen.
+Von wegen, es gebe derzeit „noch Probleme“, aber auch „riesige Fortschritte“.
+Aber gut, Merkel sprach in Thüringen nicht zu den Bürgern, sondern zu CDU-Funktionären. Merkel mahnte
+beispielsweise, keine Zeit mehr zu verplempern. Der Bürger – nicht so der CDU-Parteifunktionär – fragt sich, warum
+jemandem nach Jahren der Zeitverplemperung einfällt, daß er ab sofort damit aufhören will. Die Parteivorsitzende:
+„Wenn wir uns für den Rest des Jahrzehnts damit beschäftigen wollen, was 2015 vielleicht so oder so gelaufen ist und
+_damit die ganze Zeit verplempern, dann werden wir den Rang als Volkspartei verlieren. Deshalb fordere ich, dass wir_
+_uns jetzt um die Zukunft kümmern.“_
+Abgesehen davon, daß 2015 nichts „vielleicht so oder so gelaufen“ ist, sondern ganz genau so, wie es lief: Diese Frau
+kann nicht einmal mehr erkennen was bereits verloren ist Während man in ganz Europa vom Verschwinden der
+
+
+-----
+
+Volksparteien redet und bereits verschwundenen Volksparteien mit dem Fernglas hinterherschaut, und während die
+Union neuesten Umfragen zufolge bundesweit bei lediglich noch 25 Prozent dümpelt – und zwar mit weiter fallender
+Tendenz –, schwadroniert die Abgehobene davon, daß erst in der Zukunft verloren werden könnte, was jetzt bereits
+weg ist. Gipfel der Selbstverkennung war Merkels Mahnung, die CDU dürfe „nicht zu sehr um sich selbst kreisen.“
+Das muß wohl ein Vorrecht sein, das sie für sich selbst reserviert hat, ohne daß ihr das je zu Bewußtsein gekommen
+wäre. Die Frau muß schließlich seit Jahren so tun, als habe sie Überzeugungen, die auf rationaler Überlegung beruhen.
+Frau Merkel hat sich im Spiegel ihrer Äußerungen der letzten fünfzehn Jahre offensichtlich noch nie gefragt, ob sie
+selbst sich heute auch nur noch ein einziges Wort glauben würde, wenn sie ein ganz normaler Bürger wäre.
+Offenkundig unfähig zu jedweder Selbstreflexion, ist es hauptsächlich die Kanzlerin, die um sich selbst kreist. Insofern
+ist ihre Mahnung an die thüringischen CDU-Funktionäre furchteinflößend, weil sie dokumentiert, daß Merkel durchaus
+klar ist, wie sehr man um sich selbst kreisen kann – und daß sie dennoch nicht daran denkt, sich diesbezüglich selbst
+infrage zu stellen.
+Das typische Merkel-Geschwätz kannte daher auch in Leinefeld-Worbis wieder keine Grenzen, und so fuhr sie fort mit
+der folgenden Äußerung: „Seit einem Jahr beschäftigen wir uns in viel zu hohem Maße damit, ob wir beleidigt sein
+_sollen über das Wahlergebnis“. Attraktiv, so die Kanzlerin, seien für Wähler lediglich solche Parteien, die optimistisch_
+in die Zukunft blicken.
+Das wiederum war lediglich in der Formulierung eine kleine Abweichung vom politischen Standardsatz der
+Abgewählten, der sonst immer lautet: „Wir müssen jetzt nach vorne schauen.“ Merkel sagte eben „jetzt um die Zukunft
+kümmern“ oder „optimistisch in die Zukunft blicken“. Als ob auch nur eine einzige Wählerstimme davon abhinge, wie
+Politiker aus der Wäsche heraus in die Zukunft schauen. Daß Merkel es darüber hinaus für eine von mehreren
+Optionen hält, nach einer Wahlschlappe „beleidigt“ zu sein, anstatt selbstkritisch nach den Ursachen zu fragen, spricht
+Bände über den Geisteszustand (Anm. Bewusstseinszustand) einer Frau, die neben keinem klaren Gedanken auch keinen
+einzigen geraden Satz herausbringt. In Leinefeld-Worbis dokumentierte die Bundeskanzlerin damit einmal mehr, wer
+Deutschland regiert: Eine Frau, die jeden Bezug zur Realität verloren hat, so sie jemals einen gehabt haben sollte.
+Und so ging es weiter im einschläfernden Merkel-Singsang: „Nur dafür werden wir gewählt, für nichts anderes. Die
+_Menschen wollen von uns, dass wir mit Zuversicht in die Zukunft blicken, ohne uns die Welt schön zu malen.“ Wollte_
+man das ernst nehmen, dann müsste man also glauben, „die Menschen“ wählten eine Partei danach, wie die
+Funktionäre schauen – und daß Zuversicht auch denkbar wäre, wenn man die Welt in den dunkelsten Farben malt.
+Dennoch gab es von den Parteifreunden stehenden Applaus für die CDU-Vorsitzende. Den Normalbürger erinnert das
+alles an das Wort „Sportpalastrede“. Oder an die Volkskammer der DDR nach einer Rede der Staatsratsvorsitzenden.
+Im Grunde hat Merkel mit „die Menschen wollen, daß die CDU zuversichtlich …“ nichts anderes gesagt, als daß sie
+davon überzeugt ist, „die Menschen“ schauten zu einer Führerin hoch, von der sie erwarten, daß sie – und nur sie –
+zuversichtlich nach vorne schaut, ganz egal, womit „die Menschen“ selbst in die Zukunft schauen. Und wenn es die
+Arschkarte ist, die sie zu diesem Zweck in eine Brille umfunktionieren müssen.
+Nach den CDU-Parteifreunden kam dann die eigene Imagepflege an die Reihe. Es war an der Zeit, sich „bürgernah zu
+zeigen“. Wie geht das in Zeiten der allgegenwärtigen Handykamera? Frau Bundeskanzlerin stellt sich neben die
+„einfachen Leute“ und gestattet, daß diese Selfies von sich und der Kanzlerin machen. Wie lange gestattet sie das?
+Solange, wie sie von der Presse bei der Simulation von Bürgernähe per Selfie fotografiert wird, auf daß das Bild der
+„bürgernahen Kanzlerin“ Verbreitung finde. Es kommt aber nicht darauf an, wie sie sich zeigt, sondern darauf, wie sie
+ist. Und das ist mit „extrem bürgerfern“ noch sehr schmeichelhaft umschrieben. Leute, die Bürgernähe lediglich
+**zeigen, nennt man Schauspieler. Ein Selfie, von dem nicht bekannt wird, daß Frau Merkel es mit sich hat schießen**
+lassen, ist für die Kanzlerin völlig wertlos. Jeden Tag werden hundert Fotos von ihr geschossen, die sie sich
+anschauen könnte, ohne je selbst eines schießen zu müssen. In Leinefeld-Worbis durfte der Fahrer eines
+bereitstehenden Rettungswagens Selfies von sich und der Kanzlerin anfertigen. Der einzige realistische
+Erkenntnisgewinn daraus ist also der, daß es Fahrer von Rettungswagen gibt, die keinen Stolz haben und denen es
+vor überhaupt nichts graust.
+Hintergrund der ganzen Show sind sog. „Flügelkämpfe“ in der CDU, nicht etwa Kämpfe der parteiinternen Realisten
+gegen die Illusionisten. Angela Merkel wird in der internationalen Presse jedoch bereits als „lame duck“ gehandelt, als
+„lahme Ente“ also. Lahme Enten haben es so an sich, daß sie von Flügelkämpfen nicht viel halten. Weil sie die nur
+verlieren können.
+Man muß sich aber nicht wundern, daß Deutschland noch immer eine Bundeskanzlerin hat, die weder logisch denken,
+noch vernünftig sprechen kann. Grund für ihre Förderung in der Nachwendezeit durch Helmut Kohl ist schließlich nicht
+gewesen, daß sie besonders aufrichtig, besonders intelligent oder mit einem Übermaß an objektiver Urteilskraft
+gesegnet gewesen wäre. Der einzige Grund war: „Sie ist eine Frau – und sie kommt aus dem Osten.“ Angela Merkel
+belegte mit ihrem Auftritt in Thüringen wieder einmal eindrucksvoll, was dabei herauskommt, wenn man
+Entscheidungen entlang schwachsinniger Kriterien trifft. Armes Deutschland. Nach wie vor werden tagtäglich Bürger
+von illegalen Migranten niedergestochen, erpresst, ausgeraubt und ins Krankenhaus geprügelt. Die Kosten von
+Merkels völlig irrationaler Migrationspolitik steigen derweil ins Astronomische. Der Albtraum nimmt einfach kein Ende.
+Für die Abgehobene im Kanzleramt sind das alles „noch Probleme“ bei gleichzeitigen „riesigen Fortschritten“. Sie
+**zeigt also Bürgernähe. Die Frau ist die personifizierte Heimsuchung.**
+Quelle: https://www.journalistenwatch.com/2018/10/21/angela-merkel-schluss/
+
+
+-----
+
+## Russland, Putin: Russland hat Rivalen mit präzisen Hyperschallwaffen übertroffen – weitere in wenigen Monaten
+
+
+21.10.2018 • 10:21 Uhr  https://de.rt.com/1o51
+
+
+Eine Computeranimation stellt den Hyperschallgleiter dar. Das genaue Aussehen ist noch geheim.
+
+
+Die neuen Hyperschall-Gleitflug-Gefechtsköpfe des Typs Avangard stehen nur noch wenige Monate vor ihrem Einsatz
+beim Militär, sagte der russische Präsident Wladimir Putin und fügte hinzu, dass Russland das erste Land der Welt sei,
+das die bahnbrechende Technologie entwickelt hat.
+Ein Hyperschall-Gleiter ist eine Art Geschoss, das in der oberen Atmosphäre mit Geschwindigkeiten jenseits von Mach
+5 fliegen und manövrieren kann. Dies macht es schwieriger, sie abzufangen – besonders im Vergleich zu
+gewöhnlichen Gefechtsköpfen, die sich dem Ziel über eine vorhersehbare ballistische Flugbahn nähern. Die von
+Russland entwickelte Variante des Systems heißt Avangard und wird in wenigen Monaten zum Einsatz im Militärdienst
+bereit sein, so Putin.
+"Als Reaktion auf die Entwicklung von Raketenabwehrsystemen durch die USA verbessern wir unsere
+Angriffsmöglichkeiten. Einige sind bereits in Betrieb, andere werden bald eingesetzt", erklärte er während des
+diesjährigen Waldai-Disskussionsklubs in Sotschi. Die Avangard-Stationierung wird "innerhalb weniger Monate"
+erfolgen, sagte Putin.
+Das Fliegen mit Hyperschallgeschwindigkeit stellt die Materialwissenschaften und den Maschinenbau aufgrund der
+hohen Temperaturen und des Drucks, die den Flugkörper beeinflussen, vor eine Reihe von Herausforderungen.
+Russland hat seine Technologien eingesetzt, um einen Hyperschall-Marschflugkörper namens Kinzhal zu entwickeln,
+der bereits beim Militär im Einsatz ist. Es wird angenommen, dass es sich um eine Gegenmaßnahme zu den
+Flugzeugträgergruppen handelt – dem Rückgrat der USA, wenn es darum geht, weltweit militärische Macht zu
+demonstrieren. Laut Putin ist Russland anderen Nationen in Bezug auf hypersonische Waffen voraus.
+"Wir wissen es mit Sicherheit, es ist eine offensichtliche Tatsache und unsere Kollegen realisieren es, dass wir in
+diesem Bereich alle unsere Wettbewerber übertroffen haben. Niemand hat präzise hypersonische Waffen. Einige
+planen, ihre in 18 bis 24 Monaten zu testen. Wir haben sie bereits im Einsatz", sagte er.
+
+Test einer Sarmat Interkontinentalrakete
+
+Avangard und Kinzhal waren zwei von mehreren fortschrittlichen Waffensystemen, die Putin im März präsentierte. Die
+Präsentation gilt als Reaktion Russlands auf das Versäumnis der USA Bedenken auszuräumen dass die Entwicklung
+
+
+-----
+
+von ABM-Technologien durch Washington die atomare Abschreckung Russlands untergräbt. Ein weiteres war der
+Sarmat ICBM (interkontinentaler ballistischer Flugkörper), der kurz vor dem Einsatz steht und als erster Träger für
+Avangard-Sprengköpfe dienen soll.
+Andere futuristische Waffensysteme, von denen Putin sagte, dass sie sich in der Entwicklung befinden, beinhalten
+einen nuklearbetriebenen Marschflugkörper und eine nuklearbetriebene Unterwasserdrohne, die beide auf einem
+miniaturisierten Kernreaktor basieren. Der russische Präsident sagte auch, dass an einem Kampflaser gearbeitet wird,
+obwohl noch nicht geklärt ist, welche Rolle er erfüllen soll.
+Quelle: https://deutsch.rt.com/russland/77941-putin-russland-hat-rivalen-mit/
+
+## Ist Wladimir Putin böse? (2/3)
+Alex Krainer The Naked Hedgie Mi, 26 Sep 2018 11:04 UTC
+
+Wladimir Putin wurde fast von Beginn seiner Präsidentschaft an in den westlichen Medien unerbittlich verunglimpft.
+Wenn ihre Darstellung von Herrn Putin die objektive Wahrheit widerspiegeln würde, müssten wir glauben, dass der
+Mann überhaupt keine positiven Eigenschaften hätte. Im ersten Teil dieser Serie von Auszügen aus "Grand Deception"
+habe ich bereits erwähnt, dass **die systematische Dämonisierung eines Staatsoberhauptes viele Menschen**
+**dazu bringt, einem Krieg oder Regime Change zuzustimmen, um einer betroffenen Nation zu helfen, sich**
+**von einem missratenen, tyrannischen Führer zu befreien. Wenn wir Wladimir Putin verabscheuen, würden wir es**
+vielleicht viel eher begrüßen, wenn er von unseren Geheimdiensten mit einem inszenierten Putsch aus dem Amt
+entfernt werden würde, selbst wenn dabei ein paar Russen ums Leben kämen. Es sollte eine ehrenvolle Tat sein, die
+einem höheren Ziel dient. Diejenigen, die verzweifelt einen Regierungswechsel in Russland anstreben, sollten sehr
+darauf bedacht sein, dass wir Herrn Putin verabscheuen. Das erklärt die ununterbrochen undifferenzierte und negative
+Berichterstattung. Hier möchte ich eine andere Perspektive anbieten: Was, wenn Putin kein Erzbösewicht ist? Was,
+wenn er tatsächlich positive Eigenschaften hat? Sollten wir nicht versuchen, den Mann ein bisschen besser
+kennenzulernen, bevor wir einen weiteren Regime Change oder Krieg vom Zaun brechen, um die Welt von Tyrannen zu
+befreien?
+
+© Kremlin
+
+Nach Angaben seines Sicherheitschefs Alexander Korzhakov arbeitete Boris Jelzin etwa zwei Stunden pro Tag. Den
+Rest verbrachte er mit Essen, Trinken, Tennisspielen, Jagen oder irgendeinem anderen Zeitvertreib. Berichten zufolge
+**arbeitet Wladimir Putin ungewöhnlich lange und mehrere seiner Berater und Minister haben bestätigt, dass sie**
+bis spät in die Nacht mit ihm zusammenarbeiten und dann am frühen Morgen des darauffolgenden Tages einen Anruf
+von ihm bekommen. Der Exilbankier und ehemalige Oligarch Sergej Pugatschow beschrieb seine Erfahrungen wie
+folgt:
+"...es ist kaum vorgekommen, dass wir mal nicht zusammen waren, wir haben uns jeden Tag getroffen – vom frühen
+Morgen bis spät abends, bis 3 oder 4 Uhr morgens, jeden Tag, jeden Tag. Natürlich haben wir über Fragen der
+staatlichen Geschäftsentwicklung, der Wirtschaftslage und so weiter diskutiert. Putin brauchte jemanden, der etwas
+von diesen Dingen verstand und sich gut damit auskannte." (Harding, Smith und Maynard 2015)
+Einige seiner Berater und Minister berichteten, dass sie sich mit ihm trafen, um eine Angelegenheit in ihrem eigenen
+Fachgebiet zu besprechen, und dann verwundert feststellten, dass Putin ein viel umfassenderes Verständnis
+**eben jener Angelegenheit an den Tag legte, als sie selbst es taten. Da Wladimir Putin sich mit solcher Hingabe**
+seinem Beruf widmet, kann er auch seine berühmten Marathon-Pressekonferenzen abhalten, bei denen er drei oder
+vier Stunden lang spricht und ohne Teleprompter die Fragen der Journalisten mit genauen und detaillierten
+
+
+-----
+
+Informationen beantwortet. Sein 14. jährlicher Call-in-Marathon im Jahr 2016 dauerte 3,5 Stunden, wobei er 80
+Fragen aufgriff und beantwortete! **Die meisten westlichen Politiker wagen es nicht mal mehr, öffentliche**
+**Foren ohne vorgefertigte und geprobte Reden zu besuchen, die sie von Telepromptern ablesen, und sie**
+nehmen nur noch eine Handvoll Fragen von ihnen gewogenen Reportern entgegen, bevor ihre Begleiter sie rechtzeitig
+zurückpfeifen, sodass es nicht zu einer potentiell peinlichen Situation kommt.
+
+**Terrorismusbekämpfung**
+Russland und die Vereinigten Staaten haben im 21. Jahrhundert eine große Gemeinsamkeit: Die Kriege, die sie jeweils
+gegen den Terrorismus führen. Als die Vereinigten Staaten ihren Krieg gegen den Terror nach Afghanistan und in den
+Irak brachten, führte Russland in Tschetschenien seinen eigenen Krieg gegen den Terror, der von August 1999 bis
+April 2009 dauerte – fast zehn Jahre lang. Im Sommer 2015, nur sechs Jahre nach Einstellung der Feindseligkeiten,
+besuchte der Korrespondent der Zeitschrift <Time>, Simon Shuster, Tschetschenien. Er berichtete folgendes:
+"Tschetschenien hat eine bemerkenswerte Transformation durchlaufen. Seine Städte wurden mit Moskauer Geldern
+wieder aufgebaut. Sämtliche Überreste seiner separatistischen Rebellion sind ausgemerzt worden." (Shuster und
+Martinelli 2015)
+
+**Tschetschenien hat unter Putin tatsächlich den größten Wohlstand erreicht, den es** **_jemals hatte. Der_**
+Videoclip, der in Shusters Artikel eingebettet ist, erzählt wie:
+"Die Kinder, die heutzutage in Tschetschenien aufwachsen, haben viel mehr Glück als ihre Eltern und Großeltern.
+Zumindest die Jüngsten kennen ihre Heimat als einen friedlichen und sogar recht schönen Ort, reich an gewaltigen
+Moscheen und Wolkenkratzern, Einkaufsvierteln und Fastfood-Läden."
+Im Gegensatz dazu **hat der amerikanische Krieg gegen den Terror Chaos und Unruhe in allen Nationen**
+**hinterlassen, die davon betroffen sind, angefangen von Afghanistan und Irak bis hin zu Libyen, Syrien, Jemen,**
+Somalia und Sudan. Der Kosovo, der seit dem Jahr 2000 ein de facto amerikanisches Protektorat ist, ist heute die
+ärmste und korrupteste Nation in Europa mit massiver Bevölkerungsabwanderung und einer Arbeitslosigkeit von über
+35%. Der ewig scheinheilige Westen hat Wladimir Putin in seinem Kampf gegen tschetschenische Terroristen (die sie
+normalerweise "Rebellen" oder "Separatisten" nennen) häufig der Hartherzigkeit beschuldigt, aber das ist ein
+willkürlicher und bedeutungsloser Vorwurf. Westliche Analytiker mögen vielleicht wissen, was einen sanften Krieg
+gegen den Terror von seiner rücksichtslosen Variante unterscheidet, aber dies ist eine sinnlose Debatte, die ich gerne
+beenden möchte, indem ich vorschlage, "sie an ihren Früchten zu erkennen". Die gestörte Denkweise der Gläubiger
+Griechenlands trat während der Gruppensitzung in Brüssel im März 2015 zutage.
+
+**Erlass der Schulden für Kuba**
+Als Wladimir Putin 2014 Kuba besuchte, erließ er 90 Prozent der 32 Milliarden Dollar an Schulden, die Kuba
+**Russland aus der Sowjetzeit schuldete. Es ist denkbar, dass es eine kalkulierte Geste gewesen sein könnte, für**
+die es ein für Russlands Interessen günstiges Motiv gab. Dennoch war die Geste bemerkenswert, denn damals hatten
+westliche Gläubiger unter der Führung des IWF Griechenland ein grausames und unmenschliches Sparprogramm
+aufgezwungen, damit es die eigenen Schulden vollständig zurückzahle. Derselbe IWF, der zwanzig Jahre zuvor
+Russland geplündert hatte, zwang nun Griechenland zu einer wirtschaftlichen Strangulierung, die ähnliche
+Auswirkungen auf dieses Land hatte wie es in den 90er Jahren in Russland der Fall gewesen war.
+Da Griechenland Gefahr lief, der Erfüllung seiner Schuldenverpflichtungen nicht nachzukommen, legte die Delegation
+der Gläubiger dem griechischen Finanzminister Yanis Varoufakis nahe, dass seine Regierung durchaus in der Lage
+wäre, ihre Schulden zu bedienen, wenn die Auszahlung von öffentlichen Angestelltengehältern und Renten für zwei
+
+
+-----
+
+Monate ausgesetzt würde. Die Idee, das Geld einfacher Griechen zu stehlen, schien die einfallsreichen Gläubiger
+Griechenlands weder zu beunruhigen noch in Verlegenheit zu bringen.
+Eineinhalb Jahre später, im November 2016, stattete der "Führer der freien Welt", US-Präsident Barack Obama,
+Griechenland seinen letzten offiziellen Besuch ab. Dabei bot er weder Hilfe noch den Erlass von Schulden an.
+Stattdessen rieb er mehr Salz in die Wunden des Landes, indem er bekräftigte, dass Griechenland die Sparpolitik
+weiter vorantreiben müsse, welche die Wirtschaft des Landes bereits in eine erdrückende Depression gestürzt hatte.
+Unabhängig von Motiven und nationalen Interessen stand die Geste von Wladimir Putin in Kuba in krassem Gegensatz
+zu der Geste der griechischen Gläubiger und des US-Präsidenten Obama. **Im Wesentlichen** **war Wladimir Putins**
+**Geste gegenüber Kuba großzügig und human. Dagegen war der Umgang des Westens mit Griechenland**
+unmenschlich und grausam.
+
+**Asyl für Edward Snowden**
+Im Juni 2013 enthüllte Edward Snowden, Vertragspartner der U.S. National Security Agency (NSA), die enorme
+Reichweite des globalen Überwachungsprogramms der NSA, welche nahezu die gesamte elektronische und
+telefonische Kommunikation, sowohl von gewöhnlichen, gesetzestreuen Amerikanern als auch von ausländischen
+Bürgern illegal erfasste. Die Offenlegung der Geheimnisse des amerikanischen (und britischen) Überwachungsstaates
+machte Edward Snowden über Nacht zu einem gesuchten Mann, woraufhin die CIA eine ihrer größten Menschenjagden
+aller Zeiten veranstaltete. Um der Festnahme zu entgehen, nahm Snowden am Sonntag, den 23. Juni 2013, einen
+Aeroflot-Flug von Hongkong nach Moskau. Sein Plan war es, nach Kuba zu fliegen und von dort aus in ein anderes
+südamerikanisches Land wie Venezuela oder Ecuador zu gelangen. Die US-Regierung beschuldigte ihn der Spionage
+und begann umgehend, verschiedene Regierungen auf der ganzen Welt unter Druck zu setzen, Snowden zu fassen
+und auszuliefern. Als das Flugzeug aus Hongkong auf dem Moskauer Flughafen Scheremetjevo landete, annullierten
+die amerikanischen Behörden seinen Reisepass, so dass er seine Reise von Moskau aus nicht mehr fortsetzen konnte
+und sein Verbleib nicht mehr eindeutig feststellbar war.
+Zwei Tage später, am 25. Juni, bestätigte Wladimir Putin, dass sich Snowden noch immer in Scheremetjewo befinde,
+dass er ein freier Mann sei, dass er sein Endziel selbt bestimmen könne und dass Russland ihn nicht verhaften oder
+ausliefern werde. Die US-Regierung verbrachte die folgenden Tage damit, über verschiedene Kanäle ihre russischen
+Gegenspieler dazu zu bringen, Snowden zu ergreifen und auszuliefern. Die Amerikaner waren so begierig darauf,
+Snowden zu fassen, dass sie in der Annahme, dass er mit dem Präsidentenjet des bolivianischen Präsidenten Evo
+Morales aus Russland entkommen könnte, den französischen, spanischen, italienischen und portugiesischen Behörden
+befahlen, gegen das Völkerrecht zu verstoßen, indem sie dem bolivianischen Präsidenten den Zugang zu ihrem
+Luftraum verweigerten und sein Flugzeug zwangen, in Wien zu landen, wo Präsident Morales und seine Crew 14
+Stunden lang festgehalten wurden.
+Die Informationen der CIA, dass Snowden sich im Flugzeug befinde, erwiesen sich als falsch, so dass der gesamte
+diplomatische Vorfall nur dazu führte, sowohl die Art der Beziehung zwischen dem Imperium und seinen europäischen
+Vasallen als auch ihre unbekümmerte Haltung gegenüber dem Völkerrecht zu entlarven. Anscheinend sind Gesetze
+dazu da, gebrochen zu werden, wenn die Zweckmäßigkeit des Hegemonats dies gebietet. Für Edward Snowden
+zeigte der Vorfall auch, dass es sinnlos gewesen wäre, bei einem westlichen US-Bündnispartner Asyl zu beantragen,
+da sie wahrscheinlich gegen ihre eigenen Gesetze verstoßen hätten, um einem amerikanischen Auslieferungsantrag
+nachzukommen. Infolgedessen hatte Snowden keine andere Wahl, als in Russland zu bleiben und dort Asyl zu
+beantragen. Am 1. Juli erklärte Putin, dass man Edward Snowden in Russland Asyl gewähren würde, unter der
+Bedingung, "unseren amerikanischen Partnern" keinen weiteren Schaden zuzufügen.
+Als ich diese Ereignisse, die sich Ende Juni und im Laufe des Monats Juli 2013 abspielten, verfolgte, fragte ich mich,
+ob die Russen Edward Snowden nicht am Ende doch festnehmen würden, um ihn gegen ein großes Zugeständnis ihrer
+"amerikanischen Partner" einzutauschen, die ja offensichtlich sehr daran interessiert waren, den abtrünnigen
+Whistleblower zu erwischen. Ich erinnere mich noch, wie ich damals dachte, dass das Ergebnis dieses Vorfalls uns
+einen wichtigen Hinweis darauf geben würde, aus welchem Holz Wladimir Putin geschnitzt ist: Würde er das Richtige
+tun und Snowden Asyl und Schutz gewähren oder würde er ihn schließlich doch verraten? Mein Bauchgefühl war, dass
+Putin tatsächlich das Richtige tun würde, aber gleichzeitig schauderte ich bei dem Gedanken, dass ich enttäuscht
+werden könnte. Nach mehrwöchigen Gerichtsverfahren wurde Snowden am 31. Juli 2013 Asyl in Russland gewährt.
+Es ist zum großen Teil Wladimir Putins Prinzipientreue und Mut zu verdanken, sich dem amerikanischen Druck zu
+widersetzen, was dazu führte, dass Edward Snowden heute (Ende März 2017) seit fast vier Jahren als freier Mann in
+Russland lebt. Ohne sein Asyl in Russland würde Snowden heute höchstwahrscheinlich eine sehr lange Haftstrafe
+verbüßen, weil er seine patriotische Pflicht erfüllt hat. Fortsetzung folgt ...
+
+**Über den Autor**
+Alex Krainer ist Hedgefondsmanager und Autor. Sein Buch wurde von Amazon im September 2017 zweimal und
+erneut im August 2018 verboten und ist nun in den Formaten pdf, kindle und epub unter dem folgenden Link erhältlich:
+"Grand Deception: Truth About Bill Browder, the Magnitsky Act and Anti-Russian Sanctions." Die von Red Pill Press
+veröffentlichte Paperback-Version ist ab sofort hier verfügbar. Alex schrieb auch ein Buch über den Rohstoffhandel.
+Quelle: https://de.sott.net/article/33017-Ist-Wladimir-Putin-bose-2-3
+
+
+-----
+
+## Nach US-Rückzug aus Nuklearvertrag: Putin warnt USA und Europa vor Konsequenzen
+
+Sott.net, Do, 25 Okt 2018 08:39 UTC
+
+Nach Trumps Aufkündigung des INF-Vertrages (über nukleare Mittelstreckensysteme) mit Russland hat sich jetzt
+Russlands Präsident Wladimir Putin zu diesen unheilvollen Schritten der Amerikaner während einer Pressekonferenz
+mit dem italienischen Regierungschef Giuseppe Conte am Mittwoch in Moskau geäußert. Er betonte dabei, dass
+Russland dazu gezwungen sei, Gegenmaßnahmen einzuleiten, sollte die USA wie angekündigt aus einem der
+wichtigsten nuklearen Abrüstungsverträge aussteigen.
+
+Auch für Europa könnte dieser wahnsinnige Schritt der USA ernsthafte Konsequenzen haben, sagte Putin, nachdem
+Boliviens Präsident Evo Morales dieses Vorhaben ebenfalls scharf kritisiert und das Kind beim Namen genannt hat:
+"USA ist Feind des Weltfriedens und der Menschenrechte".
+Wenn europäische Staaten nach einem Auslaufen des so genannten INF-Vertrags einer Stationierung von US-Raketen
+auf ihrem Staatsgebiet zustimmen würden, müsse Russland "natürlich auch entsprechend antworten", sagte er. "Ich
+**verstehe nicht, warum es notwendig ist, Europa solch einer Gefahr auszusetzen", sagte der Kremlchef.**
+Der sogenannte INF-Vertrag aus dem Jahr 1987 zwischen den Vereinigten Staaten von Amerika und der damaligen
+Sowjetunion verbietet beiden Parteien den Bau und den Besitz landgestützter, atomar bewaffneter Marschflugkörper
+und Raketen mit einer Reichweite von 500 bis 5500 Kilometern. Die USA werfen Russland vor, mit der Entwicklung
+eines Marschflugkörpers mit dem Namen 9M729 gegen den Vertrag zu verstoßen. Die USA hätten keine Beweise
+**für einen Vertragsbruch von Seiten Russlands, betonte Putin. ~ RT Deutsch**
+Quelle: https://de.sott.net/article/33040-Nach-US-Ruckzug-aus-Nuklearvertrag-Putin-warnt-USA-und-Europa-vor-Konsequenzen
+
+## „Die Welt“ konstatiert „sensationellen“ Wirtschaftsaufschwung in Russland
+
+14:40 27.10.2018(aktualisiert 18:35 27.10.2018)
+
+**Trotz der Verschärfung der westlichen Sanktionen sind die Kennzahlen der wirtschaftlichen Entwicklung in**
+**Russland überraschend positiv. Dies berichtet die Zeitung „Die Welt“.**
+Im dritten Quartal solle Russland einen Leistungsbilanzüberschuss in Höhe von 26,4 Milliarden US-Dollar erzielt haben.
+Dies entspreche 6,5 Prozent des BIP, was ein absoluter Rekord sei. Die Zentralbank erwarte für 2018 einen Überschuss von 98 Milliarden Dollar, so die Zeitung.
+**_„Es kann kaum nach dem Geschmack jener sein, die gehofft hatten, mit den diversen Wirtschaftssanktio-_**
+**_nen einen schnellen und ausschließlich negativen ökonomischen Effekt hervorzurufen._** **_Zumindest kurz-_**
+**_fristig scheint vielmehr das Gegenteil der Fall zu sein: Russlands Wirtschaft und Staatshaushalt befinden_**
+**_sich in einem besseren Zustand als gemeinhin kolportiert“, schreibt „Die Welt“._**
+Die Hauptgründe für die „sensationellen“ Gewinne der russischen Unternehmen und des Haushalts seien vor allem
+steigende Ölpreise und Veränderungen in der Rubel-Dynamik. Der Tradition entgegen entwickle sich die russische
+Währung nicht mehr proportional zum Schwarzgoldpreis. Darüber hinaus habe die Verbilligung des Rubels zu einem
+Anstieg der Preise für importierte Waren geführt, wodurch die inländischen Waren attraktiver wurden. Infolgedessen
+gingen die Importe zurück, während die Exporteinnahmen zunahmen.
+Wie die Zeitung ferner schreibt, könnte es nicht nur der billige Rubel sein, der den gegenwärtigen Überschuss beeinflusste, sondern auch die Fertigstellung großer Investitionsprojekte, wie zum Beispiel der Bau der Krim-Brücke.
+Quelle: https://de.sputniknews.com/wirtschaft/20181027322769335-welt-wirtschaftsaufschwung-russland/
+
+
+-----
+
+## Experte: Vierer-Gipfel zeigt politische Niederlage des Westens
+**POLITIK 15:43 28.10.2018(aktualisiert 15:46 28.10.2018) Zum Kurzlink 15976**
+
+**Die Teilnahme Frankreichs und Deutschlands am Vierer-Gipfel in Istanbul hat die politische „Überlegen-**
+**heit“ Russlands in der syrischen Frage bewiesen, meint der Direktor des Jordanischen Zentrums für stra-**
+**tegische Studien, Amer Al Sabaileh.**
+Das Treffen in der Türkei sei die letzte Gelegenheit für europäische Länder, ihre Position zu Syrien zu ändern, wenn
+sie weitere Parteien der politischen Regelung und des Wiederaufbaus des Landes werden möchten, sagte Sabaileh im
+Interview mit Sputnik.
+**Andere Sputnik-Artikel: Russischer Präsident nennt Zahl von abgeschossenen Terrordrohnen>>>**
+**_„Lasst uns zunächst einverstanden sein, dass heute jeder mit Russland Schritt halten muss, um die Situa-_**
+**_tion in Syrien endgültig zu regeln. Diese Länder (Gipfel-Teilnehmer – Anm. d. Red.) einschließlich der Tür-_**
+**_kei standen auf verschiedenen Ebenen in der Opposition zur russischen Politik. Jetzt hat sich die Position_**
+**_der Türkei geändert, dann hat man sich der Lösung des Idlib-Problems zugewandt, und zurzeit haben sich_**
+**_zwei wichtige Akteure in der internationalen Arena – Deutschland und Frankreich – mit eingeschaltet._**
+**_Diese beiden Staaten haben ohne Zweifel gezeigt, dass sie aus dem Szenario der politischen Regelung_**
+**_in Syrien nicht ausgeschlossen sein wollen“, verriet der Experte._**
+Sabaileh zufolge braucht Ankara wiederum Frankreich und Deutschland, um im Dialog mit Russland ein Gleichgewicht
+zu finden, sowohl in Bezug auf die Idlib-Frage als auch in Bezug auf die Zukunft des ganzen Landes.
+Er bezeichnete den Vierer-Gipfel als eine „erweiterte Version“ der Astana-Gespräche über Syrien.
+**_„Meiner Meinung nach muss jeder am Ende mit der russischen Politik rechnen und daran festhalten. Sie_**
+**_haben am letzten Treffen (in Istanbul) nicht als Sieger teilgenommen, sondern eher als Verlierer, weil sie_**
+**_sich nicht weiter widersetzen können und dazu gezwungen sind, zuzustimmen“, fügte Sabaileh hinzu._**
+Damaskus werde im Laufe der Annäherung Russlands mit bestimmten Ländern höchstwahrscheinlich seine Politik
+gegenüber den Letzteren ändern, erörterte er.
+Die syrische Regierung hat wiederholt erklärt, sie wolle keine Hilfe beim Wiederaufbau des Landes von jenen Staaten
+bekommen, welche die Terroristen und die bewaffnete Opposition unterstützt hätten.
+**_„Ich denke, dass die syrische Position gerechtfertigt ist, aber es muss Veränderungen in der Politik ge-_**
+**_ben. Letztendlich ist Politik die Wissenschaft der Veränderungen, nicht der Konstanten. Ich denke, die_**
+**_Syrer werden ihre Vorteile noch einmal analysieren und ihre Position bezüglich der Teilnehmer am Wie-_**
+**_deraufbauprozess überdenken“, so Sabaileh._**
+**Mehr zum Thema: Türkei: Vierer-Gipfel berät über Friedenslösung in Syrien>>>**
+Sabaileh sei überzeugt, dass in Idlib ein begrenzter Militäreinsatz gegen die dort gebliebenen Kämpfer stattfinden
+werde, denn eine Konfrontation sei seiner Meinung nach die einzig mögliche Entscheidung.
+**_„Viele von denen, die in Idlib geblieben sind, sind Bürger von Ländern der ehemaligen Sowjetunion, zum_**
+**_Beispiel Tadschiken und Usbeken sowie Tschetschenen. Daher ist es ausgeschlossen, dass Russland mit_**
+**_ihnen interagieren oder ihnen erlauben würde, zu gehen. Ansonsten könnten diese Terroristen die Staats-_**
+**_sicherheit Russlands gefährden“, erklärte der Experte._**
+Nach Ansicht des Analytikers hat Russland der Türkei einen großen Dienst erwiesen, indem es auf der Grundlage des
+Sotschi-Vertrags erlaubt habe, die Angehörigen der mit Ankara verbundenen bewaffneten Opposition aus Idlib abzuziehen. So versuche die Türkei, ihren Verpflichtungen nachzukommen, die gemäßigten Kämpfer von den Terroristen
+abzugrenzen.
+Der türkische Präsident Recep Tayyip Erdogan, der russische Präsident Wladimir Putin, der französische Präsident
+Emmanuel Macron und die deutsche Bundeskanzlerin Angela Merkel hatten sich am Samstag in Istanbul zum SyrienGipfel getroffen. Sie erörterten insbesondere die Situation in der Provinz Idlib und betonten die Notwendigkeit, dort ein
+Waffenstillstandsregime aufrechtzuerhalten. Sie wiesen auch auf die Bedeutung der Terrorbekämpfung hin und forderten die Bildung einer Verfassungskommission bis Ende des Jahres.
+Quelle: https://de.sputniknews.com/politik/20181028322781325-vierer-gipfel-westen-niederlage-experte/
+
+## „Nicht bloß ein Verdacht": Lawrow über US-Einmischung in Russlands Innenpolitik
+16:02 28.10.2018(aktualisiert 16:03 28.10.2018) Zum Kurzlink 31076
+
+**Die USA versuchen laut dem russischen Außenminister selbst, die Situation in Russland zu beeinflussen,**
+**werfen Moskau dabei aber Wahleinmischung vor. Dies sagte Sergej Lawrow in einem Interview mit dem**
+**TV-Sender „Rossiya-1“.**
+Nach Lawrows Worten seien die amerikanischen Diplomaten „mehrmals bei öffentlichen Veranstaltungen der Opposition, einschließlich der nicht systemhaften, wo Losungen einen Regimewechsel forderten“, gesichtet worden. Das USAußenministerium hätte Geld für Programme bereitgestellt, die ihrem Wesen nach eine Änderung der Innenpolitik Russlands zum Ziel hätten
+
+
+-----
+
+**„Nicht bloß ein Verdacht": Lawrow über US-Einmischung in Russlands Innenpolitik**
+**_„Wir hegen nicht einfach irgendeinen Verdacht, sondern ihr Gesetz, das 2015 verabschiedete ‚Gesetz zur_**
+**_Unterstützung der Ukraine‘. Gemäß diesem Gesetz ist dem Außenministerium befohlen worden, 20 Millio-_**
+**_nen Dollar pro Jahr auszugeben, um die Demokratie in Russland zu fördern, einschließlich der Finanzie-_**
+**_rung der russischen Nichtregierungsorganisationen, die für die ‘Demokratisierung‘ aller Bereiche des_**
+**_Lebens eintreten._**
+Alle Organisationen, die eine Finanzierung im Rahmen dieses Gesetzes erhalten, würden zurzeit geprüft. „Natürlich,
+wenn alle diese Geldmittel dafür verwendet werden, was im Gesetz verankert ist, und zwar für die ‚Förderung der
+Demokratie‘ in Russland, dann heißt dies Veränderung der Innenpolitik des Landes“, sagte Lawrow in der Sendung
+„Moskau. Kreml. Putin“ des TV-Senders ‚Rossija-1“.
+**_„All das versuchten und versuchen unsere amerikanischen Kollegen weiterhin in einen Scherz umzuwan-_**
+**_deln. Sie sagen, dass sich die Beziehungen normalisieren würden und alles wieder ‚gut sein wird‘, aber zu_**
+**_den Fakten der Einmischung gibt es keinerlei Reaktion“, so der russische Chefdiplomat._**
+Quelle: https://de.sputniknews.com/politik/20181028322781681-usa-beeinflussen-situation-in-russland/
+
+### W. Wimmer: „Merz bedeutet, die CDU völlig als Ableger amerikanischer Politik der Globalisten bewerten zu müssen“
+Epoch Times29. October 2018 Aktualisiert: 30. Oktober 2018 6:10
+
+Friedrich Merz, Vorsitzender der "Atlantik-Brücke", auf dem Parteitag der CDU 2009. Foto: Ralph Orlowski/Getty Images
+
+Die Spatzen pfeifen es seit einer Stunde von den Dächern, dass Friedrich Merz bereitsteht, die Nachfolge von Angela
+Merkel als CDU Parteivorsitzender zu übernehmen. CDU-Urgestein Willy Wimmer ist nicht begeistert und schickte uns
+einen Kommentar.
+
+**Soeben erreichte uns ein Kommentar von Willy Wimmer:**
+„Die Kandidatur von Merz für den Parteivorsitz ist von langer Hand vorbereitet und am Samstag letzter Woche
+finalisiert worden. Vertraute im Lande wurden darüber unterrichtet, daß er im Fall einer Abwahl von Bouffier noch am
+Sonntagabend seine Kandidatur zum Parteivorsitz ankündigen werde, ansonsten er zwei Wochen Bedenkzeit vorziehe.
+Eine Kandidatur von Merz bedeutet, die CDU völlig als Ableger amerikanischer Poilitik der Globalisten bewerten zu
+müssen. Die amerikanischen Herrschaftsinstrumente liegen bei Friedrich Merz mit dem Chefposten bei der <AtlantikBrücke> und der Funktion des Aufsichtsratschefs des Finanzgiganten BlackRock klar auf der Hand.
+Die Verzweiflung in der CDU muß gigantisch sein, ein derartiges Risiko mit Herrn Merz eingehen zu wollen.
+Merkel hinterläßt in jeder Beziehung „verbrannte Erde“ innerhalb der CDU/CSU, die sich wie die SPD unter und nach
+Schröder von Merkel nicht wird erholen können. Deutschland steht politisches Siechtum bevor.“
+Willy Wimmer, 29. Oktober 2016″
+
+
+-----
+
+_33 Jahre lang war Willy Wimmer Bundestagsabgeordneter der CDU und zwischenzeitlich Parlamentarischer_
+_Staatssekretär im Kabinett Kohl. Von 1994 bis 2000 fungierte er als Vizepräsident der Parlamentarischen_
+_Versammlung der OSZE, der Organisation für Sicherheit und Zusammenarbeit in Europa._
+**_Redaktion:_** _Dieser Beitrag stellt ausschließlich die Meinung des Verfassers dar. Er muss nicht zwangsläufig die Meinung des_
+_Verlags oder die Meinung anderer Autoren dieser Seiten wiedergeben._
+Quelle: https://www.epochtimes.de/meinung/w-wimmer-merz-bedeutet-die-cdu-voellig-als-ableger-amerikanischer-poilitik-derglobalisten-bewerten-zu-muessen-a2688672.html?meistgelesen=1#
+
+## Streit um den UN-Migrationspakt: AfD verzweifelt am Bundestag
+18:25 08.11.2018(aktualisiert 18:58 08.11.2018)
+
+**Die Fraktion der AfD bezeichnet den sogenannten UN-Migrationspakt als „größte Gefahr“ und fordert in**
+**einem Antrag, ihn nicht zu unterzeichnen. Damit stoßen die Rechtskonservativen bei allen Parteien im**
+**Bundestag auf heftigen Widerstand und komplettes Unverständnis.**
+
+Mit ihrer Kritik am geplanten „Globalen Pakt für Migration“ ist die AfD im Bundestag auf scharfen Widerspruch
+gestoßen. Abgeordnete aller Parteien warfen der Partei vor, Ängste vor Einwanderung zu schüren und eine
+internationale Ordnung für geregelte Migration behindern zu wollen. „Wer den Pakt ablehnt, sorgt dafür, dass
+Standards in anderen Ländern nicht angehoben werden und mehr Leute nach Deutschland kommen“, sagte Stephan
+Harbarth von der Unionsfraktion und forderte, die Standards weltweit anzugleichen.
+
+„Größte Gefahr“
+„Welches Land der Welt wird die Leistungen für Asylbewerber und Migranten auf das Niveau von Deutschland anheben
+wollen und können?“, fragte die Abgeordnete Beatrix von Storch (AfD) und bezeichnete den Pakt als die „größte
+Gefahr“, welche die Bundesregierung in ihrer Legislatur heraufbeschworen habe. „Dieser Pakt dient nicht unseren
+Interessen“, unterstrich von Storch. Daraufhin schilderte Harbarth seine Erfahrungen aus einem Flüchtlingslager
+in Jordanien. Der Umstand, dass die Flüchtlinge Nahrung, Zugang zu einer medizinischen Grundversorgung und
+Bildung haben, führe dazu, dass die Menschen in Jordanien bleiben und nicht nach Deutschland kommen.
+
+„AfD schürt Angst und Hass“
+Die Kritik seiner Partei erneuerte auch AfD-Chef Alexander Gauland. Migration werde in diesem Dokument
+ausschließlich als Quelle von Wohlstand und nachhaltiger Entwicklung dargestellt. „Kein Wort davon, dass Migration
+Länder auch destabilisieren kann. Der Unterschied zwischen der Suche nach Asyl und der Suche nach einem besseren
+Leben wird verwischt, bemängelte Gauland. Er warnte, dass dadurch Millionen Menschen aus Krisengebieten
+angestiftet werden, sich auf den Weg zu machen.
+Der SPD-Abgeordnete Christoph Matschie entgegnete Gauland: Es gehe im Dokument darum, illegale Migration
+einzudämmen und eine internationale Zusammenarbeit für reguläre Migration zu organisieren. „Der AfD geht es nicht
+um unser Land. Mit ihrer verleumderischen Kampagne wollen sie nur eins: Angst schüren und Hass schüren, und
+dagegen setzen wir uns zur Wehr“, warnte Matschie.
+
+**Verfehlte Informationspolitik der Regierung?**
+Die Linken-Abgeordnete Sevim Dagdelen kritisierte, dass Rechtsaußen eine „schäbige Angstkampagne“ gegen die UNErklärung führe. In einem Punkt stimmte sie der AfD jedoch zu. Auch sie rügte die Informationspolitik der
+Bundesregierung, die nicht früh genug eine versprochene öffentliche Diskussion des Paktes angestoßen habe. Damit
+hätte die Regierung den Boden für die Angstkampagne der AfD bereitet.
+Den Migrationspakt begrüßte auch die Grünen-Bundespolitikerin Filiz Polat. Sie erklärte, ihre Partei werde darauf
+achten, ob bei einem Einwanderungsgesetz die Ziele und Standards des Paktes berücksichtigt werden.
+
+
+-----
+
+„Rechte von Migranten stärken“
+Mit dem „Globalen Pakt für Migration“ legten die Vereinten Nationen im Sommer erstmals Grundsätze für den Umgang
+mit Flüchtlingen fest. Damit sollen unter anderem die Lebensbedingungen weltweit verbessert werden, dass Menschen
+auch in ihrer Heimat bleiben können. Arbeitende Migranten sollen besser gegen Ausbeutung, Missbrauch und die
+Verletzung von Menschen- und Arbeitsrechten geschützt werden. Beim Bezug von unterstützenden Leistungen sollen
+Migranten nicht benachteiligt werden. Der Anspruch darauf sei ein Menschenrecht. Schleuserbanden sollen
+grenzübergreifend stärker verfolgt und bestraft werden, geschmuggelte Migranten aber straffrei bleiben. Das
+Dokument soll am 10. und 11. Dezember in Marokko unterzeichnet werden.
+Quelle: https://de.sputniknews.com/politik/20181108322897692-afd-un-migrationspakt/
+
+
+## Entstand der Globale Migrationspakt
+
+
+## auf Vorschlag Deutschlands um Merkels Handeln zu legitimieren?
+Autor Vera Lengsfeld Veröffentlicht am 8. November 2018
+
+Dieser aufschlussreiche Brief an den Referenten des Bundestagsabgeordneten de Vries wurde mir von **Christoph**
+**Marloh zur Verfügung gestellt:**
+
+Sehr geehrter Herr N.,
+vielen Dank für unser heutiges Telefonat und daß Sie sich als Referent von Herrn de Vries dafür ausführlich Zeit
+genommen haben.
+Wir stimmen, wie besprochen, überein, daß die Regelungen des Paktes bei Zustimmung in Deutschland von Soft-Law
+zu Hard-Law werden, sobald Verwaltungsgerichte einschlägige Entscheidungen treffen.
+Sie nannten als Beispiel die UN-Behindertenrechtskonvention. Nachdem Deutschland auf eine Protokollnote zu dieser
+Konvention verzichtet hatte, haben Verwaltungsgerichte mit Verweis auf die Konvention umfangreiche InklusionsInvestitionen erzwungen. Zum Migrationspakt ist eine Protokollnote nach Ihrer Aussage von der Bundesregierung
+wiederum nicht vorgesehen.
+Wir stimmen ebenfalls überein, daß der Pakt die – insbesondere seit 2015 – geübte deutsche Praxis im Bereich
+Migration widerspiegelt.
+Nicht übereinstimmen wir in der Bewertung dieser Praxis.
+Diese ist seit September 2015 durch eine Umgehung des Parlamentes und schlicht rechtswidriges staatliches
+Handeln geprägt.
+Hans-Jürgen Papier, Präsident des Bundesverfassungsgerichts (2002-2010), stellt fest: „Wir haben rechtsfreie Räume
+bei der Sicherung der Außengrenzen, das darf nicht sein“.
+Papier kritisiert die Flüchtlingspolitik der Bundeskanzlerin. Der Jurist fordert ein sofortiges „Umsteuern“ – auch
+Schengen sollte überdacht werden. „Unbegrenzte Einreise ist ein Fehler.“ Noch nie sei in der rechtsstaatlichen
+Ordnung der Bundesrepublik die Kluft zwischen Recht und Wirklichkeit so tief wie derzeit. Das sei auf Dauer
+inakzeptabel, so der renommierte Verfassungsrechtler. Er spricht von einem „eklatanten Politikversagen“.
+Professor Dr. Udo Di Fabio, Richter am Bundesverfassungsgericht (1999–2011), stellt fest, daß das Staatsvolk
+unverzichtbar ist und selbst über seine Zusammensetzung entscheiden sollte.
+
+„Demokratie kann nur funktionieren, wenn ein Staatsvolk mit einem entsprechenden klar definierten Bürgerrecht
+identifizierbar und in Wahlen und Abstimmungen praktisch handlungsfähig ist. Insofern muss das Staatsvolk einerseits
+über die Bevölkerungszusammensetzung und über die Regeln zum Erwerb oder Verlust der Staatsangehörigkeit mit
+dem Gesetz im formellen Sinne entscheiden, andererseits darf es dabei nicht die praktische Möglichkeit
+parlamentarischen Regierens und demokratischen Entscheidens bei elementaren Fragen der politischen Gemeinschaft
+aufgeben.“
+
+Wir befinden uns damit gegenwärtig in einem rechtsfreien Ausnahmezustand. Dieser würde durch eine Zustimmung
+zum Migrationspakt sowie spätere Entscheidungen von Verwaltungsgerichten nachträglich legalisiert. Damit würde die
+bestehende Rechtsordnung durch überstaatliches Recht ohne ordnungsgemäße Beschlußfassung des Bundestages
+ausgehebelt. Die handstreichartige Außerkraftsetzung von Verfassungs- und Rechtsordnung durch die Bundeskanzlerin
+würde nachträglich sanktioniert.
+Angesichts der bisherigen Vorgehensweise der Kanzlerin glaube ich Ihnen gern, daß der Pakt auf deutsche Initiative
+erarbeitet wurde – schon aus Gründen der persönlichen Risikoverminderung von Frau Merkel.
+Angesichts der bisher ausgebliebenen Bereitschaft, die Fehlentwicklungen seit 2015 im Parlament zu diskutieren und
+dem Recht wieder Geltung zu verschaffen, kann ich der auch beim Pakt völlig intransparenten Politik der
+Bundesregierung keinen Vertrauensvorschuß geben. Das Argument, daß der Migrationsdruck auf Deutschland durch
+Standardanhebung bei anderen Unterzeichnern verringert wird, halte ich für vorgeschoben.
+Bitte setzen Sie sich für eine Aufarbeitung der Migrationspolitik seit 2015 und eine Aussetzung der Zustimmung zum
+
+
+-----
+
+Migrationspakt ein.
+Mit freundlichen Grüßen
+Christoph Marloh
+Quelle: https://vera-lengsfeld.de/2018/11/08/entstand-der-globale-migrationspakt-auf-vorschlag-deutschlands-um-merkels-handelnzu-legitimieren/
+
+## Die Verteidiger des Globalen Migrationspaktes widersprechen sich selbst!
+Autor Vera Lengsfeld   Veröffentlicht am 8. November 2018
+
+In meiner immerhin 16-jährigen Bundestagszeit habe ich vieles erlebt, aber eine solche Debatte, wie sie heute zum
+Globalen Migrationspakt geführt wurde, noch nie.
+Dass die Argumente der Altparteien austauschbar sind und man nicht erkennen kann, ob Regierungs- oder
+Oppositionsvertreter sprechen, daran ist man schon gewöhnt. Dass alle Altparteienredner hasserfüllt auf die AfD
+einhacken, ohne sich die geringste Mühe zu geben, mit Argumenten zu überzeugen, weiß man auch. Aber dass sich
+die Pro-Migrationspakt-Vertreter auf offener Bühne widersprechen, ohne es zu merken, das war neu.
+Die Redner der Union wurden nicht müde zu betonen, dass es sich bei diesem Pakt um eine unverbindliche
+Absichtserklärung handle, die keinerlei nationale Souveränität einschränken würde.
+Auf die naheliegende Frage, warum dann ein so aufwändiges Verhandlungs- und Unterzeichnungsverfahren gewählt
+wurde, gehen sie natürlich nicht ein. Stattdessen wird behauptet, dass der Pakt vor allem Deutschland nütze. Der Pakt
+solle die Migrationsströme reduzieren, die Fluchtursachen bekämpfen, den Schleusern das Handwerk legen, eine klare
+Trennung von legaler und illegaler Migration ermöglichen, die Rückführung in die Heimatländer erleichtern, deshalb
+läge er besonders in Deutschlands Interesse.
+Wieso eine unverbindliche Absichtserklärung das bewirken soll, wird nicht gesagt. Eine Reduzierung der
+Migrantenströme nach Deutschland soll der Pakt auch bewirken, weil endlich deutsche Standards in der
+Migrantenbetreuung weltweit gelten sollen. Hier wird es völlig absurd. Moldawien, Bulgarien, Rumänien, Albanien
+sollen demnächst deutsche Standards für die Flüchtlingsbetreuung einführen, wo der Harz-IV Satz höher liegt, als das
+Durchschnittseinkommen dieser Länder? Die Schweiz, Dänemark, Österreich und Schweden die gerade Zuwendungen
+für Flüchtlinge reduzieren und zum Teil auf bloße Sachleistungen umstellen, werden ganz sicher nicht zu „deutschen
+Standards“ zurückkehren.
+In den höchsten Tönen gelobt von der Union wird die unverbindliche Festlegung im Pakt, dass Migranten zukünftig mit
+„rechtlich klaren Identifikationspapieren“ zu uns kämen. Schließlich wollten „wir“ wissen, „wer zu uns kommt“.
+Allerdings haben „wir“ seit der Anweisung des damaligen Innenministers de Maizière vom Herbst 2015, alle
+„Asyl“suchenden, auch ohne oder mit sichtbar gefälschten Papieren einzulassen, selbst wenn es sich um mehrfach
+abgeschobene Intensivtäter handelt, eine Situation des bewußten Nichtwissens, wer unsere Grenze passiert. Eine
+unverbindliche Absichtserklärung soll das ändern? Das könnte man einfacher und glaubwürdiger haben, indem die
+Ministeranweisung endlich widerrufen und die gesetzliche Lage an der Grenze wiederhergestellt würde.
+Die SPD machte sich gar nicht erst die Mühe, sich in der Debatte sachlicher Argumente zu bedienen. Statt dessen
+wurde moralisiert, was das Zeug hält.
+Der Abgeordnete Christoph Matschie war sich nicht zu blöd, die Progromnacht gegen die jüdischen Bürger in
+Nazideutschland zu instrumentalisieren. Er war zwar noch klug genug, nicht direkt zu behaupten, dass der Widerstand
+gegen den Globalen Migrationspakt nach Auschwitz führe, aber es mit Emphase nahegelegt. Die Grüne Filiz Polat
+verstieg sich gar zu der Behauptung, die Petitionen gegen den Globalen Migrationspakt seien antisemitisch. In ihrem
+Furor ist ihr nicht aufgefallen, dass Israel dem Pakt auch nicht beitreten wird. Ist Israel jetzt antisemitisch?
+Außerdem bemängelte Polat, dass die Regierung nicht eine „leichte, verständliche Erzählung“ über den Migrationspakt
+verbreitet hätte. Das zeigt, für wie blöd die Abgeordnete die Bevölkerung hält. Die Bürger haben nach Bekanntwerden
+des Paktes sehr schnell begriffen, was für ein trojanisches Pferd ihnen da hingeschoben werden soll, denn sie erleben
+die Folgen der Masseneinwanderung seit 2015 im Gegensatz zu den Politikern am eigenen Leib.
+Etwas aus dem niveaulosen Rahmen fiel überraschend die Abgeordnete der Linken Sevin Dagdelen. Sie war nach
+eigener Aussage die einzige Abgeordnete, die ab und zu in New York bei den Verhandlungen zum Migrationspakt
+dabei war. Sie sprach als Einzige an, dass der Pakt als Abwanderungswerbung zugunsten des Westens gesehen
+werden kann. Der Brain Drain käme einer Enteignung des Südens zugunsten des reichen Nordens gleich. Damit hat
+sie einen der problematischsten Punkte der gesteuerten Migration angesprochen. Wenn die Eliten der
+Entwicklungsländer in die reichen Nordstaaten gelockt werden, ist das tatsächlich „Nützlichkeitsrassismus“.
+Die Abgeordneten der Grünen ließen am deutlichsten die Katze aus dem Sack. Die Unverbindlichkeits-Beteuerungen
+der Koalition konterkarierend, forderten sie, sich die Vereinbarungen des Paktes umgehend zu eigen zu machen und
+konsequent umzusetzen. Schon beim Fachkräfte-Zuwanderungsgesetz würden die Grünen darauf achten, dass alle
+Forderungen des Paktes eingeflossen seien. Das meinen sie ganz ernst. Das Pariser Klimaabkommen, das ja auch
+eine unverbindliche Absichtserklärung und nur in Deutschland ernsthafte politische Handlungsrichtlinie ist, soll nach
+deren Forderungen Verfassungsrang erhalten. Warum nicht auch der Globale Migrationspakt? Dann wäre es mit der
+Unverbindlichkeit allerdings endgültig vorbei.
+Während die Debatte im Bundestag stattfand kämpft Kroatien von den Medien weitgehend unbeachtet mit dem
+
+
+-----
+
+Problem, dass inzwischen 20 000 junge aggressive Männer, nach Angaben kroatischer Grenzsoldaten mehrheitlich
+mit Messern in ihren Taschen und UNHCR-Kreditkarten in der Brieftasche, seit Monaten die Grenze bei Velika Kladusa
+belagern. Diese Männer kommen hauptsächlich aus Pakistan, Iran, Algerien oder Marokko. Alles keine Kriegsgebiete.
+Was die Pakistani betrifft, sind das die Söhne, Brüder oder Cousins der Männer, die der Pakistanischen Regierung
+gerade Bürgerkrieg androhen, wenn die freigesprochene Christin, die schon acht Jahre in der Todeszelle gesessen
+hat, nicht doch noch wegen „Blasphemie“ hingerichtet wird. Wer die Szenen in Pakistan gesehen hat, dem kann alles
+andere als wohl sein, dass demnächst 20 000 dieser religiösen Fanatiker bei uns willkommen geheißen werden
+sollen.    Quelle: https://vera-lengsfeld.de/2018/11/08/die-verteidiger-des-globalen-migrationspaktes-widersprechen-sich-se
+
+## Staatlich mitfinanzierte Lügenkampagne
+_Freitags-Kommentar vom 9. November 2018 von Ulrich Schlüer, Verlagsleiter «Schweizerzeit»_
+
+**Schwerwiegende Entgleisungen der Selbstbestimmungs-Gegnerschaft**
+Dass in Abstimmungskämpfen mitunter gelogen wird, ist nichts Neues. Die Lügen, mit denen die SelbstbestimmungsGegner die Direkte Demokratie zu beerdigen trachten, erreichen freilich ein Ausmass, das den Rahmen von bisher
+Bekanntem bei weitem sprengt.
+Da liest man zum Beispiel: «Die Selbstbestimmungsinitiative raubt uns die Möglichkeit, eine Klage beim Europäischen
+_Gerichtshof für Menschenrechte einzureichen.» Eine Aussage, die einer krass wahrheitswidrigen Unterstellung_
+gleichkommt.
+Die Selbstbestimmungs-Initiative, die der Schweiz die Direkte Demokratie erhalten will, verbaut mit keinem einzigen
+Wort, mit keiner einzigen Bestimmung irgend jemandem, der sich hier in der Schweiz in seinen persönlichen Rechten
+verletzt fühlt, dessen Klage aber von keinem schweizerischen Gericht als berechtigt anerkannt worden ist, den
+Zugang zum Europäischen Menschenrechts-Gerichtshof in Strassburg. Wer der Initiative und den Initianten solches
+unterstellt, macht sich skrupelloser Wahrheitsverletzung schuldig.
+
+**Wer äussert solche Unterstellung?**
+Sofort erhebt sich die Frage: Wer greift zu derartigen Lügen, um eine Initiative, die ihm nicht passt, zu bodigen? Wer
+Antwort auf diese Frage sucht, stösst auf Ungeheuerliches: Diese krass wahrheitswidrige Unterstellung stammt, wie
+Christoph Mörgeli in der «Weltwoche» offengelegt hat, von einer vom Bundesrat zusammengesetzten, beauftragten
+und finanzierten offiziellen Kommission der Schweizerischen Eidgenossenschaft, deren Mitglieder sich – nicht
+unbedingt zurückhaltend – vom Steuerzahler entschädigen lassen.
+Noch schlimmer: Diese Kommission hat juristische Funktion. Sie greift in Rechtsvorgänge ein, sie ist berechtigt, ja
+dafür eingesetzt, irgendwo Vorgefallenes rechtlich zu beurteilen. Die wahrheitswidrige Unterstellung stammt nämlich
+von der Eidgenössischen Anti-Rassismus-Kommission.
+Man fragt sich unwillkürlich: Muss man diese Kommission fortan als amtlich eingesetzte «Lügenverbreitungs-Agentur»
+bezeichnen?
+
+**Masslose Polemik**
+Dieser Kommission ist im vom Bund formulierten Kommissions-Auftrag ausdrücklich aufgetragen, sich zu laufenden
+öffentlichen Auseinandersetzungen Zurückhaltung aufzuerlegen. Ihre Aufgabe ist es nicht, Abstimmungsempfehlungen
+auszugeben. Sie hat Vorgänge, allenfalls auch Publikationen und Stellungnahmen zu beurteilen – verliert aber
+offensichtlich jedes Mass, wenn sie sich anstelle wohlabgewogener juristischer Beurteilung zu blindwütiger,
+hasserfüllter Polemik hinreissen lässt gegen eine Volksinitiative, welche die politischen Rechte der Bürgerinnen und
+Bürger stärken will –, was die Anti-Rassismus-Kommission zu unverhohlenem Wutausbruch veranlasst.
+Die Initiative will Klarheit schaffen zum Rechtsverhältnis zwischen Landesrecht und Völkerrecht. Sie wurde lanciert,
+nachdem eine Bundesgerichts-Kammer mit knappem Mehrheitsentscheid Völkerrecht generell vor das in unserem
+Land gültige Verfassungsrecht gesetzt hat – was in keinem Rechtsstaat dieser Welt gültige Rechtsnorm ist.
+
+**Direkte Demokratie zum Abschuss freigegeben**
+Versuchen Sie einmal, einem Amerikaner oder einem Franzosen beizubringen, dass auf internationaler Ebene von
+Funktionären geschaffene Regelungen über dem Verfassungsrecht seines eigenen Landes stünden. Er wird Sie als reif
+fürs Irrenhaus einschätzen.
+Dass schweizerische Funktionäre solche Umkehr allgemein geltender Rechtsregeln hier in der Schweiz erzwingen
+wollen, lässt sich allerdings erklären:
+Nur die Schweiz kennt die Direkte Demokratie. Nur die Schweiz gewährt den Bürgerinnen und Bürgern in allen
+
+
+-----
+
+wichtigen Sachfragen, zu allen in der Verfassung festzuhaltenden Regelungen das letzte, verbindliche Wort.
+Das gefällt staatlichen Funktionären nicht. Funktionäre halten sich als vorausschauender, als gescheiter als das
+«gewöhnliche Volk» – zuweilen auch als «Pöbel» bezeichnet. Funktionäre kämpfen um Dominanz bei der Festlegung
+von Recht, auch von Verfassungsrecht.
+Von einer Wirtschaftsgrösse ist dazu eine bezeichnende Aussage gefallen: Wenn das Führungsgremium eines
+Grosskonzerns zum Beispiel in Deutschland ein ganz bestimmtes, ihm wichtiges Anliegen durchbringen will, dann
+meldet es sich zu einer Unterredung beim in der Regierung für den entsprechenden Sachverhalt zuständigen Minister.
+Und es setzt in solcher Unterredung seinen Standpunkt in aller Regel auch durch. In der Schweiz ist dies unmöglich –
+weil das letzte Wort in wichtiger Sache nie der Minister allein, auch nicht die Regierung, schon gar nicht die
+Verwaltung sprechen kann. Das letzte Wort haben in der Schweiz vielmehr die Stimmbürger. Stimmbürger kann man
+nicht besuchen und überreden. Sie stehen jenen im Weg, die auch die Schweiz reiner «Kabinettspolitik» hinter
+verschlossenen Türen aussetzen wollen.
+
+**Das Ziel der Selbstbestimmungs-Initiative**
+Genau darum geht es. Es war hierzulande der Stimmbürger, der Boni-Exzessen von Konzernchefs einen Riegel
+geschoben hat. Vergleichbares geschah seitens Regierungen nie. Das mag internationale Konzerngrössen, die vom
+hiesigen, zur Abzocker-Initiative getroffenen Volksentscheid persönlich getroffen worden sind, wurmen – und jetzt gar
+zu einer Rache-Aktion gegen den Schweizer Souverän hinreissen lassen, indem sie die Selbstbestimmungs-Initiative
+mit massiven Geldmitteln zu bekämpfen helfen.
+Es geht am 25. November darum, ob den Schweizer Bürgerinnen und Bürgern das letzte, entscheidende und gültige
+Wort in allen wichtigen Belangen belassen wird, oder ob die Bürgerinnen und Bürger zugunsten nicht greifbarer
+Funktionäre ihrer politischen Rechte beraubt werden.
+Ja zur Selbstbestimmungs-Initiative!
+_Ulrich Schlüer   09.11.2018, 17:03 von admin 09.11.2018_
+Quelle: https://www.schweizerzeit.ch/cms/index.php?page=/news/staatlich_mitfinanzierte_lugenkampagne-3498
+
+
+## AFD erzwingt Debatte über UN-Migrationspakt – Warum die Regierung
+
+
+## diesen Pakt gegenüber dem deutschen Volk verheimlicht.
+8. November 2018 Michael Mannheimer 198
+
+Gelesen: 4.504
+
+**Gerd Schultze-Rhonhof: „In zwei Generationen ist Deutschland gekippt, wenn die Masseneinwanderung**
+**nicht gestoppt wird.“**
+In einem ausführlichen Artikel analysiert und kommentiert Gerd Schultze-Rhonhof, Generalmajor a.D., übersetzt, die
+Endfassung vom Juli 2018, die im Dezember verabschiedet werden soll. (Quelle). (Eine auf das Wesentliche
+komprimierte Kurzfassung des mörderischen UN-Migrationspakts finden Sie am Ende dieses Artikels.)
+**Doch wir müssen nicht erst 2 Generationen abwarten.**
+Denn der Grundstein für die endgültige Vernichtung des deutschen Deutschlands ist mit Hilfe der letzten und heutigen
+Regierung, einer pathokatischen Gemeinschaft von Realitätsverweigerern, bereits gelegt worden. Schon allein durch
+die Massenfortpflanzung der bereits hier unter uns lebenden illegalen und geduldeten, sowie der bereits abgelehnten,
+aber nicht abgeschobenen Moslems und Afrikanern und anderen fremden meist islamischen Ethnien, schreitet die
+Übernahme Deutschlands stetig voran.
+Es wird, wenn wir nicht endlich aufwachen, der Tag nicht mehr lange auf sich warten lassen, wo wir als Deutsche nur
+noch geduldet sind, um als willige Arbeitskräfte diesen Irrsinn zu finanzieren. Höchste Zeit, die Grenzen zu schützen,
+den Großteil der hier lebenden Asylschmarotzer, Verbrecher und ausländischen Nichtsnutze – aber auch die Mitglieder
+der Grünen aus dem Land zu jagen Die Grünen haben sich vor kurzem für die Weltführerschaft Deutschlands bei
+
+
+-----
+
+der Umsetzung der verbrecherischen UN-Migrationspolitik eingesetzt. Und sich damit erneut und wiederholt zum
+politischen Primärantreiber der Zerstörung Deutschlands durch die Migrationswaffe gemacht. Dass sie derzeit so gute
+Wahlergebnisse einfahren, ist allein der Desinformation durch die grünen Medien zu verdanken,
+nd nicht, wie der Politikwissenschaftler Uwe Jun (Uni Trier) in einem Interview mit Blick auf die derzeitigen Wahlerfolge
+der Grünen beim deutschfeindlichen „Deutschlandfunk“ meinte, der Tatsache, dass die Grünen die richtigen Antworten
+auf die drängendsten Problem der Zeit präsentieren.
+Denn so gut wie alle Medien sind in der Hand der Grünen und ihren Gesinnungsgenossen: Der SPD und SED
+(Tarnname: „Linkspartei“). Und so gut wie alle Grünen-, SPD- und Linksparteiwähler haben keine Ahnung, was sie da
+wählen. Sie verlassen sich ganz darauf, was sie in den Staatsmedien lesen. Und dort erfahren sie so gut wie nichts
+über den verhängnisvollen UN-Migrationspakt. Wenn doch, dann _(s.weiter unten) in einer Form, in der sich das_
+Schlachthaus, das die Deutschen erwartet, als eine Disko darstellt.
+Dass der oben genannte Politologe diesen Fakt in seiner Analyse zum Erfolg der Grünen ausblendet oder darüber
+nichts weiß, ist sonderbar ... und lässt sich, für mich, mit seiner ideologischen Nähe zum merkel’schen
+Neobolschewismus erklären.
+Quelle: https://michael-mannheimer.net/2018/11/08/afd-erzwingt-debatte-ueber-un-migrationspakt-warum-die-regierung-diesenpakt-gegenueber-dem-deutschen-volk-verheimlichen-will/
+
+## Seit 14. Okt. hier meistgelesen der Migrationspakt der UNO:
+ Vollständiger Text auf deutsch
+
+Epoch Times14. October 2018 _Aktualisiert: 28. Oktober 2018 10:57_
+
+
+Was steht im vollständigen deutschen Text des Migrationspaktes, der am 10. und 11. Dezember in Marrakesch unterschrieben werden soll? Seit dem 14. Oktober steht er bei ET auf der Liste der 10 meistgelesenen Artikel – 14 Tage!
+
+Der Punkt 10 der vorläufigen Tagesordnung der Konferenz in Marrakesch (Marokko) am 10. und 11. Dezember 2018
+beinhaltete die Annahme des Globalen Paktes für eine sichere, geordnete und reguläre Migration.
+
+
+Hier kann der deutsche Text von der UNO gelesen werden: www.un.org/depts/german/migration/A.CONF.231.3.pdf.
+
+
+_„Wir, die Staats- und Regierungsoberhäupter und Hohen Beauftragten, zusammengetreten am 10. und 11. Dezember_
+_2018 in Marokko, in Bekräftigung der New Yorker Erklärung für Flüchtlinge und Migranten und entschlossen, einen_
+_bedeutenden Beitrag zur verstärkten Zusammenarbeit auf dem Gebiet der internationalen Migration in allen ihren Di-_
+_mensionen zu leisten, haben den nachstehenden Globalen Pakt für eine sichere, geordnete und reguläre Migration_
+_angenommen …“_
+
+**Ein Blick in den Punkt 12: „Dieser Globale Pakt hat das Ziel, die nachteiligen Triebkräfte und strukturellen Faktoren**
+zu minimieren, die Menschen daran hindern, in ihren Herkunftsländern eine nachhaltige Existenzgrundlage aufzubauen
+und aufrechtzuerhalten, und die sie dazu veranlassen, anderswo nach einer besseren Zukunft zu suchen.
+
+Er beabsichtigt, die Risiken und prekären Situationen, denen Migranten in verschiedenen Phasen der Migration ausgesetzt sind, zu mindern, indem ihre Menschenrechte geachtet, geschützt und gewährleistet werden und ihnen Fürsorge
+und Unterstützung zukommen.
+
+Mit dem Pakt wird versucht, legitimen Anliegen von Gemeinschaften Rechnung zu tragen und gleichzeitig anzuerkennen, dass Gesellschaften demografische, wirtschaftliche, soziale und umweltbedingte Veränderungen unterschiedlichen Ausmaßes durchlaufen, die sich auf die Migration auswirken und aus ihr resultieren können.
+
+Er soll förderliche Bedingungen schaffen, die es allen Migranten ermöglichen, unsere Gesellschaften durch ihre
+menschlichen, wirtschaftlichen und sozialen Fähigkeiten zu bereichern und so besser zu einer nachhaltigen Entwicklung auf lokaler, nationaler, regionaler und globaler Ebene beizutragen.“
+
+Einige Staaten sind bereits aus dem Migrationspakt ausgetreten: Nach den USA, Australien und Ungarn üben auch
+Polen und Österreich Kritik.
+
+Die polnische Regierung erwägt einen Ausstieg, da der Entwurf für den ersten weltweiten UN-Pakt zum Thema Migration zur „illegalen Migration“ ermuntern könnte und keine „Sicherheitsgarantien für Polen“ bietet, kritisierte Innenminister Joachim Brudzinsk. Er werde seiner Regierung deshalb einen Rückzug aus dem Abkommen empfehlen.
+
+Polens Innenminister Brudzinski monierte, dass der Pakt die wichtigsten Prioritäten seiner Regierung vernachlässige –
+den Schutz polnischer Bürger und die Begrenzung der Migration. Brudzinski gehört der Regierungspartei PiS an.
+
+
+-----
+
+### Was beinhaltet der „Migrationspakt“? [Bis spätestens 2065 sollen nach Angaben der Schweizer Morgen-]
+post (Juli 2018) zwischen 200 und 300 Millionen Afrikanern die Einwanderung in Europa erlaubt werden.
+
+Kann die Zahl von 200 bis 300 Millionen stimmen? „Es gibt Befragungen, wonach sich ein Drittel der Erwerbsfähigen
+zwischen 20 und 40 Jahren mit dem Gedanken trägt zu gehen. Wir haben 1,2 Milliarden Menschen in Afrika, bald über
+zwei Milliarden.“ Dies sagte Reiner Klingholz, einer der renommiertesten Migrationsexperten, im Oktober 2016 in der
+„Welt“.
+
+Ob nun tatsächlich 300 Millionen von diesen nach Europa auswandern oder auf dem eigenen Kontinent bleiben, ist
+fraglich. Den afrikanischen Staaten ist das Problem bekannt und sie wollen mit der Agenda 2062, hier als pdf, die
+Lebensbedingungen vor Ort verbessern.
+
+Beide neuen UN-Abkommen sollen im völkerrechtlichen Sinne keine verbindlichen Abkommen sein, sondern sogenannte soft laws, also Absichtserklärungen, Leitlinien. Von beiden hat sich die USA zurückgezogen.
+
+Falls diese Zahl stimmen sollte, dann ein paar Vergleichszahlen: Derzeit leben in Europa 9 Millionen afrikanische Menschen. Europa hatte 2015 lt. Wikipedia 747 Millionen Einwohner auf ca. 10,18 Millionen km². Afrika hatte 1,1 Mrd.
+(2014) auf einer Fläche von 30,2 Millionen km². (ks) [Quelle: https://www.epochtimes.de/politik/welt/migrationspakt-der-uno-]
+vollstaendiger-text-auf-deutsch-a2673300.html?meistgelesen=1
+
+## Die Migrationsmacht: Wie sich die UN über geltendes Recht hinwegsetzt
+
+
+Veröffentlicht am 25. Oktober 201827. Oktober 2018
+
+
+**Von Ramin Peymani auf Liberale Warte**
+
+
+Gerne informiere ich an dieser Stelle hin und wieder über Sachverhalte, die den meisten Bürgern eher unbekannt sind.
+Hierzu gehört ganz sicher die Rechtsprechungskompetenz des in Genf ansässigen UN-Menschenrechtsausschusses,
+nicht zu verwechseln mit dem noch mächtigeren Menschenrechtsrat der Vereinten Nationen. Für jeden der 172 Unterzeichnerstaaten ist der Menschenrechtsausschuss befugt, Beschwerden von Einzelpersonen zu verhandeln, die sich in
+ihren Bürgerrechten verletzt sehen. Die 18 Ausschussmitglieder sind allerdings keinesfalls zwingend Juristen. Gemäß
+Artikel 28 des Internationalen Paktes über bürgerliche und politische Rechte reicht es aus, wenn es sich aus Sicht der
+entsendenden Staaten um “Persönlichkeiten von hohem sittlichen Ansehen und anerkannter Sachkenntnis auf dem
+Gebiet der Menschenrechte” handelt. Aktivisten sind also höchst willkommen, um international Recht zu sprechen.
+Dabei gilt die Besonderheit, dass einzig der Beschwerdeführer gehört wird. Es gibt weder eine Anhörung der Gegenseite, noch die Möglichkeit des Widerspruchs oder der Revision. Dadurch sind die Entscheidungen des Gremiums
+endgültig. Und sie entfalten eine faktische Wirkung. Der Ausschuss hat nun entschieden, dass Frankreich zwei muslimische Frauen entschädigen muss, die gegen das bei unseren Nachbarn seit April 2011 geltende Verschleierungsverbot verstoßen hatten und dort vor sechs Jahren verurteilt worden waren. Die Entscheidung dürfte weitreichende
+Konsequenzen haben.
+**Wer noch Zweifel hatte, dass die Vereinten Nationen parteiisch agieren und einseitigen religiösen Interes-**
+**sen dienen, wird eines Besseren belehrt**
+Denn nicht nur in Frankreich, sondern auch in Belgien, Dänemark, Österreich sowie in der Schweiz und in den Niederlanden sind Verschleierungsverbote entweder von den Parlamenten beschlossen worden oder bereits in Kraft. Sogar
+im afrikanischen Gabun ist die Vollverschleierung im öffentlichen Raum seit 2015 verboten. All diese Gesetze stehen
+nun auf dem Prüfstand, weil ein Gremium der UN es so will. Wer noch Zweifel daran hatte, dass die Vereinten Nationen
+parteiisch agieren und einseitigen religiösen Interessen dienen, muss sich eines Besseren belehren lassen. Dabei
+hatte der Europäische Gerichtshof für Menschenrechte noch im Sommer 2017 mit Blick auf das belgische Verschleierungsverbot keinerlei Verstoß erkannt. Er urteilte gar, dass Vollverschleierungsverbote nicht nur rechtens, sondern
+“für eine demokratische Gesellschaft notwendig” seien. Auch das Recht auf Religionsfreiheit, die Achtung des Privatund Familienlebens oder das Diskriminierungsverbot seien nicht verletzt, so das Gericht in seiner Urteilsbegründung.
+Warum der Menschenrechtsausschuss der UN nun zur gegenteiligen Einschätzung kommt, und was dies für die Rolle
+der ordentlichen Rechtsprechung bedeutet, wird sicher ab sofort Gegenstand mancher juristischer Diskussion sein.
+Dass Deutschlands Medien eine offene Debatte über die Genfer Entscheidung führen werden, ist aber wohl kaum zu
+erwarten. Eher dürfte der Beschluss des Menschenrechtsausschusses medial gefeiert werden. Fakt ist jedoch: Selbst
+die höchsten europäischen Gerichte sind damit im Grunde entmachtet.
+**Klagende werden darin bestärkt, sich gegen die rechtsstaatlichen Organe jener Länder zu stellen, die sie**
+**sich für ihren Verbleib ausgesucht haben**
+Wann immer Migranten künftig ihre Rechte verletzt sehen, wird kein Urteilsspruch mehr endgültig sein, solange er
+nicht den Segen der Menschenrechtsaktivisten der Vereinten Nationen erhalten hat. Damit wird einer interessengeleiteten Willkürjustiz Tür und Tor geöffnet. Es ist sicher nicht zu wild spekuliert, dass fortan nicht etwa Isländer, Japaner
+oder Chilenen vor dem Menschenrechtsausschuss Schlange stehen werden, sondern jene Migranten, die aus muslimisch geprägten Ländern stammen. Sie werden ihren Kampf gegen westliche Weltanschauungen im noblen Genf austragen darauf vertrauend dass die Rechtsprechung europäischer Gerichte Makulatur ist und sich die Vereinten Natio
+
+-----
+
+nen nur zu bereitwillig für pro-islamische Lobbyarbeit herzugeben bereit sind. Man sollte daher schon heute den Blick
+auf die Vorweihnachtszeit richten, wenn Deutschland gemeinsam mit einer Fülle weiterer Staaten den “Global Compact
+for Migration” unterzeichnen wird. Wenn dieses völkerrechtlich zwar nicht bindende, aber ganz im Geiste der Laienrechtsprechung der UN gehaltene Dokument erst einmal unterschrieben ist, wird es Klagende darin bestärken, sich
+gegen die rechtsstaatlichen Organe jener Länder zu stellen, die sie sich nicht nur für ihren Verbleib ausgesucht haben,
+sondern denen sie für ihr eigenes Wohlbefinden auch die mitgebrachte Kultur überstülpen wollen. Der muslimische
+Marsch durch die Institutionen trägt Früchte. Er findet international statt und entfaltet seine Schlagkraft in atemberaubend kurzer Zeit. Da staunen selbst die Grünen.
+Quelle: https://vera-lengsfeld.de/2018/10/25/die-migrationsmacht-wie-sich-die-un-ueber-geltendes-recht-hinwegsetzt/#more-3669
+
+## Boris Palmer: „Viele Zweifel am UN-Migrationspakt sind berechtigt“
+13. November 2018 Brennpunkt, Inland 24
+
+Migrationspakt so nicht unterschreiben! (Bild: Screenshot)
+
+**In einem meterlangen Facebook-Posting erklärt der grüne Oberbürgermeister Tübingens, Boris Palmer,**
+**warum der UN-Migrationspakt so nicht unterschrieben werden könne. Er selbst habe die Kritik an dem**
+**Umvolkungsplan der UN lange als „eine Diskussion in der rechten Filterblase gehalten“. Viele Zweifel am**
+**Pakt seinen jedoch berechtigt.**
+Er habe lange Zeit gedacht, dass die Einwände gegen die Vereinbarung, die vor allem von AfD-nahen FacebookNutzern kamen, eher eine Verschwörungstheorie seien. Er sei in dem Dokument jedoch auf viele Probleme gestoßen.
+Palmer schreibt, es sei ein Fehler gewesen, das Thema öffentlich ein Jahr lang zu ignorieren. Palmer, der das meiste
+was in dem 35-seitigen Text steht, für „selbstverständlich und richtig“ hält, kritisiert das scheinheilige Argument der
+Befürworter, dass der Pakt nicht bindend sei. Im internationalen Recht funktioniere vieles „nach dem Prinzip des Soft
+Law“, so der Grüne weiter. „Obwohl im Text steht, es sei alles nicht rechtsverbindlich, wird es auf Zeit doch
+verbindlich wirksam durch politischen Druck und Gerichte“.
+In einem weiteren Facebook-Post – verknüpft mit der Forderung nach einer „Petition für eine Protokollerklärung zum
+Pakt“ und in Form eines an Merkel formulierten Schreibens – erläutert Palmer, was aus seiner Sicht in einer
+zusätzlichen Protokollerklärung von der Bundesregierung klargestellt werden sollte: die Verbindlichkeit der
+Vereinbarung, das Ausmaß künftiger Migration, die genaue Bedeutung des Begriffs Migration und ob der Pakt das Ziel
+habe, die freie Meinungsbildung einzuschränken und die Diskussion kritischer Aspekte der Migration zu unterdrücken.
+Palmer, der von „ParteikollegInnen“ wie die weit links drehende Berliner Grüne Canan Bayram schon mal dazu
+ermuntert wird, „einfach mal die Fresse zu halten“, fordert von der Bundesregierung, die Vereinbarung in dieser Form
+nicht zu unterschreiben. Er spricht sich für zusätzliche Erläuterungen aus, wie einzelne Passagen gemeint seien. Das
+sei bei einem nicht rechtsverbindlichen Regelwerk ja jederzeit möglich, so Palmers Einwurf. Einen Ausstieg aus dem
+UN-Migrationspakt wie Österreich hält der Grün jedoch – wie sollte es auch anders sein – für falsch. (SB)
+Quelle: https://www.journalistenwatch.com/2018/11/13/boris-palmer-viele/
+
+## Berliner Kreis in der Union lehnt Verpflichtung durch UN-Migrationspakt ab
+**Von PP-Redaktion  14. November 2018**
+
+**Der Berliner Kreis kritisiert die einseitige positive Darstellung von Migration im UN-Migrationspakt,**
+**während die Risiken von Migration ausgeblendet werden. Dementsprechend ist auch die daraus**
+**abgeleitete, erklärte Absicht des Pakts, Migration pauschal zu fördern, falsch.**
+
+
+-----
+
+„Es ist auch nicht zu erwarten, dass eine Umsetzung der Verpflichtungen im Pakt Einwanderung nach Deutschland
+verringert, sondern eher, dass mehr Migration nach Deutschland stattfindet, weil u.a. im Pakt vorgesehen ist, dass
+alle Einwanderer, unabhängig vom Migrationsstatus, Anspruch auf umfangreiche staatliche Leistungen erhalten
+sollen“, so die Sprecherin des Berliner Kreises, Sylvia Pantel, MdB (Düsseldorf).
+
+Auf Initiative des Berliner Kreises und weiterer Fraktionskollegen wurde der Migrationspakt in der CDU/CSU-Fraktion
+ausführlich diskutiert. Es ist ein Erfolg der Abgeordneten, dass die Formulierung eines eigenen Antrages und dessen
+rechtzeitige Behandlung im Bundestag beschlossen wurden.
+Dieser Antrag muss aus Sicht des Berliner Kreises das Ziel haben, zusätzliche Verpflichtungen aus dem Pakt für
+Deutschland zu verhindern.
+Dazu Sylvia Pantel: „Wenn es wirklich so ist, dass durch den Pakt keine weiteren Verpflichtungen abgeleitet werden
+können, dann wird eine entsprechende Erklärung, die wir als Bundesrepublik Deutschland dem Pakt anhängen, die das
+klar und deutlich erklärt, ja keine Schwierigkeit sein. Das ist eine ganz wichtige Voraussetzung für eine Zustimmung zu
+diesem Pakt; hier müssen wir uns dann auch auf das Wort und entsprechende Zusagen unserer Bundesregierung
+verlassen können.“
+Veronika Bellmann, MdB, (Mittelsachsen) betont: “Damit erreichen wir in Europa auch eine Übereinstimmung mit
+unseren europäischen Partnern, insbesondere Österreich. Es ist wichtig, darauf zu achten, dass dieser Pakt Europa
+nicht weiter spaltet, sondern eint und wir eine gemeinsame Position finden.“
+Quelle: https://philosophia-perennis.com/2018/11/14/berliner-kreis-in-der-union-lehnt-verpflichtung-durch-unmigrationspakt-ab/
+
+**IMPRESSUM**
+**FIGU-ZEITZEICHEN**
+**Druck und Verlag: FIGU** Wassermannzeit-Verlag,
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+**Redaktion: BEAM** ‹Billy› Eduard Albert Meier,
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+Wird auch im Internetz veröffentlicht
+**Erscheint zweimal monatlich auf der FIGU-Webseite**
+
+**Postcheck-Konto: FIGU Freie Interessengemeinschaft,**
+8495 Schmidrüti, PC 80-13703-3
+
+Geisteslehre Friedenssymbol
+
+IBAN: CH06 0900 0000 8001 3703 3
+**E-Brief: info@figu.org** **Frieden**
+**Internetz: www.figu.org**
+**FIGU-Shop: http://shop.figu.org** wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+
+
+**© FIGU 2018**
+Einige Rechte vorbehalten.
+Dieses Werk ist, wo nicht anders
+angegeben, lizenziert unter :
+www.figu.org/licenses/by-nc-nd/2.5/ch/
+
+
+SSSC, 10. September 2018, 16.43 h, Billy
+
+
+Geisteslehre Friedenssymbol
+
+**Frieden**
+
+Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten
+Tritt dazu macht, um dann nachfolgend in Friedsamkeit jeden weiteren Schritt
+bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun.
+
+SSSC, 10. September 2018, 16.43 h, Billy
+
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung des Urhebers ausdrücklich erlaubt.**
+Erschienen im Wassermannzeit-Verlag: FIGU, ‹Freie Interessengemeinschaft Universell›, Semjase-Silver-Star-Center,
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+

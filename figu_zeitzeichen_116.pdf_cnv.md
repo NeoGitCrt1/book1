@@ -1,0 +1,1627 @@
+5. Jahrgang
+Nr.116, April/2 2019
+
+
+Erscheinungsweise:
+Zweimal monatlich
+
+
+# FIGU –
+ ZEITZEICHEN
+
+### Aktuelles • Einsichten • Erkenntnisse
+
+Internetz: http://www.figu.org
+E-Brief:  info@figu.org
+
+
+### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+
+Laut ‹Allgemeine Erklärung der Menschenrechte›, verkündet von der Generalversammlung der Vereinten Nationen am 10.Dezember 1948,
+
+im Artikel 19, ‹Meinungs- und Informationsfreiheit›, gilt dieses unumschränkte Recht weltweit und absolut für jeden einzelnen Menschen
+
+weiblichen oder männlichen Geschlechts jeden Alters und Volkes, jedes gesellschaftlichen Standes wie auch jeglicher Ideologie:
+
+Art. 19 Menschenrechte
+
+Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit, Meinungen
+
+unangefochten anzuhängen und Informationen und Ideen mit allen Verständigungsmitteln ohne
+
+Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.
+
+Ansichten, Aussagen, Darstellungen, Meinungen und Ideologien jeder Art in Abhandlungen, Artikeln und in Leserzuschriften usw., müssen
+
+nicht zwingend identisch mit dem Gedankengut, den Interessen, mit der ‹Lehre der Wahrheit, Lehre des Geistes, Lehre des Lebens›
+
+und damit also auch nicht in irgendeiner Weise mit dem Missionsgut und daher auch nicht verbindend mit der FIGU sein.
+
+==============================================================================================
+
+Für alle in den FIGU-Zeitzeichen und anderen FIGU-Periodika publizierten Beiträge und Artikel verfügt die
+
+FIGU über die notwendigen schriftlichen Genehmigungen der Autoren bzw. der betreffenden Medien!
+
+### **********************************************************************************************************
+
+Auf vielfach geäusserte Wünsche aus der Zeitzeichen-Leserschaft sollen in den Zeitzeichen zur Orientierung der
+
+Rezipienten laufend Auszüge diverser wichtiger Belange aus neuest geführten Kontaktgesprächsberichten
+
+veröffentlicht werden, wie nach Möglichkeit auch alte sowie neue Fakten betreffs weltweit bösartig mit
+
+Lügen, Betrug, Verleumdung und Mordanschlägen gegen BEAM geführte Kontroversen.
+
+## Werdet vernünftig und schliesst wirklichen Frieden – 
+ mit euch selbst und mit allen anderen Menschen!
+
+
+-----
+
+### Für Frieden und echte Demokratie kämpfen heisst: Unfähige, Machtgierige und
+ Menschheitsverbrecher aus den Ämtern werfen.
+
+ Jede Art von Kriegshetze ist der Aufruf zum Selbstmord durch hirnlose Psychopathen
+ und ihre schleimigen Untertanen.
+ Politik, Religionen, Medien: Die Rundum-Gehirnwäsche für den heutigen 
+ total angepassten, meinungslosen, dummen Menschen.
+
+ Nur, wer selbst denkt, kann den bösen Einflüsterungen von Aussen widerstehen und
+ sein Leben im Einklang mit der Wirklichkeit und Wahrheit selbst heilsam lenken.
+
+Achim Wolf, Deutschland
+
+### Eine Warnung aus dem Jahr 1949 des damals 12-jährigen BEAM 
+
+**= <Billy> Eduard Albert Meier:**
+
+**Abdruck in Bulletin Nr. 97 und Sonder-Bulletin Nr. 104 vom Juni 2017**
+
+**Letzter Teil des Textes ‹Offener Brief vom Samstag, den 7. Juli 1949 an Regierungen**
+
+**und öffentliche Medien in Europa›**
+
+**Der grosse Bär wird kommen**
+
+Es werden erzittern Amerika und das Europaland,
+wenn vom Osten Freiheit kommt mit harter Hand,
+
+die unterdrückt wird von Amerika und Europa her,
+
+die jedoch gestraft werden durch eine harte Lehr,
+
+für den Weltherrschaftssinn, den sie böse hegen
+
+und damit Länder und Völker in Diktaturen legen.
+
+Der grosse Bär wird kommen, der Freiheit bringt,
+Russenland, das die ganze Unfreiheit niederringt,
+
+die in Amerika und Europa aus vieler Munde gellt,
+
+wie vielfach in andern Ländern rund um die Welt;
+
+doch der Bär aus dem Osten wird sie vernichten
+
+und das Ganze zu Frieden und Freiheit schlichten.
+
+Doch es wird lange dauern bis dahin, mit Klagen,
+
+die mit Tränen werden in die Welt hinausgetragen,
+
+weil böser Terrorismus, Diktatur, Hass und Krieg
+
+dem Frieden und der Freiheit verwehren den Sieg.
+
+Macht und Weltherrschaftsgier zerreissen die Welt,
+
+und in vielen Ländern gar manch Todesschrei gellt,
+
+weil Amerika sowie Europa Unfreiheit hinaustragen
+
+und die Menschen mit Krieg, Not und Elend schlagen.
+
+Die Unfriedenstifter, deren Tun auf Macht gründet,
+
+werden vom Bären belehrt sowie ihnen verkündet,
+
+dass Weltmachtansprüche böse Unfrieden schürt,
+was die Menschheit in Tod sowie Verderben führt.
+
+Darum wird der Bär alles Übel Amerikas zerreissen,
+
+und es wird auch Europa das gleiche verheissen.
+
+Wenn gewalttätig vom weltraffenden Amerika her
+
+Kriege alles in der Welt zerstören, kreuz und quer,
+
+wenn von der Europa-Diktatur gleiches widerhallt
+
+und Mordgeschrei von bösem Terrorismus erschallt,
+
+dann wird der Bär starten, den Unfrieden zu beissen,
+und das wird der Westmächte böses Tun zerreissen.
+
+Bülach, den 7. Juli 1949, Eduard Albert Meier
+
+**(Geoogle: Der Russische Bär ist – neben Mütterchen Russland – eine nationale Personifikation Russlands ...**
+
+in der Landeskunde Rerum Moscoviticarum Commentarii (Notes on Muscovite Affairs) das Symbol des „Russischen Bären“ geprägt.)
+
+
+-----
+
+### ZEITZEICHEN-Leserwunsch
+
+Geehrter Billy,
+In unserer 8er-Runde wurde laut, dass gesagt wird, Sie hätten schon in den 1950er Jahren eine umfangreiche
+Prophezeiung gemacht und vorausgesagt, was sich zukünftig alles zutragen werde. Da uns diese Prophezeiung
+nicht bekannt ist, wir aber daran interessiert wären und wir immer die ZEITZEICHEN von Ihnen lesen, in denen
+Sie auch von Ihren Gesprächen mit den Plejaren berichten, möchten wir Sie fragen, ob Sie diese Prophezeiung
+in einem ZEITZEICHEN veröffentlichen können, wofür wir Ihnen sehr dankbar wären.
+Mit Dank und Gruss von uns allen U.W. Deutschland
+
+(Anm. Billy: Name und Anschrift der Gruppe sowie deren Amtstätigkeit sind mir bekannt)
+
+## Prophezeiung und Voraussage
+
+von Eduard A. Meier, BEAM, Uitikon, Schweiz
+
+24. August 1958
+
+1) Meine Augen und Sinne sehen Dinge der Zukunft, die sich ab heute, dem Jahre 1958, zutragen und
+also sein werden.
+2) Also sehe und erfasse ich Dinge durch die Zeit hinweg bis in fernste Zukunft, die dem Erdenmenschen
+noch verborgen bleibt. Viele Jahre werden vorbeigezogen sein, wenn sich meine Prophetien und Voraussagen erfüllt haben und eine neue und bessere Zeit beginnt.
+3) Bis dahin ist es jedoch noch weit, sehr weit, und viel Elend und Not sowie Übel, Kriege, Terror, Chaos
+und Katastrophen werden über die Menschheit und die Welt hereingebrochen sein.
+4) Sind bisher riesige Scharen von Gläubigen der Religionen über die Erde gewandelt, werden künftighin
+auch unzählige Gläubige unglaublich vieler irrer Sekten den Boden der Erde zerstampfen, wobei manche
+Sektengurus ihre Gläubigen in den Massenselbstmord und Mord treiben werden.
+5) Wie giftige Pilze werden sie sich überall ausbreiten, und ihr Wahnglaube wird wie ein Trompetenschall
+über die ganze Welt erhallen.
+6) Der Sektierismus wird böse Früchte tragen und durch Morde und Selbstmorde viele Menschenleben
+kosten, wie auch durch die Politik und Machthaberei in diversen Staaten Hunderttausende von Menschen
+ermordet werden, wie in der Sowjet-Union, die spätestens 1991 aufgelöst wird, und in der DDR, die jedoch nur noch bis in die späteren Achtzigerjahre dieses Jahrhunderts bestehen wird, wonach dann
+Deutschland wieder vereint wird, wobei gegensätzlich im Irak durch die USA, durch deren Staatspräsidenten, ein Krieg geführt werden, dieser jedoch erfolglos sein wird, weshalb einer seiner Söhne, der ebenfalls
+Staatsmächtiger der USA werden wird, im dritten Jahrtausend einen zweiten Krieg im Irak auslöst, der
+letztlich zu einem unglaublichen Desaster und zu Folterungen führt, wie auch zu Massenmorden durch
+die US-Streitkräfte und durch Aufständische.
+7) Erdenmensch, ich sehe die grossen Weiten der Erde; die beinahe grenzenlosen Meere, die grossen
+Kontinente, gewaltigen Gebirge, die weiten Wälder, sprudelnden Quellen, die fliessenden Bäche, Flüsse
+und all die Seen, und ich sehe, wie sie alle durch den Menschen geharmt, krankgemacht, zerstört und
+grossteils vernichtet werden.
+8) Es werden nicht erst Jahrhunderte oder Jahrtausende vergangen sein, bis all das geschieht und all
+das, was weiter an prophetischem und voraussagendem Wort noch zu sagen ist, denn der Beginn aller
+Übel hat bereits mit der Entwicklung der modernen Technik und mit den Schrecknissen der beiden Weltkriege begonnen.
+9) Künftighin werden weitere böse Kriege über die Welt verbreitet, die so zahlreich sein werden, dass für
+den normalen Menschen der Überblick verlorengeht.
+10) Durch Kriege und Aufstände werden Völker ausgerottet und Länder in sich zusammenstürzen, und
+jeder Mächtige wird das unter sein Kommando gerissene Land mit neuen Namen benennen, wodurch
+altherkömmliche Benennungen in der Versenkung verschwinden.
+11) Viele Völker, Arbeiter, Bettler, Bedienstete, Extremisten, Anarchisten und Neonazis werden als Widerständler gegen die volksfeindliche und korrupte Obrigkeit Elend, Not, Mord und Totschlag sowie Terror,
+Aufstände und Revolutionen sowie gewalttätige Demonstrationen und viel Zerstörung an vielem Hab und
+Gut und an den menschlichen Errungenschaften hervorrufen.
+12) Terroristen werden weltweit Mord und Zerstörung verbreiten, wonach sie wieder in ihre Schlupfwinkel
+zurückkehren und sich verstecken, um neue Ungeheuerlichkeiten auszubrüten und Tod und Verderben
+
+
+-----
+
+über die Menschheit zu bringen.
+13) Die Terroristen, Kriegshetzer, Verbrecher, Prostituierten und Kriminellen werden sich weltweit organisieren und sich als Könige und Kaiser der Welt wähnen, während das Volk und die Ordnungsorgane
+machtlos zusehen und zum Schutz ihres Lebens sich verkriechen müssen.
+14) Der Mensch der Erde resp. der Sowjet-Union wird schon im nächsten Jahr, am 13. September 1959,
+ein unbemanntes Objekt mit Raketenantrieb hart auf dem Mond landen; und am 12. April 1961 wird ein
+Erdenmensch mit einer Rakete in den Himmel hochsteigen, um im äusseren Raum der Erde diese zu
+umkreisen, danach wird am 3. Februar 1966 ein Raumflugobjekt mit weicher Landung auf den Mond
+aufsetzen, wonach 1968 der äussere Erdenraum verlassen und später die erste Reise zum Mond angetreten wird, wobei bis zum Jahr 1972 fünf (5) bemannte Mondlandungen durch die USA stattfinden werden,
+während eine sechste Mondlandung – die angeblich erste – am 20. August 1969 aus politischen Wettrüstungsgründen mit der Sowjet-Union nur auf einem weltweit inszenierten Betrug beruhen wird.
+15) Gerade ist die Zeit angebrochen, da der Mensch die Tiefen der Meere und langsam die Kraft der
+Sonne erobert, um daraus vielfältige Energie zu gewinnen.
+16) Und der Mensch ist auf dem Wege, in den nächsten Jahrzehnten bis zum neuen Jahrtausend, das
+Geheimnis des Lebens zu entschlüsseln, indem er die Gene enträtselt.
+17) Ebenso wird sich in den Achtzigerjahren dieses Zwanzigsten Jahrhunderts ergeben, dass der Mensch
+durch künstliche Befruchtung gezeugt werden kann, während bereits zum Wechsel des dritten Jahrtausends aus einzelnen Zellen Menschen und Tiere ohne eigentlichen Zeugungsakt geklont werden können.
+18) Zur Zeit des ausgehenden zweiten Jahrtausends befleissigt sich der Mensch bereits der ersten tiefgreifenden Schritte der Genmanipulation an Fauna und Flora, wonach im dritten Jahrtausend die Genmanipulation am Menschen Einzug halten wird.
+19) Das Ende des zweiten Jahrtausends wird einerseits geprägt sein von der sehr schnell umsichgreifenden Computertechnik und andererseits von Aufständen und einem grossen Krieg, der erster Golfkrieg
+genannt werden wird und dem gleich zu Beginn des dritten Jahrtausends ein zweiter Golfkrieg folgen
+wird – ausgelöst durch die USA, die sich schon seit dem Ersten Weltkrieg als Weltpolizei wähnen und
+auch die Weltherrschaft unter ihre Fuchtel bringen wollen.
+20) Zum Ende des zweiten und zum Beginn des dritten Jahrtausends wird sich der Mensch für die
+Schöpfung halten und auf der ganzen Erde machtvoll in der gesamten Natur Unheil anrichten und Zerstörung bringen.
+21) Und schon kommt die Zeit, zu der sich die Völker zu vermischen beginnen und zu der viele Menschen aus ihren Heimatländern flüchten, um anderswo in der Fremde Unterschlupf zu finden; und es
+werden viele Flüchtlinge sein, die um den Erhalt ihres Lebens kämpfen müssen, während sehr viele andere sich als Wirtschaftsflüchtlinge in die Strukturen der bessergestellten Staaten einschleichen.
+22) Prostitution ist bereits weltweit auf dem Wege, zum öffentlichen, unhemmbaren und amtlich anerkannten Gewerbe zu werden, das gegenüber dem Staat steuerpflichtig wird – Ethik wird in dieser Beziehung ebenso keine Rolle mehr spielen, wie auch nicht Anstand und Gesundheit.
+23) Durch die ungehemmte Prostitution wird sich in rund 25 Jahren weltweit eine bereits im Keime geschaffene tödliche Seuche entwickeln, die AIDS genannt und letztendlich mehrere hundert Millionen
+Menschenleben kosten wird.
+24) Auch die Kinderprostitution ist in ungeheurem Masse ebenso im Steigen begriffen wie die Sexualmorde an Frauen und Kindern.
+25) Menschenhandel mit Kindern und Frauen in bezug auf die Prostitution und zum Zwecke des Organhandels gehören schon jetzt zur Alltäglichkeit, doch wird sich dieses Übel bis zum Jahrtausendwechsel
+und im dritten Jahrtausend noch steigern, denn Organverpflanzungen von Mensch zu Mensch werden
+schon in wenigen Jahren zur alltäglichen Normalität des Erdenmenschen gehören. (Anm. 2019 Billy: 1954
+fand in Boston am Peter Bent Brigham Hospital die erste längerfristig erfolgreiche Transplantation mit Nieren statt,
+und zwar zwischen den Zwillingsbrüdern Richard und Ronald Herrick, wonach noch eine Überlebensdauer von 8
+Jahren gegeben war, wonach Richard an chronischer Nierenentzündung starb. Dr. Joseph Murray führte am
+23.12.1954 damit die erste als <erfolgreich> gegoltene Nierentransplantation (Isotransplantation) durch. Die Organverpflanzung erfolgte also zwischen eineiigen Zwillingen und damit bei zwei gewebeidentischen Menschen. Und dies
+war gemäss den Erklärungen von Sfath der Ursprung des daraus hervorgehenden Organhandels, weil schon nach
+dieser Transplantation illegal mit Nieren gehandelt wurde und in mehreren Ländern heimlich Transplantationen
+durchgeführt wurden, die oft mit Komplikationen einhergingen oder gar tödlich verliefen.)
+26) Ehen zwischen Mann und Frau werden schon in wenigen Jahren nur noch zum Schein geschlossen,
+ohne verbindende Liebe, sondern nur noch zusammengefügt aus persönlichen Interessen der einzelnen
+
+
+-----
+
+Partner, folglich die Ehebündnisse nur noch Lug und Trug und nicht mehr von Beständigkeit sein werden,
+folglich Ehen immer häufiger wieder geschieden werden.
+27) Auch die gesamte Natur wird sich erheben, und zwar gegen den Menschen und seine verantwortungslosen Machenschaften, mit denen er den Lauf der Dinge der Natur sowie der Fauna und Flora und
+des gesamten Lebens stört.
+28) Schwere bis schwerste Unwetter werden fortan und bis weit ins dritte Jahrtausend hinein unsagbar
+viel Elend, Not und Leid über die Menschen bringen, wie alles seit Menschengedenken noch nie stattgefunden hat.
+29) Schwerste Erd- und Seebeben werden urgewaltig ebenso wirken und Millionen von Menschenleben
+fordern wie auch sintflutartige Regenmassen, die ungeheure Überschwemmungen hervorrufen und
+mächtige Zerstörungen anrichten, wie sie der Mensch gesamthaft noch nie erlebt und gesehen hat.
+30) Und was sich in den letzten 42 Jahren des zweiten Jahrtausends ergibt – nebst sehr vielen anderen
+Übeln, nebst Chaos, Grausamkeiten und Katastrophen, die nicht erwähnt sind –, trägt sich alles auch ins
+dritte Jahrtausend hinein und fordert rundum seinen Tribut.
+31) Und wenn das zweite Jahrtausend zu Ende geht, dann steht der Mensch in der Dunkelheit seines
+Daseins, in dem er wie in einem undurchdringlichen Labyrinth umherirrt und nicht mehr hinausfindet,
+denn in seinem Bewusstsein wird tiefe Nacht sein, wobei jedoch die drohend rotglühenden und die feurigen Fänge der Religionen und Sekten lauern.
+32) Und die Religionen und Sekten erbeben in Wut, weil ihnen die Gläubigen davonlaufen, die sich endlich der Wahrheit zuwenden wollen, doch die feurigen Fänge der religiösen Machtspiele der Religionen
+und Sekten greifen nach den jungen Menschen, um sie in den Flammen des Religionsfanatismus zu verbrennen und sie fluchtunfähig zu machen.
+33) So mögen sich die jungen Menschen vor der Lüge und Irrlehre der Religionen und Sekten hüten,
+denn deren grausame Wut, mit der sie Gläubige mit Lug und Betrug um sich scharen, wird keine Grenzen
+kennen.
+34) Schon jetzt und erst recht im dritten Jahrtausend weiss der Mensch tief in seinem Innern Bescheid,
+dass er sich nicht Religionen und Sekten, sondern der effectiven Wahrheit, der Schöpfungswahrheit sowie
+den Gesetzen und Geboten der Schöpfung zuwenden muss, doch obwohl er die Stimme der Wahrheit in
+sich hört, will er sie nicht hören, weil er von religiöser Angst gequält wird und sich nicht von seinem religiösen oder sektiererischen Glauben befreien kann, weil er eine göttliche Strafe dafür erwartet, wenn er
+das tut.
+35) Und wenn der Mensch nach der effectiven Wahrheit sucht, dann wird er irregeführt und betrogen,
+denn noch mehr als im zweiten werden im dritten Jahrtausend unzählige Sektierer sein, die mit Irrlehren
+rentablen Handel treiben und horrende Profite damit machen.
+36) Auch der einfache Mensch selbst, wie auch die Reichen, werden nur noch ihren Mammon sehen, zählen und nach Reichtum, Luxus, Vergnügen und Urlaub streben, während die Obrigkeiten und Behörden
+den Bürger mit allerlei neuen Steuern und Taxen ausbeuten werden.
+37) Der Moloch Mammon wird im dritten Jahrtausend noch sehr viel schlimmere Blüten hervorbringen
+als im zwanzigsten Jahrhundert, denn die Unmoral und das Verbrechen sowie die Wirtschaftskriminalität
+und Kriegsförderung usw. werden keine Grenzen mehr kennen, wenn es darum geht, den Mammon zu
+horten.
+38) Kriminelle Banker, Regierende und Wirtschaftsführer werden sich an Millionenentlohnungen und Millionenabfindungen gütlich tun, schuldenmachende Misswirtschaft betreiben und dadurch zu Beginn des
+dritten Jahrtausends weltweit viele altherkömmliche Klein- und Grossbanken sowie Wirtschaftsfirmen und
+grosse Konzerne in den Ruin treiben, wie auch die Bürger in private Konkurse laufen werden, wenn sie
+ihre Finanzen nicht mehr kontrollieren können, weil sie vom bewährten Geld weggetrieben und mit Plastikgeld in Form von Plastikkarten versehen werden, mit denen sie über ihre Entlohnungsverhältnisse in
+grosser Geldknappheit leben, allerlei auf Kredit bezahlen und in horrende Schulden geraten, wobei auch
+spezielle Firmen für die Verwaltung von Plastikkarten entstehen, während die Banken darauf aus sein
+werden, mit Plastikkarten, die dann Kreditkarten genannt werden, ihre Kunden in Abhängigkeit zu bringen, wobei ganz besonders Jugendliche ins Auge gefasst werden, die dadurch immense Schuldenberge
+anhäufen, die sie in Not und Elend treiben.
+39) Das Feuer der Misswirtschaft breitet sich ständig auch in den untauglichen Regierungen aus, die
+ebenfalls Misswirtschaft betreibend ihre eigenen Länder in den Ruin wirtschaften, wenn sie derart immense Schulden machen, dass diese in einer Form ansteigen, dass dem Staat Bankrott erklärt werden
+muss.
+
+
+-----
+
+40) Und es wird sein, dass noch vor der Zeit des dritten Jahrtausends, und zwar 1993, eine politische
+und wirtschaftliche europäische Diktatur entsteht, die als "Europa Union" bezeichnet werden und im Bösen die Zahl 666 tragen wird, denn durch diese werden die Bürger und Bürgerinnen aller Mitgliedsstaaten letztendlich einer totalen Kontrolle durch biometrische Daten in Ausweisen und in Form von kleinen
+Datenscheibchen im Kopf oder Körper in ein "Biometrisches Identifizierungssystem" eingefügt, das durch
+eine "Zentrale Datenbank" überwacht und kontrolliert wird, wodurch letztlich der Aufenthaltsort jedes
+Menschen auf den Meter genau bestimmt werden kann. Erstlich werden die USA und später die "Europa
+Union" diese moderne Menschenversklavung einführen, wonach dann auch andere Staaten folgen werden
+– allen voran die Schweiz –, wobei durch diesen Prozess die persönlichen und staatlich-bürgerlichen
+Rechte der Menschen drastisch beschnitten werden, was grundlegend schon beim Aufbau der "Europa
+Union" geplant sein wird, wodurch die Bürger letztendlich vollends entmündigt und nur noch durch die
+Obrigkeiten regiert werden sollen, ohne dass sie noch ein Mitspracherecht bei irgendwelchen staatlichen
+Dingen und Beschlüssen haben.
+41) Die Moral sehr vieler Menschen wird völlig sinken, wodurch viele Dörfer und jede Stadt ein Sodom
+und Gomorrha sein werden, denn die Prostitution durch Erwachsene und Kinder wird Formen annehmen,
+die völlig überborden.
+42) Viele junge Menschen werden in jeder Art und Weise dem Extremismus verfallen, sowohl im Alltagsleben wie auch im Berufsleben, wobei Drogen-, Medikamente-, Alkohol- und Rauschgiftsucht überhandnehmen.
+43) Viele junge Menschen werden extrem-radikalen glatzköpfigen und neonazistischen Fronten zulaufen
+und deren Fahnen schwingen sowie dementsprechende Organisationen bilden, die viel Schaden und Unheil anrichten, auf den Strassen wahllos unschuldige Menschen angreifen und nicht selten zu Krüppeln
+schlagen.
+44) Viele Blutkonserven werden in kommender Zeit durch Viren verseucht sein und die Menschen krankmachen und dem Tod ausliefern, wenn ihnen das Blut transfundiert wird (richtig = transfusioniert gemäss Angaben der plejarischen Sprachwissenschaftler für die lateinische und deutsche Sprache).
+45) Gegen Ende des zwanzigsten Jahrhunderts werden bei fernen Sonnensystemen laufend neue Planeten entdeckt, die jedoch kein menschliches Leben tragen können.
+46) Auch in unserem Sonnensystem werden neue SOL-Trabanten entdeckt, die sich weit ausserhalb der
+sPlutobahn bewegen, doch wird das erst nach der Jahrtausendwende sein.
+47) Bereits in zwanzig Jahren wird die Zeit kommen, da neuerlich schwere und für den Menschen tödliche Seuchen auftreten, insbesondere in Afrika, wie aber auch in anderen Ländern – und teilweise wird es
+kein Heilmittel dagegen geben.
+48) Weiterhin werden grosse Hungersnöte in der dritten Welt grassieren, während in den reichen Industriestaaten riesige Warenlager mit Konserven und sonstigen Lebensmitteln lagern, während Bauern
+Früchte und Gemüse usw. sinnlos vernichten, weil sie die Waren nicht zu günstigen Preisen verkaufen
+wollen, denn ihre Gier nach Geld und Reichtum wird keine Grenzen kennen, weshalb sie auch ihr Land
+und Hab und Gut für klingende Münze verscherbeln werden, um davon zu leben und nicht mehr einer
+anständigen Arbeit nachgehen zu müssen.
+49) Die Menschen werden der Gier nach Geld und Reichtum immer hemmungsloser verfallen, wodurch
+selbst heimliche und nie aufzuklärende Morde an den Eltern begangen werden, um sie zu beerben.
+50) Immer häufiger tritt es in Erscheinung, dass Mütter ihre Kinder bei der Geburt ermorden oder sie
+aussetzen, während Rabeneltern ihre Kinder totschlagen sowie verdursten und verhungern lassen.
+51) Viele Familien werden zukünftig dadurch zerstört, weil Väter oder Mütter in endlosem Streit leben,
+was auch oft dazu führt, dass Väter oder Mütter alle Familienmitglieder ermorden.
+52) In dreissig Jahren wird die bis dahin anhaltende Hochkonjunktur zusammenbrechen und in allen
+Industriestaaten eine unermessliche Arbeitslosigkeit hervorrufen, wodurch nicht nur viele Millionen Menschen arbeitslos und armengenössig werden, sondern auch Familien zerstört, die Kriminalität sich ausweitet und Morde begangen werden.
+53) Ein ungeahnt aufkommendes Asylantenproblem wird noch vor dem Jahrtausendwechsel über alle
+Industriestaaten hereinbrechen und einen Asylantentourismus hervorrufen, durch den auch sehr viele
+asoziale Elemente einwandern, die einen kriminellen Boom auslösen, wodurch Hab und Gut vieler Menschen ebenso nicht mehr sicher sein werden wie auch nicht Leib und Leben.
+54) Bereits hat der Mensch durch seinen Überbevölkerungswahn nachteilig die Welt und das Klima derart verändert, dass eine steigende Klimaerwärmung in Erscheinung tritt, die sich weit ins dritte Jahrtausend hineintragen und ungeheure Naturkatastrophen auslösen wird, doch wird das nicht das Ende sein,
+
+
+-----
+
+weil alles im gleichen Stil weitergeht und zu Beginn des dritten Jahrtausends mehr als sieben Milliarden
+Menschen auf der Erde sein werden, was weltweit zu noch grösserem Unheil und zu Zerstörungen führen
+wird, weil einerseits die Natur rächend zurückschlägt und andererseits der Mensch alles unternimmt, um
+die gesamte Umwelt und das Leben zu zerstören.
+55) Die stetig steigende Masse der Überbevölkerung führt zu Gleichgültigkeit und Verweichlichung der
+Menschen, wodurch die wahren zwischenmenschlichen Beziehungen erkalten und verschwinden, während das männliche Geschlecht langsam, jedoch unaufhaltsam immer zeugungsunfähiger wird.
+56) Durch atomare Verseuchungen der Umwelt – durch atomare Explosionen, Atomkraftwerke und radioaktive Abfälle der Industrie und Krankenhäuser usw. – wird das gesamte Leben der Fauna und Flora sowie des Menschen immer mehr beeinträchtigt und in der Gesundheit gestört, während auch Mutationen
+an Fauna und Flora und am Menschen in erschreckender Weise in Erscheinung treten werden.
+57) Weder Luft, Gewässer, Land, Gebirge noch Meere werden künftig vor dem Menschen sicher sein,
+denn allüberall wird er zur Platzschaffung für die wachsende Überbevölkerung und zu Sportzwecken unwiderruflich alles zerstören, so durch Skilifte, Massensiedlungen, Bergbesteigungen, Rennen mit Motorfahrzeugen und Motorbooten sowie mit ungeheuren Wohnbauten, die hoch in den Himmel ragen, wie
+aber auch mit Strassen- und Tunnelbauten usw.
+58) Der Mensch wird immer mehr die Erde, die Lüfte und Meere bevölkern und dem ganzen angestammten Getier den Lebensraum nehmen und damit unzählige Gattungen und Arten ausrotten.
+59) Der Mensch erhebt sich immer mehr zum Befehlshaber über die Erde, und schon in den kommenden 20 Jahren wird er bemüht sein, die Macht der Schöpfung anzustreben, weshalb er keine Grenzen
+mehr kennen wird; doch wird sich das Ganze gegen ihn wenden, denn er wird wie ein betrunkener, blinder Herrscher durch die Welt irren, sich selbst im Wahn voranhetzen und quälen – und am Ende seines
+Weges wird er in einen tiefen Abgrund fallen.
+60) In kommender Zeit werden ganze Städte aus dem Boden spriessen, und das Land wird sich immer
+mehr von Menschen leeren.
+61) Die Ordnung der Menschen gerät immer mehr ins Wanken, und viele werden sich ihre eigenen Gesetze machen und danach leben.
+62) Es wird im dritten Jahrtausend die Zeit kommen, da es nicht mehr genug Nahrung für alle Menschen
+geben wird, was zu grausamen Szenen des Verhungerns und des Mordes und Totschlages führt.
+63) In den Städten machen sich schon die Kriminellen und Verbrecher breit, und organisierte Banden
+werden Menschen überfallen, zusammenschlagen oder gar töten, einfach aus Spass oder um sie auszurauben, denn friedliche Spiele und ein normales Leben werden ihnen nicht mehr genügen.
+64) Nicht werden viele Menschen nur Hunger leiden, denn sie werden auch der Kälte ausgesetzt sein,
+blau werden und erfrieren, und es wird dabei so sein, dass viele lieber den Tod suchen, als in bitterster
+Armut und Bettelei ein unwürdiges Leben zu fristen.
+65) Viele Menschen werden sich künftighin selbst aus dem Leben katapultieren, weil sie drogensüchtig,
+krank oder alt geworden sind und sich einsam, hilflos und verlassen fühlen, weil die Mitmenschlichkeit
+immer mehr zur puren Nützlichkeit und Profitsucht verkommt; die Betagten werden zu horrenden Preisen in Altersheime gesteckt und finanziell völlig schamlos ausgenommen bis aufs Blut.
+66) Selbstmorde werden immer häufiger, wie auch Euthanasie, weil geschäftstüchtige Verbrecher finanziellen Nutzen daraus ziehen, wodurch es zu einem Sterbetourismus in Länder kommt, in denen die Sterbehilfe zum Mord und Selbstmord erlaubt sein wird; die Sterbehelfer werden Händler ohne Illusionen
+sein und ihre Gifte zum Selbstmord jedem verkaufen, der sie haben will.
+67) Das Rauschgiftproblem wird immer mehr um sich greifen, wobei weltweit organisierte Verbrecherbanden selbst Kinder in den Teufelskreis der Rauschgiftsucht hineinmanövrieren.
+68) Durch Drogen und Süchte werden die Körper der Menschen zerstört, und zu Beginn des dritten Jahrtausends wird eine neue gefährliche Rauschdroge mit dem Namen Crystal unter den süchtigen Menschen Furore machen und deren Gesicht und Körper innerhalb weniger Monate zerfurchen, zersetzen
+und derart altern lassen, als wären die Süchtigen Monster und hundert Jahre alt.
+69) Durch Eigensucht, Hass, Rachsucht, Lieblosigkeit, Tugendlosigkeit und Vergnügungssucht usw. erkalten bei den Menschen immer mehr die Gedanken und Gefühle, wodurch die Psyche und das Bewusstsein
+sowie die Moral verdorben werden.
+70) Alle jene, die süchtig sind nach Drogen aller Art, die sie trinken, einsaugen oder sich ins Blut spritzen,
+werden wie wilde Tiere sein und die Kontrolle über sich verlieren; und viele unter ihnen werden rauben,
+stehlen, einbrechen und morden, vergewaltigen und erpressen, um an die Gifte zu kommen, denen sie
+süchtig verfallen sind – ihr Leben wird eine Qual sein und zur wahren Katastrophe werden.
+
+
+-----
+
+71) Die bereits nahe Zukunft wird bringen, dass jeder Mensch derart viel Genuss, Hab und Gut, Vergnügen, Geld und Reichtum zu erreichen versucht, wie er nur kann, und es wird sein, dass selbst die Eltern
+ihre Kinder, die Kinder ihre Eltern und die Geschwister ihre Geschwister betrügen, wenn sie dadurch für
+sich einen Profit gewinnen können.
+72) Ehen werden nicht mehr aus Liebe, sondern aus Profitsucht, um des Ansehens willen und infolge
+falscher und kurzfristiger Gefühlsduseleien geschlossen, und so kommt es immer häufiger, dass sich
+Mann und Frau so oft verstossen und scheiden lassen, wie sie sich auch oft verheiraten.
+73) Wie einst zu Sodom und Gomorrha werden zukünftig viele Frauen und Männer durch die Strassen
+und in Freudenhäuser gehen, um sich jeden und jede als sexuellen Gespielen und Gespielin zu nehmen,
+wie es jeder und jedem gerade gefällt.
+74) Viele verheiratete Frauen und Männer werden sich immer häufiger ausserhalb der Ehe anderen Partnern und Partnerinnen zuwenden, und so werden viele Männer Kinder zeugen, wovon sie nichts wissen –
+und Frauen werden Kinder gebären, ohne den Namen des Vaters zu kennen; und also wird es sein, dass
+jede zehnte Geburt ein Kuckuckskind hervorbringt, das dem Ehemann untergeschoben wird; und es wird
+sein, dass Kinder Kinder gebären und dass Mütter den Namen des Vaters nicht nennen.
+75) Viele Kinder werden keine Väter oder keine Mütter haben, weil diese sich scheiden lassen oder unerkannt verschwinden, weil sie nicht Vater oder Mutter sein oder nicht in einer Ehe leben wollen, denn die
+Ordnung und Tradition einer guten und funktionierenden Familie wird verloren sein, wie auch die Gesetze
+des Ehebündnisses keinen Wert mehr haben werden, gleichsam dem, als ob der Mensch wieder zum
+Wilden würde.
+76) Und wie schon geschehen, wird es auch künftig sein und immer mehr, dass Väter ihre Töchter sexuell
+missbrauchen, junge und alte Pädophile sich an Kindern sexuell vergehen, Frauen jedes Alters vergewaltigt, geschändet und ermordet werden – nicht selten in aller Öffentlichkeit und in aller Welt infolge eines
+immer häufiger werdenden Sextourismus.
+77) Männer werden Männer und Frauen Frauen vergewaltigen, und Kinder werden meistbietend durch
+die eigenen Eltern, Verwandten oder durch Kinderräuber den Meistbietenden vermietet oder verkauft.
+78) Väter zeugen mit den eigenen Töchtern Kinder und Mütter mit ihren eigenen Söhnen Nachkommen,
+wodurch eine Blutvermischung in der eigenen Familie entsteht; und dadurch, dass sich das Böse von
+Bett zu Bett ausbreitet, werden psyche- und bewusstseinsmässige Schäden hervorgerufen und der Zustand, dass sich die Menschen nicht mehr wahrlich in wahrer Liebe kennen, sondern sich nur noch über
+ihre Sexualpraktiken erkennen.
+79) Die Menschen werden durch ihre Lebensweise und durch ihre Gedanken und Gefühle und durch das
+Fehlen ihrer Tugenden und aller guten Werte geharmte, gequälte und abgezehrte Gesichter haben, denn
+ihr ganzes falsch gelebtes Leben wird sich in ihnen widerspiegeln.
+80) Es kommt die Zeit, in der jeder nicht mehr gehört wird, wenn er von Gesetz und Ordnung spricht, wie
+auch jene schon seit geraumer Zeit nicht gehört werden, die wider den religiösen und sektiererischen
+Glauben reden und die wahrliche Wahrheit in bezug auf das Leben, die Schöpfung und ihre Gesetze und
+Gebote mühsam verbreiten, was besonders wieder sein wird zur Zeit, wenn im dritten Jahrtausend ein
+deutscher religiös-fanatischer Papst das Pontifikat innehaben wird, der glaubt, durch seinen fanatischen
+Gottglauben die Welt vor dem Zerfall und Untergang retten zu können.
+81) Rund um die Welt werden sich die verheerenden Machenschaften der Religionen und Sekten wieder
+ausbreiten, und unzählbare falsche Messiasse und falsche Propheten werden die labilen und wahrheitsblinden Massen der Menschen betören und neuerlich in die Irre führen; und viele dieser Gläubigen werden Waffen tragen und Bomben bauen und in ihrem Fanatismus damit vieltausendfachen Mord sowie
+grosse Zerstörungen verbreiten.
+82) Die mordenden und zerstörenden Fanatiker der Religionen und Sekten werden in ihrem todbringenden, feurigen Glauben von Gerechtigkeit im Namen Gottes sprechen und dabei Elend, Not, Tod und Verderben verbreiten.
+83) Und es wird sein, dass sich fanatische Islamisten für die frühen Kreuzzüge der Christen an deren
+späten Nachkommen blutig rächen werden, wenn sie durch unbezähmbaren Terror in aller Welt ihre todbringenden und zerstörenden Akte vollbringen.
+84) Dröhnender Donner wird über die Erde krachen, und tausendfältige Tode werden grassieren, wenn
+verbrecherische Staatsmächtige der USA Kriege in der weiten Welt auslösen und wenn Israels Staatsgewaltige ebenso Terror, Mord, Tod und Verderben verbreiten wie die Palästineser selbst, von denen unzählige Selbstmordattentate ausgehen werden; die Mörder und Mörderinnen aller Gattungen militärischer
+und aufständischer Form in aller Welt werden dabei aus allen Schichten der Bevölkerung rekrutiert und
+
+
+-----
+
+zu gefühllosen und gewissenlosen Mordmaschinen gedrillt werden, denen auch jede Art von Folter blanke
+Freude sein wird.
+85) Organisierte Mord- und Terrorkommandos werden weltweit heimlich in den Städten wohnen und
+tödliche Anschläge planen und ausführen, um Tausende von Menschen zu töten und ungeahnte Zerstörungen anzurichten.
+86) Es wird keine Ordnung und keine greifende Regel mehr geben, um das Leben der Menschen zu
+schützen, denn durch die Schuld kriegshetzender Staatsmächtiger wird der aufständische und religiöse
+sowie sektiererische und fanatische Terrorismus auflodern wie ein heller Blitz in der Nacht, um Tod und
+Verderben zu säen.
+87) Durch die unmenschlichen Terroranschläge, die Folter und durch Kriege werden sehr viele Menschen
+ausartend und fallen ins Barbarentum zurück, wodurch jeder nach Folter und dem Tod des nächsten
+schreit, wenn dieser anderer Ansicht ist oder dem Gesetz zuwiderhandelt; so werden sich Hass und
+Rachsucht ausbreiten und selbst die Ordnungsorgane bösartig angegriffen und an ihrer Ordnungsschaffung gehindert, wodurch Grausamkeiten unter den Menschen immer mehr um sich greifen können und
+keiner mehr dem anderen zu Hilfe eilt, wenn dieser in Not gerät.
+88) Schon bald werden die Menschen sich nicht mehr nach der Gerechtigkeit richten, sondern nur noch
+nach ihrem Glauben und Blut, während auch die Richter ihr Amt nur noch danach ausüben, dass der
+kleine Mann gehängt und der grosse Halunke freigelassen wird, denn wahre Gerechtigkeit wird nicht
+mehr gefragt sein, sondern es wird nur noch nach Geld, Glauben und Ansehen geurteilt werden.
+89) Die Kinder werden im Laufe der nächsten Jahrzehnte immer mehr der Verwahrlosung preisgegeben,
+denn die Eltern jagen mehr und mehr dem Mammon und Vergnügen nach, wobei die Kinder in der Liebe
+und Erziehung missachtet und auf sich allein gestellt werden, denn wie junges Getier werden sie aus dem
+Haus und aus dem Familienleben gestossen und vernachlässigt, denn niemand will sich mehr um sie
+kümmern und die schützende Hand über sie halten, wodurch sie in Szenen des Asozialen, der Rauschgifte, der Drogen, des Diebstahls, des Raubes, der Kriminalität und der Prostitution abgleiten.
+90) Weltweit wird der Hass immer mehr um sich greifen, und die Machtgier der Staatsmächtigen wird
+keine Grenzen mehr kennen, folglich sie böse Gesetze erlassen, um die Bürger zu drangsalieren, von denen niemand verschont bleiben wird – weder die Alten noch die Jungen, noch die Kinder.
+91) Durch kriminelle Banden werden Häuser zerstört und geplündert, oder es wird in die Häuser eingebrochen, um die Bewohner zu überfallen, auszurauben und gar zu töten.
+92) Die Menschen werden immer gleichgültiger gegenüber den Nächsten, so sie auch die Augen verschliessen, wenn auf offener Strasse andere misshandelt, Frauen vergewaltigt oder Kinder entführt werden; Kinder werden zur Handelsware und zu Sexobjekten, ihre Schwachheit wird vergessen und sie werden dressiert wie Tiere, um nach dem Gebrauch weggeworfen oder geschlachtet und gemordet zu werden, weil die Menschen keine Liebe mehr, sondern nur noch Grausamkeit kennen.
+93) Schon seit geraumer Zeit weiss jeder Mensch durch öffentliche Medien wie Radio und Zeitungen, was
+an allen Enden der Erde geschieht, doch das wird nur der Anfang sein, denn die Mittel der Kommunikation und der Nachrichtenverbreitung werden sich rapide verbreiten, wie durch Fernsehen, durch das bildlich die Geschehen an allen Ecken der Erde direkt verfolgt werden können, wie aber auch durch allerlei
+elektronische Übertragungsgeräte, die in Wort und Bild über Satelliten alles bis in den hintersten Winkel
+der Erde übertragen, während in nur vierzig Jahren auch der simpelste Bürger ein Taschentelephon mit
+sich herumtragen und es bei jeder möglichen und unmöglichen Gelegenheit benutzen wird.
+94) Durch den sich stetig erhöhenden Lebensstandard der Menschen in den Industriestaaten, verschliessen sie die Augen vor dem Elend in der dritten Welt; wohl sehen sie im Fernsehen die hungernden Kinder, deren Augen und Mund sowie Wunden von unzähligen Fliegen bedeckt sind, und jene, welche von
+mörderischen Militärs als Zielscheiben wie Karnickel gejagt werden; oder jene, welche getötet werden, um
+an deren Organe zu kommen, die teuer für Transplantationen verkauft werden.
+95) Viele Menschen werden gegenüber den Nächsten nicht nur gleichgültig, sondern auch erbarmungslos werden, folglich sie ihre Augen abwenden, um nicht das Elend und die Not des Nächsten sehen zu
+müssen, und es wird sie nicht kümmern, dass Kinder und Erwachsene vor Hunger sterben, denn sie werden ihnen nichts geben oder nur ein sehr geringes Almosen, das nicht zum Leben und nicht zum Sterben
+reichen wird.
+96) Der bessergestellte Mensch der Wohlstandsstaaten schläft auf Säcken voller Geld, und was er mit der
+einen Hand gibt, das nimmt er mit der andern wieder weg, wodurch der Hilfsbedürftige weder leben noch
+sterben, sondern nur elend dahinvegetieren kann.
+97) Der Mensch treibt Handel mit allem, was ihm in die Finger kommt, und folglich hat alles seinen Preis
+
+
+-----
+
+– auch das Wasser, das ein planetares Allgemeingut des Menschen ist –, und alles wird verkauft und
+nichts mehr geschenkt, folglich ein Geschenk auch immer ein Gegengeschenk fordert.
+98) Wie Kinder gejagt und getötet werden zum Preis ihrer Organe, werden die erwachsenen Menschen
+für Geld ihre Organe für Transplantationen feilbieten oder sie als Vermächtnis vermachen, so ihnen nichts
+mehr heilig sein wird, weder ihr Körper noch ihr Blut, ihre Organe, ihr Bewusstsein oder ihre Psyche,
+denn wenn sie ihre Geistform verkaufen und daraus Profit schlagen könnten, würden sie auch das tun;
+und für die Organe werden die Menschen gemordet werden, meuchlings ebenso wie durch Hinrichtungen, während verantwortungslose Ärzte profitgierig die Körper Verstorbener um deren Organe willen ausschlachten werden.
+99) Bereits hat der Mensch das Gesicht der Erde derart böse verändert, dass es nicht wieder in die ursprüngliche Form zurückgebracht werden kann, und das wird nicht das Ende sein, denn viel schlimmere
+Veränderungen werden zukünftig noch geschehen, wenn die Wälder weiterhin gerodet und die Felder und
+Berge zu menschlichen Wohnsiedlungen umfunktioniert, zubetoniert und asphaltiert werden, weil sich
+der Mensch weiterhin als Herr der Erde und des Lebens wähnt, obwohl er niemals Macht über den Planeten sein eigen nennen kann, weil sich dessen Natur zur Wehr setzen und den Menschen in seine Schranken weisen wird.
+100) Auch wenn sich die Natur gegen den menschlichen Wahnsinn der planetaren Zerstörung wehrt,
+wird die Erde immer nackter und unfruchtbarer, und durch des Menschen Schuld wird die Luft brennen,
+weil die Ozonschicht langsam zerstört wird.
+101) Die Wasser der Erde werden durch den Menschen immer mehr in übelriechende Pfuhle verwandelt,
+und alles Leben wird langsam dahinwelken, während die Reichtümer der Erde bis zum Letzten ausgeschöpft werden, wodurch alle Güter knapp werden und dadurch der Hass der Menschen untereinander
+steigt, weil jeder das haben will, was der Nächste noch hat.
+102) Das Bewusstsein sowie die Vernunft und der Verstand des Menschen werden seine Gefangenen sein
+und er betrunken von religiösem und sektiererischem Glauben, wodurch er nicht bemerkt, dass er durch
+Religionen und Sekten immer mehr betrogen und er von der effectiven Wahrheit der Schöpfung und von
+ihren Gesetzen und Geboten entfernt wird, folglich er unwirklichen religiösen und sektiererischen Bildern
+und Spiegelungen nachjagt, die ihn von der Wahrheit abhalten und ihn zum willigen Schaf des Bösen
+machen.
+103) Die Religionen und Sekten fallen wie böse Raubtiere über ihre Gläubigen her, treiben sie zusammen
+und stürzen sie in den tiefsten Abgrund der Irreführung und Unwissenheit, und um dem ganzen Treiben
+Genüge zu tun, hetzen sie den einen gegen den andern auf, um alle in ihre Fänge reissen zu können und
+sie des Lebens und der Wahrheit zu berauben.
+104) Wie bisher werden noch geraume Zeit die Religionen und Sekten durch ihre Vertreter und Gurus
+herrschen, um die unschuldigen und wissensmässig untätigen Menschen zu beherrschen und ihnen zu
+gebieten, doch nach und nach werden sie in fernerer Zukunft ihre Kultstätten verlieren, in denen sie Unsinniges predigen und die Menschen irreführen und versklaven; doch es kommt ihre Zeit, da sie ihre Gesichter verbergen und ihre Namen geheimhalten müssen, um nicht infolge ihrer Irreführung der Wut des
+Volkes zum Opfer zu fallen.
+105) Noch ist es aber so, dass jeder Gläubige in Wahrheit ein Leibeigener der Religionen und Sekten ist,
+obwohl jeder irrig glaubt, ein freier Mensch zu sein; doch das wird sich ändern, denn es kommt die Zeit,
+da niemand oder kaum noch jemand an den Versammlungen der Gurus, der Meister, Erhabenen, Erleuchteten, der Pfaffenkäppchen, Päpste und Priester usw. teilnimmt, denn viele des Volkes werden sich
+erheben und sich wider die Religionen und Sekten stellen, um deren jahrtausendealte Lügen durch die
+Wahrheit zu besiegen.
+106) Die Überbevölkerung wird unaufhaltsam durch die Unvernunft der Menschen steigen, und bald
+werden sie auf der Erde so zahlreich sein wie die Ameisen, und sie werden verstört und kopflos umherwimmeln, wenn sie gestossen werden, dass sie alle Kontrolle über sich verlieren; und viele werden zermalmt, wenn sie hilflos in den Massen untergehen.
+107) Die Religionen und Sekten werden sich künftig so vermischen wie die Menschen, die durch Völkervermischungen das eigene Volk zum Vielvölkerstaat machen.
+108) Rund um die Welt wird heuchlerisch immer mehr von Frieden gesprochen, während verlogene und
+sektiererische Staatsmächtige hinterhältig Kriege schüren und zum Ausbruch bringen und allerorts verfeindete Familien und Nachbarn einander die Hölle auf Erden bereiten oder verfeindete Völker und
+Stämme sich in blutigen Fehden bekämpfen.
+109) Schon seit geraumer Zeit ist vom Menschen der Weg der Natur verlassen worden, und weiterhin
+
+
+-----
+
+wird das noch sehr viel mehr geschehen, denn der Mensch glaubt in seiner Selbstherrlichkeit, dass er
+Herr über Leben und Tod sei.
+110) Die Menschen werden in kommender Zeit immer häufiger mit ihrem eigenen Körper nicht mehr
+zufrieden sein, und so werden sie Operationen aller Art über sich ergehen lassen, um wohlproportionierter und schöner zu sein, wie sie sich einbilden, wobei das Ganze jedoch ihrer Gesundheit schadet und
+nicht selten zu Verstümmelungen oder sogar zum Tod führt.
+111) In den Familien wird kein Zusammenhalt mehr sein, und die Familienmitglieder werden sich immer
+mehr in alle Winde zerstreuen.
+112) Durch Schönheitskuren und Schönheitsmittel werden die Menschen frühen äusserlichen Alterserscheinungen verfallen und frühzeitig wie alte Menschen Falten und weisse Haare haben, weil die angewandten Mittel ebenso die Haut schädigen werden wie die immer gefährlicher und heisser werdende
+Sonnenstrahlung.
+113) Viele Menschen werden in kommender Zeit ohne Halt im Leben umherirren, ohne Führung und
+Richtung sein, denn durch das Fehlen der Liebe und der Warmherzigkeit sowie der Beziehungen von
+Mensch zu Mensch verkümmern das Bewusstsein, die Gedanken und Gefühle sowie die Psyche, wodurch
+sehr viele psychische Krankheiten und Zusammenbrüche erfolgen, die nicht selten zum Selbstmord führen werden, weil diese Menschen keiner Hilfe mehr zugänglich sein werden.
+114) Sehr viele Menschen werden sich im Laufe der Zeit von den Religionen und Sekten lossagen, sich
+jedoch trotzdem nicht der Wahrheit in bezug auf die Schöpfung und auch nicht deren Gesetzen und Geboten einordnen, weil sie ihr Leben wie ein Reittier selbst lenken wollen, obwohl ihnen die notwendige
+Erkenntnis und Erfahrung dazu fehlt.
+115) Und schon steht der Erdenmensch vor der Tür, die ihm ermöglichen wird, die Frucht im Leibe der
+Frau in bezug auf deren Männlichkeit oder Weiblichkeit zu bestimmen, woraus selbstredend resultieren
+wird, dass letztendlich schon von Grund auf das Geschlecht der Nachkommenschaft bestimmt wird, indem im Reagenzglas das weibliche Ei mit entsprechendem Sperma befruchtet und dann in den Mutterleib eingesetzt wird, während alles andere Leben abgetötet wird, das unerwünscht ist.
+116) Der Mensch wird sich immer mehr für die Schöpfung halten, besonders die Mächtigen, die alles an
+Land, Hab und Gut sowie an Menschen an sich reissen, was und wie es ihnen beliebt, während die Normalbürger zu Armen und Schwachen und wie letztes Viehzeug behandelt werden, wodurch die Behausungen des gemeinen Volkes zu Gefängnissen werden, in denen die Menschen in Angst vor den Mächtigen dahinfristen und sich in ihnen der Hass unbändig entfaltet.
+117) Der Hass im Menschen wird eine geheime Ordnung der Zerstörung schaffen, die dunkel im Menschen wütet und böses Gift erzeugt, das darauf ausgerichtet ist, wider die Obrigkeit zu kämpfen und
+gleichzeitig selbst zu Geld und Reichtum und zur Herrschaft über die Erde zu gelangen, doch letztlich
+werden die Schwachen den Regeln der Mächtigen gehorchen, wobei es aber sein wird, dass im dunkeln
+Gesetze erstellt werden, wodurch das Gift des Hasses sich gegen die Religionen und Sekten richtet und
+sich der Stachel des Hasses dagegen ausbreitet, um der wahrheitlichen Wahrheit den gebührenden Platz
+einzuräumen.
+118) Es wird sich ergeben, dass die Menschen tatenlos sein werden, mit leerem Blick umhergehen und
+nicht wissen, wohin sie gehen sollen, denn wenn die Religionen und Sekten verschwinden, werden sie
+keine Kultstätten und keine Kultprediger sowie keine Sektenführer mehr haben, die sie in die Irre und
+Wirrnis führen können, weshalb sie erst ziellos sein werden oder wie ein keimender Same, der noch keine
+Wurzeln schlagen kann, folglich die Menschen hoffnungslos, entblösst, gedemütigt umherirren und überall sinnlos einen Halt suchen werden, den sie aber erst finden, wenn sie sich der schöpferischen Wahrheit
+und den schöpferischen Gesetzen und Geboten zuwenden; erst jedoch werden sie sich selbst hassen und
+bekämpfen und ihr Leben hassen, ehe sie den Weg zur Wahrheit finden.
+119) Wenn das dritte Jahrtausend kommt, werden viele Krankheiten und Seuchen grassieren, und viele
+Gewässer werden ausgetrocknet sein und weiter austrocknen, während andere Wasser brackig und giftig
+oder zur Rarheit werden, wodurch viele Menschen in ihrer Existenz und am Leben bedroht werden, was
+dazu führt, dass sie vieles, was sie zerstört haben, mühsam wiederentstehen lassen, und das, was verblieben ist, sie mit aufwendigen Mitteln bewahren werden, weil einige weiterdenkende Menschen erkennen,
+dass sie das, was sie bösartig der Natur abgerungen haben, dieser wieder zurückgeben müssen.
+120) Es wird aber das dritte Jahrtausend auch die Zeit sein, zu der die Menschen Angst vor der Zukunft
+haben werden, weil die politische, militärische und naturmässige Weltlage sehr prekär sein wird, weil
+Staatsmächtige der USA und Israels ebenso mit Krieg und Zerstörung drohen wie auch weltweit die aufständischen Terroristen, nebst dem, weil der Mensch die Natur derart furchtbar gebeutelt, vergewaltigt
+
+
+-----
+
+und geschändet hat, dass sie mit gewaltigen See- und Erdbeben und mit ungeheuren Regenunwettern
+und urweltlichen Stürmen zurückschlagen wird.
+121) Die Erde wird durch des Menschen Schuld, durch seine Überbevölkerung und die damit verbundenen ungeheuren Bedürfnisse und durch sein naturwidriges Verhalten und seine Zerstörungen sowie
+durch die Ausbeutung der Ressourcen sich wider die Menschen erheben und rund um den Globus mit
+urweltlicher Gewalt erbeben und hunderttausendweise die Menschen in den Tod reissen, wobei ganze
+Städte zerstört werden.
+122) Die Erde wird sich am Menschen für sein Handeln rächen, denn er wird nicht auf die Prophetien
+und Aussagen der Weisen gehört haben, die vor allem Übel warnten, folglich er fortan böse Bedrohungen
+der Natur und gewaltige Zerstörungen in Kauf nehmen muss, denn fortan und bis weit ins dritte Jahrtausend hinein werden Dörfer unter Schlammlawinen sowie unter Schnee- und Eislawinen begraben, während andernorts sich Abgründe im Boden öffnen und alles zerstörend in sich hineinreissen, um niemals
+mehr an die Oberfläche zu gelangen.
+123) Noch immer wird der Mensch aber starrsinnig sein und nicht auf die Worte, Ratschläge und Warnungen der Propheten und Weisen hören, doch das wird sich rächen, denn gewaltige Feuer werden grosse Wälder, Dörfer und Städte zerstören und viele Menschenleben fordern, denn die Feuersbrünste werden
+Urgewalt haben und die Menschen aus ihren angestammten Heimen vertreiben, die von gewissenlosen
+Plünderern ausgeraubt werden, wie das auch sein wird in den Dörfern und Städten, die durch See- und
+Erdbeben sowie durch Unwetter verlassen sein werden.
+124) Und durch des Menschen Schuld, der FCKW in die Atmosphäre schleust, wird die Erde verbrennen
+und der schwarze und weisse Hautkrebs um sich greifen und viele Tote fordern, und all das, weil durch
+die menschliche Unvernunft die vor der Sonneneinstrahlung schützende Ozonschicht zu grossen Teilen
+zerstört wird, wodurch die Atmosphäre wie ein löchriger Vorhang sein und das starke und brennende
+Licht der Sonne die Haut verbrennen und vielen Menschen die Augen irreparabel blenden wird.
+125) Die Angst der Menschen wird jedoch zu spät sein, denn zuviel wird bereits zum Jahrtausendwechsel
+zerstört und vernichtet sein, folglich immer mehr Wüsten die Erde überziehen und die niederprasselnden
+sintflutartigen Wasser immer gewaltiger und tiefer werden, alles überschwemmen und zerstörend mit
+sich reissen.
+126) Durch das Abholzen der Regenwälder wird sich schon vor dem dritten Jahrtausend und bis weit in
+dieses hinein der Sauerstoffgehalt der Luft unmerklich senken, was sich auf die Gesundheit von Mensch
+und Getier auswirken wird, während gleichzeitig die Umwelt- und Luftverschmutzung derartige Formen
+angenommen haben wird, dass die Menschen daran erkranken und die Schwachen unter ihnen daran
+zugrunde gehen werden.
+127) Und es kommt die Zeit im dritten Jahrtausend, da grosse Teile der Kontinente verschwinden und die
+Menschen auf die Berge flüchten müssen, doch ihr Sinn an die Katastrophen wird nur von kurzer Dauer
+sein, denn sie werden alles schnell vergessen und darum bemüht sein, vieles wieder aufzubauen, denn
+bereits schaffen sie sich durch Kino und Fernsehen sowie später durch eine weltweite Vernetzung von
+Computern und Elektronik Trugbilder, durch die sie sich selbst täuschen und Dinge sehen, die nicht existieren und nur visuell für die Augen bestimmt sind, folglich ihr Sinn für die Realität schwindet und sie
+zwischen Wirklichkeit und Fiktion nicht mehr unterscheiden können, wodurch sie sich immer mehr im
+Labyrinth des Lebens verlieren, während jene, welche die Trugbilder kommerziell sowie religiös und sektiererisch erzeugen, leichtes Spiel mit den gläubigen Menschen haben, sie in allen möglichen Formen
+betrügen und zu demütigen Wesen wie unterwürfige Hunde machen.
+128) Gegen Ende des zweiten Jahrtausends werden die Forscher Tiere klonen und sie nach Belieben in
+ihren Genen verändern, und im dritten Jahrtausend werden sich die Forscher erdreisten, aus Reagenzgläsern Menschen zu züchten, die als menschliche Ersatzteillager für Organe dienen sollen.
+129) Bereits jetzt ist es schon geschehen, und im dritten Jahrtausend wird es weitergehen, dass der Erdenmensch viele Tiergattungen und ihre Unterarten zu Luft, Land und Wasser unwiderruflich ausrottet,
+weil ihm der Profit wichtiger ist als der Erhalt der Fauna.
+130) Wie schon jetzt wird auch im dritten Jahrtausend sein, und zwar äusserst vermehrt, dass die Kinder
+keine wahre Erziehung mehr geniessen und ihr Bewusstsein nicht im Rahmen der Evolution gebildet wird,
+denn sie werden von ihren Eltern nicht mehr der Wahrheit belehrt, so sie immer mehr unwissend bezüglich der Wahrheit und der Lehre des Lebens sein werden, so sie – wie ihre Eltern – hoffnungslos, unwissend und aufbegehrend sind und sich nur noch dem Vergnügen hingeben.
+131) Auch im dritten Jahrtausend wird der Mensch immer aggressiver und sich als höchste Macht wähnen, folglich er in Hass und Wut sowie in Habsucht und Eifersucht überall zuschlagen wird, wie und wo es
+
+
+-----
+
+ihm gerade gefällt; und er wird stark sein in seinen bösen Gedanken und Gefühlen und seinem ausartenden Handeln, denn die erlangte Macht macht ihn unberechenbar, und er wird vieles mühsam Errungene
+und Erbaute mit Freudengeheul blindwütig zerstören.
+132) Lange ins dritte Jahrtausend hinein wird der Mensch kleinmütig und ein Zwerg in der Entwicklung
+seines Wissens und seiner Weisheit und Liebe bleiben und getrieben sein vom Machtgebaren und dem
+Herrschen über den Mitmenschen, während sein Kopf vollgestopft sein wird mit unnötigem und falschem
+Wissen irrer religiöser, sektiererischer, philosophischer, militärischer, kampfmässiger und nach Blut, Rache und Vergeltung lechzender Lehren.
+133) Wie eh und je wird der Erdenmensch auch im dritten Jahrtausend lange Zeit nicht wissen, warum er
+lebt und stirbt, was der Tod bedeutet und was die Wiedergeburt und Geburt, denn wie eh und je wird er
+sinnlos mit seinen Armen fuchteln, vergeblich nach der Wahrheit der Schöpfung und ihren Gesetzen und
+Geboten suchen, weil er sich wie seit alters her an die Religionen und Sekten hängt, die ihn wie kleine
+Kinder zum Wimmern bringen.
+134) Im dritten Jahrtausend werden sich – wie seit alters her – die Gläubigen der verschiedenen Religionen und Sekten bekämpfen, denn jeder Gläubige will den einzigen richtigen Gott haben, ganz gleich, ob
+er nun Schiwa, Gott oder Allah genannt wird; so wird die Erde mancherorts zum Schlachtfeld werden,
+wenn Christen, Islamisten und Juden usw. einander bekriegen wie zu alten Zeiten und wie es auch jetzt
+geschieht, denn alle schimpfen die Andersgläubigen Ungläubige, und alle wollen die Reinheit ihres Glaubens bis aufs Blut verteidigen und verbreiten, auch wenn ihnen grosse Mächte entgegenstehen, die die
+Richtigkeit ihres Handelns bezweifeln.
+135) Wie bereits jetzt im Jahre 1958 werden auch im dritten Jahrtausend unzählige Menschen vom Leben der Gesellschaft ausgeschlossen sein, denn weiterhin werden viele als Arme, Asoziale und als Bettler
+sowie als Armengenössige ihr Leben fristen müssen, weil sie von der Gesellschaft nicht aufgenommen,
+sondern ausgestossen oder arbeitslos sein und als Untermenschen behandelt werden, wogegen keine
+Obrigkeit und keine Regierung etwas unternimmt, sondern selbst die Armen und Bettler noch mit allerlei
+Steuern und Taxen ausbeutet, wodurch sie sich kein Dach über dem Kopf leisten können und keine bürgerlichen Rechte mehr haben, denn sie sind Verstossene von denen, die im Überfluss leben – und sie
+werden halb nackt sein, weil sie sich keine Kleidung leisten können, und wenn sie etwas zum Verkaufen
+haben, dann wird es nur ihr Körper sein, dessen Organe oder der Weg der Hurerei.
+136) Viele Menschen werden im dritten Jahrtausend von den alten Prophetien und Voraussagen hören,
+von den seit alters her überlieferten Weissagungen der Propheten und den Warnungen der Weisen, und
+sie werden nach Vergeltung dürsten und die Zeiten dessen hervorrufen, zu denen das Volk aufsteht und
+nach der Wahrheit ruft.
+137) Ehe das Volk jedoch nach der Wahrheit ruft, wird es sich in ein undurchdringliches Labyrinth verirren, in dem grosse Angst und Argwohn sein werden und der Mensch rastlos vorwärtsgetrieben wird, um
+aus dem Elend und aller Not hinauszufinden.
+138) Die Wahrheit der Schöpfung und deren Gesetze und Gebote sowie die Lehre des Geistes und die
+Lehre des Lebens wird laut und stark und weltweit verbreitet werden, doch der Erdenmensch will sie
+nicht hören, denn nur wenige, die der Vernunft und des Verstandes trächtig sind, werden sich der grossen
+Lehre zuwenden, während alle anderen immer mehr besitzen wollen und Trugbildern nachhängen, die sie
+sich in ihren Köpfen zurechtlegen, angestachelt durch schlechte und falsche Propheten in Sachen Religion und Sektierismus.
+139) Und lange wird die Zeit sein, zu der sich all diese Geschehen zutragen werden, lange Zeit in das
+dritte Jahrtausend hinein – lange 800 Jahre lang, denn erst dann werden die Samen der Lehre des Geistes, der Lehre der Schöpfung und ihrer Gesetze und Gebote sowie der Lehre des Lebens langsam in der
+Masse der Menschheit zu keimen beginnen, weil sie langsam die Augen und ihre Ohren öffnen und ehrlich nach der wahrlichen Wahrheit zu suchen beginnen.
+140) Die Menschen der Erde werden aufhorchen und der Propheten Lehre hören, denn endlich werden
+sie offenen Auges zu sehen und einander zu verstehen lernen, und jeder wird wissend sein, dass wenn
+ein Mensch geschlagen oder mit Worten verletzt wird, dass der andere Schmerz verspürt.
+141) Es wird die Zeit sein, zu der die Menschen aus Menschlichkeit eins werden und verstehen, dass jeder ein kleiner Teil des Nächsten ist und dass nur die Einheit stark macht und weder Hautfarbe noch
+Glauben, sondern nur das Gemeinsame und die effective Wahrheit in bezug auf die Schöpfung und ihre
+Gesetze und Gebote von Bedeutung sind.
+142) Und zu jener Zeit wird es werden, dass weltweit nur noch eine einzige und wertvolle Sprache gesprochen wird und dass die Menschen endlich zu wahren Menschen werden.
+
+
+-----
+
+143) Und zu jener Zeit wird es sein, dass die Erdenmenschen den Weltenraum erobert haben und in die
+tiefen Weiten des Universums reisen, wenn sie künstliche Stationen ausserhalb der Erdatmosphäre geschaffen haben, in denen viele Menschen wohnen, arbeiten und leben werden.
+144) Und zu jener Zeit wird es sein, dass der Erdenmensch in den Meeren grosse Städte baut, und sie
+werden sich alltäglich in den Tiefen der Wasser bewegen und sich von Meeresfrüchten aller Art ernähren.
+145) Und zu jener Zeit wird es sein, dass die Menschen wieder vernünftig und ehrfurchtsvoll miteinander
+reden, und sie werden die alten Botschaften der wahren Propheten aufnehmen, denn ihre Gedanken und
+Gefühle werden füreinander offen und das Bewusstsein und die Psyche ausgeglichen sein.
+146) Und zu jener Zeit wird es sein, dass die Menschen mehrfach älter werden als zur heutigen Zeit im
+Jahre 1958, denn ihr Alter wird Hunderte von Jahren sein.
+147) Und zu jener Zeit wird es sein, dass die Menschen die Kraft ihres Bewusstseins erkennen und die
+Dinge lernen, die die wahren Propheten kannten und die ihnen bisher noch als Geheimnis verborgen
+sind; so werden sie eine Tür nach der andern öffnen und ungeheure Erkenntnisse und Wissen und Weisheit um die Wahrheit der Schöpfung und ihre Gesetze und Gebote gewinnen, um damit ihre Bewusstseinskräfte zu entwickeln und zu nutzen.
+148) Und zu jener Zeit wird es sein, dass die Menschen aus ihrem dunklen Labyrinth endgültig herausfinden und das hehre Leben wieder sprudelnd finden werden wie eine klare Quelle.
+149) Und zu jener Zeit wird es sein, dass die Menschen wieder lernen und sich die Lehre des Geistes, die
+Lehre der Schöpfung und ihre Gebots- und Gesetzmässigkeiten und die Lehre des Lebens wieder eigen
+machen und wissend sein werden; und die Eltern werden wieder ihre Kinder erziehen und sie in der Lehre der Wahrheit unterrichten, auf dass sie das Leben, das Sterben, den Tod, die Wiedergeburt und Geburt
+sowie Erde und Himmel verstehen.
+150) Und zu jener Zeit wird es sein, dass der Mensch im Wuchs grösser und gewandter geworden sein
+wird, und seine Bewusstseinskräfte werden alles umgeben, und er wird auch alle Dinge besitzen, die er
+haben will.
+151) Und zu jener Zeit wird es sein, dass nicht mehr allein der Mann die Mächtigkeit des Herrschenden
+sein wird, fortan nämlich wird die Frau das Geschick der Welt und der Menschheit als wahre Mutter der
+Erde lenken, denn sie wird ihr Zepter über den Mann führen und dessen Herrschsucht, Selbstherrlichkeit,
+Machtgier und Kriegssucht brechen, um die Zeiten der hässlichen männlichen Barbarei zu beenden und
+des Mannes teuflisches und mörderisches sowie selbstherrliches Tun im Keime zu ersticken, um endlich
+Frieden werden zu lassen auf Erden.
+152) Und zu jener Zeit wird es sein, dass die wahre Liebe im Erdenmenschen erwacht und diese mit allen
+geteilt wird, wodurch sich das Dasein in eine leichte Zeit verwandelt und lang gehegte Träume und Wünsche Wirklichkeit werden, während die Evolution des Bewusstseins von allen Menschen Besitz ergreift,
+wodurch das wahre Ende der Barbarei Einzug hält.
+153) Und zu jener Zeit wird es sein, da nicht mehr religiöser und sektiererischer Glaube, sondern nur
+noch die reine Wahrheit der Schöpfung und ihre Gesetzmässigkeiten von Gültigkeit sein werden, wodurch
+die glücklichen Tage der Menschheit beginnen und der Mensch den Menschen wiederfindet und ihn als
+seinesgleichen erkennt und ehrt.
+154) Und es wird zu jener Zeit sein, wenn das vierte Jahrtausend nach Jmmanuels (christlicher) Zeitrechnung kommt, dass die Erde und ihre Menschheit ihre schöpferische Ordnung wieder haben und wahre
+Liebe und Eintracht, wahre Freiheit und Harmonie sowie wahrer weltweiter Frieden sein wird,
+155) Und zu jener Zeit wird es sein, dass der Mensch in grossen und gewaltigen Raumschiffen das Universum durcheilen wird, von einem Ende zum andern und für ihn keine Grenzen mehr sein werden.
+156) Und zu jener Zeit wird es sein, dass die Wälder, Auen, Fluren und Felder wieder erblühen, wie auch
+die Wüsten, die belebt und bepflanzt und in denen vielerlei Bäume, Sträucher, Gräser und Blumen ihre
+Pracht offenbaren werden, so die Erde ein wundervoller Garten sein wird, in dem der Mensch alles achtet
+und ehrt, was da lebt, kreucht und fleucht.
+157) Und zu jener Zeit wird es sein, dass der Mensch alles, was er zerstört oder beschmutzt hat, wieder
+aufbaut und reinigt, denn fortan wird er die Natur und das Leben ehren und schützen, denn er wird wissend und weise sein und dadurch für die Zukunft des Planeten und der Menschheit denken, denen er
+allen Respekt und alle Ehrfurcht entgegenbringen wird.
+158) Und zu jener Zeit wird es sein, dass jeder Mensch im Gleichschritt mit dem andern geht und der
+eine den andern nicht mehr harmt und die Menschen einander wieder Vertrauen schenken, sie nicht
+mehr betrogen, nicht mehr bestohlen, nicht mehr beraubt und nicht mehr gemordet werden.
+159) Und zu jener Zeit wird es sein, dass die Erdenmenschen alles über den eigenen Körper und über die
+
+
+-----
+
+Körper allen Getiers wissen, wie sie auch in allen Dingen der Welt und des Lebens sowie der schöpferischnatürlichen Gesetze wissend sein werden, wodurch die Krankheiten und Seuchen geheilt werden, ehe sie
+in Erscheinung treten können, denn es wird sein, dass jeder Mensch ebenso sein eigener, wissender und
+könnender Heiler sein wird wie auch für den Mitmenschen; gesamthaft wird der Mensch verstanden haben, dass er nur in der Gemeinschaft existieren und leben kann, dass der eine dem andern helfen muss,
+dass er geben muss und nicht nur nehmen darf, und dass er als einzelner sich als Hüter des Planeten,
+der Menschheit und der menschlichen Ordnung sehen und verstehen muss.
+160) Und zu jener Zeit wird es sein, dass die Erdenmenschen gelernt haben, in Ehrlichkeit und Liebe zu
+geben und zu teilen und dass Geiz ebenso ein Mittel zur Unzufriedenheit ist wie auch die Verschlossenheit gegenüber dem Nächsten, damit keine Einsamkeit zustande kommt; doch der Mensch muss alles
+erst lernen und sich den Kräften seines Bewusstseins und der Lehre des Geistes sowie der Lehre der
+Schöpfung und ihren Gesetzmässigkeiten sowie der Lehre des Lebens zuwenden, doch dazu bedarf es
+einer eisernen Faust zur Durchsetzung, damit Ordnung das Chaos vertreibt und der Mensch den richtigen
+Weg wiederfindet.
+161) Und zu jener Zeit wird es sein, wenn das vierte Jahrtausend nach Jmmanuel kommt, dass der
+Mensch Träger der Schöpfungswahrheit ist und dass alle Lebewesen Geschöpfe der einen und einzigen
+Schöpfung, des Universalbewusstseins, sind, und dass die Schöpfung allein das Geheimnis aller Dinge ist
+und kennt, und dass sie unmessbar viel höher steht als alle Götter und Götzen, die ausnahmslos menschlichen Ursprungs sind.
+162) Und zu jener Zeit wird es sein, dass sich die Menschen an die Weissagungen der wahren Propheten
+und an das erinnern, was einst in aller Vergangenheit war, wie sie auch wissen werden, was die Zukunft
+sein wird, weil sie durch Vorausschau die Geschehen und den Lauf und Wandel der Welt, der Menschheit
+und des Universums sowie das Geheimnis des Lebens und des Sterbens erfassen und daher keine Angst
+mehr vor dem eigenen Tod haben werden, denn sie werden wissen, dass das Leben ewig dauert im
+Wechsel zum Todesleben und zum neuen Leben auf Erden, wie es die Schöpfung bestimmt hat durch
+ihre unerschütterlichen Gesetzmässigkeiten, die allgrosszeitlich unabänderlich und von ewiger Gültigkeit
+sind.
+
+## Offener Brief von Willy Wimmer (CDU) an Bundespräsident
+ Frank-Walter Steinmeier
+
+19:07 13.12.2018 (aktualisiert 19:37 13.12.2018)
+
+
+**Willy Wimmer**
+
+**Willy Wimmer, deutscher Staatssekretär a.D. und Politiker sowie Sputnik-Kolumnist, hat einen offenen**
+**Brief an den Bundespräsidenten Frank-Walter Steinmeier verfasst, in dem er über das Völkerrecht so-**
+**wie dessen Einhaltung und Missachtung innerhalb und ausserhalb Deutschlands spricht. Folgend fin-**
+**den Sie den Brieftext von Herrn Wimmer zum Nachlesen.**
+
+
+-----
+
+Sehr geehrter Herr Bundespräsident,
+
+am 7. Dezember 2018 berichtete dpa um 10.58 Uhr aus der chinesischen Metropole Chengdu, dass Sie
+sich vor Studenten für die Achtung der Menschenrechte und des Regelwerks der Vereinten Nationen eingesetzt hatten. Den chinesischen Zuhörern und ihrer Regierung wird ebenso wenig wie den Deutschen
+entgangen sein, dass wegen der erklärten und exekutierten Politik der jeweiligen Bundesregierungen seit
+dem völkerrechtswidrigen Krieg gegen die Bundesrepublik Jugoslawien derartige Aussagen aus dem
+Munde deutscher Amtsträger noch nicht einmal Schall und Rauch sind.
+
+Der ehemalige deutsche Bundeskanzler, Herr Gerhard Schröder, hat öffentlich und freimütig eingeräumt,
+dass er mit seiner Zustimmung zum NATO-Krieg gegen die BR Jugoslawien Völkerrecht gebrochen habe.
+Das von Ihnen in China so hoch gepriesene Regelwerk der Vereinten Nationen hat durch die erklärte Politik einer Bundesregierung einen irreparablen Schaden davongetragen und die Welt dem „westlichen
+Faustrecht“ ausgeliefert. Ein Blick in die eigene Verfassung, das deutsche Strafrecht und das Soldatengesetz hätte deutlich machen müssen, mit Massregelungen anderer Völker und Staaten zurückhaltend zu
+sein.
+
+Diese „Politik der schiefen Ebene“, die unser Land abstürzen lässt, sehen wir ebenfalls in der Zerstörung
+der rechtsstaatlichen Ordnung durch Bundesregierungen, deren vornehmste Aufgabe eigentlich im
+Schutz dieser Ordnung bestehen müsste. Die Entscheidung der Bundeskanzlerin vom 4./5. September
+2015, die deutschen Staatsgrenzen auf Dauer schutzlos zu stellen, hat unserem deutschen Rechtsstaat
+einen Stoss versetzt, von dem er sich nicht erholen wird.
+
+Dagegen wenden sich Millionen Bürgerinnen und Bürger in unserem Land. Nicht, weil sie eine Abkehr
+von der grundgesetzlichen Ordnung wollen. Die Menschen im Lande treten dafür ein, dass der deutsche
+Staat selbst Achtung vor dem Recht zeigt und staatliches Handeln daran gebunden ist, die Zuständigkeit
+der Legislative nicht einseitig zur Durchsetzung von Interessen Dritter ausser Kraft zu setzen. Diejenigen,
+die sich dafür einsetzen, die rechtsstaatliche Ordnung durch den Staat gewahrt zu sehen, werden durch
+die Spitzen unseres Staates bewusst unter Generalverdacht gestellt, um freie Meinungsäusserung erst gar
+nicht mehr möglich zu machen. Die Bundeskanzlerin lässt sich dazu verleiten, mit Begrifflichkeiten aus
+dem DDR-Strafrecht, Bürgerinnen und Bürger in der Wahrung ihrer Freiheitsrechte zu kriminalisieren.
+
+Man gewinnt mehr und mehr den Eindruck, dass unser Land jenseits der Regeln des demokratischen
+Rechtsstaates durch die Repräsentanten unseres Staates im Sinne einer anderen Ordnung „umgebaut“
+werden soll. Dazu wird der Deutsche Bundestag bewusst marginalisiert. Wer sich dem im Vertrauen und
+zur Wahrung der im Grundgesetz garantierten Rechte in den Weg stellt, wird von den „medialen Blockwarten“, die wie „Kettenhunde“ unseligen Angedenkens den regierungs-und staatsseitig eingeschlagenen
+Weg absichern, nach Strich und Faden und in faschistisch bewährter Weise fertig gemacht. Für den
+Kunstbereich hat in diesen Tagen die „Neue Zürcher Zeitung“ das deutsche Verhängnis auf den Punkt
+gebracht. Zahlreiche und öffentliche Hinweise machen deutlich, dass diese demokratiefeindlichen Elemente in den Medien sich staatlicher und damit finanzieller Unterstützung erfreuen.
+
+Erschwerend kommen zwei Aspekte hinzu, die unser Land völlig aus der Bahn zu werfen in der Lage sind.
+Mit Milliarden Euro deutscher und EU-europäischer Finanzmittel unterstützt Deutschland die Ukraine. Ein
+Land wohlgemerkt, in dem bedeutende militärische Formationen, offen und mit präsidialem Wohlwollen
+versehen, sich auf eine eindeutig nationalsozialistische Vergangenheit berufen. Mit deutschen Steuermitteln unterstützen wird ein Land, das sich so der Feinde der Menschlichkeit und der Zivilisation bedient.
+
+Mit den Überlegungen zur „EU-Armee“ und der offen postulierten Beseitigung des sogenannten „Parlamentsvorbehaltes“ geht Deutschland weiter den Weg ins Verhängnis. Die Bundeswehr gerät damit in eine
+Rolle in EU-Europa und in der NATO, wieder zur „zweiten Säule“ des Staates zu werden. Das strebten
+Teile der Reichswehr auch mit und durch Adolf Hitler an. Dies ist eine Entwicklung, wie sie auch den 30.
+Januar 1933 und damit einen Kernbestand der nationalsozialistischen „Machtergreifung“ ausgemacht
+hatte.
+
+Mit diesem Schreiben, einem offenen Brief, will ich Sie auf diese Fehlentwicklungen aufmerksam machen.
+Sie sind aus meiner Sicht so gravierend, dass Sie als Bundespräsident zur Wahrung des deutschen
+Rechtsstaates tätig werden sollten.
+Mit freundlichen Grüssen, Willy Wimmer, Jüchen, den 13. Dez. 2018
+Quelle: https://de.sputniknews.com/kommentare/20181213323276909-brief-wimmer-steinmeier/
+
+
+-----
+
+## IWF billigt 3,9 Milliarden Dollar 
+
+
+## für diktatorische Putsch-Regierung in der Ukraine
+
+
+Sott.net Mi, 19 Dez 2018 16:50 UTC
+
+
+Die ukrainische Putsch-Regierung unter Führung Petro Poroschenkos kann sich in den kommenden 14
+Monaten auf weitere 3,9 Milliarden US-Dollar vom Internationalen Währungsfonds (IWF) freuen. Mit dieser
+"finanziellen Hilfe" werden auch weiterhin Milliarden in eines der korruptesten Länder der Welt investiert,
+in dem Gelder zumeist in ominösen Quellen versickern, während die Bevölkerung ausgebeutet und gegen
+Russland militärisch aufgerüstet und aufgehetzt wird. Alles basierend auf glasklaren Lügen der westlichen
+"Wertegemeinschaft".
+
+Der Vorstand des Internationalen Währungsfonds (IWF) hat am 18. Dezember ein neues Programm der
+finanziellen Hilfe für die Ukraine genehmigt. Das sogenannte Stand-By-Arrangement ist für 14 Monate
+ausgelegt und sieht einen Kredit in Höhe von 3,9 Milliarden US-Dollar vor. Die erste Tranche soll dem
+Land voraussichtlich noch bis zum 25. Dezember 2018 zur Verfügung gestellt werden.
+
+Der Beschluss über weitere Tranchen ist für Mai und November 2019 geplant, wenn der Bericht über die
+Erfüllung der Programmbedingungen durch die Ukraine vorliegen wird. Der ukrainische Präsident Petro
+Poroschenko hat die Entscheidung des IWF ein "wichtiges Signal in Bezug auf die Anerkennung unseres
+ständigen Fortschritts bei der Stabilisierung der Makroökonomie" und einen "Beweis für den Erfolg der
+Reformen" genannt. Am 19. Oktober hatte der ukrainische Ministerpräsident Wolodymyr Hrojsman erklärt, dass die Regierung in Kiew und der IWF sich auf ein neues Programm verständigt haben, das im
+Jahr 2019 in Kraft treten solle
+
+.~ RT Deutsch Petro Poroschenko (der dieses Jahr viermal mehr Geld verdient hat als letztes Jahr) freut
+sich wahrscheinlich persönlich am meisten über dieses Geld.
+Quelle: https://de.sott.net/article/33174-IWF-billigt-3-9-Milliarden-Dollar-fur-diktatorische-Putsch-Regierung-in-der
+Ukraine
+
+## Hat Russland Verbündete in russlandfeindlicher Welt? – Experte
+
+08:30 23.12.2018 (aktualisiert 12:04 23.12.2018)
+
+#### Nikolaj Jolkin
+
+**Bei der Pressekonferenz zum Jahresschluss teilte Wladimir Putin mit, dass Deutschland nach Grossbri-**
+**tannien der zweitgrösste Investor in Russland ist. Peter Schulze von der Universität Göttingen kom-**
+**mentiert gegenüber Sputnik unter anderem Putins Antworten zu den russisch-amerikanischen Bezie-**
+**hungen und der Möglichkeit, den Sozialismus wiederaufzubauen.**
+
+Das bipolare Zeitalter sei vorbei und die amerikanische unipolare hegemoniale Weltordnung in eine
+Schwächeposition hinübergewachsen, so der Politologe. „Dabei zeichnet sich im internationalen Bereich
+
+
+-----
+
+eine neue Bipolarität zwischen Peking und Washington ab. In den kommenden Dekaden wird China die
+grössere Macht ökonomisch und finanziell, aber auch militärisch gegenüber den USA werden. Die Europäische Union und Russland liegen dazwischen. Sie sind die Opfer dieser neuen bipolaren Struktur, eingebettet in eine Multipolarität.“
+
+Wie der Professor betont, habe Putin Recht, dass das Ziel von Russlands Aussenpolitik ausschliesslich die
+Bewahrung des globalen Gleichgewichtes sei und der Führungsstab der Weltherrschaft nicht in Moskau
+liege. „Andererseits driften die globalen Auseinandersetzungen und führenden Gewalten mehr nach Asien, China und den Pazifischen Raum ab. Insofern wird der Europäischen Union und auch Russland die
+Frage gestellt werden, wo sie sich einordnen.“
+
+Für die EU sei relativ klar, dass sie weiterhin im transatlantischen Verhältnis bleiben solle. „Russland hat
+sich bislang eine Partnerschaft oder eine Interessengemeinschaft mit China gesucht und ist gut dabei
+gefahren. Polen, Washington oder Peking umgeben sich mit einem Kranz von gleich gesinnten oder ähnlich denkenden und ähnlich handelnden Staaten. Putin ist Realist genug, um zu sehen, dass Russland
+keine dominante Position innerhalb der Weltordnung mehr spielen wird. Es kann dies nur zusammen mit
+anderen Verbündeten und in diesem Falle mit Peking.“
+
+Der Russland-Experte stimmt insofern Putin zu, als Russland das Interesse habe, ein Gleichgewicht der
+Macht in dieser neuen multipolaren Ordnung herzustellen und zu bewahren. „Und wenn Russland eine
+intensive Kommunikation wie nach der Kuba-Krise 1962 wieder aufbaut, indem man die Angst vor der
+nuklearen Vernichtung der Menschheit reduziert und sich zum Garanten von friedlichen Dialogen in der
+Weltpolitik macht, um politische Lösungen zu erreichen, dann ist es höchst anerkennenswert.“
+
+Es werde eine lange Zeit brauchen, bemerkt der Wissenschaftler, bevor eine moderate Sprache und ein
+solches Klima zwischen Washington und Moskau wieder erreicht werden könnten. „Es liegt aber auch
+nicht am Weissen Haus, das heisst an der Trump-Administration, dass die Beziehungen so vereist worden
+sind. In erster Linie hat es der US-Kongress zu Wege gebracht, diese durch Sanktionen und eine russlandfeindliche Argumentation zu eskalieren.“
+
+Das sei nicht von heute auf morgen zu beheben, meint Schulze. Er sehe nicht die Kräfte innerhalb der
+USA, „selbst in der Demokratischen Partei, die immer etwas Russlandfreundliches gehabt hat, dass es
+dort genügend Unterstützer geben wird, die eine vernünftige, moderate und pragmatisch orientierte Interessenpolitik mit Moskau wieder wollen.“
+
+Sie seien hochgradig ideologisiert, urteilt der Experte. Und diese Ideologisierung werde auch permanent
+erneuert. Er hoffe, dass „Europa sich langsam aufgrund der schwierigen Beziehung, die die EU und einzelne Mitgliedsstaaten zu Washington selbst in letzter Zeit haben, es zu einer Einwirkung der europäischen Politik auf Washington kommen könnte, und sogar zu einem Emanzipationsprozess. Nicht, um die
+transatlantische Beziehung aufzukündigen, das auf keinen Fall, aber dass eine eigenständige Politik, die
+auf europäischen Interessen basiert, zum Tragen kommt.“
+
+Von daher werde etwas Einfluss auf Washington ausgeübt, so Schulze, sich doch mehr auf eine verständnisvolle Dialogbereitschaft mit Moskau hin zu bewegen. „Das ist im Augenblick aber wunderbare Zukunftsmusik. Ich sehe noch nicht das Orchester in Europa, das ein derartiges Stück aufführen könnte.“
+
+Zu den Worten Putins, denen zufolge Russland keinen neuen Sozialismus errichten, aber sozialwirtschaftliche und sozialpolitische Elemente zur Gewährleistung einer gerechten Ressourcenverteilung im Land
+aufbauen werde, meint Prof. Schulze: „Das wäre eine wundervolle Alternative zu dem, was im Augenblick
+passiert. Eine sozialwirtschaftliche und sozialpolitische Dimension in Russland zu stärken und praktisch
+das europäische Modell von Wirtschaftspolitik, den sogenannten Rheinland-Kapitalismus, das schwedische, oder das deutsche Modell des Föderalismus und der Sozialpolitik in Russland zu verankern, würde
+erst mal der russischen Bevölkerung zugutekommen.“
+
+Das würde auch zu einer Besänftigung, positiven Zukunftsorientierung und damit auch zur Stabilität und
+Homogenisierung der russischen Gesellschaft führen, ist sich der Experte sicher. „Das strahlt natürlich
+nach aussen aus. Eine Gesellschaft, die sozial und wirtschaftlich abgesichert ist und keine Zukunftsängste
+hat, wird auch ganz anders wahrgenommen.“
+
+
+-----
+
+Insofern könne man dem russischen Präsidenten nur viel Erfolg wünschen, fährt Schulze fort, dass „er die
+herrschenden Gruppierungen in Russland dazu bewegen kann, sich an dem europäischen Modell einer
+sozialen Marktwirtschaft zu orientieren, das die Kontrolle über das Kapital und eine soziale und wirtschaftliche Gleich- und Gerechtigkeitsbehandlung der Bevölkerung als Ziel formuliert hat.“
+
+Sozialismus sei praktisch als Begriff stigmatisiert, regt der Experte an, „während wir Elemente des Sozialismus verfeinern und ausbauen können. Dann wäre es wunderbar, aber nicht ein System des Sozialismus. Ich glaube nicht, dass es, weder in Westeuropa noch irgendwo auf der Welt, selbst in China nicht,
+eine solche Herangehensweise gibt. In erster Linie stehen die Sicherheit und das Wohlergehen der jeweiligen nationalen Gesellschaften im Vordergrund.“
+Quelle: https://de.sputniknews.com/politik/20181223323373835-russland-partner-moderne-welt/
+
+
+## Kremlsprecher: 
+
+
+## "Putin besitzt ein phänomenales Gedächtnis
+
+
+## und bereitet sich minutiös vor"
+
+Sott.net  Mo, 24 Dez 2018 10:56 UTC
+
+Nach der Beendigung der diesjährigen Jahrespressekonferenz Wladimir Putins, in der er wieder 4 Stunden lang alle möglichen Fragen der 1700 Journalisten beantwortete, sprach Kremlsprecher Dmitri
+Peskow über die minutiöse Vorbereitung des Präsidenten auf Ereignisse dieser Art und die "phänomenale" Fähigkeit Putins, sich wichtige Daten zu merken.
+
+Auf seinen traditionellen Jahrespressekonferenzen, so wie am vergangenen Donnerstag in Moskau, hat
+Wladimir Putin trotz der grossen Themenvielfalt fast immer eine fundierte Antwort parat. Laut KremlSprecher Dmitri Peskow verdankt der russische Staatschef seine Expertise einem guten Gedächtnis und
+einer gründlichen Vorbereitung.
+
+Knapp vier Stunden hat die diesjährige Grosse Pressekonferenz Putins gedauert, 1700 Journalisten aus
+aller Welt waren anwesend. Der russische Staatschef antwortete auf 66 Fragen.
+
+
+~ Sputnik
+
+
+Putin arbeitet am Schreibtisch
+
+Mehrmals im Jahr stellt sich Putin auch in anderen Formaten stundenlang allen möglichen Fragen, nicht
+nur denen von Journalisten, sondern auch seitens der Bevölkerung:
+Genauso wie bei seinen jährlich stattfindenden TV-Fragestunden mit Bürgern, wusste der 66-Jährige auch
+diesmal seine Antworten mit Fakten und Zahlen zu untermauern.
+~ Sputnik
+Peskow offenbarte, wie sich Putin auf diese Marathon-Frage-Antwort-Situationen vorbereitet:
+"Die Vorbereitung nimmt mindestens drei Tage in Anspruch – mit Unterbrechungen für wichtige Termine", sagte Peskow auf eine entsprechende Frage am Sonntag.
+
+"Wir fragen im Voraus die jüngsten Daten aus allen Ministerien und Behörden an und fassen sie für den
+
+
+-----
+
+Präsidenten zusammen", erzählte Peskow. "Er bekommt ein umfangreiches Informationswerk vorgelegt
+und studiert es dann."
+
+~ Sputnik
+Laut Peskow hat Wladimir keinerlei Probleme, sich komplexe Informationen innerhalb kürzester Zeit zu
+merken.
+"Er hat ein phänomenales Gedächtnis", sagte der Kreml-Sprecher. "Ihm reicht es, einen Text nur zweimal
+durchzulesen, um sich eine grosse Menge Zahlen zu merken."
+~ Sputnik
+In der Tat sind die Fähigkeiten Wladimir Putins in der heutigen Politikwelt einzigartig:
+Laut Peskow sind sowohl Putins Jahrespressekonferenzen als auch die jährlichen Fragestunden, bei denen der Kremlchef sich den Sorgen der Bürger online stellt, weltweit beispiellos. **"Wohl kein anderer**
+**Staats- und Regierungschef auf der Welt wäre in der Lage, mit seinen Bürgern oder Medienvertretern**
+**in solch einem Modus live zu sprechen."**
+~ Sputnik
+Quelle: https://de.sott.net/article/33181-Kremlsprecher-Putin-besitzt-ein-phanomenales-Gedachtnis-und-bereitet
+sich-minutios-vor
+
+## Moskau besorgt:
+ Kiew könnte in den nächsten Tagen zu Kampfhandlungen übergehen17:52
+
+24.12.2018 (aktualisiert 17:54 24.12.2018) 17:52 24.12.2018 (aktualisiert 17:54 24.12.2018)
+
+(Anm. Billy: Artikel wurde auf Vergangenheit geformt)
+
+### Das russische Aussenministerium schloss nicht aus, dass die ukrainische Armee zu
+ grossangelegten Kampfhandlungen im Donbass übergehen könnte.
+
+„Kiew machte keinen Hehl mehr aus seinen aggressiven Plänen. Jeden Tag liefen Informationen über die
+zunehmende Aktivität des ukrainischen Militärs an der gesamten Trennlinie im Donbass ein, besonders
+in Richtung Mariupol und Gorlowka“, wurde auf der Webseite der Behörde mitgeteilt.
+
+**Vorbereitung einer Provokation**
+
+Wie zuvor aus der DVR (selbsterklärte Donezker Volksrepublik) verlautete, bereitet sich das ukrainische
+Militär auf grossangelegte Kampfhandlungen im Donbass vor. Als Auftakt könnte eine Provokation
+in einem der Chemiebetriebe des Gebietes Donezk dienen. Für diesen Zweck werde das ukrainische Militär möglicherweise Munition nutzen, die den Geschossen aus Donezker Produktion ähnlich sei, hiess es.
+Der Donezker Aufklärungsdienst hat ausserdem bestätigt, dass Aktivisten der „Weisshelme“ sowie Angehörige der Geheimdienste der USA und Grossbritanniens in der Ukraine eingetroffen sind.
+Quelle: https://de.sputniknews.com/politik/20181224323397500-kiew-armee-kampfhandlungen-vorbereitung
+provokation-Donbass/
+
+## AfD in Sachsen zweieinhalb mal so stark wie SPD –
+ CDU droht nächstes Debakel
+
+**Von. PP-Redaktion 25. Dezember 2018**
+
+**Noch gut acht Monate bis zur Landtagswahl in Sachsen, vor welcher nicht wenige Altparteienpolitiker,**
+**vor allem in CDU und SPD, sich regelrecht fürchten. Denn eines dürfte jetzt schon klar sein: Diesen**
+**beiden Parteien drohen erneut empfindliche Verluste. Ein Gastbeitrag von Jürgen Fritz**
+Die AfD aber wird nicht nur vom ein- in den zweistelligen Bereich aufsteigen, nein, sie wird voraussichtlich
+die FDP, Die Grünen, die SPD und die Linkspartei (SED) hinter sich lassen, und hat gute Aussichten, mehr
+als ein Viertel der Sitze im neuen Landtag zu erringen. Der CDU droht nun aber noch etwas anderes, was
+vor allem dem merkelnahen Ministerpräsidenten von Schleswig-Holstein, Daniel Günther, gar nicht gefallen wird.
+
+**NUN IST AUCH DIE SCHWARZ-ROTE MEHRHEIT DAHIN**
+Einige werden sich vielleicht noch erinnern können, wie es in den 1990er-Jahren bei Landtagswahlen in
+Sachsen aussah. Die CDU kam hier in ihrer Hochburg auf Werte von fast 60 Prozent. Doch inzwischen
+schafft sie in der aktuellen Umfrage von INSA gerade noch die Hälfte (29 Prozent) und kommt sogar zusammen mit der SPD nicht einmal mehr auf 40 Prozent. Zunächst verlor sie die alleinige absolute Mehr
+
+-----
+
+heit, dann 2014 auch die mit der FDP zusammen und jetzt ist sogar die amtierende schwarz-rote Regie**rung mit 39 Prozent meilenweit von einer Mehrheit entfernt. Der große Gewinner ist dagegen nach aktu-**
+ellem Stand die AfD, die immer stärker wird und jetzt schon so viele Stimmen auf sich ziehen kann wie
+SPD, Grüne und FDP zusammen, zweieinhalb mal so viele wie die SPD.
+Seit der deutschen Wiedervereinigung war die CDU in Sachsen nicht nur durchgehend die mit Abstand
+stärkste Partei, sie stellte seither auch ununterbrochen den Ministerpräsidenten. Von 1990 bis 2002
+konnte Kurt Biedenkopf sogar eine CDU-Alleinregierung bilden. Nach Georg Milbradts Rücktritt im Mai
+2008 übernahm Stanislaw Tillich das Amt des Ministerpräsidenten und setzte die bereits bestehende
+CDU-SPD-Koalition bis zur Landtagswahl 2009 fort. In den folgenden fünf Jahren regierte er dann in einer schwarz-gelben Koalition zusammen mit der FDP. Bei der Landtagswahl am 31.8.2014 scheiterte
+jedoch der Juniorpartner an der Fünf-Prozent-Hürde, fiel von 10 auf 3,8 Prozent. Also musste wieder ein
+anderer Juniorpartner für die CDU her und man griff erneut auf die SPD zurück. Nach dem schlechten
+Wahlergebnis der Sachsen-CDU bei der Bundestagswahl 2017, legte Tillich im Dezember 2017 sein Amt
+nieder und Michael Kretschmer wurde zum neuen Ministerpräsidenten gewählt.
+Inzwischen könnte aber nicht nur Schwarz-Gelb keine Regierung mehr bilden, sondern auch Schwarz-Rot
+wäre nach aktuellem Stand dazu nicht mehr in der Lage. Kamen CDU und SPD bei der Landtagswahl
+2014 zusammen noch auf fast 52 Prozent, so kommen Sie nun zusammen gerade noch auf ca. 39 Pro**zent. Sowohl der CDU drohen massive Verluste – nach jetzigem Stand 10,4 Prozent (!) – als auch**
+der SPD, welche im Moment ca. jeden fünften ihrer Wähler verlieren würde. Ja der SPD droht in Sachsen
+sogar wie in Bayern vor zwei Monaten ein einstelliges Ergebnis.
+
+**AFD STEIGT VON 9,7 AUF 25 PROZENT UND IST JETZT**
+**SO STARK WIE SPD, GRÜNE UND FDP ZUSAMMEN**
+Zulegen können dagegen dem allgemeinen Trend entsprechend Die Grünen, welche von knapp 6 auf ca.
+9 Prozent steigen würden, wären jetzt Landtagswahlen. Auch die FDP könnte zulegen und zwar von 3,8
+auf ca. 6 Prozent, hätte derzeit also keine schlechten Aussichten, wieder in den sächsischen Landtag einzuziehen. Der Linkspartei (SED, PDS, DIE LINKE) drohen dagegen minimale Verluste.
+Der ganz große Gewinner bei der Landtagswahl im nächsten Jahr dürfte dagegen die AfD werden. Diese
+würde nach aktuellem Stand von 9,7 auf ca. 25 Prozent steigen und ist derzeit die klare Nr. 2 in Sachsen.
+Hier das Ganze im Überblick:
+
+1. CDU: 29 %
+2. AfD: 25 %
+3. LINKE: 18 %
+4. SPD: 10 %
+5. GRÜNE: 9 %
+6. FDP: 6 %
+7. Sonstige: 3 %
+
+(c) Jürgen Fritz
+
+**GEWINNE UND VERLUSTE**
+
+Im Vergleich zur letzten Landtagswahl am 31.08.2014 ergeben sich damit folgende Veränderungen:
+
+1. AfD: + 15,3 %
+2. GRÜNE: + 3,3 %
+3. FDP: + 2,2 %
+4. LINKE: – 0,9 %
+5. SPD: – 2,4 %
+
+
+-----
+
+6. Sonstige: – 7,1 %
+7. CDU: – 10,4 %
+
+INSA befragte zwischen dem 10. und 17. Dezember 1000 Personen per Telefon und per Online-Panel
+und wertete die Ergebnisse professionell aus.
+
+**REGIERUNGSBILDUNG: SCHWARZ-ROT-GELB-GRÜN ODER SCHWARZ-BLAU**
+Bei solch einem Ergebnis, wie aktuell von INSA ermittelt, könnte mit hoher Wahrscheinlichkeit weder
+Schwarz-Rot noch Schwarz-Rot-Gelb und vermutlich auch nicht Schwarz-Rot-Grün eine Parlamentsmehrheit erreichen. Und nun aber das vielleicht Wichtigste von allem: Auch für Schwarz-Dunkelrot (CDU
+**+ LINKE) würde es jetzt nicht mehr reichen. Das ist insofern von großer Bedeutung, als sich der schles-**
+wig-holsteinische merkelnahe Ministerpräsident Daniel Günther schon vor Monaten dafür ausgesprochen
+hat, dass die CDU grundsätzlich auch für schwarz-dunkelrote Koalitionen offen sein solle. Sollte die Landtagswahl in gut acht Monaten so ausgehen, wie INSA es jetzt im Dezember ermittelte, blieben aber nur
+noch zwei Möglichkeiten:
+
+1. CDU + SPD + GRÜNE + FDP (Schwarz-Rot-Grün-Gelb): 54 % oder
+2. CDU + AfD (Schwarz-Blau): 54 %.
+3.
+
+**CDU + LINKE hätten dann nur noch 47 Prozent, bräuchten aber ca. 48,5 Prozent der Stimmen für eine**
+Mehrheit im Landtag (keine 50 Prozent plus X, weil die 3 Prozent für sonstige Parteien im Landtag ja
+nicht abgebildet sein werden).
+Damit müsste spätestens jetzt auch den Vorletzten klar werden: Die AfD verändert die gesamte Tektonik
+**der bundesdeutschen und der Länder-Politik bereits fünf Jahre nach ihrer Entstehung von Grund auf**
+und vieles spricht dafür, dass hier angefügt werden kann: … und das ist auch gut so!
+
+Der Beitrag erschien zuerst auf dem sehr empfehlenswerten Blog von JÜRGEN FRITZ
+Quelle: https://philosophia-perennis.com/2018/12/25/afd-in-sachsen-zweieinhalb-mal-so-stark-wie-spd-cdu-droht
+naechstes-debakel/
+
+
+## Belgien: Regierung zerbricht nach Ja zum UN-Migrationspakt
+
+
+Europa, International
+
+
+Charles Michel U.S. Department of State from United States [Public domain], via Wikimedia Commons; Bart de Wev
+er Miel Pieters [CC BY-SA 2.0], via Wikimedia Commons; UN-Fahne Wilfried Huss / Anonymous [Public domain], via
+
+Wikimedia Commons; Bildkomposition von Info-DIREKT
+
+### Vergangene Woche verließ die flämische Rechtspartei N-VA die belgische Regierung aus Protest gegen den UN-Migrationspakt. Als Regierungschef Charles Michel ankündigte weiterregieren zu wollen, kam es vergangenen Sonntag in Brüssel zu Massenprotesten. Nachdem auch Grüne und So- zialisten ein Misstrauensvotum ankündigten, kündigte Michel seinen Rücktritt an. Von Alexander Markovics
+
+ Nach Ja zum UN-Migrationspakt: „Marsch gegen Marrakesch“ in Brüssel
+ Als Reaktion auf die Annahme des UN-Migrationspaktes durch die belgische Regierung kündigte die pat- riotische N-VA die Koalition auf. Beim „Marsch gegen Marrakesch“ am vergangenen Sonntag forderten die Teilnehmer eine Schließung der Grenzen und ein Ende der Masseneinwanderung. Laut Polizei nahmen mehr als 5000 Menschen an der Demo teil. Als 300 bis 400 Demonstranten versucht hatten in das EU- Parlament einzudringen, schritt die Polizei mit Tränengas und berittenen Einheiten ein.
+
+
+-----
+
+Bis zuletzt wollten die in der belgischen Regierung verbliebenen Parteien als Minderheitenregierung ohne
+Neuwahlen und damit ohne demokratische Legitimation weitermachen. Auch die ehemalige Regierungspartei wurde dabei umworben. Doch die Forderungen der zuvor aus der Regierung ausgetretenen N-VA
+nach einer Autonomie für den flämischen Landesteil wurden abgelehnt.
+
+
+### Vorhaben einer Minderheitenregierung scheiterte an N-VA
+
+
+**Misstrauensantrag von Grünen und Sozialisten**
+Neben den flämischen Nationalisten hatten auch die Grünen und Sozialdemokraten versucht, Premier
+Michel unter Druck zu setzen. Sie forderten die Regierung innerhalb von 48 Stunden zu einem politischen Kurswechsel auf, ansonsten würde ein Misstrauensvotum folgen. Daraufhin kündigte der belgische
+Premier an, seinen Rücktritt einzureichen.
+Quelle: https://www.info-direkt.eu/2018/12/19/belgien-regierung-zerbricht-nach-ja-zum-un-migrationspakt/
+
+
+## 38 600 Illegale an Grenze gefasst:
+
+
+## EU pocht auf Ende der Grenzkontrollen – Söder dagegen
+
+Epoch Times25. December 2018 _Aktualisiert: 25. Dezember 2018 8:57_
+
+Bayerns Ministerpräsident Markus Söder hält die Abschaffung von Kontrollen an den deutschen Grenzen
+für verfrüht.
+
+
+Deutsche Grenze.Foto: CHRISTOF STACHE/AFP/Getty Images
+
+
+Bayerns Ministerpräsident Markus Söder (CSU) hat Forderungen der EU-Kommission nach Abschaffung
+der Kontrollen an den EU-Binnengrenzen abgelehnt.
+
+„Europa ist auf einem guten Weg, was den Schutz der Außengrenzen angeht – aber noch nicht am Ziel“,
+sagte der designierte CSU-Vorsitzende den Zeitungen der Funke-Mediengruppe (Dienstagausgaben).
+
+So lange die Außengrenzen noch nicht so geschützt sind, wie es notwendig wäre, machen nationale
+Grenzkontrollen weiter Sinn.“
+
+Sie hätten eine positive Wirkung und seien von der Bevölkerung auch akzeptiert. Zuvor hatte EUInnenkommissar Dimitris Avramopoulos auf ein Ende der Grenzkontrollen gepocht. Und das, obwohl in
+diesem Jahr laut offiziellen Angaben 38 600 Personen bei illegalen Einreiseversuchen gefasst wurden.
+
+Wir glauben, dass die Zeit für Maßnahmen gekommen ist, um die vorübergehenden Kontrollen an den
+Binnengrenzen aufzuheben und Schengen vollständig wiederherzustellen“, meint Avramopoulos.
+
+Die 26 Länder des Schengen-Raums wollen untereinander eigentlich auf Grenzkontrollen verzichten.
+Ausnahmen sind bei einer ernsten Bedrohung der öffentlichen Ordnung oder der Inneren Sicherheit
+möglich.
+
+
+-----
+
+Neben Österreich haben auch Deutschland, Frankreich, Schweden, Dänemark und Norwegen im Zuge der
+Migrationskrise von 2015 wieder Grenzkontrollen eingeführt. (dts/so)
+
+Quelle: https://www.epochtimes.de/politik/deutschland/38-600-illegale-an-grenze-gefasst-eu-pocht-auf-ende-der
+grenzkontrollen-soeder-dagegen-a2749678.html
+
+*************************************
+
+
+## Müller mault: Über den Zustand der deutschen Medienlandschaft
+
+
+Allgemein, Deutschland, Müller mault..., Standpunkte
+
+
+**Wenn mich eine Sache wirklich aufregt, dann ist es der Zustand der Deutschen Medienlandschaft.**
+
+**Das Einzige was an der Mainstreampresse noch kritisch ist, ist ihr Geisteszustand!**
+
+Pegida Banner Opposition24.de [CC BY 2.0], via Wikimedia Commons;
+
+Müller mault Info-DIREKT; Bildkomposition von Info-DIREKT
+
+
+Diese Woche habe ich irgendwo ein Zitat gelesen, das da lautete: „Das Einzige was an der MainstreamPresse noch kritisch ist, ist ihr Geisteszustand.“ Sehr treffend wie ich finde. Zumal wir diese Woche auch
+erfahren durften, dass es genau so ist, wie wir immer vermutet haben. Nur noch ein bisschen schlimmer
+vielleicht… Der Spiegel gab nämlich bekannt, dass der preisgekrönte Spiegel-Journalist Claas Relotius
+seine Reportagen und Artikel in erheblichem Mass aufgehübscht hat. Eigentlich hat er manche schlichtweg erfunden. Wer hätte das gedacht? Ich! Und viele Andere sicherlich auch.
+
+**Claas Relotius: Lügner und Chefpropagandist des Spiegels**
+Man muss meiner Meinung nach schon ein besonders dummes Exemplar von einem Herdentier sein,
+wenn man bei Artikeln wie „Flüchtling findet Bernstein-Zimmer und gibt es bei der Polizei ab“ nicht stutzig wird. Witzigerweise häuften sich derartige Artikel im Jahr 2015, sind aber seitdem weitaus seltener.
+Die Naivität der Leute hat durch dauernde Kulturbereicherung etwas abgenommen. Die Propaganda
+muss also ein bisschen weniger Stumpf ausfallen. Ein Fall für Claas Relotius. Seine Reportagen kann man
+derweil noch nachlesen. Auffallend ist natürlich, dass die besonders „guten“ Reportagen des Märchenerzählers sich um ähnliche Themen drehen. Zum Beispiel um die beiden Flüchtlingskinder aus Syrien die
+sich mit schwerer Arbeit in der Türkei durchschlagen müssen. Das schreibt Relotius natürlich nicht, weil
+er persönlich so bestürzt ist, über die Zustände im Nahen Osten. Sondern weil er weiss, dass sich das
+verkauft! Viel Pathos, viel Blödsinn, ein paar Kinder, den IS als „Oppositionstruppen“ und die Syrische
+Armee als „Regime-Truppen“ bezeichnen, und fertig ist der Pulitzer-Preis.
+
+**Die Nachwuchshoffnung der deutschen Presse ist diskreditiert**
+Es trifft den Spiegel und die restliche Propaganda-Presse natürlich besonders hart. Denn mit Relotius
+trifft es eine der grossen Nachwuchshoffnungen der „Qualitätspresse“. Überhäuft mit Preisen wie dem
+„Deutschen Reporterpreis“ (4 mal), von CNN zum „Journalisten des Jahres 2014“ gekürt und Träger des
+„Europäischen Pressepreises“. Einer der ganz Grossen… Lügner wie sich herausstellt.
+Der Spiegel war natürlich sofort um maximale Transparenz bemüht und erstattete medienwirksam
+Selbstanzeige. Selbstverständlich hätte man das nicht vertuschen können und flüchtete somit in die Öffentlichkeit. Mehr steckt da nicht dahinter.
+
+**Wenn Relotius lügt, was ist dann noch alles nicht wahr?**
+
+
+-----
+
+Auch wenn es für viele von uns eine grosse Genugtuung ist, und es mich ehrlich gesagt auch gewaltig
+amüsiert, so ist es doch enorm bedenklich, dass jemand in einem der grössten Medien des Landes am
+laufenden Band Phantasiegeschichten veröffentlicht. Diese wiederum nicht kritisch beäugt werden, sondern mit Preisen prämiert und als besonders gute journalistische Leistung gefeiert werden. Zu Recht fragen sich viele „Was ist denn noch alles nicht wahr?!“
+
+**Die Mainstreampresse interessieren nicht die Opfer ihrer Propaganda, sondern nur die vermittelte Bot-**
+**schaft!**
+Wie viel Blödsinn wurde den Lesern noch als die Wahrheit verkauft, solange er ins Narrativ der abgehobenen Medienkaste passte? Immerhin hat es hier keinen kleinen Schreiberling einer Provinz-Gazette getroffen, sondern ein Aushängeschild der deutschen Medien. Mit mitleiderregenden Geschichten und
+stumpfem Ami-Bashing hat er es bis ganz nach oben geschafft. An dieser Geschichte kann man auch
+besonders gut erkennen worum es eigentlich geht. Man braucht gar nicht mehr raus zu fahren um einen
+ertrunkenen Jungen zu fotografieren oder eine mörderische Flussüberquerung zu inszenieren. Man kann
+das Weltbild auch bestätigen, ohne das Haus zu verlassen. Man erfindet einfach „Ahmed“ und „Alin“, um
+Gesichter für seine politische Botschaft zu haben. Dann lässt man ihre Eltern sterben und gibt ihnen zwei
+miese Jobs und eine karge Unterkunft. Mitreissend. Alle fühlen sich furchtbar. Die Message ist klar.
+Keiner wird die Story anzweifeln. Keiner wird Ahmed und Alin suchen oder ihr Leben verbessern wollen.
+Denn in Wahrheit sind sie den Lesern genauso scheissegal wie Relotius selbst. Was zählt ist die Botschaft.
+**Passen Sie auf Ihren Kopf auf!** **Müller**
+Quelle: https://www.info-direkt.eu/2018/12/23/mueller-mault-ueber-den-zustand-der-deutschen-medienlandschaft/
+
+
+## Salvini greift durch:
+
+
+## Deutschem „Seenotretter“ drohen 20 Jahre Haft
+
+Europa, International
+
+
+Demonstration für Seenotrettung im Mittelmeer Leonhard Lenz [CC0], from Wikimedia Commons;
+
+Matteo Salvini English: Ministry of the InteriorItaliano: Ministero dell'interno [CC BY 3.0 it],
+
+via Wikimedia Commons; Bildkomposition von Info-DIREKT
+
+**Während Italien lange Zeit dem Treiben der Schlepper untätig gegenüberstand, ändert sich das seit**
+**2017 schlagartig. Nachdem bereits die Aquarius beschlagnahmt wurde, geht die italienische Justiz**
+**gegen die Besatzung der „Iuventa“ der Organisation „Jugend Rettet“ vor. Dem Leiter der Mission, Sa-**
+**scha Girke, drohen bis zu 20 Jahre Haft wegen Beihilfe zur Schlepperei.**
+
+
+-----
+
+Von Alexander Markovics
+
+**Italienische Justiz wirft Geschäfte mit Schleppern und illegalen Waffenbesitz vor**
+Das Schiff „Iuventa“ wurde bereits 2017 von der italienischen Justiz beschlagnahmt. Dem Leiter der Mission, Sascha Girke, werden dabei u.a. Geschäfte mit Schleppern vorgeworfen. Laut einem verdeckten Ermittler soll die Besatzung der Iuventa nicht der Pflicht nachgekommen sein, Schlepperschiffe auf Hoher
+See zu zerstören. Girke und seine Organisation „Jugend Rettet“ bestreiten die Vorwürfe. Sascha Girke
+drohen in Italien 20 Jahre Haft und 15 000 Euro Geldbusse pro nach Europa gebrachter Person. Dazu
+kommen zu erwartende Prozesskosten in Millionenhöhe.
+
+**„Seenothilfe“: Ein Codewort für gesellschaftlich akzeptierte Schlepperei**
+Bei der sogenannten „Seenothilfe“ handelt es sich um ein Codewort für Schlepperei unter humanitärem
+Deckmantel. Viele Schlepper schicken Einwanderer mit unzureichenden Booten auf Hohe See, da sie sich
+auf den „Taxidienst“ von privaten Organisationen verlassen können. Denn diese schicken in der Regel
+Einwanderer nicht zurück an den Abfahrtsort in Nordafrika, sondern bringen sie direkt an die italienische
+Küste. Somit stellen private „Seenothilfe“-Organisationen einen wichtigen Teil der Asyl- und Einwanderungsindustrie dar.
+
+**Salvini will mit Privatschleppern aufräumen**
+Das Vorgehen der italienischen Justiz steht im Einklang mit dem bisherigen Anti-Einwanderungskurs von
+Innenminister Matteo Salvini. So beendete Salvini bereits diesen Sommer die EU-Mission Sophia, durch
+die mehr als 100 000 Einwanderer nach Italien gebracht wurden. Auch Mitglieder der italienischen „Zivilgesellschaft“ und Politik, welche den Refugees-Welcome-Wahn unterstützen, wurden von Salvini ins Visier
+genommen. So liess er diesen Oktober den Bürgermeister der Stadt Riace in Kalabrien verhaften, der
+Einwanderer massenhaft ins Land holte. Das Vorgehen gegen die deutsche Schlepper- und RefugeesWelcome!-Industrie, die wie ihre Kollegen in Italien nach neuem „Humankapital“ zwecks Ausbeutung
+lechzt, ist die logische Folge seiner Politik.
+
+**Deutsche Kommunen wollen mehr Flüchtlinge**
+Dabei muss Salvini nicht nur gegen die Schlepper auf Hoher See, sondern auch gegen den Widerstand
+der deutschen Kommunen kämpfen. So haben sich neben der Stadt Potsdam 25 weitere Kommunen
+dazu entschlossen, mehr Einwanderer aufnehmen zu wollen. Wenn man also alle „Beihelfer“ der Schlepper dingfest machen will, kommt man um ein gesamteuropäisches Vorgehen nicht herum, das zur Zeit
+aber nicht in Sicht ist.
+Quelle: https://www.info-direkt.eu/2018/12/21/salvini-greift-durch-deutschem-seenotretter-drohen-20-jahre-haft/
+
+## Frankreich demonstriert, Deutschland lamentiert
+
+Ein Artikel von: Jens Berger
+
+06. Dezember 2018 um 12:38
+
+Titelbild: Alexandros Michailidis/shutterstock
+
+Frankreich wird von den größten Sozialprotesten seit Jahren überrollt und Deutschlands Linke ist zutiefst
+verunsichert, wie man nun darauf reagieren sollte. Parteichef Riexinger macht sich vor allem Sorgen um
+das „Potenzial Ultrarechter in den Reihen der Bewegung“ und wittert eine Querfront, die in Deutschland
+„so nicht denkbar wäre“. Die Linke sollte aufpassen, dass sie vor lauter Lamentieren und Distanzieren das
+Demonstrieren nicht vergisst. Denn ansonsten werden die kommenden Sozialproteste ohne sie stattfinden. Von Jens Berger.
+
+
+-----
+
+Nun muss selbst der konservative Cicero eingestehen, dass „der gelbe Protest [in Frankreich] immer roter
+
+[wird]“, und mit dem verzögerten Anschluss der Gewerkschaften an die Gelbwesten gewinnen die Sozialproteste in der Tat eine immer klarere linke Note. Was oberflächlich als Protest der abgehängten ländlichen Bevölkerung gegen eine diskriminierende Erhöhung der Dieselsteuern begann, hat sich zu einer
+beeindruckenden Welle von Sozialprotesten ausgeweitet, die von Tag zu Tag weiter um sich greifen. Nun
+schließen sich auch die Schüler, der Gewerkschaftsbund CGT und nun sogar die Polizeigewerkschaft VIGI
+den Protesten an. Die Polizisten wollen ab Samstag in den unbefristeten Streik gehen.
+Die Forderungen der Gelbwesten-Bewegung gehen uns alle an. Es ist an der Zeit, sich legal zu organisieren und Solidarität mit ihnen zu zeigen, zum Wohle aller. Wir sind besorgt, weil wir Teil des Volkes sind.
+Unser Anliegen ist es, am Ende des Monats über die Runden zu kommen und nicht die Teppiche im
+Elysée für 300 000 Euro zu wechseln.
+_Pressemeldung der französischen Polizistengewerkschaft VIGI_
+Teile der Gelbwesten übermittelten dem Parlament währenddessen ein inoffizielles Kommuniqué mit
+Forderungen, die man selbst mit sehr viel Phantasie und bösem Willen nicht als wie auch immer „rechts
+geartet“ missverstehen kann. Es geht um Obdachlosigkeit, bessere Löhne, höhere Renten, gerechtere
+Steuern, ein Ende der Austeritätspolitik und eine Stärkung der ländlichen Gebiete. Man fordert auch eine
+korrekte Behandlung von Asylbewerbern und die Umsetzung einer tatsächlichen Integrationspolitik –
+auch das klingt nicht gerade rechts.
+_Unser Kollege Marco Wenzel hat sich die Mühe gemacht, das Kommuniqué aus dem Französischen ins Deut-_
+_sche zu übersetzen. Die Übersetzung können Sie sich hier als PDF herunterladen und ausdrucken._
+Offenbar hat Bernd Riexinger die Wirkung seiner warnenden Grußadresse an die Gelbwesten unterschätzt. Kurz nachdem erste Zitate von ihm – in der Tat verkürzt – veröffentlicht wurden, versuchte er
+seinen Kopf mit einer Veröffentlichung des Wortlauts seines Zitats aus der Schlinge zu ziehen, was die
+Sache jedoch auch nicht besser macht. Dass der Chef der deutschen Linkspartei nach einer blutleeren
+kurzen Solidaritätsadresse gleich auf das „Potenzial Ultrarechter in den Reihen der Bewegung“ abhebt
+und es für wichtig hält, darauf hinzuweisen, dass „in Deutschland eine solche Verbrüderung (sic!) linker
+und rechter Gesinnung nicht denkbar [wäre]“, ist und bleibt ein Armutszeugnis – egal ob verkürzt oder
+vollständig zitiert. Wer als Werkzeug nur einen Hammer hat, sieht in jedem Problem einen Nagel. Für
+Riexinger ist jedes Problem mit dem Kürzel AfD verbunden.
+Von welcher „Verbrüderung“ spricht Riexinger eigentlich? Ein von der Liberation veröffentlichtes Video
+zeigt, wie diese „Verbrüderung“ auf der Straße aussieht – bekannte „Ultrarechte“, die sich dem Protest
+anschließen wollen, werden von linken Gelbwesten vom Hof gejagt. Aber selbst solche Szenen sind – gemessen am Umfang der Proteste – mit den Worten des französischen Philosophen Guillaume Paoli nur
+„Randerscheinungen in einem konfusen Meinungsmahlstrom“. Wie sollte es denn auch anders sein? Sozialproteste sind – zumal wenn sie Massenproteste sind – nun mal keine Prozession der Zufriedenen,
+sondern ein Aufbegehren der Unzufriedenen und Wütenden. Dass sich darunter nicht nur auf Linie gebrachte Partei- und Gewerkschaftsfunktionäre, sondern auch Anhänger rechter Parteien befinden, ist unumgänglich. Hätte man vor dem Sturm auf die Bastille erst einmal sämtliche Wirrköpfe aussortiert, würden die Bourbonen wahrscheinlich heute Frankreich regieren.
+Dabei zeigen doch gerade die „Gelbwesten“, wie man aus einer diffusen heterogenen Graswurzelbewegung der Unzufriedenen eine breit aufgestellte Sozialprotestbewegung machen kann. Zu Beginn der
+Gelbwesten-Proteste gab es auch in Frankreich derartige Debatten. Der populäre Linkspolitiker Jean-Luc
+Mélenchon sympathisierte mit den Gelbwesten, aber in der politischen Linken gab es auch kritische
+Stimmen. Nun muss man wissen, dass Mélenchon ein Freund von Oskar Lafontaine ist und seine Partei,
+die LFI, die bei den letzten Parlamentswahlen mit 11% die stärkste Partei des „linken Lagers“ wurde, eher
+auf Linie mit dem Wagenknecht-Flügel der deutschen Linken ist. Deren Schwesterpartei ist nämlich nicht
+die LFI, sondern die unbedeutende PCF, die zusammen mit dem Gewerkschaftsbund CGT zu Beginn der
+Gelbwesten-Bewegung dort ebenfalls „rechte Umtriebe“ ausgemacht haben will und sich eilends distanzierte. Es ist jedoch zu vermuten, dass es der CGT vor allem nicht passte, dass es sich bei den Gelbwesten um eine Graswurzelbewegung handelt und die Gewerkschaftsfunktionäre dort nichts zu sagen hatten.
+Aktivisten von LFI ließen sich davon aber nicht beeindrucken und drückten der Bewegung stattdessen
+ihren Stempel auf. Und da die größten Sozialproteste seit Jahren ja nicht ohne PCF und CGT stattfinden
+dürfen, haben die beiden Bedenkenträger sich nun auch zähneknirschend dem Protest angeschlossen
+und sind auf den fahrenden Zug gesprungen. Man muss nicht lange rätseln, auf welcher Seite Bernd
+Riexinger steht.
+Dabei ist die Sache doch eigentlich gar nicht so kompliziert. Entscheidend ist nicht, wer dort demonstriert, sondern für oder gegen was demonstriert wird. Es macht doch einen Unterscheid, ob die Menschen gegen Ausländer oder gegen schlechte Löhne, miese Renten und hohe Mieten demonstrieren. Und
+wenn nun auch AfD-Anhänger gegen schlechte Löhne, miese Renten und hohe Mieten demonstrieren,
+dann diskreditiert dies doch nicht den Protest. Wenn Deutschlands Linke beim Protestieren lieber unter
+sich sein will, wird es schwer mit der Schlagkraft. Denn lammfromme Trillermärsche mit einer gemein
+
+-----
+
+samen, zuvor bis aufs letzte Komma abgeschliffenen gemeinschaftlichen Erklärung, die dann auch garantiert niemandem wehtut, mögen ja nett sein … an den bestehenden Verhältnissen ändern sie jedoch in
+der Regel nichts. Die Linke muss schon wissen, ob sie lieber was erreichen oder in Schönheit sterben will.
+Wenn man dies einmal in Ruhe sacken lässt, kommt meist das Argument, dass bei den Protesten in
+Frankreich ja Gewalt ausgeübt wurde und man sich aus diesem Grund doch von Demonstrationen distanzieren müsse, die von Randalierern, Plünderern und Hooligans für ihr schändliches Werk genutzt werden. So einfach ist es aber nicht. Das bringt niemand anders so schön auf den Punkt, wie die in Frankreich lebende Schauspielerin Pamela Anderson:
+»Ich verachte Gewalt … aber was ist die Gewalt all dieser Menschen, was sind die verbrannten Luxusautos, verglichen mit der strukturellen Gewalt der französischen und globalen Eliten? Anstatt sich von den
+Bildern der Brände hypnotisieren zu lassen, müssen wir fragen, wo das alles herkommt.
+Und die Antwort lautet: Es kommt von der wachsenden Kluft zwischen der städtischen Elite und den
+ländlichen Armen, zwischen der von Macron repräsentierten Politik und den 99 Prozent, welche unter der
+Ungleichheit leiden – nicht nur in Frankreich, sondern überall auf der Welt.«
+Diese Worte hätte man eher dem Vorsitzenden einer Linkspartei als einer Schauspielerin, die vor allem
+aufgrund ihrer körperlichen Attribute bekannt wurde, zugetraut. Die Schauspielerin erklärt das Phänomen
+der strukturellen Gewalt und der Linkenchef lamentiert über die Gefahr einer imaginären Querfront. Verrückte Welt.
+Dies führt zu einem Gedankenspiel: Was wäre, wenn in Deutschland aus den Sozialen Netzwerken heraus
+Sozialproteste entstünden, die sich wie ein Lauffeuer ausbreiten? Da unter den Unzufriedenen ganz sicher
+auch hierzulande zahlreiche Menschen wären, die für linke Parteifunktionäre als „Ultrarechte“ gelten,
+würde sich der Riexinger- und Kipping-Flügel der Linkspartei wohl pikiert distanzieren. Die Gewerkschaften würden ohnehin keine Proteste unterstützen, bei denen sie nicht das Programm bestimmen können
+und SPD und Grüne haben mit Sozialprotesten ohnehin nicht viel am Hut; wer will schon gegen sich
+selbst auf die Straße gehen? Dreimal dürfen Sie nun raten, wer sich dann zum Sprachrohr der Unzufriedenen macht und die Proteste für seine Zwecke nutzt.
+Schon jetzt kokettiert die AfD mit den Gelbwesten und würde am liebsten in Deutschland eine gelbbewestete Pegida 2.0 starten. Wenn die Linke nicht zusammen „mit dem Pöbel“ auf die Straße gehen will, werden derartige Proteste ohne sie stattfinden. Damit beraubt sich die Linke aber auch vollkommen ohne
+Not ihres Einflusses auf diese Proteste. Aber dann beschwere sich niemand, dass diese Proteste nach
+rechts abdriften. Die Rechten sind nur so stark, wie die Linke es zulässt. Die Vorsitzenden der Linkspartei
+sind da sehr großzügig. Was wäre es für ein Zeichen gewesen, wenn die komplette Linksfraktion bei der
+nächsten Sitzung des Bundestags mit gelben Westen erscheinen würde? Man kann den Protest nur dann
+zum Ziel bringen und ihn vor einem Kidnapping von rechts bewahren, wenn man sich an seine Spitze
+stellt. So gesehen wäre es Zeit, aufzustehen und voranzugehen.
+Quelle: https://www.nachdenkseiten.de/?p=47676
+
+
+## Es geht um Macrons Kopf –
+
+
+## Demonstranten riefen zum Sturm auf seinen Amtssitz auf
+
+Epoch Times6. December 2018 _Aktualisiert: 7. Dezember 2018 5:12_
+
+(Anm. Billy: Alter Artikel wurde zeitgemäss angepasst)
+
+Die Demonstranten in Frankreich riefen zum Sturm auf den Amtssitz des Präsidenten auf – den ElyséePalast. 180p
+Nach dreiwöchigen Protesten bliesen die „Gelbwesten“ zur Jagd auf Frankreichs Präsident Emmanuel
+Macron: Sie riefen zum Sturm auf seinen Amtssitz auf, den Elysée-Palast. Die Proteste richten sich längst
+nicht mehr nur gegen hohe Steuern und Lebenshaltungskosten. Es geht um den Kopf des Präsidenten. Die Krise in Frankreich ist eine Warnung auch an die EU.
+Wie ein Lauffeuer verbreitete sich in den sozialen Netzwerken der Aufruf eines „Gelbwesten“-Aktivisten zu
+Protesten vor dem Elysée-Palast. Auf die Frage eines Fernsehjournalisten, was die Aktivisten dort planten,
+sagte der Lastwagenfahrer Eric Drouot: „Wir gehen rein.“
+Es ist die Kampfansage an einen Staatschef, der sich seit zehn Tagen in Schweigen hüllte. Bei einem seiner raren öffentlichen Auftritte – dem Besuch einer bei Protesten abgefackelten Präfektur – wurde Macron
+ausgebuht. Seine Beliebtheitswerte sind im freien Fall, in einer neuen Umfrage kommt er nur noch auf 18
+Prozent.
+„Der Typ glaubt, er sei Gott“, sagt ein wütender Aktivist, der in Le Mans südwestlich von Paris ein Treibstofflager blockiert. Er wäre sogar dafür, Macron zu enthaupten. Eine „Gelbwesten“-Delegation verlangte,
+von Macron persönlich empfangen zu werden. „Das Land ist am Rand eines Aufstands und eines Bürgerkriegs“, warnte sie.
+
+
+-----
+
+In Frankreich brach sich nicht nur jahrelanger Frust über steigende Steuern, sinkende Renten und eine
+hohe Arbeitslosigkeit Bahn. Die rebellionsartigen Proteste werden getrieben vom Hass auf einen Präsidenten, der sich immer wieder zu arroganten Äußerungen hinreißen läßt – etwa als er einen Arbeitslosen
+zurechtwies, er müsse „nur über die Straße gehen“ und finde schon einen Job. Oder als er die Franzosen
+als „widerspenstige Gallier“ verspottete.
+Und der weiter nicht zu symbolischen Zugeständnissen bereit ist: Etwa die Wiedereinführung der Vermögensteuer, deren Abschaffung den früheren Investmentbanker in den Augen vieler zum „Präsidenten der
+Reichen“ machte. Macron habe im Wahlkampf versprochen, die soziale Ungleichheit abzubauen, klagte
+ein 66 Jahre alter Aktivist, der von 700 Euro Rente lebt und bei Metz eine Straße blockierte. „Das Gegenteil ist der Fall.“
+Von der Krise profitieren Kräfte am äußersten rechten und linken Rand. Die Politikerin Marine Le Pen riet
+Macron bereits: „Reden Sie mit den Gelbwesten, verstecken Sie sich nicht im Elysée.“ Gegen sie droht
+dem Lager des Präsidenten eine Niederlage bei der Europawahl im nächsten Mai.
+Als der Staatschef zum EU-Gipfel nach Brüssel reiste, konnte er sich kaum noch als „Bollwerk gegen Populisten“ präsentieren, als das er angetreten war, sagt der Brüsseler Kommunikationsforscher Nicolas
+Baygert. Auch seine Reformpolitik steht auf der Kippe. Das „Problem“ Macron habe sich für Europa erledigt, triumphiert bereits Italiens Innenminister Matteo Salvini von der Lega.
+Als Macrons großes Vorbild Charles de Gaulle im Mai 1968 mit ähnlichen Revolten konfrontiert war, hatte
+er laut der Historikerin Danielle Tartakowsky eine „historische Legitimität“ durch seinen Kampf gegen die
+Nazis. De Gaulle gelang es, die Lage zu drehen und Wahlen für sich zu entscheiden. „Macron hat diese
+historische Legitimität nicht“, betont die Historikerin.
+Auch die „Gelbwesten“ haben keine Legitimität außerhalb von Umfragen, die ihnen die Sympathie von
+gut 70 Prozent der Bevölkerung zusichern. Ob es ihnen gelingt, wie angekündigt eine „gelbe“ Liste für die
+Europawahl aufzustellen, ist unsicher. Allerdings schließen sich dem selbst erklärten „Volksaufstand“ immer mehr Unzufriedene an: Gymnasiasten, Bauern und Gewerkschafter.
+Die linke Opposition hat zu einem Misstrauensvotum gegen Macron aufgerufen. Es hat wegen der absoluten Mehrheit des Präsidenten keine Chance. Das Misstrauensvotum auf der Straße haben die „Gelbwesten“ bereits gewonnen. (afp)
+Quelle: https://www.epochtimes.de/politik/europa/es-geht-um-macrons-kopf-demonstranten-rufen-zum-sturm-auf
+seinen
+## Berichte aus dem FIGU-Forum, was das Studieren und Praktizieren
+ der Geisteslehre in den Menschen bewirkt
+
+Fragen eines FIGU-Forum Moderators am 17. Januar 2016
+
+Wie hat das Lesen, Studieren und Umsetzen der Geisteslehre Euer Leben praktisch verändert?
+
+Was hat sich in Eurem Inneren dadurch verändert und wie hat sich das auf Eure Wahrnehmung sowie auf Euer
+Denken, Fühlen und Verhalten usw. ausgewirkt? Wie haben die Mitmenschen resp. wie hat die Umwelt auf eine
+Veränderung reagiert?
+
+Wie hat sich das Verinnerlichen der Geisteslehre konkret auf Eure Lebensumstände ausgewirkt?
+Hat Euer Leben womöglich eine neue Richtung eingeschlagen?
+
+Antwort 1, veröffentlicht am Mittwoch, 20. Januar 2016 – 19:13 Uhr von „Andreasm“
+
+So, dann breche ich mal das Eis und mache einen kleinen Anfang ;
+Also, ich habe von Billy ein paar Bücher gelesen (noch keine Geisteslehrbriefe).
+Was sich dadurch konkret geändert hat, ist die Sichtweise der Dinge. Ein Baum ist nun nicht nur mehr einfach
+ein Baum, sondern ein Produkt der Liebe der Schöpfung, das aus ihren Gesetzen hervorgegangen ist; genauso
+bei Pflanzen, Sträuchern, Tieren usw. (klingt jetzt, als hätte ich es aus einem Buch von Billy abgeschrieben,
+aber ich sehe es jetzt halt so, wie er es beschreibt). Ich versuche so oft ich kann nicht nur an allem gleichgültig
+vorbeizugehen, sondern mir vielmehr das Obengenannte vor Augen zu halten. Was mich vor allem beeindruckt
+hat und zu meinem Leitfaden geworden ist, ist der Kanon 46 im OM, in dem Semjase genau diese Dinge beschreibt (sehr zu empfehlen für die, die es nicht kennen).
+
+Auch im Umgang mit Menschen, zum Beispiel beim Grüssen, versuche ich den Nächsten aus dem Wissen
+heraus zu grüssen, dass er ein Teil von mir ist und auch absolut gleichwertig; in dem Sinn also eine Ehrwürdigung der Schöpfung. Ich versuche auch keinen Groll aufzubringen, wenn jemand mal nicht zurückgrüsst. Ich
+bin mir zwar bewusst, dass sein Verhalten falsch ist und ein Nichtgrüssen einer Verachtung des Nächsten
+gleichkommt, aber ich denke, wenn ich ihn dafür hassen würde, wäre mein Verhalten sogar noch unter seinem.
+
+
+-----
+
+Es ist seine Entscheidung und ich kann ihn nicht dazu zwingen. Letztendlich ist jeder auf seinem eigenen Weg
+der Evolution und trägt auch die eigene Verantwortung und erntet auch dementsprechenden seinen Lohn.
+Für mich ist es einfach wichtig, diese Werte zu vertiefen und nicht nach Geld oder unnötigem Schnickschnack
+zu streben. Besser seine Ressourcen auf die Geisteslehre resp. die schöpferischen Gesetze und Gebote konzentrieren.
+
+Antwort 2, veröffentlicht am Donnerstag, 21. Januar 2016 – 09:24 Uhr von „Karoline“:
+
+Hallo liebe Freunde. Ich habe es auch so empfunden wie Andreas, nur etwa dreissig Jahre bevor ich je von Billy
+eine Ahnung hatte. Jetzt, nach dreissig Jahren habe ich Billy und die Geisteslehre gefunden! Ich bin heute (seit
+dreissig Jahren auf meiner eigenen Bahn gelaufen) in der Lage aktuelle "Unterhaltungen" mit der Natur zu führen, wie auch "Unterhaltungen" mit Maschinen und sogar auch unorganischen Lebewesen, wie Steine, usw. Da
+habe ich auf eigenen Füssen sozusagen grosse Fortschritte gemacht. Ich kann mich auch noch genau daran
+erinnern, wie und wann diese Veränderung in meinem Denken stattfand. Ich bin desto mehr glücklich, jetzt mit
+Billy und der FIGU in Kontakt zu sein! Seine Geisteslehre scheint alles zu bestätigen, was ich seit dreissig Jahren erlebte. Auch habe ich Billy mit grosser Bewunderung angeguckt als ich ihn vor zwei Jahre im Internetz
+entdeckte! Es war mir so, als wenn ich ihn schon sehr lange kannte! Mein erster Gedanke war so etwas wie
+"Gott sei Dank, er lebt noch!“
+… Saalome ihr Lieben!
+
+Antwort 3, veröffentlicht am Samstag, 13. Februar 2016 – 16:43 Uhr von „Hasmodal“:
+
+Wie hat das Lesen, Studieren und Umsetzen der Geisteslehre Euer Leben praktisch verändert? Was hat sich in
+Eurem Inneren dadurch verändert und wie hat sich das auf Eure Wahrnehmung sowie auf Euer Denken, Fühlen
+und Verhalten usw. ausgewirkt?
+Mit der Geisteslehre machte ich mir selbst eine Aufgabe, die mich alle Sekunden begleitet. Wenn ich Begriffe
+höre oder lese, dann denke ich sofort darüber nach, wie war das nochmal im Lehrbrief. Dann erhalte ich plötzlich einen anderen Zugang zum Gesagten oder Gehörtem. Ebenso strenge ich mich immer wieder an, die Worte richtig zu wählen. Z.B.: Bewusstseinsmässige Verwirrung statt geistige Verwirrung. Ebenso strenge ich mich
+immer wieder an, andere Menschen nicht gleich zu beschuldigen, sondern die Sache neutral zu klären. Seit der
+Geisteslehre strenge ich mich an, meine Gedanken zu ordnen, zu beachten oder auch nicht, aber ich versuche
+auch, anderen Menschen etwas mitzugeben und bin auch offen, andere Meinungen zu hören.
+Was ich mir vor der Geisteslehre nicht zugetraut hätte ist, dass ich auch selbst Infostände organisiere, weil es
+einfach wichtig ist, dass alle Menschen wissen sollten, dass wir alle ein Teil der Schöpfung sind und mehr achtgeben müssen auf die Umwelt und Mitmenschen.
+
+Wie haben die Mitmenschen resp. wie hat die Umwelt auf eine Veränderung reagiert?
+Am Anfang mit Skepsis und dass es sich um eine Sekte handle. Und wie man den Mut aufbringt, der Kirche und
+dem Christentum den Rücken zu kehren. Mit der Zeit aber wurde alles weniger, das mag auch wohl daran liegen, dass ich auch meine bewusstseinsmässige Persönlichkeit Stück für Stück umbaue.
+
+Wie hat sich das Verinnerlichen der Geisteslehre konkret auf Eure Lebensumstände ausgewirkt?
+Mit einem Satz: Ich spüre meine Wurzeln wieder.
+
+Hat Euer Leben womöglich eine neue Richtung eingeschlagen?
+Ja. Ich habe nur so viel, dass man überleben kann. Mehr brauche ich nicht. Mein Schreibtisch, Bücherregal, ich
+und die Mitmenschen sind mein grösster und unbezahlbarer Schatz.
+
+Wahrheit aus der Wirklichkeit
+
+Möge die effective Wahrheit, die aus der Wirklichkeit
+
+hervorgeht, jedem Menschen ein strahlendes Licht sein,
+
+der für sich die tiefgründige Wahrheit aller Wahrheit zu
+
+erkennen, zu verstehen und zu befolgen wünscht.
+
+SSSC, 29. Dezember 2011, 00.15 h Billy
+
+
+-----
+
+### Unvernunft muss der Wahrheit weichen
+
+Weil sich im Menschen nicht die Unvernunft lichtet,
+hält er sich fern von Wahrheit, Liebe und guter Hut,
+
+führt Krieg und meint, dass er in Wahrheit richtet,
+
+wenn er sich rächet und vergiesset Menschenblut.
+Hat er sich einst erfreut am schönen Regenbogen,
+
+so halten ihn heute weder Vernunft noch Liebe auf,
+weil durch Hass und Gier alle Werte sind entflogen.
+
+Doch Mensch, acht' in deinem Leben stets darauf,
+
+dass du niemals spinnst des bösen Unheils Fäden,
+dass kein Übel jemals nehmet seinen starren Lauf,
+
+daher musst du Gut und Böse in Vernunft erwägen.
+Schon manchem sein wahres Lebensglück zerrann,
+
+wenn er lebte in Hass und führte gar böse Reden,
+
+wenn er selbstsüchtig gar unheilvolle Dinge spann.
+Hast du jedoch einmal mit wahrer Güte begonnen,
+
+die dich zum Leben und zu deinem Nächsten führt,
+
+dann hast du Ehre, Preis und viel Liebe gewonnen,
+
+die dir den Sinn zu Freude und gutem Leben rührt.
+
+Willst du dir und für die Welt den Frieden erhalten,
+
+dann lass in dir stetig gute Besonnenheit walten.
+
+SSSC, 24. September 2003, 00.34 h, Billy
+
+**IMPRESSUM**
+**FIGU-ZEITZEICHEN**
+**Druck und Verlag: FIGU** Wassermannzeit-Verlag,
+
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+
+**Redaktion: BEAM** ‹Billy› Eduard Albert Meier,
+
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+
+Wird auch im Internetz veröffentlicht
+
+**Erscheint zweimal monatlich auf der FIGU-Webseite**
+
+**Postcheck-Konto: FIGU Freie Interessengemeinschaft,**
+
+8495 Schmidrüti, PC 80-13703-3
+
+Geisteslehre Friedenssymbol
+
+IBAN: CH06 0900 0000 8001 3703 3
+
+**E-Brief: info@figu.org**
+
+Frieden
+
+**Internetz: www.figu.org**
+
+**FIGU-Shop: http://shop.figu.org** Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+
+wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten
+Tritt dazu macht, um dann nachfolgend in Friedsamkeit jeden weiteren Schritt
+
+**© FIGU 2019** bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun. SSSC, 10. September 2018, 16.43 h, Billy
+
+Einige Rechte vorbehalten.
+
+Dieses Werk ist, wo nicht anders
+
+angegeben, lizenziert unter :
+
+www.figu.org/licenses/by-nc-nd/2.5/ch/
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung des Urhebers ausdrücklich erlaubt.**
+Erschienen im Wassermannzeit-Verlag: FIGU, ‹Freie Interessengemeinschaft Universell›, Semjase-Silver-Star-Center,
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+

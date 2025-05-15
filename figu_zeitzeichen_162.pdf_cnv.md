@@ -1,0 +1,1617 @@
+7. Jahrgang
+Nr. 162, Nov. 2, 2021
+
+
+Erscheinungsweise:
+Zweimal monatlich
+
+
+# FIGU  ZEITZEICHEN
+
+### Aktuelles • Einsichten • Erkenntnisse
+
+Internetz: http://www.figu.org
+
+E-Brief:  info@figu.org
+
+
+### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+
+Laut ‹Allgemeine Erklärung der Menschenrechte›, verkündet von der Generalversammlung der Vereinten Nationen am 10. Dezember 1948, herrscht
+eine allgemeine ‹Meinungs- und Informationsfreiheit› vor, und dieses unumschränkte Recht gilt weltweit und absolut für jeden einzelnen
+Menschen weiblichen oder männlichen Geschlechts jeden Alters und Volkes, jedes gesellschaftlichen Standes wie auch in bezug auf
+rechtschaffene Ansichten, Ideen und jeglichen Glauben jeder Philosophie, Religion, Ideologie und Weltanschauung:
+
+**Art. 19 Menschenrechte**
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit, Meinungen unange-**
+**fochten anzuhängen und Informationen und Ideen mit allen Verständigungs-**
+**mitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Ansichten, Aussagen, Darstellungen, Glaubensgut, Ideen, Meinungen sowie Ideologien jeder Art in Abhandlungen, Artikeln
+und in Leserzuschriften usw. müssen in keiner Art und Weise zwingend identisch mit dem Gedankengut und den
+Interessen, mit der ‹Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens›, wie auch nicht in
+irgendeiner Sachweise oder Sichtweise mit dem Missionsgut und dem Habitus der FIGU verbindend sein.
+==============================================================================================================
+==============================================================================================================
+Für alle in den FIGU-Zeitzeichen und anderen FIGU-Periodika publizierten Beiträge und Artikel verfügt die
+FIGU über die notwendigen schriftlichen Genehmigungen der Autoren bzw. der betreffenden Medien!
+### **********************************************************************************
+**Auf vielfach geäusserten Wunsch aus der Zeitzeichen-Leserschaft sollen in den Zeitzeichen zur Orientierung der**
+**Rezipienten laufend Auszüge diverser wichtiger Belange aus neuest geführten Kontaktgesprächsberichten**
+**veröffentlicht werden, wie nach Möglichkeit auch alte sowie neue Fakten betreffs weltweit bösartig mit**
+**Lügen, Betrug, Verleumdung und Mordanschlägen gegen BEAM geführte Kontroversen.**
+
+### **********************************************************************************
+
+_11. November 2021 um 9:10_
+_Ein Artikel von Christian Felber, Verantwortlicher: Redaktion_
+
+Die Stimmungsmache gegen Ungeimpfte nimmt von Tag zu Tag an Fahrt auf. Die Motive, warum sich viele
+Menschen nicht impfen lassen wollen, werden dabei entweder nicht wahrgenommen oder gar ins Lächer
+
+-----
+
+liche gezogen. Am Ende steht gar der Vorwurf, wer sich nicht impfen lassen will, handle aus niederen
+Beweggründen und verhalte sich unsolidarisch, ja egoistisch. Der österreichische Gemeinwohl-Ökonom und
+Autor Christian Felber hat sich die Mühe gemacht, auf diese Zuschreibungen mit einem sehr fakten-orientierten, aber auch sehr persönlichen Artikel für die NachDenkSeiten zu reagieren, «um Vielfalt sichtbar zu
+machen und für gegenseitigen Respekt zu werben».
+
+**30 Gründe, warum ich mich derzeit nicht impfen lasse oder Betrachtungen zu Gesundheit, Grundrech-**
+**ten, Solidarität und Gemeinwohl**
+Vorweg: Ich bin mehrfach geimpft und habe ein neutrales Verhältnis zu Impfungen. Ich respektiere die Entscheidung jedes Menschen, sich impfen zu lassen, versuche niemanden davon zu überzeugen, sich nicht
+impfen zu lassen und trage auch solidarisch und gerne die dafür anfallenden Kosten mit (mit einigen Einschränkungen, siehe Gründe 20 und 26). Ich lege hier meine persönlichen Gründe dar, weil:
+Ich zeigen möchte, dass Menschen wohlüberlegt aus guten und sehr unterschiedlichen Gründen von einer
+Impfung Abstand nehmen; und dass es sich nicht um prinzipielle Impfgegner*innen handeln muss;
+Ich nicht abgewertet werden möchte, wenn ich eine andere Meinung oder ein anderes Gesundheitsverständnis als die Regierung habe;
+Ich keine Nachteile erleiden möchte, wenn ich mich anders entscheide;
+Ich zeigen möchte, dass eine solche Diskriminierung nicht gerechtfertigt ist;
+Ich den fortschreitenden Impfzwang aufhalten und umkehren möchte.
+Meine Vision ist das friedliche Miteinander von Menschen mit und ohne Impfung sowie die freie persönliche
+Entscheidung auf Basis sachlicher und ausgewogener Information ohne Nachteile für oder Druckausübung
+auf eine der beiden Gruppen. Eine Demokratie muss es aushalten, dass Menschen zu privaten und persönlichen Themen unterschiedlicher Meinung sind, dass sie unterschiedliche Gesundheitsverständnisse haben
+und entsprechend unterschiedliche Entscheidungen treffen. Und sie muss im Zweifels- und Dissensfall die
+Grundrechte schützen. Dazu zählen die Grundrechte auf körperliche Unversehrtheit (Grundgesetz Art. 2
+(2)), der freien Entfaltung der Persönlichkeit (Art. 2 (1)) sowie des weltanschaulichen Bekenntnisses, wozu
+auch das Gesundheitsverständnis gezählt werden kann (Art. 4 (1)). Über diesen Grundrechten bildet das
+Prinzip der Menschenwürde (Art. 1 (1)) eine einende Klammer und einen schützenden Schirm.
+
+Hier nun meine Gründe:
+1. Das Prinzip der Gesundheitskompetenz gesteht jedem Menschen zu, zu wissen, was für sie oder ihn richtig
+ist. Es gibt verschiedene Gesundheitsverständnisse, und die letzte Instanz darüber, was für die eigene Gesundheit das Beste ist, ist jede Person selbst. Neben evidenzbasierter Information zählt auch die Intuition
+zu dieser basalen Form der Selbstbestimmung. Ich spüre, dass mein Körper mir derzeit kein grünes Licht
+gibt für eine Corona-Impfung. Das ist meine ganz persönliche Entscheidung, wie ich mich für eine Beziehung, einen Lebensort, einen Beruf oder eine sexuelle Orientierung entscheide. Solche persönlichen Entscheidungen sind mit der Menschenwürde begründet und grundrechtlich geschützt. In dieser Haltung
+werde ich von zahllosen und prominenten Wissenschaftler*innen bestärkt = (Kanadische Wissenschaftler*innen, 2. 8. 2021) (12 Schritte aus der Corona-Krise, 15. Oktober 2021).
+2. Persönlich habe ich grossen Respekt, aber keine Angst vor dem Virus, ich zähle mich mit 48 Jahren nicht
+zu einer Risikogruppe, ich habe keine schweren Vorerkrankungen, achte auf meine Gesundheit und vertraue
+meinem Immunsystem. Eine altersgruppenspezifische Sterblichkeitsuntersuchung eines Forscher*innenteams um Meyerowitz-Katz (der unter anderem von der Bill & Melinda Gates Foundation finanziert wird)
+ermittelte eine Infektionssterblichkeit von 0,4% (Andrew Levin et al, medRxiv, 31.10.2020); John P. Ioannidis (dem ich u.a. aufgrund dieses Interviews mehr vertraue) bei unter 70-Jährigen von 0,05% (Ioannidis,
+Bulletin of the WHO, 14.10.2020). Nun tanze ich regelmässig, bin viel im Wald und an der frischen Luft,
+ernähre mich ohne Fertiggerichte und Mikrowelle, verzichte auf Fleischkauf und Süssigkeiten im Supermarkt, und ich komme ohne Alkohol- oder Zigarettenmissbrauch aus. Einer Studie zufolge verringert allein
+schon regelmässige körperliche Bewegung das Sterberisiko im Falle einer Infektion um den Faktor vier (Lee
+et al., British Journal of Sports Medicine, 30.6.2021). Laut https://qcovid.org liegt mein Risiko, an Covid-19
+zu sterben, bei 1 : 23.500. Somit ist immer noch ein gewisses Risiko gegeben, doch es ist begrenzt, andere
+Lebensrisiken sind grösser.
+3. Bei den beworbenen Produkten von Moderna, BioNTech/Pfizer & Co. handelt es sich um neue Technologien
+(Seneff und Nigh, IJVTPR, 10.5.2021). Bisher arbeiteten Impfstoffe mit abgeschwächten oder abgetöteten
+Erregern, sodass diese keine schwere Infektion mehr hervorrufen können. Allerdings bleiben ihre Merkmale,
+die Antigene, auf der Zelloberfläche erhalten. So kann der Erreger vom Immunsystem immer noch als
+fremd erkannt werden, wenn man ihn in den Körper einbringt. Dies führt dazu, dass der Erreger, bzw. die
+als fremd erkannte Zelle, zerstört wird. Die neuartigen mRNA-Impfstoffe basieren auf einer ganz anderen
+Technologie: Gesunde Zellen werden mit Antigenen ausgestattet, auf deren Vernichtung das Immunsystem
+getrimmt wird. Die langfristigen Folgen dieser neuartigen Technologie sind – notwendigerweise, aufgrund
+nicht erfolgter Langzeitstudien – unbekannt.
+
+
+-----
+
+4. Diese neuen Technologien sind bisher in der EU nur bedingt zugelassen. Bisher nahm die Zulassung von
+Impfungen viele Jahre in Anspruch: Zwei bis fünf Jahre für die Entwicklung im Labor, weitere zwei bis fünf
+Jahre für die klinischen Studien, und bis zu zwei Jahre für das Standard-Zulassungsverfahren (AGES, 17.
+10. 2021). Bei den neuen Technologien wurde dieser Prozess auf ein einziges Jahr ‹teleskopiert›. Selbst in
+den Verträgen wird darauf verwiesen, dass derzeit unbekannte Langzeitfolgen nicht ausgeschlossen werden
+können. In so einer Situation möchte ich jedenfalls die vollständige Zulassung abwarten.
+5. Es gibt von berufener Seite fachliche Warnungen, welche mir als Laien zumindest nicht unplausibel erscheinen. Zum Beispiel warnt der Arzt Dr. Christian Fiala vor der Möglichkeit der progressiven Selbstschädigung mit jeder Auffrischungsimpfung, weil die Wirkungsweise der Impfung auf der Ausstattung gesunder
+Körperzellen mit Antigenen (Viruseigenschaften) besteht, die vom Immunsystem erkannt und vernichtet
+werden. Je öfter geimpft wird, desto ‹effizienter› und damit destruktiver dieser Effekt (Christian Fiala, respekt.plus, 16. 9. 2021). Ich glaube dieser ‹Einzelansicht› nicht blind, überhöre oder ignoriere sie aber auch
+nicht, sondern ich forsche weiter und entscheide für den Moment: Abwarten.
+6. Nun zu den bisher bekannten Infos zu Impfschäden und Nebenwirkungen. In Österreich gibt es laut Bundesamt für die Sicherheit im Gesundheitswesen (BASG) bisher 36.795 gemeldete Nebenwirkungen nach
+10,9 Millionen Impfungen, darunter schwere Folgen wie thrombotische Thrombozytopenie (VITT), Herzmuskelentzündungen (Myokarditis) oder anaphylaktische Reaktion sowie 168 Todesfälle (BASG, 14. 10.
+2021); in Deutschland nach den Zahlen des Paul-Ehrlich-Instituts bisher 156.360 Nebenwirkungen bei
+101,9 Millionen Impfungen bis August 2021, davon 9,7 Prozent schwerwiegend (s. o.) und 1.450 Todesfälle
+(PEI, 20. 9. 2021), die als Verdachtsfälle in zeitlichem Zusammenhang mit der Impfung geführt werden.
+Auf der Website des PEI sind aktuell acht Rote-Hand-Briefe zu schweren Nebenwirkungen der Covid-19Vakzine veröffentlicht (PEI, 13. 10. 2021). Bei den gemeldeten Todesfällen ist der Zusammenhang zur
+Impfung in der überwiegenden Zahl der Fälle unklar, und durch Ob-duktion nachgewiesen sind nur einzelne
+Fälle (Dr. Janine Kimpel, Universität Innsbruck, Youtube, 15. 10. 2021). Anders als bei den ‹Covid-19-Toten›
+aber, die nach einem positiven PCR-Test in zeitlicher Nähe zum Todeseintritt automatisch als Covid-19Todesfälle in die Statistik eingehen (unabhängig davon, woran sie ursächlich gestorben sind), wird hier sehr
+penibel auf erforderliche Obduktionsergebnisse verwiesen, bevor eine ‹in Zusammenhang mit› der Impfung
+verstorbene Person auch als ‹Impftote› gewertet wird. Diese ungleiche Vorgehensweise ist schwer verdaulich. Auch wenn das Risiko gering ist: Die Entscheidung für eine Impfung kann mein Todesurteil sein. Bis
+hierher ging es nur um die gemeldeten Impfschäden.
+7. Bezüglich der Meldung von Nebenwirkungen werden ‹passive Meldesysteme› und ‹aktive Meldesysteme›
+unterschieden. Bei passiven Meldesystemen werden nur jene Nebenfolgen registriert, die von Ärzt*innen
+oder Betroffenen gemeldet werden. Doch auffallend viele Impfschäden werden nicht gemel-det. Ich selbst
+habe in meinem unmittelbaren Umfeld von zahlreichen Betroffenen erfahren, die kurz nach der Impfung
+schwer erkrankt, gestorben oder bis heute berufs- oder sogar spazierunfähig geblieben sind. Hier einige
+Fälle:
+– Bekannter in Wels: Frau war zwei Tage mit Durchfall und Erbrechen knapp vor Krankenhauseinlieferung,
+keine Meldung;
+– Nachbarin einer Bekannten in Amstetten: Gestorben vier Tage nach der Impfung, davor ‹pumperl-gsund›,
+Obduktion (gegen Willen der Behörden durchgesetzt) ergab: Feinthrombosen, dennoch keine Meldung,
+Begründung: Mit 74 Jahren kann der Mensch jederzeit sterben;
+– Bekannter in Berlin: Befreundete 32-jährige Mutter von zwei Kindern gestorben;
+– Freund einer Bekannten: Beide Onkel in UK nach der Impfung gestorben;
+– Freunde einer Bekannten: Opa 87-jährig zwei Wochen nach Impfung gestorben;
+– Vater einer Bekannten: Ihm bekannter 29-Jähriger nach Impfung gestorben;
+– Bekannte in Niederösterreich: Drei Freund*innen betroffen, eine davon berufsunfähig, eine spazierunfähig;
+– Freundin einer Freundin: Regelblutung seit der Impfung permanent, davon sind laut Berichten viele Frauen
+betroffen (Der Standard, 8.7.2021);
+– Vorgesetzter einer Freundin in Innsbruck: Hämatome am ganzen Körper (diese wurden als einzige gemeldet);
+– Schwester einer Bekannten: 3 Tage schwere Krankheit nach 2. Moderna-Impfung, sodass sie ganz sicher
+keinen 3. Stich will;
+– Bekannte in Wien: Oma im Seniorenheim kurz nach der Impfung gestorben, mitsamt der gesamten Abteilung (!), dennoch keine Meldung durch die zuständigen Ärzte, weil sie meinten, sie seien an Covid-19 gestorben;
+– Freund*innen am Bodensee: Auch hier eine komplette Abteilung im Senior*innenheim gestorben – keine
+Meldung, keine Untersuchung!
+Diese möglichen Nebenwirkungen wurden aus unterschiedlichen Gründen nicht gemeldet, u. a. aus Angst
+vor Konsequenzen, aus Ungläubigkeit, dass dieser so massiv beworbene ‹einzige Weg› (Sebastian Kurz,
+ORF, 22.9.2021) auch Nachteile haben könnte, aus Scham oder schlicht weil keine Energie und Aufmerksamkeit für Bürokratie da ist aufgrund des familiären Todesfalls.
+
+
+-----
+
+Aus diesem Grund arbeiten aktive Meldesysteme umgekehrt: Sie fragen gezielt bei Ärzt*innen und Geimpften nach. Bei Pocken ergaben Untersuchungen, dass die Anzahl der Nebenwirkungen mindestens 7,5 Mal
+höher liegen kann (infosperber, 17.10.2021). Anderen Studien zufolge sind die Nebenwir-kungen im wirklichen Leben drei- bis viermal häufiger als in pharmakologischen Studien. Der schwedi-sche Arzt Sebastian
+Rushworth schreibt: «Wenn die Ergebnisse der Zulassungsstudien und die realen Daten so stark voneinander abweichen, dann stellt sich die Frage, ob wir ihnen überhaupt vertrauen können. Es wäre durchaus
+vernünftig zu sagen, dass jede von den Pharmakonzernen vorgelegte ‹Evidenz› so suspekt ist, dass sie
+geradewegs zurückgewiesen werden sollte, und dass nur unabhängig finanzierte Studien als Basis für Entscheidungen zu ärztlichen Behandlungen herangezogen werden sollten.» (Rushworth, 19.7.2021).
+8. Der Chefpathologe der Universität Heidelberg, Peter Schirmacher, spricht von einer ‹hohen Dunkelziffer›
+bei den Impftoten, weil nur sehr wenige Obduktionen vorgenommen würden (aerzteblatt.de, 2. 8. 2021).
+Bei den von ihm in einem Projekt vorgenommenen 33 Obduktionen von Verstorbenen nach einer Impfung
+fand er bei 30 bis 40 Prozent einen Zusammenhang mit der Impfung. Diese Zahlen werden von Kolleg*innen teils stark angezweifelt, einhellig werden aber mehr Obduktionen gefordert, um zu genaueren Daten
+zu kommen (infosperber, 19. Oktober 2021).
+9. Es gibt auch Fälle, bei denen Ärzt*innen die Meldung aus ideologischen Gründen verweigert haben. Eine
+Berliner Opernsängerin ist infolge der Impfung berufsunfähig geworden. Der Arzt, der sie geimpft hatte,
+weigerte sich, eine Meldung an das Paul-Ehrlich-Institut vorzunehmen (Berliner Zeitung, 17.9. 2021).
+10. Es gibt Präzedenzfälle von Impfkampagnen, die massiv beworben wurden und sich danach als Fehler herausgestellt hatten: Der Schaden war grösser als der Nutzen – so etwa bei der Impfkampagne gegen die
+Schweinegrippe, die von Vietnam-Heimkehrern in den USA ausgelöst wurde. Die Regierung befürchtete
+eine Million Tote. 45 Millionen US-Bürger*innen liessen sich daraufhin impfen. Als Nebeneffekt traten bei
+einigen hundert Menschen Lähmungen auf, an denen 25 starben. Nur ein Patient starb dagegen an der
+Schweinegrippe (‹Profiteure der Angst›, arte/NDR, 23.11.2009). Der deutsche Schauspieler Til Schweiger
+liess sich und seine Töchter unnötigerweise gegen die Schweinegrippe impfen, als Folge davon leidet nun
+eine der Töchter an Narkolepsie (Marchart, ‹Eine andere Freiheit›, 9.9.2021).
+11. Nutzen-Risiko-Abwägung. Laut einigen Analysen ist bei Menschen unter 30 das Risiko grösser als der Nutzen – nicht weil die Impfschäden so häufig wären, sondern weil schwere Covid-19-Verläufe in dieser Altersgruppe so selten sind (infosperber, 12.10.2021). Nun bin ich zwar in meinen Vierzigern und nicht unter
+30, jedoch ist das nur ein Durchschnittswert. Bei einzelnen 30-Jährigen kann der Nutzen der Impfung
+grösser sein als das Risiko, und umgekehrt mag ein fitter 50-Jähriger ein geringeres Risiko haben, schwer
+an Covid-19 zu erkranken, als ein adipöser 30-Jähriger.
+12. Infolge unverändert bestehender Fragezeichen gibt es für manche Impfstoffe weder Empfehlungen noch
+Zulassungen. Schweden und Finnland haben Anfang Oktober 2021 die Impfung mit dem Covid-19-Impfstoff von Moderna für Personen unter 30 Jahre pausiert. Dänemark setzt diese Impfung gegen-wärtig bei
+den unter 18-Jährigen nicht mehr ein. Eine skandinavische Studie zeigte ein erhöhtes Risiko für Herzmuskelentzündung bei Personen in dieser Altersgruppe nach Impfung mit dem Moderna-Vak-zin (ORF, 6. 10.
+2021) (infosperber, 17. 10. 2021). In der Schweiz wurde der AstraZeneca-Impfstoff nicht zugelassen, weil
+der Zulassungsbehörde die Daten für die Beurteilung von Nutzen und Risiko nicht ausreichten (Ärzteblatt
+4.2.2021).
+13. Manche Originaldaten der Zulassungsstudien, welche die Auswirkungen der Impfung auf Kinder betreffen,
+sind noch unter Verschluss und werden erst 24 Monate nach Abschluss der Studien veröffentlicht! (Univ.Prof. Dr. David Martin, Eine andere Freiheit, 9.9.2021, min. 28).
+14. Es ist mittlerweile wissenschaftlich gut erforscht, dass das natürliche Immunsystem nach durchgemachter
+Krankheit einen viel breiteren und länger andauernden Immunschutz gegen das Sars-CoV-2-Virus bietet
+als die Impfung (Dorothee von Laer, ORF, 12. 9. 2021) (Gazit et al., Medrxiv Preprint, 25. 8. 2021) (Cho et
+al, Biorxiv, 30. 8. 2021) (Ivanova et al., medRxiv, 21. 4. 2021) (Dr. John Campbell, 2. 10. 2021) (Tagblatt,
+20.10.2021). STIKO-Mitglied Christian Bogdan meint: «Wer eine Corona-Infektion durchgemacht und gut
+überstanden hat, steht sicherlich mit einer breiteren und stabileren Immunant-wort da als ein Geimpfter.
+Beim Kontakt mit dem ganzen Virus erstreckt sich die Immunantwort nicht nur auf das Spike-Protein,
+sondern auf weitere Virusbestandteile. Ein grösseres Spektrum von Lymphozyten wird aktiviert.» (nordbayern.de, 29. 5. 2021). Angesichts dieser Sachlage macht eine Impfung doch nur Sinn, wenn zuvor die natürliche Immunität getestet wurde – nicht nur auf (kurzlebigere) Anti-körper, sondern auch auf (langlebige)
+Gedächtniszellen. Nur wenn beide negativ sind, sollte überhaupt geimpft werden. Dass der politische Diskurs Genesene und das natürliche Immunsystem ausblendet (kein Test vor der Impfung) oder mit ‹Drüberimpfen› als minderwertig behandelt, macht mich wirklich misstrauisch. Das offizielle Narrativ verherrlicht
+die Impfung und ignoriert das menschliche Immunsystem, das sich in Jahrmillionen entwickelt und seine
+Leistungsfähigkeit bewiesen hat. Die Schlechter-stellung Genesener gegenüber Geimpften durch die 2-GRegel in Wiener Nachtlokalen war wissenschaftlich widersinnig (vienna.at, 24. 7. 2021). Dass nun sogar
+über den Ausschluss von Genesenen aus weiten Teilen des öffentlichen Lebens (1G) nachgedacht wird,
+obwohl sie über einen besseren Im-munschutz verfügen als Geimpfte, erschüttert mein Vertrauen nicht nur
+
+
+-----
+
+in die Grundrechts-, sondern auch in die Gesundheitskompetenz der Regierung. Umso geringer ist mein
+Impuls, ihrer Empfehlung unüberlegt zu folgen.
+15. Die kollektive Immunität mit (hohem) Anteil natürlicher Immunität ist zuverlässiger und nachhaltiger als in
+einer komplett geimpften Bevölkerung. STIKO-Mitglied Christian Bogdan meint: «Man könnte sich sogar
+fragen, ob das Durchmachen einer Infektion in Altersgruppen, die nur ein extrem geringes Risiko für einen
+schweren Verlauf haben, nicht sogar ein Vorteil wäre.» (nordbayern.de, 29. 5. 2021). Lavine et al. schreiben:
+«Die Impfung von Kindern könnte die Frequenz von grossen saisonalen Epidemien erhöhen und zu allgemeinen virusbedingten Erkrankungen und Sterblichkeit führen.» (Lavine et al., BMJ, 13. 5. 2021). Die Impfung von Nichtrisikogruppen schwächt die kollektive Immunität und erhöht das allgemeine Sterberisiko.
+Der Kinderarzt Martin Hirte schreibt: «Die Impfung von Altersgruppen, die kein relevantes Krankheitsrisiko
+haben (Kinder, gesunde jüngere Erwachsene), ist wahrscheinlich ein Riesenfehler. Man hindert eine ganze
+Generation daran, sich zuverlässig und dauerhaft zu im-munisieren, und auch vor Mutationen weitgehend
+zu schützen.» (Martin Hirte, laufender Blog). Durch die von Mensch zu Mensch unterschiedlichen Antikörper
+wird auch die Ausbildung und Verbreitung von Mutationen gehemmt, da das Virus gar nicht mehr ‹weiss›,
+in welche Richtung es mutieren soll (Martin Hirte, laufender Blog). Ein weiterhin zirkulierender Wildvirus ist
+zudem aus gesundheitsökologischer Sicht nützlich: Er frischt kontinuierlich die Immunität der Genesenen
+und Geimpften auf, was SARS-CoV2 mit der Zeit zu einem Virus macht, der wie viele andere Viren im
+Winterhalbjahr zu harmlosen Erkältungen führt. In der Übergangszeit von der Pan- zur Epidemie gilt es
+jedoch, die Risikogruppen besonders zu schützen, auch durch Impfung.
+16. Die Impfung bietet nur rund 180 Tage Schutz, weil sie primär die Produktion von – kurzlebigen – Antikörpern bewirkt. Deren Kurzlebigkeit hat damit zu tun, dass ihre Produktion für den Körper energieaufwendig ist. Das Immunsystem besteht jedoch ‹energiesparend› und arbeitsteilig aus mehreren Dimensionen.
+Eine weitere sind die B- und T-Gedächtniszellen. Diese ‹merken› sich Viren auch über viele Jahre, und wenn
+diese zurückkommen, produzieren die Gedächtniszellen u.a. frische Antikörper – denn es wäre ‹Verschwendung›, Antikörper dauerhaft zu produzieren, wenn gerade kein Kontakt mit einem Virus besteht. Nebeneffekt – oder ihre Hauptintention, das ist eine offene Frage – ist es, dass Pharmakonzerne ein regelmässiges
+und äusserst ertragreiches Geschäft machen. Infolge der kurzen Wirkdauer der Impfung hat Österreich –
+mit 8 Millionen Einwohner*innen – 42 Millionen Impfdosen gekauft (ORF, 5.5.2021). Die EU – mit 448
+Millionen Einwohner*innen – sicherte sich bislang 4,6 Milliarden Impfdosen (euobserver, 4.11.2021). Diese
+Giga-Zahlen schwächen mein Vertrauen weiter: Wie unnachhaltig muss die Wirkung der Impfung sein, dass
+die EU je Einwohner*in mehr als zehn Impfdosen auf Vorrat kauft? Zudem belegen diese Zahlen erneut,
+dass die Regierung ihre Rechnung ohne die Genesenen macht – die bräuchten gar keine Impfung. Und sie
+erinnert mich an die Ankündigung von Bill Gates im Frühjahr 2020: «We will vaccinate seven billion people.»
+– im Indikativ und in der pluralen ersten Person! (Tagesschau, 12.4.2020) Ich kritisierte diese Aussage
+schon damals (Felber, Youtube, 12.5. 2020). Es gibt offenbar Kreise, deren offenes Ziel es ist, alle Menschen
+zu impfen – unabhängig davon, ob sie es wollen; unabhängig davon, ob sie es brauchen; und unabhängig
+davon, ob es vielleicht bald ein ebenso wirksames oder noch wirksameres Medikament gegen Sars-CoV-2
+geben wird.
+17. Die Wirksamkeit der Impfung kann unterschiedlich dargestellt werden. Die Wissenschaft unterscheidet zwischen Relativer Risiko-Reduktion (RRR) und Absoluter Risiko-Reduktion (ARR). Ein Autor*innenteam
+schreibt in ‹The Lancet›: «Je nachdem, wie der Effekt dargestellt wird, ergibt sich ein sehr unterschiedliches
+Bild.» ARR berücksichtigt das Risiko mit, überhaupt mit Covid-19 infiziert zu werden, indem die gesamte
+Bevölkerung einbezogen wird, anstatt nur Krankheitsverläufe mit und ohne Impfung zu vergleichen (RRR).
+Die Autor*innen schreiben: «ARRs werden üblicherweise ignoriert, weil sie eine deutlich weniger beeindruckende Wirkung ergeben als RRRs: 1,3% für die Impfung von AstraZeneca–Oxford, 1,2% für Moderna–NIH,
+1,2% für J&J, 0,93% für Sputnik V/Gamaleya, und 0,84% für Pfizer–BioNTech.» (Olliaro et al., The Lancet,
+20.4.2021).
+18. Neuere Studien zeigen, dass die Impfung a) weder vor Infektion b) noch sicher vor schwerer Erkrankung
+und c) dem Tod schützt – und d) auch nicht davor, andere anzustecken (Infektiosität).
+In sechs US-Bundesstaaten – California, Colorado, Massachusetts, Oregon, Utah, Vermont und Virginia –
+waren im August zwischen 18 und 28 Prozent der neu Infizierten Geimpfte, ihr Anteil an den Hospitalisierten beträgt 12 bis 24 Prozent (New York Times, 17. 8. 2021). Anfang September 2021 hatte Israel
+trotz hoher Durchimpfung die höchste Infektionsrate weltweit (swprs 2.9.2021, The Times of Israel,
+14.9.2021). In Deutschland sind die Statistiken nur bedingt aussagekräftig: Wenn bei Geimpften keine
+Krankheitssymptome vorliegen, gilt das offiziell nicht als ‹Impfdurchbruch› und geht nicht in die Statistik
+ein (RKI, 2.9.2021). Geimpfte werden auch wesentlich seltener getestet als Ungeimpfte. Demzufolge sind
+Infektionen bei ‹Geimpften› und ‹Ungeimpften› statistisch nicht vergleichbar. Dennoch lag im Sommer 2021
+die so gemessene Rate der Impfdurchbrüche bei über 60-jährigen Covid-19-Patient*innen bei 40 Prozent,
+bei 18- bis 59-jährigen bei 18 Prozent (RKI, 1.9.2021). Das Narrativ von der ‹Pandemie der Ungeimpften›
+ist nicht haltbar. Die absurdesten Ergebnisse kommen ganz aktuell aus Grossbritannien: In den Kalenderwochen 37 bis 40 waren die Infektionsraten (je 100.000 Personen) bei den vollständig Geimpften höher
+
+
+-----
+
+als bei den Ungeimpften. In meiner Alterskohorte lag das Infektionsrisiko sogar doppelt so hoch (UK Health
+Security Agency, COVID-19 vaccine surveillance report Week 41, 14.10.2021). Angesichts solcher Zahlen
+wäre es vielleicht sogar fahrlässig, mich impfen zu lassen.
+Bei den Hospitalisierungen je 100.000 Menschen gibt es Zahlen aus Grossbritannien in den Wochen 38–
+41. Bei den 18- bis 29-Jährigen mussten von den doppelt Geimpften 1,3 Personen von 100.000 ins Krankenhaus vs. 5,9 von den Nichtgeimpften (Faktor 4,5); bei den 40- bis 49-Jährigen (meine Alterskohorte)
+waren es 6,5 vs. 27,4 (Faktor 4,2); bei den 60- bis 69-Jährigen 12,8 vs. 44,5 (Faktor 3,5) und bei den > 80Jährigen 53,4 vs. 106,7 (Faktor 2). Diese Zahlen bestätigen, dass die Impfung aktuell vor schweren Verläufen schützt, jedoch nur um den Faktor 2 bis 4,5 (UK Health Security Agency, Week 42/2021, S. 14).
+Zu den Todesfällen: In der Schweiz sind seit Juli fast 25 Prozent der Covid-19-Toten doppelt geimpft (Neue
+Zürcher Zeitung, 23.8.2021). In Grossbritannien starben in den Wochen 38–41, je 100.000 Einwohner*innen, von den doppelt Geimpften 18- bis 29-Jährigen 0,1 Personen vs. 0,3 Personen unter den Nichtgeimpften (Faktor 3); bei den 40- bis 49-Jährigen waren es 0,5 vs. 2 (Faktor 4); bei den 60- bis 69-Jährigen 4,2
+vs. 19,5 (Faktor 4,6) und bei den > 80-Jährigen 45,7 vs. 117 (Faktor 2,5) (UK Health Security Agency, Week
+42/2021, S. 15). Auch hier gilt, dass die Impfung bis zu einem gewissen Grad vor Covid-19-Infektionen mit
+Todesfolge schützt, aber eben nur das: Bis zu einem gewissen Grad. In Deutschland starb z.B. der beliebte
+Schauspieler Wilfried Dzaiallas nach doppelter Impfung an Corona (focus.de, 25.9.2021), in den USA ExAussenminister Colin Powell (ORF, 18.10.2021).
+Auch bei der Viruslast verschwimmen die Unterschiede zwischen infizierten Geimpften und nicht Geimpften
+(The Guardian, 28.10.2021). Die Impfung führt nicht zu Antikörpern im Speichel oder auf der Rachenschleimhaut. Geimpfte können daher das Virus unbemerkt in sich tragen und weitergeben (mdr, 6.5.2021).
+Laut einer aktuellen Studie aus Holland ist die Virenlast vergleichbar: Während 85 Prozent der infizierten
+Ungeimpften ansteckend waren, waren es bei den Geimpften 68 Prozent – das ist kein grosser Unterschied
+(scienceORF, 25.8.2021) – jedenfalls keiner, der eine Diskriminierung oder blinden Glauben an die Impfung
+rechtfertigen würde. Christian Drosten bestätigt das: «Man hat aber eben keinen guten Schutz gegen die
+Übertragung. Das ist natürlich die grosse Last, die die Politik in allen Ländern, nicht zuletzt auch in Deutschland, in den kommenden Wochen verhandeln muss.» (ndr, 28.9.2021).
+19. Die Regierungen investierten 2020 weltweit 88,3 Milliarden Euro in Covid-19-Impfstoffe (businesswire,
+11.1.2021). Das entspricht rund neun Prozent des Weltpharma-Umsatzes in diesem Jahr (statista.com,
+10.9.2021). Pfizer machte im 1. Halbjahr 2021 einen Gewinn von 10,4 Milliarden US-Dollar (Pfizer 2021).
+BioNTech machte im 1. Halbjahr 2021 einen Gewinn von vier Milliarden Euro. Das ist zuviel an Profit und
+ökonomischer Macht. Trotzdem erhöhten BioNTech/Pfizer Mitte 2021 die Preise um satte 25 Prozent
+(Wirtschaftswoche, 13.9.2021). Diese Daten fördern kein Vertrauen.
+20. Was ich nicht verstehe: Wenn öffentliche Gesundheit das Ziel ist, wieso unterstützen die Regierungen das
+Profitstreben der Konzerne erst mit Milliardenförderungen, ohne danach Zwangspatente zu erlassen, damit
+möglichst alle Menschen, die es wünschen, geimpft werden können? In den meisten Ländern gab es bis in
+die 1970er Jahre gar keine Patente in der Medizin, in Ländern wie Indien bis zum WTO-Beitritt 1995 nicht,
+weil Gesundheit als ein Menschenrecht angesehen wurde. Selbst im WTO-Recht ist für Notfälle die ‹compulsory licence› vorgesehen. Ich frage, wenn eine Pandemie wie die aktu-elle keinen Notfall darstellt, was
+dann? Logisch wäre, dass in einer Pandemie automatisch das Patentrecht ausgesetzt würde, sonst entstünde ja der fatale Anreiz, sich in einer Pandemie auf Kosten der Allgemeinheit zu bereichern – durch die
+Beeinflussung von Parametern bei Zulassungsverfahren oder direkt der Erklärung einer Pandemie. Ungereimtheiten wie diese erschüttern mein Vertrauen in die Vorgangsweise der Regierungen. Wenn sie sich
+möglicherweise in einigen sensiblen Aspekten von der Pharma-Lobby beeinflussen lassen, warum dann
+nicht auch in anderen?
+21. Profitorientierte Pharmakonzerne sind immer wieder in schwere Kriminalfälle verwickelt und werden
+rechtskräftig verurteilt. Zuletzt einigte sich der Impf-Hersteller Johnson & Johnson gemeinsam mit drei
+Pharmahändlern auf einen Vergleich, für den sie zusammen 26 Milliarden US-Dollar bezahlen werden, J&J
+allein fünf Milliarden US-Dollar. Hintergrund: Zwischen 1999 und 2019 sind in den USA etwa eine halbe
+Million Menschen durch Überdosen von verschreibungspflichtigen Schmerzmitteln und illegalen Drogen
+ums Leben gekommen (ORF, 5.9.2021). Zum Vergleich: Seit Pandemiebeginn bis Mitte Oktober 2021 sind
+720.000 Menschen in den USA offiziell an Covid-19 verstorben (ourworldindata.org, 16.10.2021).
+Pfizer wurde bereits 2009 im ‹grössten Kriminalfall in der Geschichte des Gesundheitswesens› zur höchsten
+Strafe verurteilt, die jemals für ein Verbrechen verhängt wurde: 1,2 Milliarden US-Dollar. Zu-sammen mit
+weiteren Strafen und Vergleichskosten zahlte das Unternehmen insgesamt 2,3 Milliarden US-Dollar – wegen
+Betrugs über die Zulassung und Verwendung des entzündungshemmenden Mittels Bextra, des Antipsychotikums Geodon, des Antibiotikums Zyvox und des Antiepileptikums Lyrica (The United States Department of Justice, 2.9.2009). Einer der wichtigsten Vertragspartner der Pandemie-Staaten war 2009 der
+grösste Verbrecher in der Kriminalgeschichte der USA. Generalstaatsanwalt Tom Perrelli kommentierte, es
+handelte sich bei der Verurteilung um einen «Sieg der Öffentlichkeit über jene, die danach streben, Profit
+mit Betrug zu erwirtschaften». (The Guardian, 2.9.2009)
+
+
+-----
+
+Und das war beileibe nicht der einzige Fall. 10.000 Frauen klagten Pfizer wegen des Brustkrebsmittels
+Prempro, Pfizer zahlte 2012 für Vergleiche eine Milliarde US-Dollar. Weitere 3.000 Patient*innen klagten
+gegen das Unternehmen in Bezug auf das Psychopharmakum Chantix, bei vielen waren Selbstmordgedanken Folge der Einnahme. Pfizer reservierte im Jahr 2012 288 Mio. US-Dollar für den Rechtsstreit. Für einen
+Vergleich zu Protonix zahlte Pfizer 2013 55 Mio. US-Dollar. Mit Depo-Testosterone war Pfizer in einen
+Skandal zu Testosteron-Therapien verwickelt, in dem insgesamt 25.000 Menschen geklagt hatten. Weitere
+Klagen gab es zu Effexor, Zoloft, Eliquis und Lipitor (drugwatch.com, 17. 10. 2021). 1996 starben in Kenia
+elf von 200 Kindern, die das Meningitis-Mittel Trovan genommen hatten. Nach langen Prozessen erhielten
+vier Familien toter Kinder eine Entschädigung von zusammen 700.000 USD. Zudem zahlte Pfizer 35 Mio.
+US-Dollar in einen lokalen Gesundheitsfonds ein (BBC, 11.8.2011).
+Ich breche hier ab, aber ich denke, die gebrachten Beispiele zeigen eindeutig, wie stark die kriminelle
+Energie ist, die in diesen profitorientierten Pharmakonzernen steckt, und ich fände es geradezu fahrlässig,
+ihren neuartigen Produkten blind zu vertrauen.
+22. Die Gain of function-Research, deren Ziel es ist, Viren infektiöser und tödlicher zu machen, also Biowaf-fen
+zu entwickeln, müsste als kriminelle Handlung eingestuft und weltweit gebannt und verboten werden, ähnlich der Entwicklung von Atomwaffen. Immer wieder ist es schon bisher zu Laborunfällen ge-kommen – ein
+einziger kann eine globale Pandemie auslösen. Ich frage mich, warum die Gesundheitsminister hier praktisch untätig sind und das Thema nicht einmal diskutieren, obwohl diese Forschungsrichtung die Gesundheit der Menschheit aufs Höchste bedroht und bereits im Dezember 2013 nicht weniger als 56 Wissenschaftler*innen, darunter drei Nobelpreisträger*innen, die EU-Kommission öffentlich zum Handeln
+aufgefordert haben (Roland Wiesendanger, Uni Hamburg, 18.2.2021).
+23. Die EMA finanziert sich nach eigenen Angaben zu 86% durch Unternehmen aus dem Pharmabereich (EMA
+2021). Die Bill & Melinda Gates Foundation finanzierte die WHO 2018 mit 230 Mio. USD (USA: 280 Millionen, EU-Kommission 75 Mio. USD) und 2020 mit 375 Mio. USD (USA: 108 Mio., EU-Kommis-sion: 243
+Mio. USD) (WHO, 9.5.2019 und 7.5.2021). Eine einzelne private Stiftung engagiert sich mit einem Vielfachen
+des Beitrags der USA und der EU-Kommission? Wohl fühlen würde ich mich nur mit vollkommener Unabhängigkeit öffentlicher Prüf- und Steuerungsbehörden im Gesundheitsbereich.
+24. Üblicherweise haftet der Produkthersteller (Produkthaftungsgesetz, Arzneimittelgesetz, Bürgerliches Gesetzbuch). «In den Verträgen zwischen EU und Impfstoffherstellern haben sich allerdings die Vertragsstaaten verpflichtet, die Kosten zu übernehmen, wenn ein Hersteller für Impfschäden haften muss.» (BR24,
+25.8.2021). Ich frage mich, wie das sein kann. Das ist nicht nur unfair und ungerecht, sondern auch eine
+Verhöhnung des Rechtsstaates – wozu gibt es die o.g. Gesetze? Dass die Verträge teils geheim sind, verstört
+zudem. Das passt mit dem chronischen Solidaritäts-, Gesundheits- und Gemeinwohlappell der Regierungen
+so gar nicht zusammen. Im geleakten Vertrag mit Albanien ist zu lesen, dass a) die Geheimhaltung 10 Jahre
+betragen muss; b) der Staat für sämtliche Rechtskosten im Falle von Impfschäden aufkommen muss; c)
+die Abnahme auch dann zugesichert wird, wenn wirksame Medikamente auf den Markt kommen (infosperber, 8.8.2021). Solche dubiosen Geschäfte flössen mir kein Vertrauen ein. Dass gegenwärtig fünf EU-Abgeordnete die Veröffentlichung der Verträge vor dem EuGH einfordern (euobserver, 4.11.2021), spricht für
+sich.
+25. Pfizer sitzt in einer niederländischen Steueroase Capelle aan den Ijssel, wo es seinen jährlichen Umsatz um
+die 40 Milliarden US-Dollar und jährlichen Reingewinn von knapp 14 Milliarden USD in den letzten zehn
+Jahren erzielt und mit zuletzt nur 5 bis 6 Prozent effektiv versteuert. Dadurch entgehen der Allge-meinheit
+Milliarden an Steuereinnahmen (NL Times, 11.5.2021). Wer so diametral gegen das Gemeinwohl agiert,
+verliert mein Vertrauen auf jeder Ebene. Mein Gesundheitsverständnis ist ein ganz anderes, und Gesundheitsversorgung und -politik stelle ich mir ganz anders als pharmakonzern-zentriert vor.
+26. Dass es auch ganz anders ginge, zeigt das Beispiel des Arztes Jonas Salk, der die Impfung gegen Kinderlähmung entwickelte – und der Allgemeinheit schenkte. Zur Frage, wem das Patent gehöre, meinte er:
+«Well, the people, I would say. There is no patent. Could you patent the sun?» (NYT, 25.11.1990) (Youtube,
+30.1.2013). Wäre das nicht die solidarischste Lösung überhaupt?
+27. Wo sind die Medikamente? Obwohl ich von verschiedenen erfolgreichen Therapien gehört habe, ist in den
+Leitmedien davon praktisch nichts zu lesen. Erst seit kurzem ist ein Medikament von Merck in Diskussion
+gekommen. Hier sind Beispiele für andere Medikamente, von denen der Mensch nur ganz wenig erfuhr.
+Artemisinin: Teeanwendung in Madagaskar, die Todesrate liegt um einen Faktor 50 unter der EU – wieso
+wird das nicht des langen und des breiten diskutiert (Felber, Corona-Tagebuch, 18.8.2021)?
+Ivermectin: Die Entwickler*in des Wirkstoffes gegen diverse Parasiten hatte dafür den Medizinnobelpreis
+erhalten. In Indien wurde Ivermectin erfolgreich angewandt (The Indian Express, 12.5.2021). Ich selbst
+hörte von einem Münchner konfessionellen Krankenhaus, dass sie erfolgreich mit Ivermectin arbeiten. Die
+Ärztin und Gesundheitsberaterin für Nationale Gesundheitsbehörden und der WHO, Dr. Tess, hat 27 Studien zu Ivermectin in einer Metastudie zusammengefasst, mit sehr eindeutigen Ergebnissen (Dr. Tess,
+9.1.2021). Andere Expert*innen kamen nach Durchsicht von 14 Studien zu ganz an-deren Schlüssen (Popp
+et al., Cochrane Review, 28.7.2021). Offenbar tobt ein erbitterter Kampf im Hintergrund, der aktuell zu
+
+
+-----
+
+keiner Empfehlung durch die Gesundheitsbehörden geführt hat, die Europäische Arzneimittelagentur EMA
+warnt vor der Anwendung ausserhalb klinischer Studien (EMA, 22. 3. 2021). Ich hoffe, dass die EMA hier
+vollkommen unabhängig agiert. Neben der finanziellen Abhängig-keit von den Pharmakonzernen (Punkt
+23) gibt es auch personelle Verflechtungen mit der Pharma-lobby – so war etwa die aktuelle EMA-Vorsitzende Emer Cooke von 1991 bis 1998 Managerin bei der EFPIA, der europäischen Lobbyorganisation der
+pharmazeutischen Industrie (incl. AstraZeneca, Pfizer, Johnson & Johnson, Merck, GSK, Sanofi) (EMA,
+31.10.2021).
+Das RKI listet insgesamt 25 Medikamente auf, die für die Behandlung von Covid-19 in Frage kommen oder
+in Diskussion stehen. Davon sind 16 gar nicht zugelassen (darunter Ivermectin, Hydroxychloroquin oder
+Vitamin D) und sieben nur bedingt; Artemisinin scheint gar nicht auf. Gerade zwei Medikamente – Dexamethason und Remdesivir – sind als zugelassen aufgelistet (RKI, 20.10.2021). Die sehr restriktive Vorgangsweise im Vergleich zu den Impfungen fällt hier auf. Anstatt hier breit zu scannen und öffentlich zu diskutieren, wird nahezu ausschliesslich auf die Impfung gesetzt. In die Impfung flos-sen wie geschrieben 88,3
+Milliarden Euro Steuergelder, in Medikamente-Entwicklung gerade einmal 4,7 Milliarden Euro (businesswire, 11. 1. 2021).
+Wichtiges Detail in diesem Zusammenhang: Voraussetzung für die bedingte Zulassung der mRNA-Produkte
+ist, dass es ‹kein optimal geeignetes Medikament› gibt (AGES, 17. 10. 2021). Ob das der Hintergrund für
+den heftigen Streit zu Ivermectin ist, kann ich nicht beurteilen. Fest steht, dass es aus der Sicht der Impfkonzerne nicht nur vorteilhaft, sondern spielentscheidend ist, dass es offziell kein wirksames Medikament
+gegen Covid-19 gibt – dann gäbe es keine vorläufigen Zulassungen.
+28. Wie sieht es mit den traditionellen Impfungen (mit totem Virusmaterial) aus? Bisher haben die Totimpfstoffe der beiden chinesischen Pharmaunternehmen Sinopharm und Sinovac eine WHO-Notfallzulassung
+erhalten (dw.com, 16. 9. 2021), von Sinovac ist ein Antrag bei der EMA anhängig. Das österreichi-sche
+Unternehmen Valneva ist ebenfalls daran, eine Totstoffimpfung gegen Covid-19 zu entwickeln und hofft auf
+eine EU-Zulassung in der ersten Jahreshälfte 2022 (ORF, 7. 9. 2021). Das könnte ich mir prinzipiell vorstellen. Ich würde jedenfalls eine Totstoffimpfung einer mRNA-Technologie vorziehen. Die Regierungslinie, Auffrischungsimpfungen ausschliesslich mit mRNA-Stoffen durchzuführen (ORF, 17.8. 2021), verstärkt wiederum mein Misstrauen. Warum keine Vielfalt, warum alles auf eine Karte setzen?
+29. Das Fremdschutz-Argument ist für mich nicht stichhaltig. Denn wenn die Impfung ‹die einzige Lösung› ist,
+dann sind doch die Geimpften geschützt. Und es müssen nicht jene behelligt werden, die dieses pharmazeutische Produkt aus welchen Gründen auch immer nicht in ihren Körper spritzen lassen wol-len. Wie
+logisch ist es, die Bevölkerung mit Diskriminierung und Grundrechtseinschränkungen zur ‹einzigen Lösung›
+zu drängen und mit Schikanen zu erpressen, und dieser Lösung selbst gleichzeitig so wenig zu vertrauen,
+dass die Ungeimpften zum Schutz der Geimpften geimpft werden sollen? Das ist ein peinlicher Logikfehler,
+solche Fehler entstehen, wenn Politiker*innen ihre Ziele ändern. Hiess es am Beginn der Pandemie unmissverständlich, dass die Pandemie vorbei sei, wenn alle Menschen, die dies wünschten, eine Impfung bekommen hätten, geht es nun um etwas komplett anderes – was naturgemäss Widersprüche auslöst: Es geht
+weder um eine freie Impfentscheidung noch um Fremdschutz, sondern um eine möglichst hohe – und
+immer höhere – Impfrate. Dann sollten die Betreiber dies aber auch ehrlicherweise so (um)formulieren.
+(Das würde allerdings Folgefragen und weitere Zweifel auslösen.)
+Impfen zum Schutz Geimpfter (!) kann jedenfalls kein ernsthaftes Argument sein. Nur eine Logik über vier
+Ecken würde bedingt Sinn ergeben: Die Impfung wirkt gar nicht wie versprochen, deshalb müssen auch
+Geimpfte vor Infektion – durch Ungeimpfte – geschützt werden. Doch wie wir bei Punkt 18d ge-sehen
+haben, ist die Virenlast und Infektiosität nicht Geimpfter und Geimpfter in etwa gleich hoch, weshalb auch
+dieses um mehrere Ecken konstruierte Argument entfällt. Damit aber ist aber das Fremdschutz-Argument
+null und nichtig.
+30. Bei genauerem Hinsehen dreht sich das Argument erneut: Die Anzahl der ‹Ungeschützten› (weder ge-impft
+noch genesen) könnte so gross sein, dass sie – allein – eine Überlastung der Gesundheitsinfrastruktur bewirken könnten. Abgesehen von der von der Regierung unbeantworteten Frage, welcher Anteil der Bevölkerung denn immun ist – bekannt sind nur die Geimpften, nicht aber die Genesenen – stellt sich bei diesem
+neuen Argument zunächst die Frage: Sind die nicht gegen Covid-19 geimpften Menschen die einzigen, die
+ein Intensivbett benötigen könnten? Natürlich nicht. Sind sie die einzigen, die ein Intensivbett unberechtigterweise beanspruchen könnten? Nach dem offiziellem Narrativ, ja. Nur sie werden deshalb diskriminiert
+und gebrandmarkt. Doch werden Intensivbetten nicht genauso ‹unsolidarisch› und ‹unverantworlich› von:
+Kettenraucher*innen, Schnitzelfans, McDonald’s-Junkies, Coca-Cola- und Red-Bull-Abhängigen, Paragleiter*innen, Freikletter*innen und Millionen motorisierter Verkehrsteilnehmer*innen belegt? Wieso wird gegen sie nicht in gleicher Weise agitiert? Oder gegen Menschen, die nicht gegen Grippe geimpft sind oder
+gegen HPV und die auf die Intensivstation kommen? Einige Intensivbetten werden sogar von vollständig
+gegen Covid-19 Geimpften belegt, doch die waren ja qua Impfung weder unsolidarisch oder verantwortungslos – egal, in welchem Ausmass sie vor der Impfung ihre Gesundheit gefährdet und ihr Immunsystem
+geschwächt haben.
+
+
+-----
+
+Meine Sicht ist: Alle zusammen beanspruchen – und überlasten gegebenenfalls – die Intensivstationen, in
+schwankender Zusammensetzung. Eine einzige (aktuell auffällige) Gruppe herauszupicken und für die
+Überlastung verantwortlich zu machen, ist weniger eine konsistente Gesundheitspolitik als vielmehr eine
+Sündenbock-Strategie.
+‹Solidarität› von einer einzigen Betroffenengruppe zu fordern, und von allen anderen nicht, ist weder logisch
+noch gerecht. Solidarität im Sinne des kollektiven Vermeidens der Überlastung von Intensivstationen ist
+zum einen von uns allen gefordert. Der individuelle Beitrag kann darin bestehen, weniger zu rauchen, sich
+gesünder zu ernähren, Übergewicht oder Risikosportarten zu vermeiden, das Auto gegen ein Fahrrad einzutauschen oder sich gegen Grippe, Covid-19 oder HPV impfen zu lassen oder Medikamente zu nehmen oder
+Abstand zu halten usw. Jeder Beitrag zählt, und selbst wer keinen davon leistet, verliert weder die Grundrechte noch die Gleichbehandlung.
+Zum anderen kann Solidarität darin bestehen, dass die Zahl der Intensivbetten bzw. jener mit Invasivbeatmung erhöht werden. Dazu hatten die reichsten Industrieländer nun 1,5 Jahre Zeit. Es fragt sich, warum
+dieser Teil der öffentlichen Verantwortung nicht erfolgt ist. In Deutschland stehen aktuell plötzlich 4000
+Intensivbetten weniger zur Verfügung (ORF, 26.10.2021) – das ist hochgradig verantwortungslos! Warum
+wurde nicht der Pandemiebeginn, der Lockdown-Schock genützt, um sofort und massiv Gesundheitspersonal auszubilden, ausgebranntes oder in Rente gegangenes Pflegepersonal zurückzugewinnen (mit guten
+Konditionen) und die Bettenzahl aufzustocken – für die drohende Ausnahmesituation? Wie ist es zu erklären, dass der Staat, der sich zu allem bereit zeigte: Zur Einschränkung der Grundrechte, zum Shutdown
+der Wirtschaft, zu Milliardenhilfen für die Massnahmenbetroffenen (bei gleichzeitig steigenden Militärausgaben), es nicht zuwege gebracht hat, die Bettenausstattung der Spitäler zu verbessern? Nun wird aber just
+die angeblich begrenzte Bettenzahl als letztes und schlagendes Argument dafür herangezogen, dass die
+Pandemie trotz Impfung für alle, die sie wünschen, nicht vorbei ist, und es munter mit Grundrechtsbeschränkungen und Diskriminierung weitergeht. Es müsste der Grundsatz gelten: Nicht die Grundrechte
+werden an knappe Infrastruktur angepasst, sondern umgekehrt: Die Infrastruktur wird so aufgestockt, dass
+die Grundrechte geschützt bleiben!
+Stattdessen wird zum Halali auf einen Sündenbock geblasen: Schuld an der Lage sind die ‹Impfverweigerer›, die ‹Zauderer & Zögerer›, die eine ‹Pandemie der Ungeimpften› verursachen, und leider oft direkt unterstellend und pauschal verunglimpfend: Die rechtsextremen und verschwörungstheoretisierenden ‹Impfgegner›. Die Diffamierung und Ausgrenzung einer Minderheit ist keine Solidaritäts-, sondern eine Divide-etimpera-Aktion, genau das, was üblicherweise von den ‹Rechten› kommt.
+Solidarität kommt von ‹solidus›“ und heisst ‹zusammenhalten›, nicht auseinanderdividieren (lassen).
+Heute wird als ‹solidarisch› geframed, wer einer Meinung mit der Regierung (und der Pharmaindustrie) ist.
+‹Unsolidarisch› ist, wer dieses Narrativ und diese Politik hinterfragt, kritisiert oder Alternativen dazu anbietet.
+Unter der Überschrift ‹Solidarität› wird heute gespalten: Du bist falsch und unsolidarisch, wenn Du Dich
+nicht impfen lässt; ich bin richtig und solidarisch, wenn ich mich impfen lasse!
+Aus meiner Sicht wäre solidarisch und ‹links›: Egal, ob geimpft oder nicht, Du bist richtig, Du behältst Deine
+Würde, Deine Grundrechte und Du wirst nicht diskriminiert.
+Überraschenderweise wird in der Pandemie gerade von vielen ‹Linken› und ‹Grünen› die demokratische
+Grundlinie neu gezogen: Sie verläuft neuerdings zwischen geimpft (‹richtig›) und nicht geimpft (‹falsch›).
+Bisher verlief die rote Linie zwischen Schutz der Grundrechte und Gleichbehandlung (‹links›) und Beschneidung der Grundrechte und Diskriminierung (‹rechts›). Die Pandemie hat das politische Spektrum offensichtlich auf den Kopf gestellt.
+Gerade aber wenn es keinen Konsens in Bezug auf das Gesundheitsverständnis, die Verhältnismässigkeit
+der drohenden Gefahren und die Lösungen gibt, darf nicht eine Minderheit gezwungen werden, sich der
+Mehrheit zu unterwerfen – und gegen ihren Willen und unter Missachtung ihrer Grundrechte zur Selbstgefährdung oder Selbstbeschädigung (aus ihrer zu respektierenden Sicht) gezwungen werden. Nichtdiskriminierung und Grundrechte sind die letzten Anker der Demokratie. Sie müssen gerade im Krisen- und Zweifelsfall halten.
+Was ‹gerecht› – und damit auch solidarisch – ist, hat der ‹beeidete› Linke Ortwin Rosner in einem luziden
+Gedankenexperiment nach John Rawls auf den Punkt gebracht (Rosner, derstandard.at, 7.10.2021). Diejenigen, die gegenwärtig für Diskriminierung und Grundrechtseinschränkungen eintreten (und sei dies auch
+nur ein Nebeneffekt ihrer Gesundheitspolitik, die von anderen nicht geteilt wird), könnten die Perspektive
+wechseln und sich fragen, ob sie ihre Haltung in umgekehrter Situation immer noch aufrecht halten würden: Angenommen, die Impfung würde entgegen aller Hoffnung und Prognosen doch zu verbreiteten Langzeitwirkungen mit Krankenhausaufenthalten führen, was niemand ausschliessen kann, weshalb man das
+seriöserweise jetzt mitüberlegen sollte: Sollten dann auch diejenigen, die sich dann ‹falsch› entschieden
+haben, weil sie durch ihre persönliche Entscheidung das Gesundheitssystem be-/überlasten (wenn auch
+ebenso ungewollt wie diejenigen, die sich nicht impfen lassen), von der Behandlung ausgeschlossen, in ein
+
+
+-----
+
+Triage-Zelt auf den Parkplatz vor dem Krankenhaus verlagert werden und vielleicht sogar selbst für die
+Behandlungskosten aufkommen müssen? Ganz konkret diejenigen, die nicht zu den Risikogruppen zählen
+in der Bedeutung, dass ihre Alterskohorte keinem (signifikant) höheren Sterblichkeitsrisiko unterliegt als
+bei der Grippe, und deren Risiko, an Long Covid zu erkranken, nicht (signifikant) höher ist, als an Long Influenza zu erkranken?
+Ginge es nach der Zürcher Gesundheitsdirektorin Natalie Rickli und ihrem Verständnis von ‹Eigenverantwortung›, müssten Geimpfte eine Patient*innenverfügung unterschreiben, derzufolge sie auf eine Gesundheitsbehandlung und auf einen Spitalsaufenthalt verzichten, sollte dieser aufgrund von Langzeitfolgen
+durch die Impfung nötig werden: «Das wäre echte Eigenverantwortung.» (Blick, 1.9.2021).
+Als ‹Linker› (eine häufige Zuschreibung, ich verwende dieses Einordnungsschema prinzipiell nicht) wäre ich
+dagegen hier ebenso für die solidarische Lösung wie umgekehrt: Wem ein solches Pech wiederfährt, wird
+weder ‹geblamet›, ‹gebasht› oder ‹gecancelt› noch anders behandelt oder zur Kasse gebeten.
+Stattdessen bereiten wir uns als solidarischer Wohlfahrtsstaat endlich auf eine solche Notsituation vor und
+errichten mit jedem Jahr des Andauerns der Pandemie ein Intensivbett pro 10.000 bis 20.000 Einwohner*innen (Städte in der Grösse von Eisenstadt, Amstetten, Hallein, Kufstein oder Bregenz in Österreich;
+oder Traunstein, Montabaur oder Prenzlau in Deutschland). Ein Bett pro Stadt in dieser Grösse. Dann hätten
+wir in Österreich 1,5 Jahre nach Pandemiebeginn bereits 890 bis 1.345 zusätzliche Intensivbetten. In
+Deutschland wären es 8.000 bis 12.000 zusätzliche Betten – statt 4.000 weniger. Das ist ein grosser Aufwand, aber im Vergleich zu den bisherigen Pandemie-Massnahmen und ihren Folgen das geringere Übel
+(16 Autor*innen, Covid-19 ins Verhältnis setzen).
+Der Vorteil: Alle Zwangsmassnahmen und Diskriminierungen könnten beendet werden.
+Zum Argument, dass nicht das Geld, sondern die Pflegekräfte der Engpass seien: Pflegekräfte haben schon
+vor der Pandemie zu Tausenden w.o. gegeben, aufgrund der unerträglichen Arbeitslast, der schlechten Arbeitsbedingungen und der sich daraus ergebenden menschenunwürdigen Situation für viele Pflegebedürftige. Sie könnten mit einem attraktiven Rückholprogramm angesprochen werden: Deutlich geringere Arbeitszeit, bessere Bezahlung, keine Impfpflicht (Patient*innen, die sich nicht impfen lassen können, werden
+von freiwillig Geimpften behandelt) und dezentraler Ausbau der Infrastruktur, um die letzten Lebensjahre
+für viele Menschen würdevoller zu gestalten und auch um auf Krisenzeiten wie diese gewappnet zu sein.
+
+Fazit: Ich habe gute Gründe, mich derzeit nicht gegen Covid-19 impfen zu lassen. Ich informiere mich aktiv
+weiter und lerne täglich dazu. Und ich würde sehr gerne mit Menschen mit anderer Meinung im Gespräch
+bleiben. Gewaltfrei. Ohne Diskriminierung. Und ohne Beschneidung meiner Grundrechte. Darin würde ich
+eine stabile Demokratie erkennen.
+
+PS: Am Tag, an dem ich diesen Text fertigstellte, ereilte mich Covid-19. Sieben Tage später bin ich genesen,
+ohne Ärzt*in, ohne Krankenhaus, ohne Medikamente – abgesehen von vielen Aufgüssen Artemisia-Tee.
+Wüsste ich nicht aufgrund der Tests, dass es Covid-19 war, hätte ich diese Woche nicht von anderen Verkühlungen oder grippalen Infekten unterschieden. Nun trage ich als Genesener unversehens mehr zur kollektiven Immunität bei als eine Geimpfte* und habe den Staat dabei keinen Cent Steuergeld gekostet.
+_Quelle: https://www.nachdenkseiten.de/?p=77850_
+
+## Was wir aus der Corona-Seuche-Pandemie lernen können ... und müssen!
+_Kai Amos, Dienstag, 9.11.2021_
+
+Fortsetzung des Artikels ‹Was wir jetzt schon aus der Corona-Katastrophe lernen können› von Samstag, 18.
+4.2020.
+
+Dieser Artikel ist KEIN Aufruf, sich impfen oder nicht zu impfen zu lassen. Ob sich jemand impfen lässt
+oder nicht, muss jeder für sich selbst entscheiden.
+
+Dieser Artikel richtet sich an Geimpfte, Ungeimpfte, Vernunftmenschen, an die Toleranten, die andere Meinungen akzeptieren, Wissenschaftler, Ärzte, Menschen, die sich ihre eigene Meinung bilden möchten, selbst
+denken, sich informieren möchten, etc. aber letztendlich an alle Menschen dieses Planeten.
+Insbesondere wendet sich dieser Artikel aber an alle diejenigen, die andere zwingen möchten, sich impfen
+zu lassen, und an die Verschwörungswahnkranken, die die Corona-Seuche-Pandemie für eine Erfindung
+und/oder eine Verschwörung von Bill Gates, der Pharmaindustrie, etc. halten, die Menschheit auszurotten.
+
+Die Corona-Seuche-Pandemie wütet seit Januar 2019, offiziell seit Ende 2019/Anfang 2020. Seitdem ist
+viel passiert. Das alles aufzuzählen, würde den Artikel unnötig in die Länge ziehen, und ist nicht das Ziel.
+Was aber unbedingt zu erwähnen ist ist die Tatsache dass nichts getan wurde um die Corona-Seuche
+
+-----
+
+Pandemie im Keim zu ersticken, resp. nicht ausreichend getan wurde. Hätte man das Herunterfahren des
+öffentlichen Lebens im Frühjahr/Mitte 2020 durchgezogen, und zwar weltweit, wäre die Corona-SeuchePandemie jetzt Geschichte. Stattdessen wurde das öffentliche Leben zu früh wieder hochgefahren, so dass
+sich die Corona-Seuche ungehindert weiter ausbreiten konnte. Und sie hat fahrlässigerweise Millionen von
+Menschen das Leben und die Gesundheit gekostet. Auch wurde aus der Corona-Seuche-Pandemie und den
+halbwegs brauchbaren Massnahmen von der Menschheit nichts gelernt.
+Im Gegenteil. In völlig unvernünftiger, verantwortungsloser, menschenverachtender und diskriminierender
+Weise werden die Menschen terrorisiert, gezwungen und genötigt, sich mit Impfstoffen impfen zu lassen,
+für die keinerlei Beweise für deren Wirksamkeit, Sicherheit und Nützlichkeit vorliegen. Währenddessen
+kommen aber immer mehr Berichte, Studien, etc. auf, die das Gegenteil beweisen. Menschen sterben an
+den unsicheren und nicht getesteten Impfstoffen oder werden krank. Im günstigsten Fall haben die Impfstoffe einfach keine Wirkung. Und trotzdem wird nach dem Prinzip der Vogel-Strauss-Politik der Kopf in
+den Sand gesteckt, die Realität ignoriert, und die Menschen werden immer mehr terrorisiert, sich impfen
+zu lassen und wenn sie das nicht wollen, werden sie diskriminiert und zu Menschen zweiter Klasse, wenn
+nicht sogar zu Nichtmenschen, degradiert. Das gab es in der deutschen resp. Geschichte der Menschheit
+schon einmal und was daraus wurde, ist allgemein bekannt. Offenbar wurde nichts aus der Geschichte
+gelernt. Interessanter- oder erschreckenderweise sind diejenigen, welche von sich behaupten, sie hätten
+aus der Geschichte gelernt auch jenige, welche für einen Impfzwang eintreten.
+
+#### Vernünftig wäre stattdessen:
+ Maske zu tragen, Abstand zu halten, nur die wichtigsten Erledigungen vor Ort zu machen, das Herunterfahren des öffentlichen Lebens und eine zweckdienliche Forschung zur Herstellung eines wirklich brauchbaren und sicheren Impfstoffes!
+ Dieser Artikel ist ein Aufruf zu
+ Vernunft und Toleranz offener, sachlicher und zweckdienlicher Diskussion über Fakten und Tatsachen statt Ideologie und sich gegen Ungeimpfte und Geimpfte aufhetzen zu lassen!
+
+## Katholische Schuljugendliche sterben nach Impfaktion
+
+_uncut-news.ch, November 8, 2021_
+
+NEWCASTLE-UNDER-LYME, England (ChurchMilitant.com) Eine katholische Schule in der Erzdiözese Birmingham weigert sich zu sagen, ob der Tod von zwei ihrer Schüler mit der COVID-19-Impfung zusammenhä t di i R h i M i f kti fü J dli h b i ht d
+
+
+-----
+
+Garrett Murray, der stellvertretende Schulleiter des St. John Fisher Catholic College in Newcastle-underLyme, bittet die Menschen eindringlich, ‹nicht zu spekulieren, insbesondere nicht in den sozialen Medien›
+über den plötzlichen Tod von Mohammed Habib (Klasse 10) und Harry Towers (Klasse 11).
+Habib starb am 24. Oktober, Towers eine Woche später am 30. Oktober in Stoke-on-Trent, einer Stadt in
+Mittelengland, die historisch für ihre Töpferwaren und Keramik bekannt ist. In England sind die Schüler der
+Jahrgangsstufe 10 14–15 Jahre alt und die Schüler der Jahrgangsstufe 11 15–16 Jahre alt.
+Eine der Schule nahestehende Quelle sagte ‹Church Militant›, dass Habib an einem Herzinfarkt und Towers
+an einem tödlichen Gehirntumor gestorben sei. Beide Erkrankungen wurden mit der Impfung in Verbindung
+gebracht, wobei Myokarditis – eine Herzentzündung – in etwa 1 von 5.000 Fällen bei geimpften Jungen im
+Alter von 12–15 Jahren auftritt.
+
+**Bestattungsunternehmer schlägt Alarm**
+«Kinder sterben im ganzen Land, wie ich es vorausgesagt habe», sagte der Bestattungsunternehmer John
+O’Looney aus Milton Keynes gegenüber ‹Church Militant›. «Ich habe meinem Parlamentsmitglied mehrmals
+eine E-Mail geschrieben, ich habe auch Boris Johnson und sogar den obersten Gerichtsmediziner von England angeschrieben.»
+«Im ganzen Land sterben Kinder, wie ich es vorausgesagt habe.» beklagte O’Looney:
+«Sie reagieren nicht, weil sie mitschuldig sind. Das ist Entvölkerung im globalen Massstab. Ich habe gesagt,
+dass die experimentelle Gentherapie zu Todesfällen führen würde – Todesfälle, die bei Kindern und Erwachsenen auftreten würden. Diese Todesfälle sind nun eingetreten. Ich sehe die Lügen und Todesmuster aus
+erster Hand. Jetzt melden sich auch andere in meinem Beruf zu Wort. Sie sind alle sehr verängstigt.
+Seit vielen Monaten warne ich vor den Lügen rund um COVID und den grossen Anstrengungen, die unternommen werden, um die Menschen zu zwingen, zu erpressen, zu belügen und ihnen Angst zu machen,
+damit sie sich eine Spritze geben lassen. Diese Leute (unsere Machthaber) sind sich dessen völlig bewusst.»
+O’Looney fügt hinzu, sein einziger Trost sei, «dass Gott sie für das Böse, das sie anderen antun, richten
+wird. Ich bete täglich dafür, dass er dies sehr bald tut».
+
+**Zunahme von Todesfällen bei Kindern ignoriert, geleugnet**
+Habib und Towers starben während der Semesterferien nach einer Massenimpfungsaktion des britischen
+National Health Service (NHS) im Shelton Primary Care Centre am 26. August.
+Zahlreiche Jugendliche standen Schlange, um sich von Pfizer impfen zu lassen, darunter auch die 17-jährige Sayen, eine Schülerin des St. John Fisher Catholic College. Sayens Mutter Amanda Masterson erklärte
+gegenüber den Medien, sie habe auf eine SMS von ‹Hol dir den Impfstoff› reagiert, in der für eine ‹begehbare
+Klinik heute› geworben wurde.
+Stew Peters untersucht den Interessenkonflikt zwischen FDA-Mitgliedern und Pfizer bei der Genehmigung
+des Impfstoffs für Kinder.
+In der ersten Augustwoche begann der NHS damit, 16- und 17-Jährige in ganz England zur Impfung zu
+überreden. Einige Tage später eröffnete der staatliche Gesundheitsdienstleister in ganz England Anlaufstellen, an denen sich Kinder über 12 Jahren gegen das Virus impfen lassen können.
+Seitdem hat das Office of National Statistics (ONS) «einen signifikanten Anstieg der Todesfälle unter Jugendlichen im Vergleich zum Fünfjahresdurchschnitt verzeichnet, wobei in einigen Wochen ein Anstieg von
+bis zu 125% zu verzeichnen war».
+
+**Die Todesfälle nach der Impfung sind bei Kindern gering, aber nicht zu vernachlässigen.**
+Die überstürzte Pfizer-Impfstudie ergab, dass geimpfte Kinder ein fast sechsmal höheres Risiko hatten,
+während des zweimonatigen Beobachtungszeitraums ein schweres unerwünschtes Ereignis zu erleiden, als
+Kinder, die nicht geimpft wurden.
+Der die britische Regierung beratende Gemeinsame Ausschuss für Impfungen und Immunisierung (Joint
+Committee on Vaccination and Immunization, JCVI) empfahl daraufhin, Kinder über 12 Jahren nicht zu
+impfen, und stellte fest, dass es ‹zunehmend stichhaltige Beweise für einen Zusammenhang zwischen der
+Impfung mit mRNA-COVID-19-Impfstoffen und Myokarditis› gebe.
+Unter dem Druck der Regierung setzten sich die vier Chefärzte des Vereinigten Königreichs über die Empfehlung des JCVI hinweg und betonten, dass ‹die wichtigste (Entscheidung über eine Impfempfehlung) in
+dieser Altersgruppe die Auswirkungen auf die Erziehung› seien.
+Britische Lokalmedien berichteten im Oktober über mehrere ‹plötzliche› Todesfälle in England, darunter
+ein 11-jähriges Mädchen, das am Moat Community College in Leicester einen tödlichen Herzanfall erlitt.
+Eine Schülerin der Jahrgangsstufe 10 der Springwood High School in Kings Lynn, Norfolk, soll ‹im Schlaf›
+gestorben sein, und ein Mädchen der Jahrgangsstufe 12 der King John School in Essex soll ‹unerwartet im
+Schlaf zu Hause› gestorben sein.
+Dr. Michael Head, Senior Research Fellow an der Universität Southampton, behauptet: «Es sind keine Todesfälle bei britischen Teenagern bekannt, die durch die COVID-19-Impfstoffe verursacht wurden.»
+
+
+-----
+
+**Studien an Kindern sind fehlerhaft, sagt die Forschung**
+Eine von Experten begutachtete Studie in Toxicology Reports kam jedoch zu dem Schluss, dass die Todesfälle nach der Impfung bei Kindern gering, aber nicht zu vernachlässigen sind.
+«Klinische Studien für diese Impfungen waren sehr kurzzeitig (einige Monate), die Stichproben waren nicht
+repräsentativ für die Gesamtbevölkerung, und für Jugendliche/Kinder hatten sie aufgrund ihres geringen
+Umfangs eine geringe Vorhersagekraft», warnten die Forscher.
+Wie eine im September durchgeführte Umfrage unter 28’000 Schülern im Alter von 9 bis 18 Jahren in
+England ergab, ist die Durchimpfungsrate bei den unter 18-Jährigen gering. Die Forscher fanden heraus,
+dass nur 51% der 13-Jährigen bereit waren, sich impfen zu lassen, verglichen mit 78% der 17-Jährigen.
+‹Church Militant› hat den stellvertretenden Schulleiter Garrett Murray, den Erzbischof von Birmingham Bernard Longley, den Diözesandirektor für Bildung Adam Hardy und die Verantwortlichen für Pastoral und
+Verhalten in den Klassen 10 und 11 kontaktiert, aber bis Redaktionsschluss keine Antwort erhalten.
+_QUELLE: CATHOLIC SCHOOL TEENS DIE AFTER VACCINE DRIVE_
+_Quelle: https://uncutnews.ch/katholische-schuljugendliche-sterben_
+
+## Es soll eine Endlosschleife werden:  ‹Booster› für alle sechs Monate nach Impfung
+_RT Deutsch, Fr, 05 Nov 2021 11:40 UTC_
+
+_Jens Spahn_
+_© www.globallookpress.com Kay Nietfeld / dpa_
+
+Der geschäftsführende Bundesgesundheitsminister Jens Spahn (CDU) ist hier am 3. November bei einer
+Pressekonferenz in Berlin zu sehen.
+Seit Wochen wird über die dritte Impfung, also den ‹Booster› debattiert. Nun soll allen empfohlen werden,
+was anfänglich lediglich geimpften Senioren und immungeschwächten Menschen galt. Die dritte Impfung
+gegen das Coronavirus zur Auffrischung solle ein halbes Jahr nach einer zweiten Impfung folgen.
+Alle, die vor mindestens sechs Monaten vollständig gegen SARS-CoV-2-Virus geimpft worden wären, sollen
+nun eine Auffrischungs-Impfung angeboten bekommen. Darüber sind sich nun der geschäftsführende Bundesgesundheitsminister Jens Spahn (CDU) und die Ärzteverbände einig. Zunächst sollen Ältere, medizinisches Personal und Personen mit Vorerkrankungen einen sogenannten ‹Booster› erhalten. Die Ständige
+Impfkommission (STIKO) empfiehlt die Impfverstärkung unter anderem vorerst jedoch ab 70 Jahren Lebensalter.
+Gegenüber der Nachrichtenagentur dpa erklärte der Leipziger Epidemiologe Markus Scholz:
+«Die geimpften Risikogruppen sind jetzt wieder gefährdet, da muss man aufpassen.»
+Deshalb brauchen Menschen über 70 Jahre jetzt dringend einen ‹Booster›, und auch für alle anderen sei
+eine solche Auffrischung sinnvoll, so der Epidemiologe weiter. Nach Angaben des Robert Koch-Instituts hatten sich bislang bereits mehr als 2,3 Millionen Menschen in Deutschland für eine dritte Impfung gegen das
+Coronavirus entschieden.
+Am Freitag setzten die Gesundheitsminister der Bundesländer mit dem Bundesgesundheitsminister als
+ständigem Gast in Lindau am Bodensee ihre Beratungen über Massnahmen zur Corona-Bekämpfung fort.
+Der Vorsitzende der Gesundheitsministerkonferenz der Bundesländer (GMK), turnusmässig Bayerns Ressortchef Klaus Holetschek (CSU), sprach sich ebenfalls für die dritte Spritze aus. Man habe sich verständigen können, die Auffrischungsimpfungen ‹in einer grösseren Art und Weise› durchführen zu können. Daten
+aus Israel belegten, dass es möglich sei, mit diesem Mittel die Corona-Welle zurückdrängen zu können. Es
+
+
+-----
+
+müsse aber gewährleistet werden, dass zwischen den Impfterminen für die zweite und die dritte Impfung
+sechs Monate vergangen wären.
+In Israel wird seit August die ‹Booster›-Spritze verabreicht. Nach offiziellen Angaben hätten bereits vier von
+neun Millionen Israelis ihre dritte Impfung erhalten. In der Altersgruppe der 60- bis 90-Jährigen seien es
+sogar 80 Prozent. Dass die ‹Booster-Kampagne› so schnell angelaufen war, könnte vor allem einen Grund
+haben: In Israel genügt eine Zweifach-Impfung, bei der der zweite Termin bereits länger als sechs Monate
+zurückliegt, nicht mehr für einen offiziell verordneten gültigen sogenannten ‹Grünen Pass›. Fehlt er, gibt es
+keinen Zutritt etwa ins Restaurant oder Kino ohne einen aktuellen Corona-Test, der auch in Israel für alle
+Bewohner ab zwölf Jahren mittlerweile kostenpflichtig ist. Erst mit einer dritten Dosis wird ein ‹Grüner Pass›
+gültig.
+In Deutschland gilt bislang immer noch, dass man zwei Dosen der bedingt zugelassenen Impfstoffe von
+BioNTech/Pfizer, Moderna oder AstraZeneca braucht, um als ‹vollständig geimpft› zu gelten. Beim Impfstoff
+von Johnson & Johnson genügt eine Dosis. Das digitale Impfzertifikat hat derzeit hierzulande eine Gültigkeitsdauer von 12 Monaten. Ob diesbezüglich bald etwas geändert werden soll – wie etwa nach dem Vorbild
+in Israel – bleibt abzuwarten.
+_Quelle: https://de.sott.net/article/35355-Es-soll-eine-Endlosschleife-werden-Booster-fur-alle-sechs-Monate-nach-Impfung_
+
+## Wie lange hält die impfstoffbasierte Immunität an?
+_uncut-news.ch, November 9, 2021_
+
+(Der Stockholmer Klinikarzt berichtet über die Vorpublikation einer schwedischen Studie, die Aufschluss
+nicht über die erwartete oder erhoffte, sondern über die tatsächliche Dauer des Impfschutzes gibt.)
+Auszug: Ziel der Studie war es, festzustellen, wie wirksam die Impfstoffe längerfristig (d.h. nach mehr als
+ein paar Monaten) vor Covid schützen. (…) Wie zu erwarten war, schützten die Impfstoffe etwa zwei Monate
+nach der Impfung sehr wirksam vor symptomatischen Covid-Viren. Das haben die randomisierten Studien
+gezeigt, und das ist der Grund, warum die Impfstoffe für die Verwendung zugelassen wurden.
+Insgesamt betrug die Verringerung des relativen Risikos 31–60 Tage nach der Impfung 89%. Nach diesen
+ersten zwei Monaten nahm die Wirksamkeit jedoch rasch ab. Nach vier bis sechs Monaten verringerten die
+Impfstoffe das relative Risiko einer Infektion nur noch um 48 %! (…)
+Wenn wir weiter als sechs Monate zurückgehen, werden die Dinge noch deprimierender.
+Nach neun Monaten bietet der Impfstoff von Pfizer überhaupt keinen Schutz mehr gegen symptomatisches
+Covid-19. Leider werden für den Moderna-Impfstoff aufgrund der geringen Zahl der Personen, für die diese
+Daten derzeit vorliegen, keine Neunmonatsdaten angeboten, aber nach sechs Monaten war die Fähigkeit
+des Moderna-Impfstoffs, symptomatisches Covid-19 zu verhindern, auf nur noch 59% gesunken. Die Wirksamkeit des Moderna-Impfstoffs nimmt also zu jedem gemessenen Zeitpunkt kontinuierlich ab, ohne dass
+es Anzeichen für eine Abflachung gibt. (…) Was können wir also schlussfolgern?
+Die Impfstoffe sind viel weniger wirksam als ursprünglich angenommen, und die Wirksamkeit nimmt rasch
+ab. Vor diesem Hintergrund ist die Vorstellung, dass es den Ländern möglich sein wird, sich selbst gegen
+die Pandemie zu impfen, eindeutig unsinnig. Die einzige Möglichkeit, die Pandemie zu beenden, besteht
+darin, dass sich genügend Menschen infizieren und eine natürliche Immunität entwickeln, so wie es bei
+allen früheren Pandemien mit Atemwegsviren der Fall war.
+_QUELLE: COVID: HOW LONG DOES VACCINE BASED IMMUNITY LAST?_
+_Quelle: https://uncutnews.ch/wie-lange-haelt-die-impfstoffbasierte-immunitaet-an_
+
+## Freudscher Versprecher des CDC-Direktors: «Wir kennen die Menschen, die wegen dieses Impfstoffs sterben …»
+_uncut-news.ch, November 9, 2021_
+
+_Rochelle Walensky_
+
+
+-----
+
+CDC-Direktorin Rochelle Walensky ist während eines Live-Interviews ein peinlicher Freudscher Versprecher
+unterlaufen, als sie versehentlich Todesfälle durch Covid-19-Impfstoffe erwähnte, bevor sie sich schnell korrigierte.
+Walensky ist während eines Interviews mit PBS News Hour letzten Monat ein Fehler unterlaufen. «Unsere
+Sterblichkeitsraten sind zu hoch. Wir wissen Folgendes: Wir wissen, dass Menschen wegen dieses Impfstoffs
+sterben», sagte die Direktorin des US National Institute of Public Health, schüttelte dann aber den Kopf und
+korrigierte sich. «Damit ist die Wahrscheinlichkeit, an einer Krankheit zu sterben, 11-mal höher, wenn sie
+nicht geimpft sind.»
+Belasten die vielen nicht gemeldeten Todesfälle durch die Impfstoffe langsam Walenskys Gewissen?
+Beginnt ihr Gewissen zu nagen? In den Vereinigten Staaten wurden bis zum 29. Oktober fast 20’000 Todesfälle nach dem Corona-Impfstoff an die Datenbank für unerwünschte Reaktionen VAERS gemeldet.
+Während die CDC, die FDA, die Regierung Biden und die amerikanischen Medien Todesfälle im Zusammenhang mit dem Impfstoff kollektiv ignorieren, haben andere Länder wie das Vereinigte Königreich und Australien inzwischen eingeräumt, dass einige Todesfälle direkt durch Covid-Injektionen verursacht wurden.
+_QUELLE: SLIP OF THE TONGUE? CDC DIRECTOR SAYS “PEOPLE DYING FROM VACCINE” BEFORE QUICKLY CORRECTING_
+_HERSELF_
+_Quelle: https://uncutnews.ch/freudscher-versprecher-des-cdc-direktors-wir-kennen-die-menschen-die-wegen-dieses-impf-_
+_stoffs-sterben/_
+
+## Gute Nachrichten: Bidens Impfverordnung fällt in sich zusammen!
+_uncut-news.ch, November 9, 2021_
+
+Ronald Ernest ‹Ron› Paul ist ein US-amerikanischer Arzt und Politiker. Er ist Mitglied der Libertarian Party
+und war zwischen 1976 und 2013 als Republikaner Abgeordneter im Repräsentantenhaus der Vereinigten
+Staaten.
+Bidens Impfverordnung scheint zu scheitern, bevor sie überhaupt in Kraft getreten ist. Von Ersthelfern über
+Lkw-Fahrer bis hin zu allen, die dazwischen liegen, ist die Botschaft klar: Viele Tausende sind eher bereit,
+ihren Arbeitsplatz zu verlieren, als sich einer medizinischen Behandlung zu unterziehen, die sie nicht wollen.
+Sie haben ein Druckmittel, und sie nutzen es. Wir sollten sie unterstützen.
+Die Lebensmittelregale sind leer, Schiffscontainer treiben weiterhin vor der Küste, Feuerwachen in New
+York sind geschlossen, der Sheriff von Los Angeles County warnt, dass mitten in einer Verbrechenswelle
+die Hälfte seiner Hilfssheriffs kündigen oder entlassen werden könnte. Die Fluggesellschaften berufen sich
+auf nicht vorhandene ‹Wetterprobleme›, um die Tatsache zu entschuldigen, dass ihre Angestellten gegen
+die erzwungene Covidspritze rebellieren.
+Das Land steht am Rande des wirtschaftlichen Abgrunds, und die Regierung Biden setzt noch einen drauf.
+Die Frage ist nur, wie weit der Präsident bereit ist, seine Partei und seine eigenen Zustimmungswerte in
+den Abgrund zu ziehen, um der Bevölkerung weiterhin einen verfassungswidrigen, zutiefst unpopulären
+und durch und durch tyrannischen Zwangsimpfstoff aufzudrängen.
+Wenn der Impfstoff einen hohen Grad an Immunität gegen das Virus bieten würde, der im Laufe der Zeit
+nicht nachlässt, wäre es vielleicht sinnvoll, die Menschen zu ermutigen, sich impfen zu lassen – wobei eine
+experimentelle Technologie zum Einsatz kommt –, auch wenn eine Zwangsimpfung immer noch unmoralisch und illegal wäre.
+Aber Bidens eigene hochrangige Gesundheitsbeamte wie CDC-Direktor Wallensky sagen uns seit August,
+dass die Impfung nicht vor einer Ansteckung mit dem Virus schützt und die Übertragung des Virus nicht
+verhindert. Es handelt sich also um keinen ‹Impfstoff› im Sinne der Definition dieses Begriffs. Aus diesem
+Grund hat die CDC selbst im September ihre offizielle Definition des Begriffs ‹Impfstoff› geändert, um den
+Begriff ‹Immunität› auszuschliessen. Die Täuschung ist so durchsichtig.
+
+
+-----
+
+Es heisst, man müsse sich impfen lassen, weil es eine schwere Erkrankung durch das Virus verhindern könne. Aber wir wissen, dass es viele andere Dinge gibt, die ernsthafte Erkrankungen durch das Virus verhindern können. Die Medienpersönlichkeit Joe Rogan wurde weithin belächelt, weil er Ivermectin und andere
+Medikamente und Verfahren zur Behandlung seiner Covid-19-Erkrankung einsetzte. Aber es scheint funktioniert zu haben. Auch der legendäre Quarterback der Green Bay Packers, Aaron Rodgers, behandelte
+seine Covid-Erkrankung erfolgreich mit Ivermectin und anderen Verfahren. Obwohl er jetzt eine natürliche
+Immunität gegen das Virus besitzt, wurde er von den Mainstream-Medien angegriffen, weil er Faucis Forderungen nicht befolgt hat. Erfolg bedeutet nichts. Nur Gehorsam zählt.
+Eine neue Studie über die Wirksamkeit der Covid-Impfung ist keine gute Nachricht für die Regierung Biden.
+In der am 4. November in der Fachzeitschrift Nature veröffentlichten Studie beobachteten Forscher
+800.000 US-Veteranen sechs Monate lang, nachdem sie die Spritze erhalten hatten. Zwischen März und
+November sank die Wirksamkeit von Moderna von 85 Prozent auf 58 Prozent – nur wenig besser als ein
+Münzwurf. Bei der Zweifach-Impfung von Pfizer/BioNTech sank die Wirksamkeit von 87 Prozent auf 45
+Prozent und bei Johnson & Johnson von 86 Prozent auf 13 Prozent!
+Die Washington Times schrieb über die wichtige neue Nature-Studie: «Wenn man die natürliche Immunität
+mit einbezieht, könnte man zu dem Schluss kommen, dass diese Impfstoffe nahezu wertlos sind.»
+Warum also verfolgt die Regierung diese Politik der verbrannten Erde in Bezug auf Impfvorschriften? Vielleicht sollten wir uns ansehen, wie viele Lobbyisten Big Pharma auf dem Capitol Hill hat. Vielleicht sollten
+wir uns auch die Drehtür zwischen der FDA, der CDC und Big Pharma ansehen. Das Wort ist ‹Korruption›,
+und wenn die Datenbank der CDC mit den Nebenwirkungen korrekt ist, werden dadurch Tausende von
+Amerikanern getötet. Bleiben Sie standhaft und widersetzen Sie sich der Verordnung!
+_UELLE: GREAT NEWS: BIDEN’S VACCINE MANDATE IS FALLING APART!_
+_ÜBERSETZUNG: ANTIKRIEG_
+_Quelle: https://uncutnews.ch/gute-nachrichten-bidens-impfverordnung-faellt-in-sich-zusammen/_
+
+## Die Impfquote ist plötzlich völlig egal Der Bann ist gebrochen: Freie Bahn für totale Widersprüche
+Stefan Millius am 09. November 2021
+
+«Jede Impfung zählt», sagt Bundesrat Alain Berset. Impfquote? Nebensächlich. Nein, das reicht nicht, wir
+brauchen alle anderen Massnahmen, sagt das Bundesamt für Gesundheit. Der gesunde Menschenverstand
+jault wie ein getretener Hund.
+Die gross angekündigte, 100 Millionen Franken schwere Impfwoche des Bundes ist ein veritabler Rohrkrepierer. Zum ersten Konzert der Schweizer Musikszene erschien ein Fünftel der angemeldeten Besucher gar
+nicht erst, die Impfung verpassten sich gerade mal 25 von 400. Das Impfdorf im Hauptbahnhof Zürich
+avancierte zum Seniorentreff für die Booster-Impfung. Notfallmässig wird dieses Angebot nun eingestellt,
+weil es nicht die Idee war. Die Erstimpfungen, das eigentliche Ziel? Kaum messbar. So viele Steuergelder
+für nichts wurden selten in so kurzer Zeit verbrannt. Man würde sich wünschen, Bundesräte müssten mit
+ihrem Privatvermögen für derlei verordneten Unsinn haften. Dann wären sie vielleicht zurückhaltender.
+Und nun das: Um die Fallzahlen (die nichts mit Erkrankungen oder der Belegung der Intensivstationen zu
+tun haben) zu senken, reiche eine höhere Impfquote nicht, liess sich heute Virginie Masserey vom Bundesamt für Gesundheit vernehmen. 3G brauche es weiterhin unbedingt, 2G (noch) nicht. Diese Massnahme,
+2G, spart man sich vermutlich für nach dem 28. November auf. Sobald das Stimmvolk unter dem Eindruck
+der allgemeinen Panikmache Ja gesagt hat zur Neuauflage des Covid-19-Gesetzes, kann man aus vollen
+Rohren schiessen. Und selbst das durchsetzen. Weil dank einem Dutzend ‹Kann›-Formulierungen der Bundesrat bei einem Ja freie Bahn für fast alles hat.
+Natürlich wussten wir das alle schon immer, weil man inzwischen die Aussagen des Bundesrats nur um
+180 Grad drehen muss, um die Wahrheit zu entschlüsseln. Zuerst hiess es, die Normalität werde hergestellt,
+wenn alle Impfwilligen sich die Spritze haben geben lassen. Danach reichte auch das nicht mehr, Unwillige
+mussten mit allen Mitteln – kostenpflichtige Tests und behördentreue Musiker – überzeugt werden. Und
+wenn das durch ist, wird es eben heissen, auch 80, 85 oder 90 Prozent Geimpfte reichen nicht.
+Wir hatten noch nie einen so dynamischen Bundesrat wie heute: Die Ziele werden im Tagestakt neu definiert. Das Motto lautet: Was interessiert mich mein Geschwätz von gestern?
+Natürlich hat die Impfquote nichts mit der Lösung des Problems zu tun. Sonst würde das Impfvorbild Dänemark nun nicht umschwenken und wieder Massnahmen einführen, weil die Fallzahlen zunehmen. Die Geimpften, nur scheinbar ‹ungefährlich›, sorgen dank den Privilegien, die man ihnen schenkt, munter für die
+Weiterverbreitung des Virus. Die sicherste Variante, der Test, der wirklich belegt, dass man den Virus nicht
+intus hat, wird in immer mehr Ländern herabgestuft zum Nichts. Ginge es um die Volksgesundheit, würde
+dieser Wahnsinn abgestellt. Der Test wäre das Mass aller Dinge. Denn nur wer getestet ist, ist ‹sicher›.
+
+
+-----
+
+Aber das war ja nie das Ziel. Es ging immer um möglichst viele Geimpfte und eine lückenlose Erfassung
+der Bevölkerung via Zertifikat. Was natürlich niemand so sagt, aber offensichtlich ist.
+Bei der Gesamtbetrachtung des Bundes kommt unter anderem wieder die Ostschweiz an die Kasse. Diese
+Impfverweigerer, die zu hohen Fallzahlen führen, furchtbar! Nur hat man veritable Mühe, das Horrorszenario aufgrund unseres Landesteils zu belegen. Denn in den Spitälern, insbesondere auf den Intensivstationen,
+herrscht bei uns tiefste Beschaulichkeit. Nichts geschieht. Schon gar keine Überlastung. Und die soll ja angeblich das Problem sein. Wen interessieren die Fallzahlen, dieses seit Ewigkeiten demontierte Kriterium
+ohne jede Relevanz?
+Man will angeblich das Gesundheitssystem vor dem Implodieren schützen, richtet sich aber nach den Fallzahlen von mehrheitlich symptomlosen, sich bester Gesundheit erfreuenden Leuten. Die Fälle sind das
+Mass aller Dinge. Obwohl sie weit weg sind von einer Spitalbehandlung. Obwohl sie zu keinen Problemen
+führen. Wir sprechen nach wie vor von einem Virus, dass über 99 Prozent der Betroffenen weitgehend unbehelligt lässt. Das wissen wir seit Tag 1, wir sprechen nur nicht mehr davon.
+Es herrscht die totale Willkür. Wenn nicht eintrifft, was prognostiziert wird, erfindet man einfach eine neue
+Kategorie, um die Apokalypse zu belegen. Die Impfung ist der ‹Game changer›? Das war sie, bis sie von der
+Realität eingeholt wurde. Dass die Impfkönige unter den Nationen neue Höchststände schreiben bei den
+Fallzahlen, beispielsweise Grossbritannien und Israel, und damit eindrücklich belegen, dass die Impfquote
+rein gar nichts mit dem Verschwinden des Virus zu tun hat, wird einfach übergangen. Man lässt es in der
+Schweiz sogar als nette Geste gegenüber der Bevölkerung wirken, dass bis auf Weiteres ‹nur› 3G gilt und
+nicht 2G. «Si alli so nett», hätte Mani Matter dazu gesagt. Nur dass die Nettigkeit nicht auf ewig ist. Nur
+damit man letzteres dann später einführen kann, nachdem man eine neue Kennziffer erfunden hat, die das
+Drama belegen soll und eine Verschärfung nötig macht.
+Es ist der nackte Irrsinn. In echten Krisen bemüht sich eine Regierung, der Bevölkerung Ruhe zu vermitteln.
+Denn Panik ist ein Verstärker einer echten Notlage. Wir erinnern uns wehmütig an Winston Churchill. Über
+seinem Land herrschte das Blitzgewitter von Bomben, und er vermittelte nur eines: Stärke, Zuversicht.
+Unser Bundesrat hingegen setzt seit bald zwei Jahren alles daran, dass sich niemand auch nur für eine
+Sekunde entspannen kann. Statt sich darüber zu freuen, dass unsere mageren Intensivstationskapazitäten
+durchgehend nie an der Grenze angelangt sind, fabuliert man lieber darüber, dass das bald soweit sein
+wird. Und das natürlich aufgrund der bösen Ungeimpften. Währenddessen sterben in einem Altersheim in
+Rheintal munter vor allem Geimpfte, aber das liegt natürlich nur daran, dass es von diesen mehr gibt. Nur:
+Warum sterben sie überhaupt? Wo doch die Impfung schwere Verläufe verhindern soll? Was genau bewirkt
+diese Impfung eigentlich? Ausser einer netten Statistik für das BAG? Und, vielleicht, möglichen Langzeitfolgen?
+Nur sind das natürlich Fragen, die einem der gesunde Menschenverstand einpflanzt, und der ist aktuell
+nicht besonders gefragt. Alles wird auf das vorab definierte Ziel der Impfquote hingebogen. Es herrscht die
+totale Willkür. In einer Zeit, in der die Wissenschaft gefragt wäre wie nie zuvor, gewinnt die unwissenschaftliche Darstellung die Oberhand. Nichts von dem, was aktuell verordnet wird, hält der Evidenz stand. Dass
+wir für den Kaffee am Stammtisch ein Zertifikat benötigen: Es hat noch nie Sinn gemacht. Wir stecken uns
+nicht an in Restaurants. Das wurde tausendfach belegt. Aber es spielt keine Rolle. Wichtig ist, denen ein
+Zückerchen zu geben, die brav mitspielen. Dass Horden von Geimpften an Konzerte gehen oder ohne jeden
+Abstand die Olma besuchen können: Es hat noch nie Sinn gemacht. Diese Leute sind keinen Deut ‹ungefährlicher› als Ungeimpfte, das belegen mehr als genug Studien. Es geht nur darum, diesen Menschen
+einen Vorteil zu verschaffen, damit sie die Politik des Bundesrats überzeugt mittragen. Was auch heisst,
+dass sie ausgespielt werden gegen die Ungeimpften, die ihnen kein Haar krümmen.
+Das ist ‹Teile und Herrsche› in Reinkultur. Dem Bundesrat ist es gelungen, in kürzester Zeit zwei Lager zu
+schaffen, die sich unerbittlich gegenüberstehen. Sie sind derart miteinander beschäftigt, dass sie nicht mal
+auf die Idee kommen, sich zu fragen, ob sie allenfalls einen gemeinsamen Feind haben: Die Landesregierung.
+_Stölzle / Brányik, Autor/in_
+
+_Stefan Millius (*1972) ist Chefredaktor von ‹Die Ostschweiz›._
+_Quelle: https://www.dieostschweiz.ch/artikel/der-bann-ist-gebrochen-freie-bahn-fuer-totale-widersprueche-WoMB38Q_
+
+
+-----
+
+## 16 Ärzte und Forscher aus Schweden, fordern den sofortigen Stopp der Impfung
+_uncut-news.ch, November 9, 2021_
+
+Das British Medical Journal (BMJ) enthüllt am 2. November 2021, dass ein Auftragnehmer von Pfizer während der Phase-III-Studie des Cov-Impfstoffs von Pfizer im Herbst 2020 wahrscheinlich einen umfangreichen Forschungsbetrug begangen hat. DierHauptzeugin des Artikels ist Brook Jackson, im September 2020
+die texanische Regionaldirektorin der Forschungsorganisation Ventavia Research Group, die an den Impfstoffstudien von Pfizer beteiligt war. Jacksons Aussage zeigt, dass das Unternehmen Daten fälschte, Patienten verblindete, unzureichend ausgebildete Impfärzte einstellte und die in der Phase-III-Studie gemeldeten
+unerwünschten Ereignisse nur schleppend verfolgte. Die Mitarbeiter der Qualitätskontrolle waren von der
+Anzahl der entdeckten Probleme überwältigt.
+Nachdem sie Ventavia wiederholt auf die Mängel hingewiesen hatte, schickte Brook Jackson am 25. September 2020 eine Beschwerde per E-Mail an die FDA. Ventavia entliess sie noch am selben Tag. Um ihre
+Kritik zu untermauern, legte Jackson dem BMJ Dutzende von internen Unternehmensdokumenten, Fotos,
+Tonaufnahmen und E-Mails vor. Das BMJ untermauert ihre Aussage mit Aussagen vieler ehemaliger
+Ventavia-Mitarbeiter.
+Aus dem Artikel geht auch hervor, dass die FDA den Betrieb, in dem Brook Jackson arbeitete, nie überprüft
+hat. Im Artikel wird beschrieben, dass die FDA zu wenig Ressourcen für die Überprüfung klinischer Studien
+hat. Von 2000 bis 2005 wurden nur etwa 1 Prozent aller Studien überprüft, und seither ist die Zahl der
+Überprüfungen zurückgegangen. Im August 2021 veröffentlichte die FDA eine Übersicht über die Anzahl
+der Überprüfungen der Impfstoffstudien von Pfizer. Insgesamt wurden 9 von 153 Studienstandorten überprüft, was 6 Prozent der Studienstandorte entspricht.
+Wir halten den Bericht des BMJ für äusserst bedenklich. Sie untergräbt das Vertrauen in das Unternehmen
+Pfizer, das für die Erprobung des Impfstoffs und die Sicherheit des Impfstoffs verantwortlich ist, der derzeit
+in Schweden eingesetzt wird, darunter Hunderttausende von Kindern.
+Darüber hinaus ist die Zahl der gemeldeten mutmasslichen Nebenwirkungen des CoVid-Impfstoffs gigantisch: In Schweden beispielsweise wurden in den zehn Monaten nach der Impfung 83.744 mutmassliche
+Nebenwirkungen gemeldet, was mehr als zehnmal so viel ist wie alle Nebenwirkungen, die in den vorangegangenen Jahren für alle Arzneimittel und Impfstoffe gemeldet wurden, insgesamt etwa 25.000 Substanzen.
+Etwa 20 Studien haben gezeigt, dass die Wirksamkeit des Impfstoffs sehr schwach ist. Eine dieser schwedischen Studien zeigte, dass der Impfstoff etwa zwei Monate lang eine gute Wirkung hatte, dass der Impfstoff
+von AstraZeneca nach vier Monaten keine Wirkung gegen die Delta-Variante hatte und dass das Gleiche für
+den Impfstoff von Pfizer nach sieben Monaten galt.
+Der dringende Verdacht, dass Teile der klinischen Studie für den Pfizer-Impfstoff nicht in wissenschaftlich
+akzeptabler Weise durchgeführt wurden und die Studienergebnisse nicht als zuverlässig angesehen werden
+können, in Verbindung mit der grossen Zahl der gemeldeten mutmasslichen Nebenwirkungen nach der
+Impfung, von denen viele schwerwiegend sind, gibt uns als Ärzten, Wissenschaftlern und Immunologen Anlass zu grosser Sorge. Dies gilt nicht zuletzt für Kinder, bei denen das Risiko einer schweren Erkrankung
+durch Covid-19 äusserst gering ist, die aber das Risiko schwerer Nebenwirkungen haben. Die Tatsache,
+dass die Wirksamkeit des Impfstoffs bereits nach wenigen Monaten deutlich nachgelassen hat und gegen
+die Delta-Variante des Virus schwach ist, trägt zu unserer Schlussfolgerung bei, dass die Covid-Impfung in
+Schweden pausiert werden sollte, bis für alle Altersgruppen eine Nutzen-Risiko-Kalkulation durchgeführt
+wurde. Unsere Position wird im Lichte der Enthüllungen im BMJ und dem, was wir jetzt über die Risiken
+für den Patienten wissen, eingenommen.
+_QUELLE: ATT FORSKNINGSFUSK HOS UNDERLEVERANTÖR TILL PFIZER, NU KRÄVER 16 LÄKARE OCH_
+_FORSKARE VACCINATIONEN I VSERIGE PAUSAS._
+_Quelle: https://uncutnews.ch/16-aerzte-und-forscher-aus-schweden-fordern-den-sofortigen-stopp-der-impfung/_
+
+## Wie wollen sie all die Neugeborenen mit Herzproblemen erklären?
+_uncut-news.ch, November 8, 2021_
+
+Ein örtliches Kinderkrankenhaus berichtet, dass alle drei Neugeborenenstationen voll mit herzkranken
+Säuglingen sind. Wie werden die CDC und das Weisse Haus Säuglinge mit Herzproblemen beschönigen?
+Die CDC riet schwangeren Frauen, sich impfen zu lassen, und stützte sich dabei auf eine Aussage in einem
+Artikel im NEJM, der inzwischen zurückgezogen wurde. Aber die CDC hat ihren Rat nicht zurückgezogen,
+als die Arbeit korrigiert wurde.
+
+
+-----
+
+Ich habe gerade diese E-Mail von einer sehr vertrauenswürdigen Quelle erhalten. Sie klingt für mich sehr
+glaubwürdig, aber ich hatte noch keine Zeit, sie zu überprüfen.
+Meine Verlobte kennt eine Krankenschwester im örtlichen Kinderkrankenhaus, die ihr gestern im Stillen anvertraut hat, dass eine andere Krankenschwester dort gesagt hat, dass die drei NICUs (neonatale Intensivstationen) des Krankenhauses voll mit kleinen Patienten sind, die Herzprobleme haben. Die Krankenschwester auf der Neugeborenen-Intensivstation sagte angeblich, dass sie nicht nach dem Impfstatus der Mütter
+fragen dürfe, dass diese Information aber in allen Krankenakten zu finden sei und dass alle Mütter vollständig geimpft seien.
+Da es sich um ein Gerücht aus dritter oder vierter Hand handelt, würde ich normalerweise versuchen, es
+zu bestätigen, bevor ich es mit jemandem teile. Meine ersten Internetrecherchen waren jedoch ergebnislos,
+und ich befürchte, dass dies eine Sache ist, die von den Verantwortlichen unserer grössten Krankenhäuser
+eine ganze Weile lang unterdrückt werden könnte – vor allem von denen, die derzeit damit beschäftigt sind,
+Ärzte und Krankenschwestern zu entlassen, die Impfungen ablehnen. Und wenn es gerade in einem Krankenhaus anfängt zu passieren, nehme ich an, dass es in Krankenhäusern landesweit oder sogar weltweit
+anfängt – vielleicht fängt es gerade jetzt an, weil es erst 9 Monate her ist, dass der Impfwahn begonnen hat,
+oder vielleicht haben sich in letzter Zeit mehr schwangere Frauen dem Druck des Impfmandats gebeugt.
+Ich habe mich gefragt, ob es sich lohnen würde, einige der wissenschaftlichen/medizinischen Berater des
+Unity-Projekts darüber zu informieren, die vielleicht über Kontakte zu grossen Krankenhäusern mit Neugeborenenstationen verfügen, sofern man ihnen zutrauen kann, diskret Nachforschungen anzustellen, ohne
+ihre oder unsere Glaubwürdigkeit zu riskieren, indem sie die Geschichte vor einer Bestätigung veröffentlichen. Wenn dieses Gerücht bestätigt und aufgedeckt werden könnte, könnte es möglicherweise allein
+schon das Blatt in diesem Krieg wenden.
+Ich überlasse es Ihnen, über die nächsten Schritte zu entscheiden.
+Bitte lassen Sie mich wie immer wissen, wie ich helfen kann.
+Ist ein Arzt bereit, seine Karriere zu riskieren, indem er dies in den Kommentaren unten bestätigt? Wenn
+Sie ein Elternteil eines verletzten Kindes sind und sich melden, kann man Sie nicht entlassen.
+_QUELLE: HOW ARE THEY GOING TO EXPLAIN ALL THE NEWBORNS WITH CARDIAC PROBLEMS?_
+_Quelle: https://uncutnews.ch/wie-wollen-sie-all-die-neugeborenen-mit-herzproblemen-erklaeren/_
+
+## Baden-Württembergs Landesregierung  im Feldzug gegen die eigene Bevölkerung
+_hwludwig Veröffentlicht am 5. November 2021_
+
+Das totalitäre grün/schwarze Corona-Regime in Baden-Württemberg hat die Knebelungs-Massnahmen gegen die Nicht-Geimpften seit vergangenem Mittwoch weiter verschärft. Die staatliche Nötigung wird in orwellscher Manier verharmlosend als ‹ein Beitrag, die Menschen nochmal zu motivieren, sich impfen zu lassen› bezeichnet. Dr. Norbert Häring, dem es – selbst geimpft – um den Schutz der Grundrechte und den
+Kampf gegen eine totalitäre Diktatur geht, entlarvt die Lügen des Stuttgarter Regimes, welche die Massnahmen rechtfertigen sollen. Wir übernehmen mit freundlicher Genehmigung seinen Artikel vom 3.11.2021.
+
+Dr. Norbert Häring
+Die grünschwarze Stuttgarter Landesregierung hat heute alle nicht geimpften Bürger mit einem Teil-Lockdown belegt. Die Begründung mit der Belegung der Intensivbetten sagt alles, wenn man sie mit einer anderen Zahl und der Informationspolitik dieser Regierung kombiniert. Sie führt einen Feldzug gegen die
+eigene Bevölkerung.
+Weil an zwei Tagen in Folge die Zahl der Corona-Patienten auf Intensivstationen in Baden-Württemberg
+über 250 gestiegen ist, gelten für nicht geimpfte Bewohner des Landes seit heute strenge Kontaktbeschränkungen. Ausserdem dürfen sie öffentliche Veranstaltungen, Museen, Theater, Kinos oder Restaurants nur
+mit einem zeitaufwendigen und teuren PCR-Test besuchen, den sie selbst bezahlen müssen. Für die meisten kommt das einem weitgehenden Verbot gleich, am öffentlichen Leben teilzunehmen.
+Der in Sachen Grundrechte aller Menschen von minimalen Skrupeln geplagte grüne Gesundheitsminister
+Manfred Lucha sagte, damit wolle man Menschen ohne Impfschutz einerseits schützen, andererseits zum
+Impfenlassen nötigen, wörtlich: «… darauf aufmerksam machen, dass sie diesen Zustand der Einschränkung durch Impfen beheben können. Auch das ist ein Beitrag, die Menschen nochmal zu motivieren, sich
+impfen zu lassen.»
+Hier nun die versprochene zweite Zahlengruppe: Allein in den letzten sechs Monaten, seit 3. Mai dieses
+Jahres wurden laut Divi-Register in Baden-Württemberg fast so viele Intensivbetten ausser Betrieb genommen wie derzeit mit Covid-Patienten belegt sind, nämlich 169. Damals betrug die Summe aus belegten
+und freien (ohne Notfallreserve) 2446, jetzt noch 2277. In den letzten 12 Monaten wurden 338 Betten abgebaut in den letzten 18 Monaten 1374 Letztere Zahl könnte wegen Änderungen in Statistik und Regelwerk
+
+
+-----
+
+den tatsächlichen Abbau übertreiben. Aber die Tendenz ist klar und bis zuletzt ungebrochen. Mitten in
+einer Pandemie, in der angeblich eine Überlastung des Gesundheitswesens droht, werden unaufhörlich
+Behandlungskapazitäten abgebaut.
+
+**Erlogene Zahlen des Gesundheitsministers**
+Dabei ist noch nicht einmal berücksichtigt, dass ein Teil der zuletzt 276 Intensivpatienten geimpft ist und
+ein anderer Teil nur mit und nicht wegen Corona auf der Intensivstation liegt. Lucha behauptet:
+«Es ist nach wie vor mehr denn je die Pandemie der nicht Geimpften. Über 90 Prozent der Personen auf
+den Intensivstationen sind nicht Geimpfte.»
+Das ist sehr wahrscheinlich entweder erfunden oder gelogen. Laut RKI waren es bundesweit im Oktober
+21% Geimpfte auf den Intensivstationen, Tendenz stark steigend. Bei den über 60-jährigen Intensivpatienten betrug am 27.10. laut RKI der Anteil der Geimpften 33,4%. Im Wochenbericht vom 7.10. waren es erst
+24,1% gewesen.
+
+**Fazit**
+Eine Regierung, die laufend und kräftig die verfügbaren Intensivbetten abbaut oder abbauen lässt und
+parallel Regeln erlässt, die abhängig von der Intensivbettenbelegung Grundrechte der Bürger ausser Kraft
+setzten,
+dadurch die Knappheitsgefahr erst schafft, die sie fälschlich den Covid-Fällen zuschreibt,
+und mit Falschbehauptungen die nicht Geimpften dafür verantwortlich macht,
+die dann mit Grundrechtsentzug ihrer laut Nürnberger Konvention und Grundgesetz freien Entscheidung
+für oder gegen das Impfen enthoben werden,
+führt einen Feldzug gegen die eigene Bevölkerung. Es ist ein Riesenskandal, das kein Gericht diesem evident
+rechtswidrigen Treiben zeitnah ein Ende setzt. Aber das hatten wir ja kürzlich in mehreren Beiträgen beleuchtet.
+Harbarth ist nur die Spitze des Eisbergs: Die Parteien kapern die obersten Gerichte.
+
+**Der Präsident des Bundesverfassungsgerichts – ein Lobbyist der Regierung Merkel?**
+Es soll bloss keiner sagen, es läge am Mangel an Pflegepersonal, und da könne man halt nichts machen.
+In zwei Jahren hätte man sehr viel machen können. Man hat aber wissentlich und in voller Absicht nichts
+getan und die dadurch mutwillig verschärfte Gefahr einer Überlastung genutzt, um einen schwerwiegenden
+Grundrechtsentzug für Teile der Bevölkerung quasi-automatisiert herbeizuführen.
+_Quelle: https://fassadenkratzer.wordpress.com/2021/11/05/baden-wurttembergs-landesregierung-im-feldzug-gegen-die-_
+_eigene-bevolkerung_
+
+## Arzt: Das volle Ausmass der Reaktionen auf den COVID-Impfstoff wird frühestens in 10 Jahren bekannt sein
+_uncut-news.ch, November 5, 2021_
+
+childrenshealthdefense.org: In der jüngsten zweiteiligen Folge der CHD.TV-Sendung ‹Gegen den Wind› mit
+Moderator Dr. Paul Thomas kamen zwei Mediziner zu Wort, die COVID-Patienten erfolgreich behandelt
+haben, ohne dass es zu einem einzigen Todesfall kam.
+Die Gäste – Dr. Jim Meehan, ein Augenarzt mit fortgeschrittener medizinischer Ausbildung in Immunologie
+und interventioneller Endokrinologie, und Scott Miller, ein Assistenzarzt bei Miller Family Pediatrics – konzentrierten sich auf diese Frage: Wie können Mediziner die Angst vor Verurteilung überwinden, um Patienten vor oft tödlichen Mainstream-Behandlungen zu bewahren?
+Thomas eröffnete den Beitrag, indem er schilderte, wie er kürzlich auf dem Weg zur Arbeit an einer Gruppe
+junger Schulkinder vorbeikam, die alle Masken trugen und um drei Meter ‹sozial distanziert› waren. Als
+Vater und Kinderarzt ‹fühlte sich das einfach falsch an›, sagte er.
+«Wenn man einigen dieser Kinder in die Augen schaute, konnte man sehen, dass das Licht weg war», sagte
+Thomas.
+
+**Thomas und Meehan sprachen über Masken, den COVID-Impfstoff und Impfstoffverletzungen.**
+Meehan erläuterte seine evidenzbasierte wissenschaftliche Analyse, warum Masken unwirksam, unnötig
+und schädlich sind.
+Meehan sprach auch über seine Erfahrungen bei der Behandlung von COVID-Patienten mit verfügbaren
+Therapien, die in Krankenhäusern nicht angeboten werden, und darüber, wie seine Beiträge in den sozialen
+Medien über COVID-Behandlungen verboten wurden.
+Von den etwa 4.000 COVID-Patienten, die Meehan behandelt hat, ist keiner gestorben. Meehan sagte, seine
+Patienten seien früh genug zu ihm gekommen um sich behandeln zu lassen Im Krankenhaus behandelte
+
+
+-----
+
+er erfolgreich mehr als 20 Patienten, bei denen die COVID-Protokolle des Krankenhauses versagten, darunter einen 66-jährigen Mann, der zwei Runden Remdesivir eingenommen hatte.
+Meehan sagte, kurz nach der Einführung des COVID-Impfstoffs habe er begonnen, unerwünschte Wirkungen des Impfstoffs zu erkennen, darunter Fehlgeburten, Vaskulitis, entzündliche Erkrankungen und die
+Bildung von Blutgerinnseln.
+Thomas sah in seiner Kinderarztpraxis einen Fall von Myokarditis nach Impfungen.
+Meehan sagte:
+«Das hätten Sie sein können. Das hätte auch Ihr Kind sein können. Ihre Tochter. Es hätte auch Ihr Vater
+sein können… Dies sind experimentelle Impfstoffe. Es wird ein Jahrzehnt dauern, bis wir wissen, wie schwerwiegend die Nebenwirkungen sein werden. Es wird Jahre dauern, bis wir feststellen, dass wir vielleicht 10%
+der Bevölkerung durch antikörperabhängige Verstärkungen verlieren.»
+Nachdem Meehan anfing, junge Patienten und Patienten im College-Alter mit COVID-Impfschäden zu sehen, fügte er seiner Website eine Notfallerklärung hinzu. Später wurde er aus den sozialen Medien verbannt,
+weil er über die Gefahr von Spike-Proteinen gepostet hatte und Tierstudien zeigten, dass diese Proteine die
+Blut-Hirn-Schranke überwinden und neurologische Schäden verursachen.
+Meehan sagte, dass seine Sicherheitswarnungen vor der COVID-Impfung für alle gelten, insbesondere aber
+für schwangere Frauen, Kinder und Jugendliche.
+«Wir dürfen keine Kinder impfen, bei denen das Risiko, an COVID-19 zu sterben, statistisch gesehen gleich
+Null ist», sagte er und verwies auf eine aktuelle Analyse der Johns Hopkins University, die ergab, dass von
+den mehr als 330 COVID-Todesfällen bei Kindern unter 25 Jahren die meisten oder fast alle bei Kindern
+mit einer lebensbedrohlichen Vorerkrankung auftraten.
+Als Nächstes interviewte Thomas Miller (ab 37:14), der über seine Erfahrungen bei der erfolgreichen Behandlung von etwa 1.400 Patienten, darunter ein 100-Jähriger, mit unkonventionellen Protokollen zur Stärkung des Immunsystems berichtete, die er durch Forschung und Fallstudien kennen gelernt hatte.
+Miller verwendete von der FDA zugelassene Therapien, die nicht für die Behandlung von COVID zugelassen
+waren, was dazu führte, dass er seine ärztliche Zulassung verlor.
+Miller behandelt in seiner Praxis sowohl Kinder als auch Erwachsene. Keiner seiner pädiatrischen Patienten
+ist an COVID gestorben oder ins Krankenhaus eingeliefert worden.
+Miller sprach über die Forschung und die moralische Verpflichtung, die ihn dazu brachten, sich dem System zu widersetzen und sich für bewährte Behandlungsmethoden für COVID einzusetzen. Er sagte:
+«Ich kam an einen Punkt, an dem es sich so sinnlos anfühlte, es einem nach dem anderen zu erzählen, wo
+es doch so viele Menschen gibt, die diese Informationen brauchen, dass ich einfach anfing, offen darüber
+zu sprechen.»
+_Sehen Sie sich die Folge dieser Woche hier an:_
+_QUELLE:_ _HTTPS://CHILDRENSHEALTHDEFENSE.ORG/DEFENDER/CHD-TV-AGAINST-WIND-PAUL-THOMAS-JIM-_
+_MEEHAN-SCOTT-MILLER-FDA-COVID/_
+_Quelle:_ _https://uncutnews.ch/arzt-das-volle-ausmass-der-reaktionen-auf-den-covid-impfstoff-wird-fruehestens-in-10-jah-_
+_ren-bekannt-sein/_
+
+## Widerstandskämpfer
+Wie aktuell vielen meiner Mitmenschen, gehen mir zahlreiche Gedanken
+durch den Kopf und ich versuche sie jeden Tag zu sortieren.
+_Sarah Stalder am 29. Oktober 2021_
+
+_Sarah Stalder (*1988) aus Oberbüren ist als Kauffrau_
+_im Verkaufsinnendienst in einem Thurgauer KMU tätig._
+
+Es herrscht ein regelrechtes kollektives, mentales Chaos in uns und es ist einfach unfassbar, wie weit es in
+dieser Gesellschaft gekommen ist. Mittlerweile kann nicht mehr von Spaltung die Rede sein, sondern eher
+
+
+-----
+
+von einer kompletten Zerstörung unseres Miteinanders. Ethik und Moral sind offenbar der Cancel Culture
+zum Opfer gefallen.
+Nun möchte ich nicht, dass die Leser dieses Beitrags direkt in eine Depression rutschen. Denn es ist essenziell, dass wir das Bewusstsein schaffen für unser Tun und vor allem auch für unser Nichtstun. Oftmals
+denken sich die Menschen, sie haben keinen Einfluss und müssen die Situation tatenlos hinnehmen. Sie
+quälen sich selbst in ihrem vermeintlichen Ohnmachtsdasein. Dies kann aber einen gewaltigen Konflikt in
+einem selbst auslösen, was für die Psyche und folglich auch für den Körper sehr schädlich sein kann.
+Es ist jedoch so, dass wir alle für unsere Werte einstehen können, ja sogar müssen. Auch wenn es sich aktuell nicht so anfühlt, leben wir in einer Demokratie. Diese Staatsform ist geprägt von individuellen Meinungen
+und Ansichten. Wir haben das Recht, dagegen zu sein. Wir haben das Recht, nein zu sagen. Nein zu einem
+Zustand, der uns unsere Grundrechte wegnimmt. Nein zu einer Regierung, die nicht im Wohle des Volkes
+handelt.
+Sehr viele Menschen sind nicht einverstanden mit dieser niederträchtigen Situation, sie kämpfen für die
+Bürgerrechte und möchten die Gleichberechtigung in unserem Land zurück. Sie haben genug von dieser
+elenden Diskriminierung. Mit viel Mut schreiten sie in den Widerstand und weigern sich, zu allem ja zu
+sagen.
+Tagtäglich sind sie mit Gegenwind konfrontiert, müssen sich erklären und alle Argumente hervorholen, um
+das Gegenüber zu überzeugen. Sie müssen sich Beschimpfungen und Drohungen anhören, nur weil sie bei
+diesem ganzen Wahnsinn nicht mitmachen wollen. Doch sie bleiben standhaft, sie lassen sich nicht beirren
+und kämpfen in jeder Sekunde weiter. Für mich sind sie Helden, jeder einzelne von ihnen. Denn sie gehen
+nicht den einfachen Weg, sie hören auf ihr Herz und kämpfen für Freiheit, Respekt und Menschlichkeit.
+Quelle: https://www.dieostschweiz.ch/kolumnen/widerstandskaempfer--QQymEQ4
+
+## Warum Impfgeschädigte Angst haben, sich zu äussern – Spitzensportler erklärt Impfstoff-Verletzung und Unwissenheit des Arztes
+_uncut-news.ch, November 7, 2021 Mercola.com_
+
+Kyle Warner, ein 29-jähriger professioneller Mountainbike-Rennfahrer, entwickelte nach seiner zweiten Impfung mit COVID-19 von Pfizer eine Herzbeutelentzündung, POTS und reaktive Arthritis.
+Etwa zwei Wochen nach der Impfung traten bei Warner extrem erhöhte Herzfrequenzen auf; ein Arzt in der
+Notaufnahme weigerte sich zu glauben, dass es sich um eine unerwünschte Reaktion auf die Impfung handelte und schob es stattdessen auf eine ‹psychotische Episode›.
+Nachdem Warner wegen weiterer Herzbeschwerden ein anderes Krankenhaus aufgesucht hatte, wurde er
+an einen Kardiologen überwiesen, der bei ihm eine Perikarditis, eine Entzündung der Herzaussenhaut, diagnostizierte.
+Seit vier Monaten ist Warner so krank, dass er nicht mehr arbeiten oder Fahrrad fahren kann; selbst geistige
+Anstrengung kann bei ihm einen körperlichen Rückfall auslösen
+Auf der ‹Real, Not Rare›-Kundgebung in Washington, D.C., sprach Warner vor Politikern, um die Unterstützung für Impfgeschädigte – die es in den USA nicht gibt – zu verbessern und sich gegen Impfvorschriften
+auszusprechen: «Ich glaube, dass es dort, wo es ein Risiko gibt, auch eine Wahlmöglichkeit geben muss»,
+sagte er
+Kyle Warner ist 29 Jahre alt und befand sich auf dem Höhepunkt seiner Karriere als professioneller Mountainbike-Rennfahrer, als er im Juni 2021 seine zweite Dosis der COVID-19-Spritze von Pfizer erhielt. Seine
+Reaktion war so heftig, dass er im Oktober immer noch tagelang das Bett hüten musste, weil ihn zu viel
+geistige oder körperliche Anstrengung leicht überforderte.
+
+
+-----
+
+Warner teilte seine detaillierten Erfahrungen mit John Campbell, einem pensionierten Krankenpfleger und
+Lehrer aus England, und reiste Anfang November 2021 nach Washington, D.C., um die Nachricht zu verbreiten, dass COVID-19-Impfungen nicht immer so sicher sind, wie man uns glauben machen will. Selbst
+ein 20-Jähriger in bester körperlicher Verfassung kann schwer geschädigt werden, weshalb sich Warner
+auch gegen Impfvorschriften ausspricht.
+«Ich bin der Meinung, dass es dort, wo es ein Risiko gibt, auch eine Wahlmöglichkeit geben muss», sagte
+er. Aber im Moment werden die Menschen getäuscht. «Die Menschen werden zu einer Entscheidung gezwungen, die auf einem Mangel an Informationen beruht, während sie von einer Entscheidung überzeugt
+sind, die auf vollständiger Informationstransparenz beruht.»
+
+**COVID-Spritze löst Reaktion aus, Arzt glaubt ihm nicht**
+Warner wollte in der Lage sein, international zu reisen, und beschloss daher, sich mit COVID-19 impfen zu
+lassen. Er erhielt seine erste Dosis des Pfizer-Impfstoffs Mitte Mai 2021 und litt danach nur unter einem
+schmerzenden Arm. Nach der zweiten Dosis am 10. Juni tat ihm nicht einmal mehr der Arm weh, so dass
+er dachte, er sei glimpflich davongekommen.
+Doch innerhalb von Sekunden trat ein seltsames Symptom auf, das ein Hinweis darauf sein könnte, dass
+etwas nicht stimmte. Gleich nach der Injektion hatte ich einen merkwürdigen metallischen Kochsalzgeschmack im Mund. «Ich fragte den Arzt: ‹Ist das normal?›, und er sagte: «Nein, das kommt nicht oft vor.›»
+Laut Campbell:
+Die Tatsache, dass der Arzt nicht erkennt, dass ein metallischer Geschmack im Mund ein Anzeichen für
+eine versehentliche intravaskuläre Verabreichung sein könnte, beunruhigt mich, denn wenn der Impfstoff
+in den Muskel gelangt, bleibt er im Muskel, und es dauert eine halbe Stunde, bis er überhaupt systemisch
+absorbiert wird, oder viel länger. Aber wenn er in ein Gefäss gelangt, bekommt man sofort einen metallischen Geschmack …
+Die Tatsache, dass man das sofort schmecken kann, ist für mich sehr verdächtig, dass sie es versehentlich
+in ein Blutgefäss gegeben haben … Im Grunde hat man die Entzündungsreaktion im Herzen und in den
+Gelenken und nicht im Arm.
+Ein oder zwei Tage später, als der Arm nicht mehr schmerzte, dachte er, dass es einfacher sein würde als
+bei der ersten Dosis, aber etwa zwei Wochen später begann er, seltsame Reaktionen in seinem Herzen zu
+spüren. Im Laufe des Tages erlebte er Phasen mit beschleunigtem Herzschlag. Als Profisportler ist Warner
+mit seinem Körper bestens vertraut.
+Er trägt regelmässig eine intelligente Uhr, die seine Herzfrequenz misst und weiss, was für ihn normal ist –
+und das war nicht normal. Im Sitzen und in Ruhe stieg seine Herzfrequenz in die 90er und über 100. Er
+beschloss, vorsichtshalber auf alle Stimulanzien wie Koffein zu verzichten, und nahm sich zwei Wochen
+lang eine Auszeit vom Radfahren, weil er sich nicht gut fühlte.
+Als er nach der Pause versuchte, eine Runde zu drehen, stieg seine Herzfrequenz auf 160 an und blieb
+weiter erhöht. Da er sich schwach fühlte und ihm übel war, liess er sich von einem Freund in die Notaufnahme bringen. Er erzählte dem Arzt in der Notaufnahme, dass er von Myokarditis als Nebenwirkung der
+mRNA-Injektionen gehört hatte, und dass er dachte, er hätte diese Reaktion. Sie wimmelten ihn ab und
+sagten ihm, dass es sich nicht um eine solche Reaktion handele, sondern um eine Angstattacke.
+Nachdem man ihm gesagt hatte, dass er wegen seines Problems nicht vorrangig behandelt werden müsse,
+sass er 3,5 Stunden lang im Wartezimmer und erhielt schliesslich eine Spritze mit dem nichtsteroidalen
+Entzündungshemmer Toradol zur Behandlung der reaktiven Arthritis. Seine Herzfrequenz sank auf 110,
+was den Arzt dazu veranlasste, ihm mitzuteilen, dass es ihm besser ginge, aber er hatte immer noch fast
+das Doppelte seiner durchschnittlichen Herzfrequenz.
+Die Lösung des Arztes bestand darin, ihn wegen einer, wie er es nannte, ‹psychotischen Episode› an einen
+Psychiater zu überweisen. Da Warner angab, dass seine Reaktion von der Spritze herrührte, dachten die
+Ärzte, er würde sich etwas einbilden oder ‹versuchen, gegen Impfung zu sein oder ein Verschwörungstheoretiker›. Vier Tage später landete er erneut im Krankenhaus.
+
+**Diagnose: Perikarditis, POTS und reaktive Arthritis**
+Einige Tage, nachdem er aus der Notaufnahme nach Hause geschickt worden war, hatte Warner erneut
+Probleme mit seinem Herzen – dieses Mal ein starkes Druckgefühl zusammen mit Krämpfen und Brennen.
+Er ging in ein anderes Krankenhaus, wo man seine Sorge ernst nahm, sagte, dass es sich um eine Myokarditis – eine Entzündung des Herzmuskels – handeln könnte, und überwies ihn an einen Kardiologen.
+Inzwischen ist bekannt, dass Myokarditis und Perikarditis, eine Entzündung der Herzaussenhaut, nach COVID-19-Impfungen auftreten, am häufigsten nach der zweiten Dosis bei männlichen Jugendlichen und jungen Erwachsenen. Der Kardiologe diagnostizierte bei Warner eine Perikarditis zusammen mit einem posturalen orthostatischen Tachykardiesyndrom (POTS) und reaktiver Arthritis.
+POTS ist eine Durchblutungsstörung, die sich auf das autonome Nervensystem auswirkt und durch Injektionen, einschliesslich der mRNA COVID-19-Spritze, ausgelöst werden kann. Eines der Hauptsymptome von
+
+
+-----
+
+POTS ist ein deutlicher Anstieg der Herzfrequenz, wenn eine Person aufsteht, und die erhöhte Herzfrequenz
+bleibt über einen längeren Zeitraum als normal erhöht. Müdigkeit, Übelkeit, Schwindel, Herzklopfen und
+Belastungsintoleranz können ebenfalls auftreten.
+Als professioneller Mountainbikefahrer hat Warner schon einige Verletzungen erlitten, obwohl er vor der
+Impfung keine Schmerzen hatte und alle seine Verletzungen verheilt waren. Nach der zweiten Impfung
+hatte er jedoch das Gefühl, dass alle seine alten Verletzungen reaktiviert wurden und wieder schmerzhaft
+waren. Seine Handgelenke zum Beispiel schmerzten so stark, dass er seinen Sicherheitsgurt nicht mehr
+anlegen konnte.
+Seit vier Monaten ist Warner nun so krank, dass er nicht mehr arbeiten kann. Selbst geistige Anstrengung
+kann bei ihm zu einem körperlichen Rückfall führen. Wenn er einen ‹guten› Tag hat und es übertreibt, hat
+er in den nächsten Tagen wieder Schmerzen. Selbst wenn er zu viel liest, fühlt er sich ausgelaugt.
+Während die Symptome der Herzbeutelentzündung abgeklungen sind, kämpft er immer noch mit den
+Symptomen der reaktiven Arthritis und des POTS, die 12 bis 18 Monate oder länger andauern können.
+Und da Warner sehr fit und daran gewöhnt ist, auf seinen Körper zu hören, hat er das Problem frühzeitig
+erkannt – viele andere vielleicht nicht.
+
+**Wo ist die Unterstützung für Impfgeschädigte?**
+Mehr als 60 Personen haben sich an Warner gewandt und von ihren eigenen Erfahrungen mit Impfschäden
+durch COVID-19 berichtet. Viele von ihnen trauten sich nicht, anderen davon zu erzählen, weil sie befürchteten, verspottet, lächerlich gemacht oder als ‹Impfgegner› bezeichnet zu werden. Doch sie sind nicht allein.
+Bis zum 15. Oktober 2021 wurden dem Vaccine Adverse Event Reporting System (VAERS) 818.044 unerwünschte Ereignisse nach COVID-19-Impfungen gemeldet, darunter 17.128 Todesfälle. Frühere Untersuchungen haben gezeigt, dass nur zwischen 1% und 10% der unerwünschten Wirkungen jemals an VAERS
+gemeldet werden, da es sich um ein passives, freiwilliges Meldesystem handelt; die tatsächliche Zahl könnte
+also viel höher sein, und Steve Kirsch schätzt, dass es über 5 Millionen nicht gemeldete unerwünschte
+Wirkungen geben könnte.
+Warner musste seinen Bericht an VAERS selbst ausfüllen, weil kein Arzt dies für ihn tun wollte. Er benötigte
+dafür 45 Minuten – eine Zeitspanne, die viele Ärzte nicht aufbringen können oder wollen, wenn es um die
+Meldung von Impfstoffnebenwirkungen bei ihren Patienten geht.
+Auf der Kundgebung ‹Real, Not Rare› in Washington, D.C., sprach Warner vor Politikern, um die Unterstützung für Impfgeschädigte – die in den USA nicht vorhanden ist – zu verbessern und sich gegen Impfvorschriften auszusprechen.
+Ihr Ziel ist es, dass gewählte Beamte und Bundesgesundheitsbehörden die unerwünschten Wirkungen von
+Impfstoffen anerkennen und die medizinische Fachwelt für diese Reaktionen sensibilisieren. Ausserdem
+wollen sie die Verweigerung bestimmter Ausnahmeregelungen für Impfstoffe und die Einführung von Impfstoffen stoppen:
+Reale Leben sind von ‹nicht so seltenen› Folgen betroffen. Viele Impfgeschädigte suchen die Anerkennung
+durch die Medien und die Regierung, damit sie eine bessere Gesundheitsversorgung und Behandlung erhalten. Impfgeschädigte haben ihren Teil dazu beigetragen, indem sie diesen Impfstoff bekommen haben,
+und jetzt brauchen sie Ihre Hilfe.
+Warner hat auch mit React 19 gesprochen, einer Graswurzelorganisation, die ebenfalls das Bewusstsein für
+Nebenwirkungen der COVID-19-Impfung schärft. Die Frau, die die Gruppe ins Leben gerufen hat, ist laut
+Warner eine der ersten COVID-19-Impfpatienten, die an einer klinischen Studie teilgenommen haben, und
+eine der ersten COVID-19-Impfgeschädigten in den USA. Die Gruppe verfolgt die Impfschäden von 5.000
+Menschen und ruft andere dazu auf, ihre Reaktionen ebenfalls mitzuteilen, als Teil ihres von Patienten geleiteten Forschungsprogramms.
+Traurigerweise, so Warner, haben sechs der Menschen, die unter unerwünschten Ereignissen leiden, im vergangenen Monat Selbstmord begangen. Da die derzeitige Regierung diejenigen, die sich zu den Risiken der
+COVID-19-Impfung äussern, zum Schweigen bringt und zensiert, haben die Verletzten keine Möglichkeit,
+über ihre Erfahrungen zu sprechen. Selbst jetzt, so Warner, da er nicht in der Lage ist, zu arbeiten und sein
+tägliches Leben so weiterzuführen wie vor der Spritze, ‹fühle ich mich einfach so wertlos›.
+Warner hat eine Reihe von Therapien ausprobiert, von denen er glaubt, dass sie ihm geholfen haben, darunter Ivermectin, Kiefernnadeltee und Sternanis. Sein Arzt hat ihm empfohlen, viel Flüssigkeit zu sich zu
+nehmen, Kompressionsstrümpfe zu tragen und in Rückenlage zu trainieren, um wieder zu Kräften zu kommen, aber er kann immer noch nicht Fahrrad fahren.
+
+**Impfgeschädigte erhalten kaum Hilfe**
+Während die Gesundheitsbehörden begonnen haben, die Herzmuskelentzündung nach der COVID-19-Impfung anzuerkennen, gibt es viele andere unerwünschte Ereignisse, die noch immer ignoriert werden. Neuroinflammation, schwere Kopfschmerzen, Epilepsie und sogar Erblindung wurden gemeldet, so Warner.
+Während immer mehr Menschen Unterstützung für die Geschädigten fordern, ist die amerikanische
+
+
+-----
+
+Gesetzgebung so angelegt, dass sie die Pharmaunternehmen mit einem vollständigen Haftungsschutz ausstattet.
+In den USA haben Impfstoffhersteller bereits eine Art ‹Freifahrtschein›, wenn es um die Haftung für Impfschäden und Klagen geht, und zwar durch den National Childhood Vaccine Injury Act von 1986 und den
+Public Readiness and Emergency Preparedness (PREP) Act, der 2005 verabschiedet wurde. Mit dem Gesetz
+von 1986 wurde ein bundesweites, verschuldensunabhängiges Entschädigungsprogramm für Impfschäden
+(VICP) als administrative Alternative zu einer Klage für Verletzungen eingeführt, die durch von der CDC für
+Kinder empfohlene Impfstoffe verursacht wurden. Angefochtene Ansprüche wegen Impfschäden werden
+vom U.S. Court of Federal Claims in Washington, D.C., entschieden, und es gibt einen Treuhandfonds, aus
+dem Ansprüche gezahlt werden, so dass Versicherungsgesellschaften, die Impfstoffhersteller und Impfstoffanbieter vertreten, von kostspieligen Auszahlungen für Impfstoffverletzungen und Todesfälle verschont bleiben. Vor diesem ‹Impfgericht› können jedoch nur Reaktionen auf routinemässig empfohlene Impfstoffe
+verhandelt werden, was nicht für COVID-19-Impfungen gilt, die über das obskure Countermeasures Injury
+Compensation Program (Entschädigungsprogramm für Impfschäden) abgewickelt werden. Das Fazit ist
+leider folgendes, wie Barbara Loe Fisher vom NVIC feststellt: Wenn Sie oder ein Ihnen nahestehender
+Mensch durch einen experimentellen oder [kürzlich] zugelassenen COVID-Impfstoff sterben oder dauerhaft
+geschädigt werden, können Sie das Unternehmen, das den Impfstoff hergestellt hat, nicht verklagen, selbst
+wenn es Beweise gibt, dass das Unternehmen den Impfstoff weniger reaktiv oder wirksamer hätte machen
+können.
+_Quellen:_
+_1 YouTube, Dr. John Campbell, Kyle’s Vaccine Complication October 21, 2021, 1:01_
+_2 YouTube, Dr. John Campbell, Kyle’s Vaccine Complication October 21, 2021, 41:51_
+_3 YouTube, Dr. John Campbell, Kyle’s Vaccine Complication October 21, 2021, 2:50_
+_4 YouTube, Dr. John Campbell, Kyle’s Vaccine Complication October 21, 2021, 21:59_
+_5 U.S. CDC, Myocarditis and Pericarditis After mRNA COVID-19 Vaccination September 8, 2021_
+_6 JAMA. 2021;326(12):1210-1212. doi:10.1001/jama.2021.13443_
+_7 Cureus. 2021 May; 13(5): e14837_
+_8 MedAlerts.org October 15, 2021_
+_9 The Vaccine Reaction January 9, 2020_
+_10 BMJ 2005;330:433_
+_11 Real Not Rare, Our Purpose_
+_12 React19, Current Patient-Led Research_
+_13 YouTube, Dr. John Campbell, Kyle’s Vaccine Complication October 21, 2021, 10:35_
+_14 HRSA March 2020_
+_15 HHS June 9, 2020_
+_16 Health Resources & Services Administration January 2020_
+_17 Fortune May 3, 2021_
+_QUELLE: ELITE ATHLETE EXPLAINS VACCINE INJURY AND DOCTOR’S IGNORANCE_
+_Quelle:_ _https://uncutnews.ch/warum-impfgeschaedigte-angst-haben-sich-zu-aeussern-spitzensportler-erklaert-impfstoff-_
+_verletzung-und-unwissenheit-des-arztes/_
+
+## In einer Live-Veranstaltung melden sich Impfgeschädigte und fühlen sich von der Regierung im Stich gelassen, die ihnen versicherte, die COVID-Spritze sei sicher
+uncut-news.ch, November 7, 2021
+
+childrenshealthdefense.org: Während einer Veranstaltung, die am Dienstag von US-Senator Ron Johnson
+(R-Wis.) ausgerichtet wurde, sagten Menschen, deren Leben durch COVID-Impfstoffe ruiniert wurde, dass
+
+
+-----
+
+sie sich von einer Regierung im Stich gelassen fühlen, die ihnen sagte, es sei ihre patriotische Pflicht, sich
+impfen zu lassen.
+US-Senator Ron Johnson (R-Wis.) führte am Dienstag eine Diskussion mit einer Gruppe von Experten, darunter Kliniker, Wissenschaftler, Anwälte und Patientenvertreter, sowie mit Menschen, die durch COVID-Impfstoffe geschädigt wurden und eindringlich über ihre Erfahrungen berichteten.
+Johnson und die Experten diskutierten über die Bedeutung einer frühzeitigen Behandlung von COVID, die
+Freiheit der Gesundheitsfürsorge und die natürliche Immunität, die Auswirkungen der Vorschriften auf die
+amerikanischen Arbeitskräfte und die Wirtschaft, die Sicherheitsbedenken in Bezug auf COVID-Impfstoffe
+und die mangelnde Transparenz der Bundesgesundheitsbehörden als Reaktion auf seine COVID-Aufsichtsanfragen.
+Keines der grossen Mainstream-Medien hat die Veranstaltung aufgegriffen, aber Children’s Health Defense
+hat Johnsons Podiumsdiskussion live auf CHD.TV übertragen.
+Cody Flint (57.20), ein 33-jähriger Pilot aus Cleveland, Mississippi, war einer derjenigen, die über ihre Verletzungen sprachen. Flint war gesund und hatte keine gesundheitlichen Probleme. Innerhalb von 30 Minuten nach seiner ersten Dosis am 1. Februar bekam Flint starke, stechende Kopfschmerzen, die sich später
+zu einem brennenden Gefühl im Nacken ausweiteten.
+Zwei Tage später stieg er in sein Flugzeug, um einen Auftrag zu erledigen, und merkte schnell, dass etwas
+nicht stimmte.
+Flint erklärte:
+«Ich begann, einen Tunnelblick zu entwickeln, und meine Kopfschmerzen wurden immer schlimmer. Ungefähr zwei Stunden nach meinem Flug zog ich mein Flugzeug hoch, um zu wenden, und spürte einen extremen Druck in meinen Ohren. Sofort wurde ich fast ohnmächtig, mir war schwindlig, ich war desorientiert,
+mir war übel und ich zitterte unkontrolliert. Dank der Gnade Gottes konnte ich mein Flugzeug ohne Zwischenfälle landen, obwohl ich mich nicht daran erinnern kann, dies getan zu haben.
+Meine anfängliche Diagnose von Schwindel und einer schweren Panikattacke – obwohl ich beides in der
+Vergangenheit nie hatte – wurde später durch eine linke und rechte perilymphatische Fistel, eine Funktionsstörung der eustachischen Röhre und einen erhöhten intrakraniellen Druck aufgrund einer Hirnschwellung
+ersetzt. Mein Zustand verschlechterte sich weiter, und meine Ärzte sagten mir, dass nur eine unerwünschte
+Reaktion auf die Impfung von Pfizer oder ein schweres Kopftrauma einen derartigen Spontanschaden verursacht haben kann.»
+Flint unterzog sich zahlreichen Lumbalpunktionen und zwei Operationen, um die Fisteln und den intrakraniellen Druck zu behandeln. Er sagte, er habe mehr Fragen als Antworten, wisse nicht, ob er jemals wieder
+ein Flugzeug fliegen könne, habe ein Jahr seines Lebens und einen Teil des Lebens seiner Kinder verloren.
+«Dieser Impfstoff hat mir meine Karriere genommen und die Zukunft, für die ich so hart gearbeitet habe»,
+sagte Flint. «Ich habe all meine Ersparnisse aufgebraucht, um Arztrechnungen zu bezahlen, nur um zu
+überleben. Meine Familie steht kurz davor, alles zu verlieren, was wir haben.»
+Flint, der sich für die Wissenschaft und die Impfung einsetzt, sagte, das Hauptproblem liege darin, dass die
+US Food and Drug Administration (FDA), die Centers for Disease Control and Prevention (CDC) und die NIH
+(National Institutes of Health) weigern sich anzuerkennen, dass dieser Impfstoff wirklich Leben zerstört.
+«Die Bundesregierung hat noch keinem einzigen Impfgeschädigten geholfen», sagte Flint. «Meines Erachtens hat die Bundesregierung die Verantwortung übernommen, Menschen zu helfen, die durch Impfstoffe
+geschädigt wurden, da sie den pharmazeutischen Unternehmen volle rechtliche Immunität gegenüber Menschen wie mir gewährt hat.»
+Flint sagte, es sei an der Zeit, dass die Regierung damit aufhöre, Impfstoffverletzungen wie die seinen zum
+Schweigen zu bringen, und es sei unverantwortlich, dass diese Behörden nicht helfen.
+Oberstleutnant Theresa Long (101:00), eine Chirurgin der US-Armee, sagte, sie glaube, dass der COVIDImpfstoff eine grössere Bedrohung für die Gesundheit der Soldaten und die militärische Einsatzbereitschaft
+darstelle als das Virus selbst.
+«Mehr als 200.000 Soldaten haben den Impfstoff abgelehnt, doch das Militär macht weiter, ohne Rücksicht
+auf den Schaden für die Moral und die Bereitschaft, diese Soldaten zu verarbeiten», sagte Long. «Wir haben
+noch nie 200.000 Soldaten innerhalb weniger Monate auf dem Schlachtfeld verloren. Soldaten aus der Uniform zu nehmen, hat dieselben Auswirkungen auf die Bereitschaft wie sie auf dem Schlachtfeld zu verlieren.»
+Long erklärte, sie habe versucht, die Führungsebene des Militärs dazu zu bewegen, die Soldaten über die
+Risiken von Impfstoffen zu informieren, wie es die informierte Zustimmung verlangt.
+Sie sagte, dass sie an einem Tag drei von drei Piloten aufgrund von COVID-Impfstoffverletzungen am Boden
+halten musste. Als sie dies ihrem Kommando mitteilte, wurden ihre Patienten abbestellt, ihre Krankenblätter zur Überprüfung herangezogen und Long wurde mitgeteilt, dass sie keine akuten Patienten mehr behandeln würde – nur gesunde Piloten, die untersucht werden müssten.
+
+
+-----
+
+Ernest Ramirez (1:16:40) aus Texas sagte, sein einziger Sohn, 16 Jahre alt, sei beim Basketballspielen zusammengebrochen und an einer Herzmuskelentzündung gestorben, die auf die Impfung von Pfizer zurückzuführen war. Ramirez liess seinen Sohn von Pfizer impfen, um ihn zu schützen, weil es das Richtige war.
+«Meine Regierung hat mich belogen», sagte Ramirez. «Sie sagten, es sei sicher, und jetzt gehe ich nach
+Hause in ein leeres Haus», sagte Ramirez. „Sie müssen aufhören, dies den Kindern aufzudrängen. Ich habe
+mein Kind verloren, und Sie müssen Ihres schützen“.
+Ramerez sagte, der Impfstoff sei die Risiken nicht wert, und er wolle nur seinen Sohn zurück. «Machen Sie
+nicht den Fehler, den ich gemacht habe. Ich habe es getan, weil ich dachte, es sei eine grossartige Sache
+zu tun. Das war es aber nicht.»
+«Am 17. Dezember 2020 führten sie eine Studie durch und wussten, dass er (der COVID-Impfstoff) bei
+Teenagern Herzprobleme verursachen würde. Warum wurde sie erst im Oktober dieses Jahres veröffentlicht?» fragte Ramerez. «Das ist Mord.»
+«Ich liebe mein Land verdammt noch mal», sagte Ramerez, «aber ich vertraue meiner Regierung nicht
+mehr.»
+Kyle Werner (123:40:40) ist ein 29-jähriger professioneller Mountainbike-Rennfahrer und dreimaliger nationaler Meister aus Idaho, bei dem nach einer Impfung eine Herzbeutelentzündung diagnostiziert wurde.
+Werner sagte, er habe sich impfen lassen, weil sein Land ihn dazu aufforderte und er glaubte, dass der
+Impfstoff sicher und wirksam sei.
+«Im Juni schloss ich mich der schnell wachsenden Zahl junger Männer an, die nach der mRNA-Impfung
+eine Perikarditis – eine Entzündung der das Herz umgebenden Schleimhaut – entwickelten», sagte Werner.
+«Diese Erkrankung, zusammen mit POTS (posturale orthostatische Tachykardie) und reaktiver Arthritis, hat
+dem Leben, wie ich es kannte, ein Ende gesetzt.»
+Werner sagte, er sei seit Monaten bettlägerig, arbeitsunfähig und nicht in der Lage, Sport zu treiben. Er befürchtet, dass seine Karriere ‹offiziell beendet ist›.
+Werner sagte, er fordere die Regierung nicht auf, das Impfprogramm zu beenden, er wolle nur etwas Transparenz und die Anerkennung dessen, was geschieht, damit ‹wir als Land› eine ehrliche Diskussion über die
+Risiken führen können.
+
+«Wo es ein Risiko gibt, muss es auch eine Wahl geben, und wenn wir nicht zugeben, dass Menschen ernsthaft verletzt werden und sterben, erweisen wir dem amerikanischen Volk einen grossen Bärendienst», sagte
+Werner.
+«Es wird geschätzt, dass Moderna und Pfizer in diesem Jahr 60 Milliarden Dollar mit COVID-Impfstoffen
+verdienen werden», sagte Werner. «Mit der Einführung von Auffrischungsimpfungen und gesetzlichen Vorschriften scheint es so, als ob ein Grossteil davon wiederkehrende Einnahmen sein werden.»
+Werner schlug vor, einen Teil des Gewinns für die Erforschung von Impfschäden und die Entschädigung
+von Impfgeschädigten zur Seite zu legen.
+Douglas Cameron (127:29]) war ein gesunder und körperlich aktiver 64-Jähriger, bevor er am 5. April an
+seinem Arbeitsplatz die Impfung von Johnson & Johnson (J&J) erhielt. Am Tag nach der Impfung traten
+bei ihm Nebenwirkungen auf, die er auf den Impfstoff zurückführte.
+«Ich verlor die Kontrolle über meine Blase, litt unter ED (erektile Dysfunktion), meine Beine fühlten sich
+seltsam an, ich hatte ein (…) Gefühl in den Hüften» und «in den nächsten Tagen verschlimmerten sich
+meine Symptome und ich wurde alarmiert.»
+Cameron begab sich in die Notaufnahme, wo er den Ärzten erklärte, er habe vor kurzem den Impfstoff von
+J&J erhalten. Er wurde positiv auf COVID getestet und unterzog sich einer Reihe von Tests, bevor er nach
+Hause geschickt wurde.
+Drei Tage später erzählte Cameron seiner Frau, dass er sich fühle, als hätte er Gift getrunken. «Mein ganzer
+Körper fühlte sich anders an», sagte Cameron. «Ich ging nachts um 22.00 Uhr ins Bett und wachte um 2.00
+Uhr morgens auf, gelähmt vom Zwerchfell abwärts.»
+Die Ärzte stellten fest, dass Cameron ein Blutgerinnsel in seinem Bein hatte und sein gesamtes Rückenmark
+angeschwollen war und blutete. Er wurde an ein Beatmungsgerät angeschlossen, lag zwei Wochen lang auf
+der Intensivstation und verbrachte 105 Tage im Krankenhaus und in Reha-Zentren.
+«Ich habe mehrere MRTs, CT-Scans, EKGs, Röntgenaufnahmen, Wirbelsäulenangiogramme, Lumbalpunktionen, Autoimmunbluttests und Muskelbiopsien durchführen lassen – alles mit negativem Ergebnis, um zu
+versuchen, meine Lähmung auf meinen Körper und nicht auf den J&J-Impfstoff zurückzuführen», sagte
+Cameron. «Heute bin ich ein arbeitsloser Querschnittsgelähmter, der einen völlig neuen Lebensstil erlernt,
+und das Einzige, was ich zwischen voller Gesundheit und meinem jetzigen Zustand getan habe, war eine
+Impfung.»
+Bei Suzanna Newell (1:32:30), einer ehemaligen Triathletin aus Minnesota, wurde eine Autoimmunerkrankung diagnostiziert, nachdem sie am 13. April ihre zweite Dosis von Pfizer erhalten hatte. Sie braucht jetzt
+eine Gehhilfe oder einen Stock, um sich fortzubewegen.
+
+
+-----
+
+Seit Newell verletzt wurde, hat sie nur noch wenig Motivation und Energie. Sie leidet unter extremer Müdigkeit, hat Schwierigkeiten, Wörter abzurufen, kann sich nicht konzentrieren oder fokussieren, hat Ohrensausen, verschwommenes Sehen, Muskelkrämpfe, innere Vibrationen und Gelenkschmerzen. Bei Newell wurde
+eine Small-Fiber-Neuropathie, eine Autoimmunerkrankung, diagnostiziert, und sie ist jetzt arbeitsunfähig.
+«Es handelt sich nicht um eine Pandemie der Ungeimpften. Dies ist eine Pandemie des Traumas». sagte
+Newell. «Wir werden unnötig traumatisiert, weil unsere Fälle übersehen, falsch diagnostiziert und verschwiegen werden. Uns wird nicht geglaubt, und unser Vertrauen in die Medien und die Regierung ist ins Wanken
+geraten.»
+Newell sagte, die Öffentlichkeit habe zumindest ein Recht darauf zu wissen, dass Verletzungen möglich
+sind, bevor sie geimpft werden. Newell sagte, sie sei begeistert, den Impfstoff zu bekommen, um ihren Teil
+für ihr Land zu tun, aber ‹wo ist mein Land jetzt?›
+Kelly Ann Rodriguez (1:43:30), eine 35-jährige Mutter aus Washington, braucht nach ihrer zweiten Impfdosis von Pfizer am 5. Mai eine Gehhilfe.
+«Am 29. Juni kam mein vorhersehbares Leben zum Stillstand», sagte Rodriguez. «Ich habe meine Fähigkeit
+verloren, natürlich zu sprechen. Ich bin nicht mehr in der Lage, ohne Gehhilfe zu gehen, und ich weiss nicht,
+ob oder wann das Zittern wieder aufhört. Ich kann nicht mehr kochen, putzen oder auch nur mein Baby
+hochheben oder halten, bevor mein Körper unkontrolliert zu zittern beginnt oder unerträgliche Schmerzen
+verursacht.» erklärte Rodriguez.
+«Dies ist die einsamste und isolierendste Erfahrung in meinem 35-jährigen Leben geworden. Man hat mir
+das Gefühl gegeben, dass ich den Vertretern der westlichen Medizin egal bin. Dass ich nichts weiter als ein
+Ärgernis und Zeitverschwendung bin. Ich verdiene es, angehört und mit Mitgefühl behandelt zu werden,
+aber stattdessen wurde ich als Lügnerin und Schwindlerin bezeichnet, und die Ärzte in der Notaufnahme
+sagten mir sogar, dass ich mir das alles nur einbilde und dass medizinisch nichts mit mir nicht in Ordnung
+sei, bis zu dem Punkt, an dem sie einen Sozialarbeiter anriefen, um mich untersuchen und in eine psychiatrische Klinik einweisen zu lassen.»
+Maddie de Garay aus Ohio meldete sich im Alter von 12 Jahren freiwillig für die Impfstoffstudie von Pfizer.
+Am 20. Januar erhielt Maddie als Teilnehmerin der klinischen Studie für 12- bis 15-Jährige ihre zweite
+Dosis des COVID-Impfstoffs von Pfizer und sitzt nun im Rollstuhl.
+Ihre unerwünschte Reaktion auf den Impfstoff wurde von der FDA, der CDC, Pfizer und den MainstreamMedien völlig ignoriert.
+Maddie und ihre Mutter, Stephanie de Garay, nahmen auch an Johnsons Pressekonferenz am 29. Juni für
+impfgeschädigte Familien teil. De Garays Mutter sagte, dass weder Pfizer noch die FDA oder die CDC sie
+wegen des Zustands ihrer Tochter kontaktiert haben und dass Maddies unerwünschtes Ereignis aus den
+Daten, die Pfizer über seine klinische Studie berichtete, ausgeschlossen wurde.
+Bei Dr. Joe Wallskog (3:01:00), einem orthopädischen Chirurgen aus Wisconsin, wurde nach einer Moderna-Impfung am 30. Dezember eine transversale Myelitis diagnostiziert. Wallskog ist seit dem Versuch, zwei
+Wochen nach seiner Diagnose wieder zu arbeiten, von der Arbeit freigestellt, da er als orthopädischer Chirurg nicht mehr sicher arbeiten kann.
+Wallskog wurde von den US-Gesundheitsbehörden nicht kontaktiert, abgesehen von der CDC, die bestätigte,
+dass seine Meldung an den Vaccine Adverse Event Reporting stem (VAERS) übermittelt wurde. Seine Verletzung wurde nicht als ‹schwer› eingestuft, da er nicht ins Krankenhaus eingeliefert wurde und nicht starb.
+«Mein Leben hat sich nach dieser unerwünschten Reaktion dramatisch verändert», sagte Wallskog: «Die
+Karriere, die ich 19 Jahre lang hatte und für die ich 14 Jahre lang trainiert habe, ist wahrscheinlich vorbei.»
+Brianne Dressen (2:40:00), eine Teilnehmerin an der klinischen Studie von AstraZeneca in den USA, ist
+Mitbegründerin von react19.org, einer Patientenorganisation, die sich für eine stärkere Sensibilisierung für
+unerwünschte Ereignisse einsetzt.
+Dressen nahm an Johnsons Pressekonferenz am 29. Juni teil, und ihr Ehemann äusserte sich öffentlich gegenüber der FDA während ihrer jüngsten Anhörung über die Zulassung des COVID-Impfstoffs von Pfizer für
+5 bis 11-Jährige.
+Dressen erlitt im November 2020 ein unerwünschtes Ereignis während der klinischen Studie von AstraZeneca, wurde aus der Studie ausgeschlossen und ihre Reaktion wurde aus den von AstraZeneca gemeldeten Daten ausgeschlossen.
+Dressen sagte:
+«Die Leiter der NIH, der FDA und der CDC haben aus erster Hand von meinem Fall und von Tausenden anderen gewusst», sagte Dressen. «Diese direkten Berichte begannen bereits im vergangenen Dezember. Zusammen mit mehreren geschädigten Ärzten habe ich mich per E-Mail und Telefonanruf an die FDA gewandt. Wir haben E-Mails und Videokonferenzen mit Peter Marks und Janet Woodcock durchgeführt.»
+Dressen sagte, sie habe ‹wiederholt darum gebeten und gebettelt, dass sie diese Reaktionen anerkennen›,
+aber man habe sich geweigert.
+
+
+-----
+
+«Sie wissen, dass ihre fehlende Anerkennung ein unüberwindbares Hindernis für unsere Fähigkeit geschaffen hat, medizinische Versorgung von Ärzten zu erhalten, die sich auf die Informationen dieser Agenturen
+verlassen», sagte Dressen.
+Dressen sagte, die US-Gesundheitsbehörden seien sich der Impfstoffverletzungen, der Todesfälle, der mangelnden Weiterverfolgung von VAERS, der Verletzungen von Kindern, der Probleme mit klinischen Studien,
+der wissenschaftlichen und medialen Zensur und der den Verletzten auferlegten Mandate bewusst. «Sie
+wissen das alles», sagte Dressen, «und das schon seit Monaten.»
+Dressen sagte, dass das NIH, ein Institut, an das sich viele um Hilfe wandten, keine Anrufe von Impfgeschädigten mehr annimmt.
+«Hier ist Ihre ordnungsgemässe Einverständniserklärung. Wenn Sie COVID bekommen, werden Sie medizinische Hilfe bekommen», sagte Dressen. «Aber ich habe Angst, Ihnen zu sagen, dass Sie auf sich allein gestellt sind, wenn Sie eine unerwünschte Reaktion haben. Die Regierung wird Ihnen nicht helfen. Die Pharmaunternehmen werden Ihnen nicht helfen. Die medizinischen Teams wissen nicht, wie sie Ihnen helfen können. Finanziell sind Sie auf sich allein gestellt. Sie werden völlig auf sich allein gestellt sein.»
+Dressen beendete ihre Aussage mit dem Brief einer Freundin, die Selbstmord beging, weil sie ihre COVIDImpfverletzung nicht mehr ertragen konnte.
+_QUELLE: VACCINE-INJURED SPEAK OUT, FEEL ABANDONED BY GOVERNMENT WHO TOLD THEM COVID SHOT WAS SAFE_
+_Quelle:_ _https://uncutnews.ch/in-einer-live-veranstaltung-melden-sich-impfgeschaedigte-und-fuehlen-sich-von-der-regie-_
+_rung-im-stich-gelassen-die-ihnen-versicherte-die-covid-spritze-sei-sicher/_
+
+## Britischer Bestattungsunternehmer: Tote Babys stapeln sich in Leichenhallen
+_uncut-news.ch, November 7, 2021_
+
+Ein britischer Bestattungsunternehmer sagt in einem Interview auf Brighteon.com, dass sich in den Kühlhäusern und Leichenhallen unzählige tote Babys und Neugeborene stapeln, die auf ihre Beerdigung warten.
+Die beispiellose Anzahl von Babys, mit denen er und andere Bestatter zu tun haben, wird nur noch von der
+übermässigen Anzahl jüngerer Menschen in ihren 30er und 40er Jahren übertroffen, die seit der Einführung
+des COVID-19-Impfstoffs gestorben sind, sagt er.
+Zu Beginn der Pandemie verzeichneten die Bestattungsinstitute eine Flut von Todesfällen, die sich nach
+einigen Monaten wieder beruhigten, obwohl die Medien weiterhin über die COVID-Todesfälle berichteten.
+Im Sommer 2020 kam es zu einem Anstieg der Selbstmorde, vor allem bei jüngeren Männern, aber im
+Herbst 2020 war es dann eher ruhig.
+Und dann, sagt er, «im Januar (2021) gingen die Zahlen durch die Decke … und das, weil die Leute geimpft
+wurden.» Jetzt hat er die meisten Beerdigungen, die er je in einem Zeitraum von zwei Wochen gesehen hat,
+und bei jüngeren Menschen sind es im Durchschnitt etwa 12 auf einmal, während er vor der Impfung nur
+vier oder fünf Beerdigungen hatte, nicht 12, und nicht alle in dieser Altersgruppe.
+Und jetzt, sagt er, sieht er viele Neugeborene … «wirklich hoch, etwa 30», während er sonst nur drei oder
+vier gesehen hat. Mit anderen Worten: Es sterben etwa zehnmal so viele Neugeborene, wie er es normalerweise erlebt hat – so viele, dass sie in der Erwachsenenabteilung untergebracht werden müssen, in der es
+mehr Platz hat. «Offensichtlich handelt es sich entweder um Fehlgeburten oder Frühgeburten, aber darüber
+wird nicht viel geredet», sagt er.
+Um die Todesursachen zu relativieren, sagt er, dass es in diesem Jahr nur einen COVID-Todesfall gegeben
+hat. Bei allen anderen handelt es sich um Myokarditis, Infarkte (Herzinfarkte) und einige Lungenentzündun
+
+-----
+
+gen. Er weist auch darauf hin, dass jeder, der zu Beginn der Pandemie starb, auf dem Totenschein als
+COVID-Todesfall vermerkt wurde, was aber seit der Einführung des Impfstoffs nicht mehr der Fall ist.
+**_(Anmerkung: Siehe https://www.brighteon.com/40d98220-7c11-4a72-80b3-9243266a9bb0)_**
+_Quelle: https://uncutnews.ch/britischer-bestattungsunternehmer-tote-babys-stapeln-sich-in-leichenhallen/_
+
+## 3 weitere Berichte über Todesfälle bei Teenagern  nach COVID-Impfungen, und die Zahl der gemeldeten  Verletzungen steigen auf mehr als 850.000 Fälle
+_uncut-news.ch, November 7, 2021_
+
+childrenshealthdefense.org: Die heute von der CDC veröffentlichten VAERS-Daten umfassen insgesamt
+856.919 Berichte über unerwünschte Ereignisse aus allen Altersgruppen nach COVID-Impfstoffen, darunter
+18.078 Todesfälle und 131.027 schwere Verletzungen die zwischen dem 14. Dezember 2020 und dem 29.
+Oktober 2021 aufgetreten sind.
+Die Daten enthalten insgesamt 18.078 Meldungen über Todesfälle – ein Anstieg von 459 gegenüber der
+Vorwoche. Im gleichen Zeitraum wurden 127.457 schwere Verletzungen, einschliesslich Todesfälle, gemeldet – 3.570 mehr als in der Vorwoche.
+Ohne ‹ausländische Meldungen› an VAERS wurden in den USA zwischen dem 14. Dezember 2020 und
+dem 29. Oktober 2021 insgesamt 634.609 unerwünschte Ereignisse, darunter 8.284 Todesfälle und 52.685
+schwere Verletzungen, gemeldet.
+Von den bis zum 29. Oktober gemeldeten 8.284 Todesfällen in den USA traten 10% innerhalb von 24 Stunden nach der Impfung auf, 15% innerhalb von 48 Stunden nach der Impfung und 26% bei Personen, bei
+denen die Symptome innerhalb von 48 Stunden nach der Impfung auftraten.
+In den USA waren bis zum 29. Oktober 418,6 Millionen COVID-Impfdosen verabreicht worden. Darin enthalten sind: 246 Millionen Dosen von Pfizer, 157 Millionen Dosen von Moderna und 15 Millionen Dosen
+von Johnson & Johnson (J&J).
+
+Die Daten stammen direkt aus Berichten, die bei VAERS eingereicht wurden, dem wichtigsten staatlich
+finanzierten System zur Meldung von Impfschäden in den USA.
+Jeden Freitag veröffentlicht VAERS alle Meldungen über Impfschäden, die bis zu einem bestimmten Datum
+eingegangen sind, in der Regel etwa eine Woche vor dem Veröffentlichungstermin. Die an VAERS übermittelten Meldungen erfordern weitere Untersuchungen, bevor ein kausaler Zusammenhang bestätigt werden
+kann. In der Vergangenheit hat sich gezeigt, dass VAERS nur 1% der tatsächlichen unerwünschten Impfstoffereignisse meldet.
+
+
+-----
+
+Die US-Daten dieser Woche für die 12- bis 17-Jährigen zeigen:
+22.584 unerwünschte Ereignisse insgesamt, davon 1.383 als schwerwiegend eingestufte und 28 gemeldete
+Todesfälle. Zwei der 28 Todesfälle waren Selbstmorde.
+Zu den jüngsten Todesfällen gehören ein 12-jähriges Mädchen aus South Carolina (VAERS-Identifikationsnummer 1784945), das 22 Tage nach der Verabreichung des COVID-Impfstoffs von Pfizer blutete, ein 13jähriges Mädchen aus Maryland (VAERS-Identifikationsnummer 1815096), das 15 Tage nach der Verabreichung der ersten Dosis des COVID-Impfstoffs von Pfizer an einem Herzleiden starb, und eine 17-jährige
+Frau aus Texas (VAERS-Identifikationsnummer 1815295), die 33 Tage nach der Impfung eine akute Hyperglykämiekrise erlitt.
+Ein weiterer Todesfall aus jüngster Zeit betrifft ein 12-jähriges Mädchen (VAERS I.D. 1784945), das 22 Tage
+nach Verabreichung der ersten Dosis des Impfstoffs von Pfizer an einer Blutung der Atemwege starb.
+59 Berichte über Anaphylaxie bei 12- bis 17-Jährigen, bei denen die Reaktion lebensbedrohlich war, eine
+Behandlung erforderte oder zum Tod führte – wobei 96% der Fälle auf den Impfstoff von Pfizer zurückgeführt werden.
+547 Berichte über Herzmuskelentzündung (Myokarditis) und Herzbeutelentzündung (Perikarditis), wobei
+539 Fälle auf den Impfstoff von Pfizer zurückgeführt wurden.
+126 Berichte über Blutgerinnungsstörungen, wobei alle Fälle auf Pfizer zurückgeführt werden.
+Die diese Woche in den USA veröffentlichten VAERS-Daten für den Zeitraum vom 14. Dezember 2020 bis
+zum 29. Oktober 2021 für alle Altersgruppen zusammen zeigen:
+19% der Todesfälle waren auf Herzkrankheiten zurückzuführen.
+54% der Verstorbenen waren männlich, 42% waren weiblich, und bei den übrigen Todesmeldungen wurde
+das Geschlecht der Verstorbenen nicht angegeben.
+Das Durchschnittsalter der Verstorbenen lag bei 72,7 Jahren.
+Bis zum 29. Oktober meldeten 4206 schwangere Frauen unerwünschte Ereignisse im Zusammenhang mit
+COVID-Impfstoffen, darunter 1320 Berichte über Fehl- oder Frühgeburten.
+Von den 3.090 gemeldeten Fällen von Glockenlähmung wurden 51% auf Impfungen von Pfizer, 41% auf
+Moderna und 8% auf J&J zurückgeführt.
+705 Berichte über das Guillain-Barré-Syndrom, wobei 41% der Fälle auf Pfizer, 31% auf Moderna und 28%
+auf J&J zurückgeführt wurden.
+2.072 Berichte über Anaphylaxie, wobei die Reaktion lebensbedrohlich war, eine Behandlung erforderte
+oder zum Tod führte.
+10.686 Berichte über Blutgerinnungsstörungen. Davon wurden 4.698 Berichte Pfizer, 3.815 Berichte Moderna und 2.119 Berichte J&J zugeschrieben.
+3.030 Fälle von Myokarditis und Perikarditis, wobei 1.899 Fälle Pfizer, 998 Fälle Moderna und 123 Fälle
+dem COVID-Impfstoff von J&J zugeschrieben werden.
+CDC genehmigt den COVID-Impfstoff von Pfizer für Kinder von 5 bis 11 Jahren
+CDC-Direktorin Dr. Rochelle Walensky hat am 3. November die Empfehlung des Advisory Committee on
+Immunization Practices (ACIP) gebilligt, Kinder zwischen 5 und 11 Jahren mit dem pädiatrischen COVIDImpfstoff von Pfizer gegen COVID zu impfen.
+Die jüngere Altersgruppe erhält ein Drittel der Dosis, die für Kinder ab 12 Jahren zugelassen ist, und zwar
+in zwei Spritzen, die im Abstand von mindestens drei Wochen verabreicht werden. Die Dosen werden mit
+kleineren Nadeln verabreicht und in kleineren Fläschchen aufbewahrt, um eine Verwechslung mit Dosen
+für Erwachsene zu vermeiden.
+Die CDC war besorgt darüber, dass COVID-Fälle bei Kindern zu Krankenhausaufenthalten, Todesfällen, dem
+Multisystem-Entzündungssyndrom (MIS-C) und Komplikationen wie ‹lange COVID› führen können, bei denen die Symptome monatelang anhalten können.
+Auf der ACIP-Sitzung erklärte die CDC, dass seit Beginn der Pandemie insgesamt 745 Kinder unter 18 Jahren an COVID gestorben sind – obwohl das COVID-Team einräumte, dass 79% wegen COVID ins Krankenhaus eingeliefert wurden, während der Rest aus anderen Gründen ins Krankenhaus eingeliefert wurde.
+Die Genehmigung der CDC stützte sich hauptsächlich auf eine Studie von Pfizer-BioNTech mit 4.600 Kindern weltweit, von denen etwa 3.100 den niedrig dosierten Impfstoff und etwa 1.500 ein Placebo erhielten.
+Von den 3.100 Kindern in der Impfstoffgruppe wurden nur 264 Kinder auf Antikörper getestet, um die
+Wirksamkeit des Impfstoffs von Pfizer zu ermitteln.
+Impfgeschädigte äussern sich auf einer Veranstaltung von Sen. Ron Johnson
+Während einer Veranstaltung, die am Dienstag von US-Senator Ron Johnson (R-Wis.) ausgerichtet wurde,
+sagten Menschen, deren Leben durch COVID-Impfstoffe ruiniert wurde, dass sie sich von einer Regierung
+im Stich gelassen fühlen, die ihnen sagte, es sei ihre patriotische Pflicht, sich impfen zu lassen.
+Johnson diskutierte mit einem Expertengremium aus Klinikern, Wissenschaftlern, Anwälten und Patientenvertretern sowie mit Menschen, die durch COVID-Impfstoffe geschädigt wurden und ihre Erfahrungen eindringlich schilderten.
+
+
+-----
+
+Johnson und das Expertengremium diskutierten über die Bedeutung einer frühzeitigen Behandlung von
+COVID, die Freiheit der Gesundheitsversorgung und die natürliche Immunität, die Auswirkungen der Vorschriften auf die amerikanischen Arbeitskräfte und die Wirtschaft, die Sicherheitsbedenken in Bezug auf
+COVID-Impfstoffe und die mangelnde Transparenz der Bundesgesundheitsbehörden als Reaktion auf seine
+COVID-Aufsichtsanfragen.
+«Die Wahrheit über diese Impfstoffe wird nicht gesagt», sagt eine Krebsüberlebende, die durch einen PfizerImpfstoff geschädigt wurde.
+In einem Exklusivinterview mit The Defender sagte Diane Ochoa, eine 63-jährige Krebsüberlebende aus
+Georgia, dass bei ihr die seltenen Autoimmunkrankheiten Guillain-Barré-Syndrom (GBS) und chronisch
+entzündliche demyelinisierende Polyneuropathie (CIDP) diagnostiziert wurden, nachdem sie ihre zweite
+Dosis des Impfstoffs COVID von Pfizer erhalten hatte.
+Am 16. April erhielt Ochoa über ihren Arbeitgeber ihre zweite Dosis von Pfizer und fühlte sich innerhalb
+von 45 Minuten krank. Sie litt unter Übelkeit, extremem Durchfall und Schmerzen am ganzen Körper, die
+sich nach und nach verschlimmerten und sich durch ihren Körper frassen.
+Ochoa war bei zahlreichen Ärzten, bevor die Diagnose gestellt wurde, und hat die letzten sechs Monate
+damit verbracht, sich von ihrer Krankheit zu erholen, die sie mit ‹schrecklichen Schmerzen› zurückliess, unfähig, ohne Hilfe zu gehen oder sich selbst zu versorgen.
+Ochoa sagte, sie sei besorgt über den ‹Mangel an Studien zu diesem Impfstoff› und über die Möglichkeit,
+dass andere Menschen langfristige Folgen erleiden könnten, selbst wenn sie keine unmittelbaren Auswirkungen erlitten haben wie sie.
+„Mein nächtlicher Albtraum ist, dass unsere Kleinen das ertragen müssen, weil die Wahrheit über diese
+Impfstoffe nicht gesagt wird“, sagte Ochea.
+Schulen bezahlen Kinder für COVID-Impfungen.
+Einige Schulen bezahlen Kinder dafür, dass sie gegen COVID geimpft werden. Laut TIME vergeben Schulen
+in Phoenix Geschenkgutscheine im Wert von 100 Dollar. In Los Angeles können Schüler Geschenkgutscheine oder eine Freikarte für den Abschlussball oder die Abschlussfeier gewinnen, wenn sie sich impfen
+lassen.
+Louisiana bietet 100 Dollar für Kinder, die sich impfen lassen, und in San Antonio, Texas, können Eltern
+einen 100-Dollar-Gutschein für H-E-B-Lebensmittelgeschäfte gewinnen. In New York City werden Kinder im
+Alter von 5 Jahren für die Impfung bezahlt.
+«Wir wollen wirklich, dass Kinder und Familien davon profitieren», sagte der New Yorker Bürgermeister Bill
+de Blasio am Donnerstag. «Jeder kann in den Ferien ein bisschen mehr Geld gebrauchen. Aber vor allem
+wollen wir, dass unsere Kinder und unsere Familien sicher sind.»
+Einige Kritiker halten die Bezahlung von Impfungen für Bestechung, aber Schulbezirke, die Anreize für
+Kinder schaffen, halten dies für sinnvoll, weil es die Sicherheit von Schülern und Personal gewährleistet.
+_QUELLE: 3 MORE REPORTS OF TEEN DEATHS AFTER COVID VACCINES, AS REPORTED INJURIES EXCEED 850,000_
+_Quelle: https://uncutnews.ch/3-weitere-berichte-ueber-todesfaelle-bei-teenagern-nach-covid-impfungen-und-die-zahl-der-_
+_gemeldeten-verletzungen-steigen-auf-mehr-als-850-000-faelle/_
+
+## Verbreitung des richtigen Friedenssymbols
+Das falsche Friedenssymbol – die heute weltweit verbreitete sogenannte <Todesrune>, die
+
+**Es soll FRIEDEN sein auf Erden** aus den keltischen Futhark-Runen resp. der umgedrehten Algiz-Rune fabriziert wurde – ist
+
+**And there shall be PEACE on Earth** der eigentliche Inbegriff negativer Einflüsse und schafft zerstörerische Schwingungen hin
+sichtlich Unfrieden, Fehden und Hass, Rache, Laster, Süchte und Hörigkeit, denn die <To
+**AMANI** **ΕΙΡΗΝΗ** desrune> bedeutet für viele Menschen Reminiszenzen an die NAZI-Zeit, an Tod und Verder**BARIŞ** **VREDE** ben, wie aber auch Ambitionen in bezug auf Kriege, Terror, Zerstörungen vieler menschlicher
+**PAQE** **��** Errungenschaften und allen notwendigen Lebensgrundlagen jeder Art und weltweit Unfrie**PACE** **שרום** den.
+**МИР** शांित Es Ist wirklich dringlichst notwendig, dass die <Todesrune> als falschen Friedenssymbol,
+**PAIX** **���** das Unfrieden und Unruhe schafft, völlig aus der Erdenwelt verschwindet und dadurch das
+**PAZ** **��** uralte sowie richtige Peacesymbol auf der ganzen Erde verbreitet und weltbekannt gemacht
+
+wird, dessen zentrale Elemente Frieden, Freiheit, Harmonie, Stärkung der Lebenskraft,
+
+**FIGU.ORG** Schutz, Wachstum und Weisheit reflektieren, aufbauend wirken und sehr besänftigend und
+
+**FIGU, Semjase-Silver-Star-Center, 8495 SchmidrütiSchweiz/Switzerland  Tel. + 41 (0)52 385 13 10** friedlich-positiven Schwingungen zum Durchbruch verhelfen, die effectiv Frieden, Freiheit
+
+und Harmonie vermitteln können! Wir wenden uns deshalb an alle vernünftigen Menschen
+der Erde, an alle FIGU-Interessengruppen, FIGU-Studiengruppen und FIGU-Landesgruppen und damit an alle vernünftigen und ehrlich
+nach Frieden, Freiheit, Harmonie, Gerechtigkeit, Wissen und Evolution strebenden Menschen, ihr Bestes zu tun und zu geben, um das
+richtige Friedenssymbol weltweit zu verbreiten und Aufklärung zu schaffen über die gefährliche und destruktive Verwendung der
+<Todesrune>, die in Erinnerung an die NAZI-Verbrechen kollektiv im Sinnen und Trachten der Menschen Charakterverlotterung, Ausartung und Unheil fördert, wie das leider auch nach dem Ende des letzten Weltkrieges 1939–1945 extrem bis in die heutige Zeit
+hineingetragen wird.
+
+
+-----
+
+## Spreading of the Correct Peace Symbol
+The wrong peace symbol – the globally widespread “death rune” which has been fabricated from the Celtic Futhark runes or inverted
+Algiz rune – is the actual embodiment/quintessence of negative influences and evokes destructive swinging-waves regarding unpeace
+and hatred, revenge, vice, addictions and bondage, because for many human beings the “death rune” means reminiscence (memories)
+of the Nazi era, of death and ruin as well as ambitions concerning war, terror, destruction of human achievements, livelihoods as well
+as global evil unpeace.
+Therefore it is of the utmost necessity that the wrong peace symbol, the “death rune”, disappears from the world and that the urancient and correct peace symbol is spread and made known all-over the world, because its central elements reflect peace, freedom,
+harmony, strengthening of the life power, protection, growth and wisdom, have a constructive and strongly soothing effect, and help
+peaceful-positive swinging-waves to break through.
+Therefore we appeal to all FIGU members, all FIGU Interessengruppen, Studiengruppen and Landesgruppen as well to all reasonable
+human beings, who are honestly striving for peace, freedom, harmony, fairness, knowledge and evolution, to do, and give, their best
+to spread the correct peace symbol worldwide and to bring forth clarification about the dangerous and destructive use of the “death
+rune”, which in memory of the Nazi crimes collectively furthers deterioration and neglect of character-"ausartung" and terribleness in
+the reflecting and striving of the human being, as this is still being extremely carried on after the end of the last world war 1939–1945
+until the current time.
+
+**Autokleber** **Bestellen gegen Vorauszahlung:** **E-Mail, WEB, Tel.:**
+**Grössen der Kleber:** **FIGU** info@figu.org
+120x120 mm = CHF 3.– Hinterschmidrüti 1225 www.figu.org
+250x250 mm = CHF 6.– 8495 Schmidrüti Tel. 052 385 13 10
+300X300 mm = CHF 12.– Schweiz Fax 052 385 42 89
+
+## Das Erlauben
+Kein Mensch ist jemals in der Lage,
+dem Nächsten etwas in irgendeiner
+Form zu erlauben, wenn dieser das
+Erlauben sich nicht selbst gestattet.
+SSSC Hinterschmidrüti
+12. Januar 2005, 17.08 h, Billy
+
+**IMPRESSUM** **Für CHF/EURO 10.– in einem Couvert, senden**
+
+**wir Ihnen/Dir 3 Stück farbige Friedenskleber**
+**Druck und Verlag: FIGU** Wassermannzeit-Verlag, **der Grösse** **120x120 mm = am Auto aufkleben.**
+Semjase Silver Star Center, Hinterschmidrüti 1225, 8495 Schmidrüti, Schweiz
+**FIGU-ZEITZEICHEN erscheint zweimal monatlich**
+**FIGU-Sonder-ZEITZEICHEN erscheint sporadisch**
+Wird auch im Internetz veröffentlicht, auf der FIGU-Webseite: www.figu.org/ch
+**Redaktion: BEAM** ‹Billy› Eduard Albert Meier /././ Telephon +41(0)52 38513 10 (7.00 h – 19.00 h) / Fax +41(0)52 385 42 89
+**Postcheck-Konto: PC 80-13703-3 FIGU Freie Interessengemeinschaft, 8495 Schmidrüti, Schweiz**
+**IBAN: CH06 0900 0000 8001** **3703-3,**
+
+**E-Brief: info@figu.org**
+**Internetz: www.figu.org**
+**FIGU-Shop: http://shop.figu.org**
+
+**© FIGU 2021**
+Einige Rechte vorbehalten.
+Dieses Werk ist, wo nicht anders
+angegeben, lizenziert unter: Geisteslehre Friedenssymbol
+www.figu.org/licenses/by-nc-nd/2.5/ch/
+
+**Frieden**
+
+**Die nichtkommerzielle Verwendung ist daher ohne weitere Genehmigung** Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+
+wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten
+
+**des Urhebers ausdrücklich erlaubt.** Tritt dazu macht, um dann nachfolgend in Friedsamkeit jeden weiteren Schritt
+Erschienen im Wassermannzeit-Verlag: FIGU, ‹Freie Interessengemeinschaft Uni- bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun.
+versell›, Semjase Silver Star Center, SSSC, 10. September 2018, 16.43 h, Billy
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+

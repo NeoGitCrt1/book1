@@ -1,0 +1,498 @@
+# FIGU– ZEITZEICHEN
+## Aktuelles • Einsichten • Erkenntnisse
+
+**Erscheinungsweise:** **Internetz: http://www.figu.org** **1. Jahrgang**
+**Sporadisch** **E-Brief: info@figu.org** **Nr. 21, November 2015**
+
+#### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+Laut ‹Allgemeine Erklärung der Menschenrechte› vom 10. Dezember 1948, Artikel 19, ‹Meinungs- und Informationsfreiheit›:
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die**
+**Freiheit, Meinungen unangefochten anzuhängen und Informationen und Ideen mit allen**
+**Verständigungsmitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Aussagen und Meinungen müssen nicht zwingend mit dem FIGU-Gedanken-, Interessen-, Lehre- und Missionsgut identisch sein.
+
+### He he Frou Meier
+Mani Matter (1972 verstorbener Schweizer Liedermacher) schrieb im Song ‹Dr Hansjakobli und ds Babettli›
+(Hansjakobchen und Babettchen) am Schluss: «D'Wält wär freier, wè meh würd grüèft: He he Frou Meier!» (Die
+Welt wäre freier, wenn mehr gerufen würde: «He, he Frau Meier!»)
+Diese Liedzeile kann durchaus als Metapher verstanden werden für jeglichen Zustand in der heutigen Welt. Wie
+im Spiel der beiden Kinder im Lied, von denen das eine auf einem Schemel steht und laut aufstampft, bis es
+durch das Gepolter des unter dem Stuhl sitzenden Kindes übertönt wird, wonach die beiden dann lachend ihren
+Platz wechseln. Leider geht es in der Welt nicht so zu wie im Lied von Mani Matter, in dem das obenstehende
+Kind auf das von unten polternde hört und mit ihm den Platz tauscht.
+
+Was heute in allen Bereichen von Wirtschaft und Politik zu beobachten ist, ist das ‹Peter-Prinzip› das im Buch
+‹Das Peter-Prinzip oder die Hierarchie der Unfähigen›, 1969 von den Autoren Laurence J. Peter und Raymond
+Hull herausgegeben und erstmals als These formuliert wurde. Diese besagt, dass in einer Hierarchie jeder Beschäftigte dazu neigt, bis zur Stufe seiner maximalen Unfähigkeit aufzusteigen. Peter: «Nach einer gewissen Zeit
+wird jede Position von einem Mitarbeiter besetzt, der unfähig ist, seine Aufgabe zu erfüllen.»
+
+Besonders in der Politik zeichnet sich diese sehr allgemein-einfach gehaltene These zur Zeit am Beispiel Angela
+Merkel äusserst krass ab. Sie hat den Scheitelpunkt ihrer absoluten Unfähigkeit schon längst erreicht und in
+ihrer grenzenlosen Naivität, Dummheit und Kurzsichtigkeit präsentiert sie diese Unfähigkeit ebenso wie auch
+ihre Überforderung der ganzen Welt auch in selbstgefälliger Eitelkeit. Mit ihrem völligen Unvermögen zum
+Weitblick, ihrer absoluten Unfähigkeit, die Folgen ihrer Reden, ihres Tuns und Handelns abschätzen und voraussehen zu können sowie mit ihrem völlig fehlenden realpolitischen Verstand hat sie durch ihre Untauglichkeit
+in grenzenloser Selbstverliebtheit, Machtgier und Überheblichkeit den Krieg nach Europa geholt. In ihrem
+grössenwahnsinnigen Bestreben, sich in den Geschichtsbüchern einen dauerhaften Platz zu sichern, palaverte
+sie über die deutsche ‹Willkommenskultur› gegenüber allen Flüchtlingen aller Länder und machte sich damit
+zur ‹Flüchtlingskanzlerin›, womit sie sich den Anschein von weitausstrahlender moralischer Autorität zu geben
+versucht. Mit: «Wir schaffen das, und wo uns etwas im Wege steht, muss es überwunden werden!» heizte sie die
+Emotionen im Volk an, und sie wird dieses mit ihrer ausgeflippten Gefühlsduselei langfristig
+in einen mörderischen Abgrund reissen. Bereits jetzt, nicht einmal drei Monate nach dem
+Postulat der ‹offenen Grenzen für alle Flüchtlinge›, spaltet sich die deutsche Nation! Die Merkel-Hörigen, die ausgeartet Mitleidigen, die christlich Verblendeten sowie die an notorischer
+Selbstüberschätzung Leidenden sind vehement für offene Grenzen und die bedingungslose
+Aufnahme aller Flüchtlinge, egal aus welchen Gründen sie ihr Land verlassen haben. Auf der
+
+
+-----
+
+Gegenseite beginnen sich die Vernünftigen, die Weitsichtigeren und vielleicht auch die Ängstlichen an der Seite
+Rechtsradikaler und Rassenfeindlicher zu formieren – Deutschland dümpelt im Sog der Dummheit seiner
+Kanzlerin am Rande eines Bürgerkrieges, der sehr schnell aufflammen und das Land in den Abgrund reissen
+kann! Das alles sind Folgen der narzisstischen, machtgierigen, selbstüberheblichen und realitätsfremd-naiven
+Selbstfeier der Angela Merkel, die sich nicht nur als ‹Mutti der Nation› gebärdet, sondern auch als ‹Beschützerin
+und Förderin aller Flüchtlinge›, denen ihr Mitleid, ihre Hilfe und Solidarität gilt, während sie das deutsche Volk,
+dem ihre Loyalität und ihre absolute Ergebenheit gehören sollte, in den Abgrund von Überforderung, Aus beutung, Uneinigkeit, Hilflosigkeit, Bürgerkrieg, Terror, Leid und Elend stösst. Statt genügend Geld in die
+Sozialstrukturen Deutschlands fliessen zu lassen, um den eigenen Bürgern ein menschenwürdiges Leben ohne
+Hartz IV und mit auskömmlichen Renten zu garantieren, zweigt sie das von der arbeitenden Bevölkerung erworbene Staatsvermögen, das durch überhöhte, ungerechte und ausbeuterische Steuern zustande gekommen
+ist, lieber für den Unterhalt und die Versorgung von Wirtschaftsflüchtlingen ab sowie für die finanzielle Unterstützung von deren Herkunftsländern, in denen – statt europäische Gelder in sie hineinzupumpen – zuerst
+einmal eine gerechte Ordnung geschaffen werden müsste, damit die Völker in diesen Ländern für sich selbst
+wieder eine funktionierende Wirtschaft und lebenswerte Perspektiven aufbauen könnten. Völlig blind für die
+Realität und die Grenzen der Belastbarkeit des deutschen Volkes sowie für die Probleme der Verteilungsgerechtigkeit oder die kulturelle und religiöse Distanz der Flüchtlinge vom westlichen resp. europäischen Wertekanon,
+überträgt sie das ‹Ideal der Gastfreundschaft› auf Flüchtlinge, die keine Besucher sind, sondern Menschen, die
+geprägt sind von Autoritarismus, Fundamentalismus, Bigotterie, Fanatismus, wirtschaftlicher Ausbeutung,
+Misswirtschaft und Feudalismus und die sich von liberalen Bürgern etwa so sehr unterscheiden wie ein Regenwurm von einem Elefanten. Die Willkommenskultur erscheint vielen Leichtgläubigen, Naiven und Kurzsichtigen
+sowie Religionisten als moralisch erforderlich, weil es zu viel Geiz, Besitzstandswahrung, Ignoranz, Wegsehen
+und Verhärtung in der Welt gibt, denen sie mit aktiver Mitmenschlichkeit – die in diesem Fall nichts anderes
+ist als ausgeartetes Mitleid – begegnen wollen. Letztlich werden aber in Deutschland nicht die Gutgestellten,
+nicht die Oberschicht oder der Mittelstand die Zeche zahlen müssen, sondern letztlich die Sozialhilfeempfänger,
+die den Etat der staatlichen Wohlfahrt mit den Einwanderern teilen müssen. Das wird aber über kurz oder lang
+zu noch grösserer Unzufriedenheit führen und die Ablehnung und Rassenfeindlichkeit auch gegenüber jenen
+schüren, die zu Recht Zuflucht in Deutschland suchen und Schutz erhalten, weil sie in ihren Heimat- und Herkunftsländern um ihr Leben fürchten müssen, weil sie aktiv bedroht werden. Die falsche und verantwortungslose Flüchtlingspolitik, die auch den Armuts- und Wirtschaftsflüchtlingen Tür und Tor öffnet, wird die Klüfte
+in unserem Nachbarland so lange vertiefen und vergrössern, bis keinerlei Verständigung zwischen den Konfliktparteien mehr möglich ist und dadurch ein Bürgerkrieg unumgänglich wird, der für den aufmerksamen und
+weitblickenden Beobachter schon seit einiger Zeit am Horizont droht.
+Ein anderes Ergebnis der unsäglich naiven und realpolitikfernen ‹Willkommenskultur› der Angela Merkel ist
+die ungefilterte Aufnahme von Menschen aus dem Mittleren Osten und aus Gebieten, in denen der ‹Islamistische
+Staat› sein Unwesen treibt, womit diesem eine gute und willkommene Gelegenheit geboten wird, Schläfer, Atten täter und Terroristen nach Europa einzuschleusen, wo sie gezielt und unentdeckt ihre Anschläge vorbereiten
+und ausführen können, was die Attentate vom 13. November 2015 in Paris zur Genüge beweisen. Spätestens an
+diesem schwarzen Freitag, an dem Frankreich und ein grosser Teil der westlichen Welt in Schockstarre versank
+weil innert kürzester Zeit 129 Menschen an sechs verschiedenen Orten in Paris ermordet und 352 Menschen
+zum Teil aufs Schwerste verletzt wurden, hat der Terrorkrieg, der im Nahen Osten tobt, auch in Europa Einzug
+gehalten, und er wird weder schnell enden noch einfach zu bekämpfen sein. Die Voraussetzungen dafür sind
+angesichts der zu allem bereiten und völlig skrupellosen islamistischen Fanatiker und der unfähigen, selbstverliebten, kurzsichtigen, naiven und realitätsfernen Regierenden der westlichen Welt nicht gegeben. Sieht und hört
+man einen Tag nach den Anschlägen die Führer der westlichen Welt sprechen, hört man nichts als leere Floskeln,
+und aus den Augen von Angela Merkel springt einem nackte Angst und völlige Hilf- und Ratlosigkeit entgegen,
+während aus ihren Worten nicht das tiefe Mitgefühl spricht, das sie die Welt glauben machen möchte. Das
+deutsche Monster wird von den Folgen seines eigenen bösen und unbedarft-naiven Tuns eingeholt, und den
+Preis bezahlen nicht nur die unbescholtenen Bürger Frankreichs und anderer Länder, die zu Opfern wurden,
+sondern ganz Europa und allen anderen voran die deutsche Bevölkerung, die zum leichten Opfer der islamistischen Terroristen werden wird, weil seine Kanzlerin auf dem Rücken der deutschen Bürger einen privaten
+Rachefeldzug gegen ihr ganzes Volk führt und dieses in den Abgrund reisst aus Rache für Verbrechen, die in der
+Vergangenheit von längst Verstorbenen an längst Verstorbenen begangen wurden und die mit der heutigen
+deutschen Bevölkerung nichts mehr gemeinsam haben.
+
+
+-----
+
+Angela Merkel – das deutsche Monster –, die auf ihre Art und Weise einem Adolf Hitler in nichts nachsteht, ist
+das schlagende Beispiel für die Richtigkeit der Peter-Prinzip-These, denn sie hatte bereits bei ihrer Wahl zur
+Kanzlerin den Zenit ihrer absoluten Unfähigkeit erreicht. Der Beweis dafür ist der Abbau jeglicher bis dahin
+errungenen Eigenständigkeit Deutschlands gegenüber den USA, die sie leichtfertig zur Disposition stellte und
+damit das Gleichgewicht innerhalb Europas und gegenüber Russland zerstörte, indem sie das gierige und verantwortungslose Grabschen der EU-Diktatoren unter der Fuchtel der USA nach den Pufferländern zwischen
+Ost und West noch aktiv unterstützte und förderte, indem sie sich schamlos bei den USA anbiederte und in
+hündischem Gehorsam deren Wünsche und Forderungen unterstützte, statt ihnen die Schranken zu weisen
+oder auch nur passiven Widerstand zu leisten. Damit hat sie den Möglichkeiten zum Ausbruch eines weiteren
+Weltkriegs aktiv Vorschub geleistet, und es ist bisher allein der politischen Weitsicht, der Flexibilität und Cool ness sowie dem Verantwortungsbewusstsein Putins zu verdanken, dass es bisher nicht zum Schlimmsten gekommen ist. Allerdings ist das auch absolut unnötig, denn sie hat in ihrer grenzenlosen Dummheit, Verantwortungslosigkeit und Unfähigkeit ganz Europa in eine gigantische Hölle von Terrorismus und Terrorkrieg
+gerissen, weil sie den islamistischen Fanatikern in ihrer naiven Realitätsfremdheit und ihrem Wahn von Gutmenschentum die Türe nach Europa weit aufgerissen hat, womit sie ihnen die Gelegenheit gab, unkontrolliert
+und unerkannt nach Deutschland vordringen zu können. Abgesehen davon – denn die Infiltration Europas
+durch islamistische Fanatiker ist nur eine Nebenerscheinung ihres Tuns – hat sie einen Flüchtlingstsunami verursacht, der immer schneller, umfangreicher und fordernder auf die westlichen Staaten zurollt und dessen
+Folgen heute auch von Weitblickenden und Aufmerksamen noch nicht in voller Tragweite und Konsequenz abzusehen sind. Allerdings kann davon ausgegangen werden, dass der westlichen Welt und vornehmlich Europa
+Hören und Sehen vergehen wird, wenn dem unbedarften, dummen, naiven und unfähigen Gewurstel von
+Angela Merkel nicht schnellstens durch eine legale Abwahl Einhalt geboten und das Ruder auf eine vernünftige
+und verantwortungsvolle Linie herumgerissen wird. Wohl haben einige Politiker, wie unter anderen Seehofer
+(Bayern) und Tillich (Sachsen), inzwischen so viel Sozialcourage, dass sie aufstehen und offen Stellung gegen
+‹Mutti Merkel› beziehen, indem sie das vertreten, was richtig und gerecht wäre, und laut genug schreien: «He,
+he Frau Merkel!» Leider werden diese besonneneren deutschen Politiker von den Merkel-Hörigen, den MerkelProfiteuren, den ebenso Realitätsfremd-Naiven, den christlich-religiös Ausgearteten und Weichgespülten sowie
+von den infiltrierten und gekauften Medien nicht gehört, sondern sie werden angegriffen und hinuntergemacht,
+und jede vernünftige Unterstützung, die zu einer dringend notwendigen Änderung und letztlich einer Entschärfung der Lage führen könnte, wird ihnen verwehrt. Deshalb ist die Freiheit Deutschlands und der Welt wohl
+noch sehr lange in weiter unerreichbarer Ferne, denn wo keiner schreit: «He, he Frou Meier!» resp. wo den
+Schreiern kein Gehör geschenkt wird und sie keine Unterstützung finden, da sind weder eine Besserung des
+aktuellen Zustandes noch eine Änderung zum Guten sowie auch keine Vernunft und kein Verantwortungs gefühl und demzufolge keine Freiheit und kein Friede zu erwarten.
+
+Im letzten Teil des Songs von Mani Matter heisst es:
+
+Vowägè grad so i däm Spieli
+wie zgrächtem – Bischpiel git es vieli –
+isch jede – daderfür wird gchrampfet –
+gärn dä wo obenabe stampfet.
+
+Es isch nid jede wie ds Babettli
+so harmlos uf sim Taburettli
+drum luegit, dass wie Hansjakobli,
+geng eine undenufe toppli.
+
+I wett fasch säge: «D'Wält wär freier
+we meh würd grüeft: He he Frou Meier!»
+
+(Von wegen gerade wie in diesem Spielchen,
+wie ernsthaft – Beispiele gibt es viele –
+ist jeder – dafür wird hart gearbeitet –
+gern der, der von oben runter stampft.
+
+
+-----
+
+Es ist nicht jeder wie Babettli
+so harmlos auf seinem Tabourettchen (Schemel),
+drum schaut dazu, dass wie Hansjakobli
+stets einer unten herauf dopple.
+
+Ich möcht’ fast sagen: Die Welt wär’ freier,
+wenn öfters gerufen würde: He he Frau Meier!)
+Bernadette Brand, Schweiz
+
+### Der Micro-Chip im Menschen – Heilung oder Desaster?
+
+Bereits am 30. Oktober 2007 beantragte ein saudi-arabischer Erfinder beim Deutschen Patentamt in München
+ein Patent zur Überwachung und sogar Tötung von Menschen per implantierten Chip.
+Der Antrag wurde 18 Monate später öffentlich gestellt. Der Erfinder beruft sich auf Sicherheitsprobleme, etwa
+bei Pilgerfahrten, bei denen Menschen im Land bleiben, fliehen oder verloren gehen können.
+Weiter wünschte der Erfinder das Implantat chirurgisch oder per Injektion in den Körper einzubringen. Das
+Modell A diene der Überwachung des Menschen, dem Modell B sei zusätzlich eine ‹Strafkammer› beigefügt.
+Ein giftiges Mittel wird, isoliert vom Körper, beigegeben und könne im Falle der Tötung aus Sicherheitsgründen
+freigesetzt werden.
+Das Patentamt liess verlautbaren; die Erteilung eines Patents sei in diesem Fall ausgeschlossen. Patente und
+Erfindungen, die gegen die guten Sitten oder die öffentliche Ordnung verstossen, würden nicht erteilt.
+Micro-Chips für Menschen sind allerdings bereits mehrfach patentiert. Die US-Freescale Semiconductor, eine
+Tochter des Rothschild Imperiums, dürfte den wichtigsten Patent-Brocken im Bereich der anwendbaren ChipImplantate für Menschen besitzen.
+20 Mitarbeiter der US-Firma Freescale Semiconductor kamen beim mutmasslichen Absturz der Malaysia Airlines MH370 ums Leben.
+Vier der Mitarbeiter waren ebenfalls Teilhaber des Chip-Patents. Im Falle des Ablebens eines Patentinhabers
+gehe der Anspruch vollumfänglich auf Freescale Semiconductor über, berichteten französische Medien. Damit
+wäre die Rothschild-Dynastie Besitzer des ausbaufähigsten Micro-Chip-Patents.
+Micro-Chips werden seit Jahren umfangreich mit Steuerungsmacht versehen und weiter hochentwickelt. Die
+Bill-und-Melinda-Gates-Stiftung arrangierte einen derzeitigen Grossversuch zur Geburtenkontrolle. Die Fruchtbarkeit der Frau wird über eine App ferngesteuert vom Rechner geregelt.
+Mülleimer werden mit Chips ausgestattet, um das Durchwühlen für Armuts-Studienzwecke zu erforschen, so
+geschehen in Berlin. Und in Dänemark wurden zeitgleich obdachlosen Menschen Chips auf ‹Freiwilligenbasis›
+implantiert. Als ‹Forschungsziel› wurde deren Aufenthalts- und Bewegungsmuster benannt. Die Obdachlosen
+erhielten täglich eine warme Mahlzeit als Lohn.
+Unter Aspekten der Kundenfreundlichkeit bieten Tatoostudios weltweit den Service der Chip Implantate, z.B.
+zum Entsperren per Funk von Smartphone oder Haustür. Den zukünftigen Einsatzmöglichkeiten sind keine
+
+
+-----
+
+Grenzen gesetzt. Heather Callaghan berichtet auf der Website ‹Activist Post›, schon bald werden Micro-ChipImplantate eingeführt, die als ‹neues Gesicht einer Medizin‹ dienen werden, die ‹Big Pharma, Biotechnik, Nano technik und drahtlose Fernsteuerungstechnik verbindet›.
+Diese Zukunft hat längst begonnen.
+
+Am 13.11.15 um 08:03 schrieb Achim Wolf:
+
+Sehr geehrter Herr Will
+Hiermit möchte ich Sie freundlich um die Erlaubnis bitten, Ihren bei http://www.epochtimes.de/wissen/gesellschaft/der-micro-chip-im-menschen-heilung-oder-desaster-pharma-biotechnik-a1283611.html veröffentlichten Artikel wiederveröffentlichen zu dürfen. Das Organ wäre eine Schrift des Vereins FIGU (www.figu.org/ch),
+der sich unter anderem mit der drohenden Totalüberwachung der Menschen auseinandersetzt. Die Bulletins,
+Zeitzeichen-Magazine usw. der FIGU werden im Internetz kostenlos bereitgestellt.
+Mit freundlichen Grüssen
+Achim Wolf
+www.freundderwahrheit.de
+
+Gesendet: Freitag, 13. November 2015 um 19:37 Uhr
+Von: Will office@will-news.com
+An: "Achim Wolf"
+Betreff: Re: Kopierecht-Anfrage
+
+Sehr geehrter Herr Wolf,
+gerne können Sie den Artikel auf Ihrer Seite veröffentlichen. Das Original finden Sie hier: will-news.com
+http://will-news.com/2015/10/19/122/
+Bitte geben Sie den Autorennamen an und als Reverenz will-news.com; mit dem Hinweis einer Weiterveröffentlichung nur unter schriftlicher Genehmigung. Rechte bei will-news.com. Das Bild können Sie sich ebenfalls
+bei will-news.com herunterladen. Falls es dabei ein Problem gibt, sagen Sie kurz Bescheid.
+Mit freundlichen Grüssen, Manfred Will
+
+**Die FIGU resp. BEAM warnt in seinen Prophetien schon seit langem vor einer drohenden totalen Über -**
+**wachung der Menschen durch in den Kopf implantierte Chips. Hiermit scheint ein weiterer Schritt in diese**
+**Richtung getan worden zu sein.**
+
+Hierzu passt auch das am 9. November 2015 veröffentlichte Video des freien Journalisten Holger Strohm (siehe
+https://www.youtube.com/watch?v=gptz10-oHCU). Holger Strohm spricht darin über die rasanten Entwicklungen im Bereich der künstlichen Intelligenz seitens multinationaler Grosskonzerne und Technologie-Giganten.
+Achim Wolf, Deutschland
+
+### Deutschland ist die Schaltzentrale des weltweiten Kriegsterrors und Mordens der USA
+**BEAM im FIGU-Zeitzeichen Nr. 17:**
+_Dass Merkel, wie auch ihre EU-Diktatoren, die ihr bedingungslos hörig sind, den USA dabei noch erlauben, ihre_
+_schmutzigen und verachtenswerten Weltpolizeiallüren, ihre Geheimdienstintrigen sowie ihre Kriege in diversen_
+_Ländern in aller Welt von Deutschland aus zu führen, das sie praktisch nach dem letzten Weltkrieg annektiert haben_
+_und von wo aus sie ihre Kriegsverbrechen usw. in Europa, Arabien und Asien steuern, was die deutsche Bevölkerung_
+_und die Welt allgemein offenbar aber nicht merken. Das diesbezüglich Ganze gegen das deutsche Volk Gerichtete ist_
+_wohl das erdenklich Böseste und Hinterhältigste, was an geheimen Intrigen und schmutzigen Machenschaften gegen_
+_Deutschland und dessen Volk nicht übertroffen werden kann. Auch das, was durch die USA und die EU-Diktatur_
+_an Üblem gegen Russland unternommen wird, wie eben durch Sanktionen und Verleumdung, ist eine Sache, die klar_
+_und deutlich die schmutzige Machtgesinnung der Sanktionierenden und deren bedenkenlose Gewaltbereitschaft bis_
+_hin zu Waffenkonflikten und gar zu einem Krieg zum Ausdruck bringt._
+
+
+-----
+
+Journal21.ch berichtet:
+_In einem Meinungsbeitrag für die ‹Washington Post› geht MIT-Politologe John Tirman der Frage nach, weshalb sich_
+_die USA nur selten mit den zivilen Opfern ihrer Kriege beschäftigen. Dabei haben Amerikas grössere Interventionen_
+_seit dem 2. Weltkrieg ‹kolossales Blutvergiessen› verursacht. Konservative Schätzungen gehen von mindestens sechs_
+**_Millionen toten Zivilisten und Soldaten aus._**
+_Quelle und weitere Informationen dazu: https://www.journal21.ch/seit-1945-sechs-millionen-tote-in-us-kriegen_
+
+Die folgende Graphik belegt die weltweite Militärpräsenz der USA, deren Dreh- und Angelpunkt eindeutig
+Deutschland ist – eine traurige und für Deutschland beschämende Tatsache. Die verantwortungs- und gewissen losen sowie menschenverachtenden Regierenden Deutschlands und der EU sind mitverantwortlich für zahl reiche Kriege, Greueltaten, Verbrechen, Folterungen und Morde an vielen unschuldigen Frauen, Kindern und
+Männern!
+
+_Quelle: http://de.sputniknews.com/infographiken/20150725/303426169.html_
+Achim Wolf, Deutschland
+
+
+-----
+
+### An alle Bundestagsabgeordneten
+#### 3. Offener Brief von Generalmajor Gerd Schultze-Rhonhof gegen Schönfärberei und Verantwor- tungslosigkeit fast aller Politiker
+_von Gerd Schultze-Rhonhof/Gastautor, Sonntag, 15. November 2015 17:34_
+In seinem 3. Offenen Brief zur Flüchtlingspolitik wendet sich der pensionierte Generalmajor der Bundeswehr
+an die Bundestagsabgeordneten und fordert sie auf, «allein ihrem Gewissen und ihrer Verpflichtung dem
+‹ganzen Volk› zu dienen, gerecht zu werden und Ihre persönlichen Partei-Karriere-Aussichten und Partei loyalitäten hintan zu stellen.»
+
+Gerd Schultze-Rhonhof: «Frau Dr. Merkel hat die Diskussion um die Migranten-Aufnahme auf das Begriffspaar
+‹Willkommenskultur› und ‹Ausländerfeindlichkeit› reduziert und damit Andersdenkende beleidigt und unser
+Volk gespalten.»
+
+Sehr geehrte Frau Abgeordnete, sehr geehrter Herr Abgeordneter
+Bitte halten Sie mich nicht für ausländerfeindlich. Ich habe einem Armutsflüchtling ein halbes Jahr lang ohne
+Gegenleistung ein Zimmer mit Bad gestellt, ihn an den Mahlzeiten der Familie teilnehmen lassen, ihm ein Fahrrad geschenkt und ihn unfallversichert. Trotzdem meine ich, dass die jetzige, in Deutschland gewährte Gastfreundschaft gegenüber Migranten ein epochaler politischer Fehler ist.
+
+#### Aufforderung an Sie
+Ich bitte Sie dringend, eine in Deutschland unerwünschte Einwanderung zu unterbinden, indem Sie möglichen
+Migranten das Motiv nehmen, sich auf ihre lange, teure und gefährliche Reise zu begeben. Es muss ihnen die
+Aussicht genommen werden, dass jeder, der ankommt, auch bleiben darf. Bisher zieht jeder angekommene
+Migrant weitere Migranten nach.
+**Erwirken Sie bitte, dass nur Asylsuchende und Arbeitsuchende, deren Begehren in einer deutschen Vertretung**
+im Herkunftsland oder ausserhalb Europas geprüft und positiv beschieden ist, einreisen dürfen (australisches
+Vorbild).
+**Erwirken Sie bitte, dass alle ausserhalb dieser Regel Einreisenden noch am selben oder nächsten Tag in ihr Land**
+zurückgeflogen oder in einem asiatischen oder afrikanischen Vertrags-Staat abgeliefert werden (israelisches
+Vorbild).
+**Erwirken Sie bitte die beschleunigte Repatriierung der nicht registrierten und der ausreisepflichtigen Migranten**
+durch zivile Fluggesellschaften und die Bundesluftwaffe.
+**Erwirken Sie bitte, dass diese Regelungen in den Herkunftsländern in Zeitungen und TV-Spots bekanntge-**
+macht werden (australisches Vorbild).
+**Erwirken Sie bitte, dass alle ‹Bootsflüchtlinge› auf dem Mittelmeer von der Bundesmarine und den Marinen**
+ebenfalls interessierter Staaten aufgebracht und an ihre Abreiseküste zurückgebracht werden. Alle nördlichen
+Anrainerstaaten des Mittelmeers und England, Dänemark und Schweden wollen keine grosse Mengen von
+Migranten ausser anerkannten Asylanten aufnehmen. Diese Staaten werden ihre Marinen nach Aufforderung
+wahrscheinlich zu einer gemeinsamen Sperrung der südlichen Schengen-Grenze zur Verfügung stellen. Die
+
+
+-----
+
+griechische Marine hatte das vor Protesten von AI und Human Right’s Watch bereits zwischen Griechenland
+und der Türkei praktiziert (nach australischem Vorbild, aber ausserhalb der migrationsfördernden EU).
+**Streben Sie bitte eine europäische Koalitions-Lösung ausserhalb der Organisation der EU an. Die EU darf nicht**
+weiteren Schaden an der Migranten-Krise nehmen, zu deren Lösung sie sich zwar als bemüht, jedoch auch als
+ungeeignet erwiesen hat.
+**Erwirken Sie bitte die Rückführung der Asylanerkennung auf den im GG festgeschriebenen Kern, ohne Hinter -**
+türen und weitreichende Abschiebehindernisse.
+**Erwirken Sie bitte Einwanderungs-Jahresquoten und Arbeits-Genehmigungskriterien nach deutschem Bedarf**
+(nach kanadischem Vorbild).
+**Sorgen Sie bitte für die Abschaffung des Rechts-Instanzenwegs bei Asylverfahren (nach Schweizer Vorbild).**
+**Erwirken Sie bitte die Begrenzung der Aufenthaltsdauer von Kriegsflüchtlingen. Nach Ende von Kriegen werden**
+die Flüchtlinge zum Wiederaufbau ihrer eigenen Länder benötigt (nach deutschem Nachkriegsvorbild).
+**Beschränken Sie bitte den Familiennachzug auf anerkannte Asylanten und Arbeitnehmer mit 5-jährigem oder**
+längerem Bleiberecht.
+
+#### Ihre Illusionen
+Ich fordere Sie auf, den Deutschen und sich selbst keine Illusionen mehr über Lösungsmöglichkeiten in der
+Krise vorzugaukeln.
+
+#### Erstens, die europäische Lösung
+Es wird keine Lösung für die Verteilung von Migranten geben. Alle europäischen Völker, ausser den Öster reichern und den Deutschen, empfinden sich weiterhin als Bürger souveräner Nationalstaaten. Sie wollen sich
+ihre ethnische Substanz erhalten. Sie haben fast alle ihre Erfahrungen mit ‹fremden› Minderheiten im eigenen
+Land. England, Frankreich, die Niederlande und Portugal hatten Minderheiten aus Ihren früheren Kolonien
+aufzunehmen. Die Balten haben genug Probleme mit ihren russischen Minderheiten. Die Polen und die
+Tschechen haben mit katastrophalen Folgen ihre nationalen Minderheiten aus dem Land getrieben. Die Belgier
+kommen als Vielvölkerstaat bis heute nicht zur Ruhe. Die nicht Deutsch sprechenden Völker wollen sich als
+weitgehend homogene Gemeinschaften erhalten. Die Homogenität ist der Nährboden, auf dem Solidarität und
+innerer Frieden in einem Staat am besten wachsen. Den deutschen Parteien ist es aber offensichtlich völlig
+gleichgültig, ob wir mehrheitlich deutsch und christlich geprägt bleiben oder nicht.
+
+#### Zweitens, die Migrationsursachen bekämpfen
+Wollen Sie den Amerikanern, Briten und Franzosen ihre ‹Systemwechselkriege› zur Ablösung missliebiger
+Regimes verbieten? Wollen Sie die Bevölkerungsexplosion in Afrika unterbinden? Wollen Sie Al-Quaida, IS und
+Boko Haram das Handwerk legen? Wollen Sie Missernten untersagen? Wollen Sie die zukünftigen Auseinandersetzungen zwischen China und den USA in Fernost und in Afrika verhindern?
+Deutschland leistet seit ca. 1960 Hilfe zur Selbsthilfe in Afrika. Mit welchem Erfolg?
+
+#### Drittens, die gewinnbringende Integration
+Wir haben jetzt bereits Parallelgesellschaften und Stadtteile mit unverhältnismässig hoher Kriminalität, mit
+‹sozialen Brennpunkten› und ‹no-go-areas› für die Polizei. Hier findet keine Integration statt. Mit der von Ihnen
+geduldeten und schöngeredeten Massenzuwanderung werden sich solche Gesellschaften und Gebiete ver mehren und vergrössern.
+Die Integration in den Arbeitsmarkt dauert nach schwedischen Erfahrungen durchschnittlich 7 Jahre. Nach der
+Erfahrung des dänischen Arbeitgeberverbandes ist sie sogar gescheitert. Zudem steht hinter jedem arbeits fähigen Migranten eine unverhältnismässig grosse Anzahl von Sozialleistungen-empfangenden Migranten, so
+dass die Verluste der Bilanz ‹sozialisiert› werden müssen.
+Mit einer mentalen Integration der zu etwa 80% islamischen Migranten ist bei einem grossen Anteil nicht zu
+rechnen. Derzeit kommen viele mit dem erklärten Ziel der islamischen Unterwanderung. Der mentalen Integration steht zudem ein Mangel an deutscher Attraktivität entgegen. Unsere ständige Selbstdarstellung als
+‹dunkles Land der finsteren 12 Jahre› und das Übergehen von Jahrhunderten glänzender Kultur und Leistungen
+zeugen nicht von Liebe zu uns selbst. Unser Diffamieren der eigenen Nation und unsere Flucht in eine europäische Identität tun ein Übriges dazu. Die Debatte über eine ‹deutsche Leitkultur› und ihre Verbindlichkeit auch
+für Zuwanderer stiess im Jahr 2000 auf Widerstand in allen Parteien. Einwanderer, die sehen, dass die Deutschen
+
+
+-----
+
+sich selbst nicht achten und nicht lieben, wollen mental sicher nicht zu einem solchen Volk gehören. Sie wollen
+nur Sicherheit und deutschen Wohlstand.
+
+
+#### Ihre Pflicht
+Sie sind nach GG Art.38 ‹Vertreter des ganzen Volkes› und stehen damit in einer Verantwortung für das Wohl,
+den Schutz und den dauerhaften Bestand des deutschen Volkes. In der gegenwärtigen Situation einer Massen einwanderung von Menschen fremder Sprachen, Kulturen und Gebräuche und von meist fehlender Integrations fähigkeit und oft sogar fehlendem Integrationswillen werden Sie dieser Verantwortung nicht gerecht. In den
+letzten Wochen ist erkennbar geworden, dass Sie aus realitätsfernem Idealismus oder aus Parteiloyalität die
+Gefahren nicht sehen oder nicht vereiteln wollen, die diese Masseneinwanderung für das Wohl, den Schutz und
+den dauerhaften Bestand des deutschen Volkes bedeuten. Die politischen Entschlüsse der letzten Wochen haben
+die anstehenden Probleme nur verwaltet, aber nicht nachhaltig gelöst. Millionen deutscher Bürger erwarten von
+Ihnen, dass Sie die Massenmigration nachhaltig beenden und das Grundgesetz und die Folgegesetze der augenblicklichen Krisensituation anpassen und die annähernd 2 Millionen unberechtigt in Deutschland weilenden
+Migranten repatriieren.
+Die vielen Vorbehalte des Herrn Justizministers Heiko Maas zu den dazu nötigen Gesetzesauslegungen und
+-änderungen hat der Staatsrechtler Prof. Dr. Rupert Scholz bereits widerlegt.
+
+
+#### Unser Risiko
+Migranten hegen die Hoffnung auf eine bessere Zukunft, aber nur wenige von ihnen sind ‹auf der Flucht› oder
+‹politisch verfolgt›.
+Und wir haben plötzlich rund zwei Millionen Migranten in unserem Land, die meist illegal eingereist und selten
+asylberechtigt sind, und die durch ihre grosse Zahl und mangelnde Integrationsfähigkeit eine zunehmende
+Gefahr für Deutschlands innere Sicherheit, den inneren Frieden, das Sozialsystem, das Bildungssystem, das
+Gesundheitssystem und die weitgehende Homogenität der Bevölkerung darstellen. Die inzwischen auf 40
+Milliarden Euro geschätzte jährliche Belastung für alle öffentlichen Haushalte verhindert zudem vorhersehbar
+die ‹schwarze Null› des Bundes und den Abbau der Schuldenlast, die unsere Kinder und Kindeskinder schultern
+müssen.
+Da uns in den nächsten Jahren drei weitere Migranten-Wellen ins Haus stehen, ist es wahrscheinlich, dass ohne
+Korrekturmassnahmen die Mehrheitsverhältnisse zwischen alteingesessener und zugewanderter Bevölkerung
+‹kippen› mit absehbaren Folgen für die Rechtsordnung und die Sitten in Deutschland. Die drei neuen Wellen
+sind erstens die Migranten, die schon auf dem Weg sind oder auf ihrem geschnürten Gepäck sitzen. Das sind
+zweitens die Migranten im Familiennachzug und drittens die in der hohen Geburtenrate jener zuvor genannten
+Wellen. Diesen drei Wellen folgt die islamische Bevölkerungsmehrheit in Deutschland in der übernächsten
+Generation, mit ihren Rechtsvorstellungen und Gebräuchen.
+Entgegen aller Schönfärberei in den Verlautbarungen fast aller Politiker und in den von wundersamer Hand
+gelenkten Medien geben die Nachrichten im Internet ein durchweg anderes Bild von den gesellschaftlichen
+Verhältnissen und Sitten, die derzeit neben zivilisierten Migranten mit anderen Migranten nach Deutschland
+strömen. Da sind Unmengen von Berichten über Ausschreitungen untereinander, gegen Polizei und Ordner,
+gegen Helfer, allein reisende Migrantinnen und gegen deutsche Bürger, Berichte über mutwillige Sach-Zerstörungen, Vernichtung von Bekleidung und Nahrungsmitteln, überzogene und teils unverschämte Ansprüche,
+Diebstähle, sexuelle Übergriffe, über das Entweichen aus Transporten und Unterkünften und Schilderungen
+und Klagen von Innenministern, Landräten, Bürgermeistern und Angehörigen der Polizei und der Bundeswehr,
+die der Lage nicht mehr Herr werden. Nach ‹verbotenen› Meldungen aus österreichischen Dienststellen
+versucht dort jeder Siebte, bewaffnet einzureisen und sind im September etwa 4000 Terroristen durchgereist.
+Dass es bei Polizei, Bundeswehr und Hilfseinrichtungen Berichts- und Meldeverbote zu solchen Zuständen gibt,
+und dass jeder trotzdem darüber erfolgte Bericht als ‹ausländerfeindlich› und ‹Hetzerei› verunglimpft wird,
+ohne dass Parlamentarier dagegen vorgehen, ist eine Schande für den Deutschen Bundestag.
+
+#### Ungelöstes
+Die mit der Regierungs-Konferenz vom 5. November begonnenen Problemlösungen sind die Verbesserung und
+die Beschleunigung der Registrierungen, Asylverfahren und der Rückführungen. Der Versuch, die afrikanische
+Einwanderung in Zusammenarbeit mit afrikanischen Regierungen zu beenden, ist bisher nur zur Absicht einer
+Planung gediehen.
+
+
+-----
+
+Die bisher nicht gelösten Probleme sind die Beendigung des Zustroms, die zügige Rückführung von fast zwei
+Millionen nicht Aufenthaltsberechtigten in ihre Heimatländer, die Anpassung des Grundgesetzes und der entsprechenden Folgegesetze an die neue Situation, die Verhinderung der Islamisierung Deutschlands in den
+nächsten Generationen und die massive Förderung der Regeneration der Deutschen im eigenen Land (statt des
+fortgesetzten Abflusses deutschen Geldes für Migranten, Euro-Konkursverschleppungen usw.).
+
+#### Ihre Aufgabe
+Sie, meine Damen und Herren Abgeordneten, haben diese Zustände und Gefahren vom ‹ganzen Volk› abzuwenden. Sie haben die Aufgabe, die Verfassungsnorm des Asylrechts und die Schutznormen für die Deutschen
+in einen Ausgleich zu bringen, und nicht mit der Identität, den Wertvorstellungen, der Rechtstaatlichkeit, den
+Gebräuchen und dem Vermögen der Deutschen umzugehen, als wäre alles Staatsbesitz und zu Ihrer politischen
+Verfügung.
+Der Wille der Mehrheit der Deutschen ist darüber hinaus grundsätzlicher Natur. Es geht um den Charakter
+unseres Landes, die Identität, die Sitten und die Rechtsordnung unseres Volkes, um unsere politische Kultur
+und um unsere Selbstbestimmung als Gastgeber im eigenen Land. Die Mehrheit der deutschstämmigen Deutschen will sein Land, seine Identität, seine weitgehende Homogenität und das Sagen im eigenen Land behalten.
+Diese Mehrheit will keine Auflösung der deutschen Nation in einer europäisch-asiatisch-afrikanischen Mischbevölkerung. Sie haben diese Fragen mit Vorsatz aus allen bisherigen Wahlkämpfen herausgehalten und sind
+deshalb nicht legitimiert, die Substanz des ‹ganzen Volkes› durch die Hintertür einer geduldeten oder gar geförderten Massen-Zuwanderung zu verändern. Sie sind auch nicht berechtigt, zu riskieren, dass die genannten
+Gefahren zu realen Schäden werden.
+
+#### Bisherige Fehler
+**Frau Bundeskanzlerin Dr. Merkel hat mit offensichtlich idealistischer Sichtweise und humanitärer Absicht in**
+**einer ad-hoc-Entscheidung einen unkontrollierten, überbordenden und illegalen Migranten-Strom in das**
+**deutsche Staatsgebiet in Gang gesetzt. Zuvor hat sie mit ihren Botschaften, Deutschland sei ein Einwande-**
+**rungsland, Einwanderer seien willkommen und das Asylrecht kenne keine Obergrenzen einen regelrechten**
+**Sog auf Migranten ausgelöst. Sie hat die kulturellen, wirtschaftlichen und finanziellen Schäden für das**
+**deutsche Volk ausser Acht gelassen. Sie hat zudem Deutschlands Ruf und Rolle in der EU beschädigt, weil sie**
+**den Migranten-Andrang erst mitverursacht und dann versucht hat, ihn in Teilen auf die EU-Partner abzu -**
+**wälzen. Sie hat die Diskussion um die Migranten-Aufnahme auf das Begriffspaar ‹Willkommenskultur› und**
+**‹Ausländerfeindlichkeit› reduziert und damit Andersdenkende beleidigt und unser Volk gespalten. Sie zeigt in**
+**der grundsätzlichen Frage der Substanz des deutschen Volkes mit einer ‹deutsch und christlich› geprägten**
+**Zukunft oder mit einer islamisch geprägten Zukunft eine gleichgültige Haltung, die die Mehrheit der Bürger**
+**deutscher Herkunft empört. Frau Dr. Merkel hat ihren Amtseid gebrochen, den Nutzen, des deutschen Volkes**
+**zu mehren und Schaden von ihm abzuwenden.**
+Da meine zwei Versuche, Frau Dr. Merkel durch zwei ‹Offene Briefe› zur Korrektur ihrer Zuwanderungspolitik
+zu bewegen, gescheitert sind, appelliere ich an Sie, die inzwischen eingetretenen illegalen und für Deutschland
+schädlichen Zustände der Massenmigration aus dem Deutschen Bundestag heraus nachhaltig zu beenden. Ich
+fordere Sie auf, dabei allein Ihrem Gewissen und Ihrer Verpflichtung dem ‹ganzen Volk› zu dienen, gerecht zu
+werden und Ihre persönlichen Partei-Karriereaussichten und Parteiloyalitäten hintan zu stellen.
+Die Mehrheit der deutschen Bevölkerung hat kein Verständnis mehr für Ihr Herumstreiten um Nebensächlichkeiten, Ihr Herumflicken an Kleinigkeiten, Ihre Kompromisse, die schon am nächsten Tage nicht mehr gelten
+sollen, Ihr Taktieren mit Horizont zur nächsten Wahl und Ihrem derzeitigen Umgang mit zig Milliarden von
+unseren Steuergeldern.
+Ich bitte Sie im Sinne Ihrer Verantwortung für das ‹ganze Volk› zu handeln.
+Mit freundlichem Gruss
+Gerd Schultze-Rhonhof – Am 13. November 2015
+**Der 1. Offene Brief: Offener Brief von Generalmajor Gerd Schultze-Rhonhof an Merkel: ‹Asyl-Politik ohne**
+Weitsicht›
+**Der 2. Offene Brief: 2. Offener Brief von Generalmajor Gerd Schultze-Rhonhof: ‹Deshalb muss Merkel zum**
+Wohl des Volkes zurücktreten›
+_Quelle: http://www.epochtimes.de/politik/deutschland/3-offener-brief-von-generalmajor-gegen-schoenfaerberei-_
+_und-verantwortungslosigkeit-fast-aller-politiker-a1284593.html_
+
+
+-----
+
+### Vor 26 Jahren fiel die Mauer, bald fällt die Merkel. Wir schaffen das!
+_von jurabuch Pro @ Montag, 09. Nov, 2015 – 21:18:45_
+Heute vor 26 Jahren fiel endlich die Mauer in Berlin. Ich erinnere mich noch mit Schrecken an frühere Besuche
+in Berlin, denn so etwas Bedrohliches und Unmenschliches hatte ich noch nie gesehen. Auf wessen Seite stand
+damals eigentlich eine gewisse Angela Merkel? Nicht auf der Seite derer, die für die Freiheit auf die Strasse
+gingen, sondern als Opportunistin war Merkel natürlich so lange auf Seiten des DDR-Regimes, bis es zu sammenbrach und dann wechselte sie schnell die Fronten um sich dem neuen System anzudienen. Es wirkt wie
+ein Witz der Geschichte, wenn heute in vielen Städten besorgte Deutsche gegen eben diese Merkel und ihre
+Politik auf die Strasse gehen und nicht nur in Dresden und Berlin, sondern inzwischen überall in Deutschland
+der Ruf erklingt: «Merkel muss weg!» Selbst weite Teil der CDU sagen das inzwischen, ausgenommen natürlich
+die speichelleckenden Karrieristen, die wie zu Honeckers Zeiten bis zum endgültigen Sturz des Regimes warten.
+Merkels Ende rückt immer näher. Das ist eigentlich ein Grund zur Freude und wenn ich zu Weihnachten die
+Meldung bekäme «Merkel ist zurückgetreten» oder «Merkel wurde gestürzt» wäre das ein so schönes Weihnachtsgeschenk, dass ich sonst nichts haben wollte. Leider muss ich feststellen, dass Merkel – sei es aus Dummheit, sei es aus böser Absicht – unermesslichen Schaden angerichtet hat. Ausgerechnet jene Merkel, die immer
+so viel von Europa schwadroniert hat, ist mit ihrer wahnsinnigen Politik der Masseneinwanderung in Europa
+völlig isoliert. Selbst Schweden, das vielen deutschen Gutmenschen als Vorbild galt, sagt jetzt klar: «Schluss mit
+der Masseneinwanderung. Wir können nicht mehr.» Merkels damaliger, vollkommen unsinniger Satz: «Scheitert
+der Euro, dann scheitert Europa» müsste richtig so heissen: «Scheitert der Stopp der Masseneinwanderung,
+dann scheitert Europa.» Es ist erschütternd, wie unfähig die Merkelregierung ist. Sie hat rein gar nichts erkannt,
+obwohl sie offenbar von verschiedenen Seiten vor der Völkerwanderung gewarnt wurde. Täglich wird klarer,
+dass diese Regierung rein gar nichts weiss: Sie weiss nicht, wie viele Einwanderer tatsächlich schon hier sind, da
+ja offenbar viele unkontrolliert eingedrungen sind. Sie hat keinerlei Vorstellungen, wie viele noch kommen
+wollen. Sie hat keine Ahnung, wie hoch die Kosten sind, wenn man ehrlich alle Kosten zusammenrechnet, die
+durch diese ungeheuerliche Masseneinwanderung entstehen. Sie weiss nicht, wie viele Wohnungen benötigt
+werden und woher sie kommen sollen. Sie weiss nicht, wie viele Lehrer, Polizisten, Richter, Verwaltungsmit arbeiter zusätzlich benötigt werden. Sie weiss schon gar nicht, wie viele mutmassliche Kriminelle bis hin zu
+Terroristen da eindringen. Ausländische Schätzungen meinen 2% Terroristen, und Kriminalbeamte gehen von
+etwa 10% Kriminellen aus. Diese Regierung weiss natürlich auch nicht, wie viele Leute unter dem Vorwand
+Familienzusammenführung ebenfalls einwandern wollen. Die Regierung weiss nicht, wie viele Jahre es dauert,
+bis wenigstens ein Teil der Einwanderer hier sinnvoll arbeitet und etwas für die Gesellschaft tut. Die Regierung
+weiss auch nicht, wie hoch die Gefahr ist, dass durch diese Masseneinwanderung gefährliche Krankheiten eingeschleppt werden. Diese Regierung weiss buchstäblich nichts. Und trotzdem sagt die strohdumme Merkel:
+«Wir schaffen das.» Schlimmer noch: Jetzt reist sie nach Afrika, verspricht dort Geld und faselt tatsächlich,
+Afrikaner könnten ja nach Deutschland kommen, um hier in Mangelberufen zu arbeiten. Diese Merkel ist wohl
+vollkommen durchgeknallt. Welche Mangelberufe sollen das denn sein? In meiner Heimatstadt gibt es einen
+afrikanischen Trommler, der zur Belustigung der Kinder auf Festen trommelt. Aber sollen mehr als 1,1 Milliarden Afrikaner in Deutschland trommeln? Das täte nicht nur meinen Ohren weh. Merkels Dummgeschwätz
+ist erschreckend. Diese Frau hat keine Ahnung, wovon sie redet, aber sie bildet sich ein, ihre verrückte Politik
+sei ‹alternativlos›. In Wirklichkeit ist allenfalls Merkels Dummheit alternativlos und ‹ohne Obergrenze›. Man
+könnte darüber lachen, aber es ist schlimm, wie eine unglaublich dumme und obendrein deutschfeindliche
+Regierung in kurzer Zeit das zerstört, was in Jahrzehnten mühsam aufgebaut wurde. Allmählich scheint auch
+in der CDU die Erkenntnis zu reifen, dass Merkel gestoppt oder noch besser gestürzt werden muss. Dafür wird
+es höchste Zeit. Jeder Tag mit einer Kanzlerin Merkel bringt Deutschland dem Untergang näher. Und noch eine
+traurige Beobachtung: Als ich dieser Tage durch die Innenstadt meiner Heimatstadt ging, hatte ich fast den Eindruck, in einem fremden Land zu leben. Unglaublich viele Leute, die augenscheinlich aus Asien oder Afrika
+kommen. Soll das noch Deutschland sein? Schon vor etlichen Jahren sagte ein griechischer Bekannter, mit dem
+ich mich in einer süddeutschen Stadt zu einem Gespräch traf, zu mir: «Hier sind ja lauter Türken, gibt es denn
+keine Deutschen mehr?» Wie verrückt ist es, wenn die Ausgaben von rund einer Milliarde für die Betreuung
+von Kindern zuhause gestrichen werden, aber jetzt zweistellige Milliardenbeträge für die Einwanderer raus geworfen werden? Thilo Sarrazin hatte Recht mit seinem Buch ‹Deutschland schafft sich ab›. Frau Merkel hat
+es ja kurioserweise, ohne es gelesen zu haben, abgelehnt. Und genau diese Merkel will Deutschland abschaffen.
+Deshalb müssen wir Merkel als Kanzlerin abschaffen. Die Mauer ist weg! Merkel muss weg! Wir schaffen das!
+
+
+-----
+
+-----
+

@@ -1,0 +1,1493 @@
+9. Jahrgang
+Nr. 47 Feb./3 2023
+
+
+Erscheinungsweise:
+sporadisch
+
+
+### Sonderausgabe
+# FIGU ZEITZEICHEN
+
+######    Aktuelles • Einsichten • Erkenntnisse
+
+Internetz: http://www.figu.org
+E-Brief:  info@figu.org
+
+
+###### Organ für freie, politisch unabhängige Berichterstattungen zum Weltgeschehen, kommentarlose, neutrale und meinungslose Weitergabe von Zeitungsberichten.
+##### ***************************************************************************
+Laut ‹Allgemeine Erklärung der Menschenrechte›, verkündet von der Generalversammlung der Vereinten Nationen am 10. Dezember 1948,
+herrscht eine allgemeine ‹Meinungs- und Informationsfreiheit› vor, und dieses unumschränkte Recht gilt weltweit und absolut für jeden
+einzelnen Menschen weiblichen oder männlichen Geschlechts jeden Alters und Volkes, jedes gesellschaftlichen Standes wie auch in
+bezug auf rechtschaffene Ansichten, Ideen und jeglichen Glauben jeder Philosophie, Religion, Ideologie und Weltanschauung:
+
+**Art. 19 Menschenrechte**
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit, Meinungen**
+**unangefochten anzuhängen und Informationen und Ideen mit allen Verständigungs-**
+**mitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Ansichten, Aussagen, Darstellungen, Glaubensgut, Ideen, Meinungen sowie Ideologien jeder Art in Abhandlungen, Artikeln
+und in Leserzuschriften usw. müssen in keiner Art und Weise zwingend identisch mit dem Gedankengut und den
+Interessen, mit der ‹Lehre der Wahrheit, Lehre der Schöpfungsenergie, Lehre des Lebens›, wie auch nicht in
+irgendeiner Sachweise oder Sichtweise mit dem Missionsgut und dem Habitus der FIGU verbindend sein.
+==================================================================================
+==================================================================================
+Für alle in den FIGU-Zeitzeichen und anderen FIGU-Periodika publizierten Beiträge und Artikel verfügt die
+FIGU über die notwendigen schriftlichen Genehmigungen der Autoren bzw. der betreffenden Medien!
+###### ****************************************************************************************
+
+**Auf vielfach geäusserten Wunsch aus der Zeitzeichen-Leserschaft sollen in den Zeitzeichen zur Orientierung der**
+**Rezipienten laufend Auszüge diverser wichtiger Belange aus neuest geführten Kontaktgesprächsberichten**
+**veröffentlicht werden, wie nach Möglichkeit auch alte sowie neue Fakten betreffs weltweit bösartig mit**
+**Lügen, Betrug, Verleumdung und Mordanschlägen gegen BEAM geführte Kontroversen.**
+
+###### **********************************************************************************
+
+##### EU-Kommissionspräsidentin Ursula von der Leyen umarmt den ukrainischen Staatspräsidenten Wolodymyr Selensky, der  in ihren Augen die ‹europäischen Werte› verteidigt.
+###### Die Ukraine als künftiges Zentrum Europas?
+_Autor: Christian Müller, 5. Februar 2023_
+
+**Ursula von der Leyen, Präsidentin der EU-Kommission und also de facto Präsidentin der EU, bestätigte**
+**erneut ihre politische Inkompetenz. Mehr und mehr heisst unser grösstes Problem also: Wo sollen wir**
+**unsere Hoffnungen auf ein friedliches Europa herholen? Zumindest wer die Ukraine selber von etlichen**
+**Reisen kennt, wer dort persönliche Bekannte hat, wer ihre politische und wirtschaftliche Geschichte der**
+**letzten 30 Jahre mitverfolgt hat und wer deshalb die gegenwärtige Situation einigermassen beurteilen**
+**kann, hat erneut nur eine Version, nicht total zu verzweifeln: Eine doppelte oder gar dreifache Portion**
+**Whisky oder Vodka, was auch immer, um wenigstens schlafen zu können.**
+
+Die Plattform ‹Lost in Europe› hat gestern unter dem Titel ‹Das Ende der alten EU?› den folgenden Text
+veröffentlicht:
+Beides zusammen könnte das Ende der alten EU bedeuten. Also jener Wirtschaftsunion, die sich auf den
+Binnenmarkt stützte und Frieden in ganz Europa wollte. Die Fundamente wanken, die ‹Zeitenwende›
+
+
+-----
+
+kommt. Allerdings wird nichts so heiss gegessen, wie es gekocht wurde. Die EU hat in Kiew zwar allerlei
+Versprechen gemacht, aber kein Datum für den EU-Beitritt der Ukraine genannt. Der rückt nun in weite
+Ferne.
+
+Andererseits waren Kommissionschefin von der Leyen und Ratspräsident Michel aber auch nicht klug
+genug, die Aufnahme von Beitrittsverhandlungen an ein Ende des Krieges oder andere Konditionen zu
+knüpfen. Sie lavieren – und huldigen Präsident Selensky, der gehätschelt und glorifiziert wurde, als sei
+**er der ‹Retter Europas›. Nachdem Michel die EU und die Ukraine in eins gesetzt hatte, wagte sich von der**
+Leyen noch weiter vor:
+«Die Ukraine ist zum Mittelpunkt unseres Kontinents geworden. Zum Ort, an dem unsere Werte hochgehalten werden, wo unsere Freiheit verteidigt wird und wo die Zukunft Europas geschrieben wird.»
+Ende des Zitats von Eric Bonse auf ‹Lost in Europe› aus Brüssel.
+
+**Eine deutsche Frau, die karrieresüchtig in immer neue politische Positionen vorrückte und in allen Posi-**
+**tionen zeigte, wie total inkompetent und abhängig von Beratungsfirmen für Millionen-Honorare sie war,**
+**wurde für die Position der EU-Kommissionspräsidentin aus dem Hut gezaubert und – weil anforderungs-**
+**gemäss einer Frau und eine Deutsche – auch gewählt. Und diese Frau bestätigt erneut, dass sie nichts**
+**gelernt und nichts begriffen hat und nun diese Aussage macht:**
+**«Die Ukraine ist zum Mittelpunkt unseres Kontinents geworden. Zum Ort, an dem unsere Werte hochge-**
+**halten werden, wo unsere Freiheit verteidigt wird und wo die Zukunft Europas geschrieben wird.»**
+
+Die Ukraine hat sich in den letzten 30 Jahren zum ärmsten Land Europas entwickelt. Die Ukraine ist das
+korrupteste Land Europas, auf Position 122 der internationalen Korruption-Länderliste, auf der Stufe also
+einiger echt unterentwickelter Länder Afrikas. In der Ukraine ist noch kein Euro oder Dollar Entwicklungshilfe bei den Bedürftigen gelandet, die Gelder in Millionenhöhe verschwinden regelmässig in den privaten
+Taschen der dortigen Oligarchen und Administratoren. Die Ukraine kennt keine Minderheitsrechte, auch
+alle sprachlichen Minderheiten werden mit Verboten gezwungen, ihre Muttersprache zu vergessen und nur
+noch Ukrainisch zu kommunizieren. Der Präsident der Ukraine, Wolodymyr Selensky, hat ihm nicht wohlwollende Medien – schon vor dem 24. Februar 2022! – einfach verboten. Dieses de facto absolut unterentwickelte Land ist ‹zum Mittelpunkt unseres Kontinents geworden. Zum Ort, an dem unsere Werte hochgehalten werden, wo unsere Freiheit verteidigt wird und wo die Zukunft Europas geschrieben wird.», wie EUKommissionspräsidentin Ursula von der Leyen es sagt.
+
+**Wo sind die Europäer, die sich wehren und gegen eine solche EU-Kommissionspräsidentin auf die Strasse**
+**gehen? Wo sind die Deutschen, die über den Schatten springen und gegen eine solche EU-Kommissions-**
+**präsidentin, obwohl eine Deutsche, auf die Strasse gehen? Wo sind die Schweizer und Schweizerinnen,**
+**die gegen die skandalöse Übernahme der EU-Sanktionen gegen Russland entgegen den Vorgaben der**
+**Schweizer Neutralität öffentlich protestieren, weil sie allein im Interesse der USA, aber zum Schaden der**
+**EU und der Schweiz beschlossen wurden?**
+
+**Ja, und wundert es jemanden, wenn in Anbetracht von 14 Leopard 2 und 88 Leopard 1 auf russischen**
+**Plattformen daran erinnert wird, dass sowohl 14 als auch 88 klassische Nazi-Propaganda-Symbole sind.**
+Siehe dazu meine Beiträge zu Nazi-Symbolen.
+
+
+-----
+
+**Erneut also schlaflose Nächte haben? Oder vielleicht doch eher ein Buch schreiben mit dem Titel: ‹So**
+**macht die EU zugunsten der USA und Grossbritanniens politischen und wirtschaftlichen Selbstmord;**
+**unter Anleitung von Politikerinnen – mit kleinem i! – wie Ursula von der Leyen, Annalena Baerbock, Liz**
+**Truss und mehreren Anderen, nicht zuletzt in Deutschland›?**
+Einmal mehr sei an den Sonderbericht des ‹Europäischen Rechnungshofes› erinnert, der nur wenige Monate vor dem Ausbruch des Ukraine-Krieges veröffentlicht wurde.
+_Quelle: https://globalbridge.ch/die-ukraine-als-kuenftiges-zentrum-europas/_
+
+##### Die USA umzingeln China mit ihren Kriegswaffen, während sie sich über Ballone aufregen
+_uncut-news.ch, Februar 6, 2023_
+
+Der Journalist Christopher Hooks aus Austin nannte es ‹einen der dümmsten Nachrichtenzyklen seit Menschengedenken›. Die gesamte amerikanische politische und mediale Klasse hat einen existenziellen Zusammenbruch wegen eines chinesischen Spionageballons, der laut Pentagon am Donnerstag im amerikanischen Luftraum entdeckt wurde.
+Aussenminister Antony Blinken sagte seinen geplanten diplomatischen Besuch in China ab, nachdem der
+Ballon entdeckt worden war. Die Massenmedien berichteten mit atemloser Aufregung über die Geschichte.
+China-Feinde haben den ganzen Tag über auf allen möglichen Plattformen die Kriegstrommeln gerührt
+und die Regierung Biden beschuldigt, nicht aggressiv genug auf den Vorfall zu reagieren.
+«Das Wichtigste, was das amerikanische Volk verstehen muss, und was wir in diesem Ausschuss parteiübergreifend darzulegen versuchen, ist, dass die Bedrohung durch die Kommunistische Partei Chinas nicht nur
+eine entfernte Bedrohung in Ostasien oder eine Bedrohung für Taiwan ist», sagte der Vorsitzende des ChinaAusschusses des Repräsentantenhauses, Mike Gallagher, am Freitag gegenüber Fox News. «Es ist eine Bedrohung direkt hier im Land. Es ist eine Bedrohung für die amerikanische Souveränität, und es ist eine
+Bedrohung für den Mittleren Westen – in Orten wie denen, in denen ich lebe.»
+«Ein grosser chinesischer Ballon am Himmel und Millionen chinesischer TikTok-Ballons auf unseren Telefonen», twitterte Senator Mitt Romney. «Let’s shut them all down.»
+USA sagen hochrangiges Treffen mit China wegen eines Ballons ab. Peking bedauert, dass einer seiner Wetterballons in den amerikanischen Luftraum abgedriftet ist.
+_von Kyle Anzalone_
+
+Das chinesische Aussenministerium behauptet, der Ballon stamme tatsächlich aus China, sei aber ‹ziviler
+Natur und diene der meteorologischen und anderen wissenschaftlichen Forschung› und sei einfach weit
+vom Kurs abgeblasen worden. Das könnte natürlich nicht stimmen – alle grossen Regierungen spionieren
+einander ständig aus, und China ist da keine Ausnahme -, aber das Pentagon ist überzeugt, dass der Ballon
+‹keinen nennenswerten Mehrwert schafft, der über das hinausgeht, was die VR China wahrscheinlich durch
+Dinge wie Satelliten in der niedrigen Erdumlaufbahn sammeln kann›.
+
+
+-----
+
+Alle regen sich also über einen Ballon auf, der aller Wahrscheinlichkeit nach für Spionagezwecke weitgehend wertlos ist, obwohl jeder weiss, dass die USA China bei jeder sich bietenden Gelegenheit ausspionieren. US-Beamte haben sich gegenüber der Presse darüber beklagt, dass es für amerikanische Spione viel
+schwieriger ist, in China Operationen durchzuführen und Mitarbeiter zu rekrutieren als früher, weil die
+chinesische Regierung Massnahmen ergriffen hat, um sie zu behindern. 2001 verursachte ein US-Spionageflugzeug einen grossen internationalen Zwischenfall, als es an der chinesischen Küste mit einem chinesischen Militärflugzeug zusammenstiess, wobei der Pilot ums Leben kam.
+Die USA betrachten es als ihr souveränes Recht, jede beliebige Nation auszuspionieren, und der Durchschnittsamerikaner sieht das mehr oder weniger genauso. Die Amerikaner waren über die Enthüllungen
+von Edward Snowden empört, und zwar nicht, weil die Spionagebehörden Überwachung betrieben, sondern
+weil sie amerikanische Bürger überwachten. Es wird einfach als gegeben hingenommen, dass es in Ordnung
+ist, Ausländer auszuspionieren, daher ist es ein wenig albern, melodramatisch zu reagieren, wenn Ausländer
+sich revanchieren.
+Wie Jake Werner für ‹Responsible Statecraft› erklärt:
+Die ausländische Überwachung sensibler Standorte in den USA ist kein neues Phänomen. «Sie ist seit dem
+Beginn des Atomzeitalters eine Tatsache, und mit dem Aufkommen von Satellitenüberwachungssystemen
+ist sie längst zum Alltag geworden», so mein Kollege und ehemaliger CIA-Analyst George Beebe.
+Die Überwachung fremder Länder durch die USA ist ebenfalls ganz normal. Dass Grossmächte einander
+ausspionieren, gehört zu den banalen und universellen Tatsachen der internationalen Beziehungen. Grosse
+Länder spionieren sogar ihre eigenen Verbündeten aus. Wir erinnern uns, als der US-Geheimdienst das
+Mobiltelefon der deutschen Bundeskanzlerin Angela Merkel abhörte.
+Selbst wenn sich eine solche Überwachung durch eine rivalisierende Macht gegen die Vereinigten Staaten
+richtet, stellt sie in der Regel keine Bedrohung für die Sicherheit der Amerikaner dar und birgt überschaubare Risiken für Standorte, an denen die Geheimhaltung von grösster Bedeutung ist. Vor dem Hintergrund
+der rasch zunehmenden Spannungen zwischen den USA und China können sich vorhersehbare Vorfälle
+wie diese jedoch schnell zu gefährlichen Konfrontationen ausweiten.
+USA sichern sich Stützpunkte auf den Philippinen, um den Bogen um China zu schliessen
+
+
+-----
+
+Stellen wir all dies einer anderen Nachricht gegenüber, die weit weniger Aufmerksamkeit erhält.
+In einem Artikel mit dem Titel ‹US sichert sich Basen auf den Philippinen, um den Bogen um China zu vervollständigen› berichtet die BBC, dass das Imperium der bereits beeindruckenden militärischen Schlinge,
+die es um die Volksrepublik China gelegt hat, noch mehr Einrichtungen hinzufügen wird.
+«Die USA haben sich den Zugang zu vier zusätzlichen Militärstützpunkten auf den Philippinen gesichert –
+ein wichtiges Stück Land, das einen vorderen Platz zur Überwachung der Chinesen im Südchinesischen
+Meer und um Taiwan herum bieten würde», schreibt Rupert Wingfield-Hayes von der BBC. «Mit dem Abkommen hat Washington die Lücke im Bogen der US-Bündnisse geschlossen, der sich von Südkorea und
+Japan im Norden bis nach Australien im Süden erstreckt. Das fehlende Glied waren die Philippinen, die an
+zwei der grössten potenziellen Krisenherde – Taiwan und das Südchinesische Meer – grenzen.»
+«Die USA haben nicht gesagt, wo die neuen Stützpunkte liegen, aber drei von ihnen könnten auf Luzon
+sein, einer Insel am Nordrand der Philippinen, dem einzigen grossen Stück Land in der Nähe von Taiwan
+– wenn man China nicht mitzählt», schreibt Wingfield-Hayes.
+Die BBC stellt mit freundlicher Genehmigung der philippinischen Streitkräfte eine hilfreiche Illustration zur
+Verfügung, die zeigt, wie die USA ihre militärische Einkreisung vollenden:
+
+
+-----
+
+Das US-Imperium umgibt China seit vielen Jahren mit Militärstützpunkten und Kriegsmaschinerie, und
+zwar in einer Weise, die Washington niemals dulden würde, dass China in den Ländern und Gewässern um
+die Vereinigten Staaten herum agiert. Es steht ausser Frage, dass die USA der Aggressor in diesem zunehmend feindseligen Patt zwischen Grossmächten sind. Und doch sollen wir uns alle über einen Ballon aufregen.
+Wenn Sie mich bitten, Ihnen zu zeigen, wie die USA China angegriffen haben, kann ich Ihnen all die gut
+dokumentierten Wege zeigen, auf denen die USA China mit Kriegswaffen einkreisen. Bitten Sie einen Apologeten des Imperiums, Ihnen zu zeigen, wie China die USA angreift, und er wird anfangen, über TikTok und
+Luftballons zu schwafeln.
+Diese Dinge sind nicht gleichwertig. Vielleicht sollten die Amerikaner aufhören, nach feindlichen Bedrohungen aus dem Ausland Ausschau zu halten, und stattdessen ein wenig näher an ihr eigenes Land heranrücken.
+_QUELLE: US SURROUNDS CHINA WITH WAR MACHINERY WHILE FREAKING OUT ABOUT BALLOONS_
+_Quelle: https://uncutnews.ch/die-usa-umzingeln-china-mit-ihren-kriegswaffen-waehrend-sie-sich-ueber-ballone-aufregen/_
+
+##### Ein in Panik geratenes Imperium versucht, Russland  ein ‹Angebot zu machen, das es nicht ablehnen kann›
+_Pepe Escobar, uncut-news.ch, Januar 31, 2023_
+
+Angesichts der Tatsache, dass der Krieg der NATO mit Russland wahrscheinlich ungünstig enden wird,
+testen die USA ein Ausstiegsangebot. Aber warum sollte Moskau indirekte Vorschläge ernst nehmen, vor
+allem am Vorabend seines neuen militärischen Vorstosses und während es auf der Gewinnerseite steht?
+Diejenigen, die hinter dem Thron sitzen, sind nie gefährlicher, als wenn sie mit dem Rücken zur Wand
+stehen.
+Ihre Macht entgleitet ihnen zusehends: Militärisch durch die fortschreitende Demütigung der NATO in der
+Ukraine; finanziell, weil die meisten Länder des globalen Südens eher früher als später nichts mehr mit der
+Währung eines bankrotten Schurkengiganten zu tun haben wollen; politisch, weil die globale Mehrheit entscheidende Schritte unternimmt, um einer raubgierigen, diskreditierten, de facto Minderheit nicht mehr zu
+gehorchen.
+
+Diejenigen, die hinter dem Thron sitzen, schmieden nun Pläne, um zumindest zu versuchen, die bevorstehende Katastrophe an der militärischen Front aufzuhalten.
+Wie eine hochrangige Quelle aus dem US-Establishment bestätigt, wurde US-Aussenminister Antony Blinken eine neue Direktive zur NATO gegen Russland in der Ukraine übermittelt. Blinken ist, was die tatsächliche Macht anbelangt, nichts weiter als ein Botenjunge für die Strauss’schen Neokonservativen und Neoliberalen, die die US-Aussenpolitik tatsächlich leiten.
+
+Der Aussenminister wurde angewiesen, die neue Direktive – eine Art Botschaft an den Kreml – über die
+Mainstream-Printmedien zu verbreiten, was von der Washington Post auch prompt veröffentlicht wurde.
+In der elitären Arbeitsteilung der US-Mainstream-Medien steht die ‹New York Times› dem Aussenministerium sehr nahe und die Washington Post der CIA In diesem Fall war die Direktive jedoch zu wichtig und
+
+
+-----
+
+musste von der wichtigsten Zeitung der imperialen Hauptstadt weitergegeben werden. Sie wurde als OpEd veröffentlicht (hinter einer Paywall).
+Das Neue daran ist, dass die Amerikaner zum ersten Mal seit Beginn der russischen Militäroperation in der
+Ukraine im Februar 2022 tatsächlich eine Variante des klassischen ‹Angebots, das man nicht ablehnen
+kann› vorschlagen, einschliesslich einiger Zugeständnisse, die Russlands Sicherheitsbedürfnissen entgegenkommen könnten.
+Entscheidend ist, dass das US-Angebot völlig an Kiew vorbeigeht und einmal mehr bestätigt, dass es sich
+um einen Krieg gegen Russland handelt, der vom Imperium und seinen NATO-Schergen geführt wird – mit
+den Ukrainern als blossen ausbaufähigen Stellvertretern.
+Bitte gehen Sie nicht in die Offensive.
+Der in Moskau ansässige Korrespondent der Washington Post, John Helmer, hat einen wichtigen Dienst geleistet, indem er den vollständigen Text von Blinkens Angebot zur Verfügung gestellt hat, der natürlich
+ausführlich bearbeitet wurde, um phantastische Begriffe wie ‹US-Waffen helfen, Putins Invasionstruppe zu
+pulverisieren› und eine erschreckende Erklärung zu enthalten: «Mit anderen Worten: Russland sollte nicht
+bereit sein, sich auszuruhen, sich neu zu formieren und anzugreifen.»
+Die Botschaft aus Washington mag auf den ersten Blick den Eindruck erwecken, dass die USA die russische
+Kontrolle über die Krim, den Donbass, Saporoschje und Cherson – ‹die Landbrücke, die die Krim mit
+Russland verbindet› – als vollendete Tatsache anerkennen würden.
+Die Ukraine würde einen entmilitarisierten Status erhalten, und die Stationierung von HIMARS-Raketen sowie Leopard- und Abrams-Panzern würde sich auf die Westukraine beschränken und als ‹Abschreckung
+gegen weitere russische Angriffe› dienen.
+Was möglicherweise angeboten wurde, ist in Wirklichkeit eine Teilung der Ukraine, einschliesslich der entmilitarisierten Zone, als Gegenleistung dafür, dass der russische Generalstab seine noch unbekannte Offensive im Jahr 2023 absagt, die ebenso verheerend sein könnte wie die Unterbrechung des Zugangs Kiews
+zum Schwarzen Meer und/oder die Unterbrechung der Versorgung mit NATO-Waffen über die polnische
+Grenze.
+Das US-Angebot definiert sich als Weg zu einem ‹gerechten und dauerhaften Frieden, der die territoriale
+Integrität der Ukraine wahrt›. Nun, nicht wirklich. Es wird nur keine Rumpf-Ukraine sein, und Kiew könnte
+sogar die westlichen Gebiete behalten, die Polen unbedingt verschlingen will.
+Es wird auch die Möglichkeit eines direkten Abkommens zwischen Washington und Moskau über ‹ein mögliches militärisches Gleichgewicht nach dem Krieg› angedeutet, einschliesslich einer Nichtmitgliedschaft
+der Ukraine in der NATO. Was die Ukraine selbst betrifft, so scheinen die Amerikaner zu glauben, dass sie
+eine ‹starke, nicht korrupte Wirtschaft mit Mitgliedschaft in der Europäischen Union› sein wird.
+Was auch immer in der Ukraine an Wert übriggeblieben ist, wurde bereits nicht nur von der monumental
+korrupten Oligarchie, sondern vor allem von Investoren und Spekulanten der Sorte BlackRock geschluckt.
+Die verschiedenen Konzerngeier können es sich einfach nicht leisten, die Getreideexporthäfen der Ukraine
+sowie die mit der EU vor dem Krieg vereinbarten Handelsvereinbarungen zu verlieren. Und sie haben Angst,
+dass die russische Offensive Odessa, den wichtigsten Seehafen und Verkehrsknotenpunkt am Schwarzen
+Meer, einnehmen könnte, wodurch die Ukraine vom Festland abgeschnitten wäre.
+Es gibt keinerlei Anhaltspunkte dafür, dass der russische Präsident Wladimir Putin und der gesamte russische Sicherheitsrat – einschliesslich seines Sekretärs Nikolai Patruschew und des stellvertretenden Vorsitzenden Dmitri Medwedew – Grund haben, etwas zu glauben, was aus dem US-Establishment kommt, insbesondere über blosse Lakaien wie Blinken und die Washington Post. Schliesslich hält die Stawka – ein Spitzname für das Oberkommando der russischen Streitkräfte – die Amerikaner für ‹nicht zustimmungsfähig›,
+selbst wenn ein schriftliches Angebot vorliegt.
+Dies wirkt wie ein verzweifelter Schachzug der USA, um Moskau ein paar Zuckerbrote und die Peitsche zu
+präsentieren, in der Hoffnung, die für die nächsten Monate geplante Offensive zu verzögern oder gar abzusagen.
+Selbst dissidente Washingtoner Agenten der alten Schule – die nicht der Strauss’schen NeokonservativenGalaxie verpflichtet sind – wetten darauf, dass der Schachzug nichts bringt: In klassischer ‹strategischer
+Zweideutigkeit› werden die Russen ihren erklärten Kurs der Entmilitarisierung, Entnazifizierung und Entelektrifizierung fortsetzen und jederzeit und überall östlich des Dnjepr ‹aufhören›, wo sie es für richtig
+halten. Oder darüber hinaus.
+
+**Was der Tiefe Staat wirklich will**
+Washingtons Ambitionen in diesem Krieg der NATO gegen Russland gehen weit über die Ukraine hinaus.
+Und wir reden hier nicht einmal davon, eine eurasische Union Russland-China-Deutschland oder einen Alptraum eines gleichwertigen Konkurrenten zu verhindern; bleiben wir bei den prosaischen Fragen auf dem
+ukrainischen Schlachtfeld.
+
+
+-----
+
+Die wichtigsten ‹Empfehlungen› – militärisch, wirtschaftlich, politisch, diplomatisch – wurden Ende letzten
+Jahres in einem Strategiepapier des Atlantic Council ausführlich dargelegt.
+Und in einem anderen, unter ‹Kriegsszenario 1: Der Krieg geht in seinem derzeitigen Tempo weiter›, finden
+wir die Strauss’sche Neokonservativen-Politik vollständig ausbuchstabiert.
+Hier steht alles: von der ‹Bereitstellung von Unterstützung und militärischer Hilfe für Kiew, die ausreicht,
+um das Land in die Lage zu versetzen, den Krieg zu gewinnen› bis hin zur ‹Erhöhung der Tödlichkeit der
+militärischen Hilfe, die auch Kampfflugzeuge umfasst, die es der Ukraine ermöglichen würden, ihren Luftraum zu kontrollieren und russische Streitkräfte darin anzugreifen, sowie Raketentechnologie mit einer
+Reichweite, die ausreicht, um russisches Gebiet zu erreichen».
+Von der Ausbildung des ukrainischen Militärs «im Umgang mit westlichen Waffen, elektronischer Kriegsführung sowie offensiven und defensiven Cyberfähigkeiten und der nahtlosen Integration neuer Rekruten in
+den Dienst» bis hin zur Verstärkung der «Verteidigung an der Frontlinie in der Nähe der Donbass-Region»,
+einschliesslich «Kampftraining mit Schwerpunkt auf irregulärer Kriegsführung».
+Neben der «Verhängung von Sekundärsanktionen gegen alle Unternehmen, die mit dem Kreml Geschäfte
+machen», kommen wir natürlich zur Mutter aller Plünderungen: «Beschlagnahme der 300 Milliarden Dollar,
+die der russische Staat auf Überseekonten in den Vereinigten Staaten und der EU hält, und Verwendung
+der beschlagnahmten Gelder zur Finanzierung des Wiederaufbaus.»
+Die Umstrukturierung der SMO mit Putin, Generalstabschef Waleri Gerassimow und General Armageddon
+in ihren neuen, erweiterten Rollen bringt all diese ausgeklügelten Pläne zum Scheitern.
+Die Straussianer sind jetzt in tiefer Panik. Selbst Blinkens Nummer zwei, die russophobe Kriegstreiberin
+Victoria ‹F**k the EU› Nuland, hat vor dem US-Senat zugegeben, dass es vor dem Frühjahr (realistischerweise erst 2024) keine Abrams-Panzer auf dem Schlachtfeld geben wird. Ausserdem versprach sie eine
+‹Lockerung der Sanktionen›, wenn Moskau ‹zu Verhandlungen zurückkehrt›. Diese Verhandlungen wurden
+von den Amerikanern selbst in Istanbul im Frühjahr 2022 abgebrochen.
+Nuland forderte die Russen auch auf, ‹ihre Truppen abzuziehen›. Nun, das ist zumindest ein wenig komisch
+im Vergleich zu der Panik, die aus Blinkens ‹Angebot, das man nicht ablehnen kann› hervorgeht. Bleiben
+Sie dran für Russlands Nicht-Reaktion.
+_QUELLE: A PANICKED EMPIRE TRIES TO MAKE RUSSIA AN‘OFFER IT CAN’T REFUSE’_
+_Quelle:_ _https://uncutnews.ch/ein-in-panik-geratenes-imperium-versucht-russland-ein-angebot-zu-machen-das-es-nicht-_
+_ablehnen-kann/_
+
+##### Die grosse Lüge vom Frieden durch Waffenlieferungen
+_hwludwig Veröffentlicht am 31. Januar 2023_
+
+Es ist bekannt, dass sich die Grünen in kurzer Zeit von einer Friedens- zur Kriegspartei gewandelt haben.
+Noch vor eineinhalb Jahren traten sie mit ihrem Wahlversprechen in die Regierungskoalition ein, dass
+Deutschland keine Waffen mehr in Konfliktgebiete exportieren dürfe. Nun stehen sie der FDP-Waffenlobbyistin und Kriegshetzerin Strack-Zimmermann mit dem Ruf nach Waffenlieferungen in die Ukraine kaum
+nach. Anstatt ‹Frieden schaffen ohne Waffen› sollen jetzt auf einmal ‹schwere Waffen Frieden schaffen›. Hier
+wird politisch beliebig mit Begriffen hantiert, deren eigentliche Substanz und Bedeutung dabei gar nicht
+erfasst wird. – Krieg wird durch noch mehr Krieg immer nur verschlimmert und kann nicht zum Frieden
+mutieren. Im Grunde weiss man das – und lügt.
+
+Der Sender ntv betitelte seinen Bericht über den Bundesparteitag der Grünen im vergangenen Oktober (1)
+auch ironisch: «Die Grünen sind jetzt eine Kriegspartei für den Frieden» und meldete: Parteichef Nouripour
+spreche sich, ebenso wie seine Co-Vorsitzende Ricarda Lang, für mehr Waffenlieferungen an die Ukraine
+aus, «weil wir sehen, dass diese Waffen Menschenleben retten». –
+Diese ‹Logik› muss man erst mal verdauen. Er meint offensichtlich, ukrainische Menschenleben würden gerettet, was aber impliziert, dass Russen, die durch die gelieferten Waffen gezielt ihr Leben verlieren, nicht
+zählen, also keine Menschen seien.
+Die ‹Welt› berichtete (2), Aussenministerin Annalena Baerbock habe auf dem Parteitag der Grünen Waffenlieferungen an die Ukraine verteidigt. «Wir versorgen die Ukraine mit Waffen (…) eben weil wir eine Friedensund Menschenrechtspartei sind», sagte sie. «Wir unterstützen die Menschen dabei, ihr Leben zu verteidigen». –
+‹Krieg ist Frieden› wurde schon in Orwells ‹1984› als totalitäres ‹Neusprech› ausgegeben und wird nun auch
+von der kindlich-naiven Aussenministerin ihrem orientierungslosen Wahlvolk trotzig eingebläut. Und mit
+dem Menschrecht auf Leben, das die ahnungslos ‹aus dem Völkerrecht Kommende› heranzieht, kann man
+sich natürlich in jeden Krieg auf der Welt einmischen – wenn man nicht weiss, dass Menschenrechte Schutzrechte gegen die je eigene Regierung sind.
+
+
+-----
+
+Bereits im April 2022 hatte Baerbock forsch verkündet: «Ein Ende dieses Krieges wird es nur geben, wenn
+die Ukraine es erzwingt und erkämpft.» Der Ukraine müsse jetzt alles zur Verfügung gestellt werden, was
+sie zur Verteidigung brauche. (3) –
+Hier kommt die martialische Gesinnung ungeschminkt zum Ausdruck. Der Krieg muss mit Hilfe von Waffenlieferungen so lange dauern, bis Russland bezwungen ist. Dieses Ende des Krieges wird dann Frieden genannt. Das hat natürlich mit Frieden überhaupt nichts zu tun, sondern ist reines parteiergreifendes Kriegsgeschrei gegen Russland, das militärisch niedergekämpft werden soll. Das Ende Frieden zu nennen, bedeutet das Aufkleben des Wortes ‹Frieden›, dem aber der begriffliche substantielle Inhalt des Friedens fehlt. Ein
+Fall des Gebrauchs von leeren Worthülsen, wie sie ständig in der Öffentlichkeit zur Lüge und Täuschung
+verwendet werden.
+Sehen wir davon ab, dass
+– eine grosse Atommacht wie Russland von der Ukraine nicht besiegt werden kann, auch nicht mit ständigen Waffenlieferungen;
+– jede Eskalation durch immer schwerere Waffen einerseits mit einer entsprechenden Eskalation andererseits beantwortet wird;
+– die Ukraine das unerreichbare Ziel hat, alle von Russland besetzten Gebiete einschliesslich der Krim zurückzuerobern und dass dafür endlos Waffen zu liefern, Wahnsinn ist, der nur in einen Weltkrieg führen
+kann;
+– die kriegslüsternen Akteure in Berlin von sicherheitspolitischer und strategischer Ahnungs- und Verantwortungslosigkeit geprägt sind, wie der frühere Generalinspekteur General Harald Kujat aufdeckt (4)
+usw.
+Auch das moralische Aufplustern der deutschen US-Marionetten als Friedensapostel gegen das ‹kriegerische Russland› ist die reinste Heuchelei und Verlogenheit.
+
+**Vom Frieden**
+**The Pioneer**
+Frieden setzt die Tugend innerer Friedfertigkeit und Menschenliebe gegenüber jedermann voraus, die es
+gar nicht erst zum Krieg kommen lassen und einen begonnen Krieg so schnell wie möglich durch FriedensVerhandlungen beider Seiten beenden möchten.
+**Waffenlieferungen sind kein Zeichen von friedlicher, sondern von kriegerischer Gesinnung, die nicht das**
+**gegenseitige barbarische Abschlachten beenden, sondern Kriegsziele auf Kosten weiterer Menschen-**
+**leben verfolgen.**
+Das ist die Wahrheit hinter der ständig wiederholten Lüge.
+Wo sind die Rufe der deutschen ‹Friedensapostel› nach sofortigen Friedensverhandlungen? Wo war ihr Aufschrei, als die fast erfolgreichen Friedensverhandlungen von Istanbul im Frühjahr 2022 durch die Intevention des damaligen britischen Premierministers Boris Johnson am 9. April in Kiew zum Scheitern gebracht
+wurden mit der Begründung, der Westen sei für ein Kriegsende nicht bereit? (5)
+General Kujat machte die wichtige Bemerkung:
+«Vielleicht wird einmal die Frage gestellt, wer diesen Krieg wollte, wer ihn nicht verhindern wollte und wer
+ihn nicht verhindern konnte.» (6)
+Die Deutschen erscheinen in diesem barbarischen geopolitischen Spiel nur als die tumben folgsamen Mitspieler, die aber weiss Gott damit nicht unschuldig sind.
+Wirklicher Frieden kann niemals dadurch erreicht werden, dass Gewalt mit Gewalt, Kriegerisches mit Kriegerischem bekämpft, also das Böse durch Böses vermehrt wird. Jeder prüfe sich selbst, was an Hass und
+Hetze, Verleumdung und seelischer Gewalt in ihm lebt, die im Krieg nur als äussere tödliche Gewalt herausgesetzt werden. Es geht darum, den Balken im eigenen Auge nicht zu übersehen und als erstes den wirklichen Frieden in der eigenen Seele herzustellen, der dann erst den äusseren Frieden erreichen kann.
+Die Dinge wiederholen sich. Als Deutschland am 12. Dezember 1916 den Entente-Mächten ein Friedensangebot gemacht hatte, sagte Rudolf Steiner, ein aufmerksamer Beobachter der Ereignisse, am 18. Dezember
+1916 in einem Vortrag, jetzt könne sich zeigen, ob diejenigen, auf die es ankomme, auch nur dem Scheine
+nach noch ein Fünkchen von Recht hätten, davon zu reden, dass sie auch noch so etwas haben wollten wie
+Frieden. «Denn kommt dieser jetzt nicht mit Beschleunigung, dann ist es ja für jedes Kind zu sehen, wo
+man den Frieden nicht will. Und für jedes Kind ist es auch zu sehen, wie lächerlich jene Dinge sind, die jetzt
+schon eingewendet werden – man kann sie alle hypothetisch voraussetzen.» (7)
+Alle Einwände dienten nur dazu, Nebel zu verbreiten. Selbst wenn der Vorwurf berechtigt sei, die Deutschen
+hätten diese oder jene Absicht dahinter, hindere das nicht, «dass man zunächst das unternimmt, was zum
+Heile der Menschheit unternommen werden muss, nämlich aufzuhören mit dem Blutvergiessen!»
+Und Rudolf Steiner brachte die Friedensheuchelei allgemeingültig auf den Punkt:
+**_«Ich könnte mir nur eine einzige Sorte von Menschen denken, die aus ihrer vollen Verblendung nicht zu_**
+**_so etwas kommen würden; das würden diejenigen sein, welche es auch in unserer Gegenwart gibt und_**
+**_die sagen: Wir wollen einen absolut dauerhaften Frieden haben, den ganz vollkommenen Frieden, und_**
+
+
+-----
+
+**_bevor wir den nicht haben, können wir den Krieg nicht einstellen. – Nun, es gibt viele solche Menschen,_**
+**_sie nennen sich oftmals sogar Pazifisten. Gerade aus diesen Kreisen der Pazifisten aber haben einige in_**
+**_den letzten Tagen angefangen, sich zu schämen, ein solches Urteil abzugeben, und geben nun doch ver-_**
+**_nünftigere Urteile ab. Aber es konnte im Verlaufe dieser schmerzlichen Ereignisse wirklich geschehen,_**
+**_dass die Leute sagten: Wir kämpfen für einen dauerhaften Frieden – ohne zu merken, dass das wirklich_**
+**_blosses Blech ist, was sie sagen, aber man kann heute Blech reden, indem man den Anschein erweckt,_**
+**_das höchste Ideal zu vertreten._**
+**_Nein, meine lieben Freunde, was ein ewiges Friedensideal ist, das wird niemals durch auch nur ein Tröpf-_**
+**_chen Blut erreicht, das hervorgerufen ist durch ein Kriegsinstrument; das ist auf ganz andere Weise in_**
+**_die Welt zu setzen! Und wer es auch immer sei, der da sagt, er kämpfe für den Frieden und er müsse des-_**
+**_halb Krieg führen – Krieg bis zur Vernichtung des Gegners – um Frieden zu haben: Der lügt, wenn er sich_**
+**_dessen auch nicht bewusst ist.» (8)_**
+So wurde auch am 30. Dezember 1916 das deutsche Friedensangebot mit der Begründung zurückgewiesen, ein Ende des Krieges sei unmöglich, «solange nicht Gewähr besteht für die Wiederherstellung der verletzten Rechte und Freiheiten, für die Anerkennung des Nationalitätenprinzips und der freien Existenz der
+kleinen Staaten» (Wikipedia).
+Das bedeutete, diese vorgeblichen Ziele mussten erst militärisch erreicht werden, wenn Frieden eintreten
+konnte. Also weiter Krieg, um Frieden zu haben.
+Unter ähnlichem Motto wird auch in der Ukraine das sinnlose Blutvergiessen weitergehen, und verlogen
+werden handfeste Kriegsziele ‹Frieden› und Waffen ‹Friedensinstrumente› genannt.
+_1 n-tv.de 15.10.2022_
+_2 welt.de 15.10.2022_
+_3 br.de 20.4.2022_
+_4 Interview_
+_5 a.a.O._
+_6 Siehe dazu:_
+_Die USA haben die russische Militäroperation bewusst provoziert …_
+_Krieg der USA gegen Russland – von langer Hand geplant_
+_7 Rudolf Steiner: Zeitgeschichtliche Betrachtungen GA 273a, S. 257_
+_8 a.a.O.S. 258-259_
+_Quelle: https://fassadenkratzer.wordpress.com/2023/01/31/die-grose-luge-vom-frieden-durch-waffenlieferungen/_
+
+_Ein Artikel von: Tobias Riegel; 30. Januar 2023 um 14:00_
+
+Je komplexer die Waffen, umso aufwändiger die dafür nötige Ausbildung ukrainischer Kämpfer hierzulande.
+Die Ausbildung von ukrainischen Soldaten in Deutschland an Panzern oder Kampfjets kann laut Wissenschaftlichem Dienst des Bundestages die Kriterien erfüllen, dass Deutschland als direkte Kriegspartei im
+Ukrainekrieg definiert wird. Dass sich in Deutschland kaum jemand mit Reichweite den gefährlichen Forderungen der ukrainischen Regierung und dem Druck der USA widersetzt ist erschütternd Der Tanz auf dem
+
+
+-----
+
+Vulkan, zu dem die Bundesregierung die Bürger momentan nötigt, wird darum immer bedrohlicher.Ein
+Kommentar von Tobias Riegel.
+
+Es war zu erwarten: Kaum war die Kampagne, um Deutschland zur Lieferung von Leopard-Panzern zu bewegen, erfolgreich, startet die nächste Kampagne vonseiten kriegstreiberischer Journalisten und Politiker –
+nun für die Lieferung von Kampfjets. Das wäre nach dem Tabubruch der Leopard-Lieferungen nochmals
+eine weitere Steigerung der Gefahr für die Bürger in Deutschland. Es ist zu hinterfragen, aber laut Wissenschaftlichem Dienst des Bundestages macht sich Deutschland durch die Lieferung von Waffen nicht automatisch zur direkten Kriegspartei. Anders kann die Bewertung aber ausfallen, wenn es um die Ausbildung
+ukrainischer Soldaten an diesen komplexen deutschen Waffen geht. Auf dieses beunruhigende Szenario
+sind wir bereits hier eingegangen, der Wissenschaftliche Dienst schrieb bereits im März (Hervorhebung von
+mir):
+«Als völkerrechtlich gesichert kann gelten, dass die militärische Unterstützung einer bestimmten Konfliktpartei in Form von Waffenlieferungen, einer Zurverfügungstellung von militärischer Ausrüstung o.ä. noch
+nicht die Grenze zur Konfliktteilnahme überschreitet. (…) Bei Unterstützungsleistungen auf der Grundlage
+von non-belligerency bleibt der Umfang von Waffenlieferungen, aber auch die Frage, ob es sich dabei um
+‹offensive› oder ‹defensive› Waffen handelt, rechtlich unerheblich. Erst wenn neben der Belieferung mit Waffen auch die Einweisung der Konfliktpartei bzw. Ausbildung an solchen Waffen in Rede stünde, würde man
+den gesicherten Bereich der Nichtkriegsführung verlassen.»
+Zu dieser rechtlichen Einschätzung kommt hinzu, dass Russland unabhängig von juristischen Definitionen
+Deutschland zur Kriegspartei erklären könnte. Das wäre dann formal zu beanstanden, aber das würde
+nichts an der daraus entstehenden Katastrophe ändern. Die immense Gefahr einer direkten Konfrontation
+Deutschlands und Russlands wird aber einmal mehr ignoriert, indem jetzt die Forderungen für die Lieferung
+deutscher Kampfjets angeheizt werden. Als eine der ersten Stimmen ist dabei etwa der Chef der Münchner
+Sicherheitskonferenz, Christoph Heusgen, zu vernehmen: Er befürwortet die Lieferung von Kampfflugzeugen an die Ukraine, wie Medien berichten.
+
+**Waffenlieferungen, Soldatenausbildung, Wirtschaftskrieg, Kriegsrhetorik –**
+**Aber trotzdem keine Konfliktpartei**
+Nicht überraschend (aber doch erschütternd) ist, dass solche gefährlichen Vorstösse auch aus der SPD
+nicht angemessen zurückgewiesen werden. So schloss SPD-Chefin Saskia Esken eine Lieferung von Kampfjets an die Ukraine laut Medien zumindest nicht ausdrücklich aus. Auf die Frage sagte sie im ARD-‹Bericht
+aus Berlin›, es komme ganz entscheidend darauf an, dass Deutschland und die NATO nicht Kriegspartei
+sind. Deswegen sei die Regierung in diesen Fragen in sehr enger Abstimmung mit den US-Amerikanern.
+Deutschland sei nicht Kriegspartei und dies wolle die Regierung auch für ‹alle Zukunft vermeiden›. Zugleich
+komme es darauf an, dass Deutschland mit jeder Entscheidung dem russischen Präsidenten Wladimir Putin
+deutlich mache, «dass wir die russische Aggression zurückweisen».
+Dass Bundeskanzler Olaf Scholz (SPD) dem Drängen nach Kampfflugzeugen nun anscheinend vorerst
+widerstehen will, muss angesichts seines Verhaltens bei den Leopard-Lieferungen als unglaubwürdig angesehen werden. Und Aussenministerin Annalena Baerbock (Grüne) hat den Kriegszustand gegen Russland
+kürzlich sogar öffentlich formuliert. Die ständigen Beteuerungen von deutschen Akteuren, man wolle trotz
+Waffenlieferungen, Soldatenausbildung, Wirtschaftskrieg und Kriegsrhetorik keinesfalls Konfliktpartei werden, sind mittlerweile grotesk. Das riskante Handeln der Regierung auf einem Feld, bei dem sie keine Kontrolle mehr hätte, sobald der erste Schuss fallen würde, kann mit einer Partie ‹Russisches Roulette› verglichen werden – nur dass bei dieser geopolitischen Variante auch alle Bürger gezwungen werden, am potentiell selbstmörderischen ‹Spiel› teilzunehmen. Wie verantwortungslos viele Medien und Politiker in dieser
+Frage handeln, haben wir unter anderem hier beschrieben.
+Selbst wenn das aktuelle ‹Spiel› der Kriegstreiber gutgehen sollte, also Deutschland von Russland vorerst
+nicht als aktiver Kriegsgegner definiert werden sollte, obwohl hier gegnerische Soldaten geschult werden:
+Das würde nicht bedeuten, dass das riskante Handeln von Politikern und Journalisten, das die deutsche
+Bevölkerung in Mithaftung nimmt, gerechtfertigt wäre. Denn durch die Bundesregierung wird bezüglich des
+Status eines möglichen Kriegsgegners Russlands eine Verantwortung ‹übernommen›, die gar nicht zu übernehmen ist.
+Ausserdem wird momentan immenser und langfristiger Schaden im deutsch-russischen Verhältnis angerichtet – auch wenn es nicht zum direkten Krieg Deutschlands gegen Russland kommt. Eine Verständigung
+zwischen Russland und Resteuropa gebietet sich nicht nur aus historischer Verpflichtung, sondern sie ist
+auch die Grundlage für unser zukünftiges friedliches Zusammenleben. Dass die USA daran kein Interesse
+haben, rechtfertigt nicht, dass europäische Politiker so leidenschaftlich gegen die friedliche Entwicklung
+des Kontinents agieren, wie es momentan zu beobachten ist.
+Man kann es nicht oft genug sagen: Das ist nicht ‹unser Krieg›. Und: Die aktuelle Politik der Bundesregierung lindert nicht das schreckliche Leid der ukrainischen Zivilisten – weder durch die Sanktionen noch
+
+
+-----
+
+durch die Waffenlieferungen noch durch die Ausbildung von ukrainischen Soldaten. Die Gleichung «Wer
+gegen die Sanktionen ist, ist gegen die Ukraine», hält nicht stand, wie wir in diesem Artikel beschrieben
+haben.
+_Quelle: https://www.nachdenkseiten.de/?p=93195_
+
+###### Versendung eines Auszuges aus dem 832. Kontaktbericht
+
+**E-Brief an alle Bundestagsabgeordnete und Fraktionen im deutschen Bundestag vom 29. Januar 2023**
+
+Sehr geehrte Damen und Herren,
+In der Anlage erhalten Sie einen Auszug aus dem 832. Kontakt zwischen Billy und Ptaah.
+**Bitte streben Sie eine FRIEDLICHE Lösung in Form von VERHANDLUNGEN und einem WAFFENSTILL-**
+**STAND mit Russland an!**
+
+Mit freundlichen Grüssen
+Achim Wolf
+
+**Die Antwort vom 30. Januar 2023**
+**Gesendet: Montag, 30. Januar2023 um14:38 Uhr**
+**Von: "Leye Christian" <christian.leye@bundestag.de>**
+**An: "Leye Christian"christian.leye@bundestag.de**
+**Betreff: Ihre Zuschrift zum Thema Ukrainekrieg und Waffenlieferungen**
+
+Sehr geehrte Damen und Herren,
+danke für Ihre Zuschriften anlässlich des Kriegs in der Ukraine und der Frage, ob Deutschland Waffen an
+die Ukraine liefern sollte.
+Unsere Fraktion hat hier eine klare Position: Wir verurteilen diesen Krieg. Und wir wollen, dass so schnell
+wie möglich alle Waffen schweigen. Deswegen halten wir es für falsch, dass die Bundesregierung nun fast
+ein Jahr voll auf Waffen setzt und nicht darauf, im Verbund mit anderen Ländern auf eine Verhandlungslösung zu setzen. Wer Frieden will, sendet Diplomaten, nicht immer mehr und immer schwerere Waffen.
+Diese Politik bringt uns immer näher an eine gefährliche Eskalation und an den Rand eines (nuklearen)
+Weltkrieges. Es ist unverantwortlich von der Bundesregierung, so weiterzumachen. Zumal die von der EU
+verhängten Wirtschaftssanktionen und die Reaktion hierauf von Russland die Energiepreise haben enorm
+steigen lassen. Millionen Menschen in Europa können ihre Energierechnungen nicht mehr bezahlen. Industrieunternehmen müssen schliessen. Und es werden mehr klimaschädliche Emissionen freigesetzt. Kurzum: Die Sanktionspolitik ist ein Desaster und richtet grossen Schaden an. Auch wenn Russland in manchen
+Wirtschaftsbereichen tatsächlich grosse Probleme hat, so ist es keine gute Idee, wenn Teile der Bevölkerungen in der EU gleichzeitig verarmen. Bislang profitiert – wie der konservative Journalist Gabor Steingart
+kürzlich sehr treffend zusammenfasste – nur die USA vom Ukrainekrieg.
+(https://www.focus.de/finanzen/news/gastbeitrag-von-gabor-steingart-bewaffnung-auf-kredit-warum-dieusa-den-ukraine-krieg-gewinnen-werden_id_183364187.html )
+Von Beginn an hat sich Herr Leye für eine Verhandlungslösung in diesem Krieg stark gemacht
+(https://christian-leye.de/2022/02/27/friedenspolitik-statt-ruestungsspirale/). Und er hat sich gemeinsam
+mit Frau Dr. Wagenknecht für eine Wiederaufnahme von Energielieferungen aus Russland ausgesprochen,
+um die Kosten für Energie wieder deutlich zu senken
+(siehe: https://christian-leye.de/2022/08/30/oeffnung-von-nord-stream-2-als-signal-der-entspannung-indiesem-wirtschaftskrieg/).
+Wir werden uns weiter für eine friedliche Aussenpolitik einsetzen und hoffen, auch Sie werben in ihrem
+Freundes- und Bekanntenkreis für eine Alternative zum gefährlichen Kurs der Ampel-Bundesregierung.
+Mit freundlichen Grüssen,
+Constantin Braun
+PS: gerne weise ich Sie auf diese anstehende Online-Diskussion mit dem Publizisten Michael Lüders hin https://bag-frieden.de/sanktionspolitik/
+//
+Constantin Braun
+Büroleiter von Christian Leye,
+MdB wirtschaftspolitischer Sprecher
+Fraktion DIE LINKE.
+Platz der Republik11011 Berlin
+Tel: +49(0)3022774207
+Fax: +49(0)302272374207
+
+
+-----
+
+##### Pressemeldung vom 31. Januar 2023
+
+China hat die Vereinigten Staaten für den Krieg in der Ukraine verantwortlich gemacht. «Die USA sind diejenigen, die die Ukraine-Krise ausgelöst haben», sagte Aussenamtssprecherin Mao Ning am Montag vor der
+Presse in Peking. Sie seien auch «der grösste Faktor, der die Krise anfacht».
+Indem die USA schwere und offensive Waffen an die Ukraine lieferten, verlängerten und verstärkten sie den
+Konflikt nur. Der russische Angriffskrieg gegen das Nachbarland Ukraine dauert inzwischen schon mehr als
+elf Monate. Die Volksrepublik China hat Russlands Vorgehen nie verurteilt.
+Mit den Anschuldigungen reagierte Mao Ning auf eine Frage nach amerikanischen Vorwürfen, dass chinesische Unternehmen möglicherweise die russische Seite unterstützten. Die Sprecherin sprach von ‹unbegründeten Verdächtigungen› und ‹grundloser Erpressung›. China werde nicht untätig bleiben, wenn die USA die
+legitimen Rechte und Interessen chinesischer Unternehmen schädigten.
+«Wenn die USA wirklich die Krise bald beendigen wollen und sich um das Leben der Menschen in der
+Ukraine sorgen, müssen sie aufhören, Waffen zu liefern und von den Kämpfen zu profitieren», sagte Mao
+Ning. Die Verschärfung im Ton erfolgte nur wenige Tage vor einem Besuch des US-Aussenministers Antony
+Blinken, der am Sonntag und Montag in Peking erwartet wird. Zuletzt war dort im Oktober 2018 ein USAussenminister zu Gast. (dpa)
+_Quelle: https://www.gmx.net/magazine/politik/russland-krieg-ukraine/krieg-ukraine-live-ticker-china-usa-krieg-ukraine-ver-_
+_antwortlich-37768936_
+_www.christian-leye.de_
+
+### Ukraine-Krieg: Pressemeldungen und Kommentare dazu
+
+###### Kommentar: Solche Leute gehören sofort ihres Amtes enthoben und lebenszeitig
+
+
+###### verbannt Such people should be immediately removed from office and exiled for life
+
+
+-----
+
+**Kommentar: Der senile Präsident und sein nützlicher Idiot.**
+
+**The senile president and his useful idiot.**
+
+##### HITLER WARS
+**Das deutsche Nazi-Erbe**
+_Autor: Uli Gellermann, Datum: 6.2.2023_
+
+Deutschland sei eine Demokratie, sagt man. Dass während des Corona-Regimes eine Reihe Grundrechte
+ohne massiven Widerspruch ausser Kraft gesetzt wurden, liess, Zweifel am Gehalt dieser Demokratie aufkommen. Wenn zur Zeit eine übergrosse Koalition in Politik und Medien aktive Kriegshetze betreibt, obwohl
+es im Artikel 1 des Grundgesetzes ein Friedensgebot gibt, ohne dass diese Grundgesetzverletzung auf drastischen Widerstand tritt, vermehren sich die Zweifel an der deutschen Demokratie. Diese Zweifel treffen
+immer wieder auf dieselbe Formel: Eine Mehrheit in der Bevölkerung sei, durch Wahlen immer wieder
+bezeugt, mit der herrschenden Politik einverstanden. Also dürfe man davon ausgehen, dass die Grundsätze
+der Demokratie nicht verletzt werden würden.
+
+**Legende von der ‹Stunde Null›**
+In welcher Gesellschaft wurzelt die deutsche Demokratie? Ohne die Phase der DDR zu berücksichtigen,
+muss man festhalten, dass die Bundesrepublik auf Gesetzen, Gewohnheiten und Vermögensverhältnissen
+aufgebaut wurde, die ziemlich ungebrochen aus dem Nazi-Reich stammen. Zwar schwebt die Legende von
+der ‹Stunde Null› durch den gesellschaftlichen Raum, die für eine Zeit um 1945 den Deutschen die Unschuld eines unbelasteten Neuanfangs attestiert. Diese Legende wird wesentlich durch die Erzählung einer
+‹Entnazifizierung› untermauert, die eine weitgehende Vernichtung der Nazi-Strukturen behauptet. Aber
+diese Behauptung bedarf einer Prüfung.
+
+**Nazi-Unkraut nie ausgerissen**
+Fraglos konnten die offenen Nazi-Strukturen mithilfe der Alliierten zerschlagen werden: Die Nazi-Partei, die
+Nazi-Organisationen und -Medien wurden nach Ende des Krieges verboten. Herausragende Nazi-Persönlichkeiten wurden in den ‹Nürnberger Prozessen› mehr oder minder abgestraft. Aber der Boden, in dem
+das grosse Naziverbrechen wurzelte, wurde in der Bundesrepublik nie umgepflügt, geschweige dass das
+Nazi-Unkraut mit der Egge einer offenen und öffentlichen Debatte ausgerissen worden wäre.
+
+**Wiederauflage der Russophobie**
+Spät und eher verschwiemelt fokussierte die bundesdeutsche Anti-Nazidebatte auf den Antisemitismus und
+dessen Verbrechen. Die schwere deutsche Schuld am Nazi-Krieg und der Rassismus gegen die slawischen
+Völker wurden zweitrangig behandelt; es gab und gibt sogar eine durch den obligaten Antikommunismus
+bemäntelte Wiederauflage der Russophobie und die Ausblendung der sowjetischen Nazi-Opfer
+
+
+-----
+
+**«Hitler wars»**
+«Hitler wars» und mit dessen primär moralischer Verurteilung schien die Analyse des Faschismus auch
+schon erledigt. Dass es eine interessengesteuerte (gegen die Arbeiterorganisationen) Finanzierung der
+Nazis durch das grosse Kapital gab, spielte weder im Schulunterricht noch in der allgemeinen öffentlichen
+Diskussion eine Rolle. Weder die Justiz noch die Polizei wurde konsequent von Nazis gesäubert. Mit dem
+Artikel 131 des Grundgesetzes wurden im Gegenteil Nazi-Beamte versorgungsrechtlich abgesichert.
+
+**Freundeskreis des Reichsführers der SS**
+Es ist eine Binsenweisheit, dass der Schicht, die über grössere Vermögen verfügt, auch mehr möglich ist:
+Mehr Möglichkeiten des Einflusses auf die Gesellschaft und deren politische Ausrichtung. Dass aus dem
+‹Freundeskreis des Reichsführers der SS› zum Beispiel der Chef der Bundesbank, der prägende Unternehmer Friedrich Flick, der spätere Chef von Bosch und auch ein Chef der Reederei HAPAG stammten, war
+kein Thema in der bundesdeutschen Öffentlichkeit. Und dass auch die Erben des Bertelsmann-Konzerns
+bis heute mit Profiten aus der Kooperation Bertelsmanns mit den Nazis hantieren, ist ein Faktum aber
+kaum bekannt.
+
+**Nazi-Formierung hat die Kostüme gewechselt**
+Die Nazi-Formierung Deutschlands hat die Kostüme gewechselt, aber nicht die Inhalte: Die damals durch
+staatlichen Druck erzielte Einheitlichkeit der herrschenden Meinung wird heute durch die ‹gemeinsamen
+Interessen› der Eliten erzielt. Zu deren Interessen gehört keine kritische Öffentlichkeit, keine Opposition
+gegen das Profitsystem, keine offene gesellschaftliche Debatte. Im Gegenteil: Abweichende Meinungen werden als ‹rechts› gebrandmarkt und sind damit erledigt. Man glaubt aus der Antisemitismuskampagne zu
+wissen, dass man sich mit den Inhalten oppositioneller Positionen gar nicht auseinandersetzen muss, wenn
+man sie als moralisch verwerflich erklärt. Das gilt sogar für abweichende wissenschaftliche Meinungen: Als
+wissenschaftlich gilt nur noch das, was Regierung und Konzernen gefällt. Damit hat sich die demokratische
+Diskussion erledigt.
+
+**Wer anders denkt, wird diffamiert**
+Wenn heute versucht wird, die wissenschaftliche, von der Mehrheitsmeinung abweichende Position von
+Professor Bhakti zur Corona-Impfung entweder überhaupt nicht zu diskutieren oder den Menschen Bhakti
+zum Antisemiten zu machen, dann erinnert dieser Diskussions-Stil fatal an die ‹jüdische, also verwerfliche
+Physik›, die von den Nazis gegen den Wissenschaftler Einstein erfunden wurde: Wer anders denkt, wird
+diffamiert. Ähnlichkeiten sind nicht zufällig.
+
+**Opposition hat im Parlament stattzufinden**
+Der Nazi-Stil von Befehl und Gehorsam wurde in der Bundesrepublik fortgesetzt. Zwar gab und gibt es eine
+demonstrative Ablehnung der Uniformierung und eine Betonung der Individualität, aber beide sind eher
+modische Aspekte. Der Staat, als scheinbar über den Interessengegensätzen stehendes Wesen, gilt bis
+heute als sakrosankt. Seine erfolgreiche Maskierung durch den Parlamentarismus gibt den Anschein von
+Demokratie. Diese Demokratie gilt aber nur, wenn die eingeübten Regeln eingehalten werden. Opposition
+hat im Parlament stattzufinden. Wer ausserhalb des Parlamentes argumentiert, fällt unter das MedienSchweigegebot und wird zudem als ‹rechts› diffamiert.
+
+**Perfide Ironie**
+Es ist eine besonders perfide Ironie, dass ein System von Nazi-Erben seine ausserparlamentarische Opposition gern als ‹rechts› bezeichnet. Aber dieses geschickte Spiel der Verwischung von links und rechts ist
+der Opposition erfolgreich implantiert worden: Nicht wenige in der Demokratiebewegung halten den Unterschied zwischen links und rechts für unwichtig und übernehmen so eine Position der Herrschenden, ohne
+das zu bemerken. Dieser ideologische Sieg über die demokratische Alternative legt sie lahm und macht sie
+partiell handlungsunfähig. Es wäre an der Zeit, sich mit der Aufarbeitung der Geschichte auch Klarheiten
+über den Staat zu verschaffen, den man bekämpft.
+_Quelle: https://www.rationalgalerie.de/home/hitler-wars_
+
+
+-----
+
+##### Ob Merkel, ob Scholz mit Baerbock, es hat sich nichts geändert. Whether Merkel, whether Scholz with Baerbock, nothing has changed.
+
+ Brief an das Presse-und Informationsamt der Bundesregierung, an die Fraktionen im deutschen Bundestag und an alle Bundestagsabgeordneten
+
+**Gesendet:** **Von: "Achim Wolf", Samstag 04., Februar 2023 um 11:15 Uhr**
+**An: direktkommunikation@spdfraktion.de, info@gruene-bundestag.de, dialog@fdpbt.de,**
+buerger@afdbundestag.de, fraktion@linksfraktion.de, fraktion@cducsu.de, poststelle@bk.bund.de,
+internetpost@bpa.bund.de
+**Betreff: Wollen Sie wirklich FRIEDEN? Tun Sie das Richtige, wenn Sie Waffen liefern und den Krieg**
+schüren?
+
+**Sehr geehrte Damen und Herren,**
+**Bitte lesen Sie aufmerksam den folgenden Text von BEAM "Billy" Eduard Albert Meier.**
+**Über Ihre Antwort würde ich mich freuen!**
+
+**Mit freundlichen Grüssen**
+**Achim Wolf**
+
+
+-----
+
+##### Und es sei Frieden auf Erden ...
+
+**_Symbol für FRIEDEN_**
+
+Jene wahren Menschen, die für die ganze Menschheit Liebe, Frieden, Freiheit und Harmonie wünschen und
+die nicht der Machtgier sowie nicht der Selbstherrlichkeit, Überheblichkeit und nicht dem Grössenwahn
+verfallen sind, bedienen sich niemals des Hasses, der Rachsucht und tödlicher Waffen, um die Menschen
+und die Welt unter ihre Fuchtel zu zwingen, und zwar allein schon darum, weil solche Gesinnungen, Techniken und Instrumentarien usw. stets die Tendenz haben, sich ins Gegenteil umzukehren – tatsächlich gedeiht, spriesst und wuchert stacheliges und alles verdrängendes und zerstörendes Unkraut nur dort, wo
+blindwütige Armeen von sich blutlüstern austobenden Kriegern durchgezogen wurden und im Namen und
+unter dem Befehl Wahnsinniger gemordet, zerstört und vernichtet haben – unter dem Banner angeblicher
+Liebe und Harmonie sowie Friedens- und Freiheitsschaffung. All das ist wahrheitlich jedoch nur ein Deckmantel zur Vertuschung der Machtgier, der feigen Angst und Feigheit sowie des Hasses und der Rachsucht
+jener, welche Kriege und Terror anzetteln und unsagbares Elend sowie brüllende Not und unsagbares Leid
+über die Erdenmenschen und über die Welt bringen.
+Waffen aller Art, angefangen bei Schlag-, Schneid- und Stichwaffen über Handfeuerwaffen, einfachen Gewehren und Maschinenwaffen, über Bio-, Chemie- und Nuklearwaffen bis hin zu Panzern, Bomben, Raketen
+und tödlichen Schwingungen und Strahlungen entsprechen alle unheilvollen und tod-, leid-, schmerz- sowie
+Zerstörung und Vernichtung bringenden Geräten und Dingen, die niemals ein Werkzeug oder sonstiges Mittel eines wahren Menschen, sondern nur ausgearteter Kreaturen sein können, für die ein Menschenleben
+und alles von der Schöpfung und von den Menschen Erschaffene keinerlei Wert besitzt. Und Kreaturen, die
+solche Dinge und Waffen benutzen, um andere anzugreifen, zu harmen, zu terrorisieren, hassvoll, rachsüchtig und blutrünstig zu morden sowie machtgierig und verbrecherisch zu zerstören, zu vernichten und zu
+erobern, verdienen wohl kaum noch die Bezeichnung Mensch, denn wahrheitlich sind sie schlimmer und
+bösartiger als jede ausgeartete blutlüsterne Bestie.
+Bleibt den Angegriffenen keine andere Wahl, als selbst zu den gleichen Mitteln, Dingen und Waffen zu greifen und diese zu benützen, um ihr Leben und Land zu verteidigen und ihre Errungenschaften sowie ihr
+Hab und Gut und ihre Angehörigen zu schützen, dann tun sie gut daran, ruhig und frei von aller Begierde
+sowie von allem Hass und Zorn und fern jeder Rachsucht zu sein und den errungenen Sieg nicht zu feiern.
+Tun sie das aber doch, dann sind sie nicht besser als die Angreifer, weil sie sich darüber freuen, mit Blutvergiessen, Mord und Totschlag, Terror, Folter und Zerstörung sowie mit Vernichtung, Leid und menschlicher Würdelosigkeit ihren Sieg errungen zu haben.
+Weierlesen: https://www.figu.org/ch/geisteslehre/und-es-sei-frieden
+
+**Antwort 1**
+**Gesendet: Sonntag, 05. Februar 2023 um 07:46 Uhr**
+**Von: "Dietz Thomas"<thomas.dietz@bundestag.de>**
+**An: "Achim Wolf**
+
+
+-----
+
+**Betreff: Re: Wollen Sie wirklich FRIEDEN? Tun Sie das Richtige, wenn Sie Waffen liefern und den Krieg**
+schüren?
+
+Sehr geehrter Herr Wolf,
+ich wünsche Ihnen einen schönen Sonntag.
+Mit freundlichen Grüssen
+Thomas Dietz
+
+**Antwort 2**
+Gesendet: Montag, 06. Februar2023 um12:37 Uhr
+Von: "Wißler Janine"<janine.wissler@bundestag.de>
+An: "Achim Wolf"
+Betreff: AW: Wollen Sie wirklich FRIEDEN? Tun Sie das Richtige, wenn Sie Waffen liefern und den Krieg
+schüren?
+
+Sehr geehrter Herr Wolf,
+danke für Ihre E-Mail an einen unbestimmten Empfängerkreis, die auch in unserem Postfach gelandet ist.
+Zur Frage mit den Waffenlieferungen an die Ukraine hat sich Frau Wissler mehrfach geäussert, zuletzt auch
+im Gespräch mit Anne Will am 29. Januar2023.
+Ihre wesentlichen Argumente:
+Seit elf Monaten herrscht Krieg in der Ukraine, ein verbrecherischer Krieg, der durch Russland geführt wird.
+Die Bilder, die wir sehen, sind fürchterlich. Viele Menschen sind schockiert darüber, wie viele Zivilisten ums
+Leben kommen, wie Russland die ukrainische Infrastruktur gezielt zerstört. DIE LINKE verurteilt den russischen Angriff und steht solidarisch an der Seite der ukrainischen Bevölkerung.
+Die Bundesregierung hat jetzt beschlossen, auch Leopard-Panzer der Bundeswehr an die Ukraine zu liefern.
+Seit Beginn des Krieges gibt es immer neue Forderungen nach der Lieferung von immer mehr Waffen.
+Schrittweise hat Deutschland inzwischen schwere Artillerie, Gepard-Panzer mit Flugabwehrbewaffnung,
+MARS-Raketenwerfer, Schützenpanzer Marder und vieles mehr geliefert. Jetzt kommen Leopard-Kampfpanzer hinzu. Was kommt als Nächstes? Aus der ukrainischen Regierung werden prompt Kampfflugzeuge
+gefordert. Kriegsschiffe? Bundeswehrsoldaten? Und mit welchem Ziel genau soll die Ukraine unterstützt
+werden?
+Der wissenschaftliche Dienst des Bundestages hat bereits im vergangenen Jahr deutlich gemacht hat, dass
+die Ausbildung von Soldaten an deutschem Kriegsgerät auch völkerrechtlich die Gefahr birgt, dass damit
+der ‹gesicherte Bereich der Nichtteilnahme› an einem Krieg verlassen wird.
+DIE LINKE hat grosse Sorge angesichts des vorherrschenden militärischen Tunnelblicks. Für uns ist klar:
+Die NATO und die Bundesrepublik Deutschland dürfen nicht Kriegspartei werden. Und deshalb lehnen wir,
+wie übrigens auch fast die Hälfte der Bevölkerung, die Lieferungen von immer mehr schweren Waffen ab.
+Stattdessen brauchen wir ernsthafte diplomatische Vorstösse. Derzeit läuft alles auf einen jahrelangen Abnutzungskrieg hinaus, der nur Verlierer kennt und eine massive Eskalationsgefahr birgt. Am Ende wird es
+in jedem Fall eine Verhandlungslösung geben müssen. Deshalb sollten Gespräche über einen Waffenstillstand geführt, Friedensverhandlungen mit internationaler Vermittlung vorbereitet, während dieser Zeit die
+von Russland besetzen Gebiete in der Ukraine entmilitarisiert und Perspektiven für eine Nachkriegsordnung
+beraten werden.
+Mit freundlichen Grüssen
+Jörg Cezanne
+
+Jörg Cezanne
+Büro Janine Wissler MdB
+Deutscher Bundestag der Platz Republik1
+11011 Bundestag
+Telefon 030-227 74196
+
+##### Ein Leser schreibt:
+
+###### Salome Billy Hier ist wieder mal ein Beispiel dafür, wie dumm und nichtdenkend unsere Politiker sind. Da erkennt man leider von welcher Schweine-Bagage wir regiert werden. (Anmerkung: Bagage, abfälliger Ausdruck (auch Schimpfwort), so viel wie Gesindel (abgeleitet von französisch bagage = Gepäck, Tross)) Salome Manuel
+
+
+-----
+
+###### Folgender Bericht wurde zur Verfügung gestellt von J. Flaum (Übersetzung: unbekannt)
+
+##### Zum Abschluss seines Arbeitsbesuchs in Kirgisistan beantwortete das russische Staatsoberhaupt Fragen der Medien.
+_9. Dezember 2022, 16:55; Bischkek_
+
+VLADIMIR PUTIN: Guten Tag!
+Ich höre Ihnen zu.
+
+M. Sidibe: Nach den Ergebnissen des Jahres hat die EAWU (Eurasische Wirtschaftsunion – bestehend aus
+Russland, Weissrussland, Kasachstan, Kirgistan und Armenien) sehr gute Entwicklungsindikatoren in allen
+Bereichen, und ich wollte fragen, worauf Sie das zurückführen, denn die Situation in der Weltwirtschaft ist
+schwierig, und es werden neue Sanktionen verhängt. Warum sind solche Ergebnisse erzielt worden? Und
+wie bewerten Sie die Ergebnisse des heutigen Treffens? Und wie wird sich die EAWU Ihrer Meinung nach
+in Zukunft entwickeln? Ihre Prognose für die nahe und mittlere Zukunft?
+
+VLADIMIR PUTIN: Was die guten Ergebnisse betrifft, so könnten sie besser sein. Wir möchten, dass es besser
+wird. Uns wurde zwar ein 20-prozentiger Rückgang der russischen Wirtschaft vorausgesagt, aber es sind
+2,9%. Das ist natürlich ein grosser Unterschied, und wir verstehen, dass diejenigen, die eine solche Entwicklung vorausgesagt haben sich sehr geirrt haben und wir uns nicht geirrt haben
+
+
+-----
+
+Zu sagen, dass es uns sehr gut geht, ist wahrscheinlich auch nicht gut, denn wir befinden uns in einer Rezession. Aber die Situation ist in Bezug auf eine Reihe von Komponenten besser als in vielen anderen Ländern. Was die Inflation anbelangt, so sagte ich bereits, dass wir 12,2 bis 12,3% für das Jahr haben werden,
+während die europäischen Länder 17, 20, mehr als 20% haben werden. Das sind absolut exorbitante Werte
+für die europäische Wirtschaft, das ist ganz klar – das hat niemand erfunden. Das Gleiche gilt für Lebensmittel, Bauwesen, auch darüber habe ich gesprochen.
+Wenn wir über die EAWU im ganzen sprechen, über die Eurasische [Wirtschafts-Union], dann ja: Wir haben
+eine stabile Situation. Einer der wichtigsten Indikatoren ist die Arbeitslosigkeit, sie ist niedriger als in vielen
+anderen Ländern. Woher kommt dieses Ergebnis? Das alles ergibt sich aus den Grundlagen unserer Volkswirtschaften, und aus den Massnahmen, die wir in Russland und in der Eurasischen Wirtschaftsunion insgesamt zur Stabilisierung der Wirtschaft ergreifen.
+Wir schliessen nichts, im Gegensatz zu einigen anderen Ländern. Wir brechen nicht die Prinzipien der
+Marktwirtschaft. Zwischen uns gibt es keine Einschränkungen. Im Gegenteil, wir tun alles für den freien Verkehr von Kapital, Waren und Arbeit. Dies ist für uns und für unsere Partner in der Eurasischen Wirtschaftsunion wichtig und hat praktische Bedeutung.
+Auf makroökonomischer Ebene wirkt sich der stabile Zustand der russischen Währung, des Rubels, günstig
+auf die Wirtschaft und die Finanzsysteme unserer Partner aus.
+Wir sprechen hier von Arbeitslosigkeit. Unsere Arbeitslosenquote ist niedriger als vor der Pandemie, sie lag
+bei 4,7% und beträgt jetzt 3,9%. Dies ist jedoch von unmittelbarer Bedeutung für unsere Partner in Eurasien, denn es ist kein Geheimnis, dass Hunderttausende, wenn nicht gar Millionen von Bürgern dieser Länder, unsere Freunde und Partner, in Russland arbeiten. Das bedeutet, dass es eine Nachfrage nach ihren
+Arbeitskräften gibt, und das bedeutet, dass sie Geld zurückschicken, um ihre Familien in ihren Ländern zu
+unterstützen, und das ist ein wesentlicher Teil des Einkommens des einen oder anderen Landes. Das ist
+der eine Teil.
+Ein weiterer Teil ist der Energiemarkt. Wie gesagt, wenn die gleichen Gaspreise in Europa aus dem Ruder
+laufen, dann sind es schon ... 1.700 [Dollar pro tausend Kubikmeter], oder?
+Wie viel ist es jetzt, Alexej?
+A. Miller: 1.500.
+V. Putin: Nein, nein, vorgestern waren es 1.700.
+Wir verkaufen Gas an bestimmte Länder zum weniger als zehnfachen Preis, verstehen Sie? Nicht nur zehnmal, sondern mehr als zehnmal billiger. Aber das stabilisiert die Wirtschaft unserer Partnerländer: Sie können ihre Entwicklung vorhersagen, Joint Ventures unterstützen, Industriesektoren, die Landwirtschaft
+entwickelt sich in allen Ländern, einschliesslich der chemischen Industrie und Düngemittel. Düngemittel
+entwickeln sich in all diesen Ländern sehr dynamisch, die Industrie arbeitet sehr effektiv.
+Wir haben keine Probleme mit den Basisprodukten – wir sind Exporteure. Wo unsere Partner uns brauchen,
+liefern wir auch Lebensmittel, und zwar zu erschwinglichen Preisen.
+Es kommt alles zusammen. Ich würde sagen, auch das ist nicht das Geringste, was wir erreicht haben – die
+Bereitschaft, zusammenzuarbeiten und Lösungen zu finden, auch dort, wo sie uns als Ergebnis schwieriger,
+jahrelanger Verhandlungen erschienen sind. Dennoch gelingt es uns, eine Einigung zu erzielen.
+All dies zusammen ist also, da stimme ich zu, ein positives Ergebnis der gemeinsamen Arbeit.
+Sie haben nach den nächsten Schritten gefragt, ja?
+
+M. Sidibe: Ja, wie sehen Sie die weitere Entwicklung der Organisation in naher Zukunft?
+V. Putin: Unmittelbare Schritte und Entwicklungsperspektiven. Die Aussichten sind gut, und ich denke, die
+nächsten Schritte sind sehr konkret.
+Als erstes müssen wir das tun, worauf wir uns geeinigt haben – ich denke, diese Vereinbarung ist sehr
+wichtig – wir haben vereinbart, einen Mechanismus zu schaffen, um unsere Kooperationsaktivitäten in der
+realen Produktion, in der Industrie zu unterstützen. Ich halte dies für sehr wichtig, um unsere technologische Unabhängigkeit, unsere technologische Souveränität insgesamt zu stärken. Das ist im Übrigen das
+Ergebnis unserer heutigen Arbeit.
+Und in naher Zukunft, in den nächsten paar Jahren, müssen wir unsere Vereinbarungen umsetzen, die wir
+früher formuliert haben, nämlich während der nächsten zwei Jahre einen gemeinsamen Gasmarkt zu schaffen, die Grundsätze seiner Funktionsweise festzulegen und zur praktischen Umsetzung überzugehen, einen
+gemeinsamen Elektrizitätsmarkt – auch das ist äusserst wichtig. Es ist eine schwierige Arbeit, denn es gibt
+viele Fragen im Zusammenhang mit der Koordinierung von Positionen.
+Aber wissen Sie, wir hatten heute eine sehr gute Diskussion über dieses Thema, und es wurde sehr deutlich,
+dass dies nicht die Position Russlands ist – nur die Preise beizubehalten, oder die Preise zu erhöhen, oder
+niemandem etwas zu geben. Nein. Das ist eine Frage des Preises, es ist in erster Linie eine Frage der wirtschaftspolitischen Koordinierung.
+Wir haben unterschiedliche Niveaus von inländischen Preissubventionen, unterschiedliche Gründe für diese
+Situation – soziale und wirtschaftliche, sogar politische und historische. In einem Land werden die Preise
+
+
+-----
+
+für die Bekämpfung des Binnenverbrauchs sehr stark subventioniert, aber diese Subvention kann nicht von
+heute auf morgen abgeschafft werden, und zwar aus einer Reihe von gleichen soziopolitischen und sogar
+wirtschaftlichen Gründen, das braucht Zeit. In einem anderen Land gibt es weniger Subventionen und eine
+stärker marktorientierte Preisgestaltung.
+Zum Beispiel die gleichen Transporttarife. Schauen Sie, in Russland haben wir ungefähr gleiche Tarife für
+das ganze Land, sie variieren ein wenig, aber im Grossen und Ganzen gleichen wir sie an. Wo ist das Benzin
+am billigsten? Derjenige, der näher am Produktionsstandort liegt, ist der billigste – es braucht da keinen
+Transport. Es sollte das billigste in Yamalo-Nenets Okrug sein. Aber das Land ist riesig, wir können das Gas
+nicht in Yamalo-Nenets Okrug billig und irgendwo im Fernen Osten oder an der Westgrenze unerschwinglich machen.
+Wir subventionieren also im Wesentlichen diese Transportkomponente für den Endverbraucher. Aber wenn
+wir über einen Gasbinnenmarkt sprechen wollen, müssen wir auch einheitliche Grundsätze für die Subventionen ausarbeiten, das ist allen klar. Es braucht Zeit, es erfordert gemeinsame Arbeit im Bereich der Besteuerung, bei der Harmonisierung von Vorschriften und der Änderung von Steuergesetzen, bei der Anwendung des Steuersystems selbst unter Verwendung moderner Technologien. Es gibt keine Widersprüche
+oder Missverständnisse darüber, wie wir diese Ergebnisse erreichen sollen. Wir müssen in den nächsten
+zwei Jahren einfach hart arbeiten. Ich denke, wir werden in vielen dieser Bereiche Ergebnisse erzielen.
+Wir haben sehr gute Aussichten, die Verkehrsinfrastruktur und die Logistikketten auszubauen. Viele Länder
+der Welt sind an der Schaffung neuer moderner Korridore interessiert: Nord-Süd, West-Ost. Alle wollen
+mitmachen, sogar Drittländer sind bereit, wenn wir einige der angekündigten Projekte durchführen, diese
+mit uns zu kofinanzieren, weil es sehr profitabel ist.
+Wir haben viele wichtige und interessante Bereiche, die für alle Mitglieder der EAWU von Interesse sind.
+Und wenn es interessant ist, dann bin ich sicher, dass die Organisation gestärkt wird und all diese Projekte
+realisiert werden.
+
+A. Gereykhanova: Aisel Gereykhanova, Rossiyskaya Zeitung.
+Eine Frage zu Victor But. Russland hat lange versucht, ihn auszutauschen, und nun ist es endlich soweit.
+Wir würden gerne Einzelheiten erfahren: Wer hat die Verhandlungen geführt, werden sie fortgesetzt? Und
+sagen diese Kontakte über den Austauschprozess überhaupt etwas über die Möglichkeit aus, einen breiteren Dialog mit den Amerikanern zu führen, oder geht es nur um den Austausch?
+Und noch eine Frage: Werden die Kontakte zwischen Sergej Naryschkin und dem Chef der CIA fortgesetzt?
+
+VLADIMIR PUTIN: Was den Austausch betrifft, so sind der Föderale Sicherheitsdienst und der FSB für diese
+Frage zuständig. Zunächst hat die FSB verhandelt und die Ergebnisse erzielt, von denen Sie gerade gehört
+haben. Die Kontakte zu den Sicherheitsdiensten werden fortgesetzt und haben im übrigen nie aufgehört.
+Sind andere Umtauschmöglichkeiten vorhanden? Ja, alles ist möglich. Dies ist das Ergebnis von Verhandlungen und der Suche nach einem Kompromiss. In diesem Fall sind Kompromisse gefunden worden. Wir
+werden uns nicht weigern, diese Arbeit in Zukunft fortzusetzen.
+Kann dies als Prolog für einen Dialog mit den USA über andere Themen betrachtet werden? Dies ist eine
+besondere Frage, eine spezifische Frage, um es offen zu sagen. Wir haben es uns nicht zur Aufgabe gemacht, von diesen Gesprächen zu anderen Gesprächen überzugehen. Natürlich schaffen sie eine bestimmte Atmosphäre, das ist wahr. Aber wir erörtern im Rahmen dieser Verhandlungen keine anderen Themen.
+Das ist das Wichtigste.
+Die zweite Sache betrifft die Kontakte zwischen den Geheimdiensten – dem FSB und der CIA – auf der
+einen und der anderen Seite. Das war nicht unsere Initiative, das war eine amerikanische Initiative. Präsident
+Biden schlug es vor, und wir waren einverstanden, wie Sie sehen können. Alles in allem haben wir nicht viel
+erwartet, nichts Übernatürliches, es handelte sich um den normalen Geschäftsverlauf. Die Partner kamen
+überein, dass diese Kontakte fortgesetzt werden sollen.
+Sie sind herzlich willkommen.
+
+Pavel Zarubin: Guten Abend. Pavel Zarubin vom Sender Rossiya.
+Zurück zu den Öl- und Gaspreisen: Eines der weltweit am meisten diskutierten Themen der letzten Tage
+ist die vom Westen auferlegte Obergrenze für die russischen Ölpreise.
+Es gibt bereits viele Spekulationen zu diesem Thema, daher möchte ich diese spezielle Frage stellen. Wie
+werden wir letztendlich darauf reagieren? Wird diese Reaktion proportional, symmetrisch oder asymmetrisch sein? Und was wird am Ende mit Russlands Haushalt passieren – wird Russland genug Geld haben?
+(Lacht): Vielen Dank.
+
+VLADIMIR PUTIN: Machen Sie sich darüber keine Sorgen. Der Punkt ist, dass die vorgeschlagene Obergrenze mit den Preisen übereinstimmt, zu denen wir heute verkaufen. In diesem Sinne betrifft uns diese Entscheidung in keiner Weise, offen gesagt, ist sie für uns nicht wichtig.
+
+
+-----
+
+Ja, die Preise sind technisch gesehen etwas höher, aber für unseren Mix sind sie etwas niedriger: für Brent
+– höher, für Ural – etwas niedriger, und wir geben auch vielen Partnern Rabatte. Das ist ungefähr die gleiche
+Zahl. Deshalb werden wir unter keinen Umständen Verluste machen.
+Das ist nicht der Punkt: Es geht nicht nur um uns – es betrifft alle Produzenten. Warum? Denn wenn man
+sich jemals darauf einigt, dass der Verbraucher den Preis bestimmt, dann führt das zum Zusammenbruch
+der Industrie selbst, denn der Verbraucher wird immer darauf bestehen, dass der Preis niedriger ist. Die
+Branche ist bereits unterinvestiert und unterfinanziert, und wenn wir nur auf die Verbraucher hören, werden
+diese Investitionen ins Leere laufen. All dies wird irgendwann zu einem katastrophalen Preisanstieg und
+dem Zusammenbruch der globalen Energieversorgung führen – dazu wird es kommen. Es ist ein dummer,
+schlecht durchdachter und schlecht kalkulierter Vorschlag. Es geht also nicht um uns, sondern um den
+allgemeinen Zustand der globalen Energieindustrie und der globalen Energiemärkte: Dieser [Vorschlag] ist
+schädlich für die globalen Energiemärkte. Ich wiederhole, wir verkaufen bereits zu diesen Preisen, also
+machen Sie sich keine Sorgen um das Budget.
+Aber auch hier wäre es töricht, wenn alle, einschliesslich der Verbraucher, einer nicht marktgerechten,
+schädlichen Lösung folgen würden. Denn die Verbraucher müssen sich darüber im Klaren sein, dass, wenn
+sie auf Preisen bestehen, mit denen sie zufrieden sind, selbst wenn sie diese erreichen, die Preise sinken,
+die Investitionen auf Null reduziert werden und schliesslich die Preise in die Höhe schnellen und diejenigen
+treffen, die solche Lösungen vorschlagen.
+Was unsere Reaktion angeht, so habe ich bereits gesagt, dass wir einfach nicht an Länder verkaufen werden,
+die solche Entscheidungen treffen. Wir werden darüber nachdenken, vielleicht sogar – ich sage nicht, dass
+das jetzt schon eine Entscheidung ist – aber wir werden auch über eine mögliche Reduzierung der Produktion nachdenken, falls nötig. Wir haben uns mit der OPEC Plus auf ein bekanntes Produktionsziel geeinigt
+– wir werden bei Bedarf weiter nachdenken, ich beziehe mich jetzt auf Russland. Ich wiederhole: Wir denken
+darüber nach, aber es gibt noch keine Entscheidungen. Die konkreten Schritte werden jedoch in einem
+Dekret des Präsidenten festgelegt, das in den nächsten Tagen veröffentlicht werden soll.
+Ja, bitte.
+
+Konstantin Panyushkin: Guten Tag!
+Konstantin Panyushkin, Channel One. Eine Frage über die Speziellen (Militärischer) Operation.
+Wie beurteilen Sie die aktuelle Situation in der SMO? Am Mittwoch sagten Sie in einem Gespräch mit Menschenrechtsaktivisten – ich zitiere – «Es wird ein langer Prozess sein.» Könnten Sie bitte erklären, was Sie
+damit meinen? Und noch etwas im Anschluss an dieses Treffen. Sie wurden mit den Worten zitiert: «Wenn
+Russland nicht als erster Atomwaffen einsetzt, bedeutet das, dass es auch als zweiter Atomwaffen nicht
+einsetzen wird.» Dieser Satz hat für viel Aufsehen gesorgt. Bitte erklären Sie, was Sie damit meinen.
+
+VLADIMIR PUTIN: Was die Dauer des SMO-Prozesses betrifft, so meinte ich die Dauer der Einigung. Alles
+geht seinen gewohnten Gang, alles ist dort stabil – es gibt dort heute keine Fragen und keine Probleme.
+Wie Sie sehen können, verhält sich das Verteidigungsministerium recht transparent. Alles, was in der Realität vor Ort geschieht, findet sich in den täglichen Berichten des Verteidigungsministeriums wieder. Das ist
+wirklich der objektive Stand der Dinge, ich habe dem nichts hinzuzufügen.
+Aber der Einigungsprozess als Ganzes, ja, der wird wahrscheinlich nicht einfach sein und wird einige Zeit
+dauern. Aber so oder so werden sich alle an diesem Prozess Beteiligten mit den Realitäten vor Ort abfinden
+müssen. Das ist der erste Teil Ihrer Frage.
+Die zweite. Ich verstehe, dass jeder besorgt ist, immer besorgt war, sobald Atomwaffen und Massenvernichtungswaffen im allgemeinen aufgetaucht sind, sind die Menschen, die ganze Menschheit immer besorgt:
+Was wird mit dem Planeten und mit uns geschehen? Aber sehen Sie, was ich meine, ich werde einige Dinge
+erklären:
+Die Vereinigten Staaten haben eine Präventivschlagtheorie, eine. Zweitens: Sie entwickeln ein System zum
+Entwaffnungsschlag. Was ist das? Es handelt sich um einen Angriff mit modernen High-Tech-Mitteln, um
+die Kommando- und Kontrollzentren anzugreifen und den Feind dieser Kommando- und Kontrollsysteme
+zu zerstören usw.
+Welche Art von modernen Mitteln? Das sind Marschflugkörper, die wir zu unserer Zeit nicht hatten – wir
+hatten keine bodengestützten Marschflugkörper, wir haben sie aufgegeben, wir haben sie abgebaut. Die
+Amerikaner waren zum Zeitpunkt der Verhandlungen mit der Sowjetunion klüger, aber sie hatten die landgestützten Raketen gestrichen und ihre Luft- und Seeraketen zurückgelassen, die nicht Teil des Abkommens waren, so dass wir unbewaffnet dastanden. Aber jetzt haben wir sie, und sie sind moderner und noch
+wirksamer. Das zweite.
+Es gab auch Pläne für einen präventiven Entwaffnungsschlag mit Hilfe von Hyperschall-Systemen, aber bisher verfügen die Vereinigten Staaten nicht über solche Systeme, wir aber schon. Wenn wir also über diesen
+Abrüstungsschlag sprechen, dann sollten wir vielleicht darüber nachdenken, das Know-how unserer amerikanischen Partner und ihre Ideen, wie sie ihre Sicherheit gewährleisten können, zu übernehmen. Wir den
+
+-----
+
+ken gerade darüber nach. In früheren Zeiten und Jahren hat sich niemand gescheut, laut darüber zu
+sprechen.
+Die Vereinigten Staaten haben eine Theorie und sogar eine Praxis, die in ihrer Strategie und ihren Dokumenten dargelegt ist, nämlich einen Präventivschlag. In unserem Land ist das nicht der Fall. In unserer Strategie
+haben wir einen Vergeltungsschlag entwickelt, und es gibt hier keine Geheimnisse. Was ist ein Vergeltungsschlag? Es bedeutet einen Vergeltungsschlag. Dies ist der Fall, wenn unser Frühwarnsystem Raketenstarts
+in Richtung russisches Territorium entdeckt. Wenn er feststellt, dass die Raketen gestartet wurden, starten
+wir einen Vergeltungsschlag.
+Wir veranstalten regelmässig Übungen mit unseren Nuklearstreitkräften, das können Sie sehen, wir halten
+das nicht geheim, wir informieren unsere Partner, wie wir es gemäss unseren Vereinbarungen mit allen
+Kernwaffenstaaten und den Vereinigten Staaten tun sollten, dass wir solche Übungen durchführen. Sie tun
+dasselbe, das kann ich Ihnen versichern.
+Wenn das Frühwarnsystem ein Signal für einen Raketenangriff empfängt, haben wir Hunderte unserer Raketen in der Luft und es ist unmöglich, sie zu stoppen. Aber es ist immer noch ein Vergeltungsschlag. Was
+soll das bedeuten? Das bedeutet, dass der Abschuss feindlicher Raketenspitzen auf russisches Territorium
+unvermeidlich ist – sie werden ohnehin fallen. Es stimmt, vom Feind wird nichts übrigbleiben, denn es ist
+unmöglich, Hunderte von Raketen abzufangen. Dies ist natürlich eine abschreckende Massnahme, eine
+ernsthafte Abschreckung.
+Aber wenn ein potenzieller Feind glaubt, dass eine Präventivschlagtheorie möglich ist, aber für uns nicht,
+dann müssen wir über die Bedrohung nachdenken, die uns durch diese Art von Ideen bei der Verteidigung
+anderer Länder droht.
+Das ist alles.
+
+Yulia Bubnova: Guten Tag!
+TASS Nachrichtenagentur, Yulia Bubnova.
+Angela Merkel sagte neulich, dass die Minsker Vereinbarungen einst nur unterzeichnet wurden, um der
+Ukraine Zeit zu geben, sich vorzubereiten und dann in einen Krieg mit Russland zu ziehen. Sagen Sie mir,
+wie können wir so etwas wahrnehmen? Wussten wir, dass unsere Partner uns das antaten?
+Ich danke Ihnen.
+
+VLADIMIR PUTIN: Um ehrlich zu sein, kam das für mich völlig überraschend. Das ist enttäuschend. Ehrlich
+gesagt, habe ich nicht erwartet, dies von der ehemaligen Bundeskanzlerin zu hören, denn ich bin immer
+davon ausgegangen, dass die Führung der Bundesrepublik Deutschland uns gegenüber aufrichtig war. Ja,
+sie waren natürlich auf der Seite der Ukraine, unterstützten die Ukraine, aber ich dachte trotzdem, dass die
+Führung der Bundesrepublik immer aufrichtig eine Lösung auf der Grundlage der Prinzipien angestrebt
+hat, auf die wir uns geeinigt und die wir erreicht hatten, auch im Rahmen des Minsk-Prozesses.
+Was jetzt gesagt wurde, beweist nur, dass wir alles richtig gemacht haben, was die Einleitung einer Speziellen Militäroperation angeht. Warum? Weil es hat sich herausgestellt hat, dass niemand all diese Minsker
+Vereinbarungen umsetzen wollte. Die ukrainische Führung hat dies auch mit den Worten des ehemaligen
+Präsidenten Poroschenko gesagt: Er hat sie unterzeichnet, aber er wird sie nicht umsetzen.
+Aber ich hatte immer gehofft, dass die anderen Teilnehmer an diesem Prozess uns gegenüber aufrichtig
+waren. Es hat sich herausgestellt, dass auch sie uns getäuscht haben. Es ging nur darum, die Ukraine mit
+Waffen vollzupumpen und sie auf eine militärische Aktion vorzubereiten. Das können wir sehen, ja. Offenbar
+haben wir uns zu spät orientiert, um ehrlich zu sein. Vielleicht hätten wir mit all dem früher beginnen sollen.
+Wir haben nur damit gerechnet, dass wir im Rahmen dieser friedlichen Minsker Vereinbarungen noch eine
+Einigung erzielen können.
+Nun, was soll ich dazu sagen. Es ist natürlich eine Frage des Vertrauens. Und natürlich ist das Vertrauen
+fast gleich Null, aber nach solchen Äusserungen stellt sich die Frage des Vertrauens: Wie soll man verhandeln, worüber, und ob es möglich ist, mit jemandem zu verhandeln, und wo sind die Garantien? Das ist
+natürlich die Frage.
+Trotzdem werden wir uns am Ende einigen müssen. Ich habe bereits mehrfach gesagt, dass wir zu diesen
+Vereinbarungen bereit sind, dass wir offen sind. Aber das bringt uns natürlich zum Nachdenken darüber,
+mit wem wir es zu tun haben.
+
+Konstantin Golovanova: Nachrichtenagentur Interfax, Ksenia Golovanova.
+Wladimir Wladimirovitsch, ist es Ihnen gelungen, hier in Bischkek mit dem kasachischen und dem usbekischen Präsidenten die kürzlich von Tokajew in Bezug auf Sie geäusserte Idee zu erörtern, eine Art dreifache
+Gasunion zu gründen? Es ist bekannt, dass Taschkent seit langem Gas von Gazprom aus Turkmenistan bezieht. Warum haben Sie die Frage der Lieferung von russischem Gas aufgeworfen? Über welches Pipelinesystem könnte Gas nach Usbekistan transportiert werden, und glauben Sie generell, dass dies ein Thema
+für die nahe Zukunft ist, was Gaslieferungen aus Russland nach Usbekistan betrifft?
+
+
+-----
+
+V. Putin: Es gibt hier keine Geheimnisse.
+Wir begannen mit der ersten Frage, die Ihr Kollege stellte, und er wies darauf hin, dass sich die Volkswirtschaften der eurasischen Länder im Allgemeinen in einer zufriedenstellenden Lage befinden, zumindest
+was die Stabilität angeht, und dass wir gute Aussichten haben. Das ist wahr. Das bedeutet, dass die Volkswirtschaften wachsen werden, sie wachsen jetzt und werden auch in Zukunft wachsen. Und das wiederum
+bedeutet, dass der Energieverbrauch steigen wird. Es gibt bereits einen Engpass.
+Und energie- und gasproduzierende Länder wie Kasachstan und Usbekistan blicken zu Recht optimistisch
+in die Zukunft, denn sie verfügen über sehr gute Wirtschaftsteams und eine stabile politische Führung. Und
+die Präsidenten beider Länder schauen in die Zukunft, rechnen aus, wie viel in den nächsten Jahren benötigt
+wird, und kommen zu dem Schluss, dass sie zusätzliche Mengen und zusätzliche Ressourcen benötigen
+werden. Sie haben auch ihre Ausfuhrverpflichtungen aus den Vorjahren.
+Das alles – ihr Verbrauch steigt und die Exportverpflichtungen müssen erfüllt werden – veranlasst uns, wieder einmal die Uhren zu vergleichen und zu sehen, wie das alles funktioniert und was wir zusätzlich tun
+können. Können wir oder können wir nicht? Ja, das können wir. Aber es gibt eine Menge Fragen.
+So erhält Nordkasachstan beispielsweise Gas aus Orenburg. Aber nach Orenburg, zu unserer Gasaufbereitungsanlage, kommt es aus Karachaganak – einem Feld aus Kasachstan. Es wird zu russischen Inlandspreisen nach Kasachstan geliefert. Um es nach Usbekistan zu pumpen, muss man das entsprechende Gastransportsystem nutzen, das noch in der Sowjetunion geschaffen wurde. Das muss repariert werden, das
+pfeift schon aus allen Löchern. Es gibt zwei Stränge: Einer wird überhaupt nicht genutzt, der zweite dient
+der Gasversorgung von Karatschaganak nach Orenburg. Und wenn dieses Gas nach Usbekistan geliefert
+wird, sollte es dann in umgekehrter Richtung oder in umgekehrter Reihenfolge funktionieren? Das ist die
+Frage.
+Es stellt sich sofort eine andere Frage: Dann muss ein separates Pipelinesystem durch das Gebiet Kasachstans nach Usbekistan gebaut werden, und in Russland muss eine eigene Infrastruktur für die zusätzliche
+Versorgung Zentralasiens errichtet werden. In Russland, auf dem Gebiet der Russischen Föderation, beläuft
+sich dieser Betrag auf nicht weniger als 260 Milliarden Rubel.
+Hier gibt es viele Fragen, die eine gegenseitige Abstimmung, Ausarbeitung und Annahme von vereinbarten,
+vielleicht sogar kompromissfähigen Entscheidungen erfordern. Sie können auf jeden Fall gefunden werden.
+In diesem Sinne könnte es sich um eine Art von Energiebündnis handeln. Aber wir haben auch Verpflichtungen gegenüber den EurAsEU-Ländern. Usbekistan ist noch Beobachter, aber für Usbekistan ist dies natürlich auch eine Gelegenheit, sich die Arbeit der Eurasischen Wirtschaftsunion genauer zusehen und Berührungspunkte mit der Eurasischen Wirtschaftsunion insgesamt zu finden.
+Es gibt hier kein einziges unüberwindbares Hindernis, aber es erfordert eine sehr systematische Arbeit auf
+Expertenebene und eine finanzielle Kalkulation, Koordinierung und Beteiligung der einzelnen Länder an
+diesen Investitionen. Übrigens, alle sind bereit. Alle wollen diese gemeinsame Arbeit und sind sogar zu gemeinsamen Investitionen bereit. Dies ist ein gutes, grosses, vielversprechendes Werk – mit guten Zukunftsaussichten. Wir werden arbeiten.
+Diese Arbeit hat begonnen. Jetzt kommen Kollegen nach Moskau, ich glaube, aus Kasachstan und kürzlich
+aus Usbekistan. [Alexej] Miller wird dorthin gehen, auf der Ebene des stellvertretenden Premierministers
+wird gearbeitet. Die Arbeiten sind bereits im Gange, haben eine gute Grundlage, und ich bin sicher, dass
+sie zu guten Ergebnissen führen werden.
+Jemand hat die Hand gehoben, na los. Sie sind herzlich willkommen.
+
+E. Zhelbunov: Ich danke Ihnen vielmals.
+Edmund Zhelbunov, NTV.
+Wladimir Wladimirovitsch, ich möchte noch einmal kurz auf das Thema der SMO zurückkommen. Sie haben
+vor kurzem gesagt, dass die Voraussetzungen für die Wiederaufnahme der Teilmobilisierung im Moment
+definitiv nicht gegeben sind. Aber um ein wenig konkreter zu werden: Welche Faktoren könnten diese Entscheidung für einen Wechsel beeinflussen? Oder sind die Russen auch nach dem Jahreswechsel sicher,
+dass es keinen Grund zur Sorge gibt?
+
+V. Putin: Solche Faktoren gibt es heute nicht, sie sind nicht in Sicht, wie ich schon sagte. Dreihunderttausend
+Menschen wurden im Rahmen der Mobilisierung eingezogen, und ich sage es noch einmal: 150‘000 sind
+in der Gruppierung. Von denjenigen, die der Gruppierung angehören, ist nur die Hälfte, etwas mehr als 77,
+in Kampfeinheiten. Die andere Hälfte befindet sich entweder in der zweiten oder dritten Position – dies ist
+die eigentliche Rolle der territorialen Truppen – oder sie absolvieren eine zusätzliche Ausbildung. Und weitere 150‘000 befinden sich gar nicht in der Gruppierung, sondern auf Übungsplätzen und in Ausbildungszentren. Welche Art von zusätzlicher [Mobilisierung]? Dies ist eine solche Kampfreserve – die Hälfte aller
+Mobilisierten. Von einer zusätzlichen Mobilisierung kann also keine Rede mehr sein.
+
+A. Yunashev: Werden Sie sie jemals gehen lassen? Müssen sie durch jemand anderen ersetzt werden?
+
+
+-----
+
+V. Putin: So seltsam es klingen mag, wir haben auch darüber gesprochen, wir müssen abwarten, wie sich
+die Situation entwickelt. Vielleicht können einige Formationen durch andere ersetzt werden – alle werden
+den Status von Kampfteilnehmern haben. Wenn jemand z. B. im Fernen Osten oder in Sibirien ist und dort
+noch trainiert, und jemand ist in einem Kampfgebiet – das sind unterschiedliche Dinge. Aber wir müssen
+aufpassen. Das Verteidigungsministerium und der Generalstab denken darüber nach und werden eine Entscheidung treffen. Ich glaube jedenfalls, dass ich eine vollständige Antwort gegeben habe, was die Mobilisierung anbelangt.
+Bitte noch etwas mehr.
+
+D. Korter: Don Korter, Russia Today.
+Wladimir Wladimirowitsch, Josep Borrell sagte, dass Afrika Russland unterstützt, weil, Zitat: «Wir können
+davon ausgehen, dass diese Leute nicht wissen, wo der Donbass liegt, vielleicht wissen sie nicht einmal, wer
+Putin ist.» Was ist Ihre Reaktion darauf?
+
+VLADIMIR PUTIN: Borrell ist eine grosse, wichtige Figur unserer Zeit, eine politische Figur unserer Zeit, das
+hat man früher über Breschnew gesagt.
+Aber in Afrika weiss man, was Russland ist und wo es liegt. In Afrika wissen sie, welche Rolle Russland bei
+der Befreiung vom Kolonialismus gespielt hat. Es gibt praktisch kein afrikanisches Land, das nicht zu gegebener Zeit unsere Unterstützung erhalten hat – politisch, informationell, wirtschaftlich und manchmal sogar
+militärisch. Wir haben sehr stabile, sehr gute und freundschaftliche Beziehungen zu afrikanischen Ländern,
+und diese werden fortgesetzt.
+Wenn die Leute, von denen Sie sprechen, wüssten, wo Afrika liegt und in welchem Zustand sich die Völker
+Afrikas befinden, dann hätten sie die Lieferung russischer Lebensmittel und russischer Düngemittel auf den
+afrikanischen Kontinent nicht verhindert, von denen letztlich die Ernten in den afrikanischen Ländern und
+die Rettung Hunderttausender Menschen vor dem Hungertod in Afrika abhängen.
+Bisher konnten wir noch nicht einmal unsere Düngemittel aus einigen europäischen Seehäfen herausbekommen. Ich habe es schon oft gesagt – wir sind bereit, sie kostenlos in afrikanische Länder zu liefern. Ein
+Teil dieses Prozesses wurde auf Druck des UN-Generalsekretärs in Gang gesetzt, aber bisher wurde das
+Problem noch nicht gelöst.
+Einige Politiker in der EU sollten aufhören, von der Liebe zu den afrikanischen Völkern zu schwafeln, und
+anfangen, diese Länder direkt zu unterstützen. Sie sollten mit dem Geld, das sie drucken, keine Lebensmittel auf den Weltmärkten kaufen, die Preise nicht erhöhen, die Inflation nicht aufblähen und die Völker Afrikas nicht in eine verzweifelte Lage bringen und Russland zumindest nicht daran hindern, diese produktive,
+harte und für die afrikanischen Länder notwendige Arbeit zu leisten, um die Menschen zu unterstützen, die
+diese Unterstützung brauchen.
+Wir werden wohl jetzt aufhören. Ich danke Ihnen vielmals.
+Ja, Andrej, in Ordnung, machen wir es. Dies ist eine abschliessende Frage.
+
+A. Kolesnikov: Zeitung ‹Kommersant›, Andrei Kolesnikov.
+
+Putin: Ja, ich bin mir dessen bewusst.
+A. Kolesnikov: Heute hat Ilya Yashin die …
+
+V.Putin: Wer ist er?
+
+Kolesnikov: Ein Blogger.
+
+V.Putin: Was hat er bekommen?
+
+A. Kolesnikov: Er bekam achteinhalb Jahre unter einem Artikel über Fälschungen. Finden Sie nicht auch,
+dass achteinhalb Jahre für Worte eine brutale Strafe sind?
+
+Putin: Sie wissen ja, wie man sagt: Wenn Sie glauben, dann sollten Sie getauft werden. Ich habe meine
+Grundausbildung an der Staatlichen Universität Leningrad erhalten und möchte Ihnen sagen, dass ich es
+für absolut inakzeptabel halte, sich in die Arbeit der Gerichte einzumischen. Ich denke nicht, dass es angebracht ist, Gerichtsentscheidungen in Frage zu stellen, denn es gibt bestimmte gesetzliche Rechte, um die
+Bürger so zu schützen, wie sie es gerne tun würden. Wir können uns wahrscheinlich an eine höhere Instanz
+wenden. Die Anwälte von Herrn Yashin wissen wahrscheinlich, was sie zu tun haben.
+
+Vedomosti Desyatova: Darf ich noch eine Frage stellen?
+
+
+-----
+
+Putin: Fahren Sie fort.
+
+Vera Desyatova: Ich danke Ihnen vielmals.
+Vera Desyatova, Radio Vesti FM und Mayak.
+In letzter Zeit gab es einige widersprüchliche Berichte über die Versorgung der Armee. Sie sagten, dass die
+Probleme gelöst werden oder bereits gelöst sind, aber dennoch reisst der Strom der Nachrichten von
+Kämpfern von der Front nicht ab – es kommen Anfragen an die Kriegsberichterstatter, an Freiwillige. Sie
+fragen nicht nur nach Uniformen, sondern auch nach Medikamenten, da die Verbrauchsmaterialien sehr
+schnell ausgehen. Und die Frage ist: Wem sollten wir vertrauen? Den Berichten des Verteidigungsministeriums oder den Soldaten an der Front?
+
+VLADIMIR PUTIN: Sie können niemandem vertrauen. Sie können nur mir vertrauen.
+Wir arbeiten regelmässig mit dem Verteidigungsministerium zusammen, und ich bespreche diese Fragen
+fast jeden Tag mit ihnen. Ich muss sagen, dass es in der Tat Probleme gab, und nach dem zu urteilen, was
+Sie sagen, muss es immer noch Probleme geben. Ich bin mir jedoch sicher, dass sie immer weniger werden
+und nicht mehr so akut sind wie zu Beginn dieses Prozesses, insbesondere im Zusammenhang mit der
+Mobilisierung.
+Aber nach dem, was Sie gesagt haben, und ich denke, Sie haben recht, sind die Probleme noch lange nicht
+gelöst. Aber es ist nur eine Frage der Zeit. Die akutesten Probleme sind meines Erachtens bereits gelöst,
+aber es wird natürlich noch einige Zeit dauern, bis die betreffenden Produktionsbereiche entflochten sind.
+Und das Industrieministerium arbeitet jetzt aktiv daran.
+
+VLADIMIR PUTIN: Wir werden es tun, aber es ist definitiv das letzte Mal.
+
+P. Zarubin: Zu Beginn der Woche sind Sie über die Krim-Brücke gereist. Die Krim-Brücke ist ein besonderes
+Projekt für Sie. Was sind Ihre Eindrücke von dem, was Sie jetzt gesehen haben?
+
+VLADIMIR PUTIN: Nicht für mich, sondern für das Land.
+
+Zarubin: Für Sie, für das Land, für uns alle.
+
+VLADIMIR PUTIN: Ich wollte vor allem die Bauarbeiter unterstützen und mich bei ihnen bedanken, denn
+sie haben in sehr kurzer Zeit sehr viel Arbeit geleistet, und das sehr gut. Natürlich wollte ich sehen, ob es
+wirklich stimmt oder nicht, denn es ist eine Sache, offizielle Berichte zu lesen und zu sagen, dass alles
+geschlossen ist, aber es ist eine ganz andere Sache, Informationen von unabhängigen Personen zu erhalten.
+Es ist wichtig, diese Informationen zu haben.
+Auch in diesem Fall – im Fall der Brücke – wollte ich mit eigenen Augen sehen, wie es tatsächlich gemacht
+wurde. Und zwar in Bezug auf die Qualität und die verwendeten Technologien auf höchstem technischem
+und technologischem Niveau.
+Ich habe bereits gesagt – ich weiss nicht, inwieweit es klar war, der Wind war stark, ich weiss nicht, ob man
+es hören konnte oder nicht –, dass es zwei Fahrspuren in der Nähe gibt und dass sie in Ordnung sind, aber
+die Bauarbeiter glauben, dass einige Zentimeter oder Millimeter auf 100% des normativen Zustands gebracht werden müssen. Sie werden dies als Vorsichtsmassnahme tun, wie ich es mit ihnen vereinbart habe.
+Sie werden zwei Fahrspuren schliessen, oder haben sie bereits geschlossen, ich weiss es nicht, und sie
+werden sie auf den 100%-Standard bringen.
+Und dort oben gibt es eine weitere Brücke, eigentlich sind es drei Brücken, und die zweite Brücke ist eine
+Eisenbahnbrücke: Ein Gleis ist ohne Tonnagebeschränkung voll in Betrieb, es gibt Güterverkehr. Aber das
+zweite Gleis, wo der Zug abgestellt und der Tankwagen durchgeschlagen wurde, hat vor allem durch das
+Feuer Veränderungen erfahren, die ebenfalls bereinigt werden müssen.
+Sie versprechen also, den Automobilteil irgendwann im März zu machen, sie wollten ihn später machen,
+aber sie versprechen, sie haben mir gesagt, sie werden ihn bis Ende März fertigstellen. Und der Eisenbahnteil – eine Nebenstrecke – soll im Hochsommer fertig sein. Zuerst hiess es zwar, dass sie das Ende des
+Herbstes machen werden, aber dann haben sie das für den Hochsommer versprochen. Ich denke, sie werden es wahrscheinlich irgendwann in diesem Sommer tun. Sie leisten sehr gute Arbeit von hoher Qualität.
+Ich bin sicher, dass alles pünktlich erledigt wird, daran habe ich keinen Zweifel.
+Ich danke Ihnen vielmals. Ich wünsche Ihnen alles Gute.
+
+
+-----
+
+###### Wissenschaftliche Nachrichten gefunden von José Barreto Silva – Brasilien
+
+##### Neue wissenschaftliche Bestätigungen der plejarischen Kontaktberichte.  Immer mehr führende Wissenschaftler fordern Stopp für mRNA.  «Alle COVID mRNA Impfprogramme sollten sofort eingestellt werden.» 
+_Harvard Professor Retsef Levi: An: Billy <billy@figu.org>_
+
+**Lieber Vaterfreund und Lehrer Billy Meier,** **Wichtige Informationen:**
+
+###### Neue wissenschaftliche Bestätigungen der Plejarischen-Kontaktberichte.
+
+Immer mehr führende Wissenschaftler fordern Stopp für *mRNA **«Alle COVID mRNA-Impfprogramme**
+**sollten sofort eingestellt werden.»: Harvard Professor Retsef Levi**
+**2. Februar 2023 👈**
+**von Dr. Peter F. Mayer**
+**Alle COVID «Alle COVID *mRNA-Impfprogramme sollten sofort eingestellt werden.»**
+Die Zahl der Angehörigen der Gesundheitsberufe, die auf die Aussetzung des COVID *mRNA-Impfstoffs
+drängen, nimmt zu. Der Ruf nach einer Rücknahme des Impfstoffs wird immer lauter.
+Kürzlich teilte MIT-Professor Retsef Levi auf Twitter mit, welchen Schaden *mRNA-Impfstoffe bei jungen
+Menschen anrichten. «Die Beweise häufen sich und es ist unbestreitbar, dass mRNA-Impfstoffe schwerwiegende Schäden bis hin zum Tod verursachen, insbesondere bei jungen Menschen. Wir müssen sofort aufhören, sie zu verabreichen», twitterte der MIT-Experte für Analytik, Risikomanagement, Gesundheitssysteme, Lebensmittel- und Landwirtschaftssysteme, Produktions- und Lieferkettenmanagement.
+Das Video von Professor Levi, in dem er vor dem Einsatz von *mRNA-Impfstoffen warnt, wurde bisher mehr
+als1,6 Millionen Mal aufgerufen.
+«Alle COVID*mRNA-Impfprogramme sollten sofort eingestellt werden.
+«Ich habe dieses Video aufgenommen, um meine feste Überzeugung mitzuteilen, dass zum jetzigen Zeitpunkt alle COVID-mRNA-Impfprogramme sofort gestoppt werden sollten», so Professor Levi.
+«Sie sollten gestoppt werden, weil sie keines ihrer beworbenen Wirksamkeitsversprechen erfüllen konnten.
+Und was noch wichtiger ist: Sie sollten gestoppt werden, weil sich die Beweise häufen und unbestreitbar
+sind, dass sie ein noch nie dagewesenes Ausmass an Schaden verursachen, einschliesslich des Todes von
+jungen Menschen und Kindern», so Levi weiter.
+«mRNA-Impfstoffe verursachen tatsächlich einen plötzlichen Herzstillstand».
+«Ich glaube, dass die kumulativen Beweise schlüssig sind und unsere Besorgnis bestätigen, dass die mRNAImpfstoffe tatsächlich einen plötzlichen Herzstillstand als Folge einer impfstoffinduzierten Myokarditis verursachen. Und dies ist möglicherweise nur ein Mechanismus, durch den sie Schaden anrichten», so der
+Wissenschaftler.
+«Ich persönlich habe mir Mitte 2021 Sorgen um die Sicherheit von Impfstoffen gemacht, als bekannt wurde,
+dass die *mRNA-Impfstoffe **Myokarditis, also eine Entzündung des Herzens, verursachen», sagt er. «Ich**
+war sehr besorgt, dass dies von den bestehenden Überwachungssystemen für die Impfstoffsicherheit nicht
+erkannt werden würde. Aus diesem Grund haben wir beschlossen, die Daten des israelischen Nationalen
+Rettungsdienstes zu analysieren, um festzustellen, ob es Anzeichen für einen Anstieg der unerwünschten
+Ereignisse ausserhalb des Krankenhauses gibt», fügt er hinzu und untermauert seine Erkenntnisse mit den
+Ergebnissen mehrerer Studien, die er in seinem Twitter Thread zitiert.
+«Wir haben einen Anstieg von 25% bei der Diagnose Herzstillstand festgestellt».
+https://twitter.com/RetsefL/status/1620431722507833344?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ct
+wterm%5E1620431722507833344%7Ctwgr%5Ec1db6a1c3c6bb2f512232339c0c00abf05bc7f6a%7Ctwcon%5Es1
+_&ref_url=https%3A%2F%2Ftkp.at%2F2023%2F02%2F02%2Fimmer-mehr-fuehrende-wissenschaftler-fordernstopp-fuer-mrna-harvard-professor-retsef-levi%2F
+«Die Analyse der EMS-Anrufe und Diagnosedaten von 2018 bis zum ersten Halbjahr 2021 ergab einige
+sehr beunruhigende Signale. Wir haben einen Anstieg von 25% bei den Ursachen für die Diagnose eines
+Herzstillstands in der Altersgruppe der 16- bis 39-Jährigen festgestellt. In der ersten Hälfte des Jahres
+2021, also genau zu dem Zeitpunkt, an dem die Impfkampagne in Israel gestartet wurde, wurde auch in
+der älteren Altersgruppe ein geringerer Anstieg festgestellt. Ausserdem haben wir eine statistisch signifikante zeitliche Korrelation zwischen der Anzahl der an diese Bevölkerungsgruppe verabreichten Impfdosen
+von Pfizer und der Anzahl der Notrufe mit der Diagnose Herzstillstand festgestellt“, sagt Professor Levi.
+Die Daten aus dem Vereinigten Königreich, Schottland und Australien bestätigen die Daten aus Israel. Weitere Daten aus Israel zeigen, dass der israelische Rettungsdienst im Jahr 2021 mehr als 3000 Wiederbelebungsmassnahmen im Vergleich zu 2019 durchgeführt hat, was einem Anstieg von 27% entspricht. Zwei
+prospektive Studien aus Thailand und der Schweiz in denen Impfungen vor und nach der Impfung unter
+
+
+👈
+
+
+-----
+
+sucht wurden, deuten darauf hin, dass die Raten von Herzschäden wahrscheinlich deutlich höher sind als
+die durch die klinische Diagnose festgestellten Raten. Dies ist genau das gleiche Ergebnis, das das USMilitär 2015 bei einer ähnlichen Studie über den Pockenimpfstoff festgestellt hat.
+Er fuhr fort: «In einer anderen Studie der Harvard Medical School wurde im Blut von Kindern mit impf**stoffinduzierter Myokarditis ein ganzer Spike entdeckt, was ein weiterer Hinweis auf den zugrunde**
+**liegenden Mechanismus der Schädigung ist, aber in Wirklichkeit noch weitreichendere Implikationen für**
+**die Sicherheit des Impfstoffs hat, da wir wiederholt Beweise dafür haben, dass die mRNA und die Lipide**
+**tatsächlich in das Blutsystem eindringen.»**
+«Und schliesslich zeigen Autopsien von Menschen, die kurz nach der Impfung gestorben sind, dass es in
+einer grossen Anzahl von Fällen starke Hinweise darauf gibt, dass der Tod durch eine durch den Impfstoff
+ausgelöste Myokarditis verursacht wurde. In Anbetracht all dieser Beweise gibt es meiner Meinung nach
+keine andere ethische oder wissenschaftliche Wahl, als diese medizinischen Produkte vom Markt zu nehmen und alle mRNA-Impfprogramme zu stoppen. Dies ist eindeutig das fehlerhafteste Medizinprodukt in
+der Geschichte der Medizinprodukte, sowohl in Bezug auf die Wirksamkeit als auch auf die Sicherheit», so
+Levi abschließend.
+Quelle hier: https://tkp.at/2023/02/02/immer-mehr-fuehrende-wissenschaftler-fordern-stopp-fuer-mrna-harvardprofessor-retsef-levi/
+**Anmerkung: Um zu verstehen, was eine mRNA (oder messenger RNA) ist, muss man in das Innere einer**
+**menschlichen Zelle eintauchen.** Denn mRNAs spielen bei der Produktion von Eiweissen (Proteinen) im
+Körper eine zentrale Rolle. Die Baupläne der körpereigenen Proteine sind im Erbgut – in der DNA im Zellkern – gespeichert. Sie werden dort in mRNA umgeschrieben. Ist die mRNA mit dem Bauplan für ein Protein
+gebildet, verlässt sie den Zellkern. Ausserhalb des Zellkerns lesen dann sogenannte Ribosomen diesen
+Bauplan ab und stellen das entsprechende Protein her.
+Es kommen mehr als hunderttausend solcher mRNAs gleichzeitig in einer menschlichen Zelle vor. Die Ribosomen können die Informationen nur während einer begrenzten Zeit ablesen, da die mRNAs normalerweise
+nach einigen Minuten bis Stunden wieder abgebaut werden. Eine mRNA, und damit der Bauplan für jedes
+gewünschte Protein, lässt sich auch im Labor künstlich herstellen. Dieses Verfahren nutzen Impfstoffhersteller bei der Entwicklung der mRNA-Impfstoffe.
+Die mRNA-Impfstoffe enthalten den Bauplan für einen bestimmten Bestandteil des Virus. Dieser Bauplan
+wird im Reagenzglas künstlich hergestellt und besteht aus mRNA. Im Fall der Covid-19-Impfung trägt der
+Bauplan die Anleitung für das Spike-Protein des Coronavirus. Dieses Protein bedeckt die Oberfläche des
+Virus wie Stacheln und ist daher gut für unser Immunsystem erkennbar. Im mRNA-Impfstoff wird die mRNA
+zu ihrem Schutz in eine Hülle aus Fetten (Lipid-Nanopartikel) eingepackt, damit sie in Körperzellen gelangen kann und nicht sofort wieder abgebaut wird.
+Der Impfstoff wird in den Muskel eines Menschen gespritzt. Die Körperzellen nehmen die mRNA auf, lesen
+den Bauplan ab und produzieren das Spike-Protein. Dieses wird anschliessend an die Oberfläche der Zelle
+transportiert und kann so von den Immunzellen erkannt werden. Das Immunsystem wird dadurch aktiviert
+und es werden beispielsweise Antikörper gegen das Spike-Protein gebildet. Weiter wird im Immunsystem
+eine Erinnerung hinterlegt, welche die Person bei einer erneuten Infektion vor dem Virus schützt.
+Sowohl bei mRNA-Impfstoffen als auch bei Vektorimpfstoffen wird der Bauplan für das Spike-Protein des
+Coronavirus in die Zellen eingeschleust. Die beiden Impfstoffe unterscheiden sich bei der Art des Bauplans
+(mRNA bei mRNA-Impfstoffen, DNA bei Vektorimpfstoffen) und bei der Umhüllung (Fetthülle bei mRNAImpfstoffen, Adenovirushülle bei Vektorimpfstoffen).
+
+##### Nach schweren Nebenwirkungen wie Herzinfarkt und Schlaganfall möchten indische Medizinexperten jetzt eine Überprüfung des Covid-Impfstoffs.
+_uncut-news.ch, Februar 8, 2023_
+
+
+-----
+
+Dr. Aseem Malhotra, ein vom National Health Service (NHS) ausgebildeter Mediziner, der zwei Dosen des
+COVID-19-Impfstoffs erhalten hat, führt bereits internationale Forderungen nach der Aussetzung des
+mRNA-COVID-Impfstoffs von Pfizer an.
+Mehrere indische Medizinexperten unterstützten am Montag die Forderung eines bedeutenden indischen
+Kardiologen nach einer umfassenden Sicherheitsüberprüfung des Impfstoffs COVID-19 von Oxford/AstraZeneca, der in Indien unter dem Namen Covishield verabreicht wird, da schwere Nebenwirkungen wie
+Herzinfarkt und Schlaganfall befürchtet werden.
+Dr. Aseem Malhotra, ein vom National Health Service (NHS) ausgebildeter Mediziner, der zwei Dosen des
+COVID-19-Impfstoffs erhalten hat, steht bereits an der Spitze der internationalen Forderungen nach einer
+Aussetzung des mRNA-COVID-Impfstoffs von Pfizer, nachdem er im vergangenen Jahr eine von Experten
+begutachtete Studie veröffentlicht hat, in der er davor warnt, dass die Schäden für die Mehrheit der Menschen den Nutzen überwiegen könnten.
+Er ist diese Woche in Indien, um eine Reihe von Vorträgen über COVID-Impfstoffe zu halten und zu versuchen, ein ‹evidenzbasiertes Argument› für deren Aussetzung vorzubringen.
+«Die Verwendung des COVID-Impfstoffs von AstraZeneca wurde Anfang 2021 in einer Reihe von europäischen Ländern ausgesetzt, weil es einen Zusammenhang mit schwerwiegenden Nebenwirkungen gab, so
+dass es merkwürdig erscheint, dass Indien die Verwendung nicht ebenfalls eingestellt hat», sagte Dr.
+Malhotra.
+«Die Zahl der Berichte über Nebenwirkungen, die über leichte Fälle hinausgingen, war beispiellos, bevor die
+Verwendung des Impfstoffs im Vereinigten Königreich zugunsten des mRNA-Impfstoffs von Pfizer eingestellt wurde: 800’000 Berichte nach 9,7 Millionen Dosen. Eine im Juni 2021 veröffentlichte, von Experten
+begutachtete Studie ergab, dass der COVID-Impfstoff von AstraZeneca laut Pharmakovigilanzdaten ein
+schlechteres Sicherheitsprofil in Bezug auf schwerwiegende unerwünschte Wirkungen aufwies als der
+mRNA-Impfstoff von Pfizer in Bezug auf Herzinfarkt, Schlaganfall und Tod sowohl bei jüngeren als auch
+bei älteren Erwachsenen», sagte er.
+Im Vorfeld seiner Vortragsreise in Neu-Delhi und Mumbai in dieser Woche hat seine Analyse die Unterstützung von medizinischen Experten in Indien gefunden.
+«Neben anekdotischen Berichten über plötzliche Todesfälle in der Welt zeigen Daten auf Bevölkerungsebene aus vielen Ländern eine hohe Gesamtsterblichkeit nach COVID-19-Impfaktionen. Wir sollten bei diesen roten Signalen innehalten, bevor wir unüberlegt vorpreschen», sagte Dr. Amitav Banerjee, Epidemiologe
+und Professor und Leiter am DY Patil Medical College in Pune, in einer von Dr. Malhotra veröffentlichten
+Erklärung.
+«Der in Indien am häufigsten verwendete Impfstoff, Covishield, birgt ein doppeltes Risiko. Während in den
+meisten europäischen Ländern aufgrund schwerwiegender Nebenwirkungen wie Blutgerinnsel von seiner
+Verwendung abgeraten wurde, birgt er auch das Risiko einer Myokarditis. Es gibt immer mehr Hinweise
+darauf, dass diese Herzerkrankung mit den mRNA-Impfstoffen in Verbindung gebracht wird. Viele wissen
+vielleicht nicht, dass Covishield ein DNA-Gen auf einem Adenovirus enthält, das nach der Injektion im Körper in mRNA umgewandelt wird», sagte er.
+«Angesichts der derzeitigen Epidemiologie von COVID-19 in unserem Land und der unzureichenden Mechanismen zur Erkennung von unerwünschten Ereignissen nach einer Immunisierung (AEFI) sollten wir die
+COVID-19-Impfung sofort stoppen, bis diese Fragen von Forschern ohne Interessenkonflikte geklärt sind»,
+fügte er hinzu.
+Dr. Sanjay K. Rai, Professor am Zentrum für Gemeinschaftsmedizin am All India Institute of Medical Sciences (AIIMS) in Neu-Delhi, sagte, dass die allgemeine Impfung überdacht werden sollte, da die Mehrheit der
+indischen Bevölkerung bereits mit SARS-COV-2 in Kontakt gekommen sei.
+«Weltweit hat sich gezeigt, dass eine natürliche Infektion einen besseren und länger anhaltenden Schutz
+bietet als ein Impfstoff allein. Im gegenwärtigen Szenario besteht kein Bedarf an einer allgemeinen Impfung
+gegen COVID-19. Dies könnte mehr Schaden als Nutzen bringen», sagte er in einer Erklärung.
+In der Empfehlung der Weltgesundheitsorganisation (WHO) heisst es, dass der COVID-19-Impfstoff von
+Oxford/AstraZeneca, der in Indien unter dem Namen Covishield hergestellt und verabreicht wird, für alle
+Personen ab 18 Jahren sicher und wirksam» ist.
+«Der Impfstoff von AstraZeneca kann Personen angeboten werden, die sich in der Vergangenheit mit COVID19 geimpft haben. Es steht den Betroffenen jedoch frei, die Impfung drei Monate lang nach der Infektion
+aufzuschieben», heisst es in dem WHO-Hinweis vom Juni 2022.
+_QUELLE: INDIAN MEDICAL EXPERTS SUPPORT CALL FOR COVISHIELD VACCINE SAFETY REVIEW_
+_Quelle:_ _https://uncutnews.ch/nach-schwere-nebenwirkungen-wie-herzinfarkt-und-schlaganfall-moechten-indische-_
+_medizinexperten-jetzt-eine-ueberpruefung-des-covid-impfstoffs/_
+
+
+-----
+
+##### Washingtons Reichs-Syndrom … Kriegspläne häufen sich über Russland hinaus bis nach China
+_uncut-news.ch, Februar 7, 2023_
+
+Dieses Jahr verspricht, ein höchst folgenreicher Wendepunkt in der Weltgeschichte zu werden.
+Die rücksichtslosen kriegstreiberischen Ambitionen der westlichen Mächte kennen keine Grenzen. So wie
+Washington und seine imperialen Lakaien in der NATO-Achse den Krieg in der Ukraine gegen Russland mit
+grösster Verrücktheit eskalieren lassen, drängen die westlichen Machthaber auch darauf, China mit Provokationen und Drohungen zu ködern. Das psychopathische Verhalten der kollektiven westlichen sogenannten Führer zeigt zweifellos, dass der Ukraine-Konflikt nur ein Schlachtfeld in einer grösseren globalen Konfrontation ist.
+
+In dieser Woche befand sich US-Verteidigungsminister Lloyd Austin auf einer Ostasienreise, auf der er sich
+damit brüstete, die Nuklearstreitkräfte mit Südkorea und Japan zu koordinieren, um China in einer provokativen und mutwilligen Machtdemonstration (unter dem Vorwand, Nordkorea die Stirn zu bieten) zu zeigen. Austin wiederholte unbegründete Propagandabehauptungen, in denen er China beschuldigte, die
+Sicherheit in der asiatisch-pazifischen Hemisphäre zu bedrohen. Diese dreiste Verdrehung der Realität verdreht die Tatsache, dass es die Vereinigten Staaten und ihre Verbündeten sind, die die Region mit Kriegsschiffen und Raketen militarisieren. Erst diese Woche kündigten die USA die Eröffnung von vier neuen
+Militärstützpunkten auf den Philippinen an, mit dem ausdrücklichen Ziel, einen künftigen Krieg gegen China
+zu führen.
+Zeitgleich mit dem Pentagon-Chef bereiste auch der zivile Chef des NATO-Bündnisses, Jens Stoltenberg,
+Ostasien, wo er davor warnte, dass Russland und China eine Bedrohung für den internationalen Frieden
+und die Sicherheit darstellen. Stoltenberg erklärte, wenn Russland in der Ukraine nicht besiegt werde, werde
+China das nächste Problem sein. Er forderte Südkorea und Japan auf, mit der NATO zusammenzuarbeiten,
+um Russland und China entgegenzutreten.
+In einer Ansprache in Tokio erklärte Stoltenberg: «Was heute in Europa geschieht, könnte morgen in Ostasien geschehen. China ist nicht der Feind der NATO [sic]. Aber sein wachsendes Selbstbewusstsein und
+seine Zwangspolitik haben Konsequenzen. Für Ihre Sicherheit im indo-pazifischen Raum und für unsere im
+euro-atlantischen Raum. Wir müssen zusammenarbeiten, um sie zu bewältigen. Peking baut seine militärischen Streitkräfte, einschliesslich Atomwaffen, ohne jegliche Transparenz erheblich aus. Es versucht, die
+Kontrolle über das Südchinesische Meer zu erlangen, und bedroht Taiwan.»
+Dieselbe Botschaft wurde diese Woche vom ehemaligen britischen Premierminister Boris Johnson vor dem
+Atlantic Council in Washington vorgetragen. Johnson, ein notorischer Lügner und Schwätzer, der in einer
+BBC-Dokumentation, die diese Woche ausgestrahlt wurde, die absurde Behauptung aufstellte, der russische
+Präsident Wladimir Putin habe ihn persönlich mit einem Attentat eingeschüchtert, forderte mehr Waffenlieferungen an die Ukraine, um Russland entscheidend zu besiegen, da China andernfalls eine zusätzliche
+Bedrohung darstellen würde. Laut Johnson, der im letzten Sommer wegen seiner unverbesserlichen Lügen
+und Intrigen in der Downing Street als Premierminister zurücktreten musste, beobachtet der chinesische
+Präsident Xi Jinping die Ukraine genau mit Blick auf eine Invasion Taiwans.
+In dieser Woche wurden Russland und China in der Öffentlichkeit als ein gemeinsamer Feind dargestellt,
+dem die Vereinigten Staaten und ihre NATO-Gefolgsleute nach Ansicht der westlichen Mächte militärisch
+entgegentreten müssen. Der Sieg über Russland ist nach Ansicht der westlichen Mächte die Vorstufe zum
+Sieg über China.
+Der wahnwitzige Kriegstrieb der westlichen Imperialisten hat eine globale Dimension angenommen. USMilitärkommandeure warnen öffentlich, dass ein Krieg mit China nur noch zwei Jahre entfernt sein könnte,
+während die NATO-Mächte derzeit einen gefährlich explosiven Krieg gegen Russland in der Ukraine führen.
+Dieser unglaubliche Ausbruch von Psychopathie unter den amerikanischen und europäischen Eliten steht
+in direktem Zusammenhang mit mindestens zwei historischen Entwicklungen. Erstens gibt es einen systemischen Zusammenbruch in den westlichen kapitalistischen Volkswirtschaften. Die weitverbreitete endemische Armut und die zunehmenden öffentlichen Unruhen stellen die konventionelle Autorität der westlichen
+
+
+-----
+
+Regierungen, die sich in einer gescheiterten Sackgasse befinden, ernsthaft in Frage. Diese empirische Verzweiflung der herrschenden Elite, die einen sozialen Zusammenbruch und eine Revolution vermeiden will
+– ‹in den Abgrund blicken›, wie unser Kolumnist Alistair Crooke in dieser Woche ausführt – manifestiert sich
+in dem uralten Rückgriff auf Militarismus und Krieg als Mittel zur Lösung der tief sitzenden und unlösbaren
+Widersprüche im kapitalistischen System.
+Zweitens sind die westlichen Mächte wild entschlossen, das Entstehen einer multipolaren internationalen
+Ordnung zu verhindern, die ihre einstige globale Vorherrschaft ablöst. In einem Interview für die Strategic
+Culture Foundation legte Pepe Escobar diese Woche eine umfassende Analyse der Gründe vor, warum die
+USA und die mit ihnen verbundene Kabale westlicher Machthaber den Krieg in der Ukraine gegen Russland
+vorantreiben. Es geht um den Versuch, eine scheiternde unipolare Weltordnung unter Führung der USA zu
+stützen, die durch jahrzehntelange kriminelle imperialistische Kriegstreiberei bankrott und korrumpiert ist.
+Russland, China und andere Nationen des globalen Südens, die sich einer entstehenden multipolaren Ordnung anschliessen, die auf internationalem Recht, Gleichheit, Zusammenarbeit und gemeinsamer Sicherheit beruht, sind ein Gräuel für das suprematistische Weltbild der USA.
+Das ist es, was in dem seit einem Jahr andauernden militärischen Konflikt in der Ukraine wirklich auf dem
+Spiel steht. Es handelt sich nicht nur um einen isolierten Krieg zur ‹Verteidigung von Demokratie und Freiheit› in der Ukraine, wie die westlichen Medien absurderweise konfabulieren. Das Nazi-Regime in Kiew wurde seit dem von der CIA unterstützten Putsch im Jahr 2014 bewusst mit dem strategischen Ziel aufgebaut,
+Russland nach acht Jahren Aggression niedriger Intensität gegen den Donbass und die Krim schliesslich
+zu konfrontieren.
+Sollte Russland jedoch besiegt werden, ist China das nächste Ziel in einem geostrategischen Schachzug
+der westlichen Mächte, um die hegemoniale Kontrolle über die eurasische Hemisphäre zu erlangen. Die
+Sprachrohre des US-Imperiums und der NATO machen mit ihren eigenen arroganten Worten, mit denen
+sie sich selbst anzeigen, deutlicher denn je, was auf dem Spiel steht.
+Der bankrotte kapitalistische Westen kann bei der Aussicht auf die Eroberung von Russlands riesigem
+Naturreichtum und die neokoloniale Kontrolle über China in einem weiteren angeblichen Jahrhundert der
+Schande nur sabbern. Eurasien ist der Schlüssel zur globalen Vorherrschaft, wie westliche imperiale Planer
+schon lange festgestellt haben.
+Es scheint auch angemessen, dass sich in dieser Woche der historische sowjetische Sieg bei Stalingrad
+über das Dritte Reich der Nazis zum 80. Jahrestag des historischen sowjetischen Sieges bei Stalingrad über
+das Dritte Reich begangen wurde. Dieser entscheidende Sieg im Februar 1943 führte zur Niederlage NaziDeutschlands und seiner verbrecherischen imperialistischen Ambitionen. Wäre diese heroische Schlacht
+nicht gewonnen worden, hätte die Weltgeschichte einen ganz anderen Verlauf genommen.
+Ebenso findet heute in der Ukraine eine weitere historische Schlacht statt, deren Ausgang die Welt mit
+einem ausgedehnten globalen Krieg und vielleicht sogar einer nuklearen Katastrophe bedroht, wenn die
+kriegstreiberische imperialistische NATO-Maschine nicht besiegt wird. Washingtons Reichssyndrom (auch
+bekannt als ‹aussergewöhnlicher Narzissmus›), das seit dem Ende des Zweiten Weltkriegs herrscht und die
+Welt endlosen Kriegen und unerbittlicher finanzieller Ausplünderung ausgesetzt hat, muss endlich ausgerottet werden.
+Dieses Jahr verspricht, ein höchst folgenreicher Wendepunkt in der Weltgeschichte zu werden.
+_QUELLE: WASHINGTON’S REICH SYNDROME… WAR PLANS ACCUMULATE BEYOND RUSSIA TO CHINA_
+_Quelle:_ _https://uncutnews.ch/washingtons-reichs-syndrom-kriegsplaene-haeufen-sich-ueber-russland-hinaus-bis-nach-_
+_china/_
+
+_Ein Artikel von: Tobias Riegel; 7. Februar 2023 um 11:20_
+
+Die Frage, ob der Ukrainekrieg längst beendet sein könnte, wenn Verhandlungen nicht von westlicher Seite
+blockiert worden wären, ist für die moralische Beurteilung auch der Politik der Bundesregierung zentral:
+
+
+_Ein Artikel von: Tobias Riegel; 7. Februar 2023 um 11:20_
+
+
+-----
+
+Wenn die aktuellen Darstellungen des israelischen Ex-Premiers Naftali Bennett zutreffen, dann hätte der
+Ukrainekrieg und das schlimme Leid der Zivilisten bereits vor Monaten mit einem Waffenstillstand beendet
+werden können. Doch die Beendigung des Leids lag offensichtlich nicht im Interesse mancher NATOStaaten. Ein Kommentar von Tobias Riegel.
+
+Über seine Bemühungen der Vermittlung im Ukrainekrieg im vergangenen März hat der frühere israelische
+Premierminister Naftali Bennett in einem am Sonntag veröffentlichten Podcast-Interview mit dem israelischen Journalisten Hanoch Daum gesprochen. Fabian Scheidler beschreibt in der ‹Berliner Zeitung›, dass
+ein Waffenstillstand laut Bennett damals in greifbarer Nähe gewesen sei: Beide Seiten seien zu erheblichen
+Zugeständnissen bereit gewesen. Doch vor allem Grossbritannien und die USA hätten den Prozess beendet
+und auf eine Fortsetzung des Krieges gesetzt.
+Am 5. März 2022 ist Bennett nach eigenen Angaben auf Einladung des russischen Präsidenten Wladimir
+Putin nach Moskau geflogen. In dem Gespräch im Kreml habe Putin einige substantielle Zugeständnisse
+gemacht, insbesondere habe er auf sein ursprüngliches Kriegsziel einer Demilitarisierung der Ukraine verzichtet, so Bennett. Der ukrainische Präsident Wolodymyr Selensky habe sich im Gegenzug bereit erklärt,
+auf einen NATO-Beitritt zu verzichten – eine Position, die er kurze Zeit später auch öffentlich wiederholt
+habe.
+
+**«Ja: Sie haben es blockiert»**
+Bennett erklärt laut ‹Berliner Zeitung› in dem aktuellen Gespräch, er habe seine Bemühungen dabei «bis
+ins kleinste Detail mit den USA, Deutschland und Frankreich abgestimmt». Auf die Frage, ob die westlichen
+Verbündeten die Initiative letztlich blockiert hätten, antwortete Bennett: «Im Grunde genommen, ja. Sie
+haben es blockiert, und ich dachte, sie hätten Unrecht.» Sein Fazit:
+«Ich behaupte, dass es eine gute Chance auf einen Waffenstillstand gab, wenn sie ihn nicht verhindert
+hätten.»
+Ob die Entscheidung des Westens, den Verhandlungsprozess zu beenden, langfristig richtig sei, könne er
+nicht beurteilen.
+Ich finde die Äusserungen von Bennett bemerkenswert, auch weil damit eine Stimme die Version vom verhinderten Waffenstillstand stützt, die nicht einfach ignoriert oder von NATO-Seite als Putin-Propaganda diffamiert werden kann. Und weil die Frage des mutmasslich verhinderten Waffenstillstands zentral ist für die
+moralische Beurteilung der kriegsverlängernden Politik etwa der Bundesregierung. Die Äusserungen würden, wenn sie zutreffen, der ohnehin unhaltbaren offiziellen Begründung für deutsche Waffenlieferungen
+und Sanktionen weiteren schweren Schaden zufügen.
+Dass von Teilen der westlichen Seite im Ukrainekrieg offensichtlich eine ‹Vermittlung unerwünscht› sei, hat
+Jens Berger kürzlich in diesem Artikel beschrieben. Über eine Initiative vonseiten Mexikos hat Florian Warweg in diesem Artikel berichtet. Eine Chronologie der abgebrochenen Friedensverhandlungen zwischen der
+Ukraine und Russland im März 2022 findet sich in diesem Artikel.
+_Quelle: https://www.nachdenkseiten.de/?p=9349_
+
+## Verbreitung des richtigen Friedenssymbols
+
+Das falsche Friedenssymbol – die heute weltweit verbreitete sogenannte
+
+**Es soll FRIEDEN sein auf Erden** <Todesrune>, die aus den keltischen Futhark-Runen resp. der umgedrehten Algiz
+**And there shall be PEACE on Earth** Rune fabriziert wurde – ist der eigentliche Inbegriff negativer Einflüsse und schafft
+
+zerstörerische Schwingungen hinsichtlich Unfrieden, Fehden und Hass, Rache,
+Laster, Süchte und Hörigkeit, denn die <Todesrune> bedeutet für viele Menschen
+
+**AMANI** **ΕΙΡΗΝΗ**
+
+Reminiszenzen an die NAZI-Zeit, an Tod und Verderben, wie aber auch Ambitionen
+
+**BARIŞ** **VREDE**
+
+in bezug auf Kriege, Terror, Zerstörungen vieler menschlicher Errungenschaften und
+
+**PAQE** **��** allen notwendigen Lebensgrundlagen jeder Art und weltweit Unfrieden.
+**PACE** **שרום**
+**МИР** शांित Es Ist wirklich dringlichst notwendig, dass die <Todesrune> als falsches
+**PAIX** **���** Friedenssymbol, das Unfrieden und Unruhe schafft, völlig aus der Erdenwelt
+**PAZ** **��** verschwindet und dadurch das uralte sowie richtige Peacesymbol auf der ganzen
+
+Erde verbreitet und weltbekanntgemacht wird, dessen zentrale Elemente
+Frieden, Freiheit, Harmonie, Stärkung der Lebenskraft, Schutz,
+
+**FIGU.ORG**
+
+Wachstum und Weisheit reflektieren, aufbauend wirken und
+
+**FIGU, Semjase-Silver-Star-Center, 8495 Schmidrüti**
+**Schweiz/Switzerland  Tel. + 41 (0)52 385 13 10** sehr besänftigend und friedlich-positiven Schwingungen
+
+zum Durchbruch verhelfen, die effectiv Frieden,
+Freiheit und Harmonie vermitteln können!
+
+
+-----
+
+Wir wenden uns deshalb an alle FIGU-Mitglieder, an alle FIGU-Interessengruppen, Studien- und Landesgruppen
+sowie an alle vernünftigen und ehrlich nach Frieden, Freiheit, Harmonie, Gerechtigkeit, Wissen und Evolution
+strebenden Menschen, ihr Bestes zu tun und zu geben, um das richtige Friedenssymbol weltweit zu
+verbreiten und Aufklärung zu schaffen über die gefährliche und destruktive Verwendung
+der <Todesrune>, die in Erinnerung an die NAZI-Verbrechen kollektiv im Sinnen und
+Trachten der Menschen Charakterverlotterung, Ausartung und Unheil fördert.
+
+**Autokleber** **Bestellen gegen Vorauszahlung:** **E-Mail, WEB, Tel.:**
+**Grössen der Kleber:** **FIGU** info@figu.org
+120x120 mm = CHF 3.– Hinterschmidrüti 1225 www.figu.org
+250x250 mm = CHF 6.– 8495 Schmidrüti Tel. 052 385 13 10
+300X300 mm = CHF 12.– Schweiz Fax 052 385 42 89
+
+IMPRESSUM Für CHF/EURO 10.– in einem Couvert senden
+FIGU-SONDER-ZEITZEICHEN wir Dir/Ihnen 3 Stück farbige Friedenskleber
+Druck und Verlag: FIGU Wassermannzeit-Verlag, ------der Grösse 120x120 mm. = Am Auto aufkleben.
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+Redaktion: BEAM ‹Billy› Eduard Albert Meier,
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+Wird auch im Internetz veröffentlicht
+**Erscheint sporadisch auf der FIGU-Webseite**
+
+Postcheck-Konto: FIGU Freie Interessengemeinschaft,
+8495 Schmidrüti, PC 80-13703-3
+IBAN: CH06 0900 0000 8001 3703 3 Geisteslehre Friedenssymbol
+**E-Brief: info@figu.org**
+**Internetz: www.figu.org** **Frieden**
+**FIGU-Shop: http://shop.figu.org**
+
+Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten
+
+**© FIGU 2023** Tritt dazu macht, um dann nachfolgend in Friedsamkeit jeden weiteren Schritt
+Einige Rechte vorbehalten. bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun. SSSC, 10. September 2018, 16.43 h, Billy
+Dieses Werk ist, wo nicht anders
+angegeben, lizenziert unter :
+www.figu.org/licenses/by-ncnd/2.5/ch/
+
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung des Urhebers ausdrücklich erlaubt.**
+Erschienen im Wassermannzeit-Verlag: FIGU, ‹Freie Interessengemeinschaft Universell›, Semjase-Silver-Star-Center,
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+

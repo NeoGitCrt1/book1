@@ -1,0 +1,1605 @@
+**L**
+
+**WESEN FREMDER WELTEN**
+
+# FIGU– BESUCHEN DIE ERDE
+
+**Freie**
+
+# ZEITZEICHEN Interessengemeinschaft
+
+**FIGU**
+
+## Aktuelles • Einsichten • Erkenntnisse r
+
+**Erscheinungsweise:** **Internetz: www.figu.org** **2. Jahrgang**
+**Sporadisch** **E-Brief: info@figu.org** **Nr. 56, Oktober 2016**
+
+#### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+Laut ‹Allgemeine Erklärung der Menschenrechte› vom 10. Dezember 1948, Artikel 19, ‹Meinungs- und Informationsfreiheit›:
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die**
+**Freiheit, Meinungen unangefochten anzuhängen und Informationen und Ideen mit allen**
+**Verständigungsmitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Aussagen und Meinungen müssen nicht zwingend identisch sein mit Gedanken, Interessen, Lehre und Missionsgut der FIGU.
+
+### TTIP & CETA – droht der Ausverkauf der Schweiz?
+_Der Freitags-Kommentar vom 14. Oktober 2016, von Anian Liebrand, Redaktion ‹Schweizerzeit›_
+#### Freihandelsabkommen oder Kolonialvertrag?
+Seit drei Jahren verhandeln EU-Funktionäre im Verborgenen über sogenannte transatlantische Freihandels abkommen mit den USA und Kanada. Einmal abgeschlossen, haben die Verträge auch unmittelbare Konsequenzen für die Schweiz. Was Öffnungs-Turbos als wohltuende Liberalisierung verkaufen, hat fatale rechtliche
+Folgen. Wie sind die Abkommen TTIP und CETA aus bürgerlicher Sicht zu beurteilen?
+Laut EU-Kommission sei eines der Hauptziele der ‹Transatlantischen Handels- und Investitionspartnerschaft›
+(TTIP) zwischen der Europäischen Union und den USA, praktisch sämtliche Zölle abzuschaffen. Es gelte, Handelshemmnisse abzubauen, um die Wirtschaft in Zeiten stagnierenden Wachstums anzukurbeln. So entstände ein
+gigantischer Freihandelsraum, auf den dereinst fast die Hälfte der globalen Wertschöpfung entfallen könnte. Seit
+einigen Jahren verhandelt die EU auch mit Kanada über ein ‹umfassendes Wirtschafts- und Handelsabkommen›
+(CETA), das ebenfalls Handels- und Zollerleichterungen beinhalten soll und als Testfall für das US-amerikanischeuropäische TTIP gilt.
+
+#### Intransparenz
+Anfang Oktober 2016 bestritten Unterhändler der EU und der USA in New York die 15. TTIP-Verhandlungsrunde. Was genau verhandelt wurde, bleibt der Öffentlichkeit verborgen – dank publik gewordener Geheim dokumente sind ihr zu TTIP lediglich einige Eckpfeiler bekannt. Und diese Stossrichtung gefällt vielen Menschen
+in der EU gar nicht. In ganz Europa gehen seit Monaten Hunderttausende auf die Strasse. Nebst der fehlenden
+Transparenz fürchten die TTIP-Gegner einen totalen Souveränitätsverlust unter dem Diktat von Grosskonzernen – zu Lasten der kleineren und mittleren Unternehmen und der Konsumenten.
+Bei den TTIP-Verhandlungen sind rund 600 externe Berater zugelassen, bei denen es sich hauptsächlich um
+Lobbyisten von Grossfirmen handelt. Wie veröffentlichte Geheimdokumente beweisen, besteht die berechtigte
+Befürchtung, dass sich die EU vollständig den Verbraucherschutzrichtlinien der USA zu unterwerfen habe. Das
+heisst konkret: Gentechnisch veränderte Lebensmittel dürfen ohne Kennzeichnung verkauft werden; unter Zusatz
+mit Wachstumshormonen versehenes Fleisch, das heute in der EU verboten ist, wird erlaubt; das umstrittene
+Fracking wird erlaubt; die Richtlinien beim Gewässerschutz werden gesenkt – es droht gar die
+Privatisierung der Trinkwasserversorgung.
+
+#### Drohende Rechtsstreitigkeiten
+Bei TTIP geht es nur vordergründig um den Abbau von Zöllen, die schon heute gering sind
+(einschneidender für die Wirtschaft sind viele andere EU-Regulierungen …). Bei den Ab 
+
+**L**
+
+**WESEN FREMDER WELTEN**
+**BESUCHEN DIE ERDE**
+
+
+-----
+
+kommen geht es vielmehr um die Unterwerfung unter fremdes US-Recht und die Beseitigung nationalstaatlicher
+Unterschiede. Mit den vorgesehenen Klagerechten für Konzerne sind absurde Rechtsstreitigkeiten vorprogrammiert. Konkret wird entscheidend sein, wie die Schiedsgerichte zusammengestellt werden – was nur schon vor
+dem Hintergrund, dass die USA bereits klar gemacht haben, per se keine ‹fremde Richter› zu akzeptieren, sehr
+spannend werden dürfte. Es droht die einseitige Rechtsübernahme zu Lasten der EU.
+Ein Beispiel, was da auf Europa zukommen könnte, liefern die USA und Kanada, die mit dem Nordamerikanischen
+Freihandelsabkommen (NAFTA) bereits ein vergleichbares Abkommen abgeschlossen haben. In den USA klagte
+eine US-amerikanische Firma gegen Kanada, da die kanadische Provinz Québec ein befristetes Verbot von
+Fracking beschlossen hatte. Die US-Firma beantragte zuhanden des von beiden Staaten legitimierten Schiedsgerichts, das kanadische Fracking-Moratorium sei gesetzlich wieder aufzuheben. Mehr noch: Der kanadische
+Staat hätte ihr eine Entschädigung von 250 Millionen US-Dollar für die Gewinne auszuzahlen, welche die Firma
+ohne das Moratorium hätte erzielen können. Das Verfahren ist noch hängig.
+
+#### Unterwerfung
+TTIP oder CETA werden in Form von völkerrechtlichen Verträgen zwischen der Europäischen Union und den
+USA resp. Kanada geplant. Ratifiziert ein EU-Staat das Abkommen, stehen TTIP und CETA über bisherigen
+nationalen Gesetzen. Der Bürger hat gar nichts zu sagen, da Volksabstimmungen in den meisten EU-Staaten
+ausgeschlossen sind. Entgegen der Behauptung, den freien Handel zu begünstigen, bewirken TTIP und CETA
+eigentlich dessen Gegenteil: Sie schaffen eine protektionistische Handelsunion zwischen der USA, Kanada und
+der EU, während aufstrebende Märkte wie die BRICS-Staaten (Brasilien, Russland, Indien, China und Südafrika)
+aussen vor gelassen werden.
+
+#### Unglaubwürdige EU
+Die Beteuerungen der EU-Spitze, mit TTIP und CETA die Wirtschaftsfreiheit zu stärken, sind in verschiedener
+Hinsicht unglaubwürdig. Schliesslich sind es die EU-Funktionäre zu Brüssel, die mit ihrer regulierungswütigen
+Zentralisierungspolitik die europäische Wirtschaft einengen und den Wohlstand gefährden. Beispiele gibt es
+zuhauf: Das Währungsexperiment Euro und die ‹Griechenland-Rettung›, die Milliarden von Volksvermögen
+vernichtete; das Verbot konventioneller Glühbirnen; planwirtschaftliche ‹Subventionitis›; Hochsteuerdiktate für
+Unternehmen. Diese EU-Regulierungspolitik wirkt sich schon heute direkt auf die Schweiz aus. Untersuchungen
+an der Universität Bern aus dem Jahr 2011 sind zum Schluss gekommen, dass jede zweite Gesetzesvorlage in
+irgendeiner Form EU-Recht adaptiert.
+
+#### Inwiefern ist die Schweiz betroffen?
+Was haben TTIP und CETA mit der Schweiz zu tun? So viel wie bis jetzt bekannt ist, plant die EU, die Abkommen
+auch auf die Schweiz auszudehnen. Wie sich unser Land dazu stellt, wird in den nächsten Jahren zweifellos zu
+heftigen Diskussionen führen. Die Fronten scheinen sich dabei teilweise schon abzuzeichnen. Dieselben Kreise,
+die uns jede Übernahme von EU-Recht als alternativlos verkaufen, werden an vorderster Front für TTIP und
+CETA weibeln. Derweil hat sich bereits ein Aktionsbündnis gegen TTIP gebildet, das sich überwiegend aus linken
+Gruppierungen zusammensetzt, die aus konsumenten- und umweltpolitischer Optik argumentieren. Dies entbehrt nicht einer gewissen Ironie: Wäre die Schweiz – entsprechend der Agenda der Sozialisten und der Grünen –
+heute Mitglied der EU, hätten wir zu TTIP rein gar nichts zu melden.
+Aus bürgerlicher Sicht wären jegliche Abkommen, welche den freien Handel begünstigen, grundsätzlich be grüssenswert. Bei TTIP und CETA geht es aber um weit mehr – es geht um die staatsstreichähnliche Aushebelung der nationalen Souveränität und der Selbstbestimmung von freien Völkern, die in ihrem angestammten
+Staatsgebiet in möglichst vielen Bereichen des Zusammenlebens ihre eigenen Spielregeln aufstellen. Skepsis ist
+vor allem auch dann angebracht, wenn wirtschaftliche Freiheit durch dicke, von Lobbyisten und Staatsangestellten ausgefeilschte Regelwerke verordnet werden sollen. Die beste Wirtschaftsförderung im marktwirtschaftlichen Sinne ist bekanntlich keine Wirtschaftsförderung.
+TTIP und CETA erinnern – was die Intransparenz und die Rechtsfolgen betrifft – vielmehr an den geplanten
+Rahmenvertrag über ein institutionelles Abkommen zwischen der Schweiz und der EU als an wirtschaftsfreundliche Abkommen. Bürgerlich gesinnte Schweizer dürfen, ja müssen, sie guten Gewissens ablehnen.
+_14.10.2016, 17:01 von Anian Liebrand | 1220 Aufrufe_
+_Quelle: http://www.schweizerzeit.ch/cms/index.php?page=/news/ttip_ceta_droht_der_ausverkauf_der_schweiz-2868_
+
+
+-----
+
+### Diplomatie der Unterwerfung
+_12.10.2016, 10:48 von admin; EU-NO Newsletter; von Markus Somm, Chefredaktor ‹Basler Zeitung›_
+#### Mit der EU verhandeln heisst: Die Interessen der Schweiz verteidigen. Oder? So klar ist das nicht.
+Stellen Sie sich vor, Sie haben ein Problem und nehmen einen Anwalt, der für Sie mit der Gegenseite verhandeln
+soll. Die Gegenseite ist kein Feind, aber ein Gegner, vor allem hat er, sonst gäbe es ja keinen Konflikt, andere
+Interessen, eine andere Sicht der Dinge, und auch er möchte wie Sie selbst: Gewinnen.
+Sie reden lange mit Ihrem Anwalt, er gibt vor, nachvollziehen zu können, was Sie wünschen, und macht sich ein
+paar Notizen. Er hat, so macht es den Anschein, gut zugehört. Er hat verstanden. Also zieht er los und setzt sich
+mit dem Anwalt der Gegenseite zusammen: Wir haben dieses Anliegen, wir möchten verhandeln.
+Erstaunlicherweise, man kann es kaum glauben, sagt der Anwalt der Gegenseite: Wir sehen es anders. Wir möchten
+nicht. Was macht Ihr Anwalt nun, dessen ebenso erstaunliche Honorarnoten Sie immer pünktlich zu begleichen
+pflegten? Er nickt und kommt zu Ihnen zurück. Dann sagt er Ihnen: Die Gegenseite will nicht. Also können wir
+nichts machen. Und das war das Ende der Verhandlungen. Sie haben verloren.
+Würden Sie einem solchen Anwalt vertrauen? Oder ihm sogleich das Mandat entziehen? Die Fragen stellen heisst,
+sie beantworten.
+Bevor der Nationalrat vor kurzem die Verfassung brach, indem eine Mehrheit der Volksvertreter so tat, als ob
+sie die Masseneinwanderungs-Initiative umsetzen würde, liess eine panische, offizielle Schweiz in Brüssel nachfragen, ob er denn recht sei, dieser ‹Inländervorrang light›, den man im Begriff war zu beschliessen, womit man
+das ignorierte, was Volk und Stände vor fast drei Jahren in die Verfassung geschrieben hatten. Die Damen und
+Herren in Brüssel dachten lange nach, wogen alle Argumente ab, machten sich Notizen, gingen in sich, brüteten
+und sagten: Mmmh, es passt noch nicht ganz, wahrscheinlich. Und die offizielle Schweiz ist fast gestorben vor
+Angst und Schrecken. Sicher könnte man noch ein bisschen nachbessern, nicht wahr? Fragen Sie die FDP.
+
+#### Sehnsucht nach Brüssel
+Seit Jahren haben wir Diplomaten angestellt, die – dieses Eindrucks kann man sich nicht länger erwehren – genauso
+verhandeln. Sie fliegen nach Brüssel und teilen dort der Gegenseite mit: Unser Auftraggeber, unser Souverän,
+will das und das. Brüssel brütet und sagt: Wir wollen das nicht. Nach dieser brutalen Auseinandersetzung kehren
+unsere tapferen Diplomaten in die Zentrale zurück und melden: Brüssel will nicht. Also können wir nichts
+machen.
+Nun ist es ja nicht so, dass ich das alles erfinde. Enge Vertraute einflussreicher Bundesräte (die nicht der SVP
+angehören) erzählen hinter vorgehaltener Hand die Geschichte nicht anders: Als es darum ging, in Brüssel für
+eine Neuverhandlung der Personenfreizügigkeit zu werben, hätten die Schweizer Diplomaten Anfängerfehler
+gemacht, wie das nur selten zu beobachten sei. Insbesondere gaben sie Brüssel immer zu verstehen, dass sie keinesfalls bereit seien, vom Tisch aufzustehen und die Kündigung der Bilateralen in Kauf zu nehmen. Ein Grundsatz
+aus dem ABC der Verhandlungskunst, keine Erkenntnis aus der Kernphysik: Verbirg deine Absichten! Tu so, als
+könntest du jederzeit wieder gehen. Insgeheim verstanden ‹unsere› Vertreter die Position von Brüssel besser als
+jene ihres eigenen Chefs in der Heimat – und zeigten das dem ‹Gegner› auch. Man fragt sich, warum sie sich
+nicht direkt von der EU anstellen lassen? Das wäre transparenter. Mit anderen Worten, sie blufften nie, sondern
+sassen da wie unschuldige Engel, die an das Gute im Menschen glauben. Sie verhielten sich naiv auf eine Art
+und Weise, die wohl nicht fahrlässig war, sondern mutwillig.
+Diese Diplomaten, die in ihrer Mehrheit einmal in ihrer Karriere, meistens noch heute, glaubten, dass die
+Schweiz eigentlich der EU beitreten sollte: Diese Diplomaten vertraten unser Land nicht.
+Die gleichen Vertrauten, die das Ohr von Bundesräten haben, sagen: Es sei völlig undenkbar, dass die EU die
+bilateralen Abkommen je kündigen würde. Denn 28, in Worten: achtundzwanzig Mitgliedstaaten müssten je
+einzeln diesen Schritt tun. Und weil diese Vertrauten den Bundesräten sehr nahe stehen, wissen wir, dass auch
+unsere Regierung das weiss.
+
+#### Chefunterhändler für wen?
+Wie unsere Diplomatie vorgibt, für die Schweiz einzutreten, während sie längst auf die Gegenseite gewechselt hat,
+demonstrierte am 30. September 2016 Jacques de Watteville, der aktuelle Chefunterhändler mit der EU. Auf die
+Frage des ‹Tages-Anzeigers›, warum die Schweiz nach wie vor über ein institutionelles Rahmenabkommen verhandle – angesichts der Tatsache, dass ein solches derzeit innenpolitisch keine Chance habe –, sagte de Watteville:
+_«Die Schweiz braucht Rechtssicherheit und Marktzugang. Die EU-Regeln entwickeln sich laufend. Damit unsere_
+_Unternehmen weiterhin ohne Hindernisse in die EU exportieren können, müssen wir die Verträge den aktuellen_
+
+
+-----
+
+_Bestimmungen anpassen. Dafür brauchen wir ein Abkommen, das der Rechtsentwicklung auf dynamische Weise_
+_Rechnung trägt. Hinzu kommt, dass wir heute nicht in allen Bereichen Marktzugang haben.»_
+Besser hätte ein Diplomat der EU die Wünsche und Sicht der EU nicht ausdrücken können. De Watteville tarnt
+das, indem er von der Schweiz spricht, als ob sie auf ein Rahmenabkommen angewiesen sei – dabei drängt die
+EU darauf – nicht wir. De Watteville stellt die Lage auf den Kopf. Er verwirrt und vernebelt seinen Chef, den
+Schweizer Bürger, der seine Aussagen liest. Am Ende glaubt der Leser, er müsste dankbar sein, dass die EU uns
+ein Rahmenabkommen gewährt.
+Was uns stört und das Abkommen innenpolitisch kaum mehrheitsfähig macht, ist gerade die sogenannte
+‹dynamische Übernahme› der EU-Regeln, was ein hübsches Wort ist für: Unterwerfung. De Watteville, der
+elegante Wortakrobat, tut so, als ob wir davon profitieren könnten, dabei ist das Gegenteil der Fall. Das liegt nie
+und nimmer in unserem Interesse, sondern entspricht demjenigen der EU. Unbehelligt will sie die Regeln ändern,
+auf die wir uns gemeinsam in Verträgen geeinigt haben. Wir dagegen haben dieses Recht natürlich nicht.
+Die EU ist der Vermieter, der einen Mietvertrag jeden Tag umschreibt, ohne dass wir Mieter je dazu befragt
+werden müssten: Einmal steigt die Miete, dann zieht die Schwiegermutter des Vermieters ein, schliesslich wird
+der Schlüssel ausgewechselt und der Mieter schläft im Gartenhaus.
+Die EU will alle Regeln und Gesetze, die den Binnenmarkt betreffen, ‹weiterentwickeln› können, ohne dass die
+Schweiz, ihre Regierung, ihr Parlament und vor allem ihr Souverän noch je etwas dazu zu sagen hätten. Passt es?
+Diese Frage müssten wir gar nie mehr stellen, wenn wir unsere Gesetze den Brüsseler Eurokraten zuliebe anpassen. Wir müssen dann einfach sagen: Ja, wir freuen uns darauf.
+Diesen Eindruck erweckt unser Chefunterhändler, wenn er so in der Öffentlichkeit redet, wenn er der EU so deutlich verrät, auf welcher Seite er gerne stünde, wessen Anliegen er wirklich versteht. Wer so verhandelt, will nichts
+erreichen. Er scheitert mit Begeisterung. Deshalb haben wir seit fast drei Jahren kein Ergebnis erreicht in Brüssel.
+De Watteville ist ein Anwalt, der pro bono für die Gegenseite arbeitet. Es ist Zeit, den Anwalt auszuwechseln.
+_E-Mail: markus.somm@baz.ch; Erstabdruck: Basler Zeitung, 1. Oktober 2016_
+_Quelle: http://www.eu-no.ch/news/diplomatie-der-unterwerfung_135_
+
+### Sozialhilfekosten steigen weiter an
+_11.10.2016, 00:00 von Anian Liebrand_
+#### Augenöffnende Statistik
+Das Bundesamt für Statistik (BfS) publizierte am 4. Oktober 2016 die Finanzstatistik der Sozialhilfe 2014.
+Martina Bircher, Gemeinderätin und Grossratskandidatin im Aargauer Bezirk Zofingen, hat die Zahlen für die
+‹Schweizerzeit› genauer analysiert.
+Die Quintessenz ist klar: Die Kosten des Sozialhilfewesens steigen nach wie vor unaufhaltsam an. Während die
+Zahl der Schweizer Sozialhilfebezüger bei leicht wachsender Bevölkerung konstant geblieben ist, zeigt sich bei
+der ausländischen Bevölkerung ein komplett anderes Bild.
+
+#### Über die Asylschiene in die Sozialhilfe
+Wurden im Jahr 2006 aus Eritrea 276 Sozialhilfeempfänger gezahlt, waren es 2014 bereits 6547. Das entspricht
+einer Steigerung von +2272% innert acht Jahren, womit Eritrea bei den Herkunftsländern der ausländischen
+Sozialhilfebezüger den Spitzenplatz einnimmt. Aber auch bei anderen Nationalitäten hat sich die Zahl der
+Sozialhilfebezüger teilweise fast vervierfacht. Diese Ausländer sind in den letzten Jahren grösstenteils über die
+Asylschiene in die Schweiz eingewandert – und werden von den Steuerzahlern über die Runden gebracht.
+
+#### Über die Personenfreizügigkeit in die Sozialhilfe
+Aber auch EU-Staaten wie Bulgarien und Rumänien, ja selbst Deutschland, weisen eine Verdoppelung der
+Sozialhilfebezüger auf. Selbstverständlich lebten 2014 im Vergleich zu 2006 mehr Personen aus der EU in der
+Schweiz. Aber eine Verdoppelung der Sozialhilfebezüger macht offenkundig, dass es sich dabei nicht immer um
+die so viel gepriesenen ‹Fachkräfte› handeln kann – sonst wären die Werte konstant geblieben. Vergleicht man
+die ausländischen Sozialhilfebezüger untereinander, nehmen die Eritreer bereits den 5. Platz ein. Dies, obwohl
+viel weniger Eritreer als Portugiesen in der Schweiz leben. Der Anteil an Türken (Platz 2) und Italienern (Platz 3)
+ist gesunken.
+
+
+-----
+
+#### Rechtliche Grundlagen
+Wer über die Asylschiene in die Schweiz einwandert, erhält mit der Anerkennung oder der vorläufigen Auf nahme als Flüchtling Anrecht auf Sozialhilfe. Gemäss Genfer Flüchtlingskonvention dürfen diese Personen gegen über der einheimischen Bevölkerung nicht schlechter gestellt werden. Wandern Personen auf der Basis der
+Personenfreizügigkeit in die Schweiz ein, genügt ein unbefristeter Arbeitsvertrag. Die Person erhält damit eine für
+fünf Jahre gültige Aufenthaltsbewilligung (garantiert durch die Bilateralen Verträge). Was in diesen fünf Jahren
+passiert, spielt keine Rolle. Ab dem ersten Tag haben EU-Bürger Anspruch auf Arbeitslosenversicherung und
+Sozialhilfe.
+
+_Quelle: http://www.schweizerzeit.ch/cms/index.php?page=/news/sozialhilfekosten_steigen_weiter_an-2850_
+
+
+-----
+
+### Wagenknecht: «Nicht nur Russland, alle Waffenlieferer sanktionieren!» – «Halbverrückte und Kranke planen irgendwelche Kriege»
+_Von Detlef Kossakowski 10. Oktober 2016; Aktualisiert: 10. Oktober 2016; 22:23_
+Sahra Wagenknecht (Linke) fordert, die ‹Heuchelei› bezüglich der Kriegsverbrechen in Aleppo zu beenden.
+Offen benennt sie die Rolle der Bundesregierung, der NATO und der USA als Waffenlieferer in Syrien. Einer
+Sanktion gegen Russland müsste eine Sanktion gegen alle Waffenlieferanten folgen. Die NATO-Kriege seien das
+wirkliche Kriegsverbrechen. Ebenso prangert sie die NATO-Europa-Politik an. Ein Sicherheitssystem nicht
+gegen Russland, sondern gemeinsam mit Russland müsse her. Die NATO sollte aufgelöst werden.
+Die Linke-Politikerin Sahra Wagenknecht sprach sich auf der Friedensdemo am 8. Oktober in Berlin gegen die
+‹Heuchelei› in Bezug auf die Kriegsverbrechen in Aleppo aus: «Wenn sich wirklich die übelsten Kriegspolitiker aus
+Washington, siehe Herr Kerry, die also noch nie davor zurückgeschreckt sind, auch schlimme Kriegsverbrechen
+zu verantworten, wenn die plötzlich ihren Abscheu vor dem Gräuel des Krieges entdecken … Die Heuchelei,
+die muss ich mir nicht antun.»
+Plötzlich fänden «Bundestagsabgeordnete, die noch nie zuvor gezögert haben ihre Hand dafür zu heben, dass
+die Bundeswehr in völkerrechtswidrige Kriege geschickt wird», es plötzlich ganz entsetzlich, «dass in solchen
+Kriegen Menschen sterben. Warum kapieren die das erst jetzt?», so die Politikerin.
+Wagenknecht fragt nach den Kriegsverbrechen der syrischen Opposition und nach den Waffenlieferungen. «Wer
+hat denen eigentlich die Waffen geliefert und liefert sie bis heute?» Diese seien ebenfalls verantwortlich. «Ja, Saudi
+Arabien, ja, Katar, ja, die Türkei und die USA. Das sind die Waffenlieferanten dieser Barbaren und dieser islamistischen Terrorgruppen. Die sind alle mitverantwortlich,» fährt Wagenknecht fort.
+
+#### «Nicht nur Russland sanktionieren, sondern alle Waffenlieferer»
+Wenn jetzt gesagt würde ‹Sanktionen gegen Russland›, dann sage die Politikerin, «sofortige Sanktionen gegen
+die Waffen-Lieferanten dieser Terrorgruppen». Dann wäre man wenigstens ehrlich – dann wäre man wenigstens
+konsequent.
+Wagenknecht fordert einen sofortigen Stopp aller Waffenlieferungen. Wie sie berichtet, kämpft keine der Kriegsparteien in Syrien heute ohne deutsche Waffen. Deutsche Waffen, die nach Saudi-Arabien und Katar verkauft
+werden, gelangten in solche Kriege.
+Deutsche Waffenschmiede machten ‹super Geschäfte› damit, indem sie solche Krisenherde beliefern – das sei
+ein Verbrechen. Dies gehöre gestoppt und wurde ‹zig-mal› im Bundestag beantragt.
+
+#### Rückrufaktion für gesamte Bundeswehr
+Wagenknecht spricht sich weiters dafür aus, alle deutschen Waffen zurückzuziehen. Man brauche eigentlich eine
+Rückrufaktion für die gesamte Bundeswehr. Diese sei laut Grundgesetz auf Verteidigung festgelegt und nicht
+auf Angriff. Deshalb fordert die Linke-Politikerin ein Ende der Auslandseinsätze.
+Die Begründung: Kriege gegen den Terror hätten nur noch mehr Terror gebracht, wie am Beispiel Afghanistans.
+Dort wüte der Terror noch immer. Krieg gegen Zivilbevölkerung fördere Hass und erneuten Terror. Auch der
+Krieg im Irak habe schliesslich zur Bildung des ‹Islamischen Staats› (Anm. Islamistischen Staates) geführt. «Das
+war wieder ein voller Erfolg», folgert Wagenknecht bitter ironisch. Deswegen müsse Deutschland auch raus aus
+der NATO und solle sich nicht immer hinter Partnern verstecken.
+
+#### ‹NATO-Europa-Politik hochbedrohlich›
+Ebenso sei die NATO-Europa-Politik aktuell ‹hochbedrohlich›. Deutsche Soldaten befänden sich jetzt wieder
+an der russischen Westgrenze – teilweise stationiert. Dort fänden Manöver mit brutalem Kriegsgebaren statt.
+Gleichzeitig würden in Deutschland die Atomwaffen modernisiert. «Welche Halbverrückten planen in ihrem
+Kopf irgendwelche (…) Kriege?», fragt Wagenknecht. Wer so etwas plane, der sei krank. Dies müsse man stoppen.
+Stattdessen müsse ein gemeinsames Sicherheitssystem mit Russland her und die NATO solle aufgelöst werden.
+_Quelle: http://www.epochtimes.de/politik/deutschland/wagenknecht-nicht-nur-russland-alle-waffenlieferer-sanktionieren-halb-_
+_verrueckte-und-kranke-machen-nato-europa-politik-a1947020.html_
+
+
+-----
+
+### US-Analyst: Die USA begehen Kriegsverbrechen in Syrien — nicht Russland
+_Von Christian Lehmann; Veröffentlichungsdatum: 09 10 2016, 16:54_
+**Der Amerikaner Stephen Lendman, Journalist und politischer Analyst, erhebt schwere Vorwürfe gegen sein**
+**Land und seine Verbündeten. Ihm zufolge begehe die westliche Koalition unter der Führung der USA die**
+**schlimmsten Kriegsverbrechen. Die Anschuldigungen des Aussenministers John Kerry gegen Russland und**
+**Syriens bezeichnete er als haltlos — wie immer.**
+Seit nun mehr als einem Jahr beteiligen sich die Streitkräfte der Russischen Föderation auf Bitten des syrischen
+Präsidenten Bashar al-Assad am Krieg gegen den Terrorismus in Syrien. Deswegen versucht der Westen ständig
+den Einsatz der beiden Streitkräfte zu diskreditieren. Seit letzter Woche beklagen westliche Leitmedien und
+Politiker die vermeintlichen Kriegsverbrechen in Aleppo, wo Russland ein Krankenhaus bombardiert haben soll.
+Zwischen den USA und Russland besteht deswegen in der Syrien-Frage quasi ‹Funkstille›, wobei die Vorwürfe
+des Westens in Statements sowohl in Medien als auf internationalem diplomatischem Parkett weiter erhoben
+werden. Auf dem Portal des iranischen Staatssenders PressTV beschuldigt der Amerikaner Lendman vor allem
+die USA in Sachen Kriegsverbrechen.
+In einem Audio-Beitrag geht Lendman mit den westlichen Allierten in Syrien hart ins Gericht. Neben den Kriegsverbrechen der US-Koalition kritisiert er die Allianzen mit den Terrorgruppen Al-Nusra und ISIS. Aber auch
+andere Länder wie Israel, Saudi-Arabien, die Türkei, Katar und weitere Westmächte werden hier als Akteure
+genannt, die Syrien innerhalb von 5 Jahren zu einem internationalen Kriegsschauplatz gemacht haben. Zudem
+erinnert er an den Angriff der US-Koalition gegen die syrische Armee im vergangenen September, der den
+Konflikt zwischen Amerika und Russland zuspitzte.
+Vor mehr als einem Jahr kritisierte die Organisation ‹Ärzte ohne Grenzen› die US-Streitkräfte in Afghanistan,
+weil dort ein Krankenhaus bombardiert wurde. Genau das sollen die Russen und Syrer ständig nun in Aleppo
+tun, wenn man den westlichen Stimmen glauben schenken mag. Lendman allerdings glaubt nicht an diese Anschuldigungen und «Russland und Syrien bombadieren weder Krankenhäuser, noch töten sie Dutzende Zivilisten»,
+wie er im Beitrag fortführt. Internationalen Angaben zufolge fielen seit März 2011 dem Syrien-Konflikt über
+40000 Menschen zum Opfer, der über die Jahre hinweg zu einem Krieg ausartete, an dem weit über zehn internationale Akteure eine Rolle spielen.
+_Quelle:_ _http://de.news-front.info/2016/10/09/us-analyst-die-usa-begehen-kriegverbrechen-in-syrien-nicht-russland-von-_
+_christian-lehmann/_
+
+### Putin: «USA unterstützt Terroristen – Westen ist für die instabile Lage und Terrorismus verantwortlich»
+_RT Deutsch; Fr, 14. Okt 2016 13:43 UTC_
+Im Interview mit dem französischen Sender TF1 machte Russlands Präsident Wladimir Putin deutlich, dass die
+Russische Föderation **bis zuletzt versucht habe, den Westen durch konstruktive Vorschläge zur Lösung der**
+Syrienkrise mit ins Boot zu holen. Ergebnislos.
+
+_© Reuters; Der russische Präsident Wladimir Putin beim Interview mit TF1 vom 12.10.2016._
+
+Washington und seine Verbündeten beuten die Syrien-Krise aus, um politisches Kleingeld zu wechseln, anstatt
+echte Lösungen anzubieten, sagte der Präsident der Russischen Föderation, Wladimir Putin, in einem Interview
+im französischen Fernsehen. Er wies darauf hin, dass Moskau angeboten habe, Truppen zum Schutze humani tärer Hilfslieferungen in Aleppo bereitzustellen, während der Westen Moskau vorwerfe, Kriegsverbrechen zu
+begehen.
+
+
+-----
+
+**«Das ist eine politische Rhetorik, die keine grosse Bedeutung hat und nicht die reale Situation in Syrien**
+**berücksichtigt», antwortete Putin dem französischen Fernsehsender TF1 in einem Interview aus der zentral-**
+russischen Stadt Kowrow auf die Frage nach dem Vorwurf angeblicher Kriegsverbrechen in Syrien, für die Russ land die Verantwortung trage. Der französische Präsident François Hollande, der britische Aussenminister Boris
+Johnson und die Regierung Obama hatten in den vergangenen Tagen Anschuldigungen dieser Art erhoben.
+Putin beschuldigte seinerseits den Westen, die Region zu destabilisieren und benannte in diesem Zusammen**hang den sogenannten ‹Arabischen Frühling› von 2011 als Schlüsselmoment für jene Spannungen, die immer**
+noch die muslimische Welt dominieren.
+«Ich glaube fest daran, dass Teile der Verantwortung dafür, was in der Region insgesamt geschieht und insbesondere in Syrien, bei unseren westlichen Partnern liegen, in erster Linie bei den USA und ihren Verbündeten,
+den wichtigsten europäischen Ländern», sagte Putin. «Erinnern Sie sich noch, wie sich jeder beeilt hat, den
+Arabischen Frühling zu unterstützen? Wo ist dieser Optimismus jetzt? Wie ist das alles ausgegangen? Erinnern
+**Sie sich, wie Libyen oder der Irak aussahen, bevor diese Länder und ihre Organisationen als Staaten zerstört**
+**wurden von den Streitkräften unserer westlichen Partner?»**
+Putin stellte ausserdem eine Verbindung fest zwischen den Unruhen in der Region und dem jüngsten Aufkommen
+von Terroranschlägen erheblichen Ausmasses im Westen. Diese wurden von dschihadistischen Gruppen wie dem
+‹Islamischen Staat› (IS; Anm. Islamistischer Staat), welche sich infolge des Chaos, das in den arabischen Ländern
+ungehindert ausbreiten konnten, entweder geplant oder inspiriert.
+(Schon vor dem Arabischen Frühling) waren diese Länder nicht Musterbeispiele für Demokratien, wie wir sie
+**heute verstehen, und es gab vermutlich die Notwendigkeit und Möglichkeit, diese Gesellschaften zu beein -**
+flussen; den Staat und die Natur dieser Regimes, sagte Putin, der im Vorfeld des Interviews ein Sambo-Festival
+besucht hatte. Sambo ist ein russischer Kampfsport.
+**Aber so oder so: Diese Staaten zeigten kein Anzeichen für Terrorismus. Sie waren keine Gefahr für Paris, für**
+die Côte d’Azur, für Belgien, für Russland oder die Vereinigten Staaten. Jetzt sind sie eine Quelle der terroristi**schen Gefahr. Unser Ziel ist es, das Gleiche in Syrien abzuwenden.**
+Putin legte auch seine Version des Scheiterns des lange zwischen Washington und Moskau verhandelten Abkommens zur Herbeiführung eines Waffenstillstands in Syrien dar. Dabei erklärte der russische Präsident, dass
+der Schlüsselmoment für das Ende dieser Vereinbarung die Bombardierung einer Einheit der syrischen Armee
+**durch die von den USA geführten Koalitionstruppen war, von welcher das Pentagon später sagte, dass diese ein**
+Versehen gewesen sei.
+«Unsere amerikanischen Kollegen haben uns gesagt, dass der Luftschlag aus Versehen erfolgte. Dieses Versehen
+kostete 80 Menschen das Leben, und vielleicht ist es auch nur ein Zufall, aber der IS begann unmittelbar darauf
+**eine Offensive. Zur gleichen Zeit, in den unteren Rängen, auf dem ausführenden Level, sagte einer vom ameri -**
+**kanischen Militär ganz offen, dass sie mehrere Tage damit verbrachten, diesen Luftschlag vorzubereiten. Wie**
+**konnten sie einen Fehler machen, wenn es mehrere Tage Vorbereitung gab?», fragte Putin. «So endete unser**
+**Waffenstillstandsabkommen. Waren wir es, die es gebrochen haben? Nein.»**
+Mehrere westliche Mächte haben kurz darauf begonnen, Russland zu beschuldigen, hinter dem bis heute völlig
+**ungeklärten Angriff auf einen UN-Konvoi zu stecken, der sich am 20. September ereignet hatte. Dem westlichen**
+Narrativ zufolge weise dieser den Charakter eines Vergeltungsschlages auf. Washington hat mittlerweile die
+bilateralen Gespräche über Syrien abgebrochen.
+Putin machte jedoch auch deutlich, dass Russland immer noch bereitstehe, um die laut UN grösste humanitäre
+Krise seit dem Zweiten Weltkrieg zu lösen, die seit dem Beginn der Kampfhandlungen vor fünf Jahren vermutlich mehr als 400000 Menschen das Leben gekostet hat.
+Es wurde vorgeschlagen, dass unsere bewaffneten Kräfte, russisches Militärpersonal, an der Strasse stationiert
+werden um die Transitsicherheit zu gewährleisten (für Hilfskonvois nach Aleppo). **«Das russische Militär,**
+**mutige und entscheidungsstarke Menschen, haben gesagt, sie würden es tun», sagte Putin.**
+Er fügte hinzu, dass die Initiative, von der zuvor in der Öffentlichkeit noch nie die Rede war, als ‹exotischer
+Vorschlag› galt.
+«Aber ich habe ihnen gesagt, dass das nur zusammen mit den USA umgesetzt werden könne, und habe ihnen
+befohlen, ihnen diesen Vorschlag zu unterbreiten. Wir haben dies entsprechend vorgeschlagen, und sie (die
+**USA) haben prompt abgelehnt. Sie wollen ihre Truppen nicht hinschicken, aber sie wollen auch nicht die**
+sogenannten ‹oppositionellen Gruppen› zurückziehen – welche in Wirklichkeit Terroristen sind. Was können
+wir in so einer Situation tun?»
+Trotz des pessimistischen Tonfalls, der sich durch das Interview zog, bestand Putin darauf, dass er immer noch
+
+
+-----
+
+**‹optimistisch› sei bezüglich einer diplomatischen Lösung. Er ergänzte, dass das Angebot, den jüngst abgesagten**
+Besuch Frankreichs, der wegen einer diplomatischen Brüskierung seitens Hollandes abgesagt worden war, auf
+nächste Woche zu ‹verschieben›, ernst gemeint sei.
+Dennoch sei zu bedenken:
+Dies ist nicht der beste Moment für offizielle Treffen, unter Inbetrachtnahme des fehlenden gegenseitigen
+Verständnisses, um es milde auszudrücken, das wir für die Vorkommnisse in Syrien haben, insbesondere die
+Situation in Aleppo.
+_Quelle: https://de.sott.net/article/26522-Putin-USA-unterstutzt-Terroristen-Westen-ist-fur-die-instabile-Lage-und-Terroris-_
+_mus-verantwortlich_
+
+### Skandal in der US-Armee: Amerikanische Soldaten weigern sich, an der Seite der Terroristen in Syrien zu kämpfen
+_von Noch.info · 02/10/2016_
+#### Verursacher und Anführer des verbrecherischen Krieges in Syrien und Hauptkriegsverbrecherstaat sind die USA.
+
+_Immer mehr Vertreter der US-Armee in Syrien verstehen, dass sie an der Seite der Terroristen kämpfen._
+
+Im US-Militär in Syrien weigern sich immer mehr Soldaten, die Terror Gruppen Al-Quaida, Al-Nusra und die
+sogenannte gemässigte Opposition zu unterstützen. Die Bilder zeigen die Meinung eines grossen Teiles der USSoldaten in Syrien.
+
+#### USA-Todesschwadronen nun auch in Syrien
+Die dressierte deutsche Papageien-Journaille (besonders ehrlos, die ‹Öffentlich-rechtlichen› ARD, ZDF und ORF,
+die uns Gebühren abnehmen) ist ein Garant dafür, dass die Verursacher des barbarischen Krieges in Syrien ruhig
+schlafen können. Seit mehr als fünf Jahren werden die Syrer einem unvorstellbaren Terror ausgesetzt (die künstlichen ‹Brutalo-Islamisten› sind nichts anderes als eine neue Variante der psychopathischen ‹Todesschwadronen›,
+die das USA-Militär bzw. die CIA vor Jahren in Lateinamerika [wie die ‹Contras› in Nicaragua] eingesetzt hat).
+
+#### Was sind die Motive des USA-Terrors?
+Die geopolitischen Motive (Kontrolle über ‹Energiekorridore›, Öl- und Erdgasfelder, Gegner Israels ausschalten,
+etc.) für die ‹Intervention› in Syrien sind ja bekannt und haben natürlich nichts mit dem ungeheuerlichen Bullshit
+zu tun, der uns in den Nachrichten und Talk-Shows vorgesetzt wird. Es ist ja immer derselbe Propaganda-Mist:
+Ein böser, böser Diktator schiesst auf friedliche Demonstranten, begeht ‹Massaker an der Zivilbevölkerung›, usw.
+da kann doch der Westen nicht einfach zuschauen und die Rufe nach einer ‹humanitären Intervention› werden
+immer lauter. Doch nach den Erfahrungen in Libyen (aktueller Bericht des britischen Parlaments bestätigt:
+Ghadaffis angebliche ‹Massaker› – Alles erstunken und erlogen!) lassen sich Parlamente und Öffentlichkeit nicht
+mehr ganz so leicht dazu bringen*, einem offiziellen Bomben-Krieg zuzustimmen.
+(*Die erbärmliche Journaille käut aber immer noch schön brav alles wieder, was man ihr als ‹newsfeed› vorsetzt …)
+
+
+-----
+
+#### Die erlogene ‹Begründung› für den USA-Terror
+Dann arrangierten die Geheimdienste eine Serie absurder ‹Terror-Attentate› in Europa und man suggeriert dem
+Publikum, die Täter seien alle in Syrien gewesen, oder wollten dorthin, um ‹für den IS› zu kämpfen. Wir müssen
+also in Syrien eingreifen, um die ‹Terrorgefahr› bei uns einzudämmen. Das reicht als Legitimation für den Einsatz militärischer Kräfte aus EU-Ländern (vor allem Frankreich und Grossbritannien) und auch die deutsche
+Bundeswehr macht (im Hintergrund) mit. Alles, was die Terroristen den Syrern an Grausamkeit angetan haben,
+wird dem ‹Machthaber› Assad (einem gewählten Präsidenten, den viele Syrer verehren) in die Schuhe geschoben.
+Dass solche selbst-gezüchtete Verbrecherbanden (traditionell) ein perfides (CIA-)Werkzeug der amerikanischen
+Aussenpolitik sind, wissen viele, aber sagen darf man es nicht.
+
+#### … als hätte es die USA-Verbrechen nie gegeben!
+Die USA stehen doch seit 1945 als moralische Lichtgestalt im politischen Rampenlicht, als Vorkämpfer für
+Demokratie, Freiheit und Menschenrechte, hat Europa ‹von den Nazis befreit› usw. Nothing could be further
+from the truth. Obwohl man aus den historischen Fakten und hunderten Büchern (z.B. William Blum, Noam
+Chomsky) weiss, dass dieses positive Image mit der Realität nichts zu tun hat, tut die gesamte Journaille so, als
+ob es die zahllosen Verbrechen der USA nie gegeben hätte. Nur deswegen ist es möglich, dass sich deren ‹diplomatische› Vertreter auch kürzlich wieder als oberste, moralische Instanz vor der ‹Staatengemeinschaft› (UNO)
+präsentieren konnten.
+
+#### UPDATE: DAS JOURNALISTISCHE WUNDER
+Der Kölner Stadtanzeiger veröffentlichte gestern ein explosives Interview von Jürgen Tödenhöfer mit einem
+Anführer von Jabhat al Nusra. Darin wird alles bestätigt, was in diesem Blog (und von vielen anderen kritischen
+Autoren) schon seit geraumer Zeit betont wird: Die Terror-Gruppen (nicht nur) in Syrien sind ein perfides Werkzeug der USA und ihrer schäbigen Verbündeten. Der ganze ‹Kampf gegen den Terror› ist eine riesige PSYOP, eine
+ungeheuerliche Scharade, mit der die aussenpolitischen Verbrechen der USA nicht nur verdeckt werden, sondern
+auch noch als moralische Heldentat gelten. Hier ein Auszug:
+«Eigentlich waren der ‹IS› und wir eine Gruppe. Aber der ‹IS› wurde entsprechend den Interessen der grossen
+Staaten wie etwa Amerika für politische Zwecke benutzt und von unseren Prinzipien weggelenkt. Die meisten
+seiner Führer arbeiten mit Geheimdiensten zusammen, das ist uns klar geworden.» […].
+Zum Medien-Märchen, die schweren Artillerie-Waffen und US-Raketen seien den Islamisten ‹in die Hände
+gefallen› (waren für die ‹Gemässigten› bestimmt): «… Die TOW-Raketen wurden uns direkt gegeben. Sie
+wurden an eine bestimmte Gruppe geliefert. Als die ‹Road› gesperrt war und wir belagert wurden, hatten wir
+Offiziere aus der Türkei, Katar, Saudi Arabien, Israel und Amerika hier.»
+Die Angriffsziele der gekauften ‹Rebellen› werden von ausländischen Akteuren bestimmt und haben nichts mit
+einem ‹Bürgerkrieg› zu tun: «Die Amerikaner stehen auf unserer Seite, aber nicht so, wie es sein sollte. Zum
+Beispiel wurde uns folgendes gesagt: Wir müssen das ‹Bataillon 47› erobern und einnehmen. Wir haben von
+Saudi-Arabien 500 Millionen syrische Pfund bekommen. Für die Übernahme der Infanterie-Schule in ‹Al Muslimiya› vor Jahren bekamen wir aus Kuwait 1,5 Millionen kuwaitische Dinar und aus Saudi-Arabien (von den
+Regierungen) fünf Millionen Dollar.
+
+#### Die USA lügen, dass sich die Balken biegen …
+Was die in die Millionen gehenden Opfer der amerikanischen ‹Interventionen› (Wahlen manipuliert, demokratische Regierungen gestürzt, faschistische Folterknechte des Militärs und andere Terrorbanden trainiert (s.o.
+‹Todesschwadronen›), mit dem organisierten Verbrechen bei Drogen- und Waffenhandel kooperiert, BürgerKriege angezettelt, usw.) seit 1945 dazu sagen, interessiert doch niemand … Jedenfalls behaupten die USA der
+Angriff auf die syrischen Soldaten war ein ‹Versehen›. Man wollte doch den IS treffen. Natürlich. Denn die international ständig als Moralapostel auftretenden amerikanischen Politiker und ihr glorreiches Militär würden doch
+so eine heimtückische Aktion niemals dulden, schliesslich sind sie doch – im Kindergarten-Journalismus – immer
+‹die Guten›.
+
+#### THE UGLY TRUTH
+Jeder, der nicht auf den Kopf gefallen ist, und sich mit dem geopolitischen Kontext befasst hat, hat nicht den
+geringsten Zweifel daran, dass dieser feige Angriff (ein Kriegsverbrechen) absichtlich stattgefunden hat. Hier
+einige Gründe dafür:
+
+
+-----
+
+– Unmittelbar nach dem einstündigen Luftangriff überfiel der IS den Militär-Stützpunkt (die ‹Koalition›
+schaute zu).
+– Die Kampfjets flogen tief genug, um sehen zu können, wen sie angriffen (keine Bomber in 10000 m Höhe).
+– Der Stützpunkt der syrischen Armee existiert seit 2 Jahren an diesem Ort. Die USA überwacht das Kampfgebiet mit Aufklärungsdrohnen und Spionage-Satelliten.
+– Ein Vertreter des Pentagon erklärte in einem Interview, die USAF-CENT Einheit habe das ‹Ziel› tagelang
+überwacht, bevor der Angriff stattfand.
+– Wie konnten die Kommandeure annehmen, das sich in unmittelbarer Nähe eines Fliegerhorstes der syrischen
+Armee ein ‹IS-Ziel› befinden würde?
+
+#### Die USA torpedieren das Völkerrecht
+Dass dieses Verbrechen den Zweck hatte, das Genfer Abkommen zu sabotieren, sieht auch der russische UNBotschafter Vitaly Churkin als äusserst wahrscheinlich an. Er sagte gegenüber der Presse (nach dem Oscarreifen
+Auftritt von Samantha Power – Best Actress for Outrage-(Empörungs)management!):
+„It was quite significant and not accidental that it happened just two days before the Russian-American arrangements were supposed to come into full force,” he said. “The beginning of work of the Joint Implementation
+Group was supposed to be September 19. So if the US wanted to conduct an effective strike on Al Nusra or ISIS,
+in Deir ez-Zor or anywhere else, they could wait two more days and coordinate with our military and be sure
+that they are striking the right people… Instead they chose to conduct this reckless operation.”
+“One has to conclude that the airstrike has been conducted in order to derail the operation of the Joint Implementation Group (JIG) and actually prevent it from being set in motion.”
+Am 19. September wäre also ein wesentlicher Punkt des Abkommens zwischen Amerika und Russland in Kraft
+getreten: Ein gemeinsames, koordiniertes Vorgehen bei militärischen Einsätzen (JIG) in Syrien. Hätten die USA
+also wirklich die Absicht gehabt, einen effektiven Schlag gegen Al Nusra oder IS auszuführen (in Deir-ez-Zor oder
+anderswo), hätten sie nur zwei Tage warten müssen, um solche ‹Irrtümer› zu vermeiden.
+Man muss also daraus schliessen, dass dieser Luftangriff durchgeführt wurde, um das Tätigwerden der JIG zu
+verhindern.
+
+#### OBAMA: COMMANDER-IN-CHIEF (Really?)
+Wer diesen Angriff angeordnet hat, und ob Präsident Obama das autorisiert hatte, das ist die grosse Frage. Es
+ist kein Geheimnis, dass das Pentagon (und auch die CIA, die ja seit Jahrzehnten diverses Gesindel zu Terroristen
+‹ausbildet›) massiv gegen das Genfer Abkommen ist. Offiziell deshalb, weil das JIG den Russen zu viel ‹Einblick
+in die Kampfmethoden und Taktiken des US-Militärs im Einsatz› gewähren würde. Ashton Carter beruft sich
+sogar auf ein Gesetz, das nach der ‹Annexion der Krim› verabschiedet wurde und jegliche militärische Zusammenarbeit mit Russland untersagt. Wenn man eine Regierung jahrelang auf das übelste beschimpft und denunziert
+(Putin, der ‹neue Hitler›), aber dann so tun muss, als ob man mit ihr kooperieren will (um den ‹Terror› zu be kämpfen), führt das zu einer ‹kognitiven Dissonanz›, die schwer zu ertragen ist.
+
+#### Der faule Trick mit den ‹moderaten Rebellen›
+Doch es gibt noch einen viel wichtigeren Grund, warum das In-Kraft-Treten des Abkommens verhindert werden
+muss: Wie Aussenminister Lavrov vor dem UNSC betonte, sei ein zentraler Punkt die Verpflichtung der USA,
+dafür zu sorgen, dass die ‹moderaten Rebellen› von den Terrorbanden getrennt werden. Damit sollte sichergestellt werden, dass diese bewaffnete (aber als akzeptabel präsentierte) ‹Opposition› bei Luftangriffen gegen die
+Terroristen nicht mehr zu Schaden kommt.
+
+#### Heute ‹IS› morgen ‹FSA› (Freie Syrische Armee)
+… die Scharade geht weiter. Doch dieser Verpflichtung kann die USA gar nicht nachkommen, denn dann würde
+das Märchen von der ‹moderaten Opposition› zusammenbrechen (die Syrer wissen, sie alle begehen Verbrechen,
+der Name spielt keine Rolle und kann gewechselt werden: Al Kaida, Al Nusra, FSA, IS … es ist alles das gleiche
+Gesindel). An dieser Stelle muss man festhalten, dass Russland den Text des Abkommens veröffentlichen wollte,
+die USA das aber abgelehnt haben. Nicht einmal der UN-Sicherheitsrat wusste also, was in diesem Dokument
+wirklich drinsteht, deshalb begann Lawrow sein Statement mit diesen Worten: «I’d like to apologize for referring
+to a document that practically no-one in this room has seen …» Er führt dann weiter aus:
+Die zentralen Punkte des Abkommens sind: Die ‹Oppositions-Kräfte› von den Terroristen zu trennen, sicher
+
+-----
+
+zustellen, dass die Waffenruhe eingehalten wird und dass Hilfslieferungen über die Castello Road erfolgen können.
+Am wichtigsten ist aber, den Terroristen «nicht mehr zu gestatten, sich einer Bestrafung zu entziehen, indem
+sie sich hinter der bewaffneten ‹Opposition› verstecken.» (Diese imaginären, ‹gemässigten Rebellen› also als
+‹Schutzschilde› benutzen).
+Die Castello Road (staubige, nördliche Zugangsstrasse von/nach Aleppo) wird zwar weitgehend von der syrischen
+Armee (SAA) ‹kontrolliert›, doch die Terror-Banden beschiessen regelmässig Fahrzeuge mit Artillerie aus einiger
+Entfernung. Der gefahrlose Transport von Hilfsgütern ist also nur möglich, wenn beide Seiten den Waffenstillstand einhalten. Während die SAA damit begann, sich zurückzuziehen, musste sie erkennen, dass die bewaffnete
+‹Opposition› nicht nur weiterhin dort blieb, sondern auf sie zu schiessen begann. (Das russische Militär hat sogar
+Webcams installiert, um transparent zu machen, wer sich an den Waffenstillstand hält … die wurden aber
+inzwischen sabotiert).
+Er erklärte, dass nach Angaben des Verteidigungsministeriums in Moskau keine russischen Flugzeuge in der
+Nähe des UN-Konvois waren, als der Angriff stattgefunden hat und verlangte eine ‹gründliche und unabhängige
+Untersuchung› des Vorfalls, bevor aufrührerische Statements abgegeben werden. Der Angriff sei eine ‹Provoka tion› und ziele offensichtlich darauf ab, den Waffenstillstand zu sabotieren.
+
+#### DER EINSEITIGE ‹WAFFENSTILLSTAND›
+Lawrow sagte, man habe den Amerikanern 300 Fälle von Verstössen gegen das Abkommen (Angriffe auf Wohngebiete und die syrische Armee) mitgeteilt (darunter jene Gruppen, die auf der amerikanischen Liste standen, also
+angeblich das Abkommen respektieren wollten). Trotz aller Appelle an die USA, ihren Einfluss auf die ‹Opposi tion› geltend zu machen, um den Waffenstillstand zu ermöglichen, änderte sich nichts. 20 Gruppen (70% der
+Kämpfer) haben erklärt, sie würden sich nicht daran halten. Lavrov betont, man müsse aufhören, ‹jene zu beschützen, die nicht an einem Frieden interessiert sind› und diese Waffenpausen nur dazu nutzten, wieder neue
+Kräfte für den Terror-Krieg zu sammeln.
+
+#### Das Affentheater der US-‹Diplomatie›
+Während Lavrov sich wie ein erfahrener und seriöser Diplomat verhielt, war das Auftreten von John Kerry ein
+erbärmliches Schauspiel, das (wie schon vorher Samantha Power) die unerträgliche Arroganz der ‹einzigen Weltmacht› zur Schau stellte. Dank dem mysteriösen Anschlag auf einen SARC-Hilfskonvoi bei dem angeblich 20
+Menschen starben, konnte Aussenminister Kerry vor der UN wieder auf das (sehr) hohe, moralische Ross steigen,
+denn es wurde mit jedem Wort suggeriert, dass Russland oder ‹das syrische Regime› (mehr Zustimmung beim
+Volk als Merkel!) dahinterstecke. Beweise für diese schweren Anschuldigungen legte Kerry nicht vor, nicht einmal
+konkrete Anhaltspunkte, aber die braucht man ja auch nicht: Wenn die USA etwas behauptet, dann ist das so.
+End of story. Die deutsche Papageien-Journaille erledigt den Rest.
+Die Beweise für die USA-Verbrechen liegen vor!
+– Das russische Militär veröffentlichte ein Video, auf dem zu sehen ist, wie ein Fahrzeug der ‹Rebellen› sich
+mit einem Mörser am Konvoi vorbeibewegt. Es berichtete ebenfalls, dass sich eine amerikanische KampfDrohne vom Typ ‹Predator› in der Nähe des Konvois aufgehalten hatte.
+– Das Interview von Jürgen Tödenhöfer bestätigt, was jeder intelligente Beobachter vermutet hat: Nicht Russ land, nicht Assad, sind gegen die Hilfslieferungen, sondern die Terror-Banden (‹Rebellen›) selbst:
+Todenhöfer: Sie wollen nicht, dass die 40 LKW die Hilfslieferungen in den östlichen Teil von Aleppo bringen?
+Al Nusra Kommandeur: Wir haben Forderungen: Solange sich das Regime [die syrische Armee – völlig rechtmässig] entlang der Castello Road, in Al Malah und in den nördlichen Gebieten befindet, werden wir diese LKW
+nicht hereinlassen.
+Wer die USA nach ihren historischen (Schand-)Taten beurteilt und nicht nach ihren heuchlerischen Worten,
+erkennt sofort was hier gespielt wird.
+
+#### PROJEKTION DER SCHULD
+Dem bösen, bösen Assad wird unterstellt, dass er ‹Zivilisten bombardiert›, also regelmässig Kriegsverbrechen
+erster Ordnung begeht (Angriffe auf Schulen, Krankenhäuser, Belagerung und Aushungern der ‹Opposition›,
+sogar Einsatz von Giftgas, etc.) Wäre das der Fall, könnte sich dieser Mann aber schon lange nicht mehr halten,
+denn damit würde er die eigene Bevölkerung so gegen sich aufbringen, dass diese mit fliegenden Fahnen zu den
+‹Rebellen› überlaufen würden. Unabhängige Berichte aus Syrien bestätigen, dass Assad noch immer viel Zustimmung der Syrer erhält und die kolportierten Gräuelgeschichten nur billige Kriegspropaganda sind. Doch
+
+
+-----
+
+diese Berichte zeigen noch etwas anderes: Dass die ungeheuerlichen Verbrechen gegenüber der Zivilbevölkerung
+eben nicht von der syrischen Armee sondern von den ‹Rebellen› begangen werden, die von Washington und
+seinen degenerierten Verbündeten ja nach Syrien geschickt wurden, um den Staat und die Einheit des Landes
+zu zerstören.
+
+#### Die zynische Lüge von den westlichen Hilfskonvois
+In unglaublich zynischer Weise missbraucht die USA dabei das Mitgefühl des Publikums: Unter dem Deckmantel
+der ‹humanitären Hilfe› (die doch so dringend benötigt werde angesichts des grossen Leids der Zivilbevölkerung),
+drängte Kerry auf einen Waffenstillstand, der vor allem den Syrern zugutekommen soll, die in den von den Terror banden ‹kontrollierten Gebieten› eingeschlossen sind (z.B. im Osten der Grossstadt Aleppo). Doch tatsächlich
+geht es darum, den ‹gemässigten› Terrorbanden Zeit zu verschaffen, sich neu zu formieren, neu zu bewaffnen
+undgestärkt wieder weiterzumachen, da die syrische Armee in den letzten Monaten deutliche Erfolge verbuchte.
+(Auch das bestätigt sich im Interview mit Tödenhöfer).
+
+#### Die legale Hilfe Russlands hat die Lage verändert
+Die Luftangriffe des russischen Militärs (im Einvernehmen mit der Regierung Assad) seit September 2015 haben
+die Lage in Syrien dramatisch verändert, denn vorher konnte sich der ‹IS› trotz aller ‹Bemühungen› der
+Amerikaner immer weiter ausbreiten.
+
+#### SELEKTIVE HISTORISCHE AMNESIE
+Der theatralische Auftritt Kerrys ist bemerkenswert: Zunächst gibt er sich betroffen über das Leiden der betroffenen Bevölkerung, doch kurz darauf gehen die moralischen Belehrungen und Vorwürfe los: «Wir dürfen nicht
+Wortspiele dazu nutzen, uns vor der Verantwortung zu drücken oder Entscheidungen nicht zu treffen, die diese
+grosse Institution zur Verfügung hat, wenn es um Krieg und Frieden, Leben und Tod geht … Als ich meinem
+russischen Kollegen eben zuhörte, war das ein bisschen wie in einem Parallel-Universum.
+Wie können Leute mit einem Regime an einem Tisch sitzen, das Krankenhäuser bombardiert und wieder und
+wieder und wieder Chlor-Bomben einsetzt und das ungestraft?
+Du sollst also dort sitzen und ein nettes Gespräch in Genf führen, unter solchen Bedingungen, wenn Du einen
+Waffenstillstand unterzeichnet hast und Dich nicht daran hältst?* Welche Art von Glaubwürdigkeit hast Du
+dann?»
+(*ANMERKUNG: Hier passierte Kerry eine Art Freud’scher Versprecher: denn anfangs sagt er ‹You› und meint die USA,
+aber dann steht ‹You› plötzlich für Syrien? Das erste ‹You› hat wirklich den Waffenstillstand sabotiert …)
+Auf die kritische Anmerkung Lawrows, dass der Inhalt des Abkommens auf Wunsch der USA geheim sei,
+reagierte Kerry so: «Man braucht diese Dokumente nicht zu lesen, um zu begreifen, dass die Bombardierung
+von Krankenhäusern ein Verstoss gegen das Völkerrecht ist … (mit erhobenem Zeigefinger, dramatischer Vortrag) … um zu verstehen, dass man nicht Fassbomben auf Kinder abwirft … das sind schamlose Verletzungen
+des Völkerrechts!»
+(Russland hat nie ein Krankenhaus in Syrien bombardiert, aber die ‹Rebellen› haben mehrfach solche Einrichtungen angegriffen.)
+KOMMENTAR:
+– Dass das US-Militär in der jüngeren Vergangenheit mehrfach zivile Einrichtungen, (z.B. in Belgrad, im Irak und auch
+in Syrien durch ‹proxies›, also die ‹Rebellen›) darunter auch Krankenhäuser (z.B. in Afghanistan) angegriffen hat, dürfte
+Kerry ‹vergessen› haben. Doch dieser amerikanische ‹Bombenhagel› ist offenbar kein Kriegsverbrechen (von UranMunition ganz zu schweigen).
+– Dass die USA seit Jahrzehnten mit den übelsten Diktatoren, Faschisten und Folterern ‹an einem Tisch› gesessen ist, und
+viele von ihnen an die Macht gebracht hatte, wenn es ‹ihren Interessen› gedient hat, dürfte Kerry ebenfalls aus seinem
+Gedächtnis gestrichen haben. Wenn hier etwas ‹schamlos› ist, dann die Doppelmoral seiner Regierung.
+Kerry klagte weiter an: Es gäbe «Berichte von Luftschlägen auf eine medizinische Einrichtung bei Aleppo, bei
+denen vier Hilfskräfte getötet wurden.»
+Das kann doch nur Assad gewesen sein. Beweise für die angeblichen Schandtaten der syrischen Regierung legt
+Kerry nicht vor, es genügt, dass er es sagt. Ohne konkrete Angaben über Ort, Zeit, Koordinaten, Name der ‹Einrichtung›, die bombardiert wurde, behauptet Kerry, es gäbe nur zwei Länder, die für diese Luftangriffe in Frage
+kämen (Russland und Syrien). Dass es auch eine Drohne sein könnte, oder ein aus der Türkei gestartetes Flugzeug, darf nicht in Betracht gezogen werden.
+
+
+-----
+
+#### Und wieder: Falsche Behauptung – kein Beweis!
+Nicht nur, dass die USA sich ihren zahllosen Verbrechen im Rahmen der ‹Aussenpolitik› nie stellt und so tut,
+als wären sie nie passiert, sie präsentiert sich trotzdem in diesem Punkt auch noch als moralisches Vorbild, das
+ehrlich und offen zu seinen Gesprächspartnern ist:
+«Deshalb möchte ich diesen Prozess nicht vernebeln, ich bin heute nicht hierhergekommen um das zu tun. (…)».
+«Ja, die Koalition hat am Samstag Leute getroffen, ein schrecklicher Unfall und innerhalb weniger Minuten haben
+wir es zugegeben. Wir haben nicht Nebelkerzen geworfen, um das zu verschleiern. Wir sagten, ja, es war eine
+schreckliche Sache, es ist passiert. Das Pentagon hat sich entschuldigt und wir haben versucht, herauszufinden,
+wie das passiert ist. (!) Aber ich muss Ihnen sagen (erhobener Zeigefinger, dramatischer Effekt), Leute, die mit
+Waffen am Boden herumrennen – aus der Luft … ist eine völlig andere Sache als Lastwagen eines Konvois mit
+grossen UN-Markierungen auf allen Seiten!»
+Wieder die gleiche Methode: Ohne auch nur den geringsten Beweis vorzulegen, wird die Schuld für den BrandAnschlag automatisch Assad bzw. Russland in die Schuhe geschoben. Dass die USA selbst ein starkes Motiv haben
+könnte, das Genfer Abkommen platzen zu lassen, darf nicht einmal gedacht werden.
+
+#### Die Konterrevolution 1990
+Dass sie dafür heimtückische Methoden anwendet und die Sabotage diplomatischer Prozesse (die man natürlich
+dem Gegner in die Schuhe schiebt) jahrzehntelang praktiziert hat, zeigte die mutige, deutsche, investigative
+Journalistin Gaby Weber in ihrer Dokumentation ‹Ein Krater für den Frieden›.
+Dieser Film ist ein MUSS für alle Menschen, die wissen wollen, warum der Kalte Krieg über 40 Jahre dauerte
+und WER verhinderte, dass Deutschland schon 1960 wieder vereint wurde und damit der ganze Horror der DDR,
+der Mauer, der Stasi, etc. nie stattgefunden hätte. Der U2-Flug sollte ‹auffliegen›, dafür hat die CIA gesorgt, um
+die Konferenz in Paris zum Scheitern zu bringen und eine Entspannung zwischen Washington und Moskau zu
+verhindern. Das ist nur ein Beispiel von Dutzenden, die zeigen, welch ein infames, doppeltes Spiel die USA
+gespielt haben und immer noch spielen: Man tut so, als ob man an Friedensprozessen interessiert sei … aus
+Mördern werden überhebliche Moralapostel, die anderen das vorwerfen, was sie selbst ohne Skrupel tun …
+Kerry schwadroniert weiter: «Am Montag sind 20 ‹Helfer› getötet worden, in einem unerhörten, zweistündigen
+Luftangriff auf eine genehmigte humanitäre Mission in der Nähe von Aleppo. Dieser Angriff hat unseren
+Bemühungen, Frieden nach Syrien zu bringen, einen schweren Schlag versetzt und er lässt massive Zweifel aufkommen, ob Russland oder das Assad-Regime ihren Verpflichtungen aus dem Genfer Abkommen Folge leisten
+können oder wollen.»
+
+#### Der dreckige Krieg der USA und der Türkei
+Dass es in einem ‹dreckigen› Krieg, üblich ist, Hilfskonvois und ‹humanitäre Missionen› als Tarnung für Waffenschmuggel und anderweitige Unterstützung der Terroristen zu missbrauchen, ist eine Tatsache, die Kerry natürlich auch unterschlägt. Dazu passt die neueste Enthüllung aus der Türkei: (leider schlecht ins Deutsche übersetzt,
+hier korrigiert):
+– Der türkische Militär-Geheimdienst gewährt dem islamischen Emirat seit Jahren Unterstützung.
+– Die türkische Regierung liefert Kriegsmaterial an den ‹IS› und nützt dafür als Tarnung eine Hilfsorganisation.
+Dass die Terrorbanden im Norden Syriens über die Türkei Nachschub erhalten, ist auch schon längst bewiesen,
+wird aber ebenfalls totgeschwiegen. Hätte man diese Versorgungslinien abgeschnitten, wäre die Belagerung in
+Aleppo schon längst vorbei und die derzeitige Bombardierung des Ostteils wäre nicht notwendig gewesen. Erdogan unterstützt also den Terrorkrieg seit Jahren, führt politische Säuberungen durch, ermordet Kurden, lässt
+Kritiker ins Gefängnis werfen und ist alles andere, als ein ‹Demokrat›. Die Türkei unterstützt massiv den HeroinSchmuggel nach Europa, das organisierte Verbrechen wird vom Staat beschützt, der auch daran mitverdient.
+(Die Drogen werden z.T. sogar mit NATO-Flugzeugen nach Brüssel gebracht (!) erzählte Sibel Edmonds). Dafür
+bekommt er drei Milliarden Euro von der EU und die Visafreiheit ab 2017. Soviel zu ‹westlichen Werten›.
+
+#### Zurück zu Kerry bei der UNO:
+Dann verrät er ein äusserst pikantes Detail der Abmachung: Demnach müsste die syrische Luftwaffe ihren
+Handlungsspielraum drastisch einschränken. Es wäre ihr verboten über Gebiete zu fliegen «wo sich die legitime
+Opposition in von Al Nusra kontrollierten Gebieten aufhält» (!) Damit wird wieder einmal klar, dass die USA
+null Interesse daran haben, die Terrorbanden in Syrien effektiv zu bekämpfen. (Auch das wird im TödenhöferInterview bestätigt). Wieso auch, sie wurden ja extra zu diesem Zweck geschaffen: Um Amerikas schmutzige
+
+
+-----
+
+Kriege zu führen, ohne dass das amerikanische Militär dabei als Aggressor in Erscheinung tritt.
+
+#### Kerrys faule ‹Argumente›
+Zum Vorwurf von Lavrov, die USA sei ihrer Verpflichtung nicht nachgekommen, die ‹Guten› von den ‹Bösen›
+zu trennen, sagte Kerry es sei sehr schwer, Leute zu trennen, wenn sie willkürlich bombardiert würden. Doch
+dieses Argument ist Bullshit: Die ‹Gemässigten› (wenn es sie gäbe) müssten doch ein Rieseninteresse daran haben,
+von den Terrorbanden getrennt zu werden, weil sie dann eben nicht mehr Angst haben müssten, bombardiert
+zu werden. Das ganze absurde Theater kann nicht mehr verbergen, was alle noch denkfähigen Beobachter seit
+langem wissen:
+– DIE TERRORISTEN UND DIE USA SIND AUF DERSELBEN SEITE.
+– DER IS STEHT UNTER KONTROLLE DER CIA (in Kooperation mit anderen Geheimdiensten).
+– ALLE REBELLEN SIND EXTREMISTEN UND TERRORISIEREN DIE BEVÖLKERUNG.
+– DER ‹WAR ON TERROR› IST EIN AFFENTHEATER.
+Selbst die New York Times (das Propaganda-Organ Nr. 1) musste schon im April 2013 zugeben, dass die ‹Rebellen›
+von Al Kaida (Al Nusra in Syrien) nicht mehr zu trennen sind und das gilt auch für jene, die Ost-Aleppo besetzt
+haben und jetzt vom ‹Bombenhagel› der syrischen Armee bedroht sind.
+
+#### Was wollen die Terrorbanden in Syrien?
+«Nowhere in rebel-controlled Syria is there a secular fighting force to speak of.» Die ‹Rebellen› wollen also in
+Syria die Sharia einführen und kooperieren offen mit IS, Al Nusra – das haben auch diverse Kommandeure der
+‹FSA› bestätigt.
+
+#### THE CALI-FAKE
+Die USA und ihre ‹partners in crime› setzen also seit Jahren einen Haufen indoktrinierte, mit Drogen gefütterte
+Barbaren als politische und militärische Waffe ein, um ein Land zu zerstören, das sich weigert, nach Washingtons
+(neoliberaler) Pfeife zu tanzen und die Verbrechen Israels zu ignorieren. Was Aussenminister Kerry in seiner hochtrabenden Rede vor dem UNSC (mehrmals mit erhobenem Zeigefinger) u.a. von sich gab, erscheint angesichts
+der bittern, politischen Realität wie der blanke Hohn: «Wir wollen ein vereintes Syrien, sekular, mit Respekt vor
+den Rechten aller … in dem das syrische Volk seine Führung selbst auswählen kann … aber wir haben kläglich
+darin versagt, diese Ziele zu erreichen … und machen wir uns doch nichts vor, hier und ausserhalb dieses
+Raumes sind Leute anwesend (und wir wissen, wer sie sind), die Einfluss auf die Spieler in diesem Konflikt ausüben können, der die grösste humanitäre Katastrophe nach dem zweiten Weltkrieg ausgelöst hat …»
+Syrien war ein kulturell hochstehendes Land!
+Syrien war ja sekular, hat alle Religionen respektiert und religiöse Parteien (aus gutem Grund) nicht zugelassen.
+Es gab zwar keine demokratischen Verhältnisse, aber Syrien war eines der sichersten Länder im ganzen arabischen
+Raum. Es gab keine ‹Religionspolizei› wie in Saudi Arabien (wo es der Bevölkerung überhaupt nicht gestattet
+ist, sich irgendwie politisch zu betätigen), keine Diskriminierung von Frauen, freien Zugang zu Universitäten,
+ein Gesundheits- und Bildungswesen mit hohem Niveau, usw.
+
+#### Wann kommt endlich der Tag der Wahrheit???
+Kerry betonte auch ‹Jeder habe ein Recht auf eine eigene Meinung, aber nicht auf eigene Fakten› und das gelte
+auch für Syrien. In einem dramatischen ‹Finale› sprach er von ‹einem Moment der Wahrheit für Präsident Putin
+und Russland … auch für die internationale Gemeinschaft›. Doch wann kommt endlich der Moment der Wahrheit für die USA??? Wenn es nach unserer Fliessband-Journaille geht, niemals … Aber: Ein dreifaches HOCH
+auf die Redaktion des KÖLNER STADTANZEIGERS, der es gewagt hat, sich dem Strom aus permanenten
+Propaganda-Lügen entgegenzustellen (und vielen Dank an Jürgen Tödenhöfer, der sein Leben riskiert für den
+investigativen Journalismus, ohne den es keine Demokratie geben kann …)
+_Quellen: Rusvesna und Kommunisten online_
+_Quelle:_ _http://noch.info/2016/10/skandal-in-der-us-armee-amerikanische-soldaten-weigern-sich-an-der-seite-der-terrori-_
+_sten-in-syrien-zu-kaempfen/_
+
+
+-----
+
+### Lawrow im Interview zu Syrien und Rolle der USA im Konflikt: «Ich traue ihnen nicht»
+_30.09.2016 • 06:15 Uhr_
+
+Quelle: Sputnik
+Russlands Aussenminister Sergej Lawrow zeigt sich in Anbetracht des undurchsichtigen Spiels zahlreicher Akteure im
+Syrienkonflikt «immer wieder aufs Neue davon überzeugt, dass wir uns nur auf unsere Streitkräfte verlassen können».
+
+Der Aussenminister der Russischen Föderation, Sergej Lawrow, hat dem Fernsehsender NTW ein ausführliches
+Interview gegeben und dabei einige jüngst kolportierte westliche Darstellungen zum Syrienkonflikt geradegerückt.
+Russlands Aussenminister Sergej Lawrow hat dem russischen Fernsehsender NTW ein ausführliches Interview
+gegeben, in dem er sich zur erneuten Eskalation im Syrien-Konflikt, den jüngsten Sitzungen des UN-Sicherheitsrats, über widersprüchliches Verhalten und Aussagen der USA sowie über Medienmanipulationen äussert.
+Wir fassen die wichtigsten Aussagen Lawrows im Wortlaut für unsere Leser zusammen.
+
+**Frage: In einer ausserordentlichen Sitzung des UN-Sicherheitsrats, die auf Initiative der USA und mehrerer**
+**europäischer Länder einberufen wurde, warf die US-Botschafterin in der UNO, Samantha Power, Russland**
+**‹barbarische Handlungen› in Syrien vor. Versucht man erneut, uns ungerechtfertigter Weise für alles Mögliche**
+**verantwortlich zu machen?**
+Uns wurde zwar nicht buchstäblich ‹Barbarentum› vorgeworfen, wie dies Samantha Power gemacht hatte und
+wie es vom britischen Botschafter in der UNO, Matthew Rycroft, unterstützt wurde, allerdings gab es sehr harte
+Vorwürfe. Der syrischen Regierung und uns wurden alle nur erdenklichen Todsünden vorgeworfen. Die Antworten zu allen diesen Vorwürfen haben wir schon lange abgegeben. Deswegen kann man nur ahnen, weshalb
+sie es für notwendig hielten, am Sonntag eine ausserordentliche Sitzung einzuberufen. Es ist allerdings nicht
+schwer, dies zu verstehen. Der Westen mit den USA an der Spitze, die jene Koalition leiten, die in Syrien gegen
+den IS und, wie sie sagen, auch gegen die al-Nusra Front vorgeht, erfüllt seine Verpflichtungen nicht. Das ist
+offensichtlich. Sie versuchen jetzt einfach, die Aufmerksamkeit davon abzulenken, was am 17. September in Deir
+ez-Zor geschah, als US-Kampfflugzeuge die Stellungen der syrischen Armee bombardierten und zugleich erklärten, dass dies ein Fehler war.
+
+#### Zu US-Luftangriffen auf Syrische Armee in Deir ez-Zor:
+Erstens gab es eine Stunde lang Bombenangriffe und zweitens sagte der Sprecher des United States Central Command, John Thomas, vor wenigen Tagen, dass sie es auf diese Stellung seit zwei Tagen abgesehen hatten. In Deir
+ez-Zor sieht die Situation so aus, dass die Frontlinie dort vor etwa zwei Jahren entstand und sich seitdem nicht
+bewegt hat (also der westlichen Koalition bekannt war). Wir und die UNO warfen dort von Flugzeugen Lebensmittel und andere Bedarfsgüter für belagerte Einwohner der Stadt ab, die von der syrischen Armee geschützt
+wird. Wenn man also zwei Tage lang auf eine feste Frontlinie zielt und sich dabei, wie John Thomas erklärte,
+auf Aufklärungsdaten stützt, dann frag ich mich, was dort für Richtschützen sind.
+
+#### Gibt es Fakten, die den US-Vorwurf erhärten, dass Russland in Syrien angeblich ‹barbarisch› vorgehe?
+Sie erklären, dass friedliche Einwohner ums Leben kommen. Sie zeigen Videoaufnahmen von zerstörten Häusern,
+fliehenden Zivilisten, berufen sich darauf, dass es Videoaufnahmen von Augenzeugen sind. Die zweite Quelle,
+die bei ihnen als tadellose Quelle gilt, ist eine Ein-Zimmer-Wohnung in London, in der ein Staatsbürger Gross britanniens syrischer Herkunft wohnt und als Einzelperson die ‹Syrische Beobachtungsstelle für Menschenrechte› leitet. Ich wiederhole, er befindet sich in London, wird aber am meisten zitiert. Es ist fast lustig, zu hören,
+
+
+-----
+
+wie diese Personen von Barbarei und Kriegsverbrechen sprechen. Unsere britischen Kollegen hatten eine Kommission gebildet, die die Ereignisse im Irak im Jahr 2003 aufarbeiten sollte. Diese Kommission stellte fest, dass
+dieser Krieg nichts als eine Farce gewesen ist und dass es keinen legalen Grund für eine bewaffnete Invasion im
+Irak und für die Bombenangriffe gegeben hatte. Es sind 13 Jahre vergangen, und nun denken sie wohl, dass sie
+endlich ehrlich nach der Wahrheit suchen können. Die Ereignisse in Libyen wurden vorerst nicht ermittelt, aber
+irgendwann kommt es meines Erachtens auch noch dazu – in jenen Ländern, die am Ursprung dieser Ange legenheit standen. Und das waren vor allem die Briten, Franzosen und einige Länder aus der Region. Auch die
+Amerikaner machen immer noch kaum Fortschritte bei der Ermittlung ihrer ständigen Fehler. Ich habe bereits
+den Fehler in Deir ez-Zor erwähnt, und gestern machten sie wieder einen Fehler in Afghanistan, wo sie statt der
+Taliban-Kämpfer ihre Verbündeten zerbombten – die afghanische Armee. Aber man versucht, so etwas geheim
+zu halten. Besonders laut werden Vorwürfe gegen uns zufällig immer dann, wenn jemand irgendwo in Afghanistan
+oder im Jemen wieder eine Hochzeit oder eine Schule oder ein Krankenhaus beschossen hat. Da muss dann sofort irgendein Zwischenfall her, den man Russland in die Schuhe schieben kann. Ich denke nicht, dass unsere
+westlichen Partner so primitiv sind, aber wenn es brennt, wenn sie keine Argumente in Bezug auf die derzeit
+wichtigste Frage in Syrien haben – nämlich die Terroristen von den Oppositionellen zu trennen und gnadenlos
+gegen sie zu kämpfen –, dann tun sie so etwas.
+
+#### Zum Angriff auf UN-Hilfskonvoi in Aleppo und zu damit zusammenhängenden Medienmanipulationen:
+Unsere erste Reaktion war es, eine unverzügliche Untersuchung dieser Tragödie zu fordern. Die Amerikaner
+sagten aber, dass sie bereits alles wissen und es keiner Untersuchung bedarf. Sie zeigen die zerstörten LKW und
+behaupten, dass russische beziehungsweise syrische Kampfjets den Konvoi beschossen hätten. Allerdings fliegt
+die syrische Luftwaffe nicht in der Dunkelheit und es war zum Angriffszeitpunkt dunkel. Doch wenn tatsächlich
+Flugzeuge den Angriff starteten, wo sind dann die Einschlagstellen? Die bekannte Webseite ‹Bellingcat› veröffentlichte Informationen darüber, dass dort angeblich die Spuren einer Flugzeugbombe russischer Produktion entdeckt wurden. Doch eine halbe Stunde zuvor erschienen auf einer anderen Webseite, nämlich auf der des USamerikanischen politologischen ‹Struktur Conflicts Forum›, gänzlich andere Informationen. Bereits in den
+ersten Sekunden der Videoaufnahmen des TV-Senders ABC waren Spuren jenes Aluminium-Staubs zu sehen,
+die für Geschosse typisch sind, mit denen Predator-Drohnen der US-Luftwaffe ausgerüstet werden. Die Amerikaner dementierten auch Informationen nicht, wonach sich eine solche Drohne zu diesem Zeitpunkt über jenem
+Gebiet in Aleppo befunden hatte, in dem der Konvoi angegriffen wurde. Danach wurde dieser – einige Sekunden
+dauernde – Abschnitt, in dem der Aluminium-Staub zu sehen war, weggeschnitten. Die Aufnahmen, die die TVSender später zeigten, darunter BBC, enthielten diesen Ausschnitt nicht mehr. Doch ich will niemandem etwas
+vorwerfen. Wir haben es nur mehrfach erlebt, wie führende westliche TV-Sender, wie CNN und BBC, Fakten
+manipulieren. Erinnern Sie sich noch daran, wie sie Aufnahmen von vor einigen Jahren aus dem Irak als heutige
+Aufnahmen aus Syrien verkauften? Wir werden hierzu eine ausführliche Untersuchung fordern. Das haben wir
+bereits offen gesagt. Für die Attacke auf den Konvoi sind diejenigen zuständig, die für das Gebiet die Verantwortung tragen, in dem er angegriffen wurde. Ich bin überzeugt, dass es für Profis kein Problem ist, die explodierten Munitionsstücke zu analysieren und festzustellen, was es war: Ein Artillerieangriff, ein Hubschrauberoder Raketenschlag, oder ob dieser Schlag von Flugzeugen ausgeführt wurde. Es gab Berichte darüber, dass es
+ausgerechnet im östlichen Teil Aleppos Instrukteure gab, darunter solche aus einigen Ländern der Region. Zudem gab es Berichte darüber, dass sich dort Spezialeinheiten aus den USA und Grossbritannien aufhalten. Wenn
+das so ist, dann stellt sich die Frage, wen sie dort trainierten? Denn in Aleppo und nicht nur dort hat ganz klar
+die al-Nusra-Front die Führungsrolle im Kampf gegen die syrische Armee inne.
+
+#### ‹Oppositionskämpfer› drohten mit Beschuss von UN-Hilfskonvoi:
+Es gibt so viele Dinge, die geklärt werden müssen. Als dieser Konvoi anfänglich aus der Türkei nach Aleppo geschickt wurde, wurde er aus irgendwelchen Gründen nicht von UN-Mitarbeitern begleitet, obwohl das standardmässig vorgesehen ist. Zudem gab es Warnungen seitens der ‹Oppositionskämpfer› aus dem östlichen Aleppo,
+sie hätten Angst, dass die syrische Armee diesen Konvoi zerbomben würde. Dieselben Oppositionskämpfer, die
+vor einem Monat, am 26. August, zum ersten Mal versucht hatten, einen humanitären Konvoi nach Aleppo zu
+schicken, und jetzt ihre Befürchtungen zum Ausdruck brachten, der Konvoi könnte zerbombt werden, hatten
+selbst gedroht, ihn zu bombardieren, denn sie wollten, dass er über eine andere Route kommt. Damals zeigten
+die UN-Vertreter sich kleinmütig und versuchten, sie zu überzeugen, aber vergebens.
+
+
+-----
+
+#### Zur Kooperation zwischen Russland und den USA in Syrien:
+US-Aussenminister John Kerry hat mir jedes Mal zugesichert, dass die al-Nusra Front eine ebenso grosse Terrorgefahr wie der IS sei, doch sie wird nicht angetastet. Die US-Antiterrorkoalition greift ausschliesslich den IS an,
+die al-Nusra-Front nicht. Das ist ein ewiger Kreis. Ich vertraue ihnen nicht zu 100 Prozent. Jedes Mal, wenn wir
+und die syrische Luftwaffe die Stellungen der al-Nusra-Front angreifen, die übrigens die wichtigste Stadt im
+syrischen Drama, Aleppo, kontrolliert, erklären sie wieder und wieder, dass wir die gemässigte Opposition angreifen und diese damit in die Arme der al-Nusra-Front treiben würden. Dabei hat US-Aussenminister John
+Kerry, wie ich es schon mehrfach erwähnt habe, öffentlich erklärt, dass die USA die führende Rolle übernehmen
+würden, um die gemässigte Opposition von den Terroristen, darunter auch die al-Nusra-Front, zu trennen. Ich
+erinnere mich daran, wie er öffentlich bei den Sitzungen der Internationalen Gruppe zur Unterstützung Syriens
+und des UN-Sicherheitsrats Ende des vergangenen Jahres und zu Beginn dieses Jahres sagte, dass jene, welche
+keine Terroristen sind und ein Teil des politischen Prozesses in Syrien sein wollen, die Gebiete, die die al-NusraFront kontrolliert, verlassen sollen. Doch seitdem ist nichts geschehen. Interessant ist, dass sie nun die Vorbedingung einer landesweiten Waffenruhe stellen, bevor der politische Prozess begonnen hat. Wir hatten solche
+Waffenruhen bereits, die aber sofort ausgenutzt wurden, um die al-Nusra-Front aus dem Ausland mit Kämpfern,
+Geld und Waffen zu verstärken.
+
+#### USA halten sich nicht an gemeinsame Abmachung:
+Alle wissen, dass die wichtigste Vereinbarung zwischen Russland und den USA die Bildung eines gemeinsamen
+Exekutivzentrums ist, in dem beide Seiten nicht nur Informationen zwecks Vermeidung gefährlicher Zwischen fälle in der Luft austauschen, sondern auch die Handlungen der Militärs zwecks Bekämpfung der Terroristen
+koordinieren würden. Das wurde vereinbart, wie auch, dass dieses Zentrum (ab dem 12. September) eingerichtet
+werden sollte. Im Laufe von sieben Tagen, in denen die Waffenruhe sich etablieren würde, sollte der Informationsaustausch beginnen, damit der Kampf gegen die Terroristen in Übereinstimmung mit einem koordinierten
+Fahrplan fortgeführt werden kann. (Journalist: Eine Woche ist schon vorbei.) Schon mehr als eine Woche. Zu nächst sagten unsere Partner, die Waffenruhe würde ständig verletzt. Und dann erklärte der Vorsitzende der
+Joint Chiefs of Staff, Joseph Dunford, im US-Kongress, der Informationsaustausch mit den Russen sei ‹keine gute
+Idee›. Das konnte nur bedeuten, dass man mit uns keine Informationen austauschen wird. Und das alles nach
+den Vereinbarungen, die auf Initiative der Präsidenten Wladimir Putin und Barack Obama getroffen worden
+waren und in denen verankert ist, dass die Amerikaner mit uns Aufklärungsinformationen austauschen würden.
+Diese Vereinbarungen werden wirklich stark ausgebremst. Ich denke, man sucht einfach nach Vorwänden, um
+mit uns nicht zusammenarbeiten zu müssen und sich darauf berufen zu können, dass die humanitäre Situation
+dies unmöglich mache. Aber warum spannt sich denn die humanitäre Situation an? «Russland ist schuld, und
+etwas ermitteln, das will man nicht.» Es ist schwer, mit solchen Partnern zusammenzuarbeiten, aber andere
+Partner haben wir in Syrien nicht. Und ich werde immer wieder aufs Neue davon überzeugt, dass wir uns nur
+auf unsere Streitkräfte verlassen können.
+_Quelle: https://deutsch.rt.com/international/41333-lawrow-im-interview-zu-syrien/_
+
+### EU – Ehrlichkeit Unerwünscht! Wenn es den eigenen Zwecken dient, wird gelogen!
+_16/09/2016; 15/09/2016 NPR_
+**Die Europäische Union ist schon längst dabei, militärische Strukturen aufzubauen und im Ausland bereits**
+**sehr aktiv. Ob Wahlkampf oder Brexit, wenn es um die Interessen der EU und das Vorantreiben der ‹Vereinig-**
+**ten Staaten von Europa› und/oder eine gemeinsame EU-ARMEE geht, wird dementiert und gelogen, dass sich**
+**die Balken biegen.**
+
+**Ein gutes Beispiel für diese Lügen zeigt nachfolgender Bericht!**
+
+Kurz vor dem Brexit berichtet die britische Zeitung ‹The Times›, die EU arbeite an ersten Schritten zu einer EUArmee und der Plan beinhalte ‹Schritte in Richtung der Schaffung einer europäischen Armee› und solle bis nach
+dem EU-Referendum Ende Juni geheim gehalten werden.
+
+
+-----
+
+Die EU-Kommission dementierte das umgehend: «Es gibt absolut keinen Plan mit der globalen Strategie, eine
+**EU-Armee aufzustellen», erklärte eine Kommissionssprecherin dagegen. «Es gibt kein geheimes Papier.» Die**
+**EU-Aussenbeauftragte Federica Mogherini sei vor einem Jahr beauftragt worden, in Zusammenarbeit mit den**
+**Mitgliedstaaten ‹eine globale EU-Strategie zur Aussen- und Sicherheitspolitik› zu erstellen. Sie werde diese wie**
+**vorgesehen Ende Juni vorlegen.**
+Die Brexit-Befürworter sagten, dies sei eine Lüge. Im ‹Times›-Bericht hiess es, die neue Globalstrategie Mogherinis
+**sehe ‹die Entwicklung neuer europäischer militärischer und operationeller Strukturen einschliesslich eines**
+**Hauptquartiers› vor. Dies werde ‹von Deutschland und anderen Ländern als erster Schritt zu einer EU-Armee**
+**unterstützt›. Das war Ende Mai 2016.**
+Aktuell wird in der Presse berichtet: Brüssel träumt von EU-Armee
+**EU-Kommission plant einen Vorstoss für eine engere militärische Zusammenarbeit auf freiwilliger Basis. Un-**
+**terstützung kommt aus Osteuropa sowie von Frankreich, Italien und Deutschland.**
+Jahrelang war die Weiterentwicklung der Gemeinsamen europäischen Sicherheits- und Verteidigungspolitik
+(GSVP) blockiert. Vor allem Grossbritannien hat die Ambitionen gebremst.
+Doch die aktuelle Terrorgefahr und die zunehmend prekäre Sicherheitslage in der Nachbarschaft der EU bringen
+wieder Bewegung in die Pläne für eine engere militärische Kooperation der Mitgliedstaaten. Kommissionspräsident Jean-Claude Juncker wird, wie die ‹Financial Times› berichtet, kommende Woche bei seiner Rede zur Lage
+der Union Vorschläge für eine engere Zusammenarbeit vorlegen, an deren Ende eine gemeinsame EU-Armee
+stehen könnte.
+**Konkret sollen sich die Mitgliedstaaten am Aufbau gemeinsamer Kampftruppen beteiligen. Ein gemeinsames**
+**Hauptquartier soll künftige Einsätze koordinieren. Ausserdem sollen die teilnehmenden Länder ihre Waffen**
+und ihre Ausrüstung noch stärker aufeinander abstimmen. Kein Land soll zur Teilnahme an dieser Zusammenarbeit gezwungen werden, doch dürfte nach Plänen der EU-Kommission ein gemeinsames militärisches Vorgehen
+dann auch von keiner dieser abseits stehenden Staaten durch ein Veto behindert werden. Geplant ist, die bereits
+vorbereiteten ‹Battle Groups› einzubeziehen. Sie umfassen jeweils 1500 Soldaten und sollen nach den einstigen
+Plänen innerhalb von zehn Tagen einsatzbereit sein.
+Forderungen nach dem Aufbau einer EU-Armee sind zuletzt von den Visegrád-Ländern erhoben worden. Sie
+wünschen sich mehr Schutz vor einer militärischen Eskalation in ihrer östlichen Nachbarschaft. Auch Deutschlands Bundeskanzlerin, Angela Merkel, Frankreichs Staatspräsident, François Hollande, und Italiens Ministerpräsident, Matteo Renzi, wollen beim kommenden EU-Gipfel in Bratislava einen Vorstoss für eine engere
+militärische Zusammenarbeit einbringen. Sie haben vor allem die Risiken durch Terrorismus und durch Krisenherde wie in Syrien und Nordafrika im Fokus. «Ich denke, es ist an der Zeit, sich in Europa nach vorn auf eine
+europäische Verteidigungsunion hinzubewegen», sagte die deutsche Verteidigungsministerin, Ursula von der
+Leyen, am Donnerstag bei einem Besuch in Litauen.
+Dazu passt ein Auszug aus ‹PROJEKT EUROPA 2030› Herausforderungen und Chancen (Mai 2010)
+_http://www.consilium.europa.eu/de/workarea/downloadAsset.aspx?id=1081_
+
+**«… Ganz allgemein leidet die EU unter einer durchgängigen strukturellen Einschränkung: Dem grundlegend**
+**nationalen Charakter der europäischen Verteidigungssysteme. Da sie nicht über eigene militärische Mittel ver-**
+**fügt, ist die EU von den freiwilligen Beiträgen ihrer Mitgliedstaaten abhängig und diese erweisen sich häufig**
+**als unzureichend.**
+**Die nationalen militärischen Ressourcen sind häufig noch immer auf territoriale Landesverteidigung gegen**
+**eine Bodeninvasion ausgerichtet, und zwar selbst in Mitgliedstaaten, in denen eine solche Invasion unwahr-**
+**scheinlich ist. Generell wird zu wenig in die Art von Fähigkeiten investiert, die für die Reaktion auf neue Sicher-**
+**heitslagen benötigt werden (schnell verlegbare Truppen, strategischer Lufttransport, Hubschrauber, Fernmelde -**
+**einrichtungen, Militärpolizei).**
+
+
+-----
+
+**In der Europäischen Union stehen 1,8 Millionen Soldaten unter Waffen – eine halbe Million mehr als in den**
+**USA – und dennoch ist die EU nicht in der Lage, eine 60000 Mann starke schnelle Eingreiftruppe zu entsenden,**
+**und sie hat sogar Probleme, 5000 Mann für eine Mission im Rahmen der Gemeinsamen Sicherheits- und**
+**Verteidigungspolitik (GSVP) bereitzustellen. Tatsächlich sind 70% der europäischen Landstreitkräfte für**
+**Auslandseinsätze nicht geeignet; die heutigen Konflikte erfordern aber rasch verlegbare und dauerhafte**
+**Expeditionskräfte …»**
+_European Security and Defence College (ESDC) Netzwerk_
+_http://www.eurogendfor.org/_
+_http://diepresse.com/home/politik/aussenpolitik/4997260/Verwirrung-um-angeblichen-_
+_http://www.auswaertiges-amt.de/DE/Europa/Aussenpolitik/GSVP/GSVP-Start_node.htmlGeheimplan-fur-EUArmee?_
+_http://diepresse.com/home/politik/eu/5082364/Brussel-traeumt-von-EUArmee_
+_Hier gibt es weitere Zitate von Juncker, die zeigen wessen ‹Geistes› Kind er ist und wie die EU tickt:_
+_http://diepresse.com/home/wirtschaft/eurokrise/1335097/Junckers-beste-Zitate_Wenn-es-ernst-wird-muss-man-lugen?gal=_
+_1335097&index=2&direct=&_vl_backlink=&popup=_
+_Quelle: http://npr.news.eulu.info/2016/09/16/eu-ehrlichkeit-unerwuenscht-wenn-es-den-eigenen-zwecken-dient-wird-gelogen/_
+
+### Sozialistischer EU-Spitzenpolitiker: Monokulturelle Staaten ‹ausradieren›
+_Birgit Stöger, 6.5.2016_
+
+In absolutistischer Manier verkündet der Vizepräsident der EU-Kommission und EU-Kommissar für ‹Bessere
+Rechtssetzung, interinstitutionelle Beziehungen, Rechtsstaatlichkeit und Grundrechtecharta›, der niederländische
+Sozialdemokrat Frans Timmermanns, das Ende der Nationalstaatlichkeit nicht nur Europas, sondern mittel fristig der ganzen Welt.
+Den Auftrag dazu erhielt er nicht von den europäischen Völkern, die dazu weder befragt noch um ihre Zustimmung ersucht wurden. Den Auftrag erhielt er von den Beschlussgremien der sozialistischen Verbände Europas,
+die die Abschaffung der Nationalstaatlichkeit bereits vor langem beschlossen hatten. Diese Politik wird über die
+Köpfe der 500 Millionen EU-Bürger durchgesetzt. Womit klar ist, dass die EU der Nachfolger der UDSSR
+geworden ist.
+
+#### Hinter Merkels wahnsinniger Politik steckt Brüssel
+Und wieder ein klarer Beweis, dass es vor allem die europäischen Sozialdemokraten sind, die hinter der vernichtenden EU-Politik der grenzenlosen Massen-Invasion zumeist moslemischer Einwanderer stecken.
+Einer der einflussreichsten und emsigsten Propagandisten auf dem Feld der nationalen Einebnung ist der hochdotierte EU-Politiker und ehemalige niederländische Aussenminister Frans Timmermans.
+Der Sozialdemokrat, seit Ende 2014 Erster Vizepräsident der EU-Kommission und EU-Kommissar für ‹Bessere
+Rechtssetzung, interinstitutionelle Beziehungen, Rechtsstaatlichkeit und Grundrechtecharta›, beschäftigt sich
+in unterschiedlichen Ausschüssen und Kolloquien mit dem weiten Feld des Rassismus und der Fremdenfeindlichkeit, sowie explizit mit den Möglichkeiten zur Verhütung und Bekämpfung von antisemitisch und antimuslimisch motiviertem Hass in Europa.
+
+#### Über den Hebel von Antidiskriminierungsgesetzen gewinnen auf EU-Ebene getroffene Massnahmen seit Jahren immensen Einfluss auf nationale Gesetzgebungen oder haben diese bereits ersetzt
+In klaren und unmissverständlichen Worten forderte der hochdotierte sozialdemokratische EU-Politiker vor
+einigen Wochen in seiner Rede zum ‹Grundrechte-Kolloquium der EU› (EU Fundamental Rights Colloqium)
+die Mitglieder des EU-Parlaments auf, ihre Anstrengungen zu verstärken, monokulturelle Staaten auszuradieren
+und den Prozess der Umsetzung der multikulturellen Diversität bei jeder einzelnen Nation weltweit zu beschleunigen.
+Was wieder einmal bestätigt, dass die Primärinfektion der westlichen Welt nicht der Islam, sondern der Sozialismus ist. Ist diese mörderische Ideologie besiegt (130 Millionen Opfer in 90 Jahren), fällt auch der Islam.
+
+#### Monokulturelle Staaten ausradieren
+Die Vision einer Welt ohne Nationen, die Idee eines nationenlosen Europas – diese Vorstellung wurde lange im
+Bereich der Verschwörungstheorien angesiedelt. Die letzten Jahre indes zeigen immer deutlicher auf, dass
+
+
+-----
+
+sowohl nationale Regierungen als auch die Europäische Union auf die Abschaffung von Nationalstaaten hin arbeiten.
+Es scheint eines der priorisierten Ziele der mehrheitlich linkspolitisch gerichteten Verantwortlichen zu sein, die
+nationale Souveränität ihrer Länder zu schwächen und den Nationalstaat zu untergraben.
+Die Zerschlagung von bislang verbindenden gesellschaftlichen Elementen durch Masseneinwanderung kulturfremder Menschen ist nur eine Methode, deren sich politische Eliten, auf nationaler Ebene, insbesondere jedoch
+EU-Funktionäre, bedienen.
+
+#### Den Prozess der multikulturellen Diversität vorantreiben
+Über den Hebel von Antidiskriminierungsgesetzen gewinnen auf EU-Ebene getroffene Massnahmen seit Jahren
+immensen Einfluss auf nationale Gesetzgebungen oder haben diese bereits ersetzt.
+
+#### Wer sich der kulturellen Vielfalt entgegenstellt, stellt den Frieden infrage
+Die Zukunft der Menschheit, so Timmermans in seiner Rede, beruhe nicht länger auf einzelnen Nationen und
+Kulturen, sondern auf einem Vermischen von Kulturen und Identitäten. Das sei die Herausforderung und die
+Zukunft der Menschheit.
+Die heutigen Konservativen, die ihre eigenen Traditionen hochhalten und eine friedliche Zukunft für ihre eigenen
+Gemeinschaften wollen, würden sich laut Timmermans immer wieder auf eine Vergangenheit berufen, die so
+nie existiert habe.
+Aus diesem Grund könnten diese nicht die Zukunft diktieren. Europäische Kultur und europäisches Erbe seien
+lediglich soziale Konstrukte. Wer dies bestreite, demonstriere Engstirnigkeit. Europa sei immer schon ein
+Kontinent von Migranten gewesen und europäische Werte bedeuteten, dass man multikulturelle Diversität zu
+akzeptieren habe. Wer sich dieser Diversität, dieser kulturellen Vielfalt entgegenstelle, stelle den Frieden in
+Europa infrage.
+_Quelle: http://info.kopp-verlag.de/hintergruende/europa/birgit-stoeger/monokulturelle-staaten-ausradieren.html_
+_Quelle: https://michael-mannheimer.net/2016/10/11/sozialistischer-eu-spitzenpolitiker-monokulturelle-staaten-ausradieren/_
+
+### Wikileaks-Enthüllung räumt letzte Zweifel aus: Obamas Wahlkampf war vorsätzliche Täuschung der US-Öffentlichkeit
+_Ernst Wolff, 16. Oktober 2016_
+Das Politik-Magazin ‹New Republic› hat am 14. Oktober eine von WikiLeaks enthüllte Email veröffentlicht,
+deren Inhalt auch den letzten Zweifel daran beseitigt, um was für eine Farce es sich bei amerikanischen Wahlen
+handelt und wer das Land in Wahrheit regiert.
+Die Email wurde am 6. Oktober 2008 – also ca. einen Monat vor der Wahl am 4. November 2008 – von Michael
+Froman verfasst. Froman, zurzeit US-Handelsbeauftragter und Verhandlungsführer der USA bei der Vorbereitung
+des Transatlantischen Handelsabkommens TTIP, arbeitete damals in leitender Funktion für Citigroup, eines der
+grössten und einflussreichsten Bankenkonsortien an der Wall Street.
+Die Email war an John Podesta gerichtet, von 1998 bis 2001 unter Bill Clinton Stabschef des Weissen Hauses und
+im Oktober 2008 als Leiter des ‹Transition Teams› (‹Übergangsteams›) zuständig für die Vorbereitung von Barack
+Obamas Amtsübernahme im Januar 2009 und die damit zusammenhängende Personalauswahl.
+Unter dem Betreff ‹Listen› enthält Fromans Email folgenden Wortlaut:
+«John – anbei drei Dokumente – eine Liste afro-amerikanischer, hispanischer und asiatisch-amerikanischer
+Kandidaten, aufgeführt nach Kabinetts- oder Stellvertreterrang oder auf Staatssekretärsebene, plus einer Liste
+von indianischen, arabisch/muslimischen Kandidaten und solchen mit Behinderungen. Für die meisten Gruppen
+haben wir noch wesentlich ausführlichere Listen, und sie werden noch länger werden, wenn wir weiter und öffentlicher suchen, aber das sind bis jetzt die Namen, die immer wieder von verschiedenen Quellen für Führungspositionen vorgeschlagen werden. (Ich habe versucht, Namen aus Baracks Wahlkampfteam und seinem SenatsPolitikstab mit einzufügen, ausserdem angemessenerweise auch solche aus dem Übergangsprojekt.)
+Zwar hast du nicht danach gefragt, aber ich habe auch eine entsprechende Liste über Frauen vorbereitet und
+angehängt.
+Auf die Gefahr hin, anmassend zu klingen, hab ich mich auch mal etwas gründlicher damit befasst, wie die Ernennungen auf Kabinettsebene aussehen könnten und wie die Chancen für diesen oder jenen Kandidaten auf
+
+
+-----
+
+die verschiedenen Posten stehen (mit einem Blick auf die kurze Liste)… (Offensichtlich sind verschiedene Kombinationen denkbar. Dies soll nur ein Beispiel sein, um zu zeigen, wie sich die Sache entwickeln könnte.)
+Lass mich wissen, wann wir darüber diskutieren können. Ich bin heute früh bis um 11:30 Uhr erreichbar. Mike»
+Die Dreistigkeit und der Zynismus, die sich hier offenbaren, dürfte selbst hartgesottene Politikkenner überraschen:
+Während Barack Obama noch vier Wochen damit beschäftigt sein wird, dem amerikanischen Wahlvolk vorzugaukeln, dass er als erster afro-amerikanischer Präsident einen Politikwechsel herbeiführen und als Main-StreetPräsident (Volkspräsident) ein für die unteren Bevölkerungsschichten neues Zeitalter einläuten wird, schickt
+ein hoher Vertreter der Wall Street seinem Personalchef eine Liste mit Namensvorschlägen für dessen Kabinett
+und achtet dabei darauf, dass diese Liste – entsprechend Obamas Strategie – mit Angehörigen von ethnischen
+Minderheiten und Behinderten gespickt wird.
+Und das mit vollem Erfolg: Anfang 2009 ernennt Obama diverse der ihm vorgeschlagenen Kandidaten: Timothy
+Geithner wird Finanzminister, Eric Holder Justizminister, Janet Napolitano Heimatschutzministerin, Robert
+Gates Verteidigungsminister, Arne Duncan Erziehungsminister, Arne Duncan wird Minister für Bildung, Erziehung und Wissenschaft, Eric Shinseki wird Kriegsveteranenminister, Kathleen Sebelius ersetzt Robert Daschle
+als Gesundheitsministerin und der vorgeschlagene Rahm Emanuel wird Stabschef im Weissen Haus.
+Fast das gesamte Kabinett von Barack Obama wurde auf diese Weise im Januar 2009 nach den expliziten Wünschen
+der Wall Street zusammengestellt. Und das nach einem Wahlkampf, der im Zeichen des ‹kleinen Mannes›, der
+Abkehr vom Grossen Geld und des Einsatzes für ethnische Minderheiten gestanden hatte. Kein Wunder also,
+dass der Öffentlichkeit damals unterschlagen wurde, wer diesen Wahlkampf hinter ihrem Rücken finanziert hatte:
+Unter anderen waren das Goldman Sachs, JP Morgan Chase, Citigroup, UBS, Google und Microsoft (in der
+Reihenfolge des Umfangs ihrer Spenden).
+Wundert sich vor diesem Hintergrund noch jemand, dass Obama im Zuge des drohenden Finanzkollapses von
+2008 alles getan hat, um die, die ihn bezahlt und ihm ihre Anweisungen in Personalfragen mit auf den Weg gegeben haben, zu retten? Dass er die Kosten der Rettung der arbeitenden Bevölkerung aufgebürdet und während
+seiner gesamten Amtszeit nicht einen einzigen kriminellen Banker für die angerichteten Schäden zur Rechenschaft
+hat ziehen lassen? Und wundert es vielleicht noch irgend jemanden, dass ausgerechnet Citigroup, aus deren Reihen
+die Personalvorschläge kamen, beim Bail-out 2008 mit $ 476,2 Mrd. von allen US-Banken die höchste Summe
+erhielt?
+Auch der gegenwärtige Wahlkampf in den USA ist nichts als ein für die Medien inszeniertes Scheingefecht, bei
+dem der Sieger bereits feststeht: Die US-Finanzindustrie. Hillary Clinton ist die von ihr in schamloser Weise direkt
+bezahlte Marionette, Donald Trump dient ihr als Rückversicherung für den Fall, dass das parlamentarische
+System zusammenbricht, ein totalitäres Regime errichtet werden soll und jemand aus den Reihen des Big Money
+die Kontrolle über die Massen behalten muss. Auch hier ist alles bereits beschlossene Sache – lange, bevor das
+amerikanische Volk ahnungslos zu den Urnen schreitet.
+_Quelle: http://www.antikrieg.com/aktuell/2016_10_15_wikileaks.htm_
+
+### Völkervermischungen führen zur körperlichen und psychischen Verweichlichung der Menschen
+_Auszüge aus dem offiziellen 582. Kontaktgespräch vom 1. März 2014_
+**Ptaah** «… Und was die Vermischungen zwischen unseren Völkern betrifft, so ist dazu zu sagen, dass solche
+nur in seltenen Fällen in der Weise in Erscheinung treten, wenn Angehörige verschiedener Völker untereinander
+Bündnisse eingehen, was aber tatsächlich äusserst selten ist. Die Regel ist die, dass die einzelnen Völker und die
+in diesen vorherrschenden Volksgruppen unter sich bleiben und sich also weder vermischen noch ihre Sitten
+und Gebräuche durch andere kulturelle Einflüsse verändern. Dies trägt dazu bei, dass die jeder Volksgruppe
+eigenen Gesundheitsstände und all deren Eigenschaften erhalten bleiben, was dazu beiträgt, dass Krankheiten
+nicht mehr oder wenn schon, dann nur äusserst selten in Erscheinung treten. Das Ganze dieser Völker-Nichtvermischungen trägt auch dazu bei, dass keine Krankheiten und Seuchen verschleppt werden, wie auch ein Völker teil mit einem anderen nicht in irgendwelche Schwierigkeiten gerät, und zwar weder in bezug auf Fremdheit
+oder Rasse noch hinsichtlich Gütern, Produkten oder Sprachen usw. Da in der Regel die Völkerangehörigen unter
+sich bleiben – mit nur sehr wenigen Ausnahmen bei sehr seltenen Vermischungs-Partnerschaften –, entstehen
+auch keine Völkervermischungen und fremden- und rassenfeindliche Konflikte mit anderen Völkern oder
+zwischen Familien und Nachbarn usw. Und was auch äusserst wichtig ist, ist die Tatsache, dass wir keinerlei
+
+
+-----
+
+Religionen und Sekten kennen, wie auch keine verschiedene politische Parteien und Richtungen. Alle plejarischerranischen Völkerschaften sind allein und einheitlich den schöpferisch-natürlichen Gesetzen und Geboten zugeneigt, die durch die Geistführerschaft gelehrt werden. Folgedem gibt es bei uns Plejaren weder Religions- noch
+Sektenhass, noch religiöse oder sektiererische Kulthandlungen, Riten oder irgendwelche Auseinandersetzungen.
+Was letztlich noch sehr wichtig zu sagen ist, ist die Tatsache, dass es bei allen unseren Völkern gemäss deren gesamtem kulturellen Verhalten und infolge der Gesetzgebung, wie bezüglich der Hinwendung zu den schöpferischnatürlichen Gesetz- und Gebotsmässigkeiten, keine Prostitution gibt. ...»
+
+Die plejarischen Völker und ihre Verbündeten vermischen sich also nach Möglichkeit nicht, und zwar aus
+logischen und vernünftigen Gründen. Daher sind sie auch keine Rassisten, wie man das Menschen auf der Erde
+sofort unterstellt, die von den Folgen der Rassenvermischungen sprechen, und die dann in dummer und
+denunzierender Weise sofort als Nazis, Rassenhasser, Fremdenfeindliche usw. beschimpft werden. Die Plejaren
+halten das so wegen der Gene, und um ihre Völker gesundheitlich, psychisch, bewusstseinsmässig, kulturell usw.
+gesund und rein zu halten. Wegen des ‹Dritten Reiches› ist besonders in Deutschland resp. in Gesamt-Europa
+in der Jetztzeit mehr denn je alles verpönt, was mit den naturgegebenen Nachteilen der Rassen- und Völkervermischungen zusammenhängt, und es ist aufgrund von Vorurteilen, falschen Einstellungen, Unlogik und politischer Ideologien schwierig, etwas richtig zu formulieren, ohne als Rassenhasser dazustehen.
+
+Zur Problematik der Völkervermischungen wurde BEAM, ‹Billy› Eduard Albert Meier folgende Frage gestellt,
+die im Oktober 2016 wie folgt beantwortet wurde:
+
+#### Frage
+Könnte Billy bzw. könnten die Plejaren noch einmal im Detail für die Erdenmenschen erklären, warum die GenVermischungen verschiedener Rassen zu einer schleichenden Degeneration der Menschen führen und wie dieser
+Prozess biologisch genau abläuft?
+
+#### Antwort
+Bei Gen-Vermischungen verschiedener Rassen in grossem Masse, davon ist hier die Rede, nicht von einzelnen
+Fällen, kommt es einerseits durch die Gene-Beeinflussung zu Verweichlichungen körperlicher wie auch psychischer Form. Dafür sind viele Faktoren verantwortlich. Ein wichtiger Faktor ist die Mentalitäten-Vermischung.
+Eine grosse Rolle spielt auch jener Faktor, dass, wenn friedliche Völker sich mit kriegerischen Völkern vermischen,
+dass das Negative und Kriegerische auf die friedlichen Völker abfärbt, da in der Regel das Negative die Oberhand
+gewinnt.
+Achim Wolf, Deutschland
+
+### 280000 Ausländer zur Fahndung ausgeschrieben
+_By Angelika on 10. Oktober 2016_
+#### 280000 Ausländer sind im Fahndungssystem der Polizei zur Festnahme ausgeschrieben – 140 Prozent mehr als im Vorjahr.
+– Ausländer werden zur Fahndung ausgeschrieben, wenn sie abgeschoben werden sollen, einige auch wegen
+einer Einreisesperre.
+– Ein Sprecher wies zudem darauf hin, dass viele ausreisepflichtige Ausländer eine Duldung haben.
+Mehr als 280000 Ausländer waren zum 1. September dieses Jahres im Fahndungssystem der Polizei zur Festnahme ausgeschrieben, etwa weil sie abgeschoben werden sollen. Das sei eine Steigerung um rund 140 Prozent
+im Vergleich zum Vorjahr, meldete der hessische Radiosender HR Info und beruft sich auf das Bundeskriminal amt. 2015 und 2014 waren zum Stichtag etwa 120000 Menschen wegen Verstössen gegen das Aufenthaltsgesetz
+zur Fahndung ausgeschrieben.
+Ausländer werden zur Fahndung ausgeschrieben, wenn sie das Land verlassen müssen, die Behörden sie aber
+nicht finden können. Eine Sprecherin des BKA wies allerdings nach Angaben von HR Info darauf hin, dass ein
+Teil der Gesuchten bereits abgeschoben worden sei. In solchen Fällen seien die Ausländer im System Inpol
+registriert, um sie bei illegaler Wiedereinreise sofort zu erkennen. Wie viele der Gesuchten das betrifft, teilte das
+BKA demnach nicht mit.
+
+
+-----
+
+#### Nicht alle wegen Abschiebung gesucht
+Ein Sprecher des Bundesinnenministeriums betonte ebenfalls, die 280000 Ausländer seien nicht allesamt mit
+dem Zweck der Abschiebung ausgeschrieben. Die Ausschreibung stehe im Zusammenhang mit einer ‹ausländer rechtlichen Massnahme›, das könne eine Abschiebung sein, aber etwa auch eine Einreisesperre.
+Daher seien auch nicht alle der 280000 Menschen überhaupt in Deutschland. Der Sprecher wies zudem darauf
+hin, dass viele ausreisepflichtige Ausländer eine Duldung haben.
+Laut HR Info äusserten mehrere Experten bei Ausländerbehörden die Vermutung, dass viele der Gesuchten
+Flüchtlinge seien, die sich der Abschiebung entziehen wollten. Geduldete Ausländer, deren Abschiebung beispielsweise wegen Krankheit ausgesetzt wurde, sind im Inpol-System jedoch nicht erfasst.
+BKA und Bundesinnenministerium konnten dem Radiosender zufolge nicht sagen, wie viele Menschen derzeit
+illegal in Deutschland leben.
+_Quelle: Welt_
+_Quelle: http://www.denken-macht-frei.info/280-000-auslaender-zur-fahndung-ausgeschrieben/_
+
+### Merkels ‹Beliebtheit› durch Medien gesteuert?
+_09/10/201609/10/2016 NPR_
+
+**Wie verflochten die politischen Beziehungen zu Umfragen sind, ist kaum zu glauben. Der Spruch «Traue keiner**
+**Statistik, die Du nicht selber gefälscht hast» kommt nicht von ungefähr. Warum? Das liest du in diesem Beitrag.**
+**Laut eines aktuellen ARD-Deutschlandtests, dessen Ergebnisse die Medien am 6.10.2016 veröffentlicht haben,**
+**ist die Beliebtheit von Angela Merkel, allen Unkenrufen zum Trotz, auf 54 Prozent gestiegen. In einer NPR-**
+**Umfrage stellen auch wir die Frage: «Wie bewertest du Merkels Politik?»**
+Der Deutschlandtrend wurde, von den ARD-Tagesthemen und der ‹Welt›, bei dem auf Meinungs- und Wahlforschung spezialisierten Institut Infratest Dimap in Auftrag gegeben.
+Welche Interessen verfolgt hierbei die ARD?
+Möchte man ein wirklich unabhängiges Ergebnis erzielen oder soll vielmehr die politische Wertigkeit der Kanzlerin bewusst gesteigert werden?
+Letzteres wäre ein Indiz dafür, dass eine Unabhängigkeit der ARD nicht gegeben ist. Aber wie sieht es mit der
+tatsächlichen Unabhängigkeit der ARD aus?
+
+#### Die Macht der Schäuble-Tochter
+Die Tochter von Bundesfinanzminister Wolfgang Schäuble heisst Christine Strobl. Zum 1.2.2011 wurde Christine
+Strobl vom Verwaltungsrat des SWR zur Fernsehfilmchefin des Senders berufen. Dem SWR-Intendanten Boudgoust wurde dabei vorgeworfen, dass die Besetzung der Stelle aufgrund der familiären Beziehungen zu hochrangigen CDU-Politikern zustande gekommen sei. Anzumerken sei, dass es sich beim Ehemann um Thomas
+Strobl handelt, der seit 2011 Vorsitzender der CDU Baden-Württemberg, und seit Dezember 2012 einer von
+fünf stellvertretenden Vorsitzenden der CDU Deutschlands ist.
+Seit Juli 2013 ist Christine Strobl Geschäftsführerin der ARD-Einkaufs- und Produktionstochter Degeto Film.
+Degeto Film wurde 1928 als Deutsche Gesellschaft für Ton und Film e.V. gegründet und produzierte und vertrieb
+**Propagandafilme für die Reichsregierung Hitlers.**
+Degeto Film verfügt über ein Jahres-Budget in Höhe von 400 Millionen Euro und bestimmt laut ‹Bunte› mass geblich mit, was im Ersten gesendet wird.
+
+
+-----
+
+#### Wer steckt hinter Infratest Dimap?
+Man braucht sich einfach nur durch Wikipedia zu klicken, um zu nachfolgendem Ergebnis zu gelangen:
+– Infratest wurde 1996 unter anderem aus dem TNS Infratest gegründet, das 51 Prozent Anteile an Infratest hält.
+– TNS Infratest ist eine Marke der TNS Deutschland GmbH. Die TNS Deutschland GmbH ist die deutsche
+Tochtergesellschaft der zur Kantar Group gehörenden Taylor Nelson Sofres plc (London). Kantar bündelt die
+Marktforschungsunternehmen der WPP Group.
+– Taylor Nelson Sofres plc ist ein britisches/französisches Unternehmen, das 2008 von der britischen WPP Group
+für 1,93 Milliarden Dollar übernommen worden ist.
+– Die WPP Group hatte 2011 einen Jahresumsatz von 16 Milliarden US Dollar.
+– Die Kantar Group ist die Marktforschungssparte der WPP Group und besteht aus 13 Tochtergesellschaften
+mit 30000 Mitarbeitern.
+_Quelle: http://npr.news.eulu.info/2016/10/09/merkels-beliebtheit-durch-medien-gesteuert/_
+
+### Bei gefälschten Pässen drückt Deutschlands Asylbehörde offenbar ein Auge zu
+_By Horst on 8. Oktober 2016_
+**Wer einen gefälschten Pass besitzt, der darf in Deutschland kein Asyl bekommen – so steht es im Gesetz.**
+**Doch das Bundesamt für Migration und Flüchtlinge nimmt es mit diesem Passus**
+**laut einem Zeitungsbericht nicht ganz so genau.**
+Das Bundesamt für Migration und Flüchtlinge (BAMF) erstattet nach der Entdeckung von gefälschten Pässen
+so gut wie nie Anzeige. Das erfuhr die ‹Welt am Sonntag› aus Sicherheitskreisen. Im ersten Halbjahr 2016 überprüfte die Nürnberger Behörde demnach insgesamt 217465 Pässe, Geburtsurkunden oder Führerscheine von
+Asylsuchenden.
+Bei rund einem Prozent (2273 Fälle) bemerkte die physikalisch-technische Urkundenuntersuchung des BAMF
+schwere gerichtsfeste Manipulationen. Im Raum steht damit der Verdacht der Urkundenfälschung. Das kann
+mit fünf Jahren Gefängnis bestraft werden.
+Im Asylverfahrensgesetz heisst es: «Ein unbegründeter Asylantrag ist als offensichtlich unbegründet abzulehnen,
+wenn der Ausländer im Asylverfahren über seine Identität oder Staatsangehörigkeit täuscht oder diese Angaben
+verweigert.» Das BAMF aber erklärte dazu gegenüber der ‹Welt am Sonntag›: Nachweislich falsche Angaben zur
+Identität führten nicht automatisch zu einer Ablehnung.
+Der Bund Deutscher Kriminalbeamter (BDK) forderte die Behörde auf, künftig bei jedem gefälschten Pass Anzeige
+zu erstatten. Es müsse verhindert werden, dass sich jemand im Asylverfahren zu Unrecht Vorteil verschaffe. Mit
+solchen Pässen würden zudem Bankkonten eröffnet, um Terrororganisationen wie den IS zu unterstützen.
+_Quelle: Focus bzw. http://www.denken-macht-frei.info/bei-gefaelschten-paessen-drueckt-deutschlands-asylbehoerde-offenbar-_
+_ein-auge-zu/_
+
+### Migrationsbombe Afrika Millionen Afrikaner drängen nach Europa
+_Der Freitags-Kommentar vom 7. Oktober 2016, von Anian Liebrand, Redaktion ‹Schweizerzeit›_
+Mainstream-Medien wollen uns weismachen, die Migrationsströme nach Europa nähmen stark ab – wer noch
+immer davor warne, schüre unbegründete Ängste. Die Wahrheit ist: Jeder dritte Afrikaner südlich der Sahara will
+laut einer repräsentativen Umfrage auswandern. Der renommierte Soziologe Gunnar Heinsohn prognostiziert,
+im Jahr 2050 werden 950 Millionen Menschen aus Afrika und den arabischen Staaten auswandern wollen.
+‹Deutlich weniger Flüchtlinge› oder ‹Weniger Flüchtlinge in der Türkei› – so titeln derzeit die Mainstream-Blätter
+zur sogenannten Erkenntnis, dass im laufenden Jahr die Zahl der in Europa registrierten Migrationsgesuche im
+Vergleich zum Rekordjahr 2015 abgenommen habe. Die Medien suggerieren: Die organisierte Völkerwanderung
+von Hunderttausenden Migranten aus Afrika und dem Nahen Osten habe ihren Zenit hinter sich und sei im
+Begriff, dauerhaft abzunehmen. Wer die unkontrollierten Migrationsströme immer noch für problematisch hält,
+übertreibe masslos und spiele nur den rechten Parteien in die Hände.
+
+
+-----
+
+#### Krise wirklich ausgestanden?
+Ist die Migrationskrise, die seit Jahren ihre Schatten auf zahlreiche Lebensbereiche der abendländischen Gesellschaften wirft, wirklich ausgestanden? Statt den Durchhalteparolen zum Establishment gehörender Polit karrieristen und ihrer Echoräume zu glauben, lohnt es sich, auf Menschen zu hören, die etwas von der Materie
+verstehen und deren unbequeme Thesen in den der politischen Korrektheit verpflichteten Medien zu oft leider
+kein Gehör finden.
+Sagt Ihnen der Name Gunnar Heinsohn etwas? Noch bevor die deutsche Bundeskanzlerin Angela Merkel im
+September 2015 mit ihrem als epochaler Fehler in die Weltgeschichte eingehenden Ausruf «Wir schaffen das!»
+eine richtiggehende Lawine unkontrollierter Einwanderung nach Deutschland auslöste, veröffentliche Prof. Dr.
+Dr. Heinsohn im Juni 2015 sein sorgfältig erarbeitetes Bevölkerungswachstums-Szenario für Europa.
+Der 1943 geborene Gunnar Heinsohn ist nicht irgendwer. Der Wirtschaftswissenschaftler, Soziologe und
+emeritierte Professor für Sozialpädagogik an der Universität Bremen lehrt heute Militärdemographie am NATO
+Defense College (NDC/Rom) und an der Bundesakademie für Sicherheitspolitik (BAK/Berlin).
+
+#### 950 Millionen Einwanderungswillige
+Heinsohn geht davon aus, dass im Jahre 2050 950 Millionen Menschen aus Afrika und arabischen Ländern auswandern wollen. Auf diesen Wert kommt er, indem er die Ergebnisse einer breit angelegten, repräsentativen
+Umfrage des führenden ‹Gallup›-Meinungsforschungsinstituts aus dem Jahr 2009 hochrechnet. Niemals zuvor
+wollten so viele Menschen ihre Heimat verlassen, wobei die effektiv zu erwartende Zahl wahrscheinlich noch
+höher liegen dürfte, da sich die Wirtschaftslage in vielen Gegenden Afrikas und dem Nahen Osten seit 2009 mit
+dem Aufkommen der IS- und Boko Haram-Terrormilizen, dem Syrien-Krieg und dem Ölpreiszerfall nochmals
+massiv verschlechterte.
+950 Millionen Menschen werden auswandern wollen – und Europa wird dabei ein primäres Ziel sein, da andere
+beliebte Auswanderungsdestinationen wie Australien, Kanada und Neuseeland wegen ihrer restriktiven Einwanderungspolitik für die allermeisten von ihnen praktisch nicht zu erreichen sein werden. Doch wie viel
+Zuwanderung braucht Europa? Würde man die Zuwanderungszahlen, die Deutschland in den Jahren 2012 und
+2013 verzeichnete, auf die ganze EU mit ihren 507 Millionen Einwohnern umlegen und bis zum Jahre 2050
+fortrechnen, dann würden zwischen 2015 und 2050, so Heinsohn, «rund 250 Millionen Wirtschaftsflüchtlinge
+in die Europäische Union (EU) kommen können.»
+
+#### Nachfrage überwiegt Angebot
+Die Zuwanderung, die ‹benötigt› würde, um die sinkenden Geburtenzahlen und Abwanderung auszugleichen,
+beziffert Heinsohn jedoch ‹nur› auf 100 Millionen Menschen. Diese Zahl setzt sich wie folgt zusammen: Jährlich
+fehlen in der EU (bei 1,5 Kindern pro Frauenleben) rund 2,1 Millionen Neugeborene, die es bräuchte, um die
+Bevölkerung stabil zu halten und das Anwachsen des Durchschnittsalters zu stoppen. Rund 75 Millionen Zuwanderer (wenn diese ihrerseits pro Paar wenigstens zwei Kinder aufziehen) bräuchte es alleine deswegen bis
+2050. Um diejenigen Personen zu ersetzen, die als Hochqualifizierte aus Europa nach Australien, Kanada und
+Neuseeland auswandern dürften, bräuchte es nochmals 25 Millionen Zuwanderer.
+Migrationspolitisch klafft also eine gewaltige Schere zwischen Angebot und Nachfrage auseinander – wobei die
+Berechnungen Heinsohns die politische Komponente (wollen die Stimmbürger der europäischen Länder die
+absehbare Bevölkerungsabnahme vollumfänglich durch Zuwanderung ersetzen?) gänzlich ausblenden. Ganz
+abgesehen von der Tendenz, dass die europäische Wirtschaft infolge der Globalisierung und Roboterisierung
+generell immer weniger Arbeitsplätze benötigt, würde Europa angesichts steigender Anforderungen in der Wirtschaft in erster Linie eine Zuwanderung von hochqualifizierten Fachkräften brauchen.
+Prof. Dr. Dr. Heinsohn fasst die Herausforderung so zusammen: «Alle EU-Länder haben bereits viele Millionen
+mehr Un- oder Angelernte, als vermittelt werden können. Diese Gruppe der eher hilflosen Mitbürger wird aufgrund biologischer Vermehrung und generell steigender intellektueller Anforderungen weiter wachsen. Für eine
+menschenwürdige und oftmals lebenslängliche Finanzierung dieser Bedauernswerten benötigt man mithin
+ungezählte neue Versorger, nicht aber zusätzliche Hilfebezieher.»
+
+#### Welche Zuwanderung wollen wir?
+Soll Zuwanderung dazu beitragen, den Wohlstand in Europa zumindest halten zu können, schliesst diese folglich
+alle Migrationsbewerber aus, deren Qualifikationsprofil den Anforderungen nicht entspricht (davon ausgenommen sind laut unseren Wertestandards an Leib und Leben bedrohte, ‹echte› Flüchtlinge). Oder wie es Gunnar
+
+
+-----
+
+Heinsohn formuliert: «Die 950 Millionen wissen mithin, dass sie fleissig Schularbeiten machen müssen, wenn
+wenigstens jeder Zehnte von ihnen eine Chance bekommen soll. Wer jetzt den Weg über die Schlepper-Boote
+wählt, hat schliesslich schon daheim den Ansprüchen nicht genügt.»
+Kann Europa seine Stellung als wohlhabender Kontinent in Zukunft behaupten? Und welche Folgen wird es für
+uns haben, dass Afrika seine Einwohnerzahl von 2015 bis 2050 auf rund 2,4 Milliarden Menschen verdoppeln
+und schon 2040 die Hälfte der Menschheit im Alter unter 25 Jahren afrikanisch sein wird? Als wären sinkende
+Geburtenzahlen und ein immer härterer Wettbewerb um die klügsten Köpfe (Gunnar Heinsohn: «1,25 Milliarden
+Menschen europäischen Ursprungs von Alaska über Israel bis Neuseeland ächzen gegen 1,6 Milliarden Ehrgeizige
+aus dem Sino-Block sowie Japan und Korea») nicht Herausforderung genug – die Frage, wie viel Migration will
+und kann Europa zulassen, ohne seine Seele zu verlieren, gehört zweifellos zu den Schicksalsfragen der heutigen
+und erst recht der kommenden Generationen.
+Die Schweiz täte in diesem Kontext gut daran, ihre Zuwanderungspolitik künftig nach derjenigen von Australien,
+Kanada und Neuseeland auszurichten, statt sich Merkels gescheitertem ‹Willkommenskultur›-Dogma an den Hals
+zu werfen. Dafür sind schon heute die Weichen zu stellen. Je länger wir warten, die Einwanderung in vernünftige
+Bahnen zu lenken, desto fataler werden die Folgen sein.
+_Quelle: http://www.schweizerzeit.ch/cms/index.php?page=/news/migrationsbombe_afrika-2848_
+
+### Paul Craig Roberts: Washington führt die Welt in den Krieg
+_Nachtwächter; Do, 06 Okt 2016 07:55 UTC; Von Paul Craig Roberts_
+
+Was muss die Welt denken, wenn sie sich die US-Präsidentschaftskampagnen anschaut? Mit der Zeit sind
+politische Kampagnen in den USA unwirklich geworden und haben keinen Bezug mehr zu den Belangen der
+Wähler – aber die aktuelle Kampagne ist so unwirklich, dass es schon absurd ist.
+Die Verlagerung amerikanischer Arbeitsplätze ins Ausland durch Konzerne und die Deregulierung des USFinanzsystems haben zum wirtschaftlichen Scheitern Amerikas geführt. Man sollte meinen, dass dies im
+Präsidentschaftswahlkampf ein Thema sei.
+Die neokonservative Ideologie der US-Weltherrschaft treibt die USA und ihre Vasallen in einen Konflikt mit
+Russland und China. Die Risiken eines nuklearen Schlagabtauschs sind höher, als sie jemals in der Geschichte
+gewesen sind. Man sollte meinen, dass dies ebenso ein Thema im Präsidentschaftswahlkampf sei.
+Stattdessen wird sich mit Trumps legaler Anwendung der Steuergesetze und seiner nicht-feindseligen Haltung
+gegenüber dem russischen Präsidenten Putin auseinandergesetzt. Man sollte meinen, dass es ein Thema sei, dass
+Hillary eine extrem feindselige Einstellung gegenüber Putin hat (‹der neue Hitler›), welche einen Konflikt mit
+einer grossen Atommacht verspricht.
+Was wir über die beiden Präsidentschaftskandidaten wissen ist folgendes: Hillary hat eine lange Liste von Skandalen, von Whitewater und Vince Foster, über Benghazi, bis zur Verletzung nationaler Sicherheitsprotokolle. Sie
+ist von den Oligarchen der Wall Street, den Megabanken, dem militärisch-industriellen Komplex und ausländi schen Interessen gekauft. Der Beweis ist Clintons persönliches Vermögen in Höhe von $ 120 Millionen und die
+$ 1600 Millionen in ihrer Stiftung. Goldman Sachs hat Hillary nicht um ihrer weisen Worte wegen $ 675000
+für drei 20-minütige Reden bezahlt.
+Was wir über Trump wissen ist, dass das oligarchische Establishment ihn nicht ausstehen kann und dem Propagandaministerium, auch bekannt als ‹die US-Medien›, den Auftrag gegeben hat ihn zu zerstören. Hillary ist ganz
+klar die Kandidatin des einen Prozent und Trump der Kandidat für den Rest von uns. Leider ist etwa die Hälfte
+der 99 Prozent zu dumm dies zu begreifen.
+
+
+-----
+
+Ausserdem, falls Trump am Ende im Weissen Haus landet, dann bedeutet dies nicht, dass er die Oligarchie besiegt
+hat. Diese ist in Washington fest verwurzelt und kontrolliert die wirtschaftlichen und aussenpolitischen Positionen,
+die Think Tanks und andere Lobbyisten, sowie die Medien. Das Volk kontrolliert nichts.
+Was mag die Welt denken, wenn sie sieht wie Donald Trump verdammt wird, weil er keinen Krieg mit Russland
+oder die Verlagerung der amerikanischen Wirtschaft ins Ausland will?
+Wo sehen Washingtons europäische, britische, kanadische, australische und japanische Vasallen eine amerikanische Führerschaft, die ihre gebrachten Opfer in Sachen Souveränität und unabhängiger Aussenpolitik wert sind?
+Wo sehen sie auch nur ein Mindestmass an Intelligenz?
+**Warum schaut die Welt zur dümmsten, abscheulichsten, arrogantesten, korruptesten und mörderischsten**
+**Regierung des Planeten als Führer auf?**
+Es gibt nur eine Bestimmung, zu der Washington sie führen kann, und die lautet: Krieg.
+_Quelle: https://de.sott.net/article/26539-Paul-Craig-Roberts-Washington-fuhrt-die-Welt-in-den-Krieg_
+
+### Hinterhältige, bewusstseins-psychischkranke Frau Merkel
+#### Auszug aus dem 646. offiziellen Kontaktgespräch vom 3. März 2016
+**Billy:       «Schon gut, dann beenden wir jetzt wohl besser dieses Thema und wechseln über zur deutschen**
+Bundeskanzlerin Angela Merkel, zu der ich sagen will, dass ich, wenn ich das deutsche Volk betrachte, erkenne,
+dass sie die deutsche Gesellschaft spaltet, wie das auch die diversen Rassistenorganisationen in Deutschland tun,
+allen voran die Neonazis und die Islamfeindlichen, die allesamt ein Abbild der NSDAP sind. Hitler und
+Konsorten lassen grüssen … Merkel selbst wird von ihren Gleichgesinnten von ganz Deutschland und der EUDiktatur in den Himmel gehoben, wobei alle ihre Anhänger nicht schlau genug sind, um zu merken, dass diese
+Frau eine gefährliche Psychopathin ist, die Deutschland zerstören will. Ihre Flüchtlingspolitik ist dabei ein gutes
+Mittel dafür, weil es für viele Unbedarfte in bezug auf diese Frau ein völlig falsches Bild der Menschlichkeit und
+Menschenliebe schafft. Und genau diese Tatsache nutzt sie hinterhältig, um mit Hilfe all ihrer dummen Anhänger,
+Hörigen und sie Umschleichenden ihr zerstörerisches Werk in bezug auf Deutschland und alle EU-Staaten
+durchführen zu können. Alle lassen sie sich von ihr blenden und irreführen, weil sie psychologische Nullen sind,
+nicht hinter ihre verstellte Fassade sehen und auch ihr Handeln nicht beurteilen können. Und wie wir ja schon
+mehrmals über diese Frau gesprochen haben, ist sie sowohl krank in ihrem Bewusstsein wie auch in ihrer Psyche,
+wobei ein untergründiger Hass gegen Deutschland ihr gesamtes Handeln und Verhalten prägt, das rachsüchtig
+auf die Zerstörung Deutschlands und Europas hinausführt, wobei sie als Zionistin ihren tiefgreifenden Grund
+für ihren Hass gegen Deutschland und Europa im Holocaust des letzten Weltkrieges findet. Und was mit dieser
+Frau wirklich los ist, das wissen nicht nur wir, denn auch andere Menschen machen sich Gedanken darüber,
+verfügen über gewisse psychologische Kenntnisse und ein diesbezügliches Beurteilungsvermögen, folglich sie
+auch darüber in Zeitungen und Journalen schreiben und veröffentlichen, was sie feststellen. Besonders zur
+gegenwärtigen Zeit, da durch den tiefgründigen Hasswahn der Bundeskanzlerin Merkel die ‹Flüchtlings-Willkommenskultur› in Gang gesetzt wurde, um dadurch Deutschland und Europa zu überfordern und zusammenbrechen zu lassen, treten diverse Leute mit Artikeln in Zeitungen in Erscheinung, um ihre Feststellungen in
+bezug auf diese Frau öffentlich bekannt zu machen. Durch ihr hinterhältiges Handeln in bezug auf die von ihr
+ins Leben gerufene ‹Willkommenskultur für Flüchtlinge› sind folglich Hunderttausende und gar weit über eine
+Million wirkliche Flüchtlinge, wie aber auch sehr viele Scheinflüchtlinge – wie eben Wirtschaftsflüchtlinge,
+Kriminelle, Verbrecher und Schläfer-Killer des Islamisten-Staates, des IS – in Europa ‹eingewandert›, was grosse
+Probleme schafft und zukünftig noch sehr viel grössere Probleme hervorbringen wird, die kaum oder überhaupt
+nicht mehr bewältigt werden können. Und das hervorgerufen durch eine bewusstseins-psychischkranke Frau,
+die innerlich zerrissen und ihrer Verantwortung als Bundeskanzlerin nicht mächtig ist. ...»
+_Quelle: http://www.figu.org/ch/files/downloads/bulletin/figu_sonder_bulletin_99.pdf_
+
+#### Wer den Wahrheitsgehalt dieser Aussagen bezweifelt, sollte sich einmal das Video ‹Merkel wirft BRD Fahne weg!› bei youtube.de ansehen, das dort wie folgt kommentiert ist:
+_Veröffentlicht am 28.09.2013_
+Wärend Merkels Kasperle-Theater ihren verdächtigen Wahlerfolg 2013 abfeiert, ‹entsorgt› Merkel die BRD-Fahne.
+Man achte am Schluss auf den angewiderten Gesichtsausdruck …
+
+
+-----
+
+Übrigens: Nicht Merkel sollte mit der Fahne ‹wedeln›, dieser H. Gröhe hatte sich die BRD-Fahne zuvor aus dem
+Publikum geholt und weitergereicht, bekam sie dann aber wieder. Merkel hat sie ihm aus der Hand genommen
+und angewidert von der ‹Show-Bühne› entfernt!
+Das Wort ‹wirft› im Titel ist als symbolhafte Deutung zu verstehen für ein volksverräterisches Verhalten einer
+Fr. Merkel.
+Ein besorgter Bürger aus Deutschland
+
+_Quelle: https://www.youtube.com/watch?v=q8PNgxbTE0o_
+
+### Können die Amerikaner das Übel stürzen, das sie beherrscht?
+_Posted by Maria Lourdes - 03/10/2016; Ein Artikel von Paul Craig Roberts, Übersetzung: Einar Schlereth_
+**Paul Wolfowitz und die Lügen, die er in hohen Regierungs-Positionen erzählte, sind verantwortlich für eine**
+**massive Anzahl von Toten und massive Zerstörung in sieben Ländern. Wolfowitz hat seine Stimme für Hillary**
+**Clinton angekündigt. Beruhigt euch das?**
+**Die echte Überraschung wäre gewesen, wenn Wolfowitz sich zu Gunsten von Donald Trump ausgesprochen**
+**hätte. Weshalb wurde die Nachricht erwartet?**
+**Trump hat gesagt, er sähe keine Zukunft im Konflikt, den Washington mit Russland begonnen hat, und er**
+**stelle auch die fortlaufende Existenz der NATO in Frage. Diese friedliche Haltung macht Trump zu einem**
+**‹nationalen Sicherheitsrisiko› im Sinne von Wolfowitz. Was Wolfowitz meint, ist, dass ein Friedenskandidat**
+eine Bedrohung der Doktrin von Wolfowitz und der Neocons der US-Welt-Hegemonie ist. Im verrückten Hirn
+von Wolfowitz und der Neocons ist Amerika nicht sicher, wenn es nicht die Welt beherrscht.
+**Hillary ist ein Kriegshetzer, vielleicht der allerletzte, wenn sie Präsidentin wird, da die Kombination ihrer An-**
+**massung und Inkompetenz wahrscheinlich den 3. Weltkrieg zum Ergebnis haben wird. Am 3. Juli 2015 erklärte**
+**Hillary: «Ich will, dass die Iraner wissen, dass wir, wenn ich Präsidentin werde, Iran angreifen werden … wir**
+werden in der Lage sein, es völlig zu vernichten.» Die verrückte Hillary ging dann noch weiter und erklärte den
+Präsidenten von Russland zum ‹neuen Hitler›. Es gibt kaum Zweifel, dass sie glaubt, sie könne auch Russland
+vernichten.
+**Hillary ist diejenige, die die zionistische Neokonservative Victoria Nuland ins Aussenministerium geholt hat,**
+**um den US-Coup in der Ukraine zu überwachen, um noch mehr Propaganda gegen Russland zu machen und**
+**Washingtons Vasallen in Europa zu zwingen, Russland Sanktionen aufzudrücken und Militär-Basen an seinen**
+**Grenzen einzurichten, um damit eine Nuklearmacht zu provozieren und gefährliche Spannungen zu erzeugen.**
+Das passt perfekt zu den Absichten von Wolfowitz. Da Wolfowitz wahrscheinlich Hillarys Verteidigungsminister
+wird, bedeuten die beiden den 3. Weltkrieg.
+**Als die Sowjetunion kollabierte, schrieb Wolfowitz – damals ein hoher Pentagon-Beamter – die Wolfowitz-**
+**Doktrin nieder. Darin heisst es, das Hauptziel der US-Aussenpolitik sei es, den Aufstieg anderer Länder zu**
+**verhindern, die eine Minderung des US-Unilateralismus sein könnten. Das zielte auf Russland und China. Die**
+Kombination Hillary und Wolfowitz sollte jeden in der ganzen Welt erschrecken. Die Aussicht, dass die Atomwaffen in den Händen der verrückten Hillary und Wolfowitz sind, ist sehr alarmierend, aber denkbar.
+**Die Frage ist, ob Hillary gewählt werden kann angesichts ihrer Verletzungen der nationalen Sicherheitsregeln –**
+**womit sie beim korrupten Obama durchkam – und ihrer ausgiebig dokumentierten Selbstbedienung, die ein**
+**Clinton-Privat-Vermögen von 120 Mill. $ und 1600 Mill. $ in ihrer Stiftung erzeugt hat. Es ist vollständig klar,**
+dass die Clintons die öffentlichen Ämter zu ihrer privaten Verherrlichung nutzen. Wollen das die Amerikaner?
+**… Zwei Leute, die immer noch reicher werden, während die Welt in den Atomkrieg geführt wird?**
+
+
+-----
+
+**Aber mit den elektronischen Wahlmaschinen wird die Frage nicht damit entschieden, was die Amerikaner**
+**wollen, sondern wie die Maschinen für das Abstimmungsergebnis programmiert werden. Die USA hatten**
+bereits Wahlen, bei denen die Nachwahlbefragungen, die immer ein verlässlicher Indikator des Gewinners vor
+der Zeit der elektronischen Wahlmaschinen waren, einen anderen Gewinner anzeigten als die elektronischen
+Wahlmaschinen.
+
+**Das Geheimnis, wie die Wahlmaschinen programmiert werden, wird durch eine ‹Eigentums-Software› ge-**
+**schützt. Die Maschinen haben keine Papierrollen, wodurch eine erneute Zählung nicht möglich ist.**
+**Da beide politischen Establishments entschieden gegen Trump sind, was meint ihr da, wie die Maschinen**
+**programmiert werden? In der Tat sind die Medien derart gegen Trump eingestellt, dass sich die Frage stellt, ob**
+Nachwahlbefragungen stattfinden und ob die Ergebnisse korrekt wiedergegeben werden.
+**Republikanische Funktionäre, nicht Wähler, sind äusserst verärgert wegen der Aussicht, dass Trump republi-**
+**kanische Stimmen kostet. Wie kann das sein, wenn Republikaner Trump anderen Kandidaten vorziehen?**
+Sagen die republikanischen Funktionäre damit nicht, dass sie, anstatt der Wähler, den republikanischen Kandidaten wählen sollten?
+**Wenn das so ist, dann sind sie wie die Demokraten. Vor ein paar Jahren schuf das demokratische Establishment**
+**die ‹Super-Delegierten›, die nicht gewählt werden. Es wurden genug ‹Super-Delegierte› geschaffen, um dem**
+**Establishment die Möglichkeit zu geben, sich über die Wahl der Wähler hinwegzusetzen. Dass es die Demo -**
+kraten waren – angeblich die Partei des Volkes –, die dem Volk als erste die Wahl wegnahmen, ist erstaunlich.
+Viel deutet darauf hin, dass Bernie Sanders eigentlich die Präsidenten-Nominierung gewann, sie aber durch
+Stimmenbetrug der ‹Super-Delegierten› nicht bekam.
+**Dies ist die Politik in Amerika – total korrupt. Chris Hedges könnte Recht haben:**
+**Ohne Revolution kann sich nichts ändern.**
+**Die Dämonisierung von Trump durch die Presstuierten ist Beweis, dass Trump, trotz seines Reichtums, von**
+**den Oligarchen, den Einprozentern, als Bedrohung ihrer Agenda angesehen wird. Daher ist die Dämonisie-**
+**rung der Beweis, dass er der Kandidat ist, der gewählt werden muss. Die Oligarchen, die uns unterdrücken,**
+hassen Trump, also muss das unterdrückte amerikanische Volk Trump unterstützen.
+**Die Dämonisierung der Presstuierten funktionierte nicht in den Vorwahlen. Wird sie bei der Präsidentenwahl**
+**klappen? Wir wissen es nicht, weil uns die Wahlen von Presstuierten erzählt werden, nicht von Trump.**
+**Wenn die Dämonisierung nicht funktioniert und die Wahl durch die Wahlmaschinen gestohlen werden muss,**
+**wird Amerika als Konsequenz radikalisiert werden, was seit langem überfällig ist. Vielleicht ist die Vermutung**
+einer derartigen Entwicklung der Grund dafür, dass die Bundesbehörden, selbst die Postbüros und die Sozialversicherung sich Waffen und Munition angeschafft haben und Cheneys Firma Halliburton 385 Millionen$ erhielt,
+um in den USA Konzentrationslager zu bauen.
+**Jene, welche uns kontrollieren, werden ihre Kontrolle nicht ohne einen Weltkrieg aufgeben. In den USA hat**
+**das Übel dem Volk die Macht genommen und das Übel wird sie nicht zurückgeben.**
+_Quelle: https://lupocattivoblog.com/2016/10/03/koennen-die-amerikaner-das-uebel-stuerzen-das-sie-beherrscht/_
+
+### Die wirkliche humanitäre Krise spielt sich nicht in Aleppo ab
+_Paul Craig Roberts_
+Warum hören wir nur von der ‹humanitären Krise in Aleppo›, und nicht von der humanitären Krise überall in
+Syrien, wo das Böse, das in Washington herrscht, seine ISIL-Söldner losgelassen hat, um die Menschen in Syrien
+abzuschlachten? Warum hören wir nichts von der humanitären Krise im Jemen, wo die Vereinigten Staaten von
+Amerika und ihr saudiarabischer Vasall jemenitische Frauen und Kinder massakrieren? Warum hören wir nichts
+
+
+-----
+
+über die humanitäre Krise in Libyen, wo Washington ein Land zerstört und an seiner Stelle Chaos hinterlassen
+hat? Warum hören wir nichts über die humanitäre Krise im Irak, die schon 13 Jahre lang anhält, oder über die
+humanitäre Krise in Afghanistan, die schon seit 15 Jahren besteht?
+Die Antwort ist, dass die Krise in Aleppo die Krise Washingtons ist, das seine ISIL-Söldner an die syrische Armee
+und die russische Luftwaffe verliert. Die Jihadisten, die Obama und die Killerin Hillary («Wir kamen, wir sahen,
+er starb») geschickt haben, um Syrien zu zerstören, werden selbst zerstört. Das Obamaregime und die westlichen
+Medienhuren versuchen die Jihadisten zu retten, indem sie sie in die Decke der ‹humanitären Krise› hüllen. Eine
+derartige Scheinheiligkeit entspricht dem Washingtoner Standard. Gäbe das Obamaregime nur einen Pfifferling
+auf ‹humanitäre Krise›, dann hätte es nicht humanitäre Krisen in Syrien, Irak, Afghanistan, Libyen und Jemen
+orchestriert.
+Wir befinden uns mitten in einem Präsidentenwahlkampf in den Vereinigten Staaten von Amerika und niemand
+hat gefragt, warum die Vereinigten Staaten von Amerika entschlossen sind, eine demokratisch gewählte Regierung
+in Syrien zu stürzen, die vom syrischen Volk unterstützt wird. Niemand hat gefragt, woher der Narr im Weissen
+Haus die Macht nimmt, den Präsidenten Syriens zu stürzen, indem er von den Vereinigten Staaten von Amerika
+unterstützte Jihadisten auf die Menschen in Syrien hetzt, die die Medienhuren fälschlich als ‹gemässigte Rebellen›
+bezeichnen. Washington hat natürlich keine befriedigende Antwort auf diese Frage, deshalb wird diese Frage
+schon gar nicht gestellt.
+Die Antwort auf diese Frage ist, dass Washingtons Strategie für die Destabilisierung des Iran und dann der muslimischen Provinzen der Russischen Föderation, des ehemaligen sowjetischen Zentralasien und der muslimischen
+Provinz Chinas darin besteht, stabile Regierungen durch das Chaos des Jihadismus zu ersetzen. Irak, Libyen
+und Syrien hatten stabile säkulare Gesellschaften, in denen die starke Hand der Regierung dafür sorgte, dass es
+keine Sektenkriege unter den Moslems gab. Durch den Sturz dieser säkularen Regierungen und die laufenden
+Bemühungen, Assad zu stürzen, entfesselte Washington das Chos des Terrorismus.
+Es gab keinen Terrorismus im Mittleren Osten, bis Washington ihn mit Invasionen, Bombardierungen und Folter
+dorthin brachte. Jihadisten wie diejenigen, die Washington benutzte, um Gaddafi zu stürzen, tauchten in Syrien
+auf, als das britische Parlament und die russische Regierung Obamas geplanten Einmarsch in Syrien blockierten.
+Da Washington Syrien nicht direkt angreifen konnte, benutzte Washington Söldner. Die Prostituierten, die sich
+als amerikanische Medien ausgeben, gehorchten Washington und liessen die Propaganda laufen, dass die jihadistischen Terroristen syrische Demokraten sind, die gegen die ‹Diktatur Assads› rebellieren. Diese durchsichtige
+und offenkundige Lüge ist so oft wiederholt worden, dass sie jetzt mit der Wahrheit verwechselt wird.
+Syrien hat nichts zu tun mit der ursprünglichen Washingtoner Rechtfertigung der Gewalt, mit der es in den
+Mittleren Osten eindrang. Die ursprüngliche Rechtfertigung war der 9/11, der benützt wurde, um in Afghanistan
+einzumarschieren mit der falschen Begründung, dass die Taliban Osama bin Laden, den ‹Mastermind› beschützten, der zu dieser Zeit in einem pakistanischen Krankenhaus an Nierenversagen starb. Osama bin Laden
+war ein Mitarbeiter der CIA, der gegen die Sowjets in Afghanistan eingesetzt wurde. Er steckte nicht hinter 9/11.
+Genauso hatten die Taliban mit grösster Sicherheit nichts damit zu tun.
+Die Medienhuren des Westens standen jedoch für Bushs Lüge und die Öffentlichkeit wurde mit der Phrase hinters
+Licht geführt, dass wir ‹sie im Ausland besiegen müssen, damit sie uns nicht zuhause angreifen›. Natürlich waren
+die Moslems nicht darauf aus, uns zuhause anzugreifen. Wenn Moslems eine Gefahr darstellen, warum lässt die
+Regierung der Vereinigten Staaten von Amerika so viele von ihnen als Flüchtlinge von Washingtons Kriegen gegen
+Moslems ins Land?
+9/11 war das ‹neue Pearl Harbor› der Neokonservativen, von dem sie geschrieben hatten, dass sie es benötigten,
+um ihre Kriege gegen den Mittleren Osten zu entfesseln. George W. Bushs erster Finanzminister sagte, dass das
+Thema der ersten Kabinettssitzung Bushs der Einmarsch in den Irak war. Das war noch vor 9/11. Mit anderen
+Worten: Washingtons Kriege im Mittleren Osten waren schon vor 9/11 geplant worden.
+Die Neokonservativen sind Zionisten. Durch die Reduzierung des Mittleren Ostens auf ein Chaos erreichen sie beide
+ihrer Ziele. Sie beseitigen organisierte Opposition gegen die israelische Expansion, und sie schaffen Jihadismus,
+der benützt werden kann, um Länder wie Russland, Iran und China zu destabilisieren, die der Ausbreitung ihrer
+Machtposition im Weg stehen, die, wie sie glauben, der Zusammenbruch der Sowjetunion der ‹unentbehrlichen
+Nation›, nämlich den Vereinigten Staaten von Amerika hinterlassen hat.
+Osama bin Laden, der angebliche Organisator von 9/11, lag im Sterben, und er führte nicht einen Terrorkrieg
+gegen die Vereinigten Staaten von Amerika von einer Höhle in Afghanistan aus. Die Taliban konzentrierten sich
+auf die Festigung ihrer Herrschaft in Afghanistan, nicht auf Angriffe gegen den Westen. Nachdem es Hochzeiten,
+Begräbnisse und Fussball spielende Kinder in die Luft gejagt hatte, zog Washington weiter gegen den Irak. Es gab
+
+
+-----
+
+keine Anzeichen von irakischer Kriegslüsternheit gegen die Vereinigten Staaten von Amerika. UNO-Waffen inspektoren sagten, es gebe keine Massenvernichtungswaffen im Irak, aber das interessierte Washington nicht.
+Die Huren, die sich als die amerikanischen Medien präsentieren, halfen dem Bushregime, das Bild einer atomaren
+Pilzwolke über Amerika für den Fall zu schaffen, dass die Vereinigten Staaten von Amerika nicht in den Irak
+einmarschierten.
+Der Irak besass keine Atomwaffen, und jedermann wusste das, aber Tatsachen spielten keine Rolle. Es ging um
+eine Agenda, eine nicht offengelegte Agenda. Um diese Agenda weiterzutreiben, die offenzulegen es sich scheute,
+benützte das Regime Angst. «Wir müssen sie dort töten, bevor sie uns hier umbringen.» So wurde aus dem Irak,
+einem stabilen fortschrittlichen Land, ein Haufen von Ruinen gemacht.
+Als nächstes kam Libyen an die Reihe. Gaddafi wollte nicht bei Washingtons Africa Command mitmachen. Darüber hinaus hatte China die Entwicklung der Erdölfelder im Osten Libyens übernommen. Washington war bereits
+irritiert durch Russlands Präsenz im Mittelmeer und wollte China nicht auch noch dort haben. Gaddafi musste
+also verschwinden.
+Als Nächster kam Assad dran mit gefälschten Beweisen dafür, dass er chemische Waffen gegen die Rebellion
+eingesetzt hatte, die Washington begonnen hatte. Niemand glaubte die durchsichtige Lüge Washingtons, nicht
+einmal das Parlament ihrer britischen Majestät. Da sie niemanden finden konnte, der den Deckmantel für einen
+Einmarsch abgab, schickte die Psychopathin Killary die Jihadisten, die Washington benützt hatte, um Libyen zu
+zerstören, um Assad zu stürzen.
+Die Russen, die bis dahin so naiv und leichtgläubig gewesen waren, um Washington zu vertrauen, fanden endlich
+heraus, dass die Instabilität, an der Washington arbeitete, gegen sie gerichtet war. Die russische Regierung beschloss, Syrien als ihre rote Linie zu ziehen, und intervenierte auf Ersuchen der syrischen Regierung gegen die
+von Washington unterstützten Jihadisten.
+Washington ist empört und droht jetzt, mit einer unverhohlenen Aggression gegen Syrien ein weiteres Verbrechen
+gegen die Nürnberger Gesetze zu begehen. Ein derartiger schlecht überlegter Schritt würde Washington in einen
+militärischen Konflikt mit Russland und in der Folge mit China bringen. Ehe die Europäer Washington dabei
+zustimmen, einen dermassen gefährlichen Konflikt vom Zaun zu brechen, sollten sie die Warnung von Sergey
+Karaganov, einem Mitglied des Rates für Politik und Verteidigung des russischen Aussenministeriums zu Herzen
+nehmen: «Russland wird nie wieder auf seinem eigenen Territorium kämpfen. Wenn die NATO einen Übergriff
+gegen eine Atommacht wie wir es sind unternimmt, wird die NATO dafür bestraft werden.»
+Dass die Regierung der Vereinigten Staaten von Amerika kriminell verrückt ist, sollte jedem Menschen auf der
+Erde Angst einjagen. Killary-Hillary bekennt sich zum Konflikt mit Russland. Gleichermassen tun Obama, die
+Medienhuren und die Führung der Demokraten und Republikaner alles in ihrer Macht stehende, um diejenige
+Person ins Oval Office zu bringen, die den Konflikt mit Russland am höchsten treibt.
+Das Leben auf dem Planeten liegt in den Händen dieser kriminellen Verrückten. Das ist die wirkliche humanitäre
+Krise.
+_erschienen am 16. Oktober 2016 auf > Paul Craig Roberts Website_
+_Quelle: http://antikrieg.com/aktuell/2016_10_17_diewirkliche.htm_
+
+### BKA-Bericht: Kriminelle Banden aus dem Ausland kontrollieren Deutschlands Unterwelt.
+_Veröffentlicht am 15. Oktober 2016 von DWD-Press_
+**Der Bericht zur Organisierten Kriminalität zeigt, dass zunehmend ausländische Banden die Unterwelt in**
+**Deutschland dominieren. Zwei Drittel der Tatverdächtigen sind ausländisch und bei 80 Prozent der Verfahren**
+**gibt es Verbindungen ins Ausland. Behördenchef Holger Münch warnt ausserdem davor, vermeintliche Klein-**
+**kriminalität wie Taschendiebstahl zu unterschätzen – auch dahinter steckten oft professionelle Banden.**
+Das Bundeskriminalamt hat einen neuen Bericht zur Organisierten Kriminalität in Deutschland vorgestellt.
+Eines der Ergebnisse lautet, dass die Organisierte Kriminalität vor allem von ausländischen Tätern dominiert
+wird. Etwa zwei Drittel der Tatverdächtigen kamen 2015 aus dem Ausland. Der Anteil der deutschen Tatverdächtigen sank im Vergleich zum Jahr davor leicht.
+Türkisch und deutsch dominierte Gruppen seien demnach vor allem im Drogengeschäft aktiv, während polnische
+Gruppen vor allem Diebstähle verübten.
+
+
+-----
+
+Viele der Banden seien in mehreren Ländern aktiv, so das BKA: Etwa 80 Prozent der Ermittlungsverfahren wiesen
+demnach ‹internationale Bezüge auf›. BKA-Chef Holger Münch sagte, die Gruppierungen seien ‹professionell,
+kommunizieren verschlüsselt oder anonymisiert und agieren international›.
+
+#### International organisierte Banden auf dem Vormarsch
+Der BKA-Chef warnte davor, dass Organisierte Kriminalität nicht immer als solche zu erkennen sei. Auch hinter
+Kleinkriminalität wie Taschendiebstahl könnten Banden stecken. Münch: «Kriminelle agieren mittlerweile
+stärker in Netzwerken. Diese kriminellen Netzwerke werden häufig als Klein- und Massenkriminalität wahrgenommen. Dahinter stehen aber vielfach international organisierte Banden, die ebenso in den Fokus unserer
+Bekämpfungsstrategien gehören wie die klassischen Formen der Organisierten Kriminalität.»
+Der BKA-Chef äusserte sich auch dazu, wie seine Behörde die Organisierte Kriminalität bekämpft: Man entwickle
+und nutze zum Beispiel Tools zur Auswertung von Massendaten, zur Überwachung verschlüsselter Kommunikation und zur Online-Durchsuchung. Ein weiteres Instrument sei die Vermögensabschöpfung, zum Beispiel
+indem die Behörden Vermögen unklarer Herkunft einziehen.
+_Quelle: https://dwdpress.wordpress.com/2016/10/15/bka-bericht-kriminelle-banden-aus-dem-ausland-kontrollieren-deutsch-_
+_lands-unterwelt/_
+
+### So verschwendet Ursula von der Leyen unsere Steuergelder
+_Von Michael Müller - 15. Oktober 2016_
+**Laut einem Bericht des Bundesrechnungshofs gibt das Verteidigungsministerium von Ursula von der Leyen**
+**hunderte Millionen für externe Berater aus. Nach Ansicht der Prüfer bedeutet das doppelte Arbeit und**
+**Verschwendung.**
+
+_Ursula von der Leyen steht viel Steuergeld zur Verfügung. (Screenshot: YouTube)_
+
+Der Bundesrechnungshof kritisiert Bundesverteidigungsministerin Ursula von der Leyen (CDU). Denn statt
+Ressourcen in ihrem Resort zu nutzen, beauftragt sie immer wieder für viele hundert Millionen Euro externe
+Berater.
+Die externen Berater würden sich ‹regelmässig auf planende und koordinierende Funktion› beschränken, zitiert
+die ‹BILD› aus dem Bericht des Bundesrechnungshofs. Die ‹zeitaufwändigen Erhebungen und Auswertungen›
+für die Berater müsse das Verteidigungsministerium dann aber selber leisten.
+
+#### Ursula von der Leyen zahlt 208 Millionen Euro
+Die teuren Aufträge an externe Berater bedeuten nicht nur doppelte Arbeit, sondern kosten den Steuerzahler viel
+Geld. Erst vor kurzem hat Ursula von der Leyen einen weiteren Beratervertrag für drei Jahre im Umfang von
+208 Millionen Euro ausgeschrieben. Damit soll der ineffiziente Rüstungsbereich der Bundeswehr auf Vordermann gebracht werden.
+Die Rechnungsprüfer empfahlen der Ministerin, auf externe Berater zu verzichten und die Arbeiten vollständig
+im eigenen Resort machen zu lassen. Das zuständige Bundesamt für Ausrüstung, Informationstechnik und
+Nutzung der Bundeswehr (BAAINBw) verfügt immerhin über 5200 Mitarbeiter.
+Das Verteidigungsministerium hat die Kritik des Bundesrechnungshofs als ‹zu pauschal› zurückgewiesen. Mit dem
+neuen Beratungsetat würden 2000 Rüstungsprojekte gemanagt. Eine Sprecherin zur ‹BILD›: «Ein professionelles
+Rüstungsmanagement, das in Engpässen auf externe Unterstützung zugreifen kann, spart unter dem Strich
+Geld.»
+_Quelle: https://www.berlinjournal.biz/ursula-von-der-leyen-externe-berater/_
+
+
+-----
+
+### ‹Die heilige Merkel gegen die Rassisten› – Oxford-Ökonom sieht Einheit der deutschen Gesellschaft in Gefahr
+_Epoch Times15. Februar 2016 Aktualisiert: 8. Juli 2016 0:34_
+Deutschland hilft den falschen Flüchtlingen, so Professor Paul Collier von der Universität von Oxford und hochgeschätzter Entwicklungsökonom. Es handele sich dabei hauptsächlich um junge Männer, ‹wohlhabend genug,
+um Tausende von Euro an Schlepper zu zahlen›. Ausserdem werden diese Männer beim Wiederaufbau in Syrien
+‹schmerzlich fehlen›.
+
+Diese Leute hätten alles verkauft, um nach Europa zu kommen. Dabei wäre die Reise einem Russischen Roulette
+ähnlich. Es zähle einzig das Recht des Stärkeren: «Wer nicht unterwegs ertrinkt, darf bleiben.»
+Deshalb schlägt er der deutschen Kanzlerin vor, ‹diejenigen, die es am nötigsten haben›, aus den Lagern in
+Jordanien und dem Libanon herauszufliegen.
+Sir Paul Collier ist ein führender Entwicklungsökonom und Professor an der Universität von Oxford, einer der
+ältesten und renommiertesten Universitäten der Welt und eine der fünf Super-Elite-Unis Grossbritanniens.
+
+#### Angela Merkels heiliger Feldzug
+Collier, der auch ehemals Leiter der Forschungsabteilung der Weltbank war, nannte die Politik der Bundeskanzlerin, alle Flüchtlinge nach Deutschland einzuladen, einen ‹kolossalen Fehler›.
+Zudem prangert er die Schwarz-Weiss-Malerei der Merkelschen Migrationspolitik an, vor allem im öffentlichen
+Diskurs mit dem Thema Flüchtlingskrise: «Die heilige Merkel gegen die Rassisten. Ich halte das für diffamierend»,
+so Paul Collier.
+Auch habe Angela Merkel ‹vorher offensichtlich überhaupt keine Vorbereitungen getroffen›, um den resultierenden Ansturm zu bewältigen, sagte Collier in der ‹Frankfurter Allgemeinen Sonntagszeitung›, berichtet der ‹Focus›.
+
+#### Multikulti zerstört gesellschaftliche Solidarität
+«Bevor Angela Merkel eine Heilige sein wollte, hat sie die Multikulti-Gesellschaft in Deutschland als gescheitert
+bezeichnet. Ich sehe nicht, warum sich das auf einmal geändert haben sollte», so der Ökonom.
+Nach Aussagen des Spezialisten sei es das ‹Wunder des Nationalstaates›, das eine gemeinsame Identität schaffe,
+die ‹Solidarität ermöglicht›. Dem wirkt ein Zuviel an Einwanderung entgegen.
+Der anhaltende Flüchtlingszustrom gefährde diesen klassenübergreifenden Zusammenhalt unter der einheimischen Bevölkerung. Die Reichen würden dann die Armen nurmehr als eine Gruppe ansehen, mit der sie nichts
+gemein haben und der sie auch nicht mehr durch Umverteilung helfen wollten. «Es gibt klare Anzeichen dafür,
+dass die Solidarität in Gesellschaften mit hohem Einwandereranteil rapide abnimmt», so der Oxford-Professor.
+_(sm)_
+_Quelle: http://www.epochtimes.de/politik/deutschland/die-heilige-merkel-gegen-die-rassisten-oxford-oekonom-sieht-einheit-_
+_der-deutschen-gesellschaft-in-gefahr-a1306911.html_
+
+### Auszug aus ‹Offener Brief›, Nr. 17 der FIGU
+**Billy:       … Diese Frau, die die Verantwortungslosigkeit selbst ist, leidet an Wirklichkeitsfremd-Naivität und**
+ist daher nicht fähig, die effective Wirklichkeit und deren Wahrheit wahrzunehmen, folglich sie weder die
+Realität zu erkennen noch sie zu beurteilen vermag, weil sie eben nicht urteilsfähig, jedoch gewissenlos machtbesessen ist. In dieser Weise verstösst sie bedenkenlos wider bestehende Gesetze, ohne dass sie von ihren ebenso
+machtgierigen und ihr hörigen unverantwortlichen Machtmitausübenden gestoppt wird. Also hat sie in dieser
+Weise ungehemmt die problematischen und unheilbringenden Flüchtlingsströme aus Afrika, dem Orient und
+aus Asien ins Leben gerufen und kann dies auch weiterhin tun, was noch schlimme Folgen für die EU-DiktaturStaaten und auch für die Schweiz bringen wird, wenn dem Handeln und Tun dieser Wahnbesessenen nicht endlich Einhalt geboten wird. Wenn also den diesbezüglich noch grösseren sich anbahnenden Problemen nicht
+schnell entgegengewirkt und die kriminellen Machenschaften der deutschen machtbesessenen Kanzlerin nicht
+gestoppt werden, dann ergibt sich noch sehr Schlimmes. Einerseits müsste diese regierungsunfähige Person aus
+dem Verkehr gezogen und anderseits auch der Schwachsinn der Schengen-Verträge aufgehoben und als null
+und nichtig erklärt werden. Und zwar müsste das in Beziehung dessen geschehen, dass umgehend die offenen
+Grenzen in allen europäischen Staaten wieder geschlossen und mit greifenden Grenzkontrollen in bezug auf
+alle Einreisenden gesichert werden müssten. Wird das nicht getan, dann ergibt es sich mit dem ganzen Flücht
+
+-----
+
+-----
+

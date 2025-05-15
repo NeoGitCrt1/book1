@@ -1,0 +1,1820 @@
+**L**
+
+**WESEN FREMDER WELTEN**
+
+# FIGU– BESUCHEN DIE ERDE
+
+**Freie**
+
+# ZEITZEICHEN Interessengemeinschaft
+
+**FIGU**
+
+## Aktuelles • Einsichten • Erkenntnisse r
+
+**Erscheinungsweise:** **Internetz: www.figu.org** **3. Jahrgang**
+**Sporadisch** **E-Brief: info@figu.org** **Nr. 64, Februar 2017**
+
+#### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+Laut ‹Allgemeine Erklärung der Menschenrechte› vom 10. Dezember 1948, Artikel 19, ‹Meinungs- und Informationsfreiheit›:
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die**
+**Freiheit, Meinungen unangefochten anzuhängen und Informationen und Ideen mit allen**
+**Verständigungsmitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Aussagen und Meinungen müssen nicht zwingend identisch sein mit Gedanken, Interessen, Lehre und Missionsgut der FIGU.
+
+### Die Verfassungsbrecher sind skrupellose Egoisten
+_Freitags-Kommentar vom 10.02.2017, von Ulrich Schlüer, Verlagsleiter ‹Schweizerzeit›_
+
+#### Massnahmen gegen die Masseneinwanderung: Frist abgelaufen
+Am 9. Februar 2017 ist die von Volk und Ständen den Bundesbehörden gesetzte dreijährige Frist zur Umsetzung
+des Volksentscheids gegen die Masseneinwanderung abgelaufen. Die Tatsache gewordene Nicht-Umsetzung ist
+nichts anderes als offener Verfassungsbruch.
+In wilder Nervosität präsentieren die Verfassungsbrecher Ausreden, Beschönigungen, Rechtfertigungen und
+Versuche, einen von ihnen anstelle der per Volksentscheid geforderten Umsetzung von Massnahmen gegen die
+Masseneinwanderung erfundenen ‹Inländervorrang light› als Alternative der Bevölkerung zu verkaufen. Eine
+‹Alternative›, die keine einzige der in der Verfassung verankerten Forderungen auch nur aufnimmt.
+
+#### Die Lüge von ‹den Bilateralen›
+Wir greifen eine dieser Rechtfertigungen heraus, jene von FDP-Präsidentin Petra Gössi. Im ‹Blick› vom 8. Februar
+wurde ihr folgende Frage gestellt: «Könnte die Schweiz ohne Personenfreizügigkeit wirtschaftlich bestehen?»
+Petra Gössis Antwort lautete wie folgt: «Die zentrale Frage ist: Können wir ohne die bilateralen Verträge wirtschaftlich bestehen? Hier ist die Antwort klar Nein – das kann unser Land nicht. Denn wir sind wie kaum ein
+anderes Land auf unsere Exportmärkte angewiesen. Dass die in unseren Nachbarstaaten liegen, ist klar. Unser
+Handel mit Baden-Württemberg ist beispielsweise gleich gross wie unser Handel mit den USA.
+Wer exportieren will, braucht Marktzugang. Die bilateralen Verträge garantieren das. Ohne
+Personenfreizügigkeit jedoch gibt es keinen bilateralen Weg.»
+In dieser, dem Argumentarium von Economiesuisse entnommenen Antwort stecken derart
+viele Falschbehauptungen, dass sich zunächst die Frage stellt: Hat Frau Petra Gössi überhaupt
+eine Ahnung vom existierenden Vertragsgeflecht zwischen der Schweiz und der Europäischen
+
+
+**Freie**
+
+
+-----
+
+Union? Falls sie über keine näheren Kenntnisse verfügt, sollte sie zum Thema schweigen. Ist ihr dieses Geflecht
+aber bekannt, dann muss sie sich vorwerfen lassen, in ihrem Interview einen ganzen Strauss von Unwahrheiten
+zu verbreiten. Als seinerzeitiges Mitglied der Aussenpolitischen Kommission des Nationalrats, welche die Aushandlung des bilateralen Pakets I und des bilateralen Pakets II mit der EU eng begleitet hat, sowie als seiner zeitiges Mitglied der Spezialkommission zum Personenfreizügigkeits-Vertrag kann ich die gültigen Einzelheiten
+zu diesem Vertragsgeflecht hier einmal mehr festhalten:
+
+#### Die Lüge vom Zugang zum EU-Binnenmarkt
+Alle Behauptungen, wonach die von Volk und Ständen beschlossenen Massnahmen gegen die Masseneinwanderung ‹die Bilateralen› insgesamt beseitigen und der Schweiz den Zugang zum EU-Binnenmarkt verschliessen
+würden, entbehren jeglicher Grundlage.
+Die Absage des Souveräns an die Masseneinwanderung verlangt vom Bundesrat, auf der Grundlage der im Personenfreizügigkeits-Vertrag enthaltenen Revisions-Klausel eine Neuverhandlung zu verlangen. Solch absolut
+vertragskonformes Vorgehen hat nichts, aber auch gar nichts mit Vertragskündigung oder Vertragsbruch zu tun.
+Die formelle Äusserung dieses Begehrens kann von der EU in keinem Fall mit Retorsionsmassnahmen quittiert
+werden.
+Nur sechs von insgesamt über hundert bilateralen Abkommen zwischen der Schweiz und der EU hängen mit der
+Personenfreizügigkeit aufgrund der sog. Guillotine-Klausel zusammen. Alle restlichen, weit über hundert bilateralen Abkommen zwischen der Schweiz und er EU würden selbst dann in Kraft bleiben, wenn das Abkommen
+über die Personenfreizügigkeit gekündigt würde – was der Volksentscheid vom 9. Februar 2014 nicht verlangt.
+Und keiner – und das ist von zentraler Bedeutung – der sieben Verträge des Pakets I der Bilateralen handelt vom
+Zugang der Schweiz zum EU-Binnenmarkt.
+Der zollfreie Zugang der Schweizer Industrie- und Handelsgesellschaften zum EU-Markt wird nicht durch die
+Bilateralen I, vielmehr durch das Freihandelsabkommen Schweiz-EU aus dem Jahr 1972 sichergestellt.
+
+#### Die Lüge bezüglich der wahren Motive
+Der Freihandelsvertrag von 1972 wird von keiner der beiden Vertragsparteien, also weder von der EU noch von
+der Schweiz irgendwie torpediert. Auch die EU attestiert diesem Freihandelsvertrag bestes, beiden Seiten gewichtige Vorteile sicherndes, Funktionieren. Der Vertrag ist durch von beiden Seiten bewusst und freiwillig eingegangene WTO-Verpflichtungen (Diskriminierungsverbot) solide abgesichert.
+Es stellt sich die Frage, was denn das wahre Motiv ist für die – von nahezu allen Medien bereitwilligst verbreitete –
+Behauptung, wonach das Verlangen nach Neuaushandlung der Personenfreizügigkeit ‹die Bilateralen› insgesamt
+annullieren würde. Auch dazu gehören die Tatsachen endlich auf den Tisch:
+Es geht Economiesuisse und dem Mitte-Links-Parteien-Kartell, die im Bündnis mit den Gewerkschaften die
+Umsetzung des Volksentscheids gegen die Masseneinwanderung hintertreiben, in keinerlei Art und Weise um
+die ‹Rettung der Bilateralen›. Diejenigen, die das behaupten, wissen genau, dass diese nicht gefährdet sind. Sie
+schlagen eine erfundene ‹Gefahr› breit, damit niemand auf die Idee kommt, endlich einmal die wahren Absichten
+hinter den Forderungen um Aufrechterhaltung der Masseneinwanderung unter die Lupe zu nehmen.
+Es geht den Erfindern des ganzen Lügengebildes nämlich einzig und allein um den Erhalt der Personenfreizügigkeit – also um das ungehinderte Weiterwuchern der uneingeschränkten Massenzuwanderung.
+
+#### Die Lüge von der Wohlstands-Vermehrung
+Damit wollen sie sich egoistisch den unbeschränkten Zuzug billiger Arbeitskräfte aus der EU erhalten – buchstäblich um jeden Preis. Damit sie teurere Schweizer Arbeitnehmer, vor allem Über-Fünfzigjährige, jederzeit
+ersetzen können.
+Insbesondere die grossen Konzerne profitieren enorm davon, dass sie einen unbedingt benötigten Spezialisten
+aus zwanzig oder noch mehr Bewerbern – aus allen Ländern Europas – auswählen können. Mit jenem, den ein
+Konzern schliesslich tatsächlich anstellt, erzielt dieser Konzern meistens gute Ergebnisse, also zusätzlichen
+Gewinn. Dieser Gewinn bleibt im Konzern. Er fliesst dessen Managern und Aktionären zu.
+Die nicht geeigneten, vom Konzern nicht benötigten Bewerber fallen, so sie nicht anderweitig unterkommen,
+dagegen den Steuerzahlern zur Last. Für Schulen, Spitäler, gute Gesundheitsversorgung, Strassen, öffentliche
+Verkehrsmittel, öffentliche Sicherheit, funktionierendes Gerichtswesen sowie für die aus dem Massenzuzug von
+Einwanderern explodierenden Kosten der Sozialapparate haben allein die Steuerzahler aufzukommen –
+während die Konzerne die Gewinne aus dem für sie äusserst vorteilhaften Massenzuzug für sich behalten.
+
+
+-----
+
+Um diesen, für die Konzerne gewinnträchtigen Automatismus langfristig abzusichern, verbreitet Economiesuisse – mit den meisten Medien im Schlepptau – unablässig die Behauptung, ‹alle› würden von der Masseneinwanderung profitieren. In Wahrheit werden die Steuerzahler masslos geschröpft für die aus dem Massenzuzug
+entstehenden Millionen-Kosten, während die Konzerne den Gewinn aus der freien Zuwanderung einstreichen.
+
+#### Die Lüge vom ‹Facharbeiter-Zuzug›
+Neuerdings wird – wiederum von den Medien breitgeschlagen – eine zusätzliche Behauptung in den Vordergrund
+geschoben: Die Masseneinwanderung gehe zurück. Es seien 2016 weniger Personen aus der EU eingewandert
+als in den Jahren zuvor. Dass dieses ‹Weniger› noch immer ein Vielfaches derer ausmacht, die uns anlässlich der
+Vertragsunterzeichnung zur Personenfreizügigkeit als zu erwartende Einwanderer vorausgesagt worden sind,
+verschweigen die meisten Medien allerdings. Sie verschweigen auch die deutliche Verlagerung bezüglich Herkunft
+der Einwanderer aus der EU: Kamen in den Jahren zuvor vor allem Einwanderer aus EU-Nordländern in die
+Schweiz, die als Gutverdienende der öffentlichen Hand kaum zur Last fielen, so kommen derzeit immer mehr
+Einwanderer aus den wirtschaftlich zugrunde gerichteten Ländern aus dem EU-Süden. Das sind keineswegs
+hochbezahlte Facharbeiter. Sie wandern in Berufe ein, in denen sie bestenfalls niedrige Löhne erzielen, allzu oft
+aber auch das Risiko laufen, baldiger Arbeitslosigkeit zu verfallen. Die Mär von der Facharbeiter-Einwanderung
+ist längst zusammengebrochen. Es verstärkt sich vor allem die Einwanderung in den Sozialstaat Schweiz.
+Und dafür haben die Steuerzahler, nicht die von der unbeschränkten Personenfreizügigkeit profitierenden
+Konzerne zu bluten.
+_Quelle: https://www.schweizerzeit.ch/cms/index.php?page=/news/die_verfassungsbrecher_sind_skrupellose_egoisten-3032_
+
+### Think-tank: Merkel ist für die Welt gefährlicher als Nordkorea!
+_14. Februar 2017_
+
+_Angela Merkel hat es unter die ersten drei grössten Gefahren für die Welt gebracht –_
+_gleich nach Donald Trump und China. Foto: Collage_
+
+Der amerikanische think-tank Eurasia Group veröffentlichte seine Liste der Top Risiken für 2017 und sieht
+Angela Merkel als eine der derzeit weltweit grössten Bedrohungen.
+Die blutigen islamischen Terrorattacken, die sinkende Unterstützung für ihre Politik und ihre Abkehr von ihren
+ursprünglich verkündeten Positionen werden zur Gefahr für die ganze Welt und für die Beziehungen von Staaten
+untereinander: «Merkel hat eine ganze Serie von neuen Herausforderungen geschaffen, die ihre Führungskraft
+schwächen. Erst wurde ihre Flüchtlingspolitik in Deutschland und darüber hinaus begrüsst, doch Terrorattacken
+und die vielen Übergriffe, verursacht durch Flüchtlinge, werden immer mehr zum Problem.
+Dazu kommen Krisen, die die grössten deutschen Unternehmen betreffen wie VW, Deutsche Bank und Lufthansa. Insgesamt sinkt durch ihre Politik europaweit der Wunsch nach einer stärkeren EU. Davon profitieren
+die populistischen Parteien. Merkels geopolitische Schlagkraft verpufft immer schneller», so die Studie.
+Auch fehle ihr nun die persönlich warmherzige Beziehung zu Ex-Präsident Obama. Trump schere sich nur
+wenig um ihre Belange.
+«Wenn nun auch noch das Klima zwischen den USA und Russland freundschaftlicher wird, werden andere
+europäische Staaten ihre Beziehungen zu Moskau wiederaufbauen.»
+Ob Brexit, Italien, Le Pen in Frankreich, die Zeichen für Merkel stehen schlecht.
+«Europa hat noch nie mehr als heute eine starke Angela Merkel gebraucht. Doch für diese Rolle ist sie 2017 nicht
+verfügbar,» so der Eurasia Group think-tank.
+
+
+-----
+
+_http://www.express.co.uk/news/world/766893/Merkel-Germany-biggest-SECURITY-RISKS-2017-North-Korea-Donald-Trump_
+_Quelle: http://www.journalistenwatch.com/2017/02/14/think-tank-merkel-ist-fuer-die-welt-gefaehrlicher-als-nordkorea/_
+
+### In Syrien lebender christlicher Priester über die Lügen westlicher Medien – «Ohne Putins Eingreifen wären wir jetzt vermutlich alle tot»
+_RT Deutsch; Sa, 11 Feb 2017 16:30 UTC_
+
+_© Sjoerd Mouissie_
+
+_Der flämische Pater Daniël Maes (78) lebt in Syrien in dem aus dem sechsten Jahrhundert stammenden Kloster Mar_
+_Yakub in der Stadt Qara, 90 km nördlich der Hauptstadt Damaskus. Laut ihm sind die westlichen Berichte über den_
+_Konflikt sehr irreführend. Sein Resümee: «Die Amerikaner und ihre Alliierten wollen das Land völlig ruinieren.»_
+
+_Sie stehen der Medienberichterstattung über Syrien sehr kritisch gegenüber. Was stört Sie daran?_
+**Pater Daniël: «Die Vorstellung, dass ein Volksaufstand gegen Präsident Assad stattgefunden hat, ist total falsch.**
+**Ich war in Qara seit 2010 und habe mit meinen eigenen Augen gesehen, wie Agitatoren von ausserhalb Syriens**
+**Proteste gegen die Regierung organisierten und junge Menschen rekrutierten. Das wurde gefilmt und ausge-**
+**strahlt von Al Jazeera, um den Eindruck zu vermitteln, dass eine Rebellion im Gang war. Morde wurden von**
+ausländischen Terroristen gegenüber sunnitischen und christlichen Gemeinschaften begangen in der Absicht,
+religiösen und ethnischen Unfrieden unter den Menschen Syriens zu verbreiten. Meiner Erfahrung nach waren
+die Menschen in Syrien in Wirklichkeit untereinander sehr vereint.
+Vor dem Krieg war Syrien ein harmonisches Land: Ein säkularer Staat, in dem verschiedene religiöse Gemeinschaften friedlich Seite an Seite lebten. **Es gab kaum Armut, Bildung war kostenlos und die medizinische**
+**Versorgung war gut. Es war nur nicht möglich, frei seine politischen Ansichten zu äussern. Aber den meisten**
+Menschen war das egal.»
+
+_Schwester Agnès-Mariam aus Ihrem Kloster ‹Sankt Jakob› wird beschuldigt, an der Seite des Regimes zu stehen. Sie_
+_hat dort Freunde auf höchster Ebene._
+**Pater Daniël: «Schwester Agnès-Mariam hilft der Bevölkerung: Sie hat vor kurzem eine Suppenküche in Aleppo**
+eröffnet, in der fünfmal pro Woche 25000 Mahlzeiten zubereitet werden. Schauen Sie, es ist ein Wunder, dass
+**wir überhaupt noch leben. Wir verdanken das der Armee der Regierung Assads und Vladimir Putin, weil dieser**
+**sich entschlossen hat zu intervenieren, als die Rebellen die Macht zu übernehmen drohten.**
+Als Tausende von Terroristen sich in Qara niederliessen, fürchteten wir um unser Leben. Sie kamen aus den
+Golfstaaten, Saudi-Arabien, Europa, Türkei, Libyen, es gab viele Tschetschenen. Sie bildeten eine ausländische
+Besatzungsmacht und waren allesamt mit al-Quaida und anderen Terroristen verbündet. Vom Westen und
+**seinen Alliierten bis an die Zähne bewaffnet, mit der Absicht, gegen uns vorzugehen, sagten sie buchstäblich:**
+‹Dieses Land gehört jetzt uns.› Oft standen sie unter Drogen, kämpften gegeneinander, am Abend schossen sie
+wahllos herum. Wir mussten uns lange Zeit in den Grabgewölben des Klosters verbergen. Als die syrische Armee
+sie verjagte, waren alle froh: Die syrischen Bürger, weil sie die ausländischen Rebellen hassen, und wir, weil der
+Frieden zurückgekehrt war.»
+
+_Sie sagen, dass die syrische Armee die Zivilbevölkerung beschützt, dennoch gibt es alle Arten von Berichten über_
+_Kriegsverbrechen, die von Assads Kräften begangen werden, zum Beispiel Bombardierungen mit Fassbomben._
+**Pater Daniël: «Wissen Sie nicht, dass die Medienberichterstattung über Syrien die grösste Medienlüge unserer**
+Zeit ist? Sie haben reinen Unsinn über Assad verbreitet. Es waren in der Tat die Rebellen, die plünderten und
+
+
+-----
+
+**töteten. Glauben Sie, die Menschen in Syrien sind dumm? Glauben Sie, dass diese Menschen gezwungen wur-**
+den, für Assad und Putin zu jubeln? Es sind die Amerikaner, die ihre Hände überall drin haben, wegen Pipelines
+und Rohstoffen in dieser Region und um Putin auszubremsen.
+Saudi-Arabien und Qatar wollen in Syrien einen sunnitischen Staat errichten, einen Staat ohne Religionsfreiheit. Deswegen muss Assad gehen. Wissen Sie, als die syrische Armee sich auf die Schlacht in Aleppo vorbereitete,
+kamen muslimische Soldaten zu mir, um sich segnen zu lassen. Unter einfachen Moslems und Christen gibt es
+kein Problem. Es sind diese radikalen vom Westen unterstützten Rebellen, die uns umbringen wollen. Sie
+gehören alle zu al-Quaida und IS. Es gibt keine gemässigten Kämpfer.»
+
+_Sie sagten einmal, dass Hillary Clinton ein ‹Teufel in heiligem Wasser› ist, weil sie als Aussenministerin ganz bewusst_
+_den Konflikt verschlimmerte._
+**Pater Daniël: «Ich bin froh über Trump. Er sieht, was jeder normale Mensch versteht: Dass die Vereinigten**
+Staaten von Amerika aufhören sollten, Länder zu unterminieren, die natürliche Ressourcen besitzen. Der Versuch der Amerikaner, eine unipolare Welt aufzubauen, ist das grösste Problem. Trump versteht, dass der radikale
+Islam eine grössere Gefahr darstellt als Russland.
+Was kümmert es mich, ob er gelegentlich seine Hose herunterlässt? Wenn Trump die Weltpolitik in der Art
+**betreibt, wie er es versprochen hat, dann schaut die Zukunft gut aus. Dann wird sie derjenigen ähnlich werden,**
+**die Putin anstrebt. Und es ist zu hoffen, dass es dann eine Lösung für Syrien geben und dass der Frieden zurück-**
+kehren wird.»
+
+_Sie wissen schon, dass Ihre Analyse strittig ist und viel Kritik hervorrufen wird?_
+**Pater Daniël: «Ich spreche aus persönlicher Wahrnehmung. Und niemand muss mir glauben, stimmt’s? Aber**
+ich weiss eines: Die Medien können mit ihrer Berichterstattung entweder zum Massaker am syrischen Volk
+**beitragen, oder sie können dem syrischen Volk helfen. Leider gibt es zu viele Mitläufer und Feiglinge unter**
+**den Journalisten.»**
+_Quelle:_ _https://de.sott.net/article/28189-In-Syrien-lebender-christlicher-Priester-uber-die-Lugen-westlicher-Medien-Ohne-_
+_Putins-Eingreifen-waren-wir-jetzt-vermutlich-alle-tot_
+
+### Bargeldabschaffung: EU-Kommission will neue Regelungen für die ganze Union einführen
+_10. Februar 2017_
+Wir sind es ja inzwischen gewohnt, dass bestimmte Dinge nicht an prominenter Stelle in der Hochleistungspresse
+zu finden sind (wenn überhaupt) und auch dass unsere Politiker gerne Dinge dann verabschieden, wenn die
+Massen durch irgendwelche Grossereignisse (Fussball, Olympia usw.) abgelenkt sind. Zwar findet derzeit keine
+Weltmeisterschaft oder ähnliches statt, aber nichtsdestotrotz hat die Europäische Kommission still und heimlich
+die nächste Stufe im Bestreben das Bargeld abzuschaffen gezündet. Brüssels ungewählte Bürokraten wollen
+jedwede Form von Bargeldtransaktionen in der EU gen Null fahren. Eine Entwicklung, die Kritiker seit Jahren
+befürchtet haben, verfestigt sich immer mehr.
+Durch die entstandenen und weiterhin befürchteten Instabilitäten aufgrund des Brexits (das ist wohlgemerkt
+deren Argumentation, nicht die meinige) wollen die europäischen Regierungen als Erfüllungsgehilfen der
+dahinterstehenden Finanzinteressen ihre Kontrolle über das Bargeld erweitern. Frankreich und Spanien haben
+bekanntlich bereits Bargeldobergrenzen eingeführt, aber die EU-Kommission will jetzt unilateral Regeln einführen, die die ganze EU betreffen.
+Im ‹Aktionsplan der Kommission› findet man zwar derzeit (noch) keine konkreten Euro-Bargeldobergrenzen,
+aber schwammig formulierte Gesetze oder Regelungen sind immer Einfallstore für alles Erdenkliche und Nicht erdenkliche. Begründet wird dieser Vorstoss (neben dem Brexit, siehe oben) wieder einmal mit Geldwäsche/
+Schwarzgeld und dem Lieblingsablenkungsthema unserer Zeit, dem Terrorismus bzw. die Finanzierung desselben.
+Dass die seit längerem wieder eingeführten Grenzkontrollen den neuen Regelungen hilfreich _‹assistieren›_ –
+gerade wenn es um physische Wertgegenstände geht –, ist nur so etwas wie das Sahnehäubchen obenauf.
+Negative Zinsen und eine hohe Inflation sind zusammen eine tödliche Kombination, die die bereits schwächelnde und instabile _EU weiter destabilisieren könnte. Wenn aber weniger Bargeld zirkuliert, dann können die_
+Menschen dem nicht entfliehen, und somit können die Massnahmen seitens der EZB einen grösseren Hebel
+
+
+-----
+
+entwickeln. Bank-Runs oder das Horten von Bargeld ist in einer bargeldlosen Gesellschaft nicht mehr möglich.
+Da dann zudem die Vermögenswerte der Menschen unter einer zentralisierten Kontrolle stehen, können die
+Banken und die Staaten Gelder nach Gutdünken überall dort einsetzen, wo es hilft, die darunterliegenden
+Probleme des Schuldgeldsystems zu kaschieren.
+Seit der ehemalige Chefökonom des IWF, Kenneth Rogoff, im letzten Jahr forderte, dass der 100 US-DollarSchein abgeschafft werden muss, haben sich die Regierungen weltweit fast überschlagen, um ganz vorne an der
+Spitze der Bargeldabschaffer zu sein. Wobei Indien derzeit einsam an der ersten Stelle steht. Rogoff vor einem
+Jahr:
+«Es gibt nur wenige Diskussionen in den Strafverfolgungsbehörden, dass die Papierwährung, vor allem grosse
+Noten wie der 100 US-Dollar-Schein, das Verbrechen erleichtern: Organisiertes Verbrechen, Erpressung, Geldwäsche, Drogen- und Menschenhandel, Korruption von Beamten und Terrorismus. Es gibt (aber) Ersatz für
+das Bargeld – Kryptowährungen, ungeschliffene Diamanten, Goldmünzen, Prepaid-Karten –, aber für viele Arten
+von kriminellen Transaktionen ist Bargeld noch König. Es bringt absolute Anonymität, Portabilität, Liquidität
+und nahezu universelle Akzeptanz mit sich.»
+(There is little debate among law-enforcement agencies that paper currency, especially large notes such as the
+U.S. $100 bill, facilitates crime: racketeering, extortion, money laundering, drug and human trafficking, the
+corruption of public officials, not to mention terrorism. There are substitutes for cash—cryptocurrencies, uncut
+diamonds, gold coins, prepaid cards—but for many kinds of criminal transactions, cash is still king. It delivers
+absolute anonymity, portability, liquidity and near-universal acceptance.)
+Wir wissen heute, dass nur wenige Monate nach der Forderung Rogoffs der 500 Euro-Schein einkassiert wurde
+und dass in Indien die 500er und 1000er Rupie-Scheine eingezogen wurden. Die einzelnen Schritte mögen
+isoliert betrachtet unwichtig erscheinen, aber das verfolgte Endziel ist ganz klar sichtbar: Eine bargeldlose
+Gesellschaft, die vollkommen hilflos einem Netzwerk ökonomischer Repressalien unterworfen sein wird.
+In Deutschland mag scheinbar noch alles in Ordnung sein (knapp 80%iger Einsatz von Bargeldzahlungen bei
+Transaktionen), aber auch der Finanzminister Schäuble ist ein massiver Freund und Unterstützer der Brüsseler
+Forderungen.
+Viele Menschen versuchen gerade diesen Zwängen des Fiat-Geldes zu entkommen und investieren in neue,
+alternative Investmentformen wie Bitcoin, das in den letzten Monaten einen fulminanten Zuwachs verzeichnen
+konnte. Doch seien Sie gewarnt: Natürlich will die EU-Kommission auch dieses (noch) unabhängige System
+kontrollieren und versucht gerade ähnliche Beschränkungen wie beim Bargeld auf Kryptowährungen auszuweiten. Schliesslich muss verhindert werden, dass irgendeine Transaktion aus dem Zugriffsbereich der Banken
+entkommen kann. So arbeiten die EZB und die Bank of Japan derzeit gemeinsam an einem Trojanischen Pferd
+eines Blockchain-Netzwerks, das diejenigen ‹einfangen› soll, die naiv genug sind, diesen beiden Institutionen zu
+vertrauen.
+Larry Summer, Ex-Finanzminister der USA, schrieb ebenfalls im letzten Jahr, dass er Vereinbarungen bevorzugt,
+die besagen, dass es keine Banknoten grösser als 50 oder 100 US-Dollar geben soll:
+«Besser noch als einseitige Massnahmen in Europa wäre eine globale Vereinbarung, um die Ausgabe von Noten
+im Wert von mehr als 50 oder 100 Dollar zu stoppen. Eine solche Vereinbarung wäre so bedeutend wie alles andere, was die G7 oder G20 in den letzten Jahren getan haben. (…) Allgemeiner gefasst, in einer Zeit, in der eine
+solche Demonstration dringend erforderlich ist, würde eine globale Vereinbarung, die Ausgabe von Notierungen
+mit hoher Stückelung aufzugeben, auch zeigen, dass die globalen Finanzkonzerne gegen das ‹grosse Geld› und
+für die Interessen der einfachen Bürger aufstehen können.
+(Even better than unilateral measures in Europe would be a global agreement to stop issuing notes worth more
+than say $50 or $100. Such an agreement would be as significant as anything else the G7 or G20 has done in
+years. […] More generally, at a time when such a demonstration is very much needed, a global agreement to
+stop issuing high denomination notes would also show that the global financial groupings can stand up against
+_„big money“ and for the interests of ordinary citizens.)_
+Neben der richtig gelungenen, ironischen Formulierung ‹big money and for the interests of ordinary citizens›,
+wird für mich eines ganz klar: Es ist nur noch eine Frage der Zeit, bis wir die ersten Forderungen hören werden,
+dass der grösste Euroschein ein 20er, maximal ein 50er sein darf. Und was danach kommt, können wir gerade
+live und in Farbe am ‹lebenden Objekt› Indien sehen.
+_Quellen:_
+_Cash No Longer King: Europe Moves To Begin Elimination Of Paper Money_
+_Limit for cash payments in EU_
+
+
+-----
+
+_INCEPTION IMPACT ASSESSMENT_
+_EU to boost border checks on cash, gold to tackle „terrorism financing“_
+_Inflation in Venezuela seen hitting 1,500% in 2017 as crisis goes from bad to worse_
+_QE Should Only Be Emergency Tool, ECB Board Member Says_
+_The Sinister Side of Cash_
+_500-Euro Banknote Being Phased Out_
+_German plan to impose limit on cash transactions met with fierce resistance_
+_Bitcoin is still storming higher_
+_European Commission Eyes Transaction Limits on Digital Currencies_
+_BOJ, ECB team up on blockchain research_
+_It’s time to kill the $100 bill_
+_4 Reasons why Bitcoin represents a new asset class_
+_Quelle:_ _https://www.konjunktion.info/2017/02/bargeldabschaffung-eu-kommission-will-neue-regelungen-fuer-die-ganze-_
+_union-einfuehren/_
+
+### Bargeldabschaffung: Die biometrische Erfassung der Menschen schreitet weltweit voran
+_6. Februar 2017_
+In den letzten Wochen habe ich mehrere Artikel zu Indien und der dort stattfindenden Bargeldabschaffung in
+Kombination mit der biometrischen Erfassung der Bevölkerung (Aadhaar) geschrieben.
+Zwischenzeitlich werden die Zusammenhänge zwischen der angestrebten Bargeldabschaffung und der biometrischen Identifikation der Menschen immer klarer. Die Regierungen versuchen weltweit die bargeldlose Gesellschaft
+einzuführen, die dann per biometrische Merkmale wie Fingerabdruck oder Iris Scan ihre täglichen Trans aktionen legitimieren soll.
+So wurde letzte Woche bekannt, dass eines der Schlüsselgremien, die der indischen Regierung bei der Implementierung des gewollten ‹digitalen Bezahlökosystems› (das übriges durch niemand geringerem als der USAid
+gesponsert wird) als Berater zur Seite steht, der indischen Regierung rät, dass diese die nationale biometrische
+Identifikationsdatenbank mit den Steuerrückerstattungen verbindet. Ergo, ohne eine solche ID kann also
+zukünftig in Indien niemand mehr seine Steuer erstellen oder gar auf Rückerstattung hoffen.
+Doch damit noch nicht genug. Indien soll an einem biometrischen Bezahlsystem arbeiten, das in direkter Verbindung zur persönlichen ID-Nummer (siehe Aadhaar) eines jeden Bürgers steht. Also genau das, was Kritiker
+schon seit längerem befürchtet haben.
+Wir erleben gerade weltweit die Transformation einer Bargeldgesellschaft in eine bargeldlose, die dann mittels
+eines biometrischen ID-Netzes in ein bargeldloses Biometrienetz gezwungen wird, in dem jeder per Knopfdruck
+_‹finanziell ausgeschaltet› werden kann. Es handelt sich in meinen Augen um einen koordinierten weltweiten_
+Plan, ein biometrisches ID-System einzuführen, um jeden Menschen auf der Welt kontrollieren, überwachen
+und damit steuern zu können. Abgesehen davon, dass das Schuldgeldsystem zum weiteren Überleben das Bargeld abschaffen muss.
+Wenn man sieht, wie schnell die neuen biometrischen Datenbanken weltweit eingeführt werden, erkennt man,
+dass es sich nicht nur um Indien handelt, das hier ‹vorbereitet› wird, in eine bargeldlose, überwachte Gesellschaft
+transformiert zu werden:
+– Albanien: Seit 2009 Ausgabe einer biometrischen ID-Karte inkl. Fingerabdruck und einem digitalen Foto
+neben weiteren biometrischen Daten.
+– Australien: Seit 2005 Ausgabe biometrischer Reisepässe, Einsatz von Fingerabdrücken in Schulen zur An wesenheitskontrolle.
+– Bermuda: Seit Juni 2016 Ausgabe biometrischer Reisepässe, die in Grossbritannien hergestellt/gedruckt
+werden.
+– Bolivien: Bereits 2009 Einsatz einer Wählerliste beruhend auf biometrischen Daten; 2016 Durchführung
+eines Zensus inkl. Erfassung biometrischer Daten.
+– Bulgarien: Seit März 2010 Ausgabe biometrischer Ausweise, Reisepässe und Führerscheine.
+– Brasilien: Seit 2011 Ausgabe biometrischer ID-Karten sowie die biometrische Erfassung aller Wähler für
+zukünftige Wahlen.
+– Chad: EU fördert ein Programm zur biometrischen Erfassung aller Flüchtlinge bzw. Rückkehrer.
+– Chile: Seit 2013 Ausgabe einer eID-Card, die Fingerabdrücke und Gesichtserkennungsmerkmale beinhaltet.
+
+
+-----
+
+– China: 2016 Einführung des ersten biometrischen Einreisesystems, das am Flughafen Boarding Passes mit
+den Gesichtern verknüpft.
+– Deutschland: Seit 2005 Ausgabe biometrischer Reisepässe (derzeit noch freiwillig) und seit 2011 Ausgabe
+biometrischer Aufenthaltsgenehmigungen inkl. eines digitalen Bildes und zweier Fingerabdrücke.
+– Finnland: Seit 2012 Ausgabe biometrischer Aufenthaltsgenehmigungen inkl. digitalem Foto und zweier
+Fingerabdrücke
+– Frankreich: Seit 2009 Ausgabe eines biometrischen Reisepasses inkl. Digitalbild und acht Fingerabdrücken.
+– Griechenland: Einführung einer biometrischen ID noch in diesem Jahr.
+– Grossbritannien: Blair und Brown planten ein Nationales Identitätsregister und ein ID-Card-System, die auf
+massiven Widerstand trafen, daher derzeit nur biometrische Erfassung der ausländischen Einwohner des
+Landes; jedoch Ausgabe eines biometrischen Reisepasses.
+– Indien: Biometrische Erfassung aller Bürger (Fingerabdrücke und Iris Scans).
+– Irak: Seit 2016 Ausgabe einer nationalen ID-Karte mit biometrischen Merkmalen
+– Israel: 2009 Verabschiedung des Biometric Database Law zur Implementierung einer nationalen biometrischen ID-Datenbank; Juli 2016 Abschluss der Testphase.
+– Japan: Seit 2007 Zwangsabgabe Fingerabdrücke und Digitalbild bei der Einreise; geplante Einführung eines
+biometrischen Bezahlsystems.
+– Jemen: 2014 Bekanntgabe der Regierung, eine biometrische Wahlplattform einsetzen zu wollen, die bei den
+nächsten Wahlen und Referenden eingesetzt werden soll.
+– Kanada: Grenzkontrollprogramm (Kanada-USA) _NEXUS zur Identifizierung der Reisenden mittels Iris_
+Scans; seit 2015 müssen alle Einreisenden nach Kanada Fingerabdrücke und digitale Fotos abgeben.
+– Kenia: Seit 2012 Erfassung der Wähler mittels biometrischer Daten; seit 2015 Einführung eines biometrischen
+Registrierungssystems für alle Bürger ab 12 Jahren.
+– Kuwait: 2015 Verabschiedung eines Gesetzes, dass alle Bürger und Besucher des Landes DNA-Proben für
+eine nationale Datenbank bereitstellen müssen; aufgrund massiver Proteste gab der Emir von Kuwait im
+Oktober 2016 bekannt, dass man eventuell das Gesetz nochmals überarbeiten wolle.
+– Luxemburg: Entsprechend den EU-Vorgaben gibt das Land nur noch biometrische Reisepässe inkl. Digitalbild, zweier Fingerabdrücke und einer digitalen Unterschrift aus.
+– Mexiko: Seit 2011 Ausgabe von biometrischen ID-Karten an alle Kinder zwischen 4 und 17 Jahren inkl. einem
+Digitalbild, einem Fingerabdruck und einem Iris Scan; es ist geplant, dies auf die gesamte mexikanische
+Bevölkerung auszuweiten.
+– Niederlande: Seit 2009 Ausgabe biometrischer Reisepässe inkl. digitalem Foto und Fingerabdrücken (Er fassung von acht Fingerabdrücken, obwohl die EU nur zwei fordert).
+– Neuseeland: Seit 2011 ‹Voice ID› zur Identifizierung der ‹Kunden der Regierung› mittels Spracherkennung;
+2015 haben sich bereits 1,4 Mio. der 6,1 Mio. Steuerzahler dafür registriert.
+– Nigeria: Abschluss eines Vertrages mit der Firma Bio-Metrica zur Erfassung der Fingerabdrücke und Gesichts erkennungsdaten für den 2018er Zensus.
+– Paraguay: Seit 2009 Daumenabdruck und Digitalbild bei Reisepässen und ID-Karten.
+– Peru: 2016 Bekanntgabe eines 3-Jahres-Programms zur Ausgabe von 1,6 Mio. biometrischer Reisepässe.
+– Sambia: 2015 Bekanntgabe für biometrische nationale Registrierungskarten für die Wahlen 2016.
+– Saudi-Arabien: Seit 2015 Speicherung biometrischer Daten (inkl. Fingerabdrücke) aller Bürger in einem
+zentralen System; ebenfalls seit 2015 Einführung einer biometrischen Grenzkontrolle.
+– Sierra Leone: 2017 biometrische Erfassung aller Wähler für die Wahlen 2018 zum Aufbau eines Wählerverzeichnisses.
+– Südkorea: Seit 2012 Erfassung der Fingerabdrücke und Digitalbilder der meisten einreisenden Ausländer.
+– Schweiz: Seit 2010 Ausgabe eines biometrischen Reisepasses inkl. zweier Fingerabdrücke und eines Digitalfotos.
+– Ukraine: Seit 2012 verpflichtender Besitz eines biometrischen Reisepasses.
+– USA: Exekutive Order vor wenigen Tagen von Donald Trump zur Errichtung eines biometrischen Ein-/Ausreisesystems; seit Jahren Erfassung der Fingerabdrücke von Ausländern bei der Einreise mit Speicherung der
+Daten für 75 Jahre (!); zudem Ausgabe biometrischer Reisepässe und das Programm NEXUS (siehe Kanada).
+– Uruguay: 2013 Ausschreibung für eine neue _‹eID-Lösung›; seit 2014 arbeitet die Firma_ _Gemalto an der_
+Umsetzung.
+– Zimbabwe: 2017 Beginn der biometrischen Erfassung aller Wähler in einem Register für die Wahlen 2018.
+Schöne neue Welt …
+
+
+-----
+
+_Quellen: The Biometric ID Grid: A Country-by-Country Guide_
+_Episode 313 – Demonetization and You_
+_Indian Government Mulls Linking Biometric ID Program to Tax Returns_
+_A well-kept open secret: Washington is behind India’s brutal experiment of abolishing most cash_
+_Indian govt to launch Aadhaar Pay service_
+_The War on Cash: A Country by Country Guide_
+_Quelle: https://www.konjunktion.info/2017/02/bargeldabschaffung-die-biometrische-erfassung-der-menschen-schreitet-welt-_
+_weit-voran/_
+
+### Im April werden wir keine Kanzlerin Merkel mehr haben
+_Posted on Februar 9, 2017 11:26 pm by admin_
+
+«Im April werden wir keine Kanzlerin Merkel mehr haben.» Eine kühne Behauptung. Wer solch eine Vorhersage
+trifft, muss sehr überzeugt von seinen seherischen Fähigkeiten sein, könnten diese doch in einem Vierteljahr
+schon widerlegt werden. Oder aber die Prognose entspringt mehr einem Wunschdenken: Hoffentlich ist es im
+April vorbei …!
+Egal aus welcher Motivation heraus, der Satz soll genau so – das bestätigen mehrere Quellen – bei vertraulichen
+Gesprächen im Bundestag gefallen sein. Mehrfach. Geäussert über das baldige politische Ende Angela Merkels
+habe sich so auch kein x-beliebiger Hinterbänkler, sondern ein gutvernetzter Unionsabgeordneter mit Arbeitsplatz in der Bundesregierung.
+Einer, der äusserlich bisher keinen Zweifel an seiner Loyalität aufkommen liess, innerlich aber kocht. Über die
+Asylkrise, die zur Staatskrise wurde. Und vor allem über die Person, die dafür politisch verantwortlich ist.
+
+#### Merkel, die Isolierte
+Kommen die Einschläge also näher? Merkel, die Isolierte. Ohne politische Verbündete. Ohne Unterstützung in
+Europa; schon gar nicht in der CSU – und nun wächst die Zahl der Kritiker auch in der eigenen Partei sowie
+beim Koalitionspartner SPD. Zeit für die Merkel-Dämmerung?
+Unsinn, wiegeln die Beschwichtiger ab. Alles nur Geraune, niemand steht als Königinmörder bereit, schon gar
+nicht Wolfgang Schäuble, dem man die Nachfolge noch am ehesten zutraut. «Die meisten Kritiker wollen einen
+anderen Kurs, keine andere Kanzlerin», weiss Nikolaus Blome vom Nah-dran-Blatt ‹Bild›.
+
+#### Wendepunkt ‹europäische Lösung›?
+Ein alternatives Szenario zum vorzeitigen politischen Aus der Angela Merkel lautet wie folgt: Nicht die Amtszeit
+der Kanzlerin endet vorzeitig, sondern nur ihre aktuelle Politik. Merkels Exit-Strategie beginne nach dem EUGipfel am 18. Februar. Auf ihm wird sie sich aller Wahrscheinlichkeit nach nicht mit ihrer ‹europäischen Lösung›
+samt verbindlicher Flüchtlingskontingente durchsetzen können.
+Das, so eine Prognose, werde ihr die Gelegenheit zum Umschwenken in Richtung der Forderungen von Innenpolitikern sowie CSU ermöglichen. Nach dem Motto: Seht her, ich habe alles in meiner Macht Stehende versucht,
+doch die anderen wollten nicht mitziehen; nun muss auch ich notgedrungen auf die ‹nationale Karte› setzen.
+
+#### Absolute Mehrheiten gehören der Vergangenheit an
+Dass es in den Reihen der Union mächtig brodelt, wird von niemandem ernsthaft bestritten. Die Fraktion ist
+voll mit Leuten, die ihr Mandat einzig und allein dem furiosen Abschneiden bei der Bundestagswahl 2013 verdanken. Rutscht die Partei in der Wählergunst weiter ab, ist für viele die Karriere vorbei.
+
+
+-----
+
+Die Asylkrise wird dann ‹zur Agenda 2010 der CDU werden›, schrieb Alexander Grau jüngst treffend im ‹Cicero›:
+«Absolute Mehrheiten werden der Vergangenheit angehören und die CDU in grosse Koalitionen mit einer marginalisierten SPD zwingen, in schwarz-grüne Koalitionen oder in unkontrollierbare Mehrparteienregierungen.
+Allesamt unattraktive Optionen, die konservative Wähler noch stärker abschrecken und die AfD weiter stärken
+werden. Ein Teufelskreis.» Insofern dürften sich auch die nicht ganz unwahrscheinlichen Wahlerfolge im März
+in Stuttgart und Mainz für die CDU bei näherer Betrachtung als Pyrrhussiege herausstellen.
+
+#### AfD als Menetekel
+Praktisch die gesamte Ära Merkel ist davon geprägt, dass sich viele der vormals treuesten Wähler von der Partei
+abwenden. Das war für die Parteichefin und ihr Umfeld aus ‹Modernisierern› bisher nicht weiter problematisch;
+wegen der zeitweiligen Zugewinne tendenziell ungebundener Neuwähler, wegen der Marginalisierung der SPD –
+und weil ein parteipolitischer Rechtsruck konservativer Wählergruppen ausblieb.
+Genau der wird nun in Form der AfD für die Christdemokratie zum Problem. Gebe die Union die rechte Mitte
+auf, «lädt sie eine neue Partei dazu ein, diese Marktlücke zu schliessen. Und dann gute Nacht, Union», unkte
+bereits vor knapp neun Jahren der frühere Parteiintellektuelle Wulf Schönbohm.
+
+#### Aufgabe der Mitte
+So gesehen ist es tatsächlich Zeit, Abschied zu nehmen. Ob von Angela Merkel als Regierungschefin, sei dahingestellt. Wahrscheinlich aber von der CDU als einer Volkspartei. Auch darin dürfte sie der SPD etwas zeitverzögert folgen. Mit dem Slogan, die ‹Volkspartei der Mitte› zu sein, konnte die Union noch bis zuletzt erfolgreich
+werben – sogar in vormals sozialdemokratischen Milieus.
+Denn Mitte, das bedeutet auch jenseits einer klar definierten politischen Standortangabe Ruhe und Stabilität,
+sachorientierte, nicht ideologische Politik, Überschaubarkeit statt Utopie. Mitte, ein ‹Bollwerk des Bestehenden›.
+Wer möchte ernsthaft behaupten, Merkels aktuelle Politik werde diesem Grundbedürfnis gerecht?
+
+#### Hofiert nur von ‹Progressiven›
+Es ist schon erstaunlich: Dort wo man normalerweise die Kritik am Regierungshandeln einer christdemokratischen Kanzlerin am ehesten verorten würde – nämlich weit links –, erfährt Merkel noch die meiste Zustimmung,
+ja zum Teil sogar Bewunderung. Bei ‹progressiven› Kommentatoren, bei Künstlern, Kirchenleuten, Vertretern
+der ‹Zivilgesellschaft›. Während ‹rechts›, also für die traditionell eher staatstragenden Bürgerlichen oder Konservativen die herrschenden (Macht-)Verhältnisse immer unerträglicher werden. Verkehrte Welt. Auf die Dauer
+kann das nicht gutgehen. Egal, ob Merkel nun im April noch Kanzlerin ist oder nicht.
+Denn fast schon verzweifelt rief die konservative Unionsabgeordnete Erika Steinbach über den Kurznachrichtenkanal Twitter in Erinnerung: «Es geht bei der Zuwanderung nicht um die Bundeskanzlerin, nicht um CDU/CSU
+oder Bundestag. Es geht um Deutschland!» Leider hat es den Anschein, dass dies nur einer Minderheit ihrer
+Kollegen bewusst ist.
+_Quelle: Junge-Freiheit; https://wahrheitfuerdeutschland.de/im-april-werden-wir-keine-kanzlerin-merkel-mehr-haben/_
+
+### Putins Münchner Rede: Keiner wollte Warnungen hören – Doch nach 10 Jahren haben sich alle erfüllt
+_14.02.2017 • 06:15 Uhr_
+
+Quelle: Sputnik
+Russischer Präsident Wladimir Putin und seine Visavis: US-Verteidigungsminister Robert Gates und US-Senator John
+McCain am 11. Februar 2007 in München im Hotel Bayerischer Hof während der 43. Münchner Sicherheitskonferenz.
+
+
+-----
+
+Churchill in Fulton 1946, Martin Luther King in Washington 1953, Richard von Weizsäcker in Berlin 1985: Ihre
+Reden schrieben Geschichte. Auch die Rede Wladimir Putins in München 2007 gehört dazu. Der russische Journalist Wiktor Marachowski erklärt, warum:
+
+Sehr geehrte Leser!
+Heute sind es genau zehn Jahre, die seit der Rede des Präsidenten der Russischen Föderation, Wladimir Putin,
+auf der Münchener Sicherheitskonferenz 2007 vergangen sind. Heute gilt sie als ein Wendepunkt in der Aussenpolitik Russlands. Ausserdem ist sie einer der sehr seltenen Fälle einer sich bewahrheiteten Komplexprognose
+im Bereich der Weltpolitik. Dem vollständigen Text des Auftritts sollte noch heute Achtung geschenkt werden.
+Erinnern wir uns aber an dieser Stelle an die Hauptaussagen der Rede:
+
+1. Die monopolare Welt kam nicht zustande. Egal, wie sehr man versucht, diesen Begriff beschönigend zu umschreiben. In der Praxis bedeutet dies nur eins: Ein Zentrum der Macht, ein Zentrum der Kraft, ein Zentrum
+der Entscheidungsfindung. Das ist die Welt eines Herren, eines Souveräns. Und das ist im Endeffekt nicht
+nur für alle in diesem System verderblich, sondern auch für den Souverän selbst, denn es zerstört ihn von
+innen heraus.
+2. Alles, was heute in der Welt geschieht, ist eine Folge der Versuche, solch eine Konzeption der monopolaren
+Welt auf globaler Ebene durchzusetzen. Und mit welchem Ergebnis? Einseitige, oft nicht einmal legitime
+Handlungen haben nicht ein einziges Problem gelöst. Vielmehr waren sie Ausgangspunkt neuer menschlicher
+Tragödien und Spannungsherde.
+3. Die Dominanz des Faktors Gewalt in den internationalen Beziehungen löst in einer Reihe von Ländern den
+Drang nach dem Besitz von Massenvernichtungswaffen aus. Mehr noch: Es tauchten ganz neue Bedrohungen
+auf, wie der Terrorismus, die zwar früher schon bekannt waren, aber heute einen globalen Charakter annehmen.
+4. Wir sind heute an einem Wendepunkt angelangt, an dem wir ernsthaft über die gesamte Architektur der
+globalen Sicherheit nachdenken sollten. Man muss ablassen von der Suche nach einer formalisierten Balance
+der Interessen aller international handelnden Subjekte.
+5. Die internationale Weltbühne verändert sich schnell und zwar auf Kosten der wirtschaftlichen Entwicklung
+einer ganzen Reihe von Staaten und Regionen. So ist das summierte BIP Indiens und Chinas hinsichtlich
+der paritätischen Kaufkraft schon grösser als jenes der USA (und das bereits 2007). Und das ebenfalls auf
+diese Weise berechnete Gesamt-BIP der BRIC-Staaten – Brasilien, Russland, Indien und China – übersteigt
+das BIP der EU. Nach Auffassung von Experten wird sich diese Entwicklung noch weiter verstärken.
+6. Der einzige Mechanismus zur Entscheidung über die Anwendung von Gewalt als letzte Massnahme darf nur
+die UN-Charta sein. Und man darf die Vereinten Nationen nicht durch die NATO oder die EU ersetzen,
+sonst gerät die globale Sicherheitsarchitektur in eine Sackgasse und es häufen sich die schweren Fehler.
+7. Einerseits stellt man für Hilfsprogramme zugunsten der ärmsten Länder Finanzmittel zur Verfügung, aber
+dies passiert oftmals mit dem Ziel, es Unternehmen der Geber-Länder zu ermöglichen, sich daraus erwirtschaftetes Geld anzueignen. Gleichzeitig konserviert man auf diese Weise die wirtschaftliche Rückständigkeit. Die
+entstehenden sozialen Spannungen in solchen gebeutelten Regionen führen unausweichlich zum Anwachsen
+des Radikalismus und Extremismus. Sie nähren den Terrorismus und lokale Konflikte. Aber wenn das zudem
+noch, sagen wir, im Nahen Osten geschieht, unter den Bedingungen eines zugespitzten Verständnisses der
+Aussenwelt, die als ungerecht empfunden wird, dann entsteht das Risiko einer globalen Destabilisierung.
+Von dieser Beschreibung der Welt und ihrer Zukunft ausgehend, teilte der Präsident Russlands der internationalen Gemeinschaft mit, dass sein Land eine unabhängige Aussenpolitik betreiben wird und es auch mit genauso unabhängigen Partnern zu tun haben möchte.
+
+Nach einer kurzen Analyse der Rede kann man nach zehn Jahren feststellen:
+Ja, die monopolare Welt kam nicht zustande. Jenes Land, das sich als ihr Oberherr und Besitzer gesehen hat, hat
+als erstes feststellen müssen, dass diese Situation zur eigenen Zerstörung aus dem Innern heraus geführt hat.
+Mittlerweile hat seine neue Regierung bekanntgegeben, dass sie vorhat, sich von der Vielzahl an Verpflichtungen
+gegenüber Verbündeten loszulösen. Ausserdem baut dieser Staat demnächst auch eine Mauer an seiner südlichen
+Grenze, führt Schutzzölle für den Import ein und verändert seine Migrationspolitik nach eigener Aussage zu
+Gunsten von verfolgten Christen und zum Nachteil anderer Menschengruppen.
+Ja, nicht einer der Unruheherde wurde beseitigt. Mehr noch: Es sind neue entstanden und es wurden weitere
+Länder teilweise oder auch völlig gestört. Ja, der Terrorismus ist zu einer globalen Kraft geworden und gründete
+
+
+-----
+
+mittlerweile sogar seinen eigenen Quasistaat, der Territorien auf zwei Kontinenten unterhält. Die Gesandten
+dieses Staates erschiessen, sprengen und überfahren die bisher sorglosen Europäer auf deren Jahrmärkten mit
+LKWs.
+Ja, das BIP der BRICS-Länder hat – ungeachtet der Krisen in Russland und Brasilien sowie der chinesischen
+Wachstumsverlangsamung – schon das BIP der G7-Länder eingeholt. Wenn man den Unterschied in der Geschwindigkeit des Wachstums bedenkt, sieht es danach aus, als ob die BRICS die G7 bald überholen werden.
+Die Kluft zwischen den armen und den reichen Staaten wächst und auch die zwischen armen und reichen
+Menschen vergrössert sich weiter.
+Schlussendlich ist die Welt exakt in jene Sackgasse gelangt, vor welcher der russische Präsident gewarnt hat.
+Grund dafür ist vor allem die Tatsache, dass diejenigen, an welche die Rede Putins gerichtet war, diese nicht
+wahrgenommen haben.
+Genauer gesagt: Sie haben sie schon gehört, aber bloss durch den Filter der monopolaren Ideologie, vor deren
+zerstörerischer Wirkung Putin gewarnt hat. Sie haben bloss verstanden, dass eines der Länder, die dem Zwang
+zur Demokratisierung unterliegen, sich aufplustert und allen mitteilt, dass es eine eigenständige Aussenpolitik
+betreiben wird. Und sie reagierten entsprechend: Georgien erhielt verstärkt Militärausbilder und Waffen, auch
+der Geldfluss zu obskuren Kräften in der Ukraine nahm zu. Das alles hat zu den uns nun bekannten Ergebnissen
+geführt.
+Es kam zu den arabischen und anderen ‹Frühlingen›: Libyen, Jemen und Syrien. Es kam zur grossen Welle an
+Flüchtlingen nach Europa, den Terroranschlägen in Paris, Brüssel, Nizza, Berlin, Orlando und San Bernardino
+sowie zum Bürgerkrieg in der Ukraine und auch zum Brexit. Und es kam zur sogenannten eigenartigen Präsidentschaft des amtierenden US-amerikanischen Staatsoberhaupts, das seit Monaten an allen Fronten von der Elite
+des eigenen Landes bekämpft wird.
+Mit anderen Worten: Es ist das eingetreten, wovor der russische Präsident gewarnt hatte und was man auf keinen
+Fall zulassen wollte.
+Das aufschlussreichste – und traurigste – ist jedoch, dass Wladimir Putin schon damals, vor zehn Jahren, eine
+Lösung für die gesamte Misere vorschlug. Er empfahl, sich von der monopolaren Ideologie zu verabschieden
+und eine Balance zwischen den Interessen aller Subjekte der internationalen Beziehungen zu suchen.
+Erst jetzt nach dem grossem Krach sowie Rückschlägen für den Drang nach liberaler Weltmissionierung dämmert
+den Staatsoberhäuptern der westlichen Staaten, dass Putin richtig lag. Sie beginnen, wenn auch nur mit grosser
+Anstrengung, Worte und Formulierungen zu finden, um die Unausweichlichkeit der multipolaren Welt anzuerkennen. Man kann nicht behaupten, dass sie damit glücklich sind, denn diese Unabhängigkeit und Selbstständigkeit, zu der sie ihr russischer Kollege aufrief, ist für die meisten von ihnen eine schwere Last. Denn nach
+einem Vierteljahrhundert der von Fukuyama vorausgesagten Ära des ‹Endes der Geschichte› ist ein Grossteil
+der westlichen Führungspersönlichkeiten eine derartige Freiheit und die mit ihr verbundene Verantwortung
+nicht mehr gewohnt.
+Ausserdem wollen sie das, was der russische Präsident vorhergesehen hat, schlichtweg nicht wahrhaben.
+Immerhin würde dies das Zerplatzen aller Blütenträume vom nicht fertiggestellten Imperium, das vor kurzem
+begonnen hat, noch weiter beschleunigen.
+Der grössere Teil davon steht ihnen aber noch bevor.
+_Quelle: https://deutsch.rt.com/international/46459-warnung-putin-10-jahre-m%C3%BCnchen-rede/_
+
+### Worüber deutsche Medien schweigen Einzelfall Ahaus: 27-jähriger Nigerianer ersticht eine junge Frau auf offener Strasse
+_Date: 13. Februar 2017; Author: davidbergerweb; Gastbeitrag von Axel R. Göhring_
+Der Frauenmord an Maria L. aus Freiburg machte letztes Jahr zunächst viele Schlagzeilen und darüber wurde
+sogar in der Tagesschau berichtet, weil er von überregionalem Interesse war. Das änderte sich schlagartig, als
+der Täter, ein afghanischer Asylbewerber, bekannt wurde. Plötzlich war die Tagesschau nicht mehr interessiert,
+weil es sich nur noch um einen lokalen Fall handelte. Was der tatsächliche Beweggrund war, liegt bei der politischkorrekten ARD auf der Hand.
+**Nun gab es im münsterländischen Ahaus einen weiteren Frauenmord: Am Samstagmorgen erstach ein**
+**27jähriger Nigerianer, offenbar Asylbewerber, eine 22jährige Frau, die er vermutlich schon kannte und zu der**
+**er Kontakt gesucht hatte.**
+
+
+-----
+
+Die Frau erhielt mehrere Stiche in Hals und Oberkörper, an denen sie im Krankenhaus verstarb. Bei dem Opfer
+handelt es sich um Soopika P., selber Kind von Immigranten aus Sri Lanka. Laut Presse war die junge Frau
+modern eingestellt und bestens integriert.
+Der Attentäter konnte fliehen und wird nun wegen ‹Totschlag› gesucht. Totschlag? Weil das Opfer nicht sofort
+tot war?
+**_Ein Blick in die Google-Suche zeigt, dass das Thema von den Medien eher nachlässig behandelt wird. Wir dürfen_**
+**_erwarten, dass sich daran auch nach der Verhaftung des Täters nicht viel ändern wird._**
+Es sei denn, dass sich ähnlich der Situation nach den Kölner Silvesterübergriffen eine nicht kontrollierbare
+Gegenöffentlichkeit via Facebook und Twitter bildet, wonach es gerade aussieht.
+**Liegt die Ignoranz der Nachrichtenhäuser diesmal auch am ausländischen Opfer? Das wäre in der Tat rassistisch**
+zu nennen. Die ermordete Maria L. aus Freiburg war eine Medizinstudentin aus gutem Hause – der Vater ist
+hoher EU-Beamter und sitzt im Zentralrat der Katholiken.
+Erfahrungsgemäss stürzen dysfunktionale Regierungen oder Systeme, wenn die Interessen der oberen Schichten
+berührt werden. Wir werden sehen, wie sich der Fall Maria L. mittelfristig auswirken wird, und ob der Fall Soopika
+P. unter den Teppich gekehrt werden kann, was bei Maria nicht gelang. Hoffentlich ist keine der beiden Frauen
+umsonst gestorben.
+_Quelle: https://philosophia-perennis.com/2017/02/13/einzelfall-ahaus-nigerianer/_
+
+### Klappe halten, demütig sein und uns selbst aufgeben – oder: Als Rechtspopulist beschimpft werden
+_Date: 13. Februar 2017; Author: davidbergerweb; Ein Gastbeitrag von Adrian Lauber_
+Regelmässig sind es dieselben links-grün angehauchten Leute, die im Fall radikal-islamistischer Terroranschläge
+zu Recht darauf hinweisen, dass man dafür nicht ‹die› Muslime alle miteinander in Haftung nehmen darf, aber
+zugleich gar kein Problem damit haben, wenn ‹der› Westen bzw. vor allen Dingen der böse weisse Mann für die
+Schandtaten westlicher Politiker und Grosskonzerne in Kollektivhaftung genommen wird.
+**Muslime dürfen wir nicht über einen Kamm scheren. Das stimmt. Natürlich sind sie nicht alle fundamenta -**
+listisch gesonnen, wie diverse Umfragen und die Lebenswirklichkeit belegen.
+**Umgekehrt aber ist es gar kein Problem, die Völker des Westens kollektiv für Ausbeutung und Kriegsverbrechen**
+in Haftung zu nehmen, die Teile unserer herrschenden Eliten an fremden Ländern begehen.
+Da müssen wir gefälligst die Klappe halten, demütig sein und uns selbst aufgeben, um für die Verbrechen zu
+büssen. Da müssen wir unsere Grenzen abschaffen und alle Welt, die materiell ärmer ist als wir, hierher bitten,
+obwohl in dieser Situation, da Europas Bevölkerungsschrumpfung aufgrund der demographischen Entwicklung
+unabwendbar ist, eine Abschaffung der Grenzen und Einwanderungsrecht für jedermann der zivilisatorischen
+**Selbstzerstörung gleichkommt.**
+Aber nein! Für kollektivschuldige Europäer gibt es kein Recht auf Heimat, kein Recht auf ihre kulturellen Errungenschaften, kein Recht auf die hierzulande lange und blutig erkämpfte Freiheit, kein Recht auf inneren
+Frieden, kein Recht auf den von ihnen selbst erarbeiteten Wohlstand. Sie müssen büssen!
+**_Es wäre eigentlich intelligenter, den Ausbeutern und Kriegstreibern das Handwerk zu legen und echten Flücht-_**
+**_lingen vor Ort zu helfen, statt Europa wollüstig zu zerstören, aber mit einer solch skurrilen Meinung gelte ich_**
+**_heutzutage in Deutschland wahrscheinlich als Rechtspopulist._**
+**_Facebookkommentar zu Laubers Text:_**
+
+_Quelle: https://philosophia-perennis.com/2017/02/13/klappe-halten-demuetig-sein-und-uns-selbst-aufgeben-oder-als-rechts-_
+_populist-beschimpft-werden/_
+
+
+-----
+
+### Deutschlands neues nicht gewähltes Staatsoberhaupt
+_Montag, 13. Februar 2017, von Freeman um 07:00_
+Es ist völlig an ihnen vorbeigegangen. Die Deutschen wachen am Montag auf und haben ein neues Staatsoberhaupt. Gauck ist es nicht mehr, dafür Steinmeier. Ja, so geht das in der BRD. Konnten die Deutschen Steinmeier
+wählen? Gab es einen Stimmzettel mit den Namen von Kandidaten drauf, aus denen sie eine Wahl treffen konnten?
+NEIN. Den neuen Bundespräsidenten hat die korrupte politische Klasse unter sich ausgesucht und den Bürgern
+der BRD vor die Nase gesetzt.
+Und dann nennt sich Deutschland eine Demokratie. Was für eine Farce. In Österreich wird der Bundespräsident
+direkt vom Volk gewählt, so wie es sich gehört und wie es in den meisten Ländern der Fall ist. Es gab mal eine
+Zeit, in der der Reichspräsident direkt vom Volk gewählt wurde, nämlich in der Weimarer Republik. Wurde nach
+dem Krieg abgeschafft, weil die Elite meinte, die Deutschen seien nicht fähig, sich selbst zu regieren, sie benötigten
+einen Vormund, eine Clique, die für sie alles entscheidet.
+Ausgerechnet Frank-Walter Steinmeier ist der 12. Bundespräsident, der sehr viel Dreck am Stecken hat. Genau
+der, der für den gewaltsamen Maidan-Putsch in Kiew mitverantwortlich ist. Er hat dafür gesorgt, dass der legitime
+und demokratische gewählte Präsident Viktor Janukowitsch gestürzt wurde und die Bandera-Fans in der Ukraine
+die Macht übernehmen konnten, also die ukrainischen Neo-Nazis. Zusammen mit Obama und Hillary wurde
+der Umsturz durchgezogen, der übliche ‹Regime Change›, den der Westen immer macht, wenn eine Regierung
+nicht die Befehle aus Washington und Brüssel befolgt.
+Ja, man könnte länger über Steinmeiers Biografie schreiben und darüber, was er in seiner Karriere alles angerichtet hat. Oder sich über das fragwürdige Wahlprozedere auslassen. Jedenfalls ist diese Wahl eines neuen Staatsoberhauptes typisch dafür, wie undemokratisch und nichtlegitimiert die Politik in Deutschland läuft. Es ist ein
+Schmierentheater, eine Scheindemokratie, die nur so tut als ob. Die Frechheit ist, dass ausgerechnet die Mitglieder
+dieser inszenierten Show mit Schauspielern aber mit dem Finger auf alle anderen Länder zeigen und ihnen
+Lektionen in Demokratie geben.
+Steinmeier wird jetzt als die Anti-Trump-Figur gehandelt und wurde deshalb ausgesucht. Er soll die an allen
+Ecken und Kanten auseinanderbrechende EU zusammenhalten. Die meinen wirklich, die Eurotanic kann man
+noch vor der Versenkung retten. Die Politiker leben in einer anderen Welt, die mit der Realität und damit, wie
+die europäischen Völker denken, nichts mehr zu tun hat. Die Ohrfeige des Brexit war nur der Anfang und wird
+sich auf ganz Europa ausbreiten.
+_Quelle: http://alles-schallundrauch.blogspot.com/2017/02/deutschlands-neues-nicht-gewahltes.html#ixzz4YedhnmL3_
+
+### Der Spiegel, das Regierungsmedium
+_von Fabian Müller; 13. Februar 2017_
+Am Samstag kommentierte Spiegel-Redakteur Roland Nelles die bevorstehende Bundespräsidentenwahl. SpiegelOnline erreichte damit einen neuen Tiefpunkt. In jeglicher Hinsicht.
+Die Quintessenz des Kommentars ist schnell gesagt: Das Establishment ist gut, das Anti-Establishment ist böse.
+Eine jahrzehntelange Wandlung des Spiegels zeigt sich deutlicher denn je. Einst eine der intellektuellsten und
+kritischsten Zeitschriften Deutschlands, verkommt das Onlineformat nicht nur auf niedrigem Niveau, ClickBait und regelmässigen Lügen, sondern ist vor allem eines geworden: Ein Regierungsmedium.
+Damit ist eine weitere Periode der Bundesrepublik zu Ende gegangen. Die vierte Gewalt, die Medien, existieren
+schon lange nicht mehr im ursprünglichen Sinne. Aus politikwissenschaftlicher Sicht war es Aufgabe der Presse,
+Regierung, Justiz und Legislative zu observieren und damit zu kontrollieren. Mittlerweile hat die MainstreamPresse eine unheilige Allianz mit dem Establishment geschmiedet, über die beiden anderen montesquieuschen
+Gewalten braucht man nicht mehr zu sprechen. Aber wem erzähle ich das.
+
+#### Rhetorische Kniffe, einfache Sprache und der Holzhammer
+Was dabei herauskommt, ist der Kommentar von Roland Nelles. Das Wichtigste zuerst. Er ist in einfacher Sprache geschrieben, damit ihn auch der Dorfdümmste versteht. Das ist keine Übertreibung. Nelles wortwörtlich:
+«Establishment, das ist in der Demokratie nicht schlecht, sondern gut.» Punkt. Ja, danke Herr Nelles, für die
+stichhaltigen Argumente. Immer weiter und immer dreister geht die Fahrt:
+«Leute wie Steinmeier und andere aus dem Establishment stehen für unseren pluralistischen, demokratischen
+Parteienstaat. Dieser Staat ist nicht perfekt, auch seine Eliten sind es nicht. Aber er folgt festen Regeln, Ritualen
+und verfügt über Kontrollinstanzen, die Machtmissbrauch verhindern.»
+
+
+-----
+
+Ich überlege, ob ich diesen Teil unkommentiert lassen soll. Ich entscheide mich dagegen. Der Ausschnitt ist die
+Ausgeburt an Dreistigkeit und Dummheit. Steinmeier und ‹Leute wie er› stehen an erster Stelle für sich selbst
+und die horrenden Summen, die sie jahrjährlich abgreifen, ohne vernünftige Politik zu machen. Darüber kann
+man zumindest noch streiten.
+
+#### Welche Kontrollinstanzen gibt es denn in unserer ‹pluralistischen› Demokratie?
+Aber da der angehende Bundespräsident höchstpersönlich für einen ‹pluralistischen, demokratischen Parteien staat› steht, ist doch reichlich absurd. Zur herausragenden Grundeigenschaft des Establishments zählt der Selbsterhaltungstrieb und die Weigerung, Macht abzugeben. Genau deshalb wird die AfD angegangen, gegen Pegida
+gewettert, und alles, was nicht linienkonform ist, von vornherein angegangen. Auch die Linken leiden unter dem
+zentralistischen Bestreben des mittiger werdenden Establishments.
+Der Staat folgt also festen Regeln und besitzt Kontrollinstanzen, die Machtmissbrauch verhindern? Hier erkennt
+man die rhetorische Taktik Nelles, den ‹Staat›, mit den Eliten und Steinmeier höchstpersönlich gleichzusetzen.
+Man lese sich das Zitat nochmals in Ruhe durch. Es beginnt mit: ‹Steinmeier steht für …› und endet mit ‹Regeln,
+die Machtmissbrauch verhindern›. Klammheimlich werden die Attribute des staatlichen und politischen Systems
+auf Personen wie Steinmeier übertragen, als wäre er die stählerne Galionsfigur Deutschlands, die mit festen
+Regeln und Ritualen Machtmissbrauch verhindere. Das ist Manipulation auf unterster Ebene. Die gleiche Taktik
+kann man bei Martin Schulz in den letzten Tagen auch beobachten: Personenkult und Inkorporation von
+Werten, die eigentlich zu etwas anderem gehören.
+
+#### Deals sind gut, ausser bei Trump
+«Steinmeier wird Bundespräsident, weil das Establishment es so will. Ja, stimmt. Er ist durch einen Deal der
+Parteichefs der Grossen Koalition zum Kandidaten geworden, die Bundesversammlung wird ihn mit grosser
+Mehrheit wählen. Na und? Daran ist nichts Unrechtes: Nach dem Grundgesetz ist das alles erlaubt. Es gibt in
+Deutschland keinen direkt vom Volk gewählten Präsidenten mit weitreichenden Machtbefugnissen. Das hatten
+wir schon mal, es ging nicht gut aus.»
+Das Staatsoberhaupt Deutschlands wird durch einen ‹Deal› bestimmt, der ohne Einwirken des Volkes durch das
+schwarz-rote Machtkartell zum Tragen kommt und auch noch sicher funktioniert. So zerstört man das Vertrauen
+in Politik und Demokratie, und so begeht man einen ‹Machtmissbrauch›, der doch eigentlich nur von den bösen
+Rechten begangen werden kann, oder etwa nicht?
+Nelles zeigt, wie erbärmlich der Spiegel mittlerweile arbeitet. Die fehlenden Wahlgesetze erlauben zwar derartige
+Unpolitiken, aber dass der Spiegel sich tatsächlich erlaubt, auf ein juristisches Argument zurückzugreifen, um
+den eigenen Standpunkt zu untermauern, ist sehr fragwürdig. In den vergangenen Monaten durften wir hunderte
+Male lesen, wie unwichtig doch Gesetze seien, wenn es sich dabei um moralisch höherwertige Tatsachen handle,
+wie eben die Ankunft Millionen illegaler Einwanderer.
+Auf einmal scheint das Gesetz wohl wieder etwas zu bedeuten. Im Sinne des Establishments natürlich. Interessant
+ist hier auch der nächste Kniff. Nelles formuliert so, dass eine Wahl des Bundespräsidenten durch das Volk automatisch eine Machtausdehnung zur Folge hätte. Das ist vollkommener Unsinn. Nur weil jemand anderes als die
+Bundesversammlung den Präsidenten wählt, schnappt er sich nicht gleich Pickelhaube und Eichenlaub und
+läuft Amok. Das Amt wäre genau das gleiche wie bisher. Es ist raffiniert und zeugt von suggestivem Kalkül zu
+behaupten, eine Änderung des Wahlmodus würde die Machtposition des Gewählten ändern.
+
+#### Machtspiele und Urs Hütler, gewählter Schwyzer Diktator
+Ergänzend muss man erwähnen, dass das hochkomplexe Wahlsystem Deutschlands niemals dafür ausgelegt war,
+dass SPD und CDU so einmütig an einem Strang ziehen. Es war ausgelegt auf politischen Wettbewerb zwischen
+den beiden grossen Parteien, die um die Gunst der Bevölkerung kämpfen, und nicht auf einen Machtzusammenschluss der beiden Volksparteien, der aufgrund verschiedener Gegebenheiten auch noch funktioniert.
+In der Geschichte der Bundesrepublik passierte eine derartige Einigung nur in Ausnahmefällen, zum Beispiel
+bei der zweiten Wahl von Heinrich Lübke. Er war ebenfalls ein Unterstützer der damals ersten grossen Koalition,
+weshalb ihm die SPD-Stimmen sicher waren. Nach Joachim Gauck, der ebenfalls keinen ernstzunehmenden
+Konkurrenten hatte, gab es damit schon wieder eine Pseudowahl. Die Gegner waren der Spasskandidat und Vater
+von Martin Sonneborn, die chancenlosen Vertreter von AfD und Linken, sowie der Kandidat der Freien Wähler,
+Richter Alexander Hold.
+
+
+-----
+
+Weiter untermauert Nelles das Argument gegen Bürgerbeteiligung mit der abgenutzten Nazikeule: Volksab stimmung = Diktatur. Dieser Vergleich hinkt derartig, dass man sich nicht sachlich mit ihm auseinandersetzen
+sollte.
+
+#### Der Zuschauer verändert die Regeln?
+Abschliessend noch einige Verleumdungen und Lügen: «Donald Trump und Europas Rechtspopulisten verfahren
+heute nach dem Motto: Wer mehr als zwei Bücher kennt, gehört schon zum Establishment.»
+Dieser Satz ist eine frei erfundene Unterstellung, der aber rechtlich schwer entgegenzuwirken ist. Was bedeutet
+denn ‹verfahren nach dem Motto›? Diese Stilmittel erkennt man bei der Mainstreampresse immer häufiger.
+Schwammig formuliert lassen sie sich auf keine Gefahr ein, dem ungeübten Leser bleibt trotzdem hängen: ‹Rechte
+hassen Bücher›.
+«Die Outsider verändern die Spielregeln und zerstören die Errungenschaften eines zivilisierten demokratischen
+Umgangs.»
+Die nächste vollkommen unsinnige und dummdreiste Behauptung. Wie sollen denn die Outsider die Regeln
+verändern? Man stelle sich ein Brettspiel vor. Vier Parteien spielen mit. Das Brettspiel hat Regeln. Ein fünfter
+schaut zu und will mitspielen. Wie soll dieser Aussenstehende denn auch nur im Entferntesten irgendetwas bewirken? Die einzige Möglichkeit, die er hat, ist, zu betonen, dass er mitspielen will. Dadurch werden die Spieler
+natürlich unter Druck gesetzt, denn der Schwächste muss nach der Runde aussetzen. Ergänzend dazu fangen
+die Spieler sogar an, die Regeln abzuändern. Im kindlichen Sinne eines: «In der Anleitung steht, dass man 20
+Runden zu Ende spielen muss. Du bleibst leider draussen!»
+
+#### Die dummen Rechten und die klugen Linken!
+Man könnte auf zig weiteren Stellen des Kommentars herumreiten, auf dem angeblichen ‹Antiintellektualismus›
+der Rechten, auf deren fehlenden ‹intellektuellen Kapazitäten›, auf Trumps ‹gezielte(n) Angriffe(n) auf die Justiz,
+die die Gewaltenteilung infrage stellt›. Der Artikel strotzt vor Absurditäten, Behauptungen, Tatsachenverdrehungen und steht bezeichnend für die weltfremden Linksintellektuellen, die ihre scharfen Krallen beim Eintritt in
+die Hauptstrompresse abgegeben haben und nichts mehr anderes betreiben als totalitaristische Hofberichterstattung. Schliessen sollte man dennoch mit etwas Positivem. Die Kommentarfunktion ist ausnahmsweise freigeschaltet und selbst die Spiegel-Online-Leser tun ihren Unmut über den Artikel kund.
+Ob Roland Nelles dergleichen überhaupt mitbekommt? Ich bezweifle das. Falls doch, biegt er sich die Welt so
+zurecht, dass wieder alles in sein wohlgeordnetes Intellektuellen-Hirn passt, das mehr als zwei Bücher konsumiert
+hat. Dann verwandeln sich die unzufriedenen Leserstimmen bestimmt in Rechtspopulisten, Trump-Anhänger,
+Leutefänger von Pegida oder die russischen Internettrolle, die das heilige und multikulturelle Europa von innen
+heraus zerstören wollen.
+_Den Originalartikel ‹Zum Glück gibt es das Establishment› verlinken wir aus Prinzip nicht._
+_Quelle: http://www.blauenarzisse.de/der-spiegel-das-regierungsmedium/_
+
+### Den Menschen geht es eben NICHT gut
+_Mittwoch, 8. Februar 2017, von Freeman um 17:00_
+«Den Menschen in Deutschland ging es noch nie so gut», hat Kanzelbrunzerin Angela Merkel im November im
+Bundestag gesagt. Auch in ihrer Neujahrsansprache erklärt sie: «Noch nie hatten so viele Menschen Arbeit wie
+heute.» Beide Aussagen von Merkel sind gelogen. Die Wahrheit ist, es geht den Menschen nicht gut und die, die
+eine Arbeit haben, bekommen einen viel zu geringen Lohn. Es ist so schlimm, dass jeder fünfte in Deutschland
+von Armut oder Ausgrenzung bedroht ist. Das sage nicht ich, anhand von eigenen Beobachtungen und Meldungen meiner Leser aus Deutschland, sondern das Europäische Statistikamt Eurostat.
+In Deutschland gibt es geschätzt bundesweit 40000 Obdachlose. 2010, also noch vor wenigen Jahren, waren es
+mit 22000 etwa halb so viele.
+Speziell den älteren Menschen geht es gar nicht gut, denn ihre Zahl von Armut oder Ausgrenzung Bedrohten
+in Deutschland ist in den vergangenen Jahren auf fast sechs Millionen gestiegen. Waren 2010 noch 4,9 Millionen
+Menschen im Alter von 55 und älter betroffen, stieg deren Zahl seither kontinuierlich auf zuletzt 5,7 Millionen.
+Statt sich um die eigene arme Bevölkerung zu kümmern, ist es offensichtlich die erste Priorität des MerkelRegimes, so viele Ausländer wie möglich ins Land zu lassen und sie mit allen Sozialleistungen zu versorgen. Sie
+
+
+-----
+
+bekommen eine Unterkunft, Essen, Kleidung und medizinische Behandlungen gratis, plus noch Taschengeld
+und vieles mehr.
+Die Rentner müssen aber alles selber zahlen, bis sie nicht mehr können. Und es sind viele, denn laut Eurostat
+waren 2015 20,8 Prozent aller Menschen im Alter von 55 und älter von Armut oder sozialer Ausgrenzung
+bedroht. 2006 waren es weniger mit 18,2 Prozent. Auf diese prekäre Situation hat die Bundestagsabgeordnete
+Sabine Zimmermann (Linke) aufmerksam gemacht.
+Deutschland liegt mit dieser Armutszahl sogar über dem Durchschnitt aller EU-Länder, denn EU-weit liegt der
+Anteil bei 20,7 Prozent. Daten für 2016 liegen noch nicht vor, werden aber noch schlechter sein. Was für ein
+sprichwörtliches Armutszeugnis für Deutschland und für die EU, die ja laut Eigenlob der EU-Turbos so toll und
+erstrebenswert sein soll.
+Das nicht gewählte Politbüro in Brüssel geht sogar her und integriert immer mehr völlig verarmte Länder in
+die Union, die dann subventioniert und getragen werden müssen. In ihrem Expansionswahn wird alles aufgenommen, egal wie entfernt das Land liegt. Durch die Kolonien erstreckt sich die EU eh schon bis auf Inseln in
+der Karibik und im Pazifik.
+In Tat und Wahrheit geht es allen EU-Ländern seit Einführung der Einheitswährung vor 17 Jahren nur immer
+schlechter und der Lebensstandard geht stetig zurück. Fragen wir doch die Griechen, Italiener, Spanier, Portugiesen, Iren und auch die Franzosen, ob sie meinen, es gehe ihnen heute besser als damals, als sie noch ihre
+eigene Währung hatten.
+Die meisten verfluchen die EU und den Euro!
+Das einzige was bei allen EU-Ländern gestiegen ist, sind die Schulden, die immer astronomischer werden. Was
+ist das überhaupt für eine kranke Währung, die nur mit Dragis monatlichen 80 Milliarden an Geldinfusion und
+null Zinsen sich gerade so dahinschleppt und kurz vor dem Exitus steht. An Wert verliert der Euro auch ständig.
+Die Verschmelzung der europäischen Länder in einen Einheitsbrei und die Globalisierung haben den Durchschnittsbürgern und ihrem Wohlstand wenig gebracht. Auch den Klein- und Mittelbetrieben nichts. Davon
+profitiert haben nur die globalen Grosskonzerne, die Grossbanken und die superreiche Oligarchie.
+Rund 16,1 Millionen Menschen in Deutschland müssen in Angst vor Armut oder sozialer Ausgrenzung leben.
+Im vergangenen Jahr waren rund 13,4 Millionen Menschen in Deutschland von Armut durch Geldprobleme
+bedroht. 352000 deutschen Haushalten wurde 2014 der Strom abgestellt, weil sie ihre Rechnung nicht bezahlen
+können, mit steigender Tendenz.
+Kein Geld mehr für Strom und Heizung – das ist vor allem in Nordrhein-Westfalen die bittere Realität vieler
+Bewohner. Rund ein Drittel aller Stromsperren werden dort verhängt. Das Ruhrgebiet ist am schlimmsten betroffen. Die Energiesperre ist Symbol für die Energieschuldenfalle. Und eine stille, soziale Katastrophe.
+Aber nicht nur die Menschen verarmen immer mehr, die deutsche Wirtschaft wird immer schwächer. Laut einer
+Studie von PriceWaterHouseCoopers (PWC) werden China und Indien noch weit vor den USA 2050 die grössten Wirtschaftsmächte der Erde sein. Deutschland gehört demnach zu den Verlierern. Von Platz 5 geht es auf
+Platz 9 hinab.
+Die deutsche Wirtschaft wird laut PWC bis 2050 um jährlich 1,3 Prozent im Schnitt wachsen. Das ist der drittschlechteste Wert aller untersuchten Länder. Und konsequenterweise wird das Plätze im Ranking kosten. Russ land, Brasilien, Mexiko und Indonesien würden laut der Studie an Deutschland vorbeiziehen.
+Der Ausstieg Grossbritanniens aus der EU wird definitiv stattfinden, denn das Brexit-Gesetz wurde vom Parlament genehmigt. Die grosse Mehrheit der Abgeordneten stimmte am Mittwochabend mit 498 zu 114 Stimmen
+dem ‹goodbye› zu. Das Auseinanderfallen der EU wird demnach passieren.
+Warum steigen die Engländer aus? Weil sie erkannt haben, die Teilnahme an der Union ist nicht gut für sie,
+schränkt sie zu sehr ein und bringt viele Nachteile. Sie wollen nicht mehr vom undemokratischen Regime in
+Brüssel fremdbestimmt und diktiert werden, sondern frei sein.
+Schon lange frage ich mich, unter welcher Betäubung die Deutschen eigentlich leiden und überhaupt die EU-Bürger? Sie sind seit Jahrzehnten völlig passiv, als ob sie Valium schlucken würden, und lassen sich alles gefallen. Sie
+sitzen auf ihrem Arsch und gucken zu, wie ihre Länder den Bach runter gehen und sie immer ärmer werden.
+Oder sind sie blind, dass sie den Niedergang nicht sehen? Lügen sie sich ständig selber an? Kann man sie durch
+Fake-News, Propaganda und Dauerberieselung mit Unterhaltung aus der Lügenkiste so von ihrer miserablen
+Situation und von der Realität ablenken und täuschen?
+Und jetzt wird Martin Schulz als nächster deutscher Kanzler gehandelt? Ich lach mich schief. Einen (un)qualifi zierteren Kandidaten bringt die SPD nicht ins Rennen?
+Ausgerechnet dieser Totalversager, der nur Mittlere Reife hat, nicht wehrtauglich war und ausgemustert wurde,
+
+
+-----
+
+ein gelernter Buchhändler ist, Bürgermeister von Würselen war und auch Alkoholiker (obwohl einmal einer,
+dann immer), und den die Genossen wegen diverser Skandale nach Brüssel abgeschoben haben.
+Es ging damals um das private Spassbad, das mit Steuermitteln subventioniert wurde, was Würselen in den Ruin
+getrieben hat. Auch um private Grundstücksgeschäfte der Politiker. Deshalb wurde die Stadt eine Zeit lang von
+der Landesregierung in Düsseldorf kommissarisch geführt.
+Wenn Schulz ans Ruder kommt, dann gute Nacht Deutschland. Siehe ‹Würselen pumpt weiter Geld ins Aquana›,
+denn das hat Martin Schulz als Bürgermeister verbrochen.
+Und kommt mir jetzt nicht wieder mit dem Spruch, ‹es geht uns noch zu gut›, als Ausrede fürs Nichtstun, denn
+das stimmt nicht, wie Eurostat zeigt. Na ja, wer sich nicht wehrt und nicht die Konsequenzen zieht, bekommt,
+was er verdient. Wo sind eigentlich die Gewerkschaften? Gibt’s die überhaupt noch?
+Bitte schildert in einem Kommentar eure Erfahrung, wie die echte Situation in Deutschland und den EU-Ländern
+ist. Und für alle, welche die falsche Vorstellung haben, ‹in Deutschland muss keiner auf der Strasse leben›, hier
+der Link zum Manuskript der ZDF-Sendung: ‹Obdachlos trotz Arbeit›.
+_Quelle: http://alles-schallundrauch.blogspot.com/2017/02/den-menschen-geht-es-eben-nicht-gut.html#ixzz4YZWNWKnP_
+
+### Belgischer Politiker in Aleppo entschuldigt sich für ‹die Schande der EU›: «Die Russen helfen, wo sie können – die EU tut überhaupt nichts»
+_Von Sonja Ozimek Aktualisiert: 9. Februar 2017 12:55_
+Eine Delegation belgischer Abgeordneter war zu Besuch im syrischen Aleppo. Die Politiker wollten sich ein Bild
+über die Lage vor Ort machen. Fazit: «Die Russen tun, was sie können und übernehmen Verantwortung – die
+EU tut überhaupt nichts.»
+Vor knapp zwei Monaten berichteten alle westlichen Medien nonstop über die Lage im syrischen Aleppo. Der
+erbitterte Kampf zwischen Anti-Regierungskräften und Regierungsarmee ging Ende Dezember 2016 in die entscheidende Runde. Der Osten der einstigen Metropole war fünf Jahre lang von Terroristen und Rebellen besetzt.
+Schliesslich schaffte es die syrische Regierung, mit Hilfe Russlands und dem Iran, die Stadt zurückzuerobern.
+In den Medien wurde damals von der ‹humanitären Katastrophe› berichtet, die sich in Aleppo zugetragen habe.
+Die, so der Westen einstimmig, vor allem durch die Intervention Russlands verursacht wurde.
+Heute jedoch scheint Aleppo und die Lage der dortigen Menschen aus dem Fokus des Westens verschwunden
+zu sein.
+
+#### EU erntet harsche Kritik
+Um sich ein Bild von der Lage vor Ort zu machen, reiste eine Delegation belgischer Politiker in die vom Krieg
+zerstörte Stadt. In Aleppo besuchten sie unter anderem ein Flüchtlingslager, das sich im Jibreen-Viertel befindet.
+Über 5000 Menschen sollen in dem Lager untergebracht sein, berichtet RT.
+Der Besuch veranlasste die Politiker zu harscher Kritik gegenüber der Europäischen Union.
+«Wir als Mitglieder des europäischen und belgischen Parlaments sind hier, um mit eigenen Augen zu sehen, was
+hier geschieht. Wir finden es sehr schade, dass die Europäische Union nichts unternimmt und sind sehr froh,
+dass die Russen tun, was sie können und Verantwortung übernehmen», sagt Filip Dewinter, Fraktionsvor sitzender des Vlaams Belang (VB) und Abgeordneter im Flämischen Parlament.
+Das erste, was die EU tun müsse, sei, «die Sanktionen gegen Syrien zu stoppen, den Menschen humanitäre Hilfe
+zu senden und Medizin zu schicken.» Europa müsse den syrischen Bürgern «Nahrung, Verpflegung und so
+weiter» senden. «Denn so darf es nicht weitergehen!»
+
+#### Westliche Sanktionen schaden syrischen Bürgern
+Auch die UNO spricht sich für ein Ende der Sanktionen aus. In einem internen UNO-Bericht, den ‹The Intercept›
+im letzten Jahr veröffentlichte, heisst es, dass die westlichen Sanktionen die Arbeit von Hilfsorganisationen
+untergraben und vor allen den syrischen Bürgern schaden würden. Wegen der von den USA und der EU verhängten Sanktionen haben die Menschen unter anderem keinen Zugang zu medizinischen Gütern.
+Dewinter sagte weiter: «Wir danken der russischen Regierung, der russischen Armee, dass sie Verantwortung
+übernehmen. Ich muss mich als Europäer und Mitglied des belgischen und des europäischen Parlaments für
+die Schande der Europäischen Union entschuldigen, die nicht hilft beziehungsweise überhaupt nichts tut.»
+Zur Delegation gehörten, laut RT, neben Filip Dewinter auch Frank Creyelman, Jan Penris und Aldo Carcaci.
+
+
+-----
+
+Sie alle sind belgische Politiker, die rechtsorientierten Parteien angehören. Dewinter und Carcaci sind für ihre
+Kritik an der muslimischen Zuwanderung nach Europa bekannt.
+_Quelle: http://www.epochtimes.de/politik/welt/belgischer-politiker-in-aleppo-entschuldigt-sich-fuer-die-schande-der-eu-die-_
+_russen-helfen-wo-sie-koennen-die-eu-tut-ueberhaupt-nichts-a2044050.html_
+
+### Spaniens Grenzsicherung: Ein Vorbild für Europa
+_von Martin Bader 9. Februar 2017_
+Spanien zeigt auf, wie eine europäische Migrationsabwehrpolitik gelingen kann. 663 Afrikaner gelangten letztes
+Jahr über den Seeweg auf die Kanarischen Inseln. Das ist ein Viertel weniger als im Vorjahr – und das trotz
+einiger gewaltsamer Anstürme auf Spaniens Grenzen.
+Der Höhepunkt illegaler Immigration nach Spanien wurde 2006 erreicht mit 32000 im Jahr, sank danach aber
+schlagartig um 60 Prozent. Das SIVE maritime Grenzüberwachungssystem (Sistema Integrado de Vigilancia
+Exterior) in Verbindung mit verstärkten Grenzkontrollen und der Frontex Mission Hera zeitigten bald Erfolge.
+Die offensive Politik der Grenzsicherung seitens Spaniens mit Satellitentechnik und Bildverarbeitung durch
+Hochleistungsrechner, Überwachungsdrohnen und flächendeckendem Radar erlaubte der Küstenwache zur
+rechten Zeit tätig zu werden.
+
+#### 507 Männer, 95 Frauen und 61 Kinder
+Erst 2015 stieg die Zahl illegaler Einwanderungen im Zuge der Asylkrise wieder drastisch an. Mit dem 2016 verzeichneten Einbruch jedoch scheint Spanien mit seiner aktuellen Politik richtig zu fahren. An der Strasse von
+Gibraltar liegen weniger als 30 Kilometer zwischen Spanien und dem afrikanischen Kontinent, und von der
+Westsahara ist es nicht weit zu den Kanarischen Inseln. Trotzdem kamen im Jahr 2016 ein Viertel weniger Migranten im Vergleich zum Vorjahr dort an. Im Norden der spanischen Ferieninsel Lanzarote landeten im selben
+Jahr 507 Männer, 95 Frauen und 61 Kinder.
+
+#### Bring your Families
+Und was sie dabei mitbringen, ist jedes Jahr das gleiche. In den Morgenstunden des Neujahrstages erreichten
+Migranten aus Afrika mit 120 Kilogramm Haschisch die spanische Insel Lanzarote und versuchten die Handelsware in Plastikfässern im Sand zu vergraben, bevor sie aufgegriffen wurden. Im Ganzen schreibt Frontex den
+an Spaniens Küsten aktiven Schmugglern eher eine schwächere Organisation und primäre Betätigung im
+Drogengeschäft zu als im Menschenhandel, was auch einen Einfluss auf die Gesamtzahl an Grenzübertritten
+haben könnte.
+Das Mantra der Bahnhofsklatscher-Szene «Bring your Families» könnte also eigentlich um: «Ach und bringt noch
+etwas zu rauchen mit», ergänzt werden. Aufgrund des steigenden Bedarfs wird bereits begonnen, die heisse
+Fracht auf dem Luftweg mit Helikoptern und Kleinflugzeugen über das Mittelmeer zu schaffen.
+
+#### Gewalttätiger als je zuvor
+Die Strategien der Schlepper, Schmuggler und Schleuser ändern sich aktuell. Sie agieren jetzt dreister und
+gewaltvoller. Anfang dieses Jahres brandeten 1100 Migranten an die Befestigungen der spanische Exklave Ceuta
+an, dem am dichtesten am spanischen Festland gelegenen Zipfel Marokkos. Bis zu sechs Meter hohe Zäune mit
+Nato-Draht trennen Spanien hier von Marokko. Mit Metallstäben, Drahtscheren und Steinen versuchten sie
+sich gegen die Sicherheitsleute durchzusetzen, von denen einer ein Auge verlor. Vier weitere spanische Polizisten
+und 50 Mitglieder der marokkanischen Sicherheitskräfte wurden in der Nacht zum Neujahrstag verletzt.
+Bereits im Dezember waren 400 Migranten an verschiedenen Stellen über die beiden Grenzzäune gestiegen,
+doch hinter ihnen wurden die Schlupflöcher dicht gemacht. Lediglich zwei der über tausend Migranten schafften
+es am Neujahrstag auf spanischen Boden.
+Kooperation mit den Herkunftsländern ist dabei äusserst wichtig. So versucht z.B. die Mauretanische Gendarmerie bereits auf der anderen Seite der Grenze den Übertritt zu verhindern. Die Migranten reisen tendenziell
+lieber über Libyen ein als über Tunesien, da die tunesische Regierung noch eher geneigt ist, die rückgeführten
+Migranten auch wieder aufzunehmen und nach ihren deutlich strengeren Gesetzen zu bestrafen, sollte es z.B.
+Beweise für die Unterstützung von Terrorismus oder Drogen und Menschenhandel geben.
+
+
+-----
+
+#### Überwachung des Mittelmeers rettet Menschenleben!
+Was spricht dagegen, an weiten Teilen der europäischen Aussengrenzen so zu verfahren wie an der spanischen
+EU-Aussengrenze? Im Gegensatz zu den 7888 Migranten, die im Jahr 2016 (bis Oktober) spanisches Festland
+erreichten, waren es in Italien zur selben Zeit 173055! Die Haupteinfallroute führt immer noch über Libyen. Die
+Illegalen und jene, welche darauf warten, die rostigen Boote erst noch zu besteigen, erzählen Horrorgeschichten
+von Sklaverei und Folterkellern von diesem künstlich destabilisierten Staat, und trotzdem zieht es sie an, wie
+die Motten zum Licht. Hier müssen Anreize gesetzt worden sein, um diese verbreitete Angst zu überwinden.
+Auf keiner Strecke ertrinken mehr Migranten, als zwischen Libyen und Italien. An dieser Stelle muss eine fehlgeleitete Politik und ein teilnahmsloses Europa eine Hintertür in ihrer Grenzsicherung sperrangelweit offen gelassen haben. Wann werden endlich Projekte zur Vernetzung der Sicherheit und zur Modernisierung der
+technischen Hilfsmittel wie in Spanien gefordert und gefördert? Aber auf welche Weise kann man verhindern,
+dass solche Aufwendungen nicht in grauen Kanälen versumpfen und inwiefern hat die Mafia, die in Sizilien ein
+verlässlicherer Ansprechpartner für die Belange der öffentlichen Sicherheit ist als die Polizei, auch ein Interesse
+daran, den illegalen Zustrom von Gütern und Menschen gleichbleibend hoch zu halten?
+
+#### Euro-Krise begünstigte Asyl-Krise
+In Griechenland, dem offiziellen ‹failed state› in der EU, sieht es ähnlich finster aus. Mehr als 180000 Migranten
+waren es 2016, die von der Türkei und Syrien aus Griechenland erreichten – trotz des Merkel-Erdogan-Deals.
+Das Hauptziel ist hier die Insel Lesbos. Im Jahr 2015, dem bisherigen Höhepunkt der Asylkrise, waren es sogar
+fast 900000 illegale Einwanderer, die einen bankrotten Staat als Einfallstor in das gelobte Land nutzten. Die
+Türkei kann sogar ihre Kontrolle über die Öffnung und Schliessung der Grenzen benutzen, um den ganzen
+europäischen Raum gefügig zu halten.
+Auf diese Weise hat sich Europa durch die eigene Unentschlossenheit selbst dem Zustrom aus Afrika und dem
+erweiterten Mittleren Osten ausgesetzt und wird auch keine Verbesserung der Lage erleben, wenn nicht erfolgsversprechende Konzepte an der gesamten Einwanderungsfront Europas angewandt werden.
+**_Dieser Beitrag erschien zuerst auf unserem Blog Einwanderungskritik.de!_**
+_Quelle: http://www.blauenarzisse.de/spaniens-grenzsicherung-ein-vorbild-fuer-europa/_
+
+### ZDF-Chef bestätigt: Keine freie Berichterstattung bei ARD und ZDF
+_Von Gastautor Heiko Schrang Aktualisiert: 10. Februar 2017 6:04_
+Der öffentlich-rechtliche Rundfunk wird mit Zwangsgebühr am Leben gehalten. Es heisst, nur so sei eine unabhängige und objektive Berichterstattung möglich. Doch offenbar glauben das – neben immer mehr Bürgern –
+nun auch die Mitarbeiter der Öffentlich-Rechtlichen nicht mehr.
+Laut offizieller Version müssen wir GEZ-Gebühren bezahlen, da nur so eine unabhängige und objektive Berichterstattung gewährleistet sei. Dieses Märchen glauben immer weniger Menschen in Deutschland.
+Sensationell ist jedoch, dass dies mittlerweile von Mitarbeitern und sogar Studio-Chefs offen zugegeben wird.
+So sprach die langjährige WDR-Journalistin Claudia Zimmermann im niederländischen Rundfunk davon, dass
+es Vorgaben des WDR in der Flüchtlings-Berichterstattung gibt. Im Interview sagte die WDR-Journalistin, sie
+habe nur ausgesprochen, ‹was alle wussten›.
+Der ehemalige Leiter des ZDF-Studios Bonn, Dr. Wolfgang Herles, legte noch nach. Seine Enthüllungen aber
+klingen dramatisch: «Wir haben ja das Problem, dass – jetzt spreche ich wieder überwiegend vom ÖffentlichRechtlichen – wir eine Regierungsnähe haben. Nicht nur dadurch, dass überwiegend so kommentiert wird, wie
+es der Grossen Koalition entspricht, dem Meinungsspektrum, sondern auch dadurch, dass wir der Agenda vollkommen auf den Leim gehen, die die Politik vorgibt.
+Das heisst, die Themen, über die berichtet wird, werden von der Regierung vorgegeben. Es gibt aber viele Themen,
+die wären wichtiger als das, was die Regierung vorgibt – die natürlich auch ablenken will von dem, was nicht
+passiert, aber das, was nicht passiert, ist oft wichtiger als das, was passiert –, wichtiger als die Symbolpolitik, die
+betrieben wird.»
+Der Journalist Harald Schumann führte bei der Preisverleihung ‹Der lange Atem› noch weiter aus: «Das ist in
+der […] deutschen Presse Gang und Gäbe, dass Chefredakteure oder Ressortleiter ihren Untergebenen sagen,
+wie sie zu denken haben, dass Vorgaben gemacht werden, was sie recherchieren dürfen und was nicht, und dass
+viele junge Kollegen daran gehindert werden, überhaupt kritische Journalisten zu werden, weil ihre Vorgesetzten
+das gar nicht wollen.»
+
+
+-----
+
+Das Problem liegt jedoch nicht darin, dass der öffentlich-rechtliche Rundfunk nicht unabhängig und objektiv
+ist. Das wissen wir. Das Problem liegt darin, dass wir alle ARD und ZDF finanzieren müssen, obwohl wir diesen
+Betrug längst durchschaut haben.
+**_Originalquelle: ZDF-Chef bestätigt: Keine freie Berichterstattung bei ARD und ZDF_**
+_Dieser Beitrag stellt ausschliesslich die Meinung des Verfassers dar. Er muss nicht zwangsläufig die Meinung des Verlags oder die_
+_Meinung anderer Autoren dieser Seiten wiedergeben._
+_Quelle:_ _http://www.epochtimes.de/politik/deutschland/zdf-chef-bestaetigt-keine-freie-berichterstattung-bei-ard-und-zdf-_
+_a2044529.html_
+
+### CDU-Dissidentin: «Bin nicht länger bereit, für eine das Recht brechende CDU meinen guten Namen herzugeben»
+_Michael Mannheimer, 11.2.2017; VON ANGELIKA BARBE, am 10. Februar 2017_
+
+Mutige CDU-Politikerin:
+**«Solange die CDU das Recht bricht, bin ich nicht mehr bereit, meine Glaubwürdigkeit und meinen guten**
+**Namen für die CDU im Wahlkampf herzugeben.»**
+Nach Frau Erika Steinbach hat nun auch das CDU-Mitglied Angelika Barbe die Nase voll von Merkels
+Rechtsbrüchen. Sie schreibt einen Brandbrief an die CDU. Eurokrise, Flüchtlingskrise, Rentenanspruch –
+die CDU scheint all ihre Grundsätze wegzuwerfen.
+Erika Steinbach ist schon aus der Partei ausgetreten. Angelika Barbe, ehemalige Bundestagsabgeordnete der
+SPD, CDU-Mitglied und DDR-Bürgerrechtlerin, wendet sich nun mit einem offenen Brief an ihre Partei.
+Was sie über den Islam schreibt, deckt sich mit allem, was wir Islamkritiker seit Jahren berichten.
+Und beweist, dass jedermann und jedefrau, sofern er/sie nur Willens ist, selbst herausfinden kann, dass der
+Islam eine tödlich intolerante, höchst rassistische und frauenfeindliche Religion ist.
+Was sie über die unentwegten Rechtsbrüche der CDU und der Merkel-Regierung schreibt, disqualifiziert
+das politische Establishment zu einem linken Terrorstaat – und bestätigt jede einzelne Kritik, die ich in den
+letzten Jahren an der Politik Merkels geübt habe.
+Angelika Barbe, wie diese Politikerin heisst, beweist zudem, dass es möglich ist, gegen Merkel aufzustehen.
+Und sie beweist indirekt ebenfalls, dass jene CDU-Politiker, die dies nicht tun, bereit sind, weiterhin und
+wider besseres Willen die illegale und kriminelle Politik ihrer Chefin zu unterstützen.
+Womit sie sich ebenfalls strafbar machen.
+Dieser mutigen Frau, einer ehemaligen DDR-Oppositionellen, gebührt höchster Respekt und Anerkennung
+aller Deutschen, die sich für das deutsche Grundgesetz, für Recht und Freiheit einsetzen.
+Michael Mannheimer, 11.2.2017
+
+### OFFENER BRIEF VON CDU-DISSIDENTIN
+#### «Nicht mehr mit mir!»
+
+Liebe Kolleginnen und Kollegen,
+solange die CDU das Recht bricht, bin ich nicht mehr bereit, meine Glaubwürdigkeit und meinen guten Namen
+für die CDU im Wahlkampf herzugeben.
+Ich denke zum Beispiel an die No-Bailout-Klausel im Maastricht Vertrag, für den ich mich 1998 ehrenamtlich
+im CDU-Wahlkampf eingesetzt habe, wobei ich den Wählern versprach, Deutschland würde nie die Schulden
+
+
+-----
+
+eines anderen EU- Staates bezahlen. Niemals hätte ich damit gerechnet, dass die CDU mit diesem Rechtsbruch
+die eigenen Wähler betrügen würde.
+
+#### Geltendes Recht missachtet
+Ich denke an den Artikel 16a Absatz 2 unseres Grundgesetzes, der durch die alleinige Entscheidung der Kanzlerin
+ausser Kraft gesetzt wurde, ohne je den Bundestag damit zu befassen.
+Als Abgeordnete habe ich damals im Parlament für die Änderung ebendieses Artikels gestimmt und bin dafür
+von der SPD beschimpft und bestraft worden. Die Jusos verbreiteten voller Hass eine Karikatur, die mich am
+Galgen hängend zeigte. Dabei haben sie das Vermächtnis der Aufklärung mit Füssen getreten, für das Voltaire
+schon einstand: «Ich bin nicht deiner Meinung, werde aber alles dafür tun, dass du deine Meinung frei und
+öffentlich sagen darfst.»
+Ich selbst habe in einem Unrechtsstaat leben müssen, bin in der politischen Opposition der DDR für einen
+Rechtsstaat eingetreten, war unendlich dankbar für die miterkämpfte Deutsche Einheit. Frau Merkel hält sich
+nicht einmal an Mehrheitsbeschlüsse der CDU, wie zum Beispiel die Ablehnung des Doppelpasses.
+Als ehrenamtliche Richterin (Schöffin) verstehe ich nicht, dass Kinderehen in Deutschland plötzlich geduldet
+werden, obwohl dies nach deutschem Recht strafbar ist. «In Berlin sind mehr als 100 Kinder verheiratet. Wer
+hilft ihnen?», fragt die BZ. Das ist Scharia in Reinkultur. Sabatina James, eine vom Islam konvertierte Christin
+und seitdem mit einer Todes-Fatwa bedroht, setzt sich seit Jahren für die Opfer der Scharia ein und fordert die
+Einhaltung des Grundgesetzes. Es ist ausserdem rassistisch, wenn muslimischen Mädchen weniger Schutz
+geboten wird als deutschen.
+
+#### Polygamie bei Muslimen
+Polygamie wird durch muslimische Migranten gesellschaftsfähig, weil es strafrechtlich nicht geahndet und zudem
+finanziell unterstützt wird. Der ehemalige Neuköllner Bürgermeister Heinz Buschkowky fordert seit langem ein
+Verbot der in Moscheen geschlossenen Mehrfachehen: Dies sei eine für Frauen demütigende und nach deutschem
+Recht illegale Praxis.
+Es ist mir unerklärlich, dass die CDU den rassistischen ‹islamischen Faschismus› – Hamed Abdel Samad steht
+wegen seiner Bücher ebenfalls unter ständiger Todesdrohung – nicht bekämpft, sondern hofiert. Abdel Samad
+stellt in seiner genialen Analyse mindestens fünf, mit der Nazi-Ideologie vergleichbare, Kriterien fest: 1. Führerprinzip, 2. Gehorsamsprinzip, 3. Repressionsapparat (Religionspolizei), 4. Angestrebte Weltherrschaft, 5.
+Kampfprinzip.
+Er fordert, dass die islamischen Rechtsgelehrten, Imame und Vertreter der deutschen Islamverbände die 25
+Tötungsaufforderungen gegen Ungläubige aus dem Koran streichen. Sowohl Abdel Samad als auch Necla Kelek
+und Seyran Ates wurden von der Islam-Konferenz ausgeschlossen, weil sie die Gleichberechtigung der Frauen
+forderten, wie es der Grundsatz der Gleichheit in unserem Grundgesetz fordert.
+Ich verstehe weder den ehemaligen Innenminister Schäuble noch den jetzigen Innenminister De Maizière (beide
+CDU), die den erpresserischen Forderungen der Islamverbände, die nicht mal 30 Prozent aller in Deutschland
+lebenden Muslime vertreten, nachgegeben und damit die Frauen – ich fühle mich mit den muslimischen Frauen
+solidarisch verbunden – verraten haben.
+
+#### ‹Kopftuch-Islam› hat gewonnen
+Bassam Tibi, syrischer Moslem und Islamologe, entwickelte den Euro-Islam, der von den Islamvertretern fordert,
+Prinzipien, die eine Integration in Europa unmöglich machen, aufzugeben: 1. Trennung von Religion und Politik –
+Privatisierung des Glaubens, 2. Aufgabe von Dschihad und Scharia, 3. Akzeptanz der Demokratie, 4. Toleranz,
+wobei Andersgläubige gleichberechtigt, nicht untergeordnet sind, 5. Aufgabe der Siyadat-Vorherrschaft und
+religiöse Überlegenheit der Muslime, 6. Muslime als Individuen zu begreifen, nicht als Umma-Kollektiv. Aber Tibi
+erklärt resignierend im Cicero: «Warum ich kapituliere.» Er sieht den Euro-Islam gescheitert, weil der ‹KopftuchIslam› die Vorherrschaft gewonnen habe. Der Jurist und islamische Gelehrte Said al Ashmawi wies nach, dass
+das Kopftuchtragen eine politische Parteinahme zugunsten des Lebens in Parallelgesellschaften bedeute.
+Auch der Bischof von Regensburg, Rudolf Vorderholzer, hält die Integration des Islam für unmöglich. Er scheint
+der erste Bischof zu sein, der den Koran gelesen hat und die Diffamierung aller ‹Ungläubigen› – also Juden,
+Christen, Jesiden, Kurden, Buddhisten und weiteren – zur Kenntnis und ernst nimmt. Denn der Islam ist keine
+Religion, sondern eine totalitäre Ideologie, die keine Religionsfreiheit kennt – aber einen Überlegenheits- und
+Herrschaftsanspruch vertritt.
+
+
+-----
+
+#### Rassistische Ideologie
+Ich selbst habe die Definition des Rassismusbegriffs von Richard Schröder, «Rassismus ist ein Überlegenheitsanspruch aufgrund biologischer Merkmale», anhand einiger Suren des Korans überprüft.
+Sure 2, Vers 228 sagt, dass «die Männer eine Stufe über den Frauen stehen, denn Allah ist mächtig und weise.»
+Meine Feststellung, dass der Islam demnach eine rassistische Ideologie sei, bejahte der muslimische Politologe
+Aladin El-Mafaalani vor 130 erstaunten Zuhörern in Dresden öffentlich.
+Wenn doch der ‹Kampf gegen den Rassismus› laut Medien, Kirchen und Politik intensiv geführt werden müsse,
+frage ich mich, wann er sich denn endlich auch gegen die offen rassistische Ideologie des Islam richtet. Ich möchte
+keine dritte Diktatur – erst recht keine islamische – auf deutschem Boden erleben müssen, nachdem schon mein
+Grossvater unter grossen Opfern Widerstand gegen den Nationalsozialismus und ich gegen den Kommunismus
+geleistet haben.
+Leider herrscht auch heute das Prinzip, den politischen Standpunkt, den man nicht teilt, zu diffamieren. In der
+DDR galt es als ‹feindlich-negativ›, heute als ‹Populismus›.
+Die Ungerechtigkeit im Umgang mit Migranten und der einheimischen Bevölkerung macht mich ratlos. Für
+11 Euro in Berlin und 16 Euro in NRW bekommen Asylbewerber drei Mal am Tag Essen, während ein Hartz-4Empfänger dafür nur 4,72 Euro zur Verfügung hat.
+
+#### Ungerechter Rechtsstaat
+In meinem Bekanntenkreis leben einfache ostdeutsche Bürger, die sich mit kleinsten Gehältern, Hartz-4-Be trägen, vorzeitigem Ruhestand wegen Arbeitslosigkeit, Kleinstrenten – ehemals politisch Verfolgte, die auch noch
+um die Zinserträge ihres mühsam Ersparten betrogen werden –, Leihverträgen und zeitlich befristeten Arbeitsverträgen, sogenannten Mini-Jobs, über Wasser halten müssen und nicht zu den Privilegierten gehören, die uns
+dauernd erzählen, Deutschland sei ein ‹reiches Land›.
+Der Staat muss gerecht sein – barmherzig kann der Einzelne sein.
+Niemand von ihnen versteht ausserdem, dass Einkommen mit 35 Prozent und mehr versteuert werden, Kapitalvermögen – über das nur Gutverdiener zu denen auch Politiker gehören – jedoch nur mit 25 Prozent. Kein
+Politiker hat diese Verfassungswidrigkeit beseitigt, auch nicht die CDU.
+
+#### Transferausbeutung der Familie
+Skandalös ist die Behandlung von Frauen, die Kinder grossgezogen haben, in der Rentenberechnung. Der Ökonom Friedrich Liszt sagte schon vor hundert Jahren sarkastisch: «Wer Schweine erzieht, ist ein nützliches Mitglied
+der Gesellschaft, wer Kinder erzieht, ein unnützes.» In zwei Urteilen des Bundesverfassungsgerichts von 1992
+und 2001 wurde die Kindererziehung als ‹generativer Beitrag› zur Rentenversicherung gewürdigt und damit die
+‹Beitragsäquivalenz der Kindererziehung› festgestellt. Der Bundestag wurde aufgefordert, den Müttern diesen
+Beitrag in der Rente dementsprechend anzurechnen und nicht nur mit einem lächerlichen Rentenpünktchen
+pro Kind. Bis heute hat auch die CDU die ‹Transferausbeutung der Familie›, wie Sozialrichter Jürgen Borchert
+sie nennt, nicht beendet.
+Ich habe Paul Kirchhof persönlich für das Urteil gedankt und gefragt, warum dies nicht geschehe. Er verwies
+darauf, dass das Verfassungsgericht Verfassungswidriges zwar feststellen könne, handeln müsse aber der Bundestag. Die Altersarmut vieler Mütter ist damit politisch vorprogrammiert, wobei man den Bürgern auch noch
+Stolz und Selbstwertgefühl nimmt.
+
+#### Verachtung der Bürger
+Für untätige Politiker jedenfalls werde ich in keinem Wahlkampf mehr werben und sie auch nicht mehr wählen.
+Frau Erika Steinbach spreche ich meine grosse Anerkennung für ihre hervorragenden politischen Verdienste
+und ihren Mut zur Wahrheit aus. Sie war die einzige, die mir auf meinen Protest gegen den Rechtsbruch des
+No-Bailout im Falle der Griechenland-Kredite antwortete.
+Ich fragte auch die Neuköllner CDU-Abgeordnete Christina Schwarzer mehrmals schriftlich – und zwar ausdrücklich –, warum sie den Rechtsbruch begehe. Darauf bekam ich keine Antwort. Sie schrieb lediglich, es sei
+ein Friedensprojekt und sie vertraue Schäuble. Das scheint eine neue Methode zu sein, die Bürger mit Nichtachtung – man könnte auch Verachtung sagen – zu strafen. In der DDR bekam man wenigstens noch eine
+Eingangsbestätigung.
+_Quelle: https://michael-mannheimer.net/2017/02/11/cdu-dissidentin-bin-nicht-laenger-bereit-fuer-eine-das-recht-brechende-_
+_cdu-meinen-guten-namen-herzugeben/_
+
+
+-----
+
+### Selbst entlarvt – die NATO und ihre Propaganda
+_Samstag, 11. Februar 2017, von Freeman um 14:00_
+Das Europaparlament prangerte im November vergangenen Jahres die ‹antieuropäische Propaganda› Russlands
+in der EU und ihrem Umfeld an. Es wurde behauptet, die russische Regierung setze zahlreiche Instrumente ein,
+um die EU auch in deren Mitgliedstaaten zu verunglimpfen und damit den Einfluss Russlands zu stärken. So
+stellte das Parlament in einer Entschliessung fest, die russische Regierung würde in der EU aktiv rechtsextreme,
+populistische und europafeindliche Parteien sowie Bewegungen, welche Grundwerte wie ‹Demokratie und Einhaltung der Menschenrechte› verneinten, unterstützen. Dafür gebe Russland erhebliche Beträge aus – öffent liche Gelder oder Zuschüsse von Unternehmen und Organisationen, die vom Kreml kontrolliert würden.
+
+Was für eine Lachnummer, denn seit wann besteht die EU aus demokratischen Prinzipien? Noch nie gewesen.
+Das ist die krasseste Lüge überhaupt! Keinen einzigen aus der EU-Führung kann man wählen. Kann man die
+EU-Kommissare wählen? Kann man den EU-Ratspräsidenten wählen oder den EU-Kommissionspräsidenten?
+NEIN!!!
+Diese Führungsriege der Union wurde den EU-Bürgern einfach vor die Nase gesetzt, ohne Wahlen und Mit bestimmung. Überhaupt scheut die EU jede Form von Demokratie, wie der Teufel das Weihwasser, denn von
+einem Referendum und Befragung des Volkswillens halten sie gar nichts.
+In Russland wird der Präsident aber direkt vom Volk gewählt. Wer hat also mehr demokratische Legitimität?
+Deshalb hat auch Präsident Putin gesagt, die EU müsse Russland keine Lektionen in Demokratie geben. Sollen
+sie zuerst vor der eigenen Haustür kehren.
+Die Menschen auf der Krim wurden gefragt, ob sie sich von der Ukraine trennen wollen, und über 90 Prozent
+sagten ja.
+Es ist deshalb eine Lüge, Russland habe die Krim ‹gewaltsam gestohlen›, mit der die Sanktionen gegen Russland
+begründet werden.
+Ein stichhaltiger Beweis für diesen Rundumschlag an Beschuldigungen über eine russische Propaganda-Kampagne
+gegen die EU wurde nicht gebracht. Ich kann aber beweisen, dass genau das, was man Russland vorwirft, das
+Merkel-Regime, die EU und NATO selbst machen.
+Ich habe oft genug aufgezeigt, dass man gar keine ‹anti-europäische Propaganda› erfinden muss, um die EU zu
+‹verunglimpfen›, das tut die EU schon selbst zur Genüge. Wer zerstört denn die EU wirklich? Es ist Brüssel mit
+seinem undemokratischen und diktatorischen Moloch.
+Wenn man die Wahrheit über diesen Zerstörungsprozess der EU berichtet, dann wird man als russisches
+Propagandaorgan bezeichnet, das auf Befehl von Moskau agiert und von dort bezahlt wird. Völlig lächerlich
+und absurd. Warum soll Moskau für die Wahrheit bezahlen?
+Ich kann euch jedenfalls versichern, ich habe weder je einen Cent von der russischen Regierung bekommen,
+noch wurde ich jemals angesprochen oder man hat mir ‹Informationen› zukommen lassen. Ich kenne auch
+keinen Kollegen, dem das passiert sein soll.
+Die Medien RT und Sputnik sind staatliche russische Anstalten. Ja, genauso wie ARD, ZDF, SRG, ORF, RAI, TF
+oder die BBC … die einseitige Meinungen pro EU, pro NATO, pro Globalisierung und pro Krieg verbreiten.
+Zu behaupten, die europäischen öffentlich-rechtlichen Sender seien unabhängig und neutral in ihrer Berichterstattung, ist wohl der grösste Witz überhaupt!
+Wer hat denn den völkerrechtswidrigen NATO-Bomben-Krieg gegen Serbien als gerechtfertigt verkauft?
+Wer hat uns die ungeheuerliche Lüge verkauft, Saddam Hussein habe Massenvernichtungswaffen und deshalb
+müsse ein Angriffskrieg gegen den Irak her?
+
+
+-----
+
+Wer hat uns den Krieg gegen Libyen verkauft und den gegen Syrien? Wenn jemand ständig lügt und als Kriegshetzer fungiert, dann wohl die Staatsmedien in Europa.
+Was das EU-Parlament und auch das Merkel-Regime behaupten, sind wieder nur Fake-News, falsche und unbewiesene Behauptungen, um von ihrem eigenen Totalversagen abzulenken.
+Das passt genau in dieselbe Lüge, der Kreml habe die US-Wahlen durch ‹hacking› manipuliert und Trump sei
+eine Marionette von Putin.
+Es gibt keinen einzigen Beweis dafür und ist nur eine Ausrede des Clinton-Camps, um die Schuld für ihre Niederlage auf einen Sündenbock abzuwälzen und den neuen Präsidenten in seiner Legitimität zu sabotieren.
+Die Russen sind sowieso schuld an allem, egal was auf der Welt an ‹Unglück› passiert. Die Briten wurden von
+Russland auch auf magische Art ferngesteuert, um sich mehrheitlich für den Brexit zu entscheiden.
+Da 2017 wichtige Wahlen bevorstehen, Frankreich, Italien, Deutschland, sind die EU-Turbos in Panik. Sie
+kommen mit der Situation nicht klar, dass immer mehr Menschen aufgewacht sind, weil sie durch uns alternative
+Medien informiert wurden, was wirklich passiert.
+In der EUDSSR und besonders in der Euro-Zone kracht es doch schon lange im Gebälk und jetzt sind die Risse
+so gross und offensichtlich, weshalb die EU und die NATO selbst genau das machen, was sie Russland zu tun
+beschuldigen – staatlich bezahlte Propaganda.
+
+_Die NATO betreibt schon seit über 50 Jahren ein eigenes TV-Studio_
+
+Das gleiche trifft auf die östlichen Länder zu, welche die EU und die NATO einfangen und in ihre Einflusssphäre
+holen. Wie gross sollen die EU und NATO noch werden? Wie weit will man noch nach Osten vorrücken, Russ land provozieren und ihm auf die Pelle rücken?
+Auf der Webseite des Bundes (bund.de) wurde eine internationale Ausschreibung veröffentlicht, in der man einen
+Dienstleister sucht, der eine ‹wöchentliche ukrainische TV-Sendung› mit Namen ‹Security Factor› produzieren
+kann.
+Vergeben wird dieser Auftrag vom ‹Internationalen Stab der North Atlantic Treaty Organisation›, also der
+NATO. Erfüllungsort ist ‹Brüssel, Belgien und Ukraine›.
+Das heisst, die NATO selbst will Propaganda produzieren lassen, welche auf die Bevölkerung der Ukraine gezielt
+ist und dort wöchentlich im TV laufen soll.
+Man sucht eine private Produktionsfirma, um die Tatsache zu kaschieren, dass die NATO in Brüssel dahinter
+steckt. Die Ukrainer sollen über die wahre Herkunft der Meinungsmache getäuscht werden.
+Das passt zum oben genannten Entschluss des EU-Parlaments, denn die Abgeordneten schlugen vor, dass man
+zur Bekämpfung der ‹russischen Kampagne› in ‹Sensibilisierung, Bildung, Online- und lokale Medien, investigativen Journalismus und Informationskompetenz› investieren soll.
+So würden die Bürger befähigt, Medieninhalte kritisch zu analysieren, meint das EU-Parlament. Zudem solle
+die bisher kleine ‹Task Force für strategische Kommunikation› der EU verstärkt werden.
+Eine Zusammenarbeit bei der ‹strategischen Kommunikation› (ein andere Bezeichnung für Propaganda) mit
+dem Militärbündnis NATO soll auch stattfinden, was mit dieser Ausschreibung nun konkretisiert wurde.
+In Deutschland hat der Bundesnachrichtendienst bereits angekündigt, sich verstärkt der Bekämpfung ‹russischer
+Propaganda› anzunehmen.
+
+
+-----
+
+Also, die Europäische Union, das Militärbündnis NATO und die Geheimdienste spannen zusammen und machen
+Propaganda, nach dem Motto ‹Was wir Russland ohne Beweise zu liefern unterstellen›, machen wir selbst!
+Der Auftrag für die Produktion von Propaganda-Sendungen der NATO für die Ukraine erfolgt als ‹Wettbewerb›
+und interessierte Dienstleister müssen sich bis zum 15. Februar 2017 registrieren und bis zum 14. April 2017
+ihr Angebot abgeben.
+Interessant sind die Voraussetzungen, die ein Bieter erfüllen muss, um den Auftrag zu bekommen. Siehe dieses
+PDF-Dokument:
+1. Der Offertsteller muss aus einem der 28 NATO-Mitgliedsländer sein.
+2. Muss in den letzten DREI Jahren mindestens DREI ähnliche Aufträge erfolgreich realisiert haben.
+3. Genügend Kapazität und Ressourcen besitzen, um den Umfang des Auftrages erfüllen zu können.
+
+Wir sehen, die Ausschreibung für die Produktion von Propagandasendungen ist kein Einzelfall, sondern wurde
+schon oft gemacht, sonst qualifiziert sich ein Bewerber gar nicht.
+Was auch bezeichnend ist, der Bund hängt da voll drin, denn man soll seine Bewerbung an nato@bafa.bund.de
+einsenden, dem Bundesamt für Wirtschaft und Ausfuhrkontrolle (BAFA) – Referat 423 – in Eschborn.
+Brüssel und Berlin wollen damit die Meinung der Bevölkerung der Ukraine beeinflussen, oder auf Deutsch,
+gegen Russland aufhetzen. Warum? Weil die Situation seit dem gewaltsamen westlichen Putsch katastrophal
+geworden ist.
+Die Ukrainer haben jetzt am eigenen Leib schmerzhaft erlebt, was eine Orientierung nach Westen zur EU und
+zur NATO bedeutet. Nämlich krasse Armut, Leid, Elend und Krieg! Die Unzufriedenheit ist sehr gross.
+
+Mit der Rente würde diese Witwe verhungern und deshalb
+bettelt sie vor der Sophienkathedrale in Kiew
+
+Viele Ukrainer verfluchen den Tag, an dem sie auf die falschen Versprechungen des Westens und der vom Westen
+gekauften Politiker reingefallen sind. Sie meinten, mit einer Kappung der Verbindungen zu Russland und der
+Orientierung nach ‹Europa›, würden sie im Paradies landen, wo Milch und Honig fliessen.
+Jetzt sind sie aufgewacht und erleben seit Februar 2014 eine Situation, die nicht schlimmer sein könnte. Sie
+werden ins Militär eingezogen, um einen Krieg gegen die eigenen Mitbürger im Osten zu führen. Sie erleben
+einen finanziell und moralisch völlig bankrotten Staat, in dem es keine Arbeit gibt, kein Einkommen und die
+Armut und die Korruption alles beherrschen.
+Wenn sie ehrlich sind, wünschen sich die meisten Ukrainer die Zeit unter dem gestürzten Präsidenten Wiktor
+Janukowytsch zurück, eine Zeit, die zehnmal besser war als die seit dem Maidan-Putsch, seitdem die westliche
+‹Demokratie› Einzug gehalten hat. Deshalb müssen die EU und die NATO mit ihrer Propaganda dagegensteuern
+und die oben beschriebene TV-Sendung produzieren.
+_Quelle: http://alles-schallundrauch.blogspot.com/2017/02/selbst-entlarvt-die-nato-und-ihre.html#ixzz4YZS0wgLL_
+
+### Frankreich zuerst und Deutschland zuerst
+_von Christian Schumacher; 13. Februar 2017_
+Ihre Parole ‹Frankreich zuerst› ist provokativ und ein Kontrast zu dem allgemeinen Euro-Wahn, in dem nicht
+nur Eurokraten in Brüssel, sondern auch die meisten Regierungen der tonangebenden Regierungen in Europa
+taumeln. Allen voran: Merkel und die deutsche Bundesregierung.
+
+
+-----
+
+‹Frankreich zuerst!› So lautet das neue alte Programm Marie Le Pens. In einem Wahlvideo macht sie
+Stimmung gegen die Europäische Union und für eine Rückbesinnung auf den Nationalstaat.
+Bild: Marine Le Pen; Global Panorama, flickr, CC BY-SA 2.0
+
+#### Marine Le Pen will dem Volk seine Stimme zurückgeben
+Gegen diesen Einheitsbrei bringt sich nun der Front National in Stellung für die kommenden Präsidentschaftswahlen. Kaum war das Video im Netz, hagelte es auch schon bissige Kommentare von Seiten des Establishments.
+Auch hier versteht sich die deutsche Presse als Avantgarde des Europäismus. «Mit einem nationalistischen Programm ist die rechtsextreme Politikerin Marine Le Pen in den französischen Präsidentschaftswahlkampf
+gestartet», schrieb die ZEIT. Also ist eine Präsidentschaftskandidatin, die dem ‹Volk seine Stimme zurückgeben›
+möchte gleich nationalistisch?
+Die Süddeutsche Zeitung hat daraufhin gleich mal eine Umfrage unter ihren Lesern gestartet, um herauszufinden,
+wie ‹man› darüber denkt, dass eine Partei die nationalen Interessen zugunsten EU-Interessen hochhalten möchte.
+Interessant ist, dass hier viele Leser das gleiche Glaubensbekenntnis verlauten liessen, wie es Eurokraten und
+führende Medien in Europa nicht müde werden zu betonen. «Mit Sicherheit das Ende der EU und wohl auch
+Europas», hiess es da oder: «Europa wird durch einen Frexit nicht untergehen.» Oder: «Als überzeugter Europäer
+würde mir das tiefe Sorgen bereiten.» Europa wird mal wieder gleich mit der EU gesetzt, als ob hier eine
+nennenswerte Kongruenz bestehen würde.
+
+#### Europa gibt es schon viel länger als die EU
+War Europa etwa kein Europa, als es noch keine EU gab? Ist die Schweiz oder Norwegen kein Europa? Gibt es
+nicht auch Handel mit diesen Ländern, die laut SZ-Logik ‹kein Europa› sind? Europa gab es vor der EU und
+wird auch noch existieren, wenn es keine EU mehr gibt.
+Auf der anderen Seite muss man sich fragen: Sind die Forderungen von Le Pen berechtigt? Nun, ‹Frankreich
+zuerst› heisst in diesem Fall das französische Volk zuerst. Den Nutzen des französischen Volkes zu mehren und
+Schaden von ihm abzuwenden. Das Volk als kollektives Ganzes zu erhalten, das will Le Pen. Ist daran etwas Verwerfliches? Definitiv nicht! Ganz im Gegenteil. Ein gesundes und selbstbewusstes Volk ist die Grundlage für
+eine funktionierende Demokratie. Denn laut dem Böckenförde-Diktum fusst ein liberaler Staat, wie die Demokratie einer ist, auf Bedingungen, die er selbst nicht zu schaffen vermag. Und eine der Bedingungen ist das Volk.
+Der Politologe Manfred Kleine-Hartlage beschreibt es treffend mit ‹gesellschaftlichen Selbstverständlichkeiten›.
+Diese sind in der kulturellen Identität eines Volkes angelegt und werden durch Erziehung und das Bewusstsein,
+zu jenem Volke zu gehören, vermittelt. Sie sind dafür verantwortlich, dass sich ein Grossteil der Bevölkerung an
+die Gesetze hält, weil ihre Befolgung selbstverständlich geworden ist. Nur unter diesen Voraussetzungen ist es
+einem Staat möglich, seinen Bürgern entsprechende Freiheiten (Meinungsfreiheit, Pressefreiheit, Versammlungsfreiheit) zu erlauben, ohne die Sicherheit zu gefährden, weil das Gemeinwohl und die gesetzlichen Leit linien nicht die ganze Zeit in Frage gestellt werden. Das setzt aber eine gewisse kulturelle Homogenität voraus,
+die eben nur ein Volk garantieren kann.
+
+#### Die multikulturelle Gesellschaft arbeitet an der Auflösung des Volkes
+Wird dieses Volk immer mehr Repressionen ausgesetzt – durch massenhafte Einwanderung zum Beispiel – und
+das kulturelle Selbstverständnis Stück für Stück zersetzt, können diese weitgehenden Freiheiten der Bürger
+nicht mehr garantiert werden, weil durch die Auflösung des Volkes auch die gesellschaftlichen Selbstverständlichkeiten verlorengehen. Folglich muss der Staat seine Kontrolle über die Bürger verschärfen, weil nun vermehrt
+das Gemeinwohl und die gesetzlichen Leitlinien zunehmend in Frage gestellt werden zugunsten partieller
+Interessen. Dieser Zustand wird auch allgemein als ‹multikulturelle Gesellschaft› bezeichnet.
+
+
+-----
+
+Also müsste sich doch jeder dieser Musterdemokraten in den Regierungen und Pressehäusern von diesem Geist
+eines ‹Frankreich zuerst› eine Scheibe abschneiden, wenn er es wirklich ernst meinen würde mit seiner Liebe
+zur Demokratie? Nur mit einer Rückbesinnung auf Volk und Nationalstaat, ist die freiheitliche Gesellschaft zu
+retten. Nicht umsonst heisst Demokratie: Herrschaft des Volkes. Wenn dies dennoch unterbleibt und die
+Lösung für alles nach wie vor ‹mehr EU› heisst, lässt sich doch zweifeln am guten Willen dieser Herrschaften.
+Ein Schelm, wer Böses denkt. Und wenn die Demokratie auch hierzulande wieder eine gesicherte Zukunft
+haben will, braucht man in Europa nicht nur ein ‹Frankreich zuerst›, sondern auch ein ‹Deutschland zuerst›.
+_Quelle: http://www.blauenarzisse.de/frankreich-zuerst-und-deutschland-zuerst/_
+
+### Neuer Chef für Flüchtlingsunterkünfte erhält 15000 Euro monatlich
+_Von Hermann – 14. Februar 2017_
+Wer sich in Berlin um die Unterbringung von Flüchtlingen kümmert, kann dabei gut verdienen. Das gilt offenbar
+nicht nur für private Dienstleister, sondern auch für leitende Mitarbeiter der öffentlichen Hand. So erhält der
+Hamburger Rembert Vaerst, der sich für den Senat ab sofort um die Bewirtschaftung von Flüchtlingsunterkünften
+in der Hauptstadt kümmern soll, monatlich 15000 Euro brutto. Zum Vergleich: Der Regierende Bürgermeister
+Michael Müller (SPD) verdient knapp 14000 Euro.
+«Eilig wird die Besetzung des hochdotierten Jobs vorangetrieben», sagte CDU-Fraktionschefs Florian Graf am
+Montag. Er warf Rot-Rot-Grün vor, den wichtigen Posten unter Ausschluss der Öffentlichkeit besetzen zu
+wollen. Es sei «unverantwortlich, wie der Senat dabei den Weg der öffentlichen Ausschreibung umgeht.»
+Auch das Parlament sollte offenbar nicht näher informiert werden. In der Senatsvorlage steht: «Eine Vorlage an
+das Abgeordnetenhaus ist nicht erforderlich.» Die Personalkommission des Senats wurde auch nicht eingeschaltet.
+Die üppige Bezahlung erfolgt aussertariflich.
+Früher hiess es «den Seinen gibts der Herr im Schlaf», heute gibt die Regierung den Ihrigen …
+_Quelle: https://indexexpurgatorius.wordpress.com_
+_Quelle: http://www.journalalternativemedien.info/politik/neuer-chef-fuer-fluechtlingsunterkuenfte-erhaelt-15-000-euro-mo-_
+_natlich/_
+
+### Europäisches Gericht prüft Verbot von Unkrautgift wegen Bienensterben – Chemieriesen wollen Schadenersatz
+_Epoch Times Aktualisiert: 13. Februar 2017 13:58_
+Das Europäische Gericht prüft von Mittwoch bis Freitag, ob die EU-Kommission 2013 den Einsatz bestimmter
+Pestizide teilweise verbieten durfte, weil sie Bienen massenhaft schädigten. Die deutschen Chemieriesen Bayer
+und BASF sowie Syngenta aus der Schweiz drohen mit Schadenersatzforderungen in Milliardenhöhe.
+
+_Auch Bienen sind in Gefahr. Foto: Boris Roessler/Archiv/Illustration/dpa_
+
+Das Europäische Gericht erster Instanz prüft von Mittwoch bis Freitag in Luxemburg, ob die EU-Kommission
+2013 den Einsatz bestimmter Pestizide teilweise verbieten durfte, weil sie Bienen massenhaft schädigten.
+Für beide Seiten geht es um viel: Die deutschen Chemieriesen Bayer und BASF sowie Syngenta aus der Schweiz
+drohen mit Schadenersatzforderungen in Milliardenhöhe. Imker und Umweltschützer fürchten dagegen einen
+Ausverkauf der Natur.
+Anlass des Verfahrens war ein Unfall bei der Aussaat von Mais im Jahr 2008 in Baden-Württemberg. Maiskörner
+waren mit einem Bayer-Pestizid aus der Wirkstoffgruppe der sogenannten Neonicotinoide behandelt worden.
+
+
+-----
+
+Doch weil das Insektengift nicht richtig an den Maiskörnern haftete, wurde giftiger Staub vom Wind verteilt –
+und die Imker in der Region klagten bald über eines der schlimmsten Bienensterben seit Jahrzehnten.
+Nachdem ein Gutachten der Europäischen Behörde für Lebensmittelsicherheit (Efsa) dann der EU-Kommission
+zufolge bestätigte, dass «diese Pflanzenschutzmittel die europäische Population der Honigbienen gefährden»,
+zog die Kommission die Reissleine und erliess EU-weite Beschränkungen. Tonio Borg, damals EU-Kommissar
+für Gesundheit und Verbraucherpolitik, bezeichnete die von ihm auf den Weg gebrachten Beschränkungen im
+Mai 2013 als einen «weiteren Meilenstein auf dem Weg zur Sicherstellung einer gesünderen Zukunft für unsere
+Honigbienen».
+Das Gericht muss nun prüfen, ob die Kommissionsverordnung womöglich auf rechtlich tönernen Füssen steht:
+Immerhin hatten die Hersteller zuvor eine Zulassung für ihre Pestizide erhalten und im Vertrauen darauf in
+ihre Produktion investiert. Dieser Vertrauensschutz wiegt rechtlich schwer.
+Ob sich das Gericht nun auf die Seite der Chemiekonzerne schlägt und ihnen Schadenersatz in Milliardenhöhe
+zubilligt oder der EU künftig das Recht einräumt, zugelassene Produkte nachträglich aus Umweltschutzgründen
+verbieten zu können: Für beide Seiten geht es grundsätzlich um so viel, dass der Fall vermutlich erst von der
+oberen Instanz, dem Europäischen Gerichtshof (EuGH), entschieden werden dürfte. Doch dieser Weg dauert.
+In der Regel vergehen von der mündlichen Verhandlung vor der unteren Instanz über das Einlegen von Rechtsmitteln bis hin zum endgültigen Urteil des EuGH knapp zwei Jahre. (afp)
+_Quelle: http://www.epochtimes.de/umwelt/europaeisches-gericht-prueft-verbot-von-unkrautgift-wegen-bienensterben-chemie-_
+_riesen-wollen-schadenersatz-a2047743.html_
+
+### Japanische Forscher entwickeln Minidrohnen zur Bestäubung von Pflanzen
+_Badische Zeitung; Mo, 13 Feb 2017 00:00 UTC_
+
+_© Foto: Eijiro Miyako_
+_Mit Hilfe von Pferdehaar und Spezialgel kann dieses Fluggerät Pollen zu Blüten transportieren._
+
+Japanische Forscher tüfteln an pflanzenbestäubenden Minidrohnen. Mit den Maschinen könnte in der Landwirtschaft eines Tages dem Rückgang von Bienen und anderen Insekten entgegengetreten werden, schreiben die
+Forscher um Eijiro Miyako vom National Institute of Advanced Industrial Science and Technology in Ibakari im
+Fachmagazin ‹Chem›. «Wir glauben, dass Roboterbestäuber mit Hilfe von GPS und künstlicher Intelligenz beigebracht werden kann, wo sie hinfliegen müssen», sagt Miyako.
+Die Idee ist simpel: An Drohnen, die mehr als dreimal so gross sind wie Honigbienen, wird ein klebendes Gel angebracht. Damit fliegen sie gegen die Blüten von Pflanzen, nehmen Pollen auf und geben sie an andere wieder ab.
+Bienen, Schmetterlinge und Co. könnten in der Tat Hilfe gebrauchen: In weiten Teilen der Welt sind pflanzen bestäubende Insekten bedroht; in einigen Ländern bis zu 50 Prozent der Bienenarten.
+Wissenschaftler der britischen Universität Reading nannten vor einigen Monaten fünf Hauptgründe, warum die
+Zahl der Bestäuber insgesamt zurückgeht: Die immer intensivere Landwirtschaft, durch die den Tieren weniger
+echte Natur zur Verfügung steht, giftige Pestizide, der Klimawandel, Krankheitserreger wie die Varroamilbe sowie
+in Ökosysteme einwandernde Fressfeinde. Dabei leisten die Bestäuber einen kaum vorstellbaren Beitrag in der
+**Landwirtschaft – auch finanziell gesehen. Schätzungen zufolge sorgen sie dafür, dass Feldfrüchte im Wert von bis**
+zu 577 Milliarden US-Dollar im Jahr zusätzlich geerntet werden können.
+Miyakos Team steht mit seiner Entwicklung noch am Anfang, für einen Einsatz im Freien sind die Drohnen noch
+nicht bereit. Auf Videos ist zu sehen, dass sie noch recht unbeholfen fliegen. Bislang gelang es, die Blüten von
+japanischen Lilien zu bestäuben. dpa
+_Quelle: https://de.sott.net/article/28219-Japanische-Forscher-entwickeln-Minidrohnen-zur-Bestaubung-von-Pflanzen_
+
+
+-----
+
+### Unkrautgift verbieten: Europäische Bürgerinitiative gegen Glyphosat startet
+_Epoch Times, Aktualisiert: 8. Februar 2017 6:14_
+Umweltorganisationen fordern die EU-Kommission auf, «den Mitgliedstaaten ein Verbot für Glyphosat vorzuschlagen, das Zulassungsverfahren für Pestizide zu überarbeiten und EU-weit verbindliche niedrigere Ziele für
+den Einsatz von Pestiziden festzulegen».
+
+_Protest gegen die Verwendung des Unkrautvernichtungsmittel Glyphosat._
+_Foto: JOHN THYS/AFP/Getty Images_
+
+Mehrere Umweltorganisationen sammeln ab Mittwoch mit einer Europäischen Bürgerinitiative Stimmen für
+ein Verbot des umstrittenen Pflanzenschutzmittels Glyphosat.
+Die Bürgerinitiative wurde Ende Januar von der EU-Kommission offiziell registriert. Darin wird die Behörde
+dazu aufgefordert, «den Mitgliedstaaten ein Verbot für Glyphosat vorzuschlagen, das Zulassungsverfahren für
+Pestizide zu überarbeiten und EU-weit verbindliche niedrigere Ziele für den Einsatz von Pestiziden festzulegen».
+Nach dem Start haben die Organisationen, darunter Greenpeace und Campact, ein Jahr lang Zeit, um eine
+Million gültige Unterschriften aus mindestens sieben verschiedenen EU-Mitgliedstaaten zu sammeln. Gelingt
+dies, muss die Kommission innerhalb von drei Monaten darauf reagieren. (afp)
+_Quelle: http://www.epochtimes.de/politik/europa/unkrautgift-verbieten-europaeische-buergerinitiative-gegen-glyphosat-star-_
+_teteuropaeische-buergerinitiative-gegen-glyphosat-startet-a2043354.html_
+
+### Europa – gemeinsam einsam
+_10. Februar 2017 um 12:27 Uhr | Verantwortlich: Jens Berger_
+_Veröffentlicht in: Arbeitslosigkeit, Audio-Podcast, Europäische Union, Ungleichheit, Armut, Reichtum,_
+_Wichtige Wirtschaftsdaten, Wirtschaftspolitik und Konjunktur_
+Ein wenig bürokratisch, aber ansonsten doch sehr erfolgreich – so lautet das Zwischenfazit der allermeisten
+Bewertungen, wenn es um das ‹gemeinsame Europa› geht. Abseits der Sonntagsreden ist von der Gemeinsamkeit
+der Länder der Europäischen Union jedoch wenig zu spüren. Die neoliberale Ära hat ihre Spuren hinterlassen.
+Der komplette Süden ist mittlerweile soziökonomisch vom europäischen Traum abgehängt und die östlichen
+Mitgliedsländer verlieren immer mehr den Anschluss. Ein kleiner Ausflug in die Datenbank von Eurostat zeigt,
+wie geteilt Europa mittlerweile ist. Ohne einen massiven Kurswechsel droht Europa auseinanderzubrechen.
+
+#### Europa – gemeinsam einsam.
+Glaubt man den Statistikern von Eurostat, ist Europa vor allem im Norden ein Erfolgsmodell. Gefragt nach ihrer
+‹allgemeinen Zufriedenheit› liegen die Dänen, die Finnen und die Schweden mit einer glatten 8,0 auf einer Skala
+von 0 bis 10 ganz weit vorne. Am unteren Ende der Skala befinden sich die Bulgaren mit einer sehr schlechten
+4,8. Nur unwesentlich zufriedener mit der Allgemeinsituation sind die Griechen, die Portugiesen, die Kroaten
+und die Bewohner der baltischen Republiken. Verantwortlich für die hohe Zufriedenheit im Norden und die
+Unzufriedenheit im Süden und Osten ist vor allem die finanzielle Situation. Gefragt nach diesem Teilbereich
+geht die Zufriedenheit der Bulgaren sogar auf 3,7 zurück und auch die Griechen (4,3), die Portugiesen (4,5)
+und die Kroaten (4,6) weisen mit Werten unter 5,0 extrem schlechte Ergebnisse auf. Feierlaune über das gemeinsame Europa kommt in diesen Ländern sicher nicht auf.
+
+#### Das Nord-Süd-Ost-Gefälle wird immer grösser
+Ein Däne kommt im Durchschnitt auf ein Jahresnettoeinkommen von 28364 Euro, ein Schwede immer noch
+auf 26640 Euro und ein Finne auf 23763 Euro. Deutschland liegt hier mit 20668 Euro übrigens im oberen Mit
+
+-----
+
+telfeld. Die Nettoeinkünfte der Polen, Kroaten und Balten liegen bei rund einem Viertel der Deutschen. Ein
+Bulgare kommt im Schnitt auf 3332 Euro pro Jahr und ein Rumäne sogar nur auf 2315 Euro, also weniger als
+ein Zehntel des dänischen Durchschnittseinkommens.
+Unterschiede – wenn auch nicht so dramatische – gibt es freilich auch in den Nationalstaaten selbst. Ein Hamburger oder ein Münchner bekommt im Mittel auch ein deutlich höheres Einkommen als Bewohner ländlicher
+Gegenden in Brandenburg oder Sachsen-Anhalt. Ein ‹gemeinsames Europa› hat jedoch das Ziel, dass diese
+Lücken im Lauf der Zeit geschlossen werden. Um dies zu realisieren, müssen jedoch die Löhne in den armen
+Regionen deutlich schneller steigen als die Löhne in den wohlhabenden Regionen. Ansonsten öffnet sich die
+Schere noch weiter. Und genau dies geschieht in Europa. Während das Durchschnittseinkommen der Schweden
+beispielsweise zwischen 2010 und 2015 um 35% gestiegen ist, wuchsen die Einkommen in Bulgarien und
+Rumänien mit 10% und 14% weitaus langsamer.
+Besonders problematisch ist, dass in einigen Ländern die Durchschnittseinkommen nicht nur relativ – also
+inflationsbereinigt – sondern sogar absolut sinken. So mussten die Kroaten 2015 im Schnitt mit 6% weniger
+Geld auskommen als fünf Jahre zuvor. In Italien betrug der Verlust 1%, in Portugal 3%, in Spanien 9%, in Zypern
+15% und in Griechenland sogar sagenhafte 37%. Heute liegt das griechische Durchschnittseinkommen auf
+einem Niveau mit dem tschechischen Wert. Vor fünf Jahren verdiente ein Grieche im Schnitt noch das Doppelte
+wie ein Tscheche.
+
+#### Die Armut verfestigt sich an der Peripherie
+In Tschechien und vielen schwedischen, dänischen und finnischen Regionen sind laut Eurostat weniger als 15%
+der Menschen akut von Armut oder sozialem Abstieg bedroht. In Griechenland sind es 35,7%, in Rumänien
+37,4 % und in Bulgarien sogar 41,3%. In der gesamten süd- und osteuropäischen Peripherie liegt die Armutsquote zwischen 23,4% (Polen) und 30,9% (Lettland). Einige Regionen, wie beispielsweise Sizilien mit einer
+Armutsquote von 55,4%, sind mittlerweile Europas Armenhäuser.
+In ganz Schweden mit seinen rund 10 Millionen Einwohnern gibt es rund 68000 Menschen, die so arm sind,
+dass sie ihre lebensnotwendigen Ausgaben nicht bestreiten können. Die Statistiker sprechen hier von einer
+‹erheblichen materiellen Deprivation›. In der südbulgarischen Region Plovdiv sind es mit rund 620000 fast
+zehnmal soviel. Die Planungsregion ‹Yuzhen Tsentralen› ist jedoch mit ihren 1,5 Millionen Einwohnern auch
+deutlich kleiner als Schweden. Während mehr als jeder dritte Bulgare seine lebensnotwendigen Ausgaben nicht
+bestreiten kann, ist es in Schweden nur jeder Fünfzehnte. Auch in Griechenland, Rumänien und einigen Regionen Italiens liegt die Quote übrigens zwischen 20 und 30%.
+
+#### Der ‹Club Med› rutscht ab
+Besonders problematisch ist, dass die Entwicklung in die falsche Richtung geht. Und hiervon sind nicht nur die
+neueren EU-Mitglieder betroffen. So stieg die Armutsgefährdungsquote in der gesamten EU von 2008 bis 2015
+um 12%. In einigen alten Mitgliedsländern war die Steigerung jedoch wesentlich höher. So wuchs die Quote in
+Irland von 15,5% auf 19,9%, in Italien von 18,9% auf 25,6%, in Spanien von 19,8% auf 29,9% und in Griechenland von 20,1% auf 48,0%. Dies ‹relativiert› freilich auch die ohnehin schon schlechten Werte beim Durchschnittseinkommen. Jeder zweite griechische Haushalt hat den Zahlen von Eurostat zufolge somit sogar weniger
+als 60% des tschechischen Durchschnittseinkommens zur Verfügung.
+Besonders deutlich wird die fatale Entwicklung Europas, wenn man sich einmal die Arbeitslosenzahlen der alten
+EU-Mitglieder aus dem Mittelmeerraum anschaut. In den Sonntagsreden ist man sehr stolz darauf, dass die
+Arbeitslosenquoten in Griechenland, Frankreich, Spanien, Italien und Portugal im letzten Jahr rückläufig
+waren. Das ist jedoch bestenfalls die halbe Wahrheit. Lag die Gesamtzahl der offiziell registrierten Arbeitslosen
+in diesen fünf Ländern im Herbst 2008 noch bei 6,7 Millionen, so liegt sie heute bei 12 Millionen. Die leicht
+positiven Zahlen des letzten Jahres sind vor allem darauf zurückzuführen, dass viele Erwerbslose in diesen Staaten
+nun als nicht mehr vermittelbar gelten und aus der offiziellen Statistik herausfielen. Die Migration vor allem
+junger Erwerbsloser tat ihr übriges.
+
+#### Auch die Arbeitslosigkeit verfestigt sich
+Es ist ohnehin erstaunlich, dass die Politik zwischen den ganzen roten Zahlenkolonnen der europäischen
+Statistikbehörden immer wieder Arbeitsmarktdaten findet, die man als Erfolgsmeldung verkaufen kann. Dabei
+ist die Zahl der Langzeitarbeitslosen in der EU zwischen 2008 und 2015 von 6,2 auf 10,9 Millionen Menschen
+gestiegen – ein Plus von 76%. Auch hier ist es besonders dramatisch, dass die Zahlen in den ökonomisch ohnehin
+
+
+-----
+
+schon schwachen Regionen besonders dramatisch sind. So lag das Wachstum der Langzeitarbeitslosigkeit in
+Bulgarien bei 91%, in Irland bei 201%, in Griechenland bei 379%, in Frankreich bei 60%, in Italien bei 134%
+und in Zypern sogar bei 1330%. Was das konkret heisst, sieht man am Beispiel Spanien. Dort gab es 2008 467000
+Langzeitarbeitslose. Heute sind es 2,6 Millionen – eine Steigerung von 459%. Allein in der Hauptstadt Madrid
+ist die Zahl der Langzeitarbeitslosen zwischen 2008 und 2015 von 43000 auf 322000 gestiegen. Dies zeigt einmal
+mehr, wie wenig aussagekräftig die offiziellen Quoten sind. Fast elf Millionen EU-Bürger gelten nach den offiziellen Definitionen als langzeitarbeitslos.
+
+#### Woher soll die Wende kommen?
+Die sozioökonomische Entwicklung in der EU klafft immer stärker auseinander. Um die Schere wieder zu
+schliessen, müssten vor allem die Regionen wachsen, die heute am unteren Ende der Skala stehen. Hier muss
+jedoch die Frage gestattet sein, wie dies geschehen soll? Von alleine?
+Die Konsumausgaben der griechischen Haushalte sanken seit 2008 um 27%. Und Griechenland ist nicht allein.
+Auch in Spanien (-8%), Kroatien (-13%), Italien (-5%), Zypern (-9%), Portugal (-6%) und vielen weiteren
+Staaten sanken die Ausgaben sogar in absoluten Zahlen. In der gesamten EU sind die Konsumausgaben in
+diesem Zeitraum übrigens auch nur um miserable 2,0% gestiegen. Ein Wachstum aus dem Konsum heraus kann
+es in der EU also nicht geben; vor allem nicht in den ohnehin schon schwachen Regionen.
+Und wie sieht es mit den Investitionen aus? Seit 2008 ging die Zahl der Bruttoinvestitionen in der gesamten EU
+um 8% zurück. In den wirtschaftlich angeschlagenen und den ohnehin schwachen Ländern der Peripherie sind
+die Investitionen seitdem förmlich eingebrochen. In Griechenland um 67%, in Spanien um 28%, in Kroatien
+um 41%, in Italien um 28%, in Zypern um 53% und in Portugal um 33%. Aber auch in ‹Musterstaaten› wie
+Slowenien (-42%), Finnland (-15%) und sogar in Deutschland (-3%) sind die Investitionen rückläufig. Wen
+wundert es auch? Wenn die Wirtschaft stagniert, die Gehälter nicht steigen und der Staat sich als eiserner Ausgabenkürzer versteht, kann die Wirtschaft auch nicht wachsen und Investitionen bleiben aus.
+Um ein ‹gemeinsames Europa› zu realisieren, müsste vor allem Geld an der Peripherie ankommen. Aber woher
+soll das Geld kommen? In allen genannten Ländern ist neben den Investitionen auch der Teil des Bruttoinlandproduktes rückläufig, den Ökonomen als Arbeitnehmerentgelt bezeichnen; also der Teil des Kuchens, der bei
+den Werktätigen hängenbleibt. Und dies ist abseits von Krisenzeiten eigentlich sehr ungewöhnlich. Es kommt
+immer wieder vor, dass reiche Regionen stagnieren, aber wenn ärmere Regionen stagnieren, können sie nicht
+aufholen, sondern fallen im internationalen Vergleich immer weiter zurück. Genau dies ist in fast allen EULändern der Süd-Ost-Peripherie der Fall. Wenn Investitionen zurückgehen und die Arbeitnehmerentgelte in
+ohnehin schon armen Staaten wie Rumänien, Kroatien oder Lettland sinken anstatt zu steigen, vergrössert sich
+der Abstand zur ‹blauen Banane›, also der europäischen Kernregion, von Jahr zu Jahr. Gleiches gilt für ehemals
+erfolgreiche Regionen in der Peripherie, die Berlin und Brüssel seit der Finanzkrise am ausgestreckten Arm verhungern lassen.
+Die europäische Peripherie schrumpft. Dabei bräuchten gerade Staaten wie Lettland, Litauen, Estland, Kroatien,
+Bulgarien und Rumänien, also Staaten, die wirtschaftlich weit hinter dem Zentrum Europas zurückhängen,
+eigentlich bei allen Kennzahlen mindestens zweistellige Wachstumsraten, um mittel- bis langfristig aufzu schliessen. Davon sind sie jedoch Lichtjahre entfernt. Wer draussen ist, bleibt draussen.
+Was Europa bräuchte, wäre ein gross angelegtes Investitionsprogramm für die Peripherie. Doch davon will in
+der neoliberal geprägten EU-Kommission freilich niemand etwas hören. Stattdessen redet man sich lieber ein,
+dass die unsichtbare Hand des Marktes derartige Schieflagen von alleine korrigiert. Das tut sie, aber auf eine
+ganz andere Art und Weise als es sein sollte.
+
+#### Wenn wir nicht gegensteuern, kommt es zu einer Völkerwanderung
+Wenn wir über ‹Flüchtlinge› sprechen, dann haben wir meist Syrer, Afghanen oder Schwarzafrikaner vor Augen.
+Die allermeisten ‹Wirtschaftsflüchtlinge› sind jedoch Binnenflüchtlinge aus der EU. Die drei baltischen Republiken sind beispielsweise seit 1990 von ehemals rund acht Millionen Menschen auf heute nur noch 6,2 Millionen
+Menschen geschrumpft. Ähnlich sieht es in Bulgarien (8,8 Millionen auf 7,2 Millionen), Rumänien (23,2
+Millionen auf 19,7 Millionen) und Kroatien (4,8 Millionen auf 4,2 Millionen) aus. In Deutschland kennt man
+dieses Phänomen ja selbst zur Genüge. Auch die Flächenstaaten der ehemaligen DDR mussten im Schnitt rund
+20% ihrer Bevölkerung gen Westen ziehen lassen.
+Seit Beginn der Finanzkrise ist das Phänomen der Armuts- und Arbeitsmigration im Kern Europas angekommen
+und es gibt keinen Grund anzunehmen, dass die Migrations- und Fluchtbewegungen nicht noch dramatisch
+
+
+-----
+
+zunehmen werden, wenn sich die ökonomischen Rahmenbedingungen an der Peripherie nicht bald verbessern.
+EU-Bürger haben nun einmal die Möglichkeit, innerhalb der EU frei zu reisen und sich frei niederzulassen. Und
+wenn man sich nun einmal die Unterschiede zwischen Südbulgarien und Schweden anschaut, wundert man
+sich eher, warum sich nicht noch mehr Bulgaren auf den Weg gemacht haben.
+Sozioökonomisch ist dies natürlich alles andere als wünschenswert. In den europäischen Zentralregionen
+würden die Zuwanderer vor allem die Löhne nach unten drücken – ein Effekt, der von der neoliberalen EUKommission sicher durchaus gewollt ist. Auf der anderen Seite verlieren die Herkunftsregionen jedoch vollends
+den Anschluss, da es ja in der Regel die Gebildeten, Jungen und Fitten sind, die sich in der Hoffnung auf eine
+bessere Zukunft auf die grosse Reise machen. Schon heute sind ganze Regionen Europas von der jüngeren
+Generation entvölkert. Im Baltikum hat sich die Zahl der Kinder seit 1990 von 1,8 Millionen auf heute 935000
+fast halbiert. Ähnlich hoch ist der Rückgang in Bulgarien (-45%), Polen (-41%) und Rumänien (-44%).
+Wie also soll unser gemeinsames Europa aussehen? Übervölkerte Städte in den Metropolregionen des Benelux,
+Ostfrankreichs und Südwestdeutschlands und einsame Dörfer mit zahnlosen Greisen in Spanien, Griechenland,
+Kroatien, im Baltikum und auf dem Balkan? Wenn dies unser politisches Ziel ist, sind wir auf dem besten Weg.
+Wenn wir ein echtes gemeinsames Europa haben wollen, dann müssen wir gegensteuern.
+_Quelle: http://www.nachdenkseiten.de/?p=36966_
+
+### Offener Brief an die etablierten Politiker: «Warum wir die AfD wählen»
+_Veröffentlicht am 11. Februar 2017 von dieter_
+Sehr geehrte Frau Dr. Merkel
+Sehr geehrte Damen und Herren der Parteien CDU, CSU, SPD, Grüne, Linke, FDP und AfD
+Sehr geehrte Medienvertreter
+Wir sind 48 bzw. 47 Jahre alt. Wir haben zwei Kinder und mehrere Neffen bzw. Nichten, besitzen eine Immobilie
+und wohnen ruhig gelegen in einem Viertel einer Kleinstadt, deren Wählerschaft man als schwarz-rot-grüne
+Stammwählerschaft bezeichnen könnte. Auch wir haben dazu beigetragen, die derzeitige Regierung 2013 noch
+einmal zu bestätigen. Wir sind in tiefer Sorge um die Zukunft unserer Kinder, Nichten, Neffen, Verwandten und
+Freunden. Die aussergewöhnliche Situation in Europa und Deutschland hat uns nun veranlasst, uns zum ersten
+Mal in dieser Art und Weise politisch zu engagieren. Wir hoffen sehr, mit diesem Brief ernst genommen zu
+**werden.**
+In der Hoffnung, auf diese Weise bei Ihnen – den politischen Entscheidungsträgern unseres Landes – Gehör zu
+finden, wenden wir uns per Email an Sie. Bitte verteilen Sie diesen offenen Brief an möglichst viele Kolleginnen
+**und Kollegen sowie an alle Mitglieder der Regierungsparteien, die bereit sind, sich mit wohlbegründeter Kritik**
+**auseinanderzusetzen.**
+Gern können Sie uns auch Ihre Rückmeldungen zu den angesprochenen Themenkomplexen senden.
+Im Folgenden werden wir Ihnen unsere Entscheidung, bei allen Wahlen im Jahr 2017 die Partei ‹Alternative für
+**Deutschland› zu wählen, erläutern.**
+Unter Frau Dr. Merkel haben die propagierte ‹Alternativlosigkeit› und der Personenkult um Frau Merkel geradezu
+groteske Züge angenommen und erinnern uns zeitweilig an Diktaturen wie die in Nord-Korea. Unter Demokratie verstehen wir, eine (Aus)Wahl zwischen mehreren Alternativen zu haben. Dies ist unter Frau Merkel erkennbar nicht mehr der Fall. Frau Merkel hat es geschafft, alle Kritiker zu beseitigen und das Schicksal der CDU
+so fest mit dem eigenen zu verbinden, dass ein Aufbau eines anderen Kandidaten, der für eine andere Politik
+steht, bis zur Bundestagswahl 2017 nicht mehr möglich sein wird. Die CDU ist Frau Merkel, ob sie (und die
+**Wähler) das wollen oder nicht.**
+Die Gleichsetzung von CDU und Frau Merkel wäre verkraftbar, wenn die von ihr getroffenen Entscheidungen
+‹zum Wohle des Deutschen Volkes› (auf das sie vereidigt wurde!) ausgefallen wären. Leider hat Frau Merkel/die
+CDU-SPD Regierung mit zunehmender Amtszeit immer katastrophalere Fehlentscheidungen getroffen.
+Die völlig überhastete, stümperhaft umgesetzte und zu Lasten von Geringverdienern gehende Energiewende,
+die die Zuverlässigkeit unserer Stromversorgung als Industrieland massiv zu beeinträchtigen droht.
+Die monatelange, gesetzeswidrige Öffnung der deutschen Grenzen für Migranten aller Art. Als Frau Merkel im
+September 2015 die Grenzen öffnete, hätte ihr klar sein müssen, dass sie hiermit eine bedenkliche Entwicklung
+noch massiv verstärkte und dass unsere europäischen Partner diesen hochgefährlichen Kurs niemals mittragen
+würden. Im Gegensatz zu Frau Merkel besassen einige europäische Partner schon im Jahr 2015 einen sehr viel
+
+
+-----
+
+realistischeren Blick auf die Entwicklungen. Bis heute hat Frau Dr. Merkel mit Ihren naiven Ansichten und Entscheidungen Deutschland in Europa und der Welt völlig isoliert. Diese falsche Politik hatte mit Sicherheit auch
+**Einfluss auf die britische Brexit-Entscheidung und führt im Endeffekt zu einem Zerfall der EU. Mit einer klugen**
+**und besonnenen Politik würden sich viele negative Entwicklungen in der EU sehr viel moderater darstellen.**
+Wie kann eine Bundeskanzlerin allen Ernstes sagen ‹die deutschen Grenzen lassen sich nicht schützen›?
+**Monatelang war es der gesamten Parteienlandschaft (mit Ausnahme der AfD) egal, wie viele Migranten zu uns**
+**kommen, wer diese sind und welche Absichten sie haben. Das Ergebnis sieht man an den zahlreichen No-go-**
+Areas, die wir mittlerweile in Deutschland und Europa zu beklagen haben. Das Ergebnis sieht man an der
+**enormen Zahl der abscheulichen Verbrechen, die durch Migranten begangen werden – bis hin zu Mord und**
+Terroranschlag.
+**Sie, Frau Dr. Merkel, tragen für diese Toten und Verletzten, für diese zerstörten Familien eine direkte Mit -**
+**verantwortung! Wir haben Freunde in Freiburg, Köln und anderen Städten. Die Sicherheitslage im Land ist**
+katastrophal!
+**Wie erklären Sie es, Herr Maas, dass sich sehr (!) zahlreiche Migranten doppelt, dreifach oder auch zigfach**
+**registrieren können, um so eine Vielzahl unterschiedlicher Identitäten zu nutzen? Die Folge sind nicht nur**
+massiver Missbrauch von Sozialleistungen, sondern auch die Möglichkeiten, die sich aus der Verschleierung der
+Identität ergeben, bis hin zum Terroranschlag. Hier hat ihr Justizsystem völlig versagt!
+Wie kann es sein, dass eine Frau Reker die Opfer der Kölner Silvesternacht 2015 arrogant verhöhnt mit ihrem
+Hinweis ‹doch eine Armlänge Abstand zu halten›? Dieses Beispiel – nur ein Beispiel unter vielen weiteren – zeigt,
+wie weit sich die politische ‹Elite› von der Lebenswirklichkeit der Bevölkerung abgekoppelt hat. Sie nehmen die
+**Realität in unserem Land überhaupt nicht mehr wahr oder wollen sie nicht wahrnehmen!**
+**Herr Mass führt eine beispiellose Kampagne gegen die Meinungsfreiheit an, getarnt als ‹Kampf gegen Rechts›.**
+**‹Rechts› ist heutzutage schon die kleinste Kritik an Frau Merkel und ihrer Politik. Kritische Stimmen wie z.B.**
+‹Tichys Einblicke›, ‹Die Achse des Guten› und andere werden aggressiv bekämpft, z.B. indem auf die Vergabe
+von Werbeverträgen massiv Einfluss genommen wird (Agentur Scholz und Friends). Ihnen nicht genehme
+Meinungen werden so aktiv unterdrückt. Herr Maas, ist dies Ihre Vorstellung von Meinungsfreiheit? Ihr Vor gehen
+erinnert uns eher an autoritäre Alleinherrscher wie Herrn Erdogan oder Herrn Putin. Sie wollen Demokrat sein?
+Dann sollten Sie sich auch für die Meinungsfreiheit der politisch Andersdenkenden einsetzen und diese nicht
+unterdrücken!
+Wie kann es sein, dass ein Ranga Yogeshwar (selbst in bester Lage in London lebend [Anm. gemäss Wikipedia
+lebt er in Hennef (Sieg) in Nordrhein-Westphalen, wo er ein Eigenheim besitzt]) im Fernsehen Verständnis für
+Diebstähle durch Migranten äussern darf? Dürfen Deutsche jetzt auch im Supermarkt stehlen, ohne verfolgt zu
+werden? Wie kann es sein, dass Ladendiebstahl nicht mehr verfolgt wird, weil der Aufwand – und die schiere
+Anzahl – nicht mehr handhabbar sind? Wie kann es sein, dass Opfer von sexueller Nötigung von der Polizei
+aufgefordert werden, doch bitte keine Anzeige zu erstatten, da dies sowieso nicht zur Bestrafung der Täter führen
+wird? Hier hat der Rechtsstaat vor der Gewalt kapituliert!
+Seit Jahrzehnten wird die Polizei von allen Seiten kaputt gespart. Jetzt, da die Sicherheitslage sich katastrophal
+verschlechtert hat und der Wahlkampf begonnen hat, wird die Aufrüstung der Polizei wieder vorangetrieben.
+**Warum wurde nicht nachhaltig in unsere Sicherheit investiert?**
+**Eine verlässliche, nicht manipulierte Statistik zur Migrantenkriminalität wird von der Regierung und den**
+**grösstenteils gleichgeschalteten Medien unterdrückt. Ihr Justizminister, Heiko Maas, lässt jede Kritik an Ihrer**
+Politik unterdrücken. Talk-Shows (Anne Will, Illner, Hart aber fair) und Radiosendungen werden mit dem
+alleinigen Zweck veranstaltet, Ihrem politischen Gegner (der AfD) zu schaden. Entsprechend einseitig werden
+die Gäste eingeladen und mit mehr oder minder fairer Redezeit bedacht.
+Zeitgleich wurden und werden alle Kritiker Ihrer ‹alternativlosen› Politik, als Rechtsaussen, rechtsextrem, Nazis,
+Pack (Herr Gabriel, das werden wir Ihnen und der SPD nie vergessen!) usw. diffamiert. Hierbei haben die von
+Ihnen kontrollierten Medien tatkräftig mitgeholfen und helfen weiterhin mit, die Gesellschaft in der Mitte regel recht zu verreissen. Mittlerweile sollte Ihnen doch klar geworden sein, dass die Beleidigung Ihrer Wähler Ihnen
+**keine Stimmen zurückbringen wird.**
+**Seit Jahren wurden und werden Straftaten, die von Migranten begangen wurden, mit beispielloser Milde geahn-**
+**det.Diesen unfassbaren Rassismus gegen Deutsche hat Herr Mass zu verantworten! Wie kann es sein, dass selbst**
+schwerste Gewaltverbrechen mit lächerlich milden Strafen geahndet werden? Herr Maas, erklären Sie sich bitte!
+Wie kann es sein, dass Straftäter auch dann nicht abgeschoben werden, wenn Sie nachweislich schwere Verbrechen
+begangen haben und eine Gefahr für die Bevölkerung darstellen? Grüne und Linke verhindern regelmässig
+
+
+-----
+
+**Abschiebungen und gefährden so mit voller Absicht weiter die eigene Bevölkerung. Wie kann es sein, das Asyl -**
+bewerber nicht abgeschoben werden, weil das Herkunftsland nicht ermittelt werden kann? Asylbewerbern, die
+die Auskunft verweigern, ist jegliche staatliche Unterstützung zu entziehen und das Problem wäre sehr schnell
+gelöst.
+**Wie kann es sein, dass eine Frau Özoguz unverhohlen die Islamisierung Europas vorantreibt, gefördert mit**
+**unseren Steuergeldern? Wie kann es sein, dass für einen angeblich notwendigen ‹Kampf gegen Rechts› alle nur**
+erdenklichen Mittel (z. B. AA-Stiftung) zur Verfügung stehen, aber die Polizei bei der Bekämpfung der erheblichen und immer schlimmer werdenden Migrantenkriminalität behindert wird? Wie kann es sein, dass linksextremistische Taten geduldet, ja geradezu glorifiziert werden (Grüne und Linke)?
+**Wie kann es sein, dass Frontex Migranten vor der Küste Libyens abholt,** und so die Schleuserkriminalität
+fördert, anstatt effektiv die EU-Aussengrenze zu schützen, was eigentlich der Auftrag dieser Organisation sein
+sollte?
+Der derzeitige Bundespräsident, Herr Gauck, lud zum Jubel der Anwesenden indische Migranten ein, nach
+Deutschland zu kommen (‹Deutschland hat genug Platz›). Dies ist schon einige Jahre her. Ein zukünftiger
+Bundes präsident, Herr Steinmeier, nennt den Präsidenten der USA einen ‹Hassprediger›. Herr Steinmeier ist
+für das höchste Amt im Staat gänzlich ungeeignet. Grundsätzlich wäre der Nutzen dieses Amtes kritisch zu
+hinterfragen.
+Die Unfähigkeit Ihrer Regierung zeigt sich aber auch in weniger populären Themen: Die Föderalismusreform
+wurde verschleppt. Es gibt immer noch 16 Bundesländer – das sind viel zu viele! Gegen die ausufernde Praxis
+**der Überhangmandate wurde nichts unternommen. Wie kann es sein, dass der Bundestag mehr Mitglieder hat,**
+als beide Kammern der US-Verwaltung zusammengenommen? Man könnte den Eindruck bekommen, hier soll
+eine ganz bestimmte Klientel (mit gescheitertem Studium kann man sehr einfach Politiker der Grünen werden)
+mit Steuergeldern als Hinterbänkler ‹durchgefüttert› werden. Die SPD Ex-Abgeordnete, Frau Hinz, hat jahrzehntelang ihren Lebenslauf gefälscht. In der freien Wirtschaft wäre ein solches Verhalten undenkbar. Der
+Wähler, Arbeitnehmer und Steuerzahler hat hierfür keinerlei Verständnis mehr!
+Eine Rente für die junge Generation wird es nur noch auf Sozialhilfeniveau geben, während Millionen ungebildeter, kulturfremder Migranten in einer Art und Weise gefördert werden, von denen deutsche Bedürftige nur
+träumen können (wurden für Obdachlose jemals Reihenhäuser gebaut?). Gibt es nicht genügend bedürftige
+**Deutsche, um die Sie sich kümmern könnten? Leider haben bedürftige Deutsche keine Lobby und keine ‹Asyl -**
+industrie›, die vehement für ihre Belange kämpft. Auch kann man sich durch Unterstützung einheimischer
+Bedürftiger anscheinend nicht in derselben Art und Weise moralisch überhöhen, wie das durch den Einsatz für
+Migranten möglich ist.
+**Wie kann es sein, dass eine ganze Kultur (von uns Deutschen) zu Gunsten einer intoleranten Ideologie (Islam)**
+**geopfert werden soll? Wer profitiert davon? Warum wollen Sie die Islamisierung Europas?**
+**Wie kann es sein, dass Vertreter aller etablierten Parteien (mit Ausnahme der FDP) mit beispielloser Arroganz**
+**über das eigene Volk herfallen, sobald wohlbegründete Kritik geäussert wird? Wie kann es sein, dass eine**
+Bundeskanzlerin uns Deutsche als ‹die, die schon länger hier leben› verspottet?
+**Was geht im Kopf von Frauen wie Frau Göring-Eckhard, Claudia Roth und anderen vor, die eine frauenver-**
+achtende Ideologie wie den Islam auf massivste Weise fördern, obwohl Frauen Hauptleidtragende der Islamisierung Europas sind und noch sein werden? Warum arbeitet Herr Cem Özdemir aktiv an der Einflussnahme
+des politischen Islam mit, obwohl er völlig zu Recht die diktatorischen Machenschaften von Herrn Erdogan in
+der Türkei kritisiert? Warum wünschen sich Grüne und Linke (aber auch SPD Mitglieder wie Katarina Barley)
+**überhaupt einen immer weiter wachsenden Einfluss des Islam in Europa, obwohl der Islam das Gegenteil von**
+**Freiheit zum Ziel hat? Sollten sich Politiker nicht mit besonderem Einsatz um Frauenrechte kümmern, anstatt**
+**in naivster Art und Weise schwerstkriminelle Täter zu schützen und die Taten als Einzelfälle zu vertuschen**
+**und zu verharmlosen?**
+Wie kann es sein, dass eine archaische Praxis wie die Kinderehe in Deutschland nicht verboten wird, sondern
+mit einem Kniefall vor Steinzeit-Muslimen geduldet wird? Die Kinderehe ist staatlich geduldeter Kindesmiss **brauch! Herr Maas und die gesamte deutsche Justizlandschaft sollten sich in Grund und Boden schämen, so**
+eine menschenverachtende Praxis nicht umgehend zu unterbinden.
+Frau Göring-Eckhard würden wir gerne fragen, ob sie mit den Veränderungen, die sie so sehnlichst herbei gesehnt hat, zufrieden ist.
+Wie kann es sein, dass für diese Positionen ungeeignete Migranten in verantwortungsvolle Positionen in Politik
+**und Verwaltung kommen und dann durch Korruption dafür sorgen, dass Dutzende Mitglieder des eigenen**
+
+
+-----
+
+Familienclans oder des eigenen Dorfes (Beispiel: libanesische Clans) Asyl erhalten und auf Kosten der All gemeinheit (das sind unsere Steuergelder!) daueralimentiert werden? Warum nur wird die Kriminalität dieses
+**Personenkreises völlig ignoriert, schöngeredet oder verharmlost?**
+**Frau Kraft hat die Kontrolle über einige Teile von NRW an arabische und afrikanische Verbrecherclans ver -**
+**loren und agiert zunehmend hilflos – in einer Talkshow Mitte Dezember fast panisch (Zitat: «Ich würde die ja**
+auch gerne loswerden»). Wenn die Gesetzlage Abschiebungen erschwert oder gar unmöglich macht, dann sind
+die Gesetze offensichtlich schlecht und müssen geändert werden.
+**Wie kann es sein, dass ein Diktator Erdogan in Deutschland Wahlkampf betreiben darf? Wie kann sich die EU**
+vorsätzlich in die Hände eines solchen Gewaltherrschers begeben und sich abhängig machen? Wie lange wird
+es noch dauern, bis es auch in Deutschland zu Konflikten zwischen Türken und Kurden kommen wird?
+Wir bitten Sie alle, einmal folgendes zu tun: **Schreiben Sie auf, welche islamisch geführten Länder Sie als**
+**tolerant (gegenüber Mitgliedern anderer Religionen; gegenüber Minderheiten etc.) bezeichnen würden. Dies**
+wird nur eine sehr kurze Liste werden. Versuchen Sie einmal sich z.B. in Saudi-Arabien für Frauenrechte, die
+Rechte von Christen oder anderen Minderheiten einzusetzen. Zählen Sie z.B. in Kuwait den Anteil der Frauen
+auf den Strassen (etwa 10%). Der Anblick ist bedrückend, wie wir aus eigener Erfahrung wissen.
+Versuchen Sie einmal, mit einem israelischen Stempel in Ihrem Reisepass in ein arabisches Land einzureisen.
+Der Spass wird Ihnen schnell vergehen. Schauen Sie sich die Konflikte der Welt an und fragen Sie sich, wer hier
+**gegen wen kämpft und warum. Welcher Religion sind die Kombattanten zugehörig? Das Christentum hat seine**
+Kreuzzüge und seinen 30-jährigen Krieg – zum Glück – lange hinter sich. Beim Islam ist das leider nicht der
+Fall.
+**Dies alles führt zur Frage, warum Ihre Kreise unbedingt eine Vergrösserung des Einflusses des Islam in Europa**
+**wollen? Wollen Sie, dass sich Europa nach dem ‹Vorbild› islamischer Länder entwickelt? Wir jedenfalls nicht.**
+**Geben Sie endlich zu, dass Ihre Hoffnungen auf ‹hochqualifizierte Zuwanderer›, die den sich abzeichnenden**
+**Fachkräftemangel ausgleichen könnten, illusorisch gewesen sind. In welchen Berufen sollen Niedrigstquali -**
+fizierte arbeiten, wenn im Zuge von Globalisierung, Digitalisierung und Industrie 4.0 selbst für mittel- und
+hochqualifizierte Millionen Arbeitsplätze wegfallen werden? Die deutschen Sozialsysteme werden eine Daueralimentierung weiterer Zuwanderer nicht verkraften können. Schauen Sie auch auf die Arbeitslosigkeit in der
+EU28. Die unbequeme Wahrheit lautet doch, dass die EU diese gering qualifizierten Zuwanderer gar nicht
+**benötigt. Auch ein Deutschland 2050 mit nur 60 Millionen Einwohnern würde – unseres Erachtens – gut**
+funktionieren.
+**Vergessen wir auch die Finanzierung Ihrer äusserst grosszügigen Willkommenskultur nicht. Es ist schon er-**
+schreckend mit anzusehen, wie seit Jahrzehnten KITAS, Schulen und Universitäten chronisch unterfinanziert
+werden und die Infrastruktur Deutschlands (Strassen, Brücken, etc.) immer weiter verfällt. Trotz dieser Entwicklung ist die Finanzierung von Migranten mit geschätzten 20 Milliarden € pro Jahr offensichtlich kein
+Problem für die Haushalte. Oder doch? Wie lange wird sich Deutschland diese enormen Kosten noch auf **bürden können und wollen?**
+**Einige Worte zur Entwicklung in Afrika: Mit derzeit 7 Milliarden Menschen (Anm. FIGU: per 31.12.2016 waren**
+es bereits 8,7 Milliarden Menschen) steht die Menschheit bereits am Abgrund des klimatischen und sozialen
+Kollapses. Jeder realistisch und verantwortungsvoll denkende Mensch wird uns zustimmen in unserer Ansicht,
+dass die Menschheit mit prognostizierten 10 Milliarden Menschen im Jahr 2050 vor kaum lösbaren Problemen
+stehen dürfte. Stellen Sie sich den Migrationsdruck aus Afrika vor, sollte die Bevölkerungszahl dort tatsächlich
+2 Milliarden erreichen und weitere Gebiete durch den Klimawandel unbewohnbar werden.
+**Vor diesem Hintergrund erwarten wir eine klare politische Stellungnahme aller Verantwortungsträger mit**
+**dem Ziel, die katastrophale Überbevölkerung der Erde als Problem zu benennen und wirksam zu bekämpfen.**
+Hier ist auch Ihre Zusammenarbeit mit der UNO gefragt. Es ist gut und richtig, Notleidenden zu helfen. Es ist
+aber genau so wichtig dafür zu sorgen, dass die Weltbevölkerung nicht immer weiterwächst.
+Können Sie mit Sicherheit ausschliessen, dass afrikanische Despoten Ihre Gewalttäter und Kriminelle (von
+denen es sicher mehr als genug in den Gefängnissen Afrikas gibt) nicht einfach freilassen und auf den Weg nach
+Libyen schicken, damit diese in die EU einwandern? Das können Sie nicht, da ja jeder auch ohne Pass, auch ohne
+genanntes Herkunftsland, auch ohne Identität in unser sehr grosszügiges Sozialsystem aufgenommen wird.
+**Noch einige Worte zur Innenpolitik: Grossprojekte wie der BER-Flughafen sind spektakulär gescheitert und**
+verschlingen Milliarden, die dringend in KITAS, Schulen und Universitäten gebraucht werden. Die politisch
+Verantwortlichen haben auf ganzer Linie versagt!
+**Die Liste Ihrer katastrophalen Fehlleistungen liesse sich noch lange fortsetzen. Ich erspare Ihnen dies an dieser**
+
+
+-----
+
+Stelle. Sie als Berufspolitiker sind zuallererst dem deutschen Volk verpflichtet (und nicht Syrern, Afghanen
+oder Afrikanern!) und wir möchten Ihnen aufzeigen, wie Sie verlorenes Vertrauen zurückgewinnen können,
+indem Sie unsere Forderungen erfüllen:
+Wir fordern (geordnet nach Wichtigkeit):
+– Eine öffentliche Erklärung von Frau Dr. Merkel an die Migranten dieser Welt mit der Aufforderung nicht
+nach Europa zu kommen. Vorbild hierfür kann die ‹No way will you make Australia your home› Kampagne
+der australischen Regierung sein.
+– Den sofortigen, effektiven Grenzschutz an allen deutschen Grenzen. Migranten ohne offensichtlichen
+Anspruch auf Asyl (wenige %) sind an der Grenze zurückzuweisen.
+– Den baldigen, effektiven Grenzschutz an den EU-Aussengrenzen. Migranten ohne offensichtlichen
+Anspruch auf Asyl (wenige %) sind an der Grenze zurückzuweisen. Italien und Griechenland sind bei der
+marinen Grenzsicherung durch die ganze EU zu unterstützen.
+– Ein direktes Zurückbringen von Mittelmeer-Migranten nach Afrika oder in die Türkei. Migranten dürfen
+nicht mehr nach Italien oder Griechenland gebracht werden.
+– Eine Rückführungskampagne mit dem Ziel, so viele Migranten wie möglich zurück in Ihre Heimatländer
+zu bringen.
+– Eine sofortige, drastische Verschärfung des Asylrechts auf Fälle, in denen es auch wirklich um politisches
+Asyl (und nicht um Zuwanderung) geht.
+– Ein Einwanderungsgesetz nach kanadischem Vorbild mit einer strengen Obergrenze von 50000 (hand verlesenen!) Personen im Jahr. Hierbei sind gut gebildete Christen und Familien mit wenigen Kindern zu
+bevorzugen.
+– Die sofortige, zeitlich unbefristete Aussetzung der EU Beitrittsverhandlungen mit der Türkei.
+– Die sofortige Ablehnung der Visa-Freiheit für Türken und Kurden.
+– Die sofortige Annullierung aller in Deutschland registrierten Kinderehen und den Schutz minderjähriger
+Muslima vor Zwangsverheiratung.
+– Die Begrenzung der Amtszeit von Bundeskanzler/innen auf maximal 8 Jahre. Dies hat sich in vielen Ländern
+bewährt und beugt der ‹Verkrustung› des politischen Systems vor.
+– Die sofortige Beendigung des massiven Einflusses, die die Regierung auf die ‹Leitmedien› ausübt und eine
+faire Auseinandersetzung mit politischen Parteien wie der AfD. Ferner die Achtung der Meinungsfreiheit
+auch für politische Gegner.
+– Eine drastische Reduzierung der Grösse des Bundestages um mindestens 150 Sitze. Eine Modernisierung der
+Regelung zu Überhangmandaten.
+– Eine Reduzierung der Anzahl der Bundesländer um mindestens 3.
+– Die Abschaffung des Amtes des Bundespräsidenten.
+– Die Zusammenlegung von ARD und ZDF. Das Umsetzen von Kostenminimierungsprogrammen und die
+Abschaffung des zwangsfinanzierten öffentlichen Rundfunks.
+
+Seit September 2015 (und auch schon vorher) hat es nicht an Mahnungen gefehlt, die derzeitige Politik zu korrigieren. Allen voran Frau Dr. Merkel und im Schlepptau mit ihr haben sich alle etablierten Parteien als lernresistent gezeigt. Wer jedoch Kritik ignoriert, der muss die Konsequenzen hierfür tragen.
+Bis auf weiteres werden alle Wahlberechtigten unserer Familie daher die Partei ‹Alternative für Deutschland›
+wählen. Dies ist unsere einzige Chance, als Demokraten unsere Enttäuschung über Ihre desaströse Politik zum
+Ausdruck zu bringen.
+Wir nehmen sehr wohl zur Kenntnis, dass seit Dezember 2016 in der Regierung und den Parteien über Trippel schritte in die richtige Richtung gesprochen wird. Die Zeit für Reden ist allerdings lange vorbei. Nur Taten
+**werden Wähler überzeugen können. Die derzeitig diskutierten Schritte sind ausserdem bei weitem nicht aus-**
+reichend.
+An die Adresse der CSU bzw. an die Herren Seehofer und Söder gerichtet, haben wir die Bitte, doch nicht immer
+nur zu bellen, sondern auch einmal zuzubeissen. Leider haben Sie es versäumt, die CSU von der CDU abzukoppeln und bundesweit anzutreten. Schade.
+Herrn Boris Palmer ermutigen wir, seine politische Zukunft nicht mehr bei den Grünen zu suchen.
+**Frau Dr. Merkel fordern wir auf, zurückzutreten. Die Union fordern wir auf, sich personell zu erneuern und**
+zukünftige Koalitionen mit der AfD anzustreben.
+Die AfD fordern wir auf, persönliche Grabenkämpfe zu beenden und sich auf liberal-konservative Sachpolitik
+
+
+-----
+
+-----
+

@@ -1,0 +1,1310 @@
+**L**
+
+**WESEN FREMDER WELTEN**
+
+# FIGU– BESUCHEN DIE ERDE
+
+**Freie**
+
+# ZEITZEICHEN Interessengemeinschaft
+
+**FIGU**
+
+## Aktuelles • Einsichten • Erkenntnisse r
+
+**Erscheinungsweise:** **Internetz: www.figu.org** **3. Jahrgang**
+**Sporadisch** **E-Brief: info@figu.org** **Nr. 65, März 2017**
+
+#### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+Laut ‹Allgemeine Erklärung der Menschenrechte› vom 10. Dezember 1948, Artikel 19, ‹Meinungs- und Informationsfreiheit›:
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die**
+**Freiheit, Meinungen unangefochten anzuhängen und Informationen und Ideen mit allen**
+**Verständigungsmitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Aussagen und Meinungen müssen nicht zwingend identisch sein mit Gedanken, Interessen, Lehre und Missionsgut der FIGU.
+
+### EU-Weisungen: Automatisch übernommen
+_23.02.2017, 21:40 von admin 23.02.2017; EU-NO Newsletter vom 23. Februar 2017_
+#### Zwischen den Zeilen zufällig gefunden
+Vor zehneinhalb Jahren, am 24. September 2006, nahmen Volk und Stände in einer Volksabstimmung eine
+Revision des Asylgesetzes deutlich an. Darin wurden konkrete Massnahmen gegen die illegale Einwanderung
+und gegen den Missbrauch von Asylrecht getroffen.
+Die Massnahmen zielten darauf ab, illegal Eingereiste zu raschem Verlassen der Schweiz zu veranlassen. Bis zur
+Ausreise sollte den illegal Anwesenden nur Nothilfe geleistet werden. So beschloss es der Souverän.
+Illegale Einwanderung und Missbrauch von Asylrecht: Das sind zweifellos verwerfliche Handlungen. Wer unter
+Missbrauch von Asylrecht hier definitive Bleibe ergattern will, macht sich an Orten breit, die eigentlich echten
+Flüchtlingen, also tatsächlich an Leib und Leben Bedrohten und Verfolgten reserviert sind. Solcher Missbrauch
+soll, so entschieden damals Volk und Stände, keine Schonung erwarten können.
+
+#### Streit in der Zürcher SP
+Genüsslich berichten gewisse Medien derzeit von einem schweren Konflikt zwischen Zürcher Linken – Mitgliedern
+der SP, der Grünen sowie anderer sog. ‹autonomer› und ‹alternativer› Bewegungen – und dem Zürcher
+Sicherheitsdirektor, SP-Regierungsrat Mario Fehr.
+Diesem wird an den Kopf geworfen, er schikaniere abgewiesene Flüchtlinge. Also solche, die unter Vortäuschung
+nicht existierender Asylgründe widerrechtlich die Bleibe in der Schweiz für sich beanspruchen. Diese haben –
+so wurde es durch den Souverän 2006 im Asylgesetz festgelegt – nur noch Anspruch auf Nothilfe bis sie unser
+Land verlassen. Sind sie dazu nicht bereit, werden sie ausgeschafft. Damit Ausschaffungen nicht scheitern, liess
+das Zürcher Migrationsamt überwachen, wo sich die nach sorgfältigem Verfahren der illegalen Einwanderung
+Überführten aufhalten – solange sie noch in der Schweiz weilen.
+Das Zürcher Migrationsamt, der Direktion von SP-Regierungsrat Mario Fehr unterstellt, verfolgt mit solchen
+Anordnungen nichts anderes, als was Volk und Stände 2006 ausdrücklich beschlossen haben. Die Migrationsämter sämtlicher Kantone sind an solches Handeln gebunden.
+
+#### Kampagne der Asylanwälte
+Gegen dieses Handeln des Zürcher SP-Regierungsrats entfesseln sog. Asylanwälte derzeit eine
+gehässige Kampagne. Asylanwälte sind solche, die sich mehr oder weniger ausschliesslich auf
+die Interessenvertretung von Asylanten, insbesondere auch von abgewiesenen Asylanten – also
+illegal Eingereisten – konzentrieren. Das ist ein sicheres Geschäft. Wer es betreibt, kann auf
+sichere Entschädigung für seine Anstrengungen zählen. Wird den als angeblich mittellos hier
+
+
+**L**
+
+**WESEN FREMDER WELTEN**
+**BESUCHEN DIE ERDE**
+
+
+-----
+
+Weilenden doch meistens ein kostenloses, also den Steuerzahlern belastetes Verfahren zugestanden. Dass die
+meisten dieser illegalen Einwanderer vor ihrer illegalen Einreise teure Schlepper zu bezahlen vermochten, fällt
+offenbar nicht ins Gewicht.
+
+#### Eine EU-Richtlinie
+Neuerdings geschieht allerdings Wunderliches. Die Asylanwälte behaupten, die mit dem Volksentscheid im Jahr
+2006 geschaffene Rechtsgrundlage sei gar nicht mehr gültig.
+Dabei darf man – eher zwischen den Zeilen als in offizieller Mitteilung – erfahren, die EU habe zum Umgang
+mit illegalen Einwandern eine Richtlinie erlassen. Und der Bundesrat habe diese Richtlinie ‹im Namen der
+Schweiz› mitunterzeichnet.
+Höchst verwundert darf der Stimmbürger erfahren, dass dies keine leere Behauptung der Asylanwälte ist. Tatsächlich hat der Bundesrat – die Federführung hatte offenbar das Departement Sommaruga – eine solche EU-Richtlinie unterzeichnet. Damit wurden – ohne dass die Stimmbürger davon erfuhren – wesentliche Pfeiler des aus
+der Volksabstimmung von 2006 hervorgegangenen Asylgesetzes schlicht amputiert. Selbst Parlamentarier – angesprochen auf solch bundesrätliches Vorgehen zur Aushebelung eines offenbar obrigkeitlich nicht geschätzten
+Volksentscheids – reagieren perplex.
+Verfassungsbruch ist offensichtlich nicht nur im vergangenen Dezember Tatsache geworden, als die Nicht-Umsetzung des Volksentscheids gegen die Masseneinwanderung parlamentarisch abgesegnet wurde. Verfassungsbruch geschah bereits, als die Mitte-Links-Mehrheit im Bundesrat klammheimlich die Unterzeichnung einer
+EU-Richtlinie durchsetzte, der flugs – und wiederum voll umfänglich hinter dem Rücken von Volk und Parlament – als ‹höheres Gesetz› Vorrang eingeräumt wurde gegenüber unserer Bundesverfassung.
+
+#### Anschauungsunterricht
+Dem ‹Streit› zwischen linken Aktivisten und SP-Regierungsrat Mario Fehr ist zu verdanken, dass dieses der Verfassung und dem Souverän gegenüber gewissenlose bundesrätliche Handeln überhaupt ruchbar wurde.
+Die Stimmbürger erhalten daraus immerhin Anschauungsunterricht, was unserem Land und seinem Souverän
+blüht, wenn die Schweiz via Rahmenvertrag die ‹automatische Übernahme› von EU-Weisungen, EU-Beschlüssen
+und EU-Gesetzen hinzunehmen hat. Gleiche Unterordnung unter die Vorherrschaft des Brüsseler BürokratieApparates plant die Bundesrats-Mehrheit auch mit dem Gegenvorschlag zur sog. Rasa-Initiative, die nichts
+anderes anstrebt als die radikale Beseitigung des Volksentscheids vom 9. Februar 2014 gegen die Massen einwanderung. Im Gegenvorschlag soll der generelle Vorrang von EU-Recht gegenüber der Schweizer Bundesverfassung festgelegt werden. Der Souverän wäre damit radikal entrechtet.
+Die Bundesrat-Mehrheit ist auf dem Weg, die Schweiz zur Zwangsheirat mit der EU zu zwingen. Ob Bürgerinnen
+und Bürger dieses Unterfangen rechtzeitig zu verhindern in der Lage sind? us
+_Quelle: https://www.eu-no.ch/news/eu-weisungen-automatisch-uebernommen_151_
+
+### Medien – wir kontrollieren die Gedanken der Menschen
+_Donnerstag, 23. Februar 2017, von Freeman um 07:00_
+Manchmal schlüpft den Presstitulierten die Wahrheit als freudscher Versprecher raus. So geschehen beim FakeNews-Sender MSNBC, der neben CNN, der New York Schleim, und der Washington Post, hauptsächlich Lügen
+über Präsident Trump bringen. Während einer Live-Diskussion am Mittwoch, in der es um die falsche Behauptung ging, Trump ‹versucht die Medien zu untergraben›, ist der Moderatorin Mika Brzezi´nski etwas rausgerutscht, nämlich die Wahrheit. Es wäre der Job der Medien zu kontrollieren, was die Menschen denken. Richtig,
+es geht nicht darum, das Publikum ausgewogen zu informieren, sondern ihre Meinung zu steuern und in die
+gewünschte Richtung zu lenken.
+
+
+-----
+
+Mika Brzezi´nski ist die Tochter von Zbigniew Brzezi´nski, ja, von dem berüchtigten Russlandhasser polnischen
+Ursprungs, der als Sicherheitsberater von Präsident Carter die Terrororganisation Al-Kaida gegründet und in
+Afghanistan gegen die sozialistische Regierung in Kabul und gegen die Sowjettruppen eingesetzt hat.
+Er hat Osama Bin Laden rekrutiert!
+Zbigniew ist der Erfinder der amerikanischen Politik, radikal islamische Terroristen als Werkzeug gegen unliebsame Regierungen zu nutzen, was die Kriege, das ganze Chaos und Leid, plus Flüchtlingsflut, in Afghanistan,
+Irak, Syrien, Libyen etc. verursacht hat.
+Dieser Kriegsverbrecher und Massenmörder ist auch für die Politik der Umzingelung Russlands ursprünglich
+verantwortlich. Die Kriminalität läuft also beim Sprössling in Form von Meinungsmanipulation durch FakeNews weiter.
+Hier der Dialog der beiden Moderatoren, von mir übersetzt:
+
+SCARBOROUGH: «Genau. Das ist genau was ich höre. Was Yamiche sagt, ist das, was ich von allen TrumpUnterstützern höre, mit denen ich spreche, die Trump-Wähler waren und immer noch Trump-Unterstützer
+sind. Sie sagen: ‹Ja ihr Typen dreht durch. Er macht … über was seid ihr überrascht? Er macht genau das, was
+er gesagt hat, dass er tun wird.›»
+
+BRZEZINSKI: «Nun, Ich denke dass die Gefahr, du weisst, die Seiten hier sind, dass er versucht, die Medien zu
+untergraben und seine eigenen Fakten zu erfinden. Und es könnte sein, dass während die Arbeitslosigkeit und
+die Wirtschaft schlechter werden, könnte er die Nachrichten so untergraben, er könnte tatsächlich kontrollieren
+was die Menschen denken. Und das ist, das ist unser Job.»
+
+Nicht dass jemand glaubt, dass ihr im Video das Wort abgeschnitten wurde. Das war ihre Aussage und ihr Kollege sagte anschliessend ‹Ja› dazu.
+Sie geben also zu, dass es der Job der Medien ist zu kontrollieren, was die Menschen denken.
+Was fällt Donald Trump ein, direkt und an den Medien vorbei, mit den Amerikanern zu sprechen? Dann verlieren sie die Kontrolle und sind überflüssig!
+Ha, ha, nachdem der Shitstorm auf Mika losging, hat sie versucht, ihre Aussage zu relativieren, das habe sie nicht
+so gemeint. Aber die Zuschauer liessen nicht locker und tweeteten:
+«Sorry, Ich habe mit meinen eigenen Ohren gehört, was du live in der Sendung gesagt hast. Es ist, was du denkst,
+du zeigst es täglich. Du hast es endlich zugegeben.»
+Die Wahrheit siegt immer, auch wenn es lange dauert!
+Es gab mal eine Zeit, da haben die Medien zu 99 Prozent Nachrichten gebracht und nur 1 Prozent eigene
+Redaktions-Meinung. Heute ist es genau umgekehrt. 99 Prozent bestehen aus der Verbreitung der eigenen
+tendenziösen Meinung und nur noch 1 Prozent aus Nachrichten.
+_Quelle: http://alles-schallundrauch.blogspot.com/2017/02/medien-wir-kontrollieren-die-gedanken.html#ixzz4a3d0vZAz_
+
+### Wie Brüssel die Rechte der EU-Bürger aushebelt
+_23. Februar 2017 aikos2309_
+
+Am 18. Januar 2017 traten in der EU neue Regeln in Kraft, mit denen Bankkonten konfisziert werden können
+(EU Regulierung Nr. 655/2014 vom 15. Mai 2014). Mit dieser Regulierung werden die Grundrechte der Bürger
+ausgehebelt, da ihnen das Recht auf eine gerichtliche Anhörung in ihrem eigenen Land genommen wird.
+
+
+-----
+
+Erschaffen wurde die Europäische Anordnung für die Kontenerhaltung (EAPO) für die grenzüberschreitende
+Schuldeneintreibung in privaten und unternehmerischen Angelegenheiten. Die EU-Kommission beschrieb die
+EAPO als einen «einfachen und kosteneffektiven Weg, um Gelder einzufrieren, die jemandem geschuldet
+werden», wenn der Schuldner sich in einem anderen Mitgliedsland befindet.
+In der Realität bedeutet es, dass der Gläubiger nicht mehr länger zu einem italienischen Gericht gehen muss,
+um einen italienischen Schuldner zu verklagen. Mit anderen Worten: Diese Anordnung schleift die Souveränität
+der Gerichte in den Mitgliedsländern.
+Bis heute musste ein Gläubiger, der Geld von einem Schuldner in einem anderen EU-Land eintreiben wollte,
+ein Gericht im Aufenthaltsland des Schuldners anrufen und war in der Angelegenheit an das Recht des Landes
+gebunden, in dem er die Bankkonten des Schuldners einfrieren lassen wollte.
+Die Kommission vertritt die Ansicht, dass dies oftmals zu lange dauerte und zu teuer war. In den Vereinigten
+Staaten muss man noch heute in das Land des Schuldners gehen und sich an die lokalen Gesetze halten.
+Das neue europäische Prozedere wurde geschaffen, damit es schneller, billiger und effizienter wird für die
+Gläubiger, allerdings bedeutet das auch, dass nun jemand in Italien einen Anwalt in Deutschland anheuern
+muss, um ihn dort zu vertreten. Die Kosten werden unter dieser EAPO einfach nur vom Gläubiger auf den
+Schuldner übertragen.
+Es wird nun möglich, dass einem in der EU die Bankkonten eingezogen werden können, ohne dass es dabei
+irgendeinen heimischen rechtlichen Schutz dagegen gibt. Die Gefahr hier liegt darin, dass jemand aus Deutschland jemandem in Italien das Bankkonto sperren lassen kann, ohne dass er die Gelegenheit hat, beim Ent scheidungsprozess im anderen Mitgliedsland anwesend zu sein.
+Jedes Gericht in jedem Mitgliedsland kann eine EAPO herausgeben, vorausgesetzt, dass es über die gerichtliche
+Hoheit verfügt, den zugehörigen Fall anzuhören und dieser unter die Gerichtsbarkeit der EU fällt. Daher hat
+Deutschland gemäss der Brüssel I Umgestaltung das EAPO in die Paragraphen 946 bis 959 der Zivilprozess ordnung eingebaut.
+Es gibt dabei nicht einmal eine Begrenzung für EAPOs, die können jederzeit während eines Prozesses herausgegeben werden. Daher ist es auch möglich, dass man in Italien vor Gericht zieht und in Deutschland frieren
+sie einem mitten im Rechtsstreit die Konten ein, oder sogar noch, bevor die Verhandlung begann, was einem
+die Möglichkeit nimmt, eigene Anwälte zu bezahlen. In Artikel 7 (1) der Regulierung heisst es:
+_«Das Gericht soll eine EAPO herausgeben, wenn der Gläubiger ausreichend Beweise vorgelegt hat, um das Gericht_
+_davon zu überzeugen, dass es die dringende Notwendigkeit einer schützenden Massnahme in Form einer EAPO gibt,_
+_weil ein echtes Risiko besteht, dass die nachfolgende Eintreibung der Schulden ohne diese Massnahme nicht möglich_
+_ist, oder bedeutend schwieriger wird.»_
+Wenn die Massnahme vor oder während der Anhörung durchgeführt, also noch kein Urteil gesprochen wurde,
+dann muss der Antragssteller nach Artikel 7 auch zeigen, das der Fall gute Aussichten hat und er am Ende wahrscheinlich recht bekommen wird:
+_«Hat der Gläubiger bislang noch in keinem Mitgliedsland ein Urteil, einen Ausgleich oder eine rechtsbindende Ver-_
+_einbarung erwirkt, die den Schuldner zur Zahlung der ausstehenden Gelder verpflichtet, dann kann der Gläubiger_
+_auch ausreichend Beweise vorlegen, um das Gericht davon zu überzeugen, dass er sich wahrscheinlich mit seinen_
+_Forderungen gegen den Schuldner durchsetzen wird.»_
+Interessant an diesem EAPO-Mechanismus ist, dass es automatisch das Recht erzeugt, nach allen Bankkonten
+eines Schuldners in ganz Europa suchen zu lassen. Artikel 14 regelt, wie die Informationen zu Bankkonten ermittelt werden können:
+_«Hat der Gläubiger in einem Mitgliedsland ein Urteil, einen Ausgleich oder eine rechtsbindende Vereinbarung_
+_erwirkt, die den Schuldner zur Zahlung der ausstehenden Gelder verpflichtet und der Gläubiger hat Gründe anzu-_
+_nehmen, dass der Schuldner ein oder mehrere Bankkonten in einem bestimmten Mitgliedsland unterhält, kennt aber_
+_weder den Namen oder die Adresse der Bank und auch nicht die IBAN, BIC oder eine andere identifizierende_
+_Kennung der Bank, dann kann er beim Gericht beantragen, dass mit der EAPO eine Informationsanfrage an das_
+_Mitgliedsland gestellt wird, um die notwendigen Informationen zu erlangen, die es ermöglichen, dass die Bank oder_
+_Banken und das Konto oder die Konten des Schuldners identifiziert werden.»_
+Allerdings kann die EAPO nicht in der gesamten EU beantragt werden. Dänemark und Grossbritannien haben
+sich gegen die Einführung dieser Regulierung entschieden. Irland wiederum hätte die Regulierung übergehen
+können, hat sich aber für deren Einführung entschieden.
+Literatur:
+Kapitalfehler: Wie unser Wohlstand vernichtet wird und warum wir ein neues Wirtschaftsdenken brauchen von Matthias
+Weik
+
+
+-----
+
+Wer regiert das Geld?: Banken, Demokratie und Täuschung von Paul Schreyer
+VERKAUFTE DEMOKRATIE: Weg frei in die Sklaverei? von Milorad Krstic
+_Quelle: http://www.pravda-tv.com/2017/02/wie-bruessel-die-rechte-der-eu-buerger-aushebelt/_
+
+### Beneidet uns die Welt um pfiffige Wörter?
+_Aus dem VDS-Infobrief 8. Woche 2017_
+Hannah Schweiwe berichtet in der ‹Hannoversche Allgemeine› zum Tag der Muttersprache über deutsche
+Wörter, um die uns die Welt beneide. Sie nennt die Beispiele ‹Schadenfreude›, ‹Weltschmerz› oder ‹Torschluss panik› und zeigt, wie schwer sich oft andere Sprachen tun, diese Wörter sinngerecht zu übertragen. So werde
+aus dem deutschen ‹Zugzwang› im Englischen «feeling pressure to make a strategic move». Das ‹Fremdschämen›
+liesse sich von Briten oder Amerikanern als «the feeling you get when someone doesn’t realize how embarrassing
+he is» ausdrücken. Ein kleines Triumphgefühl wegen der grossartigen Prägnanz bei der deutschen Wortfindung
+scheint dabei durch.
+Dr. Kurt Gawlitta vom VDS-Vorstand freut sich ebenfalls über die kreativen Möglichkeiten, welche die deutsche
+Sprache durch ihr schlichtes Baukastensystem bei der Wortentwicklung bietet, glaubt aber nicht, dass die
+anderen Sprachen unseres Kulturkreises deshalb in der Vielfalt des Ausdrucks hinter unserer Sprache zurückstehen. Manchmal muss man nur ein wenig suchen und entdeckt die ach so unvergleichlichen ‹Luftschlösser›
+in einem bekannten italienischen Lied als «castelli in aria» wieder. Vielleicht amüsiert man sich auch über das
+deutsche ‹Sonntagskind›, das im Französischen schon frisch frisiert – «un enfant né coiffé» – zur Welt kommt.
+Häufig ist nur das Bild ein anderes oder der Blickwinkel auf die Sache oder das Ereignis verschieden. Die vielgerühmte Baukastenmethode entpuppt sich für Nichtmuttersprachler übrigens schnell als Problem, wenn wir
+zu viele Klötzchen aneinanderfügen. Der im Deutschen Ungeübte kann eventuell schwer erkennen, wo der eine
+Baustein anfängt und der andere endet oder in welchem logischen Zusammenhang sie zueinander stehen. (haz.de)
+
+### ZEIT-Journalisten werben für atomare Bewaffnung Deutschlands!
+_18/02/2017 NPR_
+
+**Die ZEIT-Mitarbeiter Peter Dausend und Michael Thumann suggerieren, eine atomare Aufrüstung Deutsch-**
+**lands ist unumgänglich, um den Frieden in Europa zu sichern. Einst galt, dass nie wieder Krieg von Deutsch-**
+**land ausgehen soll. Diese Zeiten scheinen längst vorbei zu sein. Zwei ZEIT-Journalisten legen den deutschen**
+**Regierenden sogar nahe, atomar auszurüsten – mit fatalen Folgen für den Frieden in Europa. «Braucht die EU**
+**die Bombe?»**
+«Braucht die EU die Bombe?» – diese Frage dient Peter Dausend und Michael Thumann, zwei ZEIT-Mitarbeitern,
+als Aufmacher eines Plädoyers für die nukleare Aufrüstung Deutschlands, das sich wie eine Werbebroschüre von
+Atomwaffenherstellern liest.
+Während Medien und die Politeliten Trump, Russland und den Aufstieg rechtspopulistischer Parteien wie der
+Alternative für Deutschland (AfD) als grösste Herausforderungen für den Weltfrieden darstellen, militarisiert
+sich, unterstützt von den meisten Mainstreammedien, die deutsche Politik radikal. Kaum ein Redakteur reflektiert
+diese höchst gefährliche Entwicklung jedoch kritisch.
+Die bellizistisch gestimmten ZEIT-Schreiberlinge suggerieren zunächst, Moskau bedrohe die osteuropäischen
+NATO- und EU-Mitgliedsstaaten, obwohl eindeutig das Gegenteil davon zutrifft, wenn man bedenkt, dass nach
+1991 erst die NATO, dann die EU rücksichtslos gen Osten vorgedrungen ist.
+
+
+-----
+
+Das war, wie ehemalige Politiker aus jener Epoche später berichteten, ein eindeutiger Bruch mündlicher Absprachen zwischen Washington und Moskau. Dieses Versprechen war übrigens auch eine wesentliche Voraussetzung für Moskaus Billigung der deutschen Wiedervereinigung.
+Nach dem Zusammenbruch der Sowjetunion nutzten die westlichen Regierungen aber Russlands relative
+Schwäche brutal aus, um ihre eigenen Einflusssphären auszuweiten. Die NATO errichtet rings um Russland
+herum etliche Militärbasen, die eine beachtliche Bedrohung russischer Sicherheitsinteressen bewirken – wundert
+sich aber, wenn Russland Gegenmassnahmen auf eigenem Territorium ergreift.
+Angesichts dieser vermeintlichen russischen Bedrohung gebe es, so die ZEIT-Wiederbewaffnungsexperten, bisher nur einen wirksamen Schutz: Den grossen Bruder in Washington. Mit Trump aber hätten sich die Zeiten
+geändert, da dieser eigentlich ein verkappter Feind der NATO sei.
+Der atomare Schutzschirm Uncle Sams über Europa bestehe nicht mehr. Daher sei eine Debatte über eine
+atomare Aufrüstung ‹Europas› unausweichlich. Europa ist jedoch, argwöhnen Kritiker, für so manchen aus dehnungsbedürftigen Zeitgenossen längst zum Surrogat für den einstigen, jäh zerplatzten Traum von einem
+Gross-Deutschland geworden.
+**«Gerade nicht-nukleare Staaten wie Deutschland stecken in einem tiefen Dilemma, sollten die USA nicht mehr**
+**bedingungslos (!) für sie einstehen», so die ZEIT-Autoren.**
+Zwei europäische NATO-Staaten verfügen derzeit über eigene Atomwaffenkontingente: Frankreich und Gross britannien. Doch die ZEIT-Mitarbeiter zweifeln an der Bereitschaft dieser Staaten, diese Waffen für das vermeintliche Europa – bösen Zungen zufolge also Gross-Deutschland 2.0 – tatsächlich einzusetzen. Sie könnten
+es sogar wagen, ihr Arsenal nur im Austausch gegen politische Kompromisse in anderen Bereichen zur Ver fügung zu stellen.
+Einen polnischen Nuklearexperten zitierend, beklagen sich die ZEIT-Autoren über die vermeintliche Schwäche
+deutscher Politiker, das Denken in nuklearen Kategorien verlernt zu haben. Deutschland stehe nun vor der, wie
+sie es ausdrücken, harten Wahl, sich entweder am französischen Atomarsenal zu beteiligen oder aber «das
+Problem […] zu verdrängen».
+Inwiefern eine Atommacht Deutschland mit dem Grundgesetz und mit den völkerrechtlichen Verpflichtungen
+der Bundesrepublik vereinbar wäre – ganz zu schweigen von den Auswirkungen auf den Frieden und die
+Stabilität in Europa –, dazu mochten sich die zwei Journalisten lieber nicht äussern.
+Der heutige Tag gilt als Höhepunkt der Sicherheitskonferenz in München. Bundeskanzlerin Merkel und USVize-Präsident Mike Pence fordern eine stärkere Aufrüstung der NATO-Staaten. Der Vereidigungspolitische
+Sprecher der Linken, Alexander Neu, kommentiert die Konferenz.
+**_US Vizepräsident Mike Pence Rede Münchener Sicherheitskonferenz 18.02.2017 Deutsch komplett:_**
+_https://www.youtube.com/watch?v=9hrh3-HgYfo_
+_https://deutsch.rt.com/inland/46625-nukleare-apokalypse-zeit-wirbt-fur-atomwaffen/_
+_https://deutsch.rt.com/international/46659-sicherheitskonferenz-in-munchen-merkel-pence/_
+_Quelle: http://npr.news.eulu.info/2017/02/18/zeit-journalisten-werben-fuer-atomare-bewaffnung-deutschlands/_
+
+#### Kommentar:
+Wie verrückt müssen solche Typen sein, die – wie die Militärs – glauben und dem irren Wahn verfallen sind,
+dass durch Krieg und Atomwaffen Frieden erhalten oder Frieden geschaffen werden könne.
+Billy
+
+### 4000 polizeibekannte ‹Nafris› in Köln und Düsseldorf: Raub, Drogen, Übergriffe
+_Von Detlef Kossakowski; 22. Februar 2017; Aktualisiert: 23. Februar 2017_
+Allein in Köln und Düsseldorf sind im letzten Jahr 6000 überwiegend schwere Straftaten von 4000 Migranten
+aus Maghreb-Staaten begangen worden. Das geht aus einer Antwort des nordrheinwestfälischen Innenministeriums auf eine kleine Anfrage durch die FDP hervor.
+Zwischen dem 2. Januar und dem 31. Dezember 2016 sind in Köln insgesamt 1659 Tatverdächtige gefasst worden.
+In Düsseldorf waren es 2425. Alle diese Personen stammen aus den Maghreb-Staaten. Sie alle werden dringend
+verdächtigt, 2016 insgesamt 2671 Straftaten in Düsseldorf und 3547 in Köln begangen zu haben. Dies ergab die
+Antwort von Innenminister Ralf Jäger (SPD) auf eine kleine Anfrage von Marc Lürbke (FDP). Das berichtete
+Sputnik-Online.
+
+
+-----
+
+Die Daten wurden im Zuge der Auswerte- und Analyseprojekte ‹Casablanca› und ‹NAFRI› erhoben. Die Daten
+seien allerdings noch nicht endgültig – sie könnten sich im Laufe der Ermittlungen noch ändern. Das ist in der
+Vorbemerkung der Antwort zu lesen.
+
+#### Über 6000 meist schwere Straftaten in beiden Städten
+In Düsseldorf zählte man 327 bzw. 577 Fälle von Strassen- und Gewaltkriminalität, 17 Sexualdelikte, 443 Fälle
+von mitunter schweren Körperverletzungen, 679 Diebstähle, 54 räuberische Diebstähle sowie 49 Fälle von Drogenhandel und illegalem Schmuggel.
+In Köln seien im selben Zeitraum folgende Straftaten gezählt worden: 760 Gewalttaten, 312 Fälle von Strassenkriminalität, 64 Sexualstraftaten, 619 Körperverletzungen, 1148 Diebstähle, 73 Fälle von Drogenhandel und 63
+Fälle von Raub.
+In beiden Städten waren jeweils 2000 der festgenommenen Tatverdächtigen polizeibekannt. Als Mehrfachtatverdächtige (mehr als 5 Straftaten im Kalenderjahr) wurden insgesamt 188 der Personen ermittelt. Insgesamt gab
+es 50 Intensivtäter. Keine der aufgeführten Personen aus beiden Städten seien als Gefährder erfasst gewesen.
+_Quelle: http://www.epochtimes.de/politik/deutschland/4-000-polizeibekannte-nafris-in-koeln-und-duesseldorf-raub-drogen-_
+_uebergriffe-a2055258.html_
+
+### Das Zeitalter der Mensch-Tier-Hybrid-Chimären hat begonnen
+_Michael Snyder; End of the American Dream; Di, 14 Feb 2017 17:12 UTC_
+Mensch-Tier-Mutanten-Kreaturen sind tolles Material für Science Fiction Autoren, doch wir sollten diese nicht
+in der realen Welt erschaffen. Die technologischen Fortschritte, die wir als Gesellschaft gemacht haben, überholen unsere Fähigkeit auf so zahlreiche Weise, diese Fortschritte auch angemessen zu handhaben, und dieses
+Forschungsfeld ist sicher ein krasses Beispiel dieser Realität. Nur weil wir Mensch-Tier-Hybrid-Chimären
+erschaffen können, heisst das nicht, dass wir sie erschaffen sollten. Genetische Modifikation ist eine ganz besonders gefährliche Wissenschaft, weil wir buchstäblich in der Zukunft unseres Planeten herumpfuschen. Und
+wenn es zu Menschen und Tieren kommt, so sind das zwei Arten, die definitiv nicht vermischt werden sollten.
+Leider werden sie vermischt und dies könnte gewaltige Implikationen zur Folge haben, während unsere Gesellschaft in eine sehr unsichere Zukunft eintaucht.
+Während all dem Chaos rund um die US-Präsidentschaftswahl 2016 wurde eine verblüffende Ankündigung des
+NIH von fast niemandem bemerkt. Das Folgende stammt aus einem Artikel der ‹Huffington Post› mit dem Titel
+‹The Island of Dr. Moreau For Real› … [Die Insel des Dr. Moreau wird Wirklichkeit – AdÜ]
+**Im August 2016 kündigte das National Institute of Health an, dass es sein Verbot über Forschung, bei der**
+**Stammzellen von Menschen in Tierembryos eingepflanzt wird, aufhebe. Stammzellen haben die Fähigkeit, sich**
+in jede beliebige menschliche Zelle zu entwickeln und in jedem menschlichen Gewebe zu wachsen. Das Ziel
+dieser Art von Forschung besteht darin, menschliches Gewebe zu züchten und letztendlich menschliche Ersatz organe in Tieren zu züchten. Was für ein innovativer Weg, die Transplantations-Medizin zu verbessern! Um
+dieses Potential jedoch zu realisieren, würden wir einen Organismus erschaffen, der zu einem Teil Tier und zum
+anderen Teil Mensch ist! Diese Hybriden sind der Stoff der alten Mythologien. Diese Mischungen aus verschiedenen Tieren werden Chimären genannt; nach der alten, mythischen, griechischen Kreatur, die gleichzeitig
+Löwe, Schlange und Ziege war. Ein Ziel der heutigen Forschung besteht darin, als Experiment Gewebe und
+Organe zu produzieren, um unser Verständnis menschlicher Krankheiten zu verbessern. Ein alternatives und
+längerfristiges Ziel wäre es, Organe direkt für die Transplantation bei Menschen zu produzieren. Stellen Sie sich
+**eine unendliche Quelle an menschlichen Organen vor – ein Organ zerschleisst und man produziert einfach**
+**ein neues als Ersatz.**
+Wenn menschliche Stammzellen in einen Tierembryo gepflanzt werden, wird die Kreatur teilweise menschlich.
+Hat also eine teilweise menschliche Kreatur Rechte?
+Wenn ja, inwiefern unterscheiden sich diese Rechte von denen eines vollständigen Menschen?
+Das sind die Arten von Fragen, mit denen sich Ethiker herumzuschlagen beginnen.
+Der Gedanke daran, Mensch-Tier-Hybriden nur zum Zweck der Organzüchtung zu erschaffen, welche für
+medizinische Transplantate genutzt werden, ist mehr als verstörend. Doch genau das ist es, was unsere Wissenschaftler tatsächlich vorhaben zu tun.
+Und erst in dieser Woche veröffentlichten die National Academies of Sciences and Medicine einen brandneuen
+
+
+-----
+
+Bericht, der die genetische Modifikation von Menschen befürwortet. Das Folgende ist aus einem Gizmodo
+article …
+Heute haben die National Academies of Sciences and Medicine einen grossen neuen Bericht sowie Empfehlungen
+veröffentlicht, um sicherzustellen, dass jegliche Forschung dieser Art in den Staaten zukünftig verantwortungsvoll und ethisch durchgeführt wird.
+**Die implizierte Botschaft ist, ob wir es nun mögen oder nicht, dass der Weg in eine Zukunft von genveränder-**
+**ten Menschen geebnet ist.**
+Mit dem genetischen Material von Menschen herumzupfuschen bedeutet, dass man buchstäblich mit der
+Zukunft der menschlichen Rasse herumpfuscht.
+Und sobald dieses genetische Material von Generation zu Generation weitergegeben wird, wird es im wahrsten
+Sinne des Wortes unmöglich sein, den Geist jemals wieder zurück in die Flasche zu bekommen.
+Glücklicherweise gibt es einige Experten, die durch diesen neuen Bericht extrem alarmiert sind …
+«Die Empfehlungen und Schlussfolgerungen dieses Berichts sind verstörend und enttäuschend», sagte Professorin
+Marcy Darnovsky, Exekutivdirektorin des Zentrums für Genetik und Gesellschaft. «Obwohl sie in offensichtlich
+vorsichtigen Formulierungen eingebettet sind, stellen sie tatsächlich das grüne Licht für die Fortführung der
+**Bemühungen dar, die menschliche Keimbahn zu modifizieren – d.h. die Gene und Merkmale herzustellen, die**
+**an die zukünftigen Kinder und Generationen weitergegeben werden.»**
+Hoffentlich wird die Wissenschaftsgemeinde Menschen wie Dr. Darnovsky zuhören, bevor die Dinge völlig
+ausser Kontrolle geraten.
+Es gibt einige Wissenschaftler da draussen, die die Menschen tatsächlich ‹aufbessern› wollen, indem sie genetisches
+Material von Tieren einführen. Die Theorie lautet, dass die Einführung von tierischem genetischem Material
+uns ‹Super-Sicht› oder ‹Super-Stärke› oder andere aussergewöhnliche Kräfte verleihen könnte. Das ist genau
+das, wovor Forscher wie Steve Quayle und Tom Horn jahrelang gewarnt haben. In Zukunft könnten wir buchstäblich einer Kreatur gegenüberstehen, die zu 60% menschlich und z.B. zu 40% ein Bär ist. Wie würden wir
+eine solche Kreatur behandeln?
+Und sobald solche Kreaturen zahlreicher werden, wie würden sie uns behandeln?
+Wenn Sie denken, dass so etwas nie geschehen könnte, schauen Sie sich zehn Beispiele von Kreaturen an, die
+von der Wissenschaft bereits erschaffen wurden …
+1. Genetisch modifizierte Rinder mit menschlicher DNA
+2. Ratten mit menschlichen Nieren
+3. Mensch-Maus-Hybriden mit irrsinnig grossen Gehirnen
+4. Vermenschlichte milchproduzierende Ziegen
+5. Mäuse mit menschlichem Afterschliessmuskel
+6. Hasen-Eizellen mit menschlichen Zellen
+7. Schweine mit menschlichem Blut
+8. Schafe mit einer menschlichen Leber
+9. Kuh-Eizellen mit menschlichen Zellen
+10. Proteine von Katze-Mensch-Hybriden
+Wie menschlich muss eine Kreatur sein, um eine menschliche Seele zu haben?
+**Wir sollten lieber anfangen Fragen wie diese zu stellen, weil wir hier ‹Gott spielen› und mit Dingen herum -**
+**pfuschen, die wir nicht völlig verstehen.**
+Wir sind bereits viel zu weit gegangen, doch weltweit fahren Wissenschaftler damit fort, sogar noch weiter zu
+gehen. Sogar wenn wir diese Art von ‹Forschung› in den USA vollständig verbieten, so würde sie sich trotzdem
+in anderen industrialisierten Nationen auf dem ganzen Planeten fortsetzen.
+Die genetische Modifikation von Menschen und Tieren ist Teil eines grösseren Trends, den wir zurzeit erleben.
+In der Wissenschaftsgemeinde herrscht eine riesige Aufregung über die Tatsache, dass der Mensch endlich ‹seine
+eigene Evolution selbst kontrollieren› kann. Es gibt viele Wissenschaftler, die glauben, dass wir verschiedene
+Arten von Technologie nutzen können, um uns selbst übermenschliche Kräfte zu verleihen und unsere Lebensspanne radikal zu verlängern. Und während die Technologie sich in einer exponentiellen Rate immer weiter
+entwickelt, werden wir, so glauben diese Wissenschaftler, letztlich in der Lage sein, eine ‹post-humane Gesellschaft› zu erschaffen, wo jede Krankheit, Armut und Krieg ausgelöscht sein werden.
+Sie sind also nicht über die potentiellen Gefahren dieser neuen Technologien besorgt, weil sie glauben, dass wir
+uns an der Schwelle zur Unsterblichkeit und der Transformation dieses Planeten in ein technologisches Utopia,
+das in jeder Hinsicht perfekt sein wird, befinden.
+
+
+-----
+
+Anders ausgedrückt glauben sie, dass die Menschheit ‹Gott› nicht mehr brauchen wird, weil wir unsere eigenen
+Götter sein werden.
+Leider, für den Rest von uns, rennen sie in ihrem unerbittlichen Streben nach diesem sehr törichten Traum auf
+ein genetisches Armageddon zu, und sie öffnen eine Büchse der Pandora mit Schrecknissen, die sie einfach nicht
+verstehen.
+_Quelle: https://de.sott.net/article/28294-Das-Zeitalter-der-Mensch-Tier-Hybrid-Chimaren-hat-begonnen_
+
+### Die Angst der Machteliten vor dem Volk
+_22/02/2017 NPR_
+
+**Nach seinem wissenschaftlichen Vortrag ‹Warum schweigen die Lämmer›, hat Prof. Rainer Mausfeld nun einen**
+**neuerlichen, sehr interessanten Vortrag gehalten, den sich wirklich jeder ansehen sollte. Politiker sprechen**
+**derzeit auffällig oft von angeblicher ‹Demokratie›, die es zu verteidigen gilt. Wir werden jedoch dumm ge -**
+**halten, denn was das Volk nicht weiss, nicht einmal erahnt, kann es auch nicht auf die Barrikaden bringen.**
+**Prof. Mausfeld zeigt, wie jeder seine Ohnmacht überwinden und dieses System durchschauen kann.**
+Prof. Rainer Mausfeld: ‹Die Angst der Machteliten vor dem Volk› – sollte man sich ansehen und teilen bitte.
+Wenn eine überschaubare Gruppe von Menschen dauerhaft über die grosse Masse Macht ausüben will, ist die
+Stabilität des Systems nur dann zu erreichen, wenn man die wichtigste Ressource kontrolliert. Wissen.
+Was das Volk nicht weiss, noch nicht einmal erahnt, kann es auch nicht auf die Barrikaden bringen.
+Nach diesem simplen Prinzip herrschen die sogenannten Eliten nun schon seit Tausenden von Jahren über ihre
+jeweiligen Untertanen. Dabei spielt es keine Rolle, ob ein System sich ‹Demokratie› nennt oder nicht.
+Immer sind es nur sehr wenige, die bestimmen, was offiziell überhaupt gewusst wird. Umso allergischer reagiert
+jeder Machtapparat auf sogenannte ‹Whistleblower›, die man früher abwertend als Verräter bezeichnete. Verräter wie Snowden destabilisieren die Machtpyramide, indem sie dem Volk, den Massen, die Möglichkeit geben
+zu erkennen, wie man sie beherrscht. Herrschaft kann aber nur effektiv agieren, wenn sie unsichtbar bleibt.
+Vor allem auf dem Feld der Sozialforschung hat die Elite gegenüber dem Bürger einen enormen Wissensvorsprung.
+Die Machthaber kennen das Wesen ‹Mensch› heute derart genau, dass sie ihn bis in die kleinsten Teile zerlegen und
+manipulieren können und das auch tun. Dass wir alle kaum etwas davon mitbekommen, stützt diese Aussage.
+Wie kann es sein, dass wir z.B. in der BRD den grössten Niedriglohnsektor der Welt haben und sich die Massen
+nicht zusammenschliessen, um den Verteilerschlüssel des Kapitals zu korrigieren? Wie kann es sein, dass 2016
+nur acht Personen so vermögend sind wie 3,7 Milliarden, sprich die ärmste Hälfte des Planeten, und dennoch
+alles so läuft, als gäbe es diese Information nicht.
+Das Machtsystem ‹Neoliberalismus› hat es geschafft, nahezu unsichtbar zu werden und zu herrschen. Es ist auf
+allen Feldern aktiv, während es gleichzeitig so fassbar ist, wie eine grüne Schlange im schlammigen Wasser. War
+da was?
+Mit der Informationsrevolution werden die Karten neu gemischt. Der Staat bzw. die, die ihn zusammenstellen,
+haben das Monopol auf veröffentlichtes Wissen verloren.
+**Prof. Rainer Mausfeld ist eine Koryphäe, wenn es um das Enttarnen von Eliten-Macht geht. Sein aktueller**
+Vortrag ‹Die Angst der Machteliten vor dem Volk› hilft dem einzelnen, die Ohnmacht zu überwinden, die jeden
+beschleicht, wenn er versucht, im Alleingang das System zu durchschauen. Die Chance auf Veränderung beginnt
+im Kopf. Wissen ist der Schlüssel. Mehr Wissen bei den Massen.
+_Quelle: http://npr.news.eulu.info/2017/02/22/die-angst-der-machteliten-vor-dem-volk/_
+
+
+-----
+
+### Epidemie: Weltweit leiden 322 Millionen Menschen an Depressionen
+_Spiegel Online; Do, 23 Feb 2017 13:10 UTC_
+_Depressionen sind in vielen Ländern noch ein Tabuthema, auch wenn mehr als 300 Millionen Menschen weltweit_
+_betroffen sind. Die WHO kämpft mit einer Kampagne gegen das Stigma._
+Die Zahl der Menschen mit Depressionen steigt weltweit rasant. Nach einer Studie der Weltgesundheitsorganisation (WHO) waren 2015 rund 322 Millionen Menschen betroffen, 4,4 Prozent der Weltbevölkerung. Das
+waren gut 18 Prozent mehr als zehn Jahre zuvor.
+Der Anstieg sei vor allem auf das Bevölkerungswachstum zurückzuführen und die längere Lebenserwartung, da
+besonders ältere Menschen betroffen seien, sagte einer der Autoren der Studie, Dan Chisholm, am Donnerstag
+in Genf. «Depression ist heute weltweit die Hauptursache für Lebensbeeinträchtigung.» Zum Vergleich: Rund
+35 Millionen Menschen leben mit Krebs. Der Weltgesundheitstag am 7. April steht unter dem Motto: ‹Depression – lass uns reden›.
+
+#### Schwere häufig unterschätzt
+Für Deutschland schätzt die WHO die Zahl der Menschen mit Depressionen auf 4,1 Millionen, das sind 5,2
+Prozent der Bevölkerung. 4,6 Millionen Menschen lebten mit Angststörungen. Die Stiftung Deutsche Depressionshilfe spricht von einer Volkskrankheit. Depressionen gehörten zu den häufigsten und mit Blick auf die
+Schwere am meisten unterschätzten Erkrankungen.
+Die WHO sieht besonderen Handlungsbedarf bei Jugendlichen, Frauen vor und nach der Geburt sowie älteren
+Menschen. «Die heutige Jugend steht wie keine andere Generation vor ihr unter Druck», so Chisholm. Bei Social
+Media sei noch nicht völlig klar, inwiefern sie zu Angststörungen und Depressionen beitragen könnten.
+Stärker als der Durchschnitt litten Menschen zwischen 55 und 74 Jahren an Depressionen, teilte die WHO mit.
+In der Altersgruppe seien 7,5 Prozent der Frauen und 5,5 Prozent der Männer betroffen. Bei etwa gleich vielen
+Menschen würden Angststörungen diagnostiziert, so die WHO. Viele Menschen hätten sowohl Depressionen
+als auch Angststörungen. hda/dpa
+_Quelle: https://de.sott.net/article/28393-Epidemie-Weltweit-leiden-322-Millionen-Menschen-an-Depressionen_
+
+### Mehr Frühgeburten durch Feinstaub
+_23. Februar 2017 aikos2309_
+Weltweit gehen mindestens 2,7 Millionen Fälle pro Jahr auf Luftverschmutzung zurück.
+Dass Feinstaub ungesund ist, ist nicht neu: Studien belegen, dass die Verschmutzung der Luft mit den winzigen
+Schwebepartikeln das Lungenkrebs-Risiko fördert, Viren aktiviert und sogar dem Gehirn schaden kann. Nach
+Schätzungen von Forschern gehen weltweit 3,5 Millionen Todesfälle jährlich auf das Konto erhöhter FeinstaubBelastungen.
+Jetzt haben Christopher Malley von der University of York und seine Kollegen eine weitere negative Folge des
+Feinstaubs entdeckt. Für ihre Studie sammelten die Forscher Daten zur Feinstaubbelastung von Schwangeren
+und zum Anteil der Frühgeburten in 183 Ländern und analysierten, ob sich ein Zusammenhang finden lässt.
+Weltweit wurden im Jahr 2010 geschätzte 14,9 Millionen Kinder vor der 37. Woche geboren, wie die Forscher
+berichten. Das entspricht rund elf Prozent der insgesamt 135 Millionen Geburten. Als Risikofaktoren für eine
+solche Frühgeburt gelten unter anderem ein höheres Alter der Mutter, Mehrlingsgeburten, Krankheiten, Alkohol konsum, aber auch arme Verhältnisse.
+Schon länger vermuten Mediziner jedoch, dass auch die Belastung der mütterlichen Gesundheit durch Luftverschmutzung eine Rolle spielen könnte.
+Und tatsächlich: Wie die Forscher ermittelten, könnte eine Belastung mit mehr als zehn Mikrogramm pro Kubikmeter Feinstaub allein im Jahr 2010 für 2,7 Millionen zusätzliche Frühgeburten weltweit verantwortlich sein.
+Das entspricht immerhin rund 18 Prozent aller zu früh geborenen Kinder. Wurden schon Werte von mehr als
+4,3 Mikrogramm Feinstaub pro Kubikmeter als erhöht betrachtet, dann liessen sich sogar 34 Millionen Frühgeburten darauf zurückführen.
+«Unsere Studie unterstreicht, dass die Luftverschmutzung nicht nur denjenigen schadet, die die Luft direkt
+einatmen», sagt Malley. «Sie kann auch ein Kind im Bauch seiner Mutter schwerwiegend beeinträchtigen.» Die
+Belastung schwangerer Frauen durch Feinstaub sei demnach eindeutig ein potenziell bedeutender Risikofaktor
+für das Risiko einer Frühgeburt.
+
+
+-----
+
+Die Auswertung enthüllte auch deutliche regionalen Unterschiede: Die Regionen, in denen die Luftverschmutzung durch Feinstaub besonders hoch ist, hatten auch den höchsten Anteil an den feinstaubbedingten Früh geburten. So hatten Südostasien und Südasien zusammen einen Anteil von 75 Prozent.
+Indien allein macht eine Million der 2,7 Millionen Frühgeburten durch Feinstaub aus, wie die Forscher berichten.
+In China kommen noch einmal 500000 hinzu. Ebenfalls deutlich erhöht sind Luftbelastung und Frühgeburtenanteil in Teilen Afrikas.
+Neben Dieselabgasen und anderen verkehrsbedingten Emissionen stammt gerade in Entwicklungs- und
+Schwellenländern ein grosser Teil des Feinstaubs aus Waldbränden, Herdfeuern und Holzheizungen, wie bereits
+eine frühere Studie ergab. In den an die Sahara angrenzenden Regionen Afrikas kann zudem Wüstenstaub zur
+Belastung beitragen, wie die Forscher erklären.
+Doch auch in Deutschland ist der Feinstaub ein ernstzunehmendes Problem. Wie die Messdaten zeigen, werden
+auch bei uns die Grenzwerte überschritten. Als Hauptverursacher der schädlichen Partikel gelten hierzulande
+der Strassenverkehr und die Landwirtschaft (Mehr grün! Städte sind Krebszentren – Umzug aufs Land mindert
+Risiko an Krebs zu erkranken).
+«Um das Feinstaubproblem zu bekämpfen, muss man daher viele verschiedene Quellen kontrollieren», sagt
+Koautor Johan Kuylenstierna von der University of York. «In einer Stadt stammt häufig nur die Hälfte der Belastung aus innerstädtischen Quellen, der Rest wird durch den Wind aus anderen Regionen oder sogar Ländern
+hereingeweht.»
+Nach Ansicht der Wissenschaftler unterstreichen ihre Ergebnisse die Notwendigkeit, die Luftverschmutzung
+durch Feinstaub und andere Schadstoffe zu reduzieren. «Die durch diese Belastung verursachten Frühgeburten
+tragen nicht nur zu Kindersterblichkeit bei, sie können auch für die Überlebenden lebenslange Folgen nach sich
+ziehen», betont Malley.
+_Literatur: Almendro – Baum des Lebens_
+_Das geheime Leben der Bäume: Was sie fühlen, wie sie kommunizieren – die Entdeckung einer verborgenen Welt von Peter Wohl-_
+_leben_
+_Holzwunder: Die Rückkehr der Bäume in unser Leben von Erwin Thoma_
+_Wohllebens Waldführer: Tiere und Pflanzen bestimmen – das Ökosystem entdecken von Peter Wohlleben_
+_Quelle: http://www.pravda-tv.com/2017/02/mehr-fruehgeburten-durch-feinstaub/_
+
+### Video: Kongress-Rede von US-Präsident Trump auf Deutsch – Standing Ovations von allen Seiten
+_Von Kathrin Sumpf, Aktualisiert: 2. März 2017 19:59_
+Die Rede von Präsident Trump vom 28. Februar 2017 auf deutsch: Kongressmitglieder reagieren mit viel Beifall
+und oftmaligem Aufstehen auf Trumps Ansprache – auch die Demokraten.
+
+_US-Präsident Donald Trump_
+_Foto: Jim Lo Scalzo - Pool/Getty Images_
+
+US-Präsident Donald Trump hat unter anderem zu einer Zusammenarbeit über parteipolitische Grenzen an
+seinen Reformvorhaben aufgerufen.
+Die Zeit für ‹kleingeistiges Denken› und ‹banale Kämpfe› sei vorbei, sagte Präsident Trump am Dienstagabend
+(Ortszeit) in seiner ersten Rede vor dem Kongress in Washington. Er betonte, dass seine Regierung nicht nur
+mit den Republikanern, sondern auch den oppositionellen Demokraten zusammenarbeiten wolle.
+Zugleich bekräftigte er seine harte Linie gegen die illegale Einwanderung. Durch Anwendung der geltenden
+
+
+-----
+
+Gesetze zur Immigration würden die Gehälter steigen, den Arbeitslosen geholfen, Milliarden von Dollar gespart
+‹und unsere Gemeinden für alle sicherer› gemacht.
+Hier die gesamte Rede in Deutsch. Es ist interessant, wie die Republikaner und die Demokraten im Kongress
+reagieren: Sie unterbrechen oft mit Beifall und durch Aufstehen – und zwar beide Fraktionen. Vermutlich ist
+genau das das, was die Elite erschüttert (wie der Titel des Videos lautet).
+_Quelle: http://www.epochtimes.de/politik/welt/video-kongress-rede-von-us-praesident-trump-auf-deutsch-standing-ovations-_
+_von-allen-seiten-a2061430.html_
+
+### Abgeordneter nach Kritik an Merkel und den Grünen von Sitzung ausgeschlossen
+_Epoch Times; Aktualisiert: 2. März 2017 17:30_
+Bei einer aktuellen Stunde im Hamburger Rathaus ist der fraktionslose Abgeordnete Ludwig Flocken nach
+seiner Rede von der Sitzung ausgeschlossen worden. Er hatte unter anderem Angela Merkels Umgang mit der
+deutschen Flagge kritisiert.
+
+_Ludwig Flocken bei seinem Redebeitrag in Hamburg._
+_Foto: screenshot/youtube_
+
+Der fraktionslose Abgeordnete der Hamburgischen Bürgerschaft, Ludwig Flocken, ist aus einer Rathaussitzung
+ausgeschlossen wurden. Die Parlamentspräsidentin Carola Veit hatte ihm nach seiner Ansprache vorgeworfen,
+die Bundeskanzlerin Angela Merkel und die Grünen beleidigt zu haben.
+In der Aktuellen Stunde im Rathaus ging es um den Islamvertrag mit der Ditib sowie türkischen Nationalismus
+in Deutschland. «Die Türken haben in Deutschland nicht Räume für ihre Ideologie erobert, sondern haben von
+Deutschen verlassene Räume vorgefunden, und diese würden sie für sich in Besitz nehmen», mahnte der
+Abgeordnete. Damit spielte Flocken auf die Szene am Abend der Bundestagswahl 2013 an und sagte: «Sie alle
+kennen die Bilder von Merkel nach ihrem letzten Wahlsieg, wie sie die Deutschlandfahne wegschmeisst und ihr
+der Ekel ins Gesicht geschrieben steht.»
+Damals hatte der CDU-Generalsekretär Hermann Gröhe mit einer kleinen Deutschlandfahne gewedelt, worauf
+Merkel diese ihm abnahm und kopfschüttelnd von der Bühne gab.
+Beim Ausspruch ‹Grüne urinieren darauf› kommt bereits der Protest aus den Reihen der anwesenden Politiker.
+Dieser Vorfall stammte von 2008, als Mitglieder der Grünen Jugend während des Bundeskongresses in Bonn
+auf eine Deutschlandfahne urinierten. Zumindest legten Bilder, die zeitweise auf der Internetseite der Grünen
+Jugend veröffentlicht worden waren, das nahe, schreibt die ‹Junge Freiheit›.
+«Rote können die Nationalfarben vor dem Hamburger Rathaus kaum ertragen» und in genau diese Leere würde
+sich ein Meer von roten Halbmondfahnen in gigantischem Ausmass ergiessen, stellt Flocken fest.
+Einen Schutz vor dem Nationalchauvinismus biete gesunder Patriotismus, wie er in allen Ländern dieser Welt,
+ausser in Deutschland, selbstverständlich sei und wie er hierzulande einst auch selbstverständlich war, ist
+Flocken überzeugt. Noch in den siebziger Jahren hätte die SPD plakatiert: ‹Deutsche, wir können stolz sein auf
+unser Land.› Und weiter: «Stellen Sie sich mal vor, Jugendliche würden hier in Hamburg eine solche Parole mit
+Kreide auf das Pflaster schmieren, dann wäre aber der Staatsschutz aktiv.»
+Flocken wurde während seiner Rede von der Parlamentspräsidentin ermahnt und nach dem Ende seiner Rede
+von der weiteren Sitzung ausgeschlossen.
+Flocken war im Frühjahr 2016 aus der AfD-Fraktion in der Hamburgischen Bürgerschaft ausgetreten und ist
+seitdem fraktionsloser Abgeordneter. Er ist aber noch Parteimitglied der AfD. (mcd)
+_Quelle: http://www.epochtimes.de/politik/deutschland/abgeordneter-nach-kritik-an-merkel-und-den-gruenen-von-sitzung-_
+_ausgeschlossen-a2060948.html_
+
+
+-----
+
+### Trumps erste Rede vor dem Kongress – Unkontrollierte Einreise «ist nicht mitfühlend, sondern unbesonnen»
+_Epoch Times; Aktualisiert: 1. März 2017 6:19_
+
+_US-Präsident Donald Trump_
+_Foto: Evan Vucci/dpa_
+
+US-Präsident Donald Trump hat zu einer Zusammenarbeit über parteipolitische Grenzen an seinen Reformvorhaben aufgerufen. Die Zeit für ‹kleingeistiges Denken› und ‹banale Kämpfe› sei vorbei, sagte Trump am
+Dienstagabend (Ortszeit) in seiner ersten Rede vor dem Kongress in Washington. Er betonte, dass seine Regierung
+nicht nur mit den Republikanern, sondern auch den oppositionellen Demokraten zusammenarbeiten wolle.
+Als Beispiele für mögliche parteiübergreifende Kooperation nannte Trump die Modernisierung der Streitkräfte
+und der Infrastruktur sowie Reformen zugunsten der Familien. Er plädierte auch für eine Reform des Einwanderungsrechts, an der Republikaner und Demokraten zusammenarbeiten sollten.
+Durch diese Reform solle die Immigration nach dem Vorbild von Ländern wie Australien und Kanada derart
+gesteuert werden, dass Menschen ins Land kämen, die finanziell für sich selbst sorgen könnten, sagte der
+Präsident.
+Zugleich bekräftigte er seine harte Linie gegen die illegale Einwanderung. Durch Anwendung der geltenden
+Gesetze zur Immigration würden die Gehälter steigen, den Arbeitslosen geholfen, Milliarden von Dollar gespart
+‹und unsere Gemeinden für alle sicherer› gemacht.
+Gleich zu Beginn seiner Ansprache verurteilte Trump die jüngsten antisemitischen Vorfälle in den USA sowie
+den Schusswaffenangriff in Kansas City, bei dem ein Inder getötet und ein weiterer verletzt worden war. Die
+Nation stehe ungeachtet ihrer politischen Differenzen bei solchen Vorfällen ‹vereint in ihrer Verurteilung von
+Hass und dem Bösen in allen ihren Formen›.
+Trump bekräftigte ferner, dass er im Kampf gegen den Terrorismus auf rigorose Einreisekontrollen setze. Unter
+Verweis auf die Anschläge in Deutschland, Frankreich und Belgien sagte er: «Es ist nicht mitfühlend, sondern
+unbesonnen, die unkontrollierte Einreise zuzulassen.»
+Die pauschalen Einreiseverbote, die der Präsident kurz nach seinem Amtsantritt verhängt hatte, waren allerdings von Richtern suspendiert worden. Nach Medienberichten will Trump nun am Mittwoch ein neues Dekret
+mit Einreiserestriktionen unterzeichnen.
+In seiner einstündigen Rede vor dem Repräsentantenhaus und Senat ging Trump nur am Rande auf die Aussenpolitik ein. Er bekräftigte sein Ziel, die Dschihadistenmiliz Islamischer Staat (IS; Anm. Islamistischer Staat) zu
+vernichten.
+Zugleich legte der Präsident ein klares Bekenntnis zur Nato ab: «Wir unterstützen die Nato stark.» Er forderte
+aber die Bündnispartner auf, «ihre finanziellen Verpflichtungen zu erfüllen». Damit bezog er sich auf das in der
+Allianz vereinbarte Ziel, die Verteidigungsausgaben auf ein Volumen von mindestens zwei Prozent des jeweiligen
+Bruttoinlandsprodukts (BIP) zu steigern. Der deutsche Verteidigungsetat liegt derzeit deutlich unter dieser Zielmarke.
+Trump sagte jedoch, als Resultat der ‹sehr starken und offenen Diskussionen› in der Nato begännen die Partner
+inzwischen, ihre Verteidigungsausgaben zu steigern. Er forderte auch, dass die Partner eine ‹direkte und bedeutsame Rolle› in militärischen Operationen übernehmen. (afp)
+_Quelle: http://www.epochtimes.de/politik/welt/trumps-erste-rede-vor-dem-kongress-unkontrollierte-einreise-ist-nicht-mitfu-_
+_ehlend-sondern-unbesonnen-a2059932.html_
+
+
+-----
+
+### Schockergebnis bei Umfrage: Ist Russland Freund oder Feind?
+_Daniel McAdams_
+Laut einer kürzlichen Meinungsumfrage von NBC News machen sich zwei Drittel der Amerikaner Sorgen, dass
+ein grösserer Krieg ausbrechen könnte, und während unter allen Befragten insgesamt Russland als Feind betrachtet wird, glaubt eine Mehrheit von nahezu drei Vierteln der jungen Menschen, dass Russland kein Feind
+ist. Die Propaganda der Massenmedien hat einen viel geringeren Effekt auf jüngere Amerikaner, die den
+Medienkonzernen keine Beachtung schenken.
+Was heisst das für die Friedensbewegung? Das sind gute Neuigkeiten!
+_Quelle: http://antikrieg.com/aktuell/2017_02_25_schockergebnis.htm_
+
+### Tagtägliches Gezanke Zur Flüchtlingspolitik der Bundesregierung
+_09.02.2016 20:12 Uhr_
+Die wachsende Kritik an Bundeskanzlerin Angela Merkel war zu erwarten. Verständlich, auf die Schnelle lassen
+sich die momentan anstehenden Hürden kaum überwinden. Noch dazu, weil sich das sogenannte Flüchtlingsproblem in den nächsten Jahrzehnten kaum lösen lässt.
+Wenn wir den weltweiten Nachrichten Glauben schenken können, werden sich die Sorgen, wie Umwelt und
+Klimawandel, Welthunger und Überbevölkerung aller Wahrscheinlichkeit eher noch vergrössern. Warum ist
+man dann hierzulande in der Politik dem Bürger gegenüber nicht ehrlicher, zumal sich die Entwicklungen schon
+seit Jahren deutlich sichtbar abgezeichnet haben?
+Klar, man kehrt diese Realitäten besser unter den Teppich und pflegt mit Erfolgsmeldungen das eigene Image.
+In Anbetracht solcher Gegebenheiten wäre es ratsam, wenn die vom Volke gewählten Verantwortlichen, gleich
+welcher Fraktion, mehr Einfühlungsvermögen und Fingerspitzengefühl zeigen würden. Das mittlerweile naive
+Parteiengeplänkel schadet dem Lande und somit der Bundesrepublik Deutschland.
+Die Sache mit den sexuellen Übergriffen auf Frauen, die beängstigende Zunahme von Einbrüchen und Diebstählen, Gewaltverbrechen jeglicher Art. Was helfen hier viele unnütze Diskussionen, unüberlegte Schnellschuss aktionen wie Verschärfung von Gesetzen, Verstärkung der Sicherheitskräfte, Wiedereinführung von Grenz kontrollen und angebliches Abschieben von straffällig gewordenen Emigranten und Asylanten. Mit einer
+solchen Entwicklung musste gerechnet werden, wenn ‹jedermann› unkontrolliert in die Republik einreisen
+kann. Sicher ist ein Grossteil dieser sogenannten Flüchtlinge nicht kriminell. Aber wer sagt denn, dass sich das
+unter den bei uns vorgefundenen Gegebenheiten, durch tagtägliche Reibungseffekte und im Besonderen aus
+religiösen und finanziellen Gründen nicht gefährlich ändert.
+Mit der grosszügigen bestimmt gut gemeinten Aussage ‹Wir schaffen das› hat Angela Merkel nicht nur Kriegsflüchtlinge eingeladen, sondern Hoffnungen geweckt, die so nie und nimmer realisierbar sein werden. Noch
+dazu, wenn die Bundesrepublik Deutschland in Europa, ja sogar in der Europäischen Union, mit der Bewältigung des riesigen Zustroms von Flüchtlingen fast allein gelassen wird.
+Es geht hier nicht nur um die Korrektur ihrer Aussage ‹Wir schaffen das›, sondern um die Frage ‹Wie wir und
+was wir reell schaffen können›. Was wäre Deutschland ohne diese vielen unbezahlbaren Ehrenamtlichen und
+Freiwilligen? Nur, auf Dauer wird es diese bei dieser Dauerbelastung nicht mehr geben. Das tagtägliche Gezanke
+namhafter Politiker ist dem Volk so nicht zumutbar. Und nur durch parteiübergreifendes Denken, nur mit
+einem Miteinander, können ab sofort, können in Zukunft solche weltweiten Sorgen vielleicht in Grenzen
+gehalten werden.
+Manfred Betz, Wellheim
+_Quelle: http://www.donaukurier.de/interaktiv/leserbriefe/ueberregional/art76949,3179624_
+
+### Das eigene Volk nicht vergessen
+_Aktualisiert: 04.09.15 16:51_
+Mike Schier: ‹Flüchtlingszüge aus Ungarn: Wo ist Europa?›; Kommentar 2. September, ‹Flüchtlinge: Alle Stimmen
+anhören›; Leserbriefe 3. September, ‹Ungarn hält Flüchtlinge fest›; Politik 4. September
+
+
+-----
+
+In seinem Kommentar beklagt Mike Schier das ‹kopflose Wesen› der Europäischen Union. Nun verfügt die EU
+eben über kein gewähltes und damit demokratisch legitimiertes Oberhaupt. Sie besteht aus eigenständigen
+Nationalstaaten, deren Regierungen ihrem Volk gegenüber ihr Tun rechtfertigen müssen. Bei der Euro-Rettung
+hatten alle Euro-Staaten ein Interesse an der Griechenland-Rettung. Dagegen sind die Ansichten zur Völkerwanderung der Völker Nordafrikas und des Nahen und Mittleren Ostens nach Europa in den einzelnen EUStaaten höchst unterschiedlich. So bestehen in Osteuropa starke Einwände gegen eine Islamisierung. Frankreich
+spürt im eigenen Land (in den Vorstädten und im Süden) nur zu bitter, welche Folgen die ungezügelte Zuwanderung aus Afrika haben kann. Grossbritannien hat ebenfalls Angst vor Überfremdung. Häufig besteht Angst vor
+wirtschaftlichem und sozialem Niedergang: Der Zuzug, der durch den Familiennachzug noch vervielfacht wird,
+kann bei qualifizierter Zuwanderung im günstigen Fall die Wirtschaftskraft eines Landes erhöhen. Möglicherweise steigt aber dennoch die Arbeitslosigkeit, gerade auch bei den leistungsschwächeren Inländern. Allerdings
+dürften viele Ortsansässige bei der Suche nach einer billigen Wohnung nun den Kürzeren ziehen, auch droht
+die Gesundheitsversorgung der gesetzlichen/staatlichen Kassen stark eingeschränkt zu werden. Offensichtlich
+ist auch, dass in den staatlichen Schulen die Integration der jugendlichen Migranten zu Lasten der ‹normalen›
+Schüler geht. Angesichts der praktisch unendlich hohen Zahl potentieller Migranten vermutet man den völligen
+Zusammenbruch der Sozialsysteme. In vielen EU-Staaten werden diese Themen durch rechtspopulistische
+Parteien im Parlament ziemlich erfolgreich vertreten, in Deutschland eben nicht. Daher diese Dissonanz in der
+EU. Nimmt Deutschland weiter alle Flüchtlinge alleine auf und käme es hier zum Kollaps, stünden auf einmal
+wieder Grossbritannien und Frankreich und deren Repräsentanten im Sonnenlicht. Das Agieren der Regierungen
+ist absolut nachvollziehbar.
+Armin Seemann, Freising
+
+Sehr geehrter Herr Fischer, herzlichen Dank für Ihren Leserbrief. Er spricht die Stimme des Volkes. Leider gewährt die Politik dem eigenen Volk gegenüber keinerlei Toleranz, die Sorgen des Volkes werden ignoriert. Sorgen
+wegen Überfremdung, Gewalt, innerer Unruhe und finanzieller Art werden einfach ausgeblendet. Hatten wir
+jemals so tatenlose Politiker? Unsere Politiker haben eine Verantwortung ihrem Volk gegenüber, das vergessen
+die Herrschaften anscheinend. Immer nur nachträglich ‹Pflaster auf die Wunden› zu kleben oder über Ausschreitungen, welche durch fehlerhafte Politik verursacht wurden, den ‹Finger zu heben› ist zu wenig, Vorbeugung ist
+jetzt dringend angesagt. Dies rettet Menschenleben, sichert Frieden, gibt Ruhe und Sicherheit für die Bevölkerung.
+Auf geht’s Politiker, handelt endlich verantwortungsvoll und fair, allen Beteiligten gegenüber.
+Gabriele Doll, Egling
+
+In einer entsolidarisierten Welt fordern nun zögerliche bis untätige bzw. scheinbar konzeptlose Politiker ein Miteinander mit Asylbewerbern, welches nicht einmal mehr unter der eigenen Bevölkerung vorhanden ist. Besser
+sollten die Probleme in den Herkunftsstaaten der Asylbewerber gelöst werden, aber mit Geld allein ist dies wohl
+nicht zu bewerkstelligen. Korruption, Globalinteressen und Überbevölkerung in Staaten, welche eine schnell
+wachsende Bevölkerung nicht im Ansatz zu ernähren in der Lage sind, stehen diesem vermeintlichen Bemühen
+entgegen. Es ist klar zu erkennen, dass diese Eigendynamiken nicht mehr lösbar erscheinen, dass da jeder auf seine
+ureigenen Interessen schaut, ist wohl geradezu folgerichtig und damit auch der Zulauf der Bürger zu extremen
+Strömungen. Jeder, der sich nicht im politischen Meinungsbild vertreten fühlt, schliesst sich jenen an, welche
+am ehesten seine jeweilige Meinung widerspiegeln. ‹Liebe› Politiker, nehmt euch der Probleme an oder gebt zumindest das Gefühl, dass ihr versucht, diese zu lösen, dann gibt es auch eine Akzeptanz gegenüber denjenigen,
+welche unsere Hilfe brauchen, diese dankbar annehmen sowie unsere Werte und Kultur achten. Einem Zusammenleben in gegenseitiger Achtung stünde dann wohl kaum etwas entgegen, ich glaube, dass dies im Einzelfall
+schon hervorragend funktioniert. Überzogene ‹politische Korrektheit› ist für Teile unserer Bevölkerung, welche
+sich unfreiwillig nicht mehr unserem Solidarsystem zugehörig fühlen, nicht nachvollziehbar – siehe Armuts bericht der Sozialverbände. Also Politik: Handeln, statt auf zum Teil ‹hausgemachte› Folgeprobleme zu zeigen!
+Tilo Gubsch, Seehausen
+
+Einfach grossartige hilfs- und geschenkbereite Menschen in München am 1. September: Beamte/Behörden,
+Vereine/Organisationen, private freiwillige Helfer. Sie haben Tausenden einen unvergleichlich geglückten
+Empfang bereitet. Vergessen wir jedoch dabei nicht, dass bei aller Herzlichkeit und der von Frau Merkel ver spätet angemahnten Willkommenskultur für Syrer, Iraker, Eritreer, Somalier, Afghanen und Pakistani auch
+noch deutsche Staatsbürger – Ältere, Arbeitslose, Alleinerziehende mit Kindern – millionenfach im Abseits
+
+
+-----
+
+stehen: Knapp im oder unter einem Existenzminimum, geprägt durch Altersarmut, unverzichtbare wöchent liche Tafelbesuche und ausgeschlossen von der Teilhabe am sonstigen sozialen Leben. Die Mutmassungen und
+Vergleiche mit der geglückten Integration von zwei Millionen Vertriebenen aus dem Sudetenland und Schlesien
+in Bayern nach Kriegsende mit den heutigen Optionen für die sprach- und berufsunkundigen Flüchtlinge aus
+Vorderasien und Westafrika in Deutschland sind entbehrliches Geschwätz. Die damals Vertriebenen sprachen
+unsere Muttersprache, waren wahrhaftig nicht hochwillkommen, bewiesen aber Tüchtigkeit und Fleiss als
+Arbeiter, Handwerker und Kleinunternehmer in Landwirtschaft, Industrie und Gewerbe. Die ehemaligen
+Sudetendeutschen und Schlesier halfen mit ihren Nachgeborenen, den vormaligen Agrarstandort Bayern zum
+heutigen technologischen Höchststand mitzuentwickeln. Das macht den Unterschied zur noch zu bewältigenden,
+nicht absehbaren Flüchtlingswelle mit ihren grösstenteils falschen Vorstellungen und Erwartungen, was Geld,
+wohnliche Bleibe und Arbeit betrifft. Das kürzliche «Wir werden es schaffen!» der Bundeskanzlerin ist eine vollmundige Ermunterung mit ungewissem Ausgang. Genauso wie Griechenland und seine Schulden. Das restliche
+Europa – gerade im Osten – wird uns in der Lösung der anstehenden Integrationsprobleme kein Verbündeter
+sein. ‹Mutti› als wichtigste Frau im politischen Fegefeuer dieser Erde wird sich noch wundern …
+Günter Schäftlein, Mittelstetten
+_Quelle: https://www.merkur.de/lokales/leserbriefe/politik/eigene-volk-nicht-vergessen-5492568.html_
+
+### Europa brennt! Und wir schauen zu?
+_Veröffentlicht am Februar 26, 2017 von helmut mueller_
+Paris ist nicht mehr Paris, zitiert Donald Trump einen seiner Freunde. Wo jener recht hat, hat er recht. Als ich
+vor zwanzig Jahren in Paris ein Gespräch mit Jean Marie Le Pen führte, standen brennende Autos und Strassen schlachten noch nicht auf der Tagesordnung. Heute, wo seine Tochter das Präsidentenamt anpeilt, wird in der
+Stadt der Liebe regelmässig gebrandschatzt und geplündert. Nicht nur durch Gewaltszenen macht sich dieses
+Andere bemerkbar, in einigen Strassenzügen und Wohngegenden auch schon folkloristisch-atmosphärisch.
+Paris, jetzt als Leidensstadt, befindet sich aber in guter Gesellschaft mit Brüssel, Malmö, Berlin, Duisburg, Wien,
+und einigen anderen Städten, deren leidgeprüfte Bevölkerung von der Politik bloss mit verbalen Beruhigungs pillen abgefertigt wird. Einigen Bürgern platzt aber dennoch schon der Kragen.
+So stört den Bürgermeister von Wiener Neustadt in Niederösterreich, dass bereits 56,5 Prozent aller Schüler seiner
+Stadt nichtdeutscher Muttersprache sind. In Wien immerhin 50 Prozent, was sich auch in der Kriminalitätsrate
+niederschlägt. Parallel dazu wächst die terroristische Szene. Der sehr umtriebige österreichische Aussen- und
+Integrationsminister möchte mit mehr Deutsch, Werten und Orientierungskursen gegensteuern, auch an ge meinnützige Arbeit denkt er. Nicht nur Islamisten, auch gewöhnliche Vergewaltiger und Totschläger mit
+Migrationshintergrund werden davon wenig beeindruckt sein. Ein per Migration implantiertes inländerfeindliches populationsdynamisches Experiment, in dessen Schoss Gewalt und Chaos gedeihen, mit österreichischem
+‹Wir schaffen es› auf die Reihe kriegen? An der Integration gescheiterte Schweden werden das belächeln.
+Im nordischen Land beklagte sich, die veröffentlichte Meinung und politisch motivierte Vertuschungen ignorierend, Kommissar Peter Springare aus Örebro auf Facebook darüber, dass die Polizei bald zu 100 Prozent mit
+Migrantenkriminalität beschäftigt sei. Nicht nur dort. Längst könnte ein vereinter europäischer Polizeichor
+dazu sein Klagelied anstimmen. Doch die für Gewalt und Chaos in Europa Verantwortlichen, voran Verhängnis
+Merkel, wollen – auch zur Freude einiger geistesgestörter (Anm. bewusstseinsgestörter) Gutmenschen – ihre
+Invasionstrilogie aus Flucht, Immigration und Bevölkerungsaustausch verstärkt weiterführen. Will heissen:
+‹more of the same›! Zu den Spinnern gehören doch hoffentlich nicht die kürzlich ins Gerede gekommenen
+Richter des Europäischen Gerichtshofes. Obwohl diesbezüglich leise Zweifel erlaubt sein sollten.
+So verlautet aus den Couloirs des ‹Palais de la Cour de Justice› in Luxemburg, in Zukunft solle jeder Mensch
+egal wo, dem Folter oder erniedrigende Behandlung droht, das Recht haben, ein Visum für ein EU-Land seiner
+Wahl zu erhalten. Dass etwa in Schweden in den letzten vierzig Jahren, also seit es Einwanderungsland ist, die
+Gewaltverbrechen um 300 Prozent gestiegen sind, scheint die hohen Richter anscheinend nicht zu beeindrucken.
+Auch die zwei Mitglieder des Hauses Rothschild und Herrn Soros sowie die Vertreter von Goldman Sachs und
+des Rockefeller Fonds nicht, die alle an der Münchner Sicherheitskonferenz teilgenommen hatten. Dass diese
+Konferenz ausgerechnet in München stattfand, ist geradezu eine Groteske, wo doch im Fall eines Krieges
+zwischen Russland und den USA Mitteleuropa, wie bereits 1952 vereinbart (‹Kronenzeitung›), als Kriegsschauplatz vorgesehen ist. Was allein den nämlichen Gelddynastien in London und New York hohe Gewinne be scheren würde.
+
+
+-----
+
+Ja, es sieht schlecht aus mit unserer Sicherheit und damit auch mit unserer Zukunft. Für jeden klarsichtigen
+und vernünftigen Menschen ist es nicht fünf vor, sondern bereits fünf nach Zwölf. Und das betrifft eben in
+besonderer Weise das durch die massenhafte Aufnahme Fremder verursachte Chaos mit Aussicht auf mehr. Das
+Haus Europa brennt, doch seine Politiker löschen nur stümperhaft und, wie es scheint, nur ungern und ignorieren die Glutnester, die durch laxe Politik und offene Grenzen immer wieder neu entfacht werden. Vor einer
+radikalen Lösung (z.B. Einwanderungsstop, kein Recht auf Familienzusammenführung, Begrenzung des NichtEU-Ausländeranteils usw.) schrecken sie zurück, preisen den von Kriminellen, Analphabeten und jeder Menge
+Taugenichtse durchsetzten Flüchtlingsstrom als eine Bereicherung und empfehlen ihren Wählern, Gewalt und
+Terror als unvermeidliches Schicksal anzunehmen. Ultimative Draufgabe: «Das Volk ist jeder, der in diesem
+Lande lebt» (Angela Merkel, antideutsche Ikone).
+In der Tat, sie, die führenden EU-Politiker, schaffen den Nationalstaat ab und dazu auch gleich das Volk und
+beschimpfen den Widerstand als Pack. Sie zerstören Europa im Namen desselben und schieben die Schuld ihren
+Kritikern in die Schuhe. Infam nenne ich das. Daher bin ich der Meinung, dass alle Politiker, die aktiv den Austausch der Bevölkerung betreiben oder keinen nennenswerten Widerstand dagegen unternehmen und/oder
+Vorbereitungen für einen Angriffskrieg gegen Russland treffen, eines Tages gnadenlos zur Rechenschaft gezogen
+werden sollten.
+_*Einer Analyse von Ines Laufer zufolge, sollen Einwanderer fünfmal krimineller sein als Einheimische; bei Gruppen-_
+_vergewaltigung fast 20 Mal (bei Facebook einzusehen)._
+**_Zum Thema_**
+**_Untergang schauen https://youtu.be/jXFhMBT-h2c_**
+**_Merkel spinnt: https://youtu.be/qRBTRXTn-BU_**
+**_Brüssel: Multikulti ist Schicksal http://videos2.focus.de/wochit2/2016/05/06/572c8a72e4b0a188ed297b45-1280x720_May__**
+_06_2016_12_23_35.MP4_
+**_Horror in Schweden https://youtu.be/0hqZry6Rg1Q_**
+**_NGO als Schlepper https://youtu.be/TbIc1LZqIAw_**
+**_Krieg in Paris https://youtu.be/qWhnu6qKtwI; https://www.youtube.com/watch?v=OkK3OvvHzrY_**
+_Quelle: https://helmutmueller.wordpress.com/2017/02/26/europa-brennt-und-wir-schauen-zu/_
+
+_13:40 27.02.2017 (aktualisiert 16:00 27.02.2017)_
+**Willy Wimmer**
+**Der Bundeskanzlerin darf man nichts mehr durchgehen lassen. Das hat das deutsche Volk bei der Migrations-**
+**entwicklung seit 2015 erfahren können. Die Bundeskanzlerin erhob sich über das Gesetz und verfügte eigen-**
+**mächtig, wie zu verfahren sei.**
+Seither hat der Deutsche Bundestag in einer All-Parteien-Bewegung die Vorgehensweise der Bundeskanzlerin
+gestützt. Anstatt Sie wegen der Ausser-Kraftsetzung deutschen und europäischen Rechts zur Rechenschaft zu
+ziehen, hat das Berliner Parlament es hingenommen, unsere Grenzen absolut schutzlos zu lassen.
+Wir sind die Eingeborenen von Merkelonien.
+Die Bundeskanzlerin geht jetzt einen Schritt weiter. Sie schafft das ‹deutsche Volk› eigenmächtig ab. Wie die
+Äusserungen der Bundeskanzlerin seit einiger Zeit deutlich machen, geht sie gezielt vor. Unsere Gesetze fegt sie
+beiseite, denn das ‹deutsche Volk› sind nun mal die ‹deutschen Staatsbürger› und nicht alle Menschen, die sich
+auf dem Territorium Deutschlands aufhalten.
+
+
+-----
+
+Aber wer weiss es denn? Vielleicht wird ‹Deutschland› durch diese Dame abgeschafft. Anders kann man nicht
+werten, was die Bundeskanzlerin vor wenigen Tagen auf dem CDU-Landesparteitag in Mecklenburg-Vor pommern von sich gegeben hat.
+Wir haben uns nicht für die Einheit Deutschlands eingesetzt, um als ‹Deutsche› beseitigt zu werden.
+Kein Wunder, wenn sich das politische Berlin und der europäische ‹Wasserkopf› in Brüssel mit dem neuen
+amerikanischen Präsidenten Trump nicht anfreunden können. So viel ‹Anti-Amerikanismus› in der offiziellen
+deutschen Politik war nie. Merkel macht's möglich. Das kann man sogar verstehen. Präsident Trump hält der
+Bundeskanzlerin ununterbrochen ihr Zerrbild vor Augen. Für Präsident Trump sind die USA eine Nation mit
+einer Ökonomie und keine Wirtschaft mit einem gewissen staatlichen Anhang.
+Steve Brannon hat es in diesen Tagen deutlich gemacht, wie der Anspruch des neuen amerikanischen Präsidenten
+dabei ist. Die USA sind nach ihm eine Nation mit einer Kultur und einem Auftrag. Das könnten wir auch sein,
+wenn wir eine Regierung haben würden, die das Friedensgebot des Grundgesetzes umsetzt, statt einen völkerrechtswidrigen amerikanischen Krieg nach dem anderen mitzumachen. Man muss in Berlin und Brüssel den
+Eindruck haben, dass sie jetzt über Trump mit seinen Friedensabsichten so herfallen, weil sie bei seinen Vorgängern alles mitgemacht haben.
+Scheinbar sehen sie jetzt die Zeit gekommen, es den ‹Amis› so richtig zu zeigen. Es ist schon ein tolles Ding,
+wenn Präsident Trump in seinem politischen Ansatz beim russischen Präsidenten Putin mehr offene Bereitschaft
+findet als bei den angeblich ‹Verbündeten›. Das, was die Bundeskanzlerin in Sachen ‹Nation› zum ‹deutschen
+Volk› abgesondert hat, kann jeder Deutsche nur als ‹krank› bezeichnen. Es ist am Bundesverfassungsgericht, die
+Konsequenzen aus diesem ‹permanenten Unrecht à la Horst Seehofer› zu ziehen.
+_Die Meinung des Autors muss nicht mit dem Standpunkt der Redaktion übereinstimmen._
+_Quelle: https://de.sputniknews.com/kommentare/20170227314691181-merkel-deutsche-volk/_
+
+### Claus Kleber, Zdf-Chefideologe, Freund von Soros und Merkel, will uns nun die Bargeldabschaffung und den Hautchip schmackhaft machen
+
+**Die Bargeld-Abschaffung wird uns unseres letzten Stücks Freiheit und Autonomie berauben. Genau dies ist**
+**beabsichtigt.**
+Die Abschaffung des Bargelds dient nur einem: Dem Staat in dessen unendlicher Gier nach Geldern seiner Steuerzahler – und seinem Bedürfnis der totalen Überwachung und Kontrolle seiner Bürger.
+Noch gesteht Schäuble dem Bürger die Zahlung von 5000 Euro mit Bargeld zu. Alles darüber muss über die
+Bank gehen. Doch das ist ein Rattenfängertrick. Mit diesem kleinen Eingeständnis will Schäuble natürlich den
+Skeptikern gegen bargeldlosen Geldverkehr ein Stück entgegenkommen.
+Vorerst wenigstens. Denn ist die ganze Sache erstmal eingeführt und gesetzlich verschnürt, kann die Obergrenze
+jederzeit und beliebig nach unten gedrückt werden – bis hin zu Null Euro.
+Für den Bürger bedeutet die Abschaffung des Geldes den Verlust des letzten Stücks Freiheit, das er heute noch
+hat. Mit Bargeld kann sich jeder kaufen, was er möchte. Ohne dass die Behörden dies gleich mitbekommen.
+Genau dies ist ein Grundzug von Freiheit: Frei entscheiden und handeln zu können, ohne sich in jedem einzelnen Fall dafür rechtfertigen zu müssen.
+Kleber und seine Freunde im Berliner Politbüro wollen auch dies beenden.
+
+**Claus Kleber: Der hochbezahlte Volksverräter im Dienste Merkels, wirbt nicht nur für islamische (Anm. isla-**
+**mistische) Invasion, sondern nun auch für die Abschaffung des Bargeldes.**
+
+
+-----
+
+Für genügend Geld wirbt Kleber für alles: Nicht nur für die verbrecherische Politik Merkels, sondern nun auch
+für die Abschaffung des Bargelds.
+Ausgerechnet das linkeste und islamisierteste aller westlichen Länder, Schweden, führt der linke Chefideologe
+und Merkel-vertraute Claus Kleber – Jahresgehalt für seine permanenten Desinformationen und Dauerlügen:
+600000 Euro (ohne Zulagen) an, was die ‹Vorzüge› bargeldlosen Zahlungsverkehrs mittels eines Chip-Implantats
+in die Haut gewährt.
+Bargeldloses Geld könne nicht verbrennen oder geklaut werden, so Kleber – und bewegt sich mit dieser Ar gumentation auf Grundschulniveau.
+Denn er verschweigt, dass es sich sehr wohl ergeben kann –virtuell gleichsam ein Knopfdruck der Bundesregierung
+– und das Konto ist leer. Begründungen dazu wird's immer geben (Staatsnotstand, Steuerschuld des Betreffenden, politisch missliebige Person etc. etc).
+Und gestohlen kann es auch werden. Der Diebstahl wird nur wesentlich schmerzhafter. Skrupellose werden
+nicht zögern, diesen Geldchip aus dem Körper des Überfallenen herauszuschneiden. Dann sind sie im Besitz
+all seines Geldvermögens, und nicht nur jenes Bargelds, das sie vorher in seiner Brieftasche fanden.
+Kleber und Konsorten sind die publizistische Vorhut für die Islamisierung Deutschlands, für die Politik der dazu
+nötigen Abschaffung der Aussengrenzen Deutschlands – und – auch dies zählt zum perfiden Plan der NWO –
+des total gläsernen Bürgers. Denn dieser gibt den Behörden nicht mehr länger nur sein exaktes Bewegungsprofil,
+welches er über sein Handy hinterlässt, sondern dazu kommen bald auch – wenn dieser teuflische Plan durchgesetzt werden sollte – sein exaktes Zahlungsprofil. Der Staat weiss ab sofort zu jeder beliebigen Zeit, wie viel
+Geld ein x-beliebiger Staatsbürger besitzt, auf welchen Banken dieses Geld ruht, welche Kauf-Vorlieben er hat
+– und ob er seine Steuern auch tatsächlich ehrlich gezahlt hat.
+_Quelle: https://michael-mannheimer.net/2017/02/28/claus-kleber-zdf-chefideologe-freund-von-soros-und-merkel-will-uns-_
+_nun-die-bargeldabschaffung-und-den-hautchip-schmackhaft-machen/_
+
+### Leserbrief
+_20.01.2017 - 00:20 Uhr; Reuss Wolfgang, Chur_
+
+### Macht mehr Kinder?
+Südostschweiz titelt 17.1.2017: ‹Churer, macht mehr Kinder›
+_http://www.suedostschweiz.ch/panorama/2017-01-17/churer-macht-kinder_
+Bluewin.ch titelt (19.1.2017): ‹Arktis-Eis schmilzt dramatisch›
+_https://www.bluewin.ch/de/news/wissen---technik/2017/1/19/arktis-eis-sc…_
+2016 sei für das Klima ein Schreckensjahr gewesen – und das, obwohl das Pariser Klimaabkommen in Kraft trat.
+«Wenn in vielen Teilen der Welt Nationalpopulisten lauter werden, die sich nicht mehr für wissenschaftliche
+Fakten interessieren, dann ist das ein Worst-Case-Szenario», sagte Schellnhuber. «Vielleicht verlieren wir dadurch zehn wertvolle Jahre beim Klimaschutz. Wir haben aber nur noch 20 bis 30 Jahre Zeit, um die Welt zu dekarbonisieren, also Energie ohne Verbrennung von Öl, Gas und Kohle zu gewinnen, wenn wir die gemeinsamen
+Ziele von Paris einhalten wollen.»
+Einerseits prognostiziert die OECD eine Verdreifachung der LKW-Flut in Europa (obwohl die WHO feststellte,
+dass Dieselabgase so krebserregend sind wie Asbest). Andererseits steht im Buch ‹Die Klimawende› (Tim
+Flannery), dass – wenn wir so weitermachen wie bisher, also sogar ohne Verdreifachung etc. – bis 2050 sich die
+Erde-Durchschnittstemperatur um 4 Grad erwärmen würde: Der Meeresspiegel stiege um 67 Meter, alles Eis
+auf der Erde würde abschmelzen! Flannery fordert einen totalen Verzicht auf fossile Brennstoffe.
+Zitat Papst: «Die Welt steht an der Schwelle zum Selbstmord.»
+_https://www.youtube.com/watch?v=OAK36SuxZ5s_
+_https://www.youtube.com/watch?v=SNdO7pUMrtA_
+_https://www.youtube.com/watch?v=f3gDBEtZUwE_
+Die Chemikalienzusätze in Benzin/Diesel/Kerosin etc., die Nanopartikel-Feinstheit stellen heute eine noch
+grössere Gesundheitsgefahr (z.B. Herzkreislauf, COPD/Asthma) dar.
+Bereits etwa die Hälfte der Bevölkerung hat Krebs oder wird ihn haben im Laufe ihres Lebens (es ist nicht nur
+David Bowie), Tendenz steigend.
+_Quelle: http://www.suedostschweiz.ch/leserbriefe/2017-01-20/macht-mehr-kinder_
+
+
+-----
+
+### HAARP offiziell reaktiviert – Uni startet erneut umstrittene Ionosphärenexperimente mit fadenscheiniger Begründung
+_Andreas Müller; Grenzwissenschaft aktuell; Di, 28 Feb 2017 18:26 UTC_
+
+_© Michael Kleiman / US Air Force / Gemeinfrei_
+_Das Antennenfeld von HAARP-Anlage nahe Gekona in Alaska._
+
+_Gekona (USA) – Die Antennenanlage des High Frequency Active Auroral Research Program – kurz HAARP – in_
+_Alaska gehört wohl zu den unter Verschwörungstheoretikern meist umstrittenen technologischen Anlagen weltweit._
+_Während die Betreiber immer wieder auf die rein wissenschaftliche Natur der Experimente verwiesen haben, unter -_
+_stellen Kritiker gezielte Atmosphären- und Wetter- bis hin zur globalen Gedankenmanipulation und das Erzeugen_
+_von Naturkatastrophen. Nachdem die Anlage 2014 ausser Betrieb gesetzt wurde, haben die HAARP-Betreiber nun_
+_mit neuen Ionosphärenexperimenten begonnen._
+Einst von der Air Force betrieben, wurde die Anlage 2014 vom geophysischen Institut an der University of Alaska
+Fairbanks (UAF) übernommen, aber auch weiterhin u.a. vom US-Militär und dessen Entwicklungseinheit, der
+Defense Advanced Research Projects Agency (DARPA) mitfinanziert und -genutzt. Nicht zuletzt letzterer Umstand sorgte und sorgt immer wieder für Bedenken und eine Vielzahl an Theorien über den absichtlichen oder
+auch unbeabsichtigten Missbrauch der die Ionosphäre manipulierenden und aufheizenden Anlage.
+Offiziell sollte HAARP, neben der Erforschung der Ionosphäre, in dieser radiowellenreflektierendes Plasma erzeugen, um so die irdische Radiokommunikation zu verbessern oder feindliche Kommunikation zu stören.
+Nachdem die Forschungsarbeiten spätestens 2015 offiziell ausgesetzt wurden, seien die Antennen und Instrumente zwei Jahre lang überholt und erneuert worden, um nun wieder die elektrisch geladene Schicht der oberen
+Atmosphäre, die sogenannte Ionosphäre, zu stimulieren, so eine Sprecherin der Universität.
+**«Ziel eines der anstehenden Projekte ist die Erzeugung künstlicher Nordlichter», erläutert die Universitäts -**
+sprecherin Sue Mitchell und führt weiter aus:
+«Das Ergebnis wird zwar nicht mit blossem Auge, dafür aber für spezielle Kameras sichtbar sein. Zudem wird
+die Fähigkeit der HAARP-Anlage für neuste Radar-Anwendungen und neue Möglichkeiten getestet, das Schelf eis auf dem Arktischen Ozean mittels Signalreflexionen zu beobachten und zu vermessen.»
+Die Anlage stehe Wissenschaftlern im Umlageverfahren zur Verfügung und werde aufgrund der hohen Betriebskosten von rund 5000 Dollar pro Stunde zunächst nur jeweils einen Tag lang in Betrieb sein. Die meisten Kosten
+entstünden dabei durch die die Anlage mit Energie versorgenden Generatoren.
+Im Betrieb ist das Antennenfeld in der Lage, Signale mit 3,6 Megawatt Leistung über 180 Antennen, Radiowellen
+in die Ionosphäre (also in 80 bis knapp 1000 Kilometer Höhe) zu senden. Um der Öffentlichkeit die Sorge angesichts der durchgeführten Experimente zu nehmen und auch den zahlreichen Verschwörungstheorien entgegen zu treten, können jegliche Vorgänge auch auf der Facebook-Seite der HAARP-Anlage verfolgt werden:
+«HAARP ist eine ganz fantastische Forschungsanlage», so Mitchell abschliessend. «Sie ist zwar zu nichts von
+dem in der Lage, was ihr unterstellt wird, dafür aber ein wirklich interessantes und mächtiges Werkzeug für
+Forschung und Wissenschaft.»
+Die aktuellen HAARP-Forschungsprojekte, an denen Wissenschaftler der University of Fairbanks beteiligt sind,
+werden von der US-amerikanischen ‹National Science Foundation›, dem ‹Los Alamos National Laboratory› der
+US-Regierung und dem gemeinsam von der United States Navy und dem United States Marine Corps be triebenen Naval Research Laboratory finanziert …
+_Quelle: https://de.sott.net/article/28455-HAARP-offiziell-reaktiviert-Uni-startet-erneut-umstrittene-Ionospharenexperimen-_
+_te-mit-fadenscheiniger-Begrundung_
+
+
+-----
+
+_17:14 28.02.2017(aktualisiert 18:06 28.02.2017)_
+**Ein Exodus reicher Menschen: Laut einer Studie der südafrikanischen Beratungsgesellschaft ‹New World**
+**Wealth› haben in den vergangenen zwei Jahren tausende Millionäre Deutschland und Frankreich den Rücken**
+**gekehrt. Darüber berichtet das ‹Manager Magazin›.**
+Demnach hätten im vergangenen Jahr rund 4000 Menschen Deutschland verlassen, die jeweils über ein Ver mögen von über einer Million Dollar (etwa 950000 Euro) verfügen. Im Vorjahr seien es nur 1000 gewesen.
+Eine rekordhohe Migration sei dabei in Frankreich verzeichnet worden: So hätten 2016 12000 und im Vorjahr
+10000 Millionäre dieses Land verlassen. Zu den Gründen für die Ausreise gehören der Studie zufolge unter
+anderem auch ‹religiöse Spannungen›. In Deutschland seien es zunehmende Spannungen in der Gesellschaft,
+die reiche Menschen zur Ausreise zwingen würden.
+«Nach Ansicht der Studienautoren ist die Abwanderung besonders reicher Menschen aus einem Land ein alarmierendes Zeichen, denn diese Klientel sei bei grösseren Migrationsbewegungen aufgrund der hohen persönlichen
+Flexibilität häufig die erste, die gehe», schreibt das ‹Manager Magazin›.
+Ausserdem würden mit der Migration der Millionäre viele Menschen ihre Jobs in deren Unternehmen verlieren.
+Insgesamt hätten weltweit mehr als 82000 reiche Menschen das Land verlassen, in dem sie davor gelebt haben.
+Im Jahr zuvor seien es 64000 gewesen. Das beliebteste Ziel sei Australien, gefolgt von den USA, Kanada, den
+Vereinigten Arabischen Emiraten und Neuseeland. Bei Deutschen seien ebenfalls Australien, Kanada sowie
+Monaco beliebt.
+Für die Studie seien mehrere hundert Millionäre sowie Migrationsexperten, Vermögensberater und Immobilien makler befragt sowie Visa-Statistiken, Immobilienregister und Medienberichte ausgewertet worden.
+
+Mehr Statistiken finden Sie bei Statista.
+_Quelle: https://de.sputniknews.com/wirtschaft/20170228314715154-millionaere-verlassen-deutschland/_
+
+### Totalitarismus: Der Feind sind wir
+_28. Februar 2017_
+Der Feind ist nicht Russland. Der Feind ist auch nicht der Islamische Staat (Anm. Islamistische Staat) oder irgendeine andere, selbstgezüchtete Terrororganisation. Der Feind sind wir – die Bürger und einfachen Menschen.
+Während uns Politik und Staatsorgane vorgaukeln,
+– dass jedwede Zunahme von Kontrolle und Überwachung,
+– dass ganze Armadas an neuen Videokameras in allen Ecken der Öffentlichkeit,
+
+
+-----
+
+– dass die Datensammelwut aka (Anm. auch bekannt als) Vorratsdatenspeicherung und
+– dass die immer weiter zunehmenden Zensurmassnahmen auf sozialen Plattformen
+nur unserem Schutz dienen, geht es allein um den Machterhalt einer kleinen, elitären Gruppe, die uns, den
+Bürger, als Gefahr für ihr eigenes Fortbestehen sieht.
+Der neueste Auswuchs dieser Massenkontrolle und -überwachung wird gerade in den USA implementiert. So
+will man dort Iris-Scanner an Flughäfen als Teil der Sicherheitskontrollen einsetzen. Dass es dabei nicht um
+irgendwelche Terroristen geht, dürfte jedem halbwegs intelligenten Menschen klar sein. Vielmehr wollen die
+Regierungen damit erreichen, dass wir eine weitere Verschärfung der Kontrollmechanismen und eine weitere
+Beschneidung der eigenen Persönlichkeitsrechte ungefragt und kritiklos akzeptieren. Es soll eine Konditionierung darauf erfolgen, dass wir die ‹Regeln und Vorgaben›, die (an) uns gestellt werden, nicht mehr hinterfragen.
+Schliesslich dient auch diese Massnahme doch nur unserem eigenen Schutz.
+Ben Franklin sagte einst, dass derjenige, der bereit ist, seine Freiheit aufzugeben, um dafür ein Stück Sicherheit
+einzutauschen, am Ende beides verlieren wird. Genau dort stehen wir heute. Gesetze wie der ‹Patriot Act›
+wurden nicht von heute auf morgen verfasst, sondern sie lagen fertig in der Schublade eines gewissen Joe Biden,
+Ex-Vizepräsident der USA. Die Blaupause für die US-Heimatschutzbehörde wurde Mitte der 1990er in der Ära
+von Bill ‹Slick Willy› Clinton geschrieben. Zufall oder Vorauswissen?
+Orwells Dystopie 1984 oder auch ‹Animal Farm› sind wahre Fundgruben, wenn man einmal die heutige Realität
+mit der Fiktion des Autors vergleicht. Zufall oder Vorauswissen? Wenn man weiss, dass George Orwell den ‹Fabianern› mehr als nahe stand (wenn er nicht sogar Mitglied war), wird diese Frage sogar noch interessanter.
+George Orwell, Ayn Rand oder Aldous Huxley beschrieben in ihren Büchern eine totalitäre Welt, in der die
+Reichtümer von denjenigen konfisziert werden, die die Macht dazu haben, und in der Technologien eingesetzt
+werden, um das Privatleben der Menschen vollständig zu durchleuchten. Dabei wird ganz geschickt der oft malige Nutzen der Technik über den gleichzeitigen Verlust unserer Rechte und Freiheiten gestellt. Zufall oder
+Vorauswissen?
+Aber der wohl wichtigste ‹Kontrollansatz› ist derjenige, der sich um das Geldsystem ‹kümmert›. Schon Mayer
+Amschel Rothschild sagte:
+Gebt mir die Kontrolle über die Währung einer Nation, und es ist mir egal, wer die Gesetze schreibt.
+Und ein paar nicht gewählte ‹Beamte/Offizielle› eines Schlages Mario Draghi, die wiederum an den Fäden unserer altbekannten Strippenzieher hängen, tun genau das: Sie kontrollieren im Auftrag anderer unser Geld system und nutzen es als Werkzeug, um Vermögen zu konfiszieren – am Anfang unbemerkt und schleichend,
+aber in zunehmendem Masse offen und immer fordernder.
+Doch solange die Menschen nicht endlich erkennen, dass sie in diesem ‹Spiel nur die Bauern auf dem Schachbrett› sind, so lange werden die Herrschenden weiter effektiv ihre Ziele verfolgen können und aus dem Hintergrund heraus ihre Macht festigen. Doch leider scheint es so zu sein, wie es Prof. Rainer Mausfeld in seinem
+erneut richtungsweisenden Vortrag ‹Die Angst der Machteliten vor dem Volk› darlegte: Die Menschen sind
+heute einfach nicht mehr in der Lage, ihr eigenes Gefängnis zu erkennen, in das sie sich freiwillig begeben haben.
+_Quellen:_
+_Deep State’s Message: Prepare For Totalitarianism_
+_Welcome Aboard, But First US Marshals Will Scan Your Retina_
+_Carroll Quigley’s Conspiracy Theory: The Milner Group_
+_Science Fiction and the Hidden Global Agenda by Carl James_
+_Zitate zur Neuen Weltordnung_
+_Prof. Rainer Mausfeld: Die Angst der Machteliten vor dem Volk_
+_Quelle: https://www.konjunktion.info/2017/02/totalitarismus-der-feind-sind-wir/_
+
+### In 100 Tagen: 7 tote hohe russische Beamte und Diplomaten – Nur Zufall?
+_russland.news; Mi, 01 Mär 2017 08:02 UTC_
+Spätestens mit dem Tod des russischen Spitzendiplomaten Witaly Tschurkin fragen sich internationale Medien,
+was von der unheimlichen Serie nicht geklärter Todesfälle regierungsfreundlicher Politiker aus Russland zu
+halten ist. Die Suche nach einem Muster hinter den angehäuften ‹Herzproblemen› ergab bisher keine relevanten
+Deutungen. Hier die Fakten:
+
+
+-----
+
+_© Sputnik/ Eduard Pesov_
+
+Zeitleiste von Todesfällen in den letzten vier Monaten:
+**8. November 2016**
+Am Morgen des US-Wahltages wurde der russische Diplomat Sergej Kriwow (63) bewusstlos auf dem Fuss boden des russischen Konsulats in New York mit einer Kopfverletzung aufgefunden. Zuerst hiess es, Herr
+Kriwow sei vom Dach gefallen. Später erklärte die russische Botschaft, er sei an einem Herzinfarkt gestorben.
+BuzzFeed berichtete, dass drei Monate später die Verfasser des Obduktionsberichts immer noch unsicher sind,
+wie er genau gestorben ist. Kriwow soll in der Botschaft in New York für Gegenspionage zuständig gewesen sein.
+
+**19. Dezember 2016**
+Russlands Botschafter in der Türkei, Andrej Karlow (62), wurde auf einer Fotoausstellung in Ankara ermordet.
+Dem Diplomaten wurde während seiner Eröffnungsrede von einem türkischen Polizisten in den Rücken geschossen.
+An demselben Tag wurde der Diplomat Peter Polschikow (56) in seiner Moskauer Wohnung erschossen. Man
+fand die Tatwaffe vor Ort, aber die genauen Umstände seines Todes werden noch untersucht. Polschikow
+arbeitete im russischen Aussenministerium in der Südamerika-Abteilung.
+
+**26. Dezember 2016**
+Ex-KGB Chef Oleg Erowinkin (61) wurde am zweiten Weihnachtsfeiertag tot hinter seinem Auto in Moskau
+gefunden. Medienberichten zufolge, ging man ursprünglich von einem Mord aus. Später hiess es, er sei an
+einem Herzinfarkt gestorben. Erowinkin wird mit dem ehemaligen englischen MI 6-Spion Christopher Steele
+in Zusammenhang gebracht. Steele ist der Verfasser des umstrittenen Trump-Dossiers.
+
+**9. Januar 2017**
+Der russische Konsul in Athen, Andrej Malanin (55), wurde von einem Botschaftsmitarbeiter tot auf dem Badezimmerboden seiner Wohnung gefunden. Die griechische Polizei fand «keine Beweise für einen Einbruch».
+Weitere Untersuchungen dauern an. Malanin arbeitete in Athen während einer Zeit von sich verbessernden
+Beziehungen zwischen Griechenland und Russland, als Griechenland von der EU und NATO zunehmend
+kritisiert wurde.
+
+**27. Januar 2017**
+Russlands Botschafter in Indien, Alexander Kadakin (67), ist gemäss der indischen Zeitung The Hindi nach
+einer ‹kurzen Krankheit› gestorben. Er solle sich schon seit ein paar Wochen unwohl gefühlt haben. Laut Reuters
+soll Kadakin an einem Herzversagen gestorben sein. Weitere Details seien nicht bekannt.
+
+**20. Februar 2017**
+Russlands UN-Botschafter, Witaly Tschurkin (64) verstarb in New York plötzlich an Herzversagen. Ein den Fall
+prüfender Mediziner hat allerdings vorgeschlagen, einen Vergiftungstest durchzuführen.
+Bereits im November 2015 war Michail Lesin, einer der Gründungsväter der russischen Mediengruppe RT, in
+einem Washingtoner Hotelzimmer mit bisher ungeklärter Todesursache ums Leben gekommen.
+_Quelle: https://de.sott.net/article/28460-In-100-Tagen-7-Tote-hohe-russische-Beamte-und-Diplomaten-Nur-Zufall_
+
+
+-----
+
+### Philologenverband rechnet mit ‹starken Integrationsproblemen› in Schulen
+_Epoch Times; Aktualisiert: 2. März 2017 20:27_
+Es ist mit ‹starken Integrationsproblemen› in Deutschlands Schulen zu rechnen. Der Deutsche Philologen verband bezeichnet den ‹Chancenspiegel 2017› der Bertelsmann-Stiftung als ein ‹Alarmzeichen›.
+Der Deutsche Philologenverband rechnet mit ‹starken Integrationsproblemen› in Deutschlands Schulen. Der
+‹Chancenspiegel 2017› der Bertelsmann-Stiftung sei ein ‹Alarmzeichen›, sagte Verbandschef Heinz-Peter
+Meidinger der ‹Neuen Osnabrücker Zeitung› (Donnerstag).
+«Die Studie hat gezeigt, dass die Schulabbruchquoten bei Kindern mit Migrationshintergrund wieder steigen»,
+erklärte Meidinger, der 90000 Gymnasiallehrer vertritt.
+Er rief Bund und Länder dazu auf, diesem ‹besorgniserregenden Trend› entgegenzuwirken. Während laut
+‹Chancenspiegel› der Anteil aller Schüler ohne Abschluss weiter abgenommen hat, ist der der Ausländer wieder
+leicht auf 12,9 Prozent angestiegen.
+«Die Politik glaubt, mit der Neubildung von Tausenden von Klassen und der Einstellung von 13000 Lehrkräften
+ihre Hausaufgaben gemacht zu haben, und auch in der Öffentlichkeit spielt das Thema nicht mehr die Rolle
+wie vor einem Jahr», kritisierte der Vorsitzende des Philologenverbands.
+Vor Ort zeige sich aber, dass jetzt bei der zweiten Stufe der Integration, der Überführung der Kinder aus Willkommens-, Sprachlern- und Übergangsklassen in Regelschulen, massive Probleme und Defizite zu verzeichnen
+seien. «Grundsätzlich gibt es für diese Mammutaufgabe zu wenig staatliche Unterstützung», betonte der Verbandschef.
+Meidinger nannte es ferner ‹inakzeptabel›, dass Zukunftschancen von Schülern nach wie vor von der bildungspolitischen Leistungsfähigkeit der einzelnen Bundesländer abhängig seien. Zum in der Bertelsmann-Studie
+erneut festgestellten starken Zusammenhang zwischen Elternhaus und Bildungserfolg meinte Meidinger: «Eine
+generelle Entkopplung wird durch staatliche Massnahmen nie erreichbar sein.» (dts)
+_Quelle:_ _http://www.epochtimes.de/politik/deutschland/philologenverband-rechnet-mit-starken-integrationsproblemen-in-_
+_schulen-a2060832.html_
+
+### Planet Neun: Weitere Analyse spricht für unbekannten Felsplaneten im Sonnensystem
+_Andreas Müller; Grenzwissenschaft Aktuell; Sa, 25 Feb 2017 06:53 UTC_
+Erstmals haben Astronomen nicht nur die dynamischen Eigenschaften zweier extremer transneptunischer
+Asteroiden untersucht, sondern mittels einer spektrografischen Analyse auch deren Zusammensetzung. Dabei
+haben sie festgestellt, dass sie einst gemeinsam ein binäres Asteroidensystem gebildet haben, sich aber seither
+voneinander entfernen. **Das wiederum ist ein weiterer Beleg für die Existenz eines weiteren bereits zuvor**
+**mathematisch postulierten, bislang aber immer noch nicht direkt nachgewiesenen grossen Felsplaneten (Planet**
+**Nine) in unserem Sonnensystem.**
+
+_© CC0 (via Wikimedia Commons)_
+_Die Bahnen von sechs transneptunischen Objekten gemeinsam mit der vermuteten Umlaufbahn von Planet Nine_
+
+Santa Cruz de Tenerife (Spanien) – Im Jahr 2000 wurde das erste einer neuen Klasse sonnenferner Objekte im
+Sonnensystem entdeckt, wie sie die Sonne noch deutlich jenseits der Umlaufbahn des Neptun umkreisen –
+sogenannte transneptunische Objekte (TNOs). Während die Erde die Sonne mit einer Distanz von einer Astronomischen Einheit (AE/AU = ca. 150 Millionen Kilometer) und der einst äusserste Planet Pluto auf 40 AE
+umkreisen, umrunden TNOs die Sonne in einer Entfernung von mehr als 150 AE. Insgesamt wurden bislang
+**21 ETNOs entdeckt.**
+Da alle TNOs jedoch derart weit von der Sonne entfernt sind, dass sie nur noch wenig Licht von dieser erhalten,
+
+
+-----
+
+wurde von den 21 bekannten TNOs bislang lediglich der vergleichsweise grosse Zwergplanet Sedna spektro skopisch auf seine Zusammensetzung hin untersucht.
+Jetzt jedoch hat ein Team um Julia de León vom Instituto de Astrofísica de Canarias (IAC) gemeinsam mit
+Kollegen der Complutense University of Madrid den ersten Schritt hin zur physikalischen Beschreibung dieser
+Körper getan, um auch auf diesem Weg die Planet-Nine-Hypothese zu überprüfen.
+Hierzu haben die Wissenschaftler die erste spektroskopische Beobachtung der TNOs ‹2004 VN112› und ‹2013
+RF98› vorgelegt und im Fachjournal ‹Monthly Notices of the Royal Astronomical Society› (DOI: 10.1093/mnrasl/slx003) veröffentlicht. «Beide Objekte sind schon aus dynamischer Sicht interessant, weil ihre Umlauf bahnen nahezu identisch sind und sich die Pole ihrer Orbits nur durch sehr kleine Winkel voneinander unterscheiden.»
+Schon diese Beobachtung lege ebenso einen gemeinsamen Ursprung der beiden Objekte nahe wie, dass ihre
+heutigen Umlaufbahnen das Ergebnis einer einstigen Wechselwirkung mit dem (derzeit noch) hypothetischen
+‹Planet Nine› (P9) sind. «Vermutlich bildeten die beiden Objekte früher einmal einen binären Asteroiden,
+haben sich aber nach einer Begegnung mit einem Planeten jenseits der Bahn des Pluto getrennt.»
+
+_© Julia de León (IAC)_
+_Die sichtbaren Spektren der extremen transneptunischen Objekte ‹2004 VN112› und ‹2013 RF98›._
+
+Auch die anhand der spektroskopischen Analyse bestimmten Werte der Zusammensetzung der beiden Körper
+bestätigen diese Vermutung – sind doch auch sie nahezu identisch, gleichen zudem jenen der Objekte ‹2000
+CR105› und ‹2012 VP113› –, unterscheiden sich jedoch von jenen von Sedna. Tatsächlich gehen Astronomen
+davon aus, dass sich Sedna von anderen ETNOs unterscheiden sollte, da ihr Ursprung im inneren Teil der
+Oorthschen Wolke vermutet wird.
+Anhand von Simulationen gehen de León und Kollegen davon aus, dass der die beiden Asteroiden einst voneinander entfernte Planet eine Masse von 10–20 Erdenmassen aufweist, die Sonne in einem Abstand von 300
+bis 600 EA umkreist und die Nahebegegnung der beiden Objekte mit diesem ‹Planet Nine› sich vor 5 bis 10
+Millionen Jahren ereignet hatte.
+_Quelle: https://de.sott.net/article/28407-Planet-Neun-Weitere-Analyse-spricht-fur-unbekannten-Felsplaneten-im-Sonnensystem_
+
+### Es brodelt unter den USA: Eine Anomalie der Grösse Mexikos bedroht das Weltklima
+_27.02.2017 • 07:02 Uhr_
+Eine Studie ergab, dass es unter der Erde des westlichen Teils der USA eine tickende Zeitbombe gibt. Auf einer
+Fläche der Grösse Mexikos befindet sich ein hohes Kohlenmonoxid-Vorkommen, das bei Austritt das Erd klima
+dauerhaft verändern würde.
+Eine Studie von Geologen der Royal Holloway Universität London ergab, dass es nicht nur auf der Oberfläche
+des geteilten Amerikas seit der Wahl Trumps, sondern auch unter der Erde des westlichen Teils der USA brodelt.
+Auf einer Fläche von 1,8 Millionen Quadratmetern in 350 Kilometern Tiefe liegt – eine tickende Zeitbombe.
+Insgesamt 100 Billionen Tonnen Kohlenstoff schlummern unter dem westlichen Teil der USA und könnten
+durch Vulkane zutage gebracht werden.
+Zum Vergleich: Im Jahre 2011 belief sich der globale Ausstoss an Kohlenmonoxid auf zehn Milliarden Tonnen.
+Träte der Kohlenstoff an die Oberfläche, so hätte dies nach Ansicht von Forschern verheerende Auswirkungen
+auf das Erdklima und würde zu einer globalen Erderwärmung führen. Gelangte auch nur ein Prozent des
+
+
+-----
+
+Kohlenstoff-Vorkommens in die Atmosphäre, käme dies dem Verbrennen von 2,3 Milliarden Tonnen Öl gleich.
+In den USA gibt es 65 Vulkane, von denen zwölf als bedrohlich eingestuft sind. Ein nennenswerter davon, der
+innerhalb des Kohlenstoff-Reservoir-Gebiets liegt, ist der Yellowstone-Supervulkan. Im April 2010 erlebte die
+Gegend rund um den Vulkan 117 geringfügige Erdbeben, die allesamt durch die Aktivitäten des Supervulkans
+verursacht wurden.
+Ein Ausbruch dieses oder eines anderen Vulkans könnte auch ein Erdbeben auslösen. Zusammen mit dem
+explosiven Gemisch unter Tage könnte dies eine Kettenreaktion verursachen. So wie in Istanbul oder Tokio ist
+auch in Kalifornien jederzeit mit einem Mega-Erdbeben zu rechnen.
+Zwar sind die Nuklearanlagen dort erdbebensicher gebaut, aber einem Mega-Erdbeben oder einem Tsunami
+wie vor der japanischen Küste im März 2011 würden sie nicht standhalten können. Bis zum Jahr 2025 soll
+Diablo Canyon, die letzte Atomanlage in Kaliforniens Erdbeben-Risikogebiet, ihre Tore schliessen. Im Film
+‹San Andreas› wird in Hollywood-Manier inszeniert, was Realität werden könnte, sollte sich ein Mega-Erd beben in Kalifornien ereignen. Die Fantasie der Drehbuchautoren hinkt aber den jüngsten Forschungsergebnis sen zufolge der möglichen Realität hinterher.
+_Quelle: https://deutsch.rt.com/nordamerika/46901-es-brodelt-unter-usa-anomalie-entdeckt-katastrophengefahr/_
+
+### 2018: SpaceX will erste Touristen zum Mond schicken
+_RT Deutsch; Di, 28 Feb 2017 07:40 UTC_
+_Die ersten zwei Weltalltouristen sollen Ende 2018 den Mond umfliegen. Damit rechnet das private US-amerikanische_
+_Raumschiffunternehmen SpaceX. In einer Pressemitteilung des Konzerns wird betont, dass die Touristen Ende des_
+_laufenden Jahres medizinisch untersucht werden sowie Fitness-Tests ablegen sollen. Der Flug soll mithilfe einer be-_
+_mannten Version des Raumschiffes Dragon absolviert werden._
+Am 22. Februar hatte die US-amerikanische Raumfahrtbehörde NASA sieben Exoplaneten um den Roten
+Zwerg Trappist-1 entdeckt. Das Zwergsternsystem selbst liegt im Sternbild Wassermann, 39 Lichtjahre von
+unserem Planeten entfernt. Die Exoplaneten sind fast so gross wie die Erde. Sie liegen in einer moderaten Temperaturzone, in der Wasser flüssig sein kann, was eine Voraussetzung für das bisher bekannte Leben ist. Drei der
+Exoplaneten haben sogar erdähnliche Atmosphären.
+Die NASA hat auf ihrer Pressekonferenz neue Erkenntnisse zu Exoplaneten präsentiert. Das sind Himmels körper, die andere Sterne als unsere Sonne umkreisen. Laut NASA sind bisher 3449 Exoplaneten bekannt, von
+denen 348 als erdähnlich klassifiziert werden.
+_Quelle: https://de.sott.net/article/28446-2018-SpaceX-will-erste-Touristen-zum-Mond-schicken_
+
+### Zwei Jahre früher: Trumps Regierung will Mondmission vorverlegen
+_Fernando Calvo; Terra Mystica; Di, 28 Feb 2017 07:36 UTC_
+Die NASA führt nach eigenen Angaben eine Machbarkeitsstudie durch, die Auskunft darüber geben soll, in wieweit man den ersten bemannten Flug zum Mond mit der neuen ‹Orion›-Raumkapsel um zwei Jahre vorverlegen könnte.
+Auf Anweisung der neuen US-Regierung soll geprüft werden, ob der Start des ersten unbemannten Testflugs
+mit der ‹Orion›-Raumkapsel vorverlegt werden könnte. Eigentlich war diese Mission erst für Ende 2018 geplant
+und sollte den ersten Flug mit einer Besatzung für August 2021 vorbereiten, doch scheinbar will Präsident
+**Donald Trump auch bei der Raumfahrtbehörde einiges ändern. Bill Gerstenmaier von der NASA: «Wir stehen**
+nicht unter Druck, dies tun zu müssen. Ich finde es aber ermutigend, dass wir um diese Machbarkeitsstudie
+**gebeten wurden.» Jetzt will die NASA den gewünschten Bericht bis etwa Mitte März fertigstellen und darin**
+Stellung dazu nehmen, ob man nicht vielleicht tatsächlich sogar schon Mitte 2019 zwei Astronauten für eine
+acht- oder neuntägige Mission in die Umlaufbahn des Mond bringen könnte.
+Das würde aber in etwa der Apollo 8-Mission aus dem Jahre 1968 entsprechen, die hauptsächlich dazu diente,
+die erste Mondlandung vom 20. Juli 1969 vorzubereiten. Sollten wir aber knapp 50 Jahre später nicht eigentlich
+**technisch viel weiter sein und voraussetzen dürfen, dass wir die Erfahrungswerte der früheren bemannten**
+**Mondmissionen nicht nur heute anwenden können, sondern auch modifiziert haben müssten?**
+
+
+-----
+
+**Es wird der Eindruck erweckt, dass die bemannte menschliche Raumfahrt wieder bei Null anfängt, und so**
+verwundert es nicht, dass die alten Mondlandungen von vielen Menschen angezweifelt werden.
+_Quelle: https://de.sott.net/article/28447-Zwei-Jahre-fruher-Trumps-Regierung-will-Mondmission-vorverlegen_
+
+### Neue Erkenntnisse: Irdischer Wasserkreislauf reicht deutlich tiefer als bisher gedacht
+_Andreas Müller; Grenzwissenschaft aktuell; Mi, 01 Mär 2017 16:31 UTC_
+_Kiel (Deutschland) – Grosse Wassermengen finden sich nicht nur auf der Erdoberfläche, sondern auch tief im Innern_
+_unseres Planeten. Uneins sind sich Wissenschaftler hingegen über die Herkunft des innerirdischen Wassers. Neue_
+_Erkenntnisse belegen nun, dass der irdische Wasserkreislauf sehr viel tiefer reicht, als bislang gedacht und könnten_
+_der Diskussion über die Entstehung der Ozeane neue Impulse verleihen._
+«Die Erde ist in vielerlei Hinsicht einzigartig unter den Planeten des Sonnensystems», erläutert die Presse mitteilung des GEOMAR Helmholtz-Zentrum für Ozeanforschung und führt dazu weiter aus: «Die wohl auffälligste Eigenheit sind die gewaltigen Mengen an Wasser, die heute immerhin 70 Prozent der Erdoberfläche
+bedecken. Auch Tausende von Kilometern unterhalb der Erdoberfläche, im Erdmantel, kommt noch Wasser
+vor. Es ist jedoch umstritten, wie es dorthin gelangte. Existiert es dort seit der frühesten Erdgeschichte? Oder
+gelangt noch immer Wasser von der Oberfläche bis in tiefe Bereiche des Erdmantels?»
+Wie ein internationales Wissenschaftsteam mit Beteiligung des GEOMAR aktuell im Fachjournal ‹Nature
+Geoscience› (DOI: 10.1038/ngeo2902) berichtet, stützen die nun gefundenen Hinweise die zweite Annahme:
+«Letztendlich haben unsere Ergebnisse sogar das Potenzial, die Diskussion um den Ursprung der Ozeane neu
+zu beleben», sagt der Geologe Prof. Dr. Colin Devey vom GEOMAR und Koautor der Studie.
+In ihrer Studie haben Devey und Kollegen aus Australien, Frankreich und den USA zunächst versucht, «den
+Weg des Wassers im Erdinneren nachzuvollziehen». Tatsächlich sorgt die Plattentektonik fortwährend dafür,
+dass Meerwasser ins Erdinnere gelangt. «Wenn sich bei der sogenannten Subduktion eine ozeanische Erdplatte
+unter eine kontinentale schiebt, nimmt sie natürlich auch Wasser mit in die Tiefe», erklärt Devey. «Bisher ging
+man aber davon aus, dass dieses Wasser nur in die äusserste Erdhülle, die Kruste, eindringt und dann über
+Vulkane schnell wieder in die Atmosphäre zurückgelangt.»
+Zur Prüfung dieser These untersuchten die Forscher nun Magma- und Lavaproben, die während verschiedener
+Expeditionen der vergangenen Jahre rund um den Erdball gesammelt worden waren. Da diese Gesteine
+mindestens einmal den Weg durch das Erdinnere genommen haben, dabei aufgeschmolzen wurden und wieder
+zur Oberfläche gelangten, könne man anhand ihrer physikalischen Eigenschaften und chemischen Zusammensetzung ablesen, «was das Gestein auf seinem Weg im Erdinneren erlebt hat».
+Das Ergebnis der Analyse ergab, dass Meerwasser beim Abtauchen von Erdplatten durchaus grosse Tiefen
+erreicht. Die Geowissenschaftler fanden sogar Hinweise dafür, dass es bis zur Grenze von Erdmantel und Erdkern in 2500 Kilometer Tiefe gelangen kann.
+Dieses Ergebnis sei wiederum interessant für die fundamentalere Frage nach der Entstehung der Ozeane, so die
+Forscher: «Eine bisher verbreitete Forschungsmeinung ist, dass die Ozeane und die Atmosphäre sich im Laufe
+der frühen Erdgeschichte durch Entgasung des im Erdmantel vorhandenen Wassers bildeten. (…) Demnach
+hätte es für das Wasser nur eine Einbahnstrasse gegeben: Von innen nach aussen. Wir zeigen jetzt aber, dass eine
+Bewegung von aussen nach innen über die Subduktion stattfindet und offenbar einen Grossteil des Erdmantels
+beeinflusst hat», erläutert Professor Devey.
+Vor dem Hintergrund der neuen Erkenntnisse wäre es also auch möglich, «dass Kometen das Wasser erst relativ
+spät in der Erdgeschichte auf unseren Planeten gebracht haben und es dann nach und nach durch Subduktion
+nicht nur in die Erdkruste, sondern auch in den gesamten Erdmantel geknetet wurde». Zugleich geben die
+Autoren der Studie aber auch zu bedenken, dass diese noch keinen Beweis darstellen, in der Diskussion allerdings wieder ‹neue Möglichkeiten› eröffnen.
+_Quelle: https://de.sott.net/article/28466-Neue-Erkenntnisse-Irdischer-Wasserkreislauf-reicht-deutlich-tiefer-als-bisher-gedacht_
+
+
+-----
+
+### Mediziner messen ungewöhnliche Hirnaktivität mehr als 10 Minuten über den Tod hinaus
+_Andreas Müller; Grenzwissenschaft aktuell; Mi, 08 Mär 2017 15:09 UTC_
+_London (Kanada) – Ein Team kanadischer Intensivmediziner berichtet in einem aktuellen Fachartikel über un -_
+_gewöhnliche Beobachtungen am Beispiel eines Patienten, bei dem – obwohl bereits für klinisch tot erklärt – noch 10_
+_Minuten und 38 Sekunden lang beständige Hirnaktivität gemessen wurde, für die die Wissenschaftler keine Er-_
+_klärung finden konnten._
+Wie das Team um Loretta Norton von der University of Western Ontario aktuell im Fachjournal ‹The Canadian
+Journal of Neurological Sciences› (DOI: 10.1017/cjn.2016.309) berichtet, zeigten sich bei einem der vier untersuchten Patienten noch mehr als 10 Minuten lang sogenannte Delta-Wellen-Ausbrüche, also Gehirnaktivität,
+wie wir sie eigentlich im Tiefschlaf erleben. Zugleich unterstreichen die Mediziner den Unterschied der ge **messenen Hirnaktivität zum bekannten Phänomen der sogenannten plötzlichen ‹Todes-Welle›, wie sie bei-**
+**spielsweise noch bei geköpften Ratten mehr als eine Minute nach dem Tod gemessen werden konnte.**
+In den anderen drei untersuchten und dokumentierten Fällen zeigten die EEG-Scans kaum Übereinstimmungen zwischen dem Zeitraum von 30 Minuten vor und 5 Minuten nach dem festgestellten Todeszeitpunkt, wenn
+die Sterbenden schon vor dem eigentlichen Todeszeitpunkt das Bewusstsein verlieren.
+
+_© Norton et al. (2017)_
+
+Die Scans der vier untersuchten Sterbenden: Die Null-Linie markiert den Zeitpunkt des gemessenen klinischen
+Todes aller Patienten bzw. dem Zeitpunkt des finalen Herzstillstands – wenige Minuten nachdem die lebens erhaltenden Instrumente ausgeschaltet wurden. Vor dem Hintergrund der hier beschriebenen Studie ist die im
+unteren Farbfeld als gelbe Farbtöne abgebildete Hirnaktivität interessant: Diese versiegt in 3 der 4 untersuchten
+Fälle schon vor dem Herzstillstand – im Falle von ‹Patient 2› bis zu 10 Minuten vor dem klinischen Tod. Im
+Falle von ‹Patient 4› hält diese Aktivität in Form von Delta-Wellen-Ausbrüchen noch 10 Minuten und 38
+Sekunden über den Zeitpunkt des Herzstillstands hinaus an.
+
+Die Autoren des Fachartikels selbst zeigen sich derzeit noch sehr vorsichtig, wenn es um die Bewertung und
+Bedeutung ihrer Beobachtungen geht. Besonders die sehr kleine Gruppe untersuchter Individuen mache eine
+Übertragung der Untersuchungsergebnisse und Rückschlüsse darauf, was die Beobachtungen über die ‹nachtod lichen Erfahrungen› aussagen, schwierig.
+Vor dem Hintergrund, dass bislang keine biologische Erklärung für eine derart lang anhaltende Hirnaktivität
+nach dem Herzstillstand bekannt ist, stellen die Autoren selbst lediglich Messfehler während der Scans als mögliche Erklärung zur Diskussion – erklären zugleich aber auch, dass sie keine Hinweise auf Fehlfunktionen an
+den verwendeten Instrumenten finden konnten. Schlussendlich stehe man vor einem Rätsel.
+Erneut stellt sich angesichts der nun publizierten Ergebnisse die Frage danach, ab wann wir wirklich tot sind,
+nachdem wir offiziell für tot erklärt wurden? Erst im vergangenen Jahr entdeckten US-Wissenschaftler, dass
+bestimmte Gene nicht nur den Todeszeitpunkt viele Stunden aktiv überdauern, sondern sogar erst Tage später
+erneut aktiv werden (… GreWi berichtete).
+_Quelle:_ _https://de.sott.net/article/28550-Mediziner-messen-ungewohnliche-Hirnaktivitat-mehr-als-10-Minuten-uber-den-_
+_Tod-hinaus_
+
+### Wissenschaftler: Ursprung des Bewusstseins entdeckt – Riesige Nervenzelle umgibt das gesamte Gehirn
+_Andreas Müller; Grenzwissenschaft aktuell; Di, 28 Feb 2017 18:52 UTC_
+_Washington (USA) - Neurologen des Allen Institute for Brain Science haben erstmals eine riesige Nervenzelle ent-_
+_deckt, die das gesamte Hirn von Mäusen umgibt und derart dicht über beide Hirnhälften vernetzt ist, dass sie den_
+_Ursprung des Bewusstseins erklären könnte._
+
+
+-----
+
+_© Allen Institute for Brain Science_
+_Digitale Rekonstruktion der neuentdeckten Hirn-Nervenzelle, die das gesamte Mäusehirn umschliesst und verbindet._
+
+Wie das Team um Christof Koch aktuell auf dem Jahreskongress der ‹Brain Research through Advancing Innovative Neurotechnologies› berichtete, nutzten sie ein neues bildgebendes Verfahren und entdeckten dabei, dass
+die einer ‹Dornenkrone› gleichende, ungewöhnlich grosse Nervenzelle einer der am meisten verknüpften Hirnregionen entspringt. Die Forscher vermuten, dass die Nervenzelle Signale aus jenen Hirnarealen koordiniert,
+um bewusste Gedanken zu erzeugen.
+Die entdeckte Nervenzelle gehört zu insgesamt drei mit der neuen Methode erstmals entdeckten Neuronen,
+von der sich die Neurowissenschaftler auch zukünftig weitere Entdeckungen bislang unbekannter Hirn strukturen erhoffen.
+Wie Koch gegenüber ‹Nature.com› berichtet, habe man noch nie zuvor Nervenzellen entdeckt, die sich derart
+vernetzt über beide Hirnhälften hinwegziehen.
+Zugleich entsprängen die drei neuentdeckten Nervenzellen dem sogenannten Claustrum und damit der am
+intensivsten verknüpften Schicht grauer Gehirnzellen im Hirn, die im menschlichen Gehirn bislang mit der
+Entstehung unseres Bewusstseins assoziiert wurde.
+Diese vergleichsweise kleine Hirnregion liegt unter dem Neokortex im Mittelpunkt des Gehirns verborgen und
+kommuniziert mit fast allen Regionen der Hirnrinde, um so zahlreiche hohe kognitive Funktionen wie Sprache,
+Vorausplanung und komplexe sensorische Aufgaben wie das Sehen und Hören zu koordinieren.
+Schon 2005 bezeichnete der Mitentdecker der DNA, Sir Francis Crick, derart dicht verknüpfte Hirnregionen in
+einem gemeinsam mit Koch verfassten Fachartikel als ‹Dirigent des Bewusstseins› und führte darin weiter aus,
+dass derartige Strukturen wahrscheinlich alle unsere äusseren und inneren Wahrnehmungen zu einer gemeinsamen Erfahrung zusammenführen – ähnlich dem besagten Dirigenten eines Orchesters.
+Wie ‹ScienceAlert.com› berichtet, wird diese Schlussfolgerung durch zahlreiche ungewöhnliche medizinische
+Fälle der vergangenen Jahre und sich daraus ergebender Beobachtungen gestützt:
+So wurde 2014 eine Frau an der George Washington University wegen Epilepsie behandelt und dabei auch
+zahlreiche Hirnregionen mittels Elektroden untersucht. Als die Forscher dabei das beschriebene Claustrum
+stimulierten, stellten sie fest, dass sie das Bewusstsein der Patientin regelrecht ein- und ausschalten konnten.
+2015 untersuchten Mediziner unabhängig davon die Auswirkungen von Schäden an besagtem Claustrum bei
+171 Kriegsverletzten mit traumatischen Hirnverletzungen. Dabei zeigt sich, dass Schäden an dieser Hirnstruktur
+zu Bewusstseinseinschränkungen und -verlusten führten.
+Während einige Forscher in den nun neu beschriebenen Hirnstrukturen Belege für die Vorstellung sehen, dass
+das Claustrum und die mit ihm in Verbindung stehenden Neuronen die Quelle, der Ursprung unseres Bewusst seins darstellen, zeigen sich andere noch vorsichtig und verweisen darauf, dass man von einem Beweis für diese
+Theorie noch weit entfernt sei.
+Zudem wurde die grosse, das Hirn umgebende Nervenzelle, bislang erst am Mäusehirn – und noch nicht am
+Menschen nachgewiesen und die für April vorgesehene Fachpublikation der Entdeckung im Journal of Comparative Neurology (DOI: 10.1002/cne.24047) steht bislang noch aus.
+_Quelle: https://de.sott.net/article/28456-Wissenschaftler-Ursprung-des-Bewusstseins-entdeckt-Riesige-Nervenzelle-umgibt-das-_
+_gesamte-Gehirn_
+
+
+-----
+
+-----
+

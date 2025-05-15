@@ -1,0 +1,1478 @@
+5. Jahrgang
+Nr. 118, Mai/2 2019
+
+
+Erscheinungsweise:
+Zweimal monatlich
+
+
+# FIGU – ZEITZEICHEN
+
+### Aktuelles • Einsichten • Erkenntnisse
+
+Internetz: http://www.figu.org
+E-Brief:  info@figu.org
+
+
+### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+
+Laut ‹Allgemeine Erklärung der Menschenrechte›, verkündet von der Generalversammlung der Vereinten Nationen am 10.Dezember 1948, im Artikel
+19, ‹Meinungs- und Informationsfreiheit›, gilt dieses unumschränkte Recht weltweit und absolut für jeden einzelnen Menschen
+weiblichen oder männlichen Geschlechts jeden Alters und Volkes, jedes gesellschaftlichen Standes wie auch jeglicher Ideologie:
+
+**Art. 19 Menschenrechte**
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die Freiheit, Meinungen unange-**
+**fochten anzuhängen und Informationen und Ideen mit allen Verständigungsmitteln ohne**
+**Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Ansichten, Aussagen, Darstellungen, Meinungen und Ideologien jeder Art in Abhandlungen, Artikeln und in Leserzuschriften usw., müssen nicht zwingend identisch mit dem Gedankengut, den Interessen, mit der ‹Lehre der Wahrheit, Lehre des Geistes, Lehre des Lebens› und damit also auch nicht in
+irgendeiner Weise mit dem Missionsgut und daher auch nicht verbindend mit der FIGU sein.
+=============================================================================================================
+Für alle in den FIGU-Zeitzeichen und anderen FIGU-Periodika publizierten Beiträge und Artikel verfügt die
+FIGU über die notwendigen schriftlichen Genehmigungen der Autoren bzw. der betreffenden Medien!
+### ***************************************************************************
+
+**Auf vielfach geäusserten Wunsch aus der Zeitzeichen-Leserschaft sollen in den Zeitzeichen zur Orientierung der**
+**Rezipienten laufend Auszüge diverser wichtiger Belange aus neuest geführten Kontaktgesprächsberichten**
+**veröffentlicht werden, wie nach Möglichkeit auch alte sowie neue Fakten betreffs weltweit bösartig mit**
+**Lügen, Betrug, Verleumdung und Mordanschlägen gegen BEAM geführte Kontroversen.**
+
+### **********************************************************************************
+
+ Sichtbares Wunder der Schöpfung ...
+ Wenn ich in mir selbst und nach aussen recht tue und guter Dinge bin, dann fliessen in mich wie ein gewaltiger Strom frohe und gute Gedanken, gute Gefühle, grosse Liebe sowie Freiheit, Frie- den und Harmonie. Und all diese hohen Werte kann ich frei nach aussen entfalten, sie den Mit- menschen zukommen lassen und diese als meinesgleichen erachten und behandeln. Woher all die guten Gedanken und Gefühle kommen, das weiss ich: Sie entstammen aus der Form meines tief- sten Wesens, das mich fortwährend dazu drängt, wahrer Mensch zu sein. Nichts kann ich dazu tun, dem entgegenzuhandeln, so ich mir das Drängen zum wahren Menschsein gefallen lasse, es in meinem Bewusstsein behalte und vor mich hinsummen kann, wie schön doch das Dasein und die Welt und wie herrlich doch die ganze Schöpfung ist. All das halte ich fest, und dazu kommt mir bald noch das eine und das andere in den Sinn, was mir gesamthaft mein Bewusstsein er- hellt und meine Gedanken und Gefühle immer mehr erwärmt. Mein Bewusstsein weitet sich, und mein Wissen und Sehen werden stetig grösser und umfangreicher; alles breitet sich immer weiter aus und wird heller, bis es an unendlich weit entfernte Grenzen stösst. Das Bild in mei- nen Gedanken vollendet sich und wird wahrlich zu einem Zustand paradiesischer Pracht und Schönheit, von dem mein innerer Blick gefangen wird – gleichsam einem sichtbar gewordenen Wunder, das ich nur im Bewusstsein wie betäubt zu übersehen vermag: Das sichtbare Wunder der Schöpfung.
+SSSC, Hinterschmidrüti, 20. Januar 2005, 2.02 h, Billy
+
+
+-----
+
+## Der falsche Weg ...
+Bei Menschen Beweise führen zu wollen, ist seit alters her der falsche Weg, darum soll niemals erklärt
+werden, dass jetzt einmal dieses und jenes bewiesen werden soll. Eine Beweisführung in allen Belangen
+muss der Mensch immer in sich selbst führen, und zwar durch seine effectiven Wahrnehmungen und Erkenntnisse, durch seine Gedanken und Gefühle sowie durch seine tiefgründigen Überlegungen, aus denen
+Kenntnisse und Wissen, Erfahrung und Erleben und die Essenz des Ganzen, die Weisheit, gewonnen werden.
+Etwas beweisen zu wollen ist in jedem Fall immer falsch, wenn es sich um Dinge handelt, die jeder Mensch
+selbst durch seinen eigenen Verstand und durch seine eigene Vernunft in sich selbst ergründen und erkennen muss, woraus dann die eigene innere Beweisführung entsteht. Andere Beweise können nur in der
+Hinsicht geführt werden, wenn z.B. bei einem Unfall oder Verbrechen usw. die Fakten aufzuklären sind, die
+dann als Beweislage dienen. Wo es jedoch um reine Fakten der Vernunft und des Verstandes geht, wofür
+Beweise geschaffen werden sollen, ist es grundfalsch, eine offene und äussere Beweisführung anstreben
+zu wollen. Dinge der Vernunft und des Verstandes können ausschliesslich nur aus eigenen Überlegungen
+und Schlussfolgerungen, aus eigenen Gedanken und Gefühlen sowie aus eigenen inneren Wahrnehmungen
+und Beurteilungen bewiesen werden. Wird jedoch in solcherlei Beziehung versucht, einem Menschen etwas
+zu beweisen, dann kommt es dem gleich, als wenn ihm Dummheit an den Kopf geworfen würde, oder dass
+der Beweisende damit eine eigene grössere Intelligenz und Gescheitheit gegenüber dem Menschen an den
+Tag legte, dem etwas bewiesen werden soll. Diese Dummheit solcher Beweisführungsversuche fundiert oft
+auch in Reden, bei denen z.B. gesagt wird: <Ich werde Dir/Ihnen jetzt einmal etwas sagen/beweisen, dann
+werden wir ja schon sehen, wer zuletzt recht hat.>
+Wie dumm und dämlich sind doch solche Reden der Beweisführung, denn in jedem Fall vermögen nur
+innere Wahrnehmungen, Werte, Erkenntnisse, Kenntnisse, Erfahrungen und Erlebnisse sowie das innere
+Wissen und die Weisheit echte Beweise zu erbringen. Ein solcher Beweis allein entspricht einer verstandesmässigen und vernunftsträchtigen Beurteilung, die daraus entsteht, dass etwas Effectives als wahr erkannt
+und anerkannt wird und also real ist. Die logische Form der inneren Beweisführung ist eine An-einanderfügung von Wahrnehmungen, Erkenntnissen, Kenntnissen und Schlüssen, die verschiedener Art sein können,
+jedoch immer zum Wissen und zu dessen Essenz, der Weisheit, führen, wobei diese Weisheit der Schluss
+der Dinge und also des Beweises ist.
+Eine innere Beweisführung beruht darauf, dass zuerst Klarheit über die Voraussetzungen oder Prämissen
+resp. die grundlegenden Fakten geschaffen werden, auf denen die Dinge beruhen, die zu beweisen sind.
+Erst damit kann überhaupt erst erkannt werden, aus welchen Grössen resp. Potenzen und Tatsachen das
+Beweismaterial beschaffen ist. Dieses Beweismaterial ist es dann auch, das durch innere Überlegungen,
+Gedanken und Gefühle sowie durch innere Abklärungen usw. herbeigeschafft werden muss. Danach ist
+alles seinen Werten gemäss zu ordnen, damit es sich in eine lückenlose Schlusskette fügt, die sich letztendlich derart formt, dass sich aus ihr das letzte Ergebnis ergibt, eben der durch die Beurteilung entstehende Beweis, der grundsätzlich aus der Richtigkeit der Beweisgründe hervorgeht.
+Besserwisser, Stänkerer, Kritiker und Antagonisten sind sich der wirklichen Tatsachen der Beweisführung
+nicht bewusst, denn sie negieren aus eigenen intelligenzmässigen Unzulänglichkeiten und infolge ihrer
+Unbedarftheit prinzipiell alles, was zu einer Beweisführung notwendig ist, ja sie sind sich nicht einmal der
+Voraussetzungen bewusst, die zu einer Beweisführung gehören. Kleine arme Irre, die ihre Dummheit, ihre
+Unkenntnis, ihre Weisheitslosigkeit und fehlende Ehrlichkeit mit unlauteren Angriffen und Verleumdungen
+wettmachen wollen, um damit ihr angeschlagenes oder schwaches Image und ihre unterentwickelte Intelligenz aufzubügeln.
+Wahrlich, eine effective Beweisführung durch Vernunft und Verstand ist eine gewaltige Herausforderung,
+die alle Besserwisser, Widersacher, Kritiker und ewigen Stänkerer zu Widerspruch reizt, die Menschen sind,
+die schon zurückschlagen möchten, ehe sie mit ihren bösartigen widersächlichen, verleumderischen, stänkerischen, verlogenen und kritischen Angriffen angefangen haben.
+3. Juni 2005, 00.35 h, Billy
+
+### Bescheidenheit
+
+In der Bescheidenheit
+kommt die Würde des
+Menschen und seine
+wahre Gesinnung
+zum Ausdruck.
+
+SSSC, 11. April 2011,
+
+21.27 h, Billy
+
+
+-----
+
+## Medienmitteilung vom 14. Januar 2019
+
+Home /News/Medienmitteilung vom 14. Januar 2019
+
+News |  15. Januar 2019
+
+**Economiesuisse setzt sich für EU-Diktate und das Ende des Bilateralismus ein**
+Der Wirtschaftsverband Economiesuisse will die gleichberechtigten bilateralen Beziehungen zwischen der
+Schweiz und der Europäischen Union (EU) beenden und die Schweiz EU-Recht und EU-Richtern unterstellen. Dies geht heute aus einem Grundsatzpapier von Economiesuisse über das institutionelle Abkommen
+Schweiz-EU hervor, wobei Letzteres erst in schwer verständlichem Diplomatenfranzösisch vorliegt. Der
+Dachverband macht sich vorschnell und oberflächlich für das Abkommen und damit für eine politische
+Einbindung der Schweiz in die EU-Institutionen stark. Dieser Schnellschuss vor der geplanten bundesrätlichen Konsultation entlarvt die politische EU-Agenda der Wirtschaftsfunktionäre. Irritierend ist auch, dass
+offenbar weder der Vorstand, noch die Mitgliedverbände eine Position bezogen oder ihre Analyse abgeschlossen haben.
+
+**Institutionelles Abkommen bedeutet Ende des bilateralen Weges**
+Der Bundesrat konnte sich nicht zu einer Unterzeichnung dieses Abkommens durchringen, weil dieser
+Vertragsentwurf die Gleichberechtigung der Verhandlungspartner annulliert. Solange der bilaterale Weg
+beschritten wurde, verhandelten zwei Partner – die Schweiz und die EU – gleichberechtigt auf Augenhöhe.
+Mit dem Rahmenabkommen erlässt die EU jedoch einseitig Gesetze, die die Schweiz automatisch übernehmen muss. Der EU-Gerichtshof EuGH wird als oberste Gerichtsinstanz akzeptiert. Zudem werden Sanktionen und Strafandrohungen im Vertrag verankert. Neue Guillotineklauseln sollen die Schweiz noch enger an
+die EU fesseln. Dies würde das Ende der Beziehungen Schweiz-EU auf Augenhöhe und zwischen gleichberechtigten, bilateralen Partnern bedeuten. Die Schweiz würde zu einem Vasallenstaat der EU.
+
+**Abkommen schafft grosse Rechtsunsicherheit**
+Entgegen den Behauptungen von Economiesuisse schafft das Abkommen nicht „Rechtssicherheit“, sondern Rechtsunsicherheit. Mit dem institutionellen Abkommen würde die EU künftig die Gesetze erlassen,
+die Schweiz müsste sie übernehmen. Volk, Stände und Parlament wären als Gesetzgeber entmachtet. Die
+Schweiz müsste sich dem EU-Gerichtshof EuGH unterstellen – fremde Richter. Der EuGH hat den Auftrag,
+die Zentralisierung in Europa voranzutreiben und die Interessen der EU aktiv in die Rechtsprechung einzubringen. Widersetzt sich die Schweiz, kann die EU Strafmassnahmen ergreifen. Die Schweiz wäre nicht
+mehr frei, selbst zu bestimmen. Es ist keine Rechtssicherheit, wenn die EU jederzeit das Recht ändern und
+die Schweiz dieses Recht unter EU-Richtern und Strafandrohung übernehmen muss.
+
+**Erfolgsmodell Schweiz und Wohlstand gefährdet**
+Es ist bedenklich, dass Economiesuisse bereit ist, die Schweizer Eigenständigkeit, unseren Pragmatismus
+und unsere demokratische Kultur der EU-Anbindung und der Brüsseler Zentralisierung zu opfern. Das
+Schweizer Erfolgsmodell und unser wirtschaftlicher Wohlstand haben wir unserer freiheitlichen Kultur, unserer direkten Demokratie, unserem Föderalismus und der politischen Eigenständigkeit zu verdanken. Dies
+ermöglicht uns, eigene Regeln zu setzen, besser und innovativer zu sein als die anderen, uns auf die Welt
+
+
+-----
+
+und nicht nur auf einzelne Regionen und Institutionen zu konzentrieren. Wer an diesem Erfolgsmodell
+rüttelt, gefährdet unseren Wohlstand. Insbesondere in schlechten Zeiten ist es das Wichtigste für ein Unternehmen, aber auch für ein kleines, globalisiertes Land wie die Schweiz, Handlungsfreiheit und pragmatische Eigenständigkeit zu wahren. Dies wäre mit der institutionellen Anbindung an die EU definitiv nicht
+mehr gegeben.
+Das Komitee EU-No wird sich mit aller Kraft gegen das institutionelle Abkommen und somit gegen eine
+politische Anbindung und gegen den schleichenden EU-Beitritt einsetzen.
+**_Komitee «Nein zum schleichenden EU-Beitritt» (EU-No)_**
+Quelle: https://eu-no.ch/medienmitteilung-vom-14-januar-2019/
+
+## Für Deutsche ist Russland die grösste Bedrohung
+
+Montag, 7. Januar 2019, von Freeman um 08:00
+
+
+Nach der neuesten Forsa-Umfrage haben 56 Prozent der Deutschen auf die Frage, "welches Land ist am
+_bedrohlichsten", mit "Russland" geantwortet. Wie bescheuert, gehirngewaschen und dumm muss man sein,_
+um das zu glauben? Wann hat Russland jemals Deutschland bedroht? Wie die Geschichte zeigt, war es
+immer umgekehrt.
+
+Am 1. August 1914 hat Deutschland Russland den Krieg erklärt und marschierte in Russland ein. Am 22.
+Juni 1941 überfiel Deutschland die Sowjetunion und drang bis fast nach Moskau vor. Wer war also der
+wirkliche Aggressor???
+Seit 1994 haben die sowjetischen Truppen sich komplett aus Ostdeutschland zurückgezogen sowie aus
+allen osteuropäischen Ländern. Den Warschauer Pakt gibt es seit 1. Juli 1991 nicht mehr.
+Im Gegensatz dazu hat die amerikanische Besetzung ganz Osteuropas durch die NATO stattgefunden, und
+NATO-Soldaten stehen an der Grenze zu Russland. Russland ist von NATO-Basen umzingelt.
+Deutsche Soldaten und Panzer sind nur 200 Kilometer vor St. Petersburg im litauischen Rukla stationiert,
+und Kampfjets der Bundeswehr fliegen an der russischen Grenze entlang!!!
+Wer bedroht denn hier wen wirklich???
+Schon traurig, wie eine bescheuerte Hälfte Deutschlands jede Lüge glaubt, die man von oben auftischt, von
+wegen Russland sei die grösste Bedrohung!!!
+Diese Propaganda wird doch den Deutschen nur von den Anglo-Amerikanern seit 100 Jahren über die
+Lügenmedien den eingetrichtert, damit sich Deutschland niemals mit Russland verbündet, was völlig normal und natürlich wäre.
+
+
+-----
+
+Deutschlands Know-how und Russlands Ressourcen zusammen wären unschlagbar, davor haben die Engländer und Amerikaner die grösste Angst. Deswegen wird ein Keil zwischen Russland und Deutschland
+getrieben.
+Was man den Deutschen NICHT erzählt, Stalin hatte Anfang der 50er Jahre den Abzug der Siegermächte
+und die Wiedervereinigung angeboten, wenn Deutschland sich NEUTRAL erklärt.
+
+Adenauer hat dieses Angebot abgelehnt und stattdessen die Westanbindung und den NATO-Beitritt beschlossen. Er war der Verursacher der Teilung Deutschlands und der Besetzung, die bis heute andauert.
+
+Die Österreicher waren gescheiter, haben dieses Angebot angenommen, wurden neutral und die Besatzer
+haben das Land verlassen. Mit dem Staatsvertrag von 1955 wurde Österreich nach 17 Jahren "wieder frei"
+und erlangte seine volle Souveränität
+
+
+-----
+
+Deutschland ist bis heute NICHT souverän!!!
+Für keine politische Partei in Deutschland ist das Heimschicken der hauptsächlich amerikanischen Besatzer, die Erlangung der Souveränität und die Schaffung einer echten Verfassung bis heute ein Thema. Das
+Grundgesetz ist keine Verfassung!!!
+Das Grundgesetz entspricht von den West-Alliierten in der Rothschild-Villa im Taunus diktierte Firmenstatuten, wie für eine GmbH. Die Deutschen sind Personal dieser Firma, deswegen haben sie einen Personalausweis!!!
+Ausserdem steht in den deutschen Ausweisen als Staatsbürgerschaft "Deutsch"; nur, es müsste "Deutschland" stehen. Deutsch ist kein Staat, dessen Bürger man sein kann, sondern eine Sprache. Wörter haben
+eine Bedeutung.
+Man müsste doch meinen, 73 Jahre nach dem II. WK sind die Deutschen endlich aufgewacht und realisieren, wer ihre wirklichen Feinde sind. An erster Stelle die Politiker in Berlin, die ausnahmslos Landesverräter
+sind. Ihre Loyalität gilt der Finanzelite, dann Washington und Brüssel.
+Trump hat es wieder am vergangenen Freitag betont, Europa besteht für Washington nur aus Vasallen und
+nicht aus gleichberechtigten "Partnern". Er sagte: "I do not care about Europe" oder "Europa ist mir egal".
+Und dann möchte ich daran erinnern, was Victoria Nuland 2014 gesagt hat: "Fuck the EU." Für die Amis ist
+Europa nur ein Standort für Militärbasen, eine Drehscheibe für die Kriege, und die Dummen, die die Kriege
+mitmachen müssen.
+Es war die Sowjetarmee, die Europa von der Nazi-Herrschaft befreit hat, und nicht die Amerikaner. Die
+Westalliierten landeten erst am 6. Juni 1944 an der Küste der Normandie, als der Krieg an der Ostfront
+schon längst entschieden war.
+Was auch wenige wissen, Gorbatschow hat der Bundesregierung die Rückgabe von Königsberg angeboten,
+für eine Entschädigungszahlung von 20 Milliarden D-Mark. Kohl und Genscher haben aber die Rücknahme
+der deutschen Ostgebiete ABGELEHNT!!!
+Überhaupt ist der ganze Anspruch auf Ostpreussen aufgegeben worden. Daraus sieht man, woraus für
+Landesverräter das Kohl-Regime bestand. Das waren noch Zeiten, als Peter Frankenfeld die Wetterkarte für
+das Deutsche Reich machen konnte, heute undenkbar.
+Russland ist ganz sicher keine Bedrohung und kein Feind Deutschlands. Bei meinen Reisen durch Russland
+bin ich immer wieder erstaunt, wie positiv Deutschland von den Russen betrachtet wird, trotz dem irrsinnigen Leid und der Zerstörung, welche die Deutsche Wehrmacht verursachte.
+Die Russen reichen den Deutschen immer wieder eine freundschaftliche Hand, aber diese wird abgelehnt.
+Stattdessen werden sie mit Wirtschaftssanktionen bestraft, die Medien reden Russland nur schlecht, und
+Putin ist sowieso an allem Schuld.
+Ich kann Euch nur auffordern, besucht Russland und macht Euch ein eigenes Bild. Glaubt doch nicht, was
+die Medien erzählen. Euch werden die Augen aufgehen und ihr werdet Euch fragen, wieso werdet Ihr so
+belogen?
+Quelle: http://alles-schallundrauch.blogspot.com/2019/01/fur-deutsche-ist-russland-die-grosste.html#ixzz5cl3hkYfi
+
+## Asyltourismus de luxe, ein Erfahrungsbericht
+
+Veröffentlicht am 12. Januar 20199. Januar 2019
+
+**G A S T A U T O R ***
+
+
+Menschen fliehen vor Hunger, Verfolgung und Gewalt. Menschen fliehen, weil die Umstände in ihren Herkunftsländern unerträglich sind, sie von sexueller Gewalt, Diskriminierung oder dem Klimawandel bedroht
+sind etc.
+Dies ist das allgegenwärtige Mantra der Verfechter einer unkontrollierten Einwanderung. Ich will mit dem
+nachfolgenden Erlebnisbericht dagegenhalten. Da ich keine der handelnden Personen durch diesen Bericht
+in Schwierigkeiten bringen möchte, habe ich die Namen und Ortsangaben anonymisiert.
+Meine Hoffnung ist es, durch diesen persönlichen Erfahrungsbericht mit Missverständnissen auf beiden
+Seiten aufzuräumen, und zwar sowohl mit Missverständnissen auf Seiten der Befürworter einer unbegrenzten ungeregelten Zuwanderung in den Zielländern, als auch Missverständnissen auf Seiten der Migranten,
+die sich durch die Sogwirkung seit 2015 ermutigt fühlen, sich auf den Weg zu machen und oftmals hier
+bitter enttäuscht werden.
+Mein Erfahrungsbericht bezieht sich nur auf Subsahara-Afrika und dort ausschliesslich auf die Länder entlang der Bucht von Benin, das sind die Länder von der Elfenbeinküste bis Gabun.
+Ich habe zehn Jahre beruflich in der Region meinen Dienst für ein deutsches Unternehmen geleistet und
+bin seitdem immer noch einmal jährlich vor Ort mit meiner eigenen kleinen Firma.
+Ich bin seit 27 Jahren mit einer Frau aus der Region verheiratet, mit der ich drei Kinder habe. Das Grundproblem ist, dass beide Seiten – die gutmeinende deutsche und die afrikanische – sich gegenseitig nicht
+gut genug kennen: Auf der einen Seite gibt es den gutmeinenden Deutschen, der glaubt, Afrika sei generell
+ein Kontinent des Hungers und der Not. Dieser Eindruck wird bewusst gefördert durch entsprechende
+
+
+-----
+
+Bilder in den Medien und Kampagnen von Hilfsorganisationen. Natürlich mag das für gewisse Gebiete
+zutreffen, aber es ist nicht die generelle Situation in Afrika.
+Nehmen wir als Beispiel „Boko Haram“. Die Terrororganisation ist ein regional beschränktes Phänomen,
+das Nigeria (Borno State), Kamerun (Extrême Nord), Niger und den Tschad betrifft. Ein Bewohner der Küstenstädte wie Lagos oder Douala wird damit niemals in Berührung kommen. Trotzdem gibt es Gutmeinende, welche die Existenz solcher Gruppen dazu verwenden, einen Fluchtgrund für die Bevölkerung eines
+ganzen Landes daraus abzuleiten.
+Auf der anderen Seite gibt es den durchschnittlichen Schwarzen, der keinen festen Job hat, und sich mit
+Gelegenheitsarbeit durchbringt (Wächter, Autowäscher, Hausierer, Tagelöhner etc.). Er hat eine tiefe Sehnsucht nach Paternalismus, also nach jemandem, der ihm seine Bürde abnimmt. Er hat von seinen Vorfahren
+gehört, dass es unter den Kolonialmächten viel besser war.Als die Briten/Franzosen/Deutschen noch da
+waren, seien diese zwar streng gewesen, hätten aber Arbeit gegeben und sich um seine kleinen Probleme
+gekümmert, solange er loyal war. Das haben diese Leute immer noch im Sinn und die Idee der Willkommenskultur hat bei ihnen wie ein Blitz eingeschlagen.
+Ich komme jetzt zu meiner eigentlichen Schilderung: Acht Jahre war ich mit meiner Frau in einem der
+besagten Länder (nennen wir es Gabun). Meine Frau war Stammkundin in einem Haarstudio für afrikanische Haartrachten, deren Besitzerin wir hier „Tulipe“ nennen wollen. Ich mochte Tulipe nie besonders, da
+sie immer klagte wie hart das Leben sei und sich durch die Bekanntschaft mit meiner Frau Vorteile verschaffen wollte. Nach unserer endgültigen Abreise hörte ich bis August 2018 nichts mehr von ihr.
+Im August 2018 erhielten wir von Tulipe einen Anruf (hier in Deutschland), dass sie in Rom angekommen
+sei und gerne bei uns vier Wochen bleiben möchte. Ich konnte natürlich nicht ablehnen. Also kam sie mit
+dem Zug aus Rom. Nach einer oder zwei Wochen habe ich sie interviewt, was ihre weiteren Pläne seien.
+Sie antwortete mir Folgendes: Das Haarstudio habe ich aufgegeben, weil die Konkurrenz zu gross war. Es
+gibt immer mehr ambulante Friseusen, die zu den Kundinnen ins Haus gehen, und den Job für die Hälfte
+des Preises machen. Danach wollte ich einen Handel betreiben. Dreimal bin ich nach Dubai geflogen, um
+dort Taschen einzukaufen, die ich in Gabun teurer verkaufen wollte. Das Geld dafür (ca. 9000 € !) habe ich
+von meinen Verwandten geliehen, aber leider hat der Handel sich nicht so entwickelt wie erhofft. Die Verwandten wollen das Geld natürlich zurück. Jetzt bin ich hier, weil ich durch meine Dubai-Visa ein SchengenVisum für Italien erhalten konnte. Ich will hier Asyl beantragen, weil ihr Deutschen doch so viele Arbeitskräfte braucht.
+Ich antwortete ihr: Tulipe, du kannst in meinem Haus für vier Wochen bleiben, aber ich begrüsse deine
+Pläne nicht. Wenn du jemals deine 9000 € zurückzahlst, wird das auf Kosten unserer deutschen Steuergelder erfolgen. Ich glaube nicht, dass man dich hier für irgendeinen Job braucht. Ich zahle dir ein Ticket
+zurück und du reist aus bevor dein Schengen-Visum ausläuft. Natürlich war ihr Entschluss bereits gefasst,
+und sie hat sich Rat aus dem Netzwerk der hier bereits Etablierten geholt, ihren Gabun-Pass vernichtet und
+sich auf einem Polizeirevier als staatenlose Asylantin präsentiert. Am selben Tag wurde sie in einer Erstaufnahmeeinrichtung untergebracht, und es lief das gesamte Programm mit Sprachkursen und Integrationskursen an.
+Zum Jahreswechsel war sie zu Besuch bei uns. Sie hat inzwischen ein paar wenige Worte Deutsch gelernt
+„wie geht’s, danke, bitte“ aber mehr auch nicht. (Ich habe damals, als mich meine Firma in ein francophones Land schickte, Basis-Französisch in zwei Monaten gelernt!) Aber, was mich am meisten verwunderte
+war, dass sie sich in ihren Erzählungen über Rassismus ausliess. Rassismus ist in Afrika ein Begriff, der
+meist für Tribalismus verwendet wird, also für Feindschaften unter verschiedenen Volksstämmen. Ich hatte
+also den Verdacht, dass ihr der Begriff von einer fremden (deutschen) Person eingeimpft wurde.   Und so
+war es dann auch. Sie hatte eine Betreuerin, mit der sie sich zweimal in der Woche unterhält, um ihre
+Probleme zu diskutieren. Sie schilderte die Bürde, jeden Tag bei Kälte um 7:00 Uhr mit dem Bus zum
+Sprachkurs fahren zu müssen. Die Betreuerin, vermutlich eine Gutmeinende, erklärte ihr, Deutschland sei
+ein kaltes rassistisches Land, und die Tulipe hat das so übernommen.
+Um hier zum Ende zu kommen: Tulipe wird kein Problemfall sein, der Leute grundlos prügelt wie in Amberg, da sie eine 45jährige Frau ist. Sie wird aber wahrscheinlich für immer hier bleiben auf Sozialkosten.
+Sie wird vielleicht nochmal einen anderen Asylanten heiraten, um ihm eine Aufenthaltsgenehmigung zu
+verschaffen, vielleicht mit ihm zusammenziehen in eine sozialfinanzierte Wohnung, vielleicht prügeln sie
+sich, dann zieht sie in ein Frauenhaus, natürlich alles bezahlt von den unendlichen Wohlfahrtsprogrammen
+für jeden in Not.
+Quelle: https://vera-lengsfeld.de/2019/01/12/asyltourismus-de-luxe-ein-erfahrungsbericht/
+
+
+-----
+
+## Die Lügen der Konrad-Adenauer-Stiftung über Russland
+
+Mittwoch, 9. Januar 2019, von Freeman um 08:00
+
+Als Ergänzung zu meinem vorherigen Artikel möchte ich Euch ein Einladungsscheiben der Konrad-Adenauer-Stiftung (KAS) vom 4. Januar für eine "Studienreise nach Russland" zeigen und dabei au-seinander
+nehmen. Ihr wisst ja, Konrad Adenauer war der grösste Verräter an Deutschland nach dem letzten Weltkrieg,
+in dem er die Besetzung von Westdeutschland durch die Amerikaner zementierte (die bis heute andauert),
+die Wiedervereinigung in den 1950-Jahren verhinderte und die Wiederbewaffnung, Schaffung der Bundeswehr und Beitritt zur NATO entschieden hat. Klar, dass die Verräterpartei CDU ihn als "Vorbild" sieht.
+
+Die Konrad-Adenauer-Stiftung ist eine CDU- (sehr) nahe "Denkfabrik", die aus Steuergeldern finanziert wird,
+also von Euch. Ihre Aufgabe ist es, die Deutschen für immer an die transatlantische Kette zu legen, also
+davon zu überzeugen, die USA sind super gut und Russland ist oberböse.
+Die Deutschen haben sich bedingungslos gefälligst immer nach Westen zu orientieren, niemals jedoch nach
+Osten
+Da die Sachsen nach eigenen Worten der KAS "Sympathie mit Russland haben", muss diese falsche Einstellung ihnen mit einer Russlandreise ausgetrieben werden. Vom 25. Mai bis 2. Juni 2019 organisiert das
+"Politisches Bildungsforum Sachsen" deshalb eine "Studienreise" von Moskau bis St. Petersburg.
+Wow, ganze 600 Kilometer, wobei Russland sich ja nur von Nord nach Süd über 4'500 Kilometer und von
+West nach Ost über 7'000 Kilometer erstreckt. Deutschland hat eine Fläche von 357 376 km[2], Russland
+17,1 Mio qkm, ist ja nur fast 50 Mal grösser!
+Russland ist kein Land, sondern ein Kontinent, der sich um die halbe Erde erstreckt und hat 9 Zeitzonen,
+früher waren es 11!
+Damit kann man die Frage der KAS sicher ausführlich beantworten "Verstehen wir Russland?"
+
+
+-----
+
+Das ist ungefähr so, wie wenn man eine Reise von Köln nach Düsseldorf plant, um damit Deutschland
+verstehen zu wollen. Völlig bescheuert und unseriös!
+Hier die Begründung der KAS für die Reise, ich zitiere:
+"Das aussenpolitische Verhalten der letzten Zeit führte zu vielfältigen Irritationen. Zu nennen ist hier die Anne_xion der Krim, der Ukraine-Krieg, die russische Einmischung in Syrien, der Fall Skripal in Grossbritannien und_
+_noch einige andere Beispiele."_
+In einem Satz so viele Lügen zu schreiben, ist schon eine Kunst.
+
+
+1. Die Krim wurde NICHT von Russland "annektiert". Die KAS rühmt sich doch "Demokratie" zu för
+
+dern, verneint und ignoriert dabei aber völlig die demokratische Entscheidung der Bewohner der
+Krim, die sich mit 97 Prozent bei einem Volksentscheid für die Wiedervereinigung mit der Russischen Föderation ausgesprochen haben. Ja, Wiedervereinigung, denn die Krim gehört schon seit
+über 300 Jahren zu Russland. Deshalb, von einer "Annexion der Krim" zu sprechen ist eine unverschämte Lüge und Tatsachenverdrehung!
+
+2. Was die KAS als den "Ukraine-Krieg" bezeichnet, ist ein Krieg des kriminellen Putsch-Regimes in
+
+Kiew gegen die eigene Bevölkerung in der Ost-Ukraine, sicher keiner von Russland gegen die Ukraine. Ursache für diesen internen Krieg gegen die ethnisch russische Bevölkerung ist der gewaltsame
+Putsch gegen die legitime Regierung von Wiktor Janukowytsch 2014, wofür neben den Amerikanern
+als Haupttäter zum Grossteil die Bundesregierung mitverantwortlich ist. Das Merkel-Regime unterstützt die kriminelle Bande in Kiew, welche den Nazi-Kollaborateur Banderas als Nationalhelden
+feiert sowie die Nazi-Milizen der Oligarchen wüten lässt, die der SS nacheifern.
+
+3. Es gibt keine "russische Einmischung in Syrien", sondern das russische Militär ist auf ausdrückliche
+
+Einladung der legitimen Regierung Syriens im Lande, um beim Kampf gegen die radikal-islamistischen aus dem Ausland importierten Terrorsöldner zu helfen, welche die syrische Bevölkerung auf
+schrecklichste Art massakriert hat. Das Völkerrecht brechen eklatant Länder, wie die Türkei, SaudiArabien, Israel, USA, Frankreich und Deutschland, welche der ISIS, Al-Nusra und Co. mit Militäraktionen, Geld und Waffen helfen, um Präsident Assad zu stürzen. Es geht um einen inszenierten
+westlichen "Regimewechsel", den Russland erfolgreich verhindert hat.
+
+4. Der "Fall Skripal" ist eindeutig eine "False Flag", die der britische Geheimdienst MI-5 mit Hilfe des
+
+Biowaffenlabors in Porton Down, unmittelbar in der Nähe von Salisbury, durchgeführt hat, um es
+Russland in die Schuhe zu schieben. Es gibt bis heute keinen einzigen Beweis, dass der Kreml mit
+der versuchten Vergiftung irgendwas zu tun hat. Es handelt sich nur um falsche Beschuldigungen
+und anti-russische Propaganda. Sergei und Yulia Skripal sind seit ihrer Entlassung aus dem Spital
+wie vom Erdboden verschwunden. Niemand darf sie sehen oder sprechen, auch nicht Familienmitglieder. Warum? Weil sie dann erzählen würden, was wirklich passiert ist,? Sie sind Gefangene des
+britischen Staates.
+
+
+5. Jeder der aufgeführten Behauptungen der KAS habe ich widerlegt.
+
+
+6. Wenn die KAS wirklich die Reiseteilnehmer wissen lassen will, was die Russen denken, warum geht
+
+die Reise nicht auch auf die Krim und nach Donbass? Ist ja klar warum nicht, weil dann ihre Lügen
+über "Annexion" und "Ukraine-Krieg" auffliegt!
+
+7. Aber es geht weiter, denn im Einladungsschreiben steht, die Sachsen hätten eine "Amerikanophobie"
+
+als "Überbleibsel der Feindbildprojektion des realexistierenden Sozialismus".
+
+8. So eine krasse Verleumdung, denn nein, die Sachsen erkennen nur, wer der wirkliche Feind
+
+Deutschlands ist und schon immer war, die anglo-amerikanische Machtelite, die jeden Versuch
+einer Verbindung zwischen Deutschland und Russland sabotiert hat.
+
+
+9. Für mich ist klar, die Konrad-Adanauer-Stiftung ist ein Agent zur Unterminierung jeglicher deutsch
+
+russischen Freundschaft. Hier wird eine "Studienreise nach Russland" organisiert, um das Feindbild
+zu verstärken, indem man sich mit "Vertretern von Politik, Kultur und Kirchen" trifft, die nicht die
+wirkliche Meinung der Russen spiegeln.
+
+
+10. Was die KAS als "Russophilie" der Sachsen bezeichnet, ist eine völlig normale Erkenntnis der Sach
+
+sen, die Russen sind unsere Nachbarn, wir sind geografisch mit ihnen verbunden, man kann mit
+dem Auto oder Zug nach Moskau fahren. Die sogenannte "Atlantikbrücke" ist eine künstliche und
+
+
+-----
+
+widernatürliche Verbindung. Ausserdem, wie Henry Kissinger betonte, Amerika hat keine Freunde,
+Amerika hat nur Interessen.
+
+
+11. Wer glaubt, die Amis seien die Freunde Europas oder gar Deutschlands, ist ein Dummkopf!
+
+
+12. Das sieht man aktuell daran: Die USA haben den diplomatischen Status der EU-Vertretung in
+
+Washington heruntergestuft – ohne den Botschafter offiziell zu informieren. Die EU ist aus der Sicht
+des Trump-Regimes von der staatlichen Ebene auf den Status einer internationalen Organisation
+gesunken. "F.ck the EU" wie Victoria Nuland sagte.
+
+
+13. Die KAS fragt am Schluss der Einladung: "Wie sollten wir uns verhalten, und wo können wir auf
+
+_feinander zugehen?" Sicher nicht mit einer politisch gesteuerten lächerlichen kurzen Reise von Mos-_
+kau nach St. Petersburg.
+
+Am besten Ihr besucht Russland ausführlich selbst auf eigene Faust und schaut Euch neben den
+Grossstädten von 10 Millionen Einwohnern auch die kleineren an, die Dörfer, die Landschaft, um
+die russische Seele zu verstehen. Eine herzliche Gastfreundschaft werdet Ihr erleben die einmalig
+ist. http://alles-schallundrauch.blogspot.com/2019/01/die-lugen-der-konrad-adenauerstiftung.html#ixzz5cl3KYrYa
+
+
+## USA weiten weltweite militärische Besatzung aus
+
+VON NOCH.INFO · 09/01/2019
+
+**Zwei neue Luftwaffenstützpunkte in Afrika stehen kurz vor dem Abschluss, berichtet die Airforce Times.**
+
+Das afrikanische Afrika Kommando hofft, im Jahr 2019 zwei neue Luftstützpunkte, einen in Niger und einen
+in Somalia, fertigstellen zu können, um Operationen gegen Bürger der Region durchzuführen.
+Die Niger Air Base 201, eine zukünftige Drehscheibe für bewaffnete Drohnen und andere Flugzeuge, sollte
+in diesem Jahr fertiggestellt werden. Sie wird schliesslich die amerikanische bewaffnete Drohnen Mission
+in Niger beherbergen, die derzeit von der nigerianischen Hauptstadt Niamey aus operiert.
+Im Süden Somalias wird ein ehemaliger von der Sowjetunion gebauter Luftstützpunkt renoviert und umgebaut, um die sich entwickelnde multinationale Mission im Land besser bewältigen zu können.
+**Die Vereinigten Staaten folgen damit ihrer aggressiven Doktrin, die die militärische Besatzung in mehr**
+**als 1000 weltweiten Militärbasen in 38 Ländern vorsieht. Die USA haben in 172 von 194 Ländern 240**
+**000 Soldaten stationiert. Sinn dieser militärischen Präsenz ist es eine Drohkulisse gegenüber anderen**
+Regierungen aufzubauen, den Vereinigten Staaten zu gehorchen und sich ihrem Willen zu fügen.
+Russland ist hingegen nur in 10 Ländern militärisch präsent, klassische Militärbasen sind darunter nur 3:
+eine in Vietnam und 2 in Syrien. Wer hier von einem aggressiven Russland spricht, hat sich die Bezeichnung
+«Idiot» redlich verdient.  Quelle: SMOPO
+Quelle: https://noch.info/2019/01/usa-weiten-weltweite-militaerische-besatzung-aus/
+
+
+-----
+
+## Wer in Deutschland Zöpfe trägt ist, rechts
+
+Donnerstag, 10. Januar 2019, von Freeman um 12:05
+
+Die meisten Deutschen wollen nicht wissen, wie das Land immer mehr in den Linksfaschismus abgleitet.
+Die sogenannte Antifa darf Gewalt anwenden, so viel sie will, darf Andersdenkende niederschlagen, und
+diese Verbrecher werden vom Staat besonders beschützt. Wenn jemand nur den Hauch von Tradition oder
+Patriotismus zeigt oder äussert, wird er sofort als Rechter oder sogar Nazi nieder geschrien und fertiggemacht. Siehe auch, der Bremer AfD-Chef und Bundestagsabgeordnete Frank Magnitz wurde brutal niedergeschlagen. Jetzt darf man auch nicht mal mehr als Frau Zöpfe tragen, denn dann wird einem rechte
+Gesinnung unterstellt.
+
+Eine junge Frau hat ihr Erlebnis in Chemnitz erzählt. Sie berichtet, als sie vom Weihnachtsmarkt kam, wurde
+sie im Bahnhof von der Polizei angehalten und gefragt, ob sie eine rechte Gesinnung hätte, weil sie Zöpfe
+trägt?
+Sie sagt, sie sei schockiert gewesen, als Rechtsradikale eingestuft zu werden, weil sie Zöpfe trägt, die sie
+einfach praktisch findet.
+Ihr Cousin, der dabei war, musste sich vor der Polizei ausziehen und ins Röhrchen pusten.
+Ich sag ja, so weit ist es in Deutschland gekommen, dass die Polizei an Hand von Äusserlichkeiten die
+Gesinnung prüft. Das ist ganz klar Faschismus!!!
+
+Ein ähnlicher Fall ist in Holland passiert. Eine Mutter ist mit ihrem Kinderwagen der Strasse entlang spaziert,
+als die Polizei sie angehalten hat, weil sie eine gelbe Weste getragen hat.
+
+
+-----
+
+Die Polizisten forderten sie auf, die Weste auszuziehen. Weil sie sich weigerte, haben die Polizisten sie von
+ihrem Kind getrennt und in einen Mannschaftswagen gezerrt, also verhaftet.
+Ohne Worte!!!
+Als ich das letzte Mal vor ca. drei Jahren von der Schweiz mit dem Auto nach Deutschland gefahren bin,
+hat mich ein deutscher Grenzbeamter am Übergang von Thayngen/Schaffhausen gefragt, wohin und warum ich nach Deutschland fahre?
+Zur Erinnerung, es handelt sich um den Schengenraum, und es sollte keine Grenzkontrollen zwischen der
+Schweiz und Deutschland geben.
+Ich antworte: "Ich möchte meine Reisepläne nicht mit Ihnen besprechen!"
+Darauf schrie mich der Beamte an: "Dann werde ich Sie auseinander nehmen!!!"
+Ich sagte ganz ruhig zu ihm: "Nein, das werden Sie nicht, Sie dürfen nur meine Papiere prüfen." Ich fügte
+dann gelassen hinzu, "und nehmen Sie sich ganz viel Zeit dafür, denn ich habe Zeit."
+Er ging von dannen ins Grenzhäuschen und kam aber sehr schnell zurück und sagte: "Weiterfahren!"
+Was will ich damit zeigen? Man soll sich nicht einschüchtern lassen und seine Rechte kennen.
+Ein Grenzbeamter hat überhaupt nicht die Frage zu stellen, warum man nach Deutschland einreisen und
+wohin man fahren will. Das geht ihn einen Scheissdreck an.
+Man kann ihm ja alles erzählen, wie z.B., ich fahre zu einer Hochzeit, Beerdigung, Verwandte oder Freunde
+besuchen ... oder was immer. Prüfen kann er die Antwort eh nicht, also ist die Frage sinnlos.
+Aber die meisten Menschen sind ja sehr unterwürfig und haben Angst vor Zollbeamten. Ich nicht. Warum
+auch? Wenn sie ihre Kompetenzen übertreten, habe ich überhaupt keine Scheu, sie anzuzeigen.
+Im Falle der jungen Frau mit dem Erlebnis der Gesinnungsschnüffelei in Chemnitz, hätte ich mir Namen
+und Dienstnummer des Beamten notiert und eine Anzeige eingereicht.
+Es ist ja nicht strafbar einen Zopf zu tragen, und die Frage über eine politische Gesinnung dürfen sie schon
+mal gar nicht stellen. Das geht sie einen feuchten Dreck an.
+Wenn sich niemand wehrt, dann wird es nur immer schlimmer mit den Polizeiübergriffen. Obwohl es richtig
+von ihr war, wenigstens ein Video darüber zu posten.
+Quelle: http://alles-schallundrauch.blogspot.com/2019/01/wer-in-deutschland-zopfe-tragt-ist.html#ixzz5cl2v1MAZ
+
+## Drohbriefe wegen Nord Stream 2: US-Botschafter zeigt, 
+ dass Deutschland nur Vasall von Washington ist
+Learner. Sott.net Mo, 14 Jan 2019 10:26 UTC
+
+Der US-Botschafter in Deutschland, Richard Grenell, hat Drohbriefe an deutsche Unternehmen wegen dem
+deutsch-russischen Pipeline-Projekt Nord Stream 2 verfasst und sorgte damit für grosse Empörung in Berlin.
+
+
+-----
+
+© CC BY 2.0 / Andy Hay / Reichstag, Berlin
+
+Nord Stream 2: US-Botschafter lässt imperiale Muskeln spielen
+Grenell drohte er involvierten deutschen Unternehmern damit, dass sie von den USA mit Sanktionen belegt
+würden, sollten sie sich weiterhin an dem Projekt beteiligen.
+Laut Sputnik zitierte die Bild am Sonntag aus dem Schreiben des US-Botschafters wie folgt:
+"Wir betonen weiterhin, dass Firmen, die sich im russischen Energieexport-Sektor engagieren, sich an etwas
+beteiligen, das mit einem erheblichen Sanktionsrisiko verbunden ist", zitierte die Zeitung aus Grenells
+Schreiben. "Im Ergebnis untergraben Firmen, die den Bau beider Pipelines unterstützen, aktiv die Sicherheit
+der Ukraine und Europas."
+
+~ Sputnik
+
+Der deutsche Aussenminister Heiko Maas hat daraufhin bereits zurückgegeben, dass dieses Projekt europäische Energiepolitik betrifft und dessen Belange daher nur seitens der beteiligten europäischen Länder
+entschieden werden sollten. Die USA hätten sich herauszuhalten, geschweige denn, einseitige Sanktionen
+zu verhängen.
+
+Andere deutsche Politiker äusserten sich weniger "diplomatisch" und noch klarer.
+So meinte Fabio Di Masi, Vize-Vorsitzeder der Linksfraktion im Bundestag laut einem Spiegel-Zitat von
+Sputnik:
+**"Der US-Botschafter hat offenbar den Eindruck gewonnen, er sei der Statthalter eines Imperators aus**
+**Washington in Deutschland", zitiert der Spiegel den Bundestagsabgeordneten. Extraterritoriale Sanktionen**
+gegen deutsche Unternehmen seien völkerrechtswidrig.
+
+~ Sputnik
+
+Und der stellvertretende Vorsitzende der SPD, Ralf Stegner, fragte in einem Twitter-Beitrag an:
+**"Ob Mister Grenell weiss, dass die Zeit der Hohen Kommissare in Deutschland vorbei ist?"**
+
+
+-----
+
+~ Sputnik
+Er spielt damit laut Spiegel Online auf die Rolle der Repräsentanten der westlichen alliierten Besatzungsmächte an, welche diese 1949 in Westdeutschland auszuüben begannen.
+Jürgen Hardt, der aussenpolitische Sprecher der CDU/CSU-Bundestagsfraktion bezeichnete Grenells Briefe
+an deutsche Firmen als "eine neue und unakzeptable einseitige Verschärfung des Tons im transatlanti**schen Verhältnis". Im Anschluss daran betonte er, die Bundesregierung solle dagegen protestieren.**
+~ Sputnik
+Die Reaktionen deutscher Politiker bringen genau auf den Punkt, was Grenell - als fleischgewordene Verkörperung US-imperialistischer Arroganz – mit seinem Verhalten ausdrückt: Dass die USA sich als Hegemonialmacht in Europa betrachten und Deutschland sowie andere europäische Staaten nichts anderes als
+ihre Vasallen sind – ähnlich den Provinzen im Römischen Reich, wie Germanien, Gallien etc.
+Natürlich fürchten die USA, ihr Vasall Deutschland könne ihnen politisch entgleiten, wenn er durch das
+Pipeline-Projekt einen engeren wirtschaftlichen Draht zu Russland entwickelt, das sie als oberste Bedrohung ihrer imperialen Stellung ansehen. An zweiter Stelle spielen natürlich US-Wirtschaftsinteressen eine
+Rolle: russisches Gas ist eine Konkurrenz für ihre eigenen durch Fracking gewonnenen Produkte, die für
+europäische Endverbraucher allerdings weit teurer wären als die russische Variante.
+Ein Punkt, der in dem obigen Drohbrief-Zitat von Grenell aufgebracht wird, ist natürlich auch die Ukraine –
+Dreh- und Angelpunkt anti-russischer Interessen der USA in Europa:
+"Im Ergebnis untergraben Firmen, die den Bau beider Pipelines unterstützen, aktiv die Sicherheit der Ukraine und Europas."
+Es bleibt natürlich ein Rätsel, wie das Projekt Nord Stream 2 die Sicherheit der Ukraine und Europas eigentlich konkret untergraben soll. Die Ukraine ist natürlich in der westlichen Propaganda-Rhetorik gegen
+Russland in den vergangenen fünf Jahren immer als das "arme, schwache und misshandelte Opfer" angebracht worden – man könnte meinen, dass die Verwendung in diesem Kontext vermutlich an den "emotionalen Nerv" der im Brief Angesprochenen appellieren soll.
+Was aber auch denkbar ist, laut Spiegel Online, dass die Ukraine und andere osteuropäische Staaten fürchten, dass ihnen Transitgelder entgehen, wenn der Durchfluss von Gas durch ihre Territorien nicht mehr
+genutzt werde.
+Die USA und die Ukraine, aber auch einige östliche EU-Staaten wie Polen, wollen das Projekt stoppen. Sie
+argumentieren mit der Bedrohung, die von Russland ausgehe. Für die Ukraine und andere osteuropäische
+**Länder sind Transitgebühren für russisches Gas zudem eine wichtige Einnahmequelle.**
+~ Spiegel Online
+In diesem Zusammenhang hatte Maas jedoch geäussert, dass Berlin Moskaus Zusicherung erhalten habe,
+dass der Gas-Transit auch nach Inbetriebnahme von Nord Stream 2 über die Ukraine (und andere Länder
+in Osteuropa) fortgeführt werde.
+Was Grenell und seine Drohbriefe angeht, sollte es im Aussen- sowie im Kanzleramt heute Beratungen
+geben, wie man weiter verfährt. Politiker hatten ausserdem gefordert, den US-Botschafter einzubestellen.
+In der Bundespressekonferenz heute wurde ausserdem ein Resümee veröffentlicht, das impliziert, dass
+Deutschland – zumindest was Nord Stream 2 angeht - sich nicht von den USA an der Leine zerren lassen
+will. Wenn deutsche Politiker und die am Projekt beteiligten Unternehmen dieses auch bis zum Ende durchziehen, anstatt sich von derartigen Drohungen einschüchtern zu lassen, wäre das ein positiver Schritt. Denn
+diese wirtschaftliche Zusammenarbeit mit Russland könnte dann auch eine solidere politische Wiederannäherung wahrscheinlicher werden lassen – vorausgesetzt, dass vernünftigere Politiker ihren Einfluss in
+Berlin geltend machen und die Interessen Deutschlands gegenüber denen der USA durchsetzen könnten.
+Quelle: https://de.sott.net/article/33219-Drohbriefe-wegen-Nord-Stream-2-US-Botschafter-zeigt-dass-Deutschlandnur-Vasall-von-Washington-ist
+
+
+## Milliarden für Migranten:
+
+
+## Deutschland schuftet für ein herzliches Willkommen
+
+Veröffentlicht am 14. Januar 2019
+
+
+Vera Lengsfeld
+
+**V O N R A M I N P E Y M A N I A U F** **L I B E R A L E W A R T E**
+
+Der Bund hat 2018 einen Überschuss von 12,8 Milliarden Euro erzielt. Um es ganz genau zu sagen:
+Deutschlands Steuerzahler haben diesen Mehrertrag erwirtschaftet. Die gute Beschäftigungslage und die
+Konsumfreude der Bürger spülen immer mehr Steuereinnahmen in den Topf, aus dem sich der Staat
+finanziert. Der enorme Haushaltsüberschuss könnte für vieles verwendet werden. Einen Teil des Geldsegens
+könnte man zum Schuldenabbau nutzen. Ebenso schreit eine jahrelang vernachlässigte Verkehrsinfrastruktur geradezu nach Milliardeninvestitionen. Auch das Schliessen der grossflächigen Funklöcher, den
+Breitbandausbau oder die Digitalisierung in den Schulen die teilweise noch auf dem Stand des letzten
+
+
+-----
+
+Jahrhunderts sind, könnte man sich gut vorstellen. Und wenn einem schon nichts Besseres einfällt, warum
+nicht einfach einen Teil des Geldes über Steuersenkungen an die Bürger zurückgeben? Weit gefehlt. Die
+Politik denkt gar nicht daran, ihrer Milchkuh eine Verschnaufpause zu gönnen. Bundesfinanzminister Olaf
+Scholz plant offenbar gar Steuererhöhungen. Die Zeiten würden schlechter, jammert er bereits, um die
+geschröpften Steuerzahler darauf einzustimmen, dass sie künftig noch stärker zur Ader gelassen werden.
+Eine Gruppe ist von allem Übel aber ausgenommen: Während der fleissige Michel mehr und mehr in die
+Pflicht genommen wird, soll der allergrösste Teil der zusätzlichen Steuereinnahmen, sage und schreibe
+11,2 Milliarden Euro, der sogenannten Rücklage für Flüchtlingskosten zugeführt werden, die ohnehin mit
+fast 25 Milliarden Euro schon prall gefüllt ist.
+**Die üppige Aufstockung der „zusätzlichen Leistungen zur Unterbringung und Integration der Flüchtlinge“**
+**dürfte wie ein Magnet auf Migranten wirken**
+Schaut man in die Nachbarländer, in denen sich immer mehr Frust darüber entlädt, dass eine völlig ausser
+Kontrolle geratene Politikerkaste die Bürger für ihre eigene Agenda missbraucht, grenzt es fast an ein Wunder, mit welchem Langmut Deutschlands Arbeiter und Angestellte hinnehmen, dass sie erneut einen zweistelligen Milliardenbetrag an Zuwanderer abgeben müssen, die ihre Reise ins gelobte Land des „All inclusive“-Sozialstaats erfolgreich bewältigt haben. Diese werden – nicht nur in der Bezeichnung des Fördertopfs
+– weiterhin als „Flüchtlinge“ zusammengefasst, obwohl inzwischen auch der Letzte begriffen hat, dass es
+sich fast ausschliesslich um Wirtschaftsmigranten handelt. Die üppige Aufstockung der Rücklage, aus der
+„zusätzliche Leistungen zur Unterbringung und Integration der Flüchtlinge“ finanziert werden sollen, dürfte
+wie ein Magnet wirken. Denn derlei spricht sich schnell herum in einer globalisierten Welt, in der die sozialen
+Netzwerke auch den letzten Winkel des Erdballs erreichen. Mit dem Migrationspakt und dem Flüchtlingspakt der Vereinten Nationen ist es – mehr denn je – ohnehin ein Kinderspiel, seinen Verbleib in Deutschland
+zu sichern. Man muss nicht einmal mehr das Zauberwort „Asyl“ aussprechen können. Die Berufspolitik
+weiss natürlich ganz genau, welch gewaltige Welle sie mit der Unterschrift unter die UN-Vereinbarungen
+angestossen hat und welche Kostenlawine damit ins Rollen gekommen ist. Schon mutmassen Haushaltsexperten, dass in den kommenden vier Jahren insgesamt 100 Milliarden Euro in der Kasse fehlen könnten.
+**Man darf skeptisch sein, ob es klug ist, Entwicklungshilfeempfänger nicht in der Heimat zu stärken, son-**
+**dern zur Versorgung nach Deutschland zu holen**
+Umverteilungssysteme sind das Manna der heutigen Politik, und so widmen die Verantwortlichen ihre Aufmerksamkeit nicht etwa der Frage, wie der Staat effizient geführt, die Infrastruktur modernisiert oder die
+Sicherheit der Bürger gestärkt, sondern mithilfe welcher Transfermechanismen Gelder zur Alimentierung
+umgelenkt werden können. Nach dem Länderfinanzausgleich und der auf europäischer Ebene installierten
+Transferunion ist es nun also ein weltweites Umverteilungsnetzwerk, das unter Federführung Deutschlands
+geknüpft wird. Man darf skeptisch sein, ob es eine kluge Idee ist, die Empfänger der Entwicklungshilfe nicht
+mehr in ihrer Heimat zu stärken, sondern zur Versorgung nach Deutschland zu holen, von wo aus sie die
+erhaltenen Sozialleistungen nach Hause schicken. Denn während bei Ihnen, lieber Leser, das Schwimmbad
+zumacht, kulturelle Veranstaltungen rar werden und Strassen verrotten, freut sich jemand in einer Lehmhütte in Asmara oder in einem der Armenviertel von Damaskus darüber, dass es einer aus seinem Clan ins
+goldene Europa geschafft hat und dort von der arbeitenden Bevölkerung finanziert wird, um den Daheimgebliebenen so lange ein auskömmliches Dasein zu sichern, bis sie sich selbst auf den Weg machen. Die
+gesellschaftlichen Folgen dieser fehlgeleiteten Politik zeigen sich bereits seit geraumer Zeit, bald werden
+wir auch die finanziellen Folgen spüren. Wie sagte Olaf Scholz doch gleich: „Die fetten Jahre sind vorbei!“
+Er vergass jedoch hinzuzufügen, dass dies nur für diejenigen gilt, die schon länger hier leben.
+Quelle: https://vera-lengsfeld.de/2019/01/14/milliarden-fuer-migranten-deutschland-schuftet-fuer-ein-herzlicheswillkommen/
+
+## Die Angst der Politiker vor der Bevölkerung
+
+Veröffentlicht am 15. Januar 2019
+
+
+Vera Lengsfeld
+Kaum eine Stunde vergeht, ohne dass ein Politiker der Altparteien betont, er und seine Kollegen seien die
+Demokraten in unserem Land und bereit, unsere Demokratie aktiv zu verteidigen.
+Wie die Realität aussieht, konnte man am 14. Januar bei der öffentlichen Anhörung des Petitionsausschusses zur Petition gegen den Migrationspakt erleben.
+Es ist bisher einmalig in der Parlamentsgeschichte, dass innerhalb eines Vierteljahres die zweite öffentliche
+Anhörung angesetzt werden musste, weil eine Petition das Quorum von 50 000 Unterstützern innerhalb
+eines Monats nicht nur erfüllt, sondern übererfüllt hatte. Im diesem Falle waren es trotz aller technischen
+Ausfälle des Bundestagsservers und der teilweise verspätet geschickten Bestätigungsmails, so dass die
+Stimmen wegen Ablaufs der Laufzeit nicht mehr gezählt wurden, über 107 000 Unterstützer.
+
+
+-----
+
+Wie viele Petitionen zum Thema Migrationspakt insgesamt eingereicht wurden, war nicht zu erfahren. Das
+Mitglied des Petitionssauschusses Gero Storjohann sprach bei einem Treffen mit Petra Paulsen von über
+200 Petitionen. Der Ausschussvorsitzende Marian Wendt wollte diese Zahl mir gegenüber nicht bestätigen,
+obwohl er selbst der Berichterstatter ist, also informiert sein müsste, wenn er seine Aufgabe ernst nimmt.
+Das Besondere an der öffentlichen Anhörung ist, dass nicht nur interessierte Bürger daran teilnehmen
+können, sondern dass sie im Parlamentskanal übertragen wird und später im Internet abrufbar ist.
+Allerdings gab es auch diesmal Probleme. Es hatten nicht alle, die sich zur Teilnahme angemeldet hatten,
+eine Bestätigungsmail erhalten. Die mussten draussen bleiben, obwohl auf der Besuchertribüne noch einige
+wenige Plätze frei waren.
+Die Anhörung sollte von 12:00 bis 13:00 Uhr dauern. Der Ausschussvorsitzende eröffnete leicht verspätet
+die Sitzung und ermahnte als Erstes die Besucher auf der Tribüne, von Beifalls- oder Missfallenskundgebungen abzusehen. Auch Transparente oder Poster hochzuhalten, sei nicht erlaubt. Dann wurden noch
+einmal die Regeln erklärt. Der Petent hatte zu Beginn die Gelegenheit, das Anliegen seiner Petition in fünf
+Minuten vorzustellen, daran anschliessend folgte die Fragerunde. Für jede Fragestellung und die Antwort
+waren je eine Minute vorgesehen. Für die Bundesregierung sass der Staatsminister im Auswärtigen Amt
+Niels Annen in der Runde. Was der Ausschussvorsitzende dem Publikum verschwieg, war, dass es sich bei
+der verhandelten Petition um eine so genannte Leitpetition handelte, die stellvertretend für alle anderen
+Petitionen zum Thema besprochen wurde.
+Bezeichnend ist, dass die Linke und die Grünen, zwei Parteien, die in ihren Programmen für mehr Bürgerbeteiligung und Volksabstimmung plädieren, gegen die öffentliche Anhörung gestimmt haben.
+Ausgewählt hatten die Obleute die Petition 21 von Herrn Englmeier. Wenn das mit der Hoffnung verbunden
+gewesen war, dass die Petition eines Einzelkämpfers nicht die notwendige Unterstützung erfahren würde,
+hatten sich die Herren und Damen Abgeordneten getäuscht.
+Wenn die Abgeordneten weiter gehofft hatten, sie könnten einen Einzelkämpfer ohne Erfahrung in der Politik blossstellen, war auch das vergeblich. Ich wurde vom Ausschussvorsitzenden streng ermahnt, dem
+Petenten während der Sitzung keine Hinweise zu geben, sonst würde ich sofort aus dem Sitzungsraum
+entfernt. Hinweise waren nicht nötig. Herr Englmeier war brillant, und er führte die Abgeordneten vor.
+Beispiel: Ein Unions-Abgeordneter fragte, ob der Petent denn gegen Multilateralismus und damit gegen die
+Kooperation mit anderen Staaten in der Migrationsfrage sei. Englmeier konterte, dass er sich Zusammenarbeit mit den europäischen Staaten, vor allem den osteuropäischen, wünsche, nicht mit Staaten wie Saudi
+Arabien oder anderen Diktaturen.
+Übrigens war das eine der ganz wenigen Fragen, die dem Petenten gestellt wurde, die meisten richteten
+sich an den Vertreter der Bundesregierung. Offenbar hatten die Abgeordneten der Altparteien aus der öffentlichen Anhörung zur Gemeinsamen Erklärung 2018 die Schlussfolgerung gezogen, die Petenten möglichst wenig zu Wort kommen zu lassen.
+Jeder Abgeordnete kann die Regierung zu Beginn jeder Sitzungswoche befragen, dafür gibt es eine spezielle
+Fragestunde. Bei einer öffentlichen Anhörung dienen die Fragen an die Regierung dazu, die Zeit für den
+Petenten zu beschneiden. Zusätzlich darf der Petent der Regierung keine Fragen stellen.
+Annen als Vertreter der Bundesregierung machte eine jämmerliche Figur. Bei seinen Ausführungen fühlten
+sich die Besucher auf der Tribüne zu Recht auf den Arm genommen, was zu Missfallenskundgebungen bei
+fast allen seinen Ausführungen führte.
+Er verstieg sich zu der Behauptung, die Bevölkerung wäre rechtzeitig und umfassend über den Migrationspakt informiert worden, obwohl er eingestehen musste, dass die deutsche Übersetzung erst im Oktober
+vorlag. Man hätte sich auf den Seiten der UNO über die Verhandlungsschritte informieren können. Wie man
+das tun kann, ohne zu wissen, was die UNO vorhat, liess er im Dunklen. Die deutsche Regierung wäre von
+Anfang an aktiv an den Verhandlungen beteiligt gewesen. Da fragt man sich, wieso dann von den Interessen
+und Bedürfnissen der aufnehmenden Gesellschaften im Vertrag kaum etwas zu finden ist.
+Wie dieser Pakt zur Reduzierung der Migration führen soll, was Annen stur behauptete, wurde von ihm
+ebenfalls nicht belegt. Dagegen wurde wieder betont, der Pakt würde dazu führen, dass alle Länder ihre
+Standards für die Behandlung von Migranten anheben müssten, bis hin zum deutschen Vorbild, was
+freundlich gesagt Wunschdenken ist. Nicht einmal alle europäischen Länder könnten, selbst wenn sie wollten, deutsche Standards übernehmen, weil die Sozialhilfesätze bei uns noch über den dortigen Durchschnittseinkommen liegen.
+Die Bundeskanzlerin wäre selbst nach Marrakesch geflogen, um die Bedeutung, die sie dem Migrationspakt
+beimisst, zu unterstreichen. Dort redeten vor und nach ihrem Auftritt Diktatoren, was deutlich macht, wer
+die wirklichen Profiteure des Paktes sind.
+Wer wissen will, wie inkompetent und ignorant unsere Bundespolitiker sind, sollte sich die knappe Stunde
+Zeit nehmen und sich die Veranstaltung anschauen. Die grüne Abgeordnete Rottmann verwechselte sogar
+den Flüchtlings- mit dem Migrationspakt, oder ihr ist der Unterschied zwischen beiden Pakten nicht klar.
+Die kurzen, aber präzisen Hinweise des Verfassungsrechtlers Ulrich Vosgerau, der Englmeier bei der Anhörung unterstützte, versetzten die Abgeordneten offenbar in Angst und Schrecken. Als er am Ende der
+
+
+-----
+
+Fragerunde der Abgeordneten Rottmann antworten wollte, wurde er vom Ausschussvorsitzenden Wendt
+rüde daran gehindert. Angeblich sei die Zeit abgelaufen. Dabei war es erst 12.55, wie die Uhr im Sitzungssaal anzeigte.
+Die Volksvertreter, das zeigt die Anhörung in aller Deutlichkeit, fühlen sich durch das Volk gestört. Einen
+Beschluss, wie mit der Gemeinsamen Erklärung gegen die ungebremste Illegale Einwanderung, deren öffentliche Anhörung bereits im Oktober stattgefunden hat, umgegangen wird, gibt es bis heute nicht. Die
+Berichterstatter hätten ihre Voten noch nicht abgegeben, teilte mir Wendt mit. Hier soll das Problem offenbar verschleppt werden, in der Hoffnung, dass eines Tages niemand mehr nachfragt. Diese Hoffnung ist
+vergeblich. Wir werden weiter Druck machen.
+Für uns war die Anhörung ein grosser Erfolg. Wenn genügend viele Bürger sich in ihre eigenen Angelegenheiten einmischen, können sie die Abgeordneten zwingen, ihnen Rede und Antwort zu stehen. Aus der Art,
+wie die Politiker versuchen, sich der Auseinandersetzung mit ihren Wählern zu entziehen, sollte jeder seine
+Schlüsse für die Wahlen in diesem Jahr ziehen.
+Quelle: https://vera-lengsfeld.de/2019/01/15/die-angst-der-politiker-vor-der-bevoelkerung/
+
+
+## Paris: Macron liess Einsatzpolizei CRS mit G36-Sturmgewehren
+
+
+## gegen Gelbwesten aufmarschieren
+
+16.01.2019 • 09:56 Uhr https://de.rt.com/1rpa
+
+
+C @anonymecitoyen
+
+Kracht es bald richtig? Französische Einsatzpolizei CRS mit G36-Sturmgewehren
+
+bei Gelbwesten-Protest (Ausschnitt aus privater Videoaufnahme, veröffentlicht am 12.01.2019)
+
+Einsatzpolizisten der französischen Compagnies Républicaines de Sécurité (CRS) sind bei Gelbwesten-Protesten in Paris mit G36-Sturmgewehren gesehen worden. Diese sollen laut Presseberichten nicht mit Gummigeschossen, sondern mit scharfer Munition geladen gewesen sein.
+Die französischen Compagnies Républicaines de Sécurité (CRS, dt.: Sicherheitskompanien der Republik)
+sind in Paris bei ihrem Einsatz bei Protesten der Gelbwesten nun mit Sturmgewehren der Modellreihe G36
+des deutschen Herstellers Heckler & Koch gesichtet worden. Das Brisante daran: Diese Waffen sollen nicht
+mit den für die Nutzung durch die Einsatzpolizei typischen Patronen mit Gummigeschossen, sondern laut
+_Daily Mail mit scharfer Munition geladen sein._
+Luc Ferry, Frankreichs ehemaliger Minister für Bildung, hatte zuvor zum Einsatz scharfer Munition gegen
+die Gelbwesten aufgerufen, die, so der pensionierte erzkonservative Politiker, angeblich "Polizisten vermöbeln" würden. Es ist, als käme die Ersterscheinung solcher Waffen bei Demonstrationen der Gelbwesten auf
+sein Geheiss.
+Bisher seien die Gewehre nicht zum Einsatz gebracht worden, schreibt Daily Mail weiter. Jedoch machen
+sich Demonstranten grosse Sorgen ob der Entwicklung. Die für diese Art von Polizeieinheit untypische
+Bewaffnung lässt die Menschen Übles ahnen:
+Die CRS-Leute mit den Gewehren hatten Schutzhelme und Körperprotektoren an – sie gehörten keiner
+Einheit an, die sich auf Feuerwaffeneinsatz spezialisiert. Sie hatten die Aufgabe, uns einfach mit tödlichen
+
+
+-----
+
+Waffen zu bedrohen, und zwar in einer sehr besorgniserregenden Manier. Wir haben ein Anrecht auf Erklärungen", zitiert Daily Mail den Protestierenden Gilles Carron.
+Gemäss einer ihrer Hauptaufgaben – nämlich Demonstrationen und Grossveranstaltungen abzusichern
+sowie Ausschreitungen zu unterbinden – können Beamte der CRS durchaus Feuerwaffen einsetzen. Diese
+seien jedoch üblicherweise speziell für das Abfeuern von nicht-ganz-so-tödlichen Hartgummigeschossen
+und Tränengas-Granaten konstruierte Spezialwaffen der Marke Flash-Ball, leicht zu erkennen an ihren breiten Rohren, so Daily Mail weiter.
+
+Quelle: Reuters
+
+Französischer Polizist mit Gummigeschosswerfer der Marke Flash-Ball
+
+bei Gelbwesten-Demo in Paris, 05. Januar 2019.
+
+
+**Scheint eine Absicht durch?**
+Theoretisch wäre demnach auch der Einsatz der Sturmgewehre zum Verschiessen von weniger tödlichen
+Gummi- oder Plastikgeschossen denkbar (auch wenn diese entgegen der Absicht und der Werbung durchaus töten können): Patronen mit solchen Geschossen im Kaliber des G36, 5,56x45mm NATO, gibt es sehr
+wohl auf dem Markt. Allerdings haben solche Patronen – vor allem die Geschosse selbst – normalerweise
+charakteristische Farben.
+Nun nutzt aber die französische Polizei für ihre G36-Sturmgewehre die für diese Modellreihe typischen
+durchsichtigen Kastenmagazine – und die Farbe und der Glanz der Patronen und Geschosse darin, soweit
+man sie durch das Plastik erkennen kann, scheinen der normalen "scharfen" Munition zu entsprechen.
+Hierauf scheint sich der Anlass zur Nachricht der Daily Mail zu gründen – ebenso wie die Sorgen um Leib
+und Leben, die bei den Protestierenden aufkommen und die sie in den sozialen Medien kundtun:
+Diktator Macron hat seine Milizen bewaffnet! Die CRS gehen mit STURMGEWEHREN spazieren!!"
+Für die Akte IX der #Gilets Jaunes in Paris sind die CRS jetzt mit Sturmgewehren bewaffnet. [Aber] wir sind
+
+[doch schon noch] in Frankreich?"
+Vielleicht von Luc Ferry auf den Plan gerufen: Die neue Ausrüstung unserer lieben CRS: Das G36K, mit 30Schuss-Kastenmagazin… Man ist gespannt auf die Flammenwerfer in der nächsten Woche."
+In Toulouse: Die CRS mit Sturmgewehren bei einer Demo von 70 Schülern. Mich beunruhigt das mehr als
+alles Andere."
+Nach Tränengas, dem Flashball und [anderen] Gummigeschosswerfern, Wasserwerfern und den Tasern ist
+nun ein G36 die Norm bei einer Demo…"
+Wenigstens bei den statischen Absperrungen scheint eine solche Bewaffnung legitim:
+Hinter den Absperrungen beim Triumphbogen – die statischen Positionen der Polizei und der Gendarmerie.
+Einer der CRS holt eine Maschinenpistole aus dem Kastenwagen.
+'Wozu denn die Maschinenpistole?'
+'Für die Terroristen, mein Herr.'
+Wie sicherlich auch der Panzerwagen…"
+Was der Twitter-Nutzer sicherlich sarkastisch meinte, könnte nämlich bitterer Ernstfall werden, kann doch
+ein einziger in eine Demonstration rasender LKW grosses Unheil anrichten.
+Doch auch in solch einer beunruhigenden Atmosphäre behält man den landestypischen Charme bei:
+Das ist doch nur eine Demo – du ziehst nicht in den Krieg, meine Schöne!"
+
+
+-----
+
+Man kann es zumindest hoffen.
+Quelle: https://deutsch.rt.com/europa/82558-kracht-es-bald-richtig-franzosische-einsatzpolizei-mit-g36-sturmgewehren-bei-gelbewesten-demo/
+
+## Schleichende Enteignung, aber wer merkt das schon? 5/5 (1)
+
+**Von News-for-Friends 16. Januar 2019**
+
+
+**Enteignung von A bis Z – von Lebensversicherungen über Nullzinspolitik … usw.**
+
+
+Ich weiss nicht ob Du auch schon die schleichende Enteignung mitbekommen hast, oder ob Du noch immer
+auf Wolke 7 schwebst und weiter daran glaubst, dass auch der nächste Finanz-Crash nach 2008 nochmals
+an Dir vorbeirauscht. Ich weiss es halt nicht! Aber eines weiss ich ganz genau, dass wenn Du nicht bald in
+die Gänge kommst und weiterhin alles glaubst, was Dir der Mainstream täglich aufs Butterbrot schmiert,
+dann wird für Dich die Sache wahrlich nicht gut ausgehen. Das riecht leider stark nach Verelendung und
+unter der Brücke schlafen, oder auch, wenn die Not am Grössten ist, freiwillig aus Deinem bisschen Leben
+auszusteigen.
+Willst Du es wirklich so weit kommen lassen, oder schlummert in Dir vielleicht doch ein Tiger, der bereit ist,
+für sein Hab und Gut zu kämpfen? Wenn ja, wenn das Dein letzter Wille ist, dann ist Dir dieser Beitrag
+gerade noch zur rechten Zeit zugefallen. Also hör nun gut zu, denn jetzt werde ich Dir von A bis Z die
+Instrumente, welche für die Enteignung stehen, um die Ohren hauen.
+Nun, schön der Reihe nach!
+Der Reihe nach von schleichender Enteignung bis zum Turbo-Enteignungsinstrument. Also von „A“ wie
+Kapitallebens- und Rentenentsorgungsversicherungen über „B“ zur Nullzins- bzw. Minuszinspolitik zu „C“,
+das für eine 10 prozentige Vermögensabgabe steht, zum vorletzten Punkt „D“, dem Punkt der Grundsteuerreform. Und zu guter Letzt der Punkt „E“, dem Turbo-Beschleuniger überhaupt, der Zwangsenteignung
+über eine Zwangssicherungshypothek, welche allen Immobilienbesitzern per Knopfdruck zufallen wird.
+Elektronisch halt – genau deswegen wurden ja auch elektronische Grundbücher erschaffen! Wobei hier
+aber erwähnt werden muss, dass die Buchstabenfolge natürlich belanglos ist. Wichtig ist nur das, was
+dahintersteht.
+Kapital-Lebensversicherungen
+
+**Die klassische Variante, die seit Jahrzehnten erfolgreich praktiziert wird**
+Bist Du bereit? Nun, dann fang ich jetzt mal mit der klassischen Variante, der guten alten Lebensversicherung, an. Dieses Produkt hat sich ja seit Jahrzehnten zur Vermögensvernichtung bestens bewährt. Und
+warum? Ganz einfach: Die Masse Mensch hat halt bis heute den Betrug, der dahintersteht, nicht wirklich
+bemerkt. Der Betrug, dass bei der Vermischung einer Risikoversicherung mit einem Sparplan und einer
+erbärmlichen Rendite, welche u.a. auch die hohen Kosten für die Verwaltung und die üppigen Provisionen
+für den „Berater“ geschuldet sind, für den Sparer nicht wirklich was übrig bleibt, ausser dem investierten
+Geld ein paar Tränen nachzuweinen! Der Chef des Vereins vom Bund der Versicherten wird da ganz wuschelig. Er sagt:
+_„Kapital-Lebensversicherungen sind legaler Betrug. Sie rentieren sich eigentlich nie; ausser, man stirbt sofort_
+_nach Vertragsabschluss“. [[1]]_
+Diese Aussage ist jedoch stark untertrieben, denn durch die anhaltende Finanzkrise droht den Sparern
+neues Ungemach. Da bei dieser Sparanlage die Kundengelder grösstenteils in Staatsanleihen fliessen steht
+die Auszahlung nun mehr als auf tönernen Füssen. Na klar, denn Du weisst doch mittlerweile durch meine
+unzähligen Beiträge, wie das Geldsystem funktioniert, und deshalb weisst Du auch, dass ein auf Schuldenausweitung basierendes Geldsystem auf Dauer nicht funktionieren kann.
+Somit steht hier ein weiteres Mal in der Geschichte der Schuldenschnitt vor der Türe. Die versprochenen
+Renditen und Auszahlungen kannst Du Dir deshalb gleich abschminken. Okay, noch läuft das Betrugssystem. Und warum? Ganz einfach, wie bei einem Schneeballsystem üblich, erfolgen die Auszahlungen weiter
+über zufliessende Beiträge.
+
+**Deckungslücke**
+
+_„Hier entsteht nun eine wachsende Deckungslücke, denn während einerseits immer mehr Verträge der gebur-_
+_tenstarken Jahrgänge zur Auszahlung fällig werden, schliessen auf der anderen Seite immer weniger junge_
+_Menschen eine Lebensversicherung ab. Dies liegt neben der demographischen Entwicklung und dem sinkenden_
+_Garantiezins auch an der zunehmenden Aufklärung der jungen Menschen darüber, wie solche Systeme funkti-_
+_onieren. Diese Aufklärung findet statt, auch wenn diese wichtigen Themen in den staatlichen Schulen nach wie_
+_vor kaum behandelt werden.“[[2]]_
+Wie lange jedoch dieses Schneeballsystem noch funktionieren kann, das hängt also davon ab, wie viele
+Menschen sich noch in dieses Betrugssystem – Schneeballsystem – hineinziehen lassen. Du verstehst dabei
+schon, dass genau diese Sorge auch die Versicherer umtreibt und dass den Versicherten nun als Ergebnis
+das eigens dafür geschaffene § 89 Versicherungsaufsichtsgesetz zugefallen ist.
+
+
+-----
+
+Schneeballsystem unter staatlicher Aufsicht
+Ein Gesetz, wo es den Versicherungsgesellschaften weiterhin erlaubt wird, das Schneeballsystem, unter
+“staatlicher” Aufsicht, bis zum St. Nimmerleinstag weiter zu führen. Ein Gesetz, wo es den Versicherungen,
+selbst bei einem drohenden Konkurs, erlaubt wird, die Auszahlungen ganz oder zeitweise zu stoppen. Und
+jetzt der Knaller!
+_„Festgelegt wurde ausserdem, dass die Pflicht der Versicherungsnehmer, die Versicherungsentgelte in der bis-_
+_herigen Höhe weiterhin zu bezahlen, vom Auszahlungsstopp unberührt bleibt.“ [[3]]_
+So viel zu der schleichenden Enteignung, die über die Lebensversicherung mit den passenden neuen Gesetzen den Versicherungskunden zufallen. Natürlich wird es so kommen, denn mit dem weiteren Instrument, der Nullzins- und Negativzinspolitik, können die Versicherungsunternehmen schon lange nicht mehr
+den Garantiezins zur Auszahlung bringen.
+
+**Nullzins- bzw. Negativzinspolitik**
+
+Nun, ob Du in diesem legalen Betrug investiert bist, das ist eigentlich egal, denn durch die Nullzins- bzw.
+Negativzinspolitik wird Dir „leider“ ja Jahr für Jahr weiteres Vermögen aus der Tasche gezogen. Ja, durch
+diese Po-Po-litik – was halt Arschlöchern eingefallen ist – wird der Sparer, und somit auch das Sparschwein
+Schritt für Schritt geschlachtet. Ein Beispiel soll das verdeutlichen. Nehmen wir mal an, Du hast so ca.
+10.000 Teuros auf der „hohen Kante“ und findest eine Spasskasse, welche Dir ein Zinsertrag von 0,1 Prozent auf 5 Jahre, also 500 EUR, garantiert.
+Nehmen wir nun weiter an, dass die durchschnittliche Inflationsrate bei 2 % liegt, dann hat Deine „Geldanlage“ nach 5 Jahren noch eine Kaufkraft von schlappen 9.057,31 EUR. Kurz und knapp: Dir fallen nach 5
+Jahren ca. 500 EUR als VERLUST zu! Wahrlich ein tolles Geschäft – gell? Etwas zügiger ist jedoch die
+Enteignung über eine 10-prozentige Vermögensabgabe zu verwirklichen. Lach nicht, denn das ist das
+nächste Instrument um die Enteignung der Sparer etwas flotter voranzutreiben.
+10 Prozent Vermögensabgabe auf Alles
+Schau mich nicht so ungläubig an. Dieser Vorschlag kommt nicht von mir! Dieser Vorschlag stammt vom
+Internationalen Währungsfond (IWF). Und dieser Schlag ins Gesicht der Sparer soll eine Zwangsabgabe in
+Höhe von 10 % auf private Kapitalvermögen sein. Und zwar auf alle Wertpapiere, Spar- und Spassvermögen, sowie auch auf alle Immobilien. Und, wie gefällt Dir das? Was noch? Ach ja, diese Enteignung soll,
+aufgrund der schrägen Staatsverschuldung, die sich bisher weltweit auf 226 Billionen Teuros hochgeschaukelt hat, zumindest in der Euro-Zone möglichst zeitnah, schnell und überraschend erfolgen. [[4]] Lach nicht!
+Für Wolfgang Schäuble, unserem ehemaligen Finanz-Geldvernichter, ist die Sparer-Enteignung selbstverständlich eine tolle Variante, um die man nicht herumkommt.
+
+**In Zypern feierte diese Art der Enteignung Premiere**
+
+Diese Art der Enteignung gilt mittlerweile in der Eurogruppe als fester Bestandteil der Finanzpolitik. Weisst
+Du, und das ist meine nächste Frage, dass dieses Instrument der Enteignung zum ersten Mal in Zypern
+erfolgreich angewendet wurde? Also mach Dir deshalb doch nichts vor! Die pauschale Beteiligung der Bürger hat bei einer Bankenabwicklung im geplanten Abwicklungsregime einen festen Platz gefunden. Tritt
+nun der unvorstellbare Fall ein – also das, was Du Dir noch immer nicht vorstellen kannst, oder auch nicht
+willst –, dass die Banken in Europa schlapp machen, dann werden die Beteiligten nach einer streng festgelegten Prioritätenliste abgefertigt. Da steht dann die Bank an erster Stelle. Das hört sich zwar im ersten
+Augenblick gut an, aber bitte lass Dich von dieser Prioritätenliste nicht blenden.
+Und warum? Ganz einfach ist es so, dass bei einem Mega-Crash die Banken, wegen totaler Überschuldung,
+diese Schulden, aufgrund ihres nicht mehr vorhandenen Eigenkapitals, nicht mehr stemmen können. Also
+fällt dieser Schuldner auf jeden Fall aus. An nächster Stelle trifft es die Anleihehalter und zum Schluss den
+Sparer – also Du und ich halt! Nein, in letzter Instanz würde der gemeinschaftliche Rettungsfonds ESM
+greifen, wobei wir auch wieder genau genommen beim Sparer sind. Übrigens, dieses Instrument der Enteignung wurde schon nach dem Ersten und Zweiten Weltkrieg umgesetzt. [[5]]
+
+
+**Grundsteuerreform**
+
+
+Ich komme nun zum vorletzten Punkt – ich komme zur Grundsteuerreform. Und wie es Reformen so an
+sich haben, bedeutet diese Reform natürlich wieder mal eine höhere Besteuerung der bescheuerten Besteuerten. Und so soll nach den Plänen der bunten Regierung „Deutsch“ die Neubewertung der Immobilien
+zum Stichtag am 1. Januar 2022 erfolgen.
+_„Der Staat will anscheinend ordentlich abkassieren. Es reicht nicht aus, dass Bürger unter den explodierenden_
+_Miet- und Kaufpreisen für Immobilien leiden. Diese Reform ist für den Staat eine neue Einnahmequelle und_
+_Möglichkeit, die Bürger weiter zu enteignen. Es ist zu befürchten, dass die Konsequenzen für Immobilieneigen-_
+_tümer und Mieter deutlich sein werden. Betroffen sind in Deutschland rund 35 Millionen Grundstücke.“ [[6]]_
+Und schon bin ich beim letzten Punkt. Dem Punkt, wo der Turbo-Beschleuniger zur Enteignung gezündet
+wird. Dafür sorgt eine lockere, per Mausdruck getätigte Eingabe ins Grundbuch.
+
+**Zwangssicherungshypothek**
+
+Hier möchte ich mich nun kurzfassen. Das, was im Jahre 2019 auf Immobilienbesitzer zukommt, ist, so viel
+möchte ich schon mal verraten, mit dem Instrument zu vergleichen, was nach dem 2. Weltkrieg den Namen
+
+
+-----
+
+„Lastenausgleich“ trug. Da ich jedoch schon so viele Zettel vollgeschrieben habe, bitte ich Dich darum
+selber eigene Recherchen anzustellen. Du kannst Dir dabei zum Beispiel auch ein Gesetz, welches im Sommer 2017 verabschiedet wurde und sich Finanzaufsichtsmarkt-Ergänzungsgesetz nennt, anschauen.
+
+**Per Gesetz in den Ruin**
+
+Ein Gesetz, das es nun den Banken per Gesetz zur Pflicht macht, Deine Immobilie zwangsweise zu enteignen, wenn Du als Hypothekenschuldner Deine Bonität verlierst. Und diese Bonität verlierst Du, so das Gesetz, wenn Du schlicht und ergreifend arbeitslos wirst. Also wirst Du, selbst wenn Du den Schuldendienst
+mit anderen Mitteln selber weiter leisten kannst, per Gesetz zwangsenteignet. Wie findest Du das?
+Okay, zu diesem Themenkomplex guckst Du Dir bitte das passende Video an. Diesen Beitrag findest Du
+hier:
+Ich bin dann mal weg, denn ich muss mich ja noch um eine Lösung, wie ich mich vor dieser Zwangsenteignung retten kann, selber kümmern. Die Lösung, welche ich im Video gefunden habe.
+Lösungsmöglichkeiten
+
+**Sich für den Erhalt des Bargeldes einsetzen**
+
+Ach ja, rette Dein Vermögen, so lange es noch möglich ist. Sorry, fast hätte ich das Wichtigste vergessen.
+Und das wäre der folgender Punkt:
+
+**Mit einem Bargeldverbot, das auch noch auf uns zukommt, werden die zuvor beschriebenen Punkte ein-**
+**facher umzusetzen sein. Deshalb wäre es nett, wenn Du Dich für den Erhalt des Bargeldes einsetzt. Und**
+**warum? Ganz einfach: Wer Bares hat, der behält sich ein Stück Freiheit!**
+
+Nein, Du kannst natürlich noch viel mehr tun! Du kannst wahrlich Deinen Hintern retten. Die Enteignung
+wird bei Dir, wenn Du diese Instrumente zur Enteignung kennst und in die Lösung gehst, nicht mehr funktionieren! Ganz klare Sache, denn wenn Du, wie ich Dir es ja beschrieben habe, in die Lösung gehst, dann
+wird alles gut. Zumindest wird alles so gut, wie Du es Dir persönlich gerade vorstellen kannst!
+
+
+**Keine Immobilie auf Kredit bzw. Schuldenabbau hat höchste Priorität**
+
+
+Dabei ist die Lösung, wie ich es hier angeboten habe, sprich, dass Du Dich von Kapital-Vernichtungssparplänen löst, aber auch nicht mehr eine Immobilie auf Kredit kaufst, sicher der erste Schritt in die FREIHEIT!
+Was, Du bist noch unsicher? Für Dich ist das alles, was ich geschrieben habe ein Buch mit sieben Siegeln?
+Auch kein Problem! Auf der Weltnetzseite von blaupause.tv und Erich-Hambach.de findest Du zuverlässige
+Hilfe.
+**Quelle : http://brd-schwindel.ru/schleichende-enteignung-aber-wer-merkt-das-schon/**
+Quelle: https://news-for-friends.de/schleichende-enteignung-aber-wer-merkt-das-schon/
+
+## Tödliche Strahlung
+**Seit Einführung des Mobilfunks in England hat sich die Zahl bösartiger Hirntumore verdoppelt.**
+von Franz Adlkofer
+
+Mittwoch, 16. Januar 2019, 16:00 Uhr Foto: pathdoc/Shutterstock.com
+
+Zwei britische Forschergruppen stellten bei der englischen Bevölkerung einen Anstieg tödlicher Gehirntumore fest. In Bezug auf die Ursachen sind sich die Experten uneinig, doch vieles spricht für die Mobiltelefonie. Die Medien schweigen oder verwirren die Bevölkerung mit Zweifeln an längst gesicherten Tatsachen.
+Wiederholt die Mobilfunk-Branche die Geschichte der Tabakindustrie?
+
+
+-----
+
+Am 28. Oktober 2018 erschien in den Microwave News ein Bericht über die Ergebnisse zweier Forschergruppen, die in England von 1995 bis 2014 eine Zunahme von Glioblastomen festgestellt hatten. Bei diesen
+handelt es sich um die bösartigsten aller Hirntumoren, die in nahezu 100 Prozent der Fälle in relativ kurzer
+Zeit zum Tode führen (1). Bezüglich der Häufigkeit und der Lokalisation der Tumore im Gehirn stimmen
+die Ergebnisse der beiden Forschergruppen überein, bezüglich der Ursache liegen ihre Vorstellungen jedoch weit auseinander.
+
+Der Fall erinnert an die Auseinandersetzung zwischen der Internationalen Kommission zum Schutz vor
+nicht-ionisierenden Strahlen, ICNIRP, und dem National Toxicology Program, NTP, der USA. Das NTP hatte
+in seiner 30-Millionen-Dollar-Studie im Gehirn männlicher Ratten Glioblastome festgestellt, nachdem diese
+über zwei Jahre hinweg der Mobilfunkstrahlung ausgesetzt gewesen waren. Dieser Tatbestand wurde von
+der ICNIRP, einer Art PR-Organisation der Mobilfunkindustrie, mit Argumenten in Zweifel gezogen, die weniger mit Wissenschaft als mit Wunschdenken zu tun hatten.
+
+Im vorliegenden Fall geht es ebenfalls um Glioblastome, diesmal allerdings beim Menschen. Während Alasdair Philips und Kollegen (3) die Mobiltelefonie für den Anstieg der Glioblastome verantwortlich machen,
+ist de Vocht (4) der Meinung, dass dies mit grosser Wahrscheinlichkeit auszuschliessen sei. Zu seiner Erkenntnis kam er auf Grundlage „synthetischer kontrafaktischer Gegebenheiten“, was sich — sei es zu Recht
+oder zu Unrecht — wie „alternative Fakten“ anhört.
+
+Der Anstieg der Glioblastom-Häufigkeit von 1995 bis 2015 in England weist als Ursache auf schädliche
+Umwelt- oder Lebensstilfaktoren hin.
+
+Im März 2018 nahm das Journal of Environmental und Public Health eine Studie von Philips und Kollegen
+zur Publikation an, in der die Wissenschaftler zeigen, dass sich die Glioblastomrate in England in den Jahren
+von 1995 bis 2015 mehr als verdoppelt hatte (3). Die vorsichtigen Schlussfolgerungen der Autoren lauten:
+
+  - Wir zeigen einen linearen und statistisch hoch signifikanten Anstieg primärer Glioblastome während
+der 21 Jahre von 1995 bis 2015, bevorzugt in den Frontal- und Temporallappen des Gehirns. Dies
+wirft Fragen auf bezüglich Ursache und Herkunft, zumal die Tumorhäufigkeit insgesamt nicht zugenommen hat.
+
+  - Obwohl sich die meisten Fälle in der Gruppe der über Vierundfünfzigjährigen befinden, ist der
+durchschnittliche jährliche Anstieg in allen drei untersuchten Altersgruppen statistisch hoch signifikant.
+
+  - Der Anstieg der altersstandardisierten Häufigkeit kann nicht ausschliesslich auf eine verbesserte
+Diagnostik zurückgeführt werden, da verschiedene Hirnareale und nur die Hirntumorart, die in der
+Regel zum Tode führt, betroffen sind. Wir sind der Meinung, dass weit verbreitete Umwelt- oder
+Lebensstilfaktoren dafür verantwortlich sind, auch wenn unsere Ergebnisse keinen zusätzlichen Beweis für die Rolle eines bestimmten Risikofaktors liefern.
+
+  - Unsere Ergebnisse weisen dringend auf die Notwendigkeit hin, dass mehr Mittel für die Erforschung
+der Initiation, der Entstehung, und Promotion, des Wachstums, von Glioblastomen bereitgestellt
+werden sollen. Diese soll sowohl die Anwendung der CT-Bildgebung bei der Diagnose und moderne
+Lebensstilfaktoren, die den Tumorstoffwechsel beeinflussen können, mit berücksichtigen.
+
+In einem vom Herausgeber als Ergänzung erbetenen Leserbrief (5) gehen die Autoren auf den Hintergrund
+ihrer Publikation ein. Zunächst teilen sie mit, dass sie sich als Wissenschaftler seit 20 Jahren mit Krebs,
+seinen Ursachen und den möglichen Vorsorgemassnahmen befassen. Dann begründen sie ihren Forschungsansatz, wobei sie auch auf die wissenschaftliche Literatur eingehen, die zu diesem Thema vorliegt.
+
+In dieser wird — wenn auch äusserst diskret — darauf hingewiesen, dass zwischen dem verstärkten Auftreten von Glioblastomen und der Nutzung von Mobiltelefonen ein Zusammenhang bestehen könnte. Ferner berichten sie, ihnen hätten zwei führende Epidemiologen 2011 anlässlich einer EU-Konferenz in Brüssel
+gesagt, dass es wenig sinnvoll sei, den Anstieg der Glioblastomrate noch eingehender zu untersuchen,
+solange sich aus den Daten insgesamt kein eindeutiger Trend ableiten lasse.
+
+Abschliessend empfehlen die Studienautoren, dass ihre Studie in anderen Ländern wiederholt wird und
+dass, sollten ihre Ergebnisse bestätigt werden, mit hoher Priorität nach den Faktoren gesucht wird, die
+tatsächlich für den Anstieg der Glioblastome verantwortlich sind.
+
+**Die Lokalisation der Glioblastome verlangt eine Erklärung**
+
+
+-----
+
+Kurz nach Erscheinen der Publikation von Philips und Kollegen stellte Louis Slesin die zunächst von der
+Wissenschaft kaum beachteten Ergebnisse in den Microwave News, deren Herausgeber er ist, der breiten
+Öffentlichkeit vor. Er zitierte dabei Alasdair Philips, den Erstautor der Studie:
+
+_„Wir beobachteten einen durchgehenden und hoch signifikanten Anstieg der Glioblastomrate quer durch alle_
+_Altersgruppen über 21 Jahre hinweg. Die Häufigkeit der Glioblastome, der aggressivsten und rasch tödlich en-_
+_denden Hirntumoren, ist in England dramatisch angestiegen, während die weniger gefährlichen Hirntumoren_
+_abgenommen haben. Diese dramatische Entwicklung wird jedoch durch das Gesamtergebnis verschleiert.“_
+Zu den weit verbreiteten Umwelt- und Lebensstilfaktoren, die Philips und Kollegen als mögliche Ursache
+aufzählen, gehört selbstverständlich auch die Nutzung des Mobiltelefons. Der Verdacht, dass die Mobiltelefonie für diese Entwicklung verantwortlich sein könnte, steigert sich fast zur Gewissheit, wenn man Philips
+weitere Ausführungen berücksichtigt:
+
+_„Als wir uns die Lokalisation der Glioblastome ansahen, beobachteten wir den dramatischsten Anstieg im Fron-_
+_tal- und Temporallappen des Gehirns. Besonders dies lässt den Verdacht aufkommen, dass es die Mobilfunk-_
+_nutzung sein muss, die für den Anstieg der Glioblastome verantwortlich ist. Natürlich stützen unsere Befunde_
+_damit die Ergebnisse der früheren Arbeiten von Lennart Hardells Gruppe in Schweden.“_
+
+Lennart Hardell und seine Mitarbeiter hatten in ihren epidemiologischen Studien bei Langzeitnutzern von
+Mobiltelefonen einen signifikanten Anstieg von Glioblastomen beobachtet. Hardell, der von Slesin um seine
+Meinung dazu gefragt wurde und dabei Philips Einschätzung zustimmte, ergänzte, dass neben der Studie
+von Philipps und Kollegen auch die NTP-Studie für die Zuverlässigkeit seiner epidemiologischen Ergebnisse
+spräche. In der NTP-Studie waren bekanntlich bei männlichen Ratten, die zwei Jahre lang der Mobilfunkstrahlung ausgesetzt gewesen waren, im Gehirn ebenfalls Glioblastome nachgewiesen worden.
+
+Slesin weist ferner darauf hin, dass auch in anderen Ländern ein Anstieg von Glioblastomen beobachtet
+worden sei. Nur in einer neueren amerikanischen Studie sei dies nicht beobachtet worden. Der amerikanische Neurophysiologe David Carpenter fasste — von Slesin um Stellungnahme gebeten — den gegenwärtigen Stand der Forschung wie folgt zusammen:
+
+_„Dies scheint der Beweis für das zu sein, was auf der Grundlage all der neuen Fall-Kontroll-Studien vorausgesagt_
+_wurde, die auf einen Zusammenhang zwischen der Mobiltelefonnutzung und Hirntumoren hinweisen. Die Frage_
+_ist, ob wir diesen Trend auch in der amerikanischen Bevölkerung sehen werden.“_
+
+**Der signifikante Anstieg von Glioblastomen hat mit der Telefonie wohl nichts zu tun**
+Wie auf Bestellung publizierte Frank de Vocht von der britischen University of Bristol als Antwort auf die
+Studie von Philips und Kollegen eigene Forschungsergebnisse, die den signifikanten Anstieg von Glioblastomen in den Frontal- und Temporallappen in England von 1985 bis 2014 zwar bestätigen, aber die Mobiltelefonie als Ursache mit grosser Wahrscheinlichkeit ausschliessen.
+
+Zwei Jahre vorher war er noch der Meinung gewesen, dass diese wirklich ein kausaler Faktor für das gehäufte Auftreten der Glioblastome im Temporallappen sein könnte (7). In seiner neuen Arbeit hält er diesen
+Verdacht jedoch nicht mehr aufrecht, weil — wie er behauptet — die altersspezifische Auswertung der
+Patienten entschieden gegen eine kausale Beziehung spreche. Als mögliche Ursache für den beobachteten
+Anstieg der Glioblastome erscheinen ihm bis jetzt noch nicht bekannte Umweltfaktoren oder verbesserte
+diagnostische Techniken weitaus bedeutsamer.
+
+Was die Publikation von Philips und Kollegen angeht, deren wahre Bedeutung in der wissenschaftlichen
+Gemeinschaft zuvor entweder nicht erkannt oder — was wahrscheinlicher ist — bewusst ignoriert wurde,
+behauptet er, dass seine Art der Datenauswertung der von Philips und Kollegen überlegen sei. Dabei scheint
+ihm aber entgangen zu sein, dass er sich bei der Datenauswertung auf eine Methode gestützt hat, mit der
+vor allem die Tumorinitiation, also die Entstehung, nicht aber die Tumorpromotion, das Wachstum, erfasst
+werden kann.
+Die Ergebnisse von Philips und Kollegen sprechen nämlich ebenso wie seine eigenen weit mehr dafür, dass
+der beobachtete Anstieg der Glioblastome auf Tumorpromotion, das heisst eine beschleunigte Entwicklung
+aus Tumorvorstufen und nicht auf Tumorinitiation zurückzuführen ist. Die Bedeutung der Mobilfunkstrahlung bei der Tumorpromotion hat unter anderen der ausgewiesene Interessensvertreter der Mobilfunkindustrie Professor Alexander Lerchl von der privaten Jacobs University in Bremen, wenn auch mehr aus
+Versehen, überzeugend nachgewiesen.
+
+
+-----
+
+### Warum kommt kaum etwas anderes als die Mobiltelefonnutzung für den Anstieg der Glioblastome in Frage?
+
+**(Anm. Billy: Beim Glioblastom resp. Glioblastoma multiforme handelt es sich um einen bösartigen Hirntumor, der**
+**sich meistens innerhalb kurzer Zeit bei Menschen im mittleren Lebensalter entwickelt.)**
+
+Als Slesin Philips um eine Stellungnahme zu den abweichenden Vorstellungen von de Vocht bat, schickte
+er eine Grafik (Grafik 1) und äusserte sich dazu wie folgt:
+„Die Graphik zeigt ganz klar, dass der grösste Teil des Anstiegs von Glioblastomen in nur zwei Hirnregionen,
+nämlich in den Temporal- und Frontallappen, stattfand. Es gibt keinen Grund zu glauben, dass eine verbesserte Diagnostik einen Teil des Hirns gegenüber einem anderen Teil bevorzugen würde. Ich sage nicht,
+dass es unbedingt Handys sein müssen, aber sicherlich ist das die offensichtlichste Möglichkeit. Schliesslich
+sind Temporal- und Frontallappen der grössten Strahlenbelastung ausgesetzt, wenn das Handy an das Ohr
+gehalten wird.“
+Graphik 1.
+
+Nachdem de Vocht den Bericht von Slesin in Microwave News (1) gelesen hatte, erklärte er in einer E-Mail,
+dass ihn die grafische Darstellung von Alasdair Philips nicht überraschte, weil ungefähr 80 bis 90 Prozent
+der Glioblastome in den Frontal- oder Temporallappen aufträten. Das seien die Bereiche, wo man „die
+grösste Wirkung“ sieht.
+
+Als Microwave News Philips erneut um eine Stellungnahme zu de Vochts Behauptung bat, schickte er eine
+weitere graphische Darstellung (Grafik 2) und schrieb dazu:
+
+_„Wie man sehen kann, war in der Zeit von 1995 bis 1997 die Anzahl von Tumoren in den Frontal- und Tempo-_
+_rallappen ungefähr gleich wie im restlichen Hirn. Das Verhältnis war ungefähr 1:1. Nun gibt es in den Frontal-_
+_und Temporallappen zweimal so viele und das Verhältnis ist 1:2. Wir können also eine Verdoppelung feststellen.“_
+
+
+-----
+
+Graphik 2
+
+Nach Aussage von Philips hatte diese Verdoppelung auch Bestand nach einer Korrektur in Bezug auf die
+alternde Bevölkerung, denn bei zunehmendem Alter treten vermehrt Tumore auf. In absoluten Zahlen gab
+es 1995 in den beiden Gruppen, der Gruppe mit Glioblastomen im Frontal- und Temporallappen und der
+Gruppe mit Glioblastomen in den anderen Hirnregionen, je etwas mehr als 300 Fälle. Dagegen standen
+2015 den 1379 Fällen mit Glioblastomen im Frontal- und Temporallappen lediglich 705 Fälle mit
+Glioblastomen in den anderen Hirnregionen gegenüber. Im gleichen Zeitraum blieb die Anzahl der
+Glioblastome, die keiner spezifischen Hirnregion zugeordnet werden konnten, mit ungefähr 500 Fällen konstant.
+
+**Schlussfolgerungen**
+Wenn wie bei der Mobilfunkstrahlung die Ergebnisse von in-vitro-, tierexperimenteller und epidemiologischer Forschung jeweils die kanzerogene Wirkung eines Agens belegen, grenzt die Wahrscheinlichkeit nahezu an Sicherheit, dass dieses Agens für den Menschen ein kanzerogenes Risiko darstellt.
+
+Die Mobilfunkstrahlung verursacht in isolierten menschlichen Zellen Genschäden — gezeigt unter anderem
+in der REFLEX-Studie, im Gehirn von Ratten neben Genschäden Glioblastome — nachgewiesen in der NTPStudie, und bei Langzeitnutzern von Mobiltelefonen ebenfalls Glioblastome — aufgedeckt in den epidemiologischen Studien unter anderem von Hardell und Kollegen.
+
+Wenn es noch eines weiteren Beweises bedurft hätte, Philips und Kollegen und unfreiwillig auch de Vocht
+haben ihn mit ihren neuen Forschungsergebnissen definitiv erbracht. Folglich muss davon ausgegangen
+werden, dass die Mobilfunkstrahlung von G1 bis G4 beim Menschen unter anderem Krebs verursacht.
+Die Internationale Agentur für Krebsforschung (IARC) der WHO in Lyon, Frankreich, die die Mobilfunkstrahlung 2011 bereits als „möglicherweise kanzerogen beim Menschen“ eingestuft hat, wird deshalb der Forderung unabhängiger Wissenschaftler, diese Bewertung mit „kanzerogen beim Menschen“ alsbald der Realität anzupassen, nicht auf Dauer widerstehen können.
+
+Die Mobilfunkindustrie, die diese bedrohliche Entwicklung zu verantworten hat, ignoriert die Erkenntnisse
+der unabhängigen Wissenschaft bis heute und die politischen Institutionen, die für den Schutz der Bevölkerung vor gesundheitlichen Risiken zuständig sind, sehen diesem Treiben, aus was für Gründen auch
+immer, tatenlos zu.
+
+Beide berufen sich auf die für sie als Wissenschaftler tätigen Claqueure, die wie der bereits genannte Alexander Lerchl oder auch Vertreter der ICNIRP der Welt seit Jahren die Harmlosigkeit der Mobilfunkstrahlung
+
+
+-----
+
+vortäuschen. Dass gerade Lerchl entscheidend zum Verständnis der Ergebnisse von Philips und Kollegen
+und de Vocht beigetragen hat, übersehen sie.
+
+Die in England beobachtete Verdopplung des Vorkommens der besonders bösartigen Glioblastome im Verlauf von 20 Jahren bei weitgehender Konstanz der Hirntumorrate ist nämlich darauf zurückzuführen, dass
+die Mobilfunkstrahlung – wie in der NTP-Studie gezeigt –,nicht nur Krebs auslösen kann, sondern wie unter
+anderem von Lerchl gezeigt, auch auf das Wachstum und die Differenzierung ruhender Krebszellen einwirkt.
+
+Dafür, dass der Bevölkerung ihre Unwissenheit möglichst dauerhaft erhalten bleibt, sorgen obendrein die
+Medien. Keine Zeitung oder Zeitschrift von Rang wird jemals diesen Artikel zitieren. Sie ziehen es vor, wie
+das Deutsche Ärzteblatt (9) oder die New York Times (10) mit verwirrenden Artikeln Tatsachen auch dann
+noch in Zweifel zu ziehen, wenn sie längst abgesichert sind, weil es ihnen das Wohlwollen derer verschafft,
+die das Geld und damit das Sagen haben.
+
+Mobilfunkindustrie und Politik gehen gegenwärtig — wie es aussieht — stillschweigend davon aus, dass
+nach Einführung des Mobilfunkstandards G5, mit der die Voraussetzung für die Digitalisierung der Welt
+geschaffen wird, die öffentliche Diskussion über die gesundheitlichen Risiken der Mobilfunkstrahlung allmählich zum Stillstand kommt. Aufgrund der bei G5 geringen Eindringtiefe der Strahlung in die Haut
+schliessen sie schädliche Wirkungen unter anderem auf das Gehirn offensichtlich von vornherein aus. Ob
+diese Annahme, der bis jetzt jede Begründung fehlt, tatsächlich zutrifft, wird von unabhängigen Wissenschaftlern stark angezweifelt.
+
+Eine einigermassen zuverlässige Einschätzung möglicher gesundheitlicher Risiken ist gegenwärtig jedoch
+nicht möglich, da die biologische Forschung wieder einmal der technischen Entwicklung weit hinterher
+hinkt.
+
+Erste Hinweise gibt es allerdings dafür, dass bei stärker exponierten Menschen möglicherweise mit bleibenden Gewebsschäden zu rechnen ist (11), wobei insbesondere die Augen betroffen sein könnten. Wie
+bei den Mobilfunkstandards G1 bis G4 erfolgt die Einführung von G5 wiederum ohne jegliche vorausgehende Prüfung der gesundheitlichen Verträglichkeit. Ob die gegenwärtig verständlicherweise bestehenden
+Bedenken wirklich unbegründet sind, wie Mobilfunkindustrie und Politik behaupten, wird sich erst in ferner
+Zukunft erweisen.
+
+Wenn ihnen aus übergeordneten Gründen G5 trotzdem unverzichtbar erscheint, sollten sie wenigsten den
+Mut haben zuzugeben, dass die Bürgerinnen und Bürger mit diesen Risiken leben müssen, damit jede und
+jeder Einzelne sich wenigstens so gut wie möglich selbst schützen kann. Sie sollten wissen, dass die Strategie des Leugnens das Funktionieren demokratischer Gesellschaften letzten Endes ernsthaft in Frage stellt.
+
+**Quellen und Anmerkungen:**
+(1) https://microwavenews.com/news-center/gbm-frontal-and-tempral-lobes
+
+(2) https://stiftung-pandora.eu/tag/ntp-studie/
+
+(3) https://www.hindawi.com/journals/jeph/2018/7910754/
+
+(4) http://www.bris.ac.uk/social-community-medicine/people/frank-g-de-vocht/pub/170739034
+
+(5) https://www.hindawi.com/journals/jeph/2018/2170208/
+
+(6) https://microwavenews.com/news-center/gbms-rising-uk
+
+(7) https://research-information.bristol.ac.uk/files/92911233/1_s2.0_S0160412016303865_main.pdf
+
+(8) https://stiftung-pandora.eu/wp-content/downloads/adlkofer_-stellungnahme-zu-lerchl-09-03-2015.pdf
+
+(9) https://www.aerzteblatt.de/nachrichten/98916/FDA-bezweifelt-Krebsrisiko-durch-hochfrequente-elektromagnetische-Felder
+(10) https://microwavenews.com/news-center/defending-indefensible
+
+(11) https://insights.ovid.com/pubmed?pmid=30247338
+Quelle: https://www.rubikon.news/artikel/todliche-strahlung
+
+
+## "Lange leben und aussterben":
+
+
+## US-Bewegung wirbt für freiwilliges Aussterben der Menschheit
+
+
+20.01.2019 • 08:15 Uhr https://de.rt.com/1rtf
+
+
+Für die kontroverse Bewegung besteht die einzige Rettung für die Umwelt im Aussterben der Menschheit.
+Selbstmord oder Schlimmeres steht jedoch nicht auf dem Programm. Es ist die menschliche Vermeh
+
+
+-----
+
+rung, um die es geht und die es demnach einzustellen gilt.
+Vieles wurde schon, wenn auch halbherzig, versucht, um die Umwelt vor dem Kollaps zu bewahren. Von
+Einschränkungen des eigenen Konsums bis hin zum Recycling und Verringerungen der Treibhausemissionen.
+
+Quelle Reuters
+
+Wenn es nach der Voluntary Human Extinction Movement (VHEMT) geht,
+
+sollte es solche Momente nicht mehr geben.
+
+
+Eine US-Bewegung glaubt, dass sie die ultimative Lösung gefunden habe. Was das "Voluntary Human Extinction Movement" (Bewegung für das freiwillige Aussterben der Menschheit, VHEMT) fordert, klingt bizarr
+und ist es auch, zumindest für diejenigen, für die Kinder das Leben bereichern und lebenswert machen.
+Die Bewegung um Gründer Les Knight fordert das freiwillige Aussterben der Menschheit, und das nicht
+etwa durch freiwilliges Aus-dem-Leben-Scheiden, sondern durch den Verzicht darauf, neues Leben in die
+Welt zu setzen – quasi der sanfte Abgang von der Weltbühne.
+Wir ermutigen die Menschen zum Nachdenken, bevor sie sich fortpflanzen", erklärte der Gründer der Bewegung.
+Die Bewegung, die nach eigener Aussage bewusst keine Organisation sein möchte, sieht im "freiwilligen
+Aussterben" der Menschheit "die humanitäre Alternative zu menschengemachten Katastrophen".
+Seit fast drei Jahrzehnten vertritt die VHEMT-Bewegung die Meinung, dass die Erde nur durch den schrittweisen Abgang der Menschheit gesunden könne. Das bedeute aber noch lange nicht, auch auf den sexuellen Akt selbst zu verzichten. Sex ist ok, Kinder kriegen nicht.
+Unser biologischer Trieb ist es, Sex zu machen, und nicht, Kinder zu kriegen“ heisst es auf der rudimentären
+Webseite der losen Bewegung ohne Netzwerk.
+Doch warum so radikal? Warum muss es gleich die eigene Auslöschung sein und nicht etwa eine rigorose
+Familienplanung? Um diese Frage zu beantworten, muss man den Hintergrund des Gründers Les Knight
+kennen. Zunächst kämpfte Knight Anfang der 1970er mit der Gruppe "Zero Population Growth" für die
+Beschränkung des Nachwuchses auf zwei Kinder. Doch Stagnation war dann doch nicht die Lösung. Nicht
+stagnieren sondern schrumpfen, lautete von nun an die Devise.
+Wir sind keine Lachse, die sich vermehren und dann sterben", argumentierte Knight.
+Für seine These bediente er sich demnach bei Klassikern der Überpopulationsliteratur, wie etwa Thomas
+Malthus’ Essay von 1798.
+Sollte die Menschheit tatsächlich aus einer Laune der Natur heraus entstanden sein, die sie heute bereut,
+kann davon ausgegangen werden, dass sie dies selber korrigieren wird. Es ist nicht von der Hand zu weisen,
+dass einiges darauf hindeutet.
+"Die absichtliche Zeugung eines weiteren menschlichen Wesens durch irgendwen, irgendwo kann nicht
+mehr gerechtfertigt werden", ist der selbsternannte Umweltbewahrer Knight überzeugt.
+Doch mindestens einen Punkt lässt Knight nicht in seine Ausführungen und Überlegungen einfliessen. Es
+ist nicht "die Menschheit", die den Planeten an den Rand des Kollaps geführt hat. Dass trotzdem alle Menschen den Preis für das rapide Schwinden der Biodiversität zahlen sollen, erscheint als nicht ganz durchdachte Kopfgeburt.
+Quelle: https://deutsch.rt.com/international/82707-lange-leben-und-aussterben-us/
+
+
+-----
+
+### Nachtrag hinsichtlich der Paris-Vorfälle vom Januar in bezug auf Macron, sein volks- feindliches Handeln und Regieren sowie die Reaktion des Volkes und des <Mouvement des Gilets jaunes>. 
+
+## Paris droht Blutbad: (Rothschild-)Macron lässt Polizei
+ mit G36-Sturmgewehren gegen Gelbwesten aufmarschieren
+
+_Von Michael Mannheimer, 21. 01. 201920. Januar 2019_ Michael Mannheimer 88
+
+Das ist ein deutliches Zeichen einer wirklichen Diktatur. Und zeigt die wahre Fratze der EU. Nur Diktaturen
+schiessen auf das eigene Volk. Die EU wandelte sich, vorangetrieben von den Rothschild-Globalisten und
+den weiteren bekannten “Eine-Welt-Regierung”-Befürwortern (NWO-Mafia, Sozialismus, Islamistmus u.a.),
+von einem Europa der Vaterländer zu einem Europa einer zentralistisch gelenkten Superdiktatur.
+Der Brexit war der bislang grösste GAU dieser Superdiktatur. Der Grund für den Austritt der Briten war für
+die NWO-Apostel so bedrohlich, dass er bis heute geheimgehalten wird:
+
+_In einer Befragung nach der Wahl im Juni 2016 erklärten 45 Prozent der Brexiteers, der wichtigste Grund für_
+**_ihre Entscheidung war die Wiedererlangung der nationalen Souveränität („Let’s take back control!“ – Hol_**
+_Dir Dein Land zurück!). Weitere 25 Prozent gaben an, die Migrationsfrage sei für sie der primäre Beweggrund_
+_gewesen. Viele britische Historiker halten daher die 2015 begonnene unkontrollierte Grenzflutung Merkels für_
+_das eigentliche Zünglein auf der Votum-Waage._
+
+Es erging in der Folge des Brexit-Austritts der offensichtliche Befehl an die EU-weit gleichgeschaltete Presse,
+den Austritt Englands in einem möglichst schlechten Licht erscheinen zu lassen. Und den Hauptgrund des
+Austritts – die Wiedererlangung der nationalen Souveränität – zu verschweigen.
+Stattdessen wurden die 17,4 Mio Ausstiegsbefürworter zu Hooligans und potentiellen Neonazis erklärt.
+Wobei sich erneut vor allem die deutsche Merkel-Presse als führender Hetzer und Fakenews-Verbreiter
+erwies.
+
+**Die EU wurde zur EUSSR**
+Vor Jahren war ich einer der ersten, die die EU als die Nachfolge-Organisation des Warschauer Pakts beschrieb und ihr den Stempel “EUSSR” vergab. Wie richtig ich damit lag, das bestätigt jetzt der führende
+AFD-Aussenpolitiker Bystron. Dieser meint zum Brexit:
+
+**„Die EU verhält sich wie der Warschauer Pakt“**
+_“Die EU habe laut Bystron die Brexit-Verhandlungen von Anfang an für die Briten so unangenehm wie möglich_
+_gestaltet, um andere EU-Skeptiker von einem Austritt abzuschrecken. Die kriselnde EU benehme sich nun „wie_
+_der Warschauer Pakt in seinen letzten Zügen“. Eine Organisation, die darauf angewiesen ist, austrittswillige_
+_Mitglieder einzuschüchtern oder gar zu sanktionieren, sei dem Untergang geweiht, führte der versierte Aussen-_
+_politiker weiter aus.”_
+
+**Vom Europa der Vaterländer zur autokratischen „Supranation“**
+
+
+-----
+
+_“Die EU ist ein unbeherrschbares Staats-Mafia-Moloch-Monster geworden und persifliert heute die damaligen_
+_Grundideen der versöhnlichen Europapolitik Adenauers, Churchills und de Gaulles – einem pragmatischen „Eu-_
+_ropa der Vaterländer“. Das europäische Wohlfahrtsprojekt mutierte zu einem Orwell’schen Schreckensgespenst_
+_staatspathologischer Wahnsinnsbürokratie – milliardenschwere EU-Betrügereien rissen sehenden Auges stets_
+_unsanktioniert ein und selbstherrliche „EU-Kommissare“ oktroyieren mit weltfremden Gesetzen ihre Lobby-hö-_
+_rige Privatpolitik. Quasi-diktatorisch mit Bestrafungen und bewährten EU-Erpressungen. Immer zum Nachteil_
+_der wenigen Nettogeberländer, allen voran Deutschland und Grossbritannien.”*_
+
+**Desaströse EU-Zukunftsaussichten: Neue Beitritts-Kandidaten überwiegend moslemisch und korrupt**
+Es ist ganz offensichtlich, dass Brüssel versucht, der längst im Gang befindlichen Zentrifugalkräfte – der
+Abwendung immer mehr alter EU-Staaten aus der EU – mit dem Hereinholen von überaus fragwürdigen
+neuen EU-Kandidaten entgegenzuwirken. “EU-Diktatur auf Teufel komm raus”, heisst wohl das Motto, das
+Rothschild und die übrigen Herren der EU ausgegeben haben.
+Alles steht und fällt jedoch mit dem EU-Zahlmeister Deutschland: Denn nur mit Deutschlands (noch) tüchtiger Wirtschaft lässt sich die EU überhaupt am Leben erhalten: Fällt Deutschland aus – fällt die EU.
+_“Für eine EU-Erweiterung kommen nur noch weitere potentielle Mitglieder in Betracht, die immer noch weiter_
+_vom deutschen Steuerzahler und den zukünftig zahnlosen marktwirtschaftlich orientierten „Nordstaaten“ sub-_
+_ventioniert werden müssen – wie Albanien, Nordmazedonien, Bosnien, Montenegro, Serbien oder gar die Ukra-_
+_ine. Allein für die „Heranführungshilfe“ der Türkei flossen in den letzten Jahren über acht Milliarden: EU-Euro,_
+_keine wertlosen Basar-Lira.” (Quelle ebda.)_
+
+**Warum Macron schiessen darf – wenn “nötig” …**
+Doch neben Deutschland gibt es einen weiteren Staat, der zur politischen Achse der EU zählt – ohne welchen die EU ebenfalls auseinanderbrechen würde: Frankreich.
+Es war die Montanunion zwischen de Gaulle und Adenauer, die den Grundstein für die spätere EU legte.
+Inzwischen regieren in der EU ganz andere Kräfte, als man uns wissen lässt. Vergessen Sie die Europawahlen. Vergessen Sie selbst die neobolschewistische EU-Kommission, die – was für eine Nazisprache! – laut
+ihrem Blut-und-Eisen-Kommissar Timmermans, alles tun wird, nationale Staaten “auszuradieren“.
+Sicher: Die EU-Kommission hat Gewicht. Doch hinter ihr stehen Kräfte, die nur jener erkennt, der sich mit
+ihnen überhaupt schon einmal befasst hat: Es sind die Kräfte des internationalen Globalismus, die ich in
+zahlreichen meiner Artikel besprochen habe und hier nicht erneut en detail darstellen will.
+Die folgende Grafik, die ich zum Artikel “EIN IM MÜLL GEFUNDENES BILDERBEGER-DOKUMENT BEWEIST:
+_MERKEL HANDELT IM AUFTRAG DER NWO, SOROS, DEM TALMUD-JUDENTUM UND DEN PATHOKRATI-_
+_SCHEN GLOBALISTEN” verfasste, zeigt einige der wichtigsten dieser Kräfte auf einen Blick:_
+
+
+Die obige Grafik gilt 1:1 auch für Macron
+
+
+#### Um hier einem weitverbreiteten Missverständnis vorzubeugen: Die Tatsache, dass Merkel, Juncker, Macron&Co sehr wahrscheinlich von aussen gesteuert werden, entbindet sie und all die anderen, am Schwerverbrechen gegenüber ihren Völkern beteiligten Personen, nicht aus ihrer ganz persönlichen Ver- antwortung. Ein Auftragskiller kann sich schliesslich auch nicht mit der Ausrede aus seiner persönlichen Verantwortung für seine Morde herausreden, indem er darauf hinweist, er habe ja nur im Auftrag eines Dritten gehandelt. Niemand hat Macron oder Merkel gezwungen, das zu tun, was sie tun. Jeder kann sich aus dem Prozess des Völkermords verabschieden, sobald er erkannt hat, dass er auch an einem solchen beteiligt wird. 
+
+
+-----
+
+#### Macron hat, das ist sicher, für den schwerbewaffneten Aufmarsch seiner Polizei gegen die Gelbwesten, grünes Licht aus Brüssel und Berlin erhalten. Was ein gutes und ein schlechtes Zeichen ist: Gut, weil es offenkundig wird, dass die EU-Diktatur um ihr Überleben kämpft. Schlecht, weil niemand ernstlich wünschen
+kann, dass dutzende, vielleicht sogar hunderte Gelbwestler verwundet oder getötet werden. Doch sollte dies
+#### der Fall sein: Dann ist das Ende der EU besiegelt. Lesen Sie in der Folge den Bericht zum mit G36-Sturmgewehren gegen die Gelbwestler ausgerüsteten Polizei Frankreichs.
+Quelle: https://michael-mannheimer.net/2019/01/20/paris-droht-blutbad-rothschild-macron-laesst-polizei-mit-g36-sturmgewehren-gegengelbwesten-aufmarschieren/
+
+
+## Der TAGESSPIEGEL verunglimpft Nationalfahne
+
+
+## als Symbol rechter Gewalt
+
+Veröffentlicht am 21. Januar 2019
+
+**G A S T A U T O R T O R S T E N K Ü L L I G**
+
+Eigentlich ist es eine gute Nachricht: „SPD richtet einen Fonds für Betroffene politisch motivierter Gewalt ein“
+so stand es am 18.01.2019 bei TAGESSPIEGEL online.
+Im Artikel ist zu lesen, dass die SPD-Fraktion im Abgeordnetenhaus einen Fonds zur Unterstützung von
+Betroffenen _„politisch-extremistisch motivierter Gewalt“ einrichten will. Der Fonds soll mit zehn Millionen_
+Euro ausgestattet werden. Mit dem Geld sollen “vom Landeskriminalamt empfohlene bauliche Sicherungs_massnahmen zur Verhinderung weiterer Taten und präventive Massnahmen finanziert werden können.” Die_
+Verteilung der Gelder soll, so der Entwurf einer Teilresolution auf der SPD-Fraktionsklausur, durch die Innenverwaltung unter Leitung von Andreas Geisel (SPD) übernommen werden.
+Das wäre ein unterstützenswerter Vorschlag, den die Berliner SPD da umsetzen will, wäre da nicht dieses
+eine Wort, das zeigt, wohin die Reise gehen soll:
+_„Es ist unerträglich, dass engagierte Demokrat*innen auch in Berlin Opfer rechter Übergriffe werden“, heisst es_
+in dem entsprechenden Resolutionspunkt. „Wir stehen solidarisch an der Seite der Engagierten, damit gesell_schaftspolitisches demokratisches Engagement nicht an den finanziellen Möglichkeiten die Folgekosten zu_
+_schultern scheitert.“_
+Die „rechten“ Übergriffe sind also das Problem in Berlin. Herr Raed Saleh, Vorsitzender der Berliner SPDFraktion, versucht nicht einmal den präzisen Begriff „rechtsextrem“ zu verwenden, geschweige denn, dass
+er deutlich macht, dass es, gerade in Berlin, politisch motivierte Gewalt auch von Linksextremisten gibt.
+Aber anstatt auf diesen Missstand hinzuweisen, ist sich der TAGESSPIEGEL nicht zu schade, ein Symbolbild
+für diese Nachricht zu verwenden, über dessen Auswahl man nur noch mit dem Kopf schütteln kann.
+Der Autor Robert Kiesel findet offensichtlich ein Foto, das eine Demonstration, auf der deutsche Nationalflaggen gezeigt werden, ein geeignetes Symbol für politisch motivierte Straftaten darstellt. Er ist sich nicht
+zu schade, es mit folgender Bildunterschrift zu betiteln: „Die Berliner SPD will mit einem Fonds Opfer von
+_rechter Gewalt unterstützen. (Symbolfoto) Foto: Hendrik Schmidt/dpa“_
+Offensichtlich zählt das öffentliche Tragen unserer Nationalflagge auf einer Demonstrationsveranstaltung
+für den TAGESSPIEGEL als Symbol von „rechter Gewalt“!
+Abgesehen davon, dass dies ein äusserst zweifelhaftes Licht auf das Staatsverständnis von Kiesel wirft,
+begibt sich der Autor aber damit strafrechtlich auf sehr dünnes Eis. Ein Blick in den Paragraphen 90a des
+Strafgesetzbuches beschreibt die Verunglimpfung des Staates und seiner Symbole.
+Dort heisst es in Absatz 1 Nummer 2: Wer öffentlich, in einer Versammlung oder durch Verbreiten von
+Schriften die Farben, die Flagge, das Wappen oder die Hymne der Bundesrepublik Deutschland oder eines
+ihrer Länder verunglimpft, wird mit Freiheitsstrafe bis zu drei Jahren oder mit Geldstrafe bestraft.
+Abgesehen davon, dass der Autor strafrechtliche Konsequenzen befürchten müsste, geht es mir um die
+journalistische Agenda einer grossen deutschen Tageszeitung, die so etwas veröffentlicht.
+Können Redaktionen, die solch ein zweifelhaftes Staatsverständnis haben, ausgewogen berichten?
+Und stehen Redakteure wie Kiesel selbst voll und ganz auf dem Boden unseres Grundgesetzes?
+Quelle: https://vera-lengsfeld.de/2019/01/21/der-tagesspiegel-verunglimpft-nationalfahne-als-symbol-rechter-gewalt/
+
+
+## Tiefer Graben zwischen Arm und Reich
+
+Epoch Times21. Januar 2019 _Aktualisiert: 21. Januar 2019 9:41_
+
+Seit 1990 hat die Zahl der Menschen in extremer Armut stark abgenommen. Doch noch immer hat fast
+die Hälfte der Weltbevölkerung nur ein paar Dollar zum Leben, das Vermögen der Reichen steigt sprunghaft.
+Probleme gibt es auch in Deutschland.
+
+
+-----
+
+Foto: Sebastian Gollnow/Illustration/dpa
+
+
+Zur Bekämpfung der Ungleichheit in Deutschland fordert Oxfam einen höheren Mindestlohn sowie eine
+stärkere Belastung von Vermögenden, Konzernen, Erbschaften und hohen Einkommen.
+Die Kluft zwischen Arm und Reich in der Welt hat der Organisation Oxfam zufolge im vergangenen Jahr
+gefährlich zugenommen.
+
+Das Vermögen der Milliardäre sei um durchschnittlich 2,5 Milliarden US-Dollar (2,19 Mrd. Euro) pro Tag
+gestiegen – ein Plus von 12 Prozent zum Vorjahr. Indes habe die ärmere Hälfte der Weltbevölkerung 11
+Prozent – 500 Millionen Dollar je Tag – verloren. Zu diesem Ergebnis kommt die Organisation in ihrem
+Ungleichheitsbericht, den sie kurz vor Beginn der Jahrestagung des Weltwirtschaftsforums (WEF) in Davos
+vorstellte. Auch in Deutschland habe sich die Lage nicht verbessert – nötig seien ein höherer Mindestlohn
+sowie eine stärkere Belastung von Vermögenden, Konzernen, Erbschaften und hohen Einkommen.
+Die Nothilfe- und Entwicklungsorganisation warnte, dass weltweit besonders Frauen und Mädchen von sozialer Ungleichheit bedroht seien. So besässen Männer im globalen Durchschnitt 50 Prozent mehr Vermögen als Frauen. Zudem hätten Frauen wegen unbezahlter Arbeit wie Pflege oder Kindererziehung oft weniger Zeit, sich politisch zu betätigen – dies verstärke ihre Benachteiligung und zementiere ein Wirtschaftssystem, das von Männern für Männer gemacht sei.
+
+Oxfam-Chefin Winnie Byanyima forderte die Staatengemeinschaft zu höheren Investitionen in Bildung auf.
+„Die Grösse des Bankkontos sollte nicht diktieren, wie viele Jahre Kinder in der Schule bleiben oder wie
+lange wir leben. Doch dies ist nach wie vor die Realität in zu vielen Ländern der Erde“, sagte sie.
+Nötig sind dem Bericht „Public Good or Private Wealth“ (Gemeinwohl oder privater Reichtum) zufolge
+zudem höhere Investitionen in die öffentliche Gesundheitsversorgung sowie eine stärkere und effektivere
+Besteuerung von Konzernen und Vermögenden. Es sei dringend Zeit zu handeln, so Ellen Ehmke, OxfamDeutschland-Referentin für soziale Ungleichheit. „Jeder Tag, den wir verlieren, verschärft das Ungleichheitssystem.“
+
+Weltweit lebten noch immer 736 Millionen Menschen in extremer Armut – also von maximal 1,90 US-Dollar
+je Tag. Die Entwicklung sei aber positiv: Die Zahl habe sich zwischen 1990 und 2010 halbiert und nehme
+weiter ab. Ehmke wies aber darauf hin, dass fast die Hälfte der Weltbevölkerung – etwa 3,4 Milliarden
+Menschen oder 46 Prozent – von maximal 5,50 Dollar pro Tag lebe. Vielen Menschen drohe etwa bei
+Krankheit der Fall in die extreme Armut, weil sie Behandlungen oder Medikamente nicht bezahlen könnten.
+
+Oxfam warnte zudem, die Schere zwischen Arm und Reich verstärke die Spaltung in der Gesellschaft. „Das
+Problem der wachsenden sozialen Ungleichheit ist eine der grössten Herausforderungen unserer Zeit“,
+sagte Jörn Kalinski, Leiter Entwicklungspolitik von Oxfam Deutschland. Sie biete einen Nährboden für gefährliche Entwicklungen wie Rechtspopulismus und aggressiven Nationalismus. Hierzulande steigerten die
+Milliardäre ihr Vermögen im vergangenen Jahr um 20 Prozent, wie aus dem Bericht hervorgeht. Insgesamt
+verfüge das reichste Prozent der Bevölkerung über ebenso viel Vermögen wie die 87 ärmeren Prozent.
+Damit zähle Deutschland zu den Industrienationen mit der grössten Vermögensungleichheit. Mit 15,8 Prozent liege die Armutsquote auf dem höchsten Stand seit 1996, jedes fünfte Kind sei von Armut betroffen.
+Frauen verdienten im Durchschnitt 21,5 Prozent weniger als Männer; schlechter sei die Lage in der EU nur
+in Estland und Tschechien
+
+
+-----
+
+Zur Bekämpfung der Ungleichheit in Deutschland forderte Oxfam eine Erhöhung des Mindestlohns. „Der
+Mindestlohn ist zu niedrig, gerade in Ballungszentren“, sagte Referentin Ehmke. So liessen sich etwa die
+stark steigenden Mieten mit dem derzeitigen Satz von 9,19 Euro pro Stunde nicht mehr bezahlen. Es gebe
+allerdings auch Fortschritte, sagte Oxfam-Steuerexperte Tobias Hauschild und verwies auf Pläne der EU zur
+Besteuerung von Grosskonzernen oder die Aufhebung des Bankgeheimnisses in der Schweiz. „Das sind
+Dinge, über die vor zehn Jahren nicht geredet wurde.“ Kalinski betonte, einige Entwicklungen – etwa die
+Amtsführung von US-Präsident Donald Trump, der Brexit oder der Aufstieg rechtspopulistischer Parteien –
+hätten zudem in Politik und Wirtschaft zum Nachdenken geführt. Nötig sei nun aber eine konsequente
+Sozialpolitik. (dpa)
+Quelle: https://www.epochtimes.de/politik/welt/tiefer-graben-zwischen-arm-und-reich-a2771430.html
+
+MPRESSUM
+FIGU-ZEITZEICHEN
+Druck und Verlag: FIGU Wassermannzeit-Verlag,
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+Redaktion: BEAM ‹Billy› Eduard Albert Meier,
+Semjase-Silver-Star-Center, 8495 Schmidrüti, Schweiz
+Telephon +41(0)52 385 13 10, Fax +41(0)52 385 42 89
+Wird auch im Internetz veröffentlicht
+**Erscheint zweimal monatlich auf der FIGU-Webseite**
+
+Postcheck-Konto: FIGU Freie Interessengemeinschaft,
+8495 Schmidrüti, PC 80-13703-3
+IBAN: CH06 0900 0000 8001 3703 3 Geisteslehre Friedenssymbol
+**E-Brief: info@figu.org**
+**Internetz: www.figu.org** **Frieden**
+**FIGU-Shop: http://shop.figu.org**
+
+Wahrer Frieden kann auf Erden unter der Weltbevölkerung erst dann werden,
+wenn jeder verständige und vernünftige Mensch endlich gewaltlos den ersten
+
+**© FIGU 2019** Tritt dazu macht, um dann nachfolgend in Friedsamkeit jeden weiteren Schritt
+Einige Rechte vorbehalten. bedacht und bewusst bis zur letzten Konsequenz der Friedenswerdung zu tun. SSSC, 10. September 2018, 16.43 h, Billy
+Dieses Werk ist, wo nicht anders
+angegeben, lizenziert unter:
+www.figu.org/licenses/by-nc-nd/2.5/ch/
+
+**Die nicht-kommerzielle Verwendung ist daher ohne weitere Genehmigung des Urhebers ausdrücklich erlaubt.**
+Erschienen im Wassermannzeit-Verlag: FIGU, ‹Freie Interessengemeinschaft Universell›, Semjase-Silver-Star-Center,
+Hinterschmidrüti 1225, 8495 Schmidrüti ZH, Schweiz
+
+
+-----
+

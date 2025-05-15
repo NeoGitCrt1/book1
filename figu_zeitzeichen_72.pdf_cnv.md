@@ -1,0 +1,1435 @@
+**L**
+
+# FIGU– WESEN FREMDER WELTENBESUCHEN DIE ERDE
+
+**Freie**
+
+# ZEITZEICHEN Interessengemeinschaft
+
+**FIGU**
+
+## Aktuelles • Einsichten • Erkenntnisse r
+
+**Erscheinungsweise:** **Internetz: www.figu.org** **3. Jahrgang**
+**Sporadisch** **E-Brief: info@figu.org** **Nr. 72, Juni 2017**
+
+#### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+Laut ‹Allgemeine Erklärung der Menschenrechte› vom 10. Dezember 1948, Artikel 19, ‹Meinungs- und Informationsfreiheit›:
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die**
+**Freiheit, Meinungen unangefochten anzuhängen und Informationen und Ideen mit allen**
+**Verständigungsmitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Aussagen und Meinungen müssen nicht zwingend identisch sein mit Gedanken, Interessen, Lehre und Missionsgut der FIGU.
+
+### Video: Putin im Interview mit Le Figaro: Ukraine, Syrien, Wahlen – Gesamtübersetzung
+_RT Deutsch; Do, 01 Jun 2017 14:10 UTC_
+_Russlands Präsident Wladimir Putin hat während seines Besuchs in Frankreich am 29. Mai dem französischen Le_
+_Figaro ein ausführliches Interview gegeben. RT Deutsch veröffentlicht das ganze Gespräch in deutscher Übersetzung._
+
+_© Sputnik_
+_Wladimir Putin im Interview mit Le Figaro_
+
+**Le Figaro: Guten Tag! Vielen Dank für die Zusage, die Fragen von Le Figaro zu beantworten. Ich danke Ihnen**
+auch dafür, dass Sie uns hier in diesem Ambiente des russischen Kulturzentrums empfangen. Vielen Dank auch
+dafür, dass sie dem Interview zugesagt haben.
+Sie sind hierhergekommen, um eine Ausstellung zu eröffnen, die dem 300. Jahrestag der Aufnahme der diplomatischen Beziehungen zwischen Russland und Frankreich gewidmet ist. Die französisch-russischen Beziehungen hatten ihre Höhen und Tiefen. Wie schätzen sie diese Beziehungen heute ein?
+
+**Wladimir Putin: In der Tat, Präsident Macron hat mich zur Eröffnung der Ausstellung eingeladen. Ich muss aber**
+gleich an dieser Stelle sagen, dass sich die Beziehungen zwischen Russland und Frankreich bereits viel länger
+entfaltet haben und viel tiefere Wurzeln haben. Der Präsident und ich haben dies heute mehrmals erwähnt.
+Im 11. Jahrhundert kam Anna, die jüngste Tochter unseres Grossfürsten Jaroslaws des Weisen, hierher. Sie
+heiratete den französischen König Heinrich I., und man nannte sie auch danach: Anna von Russland, Königin
+Frankreichs. Ihr Sohn Philipp I. gründete zwei europäische Dynastien: Das Haus Valois und
+das Haus Bourbon. Das letztere regiert bis heute in Spanien.
+Deswegen haben wir viel tiefere Wurzeln, obwohl sich die Beziehungen in den letzten 300
+Jahren am intensivsten entwickelt haben. Das stimmt. Ich rechne sehr damit, dass die heutige
+Veranstaltung, die Ausstellung und unsere Verhandlungen mit Präsident Macron diesen
+Beziehungen einen neuen Impuls verleihen.
+
+
+**Freie**
+
+
+-----
+
+**Le Figaro: Herr Präsident, was stellt für Sie die Person Peters I. dar, der 1717 in Versailles eingetroffen ist, um**
+die diplomatischen Beziehungen aufzunehmen?
+
+**Wladimir Putin: Ich habe heute schon meinem französischen Kollegen und unseren französischen Freunden**
+gesagt, dass Peter I. vor allem ein Reformator und ein Mensch war, der nicht nur stets das Beste und am meisten
+Zeitgemässe eingeführt hatte. Er war zweifellos ein Patriot seines Landes und kämpfte für Russlands gebührenden Platz in den internationalen Angelegenheiten. In erster Linie aber wandelte er sein eigenes Land um, indem
+er es moderner, mobiler und zukunftsorientiert machte. Er schaffte dabei vieles, um nicht zu sagen alles.
+Er beschäftigte sich mit Wissenschaft, Bildung und Kultur. Er setzte sich auch mit dem Militärwesen und dem
+Staatsaufbau auseinander. Er hinterliess ein kolossales Erbe, das Russland in der Tat bis heute nützt. Ganz zu
+schweigen davon, dass er meine Heimatstadt Sankt Petersburg gründete, die über lange Zeit die Hauptstadt des
+Russischen Kaiserreiches war.
+
+**Le Figaro: Sie haben Ihr Treffen mit Macron im Vorfeld angekündigt. Hatten Sie irgendwelche Erwartungen vor**
+dem ersten Treffen? Sie haben gesagt, man müsse die Etappe des Misstrauens hinter sich lassen. Ist es gelungen,
+es zu überwinden? Was die Hauptfrage – und zwar die Sanktionen – angeht: Kann man sagen, dass Sie eine
+gewisse Verständigung erreicht haben?
+
+**Wladimir Putin: Bei jedem Treffen, bei jedem Kontakt, bei jeder Veranstaltung auf solcher Ebene, zumal wenn**
+es das erste Treffen und der erste Kontakt ist, gibt es immer Erwartungen. Wenn solche Erwartungen nicht
+existieren, ist es sinnlos, solche Treffen zu veranstalten.
+Natürlich hat es auch diesmal Erwartungen gegeben. Sie waren damit verbunden, dass ich den Standpunkt des
+vereidigten Präsidenten der Französischen Republik zu der internationalen Tagesordnung, zu der Entwicklung
+der bilateralen Beziehungen näher, aus erster Quelle erfahren wollte.
+Natürlich hat der gewählte Präsident Frankreichs, der sein Amt angetreten hat, seine eigene Sichtweise auf die
+bilateralen Beziehungen, auf die internationale Politik.
+Im Grossen und Ganzen ist das meiner Meinung nach eine sehr pragmatische Sichtweise. Wir haben ganz bestimmt Annäherungspunkte, die es möglich machen werden, unsere Positionen einander anzunähern und in
+Schlüsselbereichen miteinander zusammenzuarbeiten.
+
+**Le Figaro: Die Umsetzung der Minsker Abkommens zur Ukraine scheint heute an einem toten Punkt ange -**
+kommen zu sein. Ist es Ihnen und Präsident Macron gelungen, einen Fortschritt bei der Lösung dieses Konflikts
+zu erzielen?
+
+**Wladimir Putin: Einen Fortschritt bei der Lösung eines jeden Konflikts, auch im Konflikt im Südosten der**
+Ukraine, können vor allem und zuallererst und hauptsächlich nur die Konfliktparteien selbst erreichen.
+Der Konflikt im Südosten der Ukraine ist ein binnenländischer und vor allem ein ukrainischer. Er ist nach einer
+verfassungswidrigen, gewaltsamen Machtergreifung in Kiew im Jahre 2014 entstanden. Das ist die Quelle aller
+Probleme. Das Wichtigste, was getan werden muss, ist, dass alle Konfliktparteien die innere Kraft zu einer
+Verständigung finden. Zuvorderst bin ich mir dessen sicher, dass der Ball, wie man sagt, im Feld der offiziellen
+Kiewer Behörden liegt. Diese müssen sich vor allem und zuallererst darum kümmern, diese Minsker Verein barungen zu erfüllen.
+
+**Le Figaro: Was wird einen Fortschritt eben in diese Richtung ermöglichen können? Kann Russland eine Initiative**
+einbringen, um endlich einen Waffenstillstand zu gewähren?
+
+**Wladimir Putin: Aber wir schlagen das doch schon die ganze Zeit vor! Wir glauben, dass das Wichtigste, was**
+getan werden muss, ist, die Streitkräfte von der Kontaktlinie zu entfernen. Das ist das, womit man anfangen
+muss. An zwei Stellen sind sie entfernt worden. An einer dritten Stelle gelingt das bisher nicht.
+Heute verweisen die ukrainischen Behörden immer darauf, dass dort geschossen wird. Solange aber die Truppen
+und das schwere Militärgerät nicht zurückgezogen sind, wird gewiss weiterhin geschossen. Man muss das
+schwere Militärgerät zurückziehen. Das ist das Erste.
+Das Zweite, was getan werden muss, ist der Notwendigkeit zu entsprechen, in der politischen Sphäre endlich
+das vom ukrainischen Parlament verabschiedete Gesetz über den Sonderstatus dieser Territorien in Geltung zu
+setzen. Denn das Gesetz ist verabschiedet, aber noch nicht in Kraft.
+Verabschiedet ist auch ein Amnestie-Gesetz. Der Präsident hat es jedoch nicht unterzeichnet. In den Minsker
+
+
+-----
+
+Abkommen steht, dass man eine soziale und wirtschaftliche Rehabilitierung der Territorien dieser nicht an erkannten Republiken durchführen muss. Statt das zu tun, verhängt man im Gegenteil sogar eine Blockade. Das
+ist das Problem.
+Die Blockade haben in diesem Zusammenhang Radikale verhängt, indem sie Eisenbahngleise versperrten. Der
+ukrainische Präsident sagte anfangs, er verurteile das und werde Ordnung schaffen. Er versuchte, das zu tun.
+Das gelang ihm jedoch nicht.
+Statt seine Bemühungen fortzusetzen, schloss er sich offiziell dieser ungesetzlichen Massnahme an, indem er einen Erlass zur Blockade herausgab. Wie kann man unter solchen Umständen über eine Entwicklung hin zum
+Besseren sprechen? Leider können wir das bisher nicht beobachten.
+
+**Le Figaro: Lassen Sie uns vorerst Osteuropa verlassen, um über den Nahen Osten zu sprechen. Vor allem über**
+Syrien. Welche wichtigen Lösungsansätze existieren Ihrer Meinung nach heute, nach Ihrer Militärintervention
+im September 2015, dafür, damit dieses Land die vielen Jahre des Krieg hinter sich lassen kann?
+
+**Wladimir Putin: Ich möchte vor allem die konstruktive Herangehensweise der Türkei und des Irans hervor -**
+heben, die zusammen mit uns und natürlich mit der syrischen Regierung eine Waffenruhe durchgesetzt haben.
+Natürlich wäre das ohne die sogenannte bewaffnete Opposition Syriens unmöglich gewesen. Das war ein erster,
+sehr wichtiger und ernsthafter Schritt auf dem Weg zum Frieden.
+Ein zweiter, nicht weniger wichtiger Schritt, war die Vereinbarung über die Schaffung der sogenannten De eskalationszonen. Jetzt geht es um vier Zonen. Wir finden das sehr wichtig für den Friedensprozess, wenn man
+das so sagen darf, weil ein politischer Prozess ohne die Einstellung des Blutvergiessens nicht in Frage kommt.
+Aktuell steht vor uns allen, meiner Ansicht nach, eine weitere Aufgabe: Man muss die Schaffung dieser Deeskalationszonen technisch und mit Verlaub sogar technologisch vollenden; man muss sich auf die Grenzen dieser
+Zonen, aber auch darauf einigen, wie dort die staatlichen Einrichtungen funktionieren werden, wie sich die
+Verbindung dieser Deeskalationszonen mit der Aussenwelt gestalten wird.
+Übrigens hat Präsident Macron das heute angeschnitten, als er über humanitäre Konvois sprach. Im Grossen
+und Ganzen hat Frankreichs Präsident meiner Meinung nach recht. Das ist eben einer der Berührungspunkte.
+Hier können wir mit unseren französischen Kollegen zusammenarbeiten.
+Sobald das geschehen sein wird – und zwar die Formalisierung der Deeskalationszonen –, rechne ich sehr stark
+damit, dass dann endlich gewisse Elemente des Zusammenwirkens zwischen der Regierung und jenen Leuten
+Platz greifen werden, die die Situation in diesen Deeskalationszonen kontrollieren sollen.
+Ich wünsche mir in keiner Weise – und es ist sehr wichtig, was ich jetzt sagen werde –, dass diese Deeskalationszonen eine Art Blaupause für eine künftige territoriale Spaltung Syriens werden. Im Gegenteil: Ich rechne damit,
+dass diese Deeskalationszonen, wenn dort dauerhaft Frieden herrschen soll, und die Leute, die sich dort befinden
+und die Situation kontrollieren werden, mit den offiziellen syrischen Behörden zusammenwirken.
+Auf diese Weise kann, ja soll eine Situation eines gewissen elementaren Zusammenwirkens und der Zusammenarbeit entstehen. Der nächste Schritt ist ein rein politischer Prozess einer politischen Versöhnung und, wenn
+dies möglich ist, einer Ausarbeitung von Verfassungsregeln, einer neuen Verfassung und der Durchführung von
+Wahlen.
+
+**Le Figaro: In der Tat: Es gibt Meinungsverschiedenheiten in der Syrien-Frage zwischen Russland und anderen**
+Parteien. In erster Linie geht es um das Schicksal Baschar al-Assads, den die westlichen Länder des Einsatzes von
+Chemiewaffen gegen die eigene Bevölkerung beschuldigen. Herr Präsident, beabsichtigen Sie eine politische
+Zukunft für Syrien ohne Baschar al-Assad?
+
+**Wladimir Putin: Eigentlich halte ich mich nicht für berechtigt, über eine politische Zukunft des Landes mit al-**
+Assad oder ohne ihn zu bestimmen. Das ist die ausschliessliche Angelegenheit des syrischen Volkes. Niemand
+hat das Recht, sich irgendwelche Vorrechte anzueignen, die ausschliesslich dem Volk dieses oder jeden Landes
+gehören. Das ist das erste, was ich anmerken wollte. Haben sie eine zusätzliche Frage?
+
+**Le Figaro: Ja. Sie sagen, dass nicht Sie die Entscheidung treffen. Das bedeutet also nicht, dass eine Zukunft ohne**
+ihn möglich ist?
+
+**Wladimir Putin: Ich wiederhole, darüber darf nur das syrische Volk entscheiden. Sie haben jetzt die Anschul-**
+digungen gegen al-Assads Regierung erwähnt, Chemiewaffen eingesetzt zu haben.
+Nachdem dieser mit Chemiewaffen verbundene Vorfall passiert war, schlugen wir sofort unseren amerikani
+
+-----
+
+schen Partnern und allen vor, die das für zweckmässig halten, den Flugplatz zu inspizieren, von dem aus die
+Flugzeuge mit Chemiewaffen abgehoben haben sollen.
+Wenn diese Chemiewaffen von offiziellen Militärstrukturen des Präsidenten al-Assad aus eingesetzt worden
+wären, hätten auf diesem Flugplatz unausweichlich Spuren bleiben müssen. Moderne Kontrollutensilien hätten
+diese bestimmt fixiert. Das ist unausweichlich. Spuren wären in den Flugzeugen und auf dem Flugplatz ge blieben. Aber alle verzichteten darauf, diese Überprüfung durchzuführen.
+Wir schlugen vor, eine Überprüfung an dem Ort durchzuführen, an dem angeblich der C-Waffenangriff erfolgt
+war. Man verzichtete aber auch dort darauf, eine Überprüfung durchzuführen, indem man sich darauf berief,
+dass es dort gefährlich sei. Wie kann es aber dort gefährlich sein, wenn der Schlag angeblich gegen irgendwelche
+Zivilisten und den gesunden Teil der bewaffneten Opposition gesetzt worden sein soll?
+Meiner Ansicht nach wurde das nur mit einem Ziel gemacht: Um erklären zu können, warum man zusätzliche
+Massregeln gegen al-Assad, darunter auch solche von militärischem Charakter, einsetzen muss. Das ist alles.
+Es gibt keine Beweise für einen C-Waffeneinsatz durch al-Assad. Wir sind zutiefst davon überzeugt, dass es sich
+dabei um eine blosse Provokation handelt, und al-Assad diese Waffen nicht eingesetzt hat.
+
+**Le Figaro: Erinnern Sie sich daran, was Präsident Macron über die so genannte rote Linie in Bezug auf den**
+Einsatz von Chemiewaffen gesagt hat? Sind Sie damit einverstanden?
+
+**Wladimir Putin: Ich bin damit einverstanden. Mehr noch: Ich glaube, dass die Frage allgemeiner zu stellen ist.**
+Und Präsident Macron hat dem zugestimmt. Wer auch immer Chemiewaffen gegen diese Personen, gegen diese
+Strukturen eingesetzt haben mag, die internationale Gemeinschaft muss eine allgemeine Politik aufbauen. Und
+die Antwort muss eine sein, die die Verwendung solcher Waffen durch wen auch immer unmöglich machen wird.
+
+
+**Le Figaro: Nach der Wahl Donald Trumps in den USA haben sich viele über eine neue Etappe der russisch-**
+amerikanischen Beziehungen geäussert. Diese Beziehungen scheinen keinen Neustart erfahren zu haben. Ich
+zitiere jetzt: «Es gibt eine russische Gefahr.» Das hat er auf dem jüngsten NATO-Gipfel in der Vorwoche gesagt.
+Sind Sie von einer solchen Haltung von Seiten der USA enttäuscht?
+
+**Wladimir Putin: Nein. Wir haben eigentlich gar nichts erwartet. Nichts Besonderes. Der Präsident der Ver -**
+einigten Staaten setzt die traditionelle amerikanische Politik durch. Selbstverständlich haben wir im Lauf der
+Wahlkampagne die Vorhaben des bereits gewählten und vereidigten Präsidenten der Vereinigten Staaten, Herrn
+Trump, gehört, dass er die russisch-amerikanischen Beziehungen normalisieren möchte. Er hat darüber gesprochen, dass es schlimmer nicht sein könne. Wir erinnern uns gut daran.
+Wir begreifen und sehen jedoch auch, dass sich die innenpolitische Situation in den USA in der Tat so darstellt,
+dass die Leute, die die Wahl verloren haben, sich damit keinesfalls abfinden wollen und leider die antirussische
+Rhetorik unter erdachten Vorwänden im innenpolitischen Kampf aufs Aktivste nutzen.
+Deswegen haben wir keine Eile. Wir sind bereit, abzuwarten. Aber wir rechnen sehr stark damit und hoffen darauf, dass die Normalisierung der russisch-amerikanischen Beziehungen irgendwann zustande kommen wird.
+In Bezug auf die Erhöhung ...
+
+**Le Figaro: Was würden Sie in einer idealen Welt von den Vereinigten Staaten erwarten, um die Beziehungen**
+zwischen den USA und Russland zu verbessern?
+
+**Wladimir Putin: Eine ideale Welt existiert nicht. In der Politik gibt es keinen Konjunktiv. Ich möchte auf den**
+zweiten Teil Ihrer Frage in Bezug auf die zwei Prozent oder die Erhöhung der Militärausgaben antworten. Zum
+Beispiel geben die Vereinigten Staaten bekanntlich für den Militärbereich mehr aus als alle anderen Länder der
+Welt zusammen.
+Deswegen kann ich bestens nachvollziehen, dass der Präsident der Vereinigten Staaten einen Teil dieser Last auf
+seine NATO-Verbündeten umlegen will. Das ist eine sehr pragmatische und verständliche Herangehensweise.
+Was mich interessiert hat: Auf dem NATO-Gipfel war die Rede davon, dass die NATO gute Beziehungen zu
+Russland aufnehmen will. Wozu müssen dann aber die Militärausgaben erhöht werden? Gegen wen wollen sie
+kämpfen?
+Hier existieren gewisse innere Widersprüche. Aber eigentlich ist das nicht unsere Sache. Möge die NATO sich
+selbst damit auseinandersetzen, wem, wofür und wie viel zu zahlen ist. Das kümmert uns nicht besonders. Wir
+gewährleisten unsere Verteidigungsfähigkeit. Wir machen das gewissenhaft, mit dem Blick in die Zukunft. Wir
+sind selbstsicher.
+
+
+-----
+
+**Le Figaro: Wenn man aber über die NATO spricht, so gibt es auch Ihre Nachbarn, die mithilfe der NATO ihre**
+eigene Sicherheit gewährleisten wollen. Ist das für Sie ein Zeichen des Misstrauens? Etwas, was eine skandalöse
+Haltung darstellt?
+
+**Wladimir Putin: Für uns ist das ein Zeichen dafür, dass unsere Partner – Verzeihung – sowohl in Europa als**
+auch in den USA eine kurzsichtige Politik umsetzen. Sie denken nicht einen Schritt voraus. Sie haben diese Angewohnheit nicht. Diese Angewohnheit ist unseren westlichen Partnern abhandengekommen.
+Nachdem die Sowjetunion aufgehört hatte, zu existieren, sagten uns westliche Politiker – das wurde zwar nicht
+zu Papier gebracht, aber das wurde exakt so zugesagt –, dass sich die NATO nicht gen Osten erweitern würde.
+Einige damalige deutsche Politologen schlugen sogar vor, ein neues Sicherheitssystem in Europa unter Beteiligung
+der Vereinigten Staaten und übrigens auch Russlands zu schaffen.
+Wenn das zustande gekommen wäre, gäbe es jene Probleme nicht, mit denen wir in den letzten Jahren konfrontiert wurden – und zwar die Osterweiterung der NATO bis an unsere Grenzen, die Verlegung von Militärinfrastruktur an unsere Grenzen. Vielleicht wären die Vereinigten Staaten nicht einseitig aus dem ABM-Vertrag zur
+Begrenzung von Raketenabwehrsystemen ausgestiegen. Dabei war dieser Vertrag der Eckstein der heutigen und
+künftigen Sicherheitsarchitektur. Es wäre vielleicht nicht zum Aufbau von Elementen der Raketenabwehr in
+Europa gekommen – in Polen, in Rumänien –, was zweifelsohne unsere strategischen Atomkräfte bedroht und
+das strategische Gleichgewicht stört, was an sich für die internationale Sicherheit äusserst gefährlich ist.
+Vielleicht wäre das alles nicht da gewesen, aber das passierte eben. Zurückspulen kann man das nicht. Der Streifen
+der Geschichte ist nicht zurückzuspulen, das ist kein Spielfilm. Man muss davon ausgehen, was vorhanden ist.
+Wenn wir davon ausgehen werden, was vorhanden ist, dann muss man sich überlegen, was wir in der Zukunft
+haben wollen. Ich glaube, wir alle wollen Sicherheit, Ruhe, Wohlstand und Zusammenarbeit.
+Das heisst, man braucht nicht die Lage anzuspannen, man braucht sich nicht mythische Gefahren aus Russland,
+irgendwelche hybride Kriege und so weiter zu erdenken. Ihr selbst habt das erdichtet und erschreckt einander
+damit und formuliert auf dieser Grundlage auch noch politische Perspektiven. Eine solche Politik hat gar keine
+Perspektiven. Es gibt nur eine Perspektive und diese besteht in der Zusammenarbeit in allen Bereichen, darunter
+auch in der Frage der Sicherheit.
+Was ist heute das Hauptproblem im Sicherheitsbereich? Terrorismus. In Europa wird gesprengt. In Paris wird
+gesprengt. In Russland wird gesprengt. In Belgien wird gesprengt. Der Krieg im Nahen Osten dauert an – eben
+darüber muss man sich Gedanken machen. Aber nein, wir spekulieren stattdessen darüber, welche Gefahren
+Russland schafft.
+
+**Le Figaro: Was die Frage Terrorismus und Islamismus betrifft: Sie sagen, dass man mehr tun kann. Was muss**
+man konkret tun? Was kann Russland tun? Und warum gelingt es nicht, die Bemühungen zusammen mit
+Europa zu vereinen, um diese Ziele zu erreichen?
+
+**Wladimir Putin: Fragt Europa. Wir wollen ja genau das. Ich habe das ja auch gesagt, als ich am 70. Jahrestag der**
+Organisation der Vereinten Nationen auf der UN-Tribüne sprach und damals dazu aufrief, die Bemühungen
+aller Länder im Kampf gegen den Terror zu vereinen.
+Schauen Sie, nach dem Attentat in Paris, einem fürchterlichen und blutigen Ereignis, kam Präsident Hollande
+zu uns. Damals waren wir gerade dabei, uns mit ihm auf irgendwelche gemeinsame Handlungen zu einigen.
+Der Flugzeugträger Charles de Gaulle näherte sich der Küste Syriens. Danach reiste François nach Washington.
+Und Schluss. Die Charles de Gaulle kehrte um und fuhr weg in Richtung Suezkanal. Und unsere reale Zusammenarbeit mit Frankreich hörte auf, ohne angefangen zu haben.
+Frankreich beteiligt sich dort an Operationen, aber im Rahmen der internationalen Koalition unter der Führung
+der USA. Klärt untereinander, wer der älteste und wer nicht der älteste ist, wer das Wort führt, wer was beansprucht. Wir sind bereit. Wir sind für eine Zusammenarbeit offen.
+Es war sehr schwer, mit den Amerikanern in diesem Bereich zu verhandeln. Am Rande bemerkt: In letzter Zeit
+beobachten wir doch einen gewissen Ruck. Es gibt praktische Resultate.
+Ich habe mit Präsident Trump telefoniert. Im Grossen und Ganzen hat er die Idee, Deeskalationszonen zu
+schaffen, unterstützt. Jetzt denken wir darüber nach, wie die Interessen aller Länder der Region im Süden Syriens
+zu gewährleisten sind, indem man die Sensibilitäten aller Länder berücksichtigt, die Probleme in dieser Region
+haben – und zwar Jordanien, Israel und Syrien selbst. Zweifellos sind wir bereit, auf die Meinung der Vereinigten
+Staaten und unserer europäischen Partner zu hören. Aber man muss einen konkreten Dialog führen. Statt über
+irgendwelche gegenseitige Vorwürfe und Drohungen zu plaudern, muss man sich mit der praktischen Arbeit
+beschäftigen.
+
+
+-----
+
+**Le Figaro: Sie sagen, dass sie die Entscheidung treffen sollen, dass sie handeln sollen, oder?**
+
+**Wladimir Putin: Ja, genau so ist es.**
+
+**Le Figaro: Und jetzt wieder zu den USA. Der Verdacht, dass sich Russland in die Wahlkampagne in den USA**
+eingemischt haben soll, hat einen wahren politischen Sturm in Washington ausgelöst. Auch in Frankreich war
+ein ähnlicher Verdacht zu hören. Wie werden sie darauf reagieren? Vor allem vor dem Hintergrund der jetzigen
+Ereignisse in den USA.
+
+**Wladimir Putin: Ich habe mich schon mehrmals dazu geäussert. Einer Ihrer Kollegen hat heute auch eine Frage**
+zu diesem Thema formuliert. Er machte das auf der Presse-Konferenz sehr vorsichtig. Er fragte: «Man sagt,
+angeblich russische Hacker» … «Man sagt» – Wer sagt das? Auf welcher Grundlage? «Angeblich russische
+Hacker», vielleicht aber auch nicht russische …
+Herr Trump selbst sagte einst – und er sagte das meiner Ansicht nach absolut richtig: «Vielleicht aus einem
+anderen Land: Vielleicht hat jemand im Bett an etwas gedacht. Vielleicht aber hat jemand absichtlich einen USBStick mit dem Namen eines russischen Bürgers irgendwohin eingesteckt» – oder noch etwas in diese Richtung.
+Denn man kann in dieser virtuellen Welt absolut alles anrichten. Russland hat sich damit nie beschäftigt. Wir
+brauchen das nicht. Wir haben keinen Grund, das zu tun. Wo ist der Sinn?
+Ich habe mich bereits mit einem Präsidenten der Vereinigten Staaten, mit einem anderen und dann wiederum
+mit einem anderen unterhalten. Präsidenten kommen und gehen, aber die Politik ändert sich nicht. Wissen Sie,
+warum? Weil die Macht der Bürokratie sehr stark ist. Man wählt einen Menschen. Er kommt mit seinen Ideen.
+Dann kommen aber zu ihm Menschen mit Aktenkoffern, die gut gekleidet sind und dunkle Anzüge anhaben, wie
+ich, aber nicht mit einer roten Krawatte, sondern mit einer schwarzen oder dunkelblauen. Sie beginnen, ihm zu
+erklären, wie man handeln soll. – Und alles ändert sich sofort. Das geschieht von Regierung zu Regierung.
+Etwas zu ändern, das ist eine ziemlich komplizierte Sache. Das sage ich ohne jegliche Ironie. Das ist so, nicht
+weil irgendjemand das nicht wünschte, sondern weil das kompliziert ist. Zum Beispiel Obama, er ist ein fortschrittlicher Mensch mit liberalen Ansichten, Demokrat. Vor den Wahlen hat er versprochen, Guantánamo zu
+schliessen. Hat er das getan? Nein. Wollte er das etwa nicht? Er wollte das sehr. Ich bin mir sicher, dass er das
+wollte. Aber das ist ihm nicht gelungen. Er hat aufrichtig danach gestrebt. Manchmal gelingt es eben nicht. Alles
+ist nicht so einfach.
+Das ist aber nicht die allerwichtigste Frage, obwohl sie wichtig ist. Man kann sich das schwer vorstellen:
+Menschen schleppen dort ihre Fesseln seit Jahrzehnten ohne Urteil und Untersuchung mit sich herum. Stellen
+Sie sich vor, Frankreich oder Russland hätten so was getan? Man hätte sie schon längst mit allem Drum und
+Dran verschlungen. In den USA ist das aber möglich und währt bis heute. So viel zur Demokratie.
+Ich habe dieses Beispiel jetzt zu einem anderen Zweck angeführt – und zwar, um zu zeigen, dass alles nicht so
+einfach ist. Ich habe dennoch eine gewisse Prise zurückhaltenden Optimismus. Ich finde, dass wir uns in den
+Schlüsselfragen einigen können und müssen.
+
+**Le Figaro: Sie sagen heute, dass sich dieser politische Sturm in Washington auf eine absolute Fiktion stützt.**
+
+**Wladimir Putin: Er stützt sich nicht auf eine Fiktion. Er stützt sich auf den Wunsch derjenigen, die die Wahlen**
+in den Vereinigten Staaten verloren haben. Sie wollen ihre Lage mithilfe antirussischer Rhetorik verbessern,
+indem sie Russland einer Einmischung bezichtigen.
+Die Leute, die die Wahlen verloren haben, wollen bisher nicht anerkennen, dass sie sie tatsächlich verloren haben,
+dass derjenige, der gewonnen hat, dem Volk nähersteht. Er hat besser begriffen, was das Volk will, die einfachen
+Wähler. Eben das will man bisher nicht anerkennen.
+Diese Leute wollen sich selbst erklären und den anderen beweisen, dass sie damit nichts zu tun hätten, dass ihre
+Politik richtig gewesen wäre, dass sie zwar alles gut gemacht hätten, dass aber ein Fremdling sie betrogen und
+hereingelegt hätte. Aber das ist nicht so. Sie haben bloss verloren und müssen das anerkennen.
+Wenn das passiert, wird uns meiner Meinung nach die Zusammenarbeit leichter fallen. Dass das alles mittels
+antirussischer Instrumente passiert, ist sehr schlimm. Das bringt einen Missklang in die internationalen Angelegenheiten hinein.
+Wenn sie nur untereinander streiten und einander beweisen würden, wer härter und besser, wer klüger und
+sicherer ist, wer die Politik für das Land besser formuliert. Wozu aber Drittländer dort hineinziehen? Das ist
+sehr ärgerlich. Aber auch das wird vergehen: Alles ist vergänglich – und auch das wird vergehen.
+
+
+-----
+
+**Le Figaro: Herr Präsident, wir kommen ans Ende unseres Interviews. Und ich möchte vor allem eine Frage nach**
+dem Jahr 2018 stellen. Das ist das Präsidentschaftswahljahr in Russland, das Jahr der Wahlen zu mehreren
+Regionalparlamenten. Können Sie uns sagen, ob Sie vorhaben zu kandidieren oder ob die Opposition womöglich während dieser Kampagne auf demokratischem Weg eine eigene Kandidatur auf die Beine stellen kann?
+Wie sehen Sie die Entwicklung dieser Situation? Wollen Sie, dass die Kampagne bedingungslos und ausschliess lich unter den demokratischen Verhältnissen verläuft? Ich spreche über das Jahr 2018.
+
+**Wladimir Putin: Wissen Sie, alle jüngsten Wahlkampagnen verliefen bei uns im strikten Einklang mit der**
+russischen Verfassung. Im strikten Einklang. Und ich werde alles dafür tun, um die Durchführung der Wahlkampagnen 2018 auf dieselbe Weise zu gewährleisten. Ich wiederhole nochmals: Im strikten Einklang mit Gesetz
+und Verfassung.
+Alle Menschen, die darauf ein Recht haben, alle Menschen, die entsprechende und vom Gesetz vorgesehene Prozeduren absolvieren werden, können und werden, wenn sie das wollen, sich zweifellos an den Wahlen auf allen
+Ebenen beteiligen: Zu Regionalparlamenten, zum Parlament selbst und an der Präsidentschaftswahl. Was die
+Kandidaten angeht, so ist es noch zu früh, darüber zu sprechen.
+
+**Le Figaro: Vielen Dank. Hoffentlich werden wir uns bald wiedersehen. Vielen Dank für dieses Gespräch mit Le**
+Figaro.
+_Quelle: https://de.sott.net/article/29622-Video-Putin-im-Interview-mit-Le-Figaro-Ukraine-Syrien-Wahlen-Gesamtubersetzung_
+
+### So funktioniert ‹Demokratie›: Amerikanische Privatsöldner-Armee erhielt den Auftrag, Proteste gegen Dakota-Pipeline niederzuschlagen
+_Quelle; Mi, 31 Mai 2017 12:32 UTC_
+
+_© Reuters_
+
+_Die Ureinwohner in den USA haben die Auseinandersetzung um den Bau der Dakota Access Pipeline verloren. Die-_
+_sen Donnerstag wird die Erdölleitung, die bereits 3 Lecks zu verzeichnen hatte, in Betrieb genommen. Wie nun be-_
+**_kannt wurde, erhielt die private Sicherheitsfirma Tiger Swan den Auftrag, die Proteste niederzuschlagen._**
+Wie aus Dokumenten hervorgeht, kamen dabei Anti-Terrormassnahmen zum Einsatz. Der firmeninterne
+Sprachgebrauch deutet ebenso auf ein fragwürdiges Demokratieverständnis hin: **US-Bürger, die von ihrem**
+**Demonstrationsrecht Gebrauch machten, wurden von Tiger Swan mit Dschihadisten gleichgesetzt.**
+_Quelle: https://de.sott.net/article/29612-So-funktioniert-Demokratie-Amerikanische-Privatsoldner-Armee-erhielt-den-Auf-_
+_trag-Proteste-gegen-Dakota-Pipeline-niederzuschlagen_
+
+### Wir werden bereichert. Einige verlieren dabei ihre Gesundheit oder ihr Leben
+_Veröffentlicht am Mai 22, 2017 von helmut mueller_
+Zuwanderung mache glücklicher, meinte vor einigen Jahren ein deutscher Freimaurer in der FAZ. Frau Christine
+F. aus Niederösterreich wird das anders sehen, so sie das noch kann. «Sie hat sich aufgegeben, geht elendiglich
+zugrunde», wie ihre Tochter einer Zeitung danach anvertraute. Am 1. September 2015 wurde ihre Mutter von
+einem jungen afghanischen Asylanten bis zur Bewusstlosigkeit geprügelt und vergewaltigt. Endstation Intensiv station. «Niemand hat uns geholfen», so die Tochter. Und der Täter? Dieser kommt mit 20 Monaten Haft davon.
+Ein Hohn auf das Rechtsempfinden eines mit gesundem Hausverstand (Anm. Menschenverstand) ausgestatte
+
+-----
+
+ten Bürgers. Wo doch ein Wiener seit mehr als zehn Jahren hinter Gittern sitzt, bloss weil er das freie Wort in
+Anspruch genommen hat.
+Jetzt darf man gespannt darauf sein, wie mildtätig das Urteil für jene drei Scheinasylanten aus dem Orient ausfallen wird, die unlängst eine 15-jährige Niederösterreicherin mehrmals vergewaltigt haben sollen. Und wieder,
+wie in dem erstgenannten Fall, war die Empörung über ein abscheuliches Verbrechen bei den dafür angeblich
+zuständigen selbst ernannten Menschenrechtsexperten der so genannten Zivilgesellschaft so gut wie nicht existent.
+Wehe, das Opfer wäre eine Migrantin gewesen und der Täter ein Inländer!
+Und es geht munter so weiter auf der einstigen ‹Insel der Seligen›: In Herzogenburg (NÖ) wird ein 13-Jähriger
+von einem 14-jährigen Türken mit einer Schere bedroht und vergewaltigt. In Mödling (NÖ) wird eine Frau auf
+der Damentoilette von vier Asylanten abgeschleckt. In Wien wird ein Mädchen von Ausländern auf der Toilette
+mit dem Kopf gegen die Klomuschel geschlagen, gewürgt und vergewaltigt (Sechs Jahre Haft für die Haupttäter).
+Sechs Migranten vergewaltigten in Graz ein Mädchen (für Hauptangeklagte 24 Monate Haft, davon nur 8 unbedingt). Soweit einige Beispiele.
+Kein Aufschrei der Gutmenschen, keine Hilfestellung für die bemitleidenswerten Opfer, die in vielen Fällen ein
+Leben lang ein Gefühl des Alleingelassenseins begleiten wird. Bereits vor einigen Jahren, als in Dresden Susanna
+H., eine 18jährige Abiturientin, von einem Pakistani ermordet wurde, gab es keine Schweigemärsche und Gedenkveranstaltungen wie bei einer zuvor ebenfalls in Dresden ermordeten Muslima. Das in deutschen Landen gross zügig versorgte Gesindel wird auch weiterhin mit dem Mitleid und der Unterstützung heuchlerischer Pharisäer
+rechnen können.
+Und wie sehen nun die Politiker und andere Verantwortliche das Problem der Massenimmigration so ganz allgemein? Mit der rosa Brille gewiss. Seit Jahr und Tag wird getrommelt, dass uns Migranten bereichern. Der
+Wiener Kardinal Schönborn ermahnt, wir dürfen nicht vergessen, was uns die Einwanderer an Wissen vermitteln
+(etwa: Wie macht man eine Frau an?), und System-Liebling Sebastian Kurz meint, der durchschnittliche Zuwanderer von heute sei gebildeter als der durchschnittliche Österreicher. Na Bum!
+Geht es nach der zurückgetretenen rotgrünen Frontfrau Glawischnig oder Christian Jansen, Professor an der
+Universität Trier, dann ist es Zeit für mehr ‹Buntheit›. Richtig kunterbunt halt, wahrscheinlich. War ja wirklich
+öd bisher. Mit Ulrike Lunacek, österreichische EU-Lobbyistin und eine der Neuen an der Spitze der rotgrünen
+Weiberwirtschaft, hat das irrlichternde bunte Lager eine Fürsprecherin mit Willkommenskultur- und sonstigen
+Neigungen im Talon. Natürlich zwecks Befruchtung und Ergänzung.
+Die in Richtung Neue Welt- und Gesellschaftsordnung drängenden Politiker und Lobbys wollen oder können
+nicht akzeptieren, dass es der Mehrheit längst zu bunt ist, dass, zum Beispiel, bereits jeder 5. Österreicher Angst
+in den Öffis hat und Frauen schon abgeraten wird, bei Einbruch der Dunkelheit allein auf die Strasse zu gehen.
+Es wird von der selbsternannten Elite zudem einfach ignoriert, dass mit der Migranten-Invasion zunehmende
+Gewalt nicht nur auf der Strasse und auf öffentlichen Plätzen, sondern auch in Krankenhäusern und Ambulanzen, bei Arbeitsvermittlungen und auf Polizeikommissariaten zum täglichen Brot der dort Beschäftigten
+gehört.
+Wenn Migranten – vielleicht aus Zorn, weil ihnen nicht gleich ein funkelnagelneues Auto vor die Unterkunft
+gestellt wird – nachweislich Baumstämme auf Gleise legen, Sexattacken im Dutzend liefern, Mütter im Beisein
+ihrer Kleinkinder zu vergewaltigen versuchen, untereinander Messerschlachten liefern, Krankheiten einschleppen,
+Polizisten angreifen oder ausländische Schüler inländische Lehrer verprügeln, dann wird Intoleranz zur Pflicht,
+denn, wie Aristoteles gesagt haben soll, sei Toleranz die letzte Tugend einer untergehenden Gesellschaft.
+Doch die unhaltbaren, zum Himmel schreienden Zustände werden vom politischen und gesellschaftlichen
+‹Establishment› weiter verharmlost und beschönigt und der Unmut der Mehrheit einfach ignoriert. Wir müssten
+uns, so heisst es, an den importierten Terrorismus und bald vielleicht auch schon an Religionskriege ganz einfach
+gewöhnen. Müssen wir? Wie wäre es mit etwas mehr Ungehorsam oder wählen wir demnächst wieder dieselben
+dampfplaudernden EU-Systemmarionetten? Dann würden wir unser Unglück wahrlich im Schlaf erworben
+haben.
+_Quelle: https://helmutmueller.wordpress.com/2017/05/22/wir-werden-bereichert-einige-verlieren-dabei-ihre-gesundheit-oder-_
+_ihr-leben/_
+
+
+-----
+
+_17:10 24.05.2017(aktualisiert 17:17 24.05.2017)_
+
+**Nach dem blutigen Terroranschlag in der Manchester Arena mit 22 Todesopfern hat der aus Manchester stam-**
+**mende ehemalige Sänger der Kultband ‹The Smiths› Morrisey seine Wut gegen die britischen Politiker, allen**
+**voran die Premierministerin Theresa May, die Queen sowie Londons Bürgermeister Sadiq Khan auf sozialen**
+**Netzwerken geteilt.**
+**_«Theresa May sagt, dass solche Attacken ‹uns nicht brechen› werden, ihr eigenes Leben verläuft jedoch in einer_**
+**_kugelsicheren Luftblase, und sie muss heute offensichtlich keine jungen Menschen in Leichenhallen identifizieren»,_**
+**_schreibt der Sänger Steven Patrick Morrissey auf seiner Facebook-Seite._**
+**_Diese Äusserung «Es wird uns nicht brechen» bedeute, wie der Sänger weiter betont, dass die Tragödie sie und_**
+**_ihre Einwanderungspolitik nicht brechen werde. «Die jungen Leute von Manchester sind schon gebrochen – danke_**
+**_trotzdem, Theresa.»_**
+Londons Bürgermeister Sadiq Khan wirft er vor, den Islamischen Staat (Anm. Islamistischer Staat auch IS, Daesh),
+der sich zu dem Anschlag bekannt hatte, nicht verurteilt zu haben. «Sadiq Khan sagt, ‹London ist mit Manchester›, er
+verurteilt den Islamischen Staat (Anm. Islamistischer Staat) jedoch nicht – der sich zu dem Anschlag bekannte.»
+Der Queen wirft er vor, völlig zu Unrecht Lob für ihre Worte gegen den Angriff erhalten zu haben. Ihre jährliche
+Gartenparty im Buckingham Palace habe sie trotz des Anschlags durchgeführt, kritisiert der Sänger. Das dürfe
+jedoch von der ‹britischen freien Presse› nicht kritisiert werden.
+Auch der Bürgermeister von Manchester, Andy Burnham, bleibt von Morrisseys Kritik nicht verschont. Dieser
+bezeichnete die Attacke als Tat von einem Extremisten, wollte aber aus der Sicht des Sängers nicht konkreter
+werden. «Extrem was? Ein extremes Kaninchen?», zeigt sich Morrisey empört.
+Und schliesst: «Politiker sagen uns, dass sie furchtlos sind, aber sie sind nie die Opfer. Es ist einfach, unerschrocken zu sein, wenn man vor der Feuerlinie geschützt ist. Die Menschen haben keinen solchen Schutz.»
+_Quelle: https://de.sputniknews.com/panorama/20170524315871162-Morrissey-kritik-manchester-anschlag/_
+
+### Still und heimlich wird Deutschland per Familiennachzug geflutet: Medien verhängen Nachrichtensperre zu diesem Thema
+_Michael Mannheimer, 24.5.2017_
+
+DER ‹FAMILIENNACHZUG› IST DAS WIRKSAMSTE MITTEL
+DER ISLAMISIERUNG DEUTSCHLANDS
+
+
+-----
+
+**Merkels Staatsmedien haben eine stillschweigenden Nachrichtensperre über die gegenwärtige Rekord-Immi-**
+**gration verhängt.**
+Wenn Medien über bestimmte Nachrichten und Entwicklungen nicht berichten, so hat das meistens einen einzigen Grund: Man will nicht, dass Deutsche über Vorgänge erfahren, die zum Aufruhr im eigenen Land führen
+könnten. Das Motiv der Medien bei der Verheimlichung negativer Nachrichten ist jedoch nicht edel (wie sie
+uns in ihrem verlogenen Pressekodex vorlügen), sondern hochkriminell:
+Sie schützen mit ihrer Nachrichtensperre die nicht nur unvermindert weitergehende Massenimmigration durch
+die Bundesregierung, sondern sie verheimlichen, dass diese, ganz anders als in offiziellen Verlautbarungen verkündet, nicht zurückgeht, sondern im Gegenteilig stetig wächst.
+
+#### Trojanisches Pferd ‹Familiennachzug›
+Neben den ‹normalen› Asylanträgen von Invasoren (Tarnbegriff ‹Kriegsflüchtlinge›) hat sich vor allem der von
+Linken vorsorglich und in voller Absicht ersonnene ‹Familiennachzug› als das eigentliche trojanische Pferd der
+Masseninvasion erwiesen. Genau so, wie wir Islam- und Systemkritiker es vorausgesagt haben.
+Auf die 1,2–1,5 Millionen ‹Flüchtlinge› des deutschen Schicksalsjahres 2015 folgen binnen kurzer Zeit zwischen
+4–6 Millionen Familienachzüger. Womit wir allein binnen zwei bis drei Jahren 7 Millionen Neu-Moslems in
+Deutschland haben werden.
+
+#### Jedes Jahr wächst die islamische Gemeinde in Deutschland um die Grössenordnung Stuttgarts
+Oder, um es bildlich auszudrücken: Jedes Jahr kommen Moslems in der Grössenordnung der baden-württembergischen Landeshauptstadt Stuttgart (620000 Einwohner, Stand 2016) nach Deutschland. Jedes Jahr erwächst
+in Deutschland damit eine moslemische Stadt in der Grössenordnung einer Metropole.
+Irgend etwas davon in den Medien gelesen? Natürlich nicht. Diese sind, angeführt von den Staatsmedien ZDF
+(Claus Kleber) und ARD in der Hand der Regierung – und längst zu staatlichen Propaganda-Sendern geworden,
+in deren Vergleich der goebbelsche Rundfunk sich wie ein Kinderspielzeug im Sandkasten erweist.
+
+#### Zum dritten Mal binnen 70 Jahren führen Sozialisten Deutschland und Europa in den Abgrund
+Es sind wieder einmal Sozialisten, die Deutschland – und Europa – an den Rand des Untergangs führen. Und
+es sind wieder Millionen Deutsche und Europäer, die dank der pausenlosen Medienpropaganda die wahren
+politischen Verhältnisse nicht blicken und ihre eigenen Schlächter wählen.
+Wie sagte schon F.J. Strauß (sinngemäss) in einem Interview mit dem Rotsender ‹Monitor› 1971: Wenn ein Land
+von einer bestimmten Sorte Medien beherrscht wird, kann es nicht mehr demokratisch sein. Auch wenn Wahlen
+offiziell noch stattfinden. Denn die Wähler können nur das wählen, was sie von den Medien erfahren.
+
+_Von Victoria 19. Januar 2017_
+#### Still und heimlich wird Deutschland mit Familiennachzug geflutet
+Der Nachzug von Ehepartnern und anderen Familienangehörigen nach Deutschland ist im vergangenen Jahr
+nach Informationen der ‹Welt› aus dem Auswärtigen Amt um etwa 50 Prozent gestiegen.
+«2016 sind weltweit annähernd 105000 Visa zum Familiennachzug erteilt worden, darunter ein Grossteil für
+den Familiennachzug zum Schutzberechtigten», teilte das Auswärtige Amt mit. Im Jahr 2015 waren es noch
+rund 70000 Visa, 2014 etwa 50000.
+Der Nachzug von Syrern und Irakern stieg den Angaben zufolge besonders stark an. «Für das Gesamtjahr 2016
+ergibt sich eine Gesamtzahl von rund 73000 Visa, die für den Familiennachzug zum Schutzberechtigten aus
+Syrien oder Irak erteilt wurden. Die rund 65000 unbegleiteten minderjährigen Ausländer holen nur in begrenztem Umfang Angehörige nach Deutschland: 2016 wurden für den Familiennachzug zu Minderjährigen weltweit
+rund 3200 Visa erteilt. Die nachziehenden Familienangehörigen von Flüchtlingen stellen selbst keine Asyl anträge und sind deswegen nicht in den entsprechenden Asylstatistiken enthalten.
+
+#### Ein Fass ohne Boden!
+Das sind Zahlen, die die Bundesregierung auf Nachfrage offiziell zugibt, mittlerweile wissen die Bürger, was sie
+vom Wahrheitsgehalt solcher Aussagen zu halten haben.
+Zusätzlich zu den (offiziell) 320000 ‹Flüchtlingen› im Jahr 2016 kommen noch einmal bis zu 105000 durch
+den Familiennachzug hinzu, also weit über 420000 Neuankömmlinge in einem Jahr, nicht zu vergessen die
+untergetauchten Illegalen. Nun stellt sich die Frage: Ein Visum betrifft wie viele Familienangehörige? Muss man
+105000 Visa mal drei, vier oder fünf rechnen? Das wird der Bürger kaum erfahren, denn die nachziehenden
+Familienmitglieder brauchen keine Asylanträge zu stellen und fliessen nicht in die Asyl-Statistik ein, so kann
+
+
+-----
+
+die Politik weiterhin täuschen und die Mär von sinkenden Zahlen bei ‹Flüchtlingen› erzählen.
+
+Einschub von Michael Mannheimer
+
+_Offizielle BAMF-Zahlen Familiennachzug zwischen 1998–2014_
+
+Über die Kosten und die nachhaltige Veränderung Deutschlands darf man nicht weiter nachdenken, allerdings
+dürfen jene, also die schon länger hier leben, den Spass finanzieren, den Professor Raffelhüschen errechnete,
+wonach alleine eine Million Migranten bis ins Jahr 2040 insgesamt 450 Milliarden Euro kosten.
+_Quelle: https://politikstube.com/still-und-heimlich-wird-deutschland-mit-familiennachzug-geflutet/_
+_Quelle: https://michael-mannheimer.net/2017/05/24/still-und-heimlich-wird-deutschland-per-familiennachzug-geflutet-me-_
+_dien-verhaengen-nachrichtensperre-zu-diesem-thema/_
+
+### Besorgte Lehrerin schreibt an die Bundeskanzlerin: Ihre Migrationspolitik hat sich mehrfach als Trojanisches Pferd erwiesen
+_Epoch Times; Aktualisiert: 25. Mai 2017 11:10_
+Am Tag nach dem Anschlag in Manchester schickte Petra Paulsen, Mutter von drei Kindern, verbeamtete Lehrerin
+und Personalrätin aus Hamburg, einen Brief an die Bundeskanzlerin, in dem sie viele tiefgehende Fragen stellt
+zur politisch gewollten Situation und über die Zukunft in Deutschland. EPOCH TIMES erhielt ihn zur Ver öffentlichung.
+
+_Trauernde in Manchester. Petra Paulsen schreibt deshalb an die Bundeskanzlerin, «da ich viele Fragen habe,_
+_die mich umtreiben und auf die ich gerne von Ihnen eine Antwort bekommen würde.»_
+_Foto: Leon Neal/GettyImages_
+
+23. Mai 2017
+Sehr geehrte Frau Bundeskanzlerin Dr. Merkel,
+wieder ein weiterer terroristischer Anschlag in Europa, diesmal in Manchester auf ein Popkonzert. Wieder viele
+Tote und Verletzte, darunter Kinder und Jugendliche. Mit diesem Brief wende ich mich an Sie als Parteivorsitzende
+der CDU und Bundeskanzlerin der Bundesrepublik Deutschland, da ich viele Fragen habe, die mich umtreiben
+und auf die ich von Ihnen gerne eine Antwort bekommen würde.
+
+
+-----
+
+Zu meiner Person: Ich lebe schon seit meiner Geburt vor etwas mehr als 50 Jahren in diesem Land, arbeite als
+verbeamtete Lehrerin an einer Schule in Hamburg, bin verheiratet und Mutter von drei Kindern. Dabei schreibe
+ich Ihnen diesen Brief als politisch interessierte und parteilose Bürgerin und Mutter.
+Ich habe mich im Jahr 2005 über Ihre Wahl zur ersten Bundeskanzlerin der Bundesrepublik Deutschland sehr
+gefreut, hatte doch auch ich Ihnen meine Stimme gegeben. Mittlerweile füllt Ihr Leben als Tochter eines sozialistischen Pfarrers über 35 Jahre lang im totalitären System der DDR unter Führung der Sozialistischen Einheits partei Deutschland (SED) viele Bücher und etliche Biografien. Die Teilnahme bei den Jungen Pionieren, die
+Tätigkeit als stellvertretende FDJ-Sekretärin in Ihrer früheren Schule, das Studium an der Uni Leipzig mit überwiegend linientreuen Genossinnen und Genossen und Ihre späteren Führungsaufgaben bei der FDJ haben Sie
+sicherlich politisch sehr geprägt.(1) Heute, nach fast zwölf Jahren Ihrer Regierungszeit, bleibt jedenfalls festzuhalten, dass Sie die politische Parteienlandschaft völlig umgekrempelt haben.
+So ist unter Ihnen die neue CDU/CSU/SPD/FDP/Grünen-Einheitspartei in der Bundesrepublik Deutschland
+entstanden, da Sie mit der CDU politisch weit nach links gerückt sind und darüber hinaus Themen anderer
+Parteien phagozytiert haben.
+Erst dadurch war es möglich, eine Partei rechts neben Ihrer Stammpartei CDU in Form der AfD entstehen zu
+lassen, die heute viele Forderungen der alten CDU vertritt. Ich empfehle Ihnen in diesem Zusammenhang, noch
+einmal einen Blick in das Parteiprogramm der CDU aus dem Jahre 2002 zu werfen. Dieses ist unter Ihnen als
+Parteivorsitzende entstanden und aus heutiger Sicht müsste dieses von Ihnen selbst konsequenterweise als
+rechtsradikal bezeichnet werden.
+Nicht unerwähnt lassen kann ich in diesem Zusammenhang, dass viele Ex-DDR-Bürgerinnen und -Bürger bei
+einer weiteren Amtszeit mit Ihnen an der Regierungsspitze die Errichtung einer DDR 2.0 auf ökologisch-sozialistischem Fundament befürchten. Die Art der medialen Berichterstattung, die zunehmende Überwachung im
+öffentlichen Raum und Dinge wie das geforderte Netzdurchsetzungsgesetz lassen jedenfalls nichts Gutes er ahnen.
+Die Wirtschaft boomt, was u.a. auf den schwachen Euro, niedrige Zinsen, einen tiefen Ölpreis, eine gute Beschäftigungslage sowie auf die Kauflust der Deutschen zurückzuführen ist. Vor allem aber treibt der Export
+deutscher Waren die Zahlen in die Höhe und die Kritik aus der EU, insbesondere von Frankreichs neuem
+Präsidenten Macron und den USA an den deutschen Handelsüberschüssen wird immer lauter, während die
+Staatsverschuldung während Ihrer Regierungszeit so hoch ist wie noch nie. Neben den ausgewiesenen fast 2,3
+Billionen Euro Staatsschulden kommen noch einmal indirekte Schulden in Höhe von mehr als 4 Billionen Euro
+dazu.(2) Wie sollen diese Schulden jemals beglichen werden? Was gedenken Sie bezüglich der hohen deutschen
+**Exportüberschüsse zu tun?**
+Ausserdem haben wir unter Ihrer Regierung einen Investitionsstau und immensen Personalabbau in allen wichtigen Bereichen wie Bildung, Verkehr, Gesundheit, Innere Sicherheit, Wohnungsbau, Justiz und Digitalisierung
+zu beklagen, um nur einige Punkte zu nennen. Aufgrund der bevorstehenden Pensionierungswellen bei der
+Polizei, der Justiz und in den Schulen gestalten sich die Neueinstellungen aufgrund fehlenden geeigneten Personals als schwierig bzw. können diese erst um einige Jahre zeitlich verzögert erfolgen.
+**Des Weiteren ist unter Ihnen als Bundeskanzlerin die Kinderarmut gewachsen(3) und das Risiko für Alters-**
+**armut deutlich gestiegen.(4) Daneben hat in dem von Ihnen seit vielen Jahren regierten Land die Zahl der**
+Obdachlosen einen weiteren Zuwachs erfahren. Rund 335000 Menschen – davon allein rund 29000 Kinder –
+sind derzeit wohnungslos, Tendenz weiterhin steigend.(5) Und all dieses in einem reichen Land wie Deutschland,
+was aus meiner Sicht ein einziger Skandal ist. Sie aber scheinen lieber den Rest der Welt retten zu wollen.
+Ihre völlig aus dem Ruder gelaufene und bis zum heutigen Tag anhaltende Migrationspolitik macht dem Land
+**schwer zu schaffen. Diese hatten Sie den Bürgerinnen und Bürgern als einen humanitären Akt verkauft, obwohl**
+**bereits mehr als 20 Hundertschaften der Bundespolizei per Bus und per Helikopter zwecks kompletter Grenz-**
+**schliessung nach Bayern abgeordnet worden waren und die Zurückweisung von Flüchtlingen (ohne Papiere,**
+**dafür aber mit Smartphones) in der Grossen Koalition vereinbart worden war. Es fehlte somit nicht der politi-**
+sche Wille für den Einsatzbeginn am 13. September 2015 um 18 Uhr, sondern vielmehr waren Sie als Bundeskanzlerin nicht bereit, für diesen Schritt auch die Verantwortung zu übernehmen aufgrund der unschönen
+Bilder, die dann möglicherweise entstanden wären. (6) Ist aber nicht die Übernahme von Verantwortung genau
+**Ihr Zuständigkeitsbereich an der Spitze der Bundesregierung?**
+Ihre Migrationspolitik hat sich dabei mittlerweile aus mehrfacher Sicht als Trojanisches Pferd erwiesen. Ich darf
+Sie hierbei z.B. an die Silvesternacht 2015/2016, den Fall Anis Amri, den Mordfall der Freiburger Studentin und
+das Blutbad im Regionalzug nahe Würzburg vom letzten Jahr erinnern. Auf die Kriminalitätsstatistik 2016,
+
+
+-----
+
+wonach Mord und Totschlag, Vergewaltigung und sexuelle Nötigung stark gestiegen sind, möchte ich gar nicht
+erst weiter eingehen, da Ihnen diese sicherlich hinlänglich bekannt sein dürfte.(7) Die Folgen und Kosten werden
+auch hier wie schon bei Ihrer Griechenlandrettungspolitik, die einzig und allein der Rettung von Banken und
+reichen Kapitalanlegern dient, und der 180°-Wende in der Energiepolitik nicht Sie, sondern einzig und allein
+**die Bürgerinnen und Bürger dieses Landes zu tragen haben.**
+Nur nebenbei sei hier erwähnt, dass Griechenland über riesige Erdgas- und Erdölvorkommen im Ionischen
+Meer verfügt, die laut der Nachrichtenagentur Reuters über einen Zeitraum von 25 Jahren rund 465 Milliarden
+Euro einbringen könnten.(8) Aus meiner Sicht eine einzige Ohrfeige für den deutschen Steuerzahler. Dabei ist
+es einzig und allein Ihre Aufgabe, gemäss dem von Ihnen geleisteten Amtseid in erster Linie und in jeglicher
+Hinsicht zum Wohle des deutschen Volkes zu handeln. Dies schliesst für mich Hilfe für andere Länder keinesfalls
+aus, aber doch bitte mit Sinn und Verstand.
+**Doch nicht nur das: Bis zum heutigen Tage sterben noch immer viele Hunderte Menschen im Mittelmeer in**
+**der Hoffnung auf ein besseres Leben in Europa, und täglich kommen ungefähr 100 Migranten, davon im**
+**Schnitt bis zu 80 von ihnen ohne Papiere, vornehmlich über Österreich, verstärkt aber auch über andere Nach-**
+barländer wie z.B. die Schweiz (9) oder Polen (10) illegal nach Deutschland, von denen keiner weiss, mit welcher
+Absicht. Die Balkanroute zum Nahen und Mittleren Osten ist nicht komplett geschlossen und die Zahl der nach
+Europa kommenden afrikanischen Migranten ist im ersten Quartal 2017 gegenüber dem Vorjahr im Vergleich
+um 51 Prozent gestiegen. Ihr Bundesentwicklungsminister, Herr Gerd Müller (CSU), rechnet allein für dieses
+Jahr mit 300000 bis 400000 Migranten nur aus Afrika.(11) 14,6 Prozent der Migranten des ersten Quartals 2017
+kamen dabei laut UNHCR aber nicht einmal aus Afrika, sondern aus Bangladesch.(12) Wann endlich gedenken
+**Sie diesem Wettlauf mit dem Elend ein Ende zu setzen und den Asyltourismus zu beenden?**
+Anstatt in den jeweiligen Heimatländern in den deutschen Botschaften und Konsulaten die Möglichkeit einzurichten, vor Ort einen Asylantrag stellen zu können und diesen dort zu bearbeiten, werden weiterhin unzählige
+Menschen auf ihrem Weg nach Europa ihr Leben verlieren bzw. kein Recht auf Asyl erhalten und dann einfach
+untertauchen.
+Schnell lassen sich die von Ihnen gesagten Worte, Deutschland wird Deutschland bleiben, mit allem, was uns lieb
+_und teuer ist, widerlegen, denn es ist festzustellen, dass sich dieses Land Tag für Tag ein Stückchen mehr verän-_
+dert, und zwar in eine Richtung, die die meisten Bürgerinnen und Bürger nicht wollen.
+Beispielsweise arbeiten Polizeibeamte und Lehrer, um nur zwei der besonders betroffenen Berufsgruppen zu
+nennen, schon jetzt aufgrund der hohen beruflichen Belastungen bezüglich Ihrer Einwanderungspolitik und
+fehlenden Personals am Limit. Ich frage Sie, Frau Bundeskanzlerin, wie das ab März 2018 sein wird, wenn bei
+**knapp 268000 syrischen Flüchtlingen der Familiennachzug einsetzt und keiner weiss, wie viele Menschen**
+**tatsächlich kommen werden? (13)**
+**Auch hätte ich gerne gewusst, warum das BAMF durch die Hamburger Firma Miramedia im Jahr 2014 einen**
+**regelrechten Asylwerbefilm in mehreren Sprachen wie z.B. Farsi, Paschtu und sogar Serbisch produzieren liess**
+**und diesen ins Netz stellte? (14) Dieser Film ergibt insoweit keinen Sinn, als dass Deutschland von sicheren**
+Drittstaaten umgeben ist und Asylbewerber, die per Flugzeug nach Deutschland kommen, ohnehin direkt einem
+Asylverfahren zugeführt werden.
+**Warum also dieses Video, das so weit von der Realität entfernt ist wie die Sonne von der Erde? Warum wurde**
+**der Tweet** **_#Dublin-Verfahren syrischer Staatsangehöriger werden zum gegenwärtigen Zeitpunkt von uns_**
+**_weitestgehend faktisch nicht weiter verfolgt vom BAMF am 25.8.2015 um 4 Uhr 30 abgesetzt? (15)_**
+**Warum bedient man sich solcher Pullfaktoren inklusive der mit Ihnen gemachten Selfies, die im Handyzeit-**
+**alter nahezu in Echtzeit um die Welt gehen? Des Weiteren wüsste ich gerne: Warum wurden die finanziellen**
+**Mittel, die die EU dem UNHCR für die Flüchtlinge in der Türkei, in Jordanien und im Libanon zugesagt hatte,**
+**nicht gezahlt? (16) Allein Deutschland fuhr seine Flüchtlingshilfe von 301 Millionen Euro um über die Hälfte**
+auf 143 Millionen Euro runter, und das, obwohl allein schon im Jahr 2014 über sechs Millionen Syrer auf der
+Flucht waren. Dass dies der Bundesregierung alles nicht bekannt gewesen sein soll, kann ich mir beim besten
+Willen nicht vorstellen.
+Aber damit nicht genug: Gerade wurde in Form eines Zeichentrickfilms ein neues EU-Flüchtlingsvideo mit dem
+Titel ‹Eurodame, help!› in mehreren Sprachen produziert (17), das auf YouTube hochgeladen werden kann. (18)
+**Warum macht die EU in Form der Europäischen Kommission so etwas? In den deutschen Mainstreammedien**
+habe ich darüber nicht einen einzigen Artikel finden können.
+**Und warum haben Sie, wie erst kürzlich bekannt wurde, bereits im März 2016 im Rahmen Ihres unsäglichen**
+**Deals mit der Türkei konkrete Zusagen über ein legales Flüchtlingskontingent in Höhe von jährlich bis zu**
+
+
+-----
+
+**250000 syrischen Flüchtlingen gemacht, die von der Türkei direkt nach Europa geholt werden sollen? (19) War-**
+**um diese Heimlichtuerei? Sie wissen ganz genau, dass der Grossteil dieses Flüchtlingskontingents in Deutsch-**
+land landen wird, da die Umverteilung innerhalb der EU nicht klappt. Hinzu kommen neben den legalen und
+den illegalen Migranten noch das seit 2012 bestehende Resettlementprogramm (20) und die beschlossene Umsiedlung von monatlich 500 Flüchtlingen aus Italien nach Deutschland. (21) Hierzu wüsste ich gerne von Ihnen,
+**wieso die Türkei, zu der wir ja momentan und wohl auch in nächster Zukunft nicht das allerbeste Verhältnis**
+**haben werden, die Auswahl der syrischen Flüchtlinge übernimmt, die in die EU übersiedeln dürfen, und nicht**
+**wie gewöhnlich das UNHCR?**
+So sollen unter den von der Türkei ausgewählten Personen auffällig viele Kranke und schlecht Qualifizierte
+sein.(22) Es bedarf darüber hinaus auch nicht sonderlich viel blühender Fantasie, um sich vorstellen zu können,
+wer auf diesem Wege auch noch nach Europa geschickt werden könnte.
+**Wird es auch weiterhin unter Ihnen als Bundeskanzlerin – von einer vierten Amtszeit unter Ihrer Führung ist**
+**wohl derzeit auszugehen – keine jährliche Obergrenze für Zuwanderer geben? Und wird in einer vierten**
+**Legislaturperiode die Türkei doch noch die Visafreiheit erhalten?**
+Ich weiss nicht, ob Sie eine Vorstellung davon haben, wie sich die Situation bezüglich der ohnehin schon stattfindenden europäischen Binnenmigration in Richtung Deutschland verschärfen wird, wenn der Aufforderung
+aus Brüssel, ab November 2017, also nach der Bundestagswahl, nachgekommen und die Grenzkontrollen schrittweise aufgehoben werden. Beispielsweise hat Schweden, das vermeintliche Einwanderungsmusterland, seine
+Grenzen doch nicht unbegründet geschlossen, und fährt jetzt einen sehr restriktiven Kurs in der Asylpolitik.
+**Inwieweit lassen sich offene Grenze aus Ihrer Sicht mit der zunehmenden islamistischen Einflussnahme im**
+**Kosovo durch ein Land wie Saudi-Arabien und andere Länder aus der Golfregion, aber auch durch die Türkei,**
+**vereinbaren, vor der Ihre Bundesregierung selbst warnt? (23)**
+Apropos offene Grenzen: Zum G20-Gipfel im Juli 2017 in Hamburg werden aufgrund erwarteter Störungen
+des Treffens der Staats- und Regierungschefs durch Gewalttäter aus anderen EU-Staaten zusätzliche Grenz kontrollen eingeführt. (24) Das verstehe ich nicht, Frau Merkel!
+Und ich verstehe es ebenso wenig, wie der Rüstungskonzern EADS, heute Airbus Defence & Space, bereits im
+Jahr 2010 von Saudi-Arabien den Auftrag zur Sicherung seiner 9000 km langen Grenze vor IS-Kämpfern mit
+neuester Sicherheitstechnik bekommen hat, während unsere Grenzen nur sporadisch kontrolliert werden, (25)
+obwohl die Sicherung der EU-Aussengrenzen bis heute nicht funktioniert.
+Bitte erklären Sie mir offen und ehrlich, was wir in Deutschland zukünftig von Ihnen als Bundeskanzlerin zu
+erwarten haben. Sie sehen, mich als Bürgerin und Mutter treiben Fragen über Fragen um, die mich schon so
+manche Nacht nicht haben schlafen lassen und auf die ich, aber auch viele andere Menschen in diesem Land
+endlich eine Antwort haben wollen.
+Dabei ist mir bekannt, dass es keine einfachen Lösungen gibt. Diese werden ja nur von den sogenannten Rechtspopulisten feilgeboten. Aber wie viel Zeit bleibt uns denn, um zu Lösungen zu gelangen: Fünf, zehn Jahre, zwanzig
+Jahre oder länger? Der Migrationsforscher Gunnar Heinsohn geht davon aus, dass bis zum Jahre 2050 bei unverändertem Wunsch auszuwandern rund 800 Millionen Menschen aus Afrika theoretisch bereit für die Flucht
+nach Europa wären, für die dann rund 450 Millionen Einheimische aufkommen müssten, während Afrikas
+Bevölkerung auch weiterhin um 400 Millionen wächst. (26) Erklären Sie mir bitte, sehr geehrte Frau Bundes**kanzlerin, wie das funktionieren soll?**
+Auch Paul Collier, Migrations- und Entwicklungsökonom, geht von einer wanderungsbereiten Masse von
+mehreren hundert Millionen Menschen in Afrika in Richtung Europa aus. Würde sich diese erst einmal in
+Bewegung setzen, sei diese seiner Ansicht nach kaum noch steuerbar.
+**Was werden wir dann für unschöne Bilder in ganz Europa bekommen? Warum werden von der EU subven-**
+**tionierte Produkte wie z.B. Tiefkühlhähnchen, Tomaten, Kartoffeln, Trockenmilchpulver und Altkleider nach**
+**Afrika exportiert? Durch unsere Exporte nach Afrika nehmen wird den Menschen dort die Möglichkeit, z.B.**
+selbst Landwirtschaft zu betreiben und eine eigene Textilindustrie aufzubauen.
+Einer Ihrer Amtsvorgänger, der frühere Bundeskanzler Helmut Schmidt, glänzte durch Charisma, Augenmass
+und Weitblick wie auch Mut zur Führung durch Moral und Vernunft. Daneben war er ein scharfer Denker und
+vielen oft einen Schritt voraus. Bereits 1981 sagte er auf einer DGB-Veranstaltung folgenden Satz: «Wir können
+nicht mehr Ausländer verdauen, das gibt Mord und Totschlag.»
+Sie selbst haben vor nicht einmal sieben Jahren folgenden Satz gesagt: «Der Ansatz für Multikulti ist gescheitert,
+absolut gescheitert!»(27)
+Darüber hinaus wird Helmut Schmidt in einem Interview mit dem Hamburger Abendblatt am 24.11.2004 mit
+folgender Aussage zitiert: «Mit einer demokratischen Gesellschaft ist das Konzept von Multikulti schwer ver
+
+-----
+
+einbar. Vielleicht auf ganz lange Sicht. Aber wenn man fragt, wo denn multikulturelle Gesellschaften bislang
+funktioniert haben, kommt man ganz schnell zum Ergebnis, dass sie nur dort friedlich funktionieren, wo es
+**einen starken Obrigkeitsstaat gibt (…).»**
+Ihre Staatsministerin, Frau Aydan Özoguz (SPD) – eine aufgrund familiärer Hintergründe und getätigter Aussagen nicht unumstrittene Person – trommelt als Beauftragte der Bundesregierung für Migration, Flüchtlinge
+und Integration vehement für das Ausländerwahlrecht für Nicht-EU-Bürger auch ohne deutschen Pass und für
+die Teilhabe am Haben und Sagen aller Migranten in Form einer interkulturellen Öffnung der Gesellschaft bis
+hin zur Änderung des Grundgesetzes. Dabei spricht sie uns Deutschen gleichzeitig eine spezifisch deutsche
+Kultur jenseits der Sprache ab. (28)
+**Liebe Frau Merkel, sehen Sie dieses Land in seinem derzeitigen Zustand bezüglich der inneren Sicherheit für**
+**solche Schritte gewappnet, die letztendlich zu einer Abschaffung der alten Bundesrepublik führen würden?**
+**Und müsste man für solche grundlegenden Änderungen nicht auch die Bürgerinnen und Bürger fragen? Dies**
+kann man doch nicht mal so eben durch die Hintertür beschliessen.
+Ich komme noch ein weiteres und damit ein letztes Mal auf Helmut Schmidt zurück, den ich hier mit folgendem
+Satz zitieren möchte: «Wenn wir uns überall einmischen wollen, wo himmelschreiendes Unrecht geschieht,
+dann riskieren wir den Dritten Weltkrieg.» (29) War es nicht der Westen, der im Zuge der NATO-Osterweiterung
+unter Führung der USA unter dem damaligen US-Präsidenten Bill Clinton immer weiter an Russland herangerückt ist? Und dies, obwohl bereits bei den Verhandlungen zur deutschen Wiedervereinigung im Jahr 1990
+Zusagen gemacht worden waren, wonach die NATO sich nicht weiter nach Osten ausdehnen werde.
+Die Ukraine wurde zum Spielball zwischen Ost und West und seit 2014 tobt in der Ostukraine ein militärischer
+Konflikt. Die Sanktionen der EU gegenüber Russland sollen verlängert werden, über Bremerhaven rollen US**Panzer nach Osteuropa zwecks Abschreckung der NATO gegen Russland – wohin wird das führen? Wir be -**
+finden uns wieder inmitten eines Kalten Krieges. Aber damit nicht genug.
+**Warum fliegt die Bundeswehr Aufklärungsflüge in Syrien? (30) Warum werden von der US-Base Ramstein in**
+**Deutschland die amerikanischen Drohneneinsätze gesteuert? (31) Warum werden die rund 20 Atomwaffen**
+**des Typs B61 der USA im Fliegerhorst Büchel in der Eifel nicht wie beschlossen abgezogen, sondern bis zum**
+**Jahr 2020 modernisiert? (32)**
+Wir sitzen mittlerweile innen- wie aussenpolitisch auf einem Pulverfass, was Ihnen, verehrte Frau Bundeskanzlerin, hoffentlich nicht entgangen ist. Dabei ist die NATO nicht mehr das ursprüngliche Verteidigungsbündnis,
+sondern im Laufe ihres Bestehens zu einem Angriffspakt geworden. So gab bzw. gibt es weder für den Einsatz
+im Kosovo(33), im Irak(34) noch in Syrien ein UN-Mandat.(35) Die Folge sind unendliches Leid und Elend,
+Tod, Vertreibung und Flüchtlingsströme gen Westen nach Europa, jedoch nicht nach Amerika.
+**Meinen Sie allen Ernstes, dass man so den IS-Terror, der wiederum eine Folge des Irakkrieges ist, bekämpfen**
+**wird? Wird man so nicht vielmehr den Hass auf den Westen schüren, der im Nahen und Mittleren Osten seit**
+**vielen Jahrzehnten nichts als verbrannte Erde hinterlassen hat? Warum wird immer wieder ein regime change**
+**unliebsamer Machthaber, z.T. unter falschem Vorwand wie im Falle des Irakkrieges aufgrund angeblicher**
+**Massenvernichtungswaffen, durch den Eingriff westlicher Truppen in dieser Region, aber auch im Falle von**
+**Libyen vorgenommen?**
+An dieser Stelle muss ich eindringlich doch nochmal an die Worte von Helmut Schmidt erinnern. Geht es dabei
+**nicht immer nur um Rohstoffe wie Erdöl und Erdgas, die für westliche Industrienationen unverzichtbar sind?**
+Der Westen trägt eine nicht ganz unerhebliche Mitschuld durch Waffenlieferungen – die deutschen Rüstungsexporte waren 2015 mit 7,86 Milliarden Euro so hoch wie nie (36) – und illegale Kriege an der Situation in
+diesen Regionen. Dabei scheint es hier eine Art amerikanischen Masterplan im Sinne von ‹Sieben Länder in
+fünf Jahren› zu geben. (37) Googeln Sie doch einfach einmal den Vier-Sterne-General und NATO-Oberbefehlshaber a.D. Wesley Clark, von dem es zu dieser Thematik Originalvideos bei YouTube zu sehen gibt.
+**Gehört das alles auch zu unserer westlichen Wertegemeinschaft?**
+Anders als Sie berührt es mich keinesfalls, dass männliche Babys der kurdischen Peschmerga nach dem deutschen
+Panzerabwehrraketensystem Milan im Kampf gegen den IS benannt werden. (38) Diese Raketen enthalten das
+radioaktive Thorium232 mit einer Halbwertszeit von 14 Milliarden Jahren. (39) Was das für Folgen für die
+Gesundheit, das Trinkwasser, die Nahrung und das Erbgut der Menschen in dieser Region hat, muss ich Ihnen
+als promovierte Physikerin nicht erklären. Können Sie dies wirklich guten Gewissens mit Ihrem Glauben als
+Christin vereinbaren? Ich kann es jedenfalls nicht.
+Lange hat man es Ihnen sowohl durch die Medien als auch durch die Bürgerinnen und Bürger durchgehen lassen,
+dass Sie mit Ihren Äusserungen sehr oft im Vagen, im Ungefähren geblieben sind bzw. mehrere Wenden in Ihrer
+Politik vorgenommen haben, ohne sich wirklich erklären zu müssen. Während Ihr politischer Ziehvater, Helmut
+
+
+-----
+
+Kohl, als Wiedervereinigungskanzler in die Geschichte eingehen wird, gibt es durch Ihre Politik der letzten
+**beiden Jahre eine tiefe Spaltung in der deutschen Gesellschaft, die sogar Familien und langjährige Freund-**
+**schaften betrifft, aber auch in ganz Europa.**
+**Viele Menschen haben mittlerweile Angst, sich in diesem Land kritisch gegenüber Ihrer Migrationspolitik zu**
+**äussern, da man ja schnell als rechtsradikal, Nazi oder Verschwörungstheoretiker bezeichnet wird. Bislang war**
+mir die Angst vor der freien und kritischen Meinungsäusserung nur aus totalitären Systemen bekannt. Sie selbst
+haben im Rahmen einer Veranstaltung zur Verleihung Ihrer Ehrendoktorwürde der Universität Bern in der
+Schweiz im September 2015 einer Dame, die sich besorgt über die zunehmende Islamisierung Europas geäussert
+hatte, u.a. folgende Worte gesagt: «Angst war immer ein schlechter Ratgeber.» Und so würden aus Ihrer Sicht
+Kulturen und Gesellschaften, die von Angst geprägt seien, mit Sicherheit die Zukunft nicht meistern. Deshalb
+habe ich all meinen Mut zusammengenommen und dieses Schreiben an Sie verfasst.
+**Meinen Sie, sehr geehrte Frau Bundeskanzlerin, dass Ihre Flüchtlingspolitik tatsächlich** **_christlich ist? Ich_**
+jedenfalls bin da ganz anderer Ansicht, denn sowohl die Menschen, die ihr Leben aufs Spiel setzen, um nach
+Europa zu kommen wie auch die in Europa bzw. in Deutschland lebenden Menschen werden allesamt durch
+Ihre Asylpolitik zu Opfern und so steht für mich das C der CDU mittlerweile einzig und allein für chaotisch.
+Mein Vertrauen in Sie und Ihre Art des Politikmachens in Form von 180°-Wenden, Ausschaltung guter CDUPolitiker, Rechts- und Gesetzesbrüchen sowie heimlichen Absprachen ist nicht erst seit der akuten Flüchtlingskrise 2015 verlorengegangen. Deshalb gibt es leider auch bei dieser Bundestagswahl wieder kein Kreuz von mir
+für Sie.
+Dennoch wüsste ich gerne, wie es unter Ihnen als Kanzlerin zukünftig mit Deutschland und Europa weitergehen
+wird, zumal meine genetische Zukunft in meinen Kindern liegt. Diese möchten mit noch nicht einmal 20 Jahren
+**gerne erfahren, wie lange ein friedliches Miteinander der verschiedenen Kulturen, Religionen und Ethnien**
+**durch Ihre Politik auf diesem Kontinent noch möglich sein wird. Daher sehe nicht nur ich, sondern auch meine**
+Familie Ihrer Antwort mit grosser Erwartung entgegen! Da auch viele Freunde und Bekannte von mir, aber auch
+mir nicht bekannte Bürgerinnen und Bürger, Mütter und Väter, Grossmütter und Grossväter ähnliche Fragen
+umtreiben, werde ich diesen Brief im Internet veröffentlichen. Sollte ich auf diesen tatsächlich eine Antwort
+von Ihnen erhalten, wird diese ebenfalls im Netz veröffentlicht.
+Als Mutter habe ich meinen Kindern immer wieder Grenzen setzen müssen. So habe ich ihnen verboten, einfach
+vom Grundstück auf die Spielstrasse zu laufen oder es wurden die Treppen mit Kindersicherungsgittern versperrt.
+Grenzen können zum einen Leben retten, zum anderen das friedliche Miteinander einer Gesellschaft innerhalb
+eines Landes unter Wahrung seiner Rechtsordnung und unter Einhaltung seiner demokratischen Grundprinzipien regeln. Von daher sei mir noch eine letzte Frage gestattet: Wem, sehr geehrte Frau Bundeskanzlerin, nützt
+**es, wenn dieses Land sowohl von innen als auch von aussen weiterhin destabilisiert wird?**
+Mit freundlichen Grüssen
+Petra Paulsen
+_Quellen: 1) Welt online 12.5.2013, 2) Welt online 19.7.2016, 3) Handelsblatt online 6.7.2016, 4) Tagesspiegel online 26.10.2016,_
+_5) Deutschlandfunk online 5.12.2016, 6) Welt online 5.3.2017, 7) n-tv online 24.4.2017, 8) FOCUS online 17.11.2012, 9) heute_
+_online 16.5.2017, 10) Welt online 12.6.2016, 11) Tagesspiegel online 3.4.2017, 12) Welt online 10.5.2017, 13) Spiegel online_
+_5.4.2017, 14) Welt online 30.8.2015, 15) BAMF Twitter-Account 25.8.2018, 4 Uhr 30, 16) Welt online 14.10.2015, 17) Daily_
+_Mail online 16.5.2017, 18) https://www.youtube.com/watch?v=ffZdZUQAT1w, 19) Welt online 18.3.2017, 20) Bundesministe-_
+_rium des Innern online 3.12.2014, 21) Zeit online 25.3.2017, 22) Tagesschau online 21.5.2016, 23) FOCUS online 17.5.2017,_
+_24) SPIEGEL online 17.5.2017, 25) Welt online 5.10.2010, 26) Welt online 4.11.2016, 27) SPIEGEL online 16.10.2010, 28)_
+_BAYERKURIER online 17.5.2017, 29) ZEIT online 14.1.2009, 30) BILD online 5.12.2015, 31) SWR online 1.12.2016, 32) Augs-_
+_burger Allgemeine 22.7.2014, 33) Welt online 15.6.1998, 34) FAZ online 4.10.2002, 35) Deutsche Welle online 30.8.2013, 36)_
+_Welt online 3.7.2016, 37) Handelsblatt online 13.6.2014, 38) www.youtube.com/watch?v=D1VRxR6sQig, 39IPPNW online_
+_Pressemitteilung 7.10.2014_
+**_Redaktion: Dieser Beitrag stellt ausschliesslich die Meinung des Verfassers dar. Er muss nicht zwangsläufig die Meinung von_**
+_Epoch Times oder die Meinung anderer Autoren dieser Seiten wiedergeben._
+_Quelle: http://www.epochtimes.de/politik/deutschland/petra-paulsen-brief-bundeskanzlerin-merkel-migranten-manchester-_
+_familiennachzug-fluechtlinge-schuldenberg-a2126434.html_
+
+
+-----
+
+### Toleranz
+_Veröffentlicht am 24. Mai 2017 von dieter; von Gerhard Breunig (deutschland-pranger)_
+
+Toleranz ist das, was in jeder Situation und in jeder Lebenslage ständig von uns gefordert wird. Denn seit wir
+in diesen turbulenten sozialistischen Einheitsbrei-Zeiten leben müssen, gilt das ‹Wir› angeblich als besonders
+erstrebenswert, während das eigentlich viel menschlichere ‹Ich› nur noch ein Mauerblümchendasein fristen
+darf. Dabei bringt diese ständig auf allen Kanälen gepredigte ‹Toleranz› bei genauerer Betrachtung das genaue
+Gegenmodell zur Toleranz zum Vorschein, nämlich die totale Intoleranz der Toleranz-Forderer. Nichts ist intoleranter als jemand, der von andern Toleranz für sich oder seine ideologische Persönlichkeitsstörung einfordert. Nichts ist inzwischen intoleranter als der permanent Toleranz einfordernde, moralisch total verkommene
+Merkel-Staat.
+Dabei ist es völlig egal, ob es um die Jünger des Multi-Kulti-Gender-Wahnsinns oder selbsternannte Frauenrechtler geht. Das derzeit besonders beliebte gemeinsame Feindbild der sozialistischen Toleranz-Industrie ist
+stets Mann – weiss – deutsch. Es wird schon längst keine Mühe mit einer Unterscheidung mehr gemacht, wer
+da gerade in den Toleranzschredder geworfen wird – Hauptsache die Ideologie wird durchgesetzt. Natürlich sind
+es nicht nur die oben genannten Gruppen, die von uns Toleranz einfordern. Nicht unerwähnt bleiben sollten in
+diesem Zusammenhang deshalb auch die Ökostalinisten und Klimawandel-Prediger, die ähnlich wie der gemeine
+Standard-Sozialist nationaler oder internationaler Prägung unsere gesamte Gesellschaft gerne in die Steinzeit
+zurück beamen möchten.
+Es kommt den jeweiligen Protagonisten dabei eigentlich gar nicht mehr so sehr auf die gewählte Methode an.
+Hauptsache wir sind endlich alle gleich – und sei es auf niedrigstem überhaupt denkbarem Niveau.
+Ganz besonders schlimm trifft es in Deutschland seit Jahren diejenigen Männer, die auch noch deutsche Vorfahren haben. Gnade ihnen Gott, wenn sie zu dieser Gattung Mensch gehören und möglicherweise sogar noch
+wirtschaftlich erfolgreich sind. Mit diesen unsolidarischen Voraussetzungen sind Sie in der aktuellen politischen
+Konstellation für die sozialistische Einheits-Gesellschaft im totalen Merkel-Universum ein absolutes no-go, wie
+es auf ‹Neudeutsch› inzwischen heisst.
+Dem weissen deutschen Mann muss deshalb bei jeder sich bietenden Gelegenheit die Schandmaske aufgesetzt
+werden. Willkommen zurück im Mittelalter.
+Toleranz wird von interessierter Seite praktisch überall und bei jeder sich bietenden Gelegenheit gepredigt. Von
+der Kirchenmafia über die Flüchtlingsmafia bis zur Polit- und Regierungsmafia. Selbst die Medienmafia stimmt
+fröhlich ins Toleranz-Gehabe gegen unsere gewachsene Kultur mit ein. Hau drauf und weg mit den Deutschen –
+ein seit 80 Jahren beliebter Ansatz, um uns niedrig zu halten und schamlos auszuplündern.
+Wozu bitte braucht die Uni Frankfurt jetzt, 80 Jahre nach dem Krieg, eine Professur für Holocaust-Forschung?
+Wurde dieses Thema nicht in den letzten 80 Jahren schon bis zum Erbrechen über uns ausgeschüttet? Reicht es
+diesen Polit-Marionetten der weltweiten Finanz-Mafia immer noch nicht, dass unsere Kinder zu diesem Thema,
+welches ganze 12 Jahre in unserer mehr als tausend Jahre umfassenden Geschichte ausmacht, in der Schule zig
+mal länger ‹geschult› werden, als über die unzähligen positiven Leistungen, die Deutsche seit Jahrhunderten für
+die gesamte Welt erbracht haben? Wo bleibt da die Toleranz gegenüber den Kindern und Kindeskindern dieses
+Landes?
+Die ‹deutsche› Politik erfindet ständig neue, unbedingt schutzbedürftige ‹Minderheiten›, die, auf Basis der seit
+den Römern bekannten ‹Teile und Herrsche›-Philosophie, derzeit wie Pilze aus dem Boden schiessen. Warum
+ein Schwuler allerdings schützenswerter ist als ich und deshalb mehr Rechte in diesem Land haben muss, erklärt
+mir von diesen Gleichmacher-Proleten niemand. Kein Schwuler wird von mir bedroht oder ausgegrenzt. Wozu
+auch? Die Schwulen, die ich kenne, haben allesamt gute Jobs, sind freundlich und höflich. Sie sind unaufdringlich und intelligente Gesprächspartner. Die meisten von ihnen hassen sogar diesen medialen Kult, der uns
+derzeit verstärkt um das Schwulsein vorgeführt wird.
+
+
+-----
+
+Bin ich etwa ein schlechterer Mann, nur weil ich hetero bin und Frauen mag? Ich habe bei Gott nichts gegen
+Schwule und auch nichts gegen Ausländer, die sich in diesem Land integrieren. Aber ich muss mich auch nicht
+täglich mit deren Nöten und Problemen beschäftigen. Auf meine Probleme geht ja auch niemand ein. Aber vielleicht ändert sich das, wenn ich als Mann – weiss und deutsch – dank Angela Merkel demnächst zur Minderheit
+geworden bin.
+Bei dem Tempo, in dem POLITIK unsere Gesellschaft in immer mehr beherrschbare Gruppen zersplittert und mit
+Männern aus fremden Kulturkreisen auffüllt, ist es nur noch eine Frage der Zeit, bis der deutsche weisse Mann
+zur Minderheit in diesem seinem Land geworden ist. Das Tempo, mit dem wir dank Angela Merkels grandioser
+Zuwanderungspolitik ‹eingedunkelt› werden, ist inzwischen jedenfalls atemberaubend. Da freuen wir uns doch
+auf weitere vier Jahre Niedergang der über Jahrhunderte gewachsenen deutschen Kultur und freuen uns auf
+weitere ‹Bereicherung›. Dank Martin Schulz wissen wir inzwischen ja, was für uns ‹wertvoller als Gold› ist.
+Genau das, was man uns seit 80 Jahren mit grösster Perfektion medial in die Birne gerammt hat, lässt uns anscheinend immer wieder daran glauben, dass sich irgendwann vielleicht doch noch etwas ändert in diesem Land.
+Doch Toleranz ist nichts weiter als ein Trugschluss. Mit den Marionetten, die in Berlin Regierung spielen, wird es
+garantiert keine Änderung der Situation geben – es wird noch viel schlimmer werden. Die endlose immerwährende
+Schuld an etwas, mit dem weder mein Opa noch mein Vater wirklich was zu tun hatten, wird man uns auch noch
+in hundert Jahren um die Ohren hauen, wenn wir das weiterhin so hinnehmen wie bisher. Dabei sind ‹die Deutschen› seit 100 Jahren die eigentlichen Opfer einer Finanzmafia, nicht Täter. Die wirklichen Täter sitzen seit
+Tausenden von Jahren immer in den Regierungssesseln, während sich ihre Opfer die Köpfe einschlagen.
+Das ist in jedem Obrigkeitsstaat so.
+Wer sich fragt, wie das mit Adolf H. damals überhaupt passieren konnte, der sollte heute mal die Augen richtig
+aufmachen. Gerade geschieht genau das Gleiche wieder mit uns und niemand tut wirklich was. Es gibt nur einen
+gravierenden Unterschied zu damals. Dieses Mal trifft es den verbliebenen Rest der noch vorhandenen Deutschen, die wie 1933 von einer willfährigen Politik, bezahlt von den immer gleichen sogenannten ‹Finanzeliten›
+wie Lemminge von ihren eigenen Leuten in den Untergang gehetzt werden. Diese Hetze spielt clever mit unserer
+Toleranz. Dieses Hetze wurde aber auch erst möglich durch unsere Toleranz. Und diese Toleranz wird uns und
+unsere Kultur über kurz oder lang zerstören.
+Übrig bleiben werden die Intoleranten, die Hetzer und die Lügner. Die Zersetzer und Parasiten einer Politik,
+die uns in immer kleinere Gruppen aufspaltet, um uns ständig gegeneinander auszuspielen.
+Uns geht’s doch gut – schau doch mal nach Afrika. Das höre ich andauernd.
+Nein uns geht es eben nicht gut. Wir sind die allerletzten Idioten, weil wir uns von Politikern, die uns jeden dahergelaufenen Scheinasylanten als Bereicherung für unsere Kultur und als besonders schützenswert verkaufen
+wollen, an der Nase herumführen lassen. Anstatt diesen armen Menschen dort zu helfen, wo sie geboren wurden,
+sorgt Politik doch erst dafür, dass deren Lebensverhältnisse in ihrer Heimat so schrecklich sind, dass sie sich auf
+den Weg zu uns machen. Skrupellose Menschen, die nicht unsere Interessen vertreten und schon gar nicht die
+Interessen der sogenannten Flüchtlinge, missbrauchen deren Not und unsere Toleranz für eigene Geschäfte und
+für den eigenen Vorteil. Probleme dort zu schaffen, wo es vorher keine gab, das ist Politik. Danach kann dann
+die gewünschte Lösung des Problems angeboten werden – natürlich ist diese Lösung nie umsonst.
+Weil wir uns von Politikern belügen und verhöhnen lassen, dass es immer unerträglicher wird in diesem Land,
+sind wir selbst schuld an diesem Zustand.
+NRW hat gewählt. Hurra, der SPD hat man den Zahn gezogen, der Angela Merkel sei Dank von Karies befallen
+wurde. Hannelore Kraft wurde für etwas abgestraft, was eigentlich Angela Merkel mit ihrer unsäglichen Untätigkeit zu verantworten hat. Nicht dass hier der Gedanke aufkommt, ich wäre SPD-Fan. Nein, das Gegenteil ist der
+Fall. Aber ist es nicht ein riesengrosser Zufall, dass ausgerechnet jetzt, wo die SPD ‹niedergeschulzt› wird, die
+FDP aus der medialen Versenkung wieder auftaucht, als wäre das von Gott so gewollt? Wer das glaubt, der hat
+sie nicht mehr alle.
+Die Manipulationen der Massen sind allgegenwärtig. Ob Peter Pattex im ‹Heute Journal› oder ob Anne wieder
+mal talken Will. Wir erleben überall und auf allen Kanälen die riesengrosse Toleranz-Show, deren abartige Fratze
+selbst die schlimmste daily soap an ‹geistlosem› Dreck tausendfach übertrifft.
+Mir muss deshalb auch nicht jeden Tag irgendein Pamphlet vor die Nase gehalten werden, dass die ‹Rechte› irgend einer dieser beliebig austauschbaren ‹Randgruppen› besonders geschützt werden müssen. Es reicht doch völlig
+aus, wenn diese Gruppen genauso behandelt werden wie ich. Überhaupt kenne ich nur ein Recht, das für alle
+Menschen gelten sollte:
+Jeder kann tun und lassen was er will, so lange er keinem Anderen irgendeinen Schaden zufügt.
+
+
+-----
+
+Das reicht doch völlig. Warum soll ich denn überhaupt ‹tolerant› zu jedem dahergelaufenen Afrikaner sein, der
+nur sein Leben auf meine Kosten verbessern will? Klar geht es denen da unten schlecht. Aber warum soll ich
+deren Problem zu meinem Problem machen – ich habe schliesslich selbst mehr als genug Probleme mit meinem
+eigenen Leben. Ist das zu hart? Ich denke nicht. Wenn jemand meint, er müsse sich um diese Leute kümmern,
+dann kann er das selbstverständlich gerne auf seine eigenen Kosten tun. Aber bitte nicht auf meine Kosten.
+Kein Politiker in diesem Land hat von mir dafür ein Mandat erhalten. Kein Politiker in diesem Land hat von
+mir ein Mandat dafür erhalten, mein sauer verdientes, in unverschämter Art und Weise weggenommenes Geld
+mit beiden Händen zum Fenster hinauszuwerfen.
+Ihr Politiker, Medienmarionetten, Gut- und Bessermenschen, Ökofuzzis und Bahnhofsklatscher, steckt euch
+eure ätzende Toleranz doch endlich dahin, wo auch am Tag kein Licht hinein scheint. Ich brauche euch nicht,
+ich will euch nicht und ich fordere das frei nach Roland Baader formulierte einzige echte Menschenrecht für
+mich ein: Ich möchte von euch in Ruhe gelassen werden.
+_Quelle: http://krisenfrei.de/toleranz/_
+
+### Tägliche Nutzung von Smartphone und Tablet soll bei Kindern zu Hyperaktivität, Fettleibigkeit sowie Störungen von Konzentration und Sprachentwicklung führen
+_wochenblatt; Sa, 27 Mai 2017 14:12 UTC_
+**Die tägliche Nutzung von Smartphone und Tablet führt bei Kindern zu Hyperaktivität, Fettleibigkeit sowie**
+**Störungen von Konzentration und Sprachentwicklung. Dies ist laut der Passauer Neuen Presse das Ergebnis der**
+‹Blikk-Studie› zu den Folgen der Mediennutzung von Kindern und Jugendlichen. Die Drogenbeauftragte der
+Regierung, Marlene Mortler (CSU), forderte Eltern auf, ihre Kinder in der digitalen Welt nicht allein zu lassen.
+Bei Babys und Kleinkindern bis zu einem Jahr belegen die Ergebnisse dem Bericht zufolge Fütter- und Einschlafstörungen, wenn die Mutter während der Säuglingsbetreuung digitale Medien nutzt. Zwei- bis 13-Jährige zeigten
+bei einer täglichen Nutzung digitaler Medien von mehr als einer Stunde motorische Hyperaktivität und Konzentrationsschwäche.
+Bei über 13-Jährigen stelle die Untersuchung zudem einen erhöhten Genuss von Süssgetränken und Süssigkeiten
+sowie eine Zunahme des Body-Mass-Index fest. Ein ‹nennenswerter Teil› der befragten Jugendlichen gab an,
+Probleme zu haben, die eigene Internetnutzung zu kontrollieren.
+«In den Händen von Kleinkindern haben Smartphones und Tablets überhaupt nichts zu suchen», sagte Mortler
+der ‹Passauer Neuen Presse› vom Samstag. «Danach müssen Eltern gemeinsam mit den Kindern die digitalen
+Möglichkeiten und Grenzen kennenlernen. Ich würde das einmal digitale Fürsorge nennen.» Passau (AFP)
+_Quelle: https://de.sott.net/article/29570-Tagliche-Nutzung-von-Smartphone-und-Tablet-soll-bei-Kindern-zu-Hyperaktivitat-_
+_Fettleibigkeit-sowie-Storungen-von-Konzentration-und-Sprachentwicklung-fuhren_
+
+### Migration verursacht Finanzkatastrophe für Dänemark
+_Sonntag, 28. Mai 2017, von Freeman um 12:05_
+Eine Studie des dänischen Finanzministeriums, die im April 2017 veröffentlicht wurde, zeigt die Nettobeiträge
+zu den Staatsfinanzen aufgeteilt nach Herkunft der Personengruppen für das Jahr 2014. Die Studie heisst ‹Økonomisk analyse: Indvandreres nettobidrag til de offentlige finanser›.
+
+Darin wird aufgezeigt, dass die Migranten und ihre Nachkömmlinge den dänischen Staat pro Jahr netto 28
+Milliarden Dänische Kronen (3,8 Milliarden Euro) durch die Sozialleistungen kosten, die sie bekommen.
+
+
+-----
+
+Wenn man aber die Migranten aus Europa abzieht, die 5 Milliarden Kronen netto zur Staatskasse beitragen,
+dann erhöht sich der Aufwand für die aussereuropäischen Migranten auf 33 Milliarden Kronen (4,46 Milliarden
+Euro).
+Zum Vergleich: Die Steuerzahler dänischer Herkunft haben insgesamt 56 Milliarden Kronen zum Staatshaushalt beigetragen. Das heisst, die durch die Arbeitsleitung der Dänen gezahlten Steuern werden zu 59 Prozent
+für Einwanderer, die von ausserhalb Europas gekommen sind, aufgewendet, die auf Deutsch gesagt nichts leisten
+und nur dem dänischen Staat auf der Tasche liegen. Wenn das keine ungeheure Belastung und finanzielle
+Katastrophe für Dänemark bedeutet!!!
+Hier die Tabelle, die ich aus der Studie entnommen habe:
+
+Dänemark ist ein kleines Land mit einer Bevölkerung von 5,641 Millionen. Davon sind laut der Studie 638000
+Einwanderer und deren Abkömmlinge. Das Land hat also einen Ausländeranteil von 11,3 Prozent.
+Anders gesagt: Die 226000 europäischen Einwanderer bringen dem Staat durch ihre Arbeit netto Geld und die
+413000 nichteuropäischen Einwanderer kosten enorm viel Geld, was mehr als die Hälfte der Steuereinnahmen
+verschlingt. Der Grund liegt darin, dass die Nichteuropäer meistens keinen Beruf gelernt haben und nur sehr
+schwer in der Arbeitswelt integrierbar sind. Dazu kommt ihre falsche Einstellung, denn sie meinen, der dänische
+Staat habe sich gefälligst um sie zu kümmern, müsse ihnen alles zahlen und sie müssten nichts dafür tun.
+Ist dieses schockierende Ergebnis der Studie nur auf Dänemark beschränkt? Sicher nicht, sondern wahrscheinlich ist es in allen europäischen Ländern mit Masseneinwanderung so.
+Aber was machen die ganzen Vertreter der Willkommenskultur und die Befürworter der offenen Grenzen? Sie
+wollen diese Fakten über die enormen Kosten nicht wahrhaben und leben in einer Blase der Leugnung. Sie behaupten sogar, die Einwanderer würden nicht nur die Kultur bereichern, sondern auch die Staats- und Rentenkassen füllen. Sie sagen, weil die heimische Bevölkerung immer älter werde, brauche es die Migranten aus Afrika
+und dem Mittleren Osten. Nur, die bringen netto nichts und kosten nur, wie die Studie des dänischen Finanzministeriums beweist.
+Sie sind ja nicht so fleissig wie die Gastarbeiter aus Italien, Spanien und Portugal etc. es vor Jahrzehnten waren. Sie
+haben geholfen, Europa, speziell Deutschland, nach dem Krieg wieder aufzubauen und haben ihr ganzes Arbeitsleben in die Kassen eingezahlt, viel gebracht und sich jetzt ihre Rente wohl verdient.
+Wer glaubt, dass die heutigen Wirtschaftsflüchtlinge dasselbe Positive beitragen werden, irrt gewaltig. Sie werden
+jahrzehntelang nur kosten und die Kassen belasten.
+Was noch dazu kommt ist die Ausländerkriminalität in Dänemark, die enorme Kosten verursacht. 90 Prozent der
+Gefängnisinsassen sind Ausländer, davon wiederum die meisten arabisch-moslemischer Herkunft. Wer bei diesen
+Zahlen noch sagt, die Masseneinwanderung würde den europäischen Ländern viele Vorteile bringen, der lügt!
+Übrigens, der Manchester-Attentäter, Salman Abedi, hat auch auf Kosten der britischen Steuerzahler gelebt. So
+bekam er unter anderem zwei Jahre lang 7000 Pfund als Studiengeld für eine Ausbildung als Wirtschaftsstudent
+an der Salford University, musste aber nicht zu den Vorlesungen erscheinen. Stattdessen reiste er nach Libyen
+und Syrien und lernte dort von den Terroristen wie man Bomben baut. Als Dank an die Briten hat er sich nach
+einem Pop-Konzert der US-amerikanischen Sängerin Ariana Grande in der Manchester Arena in die Luft gesprengt und dabei 22 Menschen mit in den Tod gerissen, drunter viele Jugendliche und Kinder.
+Auch seine Eltern, Samia und Ramadan Abedi, wurden 1991 als Flüchtlinge in Grossbritannien aufgenommen
+und bekamen jahrzehntelang volle soziale Unterstützung vom Staat, bis sie 2011 nach Libyen zurückgingen.
+Obwohl die Mutter eine Atomingenieurin war und die beste ihres Studiengangs an der Universität von Tripolis,
+hat sie sich geweigert, zu arbeiten und nur die britische Stütze kassiert.
+
+
+-----
+
+Die folgende Karte zeigt mit roten Punkten alle Terrorangriffe der letzten Jahrzehnte in Europa und Umgebung.
+Fällt euch ein Land ohne Punkte auf wo keine Terroranschläge stattgefunden haben?
+
+Ja es handelt sich um POLEN!!! Wahrscheinlich liegt es an der strikten Einwanderungspolitik. Es gibt keine
+Terroranschläge, weil sie keine Flüchtlinge/Terroristen ins Land lassen.
+Der letzte Terroranschlag in Deutschland passierte am 29. April in Prien am Chiemsee. Dort hat ein Afghane (29)
+eine Landsfrau (38) auf offener Strasse zuerst in den Kopf gestochen und ihr dann die Kehle durchgeschnitten,
+vor den zwei Kindern der Frau, als sie einkaufen war und aus dem Lidl herauskam. Der Grund ist, dass sie sich
+entschieden hat, zum Christentum zu konvertieren.
+Demnach habe der Täter zunächst auf einer Bank gegenüber dem Supermarkt-Eingang gesessen. Von dort sei
+er wie aus dem Nichts auf die Frau, die gerade mit dem Einkaufswagen und den beiden Kindern den Supermarkt
+verliess, losgegangen. «Er sei dann von hinten auf die Frau losgegangen, habe ihr in den Kopf gestochen und
+die Kehle durchgeschnitten. Wie in Trance soll er dann weiter auf sein Opfer eingestochen haben. Eine unfassbar
+grausame Bluttat!»
+Die Frau starb auf dem Weg ins Spital an ihren Verletzungen. Der Täter hat in einer Unterkunft für Asylbewerber
+gewohnt, die Frau in einer Privatwohnung. Sie sollen sich gekannt haben.
+_Quelle: http://alles-schallundrauch.blogspot.com/2017/05/migration-verursacht-finanzkatastrophe.html#ixzz4iRQTgnzM_
+
+### Chronischer Schlafmangel kann Synapsen aufzehren
+_Der Standard; Di, 30 Mai 2017 14:30 UTC_
+_Forscher entdecken bei Mäusen eine weitere dramatische Folge unzureichender Nachtruhe._
+Madison – Wer zu wenig schläft, muss mit etlichen negativen Folgen rechnen: Schlafmangel sorgt unter anderem
+dafür, dass wir anfälliger für Krankheiten werden, da unser Immunsystem schlechter funktioniert. Zudem setzt
+er unsere geistige (Anm. bewusstseinsmässige) Leistungsfähigkeit herab und macht, wie eine Studie jüngst zeigte,
+unattraktiv und unbeliebt.
+Forscher um Michele Bellesi (University of Wisconsin) berichten im ‹Journal of Neuroscience› von einer weiteren
+unangenehmen Nebenwirkung, die sie zumindest an Mäusen diagnostizieren konnten: Zu wenig Schlaf kann
+auch das Gehirn schädigen. Konkret fanden sie heraus, dass jener im Schlaf aktivierte Reinigungsmechanismus
+im Gehirn bei zu wenig Nachtruhe auf Hyperantrieb gestellt wird und Synapsenverbindungen auflöst.
+Der neue Befund könnte auch einen Hinweis darauf geben, warum chronischer Schlafmangel letztlich auch das
+Risiko für neurodegenerative Krankheiten wie Demenz oder Alzheimer erhöhen kann, wie bereits in früheren
+Studien diagnostiziert wurde. (tasch)
+**_Links: Journal of Neuroscience: ‹Sleep Loss Promotes Astrocytic Phagocytosis and Microglial Activation in Mouse Cerebral Cortex›_**
+_Nachlese: ‹Wenig Schlaf macht unattraktiv und unbeliebt›_
+_Quelle: https://de.sott.net/article/29593-Chronischer-Schlafmangel-kann-Synapsen-aufzehren_
+
+
+-----
+
+### Die Putin-Versteher: Wie das ‹Feindbild Russland› installiert worden ist
+_Veröffentlichungsdatum: 12 06 2017, 14:04; Von Hannes Hofbauer_
+Seit der Jahrhundertwende verschlechtern sich die Beziehungen des Westens zu Russland im Fünfjahresrhythmus.
+Den jeweiligen Zäsuren 1999 (NATO-Krieg gegen Jugoslawien), 2003 (Irak-Krieg & Festnahme von Michail
+Chodorkowski), 2008 (Georgien-Krieg) und 2013/14 (Ukraine-Krise) folgte eine politisch und medial immer
+aufgeladenere Stimmung, die Schritt für Schritt in Hetze umschlug. Je nach Qualität des Russland-Bashings galt
+seinen Betreibern das Land als Ganzes, die Russen als Ethnie oder ihr Führer, Wladimir Putin, als verachtenswerter Gegner, den man in die Schranken weisen müsse. So wurde der Begriff ‹Putin-Versteher› zum Schimpfwort.
+Bevor das unsägliche Wort vom Putin-Versteher im Westen – und nur dort wurde es verwendet und machte
+seinen (Un)Sinn – in Gebrauch kam, gab es schon einen sehr prominenten Vertreter dieser Spezies. Gérard
+Depardieu war Putin-Versteher der ersten Stunde. Lange vor der Ukrainekrise outete sich der französische
+Schauspieler und Winzer als Freund des russischen Präsidenten. Die beiden Männer mögen einander. Am 3.
+Januar 2013 erhielt Depardieu die russische Staatsbürgerschaft aus der Hand des Kreml-Chefs. Seither ist sein
+offizieller Wohnsitz Saransk, wo der Schauspieler auch ein Restaurant betreibt.
+Nun ist klar, dass der Terminus Putin-Versteher nicht für einen Charakterdarsteller wie Depardieu erfunden
+worden ist. Dessen positiver Bezug zu Putin wurzelt neben der persönlichen Beziehung in einem französischen
+Steuergesetz, das einen Sondersteuersatz von 75% für einen gewissen Betrag bei höchsten Einkommen eingeführt hat, wenn diese über 1,2 Mio. Euro liegen. So symbolisch dieser Spitzensteuersatz ist, weil er nie zur Gesamtbesteuerung in der Höhe von 75% führt, so symbolisch war auch die Emigration Gérard Depardieus. Und
+doch stellt sie einen Wendepunkt in der Beziehung des Westens mit Russland dar.
+Dem Steuerflüchtling Depardieu folgte der prominente politische Flüchtling Edward Snowden. Der US-amerikanische Aufdecker weltweiter Schnüffel- und Abhöraktionen des Geheimdienstes ‹National Security Agency›
+(NSA), für den er gearbeitet hatte, floh vor drohender politischer Repression in seiner Heimat nach Russland.
+Dort erhielt er zeitlich beschränktes Asyl. Washington will Snowden wegen Spionage anklagen; seine Tat hat
+jedoch nichts mit Spionieren für ausländische Mächte wie China, Russland oder andere Staaten zu tun. Er deckte
+vielmehr illegale und unmoralische Praktiken des eigenen Geheimdienstes gegen das eigene Volk (und nicht
+nur dieses) auf. Deshalb stellt er den klassischen Fall eines politischen Flüchtlings dar.
+Depardieu und Snowden stehen für ein Bild von Russland, das die Herrschenden im Westen nicht nur nicht
+wahrhaben wollen, sondern dessen Existenz sie schlichtweg leugnen. Russland ist ihrer Meinung nach ein Land,
+mit dem man (eingeschränkt durch fallweise Embargos) Geschäfte machen oder dorthin auf Urlaub fahren
+kann. Eine Flucht dorthin kam seit der kommunistischen Emigration der 1930er Jahre nicht mehr vor. Wenn
+dann der eine aus steuerlichen Gründen und jemand anderer aus politischen Motiven in dieses Land fliehen,
+wird das schon fast als feindlicher Akt wahrgenommen.
+Der Begriff Putin-Versteher, der von Anfang an diffamierend gemeint war, obwohl doch das Verstehen jedem
+Urteil und jeder Analyse vorausgehen sollte, kam parallel mit Wortmeldungen auf, in denen sich Personen des
+öffentlichen Interesses nicht vorbehaltlos feindselig zur Politik Moskaus gegenüber den Ereignissen in der
+Ukraine äußerten. Paradigmatisch für die Hetze, die gegen jene betrieben wurde, die die Vorbehalte des Kreml
+im Angesicht des putschartigen Machtwechsels von Kiew im Februar 2014 verstanden, liest sich z.B. ein Artikel
+im Schweizer ‹Tages-Anzeiger› vom 20. März 2014.
+Dessen Deutschland-Korrespondent beschreibt unter der Überschrift ‹Die Putin-Versteher› selbige mit höchster
+Verachtung. Diese sind «eine seltsame Allianz aus Putin-Fans, EU-Kritikern und antiamerikanischen Wut bürgern», die «seit Wochen ihr Unwesen treibt» und «sogar im Bundestag ihre Grundthese» verbreite, wonach
+«Russland in der Ukraine nur seine Interessen verteidige.» Die ‹Linke›-Abgeordnete und damalige stellver tretende Parteichefin Sarah Wagenknecht bezeichnet der Korrespondent des Tages-Anzeigers gar als ‹Speerspitze
+von Putins fünfter Kolonne› und brandmarkt sie mithin als Verräterin.
+Auch der Publizist Jakob Augstein bekommt sein Fett vom korrespondierenden Russenhasser David Nauer ab,
+weil er es wagte, auf Spiegel Online zu kommentieren: «Die Kalten Krieger sitzen nicht im Kreml, sondern in
+Washington, in Brüssel und in Berlin.» Und sogar die ehemalige Schweizer Aussenministerin erhält die Punze
+‹Putin-Versteher›. Sie merkte in der ‹Aargauer Zeitung› leise an, «dass die EU eine gewisse Mitschuld an der
+Krise trägt». Im Frühling 2014 herrschte Kriegsstimmung. In der Ukraine gingen Militärs und rechtsradikale
+Paramilitärs gegen russischstämmige Landsleute im Osten vor; in Deutschland, Österreich und der Schweiz
+assistierten meinungsbildende Medien diesem Vorgehen Legitimität und attackierten all jene, die sich dem herrschenden Bellizismus widersetzten.
+
+
+-----
+
+Als eine weitere prominente Stimme der Putin-Versteher outete sich die ehemalige ARD-Moderatorin Gabriele
+Krone-Schmalz. Ihr Buch mit dem Titel ‹Russland verstehen›, 2015 erschienen, versuchte den negativ konnotierten Begriff ins notwendig Vernünftige zu drehen. «Wie ist es um eine politische Kultur eines Landes bestellt»,
+kritisiert sie im Vorwort die im Land herrschende, dumpfe Russophobie, «in der ein Begriff wie ‹Russlandversteher› zur Stigmatisierung und Ausgrenzung taugt? Muss man nicht erst einmal etwas verstehen, bevor man
+es beurteilen kann.» So selbstverständlich ihr Einwand klingt, die diffamierende Punze blieb an ihr haften.
+Am 3. Dezember 2014 erschien dann ein offener Brief von knapp 70 ehemals hochrangigen deutschen Politikern
+und Künstlern, die davor warnten, sich über die Ukrainekrise in einen Krieg hineinziehen zu lassen. Obwohl
+darin mit keinem Wort Verständnis für Putins Vorgehen auf der Krim oder im Donbass geäussert wird, haftete
+den Unterzeichnern sogleich das Stigma des Putin-Verstehers an.
+«Wieder Krieg in Europa? Nicht in unserem Namen!», titelte der von Horst Teltschik (CDU), Walther Stützle
+(SPD) und Antje Vollmer (Grüne) initiierte Appell. «Wir dürfen Russland nicht aus Europa hinausdrängen»,
+stand da geschrieben. «Das wäre unvernünftig und gefährlich für den Frieden.» Unterschrieben wurde der Brief
+u.a. von Roman Herzog, Gerhard Schröder, Manfred Stolpe, Otto Schily, Christoph Hein und Wim Wenders.
+Das Selbstverständliche erforderte in jenen Tagen schon Mut, auch wenn die Initiatoren penibel darauf achteten,
+nur ja niemanden aus dem Lager der ‹Linken›, die als einzige klar gegen westliche Einmischung und NATOEskalation in der Ukraine auftraten, mit ins Boot des Appells zu holen.
+Selbst dieser sich jeder Aussage zum Kreml enthaltende offene Brief rief sofort eine Gegenreaktion russophober
+Kräfte hervor. Zirka 150 Osteuropa-ExpertInnen forderten nur wenige Tage später eine «realitätsbasierte statt
+illusionsgeleitete Russlandpolitik», wie sie ihren Appell nannten. Sie grenzten sich damit bewusst von der Friedensforderung ab, die den Aufruf der Ex-Politiker kennzeichnete. Stattdessen setzten die Osteuropa-ExpertInnen
+auf «die territoriale Integrität der Ukraine, Georgiens und Moldawiens», was angesichts der ein halbes Jahr zuvor
+erfolgten Abspaltung der Krim sowie der umstrittenen Grenzen Georgiens und Moldawiens gerade jene Gefahr
+heraufbeschwor, die Roman Herzog & Co. eindämmen wollten. Die ukrainische, georgische und moldawische
+Territorialität dürfe, wurden die Feinde Moskaus noch deutlicher und aggressiver, «nicht der ‹Besonnenheit›
+deutscher (und österreichischer) Russlandpolitik geopfert werden.» Und: «Dem Export der illiberalen Gesellschaftsvorstellungen des Kremls in die EU sollte in unserem eigenen Interesse entgegengewirkt werden.»
+Die klaren Worte der Unbesonnenen reden den Krieg herbei. Und sie unterscheiden scharf zwischen einem ‹illiberalen›, mithin illegitimen Regime in Moskau und ihrer Meinung nach liberal-demokratischen Zuständen
+in der Ukraine Poroschenkos und Jazenjuks, in Georgien oder Moldawien. Ihre Feindschaft zu Russland ist
+manifest, sie speist sich aus jenen Vorurteilen, die die Zunft der Osteuropa-Historiker seit Jahrzehnten aufgebaut
+hat und bei der es nun darum geht, sie von anti-kommunistisch auf anti-russisch zu trimmen. Den Namen der
+150 UnterzeichnerInnen mangelt zwar die Prominenz auf dem Feld der Politik; in den Hörsälen und Zeitungsspalten sind sie aber führend präsent.
+Die Liste reicht von Martin Aust (Universität München) und Klaus Bednarz (ARD-Büro Moskau) über Ulf Brunnbauer (Universität Regensburg) und Rebecca Harms (Europäisches Parlament) zu Andreas Kappeler (Universität
+Wien) und Markus Merkel bis Karl Schlögel (Universität Frankfurt/Oder), Jens Siegert (Heinrich Böll Stiftung
+Moskau) und Stefan Troebst (Universität Leipzig). Der russophobe Appell versammelt, ähnlich wie damalige
+kriegstreiberische Stellungnahmen vor dem NATO-Angriff auf Jugoslawien – will man es parteipolitisch fassen,
+was freilich vielen einzelnen UnterzeichnerInnen nicht gerecht wird – eher CDU- und Grünen-affine Menschen.
+Das Bild von der sogenannten ‹nationalen Selbstbestimmung›, das Südosteuropa schon 1991 bis 1999 in einen
+schrecklichen Krieg geführt hat, wiederholt sich hier in – wie die Unterzeichner indirekt selbst zugeben – unbesonnener Weise.
+_Quelle: Rubikon_
+_Quelle: https://de.news-front.info/2017/06/12/die-putin-versteher-wie-das-feindbild-russland-installiert-worden-ist/_
+
+### Angela Merkel, alternativloser als jemals zuvor
+_12. Juni 2017 WiKa Deutschland, Hintergrund, Politik, Wirtschaft 15_
+**Deutsch Absurdistan:** Angela Merkel, das wird immer klarer, ist kein zufälliges Unglück. Die unaufhaltsam fortschreitende Katastrophe scheint minutiös durchorganisiert zu sein. Womöglich ist sie tatsächlich der geheime
+**30-Jahresplan der SED zur endgültigen Übernahme Europas. Vorstufe dazu war die stille Annexion der im Jahre**
+1989 hochbegehrten Bananenrepublik, unter scheinheiliger Beibehaltung der weltweit bekannten Handelsmarke
+**‹BRD› und des damit verbundenen Labels ‹Made in Germany› (übersetzt: Wurm in Deutschland).**
+
+
+-----
+
+Merkels DDR-Karriere, als ausgebildete Fachfrau für Agitation und Propaganda, spricht unerbittlich für diese
+steile These. Die aktuellen Ereignisse sind noch grösserer Beweis dafür. Im Moment werden Merkels Beliebtheitswerte wieder derart drastisch in die Höhe geschrieben, dass man Angst bekommen muss, die CDU könnte
+eine komfortable 3/4-Mehrheit bei den Bundestagswahlen 2017 im September abbekommen. Hier nur ein Beispiel dieser unsäglichen Propaganda: Umfrage Merkel so beliebt wie vor der Flüchtlingskrise … [SpeiGel Auf
+_Linie]. Im ersten Moment möchte man meinen, dass der Deutsche ein ernsthaftes Gedächtnisproblem hat. Dem_
+ist aber nicht so, er hat mehr ein Problem mit der suggestiven Schönfärber-Propaganda, die auf ihn niederprasselt.
+Sicher aber ist, am Ende der Propaganda hat er meist die passende Meinung und wählt erwartungsgemäss. Leicht
+überspitzt könnte man den Spiegel kurz wie folgt zusammenfassen:
+**‹Merkel heute noch viel beliebter als vor ihrer Geburt.›**
+Sollte sich der Michel dennoch mal ganz arg verwählen, stellt selbst das überhaupt kein Problem dar. Dann
+kann man ohne grosses Aufhebens die Wahlergebnisse der vorherigen Propaganda dezent angleichen und niemand wird Verdacht schöpfen. Das ganze in ein schönes Wahlabendspektakel mit
+
+viel Gelaber verpackt und alles ist in Butter. Schliesslich sind die Ergebnisse dann wie bereits lange vorhergesagt.
+Wahlfälschung ist in Deutschland mindestens so normal wie drei Legislaturen in Folge mit der Merkel an der
+Spitze der ‹Replik›. Dazu gibt es inzwischen angesehene Studien, die aus verständlichen Gründen in Deutschland nicht sonderlich beliebt sind: Studie beweist: Wahlfälschung in Deutschland keine Ausnahme, sondern
+**die Regel … [Anonymous-News]. Mal ehrlich? Wer will denn hierzulande noch die Wahrheit hören? Wir alle**
+wissen doch längst, wo wir uns anzustellen haben, oder? Natürlich unterstützen noch weitere Faktoren diesen
+unsäglichen Merkel-Hype.
+
+#### Die Herkulienen-Aufgabe
+Der zu bewältigende Spagat könnte grösser kaum sein und nur die dauerelastische ‹Murksel› kann diese Herkulinen-Aufgabe vollbringen. Es geht darum, dem Kapital unendlich zu Diensten zu sein. Nur darin soll angeblich unser Seelenheil, via Wirtschaftsleistung und Shareholdervalue, zu finden sein. Das belegen auch die
+Grossspenden der Konzerne an die Politik. Das dient dem einen Prozent, und den 99 Prozent muss man Glauben
+machen, dass es doch ausschliesslich um ihr Wohl geht. Dieses Marketingkonzept ist beileibe nicht neu.
+Es ist dasselbe, wie im real existierenden Sozialismus, in dem Merkel selbiges gründlichst einstudierte. Nur muss
+sie es diesmal für die andere Seite realisieren, weil der Auftraggeber jetzt ein anderer ist. Gelernt ist eben gelernt.
+Und so geschmeidig wie Angela bislang noch in jeden transatlantischen Po gleiten konnte, rutscht sie auch hier
+allerorten widerstandslos durch. So werden wir im Herbst nicht minder alternativlos vor der Übermutti niederknien und Treue schwören dürfen. Alles im Namen der Konzern-Wohlfahrt und des Profits.
+
+
+-----
+
+#### Merkels Erfolgsstrategie
+Merkels Strategie wird wunderbar aufgehen. Nach ihrem Flüchtlingsdebakel muss sie nur eine Weile den Kopf
+in den Sand stecken und sich maximal wenig bewegen. Den Rest erledigt die Schein-Konkurrenz. Derweil
+schreddert Martin Schulz die SPD soweit runter, dass die auch mit den ganz Roten und Grünen keine Regierung
+mehr zusammenbringen.
+
+Am Ende der Wahlen wird sie womöglich noch die SPD gegen die FDP als Koalitionspartner ausspielen, bis
+Goldman & Sucks wieder daherkommt und Deutschland abermals eine grosse Koalition verordnet, damit es
+bei den allfälligen Bankenrettungen der Zukunft nicht zu unliebsamen Zwischenfällen kommt. Seit Merkel wissen
+wir, ein Sozialstaat, der seine Banken nicht rettet, ist keiner. Auf das Fussvolk wird es nach wie vor unter Merkels
+Regentschaft nicht ankommen.
+Bestimmt hat jetzt jeder von der Pike auf verstanden, warum Merkel in Deutschland so brutal beliebt ist und
+alternativloser als jemals zuvor, oder etwa nicht? Die Medienkonzerne, die vermutlich eher von dem einen Prozent
+kontrolliert werden, haben ein gesundes Interesse am Selbsterhalt. Da fällt es gar nicht schwer, dem Michel zu
+vermitteln, dass Merkel so unendlich beliebt ist, dass der Michel eigentlich gar keine andere Wahl hat, als sie zu
+wählen. Und wenn er es nicht tut, dann weiss man sich schon zu helfen, wie weiter oben beschrieben. Alles sieht
+immer ganz natürlich aus … bis eines Tages die Mehrheit der Menschen, angesichts solcher ‹Vera®schung›, mal
+ganz unnatürlich auf die Barrikaden geht.
+_Quelle: https://qpress.de/2017/06/12/angela-merkel-alternativloser-wie-niemals-zuvor/_
+
+### Psychopathisches Selbstbewusstsein: Dreckspatz Soros spricht über EU-Krise, die er massgeblich selbst (!) geschneidert hat
+_John Wight; RT Deutsch; Mo, 12 Jun 2017 08:15 UTC_
+
+_© Sputnik_
+
+**_Wie eine stehengebliebene Uhr zwei Mal am Tag richtig geht, hat George Soros in seiner Behauptung recht, dass_**
+**_die EU in der Krise ist. Er ist ein Mann, der Länder mit einem Scheckbuch destabilisiert, wie es sonst nur Armeen_**
+**_mit Panzern und Raketen können._**
+Herr Soros hat in einer Rede vor dem Brüsseler Wirtschaftsforum am 1. Juni die Krise angesprochen, die die EU
+ereilt hat. Es war eine ehrgeizige Rede, bei der der ungarische Milliardär einen gedanklichen Ausflug in die
+Geschichte der EU unternahm und detailliert an die Vision der Europäischen Integration des französischen
+Geschäftsmannes und Diplomaten Jean Monnet erinnerte. Er sah die Notwendigkeit, vor allem Frankreich und
+Deutschland zu einer Wirtschaftsunion zu verpflichten, und mit der Zeit eine politische Vereinigung zu erreichen.
+Dies soll verhindern, dass diese beiden Länder nach dem Ersten und dem Zweiten Weltkrieg noch einmal in verheerendere Konflikte verwickelt werden.
+
+
+-----
+
+**Wo Herr Soros sich allerdings bereits von der Wahrheit loslöst, ist seine Darstellung der Sowjetunion als**
+**Bedrohung für Westeuropa nach dem Zweiten Weltkrieg:**
+Nach dem Zweiten Weltkrieg wurde Westeuropa mit Hilfe des Marshall-Plans wieder aufgebaut, aber es war
+immer noch durch die Sowjetunion bedroht, die den östlichen Teil des Kontinents besetzte.
+
+#### Wohlfeile Geschichtsklitterung zum Nachteil der Sowjetunion
+**Die Wahrheit an dieser Angelegenheit ist, dass die Sowjetunion Europa vom Faschismus befreite, dass Hitler es**
+**ohne die unermessliche Hartnäckigkeit und das Opfer des sowjetisch-russischen Volkes und der Roten Armee**
+**geschafft hätte, den Kontinent zu kolonisieren.**
+Wie der US-Historiker Peter Kuznick schreibt: «Bis zum (D-Day im Juni 1944) kämpfte die Sowjetunion fast eigenhändig gegen das deutsche Militär. Bis zur Invasion in der Normandie kämpfte die Rote Armee gegen mehr
+**als zweihundert feindliche Divisionen, während die US-Amerikaner und Briten zusammen selten mit mehr als**
+**zehn konfrontiert waren.** Deutschland verlor über sechs Millionen Männer an der Ostfront und etwa eine
+Million an der Westfront und im Mittelmeer.»
+Kehren wir nun zu der Rede von Herrn Soros und der Behauptung zurück, dass die EU ‹von feindlichen Mächten
+umgeben ist: Putins Russland, Erdogans Türkei, Sisis Ägypten und die USA, die Trump gerne schaffen würde,
+aber nicht kann›.
+Auch hier verkauft uns der Milliardär-Investor eine bequeme Verdrehung der Wahrheit – denn die Wahrheit ist,
+dass Russland von der EU bedroht wird und nicht umgekehrt. Das passiert durch die zunehmende Rolle der EU,
+die als politischer Arm der NATO-Militärallianz agiert, zu deren Mitgliedern übrigens, um Herrn Soros zu er innern, auch die Türkei gehört.
+**_Kommentar: Nur eines der vielen Beispiele der NATO- und EU-Aggression gegen Russland:_**
+_Bayern im Auftrag der USA gegen Russland: Tausende Militärgeräte, Waffen und Soldaten in vier Länder entsandt._
+
+#### Nicht Russland bedroht die EU, sondern umgekehrt
+Es ist nicht so, dass Russland der EU aktiv feindlich gesinnt wäre, sondern dass Russland sich vor der Feindseligkeit der EU verteidigen muss. In dieser Hinsicht sind die Sanktionen, die Russland auferlegt wurden, nachdem
+**die EU und ihre Beamten einen blutigen Staatsstreich in der Ukraine im Jahr 2014 aktiv unterstützt hatten, eine**
+**doppelte Ungerechtigkeit, die George Soros glatte Behauptung, dass Russland der ‹Böse› ist, mehr denn je in**
+**Verruf bringt.**
+**_Kommentar: Nichts gelernt: EU verlängert schon wieder Sanktionen gegen Russland und Ost-Ukraine._**
+
+Herr Soros liegt allerdings mit einem Hinweis richtig, nämlich wenn er sagt, dass, wenn die Europäische Union
+in ihrem Handeln so weitermacht wie bisher, es wenig Hoffnung auf eine Verbesserung gibt. Deshalb muss die
+Europäische Union radikal neu erfunden werden.
+**Die Krise, die die EU verschlungen hat, ist das Produkt eines Fundamentalismus des freien Marktes, der sonst**
+**als Neoliberalismus bekannt ist und von den liberalen Eliten in den letzten Jahrzehnten gleichsam als weltliche**
+**Religion praktiziert wird.**
+**_Kommentar: Die Manipulation und Indoktrinierung der Gesellschaft mit der menschenverachtenden Ideologie des_**
+_Neoliberalismus – Interview mit Rainer Mausfeld_
+
+Es ist genau die Fähigkeit des Kapitals, sich über die ganze Welt hin und her zu bewegen, um die beste Investitionsrendite zu suchen, die durch so viel Chaos und Instabilität zum offensichtlichen Schaden für Millionen von Werktätigen führte. Es ist diese ökonomische Instabilität, die in der gleichen Zeit der wichtigste ‹Push-Faktor› hinter
+der Masseneinwanderung war. George Soros und seinesgleichen haben sich durch diesen Sachverhalt bereichert
+und tragen zu den ungeheuerlichen Auswirkungen dieses Prozesses auf die Volkswirtschaften sowie den sozialen
+Zusammenhalt bei.
+
+#### Europa der Eliten ist kein zukunftsfähiges Europa
+Die europäische Integration als Konzept ist unmöglich in Frage zu stellen. Allerdings ist die EU, wie sie derzeit
+existiert, eindeutig dysfunktional und entspricht nicht in gleicher Weise den Bedürfnissen der überwiegenden
+Mehrheit ihrer Bürger. Sie wird im Interesse einer neoliberalen Elite geführt, die die nationale Souveränität und
+politische Stabilität als Fluch für ihre Prioritäten sehen, Renditegelegenheiten durch kurzfristige Investitionen zu
+erzielen. Es ist diese perverse und groteske Interpretation von ‹Freiheit› und ‹Liberalität›, die die Institutionen
+**der EU dominierte und diese im Zuge der Weltwirtschaftskrise von 2007/08 in die Krise stürzte.**
+Das Ergebnis der Krise im Neoliberalismus war das Wachstum der Anti-Politik, oder genauer gesagt der ‹Politik
+
+
+-----
+
+gegen das Übliche›, die sich in der Entscheidung des britischen Volkes im Jahr 2016, die EU zu verlassen (Brexit)
+sowie bei der Wahl von Donald Trump zum 45. Präsidenten der Vereinigten Staaten im selben Jahr wiederfindet.
+Eine europäische Integration ohne Russland ist ein politisches Oxymoron. Es ist ein Oxymoron, das die EU in
+ihrem Vorgehen untermauert, **da sie nicht auf die ökonomischen oder politischen Bedürfnisse der Bürger**
+**Europas, sondern vielmehr auf die Bedürfnisse Washingtons und der unipolaren Welt eingeht, die seit dem**
+**Untergang der Sowjetunion im Jahre 1991 existiert.**
+
+#### Soros ist Teil des Problems und nicht der Lösung
+Die europäischen Regierungen, die sich dazu entschieden haben, sich Washingtons Willen zu fügen, werden sich
+mit allen entsprechenden Konsequenzen konfrontiert sehen. In Wahrheit werden sie die grössten Opfer der
+**Konsequenzen sein, zu denen es kommen wird, wenn sie unter den Slogans des Friedens und der Sicherheit**
+**Russland als die Bedrohung derselben angreifen werden.**
+George Soros und alles, was er vertritt, könnte niemals Teil der Lösung der Krise in der EU sein. Im Gegenteil:
+Soros ist Teil des Problems. Bis die europäischen Regierungen dies erkennen und merken, dass die Misserfolge
+der EU nicht von den Fehlern des Neoliberalismus unterscheidbar sind, beschäftigen sie sich mit einer Krise,
+die sich nur weiter vertiefen wird.
+_RT Deutsch bemüht sich um ein breites Meinungsspektrum. Gastbeiträge und Meinungsartikel müssen nicht die Sichtweise der_
+_Redaktion widerspiegeln._
+_Quelle: https://de.sott.net/article/29781-Psychopathisches-Selbstbewusstsein-Dreckspatz-Soros-spricht-uber-EU-Krise-die-er-_
+_massgeblich-selbst-geschneidert-hat_
+
+### Die neue Weltmacht namens EU
+_von Noch.info · 13/06/2017_
+Die EU-Kommission hat gestern neue Vorschläge für eine forcierte Militarisierung des Staatenbündnisses vorgelegt. Dabei handelt es sich um Pläne zur Schaffung eines milliardenschweren ‹Verteidigungsfonds› und um
+ein ‹Reflexionspapier›, das die Debatte über die Verschmelzung der Streitkräfte innerhalb der EU und um eine
+Ausweitung der EU-Auslandseinsätze vorantreiben soll. Erklärtes Ziel ist eine ‹strategische Autonomie›.
+Mit dem Verteidigungsfonds will die EU-Kommission eine stark konzentrierte Aufrüstung durchsetzen. Trotz
+jahrelanger Appelle entwickeln die Rüstungskonzerne der EU-Staaten immer noch parallel nationale Waffensysteme, anstatt sich, wie die Luftfahrtindustrie im Fall von Airbus, zur Herstellung teuren Kriegsgeräts zusammenzuschliessen. Berlin und Brüssel kritisieren seit Jahren, damit verschwende man viel Geld, das anderweitig
+benötigt werde, wenn die EU tatsächlich zur global operierenden Militärmacht aufsteigen solle. Der Verteidigungsfonds soll nun Anreize zum Zusammenschluss bei Rüstungsprojekten über EU-Grenzen hinweg bieten.
+Demnach werden künftig nicht nur EU-Mittel für die Rüstungsforschung zur Verfügung gestellt – 90 Millionen
+Euro bis 2020, danach eine halbe Milliarde Euro pro Jahr. Zusätzlich soll die Entwicklung von Waffenprototypen
+gefördert werden, wenn sich daran Unternehmen aus mehreren EU-Mitgliedstaaten beteiligen. Die Pläne sehen
+dafür EU-Subventionen von bis zu 20 Prozent vor; zur Verfügung stehen soll bis 2020 insgesamt eine halbe
+Milliarde Euro, ab 2021 eine ganze Milliarde Euro pro Jahr. Rechnet man die erforderlichen nationalen Anteile
+an den Rüstungsprojekten mit ein, dann kommt man ab 2021 auf eine EU-weit gebündelte Rüstungsforschung
+und -entwicklung mit einem Jahresvolumen von 5,5 Milliarden Euro.
+Das ‹Reflexionspapier›, das die EU-Kommission gestern ebenfalls vorgelegt hat, skizziert drei Szenarien für die
+künftige EU-Militärpolitik. Abrüstung ist nicht vorgesehen. Das Szenario mit der niedrigsten Eskalationsstufe
+besteht in einer Fortschreibung des Status quo, also im allmählichen Ausbau der Streitkräftekooperation bei
+gleichzeitiger Weiterführung von Militärinterventionen auf dem Niveau der aktuellen Einsätze etwa im Mittelmeer, am Horn von Afrika und in Mali. Ein zweites Szenario sieht eine stärkere Ausweitung der militärischen
+Zusammenarbeit vor; ausgebaut werden sollen vor allem die Cyberkriegsfähigkeiten und die Kooperation mit
+der NATO. Das dritte Szenario nimmt eine weitgehende Verschmelzung der EU-Rüstungsindustrie, eine deutlich
+engere Streitkräftekooperation sowie die Fähigkeit zu EU-Kampfeinsätzen jeglicher Eskalationsstufe in den Blick.
+Genannt werden exemplarisch ‹Marineoperationen in feindlicher Umgebung›. Die drei Szenarien sind als
+Grundlage für die Debatte auf dem EU-Gipfel am 22. und 23. Juni vorgesehen. Eine Entscheidung auf EU-Ebene
+soll spätestens nach der Bundestagswahl fallen.
+Das Bestreben, der EU ‹strategische Autonomie› zu verschaffen, wird in dem ‹Reflexionspapier› bestätigt. Es ist
+bereits Ende Juni 2016 im Rahmen der ‹Globalen Strategie für die Aussen- und Sicherheitspolitik der EU› zum
+
+
+-----
+
+offiziellen Ziel erklärt worden. Aktuell wird es damit begründet, die EU müsse mit Blick auf die erratische
+Aussenpolitik der gegenwärtigen US-Administration ihr ‹Schicksal in die eigene Hand› nehmen, wie Kanzlerin
+Angela Merkel es kürzlich formulierte. ‹Strategische Autonomie› würde es der deutsch dominierten EU ermöglichen, als eigenständige Weltmacht aufzutreten.
+_Quelle: JW_
+_Quelle: http://noch.info/2017/06/die-neue-weltmacht-namens-eu/_
+
+### Putin in neuer Stone Doku: USA sind für Aufstieg von Al-Kaida und bin Laden verantwortlich
+_RT Deutsch; Di, 13 Jun 2017 14:18 UTC_
+_Der russische Präsident hat den USA vorgeworfen, während des sowjetischen Afghanistan-Krieges Al-Kaida unter-_
+_stützt zu haben. Auch später habe die US-Regierung Terroristen in Tschetschenien gefördert. Dies erklärte Putin im_
+_Interview mit Oliver Stone._
+
+_© Sputnik_
+
+Der russische Präsident erklärte in einem Gespräch mit dem US-Filmemacher Oliver Stone, dass die USA für
+den Aufstieg von Al-Kaida und deren verstorbenem Führer Osama bin Laden verantwortlich sind. Die USA hätten
+die späteren Anführer der Terrororganisation in ihrem Kampf gegen die Sowjetunion in Afghanistan unterstützt.
+Zudem gebe es auch Beweise dafür, dass die CIA in dem autonomen russischen Teilstaat Tschetschenien Terroristen
+unterstützt hat.
+Stone hat Putin für die erste Folge einer Interviewreihe mit dem russischen Präsidenten befragt. Im Gespräch
+äusserte Putin unter anderem seine Gedanken zum Ursprung radikaler islamistischer Terrorgruppen wie Al-Kaida.
+«Al-Kaida ist nicht das Resultat unserer Aktivitäten. Sie ist das Resultat der Aktivitäten unserer US-Freunde. Es
+hat alles während des sowjetischen Krieges in Afghanistan angefangen, als die US-Geheimdienste unterschiedliche
+islamisch-fundamentalistische Bewegungen in ihrem Kampf gegen sowjetische Truppen unterstützten», sagte Putin
+gegenüber Stone. Er fügte hinzu, dass die US-Regierung «sowohl Al-Kaida und (Osama) bin Laden genährt hat».
+Washington hätte voraussehen müssen, dass die Unterstützung von islamistischen Terroristen nach hinten losgehen werde, so der russische Präsident.
+«Es passiert immer so. Unsere US-Partner hätten das wissen müssen. Es ist ihre Schuld», erklärte Putin.
+**_Kommentar: In der Tat!_**
+Dennoch stand Moskau nach dem Terrorangriff am 11. September 2001 an der Seite der Vereinigten Staaten. Als
+Zeichen der Solidarität sagte Moskau ein Militärmanöver ab, offenbarte Putin im Gespräch mit Stone.
+Russland wollte damit seine moralische und politische Unterstützung zeigen, so der russische Präsident.
+
+#### CIA stilisierte tschetschenische Terroristen zur ‹Opposition›
+Putin warf Washington vor, militante Islamistengruppen während der Tschetschenien-Kriege sowohl öffentlich
+bejubelt als auch insgeheim finanziell unterstützt zu haben. Es gebe Beweise dafür, dass die CIA offen zugab,
+Kontakt mit Terrorgruppen gepflegt zu haben, die sie zur ‹Opposition› gekürt hatte.
+«Wenn wir über politische Unterstützung reden, gibt es keinen Bedarf für (besondere) Beweise. Sie haben das
+öffentlich gemacht. Und wenn wir über bei Bedarf gewährte finanzielle Unterstützung reden: Wir haben solche
+Beweise und haben diese auch schon unseren US-Kollegen zur Verfügung gestellt», erklärte Putin.
+
+#### Bush sagte Unterstützung gegen Terrorhelfer zu
+Der russische Präsident enthüllte, dass er mit dem damaligen US-Präsidenten George W. Bush über die Unterstützung tschetschenischer Terroristen durch die CIA gesprochen hatte. Bush habe geantwortet, dass er sich
+‹darum kümmern› würde.
+
+
+-----
+
+Später habe jedoch Moskau einen Brief der CIA über ‹Partner-Quellen› erhalten, der andeutete, dass der USGeheimdienst seine Haltung nicht verändern wird. Der CIA habe sich das Recht vorbehalten, Beziehungen mit
+‹allen Vertretern der Opposition› zu unterhalten.
+«Es war klar, dass es nicht nur um Oppositionsgruppen ging, sondern um Terrorgruppen und -organisationen»,
+fügte Putin hinzu.
+Hinsichtlich der aktuellen Lage der Beziehungen zwischen den Vereinigten Staaten und Russland erklärte der
+russische Präsident, dass die US-Strategie bezüglich Russlands ungeheuer kurzsichtig sei, sollte sie wirklich darauf
+abzielen, der russischen Wirtschaft zu schaden und die Regierung zu stürzen, um an ihr Atomwaffenarsenal zu
+gelangen.
+«Ich glaube, es ist eine falsche Politik, gerade weil ein solches Verständnis der Beziehungen mit Russland nicht
+auf die Zukunft gerichtet ist. Leute, die so denken, sehen nicht weiter als 25 bis 50 Jahre in die Zukunft», sagte
+Putin.
+
+#### Die USA sind nach Ende der Sowjetunion überheblich geworden
+Versuche, Russland in einen Vasallenstaat umzuwandeln, seien dazu verurteilt, nach hinten loszugehen, fügte das
+russische Staatsoberhaupt hinzu.
+Der Präsident Russlands argumentierte, dass die USA «ein falsches Gefühl haben, alles tun zu können, ohne
+Konsequenzen», vor allem nach dem Zusammenfall der Sowjetunion.
+«In solch einer Situation fängt ein Mensch oder auch ein Land an, Fehler zu machen. [...] Der Staat fängt an,
+ineffektiv zu arbeiten. Ein Fehler folgt dem nächsten. Ich glaube, das ist die Falle, in die die Vereinigten Staaten
+gestürzt sind», bemerkte Putin.
+Der US-Sender Showtime fing am Montag damit an, das vierteilige Putin-Interview des Oscar-gekrönten Filmemachers Oliver Stone auszustrahlen.
+_Quelle: https://de.sott.net/article/29784-Putin-in-neuer-Stone-Doku-USA-sind-fur-Aufstieg-von-Al-Kaida-und-bin-_
+_Laden-verantwortlich_
+
+### Szydło: «Wir werden nicht an dem Wahnsinn der Brüsseler Elite teilnehmen»
+_geschrieben am 08/06/2017 von Link im Text am Ende des Artikels_
+
+_Die polnische Premierministerin beschuldigt öffentlich die ‹Brüsseler Eliten›,_
+_dass sie für die Toten der Terroranschläge verantwortlich sind_
+_von visegradpost.com – übersetzt von unser-mitteleuropa.com_
+
+Polen – Nach den islamistischen Anschlägen von Manchester, in denen 22 Menschen starben, darunter zwei
+polnische Bürger, hat die polnische Ministerpräsidentin Beata Szydło eine starke Aussage über politische Eliten
+und Westeuropäer gemacht.
+«Wir werden nicht am Wahnsinn der Brüsseler Elite teilnehmen. Wir wollen Menschen helfen, nicht den politischen Eliten», begann Szydło.
+«Erhebe dich von deinen Knien und von deiner Lethargie oder du wirst jeden Tag um deine Kinder weinen.
+Wenn Sie das nicht sehen können – wenn Sie nicht sehen können, dass der Terrorismus derzeit das Potenzial
+hat, jedes Land in Europa zu verletzen, und Sie denken, dass Polen sich nicht verteidigen sollte, gehen Sie Hand
+in Hand mit denen, die diese Waffen gegen Europa und gegen uns alle richten.
+Es muss klar und direkt gesagt werden: Das ist ein Angriff auf Europa, auf unsere Kultur, auf unsere Traditionen.»
+Sie fuhr fragend weiter: «Möchten wir starke Politiker, die die Gefahr sehen und gegen sie effizient kämpfen
+können?»
+Neben den anderen Ländern der Visegrád-Gruppe, wie die Tschechische Republik, die Slowakei und Ungarn
+sowie auch Österreich ist Polen gegen die obligatorischen Quoten von Migranten, die von Merkel und der
+Europäischen Kommission gewünscht werden.
+
+
+-----
+
+Szydłos Regierung hat ein Versprechen von den Amtsvorgängern, bis zu 6200 Flüchtlinge aufzunehmen, aufgehoben.Die Kommission hat mit Sanktionen gedroht, wenn die erforderliche Zahl nicht bis Juni aufgenommen wird.
+_Quelle: http://uncut-news.ch/2017/06/08/szydlo-wir-werden-nicht-an-dem-wahnsinn-der-bruesseler-elite-teilnehmen/_
+
+### Sohn für Propagandazwecke missbraucht: Vater von Omran rechnet mit ‹Weisshelmen› und Medien ab
+_Von Anna Samarina; Aktualisiert: 11. Juni 2017 20:34_
+Der kleine Omran, mit Blut und Staub bedeckt, starrt mit leblosem Blick in die Leere – dieses Foto ging letzten
+Sommer um die Welt. Das sei nichts als Propaganda gewesen, meint der Vater des Jungen.
+
+_Omran und sein Vater Mohammad Kheir Daqneesh in ihrer Wohnung in Aleppo, Syrien._
+_Foto: Russia Today/YouTube/Screenshot._
+
+Sein Foto zierte letzten Sommer die Titelseiten aller Mainstream-Medien der Welt: Der dreijährige Omran, der
+blutverschmiert in einem Krankenwagen in Ost-Aleppo sass und mit einem leblosen Blick in die Leere starrte.
+Das Foto soll nach einem russischen Luftangriff geschossen worden sein. Doch das Bild sei nichts anderes als
+Propaganda, meint der Vater des Jungen.
+Omrans Vater, Mohammad Kheir Daqneesh, gab ‹Russia Today› (RT) ein Interview, das der Nachrichtendienst
+am Mittwoch veröffentlichte. Darin beschreibt Daqneesh, was wirklich hinter Omrans Foto steckt.
+
+#### Sohn für ‹Propagandazwecke› missbraucht
+Die umstrittenen ‹Weisshelme›, die sogenannten ‹moderaten Rebellen› und Pressevertreter hätten seinen Sohn
+letzten Sommer gezielt in Szene gesetzt, so dass er schwer verletzt aussah, sagt Daqneesh.
+Dann hätten sie ein Foto geschossen und seinen Sohn auf diese Weise ausgebeutet, so der Vater des Jungen
+weiter. Daqneesh habe ihnen keine Erlaubnis für das Fotografieren seines Sohnes gegeben – aber sie hätten ihn
+sowieso nicht gefragt, meint er.
+Der Junge ist wohlauf. Seine Verletzungen waren nicht schwer, sondern leicht, erklärt Daqneesh. Das Blut, das
+in Omrans Gesicht und auf seiner Kleidung zu sehen war, stammte grossteils von Daqneesh selbst. Er hätte stark
+geblutet, während er seinen Sohn aus der Wohnung trug.
+
+#### ‹Moderate Rebellen›: Daqneesh ist ein Verräter
+Medienvertreter und die ‹moderaten Rebellen› hätten Daqneesh Geld angeboten, damit er vor laufender Kamera
+gegen den syrischen Präsidenten Bashar al-Assad aussagt. Er hätte jeden von ihnen abgelehnt, so Daqneesh.
+Die Rebellen hätten ihn und seine Familie daraufhin bedroht und als Verräter beschimpft, meint der Vater.
+Daqneesh musste seinen Sohn kahl rasieren, ihm einen anderen Namen geben und in der Wohnung verstecken,
+damit die Presse und die Aufständischen ihn nicht erneut für ihre Propaganda ausbeuteten, beschreibt er.
+Omrans älterer Bruder, Ali, erlag nach dem Angriff seinen Verletzungen. Momentan lebt die Familie im staatlich
+kontrollierten Aleppo.
+
+#### Hier ein Video auf Deutsch: Russland dementierte Angriff in Ost-Aleppo
+Der Sprecher des russischen Verteidigungsministeriums, Igor Konaschenkow, erklärte nach dem Angriff auf
+Daqneeshs Haus, dass die Spuren der Zerstörung und die unbeschädigten Fenster im Haus gegenüber nicht auf
+eine Fliegerbombe, sondern auf eine Mine oder Gasbombe hindeuten würden. Diese würden häufig von
+Terroristen eingesetzt, so Konaschenkow laut dem Nachrichtenportal ‹Sputnik›.
+_Quelle:_ _http://www.epochtimes.de/politik/welt/sohn-fuer-propagandazwecke-missbraucht-vater-von-omran-rechnet-mit-_
+_weisshelmen-und-medien-ab-a2138650.html?meistgelesen=1_
+
+
+-----
+
+-----
+

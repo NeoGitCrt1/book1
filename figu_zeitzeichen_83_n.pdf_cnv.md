@@ -1,0 +1,1506 @@
+**L**
+
+**WESEN FREMDER WELTEN**
+
+# FIGU– BESUCHEN DIE ERDE
+
+**Freie**
+
+# ZEITZEICHEN Interessengemeinschaft
+
+**FIGU**
+
+## Aktuelles • Einsichten • Erkenntnisse r
+
+**Erscheinungsweise:** **Internetz: www.figu.org** **3. Jahrgang**
+**Sporadisch** **E-Brief: info@figu.org** **Nr. 83, Dezember 2017**
+
+#### Organ für freie, politisch unabhängige Ansichten und Meinungen zum Weltgeschehen
+Laut ‹Allgemeine Erklärung der Menschenrechte› vom 10. Dezember 1948, Artikel 19, ‹Meinungs- und Informationsfreiheit›:
+**Jeder Mensch hat das Recht auf freie Meinungsäusserung; dieses Recht umfasst die**
+**Freiheit, Meinungen unangefochten anzuhängen und Informationen und Ideen mit allen**
+**Verständigungsmitteln ohne Rücksicht auf Grenzen zu suchen, zu empfangen und zu verbreiten.**
+
+Aussagen und Meinungen müssen nicht zwingend identisch sein mit Gedanken, Interessen, Lehre und Missionsgut der FIGU.
+
+### Leserbrief Meine Erfahrung mit der Geisteslehre
+Mit dem Glauben habe ich nicht gerade gute Erfahrungen gemacht. Bereits in der Kindheit schien er mir unnatürlich und irgendwie hässlich zu sein. Auch die religiösen Menschen konnten weder menschliche Stärke zeigen,
+noch irgendwelche verstandesmässige Dinge geben, die das Bewusstsein erfreuen können. In der Universität
+wendete ich mich den Naturwissenschaften zu. Von diesen fühlte ich mich angezogen. Sie verkörperten die Kraft
+des Wissens, die Neutralität und die Freiheit. Doch die Naturwissenschaften können die Moral, Liebe, Menschlichkeit, Klugheit, Weisheit, Gerechtigkeit, Tugendhaftigkeit und Gesetze des Lebens nicht erklären, weil sie sich
+mit ganz anderen Dingen beschäftigen. Die Religionen, die sich zu den Sachen des Lebens berufen fühlen, füttern
+die Menschen mit Glauben anstatt mit Wissen. Deshalb wendete ich mich von der biblischen Geschichte ab,
+weil ich sie nicht verstehen konnte. Es war offensichtlich eine Lücke, die ich nicht schliessen konnte.
+
+Ich war immer offen für neue Dinge, und die Tatsache, dass das vernünftige Leben nicht nur auf der Erde existiert,
+war für mich schon selbstverständlich. Dieses Thema faszinierte mich. Dann stiess ich zufälligerweise auf die
+‹Plejadisch-plejarische Kontaktberichte›. Es war ein Gespräch mit Semjase, in dem sie über die Religionen, Gott
+und den Glauben sprach. Es war für mich ein besonderer Moment. Ich war bezaubert. Nie zuvor hatte ich etwas
+Ähnliches gelesen. Ich fühlte in mir eine Freude, als ob ich etwas Wunderbares gefunden hätte. Zuerst waren es
+nur die Kontaktberichte, die ich auf English gelesen habe, weil ich Deutsch damals nicht kannte. Ich las diese
+mit so grosser Begeisterung und mit solchem Engagement, dass mein Englisch, das nicht meine Muttersprache
+ist, inzwischen gut geworden ist. Die Kontaktberichte waren es, die mich zu anderen Themen begleitet haben. Es
+war mir klar, dass ich dazu die deutsche Sprache brauche, die ich dann gelernt habe. Die Kontaktberichte und
+dann später die Geisteslehre waren für mich wunderbare und phantastische Hilfsmittel, um die fremde Sprache
+zu lernen. Die Motivation, der Wille und die Geduld waren ungewöhnlich stabil. So sind meine Kenntnisse von
+zwei Sprachen den Kontaktberichten und der Geisteslehre zu verdanken.
+
+Wenn die Kontaktberichte schon so interessant und lehrreich waren, öffnete die Geisteslehre ganz neue Tore.
+Durch diese kamen unbekannte Worte und Begriffe und öffneten neue Dimensionen der Sprache. Wie kann
+man die Dinge beschreiben, wo die Worte fehlen? Die Geisteslehre ist wie ein Regen, der auf
+das trockene Land niederfällt. Nach einiger Zeit kommen die Pflanzen aus dem Boden hervor,
+bis das ganze Land lebendig und grün ist. Durch so viele wertvolle Erklärungen begann ich
+verschiedene Dinge zu verstehen. Je mehr ich verstanden habe, um so grösser war der Drang,
+alles mit anderen Menschen zu besprechen, was mir dann einige Schwierigkeiten bereitet hat.
+Es drängte mich, die schönen Dinge mit anderen zu teilen. Und weil sie mir so gut zumute
+
+
+**L**
+
+**WESEN FREMDER WELTEN**
+**BESUCHEN DIE ERDE**
+
+
+-----
+
+sind, wollte ich sie auch anderen geben, damit sie das gleiche erleben können. Und gerade hier kommt ein Punkt,
+wo alles schwierig wird. Wie kann man die Dinge teilen, die für die Augen unsichtbar und nur durch denVerstand
+und die Vernunft erkennbar sind? Diese Tatsache führte zur Erkenntnis, dass die Geisteslehre neutral und frei
+ist. Dies sind die gleichen Eigenschaften, die auch die Naturwissenschaften haben. Nichts ist notwendig zu wissen, sondern die Notwendigkeit des Wissens geht vom Menschen selbst aus, wenn er die Wahrheit erkannt hat.
+So gibt es auch keine Strafe dafür, weil die Menschen sich immer selbst bestrafen, wenn sie wegen ihres Unwissens negative Wirkungen hervorrufen. Würde diese Tatsache nicht missachtet, hätten sich die Religionen nicht
+durch Zwang verbreiten können. Und wenn sie sagen, dass etwas notwendig zu wissen sei, dann beweisen sie
+damit, dass es eine Lüge ist. Obwohl es leicht zu erkennen ist – besonders darum, weil die Naturwissenschaften
+uns ein so gutes Beispiel geben –, verstehen noch heute viele Menschen diese Tatsache nicht. Die alte Lehre der
+Propheten wurde eines wertvollen Bestandteils beraubt. Was wollen die Menschen essen in einem leeren ausgeraubten Haus, wo es nichts zu essen gibt? Nicht weit davon steht ein anderes Haus. Auf dem Tisch liegt ein
+wohlschmeckendes köstliches Essen. Es wird den Hunger wohl stillen.
+
+‹Talmud Jmmanuel› war das erste Buch, das ich auf Deutsch gelesen habe. Die vorzüglichen Eigenschaften von
+etwas werden dann besonderes sichtbar, wenn man es mit etwas anderem vergleicht. Die Geschichte von
+Jmmanuel ist gleich einer schönen Frau. Sie ist natürlich, elegant, weise und lieb. Ihre Haut ist weich wie Samt.
+Auf ihrem Gesicht ist ein freundliches Lachen. Und wenn sie jemanden berührt, dann steigen die Gefühle in
+ihm hoch und er versucht nicht dahinzuschmelzen. Die biblische Geschichte dagegen gleicht einer erbärmlichen
+Kreatur mit zerbrochenen Zähnen. Und wenn sie jemanden berührt, dann ist er bereits verloren. Wozu braucht
+man ein zerbrochenes Gerät, wenn man es durch ein funktionierendes ersetzen kann? Das Kaputte wirft man
+weg, weil es zu gar nichts nütze und gebrochen ist. Könnten die Menschen in einem Augenblick die Schönheit
+der Wahrheit sehen, dann wollten sie alles aufgeben, um sich mit ihr zu befassen, wie damals Jmmanuel über das
+wertvollste Gut des Menschen gesprochen hat (‹Talmud Jmmanuel›, das 15. Kapitel, Seite 129): «Das geistige
+(bewusstseinsmässige) Reich ist gleich einem verborgenen Schatz im Acker, welcher ein Mensch findet und verberget ihn; und in seiner Freude darüber gehet er hin und verkaufet alles, was er habet, und kaufet den Acker.»
+Leider ist der wirkliche Sinn der Worte längst verlorengegangen und mit Unsinn ersetzt worden. Doch jetzt
+haben die Menschen die Möglichkeit, sich mit der Geisteslehre zu befassen, um den längst verlorenen Schatz
+wieder zu finden.
+
+Seit vier Jahren beschäftige ich mich mit der Geisteslehre. Es war für mich ein besonderes Erlebnis, das ich mit
+nichts anderem vergleichen kann. Ich bin 31 Jahre alt, und wenn ich diese vier Jahre mit dem Rest meines Lebens
+vergleiche, dann sehe ich, dass diese aktiver und bewusster waren. Die Lehre hat mein Leben lebendiger gemacht.
+Ich wünschte mir, diese Dinge schon in der Kindheit gewusst zu haben, weil sie die Qualität meines Lebens erhöht
+hätten. Es ist heute leider so, dass weder die Schule noch die Universität Lebenswissen geben können. Auch die
+Eltern sind oft nicht in der Lage, solches Wissen zu vermitteln. So ist die Geisteslehre eine seltene Quelle, die
+ein Mann sucht und findet und sich freut, dass er sie gefunden hat. Es ist nur eine Frage der Zeit, wann die
+Menschen diese Lehre finden und letztendlich für sich zu nutzen beginnen.
+Oleg Kinash, Ukraine
+
+### Auszüge aus dem 691. offiziellen Kontaktgespräch vom 20. Oktober 2017
+**Billy       ... Heute will ich einmal darauf zu sprechen kommen, worüber ich mir die letzte Zeit viele Gedanken**
+gemacht und – weil ich zwei Visionen hatte – auch Wahrscheinlichkeitsberechnungen erstellt habe. Dies ergibt
+sich aber in anderer Weise als all die Prophezeiungen und Voraussagen, die teils schon aus den 1940er, 1950er,
+1960er und auch aus späteren Jahren stammen und vorwiegend im Buch ‹Prophetien und Voraussagen› enthalten sind. Sehr viele Voraussagen, die in diesem Buch genannt sind, wie auch viele andere Dinge, die ich in
+Briefen und Bulletins an Voraussagen gemacht habe, sind ja seither eingetroffen und ereignen sich auch gegenwärtig, wie das aber auch zukünftig sein wird. Doch nun habe ich einiges andere Zukünftige, das ich gemäss
+meinen zwei Visionen errechnet habe, und wenn ich dabei Staatsmächtige, eben Regierende und Politiker, wie
+auch die Miseren, die bei diesen und bei den Staatsführungsgeschäften vorherrschen usw., in meine Ausführungen
+und Erklärungen usw. einbringe, dann bezieht sich das in jedem Fall immer und einzig auf die Fehlhaften der
+Staatsführenden usw. und auf deren Fehlhaftigkeiten. Und das sage ich, weil ich mir absolut bewusst bin, dass
+
+
+-----
+
+sowohl bei den Staatsmächtigen, Regierenden, Staatsbeamten und Politikern usw. sehr wohl auch gute und sich
+ihrer Pflicht bewusste Menschen sind, die ihr Bestes und Gutes geben und bemüht sind, ihre Arbeitsnorm und
+ihr Leistungssoll nach bestem Können und Vermögen zu erfüllen. Auch bin ich mir absolut klar darüber, dass
+auch die staatlichen Gesetze, Ordnungsregeln und Verordnungen durchaus berechtigt und im grossen und
+ganzen in Ordnung sind, folgedem nichts im Negativen dagegen einzuwenden ist, wie das auch in bezug auf die
+rechtschaffenen Staatsmächtigen, Staatsbeamten, Regierenden und Politiker usw. der Fall ist. Folgedem ist in
+jedem Fall meiner Aussagen, Erklärungen und Beanstandungen zu verstehen, dass ich einzig und allein nur die
+Machenschaften des Gros der unrechtschaffenen Staatsführenden, Staatsbeamten und Politiker usw. anprangere,
+die ihre Ämter nur um ihrer Macht und um der Entlohnung, nicht um des Volkes Wohl, der Ordnung, Freiheit
+und des Friedens willen ausüben. Weiter beanstande ich auch nur die falschen, menschen- und freiheitsfeindlichen sowie unlogischen Gesetze, Ordnungsregeln und Verordnungen usw. und nicht und in keiner Weise all
+das, was gesetz-, ordnungs- und verordnungsmässig richtig, gut und effectiv notwendig ist. Und all das, was in
+diesen Rahmen der Richtigkeit fällt hinsichtlich der Gesetze, Ordnung und Verordnungen sowie der Staatsführung usw., lässt die Menschen weitgehend gut sowie in Frieden und Freiheit und auch in einer gewissen
+Sicherheit leben, wie dies zumindest bei uns in der Schweiz der Fall ist. Doch das ist in der heutigen Zeit nicht
+mehr selbstverständlich bei der immer mehr aufkommenden schweren Kriminalität, dem stetig wachsenden
+Verbrechertum und dem immer weiter umsichgreifenden Terrorismus, wie aber auch dem aufkommenden
+Anarchismus – der leider von den Verantwortlichen noch nicht erkannt wird – sowie dem wachsenden Rassenund Religionshass, dem allgemein wachsenden Unfrieden, den Zerrüttungen der Familien und, und, und. Mit
+der Menschheit der Erde ist alles einfach zum Verrücktwerden, weil alles, was sie macht, völlig idiotisch ist, denn
+je mehr Menschen die Erde bevölkern, desto mehr werden noch gezeugt und in die Welt gestellt, und je umfangreicher die Masse der Überbevölkerung ansteigt, desto mehr werden die öffentlichen Dienste kontraproduktiv
+abgebaut und eingeschränkt, so z.B. die Dienste der Behörden, die zudem den Bürgern immer mehr Gebühren
+für allerlei und gar kleinste Dienstleistungen abknöpfen, wobei auch der behördliche Formularkrieg immer
+mehr verkompliziert wird. Weiter werden auch die öffentlichen Busbetriebe und die staatlichen und privaten
+Bahn- und Strassenverkehrsbetriebe und die Verkehrsverbindungsmöglichkeiten immer drastischer eingeschränkt, wobei die Preise für deren Benutzung ständig erhöht werden. Auch werden immer mehr Bahnhöfe
+und Verkehrshaltestellen sowie Poststellen abgebaut, wie auch Banken und Bankfilialen, die für ihre ‹kundenfreundlichen› Verwaltungsarbeiten immer höhere Gebühren verlangen. Auch Krankenhäuser und Arztpraxen
+usw. werden immer häufiger aufgelöst, während alle anderen, die bestehenbleiben, den Patienten ungeheure
+Kosten auferlegen und sie regelrecht ausräubern. Dies geht aber im gleichen Rahmen weiter mit den Konzernbossen, Firmeninhabern, Chefs, Berufssportlern – besonders Fussballern – und Verwaltungsräten usw., die immer
+immensere unverdiente ‹Entlohnungen› fordern, wobei die einzelnen diesbezüglichen ‹Entlohnungsbezüger›
+Millionenbeträge erhalten, die bis über 10 und 12 Millionen Schweizerfranken pro Jahr angesetzt werden. Dies,
+während die normalen Arbeitnehmer – je nachdem – mit knapp 3000–4000.– oder in besseren Positionen mit
+bis 10000.– oder 12000.– Franken oder Euro pro Monat abgespiesen und abserviert werden, obwohl es grund sätzlich diese sind, die effectiv die harte Arbeit leisten, während die vorgesetzten grossmäuligen Bosse faul in
+ihren protzigen Sesseln herumlümmeln und kaum einen Handstreich tun und nur ihr grosses Mundwerk
+führen. Alles ist nur noch darauf aus, immense finanzielle Mittel zu ergaunern und horrende Vermögen zu
+erschleichen. Auch ‹befleissigen› sich immer wieder neugewählte, selbstherrliche Reiche, als ‹Volksvertreter› in
+die Regierungen gewählt zu werden, wo sie dann die Völker finanziell immer mehr belasten, indem sie diese
+mit neuen Steuern aller Art ausbeuten; sei es mit Mehrwertsteuern oder Warenumsatzsteuern usw. usf., denn
+wichtig ist ihnen nur, dass sie die Bürgerinnen und Bürger durch das Steuerwesen schröpfen und selbst horrende
+unverdiente Entlohnungen und später lebenslang hohe Rentengelder kassieren und einheimsen können. Dies,
+während jene der Bevölkerung, die ihren Lebensunterhalt hart und zu niedrigen Entlohnungen erarbeiten müssen,
+horrende Steuern zu bezahlen haben, bis ihnen das Liegen Schmerzen bereitet. Und dabei wird selbst vor den
+alten Menschen nicht halt gemacht, die von kargen Renten und von staatlichen Unterstützungsgeldern leben
+oder dahinvegetieren müssen, denn selbst die vom Staat erhaltenen Unterstützungsgelder werden ihnen noch
+mit horrenden Steuerabgaben belegt, wodurch sie in Armut leben müssen und sich nichts leisten können, was
+ihren Bedürfnissen entsprechen würde. Doch wie anders als selbstherrliche Staatstrottel und Staatskriminelle
+soll man jene Regierenden benennen, die anmassend und willkürlich immer wieder neue Steuern erfinden, um
+einerseits die Steuerzahler auszubeuten und anderseits die Staatskassen zu füllen, damit sie selbst horrende Entlohnungen und spätere Renten kassieren können, die das Mehrfache von dem ausmachen, was die effectiv
+Arbeitenden hart und mühsam verdienen müssen. Und dass es klar gesagt ist, meine ich mit diesen Staatstrotteln
+
+
+-----
+
+und Staatskriminellen nicht die rechtschaffenen Regierenden und Staatsbeamten, sondern effectiv nur jene
+Volksausbeutenden, die ihre Positionen dazu nutzen, um die hart arbeitenden Bevölkerungen immer wieder mit
+neuen Steuern sowie mit behördlichen und staatlichen Stempel- und Schreibgebühren auszubeuten, um damit
+die Behörden- und Staatskassen zu füllen und selbst horrende Entlohnungen zu kassieren und in Herrlichkeit
+und Freuden zu leben und sich alles leisten zu können, während die Arbeiterschicht mehr schlecht als recht leben
+und die Armen jämmerlich darben müssen. Und das ist leider auch in der Schweiz so – wie auch in allen anderen
+Ländern –, in der gewisse Unrechtschaffene in der Regierung – als selbstherrlich wirkende Elemente über die
+Köpfe der Rechtschaffenen der restlichen Regierenden hinweg – alles tun, um die Bevölkerung durch neue Steuern
+und Gebühren usw. finanziell auszubeuten und sich durch unverdiente Entlohnungen und Renten selbst zu bereichern; sei dies durch allgemeine direkte oder indirekte Steuern, durch höhere Strassenverkehrsabgaben und
+Autobahnvignetten, Zollabgaben und, und, und … Bedauerlich ist dabei besonders, dass sich die Rechtschaffenen
+der Regierenden von diesen gewissenlosen und volksfeindlichen Elementen – die durch ihre populistischen
+Machenschaften in die Regierung gewählt werden – zum Schweigen und ihre Stimme zurückzuhalten verdammen
+lassen, oder sich beeinflussen und überreden lassen, bei solchen volksausbeuterischen Machenschaften mitzumachen. Und dies ist eine Seuche, die weitum gegriffen und sich allüberall ausgebreitet hat, und zwar auch in
+den gesamten ausseramtlichen und ausserstaatlichen und eben praktisch in allen Privat- und Wirtschaftsbereichen,
+wie z.B. in bezug auf Post, Ärzte, Krankenhäuser, Spitex und andere Pflegeorganisationen, Banken, Zahnärzte,
+Firmen und Handwerker usw. Das ganze Diesbezügliche ist aber nicht nur kriminell, sondern verbrecherisch,
+denn dadurch ergattern finanzverbrecherische und gewissenlose sowie geldgierige Elemente in jeder staatlich
+erlaubten Weise stetig immensere Vermögen, setzen sich hoch über die Arbeiterklasse, beherrschen diese und
+betreiben einen unkontrollierbaren verbrecherischen Kapitalismus, dem sich die Arbeiterschaft resp. die weiblichen und männlichen effectiv Werktätigen unterordnen und sich von den Kapitalhaien ausbeuten lassen müssen.
+Natürlich wird das vom gesamten Arbeitervolk und gar von den gesamten Bevölkerungen nicht verstanden,
+folgedem alles in diesem traurigen Rahmen weitergeht und die gesamte Arbeiterschaft immer ärmer, unterentlohnter und immer mehr ausgebeutet wird und sich nicht dagegen wehrt, während die grossen Kapitalisten und
+sonstigen Millionenerschleichenden immer reicher und vermögender werden. Und der Gipfel des Ganzen ist
+dabei noch, dass die Rechtschaffenen und Vernünftigen der Behörden und Regierungen nichts dagegen tun,
+sondern im gleichen Rahmen einfach mitziehen, was aber auch nur darum geschehen kann, weil sie, wie auch
+die Bürgerinnen und Bürger und eben die Bevölkerungen, alles einfach geschehen lassen, ohne sich gegen diese
+Missstände zur Wehr zu setzen. Und das tun sie infolge ihrer blinden Gläubigkeit in ihre Behörden und Regierungen, weil sie also in ihrer Obrigkeitsgläubigkeit und Obrigkeitshörigkeit gefangen und dazu auch nicht mehr
+selbst zu denken und zu handeln fähig sind, sondern nur von den Behörden und Regierungen sowie von den
+Politparteien für sich denken lassen und nichts anderes mehr sind als deren Befehlsempfänger und Befehls ausübende. Und da dem so ist, sind die Bürgerinnen und Bürger effectiv keine freie Menschen mehr, sondern
+von Behörden, Regierungen und Parteien politgesteuerte Leibeigene, die über keinerlei Zivilcourage mehr verfügen, die sich duckmäuserisch wie geprügelte Hunde immer weiter in die Unfreiheit und Selbstinitiativelosigkeit zwingen lassen. Die Menschen von heute sind völlig initiativelos geworden, folgedem verteidigen sie sich
+auch nicht mehr, oder im äussersten Notfall erst dann, wenn sie nichts mehr haben, was sich für sie zu verteidigen
+lohnen würde. Und kommt es tatsächlich einmal soweit, dass sie aus ihrer Lethargie erwachen, dann rasten sie
+in unvernünftiger Weise völlig aus, werden berserkerhaft und in einer Art und Weise derart ausartend mobil,
+dass sie blindwütig ausrasten, in böser und blinder Wut alles kurz und klein schlagen und mehr Schaden als
+Nutzen anrichten. Der ausser Kontrolle geratende Faktor Verstand und Vernunft lässt dann nur noch blinden
+Hass und grenzenlose Wut zu, denen keine Besinnung mehr entgegengesetzt werden kann, weil jede klare Denkfähigkeit, Einsicht und jedes Erkenntnisvermögen, jede Klugheit, jeder Scharfsinn und jede Urteilsfähigkeit
+infolge ausartender Brutalität, Ressentiments, Unzufriedenheit, Rachsucht und Feindseligkeit usw. derart verkommen, dass nur noch absolut unkontrollierbar blindwütig und fanatisch gehandelt wird. Zu hoffen ist in
+diesem Zustand dann nur noch, dass nach den unvermeidbaren Ausartungen wenigstens noch etwas bestehen
+bleibt und letztendlich Verstand und Vernunft doch wieder siegen, um mit viel Arbeit, Aufwand und Mühen
+wieder Ordnung und ein Fortkommen schaffen zu können. Dabei muss dann aber der Fakt gegeben sein, dass
+die kleine Clique der Machtbesessenen, der Oberreichen und kapitalistisch Vermögenden, denen die Welt infolge ihrer finanziellen Macht gehört, diese nicht mehr beherrschen können. Geschieht dies, dann muss klar
+geregelt werden, dass die gesamten Bevölkerungen der Erde nicht mehr durch den Kapitalismus regiert werden,
+sondern dass in Zukunft die Völker in wahrer Demokratie das Weltgeschehen bestimmen und alles so regeln,
+dass für alle Menschen in jeder Beziehung Gleichheit herrscht, und zwar auch in Hinsicht auf die Entlohnung,
+
+
+-----
+
+damit nicht die einen arm und im Elend dahinsiechen müssen, während die andern steinreich und in Herrlichkeit
+frohlocken und leben können. Das aber bedingt, dass die Menschen der Erde aus ihrer Dämmerschlaflethargie
+erwachen, selbst zu denken beginnen und Verstand und Vernunft zur Anwendung bringen, um auch die weiter
+unheilbringende Globalisierung zu stoppen, die durch den Kapitalismus und eben speziell durch die Kapitalbonzen und deren geldgierige Machenschaften bereits derart weit vorangeschritten ist, dass auch die Natur in
+verheerender Weise darin einbezogen und in Aufruhr gebracht wurde. Also muss die gesamte irdische Bevölke rung resp. die ganze Menschheit endlich selbständig und klar denken lernen, und nicht von den Obrigkeiten
+und den Politparteien sowie von den Kapitalmächtigen denken lassen, sondern sich in ureigener Regie um das
+selbständige Denken bemühen. Ein selbständiges Denken beruht darin, dass der Mensch einerseits aus möglichst
+vielen unterschiedlichen Quellen Informationen sucht, sammelt und in sich aufnimmt, um diese dann anderseits miteinander zu vergleichen und eigene Schlüsse daraus zu ziehen. Das selbständige Denken ist nicht nur
+wünschenswert, sondern es muss des Menschen Pflicht sein, folglich er es von sich selbst fordern muss, wobei
+dies eigentlich grundsätzlich schon früh durch die Erziehung und dann auch durch die Selbsterziehung gelernt
+werden sollte, weil nur dadurch die Möglichkeit erschaffen wird, eine eigene Meinung zu bilden. Leider ist es
+aber so, dass sehr viele Menschen – auch wenn sie bereits Erwachsene sind – sich keine eigene Meinung zu bilden
+vermögen, weil sie nie selbständig zu denken gelernt haben. Und diese Menschen vermögen auch bei für sie
+zentralen Themen nicht mitzureden, diese nicht zu überdenken und sich auch keine eigenen Meinungen zu
+bilden. Folgedem vermögen sie auch nicht Meinungen anderer Menschen zu hinterfragen, sondern übernehmen
+sie einfach unbedacht und leben damit im Wahn, dass diese Meinungen richtig und auch ihre eigenen seien.
+Menschen jedoch, die nicht selbständig zu denken vermögen, sind allgemein nicht dazu fähig, ein selbständiges
+Denken als solches zu erkennen, weil dieses in Wirklichkeit überhaupt nicht vorhanden, sondern nur ein Annahmeprodukt fremden und vorgekauten Denkens ist. Kürzlich hatte ich diesbezüglich und auch in bezug auf
+die fernere Zukunft zwei Visionen, die äusserst schreckeinflössend waren und mich betroffen gemacht haben.
+Folgedem habe ich mir über all die wahrgenommenen Faktoren und die kommenden Auswirkungen tiefere
+Gedanken gemacht und auch Wahrscheinlichkeitsberechnungen durchgeführt, eben was sich aus allem in
+zukünftiger Zeit ergeben kann, und das sieht nicht nur absolut unerfreulich, sondern katastrophal aus und führt
+zu einem zukünftigen Armageddon. Demgemäss habe ich einiges zusammengefasst, das vor allem auch mit der
+rasant wachsenden Überbevölkerung zusammenhängt, die durch ihre zwangsläufig immer krasser werdenden
+Machenschaften auf der ganzen Welt zu immer mehr Katastrophen führen wird. Dies wurde ja auch durch
+Prophetien angekündigt, wie diese auch im Prophetien-Buch erwähnt sind und die ungeheure Feuersbrünste
+in den USA voraussagten, wo seit Jahren immer mehr böse Feuersbrünste herrschen, die ganze Dörfer und
+Stadtteile sowie Landschaften zerstören und vernichten. Das ist ja auch momentan der Fall, da eine mächtige
+Feuersbrunst mit Feuertornados mehrere Dörfer und bereits weit über 6000 Wohnhäuser, danebst aber auch
+andere Gebäude und auch Wälder zerstört und erdbodengleich vernichtet hat. Doch was ich in bezug auf den
+Wahnsinn der Überbevölkerung in zukünftiger Zeit wahrscheinlichkeitsmässig errechnet habe, stellt – wenn
+sich tatsächlich alles gemäss meinen Berechnungen ergibt – allein eine ungeheure und noch nie dagewesene
+Menschheits-Katastrophe dar. Dem Ganzen werden jedoch noch diverse äusserst unerfreuliche Faktoren vorausgehen, die ich aber erst nachführend nach dem ausführen will, was sich gemäss meinen Visionen und Berechnungen zukünftig nach der grössten Menschheits-Katastrophe ergeben wird, wenn unter Umständen tatsächlich
+eine gewaltsame Menschheitsausrottung im grossen Stil erfolgt, die – wenn es wirklich geschieht – von den
+Staatsmächtigen und den Kapitaleliten usw. herbeigeführt und ausgeübt wird. Also beginne ich mit den Resultaten
+aus meiner Berechnungssicht heraus, die bei einigen Dingen ca. 34 Prozent, bei den meisten aber rund 56 Prozent Wahrscheinlichkeit betragen, die sich aber je nachdem steigern können, wobei aber schon jetzt mit dieser
+Prozentzahl die Gefahr besteht, dass diese Wahrscheinlichkeitsmöglichkeit eintreffen kann. Diese prozent mässigen Ergebnisse ergeben bereits jetzt, dass das Ganze, wenn es sich wirklich noch steigert und tatsächlich
+eintrifft und also Wirklichkeit wird, in zukünftiger Zeit derart ungeheuerlich sein wird, dass für den Normalmenschen alles so gut wie unfassbar und nicht verkraftbar sein wird. Dann will ich jetzt also all das nennen, was
+ich wahrscheinlichkeitsmässig gemäss meinen beiden Visionen errechnet habe, wobei ich mit dem beginne, was
+sich letztendlich ereignen wird, wenn sich meine Visionen und Wahrscheinlichkeitsberechnungen erfüllen sollten.
+Danach nenne ich erst die diversen Faktoren, die sich gesamthaft zu dem Ende zusammenführen, das unvermeidlich sein wird, wenn sich die Menschheit nicht schnell zum Besseren wandelt, um weltweit einen Geburtenstopp
+und eine Geburtenkontrolle und auch demokratisch bürgerschaftsmässige Regierungen einzuführen. Dazu aber
+müssen alle unrechtschaffenen Staats-, Regierungs-, Behörden- und Politikerelemente ihrer Ämter enthoben
+und durch effectiv volksnahe rechtschaffene Kräfte ersetzt werden, die ihre Ämter bürgerschaftsmässig ausüben
+
+
+-----
+
+und eben demokratisch nach dem reinen Volkswillen die Regierungsgeschäfte jeder Art tätigen. Doch was ich
+zu sagen und wahrscheinlichkeitsmässig errechnet habe, entspricht einer etwas umfangreichen Sache, die ich
+bereits vorgeschrieben habe, weil das Ganze zu umfangreich wäre, um alles im Gedächtnis zu behalten. Also
+kann ich hier vom Computer weg alles vorlesen und nun darlegen, was meine Visionen und Wahrscheinlichkeits berechnungen ergeben haben, und zwar folgendes:
+
+1. Das grosse Elend und Ende des Überbevölkerungs-Liedes wird sein, dass von den Welteliten erkannt werden
+wird, dass das Erhalten ihrer Macht nur dadurch gewährleistet werden kann, indem die Überbevölkerung
+drastisch reduziert wird, wobei diese Menschheitsreduzierung in zukünftiger Zeit in verbrecherischer Weise
+durch die Weltmächtigen durchgeführt zu werden droht, wenn der Massenzuwachs der Überbevölkerung
+nicht in absehbarer Zeit durch einen drastischen weltweiten Geburtenstopp beendet und einer weltum fassenden Geburtenkontrolle eingeordnet wird. Die Weltmächtigen resp. die Staatsgewaltigen, die Völkerbeherrschenden und Kapitalmächtigen, die als solche die Weltelite bilden, die im grossen und ganzen auch
+stark religiös-sektiererisch befangen sind und es auch in Zukunft sein werden, werden in den Arten und
+Weisen ihres Handelns viel bösartiger und schlimmer sein, als die Kriegs- und Menschheitsverbrechen, die
+durch die NAZI-Greuel geschehen sind. Diese zukünftige weltmächtige Elite wird kein Erbarmen kennen
+und eine Menschheitsvernichtung durchführen, die schrecklicher nicht sein könnte. Und dafür zeigen sich
+wahrscheinlichkeitsmässig verschiedene Möglichkeiten auf, wie dass diverse altherkömmliche todbringende
+Seuchen aufgearbeitet und mit neuen tödlichen Wirkstoffen präpariert, jedoch auch künstlich erzeugte
+Krankheiten zur Dezimierung der Menschheit Verwendung finden werden. Ebenso weisen die Berechnungen
+auch darauf hin, dass geheimerweise zur Menschheitsdezimierung infektiös wirkende giftige biologische
+Stoffe genutzt und deren tödliche Wirkungen als neue und unheilbare Seuchen dargestellt werden, wobei
+diese Giftstoffe dann über die Atemwege und den Mund sowie über die Haut und Schleimhäute in den gesamten Organismus eindringen, wodurch unweigerlich unaufhaltbare Massensterben in Erscheinung treten.
+Auch gezielt hervorgerufene Hungersnöte und Kriege, Vergiftungen der Nahrung und des Trinkwassers
+werden zum Arsenal der Dezimierung von Menschen bis auf ein noch regierbares Minimum gehören, was
+sich weltweit ereignen wird, also nicht nur in einzelnen mörderisch und diktatorisch geführten Staaten.
+Auch ein thermonuklearer Krieg zur Entvölkerung des Gros der Masse Erdenmenschheit muss in Betracht
+gezogen werden, um sie derart zu reduzieren, dass sie wieder regiert werden kann, folglich daraus auch ein
+Völkermord resp. Menschheitsmord in nie dagewesenem Ausmass hervorgehen kann.
+
+#### Ehe aber all dies geschieht, werden sich jedoch gemäss meinen Wahrscheinlichkeitsberechnungen folgende Ausartungen zutragen:
+
+2. Allgemein bestehen bereits heute in der ganzen Welt äusserst komplizierte Veränderungen und weiten sich
+in kommender Zeit aus, die staatliche, politische, kapitalistische, militärische, wirtschaftliche und bürgerschaftliche Tragweiten haben, hervorgerufen durch das Machtgebaren Unfähiger, die durch Falschentscheidungen, Misswirtschaft, Machtansprüche auf andere Länder, Unterdrückung der Freiheit und des Friedens
+in mancherlei Hinsicht in den eigenen Staaten usw. Grund zu Aufständen und Revolten geben.
+
+3. Die kleinen und grossen Staaten in der ganzen Welt werden in bisher nie gekanntem Mass militärisch mit
+modernsten Waffen aufrüsten, wodurch statt Frieden, Freiheit und Sicherheit das Ganze allgemein immer
+mehr zur grossen Gefahr für Streiterei mit Nachbarstaaten und für Waffengänge und Kriege werden wird.
+
+4. Allgemein werden in der ganzen Welt aus anarchistischen Gruppierungen der Bevölkerungen heraus immer
+mehr schwere Angriffe auf die Polizeiorgane erfolgen und auch Menschenleben fordern, nebst dem Entstehen von Zerstörungen von staatlichem Eigentum, was letztendlich unter Umständen auch zu militä rischen Eingriffen gegen die entsprechenden Gruppierungen führen kann, wenn die Sicherheitsorgane
+dieser nicht mehr Herr werden.
+
+5. Nebst den USA und Russland erhebt sich nun auch China in die Position der Weltpolitik und verlässt nunmehr seit dem Korea-Krieg seine bisherige traditionelle, rein beobachtende, passive und zuschauende
+Position und wandelt sich zur selbstbewussten Gross- und Weltmacht und zur wieder aufblühenden neuen
+chinesischen Nation mit einer eindrucksvoll steigenden Wirtschaft, wobei die sozialistische Volksrepublik
+
+
+-----
+
+China auf der weltpolitischen Bühne keinen Hehl mehr aus ihren Ambitionen als Führungsmacht und Gross macht usw. machen und in jeder Beziehung in grossem Umfang auch militärisch massiv aufrüsten wird.
+
+6. Das Flüchtlingswesen wird weiterhin und zukünftig vermehrt ansteigen, wodurch letztendlich auf der Erde
+250 bis 350 Millionen Menschen als Flüchtlinge ihre Heimatländer verlassen und sich in alle Welt verteilen
+werden. Diesbezüglich wird besonders Europa infolge der Flüchtlingsmisswirtschaft durch die Dummheit
+falschhumanistischer Regierender und Bevölkerungsgruppen das Ganze fördern, wodurch neue Leiden
+und Krankheiten hervorgerufen und sich Wirren verbreiten werden, wobei auch die Feindschaft gegen
+Fremde und der Rassen- sowie Religions- und Sektenhass, die Kriminalität und die Verbrechen ansteigen.
+
+7. Die kommenden Zeiten bringen viele technologische Entwicklungen, die für die Menschheit aber sowohl
+Nutzen als auch Nachteile und Schaden heraufbeschwören. Die Natur und deren Fauna und Flora resp. die
+gesamten Ökosysteme und das Klima werden durch die ausartenden verbrecherischen Machenschaften
+und Auswirkungen der Überbevölkerung immer mehr zerstört und vernichtet, und zwar infolge der dafür
+erteilten vernunftlosen Bewilligungen der Regierungen in bezug auf umweltzerstörende Machenschaften.
+So sind dafür auch die Staatsgewaltigen, Regierenden und Politiker verantwortlich, oft auch die Militärs
+sowie die Lobbyisten, privaten Akteure, Populisten und alle sonstig Handelnden, die mit ihrer wachsenden
+Macht und ihren schmutzigen Fingern in die Regierungen hineinlangen und mithelfen, weiterhin die Natur,
+deren Fauna und Flora und das Klima zu zerstören. Gesamthaft wird zudem allüberall die Hemmschwelle
+niedergebrochen, die viel Gewalt noch verhindern könnte, die in steigender Form durch Ausartungen,
+Gleichgültigkeit, Hass, Unfrieden und Neid usw. als bösartige Folgen aus der wachsenden Überbevölkerung
+hervorgehen, wie auch aus deren Machenschaften böse Ressourcenkämpfe zwischen den Staaten entstehen
+und zu Krieg und Waffengängen führen werden. Die rasend steigende technische Entwicklung als Phänomen
+der fortschrittlichen Zeit im 21. Jahrhundert wird in ihrer Negativität unterschätzt werden, denn sie wird
+grosse Gefahren mit sich bringen, durch die letztendlich die Zukunft der ganzen Menschheit und damit
+auch die der künftigen Generationen aufs Spiel gesetzt wird.
+
+8. Weltweit werden immer wieder neuerlich Staaten in Aufruhr verfallen, weil in ihnen bürgerliche und
+separatistisch geprägte Unruhen aufkommen, die zu schweren innenpolitischen und wirtschaftlichen Aufständen, Ausschreitungen sowie zu Gewalt und Wirren führen.
+
+9. Wie seit alters her werden sich auch in den kommenden Zeiten die Gottgläubigen gegenseitig bekämpfen,
+hassen und verfeinden, und zwar nicht nur die Gläubigen diverser Religionen, sondern auch der Sekten,
+wodurch auch in dieser Weise immer wieder Glaubensstreit und Glaubensterrorismus aufflammen und
+bösartiger Unfrieden, Hass sowie Kriege, Massaker und Vertreibungen, Leid, Not und Elend über die
+Menschheit kommen werden. Und das wird so lange geschehen und sich so lange wiederholen, wie Religionen und aus diesen resultierende Sekten bestehen und sich auch neue bilden.
+
+10. Die Regierenden, die Staatsmächtigen und Politiker – von denen ein grosser Teil bereits populistisch wirkt,
+wobei aber auch Lobbyisten mitwirken – verfallen immer mehr diversen Formen des Populismus und
+gelangen mit populistischen Hetzereien, betrügerischen Versprechen und mit Lügen an die Macht, führen
+die Bevölkerungen in Verwirrung und durch Missführung in Bedrängnis, Schwierigkeiten und Zweifel
+sowie in ungeregelte, ordnungszerstörende und staatsgefährdende Zustände, wobei in Europa, nebst der
+Schweiz – in der leider auch diverse Populisten und Lobbyisten zum Schaden der Rechte und Freiheit der
+Bürger/innen ihr Unwesen treiben können –, auch Deutschland und natürlich die EU-Diktatur sowie
+besonders Frankreich, England und Holland und auch Österreich durch Populisten und Lobbyisten in den
+Regierungen und bei den Politikern die Bevölkerungen in ihren Rechten beschneiden, benachteiligen und
+sie durch neue Abgaben und Steuern usw. finanziell ausbeuten und dies auch in Zukunft tun werden.
+
+11. Die öffentlichen Medien aller Art werden auch immer mehr zu einem populistischen Machtfaktor, durch
+deren Machenschaften und Sinn die Bevölkerungen medien-populistisch beeinflusst und gesteuert werden,
+wobei durch die Medien und ihre Macht ihnen dienliche Falschinformationen Verbreitung finden und die
+Bevölkerungen irreführen.
+
+
+-----
+
+12. Populistisch erschaffene und gesteuerte Verschwörungstheorien und Lügenmeldungen werden stetig mehr
+in Erscheinung treten, die Völkerschaften aller Länder in die Irre führen und zu Gläubigen all derer machen,
+die aus dem Ganzen der Verschwörungslügen volksausausbeutend horrende Gewinne erzielen und zugleich
+die Bevölkerungen beherrschen.
+
+13. Die politischen Risiken steigen immer mehr dramatisch an, wie auch in bezug auf die humanitären Belange,
+die ökonomischen Probleme, die gesamte Volkswirtschaft und Unternehmen, wobei auch grosse Gefahren
+durch Kriege und das internationale Terrorismusrisiko bestehen und damit auch Sicherheitsrisiken grosse
+Rollen spielen.
+
+14. Die heutige und weiter kommende aktuelle Weltlage ist derart gefährlich geworden, dass sie bereits jetzt in
+vielfacher Weise gefährlicher ist als zur Zeit, als der Kalte Krieg noch vorherrschte, was sich nunmehr noch
+mehr ausweiten wird.
+
+15. Im absoluten Vordergrund aller kommenden bösen, negativen und schlimmen Veränderungen durch Einmischungen in fremder Länder interne und externe Affären, Ereignisse, Handlungsweisen, Konflikte und
+Problematiken usw. stehen die weltherrschaftssüchtigen USA, die sich machtbesessen – wie seit alters her –
+vermehrt in die Händel sowie innen- und aussenpolitischen Angelegenheiten, Belange und Interessen
+anderer Staaten einmischen und damit Unruhe, Unfrieden, Kriege und sonstige Waffengänge provozieren.
+
+16. Mühsam erstellte und zustande gekommene positive Bündnisse, Verbindungen, Vereinbarungen und Verträge zwischen diversen Staaten und Organisationen usw. werden zu Teilen oder total aufgelöst und fallen
+auseinander, wobei vielfach die USA die treibende Kraft dafür sind und dadurch immer wieder neuerlich
+Feindschaften zwischen Ländern und grosse Unsicherheit, Unruhe, Unfrieden, Revolutionen und Kriegsgefahr heraufbeschwören.
+
+17. Die USA und die US-Regierenden werden künftighin sehr vielfachen Bedrohungen ausgesetzt sein, die
+sowohl von staatlichen und nichtstaatlichen regierungs- und staatsfeindlichen Akteuren, wie aber auch aus
+grossen Teilen der US-Bevölkerung ausgehen werden, wobei sich die US-Bevölkerung in verschiedene
+Bevölkerungsgruppierungen aufspalten wird, wozu die Grundfaktoren bereits erschaffen sind und sich
+folgedem die US-Bevölkerung schon zur heutigen Zeit in verschiedene Gruppierungen separatisiert.
+
+18. Es entstehen immer wieder neuerliche Feindschaften zwischen diversen Staaten, die zu politischen und
+wirtschaftlichen Differenzen und zu bösen und zerstörerischen Kriegen und Waffengängen führen – wodurch ein vierter Weltkrieg ständig immer wieder in Betracht gezogen werden muss. Diesbezüglich stehen
+als treibende Kraft besonders die kriminellen und verbrecherischen Weltherrschafts- und Weltpolizeiallüren sowie Politmachenschaften der USA im Vordergrund.
+
+19. Weltweit geraten diverse Staaten in bezug auf die öffentliche Ordnung immer mehr an den Rand eines Kollapses, wobei eine Zuspitzung der schlechten Sicherheitslagen im Inneren wie im Äusseren durch extreme
+terroristische und militärische sowie diktatorische Machenschaften ansteigen werden.
+
+20. Russland wird trotz anderweitiger Bemühungen der Regierung das Ziel von Terroristen werden, wobei
+insbesondere islamistische Angriffe aus den Autonomiegebieten Dagestan und Tschetschenien drohen
+werden.
+
+21. Die Atommächte werden um ihrer Machtgier willen – und um diese zu erhalten – Kriege mit Atomwaffen
+führen, wie aber auch mit anderen Massenvernichtungswaffen und damit weltweit Not, Tod, Elend, Zerstörung und Vernichtung über die ganze Erde verbreiten.
+
+22. Die Rohstoffe werden zu derart raren Materialien werden, dass die Staaten ausartende Kriege um diese auslösen und führen werden, wobei ganz besonders gewisse grossmächtige Atommächte ihre tödlichen Waffen
+skrupellos einsetzen werden.
+
+
+-----
+
+23. Der Wohlstand der gesamten Menschheit wird bedroht – schon zur heutigen Zeit und in Zukunft erst recht –
+durch autoritäre Tendenzen der Eliten der Regierenden, Politiker, Populisten und der Kapitalisten, womit
+unweigerlich auch gesellschaftliche Zerfallserscheinungen einhergehen werden.
+
+24. Die Erdenmenschheit wird die skrupellosesten und lebens- und menschenverachtendsten Herrschafts systeme hervorbringen, wie diese noch niemals zuvor auf der Erde in Erscheinung getreten waren, wobei
+die Herrschafts- und Regentschaftsausübenden, Besitztumgierigen und Kapitalmächtigen das Schiff der
+Menschheit von einer Katastrophe in die andere rudern werden.
+
+25. Der Terrorismus – sowohl religiös-sektiererisch, politisch wie auch menschen- und staatsfeindlich geformt –
+wird weltweit immer mehr überhandnehmen, wie auch die tödlichen und zerstörenden Terroranschläge
+aller Art in aller Welt immer mehr Menschenleben fordern und gewaltige Zerstörungen hervorrufen werden.
+Der gesamte weltweite Terrorismus wird immer wieder zuschlagen und für die Erdenmenschheit zum Albtraum werden.
+
+26. Die politischen Risiken nehmen weltweit zu und drohen in Instabilität, allerlei bewaffnete Konflikte sowie
+in Kriege und Terrorakte auszuarten, wodurch auch in dieser Beziehung die ausgeartete Terrorgefahr erheblich steigen und die Welt an den Rand eines Kollapses treiben wird.
+
+27. Die unaufhaltsam wachsende Überbevölkerung und die gesamten misswirtschaftlichen Systeme aller Art
+und auf allen Gebieten werden weiterhin weltweit die Arbeitslosenzahlen in die Höhe treiben und Formen
+erreichen, die ungeheure Probleme hervorrufen werden, wie dies bei keinen früheren Arbeitslosenzeiten
+der Fall gewesen war.
+
+28. In der gesamten Wirtschaft werden die Entlohnungen für die Arbeitnehmenden sehr tief absinken und ungeheure finanzielle Probleme in allen Bevölkerungsschichten der Arbeiterwelt hervorrufen, wobei auch das
+ganze Sozialwesen Schaden erleiden, zusammenbrechen und rundum auch die rapid steigende Kriminalität
+ungeheure Probleme hervorrufen wird.
+
+29. Durch Spekulanten wird eine globale Finanz- und Wirtschaftskrise hervorgerufen werden, wie es eine
+solche zuvor niemals gegeben hat, folgedem auch die gesamte Finanzwirtschaft in grosse Not geraten und
+auch viel Unheil und grosser Mangel in bezug auf Wirtschaftsgüter entstehen wird.
+
+30. Auch in den USA soll die Bevölkerung als Folge der weltweiten Finanzkrise enteignet werden, was dazu
+führen wird, dass gegen die aufgebrachte und teils schwerbewaffnete Bevölkerung durch Militär- und
+Polizeikräfte mit böser Gewalt vorgegangen wird.
+
+31. Das geplante Bargeldverbot soll die Enteignung der Bevölkerungen herbeiführen, wobei jedoch die Elite
+der Regierenden und des Kapitalismus ihrerseits in Freuden und Herrlichkeit ‹schwimmen› können. Und
+es soll das gesamte Finanzsystem auf der ganzen Welt umgestürzt werden, um damit auch alle bestehenden
+Staatsschulden aller Länder neu zu ordnen, und zwar in der Weise, dass allgemein allein die Bevölkerungen
+der Staaten zu Schaden kommen. Bereits bestehen in den USA und in der EU-Diktatur geheime Pläne, um
+von Deutschland aus einen Krieg gegen Russland zu starten, der als Grund für die gesamte aufkommende
+weltweite Krise genannt werden soll. Und dass dabei dann die Schuld für diesen Krieg den Russen zugeschoben werden soll, natürlich völlig zu Unrecht – wenn er tatsächlich zustande kommt –, das ist von vornherein klar. Und erfolgt dieser Krieg tatsächlich, dann wird daraus ein Kriegsrecht abgeleitet, das die aufgebrachte Bevölkerung – die völlig enteignet werden wird – durch starke und rücksichtslose Militär- und
+Polizeikräfte unterdrückt.
+
+32. Bereits heute existieren Länder, die in Wahrheit nur noch sogenannten Nominalstaaten entsprechen und
+die effectiv keine selbständige Staaten mehr sind, sondern nur noch dem Namen nach als solche existieren
+und selbst keinerlei eigene Staatsgewalt mehr haben. Grundsätzlich handelt es sich dabei einzig um offene
+Gebiete, die von kriminellen Banden wimmeln und von Guerillakämpfern und Warlords beherrscht werden.
+Auch Europa entspricht einem Gebiet, das von Kriminalität und Verbrechertum besudelt ist, zudem aber
+
+
+-----
+
+auch von der EU-Diktatur beherrscht wird, die eine hochgefährliche Diktatur darstellt, die sehr viel zur
+Instabilität der internationalen Politik beiträgt und auch ein Ausgangspunkt und zugleich Spielball des
+internationalen Terrorismus ist, und von wo zukünftig durch militärische Gewalt Bedrohungen ausgehen
+werden. Doch von der EU-Diktatur gehen auch kriminelle und verbrecherische Machenschaften durch
+Kriminelle und Verbrecher aus – und werden in Zukunft in vermehrtem Mass ausgehen –, wie Drogen-,
+Menschen- und Waffenhandel, wobei je länger, je mehr keine Ordnung zustande gebracht werden kann.
+
+33. Es werden Bemühungen in Erscheinung treten, Griechenlands Bevölkerung zu enteignen, wie dasselbe bei
+Gelegenheit auch mit anderen Staaten versucht werden wird.
+
+34. Die Rentenanstalten werden keine Rentenzahlungen mehr ausschütten können, weil ihnen die finanziellen
+Mittel ausgehen, und zwar einerseits infolge der höheren Alterung der Rentenbezüger, anderseits weil diese
+durch die ansteigende Masse der Überbevölkerung immer mehr werden und gesamthaft auch die Lebens erhaltungskosten steigen und damit auch der Rentenbedarf, dessen Erhöhung und gar Auszahlung jedoch
+immer fraglicher werden wird.
+
+35. Viele Staaten werden durch unsinnige finanzielle Ausgaben und Überbelastungen in pekuniäre Not geraten,
+wodurch die gesamten Staatsgebilde und Banken sowie die Wirtschaft infolge unvermeidbaren Bankrotts
+zusammenbrechen werden.
+
+36. Weltweit werden alle Sozialsysteme kollabieren, wodurch dann immer mehr Menschen tiefster Armut verfallen, keine Krankenfürsorge mehr geniessen können und auch des Hungers und Elends sterben werden,
+weil sie ihren gesamten Lebensunterhalt und also auch die eigene Ernährung und Gesundheit nicht mehr
+finanzieren können.
+
+37. Unabhängige und souveräne Staaten werden von den USA künftighin als grösste Bedrohung und Feinde
+für US-Amerika eingeschätzt werden, wobei, wie seit alters her, Russland – aus wirrer US-Sicht – vermehrt
+als grösste Gefahr für die amerikanische Sicherheit ausgerufen wird.
+
+38. Durch die USA werden vermehrt immense Mengen an modernsten schweren Waffen nach Europa gebracht,
+die in Deutschland und in den an Russland angrenzenden Staaten stationiert werden, wobei Russland dies
+nicht einfach hinnimmt und das eigene Atomarsenal und auch alle sonstigen Waffen sowie das russische
+Heer resp. die Gesamtheit der russischen Streitkräfte aufrüstet.
+
+39. Bereits heute gibt es nicht nur zwei Weltmächte – die USA und Russland –, denn es existieren auch diverse
+regionale Grossmächte, die teilweise nuklear bewaffnet sind und die internationale Allüren haben, wobei
+allen voran die EU-Diktatur steht, dann auch Brasilien, Indien, Japan, Nigeria und Südafrika. Damit aber
+wächst die Unsicherheit für alle Staaten und die ganze Welt, denn alle rüsten sie immer mehr auf, und zwar
+nicht einfach, um sich gegen Angriffe zu schützen, sondern auch um eventuell Nachbarstaaten anzugreifen.
+
+
+40. Weltweit werden die Bevölkerungen vieler Länder ob aufkommender staatlicher Miseren immer unzufriedener werden und bis hin zu Aufständen aufbegehren, woraus die Gefahr von Bürgerkriegen hervorgehen
+wird.
+
+41. Die Regierenden und Finanzmächtigen, die lasch und falsch sowie elitehaft, machtgierig, selbstsüchtig und
+selbstherrlich über die Bevölkerungen herrschen, werden ihres Lebens nicht mehr sicher und gezwungen
+sein, ihr Leben sowie ihr Hab und Gut zu verteidigen, was nur möglich sein wird – wenn überhaupt –, wenn
+sie sich durch Bodyguards oder gar eigene Söldnertrupps schützen lassen.
+
+42. Die Eliten der Regierenden und des Geldadels werden zusammen mit korrupten Politikern weltweite totale
+und diktatorische Überwachungsstaaten erschaffen und damit ihre Herrschaft wahren.
+
+43. Die Finanzwelt fördert den Kapitalismus je länger, je mehr, wobei das Ganze in nationalistischer Form resp.
+faschistischer Weise ausarten wird, um eventuell andere in Erscheinung tretende und wider den Kapitalismus
+entstehende Systeme zu verhindern und im Keim zu ersticken.
+
+
+-----
+
+**Ptaah      Deine Visionen und Wahrscheinlichkeitsberechnungen verbinden sich mit gleichartigen Berech-**
+nungen, die auch ich schon vor drei Jahrzehnten angefertigt habe und die sich tatsächlich verwirklichen können,
+wenn sich in der gesamten irdischen Weltpolitik, den Regierungsformen, der gesamten Wirtschaft und im Gesamtverhalten der Erdenmenschen-Völker sowie in deren Verstand und Vernunft nichts zum Guten und Richtigen
+wandelt. Und was zu diesem Guten und Richtigen getan werden muss, dazu gehören auch greifende Regeln zu
+einem sehr schnell zu fassenden und durchzuführenden weltweiten Geburtenstopp und einer massgebenden
+Geburtenkontrolle, um die Menschheit wieder auf ein planeten- und naturverträgliches Mass zu bringen, das
+für die Erde 529 Millionen beträgt, wobei aber für die Dezimierung der Erdenmenschheit eine Zahl zwischen
+1 bis 1,5 Milliarden berechnet werden wird, wie meine eigenen Wahrscheinlichkeitsberechnungen vor drei Jahrzehnten ergaben. Meine Wahrscheinlichkeitsberechnungen wiesen vor drei Jahrzehnten natürlich noch weniger
+Möglichkeitsprozente auf, nämlich nur deren rund 47,7 Prozent, die sich jedoch seither massiv gesteigert haben.
+Vorausschauen habe ich in den diesbezüglichen Berechnungen keine durchgeführt, doch auch meine Wahrscheinlichkeitsberechnungen legen klar – wie die deinen –, dass sie tatsächlich eine gewisse grössere voraussagende Eintreffensmöglichkeit aufweisen. Dies aber wird sich erweitern, wenn sich im gesamten politischen,
+wirtschaftlichen und allgemeinen Weltgeschehen, wie auch im allgemeinen Gesamtverhalten der Erdenmenschen in bezug auf deren Verstand und Vernunft nicht alles massgebend ändert und sich keine fortschrittliche
+und logische Verhaltensweisen und Handlungen ergeben, die einen gesunden Fortbestand der Erdenmenschheit
+gewährleisten können.
+
+**Billy       Das ist interessant, denn ich habe nicht gewusst, dass auch du solche Berechnungen gemacht hast**
+und dass ich mit meinen Berechnungen nun zu gleichartigen Ergebnissen gelangt bin wie die deinen. Für mich
+bedeutet das, dass in unseren Berechnungen zumindest eine grössere Wahrscheinlichkeit in bezug auf eine
+Erfüllung gegeben sein muss. Doch zurück zu dem, was ich errechnet habe in bezug darauf, dass von den Staatsmächtigen usw. und von der Kapitalelite in zukünftiger Zeit die Völker nicht mehr regiert werden können. Wie
+ich errechnet habe, ist der Anfang dazu ja schon vor vielen Jahrzehnten geschaffen worden. Und um das zu erkennen und zu verstehen, muss man nur ins 19. und 20. Jahrhundert zurückschauen, in deren Verlauf in aller
+Welt grosse und staatlich unkontrollierbare Verbrecherorganisationen entstanden sind, die ungeheure Macht
+habenund diese selbst in die Staatsgeschäfte hinein ausüben. Tatsache ist aber auch, dass von den Staatsführenden
+immer mehr am Wohl und an den Interessen der Völker vorbeiregiert wird, wobei bereits heute zwischen den
+Regierenden und den Bevölkerungen eine derartige Diskrepanz vorherrscht, dass keine Einigung mehr gefunden
+werden und alles nur noch in ein tieferes Elend verfallen kann, als dies bereits der Fall ist. Und dazu trägt auch
+das gesamte Parteienwesen bei, das in verschiedene Interessen aufgesplittet ist, anstatt dass es in eine verträglich
+logische, friedliche, verstand- und vernunftmässige sowie fortschrittliche und vorteilbringende Einheitlichkeit
+gegliedert wird.
+
+**Ptaah      Das sehe ich auch so.**
+
+**Billy       Eben, und was ich sagen will in bezug auf die schon seit langer Zeit herrschende Unordnung in**
+allen Staaten, so stechen jene Verbrecherorganisationen besonders hervor, denen weder die Sicherheitskräfte,
+wie die Polizei usw., noch die Behörden, Staatsmächtigen und Militärs etwas anhaben können. Für die brutalsten
+Gangs resp. Verbrecherorganisationen der Welt stehen heute Gewalt, Macht, Mord, Menschen- und Drogenhandel sowie Totschlag, jede mögliche organisierte Kriminalität und effectiv religiös-sektiererisch völlig aus gearteter Fanatismus im Vordergrund, wogegen in gesetzlicher und rechtschaffener Weise schon seit rund 200
+Jahren nichts mehr getan werden kann. Die meisten dieser Gangs und Verbrecherorganisationen – die nicht
+einfach nur kriminell, sondern effectiv verbrecherisch sind und vor nichts zurückschrecken – wurden nicht nur
+in Mittel- und Nordamerika gegründet, um ethnische Interessen zu verteidigen, sondern auch in Europa, in
+Arabien, Asien und besonders in China und Japan. Inzwischen hat sich ihr Einfluss weltweit derart unkontrollierbar verbreitet und stark gesteigert, dass in aller Welt auch ihre Brutalität, die Erbarmungslosigkeit und Gewissenlosigkeit, das Morden und Töten sowie die Skrupellosigkeit und die bösartig ausgeartete Gewalt gewachsen sind
+und immer mehr überhandnehmen, wodurch die Erdenmenschheit immer mehr und unaufhaltsamer tyrannisiert wird. Solche todgefährliche Verbrecherorganisationen existierten zwar schon seit alters her und treten auch
+immer wieder neu in Erscheinung, doch seit Beginn der Neuzeit im Jahr 1844 sind sie immer häufiger und
+schlimmer geworden, und zwar auch in bezug auf die Folter-, Mord-, Tötungs- und Gewalttechniken, wobei
+seither dazu auch die neuen Techniken aller Art genutzt werden. Teils weisen diese Verbrecherorganisationen
+
+
+-----
+
+weltumfassende Netzwerke auf und terrorisieren nicht mehr nur einzelne Länder, sondern alle irdischen Staaten,
+ohne dass ihnen infolge ihrer Verzweigungen noch ernsthaft entgegengetreten werden kann, wie z.B. die religiössektiererisch-politischen Terrornetzwerke ‹Al-Qaida› und der ‹Islamistische Staat›, die beide als weltweite Form
+‹Transnationaler Terrorismus› grosse Teile der Welt als Ziele im Visier haben und mit böser Folter, Gewalt sowie
+Mord, Totschlag und Zerstörung die Änderung der internationalen Wirtschafts- oder Herrschaftsordnung herbeizwingen wollen. Und das bleibt auch so in Zukunft, auch wenn der IS im Irak und in Syrien besiegt und zerschlagen wurde, denn der menschheitsverbrecherische ‹Islamistische Staat› IS und Al-Qaida haben sich in der
+ganzen Welt derart verbreitet, etabliert und in viele verschiedene Gruppierungen aufgeteilt, dass nicht einmal
+mehr eine klare Übersicht über sie besteht und auch nicht mehr klar ist, welchen Ur-Terroristenorganisationen
+sie zugeordnet werden können. Eines ist jedoch sicher, nämlich, dass hinter diesem Terrorismus ein religiössektiererischer Wahn und Fanatismus steckt, der das Blut und den Tod von unschuldigen Menschen fordert, weil
+sie anderen religiösen Glaubens sind oder anderen Gesellschaftsschichten oder anderen Völkern angehören.
+Danebst gibt es aber noch eine ganze Reihe anderer Formen von Terrorismus, wie z.B. ‹Nationaler Terrorismus›,
+der sich in Zielsetzung und im Aktionsradius auf das Territorium eines Staates beschränkt, wie das z.B. in bezug
+auf die maoistischen Bewegungen in Nepal, Bhutan, Bangladesch, Indonesien und auf den Philippinen der Fall
+ist und auch bei der RAF in der Bundesrepublik Deutschland der Fall war. Dann ist auch der ‹Internationale
+Terrorismus› zu nennen, der zwar staatsinterne Ziele hat, dessen Aktionsradius jedoch weit über die Landesgrenzen hinausgeht, wobei auch unbeteiligte Drittpersonen zu Opfern werden, wie das z.B. bei der philippinischen Abu Sayyaf–Terrororganisation der Fall ist. Doch in bezug auf den Terrorismus gibt es noch andere Formen,
+wie z.B. ‹Sozialrevolutionärer Terrorismus›, ‹Rechtsterrorismus›, ‹Ethnischer Terrorismus›, ‹Nationalistischer
+Terrorismus›, ‹Hausgemachter Terrorismus› resp. ‹Heimgewachsener Terrorismus›, ‹Konservativer vigilantistischer
+Terrorismus› (vigilant = wachsam, klug, behend, findig, pfiffig), ‹Rechtsgefühl-Terrorismus› (= aufgrund verletzten Rechtsgefühls), ‹Staatsterrorismus› und ‹Ökoterrorismus›, wobei noch eine Reihe weiterer Terrorismusformen existieren, die aufzuzählen aber zuviel wären. Aber zu nennen wären doch noch die Gangs und Ver brecherorganisationen, die weltweit bekannt sind, wie die Mafia in Italien und in den USA usw., Yakuza in Japan,
+Hells Angels, die Triaden in China, die Mara Salvatrucha (MS-13), Aryan Brotherhood in den USA, Mexican
+Mafia, Black Guerilla Family resp. Black Family resp. Black Vanguard in den USA, Crips in den USA bis Kanada
+und letztlich noch die Blood Alliance resp. Bloods in den USA, nebst vielen anderen.
+
+**Ptaah      Das ganze Diesbezügliche ist wirklich sehr schlimm.**
+
+### Alarmierende Forschungsergebnisse: WLAN beeinflusst Gehirnströme massiv
+_aikos2309; Pravda-TV; Di, 14 Nov 2017 15:51 UTC_
+Am 28.10.2017 lief in RTL-Explosiv Weekend der Bericht ‹Kopfschmerzen im Auto woher kommt das?› über einen
+wissenschaftlichen Versuch, bei dem die Strahlenbelastungen auf das Gehirn im Automobil gemessen wurden.
+RTL bezeichnet die Ergebnisse als alarmierend. Tatsächlich, nach dem Einschalten der Autoelektrik, insbesondere
+von WLAN, verändern sich die Gehirnströme.
+
+#### Aussagen aus dem Film
+Kommentar: «Ein starker Effekt in den Gehirnwellen (völlige Verzerrung) nach Einschaltung des WLAN zusätzlich
+zur Autoelektronik (Motor, Klimaanlage) wird sichtbar … (Min 3,10).»
+Prof. Schöllhorn, Uni Mainz (ab Min 3,40): «Die Auto-Elektronik wirkt sich auf das Gehirn aus. Dort werden
+Frequenzen ausgelöst, die normalerweise nur unter Stress auftreten würden und bei hoher Aktivierung. Der hohe
+Stress führt über das Gehirn mit hoher Wahrscheinlichkeit zu einer höheren Spannung in der Muskulatur. Auch
+dort kann man dies nachweisen. Das kann Auswirkungen bis zu Krämpfen haben. Wir wissen aber auch, dass das
+Gehirn Auswirkungen auf das Herz hat. Ich würde sagen, dass die Werte in einem Bereich liegen, in dem es auch
+für die WHO von Interesse wird.»
+
+
+-----
+
+#### Die Wissenschaftler bestätigen, was die Forschung seit langem nachweist: WLAN führt zu Konzentrationsstörungen, Erschöpfung und Burn-Out. WLAN ist zelltoxisch. Die neuen Autos sind verstrahlte, gehirnschädigende faradaysche Käfige.
+Und zu solchen verstrahlten Zonen sollen jetzt durch den Beschluss der Kultusministerkonferenz auch noch die
+Klassenzimmer gemacht werden (WLAN erhöht Körpertemperatur und Blutzuckerspiegel – Was Du über Dein
+Smartphone wissen solltest [Video]).
+
+#### Die Studienlage ist klar: Kein WLAN an Schulen und in Autos!
+Die realen Strahlenbelastungen durch WLAN, die aus Studien vorliegen, sind nach der IMST-Studie bei einem
+Access Point 1009 µWatt/m² (1,5 Meter Entfernung), 566 µWatt/m² (3,5 m Entfernung), am Endgerät Laptop ist
+die Belastung 27161 µWatt/m² (0,5 m Entfernung), 2650 µWatt/m² (1,0 m Entfernung).
+Die Messreihe des ECOLOG-Institutes ergab für den WLAN Access Point 149204 µWatt/m² (0,2 m Entfernung,
+Peak), 12838 µWatt/m² (1 m Entfernung, Peak), für einen WLAN-Client 205411 µWatt/m² (0,2 m Entfernung,
+Peak), 8216 µWatt/m² (1 m Entfernung, Peak).
+Durch die körpernahe Nutzung der Endgeräte im Fahrzeug und in der Schule und die dauerfunkenden Apps ist
+dies eine hohe Dauerbelastung, vor allem wenn im Klassenzimmer 15–30 Schüler online sind.
+Setzt man diese Werte in Relation zu den Grenzwert-Empfehlungen des BUND (Bund für Umwelt und Naturschutz
+Deutschland) von 1 µWatt/m² bei Dauerbelastung und 100 µWatt/m² als einklagbarer Schutzstandard und dem
+im ‹Leitfaden Senderbau› (Österreich) u.a. von der Österreichischen Ärztekammer und Wirtschaftskammer empfohlenen Kompromiss eines Höchstwertes von 1000 µWatt/m² (für die Summe aller Quellen und Sendeanlagen),
+so wird deutlich, dass die übliche Rede vom ‹schwachen› WLAN eine Verharmlosung ist. WLAN-Studien und Reviews
+werden von der Politik ignoriert.
+
+‹diagnose:funk› hat bereits vor drei Jahren eine Studienrecherche mit 52 Studien zu WLAN (siehe unten – weitere
+Publikationen), die gesundheitsschädliche Effekte zeigen, veröffentlicht:
+– Im Springer Reference – Book Systems Biology of Free Radicals and Antioxidants wird in dem Review "Effects of Cellular Phone- and Wi-Fi-Induced Electromagnetic Radiation on Oxidative Stress and Molecular
+Pathways in Brain" (Naziroglu/Akman, 2014) darauf hingewiesen, dass gerade auch schwache WLAN-Strah**lung gesundheitsschädlich ist.**
+– Die Studie in den Scientific Reports zur Rolle der Polarisation, herausgegeben von der Nature-Gruppe, weist
+zudem nach, dass die WLAN-Frequenz bei einer ‹niedrigen› Strahlungsbelastung von 8000 µWatt/m² bereits
+nach 4,8 Minuten Einwirkung **zu irregulären Reaktionen an der Zellmembran führen kann, verursacht**
+durch die Polarisation der Strahlung.
+– Der deutsche Fachinformationsdienst Strahlentelex/Elektrosmogreport schreibt zu WLAN:
+«Die nicht-thermische Strahlung kann bei lang anhaltender Einwirkung **zu Beeinträchtigungen in der**
+**Entwicklung des Gehirns, DNA-Brüchen und anderen schädlichen Veränderungen führen, das haben Tier-**
+versuche ergeben. Beim Menschen wurden durch Mobilfunkstrahlung Kopfschmerzen, Schlafstörungen,
+Hautveränderungen und andere Symptome beobachtet und Krebserkrankungen können nicht ausgeschlossen
+werden.» (5/2013)
+– Bereits 2014 warnte der Stuttgarter Ärztearbeitskreis Digitale Medien in einem ausführlichen Brief an den
+damaligen Kultusminister Stoch vor der Einführung von WLAN an Schulen. 133 Wissenschaftler und Ärzte
+aus 26 Ländern haben 2017 einen Appell gegen WLAN an Schulen unterzeichnet.
+– Insbesondere die vielen vorhandenen Studienergebnisse zur WLAN-Frequenz 2450 MHz, die im Tierversuch
+Störungen im Verhalten, der Kognition, der Aufmerksamkeit und eine verminderte Lernfähigkeit nachweisen,
+sind für die Schule und das Autofahren besonders relevant. Detaillierte Besprechungen dieser Studien können
+auf der Homepage von ‹diagnose:funk› heruntergeladen werden.
+
+Uneingeschränkt muss man angesichts der Studienlage der Empfehlung des deutschen Umweltbundesamtes zustimmen: «WLAN-Access-Points, WLAN-Router und Basisstationen von Schnurlostelefonen kommen am besten
+in den Flur oder einen anderen Raum, in dem man sich nicht dauernd aufhält. Schlaf- und Kinderzimmer sind
+dagegen nicht geeignet. WLAN-Router lassen sich abschalten, wenn man sie nicht benutzt. Besonders nachts ist
+das empfehlenswert.»
+
+
+-----
+
+#### Die Telekom warnt vor ihren eigenen WLAN-Routern!
+Diese Warnung steht jetzt auch in der Bedienungsanleitung der neuen Telekom-Router: «Funksignale: Die integrierten Antennen Ihres Speedport senden und empfangen Funksignale bspw. für die Bereitstellung Ihres WLAN.
+Vermeiden Sie das Aufstellen Ihres Speedport in unmittelbarer Nähe zu Schlaf-, Kinder- und Aufenthaltsräumen,
+um die Belastung durch elektromagnetische Felder so gering wie möglich zu halten».
+Diese Warnungen kann man auf KiTas, Klassenzimmer und Autos übertragen, dort werden die Menschen einem
+Strahlengewitter ausgesetzt sein, das die Lernfähigkeit beeinflusst und die Konzentration beim Autofahren
+massiv einschränkt.
+Der RTL-Bericht liefert den anschaulichen Beweis für diese Risiken. Wer haftet für die Folgen?
+
+#### Die Konsequenzen:
+– Beim Auto fordert ‹diagnose:funk› vom Gesetzgeber eine Aufklärung über die Strahlenbelastung im Fahrzeug inneren und eine Stellungnahme zu den Ergebnissen der Mainzer Studien.
+– Helfen Sie mit, WLAN an Schulen zu verhindern. Geben Sie diese Informationen an Eltern, Lehrer und
+Rektoren weiter. Schlagen Sie vor, dass die Schule sich mit der Alternative der VLC-Technologie befasst.
+Fordern Sie statt WLAN die Verkabelung der digitalen Geräte im Unterricht.
+_Quelle: https://de.sott.net/article/31647-Alarmierende-Forschungsergebnisse-WLAN-beeinflusst-Gehirnstrome-massiv_
+
+_19:43 14.11.2017 (aktualisiert 19:57 14.11.2017)_
+**Mehr als 15000 Wissenschaftler aus 184 Ländern haben einen offenen Brief unterschrieben, in dem die grössten**
+**Gefahren für das Leben auf der Erde aufgezählt werden. Der Aufruf wurde auf der Seite des Online-Wissen-**
+**schaftsjournals ‹BioScience› veröffentlicht.**
+Laut dem veröffentlichten Warnbrief steht die Menschheit kurz vor einer ökologischen Katastrophe, die das
+Leben auf der Erde unmöglich machen könnte. Darunter werden die katastrophale Veränderung des Klimas,
+die Entwaldung, das massenhafte Artensterben, ‹Todeszonen› im Ozean und der Verlust des Zugangs zu Süss wasser aufgezählt.
+Die Wissenschaftler heben hervor, dass der Ressourcenverbrauch innerhalb des letzten Vierteljahrhunderts rapide
+angewachsen sei. Das liege am sprunghaften Anstieg der Weltbevölkerung um zwei Milliarden Menschen in nur
+25 Jahren.
+Die Wissenschaftler sind sich sicher, dass die katastrophale Verschlechterung der Ökologie zu ‹gewaltigem
+menschlichem Leid› führen werde. Unter anderem heben die Experten hervor, dass die Menge an Süsswasser
+pro Person im globalen Vergleich innerhalb der letzten 25 Jahre um 26 Prozent abgenommen habe, während
+die Ausdehnung der ‹Todeszonen› im Ozean – also Gebiete, wo wegen Verschmutzung oder Sauerstoffmangels
+kaum mehr Leben möglich ist – um 75 Prozent zugenommen habe.
+Im gleichen Zeitraum wurden über 121 Millionen Hektar Waldfläche abgeholzt, während sich die Gesamtzahl
+der Säugetiere, Reptilien, Amphibien, Vögel und Fische in der Welt um 29 Prozent reduziert hat. Zuvor hatte
+bereits der britische Astrophysiker Stephen Hawking geäussert, dass die Menschheit den Planeten innerhalb der
+nächsten 600 Jahre verlassen müsse, wenn sie überleben wolle.
+Der erste solche Aufruf wurde bereits 1992 veröffentlicht. Damals unterschrieben ihn mehr als 1700 Wissenschaftler, darunter Nobelpreisträger.
+
+
+-----
+
+Zum 25-jährigen Jubiläum wurde entschieden, eine erneute dringende ‹Warnung an die Menschheit› herauszugeben.
+_Quelle: https://de.sputniknews.com/wissen/20171114318297006-erde-kollaps-wissenschaftler-brandbrief-menschheit/_
+
+### Krise ist nur für die Anderen: Wie die globale Geldelite ihren Reichtum weiter ausbaut
+_15.11.2017 • 06:45 Uhr; https://de.rt.com/1ar5_
+
+_Quelle: Reuters_
+_Laut dem Bericht ist der Anteil am weltweiten Vermögen der Oberen ein Prozent seit der Finanzkrise 2008 kontinuierlich_
+_gewachsen und hat 2013 das Niveau von 2000 überschritten – und danach jedes Jahr neue Höchststände erreicht._
+
+#### Das reichste 1 Prozent der Welt hat so viel Vermögen wie die unteren 50 Prozent. Mit den unteren 50 Prozent sind 3,8 Milliarden Menschen gemeint. Zu diesem Ergebnis kommt ein neuer Bericht der Schweizer Bank Credit Suisse, die selbst ein Globalplayer im System der Vermögensmehrung ist.
+Die reichsten Menschen der Welt haben ihren Anteil am Gesamtvermögen der Welt von 42,5% während des
+Höhepunkts der Finanzkrise 2008 auf 50,1% im Jahr 2017 gesteigert. In totalen Zahlen entspricht ihr Vermögen
+140 Billionen US-Dollar. Zu diesem Ergebnis komm ein am Dienstag veröffentlichter globaler Vermögens bericht des Finanzdienstleisters Credit Suisse.
+Laut dem Bericht ist der Anteil am weltweiten Vermögen der Top-1-Prozent seit der Finanzkrise 2008 kontinuierlich gewachsen, hat 2013 das Niveau von 2000 überschritten – und danach jedes Jahr neue Höchststände
+erreicht. Credit Suisse sagte, dass die globale Ungleichheit der Vermögensbilanz in der Zeit nach der Krise
+zweifellos sehr hoch ist und weiter gestiegen sei. Die Zunahme des Vermögens unter den ohnehin schon sehr
+Vermögenden führte im vergangenen Jahr zu 2,3 Millionen neuen Millionären, deren Vermögen sich zusammen
+auf 36 Milliarden beläuft. Die Zahl der Millionäre, die 2008 sank, hat sich nach der Finanzkrise schnell erholt
+und ist nun fast dreimal so hoch wie im Jahr 2000, so der Bericht der Credit Suisse.
+Diese Millionäre, die weniger als 0,5 Prozent der Weltbevölkerung ausmachen, kontrollieren 46 Prozent des
+globalen Gesamtvermögens, das jetzt bei 280 Billionen US-Dollar liegt. Am anderen Ende des Spektrums haben
+die 3,5 Milliarden ärmsten Menschen der Welt jeweils ein Vermögen von weniger als 10000 Dollar. Insgesamt
+besitzen diese Menschen, die 70 Prozent der Weltbevölkerung im erwerbsfähigen Alter ausmachen, nur 2,7%
+des globalen Wohlstands.
+Im Bericht heisst es, dass die Armen vor allem in Entwicklungsländern anzutreffen sind, wobei mehr als 90%
+in Indien und Afrika weniger als 10000 US-Dollar haben.
+In einigen Ländern mit niedrigem Einkommen in Afrika liegt der Prozentsatz der Bevölkerung in dieser Gruppe
+bei nahezu 100%, heisst es im Bericht. Und weiter: «Für viele Bewohner von einkommensschwachen Ländern
+ist die lebenslange Mitgliedschaft in der Unterschicht eher die Norm als die Ausnahme.»
+Die 36 Millionen Menschen mit einem Vermögen von mindestens einer Million US-Dollar sind zusammen genommen 128,7 Milliarden US-Dollar wert. Mehr als zwei Fünftel der Millionäre der Welt leben in den USA,
+gefolgt von Japan mit 7% und Grossbritannien mit 6%.
+Während die Weltbevölkerung der Millionäre beträchtlich gewachsen ist, ist die Zahl der sogenannten ‹Ultra
+High Net Worth Individuals› (UHNWIs), also jene mit einem Nettovermögen von 50 Millionen US-Dollar oder
+mehr, noch schneller gestiegen. Die Zahl der Millionäre hat sich seit dem Jahr 2000 um 170% erhöht, während
+sich die Zahl der UHNWIs verfünffacht hat, was sie laut dem Bericht zur bei weitem am schnellsten wachsenden
+Gruppe von Vermögensinhabern macht.
+
+
+-----
+
+Die meisten der neuen UHNWIs stammen aus den USA, aber 22 Prozent auch aus Schwellenländern, insbesondere China. Die grössten Verlierer, so heisst es in dem Bericht, sind dabei junge Menschen. Sie sollten nicht
+erwarten, dass sie so reich werden wie ihre Eltern. «Diejenigen mit niedrigem Vermögen sind in der Regel überproportional unter den jüngeren Altersgruppen zu finden, die kaum eine Chance hatten, Vermögen anzuhäufen»,
+sagte Urs Rohner, Präsident des Verwaltungsrats der Credit Suisse. «Aber wir finden, dass die ‹Millennials›
+besonders schwierigen Umständen gegenüberstehen.»
+Als ‹Millennials› oder auch ‹Generation Y› werden diejenigen bezeichnet, die im Zeitraum von etwa 1980 bis
+2000 geboren wurden. Rohner, der ein Jahresgehalt von vier Millionen Schweizer Franken (ungefähr 3,44 Millionen Euro) bekommt, sagte, dass die ‹Millennials› eine Reihe von Rückschlägen einschliesslich hohe Arbeitslosigkeit, strengere Hypothekenregeln, erhöhte Einkommensungleichheit und verringerte Pensionen einstecken
+mussten. Da die Babyboomer die meisten Spitzenjobs und einen Grossteil der Wohnungen besetzen, kommen
+die ‹Millennials› weniger gut weg als ihre Eltern im selben Alter, vor allem in bezug auf Einkommen, Wohn eigentum und andere Dimensionen des Wohlbefindens, die in diesem Bericht beurteilt werden.
+Er sagte zudem, dass die ‹Millennials› viel gebildeter seien als ihre Eltern. Aber er fügte hinzu: «Wir erwarten,
+dass nur eine Minderheit von Leistungsträgern und solche, die in stark nachgefragten Sektoren wie Technologie
+oder Finanzen tätig sind, die ‹Millennial-Benachteiligung› tatsächlich überwinden.»
+Wer nun denkt, dass sich bei der Schweizer Bank plötzlich Sorge um den Zusammenhalt der Gesellschaft oder
+ein soziales Gewissen eingeschlichen hat, irrt allerdings. Auch die Credit Suisse trug und trägt mit ihrer
+Geschäftspolitik dazu bei, dass die sozialen Ungleichgewichte wachsen. So rückte die Bank 2010 in Deutschland
+in den Fokus von Ermittlungen der deutschen Strafverfolgungsbehörden im Zusammenhang mit dem Kauf
+einer Steuer-CD mit Datensätzen von mutmasslichen Steuersündern durch das Land Nordrhein-Westfalen. Der
+Vorwurf an die Credit Suisse: Beihilfe von Mitarbeitern zur Steuerhinterziehung.
+Im September 2011 einigte sich die Bank mit der Staatsanwaltschaft Düsseldorf. Gegen eine Zahlung von 150
+Millionen Euro stellte die Staatsanwaltschaft die Ermittlungen gegen die Mitarbeiter der Bank ein. Entsprechende
+Anträge zur Einstellung des Verfahrens reichte die Staatsanwaltschaft beim Landgericht Düsseldorf ein.
+In diesem Zusammenhang wurde auch eine interne PowerPoint-Präsentation des Finanzdienstleistungsunternehmens bekannt, aus der hervorgeht, dass die Credit Suisse selbst davon ausgeht, dass mehr als 80 Prozent
+ihrer deutschen Kunden offenbar unversteuertes Geld angelegt haben. Am 20. Mai 2014 bekannte sich die Credit
+Suisse zudem gegenüber den USA der Beihilfe zur Steuerflucht amerikanischer Bürger schuldig. In einer ausser gerichtlichen Lösung wurde von Seiten der Bank dafür eine Strafe von insgesamt 2,815 Milliarden Dollar bezahlt –
+davon zwei Milliarden an das US-Justizministerium.
+Erst diese Woche einigte sich die Credit Suisse mit der Regulierungsbehörde DFS (Department of Financial
+Services New York State) auf die Zahlung einer Geldbusse. Wie die Bank am Montagabend mitteilt, wurde ein
+Vergleich zur Beilegung der Untersuchung in die Praktiken im Währungshandel geschlossen. Die Bank zahlt
+rund 135 Millionen Dollar vor Steuern, die im vierten Quartal verbucht werden.
+Das DFS hatte der Bank vorgeworfen, Kunden getäuscht, in ungebührender Weise Informationen ausgetauscht
+und Kurse manipuliert zu haben. Der Vergleich bezieht sich auf eine Untersuchung des DFS mit dem Vorwurf,
+dass die Praktiken der Bank ‹ungesetzlich, unsicher und unsolide› waren, wie es zuvor in Medienberichten
+hiess.
+Der Vergleich mit dem DFS regle alle Vorwürfe gegen die Bank und beziehe sich auf die Währungsgeschäfte per
+Telefon und elektronische Aufträge zwischen 2008 und 2015, wie die Credit Suisse schreibt. Die Bank erkenne
+dabei keine der gemachten Tatsachenfeststellungen oder betrügerischen Verstösse an. Man sei froh, die Über einkunft getroffen und damit diese Angelegenheit zum Abschluss gebracht zu haben.
+_Quelle: https://deutsch.rt.com/wirtschaft/60593-krise-ist-immer-fuer-die-anderen-wie-die-globale-geldelite-ihren-reichtum-_
+_weiter-ausbaut/_
+
+### EU beschliesst staatliche Internetsperren ohne Gerichtsbeschluss Die Zensur-Infrastruktur steht. Und wird weiter ausgebaut.
+_Freitag, 17. November 2017, 18:00 Uhr; von Jens Bernert_
+Es ist leider kein Witz. Offenbar reicht die bisherige Manipulation, Zensur und juristische Verfolgung von
+Propagandakritikern noch nicht aus. Der Staat soll nach dem Willen des EU-Parlamentes Websites sperren
+können, wie es ihm beliebt – natürlich alles aus ‹Verbraucherschutzgründen›. Eine entsprechende Verordnung
+
+
+-----
+
+wurde bereits erlassen und wird nun umgesetzt werden. Es wäre ja auch zu blöd, wenn der Verbraucher von den
+Lügen der Herrschenden erfährt. Diesen Blog hier wird es dann wohl nicht mehr lange geben.
+_«Am Dienstag hat das EU-Parlament – von der Öffentlichkeit weitgehend unbemerkt – eine neue Verordnung über_
+_die Zusammenarbeit im Verbraucherschutz abgesegnet, die einigen Sprengstoff enthält. Mit dem Inkrafttreten dieser_
+_Verordnung würden staatliche Verbraucherschutzbehörden die Möglichkeit erhalten, Website-Sperren auch ohne die_
+_Zustimmung eines Richters zu veranlassen. Die Piraten im EU-Parlament befürchten den Missbrauch der neuen_
+_Regelung für Zensurzwecke», berichtet t3n._
+Vergleiche dazu auch diesen Artikel der Piraten-Politikerin Julia Reda, die gegen diese Zensurmassnahme, die
+letztlich das Aus für regierungskritische Seiten im Internet bedeuten wird, kämpft: ‹New EU law prescribes website blocking in the name of consumer protection›.
+Über einen angeblichen Verbraucherschutz wird hier ein Werkzeug geschaffen, alles zu zensieren, was man
+möchte. Bereits in anderen Bereichen hat man in der Vergangenheit gesehen, dass erst die entsprechenden Werkzeuge anhand eines populären beziehungsweise der Bevölkerung einigermassen zu vermittelnden Szenarios
+geschaffen wurden und diese dann, als sie eingeführt wurden, praktisch umgehend in der Form missbraucht
+wurden, wie Kritiker es schon zuvor angemerkt hatten.
+Die Sperrmöglichkeit für Websites zum Verbraucherschutz wird dann mit ziemlicher Sicherheit so ausgelegt
+werden, dass alles, was nicht zur amtlichen ‹Meinung› passt und damit quasi automatisch als ‹russische Propaganda› oder ‹Verschwörungstheorie› etc. gilt, gesperrt wird. Es wird kommen.
+Offenbar reicht nicht einmal mehr die nahezu absolute Medienkontrolle durch die Machteliten aus, um un bequeme Wahrheiten unter der Decke zu halten. So werden die von den Machteliten erkannten ‹Fake News›
+(unbequeme Wahrheiten und wissenschaftliche Erkenntnisse, abweichende Meinungen) nun aus ‹Verbraucherschutzgründen› weggesperrt werden.
+Unabhängig von der Berichterstattung zu der neuen Verordnung berichtet die WSWS heute von der Errichtung
+einer ‹Fake-News-Behörde› der EU. Gleichwohl passt diese Behörde zur neuen Verordnung wie die Faust aufs
+Auge. Wie praktisch: Fake-News-Behörde liefert Angaben, staatliche Behörde sperrt dank neuer EU-Verordnung,
+denn der Verbraucher muss ja vor den bösen Fake News geschützt werden. Und diese Fake News sind nicht oder
+nicht nur Falschmeldungen, sondern auch und vor allem das, was in den Augen der Regierenden falsch ist
+beziehungsweise nicht der offiziellen Propaganda entspricht (weil es beispielsweise die unter den Tisch gekehrte
+Wahrheit ist).
+WSWS schreibt: _«Die Europäische Union (EU) bereitet die Einrichtung einer Behörde zur Überwachung und_
+_Zensur so genannter ‹Fake News› vor. Um zu entscheiden, welche Vollmachten diese Behörde haben soll, beruft die_
+_EU eine hochrangige Expertengruppe ein, die Medienexperten und die Öffentlichkeit auffordert, Kritik an ‹Fake_
+_News› vorzubringen. Die Behörde soll im nächsten Frühjahr ihre Arbeit aufnehmen. Ein genauerer Blick auf die_
+_Ankündigung der EU zeigt, dass sie sich die massenhafte staatliche Zensur, die derzeit vorbereitet wird, nicht etwa_
+_gegen Falschinformationen, sondern gegen Nachrichten und politische Ansichten richtet, die die Opposition der_
+_Bevölkerung gegen die europäische herrschende Klasse zum Ausdruck bringen.»_
+
+**_Jens Bernert, Jahrgang 1974, ist studierter Geograph und Politikwissenschaftler mit Ab-_**
+_schluss der Universität Mannheim und arbeitet seit zehn Jahren als Software-Entwickler_
+_im Java-Umfeld. In seiner Freizeit bloggt er unter anderem in seinem Weblog ‹Blauer Bote_
+_Magazin› meist zu aktuellen politischen und zeitgeschichtlichen Themen. Ausserdem macht_
+_er als DJ Underpop – in leider immer grösseren Abständen – Mannheim und Heidelberg_
+_unsicher._
+_Quelle. https://www.rubikon.news/artikel/eu-beschliesst-staatliche-internetsperren-ohne-gerichtsbeschluss_
+
+### Elf Zitate – Wie Putin die Welt sieht: «USA sind eine grosse Nation, nun lassen Sie uns aber in Ruhe!»
+_24.11.2017 • 10:33 Uhr; https://de.rt.com/1b65_
+**Westliche Eliten stehen dem Phänomen Wladimir Putin und der Frage, warum dieser trotz Dämonisierung**
+**so viel Anerkennung im In- und Ausland findet, ratlos gegenüber. Dabei lassen Aussagen gut erkennen, worum**
+**es ihm geht, etwa um Souveränität und Realismus.**
+
+
+-----
+
+_Quelle: Sputnik_
+
+Populistisch, pragmatisch, autoritär, geschickter Taktiker – auch Jahre nach seinem Aufstieg an die Spitze der
+russischen Politik fragen sich westliche Beobachter immer noch, was eigentlich die wahren Motivationen sind,
+die das Handeln des Präsidenten der Russischen Föderation, Wladimir Putin, bestimmen. Tatsächlich steckt
+hinter den Entscheidungen des Kremls eine Reihe konsequent zum Ausdruck gebrachter Überzeugungen.
+Um einen kleinen Überblick zu liefern, hier ein Potpourri einiger sehr signifikanter Aussagen:
+
+#### Über die Vereinigten Staaten
+Die USA sind eine Grossmacht. Wahrscheinlich die einzige Supermacht, die es heute gibt. Wir akzeptieren das
+und sind bereit, mit ihnen zusammenzuarbeiten.
+Was wir nicht brauchen, ist, dass sie sich in unsere Angelegenheiten einmischen, uns sagen, wie wir unser Leben
+leben sollen, und dass sie Europa daran hindern, eine Beziehung zu uns aufzubauen.
+_(Internationales Sankt Petersburger Wirtschaftsforum, Juni 2016)_
+
+#### Über die Behauptungen bezüglich angeblicher russischer Einmischungen im Ausland
+Es gibt eine ständige US-Propaganda und direkte Finanzierung von US-NGOs. (…) Ist das keine Einmischung,
+die sich Jahr für Jahr fortsetzt? Nehmen Sie einen Globus, drehen Sie ihn und legen Sie zufällig Ihren Finger auf
+irgendeinen Punkt – ich kann Ihnen versichern, dass es dort US-amerikanische Interessen gibt und sie (die USA)
+sich dort einmischen.
+Was wollen die US-Amerikaner? Dass jeder sein Haupt in Ehrerbietung neigt? Wir haben unsere eigene Meinung
+und bringen diese offen zum Ausdruck. Und nicht durch irgendeine Form von Undercover-Sabotage.
+_(Heisser Draht mit Wladimir Putin, Juni 2017)_
+
+#### Über Europa
+Nützt es den europäischen Staaten, einfach Washingtons aussen- und sogar innenpolitische Ziele zu bedienen?
+Ich bin mir dessen nicht sicher. Ist dies der Zweck einer ernsthaften Politik? Und ist dies die Rolle, die Länder
+übernehmen, wenn sie sich selbst als Grossmächte bezeichnen wollen?
+_(Russia Calling! Investment Forum, Oktober 2016)_
+
+#### Zur Unabhängigkeitskrise Kataloniens
+Es gab Zeiten, da verfolgte die EU den Zusammenbruch einer ganzen Reihe von Staaten in Europa, ohne sich
+die Mühe zu machen, die eigene Freude darüber zu verbergen. Warum mussten sie so gedankenlos und bedingungslos – um der kurzfristigen Interessen willen und um dem ‹Grossen Bruder› in Washington zu gefallen –
+die Abspaltung des Kosovo unterstützen und ähnliche Prozesse auf dem Kontinent und darüber hinaus provozieren?
+_(Waldai-Diskussionsclub, Oktober 2017)_
+
+#### Zur NATO
+Es gibt keine Sowjetunion mehr, keinen Ostblock. Meines Erachtens braucht die NATO einen äusseren Feind,
+um ihre Existenz zu rechtfertigen, also ist sie ständig auf der Suche nach einem (neuen Feind), und nach
+Provokationen, um Gegner zu schaffen, wo es keine gibt.
+(…) Heute ist sie (die NATO) ein Instrument der US-amerikanischen Aussenpolitik. Es gibt keine Partner darin,
+nur Vasallen.
+_(Interview mit Oliver Stone, Juni 2017)_
+
+
+-----
+
+#### Zum Nahen Osten
+Man hat versucht, die Region neu zu ordnen und ihr ein externes Modell aufzuzwingen, entweder durch Regime wechsel oder durch den direkten Einsatz von Gewalt. Anstatt den Extremismus zu bekämpfen, anstatt sich
+einem solchen Kampf anzuschliessen, wollen einige unserer Kollegen, dass das Chaos zu einem permanenten
+Zustand wird.
+_(Waldai-Diskussionsclub, Oktober 2017)_
+
+#### Zu Nordkorea
+Natürlich verurteilen wir Nordkoreas Atomtests und halten uns ausnahmslos an alle Resolutionen des UNSicherheitsrates.
+Aber um dieses Problem zu lösen, müssen Sie den Dialog nutzen und nicht versuchen, Nordkorea mit militä rischen Drohungen zu überziehen oder auf Beschimpfungen und einen öffentlichen Austausch von Beleidigungen
+zurückgreifen. Ob Sie das Regime in Pjöngjang mögen oder es hassen: Sie müssen erkennen, dass die Demokratische Volksrepublik Korea ein souveräner Staat ist.
+_(Waldai-Diskussionsclub, Oktober 2017)_
+
+#### Zum Sturz von Wiktor Janukowytsch in der Ukraine
+Was in Kiew geschah, ist eine bewaffnete und verfassungswidrige Machtergreifung – ein Staatsstreich. Niemand
+bestreitet das.
+Die Frage ist: Warum musste das so gemacht werden? Wiktor Janukowytsch hatte seine Macht bereits aufgegeben
+und hatte keine Chance auf eine Wiederwahl. Warum das Land ins Chaos stürzen? Als Machtdemonstration?
+Das war eine dumme Entscheidung und hatte einen gegenteiligen Effekt. Ich glaube, es waren diese Aktionen,
+die die Situation im Osten des Landes destabilisiert haben.
+_(Medienbriefing in Nowo Ogarewo, März 2014)_
+
+#### Über die Regierung in Kiew
+Die Interessen des russischen und des ukrainischen Volkes sind die gleichen. Was nicht gleich ist, sind die Ziele
+der ukrainischen Regierung und der Eliten.
+(…) Sie haben nur noch ein Gut, das sie für den internationalen Konsum exportieren können – Russophobie
+und die Politik der Spaltung zwischen (unseren) beiden Ländern. Einige im Westen glauben, dass diese beiden
+Staaten niemals Verbündete sein sollten, und so ist es der Ukraine gelungen, diese Idee zu exportieren.
+_(G20-Gipfel in Hamburg, Juni 2017)_
+
+#### Über das politische System Russlands
+Die Monarchie war ein Vermächtnis, das vom Kaiserreich bis zur Sowjetzeit überliefert wurde, obwohl sich die
+Plakette auf dem Gebäude änderte. Erst Anfangs der 1990er Jahre kam es zu Ereignissen, die den Grundstein
+für eine neue Phase der russischen Entwicklung legten.
+Sicherlich können Sie sich vorstellen, dass wir nicht sofort das gleiche Regierungsmodell und die gleichen
+Strukturen wie in den Vereinigten Staaten, in Deutschland, in Frankreich bekommen können. Gesellschaft muss
+sich, wie jeder lebende Organismus, Schritt für Schritt organisch entwickeln. Das ist der normale Entwicklungsprozess.
+_(Interview mit Oliver Stone, Juni 2017)_
+
+#### Zu Russlands Rolle in der Welt
+Russland ist ein Land mit einer tausendjährigen Geschichte und hat fast immer das Privileg einer souveränen
+Aussenpolitik genossen.
+Wir werden dieser Tradition treu bleiben. Gleichzeitig sind wir uns bewusst, wie sich die Welt verändert hat,
+und wir haben ein realistisches Verständnis für unsere eigenen Chancen und Potenziale. Wir möchten mit verantwortungsbewussten und unabhängigen Partnern interagieren, mit denen wir zusammenarbeiten könnten,
+um eine gerechte und demokratische Weltordnung zu schaffen, die Sicherheit und Wohlstand nicht nur für
+einige wenige, sondern für alle gewährleistet.
+_(Münchener Rede, Februar 2007)_
+_Quelle: https://deutsch.rt.com/international/61133-wie-putin-welt-sieht-elf-zitate/_
+
+
+-----
+
+### Putin appelliert an die Welt: Folgt unserem Beispiel und vernichtet alle Chemiewaffen
+_Sputnik; Mo, 27 Nov 2017 15:24 UTC_
+_Der russische Präsident Wladimir Putin hat laut seinem Pressedienst alle Länder dazu aufgerufen, sich ein Beispiel_
+_an Russland zu nehmen und ihre Chemiewaffen-Bestände vollständig zu vernichten._
+
+«Wir rufen alle Staaten dazu auf, die über Chemiewaffen verfügen, unserem Beispiel zu folgen und sich Mühe
+zu geben, in kürzester Zeit alle vorrätigen Bestände vollständig zu vernichten. Länder, die sich ausserhalb des
+**völkerrechtlichen Konventionsfeldes befinden, sollen sich dem dringend anschliessen», heisst es in Putins**
+Eröffnungsrede zur 22. Sitzung der Konferenz der Vertragsstaaten der Chemiewaffenkonvention am Montag,
+die auf der Kreml-Webseite veröffentlicht wurde.
+«Ich bin davon überzeugt, dass der harte politische Wille es ermöglicht, unser gemeinsames Ziel zu erreichen –
+**die Befreiung der Welt von Chemiewaffen», fügte Russlands Präsident hinzu.**
+Der letzte chemische Sprengkopf aus dem einst weltweit grössten russischen C-Waffen-Arsenal war am 27.
+September in der Entsorgungsanlage Kisner in Udmurtien (an der Wolga) vernichtet worden. Putin beobachtete
+den Vorgang per Videozuschaltung.
+_Quelle: https://de.sott.net/article/31800-Putin-appelliert-an-die-Welt-Folgt-unserem-Beispiel-und-vernichtet-alle-Chemie-_
+_waffen_
+
+_11:45 25.11.2017 (aktualisiert 09:56 27.11.2017); Willy Wimmer; 291079526714_
+
+**Da hat zum Volkstrauertag ein russischer Schüler im Plenum des Deutschen Bundestages zum deutschen Volk**
+**gesprochen. Seine Worte sind heute Gegenstand der Interpretation. Dabei hätte der Schüler Antworten der**
+**Regierenden in Berlin und Washington verdient.**
+Antworten auf die Fragen danach, warum Deutschland seit dem mörderischen, ordinären Angriffskrieg gegen
+die Bundesrepublik Jugoslawien aus dem Jahr 1999 nicht mehr seine Verfassung achtet? Darin wird nachdrücklich
+postuliert, dass Deutschland einen Beitrag zum Frieden in der Welt zu leisten hat und sich nicht an Angriffskriegen
+beteiligt. Es war der damals verantwortliche Bundeskanzler Gerhard Schröder, der davon sprach, dass er mit dem
+deutschen Angriffsbefehl gegen Belgrad das Völkerrecht gebrochen habe. Folgen? Natürlich keine, wie die
+dauernde deutsche Beteiligung an amerikanisch gesteuerten Kriegen zwischen Afghanistan und Mali jeden Tag
+unter Beweis stellt.
+Was ist deutsche Staatsraison, wenn nicht die unbedingte Achtung der eigenen Verfassung und keinesfalls Rückfall in eine Politik, wie sie bis 1939 zu mörderischen europäischen Kriegen geführt hat.
+
+
+-----
+
+Würde der Schüler die Frage danach gestellt haben, warum heute wieder deutsche Panzer im Verbund mit den
+alten sowjetischen Verbündeten aus dem Zweiten Weltkrieg in der estnischen Stadt Narwa und damit 150 Kilometer von der leidgeprüften Stadt St. Petersburg, dem damaligen Leningrad stehen, er hätte darauf eine Antwort
+verdient. Diese Antwort müsste die vollkommene Geschichtsvergessenheit der heutigen deutschen und alliierten
+Politik gegenüber Russland und dem russischen Volk deutlich machen.
+Die deutsche Politik denkt zum Glück an Verantwortlichkeiten. Diese Verantwortung wird schal und unglaubwürdig, wenn sie nicht das grenzenlose Leid gerade für die Völker der damaligen Sowjetunion in die heutige
+Politik einbezieht, wenn es um den Zweiten Weltkrieg und die damit verbundenen Folgen geht. In wenigen Wochen
+erinnern sich die Menschen und Völker an das Ende der Schlacht von Stalingrad vor 75 Jahren. Lehren für uns
+in der Nachbarschaft zum russischen Volk? Offenbar keine, wenn man hört, was deutsche Generale beim NatoAufmarsch gegen Russland so alles öffentlich von sich geben. Oder will man überhören, wie amerikanische und
+britische Panzer auf deutschen Autobahnen an die neue Ostfront rollen?
+Wie würde die deutsche Regierungsantwort lauten, wenn der Schüler nach den Konsequenzen aus dem Jahrhundert
+der Kriege gefragt haben würde. Was führte zum Ersten Weltkrieg und was bewirkte Versailles, dessen Gedenktag
+sich ebenfalls in den kommenden Monaten nähert? War es nicht die strategische Absicht, jene Staaten, in denen
+man aus welchen Gründen auch immer Rivalen oder nützliche Instrumente gegen andere Staaten sah, entweder
+zu beseitigen oder nutzbar zu machen? Warum wurde kein Friede vereinbart, sondern alles unternommen,
+‹politischen Abschaum› in einem anderen Land nach oben zu spülen?
+Wir haben doch hinlänglich Erfahrung mit transatlantischen Volksbeglückern für westeuropäische Nationen.
+Was muss der Schüler denken, wenn er an den vorgetragenen Dauerwunsch der russischen Regierung denkt, die
+den Westeuropäern die politische Hand entgegengestreckt hat und nichts anderes will als gute Nachbarschaft?
+Will der Westen Russland so lange strangulieren, bis in Moskau jene den Kreml bevölkern, gegen die die westliche
+Öffentlichkeit nach bekanntem Muster instrumentalisiert werden kann?
+‹Christbäume› haben nicht nur alliierte Bombenangriffe gekennzeichnet. Seit Wilhelm II. wissen wir, was Propaganda aus alliierten Kanonen alles bewirken kann. Soll der Westen bei diesem Modell bleiben? Das wird sich nicht
+nur der Schüler fragen. Aber die deutsche Politik macht eine mögliche Antwort auch so klar. Wo sind die Willy
+Brandts, Hans-Dietrich Genschers und Helmut Kohls, die sich gegen den aktuellen Wahnsinn der deutschen
+Politik stemmen?
+Der russische Schüler hat von Soldaten der Wehrmacht gesprochen. Hat er nicht mehr zum Ausdruck gebracht,
+als man dazu in Deutschland fähig ist? Man muss sich am Stadtrand von Sewastopol nur den deutschen Soldatenfriedhof ansehen. Er liegt auf der paradiesischen Krim in einem Tal von fast überirdischer Schönheit. Die Gedenkstelen geben Aufschluss. Hier fanden mehr als zwanzigtausend Soldaten der Wehrmacht ihre letzte Ruhe. Aber
+nicht nur das. Sie waren kaum älter als der junge russische Schüler, der im Reichstag sprach.
+Und die deutsche Politik? Deutsche Opfer des Zweiten Weltkrieges, die derzeit wegen einer regen Bautätigkeit
+auf der Krim geborgen werden, können nicht beigesetzt werden, weil deutsche Behörden jede Zusammenarbeit
+verweigern. Wendet man sich an den Herrn Bundespräsidenten, bleibt man ohne Antwort. Was soll man von
+einem Land halten, das seine Toten in fremder Erde unbestattet lässt?
+Der Schüler könnte die Frage stellen, wie die Rote Armee an die denkt, die sich als Okkupanten über die Sowjetunion hergemacht haben. Es war 1987, als ich bei der sowjetischen Elitedivision ‹Taman› im Moskauer Umfeld
+eine Antwort erhielt. Beim ersten Truppenbesuch bei der Roten Armee wurde auch das historische Kabinett
+gezeigt. Es war eine nüchterne, auf historischen Fakten beruhende Darstellung, beginnend in der Zeit des Zweiten
+Weltkrieges.
+Kein Wort des Hasses, der Erniedrigung oder der Verächtlichmachung über den deutschen Kriegsgegner des Zweiten
+Weltkrieges. Und ein Politoberst, der von seiner Mutter sprach. Sie habe ihm auf den Weg gegeben, dass auch die
+deutschen Soldaten Söhne ihrer jeweiligen Mutter gewesen seien. Bei der Taman-Division war in der Hoch-Zeit
+des Kalten Krieges mehr Menschlichkeit zu verspüren, als deutsche Politik sie gegenüber dem russischen Volk derzeit deutlich macht.
+Der russische Schüler könnte zu Recht fragen, warum sich Deutsche gegen sein Volk wieder in Stellung bringen
+lassen? Am 21. November 1990 postulierte die berühmte ‹Charta von Paris› ein eindeutiges ‹nie wieder Krieg in
+Europa›. Bill Clinton und Madelaine Albright haben den Krieg wieder nach Europa zurückgebracht.
+Das heisst noch lange nicht, dass wir ihn führen müssen. Selbst wenn amerikanische ‹Militärbefehlshaber für
+Europa› danach rufen.
+
+_* Die Meinung des Autors muss nicht mit dem Standpunkt der Redaktion übereinstimmen._
+_Quelle: https://de.sputniknews.com/kommentare/20171125318438530-deutschland-russland-willy-wimmer-stalingrad-russi-_
+_scher-schueler-bundestag/_
+
+
+-----
+
+### Merkel – ein Festival des Selbstgenusses gegen deutsche Interessen
+_By Gaby Kraal on 26. November 2017_
+**An Merkel kommt keiner vorbei. Ihr Projekt war es, überschätzt zu werden. Das gelang, weil sie schweigend**
+**abräumte. Noch in der Wahlnacht versuchte die SPD den Salto rückwärts: Abgewählt – also raus aus der**
+**Regierung! Ein Befund, den die Kanzlerin für sich nicht gelten lassen will.**
+Niemand stellte die Vertrauensfrage. Die deutschen Wähler machten in der Merkeldämmerung einfach mehr
+Licht.
+
+#### Ein Festival des Selbstgenusses
+Auch der CDU hätte schnell klar sein können: Diese Chefin braucht keine Parteien. Sie schleift die Grenzen
+zwischen Parteien, die früher Wettbewerber waren. Sie annektiert die Kernbotschaften ihres Regierungspartners
+SPD, lässt Gesetze umschreiben und Wertversprechen verschrotten. Sie toleriert marktwirtschaftliche Querschläger wie den Mindestlohn. Setzt fast unbemerkt die Wehrpflicht aus, um sie etwas später ganz abzuschaffen,
+schaltet Atommeiler befristet an und dann schlagartig ab und kegelt dabei ein Dutzend Gesetze vom Tisch.
+2015 öffnet Merkel Europas Grenzen und inszeniert ein Festival des Selbstgenusses. Die ‹Willkommenskultur›
+wird ein Rausch der Humanitas, dem die Nachbarländer angstvoll und schadenfroh zusehen.
+
+_Angela Merkel posiert mit einem Wirtschaftsmigranten_
+
+Gesetzeswerke wie Dublin und Schengen, an denen viele EU Länder als Partner beteiligt sind, werden einfach
+geschreddert.
+
+#### Die Bundeskanzlerin «Wir müssen die Gewalt von Migranten akzeptieren»
+Die deutsche Energiewirtschaft wird verstaatlicht und nebenbei die Legende geboren, die Deutschen wollten
+immer mehr Staat. Das Gaukelspiel der Europäischen Zentralbank, die nur noch zum Gelddrucken und
+Ramschanleihenkauf da ist, sorgt für den Komfort, den Selbsttäuschungen brauchen. Unter ‹Rettungsschirmen›
+wird das verschuldete Südeuropa sozusagen kolonialisiert. EU-Delegationen reisen an und stellen klar: Das
+Vertrags verhältnis ändert sich. Aus Partnern werden Gläubiger und Schuldner. Nationale Finanzrechte wandern
+in EU-Gewalt. George Soros kommentiert lapidar: «Der Anfang der Spaltung Europas.»
+Wer wissen will, wie EU-Europa verlernt hat, an sich selbst zu glauben, wer die tiefere Wahrheit im Ausstieg der
+britischen Wähler erkennen möchte, der muss auf diese Jahre zurückschauen. Die deutsche Industrie, nicht die
+Deutschen, profitiert bis heute von der trügerischen Sonne, die Herr Draghi blankputzt, sie profitiert von Nullzinsen und lebt – im Gegensatz zu den Südeuropäern, für die er hoffnungslos überbewertet ist – mit einem
+traumgenau passenden Euro.
+
+#### Schwere Verwerfungen in der Konsenskultur
+Das System Merkel konnte gut anderthalb Jahrzehnte beobachtet werden. Es wurde ziemlich bald klar, dass die
+Regentin Parteien eigentlich nicht brauchte. Dass sie das Parlament, wo immer möglich, mit strittigen Ent scheidungen gar nicht erst befasste. Die Wahl vom 24. September zeigte schwere Verwerfungen in Deutschlands
+Konsenskultur. Die Chefetage in Berlin kümmert sich vor allem darum, die wahren Botschaften des Souveräns,
+des Wahlbürgers, unlesbar zu machen.
+Die Sozialdemokraten wollen es nun besser machen. Raus aus dem Bündnis mit der quasi parteilos regierenden
+CDU-Chefin. Nur Tage später wurde der U-Turn eingeleitet: Zurück ins alte, verlorene Spiel.
+Die Merkelopfer einer früheren Ära aber, die Freien Demokraten, haben ihre Atempause nach der Abwahl 2013
+brillant verarbeitet. Sie waren dabei, als die ‹Jamaika-Sondierung› mit den schwerversehrten Schwestern CDU
+und CSU sowie den Grünen eröffnet wurde. Der politische Ramschladen wollte Jamaika heissen, weil ‹SchwarzGelb-Grün› einfach keine Aura lieferte. Es kam die Stunde der Wahrheit, mit der in der Merkelrepublik niemand
+
+
+-----
+
+rechnete: Die Parteien beherrschen den politischen Disput nicht mehr. Sie haben es verlernt, sich als Wett bewerber zu fühlen, die um beste Lösungen kämpfen, statt nur um faule Kompromisse.
+Die Jamaika-Community – diese Diagnose ist bis heute im Lande mit einem Tabu belegt – ist vom Virus der
+merkelschen Politik befallen. Die Verhandelnden schafften beides nicht mehr: Weder Debatte noch Einigung.
+Nur der Frischeste unter den Teilnehmern, soeben erst aus der ausserparlamentarischen Wildnis zurückgekehrt –
+Christian Lindner von der FDP –, bemerkte das dramatische Defizit, das Fehlen jeder Vision für Deutschland.
+«Es ist besser, nicht zu regieren, als falsch zu regieren» lautete das Fazit des FDP-Chefs. Jamaika war damit
+geplatzt.
+
+#### Deutschland will lieber an der eigenen Fassade arbeiten
+**Aber Deutschland will seine Lektion nicht lernen. Es will lieber an der eigenen Fassade arbeiten, die ‹Germany›**
+**draussen so gross erscheinen lässt.**
+Unter Merkel wurde schlecht umgegangen mit dem demokratischen Parteienstaat. Denn der gehört eigentlich
+den Bürgern – wie auch Europa den Bürgern gehören sollte. Deutschlands Wirtschaftsboom kann nicht liefern,
+was die Bürger der Europäischen Union zu Vertrauenspartnern machen könnte: Versprechen halten, Schutz
+gewähren, Freiheit verteidigen. So etwas gelingt den Mächtigen nur mit Demut.
+Die politische Führung nimmt hin, dass sie international überschätzt wird. Im Hinblick auf ihre Werte ist sie
+ein Scheinriese. Reden ersetzt nicht Handeln. Zu den Toten auf den Fluchtwegen und bei Terroranschlägen in
+Deutschland zählen auch die Opfer einer illusionären Politik. Doch dieses Land hat das Trauern verlernt.
+_Ein Kommentar von Gertrud Höhler. Sie ist Unternehmensberaterin und Autorin des Buches ‹Die Patin. Wie Angela Merkel_
+_Deutschland umbaut›. Soeben von ihr auf Amazon erschienen: ‹Demokratie im Sinkflug: Wie sich Angela Merkel und EU-_
+_Politiker über geltendes Recht stellen›_
+_Quelle: https://schluesselkindblog.com/2017/11/26/merkel-ein-festival-des-selbstgenusses-gegen-deutsche-inter_
+
+### Vom Wahnsinn befallen: Bundesregierung will IS-Kinder nach Deutschland holen
+_26. November 2017; Michael Mannheimer_
+
+#### Jetzt dürfen die deutschen Kinder des IS-Dschihads heim ins gelobte Land
+Wie Georg Mascolo in der ‹Süddeutschen Zeitung› vom 22.11.2017 berichtet, will die Bundesregierung die
+Kinder von deutschen Kämpfern und Anhängern des sogenannten Islamischen Staates zurück nach Deutschland holen.
+
+– Derzeit sitzen mindestens ein halbes Dutzend deutsche Minderjährige in Haftanstalten und Verhörzentren
+im Irak. Die meisten von ihnen sind Klein- und Kleinstkinder.
+– Das Auswärtige Amt begründet die Entscheidung mit humanitären Erwägungen und der Schutzpflicht für
+die eigenen Staatsbürger.
+
+Man darf sicher sein, dass sich unter diesen Kindern und Jugendlichen auch welche befinden, die bereits schon
+mehrfach gemordet und Köpfe ‹Ungläubiger› abgeschnitten haben. Denn genau dies ist die Prüfung, der sich
+aus westlichen Ländern einreisende IS-Anhänger als erste unterziehen müssen, um ihre wahre islamische (Anm.
+islamistische) Gesinnung zu prüfen. Schaffen sie es nicht oder weigern sie sich, dies zu tun, dann wird ihnen
+selbst der Kopf abgeschnitten.
+
+
+-----
+
+#### Die deutsche Regierung importiert längst den im Nahen Osten geschlagenen IS nach Deutschland
+Daher werden wir in Deutschland durch solche Massnahmen – die staatsrechtlich durchaus begründet sind
+(Fürsorgepflicht gegenüber eigenen Staatsbürgern) – geschulte Killer-Kinder importieren. Nicht jedes der nun
+zu uns kommenden Kinder muss getötet haben, aber die meisten haben das vermutlich getan. Sie sind ideologisch
+radikalisiert, sind geübt im Töten – und werden, dessen dürfen wir im Land der Irren gewiss sein, bald wieder
+in die Freiheit entlassen.
+Als Bio-Deutsche sind sie das ideale Ziel für IS-Strategen, was die Auswahl zukünftiger Terroristen anbetrifft.
+Sie fallen nicht auf – und können in aller Ruhe später Terrorakte in Deutschland verüben.
+
+#### Auch Lehrer berichten von immer mehr islamistisch-radikalisierten Grundschulkindern von bereits radikalisierten Eltern:
+Bei der Radikalisierungs-Hotline des Bundesamtes für Migration und Flüchtlinge melden sich vermehrt Lehrer
+und Schulpsychologen, denen Grundschulkinder mit islamistischen Tendenzen auffallen! «Die meisten Kinder
+haben ihre Sozialisation aus einem salafistischen Umfeld – sprich: Die Eltern selbst sind bereits radikalisiert.»
+… Solche Fälle gebe es nicht nur in Migranten-Familien, sondern auch in manchen deutschen – etwa wenn
+Mutter und Vater zum Islam konvertiert seien. (https://www.tag24.de/nachrichten/nuernberg-erschrecke)
+So wird unser schönes Land Tag um Tag, Stück um Stück immer weiter islamisiert. Türkische Verbände gehen
+davon aus, dass Deutschland im Jahre 2050 ein islamischer Staat sein wird. Denn wenn der Islam sein Ziel nicht
+per Krieg (Dschihad) erreichen kann – so ist er ein Meister in der sukzessiven Unterwanderung nichtislamischer
+Gesellschaften. Und ein paar Jahrzehnte spielen für den 1400jähirgen Islam keine Rolle.
+
+#### Der verhängnisvolle Rollenwechsel des Journalismus am Beispiel von Georg Mascolo und Kai Uwe Diekmann
+Interessant ist zu wissen, wer Georg Mascolo (s.o.) ist. Er war 2008 bis 2013 Chefredakteur des Nachrichtenmagazins ‹Der Spiegel›.
+Seit 2014 leitet er den neu geschaffenen Rechercheverbund des NDR, des WDR und der Süddeutschen Zeitung.
+Damit sitzt er im Zentrum der linken Lügenpresse – und seine Recherchen werden dann auf den Rest des PresseKartells verteilt. Seine Ausbildung ist ebenfalls dürftig: Nach Ausbildung zum Rechtsanwalts- und Notargehilfen
+absolvierte er ein Volontariat bei seinem Heimatblatt, der ‹Schaumburger Zeitung›.
+Das reicht genau zu solchen Berichterstattungen zum obigen Thema wie der folgenden:
+«Hintergrund ist, dass nach jüngster Zählung bereits mindestens ein halbes Dutzend deutscher Minderjähriger
+in Haftanstalten und Verhörzentren im Irak einsitzen. Die meisten von ihnen sind Klein- oder sogar noch
+Kleinstkinder. Sie sitzen nun dort gemeinsam mit ihren Müttern ein, die nach dem Zerfall des IS im Kriegsgebiet
+aufgespürt und verhaftet wurden.
+Allein vier Kinder sitzen im nordirakischen Erbil ein, eine der inhaftierten Mütter ist zudem hochschwanger.
+In der Bundesregierung wird erwartet, dass die Zahl der Kinder mit deutscher Staatsbürgerschaft noch steigen
+wird. Von den etwa 940 zum IS ausgereisten Personen aus Deutschland haben zwei Drittel die deutsche Staatsbürgerschaft.» (Georg Mascolo auf SZ, ebd)
+Das wird jeder Gymnasiast hinkriegen. Doch ich bezweifle, das Mascolo auch nur den Schimmer einer Ahnung
+hat, was der Islam wirklich ist – dass er nichts über die Grausamkeiten Mohammeds weiss – und dass er der
+Meinung ist, der IS habe mit dem Islam nichts zu tun.
+**(Anmerkung Billy: Gemäss plejarischen Angaben wurde der Koran nicht von Mohammed geschrieben, wie**
+auch nicht diktiert, sondern sehr viel später von seinen Anhängern verfälschend geschrieben = Mohammed
+lehrte weder Böses wie Krieg, Mord, Folter und Totschlag, noch sonstig Übles und Unrechtschaffenes.)
+Das Gegenteil ist der Fall: Der IS orientiert sich haargenau an den Worten und Taten Mohammeds, und beruft
+sich in allem, was er tut (Kopfabschneiden, Ertränken, lebend verbrennen, Sex mit gefangenen Frauen etc.) auf
+die Gepflogenheiten Mohammeds, des in den Augen der islamischen Welt ‹besten aller Menschen›.
+Er wird nicht wissen, dass laut einer Umfrage in Saudi-Arabien weit über 90 Prozent der Befragten die IslamKonformität des IS bestätigten. Kaum ein Volk kennt den Islam besser als jenes, das sich rühmt, in der direkten
+Nachfolge des Propheten zu stehen – und sich darüber hinaus rühmt, Allah habe seine Befehle (Koran) in arabischer Sprache zu den Menschen herabgesandt –, womit Saudi-Arabien bis heute seinen Führungsanspruch innerhalb der islamischen Welt begründet.
+Wer das Ergebnis der obigen Studie mit den üblichen Floskeln ‹Die kennen den Koran nicht›, ‹Die haben in
+nicht auf arabisch gelesen›, ‹Die haben diesen oder jenen Satz aus dem Kontext gerissen› usw. usw. abtut, hat
+also am Beispiel der Saudis keine Chance, damit durchzukommen.
+
+
+-----
+
+**Georg Mascolo** jedenfalls dürfte jedes intellektuelle Rüstzeug fehlen, bei solchen existentiell bedrohlichen Dingen
+wie Islam oder IS auf den Grund zu gehen. Er beschreibt nur das, was er an der Oberfläche sieht: Oberflächen**Journalismus. Kann prinzipiell jeder, ohne Journalist zu sein.**
+Dass ein solch dürftig ausgebildeter Journalist es zum Chef des SPIEGEL – immerhin eines der einst renommiertesten intellektuellen Nachrichtenmagazine der Welt – geschafft hat, erinnert einem frappierend an Kai**Uwe Diekmann (Sohn eines Rechtsanwalts und Notars [welch Zufall: Georg Mascolo war Rechtsanwalts- und**
+Notargehilfe]), nach einem Semester bereits abgebrochenes Studium der ‹Geschwätzwissenschaft› Germanistik),
+der es mit ähnlich dürftiger bis nicht vorhandener beruflicher Qualifikation zum Chef des grössten europäischen Boulevardblatts ‹BILD› brachte.
+Zum anderen zeigt es, dass Spitzenjournalisten heute keine gründliche akademische Ausbildung mehr vorweisen
+müssen, wie dies in der Bonner Republik der Fall war.
+**Nichtstudierte Bewerber bei den ehemaligen Weltklassezeitungen wie SPIEGEL, Frankfurter Allgemeine, Süd-**
+deutsche u.a. hatten so gut wie keine Chance mit ihrer Bewerbung als Journalist. Ich weiss dies, weil ich pensionierte Journalisten kenne, die in diesen Medien gearbeitet haben – und mir diese Einstellungspraxis bestätigten. All meine Bekannten sind nicht nur studiert – und zwar in so wichtigen Fächern wie Geschichte,
+Volkswirtschaft, Physik (in den entsprechenden Ressorts arbeiteten sie ) –, sondern alle waren darüberhinaus
+**promoviert.**
+_Quelle: https://michael-mannheimer.net/2017/11/26/vom-wahnsinn-befallen-bundesregierung-will-is-kinder-nach-deutsch-_
+_land-holen/_
+
+### Anmerkung aus dem 695. Kontaktgespräch vom 17. November 2017
+**Billy:       Leider haben ganz offenbar der gesamte Weltjournalismus und die Regierungen in aller Welt noch**
+immer nicht begriffen – oder liegt es an deren Dummheit und an Ungebildetheit –, dass es sich beim IS nicht
+**um einen ‹Islamischen Staat›, sondern um den mörderisch-terroristischen ‹Islamistischen Staat› handelt, also**
+um eine unter dem Deckmantel der Religion Islam funktionierende und bereits weltweit verbreitete Mörderund Terroristenorganisation. Der Islam wird von gläubigen Menschen gepflegt, die dem Religionsbuch ‹QurÂn› (Koran) folgen, ihren Propheten Mohammed verehren und also nichts anders sind als Religionsgläubige,
+wie die Christgläubigen, die Juden, Buddhisten und Konfuzianisten usw., deren sogenannte ‹Heilige Bücher›
+ebensowenig Terroranleitungen aufführen, wie auch der Koran nicht. Der Islamismus, der im Koran fusst, hat
+rein gar nichts mit dem Islamistmus und also nichts mit dem IS resp. Islamistischen Staat zu tun. Der Islamistmus
+– also mit ‹st› geschrieben – steht im absoluten Gegensatz zum friedlichen Islamismus, der rein nichts mit dem
+islamistischen Terror zu tun hat.
+Der Islamistische Staat ist eine seit 2003 aktive, terroristisch agierende sunnitische Mörder- und Terrormiliz,
+die in all den letzten Jahren zehntausende Mitglieder umfasste, die Zigtausende unschuldige Menschen bestialisch
+ermordete und Teile des Irak und Syriens terrorisierte, seither jedoch stark geschrumpft ist, weil sie durch die
+Armeen Syriens und des Irak sowie Russlands und die Peschmerga dezimiert wurden, während die USA-Militärs
+in Wirklichkeit nicht gross gegen die Islamisten, sondern gegen die syrischen Freiheitskämpfer resp. die Oppositionellen Syriens vorgingen. Die organisatorischen Anfänge des Islamistischen Staates gehen auf den irakischen
+Widerstand zurück. Im Jahr 2004 war die Gruppierung unter al-Qaida im Irak (AQI), ab 2007 unter ‹Islamischer
+Staat› (Anm: ‹Islamistischer Staat›) im Irak (ISI) und von 2011 bis Juni 2014 unter ‹Islamischer Staat› (Anm:
+‹Islamistischer Staat›) im Irak und in Syrien (ISIS) bzw. unter dem falschen Namen ‹Islamischer Staat› im Irak
+und der Levante (ISIL) und auch unter dem transkribierten arabischen Akronym ‹Daesch› bekannt. Nach der
+terroristischen Eroberung eines zusammenhängenden Gebietes im Nordwesten des Irak und im Osten Syriens
+verkündete die Terrormiliz am 29. Juni 2014 die Gründung eines Kalifats, und zwar unter dem Patronat von
+Abu Bakr al-Baghdadi, der als ehemaliger Gefangener aus der Haft entlassen, sich als ‹Kalif Ibrahim – Befehlshaber der Gläubigen› proklamierte, womit der Anspruch auf die Nachfolge des Propheten Mohammed als
+politisches und religiöses Oberhaupt aller Muslime verbunden war.
+Dieses ‹Kalifat› entsprach und entspricht einem dschihadistischen ‹Staatsbildungsprojekt›, wobei aber die
+Terrororganisation auch in anderen Staaten rund um die Welt aktiv geworden ist und um Mitglieder für
+Bürgerkriege sowie Terroranschläge wirbt. Diese verbrecherische Terrororganisation hat sich nicht nur des zigtausendfachen bestialischen Mordes und des Völkermordes sowie auch anderer Kriegsverbrechen schuldig
+gemacht, wie unter anderem auch der Zerstörung von kulturellem Erbe der Menschheit.
+
+
+-----
+
+Das sind effective Fakten, wobei aber der Weltjournalismus und die Regierenden sowie die öffentlichen Medien
+noch immer derart dumm oder unwissend sind, dass sie den ‹Islamistischen Staat› immer noch fälschlich als
+**‹Islamischer Staat› bezeichnen und nennen und damit die rechtschaffenen Islamgläubigen verunglimpfen und**
+damit die Andersgläubigen in aller Welt gegen sie aufhetzen. Eine Tatsache, die zwangsläufig zur Folge hat, dass
+rund um die Welt die Christen, Juden, Buddhisten, Konfuzionisten usw. Hasstiraden auf die Islamgläubigen
+losgelassen haben, sie vertrieben und gemordet werden, wie z.B. in Myanmar usw. Das aber kümmert weder die
+verantwortungslosen Journalisten, noch die Regierenden, Medienmacher und Religionsführer, denn zumindest das
+Gros dieser Leute fährt weiterhin damit fort, anstatt die richtige Bezeichnung ‹Islamistischer Staat› eben ‹Islami**scher Staat› zu nutzen, damit weltweit die Menschen in die Irre zu führen und auch den Hass wider die Islam-**
+gläubigen zu schüren. Da fragt es sich tatsächlich, wieviel Blödheit und Dummheit es eigentlich braucht, um diese
+Tatsache nicht zu begreifen und dass damit über 1,8 Milliarden Islamgläubige bösartig gehasst und verunglimpft
+werden. Und dieser Hass und diese Verunglimpfungen erfolgen nicht nur durch viele ‹rechtschaffene› Gläubige
+der 2,2 Milliarden Christen – die sich so sehr der Liebe und des Friedens ‹bemühen› und sich diesbezüglich loben –,
+sondern auch durch die ‹friedlichen› Buddhisten – wie in Myanmar bewiesen wird – und Juden usw. usf.
+
+### Trotz nachgewiesener Schädlichkeit: Glyphosat für weitere 5 Jahre zugelassen
+_Extrem News; Mo, 27 Nov 2017 16:16 UTC_
+Kiloweise sammelten Forscher in den vergangenen 27 Jahren Insekten aus aufgestellten Fallen. Die Auswertung
+der Sammeldaten bestätigt: Die Insektenzahl schwindet vielerorts erheblich.
+
+_© Charles Platiau / Reuters_
+
+Das umstrittene Pflanzenschutzmittel Glyphosat ist für weitere fünf Jahre in der Europäischen Union zugelassen.
+Das teilte die EU-Kommission am Montag mit. Am 15. Dezember wäre die Lizenz für die Nutzung ausgelaufen.
+Es gibt viel Kritik an der Verwendung des Unkrautvernichtungsmittels, das vom US-Konzern Monsanto entwickelt wurde. Viele Umweltschützer pochen schon länger auf einen schnellen Ausstieg aus dessen Anwendung
+in Deutschland und Europa, weil Gesundheitsrisiken befürchtet werden.
+
+
+#### Landwirtschaftsminister Schmidt verteidigt Glyphosat-Entscheidung
+Der geschäftsführende Landwirtschaftsminister Christian Schmidt (CSU) hat die Entscheidung für eine Verlängerung des umstrittenen Unkrautvernichtungsmittels Glyphosat verteidigt. «Mit unserer heutigen Zustimmung zur weiteren Zulassung von Glyphosat für fünf Jahre konnten wir wichtige Bedingungen durchsetzen»,
+sagte Schmidt der ‹Rheinischen Post›.
+Der Minister nannte die ‹Stärkung der Rolle von Biodiversität und Tierschutz›, weitere Aufklärung im Hinblick
+auf die gesundheitlichen Gefahren für den Menschen und eine ‹Prüfung der Optimierungsmöglichkeiten des
+Genehmigungsverfahrens für Pflanzenschutzmittelwirkstoffe›.
+Schmidt begründete das deutsche Abstimmungsverhalten in Brüssel damit, dass die EU-Kommission «sich
+ohnehin für die Verlängerung der Zulassung von Glyphosat entschieden» hätte. «Die Kommission hätte damit
+den Wirkstoff ohne diese Bedingungen verlängert.» National werde man zusätzliche Massnahmen im Sinne
+restriktiverer Anwendungen ergreifen, so Schmidt.
+_Quelle: dts Nachrichtenagentur_
+_https://de.sott.net/article/31809-Trotz-nachgewiesener-Schadlichkeit-Glyphosat-fur-weitere-5-Jahre-zugelassen_
+
+
+-----
+
+### Wie der Faschismus mit seinen Lauftruppen Menschen drangsaliert und die Meinungsfreiheit unterdrückt
+_By Gaby Kraal on 27. November 2017_
+_Andersdenkende sind die Gegner des Faschismus, und werden mit aller Macht bekämpft. Der ‹natürliche› Anspruch_
+_auf die Macht besteht aus der Sicht des Faschisten grundsätzlich. Diese Macht ist demnach dauerhaft zu sichern: Fa-_
+_schismus beginnt nicht erst mit der Inhaftierung des politischen Gegners und seiner anschliessenden Ermordung, er_
+_entsteht bereits in unfreien Geistern (Anm. nicht selbständig und nicht real Denkende), die ihre absolute Gesinnung_
+_und gesellschaftspolitische Überzeugung damit legitimieren, den politischen Gegner zu diskreditieren, zu diffamieren,_
+_zu stigmatisieren und schliesslich sozial auszugrenzen. (Gaby Kraal)_
+Mehrere hundert Studenten der Universität Leipzig hatten am Dienstag vergangene Woche gegen Juraprofessor
+Thomas Rauscher protestiert.
+Nach Angaben von Organisatoren aus Studentenkreisen beteiligten sich an die tausend Menschen an ihrer
+Protestaktion ‹gegen Rassismus› in der City. Die ‹Forschungsgruppe Durchgezählt› zählte zwischen 600 bis 900
+Teilnehmer. Unter ihnen wieder viele gewaltbereite Antifa Chaoten (Lauf- und Schlägertruppen wie die SA unter
+Hitler). Die Demonstranten forderten von der Universitätsleitung nichts Geringeres, als die Meinungsfreiheit
+des Bürgers Rauscher zu bestrafen und daher die Lehrtätigkeit des Professors zu beenden.
+Rauscher steht in Kritik, weil er auf seinem privaten Twitterkanal mit dem Wunsch vieler Polen sympathisierte,
+nach ‹einem weissen Europa brüderlicher Nationen›. Rauscher, der Erasmusbeauftragter und Lehrstuhlinhaber
+des Instituts für ausländisches und europäisches Privatrecht ist, wies die gegen ihn erhobenen Rassismusvorwürfe zurück.
+
+Das Interview mit Prof. Rauscher führte info-direkt
+**Professor Rauscher! Sie wünschten sich unlängst ‹ein weisses Europa brüderlicher Nationen› und sind seitdem**
+**Opfer einer massiven Kampagne. Können Sie die Aufregung verstehen?**
+
+_Foto: Universität Leipzig_
+
+**Prof. Thomas Rauscher:** Der Satz, mit dem ich mich in diesem Tweet identifiziere, stammt aus einem SZBericht, wo über dieses Zitat – neben anderen von Transparenten der Demonstrationen zum Nationalfeiertag
+in Polen – berichtet wurde. Die SZ nahm es, wie es heute in der deutschen Presse üblich ist, zum Anlass, in Bausch
+und Bogen alle national denkenden Polen samt ihrer Regierung als rechtsradikale Nationalisten zu beschimpfen.
+Für mich bringt dieser Satz zweierlei zum Ausdruck: Einerseits das Bewusstsein, dass die Mehrheit der Polen –
+dies gilt auch für Ungarn, Tschechien und die Slowakei – sich ein Europa wünschen, das sich seiner kulturellen
+und christlichen gemeinsamen Wurzeln bewusst ist; hierfür ist das ‹weisse Europa› eine Chiffre, denn unbestreitbar ist die Geschichte und Kulturentwicklung der letzten Jahrtausende in Europa eine von weissen Menschen
+geprägte. So wie die afrikanische Geschichte eine von schwarzen Menschen geprägte ist und wie Japan und viele
+asiatische Länder ethnisch geprägte Kulturräume sind und ausdrücklich sein wollen. Ohne jeden Ansatz einer
+Diskriminierung des Anderen.
+Andererseits wünschen sich die Bürger der ost-mitteleuropäischen EU-Staaten ein Europa ‹brüderlicher Nationen›,
+ein Europa der Vaterländer, die einander nach den Katastrophen des 20. Jahrhunderts verstehen und in ihren
+nationalen, kulturellen und religiösen Besonderheiten achten. Die kulturelle Identität Europas steht selbstverständlich nicht einem weltoffenen Dialog, Austausch und wechselseitigem Lernen in Kultur, Wissenschaft und
+Lebensgewohnheiten entgegen. Sie steht aber einer unkontrollierten Völkerwanderung entgegen, die nicht Aus
+
+-----
+
+tausch, nicht Weltoffenheit, sondern bloss eine unverschlossene Türe bedeutet. Dies alles teile ich.
+Es muss in Deutschland möglich bleiben, die über Jahrzehnte und Jahrhunderte geübte Weltoffenheit des Austauschs zu vertreten, sich aber zugleich gegen eine beliebige und massenhafte Zuwanderung aus aussereuro päischen Kulturen zu verwehren, das die Gegenansicht als ‹buntes› Europa preist. Wer Weltoffenheit mit einer
+unkontrollierten Zuwanderung verwechselt, der verwechselt ein gastfreundliches Haus mit einer unverschlossenen Terrassentüre.
+Übrigens: Mir wird vorgeworfen, ich solidarisierte mich mit einem Zitat aus einer Demonstration, wo auch Anti semiten Parolen riefen. Ich meine, dass meine Bezugnahme auf exakt dieses Zitat jedem fair Denkenden klar
+machen muss, dass ich diese These, aber nicht irgendwelche Randschreier der Demonstrationen unterstütze.
+
+**Sehen Sie den Patriotismus der Polen als Vorbild? Deutschland ist ja geradezu ein Gegensatz zur Situation in**
+**Polen.**
+**Prof. Thomas Rauscher: Der Patriotismus der Polen steht in einem einfacheren historischen Umfeld als ein**
+deutscher Patriotismus. Die Polen können an ihrem Nationalfeiertag die Befreiung von deutscher und russischer
+Hegemonie feiern, ohne die Last, im 20. Jahrhundert andere Nationen unterdrückt zu haben. Gleichwohl ist
+der Patriotismus der Polen für uns ein Vorbild, wenn er sich, wie gerade in der in meinem Tweet aufgegriffenen
+Formulierung, als ein Patriotismus in einem friedlichen, brüderlichen Europa versteht. Deutschland steht im
+Moment in der schizophrenen Situation, dass die herrschende politisch-korrekte Ansicht einerseits deutschen
+Patriotismus verteufelt, weil sie nach 1933–1945 offenbar glaubt, deutscher Patriotismus sei auf ewig ‹verseucht›
+durch die Geschichte. Andererseits aber entwickelt dieselbe herrschende Ansicht eine gegen den europäischen
+Patriotismus der Polen, Ungarn, Tschechen, Slowaken und auch Balten gerichtete moralistische Hegemonie, die
+Europa zerstören wird.
+
+**Man könnte den Eindruck gewinnen, dass die von Ihnen kritisierten ‹Gutmenschen› alles daran setzen, Sie zu**
+**vernichten. Erdrücken die ‹Politisch-Korrekten› die freie Debatte, und wie steht es um die Meinungsfreiheit**
+**an Deutschlands Universitäten?**
+**Prof. Thomas Rauscher: In den letzten Tagen habe ich erfahren, dass in der Tat die systematische berufliche**
+Vernichtung als Waffe gegen andere Meinungen in einer Weise eingesetzt wird, wie ich sie bislang nur totalitären
+Systemen zugetraut habe. Die Leute, die das tun, gewinnen die Ansicht, hierzu berechtigt zu sein, aus einem
+Gefühl der moralischen Überlegenheit ihrer Überzeugungen; so definiere ich übrigens den ‹Gutmenschen›, also
+jene, welche ihre eigene moralische Überlegenheit feiern. Sie merken dabei nicht, dass sie sich fremder Meinung
+gegenüber verhalten wie Rassisten gegenüber fremden Ethnien; nicht im Austausch diskutierend und um Erkenntnisse ringend, sondern mit dem Ziel der Majorisierung, der Vertreibung, der Vernichtung. Und was sie
+selbst tun, trauen sie gerne anderen zu.
+Gerade Studenten in Leipzig sollten angesichts der Identität der Methoden, die in der NS-Zeit und in der DDRZeit gegen Andersdenkende angewendet wurden, für die Freiheit der Meinung kämpfen. Stattdessen haben sie
+mein – am Donnerstag in meiner ‹besetzten› Übung abgegebenes – Angebot zu einer inhaltlichen Diskussion
+barsch abgelehnt. Dass die Universität – ohne mich auch nur anzuhören – in einer Pressemitteilung das Wort
+‹verurteilt› benutzt, statt sich für den freien Diskurs einzusetzen, für den die europäische Universität steht, entsetzt mich. Wer nicht die verordneten Götter verehrt, dem wird, wie Sokrates, der Schierlingsbecher angeboten.
+
+**Die etablierten Medien haben sich ohne Ausnahme der Kampagne gegen Sie angeschlossen. Auch die Uni -**
+**versität kritisiert Sie öffentlich und die Antifa hat sogar eine Vorlesung gestürmt. Gibt es nur negative Rück-**
+**meldungen?**
+**Prof. Thomas Rauscher: Mich hat in den Onlinemedien vor allem erschreckt, dass selbst bei vorliegenden**
+Stellungnahmen meinerseits – manche Medien haben darauf verzichtet, mich zu fragen –, bereits die jeweilige
+Überschrift jede journalistische Distanz vermissen liess und reine Verurteilung war. Ähnlich war es in ‹heute
+plus›, wo aus einem 10-minütigen Interview ein einziger Satz gesendet wurde. Mir wurden teilweise wörtlich
+abgegebene Formulierungen so verdreht, dass man mir Lüge vorwerfen konnte; ich habe teils auch Gegendarstellung verlangt. Wer das einmal selbst erlebt, kann sich von dem Wort ‹Lügenpresse› nicht mehr überzeugend
+distanzieren. Das tötet den Sinn der freien Presse. Ich kann keinem Medium mehr glauben.
+Hingegen erreichen mich in grosser Zahl Zuschriften von Bürgern aus allen gesellschaftlichen Schichten, die zu
+über 95% betonen, dass sie den Angriff auf die Meinungsfreiheit nicht billigen, völlig unabhängig davon, ob sie
+meine Meinung teilen oder nicht. Viele dieser Bürger berichten auch aus ihrer Erfahrung aus der früheren DDR
+und sehen mit Sorge, dass wie damals die Methode der Verfolgung durch berufliche Schädigung geübt wird.
+Vor allem aber berühren mich die Zuschriften von Studierenden, die – mit Bitte um absolute Diskretion – mir
+
+
+-----
+
+ihr Entsetzen über die Methoden der Meinungsunterdrückung offenbaren. Ablehnende Zuschriften kann ich
+an einer Hand abzählen; meine Gegner diskutieren nicht und sie treten in Massen oder anonym auf.
+
+**Sie schrieben auch: «Das weisse Europa ist, das möchte ich ganz deutlich sagen, genauso wie ein schwarzes**
+**Afrika oder ein thailändisches Thailand – ein wunderbares Ziel: Bewusstsein für die eigene Kultur und die**
+**eigene Geschichte sowie eine gewisse Pflege für den Raum, in dem sich die Kultur entwickelt.» – Was muss**
+**getan werden, damit dieses Ziel erreicht werden kann?**
+**Prof. Thomas Rauscher: Wir müssen zurückkehren zu einem Kulturverständnis, in dem die Bewahrung der**
+Eigenständigkeit von Kulturen, das gegenseitige Erfahren, Erforschen, Verstehen, der Dialog und Austausch, im
+Vordergrund stehen. All das, was ich seit 25 Jahren in dieser Universität pflege und was ich persönlich schon
+viel länger lebe. Amalgamisierung zerstört alle beteiligten Kulturen, und ich möchte dies ganz ausdrücklich auch
+auf die unter dem Gesichtspunkt der ‹Leitkultur› vertretene Assimilierung von Zugewanderten beziehen. Millionen wirtschaftlich motivierte Migranten sind keine Botschafter ihrer Kulturen, sondern Menschen, die immerhin das Geld und die Kraft haben, ihre Länder zu verlassen – und damit auch im Stich zu lassen – und in
+Europa zu einer kulturell entwurzelten Schicht zu werden drohen. Die europäische Kultur verkraftet diese Masse
+nicht und hat deshalb nur die Wahl, sich selbst zu verleugnen oder die Zugewanderten zwanghaft zu assimilieren.
+Beides ist kulturfeindlich.
+Ganz konkret müssen wir im Moment eine Politik erreichen, die nur die Flüchtlinge im Sinn der Genfer Konvention dauerhaft hier bleiben lässt. Wer Schutz erhält wegen Krieg, muss zurück in sein Heimatland, wenn der Krieg
+vorbei ist. Dort wird er gebraucht, hier ist nicht sein Platz. Und gegen die wirtschaftlich motivierte Migration
+muss Europa eine konsequente Grenzsicherung betreiben. Wir retten die Dritte Welt nicht, indem wir die Stärksten
+von dort bei uns bescheidenen Wohlstand finden lassen, sondern indem wir Geld investieren und dafür sorgen,
+dass diese Länder Diktatoren vom Schlag Mugabes abschütteln. Bewahrung der kulturellen Vielfalt dieser Erde
+bedeutet natürlich nicht Abschottung und Abgrenzung. Schon der Austausch, der Dialog, das Studieren, Reisen
+und Erfahren fremder Länder ist Weltoffenheit und führt zu behutsamen Entwicklungen innerhalb der jeweiligen
+Kultur. Voneinander lernen, das andere respektieren, das andere anders sein lassen, aber nicht alles vermengen.
+Dies schliesst auch Migration nicht aus. Wir erleben seit den 1960er Jahren vor allem Menschen aus Südeuropa
+und der Türkei, die zu uns gekommen sind aus einem klar definierten Arbeitsinteresse und die teils sehr gerne
+zurückgingen und teils sehr gerne hierblieben. Ich freue mich über jeden Türken, mit dem ich an der türkischen
+Riviera darüber sprechen kann, dass er in Deutschland sein Leben in der Türkei erwirtschaften konnte und nun
+froh ist wieder daheim zu sein. Und ich freue mich über jeden Türken, der hier geblieben ist, ein Haus gebaut
+hat und trotzdem nicht assimiliert wurde. Gleiches gilt für jene Gastarbeiter aus heutigen und künftigen EUMitgliedstaaten wie Spanien, Portugal, Griechenland, Slowenien, Kroatien, Serbien usw., die zu Botschaftern
+eines besseren Verständnisses innerhalb unserer EU geworden sind. Beides, Heimkehren und Bleiben, ist möglich, wenn es sich um eine geordnete, beidseits gewollte und von vernünftigen Zielsetzungen beider Seiten kontrollierte Migration handelt. Wenn man aber nur einen Bruchteil der – letzte Woche vom Präsidenten des BND
+genannten – Zahl von einer Milliarde Migrationswilliger aus der Dritten Welt nach Europa strömen lässt, ohne
+jede klare Vorstellung, welchen Zweck und welche Auswirkung das haben soll, dann betreibt man Kultur zerstörung auf beiden Seiten.
+_Quelle: https://schluesselkindblog.com/2017/11/27/wie-der-faschismus-mit-seinen-erzogenen-lauftruppen-menschen-drangsa-_
+_liert-und-die-meinungsfreiheit-unterdrueckt/_
+
+### Der C14-Crash: Alle Altersdatierungen sind möglicherweise falsch
+_aikos2309; Pravda-TV; Mo, 27 Nov 2017 17:26 UTC_
+
+Japanische Wissenschaftler konnten jetzt erstmals nachweisen, dass Blitze in der Erdatmosphäre bisher unbe
+
+-----
+
+kannte Kernreaktionen auslösen können, bei denen unter anderem radioaktive Isotope wie Kohlenstoff-14 (C14)
+entstehen. Dadurch könnte die Kohlenstoffdatierung in Frage gestellt werden, die verschiedene Wissenschaftszweige wie Archäologie, Anthropologie oder Paläontologie gerne zur Altersbestimmung nutzen.
+Wissenschaftler hatten schon lange den Verdacht, dass Blitze Kernreaktionen der Luftmoleküle und dabei auch
+Positronen erzeugen können. Schon 1925 trug der schottische Physiker und Meteorologe Charles Wilson seine
+Theorie vor, dass Gewitter und die begleitenden Blitze Kernreaktionen in der Atmosphäre verursachen könnten.
+Tatsächlich konnte man in den darauffolgenden Jahrzehnten auch Neutronen, Gammastrahlung und energiereiche Elektronen nachweisen, doch eindeutige Hinweise auf die dazugehörigen Prozesse fehlten.
+
+Einem japanischen Forscherteam von der Kyoto University und der Universität Tokyo gelang es nun im Rahmen
+ihres Projekts ‹Gamma-Ray Observation of Winter Thunderclouds› (GROWTH), den Ablauf der von Blitzen
+verursachten Kernreaktionen sicher nachzuweisen. Wie sie im Fachjournal ‹Nature› schreiben, hatten ihre Sensoren während eines Wintersturms an der Küste des Japanischen Meeres am 6. Februar 2017 auffällige Werte
+registriert. Ihre Messungen ergaben, dass die Blitze aus den normalen Stickstoff-Atomen in der Luft unter
+anderem auch das radioaktive Element C14 erzeugt hatten. Dieser Prozess war den Wissenschaftlern bisher völlig
+unbekannt, bisher ging man davon aus, dass C14 in der Regel nur durch kosmische Strahlung in der Atmosphäre
+entsteht.
+Die Forscher konnten anhand ihrer Messungen dokumentieren, dass bei einem Blitz die von den Gammastrahlen
+aus den Stickstoff-Atomen herausgeschlagenen, schnellen Neutronen immer wieder mit den Atomen der Gase
+in der Luft zusammenstiessen und dabei viel an ihrer Geschwindigkeit einbüssten.
+Etwa 96 Prozent dieser verlangsamten Neutronen blieben im Kern eines weiteren Stickstoff-Atoms stecken und
+schossen dabei ein positiv geladenes Proton aus diesem Kern heraus. Bei diesem Prozess wurde der StickstoffAtomkern schliesslich in das radioaktive C14-Isotop umgewandelt. Diese Entdeckung könnte Auswirkungen
+auf die Datierung archäologischer Funde mittels der C14-Methode haben, denn es ist noch völlig ungewiss,
+welche Mengen an C14 durch Blitze entstehen. Da organische Materialien das Isotop C14 in sich speichern,
+wurde bisher seine Zerfallszeit zur Altersbestimmung von fossilen Funde benutzt.
+Sollte sich herausstellen, dass Blitze in der Lage sind, hohe Konzentrationen an C14 zu erzeugen, hiesse das, dass
+die Radiokohlenstoffdatierung nicht zur radioaktiven Altersbestimmung von kohlenstoffhaltigen, organischen
+Materialien geeignet ist und alle von der Archäologie, Anthropologie oder Paläontologie bisher durch geführten
+Datierungen mit diesem Verfahren fehlerhaft sind.
+
+#### C14-Crash: Das Ende der Illusion, mit Radiokarbonmethode und Dendrochronologie datieren zu können
+Bereits 1997 erschien das lang vorbereitete Buch ‹C14-Crash› des Mathematikers und Wissenschaftskritikers
+Christian Blöss (Berlin) und des Professors für Technikgeschichte Hans-Ulrich Niemitz (Leipzig). In Vorträgen
+im Berliner Geschichtssalon und verschiedentlich auch ausserhalb Berlins haben die beiden seit einigen Jahren
+ihre Thesen vorgetragen und für entsprechenden Aufruhr gesorgt (Evolutionslüge: Tatort Universität Frankfurt).
+Aber erst mit dem fertigen Buch ist der Crash passiert: C14 hat ausgedient als chronologisches Hilfsmittel. Die
+Beweise sind umwerfend. Beim Lesen hat man des öfteren das Gefühl, dass kein Wissenschaftler so dumm sein
+kann, dass er nicht vorher schon auf die eklatanten Fehler in der C14-Bestimmungsmethode gekommen wäre.
+Sie wird schliesslich seit sechzig Jahren (fast) unangefochten verwendet.
+Zum vierzigjährigen Jubiläum (1992) präsentierte sich eine internationale Mannschaft mit vielen Vorträgen, die
+in einem 600-seitigen Band von Taylor, Long und Kra zusammengefasst wurden und in Selbstbeweihräucherung
+die bahnbrechende und geniale Idee Frank Libbys feierten, der mit dem Nobelpreis gekrönt worden war. Die
+Ansprüche dieser Herren sind unglaublich anmassend, darum will ich zwei Sätze zitieren: «Man lese Abhandlungen», schreibt Wendorf, «die vor der Verbreitung der C14-Methode geschrieben wurden: Praktisch keine dieser
+so zuverlässig vorgebrachten Zeitabfolgen von vor 1960 … hat die Ansätze der von C14 erbrachten absoluten
+Daten überlebt.» (Meine Übers.)
+
+C14 hat also alle früheren Datierungen der Vor- und Frühgeschichte über den Haufen geworfen. Nicht nur die
+nackten Jahreszahlen, sondern natürlich alle sich daraus ergebenden Schlussfolgerungen: Wer war eher im Lande,
+wer folgte auf wen, welches Volk strömte in welcher Richtung …
+
+Und nun ist diese Methode der Lächerlichkeit preisgegeben! Die Hauptargumente von Blöss und Niemitz kann ich
+nur in einigen Sätzen vorstellen, sie lassen sich leider nicht verkürzt sagen, sonst wäre ihr Buch nicht nötig. Dort
+sind sie in einer erfrischend ansprechenden und übersichtlichen Gestalt, auch für Laien verständlich, dargestellt.
+
+
+-----
+
+Im Grunde handelt es sich um einen Trick, der höchstens noch als Zirkelschluss zu entschuldigen wäre, wenn
+er nicht zu offensichtlich wäre. Libby nahm Holzfragmente aus Ägypten, deren Datierung geisteswissenschaftlich festgelegt worden war, und stellte durch Auszählen der verbliebenen C14-Isotope – unter Voraussetzung
+einer stets gleichbleibenden Verfallsrate von Kohlenstoff – eine Kurve auf, mit deren Hilfe er durch Übertragung
+auf andere Zeiträume und Orte dann C14-Daten für Proben, die nicht anders datiert werden konnten, herausfand. Dadurch ergab sich ein geeignetes Hilfsmittel zur Altersbestimmung von Gegenständen, die zeitlich nicht
+einzuordnen waren, also auch das Ergebnis nicht Lügen strafen konnten. Bei archäologischen Fundgegenständen,
+deren Alter grob bekannt war, lagen die Ergebnisse erstaunlicherweise stets sehr eng an den vorbekannten Daten.
+Dies war ganz einfach zu erreichen: Die meist sehr weit streuenden Daten wurden unterschlagen, man gab nur
+das bekannt, was erwartet wurde. Blindversuche gab es kaum.
+Nun führen die Autoren in ganz strenger mathematisch-physikalischer Argumentation die Hintergründe der
+Fehler an: Kohlenstoff zerfällt je nach Ort und Zeitpunkt in verschiedener Geschwindigkeit, die Variablen sind
+derart gross, dass von Einheitlichkeit nicht die Rede sein kann. Zwar ist diese Unzuverlässigkeit der Verfallsrate
+von Kohlenstoff durchaus schon bald nach Libbys Veröffentlichung aufgefallen, aber man half sich dann mit
+der Kalibrierung durch Baumringe (Dendrochronologie).
+Genaugenommen war dies ein Hand-in-Hand-Arbeiten zweier Disziplinen, die sich gegenseitig aufschaukelten.
+Für die erste längere Baumringanalyse, die noch aus unverbundenen Teilstücken bestand, verwendete man die
+C14-Methode, um eine Ordnung herzustellen und erste feste Daten zu gewinnen. Dann berichtigte man die
+C14-Daten mit Hilfe der Baumringjahre, woraus sich die nun ‹zweifelsfreien› kalibrierten (zurechtgestutzten)
+Daten ergaben.
+Dass da eine ganze Reihe von Denkfehlern auftauchen kann, hatten schon verschiedene Forscher gezeigt, aber
+nur selten einen echten Angriff daraus gemacht. So weichen z.B. Daten der kalibrierten Radiokarbonmethode
+schon im 1. Jahrtausend v.d.Z. von denen der Warvenchronologie (der ältesten physikalischen Zeitbestimmungsmethode) um ein glattes Jahrtausend voneinander ab, wie Geophysiker vom Institut Potsdam 1994 veröffentlichten.
+Oder die Einwände des Felsbilderforschers Bednarik, die im Institutum Canarium veröffentlicht wurden: Die
+chemische oder physikalische Analyse einer Farbstoffprobe von einer Felsmalerei sagt nichts aus über den Zeitpunkt
+der Herstellung des Bildes, sondern über die Beschaffenheit des Farbmaterials. Eisenoxid z.B. ist Jahrmillionen
+alt, Bakterien in der Farbprobe vielleicht wenige Jahre; der Durchschnittswert ist in jedem Fall uninteressant.
+Mit der meines Erachtens schlüssigen Widerlegung von C14-Methode und Dendrochronologie durch Blöss und
+Niemitz sind wir nun aufgeklärt über die grundsätzlichen Fehler, die in diesen Methoden selbst liegen. Dieses
+Buch ist ein Angriff, der die Wissenschaftler, die sich mit C14 beschäftigt haben, umwerfen muss. Das wäre halb
+
+
+-----
+
+so schlimm, denn wissenschaftliche Theorien sind dazu da, dass sie gestürzt werden. Aber wir, was machen wir
+damit? Man hat sich ja in den letzten fünfzig Jahren leichtfertigerweise völlig auf diese trügerische Datierungs technik verlassen und die ganze Vor- und Frühgeschichte umgeschrieben. Nun müssen wir herausfinden, was
+alles durch C14-Daten kontaminiert ist – und das ist enorm viel!
+Eigentlich können wir die einzelnen Schlussfolgerungen gar nicht mehr trennen. Sogar für die bemalten Höhlen
+Frankreichs wurde diese Technik angewendet und hat unglaubwürdige Ergebnisse gebracht, die dennoch allgemein akzeptiert wurden. Die entdeckte Höhle von Chauvet, die vielleicht vor 2500 Jahren bemalt wurde, eventuell später, hat ein Alter von 30000 Jahren bekommen. Da geht nun alles durcheinander.
+Möglicherweise gäbe es eine Methode, die zwar radikal aber heilsam ist: Alle Datierungen, die in Sachen Vor- und
+Frühgeschichte nach 1955 bis 1960 (Einführung der C14-Datierung) geschrieben wurden, sollten als verfälscht
+ausgeschieden werden. Ein Rückgriff auf die ernsthafte Geschichtsschreibung vor 1900 wäre meiner Ansicht
+nach ohnehin seit längerem nötig! Denn durch die biblischen Abrahamdaten und die mittelalterlichen FabulierChronologien (Eusebius, Julius Africanus usw.) ist soviel Verwirrung hineingebracht worden, dass man in
+chronologischer Hinsicht eigentlich von vorne anfangen sollte.
+_Quelle: https://de.sott.net/article/31807-Der-C14-Crash-Alle-Altersdatierungen-sind-moglicherweise-falsch_
+
+### FIGU-Informationen aus dem 182. offiziellen Kontaktgespräch vom 3.2.1983:
+**Auszug: Es wird durch die Plejaren erklärt, dass die irdischen Geräte und Apparaturen der Altersbestimmung**
+und auch die rein chemischen Altersbestimmungsprozesse sehr wohl ausgefeilt und weitgehend genau seien, so
+durch die Wissenschaftler gute und teils sogar annähernd genaue Altersbestimmungsresultate erstellt werden
+könnten, dass jedoch bei Altersbestimmungsvorgängen bei gewissen Materialien, und die ein Alter von 1438 Jahren
+v. Chr. überschreiten, Fehlresultate auftreten, die eine Fehldifferenz bis zu 1942 Jahren ergeben können.
+Und dies erfolge in der Form, wird durch die Plejaren erklärt, dass da ein Material, das älter ist als 1438 Jahre
+v. Chr., eine atomare Zerstrahlung erlitten habe, wodurch 1942 Jahre im Zerfallsprozess einfach fehlen. Dies, so
+wird erklärt, beeinträchtige die genaue Messung des Halbzeitwertverfalls bestimmter Materialien um bis zu
+1942 Jahre, wodurch sich ergebe, dass alles, was da z.B. gemessen und analysiert wird mit einem Alter von 1450
+Jahren v. Chr., wahrheitlich um bis zu 1942 Jahre älter sein kann, so in diesem Falle also 3392 Jahre v. Chr., denn
+1450 v. Chr. und 1942 ergeben 3392 v. Chr. Hierzu wird von den Plejaren weiter gesagt, dass diese krasse Veränderung in gewissen Materialien der Erde dadurch zustande gekommen sei, weil der Mensch der Erde durch
+seinen Wahnsinn atomare und chemische Prozesse in allen Sphären (wie z.B. Geosphäre, Atmosphäre, Chromo sphäre, Stratospähre usw.) hervorgerufen habe, die bestimmte Strahlungen erzeugten, die gewisse Materialien
+auf der Erde derart beeinflussten und wandelten, dass Störungen im Atomhaushalt und im Molekularhaushalt
+auftraten und Änderungen hervorriefen bei verschiedenen Materialien von grösserem Alter als 1438 Jahren v.
+Chr. So wie erklärt wird, sollen ganze Halbwertstrukturen ausradiert worden sein, so eine genaue Analyse nur
+noch möglich sei, wenn die fehlende Zeit der Halbwertstrukturen von 1942 jeweils zum erlangten Resultat hinzuoder abgerechnet werde, wenn die erlangte Altersbestimmung über 1438 Jahre v. Chr. betrage. Daraus und hierdurch wird z.B. auch die Differenz erklärlich, die da in Erscheinung tritt zwischen den Angaben der Plejaren und
+den Erdenwissenschaftlern, so z.B. im Falle der Santorin-Katastrophe und der Moseszeit, die von den Erdenwissenschaftlern mit ca. 1500 v. Chr. angegeben wird, während die Plejaren die Zeit von 3470 v. Chr. nennen.
+_(Quelle: http://www.futureofmankind.co.uk/Billy_Meier/Contact_Report_182_Part2)_
+
+
+-----
+
+-----
+
